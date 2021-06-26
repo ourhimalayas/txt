@@ -1,34 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉实验室在2017年发现了重现冠状病毒&#8221;流行毒株&#8221;的所有基因
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1339459/)
+## 中共在西藏的新子弹头列车 靠近有争议的印度边境运营
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1351781/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21130220/10561.jpg)
-**据《国家脉动》，作者：NATALIE WINTERS，2021年6月18日报道：**
+2021年6月25日
 
-根据《科学新闻》2017年的一份报告，武汉病毒研究所――越来越被认为是SARS CoV-2冠状病毒的来源――获得了“制造与流行毒株类似的SARS冠状病毒的所有基因”。
-这篇文章――“中共国的蝙蝠携带着制造新SARS病毒的所有成分”――记录了由福奇资助的“蝙蝠女”石正丽领导的武汉病毒学研究所研究小组如何对野生蝙蝠进行采样。
-2017年11月30日的报告也被交叉张贴在武汉实验室的网站上，它揭示了石正丽团队收集的数据如何使实验室能够“制造出与流行毒株相似的SARS冠状病毒”。
-在对中国南部云南省的一个洞穴中的蝙蝠进行了五年的调查之后，石正丽及其同事在马蹄蝠（特别是Rhinolophus sinicus）中发现了11种与SARS有关的新病毒株。中国科学院武汉病毒研究所的病毒学家石正丽说，在这些毒株中，研究人员发现了制造与流行毒株类似的SARS冠状病毒的所有基因。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25175012/0-22.png)上周在西藏新铁路线上试运行的复兴号子弹头列车。照片：新华社
 
-巴尔的摩马里兰大学的病毒学家马修.弗里曼（Matthew Frieman）说，这些新菌株与人类版本的SARS比以前发现的蝙蝠病毒更为相似。
-最近从武汉病毒研究所网站上抹去的这篇文章还指出，石和她的同事发现“其中几个菌株”可以在人类细胞中生长。
-通过分析新病毒的完整基因构成，石和她的同事回溯了可能产生原始SARS病毒的步骤。病毒DNA中的几个点似乎特别容易重新排列，因此重新混合的情况经常发生。巴里奇（Ralph Baric）说，这项研究表明，病毒之间的重组形成了SARS的进化。
-石的团队发现，其中几个毒株已经可以在人类细胞中生长。这表明“存在于这些蝙蝠中的病毒有可能跳到人身上”，弗里曼说，“它们是否会这样做，谁也说不准。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21124836/1056.jpg)武汉实验室网站上的文章
-文章还引用了拉尔夫.巴里奇博士（Ralph Baric）――被石女士称为她的“长期合作者”之一，最近兰德.保罗参议员在询问安东尼.福奇博士时也提到了这一点。
-没有参与这项研究的北卡罗来纳大学教堂山医学院的病毒学家拉尔夫.巴里奇（Ralph Baric）说，这些病毒“已经准备好在未来引起大流行爆发，我们不能放松警惕”。
-在这篇挖掘出来的文章之前，《国家脉动》披露了巴里奇2018年的评论，提供了关于如何 “在下一次大流行中赚钱”的建议。
+**摘要翻译：**
 
-原文连接：[https://thenationalpulse.com/news/wuhan-found-genes-to-make-epidemic-coronavirus/](https://thenationalpulse.com/news/wuhan-found-genes-to-make-epidemic-coronavirus/)
+一条新的高速铁路线周五开始在西藏运营，将乘客从首府拉萨运到东部城市林芝，靠近中国与印度有争议的边境。
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 –傻小子
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+这是西藏第一条电气化铁路线，子弹头列车将以每小时160公里（99英里）的速度行驶，是山区行驶的最快速度。拉萨和林芝之间435公里（270英里）的旅程将需要3个半小时。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+高速铁路线在拉萨和宁蒗之间延伸，距离事实上的边界不到16公里。
 
-0
+观察人士称，它将对该地区的发展产生重大影响，还将用于军事运输。
+
+【[新闻来源](https://www.scmp.com/news/china/diplomacy/article/3138803/chinas-new-bullet-trains-tibet-run-close-disputed-indian)】
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1

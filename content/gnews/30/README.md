@@ -1,209 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士日拱一卒，病毒真相呼之欲出！（四十九）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1339349/)
+## 6/23/2021 财经快讯：央行数字货币获得国际清算银行全面支持; 比特币反弹，升至30,000美元以上
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1344574/)
 
-作者：纽约香草山信息部 6zero4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/23112426/%E5%9B%BE%E7%89%872-24.png)[图片来源](http://www.xiwangzhixingyoueryuan.com)
+**1.****中央银行数字货币获得国际清算银行的全面支持**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+[国际清算银行的年度报告估计至少有56家中央银行和货币当局，代表了世界上大约五分之一的人口，现在正在研究数字货币，因为商业转移到了网上。国际清算银行的Benoit Coeure说：”火车已经离开了车站，”他指的是向中央银行数字货币的转变及其支持。”这并不是说我们在得意忘形，我们只是在环顾四周”。他的推动是在全球范围内实物现金使用量下降，当局希望抵御来自比特币和 “大科技”（如Facebook支持的Diem，前身为Libra）对其印钞权的威胁。Coeure警告说，如果没有CBDCs，数字货币将越来越被大的科技公司所控制，因为他们将利用巨大的社交媒体用户群… 这是一个你不想去的地方，也是政府不想去的地方…”他将其描述为对主权货币的失控。](https://www.oann.com/central-bank-digital-currencies-get-full-bis-backing/)
 
+**2.****比特币反弹，升至30,000美元以上**
 
+[比特币正在从最近的下跌中反击，在世界最大的代币跌破30,000美元之后，这种下跌激起了人们对大规模清算的担忧。 虚拟货币在周三的交易中上涨了3%，至33,900美元–在一次戏剧性的溃败短暂地抹去了今年的收益后的一天。”基本面是健康的，有太多的负面因素被定价了，”在伦敦MVPQ Capital经营专注于加密货币的基金的Felix Dian说。”衍生品数据，包括期货的后向性，告诉我们目前有一个强大的空头基础，使得任何较低的支撑不太可能是持久的。”](https://www.newsmax.com/finance/streettalk/bitcoin-rebound/2021/06/23/id/1026092/)
 
-6月20日塞林博士的11连推：
+**3.****沃伦-巴菲特辞去盖茨基金会董事职务**
 
-第1推，被闫博士指控企图杀害她的CCP逃亡科学家Mahen仍在美国逍遥法外，那些可能帮助过他的人将被曝光，这可能牵涉到推特名为Alvin、Purvesh Khatri和Steve Bosinger的几个人。并再次贴上了 Mahen、Maryna Eichelberger、马利克和Peter Palese之间高度相关的信息截图照片，以及两个新线索：
+[现年90岁的巴菲特在一份声明中宣布了他从盖茨基金会董事会卸任的决定，同时宣布他将其伯克希尔-哈撒韦公司的股票捐给慈善机构的时间已经过半。巴菲特又赠送了41亿美元的伯克希尔公司股票给各基金会。](https://www.zerohedge.com/markets/warren-buffett-resigns-gates-foundation-board)
 
-1. Ananda P. Dasanayake：在纽约大学工作，Mahen的斯里兰卡籍密友，他也许知道Mahen的下落。
-2. 纽约血液中心旗下林德赛 . 金博尔研究院(Lindsley F. Kimball Research Institute)：最近20年，该研究中心曾经赞助和聘用了无数PLA科学家。
+[在与CNBC分享的一份声明中，巴菲特说他正在辞去盖茨基金会董事会的职务，”多年来，我一直是只有一个接受我资金的机构–比尔和梅琳达-盖茨基金会的理事–一个不活跃的理事。巴菲特在一份声明中说：”我现在要辞去这个职务，就像我在伯克希尔公司以外的所有公司董事会所做的那样。”BMG的首席执行官是马克-苏兹曼（Mark Suzman），他是最近的杰出人选，得到了我的完全支持。我的目标与基金会的目标是100%同步的，我的实际参与绝不是为了实现这些目标。”** **](https://www.zerohedge.com/markets/warren-buffett-resigns-gates-foundation-board)
 
+**4.****三分之一的主流投资公司告诉摩根大通，加密货币是 “老鼠药**
 
-（Ananda P. Dasanayake真容浮出水面）
+[在摩根大通调查的机构投资公司中，只有10%的公司交易加密货币，近一半的公司将这种新兴资产类别称为 “老鼠药”，或预测它将是一种暂时的时尚。世界上最大的加密货币–比特币周二跌至五个月低点，扩大了中共国对加密货币开采和交易的打击力度的损失。美国证券交易委员会表示，它希望看到围绕该领域交易的更多监管。根据摩根大通在宏观、量化和衍生品会议上进行的调查，来自约1500家机构的约3000名投资者参加了会，80%没有预期开始投资或交易电子货币。](https://www.oann.com/crypto-is-rat-poison-a-third-of-mainstream-investment-firms-tell-jpm/)
 
+**5.以色列表示，尽管它拥有世界上最多的疫苗接种人口，但它正面临着由Delta 变异毒株引发的新的CCP病毒疫情**
 
+[以色列表示，它正在与新爆发的中共病毒疫情作斗争，尽管它成功地为民众接种了疫苗。总理纳夫塔利-贝内特周二将最近的感染病例激增描述为该国的 “新爆发”，而以色列卫生部主任表示，大约70%的新感染病例是Delta变异毒株。 以色列在周三扩大了旨在控制疫情的权力。 路透社报道，它说卫生官员可以隔离任何接触过该变体的人，即使他们已经接种疫苗或以前被感染过。](https://www.businessinsider.com/israel-seeing-new-covid-19-outbreak-despite-vaccine-success-2021-6)
 
-> Fugitive CCP scientist Ranawaka Arachchige Prasad Mahendra Perera, accused by Dr. Li-Meng Yan of trying to kill her, is still at large in the US. Institutions & individuals who may have assisted him will be exposed. Relationships may be [@alvie\_barr](https://twitter.com/alvie_barr?ref_src=twsrc%5Etfw) [@purveshkhatri](https://twitter.com/purveshkhatri?ref_src=twsrc%5Etfw) [@BosingerLab](https://twitter.com/BosingerLab?ref_src=twsrc%5Etfw) [pic.twitter.com/3QKrplePxq](https://t.co/3QKrplePxq)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406484553972203521?ref_src=twsrc%5Etfw)
+**6.中共国的电网在其无序的南方工业地区中失败了**
 
+[广东东莞市一家鞋厂的总经理在6月21日发表的一篇报道中告诉《苹果日报》，他管理的工厂 “每月可生产10万双鞋，但自5月起实施的电力限制产生了严重影响。工厂不得不租用发电机，以保证按时交货”。路透社5月27日援引 “五家电力用户和当地媒体的报道 “包括东莞、广州、佛山和汕头在内的广东各城市的地方电网公司在5月下旬开始发布通知，”敦促该地区的工厂用户在高峰时段，即上午7点至晚上11点之间停止生产，甚至每周停产两到三天。””由于经济活动的加速恢复和持续的高温，用电量一直在增加，”广东省能源局在5月底发表的一份声明中说。该局补充说，广东5月份的平均气温 “比正常温度高4摄氏度，促进了空调需求”。](https://www.breitbart.com/asia/2021/06/22/report-chinas-power-grid-failing-its-sprawling-southern-factory-belt/)
 
+**7.****社交网络Minds为去中心化和加密的应用程序筹集了1000万美元**
 
-第2推，腐败得无可救药并因政治而妥协的司法部(DOJ)和联邦调查局(FBI)，可能正在保护被闫博士指控试图谋害她的CCP逃亡科学家Mahen，因为他们的民主党和全球主义大咖们在与CCP的合作中正变得越来越有钱。贴上了标注有“腐败”二字并配有裂开了的司法部(DOJ)和联邦调查局(FBI)徽标的一张图片。
+[以加密为重点的社交网络Minds已经从技术自由组织Futo那里筹集了1000万美元，用于开发一个去中心化和加密的社交网络和消息应用。Futo是由雅虎游戏创始人和WhatsApp的种子投资者Eron Wolf所拥有，致力于将计算机和互联网的控制权交还给人民的技术和政策。包括Facebook在内的许多其他社交媒体网络为广告目的挖掘用户数据，而Minds则专注于用户隐私并使用开源技术。Minds是一个加密的社交网络，有一个即时通讯聊天应用程序，允许用户实时沟通。自2018年10月获得一轮融资以来，它已发展到1400多万用户。](https://www.breitbart.com/tech/2021/06/22/social-network-minds-raises-10-million-for-decentralized-and-encrypted-app/)
 
+**8.****欧盟委员会对谷歌展开正式的反垄断调查**
 
+[欧盟本周宣布了这项调查。虽然欧盟过去曾就反垄断问题对谷歌进行过调查，但这次调查非常重要，因为它侧重于谷歌的核心在线广告业务，该业务去年为该公司创造了1470亿美元的收入。 彭博社报道说，这是欧盟第一次调查谷歌的在线显示广告业务，它作为广告商和出版商之间的中介，在网页和应用程序中投放广告。欧盟委员会的竞争主管在一份声明中说。”谷歌收集数据用于有针对性的广告目的，它出售广告空间，还充当在线广告中介。因此，谷歌几乎存在于在线显示广告供应链的所有层面。我们关注的是，谷歌已经使竞争对手的在线广告服务在所谓的广告技术中更难竞争… 我们还将关注谷歌的用户跟踪政策，以确保它们符合公平竞争的要求。”](https://www.breitbart.com/tech/2021/06/22/european-commission-launches-formal-antitrust-investigation-of-google/)
 
-> The hopelessly corrupt and politically-compromised FBI and DoJ may be protecting fugitive CCP scientist Ranawaka Arachchige Prasad Mahendra Perera, accused by Dr. Li-Meng Yan of trying to kill her, because their Democrat & globalist masters are getting rich working with the CCP. [pic.twitter.com/15cyKM3Oiz](https://t.co/15cyKM3Oiz)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406508450520125440?ref_src=twsrc%5Etfw)
+By【秘密翻译组-金融组】
+作者：Totoro
 
-
-
-第3推，转发搅混水的伪类“朱一族” 回应塞林博士今天第1推的推文：威胁杀人是严重的罪行，赶快向FBI报告。
-
-CCP逃亡科学家Mahen当下并没有威胁要杀她，而是闫博士说他曾经企图杀害她。然而，似乎有在美国、美国研究机构甚至美国政府的人正在保护一个明确危险的男人。（伪类“朱一族”线索浮出水面）
-
-
-
-> Fugitive CCP scientist Ranawaka Arachchige Prasad Mahendra Perera did not just threaten to kill her, Dr. Li-Meng Yan said he tried to kill her. Yet there appear to be people in the US and US research institutions, maybe even the US government, protecting a clearly dangerous man. [https://t.co/rUG4EOQ8oA](https://t.co/rUG4EOQ8oA)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406514030597054466?ref_src=twsrc%5Etfw)
-
-
-
-第4推，转发战友Anna的推文，事例显示PLA可能对COVID-19起源进行直接运作和操控：
-
-1. 涂长春的所属单位：军事兽医研究所、长春兽医研究所与PLA的62041部队等地址信息相同，都是吉林长春净月经济开发区柳莺西路666号。附穿军装的涂长春照片及这3个单位的地址信息。
-2. 闫博士2020年1月19日在路德社曝光来自PLA的ZC45/ZXC21是COVID-19的骨架，10天后的2020年1月31日，国际兽医局(OIE)野生动物工作组举行了一个题为“开展动物和环境调查，以确定COVID-19病毒的人畜共患源”的Zoom视频会议，讨论全球调查及其对中间宿主的建议。闫博士前老板马利克出席了会议。附上了此会议记录。
-3. 自2020年1月以来，我们看到了大量全球性寻找中间宿主的戏码，包括WHO报告。2020年7月，联合国粮农组织(FAO)启动了“哪些可能是中间宿主”，马利克和涂长春等都是审稿人。附上了该报告的网页截图。
-4. 当一个谎言发生，需要更多谎言来掩盖。王林发和PLA的涂长春持续将COVID-19起源归责于蝙蝠和穿山甲的说法，得到美国纳税人供养的美国国际开发署(USAID)新发流行病危害预测计划和美国国防威胁减少局(DTRA)的支持。附上了这些机构支持该说法的证据。
-5. 闫博士的3个报告已经揭示了疫情的真相，COVID-19是基于PLA手上的病毒骨架ZC45/ZXC21进行工程改造而得来的生物武器，这是PLA对其进行掩盖的动机。
-
-
-令所有美国纳税人震惊的是，这项研究是由美国国防部的国防威胁减少局(DTRA)资助的，从本质上讲，五角大楼付钱给CCP制作关于COVID-19起源的宣传资料，傻缺！
-
-
-
-> Facts show PLA likely directly ran the global cover-up & manipulated the [#OriginOfCovid19](https://twitter.com/hashtag/OriginOfCovid19?src=hash&amp;ref_src=twsrc%5Etfw):
-> 1/ Changchun Tu's affiliations:
-> Military Veterinary Research Institute
-> Changchun Veterinary Research Institute
-> Unit 62041 of PLA
-> …
-> Share 1 address
-> 吉林长春净月经济开发区柳莺西路666号 [pic.twitter.com/SVhta8HK41](https://t.co/SVhta8HK41)
-> — Anna (@2020Gladiator) [June 19, 2021](https://twitter.com/2020Gladiator/status/1406389048344776708?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 2/ Dr. Yan exposed ZX45 ZXC21 from PLA is the backbone of [#SARSCoV2](https://twitter.com/hashtag/SARSCoV2?src=hash&amp;ref_src=twsrc%5Etfw) on 19 Jan 2020 via [#LudeMedia](https://twitter.com/hashtag/LudeMedia?src=hash&amp;ref_src=twsrc%5Etfw). On 31/1/2020, OIE Wildlife Working Group hosted a Zoom conference on global investigations and suggestions for intermediate hosts of [#SARSCoV2](https://twitter.com/hashtag/SARSCoV2?src=hash&amp;ref_src=twsrc%5Etfw). Her ex boss, M. Peiris, was attended [pic.twitter.com/652Q06qwN1](https://t.co/652Q06qwN1)
-> — Anna (@2020Gladiator) [June 19, 2021](https://twitter.com/2020Gladiator/status/1406389056716652544?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 3/ We have watched tons of drama on hunting intermediate hosts globally since January 2020, including WHO reports. In July, FAO launched an assessment of "which would be the possible intermediate hosts". P. Daszak, M. Peiris(Yan's ex boss), Changchun Tu(PLA)…, are the reviewers [pic.twitter.com/BSVyf9ThE4](https://t.co/BSVyf9ThE4)
-> — Anna (@2020Gladiator) [June 19, 2021](https://twitter.com/2020Gladiator/status/1406389064232800261?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 4/ When one lie happens, more lies emerge. Linfa Wang and Changchun Tu(PLA) continued to blame [#SARSCoV2](https://twitter.com/hashtag/SARSCoV2?src=hash&amp;ref_src=twsrc%5Etfw) on bats and pangolins supported by USAID Emerging Pandemic Threats PREDICT program and US Defense Threat Reduction Agency with US taxpayers' money. [pic.twitter.com/DcszK4jBVE](https://t.co/DcszK4jBVE)
-> — Anna (@2020Gladiator) [June 19, 2021](https://twitter.com/2020Gladiator/status/1406389070155108353?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 5/ Dr. Yan's three reports have already showed the truth of pandemic: this [#SARSCoV2](https://twitter.com/hashtag/SARSCoV2?src=hash&amp;ref_src=twsrc%5Etfw) is an engineered bioweapon and its backbone is ZC45 ZXC21 from [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw). This is the PLA's motivation of the cover-up. [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/SChHsOjyfj](https://t.co/SChHsOjyfj)
-> — Anna (@2020Gladiator) [June 19, 2021](https://twitter.com/2020Gladiator/status/1406389072575315969?ref_src=twsrc%5Etfw)
-
-
-
-第5推，转发战友Andy5回应塞林博士前天（18日）第6推的中文推，将当天塞林博士参加班农先生WAR ROOM节目讲话的视频贴上，并将重点摘录如下：
-
-1. 班农：闫博士抛下一切在第一时间告诉了FBI事情经过，FBI不作为；
-2. 塞林：美国政府给闫博士丈夫签证这件事让人气愤；
-3. 他是被CCP派来威胁噤声闫博士的；
-4. 塞林上校要求知道：闫博士丈夫在哪里，由哪个研究中心支持，谁发的签证，谁帮助他游荡？
-5. 班农先生还没能确认所谓高管叛逃，但从侧面可以看出其他背叛者不大相信FBI和CIA；
-6. 战斗室将继续挖掘信息；
-7. 塞林上校再次强调他的4点要求；
-8. 塞林：得向NIH问询闫博士丈夫在哪里，为什么被藏起来；
-9. 班农先生再次称赞闫博士的勇气；
-10. 请大家关注塞林上校推特。
-
-
-保护闫博士免受其潜存危险的丈夫 Mahen的伤害，逃亡的CCP科学家Mahen莫名其妙地获得了美国政府颁发的2年期H1B签证。
-
-
-
-> Part 1 of my June 18, 2021 interview on the Bannon War Room about protecting Dr. Li-Meng Yan from her potentially dangerous husband, fugitive CCP scientist Ranawaka Arachchige Prasad Mahendra Perera, who inexplicably was granted an 2-year H1B visa by the U.S. government. [https://t.co/CBjrfX816s](https://t.co/CBjrfX816s)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406523033267884034?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Part 2 of my June 18, 2021 interview on the Bannon War Room about protecting Dr. Li-Meng Yan from her potentially dangerous husband, fugitive CCP scientist Ranawaka Arachchige Prasad Mahendra Perera, who inexplicably was granted an 2-year H1B visa by the U.S. government. [https://t.co/byRNOOZmKg](https://t.co/byRNOOZmKg)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406522794150612995?ref_src=twsrc%5Etfw)
-
-
-
-第6推，闫博士指控Mahen企图谋害她，而美国研究机构和美国政府的人似乎在保护他的时候，谁将与我一起保护闫博士免受危险分子、逃亡的CCP科学家Mahen的侵害？贴上了世界英雄与CCP小人Mahen的照片。
-
-
-
-> Who will stand with me to protect Dr. Li-Meng Yan against the potentially dangerous fugitive CCP scientist Ranawaka Arachchige Prasad Mahendra Perera, who she said tried to kill her, while people and institutions in the U.S. and the U.S. government appear to be shielding him? [pic.twitter.com/fWNQbFa7E6](https://t.co/fWNQbFa7E6)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406534798093570048?ref_src=twsrc%5Etfw)
-
-
-
-第7推，查看了4位CCP特工的推特账号，他们一定是在孩提时代吃了太多含铅涂料或患有三期梅毒，因为他们是这个星球上最愚蠢的4个人，初中生都会比他们会思考，CCP团队里有白痴。贴上了Mischa、威廉 我们好好谈谈、女猧3.0、千千 我们好好谈谈4位CCP特工的推特用户名及其头像。（伪类Mischa、威廉 我们好好谈谈、女猧3.0、千千 我们好好谈谈的线索浮出水面）
-
-
-
-> I looked at four CCP agent accounts. They all must have eaten too much lead paint as children or suffer from tertiary syphilis because they are four of the dumbest people on the planet. Junior high school students could think of better smears. The CCP has morons on its team. [pic.twitter.com/fGecTK2gCb](https://t.co/fGecTK2gCb)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406685467312001028?ref_src=twsrc%5Etfw)
-
-
-
-第8推，这是一个露脸的CCP走狗，他佯装成受害者索要捐款，这个低贱的人还试图抹黑闫博士。贴上了西诺的照片及其在推特上索捐的声明，以及近百名伪类的大名单。
-
-
-
-> Here's a CCP stooge who actually shows his face and has the gall to ask for donations as if he is some kind of victim. This low-life has tried to smear Dr. Li-Meng Yan. [pic.twitter.com/pjI7OwV44F](https://t.co/pjI7OwV44F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 20, 2021](https://twitter.com/LawrenceSellin/status/1406690510241210368?ref_src=twsrc%5Etfw)
-
-
-
-第9推，生活在美国的CCP特工很多，他们要么以个人身份，要么通过美国华人生物学家协会等各种战线对美国执行CCP的信息战，我们有一些他们的短信。贴出了刘善虑和CCP战狼陈平的照片。（战狼陈平真容浮出水面）
-
-
-
-> There are many Chinese Communist Party professionals living in the U.S. who are conducting CCP information warfare against the U.S. either as individuals or through various fronts like the Society of Chinese Bioscientists in America. We have some of their text messages. [pic.twitter.com/XyqNDAdcYx](https://t.co/XyqNDAdcYx)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 21, 2021](https://twitter.com/LawrenceSellin/status/1406808911861239810?ref_src=twsrc%5Etfw)
-
-
-
-第10推，还有大量生活在美国的CCP科学家与PLA及其它在中国境内的CCP实验室合作，其中一些与CCP生物战计划相关联的秦成峰等有瓜葛，这并不意外。再次贴上了谢旭平、苏立山、李乔贺姜涛4位在美国工作的CCP科学家照片及其简介和代表论文截图。
-
-
-
-> There are also vast numbers of Chinese Communist Party scientists working in the U.S. who are collaborating with the Chinese People's Liberation Army and other CCP laboratories in China, some related to the CCP biowarfare program e.g. Cheng Feng Qin. Probably no accident. [pic.twitter.com/10bofJMpKR](https://t.co/10bofJMpKR)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 21, 2021](https://twitter.com/LawrenceSellin/status/1406811530348347392?ref_src=twsrc%5Etfw)
-
-
-
-第11推，在加尔维斯顿的UTMB任职的史佩勇是PLA最活跃的合作者之一，他与生物战计划、秦成峰、长春兽医研究所和WIV都有关联！再次贴上了史佩勇的照片及其简介和代表论文截图。
-
-
-
-> Pei-Yong Shi of the University of Texas Medical Branch in Galveston is a one of the most active collaborators with the Chinese People's Liberation Army, those linked to its biowarfare program, Cheng Feng Qin, the Changchun Veterinary Institute and the Wuhan Institute of Virology. [pic.twitter.com/iHqYiPiSc6](https://t.co/iHqYiPiSc6)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 21, 2021](https://twitter.com/LawrenceSellin/status/1406814049795444736?ref_src=twsrc%5Etfw)
-
-
-
-PLA显然不但是制造产生COVID-19病毒的始作俑者，更是自始至终主导全球病毒科学界掩盖病毒真相的幕后操盘手。CCP-PLA全面调动散步全球的，由五毛、伪类、战狼、科学家、民间协会、科研机构、主流媒体、科技巨头、医药公司、政府机构、司法机构甚至美国军方等组成的CCP统一战线，为掩盖COVID-19病毒真相并抹黑良知和正义而呼风唤雨、所向披靡。这是人类的悲哀，更是美国的耻辱，完全背离美国的立国之本和美国开国元勋们的初衷，美国政府层面的全面腐败比中共国好不了多少！
-
-有谋杀闫博士前科的危险分子、CCP逃亡科学家Mahen，在美国的某些个人、科研机构甚至美国政府人员的帮助和保护下，仍然在美国逍遥法外。尤其是美国司法部(DOJ)和联邦调查局(FBI)，曾经成为美国引以为豪的象征和呼号，是世界侦探界的楷模和榜样，成为了司法界和侦探电影界脍炙人口的话题和主角，如今却腐败得无可救药，捍卫司法独立的尖兵完全成为了政治斗争的牺牲品，其行事原则毫无独立性，成为了被政治玩弄的提线木偶！鉴于FBI在闫博士落地美国的第一时间就当面得到了COVID-19病毒真相的第一手资料，其后FBI还与闫博士有多次接触了解情况，至今已超过一年时间却杳无音讯、石沉大海。更有甚者，疑点重重、身份极其特殊并对美国国家安全构成威胁的 Mahen，已经悄悄潜入美国3个月了，FBI不但是在渎职，而是在刻意保护嫌犯，是在拿着美国纳税人的薪水危害美国人民！
-
-令人震惊和痛心的是，美国国防部作为美国军方的主管部门，是美国之所以成为美国的最后一道保险，迄今也被CCP渗透和腐蚀得遍体鳞伤、一塌糊涂。美国国防部属下生物防御研究机构不但为CCP-PLA生物战计划培养人才、提供技术，还资助CCP-PLA在中共国的病毒研究项目，甚至付钱给CCP制作关于掩盖COVID-19起源真相的宣传资料，这简直是令人窒息的愚蠢和令人绝望的作恶！与CCP-PLA生物战计划勾结至广至深的包括国防部等各界在内的美国，已经到了断臂求生的危难时刻了！回想起闫博士那句震耳发聩的警言：留给人类的时间不多了！再加上昨天文贵先生对世界的再次警告，让人感觉到漆黑的世界无边无际。但愿美国国防部不代表美国军方，但愿塞林上校背后的军方为人类的存续吧号最后一道关！
-
-校对/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++4

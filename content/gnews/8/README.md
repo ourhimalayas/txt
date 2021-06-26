@@ -1,27 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港壹传媒董事会将于周五决定是否停止出版《苹果日报》
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1339924/)
+## 安东尼-福奇资助人兽杂交实验丑闻被曝光
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1351883/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21195824/S1-KU096_0621hk_OR_20210621052911.jpg)
-来自路透香港6月21日讯，据路透周一看到的香港壹传媒内部备忘，该公司董事会将在周五再次召开会议，倘届时决定停止《苹果日报》运作，如果董事会通过此决议，那就意味着，这份创刊26年的报章及其网上版将会在6月26日后停止出版。
+撰稿视频：一灯一智
 
-此消息早前得到壹传媒创办人黎智英的助手Mark Simon的确认，他表示，苹果日报将“在几天内”被迫停刊，公司将举行董事会议讨论下一步行动。
+素材：白雪
+YouTube视频
+5月20日福克斯新闻频道《塔克-卡尔森之夜》的采访节目中，美国反堕胎活动家戴维-戴利登（David R. Daleiden）曝光了美国国家过敏和传染病研究所（NIAID）所长安东尼.福奇（Anthony Fauci）拨款资助匹兹堡大学开展人兽杂交实验的丑闻。
 
-《苹果日报》一直被中共视为香港统治稳定的威胁。自《港版国安法》开始施行后，就决定了中共会想尽一切办法，阻挠《苹果日报》的正常运营。其创办人兼大股东黎智英，去年8月被警方以涉嫌违反国安法下的勾结外国或境外势力拘捕，现正因在2019年香港反修例社会运动期间参与多场未经批准集结罪成而在监狱服刑。
+在该项研究中，研究人员将五个月大的流产婴儿的头皮移植到实验白鼠的身上，观察它们的生长情况，并堂而皇之的以科学报告的形式发布研究结果。这些婴儿可能是部分流产，也可能来自活体。此类研究是严重违反美国的联邦法律法规的。戴利登指出福奇应该被带到参议院和国会面前进行问责。
 
-而本周四，香港警务处国家安全处又以涉嫌违反香港国安法为名，拘捕了五名壹传媒及苹果日报高层，其中包括包括壹传媒行政总裁张剑虹及苹果日报总编辑罗伟光。被落案罪名也同样为串谋勾结外国势力，两人将于周六早上在法院提堂。
+作为项目负责人，福奇应该知晓这项研究的每一个细节。但他不但不加以阻止，反而拨款资助，听之任之，实在是罪大恶极，丧尽天良。这和他在中共病毒事件上的不作为和超限信息误导川普政府如出一辙，罔顾美国人民的死活，在其位却不谋其政，只能说“这个杀手有点冷”！
 
-对《苹果日报》的法办，赤裸裸地证实了香港民主法治人权的终结，以美国为首的多国已经多次发表声明，谴责中共的行为，并要求释放黎智英，但完全被中共无视，也让世界各国更看清中共的本质。
+【Jenny点评】（福奇资助的）这类实验绝对是西方文明无法接受的罪恶，下地狱的罪恶！人兽杂交是绝对违背神旨意的。神造人是按着神的样式，人身上有属神的那口气，每一个生命都是神圣的，包括未出生夭折的胎儿！
 
-（本文只代表作者观点，与Gnews平台无关。）
+（本文仅代表作者个人观点）
 
-**新闻来源：**
+*发布：光耀华夏*
 
-[香港壹传媒董事会将于周五决定是否停止出版《苹果日报》–内部备忘 | 路透 (reuters.com)](https://cn.reuters.com/article/hk-next-digital-newspaper-0621-idCNKCS2DX0YN?il=0)
+参考来源：
 
-***校对发布：文顾***
+1. [Townhall: Dr. Anthony Fauci Tied to Scandal Involving Human-Animal Hybrid Experiments with Aborted Fetal Parts](https://townhall.com/tipsheet/rebeccadowns/2021/06/06/dr-anthony-fauci-tied-to-another-scandal-this-one-involving-fetalanimal-hybrid-experiments-n2590555)
+2. [CMP’s David Daleiden on Fauci-Funded Baby Scalping Experiments at PP-Supplied U. Pittsburgh](https://www.youtube.com/watch?v=TSyyJ_tdGHA&amp;t=4s)
+3. [David\_Daleiden维基百科](https://en.wikipedia.org/wiki/David_Daleiden)
 
-0
+
+* * *
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/) [【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+
+
++6

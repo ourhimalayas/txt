@@ -1,62 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】千元机给父母——爹亲娘亲不如党亲的注解
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1339930/)
+## 彼得·达萨克“回避”从 Covid 起源调查中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1352264/)
 
-作者：纽约香草山佛教部 369文驹
+字幕内容：
 
+Well this is the global narrative about China
 
+这是关于中共国的全球叙事
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+and about Fauci grant to the Wuhan Institute of Virology
 
+以及关于福奇对武汉病毒研究所的资助
 
+and all of these related issues has now really changed
 
-墙内“今日头条”新闻今日刊登了一篇有关国产手机的评测文章，主要介绍了红米Note9 5G版的性能和价格。然而，引起笔者注意的不是该手机的性能参数，而是该文作者的一番评论，引用如下：
+所有这些相关的问题现在已经真正改变了
 
+because Peter Daszak was golden,
 
-> “距离入手红米Note 9 5G已经过去了3个月的时间，入手这款千元机并不是自己使用的，而是买来送给母亲的！在笔者看来，红米Note 9 5G的定位也是如此。一般情况之下，不是送给父母使用的话，像我们这些90后已经是不会把这款千元机作为主力机使用……在此笔者要吐槽一下，对于这些千元入门中端机而言，绝大多数都是送给父母使用的……从整体角度考虑的话，红米Note 9 5G并不算是一款亮点十足的千元机，各项配置虽不能够达到亮睛的程度，但也都并不算差。总的来说，红米Note 9 5G在千元机之中算是一款比较均衡的机型，尤其是送给父母使用，真的是再合适不过了吧！”
-> *今日头条*
+因为彼得·达萨克是掘金人
 
+he actually felt so bold last year
 
-首先，且不论1000元价位的手机对于现今全民被迫“躺平”的老百姓而言是否意味着天价，就算按照该文作者的脑回路，这款手机的确不适合像他这样的90后了，难道他就该把这样“食之无味，弃之可惜”的手机“慷慨”的孝敬给父母吗？而且笔者还查看了该文的评论区，发现居然无一人对该文作者的这一观点提出异议。看来，这代表了群体性一致的观点。
+去年他居然很大胆地
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21200709/40-1.jpg)图片来源：见水印
+that he admitted to the New York Times
 
-共产党“教育”民众要学习传统文化——中华传统文化可是要孝敬父母的。那么，为什么这个90后要把自己看不上的手机给父母，难道这就是所谓的孝敬父母吗？该文还分析得头头是道，证明该手机确实不咋地，于是非常符合父母使用！我们换个场景：假如让这位90后将这款手机作为“孝敬”单位领导的礼物，请问他愿意吗？他敢吗？！估计领导连iphone级别的手机都不正眼瞧一下吧，甚至还要搭上这位90后的老婆、闺女、姐妹啥的。于是，笔者想问，为什么领导的年龄跟这位90后的父母差不多，可是送礼的标准却完全不一样呢？这不就是文贵先生揭露的真相：墙内的老百姓被中共用“爹亲娘亲不如党亲”洗了脑。
+向《纽约时报》承认
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21200839/41-2.jpg)图源网络
+that he had discounted the lab leak theory
 
-再看看中（共）国城市的街道上赫然写着的标语：“父母恩情能报完，党的恩情报不完”，同时还用彝族语言进行了标注。经笔者查询，该标语牌所在城市——西昌——是四川凉山彝族自治州的首府，同时也是中共卫星发射中心所在的城市。
+他对实验室泄漏的理论不屑一顾
 
-中共的洗脑不分年龄、不分地域、不分民族，而中了中共邪毒的人，其思想表现之一就是将父母视为二等公民，连用手机都不配用好的。想想看，父母含辛茹苦地将孩子拉扯大，结果呢？因此，如果这种现象背后的始作俑者不被铲除，这种压根不正常的现象依然会被社会所接纳，甚至奉为圭臬。消灭中共，拯救迷失的灵魂！
+to protect his friends at the Wuhan Institute.
 
-（本文仅代表作者观点）
+就为了保护他在武汉研究所的朋友
 
-参考阅读：
+So that’s a pretty emboldened statement.
 
-红米Note 9 5G评测：亮点虽不多，但送给父母最合适\_https://www.toutiao.com/a6974811452070773278/?log\_from=519e8a56866dd\_1624270839448
+所以这是一个非常大胆的声明
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+Now he’s of course, he’s been removed,
 
-编辑/校对/发稿：Irene木木
+现在他当然了，他已经被移除了
 
-**更多资讯，更多关注**
+and part of it is because of his own misconduct
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+部分原因是因为他自己的不当行为
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+that he failed to disclose conflict of information stuff to the Lancet when he wrote articles
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+他在写文章时没有向柳叶刀透露信息冲突
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+which is a serious charge if you’re a scientist or researcher.
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+这是一项严重的指控，如果你是科学家或研究人员
 
+So I think this means pretty much the end of Peter Daszak
 
+所以我认为这几乎意味着彼得·达萨克(科学研究的)终结
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+and that means we could see more questioning of Anthony Fauci,
 
+这意味着我们可以看到更多对安东尼·福奇的质疑
 
+because the two of them were very close,
+
+因为他们两个的合作关系非常密切
+
+they work together.
+
+他们在一起工作
+
+Fauci granted sent money to Wuhan through Daszak’s ecohealth Alliance.
+
+福奇通过达扎克的生态健康联盟来资助武毒所
+
+This really is I think perhaps the beginning of the end for Fauci himself
+
+我认为这真的是福奇本人结局的开始
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/newsmax/status/1407375738291081219?s=24
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
