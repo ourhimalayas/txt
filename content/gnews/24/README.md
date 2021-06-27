@@ -1,30 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法院裁定：脸书协助犯罪活动，未能防止青少年性交易
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1353810/)
+## 【NewsExpress】Sellin上校再次发推揭露石正丽的RaTG13是假病毒
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1354365/)
 
-2021年6月26日
+#### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26225148/0-35.png)图为脸书首席执行官马克·扎克伯格与2019年10月23日在华盛顿特区 安德鲁·哈尼克/美联社
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27034338/asg43past54y02sadf1-06-dsaf27_1dfgdf5-42-50.png)
 
-**摘要翻译：**
-
-得克萨斯州最高法院周五裁定，脸书对利用其平台招募和掠夺儿童受害者的性交易者负责。这项裁决是在当地三起涉及青少年受害者的诉讼之后作出的，这些受害者是通过脸书的信息传递工具结识人贩子的。原告称，脸书疏忽大意，没有试图从其技术上控制性交易。
-
-脸书辩称，它受到第230条的保护。该条例是互联网法律的一部分，规定在线平台不对人们在其服务上发布的内容负责，因此不应对其平台上发布的内容负责。但德克萨斯州最高法院表示，第230条并不意味着脸书可以作为一个“无法无天的无人区”来运作。
-
-多年来，网上招募性交易受害者的人数激增，人口贩运研究所最近的一份报告发现，去年活跃案件中的大多数网上招募发生在脸书上。
-
-[新闻链接](https://www.businessinsider.com/facebook-texas-supreme-court-ruling-sex-traffickers-section-230-2021-6?r=US&amp;IR=T)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+Sellin上校6月27日发推：越来越多证据证明RaTG13是假病毒序列。2019年12月份收集到的最早期中共病毒序列与2020年1月份从中共国其他地区或其他国家收集到的病毒基因序列相比，12月收集到的病毒基因序列与RaTG13病毒序列差距更大。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+> More evidence that RaTG13 is a fake sequence.
+> "The earliest SARS CoV-2 sequences were collected in Wuhan in December but these sequences are more distant from RaTG13 than sequences collected in January from other locations in China or even other
+> countries"[https://t.co/e1vsDtADUG](https://t.co/e1vsDtADUG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 27, 2021](https://twitter.com/LawrenceSellin/status/1409029408757800961?ref_src=twsrc%5Etfw)
+
+
+
+Sellin上校再次发推提及石正丽在2020年1月底发表的RaTG13病毒是假序列，石正丽伪造的RaTG13病毒序列与中共病毒序列相似度高达96%，中共计划借RaTG13假病毒让科学家认为中共病毒来自自然，从而逃脱审判。Sellin上校刚开始调查病毒真相时也差点被RaTG13蒙蔽，最后在爆料革命提供的信息下才意识到RaTG13是假病毒序列。
+
+只要科学界都意识到RaTG13是假病毒序列，石正丽的谎言就会被戳穿，那科学家都会将目光转向与中共病毒序列相似度为89%的舟山蝙蝠病毒，闫博士早在路德社119节目就揭露中共病毒的骨架就是舟山蝙蝠病毒，该病毒只有中共国才拥有。沿着这条线索，中共利用舟山蝙蝠病毒为骨架研发超限生物武器的罪行必定会被实锤。
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+排版发布：日本东京方舟农场 文柯Miles
 
 0

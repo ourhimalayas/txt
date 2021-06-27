@@ -1,25 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/26/2021:中共对台湾开战将是必然数字货币的重新休整成就了喜币的安全和未来
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1354217/)
+## 卢比奥：中共正在酝酿下一场巨大的病毒大流行！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1354494/)
 
-**制作：澳喜粤语组**
+06/22/2021 重磅！参议院情报委员会副主席卢比奥向世界发出警报：根据我们掌握的信息，中共正在酝酿下一场巨大的病毒大流行！下次将远比这次更严重，更致命，更具毁灭性。中共实验室里还有更可怕的东西！
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-**播报:【海媚】资料整理:【An】【Ruby三鑫】【michelle喜乐】PPT：【文武全才】视频制作:【KEN】发布：【陆柒陆捌】**
-
-摘要：
-
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024241/6.26_page-0002.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024342/6.26_page-0003.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024416/6.26_page-0004.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024453/6.26_page-0005.jpg)
-
-
-0
++1
