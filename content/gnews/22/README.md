@@ -1,18 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】巴基斯坦总理表示正在寻求与华盛顿建立文明和公平的关系
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1353695/)
+## 【NewsExpress】FATF将伊姆兰汗的国家列入恐怖主义资助灰名单
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1353879/)
 
-美国撤军后，巴基斯坦总理希望和美国建立一种国家之间的关系。巴基斯坦总理伊姆兰汗表示，巴基斯坦正在寻求与华盛顿建立一种“文明”和“公平”的关系，就像美国和英国之间或印度“现在”之间存在的那种关系，强调伊斯兰堡在和平进程中可以发挥的作用。
+继巴基斯坦总理公开表态，希望和美国建立正常的国家关系后，Republic在6月26日报道说巴基斯坦的骗局愚弄任何人，因为FATF 将伊姆兰汗的国家列入恐怖主义资助灰名单，因为它具有恐怖主义赞助者的地位。
 
-总理伊姆兰汗在接受《纽约时报》采访时发表了上述评论，他还表示失望，尽管他在 2018 年 8 月上任后不久就与总理纳伦德拉·莫迪进行了接触，但他与印度关系正常化的努力没有取得任何进展。在美国总统乔·拜登周五在白宫与阿富汗总统阿什拉夫·甘进行首次面对面会晤时接受采访时，汗回忆说，巴基斯坦与美国的关系比该地区其他国家更密切。 据《黎明报》报道，印度是美国在反恐战争中的合作伙伴。
+令巴基斯坦非常尴尬的是，金融行动特别工作组 (FATF) 周五决定将伊姆兰汗领导的国家保留在灰色名单上，拒绝清除巴基斯坦是“恐怖赞助商”。这意味着巴基斯坦在恐怖分子头目哈菲兹·赛义德在拉合尔的住所发生的可疑恐怖袭击事件中的最后一次尝试似乎失败了，因为 FATF 强调它应该通过以下方式，解决剩余的打击融资恐怖主义 (CFT) 相关项目。证明 TF（恐怖融资）调查和起诉的目标是联合国指定的恐怖组织的高级领导人和指挥官。
 
-“现在，在美国离开阿富汗之后，基本上巴基斯坦会想要一种文明的关系，就像国家之间那样，我们希望改善与美国的贸易关系，”他说，当被要求详细阐述他的文明关系概念时，汗说他正在寻求类似于“美国和英国之间，或美国和印度之间现在存在的关系。因此，一种公平的关系”。 “不幸的是，反恐战争期间的关系有点不平衡，”他说。
+FATF 将巴基斯坦列入灰名单，并指出伊姆兰汗领导的国家应通过遵循六项建议来解决具有战略意义的 AML/CFT 缺陷。FATF 敦促巴基斯坦考虑通过修改司法协助法来加强国际合作，同时表明正在寻求外国援助以实施联合国安理会第 1373 号决议。
 
-“美国撤军后，我不知道这会是一种什么样的军事关系。但现在，这种关系应该基于这样一个共同目标，即在美国离开之前阿富汗有一个政治解决方案，”他强调说。 “如果有另一个印度领导人，我认为我们会与他们建立良好的关系。印度告诉巴基斯坦，它希望在没有恐怖、敌意和暴力的环境中与它建立正常的睦邻关系。美国认为印度将成为对抗中国的堡垒是错误的。“我认为这对印度不利，因为印度与中国的贸易对印度和中国都有利。” 他说。
+据 PTI 报道，巴基斯坦将必须至少在两项罪名上颁布法律，以达到全球洗钱和恐怖主义融资监管机构 FATF 27 点行动计划的三个未决基准，在新的 6 月截止日期之前。2018 年 6 月，FATF 将巴基斯坦列入“灰名单”，并要求伊斯兰堡在 2019 年底前实施一项遏制洗钱和恐怖融资的行动计划。但后来，由于 COVID-19 大流行，截止日期是延长。FATF 上个月设定了新的截止日期。
 
-参考链接：[https://www.news18.com/news/world/pakistan-seeks-civilised-and-even-handed-relationship-with-us-like-the-one-that-exists-between-america-and-india-imran-khan-3895031.html](https://www.news18.com/news/world/pakistan-seeks-civilised-and-even-handed-relationship-with-us-like-the-one-that-exists-between-america-and-india-imran-khan-3895031.html)
+近几个月来，巴基斯坦一直在努力避免被 FATF 列入具有反洗钱和恐怖主义融资规定的认定国家名单。政府必须在一个月内向FATF 提交一份更新报告，说明立法和其他措施的进展情况，以解决悬而未决的问题。
+
+参考链接：
+
+[https://www.republicworld.com/world-news/pakistan-news/pakistans-sham-fools-nobody-as-fatf-keeps-imran-khans-nation-on-terror-funding-grey-list.html](https://www.republicworld.com/world-news/pakistan-news/pakistans-sham-fools-nobody-as-fatf-keeps-imran-khans-nation-on-terror-funding-grey-list.html)
 
 翻译整理：蓝精灵
 

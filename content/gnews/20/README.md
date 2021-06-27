@@ -1,55 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】 美国陆军： 特种部队是非常规作战专家
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1353709/)
+## 中共驻英国使馆集体去见马克思宣示了他们一如继往地认贼作父
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1353944/)
 
-香草山翻译部：GBW
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26235332/E423XVDVEAQBljs_%E5%89%AF%E6%9C%AC.jpg)
+[中国日报网](https://cn.chinadaily.com.cn/gtx/5d63917ba31099ab995dbb29/Chinadaily)2021年06月26日20:56发布了[中国驻英国大使郑泽光及使馆工作人员拜谒马克思墓](https://cn.chinadaily.com.cn/a/202106/26/WS60d723f7a3101e7ce97573d3.html)可以说是对中共邪教最好的阐释，马克思是什么？马克思的墓地意味着什么？在当下共产主义病毒荼毒全人类的时候，在中共病毒造成全人类数以亿计感染、全人类数以千万死亡的情况下，中共驻英国大使馆的全体馆员集体去见马克思可以从另一个方面告诉你答案。
 
+对于每个炎黄子孙来说，对于祖先的拜谒和祭奠是对先祖的缅怀，对于每个有信仰的人来说，在庙里、在教堂里、在神像或佛像前的拜谒和祈祷是用心在与自己心中的神灵的倾诉。
 
+对于每个共匪治下的僵尸来说，马克思不是他们的祖宗，马克思也不是他们的神灵，但是马克思是他们的牌位，因为有这个牌位，中国共产党得以在中国存活近百载，因为有这个牌位中国共产党得以窃据中国大陆七十载，在中共百年冥诞之际，为了让邪恶延续，不仅中共驻英使馆全体馆员集体去见马克思，马列主义毛泽东思想更是成为中共戕害宗教破坏信仰的神圣法宝。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25094118/WhatsApp_Image_2020-10-24_at_04.33.05.jpeg)
+我们每个人都应该知道，当我们拜谒祖先的时候，我们是心怀崇敬地缅怀，当我们直面我们自己心中的神的时候，我们是心怀虔诚地敬仰，那么当中共驻英国使馆全体馆员见马克思的时候是一种什么样的场景呢？它既不是心怀崇敬的缅怀，更不是心怀虔诚的敬仰，它是一种宣示，它宣示了马克思的自始至终的牌位地位，同时也宣示了这个党和这个党绑架的九千万僵尸们仍旧在一如既往认贼作父，所以在英国使馆全体馆员集体见马克思的时候，我们也衷心祝愿中国共产党早日去见马克思。
 
+（文章内容仅代表作者个人观点）
 
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-2021年6月26日晚，路博艾
-
-**1. 美国陆军推文：”特种部队是陆军首要的非常规作战专家……因为即使是英雄也需要榜样。”**
-
-a. 非常规战争是指支持外国叛乱或抵抗运动反对其政府或占领国。
-
-b. 非常规战争往往是隐蔽的或没有明确的定义，它在很大程度上依赖于颠覆和游击战。
-
-c. 非常规战争从心理上针对平民，以赢得人心。
-
-d. 艾丽：美国陆军呼应了路德社关于绿色贝雷帽（美国陆军特种部队）的节目。
-
-e. 路德：塞林上校已经获得了闫博士前夫背后那些人物的信息。
-
-**2. 布林肯在欧洲说，美国和欧洲在对待中（共）国的态度上趋同。如果一个国家不尊重达成的协议，那么替代方案就是战争**。
-
-a. 路德：布林肯已经说服了法国。
-
-笔记仅作参考，内容以路德社节目为准。
-
-视频链接：[https://www.youtube.com/watch?v=b-W9UBs4e-w](https://www.youtube.com/watch?v=b-W9UBs4e-w)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-0
++6

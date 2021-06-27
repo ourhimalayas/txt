@@ -1,43 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共重磅】只要确认病毒来自实验室，美国很可能在中共国采取类似对伊朗苏莱曼尼的直接斩首行动
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1353659/)
+## 专案组已成立半年&nbsp; 崔天凯回国将会全家被灭
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1353983/)
 
-#### **作者：奥克兰伊甸农场亚伦**
+**摘要：在2021年6月23日的直播中，郭先生透露刚刚离开美国领土回国述职的崔天凯大使，回国后会全家被彻底消灭，调查他的中共专案组已经成立了将近半年。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27011750/Miles_2021-06-23-live-p3.srt.txt)
+#### **专案组已成立半年  崔天凯回国将会全家被灭**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26212717/2021-06-26-1-fig2.jpg)
+#### **Ambassador Cui and Family Will Be Wiped Out by the CCP**
 
-2021年6月25日，[文贵先生在GTV直播](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64)中重磅透露，其本人第一次，是第一次听到西方领导人认真地说，美国很有可能在中共国采取对伊朗苏莱曼尼类似的斩首行动，无论中共是否配合调查，只要确认病毒来自实验室，就会直接采取行动。
+刚才有战友给我发信息，这个有给我发信息，说这个崔大使今天离开美国了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26212737/2021-06-26-1-fig1.jpeg)“圣城旅”司令苏莱曼尼在巴格达机场外被美军无人机炸碎，现场仅剩一条胳膊
+Just now a fellow fighter sent me a message, saying that Ambassador Cui left the United States today.
 
-众所周知，美国国会正在出台一系列的法案对中共进行惩罚，以毒灭共会成为爆料革命最伟大的里程碑。
+崔大使回去就会被抓的，崔大使就会被抓的。他的专案组已经成立了将近半年了。看着，记住我今天说的话，“Ambassador崔脱了西装换军装”，他会被抓的，记住我今天说的话。
 
-从国内救出去欧洲的科学家彻底改变了西方关于新冠病毒的看法，让西方百分百认识到这是真正的病毒武器、超限战、生化病毒、真正的生化武器，目前只剩下走程序。
+Ambassador Cui will be arrested when he is back. The task force for investigating his case has been established for almost half a year now. Look, mark my words today. Ambassador Cui, the guy who once said would take off his suit for his PLA uniform, will be arrested. Remember what I said today.
 
-更重要的是会有更多中共内部病毒的知情者、参与者与我们爆料革命、新中国联邦和世界上很多国家合作。比如上周末有从国内出来的级别不高但很重要的医疗界人士向欧洲某国提供了病人案例信息、视频、医疗证据、研发证据，对这些国家都是巨大的震撼。特别像澳大利亚当局获得了孙力军这些人藏在老婆妹妹家关于武汉的一些证据，使得澳大利亚政府更加坚定这是中共的病毒武器，而澳大利亚拥有的证据一定会和美欧英国分享。逃到日本去的军人和医学人士，日本政府全面调查研究中，日本拥有的情报信息也会和美欧分享。每时每刻全世界都在发生的真正的“核导弹”级别的事件在反击中共，而且没有人可以阻挡。
+他现在在飞机上，他看不到我直播现在，他要看了他就不回去了。我不让这个王八蛋在美国知道，我得让他离开美国我再说。现在在飞着呢，到阿拉斯加了估计现在，过阿拉斯加了，现在在俄罗斯的天上呢。
 
+He’s in the air now, so he can’t see my live broadcast right now. If he watched my broadcast, he would not go back. I intentionally didn’t let this son of a bi\*ch know when he was still in the US. I had to let him leave the US first before I would say it. Now he is in the air, and perhaps his flight is over Alaska now, or has passed Alaska and is over Russia now.
 
-MQ-9收割者无人机为美国成功清除伊朗军事头目卡西姆苏莱曼尼立下大功
-G7峰会之后世界上三大行动：1、欧洲要彻底把俄罗斯和中共分开；2、美国负责全面支持，美国和日本全力以赴对付中共；3、美、澳、日、北约汇聚在南海和台海，使劲勾兑弄钱。
+他全家都会被抓，会被消灭，消灭得干干净净。 他本人绝对不知道，他全家都不知道。专案组，查他的专案组的其中一个女士。别说了，我的天呐，一说搂不住了。说别的，说别的。不说了，不佛了，啥都不佛了，啥都不佛了，啥都不佛了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26214914/2021-06-26-1-fig5.jpg)
+His whole family will be arrested, and wiped out; wiped out completely. He absolutely had no idea about this, nor his family. Based on a lady on the task force investigating this case… Let me stop, oh my goodness, I said too much. Let me say something else, something else. No more talking about this, no more, I will say no more.
 
-西方世界非常清楚，并且于G7会议上同意，只要这个病毒中南坑知情，PPE（个人防护用品）、疫苗、新冠病毒的有组织有计划，全世界就会公开宣布消灭中共组织是全世界正义的必须。
-
-除此之外，对中共高层的沉重打击是不管中共配不配合，只要西方认为就是武汉实验室出来，也无论是否故意，所有中共高层海外的个人、家人资产也会全部查封。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26214839/2021-06-26-1-fig4.jpg)
-
-[1] 美国于2011年将苏莱曼尼认定为一名全球恐怖主义分子。2019年4月，美国采取了空前举措将伊斯兰革命卫队—圣城军认定为一个外国恐怖主义组织，第一次将另一个政府的某机构列为这类组织。2020年1月3日，一架美国MQ-9“收割者”无人机在伊拉克巴格达国际机场附近向苏莱曼尼的车队发起攻击，苏莱曼尼死于空袭。
-
-(文章仅代表作者观点，与GNEWS无关）
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+[视频来源](https://gtv.org/video/id=60d336006e4b8a00c79fe3c6) (1:24:45-1:26:10)
+鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1346987/)
 
 * * *
 
-*责任编辑：日本东京樱花农场 文迹～见证神迹
-校对：纽约香草山农场 七哩香
-发布：喜联盟编辑部  Isaiah4031*
+字幕：【Rock小哥】
+校对：【BruhM】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gettr: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
 
 +2

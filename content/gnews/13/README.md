@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于香港政府的压制，苹果日报被迫停刊
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1353756/)
+## 中共国在澳大利亚和许多其他国家的影响力正在急剧下降
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1354242/)
 
-6/24/2021 香港政府使用国安法压制媒体、扼杀言论自由，苹果日报被迫停刊。
+06/24/2021 澳大利亚外长：中共国在澳大利亚和许多其他国家的影响力正在急剧下降。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

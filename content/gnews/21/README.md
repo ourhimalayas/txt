@@ -1,30 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英研究:首例新冠病例可能在有记录的几周前出现在中国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1353683/)
+## 【NewsExpress】微软继苹果后成为第二家市值突破 2 万亿美元的美国公司
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1353904/)
 
-2021年6月26日
+2020 年，当史无前例的大流行颠覆了经济并给跨国公司带来了金融危机时，微软发布了 COVID-19 对微软的影响：截至 2020 年3 月 31 日的季度，其收入为 350 亿美元，增长了 15%，而其营业收入为 130 亿美元，增长了 25%。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26215813/0-23.jpeg)
+增长归功于萨蒂亚·纳德拉 (Satya Nadella) 的明智决定，他利用大流行为自己谋取了利益。在全球健康危机期间，人们被迫“在家工作”，随着远程工作加速转向公司的会议软件，微软看到基于云的平台的使用激增。此外，游戏业务及其 Xbox 游戏订阅的收入也吸引了因限制出行而被困在家中数月的用户。
 
-**摘要翻译：**
+进入 2 万亿美元俱乐部，微软现在巩固了其主导地位，并重申了对业务部门强劲增长的预期。最后一家可能具有这个价值的公司是沙特阿美，沙特阿美公司于 2019 年 12 月非常短暂地进入了 2 万亿美元的独家俱乐部。 目前，它的市值是1.9 万亿美元。
 
-英国肯特大学大学的一项新研究表明，首例新冠病毒病例可能在2019年10月初至11月中旬期间出现在中国，比当年12月在武汉报告的第一例正式病例早了几周。据估计，该病毒于2019年11月17日左右首次在该国出现，并于1月传播到世界各地。
+参考链接：
 
-在中共研究人员的要求下，美国国立卫生研究院（NIH） 数据库中删除了新冠病毒的基因数据。
+[https://www.republicworld.com/business-news/international-business/microsoft-joins-apple-to-become-second-us-firm-to-enter-2-dollars-trillion-market-value.html](https://www.republicworld.com/business-news/international-business/microsoft-joins-apple-to-become-second-us-firm-to-enter-2-dollars-trillion-market-value.html)
 
-中共研究人员指示美国国立卫生研究院从一个关键的科学数据库中删除早期新冠病毒病例的基因序列，这引起了人们的担忧，即研究该大流行病起源的科学家可能无法获得关键信息。
+翻译整理：蓝精灵
 
-[新闻链接](https://www.foxnews.com/world/first-coronavirus-case-likely-appeared-in-china-weeks-before-documented-uk-study-says.amp?__twitter_impression=true)
+校对发布：Penny
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1

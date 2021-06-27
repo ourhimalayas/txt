@@ -1,16 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4艘中国公务船驶入尖阁附近日本领海
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1352478/)
+## 美国两党决议,谴责中共100年的侵犯人权行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1353487/)
 
 2021年6月26日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26091841/AB90E152-9642-4074-9BFE-8D52E6A2C900_w1200_r1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26193627/0-19.jpeg)
 
-根据“日本第11管区海上保安总部（那霸）26日发布消息”，中国海警局4艘船只在当地时间做出了试图接近日本渔船的动作。中国船中的1艘搭载了类似机关炮的装置。这是连续134天在尖阁附近发现中国公务船，刷新了2012年9月尖阁国有化后的最长连续天数。
+为准备下周的中共百年诞辰，一个两党议员小组周五提交了一份决议，谴责中共国在过去100年中的侵犯人权行为。
 
-**【[新闻来源](https://china.kyodonews.net/news/2021/06/4603ffc4cbe7-4.html)】**
+该决议由迈克·加拉格尔 (R-WI) 领导，列出了中国共产党 (CCP) 对本国人民犯下的残暴行为，并承诺与“为自由而斗争的中国人民”站在一起。
+
+“众议院谴责中国共产党 100 年来严重侵犯人权的行为，包括镇压、酷刑、大规模监禁和种族灭绝，”加拉格尔在决议中写道。
+
+更具体地说，该决议谴责了 30 多起侵犯人权的事件，从 1951 年的占领西藏到 2017 年开始的针对新疆维吾尔人的“荒唐的侵犯人权行为”。
+
+中共国正在为 7 月 1 日的大规模庆祝活动做准备，并关闭了北京的天安门广场和其他顶级旅游景点。该决议的时机和两党合作很耐人寻味。
+
+[新闻来源](https://www.foxnews.com/politics/bipartisan-resolution-condemns-100-years-of-human-rights-abuses-in-chinas-lead-up-to-centenary-anniversary)
 
 * * *
 
@@ -20,5 +28,7 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
+
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 0
