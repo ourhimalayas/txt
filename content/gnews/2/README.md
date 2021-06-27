@@ -1,26 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月24日 秘翻快报【头条新闻】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1349458/)
+## 美国两党决议,谴责中共100年的侵犯人权行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1353487/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25031915/IMAGE-2021-06-25-142308.jpg)](https://gtv.org/video/id=60d577bf6e4b8a00c7a10716)
-**新闻总结：**
+2021年6月26日
 
-1. 深圳疫情严重 机场几乎空无一人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26193627/0-19.jpeg)
 
-2. 中共国加大力度打击虚拟货币
+为准备下周的中共百年诞辰，一个两党议员小组周五提交了一份决议，谴责中共国在过去100年中的侵犯人权行为。
 
-3. 中共秘密筹备建党百年庆
+该决议由迈克·加拉格尔 (R-WI) 领导，列出了中国共产党 (CCP) 对本国人民犯下的残暴行为，并承诺与“为自由而斗争的中国人民”站在一起。
 
-4. 悉尼爆发中共病毒疫情，政府卫生部长检测结果呈阳性
+“众议院谴责中国共产党 100 年来严重侵犯人权的行为，包括镇压、酷刑、大规模监禁和种族灭绝，”加拉格尔在决议中写道。
 
-5. 中共删除了中共病毒数据以掩盖 “零号病人”
+更具体地说，该决议谴责了 30 多起侵犯人权的事件，从 1951 年的占领西藏到 2017 年开始的针对新疆维吾尔人的“荒唐的侵犯人权行为”。
 
-6. 美国福特号航母完成全舰冲击试验
+中共国正在为 7 月 1 日的大规模庆祝活动做准备，并关闭了北京的天安门广场和其他顶级旅游景点。该决议的时机和两党合作很耐人寻味。
 
-**By:秘翻快报组**
+[新闻来源](https://www.foxnews.com/politics/bipartisan-resolution-condemns-100-years-of-human-rights-abuses-in-chinas-lead-up-to-centenary-anniversary)
 
-**GTV链接:**[https://gtv.org/video/id=60d577bf6e4b8a00c7a10716](https://gtv.org/video/id=60d577bf6e4b8a00c7a10716)
+* * *
 
-+4
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+0

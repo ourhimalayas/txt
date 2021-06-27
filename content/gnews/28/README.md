@@ -1,49 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6/24/2021 财经快讯：美国限制五家侵犯人权的中共国实体出口，耶伦警告联邦政府违约风险
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1347094/)
+## 在英国伦敦大规模反宵禁抗议进行中
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1353100/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/24063514/%E5%9B%BE%E7%89%871-85.png)[图片来源](https://www.dw.com/)
-**1.****美国限制五家侵犯人权的中共国实体出口**
+2021年6月26日
 
-[美国拜登政府周三限制对五家中共国实体的出口，称这些实体与中共国侵犯人权的行为有牵连，其中包括为太阳能电池板行业生产多晶硅的大型企业。本次被列入美国商务部实体清单的实体包括合盛硅业、大全新能源有限公司旗下的新疆大全新能源股份有限公司、上海制造业巨头东方希望集团旗下的新疆东方希望有色金属有限公司、香港上市公司协鑫新能源的子公司新疆协鑫新能源材料股份有限公司和新疆生产建设兵团。至少有部分被加列入清单的实体制造用于太阳能电池板生产的单晶硅和多晶硅。根据周三提交的一份美国政府文件，上述实体因侵犯人权和虐待维吾尔族等穆斯林少数民族而被列入清单。美国商务部称，这些公司接受或使用了被强迫的劳动力。](https://cn.reuters.com/article/us-china-business-sanctions-0624-idCNKCS2E003E)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26144757/london_protest_April2021-1.jpg)
 
-**2.****耶伦警告联邦政府违约风险**
+英国老百姓说：“我们受够了！”伦敦民众今天聚集在一起抗议COVID宵禁，浩浩荡荡，这个被称作“自由三月”的游行示威聚集了大量的人群。成功领导英国脱欧的政治领袖人物：奈杰尔·法拉奇（Nigel Farage）支持游行，他表示：“伦敦的反宵禁游行看起来盛况空前。我们受够了！”
 
-[财政部长珍妮特-耶伦周三敦促国会延长7月31日的最后期限，以偿还联邦政府对投资者和外国政府的28万亿美元的部分债务。她警告说，如果不延期，绝对灾难性的 违约将危及国家从中共病毒大流行中的经济复苏。虽然借贷是联邦政府通过出售债券来维持国家运转的常规周期，但在7月31日达到了 “债务上限”，需要在借入更多资金偿还债务。耶伦说，如果联邦政府违约，可能会引发现金短缺的连锁反应，首先影响的是美国债券持有人，包括个人、企业和外国政府。耶伦称，这将引发一场金融危机，威胁到美国人的工作和储蓄。](https://www.businessinsider.com/janet-yellen-debt-default-congress-republicans-ceiling-2021-6)
 
-[国会上次在2019年7月唐川普总统时期暂停借贷限额，为期两年。耶伦还强调，中共病毒大流行给财政部在必要时介入紧急支付的紧急权力带来了不确定性。](https://www.businessinsider.com/janet-yellen-debt-default-congress-republicans-ceiling-2021-6)
 
-**3.****中兴通讯面临新的恐怖主义指控**
+> NOW – More aerial footage of the [#londonprotest](https://twitter.com/hashtag/londonprotest?src=hash&amp;ref_src=twsrc%5Etfw).[pic.twitter.com/RbMqH8KMWI](https://t.co/RbMqH8KMWI)
+> — Disclose.tv 🚨 (@disclosetv) [June 26, 2021](https://twitter.com/disclosetv/status/1408779353325031425?ref_src=twsrc%5Etfw)
 
-[一项针对MTN集团和下辖公司，包括中兴通讯在内的新反恐诉讼已经在纽约提交。53名美国人，包括阵亡士兵的家属和严重受伤的军人，向美国纽约东区地方法院提交了针对MTN和中兴通讯的新法庭文件。诉状是由位于华盛顿特区的Sparacino PLLC律师事务所提交的，该律师事务所表示，这是在进行了广泛的调查之后，包括花了数千小时调查伊拉克的恐怖活动，以及真主党和类似的恐怖分子如何通过与MTN和中兴等公司的非法企业交易来资助他们。原告称，MTN和中兴通讯在知情的情况下不计后果地支持恐怖活动，在伊拉克袭击、杀害和伤害了数千名美国人。诉状还称，MTN和中兴通讯的付款和其他行为违反了美国法律，规避了旨在剥夺针对伊拉克境内美国人的恐怖分子的资金和关键技术的国际制裁制度。](https://www.itweb.co.za/content/VgZeyvJoZlR7djX9)
 
-[此外，中兴通讯被指控 “参与了一个精心策划的计划，以获取美国原产的物品，将这些物品送往伊朗，并掩盖其参与这些出口的事实”。](https://www.itweb.co.za/content/VgZeyvJoZlR7djX9)
 
-**4.****美国能源部数据看涨，油价攀升**
+**【[新闻来源](https://www.thegatewaypundit.com/2021/06/massive-london-protests-lockdowns-enough-enough/)】**
 
-[美国能源部EIA报告，截至6月18日当周原油库存减少760万桶后，油价进一步跳涨，前一周报告的库存为740万桶；美国石油协会周二报告的截至6月18日的一周库存为720万桶。在油价涨势略有动摇之际，有报道称欧佩克+正在考虑从8月起向全球供应更多的油桶，以应对需求的强劲反弹。EIA报告称，汽油库存减少290万桶，产量为1030万桶/日。相比之下，前一周的库存增加了200万桶，产量为990万桶/日。伊朗选举产生了一个强硬派的国家新总统，为油价涨势出现插曲,。随着易卜拉欣-拉伊西的掌舵，情况可能变得更加不确定：伊朗当选总统本周拒绝与拜登总统会面并讨论伊朗的弹道导弹计划及对各种中东武装团体支持的可能性。](https://finance.yahoo.com/news/oil-climbs-higher-bullish-eia-150000110.html)
+* * *
 
-[截稿前，布伦特原油价格为每桶75.78美元，西德克萨斯中质油价格为每桶73.80美元。](https://finance.yahoo.com/news/oil-climbs-higher-bullish-eia-150000110.html)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**5.****“代币化证券”亟待监管支持**
 
-[亚洲证券业与金融市场协会(ASIFMA)周四表示，亚洲金融监管机构应该采取更多措施，支持“代币化证券”的大规模试验。代币化证券是像股票和债券这样的产品，其所有权证明被记录在分布式账本上，这种技术是其他数字代币的基础，如比特币。许多银行正在探索这一概念，期望能帮助他们更有效地定价和结算交易。ASIFMA在周四发布的报告中称，监管机构应扩大现有金融科技创新试验“沙盒”的范围，从而实现全行业的试验。香港、新加坡和日本的监管机构已经发布了一些关于代币化证券的指导方针。星展银行上个月在其最近成立的加密货币交易所发行了1,500万坡元(1,114万美元)的债券作为“证券代币”。](https://www.reuters.com/article/fintech-blockchain-asia-banks/asian-banks-trials-with-tokenised-securities-stuck-in-silos-industry-body-idUSL3N2O32O1)
-
-**6.****黑石头拟17.5亿美元收购英国地产公司**
-
-[圣莫德文公司St. Modwen Properties PLC周四表示，已经同意黑石集团(Blackstone Group Inc.)提出的12.7亿英镑（17.7亿美元）最终现金报价。根据收购要约，英国房地产投资者和开发商的接受股东将获得每股560便士，比5月20日商定的542便士的价格高出3.3%。圣莫德文公司的董事表示，他们认为新的报价符合股东的整体最佳利益，并建议他们在法院和股东大会上投票赞成该交易。格林威治时间7：19分，股票上涨2.0便士，或0.4%，报553.0便士。](https://www.marketwatch.com/story/blackstone-increases-st-modwen-properties-offer-to-gbp1-27-bln-271624519458)
-
-**7.****蚂蚁金服正在谈判与国企分享数据宝库**
-
-[据知情人士透露，蚂蚁金服集团正在与中共国国有企业进行谈判，创建一个信用评分公司，将这家金融科技巨头的消费者数据置于监管机构的管辖之下。这个新实体可能最快在今年第三季度成立，可能会导致蚂蚁金服放弃其拥有的大量中国公民金融习惯数据的一些控制权。目前，超过10亿人使用蚂蚁金服的支付宝应用来消费、借贷或投资，而蚂蚁金服所收集和使用的信息是该公司近年来成功背后的秘方。据知情人士透露，蚂蚁金服和监管机构也一直在讨论新公司应该由蚂蚁金服还是国有企业来运营和控制，潜在的股东包括一家位于上海的金融集团。据透露，讨论仍在继续，还没有做出最终决定。](https://www.wsj.com/articles/jack-mas-ant-in-talks-to-share-data-trove-with-state-firms-11624442902)
-
-**8.****德国5月对美出口增长远超中共国**
-
-[德国统计局周四表示，由于对商品的强劲需求之赐，德国5月对美国出口较上年同期增长近41%，达到91亿欧元；德国对中共国出口同比增长了17.7%，达到84亿欧元。德国5月对非欧盟国家整体出口较前月减少3.0%，但较上年同期增长27.9%。](https://cn.reuters.com/article/germany-usa-china-trade-0624-thur-idCNKCS2E00KV?il=0)
-
-By【秘密翻译组-金融组】
-作者：Apple
-
-+1
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0

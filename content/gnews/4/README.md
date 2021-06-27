@@ -1,100 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达萨克“回避”从 Covid 起源调查中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1352264/)
+## 【灭共重磅】只要确认病毒来自实验室，美国很可能在中共国采取类似对伊朗苏莱曼尼的直接斩首行动
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1353659/)
 
-字幕内容：
+#### **作者：奥克兰伊甸农场亚伦**
 
-Well this is the global narrative about China
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26212717/2021-06-26-1-fig2.jpg)
 
-这是关于中共国的全球叙事
+2021年6月25日，[文贵先生在GTV直播](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64)中重磅透露，其本人第一次，是第一次听到西方领导人认真地说，美国很有可能在中共国采取对伊朗苏莱曼尼类似的斩首行动，无论中共是否配合调查，只要确认病毒来自实验室，就会直接采取行动。
 
-and about Fauci grant to the Wuhan Institute of Virology
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26212737/2021-06-26-1-fig1.jpeg)“圣城旅”司令苏莱曼尼在巴格达机场外被美军无人机炸碎，现场仅剩一条胳膊
 
-以及关于福奇对武汉病毒研究所的资助
+众所周知，美国国会正在出台一系列的法案对中共进行惩罚，以毒灭共会成为爆料革命最伟大的里程碑。
 
-and all of these related issues has now really changed
+从国内救出去欧洲的科学家彻底改变了西方关于新冠病毒的看法，让西方百分百认识到这是真正的病毒武器、超限战、生化病毒、真正的生化武器，目前只剩下走程序。
 
-所有这些相关的问题现在已经真正改变了
+更重要的是会有更多中共内部病毒的知情者、参与者与我们爆料革命、新中国联邦和世界上很多国家合作。比如上周末有从国内出来的级别不高但很重要的医疗界人士向欧洲某国提供了病人案例信息、视频、医疗证据、研发证据，对这些国家都是巨大的震撼。特别像澳大利亚当局获得了孙力军这些人藏在老婆妹妹家关于武汉的一些证据，使得澳大利亚政府更加坚定这是中共的病毒武器，而澳大利亚拥有的证据一定会和美欧英国分享。逃到日本去的军人和医学人士，日本政府全面调查研究中，日本拥有的情报信息也会和美欧分享。每时每刻全世界都在发生的真正的“核导弹”级别的事件在反击中共，而且没有人可以阻挡。
 
-because Peter Daszak was golden,
 
-因为彼得·达萨克是掘金人
+MQ-9收割者无人机为美国成功清除伊朗军事头目卡西姆苏莱曼尼立下大功
+G7峰会之后世界上三大行动：1、欧洲要彻底把俄罗斯和中共分开；2、美国负责全面支持，美国和日本全力以赴对付中共；3、美、澳、日、北约汇聚在南海和台海，使劲勾兑弄钱。
 
-he actually felt so bold last year
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26214914/2021-06-26-1-fig5.jpg)
 
-去年他居然很大胆地
+西方世界非常清楚，并且于G7会议上同意，只要这个病毒中南坑知情，PPE（个人防护用品）、疫苗、新冠病毒的有组织有计划，全世界就会公开宣布消灭中共组织是全世界正义的必须。
 
-that he admitted to the New York Times
+除此之外，对中共高层的沉重打击是不管中共配不配合，只要西方认为就是武汉实验室出来，也无论是否故意，所有中共高层海外的个人、家人资产也会全部查封。
 
-向《纽约时报》承认
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26214839/2021-06-26-1-fig4.jpg)
 
-that he had discounted the lab leak theory
+[1] 美国于2011年将苏莱曼尼认定为一名全球恐怖主义分子。2019年4月，美国采取了空前举措将伊斯兰革命卫队—圣城军认定为一个外国恐怖主义组织，第一次将另一个政府的某机构列为这类组织。2020年1月3日，一架美国MQ-9“收割者”无人机在伊拉克巴格达国际机场附近向苏莱曼尼的车队发起攻击，苏莱曼尼死于空袭。
 
-他对实验室泄漏的理论不屑一顾
+(文章仅代表作者观点，与GNEWS无关）
 
-to protect his friends at the Wuhan Institute.
+* * *
 
-就为了保护他在武汉研究所的朋友
+*责任编辑：日本东京樱花农场 文迹～见证神迹
+校对：纽约香草山农场 七哩香
+发布：喜联盟编辑部  Isaiah4031*
 
-So that’s a pretty emboldened statement.
-
-所以这是一个非常大胆的声明
-
-Now he’s of course, he’s been removed,
-
-现在他当然了，他已经被移除了
-
-and part of it is because of his own misconduct
-
-部分原因是因为他自己的不当行为
-
-that he failed to disclose conflict of information stuff to the Lancet when he wrote articles
-
-他在写文章时没有向柳叶刀透露信息冲突
-
-which is a serious charge if you’re a scientist or researcher.
-
-这是一项严重的指控，如果你是科学家或研究人员
-
-So I think this means pretty much the end of Peter Daszak
-
-所以我认为这几乎意味着彼得·达萨克(科学研究的)终结
-
-and that means we could see more questioning of Anthony Fauci,
-
-这意味着我们可以看到更多对安东尼·福奇的质疑
-
-because the two of them were very close,
-
-因为他们两个的合作关系非常密切
-
-they work together.
-
-他们在一起工作
-
-Fauci granted sent money to Wuhan through Daszak’s ecohealth Alliance.
-
-福奇通过达扎克的生态健康联盟来资助武毒所
-
-This really is I think perhaps the beginning of the end for Fauci himself
-
-我认为这真的是福奇本人结局的开始
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 https://twitter.com/newsmax/status/1407375738291081219?s=24
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++2

@@ -1,68 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马龙：新冠疫苗风险评估不透明，数据收集不严格
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1351906/)
+## 【NewsExpress】塔克在节目中指出谷歌在线审查实验室起源论
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1343348/)
 
-视频字幕：云岭| 听写/翻译：Roberts| 校对：Ignoreme|简评/文字整理/编辑：胖丁| Page：小六月
+塔克在FOX 节目中重磅指出：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/68gn4wdvxZBR4/images/8b668ef4-498c-4495-bf34-854a0f39b8d8.png?asset_id=092eaa28-21d1-4ebe-af95-5801c1d57a74&amp;img_etag=%224bce108e4e7bc534830591c7ce99393c%22&amp;size=1024)](https://spark.adobe.com/page/68gn4wdvxZBR4/images/8b668ef4-498c-4495-bf34-854a0f39b8d8.png?asset_id=092eaa28-21d1-4ebe-af95-5801c1d57a74&amp;img_etag=%224bce108e4e7bc534830591c7ce99393c%22&amp;size=1024)
-
-**简评：**
-
-作为参与mRNA疫苗研究的医生，马龙接受了福克斯塔克的采访。表示对疫苗有担忧。因为风险评估不透明，数据收集不严格。没有人做过风险/收益的分析。
-
-不应该强迫年轻人接种疫苗，这是基本权利，尤其这些还是实验性疫苗。无法证明年轻人接种是合理的。
-
-[GTV视频链接](https://gtv.org/video/id=60d5d52d70535a202d89aade)
+Peter Daszak 和 Anthony Fauci 博士对 COVID-19 的真正起源撒谎。谷歌不仅依靠 Daszak 在线审查实验室泄漏理论，而且还资助了他在中国进行的危险研究。一下是视频链接：
 
 
 
-**视频字幕：**
-
-**（Roberts Malone是参与mRNA疫苗研究的医生，塔克说“也许他是世界上最有资格评论mRNA疫苗的”）**
-
-**塔克：**用非科学家可以听懂的方式告诉我们，你对疫苗用于风险不大的人群有担忧吗？
-
-**马龙：**有。我认为我的担忧之一是，在风险（披露）方面政府对我们不透明。
-
-我的意见是人们有权利决定是否接受疫苗，尤其是考虑到这些是实验性疫苗。
-
-这是人们的基本权利，与临床研究伦理有关。
-
-所以我的担忧是，我知道存在风险。
-
-但是我们无法访问数据，而且数据的获得不够严格，所以实际上我们无法评估风险。
-
-所以，听众们，我们真的没有做出合理决定所需要的信息考虑应该用哪家公司的疫苗。
-
-**塔克：**大多数人使用的简单方法是权衡风险与收益的大小。
-
-最大的美国人群–年龄在18-22 岁的大学生被强制接种疫苗，其中为数不少的人已经感染过病毒，而且从新冠中恢复。
-
-统计数字表明，很少有人会死于新冠。
-
-对于这批人群，尤其是感染过病毒的，（注射疫苗）利大于弊吗？你的观点？
-
-**马龙：**我自己的看法是，在这一人群中，也许益处不会大于风险。但是不幸的是，没有人做过风险/收益的分析。
-
-所以这是我的另一个反对意见。当我们经常谈论类似“风险，收益”这样的词的时候，好像是非常深奥的科学。其实不是。
-
-正常情況下，在这个阶段，疾控中心和免疫实践谘询委员会应该基于数据和科学进行风险/收益分析，现在的情况是他们没有做。
-
-他们似乎是全凭经验，这个是我非常反对的。所以你问我在这个人群中，风险收益比是否恰当，事实是我真的不好说。
-
-我可以这么说，18岁及以下人群的风险/收益比不能证明接种疫苗是合理的。
-
-很大可能，它不能证明年轻人注射疫苗是合理的。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+> Peter Daszak and Dr. Anthony Fauci are lying about the true origins of COVID-19. 
+> 
+> Not only did Google rely on Daszak to censor the lab leak theory online, but they also funded his dangerous research in China. [https://t.co/GcdIVZlnAz](https://t.co/GcdIVZlnAz) [pic.twitter.com/NgSKfqImzT](https://t.co/NgSKfqImzT)
+> — Rep. Matt Gaetz (@RepMattGaetz) [June 23, 2021](https://twitter.com/RepMattGaetz/status/1407501174010486785?ref_src=twsrc%5Etfw)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/68gn4wdvxZBR4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/68gn4wdvxZBR4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+2021 年 6 月 19 日国家脉动曾经披露：谷歌和美国国际开发署资助了武汉合作者彼得·达扎克 (Peter Daszak) 十多年来的病毒实验。文章指出：至少自 2010 年以来，这家科技巨头的慈善机构 Google.org 一直在资助包括 Peter Daszak 在内的生态健康联盟研究人员进行的研究，并列举了论文：
 
-+1
+在 2010 年关于蝙蝠黄病毒的一项研究中，将 Daszak 和生态健康联盟副主席乔纳森·爱泼斯坦列为作者，感谢 Google.org 的资助。
+
+1.Daszak 撰写的 2014 年关于 henipavirus 溢出的研究同样宣称它部分“得到了 Google.org 的支持”。
+
+2.2015，年一篇关于疱疹的论文将 EcoHealth 的 Daszak 和 Epstein 列为作者，该论文显示它“得到了美国国际开发署新兴大流行威胁：PREDICT 计划、斯科尔基金会和 Google.org 的资助。”
+
+3.在2018，生态健康联盟的研究人员撰写了题为这是“工人与野生动物接触中国的血清学和行为风险调查”纸“成为可能”通过Google.org资助。
+
+参考链接：[https://twitter.com/i/status/1407501174010486785](https://twitter.com/i/status/1407501174010486785)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+0

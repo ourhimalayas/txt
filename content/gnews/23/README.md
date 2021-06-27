@@ -1,28 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国NTD: 中国共产党长期以来致力于摧毁西方世界，建立共产主义新世界
-` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1349896/)
+## 抖音内部透露，中国母公司可“访问美国用户数据”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1353674/)
 
-#### 听写 / 翻译： Ikonic 校对 / 字幕：Vékap
+2021年6月26日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26220815/0-25.jpeg)
+**摘要翻译：**
 
-前克格勃特工尤里-贝兹梅诺夫，在1985年解释了苏联颠覆西方国家的战略，同样是中共政权也的操作手法：
+TikTok抖音公司内部人士在全国广播公司商业频道（CNBC） 的一份报告中透露，应用程序“抖音”的中国母公司可以秘密访问（美国）用户数据，称两家公司之间的界限“非常模糊，几乎不存在”。
 
-第一步：把马克思列宁主义意识形态在数十年间注入学生尚未成型的思想中，达到让他们怀疑一切的目的。
+这份重磅报告验证了特朗普政府在美国禁止该应用程序的努力，它在拜登政府决定允许抖音继续运营，甚至欢迎抖音进入白宫做“简报”后发布的。《国家脉动》先前广泛报道抖音与中共的关系，包括雇用前外交官担任高级职位。
 
-第二步：意识形态的颠覆。这个阶段大约持续2到5年。目的是通过改变经济、外交关系和国防系统使社会陷入混乱。政府继续向人民作出承诺，以维持民意的拥护，同时又越来越多地干预公民的生活。
+[新闻来源](https://thenationalpulse.com/news/tiktok-insiders-reveal-chinese-parent-company-can-access-u-s-user-data/)
 
-第三步是通过革命或外部侵略达到内战的目的，比如用移民问题来达到此目的
-
-最后一步：同化。这个阶段，民众接受了共产主义。这需要二十年的时间。
+* * *
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-* * *
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

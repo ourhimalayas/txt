@@ -1,43 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】做好幸福鸟
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1339314/)
+## 6/25/2021 财经快讯：香港监管机构对德意志银行处以罚款；美国禁止从中共进口太阳能电池板材料
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1350062/)
 
-配音：香草山录音组 信念7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25093401/%E5%9B%BE%E7%89%872-24.jpg)[图片来源](https://www.livemint.com/)
+**1.香港监管机构因声明不正确而对德意志银行部门处以罚款**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[路透香港 – 香港市场监管机构周四对德意志银行 (DBKGn.DE) 的一家子公司处以245万港元（合315,522美元）的罚款，原因是该部门12年来一直向其主要经纪客户发布不正确的陈述，并延迟向监管方报告其失败情况。证券及期货事务监察委员会（证监会）在一份声明中表示，由于前台系统的设计缺陷，德意志证券亚洲有限公司在2006年至2018年10月期间发布了不正确的定期报表。](https://www.reuters.com/business/finance/hong-kong-regulator-fines-deutsche-bank-unit-over-incorrect-statements-2021-06-24/)
 
+**2.微软推出全新Windows 11操作系统挑战苹果商业模式**
 
+[微软公司周四展示了Windows11，这是自2015年以来首次对操作系统进行重大改造，其中的新变化直接针对苹果公司利润丰厚的App Store商业模式。将于今年年底上市的Windows 11将包括一个新的Windows应用商店，允许软件开发人员使用他们自己的应用内支付系统，并且无需向微软支付佣金。得益于亚马逊和英特尔公司的技术支持，它还可以让用户在他们的笔记本电脑和PC上找到并运行Android移动应用程序。](https://finance.yahoo.com/news/microsoft-unveil-first-windows-six-110743159.html)
 
+**3.美国禁止从中共进口太阳能电池板材料**
 
+[两名知情人士称，拜登政府周三下令禁止美国从总部位于中国的合盛硅业进口一种关键的太阳能电池板材料，原因是强迫劳动的指控。美国商务部分别限制对合盛硅业、另外三家中国公司和准军事新疆生产建设兵团（XPCC）的出口，称他们参与了新疆维吾尔人和其他穆斯林少数民族的强迫劳动。中共外交部发言人赵立坚周四回应称，中国将采取“一切必要措施”保护本国企业的权益；北京驳斥新疆种族灭绝和强迫劳动的指控是谎言。](https://finance.yahoo.com/news/u-restricts-exports-5-chinese-211346273.html)
 
+**4.中共的禁令迫使一些比特币矿工逃离海外，其他人则卖光了**
 
+[上海（路透社）- 中共对加密货币开采的全面禁令，使占全球比特币产量一半以上的行业陷入瘫痪，矿工们绝望地倾倒机器或在德克萨斯或哈萨克斯坦等地寻求庇护。“许多矿工正在退出该业务以遵守政府政策，”西南省份四川省一家加密矿场的运营商Mike Huang说。“矿机卖得像废铁。”四川当地政府是仅次于新疆的中国第二大比特币挖矿中心，一周前发布了禁止挖矿的禁令。中共国务院在5月下旬发誓要打击比特币交易和采矿，以在全球比特币热潮重振中国加密货币投机交易后抵御金融风险。打压之际，中共央行正在测试自己的数字货币。](https://finance.yahoo.com/news/chinas-ban-forces-bitcoin-miners-041927389.html)
 
-为了爱情，我辞去了在日本大阪某大学的终身正教授之职，来到美国，和我英俊、聪明、浪漫的美国先生一起幸福地生活着（他曾是我们大学美国分校的英文老师，在我作为国际交流委员带领着64名日本学生进行欧美文化研修时，我们在这所分校一见钟情）。直到有一天，他在周末骑自行车赛车50英里回家的路上，被一个酒驾的女演员活活地被撞死了……我的心当时也随他一起去了……
+**5.滴滴首次公开募股将助推中国在美上市热潮**
 
+[香港（路透社）- 尽管两国之间存在政治争吵，但在上半年创下历史新高的背景下，网约车巨头滴滴出行计划以40亿美元在纽约上市，这将推动中国在美国上市。Refinitiv的数据显示，今年前六个月，中国公司在美国共进行了29次首次公开募股 (IPO)，筹集了76亿美元，是同期的最高金额。这明显高于去年同期价值19亿美元的上市，当时中国公司对冠状病毒大流行的经济影响的不确定性更加谨慎。](https://www.oann.com/china-listing-frenzy-in-u-s-set-to-be-boosted-by-didi-ipo/)
 
+**6.美联储关于通胀的混合信息令投资者不安**
 
-**文字版原文：[【战友心声】做好幸福鸟](https://gnews.org/zh-hans/1337893/)**
+[路透纽约6月24日 – 投资者一直在努力解读美联储发出的信号，即在开始解除大流行时期的货币刺激措施之前，它愿意让通胀继续升温。市场对美国通胀预期的衡量指标在5月中旬触及多年高位，但在一些美联储发言人的评论和委员会4月会议纪要听起来更加强硬后下跌。一些投资者将其解释为政策制定者对通胀超调的容忍度低于此前的估计。美联储6月15日至16日的决策会议加剧了通胀预期的下降，当时美联储将其前两次加息的预测提前至2023年。此后，对通胀的押注有所回升，这可能是在美联储主席的帮助下杰罗姆·鲍威尔 (Jerome Powell) 周二坚持认为，由于“担心”通胀可能即将到来，银行不会先发制人地加息。](https://www.reuters.com/business/feds-mixed-messages-inflation-unsettle-investors-2021-06-24/)
 
-作者：纽约香草山健身部 幸福鸟
+**7.Visa以22亿美元收购瑞典金融科技公司Tink**
 
+[路透6月24日 – Visa Inc (V.N) 周四表示，已同意以18亿欧元（22亿美元）的价格收购欧洲开放银行平台Tink，几个月前该公司放弃了对初创公司美国竞争对手Plaid的收购计划。瑞典的Tink成立于2012年，它使银行和其他金融公司能够更轻松地共享和访问消费者金融数据。它被欧洲3,400多家银行和其他机构以及超过2.5亿客户使用。在美国政府提起诉讼，旨在以反垄断为由阻止该交易之后，Visa 于1月终止了与美国数据共享平台Plaid的一项计划中的53亿美元交易。](https://www.reuters.com/business/visa-buy-european-open-banking-platform-tink-215-billion-2021-06-24/)
 
+**8.今年夏天加密货币面临逆风**
 
-音频处理/发稿：雪梨
+[周四股市走高，随着市场对通胀风险和美联储即将发布的具体细节放松，股市继续上涨。但对于比特币BTCUSD，-1.61%和其他加密资产，如以太坊ETHUSD，-3.37%和狗狗币 DOGEUSD，3.67%，夏天的轻松微风已经远去。摩根大通投资银行的Nikolaos Panigirtzoglou领导的一组分析师表示，加密货币市场本周大幅下跌，市值从5月初的2.5万亿美元峰值下跌了1万亿美元。根据其波动性与黄金之间的关系，随着加密货币面临新的阻力，比特币的中期公允价值为23,000美元至35,000美元。根据投资银行团队的说法，比特币面临的最新重大挑战的信号是，最大的比特币基金-灰度比特币信托的资产净值折价已经扩大到负值区域。](https://www.marketwatch.com/story/heres-how-much-bitcoin-is-worth-says-jpmorgan-as-crypto-faces-this-summer-headwind-11624533578?siteid=yhoof2)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+By 【秘密翻译组-金融组】
+作者：小海星
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
