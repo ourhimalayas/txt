@@ -1,64 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/23 班农专访(5）：中共借“种族论”对美国人施以“文革2.0”式的的绑架
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1354411/)
+## 杀毒软件之父McAfee被自杀后一份解密文件被发现已经自动开启
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1354749/)
 
-视频字幕/听写：云岭 | 翻译：Wade | 校对： Roberts | 简评/文字整理/编辑：胖丁| Page：我是球大哥
-[!\[\]()!\[\](https://spark.adobe.com/page/FvAwNGlJfj5aa/images/f3780e77-0f95-4abe-8335-7436bb986e6c.png?asset_id=4e016a75-77bd-4647-a535-d38cfb1ac548&amp;img_etag=%2281b1b9d300efc13931cef838eb05a8e2%22&amp;size=1024)](https://spark.adobe.com/page/FvAwNGlJfj5aa/images/f3780e77-0f95-4abe-8335-7436bb986e6c.png?asset_id=4e016a75-77bd-4647-a535-d38cfb1ac548&amp;img_etag=%2281b1b9d300efc13931cef838eb05a8e2%22&amp;size=1024)
-**简评：**
+撰稿&视频：白雪
+视频节选自网络
+周三，杀毒软件之父约翰**·**迈克菲**(John McAfee)**在监狱里自杀后，他已启动了一个**“**自杀开关**”**（**Killswitch**），**“**觉醒频道**”**的优秀分析团队已经发现了这个**“**自杀开关**”**（**Killswitch**）的确切位置和数据。这个**“**自杀开关**”**（**Killswitch**）似乎在通过二进制代码不停地传输文件，因为开关被激活了，他们将很快发布所有的信息。
 
-以批判种族理论的形势绑架美国人的生活，就是伪装的文化大革命，中共在其中参与甚多。2020年春天，班农战斗室连续邀请GNews、GTV、爆料革命、新中国联邦等华人来讲述他们在中共国经历的真实的文革。
+**谁将寝食难安呢？**
 
-一半美国民众想对摇摆州的选票进行法定审计，将近一半人相信拜登不是合法总统。美国有宪法危机。拜登政府没有获得授权，他们非法占据了白宫，试图强制执行极左的马克思主义，就象当年毛泽东在中国一样，摧毁了社会的根基–家庭。
+上面这段视频是约翰**·**迈克菲在**2020**年**7**月发布的一段关于**Deep State**的言论，显然，他知道太多影子政府的秘密。他不断地重复，没有秘密，一切都摆在那里。显然，对他来说没有网络能锁的住的秘密。
 
-我们有责任唤醒世界，GNews、GTV如此重要。在这历史的转折点，我会为你们祷告，请求上帝给你们指引，引导世人的行动。
+**约翰·迈克菲的律师也在前天透露了一个关于他当事人的惊人消息**。
 
-GTV视频链接：[班农先生每週访谈 Q5: 以批判种族理论的形式绑架美国人的生活，这其实就是僞装的文化大革命，你是否认爲这一切的幕后黑手就是中共](https://gtv.org/video/id=60d7f1552f9a56108e0d37bb)
+他声称他的当事人并没有自杀。尽管当局声称McAfee是自杀的。基于他们的秘密通信，他的律师声称，McAfee丝毫没有自杀倾向。
 
+据英国《每日邮报》报道，约翰·迈克菲在最后的上诉中声称美国政府“想要拿我杀鸡儆猴”。
 
+在法院下令将他引渡到美国几个小时后，这位75岁的老人死亡。美国当局是以逃税和欺诈的罪名通缉他。
 
-**视频字幕：**
+尽管西班牙当局声称没有谋杀，但迈克菲过去在推特上说他永远不会“像爱普斯坦那样”自杀，这引发了阴谋论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27073911/IMG_9876.jpg)网络截图
+迈克菲曾在他的个人推特上说：我在这里很自在。“我有熟人。这顿饭很好吃。一切都很好。要知道，如果我像爱普斯坦一样上吊自杀，那也不是我的错。
 
-**主持人**：我必须承认，我做梦也想不到美国人会拥护毛泽东式的文革，以批判种族理论的形式绑架美国人的生活，这其实就是伪装的文化大革命。你是否认为这一切的幕后黑手就是中共？你觉得…
-
-**班农**：我不确定中共100%就是幕后黑手，但他们有很多的参与。这就是提前写好的剧本回到2020年春天，我记得是4月，5月，6月，连续五六周，每个周六的战斗室，我们都有华人声音的特别节目。连续几周，我们都邀请了中国人讲述文革，还有正在美国上演的一切。
-
-Gnews、GTV、爆料革命、新中国联邦、文贵，用他们在中共囯的真实生活经历向美国不断提出警示。所以我同意你的观点。这样的种族、阶级斗争令人震惊，但这是现实。他们亮出了底牌。我想公布一条大家还没在Gnews上谈论的新闻，我们稍后会在战斗室讲这个事。
-
-今天最新的民调显示，55%美国民众想对摇摆州的选票进行法定审计，弄清楚11月3号到底发生了什么。还有40%-41%的美国人相信拜登不是合法总统。这说明（民主党）没有授权。让我直截了当说明这点，首先，拜登不合法。所以美国现在有宪法危机，更重要的是，拜登政府没有获得（合法）授权。他们非法占据了白宫，然后他们试图强制执行极左的文化马克思主义。
-
-他们在这里做的完全就是当年在中国做的。他们明白，幸福的社会建立在家庭之上。数千年来，传统中华文明是建立在相亲相爱的家庭之上的。毛泽东共产党意识到了这点。他们带来的全都是灾难，人民公社、大饥荒，毁了他们触碰到的一切。为什么？因为他们是黑帮，他们洗劫了一切，完全不顾百姓。当中国被他们折腾成了一团糟时，他们决定用文化大革命彻底摧毁中国社会的基石，也就是家庭，尤其是母亲和父亲。
-
-这就是今天正在西方发生的，完全就是毛泽东式的文革。记住，周恩来毛泽东对家庭的摧残来源于法国大革命和布尔什维克。为了控制社会，他们必须摧毁家庭，摧毁母亲和父亲。必须这样。我同意你的观点，这太惊人了。
-
-但同时这又是神的旨意和安排，是完美的。因为这让我们认清了他们的图谋。这展示出他们为了摧毁美国家庭和美国的孩子可以多么不择手段。所以现在我们认清了敌人，我们能够对抗他们，而且我们能赢，美国政治的洗牌说明了他们为什么要偷窃大选。因为在正常选举里，他们不能用合法选票打败我们，绝无可能。而且他们心知肚明。所以我们的任务非常明确。
-
-文贵的警示，尤其是关于正在美国上演的批判种族理论，他警告我们，现在是历史的考验。这就是为什么Gnews、GTV和你们（的节目）如此重要。清醒的是少数。但我们有责任唤醒世界，引导世人的行动。
-
-最后要说的是，你们做的事情绝对至关重要，不仅为了华人的自由，也为了让世界度过这段至暗时刻，避免一场热战。我无法再多的强调你们的观众有多么重要。今天我一定会为你们祷告，请求上帝给你们指引。即使你们不是基督徒，不是佛教徒，甚至没有宗教。请求上天的指引吧，因为我们面临历史的考验。
-
-**完整访谈视频**：[每周班农采访 （2021年6月23日）](https://gtv.org/video/id=60d336646e4b8a00c79fe4b6)
-
-**主播**：Winston, Mike, Dr. TCC, Daniel
-
-[!\[\]()!\[\](https://spark.adobe.com/page/FvAwNGlJfj5aa/images/8682b825-e26f-481b-917c-910f995d3656.png?asset_id=b3954339-2b53-41c2-b969-7035d8b4f20d&amp;img_etag=%221fc9b4e5b69e219c6d17cff0d3e767a8%22&amp;size=2560)](https://spark.adobe.com/page/FvAwNGlJfj5aa/images/8682b825-e26f-481b-917c-910f995d3656.png?asset_id=b3954339-2b53-41c2-b969-7035d8b4f20d&amp;img_etag=%221fc9b4e5b69e219c6d17cff0d3e767a8%22&amp;size=1024)
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:30 （美东时间09：30）直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/FvAwNGlJfj5aa/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/FvAwNGlJfj5aa/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+这位老人近年来以反政府大亨而著称，这么不明不白的“被自杀”确实蹊跷。网上还纷纷传言日前发生在迈阿密海滩的塌楼事件与他相关，据悉，哪里有一套公寓属他的名下。此消息有待核实。
 
 
 
-+2
+> HOLY MOLY!
+> 
+> John McAfee explains to Vice how Hillary Clinton blocked his entry into an American Embassy while people were trying to kill him. So in an act of revenge, he donated laptops to government secretaries loaded with his spyware and exfiltrated data.
+> 
+> 👇🏻 [pic.twitter.com/xv4On6n2rQ](https://t.co/xv4On6n2rQ)
+> — Zach Vorhies (@Perpetualmaniac) [June 25, 2021](https://twitter.com/Perpetualmaniac/status/1408299804719910913?ref_src=twsrc%5Etfw)
+
+
+
+（本文纯属个人观点）
+
+[部分翻译自：](https://thetruedefender.com/john-mcafees-lawyer-just-dropped-a-bombshell-about-his-client-government-hating-tech-tycoon-john-mcafee/)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
++1

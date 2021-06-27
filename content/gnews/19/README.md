@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】中共国新诞生一位来自疫苗界的亿万富翁
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1354666/)
+## 【每日快讯】06/26/2021:中共对台湾开战将是必然数字货币的重新休整成就了喜币的安全和未来
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1354217/)
 
-#### 文章撰写:【默凡】
+**制作：澳喜粤语组**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27065318/324rasdnipaste_2021dasfas-06-27_18-51-31.png)
 
-本周五（6月25日），中共国新诞生一位来自疫苗界的亿万富翁，他就是来自长春长春百克生物科技股份公司董事兼总经理孔维先生。
 
-中共疫苗生产商长春百克生物科技股份公司本周五在上海证券交易所科创板上市，股票刚上市价格就上涨226%，收于118.5元，这使得持股25%的孔维先生的股权价值高达120亿人民币，即近19亿美元。长春百克生物科技股份公司成立于2004年，该公司一直与厦门大学合作研发滴鼻剂中共病毒疫苗。该公司参与研发的中共病毒疫苗至今未上市，公司提前发布该消息也是为配合上市炒作。
+**播报:【海媚】资料整理:【An】【Ruby三鑫】【michelle喜乐】PPT：【文武全才】视频制作:【KEN】发布：【陆柒陆捌】**
 
-中共国亿万富翁数量排名全球第二，仅次于美国，但是中共国亿万富翁的惨状堪称全球之冠，至今无法匹敌。文贵先生从2017年成立爆料革命以来，相继爆料王健、叶简明、车峰、马云、许家印等多位亿万富豪的悲惨结局，中共国内所谓的亿万富翁都是中共高层的白手套，猪一旦养肥是要被杀的，这些亿万富豪最终都会被宰杀，新加入中共国亿万富翁行列的百克生物董事长孔维未来的结局也是如此。
+摘要：
 
-参考文章：
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024241/6.26_page-0002.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024342/6.26_page-0003.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024416/6.26_page-0004.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27024453/6.26_page-0005.jpg)
 
-[1][China Adds A Vaccine Billionaire](https://www.forbes.com/sites/russellflannery/2021/06/26/china-adds-a-vaccine-billionaire/?sh=56c672236f5a)
 
-[2][百克生物：深耕人用疫苗领域 力争成为国际一流生物药创新型企业](https://finance.sina.com.cn/stock/relnews/cn/2021-06-15/doc-ikqciyzi9635222.shtml)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
-
-+1
+0
