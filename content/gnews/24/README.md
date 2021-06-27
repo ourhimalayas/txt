@@ -1,21 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】HBO比尔马赫抨击科技巨头限制并审查了有关冠状病毒起源的信息
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1353720/)
+## 法院裁定：脸书协助犯罪活动，未能防止青少年性交易
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1353810/)
 
-HBO的 比尔·马赫抨击 Facebook 和 YouTube 等科技巨头限制了有关冠状病毒起源的信息，并审查了实验室泄漏理论的提及。“Facebook 在四个月内禁止发布来自实验室的任何关于 COVID 的帖子。当然，现在就连拜登政府也在调查此事，”马赫周五在他的节目中说。
+2021年6月26日
 
-“华尔街日报记者问谷歌健康部门负责人，注意到他们不会像搜索任何其他问题那样对‘冠状病毒实验室泄漏’进行自动填充搜索，那个人说，“好吧，我们希望确保搜索不会引导人们走上我们找不到权威信息的道路，”马赫补充道。“好吧，你错了，谷歌和Facebook！” 马赫坚持。“我们不知道！我们要你的原因是因为我们正在检查这个狗屎！”“中国做了坏事，”马赫说。“自由主义者不想说什么，因为（中国人）是亚洲人，而（自由主义者）对此也不是很清楚，所以他们将其与这里的反亚洲仇恨犯罪混为一谈。这个和对方没有任何关系。”马赫还跟踪 YouTube 审查了布雷特·韦恩斯坦的播客，他在播客中谈到了一种名为伊维菌素的新药，可用于治疗冠状病毒。“YouTube 不应该告诉我关于伊维菌素，我能看到什么，”马赫说。“伊维菌素不是注册的共和党人。是药！我不知道它是否有效，很多其他医生也不知道。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26225148/0-35.png)图为脸书首席执行官马克·扎克伯格与2019年10月23日在华盛顿特区 安德鲁·哈尼克/美联社
 
-参考链接：
+**摘要翻译：**
 
-[https://thehill.com/homenews/media/560384-bill-maher-slams-tech-giants-for-limiting-covid-19-info-ivermectin-isnt-a](https://thehill.com/homenews/media/560384-bill-maher-slams-tech-giants-for-limiting-covid-19-info-ivermectin-isnt-a)
+得克萨斯州最高法院周五裁定，脸书对利用其平台招募和掠夺儿童受害者的性交易者负责。这项裁决是在当地三起涉及青少年受害者的诉讼之后作出的，这些受害者是通过脸书的信息传递工具结识人贩子的。原告称，脸书疏忽大意，没有试图从其技术上控制性交易。
 
-翻译整理：蓝精灵
+脸书辩称，它受到第230条的保护。该条例是互联网法律的一部分，规定在线平台不对人们在其服务上发布的内容负责，因此不应对其平台上发布的内容负责。但德克萨斯州最高法院表示，第230条并不意味着脸书可以作为一个“无法无天的无人区”来运作。
 
-校对发布：Penny
+多年来，网上招募性交易受害者的人数激增，人口贩运研究所最近的一份报告发现，去年活跃案件中的大多数网上招募发生在脸书上。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+[新闻链接](https://www.businessinsider.com/facebook-texas-supreme-court-ruling-sex-traffickers-section-230-2021-6?r=US&amp;IR=T)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

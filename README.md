@@ -12,13 +12,13 @@
 
 ---
 
-### [【澳洲热点】天空电视首度质疑疫苗，直指病毒为生物武器](/content/gnews/1/README.md)
+### [【澳洲热点】天空电视主持人抨击西澳州长跪舔中共，支持独裁政权](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠病毒起源于中共国，再添三项新证！](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【澳洲热点】天空电视首度质疑疫苗，直指病毒为生物武器](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美国两党决议,谴责中共100年的侵犯人权行为](/content/gnews/3/README.md)
+### [新冠病毒起源于中共国，再添三项新证！](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [专案组已成立半年&nbsp; 崔天凯回国将会全家被灭](/content/gnews/4/README.md)
@@ -39,14 +39,14 @@
 ### [【独立观点】又是黎智英! 又是Sara !](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [【字幕视频】河南商丘武术馆发生大火，18死16伤](/content/gnews/10/README.md)
+### [2021年6月25日 秘翻快报【头条新闻】](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【字幕视频】河南商丘武术馆发生大火，18死16伤](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [美国国会要求调查2019年军运会意味着中共再无生还机会](/content/gnews/11/README.md)
+### [美国国会要求调查2019年军运会意味着中共再无生还机会](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [2021年6月24日 秘翻快报【头条新闻】](/content/gnews/12/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [中共国在澳大利亚和许多其他国家的影响力正在急剧下降](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -66,23 +66,23 @@
 ### [【澳洲热点】天空电视首度质疑疫苗，直指病毒为生物武器](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美法达成一致共同应对中共国扰乱世界秩序](/content/gnews/19/README.md)
+### [【NewsExpress】Sellin上校再次发推揭露石正丽的RaTG13是假病毒](/content/gnews/19/README.md)
+ ` 索尼克`
+
+### [美法达成一致共同应对中共国扰乱世界秩序](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共驻英国使馆集体去见马克思宣示了他们一如继往地认贼作父](/content/gnews/20/README.md)
+### [中共驻英国使馆集体去见马克思宣示了他们一如继往地认贼作父](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【NewsExpress】微软继苹果后成为第二家市值突破 2 万亿美元的美国公司](/content/gnews/21/README.md)
+### [【NewsExpress】微软继苹果后成为第二家市值突破 2 万亿美元的美国公司](/content/gnews/22/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】FATF将伊姆兰汗的国家列入恐怖主义资助灰名单](/content/gnews/22/README.md)
+### [【NewsExpress】FATF将伊姆兰汗的国家列入恐怖主义资助灰名单](/content/gnews/23/README.md)
  ` 闪电侠`
 
-### [法院裁定：脸书协助犯罪活动，未能防止青少年性交易](/content/gnews/23/README.md)
+### [法院裁定：脸书协助犯罪活动，未能防止青少年性交易](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【NewsExpress】HBO比尔马赫抨击科技巨头限制并审查了有关冠状病毒起源的信息](/content/gnews/24/README.md)
- ` 闪电侠`
 
 ### [2021/06/27 英喜时事速递](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

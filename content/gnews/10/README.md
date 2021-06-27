@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕视频】河南商丘武术馆发生大火，18死16伤
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1353987/)
+## 2021年6月25日 秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1354253/)
 
-制作：纽约香草山视频部
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27030435/IMAGE-2021-06-27-134759.jpg)](https://gtv.org/video/id=60d813b323fbd21ad0f61b12)
+**新闻总结：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+1. 商业圈频现凋敝 广大农民工一职难求
 
+2. 四川关停虚拟货币“挖矿”项目
 
+3. 外媒揭露中共国的疫苗欺诈
 
-发稿：雪梨
+4. 美国证实NIH应中方要求删除早期武汉中共病毒样品信息
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+5. 朝鲜对美态度强硬，中朝关系突然升温
 
-**更多资讯，更多关注**
+6. 卢比奥: 中共正在酝酿下一场病毒大流行
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**By:秘翻快报组**
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+**GTV链接:**[https://gtv.org/video/id=60d813b323fbd21ad0f61b12](https://gtv.org/video/id=60d813b323fbd21ad0f61b12)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
