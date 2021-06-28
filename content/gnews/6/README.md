@@ -1,56 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只要确定中共病毒来自武汉实验室&nbsp; 美国就会对中南坑实施斩首！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1355387/)
+## Andrew Neil：即使Covid疫情消除之后，统治者们也不会停止干涉我们的生活
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1355486/)
 
-**摘要：在2021年6月25日的GTV直播最后，郭先生爆出惊天大料。他在和西方领导人面对面的交谈中得知“美国很有可能在中共国采取像对伊朗的苏莱曼尼的斩首行动”！而且G7已经达成共识，只要证明病毒是中南坑出来的，不管中共配不配合调查或是否提供证据，都会对中共直接采取行动，会把中共家人在海外的资产全部查封，消灭所有中共的组织。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27164257/1146.jpg)你可能在大流行中失去了工作，但是主子们永远不会失业。
 
-#### **只要确定中共病毒来自武汉实验室****  ****美国就会对中南坑实施斩首**
+**作者：Andrew Neil (主席兼主持人), 2021 年 6 月 24 日星期四21:07 最后更新 2021 年 6 月 24 日星期四 21:55**
 
-#### **Once the Origin of the CCP Virus Is Confirmed, the West Will Take the Suleimani-Style Action on the CCP**
+我们已经习惯了在大流行期间被指指点点，我们的自由前所未有地受到限制。统治者说主要是为了我们好， 但有时它似乎有点笨手笨脚。 令人沮丧的是，随着 Covid 威胁的消退和它带来的限制的解除，统治者们正在多条战线上驰骋，寻找新的领域来告诉我们该做什么。
+今天早上有报道称，政府被建议在未来几个月内在酒吧订购时保持口罩和社交距离。英国公共卫生部门的一位关键人物告诉我们，未来几年我们可能需要戴口罩并保持社交距离。有影响力的 SAGE 委员会的一名成员不甘示弱地认为，社交距离应该永远保持下去。
 
-哇哇哇哇哇哇，天呐，这开着开着会大信息就来了。天呐天呐天呐天呐！哇！这就是我说的美国国会和美国的政府和西方的欧洲的政府。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27164608/11461.jpg)作为一个社会，我们的自由受到限制，因此我们不能像大流行前那样自由出国旅行。 安德鲁·马修斯 (Andrew Matthews)
 
-Wow wow wow! My goodness, some breaking news just came from an ongoing meeting! Oh, my goodness! Wow! That’s what I said about the US Congress, the US government, and the European governments in the West…
+但 Covid 显然没有提供我们该做什么的机会。 所以主子们正津津有味地转移到其他领域。活动人士呼吁在威尔士的酒吧花园和户外餐厅座位区禁止吸烟。英格兰的几个议会希望完全禁止户外吸烟。政府禁止在晚上 9 点前播放高糖、高盐和高脂肪食物的电视广告。诺丁汉的警察已经在公园内实施禁酒令。
+但主子们最丰富的选择与气候有关。 这打开了一个名副其实的专横的聚宝盆。西米德兰兹郡的当地政界人士认为，即使在大流行之后，您也应该呆在家里，以帮助他们通过“加速途径”减少二氧化碳排放。今天上午，政府气候变化委员会表示，到 2030 年，我们应该减少 20% 的肉类和奶制品，到 2050 年减少 35%。素食主义者敦促应该减少 100%。
 
-大家看看G7之后世界上的三大行动——欧洲要彻底把俄罗斯和中共之间给他打开、分开，欧洲的任务就是把他俩给分开，叫这俩别弄在一起去，美国负责全面支持，然后美国和日本全力以赴对付中共，然后汇聚在南海和台海，美、澳、日、北约汇聚在南海和台海。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27164718/11462.jpg)根据新提案，政府将在晚上 9 点之前禁止垃圾食品广告。 伊恩·韦斯特 (Ian West)
 
-Everyone, please look at the three major actions taken by the world after the G7. Europe wants to break up Russia and the CCP completely. Europe’s task is to separate them and not to allow them to get together. The US’s job is to give its full support, and then the US and Japan will go all out against the CCP. Then the US, Australia, Japan and NATO will meet on the South China Sea and the Taiwan Strait.
+委员会还希望你应该继续在家工作。 它希望对飞行、废物和其他行业征收新的税。 与各种机构一起，它也很乐意告诉你拆掉你的燃气锅炉。目前正在通过议会的环境法案，可能要求家庭使用四个单独的垃圾箱——玻璃、金属、塑料、纸张和卡片各一个。另外再加三个垃圾箱用于花园垃圾、食物垃圾和不可回收物。
+你可能在大流行中失去了工作， 但是主子们永远不会失业。 当谈到干涉我们的生活时，这才刚刚开始。
 
-在这个中间使劲勾兑、使劲弄钱，最后把共产党……
+原文连接：[https://www.gbnews.uk/shows/andrew-neil-meddling-bosses-wont-stop-interfering-in-our-lives-even-after-covid/108057](https://www.gbnews.uk/shows/andrew-neil-meddling-bosses-wont-stop-interfering-in-our-lives-even-after-covid/108057)
 
-In the middle of this, they will try their best to collude with and make money from the CCP, and eventually make the CCP …
+洛杉矶盘古农场 : 翻译 – B7; 校对– 格格巫; 编辑 – 格格巫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-大家记住，我第一次认真地，面对面的听到西方某领导人说，美国很有可能在中共国采取像对伊朗的苏莱曼尼的斩首行动。过去我从来没听说过，我第一次听说，说只要病毒的事情美国和西方北约确认，不管你共产党你配不配合调查，也不管你给不给提供证据，也不管你……，就会直接采取行动！直接！我第一次听说。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-Everyone, please remember. This is the first time I heard, in person, face to face, from the leaders of the West seriously saying this – it’s very likely that the US will take the same action on the CCP as the decapitation strike on Iran’s Suleimani. I had never heard such a saying in the past. I heard this for the first time. They said that as long as the virus thing can be confirmed by the US and NATO, regardless whether the CCP will cooperate with them for the investigation or not, whether the CCP will provide the evidence or not, they will take actions directly! Take direct action! This is the first time I heard of it.
-
-第二，不管共产党你配不配合，只要西方认为这个病毒就是你武汉实验室出来的，也不管你故意不故意，只要是实验室出来的，所有在海外的共产党的家人、资产全部会被查封。不要信啊，共产党的这些大佬们你别信啊。不要相信我，继续相信你自己的话。
-
-Second, regardless of you, the CCP cooperates or not, as long as the West believes that this virus was from your Wuhan lab, and regardless of whether you deliberately released it or not, as long as it’s from the lab, all the CCP members and their family members’ assets overseas will be seized. Do not believe me, the CCP bigwigs, do not believe me. Don’t believe me. Keep believing yourselves.
-
-另外一个，西方世界非常清楚地，现在在G7会上统一，只要这个病毒是中南坑出来的、中南坑知情，后来的PPE和病毒和所有的疫苗等这一切事情是它有组织有计划的，全世界就会公开宣布，消灭所有的中国共产党的组织是全世界正义的必须，下一个世纪的主要任务，绝对不会一下结束，不信走着看！
-
-Another thing. The Western world is very clear on this and they’ve reached an agreement on this at the G7 – as long as this virus was from the hands of the Zhongnan Pit, as long as the Zhongnan Pit was informed on this, and as long as the hoarding of the PPE and everything about the vaccines were organized and planned by it, the world will openly declare that the elimination of the CCP and all its organizations is a must for the sake of justice of the world, and it will be the main task for the next century. Their actions will absolutely not end after just one strike. If you do not believe me, just wait and see!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-[视频来源](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64) (1:05:10-1:07:25, 1:07:34-1:08:12)
-鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1351941/)
-
-* * *
-
-字幕：【Rock小哥】
-校对：【BruhM】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-翻译 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gettr: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
-
-+5
++4

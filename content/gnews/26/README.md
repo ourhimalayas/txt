@@ -1,59 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】 澳大利亚特种部队将对抗中（共）国
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1356038/)
+## 【澳洲前线】视频——6.27墨尔本线下宣传活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1356140/)
 
-香草山翻译部：GBW
+视频剪辑：尕鱼儿
+编辑：翼族
 
+![QR 代码
+中度可信度描述已自动生成](https://lh6.googleusercontent.com/YxeYmC_msEznxvSOsGVjKJdqIt5geXcpK65Xt62qVR6bBc5TXGSK8Mfsdh7p-Y7j69RDvSs5sf-bUx_M6Fjgoh9Zss5tFr2E7ALO6_qNbizQWR6WvddEFBI-1j81jkqEqXJx3hlxnqEXOW1gmA)
 
+图片来源：现场拍摄
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25094153/WhatsApp_Image_2020-10-24_at_04.33.05-1.jpeg)
+2021年6月27日，晴空万里，新中国联邦的蓝色旗帜再次高高飘扬在墨尔本，这已经是墨尔本战友们的第十次线下宣传活动。
 
+本次活动地点——弗林德斯街火车站（Flinders Street Station）是墨尔本城区人流量最大的交通枢纽之一，战友们的宣传活动吸引了过往人群无数的目光，路人们纷纷拿起手机拍摄，不经意间就为这次线下活动起到了推波助澜的作用。
 
+本次宣传活动，雅典娜设计组的战友精心制作了文贵先生620向全世界发出的重大警示的中英文宣传页，和中共病毒真相宣传册放在一起向墨尔本市民派发。
 
-2021年6月27日晚，路博艾
+从中共领馆到州立图书馆，再到联邦广场和弗林德斯街火车站，墨尔本战友们的足迹和呐喊吸引了越来越多本地人士的关注。正是在这样的坚持之下，爆料革命和新中国联邦被越来越多的澳大利亚人所了解和熟知，感恩参加线下活动的每一位战友！
 
-**1. 每日电讯报：澳大利亚特种部队将被重新分配任务，以应对中（共）国向太平洋地区的扩张。**
+（视频内容仅代表作者观点）
 
-a. 博博士：中共在澳大利亚的特务应该小心了。
-
-b. 路德：特种部队抓间谍不用走正常法律程序。
-
-c. 路德：根据国际法，间谍只要承认间谍身份就有豁免权。如果不承认间谍身份，那么就是敌对国家战斗人员，直接去监狱。
-
-d. 路德：今年年初，五角大楼提到了非常规战争和绿色贝雷帽。
-
-**2. 塞林上校：我们正在逼近有潜在危险性的在逃中共科学家拉纳瓦卡。**
-
-a. 路德：网易今天也提到塞林上校了。
-
-**3. 美国公布了 《2020年国防战略中的非常规战争附件摘要》。**
-
-a. 路德：手册说要把非常规战争制度化、长期化，把信息战作为重点。
-
-b. 博博士：中共打超限战，美国也可以玩非常规战争。美国主导的规则是保护弱者的。如果中共一定要玩“丛林法则”，美国实力强，也赢。
-
-c. 博博士：非常规战争应该建立在强大的常规战争能力之上的。
-
-笔记仅作参考，内容以路德社节目为准。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-0
++1

@@ -1,62 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月28日美国政要反共推特精选
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1355943/)
+## 【澳洲前线】坚持传播真相、凝聚战友情谊 ——墨尔本战友第十次线下活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1355978/)
 
-美参议员玛莎·布莱克本： 福奇无视停止资助与新冠病毒疫情爆发有关联的武汉实验室的命令。 他撒谎了，并且他保护了 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)—解雇他。 （转福克斯新闻：福奇博士在账面上披露了武汉实验室相关赠款的细节后“被抓包向国会撒谎”）
+#### 作者/编辑：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27220403/Picture1-80.jpg)
+图片来源：线下活动实景照片
 
+今年4月18日雅典娜农场组织了第一次墨尔本战友线下活动，6月27日已是第十次。期间中共国领事馆、州立图书馆、联邦广场等地，闪耀着新中国联邦蓝色的旗帜，回荡着以毒灭共的怒吼。有意义的事情值得回味，总结一下八个字：传播真相、凝聚战友。
 
+近期澳洲疫情风云突变，当墨尔本稍事平息，悉尼又被Delta变种病毒横扫，目前紧急封锁两周。整个社会气氛紧张，州际边境大多关闭。七哥一再警告，中共一定会在G7和西方投毒，为了传播中共病毒真相，墨尔本战友仍义无反顾。
 
-> Fauci defied orders that would have stopped funding Wuhan’s lab that is linked to COVID’s outbreak. 
-> 
-> He lied, and he protected China — fire him.[https://t.co/PkICmMZ23D](https://t.co/PkICmMZ23D)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 27, 2021](https://twitter.com/MarshaBlackburn/status/1409184842911203328?ref_src=twsrc%5Etfw)
+下午一点，战友们齐聚南十字星车站枢纽，在车站出口处天桥上活动。事先已在联邦警察处报备，而地区警察却认为不宜。没事，战友们搬着装备，一路来到了闹事街区斯旺顿大街圣保罗大教堂前。
 
+这里是商业街区和交通枢纽的交汇处，人流量很大。行色匆匆的路人给我们竖起大拇指，一些路人对着宣传册若有所思，还有路人拿着宣传册直接询问战友。以往本地人对我们赞许是因为痛恨共产主义，今天几位本地人特别关注中共病毒和台湾话题。
 
+图片一、接受宣传册的路人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27220443/Picture2-18.png)
+图片二、亡党战友与路人交流
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27220502/Picture3-9.png)
+**亡党战友**是一位雅典娜农场新会员，GTV上看到线下活动直播，便主动来现场参加活动，并加入农场。受邀参加雅典娜“非凡人生”直播节目，以亲身经历描述了中共国对民营企业家的迫害，启迪更多的战友加入爆料革命。他在本地有生意要忙，但仍然赶到了活动现场。今天他接待了多名路人咨询，我有幸在旁记录了一段：
 
-参议员卢比奥： 我的法案禁止进口使用 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#新疆](https://twitter.com/hashtag/%E6%96%B0%E7%96%86?src=hashtag_click) 奴隶劳动制造的产品，已经准备要进行整个参议院的投票了。但不要忘记，像苹果，耐克和可口可乐这样的大公司在此之前企图干掉这个法案，要不就是冲淡它。【转纽约时报，耐克和可乐游说反对新疆强制劳动法】
+路人问：你们说病毒是中共制造的，可有什么证据？
 
+亡党答：自然界的病毒爆发后，总是随着时间的推移感染力不断衰减，而新冠病毒非但感染力不衰减，而且不断病变、增强，这就是中共制造的生物武器，您可以看下宣传册。
 
+路人问：现在中共为什么宣称打台湾？
 
-> My bill to ban imports of products made from slave labor in Xinjiang, China is ready for a vote by the entire Senate 
-> 
-> But don’t forget major corporations like Apple, Nike & Coca-Cola have tried to kill or water it down before[https://t.co/N4qbgclewt](https://t.co/N4qbgclewt) [pic.twitter.com/pns3PRtDfs](https://t.co/pns3PRtDfs)
-> — Marco Rubio (@marcorubio) [June 27, 2021](https://twitter.com/marcorubio/status/1409151504611786757?ref_src=twsrc%5Etfw)
+亡党答：因为全世界都要去武汉调查中共病毒真相，打台湾是为了转移世界人民的注意力。
 
+新西兰农场**毛虫虫战友**线下活动从不缺席，她女儿也是小战友。现在他与雅典娜战友结下了深厚的情谊，线下线上都不落下。毛虫虫战友具有IT背景、知识面丰富，目前他与天已亮战友在GTV主持了多期“科技前沿”，观看人次稳步上升，也算是跨农场战友合作的典范。
 
+美东香草山农场伊丽莎白老师一直热情洋溢。作为七哥夸过的GTV达人，直播互动是她的强项，除了与战友互动，她也现场采访路人，礼仪到位、程序规范。现在热心的伊丽莎白老师正在为下次的活动出谋划策，她可是我们线下活动中一道别致的风景。
 
-参议员罗恩·约翰逊： 给主持人比尔·马赫 [@billmaher](https://twitter.com/billmaher) 竖大拇指，他戳破了油管的新冠审查。大科技公司原本可以通过促进医疗信息的自由交流拯救生命，相反地他们傲慢地压制了言论，并以生命为代价。（比尔·马赫打脸谷歌，油管限制新冠信息的行为：“伊维菌素（可以治疗新冠的药物）可不是注册的共和党人）
+雅典娜农场的空本难图战友，澳喜农场的桉树叶战友，都是第一次参加线下活动。活动结束后一起小憩，期间畅所欲言，如故友相见，大家都感恩爆料革命让我们汇聚。七哥说过，中共在灭亡前释放病毒祸害世界，区分中共与中国人非常重要，新中国联邦战友站出来揭示真相，既为了预警世界，也为了自身的安危。未来将激励更多的战友加入我们的队伍。
 
+雅典娜农场规模不大，墨尔本当地会员有限，但是我们组织的线下活动得到了兄弟农场的鼎立支援，澳喜农场、新西兰农场、香草山农场等战友踊跃加入，抛弃门户之见，我们都是背靠背的战友。只要中共不灭，墨尔本战友们坚持不懈。
 
+（以上文章仅代表作者个人观点，与Gnews平台无关）
 
-> Thumbs up to [@billmaher](https://twitter.com/billmaher?ref_src=twsrc%5Etfw) for calling out YouTube’s Covid censorship. Big Tech could have saved lives by facilitating the free exchange of medical information. Instead they arrogantly suppress it and cost lives. [https://t.co/jPJOfIddev](https://t.co/jPJOfIddev)
-> — Senator Ron Johnson (@SenRonJohnson) [June 27, 2021](https://twitter.com/SenRonJohnson/status/1409143164640894976?ref_src=twsrc%5Etfw)
-
-
-
-前白宫顾问纳瓦罗： 那是真的。让我数一数他是怎么弄的。福奇的掩盖比犯罪更甚。人民的死去就是因为福奇。（转推是他在节目上说人民死于福奇）
-
-
-
-> True that. Let me count the ways. Fauci coverup worse than crime
-> 
-> People Have Died Because Of Fauci [https://t.co/rmcACFO26S](https://t.co/rmcACFO26S)
-> — Peter Navarro (@RealPNavarro) [June 27, 2021](https://twitter.com/RealPNavarro/status/1409111239456923651?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本转推： 大投资还是老大哥：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在非洲的5G主导地位将让中共国可以监控非洲的互联网流量。【转自thedarkwire同名文章】
-
-
-
-> [#MUSTREAD](https://twitter.com/hashtag/MUSTREAD?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Big Investment Or Big Brother: How China’s 5G Dominance In Africa Will Enable Chinese Monitoring Of African Internet Traffic 
-> 
-> Via: Luke Argue [@DarkWireReports](https://twitter.com/DarkWireReports?ref_src=twsrc%5Etfw) [https://t.co/uoCPcBRfGC](https://t.co/uoCPcBRfGC)
-> — Sara A. Carter (@SaraCarterDC) [June 25, 2021](https://twitter.com/SaraCarterDC/status/1408536547054559233?ref_src=twsrc%5Etfw)
-
-
-
-+1
++4

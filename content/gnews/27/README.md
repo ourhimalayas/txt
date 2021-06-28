@@ -1,18 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢森堡首相确诊已感染新冠病毒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1355969/)
+## 美军空袭伊拉克叙利亚边境地区伊朗支持的民兵
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1356171/)
 
 2021年6月27日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27220019/0-40.png)俄罗斯卫星通讯社
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27232755/0-33.jpeg)
 
-**新闻摘要**：
+**新闻摘要：**
 
-6月27日，卢森堡首相贝泰尔进行二次新冠病毒检测，检测结果均为阳性。目前贝泰尔已经接受隔离，并出现了发烧和头疼的症状。据悉，5月初贝泰尔还接种了第一针阿斯利康（AstraZeneca）新冠疫苗。
+[环球网快讯]据今日俄罗斯（RT）消息，美国国防部当地时间27日称其空袭了伊拉克和叙利亚的边境地区，并声称目标设施被“伊朗支持的民兵”所利用并向美方人员发起“无人机袭击”。此外，声明还声称美国是在行使自卫权，符合国际法。
 
-[新闻来源](https://sputniknews.cn/covid-2019/202106281033964153/)
+[新闻来源](https://news.sina.com.cn/w/2021-06-28/doc-ikqciyzk2245199.shtml)
 
 * * *
 
@@ -25,4 +25,4 @@
 
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-+1
+0

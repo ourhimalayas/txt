@@ -1,29 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## TikTok窃取个人数据的隐患依然让人担忧
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1356036/)
+## 港财政司长：将测试数字人民币在香港使用
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1356128/)
 
-**编译：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27220455/20210627064810804.jpg)
-TikTok公司内部人士在 CNBC 的一份报告中透露，应用程序 TikTok 的中国母公司字节跳动可以秘密访问用户数据，他称两家公司之间的界限“非常模糊，几乎不存在”。
+2021年6月27日
 
-这份重磅报告证实了川普政府先前发布的禁止该应用程序的行政命令的真实原因。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27224558/0-31.jpeg)
 
-一名TikTok的招聘人员以及其他四名前雇员告诉 CNBC，他们对这款流行的社交媒体应用程序的中国母公司感到担忧，他们说该公司可以访问美国用户数据并积极参与洛杉矶公司的决策和产品发展。
+**新闻摘要：**
 
-其中一名匿名员工称，“TikTok 和字节跳动之间的界限非常模糊，几乎不存在。” “TikTok 与其母公司之间的密切联系远远超出了用户数据，”员工透露了字节跳动如何控制各种决策方向，以及在无论合同中的关键决策起了作用。
+香港财政司司长陈茂波表示，未来一年会为在香港发行批发及零售层面央行数码货币加强准备，包括研究港元数码货币在本地零售层面的应用，并就数字人民币在香港的使用进行技术测试。
 
-字节跳动甚至控制了 TikTok 算法的开发，这些算法已被用于从用户那里收集包括“面纹和声纹”在内的生物特征数据。TikTok 对字节跳动的依赖甚至延伸至其技术。前员工表示，TikTok 近 100% 的产品开发由中国字节跳动员工主导。
+据星岛日报报道，陈茂波今天表示，当局也将推动深化央行数码货币(CBDC)使用的研究，并继续与中国人民银行合作，就数字人民币在香港进行技术测试，提供跨境支付服务。
 
-《国家脉搏》披露了字节跳动高管要利用他的平台来“弘扬社会主义核心价值观”和对中国共产党的忠诚的言论。文贵先生也不止一次地提到字节跳动是一家执行中共任务的军民融合企业，现在被证实其对海外用户数据的窃取和获得生物识别标志是真实存在的行为。华为封杀在先，为何对类似TikTok公司的进一步措施迟迟没有到来，究竟是顾虑到美国华尔街资本，还是其高层之间有何不能言说的勾兑，但是，这些公司对美国国家安全着实存在不小的威胁。
+陈茂波说，从零售层面的支付平台，到央行层面的数码货币发展，整个经济的不同范畴和层面，因应科技变革带来的挑战与机遇，寻索新应用、新服务。
 
-（本文只代表作者观点，与Gnews平台无关。）
+[新闻来源](https://www.zaobao.com.sg/realtime/china/story20210627-1161459)
 
-**新闻来源：**
+* * *
 
-[TikTok Insiders Reveal Chinese Parent Company Can ‘Access U.S. User Data.’ (thenationalpulse.com)](https://thenationalpulse.com/news/tiktok-insiders-reveal-chinese-parent-company-can-access-u-s-user-data/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-***校对发布：文顾***
 
-+1
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+0
