@@ -1,64 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书删除了所有新冠病毒来自实验室的贴子
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1355428/)
+## 【有声读物】“缺芯”现象加剧，国内汽车行业供需难调
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1356274/)
 
-视频字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | 校对：clau | 简评/文字整理/编辑：胖丁| Page：我是球大哥
+配音：香草山录音组 蒙古鸿雁
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AQ7hrP91tbjC6/images/81db01e0-f46e-4533-9ddf-f09fffae9450.png?asset_id=912a902b-32e4-49c2-8d7a-47badf70fdf2&amp;img_etag=%222d74f3af6d46d8ea40b09f67162026fb%22&amp;size=1024)](https://spark.adobe.com/page/AQ7hrP91tbjC6/images/81db01e0-f46e-4533-9ddf-f09fffae9450.png?asset_id=912a902b-32e4-49c2-8d7a-47badf70fdf2&amp;img_etag=%222d74f3af6d46d8ea40b09f67162026fb%22&amp;size=1024)
-
-**简评：**
-
-已经四个月了，脸书删除了所有新冠病毒来自实验室的贴子，拜登政府在对此进行调查。谷歌没有关于“冠状病毒实验室泄漏”的“自动填充搜索”。谷歌狡辩称，想把人们引导到权威机构的资讯上，例如疾控中心和世卫组织。问题是，世卫组织非常腐败，疾控中心有很多错误。更离谱的是，油管居然下架了关于一种药“伊维菌素”的一个频道。
-
-GTV视频链接：[Brent Baker 0626: 已经有4个月了，脸书删除所有新冠病毒来自实验室的帖子](https://gtv.org/video/id=60d84d432f9a56108e0d63b1)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**视频字幕：**
-
-好吧，就此我来问问你有关媒体方面的问题，因为我发现这个太离谱了。
-
-已经有4个月了，脸书删除所有新冠病毒来自实验室的帖子。
-
-太明显了，现在拜登政府也在对此进行调查。
-
-一位华尔街日报的记者询问了谷歌健康部门的负责人，注意到，对于“冠状病毒实验室泄漏”他们没有像对待其他问题那样做“自动填充搜索”.
-
-谷歌的那个人说，“我们要确保搜索不会把人们引向我们认为的非权威资讯”。
-
-嗨，谷歌和脸书，你们错了，我们不知道（是否该相信“权威”资讯）。
-
-我们之所以要你，是因为我们考证这些信息。他还说：我们想保证用户首先看到的资讯是来自疾控中心和世卫组织的。
-
-这正是我们在考证的。
-
-世卫组织在很多方面非常腐败，疾控中心在很多事情上都是错的。
-
-这太离谱了，我们居然不能查看这些资讯。
-
-现在他们竟然对伊维菌素也这么做。
-
-他们下架了Brett Weinstein（进化生物学家）很受关注的油管频道。
-
-脸书不应该告诉我是否可以收看伊维菌素。
-
-“伊维菌素”不是注册的共和党人。（讽刺油管支持民主党）
-
-它是一种药。
-
-我不知道这种药管不管用，很多医生也不知道。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/AQ7hrP91tbjC6/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/AQ7hrP91tbjC6/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-+3
+
+新浪网6月26日转载中国经营报消息，由于汽车芯片尤其是微控制器芯片（MCU）产量下滑，国内汽车行业产量骤降。
+
+2020年初因CCP病毒疫情影响，国内汽车产量骤降。随着汽车生产企业复工复产规模扩大，6月份汽车产能达到232.5万辆，恢复至2019年12月份的87%水准。但随着全球半导体芯片产量下降，尤其是MCU芯片严重缺货，国内汽车生产进入下坡道。自2020年12月至2021年2月份产量直线下降，2月份汽车产量仅为150.26万辆（其中传统汽车137.91万辆），环比降幅超过三成。
+
+
+
+**文字版原文：[【鹰眼墙国】“缺芯”现象加剧，国内汽车行业供需难调](https://gnews.org/zh-hans/1353130/)**
+
+作者：纽约香草山写作组  鹰(文言)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
