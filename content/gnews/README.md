@@ -12,23 +12,23 @@
 
 ---
 
-### [中共国顶级核专家在核电战事故发生后跳楼身亡](/content/gnews/1/README.md)
+### [【灭共头条】中共建党百年大庆 同胞们你们要庆祝什么](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共国顶级核专家在核电战事故发生后跳楼身亡](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国以疫苗要挟乌克兰撤回对新疆人权审查的支持](/content/gnews/2/README.md)
+### [中共国以疫苗要挟乌克兰撤回对新疆人权审查的支持](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲天空新闻披露“中共生化武器重大文件”](/content/gnews/3/README.md)
- ` 闪电侠`
+### [【圣城传声筒】香港已是“谁大 谁恶 谁正确！”](/content/gnews/4/README.md)
+ ` MOShongkong`
 
-### [【香港快讯】 6月28日 港各政论节目媒体 因国安恶法肆虐 集体关闭](/content/gnews/4/README.md)
- ` 喜馬拉雅-粵語組`
+### [日本防长阐述中共威胁](/content/gnews/5/README.md)
+ ` 索尼克`
 
-### [莫斯科的餐厅只对QR码持有者开放](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【热点播报】0626墨博士解读新闻](/content/gnews/6/README.md)
- ` 纽约香草山MOS03`
+### [【圣城传声筒】《港版国安法》下，香港媒体人人自危](/content/gnews/6/README.md)
+ ` MOShongkong`
 
 ### [【NewsExpress】塔克在节目中指出谷歌在线审查实验室起源论](/content/gnews/7/README.md)
  ` 闪电侠`
@@ -51,52 +51,52 @@
 ### [那位全身心投入红歌的老者是中共制造的史无前例的浩劫的见证](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【每日快讯】06/27/2021：共产党百年的假骗偷是自取灭亡的根本原因](/content/gnews/14/README.md)
+### [【字幕】6/28/2021文贵盖特：在香港和北京发生的大爆炸，死了很多人，为什么共产党要掩盖这些真相呢？](/content/gnews/14/README.md)
+ ` 纽约香草山MOS01`
+
+### [【每日快讯】06/27/2021：共产党百年的假骗偷是自取灭亡的根本原因](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [【澳洲热点】视频：澳议员议会演讲反对疫苗护照](/content/gnews/15/README.md)
+### [【澳洲热点】视频：澳议员议会演讲反对疫苗护照](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】彼得·纳瓦罗：听信福奇会让成百上千的美国人命丧黄泉](/content/gnews/16/README.md)
+### [【粤语配音】彼得·纳瓦罗：听信福奇会让成百上千的美国人命丧黄泉](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【粤语配音】纳瓦罗: 福奇背着川普政府重新资助武毒所功能获得实验](/content/gnews/17/README.md)
+### [【粤语配音】纳瓦罗: 福奇背着川普政府重新资助武毒所功能获得实验](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [川普：我认为儿童不应该接种疫苗](/content/gnews/18/README.md)
+### [川普：我认为儿童不应该接种疫苗](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [川普：中共国欠世界和美国数万亿美元，他们必须偿还](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共将医疗保健和应用程序武器化以实施对个人的监控](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【灭共头条】意大利对中共国战略转变，价值观高于经济利益](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [美军空袭伊朗支持的民兵组织](/content/gnews/22/README.md)
+### [日本防长阐述中共威胁](/content/gnews/20/README.md)
  ` 索尼克`
 
-### [《费加罗报》：科学家要求全面调查中共病毒来源](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [《法兰西晚报》：中共国的人脸识系统来到了欧盟的大门口](/content/gnews/21/README.md)
+ ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [【热点播报】美国在伊拉克和叙利亚的空袭针对伊朗支持的民兵组织](/content/gnews/24/README.md)
- ` 纽约香草山MOS02`
+### [羅馬梵蒂岡的貴賓布林肯](/content/gnews/22/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【NewsExpress】印度在与中共国有争议的边界再部署5万名士兵](/content/gnews/25/README.md)
+### [罗马梵蒂冈的贵宾布林肯](/content/gnews/23/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [乌克兰和北约在黑海举行军事演习](/content/gnews/24/README.md)
  ` 索尼克`
 
-### [【热点播报】0626墨博士解读新闻](/content/gnews/26/README.md)
+### [香港将禁止来自英国的客运航班](/content/gnews/25/README.md)
+ ` 索尼克`
+
+### [【6.28】七哥盖特&#8211;北京香港意外不断喜币上市利好难停](/content/gnews/26/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [DC农场2021628 每日热点资讯](/content/gnews/27/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【热点播报】0626墨博士解读新闻](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [中印冲突又紧张？印调5万军队到边境 恐采“进攻性防御”攻击中共国领土](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【热点播报】伦敦南部铁路拱门发生大火](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
-
-### [中国封杀油菜籽进口 加拿大向WTO申诉](/content/gnews/29/README.md)
+### [中印冲突又紧张？印调5万军队到边境 恐采“进攻性防御”攻击中共国领土](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【澳洲热点】应对中共步步近逼,澳洲重编特种部队](/content/gnews/30/README.md)
@@ -123,27 +123,27 @@
 ### [6/26/2021 国内经济状况周报：美禁止部分新疆太阳能产品，小麦价格近期快速上涨](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [【香港快讯】 6月28日 港各政论节目媒体 因国安恶法肆虐 集体关闭](/content/gnews/38/README.md)
- ` 喜馬拉雅-粵語組`
+### [【圣城传声筒】香港已是“谁大 谁恶 谁正确！”](/content/gnews/38/README.md)
+ ` MOShongkong`
 
-### [莫斯科的餐厅只对QR码持有者开放](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【圣城传声筒】《港版国安法》下，香港媒体人人自危](/content/gnews/39/README.md)
+ ` MOShongkong`
 
-### [陈中是谁，可以代表德州州长官方办公室？](/content/gnews/40/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [喜马拉雅光影传镜：头顶上的“神明”无人机战争](/content/gnews/40/README.md)
+ ` 喜马拉雅光影传镜`
 
-### [【鹰眼墙国】楼市“加息”难遏房价上涨，首套房利率提高徒增购房成本](/content/gnews/41/README.md)
- ` 纽约香草山MOS02`
+### [《蓝枫法律》第十三期： 法律你我他·婚姻法-保护每一个人](/content/gnews/41/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【战友心声】电影《何以为家》所反映的社会现状](/content/gnews/42/README.md)
- ` 纽约香草山MOS03`
+### [男子将蜥蜴唾液送到23andme进行DNA测试，揭露该公司对人类祖先的声明完全是欺诈行为](/content/gnews/42/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [【鹰眼墙国】供不应求，养老护理员缺口难填](/content/gnews/43/README.md)
- ` 纽约香草山MOS02`
+### [【时评】习近平和普京视频会晤后面的那些事](/content/gnews/43/README.md)
+ ` 军迷wilson`
 
-### [【周末聊农村】艰难的上访路（八）](/content/gnews/44/README.md)
- ` 波士顿五月花农场`
+### [反人权的中共为迎百年发布了荒唐的人权白皮书](/content/gnews/44/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【鹰眼墙国】实体书店愈见颓势，疫情之下夹处逢生](/content/gnews/45/README.md)
- ` 纽约香草山MOS02`
+### [法国《世界报》：刚果和中共国同意重组刚果债务](/content/gnews/45/README.md)
+ ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 

@@ -1,55 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】0626墨博士解读新闻
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1357831/)
+## 【圣城传声筒】《港版国安法》下，香港媒体人人自危
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1358166/)
 
-作者：香草山健身部 周一
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
+作者：纽约香草山香港部 Jenson
 
 
 
-1. 中共新版人权白皮书的雾里看花
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28130640/%E5%9B%BE%E7%89%877-9.png)
-
-中共国的人权白皮书实质上是一种独裁白皮书，其核心价值是把中共的领导和控制权凌驾于人权之上。这是对人权最讽刺的一幕。独裁者忘尊自大，竟将独裁称为人权与自由。人权之所以称为人权，是以人为本，以人性和人的天然属性为基础。而中共的人权却在人之上加入了一个最大的亵渎，中共任何美其名曰加在并高于人权人之上的，其实都是对人权的侮辱，这也使中共成为人类的公敌。所以中共的所谓的人权白皮书其实就是共权白皮书。
-
-那么为什么中共在全世界对它进行人权谴责和制裁之时放出这个白皮书呢？说明了中共对世界各国的指责与打击越来越害怕。当证据越来越充分，甚至国内的民众和党内追随者都有开始要醒来的迹象时，中共开始寝食难安。当一个国家的民众、军人都开始觉醒的时候那么这个政权灭亡就指日可待。
-
-2. **中共扼杀香港言论自由来警告世界**
-
-香港作为中共向世界展示其中央集权的前沿，那么打击和扼杀其言论自由就是给所有媒体和西方世界一个警告。在中共的集权统治下，任何媒体的发声都是随时可以被消灭和抹杀的，中共的独裁红魔可以掌控一切。但是中共表现出对人权呼声的不安和惧怕，欧美国家已经看得很清楚，这说明了人权问题上欧美的政策精准狠。
-
-3. **新疆能源产业被锁定 欧美人权制裁战略起作用**
-
-美国对中共五个实体的具体制裁，就是对中共反人权的进一步打击。随着情报和信息的不断明朗，未来中共在人权方面，一定会给西方更多确实的证据，帮助西方扩大打击范围。这也说明了欧美在中共在人权制裁战略和战术上，已经取得了一定的成功。西方的打击让中共的经济与企业和科技渗透以及其产业链的优势都开始削弱，因为人权的道德制高点已经完全站在欧美一方。
-
-那么中共现在的回击和反驳就会处于前所未有的被动之下，加上中共现在高层的拙劣表现，这个劣势会愈加明显。而且美国的这种制裁和打击会给世界其他国家一个明显的先例和模版。
-
-相信有更多的民主国家将会跟进，加速与中共的经济脱钩，并对中共的产业链进行进一步的打击。美国现在已经开启了全面对抗中共的政策，制约中共，甚至打击中共的经济文化各个方面。而且美国两党已经默许了对中共政策的全面推进，完全不给中共勾兑和通路的机会。
-
-4. **美中外长并未计划在G20会面**
-
-中美高层间的接触基本上全面禁止，也是告诉全世界，美国开启的脱共与反共的进程必将誓不逆转。现在这种表态在病毒溯源全面推进之前，必让中共如坐针毡，甚至忙中出错。那么美国就可以利用新的空当和证据对中共出手，中共未来必将出现巨大的问题，可见灭共之势已经势不可挡。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
 
+
+网媒《立场新闻》发出声明，将会把今年5月份及之前刊出的文章全部下架，并停止接受赞助。其母公司的六名董事包括馀家辉、周达智、吴霭仪、何韵诗、方敏生及练乙铮均会辞去董事职务，但他们表明会继续运作该网站。（详见相关链接）
+
+![file]()![file](https://chinadigitaltimes.net/chinese/files/2021/06/image-1624874938382.png)图源网路
+
+点评：随着“苹果日报”被迫停刊，本港另一大独立媒体——立场新闻——在所谓“国安法”的淫威下可谓壮士断腕，一连祭出多道措施，包括暂停收取赞助。虽然立场新闻尚有多个月的财政储备，但在目前香港的政治环境下，任何私人和公司的资产可以被港共政府随意冻结。至此，香港延续了一百多年的普通法体系犹如中共的宪法一样，已经名存实亡了。而今，香港一切都以“国安法”为尊，而“国安法”就是中共意志的延续。为此，“立场新闻”当下只有两条道路可走：一是像“大公报”或“文汇报”一样，变身为中共喉舌；二是像“苹果日报”一样被迫关闭，资产冻结。但我相信，“立场新闻”绝不会选择第一条道路。以“立场新闻”一贯的坚持和操守，它一定会坚持到最后一刻，宁可站着死，绝不跪着生。这次“立场新闻”把中共的极权残暴又一次展现给全世界和台湾民众，以香港媒体和香港人的无畏牺牲唤醒尚未觉醒的民众。
+
+参考阅读：
+
+[《立场新闻》下架今年5月前刊出文章 停收赞助、母公司六名董事辞职](https://www.inmediahk.net/node/%E5%AA%92%E9%AB%94/%E3%80%8A%E7%AB%8B%E5%A0%B4%E6%96%B0%E8%81%9E%E3%80%8B%E4%B8%8B%E6%9E%B6%E4%BB%8A%E5%B9%B45%E6%9C%88%E5%89%8D%E5%88%8A%E5%87%BA%E6%96%87%E7%AB%A0-%E5%81%9C%E6%94%B6%E8%B4%8A%E5%8A%A9%E3%80%81%E6%AF%8D%E5%85%AC%E5%8F%B8%E5%85%AD%E5%90%8D%E8%91%A3%E4%BA%8B%E8%BE%AD%E8%81%B7?__cf_chl_captcha_tk__=00aa34348582c9d6d2a279da49490ba7f975af4f-1624875685-0-AfS_tOoQLEVfrR6t7nbEBGSZHKQ8OIqRnJ5jLA3vmeuKs6hHDc9Qp83BRPWQOMID4T00CkfgBEC66BHzh5Ge9YX7ulFLCR8ZtqdfCXwHGYfXI2D5psHYc2GCVns7WmAHMEdkgE6xjam2DeoystjRri2NX8YEoVRw59efXuBoBT_JGpt_2sPVTh6dbYZ7WAWSI7EhHejwI38N7HrDYq0ZiyW7ewCmGn77cLZPpfVdWO5-VLKU-Gx85McbY92K7kSqXIk5jV34I2B_6XXOgOZ9d7vJqtGURf74K5iv4cPR7M0I0sNNyuGs0A5ZwvsAvmf9-q3YGie2U0AOaDCCookwGCaBuS8-8qv9IaSprtvrTymh5Zk4U0RWY_7JsKLfYaulAlESvooZHqDaWW0CqMaZvUn2sXcPJA5wR6OpXhYBpIgigwbbxAL-VjTHb3Kl9RT0N7mf-YAYA9y0VUFBmY5Up8ePhwCd7AVEqNpuetbyPSCfdz-9_rSRvAKWm2i-xB-u5JLB80J6383C05logoXbdkYeg0oWSkr1IGB2aZB2MqG5xuWHeRdtjuygx0tYxd7zpeWop_tMQb7Dnw1iT2OsWGXJmCYjWtIloMNrpj1YTSg-14b0iV0BMQjHU3Q2WoZQ5MY9AEJqBFwXltep4dl39W40rL1_SxUwa7_2Yqb181mVJrThfFjwZRn0cAvUKVbf3Vq2oZ-ulGHsdMVk-XJtTpk2_IQ8mu2l_4UX5T4pywcYnhV-ydbzv-Zpgfqf0lPVejDPzQOl9wXt-y75jgnrMV-17w6bD5u5A_yRGeD2xF-s9doE5qCgFcBONkGL6CFihFuy0_yq95OMO6IHPVDyVpJPDcMKmD7vEOLKBXOS_CK6tJCZklIwbOfBb3Q_cQR_NlvBcCW5pG4wKIbtSxbw9q1-v3vymYeRxnzB1R8-avYZWN6_1kDqsRwewNrNBhVw9Av7ZF6UL3Fmtlb4iI4THhM4s8bzAFvsVWqS4jT-TvwH)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
+
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 0

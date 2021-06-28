@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国封杀油菜籽进口 加拿大向WTO申诉
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1357458/)
+## 中印冲突又紧张？印调5万军队到边境 恐采“进攻性防御”攻击中共国领土
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1357623/)
 
 2021年6月28日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28113306/aa612383gy1g1qe6a76rtj20hp09ytne.jpg)
+![自2020年開始，中國、印度雙方邊境衝突不斷。   圖：達志影像／美聯社（資料照片）]( "自2020年開始，中國、印度雙方邊境衝突不斷。   圖：達志影像／美聯社（資料照片）")![自2020年開始，中國、印度雙方邊境衝突不斷。   圖：達志影像／美聯社（資料照片）](https://s.newtalk.tw/album/news/424/5eead456ab9e7.jpg "自2020年開始，中國、印度雙方邊境衝突不斷。   圖：達志影像／美聯社（資料照片）")自2020年开始，中共国、印度双方边境冲突不断。图：达志影像／美联社（资料照片）
 
-2018年在美国司法部的引渡要求下，华为财务长孟晚舟在温哥华转机时被捕。作为报复，中共国政府随后逮捕了两位加拿大公民。今年三月，中共国以检疫出害虫为由，禁止所有的加拿大油菜籽进口。加拿大六日正式向WTO提起申诉，寻求三十天内和中共国展开双边咨商。
+自2020年开始，中共国、印度边境冲突不断。据《彭博社》28日报导，印度已将至少5万名额外军队，重新部署到与中共国接壤的边境。至此，印度大约有20万名士兵集结在边境，比去年增加了40%以上，对世界第二大经济体中共国采取“进攻性”军事姿态。
 
-**【[新闻来源](https://ec.ltn.com.tw/article/paper/1316367)】**
+**【[新闻来源](https://newtalk.tw/news/view/2021-06-28/595562)】**
 
 * * *
 
@@ -21,4 +21,4 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-+1
+0

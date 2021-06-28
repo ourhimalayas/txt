@@ -1,32 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 莫斯科的餐厅只对QR码持有者开放
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1357787/)
+## 【圣城传声筒】《港版国安法》下，香港媒体人人自危
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1358166/)
 
-- 作者：约翰.法雷尔
+作者：纽约香草山香港部 Jenson
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年6月28日电/西喜社**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28130333/6200881.png)图片来源：tass.ru
 
-据塔斯社6月28日莫斯科报道，从即日起莫斯科的餐厅开始实行无病毒运营规定，且该规定为永久性的规定。根据首都市长的指令，现在餐馆和咖啡馆只对那些接种过疫苗，半年内有病史或者三天内核酸检测且呈阴性的人开放。
 
-“该系统非常简单：店主在门户网站i.moscow上提出无病毒运营模式申请，之后就会生成QR码的专门访客通道，用以核实疫苗接种，半年内病史或者在有效实验室做的核酸测试等信息。满足这些条件后，餐饮机构可以日夜工作，桌子彼此之间距离要超过1.5米，这些场所的访客可以不戴口罩和手套在大厅里走动”莫斯科市长和政府办公室第一副主任阿列克谢.涅米留科向塔斯社解释道。服务员，礼仪小姐，调酒师和其他与访客一起在大厅里的员工将继续戴手套和口罩。而且员工检查QR码只需要几秒钟。
+网媒《立场新闻》发出声明，将会把今年5月份及之前刊出的文章全部下架，并停止接受赞助。其母公司的六名董事包括馀家辉、周达智、吴霭仪、何韵诗、方敏生及练乙铮均会辞去董事职务，但他们表明会继续运作该网站。（详见相关链接）
 
-涅米留科补充说，美食广场，酒吧，卡拉ok，夜总会和餐厅如果不能保证访客凭电子或者打印的QR码来访，那么将从6月28起只允许提供外卖和送货服务。同时“无病毒”模式的餐饮机构里食品和饮料的外卖服务不需要出示QR码，顾客可以在门口拿走自己的外卖。
+![file]()![file](https://chinadigitaltimes.net/chinese/files/2021/06/image-1624874938382.png)图源网路
 
-此外，莫斯科的企业和教育机构的食堂，以及首都酒店和旅馆的餐馆，咖啡馆和酒吧，如果不对外开放的话，可以不用切换到“无病毒”模式。
+点评：随着“苹果日报”被迫停刊，本港另一大独立媒体——立场新闻——在所谓“国安法”的淫威下可谓壮士断腕，一连祭出多道措施，包括暂停收取赞助。虽然立场新闻尚有多个月的财政储备，但在目前香港的政治环境下，任何私人和公司的资产可以被港共政府随意冻结。至此，香港延续了一百多年的普通法体系犹如中共的宪法一样，已经名存实亡了。而今，香港一切都以“国安法”为尊，而“国安法”就是中共意志的延续。为此，“立场新闻”当下只有两条道路可走：一是像“大公报”或“文汇报”一样，变身为中共喉舌；二是像“苹果日报”一样被迫关闭，资产冻结。但我相信，“立场新闻”绝不会选择第一条道路。以“立场新闻”一贯的坚持和操守，它一定会坚持到最后一刻，宁可站着死，绝不跪着生。这次“立场新闻”把中共的极权残暴又一次展现给全世界和台湾民众，以香港媒体和香港人的无畏牺牲唤醒尚未觉醒的民众。
 
-这个QR码就相当于中国大陆的绿码通行证，在俄罗斯刚开始可能仅限于餐饮业，但笔者认为日后绝不仅限于此。疫情的日益严重也使得俄罗斯当局的相关政策愈加收紧。当天塔斯社另一篇报道，鉴于严峻的疫情形势，有23个地区开始实行对居民或者是特定人群的疫苗强制接种，俄卫生部长米哈伊尔.慕拉什科表示目前俄罗斯接种疫苗的人数已达2300万。
+参考阅读：
 
-**新闻来源：**[tass.ru](https://tass.ru/obschestvo/11764909)
+[《立场新闻》下架今年5月前刊出文章 停收赞助、母公司六名董事辞职](https://www.inmediahk.net/node/%E5%AA%92%E9%AB%94/%E3%80%8A%E7%AB%8B%E5%A0%B4%E6%96%B0%E8%81%9E%E3%80%8B%E4%B8%8B%E6%9E%B6%E4%BB%8A%E5%B9%B45%E6%9C%88%E5%89%8D%E5%88%8A%E5%87%BA%E6%96%87%E7%AB%A0-%E5%81%9C%E6%94%B6%E8%B4%8A%E5%8A%A9%E3%80%81%E6%AF%8D%E5%85%AC%E5%8F%B8%E5%85%AD%E5%90%8D%E8%91%A3%E4%BA%8B%E8%BE%AD%E8%81%B7?__cf_chl_captcha_tk__=00aa34348582c9d6d2a279da49490ba7f975af4f-1624875685-0-AfS_tOoQLEVfrR6t7nbEBGSZHKQ8OIqRnJ5jLA3vmeuKs6hHDc9Qp83BRPWQOMID4T00CkfgBEC66BHzh5Ge9YX7ulFLCR8ZtqdfCXwHGYfXI2D5psHYc2GCVns7WmAHMEdkgE6xjam2DeoystjRri2NX8YEoVRw59efXuBoBT_JGpt_2sPVTh6dbYZ7WAWSI7EhHejwI38N7HrDYq0ZiyW7ewCmGn77cLZPpfVdWO5-VLKU-Gx85McbY92K7kSqXIk5jV34I2B_6XXOgOZ9d7vJqtGURf74K5iv4cPR7M0I0sNNyuGs0A5ZwvsAvmf9-q3YGie2U0AOaDCCookwGCaBuS8-8qv9IaSprtvrTymh5Zk4U0RWY_7JsKLfYaulAlESvooZHqDaWW0CqMaZvUn2sXcPJA5wR6OpXhYBpIgigwbbxAL-VjTHb3Kl9RT0N7mf-YAYA9y0VUFBmY5Up8ePhwCd7AVEqNpuetbyPSCfdz-9_rSRvAKWm2i-xB-u5JLB80J6383C05logoXbdkYeg0oWSkr1IGB2aZB2MqG5xuWHeRdtjuygx0tYxd7zpeWop_tMQb7Dnw1iT2OsWGXJmCYjWtIloMNrpj1YTSg-14b0iV0BMQjHU3Q2WoZQ5MY9AEJqBFwXltep4dl39W40rL1_SxUwa7_2Yqb181mVJrThfFjwZRn0cAvUKVbf3Vq2oZ-ulGHsdMVk-XJtTpk2_IQ8mu2l_4UX5T4pywcYnhV-ydbzv-Zpgfqf0lPVejDPzQOl9wXt-y75jgnrMV-17w6bD5u5A_yRGeD2xF-s9doE5qCgFcBONkGL6CFihFuy0_yq95OMO6IHPVDyVpJPDcMKmD7vEOLKBXOS_CK6tJCZklIwbOfBb3Q_cQR_NlvBcCW5pG4wKIbtSxbw9q1-v3vymYeRxnzB1R8-avYZWN6_1kDqsRwewNrNBhVw9Av7ZF6UL3Fmtlb4iI4THhM4s8bzAFvsVWqS4jT-TvwH)
 
-审核：蚂蚁兄弟；校对：阿伯塔； 发稿：信心的选择
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 0

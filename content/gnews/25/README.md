@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】印度在与中共国有争议的边界再部署5万名士兵
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1357219/)
+## 香港将禁止来自英国的客运航班
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1357939/)
 
-#### 文章撰写:【默凡】
+翻译:神奇四侠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28150454/1000-1-1.jpeg)
+美联社6月28日消息：香港政府表示，因为中共病毒德尔塔变体的传播，将在7月1日禁止所有从英国来的旅客。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28095959/3sfsdag34g47-imagedfad-m-12_1613752849877.jpg)
+英国95%以上的中共病毒（COVID-19）病例属于德尔塔变体，该变体首次在印度被发现。最近几周，由于英国当局放宽了冠状病毒限制，允许室内集会和包括餐馆、电影院和健身房在内的企业重新开业，因此病例激增。
 
-Mailonline新闻网6月28日报道：印度在其与中共国有争议的喜马拉雅边境上又新增部署了50,000名士兵。
+几个月来，香港对来自大多数国家的入境者实施了为期21天的检疫，并实施了严格的社会隔离规定，周一报告了3例中共病毒新病例。自中共病毒大流行开始以来，香港共确认了11,921个病例。
 
-中印两国在2020年爆发过一场边境冲突，这是自1962年中印战争以来最血腥的事件，造成20多名印度士兵死亡，但中共国至今未公布具体伤亡人数。
+这项禁令是在英国和中共在香港问题上的紧张关系加剧的情况下出台的，英国批评中共对香港实施国家安全法并加强对其媒体的控制，称中共正在破坏该城市的自治权。违反了中英联合声明。
 
-为应对中共威胁，印度在过去三个月中向边境派遣了士兵和战斗机，总兵力达到20万人，相比去年增加了40%。而中共国则在跑道、战斗机防弹掩体、榴弹炮和前哨基地加强了基础设施建设，甚至还向前线运送远程大炮、坦克、防空导弹和战斗机中队等武器装备。
+新闻来源：[美联社](https://apnews.com/article/hong-kong-uk-flight-ban-coronavirus-70af6fb3c74ca4f8ac34be31318b9817)
 
-上周，印度国防部长拉杰纳特·辛格（Rajnath Singh)）自今年2月以来首次视察了该地区。除了拉达克，印度还派遣更多人员前往与中共国接壤的其他边境地区，包括位于尼泊尔和不丹之间的青藏高原南部。
+校对发稿：Ada （马德里）
 
-参考文章：[India deploys another 50,000 troops to its disputed border with China – as tensions between the nuclear-armed sides remain high after deadly mountain battle](https://www.dailymail.co.uk/news/article-9732307/India-deploys-50-000-troops-disputed-border-China.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
-
-0
++1

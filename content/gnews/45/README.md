@@ -1,57 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】实体书店愈见颓势，疫情之下夹处逢生
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1357710/)
+## 法国《世界报》：刚果和中共国同意重组刚果债务
+` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1358029/)
 
-香草山写作组  鹰(文言)
+#### 翻译：Ikonic 校对：GokuAbuela
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28161812/cover-7.jpg)China’s President Xi Jinping (R) and Congo President Denis Sassou Nguesso listen to their national anthems during a welcoming ceremony inside the Great Hall of the People in Beijing on September 5, 2018, a day after the conclusion of the Forum On China-Africa Cooperation. (Photo by Lintao Zhang / POOL / AFP)
+[原文链接](https://www.lemonde.fr/afrique/article/2021/06/22/le-congo-et-la-chine-conviennent-de-restructurer-la-dette-congolaise_6085162_3212.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1624356741-2)
+
+刊发日： 2021/6/22
+
+来自布拉柴维尔的官方消息称，刚果总统德尼·萨苏·恩格索和中国国家主席习近平在6月21日星期一的电话会晤中同意重组刚果对北京欠下的巨额债务，这使得这个中非国家无法恢复与国际货币基金组织（IMF）的谈判。
+
+刚果财政部长Rigobert Roger Andely告诉记者：*“*债务问题是由两位总统提出的，萨苏·恩格索总统向他的同僚提出了这个问题……第二次债务重组的提议*”。“*习近平主席批准了[该请求]”，他补充道。
+
+Andely先生解释说：“这次重组是为了让刚果有更多的资源来满足国内的需求，清楚与国际货币基金组织的障碍，保持良好关系”。他补充道：中共国和刚果的专家“有能力建立债务重组的模式和条件”*。*
+
+北京方面，中共国新华社也提到了两位领导人之间的电话会晤，但没有提到刚果债务的重组。中国新华社报道，习近平明确表示中国将鼓励中资公司在刚果进行更多投资，尤其是在卫生和农业领域的投资。
+
+**刚果债务占比国民生产总值的****110%**
+
+2019年，中共国已经对刚果的债务进行了重组，从而刚果能够与国际货币基金组织达成一项以扩展信贷机制为重点的计划。周一在国民议会上刚果总理阿纳托尔·科利内特·马科索说国际货币基金组织评估的刚果债务占国内生产总值（GDP）的110%，他们认为是 “不可负担的”，非洲中部国家的标准是GDP的70%。
+
+国际货币基金组织已经暂停了对刚果的帮助。由于油价下跌和中共病毒的传播，该国受到经济危机和卫生危机的双重打击。
+
+刚果政府称，刚果欠中共国13,000亿非洲法郎（20亿欧元）。总理马科索估计刚果的总体债务“在2020年12月31日为止达到60,165亿非洲法郎（超过100亿欧元），占国内生产总值的98%”。
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25100350/WhatsApp_Image_2020-10-24_at_04.33.05-2.jpeg)
-
-
-
-环球网6月28日转载光明日报消息，北京新华书店日前开办第一家“主题书店”。近两年大城市书店也在重现复兴浪潮。
-
-2010年京东图书上线，网上书店领域进入当当、卓越、京东三足角逐阶段，而后随着图书电商和数字阅读普及，实体书店数量逐年递减。2005至2013年国有书店减少1944家，民营书店减少3801家。中共财政部和广电总局于2013年出台《关于开展实施实体书店扶持试点工作的通知》，政策的扶持为实体书店带来了复苏，新的连锁书店品牌（如西西弗书店、言几又、方所等）迅速在国内铺开，2017年实体书店迎来2.33%的增长。相比网上书店，实体书店选书购书效率低下，使得实体书店的发展出现瓶颈。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28114601/Screen-Shot-2021-06-28-at-11.24.41-AM.png)
-《2019年中国实体书店产业报告》显示，2019年国内书店超7万家（新开书店超4000家，倒闭约500家）；2020年初CCP病毒疫情导致客流大幅减少，四成书店上半年收入降幅超50%，根据《2020——2021中国实体书店产业报告》，2020年新开书店4061家与2019年相差不大，而关闭的书店数量约1562家，是2019年的3倍以上。2020年疫情导致图书零售市场码洋规模首次出现负增长，同比降幅5.08%，其中实体书店的零售码洋规模占比也从2019年的30%降至20%，码洋规模为203.6亿元（同比下降33.8%）。
-
-一方面是CCP病毒疫情难解，规模较小的书店破产颇多，连锁品牌书店由于抗压能力较强仍可依靠融资和打造主题书店以增加文化价值来吸引客流，但书店升级随之带来的是运营成本的提高；另一方面则是由于生活节奏加快，或者说中共对底层民众剩余价值的榨取力度加大，人们休息时间越来越少，再有各种休闲游戏市场壮大以及抖音、西瓜等短视频平台的普及，国人更难有静心看书的时间。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28114523/Screen-Shot-2021-06-28-at-11.24.45-AM.png)
-再者，由于国际施压以及中共内部党派斗争都造成文革2.0现象的加剧，中共对民众思想管控的力度加强。无论是篡改后的14年抗战史、“半条被子”还是“党国一家”等思想流毒越来越植根于课程教材和书籍。这些书籍在洗脑民众的同时，也在消费书籍作为文化传承重要载体的“信誉”。在文革风盛行、各地民众抗议事件频发，民众对中共政府的质疑和不满加剧，用于宣传中共赤化思想的书籍即便数量再庞大也难以热销。综上，中共的剥削力度加大迫使民众为生计奔波，而极度的“思想统一”又终会造成个人意志的抗拒，民众的选书购书意愿减弱。而实体书店为了发展只能进入融资、扩张、再融资、扩张的循环。先是文化底蕴被中共阉割，再有运营成本加剧堆高书籍售价，实体书店再难复兴。
-
-新闻来源：
-
-城市需要众多小书店https://china.huanqiu.com/article/43iaosNEq1N
-
-实体书店数量逆势新增，经营困境从此好转？https://www.qianzhan.com/analyst/detail/329/210514-b51a03d7.html
-
-深度解读：中国实体书店发展20年https://www.jiemian.com/article/4523650.html
-
-中国书店产业报告：2019年书店总量已超七万家http://www.bjnews.com.cn/culture/2020/01/09/672118.html
-
-2020年我国实体书店行业市场规模不断下滑 新型书店成绩斐然http://free.chinabaogao.com/wenti/202001/01204M4962020.html
-
-2021年中国实体书店行业分析报告-市场深度分析与投资前景预测http://baogao.chinabaogao.com/qikantushu/371962371962.html
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

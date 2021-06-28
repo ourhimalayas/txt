@@ -1,45 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】伦敦南部铁路拱门发生大火
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1357545/)
+## 【热点播报】0626墨博士解读新闻
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1357831/)
 
-翻译：香草山教育部 Naughty（文行）
+作者：香草山健身部 周一
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
 
 
 
-路透社伦敦6月28日报道，周一，一场大火从伦敦南部大象和城堡车站旁边的铁路拱门中蔓延开来，火焰球和黑烟羽状滚滚，冲向首都上空。
+1. 中共新版人权白皮书的雾里看花
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28114717/%E5%9B%BE%E7%89%874-15.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28130640/%E5%9B%BE%E7%89%877-9.png)
 
-警方表示，该事件与恐怖袭击无关。没有关于任何人员受伤的即时报道。
+中共国的人权白皮书实质上是一种独裁白皮书，其核心价值是把中共的领导和控制权凌驾于人权之上。这是对人权最讽刺的一幕。独裁者忘尊自大，竟将独裁称为人权与自由。人权之所以称为人权，是以人为本，以人性和人的天然属性为基础。而中共的人权却在人之上加入了一个最大的亵渎，中共任何美其名曰加在并高于人权人之上的，其实都是对人权的侮辱，这也使中共成为人类的公敌。所以中共的所谓的人权白皮书其实就是共权白皮书。
 
-伦敦消防队表示，10辆消防车和70名消防员正在扑灭穿过三个商业单位的大火，大火迫使火车改道行驶。
+那么为什么中共在全世界对它进行人权谴责和制裁之时放出这个白皮书呢？说明了中共对世界各国的指责与打击越来越害怕。当证据越来越充分，甚至国内的民众和党内追随者都有开始要醒来的迹象时，中共开始寝食难安。当一个国家的民众、军人都开始觉醒的时候那么这个政权灭亡就指日可待。
 
-消防队说，道路已经关闭，建议人们避开该地区，关闭门窗。
+2. **中共扼杀香港言论自由来警告世界**
 
-消防队发布的视频画面显示，黑烟高高升起，随后一个火球从拱门喷涌而出。
+香港作为中共向世界展示其中央集权的前沿，那么打击和扼杀其言论自由就是给所有媒体和西方世界一个警告。在中共的集权统治下，任何媒体的发声都是随时可以被消灭和抹杀的，中共的独裁红魔可以掌控一切。但是中共表现出对人权呼声的不安和惧怕，欧美国家已经看得很清楚，这说明了人权问题上欧美的政策精准狠。
 
-原文链接：
+3. **新疆能源产业被锁定 欧美人权制裁战略起作用**
 
-[https://www.reuters.com/world/uk/large-fire-breaks-out-south-london-railway-arch-2021-06-28/?utm\_source=ground.news&utm\_medium=referral](https://www.reuters.com/world/uk/large-fire-breaks-out-south-london-railway-arch-2021-06-28/?utm_source=ground.news&amp;utm_medium=referral)
+美国对中共五个实体的具体制裁，就是对中共反人权的进一步打击。随着情报和信息的不断明朗，未来中共在人权方面，一定会给西方更多确实的证据，帮助西方扩大打击范围。这也说明了欧美在中共在人权制裁战略和战术上，已经取得了一定的成功。西方的打击让中共的经济与企业和科技渗透以及其产业链的优势都开始削弱，因为人权的道德制高点已经完全站在欧美一方。
+
+那么中共现在的回击和反驳就会处于前所未有的被动之下，加上中共现在高层的拙劣表现，这个劣势会愈加明显。而且美国的这种制裁和打击会给世界其他国家一个明显的先例和模版。
+
+相信有更多的民主国家将会跟进，加速与中共的经济脱钩，并对中共的产业链进行进一步的打击。美国现在已经开启了全面对抗中共的政策，制约中共，甚至打击中共的经济文化各个方面。而且美国两党已经默许了对中共政策的全面推进，完全不给中共勾兑和通路的机会。
+
+4. **美中外长并未计划在G20会面**
+
+中美高层间的接触基本上全面禁止，也是告诉全世界，美国开启的脱共与反共的进程必将誓不逆转。现在这种表态在病毒溯源全面推进之前，必让中共如坐针毡，甚至忙中出错。那么美国就可以利用新的空当和证据对中共出手，中共未来必将出现巨大的问题，可见灭共之势已经势不可挡。
 
 校对/发稿：飞虹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21005113/6_june-2-556x720-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
 
-**More information, follow us **
 
-[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**更多资讯，更多关注**
 
-[**New York MOS Himalaya ｜Twitter(EN)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**New York MOS Himalaya ｜Twitter(CN)**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

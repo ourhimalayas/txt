@@ -1,52 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国在伊拉克和叙利亚的空袭针对伊朗支持的民兵组织
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1357350/)
+## 乌克兰和北约在黑海举行军事演习
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1358030/)
 
-作者：翻译 纽约香草山健身部 Ivy001
+翻译：神奇四侠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28162558/warships-1017_1920.jpg)
+美联社6月28日消息：乌克兰和北约周一举行海风2021军事演习，演习地点是在黑海，将有数十艘军舰参与，这次演习是继上周英国驱逐舰在克里米亚附近发生事件后进行的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25100350/WhatsApp_Image_2020-10-24_at_04.33.05-2.jpeg)
+海风2021演习将持续两周，将有来自美国及其北约盟国和乌克兰的约30艘军舰和40架飞机参与。美国驱逐舰罗斯号已经抵达乌克兰的敖德萨港参加演习。
 
+莫斯科批评了这些演习，俄罗斯国防部说它将密切关注这些演习。
 
+在6月23日英国和莫斯科在乌克兰水域发生冲突，英国坚持认为卫士号是在通过国际公认的旅行通道进行常规旅行，并且一直在克里米亚附近的乌克兰水域。英国和世界上大多数国家一样，承认克里米亚是乌克兰的一部分。
 
+俄罗斯谴责卫士号的举动是一种挑衅，并警告说，如果军舰再次入侵试图测试俄罗斯的军事决心，下次它可能会开火打击入侵军舰。
 
+新闻来源：[美联社](https://apnews.com/article/black-sea-ukraine-europe-government-and-politics-ea5d4e704ecce23a4d7aa7196f04ba9f)
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28103836/78-1.png)图片来源：AFP 
-据BBC News，美国表示，它已经对伊拉克-叙利亚边境附近由伊朗支持的民兵进行了空袭，以回应无人机对其驻伊拉克部队的袭击。
-
-五角大楼发言人说，打击的目标是三个地方的 “行动和武器储存设施”。
-
-他补充说，拜登总统已经明确表示，他将采取行动保护美国人员。
-
-一个强大的伊拉克民兵联盟 “人民动员力量”（PMF）说，一个派别的四名成员被杀，并威胁要进行报复。
-
-作为支持当地安全部队打击圣战组织 “伊斯兰国”（IS）的全球联盟的一部分，大约有2500名美国军队在伊拉克。 美国官员说，自4月以来，至少有5架无人机对他们使用的设施进行了袭击。火箭弹也经常射向他们。
-
-参考链接：
-
-[https://www.bbc.com/news/world-middle-east-57633360](https://www.bbc.com/news/world-middle-east-57633360)
-
-校对/发稿：小小安
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/23103209/6_june-5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
-
-[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25094153/WhatsApp_Image_2020-10-24_at_04.33.05-1.jpeg)
-
-
+校对发稿：Ada （马德里）
 
 
 
