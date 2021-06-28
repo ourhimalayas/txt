@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## TikTok窃取个人数据的隐患依然让人担忧
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1356036/)
+## 【NewsExpress】印度在与中共国有争议的边界再部署5万名士兵
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1357219/)
 
-**编译：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27220455/20210627064810804.jpg)
-TikTok公司内部人士在 CNBC 的一份报告中透露，应用程序 TikTok 的中国母公司字节跳动可以秘密访问用户数据，他称两家公司之间的界限“非常模糊，几乎不存在”。
+#### 文章撰写:【默凡】
 
-这份重磅报告证实了川普政府先前发布的禁止该应用程序的行政命令的真实原因。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28095959/3sfsdag34g47-imagedfad-m-12_1613752849877.jpg)
 
-一名TikTok的招聘人员以及其他四名前雇员告诉 CNBC，他们对这款流行的社交媒体应用程序的中国母公司感到担忧，他们说该公司可以访问美国用户数据并积极参与洛杉矶公司的决策和产品发展。
+Mailonline新闻网6月28日报道：印度在其与中共国有争议的喜马拉雅边境上又新增部署了50,000名士兵。
 
-其中一名匿名员工称，“TikTok 和字节跳动之间的界限非常模糊，几乎不存在。” “TikTok 与其母公司之间的密切联系远远超出了用户数据，”员工透露了字节跳动如何控制各种决策方向，以及在无论合同中的关键决策起了作用。
+中印两国在2020年爆发过一场边境冲突，这是自1962年中印战争以来最血腥的事件，造成20多名印度士兵死亡，但中共国至今未公布具体伤亡人数。
 
-字节跳动甚至控制了 TikTok 算法的开发，这些算法已被用于从用户那里收集包括“面纹和声纹”在内的生物特征数据。TikTok 对字节跳动的依赖甚至延伸至其技术。前员工表示，TikTok 近 100% 的产品开发由中国字节跳动员工主导。
+为应对中共威胁，印度在过去三个月中向边境派遣了士兵和战斗机，总兵力达到20万人，相比去年增加了40%。而中共国则在跑道、战斗机防弹掩体、榴弹炮和前哨基地加强了基础设施建设，甚至还向前线运送远程大炮、坦克、防空导弹和战斗机中队等武器装备。
 
-《国家脉搏》披露了字节跳动高管要利用他的平台来“弘扬社会主义核心价值观”和对中国共产党的忠诚的言论。文贵先生也不止一次地提到字节跳动是一家执行中共任务的军民融合企业，现在被证实其对海外用户数据的窃取和获得生物识别标志是真实存在的行为。华为封杀在先，为何对类似TikTok公司的进一步措施迟迟没有到来，究竟是顾虑到美国华尔街资本，还是其高层之间有何不能言说的勾兑，但是，这些公司对美国国家安全着实存在不小的威胁。
+上周，印度国防部长拉杰纳特·辛格（Rajnath Singh)）自今年2月以来首次视察了该地区。除了拉达克，印度还派遣更多人员前往与中共国接壤的其他边境地区，包括位于尼泊尔和不丹之间的青藏高原南部。
 
-（本文只代表作者观点，与Gnews平台无关。）
+参考文章：[India deploys another 50,000 troops to its disputed border with China – as tensions between the nuclear-armed sides remain high after deadly mountain battle](https://www.dailymail.co.uk/news/article-9732307/India-deploys-50-000-troops-disputed-border-China.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
 
-**新闻来源：**
+本文仅代表作者本人观点，不代表Gnews平台
 
-[TikTok Insiders Reveal Chinese Parent Company Can ‘Access U.S. User Data.’ (thenationalpulse.com)](https://thenationalpulse.com/news/tiktok-insiders-reveal-chinese-parent-company-can-access-u-s-user-data/)
+* * *
 
-***校对发布：文顾***
+排版发布：日本东京方舟农场 文柯Miles
 
-+1
+0

@@ -1,64 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山水墨堂】七哥笑谈傲视群雄
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1356307/)
+## 【鹰眼墙国】供不应求，养老护理员缺口难填
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1357732/)
 
-**作者**：香草山美食部 蓝天大海
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+香草山写作组 鹰(文言)
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25100350/WhatsApp_Image_2020-10-24_at_04.33.05-2.jpeg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28010143/image0-56-1.jpg)
 
-沧海茫茫
-苦海无边
-中原大地
-饿殍载道
+环球网6月28日转载光明日报消息，中共民政部称将加强养老服务人才建设，通过补贴、免费培训、定向培养等方式实现2022年底培训200万养老护理员目标。
 
-仰望星空
-七星闪耀
-希望燃起
-众星环绕
+根据《2018中国民政统计年鉴》，2018年国内60岁以上人口2.5亿人，全国失能、半失能老人4063万，对应养老护理人员规模为1354万（按照国际失能老人与护理员3∶1配比），而实际鉴定合格的养老护理员仅有44102人。虽然养老护理员队伍建设工程有一定的促进效果，但截至2019年末，国内200多万老人入驻4万个养老院，对应工作人员37万，其中真正的护理员仅有20多万，配比仅为10：1。与此同时，2020年60岁以上人口达2.6亿人，未来还将以1000万人/年的速度增加，对养老护理员的需求仍在扩大。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28114447/Screen-Shot-2021-06-28-at-11.24.54-AM.png)
+《全国民政人才中长期发展规划(2010-2020年)》提出要在2020年培养经验丰富的养老护理员600万人。截至2014年，国内共有45所开设老年服务和管理专业的高职院校，在校生人数3638人，毕业生总数为4554人（但到岗后的流失率高达七成）。2019年中共教育部出台《关于教育支持社会服务产业发展 提高紧缺人才培养培训质量的意见》，提出各省份至少有1所本科院校开设家政、养老服务专业，而后天津职业大学与天津理工大学联合创办第一个养老本科专业“老年福祉与管理”，不但招生规模小（首批招生30人），且仍在摸索阶段，无法扩展至全国范围。虽然2019年相关学校数量增至100余所，以毕业生翻倍粗算毕业人数规模过万，但这一增长速度远远无法暂缓缺口的扩大态势。
 
-曙光初现
-精诚团结
-运筹帷幄
-除魔斩妖
+虽然养老护理人员稀缺，但由于从业门槛低，民营养老院和雇主为了降低成本所给与的薪酬标准2000-3000元/人，低收入和繁重的照顾任务都使得养老一线留不住年轻人：如南京某公办养老院30多名大学生5年内走光，上海的养老护理员队伍平均年龄50.9岁。虽然各地政府推出补贴政策，如北京对护理岗位按照职级的不同分别给予（初级工）500元/月到（高级技师）1500元/月的津贴，且还有免费培训等激励措施，但响应者依旧寥寥。广东省实施的养老护理员培训“双千计划”，截至2019年培训16421人，截至2021年6月共培训3万人。此外，广东省养老服务相关专业在校生规模超过10万人（截至2021年6月），仍无法满足养老护理员18万的需求量（广东省80周岁以上高龄老年人187万，并参考2019年老人和护理员配比10：1）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28114403/Screen-Shot-2021-06-28-at-11.24.59-AM.png)
+虽然在中共的政策推进下，养老护理专业学校增多，各地补贴、薪酬略有上涨，但毕业生进入养老服务行业就业的意愿并不强烈。根据《2021应届生就业趋势报告》显示，2021年前5个月养老相关岗位招聘规模同比上涨51%，但产业整体对应届生的招聘意愿较弱，且不具薪资优势。同时，由于国内财富依旧集中于少数盗国贼家族，底层民众依旧处于“勉强温饱阶段”，用于照顾老人的开支无法太高。中共为缓解养老压力推出社区养老、物业养老、商业养老，但都是将养老服务商业化。这一操作势必造成养老服务的成本堆高，底层民众也更难以享受“老有所养”。
 
-还我华夏
-重建中华
-民主自由
-昌盛富饶
+新闻来源：
 
-感恩七哥
-百折不挠
-把酒举杯
-一代天骄
+养老护理员紧缺难题如何破https://china.huanqiu.com/article/43iaz0TQVJX
 
-校对/发稿：遍地开花
+养老护理行业：专业人才招不来留不住http://media.workercn.cn/sites/media/grrb/2019\_09/08/GR0301.htm
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+我国养老机构专业护工普遍短缺 养老护理行业为何留不住年轻人？http://china.cnr.cn/xwwgf/20201129/t20201129\_525346169.shtml
+
+急需1300万养老护理员，持证专业护理员却不足2万！巨大缺口怎么填？https://www.sohu.com/a/393484312\_100283902
+
+探访全国首个养老本科专业：不少人的第一志愿，家长看到行业希望https://new.qq.com/omn/20191104/20191104A0KLMZ00.html
+
+养老护理员缺口达千万，谁来守护老年群体高速增长的“银发时代”？https://xw.qianzhan.com/analyst/detail/329/210624-d5be48d7.html
+
+养老专业人才紧缺困境如何破解https://theory.gmw.cn/2020-04/07/content\_33718835.htm
+
+养老护理专业招生人数仅个位数 毕业后岗位流失7成 http://politics.people.com.cn/n1/2016/0705/c1001-28523992.html
+
+南京推进养老护理人才“入职奖励” 本科生奖励5万元http://js.ifeng.com/a/20170620/5759850\_0.shtml
+
+广东省民政厅关于省政协十二届四次会议第20210996号提案答复的函http://smzt.gd.gov.cn/zwgk/zxtabl/content/post\_3329499.html
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：正义的小新
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
-
-
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

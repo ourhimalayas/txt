@@ -1,28 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军空袭伊拉克叙利亚边境地区伊朗支持的民兵
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1356171/)
+## 【热点播报】伦敦南部铁路拱门发生大火
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1357545/)
 
-2021年6月27日
+翻译：香草山教育部 Naughty（文行）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27232755/0-33.jpeg)
-
-**新闻摘要：**
-
-[环球网快讯]据今日俄罗斯（RT）消息，美国国防部当地时间27日称其空袭了伊拉克和叙利亚的边境地区，并声称目标设施被“伊朗支持的民兵”所利用并向美方人员发起“无人机袭击”。此外，声明还声称美国是在行使自卫权，符合国际法。
-
-[新闻来源](https://news.sina.com.cn/w/2021-06-28/doc-ikqciyzk2245199.shtml)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+路透社伦敦6月28日报道，周一，一场大火从伦敦南部大象和城堡车站旁边的铁路拱门中蔓延开来，火焰球和黑烟羽状滚滚，冲向首都上空。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28114717/%E5%9B%BE%E7%89%874-15.png)
+
+警方表示，该事件与恐怖袭击无关。没有关于任何人员受伤的即时报道。
+
+伦敦消防队表示，10辆消防车和70名消防员正在扑灭穿过三个商业单位的大火，大火迫使火车改道行驶。
+
+消防队说，道路已经关闭，建议人们避开该地区，关闭门窗。
+
+消防队发布的视频画面显示，黑烟高高升起，随后一个火球从拱门喷涌而出。
+
+原文链接：
+
+[https://www.reuters.com/world/uk/large-fire-breaks-out-south-london-railway-arch-2021-06-28/?utm\_source=ground.news&utm\_medium=referral](https://www.reuters.com/world/uk/large-fire-breaks-out-south-london-railway-arch-2021-06-28/?utm_source=ground.news&amp;utm_medium=referral)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21005113/6_june-2-556x720-1.jpeg)
+
+**More information, follow us **
+
+[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**New York MOS Himalaya ｜Twitter(EN)**](https://twitter.com/MosHimalaya)
+
+[**New York MOS Himalaya ｜Twitter(CN)**](https://twitter.com/HIMALAYA_MOS)
+
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

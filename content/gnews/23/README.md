@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统：青少年不应该接种新冠病毒疫苗
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1356109/)
+## 《费加罗报》：科学家要求全面调查中共病毒来源
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1357381/)
 
-**编译：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27223140/unnamed-1-3.jpg)
-儿童不应该接种冠状病毒疫苗，因为他们的免疫系统“非常强大”，而且他们不会像成年人一样遭受 COVID-19的严重影响。并且即使是成年人，也不应该被迫接受疫苗接种。这是前总统川普上周五接受Newsmax 采访时说的。
+2021年6月28日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28110546/GettyImages-490009808-640x480-4.jpg)
+在2021年6月12日，世界卫生组织（WHO）总干事谭德赛发表调查病毒来源的呼吁。经过了两个星期的考量，法国《费加罗》报独家刊发31名国际科学家强硬要求彻底调查新冠病毒来源的公开信全文。信中提出“中共国政府有可能参与病毒研究”。
 
-“我是接种疫苗的人，”特朗普告诉 Newsmax要 “唤醒美国”。“我认为人们应该有自由选择是否要接种，这不能被强迫，因为他们有选择的权利。”
+这是第一次法国大报借助外部信息公开讨论病毒来源，并直接指出“中共国政府有可能参与”。
 
-川普说他确实认为人们应该接种疫苗，但他不认为年轻人有这个必要，因为他们的免疫系统非常强大，他举例在某个州有35,000人死亡，但其中并没有 16 岁以下的青少年死亡的案例。
+**【[新闻来源](https://www.lefigaro.fr/sciences/lettre-ouverte-de-31-scientifiques-internationaux-pour-une-enquete-complete-sur-l-origine-du-sars-cov-2-20210628?utm_medium=Social&amp;utm_source=Twitter#Echobox=1624880153-1)】**
 
-青少年到底是否需要接种疫苗，这个问题恐怕在疫苗真相没有被揭露之前，不能给出科学合理的解释，疫苗带来的保护效力究竟能对抗多少病毒？疫苗的副作用是否被公众清楚的认知？疫苗为未来人们长远的健康是否会有影响？这些问题在没有被彻底弄清楚之前，接种疫苗不应该成为一项必须的选择。反观中共国现在将疫苗接种率与政治任务完全挂钩的行为，更让人极度怀疑疫苗的真相究竟是什么？既然疫苗无法预防感染，而且副作用不能全面评估，为何我们还要冒那个风险将未知的液体注入体内呢？“缓一缓”应该是我们对待疫苗的正确态度。
+* * *
 
-（本文只代表作者观点，与Gnews平台无关。）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**新闻来源：**
 
-[Trump: Kids Shouldn’t Get Vaccines | Newsmax.com](https://www.newsmax.com/newsmax-tv/trump-coronavirus-vaccines-children/2021/06/25/id/1026408/)
-
-***校对发布：文顾***
-
-0
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1
