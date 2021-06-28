@@ -1,42 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】 美国陆军： 特种部队是非常规作战专家
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1353709/)
+## 【独立观点】七一老黄历的猫腻
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1355704/)
 
-香草山翻译部：GBW
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25094118/WhatsApp_Image_2020-10-24_at_04.33.05.jpeg)
+作者：纽约香草山佛教部 369文驹
 
 
 
-2021年6月26日晚，路博艾
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-**1. 美国陆军推文：”特种部队是陆军首要的非常规作战专家……因为即使是英雄也需要榜样。”**
 
-a. 非常规战争是指支持外国叛乱或抵抗运动反对其政府或占领国。
 
-b. 非常规战争往往是隐蔽的或没有明确的定义，它在很大程度上依赖于颠覆和游击战。
+中共总是强调自己是无神论者。笔者很好奇，在马上要到来的“七一”这天，老杂毛们要不要看看老黄历后再出门参加所谓的“七一庆典”呢？
 
-c. 非常规战争从心理上针对平民，以赢得人心。
+结果令人大跌眼镜。谷歌搜索老黄历排名首页的网站，七月一日这天的“忌”这一栏，居然没有内容。现将前三的黄历网站贴图如下：
 
-d. 艾丽：美国陆军呼应了路德社关于绿色贝雷帽（美国陆军特种部队）的节目。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27200123/86-2.jpg)网页截图
 
-e. 路德：塞林上校已经获得了闫博士前夫背后那些人物的信息。
+有意思的是，其中一个网站正中出现的“黑道凶日”没给改掉，看来后台人员工作不认真啊。
 
-**2. 布林肯在欧洲说，美国和欧洲在对待中（共）国的态度上趋同。如果一个国家不尊重达成的协议，那么替代方案就是战争**。
+换个角度想，中共这一手也太粗暴了吧——直接删除内容啊，估计“七一”那天的“忌”这一栏里没有什么好话。于是，笔者在其他网站查询，发现原来“七一”当天还有一种说法，如下：
 
-a. 路德：布林肯已经说服了法国。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27200141/87-1.jpg)网页截图
 
-笔记仅作参考，内容以路德社节目为准。
+这里，在“忌”的一栏里出现了“出行”。原来玄机在此啊，这些中共的老杂毛们要是真如他们所说的，是无神论者，那么他们为什么如此忌惮老黄历的这个说法呢？甚至要特意从一些网站中删除，简直是掩耳盗铃啊。他们删除了“忌出行”是给谁看呢？老百姓可不跟你们一起“出行”，倒是可以考虑为中共“送行”！
 
-视频链接：[https://www.youtube.com/watch?v=b-W9UBs4e-w](https://www.youtube.com/watch?v=b-W9UBs4e-w)
+参考阅读：
+
+万年历\_http://www.xingzuo5.net/calendar/2021/2021-7-1.html
+
+万年历\_https://www.1wnl.com/huangli/2021\_7\_1/
+
+万年历\_http://wannianli.sheup.net/wannianli/2021/2021-7-1.html
+
+老黄历\_https://nongli.911cha.com/2021-7-1.html
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-编辑/校对/发稿：正义的小新
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
@@ -50,6 +52,10 @@ a. 路德：布林肯已经说服了法国。
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

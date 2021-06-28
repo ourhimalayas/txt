@@ -1,34 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马特·汉考克视频泄露将被调查—— 可疑的摄像头
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1355329/)
+## 【路德社即时简报】 澳大利亚特种部队将对抗中（共）国
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1356038/)
 
-2021年6月27日
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27133750/image-9.jpg)
-
-最近，英国《太阳报》爆出了一段英国卫生大臣马特·汉考克（Matt Hancock）亲吻一位同事，违反了英国有关疫情期间保持社交距离的规定的视频，这段视频最终导致了马特·汉考克辞职。
-
-然而，人们不禁对这段视频是如何在政府部门的办公室内拍摄的提出了质疑。
-
-英国议员布兰登·刘易斯先生（Brandon Lewis）在BBC安德鲁·马尔（Andrew Marr）的节目中被问及此事时说：“卫生部应该对此事进行调查，以了解这种情况是如何发生的。”他还补充说道：“我们必须关注这样一个事实，即有人能够从政府大楼内获得一段视频”。
-
-另据英国媒体《每日邮电》（Daily Mail）26日的报道，这个捕捉到该丑闻的关键摄像头是由海康威视制造的。海康威视是一家中共国公司，由于担心它的产品可能被中共政府用作间谍工具，该公司的产品在美国已经被禁止使用。虽然该公司否认了这一说法，称没有证据表明其数据被传回到中共国。海康威视还被指控协助中共政府在新疆地区监控被关押在拘留营的维吾尔族人。
-
-另外，《每日邮电》还提到，政府部门办公楼的安全保卫是包给私人公司负责。卫生部大楼则为一家新加坡的房地产公司拥有。
-
-编者按：安全摄像头为什么会暗藏在英国卫生大臣的办公室里？为什么是海康威视的产品？而卫生部大楼的房东是一家新加坡的房地产公司。这一切都是巧合吗？
-
-**【[新闻来源](https://www.dailymail.co.uk/news/article-9728843/Matt-Hancocks-affair-footage-office-CCTV-reveals-GLEN-OWEN.html)】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+香草山翻译部：GBW
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25094153/WhatsApp_Image_2020-10-24_at_04.33.05-1.jpeg)
+
+
+
+2021年6月27日晚，路博艾
+
+**1. 每日电讯报：澳大利亚特种部队将被重新分配任务，以应对中（共）国向太平洋地区的扩张。**
+
+a. 博博士：中共在澳大利亚的特务应该小心了。
+
+b. 路德：特种部队抓间谍不用走正常法律程序。
+
+c. 路德：根据国际法，间谍只要承认间谍身份就有豁免权。如果不承认间谍身份，那么就是敌对国家战斗人员，直接去监狱。
+
+d. 路德：今年年初，五角大楼提到了非常规战争和绿色贝雷帽。
+
+**2. 塞林上校：我们正在逼近有潜在危险性的在逃中共科学家拉纳瓦卡。**
+
+a. 路德：网易今天也提到塞林上校了。
+
+**3. 美国公布了 《2020年国防战略中的非常规战争附件摘要》。**
+
+a. 路德：手册说要把非常规战争制度化、长期化，把信息战作为重点。
+
+b. 博博士：中共打超限战，美国也可以玩非常规战争。美国主导的规则是保护弱者的。如果中共一定要玩“丛林法则”，美国实力强，也赢。
+
+c. 博博士：非常规战争应该建立在强大的常规战争能力之上的。
+
+笔记仅作参考，内容以路德社节目为准。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
 0

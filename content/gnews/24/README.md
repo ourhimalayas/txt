@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登谴责酷刑是“我们良心上的污点”，但没有点名中共国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1355311/)
+## 德国试图禁止英国游客进入欧盟
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1355893/)
 
-2021年6月27日
+**编译：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27205240/23-16.jpg)
+据《泰晤士报》周一报道，德国将试图禁止英国游客进入欧盟，无论他们是否接种过COVID-19疫苗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/27132627/image-8.jpg)
+该报称，德国总理希望将英国列为“受关注国家”，因为Delta变异病毒在英国相当普遍。
 
-乔·拜登总统在周六纪念联合国禁止全世界酷刑的公约周年时谴责了酷刑做法。拜登称：“无论酷刑发生在何处，都是我们道德良知上的污点，我们大家必须加倍努力，永远结束这种不人道的做法。” 但他没有点名中共国。
+该报补充说，这些计划将被欧盟综合政治危机应对委员会的高级官员讨论，并将遭到希腊、西班牙、塞浦路斯、马耳他和葡萄牙的抵制。
 
-在本月于英国康沃尔举行的七国集团峰会上，拜登敦促G7成员国谴责中共国此类凌虐行为，但无济于事。相反，七国集团发表了一份无力度的声明，只是倡议中共国“尊重人权和基本自由。”
+德国总理默克尔将于下周在契克斯会见英国首相约翰逊。
 
-**【[新闻来源](https://nypost.com/2021/06/26/biden-decries-torture-as-a-stain-on-our-conscience-without-naming-china/)】**
+而英国将在下个月公布计划，允许完全接种疫苗的人不受限制地前往所有国家，除了那些COVID-19风险高的国家。
 
-* * *
+从各国对Delta变异病毒的反应来看，疫苗是否完全接种无法起到有效的阻隔，因此各国不得不重新开始新一轮的安全措施，这无疑对民众是一个打击。那么面对未知的变异病毒，还指望用什么方式来进行保护呢？难道不停研发疫苗，不停接种吗？显然，这不应该是一个可行的办法。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+（本文只代表作者观点，与Gnews平台无关。）
 
+**新闻来源：**
 
-编辑：【英国伦敦喜庄园编辑部】
+[Germany seeks to ban British travellers from EU – The Times | Reuters](https://www.reuters.com/world/europe/germany-seeks-ban-british-travellers-eu-covid-19-variant-worries-times-2021-06-27/)
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+***校对发布：文顾***
 
-0
++3
