@@ -1,28 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国的国徽既可以装在水晶棺里也可以悬挂在女法官背上
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1357705/)
+## 【独立观点】又是黎智英! 又是Sara !
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1350708/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28123721/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-35.png)
-据[**环球时报**](https://weibo.com/1974576991?refer_flag=1001030103_) [2021年6月28日08:30](https://weibo.com/1974576991/KmeeFikXz?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+作者：香草山写作5组 文斗
 
-【 [#*马背上的女法官*#](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E8%83%8C%E4%B8%8A%E7%9A%84%E5%A5%B3%E6%B3%95%E5%AE%98%23) 背负法律与尊严！】在内蒙古太仆寺旗，*女法官*以徽为盾，以法为剑，翻山越岭就地办案。诉再难，急难愁盼必解；路再远，公平正义必达！[L廉政瞭望微博*的*微博视频](http://t.cn/A6fqGfjb) ​
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-女法官背着国徽在疾驰的骏马上的画面荡漾着满满的正能量，在新浪微博上开始了一轮一轮的轰炸，但是这样的行为已经构成了违法，因为根据[百度百科——中华人民共和国国徽法](https://baike.baidu.com/item/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%9B%BD%E5%BE%BD%E6%B3%95/525880?fr=aladdin)，中华人民共和国国徽应当在相关机构和相关场所悬挂，对于法无授权不可行公权力部门来说，除伪《中华人民共和国国徽法》规定的可悬挂机构和场所之外均不得悬挂国徽，所以马背上的女法官背负国徽的行为已经违反了伪中华人民共和国国徽法。
 
-或者会有人说女法官背上的国徽算不得悬挂，可是如果不是悬挂那就必须采取有包装的方式运输，这是常识，而身背国徽的女法官在这一次的戏份中明明白白地起到了悬挂国徽的效果。
 
-国徽在这个国家是个易碎品，在香港反送中运动中，由于香港手足对伪中华人民共和国国徽的泼墨，使得伪中华人民共和国国徽被装入了水晶棺——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28123557/2031543-XXL_%E5%89%AF%E6%9C%AC.jpg)
-（详见自由时报2019/07/29 00:52[香港中聯辦國徽「入水晶棺」 被超美前議員1句話酸爆](https://news.ltn.com.tw/news/world/breakingnews/2866862)）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25120748/%E5%9B%BE%E7%89%878-7.png)
 
-这一次悬挂在女法官后背的国徽再一次展示了别样风景，在这个神奇的国度里国徽除了可以装在水晶棺里，它还可以背负，背负起来的国徽构成了一副绝佳的负荆请罪秀，这个国家因为没有法律，所以没有尊严，因为没有尊严，所以国徽和法官一起成了道具，这两样道具在一起本来要演出庄严和威武的戏码，结果不小心穿帮，让国徽和女法官都成了笑话。
+近些日期，由于香港《苹果日报》关停事件的发酵，在我们的GNEWS平台上出现了多篇对于《苹果日报》及其老板黎智英的正面报道。让人惊诧。爆料革命的战友如此健忘？
 
-（文章内容仅代表作者个人观点）
+[郭文贵先生在2020年9月14日就已经告诉我们，黎智英跟爆料革命不是一路人。](https://gwins.org/cn/milesguo/14853.html)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+郭先生拒绝了许多记者的采访请求，但是，因为“听了Sara的话”，接受了香港苹果日报的采访，而“从未见苹果日报说过一句爆料革命的好话”。Sara、黎智英，当这两个人搞在一起的时候，我们能联想到什么？
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+郭先生说“Sara你珍重，你珍重啊～！”今天回头去看，我们又能咀嚼出什么意味？
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25120722/%E5%9B%BE%E7%89%879-9.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25120724/%E5%9B%BE%E7%89%8710-5.png)
+
+战友们或许没听过郭先生的讲话，或许听过了忘记了，或许有别的原因，我无从深究。但在香港反送中运动以来，无数个真正的英雄儿女被抓捕、被自杀、被强奸，在一片寂静中被伤害屠戮，无声无息。而这个黎智英却戏份十足：家里被纵火、公司被纵火，被逮捕、取保、上法庭，几进几出……。每一次，他都能上很多媒体头版，他戴着手铐的照片出现在全世界各种媒体，在全世界树立了他是香港的民主斗士形象。在无数褒扬纷纷扰扰之际，我认为有必要明确说出郭先生没有说直白的那句话：这个戏份十足的黎智英很可能是苦肉版的十层妖塔。
+
+中共大外宣可以在推特、FACEBOOK、YOUTUBE等社交媒体上推出一茬又一茬的“伪民运”钓中国老百姓的鱼，以及在各大媒体、国际组织上推出形形色色的民主斗士，钓各国政府的鱼。就不会在GNEWS、GTV等爆料革命平台上操作一番？我们亲身经历了假牧师、东京爆协、龅牙庄、鸡腿潘、龚火鸡、九指妖，而且郭先生都点名了，我们还看不透黎智英？
+
+战友们别健忘！
+
+（本文内容仅代表作者个人观点）
+
+参考阅读：
+
+1、[郭文贵2020年9月14日盖特](https://gwins.org/cn/milesguo/14853.html)
+
+2、[郭文贵先生：是时候对苹果日报说再见了！](https://gnews.org/zh-hans/358712/)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++11

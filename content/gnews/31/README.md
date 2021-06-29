@@ -1,17 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】短视频：澳媒警惕中共国对邻国的渗透，将其与纳粹相提并论
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1356832/)
+## 华为5G势力式微，诺基亚跃全球5G基地台
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1358880/)
 
-#### 了解澳洲时事动态，尽在雅典娜【澳洲热点】
+2021年6月29日
 
-听写**/**翻译：文扬
-校对**/**编辑：枳实
-剪辑**/**字幕：蛮吉
+美国带头，各国围堵，华为5G势力式微，诺基亚公告已经拿下165笔5G基地台合约，跃居成为全球5G基地台合约最大供应商。
 
-这段短视频中，天空电视的主持人谈到了即将卸任的澳大利亚高级外交官亚当森评价中共的**“**四面受敌心态**”**，并指出它与三十年代的纳粹有相似之处。并警告了中共对澳洲邻国的渗透正在威胁澳洲本土和西方世界。
+**[【新闻来源】](https://udn.com/news/story/7240/5564228?from=udn-catelistnews_ch2)**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-+2
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0

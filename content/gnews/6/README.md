@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度向中印边境增兵5万—— 中共呼吁印度降低紧张情势
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1358545/)
+## 中共病毒疫苗是个邪恶的骗局!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1358986/)
 
-2021年6月28日
+#### 撰稿:牛小妹
 
-![]()![](https://gdb.voanews.com/FEBB08FF-FBAC-4B2F-AF76-63F199434361_w1597_n_r1_st.jpg)
+#### 责编:胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22105520/%E6%90%9C%E7%8B%90.jpg)
+**「无症状传播」是一个几乎不存在谬论**
 
-**新闻摘要：**
+医师彼得·麦格勒指出：没有科学证据证明50岁以下的人需要注射疫苗。他批评，所谓「无症状传播」是一个几乎不存在谬论！ 执政者用这种莫须有的理由，误导大众去打疫苗！「只有真正得病的人才有传染力!」
 
-印度已增派最少5万名士兵到中印边境。
+**除了「打疫苗」，主流媒体封锁其他治疗方法**
 
-印度军方过去在中印边界的策略是防堵中方的行动；而新的军队部署将让印度指挥官有更多的选择，必要时可以攻击和夺取中国领土。这一做法被称为“进攻性防守”战略。
+当美国以光速实施疫苗政策，就停止所有其他的治疗方式，并在推特、YouTube封锁其他的治疗方式。所有的焦点只放在「打疫苗」，没有隻字片语讨论如何治疗。
 
-目前部署在中印边境的印度兵力已经增加到20万人，比去年增兵约40%。
+**免疫力靠自身的免疫系统而非疫苗**
 
-目前令人担心的是任何误判都有可能引发更激烈的冲突。彭博社引述印度准将、前北方军区陆军司令胡达（DS Hooda）的话说，“双方都会在争议地区强势巡逻。一个小小的局部事件都可能导致失控，带来预料之外的后果”。
+他指出，「任何感染并痊癒的人，都能获得全面而且持久性的免疫力！」
 
-中国外交部发言人汪文斌28日回应指，中印边境局势整体稳定，双方正通过谈判解决有关边境事态。汪称，“在中印边境局势的这种背景下，有关军政要员的言行和军事部署应当有利于局势的缓和降温、有利于增进双方的互信，而不是相反。”
+**早期及适当治疗，住院病患及死亡人数大幅降低**
 
-[新闻链接](https://www.voacantonese.com/a/india-shifts-50-000-troops-to-china-border-while-china-calls-on-india-to-ease-tensions-20210628/5945737.html)
+超过4000名病患的大型研究，採双盲、随机所得到的结论，发现最好的消炎药就是秋水仙素，可以降低50%的死亡率 。早期治疗、三阶段、鸡尾酒疗法，可让住院病患数以及死亡人数都大幅减少85%。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[文章链接](https://m.facebook.com/HongKongJerusalem/videos/%E7%BE%8E%E5%9C%8B%E6%9C%80%E5%89%8D%E7%B7%9A%E7%9A%84%E9%86%AB%E7%94%9F%E5%BD%BC%E5%BE%97%E9%BA%A5%E6%A0%BC%E5%8B%92%E5%9C%A8%E7%BE%8E%E5%9C%8B%E5%9C%8B%E6%9C%83%E5%A0%B1%E5%91%8A-%E9%86%AB%E7%99%82%E5%9C%98%E9%9A%8A%E5%81%9A%E4%BA%86%E5%85%A8%E9%9D%A2%E7%9A%84%E5%A4%A7%E8%A6%8F%E6%A8%A1%E7%A0%94%E7%A9%B6%E9%A1%AF%E7%A4%BA%E4%BB%BB%E4%BD%95%E6%9B%BE%E7%B6%93%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E4%B8%A6%E7%97%8A%E7%99%92%E7%9A%84%E4%BA%BA%E9%83%BD%E6%9C%83%E7%8D%B2%E5%BE%97%E5%85%A8%E9%9D%A2%E6%8C%81%E4%B9%85%E7%9A%84%E5%85%8D%E7%96%AB%E5%8A%9B%E6%B3%A8%E5%B0%84%E9%80%86%E8%8B%97%E4%B8%8D%E6%9C%83%E5%B8%B6%E4%BE%86%E4%BB%BB%E4%BD%95%E5%A2%9E%E5%BC%B7%E5%85%8D%E7%96%AB%E5%8A%9B%E7%9A%84%E6%95%88%E6%9E%9C/2900717370200711/)
 
 0

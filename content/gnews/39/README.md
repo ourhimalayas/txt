@@ -1,69 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯称中共的侵略与挑衅达到创纪录水平
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1358531/)
+## 【经济超限战】中共打击挖矿自废比特币控制权或成加密货币利好
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1353136/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者 ：经济小组 / 纽约香草山金融部 ilovezhanshen
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28210454/C-14.jpg)俄罗斯莫斯科喀秋莎农场
-《福克斯新闻》发表文章，题目为“布莱克（Black）、班纳特（Bennett）、汉森（Hanson）：中共赤裸裸的侵略、挑衅达到了创纪录的水平，美国的领导地位在哪里？”文章摘要指出，全世界都在注视着香港人民被系统地改造成与中共国公民那样缺乏可行使的人权自由。
 
-全文如下：
 
-在香港《大纪元》（the Epoch Times）办公室被袭击几个月后，香港的《苹果报纸》也遭关闭，中共国提高了赤裸裸的侵略和挑衅西方的程度，这是自尼克松总统1972年中共国之旅以来的最高点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25100350/WhatsApp_Image_2020-10-24_at_04.33.05-2.jpeg)
 
-中共国实际上是被当场抓获的（说轻一点是无意泄露），无论病毒的起源和传播的确切情况如何，这相当于针对世界各个地区实施了生物战。
 
-毫无疑问，中共病毒是从武汉病毒实验室泄露出来的，中共人隐瞒了这次病毒泄漏的严重性，并对病毒的来源进行了混淆和撒谎。在关键的几个星期里，北京没有采取任何措施限制其向世界其他地区的传播，并唆使世界卫生组织证实其对公共卫生危机的虚假陈述。
 
-自那时以来，它几乎没有采取任何行动，却阻碍和误导了随后为国际（健康安全）利益而寻找这一疫情真正起源的努力。
+最近，中共政府打击比特币的行动达到了新的高峰。
 
-中共领导层公然违反了与英国达成的香港协议，这个协议承诺在香港移交给中共国的50年内继续保留个人权利和司法正当程序。
+6月20日凌晨，四川所有比特币等虚拟货币矿机被集体断电，来不及转移的比特币矿工因此遭受了巨大损失 [1] 。
 
-全世界都在注视着香港人民被系统地改造成为中共国公民那样缺乏可行使的人权自由。中共的军机飞越台湾领空的事件，从某个角度来看台湾被中共国认为是自己的一部分，尽管实际情况并非如此。只要按（台湾）自己的意愿，可以与大陆统一，然而，当着全世界的面，中共公然而骄傲地撕碎与英国的一项严肃条约协定，这又是另一回事。英国是联合国的共同创始会员国，也是世界上最重要和最受尊重的国家之一。
+6月21日，人民银行发文表示，虚拟货币交易炒作活动扰乱经济金融正常秩序，各银行和支付机构要打击比特币等虚拟货币交易炒作行为。人民银行近日就相关问题约谈了工商银行、农业银行、建设银行、邮储银行、兴业银行和支付宝（中国）网络技术有限公司等部分银行和支付机构 [2] 。
 
-中共国无视美国对伊朗石油出口的制裁，率先恢复了被禁运伊朗的经济，它对全面违反其贸易和货币政策承诺的行为仍然完全没有歉意。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26143344/Screen-Shot-2021-06-26-at-2.32.01-PM.png)（图源：中国人民银行[http://www.pbc.gov.cn/goutongjiaoliu/113456/113469/4273265/index.html](http://www.pbc.gov.cn/goutongjiaoliu/113456/113469/4273265/index.html)）
 
-迫切的问题是，拜登政府是否以及何时会对中共的挑衅和威胁，以及中共对维吾尔族少数民族和在自己境内的独立宗教活动的野蛮行径作出适当地回应？
+由于政府的打压，矿工开始在市场上大量抛售二手矿机。自四月以来，顶级矿机的价格下跌了75%。6月23日，全球最大的矿机制造商比特大陆决定在全球范围内暂停其矿机的现货销售，以降低挖矿业整体的损失 [3][4][5] 。
 
-诚然，本届政府偶尔会发出有目的的声音，但无论是在两个月前国务卿布林肯在安克雷奇（Anchorage）会见中共外长的会议上，还是拜登总统上周在康沃尔（Cornwall）发表的评论中，都没有任何迹象表明他有意采取实实在在的措施。
+自五月份以来，中共政府就开始了新一轮对比特币的打压行动。5月21日，在刘鹤主持召开的国务院金融稳定发展委员会第五十一次会议中要求“坚决防控金融风险”并明确指出“打击比特币挖矿和交易行为”[6]。随后，包括内蒙古、青海、云南、四川等地的地方政府迅速开展了一系列打击比特币挖矿的行动。
 
-显然，除了英国人之外，欧洲人对香港事件表现愤怒，但如果没有美国的鼓动他们却什么也不会做。
+根据6月21日CNBC记者Eunice Yoon的推文，一些中国矿工正在将大量的矿机运往美国 [7]。虽然美国各州目前对比特币挖矿态度不一，但德州州长，田纳西州杰克逊市长以及佛罗里达州迈阿密市长都曾公开表示欢迎矿工入驻 [8]。除了美国之外，以哈萨克斯坦为代表的中亚地区，俄罗斯以及最近刚刚宣布比特币为法币的萨尔瓦多或许都会成为未来矿工们迁徙的首选去处。
 
-最终，美国将不得不让人们知道，它不会容忍对台湾的恐吓，它必须提醒世界，如果中共国不履行其贸易和货币政策承诺，那么美国将加强对中共国的关税政策，实施制裁，减少任何不遵守制裁的国家进入美国市场的机会。即使欧洲目前像可怜的无脊椎动物那样表现得贪婪胜过恐惧，并且不停抱怨的情况下，如果美国有行动，欧洲也将效仿美国。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26143327/Screen-Shot-2021-06-26-at-2.32.09-PM.png)（图源：推特）
 
-问题是，美国何时能表现出领导才能，让北京承担责任？中共国过于自信，全世界都持怀疑态度，会得出这样的结论，即美国正在衰落，中共国正在崛起。
+自比特币诞生以来，中共对比特币的打压就没有停止过。其中，2017年9月关闭中国境内的比特币交易所为其之前打压的高峰。然而这些行动向来雷声大雨点小，既没有影响2017年12月那场空前的比特币牛市，也没有影响之后加密货币在中国境内以及全世界汹涌的发展浪潮。
 
-《福克斯新闻》的撰稿人比尔·贝内特（Bill Bennett）、维克多·戴维斯·汉森（Victor Davis Hanson）和历史学家兼作家康拉德·布莱克（Conrad Black）是播客《学者与理性》（Scholars & Sense.）的共同主持人，加入他们讨论当今的问题，超越喧嚣和话题，直达问题的核心。
+这一次中共政府对比特币的打压可以说达到了新的高峰，这背后有很多因素，包括维护中共已经深陷危机的金融系统的稳定，防止资本外流以及高官外逃 [9]，加强推广数字人民币，调节沿海和内陆地区用电量的不平衡，甚至高层内斗、打击政敌等等。
 
-威廉J.贝内特（William J. Bennett）是《福克斯新闻》的撰稿人，曾任美国教育部长（1985-1988年）和国家药物管制政策（the National Office of Drug Control Policy）办公室主任，他是美国在文化、政治和教育问题上最有影响力和最受尊敬的声音之一。他的最新著作是他广受好评的三部曲《美国：最后最好的希望》（America: The Last Best Hope）托马斯·纳尔逊（Thomas Nelson）的一本单行本；一卷版（2019年10月22日），讲述了我们这个非凡国家的鼓舞人心的故事。
+但是不管出于何种目的，中共对比特币的打压都已经促进了比特币算力在全球的重新分布，这一点对比特币的去中心化、比特币网络的稳定性，以及比特币挖矿对气候的影响都有积极的作用。
 
-维克多·戴维斯·汉森（Victor Davis Hanson）是美国伟大中心的杰出成员，他写了20多本书，从古希腊到现代美国，他住在加利福尼亚州的塞尔玛（Selma, California）。
+根据一份2018年普林斯顿大学的报告 [10]，中共国长期控制超过50%的比特币算力，在2018年时达到74%，并具备各种控制、威胁、攻击比特币网络的能力，甚至可以通过控制比特币对外国施加影响。该报告指出，中共国对全球范围内的比特币网络的存亡构成最大威胁；仅仅出于对“去中心化”这一意识形态的反对，中共国就有理由一举消灭比特币。该报告的作者或许没想到，中共高层自己都在用比特币洗钱，哪里顾得上真正的所谓国家战略。但不管怎样，这一次中国比特币矿工的大迁徙或许会形成新的对币圈的长期利好：比特币算力更加均匀的分布，以及比特币的“去中共化“。
 
-（全文完）
+根据郭文贵先生爆料，比特币网络被中共长期用来进行洗钱犯罪活动，并且联系着中共的海外情报网 [11] [12] [13] [14]。近期，随着美国政府对比特币的监管态度逐渐明朗，中共或许已经意识到了比特币作为一个全球公共区块链的部分透明性会让自己的犯罪行为留下踪迹，成为美国政府追踪、执法甚至制裁的线索。中共和美国在比特币网络上的博弈，或许已经占了下风。这可能也是中共最近主动放弃比特币控制权的一大原因。
 
-这篇文章也算是为中共百年的献礼之作，悉数了中共五宗罪：
+比特币原本是一项颠覆传统金融系统、增加人们财产自由的技术。然而任何技术都是一把双刃剑：比特币既可以被支持密码朋克运动的极客们作为推动自由与繁荣的工具，也可以被CCP和其国际上的流氓团伙用来洗钱，进行犯罪活动，并成为一个独裁政权挑战美元的手段。可以说，正是因为中共的存在，比特币才更多的与暗网与犯罪联系在一起。一旦比特币“去中共化”，或许会让整个加密货币生态圈变得更加光明。
 
-1、重罪、死罪是向“世界各个地区实施了生物战，隐瞒了这次病毒泄漏的严重性，对病毒的来源进行了混淆和撒谎，唆使世界卫生组织进行虚假陈述，阻碍和误导世界寻找这一疫情真正起源的努力”；
+中共或许有利用比特币挑战美元的雄心，但却缺乏相应的能力去制定并执行一个有效的战略。在这次中共手忙脚乱的打压行动之后，比特币对中共国的依赖进一步减少。一个“去中共化“的比特币和加密货币生态圈或许会逐渐形成，让加密货币行业更快进入一个持续健康发展的轨道。
 
-2、公然违反了与英国达成的香港协议，将香港人民系统地改造成为中共国公民那样缺乏可行使的人权自由；
+参考链接：
 
-3、中共的军机飞越台湾领空，武力炫耀、恫吓恐吓，破坏台海局势；
+[1] 四川比特币矿场集体断电 世界最大矿工聚集地或将走向终结https://finance.sina.com.cn/blockchain/coin/2021-06-22/doc-ikqciyzk1095364.shtml
 
-4、中共国无视美国对伊朗石油出口的制裁，恢复被禁运伊朗的经济，全面违反了贸易和货币政策的承诺；
+[2] 人民银行就虚拟货币交易炒作问题约谈部分银行和支付机构[http://www.pbc.gov.cn/goutongjiaoliu/113456/113469/4273265/index.html](http://www.pbc.gov.cn/goutongjiaoliu/113456/113469/4273265/index.html)
 
-5、中共对维吾尔族少数民族和在自己境内的独立宗教活动采取了野蛮行动。
+[3] 比特大陆官方证实：近期矿机现货全球停售 [https://finance.sina.com.cn/blockchain/coin/2021-06-23/doc-ikqcfnca2782637.shtml](https://finance.sina.com.cn/blockchain/coin/2021-06-23/doc-ikqcfnca2782637.shtml)
 
-漏掉了中共对南海、东海的非法领土主张，军事扩张的罪行。
+[4] World’s Top Bitcoin Mining-Rig Maker Halts Sales as Clients Flee [https://www.bloomberg.com/news/articles/2021-06-23/world-s-top-bitcoin-mining-rig-maker-halts-sales-as-clients-flee?sref=3REHEaVI](https://www.bloomberg.com/news/articles/2021-06-23/world-s-top-bitcoin-mining-rig-maker-halts-sales-as-clients-flee?sref=3REHEaVI)
 
-这样的语句献给中共：“中共赤裸裸的侵略、挑衅达到了创纪录的水平”，反映了美国知识界对中共目前的认知。不能说美国人的认知有多高，是爆料革命、新中国联邦的积极努力的结果，也是中共这个恶魔太作的后果。
+[5] Bitmain Stops Sales of Mining Machines in Bid to Buoy Prices Facing China’s Crackdown [https://www.coindesk.com/bitmain-bitcoin-mining-china-sales-mining-machines](https://www.coindesk.com/bitmain-bitcoin-mining-china-sales-mining-machines)
 
-邪共，你真该“百年”了！
+[6] 刘鹤主持召开国务院金融稳定发展委员会第五十一次会议 [http://www.gov.cn/xinwen/2021-05/21/content\_5610192.htm?ivk\_sa=1023197a](http://www.gov.cn/xinwen/2021-05/21/content_5610192.htm?ivk_sa=1023197a)
 
-原文链接：
+[7] Chinese Crypto Miner Airlifts Bitcoin Mining Operation To Maryland Amid Crackdown  [https://www.zerohedge.com/crypto/chinese-crypto-miner-airlifts-bitcoin-mining-operation-maryland-amid-crackdown](https://www.zerohedge.com/crypto/chinese-crypto-miner-airlifts-bitcoin-mining-operation-maryland-amid-crackdown)
 
-[https://www.foxnews.com/opinion/china-us-leadership-bennett-hanson-black](https://www.foxnews.com/opinion/china-us-leadership-bennett-hanson-black)
+[8] Go West, Bitcoin! Unpacking the Great Hashrate Migration [https://www.coindesk.com/bitcoin-unpacking-hashrate-nic-cart-migration](https://www.coindesk.com/bitcoin-unpacking-hashrate-nic-cart-migration)
 
-+1
+[9] 2021年6月22日 文贵先生盖特 3 [https://gnews.org/zh-hans/1342579/](https://gnews.org/zh-hans/1342579/)
+
+[10] The Looming Threat of China: An Analysis of Chinese Influence on Bitcoin [https://arxiv.org/pdf/1810.02466.pdf](https://arxiv.org/pdf/1810.02466.pdf)
+
+[11] 郭爆料串珠（259）数字化、国际化的人民币可分分钟摧毁美国和欧元经济[https://gnews.org/zh-hans/1305771/](https://gnews.org/zh-hans/1305771/)
+
+[12] 【字幕】6/8/2021文贵盖特：美军即将长期派驻台湾，宣布台湾成为主权独立的国家，意味着什么？ [https://gnews.org/zh-hans/1308014/](https://gnews.org/zh-hans/1308014/)
+
+[13] 郭爆料串珠（263）数字货币时代的到来意味着什么？ [https://gnews.org/zh-hans/1327269/](https://gnews.org/zh-hans/1327269/)
+
+[14] 郭爆料串珠（264）爆料革命如何对付中共数字货币？[https://gnews.org/zh-hans/1327451/](https://gnews.org/zh-hans/1327451/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
++2

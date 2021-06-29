@@ -1,39 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音TikTok的中国母公司可以访问美国用户数据
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1358287/)
+## 6月28日美国政要反共推文精选：中共国 COVID-19 赔偿法案
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1358785/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28192706/https-specials-images.forbesimg.com-imageserve-5ecf13001f4c83000768e195-0x0-1.jpg)图片来源：Forbes
-据《国家脉动》6月26日报道，抖音公司内部人士透露应用程序TikTok的中国母公司字节跳动（ByteDance）可以暗中访问用户数据，在CNBC的一份报告中指称两家公司之间的界限”非常模糊，几乎不存在”。
-
-这份爆炸性的报告，验证了特朗普政府在美国禁止该应用程序所做的努力，而拜登政府决定允许抖音(TikTok)继续运营，甚至欢迎抖音玩家（TikTokers）进入白宫参加”简报”。
-
-抖音的一名招聘人员和其他四名前雇员告诉CNBC，他们对这个流行的社交媒体应用程序的中国母公司感到担忧，他们说该公司可以接触到美国用户数据，并积极参与洛杉矶公司的决策和产品开发。
-
-《国家脉动》发现前字节跳动首席执行官承诺利用其平台促进社会主义核心价值观和对中国共产党的奉献，使两家公司之间的关系更加令人担忧。
-
-报告中有几名员工作证并着重强调，”字节跳动（ByteDance）的员工能够访问美国的用户数据“。在TikTok工作的一名美国员工需要获得一份全球用户（包括美国人）的名单，他们搜索或与特定类型的内容互动，这意味着搜索特定术语或标签的用户或喜欢特定类别的视频，这名员工不得不与中国的一个数据团队联系，以获取这些信息。该员工收到的数据包括用户的特定ID，他们可以调出抖音TikTok关于这些用户的任何信息。这类情况被第另一员工证实是经常发生的。
-
-抖音员工透露，”抖音与其母公司之间的密切联系远远超出了用户数据”，然后描述了字节跳动如何控制”各种决策的方向和批准，无论是小合同还是关键战略”。母公司字节跳动甚至控制了抖音的算法开发，这些算法被用来收集用户的生物识别数据，包括”脸部指纹和声纹”。
-
-抖音对字节跳动的依赖延伸到了其技术。前员工说，抖音的产品开发几乎100%是由中共的字节跳动员工领导。两者之间的界限非常模糊，以至于多名员工描述说他们拥有两家公司的电子邮件地址。一名员工说，招聘人员经常发现自己在为两家公司的职位寻找候选人。
-
-《国家脉动》以前对抖音与中共的关系进行了大量报道，包括雇用前外交官担任高级职位。还最近披露了TikTok 如何聘请Facebook 使用的极左“事实核查员”来压制有关中共的报道。
-
-美国用户的数据，包括生物识别等被通过中共包装的公司统统纳入囊中，美国的老百性不知情，但是美国政府应该保护美国人民的用户数据安全，明令禁用这样的应该程序。
-
-原文链接：
+众议员莫·布鲁克斯： 感谢众议员[email protected] 和 [email protected] 成为我的《中国 COVID-19 赔偿法案》的原始共同发起人。该法案规定中国应对 COVID-19 ，及其撒谎和掩盖负责，并要求中共国向美国家庭和企业支付赔偿金
 
 
 
-> [TikTok Insiders Reveal Chinese Parent Company Can ‘Access U.S. User Data.’](https://thenationalpulse.com/news/tiktok-insiders-reveal-chinese-parent-company-can-access-u-s-user-data/)
+> Thanks to [@DesJarlaisTN04](https://twitter.com/DesJarlaisTN04?ref_src=twsrc%5Etfw) & [@RepCawthorn](https://twitter.com/RepCawthorn?ref_src=twsrc%5Etfw) for being original cosponsors of my China COVID-19 Restitution Act. This bill establishes that China is responsible for COVID-19, lied & covered it up, & requires China to pay restitution to American families and businesses. [pic.twitter.com/WzBDmeyxDY](https://t.co/WzBDmeyxDY)
+> — Mo Brooks (@RepMoBrooks) [June 28, 2021](https://twitter.com/RepMoBrooks/status/1409585812291739650?ref_src=twsrc%5Etfw)
 
 
 
-* * *
+参议员玛莎·布莱克本： 北京对COVID的掩盖跨越各大洲。他们对我们的机构和专职官员撒谎，大型科技公司和媒体也随之起舞。要想消除 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的影响，就必须让所有美国人都意识到 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的威胁。 【附福克斯新闻：前国安顾问麦克法兰说：新冠病毒有第二层掩盖 – 我们知道有中共国，另外一个在美国吗？】
 
-发稿 Spirit
 
-0
+
+> Beijing’s COVID coverup crossed continents. They lied to our institutions and career officials, and big tech and the media went along with it. If we want to eliminate China’s influence, we must make all Americans aware of the threat posed by the CCP.[https://t.co/WC2lSoY3TG](https://t.co/WC2lSoY3TG)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 28, 2021](https://twitter.com/MarshaBlackburn/status/1409556182235324420?ref_src=twsrc%5Etfw)
+
+
+
+众议员克里斯·斯图瓦特： 我们需要停止奖励不良行为，开始追究中国的责任。共和党人正计划这么做。 这不应该是一个党派问题。我敦促我的民主党同事与我们一道，为美国人民要求透明度和公正。 （转麦卡锡的推文）
+
+
+
+> We need to stop rewarding bad behavior and start holding China accountable. Republicans have a plan to do exactly that.
+> 
+> This shouldn't be a partisan issue. I urge my Democratic colleagues to join us in demanding transparency and justice for the American people. [https://t.co/WqB7PmVFCj](https://t.co/WqB7PmVFCj)
+> — Rep. Chris Stewart (@RepChrisStewart) [June 28, 2021](https://twitter.com/RepChrisStewart/status/1409507860527071233?ref_src=twsrc%5Etfw)
+
+
+
+众议员共和党领袖凯文·麦卡锡： 我们需要让中国为掩盖新冠肺炎疫情负责↴ 1 . 解密情报，让世界知道真相。 2. 允许美国人就损害赔偿起诉中国政府。 3. 将2022年奥运会迁离北京。
+
+
+
+> We need to hold China accountable for its COVID coverup ↴
+> 1st: Declassify intelligence so the world knows the truth.
+> 2nd: Allow Americans to sue the Chinese government for damages.
+> 3rd: Relocate the 2022 Olympics away from Beijing. [pic.twitter.com/IviZGc8jE4](https://t.co/IviZGc8jE4)
+> — Kevin McCarthy (@GOPLeader) [June 28, 2021](https://twitter.com/GOPLeader/status/1409502789957570566?ref_src=twsrc%5Etfw)
+
+
+
++1
