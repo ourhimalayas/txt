@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 羅馬梵蒂岡的貴賓布林肯
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1358120/)
+## 【新闻速递】BBC News 美国在伊拉克和叙利亚的空袭&#8211;针对伊朗支持的民兵组织
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1358511/)
 
-消息來源：意大利晚報（corriere.it）
-發佈時間：2021年06月28日
-翻譯/整理/簡評：蕭亦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28163843/ita-usa.jpg)
-美國國務卿安東尼·布林肯昨天抵達羅馬，今天早上在梵蒂岡與教皇弗朗西斯會面，然後與外交部長路易吉迪馬約舉行了伊希斯峰會，並在場外舉行了有關敘利亞問題的部長級會議。
-
-引自美聯社的報導，羅馬為布林肯舉行了貴賓招待會，並以私人身份參觀了西斯廷教堂。布林肯的前任邁克·蓬佩奧(Mike Pompeo) 去年9 月訪問梵蒂岡之前，曾在一份保守的天主教雜誌社論中警告了梵蒂岡曾與中共國達成的雙邊協議，會使教會有可能“失去其道德和權威，但是當時教皇拒絕接受它。
-
-此次，布林肯還見到了國務卿帕羅林樞機主教和羅馬教廷“外交部長”保羅加拉格爾大主教。上週五，加拉格爾大主教在為黎巴嫩祈禱日發言時回答了羅馬教廷是否關注香港局勢的問題：“黎巴嫩是我們認為可以做出貢獻的地方，我們在香港看不到這種可能性” 。一些人認為，這是打破對中共國沉默的一種方式。
-
-
-```
-同時氣候變化也是此次會議的議題之一，另外全球反伊希斯聯盟峰會也正在進行中，布林肯與意大利外交部長路易吉·迪馬約(Luigi Di Maio) 齊聚一堂，同時83個成員國的代表也都參加了。下午3點，美國國務卿將參加敘利亞問題會議。下午與首相馬里奧·德拉吉會面，隨後與塞爾吉奧·馬塔雷拉總統會面。
-```
+翻译 纽约香草山健身部 Ivy001
 
 
 
-```
-簡評：此次佈林肯到訪意大利的意義非常重大，他的第一站是梵蒂岡，可見此時梵蒂岡代表的天主教會力量在當今世界複雜且嚴峻的形勢下，美國政府方面是極其著力注重的。我們期待關於兩國合作方面更多更積極的消息能夠被報導出來。
-```
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25100350/WhatsApp_Image_2020-10-24_at_04.33.05-2.jpeg)
 
 
 
-```
-（本文只代表譯者觀點，與Gnews無關）
+美国表示，它已经对伊拉克-叙利亚边境附近由伊朗支持的民兵进行了空袭，以回应无人机对其驻伊拉克部队的袭击。
 
-发表：萧亦
-```
+五角大楼发言人说，打击的目标是三个地方的 “行动和武器储存设施”。
+
+他补充说，拜登总统已经明确表示，他将采取行动保护美国人员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28205443/Untitled-design-2021-06-28T185308.102.png)图片来源：AFP
+一个强大的伊拉克民兵联盟 “人民动员力量”（PMF）说，一个派别的四名成员被杀，并威胁要进行报复。
+
+作为支持当地安全部队打击圣战组织 “伊斯兰国”（IS）的全球联盟的一部分，大约有2500名美国军队在伊拉克。
+
+美国官员说，自4月以来，至少有5架无人机对他们使用的设施进行了袭击。火箭弹也经常射向他们。
+
+https://www.bbc.com/news/world-middle-east-57633360
+
+校对/发稿：火内
 
 
-新聞鏈接：[https://www.corriere.it/america-cina/2021/06/28/blinken-roma-raid-usa-contro-milizie-filoiraniane-apple-vs-microsoft-guerra-titani-86786496-d7e6-11eb-b949-f9df7b28a0a6.shtml](https://www.corriere.it/america-cina/2021/06/28/blinken-roma-raid-usa-contro-milizie-filoiraniane-apple-vs-microsoft-guerra-titani-86786496-d7e6-11eb-b949-f9df7b28a0a6.shtml)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/23103209/6_june-5.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

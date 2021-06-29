@@ -1,46 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《法兰西晚报》：中共国的人脸识系统来到了欧盟的大门口
-` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1358066/)
+## 印度向中印边境增兵5万—— 中共呼吁印度降低紧张情势
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1358545/)
 
-#### 翻译：Ikonic 校对：GokuAbuela
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28170705/cover-8.jpg)
-[新闻来源《法兰西晚报》](https://www.francesoir.fr/politique-monde/la-reconnaissance-faciale-chinoise-arrive-aux-portes-de-lunion-europeenne)
+2021年6月28日
 
-中共国是监控领域的一个“模范”：除了在企业、监狱和边境部署他们的生物识别技术外，专门经营监控软件的中共国公司开始向世界各地出口他们的技术，远至塞尔维亚，这个国家还是进入欧盟的候选国家。
+![]()![](https://gdb.voanews.com/FEBB08FF-FBAC-4B2F-AF76-63F199434361_w1597_n_r1_st.jpg)
 
-**华为在贝尔格莱德安装面部识别系统****
-**
-近几个月来，塞尔维亚首都的街道上安装了一千个华为面部识别视频监控摄像头。亚历山大·武契奇与中共国有着良好的关系， 他们从2019年开始了一个名为平安城市的视频监控系统的筹备工作。
+**新闻摘要：**
 
-**塞尔维亚申请加入欧盟**
+印度已增派最少5万名士兵到中印边境。
 
-欧洲议会议员、欧洲绿党成员，格温多林·德尔博斯·科菲尔德6月1日星期二警告说，塞尔维亚可能正在利用面部监控技术来监控本国人民，以控制反对者的声音，况且这种技术在中共国已经应用成熟了。
+印度军方过去在中印边界的策略是防堵中方的行动；而新的军队部署将让印度指挥官有更多的选择，必要时可以攻击和夺取中国领土。这一做法被称为“进攻性防守”战略。
 
-据格温多林·德尔博斯·科菲尔德说，这些摄像头是免费的，是在塞尔维亚行政部门工作的中共国专家对摄像头进行维护。今年4月欧盟委员会提出了关于人工智能的法规草案正在等待批准。该法规计划禁止在公共场所进行面部识别，但是对于反恐用途还是留了一道后门。
+目前部署在中印边境的印度兵力已经增加到20万人，比去年增兵约40%。
 
-格温多林·德尔博斯·科菲尔德强调，塞尔维亚需要规范这种技术的使用，以保护个人隐私并避免滥用。
+目前令人担心的是任何误判都有可能引发更激烈的冲突。彭博社引述印度准将、前北方军区陆军司令胡达（DS Hooda）的话说，“双方都会在争议地区强势巡逻。一个小小的局部事件都可能导致失控，带来预料之外的后果”。
 
-**监控摄像头是可以的，但是只能用于监控交通
+中国外交部发言人汪文斌28日回应指，中印边境局势整体稳定，双方正通过谈判解决有关边境事态。汪称，“在中印边境局势的这种背景下，有关军政要员的言行和军事部署应当有利于局势的缓和降温、有利于增进双方的互信，而不是相反。”
 
-**塞尔维亚数据保护局专员米兰·马里诺维奇说：这些摄像头“不使用面部识别的应用，主要目的是用来监控交通状况和确保公民安全”。
-
-塞尔维亚专注于数字领域的人权组织“分享基金会”的联合创始人Djordje Krivokapic一直在跟踪“安全城市”计划。他说该技术的部署是不透明的。该协会称，该系统可以通过身份证照片识别和定位一个人，知道他或她去了哪里。软件还有更高级的功能，比如根据特定案例的行走方式对他们进行跟踪和识别。
-
-**塞尔维亚变成对抗民主的特洛伊技术木马
-
-**中共国和塞尔维亚之间的友好关系由来已久。正如西班牙报纸《El Pais》的一篇文章所说的那样。在2007年至2017年期间，巴尔干共和国已经从中共国获得了低息贷款，发展价值约30亿美元（24.79亿欧元）的基础设施。
-
-这笔资金大部分被用于开发连接贝尔格莱德和布达佩斯的高速铁路。在高铁专家安德烈斯·奥尔特加看来，中塞联手说明了中共国通过拉拢欧洲的薄弱国家而向欧洲靠拢。奥尔特加认为，通过在贝尔格莱德部署面部识别系统，这个亚洲巨人准备用触及我们自由民主概念的问题敲开欧洲的大门。
-
-* * *
+[新闻链接](https://www.voacantonese.com/a/india-shifts-50-000-troops-to-china-border-while-china-calls-on-india-to-ease-tensions-20210628/5945737.html)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
 0

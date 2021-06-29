@@ -1,19 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本防长阐述中共威胁
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1358175/)
+## 意大利称其与美国的关系比与中国的关系更重要些
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1358584/)
 
-翻译：神奇四侠
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28180056/1000x-1.jpg)
-日本国防部国务大臣中山泰秀周一在对总部设在华盛顿的哈德逊研究所的采访中说：“我们不是台湾的朋友，我们是兄弟，如果台湾发生什么事，就会直接关系到冲绳县，中共导弹已经有可能瞄准美国东海岸和白宫。”同时拿着一张显示中国最新JL-3洲际弹道导弹射程的地图。
+2021年6月28日
 
-上个月，防卫大臣岸信夫在接受《日经新闻》采访时说，日本将增加其军事开支，超过其国内生产总值1%的传统上限。一位中共发言人将这些言论描述为日本正试图发起一场军备竞赛的证据。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28214150/0-34.jpeg)
 
-中山称赞乔-拜登总统的对华和亚洲政策，称其比其前任川普的政策更有力。在美日密切关系的基础上–首相菅义伟是第一个在白宫访问拜登的国家元首–中山鼓励美国为中共的军事力量和对台湾的领土入侵做好准备。
+**新闻摘要：**
 
-新闻来源：[彭博社](https://www.bloomberg.com/news/articles/2021-06-28/japan-defense-official-outlines-threat-from-more-assertive-china)
+意大利外交部长路易吉·迪马约周一称，意大利与美国的关系比意大利与中国的关系更重要些。
 
-校对发稿：Ada （马德里）
+意大利上一届政府在2019年与北京签署了“一带一路”的倡议，美国对此表示不安。迪马约在美国国务卿安东尼·布林肯的新闻发布会上说：“我们与中国是强大的贸易伙伴，我们有历史关系，但是二者完全不能相提并论，不会影响我们与美国的价值联盟。”
+
+[新闻链接](https://sputniknews.cn/politics/202106281033969522/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

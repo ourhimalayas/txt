@@ -1,47 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】《港版国安法》下，香港媒体人人自危
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1358166/)
+## 福克斯称中共的侵略与挑衅达到创纪录水平
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1358531/)
 
-作者：纽约香草山香港部 Jenson
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28210454/C-14.jpg)俄罗斯莫斯科喀秋莎农场
+《福克斯新闻》发表文章，题目为“布莱克（Black）、班纳特（Bennett）、汉森（Hanson）：中共赤裸裸的侵略、挑衅达到了创纪录的水平，美国的领导地位在哪里？”文章摘要指出，全世界都在注视着香港人民被系统地改造成与中共国公民那样缺乏可行使的人权自由。
 
+全文如下：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+在香港《大纪元》（the Epoch Times）办公室被袭击几个月后，香港的《苹果报纸》也遭关闭，中共国提高了赤裸裸的侵略和挑衅西方的程度，这是自尼克松总统1972年中共国之旅以来的最高点。
 
+中共国实际上是被当场抓获的（说轻一点是无意泄露），无论病毒的起源和传播的确切情况如何，这相当于针对世界各个地区实施了生物战。
 
+毫无疑问，中共病毒是从武汉病毒实验室泄露出来的，中共人隐瞒了这次病毒泄漏的严重性，并对病毒的来源进行了混淆和撒谎。在关键的几个星期里，北京没有采取任何措施限制其向世界其他地区的传播，并唆使世界卫生组织证实其对公共卫生危机的虚假陈述。
 
-网媒《立场新闻》发出声明，将会把今年5月份及之前刊出的文章全部下架，并停止接受赞助。其母公司的六名董事包括馀家辉、周达智、吴霭仪、何韵诗、方敏生及练乙铮均会辞去董事职务，但他们表明会继续运作该网站。（详见相关链接）
+自那时以来，它几乎没有采取任何行动，却阻碍和误导了随后为国际（健康安全）利益而寻找这一疫情真正起源的努力。
 
-![file]()![file](https://chinadigitaltimes.net/chinese/files/2021/06/image-1624874938382.png)图源网路
+中共领导层公然违反了与英国达成的香港协议，这个协议承诺在香港移交给中共国的50年内继续保留个人权利和司法正当程序。
 
-点评：随着“苹果日报”被迫停刊，本港另一大独立媒体——立场新闻——在所谓“国安法”的淫威下可谓壮士断腕，一连祭出多道措施，包括暂停收取赞助。虽然立场新闻尚有多个月的财政储备，但在目前香港的政治环境下，任何私人和公司的资产可以被港共政府随意冻结。至此，香港延续了一百多年的普通法体系犹如中共的宪法一样，已经名存实亡了。而今，香港一切都以“国安法”为尊，而“国安法”就是中共意志的延续。为此，“立场新闻”当下只有两条道路可走：一是像“大公报”或“文汇报”一样，变身为中共喉舌；二是像“苹果日报”一样被迫关闭，资产冻结。但我相信，“立场新闻”绝不会选择第一条道路。以“立场新闻”一贯的坚持和操守，它一定会坚持到最后一刻，宁可站着死，绝不跪着生。这次“立场新闻”把中共的极权残暴又一次展现给全世界和台湾民众，以香港媒体和香港人的无畏牺牲唤醒尚未觉醒的民众。
+全世界都在注视着香港人民被系统地改造成为中共国公民那样缺乏可行使的人权自由。中共的军机飞越台湾领空的事件，从某个角度来看台湾被中共国认为是自己的一部分，尽管实际情况并非如此。只要按（台湾）自己的意愿，可以与大陆统一，然而，当着全世界的面，中共公然而骄傲地撕碎与英国的一项严肃条约协定，这又是另一回事。英国是联合国的共同创始会员国，也是世界上最重要和最受尊重的国家之一。
 
-参考阅读：
+中共国无视美国对伊朗石油出口的制裁，率先恢复了被禁运伊朗的经济，它对全面违反其贸易和货币政策承诺的行为仍然完全没有歉意。
 
-[《立场新闻》下架今年5月前刊出文章 停收赞助、母公司六名董事辞职](https://www.inmediahk.net/node/%E5%AA%92%E9%AB%94/%E3%80%8A%E7%AB%8B%E5%A0%B4%E6%96%B0%E8%81%9E%E3%80%8B%E4%B8%8B%E6%9E%B6%E4%BB%8A%E5%B9%B45%E6%9C%88%E5%89%8D%E5%88%8A%E5%87%BA%E6%96%87%E7%AB%A0-%E5%81%9C%E6%94%B6%E8%B4%8A%E5%8A%A9%E3%80%81%E6%AF%8D%E5%85%AC%E5%8F%B8%E5%85%AD%E5%90%8D%E8%91%A3%E4%BA%8B%E8%BE%AD%E8%81%B7?__cf_chl_captcha_tk__=00aa34348582c9d6d2a279da49490ba7f975af4f-1624875685-0-AfS_tOoQLEVfrR6t7nbEBGSZHKQ8OIqRnJ5jLA3vmeuKs6hHDc9Qp83BRPWQOMID4T00CkfgBEC66BHzh5Ge9YX7ulFLCR8ZtqdfCXwHGYfXI2D5psHYc2GCVns7WmAHMEdkgE6xjam2DeoystjRri2NX8YEoVRw59efXuBoBT_JGpt_2sPVTh6dbYZ7WAWSI7EhHejwI38N7HrDYq0ZiyW7ewCmGn77cLZPpfVdWO5-VLKU-Gx85McbY92K7kSqXIk5jV34I2B_6XXOgOZ9d7vJqtGURf74K5iv4cPR7M0I0sNNyuGs0A5ZwvsAvmf9-q3YGie2U0AOaDCCookwGCaBuS8-8qv9IaSprtvrTymh5Zk4U0RWY_7JsKLfYaulAlESvooZHqDaWW0CqMaZvUn2sXcPJA5wR6OpXhYBpIgigwbbxAL-VjTHb3Kl9RT0N7mf-YAYA9y0VUFBmY5Up8ePhwCd7AVEqNpuetbyPSCfdz-9_rSRvAKWm2i-xB-u5JLB80J6383C05logoXbdkYeg0oWSkr1IGB2aZB2MqG5xuWHeRdtjuygx0tYxd7zpeWop_tMQb7Dnw1iT2OsWGXJmCYjWtIloMNrpj1YTSg-14b0iV0BMQjHU3Q2WoZQ5MY9AEJqBFwXltep4dl39W40rL1_SxUwa7_2Yqb181mVJrThfFjwZRn0cAvUKVbf3Vq2oZ-ulGHsdMVk-XJtTpk2_IQ8mu2l_4UX5T4pywcYnhV-ydbzv-Zpgfqf0lPVejDPzQOl9wXt-y75jgnrMV-17w6bD5u5A_yRGeD2xF-s9doE5qCgFcBONkGL6CFihFuy0_yq95OMO6IHPVDyVpJPDcMKmD7vEOLKBXOS_CK6tJCZklIwbOfBb3Q_cQR_NlvBcCW5pG4wKIbtSxbw9q1-v3vymYeRxnzB1R8-avYZWN6_1kDqsRwewNrNBhVw9Av7ZF6UL3Fmtlb4iI4THhM4s8bzAFvsVWqS4jT-TvwH)
+迫切的问题是，拜登政府是否以及何时会对中共的挑衅和威胁，以及中共对维吾尔族少数民族和在自己境内的独立宗教活动的野蛮行径作出适当地回应？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
+诚然，本届政府偶尔会发出有目的的声音，但无论是在两个月前国务卿布林肯在安克雷奇（Anchorage）会见中共外长的会议上，还是拜登总统上周在康沃尔（Cornwall）发表的评论中，都没有任何迹象表明他有意采取实实在在的措施。
 
-编辑/校对/发稿：Irene木木
+显然，除了英国人之外，欧洲人对香港事件表现愤怒，但如果没有美国的鼓动他们却什么也不会做。
 
-**更多资讯，更多关注**
+最终，美国将不得不让人们知道，它不会容忍对台湾的恐吓，它必须提醒世界，如果中共国不履行其贸易和货币政策承诺，那么美国将加强对中共国的关税政策，实施制裁，减少任何不遵守制裁的国家进入美国市场的机会。即使欧洲目前像可怜的无脊椎动物那样表现得贪婪胜过恐惧，并且不停抱怨的情况下，如果美国有行动，欧洲也将效仿美国。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+问题是，美国何时能表现出领导才能，让北京承担责任？中共国过于自信，全世界都持怀疑态度，会得出这样的结论，即美国正在衰落，中共国正在崛起。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+《福克斯新闻》的撰稿人比尔·贝内特（Bill Bennett）、维克多·戴维斯·汉森（Victor Davis Hanson）和历史学家兼作家康拉德·布莱克（Conrad Black）是播客《学者与理性》（Scholars & Sense.）的共同主持人，加入他们讨论当今的问题，超越喧嚣和话题，直达问题的核心。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+威廉J.贝内特（William J. Bennett）是《福克斯新闻》的撰稿人，曾任美国教育部长（1985-1988年）和国家药物管制政策（the National Office of Drug Control Policy）办公室主任，他是美国在文化、政治和教育问题上最有影响力和最受尊敬的声音之一。他的最新著作是他广受好评的三部曲《美国：最后最好的希望》（America: The Last Best Hope）托马斯·纳尔逊（Thomas Nelson）的一本单行本；一卷版（2019年10月22日），讲述了我们这个非凡国家的鼓舞人心的故事。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+维克多·戴维斯·汉森（Victor Davis Hanson）是美国伟大中心的杰出成员，他写了20多本书，从古希腊到现代美国，他住在加利福尼亚州的塞尔玛（Selma, California）。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（全文完）
 
+这篇文章也算是为中共百年的献礼之作，悉数了中共五宗罪：
 
+1、重罪、死罪是向“世界各个地区实施了生物战，隐瞒了这次病毒泄漏的严重性，对病毒的来源进行了混淆和撒谎，唆使世界卫生组织进行虚假陈述，阻碍和误导世界寻找这一疫情真正起源的努力”；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+2、公然违反了与英国达成的香港协议，将香港人民系统地改造成为中共国公民那样缺乏可行使的人权自由；
 
+3、中共的军机飞越台湾领空，武力炫耀、恫吓恐吓，破坏台海局势；
 
+4、中共国无视美国对伊朗石油出口的制裁，恢复被禁运伊朗的经济，全面违反了贸易和货币政策的承诺；
 
-0
+5、中共对维吾尔族少数民族和在自己境内的独立宗教活动采取了野蛮行动。
+
+漏掉了中共对南海、东海的非法领土主张，军事扩张的罪行。
+
+这样的语句献给中共：“中共赤裸裸的侵略、挑衅达到了创纪录的水平”，反映了美国知识界对中共目前的认知。不能说美国人的认知有多高，是爆料革命、新中国联邦的积极努力的结果，也是中共这个恶魔太作的后果。
+
+邪共，你真该“百年”了！
+
+原文链接：
+
+[https://www.foxnews.com/opinion/china-us-leadership-bennett-hanson-black](https://www.foxnews.com/opinion/china-us-leadership-bennett-hanson-black)
+
++1

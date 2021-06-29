@@ -1,38 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国《世界报》：刚果和中共国同意重组刚果债务
-` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1358029/)
+## 意微生物学教授承认“ 我们把意大利人都当成了实验室中的豚鼠， 将其置于危险之中”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1358230/)
 
-#### 翻译：Ikonic 校对：GokuAbuela
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28161812/cover-7.jpg)China’s President Xi Jinping (R) and Congo President Denis Sassou Nguesso listen to their national anthems during a welcoming ceremony inside the Great Hall of the People in Beijing on September 5, 2018, a day after the conclusion of the Forum On China-Africa Cooperation. (Photo by Lintao Zhang / POOL / AFP)
-[原文链接](https://www.lemonde.fr/afrique/article/2021/06/22/le-congo-et-la-chine-conviennent-de-restructurer-la-dette-congolaise_6085162_3212.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1624356741-2)
+新闻来源： mementoius.altervista.org
+发布时间：2021年6月28日
+翻译整理/简评： 小白鸽
 
-刊发日： 2021/6/22
+安德烈•克里桑迪是意大利巴多瓦大学微生物学教授。他时而站在国家卫生部门一边， 现在似乎对他对他先前的立场有所悔悟， 他近期的言论是具有一定的分量。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28190746/%E6%84%8F%E5%A4%A7%E5%88%A9%E5%AE%89%E5%BE%B7%E7%83%88%E2%80%A2%E5%85%8B%E9%87%8C%E6%A1%91%E8%BF%AA%E6%95%99%E6%8E%883.jpg)（资料图：帕多瓦大学微生物学教授Andrea Crisanti）
+在6月22日他参加了意大利电视台La 7 Tagadà节目中， 克里斯桑迪承认疫苗是具有实验性的，是没有告诉百姓其危险性， 因此每个人都成了实验室中的豚鼠。微生物学家说我们每个人都对接种疫苗的安全性深信不疑而实际上并不存在可靠性。最后他对意大利卫生系统的做法改变了立场。他说他们给成千上万的百姓注射了疫苗却不知道其后果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28190647/%E6%84%8F%E5%A4%A7%E5%88%A9%E5%AE%89%E5%BE%B7%E7%83%88%E2%80%A2%E5%85%8B%E9%87%8C%E6%A1%91%E8%BF%AA%E6%95%99%E6%8E%882.jpg)（资料图：帕多瓦大学微生物学教授Andrea Crisanti）
+现在会发生什么？如果四千五百万接种了中共疫苗的意大利人中的20%或30%有不良反应该怎么办？这种情况下上百万人的死亡谁来负责？这些政治机构和医疗体系都会为自己洗地。而有利益相关的公司的金库却在不断地膨胀，在这种情况下该怎么办？很简单，应该停止接种疫苗直至掌握足够有关疫苗安全性的数据。不能让百姓冒着牺牲健康的危险而接种疫苗，况且新冠病毒并不致命。同时，应该加强相应的医疗设施， 要重新使用许多药品（像羟氯喹等），这是出于金钱利益让人们去接种疫苗而将那些有用之药搁置在一边。
 
-来自布拉柴维尔的官方消息称，刚果总统德尼·萨苏·恩格索和中国国家主席习近平在6月21日星期一的电话会晤中同意重组刚果对北京欠下的巨额债务，这使得这个中非国家无法恢复与国际货币基金组织（IMF）的谈判。
+简评：随着时间的推移，接种中共病毒疫苗人数的不断增加，由病毒所带来的各种不良反应也越来越明显。欧洲民众也越来越清晰地看到中共病毒疫苗带来的危害，人们也开始提出一些尖锐的问题，是金钱利益驱使人们去打中共病毒疫苗。
 
-刚果财政部长Rigobert Roger Andely告诉记者：*“*债务问题是由两位总统提出的，萨苏·恩格索总统向他的同僚提出了这个问题……第二次债务重组的提议*”。“*习近平主席批准了[该请求]”，他补充道。
+免责声明：本文评论只代表作者观点，不代表GNEWS平台观点
 
-Andely先生解释说：“这次重组是为了让刚果有更多的资源来满足国内的需求，清楚与国际货币基金组织的障碍，保持良好关系”。他补充道：中共国和刚果的专家“有能力建立债务重组的模式和条件”*。*
+[原文链接](https://mementoius.altervista.org/crisanti-confessa-abbiamo-usato-gli-italiani-come-cavia-milioni-di-persone-sono-in-pericolo/)
 
-北京方面，中共国新华社也提到了两位领导人之间的电话会晤，但没有提到刚果债务的重组。中国新华社报道，习近平明确表示中国将鼓励中资公司在刚果进行更多投资，尤其是在卫生和农业领域的投资。
+上传：老中医
 
-**刚果债务占比国民生产总值的****110%**
-
-2019年，中共国已经对刚果的债务进行了重组，从而刚果能够与国际货币基金组织达成一项以扩展信贷机制为重点的计划。周一在国民议会上刚果总理阿纳托尔·科利内特·马科索说国际货币基金组织评估的刚果债务占国内生产总值（GDP）的110%，他们认为是 “不可负担的”，非洲中部国家的标准是GDP的70%。
-
-国际货币基金组织已经暂停了对刚果的帮助。由于油价下跌和中共病毒的传播，该国受到经济危机和卫生危机的双重打击。
-
-刚果政府称，刚果欠中共国13,000亿非洲法郎（20亿欧元）。总理马科索估计刚果的总体债务“在2020年12月31日为止达到60,165亿非洲法郎（超过100亿欧元），占国内生产总值的98%”。
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
++2
