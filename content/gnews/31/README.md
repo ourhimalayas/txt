@@ -1,22 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华为5G势力式微，诺基亚跃全球5G基地台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1358880/)
+## 【路德简报】6/28/2021早，拜登下令： 对叙利亚边境伊朗支持的民兵组织进行空袭 对中共敲山震虎
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1358816/)
 
-2021年6月29日
-
-美国带头，各国围堵，华为5G势力式微，诺基亚公告已经拿下165笔5G基地台合约，跃居成为全球5G基地台合约最大供应商。
-
-**[【新闻来源】](https://udn.com/news/story/7240/5564228?from=udn-catelistnews_ch2)**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+编辑：华盛顿DC农场 路德简报项目组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/28232317/20216283-1-scaled.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+> 2021 年6月28日 路德时评 早
+> 
+> 1. 拜登下令： 对叙利亚边境伊朗支持的民兵组织进行空袭 对中共敲山震虎
+> 
+> 2. 金正恩向美国发出正面信号 愿意与拜登政府对话 
+> 
+> 3. 中共国成“ 世界顶级网络威胁” 美中网络空间战开启 
+> 
+> 4.印度： 紧急向中印边境增兵5 万 中印边界印军突破20 万 [pic.twitter.com/8j8S4vndkz](https://t.co/8j8S4vndkz)
+> — 平民爆料 (@WM18320321) [June 29, 2021](https://twitter.com/WM18320321/status/1409704589264265226?ref_src=twsrc%5Etfw)
+
+
+
++1

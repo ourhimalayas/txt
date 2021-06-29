@@ -1,48 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月28日美国政要反共推文精选：中共国 COVID-19 赔偿法案
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1358785/)
+## 【路德社即时简报】 日本大臣称有必要“醒悟”保护台湾
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1359846/)
 
-众议员莫·布鲁克斯： 感谢众议员[email protected] 和 [email protected] 成为我的《中国 COVID-19 赔偿法案》的原始共同发起人。该法案规定中国应对 COVID-19 ，及其撒谎和掩盖负责，并要求中共国向美国家庭和企业支付赔偿金
+作者：香草山翻译部    GBW
 
-
-
-> Thanks to [@DesJarlaisTN04](https://twitter.com/DesJarlaisTN04?ref_src=twsrc%5Etfw) & [@RepCawthorn](https://twitter.com/RepCawthorn?ref_src=twsrc%5Etfw) for being original cosponsors of my China COVID-19 Restitution Act. This bill establishes that China is responsible for COVID-19, lied & covered it up, & requires China to pay restitution to American families and businesses. [pic.twitter.com/WzBDmeyxDY](https://t.co/WzBDmeyxDY)
-> — Mo Brooks (@RepMoBrooks) [June 28, 2021](https://twitter.com/RepMoBrooks/status/1409585812291739650?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031907/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
 
 
-参议员玛莎·布莱克本： 北京对COVID的掩盖跨越各大洲。他们对我们的机构和专职官员撒谎，大型科技公司和媒体也随之起舞。要想消除 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的影响，就必须让所有美国人都意识到 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的威胁。 【附福克斯新闻：前国安顾问麦克法兰说：新冠病毒有第二层掩盖 – 我们知道有中共国，另外一个在美国吗？】
+
+
+2021年6月29日早，路墨娜
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29103121/13-8.png)
+1. 日本防卫省副大臣中山泰秀接受哈德逊智库采访。
+
+a. 中山泰秀称有必要 “醒悟 “以保护台湾这个民主国家，台湾是我们的兄弟和家人。
+
+b. 路德：日本通过哈德逊做舆论铺垫，将来把台湾政府作为一个中国的代表。
+
+c. 路德：如果中共不动手，西方国家对台湾的共识就会变成既成事实。如果中共把日本公司踢出中国，那是经济绑架。这又是给中共的一个坑。
+
+d. 中山泰秀说中（共）国的卫星是太空中的杀手。中共击毁旧卫星，其碎片对其他太空飞行器造成危害。墨博士：中共做法和自杀式炸弹袭击一样。中山泰秀公布太空照片，所以他代表日本政府。
+
+e. 路德：中共利用规则中的漏洞来破坏秩序。
+
+f. 中山泰秀担心中（共）国破坏香港“一国两制”和新疆人权。
+
+g. 中共发言人要求日本澄清。
+
+h. 路德：中山泰秀具有“挑衅”的讲话是对中共的非常规战争的一部分。
+
+笔记仅作参考，内容以路德社节目为准。
 
 
 
-> Beijing’s COVID coverup crossed continents. They lied to our institutions and career officials, and big tech and the media went along with it. If we want to eliminate China’s influence, we must make all Americans aware of the threat posed by the CCP.[https://t.co/WC2lSoY3TG](https://t.co/WC2lSoY3TG)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 28, 2021](https://twitter.com/MarshaBlackburn/status/1409556182235324420?ref_src=twsrc%5Etfw)
+校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29032328/6_june-7.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031907/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
 
 
-众议员克里斯·斯图瓦特： 我们需要停止奖励不良行为，开始追究中国的责任。共和党人正计划这么做。 这不应该是一个党派问题。我敦促我的民主党同事与我们一道，为美国人民要求透明度和公正。 （转麦卡锡的推文）
 
 
 
-> We need to stop rewarding bad behavior and start holding China accountable. Republicans have a plan to do exactly that.
-> 
-> This shouldn't be a partisan issue. I urge my Democratic colleagues to join us in demanding transparency and justice for the American people. [https://t.co/WqB7PmVFCj](https://t.co/WqB7PmVFCj)
-> — Rep. Chris Stewart (@RepChrisStewart) [June 28, 2021](https://twitter.com/RepChrisStewart/status/1409507860527071233?ref_src=twsrc%5Etfw)
 
-
-
-众议员共和党领袖凯文·麦卡锡： 我们需要让中国为掩盖新冠肺炎疫情负责↴ 1 . 解密情报，让世界知道真相。 2. 允许美国人就损害赔偿起诉中国政府。 3. 将2022年奥运会迁离北京。
-
-
-
-> We need to hold China accountable for its COVID coverup ↴
-> 1st: Declassify intelligence so the world knows the truth.
-> 2nd: Allow Americans to sue the Chinese government for damages.
-> 3rd: Relocate the 2022 Olympics away from Beijing. [pic.twitter.com/IviZGc8jE4](https://t.co/IviZGc8jE4)
-> — Kevin McCarthy (@GOPLeader) [June 28, 2021](https://twitter.com/GOPLeader/status/1409502789957570566?ref_src=twsrc%5Etfw)
-
-
-
-+1
+0
