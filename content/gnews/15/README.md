@@ -1,47 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】意大利称其与美国的关系远比与中（共）国的关系更重要
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1359786/)
+## 《路德社》新闻快讯（视频版）: 主要内容：20210628日本副防卫大臣中山泰秀参加Hudson研究所对谈
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1359790/)
 
-配音：香草山录音组 信念7
+《路德社》出品
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+以下视频是详细内容：
+
+主要内容：
+
+1.中共国卫星将在未来超过美国的数量
+
+2.中共国的卫星是卫星杀手
+
+3.中共国用后发卫星干掉之前的卫星
+
+4.被干掉的卫星的碎片将伤害其他国家的卫星
+
+5.民主国家需要思考如何规避中共国在太空带来的危险
+
+评：北约将集体防御扩展至太空
+
+6.中共国违背了97年对香港一国两制的承诺
+
+7.担心香港、维吾尔人的人权
+
+8.愿和美国以及注重人权的国家一起一同思考、行动，倾听独裁政府压迫下的声音
+
+9.我们必须保护台湾作为一个民主国家
+
+10.当现在的孩子长大成人才能给一中政策盖棺定论
+
+11. 台湾不止是朋友，还是兄弟是家人
+
+12. 台湾一旦出事就会威胁到冲绳，包括美军驻冲绳的人员、设施
+
+13.PLA上周28架次军机骚扰台湾，其战舰奔赴台湾以东合围台湾
+
+14. 台湾人会对这种演练感到不安
 
 
 
+翻译：路德社翻译组
 
+制作：路德社视频组
 
+审核校对：玫瑰新闻组
 
-
-路透社罗马6月28日电–意大利外交部长路易吉-迪马约周一表示，罗马与美国的关系要比与中（共）国的关系重要得多。
-
-美国对意大利与中（共）国的联系表示担忧，特别是在前一届意大利政府于2019年与中共签署了“一带一路”基础设施建设倡议之后。
-
-迪马约在与美国国务卿安东尼-布林肯举行的新闻发布会上说：“我们与中（共）国是强大的贸易伙伴，我们有历史性的关系，但这绝对不能与我们和美国的价值观联盟相提并论，也不会干扰它。”
-
-
-
-**文字版原文：[【独立观点】意大利称其与美国的关系远比与中（共）国的关系更重要](https://gnews.org/zh-hans/1358812/)**
-
-作者：纽约香草山健身部 Ivy001
-
-
-
-音频处理/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传排版：玫瑰新闻组
 
 0
