@@ -1,38 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】塔克在节目中指出谷歌在线审查实验室起源论
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1343348/)
+## 【NewsExpress】“死去的老人躺在武汉的人行道上” 获奖作品却是中共治下的悲剧
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1351304/)
 
-塔克在FOX 节目中重磅指出：
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/25202615/22-1-16.jpg)
+这张照片来自法新社驻上海的智利摄影师，当时他与另一位法国记者一起于2020年1月23日抵达武汉（中国中部），而在同一天，该城市被宣布对外封城，他们也是唯一一支来自国际机构的团队，负责报道这段属于武汉这个城市的黑暗时期的人间百态。
 
-Peter Daszak 和 Anthony Fauci 博士对 COVID-19 的真正起源撒谎。谷歌不仅依靠 Daszak 在线审查实验室泄漏理论，而且还资助了他在中国进行的危险研究。一下是视频链接：
+图片中躺在地上的老人孤零零地死在了武汉的人行道上，从他的穿戴和周围无家人，可以看出他是当时成千上万的“倒地死”中的一员，他的周围是穿着全套防护服的救援人员。
 
+虽然只是一张没有任何文字的照片，却胜过千言万语。在中共对媒体极尽能事进行打压的时候，还能流出这样一张在中共永远无法看到的照片，这实际记录的是一段被中共刻意抹去的历史。在武汉疫情最严重的时期，可能随时都会有这样的画面发生，那些消失的手机主人，那一栋栋永远不会亮起灯的民居，那些永远失去父母的孤儿，背后是怎样一段刺痛内心的事实，庞大的死亡数据当有一天真的被公布的时候，我们又该怎么面对这样残酷的事实？
 
+但中共当局却将这段经历描述为伟大的“抗疫胜利”，要向全世界炫耀中共的领导高明。闫博士在竭尽所能拆穿他们的谎言：这不是一场意外，这是蓄谋已久、有战略布局的超限战争。而打响战争第一枪时瞄准的目标居然是中共自己的人民。身为中国人，此时除了愤怒，没有任何其他语言可以形容，这个邪恶的政权已经骗了世界一百年了，从它们决定发起这场战争之日起，就决定了它们的最终结局。任何阻碍人类文明发展的，伤害人类正义善良的行为，终将无法得逞，纳粹如此、皇军如此、中共亦如此。
 
-> Peter Daszak and Dr. Anthony Fauci are lying about the true origins of COVID-19. 
-> 
-> Not only did Google rely on Daszak to censor the lab leak theory online, but they also funded his dangerous research in China. [https://t.co/GcdIVZlnAz](https://t.co/GcdIVZlnAz) [pic.twitter.com/NgSKfqImzT](https://t.co/NgSKfqImzT)
-> — Rep. Matt Gaetz (@RepMattGaetz) [June 23, 2021](https://twitter.com/RepMattGaetz/status/1407501174010486785?ref_src=twsrc%5Etfw)
+（本文只代表作者观点，与Gnews平台无关。）
 
+**素材**：[“死去的老人躺在武汉的人行道上” 法新社摄影今获奖 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210625-%E6%AD%BB%E5%8E%BB%E7%9A%84%E8%80%81%E4%BA%BA%E8%BA%BA%E5%9C%A8%E6%AD%A6%E6%B1%89%E7%9A%84%E4%BA%BA%E8%A1%8C%E9%81%93%E4%B8%8A-%E6%B3%95%E6%96%B0%E7%A4%BE%E6%91%84%E5%BD%B1%E4%BB%8A%E8%8E%B7%E5%A5%96)
 
+***校对发布：文顾***
 
-2021 年 6 月 19 日国家脉动曾经披露：谷歌和美国国际开发署资助了武汉合作者彼得·达扎克 (Peter Daszak) 十多年来的病毒实验。文章指出：至少自 2010 年以来，这家科技巨头的慈善机构 Google.org 一直在资助包括 Peter Daszak 在内的生态健康联盟研究人员进行的研究，并列举了论文：
-
-在 2010 年关于蝙蝠黄病毒的一项研究中，将 Daszak 和生态健康联盟副主席乔纳森·爱泼斯坦列为作者，感谢 Google.org 的资助。
-
-1.Daszak 撰写的 2014 年关于 henipavirus 溢出的研究同样宣称它部分“得到了 Google.org 的支持”。
-
-2.2015，年一篇关于疱疹的论文将 EcoHealth 的 Daszak 和 Epstein 列为作者，该论文显示它“得到了美国国际开发署新兴大流行威胁：PREDICT 计划、斯科尔基金会和 Google.org 的资助。”
-
-3.在2018，生态健康联盟的研究人员撰写了题为这是“工人与野生动物接触中国的血清学和行为风险调查”纸“成为可能”通过Google.org资助。
-
-参考链接：[https://twitter.com/i/status/1407501174010486785](https://twitter.com/i/status/1407501174010486785)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-0
++2

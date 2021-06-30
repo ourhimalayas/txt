@@ -1,49 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音的中共国母公司可以无限制地访问美国数据
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1360627/)
+## 【中共国段子】攻台策略
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1361202/)
 
-**据《newsbusters.org》作者：Autumn Johnson，2021年6月24日报道**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29181358/20210629.png)
-前抖音员工透露，这个受欢迎的社交媒体平台在很大程度上被其中共国母公司控制。
-
-抖音的母公司字节跳动（ByteDance）向中共国政府提供无尽的美国用户数据，因为中共国法律要求其公司”支持、协助和配合国家情报工作”。
-
-抖音的隐私政策允许该平台与字节跳动分享用户数据。
-该政策写道，”我们可以与我们公司集团的母公司、子公司或其他关联公司分享我们收集的所有信息。”
-
-**该平台收集的用户数据是无限的。**
-
-“他们已经收集了关于美国人的千万条数据，”刘易斯说。这是大数据。在美国，他们将其用于广告。而在中共国，中共将其用于情报目的”。外交智库战略与国际研究中心战略技术项目的高级副总裁吉姆·刘易斯告诉CNBC（美国全国广播公司财经频道）。
-
-**与此同时，抖音却淡化了数据共享。**
-
-抖音发言人告诉CNBC：”我们采用严格的访问控制和严格的审批程序，由我们在美国的领导团队监督，包括加密和安全监控等技术，以保护敏感的用户数据。”
-
-而该社交媒体平台的前雇员说，抖音的产品开发几乎都是由字节跳动领导的。网络安全专家说，抖音的隐私政策使用户信息面临中共国政府的潜在信息要求。
-
-加州大学欧文分校网络安全政策与研究所执行主任布莱恩·坎宁安(Bryan Cunningham)告诉CNBC，”如果中共国的法律机构或其母公司要求提供数据，用户已经给了他们合法的权利，可以把数据交出来。”
-
-**过去，中共国政府曾指示审查该平台批评其政府的内容。**
-
-2020年底，抖音的英国公共政策总监Elizabeth Kanter在一次听证会上承认，该平台以前曾审查过批评中共国政府在中共国强迫维吾尔族穆斯林劳动的内容，此后该平台受到了抨击。Kanter后来说她在听证会上说错了话。
-
-**专家说，审查“批评一个国家政府的内容的权力”是有问题的。**
-
-基于加密的网络安全公司Fortanix的首席执行官Ambuj Kumar说：”任何时候（中共国政府）都可以控制像抖音这样拥有数十亿用户，并且只会越来越受欢迎的平台。这让他们有权力向我们的头脑灌输我们应该思考什么，我们认为什么是真理，什么是虚假。”
-
-保守派正受到攻击。请联系你的代表，要求追究大科技公司的责任，以反映第一修正案。同时提供透明度，明确”仇恨言论”和保守派的平等地位。如果你被审查了，请通过媒体研究中心的联系表与我们联系，并帮助我们追究大科技公司的责任。
-
-**原文连接**：[https://www.newsbusters.org/blogs/free-speech/autumn-johnson/2021/06/26/抖音s-chinese-parent-company-has-unlimited-access](https://www.newsbusters.org/blogs/free-speech/autumn-johnson/2021/06/26/抖音s-chinese-parent-company-has-unlimited-access)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – 心照
-编辑：洛杉矶盘古农场 – 心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+【作者】Xingfffooo
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30001204/%E7%AE%80%E4%BD%9315.png)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
+![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
 0

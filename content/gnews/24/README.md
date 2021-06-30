@@ -1,29 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【点睛要闻】无惧中共贸易报复，澳洲就葡萄酒关税向世贸组织提出合理申诉
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1360329/)
+## 【热点播报】地区法官驳回反垄断案后，Facebook市值飙升至1万亿美元以上
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1360972/)
 
-撰稿：待命（文晓），Skagen
+作者：纽约香草山农场   四季
 
-责编：白夜
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29151840/%E5%9B%BE%E7%89%8710-1.jpg)
-[图片来源](https://www.nikkei.com/article/DGXZQOGM25AV90V20C21A6000000/)：nikkei
 
-6月28日，据《日本经济新闻》驻悉尼记者松本史的报道，澳大利亚就葡萄酒制裁关税问题向世贸组织起诉中共国。
 
-世界贸易组织（WTO）也在28日宣布，澳大利亚政府已就中共国对澳大利亚葡萄酒征收不当关税提出申诉。 澳大利亚贸易部长丹·特汉（Dan Tehan）曾在19日就宣布他打算提出申诉。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031855/WhatsApp_Image_2020-10-24_at_04.33.05-3.jpeg)
 
-早在2020年4月澳大利亚总理莫里森（Scott Morrison ）呼吁对中共病毒爆发的来源进行独立调查。中共当时以暂停部分商品进口，并对澳大利亚商品征收高额关税予以报复。 今年3月，中共以澳大利亚不公平的低价出售为由，正式对葡萄酒征收高达218%的反倾销税。
 
-2020年12月，澳大利亚曾向世贸组织申诉，澳大利亚大麦遭受了中国征收额外关税的不公平待遇，而中共国于本月24日宣布向世贸组织起诉澳大利亚对中国产铁路车轮、风机和不锈钢水槽征收额外关税。
 
-很明显，这是中共国对澳大利亚提出追查中共病毒源头而实行的贸易报复措施。中共国一直以经济胁迫澳大利亚，企图压制有关中共病毒的真实信息，并惩罚要求知道真相的人和国家。
+据零对冲报道，周一， 美国华盛顿的地区法官詹姆斯-博斯伯格批准了Facebook的请求，驳回了美国联邦贸易委员会和以纽约的莱蒂亚-詹姆斯为首的各州检察长去年提出的投诉。
 
-但是澳大利亚贸易部长丹·特汉（Dan Tehan）6月24号表示，政府将 “有力地捍卫我们已经实施的措施”，并表示不准备 “交易””其价值观或主权。
+根据博斯伯格的意见，联邦贸易委员会没有提供足够的细节证明Facebook在社交网络服务方面的垄断地位。消息一出，Facebook的股票大涨超过3%，使该股创下历史新高至一万亿美元以上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29220014/Untitled-design-2021-06-29T195553.743.png)
+正如彭博社所指出的，随着这项裁决，Facebook已经躲过了在对美国科技巨头的广泛打击中出现的对其业务的最重大监管威胁。这一决定也给联邦贸易委员会和各州带来了打击，它们声称Facebook违反了反垄断法，收购了照片分享应用Instagram和消息服务WhatsApp，以切断新出现的竞争威胁并保护其垄断地位。
 
-（文章仅代表作者个人观点）
+博斯伯格决定驳回对Facebook的投诉，表明美国反垄断执法者在试图对付互联网巨头时面临的障碍。官员们自己不能解散公司或实施其他补救措施，而是必须说服法官采取行动。这一过程可能需要数年时间。
 
-[信息来源](https://www.nikkei.com/article/DGXZQOGM25AV90V20C21A6000000/)
+原文链接：
 
-+1
+https://www.zerohedge.com/markets/facebook-soars-past-1-trillion-market-cap-after-district-judge-dismisses-ftcs-anti-trust
+
+校对/发稿：火内
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29032328/6_june-7.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
