@@ -1,43 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在被美军空袭后，伊朗支持的民兵发誓对美国进行报复
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1362012/)
+## 2021/06/29 文贵先生盖特精要-001
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1362117/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30104740/11953.jpg)图片来源网络
+编辑整理：free20200604| Pr: 樂禧禧 | Page：小六月
 
-**据《零对冲》作者：TYLER DURDEN，2021年6月28日报道：**
+[!\[\]()!\[\](https://spark.adobe.com/page/WQ31X51suroCc/images/ba1fe58e-bf35-4f9b-abf2-8bfd326e03c8.png?asset_id=83b8b560-712e-4198-a269-a8c761c32cbc&amp;img_etag=%222644a407b396ce99f8724e7064767515%22&amp;size=1024)](https://spark.adobe.com/page/WQ31X51suroCc/images/ba1fe58e-bf35-4f9b-abf2-8bfd326e03c8.png?asset_id=83b8b560-712e-4198-a269-a8c761c32cbc&amp;img_etag=%222644a407b396ce99f8724e7064767515%22&amp;size=1024)
 
-周日晚间美国对叙利亚和伊拉克一系列空袭是拜登担任总统期间第二次公开披露的军事打击，据称是针对伊朗支持的民兵，这些民兵一直在用无人机和火箭弹袭击美国部队阵地。
-美联社隔夜援引伊拉克民兵官员的话说，在美国沿叙利亚东部边境的行动中，至少有四名民兵被打死——第一次打击是在叙利亚境内的一个武器库。此外，一个总部设在英国的中东监测组织说，至少有7名伊拉克战士被杀。
+[链接](https://gtv.org/video/id=60db38a32f9a56108e0e4443)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101717/1195.jpg)美国对叙利亚和伊拉克边境地区的亲伊朗民兵进行了空袭。
-[https://twitter.com/Ozkok\_A/status/1409438903753490436?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-](https://twitter.com/Ozkok_A/status/1409438903753490436?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-)
+2021年6月29日，共产党你完了，百年冥诞的恐惧，即將崩溃的经济，和共产党对病毒的追责，你共产党还有明天吗？
 
-根据周日晚些时候的一份声明，“今天晚上早些时候，美国军队对伊朗支持的民兵组织在伊拉克-叙利亚边境地区使用的设施进行了防御性精确空袭”。而《华尔街日报》在周一描述道，“五角大楼说，叙利亚-伊拉克边境附近的三个地点的行动和武器储存设施遭到了打击，它说这些设施曾被Kata’ib真主党和Kata’ib Sayyid al-Shuhada民兵组织使用。”
-这一升级再次引发了与巴格达的紧张关系——更不用说威胁到维也纳伊朗核谈判的进一步复杂化——此时，伊拉克政府的大部分人都在向西方军队施压，要求他们最终从伊拉克领土上撤走，因为“反ISIS”的任务似乎早已完成。伊拉克军队发表了一份严厉的声明，谴责“对伊拉克主权和国家安全的公然和不可接受的侵犯”。
-同时，至少有一位美国国会议员指出，拜登下令的打击行动明显缺乏战争授权或国会批准……
+•香港避风塘大爆炸，北京地下军事国防工程某些区域大崩塌，大连炸桥事件未发生，大部分人被抓捕。香港发生疑似准备对港铁袭击的消息。北京地铁防控森严，如临大敌。故宫有五千人驻守，中南海周围布控防空。各单位查人、查车、查汽油、查天然气。据北京体制内战友说：活一辈子没见过在党“诞”的时候这么如临大敌。共产党的恐惧，就是我们的武器。只要恐惧，就知民心不在党，已不向党。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101752/1195-1.jpg)美国军队在伊拉克或叙利亚没有任何法律授权。把他们带回家，停止以自卫为幌子轰炸人民。
-[https://twitter.com/justinamash/status/1409302541909770240?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/justinamash/status/1409302541909770240?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
+•各大金融机构对外的信息都被监控。共产党指挥上海的银行数据造假。
 
-外交部发言人赛义德.哈提卜扎德周一表示，不出意料，德黑兰也指责空袭在该地区制造不稳定。“肯定的是，美国的所作所为正在扰乱该地区的安全。”
-但最重要的是，在为可能即将发生的升级创造条件方面，一个亲伊朗的伊拉克民兵联盟在紧接着发表的一份声明中发誓要进行报复。
-他们说：“我们……将为我们正义的烈士们向这一令人发指的罪行的实施者报仇，在上帝的帮助下，我们将使敌人尝到复仇的苦果。”
+•在香港，任何对外公告的金融数据都必须通过驻港代表办公室，经济维稳办公室统一协调，就想把老百姓的钱全都弄走。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30102105/1195-2.jpg)当美国轰炸千里之外的主权国家，而国防部称其为”防御性”时，我理解。那是他们的事。但为什么这么多关于轰炸的新闻报道都重复这个词？许多”记者”都是速记员，不加评估地鹦鹉学舌。
-[https://twitter.com/stephenkinzer/status/1409474186888761344?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/stephenkinzer/status/1409474186888761344?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
+•七一共产党会有很多疯狂的举动，会有一系列经济政治重大的决定，国际关系也会突变。
 
-在川普政府执政的最后一年，随着美军与伊朗支持的伊拉克民兵之间越来越多针锋相对的攻击，这种空袭开始越来越普遍。2020年期间，这一系列攻击几乎将伊朗和美国吸进了直接战争，特别是在1月卡西姆.苏莱曼尼将军被暗杀之后。
+•爆料革命让共产党恐惧，成为过街的老鼠，在国际上成了笑话，全球喊打。在国内，经济处于崩溃，民心完全向新中国联邦。
 
-原文连接：[https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
+•几亿中华同胞不会白死，8964被你碾压的冤魂野鬼、被你们捏死在肚子里的，文革被饿死的、冻死在北朝鲜的孩子都在天安门等着你！香港的避风塘事件会再三发生，全国爆发。
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – 明子
-编辑：洛杉矶盘古农场 –傻小子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-+1
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/WQ31X51suroCc/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/WQ31X51suroCc/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
+0

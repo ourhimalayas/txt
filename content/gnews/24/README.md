@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在澳大利亚的中国民主派学生中，“自我审查文化”日益盛行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1361764/)
+## 调查数据显示，中共国在全球形象上落后于美国
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1362090/)
 
-2021年6月30日
+翻译：文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30104557/statue-of-liberty-267948_1920.jpg)
+香港——一项针对 17 个发达经济体的新民意调查发现，尽管中共国在应对疫情方面的表现有所改善，但在全球声誉方面仍落后于美国，继续徘徊在历史最低点附近。
 
-![Chinese students in graduation robes walk away with their backs turned at the Australian National University]()![Chinese students in graduation robes walk away with their backs turned at the Australian National University](https://ichef.bbci.co.uk/news/976/cpsprodpb/16FA/production/_119128850_gettyimages-489056603.jpg)
+皮尤研究中心的调查发现，当被问及他们更愿意与哪个国家建立更密切的经济联系时，越来越多的受访者认为美国而不是中共国。皮尤在 6 月初发布的另一项民意调查中发现，这反映了自特朗普政府让位于拜登政府以来美国全球形象的反弹。
 
-根据一份新的报告，在澳大利亚的中国民主派学生担心，如果他们在敏感问题上发表意见，他们的家人会受到惩罚。许多亲民主的学生说，他们害怕同学们向中共国当局举报他们。
+2 月至 5 月对四大洲 18,850 人进行的关于中共国形象的调查结果表明，北京在国外的激进外交和在其国内的威权政策正在塑造着负面看法。
 
-人权观察发现，这些学生在澳大利亚有被监视的感觉，导致许多人在课堂上进行自我审查。不仅是学生，连教授中国课程的老师也感受到了自我审查的压力。
+皮尤的数据显示，在中国共产党准备在周四庆祝建党 100 周年之际，日本、瑞典、澳大利亚、韩国和美国的受访者中，约有四分之三或更多的人不看好中国。
 
-在两国关系恶化之后，澳洲校园的“自我审查文化”正在受到越来越多地关注。
+去年人们对中共国的看法大跌，部分原因是大多数受访者认为北京对大流行的处理不当。今年，大约一半的受访者表示中共国处理得很好。
 
-研究人员表示，他们已经确认了三起案件，中国学生在澳大利亚的活动导致了中共国警方就他们的行为去探访或与他们的家人取得联系。
+新闻来源：[WSJ](https://www.wsj.com/articles/china-falls-behind-u-s-in-global-image-survey-data-shows-11625061602)
 
-2019 年，澳大利亚政府为大学设立了一个工作组和新的指导方针，以打击被描述为“前所未有的水平”的外国干涉。最近的议会质询检查了外国对大学的干预， 并将于7月发表报告。
+校对发稿：Ada （马德里）
 
-注：目前约有16万中国学生就读于澳大利亚的大学。澳大利亚的高等教育系统严重依赖付费的中国学生。在新冠疫情之前，中共国学生约占澳大利亚所有国际学生的40%。
-
-**【[新闻来源](https://www.bbc.com/news/world-australia-57647418)】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

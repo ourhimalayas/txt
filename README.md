@@ -12,13 +12,13 @@
 
 ---
 
-### [【特约评论】百年百罪——终共百年考](/content/gnews/1/README.md)
+### [《路德时评》重磅解读江胡二老缺席中共百年汇演，及美国会将赋予联邦法院逆转数字货币交易的权力](/content/gnews/1/README.md)
+ ` 香柏树`
+
+### [【特约评论】百年百罪——终共百年考](/content/gnews/2/README.md)
  ` developer001`
 
-### [美国前线医生对福奇等人提起诉讼，以阻止儿童接种疫苗](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [北京对海外维吾尔人的迫害骚扰已遍及全球](/content/gnews/3/README.md)
+### [美国前线医生对福奇等人提起诉讼，以阻止儿童接种疫苗](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [2021年6月30日郭文贵先生G-TV直播小飞象速记版](/content/gnews/4/README.md)
@@ -69,23 +69,23 @@
 ### [【澳洲热点】议员保琳·汉森挫败批判性种族理论走进澳洲校园](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【路德社即时简报】 江、胡、温、朱未出席党庆汇演](/content/gnews/20/README.md)
+### [令人生厌：美国广播公司因发布美联社发表的中共“光辉形象”而受到抨击](/content/gnews/20/README.md)
+ ` 索尼克`
+
+### [【热点播报】IMF提名中共国央行副行长担任高级职务](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [调查数据显示，中共国在全球形象上落后于美国](/content/gnews/21/README.md)
+### [EXC：福奇资助的德克萨斯实验室培训武汉研究人员如何处理“世界上最危险的病原体”](/content/gnews/22/README.md)
  ` 索尼克`
 
-### [【医疗前沿世界】迫使青少年接种中共病毒疫苗是一场必输的赌博](/content/gnews/22/README.md)
+### [【路德社即时简报】 江、胡、温、朱未出席党庆汇演](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [普京说俄罗斯国防能力超越世界上多国包括美国](/content/gnews/23/README.md)
+### [调查数据显示，中共国在全球形象上落后于美国](/content/gnews/24/README.md)
  ` 索尼克`
 
-### [在澳大利亚的中国民主派学生中，“自我审查文化”日益盛行](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘鲁喜迎美赠辉瑞疫苗 此前曾为中共疫苗临床试验基地](/content/gnews/25/README.md)
- ` 索尼克`
+### [【医疗前沿世界】迫使青少年接种中共病毒疫苗是一场必输的赌博](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
 
 ### [【西媒头条】第12期](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -99,17 +99,17 @@
 ### [【五月花评】中共国让电价回归商品属性的本质](/content/gnews/29/README.md)
  ` 波士顿五月花农场`
 
-### [【热点播报】6月29日国际新闻速递](/content/gnews/30/README.md)
+### [中国共产党100周年：“战狼”的新地缘政治](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【热点播报】6月29日国际新闻速递](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [【百年中共 滔天罪行】第1期](/content/gnews/31/README.md)
+### [【百年中共 滔天罪行】第1期](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【班农战斗室】大选审计两党继续缠斗，清理队伍要拿建制派开刀](/content/gnews/32/README.md)
+### [【班农战斗室】大选审计两党继续缠斗，清理队伍要拿建制派开刀](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
-
-### [西班牙格拉纳达俱乐部由中共来主导很危险 ——足球运动员郝润泽用他父亲郝海东射向中共的飞镖进行回应](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [6/29/2021 财经快讯：美元在非农数据测试前徘徊在两个月高位下方，股市因德尔塔变异病毒株而紧张](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
@@ -123,27 +123,27 @@
 ### [6/28/2021 财经快讯：加密货币交易所币安受多国警告和禁止；芯片供应短缺下半年恐达高峰](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [【战友寄语】前傀儡特首董建华 奴颜婢膝舔共 再贬香港](/content/gnews/38/README.md)
+### [梅津斯基回应接种疫苗植入芯片说](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【战友寄语】前傀儡特首董建华 奴颜婢膝舔共 再贬香港](/content/gnews/39/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [6月30日文贵先生直播同步精要文字版](/content/gnews/39/README.md)
+### [6月30日文贵先生直播同步精要文字版](/content/gnews/40/README.md)
  ` 喜联盟七哥直播组`
 
-### [2021/06/29 文贵先生盖特精要-001](/content/gnews/40/README.md)
+### [2021/06/29 文贵先生盖特精要-001](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [在被美军空袭后，伊朗支持的民兵发誓对美国进行报复](/content/gnews/41/README.md)
+### [在被美军空袭后，伊朗支持的民兵发誓对美国进行报复](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共冥诞之际，日本政治家们表现出不同的态度](/content/gnews/42/README.md)
+### [中共冥诞之际，日本政治家们表现出不同的态度](/content/gnews/43/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共国无视西方迫切要求遏制排放的要求，计划到2035年再增加160个机场](/content/gnews/43/README.md)
+### [中共国无视西方迫切要求遏制排放的要求，计划到2035年再增加160个机场](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [PLA（中共国人民解放军）是CCP最后的陪葬品](/content/gnews/44/README.md)
+### [PLA（中共国人民解放军）是CCP最后的陪葬品](/content/gnews/45/README.md)
  ` 澳喜农场`
-
-### [【笔录新生】非常认知](/content/gnews/45/README.md)
- ` 纽约香草山MOS03`
 
