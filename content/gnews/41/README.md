@@ -1,48 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的黑手无所不在 虚伪的法律、真实的独裁
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1361731/)
+## 在被美军空袭后，伊朗支持的民兵发誓对美国进行报复
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1362012/)
 
-台湾宝岛农场 文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30104740/11953.jpg)图片来源网络
 
-**香港人间炼狱**
+**据《零对冲》作者：TYLER DURDEN，2021年6月28日报道：**
 
-《香港国安法》实施满一年，国际特赦组织公布一份名为「香港：以国家安全为名义」（Hong Kong： In the Name of National Security）的报告，详细介绍了《香港国安法》如何将异议人士非法定罪，同时剥夺了目标人群的人权。
-国际特赦组织主张，香港当局利用香港国安法将违反人权的审查、骚扰、逮捕与起诉合理化，这已构成人权紧急状况。
+周日晚间美国对叙利亚和伊拉克一系列空袭是拜登担任总统期间第二次公开披露的军事打击，据称是针对伊朗支持的民兵，这些民兵一直在用无人机和火箭弹袭击美国部队阵地。
+美联社隔夜援引伊拉克民兵官员的话说，在美国沿叙利亚东部边境的行动中，至少有四名民兵被打死——第一次打击是在叙利亚境内的一个武器库。此外，一个总部设在英国的中东监测组织说，至少有7名伊拉克战士被杀。
 
-**中共的黑手无所不在**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101717/1195.jpg)美国对叙利亚和伊拉克边境地区的亲伊朗民兵进行了空袭。
+[https://twitter.com/Ozkok\_A/status/1409438903753490436?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-](https://twitter.com/Ozkok_A/status/1409438903753490436?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-)
 
-据大纪元[遭中共跨境威胁 留学生：在澳洲仍不自由报道](https://www.epochtimes.com/b5/21/6/29/n13056454.htm)，非政府组织「人权观察」（Human Watch），6月29日发表一份报告，内容提及中国政府及其支持者在澳大利亚监视、骚扰和恐吓支持民主的中国留学生；同时，澳洲高校也未能保障中国学生与批评中共的学者的学术自由。
+根据周日晚些时候的一份声明，“今天晚上早些时候，美国军队对伊朗支持的民兵组织在伊拉克-叙利亚边境地区使用的设施进行了防御性精确空袭”。而《华尔街日报》在周一描述道，“五角大楼说，叙利亚-伊拉克边境附近的三个地点的行动和武器储存设施遭到了打击，它说这些设施曾被Kata’ib真主党和Kata’ib Sayyid al-Shuhada民兵组织使用。”
+这一升级再次引发了与巴格达的紧张关系——更不用说威胁到维也纳伊朗核谈判的进一步复杂化——此时，伊拉克政府的大部分人都在向西方军队施压，要求他们最终从伊拉克领土上撤走，因为“反ISIS”的任务似乎早已完成。伊拉克军队发表了一份严厉的声明，谴责“对伊拉克主权和国家安全的公然和不可接受的侵犯”。
+同时，至少有一位美国国会议员指出，拜登下令的打击行动明显缺乏战争授权或国会批准……
 
-**个人评论**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101752/1195-1.jpg)美国军队在伊拉克或叙利亚没有任何法律授权。把他们带回家，停止以自卫为幌子轰炸人民。
+[https://twitter.com/justinamash/status/1409302541909770240?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/justinamash/status/1409302541909770240?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
 
-香港社会原为东方明珠，继承西方法律系统、金融系统使香港在东方成为一个特别的存在。 但在中共强迫香港回归后，一国两制的政策，彻底使香港从法治国转变成警察治国、独裁治国。 香港社会，只要出现任何不符中共期待的言行举止，都会被中共掌控、限制打压、封锁，甚至彻底抹煞。 在国安法实施后，最基本的人权保障也成为天方夜谭，香港是继西藏宗教迫害、新疆种族灭绝之后的牺牲品。
+外交部发言人赛义德.哈提卜扎德周一表示，不出意料，德黑兰也指责空袭在该地区制造不稳定。“肯定的是，美国的所作所为正在扰乱该地区的安全。”
+但最重要的是，在为可能即将发生的升级创造条件方面，一个亲伊朗的伊拉克民兵联盟在紧接着发表的一份声明中发誓要进行报复。
+他们说：“我们……将为我们正义的烈士们向这一令人发指的罪行的实施者报仇，在上帝的帮助下，我们将使敌人尝到复仇的苦果。”
 
-而西藏、新疆、香港，已经用自身的鲜血，对世界、台湾证明中共的本质。 但台湾社会目前还是执迷不悟，饱受中共虚假信息的攻击，甚至可能会丧命在中共的武力侵犯之下。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30102105/1195-2.jpg)当美国轰炸千里之外的主权国家，而国防部称其为”防御性”时，我理解。那是他们的事。但为什么这么多关于轰炸的新闻报道都重复这个词？许多”记者”都是速记员，不加评估地鹦鹉学舌。
+[https://twitter.com/stephenkinzer/status/1409474186888761344?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/stephenkinzer/status/1409474186888761344?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
 
-香港人的一系列民主抗争运动，世界有目共睹，香港追求民主的精神是我们学习的榜样。
+在川普政府执政的最后一年，随着美军与伊朗支持的伊拉克民兵之间越来越多针锋相对的攻击，这种空袭开始越来越普遍。2020年期间，这一系列攻击几乎将伊朗和美国吸进了直接战争，特别是在1月卡西姆.苏莱曼尼将军被暗杀之后。
 
-中国共产党对人民的监控，不仅仅是在中国，离开中国求学的求学生们，也都逃离不了中共的魔爪。 中国共产党甚至会在海外留学生组建团体加以监控，更可能施加任务给这些海外留学生，不然会被中共遣返回国，甚至更多的处罚措施。
+原文连接：[https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
 
-中共利用威吓、国家力量等等方式，恐吓着所有中国人民及共产党员，这些垄断权力及经济的掌权者，为了巩固权力及利益，可以牺牲掉任何不属于他们自身的一切，甚至株连九族十族。
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – 明子
+编辑：洛杉矶盘古农场 –傻小子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-中国共产党目前已穷途末路，为了掩盖经济即将崩溃的事实，中共修改报表，利用虚假数字继续掩盖真相。 但世界已经认清中共本质，中共无论如何都无法改变联合反共、灭共的趋势。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-中共病毒（COVID-19）的E蛋白序列ZC45和ZXC21，与特有种舟山蝙蝠100%相同。 这是中共永远无法抹灭的事实，在世界的追责之下，中共必然灭亡。
-
-参考新闻：[https://www.epochtimes.com/b5/21/6/30/n13057124.htm](https://www.epochtimes.com/b5/21/6/30/n13057124.htm)
-
-* * *
-
-审核、编著╱早不稻仁|校对╱dobi|发布╱little liu
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-[日本银河农场YOUTOBE](https://www.youtube.com/watch?v=d1hNyoj0XAo&amp;t=8s)
-
-0
++1

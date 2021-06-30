@@ -1,20 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】议员保琳·汉森挫败批判性种族理论走进澳洲校园
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1361408/)
+## 【每日快讯】06/29/2021：日本防卫副大臣哈德逊访谈明确日本要保护台湾
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1362026/)
 
-**了解澳洲时事动态，尽在雅典娜【澳洲热点】**
-
-#### 听写/翻译：七彩光
-校对/编辑：文泓
-视频剪辑：質樸 
-视频字幕：七彩光 
+**制作：澳喜粤语组**
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30013723/%E6%B1%89%E6%A3%AE.jpg)
-图片来源：NIT
 
-昆州一国党参议员保琳·汉森提出“拒绝在国家课程中使用批判种族理论”的动议，联盟党支持一国党提议，参议院以 30 票对 28 票通过了该动议。近日汉森议员接受天空电视采访，痛斥批判性种族理论走进校园，对澳洲社会的危害。
+播报：【文依】整理：【evitang（文-林 ）】【闪电】视频制作：【ken】PPT：【小豆牙】发布：【陆柒陆捌】
 
-+2
+摘要：
+
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30095301/a_-__page-0002.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30095612/a_-__page-0003.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30095709/a_-__page-0004.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30095743/a_-__page-0005.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30095814/a_-__page-0006.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30095851/a_-__page-0007.jpg)
+0

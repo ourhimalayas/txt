@@ -1,34 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在澳大利亚的中国民主派学生中，“自我审查文化”日益盛行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1361764/)
+## 【路德社即时简报】 江、胡、温、朱未出席党庆汇演
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1362119/)
 
-2021年6月30日
+作者：香草山翻译部    GBW
 
-![Chinese students in graduation robes walk away with their backs turned at the Australian National University]()![Chinese students in graduation robes walk away with their backs turned at the Australian National University](https://ichef.bbci.co.uk/news/976/cpsprodpb/16FA/production/_119128850_gettyimages-489056603.jpg)
-
-根据一份新的报告，在澳大利亚的中国民主派学生担心，如果他们在敏感问题上发表意见，他们的家人会受到惩罚。许多亲民主的学生说，他们害怕同学们向中共国当局举报他们。
-
-人权观察发现，这些学生在澳大利亚有被监视的感觉，导致许多人在课堂上进行自我审查。不仅是学生，连教授中国课程的老师也感受到了自我审查的压力。
-
-在两国关系恶化之后，澳洲校园的“自我审查文化”正在受到越来越多地关注。
-
-研究人员表示，他们已经确认了三起案件，中国学生在澳大利亚的活动导致了中共国警方就他们的行为去探访或与他们的家人取得联系。
-
-2019 年，澳大利亚政府为大学设立了一个工作组和新的指导方针，以打击被描述为“前所未有的水平”的外国干涉。最近的议会质询检查了外国对大学的干预， 并将于7月发表报告。
-
-注：目前约有16万中国学生就读于澳大利亚的大学。澳大利亚的高等教育系统严重依赖付费的中国学生。在新冠疫情之前，中共国学生约占澳大利亚所有国际学生的40%。
-
-**【[新闻来源](https://www.bbc.com/news/world-australia-57647418)】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031907/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
+2021年6月30日早，路安墨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30110741/20-2.png)
+**1. 江泽民、胡锦涛、温家宝、朱镕基未出席中共百年文艺汇演。但是其他江派人物都参加了。**
+
+a. 安红：中共老人表示不和习近平一条阵线。
+
+b. 路德：胡锦涛身体还可以。前一阵江泽民还公开现身。
+
+c. 墨博士：这种重要场合，如果要来，抬也要抬来。
+
+d. 路德：其他江派人物都参加了，是习近平在示威并让江泽民难堪。
+
+e. 路德：明天可以关注中共老人是否在天安门出现，如何互动，电视画面如何呈现。
+
+f. 墨博士：如果明天中共内部不和被公开，就会向西方发出一个信号，即中共正在衰弱。
+
+**2. 美国区块链核心小组的联合主席说，政府必须有权力逆转加密货币交易。**
+
+a. 路德：联邦法院有权力要求逆转，政府部门比如FBI有能力执行逆转。
+
+b. 安红：一旦能逆转，就能溯源犯罪分子。
+
+**3. 日本防卫大臣岸信夫表示日本政府不将台湾看作“国家”，“一个中国”立场从未改变。**
+
+a. 路德：日本没说“中华民国”不是一个国家。国家和政府是不同概念。
+
+笔记仅作参考，内容以路德社节目为准。
+
+
+
+校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29032328/6_june-7.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031855/WhatsApp_Image_2020-10-24_at_04.33.05-3.jpeg)
+
+
+
+
+
 0
