@@ -1,19 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京对海外维吾尔人的迫害骚扰已遍及全球
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1361203/)
+## 美国前线医生对福奇等人提起诉讼，以阻止儿童接种疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1361754/)
 
 2021年6月30日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30001308/%E6%9C%AA%E6%A0%87%E9%A2%98-2-2.png)
-居住在土耳其的维吾尔人在伊斯坦布尔集会抗议中国外长王毅访问土耳其。（2021年3月25日）
-华盛顿非营利研究机构“阿克苏斯中亚事务协会”（The Oxus Society for Central Asian Affairs）发布了一份名为《维吾尔族跨国迫害》的研究报告，指出中共当局针对海外维吾尔族人的迫害已经遍及全球近30 个国家。因为这些维吾尔族人所在国政府惧怕北京的威力和影响力，或者需要与中共国保持深度的经济合作而帮助打压维吾尔族人。要解决这些跨国迫害的问题，迫切需要相关国家政府的合作。
+![TrumpCat 🚂🇺🇸🇺🇸💨 on Twitter: &quot;🚨 BREAKING! Lawsuit filed by America&#039;s  Frontline Doctors specifically names Fauci. 💥👇🏼 https://t.co/e7tKkNZdNs  https://t.co/yv3zvHOapy&quot; / Twitter]()![TrumpCat 🚂🇺🇸🇺🇸💨 on Twitter: &quot;🚨 BREAKING! Lawsuit filed by America&#039;s  Frontline Doctors specifically names Fauci. 💥👇🏼 https://t.co/e7tKkNZdNs  https://t.co/yv3zvHOapy&quot; / Twitter](https://pbs.twimg.com/media/E5F1cy4XMAAb6WM.jpg)
+美国前线医生组织的法律总监阿里·舒尔兹（Ali Shultz）周一在接受Stew Peters采访时宣布，美国前线医生组织已于周五正式对美国卫生和公众服务部、安东尼·福奇（Anthony Fauci）个人以及担任美国食品药品监督管理局代理局长的珍妮特·伍德科克（Janet Woodcock）个人提起了诉讼。
 
-2013年随着中共国“一带一路”倡议的启动，使得中共国在全世界许多国家拥有了巨大的影响力，对穆斯林的跨国迫害也逐渐蔓延。北京使用多种方法恐吓居住在其它国家的维吾尔族人，包括使用间谍软件和黑客行为，以及通过国际刑警组织发布针对个体目标的红色通告。北京压制海外异见的最常见方法，是威胁拘留目标人在中国境内的亲属，在某些情况下，迫使目标人的近亲发表公开声明等等。
+上个月，该组织已经向联邦法院提出动议，寻求临时限制令“以阻止美国食品药品监督管理局对新冠疫苗的紧急使用授权扩大到包括16岁以下儿童”。
 
-中共针对维吾尔族人的种族灭绝行为，是对穆斯林发动的一场攻击，需要各国政府团结起来，采取必要的措施，保护和声援那些在新疆维吾尔自治区受压迫的人们。
+舒尔茨在采访中说，这项诉讼是为了阻止美国食品药品监督管理局使用 “紧急使用授权来批准对在统计学上因新冠而死亡几率为零的儿童进行医疗。”
 
-**[【新闻来源】](https://www.voachinese.com/a/Oxus-uyghurs-report-062921/5946788.html)**
+她指出，这已经违背了紧急使用授权的4个要求：1.确实在紧急情况下；2.没有可用的已批准的治疗方法；3.疫苗不能比疾病本身更糟糕；以及4.需要知情同意并有权拒绝。显然，批准给儿童使用疫苗是不合法的。令人震惊的是，一些州的未成年人可以在没有父母同意或父母知情的情况下同意接种疫苗。
+
+此外，他们发现授权给儿童使用疫苗的人也从制药公司获得了报酬。
+
+另一个需要受到实验性疫苗接种保护的人群是那些曾被新冠感染而现在被迫接受疫苗的人。由于免疫反应，这些人的（疫苗）不良反应比那些没有感染过的人高2-3倍。该组织建议在接种疫苗前对所有人进行预筛查。
+
+最后，舒尔茨说，这场斗争是为了我们的基本自由，我们不可剥夺的权利。停止给每个人随意接种疫苗。
+
+**【[新闻来源](https://www.redvoicemedia.com/2021/06/lawsuit-filed-by-americas-frontline-doctors-names-fauci-aims-to-stop-child-jabs)】**
 
 * * *
 

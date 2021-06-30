@@ -1,30 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权专家关切在中国被长期监禁和遭受酷刑人士的处境
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1361140/)
+## 在澳大利亚的中国民主派学生中，“自我审查文化”日益盛行
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1361764/)
 
-2021年6月29日
+2021年6月30日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29234923/0-41.jpeg)
+![Chinese students in graduation robes walk away with their backs turned at the Australian National University]()![Chinese students in graduation robes walk away with their backs turned at the Australian National University](https://ichef.bbci.co.uk/news/976/cpsprodpb/16FA/production/_119128850_gettyimages-489056603.jpg)
 
-**新闻摘要：**
+根据一份新的报告，在澳大利亚的中国民主派学生担心，如果他们在敏感问题上发表意见，他们的家人会受到惩罚。许多亲民主的学生说，他们害怕同学们向中共国当局举报他们。
 
-在日内瓦举行的联合国人权高级专家第47届会议期间，发布声明对一批在中共国被长期监禁及遭受酷刑的维权人士处境表达关切，名单包括高智晟、秦永敏、伊力哈木、黄琦等人。有人权律師认为人权纪录劣跡斑斑的中国，不配成为联合国人权理事会成员。
+人权观察发现，这些学生在澳大利亚有被监视的感觉，导致许多人在课堂上进行自我审查。不仅是学生，连教授中国课程的老师也感受到了自我审查的压力。
 
-联合国人权高专周一（28日）在官网发表有关声明，对中国活动人士被长期监禁或软禁，并遭受酷刑，以及被剥夺医疗、会见律师和家人的权利的状况表示担忧。该声明呼吁得到联合国多个工作小组成员的支持。
+在两国关系恶化之后，澳洲校园的“自我审查文化”正在受到越来越多地关注。
 
-联合国人权维护者处境特別报告员、独立专家玛丽·劳勒在周一的声明中指出，多年來她收到了无数报告，显示中国维权人士情況仍然存在，可能还达到其他不人道待遇的程度。劳勒正就此事与中国当局联系，呼吁中共当局立即释放这些被拘留的人权维护者，以及不能有任何形式的报复行动。
+研究人员表示，他们已经确认了三起案件，中国学生在澳大利亚的活动导致了中共国警方就他们的行为去探访或与他们的家人取得联系。
 
-【[新闻链接](https://www.rfa.org/cantonese/news/un-humanright-06292021120510.html)】
+2019 年，澳大利亚政府为大学设立了一个工作组和新的指导方针，以打击被描述为“前所未有的水平”的外国干涉。最近的议会质询检查了外国对大学的干预， 并将于7月发表报告。
+
+注：目前约有16万中国学生就读于澳大利亚的大学。澳大利亚的高等教育系统严重依赖付费的中国学生。在新冠疫情之前，中共国学生约占澳大利亚所有国际学生的40%。
+
+**【[新闻来源](https://www.bbc.com/news/world-australia-57647418)】**
+
+* * *
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Xjq5GEQi6okFU/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Xjq5GEQi6okFU/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

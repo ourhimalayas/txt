@@ -1,49 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 查谟无人机攻击不是孤立的，这是巴基斯坦以前无人机尝试的证据
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1361084/)
+## 中共Delta+定时炸弹再度炸伤全世界
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1361663/)
 
-据《republicworld.com》作者：Swagata Banerjee，2021 年 6 月 27 日报道：
+撰稿: Hong
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30061535/303-1.jpg)图片来自网络
+中共超限生物武器病毒（中共病毒）疯狂肆虐全球一年半来，不断攻城略地，变着花样地摧残全世界。目前，全球已有接近400万人死于中共病毒，超过1.8亿人被感染。近期，更具传染性中共Delta+变异病毒（中共Delta+病毒）已攻陷全球 90多个国家和地区，再度让整个世界瘫痪，不得动弹。
 
-6月27日，查谟机场技术区发生多起爆炸。在 5 分钟的间隙内听到两声爆炸声。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29225639/5C337997-5C5D-4212-ABA3-6757D6F0F83D.jpeg)*图片：亚洲国际新闻/Unsplash*
-周日上午，查谟 (Jammu) 机场技术区发生多起爆炸。现在，在共和媒体网络获得的一条爆炸性信息中，巴基斯坦今早的查谟无人机袭击并不是孤立的。看看巴基斯坦过去的一系列无人机袭击企图。
+中共Delta+病毒猖狂攻击英国，28日,英国官数据显示，该国一夜之间就新增确诊感染中共病毒*22868*例，创今年1月底以来单日感染病例新高，其中有*90*%以上的病例是感染了中共Delta+病毒*。*
 
-**以下事件反映了巴基斯坦无人机的袭击企图**
+被中共Delta+病毒攻陷的还有德国和俄罗斯，据路透社公布的数据显示，在德国，中共病Delta+病毒已占到所有新增病例的50%。在俄罗斯，连续多日新增确诊感染中共病毒超过1万例，创近期新高，莫斯科市长表示，莫斯科确诊感染中共病毒病例中,有90%是中共Delt+病毒病例。
 
-●2020 年 6 月 20 日的Kathua区（缴获：M-4 美制半自动步枪，其中 60 发子弹，两个弹匣和七个 M67 手榴弹）
+与此同时，随着超强传染性中共Delta+病毒在澳大利亚的爆发，澳洲举国陷入了中共病毒的新威胁，在新南威尔士州(New South Wales) 27日新增感染中共病毒病例30 例。此刻，澳洲六个州和两个领地已经处于不同程度的紧急封锁或限制状态，以遏制中共Deltal+病毒的扩散；原本各州逐渐解封的洲际边界被迫再度重启，超过2000万的澳洲人（约占总人口80%）受到了影响。
 
-●2020 年 9 月 9 日的Samba区（缴获：M4 卡宾枪和三个弹匣，库尔甘地区的六支中国手枪和 12 个弹匣，2 人被捕）
+孟加拉国是最先遭受中共Delta+病毒的攻击的国家之一， 截止6月29日，孟加拉有超过90万人确诊感染中共病毒病例，其中，感染中共Delta+病毒的人数占所有新病例的66%以上，近期死于中共病毒的人数也暴增；该国政府被迫决定进入迄今为止最严厉的、由军方实施的全面封锁，这个国家近1.7亿的人将被迫宅在家里。
 
-●2020 年 9 月 12 日的Poonch区（缴获：三支中国手枪、六支手枪弹匣、70发手枪子弹、十一枚手榴弹、一个简易爆炸装置、一套无线装置、两块电池、一部手机、笔式驱动器、充电器、两面旗帜和其他相关材料简易爆炸装置 (IED)。2 人被捕）
+马来西亚也是遭受中共病毒持续轰炸的国家之一，据吉隆坡6月28日公布的数据，马来西亚单日感染人数在 6 月初达到了顶峰，全国死于中共病毒的人数突破了 5,000 大关，马来西亚总理穆希丁（Muhyiddin）宣布将无限期（indefinite）延长全面封锁，全球主要被动元器件生产国之一的马来西亚被迫陷于半瘫痪状态。
 
-● 2020 年 9 月 19 日Rajouri区（缴获：两支56式自动步枪，六个AK 弹匣和180发子弹、两只中国手枪、三个30发子弹装的手枪弹匣、四枚手榴弹、两个袋子装着10万卢比。3人被捕）
+中共Delta+病毒也没有放过印度尼西和泰国；最近几天内，印尼新增确诊中共病毒激超2万例，红十字会表，中共病毒正将这个国家推向灾难的边缘。继今年4月遭受中共病毒第三次攻击后， 6月29日，泰国暴增中共Delta+病毒病例超过5400例，官方报告确定，中共Delta+病毒株已在曼谷外籍劳工聚集的建筑工地上扩散，泰国政府宣布了以首都为中心的30天限制禁令。做为邻国，柬埔寨已从泰国回柬的劳工中检测出22例中共Delta+病毒感染病例**，**柬埔寨卫生部官员说，中共Delta+病毒的危险系数高出其他变异病毒的60%。
 
-●2020 年 9 月 22 日Akhnoor 区（缴获：两支 AK-47 突击步枪，两支 AK 弹匣，90 发 7.62 毫米弹药，一把星手枪，两个手枪弹匣，14 发 9 毫米子弹（星手枪），含蓝色热熔胶包装材料胶带包裹的，附有木制配件（配件 2 包，合成/降落伞线 2 卷，每卷长约 300 米）
+中共制造释放生物武器病毒，对全球发动病毒超限战，杀害全世界数百万人，阻碍了世界经济发展，对人类生存构成了威胁。眼下，中共Delta+病毒还在无休无止地肆虐全球，中共已是世界公认的罪人。在全球奋力抗击中共病毒之际，中共不但会被送上国际法庭接受审判，这个邪恶政权也将从地球上被彻底铲除，中共已命不久矣！
 
-●2020 年 11 月 17 日的 Arnia 区（缴获：一支 AK 步枪和一支手枪）
+（文章仅代表作者本人观点,与GNews无关）
 
-●2021 年 1 月 18 日的Ramban区（在Anantnag逮捕了两人Umar Ahmed Malik 和 Suhail Ahmed Malik，这是 JeM在Alfa处理Aqib 的情节。前往克什米尔前往桑巴省 Vijaypur 的国际边境，并在无人机的帮助下收到武器和弹药。缴获包括 (i) 两支AK-74，(ii) 一把手枪，(iii) 16枚手榴弹，(iv) 9个Ak弹匣 (v) 269 发手枪子弹和 (vi) 两个手枪弹匣）
+*发布：**MG1*
 
-●2021 年 2 月 14 日的Ramgarh Samba区（缴获六支手枪、12 个手枪弹匣、179 发手枪子弹、15 个装有简易爆炸装置制造材料的白色瓶子、两个木制小结构和线以及包装材料。）
+新闻参考来源
 
-**从无人机掉落中缴获：**
+[1]. [https://www.cidrap.umn.edu/news-perspective](https://www.cidrap.umn.edu/news-perspective)
 
-●Samba区（2021 年 5 月 14 日）：一支AK -47、一把手枪、一个弹匣、15 发 9 毫米子弹、一个木制框架（用于用无人机连接有效载荷）和包装材料。在Samba缴获。
+[2].  [https://www.theguardian.com/world/2021/jun/27/will-vaccines-protect-us-against-the-delta-variant](https://www.theguardian.com/world/2021/jun/27/will-vaccines-protect-us-against-the-delta-variant)
 
-●当地Rajouri区（2021 年 6 月 3 日）：缴获了四支手枪，带有八个弹匣和 105 发子弹，一支 AK 带有两个弹匣，以及 54 发子弹以及包装材料和绑绳。在Rajouri缴获。
+[3]. [https://www.reuters.com/world/europe/moscow-mayor-says-delta-variant-accounts-90-new-covid-19-cases-2021-06-23/](https://www.reuters.com/world/europe/moscow-mayor-says-delta-variant-accounts-90-new-covid-19-cases-2021-06-23/)
 
-●Samba/RS Pura 区（2021 年 6 月 3 日至 4 日）：两支 AK 56 步枪、八个 AK 弹匣、十支 9 毫米手枪、18 个手枪弹匣、90 发 9×19 毫米子弹和 9 枚手榴弹。在 KULGAM 的 QAZIGUND缴获。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-原文连接：[https://www.republicworld.com/india-news/general-news/jammu-drone-attack-isnt-standalone-heres-proof-of-pakistans-previous-drone-attempts.html](https://www.republicworld.com/india-news/general-news/jammu-drone-attack-isnt-standalone-heres-proof-of-pakistans-previous-drone-attempts.html)
-
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场- TrueSky
-编辑：洛杉矶盘古农场 傻小子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
++2

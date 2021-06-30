@@ -1,24 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】6/29/2021晚：国务院官方调查员大卫.亚舍国会听证发出重磅结论，新冠病毒就是中共生物武器
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1361195/)
+## 把台湾黎巴嫩化！中国假新闻渗透，借疫情撕裂台湾团结
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1361540/)
 
-编辑：华盛顿DC农场 路德简报项目组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30000222/20210629-2-scaled.jpg)
+2021年6月30日
+![把台灣黎巴嫩化！金融時報：中國假新聞滲透 藉疫情撕裂台灣團結]()![把台灣黎巴嫩化！金融時報：中國假新聞滲透 藉疫情撕裂台灣團結](https://static.rti.org.tw/assets/thumbnails/2021/06/30/065f0a243469d098046f45a99afecdaa.jpeg)
+金融时报资深两岸记者席佳琳（Kathrin Hille）撰文指出，自去年疫情大流行以来，中国针对台湾的资讯战大幅增加，但在最近感染及死亡病例开始攀升后，那些假讯息的攻击更开始刺痛台湾。那些中国假讯息是通中国酸民或内容农场生产假新闻或扭曲说法，经由通讯软体Line群组或线上讨论板PTT传入台湾主流媒体的。
 
+**【[新闻来源](https://www.rti.org.tw/news/view/id/2104102)】**
 
-> 2021 年6月29日 路德时评 晚 
-> 
-> 1.国务院官方调查员大卫.亚舍国会听证发出重磅结论———-新冠病毒就是中共生物武器
-> 
-> 2. 亚舍终将用超限生物武器 定义新冠病毒
-> 
-> 3. 郝海东之子豪润泽 因为父亲发表反共言论 遭中共海外势力打压 失去俱乐部踢球资格 
-> 
-> 4.普京仅以“个人名义” 和习神视频 [pic.twitter.com/ur88yjLP5X](https://t.co/ur88yjLP5X)
-> — 平民爆料 (@WM18320321) [June 30, 2021](https://twitter.com/WM18320321/status/1410084219578105859?ref_src=twsrc%5Etfw)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-0
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1

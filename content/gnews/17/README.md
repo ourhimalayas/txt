@@ -1,35 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦新闻简讯：2021年6 月27日路德时评（路博艾谈）
-` 新中国联邦新闻` [轉載自GNews](https://gnews.org/zh-hans/1360623/)
+## 【有声读物】悉尼和以色列的疫情证明爆料革命预警的正确性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1361271/)
 
-一、澳特种部队全面开始对抗中共的海外渗透
+配音：香草山录音组 蒙古鸿雁
 
-Daily Telegraph6月27日报导[\]](https://www.dailytelegraph.com.au/news/world/australias-special-forces-will-be-retasked-for-missions-to-counter-chinas-push-into-the-pacific/news-story/07c18746ad6896bce360bd8cbb1fd186)：澳大利亚特种部队将被分配新任务，以应对外国威胁，包括中共国进军太平洋，紧急回归基本面，以“非常规战争”为基础。澳大利亚安全情报组织 (ASIO) 和其海外同行澳大利亚秘密情报局 (ASIS) 与间谍机构澳大利亚安全情报组织 (ASIO) 在“灰色地带混合战争”活动中合作开展“反国家行动”。
-
-社前期节目刚提及混合战争，这篇新闻也同时报导，混合战争包括政治战、宣传战等一系列非常规战争，所谓的灰色地带就是在看似非战场的战场作战，这就是无尽前沿的含义。中共间谍渗透海外的技术非常高，所以国防部长直接指挥特种部队抓捕中共在海外的间谍。
-
-不仅是美国，连五眼联盟成员国和亚约成员国澳大利亚也开始派遣特种部队应对非常规战争，可见中共对海外的严重渗透已经令澳洲政府不得不采取军事行动，澳洲政府直接动用军事武装力量来对付中共国超限战，中共渗透澳洲的间谍网络将会被连根拔起。
-
-Sellin上校刚发推：“多亏了一位拥有独特电子监视技能的前特种部队同事，我们正在接近危险的中共科学家逃犯马亨（闫博士前夫），闫博士指控马亨曾试图谋杀她。”Sellin上校通过特种部队已经查出到底是谁在帮助藏匿马亨，保护闫博士安全已成为美国特种部队最重要的任务之一。
-
-二、解读美国2020年版《应对非常规战争国防策略纲要》
-
-美国国防部在2020年发布《应对非常规战争国防策略纲要》，该档定义何为非常规战争，描述了非常规战争理念，以及军队要如何应对。
-
-中共自以为可以发挥其专制制度优势，利用西方国家的开放体制来攻击西方国家，西方国家一旦意识到中共超限战就会立即采取反击行动，各种手段都会用上，西方国家如果连手对抗中共，中共肯定毫无还手之力。
-
-这份文件对外传递非常重要的信号，美军非常重视信息战，甚至直接接管信息战，特种部队现在就处在信息战最前沿。同时，非常规战争是要以强大的军事武装力量为后盾，例如美国联合盟国在印太地区部署海军和空军给中共国施压，同时以非常规战争的方式瓦解中共的海外渗透网络，然后也采取非常规方式对中共进行反渗透。中共虽然会打非常规战争，但是中共不具备强大的常规武装力量。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
 
 
-文章撰写：【孺子牛】
 
-审核：玫瑰天空
 
-上传：糊糊文婴
+悉尼疫情已经持续几天了，虽然在封城之后略有好转，但还是不容乐观。截止到6月28日为止，悉尼Bondi海滩群聚感染确诊人数已经达到124例。专家纷纷提醒：这波疫情有可能比去年北海滩的疫情更可怕！然而，部分悉尼居民并没有把专家的提醒认真对待，海滩上、公园里到处都是人，甚至疫情爆发中心Bondi海滩都挤满了人！而且他们都没有戴上口罩。
+
+
+
+**文字版原文：[【独立观点】悉尼和以色列的疫情证明爆料革命预警的正确性](https://gnews.org/zh-hans/1360932/)**
+
+作者：纽约香草山健身部 Ivy001
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

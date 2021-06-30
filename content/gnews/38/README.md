@@ -1,10 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中共国段子】攻台策略
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1361202/)
+## 是什么原因导致的集装箱危机
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1361805/)
 
-【作者】Xingfffooo
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30001204/%E7%AE%80%E4%BD%9315.png)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
+消息来源：意大利晚报（corriere.it）
+发布时间：2021年06月29日
+翻译/整理/简评：萧亦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30075606/118578597.jpg)
+这是一场全球性领域的“海战”，集装箱危机是 冠状（中共）病毒引发的众多后果之一。跨洋供应链的脆弱性在几个月前已经凸显，当时长荣号在苏伊士运河被阻塞6天的事故中断了中（共）国和欧洲之间的一条颈动脉贸易。
+
+随着大流行的爆发和许多环节的瘫痪，这出现了一种情况，即世界一侧经常看到空的船，但是世界的另一侧滞留着数以万计的集装箱。随着经济的复苏，从2020年下半年开始危机出现了：西方市场已经开始购买原材料和发送成品出去，但商业结构中的港口却没有能力承载。
+
+后果是什么？帕多瓦大学根据里雅斯特港务局提供的数据并给出了一份报告：在大流行之前，运送一个集装箱从上海到洛杉矶，平均成本为 1,580 美元，但2021 年 3 月已跃升至 2,760 美元；从上海到热那亚的情况相同 ：成本从 1,680 美元跃升至 2,740 美元，增幅为 63%。据彭博社报道称，中（共）国到荷兰鹿特丹航线的成本现已超过10,000 美元。
+
+最近几个月，由于感染的爆发，情况进一步恶化。广东地区爆发了最严重的疫情，这是中（共）国生产制造的中心，其中就包括盐田港。在盐田码头三周内累积了357,000 个集装箱，而这种情况可能会持续直到2022年末。
+
+简评：虽然有部分原因是因为深圳因疫情启动严控措施，但实际上主要还是由于需要保障中共国党庆安全而采取的非常规操作。无论如何，盐田港拥堵重创了全球供应链，同时也将进一步加剧全球通货膨胀的侵袭。
+
+（本文只代表译者观点，与Gnews无关）
+
+发表：萧亦
+
+新闻链接[：https://www.corriere.it/economia/aziende/21\_giugno\_29/crisi-container-cos-e-quali-sono-cause-fa2b58d0-d8a4-11eb-8266-a744dc7bc2d8.shtml](http://：https://www.corriere.it/economia/aziende/21_giugno_29/crisi-container-cos-e-quali-sono-cause-fa2b58d0-d8a4-11eb-8266-a744dc7bc2d8.shtml)
+
 0

@@ -1,45 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】中国对澳大利亚关税提起世贸组织争端
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1361042/)
+## 朝鲜出现CCP病毒相关严重事件 金正恩痛批高官
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1361563/)
 
-翻译：纽约香草山健身部 Ivy001
+翻译：yyshere
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30043054/000_1FW142-600x400-1.jpg)This handout picture provided by press service of Administration of Primorsky Krai shows North Korean leader Kim Jong Un meeting with Russian officials in the Russian border town of Khasan on April 24, 2019. (Photo by Alexander SAFRONOV / Press Service of Administration of Primorsky Krai / AFP) / RESTRICTED TO EDITORIAL USE – MANDATORY CREDIT “AFP PHOTO / Press Service of Administration of Primorsky Krai / Alexander SAFRONOV” – NO MARKETING NO ADVERTISING CAMPAIGNS – DISTRIBUTED AS A SERVICE TO CLIENTS
+根据朝鲜官媒朝鲜中央通讯社6月30号的报道，朝鲜领导人金正恩在执政党劳动党政治局会议上公开斥责党和政府的高级官员在抗击Covid-19（CCP病毒）疫情方面的失败。
 
+报道指出，金正恩召集这次会议就是为了专门讨论抗疫失败的问题，并引述金正恩的话表示，“发生了一起 ‘严重事件‘，给国家造成了’”巨大危机‘。” 金正恩还批评高级官员在计划和执行抗击病毒的措施时“无能、不负责任和被动”。
 
+此前，朝鲜一直声称在世界各国全面陷入Covid-19（CCP病毒）疫情时，虽然他们与最先爆发严重疫情的中共国接壤，且边界存在许多漏洞，但经过对3万多人进行检测，也没有任何病毒感染病例。中共官媒也一直在为朝鲜站台，并在6月中旬的报道中称，“为防止疫情输入境内，朝鲜于2020年1月下旬开始关闭边界，并将紧急防疫措施提高到最高级别。朝鲜政府称，由于防控措施得当，朝鲜迄今为止没有发现一例新冠确诊病例。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031907/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
+根据网络公开信息，2020年1月22号，也就是Covid-19（CCP病毒）疫情最初的爆发地中共国武汉封城前的一天，朝鲜就已对所有外国旅客关闭边境，理由是防止病毒扩散至境内。1月28号，平壤当局要求开城南北共同联系事务所的韩国人员全体配戴口罩，所有经中国入境的外国人必须隔离1个月。朝鲜官媒《劳动新闻》于1月30号发表“谋求彻底防范新型冠状病毒感染的应急对策”的文章，称朝鲜中央、道、市、郡各级政府设立应急防疫指挥部，同时北京至平壤间K27/28次列车暂停国际联运。31号，朝鲜全面停运朝中旅客列车（平壤至丹东间95/85次，满浦至集安间7263/8271次），同时暂停平壤至国外的所有航班、列车及船运。
 
+而朝鲜也一直将国内没有爆发疫情归功于这先知先觉异常及时的关闭边境决策。
 
+不过国际医学界普遍怀疑朝鲜的零病例和零疫情的说辞，毕竟朝鲜的公共卫生条件非常薄弱，加之朝鲜和中共国有着一脉相承的“隐瞒一切不利于自身统治的消息”的传统。
 
-柏林（路透社）–世贸组织周二表示，中国已在世界贸易组织，就澳大利亚对从中国进口的风塔、深冲压不锈钢水槽和铁路车轮征收的关税提出了争议。
+回顾之前中共官媒引述朝中社的报道称，金正恩在本月15号召开的朝鲜劳动党第八届中央委员会第三次全体会议上“听取了有关国家紧急防疫工作现状的分析报告，并明确指出在新冠疫情导致的世界卫生危机愈加严重的条件下，防疫工作是国家必须解决的当务之急。他还就如何持续保证国家防疫状态、周密安排经济工作提出了任务和要求”。
 
-世贸组织表示，中国的请求已于周二分发给其成员。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29224352/Untitled-design-2021-06-29T204110.065.png)图片来源： Reuters
-周一，世贸组织证实，澳大利亚已就中国对进口瓶装葡萄酒征收关税提出了正式申诉。
+在这篇报道中只字未提有任何疫情出现。那么这之后的两周内，朝鲜出现的怎样巨大的防控失误和事故呢？
 
-自从堪培拉要求对新冠病毒的来源进行国际调查以来，与中国的关系已经恶化。该病毒于2019年底在中国首次报道。
+有观察人士猜测，这次金正恩的表态，是否会是朝鲜希望利用“疫情爆发“，向国际援助敞开国门的前奏，毕竟自去年秋冬以来，朝鲜已经进入了日益严重的食品匮乏状态。同时也不排除，朝鲜确实出现了难以控制的大规模疫情爆发。那么，这迟来的大爆发，是因为中共嗅到了朝鲜可能”反水“的气息，给它送去了病毒吗？
 
-报告人：Emma Thomasson；编辑：Riham Alkousaa
+截至发稿时，仍未从其他渠道获得与之相关的任何消息。
 
-https://www.reuters.com/article/us-trade-wto-china-australia-idUSKCN2E513N
+一切仍有待进一步观察。
 
-校对/发稿：火内
+校对发稿：神奇四侠
 
+本文系作者个人观点，不代表GNEWS平台
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29032328/6_june-7.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
