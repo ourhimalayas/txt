@@ -1,23 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 调查数据显示，中共国在全球形象上落后于美国
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1362090/)
+## 【路德社即时简报】 江、胡、温、朱未出席党庆汇演
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1362119/)
 
-翻译：文复
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30104557/statue-of-liberty-267948_1920.jpg)
-香港——一项针对 17 个发达经济体的新民意调查发现，尽管中共国在应对疫情方面的表现有所改善，但在全球声誉方面仍落后于美国，继续徘徊在历史最低点附近。
+作者：香草山翻译部    GBW
 
-皮尤研究中心的调查发现，当被问及他们更愿意与哪个国家建立更密切的经济联系时，越来越多的受访者认为美国而不是中共国。皮尤在 6 月初发布的另一项民意调查中发现，这反映了自特朗普政府让位于拜登政府以来美国全球形象的反弹。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031907/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
-2 月至 5 月对四大洲 18,850 人进行的关于中共国形象的调查结果表明，北京在国外的激进外交和在其国内的威权政策正在塑造着负面看法。
 
-皮尤的数据显示，在中国共产党准备在周四庆祝建党 100 周年之际，日本、瑞典、澳大利亚、韩国和美国的受访者中，约有四分之三或更多的人不看好中国。
 
-去年人们对中共国的看法大跌，部分原因是大多数受访者认为北京对大流行的处理不当。今年，大约一半的受访者表示中共国处理得很好。
 
-新闻来源：[WSJ](https://www.wsj.com/articles/china-falls-behind-u-s-in-global-image-survey-data-shows-11625061602)
 
-校对发稿：Ada （马德里）
+2021年6月30日早，路安墨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30110741/20-2.png)
+**1. 江泽民、胡锦涛、温家宝、朱镕基未出席中共百年文艺汇演。但是其他江派人物都参加了。**
+
+a. 安红：中共老人表示不和习近平一条阵线。
+
+b. 路德：胡锦涛身体还可以。前一阵江泽民还公开现身。
+
+c. 墨博士：这种重要场合，如果要来，抬也要抬来。
+
+d. 路德：其他江派人物都参加了，是习近平在示威并让江泽民难堪。
+
+e. 路德：明天可以关注中共老人是否在天安门出现，如何互动，电视画面如何呈现。
+
+f. 墨博士：如果明天中共内部不和被公开，就会向西方发出一个信号，即中共正在衰弱。
+
+**2. 美国区块链核心小组的联合主席说，政府必须有权力逆转加密货币交易。**
+
+a. 路德：联邦法院有权力要求逆转，政府部门比如FBI有能力执行逆转。
+
+b. 安红：一旦能逆转，就能溯源犯罪分子。
+
+**3. 日本防卫大臣岸信夫表示日本政府不将台湾看作“国家”，“一个中国”立场从未改变。**
+
+a. 路德：日本没说“中华民国”不是一个国家。国家和政府是不同概念。
+
+笔记仅作参考，内容以路德社节目为准。
+
+
+
+校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29032328/6_june-7.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29031855/WhatsApp_Image_2020-10-24_at_04.33.05-3.jpeg)
+
+
+
+
 
 0

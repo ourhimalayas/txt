@@ -1,43 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在被美军空袭后，伊朗支持的民兵发誓对美国进行报复
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1362012/)
+## 【战友寄语】前傀儡特首董建华 奴颜婢膝舔共 再贬香港
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1362145/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30104740/11953.jpg)图片来源网络
+#### 搜集：文燕 \ 撰文：岁月如歌 \ 封面合成：文粤
 
-**据《零对冲》作者：TYLER DURDEN，2021年6月28日报道：**
 
-周日晚间美国对叙利亚和伊拉克一系列空袭是拜登担任总统期间第二次公开披露的军事打击，据称是针对伊朗支持的民兵，这些民兵一直在用无人机和火箭弹袭击美国部队阵地。
-美联社隔夜援引伊拉克民兵官员的话说，在美国沿叙利亚东部边境的行动中，至少有四名民兵被打死——第一次打击是在叙利亚境内的一个武器库。此外，一个总部设在英国的中东监测组织说，至少有7名伊拉克战士被杀。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30110853/6301.jpg)
+立场新闻6月29日报道：「全国政协主席董建华29日接受中心社访问时表示，香港除了深层次矛盾，亦有港英政府遗留的隐患，及外部势力干预。他认为，香港过去两年的挑战，超出港府的处理能力，中央正本清源，情况会每况愈下。他指香港拥有一国两制是最强大的制度优势，保障资本权主义，同时“搭上国家经济快车”，展开创科中心前景，认为国际尊重中国，亦明白香港问题，纯属中国内政」。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101717/1195.jpg)美国对叙利亚和伊拉克边境地区的亲伊朗民兵进行了空袭。
-[https://twitter.com/Ozkok\_A/status/1409438903753490436?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-](https://twitter.com/Ozkok_A/status/1409438903753490436?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-)
+本来一直对这个过气了的，泥巴已经埋到眉毛的老东西，知道其时日无多懒得去评论，但是在中共「百岁大限」的日子，这个被香港人戏称“老懵董”脑残的老东西跳出来刷存在感，昧着良心说屁话，维护中共，用心险恶。说什么“香港问题纯属中国内政”，激起了我扒扒他的皮的兴趣。
 
-根据周日晚些时候的一份声明，“今天晚上早些时候，美国军队对伊朗支持的民兵组织在伊拉克-叙利亚边境地区使用的设施进行了防御性精确空袭”。而《华尔街日报》在周一描述道，“五角大楼说，叙利亚-伊拉克边境附近的三个地点的行动和武器储存设施遭到了打击，它说这些设施曾被Kata’ib真主党和Kata’ib Sayyid al-Shuhada民兵组织使用。”
-这一升级再次引发了与巴格达的紧张关系——更不用说威胁到维也纳伊朗核谈判的进一步复杂化——此时，伊拉克政府的大部分人都在向西方军队施压，要求他们最终从伊拉克领土上撤走，因为“反ISIS”的任务似乎早已完成。伊拉克军队发表了一份严厉的声明，谴责“对伊拉克主权和国家安全的公然和不可接受的侵犯”。
-同时，至少有一位美国国会议员指出，拜登下令的打击行动明显缺乏战争授权或国会批准……
+1997年董建华被推上特首的位置，尝到权力的快感后，就深深爱上了这个游戏，到了迷恋如痴如醉的程度。被50万香港人上街抗议下台后，直接进了全国政协委员会。一呆到现在，还不舍得离开。香港变成今日这样，有他的功劳。过去的香港是什么样，现在又是什么样，作为参与者董建华绝对不比任何一个香港人知道得少。香港两年时间就沦为中共红色政权揉虐的臭港，经济一落千丈，市民流离失所，伤的伤，死的死，逃的逃，还有许多在监牢。香港失去最优惠国待遇，从一个国际都市沦为中共官管治下的一个省，老懵董竟然说若非中共果断出手，香港不堪设想。这老东西非贱即坏。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30110909/6302.jpg)
+董建华家族，不，应该说董浩云家族在香港是家世显赫的“船王世家”。董建华的父亲董浩云（又名董兆荣）16岁就在旧上海给航运巨头顾宗瑞打工，深得老板赏识，并把千金顾丽真许给董浩云，自此董浩云青云直上，在天津开始创业，后移至上海发展，事业逐渐辉煌，成为航运帝国。 1948年，因国共战争引起社会动荡，董浩云一家为了躲避战乱举家迁至香港， 1969年成立的东方海外，在最鼎盛的时期拥有一支150艘货船，总载量超过1000万吨的船队，跻身世界7大船王行列。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101752/1195-1.jpg)美国军队在伊拉克或叙利亚没有任何法律授权。把他们带回家，停止以自卫为幌子轰炸人民。
-[https://twitter.com/justinamash/status/1409302541909770240?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/justinamash/status/1409302541909770240?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
+董建华为了自己的仕途，对自己的父亲过去的历史进行了修改，称父亲是看好香港把他带到香港来发展的，隐瞒了真正的历史事实。1948年正是国共内战共产党攻打上海的时间。董浩云为了生存和大陆所有逃难者一样，跑到当时唯一的安全乐园香港。在当时的上海资本家逃难的还有唐英年的父亲、田北俊的父亲等家族。一个迷恋权力能把家族历史篡改的人，对社会的是非黑白进行颠倒不是什么难事，董建华就是这样的人。 董建华不但能颠倒黑白篡改自己家族历史还是个十足的败家子，2017年董建华把父亲一手创办的航运帝国东方海外，以492亿元卖给了中共国企中远海运。与其说是卖，不如说是被中共侵吞，中共国的私人企业家就是养肥的羔羊，到了待宰的时候，中共从不手软，直接就以各种罪名灭了企业家吞了企业，老懵董能换钱还算是命大。在全世界都被C C P病毒肆虐，死了几百万人的时候，董建华却在2020年12月17日出席香港基金会周年工作视频会议时称，“中国出现领导人习近平，这是中国人的福气”。老东西不但瞪眼说瞎话一流，拍马屁功夫也炉火纯青，习近平奖赏给他的狗链一点不亏。2021年5月24日，董建华与梁振英发在「香港再出发大联盟」一周年记者会上，针对眼下因中共侵占了香港而发生的移民潮大肆嘲讽，称香港人移民是「没有远见」。完全忘记了自己当年是如何逃难的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30110921/6303.jpg)
+董浩云家族、范徐丽泰父亲徐大统家族，唐英年，田北俊、李嘉诚、霍英东等这些香港的家族都是中共在上香港放长线钓大鱼的统战对象，也是中共的战利品。 1982年董浩云过世后，董家事业衰落，中共通过红顶商人霍英东把手伸进董氏家族，利用钱解决了董家困境也顺利统战成功。董建华，建华，建设中华，因为名字起得好，成为了首任特首。其他的名门望族也在回归后谋到一官半职，这就是中共统战的承诺与计划，把这些香港家族紧紧捏住为其利用，而这些曾经逃避中共来港的后代们明知道中共坏，为了钱也乐得其所。
 
-外交部发言人赛义德.哈提卜扎德周一表示，不出意料，德黑兰也指责空袭在该地区制造不稳定。“肯定的是，美国的所作所为正在扰乱该地区的安全。”
-但最重要的是，在为可能即将发生的升级创造条件方面，一个亲伊朗的伊拉克民兵联盟在紧接着发表的一份声明中发誓要进行报复。
-他们说：“我们……将为我们正义的烈士们向这一令人发指的罪行的实施者报仇，在上帝的帮助下，我们将使敌人尝到复仇的苦果。”
+时事评论员刘细良在网台节目中，斥董建华嘲笑港人移民，不惜侮辱自己父亲，可见他不但老懵董脑残，更是无耻。他批评董建华数典忘宗，为了「四个意识、四个自信、两个维护」篡改自己家族历史。刘细良说「董建华最终是要偿还的，整个家族产业毁在你手上，你还有面目见你老父？」。不管是谁，搭上了中共的贼船就不再有好人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30102105/1195-2.jpg)当美国轰炸千里之外的主权国家，而国防部称其为”防御性”时，我理解。那是他们的事。但为什么这么多关于轰炸的新闻报道都重复这个词？许多”记者”都是速记员，不加评估地鹦鹉学舌。
-[https://twitter.com/stephenkinzer/status/1409474186888761344?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/stephenkinzer/status/1409474186888761344?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
 
-在川普政府执政的最后一年，随着美军与伊朗支持的伊拉克民兵之间越来越多针锋相对的攻击，这种空袭开始越来越普遍。2020年期间，这一系列攻击几乎将伊朗和美国吸进了直接战争，特别是在1月卡西姆.苏莱曼尼将军被暗杀之后。
+【本文仅代表作者个人观点】
 
-原文连接：[https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
+参考链接：
+[立场新闻](https://www.thestandnews.com/politics/%E8%91%A3%E5%BB%BA%E5%8D%8E-%E8%8B%A5%E9%9D%9E%E4%B8%AD%E5%A4%AE%E6%9E%9C%E6%96%AD%E5%87%BA%E6%89%8B-%E9%A6%99%E6%B8%AF%E6%83%85%E5%86%B5%E4%BC%9A%E6%AF%8F%E5%86%B5%E6%84%88%E4%B8%8B)[-董建华：若非中央果断出手　香港情况会每况愈下](https://www.thestandnews.com/politics/%E8%91%A3%E5%BB%BA%E5%8D%8E-%E8%8B%A5%E9%9D%9E%E4%B8%AD%E5%A4%AE%E6%9E%9C%E6%96%AD%E5%87%BA%E6%89%8B-%E9%A6%99%E6%B8%AF%E6%83%85%E5%86%B5%E4%BC%9A%E6%AF%8F%E5%86%B5%E6%84%88%E4%B8%8B)
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – 明子
-编辑：洛杉矶盘古农场 –傻小子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[董浩云逃避中共赴英治香港 董建华篡改家族史](https://m.secretchina.com/news/gb/2021/05/26/972958.html)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[维基百科](https://zh.m.wikipedia.org/wiki/%E9%A1%BE%E4%B8%BD%E7%9C%9F)[-顾丽真](https://zh.m.wikipedia.org/wiki/%E9%A1%BE%E4%B8%BD%E7%9C%9F)
 
-+1
+
+*审核**/**校对：文粤**/**上传：天网灰灰*
+
+0

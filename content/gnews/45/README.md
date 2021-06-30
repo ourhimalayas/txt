@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## PLA（中共国人民解放军）是CCP最后的陪葬品
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1361950/)
+## 在被美军空袭后，伊朗支持的民兵发誓对美国进行报复
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1362012/)
 
-撰稿：蓝李子，苏加诺
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30092244/305-1.jpg)（Source: https://news.ltn.com.tw/news/world/paper/1453905 ）
-PLA～～全称People’s Liberation Army,是中华人民共和国的正规军。这个打着人民名义的军队，究竟都干了些什么为人民服务的事情呢？最近七哥提到了以黄灭共的新思路，彻底揭露了杨澜–这位大众眼里的温文尔雅的知识女性背后，却是P L A军方花多年心血培养的超级女间谍～她活跃在全世界的名人圈，用美丽的外表来俘获一个又一个像小布什一样的大人物，并以此为筹码，让其为CCP统治全球的野心开绿灯。要不是七哥的爆料，CCP说不定真能实现这个野心。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30104740/11953.jpg)图片来源网络
 
-原本在大众心目中，都以为这种事往往只会发生在知识水平有限，物质欲望很强的女性身上。没有想到像杨澜这样一个高级知识分子，有才华，事业成功的女性，也为了国家的需要，宁愿去做这种角色。美其名曰为“国家献身”。
+**据《零对冲》作者：TYLER DURDEN，2021年6月28日报道：**
 
-甚至于每次用美色把政治要人勾引到手后，还有领导在门外守候为其开庆功会。其行为之无耻下流，已经到了登峰造极的地步了。
+周日晚间美国对叙利亚和伊拉克一系列空袭是拜登担任总统期间第二次公开披露的军事打击，据称是针对伊朗支持的民兵，这些民兵一直在用无人机和火箭弹袭击美国部队阵地。
+美联社隔夜援引伊拉克民兵官员的话说，在美国沿叙利亚东部边境的行动中，至少有四名民兵被打死——第一次打击是在叙利亚境内的一个武器库。此外，一个总部设在英国的中东监测组织说，至少有7名伊拉克战士被杀。
 
-今天的杨澜，不禁让人想起昨天的川岛芳子与苏联时期的燕子们。故事都很相似，高潮迭起，但结局都是一样，让人唏嘘不已。不外乎作为邪恶帝国倒下的陪葬品，并且被世人永远的记在耻辱柱上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101717/1195.jpg)美国对叙利亚和伊拉克边境地区的亲伊朗民兵进行了空袭。
+[https://twitter.com/Ozkok\_A/status/1409438903753490436?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-](https://twitter.com/Ozkok_A/status/1409438903753490436?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409438903753490436%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-)
 
-P L A这支在C C P统治下的爪牙，又一次成为热点，呈现在世人的面前。他们除了培养这种像女妖精一样的女间谍之外，还为CCP的邪恶统治做过什么样的“贡献”呢?
+根据周日晚些时候的一份声明，“今天晚上早些时候，美国军队对伊朗支持的民兵组织在伊拉克-叙利亚边境地区使用的设施进行了防御性精确空袭”。而《华尔街日报》在周一描述道，“五角大楼说，叙利亚-伊拉克边境附近的三个地点的行动和武器储存设施遭到了打击，它说这些设施曾被Kata’ib真主党和Kata’ib Sayyid al-Shuhada民兵组织使用。”
+这一升级再次引发了与巴格达的紧张关系——更不用说威胁到维也纳伊朗核谈判的进一步复杂化——此时，伊拉克政府的大部分人都在向西方军队施压，要求他们最终从伊拉克领土上撤走，因为“反ISIS”的任务似乎早已完成。伊拉克军队发表了一份严厉的声明，谴责“对伊拉克主权和国家安全的公然和不可接受的侵犯”。
+同时，至少有一位美国国会议员指出，拜登下令的打击行动明显缺乏战争授权或国会批准……
 
-远的不说，武汉病毒是由中国军方研究出来的，而且武汉病毒在发现的第一时间，就由习亲自派的中国首席生化武器专家陈薇少将接管所谓的武汉P4实验室。这难道是巧合?而且了解共产主义的人都知道CCP管天管地，中间还管着你的生殖器。这样一位“负责任”的政府，会让民间去独立进行病毒的研究和应用吗？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30101752/1195-1.jpg)美国军队在伊拉克或叙利亚没有任何法律授权。把他们带回家，停止以自卫为幌子轰炸人民。
+[https://twitter.com/justinamash/status/1409302541909770240?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/justinamash/status/1409302541909770240?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409302541909770240%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
 
-再者就是香港镇压学生。作为一个政府的暴利机构，去平叛学生运动。本以为把学生像8964那样夺去生命，这已经是手段残暴，令人发指了。而PLA不仅夺去了学生生命，还运用各种犯罪手段，折磨虐待这批学生。各种死法层出不穷，对学生们做到了最大极限的伤害与侮辱。
+外交部发言人赛义德.哈提卜扎德周一表示，不出意料，德黑兰也指责空袭在该地区制造不稳定。“肯定的是，美国的所作所为正在扰乱该地区的安全。”
+但最重要的是，在为可能即将发生的升级创造条件方面，一个亲伊朗的伊拉克民兵联盟在紧接着发表的一份声明中发誓要进行报复。
+他们说：“我们……将为我们正义的烈士们向这一令人发指的罪行的实施者报仇，在上帝的帮助下，我们将使敌人尝到复仇的苦果。”
 
-同样的事情几月前又发生过一次。 五月份内地有几所院校从本科降级到专科，导致之前已经入学并且即将毕业的学生苦学四年最后却拿到了一份专科的文凭，由此学生们为了维护自己正当的权利组织游行。PLA全副武装进入校园，对手无寸铁的学生进行了残暴地殴打和疯狂地抓捕，让人不禁联想起8964。两个星期不到的时间网上所有关于这个的消息都已经消失不见，PLA的丑恶嘴脸又一次被掩盖。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30102105/1195-2.jpg)当美国轰炸千里之外的主权国家，而国防部称其为”防御性”时，我理解。那是他们的事。但为什么这么多关于轰炸的新闻报道都重复这个词？许多”记者”都是速记员，不加评估地鹦鹉学舌。
+[https://twitter.com/stephenkinzer/status/1409474186888761344?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://twitter.com/stephenkinzer/status/1409474186888761344?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1409474186888761344%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Firan-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
 
-可笑的是P L A目前还是以人民的军队冠名，而背后竟做CCP邪恶统治下的帮凶，烧杀抢掠、男盗女娼、杀人灭口、毒害百姓…… 他们真应该改名叫镇压人民军队才是，他们的枪口毫不犹豫地对着人民。
+在川普政府执政的最后一年，随着美军与伊朗支持的伊拉克民兵之间越来越多针锋相对的攻击，这种空袭开始越来越普遍。2020年期间，这一系列攻击几乎将伊朗和美国吸进了直接战争，特别是在1月卡西姆.苏莱曼尼将军被暗杀之后。
 
-有道是，失道者则无德，失德者则无仁，失仁者则无义，失义者则无礼，失礼者则无法，失法者则黩武穷兵。他们都是在用人民的血汗钱来做一切反人民的事情。为了得到C C P的利益，哪怕是伤天害理，哪怕是猪狗不如。眼看C C P的末日就要来临，人民解放军作为CPP统治人民的工具，是跟随CPP ，像不断加速的列车驶向地狱；还是放下屠刀，彻底幡然醒悟自己的丧尽天良的行为，毕竟是人民的乳汁哺育了你们，而不是鱼肉百姓的CCP，你们也是个牺牲品，不要再堕落下去了。看看那些维权的老兵，他们的今天就是你的明天，在CCP眼里就是条看家狗，毫无尊严可言。你们是像动物一样的活着，还是活的像个人样，历史会给你记载下来，让我们拭目以待！
+原文连接：[https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes](https://www.zerohedge.com/geopolitical/iran-backed-militias-vow-swift-revenge-against-us-after-syria-iraq-airstrikes)
 
-（本文内容仅代表作者个人观点）
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – 明子
+编辑：洛杉矶盘古农场 –傻小子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 +1
