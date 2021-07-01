@@ -12,29 +12,29 @@
 
 ---
 
-### [【七一百年冥诞】新中国联邦讨伐中共“反洗脑”运动开始](/content/gnews/1/README.md)
+### [【七一百年冥诞】GTV在新办公室首播—受到中共猛烈攻击](/content/gnews/1/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【七一百年冥诞】郝叶夫妇连线文贵先生谈北朝鲜、武统台湾和病毒真相](/content/gnews/2/README.md)
+### [【七一百年冥诞】新中国联邦讨伐中共“反洗脑”运动开始](/content/gnews/2/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【七一百年冥诞】CNN总部搬走 GNEWS等新媒体变革平台登场！](/content/gnews/3/README.md)
+### [【七一百年冥诞】郝叶夫妇连线文贵先生谈北朝鲜、武统台湾和病毒真相](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共——一个残暴的灾难和滔天罪行的世纪](/content/gnews/4/README.md)
+### [【七一百年冥诞】CNN总部搬走 GNEWS等新媒体变革平台登场！](/content/gnews/4/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共——一个残暴的灾难和滔天罪行的世纪](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [讨共檄文](/content/gnews/5/README.md)
- ` 首尔天池农场`
-
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（二） 郝海东、叶钊颖篇](/content/gnews/6/README.md)
+### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（三）安红、生命美哥、左轮篇](/content/gnews/6/README.md)
  ` 喜联盟七哥直播组`
 
-### [郭爆料串珠（299）美国人意识到ZOOM：赚我钱要我命，偷技术偷未来](/content/gnews/7/README.md)
+### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（二） 郝海东、叶钊颖篇](/content/gnews/7/README.md)
+ ` 喜联盟七哥直播组`
+
+### [郭爆料串珠（299）美国人意识到ZOOM：赚我钱要我命，偷技术偷未来](/content/gnews/8/README.md)
  ` 郭爆料串珠`
-
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（一）](/content/gnews/8/README.md)
- ` 喜联盟七哥直播组`
 
 ### [【澳洲热点】澳前驻华大使谈中共，一针见血](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
@@ -57,41 +57,41 @@
 ### [丹妮尔.安德森为中共病毒来自自然背书靠得不是勇气而是愚蠢](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【字幕视频】2019-2020 香港](/content/gnews/16/README.md)
+### [【有声读物】躺平青年](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [【有声读物】中共建党百年冥诞，国际反应冷淡](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [【字幕视频】2019-2020 香港](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【每日快讯】06/30/2021:因G系列有借钱来往代持关系私人借钱互相担保金融关系必须向联盟委员会报备](/content/gnews/17/README.md)
+### [【每日快讯】06/30/2021:因G系列有借钱来往代持关系私人借钱互相担保金融关系必须向联盟委员会报备](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [超限生化武器~超限化学武器 亲历者的哭诉](/content/gnews/18/README.md)
+### [超限生化武器~超限化学武器 亲历者的哭诉](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [别看你以前闹得欢 今天开始拉清单](/content/gnews/19/README.md)
+### [别看你以前闹得欢 今天开始拉清单](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【路德时评摘要】2021.6.26晚间：美军为什么要在推特上发绿色贝雷帽？](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021/06/27 相信问责制，希望传唤福奇和NIH负责人](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（二） 郝海东、叶钊颖篇](/content/gnews/22/README.md)
+### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（三）安红、生命美哥、左轮篇](/content/gnews/22/README.md)
  ` 喜联盟七哥直播组`
 
-### [【七一百年冥诞】郝海东、叶钊颖揭中共洗脑真相 直播受严重干扰](/content/gnews/23/README.md)
- ` 秘密翻译组G-Translators`
+### [【NewsExpress】普京对拜登表示尊重](/content/gnews/23/README.md)
+ ` 索尼克`
 
-### [【樱花宅急便】解读习近平中共百年冥诞所谓的“金句”（之三）](/content/gnews/24/README.md)
- ` 日本东京樱花团`
-
-### [【七一百年冥诞】GTV在新办公室首播—将终结中共百年杀戮](/content/gnews/25/README.md)
- ` 秘密翻译组G-Translators`
-
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（一）](/content/gnews/26/README.md)
+### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（二） 郝海东、叶钊颖篇](/content/gnews/24/README.md)
  ` 喜联盟七哥直播组`
 
-### [【樱花宅急便】中共庆百年 港人急逃离](/content/gnews/27/README.md)
+### [【七一百年冥诞】郝海东、叶钊颖揭中共洗脑真相 直播受严重干扰](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【樱花宅急便】解读习近平中共百年冥诞所谓的“金句”（之三）](/content/gnews/26/README.md)
  ` 日本东京樱花团`
+
+### [【七一百年冥诞】GTV在新办公室首播—将终结中共百年杀戮](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [G-News编辑部关于部分国内作者被中共公安国保喝茶恐吓事件的声明](/content/gnews/28/README.md)
  ` developer001`

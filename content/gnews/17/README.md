@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/30/2021:因G系列有借钱来往代持关系私人借钱互相担保金融关系必须向联盟委员会报备
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1364773/)
+## 【有声读物】中共建党百年冥诞，国际反应冷淡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1365185/)
 
-**製作：澳喜粤语组**
+配音：香草山录音组 信念7
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**播报：【文依】整理：【Elaine】【闪电】视频制作:【ken】PPT：【小豆牙】发布：【陆柒陆捌】**
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01090721/image1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091033/image2.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091112/image3.png)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091149/image4.png)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091226/image5.png)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091432/image6.png)
-7
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091503/image7-1.png)
+
+
+
+中共于北京时间7月1日上午8点在北京天安门广场举行建党一百周年活动，习近平发表讲话，胡锦涛早先没有参加在鸟巢的庆祝活动，但参加了今天上午的活动，江泽民两次重大活动均未露面。
+
+
+
+
+
+**文字版原文：[【热点播报】中共建党百年冥诞，国际反应冷淡](https://gnews.org/zh-hans/1363584/)**
+
+作者：纽约香草山福音部 honglu61
+
+
+
+音频处理/发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0
