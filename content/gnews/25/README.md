@@ -1,30 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共建党百年前严控藏地——比如县数名藏人被捕
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1363227/)
+## 【热点播报】中共习近平在党的生日上承诺与台湾 “统一”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1363826/)
 
-2021年6月30日
+作者：美东香草山健身部 文真
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30222046/0-78.png)
-
-**新闻摘要：**
-
-一位不愿具名的西藏那曲比如籍藏人6月29日爆料自由亚洲电台称，自2008年的数年来，那曲市的那曲县、比如县、索县等地多次发生过藏人自焚和游行示威等事件，以示对高压政策的不满，因此长期以来一直受到当局的严格控制，尤其在中共建党百周年日前夕，这些地方的局势更趋紧张：“比如县、索县等地的网络仍受当局的限制，境内外的亲属之间很难取得联系。消息人士说：“目前在所有被捕藏人中，唯一已知的名字是居住在比如县扎拉乡美日村的一名男性村民。另一位居住印度的西藏比如籍藏人亚达也向本台证实，数名藏人自今年四月在比如县被捕后，至今下落不明。
-
-澳大利亚西藏倡议组织（Tibet Initiative Network Australia, TINA）负责人益西曲桑6月30日就此表示：“中共在西藏对宗教的打压措施，不光是针对党员干部，同时也针对普通职员、学生和民众，这几年这种高压手段更是变本加厉。他补充说：“自1949年至今，不仅有120多万人在西藏被屠杀，而且有数百名西藏作家、知识分子、音乐家、艺术家、环保人士和宗教人士被任意逮捕、监禁，并遭受严重的酷刑和非人道待遇，仅仅是因为表达了他们对信仰和身份的看法。
-
-**【**[新闻来源](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/dz-06302021143650.html)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![](https://gnews.org/55e995c8-784d-44d6-a8e2-0f1f94c4c905)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-0
+
+7月1日路透社报道，周四，中共主席习近平在执政的共产党百年之际采取了强硬立场，承诺与自治的台湾完成 “统一”，并发誓要 “粉碎”该岛正式独立的任何企图。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01042549/010.png)图片来源：网络 
+中共国认为民主统治的台湾是自己的领土，在习近平的领导下，加大了维护其主权主张的力度，包括定期派遣战斗机和轰炸机接近该岛。
+
+习近平在北京天安门广场发表讲话说：“解决台湾问题，实现祖国完全统一，是中国共产党坚定不移的历史任务，是全体中国人民的共同愿望。”
+
+“所有中华儿女，包括台湾海峡两岸的同胞，必须齐心协力，团结奋进，坚决粉碎任何 ‘台独’ 图谋。”
+
+虽然中共国从未放弃使用武力将台湾置于其控制之下，但习近平呼吁开展 “和平统一 ”进程。
+
+不过，他说，任何人都不应 “低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志和强大能力”。
+
+台湾的大陆事务委员会告诉路透社，它正在对习近平的评论做出回应。
+
+1949年，在一场内战中败给毛泽东领导的共产党后，战败的中华民国政府逃到了台湾。
+
+大多数台湾人没有对被中国统治表现出兴趣。台湾政府说，只有该岛的人民可以决定他们的未来，并谴责中共国的施压。
+
+中国认为台湾总统蔡英文是一个一心想要宣布独立的分裂主义者。她说，台湾已经是一个独立的国家，正式的名称叫做中华民国。
+
+引用：
+
+[https://www.reuters.com/world/china/chinas-xi-pledges-reunification-with-taiwan-partys-birthday-2021-07-01/](https://www.reuters.com/world/china/chinas-xi-pledges-reunification-with-taiwan-partys-birthday-2021-07-01/)
+
+校对/发稿：小小安
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01042449/WhatsApp_Image_2020-10-24_at_04.33.05.jpeg)
+
+
+
+
+
++3

@@ -1,28 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共党庆 官媒秀“战机射导弹”被抓盗印度影片…秒删
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1363342/)
+## 【战友心声】如何看待中共、中国文化和中国人
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1364426/)
 
-2021年6月30日
+作者：香草山媒体部 蚊子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30232116/0-51.jpeg)
-
-**新闻摘要：**
-
-中共官媒《中国环球电视网》（CGTN）6月30日在官方推特释出1段“歼-10战机发射导弹”影片，结果立刻被抓包是盗用印度空军8年前“光辉战机发射导弹”影片片段，目前官媒已删除影片，但引起网友截图疯传讨论。
-
-**【**[新闻来源](https://www.huaglad.com/topimagenews/20210701/436851.html)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01071710/1-4.jpg)
 
-+3
+一、问：先骂共产党还是先批判人民？
+
+答：人民被中共匪党绑架成为人质，劫匪武器精良杀人如麻，人民只能苟且偷生。先唤醒人民共同消灭匪党，彻底解放人民，再来批判人民不迟。当下，9.9分骂党，0.1分批判人民，等人民自由了，他们才能听到真实批判声音。
+
+二、问：汉语是奴化工具，说汉语的人不如说英语的人意识自由思维活跃吗？
+
+答：不是，语言不同思考方式不同，思维多元交汇融合，更加激发人的创造力。因此，学好英文更要学好中文，两者互补，而非竞争关系。
+
+三、问：简体汉字与繁体汉字如何到底哪种好？
+
+答：交给市场选择，两者并非竞争关系，而是互补，无需刻意贬低其中一种。方块汉字如此神奇美丽，简繁融合定是文化宝藏。
+
+四、问：中国儒家文化是奴性文化吗？要刻意贬损，抬西贬中吗？
+
+答：世界文化与人性相同，皆须扬善除恶，唯有去其糟粕，取其精华。地球不可逆转，历史不可改变，只有珍惜当下，努力弘扬“己所不欲，勿施于人”等思想，狠狠批判“驭民五术”等理念，而非全盘否定中国文化。
+
+五、问：人种不行言论是否成立？
+
+答：不成立。好制度，将坏人变成好人；坏制度，将好人逼成魔鬼。批判制度，而非谩骂任何人种，因血源肤色永不可改变，贬损同族无法赢得他人（族）尊敬，相反只会让他人（族）更加看不起。
+
+六、问：爆料革命战友该怎么做？
+
+答：白天，用地球人眼界（人性）参与世界——唤醒人类扬善除恶；夜晚，用外星人视角（灵魂）审视人间——好人坏人都是人。放下民族主义，尝试着用更加理性的眼光去看待这个世界。
+
+一起修行，携手前进，消灭共产党，建设新中国联邦，爬上喜马拉雅！
+
+校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
