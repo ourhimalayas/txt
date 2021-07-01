@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 别看你以前闹得欢 今天开始拉清单
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1364293/)
+## 超限生化武器~超限化学武器 亲历者的哭诉
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1364332/)
 
 - 制作：视频组
 

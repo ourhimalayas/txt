@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 瑞士政府将购置36架F-35及5套爱国者防空系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1364507/)
+## 【七一百年冥诞】中共百年冥诞之中共在微信朋友圈最后的狂妄与叫嚣
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1364889/)
 
-媒体来源：瑞士《新苏黎世报》Neue Zürcher Zeitung | 发表日期：2021年6月30日
-翻译：原乡人|校对/审核：GokuAbuela|Page：小雨
+#### 撰稿、采图：Hakunamatata
 
-**摘要翻译：**
+#### 责编：胡天                             
 
-[!\[\]()!\[\](https://spark.adobe.com/page/aZhDTe0nD30lw/images/5de63913-9a73-4d86-ac77-a9c370e68e2b.png?asset_id=6d641f0d-c4b8-4f32-a0a2-bb506a037e03&amp;img_etag=%22cb90c6813c8d0afde8780553240abb91%22&amp;size=2560)](https://spark.adobe.com/page/aZhDTe0nD30lw/images/5de63913-9a73-4d86-ac77-a9c370e68e2b.png?asset_id=6d641f0d-c4b8-4f32-a0a2-bb506a037e03&amp;img_etag=%22cb90c6813c8d0afde8780553240abb91%22&amp;size=1024)
+中国共产党在百年冥诞之际，利用各个中共国的公众号，各用户主动以及被动庆祝“中共百年”的信息发送，达到了灭亡前最后的一次狂妄与叫嚣的巅峰！
 
-2021年6月30日下午16:00，瑞士国防部长维奥拉•阿姆赫德 （Viola Amherd）在首都伯尔尼新闻发布会上宣布，联邦政府决定采购36架美国洛克希德•马丁公司(Lockheed Martin)制造的F-35战机，以及5套美国制造商Rayethon的爱国者防空系统。
+朋友圈里，那些高呼“中国共产党万岁”的韭菜和杂草们，在中共对事实的掩盖下也许永远都不会明白“共产党的万岁”还会制造出多少个文革惨案，多少个场天安门的大屠杀，以及多少未出生的婴孩再次惨死在计划生育的政策中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01102952/image-49.png)
+中共国家领导人号称“我们实现了第一个百年奋斗目标，在中华大地上全面建成小康社会”这种毫无根据，完全不符合事实的宣传彻底暴露了中共以骗治国，以假治国的的本质！杨改兰式的悲剧每天都在发生，依然有6亿人口连抽水马桶都不曾用过，何来的小康社会一说？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01103004/image-50.png)
+共产党一直将人民，国家和政府一直在将这三件事偷换概念，灌输洗脑爱国就是爱政府，爱政府就是爱人民。中国人民是善良的，中共正利用这样的善良，长期固化剥夺人们对于常识的认知和理解。真正的爱国是能提出问题，从而不断改进，而不是从一而终的一言堂，那是祸国！因中共对言论的压制和管控，对自由的践踏和碾压，中共国没有创新，更没有能推动社会进步的核心技术和能力。这样的制度让人们如何幸福安康？让祖国如何繁荣昌盛？唯一获利的不过是中共金字塔顶的那几个祸国的共产家族而已。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01103117/image-52.png)
+微信朋友圈成为了中共灭亡前最后一次意淫的舞台，无论如何疯狂宣传伪造历史，中共在向世界发起生物战那一刻就注定了要面对不久之后的终极审判和灭亡！
 
-新型战机的国防预算最高60亿瑞郎，其中20亿瑞郎被指定用于新的远程地基防空系统(Bodluv GR)。专家评估表明，“闪电”战斗机(Lightning)和爱国者防空系统带来的效益最大成本最低。
-
-陆军总司令托马斯•苏斯利(Thomas Süssli)在新闻发布会发出警告，“混合战争”已经愈演愈烈，瑞士的国防必须能够应对“混合战争”，为此战斗机不可缺失，以保证战时及和平时期的空中安全。
-
-[🔗原文链接](https://www.nzz.ch/schweiz/kampfjets-die-entscheidung-ld.1630495)
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/aZhDTe0nD30lw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/aZhDTe0nD30lw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
+【文章代表作者个人观点】
 
 0
