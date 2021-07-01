@@ -1,27 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/30/2021:因G系列有借钱来往代持关系私人借钱互相担保金融关系必须向联盟委员会报备
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1364773/)
+## 【墙文推荐】你的盛世与我何干
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1361474/)
 
-**製作：澳喜粤语组**
+推荐者：香草山美食部 新世界的一员
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
 
 
 
-**播报：【文依】整理：【Elaine】【闪电】视频制作:【ken】PPT：【小豆牙】发布：【陆柒陆捌】**
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01090721/image1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091033/image2.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091112/image3.png)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091149/image4.png)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091226/image5.png)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091432/image6.png)
-7
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091503/image7-1.png)
-0
+
+推荐语：上午有个顾客跟我聊起，因为党庆他的业务差了很多。我说是的，附近的店家都这么说，我们聊起鸟巢的排练一次烟花就是7000千万元人民币，不知排练了几次，还强制要求各地方政府安排各种党庆活动，到处都是巡逻工作人员，弄的各行各业都极速走了下坡路。我说党庆是共产党员的事，不关我们国家的事，更无关老百姓的事，顾客说，是的，不知还得熬多久。
+
+共产党，你的百年之庆就是你的死期，你死了死了还要来一次劳民伤财，爆料革命会快速收拾掉你！
+
+* * *
+
+* * *
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30040550/p1616948050_41314.jpg_b.jpg)图片来源：网络
+
+你说：
+中国人均收入1万美元
+进入高度发达国家行列
+然而，实际情况却是
+6亿人月入不足1千
+9亿人月入不足2千
+你拿我去同马化腾平均
+我当然瞬间秒变亿万富翁
+实际上却是房奴卡奴
+贫富差距创古今中外之最
+平均的数字意义何在？
+
+你说：
+几年来惩治贪官408万
+难道这真的很值得炫耀？
+如果一家饭店每天
+拎出成千上万只老鼠苍蝇
+挂在饭店门槛对外炫耀
+请问我是该为饭店点赞呢
+还是觉得这饭店本身有问题？
+在这个连鬼都会贪腐的体质下
+贪官污吏其实也是受害者
+贪官抓再多，物价在疯涨
+税收在攀升，收入在锐减
+王者荣耀的盛世与平民何干？
+
+凡是统计局能够统计的
+他国总能执世界之牛耳
+比如GDP、平均收入……
+凡是统计局无法统计的
+他国总徘徊在世界末端
+比如足球、芯片……
+凡是坚持讲真话的
+最终都变成了敌对势力
+凡是坚持讲假话的
+最终都混成了国师
+真有那么自信
+就应拆除防火墙
+让大家亲眼见证
+资本主义国家的水深火热
+真有那么安全
+就应拆除27亿部监控探头
+让民众不再因恐惧
+而不敢发出内心真实的怒吼
+外表金碧辉煌
+内里千疮百孔
+你的盛世与我何干？
+
+（为了保护墙内作者安全，本文不注明文章出处）
+
+编辑/上传：遍地开花
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
+
+
+
+
+
++3

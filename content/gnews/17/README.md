@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】2021.6.26晚间：美军为什么要在推特上发绿色贝雷帽？
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1364310/)
+## 【每日快讯】06/30/2021:因G系列有借钱来往代持关系私人借钱互相担保金融关系必须向联盟委员会报备
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1364773/)
 
-视频剪辑：小腾腾说
-中听校：雨山溪桥客
-英翻译： Arthur
-英校对：烟波浩淼
-字幕+视频制作：压箱底儿の希望
+**製作：澳喜粤语组**
 
-**路德：**
 
-为什么要在推特上发？就是因为美军现在知道社交媒体就是个战场。这个战场就是虚假信息，目标是谁？就是闫博士、就是病毒真相、病毒来源。搅混水，就这概念。最终，让大家在民意上不能认定，而是去跟着王岐山、董经纬叛逃了之类的虚假信息走。慢慢的大家会越挖越深，会越感觉到，塞林上校在推特上的真正目标是什么，就是打击中共的网络虚假信息，因为中共的五毛账号太多了。
 
-就算是美军的特种部队也不可能给推特发一纸函，命令推特把五毛账户关掉，绝不可能，推特一旦公布出去，你想想是啥结果？军方是不可能干预美国任何民间企业的各种运作，以各种方式都不行。否则，将会出现很大的问题，这是第一。第二，就算你关了，别人还可以再开呀，因为这些五毛，说白了纯粹就是一天开几十万个号很正常，而且中间可能会牵扯到法律官司，中共待会儿说推特给我关错了一个，然后过来反咬你一口，所以这个战场是靠我们自己。
+**播报：【文依】整理：【Elaine】【闪电】视频制作:【ken】PPT：【小豆牙】发布：【陆柒陆捌】**
 
-一定要脚跟子稳，不要被那帮人给带风向走了，这里头的支持力量大家已经看到了，是不是？可是咱们老百姓老是这样，就算来了十二个绿色贝雷帽，他觉得人太少了，你看中共解放军都几百万军队，你十二个管啥用啊。但是记住，十二个不是去打击他，这是一个全整体行动的一个环节，有一个人来你就知道背后有多少，表面上你只见了十二个，实际上它是一个整体的全面行动。
-
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01090721/image1.png)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091033/image2.png)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091112/image3.png)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091149/image4.png)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091226/image5.png)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091432/image6.png)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091503/image7-1.png)
 0
