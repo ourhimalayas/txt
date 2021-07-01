@@ -1,31 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲前线】再遇澳洲共产党—6月20日悉尼线下活动报道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1336608/)
+## 【热点播报】由于接种疫苗的飞行员生病或死亡，数千个航班被取消
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1353113/)
 
-#### 作者：枳实，小蚂蚁在行动
+翻译：香草山商业组 文锤
 
-#### 整理/编辑：翼族
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20091925/Picture1-38.png)
-图片来源：雅典娜设计组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-6月20日的早晨，悉尼下着纷纷细雨，住在不同区域的战友在维多利亚女王大厦门口集结，进行每周例行的线下宣传活动，宣传中共病毒真相，让更多的澳洲人知道新中国联邦，了解CCP的邪恶。不少当地民众对战友们的宣传册都非常感兴趣，有的驻足聆听，有的路人向我们竖起大拇指、会心一笑，这让战友们为自己所做的这样一件有意义的事情感到非常的鼓舞。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20091828/Picture2-7.jpg)
-图片来源：现场拍摄
 
-今天悉尼各种各样的活动比较多，其中声势最浩大的是巴勒斯坦人的游行，但是细心的战友发现，在游行队伍中居然有澳洲共产党的旗帜。4月25日，墨尔本战友在州立图书馆举行抗议活动时曾经遭遇过澳洲共产党，而今天悉尼的战友也再次见识了澳洲共产党的渗透力量。这次澳洲共产党在悉尼的活动组织者是一位华裔，并且直言不讳地告诉战友，他就是“中国共产党（Communist Party of China）”，澳洲共产党的活动就是由中共资助的。这让我们在看到中共对澳洲的渗透和影响的同时，更加倍感责任重大。中共一向善于“浑水摸鱼”，澳洲共产党参与和组织这次巴勒斯坦人的游行活动，让人不得不更加对近期爆发的巴以冲突背后的中共黑手生疑。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20092353/Picture3-2.jpg)
-图片来源：现场拍摄
 
-今天天气虽然不好，但是和上两周悉尼的线下宣传活动比较，发出去的传单反而有所增加。有一位路人自我介绍叫“班农”，但是英文写法不一样，他向枳实战友传播“用爱解决一切问题”的理念，当枳实战友跟他说，你的姓名和史蒂文·班农一样时，他马上说：“不一样，史蒂夫·班农不是好人，他是跟川普一起的。”和其它西方国家一样，澳大利亚也是左派盛行，左派幼稚地希望用爱来解决实际问题，这也是为什么邪恶的中共能够利用左派并且控制左派媒体的深层次原因。
 
-今天活动现场还有一些其他人士，其中有一个人在用高音喇叭滔滔不绝地讲述圣经有关的内容，音量很大但是关注的人不多。从今天的线下活动依然能够感觉到，澳大利亚知道和了解中共病毒真相的人只是极少数，大多数人听到战友们介绍病毒来源于中共军方实验室时应者寥寥，这让人感到遗憾的同时，也更加认识到揭露中共丑行是任重而道远。
 
-文贵先生在今天的盖特视频中刚刚透露，澳洲政府已经拿到孙力军藏在澳洲关于病毒真相的第一手资料，所以澳洲的政府高层肯定已经掌握了病毒的实情。并且，近期莫里森政府也公开声称，疫苗接种计划并不能让澳洲开放国门。莫里森还以英国为例，称英国疫苗的接种比率很高，但是疫情依然汹涌。种种迹象表明，现在澳洲只有高层极少数人心知肚明，大部分普通老百姓仍然懵懂无知，完全不知道中共病毒来源于军方实验室。
+新闻来源与链接：
 
-所以，只有团结世界的正义力量，一起把病毒的源头摧毁，才能彻底解决疫情的问题。战友们也需要继续加大宣传，让澳洲人进一步了解共产党的本质，一起加入到灭共大潮里来。只有这样，人类才能真正安全。
+[Thousands of flights cancelled as vaccinated pilots fall ill or die | The Colorado Herald](https://thecoloradoherald.com/2021/thousands-of-flights-cancelled-as-vaccinated-pilots-fall-ill-or-die/)
 
-（文章内容仅代表作者观点）
+原文作者：Darcy Schoening
+
+**译文**：
+
+根据[2014 年发表在血栓和止血杂志上的一项研究](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://onlinelibrary.wiley.com/doi/full/10.1111/jth.12627)，由于飞行员频繁和长时间的空中旅行，而导致凝血问题的风险增加。飞行员被鼓励要注意深静脉血栓的形成和凝血问题，同时采取预防措施，例如在长途飞行中穿弹力袜和伸展腿部。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26145037/310-1-img_3609.jpg)Photo [sauce](https://thecoloradoherald.com/2021/thousands-of-flights-cancelled-as-vaccinated-pilots-fall-ill-or-die/)
+
+[《今日医学新闻》](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.medicalnewstoday.com/articles/oxford-astrazeneca-vaccine-slight-increase-in-blood-clot-risk)于 2021 年 6 月 15 日发表了一项研究，该研究表明阿斯利康 COVID-19 疫苗接种者的血液凝固的风险增加，同时血小板减少的风险也增加。一些科学家推测，由于注射液中的乙二胺四乙酸（EDTA）会引起全身的反应，一旦疫苗与人体内的血小板接触，疫苗[就会激活这些血小板](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.livescience.com/amp/greinacher-theory-coronavirus-vaccine-clots.html)，使它们改变形状并将化学信号传递给人体的免疫系统。这些血小板会发出[血小板因子 4](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.genecards.org/cgi-bin/carddisp.pl?gene%3DPF4) (PF4)来调节血液凝固。
+
+然而，在某些人中，经过一段不确定的时间后，PF4 随机附着在疫苗成份上，并形成大的“复合物”。由于这些复合体对身体来说是“未知的”，人体将这些复合物的集群理解为威胁。因此，体内的[免疫细胞](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.cancer.gov/publications/dictionaries/cancer-terms/def/immune-cell)错误地攻击 PF4，阻止它们预防COVID-19 疫苗接种者中出现的凝血问题。
+
+飞行员患血栓的风险增加。COVID-19 疫苗接种者患血栓的风险同样增加。[路透社](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://mobile.reuters.com/article/amp/idUSL2N2NX252)和事实核查机构无法掩盖这样一个事实，即给本来患血栓风险很高的群体再增加一个疫苗带来的血栓风险，将可能导致一场灾难，但他们既不尊重生命或也不重视真相，正如他们目前所做的宣传所证明的那样。
+
+达美航空公司现在要求所有新员工都[接种 COVID-19 疫苗](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://amp.usatoday.com/amp/5126620001)，潜在的将达美航空的员工置于血栓和死亡的风险之中。美国航空公司倒没有要求其员工接种疫苗，但给员工[一天假和 50 美元](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://loyaltylobby.com/2021/03/06/american-airlines-offers-one-extra-day-off-50-to-employees-who-receive-vaccinations/)用于接种疫苗。达美航空或美国航空从未对非航空员工提及固有的风险，更不用说那些在云端度过大量时间的员工了。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26145054/310-2-image-11.jpg)Photo [sauce](https://airlinegeeks.com/2021/06/19/hundreds-of-american-flights-cancelled-due-to-reported-pilot-shortage/)
+
+在英国航空公司，本周至少有四名飞行员死亡，但该航空公司希望您以为他们的死亡完全没有关联；[路透社和事实核查](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://fullfact.org/online/british-airways-pilot-vaccine/)人员正在努力消除有关飞行员可能死于 COVID-19 疫苗的任何谣言。英国航空公司吹嘘其[85% 的员工都接种了疫苗](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://sicem365.com/forums/7/topics/88580)。航空公司如此迅速地服从 COVID-19 疫苗的利益诉求，以至于他们忘记了自己员工的福祉正处于危险之中。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26145100/310-3-img_3608-4-888x1024-1.jpg)[Twitter](https://twitter.com/British_Airways/status/1405606519631007748)
+
+根据[Flightaware.com 的数据](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://flightaware.com/live/cancelled/today)，全球航班每年平均取消 120,000 次。平均每天会有 329 次取消。 2 天的平均值将看到 658 次取消。但在上一个周五和周六之间，发生了 3,533 次取消。全球取消量增加了 580%。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/26145111/310-4-img_3606-1-864x1536-1.jpg)Photo sauce: flightaware
+
+西南航空公司上周推迟或[取消了数百个航班](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.nytimes.com/2021/06/16/business/southwest-delays-cancellations.amp.html)，并将取消或延误的原因归咎于技术困难和天气等一系列问题。美国航空公司周日宣布，将[在 7 月中旬取消数百个航班](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://amp.cnn.com/cnn/2021/06/20/business/american-airlines-flights-canceled-labor-shortages/index.html)。美国航空将提前取消的航班归咎于天气问题和劳动力短缺。最近至少有 4 名飞行员死亡的英国航空公司[取消了数百个航班，](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.thelocal.it/20210615/travel-why-are-airlines-cancelling-flights-between-the-uk-and-italy/?amp)但随后在本周以[85% 的工资让](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://amp.rte.ie/amp/1227505/)数千名员工休假。
+
+别担心; 主流媒体，路透社，事实核查机构，正在为公众和每天运送600万人次的飞行员寻找安全有效的疫苗，并且排除了病毒武汉实验室泄漏，和2020年美国选举欺诈的任何可能性，但这些机构在其中一个问题上已经[改变了立场——](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.wsj.com/amp/articles/the-science-suggests-a-wuhan-lab-leak-11622995184)那就是承认病毒武汉实验室泄漏说，他们做这样的改变只是在不得不这样做以后。有一天，您可以想象，这些媒体可能会改变其对 COVID-19 疫苗的立场……当他们不这样做变得不可能的时候……
+
+飞行员的血栓风险已经增加；将他们归类为接种疫苗为高风险的人群并不是错误信息，这是科学。
+
+目前，飞行员应该行使医疗自由的权利，拒绝接种疫苗。显然，真相不会很快到来。
+
+**音频版：[【有声读物】由于接种疫苗的飞行员生病或死亡，数千个航班被取消](https://gnews.org/zh-hans/1353918/)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
 
 0

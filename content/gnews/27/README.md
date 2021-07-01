@@ -1,20 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西媒头条】第12期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1362071/)
+## 【路德简报】6/30/2021早：江泽民、胡锦涛等多名中共元老未出席习神“百年”文艺演出
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1363089/)
 
-- 制作：蚂蚁兄弟
-
-
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年6月30日电/西喜社——**
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30103328/Captura_de_pantalla_2021-06-30_a_las_16.05.16.png)
-发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+2
+编辑：华盛顿DC农场 路德简报项目组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/30214244/2021-6-30-scaled.jpg)
+0
