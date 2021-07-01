@@ -1,45 +1,169 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵精品视频-连妓院小姐都不如的私企老板之王健篇
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1362693/)
+## 众议员斯卡·利斯：共和党不会“等待”调查COVID病毒起源并调查中共国对美国企业影响
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1362837/)
 
-撰稿：澳喜cindy
+**字幕内容：**
 
-郭文贵先生从2017年爆料开始，矛头直指“反贪英雄”著称的王岐山和他的家属拥有的海航集团及其控制的渤海金控集团。
+Maria Bartiromo
+玛丽亚·巴蒂罗莫
 
-海航集团利用旗下蜘蛛网似的众多关联公司从中国多家银行用虚假资产做抵押骗取国内银行2万多亿，并迅速的巨量的转移到国外几百个他的私生子女的帐户里，并购买了许多优质的商业酒店和豪宅（详见郭先生展示的物业资料）及世界上最豪华的787飞机。而谎称为出租业务而买的787飞机实际是王岐山私家使用（无数飞行记录为证）。
+a new piece from the Federalists this morning saying
+今天早上联邦党人的一篇新文章说
 
-2021/2/9 来自YouTube视频
+is the entire Democrat Party compromised by China
+是整个民主党都对中共国妥协了
 
-“渤海金控集团控制着中国人民几十万亿的财富**, **在中国金融机构埋下了大坑**,**在西方供养这些盗国贼常委政治局委员的私生子女，为西方的间谍网输送财富，对美国、欧洲，世界进行蓝金黄（BGY），即贿赂西方科学家、西方的政客以满足他们所需要的各方面的情报并替他们办事。”
+House Democrats shut down a GOP motion earlier this month
+众议院民主党本月早些时候封杀了共和党的议案
 
-正是郭先生契而不舍地揭露和追查及爆料革命的战友们的广泛传播，使一个如日中天的海航集团在西方国家信誉全无，各金融机构纷纷撤回了给海航的贷款，导致海航集团由原来到处买买买变为卖卖卖。庞氏骗局无法继续下去，财政捉襟见肘，内斗不断最后导致断尾求生为最后沉船逃生做准备。进而发生了王健在法国被灭口被消失这一举世哗然的大事件。
+that sought to bar corporate cooperation with Chinese slave labor.
+试图禁止企业与中共的奴隶劳工合作
 
-2018年7月3日，中共国海航集团有限公司董事局董事长——王健，在法国普罗旺斯被官方报道“拍照死”。诡异的死法，令人震惊！全球唯有郭先生凭着他几十年对邪恶的共产党的了解，用他的智慧死死地盯住这个案件不放手，第一时间派出几个调查团队到了法国。他们在被CCP蓝金黄及其严重的法国，冒着巨大的生命危险克服层层阻力。一定要把事情的真相找到。郭先生与美国司法部门经过一年多对王建死亡的调查终于在2019年11月20日，给我们一个大大的惊喜！王健被杀的真相真的是天方夜谭，不可思议！
+This motion to recommit proposed by Andy Barr amended a Democrat bill.
+这项由安迪·巴尔提出的重新提交动议修改的民主党的一项法案
 
-王健被杀在法国，被盗国贼多年渗透的法国执法人员帮着他们做假文件，并被作为最高机密藏在中共政法委和中南海王岐山保险箱里。国内参加爆料革命的战友冒着生命危险把中南海的机密文件搞到手，把邪恶的魔鬼的本性公诸于世！
+So corporate disclosure was happening.
+所以公司的信息披露正准备出台
 
-“ 整个案子是国际刑警组织的孟宏伟和中共的公安部、安全部全面指挥，由华槟协调，维亚克配合，法国司法部以及当地的警官、检察官全面配合制造了一场100% 的假案。”
+If you are using slave labor you have to disclose it to the Treasury
+如果你使用奴隶劳工，你必须向财政部披露
 
-2018/7/28（王健死亡25天后）在UBS：“孙瑶”（王岐山私生女）的名下出现了15亿美金现金！“她能收15 亿美元。这个银行腐败到什麽程度了，UBS 是多麽的黑暗才能够让15 亿美元汇进来。全都是大额汇款的背後交易。进的钱立马打散，变成金融产品全没了。这是国际上最高级别的洗钱，没有王岐山的权力可能吗？因为只有王岐山控制了外交口就可以以“国家需要”的名义任意转账。”“这些钱在UBS 账单上任何人是看不见的，只有美国国家政府这样的权利向他们索要，才能让大家看到今天这个证据”。
+but the Democrats shut it down
+但民主党封杀了它
 
-11/20/2019  YouTube郭先生视频
+so I asked one of your colleagues earlier.
+所以我早些时候问过你的一位同事
 
-如果没有郭先生的穷追不舍，王岐山等盗国真相永远都不会被世人知晓，被蓝金黄的众多西方政客们永远高高在上地和中国的盗国贼们沆瀣一气。郭先生的这一仗打的太漂亮了！让人们更认清了中国共产党的那一小撮人视人命如草芥，是多么的邪恶！多么的恐怖！
+It’s high time we understand who’s being paid by the Communist Party.
+现在是我们了解谁被共产党收买的时候了
 
-不得不让人佩服的是郭文贵先生的大智大勇，在所有人对王健“自杀”死讯传出后丝毫没有怀疑，即便是怀疑也不敢质疑，就是质疑了也无从去追究。只有郭先生第一时间派几个团队赶赴法国王健死亡现场去调查，取得了现场的目击证人的证词及部分第一手资料。同时我们也向那些为得到真相而冒着掉脑袋的风险虎口拔牙的孤胆英雄们及为捕捉到世界上最有权势最邪恶的凶手的电话信息及绝密的银行信息的正义之士们致以最崇高的敬意！
+I don’t understand why the Democrats are not participating with the Republicans
+我不明白为什么民主党支持共和党
 
-王健是为盗国贼管理财富的白手套。是对西方重要政客蓝金黄的主要实施者。王建的死，海航集团所有的债务危机就可以化解了，海航集团的一切见不得人的事情自然都有归属了。 时至2021年1月，海航这个曾经火箭般蹿升为世界排行前列的巨无霸企业，连募集自己员工的资金都无法偿还，国内各大银行都无法填平海航的欠账。终于被中共国“庇佑”申请破产实则是把十几年海航的无法归还的贷款一笔勾销。剩余的优质资产被掌权者瓜分。不良资产就会进入到王岐山绝对控制的中建投。中建投以零价格再转回到海航。就这样一场瓜分老百姓存在银行的钱的大戏圆满结束。
+on getting to the bottom of the COVID-19 origins and holding China to account.
+关于深入了解 COVID-19 起源并让中共国承担责任的行动
 
-郭先生气愤并胸有成竹地说：“最后海航和它所控制的渤海金控集团的几十万亿的钱必须还给中国人民，它属于中国人民的，谁都不能拿走。这是我们的奋斗目标。”
+Where’s the outrage for what the CCP did in Hong Kong last year, going in there laying down their own laws 25 years early,
+对于中共去年在香港的所作所为
+他们违约，提前了25年就制定了自己的法律
+人们的愤慨在哪里呢？
 
-郭先生最常说的一句话就是：中国的私企老板连妓院的小姐都不如，如被中共的盗国贼器重成为他们的白手套虽然风光一时，但最终都逃脱不了被主子收割、顶包、被抛弃、进监狱受刑被辱还算不错的结局更悲哀的是被围猎、被杀、被扔到大海里、株连九族。王健先生就是盗国贼资本的代孕者，他的遭遇就证明了这一切。
+not to mention invading India
+更不用说入侵印度了
 
-（本文观点纯属个人）
+fighting over the Himalayas killing Indian soldiers,
+在喜马拉雅山脉打架，杀死印度士兵，
 
-*编辑：cindy*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+not to mention what’s happening in the South China Sea
+更不用说南中国海发生的事情了
 
+with all the bullying of its neighbors,
+对邻居国家的所有霸凌
+
+Where is the accountability.
+问责在哪里？
+
+Steve Scalise (Congressman R-Louisiana)
+史蒂夫·斯卡利斯（国会议员 共和党-路易斯安那州）
+
+It’s just completely a perplexing
+这完全是一个令人困惑的
+
+it’s bizarre that Speaker Pelosi would cover for China.
+这很奇怪佩洛西议长会为中共国掩盖
+
+We’re not trying to point a finger at Democrats or the argument of President Biden
+我们不是要指责民主党或拜登总统的论点
+
+we’re saying, we all know this started in China
+我们在说的是，我们都知道病毒始于中共国
+
+I know they don’t even want to use that term.
+我知道他们甚至不想使用那个词
+
+Now there’s a mounting evidence
+现在有越来越多的证据
+
+that it actually started in the Wuhan lab,
+它实际上是从武汉实验室泄露的
+
+whether by the way it was intentional or accidental,
+不管是故意还是意外
+
+we should be asking those questions.
+我们应该问这些问题
+
+And by the way, where’s the media outrage
+顺便提一句，媒体的愤怒在哪里？
+
+look China just shut down a major news publication last week,
+看看中共国，上周刚刚封杀了一个主要的新闻出版物（苹果周刊）
+
+this, what’s going on, President Biden’s talking about
+这，这是怎么回事？拜登总统正在谈论
+
+giving away our intellectual property for the vaccine to China,
+把我们的疫苗知识产权交给中共国
+
+why are they so in bed with China？
+为什么他们要如此亲近的与中共国在一起
+
+why are they so focused on covering up for China,
+为什么他们如此专注于为中共国掩盖
+
+as you mentioned, Andy Barr motion to say if they’re using slave labor.
+如你提到的，安迪·巴尔动议说他们是否在用奴隶劳工
+
+Let’s get that out on the table too
+让我们把它也放在桌面上弄清楚
+
+but they would not stand up to China on a front
+但他们不会站在前面对抗中国
+
+it’s very bizarre,
+这很奇怪
+
+it raises very serious questions,
+这就提出了非常严肃的问题
+
+but again, we’re not going to sit back
+但是再次，我们不会坐视不理
+
+and wait for Democrats to keep covering for China,
+而且等着民主党继续掩护中国
+
+we’re gonna go and start asking those tough questions ourselves,
+我们要自己去并开始问那些棘手的问题
+
+we don’t have subpoena power,
+我们没有传讯权
+
+because right now we’re not in the majority,
+因为现在我们不是多数党
+
+but we’re at least bringing in some experts
+但我们至少引进了一些专家
+
+that have some real relevance and background
+他们有一些真正的相关性和知识背景
+
+and have dug into this themselves.
+并且对病毒进行了深入调查
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://www.youtube.com/watch?v=zSZzx3eR-Ek](https://www.youtube.com/watch?v=zSZzx3eR-Ek)
+英听校：洛杉矶盘古农场- Layka
+翻译：洛杉矶盘古农场- Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场- 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

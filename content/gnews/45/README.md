@@ -1,63 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月30日美国政要推文精选：我们必须继续与香港人民站在一起，努力夺回他们的自由
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1362998/)
+## 【战友心声】可怜天下父母心
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1363045/)
 
-众议员迈克·沃尔茨： 去年，中国共产党将《国家安全法》强加给香港人民，剥夺了他们的民主权利。我们必须继续与香港人民站在一起，努力夺回他们的自由。
-
-
-
-> Last year, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) imposed its 'national security law' on the people of Hong Kong, stripping them of their democratic rights. We must continue to stand with the people of Hong Kong in their efforts to take back their freedom. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 30, 2021](https://twitter.com/michaelgwaltz/status/1410261720925360133?ref_src=twsrc%5Etfw)
+作者：纽约香草山福音部 Lilian89
 
 
 
-美前国务卿迈克·蓬佩奥： 在短短一年内，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的《国家安全法》就把香港从自由的希望灯塔变成了北京暴政的监狱。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-> In just one year, the CCP’s National Security Law has turned Hong Kong from a beacon of hope for freedom to a prison of Beijing’s tyranny.
-> — Mike Pompeo (@mikepompeo) [June 30, 2021](https://twitter.com/mikepompeo/status/1410326281728806914?ref_src=twsrc%5Etfw)
+国内的朋友给笔者分享了这样一则信息，出自国内一个叫“快刀财经”的网站，其大致内容是：
+
+1. 国内正在收缩初中和高中预参加中考和高考的学子们的复读通道。重庆在高考前已经发出一纸通知，要求“全市普通高中学校，不得举办复读班，不得招收复读插班生” 。其实收窄复读通道的不仅仅是重庆，最近两年，云南、贵州、四川都已纷纷出台了与此通知内容相近的政策。
+2. 为了鼓励三孩政策，中共政府开始铁了心地在校外补习班、民办学校等方面进行打压，并美其名曰“为孩子减负，为家长减压”。说到底，这一举措只是为了更好的落实三胎政策。
+3. 为了培养国之基石的大国工匠，中共鼓励让大部分孩子在完成义务教育后去接受更多的职业教育。
+
+
+![心理学家研究发现，和父母关系太好的孩子，长大后基本上都没出息|共生|变得更好_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0301%2F2093b086p00qp9t6s006zc000hs00bpm.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)图源网络
+
+事实上，笔者朋友的孩子还只是小学一年级，但她已经开始担心孩子未来的高考了。她说，如果不能复读，孩子只能从现在起加倍努力地学习了。她说，虽然孩子现在是小学一年级，但是其课业负担之繁重，导致孩子每天都忙至晚上11点多才能睡觉。而她自己为了能给孩子优越的生活，也每天努力工作，忙得焦头烂额！
+
+说完国内为人母的不易，再来看看美国的情况。Newsnow From Fox报道了这样一则新闻：12岁的女孩Maddie参与了COVID-19疫苗的试验——她的父亲从事医疗领域工作，母亲的工作也是与此相近。在参加这个疫苗试验之前，她是一个健康、聪明、学业总是拿A、有着许多朋友又活泼开朗的女孩。2020年1月，她接受了COVID-19疫苗接种，但在接下来的两个半月里，她和家人经历了难以忍受的痛苦。在这个过程中，Maddie出现了完全不可预知的各种并发症，包括胃部痉挛、恶心呕吐、血压和心率失控，她还常常出现头脑眩晕的症状，同时她腰部以下肌肉无力，如今只能坐轮椅！另外，她还有尿滞留的并发症，只能靠一条进食导管来摄取身体所需的营养！重要的是，上面所述的所有症状现在依旧伴随着Maddie！
+
+可怜全天下的父母，从中共的老百姓到西方国家的普通家庭！中共不灭，全天下就没有太平，没有安全！灭共刻不容缓！不能有半点犹豫！
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-众议员克里斯·斯图瓦特： 已经一年多了，众议院民主党人还没有就新冠起源举行听证会。 这种病毒颠覆了我们的世界。美国人民应该得到答案。值得庆幸的是,斯卡莱斯以及众议院的共和党人正在努力争取。 （附福克斯新闻视频）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
 
-> It's been over a year, and House Democrats still haven't held a hearing on the origins of COVID-19.
-> 
-> This virus turned our world upside down. The American people deserve answers. Thankfully, [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) and House Republicans are fighting to get them. [pic.twitter.com/U4QAipC77P](https://t.co/U4QAipC77P)
-> — Rep. Chris Stewart (@RepChrisStewart) [June 30, 2021](https://twitter.com/RepChrisStewart/status/1410274043689844740?ref_src=twsrc%5Etfw)
-
-
-
-美参议员玛莎·布莱克本： 是什么激励CNN（有线电视新闻网）推动 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的宣传？他们的忠诚是在哪里？（转福克斯新闻：CNN因为热烈报道 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的建党周年被抨击：“这是习N-N”）
-
-
-
-> What is motivating CNN to push Chinese propaganda? Where does their allegiance lie?[https://t.co/qMYNvQ3Yey](https://t.co/qMYNvQ3Yey)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 30, 2021](https://twitter.com/MarshaBlackburn/status/1410326657962020868?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 距离这些 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 导弹发射井最近的美国空军基地是阿富汗的巴格拉姆。拜登政府正在关闭它。 【附华盛顿邮报文章：分析人士说，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在西部沙漠建造100多个新的导弹发射井】
-
-
-
-> The closest U.S. airbase to these Chinese missile silos is Bagram, Afghanistan. And the Biden Administration is shutting it down. [https://t.co/1MskZdp5xu](https://t.co/1MskZdp5xu)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 30, 2021](https://twitter.com/michaelgwaltz/status/1410371132012777479?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 中国共产主义100年：[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对狂热的民族主义的依赖是对全球自由和民主的威胁。
-
-
-
-> 100 years of Chinese Communism: The Party’s reliance on fervent nationalism is a danger to global freedom and democracy.[https://t.co/LI3o69LhIe](https://t.co/LI3o69LhIe)
-> — Rep. Ken Buck (@RepKenBuck) [June 30, 2021](https://twitter.com/RepKenBuck/status/1410381000161509384?ref_src=twsrc%5Etfw)
-
-
-
-0
++1

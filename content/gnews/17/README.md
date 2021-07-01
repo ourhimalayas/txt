@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快速新闻】众议院共和党领袖麦卡锡说：要用911同样的方式对中共追责!这是故意犯罪行为
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1362622/)
+## 重磅-吉姆乔丹揭露福奇 帮CCP掩盖 超限生化武器 导致美国损失惨重
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1362671/)
 
 - 制作：视频组
 
@@ -15,4 +15,4 @@
 
 [欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-+2
++1

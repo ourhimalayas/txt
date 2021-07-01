@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三年大饥荒 是天灾？是人祸？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1362318/)
+## 【快速新闻】众议院共和党领袖麦卡锡说：要用911同样的方式对中共追责!这是故意犯罪行为
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1362622/)
 
-- 制作：蚂蚁兄弟
+- 制作：视频组
 
 
 ***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
@@ -15,4 +15,4 @@
 
 [欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-+4
++2

@@ -12,14 +12,14 @@
 
 ---
 
-### [17国民调显示对中共负面、对习近平信心接近谷底](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [一年后香港的法律基础荡然无存](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [《路德时评》重磅解读江胡二老缺席中共百年汇演，及美国会将赋予联邦法院逆转数字货币交易的权力](/content/gnews/3/README.md)
+### [《路德时评》重磅解读江泽民缺席中共百年冥诞，及塔克秀重磅专访闫博士](/content/gnews/1/README.md)
  ` 香柏树`
+
+### [【七一百年冥诞】中共向世界发出威胁](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
+
+### [【特约评论】百年百罪——终共百年考](/content/gnews/3/README.md)
+ ` developer001`
 
 ### [6.29文贵先生短视频要点](/content/gnews/4/README.md)
  ` 左媛专栏`
@@ -30,14 +30,14 @@
 ### [【解读文贵】临近中共百年之时，中共国笼罩在一片黑暗之中](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [说说七哥神秘的七](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [【澳洲热点】澳前驻华大使谈中共，一针见血](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【热点播报】由于接种疫苗的飞行员生病或死亡，数千个航班被取消](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
-
-### [【NewsExpress】“死去的老人躺在武汉的人行道上” 获奖作品却是中共治下的悲剧](/content/gnews/9/README.md)
+### [【0630拆台新闻】张文宏又出金句：打了疫苗就好比老鼠吃老鼠药](/content/gnews/8/README.md)
  ` 闪电侠`
+
+### [【各抒己见】爆料革命新闻评论的核心价值](/content/gnews/9/README.md)
+ ` 日本东京樱花团`
 
 ### [【战友心声】去你的“许党报国，不负人民”！](/content/gnews/10/README.md)
  ` 纽约香草山MOS03`
@@ -51,53 +51,53 @@
 ### [按党指示成为职业演员的地下党员蓝天野与老舍等人的悲剧有无关联](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [众议员斯卡·利斯：共和党不会“等待”调查COVID病毒起源并调查中共国对美国企业影响](/content/gnews/14/README.md)
+### [中共土地改革的悲剧](/content/gnews/14/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [众议员斯卡·利斯：共和党不会“等待”调查COVID病毒起源并调查中共国对美国企业影响](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵精品视频-连妓院小姐都不如的私企老板之王健篇](/content/gnews/15/README.md)
+### [郭文贵精品视频-连妓院小姐都不如的私企老板之王健篇](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [重磅-吉姆乔丹揭露福奇 帮CCP掩盖 超限生化武器 导致美国损失惨重](/content/gnews/16/README.md)
+### [重磅-吉姆乔丹揭露福奇 帮CCP掩盖 超限生化武器 导致美国损失惨重](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【快速新闻】众议院共和党领袖麦卡锡说：要用911同样的方式对中共追责!这是故意犯罪行为](/content/gnews/17/README.md)
+### [【快速新闻】众议院共和党领袖麦卡锡说：要用911同样的方式对中共追责!这是故意犯罪行为](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [三年大饥荒 是天灾？是人祸？](/content/gnews/18/README.md)
+### [三年大饥荒 是天灾？是人祸？](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【每日快讯】06/29/2021：日本防卫副大臣哈德逊访谈明确日本要保护台湾](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [【七一百年冥诞】队伍中出现第57个民族的身影](/content/gnews/20/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【樱花宅急便】习近平在天安门发讲话时苍天在流泪](/content/gnews/21/README.md)
- ` 日本东京樱花团`
-
-### [突发新闻：Facebook 将因性交易被起诉](/content/gnews/22/README.md)
- ` Runaway`
-
-### [【七一百年冥诞】空中护旗梯队上悬挂4句巨幅标语](/content/gnews/23/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【新闻速递】华为引渡之争中的汇丰文件曝光](/content/gnews/24/README.md)
+### [【新闻速递】中国爆料人在 “今日塔克-卡尔森” 节目中揭露COVID-19起源](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [【NewsExpress】欧盟委员会表示必须在欧盟结束笼养动物养殖](/content/gnews/25/README.md)
+### [【NewsExpress】中国共产党宣扬的100年带给中国的真正的是什么](/content/gnews/21/README.md)
  ` 闪电侠`
 
-### [【路德社即时简报】 江、朱未出席中共7.1庆典](/content/gnews/26/README.md)
+### [【NewsExpress】中国共产党将红色毒基因深深植入当代青少年](/content/gnews/22/README.md)
+ ` 闪电侠`
+
+### [【快讯】互联网监控使得中共国就是一座圆形监狱](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [【路德简报】6/30/2021早：江泽民、胡锦涛等多名中共元老未出席习神“百年”文艺演出](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [百年大谎——“中国创造保障人权的伟大奇迹”](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【6.30】七哥直播&#8211;巨变将至 ！整个中共国包括天安门都将发生历史性的转变！](/content/gnews/28/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [中共建党百年前严控藏地——比如县数名藏人被捕](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC农场2021629 每日热点资讯](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [《维也纳报》 ：中共走到了权力巅峰](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [习扬言：坚决粉碎任何“台独”图谋，共创民族复兴美好未来](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共党庆 官媒秀“战机射导弹”被抓盗印度影片…秒删](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [朱利安尼表示对大选舞弊的调查已经进入“最后一战”](/content/gnews/29/README.md)
+ ` 澳喜农场`
 
 ### [中国共产党100周年：“战狼”的新地缘政治](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -123,27 +123,27 @@
 ### [6/28/2021 财经快讯：加密货币交易所币安受多国警告和禁止；芯片供应短缺下半年恐达高峰](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [新研究发现 COVID-19“非常适合”专门感染人类](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【聚焦澳洲】小小摄像头大大危险性——中共监控对澳洲的威胁](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【七一百年冥诞】一个半小时，天降大雨，百年庆典，草草收场](/content/gnews/40/README.md)
+### [【七一百年冥诞】习近平在庆祝中国共产党成立一百周年大会上的讲话](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【鹰眼墙国】城镇污水处理“成效”存疑，农村治污进展缓慢](/content/gnews/41/README.md)
+### [【百年恶党】癌之源](/content/gnews/39/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【战友心声】知我者，日兄也——听路德直播有感](/content/gnews/40/README.md)
+ ` 纽约香草山MOS03`
+
+### [【独立观点】众议院通过了两项法案，以提升应对中共国的科学竞争优势](/content/gnews/41/README.md)
  ` 纽约香草山MOS02`
 
-### [【鹰眼墙国】能耗大户——建筑节能虽有政策激励但发展缓慢](/content/gnews/42/README.md)
- ` 纽约香草山MOS02`
+### [【七一百年冥诞】CCP百年庆典尴尬无比 国际贺电名单暗示许多](/content/gnews/42/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【鹰眼墙国】农业保险适用范围增大](/content/gnews/43/README.md)
- ` 纽约香草山MOS02`
+### [【战友心声】新中国联邦民主法制社会即将到来](/content/gnews/43/README.md)
+ ` 纽约香草山MOS03`
 
-### [【鹰眼墙国】罚款监管难解电动自行车充电困局](/content/gnews/44/README.md)
- ` 纽约香草山MOS02`
+### [【樱花宅急便】中共百年,人民要问问你！](/content/gnews/44/README.md)
+ ` 日本东京樱花团`
 
-### [6月30日美国政要推文精选：我们必须继续与香港人民站在一起，努力夺回他们的自由](/content/gnews/45/README.md)
- ` 美国政要等...直译推`
+### [【战友心声】可怜天下父母心](/content/gnews/45/README.md)
+ ` 纽约香草山MOS03`
 
