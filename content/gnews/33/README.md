@@ -1,20 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国老兵记忆中的朝鲜战争
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1365257/)
+## 美国国务卿接受法媒采访谈到中美关系：对于中共国，美国和欧洲已经达到了观点融合
+` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1365745/)
 
-- 制作：葛大饼
+#### 听写：Ikonic 翻译： Miao 
+校对： Ikonic 字幕： Vékap
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年7月1日电/西喜社**
-
-嘉宾Jason的爷爷当年就是参战的士兵，这位美国老兵不许家人提朝鲜战争，那是内心的伤痛，他深深为这些被送往战场的手无寸铁的中国士兵们而感动心痛啊！连你的对手都为你感到伤心，可想而知当时的中共志愿军们实际情况有多么惨！
-
-发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+3
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BXa0yRFawyvp9/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1
