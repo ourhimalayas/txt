@@ -1,22 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西媒头条】第13期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1365120/)
+## 美国老兵记忆中的朝鲜战争
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1365257/)
 
-- 制作：蚂蚁兄弟
+- 制作：葛大饼
 
 
 ***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年7月1日电/西喜社——**
+**西班牙2021年7月1日电/西喜社**
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01113515/Captura_de_pantalla_2021-07-01_a_las_17.31.27.png)
+嘉宾Jason的爷爷当年就是参战的士兵，这位美国老兵不许家人提朝鲜战争，那是内心的伤痛，他深深为这些被送往战场的手无寸铁的中国士兵们而感动心痛啊！连你的对手都为你感到伤心，可想而知当时的中共志愿军们实际情况有多么惨！
 
 发稿：信心的选择
 
 [欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-+1
++3

@@ -12,29 +12,29 @@
 
 ---
 
-### [【七一百年冥诞】GTV在新办公室首播—受到中共猛烈攻击](/content/gnews/1/README.md)
+### [【七一百年冥诞】郭先生和安红等战友们连线谈香港台湾](/content/gnews/1/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【七一百年冥诞】新中国联邦讨伐中共“反洗脑”运动开始](/content/gnews/2/README.md)
+### [【七一百年冥诞】GTV在新办公室首播—受到中共猛烈攻击](/content/gnews/2/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【七一百年冥诞】郝叶夫妇连线文贵先生谈北朝鲜、武统台湾和病毒真相](/content/gnews/3/README.md)
+### [【七一百年冥诞】新中国联邦讨伐中共“反洗脑”运动开始](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【七一百年冥诞】CNN总部搬走 GNEWS等新媒体变革平台登场！](/content/gnews/4/README.md)
+### [【七一百年冥诞】郝叶夫妇连线文贵先生谈北朝鲜、武统台湾和病毒真相](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共——一个残暴的灾难和滔天罪行的世纪](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【七一百年冥诞】CNN总部搬走 GNEWS等新媒体变革平台登场！](/content/gnews/5/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（三）安红、生命美哥、左轮篇](/content/gnews/6/README.md)
+### [【七一百年冥诞】共产党的疯狂将进一步加速其灭亡 玩黑社会游戏没有好下场](/content/gnews/6/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【七一百年冥诞】郭文贵：若站在天安门自由讲20分钟 中共会顷刻间土崩瓦解](/content/gnews/7/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（五）连线老班长、草根小哥篇](/content/gnews/8/README.md)
  ` 喜联盟七哥直播组`
-
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（二） 郝海东、叶钊颖篇](/content/gnews/7/README.md)
- ` 喜联盟七哥直播组`
-
-### [郭爆料串珠（299）美国人意识到ZOOM：赚我钱要我命，偷技术偷未来](/content/gnews/8/README.md)
- ` 郭爆料串珠`
 
 ### [【澳洲热点】澳前驻华大使谈中共，一针见血](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
@@ -75,23 +75,23 @@
 ### [别看你以前闹得欢 今天开始拉清单](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（三）安红、生命美哥、左轮篇](/content/gnews/22/README.md)
- ` 喜联盟七哥直播组`
+### [【七一百年冥诞】共产党的疯狂将进一步加速其灭亡 玩黑社会游戏没有好下场](/content/gnews/22/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】普京对拜登表示尊重](/content/gnews/23/README.md)
+### [【七一百年冥诞】郭文贵：若站在天安门自由讲20分钟 中共会顷刻间土崩瓦解](/content/gnews/23/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【NewsExpress】川普团队悄悄推出新的社交媒体平台](/content/gnews/24/README.md)
  ` 索尼克`
 
-### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（二） 郝海东、叶钊颖篇](/content/gnews/24/README.md)
+### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（五）连线老班长、草根小哥篇](/content/gnews/25/README.md)
  ` 喜联盟七哥直播组`
 
-### [【七一百年冥诞】郝海东、叶钊颖揭中共洗脑真相 直播受严重干扰](/content/gnews/25/README.md)
- ` 秘密翻译组G-Translators`
+### [【NewsExpress】美国国家安全局披露俄罗斯使用的黑客攻击方法](/content/gnews/26/README.md)
+ ` 索尼克`
 
-### [【樱花宅急便】解读习近平中共百年冥诞所谓的“金句”（之三）](/content/gnews/26/README.md)
- ` 日本东京樱花团`
-
-### [【七一百年冥诞】GTV在新办公室首播—将终结中共百年杀戮](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
+### [2021年7月1日《终结中共百年杀戮》文贵先生直播同步精要文字版（四）连线华盛顿抗议现场篇](/content/gnews/27/README.md)
+ ` 喜联盟七哥直播组`
 
 ### [G-News编辑部关于部分国内作者被中共公安国保喝茶恐吓事件的声明](/content/gnews/28/README.md)
  ` developer001`
@@ -108,17 +108,17 @@
 ### [【路德社即时简报】 无西方国家祝贺中共百年](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [【西媒头条】第13期](/content/gnews/33/README.md)
+### [美国老兵记忆中的朝鲜战争](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国共产党100周年：“战狼”的新地缘政治](/content/gnews/34/README.md)
+### [【西媒头条】第13期](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【热点播报】6月29日国际新闻速递](/content/gnews/35/README.md)
+### [中国共产党100周年：“战狼”的新地缘政治](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【热点播报】6月29日国际新闻速递](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
-
-### [【百年中共 滔天罪行】第1期](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [7/1/2021 财经快讯：标准普尔 500 指数收于历史新高，华尔街连续第五个季度上涨](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
@@ -132,21 +132,21 @@
 ### [“弯道超车”引外资企业撤离潮](/content/gnews/40/README.md)
  ` 滴水穿石`
 
-### [“习神”自嗨不醒？17国民调：7成人讨厌中共](/content/gnews/41/README.md)
+### [美参议员推动决议谴责中共独裁政权的暴虐](/content/gnews/41/README.md)
+ ` HimalayaRussia`
+
+### [参议员马歇尔: 中共国参与掩盖2019年驻武汉美军感染的事件](/content/gnews/42/README.md)
+ ` 澳喜农场多语组`
+
+### [“习神”自嗨不醒？17国民调：7成人讨厌中共](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [拜登打击新疆强迫劳动 北京批美破坏供应链](/content/gnews/42/README.md)
+### [拜登打击新疆强迫劳动 北京批美破坏供应链](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [【七一百年冥诞】中共百年冥诞之中共在微信朋友圈最后的狂妄与叫嚣](/content/gnews/43/README.md)
+### [【七一百年冥诞】中共百年冥诞之中共在微信朋友圈最后的狂妄与叫嚣](/content/gnews/45/README.md)
  ` 秘密翻译组G-Translators`
 
-### [功能增益倡导者的合作伙伴在COVID-19委员会任职](/content/gnews/44/README.md)
+### [功能增益倡导者的合作伙伴在COVID-19委员会任职](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中国亿万富翁称中共计划在今年夏天投放另一种冠状病毒](/content/gnews/45/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [格拉纳达足球俱乐部球员郝润泽发声明称，由于他的父亲-中国足球传奇人物郝海东称共产党为“恐怖组织”的言论，他已经一年无法工作](/content/gnews/46/README.md)
- ` 澳喜农场多语组`
 
