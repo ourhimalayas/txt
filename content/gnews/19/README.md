@@ -1,74 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕视频】2019-2020 香港
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1365115/)
+## 【澳洲热点】短视频：工党领袖还有时间穿上共产主义T恤吗？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1366871/)
 
-制作：香草山香港部视频组
+**了解澳洲时事动态，尽在雅典娜【澳洲热点】**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+#### 翻译：小红帽
 
+#### 校对：文泓
 
+#### 字幕/剪辑：蛮吉
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02062236/%E6%AF%94%E7%89%B9%E5%B8%81.png)
+图片来源：The Australia
 
+澳大利亚塔斯马尼亚州新工党领袖大卫.奥伯恩，身穿一件赞美共产主义的T恤，教人们如何成为一个好的共产主义者。他的幕僚长曾是共产党员，也称赞共产主义战士。共产主义一路伴随着暴力，这才是共产主义的真相和历史——拳头、棍棒、刀、枪、炸弹和恐怖创造了共产主义。
 
-
-大量照片和视频显示了 2019 年6 月至 2020 年期间，香港警察对抗议者的最恶劣的暴行由于香港警察在街头无情地殴打抗议者，他们同时留下了不可磨灭的证据，告诉世界发生了什么。
-
-便衣警察用警棍殴打抗议者，并将他们按倒在地，这导致抗议者大量流血。
-警察滥用武力进行任意逮捕。
-
-这名 18 岁的年轻人被警员用实弹射中了胸部。
-
-一名手无寸铁的年轻人也被警员用实弹射穿了腹部。
-
-一名老人被警员从人行道拉到马路上，然后毫无理由的攻击、殴打他。
-
-有人脑出血，有一些人严重骨折。
-
-手臂骨折的伤势多是受到警察攻击并被故意伤害造成的。
-
-有被捕女学生被警方性侵。
-
-年仅15岁的游泳女健将，被发现全裸浮尸大海。
-
-很多年轻人被抓捕，关押，暴力残害甚至失踪…
-
-香港警方过度使用武力，用枪支、装甲车、实弹、催泪瓦斯、橡皮子弹镇压抗议者…
-
-抗议者用手工制作的武器、砖块、棍棒、燃烧瓶和雨伞进行反击。
-
-这真的让人们想起了1989年天安门广场发生的事件。
-
-警察的种种暴力，造成的恐怖和恐惧都会存留在历史的记录中。
-
-可耻的中共傀儡香港警察。
-
-无论专制的港共政府如何企图改变香港，香港人将继续为自由和正义而斗争。
-
-两年已过去，人们在等待真相！
-
-勿忘香港！勿忘为争取自由而失去生命的同胞们！
-
-光复香港
-时代革命！
+明天，中共独裁政权将庆祝建党100周年。最初只有53名革命者在上海召开了秘密会议，看看今天中共国臃肿的独裁统治。现在，它是一个具有威胁性和侵略性的超级大国。发起战争威胁，欺凌澳大利亚，摧毁香港的民主，逮捕那里的民主人士。
 
 
 
-原作：香港部义工 chocky
-翻译： Maya
-配音：喜山必胜
-发稿：雪梨
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

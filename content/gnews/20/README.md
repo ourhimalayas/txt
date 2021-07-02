@@ -1,27 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/30/2021:因G系列有借钱来往代持关系私人借钱互相担保金融关系必须向联盟委员会报备
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1364773/)
+## 2021/06/30 班农专访(3) 对抗中共超限战，避免台海热战
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1366725/)
 
-**製作：澳喜粤语组**
+视频字幕：雨中漫步 | 听写：云岭| 翻译：Wade|校对：云岭 |简评/文字整理/编辑：胖丁|Page：小雨
+
+**简评：**
+
+在中共百年诞辰之际，中共在台湾海峡部署了J20战斗机，以威胁台湾、日本和韩国。
+
+文贵先生几年来一直在提醒和警告西方来自中共的威胁，西方并没有认真对待。中共一直在试探西方的反应。如果不对抗中共发动的网络战和信息战，不以实质性的方式对待中共的经济战，台湾海峡就会陷入热战。
+
+**台湾是美国西边的硅谷，世界上90%的先进芯片的设计和制造都在台湾。中共需要台湾，西方也需要。台海战争也是中共转移国内经济压力、控制国内百姓的一个出口。**
+
+[GTV链接](https://gtv.org/video/id=60ddbd859d5f0c1bd7edcf51)
 
 
 
-**播报：【文依】整理：【Elaine】【闪电】视频制作:【ken】PPT：【小豆牙】发布：【陆柒陆捌】**
+**视频字幕：**
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01090721/image1.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091033/image2.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091112/image3.png)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091149/image4.png)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091226/image5.png)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091432/image6.png)
-7
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01091503/image7-1.png)
-0
+**主持人Dr. TCC ：**所以就像迈克说的，另一群成功的华人是台湾人民。因此，在临近其百年诞辰之际，中共在台湾海峡周围部署了J20战斗机（F22的复制品），以威胁台湾、日本和韩国。此举表明，中共对在香港（所作所为）和任何错误行为都没有悔意，并希望采取更具侵略性的行动。世界如何能阻止中共在南海周边发动热战？班农先生。
+
+**班农：**关于阻止热战的方法，我说了多年了，我们正在滑向热战的边缘。对此我毫无任何疑问。部分原因是中共需要这样做来证明其政权对中国人民的控制。中共国经济状况越來越差。
+
+我认为西方欠郭文贵太多了。郭文贵来到美国后，一直以来都在警告西方、警告美国，中国共产党他们会做什么，他们将要做什么。不幸的是，西方国家还没有充分听取他的意见。尽管他们每天越来越多在听了。他对台湾的警告令人不寒而栗，对吗？ 我认为他是正确的。
+
+如果我们不对抗中共发动的网络和信息战，如果我们不以更实质性的方式对抗他们的经济战，我们将在台湾海峡陷入一场热战。台湾是美国西边的矽谷。世界上90%的先进晶片设计和制造都在这里。中国共产党需要台湾。西方肯定也需要台湾。这将是一个新的战场。
+
+早在2019年春天，正如郭文贵告诉我们的那样，习主席在退出川普的第一笔交易时，莱特希泽•特朗普的交易，那个被彼得•纳瓦罗摁得死死的交易。他们说：这将只是另一个商埠条约，我们事实上将屈从于西方。
+
+当他们走后，习说：“为了赶上西方，我们现在已经偷了20或30年的技术了。这个计划看起来还要20或30年。我们没那个时间了。我们必须在五年内完成，因为需要与西方对抗”。
+
+因此，我认为我们正面临一场热战，这是可以避免的。它只有在西方国家站出来对抗中国共产党的情况下才能避免。不幸的是，乔•拜登现在入主了白宫，他的儿子亨特是中共的合作伙伴，他在白宫进进出出。
+
+所以我们有极大的困难。这就是为什么这个节目如此重要。这就是为什么我们明天要做这个特别节目。这也是为什么作战室每天都会有越来越多的关于中共病毒和生化武器计划以及所有这些的消息。
+
+但我非常担心，而且我认为郭文贵是对的。除非西方国家立刻对中共采取更多措施，否则他们每天都在试探，而且他们感觉到了（西方的）软弱。如果他们继续感觉到这种软弱，我们将面临一场热战。
+
+**[完整访谈视频](https://gtv.org/video/id=60dc710d871bef6d4ab13292)**
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dbBxXI8TttVy1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/dbBxXI8TttVy1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+
+
++1

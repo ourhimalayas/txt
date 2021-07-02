@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平的中共百年冥诞讲话公然使共产党成为缩头乌龟
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1365921/)
+## 【新闻速递】墙内新闻门户网站侧面宣传GETTR
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1367056/)
 
-视频来源：**[共青团中央](https://haokan.baidu.com/author/1602691330372388)****于**2021年7月1日发布的[【谁妄想欺负中国必将被碰得头破血流！】中国人民绝不允许任何外来势力欺负、压迫、奴役我们，谁妄想这样干，必将在14亿多中国人民用血肉铸成的钢铁长城面前碰得头破血流](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=3897820866486935156)
+**作者：香草山写作5组 文斗**
 
-习近平总书记在中共百年冥诞上说：［中国人民是崇尚正义、不畏强暴的人民，中华民族是具有强烈民族自豪感和自信心的民族。中国人民从来没有欺负、压迫、奴役过其他国家人民，过去没有，现在没有，将来也不会有。同时，中国人民也绝不允许任何外来势力欺负、压迫、奴役我们，谁妄想这样干，必将在14亿多中国人民用血肉筑成的钢铁长城面前碰得头破血流！］
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01060545/WhatsApp_Image_2020-10-24_at_04.33.05-3.jpeg)
 
-习近平总书记已经在中共百年冥诞讲话中公然把中国人民置于对抗外来势力的第一线，而号称是中国人民和中华民族的先锋队的在中国共产党却公然做起了缩头乌龟！根据[百度百科——中国共产党](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A/117227?fr=aladdin)的定义：
 
-［中国共产党是中国[工人阶级](https://baike.baidu.com/item/%E5%B7%A5%E4%BA%BA%E9%98%B6%E7%BA%A7)的先锋队，同时是中国人民和[中华民族](https://baike.baidu.com/item/%E4%B8%AD%E5%8D%8E%E6%B0%91%E6%97%8F)的先锋队，是[中国特色社会主义](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%89%B9%E8%89%B2%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89)事业的领导核心，代表中国先进[生产力](https://baike.baidu.com/item/%E7%94%9F%E4%BA%A7%E5%8A%9B)的发展要求，代表中国先进文化的前进方向，代表中国最广大人民的根本利益。党的最高理想和最终目标是实现[共产主义](https://baike.baidu.com/item/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89)。 [2]
 
-中国共产党以马克思列宁主义、毛泽东思想、邓小平理论、“三个代表”重要思想、科学发展观、习近平新时代中国特色社会主义思想作为自己的行动指南。中国共产党领导是[中国特色社会主义](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%89%B9%E8%89%B2%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89/929612)最本质的特征。 [3-4]］
+简讯：7月2日，中共国墙内包括新浪、网易等几个新闻门户网站以“川普团队推出社交媒体平台”为主题向墙内民众报道GETTR。在墙内严重的新闻审查黑洞之中，透出了一丝丝追寻自由的光亮。其中“网易新闻”选择的GETTR形象照片异常吸引目光。
 
-按照中国共产党给自己的定义，在任何外来势力面前，代表中国先进生产力的发展要求、中国先进文化的前进方向、代表中国最广大人民的根本利益的中国共产党都应该奋不顾身不怕流血牺牲去捍卫中国人民的利益，率先垂范，否则不足以自称先锋队、否则不足以自称三个代表，否则不足以展现中国特色社会主义的道路自信、理论自信、制度自信、文化自信！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02080917/%E5%9B%BE%E7%89%875.png)
 
-但是这一次作为总龟头的习近平总书记在中共百年冥诞上却彻底抛弃了三个代表、四个自信，更把中国共产党的先锋队属性抛在了九天之外。恶贯满盈的中国共产党已经为祸百年，全球灭共已经箭在弦上，习总龟头和中国共产党这一次公然要做缩头乌龟了，且看乌龟缩头到几时。
+高举自由火炬的GETTR形象照出现在墙内，让人惊叹！我们相信，这是墙内人民对于自由、民主的呼唤。我们相信，这是墙内人民对于新中国联邦的战友的呼应：我们看到你们了，我们在等待。
 
-（文章内容仅代表作者个人观点）
+新中国联邦的战友们，请继续努力，不负所望。
 
-撰稿：喜马拉雅的肉夹馍；
+墙内的战友们、同胞们，请保重，等着我们。
 
-审核：喜马拉雅的馍夹肉；
+1、新浪
 
-校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02081007/%E5%9B%BE%E7%89%876.png)
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+2、readhub
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02081026/%E5%9B%BE%E7%89%877.png)
+
+3
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02081029/%E5%9B%BE%E7%89%878.png)图片来源：https://gettr.com/post/pc8qv
+
+校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++5
