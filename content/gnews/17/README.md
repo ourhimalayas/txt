@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共建党百年冥诞，国际反应冷淡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1365185/)
+## 【有声读物】躺平青年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1365198/)
 
-配音：香草山录音组 信念7
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,15 +14,25 @@
 
 
 
-中共于北京时间7月1日上午8点在北京天安门广场举行建党一百周年活动，习近平发表讲话，胡锦涛早先没有参加在鸟巢的庆祝活动，但参加了今天上午的活动，江泽民两次重大活动均未露面。
+铁幕中的青年，暗淡的光
+
+投影于历史的长河
+
+石头不可以说话
+
+石头用流水呐喊
+
+鲜红的心脏回响着雷声
+
+杂草般的身躯野蛮生长
+
+——被压迫的生存，被强暴的灵魂
 
 
 
+**文字版原文：[【香草诗词汇】躺平青年](https://gnews.org/zh-hans/1361931/)**
 
-
-**文字版原文：[【热点播报】中共建党百年冥诞，国际反应冷淡](https://gnews.org/zh-hans/1363584/)**
-
-作者：纽约香草山福音部 honglu61
+作者：纽约香草山写作组   木白
 
 
 

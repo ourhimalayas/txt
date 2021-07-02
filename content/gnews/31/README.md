@@ -1,12 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【七一百年冥诞】瑞典媒体称中共百年党庆是激进宣传
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1365390/)
+## 【一周盘点】香草山翻译部周刊——第二期（2021年6月27日）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1365639/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01154015/Capture-2.jpg)
-瑞典《每日工业报》(Dagens industri) 记者发布短评称，中国共产党100岁的党庆是激进宣传。与此同时，由习近平领导的这个党已经成功地与几乎整个世界对立起来。但该国的人民和企业有很多值得骄傲的地方。
+作者：纽约香草山翻译部 AJ2020，GBW，迷糊，青藤，任意，文苑，文雅621，文睿，文明世界，雪莲
 
-原报道链接：[https://www.di.se/nyheter/aggressiv-propaganda-nar-kinas-kommunistparti-fyller-100-ar/](https://www.di.se/nyheter/aggressiv-propaganda-nar-kinas-kommunistparti-fyller-100-ar/)
 
-+1
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+**6月20日，郭先生在GTV直播中沉重地向世界再次发出重磅警告：中共将于夏秋之交，向美国和世界再次释放更危险的病毒。**
+
+评论：2017年郭先生曾郑重警告过，“黑暗即将来临”，但并未引起各界重视。为此，美国和世界遭受了巨大的打击。这一次，衷心希望美国和各国政要认真对待，彻底击垮中共的邪恶计划，还世界一个和平！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01174019/38.jpg)图片来源：[GTV](https://gtv.org/video/id=60cf40516e4b8a00c79d2e77)
+
+**6月23日，郭先生在GTV直播中说：“很快，联合国会承认新中国联邦是代表中国人的合法机构！”  一位战友随后激动地发推：“这是今天直播最让人激动的消息！”**
+
+**6月25日，郭先生于GTV直播中称，他第一次听西方某领导人说，无论共产党是否配合调查，是否提供证据， 只要西方确认，美国就会直接采取行动，进行像对伊朗苏莱曼尼那样的斩首行动。**
+
+评论：好消息，中国老百姓可以少受罪。
+
+**《自然》杂志报导，西雅图一位科学家最近发现了13个被秘密删除的新冠病毒基因序列。这些是于2020年3月由中国武汉的科研人员发表的，存放在美国政府的数据库中，但后来“据中（共）国科学家的要求”被删除。**
+
+评论：为什么发表后又要求删除？为什么NIH同意这么做？中共究竟想隐瞒什么？
+
+**6月21日《国家脉搏》称，谷歌资助彼得-达扎克的生态健康联盟超过十年，该联盟又与武汉病毒研究所公开合作。**
+
+评论：这就不难解释为什么谷歌在去年一年里极力鼓吹 “自然起源论”，特别是通过旗下分支YouTube平台来误导公众。如果没有美国高科技公司以及科学家们的帮助和腐败，中共不会成功地开发和传播冠状病毒。这些公司必须和中共一起接受调查和惩处。
+
+**Breibart在6月24日报导,  参议员兰德-保罗（Rand Paul）在 “唤醒美国”节目中呼吁解雇福奇博士，并将他移出白宫冠状病毒特别工作组。**
+
+评论：福奇，白宫首席医学专家。在疫情大流行期间，他疯狂抨击使用安全有效的药物——羟氯喹——来治疗新冠病人。过去，他拨款资助对人类有害的“功能增强”研究。 福奇医生违反医德，应该被移除。
+
+**华盛顿邮报称，在前国会议员的帮助下，中（共）国监控公司在华盛顿建立影响力。**
+
+评论：中共的监控无处不在，无人能够幸免；只要中共存在，没人能感觉到安全。海康威视和中共的关系早就被爆料革命所曝光。
+
+**“中国数字时代”报导，6月24日，香港《苹果日报》出版最后一期报刊后正式关闭。有网友指责，是习近平与林郑月娥当局联手扼杀了香港的新闻和言论自由，并给习近平起了新的绰号——“禁苹”。**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01174105/39.jpg)[图源网络](https://galas3.s3.amazonaws.com/wp-content/uploads/sites/225/2017/04/AppleDaily.png)
+
+评论：习特勒除了才华比不上希特勒，其它恶行都已经大大甩了希特勒几条街了！
+
+**秘密中国：中共党庆前夕，北京政府高度紧张，不断升级管制措施。有视频显示，北京市已有大量满载军人的大巴车进驻鸟巢。6月22日，中共当局在北京鸟巢举行焰火燃放的第一次正式彩排。有网友披露，仅一次彩排就耗资7千万元**。
+
+评论：深刻寓意——灿烂一时，灰飞烟灭！
+
+**2021年6月22日，美国纽约南区法院一案取得了实质性利好进展，利曼法官提交了关于东利公司（Eastern Profit）诉SV公司（Strategic Vision）案的事实认定和法律结论：东利公司（郭文贵先生）提出的协议无效主张获胜，有权拿回SV（French Wallop和Michael Waller两个骗子）从东利公司收取的100万美元定金。**
+
+评论：这一结论对爆料革命和新中国联邦的意义重大——因为中共诬蔑文贵先生和爆料革命声誉的企图被美国法院否定了，中共侵蚀美国司法体系的行径也遭到了曝光。
+
+文字素材由喜马拉雅纽约香草山（美国）翻译部战友提供，图片来源网络
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+0

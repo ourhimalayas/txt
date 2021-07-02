@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】躺平青年
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1365198/)
+## 【聚焦澳洲】澳媒2分钟短视频全面揭秘中共间谍网络
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1363314/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+#### 听写/翻译：彩虹
+校对/编辑：枳实
+字幕：彩虹 剪辑：质朴
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 了解澳洲時事焦点，盡在雅典娜【聚焦澳洲】
 
+这个短视频短小精悍，切中要害。**欢迎大家点击视频右键下载**，通过社交媒体广泛传播。此视频介绍了中共间谍网络几个组成部分：
 
+**公安部**负责监视中国的异议人士，现在这也扩大到了香港。公安部在中国各地运行着数以亿计的监控摄像头。公安部收集护照和签证信息，并监测中国境内所有外国人的位置。
 
+**国家安全部**的任务是反情报、搜集外国情报以及为国家安全进行国内监视和搜集内部情报。国安部的工作之一是监视在中国的外国人。
 
+**联合参谋部情报局**，即原“总参二部”，是中国军队的对外情报机构。它的工作是支持战时决策。它负责派人到国外的公司、大学和其他组织担任卧底特工）。
 
+**战略支援部队**是解放军的另一个分支机构，工作重点与全球网络战有关。行动包括海外政治干预，以及用黑客手段窃取军事和商业机密。
 
+**统战部**在澳大利亚组织了数百个假的社区或友谊协会。有些为澳大利亚各级政治家提供支持和资助。自由党党员华裔议员廖婵娥（Gladys Liu）已经卷入了争议，因为有报道称她与总参二部有联系，以及与中国间谍嫌疑人赵波（Bo Nick Zhao）有联系。
 
-铁幕中的青年，暗淡的光
-
-投影于历史的长河
-
-石头不可以说话
-
-石头用流水呐喊
-
-鲜红的心脏回响着雷声
-
-杂草般的身躯野蛮生长
-
-——被压迫的生存，被强暴的灵魂
-
-
-
-**文字版原文：[【香草诗词汇】躺平青年](https://gnews.org/zh-hans/1361931/)**
-
-作者：纽约香草山写作组   木白
-
-
-
-音频处理/发稿：雪梨
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文鏈接：[Australian universities fail to protect Chinese students, Human Rights Watch report says (news.com.au)](https://www.news.com.au/national/australian-universities-failing-to-protect-chinese-students-and-academics-who-criticise-the-communist-party/news-story/1db6bb60b482d7520615e69c59b42cb9)
 
 0

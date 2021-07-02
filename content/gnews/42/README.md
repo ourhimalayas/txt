@@ -1,36 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：需要更多地支持台湾，保护台湾不受中共侵略
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1365559/)
+## 法国就隐瞒新疆危害人权行为调查时装零售商
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1366007/)
 
-视频字幕：雨中漫步| 听写：云岭| 翻译：Wade|PR：Roberts| 简评/文字整理/编辑：胖丁 | Page：小六月
-[!\[\]()!\[\](https://spark.adobe.com/page/MNCgyeDs4Xq3r/images/02a14114-bc6b-4471-ab88-5092113460b5.png?asset_id=ec44eff8-289a-4d12-b423-f821d3cc3139&amp;img_etag=%22f40af8c969fdd2155987b0a62b0361a0%22&amp;size=1024)](https://spark.adobe.com/page/MNCgyeDs4Xq3r/images/02a14114-bc6b-4471-ab88-5092113460b5.png?asset_id=ec44eff8-289a-4d12-b423-f821d3cc3139&amp;img_etag=%22f40af8c969fdd2155987b0a62b0361a0%22&amp;size=1024)
-[YouTube视频链接](https://www.youtube.com/watch?v=je7An5Od0ws)
+**编译：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01211052/NNTOP6YU7ZKIPOFSS47W5GI3SM.jpg)
+根据路透巴黎7月1日报道，一名司法消息人士周四表示，法国检方已对四家涉嫌在中共新疆地区隐瞒危害人类罪的时装零售商展开调查。
 
-[GTV视频链接](https://gtv.org/video/id=60dd1c699d5f0c1bd7ed96d5)
+消息人士称，该程序与针对中国对待该地区少数民族穆斯林维吾尔人的指控有关，包括使用强迫劳动。
 
-**简评：**
+消息人士告诉路透社优衣库法国，日本迅销的子公司，Zara所有者Inditex，法国SMCP和Skechers是调查的对象，证实法国媒体网站Mediapart的报道。
 
-中共在台湾问题上警告美国国务卿布林肯。需要更加支持台湾，包括提供F16战机在内的防卫武器系统。拜登政府不断地执行穿越台海的军事任务。必须坚定不移、直截了当地让中共政府明白，一旦他们敢动台湾，必将付出巨大的代价。如果我们这样做，就一定能阻止中共的图谋。
+消息人士说：“在提出投诉后，反恐怖主义检察官办公室内的危害人类罪部门已展开调查。”
 
-**视频字幕：**
+Inditex 表示拒绝了法律诉讼中的索赔，并补充说它进行了严格的可追溯性控制，并将全力配合法国的调查。
 
-**主持人：**关于中共侵略台湾的可能性有了越来越多的热议，而且杨洁篪已经在台湾问题上警告了布林肯。这意味着什么？不仅对于亚洲和美国，而是对于全球大局。
+该公司在一份声明中表示：“在 Inditex，我们对所有形式的强迫劳动采取零容忍态度，并制定了政策和程序以确保我们的供应链中不会发生这种做法。”
 
-**蓬佩奥：**这意味着我们需要更大的决心，对台湾提供更多的支持。我们承诺对台湾提供防卫武器系统，我们应该继续兑现承诺。我们的政府提供了包括F16战机在内的各种帮助。目前为止，本届政府其实做的不错。
+SMCP 表示，它也将与法国当局合作，以证明这些指控是错误的。
 
-他们不断地进行了穿越台海的军事任务。为此我向他们鼓掌。我们必须对中共、对杨洁篪和习近平本人非常明确。如果他们敢动台湾，就会付出巨大的代价。如果我们足够直截了当，坚定不移，告诉他们这些后果一定会发生。
+“SMCP 与位于世界各地的供应商合作，并坚持认为它在新疆地区没有直接供应商，”SMCP 说，并补充说它会定期审核其供应商。
 
-我相信我们能够阻止（中共侵略台湾）。我们就是这样干了四年，虽然也受到了中共同样的恐吓。如果我们下定决心，帮助台湾人民，我们就能阻止中共的图谋。
+两个非政府组织 (NGO) 于 4 月初在法国提起诉讼，控告跨国公司隐瞒强迫劳动和危害人类罪。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+联合国专家和人权组织估计，近年来有超过一百万人被拘留在中国西部新疆地区的庞大集中营系统中，其中主要是维吾尔人和其他穆斯林少数民族。
 
+许多被关押在集中营的囚犯说他们受到意识形态的训练和虐待。人权组织表示，这些营地已被用作低薪和强制劳动的来源。但中共否认所有的指控。
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/MNCgyeDs4Xq3r/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/MNCgyeDs4Xq3r/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+新疆种族灭绝罪已经是中共铁板钉钉的罪行，而且在全世界进行发酵，对于集中营中的血汗工厂，全世界也在用一切手段切断其供应链，这是贸易脱钩的开始，也是与中共在人权问题上划清界限的标志。
 
+（本文只代表作者观点，与Gnews平台无关。）
+
+**新闻来源：**
+
+[France investigates fashion retailers for concealing crimes against humanity in Xinjiang | Reuters](https://www.reuters.com/world/china/france-investigate-fashion-retailers-concealing-crimes-against-humanity-xinjiang-2021-07-01/)
+
+***校对发布：文顾***
 
 0
