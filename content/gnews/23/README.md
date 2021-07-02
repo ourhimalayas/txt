@@ -1,41 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 替中共背书的安德森企图让人相信“貉”是中间宿主
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1365968/)
+## 习近平誓言“粉碎台独”，美呼吁和平解决两岸问题
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1366110/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01205309/27-1.jpg)
-在最近的一次有关病毒的讨论中，作为一直为中共站台背书的安德森显然并没有因为病毒真相的一点一点揭露而收手，相反，他在这条路上，离正义和真相越来越远。他企图将“貉”定义为新的可能的病毒中间宿主，混淆大众的视野。
+2021年7月1日
 
-但其实，闫博士早在去年的路德社节目中就将中共这个邪恶的计划告诉了公众，并在几个月前，一次朱利安尼市长对她的采访中，再一次确认了这个信息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01221637/1-2.png)
 
-闫博士在采访中说，从2020年1月3日到16日，她被撤出了对中共病毒的调查，因为她的领导直接告诉她，他会联系中共CDC中闫博士的朋友，因为这属于绝对机密的信息，他需要保护闫博士的朋友。当时闫博士认为他讲的很有道理，也在想国际科学家们正在采取什么措施。之后1月16日，闫博士的领导又找她，希望她帮助做另一个调查，然后他就展示了一张“貉”的照片给闫博士，当时这种动物被关在笼子里，因为有人给他发了封邮件，暗示他要搜集这种动物的信息，把它当作可疑的中间宿主。闫博士的领导让她帮忙问一下武汉的朋友，他们当地人是否有吃这种动物的习惯。其实他们根本不是想做一次认真的调查，而是想要将责任推给这种动物，就像当年SAR1时，将果子狸作为罪魁祸首一样的做法。
+编辑摘要：
 
-基于闫博士的以上提前爆料，安德森的此次混淆视听是不会被接受和认可的。因为真相只有一个，那就是病毒来自中共军方，经过功能增强之后，故意释放到全世界，对中共的敌对国家进行无差别打击。
+中共7月1日在北京天安门广场举行建党庆祝活动，习近平致词强调坚持“一中原则”、“九二共识”，推进“和平统一”进程，并要“粉碎任何’台独’图谋”。并警告外来势力别妄想欺负中国，否则将在14 亿多中国人血肉长城前“碰得头破血流”。
 
-安德森作为一个科学家，这样为中共洗地罪名的行为，不会被世界原谅。
+针对习近平言论，美国国务院一位不具名发言人回复记者询问时表示，美国将持续支持和平解决海峡两岸议题。并强调：“美国敦促北京停止在军事、外交与经济上施压台湾，并与台湾进行有意义对话。”
 
-（本文只代表作者观点，与Gnews平台无关。）
+另外，中共党庆之际，多位美国政要则透过社交媒体，提醒世人中共残酷本性。前美国国务卿蓬佩奥周四在推文指出，中共百年带来的杀戮战场与种族灭绝，“没有一个政党比中国共产党屠杀更多人”。共和党籍参议员罗姆尼则推文说，中共百年没什么好庆祝的，因为他们持续对100万名维吾尔族人进行种族灭绝、监禁或处决异议人士，也继续对报纸、广播与社群网络进行言论审查、背弃赋予香港自由的承诺，并监控自己人民。
 
-**素材来源：**
+【[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210701-%E4%B9%A0%E8%BF%91%E5%B9%B3%E8%AA%93-%E7%B2%89%E7%A2%8E%E5%8F%B0-%E7%8B%AC-%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%8A%A1%E9%99%A2%E5%91%BC%E5%90%81%E5%92%8C%E5%B9%B3%E8%A7%A3%E5%86%B3%E4%B8%A4%E5%B2%B8%E9%97%AE%E9%A2%98)**】**
 
+* * *
 
-
-> Yet more revelations from Twiv as we Enter the Raccoon Dog and Sars Cov 1 origin is still unknown. [pic.twitter.com/yz7rGxCGYm](https://t.co/yz7rGxCGYm)
-> — Rads (@FunctionGain) [July 1, 2021](https://twitter.com/FunctionGain/status/1410706048525164546?ref_src=twsrc%5Etfw)
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-> Dr. Limeng Yan, Dr. Maria Ryan and Rudy Giuliani 20210605 part 3-3
-> 🔹他對我說，問一問你在武漢的朋友，他們是否吃貉，暗示他要搜集這個動物的信息，是可疑的病毒宿主
-> 🔹SARS-1 果子狸是另一個可笑的故事，他們去了廣州，廣州政府立刻就給了他麼10-15個樣本，一半檢測呈陽性，他們就說果子狸是宿主 [pic.twitter.com/moZuoZDlWA](https://t.co/moZuoZDlWA)
-> — 占戈鹰 Tuan (@Tuan\_himalaya) [June 6, 2021](https://twitter.com/Tuan_himalaya/status/1401411832431005699?ref_src=twsrc%5Etfw)
-
-
-
-***校对发布：文顾***
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

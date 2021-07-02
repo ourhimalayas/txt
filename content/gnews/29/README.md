@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦澳洲】澳媒2分钟短视频全面揭秘中共间谍网络
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1363314/)
+## 北欧四大报联名炮轰香港新闻自由遭侵犯
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1366143/)
 
-#### 听写/翻译：彩虹
-校对/编辑：枳实
-字幕：彩虹 剪辑：质朴
+2021年7月1日
 
-#### 了解澳洲時事焦点，盡在雅典娜【聚焦澳洲】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01223448/0-1.jpg)
 
-这个短视频短小精悍，切中要害。**欢迎大家点击视频右键下载**，通过社交媒体广泛传播。此视频介绍了中共间谍网络几个组成部分：
+编辑摘要：
 
-**公安部**负责监视中国的异议人士，现在这也扩大到了香港。公安部在中国各地运行着数以亿计的监控摄像头。公安部收集护照和签证信息，并监测中国境内所有外国人的位置。
+（法新社奥斯陆1日电）
+挪威《晚邮件》（Aftenposten）、瑞典《每日新闻》（Dagens Nyheter）、芬兰《赫尔辛基日报》（Helsingin Sanomat）和丹麦《政治报》（Politiken）的总编辑联名在头版刊登社论，遣责今天庆祝建党百年的中共打击香港独立媒体，同时也承诺今后将以更密集的篇幅报导香港令人惊骇的发展。6月支持民主的香港《苹果日报》因港版国安法而遭到资产冻结，被迫停刊，报社几名高层也遭到逮捕，引起外界巨大争议。
 
-**国家安全部**的任务是反情报、搜集外国情报以及为国家安全进行国内监视和搜集内部情报。国安部的工作之一是监视在中国的外国人。
+【[新闻来源](https://cn.theaustralian.com.au/2021/07/02/54769/)**】**
 
-**联合参谋部情报局**，即原“总参二部”，是中国军队的对外情报机构。它的工作是支持战时决策。它负责派人到国外的公司、大学和其他组织担任卧底特工）。
+* * *
 
-**战略支援部队**是解放军的另一个分支机构，工作重点与全球网络战有关。行动包括海外政治干预，以及用黑客手段窃取军事和商业机密。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**统战部**在澳大利亚组织了数百个假的社区或友谊协会。有些为澳大利亚各级政治家提供支持和资助。自由党党员华裔议员廖婵娥（Gladys Liu）已经卷入了争议，因为有报道称她与总参二部有联系，以及与中国间谍嫌疑人赵波（Bo Nick Zhao）有联系。
 
-原文鏈接：[Australian universities fail to protect Chinese students, Human Rights Watch report says (news.com.au)](https://www.news.com.au/national/australian-universities-failing-to-protect-chinese-students-and-academics-who-criticise-the-communist-party/news-story/1db6bb60b482d7520615e69c59b42cb9)
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
