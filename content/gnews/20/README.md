@@ -1,60 +1,176 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/30 班农专访(3) 对抗中共超限战，避免台海热战
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1366725/)
+## 在中共建党100周年之际, 在“永远跟党走”的旗帜下，习近平利用周年纪念动员中共领导下的中国民众
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1366907/)
 
-视频字幕：雨中漫步 | 听写：云岭| 翻译：Wade|校对：云岭 |简评/文字整理/编辑：胖丁|Page：小雨
+**字幕内容**
 
-**简评：**
+Elise Stefanik (House Representative, R-NY)
+埃莉斯·斯特凡尼克（众议院代表，共和党-纽约）
 
-在中共百年诞辰之际，中共在台湾海峡部署了J20战斗机，以威胁台湾、日本和韩国。
+My colleague Representative Mike Gallagher from Wisconsin.
+我的同事来自威斯康星州的议员代表迈克·加拉格尔
 
-文贵先生几年来一直在提醒和警告西方来自中共的威胁，西方并没有认真对待。中共一直在试探西方的反应。如果不对抗中共发动的网络战和信息战，不以实质性的方式对待中共的经济战，台湾海峡就会陷入热战。
+Mike Gallagher (U.S. Representative, R-Wisconsin)
+迈克·加拉格尔 （美国众议院代表，共和党-威斯康星州)
 
-**台湾是美国西边的硅谷，世界上90%的先进芯片的设计和制造都在台湾。中共需要台湾，西方也需要。台海战争也是中共转移国内经济压力、控制国内百姓的一个出口。**
+Thank you.
+谢谢
 
-[GTV链接](https://gtv.org/video/id=60ddbd859d5f0c1bd7edcf51)
+This Thursday marks the 100th anniversary of the founding of the Chinese Communist Party.
+这周四，标记中国共产党建党100周年的纪念日
+
+Under the slogan of ‘follow the party forever’.
+在“永远跟党走”的口号下
+
+General Secretary Xi Jinping is marking the occasion,
+总书记习近平正在纪念这个场合
+
+your wave of propaganda and triumphalism,
+你的宣传和胜利主义的浪潮
+
+especially about the party’s earliest days rewriting history,
+特别是关于共产党篡改早期党史
+
+they’re hosting study sessions on party history
+他们正在举办关于党史的学习班
+
+theaters have been ordered to screen propaganda films at least twice a week.
+剧院已被命令每周至少放映两次宣传片
+
+and in Wuhan of all places, the party put on a giant light ship
+而在武汉各个地方，共产党派出了一艘巨大的光船
+
+buildings are being and bridges are being lit up with the hammer and sickle
+建筑物和桥梁被镰刀和斧子照亮
+
+CCP officials that even set up a website
+中共的官员甚至建立了一个网站
+
+where individuals can report on their neighbors,
+个人可以在那里举报他们的邻居
+
+and the quote historical nihilists who quote defame CCP heroes
+和“诽谤中共英雄的历史虚无主义者
+
+or deny the excellence of advanced socialist culture.
+或否定社会主义先进文化的优越性的人”
+
+While imitation like that
+虽然像那样的虚假
+
+and to assist General Secretary Xi Jinping in his commemoration of CCP history.
+为了协助习近平总书记纪念中共历史
+
+I’ve introduced a resolution that details the dozens of crimes against humanity
+我提出了一项决议，详细说明了该党在
+
+from across the last century of the party’s history.
+上个世纪历史上的数十起危害人类罪
+
+The point here is to illustrate
+这里的重点是
+
+that the abuses we’ve seeing from the party today,
+为了说明我们今天看到共产党的施虐
+
+including the genocide in Xinjiang.
+包括新疆种族灭绝
+
+Think about the fact that we now have two successive administrations
+想想我们现在有两个连续的政府
+
+one Republican one Democrat,
+一个共和党，一个民主党
+
+has certified that what is going on in Xinjiang province is a genocide.
+已经证明新疆正在发生的事情是种族灭绝
+
+Not much worse than a genocide.
+没有比种族灭绝更糟糕的
+
+This is not a new phenomenon,
+这不是一个新现象
+
+human rights abuses are hardwired into the Chinese Communist Party’s very DNA.
+迫害人权的行为深深植根于中国共产党的 DNA 中
+
+So I’m thrilled to say
+所以我很高兴地说
+
+we actually have strong bipartisan support for this resolution.
+我们实际上得到了两党对这项决议的强烈支持
+
+Thanks to the work of my colleagues representative McCaul
+感谢我的同事议员麦考尔的工作
+
+representative Gallego, Gottaheimer, Stefanik, Golden and Fitzpatrick,
+议员加列戈，戈塔海默，斯特凡尼克，各登， 和菲茨帕特里克
+
+we have a broad bipartisan group
+我们有一个广泛的两党团队
+
+that is united in standing against the CCPs ongoing crimes against humanity.
+团结一致反对中共正在进行的犯罪反人类罪
+
+This is a message that all Americans should get behind
+这是所有美国人都应该支持的信息
+
+and I urge Speaker Pelosi,
+我敦促佩洛西议长
+
+to bring this resolution before the house this week,
+本周将这项决议提交众议院
+
+and thereby allow us to send an unambiguous message
+从而允许我们发出明确的信息
+
+that we do indeed deny the excellence of advanced socialist culture,
+我们确实否认先进的社会主义文化的优越性，
+
+we can lay the CCP his true nature bear for all the world to see.
+我们可以把中共的真面目给全世界看
+
+Early in her career Speaker Pelosi was a very forceful
+佩洛西议长在她职业生涯的早期是一个强有力的
+
+denouncer of the CCP human rights abuses in the aftermath of Tiananmen square,
+天安门事件后中共践踏人权的谴责者
+
+she said. First, we saw the massacre.
+她说，首先，我们看到了大屠杀
+
+Then we saw the Masquerade.
+然后我们看到了化装舞会
+
+Well, I could not agree anymore.
+好吧，我不能再更同意了
+
+Let us help end the masquerade and speak the truth,
+让我们帮助结束化装舞会并说出真相
+
+I urge the speaker to bring this resolution to the House floor
+我敦促议长将此决议提交众议院
+
+for a strong bipartisan vote.
+获得强有力的两党投票
+
+Thank you.
+谢谢
+
+原视频链接 [https://twitter.com/repgallagher/status/1409950343581081615?s=21](https://twitter.com/repgallagher/status/1409950343581081615?s=21)
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
 
-**视频字幕：**
-
-**主持人Dr. TCC ：**所以就像迈克说的，另一群成功的华人是台湾人民。因此，在临近其百年诞辰之际，中共在台湾海峡周围部署了J20战斗机（F22的复制品），以威胁台湾、日本和韩国。此举表明，中共对在香港（所作所为）和任何错误行为都没有悔意，并希望采取更具侵略性的行动。世界如何能阻止中共在南海周边发动热战？班农先生。
-
-**班农：**关于阻止热战的方法，我说了多年了，我们正在滑向热战的边缘。对此我毫无任何疑问。部分原因是中共需要这样做来证明其政权对中国人民的控制。中共国经济状况越來越差。
-
-我认为西方欠郭文贵太多了。郭文贵来到美国后，一直以来都在警告西方、警告美国，中国共产党他们会做什么，他们将要做什么。不幸的是，西方国家还没有充分听取他的意见。尽管他们每天越来越多在听了。他对台湾的警告令人不寒而栗，对吗？ 我认为他是正确的。
-
-如果我们不对抗中共发动的网络和信息战，如果我们不以更实质性的方式对抗他们的经济战，我们将在台湾海峡陷入一场热战。台湾是美国西边的矽谷。世界上90%的先进晶片设计和制造都在这里。中国共产党需要台湾。西方肯定也需要台湾。这将是一个新的战场。
-
-早在2019年春天，正如郭文贵告诉我们的那样，习主席在退出川普的第一笔交易时，莱特希泽•特朗普的交易，那个被彼得•纳瓦罗摁得死死的交易。他们说：这将只是另一个商埠条约，我们事实上将屈从于西方。
-
-当他们走后，习说：“为了赶上西方，我们现在已经偷了20或30年的技术了。这个计划看起来还要20或30年。我们没那个时间了。我们必须在五年内完成，因为需要与西方对抗”。
-
-因此，我认为我们正面临一场热战，这是可以避免的。它只有在西方国家站出来对抗中国共产党的情况下才能避免。不幸的是，乔•拜登现在入主了白宫，他的儿子亨特是中共的合作伙伴，他在白宫进进出出。
-
-所以我们有极大的困难。这就是为什么这个节目如此重要。这就是为什么我们明天要做这个特别节目。这也是为什么作战室每天都会有越来越多的关于中共病毒和生化武器计划以及所有这些的消息。
-
-但我非常担心，而且我认为郭文贵是对的。除非西方国家立刻对中共采取更多措施，否则他们每天都在试探，而且他们感觉到了（西方的）软弱。如果他们继续感觉到这种软弱，我们将面临一场热战。
-
-**[完整访谈视频](https://gtv.org/video/id=60dc710d871bef6d4ab13292)**
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/dbBxXI8TttVy1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/dbBxXI8TttVy1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
-
-+1
+0

@@ -1,175 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中共建党100周年之际, 在“永远跟党走”的旗帜下，习近平利用周年纪念动员中共领导下的中国民众
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1366907/)
+## 2021/06/30 班农专访(4)：中共病毒是超限生化武器，联合国公约需要更新
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1367284/)
 
-**字幕内容**
+视频字幕：雨中漫步 | 听写：云岭 | 翻译：Wade | 校对：云岭 | 简评/文字整理/编辑：胖丁 | Page: Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/IBgs9yLAslrmp/images/55f454ff-959e-4e35-85a8-6a1287d79514.png?asset_id=fcf59f56-0ea5-4f63-bed4-008bb9690aee&amp;img_etag=%22bfe6df9a4ced052b0415d95eddf96e33%22&amp;size=1024)](https://spark.adobe.com/page/IBgs9yLAslrmp/images/55f454ff-959e-4e35-85a8-6a1287d79514.png?asset_id=fcf59f56-0ea5-4f63-bed4-008bb9690aee&amp;img_etag=%22bfe6df9a4ced052b0415d95eddf96e33%22&amp;size=1024)
+简评：
 
-Elise Stefanik (House Representative, R-NY)
-埃莉斯·斯特凡尼克（众议院代表，共和党-纽约）
+**众议院共和党人在举行听证，调查病毒真相，要对史上最严重的病毒掩盖事件追责。前任国务院调查员大卫阿什尔无法从联合国生化武器公约上找到冠状病毒一。需要时间证明病毒是生化武器，但更需要的是政治意愿。**
 
-My colleague Representative Mike Gallagher from Wisconsin.
-我的同事来自威斯康星州的议员代表迈克·加拉格尔
+**这场听证会不是官方听证，只是共和党单方举行，民主党不敢参加，他们也没有调查病毒起源。18个月过去了，没有针对病毒起源的任何调查。占主导地位的政治阶层都对中共下跪，耐克直接声明自己是中共公司。**
 
-Mike Gallagher (U.S. Representative, R-Wisconsin)
-迈克·加拉格尔 （美国众议院代表，共和党-威斯康星州)
+**社交媒体已经取代核武器成为中共控制世界的新型武器。中共的合作伙伴包括硅谷的科技巨头，所有的风投公司，还有福奇这些NIH的官员。相关的幕后真相早晚会曝光，福奇最终会进监狱。**
 
-Thank you.
-谢谢
+GTV视频链接：[班农先生每周访谈 Q4](https://gtv.org/video/id=60ddc1b59d5f0c1bd7edd096)
 
-This Thursday marks the 100th anniversary of the founding of the Chinese Communist Party.
-这周四，标记中国共产党建党100周年的纪念日
 
-Under the slogan of ‘follow the party forever’.
-在“永远跟党走”的口号下
 
-General Secretary Xi Jinping is marking the occasion,
-总书记习近平正在纪念这个场合
+视频字幕：
 
-your wave of propaganda and triumphalism,
-你的宣传和胜利主义的浪潮
+**主持人：**众议院共和党人这周很忙。他们首先宣布要对中共掩盖病毒真相追责，对人类史上最恶劣的掩盖追责。昨天，前任国务院调查员大卫·阿什尔，与其他专家一起作了COVID起源的听证。在听证会上，阿什尔博士无法从联合国生化武器公约上找到冠状病毒，来对中共进行追责。但中共病毒是超限生化武器，可能联合国生化武器公约需要更新，你怎么看？
 
-especially about the party’s earliest days rewriting history,
-特别是关于共产党篡改早期党史
+**Bannon：**我认为一定能证明，必须要证明它是生化武器。毫无疑问他们有一个生化武器项目。雷德菲尔德博士，还有这个领域的其他专家都说那是生化武器。但我们需要的是政治意愿。那场听证会只是共和党听证会，不是官方听证。因为民主党不想作听证，他们害怕让官员参加听证。我们对中共病毒起源有任何调查吗？沒有！
 
-they’re hosting study sessions on party history
-他们正在举办关于党史的学习班
+现在是2021年6月，已经十六、七个月了。这是耻辱。18个月过去了，这是个耻辱。现在需要的是政治意愿。占主导地位的政治阶层–华尔街和跨国公司都对中共下跪。看看耐克，中共稍微给点脸色，耐克马上说：自己是中国公司，为中国人民服务。他们才不是中国公司，他们是中共公司。这才是他们的言下之意。证据已经足够明确了。
 
-theaters have been ordered to screen propaganda films at least twice a week.
-剧院已被命令每周至少放映两次宣传片
+任何对这个网络的调查，要知道，正如闫博士所说，那是一整个生化武器项目。不仅是武汉一个实验室，那只是其中一部分。虽然重要，但也只是一部分。这是对西方尤其是对美国政治体系的另一个耻辱，现在已经是2021年6月了，我们还没开始做任何事情。这样的争论一直反反复复。但现在，即便是John Stewart，Bill Mar这样的娱乐界人士也开始站出来了。已经无法再回避这个问题了。这显示了媒体就是中共的宣传机器。
 
-and in Wuhan of all places, the party put on a giant light ship
-而在武汉各个地方，共产党派出了一艘巨大的光船
+这就是为什么媒体从来不报导文贵的警示，因为他们是中共的生意伙伴，对中共下跪。这就是为什么信息战如此重要。事实上，文贵早就说了…现在我也同意，以前他需要教导我。几年前他告诉我，核武器什么都不是。社交媒体才是中共控制世界的新型武器。你们今天看到的就是社交媒体，还有矽谷的科技巨头，都与中共做生意。同样的，所有的风投公司都与中共做生意。他们对中共下跪，这很重要。
 
-buildings are being and bridges are being lit up with the hammer and sickle
-建筑物和桥梁被镰刀和斧子照亮
+我们对中共病毒来源还没有正式听证或讨论。他们不想作听证，因为福奇这帮NIH的官员都与中共勾兑。尤其是福奇用美国纳税人的钱资助了很多危险的研究。有些危险的武器迟早会被曝光。我们赢下2022年中期选举之后，所有这些都会被曝光。福奇最终会进监狱。我一直相信，他是个变态的骗子，是个非常危险的人物。
 
-CCP officials that even set up a website
-中共的官员甚至建立了一个网站
+[完整访谈视频](https://gtv.org/video/id=60dc710d871bef6d4ab13292)
 
-where individuals can report on their neighbors,
-个人可以在那里举报他们的邻居
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
-and the quote historical nihilists who quote defame CCP heroes
-和“诽谤中共英雄的历史虚无主义者
 
-or deny the excellence of advanced socialist culture.
-或否定社会主义先进文化的优越性的人”
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
 
-While imitation like that
-虽然像那样的虚假
+编辑：【英国伦敦喜庄园编辑部】
 
-and to assist General Secretary Xi Jinping in his commemoration of CCP history.
-为了协助习近平总书记纪念中共历史
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-I’ve introduced a resolution that details the dozens of crimes against humanity
-我提出了一项决议，详细说明了该党在
 
-from across the last century of the party’s history.
-上个世纪历史上的数十起危害人类罪
-
-The point here is to illustrate
-这里的重点是
-
-that the abuses we’ve seeing from the party today,
-为了说明我们今天看到共产党的施虐
-
-including the genocide in Xinjiang.
-包括新疆种族灭绝
-
-Think about the fact that we now have two successive administrations
-想想我们现在有两个连续的政府
-
-one Republican one Democrat,
-一个共和党，一个民主党
-
-has certified that what is going on in Xinjiang province is a genocide.
-已经证明新疆正在发生的事情是种族灭绝
-
-Not much worse than a genocide.
-没有比种族灭绝更糟糕的
-
-This is not a new phenomenon,
-这不是一个新现象
-
-human rights abuses are hardwired into the Chinese Communist Party’s very DNA.
-迫害人权的行为深深植根于中国共产党的 DNA 中
-
-So I’m thrilled to say
-所以我很高兴地说
-
-we actually have strong bipartisan support for this resolution.
-我们实际上得到了两党对这项决议的强烈支持
-
-Thanks to the work of my colleagues representative McCaul
-感谢我的同事议员麦考尔的工作
-
-representative Gallego, Gottaheimer, Stefanik, Golden and Fitzpatrick,
-议员加列戈，戈塔海默，斯特凡尼克，各登， 和菲茨帕特里克
-
-we have a broad bipartisan group
-我们有一个广泛的两党团队
-
-that is united in standing against the CCPs ongoing crimes against humanity.
-团结一致反对中共正在进行的犯罪反人类罪
-
-This is a message that all Americans should get behind
-这是所有美国人都应该支持的信息
-
-and I urge Speaker Pelosi,
-我敦促佩洛西议长
-
-to bring this resolution before the house this week,
-本周将这项决议提交众议院
-
-and thereby allow us to send an unambiguous message
-从而允许我们发出明确的信息
-
-that we do indeed deny the excellence of advanced socialist culture,
-我们确实否认先进的社会主义文化的优越性，
-
-we can lay the CCP his true nature bear for all the world to see.
-我们可以把中共的真面目给全世界看
-
-Early in her career Speaker Pelosi was a very forceful
-佩洛西议长在她职业生涯的早期是一个强有力的
-
-denouncer of the CCP human rights abuses in the aftermath of Tiananmen square,
-天安门事件后中共践踏人权的谴责者
-
-she said. First, we saw the massacre.
-她说，首先，我们看到了大屠杀
-
-Then we saw the Masquerade.
-然后我们看到了化装舞会
-
-Well, I could not agree anymore.
-好吧，我不能再更同意了
-
-Let us help end the masquerade and speak the truth,
-让我们帮助结束化装舞会并说出真相
-
-I urge the speaker to bring this resolution to the House floor
-我敦促议长将此决议提交众议院
-
-for a strong bipartisan vote.
-获得强有力的两党投票
-
-Thank you.
-谢谢
-
-原视频链接 [https://twitter.com/repgallagher/status/1409950343581081615?s=21](https://twitter.com/repgallagher/status/1409950343581081615?s=21)
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[!\[\]()!\[\](https://spark.adobe.com/page/IBgs9yLAslrmp/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/IBgs9yLAslrmp/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
 
 
 
