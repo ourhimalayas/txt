@@ -1,52 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/30 班农专访(0)世界遭重创，中共庆百年
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1365573/)
+## 中共用PUMA将美国体育运动政治化
+` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1367813/)
 
-视频字幕：雨中漫步 | 听写：云岭 | 翻译：Wade | 校对： 云岭 | 简评/文字整理/编辑：胖丁| Page：我是球大哥
+作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
+![BLM]()![BLM](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02143300/a760cfb81er__1.78__r.jpg)
+在俄勒冈举行的东京奥运会田径选拔赛中，获得女子链球第三名的格温·贝瑞（Gwen Berry）在奏响国歌时拒绝面向国歌站立。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BUKoc7PBmbfio/images/94b84c6d-b00c-4ec3-a084-4edd5e872a2e.png?asset_id=80397cfb-416e-4043-9d50-76741d51fd73&amp;img_etag=%22fb0e8f3b46e2661e85710cf4aee79083%22&amp;size=1024)](https://spark.adobe.com/page/BUKoc7PBmbfio/images/94b84c6d-b00c-4ec3-a084-4edd5e872a2e.png?asset_id=80397cfb-416e-4043-9d50-76741d51fd73&amp;img_etag=%22fb0e8f3b46e2661e85710cf4aee79083%22&amp;size=1024)
+据华盛顿邮报报道，格温·贝瑞（Gwen Berry）的赞助商为PUMA。
 
-**简评：**
+据界面新闻报道，2020年国际奥委会宣布东京奥运延期的当天，PUMA抢注“PUMA Tokyo 2021”、“PUMA BEIJING 2022”和“PUMA PARIS 2024”等商标，但PUMA并非奥运官方赞助商，被美国奥委会起诉。
 
-世界因冠状病毒濒临崩溃，中共最后一次庆祝建党节。中共对逝去的生命毫无尊重和同情。
+作为德国企业，PUMA为何会赞助这样的运动员？为何非法抢注商标？PUMA的财务报表给出了答案。据[PUMA采用国际财务报告准则编制的2020年度财务报表](https://udg-about-puma-prod-endpoint.azureedge.net/-/media/files/pdf/investor-relations/financial-report/puma-consolidated-financial-statements-2020.pdf?rev=cdb58709f23b44b7ae15a916abf1a044&amp;hash=06662C60F9C8CD358014EE17BB35DAC2)，德勤德国会计师事务所出具了无保留意见的审计报告，合并利润表显示**总体销售下滑****4.87%**，归属于母公司所有者的综合收益从上年盈利2.2亿欧元下降到2020年亏损1.5亿欧元，分部报告显示**大中华地区销售额增长****4.39%**，东南亚、北美、南美、欧洲、大中华地区以外的亚太地区销售均下降，而这与中共病毒大流行分不开关系，销售增长依赖于中共国。
 
-GTV视频链接：[20210630-GTV UK: 班农先生每周访谈 主持人Mike：世界正遭受冠状病毒的重创而中共却在庆祝，它们对因新冠病毒而逝去的生命毫无尊重和同情](https://gtv.org/video/id=60ddbb929d5f0c1bd7edcec6)
+分部报告还显示其在大中华地区的存货、应收账款、长期资产的总额为2.99亿欧元，因此可以判定其在大中华地区的销售部分由大中华地区的资产所产生。财务报表还显示26%的原材料来自中共国，35%的原材料来自越南，可见其采购对中共国存在严重依赖。
 
+财务报表还显示管理董事的薪酬以业绩为基础，不好的业绩差异会导致管理层薪酬大量减少。中共是一个有组织犯罪组织，践踏中国工人权利，其在中共国的采购成本直接受中国工人工资金额和加班时间长度的影响，也受环境保护成本、能源成本的影响，而中共国的部分能源来自于种族灭绝地区新疆、内蒙古开采的煤矿。PUMA在中共国的生产因此也涉及碳排放增加导致的全球气候变暖。
 
+采购成本最终影响存货成本、营业成本、营业利润，从而影响管理层薪酬。管理层就可能受到中共政权的胁迫，使其为中共的利益行事。
 
-**视频字幕：**
+其中监事会主席Jean-François Palus同时是位于中共国香港的开云亚太有限公司（Kering Asia Pacific Limited）的治理成成员，说不定其在使用中共国安监控跟踪工具微信和中共国的员工沟通。
 
-**主持人**：世界濒临崩溃的时候中共在庆祝最后一个建党节。
-
-明天在北京上演的将是震惊世界的一幕。
-
-世界正遭受冠状病毒的重创，中共却在庆祝百年的腐败和对中国百姓的残暴杀戮。
-
-这百年里，中共的触角伸向了整个世界。
-
-人们仍在死亡，它们的庆典对因这个来自武汉的病毒而逝去的生命毫无尊重和同情。
-
-**完整访谈视频**：[每周班农采访 （2021年6月30日）](https://gtv.org/video/id=60dc710d871bef6d4ab13292)
-
-**主播**：Mike, Dr. TCC
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BUKoc7PBmbfio/images/8682b825-e26f-481b-917c-910f995d3656.png?asset_id=b3954339-2b53-41c2-b969-7035d8b4f20d&amp;img_etag=%221fc9b4e5b69e219c6d17cff0d3e767a8%22&amp;size=2560)](https://spark.adobe.com/page/BUKoc7PBmbfio/images/8682b825-e26f-481b-917c-910f995d3656.png?asset_id=b3954339-2b53-41c2-b969-7035d8b4f20d&amp;img_etag=%221fc9b4e5b69e219c6d17cff0d3e767a8%22&amp;size=1024)
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+因此不难推测出中共通过PUMA对中共国业务的依赖以及其他方式，将美国体育运动政治化。其他方式包括中共国领事馆与NBA球员的交流活动。
 
 
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:30 （美东时间09：30）直播***
 
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+> NBA was bought by CCP. Evidences [pic.twitter.com/r5mf7j11YR](https://t.co/r5mf7j11YR)
+> — Faithful Representation (@CPAJimNFSC) [June 28, 2021](https://twitter.com/CPAJimNFSC/status/1409572485582962699?ref_src=twsrc%5Etfw)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BUKoc7PBmbfio/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BUKoc7PBmbfio/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-+1
+PUMA在支持黑命贵行动时，没注意到中国人的命和其他人的命一样贵，没有注意到中国的环境也需要保护、中国也应该参与阻止全球气候变暖。希望法国检方对参与新疆种族灭绝品牌的起诉能够提醒PUMA停止协助中共剥削中国劳工，停止为100年杀人犯罪集团中共的利益行事，包括停止在美国为中共非法抢注商标等。
+
+(本文仅代表作者个人观点)
+
++2

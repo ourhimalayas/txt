@@ -1,176 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中共建党100周年之际, 在“永远跟党走”的旗帜下，习近平利用周年纪念动员中共领导下的中国民众
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1366907/)
+## 【字幕】7/2/2021文贵盖特：7月1号共产党人百年冥诞和我们新中国联邦全球连线直播的不同之处
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1367852/)
 
-**字幕内容**
+制作： 【彩虹桥】
 
-Elise Stefanik (House Representative, R-NY)
-埃莉斯·斯特凡尼克（众议院代表，共和党-纽约）
+尊敬的战友们好！7月2号了，这太快了，你说，这都7月2号了，你说咋弄啊这玩意啊，这也是太快了吗，是吧？
 
-My colleague Representative Mike Gallagher from Wisconsin.
-我的同事来自威斯康星州的议员代表迈克·加拉格尔
+我这昨天在新办公室，盖特办公室直播，现场很多咱们中国的..干几年了没和那么多当中国同胞在一起,第一次，还有最重要的人家都是我的战友，大家知道这里为啥这么空吗？这有个拿走了，大家还记得是什么东西吗？后来发现是个超级古董，值钱，现在送博物馆去了，所以有时候值钱的东西在你身边你就不知道。
 
-Mike Gallagher (U.S. Representative, R-Wisconsin)
-迈克·加拉格尔 （美国众议院代表，共和党-威斯康星州)
+这怎么还有个双休的图啊？我的天哪，我才发现..到处无黄不在啊..昨天的跟那么多战友们在一起，我感受特别深，我昨天一晚上大家都看到我手机在工作，没怎么睡觉，我早上睡了大概两个小时，很多国内的战友问我，啥感觉？七哥？如何如何..很多人说法,发自内心的说，就昨天是我过去4、5年最幸福的一天，虽然前天我几乎没睡觉，“长岛哥”带着我们“苍天饶过谁”“Ada”Ada的妈妈，我们的“老凯”老凯的妻子，“圆又圆”儿子、闺女，还有我们西西的编导，长岛哥的儿子和女儿，还有我们的“白白”我们的白白是在后面工作的，“小斯基”，你看看我们昨天的所有兄弟姐妹们，那就更不用说我们“小飞象”，“小飞侠” 是吧，在现场的兄弟姐妹们，就是昨天是个新办公室，外面大车一直在搬家，进进出出..在美国搬个家事很大，人工保险，安全保证..一堆的事，复杂了，但是我们要把6月的事，三天完成，没办法，这是咱们的速度。
 
-Thank you.
-谢谢
+那么咱们战友在那块继续的直播，昨天的技术还是很差的，但是我昨天给长岛哥说的，谁愿意做差啊？没人愿意做差，是吧？谁都愿意做好，又急，要求又高，你再不允许人家犯错，凭啥呀？像昨天听说在天安门上，刚刚发生的事，准备了两个月上天安门那挥挥旗，摄像机几乎不可能照到你，然后自我感觉良好，经历了历史事件，但是由于下大雨，导致很多人病了，住院住不了，有的人现在不管你有没有病，到处扔，而且有很多人被抓了，听说擅自发表原来国家不让发表的国家机密，就是现场发生的事啊，有人病倒了，是不是？躺地上，有没有被拖走了，就这种事，就叫国家机密，所以说这就是扯王八犊子的事，只有这种就小的时候才能看的到这种荒唐、滑稽、可笑的事情，这已经不是民粹了，这也不是黑帮了，这完全到了荒诞、不可理喻的境界。
 
-This Thursday marks the 100th anniversary of the founding of the Chinese Communist Party.
-这周四，标记中国共产党建党100周年的纪念日
+大家你们记得三国的时候，有一个叫徐孺的背叛了袁绍，然后给了曹操提供了粮草，救了曹操一命，徐孺后来就是被他下面的大将给干掉了、斩首，当时徐孺那个人，那个小人帮助曹操，背叛袁绍，咱不说得好坏，就三国演义的那个演员的样子，那个得意，那个小人，那个嘴脸，现在在中共里面无处不在，得意忘形，小人得志，自以为是，大头症，就像海外的民运是一个德行的。
 
-Under the slogan of ‘follow the party forever’.
-在“永远跟党走”的口号下
+那个现在听说中共上过天安门的这些人，都吹牛啊，我偷拍的照片啊，我看到谁了，谁都坐在我旁边，啥啥啥.. 完了，全抓了，这不但是一个黑帮治国，是整个这个国家处在了一个完全荒唐、荒谬，完全无自我，无任何人格，无任何正确判断的一个荒唐的境界，这已经是个社交媒体、人类走向了21世纪的文明时代，你想想有多荒唐，然后再想想我们新中国联邦，就在这不经意间..又点儿不好意思，昨天就创造了神奇，昨天长岛哥还有很多在场的战友，老凯他们..他们啥都知道，他不知道昨天创造了神奇，昨天一大早，世界级的大师就发信息，我们今天做了很正确的决定啊，所以非常严格、保密呀..我就笑，我说：好，恭喜你！挺好，你们就这么做吧，我就不说别的了。
 
-General Secretary Xi Jinping is marking the occasion,
-总书记习近平正在纪念这个场合
+等到下午2点的时候，我就看到那个哥儿们从角落里蹦起来了，我正在直播中，正讲着挠长岛哥、挠小飞侠、挠小飞象的时候，我在那笑，我知道事成了，严格讲昨天就是这个日子太了不起了，没有人相信这个东西，因为大家都没成功过，甚至这你没感觉到上天和大自然的力量存在，就这一年四季花开花落，上几万年，它不变，为什么夏威夷的那么暖乎？为什么纽约是这样？为什么南北的经纬度上和东北哈尔滨、纽约一样的一个经纬度上，出现这么多同样的城市？没人给答案，因为你习惯了，真相和神的力量在你旁边，你已经不在乎它了，而你从来不去在乎新的发生的神力，我认为这就是宗教信仰的一点，宗教信仰最起码给你提供了可能，给你提醒着，我们是人，很渺小，我们是有主人的，就是万福万神吧，我们大自然是一种无穷的力量，地球很小，有银河系，银河系外面还有太阳系、黑洞，大了去了，我们不要把自己变得那么无知，那么可悲。
 
-your wave of propaganda and triumphalism,
-你的宣传和胜利主义的浪潮
+那么昨天你看7月1号，共产党的100年冥诞，1921~2021，对面棺材板躺着的那个人，天安门上站着的那个人，和天安门后面坐着的那些人，还有前面广场的那些人，完全是民粹主义，倒退到100年以前，我觉得大清朝的中国人的文明，和认知程度和辨别事物的能力，就辨别事物、认证事务，起码的能力都比今天的天安门上看到7月1号那一天，强得多得多，他已经不是倒退100年了，100年以前去了，所以说兄弟姐妹们，你看到那个的时候，我们新中国联邦人，七哥在那直播的时候，在中央公园最牛的、媒体大佬的中心，腚底下坐着这些历史，面对着整个的美国美好的未来，面对着我们中国联邦的未来，才一岁的新中国联邦人，看着对面这些同胞们，长得是气质如此..脸上的那种静，还有旁边孩子的和谐，我都想着这些孩子在国内红黄蓝幼儿园上学，会什么待遇..我们那个西西是圆圆，老凯的女儿，你看他们，我们香港的“老佐”，还有他的妻子是北京的，他女儿儿子都在我们的爆料革命中，一直以来，你看他们的表情，你看他们身体语言，就你真的爱他们，你感觉这是亲人，就是一辈子、几辈子都愿意当的亲人。
 
-especially about the party’s earliest days rewriting history,
-特别是关于共产党篡改早期党史
+他们没有这种感受的，我是很明显的，因为我看太多丑陋了，我再想想在天安门上发生的那一幕，我们能打破旧世界，也能创造新世纪，啥感觉啊？但是他们不知道，一年的新中国联邦，就是昨天24小时干的事，是全地球上不超过一个巴掌的人能干的事，五个，不是四个..五个，完了，“断休魏”真把我毁了，我一摸手就查我有几个手指头，1个，2个，3个，4个，5个，到底几个呀？5个，每天早上查查..5个，下一步要查脚趾头去了，我昨天看到这些战友，第一次见面，看看手指头是不是5个，完了，我得了“断休魏”症了，我接着还得再录一段，没说完，没得得完…
 
-they’re hosting study sessions on party history
-他们正在举办关于党史的学习班
-
-theaters have been ordered to screen propaganda films at least twice a week.
-剧院已被命令每周至少放映两次宣传片
-
-and in Wuhan of all places, the party put on a giant light ship
-而在武汉各个地方，共产党派出了一艘巨大的光船
-
-buildings are being and bridges are being lit up with the hammer and sickle
-建筑物和桥梁被镰刀和斧子照亮
-
-CCP officials that even set up a website
-中共的官员甚至建立了一个网站
-
-where individuals can report on their neighbors,
-个人可以在那里举报他们的邻居
-
-and the quote historical nihilists who quote defame CCP heroes
-和“诽谤中共英雄的历史虚无主义者
-
-or deny the excellence of advanced socialist culture.
-或否定社会主义先进文化的优越性的人”
-
-While imitation like that
-虽然像那样的虚假
-
-and to assist General Secretary Xi Jinping in his commemoration of CCP history.
-为了协助习近平总书记纪念中共历史
-
-I’ve introduced a resolution that details the dozens of crimes against humanity
-我提出了一项决议，详细说明了该党在
-
-from across the last century of the party’s history.
-上个世纪历史上的数十起危害人类罪
-
-The point here is to illustrate
-这里的重点是
-
-that the abuses we’ve seeing from the party today,
-为了说明我们今天看到共产党的施虐
-
-including the genocide in Xinjiang.
-包括新疆种族灭绝
-
-Think about the fact that we now have two successive administrations
-想想我们现在有两个连续的政府
-
-one Republican one Democrat,
-一个共和党，一个民主党
-
-has certified that what is going on in Xinjiang province is a genocide.
-已经证明新疆正在发生的事情是种族灭绝
-
-Not much worse than a genocide.
-没有比种族灭绝更糟糕的
-
-This is not a new phenomenon,
-这不是一个新现象
-
-human rights abuses are hardwired into the Chinese Communist Party’s very DNA.
-迫害人权的行为深深植根于中国共产党的 DNA 中
-
-So I’m thrilled to say
-所以我很高兴地说
-
-we actually have strong bipartisan support for this resolution.
-我们实际上得到了两党对这项决议的强烈支持
-
-Thanks to the work of my colleagues representative McCaul
-感谢我的同事议员麦考尔的工作
-
-representative Gallego, Gottaheimer, Stefanik, Golden and Fitzpatrick,
-议员加列戈，戈塔海默，斯特凡尼克，各登， 和菲茨帕特里克
-
-we have a broad bipartisan group
-我们有一个广泛的两党团队
-
-that is united in standing against the CCPs ongoing crimes against humanity.
-团结一致反对中共正在进行的犯罪反人类罪
-
-This is a message that all Americans should get behind
-这是所有美国人都应该支持的信息
-
-and I urge Speaker Pelosi,
-我敦促佩洛西议长
-
-to bring this resolution before the house this week,
-本周将这项决议提交众议院
-
-and thereby allow us to send an unambiguous message
-从而允许我们发出明确的信息
-
-that we do indeed deny the excellence of advanced socialist culture,
-我们确实否认先进的社会主义文化的优越性，
-
-we can lay the CCP his true nature bear for all the world to see.
-我们可以把中共的真面目给全世界看
-
-Early in her career Speaker Pelosi was a very forceful
-佩洛西议长在她职业生涯的早期是一个强有力的
-
-denouncer of the CCP human rights abuses in the aftermath of Tiananmen square,
-天安门事件后中共践踏人权的谴责者
-
-she said. First, we saw the massacre.
-她说，首先，我们看到了大屠杀
-
-Then we saw the Masquerade.
-然后我们看到了化装舞会
-
-Well, I could not agree anymore.
-好吧，我不能再更同意了
-
-Let us help end the masquerade and speak the truth,
-让我们帮助结束化装舞会并说出真相
-
-I urge the speaker to bring this resolution to the House floor
-我敦促议长将此决议提交众议院
-
-for a strong bipartisan vote.
-获得强有力的两党投票
-
-Thank you.
-谢谢
-
-原视频链接 [https://twitter.com/repgallagher/status/1409950343581081615?s=21](https://twitter.com/repgallagher/status/1409950343581081615?s=21)
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
-0
++1
