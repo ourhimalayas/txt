@@ -1,35 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】世卫组织建议不要为儿童接种实验性疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1366532/)
+## 【有声读物】伉俪新盟
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1368475/)
 
-录音：Swr拥抱太阳
+配音：香草山录音组 Swr拥抱太阳
 
-最近世界卫生组织(The World Health Organization, WHO)修改了一项原先有关疫苗接种的建议，称”目前不应为儿童接种疫苗”。2021年6月21日, 世卫组织网站公布了这一与往日大力提倡全民疫苗接种政策相违的, 令人意外的公告，标题仍是”对公众新冠病毒预防的提议：接种疫苗”。
-
-发布：奇门遁甲
-
-原文链接：[【热点播报】世卫组织建议不要为儿童接种实验性疫苗](https://gnews.org/zh-hans/1344225/)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> [【热点播报】世卫组织建议不要为儿童接种实验性疫苗](https://gnews.org/zh-hans/1344225/)
 
 
 
+
+与人无深交
+欢或稀之
+痛也许稀有
+
+与爱人深往
+乐或增之
+苦也或多有？
+
+
+
+**文字版原文：[【笔录新生】伉俪新盟](https://gnews.org/zh-hans/1337909/)**
+
+手绘图：纽约香草山设计部 蜂鸟
+文稿作者：纽约香草山健身部 澄道来了
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
-+1
+0

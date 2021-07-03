@@ -1,45 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210630Tucker精选与闫博士对谈
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1368012/)
+## 【有声读物】锅言灶语（二季四）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1368507/)
 
-《路德社》出品
+配音：香草山录音组 Swr拥抱太阳
 
-以下视频是详细内容：
-
-主要内容：
-
-1.病毒不是来自自然、是被中共军方设计的
-
-2.中共政府在武汉测试病毒但是失控了，所艾萨克了谎
-
-3.有意图地让一部分感染人出国，目的是感染全世界
-
-4.中共国从SARS1得到了经验和材料
-
-5.病毒是由不同专长的实验室合作而成的
-
-6.只有知道骨架是什么才能对追加功能逐一击破
-
-7.有专家为了一己私利帮助中共国政府，如打杂客、Baric、安德森
-
-8.这个病毒是基于现实存在的病毒如乐高积木那样追加的功能
-
-9.闫博士将她验证的被追加的功能展示在三篇报告里
-
-10.修改的亲人体ACE2结构不亲动物所以找不到中间宿主
-
-11.中共政府让武汉人饿死在家里
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-翻译：路德社翻译组
 
-制作：路德社视频组
 
-审核校对：玫瑰新闻组
 
-上传排版：玫瑰新闻组
 
-+1
+连锁加盟
+小馆忙
+匠人匠心
+细品尝
+
+订单增了
+厨二狼烟起
+点餐多了
+外送腰包鼓
+
+
+
+**文字版原文：[【香草诗词汇】锅言灶语（二季四）](https://gnews.org/zh-hans/1329871/)**
+
+作者：纽约香草山健身部 澄道来了
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

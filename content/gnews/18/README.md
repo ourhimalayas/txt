@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 主要内容：20210701Miller先生介绍GETTR
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1367954/)
+## 【有声读物】心向往之
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1368499/)
 
-《路德社》出品
+配音：香草山录音组 Swr拥抱太阳
 
-以下视频是详细内容：
-
-主要内容：
-
-1.本周日，美国国庆节早上10点，GETTR正式上线！！！
-
-2.GETTR不会因为政治发言而删除账号
-
-3.字数限制777，视频时长3分钟以内，可以把推文备份到GETTR成为盖文
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
 
 
 
-+2
+
+源于巅峰
+潮涌向海洋是河川
+心向往之
+
+狂飞万里
+群奔向候南是大雁
+心向往之
+
+
+
+**文字版原文：[【笔录新生】心向往之](https://gnews.org/zh-hans/1334323/)**
+
+手绘图：纽约香草山设计部 蜂鸟
+文稿作者：纽约香草山健身部 澄道来了
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
