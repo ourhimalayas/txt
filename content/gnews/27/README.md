@@ -1,31 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】先正达集团申请年度最大IPO 100亿美元在上海上市
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1368513/)
+## 中共国宣傳片《1921》将在美国和英国上映
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1369078/)
 
-产经新闻7月3日报道：中国化工旗下的瑞士农化公司先正达集团周五提交了首次公开募股申请，以在上海科创板集资100亿美元。根据招股说明书，该公司计划通过首次公开募股出售最多 27.9 亿股股票，即 20% 的股份。
+2021年7月3日
 
-此次上市将是 2021 年全球规模最大的 IPO，也是拥有两年历史的纳斯达克科技型交易所 STAR Market 有史以来规模最大的IPO。一位消息人士称，此次 IPO 将使先正达的估值超过 500 亿美元。“先正达集团将扩大和翻新其生产设施并实施战略收购，以满足不断增长的市场需求，”该公司在招股说明书中表示。
+![](https://s.yimg.com/ny/api/res/1.2/cKwLbvzR4qWU2396MY3OQg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTY0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/uaeD55ktQN3chLTFLjcJYg--~B/aD00MjA7dz02MzA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/en/variety.com/a46fa5c0701aa9c4054e1a2db84d9373)
 
-国有企业中国化工在 2017 年以 430 亿美元的价格收购了先正达，这是中国最大的海外企业收购。去年，中国化工将这家瑞士公司与以色列的安道麦以及中国另一家国有化工企业中化集团的化肥和种子业务合并。3 月，中国监管机构批准了中国化工与中化的合并，创造了迄今为止全球最大的此类业务，总销售额超过 1 万亿元人民币（1,540 亿美元）。
+大手笔的中共国宣传片《1921》将在包括美国和英国在内的一系列英语国家上映。这将作为对中国共产党成立100周年庆祝活动的一部分。该片主要由腾讯影业支持，由黄建新和郑大圣联合执导。
 
-中国企业或中国企业正争先恐后地在全球市场上利用充足的流动性，并利用投资者对增长资产的渴望。根据 Dealogic 的数据，今年迄今为止，中国企业在大陆、香港和美国的交易所筹集了超过 500 亿美元的资金，约占 2020 年全年创纪录的一半。
+**【[新闻来源](https://uk.sports.yahoo.com/news/chinese-propaganda-film-1921-set-211551770.html)】**
 
-超过80家公司在科创板块融资超过100亿美元，另有27家公司在香港融资超过150亿美元。知情人士称，中国旅游集团今年 6 月份申请在香港 IPO，筹资规模在 70 亿至 100 亿美元之间。
+* * *
 
-先正达集团于 6 月 21 日表示，它已开始与银行进行 IPO 的“辅导”程序。辅导流程是中国独有的，参与流程的投资银行就 IPO 相关问题对公司高管进行辅导。中国IPO进程的第一步表明，先正达集团可能会在被中国化工收购时透露的2022年原定目标之前上市。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-根据网站资料，先正达在 100 多个国家拥有约 49,000 名员工。公司现拥有四个业务部门：先正达种子、先正达作物保护、安道麦和先正达集团中国。它最新财报显示，截至 3 月 31 日的三个月销售额为 71 亿美元，较去年同期增长 20%。
 
-参考链接：
-
-[https://asia.nikkei.com/Business/Markets/IPO/Syngenta-files-for-year-s-biggest-IPO-with-10bn-Shanghai-listing2](https://asia.nikkei.com/Business/Markets/IPO/Syngenta-files-for-year-s-biggest-IPO-with-10bn-Shanghai-listing2)
-
-翻译整理：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-+1
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0

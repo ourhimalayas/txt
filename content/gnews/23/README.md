@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】沙特阿拉伯禁止阿联酋、越南、埃塞俄比亚和阿富汗入境
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1368541/)
+## 【NewsExpress】中共以治理电商平台为由铲除敌对势力
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1369380/)
 
-沙特阿拉伯国家通讯社 (WAS) 周六报道，出于对冠状病毒的担忧，沙特阿拉伯将限制往返埃塞俄比亚、阿联酋、越南和阿富汗的旅行和入境。
+#### 文章撰写:【默凡】
 
-在沙特阿拉伯利雅得爆发冠状病毒病 (COVID-19) 后，在2020 年 5 月 31 日沙特阿拉伯曾经重新开放国内航班。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03103854/fsdaf156sg56er4453g5614565yh556j.jpg)
 
-这次的禁令于 7 月 4 日生效，适用于过去 14 天内去过这四个国家的任何人。周日之前返回的沙特公民将获得豁免。
+新华网最新报道称：7月2日，市场监管总局发布《价格违法行为行政处罚规定（修订征求意见稿）》（下称《征求意见稿》），调整六类价格违法行为罚款额度，新增处罚上限规定，新增对电商平台、行业协会商会、中介机构、国家行政机关收费的违法行为罚款规定，明确突发事件的哄抬价格等行为将从重处罚。
 
-参考链接：
+拆台评论：
 
-[https://www.reuters.com/world/middle-east/saudi-arabia-bans-entry-uae-vietnam-ethiopia-afghanistan-agency-2021-07-02/?taid=60dfd899b9a1150001df413b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/saudi-arabia-bans-entry-uae-vietnam-ethiopia-afghanistan-agency-2021-07-02/?taid=60dfd899b9a1150001df413b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+中共国近日频繁以反垄断，打击电商平台违法行为向阿里巴巴等电商企业开出巨额罚单，并对这些垄断企业进行股权重构，表面上看似在治理电商行业乱象问题，为中共国老百姓谋福利，其实这是中共内部各大派系角逐和较量的结果。
 
-翻译整理：蓝精灵
+以阿里巴巴为例，众所周知阿里巴巴是江家一首捧起的中共国电商巨头，其为江家带来巨额的财富。习神上台后不断收紧权力，将中共国各领域都控制于鼓掌之中，习神自然就要拿下电商行业，进而控制这个市值万亿的消费市场，和背后大量的用户数据。
 
-校对发布：Penny
+所以，习神就以反垄断和网络安全为由分别对阿里巴巴、美团、滴滴等企业进行调查和处罚，甚至还软禁马云，动用国家权力强行对这些公司进行股权重构，习神好让自己的白手套介入其中，进而占领电商市场。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+在中共的集权统治下，任何企业如果不以中共某个家族为依托，绝不可能发展壮大，这些企业和企业家最终都不得不沦为各大家族的白手套，最终都得面临被宰杀的下场，或成为中共内斗的牺牲品。
+
+参考文章：[国家重拳出手！电商平台杀熟、低价倾销、独占市场将被罚](http://www.xinhuanet.com/fortune/2021-07/03/c_1127619543.htm)
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+排版发布：日本东京方舟农场 文柯Miles
 
 0

@@ -1,49 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】心向往之
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1368499/)
+## 【中共百年冥诞】大跃进导致大饥荒，造成数千万人死亡
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1369451/)
 
-配音：香草山录音组 Swr拥抱太阳
+大跃进运动， 全民大炼钢铁，导致大量农田荒弃。 同时农业虚报，使得农民不得不上缴口粮甚至第二年的种子来填补虚报数字！最终导饥荒在全国范围出现！不低于3000万人死亡。在这饿殍遍野的3年，中共党魁毛泽东仍然山珍海味，锦衣玉食。大饥荒这三年风调雨顺，但中共政府为了淡化这段杀人史，称其为“三年自然灾害”。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-
-
-源于巅峰
-潮涌向海洋是河川
-心向往之
-
-狂飞万里
-群奔向候南是大雁
-心向往之
-
-
-
-**文字版原文：[【笔录新生】心向往之](https://gnews.org/zh-hans/1334323/)**
-
-手绘图：纽约香草山设计部 蜂鸟
-文稿作者：纽约香草山健身部 澄道来了
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

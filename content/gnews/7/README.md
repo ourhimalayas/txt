@@ -1,56 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七月一日之后会有一系列政治、经济、国际关系重大变化
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1368356/)
+## 【NewsExpress】中国共产党将红色毒基因深深植入当代青少年
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1363356/)
 
-**摘要：在2021年6月29日的GTV视频中，郭文贵先生说7月1日中共“百年冥诞”之后，“你会发现一系列的政治、经济、重大的决定、国际关系也会突变。”郭先生厉声警告中共，“八九六四”、“文化大革命”、“计划生育”、“抗美援朝”战争等中共制造的惨绝人寰的运动中，被它残害的亿万中国人的灵魂在等待着它的灭亡，中共的丧钟已经敲响！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02213556/Miles_2021-06-29-gettr-p2.srt.txt)
-#### **七月一日之后会有一系列政治、经济、国际关系重大变化**
+这是今天在中国共产党庆祝建党100周年的庆典上，习主席讲的其中的一段话：
 
-#### **Significant Decisions and Changes Toward the CCP Will Occur After July 1st**
+“党转向了新的挑战；利用科技重新吸引年轻一代，现在有 1255 万会员年龄在 30 岁或以下，”一位北京航空航天大学19岁的大学生说了一段话：“在中国共产党的领导下，我们来到了今天的社会，发展迅速……我们应该感谢党和祖国”。
 
-7月1号这个“百年冥诞”共产党会有很多疯狂的举动；天安门上、天安门左右会有很多疯狂的决定。
+这是当今中国共产党党圈子里面普遍的心态。因为这个红色组织自从建立那天开始，就修改历史，建立共产逻辑，将全中国的所有的资源和财富占为已有。很多人会有同样的问题，为何现在信息开放，这些年轻人不会自己去思考，自己去检阅历史吗？而且30岁以下的年轻人占据了超过10%的新生党员的数量， 这是一个可怕的数字。
 
-On July 1st, the CCP’s 100th anniversary – a death knell for this dying criminal organization, there will be a lot of crazy things happening. There will be a lot of craziness in and around the Tiananmen Square.
+当我们问这个问题得时候， 可以联想以下文化大革命的时候，所有的中学生集体罢课，到处乱窜，打老师打校长，现在也觉得不可思议，但是今天看了在典礼上，那些毫无廉耻毫无恐惧的年轻的面容，也许这个想法有些天真了，二次文革也许真的会在中国出现，不会以之前历史资料中所描述的暴力血腥的方式，但是一定会换一种方式，类似奥威尔1984的方式出现。因为这些年轻人知道，他们现在走的路子是正确的， 至少他们可以看到的是光明的如老党员一样的前途，更多的资源，更多的财富，更高的社会地位，更好的房子， 甚至是他们自认为的在社会上更多的尊重。
 
-7月1号的前后，“前” —— 还有就几十个小时了，“后” —— 你会发现一系列的政治、经济、重大的决定、国际关系也会突变。
+高科技是用来给青年人洗脑的，通过网络引导舆论，通过网络把不同想法的年轻人孤立起来，并通过网络塑造了一批年轻的企业家美丽的形象，以此更加诱惑激进的，更加愿意争取的年轻人。在他们的社交圈中， 可以看到的是生于红色家庭的后代的富裕和自由，看到加入这个组织后可以获得的看得到的权力和财富，也可以对比看到游离在外的年轻人需要多么辛苦却总是失败的例子。这一些都很容易诱惑年轻人。包括在海外留学的很多中国年轻的学生。
 
-There are only hours before July 1st. A series of politically, economically, significant decisions and international relations changes will occur rapidly after July 1st.
+参考链接：无
 
-“百年冥诞”这一天大家你们可以真正地，好好地庆祝一下：共产党你完蛋啦！共产党你是真的完球蛋了！
+翻译整理：蓝精灵
 
-On the CCP’s 100th anniversary, their death knell day, we can celebrate, because the CCP will be finished. The CCP, you are finished, you are truly finished!
+校对发布：Penny
 
-你恐惧到了这个样子！短短四年，爆料革命就让你们恐惧成了这个样子。[成了]过街的老鼠；在国际上你已经成了笑话，全球喊打；在国内你的经济处于崩溃，民心已经完全向着新中国联邦！每个人的内心世界都在等待着那一刻的到来，那一刻就是你灭亡的时候！信不信？
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-You are so fearful. In just four short years, the Whistleblower Movement has made you fear like this. The CCP becomes a public enemy and an international joke that everyone in the world detests. In China, your economy is on the verge of collapse, and the people’s hearts have turned completely to the New Federal State of China. Believe it or not, everybody’s heart is waiting for the arrival of that moment, that moment when you perish.
-
-几亿中华同胞不会白死。“八九六四”的所有被你碾压的那些冤魂野鬼都在天安门等着你呢；几亿人被你们在肚子里边给捏死的那些孩子们都在等着你们呢；文化大革命被饿死的，相互异子相食的那些冤死的孩子们都等着你们呢；被你们送到北朝鲜战场上的所谓相信了共产党的，冻死在北朝鲜战场上的人都等着你们呢！
-
-Hundreds of millions of Chinese compatriots will not have died in vain. All those souls and ghosts that were cruelly crushed by you on June 4th, 1989 are waiting for you in the Tiananmen Square. The hundreds of millions of aborted children who were killed in the wombs are all waiting for you. Those children who were starved to death and then eaten by starving adults in the famine during the Cultural Revolution are waiting for you. The CCP believers who were sent to the North Korean battlefield by you, and froze to death, are waiting for you.
-
-还造假呢？香港的“避风塘事件”会一而再、再而三的发生，会全国爆发。你现在竟然在让全国各大码头不让卸货、装货？你怕到这个程度，共产党？想想吧，你想过你有今天吗？你想过你有今天吗？能躲得过今天你能躲得过明天吗？能躲过明年吗？你那码头不让装卸货你就能躲到永远吗？所有中国被你掠夺和杀害的生命已经全面开始行动。
-
-Are you still faking it? The Hong Kong Typhoon Shelter incident will happen again and again, across the country. Now you do not even allow unloading and loading at major wharves across the country.  CCP, how come you are so fearful? Think about it. Did you ever think that you would end up like today? You might escape today, but can you escape tomorrow? Can you escape next year? Can you hide forever by not allowing the wharves to load and unload? All the lives looted and killed by you in China have already begun to take full action.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-[视频来源](https://gtv.org/video/id=60db38a32f9a56108e0e4443)：(6:53-9:32)
-翻译：感谢[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)提供[中文文本](https://gnews.org/zh-hans/1362376/)和[英文翻译](https://gnews.org/1362528)
-
-* * *
-
-***字幕**：JennyL（纽约香草山农场）
-**视频解码剪辑**：恒久忍耐
-**自媒体推广**：V%、TINALS
-**校对 & 编辑**：Isaiah4031*
-
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gettr: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
-
-+4
++1

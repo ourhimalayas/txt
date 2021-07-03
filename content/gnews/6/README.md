@@ -1,49 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生的案子如果输了&nbsp; 爆料革命的战友都会被美国打上恐怖分子的标签！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1368474/)
+## 新中国联邦终结中国百年杀戮4:连线华盛顿DC抗议秦刚现场的阿丙谈一年来形势巨变
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1369212/)
 
-**摘要：2021年6月23日的GTV直播中，郭文贵先生指出他刚刚在纽约南区法庭胜了 French Wallop 和 Michael Waller 案子的意义远远大于案子本身，因为如果郭先生输了，所有新中国联邦和爆料革命的战友们都会被美国贴上有暴力倾向，比恐怖分子还可怕的标签。吴征、Elliott Briody、Steve Wynn 等人打官司的目的是要灭掉郭先生、灭掉爆料革命、灭掉新中国联邦！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03000706/Miles_2021-06-23-live-p2-revised.srt.txt)
-#### **郭先生的案子如果输了****  ****爆料革命的战友都会被美国打上恐怖分子的标签**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03090603/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-2.png)
+据[新中国联邦：终结中国百年杀戮](https://gtv.org/video/id=60ddc90e871bef6d4ab2431f)时间点02:47:45—2:56:25
 
-#### **If Mr. Guo Lost the Case, the Fellow Fighters of the NFSC Would Be All Labeled as Terrorists**
+**长岛哥：**我们先和阿丙聊一下，因为我们阿丙在线，在DC现场是电脑被黑状态，那我们想跟阿丙聊一下，为什么你们想今天去大使馆抗议呢？你们计划了多久？
 
-我告诉大家这个案子意义之重大是你们无法想象的，它是案例法，89页把对方对我们爆料革命和新中国联邦的造谣完全给全部给反击回去，对方全是假的、没有根据的。
+**郭文贵先生：**是不是因为秦刚长得帅呀？哈哈哈
 
-Let me tell you that the significance of this case is beyond your imagination. This is case law. We used 89 pages of evidence to successfully refute their disinformation about our Whistleblower Movement and the New Federal State of China (NFSC). Their evidence was completely fabricated and unfounded.
+**阿丙女士：**我们其实是真的没有计划多久，就是头一天晚上，一百年了嘛，应该给他们送终了，所以我们就来了。我们真的一个晚上号召了非常多的战友，大家从不同的地方赶过来，连夜赶过来的。
 
-你们想过吗？兄弟姐妹们，如果这个案子判咱们输了、对方赢了，你知道跟你们每个人什么关系吗？爆料革命、新中国联邦的每个人都可能涉嫌暴力倾向，而且我们都是跟共产党的人，我们都变成共产党啦。如果对方的事情被认证，那我们都成了共产党了，七哥是共产党的走狗，七哥是为中南坑工作的，我们有暴力倾向，我们就是都是为共产党工作，你们都是了。
+**长岛哥：**好的。那你们今天在现场有没有碰到什么特殊情况？因为刚刚你说短时间内聚集起来的，我不知道现场有没有给你们制造一些麻烦。
 
-Have you ever thought about it, brothers-in-arms? If this case was ruled against us and they won, do you know what it would imply to every one of you? Everyone associated with the Whistleblower Movement and the NFSC may be accused of promoting violence and being followers of the CCP. Then we would all be labeled as the CCP. If their allegation was confirmed, then we all would be called the CCP, and your Brother Miles would be called the running dog of the CCP, working for the Zhongnan Pit (Zhongnanhai). And we would all be labeled as people promoting violence and working for the CCP. All of you.
+**阿丙女士：**其实警察呀都是在保护我们的，都是在旁边，就是在治安方面是挺好的。但是有一些其他的人也是来抗议的，不知道是真正的抗议还是怎么样，只是打着不同的牌子吧，反正也是灭共的。但也还好了，我们也和平相处，他们抗议他们的，我们抗议我们的，就这样。
 
-新中国联邦、爆料革命每个人都将带上这个标签。就像吴征在维基百科里面写教育程度，上面写“有争议”。那未来一说新中国联邦、爆料革命“有争议”，我们如何面对我们的这些世界各国的政府？我们如何让世界承认我们新中国联邦的合法性？如何让世界承认爆料革命、新中国联邦能代表中国人的利益和未来呢？
+**长岛哥：**好的，那你们今天是什么样的计划？比如说继续到几点钟结束？还有其他的一些活动吗？
 
-Everyone in the NFSC and the Whistleblower Movement would be labelled as such. It would be like Bruno Wu’s education level on Wikipedia being labelled as controversial. Then in the future, if the NFSC and the Whistleblower Movement were called controversial whenever mentioned, how would we present ourselves before the governments of the countries around the world? How would we get the world to recognize the legitimacy of our NFSC? How would we get the world to recognize that the Whistleblower Movement and the NFSC can represent the interests and future of the Chinese people?
+**阿丙女士：**我们就是坚持到下班吧。
 
-吴征这个王八蛋、Elliott Briody 这帮腐败分子、Steve Wynn，他们不是想打赢这场官司，他是要灭掉郭文贵、灭掉爆料革命、灭掉新中国联邦！他们要利用“蓝金黄”多年控制的美国律师、法律、司法部的这些资源，把我们一网打尽，把我们变成了比恐怖分子还可怕的组织。
+**长岛哥：**坚持到秦刚下班呵呵呵。
 
-Bruno Wu, the ba\*tard, Elliott Briody, one of the corrupted, and Steve Wynn – they are not just trying to win this lawsuit. Rather they are trying to exterminate Miles Guo, the Whistleblower Movement and the NFSC! They are attempting to use resources such as the lawyers, the judicial system and the Justice Department who have been controlled by them through BGY for years, to wipe us out and turn us into an organization that is worse than terrorists.
+**阿丙女士：**但是我们回去会继续灭共，跟共产党死磕到底。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-[视频来源](https://gtv.org/video/id=60d336006e4b8a00c79fe3c6): (1:16:37-1:18:34)
-鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1346987)
+**长岛哥：**好的，那文贵先生再跟你们交流一下啊，慰问一下。
 
-* * *
+**郭文贵先生：**小飞象先说两句，然后我再开始，我这容易搂不住。
 
-***翻译**：一花一世界
-**字幕**：JennyL（纽约香草山农场）*
-***校对**：BruhM
-**视频解码剪辑**：恒久忍耐**自媒体推广**：V%、TINALS
-**校对 & 编辑**：Isaiah4031*
+**阿丙女士：**我们还有刚才您说的那个以“黄”灭共的小蚂蚁，那是我们的招牌主播。
 
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gettr: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
+**小飞象：**好的，阿丙姐好，直播的战友们好，DC现场的战友们好，我是小飞象，我特别想问阿丙姐的问题就是从最早的时候我们在去年看到DC第一次有盛大的爆料革命、新中国联邦的游行，然后一直到今天共产党百年冥诞，我们战友们已经在非常短的时间内聚集队伍，然后能够造成非常大的这种对共产党刺穿心脏的这样的一个影响力，那您这一年来，包括DC战友这一年来在最核心的美国的位置，您的感受是什么？谢谢阿丙姐。
 
-+3
+**阿丙女士：**真的是实在是太快了一年，这一年我们做了太多的事情了，仿佛还记得去年的也是7月1号那天晚上，我当时叫大家聚集的时候，当时那个时候我真的是内心还有些恐惧呢，因为那是我人生中第一次去到某一个地方去抗议一个组织，真的是第一次。
+
+这一年，真的是觉得这已经是我的工作了我的责任了，真的，也没有人动员我啊，真的就是非常主动的大家集结起来，为了消灭CCP，为了给共产党送终，我们真的很快很快的就集结起来了。这一年真的是做了太多太多了，感觉中共也是每日俱下，我觉得共产党真的是完了。
+
+**郭文贵先生：**阿丙啊，现在是你七哥现在是。亲爱的阿丙你好，我是文贵，我可会学小飞象口音了，亲爱的阿丙你好，我是文贵，在这里问你好。300年的飞飞，我是文贵。现在是以嗲灭共，小飞象就是嗲死共产党啊，长岛哥是帅死共产党啊。
+
+今天在这里看到我们的小蚂蚁啊，今天站在了DC和那么多战友们，首先是特别的感谢，今天是在这样的一个情况下，你们是最快的速度行动起来，站到了前线啊。小蚂蚁，这是美女主播，七哥真是太喜欢了啊。
+
+而且呢今天站在前线的时候，我相信这是秦刚到美国来第一次遇到、第一次正面相遇新中国联邦。据我所知，今天早上秦刚和美国国务院是有一个会议，今天早上应该他也不在，他应该在大概半小时或者现在往回走，他应该是大使馆的侧门进去，因为它有一个安全通道，他知道你们在，他应该是从安全通道进去，或者刚回去秦刚。
+
+那么现在你看到，秦刚是个好色之徒，相当自恋，一看到这新中国联邦人“咣叽”一下来了，你看看都穿着蓝色的衣服。秦刚是戴蓝领带最多的一个外交官，他曾经说过他最喜欢蓝色，但是他没想到蓝色现在他要回避，就是新中国联邦蓝现在要灭掉他，然后携带着黄色的信仰之星，所以说我们现在前线的美女们对秦刚是个打击。
+
+秦刚所看到的，生活中的他那些外交部的人都是官僚的一些中国的那些很糟糕的女性，已经完全被洗脑了，他看到这种爱好自由的现代化的女性。
+
+秦刚是国际性很强的，他心中很明白的，秦刚是比崔天凯还国际化，他比崔天凯更懂得新中国联邦，因为秦刚的所有生活当中的人几乎都是我的朋友，秦刚跟我本人认识也很多年了，秦刚在过去这人还是很理智的，私下里跟我说我们就是吃这碗饭的，说白了就是一条狗嘛让怎么咬怎么咬，这是多年前他就这么说。
+
+但是这狗很会咬，现在咬到美利坚来了，而且现在他怎么没想到，遇到了灭这个狗的声音的就是郭文贵、爆料革命、新中国联邦。
+
+而阿丙刚才那句话说得非常好，一年来变化太大了。崔天凯脱了西装换上囚装了，共产党四年前的“买买买”征服世界，中美两国新型大国关系，和昨天的讲话以后，你看特别有意思，一百年前，中国共产党成立时只有50名党员，今天已经拥有了9500多万名党员领着14多亿的人口。
+
+他完全说错了，1921年的共产党和2021年的共产党不是50个和9500万的差距，严格讲就是四五个家族利益和所有的这14亿中国人、和全世界在挑战，在战斗他们。
+
+那么今天你站在华盛顿这个地方的时候，设计这个楼的贝聿铭，老人家已经走了，这是红色家族。在这里，所有当过大使的包括杨洁篪培养出一系列的这种中华民族的败类，同时在这个地方也诞生了阿丙、小蚂蚁还有站在DC前线的这些新中国联邦人，我们处在时代上的百年的伟大的结合点，这个是任何意义不能够形容的。
+
+这时候请300年的飞飞，300年的飞飞，不要忘了她是先生和她全是华盛顿的啊。只有一分钟了我的天呐时间，说着说着就过了，所以说我让你们先说。咱们一会回来继续说是吗？
+
+**长岛哥：**对，后面会再回来
+
+**郭文贵先生：**再回来？我有多长时间，时间？
+
+**长岛哥：**一分钟。然后后边我们还会连线老班长和草根小哥
+
+**郭文贵先生：**是吗？我们这样啊，一会儿娜娜酱、Sarah、飞飞、阿丙，一会我们会连线老班长，连线完老班长我再跟你们连线，希望你们前线的语音、信号都好吧，我们要跟小蚂蚁连连线，让小蚂蚁也“黄”我们一下，别老“黄”秦刚是吧，也“黄黄”我们，咱一会儿见啊，肥水不流外人田啊。
+
+**长岛哥：**好的，谢谢，谢谢阿丙啊，谢谢！
+
+接上文——
+
+[新中国联邦终结中国百年杀戮1: Jason Miller先生访谈](https://gnews.org/1368867/)
+
+[新中国联邦终结中国百年杀戮2:连线郝叶伉俪谈朝鲜及体制之恶](https://gnews.org/zh-hans/1368980/)
+
+[新中国联邦终结中国百年杀戮3:连线安红及生命美歌与Eric谈香港台湾同胞未来的行动](https://gnews.org/1369135/)
+
+编辑整理——
+
+纽约香草山农场：月野兔
+
+发布——
+
+喜马拉雅日本银河系农场：山川异域
+
+0

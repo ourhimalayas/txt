@@ -1,48 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】传递火炬
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1368488/)
+## 【中共百年冥诞】中共政治运动史：从1955到1957
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1369422/)
 
-配音：香草山录音组 Swr拥抱太阳
+从1955年到1957年, 中共发起了肃反和反右运动，期间数百万知识分子和干部被迫害以及被捕，其中大量人最后因各种原因死亡。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-
-
-黑夜给了我
-黑色眼睛
-是在说我们
-本性是
-追阳
-逐光
-
-
-
-**文字版原文：[【笔录新生】传递火炬](https://gnews.org/zh-hans/1334155/)**
-
-手绘图：纽约香草山设计部 蜂鸟
-文稿作者：纽约香草山健身部 澄道来了
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
