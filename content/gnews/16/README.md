@@ -2,10 +2,10 @@
 ---
 
 ## 2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371933/)
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371954/)
 
 2021年7月4日
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04113533/gettr_07-1.jpg)
 GETTR（盖特）是一个全新的社交媒体平台，建立在言论自由、独立思考、拒绝政治审查和“取消文化”的原则之上。盖特凭借一流的技术，目标是创建一个思想的市场，在全世界分享自由和民主
 
 **【新闻来源】**

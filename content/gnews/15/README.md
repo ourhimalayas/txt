@@ -1,22 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371954/)
+## 【鹰眼墙国】中共百年贺电多来自第三世界国家
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1368718/)
 
-2021年7月4日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04113533/gettr_07-1.jpg)
-GETTR（盖特）是一个全新的社交媒体平台，建立在言论自由、独立思考、拒绝政治审查和“取消文化”的原则之上。盖特凭借一流的技术，目标是创建一个思想的市场，在全世界分享自由和民主
+作者：香草山健身部 文真
 
-**【新闻来源】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01060545/WhatsApp_Image_2020-10-24_at_04.33.05-3.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+
+中共百年新闻发布会公布截至6月27日，中共对外联络部共收到1300多封贺电函，致贺人包括了150多位国家元首、政府首脑，200多位政党的主要领导人。官媒目前开出的贺电名单没有一个欧美国家，除去日本，全部是第三世界国家。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03023621/%E5%9B%BE%E7%89%8714.png)
+
+新华社报道强调了日本前自民党总裁河野洋平也发了贺电，日本最大在野党立宪民主党也发了贺电。而《产经新闻》报道说，日方党派是在收到中方的请托后发出的贺电。因北京与日本是无法避开的近距离，所以 “礼貌性” 给中共发出贺词。
+
+在欧美发达国家一致缺席的情况下，中共最期待俄罗斯的表态。而普京仅在与习近平视频会议后以 “个人的名义” 表示祝贺——既不以俄罗斯国家名义，也不代表任何政党。
+
+民主体制下国家与党派是不同的政治概念，只有在一党专制、党国一体的中共国才会举全国之力为党庆生。这些国家的政府若以国家之名祝贺中共一党之庆是荒唐之举，因此在对等原则下，这些国家以政党或个人名义向中共发电祝贺。
+
+中共纵然百年，而且统治着全球第二大的经济体，仍旧非常在意外国政要的贺电和外媒评论。邀请他国发贺电的做法显然有违中共一直宣传的“四个自信”。官媒高调宣扬和在乎贺电数量就是向中国普通民众宣传和树立中共执政党的统治地位。特别是习近平站在天安门城楼发表讲话的盛典时刻，一定要有万邦来朝的帝王优越感，没有足够多的外国贺电很丢脸。
+
+中共如此在乎贺电数量更加印证了中共的外交绝境。欧美国家非但未向中共表示祝贺，而且以实际行动谴责中共种族灭绝和侵犯人权的罪行。美国威斯康辛州共和党人迈克·加拉格尔（Mike Gallagher）领导的决议列出了中国共产党自1930年以来犯下的暴行，受到两党对位议员的支持。“众议院谴责中国共产党100年来严重侵犯人权的行为，包括镇压、酷刑、大规模监禁和种族灭绝”，加拉格尔在决议中写道。他向媒体表示：“百年不是一个庆祝的理由，而应是一个反思党的恶劣行为，并向在党的残酷政权下遭受苦难的数千万受害者致敬的时刻。” 美国与志同道合的盟友和伙伴支持中国人民的人权，并表示“期待中国共产党不复存在的那一天”。
+
+引用：
+
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210630-%E4%B8%AD%E5%85%B1%E5%85%9A%E5%BA%86%E8%A6%81%E9%9D%A2%E5%AD%90-%E5%A4%96%E5%9B%BD%E6%94%BF%E8%A6%81%E8%B4%BA%E7%94%B5%E6%9C%89%E5%A4%9A%E5%B0%91](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210630-%E4%B8%AD%E5%85%B1%E5%85%9A%E5%BA%86%E8%A6%81%E9%9D%A2%E5%AD%90-%E5%A4%96%E5%9B%BD%E6%94%BF%E8%A6%81%E8%B4%BA%E7%94%B5%E6%9C%89%E5%A4%9A%E5%B0%91)
+
+[https://www.bbc.com/zhongwen/simp/chinese-news-57651045](https://www.bbc.com/zhongwen/simp/chinese-news-57651045)
+
+
+
+> [【热点播报】中国共产党庆祝杀害数千万人的一百周年](https://gnews.org/zh-hans/1366369/)
+
+
+
+[https://www.sohu.com/a/474569218\_632979](https://www.sohu.com/a/474569218_632979)
+
+校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

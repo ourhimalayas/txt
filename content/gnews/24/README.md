@@ -1,57 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共国三自教会公然将爱国视为神的启示
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1371664/)
+## 2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371954/)
 
-作者：香草山福音部   捆绑CCP一千年
+2021年7月4日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04113533/gettr_07-1.jpg)
+GETTR（盖特）是一个全新的社交媒体平台，建立在言论自由、独立思考、拒绝政治审查和“取消文化”的原则之上。盖特凭借一流的技术，目标是创建一个思想的市场，在全世界分享自由和民主
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+**【新闻来源】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-中共三自教会《天风》学术期刊发表了一篇匿名文章题为《[浅论爱国爱教教牧人员的素质](https://mp.weixin.qq.com/s?src=11&amp;timestamp=1625353147&amp;ver=3169&amp;signature=Nyytwfk6YAbGCRSJqfhIRCAB8jvNio0U0lgicUaQi3jvWRrhFQVUFDpTECfquFibVryNrK2QDxcmbUq4dqZ8Paqwh4yGZLZYCvtqx15mIQf1wZ9X8LSBySHFNvFyjXbp&amp;new=1)》。该文作者宣称：“爱国爱教是中国基督教的优良传统，是每个基督徒的神圣使命。”这种言论自中共国三自教会设立以来就这样对信徒灌输这种错误思想，这令人想起圣经的教导说：“[这个人说僭妄的话了](http://sj.jidujiao.com/lockey.php)。”（马太福音 9:3）这是文士法利赛人陷害基督的话，如今用来谴责这种[假师傅](http://sj.jidujiao.com/lockey.php)名副其实。中共三自教会究竟是如何侵蚀神的选民呢？通过这位不敢署名的假师傅的一些观点可见一斑，现谨引述如几点下。
-
-**在政治上**
-
-这位匿名匿名作者认为：“爱国是应尽的本分，是《圣经》的启示和教导，也是基督教教义和传统的一贯要求。”实际上《圣经》中所说“[当尽的本分](http://sj.jidujiao.com/lockey.php)”是效法保罗的样式——被带上死囚的脚链也要放胆讲论神国的奥秘。而三自教会的牧师们绝大多数并未遭遇精神与肉体的逼迫就公然放弃神的教导。或永远沉默。
-
-**在信仰上**
-
-这位假师傅继续教导他的门徒说：要鼓励基督徒进入三自的神学院校学习“纯正的信仰”，建立“纯正的神学思想”。言下之意，不接受中共统治的撒旦教神学思想培训，只读《圣经》，你的神学思想就不纯正。唯独加入中共统战部主办的“爱国人士的学习班、进修班、读书班和培训班，”才是学习的好途径。在个人灵修上除了系统神学和圣经神学外，还要“学习法律政策，[要学法、懂法、守法、用法](http://www.jdjcm.com/jiaohui/778.html)；还要学习音乐、经济学、心理学，等等。”（*[阅读更多](http://www.yjts2013.org/news.aspx?pkid=405)）**。*
-
-**在品德上：**
-
-该文作者继续歪曲事实，并引经据典地说，主耶稣在登山宝训中讲到要“[爱仇敌](http://sj.jidujiao.com/lockey.php)”。第二要维护[真理](https://www.gotquestions.org/T-Chinese/T-Chinese-what-is-truth.html)。维护真理的纯洁，抵制异端邪说，固守真道的奥秘。事实上，并非如此，《圣经》中从未说过此类言论，耶稣对于真理的宣告是这样的：“[我就是道路、真理、生命，若不藉着我，没有人能到父那里去](http://sj.jidujiao.com/lockey.php)。”（约翰福音 14:6）既然要强调维护真理，那就一定是高举着基督。这位假师傅显然不是，他们是在高举共产党。而共产党是敌基督者，他们所谓引用《圣经》“爱仇敌”一语也是在断章取义、曲解事实。要知道旧约中的耶和华神就是新约中的耶稣基督，新旧约中的神不是分开表述，是三位一体的神，这些基本教义，他们都懂，就是故意不提旧约中的耶和华神。我们看以赛亚耶利米书二三.2节所说：“[耶和华——以色列的神斥责那些牧养他百姓的牧人，如此说：你们赶散我的羊群，并没有看顾他们；我必讨你们这行恶的罪。这是耶和华说的。](http://sj.jidujiao.com/lockey.php)”这话正是基督斥责那些假牧师的经文，他们对此恐惧震惊。
-
-**在政治组织上**
-
-《圣经》中从未提到过“政令串联”之类词汇。当然没有，连引申义，哪怕找到一点点圣经依据都没有，三自牧师就悍然宣称教会要政令串联。认为：
-
-*政令串联**：**容易明白教会及其组织政令的系统性；*
-
-*政令统一**：**容易明白政令的一致性；使沟通渠道顺畅*有效；
-
-事实上，《圣经》怎样看待这个问题呢？[耶稣说给门徒的话](http://sj.jidujiao.com/lockey.php)，就是说给众教会的话，众教会理解耶稣基督的真道又是藉着圣灵。圣灵才是“[联络](http://sj.jidujiao.com/lockey.php)“众圣徒——教会的。而串联恰是一句贬义词。中共描述非法性质的专用术语（[阅读更多](https://read.cnki.net/web/Journal/Article/XSJC199806009.html)[）](https://read.cnki.net/web/Journal/Article/XSJC199806009.html)。
-
-关于解决教牧和信徒间冲突的办法，该文作者认为：割分权力，可 使三者之间的关系更和谐。这种很荒谬没有逻辑的所谓办法还是一位牧者的 思维吗？不正是使用了中共串联破案的办法吗？将教牧同工之间的权力分散，以三人为一组，互为监督，但却无法与更多人联络。因为金三角关系既能带来牢固不破的同盟，也能为恶者利用，因为三人组合是上面任命的，而非自发形成的金三角关系。因此，他三自可以轻而易举地在金三角之间安插一个亲信，即可破坏这一牢固同盟，使你的言行在控制之中。
-
-**结论：假师傅的邪恶**
-
-当这位假牧师谈到教会面对的挑战时强调：一位成功的教牧人员必须具有爱国守法、信仰纯正、品格高尚、治理有能的素质。由此可见，三自组织一直强调“爱国爱教”，到了习近平时代，就变成了“爱国守法”。这就是共产党最邪恶的地方，它篡夺了国家后迅速组建了专制极权政府，并压迫神的选民。这些事实，中共国三自牧师、基督徒们都是应该明白的，是勿需明说的道理。因为《圣经》就是伦理，《圣经》就是宪法根基，《圣经》宣扬天国价值观，而不是爱地上的国。但地上的政权可以恳请教会为其政权赐福，而不是逼迫教会去爱它。何况中共混淆了国家观。他们如此公然弯曲真理，比祸害耶稣基督的文士更甚，是再次将基督钉上十字架的邪恶行为。
-
-校对/发稿 ：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
