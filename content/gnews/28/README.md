@@ -1,22 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7月4日&#8211;加拿大枫叶农场多伦多街访
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1372030/)
+## 社交软件盖特(GETTR)上线第一天被黑瘫
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1372165/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04134601/jf.jpg)6月27日街访图
+2021年7月4日
+
+由前任总统川普的盟友建立的新社交媒体平台-盖特(GETTR)在7月4日上线当天遭到黑客攻击。
+![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
+该平台最受欢迎的认证用户都被黑客入侵，这些用户大多数是川普的前助手，像迈克-彭佩奥、史蒂夫-班农、马乔里-泰勒-格林、哈兰-希尔、肖恩-帕内尔和亲川普的广播公司Newsmax的账户也没有幸免遇难。盖特的官方支持页面也成为攻击目标。所有这些账户的资料都被修改并且显示相同的信息。
+![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
+**【[新闻来源](https://www.businessinsider.com/gettr-trump-allies-get-accounts-hacked-july-4-launch-day-2021-7?international=true&amp;r=US&amp;IR=T)】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-据喜联盟记者站根据前方战友发来的消息报道，加拿大枫叶农场于7月4日当地时间下午2点，在多伦多Yonge- Dundas Square 广场再次组织了一次新中国联邦人线下宣传推广活动。本次活动将主要以GTV 直播为主，旨在通过实地采访同城民众并向其分发有关“中共病毒”真相宣传册等方式，以实际有效行动来对外宣传中共病毒及其疫苗真相，并以此彻底把中国人和共产党区分开来。
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04134913/jf1-edited.jpg)6月27日街访图
-
-
-继6月27日首次线下街访受到各农场战友们的如潮好评之后，本次实地宣传活动，不仅再次得到了农场主文枫和管理层的大力支持，同时也收获了广大农场战友们的积极响应，踊跃参与本次街访宣传活动的战友包括：约瑟，千叶草，北方的太阳，老张，卢比肯，文祥，加国枫叶，justics，张蚂蚊等。本次活动行程安排时间为2个小时，并预计将于当日下午4点钟结束。
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04140327/jf4-edited.jpg)街访用宣传册
-
-
-有关本次线下活动的具体情况和花絮，本站记者将会陆续进行相关报道。
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

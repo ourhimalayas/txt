@@ -12,28 +12,28 @@
 
 ---
 
-### [美国伟大之路还有多远&#8212;川普总统独立日前夜演讲有感](/content/gnews/1/README.md)
+### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国伟大之路还有多远&#8212;川普总统独立日前夜演讲有感](/content/gnews/2/README.md)
  ` 喜馬拉雅的文雅 Wenya Himalaya`
 
-### [盖特(Gettr)，言论自由的新时代，对大科技公司说不!](/content/gnews/2/README.md)
+### [盖特(Gettr)，言论自由的新时代，对大科技公司说不!](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Gettr， 言论自由的社交媒体平台欢迎您入驻](/content/gnews/3/README.md)
+### [Gettr， 言论自由的社交媒体平台欢迎您入驻](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/4/README.md)
+### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [言论自由新平台——盖特来了！](/content/gnews/5/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [2021年7月3日 文贵先生盖特 4](/content/gnews/6/README.md)
+### [2021年7月4日 文贵先生盖特 1](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月3日 文贵先生盖特 3](/content/gnews/7/README.md)
+### [2021年7月3日 文贵先生盖特 6](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月3日 文贵先生盖特 2](/content/gnews/8/README.md)
+### [2021年7月3日 文贵先生盖特 4](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [【NewsExpress】中共的毒药 荒诞的集体主义](/content/gnews/9/README.md)
@@ -75,26 +75,26 @@
 ### [2021/07/02参议员玛莎：福奇应该离职，接受国会的问询](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【热点播报】7月3日国际新闻速递](/content/gnews/22/README.md)
+### [布莱恩-阿姆斯特朗会见美联储主席杰罗姆-鲍威尔](/content/gnews/22/README.md)
+ ` 索尼克`
+
+### [7月4日&#8211;加拿大枫叶农场多伦多街访](/content/gnews/23/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [【热点播报】7月3日国际新闻速递](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [【路德社即时简报】解读《独立宣言》](/content/gnews/23/README.md)
+### [【路德社即时简报】解读《独立宣言》](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/24/README.md)
+### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [教皇前往罗马进行手术](/content/gnews/25/README.md)
+### [教皇前往罗马进行手术](/content/gnews/27/README.md)
  ` 索尼克`
 
-### [无偏见GETTR美国独立日登场 冀破科技局巨头言论审查魔咒](/content/gnews/26/README.md)
- ` 索尼克`
-
-### [【热点播报】中共国三自教会公然将爱国视为神的启示](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
-
-### [7月4日&#8211;加拿大枫叶农场多伦多街访](/content/gnews/28/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [2021/07/04 英喜时事速递](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
