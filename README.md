@@ -12,29 +12,29 @@
 
 ---
 
-### [盖特(Gettr)，言论自由的新时代，对大科技公司说不!](/content/gnews/1/README.md)
+### [美国伟大之路还有多远&#8212;川普总统独立日前夜演讲有感](/content/gnews/1/README.md)
+ ` 喜馬拉雅的文雅 Wenya Himalaya`
+
+### [盖特(Gettr)，言论自由的新时代，对大科技公司说不!](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/2/README.md)
+### [Gettr， 言论自由的社交媒体平台欢迎您入驻](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [言论自由新平台——盖特来了！](/content/gnews/3/README.md)
+### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [言论自由新平台——盖特来了！](/content/gnews/5/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [热烈庆祝GETTR上市！](/content/gnews/4/README.md)
- ` Gnews Special Squad`
+### [2021年7月3日 文贵先生盖特 4](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [新登场的“无偏见”社交应用GETTR在App Store排行名次不断攀升](/content/gnews/5/README.md)
- ` 闪电侠`
+### [2021年7月3日 文贵先生盖特 3](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月4日文贵先生直播同步精要文字版](/content/gnews/6/README.md)
- ` 喜联盟七哥直播组`
-
-### [2021/07/03 文贵盖特精要-002](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/07/03 文贵盖特精要](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [2021年7月3日 文贵先生盖特 2](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [【NewsExpress】中共的毒药 荒诞的集体主义](/content/gnews/9/README.md)
  ` 索尼克`
@@ -93,28 +93,28 @@
 ### [【热点播报】中共国三自教会公然将爱国视为神的启示](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [DC每日热点资讯](/content/gnews/28/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [7月4日&#8211;加拿大枫叶农场多伦多街访](/content/gnews/28/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [日本赠300万剂疫苗给太平洋岛国 吁其团结抗衡中共国](/content/gnews/29/README.md)
+### [2021/07/04 英喜时事速递](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点资讯2021.7.3](/content/gnews/30/README.md)
+### [DC每日热点资讯](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【热点播报】日本第二防务大臣警告：中俄可能对美发动“珍珠港”式袭击](/content/gnews/31/README.md)
- ` 纽约香草山MOS02`
+### [日本赠300万剂疫苗给太平洋岛国 吁其团结抗衡中共国](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【GETTR上线倒计时】杰森·米勒谈GETTR关于言论自由之核心理念](/content/gnews/32/README.md)
+### [【战友心声】 伟大的1776](/content/gnews/32/README.md)
+ ` 纽约香草山MOS03`
+
+### [【GETTR上线倒计时】杰森·米勒谈GETTR关于言论自由之核心理念](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【GETTR上线倒计时】杰森·米勒谈大科技寡头公司的权力与控制](/content/gnews/33/README.md)
+### [【GETTR上线倒计时】杰森·米勒谈大科技寡头公司的权力与控制](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【GETTR上线倒计时】杰森·米勒谈GETTR正式上线及如何对抗中共水军](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【GETTR上线倒计时】周日上午10点，记得正式打卡GETTR](/content/gnews/35/README.md)
+### [【GETTR上线倒计时】杰森·米勒谈GETTR正式上线及如何对抗中共水军](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [7/3/2021 财经快讯：法国调查时装零售商在中共国隐瞒“反人类罪”，莫里森同意投资集团的收购要约](/content/gnews/36/README.md)
