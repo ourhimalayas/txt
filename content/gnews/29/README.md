@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】7/2/2021晚：塞林上校重磅推文，要求斯里兰卡大使馆让马亨（闫博士丈夫）离开美国
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1369027/)
+## 【GETTR上线倒计时】GETTR是什么？是尖端技术百家争鸣思想集市
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1369657/)
 
-编辑：华盛顿DC农场 路德简报项目组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03063925/2021-07-02_PM_CN_WG-scaled.jpg)
-+1
+7/2/2021 首席执行官杰森·米勒谈GETTR即将正式上线：777字的GETTR帖、APP内视频编辑、画面清晰提升30%；火热程度近在眼前；这就是GETTR技术汇聚的能量。2021年7月2日，杰森·米勒在班农先生战斗室回答了大家有关GETTR的提问。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
++3
