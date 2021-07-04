@@ -1,32 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/07/03 文贵盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371401/)
+## 新登场的“无偏见”社交应用GETTR在App Store排行名次不断攀升
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1370649/)
 
-编辑整理：万物归一| Pr: 樂禧禧 | Page：小六月
-[!\[\]()!\[\](https://spark.adobe.com/page/4LVMGopCXCGgH/images/689d134a-eaaa-451f-a049-50baeb79cc98.png?asset_id=9bf38497-2ce4-4651-b338-8dfc72042425&amp;img_etag=%225cf748a1f19c0ea15067dda9ecd1cd85%22&amp;size=1024)](https://spark.adobe.com/page/4LVMGopCXCGgH/images/689d134a-eaaa-451f-a049-50baeb79cc98.png?asset_id=9bf38497-2ce4-4651-b338-8dfc72042425&amp;img_etag=%225cf748a1f19c0ea15067dda9ecd1cd85%22&amp;size=1024)
-[链接](https://www.gettr.com/post/psmmv)
+**编译：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04012452/21-2.jpg)
+GETTR 是川普总统政府顾问杰森·米勒 (Jason Miller) 推出的一款新社交应用，即将在7月4日美国独立日这天正式发布，虽然正式发布日期还没到，但已获得超过10万次下载和数千条正面评价。
 
-7月3号：尊敬的战友们好，你们健身的吗？北京天安门上发生的一系列的事件．和天安门广场两侧发生的还没有公布的政治灾难，都将极大地促进中共国的三国政治到了最后的绞杀阶段！
+该应用程序定位为一个“无偏见”的社交媒体平台，该平台“建立在言论自由、独立思考和拒绝政治审查和‘取消文化’的原则之上。”其目标是“创造一个思想市场，以便在世界范围内分享自由和民主。”
 
-•北朝鲜跟共产党翻脸了，甚至要打官司打到国际法庭去，金正恩对中共送来的粮食和油不满意，还提出了大量索赔，要80亿美元。还有为了可能在上海和鸭绿江发生的两起命案。中共也很恼火，怎么处理？边走边看。
+其实自6月14日起，GETTR就可以从Apple App Store和Google Play Store下载，但它将于 7 月 4 日正式发布，以宣布从大科技公司中“脱颖而出”。
 
-•本来俄罗斯，朝鲜，伊朗，中东某国，非洲某国，等12国都要去北京的，但最后都没来，普京也只是以个人身份录了个视频恭喜了一下，前提是把天然气的钱先估个价给俄罗斯先付了。
+“这与独立日有关，”米勒说。“独立于社交媒体垄断，独立于取消文化；拥抱言论自由——我们选在在周日独立日发布是非常有意义的。”
 
-•共产党还要在联合国发起几个反美，反帝国垄断，反国际政治恐怖主义，打破美国的邪恶联盟，简直是疯了。
+尽管尚未正式发布，GETTR 在所有免费应用程序的 App Store 排行榜中已攀升至第 16 位（截至新闻稿发布之时），目前是“社交网络”应用程序的第三名。它还拥有超过 1,000 条评论，平均评分为 4.9 星。在 Play 商店中，GETTR拥有超过 3,000 条评论，平均评分为 4.2 星，下载量超过 100,000。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04012507/22-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04012527/23-2.jpg)
+该应用程序的名称灵感来自“Getting Together”一词，米勒将其设想为“全球平台——而不仅仅是美国的保守派”。他希望“来自各个政治阶层的人都能加入这个平台。”
 
-•从习近平真人出来后，发现他的脸色气色很不好，预示着习的身体状况有问题。大家发现很多重要人士都没有出场，比如丁薛祥，公安部几个大佬，中纪委几个大佬，需要大家慢慢研究。
+在功能和布局方面，GETTR 与 Twitter 类似，具有相似的外观和感觉的个人资料页面、搜索、热门话题和提要。
 
-•王岐山会和江家，朱家，孟建柱等剩余派系合作，党内内战已经全面开始，习近平的这场表演暴露了自己的实力和胆怯和恐惧，他输了。
+但是，与Twitter的推文限制为仅有280个字符不同，GETTR允许用户发布最多 777 个字符。GETTR 用户还可以在设置帐户时导入他们现有的推文。所有用户都可以发布长达3分钟的视频，一些用户将被允许将此限制延长至10分钟，同时视频本身就可以在 GETTR应用程序中完成编辑。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+GETTR 已经计划向该平台添加一些新功能，包括打赏、政治捐款等功能（GETTR 仍在审查如何将用户的政治捐款限制在选举法范围内）和直播。米勒还告诉华尔街日报，该平台计划从电子商务中获得盈利。
 
+一些知名用户已经加入了该应用程序，包括 Newsmax、共和党参议院候选人肖恩·帕内尔、前特朗普竞选发言人蒂姆·默托。
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/4LVMGopCXCGgH/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/4LVMGopCXCGgH/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+截至本文发稿时，GETTR在APP STORE的所有应用程序内的排名已经到了第九名。
 
+（本文只代表作者观点，与Gnews平台无关。）
+
+**新闻来源：**
+
+[New “non-bias” social app GETTR hits top 20 in App Store charts ahead of official July 4 launch (reclaimthenet.org)](https://reclaimthenet.org/gettr-top-20-app-store-charts/)
+
+***校对发布：文顾***
 
 +1
