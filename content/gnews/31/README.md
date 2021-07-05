@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 社交软件盖特(GETTR)上线第一天被黑瘫
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1372165/)
+## 抗中秀肌肉！美日联合军演展日本西南离岛制空能力
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373602/)
 
-2021年7月4日
+2021年7月5日
 
-由前任总统川普的盟友建立的新社交媒体平台-盖特(GETTR)在7月4日上线当天遭到黑客攻击。
-![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
-该平台最受欢迎的认证用户都被黑客入侵，这些用户大多数是川普的前助手，像迈克-彭佩奥、史蒂夫-班农、马乔里-泰勒-格林、哈兰-希尔、肖恩-帕内尔和亲川普的广播公司Newsmax的账户也没有幸免遇难。盖特的官方支持页面也成为攻击目标。所有这些账户的资料都被修改并且显示相同的信息。
-![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
-**【[新闻来源](https://www.businessinsider.com/gettr-trump-allies-get-accounts-hacked-july-4-launch-day-2021-7?international=true&amp;r=US&amp;IR=T)】**
+![美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）]( "美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）")![美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）](https://img.ltn.com.tw/Upload/news/600/2021/07/02/phpBmgBK6.jpg "美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）")
+
+【即时新闻/综合报导】美国及日本于6月24日至7月11日举行为期18日的“东方之盾（Orient Shield）”军事演习。这是军演设立36年来规模最大的一次，也是参演人数最多的，共计有日本陆上自卫队大约3000人，美国陆军第40步兵师以及驻日美军共1700名军人。两国兵力在北海道实行“跨领域作战”，将网路、太空及咨询等元素融入演习，美国陆军的爱国者3型（MIM-104）也首次向中共国展示美日联合作战能力。
+
+**【[新闻来源](https://news.ltn.com.tw/news/world/breakingnews/3589502)】**
 
 * * *
 
@@ -21,4 +21,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
 0

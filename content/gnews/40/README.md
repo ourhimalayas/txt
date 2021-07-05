@@ -1,37 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【一周盘点】香草山翻译部周刊——第三期（2021年7月4日）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1372909/)
+## 美台就贸易投资优先事项举行对话
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1370521/)
 
-作者：纽约香草山翻译部
+据美国贸易代表办公室 (USTR)，2021年6月30日发布
 
+华盛顿——昨天，在美国驻台协会（AIT）和台北驻美国经济文化代表处（TECRO）的主持下，美国和台湾举行了第十一次贸易和投资框架协议（TIFA）理事会会议。美国助理贸易代表特里麦卡廷 (Terry McCartin) 和台湾贸易谈判办公室副贸易代表杨仁妮共同主持了讨论，讨论以虚拟方式进行，重点是加强美国与台湾之间的长期贸易和投资关系。（本次会议的）美国其他参与者和贡献者包括 AIT 和美国农业部、商务部、卫生与公共服务部、劳工部、州政府和财政部。
 
+TIFA 将 TIFA 理事会会议确立为美国和台湾当局之间贸易和投资对话的主要机制，涵盖对美国和台湾利益相关者方重要的广泛议题。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+在 TIFA 理事会会议上，美国官员强调了美台贸易和投资关系的重要性，并表达了未来加强和更一步接触的愿望。美国讨论了拜登——哈里斯政府以工人为中心的贸易政策，即工人在谈判桌前有一席之地，执行严格的劳工标准，并广泛分享繁荣。此外，美国官员还讨论了美国和台湾在关键贸易和环境问题上合作的机会，例如打击野生动物贩运和探索应对气候危机的贸易工具。
 
+双方欢迎恢复高层贸易接触，并表示希望密切合作，不仅在深化美台贸易和投资关系的方式上，而且作为支持以工人为中心的贸易政策的民主伙伴，寻求打击全球供应链中的强迫劳动。为此，双方同意在 TIFA 下成立一个新的劳工工作组。
 
+双方强调了美台在亚太经合组织论坛、世界贸易组织等国际论坛上的合作，并讨论了安全和弹性供应链的重要性。双方还强调台湾作为美国合作伙伴在多边贸易体制改革中的作用，并表示支持共同努力加强关键供应链的安全和弹性。
 
-![]()![](https://media.discordapp.net/attachments/830167012663754773/861080566954983434/3_CN-final.png?width=788&amp;height=609)
+在TIFA理事会会议期间，美国和台湾当局还讨论了一系列具体的贸易和投资问题。双方承认在台湾实施商业秘密保护、台湾医疗器械审批程序即将发生变化等多个领域取得了进展。此外，美国和台湾当局承诺加强接触，以解决突出的贸易问题，包括美国牛肉和猪肉生产商面临的市场准入壁垒，以及美国在版权立法、数字盗版、金融服务、投资和监管透明度等领域提出的担忧。
 
-校对/发稿：Irene木木
+为支持双方加强接触的承诺，双方同意召开多个 TIFA 工作组会议，包括农业工作组、知识产权工作组、贸易技术壁垒工作组和投资工作组，以及其他必要的工作级别会议。
 
-**更多资讯，更多关注**
+背景
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+美国和台湾有着长期和充满活力的贸易关系。台湾是美国第九大货物贸易伙伴，2020年双边货物贸易总额为909亿美元。2020年美国与台湾之间的货物和服务贸易总额为1060亿美元。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+美国——台湾 TIFA 于 1994 年在 AIT 和 TECRO 的主持下签署。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+原文连接：[https://ustr.gov/about-us/policy-offices/press-office/press-releases/2021/june/united-states-and-taiwan-hold-dialogue-trade-and-investment-priorities](https://ustr.gov/about-us/policy-offices/press-office/press-releases/2021/june/united-states-and-taiwan-hold-dialogue-trade-and-investment-priorities)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 心照
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

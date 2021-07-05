@@ -1,22 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371954/)
+## 【百年恶党】视频——文化大革命
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1373553/)
 
-2021年7月4日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04113533/gettr_07-1.jpg)
-GETTR（盖特）是一个全新的社交媒体平台，建立在言论自由、独立思考、拒绝政治审查和“取消文化”的原则之上。盖特凭借一流的技术，目标是创建一个思想的市场，在全世界分享自由和民主
+翻译：奋斗
+剪辑：蛮吉
+编辑：翼族
 
-**【新闻来源】**
+继土改和三反五反之后，中共党首毛泽东为保住个人权力发动了文化大革命，从1966年至1976年横跨十年，给中国人民带来深重的灾难。据各方估计，文革期间中国不正常死亡人口达2000万，中国完全沦为一个没有任何法制的社会。中共百年荒诞，在文化大革命十年间达到一个前无古人后无来者的高峰。然而文革结束后，中共不但没有对其做出系统性的反思，反而禁止人们去讨论其所犯下的错误，正因为此，其余毒一直延续到今天。
 
-* * *
+（视频及文字内容仅代表作者观点）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

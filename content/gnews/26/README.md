@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】美国捐赠100万支辉瑞疫苗抵达马来西亚
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1373015/)
+## 【新闻速递】蓬佩奥警告，批判性种族理论教育会让中共国趁虚而入，打击美国
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1373539/)
 
-星报/亚洲新闻网报道：美国政府捐赠的 100 万剂辉瑞BioNTech Covid-19 疫苗于周一（7 月 5 日）抵达马来西亚。携带药物的Raya Airways 飞机 TH384 于上午 8 点 10 分抵达苏丹阿都阿兹沙机场。
+作者：香草山健身部 Jack Li文阳
 
-国家免疫计划协调部长凯里贾马鲁丁表示，马来西亚希望继续与美国和其他国家合作，以确保获得更多疫苗。美国驻马来西亚大使布莱恩麦克菲特斯还表示，美国致力于与马来西亚合作，支持其国家 Covid-19 免疫计划。拿督斯里希山慕丁说：“我代表马来西亚政府，再次向我的同行安东尼·布林肯（美国国务卿）和美国政府对 Covid-19 疫苗的慷慨贡献表示诚挚的谢意。”
-
-由于担心发达国家和发展中国家之间的疫苗接种率存在差异，拜登政府上个月承诺将在全球范围内分享首批 8000 万剂美国制造的疫苗。预计马来西亚将在 7 月收到总计 1200 万剂各种 Covid-19 疫苗。
-
-参考链接：
-
-[https://www.straitstimes.com/asia/se-asia/us-donation-of-one-million-pfizer-covid-19-vaccines-arrives-in-malaysia?utm\_source=twitter&utm\_medium=social-organic&utm\_keyword=dlvr.it](https://www.straitstimes.com/asia/se-asia/us-donation-of-one-million-pfizer-covid-19-vaccines-arrives-in-malaysia?utm_source=twitter&amp;utm_medium=social-organic&amp;utm_keyword=dlvr.it)
-
-翻译整理：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
-0
+前国务卿迈克·蓬佩奥说，批判性种族理论教育中的反美情绪是危险的和分裂美国的，只会为我们的敌人所利用，特别是共产主义中国。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05023419/%E5%9B%BE%E7%89%874-2.png)
+
+蓬佩奥在周日WABC 770 AM-N.Y.的 The Cat Roundtable 节目中说：“我很担心我们学校里教的一些东西。如果我们教育学生说美利坚合众国的制度有某种程度的缺陷，它是腐败的，是种族主义者的。这真的很危险，它会打击我们国家的根基，这是我担心的。”
+
+“他们在攻击我们共同享受了245年的核心价值观，这是在分裂美国。如果任由这种情况发展下去，那么我们可能会失去这个如此特别的东西，我们不能让这种情况发生。”
+
+“如果我们对我们的宪法原则失去信心”，蓬佩奥对主持人约翰·卡齐马蒂斯补充说，“我们的对手，如中国共产党就会来趁虚而入，破坏我们国家。”
+
+新闻来源：
+
+[https://www.newsmax.com/newsfront/mikepompeo-race-criticalracetheory-founding/2021/07/04/id/1027414/](https://www.newsmax.com/newsfront/mikepompeo-race-criticalracetheory-founding/2021/07/04/id/1027414/)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2
