@@ -12,19 +12,19 @@
 
 ---
 
-### [川普前发言人推出新的社交媒体平台GETTR](/content/gnews/1/README.md)
+### [GETTR 甫上市 就遭黑客攻击](/content/gnews/1/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [川普前发言人推出新的社交媒体平台GETTR](/content/gnews/2/README.md)
  ` 闪电侠`
 
-### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/2/README.md)
+### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖特(Gettr)，言论自由的新时代，对大科技公司说不!](/content/gnews/3/README.md)
+### [盖特(Gettr)，言论自由的新时代，对大科技公司说不!](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Gettr， 言论自由的社交媒体平台欢迎您入驻](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/5/README.md)
+### [Gettr， 言论自由的社交媒体平台欢迎您入驻](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [2021年7月4日文贵先生第二次直播同步精要文字版](/content/gnews/6/README.md)
@@ -75,34 +75,34 @@
 ### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【NewsExpress】被爆料4月1日载有中国公民的包机抵达萨摩亚 中共大使馆解释人员组成](/content/gnews/22/README.md)
+### [【NewsExpress】Gettr社交媒体应用程序在发布当天遭到黑客攻击](/content/gnews/22/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】沙特和阿联酋拒绝让步 欧佩克濒临崩溃](/content/gnews/23/README.md)
+### [日本媒体关注到GETTR](/content/gnews/23/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【NewsExpress】生物恐怖袭击份子未来的家园 关塔那摩湾拘押中心](/content/gnews/24/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】拜登总统在独立日演讲中说与美国打赌从来不是一个好的赌注](/content/gnews/24/README.md)
+### [【NewsExpress】被爆料4月1日载有中国公民的包机抵达萨摩亚 中共大使馆解释人员组成](/content/gnews/25/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】FBI警告勒索软件攻击规模很大](/content/gnews/25/README.md)
+### [【NewsExpress】沙特和阿联酋拒绝让步 欧佩克濒临崩溃](/content/gnews/26/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】扎克伯格独立日的视频被评论成：让美国再次变得奇怪](/content/gnews/26/README.md)
+### [【NewsExpress】拜登总统在独立日演讲中说与美国打赌从来不是一个好的赌注](/content/gnews/27/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】在加拿大的香港人 帮助逃离的新移民](/content/gnews/27/README.md)
+### [GETTR 甫上市 就遭黑客攻击](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [“无偏见”社交媒体应用程序在发布当天遭到黑客攻击，注册人数达到 50 万](/content/gnews/29/README.md)
  ` 闪电侠`
 
-### [“无偏见”社交媒体应用程序在发布当天遭到黑客攻击，注册人数达到 50 万](/content/gnews/28/README.md)
- ` 闪电侠`
-
-### [对盖特(Gettr)–新的自由言论平台启动日的攻击](/content/gnews/29/README.md)
+### [对盖特(Gettr)–新的自由言论平台启动日的攻击](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/07/04 英喜时事速递](/content/gnews/31/README.md)
+### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [脱北者朴妍美：解决朝鲜问题的唯一途径就是解决中共国的问题](/content/gnews/32/README.md)

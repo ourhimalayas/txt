@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “无偏见”社交媒体应用程序在发布当天遭到黑客攻击，注册人数达到 50 万
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1372673/)
+## GETTR 甫上市 就遭黑客攻击
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1372875/)
 
-**编译：文章**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04201216/22-2.jpg)
-据路透社华盛顿7 月 4 日报道，美国前总统川普的高级顾问杰森.米勒说，周日推出的社交媒体网站遭到短暂黑客攻击，超过 500,000 人已注册使用该网站。
+**撰稿:牛小妹** **责编：人间四月**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04220017/1-17.jpg)
+根据美国网路媒体《The Verge》报道，前川普发言人杰森•米勒 (Jason Miller) 所主持的新社交媒体平台 Gettr 于7月4日正式上市，当天即遭遇短暂的黑客攻击，几个经过验证的用户资料页面因此遭到篡改。
 
-GETTR 是一个带有帖子和热门话题的 Twitter 风格的平台，它在谷歌和苹果应用商店上宣传自己是“一个面向全世界人民的无偏见社交网络”。
+一些知名共和党人的账户，包括米勒、前国务卿迈克蓬佩奥(Mike Pompeo)和众议员(Marjorie Taylor Greene)，他们的用户名被替换成同样的内容：“@JubaBaghdad 在这里:) ^^ 自由巴勒斯坦^^ 。”。 Twitter 用户@JubaBaghdad 告诉《 Insider》，破解页面很容易，而且他这样做“只是为了好玩”。
 
-米勒在给路透社的电子邮件声明中说：“问题在几分钟内就被发现并解决了，入侵者所能做的就是更改一些用户名。”
+米勒通过电子邮件给《The Verge》 的一份声明中说，问题已被找到并“在几分钟内解决，入侵者只是更改了一些用户名。”他补充说，Gettr 已经有“超过50 万用户”注册该平台。
 
-Salon 的一位作家在 Twitter 上发布了几个 GETTR 个人资料的截图，其中包括前国务卿迈克·蓬佩奥和米勒本人的个人资料，这些资料被修改为“朱巴巴格达在这里，在 twitter 上关注我:)”。
+据 《Politico 》报道，Gettr在 6 月份已启动，并且可以容纳 3 分钟的视频、777 个文字和直播视频。Gettr的应用程序可在谷歌和苹果商店下载，它的标语是“创意平台”。Gettr 是一个“基于言论自由、独立思考、没有政治审查和’取消文化’的一个全新的社交媒体平台。”
 
-当被问及新社交媒体上的安全问题时，米勒说情况已经“纠正”。
+此次的网络黑客攻击，表示GETTR的实力惊人，直接威胁到企图掌控舆论、任意审查言论的媒体如脸书、油管、推特及中共的大内外宣，当然也敲警了这些肆意删除帖子的科技寡头的丧钟！
 
-周日，前川普顾问史蒂夫.班农在新网站上的一篇帖子中将 GETTR 描述为“推特终结者”。
+文章链接:
 
-川普已被永久禁止使用 Twitter，并被Facebook暂停使用至少到2023年。米勒本周早些时候告诉福克斯新闻，他希望特朗普能加入，但这位前总统正在考虑一些选择。他说，川普并没有为该平台提供资金。
+[https://www.google.com/amp/s/www.theverge.com/platform/amp/2021/7/4/22563026/former-trump-gettr-platform-hacked-social-jason-miller](https://www.google.com/amp/s/www.theverge.com/platform/amp/2021/7/4/22563026/former-trump-gettr-platform-hacked-social-jason-miller)
 
-（本文只代表作者观点，与Gnews平台无关。）
-
-**来源**：[https://www.reuters.com/world/us/pro-trump-social-media-app-hacked-launch-day-half-million-sign-up-2021-07-04/](https://www.reuters.com/world/us/pro-trump-social-media-app-hacked-launch-day-half-million-sign-up-2021-07-04/)
-
-***校对发布：文顾***
-
-+2
+0
