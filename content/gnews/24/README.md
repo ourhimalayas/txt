@@ -1,18 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】生物恐怖袭击份子未来的家园 关塔那摩湾拘押中心
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1372793/)
+## 【NewsExpress】斐济疫情严重 超过54%的人接种了国药集团和阿斯利康疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1373063/)
 
-关塔那摩湾拘押中心（Guantanamo Bay detention camp）是2002年美军在关塔那摩湾海军基地所设置的一座拘押中心，建筑座落于古巴，拘押中心之所以设置在美国境外的关塔那摩湾沿岸，主要目的是为了避免联邦法律对关押者的人权给予保护。整个拘留营区是由三角洲营（Camp Delta）、鬣鳞蜥营（Camp Iguana）与X光线营（Camp X-Ray）等三个营区所组成，该单位常简称为Guantanamo或Gitmo（起源于该单位的缩写GTMO）。根据美方的说法，该拘留营内所关的都是俘获的敌方战斗人员（enemy combatants），而负责营区运作的单位是关塔那摩联合特遣部队（Joint Task Force Guantanamo，JTF-GTMO），所以虽名为“拘押中心”实际上是军事化监狱。
+（路透社）报道：斐济卫生部周一（7 月 5 日）表示，斐济最大医院的太平间现已满员，因为这个太平洋岛国每天刷新了冠状病毒病例。目前还没有关于停尸房容量的直接细节。该部周日表示，在 4 月开始的第二波感染中，有 28 人死于 Covid-19。
 
-囚犯在关塔那摩的身份认定
+位于苏瓦首府唯一公立医院的殖民战争纪念医院及其设施现在专门用于照顾 Covid-19 患者。“由于太平间现已满负荷使用，请有关亲属立即安排从太平间抬出死者，并为亲人举行最后的葬礼，”他们在一份声明中说。
 
-美国军方对每一名新到关塔那摩的囚犯都会召开听证会，如果确定不是敌方战斗人员，一般将遣返本国；否则将改判无限期关押，并予以剥夺《日内瓦公约》规定的战俘权利。关塔那摩湾的主权属于古巴，美国政府声称关押嫌犯的地区在法律上并非美国领土，所以这些人无法拥有如关押在美国领土上时会享受的美国宪法所赋予的权利。
+尽管斐济在通过关闭边境来阻止病毒方面取得了早期成功，但最初在印度发现的高度传播的三角洲变种现在正在传播。周日记录了 522 例新感染的每日新高。该岛人口约90万。
 
-2007年1月18日，美国国防部公布了用于审判关塔那摩监狱囚犯的《军事委员会手册》。该手册是为实施《2006年军事委员会法》而制订的。手册规定，军事委员会禁止在审判中使用通过拷问、非人道的手段等获得的供词，但允许使用2005年底前通过强制性审讯手段获得的证据。手册还对恐怖活动及相关的犯罪行为分别设定了最高惩罚。2月20日，美国哥伦比亚特区联邦巡回上诉法院裁定，关押在关塔那摩监狱的恐怖嫌犯无权就其是否应入狱受押，而向美国非军事普通法庭提出上诉。
+根据官方数据，大约 54% 的斐济人至少接种了一剂阿斯利康或国药集团的疫苗，而近 9% 的人接种了第二剂。巴布亚新几内亚也在与感染激增作斗争。
 
-参考链接：维基百科
+参考链接：
+
+[https://www.straitstimes.com/asia/australianz/mortuary-at-fijis-largest-hospital-full-as-covid-19-cases-surge?utm\_source=twitter&utm\_medium=social-organic&utm\_keyword=dlvr.it](https://www.straitstimes.com/asia/australianz/mortuary-at-fijis-largest-hospital-full-as-covid-19-cases-surge?utm_source=twitter&amp;utm_medium=social-organic&amp;utm_keyword=dlvr.it)
 
 翻译整理：蓝精灵
 

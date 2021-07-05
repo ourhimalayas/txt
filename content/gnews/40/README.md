@@ -1,48 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 驳斥：盖特删帖功能怎么能说是“言论审查”？
-` 文名` [轉載自GNews](https://gnews.org/zh-hans/1372733/)
+## 【一周盘点】香草山翻译部周刊——第三期（2021年7月4日）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1372909/)
 
-作者：英国伦敦喜庄园 文名
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04205730/photo_2021-07-04_06-48-37.jpg)
-近日盖特正式上线，有一些大V小v突然跳出来作妖，说你们盖特不是没有言论审查吗？不是不会封号吗？怎么还有删号删言论的代码呢？
+作者：纽约香草山翻译部
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04181732/photo_2021-07-03_15-12-31.jpg)图片来源自网络：某大V转发的推特，声称盖特含有删帖代码
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04181725/photo_2021-07-03_15-12-31-2.jpg)图片来源自网络：某大V转发的推特，声称盖特含有封号代码
 
-咱不是软件工程师，代码看不懂。但是咱从正常的逻辑里分析一下，盖特的代码里该不该有删帖、删号的功能？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-举个例子，以色列建国。刚宣布建国第二天周边所有阿拉伯国家都对其进行了四面楚歌的突然军事打击，一直攻到耶路撒冷。後來是全球的犹太人民同仇敌忾捐钱捐物捐人，加上国际社会调停才成功击溃阿拉伯联军，成就今日的辉煌。
 
-如果以色列人说，我们要用爱感化敌人，我们不要武装。今天以色列还会存在吗？
 
-同理，盖特里的删除代码，只是保卫家园的维和部队。如果有人胆敢来犯，维和部队当然要有力还击。如果强盗来拆你家房子、抢你家银子、奸淫你妻女，有人向你喊话说：你要以德服人，不能使用武力！不拦着强盗，反而让你放弃抵抗，你会不会上去赏他两个大耳刮子？
+![]()![](https://media.discordapp.net/attachments/830167012663754773/861080566954983434/3_CN-final.png?width=788&amp;height=609)
 
-盖特刚开放注册，中共的五毛大军就已经蜂拥而至。捣乱的、引战的、假冒大V的、黄色血腥暴力各种内容都已应接不暇。更不要说黑客攻击了，还是动用军队级别、国家级别的黑客。这种来捣乱的，我们要跟他讲道理以德服人吗？文贵先生说的好，发现一个直接把他设备都给封了。真、善、狠。
+校对/发稿：Irene木木
 
-这时候还来叽叽歪歪说你们搞言论审查、你们搞封杀。。。这种人请立马取关。甭管它之前包装得多反共，这种人我们爆料革命经历的太多了，一撅屁股就知道它要拉啥屎。
+**更多资讯，更多关注**
 
-文贵先生和班农先生说，盖特是平民主义的超级武器。这是我们对抗沼泽地、老杂毛、独裁者的航空母舰。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-那句话叫做：我并不同意你的观点，但是我誓死捍卫你说话的权利。这就是盖特，它将载着全球数十亿热爱自由追求民主的人民驶向美好的未来。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-【文章仅代表作者观点】
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-【参考资料】：
-[➥2021年7月4号文贵直播](https://gtv.org/video/id=60e1b64c871bef6d4ab4eadc)
-[➥跌宕起伏，以色列建国史](https://zhuanlan.zhihu.com/p/149974967)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-【文名作品集】：
-[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
-[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
-[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
-[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
-[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
-[➥一个孩子都养不起，你还要我生三个？](https://gnews.org/zh-hans/1288189/)
-[➥恶性事件频出是中共到了癌症晚期](https://gnews.org/zh-hans/1304634/)
-[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
-[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
++1
