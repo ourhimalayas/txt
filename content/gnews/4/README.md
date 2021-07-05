@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 社交软件盖特(GETTR)上线第一天被黑瘫
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1372165/)
+## GETTR 甫上市 就遭黑客攻击
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1372875/)
 
-2021年7月4日
+**撰稿:牛小妹** **责编：人间四月**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04220017/1-17.jpg)
+根据美国网路媒体《The Verge》报道，前川普发言人杰森•米勒 (Jason Miller) 所主持的新社交媒体平台 Gettr 于7月4日正式上市，当天即遭遇短暂的黑客攻击，几个经过验证的用户资料页面因此遭到篡改。
 
-由前任总统川普的盟友建立的新社交媒体平台-盖特(GETTR)在7月4日上线当天遭到黑客攻击。
-![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
-该平台最受欢迎的认证用户都被黑客入侵，这些用户大多数是川普的前助手，像迈克-彭佩奥、史蒂夫-班农、马乔里-泰勒-格林、哈兰-希尔、肖恩-帕内尔和亲川普的广播公司Newsmax的账户也没有幸免遇难。盖特的官方支持页面也成为攻击目标。所有这些账户的资料都被修改并且显示相同的信息。
-![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
-**【[新闻来源](https://www.businessinsider.com/gettr-trump-allies-get-accounts-hacked-july-4-launch-day-2021-7?international=true&amp;r=US&amp;IR=T)】**
+一些知名共和党人的账户，包括米勒、前国务卿迈克蓬佩奥(Mike Pompeo)和众议员(Marjorie Taylor Greene)，他们的用户名被替换成同样的内容：“@JubaBaghdad 在这里:) ^^ 自由巴勒斯坦^^ 。”。 Twitter 用户@JubaBaghdad 告诉《 Insider》，破解页面很容易，而且他这样做“只是为了好玩”。
 
-* * *
+米勒通过电子邮件给《The Verge》 的一份声明中说，问题已被找到并“在几分钟内解决，入侵者只是更改了一些用户名。”他补充说，Gettr 已经有“超过50 万用户”注册该平台。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+据 《Politico 》报道，Gettr在 6 月份已启动，并且可以容纳 3 分钟的视频、777 个文字和直播视频。Gettr的应用程序可在谷歌和苹果商店下载，它的标语是“创意平台”。Gettr 是一个“基于言论自由、独立思考、没有政治审查和’取消文化’的一个全新的社交媒体平台。”
 
+此次的网络黑客攻击，表示GETTR的实力惊人，直接威胁到企图掌控舆论、任意审查言论的媒体如脸书、油管、推特及中共的大内外宣，当然也敲警了这些肆意删除帖子的科技寡头的丧钟！
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+文章链接:
+
+[https://www.google.com/amp/s/www.theverge.com/platform/amp/2021/7/4/22563026/former-trump-gettr-platform-hacked-social-jason-miller](https://www.google.com/amp/s/www.theverge.com/platform/amp/2021/7/4/22563026/former-trump-gettr-platform-hacked-social-jason-miller)
+
 0

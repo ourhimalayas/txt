@@ -1,28 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《新苏黎世报》评论：习近平是控制狂，中国经济发展最大绊脚石
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373590/)
+## GETTR挑战科技寡头 拒绝取消文化
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1373876/)
 
-2021年7月5日
+翻译：Hakunamatata 责编：人间四月
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05063944/1-22.jpg)
+据纽约邮报报道，就在美国独立日这天，川普总统的前发言人杰森·米勒（Jason Miller）向公众介绍了一个新的社交媒体平台，他宣布该媒体将是“独立”的，从而摆脱科技巨头们造成的“觉醒的暴政”。米勒上个月辞去了在川普那边的日常工作，成为盖特（GETTR） 的首席执行官。
 
-![]()![](https://molihuaorgd5569.zapwp.com/q:ultra/retina:false/webp:true/w:716/url:https://molihua.org/wp-content/uploads/2021/06/AP21179613285642.jpg)
+盖特于美国东部时间 7 月 4 日的上午 10 点正式上线。米勒在声明中表示：“GETTR 是对硅谷社交媒体寡头的直接挑战，还有什么比 7 月 4 日宣布独立于他们的暴政下更好的日子？GETTR 是创意的市场平台。我们不会取消人们对于政治的观点，GETTR 提供的功能和技术比其他任何平台都多很多。”
 
-中共建党百年之际，《苏黎世世报》评论指出，中共国家主席习近平是一个控制狂，打压马云、字节跳动CEO张一鸣等中共国科技企业家，处死赖小民，大规模干预和收缴国有及民间企业，等于不鼓励年轻人创新和企业，可能牺牲了中期经济增长，毕竟这些企业提供了城市5分之4的就业机会。习近平的独裁是中国经济发展的最大的绊脚石。
+就在米勒向大家首次介绍GETTR时，他也解释了其名称时“源于社交媒体上社区‘聚在一起’的想法。GETTR已成为苹果商店中下载量排名第九的免费应用程序，甚至在正式发布之前也称为 Google Play 中下载量第二的免费应用程序。米勒说：用户不必在技术低劣的保守倾向平台和压制他们言论自由的应用程序之间做选择。有了 GETTR，他们将重新获得言论自由，同时拥有这个卓越的社交平台。他同时还介绍了GETTR 的一些功能，包括发布比推特（ Twitter） 更长的文字内容（最多 777 个字符）和视频的能力（ 3 分钟视频上传）。
 
-**【[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210703-%E6%96%B0%E8%8B%8F%E9%BB%8E%E4%B8%96%E6%8A%A5-%E8%AF%84%E8%AE%BA-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%98%AF%E6%8E%A7%E5%88%B6%E7%8B%82-%E4%B9%9F%E6%98%AF%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E%E5%8F%91%E5%B1%95%E6%9C%80%E5%A4%A7%E7%BB%8A%E8%84%9A%E7%9F%B3)】**
+截至周日晚，通过了验证的个人账号包括前国务卿（Mike pompeo）迈克·蓬佩奥和前住房和城市发展部的部长本·卡森（Ben Carson）博士等。这个平台上还暂时没有川普的迹象，不过杰森·米勒在采访时明确说过，他们专门“为川普总统保留了账户”。在 今年1 月 6 日，川普总统的支持者被污蔑在美国国会大厦发生致命骚乱后，他立刻被那些大科技寡头禁止使用推特以及脸书。脸书上个月表示，川普总统的账号最早要到 2023 年 1 月才能解封。盖特的出现是平民主义的崛起，也是倡导真正言论自由的社交媒体变革，它势必成为那些科技寡头最有挑战的实力竞争对象。
 
-* * *
+原文链接：[Former Trump spokesman launches new social media platform GETTR](https://nypost.com/2021/07/04/ex-trump-spokesman-launches-new-social-media-platform-gettr/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-
-0
++1

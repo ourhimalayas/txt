@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抗中秀肌肉！美日联合军演展日本西南离岛制空能力
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373602/)
+## 美日联合军演：日协防台湾可能性高
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373922/)
 
 2021年7月5日
 
-![美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）]( "美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）")![美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）](https://img.ltn.com.tw/Upload/news/600/2021/07/02/phpBmgBK6.jpg "美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）")
+![](https://s.yimg.com/ny/api/res/1.2/4OFH9tYBqR2gx37E5us7SA--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTU0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/aemh53dSPcPZgqyyrWzs.A--~B/aD01NzY7dz0xMDI0O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/zh-tw/ftvn.com.tw/47b8bef435d47657cd38d12b70308ab3)
 
-【即时新闻/综合报导】美国及日本于6月24日至7月11日举行为期18日的“东方之盾（Orient Shield）”军事演习。这是军演设立36年来规模最大的一次，也是参演人数最多的，共计有日本陆上自卫队大约3000人，美国陆军第40步兵师以及驻日美军共1700名军人。两国兵力在北海道实行“跨领域作战”，将网路、太空及咨询等元素融入演习，美国陆军的爱国者3型（MIM-104）也首次向中共国展示美日联合作战能力。
+6月24日，美日举行为期18天的“东方之盾”联合军演，是近36年来规模最大的一次，假想敌指向近来才刚盛大庆祝百年党庆的中共国。美国《富比士》杂志指出，台湾和冲绳距离仅700公里，关系就像鼻子和眼睛，一旦台海打起来，台湾跟冲绳之间的宫古海峡，也很危险，因此日本协防台湾的机会相当高。
 
-**【[新闻来源](https://news.ltn.com.tw/news/world/breakingnews/3589502)】**
+**【[新闻来源](https://tw.news.yahoo.com/%E7%BE%8E%E6%97%A5%E8%81%AF%E5%90%88%E8%BB%8D%E6%BC%94-%E5%AF%8C%E6%AF%94%E5%A3%AB-%E6%97%A5%E5%8D%94%E9%98%B2%E5%8F%B0%E7%81%A3%E5%8F%AF%E8%83%BD%E6%80%A7%E9%AB%98-052856838.html)】**
 
 * * *
 
@@ -21,6 +21,4 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-0
++1

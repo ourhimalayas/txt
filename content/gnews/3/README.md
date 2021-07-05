@@ -1,29 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普前发言人推出新的社交媒体平台GETTR
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1372752/)
+## 中国官媒公开描绘攻打台湾步骤
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373527/)
 
-**编译：文章**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04210106/23-3.jpg)
-**前总统川普的一名前发言人杰森-米勒在7月4日推出了一个新的社交媒体平台，并宣布其将独立于那些控制言论自由的科技巨头**。
+2021年7月5日
 
-GETTR于美国东部时间7月4日上午10点正式上线，杰森-米勒上个月成为该公司的首席执行官。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05024057/0-8.png)
 
-“**GETTR是对来自硅谷的社交媒体寡头的直接挑战，还有什么比7月4日更适合宣布独立于他们的明目张胆暴政的日子呢？**” 米勒在一份声明中说。”GETTR是思想的市场。我们不会因为人们的政治观点而取消他们，而且GETTR提供的功能和技术远比其他任何东西都要好。”
+编辑摘要：
 
-据米勒称，**GETTR是苹果应用商店中下载量第九大的免费应用，甚至在正式推出之前就已经是Google Play中下载量第二大的免费应用**。
+习近平在七一发言中誓言完成统一大业，还向美国等西方国家发出警告说，“任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力”。
 
-米勒说：”用户将不必在技术较差的保守派平台和压制其言论自由的自由派应用之间做出选择。”有了GETTR，他们将拿回他们的言论自由，同时拥有一个卓越的产品。”
+中国有官方背景的《舰船知识》杂志发表文章和视频描绘了中国军队“武统台湾”的具体步骤。描述的攻台方案三个阶段为：
 
-米勒的声明还介绍了GETTR的一些功能，包括能够发布比Twitter更长的信息（最多777个字符）和视频，更重要的是，注册盖特后，用户将可以选择“将他们现有在推特上的记录导入这个新平台”。**据米勒说，GETTR这个名字 “来自于在社交媒体上作为一个社区’聚在一起’的想法”**。
+在第一阶段，解放军向台湾发起弹道导弹攻击，第二阶段是从陆地、军舰和潜舰上发射鹰击-91和长剑-10巡航导弹等导弹，第三阶段是水面舰艇和陆基火箭军共同发起猛烈炮击，为解放军的海军陆战队和两栖登陆部队登陆台岛清除最后的障碍。
 
-GETTR上线当天，注册人数已超过50万。
+美国和西方国家已经充分注意到中共犯台的风险，正在加强军事合作，举行多国军演，震慑中共国犯台企图。同时增加了给台湾的高端进攻性武器，加强台湾的防御能力。
 
-（本文只代表作者观点，与Gnews平台无关。）
+**【**[新闻来源](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210704-%E4%B8%AD%E5%9C%8B%E5%AE%98%E5%AA%92%E5%85%AC%E9%96%8B%E6%8F%8F%E7%B9%AA%E6%94%BB%E6%89%93%E5%8F%B0%E7%81%A33%E6%AD%A5%E9%A9%9F)**】**
 
-**参考链接**：[https://nypost.com/2021/07/04/ex-trump-spokesman-launches-new-social-media-platform-gettr/](https://nypost.com/2021/07/04/ex-trump-spokesman-launches-new-social-media-platform-gettr/)
+* * *
 
-***校对发布：文顾***
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,22 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【百年恶党】视频——文化大革命
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1373553/)
+## 【有声读物】路德社即时简报 解读《独立宣言》
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1374415/)
 
-翻译：奋斗
-剪辑：蛮吉
-编辑：翼族
+配音：香草山录音组 蒙古鸿雁
 
-继土改和三反五反之后，中共党首毛泽东为保住个人权力发动了文化大革命，从1966年至1976年横跨十年，给中国人民带来深重的灾难。据各方估计，文革期间中国不正常死亡人口达2000万，中国完全沦为一个没有任何法制的社会。中共百年荒诞，在文化大革命十年间达到一个前无古人后无来者的高峰。然而文革结束后，中共不但没有对其做出系统性的反思，反而禁止人们去讨论其所犯下的错误，正因为此，其余毒一直延续到今天。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-（视频及文字内容仅代表作者观点）
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
+
+1. 路德：《独立宣言》可能是历史上最重要的文件。
+
+2. 路德：人生而平等。人有不可剥夺的天赋的权利，包括生命、自由和对幸福的追求。政府的存在是为了保护人们的权利，人们可以推翻政府。
+
+3. 路德：美国人一直在按照《独立宣言》去做，保障人的权利，才如此伟大。
+
+4. 安红：毛泽东多年来一直称赞7月4号，所以他是骗子。
+
+
+
+**文字版原文：[【路德社即时简报】解读《独立宣言》](https://gnews.org/zh-hans/1371959/)**
+
+作者：纽约香草山翻译部   GBW
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

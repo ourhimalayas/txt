@@ -1,37 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 江绵恒是给7月3日在上海科大毕业典礼上卖疫苗的钟南山跑龙套的吗
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1371185/)
+## 【墙文推荐】幽灵之恶
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1373384/)
 
-网易2021年7月3日发布的[#钟南山请大家放心打国产疫苗# 【#钟南山称放心打国产疫苗#](https://3g.163.com/v/video/VWD3AP669.html) 是很有意思的视频，因为在这个视频里江绵恒成了跑龙套的了——
+**作者**：香草山美食部 新世界的一员
 
-在视频38秒处，江绵恒出现——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04073912/%E6%8D%95%E8%8E%B72.png)
-以及在1‘22“后出现的画面——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04074046/%E6%8D%95%E8%8E%B7-1.png)
-那么担任上海科技大学校长的江绵恒是给钟南山跑龙套的吗？钟南山在7月3日上海科技大学2021届学生毕业典礼上提到了［用中国的全病毒灭活的疫苗株，它对感染的保护率、对发病的保护率、对肺炎的保护率、对重症的保护率都是有效的，所以应该放心地注射国产的疫苗。］
-
-这一段话是作为中国工程院院士亲口说出来是非常令人吃惊的，因为哪怕作为一名不是专家的小白来说，但凡提到对感染的保护率、对发病的保护率、对肺炎的保护率和对重症的保护率这四个保护率时，一定对应的是一个百分比，但是在堂堂中共国工程院院士却把这四个保护率罗列在一起，来说中共国的全病毒灭活疫苗对这四个保护率是有效的，那么这四个保护率有效的标准是什么呢？钟南山没有给答案，不知道上海科技大学2021届在座的毕业生们是否能给出答案。
-
-那么视频中提到的［他介绍目前中国有71个疫苗正在研发，9个已经可以用了。其中有两个被列入世界卫生组织紧急使用清单，］与现场跑龙套的江绵恒是什么关系呢？我们知道Lawrence Sellin上校在[下午2:36 · 2021年4月19日](https://twitter.com/LawrenceSellin/status/1384033118198272000)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)推文中已经把江泽民、江绵恒、江志成在中共病毒超限生物武器中的关系图进行了汇总——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05004317/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
 
 
-> How does China's political-business component and rivalries play into the laboratory origin of the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic?
-> (hat tip to Yaacov Apelbaum)[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#corona](https://twitter.com/hashtag/corona?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KxFNJzB0ZF](https://t.co/KxFNJzB0ZF)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 19, 2021](https://twitter.com/LawrenceSellin/status/1384033118198272000?ref_src=twsrc%5Etfw)
+
+
+有微友发我一链接，是原江苏省建设厅厅长徐其耀私密信件，看了令人毛骨悚然，虽无法验证，但是这样的描述符合共产党的实际邪恶行为。
+
+徐其耀，原江苏省建设厅厅长，曾任滨海县县委书记、盐城市市长，任职期间，利用手中权利，大肆贪污受贿，疯狂包养情妇146名，甚至“母女通吃”，创下当今中国拥有情妇数量之最 。后被判处死刑，缓期两年执行，剥夺政治权利终身。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05015936/image0-12-1.jpg)
+
+2000年10月８日，江苏省建设厅厅长徐其耀因贪污受贿2千余万元，被当地检察机关批捕。在侦查中，发现了徐与146名二奶的“日记”等证据，其中包括一封写给儿子的信，畅述做官心得，总结为官原则。
+
+信的全文如下：
+
+孩子：
+
+你的来信我已收到，对你在大学里的表现，我很欣慰。你要再接再厉。既然你选择了一定要走仕途这条路，你就一定要把我下面的劝告铭记在心：
+
+1. 不要追求真理，不要探询事物的本来面目。把探索真理这类事情让知识分子去做吧，这是他们的事情。要牢牢记住这样的信条：对自己有利的，就是正确的。实在把握不了，可简化为：上级领导提倡的就是正确的。
+
+2. 不但要学会说假话，更要善于说假话。要把说假话当成一个习惯，不，当成事业，说到自己也相信的程度。妓女和做官是最相似的职业，只不过做官出卖的是嘴。记住，做官以后你的嘴不仅仅属于你自己的，说什么要根据需要。
+
+3. 要有文凭，但不要真有知识，真有知识会害了你。有了知识你就会独立思考，而独立思考是从政的大忌。别看现在的领导都是硕士博士，那都是假的。有的人博士毕业就去应招公务员走向仕途，那是他从读书的那天起就没想研究学问，肯定不学无术。记住，真博士是永远做不了官的。
+
+4. 做官的目的是什么？是利益。要不知疲倦地攫取各种利益。有人现在把这叫腐败。你不但要明确地把攫取各种利益作为当官的目的，而且要作为唯一的目的。你的领导提拔你，是因为你能给他带来利益；你的下属服从你，是因为你能给他带来利益；你周围的同僚朋友关照你，是因为你能给他带来利益。你自己可以不要，但别人的你必须给。记住，攫取利益这个目的一模糊，你就离失败不远了。
+
+5. 必须把会做人放在首位，然后才是会做事。这里的做人做事你可别理解为德才兼备的意思。这里说的做人，就是处关系。做事是实际工作，这点会不会都无所谓。做人就是把自己作为一个点编织到上下左右的网中，成为这个网的一部分。记住，现在说谁工作能力强，一点都不是说他做事能力强，而是指做人能力强。你看那些把能力理解为做事的人，有好日子过才怪。
+
+6. 我们的社会无论外表怎样变化，其实质都是农民社会。谁迎合了农民谁就会成功。我们周围的人无论外表是什么，骨子里都是农民。农民的特点是目光短浅，注重眼前利益。所以你做事的方式方法必须具有农民特点，要搞短期效益，要鼠目寸光。一旦你把眼光放远，你就不属于这个群体了，后果可想而知。要多学习封建的那一套，比如拜个把兄弟什么的，这都不过分。
+
+7. 要相信拍马是一种高级艺术。千万不要以为拍马只要豁出脸皮就行，豁得出去的女人多了，可傍上大款的或把自己卖个好价钱的是极少数，大部分还是做了低层的三陪小姐。这和拍马是一样的道理。拍马就是为了得到上级的赏识。在人治的社会里，上级的赏识是升官的唯一途径，别的都是形式，这一点不可不察。
+
+8. 所有的法律法规、政策制度都不是必须严格遵守的，确切地说，执行起来都是可以变通的。法律法规、政策制度的制订者从没想到要用这些来约束自己，而是想约束他人。但你要知道，这些不是人人都可以违反的。什么时候坚决遵守，什么时候偷偷违反，让谁违反，要审势而定，否则宽严皆误。
+
+孩子，以上这些都是做官的原则。现在要仔细想想，如果你真能逐条做到，你就能一帆风顺， 如果感觉力不从心，就马上另外选择职业吧。
+
+编辑/上传：遍地开花 审核/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01045038/7_july-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01044720/WhatsApp_Image_2020-10-24_at_04.33.05-1.jpeg)
 
 
 
-我们知道复兴医药是中共国冠状病毒疫苗的重要生产厂家，在中共病毒超限战这盘大棋中，江家三代早已开始布局，现在只是人家收获的时刻而已，至于钟南山亲口提到的感染的保护率、对发病的保护率、对肺炎的保护率和对重症的保护率都有效的狗屁不通的话也就大可不必当真了，只不过这是一场已经被戳破的把戏，在这场反人类超限战中江绵恒跑不掉，钟南山的出台却也让自己的反人类本质又一次暴露无遗。
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
 
-校对：Maarago
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
-+1
+0
