@@ -1,34 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## DC每日热点资讯
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1371443/)
+## 社交软件盖特(GETTR)上线第一天被黑瘫
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1372165/)
 
-作者：楚门门
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04091949/704-1-1-scaled.jpg)
-道琼斯指数 34786.35 ▲0.44%
-纳斯达克指数 14639.33 ▲0.81%
-WTI纽约原油CFD 75.233 ▲0.00%
-布伦特原油CFD 76.016 ▼0.20%
-美元兑人民币 1USD=6.473RMB
-美元兑港币 1USD=7.765HKD
-国际黄金 1787.30美元/盎司
-全球CCP病毒感染人数 184,336,038 例
+2021年7月4日
 
-1、巴西各地爆发抗议，要求总统辞职。一天前，巴西最高法院授权对总统可能涉及的疫苗交易的腐败行为展开调查
-2、德国政府建议民众混打疫苗，抗击德尔塔变异病毒
-3、台湾对立陶宛在台北设立代表处的计划表示欢迎
-4、法国极右国民大会选主席 玛丽莲勒彭无悬念续任
-5、马来西亚5G选定爱立信 华为等七家中共国公司落选
-6、滴滴出行才赴美IPO遭中共审查，滴滴副总李敏强调滴滴的数据都存放在国内，绝无可能交给美国
-7、步德奥前政要后尘，法国前总理加盟俄罗斯能源企业董事会
-8、沙特停飞前往阿联酋等3国班机
-9、中资欲斥资6300万英镑收购英国最大芯片商Newport Wafer Fab，英国政府或会引用国家安全法审查该交易
-10、意大利300医护入禀法庭 状告当局强制性打疫苗违法
-11、黎巴嫩:贝鲁特港2020爆炸调查有进展，负责案件的预审法官要对十二名政治和安全高官追责
-12、片中出现中共国标示南中国海主权范围的“九段线”地图，Netflix应越南要求撤剧
-13、7月4日一架载有92人（大部分是菲律宾军人）的C130军用运输机在菲律宾南部坠毁，17人死 40人获救
-14、缅甸民众为军方领导人敏昂莱生日办葬礼，美国宣布制裁缅甸新措施
-15、中共官媒公开描绘攻打台湾3步骤：一上导弹，二军舰三上舰艇和陆基火箭军联合炮击
+由前任总统川普的盟友建立的新社交媒体平台-盖特(GETTR)在7月4日上线当天遭到黑客攻击。
+![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
+该平台最受欢迎的认证用户都被黑客入侵，这些用户大多数是川普的前助手，像迈克-彭佩奥、史蒂夫-班农、马乔里-泰勒-格林、哈兰-希尔、肖恩-帕内尔和亲川普的广播公司Newsmax的账户也没有幸免遇难。盖特的官方支持页面也成为攻击目标。所有这些账户的资料都被修改并且显示相同的信息。
+![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
+**【[新闻来源](https://www.businessinsider.com/gettr-trump-allies-get-accounts-hacked-july-4-launch-day-2021-7?international=true&amp;r=US&amp;IR=T)】**
 
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

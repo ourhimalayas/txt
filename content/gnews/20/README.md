@@ -1,27 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】07/04/2021:北朝鲜和中共翻脸打官司到国际法庭普京只以个人名义视频恭喜中共百年冥诞其他的号称兄弟的国家没有到场
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1371455/)
+## 2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371954/)
 
-**制作：澳喜粤语组**
+2021年7月4日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04113533/gettr_07-1.jpg)
+GETTR（盖特）是一个全新的社交媒体平台，建立在言论自由、独立思考、拒绝政治审查和“取消文化”的原则之上。盖特凭借一流的技术，目标是创建一个思想的市场，在全世界分享自由和民主
 
+**【新闻来源】**
 
+* * *
 
-**播报:【文依】资料整理:【An】【Ruby三鑫】【michelle喜乐】视频制作:【KEN】PPT：【文武全才】发布：【陆柒陆捌 】**
-
-摘要：
-
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04085624/7.3_page-0002.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04085804/7.3_page-0004.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04085717/7.3_page-0003.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04090008/7.3_page-0005.jpg)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04093635/7.3_page-0006-1.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

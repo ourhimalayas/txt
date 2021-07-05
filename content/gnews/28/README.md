@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 社交软件盖特(GETTR)上线第一天被黑瘫
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1372165/)
+## “无偏见”社交媒体应用程序在发布当天遭到黑客攻击，注册人数达到 50 万
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1372673/)
 
-2021年7月4日
+**编译：文章**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04201216/22-2.jpg)
+据路透社华盛顿7 月 4 日报道，美国前总统川普的高级顾问杰森.米勒说，周日推出的社交媒体网站遭到短暂黑客攻击，超过 500,000 人已注册使用该网站。
 
-由前任总统川普的盟友建立的新社交媒体平台-盖特(GETTR)在7月4日上线当天遭到黑客攻击。
-![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
-该平台最受欢迎的认证用户都被黑客入侵，这些用户大多数是川普的前助手，像迈克-彭佩奥、史蒂夫-班农、马乔里-泰勒-格林、哈兰-希尔、肖恩-帕内尔和亲川普的广播公司Newsmax的账户也没有幸免遇难。盖特的官方支持页面也成为攻击目标。所有这些账户的资料都被修改并且显示相同的信息。
-![Marjorie Taylor Greene, Jason Miller, and Mike Pompeo's accounts were hacked](https://i.insider.com/60e1c8eb22d19400191c90b1?width=700)
-**【[新闻来源](https://www.businessinsider.com/gettr-trump-allies-get-accounts-hacked-july-4-launch-day-2021-7?international=true&amp;r=US&amp;IR=T)】**
+GETTR 是一个带有帖子和热门话题的 Twitter 风格的平台，它在谷歌和苹果应用商店上宣传自己是“一个面向全世界人民的无偏见社交网络”。
 
-* * *
+米勒在给路透社的电子邮件声明中说：“问题在几分钟内就被发现并解决了，入侵者所能做的就是更改一些用户名。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+Salon 的一位作家在 Twitter 上发布了几个 GETTR 个人资料的截图，其中包括前国务卿迈克·蓬佩奥和米勒本人的个人资料，这些资料被修改为“朱巴巴格达在这里，在 twitter 上关注我:)”。
 
+当被问及新社交媒体上的安全问题时，米勒说情况已经“纠正”。
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+周日，前川普顾问史蒂夫.班农在新网站上的一篇帖子中将 GETTR 描述为“推特终结者”。
+
+川普已被永久禁止使用 Twitter，并被Facebook暂停使用至少到2023年。米勒本周早些时候告诉福克斯新闻，他希望特朗普能加入，但这位前总统正在考虑一些选择。他说，川普并没有为该平台提供资金。
+
+（本文只代表作者观点，与Gnews平台无关。）
+
+**来源**：[https://www.reuters.com/world/us/pro-trump-social-media-app-hacked-launch-day-half-million-sign-up-2021-07-04/](https://www.reuters.com/world/us/pro-trump-social-media-app-hacked-launch-day-half-million-sign-up-2021-07-04/)
+
+***校对发布：文顾***
+
++2

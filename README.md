@@ -12,11 +12,11 @@
 
 ---
 
-### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [川普前发言人推出新的社交媒体平台GETTR](/content/gnews/1/README.md)
+ ` 闪电侠`
 
-### [美国伟大之路还有多远&#8212;川普总统独立日前夜演讲有感](/content/gnews/2/README.md)
- ` 喜馬拉雅的文雅 Wenya Himalaya`
+### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [盖特(Gettr)，言论自由的新时代，对大科技公司说不!](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -27,14 +27,14 @@
 ### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月4日 文贵先生盖特 1](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [2021年7月4日文贵先生第二次直播同步精要文字版](/content/gnews/6/README.md)
+ ` 喜联盟七哥直播组`
 
-### [2021年7月3日 文贵先生盖特 6](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [“掀锅盖”系列：20210624台湾战争箭在玄上，以毒灭共大局已定](/content/gnews/7/README.md)
+ ` 路德社`
 
-### [2021年7月3日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [“掀锅盖”系列：20210626“台湾战事逼近，虚拟货币面临洗牌，盖特74上线，中共冥寿风声鹤唳](/content/gnews/8/README.md)
+ ` 路德社`
 
 ### [【NewsExpress】中共的毒药 荒诞的集体主义](/content/gnews/9/README.md)
  ` 索尼克`
@@ -45,76 +45,76 @@
 ### [【澳洲热点】短视频：澳媒警惕中共国对邻国的渗透，将其与纳粹相提并论](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [江绵恒是给7月3日在上海科大毕业典礼上卖疫苗的钟南山跑龙套的吗](/content/gnews/12/README.md)
+### [戳穿中共百年冥诞致词里的谎言——驴唇不对马嘴总结出来的三个历史阶段](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [《公民记者》李毅说实话被偷拍，爆出党国大秘密](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [戳穿中共百年冥诞致词里的谎言——共产党实现民族独立和人民解放了吗？](/content/gnews/14/README.md)
+### [江绵恒是给7月3日在上海科大毕业典礼上卖疫苗的钟南山跑龙套的吗](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【鹰眼墙国】中共百年贺电多来自第三世界国家](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [盖特一分钟宣传片](/content/gnews/19/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [【每日快讯】07/04/2021:北朝鲜和中共翻脸打官司到国际法庭普京只以个人名义视频恭喜中共百年冥诞其他的号称兄弟的国家没有到场](/content/gnews/20/README.md)
+### [《公民记者》李毅说实话被偷拍，爆出党国大秘密](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [2021/07/02参议员玛莎：福奇应该离职，接受国会的问询](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [戳穿中共百年冥诞致词里的谎言——共产党实现民族独立和人民解放了吗？](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [布莱恩-阿姆斯特朗会见美联储主席杰罗姆-鲍威尔](/content/gnews/22/README.md)
- ` 索尼克`
+### [【喜悦新闻】勇敢的西班牙医生对她所在医院提出指控](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [7月4日&#8211;加拿大枫叶农场多伦多街访](/content/gnews/23/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+### [最强大的 全球网络社交平台](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【热点播报】7月3日国际新闻速递](/content/gnews/24/README.md)
- ` 纽约香草山MOS02`
-
-### [【路德社即时简报】解读《独立宣言》](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [教皇前往罗马进行手术](/content/gnews/27/README.md)
- ` 索尼克`
-
-### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/07/04 英喜时事速递](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC每日热点资讯](/content/gnews/30/README.md)
+### [文贵先生20210624第二段盖特中提及盖特USA技术公司](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本赠300万剂疫苗给太平洋岛国 吁其团结抗衡中共国](/content/gnews/31/README.md)
+### [【路德时评摘要】2021.6.28早间：绿色贝雷帽是向总统汇报哪个是表面上拿着美国的钱，实际上在干反美的事](/content/gnews/19/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【战友心声】 伟大的1776](/content/gnews/32/README.md)
+### [2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【NewsExpress】被爆料4月1日载有中国公民的包机抵达萨摩亚 中共大使馆解释人员组成](/content/gnews/22/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】沙特和阿联酋拒绝让步 欧佩克濒临崩溃](/content/gnews/23/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】拜登总统在独立日演讲中说与美国打赌从来不是一个好的赌注](/content/gnews/24/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】FBI警告勒索软件攻击规模很大](/content/gnews/25/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】扎克伯格独立日的视频被评论成：让美国再次变得奇怪](/content/gnews/26/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】在加拿大的香港人 帮助逃离的新移民](/content/gnews/27/README.md)
+ ` 闪电侠`
+
+### [“无偏见”社交媒体应用程序在发布当天遭到黑客攻击，注册人数达到 50 万](/content/gnews/28/README.md)
+ ` 闪电侠`
+
+### [对盖特(Gettr)–新的自由言论平台启动日的攻击](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [社交软件盖特(GETTR)上线第一天被黑瘫](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021/07/04 英喜时事速递](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [脱北者朴妍美：解决朝鲜问题的唯一途径就是解决中共国的问题](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【战友心声】 伟大的1776](/content/gnews/33/README.md)
  ` 纽约香草山MOS03`
 
-### [【GETTR上线倒计时】杰森·米勒谈GETTR关于言论自由之核心理念](/content/gnews/33/README.md)
+### [【GETTR上线倒计时】杰森·米勒谈GETTR关于言论自由之核心理念](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【GETTR上线倒计时】杰森·米勒谈大科技寡头公司的权力与控制](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【GETTR上线倒计时】杰森·米勒谈GETTR正式上线及如何对抗中共水军](/content/gnews/35/README.md)
+### [【GETTR上线倒计时】杰森·米勒谈大科技寡头公司的权力与控制](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [7/3/2021 财经快讯：法国调查时装零售商在中共国隐瞒“反人类罪”，莫里森同意投资集团的收购要约](/content/gnews/36/README.md)
@@ -129,21 +129,27 @@
 ### [中共民生凋敝穷兵黩武军工现金增长86%高速现金下降54%](/content/gnews/39/README.md)
  ` Jimsolomon`
 
-### [新疆人权问题，引起了日本政客对中共的强烈质疑](/content/gnews/40/README.md)
+### [驳斥：盖特删帖功能怎么能说是“言论审查”？](/content/gnews/40/README.md)
+ ` 文名`
+
+### [盖特首发大捷，堪比以色列建国](/content/gnews/41/README.md)
+ ` 文名`
+
+### [福克斯称中共借百年庆公开威胁别国](/content/gnews/42/README.md)
+ ` HimalayaRussia`
+
+### [新疆人权问题，引起了日本政客对中共的强烈质疑](/content/gnews/43/README.md)
  ` 秘密翻译组G-Translators`
 
-### [扒一扒百年冥诞总加速师的“发炎”](/content/gnews/41/README.md)
+### [扒一扒百年冥诞总加速师的“发炎”](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【币圈】-数字货币动态- 2021.07.04](/content/gnews/42/README.md)
+### [【币圈】-数字货币动态- 2021.07.04](/content/gnews/45/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【九评摘要】九评之三：中国共产党的暴政](/content/gnews/43/README.md)
+### [【九评摘要】九评之三：中国共产党的暴政](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [7/4/2021 日本银河快讯：日本外务大臣表示各国将共同牵制中共；东京奥运会的开幕式和闭幕式预计将无人参加](/content/gnews/44/README.md)
+### [7/4/2021 日本银河快讯：日本外务大臣表示各国将共同牵制中共；东京奥运会的开幕式和闭幕式预计将无人参加](/content/gnews/47/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [你好朋友第4期:银河三帅快乐访谈白素贞如何从排斥爆料革命到快乐灭共全家总动员](/content/gnews/45/README.md)
- ` 喜马拉雅日本银河系农场`
 

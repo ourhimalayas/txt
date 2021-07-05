@@ -1,22 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年7月4日，美国国庆日，Gettr社交媒体平台隆重上线
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1371954/)
+## 【NewsExpress】扎克伯格独立日的视频被评论成：让美国再次变得奇怪
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1372641/)
 
-2021年7月4日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04113533/gettr_07-1.jpg)
-GETTR（盖特）是一个全新的社交媒体平台，建立在言论自由、独立思考、拒绝政治审查和“取消文化”的原则之上。盖特凭借一流的技术，目标是创建一个思想的市场，在全世界分享自由和民主
+美国独立日7月4日，马克·扎克伯格在 Instagram 上发布挥舞旗帜、骑冲浪板的独立日视频并提名“带我回家”。记者丹曼甘报道是这样形容的：Facebook首席执行官马克·扎克伯格 (Mark Zuckerberg) 在 Instagram 上发布了一段古怪的挥舞美国国旗、骑冲浪板的视频，以庆祝独立日。“7 月 4 日快乐！” 扎克伯格在帖子中写道，他在湖上灵巧地冲浪，身着星条旗，约翰·丹佛 (John Denver) 在西弗吉尼亚州的国歌“带我回家，乡间小路”播放。Facebook 上周赢得了一项反垄断投诉的驳回，该投诉可能迫使其放弃 Instagram 和 WhatsApp。然后在评论中的标题写上了：让美国再次变得奇怪。
 
-**【新闻来源】**
+因为大型社交媒体控制和审查言论自由，这位年轻地富翁引起了争议。在这个贴子地后面有人嘲讽地回复说：他需要回家审查更多美国的声音。这种自由赋予了他如此大的力量。是不是很棒。更有人指扎克伯格是在公然宣传违反第二修正案。
 
-* * *
+参考链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+[https://www.cnbc.com/2021/07/04/facebook-chief-mark-zuckerberg-odd-fourth-of-july-instagram-post-.html?utm\_term=Autofeed&utm\_medium=Social&utm\_content=Main&utm\_source=Twitter#Echobox=1625436234](https://www.cnbc.com/2021/07/04/facebook-chief-mark-zuckerberg-odd-fourth-of-july-instagram-post-.html?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_content=Main&amp;utm_source=Twitter#Echobox=1625436234)
 
+翻译整理：蓝精灵
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
++2

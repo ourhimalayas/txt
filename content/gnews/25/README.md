@@ -1,55 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】解读《独立宣言》
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1371959/)
+## 【NewsExpress】FBI警告勒索软件攻击规模很大
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1372652/)
 
-作者：香草山翻译部   GBW
+据（法新社、路透社）报道：美国联邦调查局周日（7 月 5 日）表示，针对美国 IT 公司的重大勒索软件攻击的“规模”，可能意味着调查人员将无法单独处理每个受害者。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+周五，就在美国 7 月 4 日长假周末之前，黑客袭击了为其他公司提供 IT 服务的公司 Kaseya，该公司发起了勒索软件攻击，该攻击可能针对多达 1,000 家企业。
 
+联邦调查局表示，它已与网络安全和基础设施安全局以及其他美国联邦机构一起展开调查，并“了解威胁的范围”。“如果你认为你的系统已被入侵，我们鼓励你采用所有推荐的缓解措施，按照 Kaseya 的指导立即关闭你的 VSA 服务器并向 FBI 报告，”该局在周日的一份声明中说，引用了签名网络软件都被攻击了。“尽管这一事件的规模可能使我们无法单独对每个受害者做出回应，但我们收到的所有信息都将有助于应对这一威胁。”
 
+总统乔拜登周六表示，他已下令进行调查，特别是要查明袭击是否来自俄罗斯，但表示还不能确定。最近在与俄罗斯总统普京的会谈中拜登曾提出了这一威胁。
 
-（2021年7月4日早，路安墨）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04104009/%E5%9B%BE%E7%89%871-15.png)
-1. 路德：《独立宣言》可能是历史上最重要的文件。
+勒索软件攻击通常涉及使用加密技术锁定系统中的数据，让公司付费以重新获得访问权限。Kaseya 将自己描述为中小型企业提供 IT 和安全管理服务的领先供应商。VSA 功能在于在让公司从一个点管理计算机和打印机网络。公司在周日的一份新声明中表示，他们正在“在所有地区全天候工作”，以使他们的系统重新运行并希望在几天内让他们的平台的受限版本再次运行。
 
-2. 路德：人生而平等。人有不可剥夺的天赋的权利，包括生命、自由和对幸福的追求。政府的存在是为了保护人们的权利，人们可以推翻政府。
+中断迫使瑞典连锁超市 Coop Sweden 于周六关闭，因为他们的收银系统已在袭击中被拆除。包括计算机集团 SolarWinds 和Colonial 石油管道在内的多家美国公司最近也成为勒索软件攻击的目标。Kaseya 周日表示，它聘请了网络安全公司 FireEye 来帮助处理影响全球数百家企业的安全漏洞的后果。总部位于迈阿密的 Kaseya 在其网站上发布的消息中表示，其员工“一直在积极与FireEye 和其他安全评估公司合作”，以调查此次袭击事。FireEye也向路透社证实，它正在与 Kaseya 合作。
 
-3. 路德：美国人一直在按照《独立宣言》去做，保障人的权利，才如此伟大。
+参考链接：
 
-4. 安红：毛泽东多年来一直称赞7月4号，所以他是骗子。
+[https://www.straitstimes.com/world/united-states/fbi-warns-of-large-scale-in-us-ransomware-attack?utm\_source=twitter&utm\_medium=social-organic&utm\_keyword=dlvr.it](https://www.straitstimes.com/world/united-states/fbi-warns-of-large-scale-in-us-ransomware-attack?utm_source=twitter&amp;utm_medium=social-organic&amp;utm_keyword=dlvr.it)
 
-5. 墨博士：中国人没有“独立”的概念，中国人一直有“统一”情结。“统一”就是对自由的扼杀。
+翻译整理：蓝精灵
 
-6. 路德：“独立”最重要的是人的独立，而不是政府独立。
+校对发布：Penny
 
-7. 路德：《独立宣言》是和上帝的契约。
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-8. 路德：最初只有56人签署了宣言。后来越来越多的人自愿加入。时间证明一切。
-
-9. 塞林上校在推特上发了一张他在战场上的照片。路德：塞林上校为《独立宣言》中的权利而战。这也是一个信号，灭共的战争已经进入下一个阶段。
-
-10. 安红：美国人有持枪的权利，所以他们可以推翻政府。
-
-11. 安红：只有国家爱人民，人民才会为之奋斗。
-
-笔记仅作参考，内容以路德社节目为准。
-
-
-
-校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
