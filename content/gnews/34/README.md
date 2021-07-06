@@ -1,26 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抗中秀肌肉！美日联合军演展日本西南离岛制空能力
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373602/)
+## 好消息！加拿大没有通过言论审查提案C-10
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1375151/)
 
-2021年7月5日
+加拿大多伦多枫叶农场 阿黎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05203020/5df15f292400007c0a5a3037.png.jpg)图片来源：Huffington Post
+加拿大保守党议员皮埃尔·波利耶夫（Pierre Poilievre)今天在他的推特账号上向大众告知大好消息，由自由党提出的言论审查法案C-10未被通过。
 
-![美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）]( "美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）")![美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）](https://img.ltn.com.tw/Upload/news/600/2021/07/02/phpBmgBK6.jpg "美國及日本於6月24日至7月11日舉行「東方之盾（Orient Shield）」軍事演習。（圖翻攝自Orient Shield軍演官方臉書）")
+波利耶夫议员说，特鲁多曾警告议会，大选提前，如不抓紧做法案通过程序，这项法案可能会死（于腹中）。即便特鲁多再次当选，他们（自由党）也要从头开始这项法案的程序。如果保守党获胜，保守党将确保这项法案永远不见天日。
 
-【即时新闻/综合报导】美国及日本于6月24日至7月11日举行为期18日的“东方之盾（Orient Shield）”军事演习。这是军演设立36年来规模最大的一次，也是参演人数最多的，共计有日本陆上自卫队大约3000人，美国陆军第40步兵师以及驻日美军共1700名军人。两国兵力在北海道实行“跨领域作战”，将网路、太空及咨询等元素融入演习，美国陆军的爱国者3型（MIM-104）也首次向中共国展示美日联合作战能力。
+谈到C-10法案未被通过的意义，波利耶夫说：“这项法案将控制你看到什么和你说什么。”一位前加拿大广播电视和通讯委员会委员曾说：“这项法案将是一记恐吓自由话语权的重锤！”这个“重锤”看来暂时没有砸下来。
 
-**【[新闻来源](https://news.ltn.com.tw/news/world/breakingnews/3589502)】**
+波利耶夫议员还谈到保守党人士使用了所有可能的程序上的手段，阻止该提案的通过。参议院今年夏天关门了！他们的努力可能使通过该法案的时间拖延了三到四个星期,避免了特鲁多自由党占多数的参议院将该法案通过。加拿大参议员理查德说：“这项法案不需要修改，直接滑着滑板从其心脏穿过！”
+
+波利耶夫议员继续说，这只是开始，我们必须去战斗！我们能赢！我们从我们的祖先那里继承了自由表达的权利，我们有责任为了我们的子孙后代将其继承下去。我们必须准备好下一次特鲁多再提出类似的法案，我们应该怎样反抗和制止。
+
+加拿大自由党利用中共病毒疫情，无视加拿大仍是一个有自由、民主和法制的体制，公然提出C-10这样共产主义国家才敢实施的禁言法案，企图剥夺宪法规定的最基本的公民权利-加拿大人的言论自由，可以说”Good try(好一个试验）！”如果没有那些勇敢的保守党议员的努力，让C-10法案通过，加拿大即刻成为共产主义国家，成为另一个委内瑞拉！
+
+正如皮埃尔·波利耶夫议员所说，这只是刚刚开始。我们只是成功阻击了加拿大自由党这些企图将加拿大人变成他们少数人的奴隶的人的一次猛烈攻击，下一次肯定会再来，加拿大人准备好了吗？
+
+相关链接：
+
+
+
+> This is really a good news 👍👍👍 [https://t.co/w16tqo9oIf](https://t.co/w16tqo9oIf)
+> — Ah Li (@AhlishirleyLi) [July 5, 2021](https://twitter.com/AhlishirleyLi/status/1412078049839828999?ref_src=twsrc%5Etfw)
+
+
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+编辑，发稿 Spirit
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-0
++4

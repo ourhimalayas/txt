@@ -1,57 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】 全世界关注习近平头破血流毒咒
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1374429/)
+## 新西兰工党批北京 执政党议员指控中共强摘人体器官
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1375593/)
 
-作者：香草山翻译部   GBW
+2021年7月5日
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05231330/0-10.png)
 
+编辑摘要：
 
+新西兰国家广播电台（RNZ）周一（7月5日）播出节目，访问执政工党国会女议员华尔（Louisa Wall）。华尔引述英国御用大律师尼斯（Geoffrey Nice）发表的调查报告，称中共国持续有政治犯被活摘器官如心脏、肺、肝、眼睛和皮肤等，并流入黑市人体器官交易市场供应全球需要。华尔相信中共国有100万维吾尔族人遭当局关押在“再教育营”，其中不少人被强迫劳动，例如采摘棉花。
 
-（2021年7月5日早，路安墨 ）
+新西兰执政工党的国会议员中少有针对中共国批评，即使谈到中共国也少用负面字眼。目前新西兰总理及外长拒绝接受节目访问，中共国驻当地大使馆也拒绝评论报道内容。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05103623/%E5%9B%BE%E7%89%8716-1.png)
+**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210705-%E6%96%B0%E8%A5%BF%E5%85%B0%E5%B7%A5%E5%85%9A%E4%B9%9F%E6%89%B9%E5%8C%97%E4%BA%AC-%E6%89%A7%E6%94%BF%E5%85%9A%E8%AE%AE%E5%91%98%E6%8C%87%E6%8E%A7%E4%B8%AD%E5%9B%BD%E5%BC%BA%E6%91%98%E4%BA%BA%E4%BD%93%E5%99%A8%E5%AE%98)**】**
 
-1. 习近平百年党庆“头破血流”的言论引发全球热议。
+* * *
 
-a. 路德：习心虚了。有实力有信心的领导会这么说吗？
-
-b. 路德：都什么时代了？还用14亿中国人血肉筑城的钢铁长城？美国直接斩首就可以了。
-
-2. 中共：美军离开阿富汗的巴格拉姆空军基地。塔利班抢夺地盘。
-
-a. 路德：又在宣传人民战争。
-
-b. 路德：没有必要在地面上建立基地，因为美国可以从太空发起攻击。
-
-c. 路德：阿富汗的年轻人是在美国文化的影响下长大的，所以他们不像老一代人那样被极端思想洗脑。这就是美国在阿富汗二十多年来一直在做的事情，让阿富汗人有自由思想并能保护自己。
-
-d. 墨博士：中国人在中共之后必须有独立的思想，以避免再次陷入另一个独裁统治。人们要有自由选择的权利。
-
-e. 路德：中共没有实力，只会找托，制造幻觉。
-
-f. 路德：有人说美国没人情。人情有两面性。不讲人情讲法律，才有人权。
-
-笔记仅作参考，内容以路德社节目为准。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-校对/发稿 ：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

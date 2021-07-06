@@ -1,121 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/07/05 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373729/)
+## 美国国庆日美国政要推文精选： 在美国庆祝了 245年的自由的同时 ，中共 庆祝了 它100 年的压迫，我们必须追究他们的责任！
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1375206/)
 
-收集：Alicia，Cindy，Daniel，Filon，Kangen，The flying hawk，文大石
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+众议员布莱恩·马斯特： 在美国这个周末庆祝了 245 年的自由的同时 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 庆祝了 它100 年的压迫。我们必须追究他们的责任！
 
-## 英国伦敦喜庄园Gnews ：[盖特(Gettr)，言论自由的新时代，对大科技公司说不!](https://gnews.org/zh-hans/1371965/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04083644/Morgan-Stanley-office-4.jpg)
 
+> While America celebrated 245 years of freedom this weekend, the Chinese Communist Party celebrated 100 years of oppression. We must hold them accountable! [pic.twitter.com/ZXnaA5wXn9](https://t.co/ZXnaA5wXn9)
+> — Rep. Brian Mast (@RepBrianMast) [July 5, 2021](https://twitter.com/RepBrianMast/status/1412150541396975620?ref_src=twsrc%5Etfw)
 
-> 评论：盖特(Gettr)首席执行官杰森·米勒接受采访时说“GETTR正在建立一个专注于言论自由的“无取消区”，拥有“卓越的技术”，这将是硅谷所羡慕的。” 拥有言论自由是每个人都向往的，这是上帝赋予我们的权利。这就是盖特能拥有美好未来、所有人都会向往的原因。
 
 
-## GNews-CPA Jim : [中共民生凋敝，穷兵黩武，军工现金增长86%，高速现金下降54%](https://gnews.org/zh-hans/1369517/)
+众议员兰斯·古登: 民主党政客、好莱坞名人和 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 有一个共同点： 他们都在七月四日贬低美利坚合众国。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03120353/wadd.jpeg)
 
 
-> 评论：以史为鉴，任何一个穷兵黩武和专制国家最终的下场就是光速走向灭亡，中共自身必将也会是同一个下场。
+> Democrat politicians, Hollywood celebrities, and Communist China have one thing in common:
+> 
+> They all disparaged the United States of America on the Fourth of July.
+> — Lance Gooden (@Lancegooden) [July 5, 2021](https://twitter.com/Lancegooden/status/1412103066753581061?ref_src=twsrc%5Etfw)
 
 
-## 社评：美国在焦虑和不确定感中迎来国庆日
 
-![FTChinese a Twitter: &quot;#付费精选【FT社评：美国大选若胜负分明将缓和市场紧张情绪】疫情恶化和美国 大选临近让全球股市经历了3月以来最糟的一周，如果美国大选结果清晰，有望部分缓解市场焦虑。https://t.co/aS2vXXSPpG… &quot;]()![FTChinese a Twitter: &quot;#付费精选【FT社评：美国大选若胜负分明将缓和市场紧张情绪】疫情恶化和美国 大选临近让全球股市经历了3月以来最糟的一周，如果美国大选结果清晰，有望部分缓解市场焦虑。https://t.co/aS2vXXSPpG… &quot;](https://pbs.twimg.com/media/El3Bd-NU0AAGaCS.jpg)
+众议员肯·巴克： 自1776年7月4日以来，美国成功登陆诺曼底海滩，将欧洲从纳粹暴政中解放出来，为结束奴隶制而进行内战，并领导自由世界在长达数十年的反对 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 斗争中取得胜利——这一切都是以人人享有自由和正义的名义进行的。
 
 
-> 评论：共产党，你敢把建党100年当天发生的事情告知社会吗？美国不是你CCP，人家有三百多年的根基在支撑，你CCP有啥，除了14亿百姓当肉票当韭菜收割，你这百年都创造了什么？
 
+> Since July 4, 1776, America has stormed the beaches of Normandy to free Europe from Nazi tyranny, fought a Civil War to end slavery, and led the free world to victory in a decades-long struggle against communism — all in the name of liberty and justice for all.
+> — Rep. Ken Buck (@RepKenBuck) [July 4, 2021](https://twitter.com/RepKenBuck/status/1411823751805743107?ref_src=twsrc%5Etfw)
 
-## 澎湃：钟南山：放心注射国产疫苗，目前中共国有71种疫苗正在研发
 
-![钟南山：放心注射国产疫苗，目前中国有71种疫苗正在研发|中国|毕业典礼|上海科技大学_新浪科技_新浪网]()![钟南山：放心注射国产疫苗，目前中国有71种疫苗正在研发|中国|毕业典礼|上海科技大学_新浪科技_新浪网](https://n.sinaimg.cn/spider202173/434/w700h534/20210703/49ef-krwipas5710406.jpg)
 
+前国务卿蓬佩奥： 如果我们教导说美利坚合众国的建立基础在某种程度上是有缺陷的。它是腐败的。是种族主义的。那真的很危险。它击中了我们国家的根基。 【附newsmax新闻：像中共国这样的对手从美国的种族分裂中获益】
 
-> 评论：钟南山称：中国的疫苗，对德尔塔变异株都有效，目前中国有71个(疫苗)正在研发。是疫苗大跃进，还是早就掌握了德尔塔毒株？
 
 
-## 中国新闻网：中国多城房贷利率走高 专家：“杠杆炒楼时代”一去不返
+> If we teach that the founding of the United States of America was somehow flawed. It was corrupt. It was racist. That's really dangerous. It strikes at the very foundations of our country. [https://t.co/WWwqs1VAo6](https://t.co/WWwqs1VAo6)
+> — Mike Pompeo (@mikepompeo) [July 5, 2021](https://twitter.com/mikepompeo/status/1412109433975488513?ref_src=twsrc%5Etfw)
 
-![中国多城房贷利率走高专家：“杠杆炒楼时代”一去不返]()![中国多城房贷利率走高专家：“杠杆炒楼时代”一去不返](http://respub.xrdz.dzng.com/pic_file//wechat/20210703/97e808b1b926c61f781cc897af3a2017.jpg)
 
 
-> 评论：继上周不少城市爆出“停贷”之后中共国楼市危机的又一体现。文中专家称这并不是楼市缺钱的表现，不会持续太久，主要是为了遏制炒房，专家还说：“无论是需求端的‘房贷荒’还是供给端的开发商融资“紧箍咒”，都反映了同样的政策方向”。都荒了还涨价。
 
 
-## 澎湃：二次入伍可直接任军士，《征兵工作条例（修订草案）​》征求意见
-
-![征兵政策将有变动，政审不合格有哪些情况？大学生要提前了解|警校|参军_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0626%2F5272c360j00qvazmo0011c000g500alc.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
-
-
-> 评论：中共国今年持续不断地积极做出战争准备。
-
-
-## 中国青年网-境外媒体：美日暗中加紧备战“协防台湾”
-
-![]()![](https://inews.gtimg.com/newsapp_bt/0/13667148541/1000.jpg)
-
-
-> 评论：美日用实际行动向中共表明了保护台湾不被武力侵犯的决心，而中共对于是否武统台湾似乎已经陷入了进退两难的境地。
-
-
-## 滴滴出行：坚决按要求下架整改 已下载用户可正常使用
-
-![滴滴]( "滴滴")![滴滴](https://img1.xcarimg.com/news/3/38634/38635/846_635_20210704222651376424919105274.jpg "滴滴")
-
-
-> 评论：中共国有头有脸的私人企业，最终都会被CCP强奸一番的，正如爆料革命文贵先生说，共产党就是流氓黑社会，CCP把你杀了，你还得补子弹费给他。
-
-
-## 台湾民众“百米冲刺”抢疫苗残剂！网友：很悲哀
-
-![台湾民众“百米冲刺”抢疫苗残剂！网友：很悲哀|台湾省|新冠肺炎_新浪新闻]()![台湾民众“百米冲刺”抢疫苗残剂！网友：很悲哀|台湾省|新冠肺炎_新浪新闻](https://p.ivideo.sina.com.cn/video/403/899/535/403899535.jpg)
-
-
-> 评论：当台湾陷入疫苗漩涡，就知道了死亡率一定会增加的，悲哀的是，台湾政府到现在都不敢追溯病毒来源。
-
-
-## 10年前中国被拒门外，10年后美国想进入中国空间站，中国开出条件
-
-![10年前中国被拒门外，10年后美国想进入中国空间站，中国开出条件_考克斯]()![10年前中国被拒门外，10年后美国想进入中国空间站，中国开出条件_考克斯](https://p5.itc.cn/images01/20210704/8fa10820771940eea0beab2b7ec59b8f.jpeg)
-
-
-> 评论：CCP，你算算你还能活几天？人不灭你，天都要灭你。
-
-
-## 网易新闻：突发利空！中芯国际核心技术人员离职！曾任技术研发副总裁，近千万市值限制性股票不要了！37万股民懵了…
-
-![美国对中芯国际实施出口限制：存在用于军事最终用途的不可接受风险](https://s.rfi.fr/media/display/cc904570-ef75-11ea-bc4c-005056a964fe/w:1280/p:16x9/FLX6o83NZAOqStBsgbda0uSCi-o9jYDISaPzx0mj88c.webp)
-
-
-> 评论：可以预见的是，伴随着经济指数靠键盘更难撑下去的局面，类似“突发”、“股民懵了”的新闻会更多的被“披露”出来。
-
-
-## 网易新闻：史上“最狠”学区房终极大招：一个时代结束？上千万打水漂
-
-![北京家长们炸锅！史上“最狠”学区房终极大招，一个时代结束？上千万打水漂|实验二小|房源|学位房|入学_网易新闻](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0705%2F85b9347aj00qvqauz000uc000c8008hc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-
-
-> 评论：墙内民众仅为自身考量就需要深思一个问题，人生短短几十年，甚至一辈子打拼下来的财富，单纯寄希望于这一个个朝令夕改的政策，寄希望于一个没有监督的政党。这种侥幸的想法本身就是幼稚不切实际的空中楼阁，随时崩塌。
-
-
-## Bilibily：老年痴呆患者看到山竹落地，以为是炸弹飞扑挡住
-
-![泰国山竹、红毛丹陷“低价滞销”泥潭榴莲果商感慨：感谢中国，我们走上了致富路- 中国水果门户]()![泰国山竹、红毛丹陷“低价滞销”泥潭榴莲果商感慨：感谢中国，我们走上了致富路- 中国水果门户](https://s3.amazonaws.com/www.chinafruitportal.com-uploads/2017/02/%E5%B1%B1%E7%AB%B9%E8%BF%91%E7%BC%98%E7%89%A9%E7%A7%8D/%E5%B1%B1%E7%AB%B9%E8%BF%91%E7%BC%98%E7%89%A9%E7%A7%8D.jpg)
-
-
-> 评论：看见危险不躲，看见炸弹要扑，从3岁小儿到老年痴呆症患者，都难逃中共国的反人性洗脑教育毒害。看似“英雄”的壮举，本质上不过是牺牲底层“傻瓜”保护某些“更高贵”的阶级这一理念。
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 +2

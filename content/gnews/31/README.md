@@ -1,16 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美日联合军演：日协防台湾可能性高
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1373922/)
+## 日本副首相：若中共犯台，日或行使“有限集体自卫权”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1375456/)
 
 2021年7月5日
 
-![](https://s.yimg.com/ny/api/res/1.2/4OFH9tYBqR2gx37E5us7SA--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTU0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/aemh53dSPcPZgqyyrWzs.A--~B/aD01NzY7dz0xMDI0O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/zh-tw/ftvn.com.tw/47b8bef435d47657cd38d12b70308ab3)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05222139/0-9.png)日本副首相兼财务大臣麻生太郎。路透社
 
-6月24日，美日举行为期18天的“东方之盾”联合军演，是近36年来规模最大的一次，假想敌指向近来才刚盛大庆祝百年党庆的中共国。美国《富比士》杂志指出，台湾和冲绳距离仅700公里，关系就像鼻子和眼睛，一旦台海打起来，台湾跟冲绳之间的宫古海峡，也很危险，因此日本协防台湾的机会相当高。
+日本时事通讯社报道，日本副首相兼财务大臣麻生太郎7月5日在东京发表演说时表示，中共若侵犯台湾，日本政府将认定是安全保障相关法规定的“存亡危机事态”，有可能行使“有限集体自卫权”，美日需共同保卫台湾。
 
-**【[新闻来源](https://tw.news.yahoo.com/%E7%BE%8E%E6%97%A5%E8%81%AF%E5%90%88%E8%BB%8D%E6%BC%94-%E5%AF%8C%E6%AF%94%E5%A3%AB-%E6%97%A5%E5%8D%94%E9%98%B2%E5%8F%B0%E7%81%A3%E5%8F%AF%E8%83%BD%E6%80%A7%E9%AB%98-052856838.html)】**
+“存亡危机事态”是指与日本关系密切的国家一旦遭到袭击，形成“威胁日本存亡明显危险事态”，这是有限集体自卫权行使的必要条件之一。
+
+**【**[新闻来源](https://udn.com/news/story/6809/5580291)**】**
 
 * * *
 
@@ -20,5 +22,7 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
+
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-+1
+
+0

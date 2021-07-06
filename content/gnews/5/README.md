@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普前发言人推出新的社交媒体平台GETTR
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1372752/)
+## GETTR 甫上市 就遭黑客攻击
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1372875/)
 
-**编译：文章**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04210106/23-3.jpg)
-**前总统川普的一名前发言人杰森-米勒在7月4日推出了一个新的社交媒体平台，并宣布其将独立于那些控制言论自由的科技巨头**。
+**撰稿:牛小妹** **责编：人间四月**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04220017/1-17.jpg)
+根据美国网路媒体《The Verge》报道，前川普发言人杰森•米勒 (Jason Miller) 所主持的新社交媒体平台 Gettr 于7月4日正式上市，当天即遭遇短暂的黑客攻击，几个经过验证的用户资料页面因此遭到篡改。
 
-GETTR于美国东部时间7月4日上午10点正式上线，杰森-米勒上个月成为该公司的首席执行官。
+一些知名共和党人的账户，包括米勒、前国务卿迈克蓬佩奥(Mike Pompeo)和众议员(Marjorie Taylor Greene)，他们的用户名被替换成同样的内容：“@JubaBaghdad 在这里:) ^^ 自由巴勒斯坦^^ 。”。 Twitter 用户@JubaBaghdad 告诉《 Insider》，破解页面很容易，而且他这样做“只是为了好玩”。
 
-“**GETTR是对来自硅谷的社交媒体寡头的直接挑战，还有什么比7月4日更适合宣布独立于他们的明目张胆暴政的日子呢？**” 米勒在一份声明中说。”GETTR是思想的市场。我们不会因为人们的政治观点而取消他们，而且GETTR提供的功能和技术远比其他任何东西都要好。”
+米勒通过电子邮件给《The Verge》 的一份声明中说，问题已被找到并“在几分钟内解决，入侵者只是更改了一些用户名。”他补充说，Gettr 已经有“超过50 万用户”注册该平台。
 
-据米勒称，**GETTR是苹果应用商店中下载量第九大的免费应用，甚至在正式推出之前就已经是Google Play中下载量第二大的免费应用**。
+据 《Politico 》报道，Gettr在 6 月份已启动，并且可以容纳 3 分钟的视频、777 个文字和直播视频。Gettr的应用程序可在谷歌和苹果商店下载，它的标语是“创意平台”。Gettr 是一个“基于言论自由、独立思考、没有政治审查和’取消文化’的一个全新的社交媒体平台。”
 
-米勒说：”用户将不必在技术较差的保守派平台和压制其言论自由的自由派应用之间做出选择。”有了GETTR，他们将拿回他们的言论自由，同时拥有一个卓越的产品。”
+此次的网络黑客攻击，表示GETTR的实力惊人，直接威胁到企图掌控舆论、任意审查言论的媒体如脸书、油管、推特及中共的大内外宣，当然也敲警了这些肆意删除帖子的科技寡头的丧钟！
 
-米勒的声明还介绍了GETTR的一些功能，包括能够发布比Twitter更长的信息（最多777个字符）和视频，更重要的是，注册盖特后，用户将可以选择“将他们现有在推特上的记录导入这个新平台”。**据米勒说，GETTR这个名字 “来自于在社交媒体上作为一个社区’聚在一起’的想法”**。
+文章链接:
 
-GETTR上线当天，注册人数已超过50万。
-
-（本文只代表作者观点，与Gnews平台无关。）
-
-**参考链接**：[https://nypost.com/2021/07/04/ex-trump-spokesman-launches-new-social-media-platform-gettr/](https://nypost.com/2021/07/04/ex-trump-spokesman-launches-new-social-media-platform-gettr/)
-
-***校对发布：文顾***
+[https://www.google.com/amp/s/www.theverge.com/platform/amp/2021/7/4/22563026/former-trump-gettr-platform-hacked-social-jason-miller](https://www.google.com/amp/s/www.theverge.com/platform/amp/2021/7/4/22563026/former-trump-gettr-platform-hacked-social-jason-miller)
 
 0
