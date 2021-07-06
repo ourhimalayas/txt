@@ -1,30 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国体制建立在谎言上，它无法埋葬自由世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1376195/)
+## 习近平七一演讲稿中英文版本区别所透露的本质
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1373061/)
 
-2021年7月6日
+中共百年冥诞的天安门集会活动上，习近平在天安门城楼发表了讲话。随后几个小时新华网就公布了习演讲稿的英文版，而世界各大主流媒体也都转发新华网的英文版本，却没有根据习的中文讲话自己进行翻译。
 
-![]()![](https://static01.nyt.com/images/2021/07/05/opinion/06stephens-print/05stephens-lead-master1050.jpg)
+事实上，众所周知，中共的各种重要讲话和文件经常存在中英版本有“出入”的现象，特别是一些“狠话”，中文语境才容易理解的“黑话”，只有中文读者可以明白背后的含义，而其英文的翻译却故意淡化回避要透露的真实信息，其目的就是要欺骗中国老百姓以及全世界人民。
 
-国际象棋特级大师，前国际象棋世界冠军加里·卡斯帕罗夫(Garry Kasparov)精辟地总结了过去18个月的苦难，说：“中共给了我们病毒，而自由世界给了我们疫苗”。必须承认这一点：若不是在危机刚爆发的关键时期中共官员百般掩盖，病毒可能有机会得到控制。相反，中共政府一直在撒谎欺骗世界。
+让我们来看一下这次习的重要讲话中英版本到底有什么不同？
 
-中共国自毛泽东以来最激进、最专制的领导人习近平发表了讲话，他警告，任何想要“欺负、压迫、奴役”中国的人都将在“钢铁长城”面前碰得头破血流。事实上，没有人想这样对待中国。50年前，亨利·基辛格密访中国，把在毛泽东灾难性的领导下坠入深渊的中国拯救出来，努力将贫穷的中国变成富裕的国家。如今看来，这一努力是失败的。
+（1）*We Chinese are a people who uphold justice and are not intimidated by threats of force. As a nation, we have a strong sense of pride and confidence. We have never bullied, oppressed, or subjugated the people of any other country, and we never will. By the same token, we will never allow any foreign force to bully, oppress, or subjugate us. Anyone who would attempt to do so will find themselves on a collision course **(collide with broken skulls onto)** with a great wall of steel forged by **(the blood and flesh of)** over 1.4 billion Chinese people.*
 
-北京没有用其不断增长的经济财富创造更大的政治自由。它加入全球秩序并不是为了遵守规则，而是进行大规模窃取知识产权，进行单方面的剥削。对北京来说，威风门面背后的裂痕就是它的政权是建立在谎言基础上的。比如习近平在讲话中略去的中国大饥荒、文化大革命，毛泽东害死了多达8000万本国公民，以及掩盖对新疆维吾尔族的人权暴行事实。
+*中国人民是崇尚正义、不畏强暴的人民，中华民族是具有强烈民族自豪感和自信心的民族。中国人民从来没有欺负、压迫、奴役过其他国家人民，过去没有，现在没有，将来也不会有。同时，中国人民也绝不允许任何外来势力欺负、压迫、奴役我们，谁妄想这样干，必将在**14亿多中国人民用血肉筑成的钢铁长城面前碰得头破血流！***
 
-北京自己的谎言机器将最终如何拖垮整个体制是无法预测的。但毫无疑问，这个体制已经遭到了严重削弱。以准确信息为载体的真相是良性决策的必需条件。以政治诚实为载体的真相对创造社会信任至关重要，而社会信任才是健康社会的根基。中共国的政权两者都不具备。自由世界也存在虚假信息和不诚实政治的巨大问题。但我们仍有一个足够活跃的思想市场，真相很快就能找到进来的路。
+上面的黑体部分就是中英版本的区别，很明显中共把它誓言让中国人民当肉票的血腥威胁以及邪恶用意，偷偷在英文版本隐藏了起来。这种黑社会绑匪一样的语言，尽显流氓本质！
 
-**【[新闻来源](https://cn.nytimes.com/opinion/20210706/us-china-covid-lies/zh-hant/dual/)】**
+（2）*Resolving the Taiwan question and realizing China’s complete reunification is a historic mission and an unshakable commitment of the Communist Party of China. It is also a shared aspiration of all the sons and daughters of the Chinese nation. We will uphold the one-China principle and the 1992 Consensus, and advance peaceful national reunification. All of us, compatriots on both sides of the Taiwan Strait, must come together and move forward in unison. We must take resolute action to utterly** defeat (smash)** any attempt toward “Taiwan independence,” and work together to create a bright future for national rejuvenation. No one should underestimate the resolve, the will, and the ability of the Chinese people to defend their national sovereignty and territorial integrity.*
 
-* * *
+*解决台湾问题、实现祖国完全统一，是中国共产党矢志不渝的历史任务 ，是全体中华儿女的共同愿望。要坚持一个中国原则和“九二共识”，推进祖国和平统一进程。包括两岸同胞在内的所有中华儿女，要和衷共济、团结向前，坚决**粉碎**任何“台独”图谋，共创民族复兴美好未来。任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力！*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+黑体部分的粉碎一词，显然英文再次偷梁换柱地用“打败”来替代。而郭先生在七一当天的直播时就提到，“粉粹”这个词是中共一贯使用的“黑话”，当中共提到要“粉碎”某人时，就是让那个人彻底消失，不惜用各种手段和方式，任何深谙中共体制权力斗争的人，甚至所有经历过中共国的各种政治运动，特别是了解天安门六四运动中共用坦克碾压手无寸铁学生历史的人们， 都能体会到这个词的狠毒和残忍！ 而这次中共把这个词用在了台湾问题上，这可以很明确地透露出一个信号，中共对台湾下手的决心已定，即使整个宝岛台湾生灵涂炭也在所不惜！
 
+至今还被中共蒙蔽真相的人们需要醒来了，善良单纯的台湾人民乃至西方民众需要醒来了！你们看到读到中共的各种对外宣传文字，都是经过修饰和避重就轻的谎言，他们每次向外发出危险信号的时候，都是用这样的“黑话” “暗语”，只有真正在中共国内生活经历过的人们，才有可能看懂，而这样的内外欺骗是中共自成立以来一贯的手段。战争的威胁和危险迫在眉睫，请全世界追求正义、真相与和平的人们认清中共的丑恶嘴脸，消灭中共，刻不容缓！
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+[习七一讲话中英对照差异参考](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05001640/%E4%B9%A0%E4%B8%83%E4%B8%80%E8%AE%B2%E8%AF%9D%E4%B8%AD%E8%8B%B1%E5%AF%B9%E7%85%A7%E5%B7%AE%E5%BC%82%E5%8F%82%E8%80%83.pdf)[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05001640/%E4%B9%A0%E4%B8%83%E4%B8%80%E8%AE%B2%E8%AF%9D%E4%B8%AD%E8%8B%B1%E5%AF%B9%E7%85%A7%E5%B7%AE%E5%BC%82%E5%8F%82%E8%80%83.pdf)
+
+撰稿：BillWilliam, 人间四月
+
++3
