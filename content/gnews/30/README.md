@@ -1,27 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼的行为是在认真对待中国吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1375537/)
+## 【新闻快讯】Netflix 剧集出现南海九段线，遭越南下架
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1375770/)
 
-**编译：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05224314/28-3.jpg)
-美国国防领导人有一个问题：他们言行不一。这种不匹配在五角大楼的最新预算报告中很明显，“说到没有做到”的差距破坏了国会和美国人民的信任。
+**作者**：香草山健身部 Jack Li文阳
 
-军事领导人将中共视为美国的第一大挑战，通常称北京为“一个越来越有能力的战略竞争对手”，正如参谋长联席会议主席马克·米利将军警告的那样，或者称为“步步紧逼”的威胁。然而，预算要求却降低了海军和空军的部分，但这两个军种在西太平洋的任何冲突中都将扮演重要角色，以此能具备应对该地区威胁的能力吗。与此同时，预算承诺未开发的武器可能需要几十年才能进入舰队，而这部分开发的资金来自“撤资投资”战略。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05013407/WhatsApp_Image_2020-10-24_at_04.33.05-5.jpeg)
 
-海军希望退役 15 艘舰艇，包括 7 艘导弹巡洋舰和 4 艘濒海战斗舰，同时只采购两艘水面战舰和两艘潜艇。（国会的预算草案将购买另一艘驱逐舰并限制退役。）尽管海军加快 F/A-18 退役，但2021年海军航空采购额下降了 15.6%。驻扎在日本以应对来自中共威胁的罗纳德·里根号航空母舰正在监督美军在中东阿富汗的撤退，因为没有其他航空母舰可用。与此同时，中共却以惊人的速度建造军舰。2010年，美国海军比中国海军多68艘。今天，却比中共少了 63艘，10 年内仅增加了131艘船。
 
-空军也在效仿五角大楼“撤资投资”的做法。与 2021 年相比，作战飞机采购量下降了 22%。该部队希望退役 137 架飞机，是其计划采购数量的两倍多。去年 17 架 B-1 退役后，空军的轰炸机库存处于高级官员所说的最低水平。弹药采购量下降了 40% 以上。中共近年来专注于采购先进飞机，拥有世界第三大空军。此外，中共拥有广泛的陆基常规导弹力量，包括被称为“航母杀手”的DF-26，能够打击关岛。
 
-国防预算告诉美国人民和盟友，虽然我们说中共是一个威胁，但我们并没有采取实际行动做出回应。以米利将军 6 月 17 日对中国入侵台湾威胁的评估为例：“我认为中共在近期采取武统的可能性很小。”
 
-编者认为美国已经将中共的军事扩张视作一个赤裸裸的威胁，但从美国军事部门的行动来看，似乎并不能很好地体现这点认识，这种怪异的差距究竟是美国评估过中共的军事实力，认为只是徒有虚表，还是美国所谓的“亲共”团体还在为中共的喘息制造更多的时间窗口，可能前者更有可能。
 
-（本文只代表作者观点，与Gnews平台无关。）
+Netflix 的澳洲间谍剧集*Pine Gap*片中出现划有中共国声称的南海九段线地图，因此遭到越南政府下令要求下架，Netflix 证实已在越南下架了这部剧集。不过，越南以外的国家仍可以照常收看这部剧集。
 
-**新闻来源**：[Does the Pentagon Take China Seriously? – WSJ](https://www.wsj.com/articles/does-the-pentagon-take-china-seriously-11625503914?redirect=amp&amp;s=09#click=https://t.co/xA91wqgGVd)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06012610/%E5%9B%BE%E7%89%875-2.png)图片来源：Netflix
 
-***校对发布：文顾***
+*Pine Gap*共有六集，内容讲述美澳间谍彼此合作又互相算计，使这个重要的结盟渐渐出现裂痕。不过，其中两集在间谍基地的萤幕上出现中共国南海九段线的南中国海地图。由于南海九段线是中共国政府单方面将越南的海上主权画入其领海范围内，因而遭到越南政府下令要求下架，越南广播与电子讯息管理局对此说：“Netflix 的违规行为激怒并伤害了整个越南人民的感情。” Netflix 回应说：“根据越南监管机构的书面命令要求，我们已从越南的Netflix 下架*Pine Gap*，以遵守当地法律。”
 
-+1
+长期以来，中共国一直使用多方面声称的九段线来证明自己拥有资源丰富的南中国海大部分地区的主权，而其主权扩张行为已经引起包括越南在内周边国家的不满，越南也在周边海域对部分航道提出主权主张。
+
+越南政府在7 月1 日对*Pine Gap*一事的声明还提到：“这是过去12 个月内连续第三次发现Netflix 上映侵犯越南主权内容的电影和电视节目。”另外两部是2019 年的中共国喜剧*Put Your Head on My Shoulder*，以及美国政治影集*Madam Secretary*。
+
+小评：这是中共渗透西方娱乐界、侵略世界文化的又一铁证，从*Pine Gap*可以看出，其剧情讲的是五眼联盟的尔虞我诈、相互拆台，正是中共国朝思暮想的意图分化西方联盟图谋。中共投资西方影视，埋“雷”无数，要让观众们在娱乐中变成中共价值观的僵尸粉。
+
+新闻来源：
+
+[https://www.reuters.com/world/asia-pacific/vietnam-orders-netflix-remove-australian-spy-show-over-south-china-sea-map-2021-07-02/](https://www.reuters.com/world/asia-pacific/vietnam-orders-netflix-remove-australian-spy-show-over-south-china-sea-map-2021-07-02/)
+
+校对/发稿：遍地开花
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01060545/WhatsApp_Image_2020-10-24_at_04.33.05-3.jpeg)
+
+
+
+
+
+0

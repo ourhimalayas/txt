@@ -1,51 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GETTR（盖特）既是思想集市又是文明灯塔
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1370620/)
+## GETTR全球开花——全球主要国家地区社交网站类排名总结
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1376003/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04173208/D83FF693-5B30-48E7-9EEA-6F504D775637.jpeg)图片来源： newsmax
-#### 作者：经济小组/加拿大多伦多枫叶农场 军迷Wilson
-编审：经济小组/加拿大多伦多枫叶农场 向往真理
+#### 作者：卡拉马佐夫姐姐（㊙翻 Gnews 原创组）
+责编：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02100127/screen-shot-2021-07-01-at-3-17-19-pm.png)
+自7月1日 GETTR （盖特）试上线，7月4日正式运行后，数据显示盖特已在全球遍地开花，成绩傲人。本文汇总了7月2日至7月6日 GETTR 在全球主要国家社交网站类的排名，可以大致看出在最近几天内GETTR在哪些国家更受欢迎，而在哪些国家还需努力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06025933/1-27.jpg)
+上图可见在过去的五天中，GETTR 在美国社交网站类排名突出，稳居3-4位；在澳大利亚、加拿大和新西兰也表现不俗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030232/2-13.jpg)
+在东亚地区，GETTR 最受欢迎的地区不出意外是圣城香港，目前排名第4；而在韩国可能有比较大的上升空间。而号称全球第二大经济体、坐拥全球三分之一 iPhone用户的中共国，则连数据统计也无。小小一个社交软件而已，天朝上国为何如此恐惧又下作？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030305/3-9.jpg)
+上图可见在西欧地区的主要国家中，GETTR 在英国与德国最受欢迎，最新数据显示其居于社交网站类8～9位。而在法国、西班牙与意大利则略微落后，目前处在17～25位。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030332/4-7.jpg)
+上图可见在中南美主要国家中，GETTR 在巴西表现一枝独秀，7月5日甚至蹿升至第一位，连巴西总统的儿子 [Flávio Bolsonaro](https://gettr.com/user/flaviobolsonaro) 也已入驻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030354/5-5.jpg)
+至于中东地区，GETTR 在沙特与阿联酋最受欢迎，最新排名为5～7位。而在以色列暂且落后，且排名呈明显下滑的态势，是否与中共蓝金黄有关，暂且打个问号。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030416/6-5.jpg)
+在东欧地区，GETTR在俄罗斯、波兰与乌克兰的受欢迎程度相似，目前在社交网站类排名为14～25位，而在横跨亚欧大陆的土耳其则一路下探，以色列同款问号在这里也要打一个。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030436/7-4.jpg)
+在东南亚主要国家中，GETTR 在越南最受欢迎，曾一度冲进社交网站类前十；而在华人聚集、人口众多的马来西亚与印度尼西亚则还有很大的上升空间。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030456/8-4.jpg)
+印度与巴基斯坦位于南亚且都是人口大国，潜力巨大，从目前的数据来看GETTR 在该地区还有很大的上升空间。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06030516/9-4.jpg)
+在非洲的三个主要国家中，GETTR在南非最受青睐，已居于第27位。
 
-美国前总统特朗普发言人和著名媒体人、GETTR（盖特）创始人之一杰森·米勒（Jason Miller）先生，在7月2日接受班农先生采访时表示，即将上线的GETTR是一个使用最尖端技术，为全世界提供百家争鸣的思想集市。
+总之，在上线短短不到一周内，GETTR 作为平民主义的载体，已经在全球各地、各种语言中创造了奇迹，这是全球各地老百姓的力量。祝平民主义在全球各地生根发芽、开花结果，由衷盼望在不久的将来伴随防火墙的“粉碎”，GETTR 用她自由的火炬照亮被共产党蹂躏奴役百年的中共国！
 
-米勒接受福克斯釆访时强调，GETTR是面向全球所有人的无偏见社交网络平台。GETTR旨在为所有人提供一个永远不会因为政治言论而被媒体寡头禁声、干涉的自由言论集市。
+数据来源：[GETTR – A Marketplace of Ideas](https://sensortower.com/ios/US/gettr-usa-inc/app/gettr-a-marketplace-of-ideas/1571619156/category-rankings?category=0&amp;start_date=2021-06-05&amp;end_date=2021-07-04&amp;countries=US&amp;chart_type=free&amp;device=iphone&amp;hourly=false&amp;selected_tab=charts&amp;date=2021-07-01&amp;summary_chart_type=topfreeapplications&amp;locale=zh-CN)（iPhone下载量）
 
-正是因为GETTR专注于言论自由、承诺在思想表达上“无取消区”这样的理念，目前处于测试阶段未正式上线的GETTR，在苹果商店社交媒体应用排名中已位列第四名，用震撼火爆来形容毫不为过。
+（文章仅代表作者本人观点）
 
-设计发贴字数可达777字的GETTR，可以一键免费导入，画面清晰度提高了30%，可以上传10分钟的视频，还可以在应用视频内编辑。另外，GETTR被设计和推特数据不互相兼容，用户只能二选一，表明了不和肮脏的推特为伍的决心和自信心。
-
-回顾推特、脸书等对病毒来源真相讨论的封禁，在疫苗、羟氯喹使用问题上明显为利益集团服务的倾向，关闭川普总统社交帐号，却允许中共战狼赵立坚、胡锡进等宣传谎言、暴力和专制思想等，确实引起了人们对网络霸权的恐惧和警惕。
-
-人们普遍认为，社交媒体平台本身并不是媒体，而是借助公共资源向所有人平等、自由表达言论的平台，因此，这些非政府组织的媒体或平台在法律上并没有审查、过滤网络言论的权力。
-
-《[世界人权宣言](https://www.google.com/url?q=https://www.google.com/url?q%3Dhttps://zh.m.wikipedia.org/wiki/%2525E4%2525B8%252596%2525E7%252595%25258C%2525E4%2525BA%2525BA%2525E6%2525AC%25258A%2525E5%2525AE%2525A3%2525E8%2525A8%252580%26amp;sa%3DD%26amp;source%3Deditors%26amp;ust%3D1625421926405000%26amp;usg%3DAOvVaw1ELd2hPrGSK5OUkyv58xcO&amp;sa=D&amp;source=editors&amp;ust=1625421926416000&amp;usg=AOvVaw0Eh93XBPzrCNuiQhSqIz7C)》及《[美国宪法第一修正案](https://www.google.com/url?q=https://www.google.com/url?q%3Dhttps://zh.m.wikipedia.org/wiki/%2525E7%2525BE%25258E%2525E5%25259C%25258B%2525E6%252586%2525B2%2525E6%2525B3%252595%2525E7%2525AC%2525AC%2525E4%2525B8%252580%2525E4%2525BF%2525AE%2525E6%2525AD%2525A3%2525E6%2525A1%252588%26amp;sa%3DD%26amp;source%3Deditors%26amp;ust%3D1625421926405000%26amp;usg%3DAOvVaw3Z-aM0L0WJlSYrkwRRG9oj&amp;sa=D&amp;source=editors&amp;ust=1625421926416000&amp;usg=AOvVaw2YYiiPZl2L7QTj2QrctDws)》明确言论自由必须得到保障。因为言论自由是一切自由的基石。在当前人类社会自由言论环境还很脆弱的情况下，“人人有权在不受干涉下持有意见及主张”（《公民权利和政治权利国际公约》第19条）就显得尤为重要。
-
-主张百家争鸣，为自由言论搭建思想集市的GETTR横空出世
-
-，将在美国独立日即7月4日正式上线。据悉，将有川普、拜登等一百名以上的名人相继入驻，如果川普的九千万支持者跟随川普而来，GETTR将迎来在目前社交媒体平台之外的又一个高素质用户大群体。
-
-为GETTR设计LOGO的设计师交绍，GETTR 徽标中熊熊燃烧火炬的灵感，来自美囯自由女神像手中的火炬。火焰下面呈“T”字形的火把，可以理解为真相（Truth）。显然，GETTR的创始人决意打造一个以自由为核心内涵，可以包容不同思想和政见的超级平台，而追求真相和实现正义是该平台赖以成功的基础。
-
-显然，GETTR的最终目的并不是和推特、脸书进行竞争或取代它们，而是要打破中共及不良资本互相勾结形成的网络极权和言论专制，在自由光芒逐渐被专制笼罩的灰暗时期，为人类文明点灯一盏前行的灯塔。
-
-既然是集市，就有商品陈列和交易。GETTR不仅有情怀，而且非常接地气。比如，平台有在线欣赏和“打赏”功能，为用户向杰出内容创作者打赏和捐赠创造了条件，实际上是为高质量的内容供需双方创造了交易的有利条件。
-
-在将商业金融创新引入网络社交方面，GETTR所表现出来的天才创意震撼人心。为了吸引不同政治派别的领导人加入， GETTR 为即将蜂涌而至的政治候选人提供直播选项，以及为用户向政治候选人捐款提供选项。这是一个拓展“万物皆有价”的经典例子，如果政治活动的价值可以在这里得到量化，那么，还有什么不能在这个思想集市上公开、公平交易的呢？
-
-政治活动可以通过公开透明而且完全合法的商业模式，获得干净的政治活动资金，有助于避免不合法合规政治献金的出现。包括出卖真相获得相应报酬，鼓励合法获得更多内幕信息，将权力和资本置于阳光和社会监督之下，应该是郭先生创办GETTR的具体初衷之一，实际上是一种正道主义理念的具体实践。
-
-这个集市将向所有人传递这样的信息，真相和正义就人类的前途而言，是无价的，但对于人们的生存来说，是有价的。如果这个世界上的所有人，都能够从追求真相和实施正义中获取物质利益及精神财富，不断实现自我价值，整个社会将蓬勃向上，充满朝气和正能量。
-
-据悉，GETTR自签约生效之日起至今年8月，将获得近50亿美元的机构投资。Gettr Pay上线之后，GETTR收益的80%就来自金融。那些曾经助纣为虐的大公司、社交媒体将面临因为诸如禁止病毒真相揭露、在疫苗、羟氯喹上歪曲事实等而引发的诉讼，美国所有的律师都在准备起诉这些不光彩的电视台、大媒体。
-
-充满传奇色彩和被寄予厚望的GETTR，其亮点或意义在于它本身不仅仅是一个平台和思想集市，更是一盏黑暗中的明灯。她独树一帜，挑战媒体专制及腐败，把天赋人权的言论自由和利益共享的平台奉献给世界，因而必将获得不同文化、不同种族、不同肤色、不同价值观群体的认同和呵护。归根到底是因为GETTR契合了追求真相正义庞大群体的需求，为实现经济利益、精神财富的人们提供了“一切皆有可能”的机会。
-
-参考链接：
-
-[GETTR是什么？是尖端技术百家争鸣思想集市](https://gnews.org/zh-hans/1369657/)
-
-[杰森-米勒：新社交平台即将上线](https://gtv.org/video/id=60dec7669d5f0c1bd7ee2de4)
-
-+4
+0

@@ -1,49 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻快讯】NPR独立日质疑《独立宣言》，被呼吁取消其经费
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1375572/)
+## 【热点播报】华尔街对中共打压滴滴打车反应强烈
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1375970/)
 
-作者：纽约香草山健身部 Jack Li文阳
+作者：香草山健身部 文真
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05013407/WhatsApp_Image_2020-10-24_at_04.33.05-5.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
-美国国家公共广播电台（NPR）在独立日发表了一篇文章，声称《独立宣言》是一份 “虚伪的，有缺陷的 “文件。事件导致右派人士再次呼吁取消该组织的经费，要让其陷入困境。
+来自零对冲的信息：昨天，当讨论滴滴出行宣布在美国上市几天后、中共国将其从应用商店中封杀的惊人举动时，我们说中共政府的报复性举措将增加中国互联网公司的监管不确定性，并对估值和股票销售产生影响。次日，大多数华尔街分析师认同这一悲观观点，而交易员不等提问就先卖出，因为滴滴的第一大股东软银的股票在东京下跌了5.4%，至2020年12月以来的最低水平。这种焦虑蔓延到大多数中国科技公司的股票上，在香港，腾讯下滑了3.6%，抹去了今年的涨幅，而食品配送巨头美团——其CEO也在5月被当局盯上——下跌了5.6%。
 
-共和党国会候选人Armendariz-Jackson在Twitter 上回应道：“让人难以接受，应该取消 NPR 的经费。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05230942/Untitled-design-2021-07-05T210910.791.png)图片来源：Getty Images
-NPR周日发表的报道说。”在去年夏天的抗议活动之后，我们国家对种族问题进行了反思：美国宪法的叙述与事实不符。宪法的名言宣称’人人生而平等’，但是，妇女、被奴役的人和美国原住民在当时是不被平等对待的。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06023512/%E5%9B%BE%E7%89%8718.png)
 
-这篇报道引用了美国原住民作家David Treuer的话，他说革命战争与其说是为了给人们平等的权利，不如说是为了获得利益。
+此外，据《南华早报》次日报道，中共国还将其对科技行业的最新打击范围扩大到滴滴以外，包括最近在纽约上市的另外两家公司——满客联盟有限公司（Full Truck Alliance Co.）和康众有限公司（Kanzhun Ltd）。
 
-这篇文章引起了右翼的愤怒，人们呼吁取消该组织的经费。
+以下是彭博社提供的投资者和分析师对滴滴严厉打击升级所做的评价摘要。
 
-小评：无论NPR是出于何目的去质疑美国宪法，一旦美国人为了美国宪法人权问题争论不休，极有可能把美国拉入种族争斗的泥潭。这恰恰是美国的敌人——中共想要的。其真正的目的就是要搞乱、搞弱美国，转移追查病毒真相的注意力。美国人，千万别给中共送子弹！
+Robeco（Joshua Crabb）
 
-新闻来源：https://www.newsmax.com/us/npr-taxes-congress-cpb/2021/07/05/id/1027538/
+“我们已经进入了一个新的时期，全球对科技的监管审查已经增加，并将持续一段时间。第一阶段是关于反垄断和一些罚款的，其影响已经被市场消化。”
 
-校对/发稿：火内
+“数据安全和隐私以及所有权/使用方面的新挑战是一个更大的问题，因为这些数据的货币化才是这些公司盈利的关键。如果这成为一种风险，对收益和股票价格的影响可能比我们迄今为止看到的反垄断罚款要大得多。”
 
+Capital Group (Andy Budden)
 
+Budden在一次视频简报上说：“我们显然处于这样一个时代，中共政府当真相当深思熟虑地在考虑如何监管科技行业和互联网行业，我认为这在我看来是对一个相当年轻的行业所做的完全合理的事情。”他补充道，中共国是世界上互联网与金融技术结合的最创新的国家，这将不会很快消失。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+Reyl & Cie（Cedric Ozazman）
 
+“现在入场还为时过早，因为短期的不确定性将占上风。当有新一轮的支持性货币政策时，我们可能会对中国名字更有信心。”
 
+Kairos Partners (Alberto Tocchio)
 
+“尽管不确定性相对较高，我愿意开始拥有一些中国的风险投资，因为它被严重低估，并且它拥有世界上最大的消费者群体，是增长最快的市场。”
+
+“中国人口的富有将继续加速服务和科技的发展，这就是为什么现在正在努力进一步规范这一过程，以期在中期内获得进一步的利益。”
+
+“因此，我将利用目前的疲软来进一步增加对中国的投资，并着眼于中期发展。”
+
+Safehouse Global Consumer Fund (Sharif Farha)
+
+“在监管机构放松之前，中国科技大盘股的估值倍数将继续压缩。中国的投资案例是明确的，但在全球股票继续表现良好的环境下，许多投资者可能只是选择调整投资，将资金转移到其他地区。”
+
+“虽然我们没有参与任何这些上市，但我们可以想象，一些基金会考虑退出。以滴滴为例，想象一下明天我们醒来，中共监管机构不仅暂停了滴滴应用程序的下载，还暂停了其使用。现在的风险远远超过了回报。”
+
+Hullx (James Hull)
+
+“真正的问题是，此举是否会改变中国科技公司陷入监管’周期’而非新常态的观点。”
+
+“我怀疑它是否会改变这种观点。我在这里与之交谈的每个人都认为这是一种新常态。”
+
+Nomura (Jim McCafferty)
+
+“中共政府担心这些科技公司的权力过于集中。”McCafferty在一次视频简报上说。
+
+“在某种程度上，这与我们在美国看到的情况并无二致，政府正在讨论有关一些大公司的反垄断程序，如Facebook、亚马逊、苹果。集中度过高。”
+
+“我们可以认为，中国实际上正在效仿我们在西方看到的关于这些大公司和它们在纳税方面满足多个利益相关者的能力。”
+
+IG Asia (Jun Rong Yeap)
+
+“滴滴的最新监管障碍可能会让人担心，对大型科技公司的打击远未结束。”
+
+滴滴上市后的打击 “可能表明，虽然重组在短期内被认为是必要的，但中共国的战略可能会仔细调整，以尽量减少对其国内科技公司的影响，以便仍能与美国竞争”。
+
+CMB International (Daniel So)
+
+中共国的举动突出了 “该行业面临的政策风险，人们对此有一些膝跳反应”。
+
+“由于许多科技股今年已经缩减了大部分或全部涨幅，坏消息已经被大量消化。”
+
+估值看起来很有吸引力，投资者可以开始逢低购买该行业的股票。
+
+Smartkarma (Travis Lundy)
+
+“如果该公司不接受新的用户，那么这个政令就是矫枉过正。然而，这一命令似乎并没有达到其他目的。”
+
+它显然是为了向更广的行业传递一个信息，即在有这么多事情悬而未决的情况下，不应该进行IPO。
+
+“我不能建议做多。我预计其他应用程序/技术集团也会出现下降。”
+
+Bloomberg Intelligence (Matthew Kanterman)
+
+“很明显，目前中共国的科技巨头有一个监管悬念，这可能会继续拖累大型互联网平台的行业估值。”
+
+“投资者需要明确此类监管审查何时会结束。”
+
+DailyFX (Margaret Yang)
+
+“这标志着进一步收紧对中国大型科技公司的监管措施，并可能阻止它们考虑在美国上市。”
+
+引用：
+
+[https://www.zerohedge.com/markets/stunned-wall-street-responds-chinas-droconian-didi-crackdown](https://www.zerohedge.com/markets/stunned-wall-street-responds-chinas-droconian-didi-crackdown)
+
+校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+0
