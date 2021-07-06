@@ -12,29 +12,29 @@
 
 ---
 
-### [《路德时评》重磅解读习神同默克尔马克龙举行视频会议，及中共意识到全球技术脱钩不可逆转](/content/gnews/1/README.md)
- ` 香柏树`
-
-### [GETTR全球开花——全球主要国家地区社交网站类排名总结](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
-
-### [余茂春反驳习近平：把14亿中国人和中共捆绑](/content/gnews/3/README.md)
+### [中共国体制建立在谎言上，它无法埋葬自由世界](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GETTR（盖特）既是思想集市又是文明灯塔](/content/gnews/4/README.md)
- ` 军迷wilson`
-
-### [《路德时评》重磅解读全球都关注习神头破血流的毒咒，及美驻军阿富汗20年的重大意义](/content/gnews/5/README.md)
+### [《路德时评》重磅解读习神同默克尔马克龙举行视频会议，及中共意识到全球技术脱钩不可逆转](/content/gnews/2/README.md)
  ` 香柏树`
 
-### [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/content/gnews/6/README.md)
+### [GETTR全球开花——全球主要国家地区社交网站类排名总结](/content/gnews/3/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [余茂春反驳习近平：把14亿中国人和中共捆绑](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [GETTR（盖特）既是思想集市又是文明灯塔](/content/gnews/5/README.md)
+ ` 军迷wilson`
+
+### [2021年7月5日 文贵先生盖特 1](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/content/gnews/7/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [7.5文贵先生盖特要点](/content/gnews/7/README.md)
+### [7.5文贵先生盖特要点](/content/gnews/8/README.md)
  ` 左媛专栏`
-
-### [全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/content/gnews/8/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
 ### [【热点播报】福奇资助的生态健康联盟拒绝向国会提供与武汉相关文件](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
@@ -66,22 +66,22 @@
 ### [戳穿中共百年冥诞致词里的谎言——驴唇不对马嘴总结出来的三个历史阶段](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【聚焦澳洲】（视频）中共是一只躲在“铜墙铁壁”外衣下的 “纸老虎”](/content/gnews/19/README.md)
+### [蓬佩奥：习近平气焰嚣张因为他认为美国衰落了](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【聚焦澳洲】（视频）中共是一只躲在“铜墙铁壁”外衣下的 “纸老虎”](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《公民记者》- 云南瑞丽再次封城，出现Delta变种CCP病毒](/content/gnews/20/README.md)
+### [《公民记者》- 云南瑞丽再次封城，出现Delta变种CCP病毒](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [《公民记者》- 中共统治下，各行各业掺假掺毒](/content/gnews/21/README.md)
+### [《公民记者》- 中共统治下，各行各业掺假掺毒](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [大卫·阿舍：任何传播出去的病毒都能有效地成为武器](/content/gnews/22/README.md)
+### [大卫·阿舍：任何传播出去的病毒都能有效地成为武器](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共的功能增强实验，不同团队各有专攻](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [今天7月4日是美国独立日。川普可能会使用的新社交网络平台诞生了](/content/gnews/24/README.md)
+### [中共的功能增强实验，不同团队各有专攻](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [【热点播报】福奇资助的生态健康联盟拒绝向国会提供与武汉相关文件](/content/gnews/25/README.md)
@@ -102,17 +102,17 @@
 ### [【新闻快讯】Netflix 剧集出现南海九段线，遭越南下架](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [2021/07/06 英喜时事速递](/content/gnews/31/README.md)
+### [维吾尔种族灭绝起点， 抵制北京冬奥会](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【路德简报】7/5/2021晚：习近平恐惧被脱钩 和马克龙、默克尔视频会议 一改强硬态度](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【路德简报】7/5/2021早：习近平“百年祭诞”发“头破血流”毒咒 引发西方热议](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [外交政策失败 中共国战机乏人问津](/content/gnews/34/README.md)
+### [2021/07/06 英喜时事速递](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【路德简报】7/5/2021晚：习近平恐惧被脱钩 和马克龙、默克尔视频会议 一改强硬态度](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【路德简报】7/5/2021早：习近平“百年祭诞”发“头破血流”毒咒 引发西方热议](/content/gnews/34/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [法国前总理菲利普早在 2018 年预言“一种我们没有预见的病毒”](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -138,45 +138,45 @@
 ### [中国的小鹏汽车将于7月8日加入富时指数](/content/gnews/42/README.md)
  ` 闪电侠`
 
-### [【聚焦澳洲】“头破血流”威胁大，澳洲各界备战忙](/content/gnews/43/README.md)
+### [日本副首相：若中共武力犯台 美日将合作防卫台湾](/content/gnews/43/README.md)
+ ` 日本东京方舟农场`
+
+### [美国独立日245周年自由民主法治与中共百年冥诞释放病毒的两个世界](/content/gnews/44/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【聚焦澳洲】“头破血流”威胁大，澳洲各界备战忙](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“习神”“头破血流”毒咒：官方紧跟 民间吐槽](/content/gnews/44/README.md)
+### [“习神”“头破血流”毒咒：官方紧跟 民间吐槽](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
 
-### [这是改变历史的一个月](/content/gnews/45/README.md)
+### [这是改变历史的一个月](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [【2021台海危机】美国务卿共同的话：攻台将付出巨大代价](/content/gnews/46/README.md)
+### [【2021台海危机】美国务卿共同的话：攻台将付出巨大代价](/content/gnews/48/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021年07月05日澳喜要闻（每日更新）](/content/gnews/47/README.md)
+### [2021年07月05日澳喜要闻（每日更新）](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [7/6/2021日本银河快讯：日本央行行长称日本经济“仍有回暖趋势”；东京议会选举自公议席未过半菅义伟“虚心接受”](/content/gnews/48/README.md)
+### [7/6/2021日本银河快讯：日本央行行长称日本经济“仍有回暖趋势”；东京议会选举自公议席未过半菅义伟“虚心接受”](/content/gnews/50/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [【战友心声】七月四日是美国的独立日，也是社交媒体世界的伟大之日](/content/gnews/49/README.md)
+### [【战友心声】七月四日是美国的独立日，也是社交媒体世界的伟大之日](/content/gnews/51/README.md)
  ` 纽约香草山MOS02`
 
-### [习总加速师公开向西方民主国家挑战民主自由—— 中共首脑习近平将“反恐荣誉称号”授予新疆警察特别行动队](/content/gnews/50/README.md)
+### [习总加速师公开向西方民主国家挑战民主自由—— 中共首脑习近平将“反恐荣誉称号”授予新疆警察特别行动队](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国共产党如何将全球医疗保健武器化作为其施加影响的工具—克利奥.帕斯卡尔](/content/gnews/51/README.md)
+### [中国共产党如何将全球医疗保健武器化作为其施加影响的工具—克利奥.帕斯卡尔](/content/gnews/53/README.md)
  ` 澳喜农场多语组`
 
-### [中共要让世界头破血流 但是中共正在头破血流](/content/gnews/52/README.md)
+### [中共要让世界头破血流 但是中共正在头破血流](/content/gnews/54/README.md)
  ` G-NEWS TAIWAN`
 
-### [美国前国务院发言人评习近平七一讲话 批中共百年暴政](/content/gnews/53/README.md)
+### [美国前国务院发言人评习近平七一讲话 批中共百年暴政](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [美国正为生物恐怖主义做铺垫](/content/gnews/54/README.md)
+### [美国正为生物恐怖主义做铺垫](/content/gnews/56/README.md)
  ` G-NEWS TAIWAN`
-
-### [推特暂停了嘲笑习百年冥诞的帖子](/content/gnews/55/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [俄罗斯参与了对美网络攻击？](/content/gnews/56/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
