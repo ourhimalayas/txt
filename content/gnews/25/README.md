@@ -1,53 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】福奇资助的生态健康联盟拒绝向国会提供与武汉相关文件
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1376046/)
+## [密翻在线】麻生副首相提“危机事态”阻中共侵台 遭外交战狼反击
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1377149/)
 
-作者：香草山健身部 文真
+撰稿：待命（文晓）
+责编：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06112339/55399011_101.jpg)图片来源：DW
+副首相兼财务大臣麻生太郎7月5日在东京的一次演讲中说，中国对台湾的入侵可以被认定为 “危机事态”，而”危机事态”情况下，日本可以行使有限的集体自卫权。根据安全相关法律， “危机事态”是行使集体自卫权的必要条件之一，即日本的生存明显的，有可能受到与日本关系密切的另一个国家的攻击而受到威胁的情况。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+[信息来源](https://www.jiji.com/jc/article?k=2021070500799&amp;g=pol)
 
+根据中共只要是反对我，我就骂你的一贯表现，笔者读后预感中共战狼一定会再开国骂。果然，麻生副首相躺枪了。
 
+7月6日傍晚，日本雅虎网站在最醒目的页面，报道了中共外交部赵立坚针对麻生副首相上述言论的反击。
 
-来自零对冲 的消息：在奥巴马政府停止对美国本土的功能增益研究——病毒学家操纵病毒使其更容易传播给人类的过程——提供联邦资金的四个月前，由安东尼·福奇博士领导的美国国立卫生研究院（NIH）的一个子机构通过向彼得·达扎克领导的非营利组织生态健康（EcoHealth）联盟提供资助，有效地将这项研究转移到了武汉病毒研究所（WIV）。
+报道说：中共外交部副新闻报道官赵立坚在6日的新闻发布会上表示 “强烈不满和坚决反对”。并说他已经向日本方面提出了严厉的抗议。赵立坚还说：”我们不允许对台湾问题进行任何干涉。我们决不允许藐视中国人民捍卫国家主权的决心和意志，以及强大的能力。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06025458/%E5%9B%BE%E7%89%8719.png)
+[信息来源](https://news.yahoo.co.jp/articles/4aae741f384a4cc6efd3aba3d72b8267fab1a5f4)
 
-我们在4月份时指出，生态健康联盟370万美元的NIH赠款的第一笔666,442美元已于2014年6月支付，在 “了解蝙蝠冠状病毒出现的风险 ”项目下，每年都有类似的付款，直到2019年5月。
+说实话，在赵战狼的国骂集锦中，本次国骂相对来讲还算是文明点儿的。只是自吹自擂，太不自量力了。
 
-据《华盛顿邮报》的乔希·罗金（Josh Rogin）报道，多年来，在“蝙蝠女”石正丽博士的领导下，WIV “公开参与了与美国大学和机构合作的功能增益研究”。
-
-据Just the News报道，目前，达扎克拒绝遵从众议院共和党人数月前提出的有关他在武汉实验室的工作的文件要求。
-
-在政府调查人员和记者挖掘出达扎克与WIV的全部联系时，达扎克继续拒绝国会对该信息的要求。
-
-4月，众议院能源和商业委员会的共和党人向达扎克发出一封信，指示他除其他许多文件外，还要提交“EcoHealth和WIV之间有关协议条款、蝙蝠冠状病毒、基因组或基因测序、SARS-CoV-2和/或实验室安全做法的所有信件、电子邮件和其他通信”，这些文件是NIH研究经费通过EcoHealth向武汉实验室拨款的关键。
-
-然而，Daszak本人并没有配合这一要求。能源和商业委员会的一名助手本周向Just the News证实，该委员会 “仍然没有收到生态健康联盟和彼得·达扎克对4月16日罗杰斯、格思里和格里菲斯领导人的信件的回应”。
-
-“我们已经要求达扎克提供我们已知的他有的信息，以揭示这种大流行病的起源”， 国会众议员凯西·麦克莫里斯·罗杰斯（GOP Rep. Cathy McMorris Rodgers）说，他也公开指出达扎克拒绝回应。
-
-“达扎克博士，你用收到的美国的资金在武汉病毒研究所进行蝙蝠冠状病毒的研究”， 罗杰斯在上周的众议院小组委员会会议上继续说道，“你应该对美国人民保持透明。”
-
-与此同时，国会民主党人实际上并没有兴趣去了解事情的真相——即使他们在两院都拥有传票权。正如JTN指出的那样，最终的权力在于民主党——特别是能源和商业委员会主席弗兰克·帕隆（Frank Pallone）——他在2015年显著地提高了对福奇的NIH的资助，每年多达20亿美元，直到2020年。
-
-引用：
-
-[https://www.zerohedge.com/markets/fauci-funded-ecohealth-refuses-give-wuhan-documents-congress](https://www.zerohedge.com/markets/fauci-funded-ecohealth-refuses-give-wuhan-documents-congress)
-
-校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章仅代表作者个人观点）
 
 0

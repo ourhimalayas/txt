@@ -1,103 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】华尔街对中共打压滴滴打车反应强烈
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1375970/)
+## 【热点播报】7月5日国际新闻速递
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1377117/)
 
-作者：香草山健身部 文真
+作者：香草山信息部 雪梨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
-来自零对冲的信息：昨天，当讨论滴滴出行宣布在美国上市几天后、中共国将其从应用商店中封杀的惊人举动时，我们说中共政府的报复性举措将增加中国互联网公司的监管不确定性，并对估值和股票销售产生影响。次日，大多数华尔街分析师认同这一悲观观点，而交易员不等提问就先卖出，因为滴滴的第一大股东软银的股票在东京下跌了5.4%，至2020年12月以来的最低水平。这种焦虑蔓延到大多数中国科技公司的股票上，在香港，腾讯下滑了3.6%，抹去了今年的涨幅，而食品配送巨头美团——其CEO也在5月被当局盯上——下跌了5.6%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29124231/%E5%9B%BE%E7%89%8714-4.png)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06023512/%E5%9B%BE%E7%89%8718.png)
+1. **中共病毒肆虐，多国感染人数激增，澳洲政府考虑是否解封悉尼**
 
-此外，据《南华早报》次日报道，中共国还将其对科技行业的最新打击范围扩大到滴滴以外，包括最近在纽约上市的另外两家公司——满客联盟有限公司（Full Truck Alliance Co.）和康众有限公司（Kanzhun Ltd）。
 
-以下是彭博社提供的投资者和分析师对滴滴严厉打击升级所做的评价摘要。
+[英国政府周一数据](https://www.reuters.com/world/uk/britains-covid-19-cases-up-53-past-week-2021-07-05/?taid=60e35a3bbcdfda000143397a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)显示，6月29日至7月5日期间新增27,334例中共病毒病例，较上周增长53%。[英国卫生部长](https://www.reuters.com/world/uk/uk-health-minister-covid-19-cases-will-rise-significantly-2021-07-05/?taid=60e35331fdc7d30001f56ba1&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)Sajid Javid担心称，“感染病例正在上升，并将继续大幅上升。预计到7月19日，每日病例数将远远高于今天”。
 
-Robeco（Joshua Crabb）
+[西班牙](https://www.reuters.com/business/healthcare-pharmaceuticals/spains-covid-19-cases-jump-youth-infection-surges-2021-07-05/?taid=60e386c3fdc7d30001f56cd3&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)周一官方数据显示，中共病毒感染者自上周五以来增加了32,607人，比前一个周末的增幅高出85%。目前，西班牙感染总数达到386,675例，死亡人数达80,934人。
 
-“我们已经进入了一个新的时期，全球对科技的监管审查已经增加，并将持续一段时间。第一阶段是关于反垄断和一些罚款的，其影响已经被市场消化。”
+根据[印度卫生部](https://www.reuters.com/world/india/india-reports-34703-new-covid-19-cases-last-24-hours-2021-07-06/?taid=60e3dea2bcdfda0001433c37&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)的数据，在过去24小时内，印度新增34,703例感染病例。
 
-“数据安全和隐私以及所有权/使用方面的新挑战是一个更大的问题，因为这些数据的货币化才是这些公司盈利的关键。如果这成为一种风险，对收益和股票价格的影响可能比我们迄今为止看到的反垄断罚款要大得多。”
+[澳大利亚](https://www.reuters.com/world/asia-pacific/australias-new-south-wales-reports-18-new-local-covid-19-cases-2021-07-06/?taid=60e3dfceb9a1150001df5228&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)新南威尔士州（NSW）州长周二表示，因为新感染率下降，将在未来24小时内决定是否延长悉尼的封锁（该封锁原定于周五结束）。
 
-Capital Group (Andy Budden)
+2. **亚洲互联网联盟致信香港官员，修订隐私条例将使其退出香港**
 
-Budden在一次视频简报上说：“我们显然处于这样一个时代，中共政府当真相当深思熟虑地在考虑如何监管科技行业和互联网行业，我认为这在我看来是对一个相当年轻的行业所做的完全合理的事情。”他补充道，中共国是世界上互联网与金融技术结合的最创新的国家，这将不会很快消失。
+[亚洲互联网联盟(AIC)](https://www.reuters.com/world/china/facebook-google-twitter-say-could-quit-hong-kong-over-proposed-data-laws-wsj-2021-07-05/)致信香港官员称，如果香港继续实施修订隐私条例的计划，科技公司可能会停止在香港提供服务。该联盟成员包括谷歌、脸书、推特、苹果、领英等科技公司。
 
-Reyl & Cie（Cedric Ozazman）
+信中说道，拟议的修正案关注的是个人的数据隐私与安全，可能会使个人受到“严厉制裁”。而“针对个人实施制裁不符合全球规范和趋势”，“避免科技公司受到这些制裁的唯一办法，就是避免在香港投资和提供服务”。并表示，“我们相信，任何可能会限制言论自由的反起底（‘起底’亦称‘人肉搜索’，是指公开发布个人或组织的私人或身份识别信息）立法，都必须建立在必要性和相称性的原则之上”。
 
-“现在入场还为时过早，因为短期的不确定性将占上风。当有新一轮的支持性货币政策时，我们可能会对中国名字更有信心。”
+3. **习近平同默克尔和马克龙举行视频会议，讨论中欧关系**
 
-Kairos Partners (Alberto Tocchio)
+周一，中共国家主席习近平同德国总理默克尔和法国总统马克龙举行[视频会议](https://www.voachinese.com/a/China-Xi-Europe-leaders-said-to-plan-talks-as-tensions-flare-20210705/5953893.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)，就中欧关系交换了意见。
 
-“尽管不确定性相对较高，我愿意开始拥有一些中国的风险投资，因为它被严重低估，并且它拥有世界上最大的消费者群体，是增长最快的市场。”
+默克尔办公室称，“他们讨论了国际贸易、气候保护和生物多样性”，“合作抗击疫情，全球疫苗供应，以及国际和地区问题”。
 
-“中国人口的富有将继续加速服务和科技的发展，这就是为什么现在正在努力进一步规范这一过程，以期在中期内获得进一步的利益。”
+中共官媒新华社报道说，习近平表示，“世界比以往任何时候都更需要相互尊重、精诚合作，而不是猜忌对立、零和博弈”。
 
-“因此，我将利用目前的疲软来进一步增加对中国的投资，并着眼于中期发展。”
+4. **福奇博士资助的生态健康联盟拒绝向国会提供关于武毒所的文件**
 
-Safehouse Global Consumer Fund (Sharif Farha)
+在奥巴马政府暂停对美国本土的功能增强研究提供联邦资金的四个月前，福奇博士领导的NIH，通过向[彼得·达扎克](https://www.zerohedge.com/markets/fauci-funded-ecohealth-refuses-give-wuhan-documents-congress)领导的非营利组织生态健康联盟（EcoHealth）提供资助，有效地将这项研究资金转移到武汉病毒研究所（WIV）。
 
-“在监管机构放松之前，中国科技大盘股的估值倍数将继续压缩。中国的投资案例是明确的，但在全球股票继续表现良好的环境下，许多投资者可能只是选择调整投资，将资金转移到其他地区。”
+NIH资助的第一笔款项666,442美元，于2014年6月支付。此后每年均拨款资助 “了解蝙蝠冠状病毒出现的风险 “项目，直到2019年5月。
 
-“虽然我们没有参与任何这些上市，但我们可以想象，一些基金会考虑退出。以滴滴为例，想象一下明天我们醒来，中共监管机构不仅暂停了滴滴应用程序的下载，还暂停了其使用。现在的风险远远超过了回报。”
+4月，众议院能源和商业委员会的共和党人向达扎克发出一封信，指示他提交” EcoHealth和WIV之间有关协议条款、蝙蝠冠状病毒、基因组或基因测序、SARS-CoV-2和/或实验室安全做法的所有信件、电子邮件和其他通信”。达扎克拒绝了该要求。
 
-Hullx (James Hull)
+5. **日本副首相称，密切关注台海局势，和平解决突发事件**
 
-“真正的问题是，此举是否会改变中国科技公司陷入监管’周期’而非新常态的观点。”
+[日本副首相](https://www.reuters.com/world/asia-pacific/japans-aso-peaceful-solution-desirable-any-taiwan-contingency-2021-07-06/?taid=60e3cd0eb9a1150001df51de&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)麻生太郎周二表示，任何有关台湾的突发事件都应该通过对话来解决。
 
-“我怀疑它是否会改变这种观点。我在这里与之交谈的每个人都认为这是一种新常态。”
-
-Nomura (Jim McCafferty)
-
-“中共政府担心这些科技公司的权力过于集中。”McCafferty在一次视频简报上说。
-
-“在某种程度上，这与我们在美国看到的情况并无二致，政府正在讨论有关一些大公司的反垄断程序，如Facebook、亚马逊、苹果。集中度过高。”
-
-“我们可以认为，中国实际上正在效仿我们在西方看到的关于这些大公司和它们在纳税方面满足多个利益相关者的能力。”
-
-IG Asia (Jun Rong Yeap)
-
-“滴滴的最新监管障碍可能会让人担心，对大型科技公司的打击远未结束。”
-
-滴滴上市后的打击 “可能表明，虽然重组在短期内被认为是必要的，但中共国的战略可能会仔细调整，以尽量减少对其国内科技公司的影响，以便仍能与美国竞争”。
-
-CMB International (Daniel So)
-
-中共国的举动突出了 “该行业面临的政策风险，人们对此有一些膝跳反应”。
-
-“由于许多科技股今年已经缩减了大部分或全部涨幅，坏消息已经被大量消化。”
-
-估值看起来很有吸引力，投资者可以开始逢低购买该行业的股票。
-
-Smartkarma (Travis Lundy)
-
-“如果该公司不接受新的用户，那么这个政令就是矫枉过正。然而，这一命令似乎并没有达到其他目的。”
-
-它显然是为了向更广的行业传递一个信息，即在有这么多事情悬而未决的情况下，不应该进行IPO。
-
-“我不能建议做多。我预计其他应用程序/技术集团也会出现下降。”
-
-Bloomberg Intelligence (Matthew Kanterman)
-
-“很明显，目前中共国的科技巨头有一个监管悬念，这可能会继续拖累大型互联网平台的行业估值。”
-
-“投资者需要明确此类监管审查何时会结束。”
-
-DailyFX (Margaret Yang)
-
-“这标志着进一步收紧对中国大型科技公司的监管措施，并可能阻止它们考虑在美国上市。”
-
-引用：
-
-[https://www.zerohedge.com/markets/stunned-wall-street-responds-chinas-droconian-didi-crackdown](https://www.zerohedge.com/markets/stunned-wall-street-responds-chinas-droconian-didi-crackdown)
+此前，麻生太郎在一次演讲中说到，如果台湾发生危机，日本将与美国联手保卫台湾。当被问及此言论时，麻生太郎表示，“我们正在密切关注这一局势”。
 
 校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

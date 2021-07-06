@@ -1,22 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西媒头条】第16期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1374518/)
+## 史蒂夫⋅班农：中共是人类历史上最残暴的政权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1376179/)
 
-- 制作：蚂蚁兄弟
+7/2/2021 史蒂夫⋅班农：中共是人类历史上最残暴的政权，给中国人民造成了长达100年的破坏和混乱。美国应该支持中国人民将中共彻底铲除。
 
-
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年7月5日电/西喜社——**
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05120050/7%E6%9C%885%E6%97%A5.png)
-发稿：Nuevo唐人
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 +1

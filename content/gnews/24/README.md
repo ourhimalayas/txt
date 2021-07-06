@@ -1,11 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的功能增强实验，不同团队各有专攻
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1375488/)
+## 《公民记者》- 云南瑞丽再次封城，出现Delta变种CCP病毒
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1375686/)
 
-6月30日，闫博士在演播室塔克对谈中说，中共功能增强实验就像搭乐高，而这也是为什么她坚持我们应该查明来自军方的真正病毒骨架，从而研究中共在SARS-CoV-2上添加了多少功能。
+视频：恭池投石
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+图片素材：我爱和平 一路有你
 
+云南边境小城瑞丽市第三度出现本土疫情，启动封城响应。7月5日上午，瑞丽市召开新闻发布会，宣告当日8时起严格执行社区管控和通行管控措施，加强人员进出及重点区域管理，所有人员“非必要不进出瑞丽”。 在2020年9月及2021年3月，瑞丽曾两度因新冠疫情“封城”。
+
+（本文仅代表作者个人观点）
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

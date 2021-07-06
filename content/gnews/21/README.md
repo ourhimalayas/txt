@@ -1,19 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《公民记者》- 云南瑞丽再次封城，出现Delta变种CCP病毒
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1375686/)
+## 杰森•米勒：新社交媒体平台GETTR将于周日上午10点左右正式上线
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1376643/)
 
-视频：恭池投石
+7/1/2021杰森•米勒：GETTR这个新的社交媒体项目的特点──这是一个百家争鸣的思想集市，人们不会因为他们的政治信仰而被抹杀；GETTR上的帖子可以长达777个字，视频可以长达3分钟，且具有编辑功能；你可以将你的所有推文导入你的GETTR帖子历史，而这只需轻轻一点；GETTR所采用的是最先进的技术。
 
-图片素材：我爱和平 一路有你
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-云南边境小城瑞丽市第三度出现本土疫情，启动封城响应。7月5日上午，瑞丽市召开新闻发布会，宣告当日8时起严格执行社区管控和通行管控措施，加强人员进出及重点区域管理，所有人员“非必要不进出瑞丽”。 在2020年9月及2021年3月，瑞丽曾两度因新冠疫情“封城”。
-
-（本文仅代表作者个人观点）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0
