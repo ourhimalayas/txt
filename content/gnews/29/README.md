@@ -1,35 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【樱花宅急便】中德退休“双面间谍”被逮捕
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1379085/)
+## 【新闻快讯】华为诉美电讯公司Verizon专利侵权，开始选择陪审团
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1379113/)
 
-作者：东京樱花团｜自助者天助
+作者：香草山健身部Jack Li文阳
 
-据[德国之声中文网](https://www.dw.com/zh/%E6%B6%89%E5%AB%8C%E4%B8%BA%E4%B8%AD%E5%9B%BD%E6%8F%90%E4%BE%9B%E6%83%85%E6%8A%A5-%E5%8F%8C%E9%9D%A2%E9%97%B4%E8%B0%8D-%E8%A2%AB%E9%80%AE%E6%8D%95/a-58179000)报道，德国联邦检察院7月6日公布，一位名叫Klaus L.（75岁）的德国[汗斯・赛德尔基金会](https://baike.baidu.com/item/%E6%B1%89%E6%96%AF%C2%B7%E8%B5%9B%E5%BE%B7%E5%B0%94%E5%9F%BA%E9%87%91%E4%BC%9A)退休干部，因涉嫌为中共情报机构从事间谍活动，并存在“逃跑的风险”，被司法机关逮捕，慕尼黑最高法院已受理该案。现在检察机关已立案，这个案子一旦被定性，从事双面间谍活动的有关人员将逐一被审查。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07085158/deguojiandie.png)
 
-**中德双面间谍，两国都知晓**
 
-Klaus L.政治学者身份，于80年代开始效力于汉斯·赛德尔基金会（Hanns Seidel Stiftung），为德国情报部门工作超过50年。德国联邦情报局看重Klaus L.广阔的人脉，在苏联、巴尔干、南非和南亚多国搭建的网络，将其发展为“情报联系人”并支付薪酬。
+中共国电信设备制造商华为技术有限公司对Verizon通信公司提起的专利侵权诉讼，将于7月7日开始选择陪审团。
 
-**Klaus L.被授权与中共接触，并套取中共情报**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07091251/%E5%9B%BE%E7%89%875-4.png)
 
-“首都演播室”的相关调查显示：Klaus L. 在2010年访问上海同济大学之时，首次与中共的情报机关进行接触，之后他立即向德国联邦情报局报告，中共试图发展他为间谍的举动。德国联邦情报局鼓励他和中共接触，探听其情报机关的意图。
+2020年2月，华为在德克萨斯州的两家美国地方法院起诉Verizon，称该公司在计算机网络、下载安全和视频通信等领域未经授权使用了十几项华为专利，要求Verizon支付数额不详的赔偿金和专利费。
 
-**中共酬金收买Klaus L.出卖德国情报**
+Verizon去年称这些诉讼 “只不过是一个公关噱头”，“是对我们公司和整个科技生态系统的偷袭”，并对华为提出反诉，称中共国公司侵犯了Verizon的专利。
 
-据德广联报道，Klaus L.在为中共情报机关工作时所获得的报酬除差旅费外，还有一笔酬金。据称中共为Klaus L.提供了加密传递信息的技术，所以至今，并不清楚他具体向中共提供了哪些情报和信息。
+华为在2020年表示，它只是要求Verizon尊重华为在研发方面的投资，要么为使用我们的专利付费，要么不使用这些专利。华为7月6日拒绝发表评论。
 
-**案件错综复杂**
+几年来，华为一直是美中关系中的一个热点。美国在2019年将该公司列入经济黑名单，因为它对国家有安全风险问题。
 
-据德广联掌握的信息：2019年11月23日，Klaus L.携夫人飞往澳门，与中共情报机构领导层会晤前，被德国调查机关制止其出境，并搜查两人的行李与住所，没收了“大量数据载体和计算机”。从2010年首次接触，到19年被制止出境，再到如今正式被起诉足以看出此案的复杂性。
+2019年6月，路透社报道说，华为告诉Verizon，它应该为使用230多项华为专利支付许可费，并寻求超过10亿美元。
 
-Klaus L.的案例是中共情报机关近些年来发展海外情报人员的惯用手法。[翟东升曾大言不惭地声称: “咱们美国上边有人”](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/bx-12082020122246.html)。中共利用Klaus L.的情报偷取德国技术，获取利益。从案件的错综复杂性可以看出，Klaus L.出卖的情报是国家重要机密决策，就其给中共提供情报服务，出卖政治高层机密情报，并且收中共酬金的行为或许已构成间谍罪，进一步消息需等待法庭的审理结果。
+简评：中共一贯偷盗美国技术，回国在自己家抢注专利，转过头诉讼原技术持有者，要么给钱，要么停止使用，可谓卑鄙无耻之极。华为诉Verizon侵权案，让美国企业机构吃些苦头，唤醒更多沉睡的人，未尝不是件好事。蛇不咬农夫，善良的农夫也不会去打死毒蛇。华为要自寻死路，真是拦也拦不住啊。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 野猫*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04100032/%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
+新闻来源：
+
+[https://www.dailymail.co.uk/wires/reuters/article-9762689/Huawei-lawsuit-against-Verizon-heads-trial-Texas.html](https://www.dailymail.co.uk/wires/reuters/article-9762689/Huawei-lawsuit-against-Verizon-heads-trial-Texas.html)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

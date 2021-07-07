@@ -1,11 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】福奇的谎言和不实陈述将会导致他面临很多苦难的日子
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1379059/)
+## 【快速新闻】盖特正式上线仅一天，班农先生关注者超5万
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1379286/)
 
-6/21/2021 班农先生：福奇这个病态的骗子，自信并坚持着他科学主义的方法论。他无视数据与证据，他撒谎并掩盖了病毒真相。因我们会把整个过程原原本本查清楚，会查到最细枝末节之处，看看是谁在撒谎。
+- 制作：视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月7日电/西喜社**
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

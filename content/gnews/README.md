@@ -12,38 +12,38 @@
 
 ---
 
-### [【NewsExpress】前总统川普将于周三就他的社交媒体平台计划做出&#8221;重要&#8221;的宣布——新闻发布会预计将在美国东部时间周三上午 11 点开始](/content/gnews/1/README.md)
- ` 闪电侠`
-
-### [【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺](/content/gnews/2/README.md)
+### [独家重磅：川普将起诉社交媒体封杀他账号的大科技公司](/content/gnews/1/README.md)
  ` 索尼克`
 
-### [【特约评论】民主自由的前提](/content/gnews/3/README.md)
+### [【NewsExpress】前总统川普将于周三就他的社交媒体平台计划做出&#8221;重要&#8221;的宣布——新闻发布会预计将在美国东部时间周三上午 11 点开始](/content/gnews/2/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺](/content/gnews/3/README.md)
+ ` 索尼克`
+
+### [【特约评论】民主自由的前提](/content/gnews/4/README.md)
  ` Gnews Special Squad`
 
-### [《华盛顿邮报》发表社论：中共对民主世界与人类自由威胁日增](/content/gnews/4/README.md)
+### [《华盛顿邮报》发表社论：中共对民主世界与人类自由威胁日增](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共整治在美上市科技公司是为开战做准备](/content/gnews/5/README.md)
- ` 军迷wilson`
+### [2021年6月23日 郭先生直播 重点信息汇总](/content/gnews/6/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [7月4日郭先生和班农先生直播文字精简版分享](/content/gnews/6/README.md)
+### [“掀锅盖”系列：20210703中共盟友全面翻脸，中共内战全面开打](/content/gnews/7/README.md)
+ ` 《爆料贵语--掀郭盖》NZ`
+
+### [7月4日郭先生和班农先生直播文字精简版分享](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郭先生7月6日GETTR报道](/content/gnews/7/README.md)
- ` 日本东京樱花团`
+### [以色列辉瑞疫苗接种只有64%&#8221;有效&#8221;](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [全文字版2021年7月5日郭文贵先生与班农先生G-TV直播](/content/gnews/8/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+### [【字幕视频】美国陆军或将于9月1日开始强制接种COVID-19疫苗](/content/gnews/10/README.md)
+ ` MOSREC`
 
-### [中共病毒Lambda变体发生不寻常突变 引发科学家担忧](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [【粤语配音】杰克·波索比克：《柳叶刀》发布的附录是彼得·达扎克存在利益冲突的认罪书](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【粤语配音】福奇的谎言和不实陈述将会导致他面临很多苦难的日子](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [【快速新闻】盖特正式上线仅一天，班农先生关注者超5万](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [【周说｜文贵】系列之2021年7月1日至7月4日](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -66,65 +66,65 @@
 ### [【墙文推荐】“天之骄子”的歹毒是偶然还是必然？](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【聚焦澳洲】澳媒指中共公然撒谎否认维族迫害，推动取消奥运举办权](/content/gnews/19/README.md)
+### [【字幕视频】美国陆军或将于9月1日开始强制接种COVID-19疫苗](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [【聚焦澳洲】澳媒指中共公然撒谎否认维族迫害，推动取消奥运举办权](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《公民记者》- 宁赠友邦，不予家奴！非洲人免费留学与中国人没钱上学](/content/gnews/20/README.md)
+### [《公民记者》- 宁赠友邦，不予家奴！非洲人免费留学与中国人没钱上学](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [【中英文】2021年7月3日：中共国的三国政治到了最后的绞杀阶段](/content/gnews/21/README.md)
+### [【中英文】2021年7月3日：中共国的三国政治到了最后的绞杀阶段](/content/gnews/22/README.md)
  ` Caihongqiao`
 
-### [《公民记者》- 罪恶体制！叫嚣刺死小孩的有钱人与殴打院士的书记](/content/gnews/22/README.md)
+### [《公民记者》- 罪恶体制！叫嚣刺死小孩的有钱人与殴打院士的书记](/content/gnews/23/README.md)
  ` 澳喜农场`
-
-### [中共国是“目前国际的大霸王”](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [中共国是“目前国际的大霸王”](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【NewsExpress】拆台：中共借中文教育进行海外扩张](/content/gnews/25/README.md)
- ` 索尼克`
+### [以色列辉瑞疫苗接种只有64%&#8221;有效&#8221;](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【新闻快讯】华为诉美电讯公司Verizon专利侵权，开始选择陪审团](/content/gnews/26/README.md)
+### [【路德社即时简报】 滴滴股价大跌20%](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [【NewsExpress】面对中共国经济渗透，澳财长明确表示国家利益至上](/content/gnews/27/README.md)
+### [【秘翻在线】中日关系恶化，日本政客频频发声](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【NewsExpress】拆台：中共借中文教育进行海外扩张](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [【热点播报】7月6日国际新闻速递](/content/gnews/28/README.md)
+### [【新闻快讯】华为诉美电讯公司Verizon专利侵权，开始选择陪审团](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [【樱花宅急便】中德退休“双面间谍”被逮捕](/content/gnews/29/README.md)
- ` 日本东京樱花团`
+### [【NewsExpress】面对中共国经济渗透，澳财长明确表示国家利益至上](/content/gnews/30/README.md)
+ ` 索尼克`
 
-### [当“战狼”主导中共国的外交声音（1）：赵立坚“一帖成名”](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [中共军企航天科技隐瞒2020年度财务报表正式审计报告](/content/gnews/31/README.md)
+ ` Jimsolomon`
 
-### [【史海今勾】七七事变的真相](/content/gnews/31/README.md)
+### [【史海今勾】七七事变的真相](/content/gnews/32/README.md)
  ` 纽约香草山MOS03`
 
-### [GETTR的价值](/content/gnews/32/README.md)
+### [GETTR的价值](/content/gnews/33/README.md)
  ` 日本东京樱花团`
 
-### [500多名中国留学生赴美签证被拒！外交部发言人赵立坚已向美方提出严正交涉。](/content/gnews/33/README.md)
+### [500多名中国留学生赴美签证被拒！外交部发言人赵立坚已向美方提出严正交涉。](/content/gnews/34/README.md)
  ` 日本东京樱花团`
 
-### [各国对美国和中国的印象大PK](/content/gnews/34/README.md)
- ` 日本东京樱花团`
+### [【快速新闻】盖特正式上线仅一天，班农先生关注者超5万](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [布林肯视频会晤维吾尔人并向达赖喇嘛表达生日祝福 狠狠打脸中共](/content/gnews/35/README.md)
+### [布林肯视频会晤维吾尔人并向达赖喇嘛表达生日祝福 狠狠打脸中共](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [【粤语配音】杰克·波索比克：《柳叶刀》发布的附录是彼得·达扎克存在利益冲突的认罪书](/content/gnews/36/README.md)
+### [【粤语配音】杰克·波索比克：《柳叶刀》发布的附录是彼得·达扎克存在利益冲突的认罪书](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【澳洲热点】“战狼”变“怨妇”，抱怨澳洲抢了中共疫苗的风头](/content/gnews/37/README.md)
+### [【澳洲热点】“战狼”变“怨妇”，抱怨澳洲抢了中共疫苗的风头](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [【粤语配音】福奇的谎言和不实陈述将会导致他面临很多苦难的日子](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [7/7/2021 财经快讯：香港政府继续推进争议隐私法；五角大楼取消100亿美元的云计算合同](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`

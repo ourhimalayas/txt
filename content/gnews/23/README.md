@@ -1,109 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国是“目前国际的大霸王”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1377805/)
+## 《公民记者》- 罪恶体制！叫嚣刺死小孩的有钱人与殴打院士的书记
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1378099/)
 
-**字幕内容：**
-Sharri Markson
-莎莉·马克森
+视频&文章：恭池投石
 
-Yeah look finally Peter what we’ve been witnessing with Hong Kong
-是的彼得，看看我们在香港见证的事情
+视频素材：wendy
 
-it’s just so heartbreaking and terrifying you know
-你知道，这太令人心碎和可怕了
+图片素材：文远
 
-journalists and editors being arrested at the airport as they’re trying to flee
-试图逃离的记者和编辑在机场被捕
+7月2日有网友在网上发了一段视频，视频里的女子非常嚣张的叫嚣：“敢动我的狗，我就给你孩子刺死，不就是钱嘛，老子有钱，老子干几个徽州宴，都是我干的，老子有钱不怕，几千万都赔得起”。
 
-There’s been a lot of speculation about whether or not the U.S. and Australia
-有很多关于美国和澳大利亚的猜测
+地点在安徽蚌埠绿地中央广场，一位女子遛狗时，狗咬了别人家的小孩，被咬小孩的家长因此扣留了她的狗。对此女子非常不满，在广场上叫嚣不已。该女子认为对方孩子出来应该自己看好。
 
-and other allies would intervene if China made an attempt to of reunification with Taiwan
-如果中共国试图与台湾统一，其他盟国会介入
+视频没有显示该女子溜狗时，是否有牵狗绳，不过该女子所说的“敢动我的狗，我就给你孩子刺死，不就是钱嘛”，女子认为她有钱就能摆平一切，认为人命不如她的狗值钱。
 
-What’s your view do you think we would
-你认为我们会怎么看？
+在中共的腐败的统治下，人人都变得唯钱权为尊，只要有钱有权你就高人一等，同时有钱就能和官员勾兑，来为自己谋取更多的好处和特权，甚至杀了人也不用负法律责任！法律就变成了一纸空文，整个社会彻底烂掉了。该女子表现出的嚣张，就是被中共所腐坏的这个社会所造就的。
 
-and do you think you know the U.S. and Australia should intervene in Taiwan
-你认为你知道美国和澳大利亚应该干预台湾问题？
+当然这只是有一点钱，就能表现得如此嚣张，如果有权，那就不可一世了。2021年7月3日，微博爆料航天投资控股有限公司党委书，董事长张陶评院士遭到拒绝，便殴打两位院士。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06224224/701-1.jpg)（网络图片）
+事情是这样的，2021年6月6日下午，航天投资控股有限公司党委书记，董事长张陶以汇报航天投资情况为由，请国际宇航科学院吴美蓉和王晋年两位院士聚餐。期间，让两位院士推荐自己入选国际宇航科学院院士，但遭到了两位院士的拒绝，张陶认为自己身居高位两个小院士居然拒绝，让他颜面扫地，于是恼羞成努，对王晋年院士大打出手，随便后又追进电梯对王院士进行了一个小时殴打，致王院士肋骨骨折，全身多处软组织损伤，头胸腹部肿胀，头晕呕吐，殴打王院士期间，对86岁的吴院士推搡，也导致吴院士脊椎骨折。
 
-if something did occur
-如果热战发生的话
+这就是中共手握权力者的不可一世，因为中共法律都是摆设，下面当官的作奸犯科，只要不违反所谓的中共“组织纪律”，他们就可以逍遥法外。所谓的“组织纪律”，不过是一种黑帮政治的产物，只要下面的小弟听自己话，老大就罩着他。作为老大的中共最高层更是无法无天，因为规则就是他们制定的，他们的话就是法律！
 
-Peter Jennings
-彼得詹宁斯
+（本文作者个人观点）
 
-I think Taiwan is going to be a red line for the United States
-我认为台湾将成为美国的红线
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-Joe Biden was around when Barack Obama was President
-当巴拉克奥巴马总统时，乔拜登就在他身边
-
-and they collectively made a mistake
-他们共同犯了一个错误
-
-to not push back against China’s militarization of the South China Sea
-没有对中共国在南海的军事化强硬对待
-
-Hong Kong I think everyone most particularly the Taiwanese were conscious of
-香港，我想每个人尤其是台湾人都知道
-
-what it means to find yourself being taken from being a relatively open city
-发现自己从一个相对开放的城市
-
-to being put directly under the control of the Chinese Community Party
-被直接置于共产党的控制之下意味着什么
-
-and so for the international community Taiwan becomes a critical test case
-所以对国际社会来说，台湾成为一个关键的测试案例
-
-if Biden is not prepared to strongly stand up for the defense of Taiwan
-如果拜登不准备坚决捍卫台湾
-
-as a democracy of 24 million people
-那是一个拥有 2400 万人的民主国家
-
-the first question we should be asking ourselves in Australia
-我们在澳大利亚应该问自己的第一个问题
-
-Sharri，is what hope do we have
-莎莉，我们还有什么希望？
-
-as a democracy of 25 million people
-作为一个拥有 2500 万人口的民主国家
-
-that’s not quite as strategically significant to the United States as Taiwan is
-澳洲对美国的战略意义不如台湾重要
-
-so I think this is a moment when the democracies have to rally together
-所以我认为这是民主国家必须团结起来的时刻
-
-and protect the interests of other democracies
-并保护其他民主国家的利益
-
-and clearly the test case for the over the next five to ten years
-并且显然是未来五到十年的测试案例
-
-I think will be how we engage Taiwan to protect their interests
-我认为这将是我们如何与台湾接触以保护他们的利益
-
-and to reduce the chances of a disastrous Chinese Community Party miscalculation
-并减少中国共产党灾难性的误判的机会
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接 **:[https://twitter.com/alpha\_mind7/status/1410947470994051072?s=24](https://twitter.com/alpha_mind7/status/1410947470994051072?s=24)
-英听校： 洛杉矶盘古农场- Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 -银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
++4

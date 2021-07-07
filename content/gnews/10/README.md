@@ -1,11 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】杰克·波索比克：《柳叶刀》发布的附录是彼得·达扎克存在利益冲突的认罪书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1379079/)
+## 【字幕视频】美国陆军或将于9月1日开始强制接种COVID-19疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1379373/)
 
-06/21/2021 《人事》的新主编杰克·波索比克：《柳叶刀》的附录是对他们在2020年2月发表的信件的一个重大更正。这根本就是彼得•达扎克利益冲突的认罪书。事实证明，彼得·达扎克就是推动病毒与实验室无关的人，然而他本人却，首先，从与武汉实验室的关系中获得经济利益。其次，还是这些功能增强性的实验的参与者。
+制作：香草山健身部 书记已嗝屁！
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
+
+
+
+**原文链接：[【热点播报】美国陆军或将于9月1日开始强制接种COVID-19疫苗](https://gnews.org/zh-hans/1374985/)**
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
