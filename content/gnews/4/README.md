@@ -1,34 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1378578/)
+## 独家重磅：川普将起诉社交媒体封杀他账号的大科技公司
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1379323/)
 
-#### 文章撰写:【默凡】
+作者：Gnews编委会
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07041425/5asdfsadf2034ef43f43gf0xfsdafsfd-1.jpg)
+根据早前的News Max新闻的报道，前总统唐纳德·川普将于周三就他的社交媒体平台计划做出”重要”的宣布。川普新闻发布会预计将在美国东部时间周三上午 11 点开始，Newsmax 将在新泽西州川普国家高尔夫俱乐部贝德明斯特现场直播该活动。
 
-7月7日，台湾总统蔡英文发推表示，祝贺桑德拉·奥德柯克（Sandra Oudkirk）新上任美国在台协会台北办事处主任。我知道，在我们共同努力深化美台伙伴关系时，您丰富的外交经验将带来巨大帮助。
+Gnews中文报道链接：[gnews](https://gnews.org/zh-hans/1378201/)
+News Max报道原文链接：[www.newsmax](https://www.newsmax.com/us/social-media-big-tech-announcement-live/2021/07/06/id/1027699/)
 
+外界普遍存在猜测，川普总统将可能宣布入驻新兴的自由言论社交媒体平台 盖特GETTR 。
 
+而川普总统前高级顾问 史蒂夫·班农 先生，在美东时间9:00的每周专访中向英国伦敦英喜庄园透露：
+1.今天的发布会将不会探讨，川普总统将会使用哪个社交媒体。
+2.盖特很快就会召开发布会，宣布该平台在上线几日之后，就已经突破了100万用户大关，创社交媒体平台中最快增长的记录。
+3.川普总统于美东时间11点的发布会将会提及，川普团队可能会对封杀川普个人账号的社交媒体公司进行起诉。
 
-> Congratulations to Sandra Oudkirk on your new post as director of the American Institute in Taiwan (AIT) Taipei Office. I know your vast diplomatic experience will serve you well as we work together to deepen the [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)–[#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) partnership. [pic.twitter.com/SBu711si3U](https://t.co/SBu711si3U)
-> — 蔡英文 Tsai Ing-wen (@iingwen) [July 7, 2021](https://twitter.com/iingwen/status/1412618466658439174?ref_src=twsrc%5Etfw)
+众所周知，推特、脸书等社交媒体平台在大选前无理由禁言了川普总统的个人账户，近期也多次关停诸如批评中共政权的新西兰大学教授、支持西藏少数民族人权运动组织等的账号等，更是对反对共产主义的爆料革命战友展开全面封杀。大型科技公司对于话语权的垄断，已经严重影响了美国宪法第一修正案赋予的言论自由权，形成了独立于政府之外不受任何监管的金融寡头。而川普总统班农先生代表的平民主义力量，对金融寡头公司的起诉，势必影响这些大科技公司的股价，从而限制其继续与中共合作打压言论自由。而希望彻底恢复言论自由，还需要GETTR这类真正的自由言论平台。
 
+英国伦敦喜庄园采访视频链接：[gtv](https://gtv.org/video/id=60e5a6658bc36963ff0af6ad)
+川普新闻发布会观看地址：[watchnewsnow](https://watchnewsnow.org/?gclid=EAIaIQobChMI6Ju2yffP8QIVuToBCh044ww_EAEYASAAEgJtOPD_BwE)
 
+欢迎大家收看川普团队新闻发布会，Gnews也会第一时间跟进报道。
 
-7月6日，美国驻台研究所发表声明称，任命桑德拉·奥德柯克为美国在台协会台北办事处主任，她将在今年夏天晚些时候接替布伦特·克里斯滕森，在没有正式关系的情况下担任美国大使，这是拜登政府对中共国不断施压下进一步加强与美台关系的新举措。
+Gnews编委会特别文章。
 
-自去年10月特里·布兰斯塔德 (Terry Branstad) 离任美国驻中共国大使以来，美国驻中共国大使已空缺九个月，拜登政府上任何不断推进美国与台湾在商业和文化领域的半官方关系，同时不断加强与台湾的国防合作，以进一步威慑中共国。
-
-奥德柯克此前曾在美在台协会工作过，后来担任亚太经济合作组织的美国高级官员，以及澳大利亚、新西兰和太平洋岛屿的国务卿副助理，她是美在台协会第一位女性领导。
-
-参考文章：[U.S. Names Taiwan Envoy With China Ambassador Post Still Vacant](https://www.bloomberg.com/news/articles/2021-07-07/u-s-names-taiwan-envoy-with-china-ambassador-post-still-vacant)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
-
-+4
+0
