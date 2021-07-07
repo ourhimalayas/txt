@@ -12,47 +12,47 @@
 
 ---
 
-### [【特约评论】民主自由的前提](/content/gnews/1/README.md)
+### [【NewsExpress】前总统川普将于周三就他的社交媒体平台计划做出&#8221;重要&#8221;的宣布——新闻发布会预计将在美国东部时间周三上午 11 点开始](/content/gnews/1/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺](/content/gnews/2/README.md)
+ ` 索尼克`
+
+### [【特约评论】民主自由的前提](/content/gnews/3/README.md)
  ` Gnews Special Squad`
 
-### [习近平七一演讲稿中英文版本区别所透露的本质](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德时评》重磅解读前日副首相麻生太郎称必须保护台湾，及上海高校再次发生割喉事件](/content/gnews/3/README.md)
- ` 香柏树`
-
-### [中共国体制建立在谎言上，它无法埋葬自由世界](/content/gnews/4/README.md)
+### [《华盛顿邮报》发表社论：中共对民主世界与人类自由威胁日增](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《路德时评》重磅解读习神同默克尔马克龙举行视频会议，及中共意识到全球技术脱钩不可逆转](/content/gnews/5/README.md)
- ` 香柏树`
+### [中共整治在美上市科技公司是为开战做准备](/content/gnews/5/README.md)
+ ` 军迷wilson`
 
-### [2021年7月6日 文贵先生盖特 4](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [7月4日郭先生和班农先生直播文字精简版分享](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [“掀锅盖”系列：20210629中共百年冥诞怕得要死，金融全靠擀面杖造假硬撑，71前后大事不断](/content/gnews/7/README.md)
- ` 《爆料贵语--掀郭盖》NZ`
+### [郭先生7月6日GETTR报道](/content/gnews/7/README.md)
+ ` 日本东京樱花团`
 
-### [2021年7月6日 文贵先生盖特 3](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [全文字版2021年7月5日郭文贵先生与班农先生G-TV直播](/content/gnews/8/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [【文字版】路德时评2021.7.3晚间（路博艾谈）：拜登表示“如果俄罗斯是大规模网络攻击美国幕后黑手，美将报复，明天将肯定知道答案”意味着什么？王毅正告美国中共国完全统一任何人无法阻挡！](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共病毒Lambda变体发生不寻常突变 引发科学家担忧](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
 
-### [栽下梧桐树 引来众凤凰](/content/gnews/10/README.md)
- ` 秘密翻译组G-Translators`
+### [【粤语配音】杰克·波索比克：《柳叶刀》发布的附录是彼得·达扎克存在利益冲突的认罪书](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【文字版】路德时评2021.7.2晚间（路博艾谈）：左媒NBC全面报道病毒与中共军方关系意味着什么？塞林上校发信斯里兰卡大使馆警告“不要影响两国关系”意味着什么？](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【粤语配音】福奇的谎言和不实陈述将会导致他面临很多苦难的日子](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [后疫苗时代如何生存](/content/gnews/12/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [【周说｜文贵】系列之2021年7月1日至7月4日](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
 
-### [【中国观察】短视频：中共国疯狂建设核导弹发射井以扩充核武库](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [生殖器治国系列之杨澜如何进入CCTV并主持正大综艺](/content/gnews/14/README.md)
+### [如何辨别共产党的大外宣](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【樱花宅急便】林郑月娥：期待内地红毒入侵“本地蛋”](/content/gnews/14/README.md)
+ ` 日本东京樱花团`
 
 ### [【热点播报】中共国长春市基督教会血旗下祝福CCP](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
@@ -66,117 +66,117 @@
 ### [【墙文推荐】“天之骄子”的歹毒是偶然还是必然？](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【路德时评摘要】2021.6.28晚间：中俄睦邻友好签署20年续约毫无意义](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [习近平七一演讲稿中英文版本区别所透露的本质](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [杰森·米勒：我们希望每个人，包括川普总统都能加入到这个百花争鸣的思想集市中](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [杰森•米勒：新社交媒体平台GETTR将于周日上午10点左右正式上线](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [蓬佩奥：习近平气焰嚣张因为他认为美国衰落了](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【聚焦澳洲】（视频）中共是一只躲在“铜墙铁壁”外衣下的 “纸老虎”](/content/gnews/24/README.md)
+### [【聚焦澳洲】澳媒指中共公然撒谎否认维族迫害，推动取消奥运举办权](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [[密翻在线】麻生副首相提“危机事态”阻中共侵台 遭外交战狼反击](/content/gnews/25/README.md)
- ` 秘密翻译组G-Translators`
+### [《公民记者》- 宁赠友邦，不予家奴！非洲人免费留学与中国人没钱上学](/content/gnews/20/README.md)
+ ` 澳喜农场`
 
-### [【NewsExpress】中共国企业在美国上市的股票因担心受到更多打击而下跌](/content/gnews/26/README.md)
- ` 索尼克`
+### [【中英文】2021年7月3日：中共国的三国政治到了最后的绞杀阶段](/content/gnews/21/README.md)
+ ` Caihongqiao`
 
-### [【热点播报】7月5日国际新闻速递](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
+### [《公民记者》- 罪恶体制！叫嚣刺死小孩的有钱人与殴打院士的书记](/content/gnews/22/README.md)
+ ` 澳喜农场`
 
-### [越南CCP病毒感染激增 Delta病毒为主](/content/gnews/28/README.md)
- ` 索尼克`
-
-### [【路德社即时简报】 麻生太郎：美、日必须共同保护台湾](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
-
-### [俄罗斯小型飞机撞崖解体 28人无人生还](/content/gnews/30/README.md)
- ` 索尼克`
-
-### [【西媒头条】第17期](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [维吾尔种族灭绝起点， 抵制北京冬奥会](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/07/06 英喜时事速递](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【路德简报】7/5/2021晚：习近平恐惧被脱钩 和马克龙、默克尔视频会议 一改强硬态度](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【战斗室·中共百年奠】杰克·波索比克：将人变成小暴君，中共就是如此扭曲人性的](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [班农：川普将再次竞选总统，共和党将夺回众议院](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [史蒂夫⋅班农：中共是人类历史上最残暴的政权](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [法国前总理菲利普早在 2018 年预言“一种我们没有预见的病毒”](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [7/6/2021 财经快讯：滴滴股价开盘前暴跌25%；英国银行寻求偿还1050亿美元的中共病毒贷款](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
-
-### [7/5/2021 财经快讯：美国独立日自由社交媒体Gettr正式启动；滴滴上市5天即遭中共下架](/content/gnews/40/README.md)
- ` 秘密翻译组金融团队`
-
-### [7/3/2021 财经快讯：法国调查时装零售商在中共国隐瞒“反人类罪”，莫里森同意投资集团的收购要约](/content/gnews/41/README.md)
- ` 秘密翻译组金融团队`
-
-### [美台就贸易投资优先事项举行对话](/content/gnews/42/README.md)
+### [中共国是“目前国际的大霸王”](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【文字版】路德时评2021.7.3晚间（路博艾谈）：拜登表示“如果俄罗斯是大规模网络攻击美国幕后黑手，美将报复，明天将肯定知道答案”意味着什么？王毅正告美国中共国完全统一任何人无法阻挡！](/content/gnews/43/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共国是“目前国际的大霸王”](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [栽下梧桐树 引来众凤凰](/content/gnews/44/README.md)
- ` 秘密翻译组G-Translators`
+### [【NewsExpress】拆台：中共借中文教育进行海外扩张](/content/gnews/25/README.md)
+ ` 索尼克`
 
-### [【文字版】路德时评2021.7.2晚间（路博艾谈）：左媒NBC全面报道病毒与中共军方关系意味着什么？塞林上校发信斯里兰卡大使馆警告“不要影响两国关系”意味着什么？](/content/gnews/45/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【新闻快讯】华为诉美电讯公司Verizon专利侵权，开始选择陪审团](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
 
-### [【文字版】路德时评2021.7.1晚间（路博艾谈）：布林肯直接认定中共政府为人口劳动力贩卖意味着什么？法国检方正式对ZARA、优衣库等4大国际时装巨头进行隐瞒反人类调查意味着什么？](/content/gnews/46/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【NewsExpress】面对中共国经济渗透，澳财长明确表示国家利益至上](/content/gnews/27/README.md)
+ ` 索尼克`
 
-### [震惊！澳媒揭中共国呈联合国文件承认人造病毒可能祸及全人类](/content/gnews/47/README.md)
+### [【热点播报】7月6日国际新闻速递](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [【樱花宅急便】中德退休“双面间谍”被逮捕](/content/gnews/29/README.md)
+ ` 日本东京樱花团`
+
+### [当“战狼”主导中共国的外交声音（1）：赵立坚“一帖成名”](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【史海今勾】七七事变的真相](/content/gnews/31/README.md)
+ ` 纽约香草山MOS03`
+
+### [GETTR的价值](/content/gnews/32/README.md)
+ ` 日本东京樱花团`
+
+### [500多名中国留学生赴美签证被拒！外交部发言人赵立坚已向美方提出严正交涉。](/content/gnews/33/README.md)
+ ` 日本东京樱花团`
+
+### [各国对美国和中国的印象大PK](/content/gnews/34/README.md)
+ ` 日本东京樱花团`
+
+### [布林肯视频会晤维吾尔人并向达赖喇嘛表达生日祝福 狠狠打脸中共](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [【文字版】路德时评2021.6.30晚间（路博娜谈）：江泽民未出现天安门中共百年祭日庆典，胡锦涛温家宝出现意味着什么？福克斯金牌主持塔克专访闫博士一小时在中共百年纪念日放出来意味什么？](/content/gnews/48/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【粤语配音】杰克·波索比克：《柳叶刀》发布的附录是彼得·达扎克存在利益冲突的认罪书](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [川普顾问杰森 · 米勒将推出 盖特（GETTR) 一 个 &#8220;免封号&#8221; 的社交媒体平台](/content/gnews/49/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【币圈】-数字货币动态- 2021.07.06](/content/gnews/50/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [日本副首相：若中共武力犯台 美日将合作防卫台湾](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
-
-### [美国独立日245周年自由民主法治与中共百年冥诞释放病毒的两个世界](/content/gnews/52/README.md)
- ` G-NEWS TAIWAN`
-
-### [【聚焦澳洲】“头破血流”威胁大，澳洲各界备战忙](/content/gnews/53/README.md)
+### [【澳洲热点】“战狼”变“怨妇”，抱怨澳洲抢了中共疫苗的风头](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“习神”“头破血流”毒咒：官方紧跟 民间吐槽](/content/gnews/54/README.md)
- ` 日本东京方舟农场`
+### [【粤语配音】福奇的谎言和不实陈述将会导致他面临很多苦难的日子](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [这是改变历史的一个月](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
+### [7/7/2021 财经快讯：香港政府继续推进争议隐私法；五角大楼取消100亿美元的云计算合同](/content/gnews/39/README.md)
+ ` 秘密翻译组金融团队`
 
-### [【2021台海危机】美国务卿共同的话：攻台将付出巨大代价](/content/gnews/56/README.md)
+### [美国打击中共对斯里兰卡的债务陷阱让其交出闫丽梦丈夫](/content/gnews/40/README.md)
+ ` Jimsolomon`
+
+### [【经济超限战】美中半导体超限战中共败局已定](/content/gnews/41/README.md)
+ ` 纽约香草山MOS01`
+
+### [7/6/2021 财经快讯：滴滴股价开盘前暴跌25%；英国银行寻求偿还1050亿美元的中共病毒贷款](/content/gnews/42/README.md)
+ ` 秘密翻译组金融团队`
+
+### [拜登政府发表声明：不支持台独](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【币圈】-数字货币动态- 2021.07.07](/content/gnews/44/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [德国已对双面间谍开始动手](/content/gnews/45/README.md)
  ` G-NEWS TAIWAN`
+
+### [【聚焦澳洲】指控美国倒打一耙，中共祭出“种族牌”](/content/gnews/46/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共在欧盟的三驾马车 英国已经失守](/content/gnews/47/README.md)
+ ` G-NEWS TAIWAN`
+
+### [日本副首相发声必须保护台湾](/content/gnews/48/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共扬言「粉碎」台湾，美日表态共同护台](/content/gnews/49/README.md)
+ ` G-NEWS TAIWAN`
+
+### [你好朋友第5期:听减肥进行时的安红分享减肥、爆料革命的经历和期许](/content/gnews/50/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [Gettr上线是对世界正义力量的集结](/content/gnews/51/README.md)
+ ` 澳喜农场`
+
+### [【聚焦澳洲】中共达尔文港巴拿马港项目双双搁浅](/content/gnews/52/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年07月06日澳喜要闻（每日更新）](/content/gnews/53/README.md)
+ ` 澳喜农场`
+
+### [【文字版】路德时评2021.7.6早间（路墨娜谈）:日本副首相兼财务大臣（前首相）麻生太郎发声日本“必须”保护台湾](/content/gnews/54/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共病毒Lambda变体开始蔓延世界](/content/gnews/55/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [7/7/2021日本银河快讯：日本副首相称若中共侵台，美日将共同保卫台湾；文在寅将出席奥运会并参加日韩首脑会谈](/content/gnews/56/README.md)
+ ` 日本银河系农场-阿尔法星球`
 

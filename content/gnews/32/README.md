@@ -1,24 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 维吾尔种族灭绝起点， 抵制北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1376111/)
+## GETTR的价值
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1379061/)
 
-2021年7月6日
+撰稿：东京樱花团/小小星
+ 校对：东京樱花团/煙火1095 
 
-![]( "日本維吾爾人協會七五烏魯木齊大屠殺紀念示威。   圖：翻攝臺灣東突厥斯坦協會臉書影片")![](https://s.newtalk.tw/album/news/600/60e2e345d4846.png "日本維吾爾人協會七五烏魯木齊大屠殺紀念示威。   圖：翻攝臺灣東突厥斯坦協會臉書影片")
+自从GETTR在苹果商店上线后，成千上万的大V名人加入了GETTR。
 
-7月5日是乌鲁木齐大屠杀12年纪念日，台湾东突厥斯坦协会发表声明：12年前的今日，是维吾尔种族灭绝的起点。美国国务院发表《国际宗教自由报告》，指称中共在新疆实施天网监控，将上百万维吾尔人关进集中营强制劳动。全球已有10个国家国会及欧洲议会通过决议抵制2022北京冬奥会，呼吁台湾跟进，为被中共压迫的国家及民族发声。
+有彭培奥，班农。巴西总统，沙特王子等等…
 
-**【[新闻来源](https://newtalk.tw/news/view/2021-07-05/599393)】**
+7.1号上线，7.7号在美国已经排名第一。在google play商店的所有类别中已经排名第二。这是正义力量的集结。
 
-* * *
+在全球各大媒体和各社交媒体对我们爆料革命，揭露ccp病毒真相的报道全面封杀的时刻。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+我们的GTV和GETTR是一支独秀，傲然绽放在世人面前。我们是给人们说实话，真相的媒体，是真正自由，平等的媒体。
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-+1
+我们在改变着世界，相信不久之后GTV和GETTR会是家喻户晓的媒体！
+![]()![](https://media.discordapp.net/attachments/861890080100450304/862308900372348928/yu_gettr.png)
++2

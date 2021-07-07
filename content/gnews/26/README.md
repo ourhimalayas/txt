@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】中共国企业在美国上市的股票因担心受到更多打击而下跌
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1377114/)
+## 【新闻快讯】华为诉美电讯公司Verizon专利侵权，开始选择陪审团
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1379113/)
 
-编译：文复
+作者：香草山健身部Jack Li文阳
 
-在中共国政府阻止下载该公司的应用程序后，滴滴打车的股价在早盘交易中下跌了 22%。据路透社报道，此举似乎是中共国更广泛打击行动的一部分，中共国国务院的一名官员表示，监管机构正在采取新措施来监控跨境数据安全和潜在的证券欺诈行为。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-中共国监管机构的行动是在滴滴在美国上市后不到一周的时间里做出的。最近两家规模较小的上市公司-全卡车联盟和看准也在接受监管机构的审查，周二早上它们的股价大幅下跌。
 
-近年来，对投资中共国股票的担忧有所增加，前总统唐纳德特朗普试图禁止投资与中共国军方有关联的公司，美国监管机构推动对一些外国上市公司进行更严格的审查。
 
-投资公司奥本海默 (Oppenheimer) 在一份报告中表示，美国加强监管的努力可能是导致这些安全审查的原因。
+中共国电信设备制造商华为技术有限公司对Verizon通信公司提起的专利侵权诉讼，将于7月7日开始选择陪审团。
 
-“我们认为，这些网络安全审查可能是因为中共国担心将敏感数据泄露给外国，因为美国通过立法，要求在美国交易所上市的中共国公司允许美国上市公司会计监督委员会（PCAOB）检查其审计师的工作，否则就从美国交易所摘牌，”该报道说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07091251/%E5%9B%BE%E7%89%875-4.png)
 
-美国银行分析师 Eddie Leung 在一份报告中表示，政府对数据的审查可能成为投资者的持续风险因素。
+2020年2月，华为在德克萨斯州的两家美国地方法院起诉Verizon，称该公司在计算机网络、下载安全和视频通信等领域未经授权使用了十几项华为专利，要求Verizon支付数额不详的赔偿金和专利费。
 
-该说明称，“地缘政治因素可能会起作用，数据安全检查有可能成为未来中共国大型互联网公司计划海外上市的标准程序，”。
+Verizon去年称这些诉讼 “只不过是一个公关噱头”，“是对我们公司和整个科技生态系统的偷袭”，并对华为提出反诉，称中共国公司侵犯了Verizon的专利。
 
-周二早上的一个例外是微博，在路透社报道该公司董事长正在谈判将社交媒体公司私有化之后，微博股价飙升了 12%。
+华为在2020年表示，它只是要求Verizon尊重华为在研发方面的投资，要么为使用我们的专利付费，要么不使用这些专利。华为7月6日拒绝发表评论。
 
-文章来源：[cnbc](https://www.cnbc.com/2021/07/06/china-stocks-fall-alibaba-jd-tencent-didi-crackdown.html)
+几年来，华为一直是美中关系中的一个热点。美国在2019年将该公司列入经济黑名单，因为它对国家有安全风险问题。
 
-校对发稿：ADA（马德里）
+2019年6月，路透社报道说，华为告诉Verizon，它应该为使用230多项华为专利支付许可费，并寻求超过10亿美元。
 
-（本文系作者个人观点，不代表GNEWS平台）
+简评：中共一贯偷盗美国技术，回国在自己家抢注专利，转过头诉讼原技术持有者，要么给钱，要么停止使用，可谓卑鄙无耻之极。华为诉Verizon侵权案，让美国企业机构吃些苦头，唤醒更多沉睡的人，未尝不是件好事。蛇不咬农夫，善良的农夫也不会去打死毒蛇。华为要自寻死路，真是拦也拦不住啊。
+
+新闻来源：
+
+[https://www.dailymail.co.uk/wires/reuters/article-9762689/Huawei-lawsuit-against-Verizon-heads-trial-Texas.html](https://www.dailymail.co.uk/wires/reuters/article-9762689/Huawei-lawsuit-against-Verizon-heads-trial-Texas.html)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
