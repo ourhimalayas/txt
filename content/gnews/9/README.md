@@ -1,31 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列辉瑞疫苗接种只有64%&#8221;有效&#8221;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1379405/)
+## 【字幕视频】福奇资助的美国实验室，培养中共科学家的摇篮
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1379552/)
 
-翻译：nstar 责编：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07111405/1-31.jpg)
-7月5日《以色列时报》发表的一篇文章提供了关于所谓疫苗有效性的最新数字。在以色列，疫苗接种主要由辉瑞/Biontech公司完成。6月，据说该疫苗预防感染中共病毒的预期效果只有64%。然而，这种提法被认为是有问题的，因为接种疫苗既不能防止感染，也不能防止疾病的传播–只能减少严重病症的发生频率。
+制作：香草山健身部 书记已嗝屁！
+字幕：香草山信息部 6zero4
 
-目前，以色列正在再次讨论更加严格的措施，以控制所谓的 “新冠状病毒 “的印度变异毒株的传播。《以色列时报》还报道说，以色列正在考虑广泛使用Moderna的疫苗进行第二次接种，因此推迟了从辉瑞公司/Biontech公司订购100万剂疫苗的计划。应该指出的是，到目前为止, 没有关于随意混合疫苗的效果、副作用和长期后果的结论性研究数据。以色列在世界上是最有效地开展了疫苗接种运动的国家之一。约有57%的普通民众完全接种了疫苗，包括88%的50岁以上人口–被认为是最有可能发生严重病例的群体。就在此时,大约930万人口中目前有2597个 “活跃病例”。68人被送入医院，其中35人处于 “严重状态”。
-
-关于疫苗接种的实际效果，问题显然远远多于答案，即使政治家和法庭媒体对此的表述完全不同。在欧盟的官方主页上，你可以找到对一个重要问题的非常有意义的答案，参看如下引用自欧盟官网的问答。
-
-*13.接种疫苗的人还能传播疾病吗？*
-
-*我们还不知道。为了评估疫苗接种对无症状疾病的影响，我们仍然需要更多的信息，如临床试验的数据和疫苗批准后的使用情况。*
-
-*因此，就目前而言，即使是接种了疫苗的人也必须继续戴口罩，避免在封闭的空间内拥挤，限制其社会接触，等等。然而，其他因素–例如有多少人接种疫苗以及病毒在群体中传播的速度–可能会导致这些行为规则的改变。*
-
-**请注意，这是在所谓的大流行病爆发****15****个月后，欧盟仍然****“****不知道**** “****接种疫苗会产生什么影响****!!!**
-
-参考新闻：
-
-[https://fortune.com/2021/07/05/israel-data-plunge-efficacy-pfizer-biontech-vaccine-delta-variant/](https://fortune.com/2021/07/05/israel-data-plunge-efficacy-pfizer-biontech-vaccine-delta-variant/)
-
-[https://www.jpost.com/breaking-news/health-officials-rule-covid-booster-recommended-for-immunocompromised-672894](https://www.jpost.com/breaking-news/health-officials-rule-covid-booster-recommended-for-immunocompromised-672894)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+德州加尔维斯顿国家实验室(GNL)主任James Le Duc的PPT演示报告，将该实验室描述为“在福奇的NIAID资助下建造”，专注于生物安全空间研究，并将武毒所(WIV)作为案例研究，展示了两个实验室之间多年密切的合作关系。该报告还提到在2018 年由 James Le Duc 和WIV副主任袁志明合作的一篇文章中，讨论了他们对“世界上最危险病原体”的联合处理，并记录了这两个实验室：“专注于生物安全、设施运营和维护，以及生物防护的科学协作与调查之短期和长期人员交流与培训，指导了WIV旗下最大生物遏制实验室 (MCL)的新建，并成功将在GNL经过验证的最佳实践转移到WIV的MCL。两个实验室最近签署了正式合作协议，以精简未来关于危险病原体的科研和运营合作”。演示文稿还包含一张“蝙蝠女”石正丽参加 2018 年在 GNL 会议期间的照片，包括北卡罗来纳大学(UNC)研究员、“功能获得”之父拉尔夫·巴里克 (Ralph Baric)。
+
+福奇的NIAID资助下的GNL，设有一个培训中心，供研究人员在具有各种生物安全级别 (BSL) 的设施中工作，对WIV进行了长期人员交流和培训。GNL的简介还显示了WIV夏涵（音）博士在 GNL 奖学金下工作的情况，她在中科院获得生物化学和分子生物学博士学位，于 2013 年夏天到达GNL，专注于病毒、疾病诊断分析方法、疫苗研究、基因功能、基因组及其进化分析，以及流行病学领域。夏涵还在获得奥巴马政府批准后，于 2014 年 1 月与昆明医学生物学研究所的学员一起在GNL开始 BSL-4 的培训。
+
+
+
+**原文链接：[EXC：福奇资助的德克萨斯实验室培训武汉研究人员如何处理“世界上最危险的病原体”](https://gnews.org/zh-hans/1362190/)**
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

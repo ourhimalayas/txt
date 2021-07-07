@@ -1,12 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本副首相发声必须保护台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1378883/)
+## 中共在欧盟的三驾马车 英国已经失守
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1378920/)
 
 台湾宝岛农场 视频组
-
-日本体系与美国体系搭建上，日本军力将是中共最害怕的。
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05224543/%E7%AA%84-3.jpg)
 ***更多资讯***
 [台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)

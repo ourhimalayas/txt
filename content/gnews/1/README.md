@@ -1,30 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家重磅：川普将起诉社交媒体封杀他账号的大科技公司
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1379323/)
+## 盖特在上线后的48小时内就拥有了第一百万的用户
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1379551/)
 
-作者：Gnews编委会
+2021年7月7日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07100459/phpv7LZuS-12.jpg)
+班农先生刚刚在GTV英国英语频道接受了喜马拉雅伦敦俱乐部的周期采访。他爆料说，盖特刚刚拥有了第一百万的用户。这在行业内是一个记录。
 
-根据早前的News Max新闻的报道，前总统唐纳德·川普将于周三就他的社交媒体平台计划做出”重要”的宣布。川普新闻发布会预计将在美国东部时间周三上午 11 点开始，Newsmax 将在新泽西州川普国家高尔夫俱乐部贝德明斯特现场直播该活动。
+盖特是一个“免取消”的新媒体平台，于7月4日正式启动。在48小时内，即程序上线后的第三天，它的用户数量已超过了100万人。盖特的知名用户来自世界各地，包括巴西的总统。
 
-Gnews中文报道链接：[gnews](https://gnews.org/zh-hans/1378201/)
-News Max报道原文链接：[www.newsmax](https://www.newsmax.com/us/social-media-big-tech-announcement-live/2021/07/06/id/1027699/)
+在节目中，班农先生还首次爆料，第45届美国总统川普将在今天上午11点NewsMax的采访中宣布对大科技公司的诉讼。我们期待着事态的发展。
 
-外界普遍存在猜测，川普总统将可能宣布入驻新兴的自由言论社交媒体平台 盖特GETTR 。
+恭喜盖特的上线成功。它真正的保护了言论自由。
 
-而川普总统前高级顾问 史蒂夫·班农 先生，在美东时间9:00的每周专访中向英国伦敦英喜庄园透露：
-1.今天的发布会将不会探讨，川普总统将会使用哪个社交媒体。
-2.盖特很快就会召开发布会，宣布该平台在上线几日之后，就已经突破了100万用户大关，创社交媒体平台中最快增长的记录。
-3.川普总统于美东时间11点的发布会将会提及，川普团队可能会对封杀川普个人账号的社交媒体公司进行起诉。
+马上注册盖特，获得更美好的盖特生活!
 
-众所周知，推特、脸书等社交媒体平台在大选前无理由禁言了川普总统的个人账户，近期也多次关停诸如批评中共政权的新西兰大学教授、支持西藏少数民族人权运动组织等的账号等，更是对反对共产主义的爆料革命战友展开全面封杀。大型科技公司对于话语权的垄断，已经严重影响了美国宪法第一修正案赋予的言论自由权，形成了独立于政府之外不受任何监管的金融寡头。而川普总统班农先生代表的平民主义力量，对金融寡头公司的起诉，势必影响这些大科技公司的股价，从而限制其继续与中共合作打压言论自由。而希望彻底恢复言论自由，还需要GETTR这类真正的自由言论平台。
+**【新闻来源】**
 
-英国伦敦喜庄园采访视频链接：[gtv](https://gtv.org/video/id=60e5a6658bc36963ff0af6ad)
-川普新闻发布会观看地址：[watchnewsnow](https://watchnewsnow.org/?gclid=EAIaIQobChMI6Ju2yffP8QIVuToBCh044ww_EAEYASAAEgJtOPD_BwE)
+* * *
 
-欢迎大家收看川普团队新闻发布会，Gnews也会第一时间跟进报道。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-Gnews编委会特别文章。
 
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

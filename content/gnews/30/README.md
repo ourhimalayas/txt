@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】面对中共国经济渗透，澳财长明确表示国家利益至上
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1379127/)
+## 【新闻快讯】华为诉美电讯公司Verizon专利侵权，开始选择陪审团
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1379113/)
 
-#### 文章撰写:【默凡】
+作者：香草山健身部Jack Li文阳
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07091502/80fsadfsaf43f34gg21r4tg5u7u8k8m0.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-7月7日星期三，澳大利亚执政的保守党自由党副领袖、财政部长乔什·弗莱登伯格（Josh Frydenberg）在堪培拉议会大厦举行新闻发布会上向媒体发表讲话。
 
-财政部长发言称：尽管中澳出现双边争端，这扰乱了价值数百亿美元的澳大利亚大宗商品贸易，其中包括煤炭、葡萄酒、牛肉、大麦、木材和龙虾，但是澳大利亚不会把经济利益放在首位。
 
-白宫印太地区协调员库尔特坎贝尔周二晚在亚洲协会的网络研讨会上说：“就中共国和澳大利亚之间的紧张局势而言，我认为这是我们要长期解决的问题。”
+中共国电信设备制造商华为技术有限公司对Verizon通信公司提起的专利侵权诉讼，将于7月7日开始选择陪审团。
 
-弗莱登伯格表示，澳大利亚通过禁止中共国通信巨头华为参与本国的5G网络建设、禁止外国秘密干涉国内政治，以及取消澳大利亚州政府根据北京的“一带一路”基础设施倡议达成的交易来保护澳大利亚的国家利益。弗莱登伯格表示他还以国家利益为由，亲自阻止了中共国在澳大利亚的投资申请
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07091251/%E5%9B%BE%E7%89%875-4.png)
 
-参考文章：
+2020年2月，华为在德克萨斯州的两家美国地方法院起诉Verizon，称该公司在计算机网络、下载安全和视频通信等领域未经授权使用了十几项华为专利，要求Verizon支付数额不详的赔偿金和专利费。
 
-[1][Aussie treasurer: National interests come first with China](https://www.seattletimes.com/business/aussie-treasurer-national-interests-come-first-with-china/)
+Verizon去年称这些诉讼 “只不过是一个公关噱头”，“是对我们公司和整个科技生态系统的偷袭”，并对华为提出反诉，称中共国公司侵犯了Verizon的专利。
 
-[2][Aussie treasurer: National interests come first with China](https://apnews.com/article/china-health-coronavirus-pandemic-business-government-and-politics-e77e897ec7795c864a477b157ad59021)
+华为在2020年表示，它只是要求Verizon尊重华为在研发方面的投资，要么为使用我们的专利付费，要么不使用这些专利。华为7月6日拒绝发表评论。
 
-本文仅代表作者本人观点，不代表Gnews平台
+几年来，华为一直是美中关系中的一个热点。美国在2019年将该公司列入经济黑名单，因为它对国家有安全风险问题。
 
-* * *
+2019年6月，路透社报道说，华为告诉Verizon，它应该为使用230多项华为专利支付许可费，并寻求超过10亿美元。
 
-排版发布：日本东京方舟农场 文柯Miles
+简评：中共一贯偷盗美国技术，回国在自己家抢注专利，转过头诉讼原技术持有者，要么给钱，要么停止使用，可谓卑鄙无耻之极。华为诉Verizon侵权案，让美国企业机构吃些苦头，唤醒更多沉睡的人，未尝不是件好事。蛇不咬农夫，善良的农夫也不会去打死毒蛇。华为要自寻死路，真是拦也拦不住啊。
+
+新闻来源：
+
+[https://www.dailymail.co.uk/wires/reuters/article-9762689/Huawei-lawsuit-against-Verizon-heads-trial-Texas.html](https://www.dailymail.co.uk/wires/reuters/article-9762689/Huawei-lawsuit-against-Verizon-heads-trial-Texas.html)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

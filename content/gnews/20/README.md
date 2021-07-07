@@ -1,48 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦澳洲】澳媒指中共公然撒谎否认维族迫害，推动取消奥运举办权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1378417/)
+## 【字幕视频】福奇资助的美国实验室，培养中共科学家的摇篮
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1379552/)
 
-#### 雅典娜【聚焦澳洲】，汇聚澳洲時事分析报道
+制作：香草山健身部 书记已嗝屁！
+字幕：香草山信息部 6zero4
 
-**听写翻译：大海无量**
-**校对：文泓**
-**听写检查：枳实**
-**视频剪辑/字幕：七彩光**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07022539/Picture1-2.jpg)
-**图片来源：**The Sydney Morning Herald
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-**工党议员：必须“叫停”中共对维吾尔人的虐待  **
 
-我想问一下，关于中共国大使馆本周举行的新闻发布会，这可真是奇怪，中共国大使坚持认为维吾尔人没有受到压迫。这个发布会是精心安排的，它试图指责外媒歪曲报道新疆情况，凯瑟琳，你怎么看，这种很不寻常的宣传，谁会相信他们？
 
-这当然是一个奇怪的新闻发布会，这是我们新闻界的任何人从未经历过或见识过，坦率地说，中共在新疆对维吾尔族的所作所为，这可不是一个负责任的成熟全球大国的行为。那次新闻发布会反映出，我认为在这些问题上确保中共国被公开问责是非常重要，我们要确保这些事情的真相和透明度，作为一个成熟的全球超级大国，遵守国际秩序符合中国的长期利益，那次新闻发布会根本没有体现。
 
-**中共国对国民反维吾尔洗脑：“他们看起来不像中国人”**
 
-可是，你对这些人何时被带走了解多少，他们被指控的罪行是什么？他们是否只是在半夜被政府带走，然后就失踪了。
+德州加尔维斯顿国家实验室(GNL)主任James Le Duc的PPT演示报告，将该实验室描述为“在福奇的NIAID资助下建造”，专注于生物安全空间研究，并将武毒所(WIV)作为案例研究，展示了两个实验室之间多年密切的合作关系。该报告还提到在2018 年由 James Le Duc 和WIV副主任袁志明合作的一篇文章中，讨论了他们对“世界上最危险病原体”的联合处理，并记录了这两个实验室：“专注于生物安全、设施运营和维护，以及生物防护的科学协作与调查之短期和长期人员交流与培训，指导了WIV旗下最大生物遏制实验室 (MCL)的新建，并成功将在GNL经过验证的最佳实践转移到WIV的MCL。两个实验室最近签署了正式合作协议，以精简未来关于危险病原体的科研和运营合作”。演示文稿还包含一张“蝙蝠女”石正丽参加 2018 年在 GNL 会议期间的照片，包括北卡罗来纳大学(UNC)研究员、“功能获得”之父拉尔夫·巴里克 (Ralph Baric)。
 
-是的，没错。是不是应该给个理由给个解释？什么都没有，就这样被带走了，是因为我们犯罪吗？因为我们是不同的民族，是不同的人，我们看起来不像中国人。作为中共国政府或被洗脑的中国人，他们不喜欢，任何人看起来都该像他们。这才是问题所在。
+福奇的NIAID资助下的GNL，设有一个培训中心，供研究人员在具有各种生物安全级别 (BSL) 的设施中工作，对WIV进行了长期人员交流和培训。GNL的简介还显示了WIV夏涵（音）博士在 GNL 奖学金下工作的情况，她在中科院获得生物化学和分子生物学博士学位，于 2013 年夏天到达GNL，专注于病毒、疾病诊断分析方法、疫苗研究、基因功能、基因组及其进化分析，以及流行病学领域。夏涵还在获得奥巴马政府批准后，于 2014 年 1 月与昆明医学生物学研究所的学员一起在GNL开始 BSL-4 的培训。
 
-中共国大使馆试图说明没有什么可隐瞒，事实上，在其中一个视频介绍中有一句话：“请在斋月期间来”，这很好。我们知道，就算记者，不能进入或被限制进入，你知道他们可能偶然会组织一些精心准备的(记者)访问，但在澳大利亚你甚至不能与大使馆官员会面, 这一点准确吗？
 
-是的，没错！昨天，我们很兴奋，我代表所有澳大利亚维吾尔人给中共国大使成竞业写了一封信，责问他这是不是事实。然后我们将在澳大利亚组成一个代表团，是所有在澳维吾尔人。他们一起来见成大使，回答我们的问题：告诉我们，我们的爱人在哪里？我们的亲人在哪里？我们的朋友在哪里？为什么他们不能来澳洲？为什么我们不能回去我们自己的国家，看望我们的亲人？为什么我们不能在今天和我们的亲戚通电话？现在通讯高度发达，只要一个视频中就可以和任何人交谈，你可以看到世界上的任何人。为什么我们看不到，或者为什么我已经有6年多不能和我兄弟通话？好吧，对不起。
 
-美国政府有一个突破性的想法，他们甚至可能抵制即将在中共国举行的冬奥会。你是否希望这种情况发生？或者你认为情况可能会因此变得更糟，也许会对维吾尔人产生影响。
+**原文链接：[EXC：福奇资助的德克萨斯实验室培训武汉研究人员如何处理“世界上最危险的病原体”](https://gnews.org/zh-hans/1362190/)**
 
-是的，美国人的决定是正确的，他们的决定非常符合伦理道德。澳洲政府和其他所有的政府都应该效仿。各国政府和各方人士尤其是国际奥委会怎能将奥运会举办权授予这样一个政权, 授予中共? 他们正在杀人，然后他们正在做种族灭绝，我们怎能将举办权授予他们？奥林匹克的宗旨是为了和平，或者为了和谐，而不是暴政，不是暴行，不是杀戮人民。
 
-原文链接：
 
-# [China lashes US’ ‘sinister intentions’ after Biden administration alleges horrific human rights abuses](https://www.skynews.com.au/world-news/china/china-lashes-us-sinister-intentions-after-biden-administration-alleges-horrific-human-rights-abuses/news-story/e4ad818ae3e003934c4ae1237d387cb0)
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-+2
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

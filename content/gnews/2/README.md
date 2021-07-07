@@ -1,27 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】前总统川普将于周三就他的社交媒体平台计划做出&#8221;重要&#8221;的宣布——新闻发布会预计将在美国东部时间周三上午 11 点开始
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1378201/)
+## 独家重磅：川普将起诉社交媒体封杀他账号的大科技公司
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1379323/)
 
-据Newsmax获悉，前总统唐纳德·川普将于周三就他的社交媒体平台计划做出”重要”的宣布。川普新闻发布会预计将在美国东部时间周三上午 11 点开始,Newsmax 将在新泽西州川普国家高尔夫俱乐部贝德明斯特现场直播该活动。
+作者：Gnews编委会
 
-新闻杂志的报道将由新闻杂志”今晚罗布·施密特”节目主持人罗布·施密特主持。一位接近川普的消息人士告诉Newsmax，”川普先生将就社交媒体发表重大声明。
+根据早前的News Max新闻的报道，前总统唐纳德·川普将于周三就他的社交媒体平台计划做出”重要”的宣布。川普新闻发布会预计将在美国东部时间周三上午 11 点开始，Newsmax 将在新泽西州川普国家高尔夫俱乐部贝德明斯特现场直播该活动。
 
-自从被推特和 Facebook 等媒体巨头禁止以来， 有传言说川普正在建立自己的社交媒体平台。另一位消息人士说，因为其他社交媒体的封杀，川普的计划将抗击大型社交媒体公司。
+Gnews中文报道链接：[gnews](https://gnews.org/zh-hans/1378201/)
+News Max报道原文链接：[www.newsmax](https://www.newsmax.com/us/social-media-big-tech-announcement-live/2021/07/06/id/1027699/)
 
-不要错过川普在周三美国东部时间**11:00AM**，新闻网站上的新闻发布会。观看链接如下：
+外界普遍存在猜测，川普总统将可能宣布入驻新兴的自由言论社交媒体平台 盖特GETTR 。
 
-[https://watchnewsnow.org/?gclid=EAIaIQobChMI6Ju2yffP8QIVuToBCh044ww\_EAEYASAAEgJtOPD\_BwE](https://watchnewsnow.org/?gclid=EAIaIQobChMI6Ju2yffP8QIVuToBCh044ww_EAEYASAAEgJtOPD_BwE)
+而川普总统前高级顾问 史蒂夫·班农 先生，在美东时间9:00的每周专访中向英国伦敦英喜庄园透露：
+1.今天的发布会将不会探讨，川普总统将会使用哪个社交媒体。
+2.盖特很快就会召开发布会，宣布该平台在上线几日之后，就已经突破了100万用户大关，创社交媒体平台中最快增长的记录。
+3.川普总统于美东时间11点的发布会将会提及，川普团队可能会对封杀川普个人账号的社交媒体公司进行起诉。
 
-参考链接：
+众所周知，推特、脸书等社交媒体平台在大选前无理由禁言了川普总统的个人账户，近期也多次关停诸如批评中共政权的新西兰大学教授、支持西藏少数民族人权运动组织等的账号等，更是对反对共产主义的爆料革命战友展开全面封杀。大型科技公司对于话语权的垄断，已经严重影响了美国宪法第一修正案赋予的言论自由权，形成了独立于政府之外不受任何监管的金融寡头。而川普总统班农先生代表的平民主义力量，对金融寡头公司的起诉，势必影响这些大科技公司的股价，从而限制其继续与中共合作打压言论自由。而希望彻底恢复言论自由，还需要GETTR这类真正的自由言论平台。
 
-[https://www.newsmax.com/us/social-media-big-tech-announcement-live/2021/07/06/id/1027699/](https://www.newsmax.com/us/social-media-big-tech-announcement-live/2021/07/06/id/1027699/)
+英国伦敦喜庄园采访视频链接：[gtv](https://gtv.org/video/id=60e5a6658bc36963ff0af6ad)
+川普新闻发布会观看地址：[watchnewsnow](https://watchnewsnow.org/?gclid=EAIaIQobChMI6Ju2yffP8QIVuToBCh044ww_EAEYASAAEgJtOPD_BwE)
 
-翻译整理：蓝精灵
+欢迎大家收看川普团队新闻发布会，Gnews也会第一时间跟进报道。
 
-校对发布：Penny
+Gnews编委会特别文章。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-+2
+0
