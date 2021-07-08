@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】中共的功能增强实验，不同团队各有专攻
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1381426/)
+## 【粤语配音】打杂客、巴里克、安德森，他们知道自己在扯谎
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1381513/)
 
-6月30日，闫博士在演播室塔克对谈中说，中共功能增强实验就像搭乐高，而这也是为什么她坚持我们应该查明来自军方的真正病毒骨架，从而研究中共在SARS-CoV-2上添加了多少功能。
+6/30/2021 闫丽梦博士演播室与塔克对谈：彼得·打杂客、拉尔夫·巴里克、克里斯蒂安·安德森，这些顶尖科学，他们在撒谎，也知道自己在扯谎。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

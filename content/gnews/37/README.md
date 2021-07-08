@@ -1,64 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/07/06 中共发布模拟攻台视频，公开威胁台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1380655/)
+## 【澳洲热点】中共不再伪装，直接承认有意针对澳洲商品
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1382039/)
 
-视频字幕：﻿雨中漫步| 听写：云岭| 翻译：Roberts| PR：Clau | 简评/文字整理/编辑：胖丁 | Page: Daoiii
+#### **了解澳洲时事动态，尽在雅典娜【澳洲热点】**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/LU7tywCdGgvxH/images/3653db38-d9e2-4fdb-bb96-760387daeb5a.png?asset_id=f67d563a-6475-4bf6-b7db-e8980ec162f7&amp;img_etag=%22e01805250abf26e73b24e7ed673bacbf%22&amp;size=1024)](https://spark.adobe.com/page/LU7tywCdGgvxH/images/3653db38-d9e2-4fdb-bb96-760387daeb5a.png?asset_id=f67d563a-6475-4bf6-b7db-e8980ec162f7&amp;img_etag=%22e01805250abf26e73b24e7ed673bacbf%22&amp;size=1024)
+#### 作者：小红帽
 
-**简评：**
+#### 编辑：小智
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08080808/Picture1-4.jpg)
+图片来源：The Australian
 
-在习近平重申对台湾统一的承诺之后，中共国一个网站发布了一段模拟入侵台湾的视频，显示了中共国可能以导弹发动对台湾的突然袭击。也许，这是中共国的误导，他们会选择特种部队或别的方法。这是公开的恐吓和威胁，试图不用武力就实现某种形式的统一。也许中共不会很快采取行为，但显示了这是一次相当可信的军事行为。
+近日，外交部发言人赵立坚不再伪装，承认北京当局有意针对澳洲商品，从而让澳洲农产品丧失中共国市场份额。
 
-GTV视频链接：[《澳大利亚人报》的外国编辑Greg Sheridan：中共正试图“恐吓台湾”，使其成为某种“邦联或统一”，而实际上不会愤而开火](https://gtv.org/video/id=60e542224c6dfd47b42acda6)
+2021年7月6日外交部发言人赵立坚在记者会被记者问及：“澳洲农产品丧失中国市场份额，为美国产品填补空缺提供机会”一事，赵立坚回答：“刚才记者提问中所介绍的情况，就是他们应得的下场。”
 
+赵立坚强调说：“相互尊重是各国间开展务实合作的基础和保障。我们绝不接受个别国家一方面从对华合作中捞好处，另一方面以意识形态划线，无端指责抹黑中国，损害中方核心利益。个别国家给别人‘当枪使’，只会让民众为政府的错误政策埋单。”
 
+赵立坚言语间暗示，澳洲因试图代表美国攻击中共国而受到惩罚，美国农民才是中共国对澳洲商品征收关税的大赢家。很明显，中共想在澳洲和美国之间创造矛盾，这是中共统治的惯用手法——创造仇恨。
 
-视频字幕：
+然而，澳洲政府早就看穿了中共的伎俩。针对赵立坚的言论，联邦财政部长乔什·[弗莱登伯格](https://www.abc.net.au/news/2021-07-07/australia-china-trade-tensions-official-economic-punishment/100273964) (Josh Frydenberg) 没有直接评论，但他表示澳洲正在“更加自信”地与中共国打交道。
 
-**主持人：**我们来谈谈台湾。在习近平重申其对台湾统一的承诺几天之后，一家中共国杂志 《海军和商船》的网站上发布了一段模拟入侵台湾的视频，显示了对台湾部队的突然袭击。
+[弗莱登伯格](https://www.abc.net.au/news/2021-07-07/australia-china-trade-tensions-official-economic-punishment/100273964)在堪培拉对记者说：“中共毫不掩饰禁止澳洲一些产品出运中国的事实……我们的大麦、葡萄酒、煤炭。可是，澳洲仍然从向中共国出口的铁矿石中赚取了大量收入。”
 
-Greg，我们应该如何认真的对待这样的视频？
+“因为中共最需要我们的铁矿石，所以进入中共国的是澳洲的铁矿石，而铁矿石的价格处于历史高位。这为澳洲提供了可观的收入。”最后，[弗莱登伯格](https://www.abc.net.au/news/2021-07-07/australia-china-trade-tensions-official-economic-punishment/100273964)重申：“澳洲不会将经济利益放在首位，澳洲会将更广泛的国家利益放在首位。”
 
-**Greg：**我认为这是一个相当有说服力的视频，因为它显示了中共国以导弹发动对台湾的袭击。
+[澳洲和中共国之间的贸易紧张关系恶化](https://www.abc.net.au/news/2021-01-03/heres-what-happened-between-china-and-australia-in-2020/13019242)开始于去年年中，当时有证据将中共病毒疫情的源头指向武汉。随后，一场由美国和世卫组织主导，试图追究中共政府于疫情之初在控制病毒传播上做了什么的国际运动开始了。在澳洲提出对独立针对疫情起源的调查表示支持后，[中共便开始对澳洲出口商品施加限制](https://www.abc.net.au/news/2020-05-26/barley-tariffs-against-australia-china-trade-minister-address/12286110)。当时，中共没有承认这是对澳洲的报复行为，直到最近中共外交部发言人[赵立坚](https://www.mfa.gov.cn/ce/ceth/chn/fyrth/t1890096.htm)在记者会上亲自承认。
 
-我认为如果中共国对台湾直接攻击，将会非常依赖导弹。
+自从中澳外交关系陷入僵局后，澳洲对中共施加贸易限制的反应没有发生变化。事实上，[澳洲一直](https://www.abc.net.au/news/2021-01-23/trade-minister-dan-tehan-writes-to-new-chinese-counterpart/13082668)愿意和中共进行坦诚公开的对话。澳洲政府曾多次就试图解冻双边关系致电中共政府官员，但中共一直都没有接听电话。
 
-也许中共国还另有计划，他们可能会误导我们
+澳洲副总理[麦考马克](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210514-%E6%BE%B3%E6%B4%B2%E5%89%AF%E6%80%BB%E7%90%86-%E5%B0%86%E8%80%90%E5%BF%83%E5%B0%9D%E8%AF%95%E6%94%B9%E5%96%84%E4%B8%8E%E4%B8%AD%E5%9B%BD%E7%9A%84%E5%85%B3%E7%B3%BB)（ Michael McCormack）于5月13日接受美国消费者新闻与商业频道采访时曾表示，澳洲在寻求修复与北京当局的关系时将保持 “耐心”。此前，中共国国家发展改革委5月6日称，中方宣布无限期暂停中澳战略经济对话机制下一切活动。
 
-他们可能会用特种部队发动攻击。
+可见，中共的态度才是导致中澳关系进一步恶化的真正原因。直到最近，北京当局决定放下伪装，直接挑明对澳洲的制裁就是故意的报复。中共的愚昧和傲慢将把中澳关系推入深渊。俗话说“自作孽不可活”，中共这次终归自取灭亡。
 
-对中共国来说，比较合理的袭击台湾的方法是用导弹摧毁对方所有的防空体系和反击能力，为之后畅通无阻的占领台湾奠定基础，除非美国进行干预。
+（文章内容仅代表作者观点）
 
-现在，中共国公开了这个视频，也许意味着他们不会在未来几周这么做，他们不可能这么笨。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-但很明显他们试图恐吓台湾以进行谈判，试图不用武力就实现某种形式统一。
-
-可悲的是，美军由于在阿富汗和伊拉克消耗了20年，没有用最佳的方式整合自己的力量来应对中共国的威胁。
-
-我们投资数百亿美元用于坦克和装甲车，这些不是用来来应对海上冲突的最佳军事资源。
-
-这些资源并不会在台湾海峡或南中国海帮助我们。
-
-所以中共国也许认为攻打台湾的最佳时刻在几年之后。
-
-而我认为这是一个令人非常不安的视频，因为它表明中共愿意公开威胁台湾。
-
-它显示的是一次相当可信的军事行动。
-
-**主持人：**完全赞同。而且它发布的时间与习近平的讲话和党庆活动如此接近。
-
-不会错的，大家知道的。
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LU7tywCdGgvxH/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/LU7tywCdGgvxH/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
-
-0
++2

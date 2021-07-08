@@ -1,27 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】07/07/2021:滴滴上市后大跌美国国务卿布林肯向袖达赖喇嘛送上生日祝福
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1381707/)
+## 视频短片《郭先生最后的警告》
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1382715/)
 
-**制作：澳喜粤语组**
+加拿大多伦多枫叶农场.凯路团队出品
 
+2017年10月5日，郭文贵先生在华盛顿向世界发出警告，来自中国盗国贼的黑暗即将来临，黑夜将弥漫整个世界，这关乎着世界上每一个人的生死。四年来，世界用血淋淋的的事实，证明郭文贵先生都是对的。四年来，郭先生是揭露中共邪恶的第一人，郭先生是爆料中共生化武器病毒的第一人。中共用蓝金黄，超限战，生化武器病毒偷袭了整个世界。中共的邪恶超出世界的认知，超出人类的想象。2021年6月20日，郭文贵向世界再一次发出严重警告，邪恶的中共会再一次向世界投放更严重的生化武器病毒，如果西方世界对这些准确的情报信息仍然置若罔闻，将是对人类的犯罪。
 
+* * *
 
-**播报：【文依】整理：【Elaine】【闪电】【An】【陆柒陆捌】视频制作:【ken】PPT：【小豆牙】发布：【陆柒陆捌】**
+编辑、发布 ctt
 
-摘要：
-
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08035646/image1-4.png)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08035730/image2-2.png)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08040048/image3-2.png)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08040140/image4-2.png)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08040213/image5-2.png)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08040303/image6-2.png)
-+1
+0

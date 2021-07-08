@@ -1,32 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联合国关注中共国的器官摘取罪行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1382215/)
+## 五角大楼黑名单上的中共国监控公司雇佣前美国官员为说客
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1382765/)
 
 2021年7月8日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08094603/11mag-wolfwarriers-02-master1050-6.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08163810/IMAGE-2021-07-09-043746.jpg)*前制裁政策顾问彼得·库奇克*
 
-根据2021年6月的一份声明，联合国独立调查专家小组收到了“可靠消息表明，来自少数族裔、语言或宗教群体的被拘留者可能在没有知情同意的情况下被强行进行验血和器官检查，如超声波和X光；而其他囚犯则无需接受此类检查。据报道，检查结果被登记在一个活体器官来源数据库中，以便于器官分配。”
+**转《网关专家》7月8日报道，视频监控公司海康威视(Hikvision)的游说公司**水星公共事务(Mercury Public Affairs) 6月份宣布聘请了美国财政部外国资产控制办公室(Office of Foreign Assets Control)前制裁政策顾问彼得·库奇克(Peter Kucik)，库奇克将帮助该公司应对美国政府最近针对中共国的行动。
 
-声明进一步指出，“根据收到的指控，从囚犯身上摘取的最常见的器官据说是心脏、肾脏、肝脏、角膜，以及不太常见的肝脏部分。这种具有医疗性质的非法贩卖行动据称涉及卫生部门的专业人员，包括外科医生、麻醉师和其他医疗专家。”
+库西克本月根据《外国代理人登记法》将自己登记为水星公司的 “战略顾问和监管顾问”。记录显示，他的职责包括“战略咨询、游说、公共事务和政府关系，包括接触美国官员。”
 
-这并不是联合国第一次提出中共摘取器官的问题。事实上，联合国曾在2006年和2007年向中共政府提出过类似的关切，但并没有得到任何回应。
+**海康威视是中共国政府创建的，也是它的“控股股东”。**
 
-所谓的中共法庭，也审议了摘取器官的问题。2019年6月17日，中共法庭发布了一份长达60页的判决摘要，罪犯承认犯下了违反《罗马规约》第7条规定的反人类罪。
+据Axios报道，2020年夏天，美国国防部将海康威视列入了中共军方“拥有或控制”的公司名单。今年6月，拜登总统禁止美国实体投资海康威视和其他数十家中国企业，以应对中共军事工业联合体构成的威胁。该公司还涉嫌与监视新疆维吾尔族清真寺和拘留营有关。
 
-之后就再无任何进展。两年后的今天，联合国再次试图就这个问题与中共政府接触。与此同时，进一步侵犯人权的消息被曝光，包括针对维吾尔人的暴行，其中包括酷刑和虐待，包括强奸和性暴力，将儿童与他们的父母分离，强迫绝育，强迫堕胎，强迫劳动等等。这些报告虽然可能引发了个别国家的一些反应，但在联合国几乎没有提出任何有意义的处理方案。并且于对局势的改变并不太乐观，无论是针对法轮功学员、维吾尔族人民或是对于其他人的这种暴行的解决似乎也不被抱有太大希望。
+《华尔街日报》5月报道，**“海康威视于2019年向中共国空军出售无人机和其他配件，并在2014年被认为是中共军队的顶级供应商。”**中共国家电视台的视频显示，一名中共国士兵手持带有海康威标志的无人机干扰武器。
 
-**【[新闻来源](https://www.forbes.com/sites/ewelinaochab/2021/07/08/united-nations-concerned-about-organ-harvesting-in-china/?sh=652470f742dd)】**
+**库奇克并不是水星公司聘请的第一个美国官员。**今年6月，该公司聘用了前康涅狄格州民主党众议员莫菲特(Toby Moffett)。莫菲特是拜登2008年竞选总统期间的顾问之一。
 
-* * *
+**新闻來源:**[https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/](https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+***以上新闻信息,与Gnews平台无关***
 
+*采集/撰稿：BT119 发布:星星*
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
