@@ -1,31 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 湖北武汉又因“输入病例”再次遭受考验
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1380327/)
+## 2021年07月07日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1380425/)
 
-**编译：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07212648/24-4.jpg)
-中国官方媒体《环球时报》周三报道称，中共国湖北省省会城市武汉，这个中共病毒的发源地，目前正在经历一场“输入性病例”的沉重负担。
+撰稿：GTV澳喜影像视频组、新闻组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07215816/F681D63B-40B2-46DF-8074-0167254F95FD-scaled.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07215915/A9F2394C-1AA6-4263-834E-197886709C3C-scaled.jpeg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-“中国外交部证实，武汉报告56例COVID-19阳性病例，是一些从阿富汗返回的中国公民检测呈阳性，”全球泰晤士报于7月7日写道。
-
-该报援引湖北省卫生健康委员会周三公布的数据补充说：“所有病例都来自入境的国际航班，其中 52 人是来自阿富汗的乘客。”
-
-据湖北卫生官员介绍：在 56 例输入性病例中，25 例被确认为中共病毒患者，其中22例确诊病例于7月2日从阿富汗飞抵武汉，另外的病例来自印度尼西亚。
-
-中国外交部于 7 月 7 日通过其官方微博帐户发表声明，称一些最近从阿富汗返回湖北省的中国公民被确诊为中共病毒，和被确认为无症状病例。
-
-最近几周，随着北大西洋公约组织 (N.A.T.O.) 军事联盟完成从阿富汗撤军，阿富汗经历了大量公民和外国居民的外流。《环球时报》周三指出：“许多网民猜测，回国人员是否是中共政府撤离计划的一部分，但该部并未具体说明。”
-
-武汉是这次世界疫情的源头城市，尽管中共政府最初否认，但这种疾病在发现之后，迅速蔓延，中共地方官员首先通过惩罚，试图警告对公众发布信息的武汉人和医疗专业人员。当社交媒体帖子曝光武汉严厉的封锁措施后，当局最终承认他们的城市正在经历一场肆虐的流行病，随后中共当局将当地居民封锁在家中。武汉这个拥有1100万人口的城市，遭遇连续76天被隔离的情况。
-
-病毒真相正在一点点被揭开，发生在武汉的故事也逐渐被世界认知，这个病毒起源的城市以及被这场人祸所殃及的无辜人民，都成为世界关注的焦点，究竟武汉发生了什么，多少人因为病毒而离去，又为何再次成为输入疫情的集中地，这些疑问有待我们日后解开谜底。
-
-（本文只代表作者观点，与Gnews平台无关。）
-
-**新闻来源**：[Coronavirus Comes Home: Wuhan, Hubei ‘Heavily Burdened’ (breitbart.com)](https://www.breitbart.com/asia/2021/07/07/coronavirus-wuhan-hubei-heavily-burdened/)
-
-***校对发布：文顾***
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
 0

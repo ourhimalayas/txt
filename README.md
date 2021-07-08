@@ -12,37 +12,37 @@
 
 ---
 
-### [川普时代远还没有结束](/content/gnews/1/README.md)
+### [《路德时评》重磅解读川普宣布对三大科技巨头发起集体诉讼](/content/gnews/1/README.md)
+ ` 香柏树`
+
+### [川普时代远还没有结束](/content/gnews/2/README.md)
  ` 闪电侠`
 
-### [【灭共头条】“滴滴出行”App股价暴跌背后的中美博弈](/content/gnews/2/README.md)
+### [【灭共头条】“滴滴出行”App股价暴跌背后的中美博弈](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [欧洲议会即将通过一项动议——制裁香港官员 抵制北京冬奥会](/content/gnews/3/README.md)
+### [欧洲议会即将通过一项动议——制裁香港官员 抵制北京冬奥会](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [绝地反击——美国前总统川普回归公众视野第一枪挑战垄断媒体寡头](/content/gnews/4/README.md)
+### [绝地反击——美国前总统川普回归公众视野第一枪挑战垄断媒体寡头](/content/gnews/5/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺](/content/gnews/5/README.md)
- ` 索尼克`
+### [7.7文贵先生盖特要点](/content/gnews/6/README.md)
+ ` 左媛专栏`
 
-### [【中英文字幕】7/6/2021文贵盖特：共产党内部已经开始瓦解了，请跟随并珍惜新中国联邦、爆料革命](/content/gnews/6/README.md)
+### [【中英文字幕】7/6/2021文贵盖特：共产党内部已经开始瓦解了，请跟随并珍惜新中国联邦、爆料革命](/content/gnews/7/README.md)
  ` Caihongqiao`
 
-### [2021/07/07-001 文贵先生盖特精要](/content/gnews/7/README.md)
+### [2021/07/07-001 文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭爆料串珠（308）改革开放30年真的是割子宫经济，卖血经济](/content/gnews/8/README.md)
- ` 郭爆料串珠`
-
-### [中共病毒爆发始于世界军运会期间](/content/gnews/9/README.md)
+### [奎因博士：中共病毒非源于自然](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年7月6日灭共要闻](/content/gnews/10/README.md)
- ` 秘密翻译组G-Translators`
+### [福奇博士从疫情初期就清楚很多病毒真相，但是他依然选择误导美国民众](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [努涅斯：证据指向病毒源于与解放军有关的武汉实验室](/content/gnews/11/README.md)
+### [新冠病毒就是中共的切尔诺贝利，为了这些死去的人们和他们的家人，我们有责任查明真相](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [来咯，来咯，他真的来咯](/content/gnews/12/README.md)
@@ -66,65 +66,65 @@
 ### [【热点播报】中共国长春市基督教会血旗下祝福CCP](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [盖特 尊重言论自由](/content/gnews/19/README.md)
+### [奎因博士：中共病毒非源于自然](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [福奇博士从疫情初期就清楚很多病毒真相，但是他依然选择误导美国民众](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新冠病毒就是中共的切尔诺贝利，为了这些死去的人们和他们的家人，我们有责任查明真相](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【聚焦澳洲】澳媒视频概述病毒溯源进展及国会听证](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [勇士的反击](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [中共病毒爆发始于世界军运会期间](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [努涅斯：证据指向病毒源于与解放军有关的武汉实验室](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [盖特 老百姓的平台](/content/gnews/22/README.md)
+### [盖特 尊重言论自由](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [出口管制应该包括美国人的基因序列](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共病毒从一开始就人传人](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【新闻速递】哈什巴格议员：保护美国国内供应链不受来自中共的威胁非常重要](/content/gnews/25/README.md)
+### [【新闻速递】海地总统遭暗杀，美国表示慰问并愿给予援助](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [【新闻速递】德中防长通话，德国海军也要进驻南海](/content/gnews/26/README.md)
- ` 纽约香草山MOS02`
-
-### [人权活动家想去日本看望重病中的女儿，中共拒绝其出境！](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【新闻速递】德国正在行动，逮捕并起诉了一名中共间谍疑犯](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
-
-### [湖北武汉又因“输入病例”再次遭受考验](/content/gnews/29/README.md)
+### [被科兴疫苗严重耽误的印度尼西亚疫情](/content/gnews/26/README.md)
  ` 闪电侠`
 
-### [【新闻速递】美国朝鲜问题最高特使与中共官员会谈，寻求与朝接触](/content/gnews/30/README.md)
+### [【新闻速递】俄罗斯黑客攻击指控对拜登构成挑战](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [美国36州和哥伦比亚特区对谷歌提起新的反垄断诉讼](/content/gnews/31/README.md)
+### [不要让为言论自由而战的川普孤单](/content/gnews/28/README.md)
+ ` 军迷wilson`
+
+### [2021年07月07日澳喜要闻（每日更新）](/content/gnews/29/README.md)
+ ` 澳喜农场`
+
+### [【新闻速递】哈什巴格议员：保护美国国内供应链不受来自中共的威胁非常重要](/content/gnews/30/README.md)
+ ` 纽约香草山MOS02`
+
+### [中资收购英国最大半导体商NWF 约翰逊：&#8221;要查&#8221;](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [滴滴打车下架风暴延烧　千万别碰中国IPO公司](/content/gnews/32/README.md)
+### [美总统拜登延长川普时期就香港问题实施的制裁](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新加坡打中共国疫苗不作数 泰国质疑科兴疫苗效力](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【路德社即时简报】川普起诉大型科技公司言论审查](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
 
-### [前川普发言人推出新的社交媒体平台盖特(GETTR)](/content/gnews/34/README.md)
+### [【路德简报】7/7/2021早：滴滴开盘跌20% 美国专家警告和中共政府做生意没有好结果](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【快速新闻】盖特正式上线仅一天，班农先生关注者超5万](/content/gnews/35/README.md)
+### [2021/07/06 中共发布模拟攻台视频，公开威胁台湾](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DAVID ASHER：冠状病毒的无症状感染性质没有先例，值得怀疑](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【快速新闻】盖特正式上线仅一天，班农先生关注者超5万](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [布林肯视频会晤维吾尔人并向达赖喇嘛表达生日祝福 狠狠打脸中共](/content/gnews/36/README.md)
+### [布林肯视频会晤维吾尔人并向达赖喇嘛表达生日祝福 狠狠打脸中共](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
-
-### [【粤语配音】杰克·波索比克：《柳叶刀》发布的附录是彼得·达扎克存在利益冲突的认罪书](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【澳洲热点】“战狼”变“怨妇”，抱怨澳洲抢了中共疫苗的风头](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [特朗普前发言人推出新的社交媒体平台GETTR](/content/gnews/39/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
