@@ -1,42 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 因“模糊”的《反人肉搜索法》，谷歌、脸书和推特威胁撤出香港
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1379505/)
+## 西喜时事新闻简报—美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1381784/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07113011/1286.jpg)
-**据《零对冲》作者：TYLER DURDEN 2021年7月5日报道：**
+- 作者：土饭团(文团)
 
-三大互联网和社交媒体公司脸书（Facebook）、推特（Twitter） 和谷歌（Google）已经警告香港政府，如果表面上为了“打击人肉搜索”的新的有争议的“数据保护法”得到通过，他们可能会完全退出香港。据《华尔街日报》周一报道，硅谷巨头“私下”表明了他们的立场。
 
-毫无疑问，对现有数据保护法的新提议的法律修正案与亲中(共)国的镇压密切相关，这些镇压几个月来完全扼杀了大规模的亲民主的抗议活动。脸书、推特和谷歌的愤怒在于，可能加强的法律中心部分，将要求他们对在线披露个人的私人信息负责。亚马逊（Amazon）也是（新法律）瞄准的对象。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-“人肉搜索”被广泛认为是年轻反中共活动人士偏爱的策略。据报道，这种策略针对的是亲大陆的香港官员和实体，而有时街头会发生暴力抗议活动。该修正案于 5 月由香港“政府及内地事务局”首次提出：将对被抓到实行人肉搜索的个人处以严厉处罚，包括最高 5 年的监禁和最高 100 万港元（或超过 12 万美元）的罚款。
+**西班牙2021年7月08日电/西喜社——**
 
-在“国家安全法”继续被用作追捕活动人士和持不同政见者的广泛而暴力的工具之际，美国公司也对香港当局对“人肉搜索”的定义可能有多么模糊而感到惊慌。此时此刻，一些最著名的抗议领袖要么在监狱里，要么在流亡中，黄之锋、周庭和黎智英目前正在服刑，原因与“反蒙面法”和未经授权的集会有关。
+您若想了解全文报导内容，请点击标题链接
 
-科技巨头担心他们自己的当地员工和系统管理员将不可避免地因为随机个人用户的行为——包括在西方被视为政治言论自由，但香港及其北京的支持者会视为被禁止的言论而受到刑事指控。与中(共)国大陆旨在阻止访问政府关键信息和资源的过滤器相比，谷歌的香港网站被认为受到的审查要少得多。
+1[.参议员Marshall在调查COVID-19的来源时抨击中共国:公开羞辱必须有结果](https://www.foxnews.com/politics/sen-marshall-calls-on-us-other-countries-to-shame-china-for-covid-19)
 
-在此前未公开的 6 月 25 日来自一个行业组织的一封信中，脸书、推特和谷歌发出了警报，直言不讳地说‑‑
+福克斯新闻7月5日电，康涅狄格州参议员Roger Marshall在 “Sunday Morning Futures”节目中认为，美国和其他国家需要为冠状病毒大流行“羞辱”中共国，根据约翰霍普金斯大学汇编的数据，这种病毒已经在全世界造成近四百万人死亡，并破坏了全球经济。
 
-“科技公司避免这些制裁的唯一方法是，避免在香港投资和提供服务……”
+2.[共和党人在中共国官方媒体嘲笑7月4日暴力事件后进行反击](https://www.foxnews.com/politics/republicans-respond-china-state-media-july-4th-gun-violence)
 
-根据《华尔街日报》首次公布的部分引述，信中称拟议的处罚“完全不成比例且不必要回应”，这将形成足够广泛的法律网络，无疑将惩罚“在线共享信息的无辜行为”。
+福克斯新闻7月6日电，德克萨斯州共和党议员Michael McCaul称向所有人展示“中国共产党是多么粗暴和暴力，他们的宣传机构正在庆祝450名美国人在7月4日假期期间的死亡。”“中共目前正在对他们国家的少数族裔和宗教少数群体进行种族灭绝，并对香港的和平抗议者进行残酷镇压，他们只是在呼吁自由。”
 
-尽管如此，他们是否会采用这种“核选项”——就像谷歌和脸书在其他地方威胁过的那样——还有待观察。例如在澳大利亚则出于非常不同的原因（与广告收入和新政府努力确保当地新闻来源获得更多回报有关）。
+3.[美国警告说，中共国试图通过外交冻结“将澳大利亚踢出群](https://www.theguardian.com/australia-news/2021/jul/07/china-trying-to-cut-australia-out-of-the-herd-with-diplomatic-freeze-us-warns)“
 
-与其他大部分美国公司的全球业务相比，（香港）这座城市约有 750 万人口，其用户群并不庞大。然而，对于许多人来说，如果没有谷歌或推特，这样一个中央国际金融枢纽是不可想象的；它肯定也会对未来的任何抗议运动或活动家快速分享信息的能力产生负面影响，因为该法律还将扩展到电报（Telegram ）或任何其他平台。
+英国卫报7月6日电，Joe Biden的一位高级顾问Kurt Campbell表示，中共国正试图“将澳大利亚排除在外”，但外交冻结和针对澳大利亚出口商的行动只会促使堪培拉加深与华盛顿的关系。
 
-据《华尔街日报》报道，总部位于香港的品诚梅森（Pinsent Masons）律师事务所的保罗·哈斯韦尔 (Paul Haswell) 做出了总结，如果法律生效，很容易预见的滑坡情况是：“对规则的广泛阅读可以表明，基本上来说，即使是在公共场合拍摄的个人或警察的不讨人喜欢的照片，将构成个人数据，如果带有恶意或意图造成伤害地将其发布，可能会违反拟议的修正案”。
+4.[布林肯会见维吾尔族前被拘留者](https://www.politico.com/news/2021/07/06/blinken-china-human-rights-uyghurs-498422)
 
-原文链接：[https://www.zerohedge.com/political/google-facebook-twitter-threaten-pull-services-hong-kong-over-proposed-doxxing-law](https://www.zerohedge.com/political/google-facebook-twitter-threaten-pull-services-hong-kong-over-proposed-doxxing-law)
+POLITICO 7月6日电，美国国务卿Antony Blinken与被拘留在中国西北部新疆地区集中营的维吾尔穆斯林会面，听取他们的经历，并就如何最好地向中共国施压以停止在那里进行镇压寻求建议。美国警告称，将对中共国实施新的制裁。
 
-翻译：洛杉矶盘古农场 – 柯镇恶
-校对：洛杉矶盘古农场 – 心照
-编辑：洛杉矶盘古农场 – 傻小子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+5.[华盛顿邮报、纽约时报、华尔街日报等美国媒体从中共国收到数百万美元](https://www.opindia.com/2021/07/us-media-washington-post-nyt-wall-street-journal-etc-have-been-receiving-millions-of-dollars-from-china-report/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+Opindia 7月5日电，为了主导全球叙事，中共国的宣传机构《中国日报》在过去六个月中向美国知名报纸和杂志支付了数百万美元的资金。被认为是试图购买媒体影响力，这些披露是由一份独立的分析报告援引提交给美国司法部的文件作出的。
 
-0
+6.[中共国是美国人口贩卖报告中最糟糕的国家](https://www.aninews.in/news/world/asia/china-among-worst-countries-in-us-human-trafficking-report20210704191442/)
+
+ANI 7月4日电，美国2021年人口贩卖（TIP）报告显示，在对新疆和西藏的维吾尔族和其他少数民族的镇压和强迫劳动越来越多之后，中共国是人口贩卖最严重的国家之一。中共国利用监控技术和捏造的刑事指控在多达1,200个国营拘留营中绑架和拘留了超过100万名穆斯林，其中包括维吾尔族、回族、哈萨克族等。
+
+7.[美国国会议员呼吁拜登宣布西藏为“独立国家”](https://www.aninews.in/news/world/asia/us-congressman-calls-on-biden-to-declare-tibet-an-independent-country20210705193200/)
+
+ANI 7月5日电，一位来自宾夕法尼亚州的美国国会议员提出一项决议，呼吁美国总统Joe Biden宣布西藏为独立国家。美国必须拒绝“中国共产党军队对西藏长达70年的非法占领”，并声称美国将向“长期受苦的人民提供救济，并加强其作为全球人权的坚定捍卫者的声誉。”
+
+审核：蚂蚁兄弟； 校对：阿伯塔； 发稿：Nuevo唐人
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
+
+
+
+
+
+
+
+
++1

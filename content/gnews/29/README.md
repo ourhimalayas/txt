@@ -1,13 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年07月07日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1380425/)
+## 日本赠与台湾的第二批AZ疫苗运抵
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1381993/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07215816/F681D63B-40B2-46DF-8074-0167254F95FD-scaled.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07215915/A9F2394C-1AA6-4263-834E-197886709C3C-scaled.jpeg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+#### 撰稿：yyshere
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08073656/unnamed.jpg)图片来源：网络截图
+台湾在当地时间7月8号收到了来自日本捐赠的113万剂英国牛津阿斯利康疫苗，这是今年日本对台湾的第二次疫苗捐赠。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
-0
+台湾福卫部部长陈时中在疫苗抵达桃园机场前，对日本的再次援助表示感谢，”今天下午，由日本捐赠的疫苗将抵达，将有113万剂，我们再次表达我们的感激之情，我们也感谢我们的外交部，包括谢大使和他的驻外工作人员的努力，使我们得到了这113万剂（疫苗）。”
+
+台湾曾经因为中共国政府的阻挠，陷于极度缺乏疫苗的状态。但自5月分开始爆发高传染性的Delta变异毒株导致的疫情后，台湾获得了美国和日本等国政府的持续援助。根据疫情指挥中心数据，此前国际赠与台湾疫苗分别有，6月20日抵台的美国赠与的250万剂莫德纳疫苗，和日本第一批赠与的于6月4号抵台的124万剂阿斯利康疫苗。此外9月还将获得由立陶宛赠与的2万剂阿斯利康疫苗。
+
+消息来源：台湾CECC
+
+（本文系作者个人观点）
+
++1

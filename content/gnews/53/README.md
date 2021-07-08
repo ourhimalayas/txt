@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本副首相发声必须保护台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1378883/)
+## 中共战狼的主要工作就是骂完左边骂右边
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1380918/)
 
-台湾宝岛农场 视频组
+#### 撰稿：待命（文晓）
 
-日本体系与美国体系搭建上，日本军力将是中共最害怕的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05224543/%E7%AA%84-3.jpg)
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08003546/16257190541.png)[图片来源](https://sinoeurovoices.com/wp-content/uploads/2021/04/33-3.jpg)
+8日，日本TBS新闻报道：
 
-0
+针对日本政府新编的网络安全战略草案中指出的“中共国有可能进行网络攻击”，中共政府回应说“日本政府恶意夸大了来自邻国的威胁”。
+
+日本政府在7日编制的未来三年的战略草案中提到了中共国、俄罗斯和朝鲜的网络攻击威胁。并指出中共国 “正在进行攻击，以窃取军事相关高科技公司的信息”。为了加强应对，该计划要求与美国、澳大利亚、印度和其其它东南亚国家积极合作。
+
+对此，8月7日的新闻发布会上外交部发言人王文彬战狼回骂”日本方面无视基本事实，恶意夸大了其邻国的威胁。 这是日本虚假外交的又一个实例”。日本应该做对地区和平与稳定有益的事情。
+
+[信息来源](https://news.yahoo.co.jp/articles/207e160994216ca3f7b7396866801fdc1eea326c)
+
+笔者的记忆中，7月6日赵立坚战狼回骂了日本副首相麻生。同日，赵立坚战狼还因为美国拒签500名中国留学生签证，回骂了美国政府。连骂也是很辛苦的，第二天的7日，该换班了。由汪文斌战狼值班，负责回骂日本上述内容。中共战狼的主要工作就是骂完左边骂右边，如此下去，外交部的这项国骂工作会越来越繁忙。因为，在新中国联邦和爆料革命的的感召下，会有越来越多的国家觉醒，去反对中共的称霸行径。看来，想胜任外交战狼这项工作，必须要练就一身跳脚骂、转圈骂的本领！
+
+（文章仅代表作者个人观点）
+
++1

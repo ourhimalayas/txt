@@ -1,28 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中资收购英国最大半导体商NWF 约翰逊：&#8221;要查&#8221;
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1380566/)
+## 中共即将在香港公开建立党组织
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1382200/)
 
-2021年7月7日
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07224806/0-25.png)
-
-编辑摘要：
-
-中共国闻泰科技（Wingtech）旗下、总部设在荷兰的”安世半导体”（Nexperia），收购英国最大半导体制造商威尔士新港晶圆厂【Newport Wafer Fab（NWF）】，引起英国国家安全疑虑。英国首相约翰逊7月7日在英国国会表示，他的国安顾问将”探究”这起收购案。分析称，”这明显代表英国政府对此案的政策反转”。
-
-**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210707-%E4%B8%AD%E8%B5%84%E6%94%B6%E8%B4%AD%E8%8B%B1%E5%9B%BD%E6%9C%80%E5%A4%A7%E5%8D%8A%E5%AF%BC%E4%BD%93%E5%95%86nwf-%E7%BA%A6%E7%BF%B0%E9%80%8A-%E8%A6%81%E6%9F%A5)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+中共背弃不在香港公开活动的承诺，预示着中共即将在香港公开发展党组织和成员，中共香港特区党委这样的机构出现将是必然。同时，通过公开活动和发展党组织，中共还将对香港的政治和社会结构进行系统性、颠覆性的破坏和改造。 专家：中共不在香港公开活动的承诺已不合时宜。[信息来源](https://www.zaobao.com.sg/realtime/china/story20210707-1165865)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08093050/119141840_3f86bb22-c1d1-4141-aca1-2162f0bfc9d9.jpg)撰稿：日本樱花团/喜马拉雅的微尘 
+责编：东京樱花团/待命（文晓）
+发布：东京樱花团/目睹玉米地的一切
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-+1
+0
