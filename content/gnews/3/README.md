@@ -1,34 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1378578/)
+## 欧洲议会即将通过一项动议——制裁香港官员 抵制北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1380224/)
 
-#### 文章撰写:【默凡】
+2021年7月7日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07041425/5asdfsadf2034ef43f43gf0xfsdafsfd-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07205554/0-20.png)
 
-7月7日，台湾总统蔡英文发推表示，祝贺桑德拉·奥德柯克（Sandra Oudkirk）新上任美国在台协会台北办事处主任。我知道，在我们共同努力深化美台伙伴关系时，您丰富的外交经验将带来巨大帮助。
+编辑摘要：
 
+西藏新疆活动人士在洛桑用显示铁丝网编织奥运圆环的牌子抗议中国2022年主办北京冬奥会。（2021年6月23日）
 
+据香港南华早报报道，欧洲议会的主要政党已经在周二和周三完成了一项关于制裁香港官员、抵制北京冬奥会的动议的起草工作，并预计在本周四（7月8日）付诸辩论和表决，报道称，预计这项动议将会以绝对多数票获得通过。
 
-> Congratulations to Sandra Oudkirk on your new post as director of the American Institute in Taiwan (AIT) Taipei Office. I know your vast diplomatic experience will serve you well as we work together to deepen the [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)–[#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) partnership. [pic.twitter.com/SBu711si3U](https://t.co/SBu711si3U)
-> — 蔡英文 Tsai Ing-wen (@iingwen) [July 7, 2021](https://twitter.com/iingwen/status/1412618466658439174?ref_src=twsrc%5Etfw)
+南华早报说，欧盟的这份动议草案敦促议会对香港行政长官林郑月娥、律政司司长郑若骅、保安局局长邓炳强、前警务处处长卢伟聪、政务司司长李家超等官员采取“定向制裁”。
 
+被列入制裁名单的不仅有香港官员，还有大陆官员，如中共国国务院港澳办主任夏宝龙和他的前任张晓明，香港中联办主任骆惠宁和中央驻港国安公署署长郑雁雄，以及“在通过相关措施和参与旨在破坏香港高度自治和自由权利行动的中华人民共和国的一些机构”。
 
+在另一方面，英国主要反对党工党，周二也敦促英国政府和王室对2022年北京冬奥会进行政治抵制，除非中共同意联合国派人进入中共国就新疆发生的系统性侵害人权行为进行调查。并表示，给中共国的期限便是今年9月14日的联合国大会召开之时。
 
-7月6日，美国驻台研究所发表声明称，任命桑德拉·奥德柯克为美国在台协会台北办事处主任，她将在今年夏天晚些时候接替布伦特·克里斯滕森，在没有正式关系的情况下担任美国大使，这是拜登政府对中共国不断施压下进一步加强与美台关系的新举措。
+工党表示，如果英国等国家采取政治抵制，这将会发出一个强烈的信号，表明全世界对维吾尔人遭遇给予高度的关注，防止中国当局把这次运动会变成它的一次公关手段。
 
-自去年10月特里·布兰斯塔德 (Terry Branstad) 离任美国驻中共国大使以来，美国驻中共国大使已空缺九个月，拜登政府上任何不断推进美国与台湾在商业和文化领域的半官方关系，同时不断加强与台湾的国防合作，以进一步威慑中共国。
-
-奥德柯克此前曾在美在台协会工作过，后来担任亚太经济合作组织的美国高级官员，以及澳大利亚、新西兰和太平洋岛屿的国务卿副助理，她是美在台协会第一位女性领导。
-
-参考文章：[U.S. Names Taiwan Envoy With China Ambassador Post Still Vacant](https://www.bloomberg.com/news/articles/2021-07-07/u-s-names-taiwan-envoy-with-china-ambassador-post-still-vacant)
-
-本文仅代表作者本人观点，不代表Gnews平台
+**【[新闻来源](https://www.voachinese.com/a/European-parliament-to-call-for-Beijing-winter-Olympic-boycott-20210707/5957046.html)】**
 
 * * *
 
-排版发布：日本东京方舟农场 文柯Miles
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-+4
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+0

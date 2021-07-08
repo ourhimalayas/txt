@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国退休政治学家被指控为中（共）国从事间谍活动
-` 澳喜农场欧洲部` [轉載自GNews](https://gnews.org/zh-hans/1379715/)
+## 滴滴打车下架风暴延烧　千万别碰中国IPO公司
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1380450/)
 
-**编辑: Kevin Liffey |2021年7月6日
-编译: 越野小兔 校对: 莫黎**
+2021年7月7日
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07215654/0-22.png)
 
+编辑摘要：
+自2月份达到历史顶峰以来，中共国科技巨头（恒生科技股指）从高点下跌31%，损失8310亿美元之后，可能再跌20%。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07145759/00123-5.jpeg)**图源: DPA**
+滴滴打车6月份在美国筹资44亿美元，6月30日在纽约首日上市几天，就被中共国安全审查和下架APP，股价单日狂泻2成。“滴滴事件”成为最后一根稻草。如果中共政府希望美国投资人出现最大损失，中共一定做得到。中共全面打击在美上市的中共国互联网巨头。投资人可以先抛售中概股，避开中共国监管风暴。
 
-
-
-据路透报道，德国联邦检察官办公室周二表示，一名退休的德国政治学家被指控利用他在智库工作时建立的政治关系为中（共）国从事间谍活动长达近十年。
-
-据悉，根据德国的报道惯例，这名男子被确认名为克劳斯·L（Klaus L），他是在加入智库近 10 年后，于 2010 年去上海讲学时被招募的，他定期为中共传递情报直到2019年11月，以换取金钱和去中国旅行。
-
-公共广播公司ARD表示，克劳斯在退休前还曾为德国的外国情报机构BND做了半个世纪的间谍工作。
-
-ARD援引不具名的消息人士说，克劳斯最初向德国国家安全局汇报了（中共对其的）招聘意图，但未能告知其后来的接触情况。
-
-ARD还表示，克劳斯曾替总部位于慕尼黑的汉斯·赛德尔基金会（Hanns Seidel Foundation）工作，该基金会与基督教社会联盟（CSU）有关，后者是德国总理默克尔所在的德国基督教民主联盟(CDU)在巴伐利亚州的姐妹政党。
-
-该基金会称自去年6月以来一直与德国当局合作。
-
-该智库的一位发言人称：“通过情报活动可能出现的不当行为对我们来说是绝对不能接受的”，他补充道， 克劳斯十年前就退休了，此后他与该基金会没有过任何接触。
-
-德国国家安全局（BND）没有对此立即发表评论。
-
-克劳斯将于周二在慕尼黑法院出庭。
-
-
-
-**新闻来源:**
-
-[Retired German political scientist charged with spying for China](https://www.reuters.com/world/man-charged-germany-with-spying-china-2021-07-06/)
-
-
+**【**[新闻来源](https://www.cmmedia.com.tw/home/articles/28597)**】**
 
 * * *
 
-**发布: 澳喜农场欧洲部**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-+2
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+0

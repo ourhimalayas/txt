@@ -1,11 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 无论是否故意释放，中共国都应该为新冠病毒负责
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1380001/)
+## 盖特 老百姓的平台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1380381/)
 
-6/29/2021 前国务院调查员大卫·阿舍博士：中共国应对新冠病毒负责，无论是有意释放还是无意泄露。许多著名科学家也知道新冠病毒的真相，但他们都不想公诸于众，因为他们担心中共国会切断他们的资助。
+制作：香草山视频部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

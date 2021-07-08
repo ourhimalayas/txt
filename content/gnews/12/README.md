@@ -1,29 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【周说｜文贵】系列之2021年7月1日至7月4日
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1375954/)
+## 来咯，来咯，他真的来咯
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1379549/)
 
-作者：香草山农场教育部 月野兔
+**作者：洛杉矶盘古农场 – 文如**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07122034/120-1.jpg)
+相信很多川粉都很怀念川普DONALD TRUMP，自从川普被推特和脸书关闭账号后，支持他的选民和粉丝已经很少能看到他的动态。凤凰涅槃，他回来了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05013407/WhatsApp_Image_2020-10-24_at_04.33.05-5.jpeg)
+2021年7月7日星期三，他将举办离开白宫后的首场新闻发布会。最近川普的动态频繁，美国独立日在佛罗里达州发表演讲，他说他有回到白宫的计划。在输掉美国大选后，这是他首次吹响再次参加竞选的号角。
 
+我们都经历过1月20日那场滑稽的美国大选，不知道他是如何度过他任上最长的一天。他甚至没有和支持他的爱国者们告别就匆匆离开了白宫。他的爱国者们没有放弃，他们一直在追求真相，感谢所有的爱国者们，大选结果被黑的证据已经提交国会。这场美国宪政危机将如何度过，对所有的美国人都是一个史无前例的考验。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015114/2-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015128/3-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015129/5-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015143/6-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015205/7-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015219/8-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015235/9-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015249/10-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015302/11-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015313/12-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015324/13-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015336/14-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015347/15-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015403/16-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015414/17-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015430/18-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015440/19-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015452/20-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015528/21-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015601/22-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015617/23-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015623/24-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015645/25-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015653/26-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015704/27-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015713/28-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015723/29-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015727/30-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015738/31-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015747/32.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015758/33.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015823/34.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015834/35.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015848/36-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015859/37-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015911/38-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015923/39-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015931/40-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015939/41.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06015950/42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06020001/43.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06020012/44.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06020025/45.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06020035/46.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06020047/47.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/06020057/48.jpg)
-校对/发稿：飞虹
+作为川粉，有多少人和我一样很期待他的新闻发布会。这次他真的回来了！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+一个年过7旬的老大爷还能连续站立2小时发表脱稿演讲，着实让人敬佩。再看看天安门楼上的共产党老杂毛们照本选科，与之相比，真是天地之差！
 
-**更多资讯，更多关注**
+一个真实，幽默，真诚的美国大爷打动了每个支持他的粉丝。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+川普过去4年里用实际行动表达他的爱国精神，正如他所说的：“美国给了太多，给了我一切，我要让美国再次伟大！”因为从政，他放弃了舒适的生活，他的生意大幅下滑。他坚持领1美金的年薪，可却为这个国家勤奋地工作着。在共产党统治下，领1美金年薪的领导人永远不会出现。共产党为国家服务的动力是为了中饱私囊，为了包二奶们，为了私生子，为了他们自己的千秋万代。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+为了美国遭受的不平等贸易政策，他不惜同全世界战斗，为他的国家，为他的人民争取应得的利益。美国经济在2020年CCP病毒发生之前，是美国历史上最好的，失业率也是最低的。笔者有几个美国朋友，他们时常向我讲述：如果没有川普，他们无法在社会上生活下去。川普的政策给普通平民提供了很好的创业机会和工作环境。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+在国会大厦发生骚乱后，川普被科技巨头们禁止了使用 Facebook 、Twitter、Youtube和Insgram，这让他失去了多年来用以和美国人民直接交流的强大工具，他也逐渐在大众的视野里慢慢退去。追随他的爱国者们时刻盼望着他的归来。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+他将以何种方式回归大众的视野呢？我们将一起拭目以待。请所有川粉，关注GTV,GNEWS和GETTR,新中国联邦将给你带来第一手的资讯。如果届时川普公开宣布入驻GETTR，这将是令人振奋的消息！他终于可以自由发声了！美国需要他去实现再次伟大，爱国者们需要他带领着去保护他们的国家，川粉们希望通过GETTR社交平台重新获取川普的最新资讯。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（本文仅代表作者个人观点）
 
-0
+编辑：洛杉矶盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++2
