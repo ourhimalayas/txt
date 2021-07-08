@@ -12,20 +12,20 @@
 
 ---
 
-### [绝地反击——美国前总统川普回归公众视野第一枪挑战垄断媒体寡头](/content/gnews/1/README.md)
+### [欧洲议会即将通过一项动议——制裁香港官员 抵制北京冬奥会](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [绝地反击——美国前总统川普回归公众视野第一枪挑战垄断媒体寡头](/content/gnews/2/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺](/content/gnews/2/README.md)
+### [【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺](/content/gnews/3/README.md)
  ` 索尼克`
 
-### [【灭共头条】“滴滴出行”App股价暴跌背后的中美博弈](/content/gnews/3/README.md)
+### [【灭共头条】“滴滴出行”App股价暴跌背后的中美博弈](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [GETTR首席执行官杰森-米勒关于川普总统第一修正案的声明](/content/gnews/4/README.md)
+### [GETTR首席执行官杰森-米勒关于川普总统第一修正案的声明](/content/gnews/5/README.md)
  ` 索尼克`
-
-### [7/7/2021 川普总统宣布对大科技巨头发起集体诉讼](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
 
 ### [【中英文字幕】7/6/2021文贵盖特：共产党内部已经开始瓦解了，请跟随并珍惜新中国联邦、爆料革命](/content/gnews/6/README.md)
  ` Caihongqiao`
@@ -36,14 +36,14 @@
 ### [郭爆料串珠（308）改革开放30年真的是割子宫经济，卖血经济](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
-### [美国即将面临中共的迫在眉睫的攻击](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【新闻速递】阿什博士：不进入实验室就不能排除COVID实验室泄漏理论](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
 
-### [辉瑞疫苗受害者遭受严重不良反应，且无法得到适当诊疗](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [科兴在印尼的首席疫苗科学家疑似死于新冠病毒](/content/gnews/10/README.md)
+ ` 闪电侠`
 
-### [青少年几乎不会死于中共病毒，但他们却受到疫苗的伤害](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [华盛顿邮报编辑部罕见发声： 尽快采取行动调查中共病毒起源](/content/gnews/11/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [【周说｜文贵】系列之2021年7月1日至7月4日](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -84,35 +84,35 @@
 ### [7/7/2021 川普总统宣布对大科技巨头发起集体诉讼](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [南非前总统自首入狱](/content/gnews/25/README.md)
- ` 闪电侠`
-
-### [川普宣布对科技巨头 Twitter、Facebook 和谷歌提起集体诉讼](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [澳中较量 堪培拉对北京立场更趋强硬](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [丢手机惹祸：西藏僧侣遭判重刑](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【热点播报】粉红媒体竟把新冠病毒旧闻作为今日头条“新闻”，想忽悠谁？](/content/gnews/29/README.md)
+### [【热点播报】美国独立日盖特成功上线 中共悍然发动网络战争](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [俄驻美大使称美俄战略稳定会谈将在欧洲举行](/content/gnews/30/README.md)
- ` 索尼克`
+### [拜登政府的23名高级官员都来自同一家隐秘的公司](/content/gnews/26/README.md)
+ ` 澳喜农场`
 
-### [德国退休政治学家被指控为中（共）国从事间谍活动](/content/gnews/31/README.md)
+### [迪拜全球最大港口发生船只爆炸 此港口是美国军舰的停靠港](/content/gnews/27/README.md)
+ ` 闪电侠`
+
+### [【新闻速递】阿什博士：不进入实验室就不能排除COVID实验室泄漏理论](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [科兴在印尼的首席疫苗科学家疑似死于新冠病毒](/content/gnews/29/README.md)
+ ` 闪电侠`
+
+### [南非前总统自首入狱](/content/gnews/30/README.md)
+ ` 闪电侠`
+
+### [樱花简报7月8日](/content/gnews/31/README.md)
+ ` 日本东京樱花团`
+
+### [德国退休政治学家被指控为中（共）国从事间谍活动](/content/gnews/32/README.md)
  ` 澳喜农场欧洲部`
 
-### [中共军企航天科技隐瞒2020年度财务报表正式审计报告](/content/gnews/32/README.md)
+### [中共军企航天科技隐瞒2020年度财务报表正式审计报告](/content/gnews/33/README.md)
  ` Jimsolomon`
 
-### [【史海今勾】七七事变的真相](/content/gnews/33/README.md)
+### [【史海今勾】七七事变的真相](/content/gnews/34/README.md)
  ` 纽约香草山MOS03`
-
-### [GETTR的价值](/content/gnews/34/README.md)
- ` 日本东京樱花团`
 
 ### [【快速新闻】盖特正式上线仅一天，班农先生关注者超5万](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -138,45 +138,45 @@
 ### [7/6/2021 财经快讯：滴滴股价开盘前暴跌25%；英国银行寻求偿还1050亿美元的中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [澳喜农场墨尔本战友7月4日线下活动回顾](/content/gnews/43/README.md)
- ` 澳喜农场`
-
-### [“历史上的黑暗里程碑”：美国议员谴责中共建党100周年](/content/gnews/44/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [因“模糊”的《反人肉搜索法》，谷歌、脸书和推特威胁撤出香港](/content/gnews/45/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [拜登政府发表声明：不支持台独](/content/gnews/46/README.md)
+### [华盛顿邮报编辑部罕见发声： 尽快采取行动调查中共病毒起源](/content/gnews/43/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【币圈】-数字货币动态- 2021.07.07](/content/gnews/47/README.md)
+### [澳喜农场墨尔本战友7月4日线下活动回顾](/content/gnews/44/README.md)
+ ` 澳喜农场`
+
+### [“历史上的黑暗里程碑”：美国议员谴责中共建党100周年](/content/gnews/45/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [因“模糊”的《反人肉搜索法》，谷歌、脸书和推特威胁撤出香港](/content/gnews/46/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [拜登政府发表声明：不支持台独](/content/gnews/47/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【币圈】-数字货币动态- 2021.07.07](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国已对双面间谍开始动手](/content/gnews/48/README.md)
+### [德国已对双面间谍开始动手](/content/gnews/49/README.md)
  ` G-NEWS TAIWAN`
 
-### [【聚焦澳洲】指控美国倒打一耙，中共祭出“种族牌”](/content/gnews/49/README.md)
+### [【聚焦澳洲】指控美国倒打一耙，中共祭出“种族牌”](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共在欧盟的三驾马车 英国已经失守](/content/gnews/50/README.md)
+### [中共在欧盟的三驾马车 英国已经失守](/content/gnews/51/README.md)
  ` G-NEWS TAIWAN`
 
-### [日本副首相发声必须保护台湾](/content/gnews/51/README.md)
+### [日本副首相发声必须保护台湾](/content/gnews/52/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共扬言「粉碎」台湾，美日表态共同护台](/content/gnews/52/README.md)
+### [中共扬言「粉碎」台湾，美日表态共同护台](/content/gnews/53/README.md)
  ` G-NEWS TAIWAN`
 
-### [你好朋友第5期:听减肥进行时的安红分享减肥、爆料革命的经历和期许](/content/gnews/53/README.md)
+### [你好朋友第5期:听减肥进行时的安红分享减肥、爆料革命的经历和期许](/content/gnews/54/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [Gettr上线是对世界正义力量的集结](/content/gnews/54/README.md)
+### [Gettr上线是对世界正义力量的集结](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [【聚焦澳洲】中共达尔文港巴拿马港项目双双搁浅](/content/gnews/55/README.md)
+### [【聚焦澳洲】中共达尔文港巴拿马港项目双双搁浅](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
-
-### [2021年07月06日澳喜要闻（每日更新）](/content/gnews/56/README.md)
- ` 澳喜农场`
 

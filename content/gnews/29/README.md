@@ -1,50 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】粉红媒体竟把新冠病毒旧闻作为今日头条“新闻”，想忽悠谁？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1379848/)
+## 科兴在印尼的首席疫苗科学家疑似死于新冠病毒
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1380185/)
 
-作者：纽约香草山健身部 Jack Li文阳
+**编辑：文章**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07203237/23-6.jpg)
+据印度尼西亚媒体报道，中国科兴生物制品有限公司(Sinovac)在印尼进行疫苗试验的首席科学家周三（7月7日）去世，死因疑似COVID-19。
 
+诺维利亚(Novilia Sjafri Bachtiar)的死正值印尼新冠病毒导致的死亡人数达到了历史最高水平。印尼是科兴疫苗使用最广泛的国家之一。
 
+路透社援引库姆帕兰新闻社(Kumparan News Service)的报道说，诺维利亚死于冠状病毒。印尼媒体Sindonews援引国有的生物制药公司(Biofarma)一名官员的话说，她是按照COVID-19的有关规定下葬的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+印尼国有企业部长称她的去世是生物制药公司的“巨大损失”。他没有给出她的死因。他说:“她是生物制药公司数十项临床试验的首席科学家和负责人，包括与科兴合作的新冠疫苗的临床试验。”
 
+对于50岁出头的诺维利亚的去世，科兴生物制药没有立即对置评的请求作出回应。
 
+根据独立数据集团拉波尔COVID-19( Lapor COVID-19)的数据，自6月以来，已有131名医务工作者死亡，包括7月份死亡的50人。他们中的大部分人接种了科兴疫苗。
 
-2021年7月7日，中共国粉红媒体《观察者》的头版头条是《声援中国，24 名国际专家在柳叶刀发表联合声明》。令人啼笑皆非的是，这个“新闻”竟然是2020年2月19日的旧闻。
+周三，印尼一天内首次报告超过1000例新冠病毒死亡病例，感染病例达到创纪录的34379例。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07203248/EstZz95UUAMt1Uc.jpg)
+**评论**：其实闫博士的三份报告已经明确指出，COVID-19就是中共的超限生物武器，中共开发的疫苗怎么可能真正有效？真是相信共产党，走进火葬场。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07175544/43-1.jpg)
+郭文贵先生最新GRTTR指出：中国最大的冠壮病毒的疫苗公司．首席科学家竟然因染中共CCP病毒而死……这就是轮回，这就是报应。
 
-众所周知，冠状病毒COVID-19来自中共实验室这一事实已经是铁证如山，现在已经没有任何有名望的专家敢于为中共的“自然来源”说站台。而今，中共在找不到可以为自己站台的专家的情况下，竟然拿一年前的旧闻糊弄民众，这说明了几个问题：
+**来源**：[https://www.voachinese.com/a/Indonesia-sinovac-vaccine-lead-scientist-20210707/5957295.html](https://www.voachinese.com/a/Indonesia-sinovac-vaccine-lead-scientist-20210707/5957295.html)
 
-1. 在真相的面前，中共的国际学术“蓝金黄”正在失效，没有专家敢为中共站台了。
-2. 中共把中国老百姓当成傻子。任何人看一下日期就知道这是一则非常过时的旧闻，然而中共的大内宣竟然认为中国的老百姓连这么明显的问题都不能发现。中共的这种傲慢已经让其丧失了理智。
-3. 对于一个知名的新闻网站，把旧闻作为今日头条，这种操作简直毫无下限。这说明中共毫无廉耻之心。
+***校对发布：文顾***
 
-
-这样的中共有什么前途，如何能让民族复兴。中共百年，就是无耻的一个世纪。爆料革命必然结束这个庞然大物。可叹中共常常笑话中国的百姓是乌合之众，其实中共自己才是乌合之众，其必然被新中国联邦取代。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-+2
+0

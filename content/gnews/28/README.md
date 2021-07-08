@@ -1,30 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 丢手机惹祸：西藏僧侣遭判重刑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1380053/)
+## 【新闻速递】阿什博士：不进入实验室就不能排除COVID实验室泄漏理论
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1380028/)
 
-2021年7月7日
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07191932/0-19.png)
-
-编辑摘要：
-
-位于纽约的人权观察组织7月6日发布报告，2019年9月，拉萨市公安人员从登卓寺（Tengdro）一名僧侣曲嘉旺波丢失的手机信息中，发现他与境外僧侣联系，并为2015年尼泊尔大地震捐款。随即登卓寺被搜查，多人遭逮捕，一人自杀，四名僧人在2020年遭秘密重判，最高刑期达20年，最少的5年。2020年10月，又有两名藏人因给印度的亲属寄钱而入狱，其中一人死在狱中。
-
-西藏各地政府召开大会，严加管制网络通讯，警告居民不得联系海外的亲属。人权观察要求中共当局立即释放被囚的僧侣，呼吁有关国家和联合国向中共施压，要求尊重藏人的人权。2020年6月50名联合国人权专家就发出呼吁，应该成立常设的中共国人权监测机制。
-
-**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210707-%E4%B8%A2%E6%89%8B%E6%9C%BA%E6%83%B9%E7%A5%B8-%E8%A5%BF%E8%97%8F%E5%83%A7%E4%BE%A3%E9%81%AD%E5%88%A4%E9%87%8D%E5%88%91)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+译评：纽约香草山健身部 Ivy001
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-+2
+
+
+新闻来源：FOX NEWS
+
+新闻链接：[COVID lab leak theory can’t be ruled out without going into lab: Dr. Asher](https://www.foxnews.com/media/covid-lab-leak-theory-cant-be-ruled-out-without-going-into-lab-dr-asher)
+
+译文：
+
+前国务院调查员大卫-阿什博士（Dr.David Asher）周二在《柳叶刀》医学杂志上发表文章，反对一群医学专家否定COVID-19实验室泄漏的“阴谋论”。阿什博士最近在公开听证会上于众议院共和党人面前就COVID-19起源作证。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07190434/44-1.jpg)图片来源：FOX NEWS
+
+大卫-阿什博士表示：除非你进入实验室并寻找泄漏点，否则你无法排除实验室泄漏的可能性。我的意思是，他们不允许我们进入实验室，所以他们永远无法明确地说“是”或“不是”。但间接证据是如此之多。然后，在冠状病毒的性质中还有一些奇怪的因素，我知道一些主要的科学实验室现在正在研究这些因素。最重要的一个是它的无症状传播。现在我们已经看到其他无症状传播的病毒，但它们都是众所周知的病毒。而当它们最初传播时，就像最初一波的流感，当人们接触到它的一个新菌株时，他们会有症状地生病。因此，这似乎没有真正的先例。而这是石正丽博士（的研究项目），那个创造这个东西的小实验室的负责人。据我们所知，这位蝙蝠女士，她正在研究如何开发无症状传播，以阻止你身体中干扰素反应的发生。这很疯狂。（他们）是否在试图创造一个生物武器类型的东西，以及他们为什么要这么做？
+
+简单地说，这绝对是一个丑闻。但有趣的是，当一年前发现蝙蝠冠状病毒可以直接传播给人类时，实验室负责人石正丽博士在《纽约时报》上说，我们在那个实验室里做的原因是，它们不可能从蝙蝠传播到人类。那么真相是什么呢？我的意思是，她在撒谎，不管是哪种方式。我们当然知道，他们在那个实验室里开发的冠状病毒的研究类型，而且似乎（病毒）已经泄露出去了，很明显，已经杀死了四百多万人。这足以证明他们所做的事情是非常危险的。
+
+评论：阿什博士从科学角度侧面论证了COVID-19是由石正丽负责研究出来的，由武汉病毒研究所泄漏出来的。中共不允许调查工作组进入武汉病毒研究所，这就是一个明显的反面证据——中共在掩盖什么？他们在掩盖如何制造生物武器病毒的研究。而今，越来越多的科学家站出来，从各个角度来指证中共关于病毒的真相。
+
+如果西方国家对中共还抱有幻想，那么，中共还有无数个病毒在等着西方国家——只要西方国家不能令中共满意，必然会有更多的病毒被中共放出来，以打击西方国家，以打击自由世界。只有彻底消灭中国共产党，才是解决新冠疫情大流行的唯一方法。全世界尽快联合起来，共同以毒灭共吧。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+0

@@ -1,17 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳喜农场墨尔本战友7月4日线下活动回顾
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1379859/)
+## 华盛顿邮报编辑部罕见发声： 尽快采取行动调查中共病毒起源
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1380159/)
 
-撰稿人：小治
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07175357/EEC170FB-70F1-4EF7-A48E-8C955869FB46.jpeg)
-（图片来源：澳喜农场）
+#### 编译：文旺
 
-墨尔本13位战友7月4日在著名的F1赛车场地Albert Park集结，举行线下活动。战友们本周选择了墨尔本市区著名的文森特花园，在这个古色古香的地方发放宣传册。众所周知，文森特花园有许多具有墨尔本特色的古建筑，这里也是墨尔本的繁华地段。有战友边发小册子，边感叹，这里有许多座超过100年的建筑，放在共产党手里，要么是圈地收门票，要么早就被强拆了，现在中共国哪里还有保存得这么好的民居街。战友们分成四小队，分头行动，不到一小时就发出了超过100份宣传册，也有当地西方市民主动索取“爆料革命病毒真相”的册子，并听取了战友们关于“中共病毒”真相的叙述。活动后，战友们举行了会餐，桉树叶战友主动买单。聚餐后，战友们争相请其他战友去他家里做客，战友之间有真情。据悉，澳喜墨尔本战友线下活动已经成为农场的固定节目，每个周末都会举行不同形式的线下活动，来宣传爆料革命和新中国联邦。本次活动也在GTV“澳喜作战室”进行全程直播，请墙内战友们关注我们的gtv频道，墨尔本战友在行动。
+#### 校对：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07202157/image-111.png)图片来自：*Hector Retamal/AFP via Getty Images*
+美国左翼大报《华盛顿邮报》（Washington Post）编辑部7月6日罕见发声，呼吁美国和世界各国采取实际行动调查中共病毒的起源。
 
-（文章内容仅代表作者观点）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07175847/7FC2FA58-1E62-4689-89F7-8A34EAF12268.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07175952/A3A1433F-4591-4C71-9715-35DABFAF64E5.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07180249/1BF45C5F-6F4A-4B77-91EE-A284F4B8C4AF.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07181258/45A615E8-9CCA-4A64-AC68-6C0F70EAD8AB.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07181400/98390BE0-5A97-4DE7-BFCF-8984D9ABE4A1.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07181445/9255FA93-4458-487C-92BA-4B67043D5434.jpeg)图片来源澳喜农场
-*编辑：cindy*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
-+1
+编辑部文章称，从拜登（Joe Biden）总统，参议院和国家科学院，到英国首相，G7集团和世卫组织（WHO）总干事，无论是政治领袖还是科学和公共卫生领域的专家，都在谈论要对中共病毒的起源和它潜在的危险性进行全面的调查。现在是把言词变成行动的时候了。
+
+文章指出，由于中共国的阻扰，世卫组织的首次调查不尽人意。中共病毒首先在中国武汉市爆发，其原因可能是人畜共患病，动物传人，或从武汉病毒研究所泄漏等等，正因为有这样或那样的假设，才要求对病毒起源进行以资源和专业知识为后盾的调查。现在不是简单地找出替罪羊的时候，而是要对病毒源头进行深入调查，挖出真相。
+
+文章认为，虽然拜登下令让美国情报界在夏天拿出中共病毒起源的报告，但他做得还不够，他应该支持成立一个独立的委员会，对病毒起源和美国的应对措施进行仔细调查。国会也应该加入进来共同行动，就像当年调查珍珠港，越战，肯尼迪（John F. Kennedy）总统和马丁·路德·金（Martin Luther King）被刺杀，和9/11恐怖袭击那样，由民主与共和两党携手进行调查。
+
+文章特别指出，中共国抵制调查是一个挥之不去的障碍。从中共国应对2002和2003年萨斯（SARS）爆发，以及应对这次中共病毒大爆发的手段看，马里兰大学国际与安全研究中心（Center for International and Security Studies）的高级副研究员米尔顿·莱藤伯格（Milton Leitenberg）得出结论：中共政府仍然像当初那样，对中共病毒起源“采取了一场大规模的行动来进行抵赖，掩盖，误导，拖延，和散步虚假信息”。有31位科学家和专业人士在6月28日发表了第四封公开信，呼吁无论中共国合作与否，都要进行调查，并提供了详细的调查路线图。
+
+文章最后强调，如果中共继续作梗，调查就应该撇开中共国而独立进行。因为时间拖得越久，就越难找到真相。人类不应错过从这场全球灾难中吸取教训的机会，这场灾难已夺走了近 400 万人的生命。
+
+#### 点评：
+
+在距离武汉爆发CCP病毒已经超过一年半后的今天，在有良知的社会各界早就定义为化学武器的今天，左媒却突然高调呼吁重启调查。这与其说是无限拖延，让病毒事件进入无休止的死循环（死不承认-要求调查-百般阻挠-没有结论-要求调查……），不如说是彻头彻尾配合中共表演的双簧闹剧！
+
+[原文链接](https://www.washingtonpost.com/opinions/2021/07/06/where-did-covid-come-we-need-get-serious-about-finding-out/)
+
+0

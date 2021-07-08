@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】“滴滴出行”App股价暴跌背后的中美博弈
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1379666/)
+## 【NewsExpress】美国任命台湾特使，而驻中共国大使仍然空缺
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1378578/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
+#### 文章撰写:【默凡】
 
-责编：Shifter
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07142507/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20190603235650.jpg)图片来源：www.impencil.org
-据BBC News 7月7日报道，“滴滴出行”App在中共国监管机构的打压下，在本周二（7月6日），其股市跌幅近20%，而背后的中美之间的博弈在此事件似乎起到了关键作用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07041425/5asdfsadf2034ef43f43gf0xfsdafsfd-1.jpg)
 
-7月4日，中国网信办以“网络信息安全”为由，勒令网络叫车巨头“滴滴出行”APP下架。此举引发股市大幅震荡，在7月6日收盘时，股市跌幅近20%。而在当天开盘后，最大跌幅竟达到25%。
+7月7日，台湾总统蔡英文发推表示，祝贺桑德拉·奥德柯克（Sandra Oudkirk）新上任美国在台协会台北办事处主任。我知道，在我们共同努力深化美台伙伴关系时，您丰富的外交经验将带来巨大帮助。
 
-对于此次风波，具有中共大外宣背景的《环球时报》一语道破了其中原委：“像滴滴出行这样的公司，它在美国上市，其排第一第二的股东都是外国公司，国家对它的信息安全监管更需要是严格的，这既是维护个人信息安全，也是维护国家安全。”
 
-看了，中美之间的背后博弈才是此事件深层次原因。中共似乎还在做着从长计议的准备，可它真得还会有“往后余生”吗？
 
-参考链接：
+> Congratulations to Sandra Oudkirk on your new post as director of the American Institute in Taiwan (AIT) Taipei Office. I know your vast diplomatic experience will serve you well as we work together to deepen the [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)–[#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) partnership. [pic.twitter.com/SBu711si3U](https://t.co/SBu711si3U)
+> — 蔡英文 Tsai Ing-wen (@iingwen) [July 7, 2021](https://twitter.com/iingwen/status/1412618466658439174?ref_src=twsrc%5Etfw)
 
-[滴滴出行暴跌后或迎集体诉讼 审查背后的地缘政治博弈](https://www.bbc.com/zhongwen/simp/business-57747938)
 
-（本文仅代表作者个人观点）
 
-0
+7月6日，美国驻台研究所发表声明称，任命桑德拉·奥德柯克为美国在台协会台北办事处主任，她将在今年夏天晚些时候接替布伦特·克里斯滕森，在没有正式关系的情况下担任美国大使，这是拜登政府对中共国不断施压下进一步加强与美台关系的新举措。
+
+自去年10月特里·布兰斯塔德 (Terry Branstad) 离任美国驻中共国大使以来，美国驻中共国大使已空缺九个月，拜登政府上任何不断推进美国与台湾在商业和文化领域的半官方关系，同时不断加强与台湾的国防合作，以进一步威慑中共国。
+
+奥德柯克此前曾在美在台协会工作过，后来担任亚太经济合作组织的美国高级官员，以及澳大利亚、新西兰和太平洋岛屿的国务卿副助理，她是美在台协会第一位女性领导。
+
+参考文章：[U.S. Names Taiwan Envoy With China Ambassador Post Still Vacant](https://www.bloomberg.com/news/articles/2021-07-07/u-s-names-taiwan-envoy-with-china-ambassador-post-still-vacant)
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+排版发布：日本东京方舟农场 文柯Miles
+
++4
