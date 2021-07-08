@@ -1,31 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列辉瑞疫苗接种只有64%&#8221;有效&#8221;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1379405/)
+## 【热点播报】粉红媒体竟把新冠病毒旧闻作为今日头条“新闻”，想忽悠谁？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1379848/)
 
-翻译：nstar 责编：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07111405/1-31.jpg)
-7月5日《以色列时报》发表的一篇文章提供了关于所谓疫苗有效性的最新数字。在以色列，疫苗接种主要由辉瑞/Biontech公司完成。6月，据说该疫苗预防感染中共病毒的预期效果只有64%。然而，这种提法被认为是有问题的，因为接种疫苗既不能防止感染，也不能防止疾病的传播–只能减少严重病症的发生频率。
-
-目前，以色列正在再次讨论更加严格的措施，以控制所谓的 “新冠状病毒 “的印度变异毒株的传播。《以色列时报》还报道说，以色列正在考虑广泛使用Moderna的疫苗进行第二次接种，因此推迟了从辉瑞公司/Biontech公司订购100万剂疫苗的计划。应该指出的是，到目前为止, 没有关于随意混合疫苗的效果、副作用和长期后果的结论性研究数据。以色列在世界上是最有效地开展了疫苗接种运动的国家之一。约有57%的普通民众完全接种了疫苗，包括88%的50岁以上人口–被认为是最有可能发生严重病例的群体。就在此时,大约930万人口中目前有2597个 “活跃病例”。68人被送入医院，其中35人处于 “严重状态”。
-
-关于疫苗接种的实际效果，问题显然远远多于答案，即使政治家和法庭媒体对此的表述完全不同。在欧盟的官方主页上，你可以找到对一个重要问题的非常有意义的答案，参看如下引用自欧盟官网的问答。
-
-*13.接种疫苗的人还能传播疾病吗？*
-
-*我们还不知道。为了评估疫苗接种对无症状疾病的影响，我们仍然需要更多的信息，如临床试验的数据和疫苗批准后的使用情况。*
-
-*因此，就目前而言，即使是接种了疫苗的人也必须继续戴口罩，避免在封闭的空间内拥挤，限制其社会接触，等等。然而，其他因素–例如有多少人接种疫苗以及病毒在群体中传播的速度–可能会导致这些行为规则的改变。*
-
-**请注意，这是在所谓的大流行病爆发****15****个月后，欧盟仍然****“****不知道**** “****接种疫苗会产生什么影响****!!!**
-
-参考新闻：
-
-[https://fortune.com/2021/07/05/israel-data-plunge-efficacy-pfizer-biontech-vaccine-delta-variant/](https://fortune.com/2021/07/05/israel-data-plunge-efficacy-pfizer-biontech-vaccine-delta-variant/)
-
-[https://www.jpost.com/breaking-news/health-officials-rule-covid-booster-recommended-for-immunocompromised-672894](https://www.jpost.com/breaking-news/health-officials-rule-covid-booster-recommended-for-immunocompromised-672894)
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+2021年7月7日，中共国粉红媒体《观察者》的头版头条是《声援中国，24 名国际专家在柳叶刀发表联合声明》。令人啼笑皆非的是，这个“新闻”竟然是2020年2月19日的旧闻。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07175544/43-1.jpg)
+
+众所周知，冠状病毒COVID-19来自中共实验室这一事实已经是铁证如山，现在已经没有任何有名望的专家敢于为中共的“自然来源”说站台。而今，中共在找不到可以为自己站台的专家的情况下，竟然拿一年前的旧闻糊弄民众，这说明了几个问题：
+
+1. 在真相的面前，中共的国际学术“蓝金黄”正在失效，没有专家敢为中共站台了。
+2. 中共把中国老百姓当成傻子。任何人看一下日期就知道这是一则非常过时的旧闻，然而中共的大内宣竟然认为中国的老百姓连这么明显的问题都不能发现。中共的这种傲慢已经让其丧失了理智。
+3. 对于一个知名的新闻网站，把旧闻作为今日头条，这种操作简直毫无下限。这说明中共毫无廉耻之心。
+
+
+这样的中共有什么前途，如何能让民族复兴。中共百年，就是无耻的一个世纪。爆料革命必然结束这个庞然大物。可叹中共常常笑话中国的百姓是乌合之众，其实中共自己才是乌合之众，其必然被新中国联邦取代。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
++2

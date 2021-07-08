@@ -1,30 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盖特在上线后的48小时内就拥有了第一百万的用户
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1379551/)
+## 【灭共头条】“滴滴出行”App股价暴跌背后的中美博弈
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1379666/)
 
-2021年7月7日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07100459/phpv7LZuS-12.jpg)
-班农先生刚刚在GTV英国英语频道接受了喜马拉雅伦敦俱乐部的周期采访。他爆料说，盖特刚刚拥有了第一百万的用户。这在行业内是一个记录。
+撰稿：Ermat【㊙️翻Gnews原创组】
 
-盖特是一个“免取消”的新媒体平台，于7月4日正式启动。在48小时内，即程序上线后的第三天，它的用户数量已超过了100万人。盖特的知名用户来自世界各地，包括巴西的总统。
+责编：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07142507/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20190603235650.jpg)图片来源：www.impencil.org
+据BBC News 7月7日报道，“滴滴出行”App在中共国监管机构的打压下，在本周二（7月6日），其股市跌幅近20%，而背后的中美之间的博弈在此事件似乎起到了关键作用。
 
-在节目中，班农先生还首次爆料，第45届美国总统川普将在今天上午11点NewsMax的采访中宣布对大科技公司的诉讼。我们期待着事态的发展。
+7月4日，中国网信办以“网络信息安全”为由，勒令网络叫车巨头“滴滴出行”APP下架。此举引发股市大幅震荡，在7月6日收盘时，股市跌幅近20%。而在当天开盘后，最大跌幅竟达到25%。
 
-恭喜盖特的上线成功。它真正的保护了言论自由。
+对于此次风波，具有中共大外宣背景的《环球时报》一语道破了其中原委：“像滴滴出行这样的公司，它在美国上市，其排第一第二的股东都是外国公司，国家对它的信息安全监管更需要是严格的，这既是维护个人信息安全，也是维护国家安全。”
 
-马上注册盖特，获得更美好的盖特生活!
+看了，中美之间的背后博弈才是此事件深层次原因。中共似乎还在做着从长计议的准备，可它真得还会有“往后余生”吗？
 
-**【新闻来源】**
+参考链接：
 
-* * *
+[滴滴出行暴跌后或迎集体诉讼 审查背后的地缘政治博弈](https://www.bbc.com/zhongwen/simp/business-57747938)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+（本文仅代表作者个人观点）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在欧盟的三驾马车 英国已经失守
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1378920/)
+## 德国已对双面间谍开始动手
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1378945/)
 
 台湾宝岛农场 视频组
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05224543/%E7%AA%84-3.jpg)
