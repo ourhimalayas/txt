@@ -1,37 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一百名科学家致信约翰逊反对重新开放
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1382573/)
+## 13岁男孩因心脏病意外死亡，疑与疫苗有关
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1382567/)
 
-消息来源：意大利晚报（corriere.it）
-发布时间：2021年07月08日
-翻译/整理/简评：萧亦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08130146/uk.jpg)
-由于猖獗的Delta变种，大流行的第三次浪潮正在整个英格兰进行。然而，英国政府已计划解除几乎所有的限制来重新开放国家。现在英国政府的这一决定被 122 名世界专家写的一封信描述为“危险和不成熟的”，并发表于《柳叶刀》。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08130217/1292.jpeg)图为华盛顿州西雅图一名12岁的孩子正在接种疫苗。（David Ryder / Getty Images）
 
-专家们写道，取消这些限制有可能导致数百万感染并引起与患者长期共病相关的慢性问题和残疾。通过人群免疫结束大流行需要足够数量的人对 Sars-CoV-2免疫，但在 7 月 19 日之前不太可能实现人群免疫。
+据《门户新闻专家》作者：Jim Hoft 2021年7月5日报道：
 
-政府选择的策略被认为是危险的主要有五个原因:
+13 岁的雅各布·克莱尼克（Jacob Clynick）突然死于心脏疾病。
+据他的姑妈说，雅各布在他去世的3天前接受了第二次 COVID 疫苗注射。
+雅各布的自由派姑妈塔米·布拉吉斯 (Tami Burages)周日在推特上发布了他的疫苗卡副本，并附上了这一消息。
 
-1 ，首先会影响到所有未接种疫苗的儿童和年轻人。由于 Delta 变体的高传染性，感染呈指数级增长，直到数百万人被感染，数十万人不得不长期残疾。这一战略有可能导致一代人在几十年内都患有慢性健康问题和残疾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08130701/1292-1.jpg)
 
-2，学校和儿童的高传播率将导致重大问题。让传播持续到整个夏天将创造一个感染源，当学校和大学在秋季重新开放时，它可能会加速传播。如果没有采取所有可能的措施来降低病毒在社区中的传播，学校将会关闭。
+CDC（美国疾病预防与控制中心）需要调查这件事。在接受第二次辉瑞（pfizer）疫苗注射的年轻男性中，还有其他心肌炎病例。在美国有其他人死于它（该疫苗）还是我的侄子是第一个？
+我认为应该警告父母注意风险。
+—塔米·布拉吉斯 (@tburages) 2021 年 6 月 20 日
+当法医小组还没离开的时候，塔米就来到了她哥哥的家。
+当法医小组还在的时候，我到了我哥哥的家。在场的一名警官告诉我，该小组的一名成员推测雅各布患有“心脏病”。https://t.co/ypNTL0h6Bh
 
-3 ，疫苗抗性变异这将使英国和世界各地的每个人，包括已经接种疫苗的公民，都处于危险之中。尽管可以更新疫苗，但这需要时间。
+—— 塔米·布拉吉斯 (@tburages) 2021 年 6 月 21 日
+更新——这份报告是两周前写的，但我们现在已经确认他死于这种疾病。
 
-4 ，该策略将对疲惫不堪的卫生服务和医护人员产生重大影响，感染数量的增加必然导致增加住院人数，这将进一步对健康服务产生压力。
+原文链接：[https://www.thegatewaypundit.com/2021/07/13-year-old-michigan-boy-dies-unexpectedly-cardiac-event-aunt-says-3-days-second-covid-shot-heart-enlarged/](https://www.thegatewaypundit.com/2021/07/13-year-old-michigan-boy-dies-unexpectedly-cardiac-event-aunt-says-3-days-second-covid-shot-heart-enlarged/)
 
-5， 由于处境最不利的社区更容易受到 冠状（中共）病毒 的威胁，这些政策将继续对最弱势群体产生影响。
+翻译：洛杉矶盘古农场 – 柯镇恶
+校对：洛杉矶盘古农场 – 心照
+编辑：洛杉矶盘古农场 – 格格巫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-信中指出，任何容忍高感染率的策略都是不道德和不合逻辑的。英国政府需要重新考虑其目前的战略，并采取紧急措施保护公众，包括儿童。我们认为政府正在开始一项危险和不道德的实验，我们敦促它在 2021 年 7 月 19 日暂停重新全部开放的计划。
-
-简评：英国政府相信已经通过疫苗接种计划降低了致死率，但是同时又表示现在面临的未来风险是，要么等到天气转冷对病毒有利时开放，要么再次将一切推迟到明年。在这两难之间，面对着长时间的封锁限制带来的民众的愤怒和经济的萎靡，政府还是决定选择开放。结果会是如何？只有让时间来给出答案。
-
-（本文只代表译者观点，与Gnews无关）
-
-发表：萧亦
-
-新闻链接：[https://www.corriere.it/salute/dermatologia/21\_luglio\_08/cento-scienziati-contro-riaperture-regno-unito-esperimento-pericoloso-immorale-55f34784-dfdc-11eb-b24b-5a8781b79240.shtml](https://www.corriere.it/salute/dermatologia/21_luglio_08/cento-scienziati-contro-riaperture-regno-unito-esperimento-pericoloso-immorale-55f34784-dfdc-11eb-b24b-5a8781b79240.shtml)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

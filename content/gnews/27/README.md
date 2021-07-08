@@ -1,38 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国与资本主义
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1382603/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08133602/1625760375104-edited.jpg)
-中共国领导层对国际金融体系深表怀疑，并希望确保中国共产党在这片土地上保持绝对的权力，不受快速增长的企业巨头的威胁。
-
-最新消息：滴滴本周艰难地吸取了这一教训，但其影响可能要深远的得多。中共国健身应用程序 Keep 已经决定取消其计划在纽约进行的 5 亿美元 IPO。
-
-为什么重要：现代中共国的核心悖论——它是一个超级资本主义的成功故事，同时仍然是共产主义的独裁统治。中共国的大亨们——以及外国股东——应该期待未来会有更多的动荡。
-
-香港和西方大部分地区花了几十年时间相信资本主义的财富是一股将自由和民主带入中共国的潮流，但我们错了。
-
-运作方式：一个幸福、繁荣的社会对中共国有好处——如果市场经济能帮助实现这一点，那就太好了。但当一个人的财富开始成为一个竞争对手的权力基础，或者当外国人开始拥有中共国的财产时，北京将毫不愧疚地强调其首要地位。
-
-底线：当经济遇到政治时，政治总是获胜。
-
-美国公司长期以来一直渴望进入这个世界上最大的市场，但他们也感受到了中共国打压的影响。
-
-推动新闻：从苹果、亚马逊、谷歌和 Facebook 领导的亚洲互联网联盟向香港个人数据隐私专员发送的七页长的痛苦礼貌的信中可以看出科技巨头正在扭曲自己的立场。
-
-运作方式：阿里巴巴和滴滴等公司不直接在纽约证券交易所上市。相反，投资者买入开曼群岛空壳公司，这些空壳公司被理解为对公司利润拥有合同权利。祝你们在中共国法庭上诉讼好运。
-
-一个例外行业：似乎依然欢迎外国人的一个行业就是时尚，如 LVMH 和 Hermès（这两个都是法国的，而不是美国的）这样的巨头，对政治局势没有威胁。
-
-新闻及图片来源：[AXIOS](https://www.axios.com/china-capitalism-financial-system-american-companies-6d12952c-329c-4698-ba69-1eda554b3792.html)
-
-编译： Boxinglady
-
-校对发布：紫橄榄
+## 五角大楼黑名单上的海康威视雇佣前美国官员做说客
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1382839/)
 
 2021年7月8日
 
-本文只代表个人观点，不代表 Gnews 平台
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08180208/0-11.jpeg)
+
+据报道，与中共政府有联系的视频监控公司海康威视正在与一名前美国政府官员进行合作。
+
+海康威视的游说公司—-水星公共事务部（Mercury Public Affairs）今年6月宣布雇用财政部外国资产控制办公室的前制裁政策顾问彼得·库西克（Peter Kucik）。
+
+库西克本月根据《外国代理人登记法》将自己登记为水星公司的 “战略顾问和监管顾问”。他将帮助该公司驾驭最近美国政府针对中共国的行动。
+
+在此之前，水星公司聘用了两名前民主党官员。
+
+**【**[新闻来源](https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,53 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】欧盟已对宝马、奥迪、保时捷和大众处以超过80亿挪威克朗的罚款
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1382659/)
+## 五角大楼黑名单上的中共国监控公司雇佣前美国官员为说客
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1382765/)
 
-译者：香草山文艺部  挪威村民
+2021年7月8日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08163810/IMAGE-2021-07-09-043746.jpg)*前制裁政策顾问彼得·库奇克*
 
+**转《网关专家》7月8日报道，视频监控公司海康威视(Hikvision)的游说公司**水星公共事务(Mercury Public Affairs) 6月份宣布聘请了美国财政部外国资产控制办公室(Office of Foreign Assets Control)前制裁政策顾问彼得·库奇克(Peter Kucik)，库奇克将帮助该公司应对美国政府最近针对中共国的行动。
 
+库西克本月根据《外国代理人登记法》将自己登记为水星公司的 “战略顾问和监管顾问”。记录显示，他的职责包括“战略咨询、游说、公共事务和政府关系，包括接触美国官员。”
 
+**海康威视是中共国政府创建的，也是它的“控股股东”。**
 
+据Axios报道，2020年夏天，美国国防部将海康威视列入了中共军方“拥有或控制”的公司名单。今年6月，拜登总统禁止美国实体投资海康威视和其他数十家中国企业，以应对中共军事工业联合体构成的威胁。该公司还涉嫌与监视新疆维吾尔族清真寺和拘留营有关。
 
-新闻来源：[VG Nå: Nyhetsdøgnet](https://direkte.vg.no/nyhetsdognet/news/eu-milliardbot-til-volkswagen-og-bmw.nqORHCuqn)
+《华尔街日报》5月报道，**“海康威视于2019年向中共国空军出售无人机和其他配件，并在2014年被认为是中共军队的顶级供应商。”**中共国家电视台的视频显示，一名中共国士兵手持带有海康威标志的无人机干扰武器。
 
-新闻链接：[EU-milliardbot til tyske bilprodusenter – VG Nå: Nyhetsdøgnet](https://direkte.vg.no/nyhetsdognet/news/eu-milliardbot-til-volkswagen-og-bmw.nqORHCuqn)
+**库奇克并不是水星公司聘请的第一个美国官员。**今年6月，该公司聘用了前康涅狄格州民主党众议员莫菲特(Toby Moffett)。莫菲特是拜登2008年竞选总统期间的顾问之一。
 
-原文作者：Emil Mogård
+**新闻來源:**[https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/](https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08150304/437-1-sacAulu.jpg)图片来源：Vegard Wivestad Grøtt / NTB
+***以上新闻信息,与Gnews平台无关***
 
-译文：
-
-欧盟已对宝马、奥迪、保时捷和大众处以超过 80 亿挪威克朗的罚款，原因是他们为了避免竞争，共同限制汽油和柴油排放技术的发展。
-
-欧盟竞争管理局的玛格丽特·维斯塔格 (Margrethe Vestager) 表示，尽管这些公司的行为在法律框架之外，但这意味着消费者无法选择购买污染较少的汽车。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
+*采集/撰稿：BT119 发布:星星*
 
 0

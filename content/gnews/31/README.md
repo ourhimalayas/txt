@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼黑名单上的中共国监控公司雇佣前美国官员为说客
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1382765/)
+## 英国议员呼吁抵制北京冬奥会 调查新疆“种族灭绝”暴行
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1382871/)
 
 2021年7月8日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08163810/IMAGE-2021-07-09-043746.jpg)*前制裁政策顾问彼得·库奇克*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08184510/0-13.jpeg)
 
-**转《网关专家》7月8日报道，视频监控公司海康威视(Hikvision)的游说公司**水星公共事务(Mercury Public Affairs) 6月份宣布聘请了美国财政部外国资产控制办公室(Office of Foreign Assets Control)前制裁政策顾问彼得·库奇克(Peter Kucik)，库奇克将帮助该公司应对美国政府最近针对中共国的行动。
+编辑摘要：
 
-库西克本月根据《外国代理人登记法》将自己登记为水星公司的 “战略顾问和监管顾问”。记录显示，他的职责包括“战略咨询、游说、公共事务和政府关系，包括接触美国官员。”
+（德国之声中文网）英国国会外交事务委员会周四提交长达37页的报告，该委员会主席、保守党议员图根哈特（Tom Tugendhat）指出，新疆正在发生“可怕的暴行”，应该定义中共国在新疆的种族灭绝行为。
+该报告敦促约翰逊政府抵制2022年北京冬奥会，采取一切外交手段施压北京。允许国际观察人员进入新疆考察，为受迫害人士开通快速庇护通道。
 
-**海康威视是中共国政府创建的，也是它的“控股股东”。**
+**【**[新闻来源](https://www.dw.com/zh/%E8%8B%B1%E5%9B%BD%E8%AE%AE%E5%91%98%E5%91%BC%E5%90%81%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5-%E8%B0%83%E6%9F%A5%E6%96%B0%E7%96%86%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%E6%9A%B4%E8%A1%8C/a-58206001)**】**
 
-据Axios报道，2020年夏天，美国国防部将海康威视列入了中共军方“拥有或控制”的公司名单。今年6月，拜登总统禁止美国实体投资海康威视和其他数十家中国企业，以应对中共军事工业联合体构成的威胁。该公司还涉嫌与监视新疆维吾尔族清真寺和拘留营有关。
+* * *
 
-《华尔街日报》5月报道，**“海康威视于2019年向中共国空军出售无人机和其他配件，并在2014年被认为是中共军队的顶级供应商。”**中共国家电视台的视频显示，一名中共国士兵手持带有海康威标志的无人机干扰武器。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**库奇克并不是水星公司聘请的第一个美国官员。**今年6月，该公司聘用了前康涅狄格州民主党众议员莫菲特(Toby Moffett)。莫菲特是拜登2008年竞选总统期间的顾问之一。
 
-**新闻來源:**[https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/](https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/)
+编辑：【英国伦敦喜庄园编辑部】
 
-***以上新闻信息,与Gnews平台无关***
-
-*采集/撰稿：BT119 发布:星星*
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
