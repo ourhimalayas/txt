@@ -1,22 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼黑名单上的海康威视雇佣前美国官员做说客
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1382839/)
+## 美国警告说，中共国正考虑发展新型核武技术
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1383213/)
 
 2021年7月8日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08180208/0-11.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08194758/0-29.png)
 
-据报道，与中共政府有联系的视频监控公司海康威视正在与一名前美国政府官员进行合作。
+编辑摘要：
 
-海康威视的游说公司—-水星公共事务部（Mercury Public Affairs）今年6月宣布雇用财政部外国资产控制办公室的前制裁政策顾问彼得·库西克（Peter Kucik）。
+美国常驻日内瓦裁军会议特使伍德（Robert Wood）7月8日表示，中共国“正在考虑”研制海上和空中的新型自主核武器系统。中共国对俄罗斯正在研制的核动力水下无人机以及核动力巡航导弹感兴趣，而美国没有这类武器。如果中共发展此类武器，可能会改变战略稳定的环境。
 
-库西克本月根据《外国代理人登记法》将自己登记为水星公司的 “战略顾问和监管顾问”。他将帮助该公司驾驭最近美国政府针对中共国的行动。
+中共国在核武器系统的数量和质量方面一直处于上升轨迹，他们正寻求发展类似于俄罗斯研究的某些核动力投掷系统。俄罗斯发展此类武器是为了抗衡美国对弹道导弹的防御。美国的导弹防御系统是为了保护美国国土免受朝鲜的导弹攻击，而不是为了防御俄罗斯和中国的导弹。伍德表示，在中共国坐下来与美国进行双边谈判之前，灾难性武器竞赛的危险将会持续增加。
 
-在此之前，水星公司聘用了两名前民主党官员。
-
-**【**[新闻来源](https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/)**】**
+**【**[新闻来源](https://www.voachinese.com/a/us-warns-about-china-nuclear-new-technologies-20210708/5958684.html)**】**
 
 * * *
 

@@ -1,32 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 六个Covid-19高感染率国家中五个依赖中共国疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1382848/)
+## 中共下作捣乱 “冒牌Gettr”鬼祟现身
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1383206/)
 
-2021年7月8日
+#### 撰稿：文斗
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08181217/0-12.jpeg)
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08212033/1-60.jpg)
+8日，细心的战友发现，在谷歌应用商店里悄然出现一款与“GETTR”外观几乎完全一样的“假Gettr”。
 
-编辑摘要：
+这款“假Gettr”外观完全照抄“GETTR”，唯一细微区别是图标上的火焰方向朝向左边，与正版Gettr(朝右)相反。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08212411/2-22.jpg)
+“假Gettr”的开发者信息是“DevApp31MP. ”，除了一个邮箱“[\[email protected\]](/cdn-cgi/l/email-protection#a8eccddee9d8d89b99e8c3c7c7cac7c7c586cbc7c5)org” ，没有任何其他可查询信息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08211921/3-19.jpg)
+这款“假Gettr”7月2日发布，截止写稿时(7月9日)下载量显示已经“超过10次”，表现符合预期：)。而正版GETTR下载量在7月5日就已经超过50万次。
 
-美国财经电视网CNBC的一项分析显示，在疫苗接种率和Covid-19感染率都很高的六个国家中，除了英国，有五个国家依赖中共国疫苗，分别是：阿拉伯联合酋长国、塞舌尔、蒙古、乌拉圭和智利。中共国疫苗的有效性受到质疑，而且缺乏对更易传播的德尔塔（Delta）变体的保护数据。
+正版“GETTR”7月4日正式上线，是世界人民从此信息独立于科技巨头公司的里程碑事件。老百姓不再因表达政治观点而被大科技公司封杀账号噤声，在全世界掀起了“无封杀文化”热潮。
 
-专家表示各国不应停止使用中共国疫苗。中共国药和科兴疫苗是世卫组织批准使用的用于紧急用途的疫苗，主要针对中低收入的发展中国家，通过减弱或“灭活”的病毒来触发免疫反应，易于制造。
+在正义的前进道路上，总有些恶人想要制造障碍与混乱。毫无疑问，这个“假Gettr”背后必然是中共黑手操纵。
 
-世卫组织表示，国药疫苗对有症状的Covid-19感染的有效性为79%，但其在某些群体（例如 60 岁及以上）中的有效性尚不清楚。科兴疫苗在不同国家和地区所做的试验显示出50%到80%以上的不同有效率。
-
-**【**[新闻来源](https://www.voachinese.com/a/six-vaccinated-countries-have-high-covid-infection-rates-five-of-them-rely-on-chinese-vaccines/5957966.html)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+在谷歌应用商店里搜索“GETTR”，正常情况下，这款冒牌货不会出现在首页，需要往下拉，在“显示更多”里才能发现。战友们如果发现这款“假GETTR”，请立即点击页面右上角“三点图标”举报。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08211905/4-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08211915/5-10.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1

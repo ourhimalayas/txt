@@ -1,58 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1381784/)
+## 【币圈】-数字货币动态- 2021.07.08
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1381878/)
 
-- 作者：土饭团(文团)
+*喜马拉雅华盛顿DC 编辑：aQ*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08055645/708.jpg)
+## **每日一问**
+
+*H交易所指的是哪一家？*
+
+## **喜马拉雅Coin要闻**
+
+- 联盟答疑7月6日消息，KYC过后，VPN节点可以换，只要能登入HEX网站即可。
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+## **新闻动态**
 
-**西班牙2021年7月08日电/西喜社——**
-
-您若想了解全文报导内容，请点击标题链接
-
-1[.参议员Marshall在调查COVID-19的来源时抨击中共国:公开羞辱必须有结果](https://www.foxnews.com/politics/sen-marshall-calls-on-us-other-countries-to-shame-china-for-covid-19)
-
-福克斯新闻7月5日电，康涅狄格州参议员Roger Marshall在 “Sunday Morning Futures”节目中认为，美国和其他国家需要为冠状病毒大流行“羞辱”中共国，根据约翰霍普金斯大学汇编的数据，这种病毒已经在全世界造成近四百万人死亡，并破坏了全球经济。
-
-2.[共和党人在中共国官方媒体嘲笑7月4日暴力事件后进行反击](https://www.foxnews.com/politics/republicans-respond-china-state-media-july-4th-gun-violence)
-
-福克斯新闻7月6日电，德克萨斯州共和党议员Michael McCaul称向所有人展示“中国共产党是多么粗暴和暴力，他们的宣传机构正在庆祝450名美国人在7月4日假期期间的死亡。”“中共目前正在对他们国家的少数族裔和宗教少数群体进行种族灭绝，并对香港的和平抗议者进行残酷镇压，他们只是在呼吁自由。”
-
-3.[美国警告说，中共国试图通过外交冻结“将澳大利亚踢出群](https://www.theguardian.com/australia-news/2021/jul/07/china-trying-to-cut-australia-out-of-the-herd-with-diplomatic-freeze-us-warns)“
-
-英国卫报7月6日电，Joe Biden的一位高级顾问Kurt Campbell表示，中共国正试图“将澳大利亚排除在外”，但外交冻结和针对澳大利亚出口商的行动只会促使堪培拉加深与华盛顿的关系。
-
-4.[布林肯会见维吾尔族前被拘留者](https://www.politico.com/news/2021/07/06/blinken-china-human-rights-uyghurs-498422)
-
-POLITICO 7月6日电，美国国务卿Antony Blinken与被拘留在中国西北部新疆地区集中营的维吾尔穆斯林会面，听取他们的经历，并就如何最好地向中共国施压以停止在那里进行镇压寻求建议。美国警告称，将对中共国实施新的制裁。
-
-5.[华盛顿邮报、纽约时报、华尔街日报等美国媒体从中共国收到数百万美元](https://www.opindia.com/2021/07/us-media-washington-post-nyt-wall-street-journal-etc-have-been-receiving-millions-of-dollars-from-china-report/)
-
-Opindia 7月5日电，为了主导全球叙事，中共国的宣传机构《中国日报》在过去六个月中向美国知名报纸和杂志支付了数百万美元的资金。被认为是试图购买媒体影响力，这些披露是由一份独立的分析报告援引提交给美国司法部的文件作出的。
-
-6.[中共国是美国人口贩卖报告中最糟糕的国家](https://www.aninews.in/news/world/asia/china-among-worst-countries-in-us-human-trafficking-report20210704191442/)
-
-ANI 7月4日电，美国2021年人口贩卖（TIP）报告显示，在对新疆和西藏的维吾尔族和其他少数民族的镇压和强迫劳动越来越多之后，中共国是人口贩卖最严重的国家之一。中共国利用监控技术和捏造的刑事指控在多达1,200个国营拘留营中绑架和拘留了超过100万名穆斯林，其中包括维吾尔族、回族、哈萨克族等。
-
-7.[美国国会议员呼吁拜登宣布西藏为“独立国家”](https://www.aninews.in/news/world/asia/us-congressman-calls-on-biden-to-declare-tibet-an-independent-country20210705193200/)
-
-ANI 7月5日电，一位来自宾夕法尼亚州的美国国会议员提出一项决议，呼吁美国总统Joe Biden宣布西藏为独立国家。美国必须拒绝“中国共产党军队对西藏长达70年的非法占领”，并声称美国将向“长期受苦的人民提供救济，并加强其作为全球人权的坚定捍卫者的声誉。”
-
-审核：蚂蚁兄弟； 校对：阿伯塔； 发稿：Nuevo唐人
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+1. 截至7日22点，资金净流入排名前三为：ETH（+7784.3万美元）、ENJ（+1306.77万美元）、MANA（+793.66万美元）；资金净流出排名前三为：BTC（-4.16亿美元）、DOGE（-8468.97万美元）、BNB（-4258.75万美元）。
+2. OKEx数据显示，截至7日22点，以太坊上DeFi协议总锁仓量为788亿美元。其中借贷板块锁仓量300亿美元，占比38.3%；交易板块锁仓量240亿美元，占比30.54%；理财板块锁仓量119亿美元，占比15.19%。
+3. 金融时报报道，有分析人士称，Cathie Wood旗下方舟投资公司已经为其比特币ETF的费用设定了标准。披露信息显示，拟议的ETF将向发起人、总部位于瑞士的交易所交易产品提供商21Shares支付95个基点的统一费用。而21Shares将从该费用中支付所有运营费用。分析师们表示，ETF的费用率将可能与赞助商的费用相匹配。
+4. Nansen首席执行官Alex Svanevik在7月7日发推表示，目前质押流动性解决方案Lido Finance质押在ETH 2的ETH数量达596,224枚，成为ETH2.0最大存款方。
+5. U.today消息，Ripple首席技术官Jed McCaleb从Ripple Labs收到了超过2.91亿枚XRP，并在今天一次卖出了9,859,906枚XRP，目前Jed McCaleb的钱包中还剩下631,276,190枚XRP。
+6. 官方消息，基于Layer 2的LP友好型借贷协议Amy Finance将在Arbitrum集成Chainlink喂价，为用户提供流畅的交易体验，并为其资金提供强有力的保护。这一集成将确保Amy Finance的清算机制，使用户能够获得低成本贷款和有效的保证金交易，并帮助贷款人避免因抵押不足而被清算。
+7. Blocktempo报道，持FINMA银行营业许可的瑞士加密银行Sygnum宣布推出以太坊2.0质押服务，成为全球银行首例。
+8. Blocktempo报道，德国网银N26执行长Valentin Stalf在内部会议正式宣布，今年底其用户便可以开始体验加密货币交易功能。N26是欧洲最大的数字银行之一，其支持者包括Paypal共同创办人Peter Thiel的Valar Ventures、腾讯和新加坡主权财富基金GIC。
+9. Blocktempo报道，受比特币暴跌拖累，特斯拉将面临所谓的资产减损，下季账面恐被迫认列1亿美元亏损。
+10. Blocktempo报道，美图公布上半年加密货币投资盈亏。截至6月30日，美图购入的比特币其公允价值减少约1,730万美元，会作为中期财报里的减损损失。同时，以太币增值1,470万美元。
+11. Coinnounce消息，牙买加央行（BOJ）将从8月开始在各金融机构试点推广其央行数字货币（CBDC）。牙买加央行行长Richard Byles表示，目前正在研究该系统的所有技术层面，并在银行里设置了一个沙盒以持有整个基础设施。
+12. CNN消息，目前白宫正在敲定打击勒索软件黑客组织REvil的战略，它涉及与五眼联盟（美国、英国、加拿大、澳大利亚、新西兰）的国家合作，国家安全委员会计划在加强网络安全的同时禁止相关公司支付加密货币赎金，外国加密货币交易所需要向政府报告可疑交易。
+13. 链新闻报道，南韩首尔海关7月7日查获1.7兆韩元的非法外汇交易，而涉案的33位韩国民众竟是因为对交易所的泡菜溢价进行套利而被冠上罪名，并追溯到2017年的加密货币交易活动。
+14. ABMedia消息，鉴于监管机构接连警告币安，其创办人赵长鹏首发公开信表示，保护用户至上，明确法规为成长关键。
+15. Coindesk消息，美国监管机构提交的文件显示，美国证券交易委员会 (SEC) 已延长对天桥资本（SkyBridge Capital ）的比特币交易所交易基金申请的审查。天桥资本于5月6日提交了一份申请，以上市和交易 First Trust SkyBridge Bitcoin ETF Trust 的股票，SEC 已将最初的 45 天审查期延长至 8 月 25 日。
+16. Cointelegraph消息，美国证券交易委员会（SEC） 与美国 BitConnect 发起人达成数百万美元的和解协议，之前他们被指控推广数十亿美元的加密庞氏骗局 BitConnect。
+17. 21财经消息，港交所前行政总裁李小加表示，中国香港、中国内地，乃至全世界都即将面对第四次的金融浪潮——“无现金时代”。无现金时代只是一个便于理解的通俗概念，而更加准确的形容应该是数字化、互联网时代，当中数字货币、分布式技术（distributive technology）将扮演重要角色。
+18. CoinDesk消息，币安7月7日宣布聘请Jonathan Farnell担任合规总监，以帮助开发其监管产品领域，包括受监管的电子货币和加密资产服务。据了解，在Farnell加入Binance之前曾担任eToro Money UK的合规总监，以及eToroX的董事会成员和合规主管。
+19. CryptoNews消息，币安创始人兼首席执行官赵长鹏表示，公司虚心欢迎监管机构和更多有能力的人才和经验丰富的顾问提供建设性指导。此前消息，赵长鹏表示，更多的监管是积极的迹象。
 
 
 
 
+*编辑：aQ
+发布：文顾*
 
-
-
-
-
-
-
-+1
++2

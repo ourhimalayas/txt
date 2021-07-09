@@ -1,21 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国学生运动组织“美国转折点 ”发起“禁止强迫接种疫苗”运动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1382817/)
+## 美称中共国无法取得光刻机，发展芯片产业如天方夜谭
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1382970/)
 
 2021年7月8日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08180156/IMAGE-2021-07-09-060133.jpg)圖片來源:Human Events
-转《人类活动》（Human Events)7月8日报道，美国知名的学生运动组织“美国转折点”的创始人兼总裁查理·柯克(Charlie Kirk)宣布，该组织将发起一场运动，反对校园强制接种疫苗。“禁止强迫接种疫苗”活动将在其超过2500所高中和大学分会网络中开展，帮助学生在接种CCP病毒疫苗时做自由决定。
 
-柯克在一份声明中说:“我不反对接种CCP病毒疫苗，也不支持接种CCP病毒疫苗——我是疫苗不可知论者。”“但我100%反对强制接种CCP病毒疫苗。从本质上说，这个问题与疫苗无关。这关乎自由和信息。不应该强迫任何人违背自己的意愿接种疫苗，也不应该因为不接种疫苗而阻碍人们参与社会活动。大学强迫国内风险最低的人群——学生——接种还在实验阶段的疫苗，仅仅是为了获得学习资格，这是不可接受的。这是一个错误的选择，现在是时候有人站在美国学生的一边，为他们的选择自由而战了。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08195431/0-%E5%85%89%E5%88%BB%E6%9C%BA.png)
 
-该活动将包括分会聚会、圆桌会议和一场数字运动，以教育和鼓励当地卫生保健官员、教师、行政人员、学生和家长捍卫自由选择权。
+编辑摘要：
 
-**新闻來源:**[https://humanevents.com/2021/07/08/charlie-kirk-turning-point-usa-launch-no-forced-vax-campaign/](https://humanevents.com/2021/07/08/charlie-kirk-turning-point-usa-launch-no-forced-vax-campaign/)
+《纽约时报》近日引述美国专家指出，中共国无法取得荷兰半导体设备公司阿斯麦（ASML）光刻机，要创建自给自足的半导体产业有如天方夜谭。
 
-*以上新闻信息,不代表Gnews平台*
+光刻机被公认为生产最先进芯片的必要工具，具备地缘政治的影响力。专家估计中国中国至少要十年才能制造类似机器，创建自给自足的芯片供应链需要至少1万亿美元。前总统特朗普政府2019年成功游说荷兰政府禁售此设备给中国，无迹象显示拜登政府会改变。
 
-*采集/撰稿：BT119 发布:星星*
+**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210708-%E7%BE%8E%E5%9B%BD%E4%B8%93%E5%AE%B6%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%97%A0%E6%B3%95%E5%8F%96%E5%BE%97%E8%8D%B7%E5%85%B0%E5%85%89%E5%88%BB%E6%9C%BA%E6%83%B3%E5%8F%91%E5%B1%95%E8%8A%AF%E7%89%87%E4%BA%A7%E4%B8%9A%E6%9C%89%E5%A6%82%E5%A4%A9%E6%96%B9%E5%A4%9C%E8%B0%AD)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

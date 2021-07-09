@@ -1,28 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼黑名单上的中共国监控公司雇佣前美国官员为说客
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1382765/)
+## 美国学生运动组织“美国转折点 ”发起“禁止强迫接种疫苗”运动
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1382817/)
 
 2021年7月8日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08180156/IMAGE-2021-07-09-060133.jpg)圖片來源:Human Events
+转《人类活动》（Human Events)7月8日报道，美国知名的学生运动组织“美国转折点”的创始人兼总裁查理·柯克(Charlie Kirk)宣布，该组织将发起一场运动，反对校园强制接种疫苗。“禁止强迫接种疫苗”活动将在其超过2500所高中和大学分会网络中开展，帮助学生在接种CCP病毒疫苗时做自由决定。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08163810/IMAGE-2021-07-09-043746.jpg)*前制裁政策顾问彼得·库奇克*
+柯克在一份声明中说:“我不反对接种CCP病毒疫苗，也不支持接种CCP病毒疫苗——我是疫苗不可知论者。”“但我100%反对强制接种CCP病毒疫苗。从本质上说，这个问题与疫苗无关。这关乎自由和信息。不应该强迫任何人违背自己的意愿接种疫苗，也不应该因为不接种疫苗而阻碍人们参与社会活动。大学强迫国内风险最低的人群——学生——接种还在实验阶段的疫苗，仅仅是为了获得学习资格，这是不可接受的。这是一个错误的选择，现在是时候有人站在美国学生的一边，为他们的选择自由而战了。”
 
-**转《网关专家》7月8日报道，视频监控公司海康威视(Hikvision)的游说公司**水星公共事务(Mercury Public Affairs) 6月份宣布聘请了美国财政部外国资产控制办公室(Office of Foreign Assets Control)前制裁政策顾问彼得·库奇克(Peter Kucik)，库奇克将帮助该公司应对美国政府最近针对中共国的行动。
+该活动将包括分会聚会、圆桌会议和一场数字运动，以教育和鼓励当地卫生保健官员、教师、行政人员、学生和家长捍卫自由选择权。
 
-库西克本月根据《外国代理人登记法》将自己登记为水星公司的 “战略顾问和监管顾问”。记录显示，他的职责包括“战略咨询、游说、公共事务和政府关系，包括接触美国官员。”
+**新闻來源:**[https://humanevents.com/2021/07/08/charlie-kirk-turning-point-usa-launch-no-forced-vax-campaign/](https://humanevents.com/2021/07/08/charlie-kirk-turning-point-usa-launch-no-forced-vax-campaign/)
 
-**海康威视是中共国政府创建的，也是它的“控股股东”。**
-
-据Axios报道，2020年夏天，美国国防部将海康威视列入了中共军方“拥有或控制”的公司名单。今年6月，拜登总统禁止美国实体投资海康威视和其他数十家中国企业，以应对中共军事工业联合体构成的威胁。该公司还涉嫌与监视新疆维吾尔族清真寺和拘留营有关。
-
-《华尔街日报》5月报道，**“海康威视于2019年向中共国空军出售无人机和其他配件，并在2014年被认为是中共军队的顶级供应商。”**中共国家电视台的视频显示，一名中共国士兵手持带有海康威标志的无人机干扰武器。
-
-**库奇克并不是水星公司聘请的第一个美国官员。**今年6月，该公司聘用了前康涅狄格州民主党众议员莫菲特(Toby Moffett)。莫菲特是拜登2008年竞选总统期间的顾问之一。
-
-**新闻來源:**[https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/](https://www.thegatewaypundit.com/2021/07/chinese-surveillance-firm-pentagon-blacklist-hires-ex-us-official-lobbyist/)
-
-***以上新闻信息,与Gnews平台无关***
+*以上新闻信息,不代表Gnews平台*
 
 *采集/撰稿：BT119 发布:星星*
 
