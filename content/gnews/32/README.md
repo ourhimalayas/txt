@@ -1,20 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美称中共国无法取得光刻机，发展芯片产业如天方夜谭
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1382970/)
+## 布林肯就中共抓捕维权律师的“709镇压”六周年发表声明
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1383761/)
 
-2021年7月8日
+2021年7月9日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08195431/0-%E5%85%89%E5%88%BB%E6%9C%BA.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09013519/maxresdefault-1-1.jpg)
 
-编辑摘要：
+美国国务卿布林肯在中国时间7月9日，也就是中共当局对维权律师展开的“709镇压”事件的六周年之际发表声明，呼吁中国政府释放那些被拘押或监禁的人，确保他们的家人不受骚扰并恢复那些被取消律师资格的人的律师身份。美国将永远支持那些寻求建立一个更加公正、稳定和繁荣的社会的勇敢的人。
 
-《纽约时报》近日引述美国专家指出，中共国无法取得荷兰半导体设备公司阿斯麦（ASML）光刻机，要创建自给自足的半导体产业有如天方夜谭。
-
-光刻机被公认为生产最先进芯片的必要工具，具备地缘政治的影响力。专家估计中国中国至少要十年才能制造类似机器，创建自给自足的芯片供应链需要至少1万亿美元。前总统特朗普政府2019年成功游说荷兰政府禁售此设备给中国，无迹象显示拜登政府会改变。
-
-**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210708-%E7%BE%8E%E5%9B%BD%E4%B8%93%E5%AE%B6%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%97%A0%E6%B3%95%E5%8F%96%E5%BE%97%E8%8D%B7%E5%85%B0%E5%85%89%E5%88%BB%E6%9C%BA%E6%83%B3%E5%8F%91%E5%B1%95%E8%8A%AF%E7%89%87%E4%BA%A7%E4%B8%9A%E6%9C%89%E5%A6%82%E5%A4%A9%E6%96%B9%E5%A4%9C%E8%B0%AD)**】**
+**【新闻来源】**
 
 * * *
 
@@ -24,7 +20,5 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
-
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
 0

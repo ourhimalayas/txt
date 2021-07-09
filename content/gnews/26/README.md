@@ -1,27 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共下作捣乱 “冒牌Gettr”鬼祟现身
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1383206/)
+## 当“战狼”主导外交声音（下）：赵立坚代表的中国愿景
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1383809/)
 
-#### 撰稿：文斗
+2021年7月9日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09021646/Bild1-14.jpg)
+在习近平的领导下，“民族复兴”这个目标已成为界定中国政治的叙事，是整个国家和党恢复中国曾经的伟大的努力总和，要求中国强大且坚定，以防止国家被那些试图让中国软弱、驯服和分裂的外来势力欺凌。
 
-#### 责编：胡天
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08212033/1-60.jpg)
-8日，细心的战友发现，在谷歌应用商店里悄然出现一款与“GETTR”外观几乎完全一样的“假Gettr”。
+《战狼》描述了日益崛起的中国与衰落腐败的美帝国较量的系列电影，成为习近平的新型外交官的转喻，习近平敦促这些外交官为民族复兴的事业努力战斗。在国外贯彻中国愿景的外交官们听起来越来越像赵立坚，这是他的表达风格已从内部重塑了中共国外交政策当权者的证明。
 
-这款“假Gettr”外观完全照抄“GETTR”，唯一细微区别是图标上的火焰方向朝向左边，与正版Gettr(朝右)相反。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08212411/2-22.jpg)
-“假Gettr”的开发者信息是“DevApp31MP. ”，除了一个邮箱“[\[email protected\]](/cdn-cgi/l/email-protection#a8eccddee9d8d89b99e8c3c7c7cac7c7c586cbc7c5)org” ，没有任何其他可查询信息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08211921/3-19.jpg)
-这款“假Gettr”7月2日发布，截止写稿时(7月9日)下载量显示已经“超过10次”，表现符合预期：)。而正版GETTR下载量在7月5日就已经超过50万次。
+这里有一个共同的主题，就是西方虚伪、西方衰落、推崇中国模式。社交媒体上咄咄逼人的存在并不是为了平息批评，而是中国外交部门与政府宣传和信息机器呈现的一个统一战线，意在表明，在中国利益和愿望的问题上，没有商讨的余地，或者说，西方不再有否决权。他们向国内和国外听众传达的信息是一样的，中国不会任人摆布，中国不再软弱。
 
-正版“GETTR”7月4日正式上线，是世界人民从此信息独立于科技巨头公司的里程碑事件。老百姓不再因表达政治观点而被大科技公司封杀账号噤声，在全世界掀起了“无封杀文化”热潮。
+而根据皮尤研究中心(Pew Research Center)去年10月发布的一项针对14个欧洲发达国家的调查数据，民众在过去一年对中国的负面看法飙升，14个国家中有九个达到历史新高。调查结果证明了许多人已经提出的观点：“战狼”外交的兴起，可能弄巧成拙，浪费掉给中国带来的机会。“战狼”并未能为中国赢得任何朋友或善意，国内知名学者和前外交官也纷纷反对强硬派。
 
-在正义的前进道路上，总有些恶人想要制造障碍与混乱。毫无疑问，这个“假Gettr”背后必然是中共黑手操纵。
+赵立坚的推文为了解中国希望培养什么样的全球受众提供了一个窗口。凭借“战狼”外交，中国将自己定位为非西方世界的领导者——并打赌这一同盟的其他成员也同样渴望看到一个摆脱美国霸权影响的世界。疾驰而下的中国像一列毫不妥协、绝不退让的火车，已经无法改变方向。
 
-在谷歌应用商店里搜索“GETTR”，正常情况下，这款冒牌货不会出现在首页，需要往下拉，在“显示更多”里才能发现。战友们如果发现这款“假GETTR”，请立即点击页面右上角“三点图标”举报。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08211905/4-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08211915/5-10.jpg)
+**【[新闻来源](https://cn.nytimes.com/china/20210709/china-diplomacy-twitter/zh-hant/?utm_source=RSS)】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-+1
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0
