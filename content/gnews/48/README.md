@@ -1,56 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】提升国防能力，澳洲购买美支奴干新型直升机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1383751/)
+## 印度政府表示 Twitter 在印度失去了法律保护
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1384223/)
 
-#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+- 作者：Jenny Ball
 
-#### 翻译：小红帽
 
-#### 校对/编辑：文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09012312/Picture1-24.png)
-图片：AVIATION
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**译评：**
+**西班牙2021年7月9日电/西喜社**
 
-南半球大国澳大利亚地广人稀、资源丰富，长期以来被誉为“骑在羊背上的国家”。依托美军在太平洋地区的整体防务，澳洲的国防投入长期处于低位。然而，近年来澳洲国防开支不断增长，预计将从 2020 年的 309 亿美元增加到2025年的395亿美元[1]。首相莫里森表示，“未来十年，我们将继续在澳大利亚各地投资超过 2700 亿美元的国防能力，确保我们拥有一支有能力的国防力量，以应对不断变化的全球环境”[2]。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09071126/Twitter_image_1_810_500_75_s_c1.png)图片来源：lifesitenews.com
 
-澳洲秣马厉兵，当然是针对中共国在西太平洋地区的战略锋芒。此篇澳媒报道，澳洲国防军再购入四架美军新型支奴干重型直升机，也是澳洲加强国防能力中的一环，未来澳美军事合作更加密切，中共国注定无法染指西太平洋。
+印度政府在一份法庭文件中表示，Twitter 现在对该公司数百万印度用户发布的内容负有法律责任。
 
-**译文：**
+印度新德里，2021 年 7 月 7 日（生活新闻）——全球大型科技平台的法律问题不断升级，Twitter 在印度失去了关键的责任保护。
 
-在与主要军事强国——中共国的紧张局势加剧之际，澳大利亚国防军斥资 5.95 亿澳元购买了四架美国新型直升机，此举表明澳美军事关系日益密切。
+在周一的法庭文件中，印度 IT 部表示 Twitter 拒绝遵守。
 
-国防部长彼得·达顿 (Peter Dutton) 发言人表示，购买四架美国制造的支奴干（Chinook）重型直升机，“充分体现了澳大利亚与美国的良好战略合作关系”。
+5 月生效的 IT 指南意味着，该公司现在对用户内容负有法律责任。Twitter 在其最大的新兴市场之一的印度拥有超过 1800 万用户。
 
-支奴干CH-47F是澳大利亚国防军最大的直升机，曾被澳大利亚军队用于在伊拉克和阿富汗运送部队、投放火炮和向战场运送补给。
+新指南包括，要求大型社交媒体公司迅速删除被标记的内容，并聘请官员与执法部门沟通并解决用户的不满。 政府向德里高等法院提交的法庭文件称，Twitter 没有根据 IT 规则任命官员，其中包括其他违规行为。
 
-在首批两架直升机抵达昆州汤斯维尔空军基地时，让澳大利亚国防军航空能力得到了提升，对此达顿先生高度评价。
+电子和信息技术部的萨摩耶·巴兰( N. Samaya Balan )写道 ,“本人声明，根据第 79(1) 条授予中介人的豁免是一种有条件的豁免，前提是中介人满足第 79(2) 条和第 79(3) 条规定的条件。 正如第 7 条规定的那样，不遵守 2021 年 IT 规则将导致 2000 年 IT 法案第 79(1) 条的规定不适用于此类中介”。
 
-“澳洲通过与美国密切合作，通过简化流程并快速提升国防能力，莫里森政府正在履行其对国防战略目标的承诺，”达顿先生说。
+据 TechCrunch 报道，印度警方已经对 Twitter 或该平台的印度官员提起了五起诉讼。 上个月，印度警方传唤了 Twitter印度的负责人，指责该公司没有采取足够措施阻止一段病毒视频，据称，该视频误导了观众，并加剧了印度教徒和穆斯林之间的紧张关系。
 
-在强调澳美传统关系的同时，澳洲与世界上另一个主要军事强国中共国之间的关系也日益紧张。
+twitter近几个月来清除了众多保守派人物和 《生活新闻》等媒体，印度对社交媒体的镇压，“对言论自由构成了潜在威胁”。 唐纳德·川普总统和共和党立法者，包括美国密苏里州共和党参议员乔什·霍利，试图取消对美国大型科技公司的责任保护，以应对对美国用户的选择性审查。
 
-今年 5 月，中共国国防部表示，达顿先生关于台湾海峡爆发战争威胁的警告是不负责任的，（该言论）煽动了澳大利亚和中共国之间的对抗。
+据路透社周二报道，除了在印度出问题外，Twitter 在法国还面临新的法律压力，法国法院命令该公司解释将如何限制“仇恨言论”。在左翼团体提起诉讼后，Twitter 将有两个月的时间来详细说明计划用于压制“仇恨”的内容。
 
-今年 6 月，中共国对澳大利亚葡萄酒出口征收高达 218% 的关税后，澳大利亚向世界贸易组织正式提出申诉。
+在英国，今年早些时候提出的一项法案，将对不删除被视为“种族主义虐待”的材料以及儿童性虐待内容，或对个人的威胁的大型科技平台处以巨额罚款。英国政府表示，该立法将禁止对政治观点的歧视。
 
-在 2021 年的澳洲政府预算中，军事装备、设施和技术项目的支出水平达到了创纪录的水平，比上一年增加了 13%。
+Twitter 在 6 月份因审查尼日利亚总统的推文而被禁止进入尼日利亚后，至今仍然被禁止进入尼日利亚。Twitter针对禁令提起的诉讼正在审理中。
 
-参考链接：
+**评论：翻云覆雨的大科技公司,你们作的恶，已经不仅仅是封堵事实真相。在中共向全世界发起的生化武器超限战中，你们完全充当了中共灭绝人类的主力。现在上百万死亡的无辜生命，就是对你们罪恶最有力的无声证明。**
 
-[1、Australia’s defense budget to maintain upward](https://www.globaldata.com/australias-defense-budget-maintain-upward-swing-2020-25-nullify-china-threat-indo-pacific-region-says-globaldata/)
+**这些靠着西方自由民主制度发展起来的大科技公司们，却在用发展壮大的技术对付孕育了你们生存的制度。别忘了，这个制度是以法治为保障的，你们就尝尝法律的威力吧。爆料革命信奉依法灭共，跟随中共的一切势力，都将最终受到法律的制裁！**
 
-[2、MAJOR INVESTMENT IN NORTHERN TERRITORY DEFENCE BASES](https://www.pm.gov.au/media/major-investment-northern-territory-defence-bases)
+素材来源：[www.lifesitenews.com](https://www.lifesitenews.com/news/twitter-loses-legal-protections-in-india-govt-says)
 
-3、[Australian Defence Force buys new military choppers | Daily Telegraph](https://www.dailytelegraph.com.au/breaking-news/australia-buys-new-military-choppers/news-story/12af88f6b70084279f218b2209ed4023)
+素材： Jenny Ball；审核：文乐； 校对：阿伯塔； 发稿：信心的选择
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-+1
++2

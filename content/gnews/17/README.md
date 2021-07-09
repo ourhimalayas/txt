@@ -1,22 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【实时推文】美国前国务卿蓬佩奥 9/07/2021
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1383788/)
+## 【实时推文】全球网络安全故障模拟演习
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1384068/)
 
-**翻译:ZZB104 【秘翻即时新闻播报组】**
+**翻译:ZZB104【秘翻即时新闻播报组】**
 
-**美国前国务卿蓬佩奥7月9日在推特发文表示:**
+**Disclose.tv 7月9日在推特发文表示：**
 
-这届政府部门必须就中共向全世界散播武汉病毒迅速做出追责中共的行动。中共必须为他们的谎言付出代价。
-
-
-
-> This Administration must act fast in holding the Chinese Communist Party accountable for their role in spreading the Wuhan virus. They lied, and there must be repercussions.
-> — Mike Pompeo (@mikepompeo) [July 8, 2021](https://twitter.com/mikepompeo/status/1413183384080330752?ref_src=twsrc%5Etfw)
+重大提醒-世界经济论坛(World Economic Forum)创始人兼执行主席克劳斯·施瓦布 (Klaus Schwab)將於7 月 9 日开始进行Cyber Polygon 全球网络安全故障模拟演习。
 
 
 
-*採集/撰稿：ZZB104 发布:星星*
+> REMINDER – "Cyber Polygon" – a simulation exercise of a global cyber pandemic by Klaus Schwab's World Economic Forum starts tomorrow, July 9.[pic.twitter.com/TeCqeJJ8aM](https://t.co/TeCqeJJ8aM)
+> — Disclose.tv 🚨 (@disclosetv) [July 8, 2021](https://twitter.com/disclosetv/status/1413237244165599241?ref_src=twsrc%5Etfw)
 
-0
+
+
+*採集/撰稿:ZZB104 审稿:Adela(明澈) 发布:星星*
+
++1

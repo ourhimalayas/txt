@@ -1,13 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年07月08日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1384026/)
+## 中共战狼刚骂完美国和日本，转头开始骂欧盟
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1385029/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09044117/image0-27-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09044159/image1-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09044501/image2-scaled.jpg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+撰稿：待命（文晓）
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09110955/image-124.png)
+[图片来源](https://www.rfa.org/mandarin/yataibaodao/huanjing/cc-04162020105536.html)
+
+日本一般社団法人共同通信社消息
+
+因日本副首相麻生6日说中共有称霸世界的野心，台湾之后就是冲绳，7月7日，外交部战狼赵立坚遂对日本迅速开骂。同日，又因美国拒签500名中共国留学生开骂美国。8日，又因日本政府新编的网络安全草案中指出的“中共国有可能进行网络攻击”，由外交部战狼汪文斌接着骂日本。9日，再开足马力开骂欧盟，详情如下：
+
+7月8日，欧洲议会以赞成票多数通过一项决议，呼吁欧盟委员会成员国和其他国家拒绝邀请政府代表和外交官参加明年2月的北京冬奥会，除非中共国改善香港和新疆维吾尔自治区的人权状况。对此，中共国表示反对。该决议不受法律约束，但它象征着欧盟和中共国之间关系的恶化。该决议以最强烈的措辞谴责了香港报纸，苹果日报的被迫停刊。
+
+中共国驻欧盟代表处，在8日发表的一份声明中说：我们坚决反对把体育政治化。这是极其不负责任的行为，这将损害所有国家的运动员的利益。
+
+[信息来源](https://nordot.app/786215206520700928?c=39546741839462401)
+
 0

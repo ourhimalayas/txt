@@ -1,43 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美内布拉斯加州定七月为共产主义受害者纪念月
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1382618/)
+## 【澳洲热点】提升国防能力，澳洲购买美支奴干新型直升机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1383751/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08133124/N.png)freetelegraph.com
-《福克斯新闻》发文，题目“内布拉斯加州（Nebraska）州长里克茨谴责中共，以宣布共产主义受害者纪念月来警告左派”。副标题指出，里克茨说，美国人需要知道共产党政权在历史上做了什么。
+#### 翻译：小红帽
 
-全文如下：
+#### 校对/编辑：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09012312/Picture1-24.png)
+图片：AVIATION
 
-内布拉斯加州州长皮特·里凯茨宣布7月为共产主义受害者的纪念月，并公开反对历史上和现在共产主义政权的行为。
+**译评：**
 
-在接受《福克斯新闻》采访时，里克茨警告说，美国人需要记住共产主义所做的一切，因为中国共产党正在庆祝执政100年后的成功。
+南半球大国澳大利亚地广人稀、资源丰富，长期以来被誉为“骑在羊背上的国家”。依托美军在太平洋地区的整体防务，澳洲的国防投入长期处于低位。然而，近年来澳洲国防开支不断增长，预计将从 2020 年的 309 亿美元增加到2025年的395亿美元[1]。首相莫里森表示，“未来十年，我们将继续在澳大利亚各地投资超过 2700 亿美元的国防能力，确保我们拥有一支有能力的国防力量，以应对不断变化的全球环境”[2]。
 
-“中国共产党正在庆祝建党100周年，他们将以非常积极的态度谈论中国共产党所做的一切，但同样重要的是要记住，每当共产主义在全世界实施时，他所看到的都是大量的人类苦难。” 里克茨说，“共产主义政府对近1亿人的死亡负有责任。”
+澳洲秣马厉兵，当然是针对中共国在西太平洋地区的战略锋芒。此篇澳媒报道，澳洲国防军再购入四架美军新型支奴干重型直升机，也是澳洲加强国防能力中的一环，未来澳美军事合作更加密切，中共国注定无法染指西太平洋。
 
-“中共国真的没有什么不同。”他继续说，“中国共产党，我们可以看到，直到今天仍然压迫着像维吾尔族这样的人。”里基茨还回忆了中共人对待藏人、香港人民和法轮功等宗教团体的虐待。
+**译文：**
 
-共和党人里克茨还指出，除了涉嫌侵犯人权外，中共国还存在盗窃知识产权等行为。
+在与主要军事强国——中共国的紧张局势加剧之际，澳大利亚国防军斥资 5.95 亿澳元购买了四架美国新型直升机，此举表明澳美军事关系日益密切。
 
-“所有这些都需要综合起来。”他说，“我们需要不断向中国共产党施加压力，使其真正遵守国际准则，并以我们所期望的国际社会成员国的行为方式尊重其人民。”
+国防部长彼得·达顿 (Peter Dutton) 发言人表示，购买四架美国制造的支奴干（Chinook）重型直升机，“充分体现了澳大利亚与美国的良好战略合作关系”。
 
-“中共百年诞辰也许是内布拉斯加州纪念共产主义受害者的一个原因，但这并不是唯一的焦点。”里克茨说，“随着美国部分左翼人士自豪地认同自己是社会主义者，不再认为共产主义是坏的，左翼人士希望人们接受关于共产主义的那类教育。”
+支奴干CH-47F是澳大利亚国防军最大的直升机，曾被澳大利亚军队用于在伊拉克和阿富汗运送部队、投放火炮和向战场运送补给。
 
-他说：“对于那些不认为共产主义是坏的左翼人士来说，去看看历史，我们可以看到一个又一个案例，这也是我之所以要宣布7月为共产主义受害者月的原因之一，以真正提醒人们在共产主义实施的任何地方发生的可怕事情。”
+在首批两架直升机抵达昆州汤斯维尔空军基地时，让澳大利亚国防军航空能力得到了提升，对此达顿先生高度评价。
 
-“人们需要明白，这实际上与我们在美国的立场背道而驰。”里克茨继续说，“在美国，我们的愿望是维护个人利益，让人类繁荣昌盛，这不是共产主义的意义。”
+“澳洲通过与美国密切合作，通过简化流程并快速提升国防能力，莫里森政府正在履行其对国防战略目标的承诺，”达顿先生说。
 
-为此，州长建议人们向那些逃离苏联或中共政权的人了解情况。他说“我们应该听取这些人的意见，因为他们有第一手的资料。”
+在强调澳美传统关系的同时，澳洲与世界上另一个主要军事强国中共国之间的关系也日益紧张。
 
-（原文完）
+今年 5 月，中共国国防部表示，达顿先生关于台湾海峡爆发战争威胁的警告是不负责任的，（该言论）煽动了澳大利亚和中共国之间的对抗。
 
-给里克茨州长点赞的同时，还是要提醒一下那些期待通过制裁施压就能改变邪恶的中共行径的人们，你们太天真了，如果那是一个有底线的集团，他们就不会用生物武器来袭击无辜的人们，他们就不会设计实施那套腐蚀科学界、拉拢政府机构、蓝金黄各类代言人的手段……只有将其灭之才是真正的清醒！
+今年 6 月，中共国对澳大利亚葡萄酒出口征收高达 218% 的关税后，澳大利亚向世界贸易组织正式提出申诉。
 
-原文链接：
+在 2021 年的澳洲政府预算中，军事装备、设施和技术项目的支出水平达到了创纪录的水平，比上一年增加了 13%。
 
-[https://www.foxnews.com/politics/nebraska-gov-pete-ricketts-china-victims-of-communism-remembrance-month](https://www.foxnews.com/politics/nebraska-gov-pete-ricketts-china-victims-of-communism-remembrance-month)
+参考链接：
 
-0
+[1、Australia’s defense budget to maintain upward](https://www.globaldata.com/australias-defense-budget-maintain-upward-swing-2020-25-nullify-china-threat-indo-pacific-region-says-globaldata/)
+
+[2、MAJOR INVESTMENT IN NORTHERN TERRITORY DEFENCE BASES](https://www.pm.gov.au/media/major-investment-northern-territory-defence-bases)
+
+3、[Australian Defence Force buys new military choppers | Daily Telegraph](https://www.dailytelegraph.com.au/breaking-news/australia-buys-new-military-choppers/news-story/12af88f6b70084279f218b2209ed4023)
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
++1

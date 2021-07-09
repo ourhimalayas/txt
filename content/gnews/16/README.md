@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【秘翻快报】中共在澳大利亚大学的霸凌行为引发对学术自由的担忧
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1383887/)
+## 【秘翻快报】美军高级情报官表示部分美决策者并未真正重视中共威胁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1384090/)
 
 2021年7月9日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09025919/IMAGE-2021-07-09-140055.jpg)*图片來源:skynews*
-据澳大利亚天空新闻网7月8日报道，**一份人权报告显示，中共国对在澳中籍留学生进行“恐吓”，而这种霸凌现象十分普遍。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09054920/IMAGE-2021-07-09-174740.jpg)*图片来源:路透社*
+据美国之音7月8日援引路透社消息称，美军印太司令部情报处处长、海军少将史达曼(Michael Studeman)7月7日在无党派组织“情报与国家安全联盟”主办的在线研讨会上表示，一些美国重要决策者和国会议员并未真正重视中共威胁。
 
-澳大利亚联邦政府部长阿曼达·斯托克 (Amanda Stoker) 表示，中共在澳大利亚大学欺凌中国民主派学生的报道凸显出澳大利亚的“学术诚信”已经受到威胁。
+过去几个月来，美军印太司令部、五角大楼和美国情报机构官员们就中共增强兵力，实施网络攻击及间谍活动等行为向美国决策者发出警示，史达曼表示，这些威胁并未得到美国决策者重视的部分原因是，许多美国人认为发生战争的可能性很小，与之截然不同的是中共国等国家将战争视为他们奋斗目标的组成部分。
 
-斯托克女士周四对澳大利亚天空新闻表示，***中共除了霸凌中籍民主派留学生，更对来自中共国的家庭进行监视，与此同时由于澳大利亚过于依赖国际学生和外国资金，澳大利亚的大学已存在学术诚信风险。***
+时任美军印太司令部司令、现已退役的海军上将戴维森(Philip Davidson)今年早些时候在国会表示，中共正在加快实施其在世界舞台取代美国的雄心。国防部部长奥斯汀多次称中共是步步紧逼的挑战。国家情报总监海恩斯说，情报部门已将中共列为当前的工作重点。
 
-**新闻來源:**[https://www.skynews.com.au/australia-news/disturbing-reports-of-chinese-bullying-at-aussie-universities-sparks-academic-freedom-concerns/news-story/0feedc207a6058b73f15628db2e7220c](https://www.skynews.com.au/australia-news/disturbing-reports-of-chinese-bullying-at-aussie-universities-sparks-academic-freedom-concerns/news-story/0feedc207a6058b73f15628db2e7220c)
+此外，仍有部分美军官员认为人们夸大了中共发动战争的可能性，军参谋长联席会议主席米勒上将上个月在国会称，中共实力不足以武统台湾。
+
+**新闻来源:**[https://www.voachinese.com/a/us-china-threat-20210708/5957873.html](https://www.voachinese.com/a/us-china-threat-20210708/5957873.html)
 
 ***以上新闻信息,不代表Gnews平台***
 
-*采集/撰稿:ALI112 发布:星星*
+*採集/撰稿: ALI112  审稿:Adela(明澈) 发布:星星*
 
-0
++2
