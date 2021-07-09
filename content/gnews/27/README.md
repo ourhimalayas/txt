@@ -1,25 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【秘翻快报】艾希顿库奇警告说：中共可能会利用抖音来影响美国人的思想并推动反美宣传
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1384878/)
+## 【热点播报】欧盟希望通过“调整机制”以阻止“碳泄漏”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1385226/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09103028/AshtonKutchertiktokdasf1-640xsdf480.jpg)
+作者：纽约香草山农场 四季
 
-据布雷特巴特新闻网7月8日报道，好莱坞影星艾希顿·库奇 (Ashton Kutcher)近日在油管上的一档节目中发出警告：“中共会利用抖音来传播反美和反台湾的舆论，并煽动美国人反对美国政府的对台政策。
 
-这不仅对美国人个人构成威胁，也对整个美国国家利益构成威胁。如果我是中共政府，想在全球制造另一个麻烦，特别是在中国南军事方面的问题，我可能会想到利用抖音来传播反美和反台湾的言论，并以此影响美国人，让他们以为美国政府就台湾发起的任何军事行动都是极不應該的。和大多数人一样，我也认为许多社交媒体都被人操控了，并在其平臺上散布虚假舆论。”
 
-去年，中共国首次超过美国成为全球最大电影市场。作为好莱坞影星，库奇发表这番言论非常难得。因为很多好莱坞影星为了不失去中共國市场，都在避免谈及可能会令中共独裁政权感到不滿的话题，并在中共人权问题等上保持沉默。男演员约翰塞纳（John Cena）在为电影《速度与激情9》做宣传时说台湾是个国家而不得不为此公开道歉；美国女演员贝特·米德勒（Bette Midler）删除了其谴责中共制造这场中共病毒大流行并要求中共为此赔偿的推文；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-另外据报道称，迪斯尼公司向一家美国电影杂志施压，要求其删除《无依之地》导演赵婷批评中共的言論。
 
-相关链接：[Ashton Kutcher Warns China Could Use TikTok to Influence Minds of Americans and Push Anti-U.S. Propaganda](https://www.breitbart.com/entertainment/2021/07/08/ashton-kutcher-warns-china-could-use-tiktok-to-influence-minds-of-americans-and-push-anti-u-s-propaganda/)
 
-* * *
+据零对冲报道，欧盟希望通过碳边界调整机制（CBAM）以阻止“碳泄漏”。但是欧盟强调，这不是税收也不是关税，而是“调整机制”，是一种在边境设置的环境改善措施，以响应欧盟的内部规定。
 
-采集撰稿：ZZB104
+![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/2021-07-06_10-09-50.jpg?itok=8oAQyxT4)图片来源：零对冲
 
-校对发布：WK121
+碳边境调整机制（CBAM）旨在为绿色生产创造财政激励措施并阻止“碳泄漏”，可以理解为，将可能排放温室气体的行业转移到欧盟之外以避免执行更严格的标准。
+
+虽然欧盟表示，它和华盛顿已经同意共同商讨这个计划，但其他国家纷纷表示担忧。澳大利亚总理斯科特-莫里森称，任何碳关税都是“另一种名称的贸易保护主义”。俄罗斯也表示，这可能会破坏贸易规则。
+
+作为世界上最大的碳市场，欧盟的排放交易系统（ETS）的基准价格本月创下了每吨58欧元以上的记录，其中部分原因是欧盟即将对边境征税。新的机制要求，出口商需在欧盟边境支付同类欧盟生产商在欧盟排放交易系统（ETS）中的相应碳价格。
+
+为此，如果第三国对欧盟的出口品被涵盖或涉及到碳边境调整机制（CBAM）中，他们可能会受到直接或者间接影响。因此，碳边境调整机制所涵盖的行业范围是确定哪些气候脆弱国家可能受到直接或间接影响的关键问题。
+
+根据欧盟委员会的清单草案，可能受影响的国家包括莫桑比克、几内亚、塞拉利昂、加纳、喀麦隆（铝）、津巴布韦、赞比亚（钢铁）、摩洛哥（电力）、阿尔及利亚、埃及、特立尼达和多巴哥（化肥），以及G4集团（BASIC countries，中共国、印度、巴西以及南非四个国家）。在这种情况下，似乎欧盟消费者和上述的国家都将为这一措施买单。
+
+欧盟将于7月14日公布其一揽子立法，以期到2030年能够将温室气体净排放量在1990年的水平上减少55%。
+
+参考阅读：
+
+[EU Tries To Convince Trading Partners Its Carbon Tax Is Not A Tax](https://www.zerohedge.com/geopolitical/eu-tries-convince-trading-partners-its-carbon-tax-not-tax)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 +1

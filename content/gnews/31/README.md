@@ -1,26 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美将更多涉嫌侵犯人权的中国公司列入经济黑名单
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1384737/)
+## 拜登总统与俄罗斯总统普京的通话文本
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1385342/)
 
-2021年7月9日
+#### 翻译：文旺 | 校对：沙拉猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09150004/capture-5.jpg)图片来源：白宫网站
+拜登（Joseph R. Biden, Jr.）总统今天（7月9日）与普京（Vladimir Putin）总统进行了交谈。两国领导人赞扬各自团队在美俄峰会之后的共同工作，从而促成了今天联合国安理会一致恢复对叙利亚的跨境人道主义援助。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09094820/Bild1-15.jpg)
+拜登总统还向普京总统提及了正在由俄罗斯犯罪分子实施的影响美国和世界其他国家的网络勒索软件攻击事件。拜登总统敦促俄罗斯采取行动，打击在俄罗斯活动的网路勒索组织，并强调他将继续致力于应对勒索软件构成的广泛威胁。拜登总统重申，面对这一持续挑战，美国将采取任何必要行动来保护其人民及其关键的基础设施。
 
-据《路透社》报道，拜登政府的商务部最早将于周五将 14家中国公司列入其经济黑名单，理由是涉嫌在新疆侵犯人权和高科技监控。即将被列入实体名单的公司详情尚不清楚。2019 年，特朗普时期的商务部因为新疆人权问题将20个中国公安局和 8 家中共国顶级的人工智能初创公司列入其经济黑名单。联合国专家和人权组织估计，有超过 100 万人被关押在新疆的再教育营中。
+白宫简报链接：[Readout of President Joseph R. Biden, Jr. Call with President Vladimir Putin of Russia](https://www.whitehouse.gov/briefing-room/statements-releases/2021/07/09/readout-of-president-joseph-r-biden-jr-call-with-president-vladimir-putin-of-russia-2/)
 
-**【[新闻来源](https://www.voachinese.com/a/u-s-set-to-add-more-chinese-companies-to-blacklist-over-xinjiang/5959466.html)】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1
