@@ -1,29 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国女孩被指当“中共宣传员” 提告却没律师要接手
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1383861/)
+## 2021年07月08日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1384026/)
 
-#### 作者：日本东京方舟农场 铁蚁骑士
+撰稿：GTV澳喜影像视频组、新闻组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09044117/image0-27-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09044159/image1-4-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09044501/image2-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09024552/5D535318-430B-4FBD-97D8-33E44E8E0658.jpeg)
-
-德国媒体《世界报》（DIE WELT）上个月刊载一篇名为“中国的秘密宣传员”（Chinas heimliche Propagandisten）报导，揭露中国是如何对西方媒体进行渗透，以及利用在推特或Youtube上的网红当中国的网络宣传者，其中就以一名在推特上相当活跃的21岁德国女孩海雯娜（Navina Heyden）为例，报导刊登后海雯娜相当“气愤”，欲对《世界报》提出控告，但根据最新消息显示，没有律师要替她辩护。
-
-海雯娜于2020年3月开设自己的推特账号，她曾经去过中国，平常主要在推特上发表亲中言论，并指称西方媒体对中国的报导都是“假讯息”、维吾尔人受到压迫的报导都是捏造的……短短时间内她就有将近3万人的粉丝，而在这之前她不过就是一个普通的学生。 主要研究在线操纵、假讯息、仇恨和极端主义的“英国战略对话研究所”（ISD）针对她的账号进行分析，结果显示，海雯娜的粉丝在2020年8月中旬和2021年4月下旬激增，2020年8月先是增加了8,772人，之后2021年4月增加1,296人。
-
-经过ISD查看，海雯娜的这些追踪者其中有大量账户都是新办的，7月和8月有2,890个、4月有1,213个；ISD还发现，追踪海雯娜的一些账号会故意分享亲中的推文，以发挥更大的影响力，有些账号在5天内分享了海雯娜的某一条推文高达2,145次，有时转发的间隔时间甚至只有5秒。 此外，关注海雯娜的人还包括著名的“中国战狼”，如中国外交部发言人赵立坚、中国驻巴基斯坦卡拉奇总领事、驻印度加尔各答总领事、驻奥地利大使，以及亲中反美社群账号“垃圾邮件龙”（Spamouflage Dragon）也是她的粉丝，这些人转推或留言过她的推文超过94次。
-
-海雯娜接受《世界报》记者的视讯采访，否认网络上说她是中共党员的指控，也坚称自己绝对没有拿任何人的钱，她说在第一波新冠肺炎（COVID-19）期间，她发现德国报纸上有许多相关的“虚假报导”，于是她决定在推特上提供不同的视角。 在视讯采访过程中，她的视线一直看向旁边，后来她表示自己的中国生活伴侣Ellias Yuming Feng坐在旁边提示她该说什么，而这个Ellias Yuming Feng直到去年还是基尔亥姆霍兹海洋研究中心（Kieler Helmholtz-Zentrum）的研究员。 Ellias Yuming Feng曾在Quora网站上称，镇压香港的自由示威是中国的权利，并在在线采访时对其中一名记者咆哮，要求对方向中国道歉，因为该名记者写过批评习近平的文章。 在线采访的参与人员除了海雯娜和Ellias Yuming Feng之外，还有其他几名“网红”，“网红”们都表示，没有证据可以证明新疆有“再教育营”，那些只是正常的教育机构，就像在德国，上学也是强制性的。
-
-在这篇“中共的秘密宣传员”（Chinas heimliche Propagandisten）报导刊登后，海雯娜非常生气，准备对《世界报》提告，还在网络上发起募资活动，但根据中国官媒《环球时报》报导，她的这个案子目前并没有任何德国律师愿意接手！
-
-*注：本文仅代表作者观点*
-
-*参考链接：[https://news.sina.cn/gj/2021-07-07/detail-ikqcfnca5454306.d.html](https://news.sina.cn/gj/2021-07-07/detail-ikqcfnca5454306.d.html)*
-
-* * *
-
-*校对：MIMI      发布：miumiu*
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

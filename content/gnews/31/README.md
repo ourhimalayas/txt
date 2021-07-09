@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【实时推文】美国前国务卿蓬佩奥 9/07/2021
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1383788/)
+## 布林肯国务卿就中共抓捕维权律师的“709镇压”六周年发表声明(全文翻译）
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1384036/)
 
-**翻译:ZZB104 【秘翻即时新闻播报组】**
+2021年7月9日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09045858/IMAGE-2021-07-09-165600.jpg)*图片来源:美国之音*
+据美国之音7月9日报道，美国国务卿布林肯在美国时间7月8日，也就是中共当局对维权律师展开的“709镇压”事件六周年之际发表声明，呼吁中共政府释放“709镇压”中被拘押或监禁的人，恢复被取消律师资格者的律师身份，并确保其家人不再受到骚扰。
 
-**美国前国务卿蓬佩奥7月9日在推特发文表示:**
+**以下是布林肯国务卿声明的全文翻译：**
 
-这届政府部门必须就中共向全世界散播武汉病毒迅速做出追责中共的行动。中共必须为他们的谎言付出代价。
+**安东尼·J·布林肯国务卿声明**
 
+**2021年7月8日**
 
+**关于中共709镇压六周年**
 
-> This Administration must act fast in holding the Chinese Communist Party accountable for their role in spreading the Wuhan virus. They lied, and there must be repercussions.
-> — Mike Pompeo (@mikepompeo) [July 8, 2021](https://twitter.com/mikepompeo/status/1413183384080330752?ref_src=twsrc%5Etfw)
+今年7月9日，我们向2015年7月9日“709镇压”事件中受到中共当局不公正拘留、审问和监禁的300多名律师及人权捍卫者们致敬。709镇压中，为打压中共法律体系内的人权卫士和社会革新者，中共政府向他们发起了一场恐吓压制运动。
 
+六年后的2021年，中共政权依旧对许志永、丁家喜等许多最初被捕的人进行审前羁押。当一些人挺身而出维护这些勇敢的人权卫士时，中共当局取消了他们的律师资格，并起诉拘留了他们，其中包括律师李昱函和余文生。我们呼吁中共政府释放那些因“709镇压”而被拘留或监禁的人，恢复被取消律师资格者的律师身份，并确保其家人不再受到骚扰。
 
+中共当局把那些仅仅只是试图为其同胞寻求法律救济的律师和活动人士作为打击目标，这破坏了社会稳定和法治。美国将永远支持那些寻求建立一个更加公正、稳定和繁荣的社会勇者。
 
-*採集/撰稿：ZZB104 发布:星星*
+**新闻来源:**[https://www.voachinese.com/a/antony-blinken-709-crackdown-lawyers-20210708/5959251.html](https://www.voachinese.com/a/antony-blinken-709-crackdown-lawyers-20210708/5959251.html)
+
+***以上新闻信息,不代表Gnews平台***
+
+*采集/撰稿：ALI112 审稿:Adela(明澈) 发布:星星*
 
 0
