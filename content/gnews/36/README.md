@@ -1,11 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共内部统计：9600万农民死于大饥荒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1384877/)
+## 美国即将面临中共的迫在眉睫的攻击
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1385462/)
 
-摘要：杨尚昆领导的内部统计显示，9600万农民在大饥荒中饿死。这份统计数据是准确的，因为是由公安部进行统计，绕开了数据作假的地方政府。
+- 制作：视频组
 
-**By：【秘密翻译组-精翻组 G-Translators/Elite Team】**
+
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月9日电/西喜社**
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 +1

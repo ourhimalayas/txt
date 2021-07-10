@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 史蒂芬·莫舍：中国共产党手上有近5亿条中国人命.我称（中共）为人类历史上最大的杀人机器。
-` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1385617/)
+## 2021年07月09日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1386257/)
 
-中共迫害下的计划生育持续了35年，受害人数众多。
+撰稿：GTV澳喜影像视频组、新闻组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10010826/image0-32-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10010709/image1-5-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10010659/image2-1-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-+1
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+0

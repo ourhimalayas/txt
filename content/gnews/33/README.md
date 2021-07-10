@@ -1,29 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳门疯狂 DQ 对香港的启示
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1386091/)
+## 中共病毒患者住院治疗时因缺乏维生素D而死亡
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1386628/)
 
-2021年7月9日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10033429/IMAGE-2021-07-10-153253.jpg)图片来源:网络
+转《以色列时报》7月9日报道，以色列研究人员发现，如果住院的中共病毒患者缺乏维生素D，那么他们死亡或处于严重或危急状况的可能性是维生素D足量者的14倍。在加利利医院进行的一项研究中，26%的维生素D缺乏的中共病毒患者死亡，而在其他患者中，这一数字为3%。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09231346/0-3-4.png)
+内分泌学家和研究小组成员阿米尔.巴什金（Amir Bashkin）博士告诉《以色列时报》，这是一个非常显着的差异，也是治疗手段的又一线索，即病患缺乏维生素D会导致死亡率的增加，或致使病情更加严重。在进行这项研究后，我想对人们说，在这场大流行中，你要确保体内含有足够的维生素D。这项研究已在网上发表，但尚未经过同行评审。
 
-编辑摘要：
+加利利医院的医生，巴伊兰大学的研究人员德罗尔表示，这项研究十分重要，因为它与患者入院前的数据进行对比，而且还谨慎地区分了年龄和糖尿病等其他因素的影响，我们发现维生素D缺乏显着影响中共病毒患者状态的又一独立因素。
 
-一直以来，很多香港保皇党会说，如果不是搞对抗，就不会有中央的强硬。真的吗？看看今日澳门，民主派在33个席位里只有4席，够弱够温和，照样DQ六组立法参选人，包括几乎全部民主派。
-香港、澳门都一样，无论听话与否，反抗或半跪，都要连根拔起，再也没有资格享有正常的权利。看看内地的人权状况。香港的政界、商界与内地富商与高层频繁接触，参加“强奸犯饭局”，香港公务员系统堕落得更快。
+**新闻来源:**[https://www.timesofisrael.com/1-in-4-hospitalized-covid-patients-who-lack-vitamin-d-die-israeli-study/](https://www.timesofisrael.com/1-in-4-hospitalized-covid-patients-who-lack-vitamin-d-die-israeli-study/)
 
-**【**[新闻来源](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/bx-07082021111216.html)**】**
+***以上新闻信息,不代表Gnews平台***
 
-* * *
+*采集/撰稿：BT119 审核:明澈 发布:星星*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++2
