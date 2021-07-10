@@ -1,51 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】拜登提名驻印度大使
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1386012/)
+## 【秘翻快报】多数民主党人认为CCP病毒起源于武汉实验室
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1386209/)
 
-作者：纽约香草山健身部 Jack Li文阳
+据《华盛顿观察报》7月9日报道，哈佛大学和《政客》（Politico）最新民调显示, 52%的美国人(包括59%的共和党人和52%的民主党人)认为中共病毒源自武汉实验室。
 
+设计该调查的哈佛大学公共卫生学院教授鲍勃·布伦登(Bob Blendon)表示 ，通常民调中共和党和民主党之间存在巨大分歧，但这次两党罕见有共同看法。近三分之二的民主党人和共和党人表示，调查中共病毒来源的问题“极其”或“非常”必要。
 
+美国情报界表示，拜登总统认为有足够的证据要求情报机构整理一份报告，并命令所有情报机构在5月份“加倍”调查努力，并在8月份提交报告。美国及其盟友寄希望于此次新一轮的病毒源头调查。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08025536/WhatsApp_Image_2020-10-24_at_04.33.05-6.jpeg)
+1月份发布的一份美国国务院简报认为，该实验室“代表中共军方从事包括实验室动物实验在内的机密研究”。 川普前总统、前疾控中心主任罗伯特·雷德菲尔德(Robert Redfield)、前国务卿蓬佩奥(Mike Pompeo)、前CCP病毒检测负责人布雷特·吉鲁瓦(Brett Giroir)等人都表示，他们认为CCP病毒来自武汉病毒实验室。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09054920/IMAGE-2021-07-09-174740.jpg)
 
+图片来自网络
 
-白宫7月9日表示，拜登总统已提名洛杉矶市长Eric Garcetti 担任驻印度大使，印度目前疫情严峻，拜登总统选择一名盟友来担此重任。
+[https://www.washingtonexaminer.com/news/majority-democrats-covid-originated-wuhan-labWashington ExaminerMajority of Democrats believe](https://www.washingtonexaminer.com/news/majority-democrats-covid-originated-wuhan-lab)[COVID-19 originated in Wuhan lab: Poll](https://www.washingtonexaminer.com/news/majority-democrats-covid-originated-wuhan-lab)
 
-Eric Garcetti 如果得到确认，将被派往印度，印度目前因病毒感染和死亡人数激增已不堪重负。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09225001/Untitled-design-5.png)图片来源：Getty Images
-Garcetti 曾考虑参加2020年的白宫竞选，后来成为拜登核心圈子的一员，去年被广泛讨论以加入拜登内阁。但后来他自动退出，理由是病毒危机使他无法从市长职位抽身。
+采集／ 撰稿：BT119
 
-这位两任市长在洛杉矶的业绩并不寻常。他因在交通拥堵的城市继续建设交通、为数千座建筑物制定更严格的地震安全标准并在致命的流行病中指挥这座城市而受到赞誉。洛杉矶与加州的病例都急剧下降，并且已经取消了一些限制措施。
-
-拜登选择Garcetti 是在奖励忠实的支持者，他曾是拜登全国竞选活动的联合主席之一，曾在审核副总统候选人的委员会中任职，并曾担任拜登就职委员会的联合主席。
-
-据知情人士透露，拜登还将提名前国务院长期官员Nicholas Burns担任他的驻华大使，提名前芝加哥市长Rahm Emanuel 担任驻日本大使。
-
-简评：拜登调兵遣将，将亲信好友派往各敏感地区，目的显然是为了保证白宫的政令能够顺利通达，配合下一步的战略部署。
-
-新闻来源：https://www.newsmax.com/politics/biden-ambassadors/2021/07/09/id/1028109/
-
-校对/发稿：火内
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审稿：明澈 发文：文柳
 
 0

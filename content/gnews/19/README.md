@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 章家敦：中共为进攻性核能力而建造导弹发射井
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1385957/)
+## 如同神曲“打倒中共”，盖特将成为文化的、百花齐放的平台
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1386312/)
 
-7/7/2021 中共国在甘肃省大量施工建造145个核弹发射井。每枚东风-41导弹携带10枚核弹头。中共总共部署的核弹头与美国一样多。中共寻求进攻性核武能力。
+7/4/2021 史蒂夫·班农在独立纪念日回想起了“打倒中共”这首歌，他肯定了这首歌在唤醒美国人思考中共真相的巨大影响力。同样地，盖特将会成为文化的平台、百花齐放的平台。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

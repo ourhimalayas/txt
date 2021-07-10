@@ -1,53 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】美国将34家公司列入实体名单
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1385960/)
+## 瑞士否认将联邦政府数据外包给中共国云公司
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1386111/)
 
-香草山翻译部：GBW
+2021年7月9日
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09232227/0-2-1.jpeg)
+
+编辑摘要：
+
+两周前，联邦秘书处在Simap（瑞士公共招标信息系统）平台上公布了中标联邦大型IT项目的公司名称，其中有来自中共国的阿里巴巴，某些媒体称：联邦政府正在将数据外包给一家中共国公司。
+
+然而，根据联邦秘书处称，法律上不允许以原籍国为由对供应商进行歧视，公共采购机构必须遵守世界贸易组织的国际法规。招标书中也并没有规定最低采购量，换言之，联邦政府可以但没有义务购买任何中标公司的服务。联邦部委最终有权利自行决定与哪一家中标合作。
+
+可见，通过这种双重程序的购买方式，联邦政府不但可以达成采购目的，更巧妙地从所谓的“歧视中共国供应商”的外交事件中脱身。
+
+**【**[新闻来源](https://www.nzz.ch/wirtschaft/alibaba-daten-des-bundes-beim-chinesischen-konzern-ld.1634165?reduced=true)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08025536/WhatsApp_Image_2020-10-24_at_04.33.05-6.jpeg)
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-
-
-2021年7月9日晚，路博艾
-
-**1. 美国宇航局和诺斯罗普-格鲁门公司（Northrop Grumman）已经敲定了一份9.35亿美元的合同，以开发月球上的居住和后勤前哨。路德：这相当于建立一个新大陆，美国要考虑科学、伦理、法律、金融等规则。由于中共的原因，中国将被排除在太空文明之外。**
-
-**2. 美国商务部将34个实体列入实体名单，涉及侵犯人权、军事现代化和未经授权的伊朗和俄罗斯采购，其中14家是中共企业。**
-
-a. 路德：中共体制无法创新，只能依靠美国科技。美国有实力，所以能制裁中共。
-
-b. 路德：美国有专利陷阱，如果一不小心使用别人的专利，就会被起诉。比如，苹果电脑壳四个角的弧度，HOME键都是苹果的设计专利。中共国比的是抢注速度。
-
-c. 路德：竞争和创新能打破现有的垄断。中共体制导致垄断。
-
-**3. 伊朗国家电视台报道，在受到网络攻击之后，全国各地的火车站出现了 “前所未有的混乱”。**
-
-a. 路德：火车系统都是独立的网路。中共看到肯定吓死。
-
-b. 艾丽：伊朗的地铁用的是中国的技术。中共有能力搞破坏，但是它的基建没有能力防御攻击。
-
-笔记仅作参考，内容以路德社节目为准。
-
-视频链接：[https://www.youtube.com/watch?v=HITgRW8QCx4](https://www.youtube.com/watch?v=HITgRW8QCx4)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-+1
+0

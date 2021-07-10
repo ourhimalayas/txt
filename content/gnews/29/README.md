@@ -1,32 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 常玮平、丁家喜获2021年中国人权律师奖
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1385981/)
+## 【科海拾星】诺斯罗普获9.35亿美元NASA合同 将在月球轨道上建造房屋
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1386117/)
 
-2021年7月9日
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09222755/0-3-2.png)
-
-编辑摘要：
-
-中央社消息，台湾、美国等多个民间团体周五晚间为第5届中国人权律师节及“709大抓捕”6周年召开线上大会，将今年度的“中国人权律师奖”颁给仍被中共国政府以“煽动颠覆国家政权罪”被关押的人权律师常玮平、丁家喜。
-
-常玮平的稚子代父领奖，丁家喜的妻子代夫发言，表示：中共国人权律师一日无自由，中共国便一日无人权。华盛顿智库“哈德逊研究所”（Hudson Institute）高级研究员余茂春指出，中共利用法律垄断权力。自由、民主的中国必须要让国家服务于人民，政治权力要受到约束，中共国的律师是实现这些目标的关键群体。
-
-国际律师协会人权研究所主任、英国御用大律师肯尼迪（Baroness Helena Keneedy QC）指出，中共国截至2019年底有1598名政治犯，其中100多人是律师。
-
-**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210709-%E5%B8%B8%E7%8E%AE%E5%B9%B3-%E4%B8%81%E5%AE%B6%E5%96%9C%E8%8E%B72021%E5%B9%B4%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%9D%83%E5%BE%8B%E5%B8%88%E5%A5%96)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+作者：美东香草山健身部 文真
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05004317/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
-+1
+
+
+7月9日（路透社）–诺斯罗普-格鲁曼公司（NOC.N）周五宣布，该武器制造商赢得了一份价值9.35亿美元的NASA合同，为美国航天局计划中的月球轨道前哨基地开发生活区。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09233043/Untitled-design-8.png)
+宇航员将在诺斯罗普公司为 “月球通路” 制造的 “居住和后勤前哨”（HALO）中生活和进行研究，这是美国宇航局Artemis登月计划的一个重要组成部分。
+
+中国也在计划在月球南极建立一个基地，并在2030年左右向小行星和木星部署机器人探险队。
+
+美国宇航局及其商业和国际合作伙伴正在建设通路，以支持科学研究并实现月球表面着陆，该机构在一份声明中说。
+
+诺斯罗普-格鲁曼公司将负责安装和测试装有开发中的太阳能推进模块的综合营房。
+
+八个国家已经签署了一项月球探索的国际协议，作为美国国家航空航天局Artemis计划的一部分，美国航天局试图为在月球表面建立长期定居点制定标准。
+
+美国宇航局的目标是在2024年11月用SpaceX的火箭发射综合航天器。
+
+引用：
+
+https://www.reuters.com/lifestyle/science/northrop-build-homes-moon-orbit-under-935-mln-nasa-contract-2021-07-09/
+
+校对/发稿：火内
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01045038/7_july-3.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

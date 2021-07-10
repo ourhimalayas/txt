@@ -1,45 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7月9日美国政要推文精选：商务部将34个中共国实体添加到实体制裁清单中
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1386000/)
+## 7月7日郭先生盖特视频精简文字分享版
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1385776/)
 
-美国商务部： 新闻：商务部将 34 个实体添加到实体清单中，以针对中共国侵犯人权和军事现代化以及未经授权的伊朗和俄罗斯采购的行为 【附商务部公告】
-
-
-
-> [#NEWS](https://twitter.com/hashtag/NEWS?src=hash&amp;ref_src=twsrc%5Etfw) Commerce Department Adds 34 Entities to the Entity List to Target Enablers of China’s Human Rights Abuses and Military Modernization, and Unauthorized Iranian and Russian Procurement [https://t.co/2jrjZ1Szd6](https://t.co/2jrjZ1Szd6) [@BISgov](https://twitter.com/BISgov?ref_src=twsrc%5Etfw)
-> — U.S. Commerce Dept. (@CommerceGov) [July 9, 2021](https://twitter.com/CommerceGov/status/1413494055439278080?ref_src=twsrc%5Etfw)
+编辑校对：TS2020相聚盘古，英文翻译：Joyce
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05195340/070601.jpg)
+1. 世间人心很暖，人性却非常冷漠。
+王健的被杀、肖建华消失、叶简明的死亡很快不再被人提起，悲剧不能被遗忘，需要时刻警醒世人
 
 
+2.滴滴打车事件极大震撼了世界：在美上市的大陆企业开始主动撤离美国股市，也有的是不得不撤出美国股市（华尔街的金融链条会被彻底斩断）；
 
-众议员克里斯·斯图尔特： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在进行一场操纵美国人民心灵的运动。 阅读我在每日电讯发表的专栏文章，了解中共国如何影响美国企业，以及我们如何阻止它们。 【附该文章】
+3.火币已被派入两个专案组：其结果会变得一文不值，相配套的虚拟币交易市场也会被共产党彻底收拾；
 
+4.共产党的流氓逻辑思维：凡与国人有关的事物，无论出生在世界任何国家，一概统归共产党所有。共产党的流氓逻辑思维，原来认识不到这点是个错误，现在仍然认识不到就是悲哀，了解了爆料革命和新中国联邦以后，仍然认识不到这点就是悲剧。
 
+5.大量不良资产正在被处置之中：证监会证实的消息，所有金融数据远超郭先生爆料的内容。海通证券几万亿不良资产，中信证券就是骗子证券，逾万亿不良资产无法处置。海南航空、方正集团的倒闭非同一般，后期相关的票据金融问题会远超预期。建行、招行结果也一样，只是早晚的问题。
 
-> China is in the middle of a campaign to manipulate the hearts and minds of the American people.
-> 
-> Read my [@DailyCaller](https://twitter.com/DailyCaller?ref_src=twsrc%5Etfw) op-ed on how China's influencing corporate America, and how we can stop them.[https://t.co/Si1Vjb5sp9](https://t.co/Si1Vjb5sp9)
-> — Rep. Chris Stewart (@RepChrisStewart) [July 9, 2021](https://twitter.com/RepChrisStewart/status/1413545586247225345?ref_src=twsrc%5Etfw)
+6.金融领域全是犯罪：安邦保险逾万亿的资金不知去向。平安集团不会长久，任何一秒都可能脆断，国营基础、军工企业、海外战略，但无任何盈利项目支撑。汇丰银行（平安投资的主体项目）的秘密资料如果被爆料，会震撼整个世界，巨量挪用客户的资金，全是犯罪。
 
+7.国内的金融和经济部门，干的全是挪用、盗用老百姓资金的勾当，绝对没有出路；
 
+8.有挑战就有机遇。盖特今天测试直播功能，前总统川普今天的新闻发布会首次通过盖特测试成功。川普时代远没有结束，川普始终是爆料革命坚定的战友、深信不疑、坚定灭共者；
 
-参议员马可·卢比奥： 英国的约翰逊首相迈出了重要一步。自由世界不能容许 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 主宰半导体工业。 【附卫报报道：英国审查中共国公司购买半导体行业】
+9.盖特的成功与名人参与程度无关，未来无限。是庞大的经济投入、巨量的科技投入、人类智慧汇集、世界强大的融资能力的综合运作结果；是新闻自由、言论自由、公平正义与邪恶势力斗争的必然结果。
 
+10.人生起伏无常：得意不忘形、失意不悲观不失望、希望在成功必在，念念不忘必有回响。灭共就是是中国人民的希望。
 
+【文章仅代表作者个人观点】
 
-> Important step by UK's [@BorisJohnson](https://twitter.com/BorisJohnson?ref_src=twsrc%5Etfw). The free world cannot allow the Chinese Communist Party to dominate the semiconductor industry. [https://t.co/bQGiZyqz4u](https://t.co/bQGiZyqz4u)
-> — Senator Rubio Press (@SenRubioPress) [July 9, 2021](https://twitter.com/SenRubioPress/status/1413523760938901512?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 今天的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)——上周刚庆祝了它的 100 周年——反映了人类过去残酷和野蛮的最糟糕的一面。美国和我们的盟友必须确保它不会主宰人类的未来。 【附ACLJ（美国法律与司法中心】文章：中共的周庆代表了一百年血腥的从不遵守诺言的历史】
-
-
-
-> Today’s CCP – which celebrated its 100th anniversary last week – reflects the worst of humanity’s harsh and barbaric past. The United States and our allies must ensure that it does not command humanity’s future. [https://t.co/CZjOFhcxEv](https://t.co/CZjOFhcxEv)
-> — Mike Pompeo (@mikepompeo) [July 9, 2021](https://twitter.com/mikepompeo/status/1413493694318080004?ref_src=twsrc%5Etfw)
-
-
+审核校对：Barry Jack
+上传排版：F
 
 0

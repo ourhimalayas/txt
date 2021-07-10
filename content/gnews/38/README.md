@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员科顿加入福克斯新闻谈论耐克、中共以及奥运会问题
-` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1385544/)
+## 中共如何控制中国人民的生活
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1382929/)
 
-参议员科顿加入了福克斯新闻黄金时间，谈论耐克公司对中共的持续支持
+摘要：活在中共铁蹄下的中国人是什么样的？爱丽丝从经济、社会和文化三方面详尽解释了中共是如何控制中国人。在最后，她还讲了关于活体器官摘取的一些事实。
+
+**By：【秘密翻译组-精翻组 G-Translators/Elite Team】**
 
 0

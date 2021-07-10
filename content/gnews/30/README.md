@@ -1,19 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中国共产党百年之际，驻香港部队展览中心建成开放
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1386043/)
+## 中共国歌舞厅将自我审查，播唱歌单内容“九不准”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1386148/)
 
-撰稿：日本樱花团/小白 
-责编：日本樱花团/待命（文晓）
+2021年7月9日
 
-![](https://lh4.googleusercontent.com/EdAWcWJETOIG-KOwZPLHvcUjW1UJGeZRlNZ5bF8oKC0RlHrNbeYpC-WT9uqHlUmvSEv9uXp5tANQZYcHUX6a8iqnRhQhRNLalIfuF1qj0PKJ5xUn15ivhgGQzPKgw7m5xLKDOIB2)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09233845/0-3-7.jpeg)
 
-7月8日，驻香港部队展览中心开放启动仪式在昂船洲军营隆重举行。香港特别行政区行政长官林郑月娥，中共中央驻港机构负责人，南部战区和驻香港部队有关领导，以及驻香港部队官兵和所谓”香港爱国爱港人士”代表参加并参观展览。
+编辑摘要：
 
-展览主题为“梦起东方”。设中国梦、强军梦、香江卫士3个主题展厅和装备模型展示区。展览综合运用了图文展板、文物实物、场景雕塑、视频等，着眼讲好中国共产党故事、中国故事、人民军队故事。过去拥有自由与民主的香港如今沦为中共专政体制的实验场。中共妄想通过所谓扭曲的“爱国主义教育和国防教育”方式对大众洗脑，只会让清醒的人更加抵触，一个没有活力的香港未来也不会拥有稳定和繁荣。
+中共国政府继续收紧对文化领域的监管。
 
-（文章仅代表作者个人观点）
-发布：东京樱花团/煙火1095
+中共国文化和旅游部7日在其官网发出《歌舞娱乐场所卡拉OK音乐内容管理暂行规定（征求意见稿）》，文中称，近年歌舞娱乐场所的歌曲点播系统含有禁歌，需建立违规音乐清单，规管全国卡拉OK点唱曲目，并要求歌舞场所自我审查。文化和旅游部罗列了九项禁止播放的歌曲。时事评论人士孙家林9日接受自由亚洲电台采访时说，上世纪八十年代至今，民间歌唱与主旋律不协调的歌曲会私下限制，很少发文禁止。这些歌曲不是提倡分裂国土、主张独立，只是不够“战狼”。中共最终会一步步回到1962年和1966年，那是本届政府认为的黄金时代。官方的“征求意见稿”其实就是一项行政命令。山西音乐评论人士秦先生表示，当局会掀起一场文化管制及思想清理行动，就是洗脑。湖南文史学者田先生表示，当局会在各种领域进行大内宣、大外宣的舆论管控。文化和旅游部将成立全国卡拉OK音乐内容审核专家小组，督察曲目是否违规。
 
-0
+**【**[新闻来源](https://www.rfa.org/mandarin/yataibaodao/kejiaowen/ql0709a-07092021052314.html)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++2

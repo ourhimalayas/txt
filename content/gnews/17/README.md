@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【实时推文】全球网络安全故障模拟演习
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1384068/)
+## 【秘翻快报】美军高级情报官表示部分美决策者并未真正重视中共威胁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1384090/)
 
-**翻译:ZZB104【秘翻即时新闻播报组】**
+2021年7月9日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09054920/IMAGE-2021-07-09-174740.jpg)*图片来源:路透社*
+据美国之音7月8日援引路透社消息称，美军印太司令部情报处处长、海军少将史达曼(Michael Studeman)7月7日在无党派组织“情报与国家安全联盟”主办的在线研讨会上表示，一些美国重要决策者和国会议员并未真正重视中共威胁。
 
-**Disclose.tv 7月9日在推特发文表示：**
+过去几个月来，美军印太司令部、五角大楼和美国情报机构官员们就中共增强兵力，实施网络攻击及间谍活动等行为向美国决策者发出警示，史达曼表示，这些威胁并未得到美国决策者重视的部分原因是，许多美国人认为发生战争的可能性很小，与之截然不同的是中共国等国家将战争视为他们奋斗目标的组成部分。
 
-重大提醒-世界经济论坛(World Economic Forum)创始人兼执行主席克劳斯·施瓦布 (Klaus Schwab)將於7 月 9 日开始进行Cyber Polygon 全球网络安全故障模拟演习。
+时任美军印太司令部司令、现已退役的海军上将戴维森(Philip Davidson)今年早些时候在国会表示，中共正在加快实施其在世界舞台取代美国的雄心。国防部部长奥斯汀多次称中共是步步紧逼的挑战。国家情报总监海恩斯说，情报部门已将中共列为当前的工作重点。
 
+此外，仍有部分美军官员认为人们夸大了中共发动战争的可能性，军参谋长联席会议主席米勒上将上个月在国会称，中共实力不足以武统台湾。
 
+**新闻来源:**[https://www.voachinese.com/a/us-china-threat-20210708/5957873.html](https://www.voachinese.com/a/us-china-threat-20210708/5957873.html)
 
-> REMINDER – "Cyber Polygon" – a simulation exercise of a global cyber pandemic by Klaus Schwab's World Economic Forum starts tomorrow, July 9.[pic.twitter.com/TeCqeJJ8aM](https://t.co/TeCqeJJ8aM)
-> — Disclose.tv 🚨 (@disclosetv) [July 8, 2021](https://twitter.com/disclosetv/status/1413237244165599241?ref_src=twsrc%5Etfw)
+***以上新闻信息,不代表Gnews平台***
 
+*採集/撰稿: ALI112  审稿:Adela(明澈) 发布:星星*
 
-
-*採集/撰稿:ZZB104 审稿:Adela(明澈) 发布:星星*
-
-+1
++2
