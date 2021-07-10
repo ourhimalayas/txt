@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共内部统计：9600万农民死于大饥荒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1384877/)
+## 中共如何控制中国人民的生活
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1382929/)
 
-摘要：杨尚昆领导的内部统计显示，9600万农民在大饥荒中饿死。这份统计数据是准确的，因为是由公安部进行统计，绕开了数据作假的地方政府。
+摘要：活在中共铁蹄下的中国人是什么样的？爱丽丝从经济、社会和文化三方面详尽解释了中共是如何控制中国人。在最后，她还讲了关于活体器官摘取的一些事实。
 
 **By：【秘密翻译组-精翻组 G-Translators/Elite Team】**
 
-+1
+0

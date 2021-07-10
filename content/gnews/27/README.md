@@ -1,54 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】三位科学家从《柳叶刀》驳斥实验室泄密理论的声明中删除了自己的名字
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1385464/)
+## 7月9日美国政要推文精选：商务部将34个中共国实体添加到实体制裁清单中
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1386000/)
 
-作者：纽约香草山农场 四季
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+美国商务部： 新闻：商务部将 34 个实体添加到实体清单中，以针对中共国侵犯人权和军事现代化以及未经授权的伊朗和俄罗斯采购的行为 【附商务部公告】
 
 
 
-据AG网站援引《华盛顿自由灯塔》的报道，尽管《柳叶刀》杂志加倍努力为中共国辩护，并声称没有证据表明冠状病毒起源于实验室泄漏，但该杂志的最新声明中却没有三位原本同意这一评估的著名科学家。
-
-![]()![](https://s1.freebeacon.com/up/2021/07/pjimage-16.jpg)图片来源：华盛顿自由灯塔 via Wikimedia Commons, Twitter, and Getty Images
-
-《华盛顿自由灯塔》报道称，《柳叶刀》杂志7月5日发表了一份声明，再次申明没有“科学验证的证据”表明COVID-19是从实验室中逃脱，而此份声明的签名者大多是在2020年2月的一份声明中否定了实验室泄露假说的同一个科学家团队。 但是，新的声明中缺少了原来声明中的三位签名者，包括与武汉病毒研究所有联系的威廉-卡雷什。这可以被看作是武汉实验室的科学联盟出现了裂痕。
-
-卡雷什（Karesh）是生态健康联盟（EcoHealth Alliance）负责卫生政策的执行副总裁，该组织用美国国家卫生研究院的拨款资助武汉实验室的功能增强研究。生态健康联盟的主席彼得-达扎克（Peter Daszak）发起了《柳叶刀》最初的声明，但他最近被从《柳叶刀》关于病毒起源的正式委员会中移除了。最初的签署人包括卡雷什（Karesh）、伊坎医学院彼得-帕莱斯（Peter Palese）和芝加哥大学的伯纳德-罗兹曼（Bernard Roizman），但是这三个人的签名都没有出现在最新的声明中——尽管达斯扎克签署了这两份声明。
-
-当被问及是否改变了对实验室泄漏可能性的看法时，帕莱斯回答说，“没有评论！”而卡雷什和罗兹曼则没有回应询问。
-
-缺少的这三个签名反映了关于COVID-19起源的科学共识中不断扩大的裂缝。实验室泄露假说一度被认为是极右的阴谋论，但在5月份，前《纽约时报》科学记者尼古拉斯-韦德在《原子科学家公报》上为其进行了详细的辩护，从而成为主流。在韦德的文章之后，诺贝尔奖得主大卫-巴尔的摩说，实验室泄密是一个严肃的假说，他“不会排除”，而其他生物学家则坚持认为支持它的科学证据非常薄弱。
-
-最近的《柳叶刀》声明说：“我们认为，来自科学文献中新的、可信的和经过同行评审的证据中最有力的线索是该病毒在自然界中进化而来。关于大流行病的实验室泄漏源的建议仍然没有直接的可被同行审议的证据可以被发表于科学期刊之上”。
-
-参考阅读：
-
-[3 Scientists Drop Names From Lancet Statement on COVID Origins](https://freebeacon.com/coronavirus/3-scientists-drop-names-from-lancet-statement-on-covid-origins/)
-
-[Three Scientists Remove Their Names from Lancet Statement Denouncing Lab-Leak Theory](https://amgreatness.com/2021/07/08/three-scientists-remove-their-names-from-lancet-statement-denouncing-lab-leak-theory/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> [#NEWS](https://twitter.com/hashtag/NEWS?src=hash&amp;ref_src=twsrc%5Etfw) Commerce Department Adds 34 Entities to the Entity List to Target Enablers of China’s Human Rights Abuses and Military Modernization, and Unauthorized Iranian and Russian Procurement [https://t.co/2jrjZ1Szd6](https://t.co/2jrjZ1Szd6) [@BISgov](https://twitter.com/BISgov?ref_src=twsrc%5Etfw)
+> — U.S. Commerce Dept. (@CommerceGov) [July 9, 2021](https://twitter.com/CommerceGov/status/1413494055439278080?ref_src=twsrc%5Etfw)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+众议员克里斯·斯图尔特： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在进行一场操纵美国人民心灵的运动。 阅读我在每日电讯发表的专栏文章，了解中共国如何影响美国企业，以及我们如何阻止它们。 【附该文章】
+
+
+
+> China is in the middle of a campaign to manipulate the hearts and minds of the American people.
+> 
+> Read my [@DailyCaller](https://twitter.com/DailyCaller?ref_src=twsrc%5Etfw) op-ed on how China's influencing corporate America, and how we can stop them.[https://t.co/Si1Vjb5sp9](https://t.co/Si1Vjb5sp9)
+> — Rep. Chris Stewart (@RepChrisStewart) [July 9, 2021](https://twitter.com/RepChrisStewart/status/1413545586247225345?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 英国的约翰逊首相迈出了重要一步。自由世界不能容许 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 主宰半导体工业。 【附卫报报道：英国审查中共国公司购买半导体行业】
+
+
+
+> Important step by UK's [@BorisJohnson](https://twitter.com/BorisJohnson?ref_src=twsrc%5Etfw). The free world cannot allow the Chinese Communist Party to dominate the semiconductor industry. [https://t.co/bQGiZyqz4u](https://t.co/bQGiZyqz4u)
+> — Senator Rubio Press (@SenRubioPress) [July 9, 2021](https://twitter.com/SenRubioPress/status/1413523760938901512?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 今天的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)——上周刚庆祝了它的 100 周年——反映了人类过去残酷和野蛮的最糟糕的一面。美国和我们的盟友必须确保它不会主宰人类的未来。 【附ACLJ（美国法律与司法中心】文章：中共的周庆代表了一百年血腥的从不遵守诺言的历史】
+
+
+
+> Today’s CCP – which celebrated its 100th anniversary last week – reflects the worst of humanity’s harsh and barbaric past. The United States and our allies must ensure that it does not command humanity’s future. [https://t.co/CZjOFhcxEv](https://t.co/CZjOFhcxEv)
+> — Mike Pompeo (@mikepompeo) [July 9, 2021](https://twitter.com/mikepompeo/status/1413493694318080004?ref_src=twsrc%5Etfw)
 
 
 

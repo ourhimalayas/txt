@@ -1,50 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—疫苗灾难篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1385619/)
+## 来咯，来咯，他真的来咯
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1379549/)
 
-- 作者：此生灭共
+**作者：洛杉矶盘古农场 – 文如**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07122034/120-1.jpg)
+相信很多川粉都很怀念川普DONALD TRUMP，自从川普被推特和脸书关闭账号后，支持他的选民和粉丝已经很少能看到他的动态。凤凰涅槃，他回来了。
 
+2021年7月7日星期三，他将举办离开白宫后的首场新闻发布会。最近川普的动态频繁，美国独立日在佛罗里达州发表演讲，他说他有回到白宫的计划。在输掉美国大选后，这是他首次吹响再次参加竞选的号角。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+我们都经历过1月20日那场滑稽的美国大选，不知道他是如何度过他任上最长的一天。他甚至没有和支持他的爱国者们告别就匆匆离开了白宫。他的爱国者们没有放弃，他们一直在追求真相，感谢所有的爱国者们，大选结果被黑的证据已经提交国会。这场美国宪政危机将如何度过，对所有的美国人都是一个史无前例的考验。
 
-**西班牙2021年7月9日电/西喜社**——
+作为川粉，有多少人和我一样很期待他的新闻发布会。这次他真的回来了！
 
-您若想了解全文报导内容，请点击标题链接
+一个年过7旬的老大爷还能连续站立2小时发表脱稿演讲，着实让人敬佩。再看看天安门楼上的共产党老杂毛们照本选科，与之相比，真是天地之差！
 
-**1.[印度尼西亚首席Sinovac疫苗科学家死于疑似Covid-19](https://edition.cnn.com/2021/07/08/asia/sinovac-scientist-indonesia-dies-intl-hnk/index.html)**
+一个真实，幽默，真诚的美国大爷打动了每个支持他的粉丝。
 
-CNN 7月8日电印度尼西亚媒体称，中国在印度尼西亚进行的赛诺兴疫苗试验的首席科学家于周三死于疑似 Covid-19。印度尼西亚的冠状病毒死亡人数创下历史新高，印度尼西亚也是最广泛使用Sinovac疫苗的国家之一。
+川普过去4年里用实际行动表达他的爱国精神，正如他所说的：“美国给了太多，给了我一切，我要让美国再次伟大！”因为从政，他放弃了舒适的生活，他的生意大幅下滑。他坚持领1美金的年薪，可却为这个国家勤奋地工作着。在共产党统治下，领1美金年薪的领导人永远不会出现。共产党为国家服务的动力是为了中饱私囊，为了包二奶们，为了私生子，为了他们自己的千秋万代。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09194629/unknown-16.png)
+为了美国遭受的不平等贸易政策，他不惜同全世界战斗，为他的国家，为他的人民争取应得的利益。美国经济在2020年CCP病毒发生之前，是美国历史上最好的，失业率也是最低的。笔者有几个美国朋友，他们时常向我讲述：如果没有川普，他们无法在社会上生活下去。川普的政策给普通平民提供了很好的创业机会和工作环境。
 
-**2.[六个接种疫苗的国家的 Covid 感染率都很高，其中五国依赖中国疫苗](https://www.cnbc.com/2021/07/08/five-vaccinated-countries-with-high-covid-rates-rely-on-china-vaccines.html)**
+在国会大厦发生骚乱后，川普被科技巨头们禁止了使用 Facebook 、Twitter、Youtube和Insgram，这让他失去了多年来用以和美国人民直接交流的强大工具，他也逐渐在大众的视野里慢慢退去。追随他的爱国者们时刻盼望着他的归来。
 
-CNBC 7月7日电，根据人口调整后的每周 Covid 病例数，在世界上至少有六个接种率最高的国家/地区仍然居高不下——其中五个国家依赖来自中国的疫苗。中国疫苗的有效性受到越来越多的质疑，而且缺乏关于它们对更易传播的 delta 变体的保护数据。
+他将以何种方式回归大众的视野呢？我们将一起拭目以待。请所有川粉，关注GTV,GNEWS和GETTR,新中国联邦将给你带来第一手的资讯。如果届时川普公开宣布入驻GETTR，这将是令人振奋的消息！他终于可以自由发声了！美国需要他去实现再次伟大，爱国者们需要他带领着去保护他们的国家，川粉们希望通过GETTR社交平台重新获取川普的最新资讯。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09194811/unknown-1-6.png)
+（本文仅代表作者个人观点）
 
-**3.[弗吉尼亚妇女讲述了 COVID 疫苗引起的“大量脑出血”，因为福奇告诉犹豫不决的人“克服它”](https://www.foxnews.com/media/virginia-woman-massive-brain-bleed-covid-vaccine)**
+编辑：洛杉矶盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-FOX  7月9日电，一名[弗吉尼亚](https://www.foxnews.com/category/us/us-regions/southeast/virginia)妇女讲述了她在第二次注射[冠状病毒](https://www.foxnews.com/category/health/infectious-disease/coronavirus)疫苗后濒死的经历，她在接受第二批疫苗后仅 18 小时就被送往医院，接受了紧急开颅手术，回到家后，身体左侧使用受限，双眼视力下降。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09194954/unknown-2-3.png)
-
-**4.[欧盟发现轻度心脏炎症与 mRNA疫苗注射之间的潜在联系](https://www.reuters.com/business/healthcare-pharmaceuticals/eu-regulator-lists-heart-condition-possible-side-effect-mrna-vaccines-2021-07-09/)**
-
-路透社7月9日电，欧洲药品监管发现接种COVID-19疫苗和心脏炎症之间可能存在的联系，欧洲药品管理局 (EMA) 安全委员会表示，心脏病心肌炎和心包炎必须列为两种mRNA疫苗可能存在的副作用，并补充说此类病例主要发生在疫苗接种后的 14 天内。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09195058/unknown-3-2.png)
-
-**5.[上千的人以为自己接种了Covid疫苗，其实他们被打的是盐水](https://edition.cnn.com/2021/07/05/india/india-fake-covid-vaccine-scam-intl-hnk/index.html)**
-
-CNN 7月5日电，孟买警察局高级官员Vishal Thakur，在孟买附近至少举行了 12 次假疫苗接种活动，约有2500人被收取了接种费用，然后被打了盐水。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09195246/unknown-4-2.png)
-
-审核：蚂蚁兄弟； 校对：阿伯塔； 发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
++2
