@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】欧盟希望通过“调整机制”以阻止“碳泄漏”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1385226/)
+## 【热点播报】三位科学家从《柳叶刀》驳斥实验室泄密理论的声明中删除了自己的名字
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1385464/)
 
 作者：纽约香草山农场 四季
 
@@ -12,25 +12,25 @@
 
 
 
-据零对冲报道，欧盟希望通过碳边界调整机制（CBAM）以阻止“碳泄漏”。但是欧盟强调，这不是税收也不是关税，而是“调整机制”，是一种在边境设置的环境改善措施，以响应欧盟的内部规定。
+据AG网站援引《华盛顿自由灯塔》的报道，尽管《柳叶刀》杂志加倍努力为中共国辩护，并声称没有证据表明冠状病毒起源于实验室泄漏，但该杂志的最新声明中却没有三位原本同意这一评估的著名科学家。
 
-![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/2021-07-06_10-09-50.jpg?itok=8oAQyxT4)图片来源：零对冲
+![]()![](https://s1.freebeacon.com/up/2021/07/pjimage-16.jpg)图片来源：华盛顿自由灯塔 via Wikimedia Commons, Twitter, and Getty Images
 
-碳边境调整机制（CBAM）旨在为绿色生产创造财政激励措施并阻止“碳泄漏”，可以理解为，将可能排放温室气体的行业转移到欧盟之外以避免执行更严格的标准。
+《华盛顿自由灯塔》报道称，《柳叶刀》杂志7月5日发表了一份声明，再次申明没有“科学验证的证据”表明COVID-19是从实验室中逃脱，而此份声明的签名者大多是在2020年2月的一份声明中否定了实验室泄露假说的同一个科学家团队。 但是，新的声明中缺少了原来声明中的三位签名者，包括与武汉病毒研究所有联系的威廉-卡雷什。这可以被看作是武汉实验室的科学联盟出现了裂痕。
 
-虽然欧盟表示，它和华盛顿已经同意共同商讨这个计划，但其他国家纷纷表示担忧。澳大利亚总理斯科特-莫里森称，任何碳关税都是“另一种名称的贸易保护主义”。俄罗斯也表示，这可能会破坏贸易规则。
+卡雷什（Karesh）是生态健康联盟（EcoHealth Alliance）负责卫生政策的执行副总裁，该组织用美国国家卫生研究院的拨款资助武汉实验室的功能增强研究。生态健康联盟的主席彼得-达扎克（Peter Daszak）发起了《柳叶刀》最初的声明，但他最近被从《柳叶刀》关于病毒起源的正式委员会中移除了。最初的签署人包括卡雷什（Karesh）、伊坎医学院彼得-帕莱斯（Peter Palese）和芝加哥大学的伯纳德-罗兹曼（Bernard Roizman），但是这三个人的签名都没有出现在最新的声明中——尽管达斯扎克签署了这两份声明。
 
-作为世界上最大的碳市场，欧盟的排放交易系统（ETS）的基准价格本月创下了每吨58欧元以上的记录，其中部分原因是欧盟即将对边境征税。新的机制要求，出口商需在欧盟边境支付同类欧盟生产商在欧盟排放交易系统（ETS）中的相应碳价格。
+当被问及是否改变了对实验室泄漏可能性的看法时，帕莱斯回答说，“没有评论！”而卡雷什和罗兹曼则没有回应询问。
 
-为此，如果第三国对欧盟的出口品被涵盖或涉及到碳边境调整机制（CBAM）中，他们可能会受到直接或者间接影响。因此，碳边境调整机制所涵盖的行业范围是确定哪些气候脆弱国家可能受到直接或间接影响的关键问题。
+缺少的这三个签名反映了关于COVID-19起源的科学共识中不断扩大的裂缝。实验室泄露假说一度被认为是极右的阴谋论，但在5月份，前《纽约时报》科学记者尼古拉斯-韦德在《原子科学家公报》上为其进行了详细的辩护，从而成为主流。在韦德的文章之后，诺贝尔奖得主大卫-巴尔的摩说，实验室泄密是一个严肃的假说，他“不会排除”，而其他生物学家则坚持认为支持它的科学证据非常薄弱。
 
-根据欧盟委员会的清单草案，可能受影响的国家包括莫桑比克、几内亚、塞拉利昂、加纳、喀麦隆（铝）、津巴布韦、赞比亚（钢铁）、摩洛哥（电力）、阿尔及利亚、埃及、特立尼达和多巴哥（化肥），以及G4集团（BASIC countries，中共国、印度、巴西以及南非四个国家）。在这种情况下，似乎欧盟消费者和上述的国家都将为这一措施买单。
-
-欧盟将于7月14日公布其一揽子立法，以期到2030年能够将温室气体净排放量在1990年的水平上减少55%。
+最近的《柳叶刀》声明说：“我们认为，来自科学文献中新的、可信的和经过同行评审的证据中最有力的线索是该病毒在自然界中进化而来。关于大流行病的实验室泄漏源的建议仍然没有直接的可被同行审议的证据可以被发表于科学期刊之上”。
 
 参考阅读：
 
-[EU Tries To Convince Trading Partners Its Carbon Tax Is Not A Tax](https://www.zerohedge.com/geopolitical/eu-tries-convince-trading-partners-its-carbon-tax-not-tax)
+[3 Scientists Drop Names From Lancet Statement on COVID Origins](https://freebeacon.com/coronavirus/3-scientists-drop-names-from-lancet-statement-on-covid-origins/)
+
+[Three Scientists Remove Their Names from Lancet Statement Denouncing Lab-Leak Theory](https://amgreatness.com/2021/07/08/three-scientists-remove-their-names-from-lancet-statement-denouncing-lab-leak-theory/)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
@@ -52,4 +52,4 @@
 
 
 
-+1
+0

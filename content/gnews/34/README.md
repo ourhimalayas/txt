@@ -1,16 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美将更多涉嫌侵犯人权的中国公司列入经济黑名单
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1384737/)
+## 无人机大战
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1385298/)
 
 2021年7月9日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09094820/Bild1-15.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09140643/comps-sc-china-drone.jpg)
 
-据《路透社》报道，拜登政府的商务部最早将于周五将 14家中国公司列入其经济黑名单，理由是涉嫌在新疆侵犯人权和高科技监控。即将被列入实体名单的公司详情尚不清楚。2019 年，特朗普时期的商务部因为新疆人权问题将20个中国公安局和 8 家中共国顶级的人工智能初创公司列入其经济黑名单。联合国专家和人权组织估计，有超过 100 万人被关押在新疆的再教育营中。
+中共公布绝密的人工智能无人机，无需人类驾驶即可追踪与炸毁敌方潜艇。中共正开发一种水下攻击机器人，能自动摧毁敌方潜艇。
 
-**【[新闻来源](https://www.voachinese.com/a/u-s-set-to-add-more-chinese-companies-to-blacklist-over-xinjiang/5959466.html)】**
+十年前，这种无人驾驶攻击机首次在台湾海峡试射，但直到现在它的存在才被公开。
+
+据《南华早报》报道，建造该无人机的项目由中国人民解放军资助，可以追溯到1990年代。据报道，在测试中它能够探测到假潜艇，能识别其来源并用水雷击中它。
+
+据说该无人驾驶机完全依靠人工智能，不需要操作员的任何指示。
+
+部分解密项目的细节在上周的一篇学术论文中被披露。
+
+研究人员描述了2010年在台湾海峡进行的一次测试里，其中一架无人机被编程为在海面下30英尺左右，按照预先设定的路线飞行。
+
+领导该团队的梁国龙教授说，如果有更先进的技术，无人机将能够成群结队地进行狩猎。
+
+“研究人员周五在《哈尔滨工程大学学报》上发表的论文中说：”未来水下战争的需求为无人操纵战斗机带来了新的发展机遇。
+
+观察者说，这份文件发表的时机很重要，因为它是在人们越来越担心中共会入侵台湾的情况下发表的。
+
+并且这更是向美国及其盟友发出的一个信号，即对这个独立岛国的任何防御都将充满风险。
+
+**【[新闻来源](https://www.thesun.co.uk/news/15532750/china-top-secret-underwater-drone/)】**
 
 * * *
 
@@ -20,7 +38,5 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
-
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1

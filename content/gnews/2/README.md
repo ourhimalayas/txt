@@ -1,27 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】布林肯在中共进行“709镇压”六周年之际发表声明
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1384224/)
+## 美国: 中共即将对台湾发动的攻击可能涉及其他国家
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1385444/)
 
-#### 文章撰写:【默凡】
+2021年7月9日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09091101/Snipaste_2021-07-0sdf9_21-sdafsadf10-12.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08214601/0-2-2.png)这张2018年1月31日的档案照片中，一名台湾军官在台湾南部高雄附近的军事演习中，在海军第124舰队拉斐特号护卫舰上向台湾国旗敬礼。
 
-美国时间7月8日（中共国时间7月9日），在中共国当局对维权律师展开“709镇压”事件的六周年之际，美国国务卿布林肯先生正式发表声明，主要内容总结如下：
+摘要翻译：
 
-1、美国对“709镇压”事件中被中共不公正的拘留、审问和监禁的300多名律师和人权捍卫者表示敬意；
+美国五角大楼印太司令部负责情报机关的海军上将本周警告说，中共在亚洲日益增长的军事力量增加了北京对邻国发动战争的危险，而台湾只是未来可能的几个目标之一。
 
-2、中共国至今仍然对许志永等许多最初被捕的人进行审前羁押，美国政府呼吁中共释放他们，并恢复他们律师资格，以及确保其家人免受骚扰；
+东亚司令部最高情报官员（即J-2）迈克-斯图德曼（Mike Studeman）少将在周三的一次会议上说，美国军队正在加强武器装备，以便在该地区可能因台湾或另一个美国盟友或伙伴而爆发冲突时使用。
 
-3、中共此举破坏了社会稳定和法治，美国永远支持那些坚持正义，追求法治的人。
+斯图德曼上将在夏威夷司令总部通过电话告诉线上会议, “我们想警告的是：这是所有战线上的危机。这种认为这只是台湾的情况，是对复杂性的理解失败，因为它没有那么简单。台湾是中国共产党领导人发誓要与大陆统一的岛国，要是等到情报机构收到中共准备对台湾发动水路攻击的警告时再采取行动将是一个错误。”
 
-参考文章：[布林肯国务卿就中国抓捕维权律师的“709镇压”六周年发表声明(全文翻译）](https://www.voachinese.com/a/antony-blinken-709-crackdown-lawyers-20210708/5959251.html?tg_rhash=653de58c160fe7)
+他说。中国的共产党政权正在对 “很多邻国” 施加压力。
 
-本文仅代表作者本人观点，不代表Gnews平台
+中共对台湾岛进行的低强度冲突，增加了100英里宽的台湾海峡的危险性。
+
+“这已经是一场正在进行的斗争”。
+
+这位上将反映了印度洋-太平洋司令部前任和现任司令官早些时候的评论，他们在今年早些时候向国会作证时说，中共似乎正准备在2030年或之前对台湾采取行动。斯图德曼上将说，美国需要以冷战时期对付苏联的那种努力来对抗中共国。
+
+**【**[新闻来源](https://www.washingtontimes.com/news/2021/jul/8/us-pacific-intel-chief-coming-chinese-attack-taiwa/?utm_source=RSS_Feed&amp;utm_medium=RSS)**】**
 
 * * *
 
-校对发布：日本东京方舟农场 文柯Miles
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
