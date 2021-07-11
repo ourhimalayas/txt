@@ -1,58 +1,243 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多国已获得中共病毒生化武器证据&nbsp; 以毒灭共将成为爆料革命最伟大里程碑
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1388472/)
+## 报告: 中共国从全球数百万女性身上提取 DNA
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1389748/)
 
-**摘要：在2021年6月25日的GTV直播中，郭先生说美国国会正在通过一系列对中共惩罚的法案，欧洲、日本、澳大利亚等国已经获得来自中国的科学家和医学人士提供的全面证据和孙立军等中共藏匿在它国的证据，以毒灭共在五月份其实已胜利，剩下的只是走法律程序，以毒灭共会成为爆料革命最伟大的里程碑！**
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11074157/510A5F6B-35E9-4D0B-9264-E36C3D464E94.jpeg)](https://gtv.org/video/id=60e9bab74c6dfd47b42bdaf8)
+[https://gtv.org/video/id=60e9bab74c6dfd47b42bdaf8](https://gtv.org/video/id=60e9bab74c6dfd47b42bdaf8)
 
-**多国已获得中共病毒生化武器证据****  ****以毒灭共将成为爆料革命最伟大里程碑**
+字幕内容：
 
-**The Strategy of Taking Down the CCP By Spreading the Truth of the Virus Will Be the Greatest Milestone of The Whistleblower Movement**
+Elizabeth MacDonald (Fox business host)
 
-美国人民的代表叫国会，不是白宫。国会正在一系列的法案在对中共进行惩罚。如果你但凡有一点常识和智慧，你要记住，病毒的事情不是说什么会不会解决，是一定会解决。以毒灭共会成为爆料革命最伟大的里程碑！
+伊丽莎白·麦克唐纳 (福克斯商业频道主持人）
 
-The representative of the American people is the Congress, not the White House. The Congress is passing a series of bills to penalize the Chinese Communist Party. If you have a little common sense and wisdom, you need to remember – there is no question that the virus thing will be straightened out, definitely. The strategy of “taking down the CCP by spreading the truth of the virus” will be the greatest milestone of the Whistleblower Movement!
+Well this puts into new context
 
-我再告诉大家，我们的从国内救出的科学家，在欧洲的科学家彻底地改变了以毒灭共的游戏规则。我们刚刚救出的人、到达美国的人和到达西方的人，已经100%地让西方认识到这是生化病毒，这是真正的病毒武器、超限战，真正的这是生化武器了。
+嗯，这就有了新的背景
 
-Let me tell you one more time –  the scientist we rescued from China, the one in Europe, has completely changed the rules of the game in terms of eradicating the CCP with the virus. Those who were just rescued by us and arrived in the US or the West have completely made the West realize that this is a bioweapon virus, and this is a real bioweapon and unrestricted warfare. This is a real bioweapon.
+why China is accused of covering up the origins of the outbreak in Wuhan
 
-我可以说从5月份这一切已经是100%定局，剩下的就是一个程序。而且我再可以告诉大家，会有更多的内部知情者和参与者会与我们爆料革命、新中国联邦合作，会跟世界上很多国家合作。
+为什么中共国被指责掩盖武汉爆发的起源
 
-I can say that the ending was determined in May already, and what’s left is to just finish the process. I can tell you once more that there will be more insiders and people who have been involved [in the making of the bioweapon] joining us in the Whistleblower Movement and the New Federal State of China, and they will work with many countries around the world.
+and how the Wuhan lab was collaborating with the Chinese military
 
-上周末有从国内出来的级别不高但很重要的医疗界人士和医学界人士，向欧洲的某国提供了所有的全程的一些病人的案例和信息，并且提供了视频医疗证据，还有研发的证据，对这些国家都是巨大的震撼。
+以及武汉实验室如何与中共军方合作
 
-Last weekend a low-level but a very critical medical and health science personnel gave a certain European country all the information including some patient case reports, video evidence of medical treatment and evidence of research and development [of the virus], which shocked these countries greatly.
+and also Dr. Fauci and the NiH
 
-特别像澳大利亚。澳大利亚政府获得了像孙力军这些人藏在澳大利亚他老婆、他妹妹在家里边的一些武汉的一些证据。哈哈，武汉。澳大利亚政府更加坚定这绝对是共产党的病毒武器。澳大利亚拥有的证据一定会跟美国和英国、欧洲分享，这无容置疑。
+还有福奇博士和国立卫生研究院
 
-Especially in Australia, the Australian government obtained some evidence from Wuhan that people like Sun Lijun had hidden in Australia at his wife’s and his sister’s houses. Haha, Wuhan. The Australian government is now more confident that this is definitely a bioweapon of the CCP’s. The evidence that Australia has will definitely be shared with the US, the UK and Europe. There is no doubt about it.
+was funding the Wuhan lab super-virus research
 
-逃到日本去的这些军人和医学人士给日本政府提供的东西，日本政府全面在调查研究中，日本更加地震撼，日本拥有的也会跟美国、欧洲分享。每时每刻都在发生着这些一个又一个的真正的核导弹在袭击着中共，而且没有人可以阻挡。
+是资助武汉实验室超级病毒研究
 
-The stuff that the military and medical personnels, who fled to Japan, provided to the Japanese government is being fully investigated by the Japanese government and has shocked Japan even more. What Japan has will be shared with the US and Europe as well. Such things are hitting the CCP like real nuclear missiles all the time, and nobody can stop this.
+You know the other thing that Reuters is reporting is
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-[视频来源](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64)： (53:01-55:50)
-鸣谢：[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1351941/)
+你知道路透社报道的另一件事是
 
-* * *
+they were China is using this DNA data bank
 
-***翻译**：一花一世界
-**字幕**：Rock小哥
-**校对**：BruhM
-**视频解码剪辑**：恒久忍耐
-**自媒体推广**：V%、TINALS
-**校对 & 编辑**：Isaiah4031*
+是中共国利用DNA的数据库
 
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-GETTR: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
+They got the biggest DNA data bank from around the world
 
-+3
+他们从世界各地获得了最大的 DNA 数据，并建立数据库
+
+in the world rather
+
+不如说是，在世界上获得了
+
+China is running the biggest DNA data bank in the world
+
+中共国正在运行世界上最大的DNA数据库
+
+and that they’re using DNA they’re harvesting via this prenatal test
+
+并且他们正在使用华大集团出售的通过这个
+
+that the BGI group sells
+
+产前测试获得的 DNA
+
+It’s a Chinese company it is a popular test too
+
+这是一家中共的公司，也是一个很普遍的测试
+
+Maybe they’re talking about genetically enhanced soldiers, pathogens
+
+也许他们在谈论基因增强的士兵
+
+that would target Americans or other populations around the world
+
+将针对美国人或世界各地的其他人群的病原体
+
+target the food supply so what can the U.S. congress do about this?
+
+针对其他国家的食品供应链，那么美国国会能做些什么呢？
+
+Rep. Darrell Issa (R-CA)
+
+众议员达雷尔·伊萨 (共和党-加州)
+
+Well I think what we have to do is what president Trump was doing
+
+好吧，我认为我们必须做的是川普总统以前做的事情
+
+That is treat China as an existential threat
+
+那就是将中共国视为生存威胁
+
+Treat them as an evil empire to paraphrase president Reagan
+
+用里根总统的话说，将他们视为邪恶帝国
+
+and recognize we are in a economic war
+
+并认识到我们正处于一场经济战争中
+
+but we’re also in a war that we have a history on
+
+但我们也处在一场我们历经许久的战争中
+
+and the history is that each time we see a new threat
+
+而历史上，每次我们看到新的威胁时
+
+we find out we gave or sold that threat to the Chinese
+
+我们发现我们把威胁拱手相让给中共
+
+You know the communists have said forever
+
+你知道共产党人说过永远
+
+when they hang us
+
+当他们吊死我们时
+
+they will do it with a rope we sold them
+
+他们会用我们卖给他们的绳子来吊死我们
+
+and in this case buying discounted products from countries all over the world
+
+在这种情况下，从世界各国购买打折产品
+
+that allowed them to harvest it that is in addition to the kind of data harvesting spying
+
+这使他们能够收获它，除了那种数据收集间谍
+
+they might do by raiding our DNA tranches here
+
+他们可能会在这里突袭我们的 DNA 片段
+
+So yes, they do have the largest and continue to do so
+
+所以是的，他们确实拥有最大数据库，并继续这样做
+
+the challenge they know no limit
+
+他们知道的挑战是无限的
+
+what they’re willing to do to accomplish their goals of world dominance
+
+他们愿意做任何事来实现他们统治世界的目标
+
+Elizabeth MacDonald
+
+伊丽莎白·麦克唐纳
+
+Here is the thing Quickly
+
+这里是这样，很快的
+
+I have to cut in because we’re running out of time
+
+我必须要插入，因为我们的时间要不够了
+
+The U.S. and the U.K. give their country the people they give DNA
+
+美国和英国给出他们的国民的DNA
+
+The U. S. and UK give DNA to China of Americans and of British people
+
+美国和英国将本国人的DNA给了中共国
+
+China doesn’t allow its Chinese DNA to go out of the country
+
+中共国不允许中国人的DNA走出国门
+
+China has been accused of genocide
+
+中共国已被指控种族灭绝
+
+Now the final word Reuters is reporting
+
+现在最后要说的，路透社报道
+
+that China could be doing is singling out Tibetans and
+
+中共国可能正在做的就是孤立出西藏人和
+
+singling out Uyghurs and treats their characteristics
+
+孤立出维吾尔族人并对待他们的特征
+
+Your final word
+
+最后的时间交给你
+
+Rep. Darrell Issa
+
+众议员达雷尔·伊萨
+
+There is nothing scarier than a racial purity government
+
+没有什么比种族纯洁性政府更可怕的了
+
+even one that thinks about it or considers it
+
+即使是考虑它或考虑它的人
+
+but remember a disease is easily developed
+
+但请记住，疾病很容易开发的
+
+would only be immune have immunity by a chosen group or the like
+
+只有被选定的群体或类似群体才能免疫
+
+Are we facing that? Yes
+
+我们是否面临这样的情况？ 是的
+
+I think after Covid-19
+
+我认为在 Covid-19 之后，
+
+we have recognize that we cannot take chances with China
+
+我们已经认识到我们不能再给中共国机会了
+
+We have to have defenses that are affirmative especially in data
+
+我们必须有肯定的防御，尤其是在数据方面
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://www.youtube.com/watch?v=OdmllkfTAFY](https://www.youtube.com/watch?v=OdmllkfTAFY)
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1

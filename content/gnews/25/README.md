@@ -1,33 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】中国芯片巨头清华联合集团寻求破产
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1388770/)
+## 【实时推文】比尔·盖茨是收集美国人DNA数据的华大基因重要合作伙伴之一
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1389982/)
 
-陷入困境的中国科技旗舰清华联合集团（紫光集团）周五证实，它的一家债权人已要求法院对集团启动破产程序，这是中国建设自力更生半导体产业目标的最新挫折。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11092732/downloasdfgg5h65uj87o98p098ad-34.jpeg)
 
-中共支持的清华大学集团表示，已收到北京市第一中级人民法院的通知。一位债权人要求法院支持对这家企业集团的破产保护，诉集团未能偿还债务。
+娜塔莉·温特斯7月10日在推特发文表示：
 
-此前，清华大学集团自11月以来错过了一系列债券支付期限。清华大学集团在向日经亚洲发表的一份声明中表示：”我们集团将全力配合法院进行司法调查，并积极解决债务风险。”我们支持法院依法保护债权人的合法权益。
+比尔·盖茨是收集美国人DNA数据的华大基因重要合作伙伴之一，比尔·盖茨在参观华大基因总部时称其“不拘一格”、“自由”和“开放”。
 
-根据中国商业数据平台Qichacha和深圳上市子公司的公开文件，债权人是在香港上市的汇尚银行，这是一家位于安徽省的中型国有银行。截至公布时，该银行尚未回应置评请求。
+转国家脉动报道：CBS新闻频道的60 MINUTES节目今年1月曾曝光华大基因公司与中共军方有直接关系，在此次疫情中以中共病毒核酸检测为机“收集、储存和利用美国公民的生物特征信息”。
 
-清华大学集团在一次行业活动上的展台：这个集团是芯片制造商的母公司，寻求与三星电子和高通等全球领先企业竞争。多年来，清华大学集团一直得到中央和地方政府的支持，因为它表示了追求北京打造国内半导体产业的雄心壮志，而国内半导体产业是中国”2025年中国制造”产业计划的重要组成部分。集团培育了一个全国记忆芯片制造冠军——长江内存技术公司，它的移动芯片设计部门UNISOC的目标是与美国高通和台湾的联发科竞争。
+除了奥巴马政府允许该公司在美国营业并站稳脚跟，比尔和美琳达盖茨基金会也在华大基因扩张其美国业务的过程中起到了关键作用。
 
-债务推动了该集团建立芯片制造能力的计划。据《日经亚洲》报道，由清华牵头的中国两个备受瞩目的项目，成都一家总投资高达2000亿元人民币（$308亿美元）的巨型3D NAND闪存工厂和重庆的DRAM内存芯片工厂遭遇重大延误，可能报废。这个公司正寻求出售其在UNISOC的部分股权，以筹集现金。
 
-据Refinitiv称，截至今年年初，清华大学集团要么违约，要么在价值约36亿美元的7只陆上和离岸债券上触发交叉违约。
 
-清华大学集团表示，法院主导的重组不会影响公司的法人地位或生产和其他运营。该集团还淡化了对子公司业务的影响。集团拥有复杂的股东利益网络，包括国有企业和政府基金。
+> Bill Gates is a massive partner of BGI Genomics – the Chinese Communist Party genomics firm harvesting Americans’ DNA.
+> 
+> He’s fawned over the company as “out-of-the-box,” “liberal,” and “open”while touring its headquarters. [https://t.co/4ls5vOCPRB](https://t.co/4ls5vOCPRB)
+> — Natalie Winters (@nataliegwinters) [July 10, 2021](https://twitter.com/nataliegwinters/status/1413853197928632322?ref_src=twsrc%5Etfw)
 
-据清华联合集团统计，2021年第一季度，安防芯片开发商国信微电子和云计算基础设施的Unisplendour公司两家上市子公司的收入同比分别增长50%和30%。两家上市单位在深圳证券交易所的文件中指出，如果一个关键利益相关者重组，其”股东结构将来可能会发生变化”。
 
-参考链接：[https://asia.nikkei.com/Business/Tech/Semiconductors/China-chip-giant-Tsinghua-Unigroup-says-creditor-seeks-bankruptcy](https://asia.nikkei.com/Business/Tech/Semiconductors/China-chip-giant-Tsinghua-Unigroup-says-creditor-seeks-bankruptcy)
 
-翻译整理：蓝精灵
+以上新闻来源，不代表Gnews平台。
 
-校对发布：Penny
+* * *
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+釆集撰稿：ZZB104
+
+校对发布：WK121
 
 0

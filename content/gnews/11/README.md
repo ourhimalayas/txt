@@ -1,58 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多国已获得中共病毒生化武器证据&nbsp; 以毒灭共将成为爆料革命最伟大里程碑
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1388472/)
+## 《柳叶刀》和《自然》杂志的“科学家”和“医生”的邪恶手上沾满鲜血（第三部分，共五部分）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1389715/)
 
-**摘要：在2021年6月25日的GTV直播中，郭先生说美国国会正在通过一系列对中共惩罚的法案，欧洲、日本、澳大利亚等国已经获得来自中国的科学家和医学人士提供的全面证据和孙立军等中共藏匿在它国的证据，以毒灭共在五月份其实已胜利，剩下的只是走法律程序，以毒灭共会成为爆料革命最伟大的里程碑！**
+- 作者：Jenny Ball
 
-**多国已获得中共病毒生化武器证据****  ****以毒灭共将成为爆料革命最伟大里程碑**
 
-**The Strategy of Taking Down the CCP By Spreading the Truth of the Virus Will Be the Greatest Milestone of The Whistleblower Movement**
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-美国人民的代表叫国会，不是白宫。国会正在一系列的法案在对中共进行惩罚。如果你但凡有一点常识和智慧，你要记住，病毒的事情不是说什么会不会解决，是一定会解决。以毒灭共会成为爆料革命最伟大的里程碑！
+**西班牙2021年7月11日电/西喜社**——
 
-The representative of the American people is the Congress, not the White House. The Congress is passing a series of bills to penalize the Chinese Communist Party. If you have a little common sense and wisdom, you need to remember – there is no question that the virus thing will be straightened out, definitely. The strategy of “taking down the CCP by spreading the truth of the virus” will be the greatest milestone of the Whistleblower Movement!
+很多人都报道了“科学”期刊的各种罪状，他们捍卫中共撒谎，谴责有效的治疗方法，并推动疫苗。 但他们所扮演的角色是巨大的，值得关注……和惩罚。
 
-我再告诉大家，我们的从国内救出的科学家，在欧洲的科学家彻底地改变了以毒灭共的游戏规则。我们刚刚救出的人、到达美国的人和到达西方的人，已经100%地让西方认识到这是生化病毒，这是真正的病毒武器、超限战，真正的这是生化武器了。
+这是一篇值得仔细阅读思考的文章，篇幅较长，我将按主题分成五部分，翻译整理出来和大家分享。
 
-Let me tell you one more time –  the scientist we rescued from China, the one in Europe, has completely changed the rules of the game in terms of eradicating the CCP with the virus. Those who were just rescued by us and arrived in the US or the West have completely made the West realize that this is a bioweapon virus, and this is a real bioweapon and unrestricted warfare. This is a real bioweapon.
+**《柳叶刀》向中共国磕头**
 
-我可以说从5月份这一切已经是100%定局，剩下的就是一个程序。而且我再可以告诉大家，会有更多的内部知情者和参与者会与我们爆料革命、新中国联邦合作，会跟世界上很多国家合作。
+COVID大流行引起了学术界对许多问题的关注。令人不安的是，我们发现，几十年来备受推崇的科学期刊——《柳叶刀》已经存在 198 年了——正在勾结审查重要事实，并扼杀科学辩论。 《柳叶刀》的声明将实验室泄漏理论嘲笑为一个可以被忽视的阴谋论，就是一个典型的例子。
 
-I can say that the ending was determined in May already, and what’s left is to just finish the process. I can tell you once more that there will be more insiders and people who have been involved [in the making of the bioweapon] joining us in the Whistleblower Movement and the New Federal State of China, and they will work with many countries around the world.
+据《每日邮报》报道，*2021*年*6*月*26*日：
 
-上周末有从国内出来的级别不高但很重要的医疗界人士和医学界人士，向欧洲的某国提供了所有的全程的一些病人的案例和信息，并且提供了视频医疗证据，还有研发的证据，对这些国家都是巨大的震撼。
+《柳叶刀》由*27*位专家签署的信，从科学、政治和媒体讨论方面压制任何有关流行病可能始于实验室而不是自然从动物身上蔓延开来的理论发挥了关键作用。
 
-Last weekend a low-level but a very critical medical and health science personnel gave a certain European country all the information including some patient case reports, video evidence of medical treatment and evidence of research and development [of the virus], which shocked these countries greatly.
+据报道，*Facebook*甚至使用它来将探索实验室泄漏假设的文章标记为*“*虚假信息*”……*但后来发现，《柳叶刀》声明是由英国科学家彼得*·*达扎克秘密起草的*——*他是武汉病毒研究所的长期合作者， 正在对蝙蝠冠状病毒进行高风险研究，并存在已知安全问题*……*
 
-特别像澳大利亚。澳大利亚政府获得了像孙力军这些人藏在澳大利亚他老婆、他妹妹在家里边的一些武汉的一些证据。哈哈，武汉。澳大利亚政府更加坚定这绝对是共产党的病毒武器。澳大利亚拥有的证据一定会跟美国和英国、欧洲分享，这无容置疑。
+四个月后，《柳叶刀》成立了一个*“**Covid-19*委员会*”*，以协助政府并查清起源。 它由杰弗里*·*萨克斯*(Jeffrey Sachs)*领导*……*令人难以置信的是，他支持由达扎克来领导委员会*12*人的工作组，调查*Covid*的起源*——*其中还有五名在《柳叶刀》声明信上签署者加入了工作组*……*
 
-Especially in Australia, the Australian government obtained some evidence from Wuhan that people like Sun Lijun had hidden in Australia at his wife’s and his sister’s houses. Haha, Wuhan. The Australian government is now more confident that this is definitely a bioweapon of the CCP’s. The evidence that Australia has will definitely be shared with the US, the UK and Europe. There is no doubt about it.
+上周，《柳叶刀》终于*“*撤回*”*了他的委员会，并在其声明中发布了一份*“*附录*”*，详细说明了他的一些中共国链接。 然而批评人士表示，该杂志仍未承认，该*2*月声明的另外六个签署者与达扎克的生态健康联盟有联系，作为其董事或合作伙伴。
 
-逃到日本去的这些军人和医学人士给日本政府提供的东西，日本政府全面在调查研究中，日本更加地震撼，日本拥有的也会跟美国、欧洲分享。每时每刻都在发生着这些一个又一个的真正的核导弹在袭击着中共，而且没有人可以阻挡。
+新泽西州罗格斯大学的生物安全专家和化学生物学教授理查德*·*埃布赖特*(Richard Ebright)*表示，《柳叶刀》最好声明达扎克和其他签名者之前的声明不实，并附上社论表达的担忧。
 
-The stuff that the military and medical personnels, who fled to Japan, provided to the Japanese government is being fully investigated by the Japanese government and has shocked Japan even more. What Japan has will be shared with the US and Europe as well. Such things are hitting the CCP like real nuclear missiles all the time, and nobody can stop this.
+现在《星期日邮报》获悉，《柳叶刀》将发表这些签署人的第二份声明，强调新冠病毒可能是通过从动物到人类的自然*‘*人畜共患病*’*传播而出现的。*”*
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-[视频来源](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64)： (53:01-55:50)
-鸣谢：[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1351941/)
+《柳叶刀》主编理查德·霍顿 (Richard Horton) 因长期捍卫和支持中共国政权而受到批评，并被指控利用《柳叶刀》追求政治事业并扼杀科学辩论。
 
-* * *
+2021 年 1 月，14 位全球专家向《柳叶刀》提交了一封信，其中他们声明，“自然起源没有确凿的论据支持，实验室起源不能被正式丢弃。” 霍顿拒绝了提交，称这不是该期刊的“优先事项”。
 
-***翻译**：一花一世界
-**字幕**：Rock小哥
-**校对**：BruhM
-**视频解码剪辑**：恒久忍耐
-**自媒体推广**：V%、TINALS
-**校对 & 编辑**：Isaiah4031*
+《柳叶刀》还发表了一项完全杜撰的研究，声称羟氯喹是危险的。 这份欺诈性论文引起了媒体的关注，并导致各国禁止将该药物用于*COVID-19*。
 
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-GETTR: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
+任何享有良好声誉的医学期刊都需要成为一个广泛讨论的开放平台。 霍顿拒绝发表起源论点的不同声音，这无疑损害了该期刊的信誉和声誉。 保守党议员鲍勃·西利告诉《每日邮报》：
 
-+3
+*“*对我们这个时代最重要的科学问题进行掩盖的说法与日俱增。 至关重要的是，我们要了解与《柳叶刀》等期刊勾结掩盖了大流行起源的真相。*”*
+
+让我们别忘了，《柳叶刀》发表了一项完全虚假的研究，声称羟氯喹是危险的。 这篇使用完全捏造数据的论文引起了媒体的关注，并导致各国禁止将该药物用于 COVID-19。
+
+这也引发了对该期刊可信度的严重质疑。 在同行评审过程中，为何没有发现这种欺诈行为？ 是不是《柳叶刀》允许这样做？还是因为它有助于保护可盈利的新型 COVID 药物和“疫苗”的推出？
+
+**评论： “让我们别忘了，《柳叶刀》发表了一项完全虚假的研究，声称羟氯喹是危险的”。之所以不能忘，因为爆料革命从2020年元月，科学家闫丽梦还爆料革命的医学博士就开始告诉世界，硫酸羟氯喹对预防和早期治疗中共病毒的作用。文贵先生用中共内部战友的情报信息，多次告诉世界硫酸羟氯喹的作用，这是中共制定的战略物资。川普总统亲自体验并向国民传达羟氯喹作用，这个既有效又经济的救命药，专家论证能够挽救85%患者的生命。**
+
+**但是，却遭到顶尖科学杂志不惜造假的抹黑，就是为了推出比羟氯喹贵300倍的新药和下一步的疫苗——这是中共为首的邪恶势力对世界人口的注射恐怖袭击！**
+
+**《柳叶刀》之类科学杂志的作用不容小视！他们同样手上沾满我们的鲜血！**
+
+**素材来源：**[noqreport.com](https://noqreport.com/2021/07/08/scientists-and-doctors-at-the-lancet-and-nature-have-blood-on-their-evil-hands/)
+
+素材： Jenny Ball；审核：文乐； 校对：阿伯塔； 发稿：信心的选择
+
+上一篇：[《柳叶刀》和《自然》杂志的“科学家”和“医生”的邪恶手上沾满鲜血（第二部分，共五部分）](https://gnews.org/zh-hans/1388302/)
+
+下一篇：《柳叶刀》和《自然》杂志的“科学家”和“医生”的邪恶手上沾满鲜血（第二部分，共四部分）
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1

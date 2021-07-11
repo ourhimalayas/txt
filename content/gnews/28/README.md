@@ -1,57 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】拜登与普京通话，敦促俄罗斯对网络勒索集团采取行动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1388726/)
+## 【秘翻快报】Gettr首席执行官称Twitter禁止推文导入，这意味着它是一个出版商
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1389920/)
 
-译评：纽约香草山健身部 Jack Li文阳
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11090952/asmdfoioii4895u9023ru230j09gdsjio0.jpg)
 
+转《新闻周刊》7月10日报道，Gettr首席执行官杰森·米勒(Jason Miller)周六发表了一份声明，表示Twitter无权阻止其用户将自己的推文导入Gettr，因为Twitter并非用户推文的所有者，也不是负责用户推文的出版商。
 
+米勒说到，Twitter似乎想利用Twitter用户“拥有”自己的推文，来获得《通信礼仪法》第230条中豁免其内容审核行为的责任这一好处。但现在Twitter阻止用户获得内容副本并不符合Twitter此前向用户宣传的“用户具有自己推文内容的拥有所有权”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+米勒补充说:“Twitter必须做出决定：是拥有每个人的推文，并为此负责的出版商；还是让用户拥有自己的原始推文副本？”
 
+Gettr于7月4日上线，是一个以捍卫言论自由、拒绝言论被非法监管为目标的社交媒体平台，加入人们可以聚集在这个平台上自由辩论，自由地表达政治观点，而不会被言论审查，据悉该平台上线后三天内就有100多万用户。
 
+至截稿日，《新闻周刊》联系了Twitter代表，希望他们就此发表评论，但尚未收到回复。
 
-新闻来源：NEWSMAX
+相关链接：[Gettr CEO Says Twitter Blocking Tweet Imports, Suggests That Makes It a Publisher](https://www.newsweek.com/gettr-ceo-says-twitter-blocking-tweet-imports-suggests-that-makes-it-publisher-1608577)
 
-新闻链接：[Biden Pushes Putin to ‘Take Action’ Against Ransomware Groups](https://www.newsmax.com/newsfront/biden-putin-ransomware/2021/07/09/id/1028087/)
+以上新闻来源，不代表Gnews平台。
 
-译文：
+* * *
 
-白宫表示，拜登总统于7月9日与俄罗斯领导人普京通话，敦促他要对以俄罗斯为据点的网络勒索集团“采取行动”。
+采集撰稿：BT119
 
-![](https://www.newsmax.com/CMSPages/GetFile.aspx?guid=4bdc353f-4d21-444c-9649-40b0b2112403&amp;SiteName=Newsmax&amp;maxsidesize=600)图片来源：Getty Images
-
-拜登还表示，美国会保护受到网络攻击威胁的美国人和关键基础设施，将采取“任何必要的行动”。
-
-白宫在一份声明中说，拜登与普京总统谈到了以俄罗斯为据点的犯罪集团正在进行的网络勒索攻击，这些攻击已经对美国和世界其他国家造成了影响。
-
-这些对美国及其他国家的网络勒索攻击在过去一年中急剧增加，其中包括一次高调的攻击导致美国东部的一条主要燃料管道被关闭。
-
-网络勒索攻击的目标还包括城市警察部门、医院和私营公司。
-
-白宫发言人Jen Psaki说，虽然白宫没有信息表明俄罗斯政府指挥了这些攻击，但克里姆林宫有责任采取行动。
-
-简评：中共为搞乱世界，线上线下狂放病毒。美国通过网络攻击事件，故意不说出中共为幕后黑手，反敦促俄罗斯采取行动，既可离间俄罗斯和中共的关系，还能试探出俄罗斯加入西方应对中共是真情还是假意，可谓一石二鸟。俄罗斯会否抽刀斩中共，给美国送上投名状？我们拭目以待。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+校对发布：WK121
 
 +1

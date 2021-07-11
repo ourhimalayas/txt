@@ -1,46 +1,275 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7/9/2021 国际财经快讯：欧盟 &#8220;脱欧法案 &#8220;的成本增加了数十亿英镑; 华尔街创收盘新高，金融业引领反弹
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1388659/)
+## 美国投资者们在中共国投资上获得了昂贵的教训
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1389005/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10191354/OIP-2.jpg)
-图片来源：网络
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10234346/ACBC4617-45F4-4D3A-BD7D-635C0B5C7AEC.jpeg)](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
+[https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
 
-**1.欧盟 “脱欧法案 “的成本增加了数十亿英镑**
+字幕内容：
 
-[尽管在加入欧盟及其前身欧洲共同体(EC)和欧洲经济共同体(EEC)的数十年间，英国政府向欧盟预算支付的费用远远超过了它的支出，但约翰逊和前任特雷莎都同意向布鲁塞尔支付被称为 “离婚 “的解决方案，包括英国脱欧前的支出承诺和欧盟工作人员的养老金缴款。据天空新闻报道，英国预算责任办公室(OBR)估计，2017年的账单为371亿英镑，但没有商定一个确切的数字，只有一个计算方法–在其最新的账目中，布鲁塞尔将其预期金额提高到475亿欧元–408亿英镑。欧盟委员会的一位发言人在BBC援引的评论中宣布：”我们已经通知英国政府，他们必须在今年上半年进行支付，而且他们事实上已经支付了部分相关金额。”](https://www.breitbart.com/europe/2021/07/09/surprise-cost-of-eu-divorce-bill-increases-billions/)
+Larry Kudlow (Fox businese host)
 
-**2.华尔街创收盘新高，金融业引领反弹**
+拉里·库德洛 (福克斯商业频道主持人)
 
-[美国三大股指周五反弹至创纪录的收盘高点，因为金融业和其他以经济为重点的行业从本周早些时候因增长担忧引发的抛售中反弹。这一反弹使股指在本周取得了微弱的涨幅，本周美国国债也出现了大幅反弹，因为投资者担心随着变种CCP病毒在全球蔓延，美国经济复苏可能失去动力。美国10年期国债周五下跌，停止了连续8天的价格上涨，而标准普尔500指数金融板块跳涨2.9%，是该板块3月1日以来最大的单日百分比涨幅。金融板块领涨，其次是能源、材料和工业板块。](https://www.oann.com/sp-500-hits-fresh-peak-as-cyclicals-roar-back/)
+So China cracks down on the ride-hailing firm DIDI,
 
-**3.中共国降低存款准备金率50个基点**
+所以中共国打击打车公司滴滴
 
-[中共国周五决定为其经济注入1万亿元人民币（1540亿美元），这提醒了投资者，即使是最大的经济体也可能在中共病毒大流行的时候偶尔需要提振一下。人民银行（PBOC）在其标志性的周五晚间举措中，将其存款准备金率（RRR）–银行必须停放在中央银行的资金安全–降低了50个基点。这是自去年4月中共病毒在全球迅速蔓延以来的第一个此类步骤。同样重要的是，它结束了当局九个月的逐步收紧政策，因为当局急于防止信贷增长失控。摩根士丹利的分析师说：”我们认为这标志着从反周期紧缩转向宽松的倾向，””鉴于最近在共病毒复苏、供应链中断和国内消费进一步放缓的情况下出现的增长停顿。”](https://www.oann.com/analysis-chinas-rrreminder-that-economies-remain-fragile/)
+and it is American shareholders get an expensive lesson in Xi Jinping risk
 
-**4.反垄断诉讼：谷歌试图 “先发制人 “地取消三星的竞争性应用商店**
+而且美国股东们在“习近平风险”中得到了昂贵的教训
 
-[The Verge报道说，根据一个由三十几个州检察长组成的联盟提起的反垄断诉讼，谷歌采用了反竞争做法，试图 “先发制人地破坏 “三星的Galaxy商店，防止它成为自己的Play商店的一个可行的竞争对手。该诉讼指责谷歌试图控制安卓平台上的应用分配，并声称谷歌贿赂应用开发者，以阻止他们规避其商店。这些指控挑战了谷歌对其政策的核心辩护之一，即与苹果的iOS规则不同，安卓系统既允许竞争性应用商店。该诉讼声称，谷歌所谓的开放性是一个幌子，虽然客户在技术上可以选择从哪里获得他们的应用程序，但谷歌的商业行为已经阻止了一个可行的应用程序商店竞争对手的出现。”诉讼书称：”当三星开始改造自己的应用商店–三星Galaxy商店时，谷歌深感威胁。](https://www.breitbart.com/tech/2021/07/09/antitrust-lawsuit-google-tried-to-preemptively-quash-samsungs-rival-app-store/)
+Joining us now Michael Pillsbury
 
-**5.中共国反垄断监管机构阻止腾讯53亿美元的视频游戏并购案**
+现在加入我们的是迈克尔·皮尔斯伯里（白邦瑞）
 
-[中共国市场监管机构周六表示，它将以反垄断为由阻止腾讯控股有限公司合并国内两大电子游戏流媒体网站–虎牙和斗鱼的计划。腾讯去年首次宣布合并虎牙和斗鱼的计划，旨在精简其在这两家公司的股份，据数据公司MobTech估计，这两家公司在价值超过30亿美元的市场中占有80%的份额，并且增长迅速。腾讯是虎牙的最大股东，拥有36.9%的股份，还拥有斗鱼三分之一以上的股份，两家公司都在美国上市，市值合计53亿美元。路透社首先报道了国家市场监管局（SAMR）计划在周一阻止这项交易，这是在监管机构审查了腾讯为合并提出的额外优惠措施之后。国家市场监管总局表示，虎牙和斗鱼在视频游戏直播行业的合并市场份额将超过70%，鉴于腾讯在网络游戏运营领域已经拥有超过40%的市场份额，它们的合并将加强腾讯在这个市场的主导地位。](https://www.oann.com/chinese-antitrust-regulator-blocks-tencents-5-3-billion-video-games-merger/)
+the director of center for Chinese strategy at the Hudson Institute
 
-**6.推特向印度低头，将 “完全遵守 “互联网法规**
+哈德逊研究所的中国战略中心主任
 
-[推特表示，它将完全遵守印度实施的严厉的新互联网法规。在谷歌、Facebook、WhatsApp和其他公司决定遵守这些法律之后，该社交媒体平台一直是最后一个坚持反对法律的科技巨头。印度的新法规要求科技公司删除非法内容，就像它们在其他地方被要求做的那样，并任命一名 “申诉官 “来听取用户对内容的投诉。印度法院指示推特公司宣誓尊重印度的新规定。科技公司的员工有可能因不遵守新法律而被监禁。据彭博社报道，印度政府指责西方科技公司侵犯了其数字主权，这是外国政府越来越多的指控，它们指责西方科技公司是美国的一个分支。](https://www.breitbart.com/tech/2021/07/09/twitter-bows-down-to-india-will-fully-comply-with-internet-regulations/)
+Michael, Welcome back
 
-**7.亚马逊经理被告知对员工的绩效改进计划进行保密**
+迈克尔, 欢迎回来
 
-[据《西雅图时报》报道，亚马逊经理被指示不要告诉员工他们被列入绩效改进计划的情况。该指示被张贴在一个内部网页上，上面有供管理人员使用的问答。亚马逊使用一个复杂的系统对员工的表现进行评级，被评为 “最不有效 “的员工被置于一个被称为 “焦点 “的系统下的绩效改进计划。十多名亚马逊的现任和前任员工在5月份告诉Insider，该公司的绩效计划不公平，太模糊，给了经理们太多的权力来控制他们的职业生涯–并使他们更容易被公司开除。根据《西雅图时报》的报道，亚马逊内部网站上的一条信息写道。”不要与员工讨论‘焦点’问题。相反，告诉员工他们的表现没有达到预期，他们需要改进的具体领域，并提供反馈和支持以帮助他们改进”。](https://www.businessinsider.com/amazon-managers-told-to-keep-performance-improvement-secret-report-2021-7)
+It has been way, way too long
 
-**8.扎克伯格表示Facebook正在建设自己的公司城**
+已经过去太久了
 
-[科技巨头Facebook最近公布了开发自己的城市的计划。马克-扎克伯格的公司城将包括1700多套公寓、酒店、餐馆和其他企业，离该公司的硅谷园区不远。据Reclaim The Net报道，Facebook最近公布了最新的计划，将建设该公司自己的 “城市”，名为Willow Park。该公司城正在与Signature Development Group合作开发，靠近Facebook的Menlo Park园区。选择搬入公司城的员工将称马克-扎克伯格为 “房东 “和 “老板”。有1729个公寓单元的住宅楼，一个有193个房间的酒店，超市，咖啡馆，餐馆，药店和公园都拟建在目前59英亩的工业用地上。125万平方英尺的新办公空间将使该公司在该地多雇用3400人。住宅单元也将提供给那些不在该公司工作的人，在计划的1729套公寓中，有320套被归类为 “可负担得起的”，预计Facebook员工将选择更昂贵的方案。办公区将专门提供给Facebook，只有其员工才能进入。](https://www.breitbart.com/tech/2021/07/09/zuckville-facebook-is-building-its-own-company-town/)
+China hasn’t done anything really bad or interesting until this
 
-By 【秘密翻译组-金融组】
+在此之前，中共国没有做过任何非常糟糕或有趣的事情
 
-作者：Totoro
+This is interesting to me but here is the way I want
+
+这对我来说很有趣，但这是我想要的方式
+
+I’m going to frame this
+
+我要把这个装裱起来
+
+I think American investors，the American investors should know
+
+我认为美国投资者, 美国投资者应该知道
+
+that these Chinese companies have fraudulent accounting
+
+这些中共国公司的会计造假
+
+they will not show their paperwork to our public accountability board
+
+他们不会提供他们的文件给我们的公共会计委员会
+
+and that is the reason why Robert O’Brien and I
+
+而且这就是为什么罗伯特·奥布莱恩和我
+
+took the thrift savings plan, retirement plan out of investing in China
+
+把节俭储蓄计划，退休计划投资从中共国撤出
+
+The lesson I learned here yeah China is cracking down on private companies
+
+我在这里学到的教训，中共国是正在打击私营公司
+
+but you couldn’t believe them in the first place
+
+但你一开始无法相信他们
+
+because they’re all phony and fraudulent
+
+因为他们都是假的和欺诈的
+
+Michael Pillsbury
+
+迈克尔·皮尔斯伯里 （白邦瑞）
+
+Well, that’s right
+
+嗯，对的
+
+I remember you working on this directly with the president
+
+我记得你直接和总统一起研究这个
+
+Larry, so in a way what is happening here
+
+拉里，从某种意义上说，这里发生
+
+with the decoupling of capital markets is the outcome of your work
+
+资本市场与中共国的脱钩是你工作的结果
+
+Congratulations
+
+恭喜
+
+Larry Kudlow
+
+拉里·库德洛
+
+We tried to warn them
+
+我们试图警告他们
+
+You know I was reading various editorials
+
+你知道我在读各种社论
+
+but I don’t think they really understand that
+
+但我认为他们并不真正理解那个
+
+Look all these companies have become an instrumentality of the Chinese Government，
+
+看所有这些公司都成为了中共政府的工具
+
+haven’t they?
+
+不是吗？
+
+They have to give up information to the Chinese government
+
+他们不得不向中共国政府提供信息
+
+isn’t that part of the problem?
+
+这不是问题的一部分吗？
+
+Michael Pillsbury
+
+迈克尔·皮尔斯伯里 （白邦瑞）
+
+Yeah, China is very clear about it
+
+是的，中国关于这点很明确
+
+They have to have communist party representatives at the top of the leadership
+
+他们必须有共产党的代表在领导层的最高层
+
+and follow the party’s rules
+
+并遵守共产党的规则
+
+This is not a secret anymore in China
+
+这在中共国已经不是秘密了
+
+Quite a burden on some of these companies as the DIDI drop has now shown
+
+正如滴滴现在的下跌表明的那样，这些公司中的一些人受到的打压相当大
+
+Larry Kudlow
+
+拉里·库德洛
+
+So how much you know China cracking down really not on this ride-sharing company DIDI
+
+那么你知道多少中共国真正打击不止这家拼车公司滴滴吗？
+
+But other companies too
+
+但其他公司也是
+
+They cracked down on Jack Ma’s Ant, the financial company
+
+他们打击了马云的蚂蚁金服金融公司
+
+They do much more of this
+
+他们做更多的这种打击私人企业的事情
+
+Will this hurt China, Michael?
+
+会伤害中共国吗？迈克尔
+
+That is another thing, will it do damage to the Chinese economy?
+
+那是另外一回事，它会损害中共的经济吗？
+
+Michael Pillsbury
+
+迈克尔·皮尔斯伯里 （白邦瑞）
+
+Well，They don’t look at it that way, Larry
+
+他们不这么看，拉里
+
+They see this what they call it as a win-win for China
+
+他们认为这个是对中共国的双赢
+
+They want to protect their big data
+
+他们想保护他们的大数据
+
+They are certain we’ll come at them through their IPO companies
+
+他们认为我们会通过中国的 IPO 公司找到他们
+
+and steal their consumer big data
+
+并窃取他们的消费者的大数据
+
+This is how they see the future of the global economy is a data centric economy
+
+这就是他们如何看待全球经济的未来是以数据为中心的经济
+
+Secondly, they think this is a security move
+
+其次，他们认为这是一个安全举措
+
+They don’t want the Americans to continue financing these huge IPOs
+
+他们不希望美国人继续为这些巨大的 IPO 提供资金
+
+but in the sense of hurting China
+
+但从伤害中共国的意义上来说
+
+it certainly hurts the private sector in China
+
+它肯定会伤害中共国的私营企业经济
+
+It is making the whole economy move toward what I think Xi Jinping wants
+
+它正在使整个经济朝着我认为是习近平想要的方向发展
+
+He has been pretty clear about it in his speeches
+
+他在他的演讲中已经很明确了
+
+He wants a state-owned, state-controlled economy
+
+他想要一个国有的、国家控制的经济
+
+with something like 30 to 40% of the economy can be in private hands
+
+有大约 30% 到 40% 的经济可以掌握在私人手中
+
+But nothing strategic, nothing important
+
+但这些私人经济没什么战略意义的，不在重要的领域
+
+All of that has to be under the state-owned enterprise system
+
+这一切都要在国营体制下
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://www.youtube.com/watch?v=\_im5BotK7k8](https://www.youtube.com/watch?v=_im5BotK7k8)
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

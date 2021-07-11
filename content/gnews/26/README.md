@@ -1,57 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】Ashton Kutcher警告：中共国会通过TikTok推动反美宣传
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1388753/)
+## 博雷利呼吁欧盟对俄中“疫苗外交”作出反应
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1389981/)
 
-译评：纽约香草山健身部 Jack Li文阳
+2021年7月11日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11092452/comps-sc-china-drone-8.jpg)
+据克罗地亚新闻网报道，欧盟外交与安全政策高级代表何塞•博雷利称，欧盟需要学会应对俄罗斯和中国采取的“疫苗外交”手段。他称，“俄中两国正在世界各地推行‘疫苗外交’政策，我们需要了解这一点，并据此采取行动。”
 
+据他介绍，俄罗斯和中共国正变得越来越“难缠”，与他们合作变得越来越困难。他还补充称，仍然很难预测，到 2023 年是否能战胜疫情，但世界已经变得越来越不安全和自由。
 
+他总结称，“欧盟是世界上唯一一个为其民众接种疫苗、向其他国家出口疫苗并向 COVAX 计划（2019新冠病毒病疫苗实施计划，COVID-19 Vaccines Global Access）捐款的地区。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+**【[新闻来源](https://sputniknews.cn/covid-2019/202107111034057587/)】**
 
+* * *
 
-
-新闻来源：NEWSMAX
-
-新闻链接：[Ashton Kutcher Warns of China Pushing Anti-US Propaganda](https://www.newsmax.com/newsfront/ashtonkutcher-china-privacy-tiktok/2021/07/09/id/1028117/)
-
-译文：
-
-Ashton Kutcher（库彻），致力于保护儿童免受性虐待组织Thorn的联合创始人，在Joe Lonsdale主持的“American Optimist”节目上表示，他担心中共国可能利用流行的社交媒体应用程序TikTok来进行“反美国和反台湾宣传”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10201740/63.jpg)图片来源：Getty Images
-
-这位影星说，他看到TikTok正在进行一场“大规模监控战”。实际上，TikTok是一个以短视频为特色的应用程序，由中共国科技巨头字节跳动公司拥有。库彻担心中共国可能利用这个平台来操纵用户进行反美反台宣传活动。
-
-“如果我是中共国，”库彻说，“我想在世界哪个地区制造一个问题，比如南中国海问题，我可能会想利用TikTok以影响美国人的思想。”
-
-TikTok最近更新了其隐私政策，包括将记录其用户的生物识别数据。
-
-据专注于科技公司的在线新闻媒体TechCrunch报道，该平台（TikTok）的新隐私政策写道，“我们可能会从你的用户内容中收集美国法律规定的生物识别特征信息，如脸部指纹和声纹。在法律要求的情况下，我们将在任何此类收集之前向您寻求任何必要的许可。”
-
-库彻表示，他担心目前错误地运用信息宣传和放任的隐私政策趋势正在使社交媒体变得危险，不仅对个人，而且对整个国家都是如此，这是错误的。
-
-简评：中共通过TikTok（抖音）对西方年轻人进行共产意识形态的洗脑，以达到其阴险的政治目的。事实上，中共对西方发起的宣传战一早就开始了。川普总统任内致力于把TikTok逐出美国，后因中共利用美国的法律漏洞，使TikTok得以残喘至今。自从中共发动病毒战后，其更加变本加厉，不但用TikTok做洗脑工具，还大量搜集用户数据，并宣传反美反西方思想，对世界和平产生了极大的危害。而今，以库彻为代表的好莱坞明星站出来发出警告，必定对青年和社会产生一定的效果，但西方觉醒还是要靠人民自己。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 0
