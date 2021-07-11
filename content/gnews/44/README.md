@@ -1,49 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.07.11
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1389465/)
+## 福奇因研究表明抗体不能预防Delta变种而为疫苗辩护
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1390423/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11051905/711.jpg)
-## **每日一问**
+**据《Zero Hedge》 作者：TYLER DURDEN，2021 年 7 月 8 日发布**
 
-*在币圈赚到钱的都是些什么人？*
+随着全球超过四百万确诊 COVID 的死亡病例，纽约时报刚刚发表了发表在《自然》杂志上的新研究，质疑美国制造的疫苗在提供针对 Delta 变体的保护方面的功效。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11134612/1339.png)
+在研究发布前不久，福奇医生周四为美国的 COVID 疫苗辩护，声称辉瑞、Moderna 和强生公司开发的疫苗都对 Delta 变体有效。这是一种突变株，已成为公共卫生官员们的困扰，声称它可能会引发另一波大流行病。但卫生官员们没有告诉你的是，流行病学家认为 COVID 现正在人群中流行，达到“零COVID”是根本不可能的。
 
-## **喜马拉雅Coin要闻**
+无论如何，虽然疫苗制造商对生产可提供针对各种变异保护的有利可图的加强注射的机会垂涎三尺，但纽约时报预览并发表在《自然》杂志上的新研究发现，Delta 菌株能够绕过疫苗接种或先前感染产生的抗体。
 
-- 联盟答疑7月9日消息，VOG义工的HCN配额，联盟会先买下来。
+Delta 最早在印度被发现，据信其传染性比 alpha 变种高约 60%——该菌株也被称为“肯特菌株”，或 B.1.1.7，最早由英国科学家发现。本周，随着新的 COVID 病例数量比前一周增加了两位数（而住院和死亡人数仍然停滞），Delta 被宣布为在美国发现的主要变种。
 
+几乎同样令人担忧的是，研究人员发现，虽然 Delta 能够有效地逃避抗体反应，但在南非首次发现的 Beta 变体可以更轻松地做到这一点。
 
-## **新闻动态**
+**以下是《纽约时报》关于这项研究的报告的更多内容：**
 
-1. 截至10日18点，资金净流入排名前三为：CHZ（+69.27万美元）、AKRO（+59.83万美元）、DGB（+53.42万美元）；资金净流出排名前三为：BTC（-1620.83万美元）、ETH（-767.87万美元）、EOS（-754.86万美元）。
-2. Aicoin数据显示，截止10日19点左右，Bitfinex比特币空头持仓过去24h增加46.95%，达到12008枚BTC，当前Bitfinex比特币多头持仓占比为80.95%，空头持仓占比为19.05%。
-3. OurNetwork数据显示，自4月中旬至今，Polygon上每日活跃用户（DAU）周环比增长5.91%，此前三周Polygon上活跃地址均超10万，日均用户数月环比增长25.11%，过去60天时间内更是增长了269%。
-4. Subscan数据显示，截至昨日10:50，第四轮Kusama平行链卡槽拍卖众筹已锁定约290150KSM。目前Shiden已经拿到第三个卡槽，当前锁定数量前三的分别是Khala Network12.02万KSM、Bifrost8.22万KSM以及Basilisk3.00万KSM。
-5. Token Terminal数据显示，以太坊上的NFT+区块链游戏项目AxieInfinity近30天的收入再创新高，突破3000万美元，继续在DeFi协议收入榜中保持第一。同时，其近7天收入突破2000万美元，再创新高。
-6. 以色列投资基金集团（Israel Investment Fund Group）近日发推表示，作为投资组合多元化政策的一部分，我们已向比特币投资了23亿美元，这是引领以色列走向货币未来的全球战略的一部分。
-7. Thefintechtimes消息，英国慈善机构国家Zakat基金会（NZF）开始接受加密货币作为一种捐赠方式。据金融市场行为监管局(FCA)近期的数据，英国目前有230万人拥有加密资产，18岁及以上的人中有78%知道加密货币——比去年增加了73%。
-8. 官方消息，7月10日，FORTH与TALLY达成合作，凡持有FORTH的用户均可以在TALLY上对Ampleforth的生态治理进行投票表决。上线不到两小时FORTH质押已超过2万枚。
-9. ABMedia消息，台湾钱包商Blocto于13日销售Flow标准代币，支持Flow/Solana跨链生态。据称其销售条件与私募轮相同，但仅限量提供给早期用户。
-10. ABMedia消息，苏富比9日开拍可用加密货币支付的101.38克拉巨钻，最终拍出1230万美元。
-11. ABMedia消息，YIELD App比特币基金于10日正式上线，且将提供高达12%的市场领先收益,其中包括以比特币（BTC）支付的6%基础APY（年化收益），以及另外6%以YLD支付的奖励。
-12. Blocktempo消息，Playboy宣布首次与NFT平台SupeRare合作，明日会在“Decentraland艺术周”上展出并拍卖一系列名为“迈阿密海滩艺术”的NFT艺术品。
-13. ABMedia消息，以太坊知名合成资产协议Synthetix (SNX)10日宣布，预计在7月26日上线在二层解决方案Optimistic Ethereum。
-14. ETC Cooperative近日发推宣布Cardano创始人及IOHK首席执行官Charles Hoskinson重新成为其董事会新成员，并表示其一直是ETC的支持者，在该项目上有着独特的远见和经验。
-15. 最新消息，DogeSwap已完成对其平台权益凭证DOG的第94次回购销毁，本周共销毁105,380枚DOG，回购费用来源于平台20%的交易手续费，截止目前已销毁DOG总数达4,796,619枚。DOG暂报0.024美金，行情波动较大，请做好风险控制。DogeSwap是基于火币生态链全新的DEX。
-16. 马斯克此前评论称，BTC和ETH追求的是多层交易系统，但底层交易速度慢、交易成本高。Doge有一个优点，即通过充当第二层的交易所来最大化提升基础层交易率并最小化交易成本。后续马斯克回复网友评论表示，区块大小和频率应稳步增加，以匹配广泛可用的带宽。此外，对于网友询问“每秒最佳交易数量是多少？是否应该达到Visa的速度才是真正有用的？”马斯克表示，不需要达到Visa的速度，因为受监管的交易所将成为事实上的第二层，提高底层交易速度和降低底层交易成本仍然是好的。
-17. TheDailyHodl消息，链上分析师Will Clemente表示，近期鲸鱼再次潜入比特币市场，比特币鲸鱼再次与散户投资者一起增持。这位分析师说道，这一趋势“本周只会加速”，鲸鱼购买了价值约22亿美元的BTC。他同时指出，比特币(BTC)网络上的新用户数量创下历史新高。
-18. 加密社区质疑“EOS母公司Block.One计划将Bullish上市”未给EOS持有者带来任何价值。例如，加密研究机构Messari研究主管EricTurner表示，Bullish通过SPAC上市，给EOS带来零价值。CNBC主持人Ran Neuner表达了同样的观点。
-19. 据澎湃新闻报道，国际清算银行（BIS）发布的关于央行数字货币（CBDC）的最新研究报告显示，央行数字货币跨境使用尚存在一定风险，大多数央行尚未对发行CBDC做出最终决定。
-20. Blocktempo消息，短影片社交平台TikTok宣布禁止全球用户，发布加密货币和投资等金融服务与产品的推广内容。接下来几周，他们将利用科技侦测违规内容，进行自动删除。
-21. Blocktempo报道，自5月以巴冲突加剧，武装组织哈玛斯透过加密货币筹资越加频繁，对此，以色列政府做出了扣押响应。名单列出84个目标地址，总价值超过700万美元。
-22. Blocktempo消息，Chia Network官方表示，有人在Stellar网络上创建了一个名为Chia的代币，并且盗用Chia的徽标和公司信息，试图冒充成Chia的官方产品。这是100%诈骗，吁切勿买入。
+研究人员查看了 103 名感染冠状病毒的人的血液样本。研究发现，Delta 对来自该组未接种疫苗的人的样本的敏感度远低于 Alpha（变异株）。
 
+一剂疫苗显著提高了敏感性，这表明从 Covid-19 中康复的人仍然需要接种疫苗以抵御某些变异。
 
+该团队还分析了 59 人在接受第一剂和第二剂阿斯利康或辉瑞 BioNTech 疫苗后的样本。
 
+在实验室实验中，仅 10% 接受过一剂阿斯利康或辉瑞 BioNTech 疫苗免疫的人的血液样本能够中和 Delta 和 Beta 变体。但是第二剂将这个数字提高到 95%。两种疫苗引发的抗体水平没有显著差异。
 
-*编辑：aQ
-发布：文顾*
+研究人员总结道，“单剂量的辉瑞或阿斯利康对 Beta 和 Delta 变体要么效果不佳，要么根本没有效果”。来自以色列和英国的数据广泛支持这一发现，尽管这些研究表明，一剂疫苗仍足以预防因病毒而住院或死亡。
+
+此外，还发现 Delta 变体对基于抗体的治疗具有抗性，例如Eli Lilly公司生产的单克隆抗体鸡尾酒“bamlanivimab”。
+
+与此同时，福奇医生告诉记者，死于该病毒的美国人中有十分之九没有接种疫苗。尽管越来越多的接种疫苗的患者被感染并病情严重，但福奇坚持认为“科学”表明疫苗在预防感染方面极为有效。
+
+逻辑令人困惑，但它是这样的：Delta很可怕，所以要接种疫苗，但疫苗不能预防 Delta。这只是最新的提醒。福奇医生及其公司不在乎“科学”，他们来这里是为了保护疫苗的叙述和声誉，否则就有破坏白宫的风险。
+
+原文连接：[https://www.zerohedge.com/covid-19/dr-fauci-defends-vaccines-new-research-shows-how-delta-evades-antibodies?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/covid-19/dr-fauci-defends-vaccines-new-research-shows-how-delta-evades-antibodies?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 心照
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

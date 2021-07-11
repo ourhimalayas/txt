@@ -1,103 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月28日 郭先生直播和盖特 重点内容汇总
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1389584/)
+## 对共产党灭亡前的巨变 新中国联邦人该怎么做
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1390386/)
 
-**概况**
+**摘要：郭先生在2021年6月25日的GTV直播中，告诉新中国联邦人在中共带来巨大的挑战前应该做好的两件事：一、团结所有的中国人，尊重所有的中国人，真的为中国人呐喊；二、和世界西方的文明国家团结在一起，让西方彻底地相信，新中国联邦人不等同于中国共产党。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11124730/Miles_2021-06-25-live-p4.srt.txt)
+**对共产党灭亡前的巨变新中国联邦人该怎么做**
 
-G-TV想干的事太多，质量就有问题，以后要实现3个新功能。喜马拉雅联盟委员会是NGO组织，不代表G系列，也不承担法律责任。央行出事，抓了一堆人。但中南坑要用假数据，保北京银行、盛京银行。全球最大虚拟币交易市场—HB的华人创造者，正被中共追杀。自己活得更好，爱你的人才幸福。实力，是自己要的最大的脸。
+**What Should the NSFC People Do in a Time of Upheaval**
 
-**金句**
+那我们新中国联邦人该做什么？兄弟姐妹们，一定要认真地考虑考虑，这个世界到了什么样的疯狂的程度。我们战友们不仅最关键地要团结在一起，我们要对这个世界有一个清醒的认知。前所未有对海外华人、对所有的有智慧的中国人，来了个巨大的挑战，一个是机会、一个是灾难。跟着共产党走进火葬场，跟着新中国联邦团结在一起获得这千载难逢的共产党灭亡前、灭亡后的最大的利好。
 
-孩子要离婚，自然有她的理由。舒不舒服，只有孩子知道。
+So what do the people of the NFSC need to do? Brothers and sisters, we must ponder over it. How crazy has this world become! My fellow fighters, it is crucial that we must not only unite together, but we should also have a clear vision of the world. To overseas Chinese people, to all of the wise Chinese people, the CCP brings us unprecedented challenges – one is an opportunity, and the other is a calamity. Follow the CCP into the crematorium or follow the NFSC closely and obtain this once-in-a-lifetime opportunity and benefits, before and after the demise of the CCP.
 
-**汇总**
+但是需要战友们做两件事，你要想真的是占住这个最大的人类有史以来最大的机会，你必须团结所有的中国人，尊重所有的中国人，真的为中国人呐喊，就像新中国联邦宣言一样。
 
-**G-TV要实现的3个目标**
+But if you really want to grasp this greatest opportunity in human history, we need you to do two things: you must unite and respect all the Chinese, and truly fight for the Chinese, just like what the Declaration of the NFSC says.
 
-战友把心放端正，财富不能是贪来、偷来的，不能有投机心理。贪来的财富，会付出安全和鲜血的代价。G系列投资得来的财富，才会带来快乐、安全和健康。我们有天时、地利、人和，但不努力啥都不是。G-TV想赚钱，得靠大家努力。现在干的事太多，质量就有问题。
+第二个事情，所有的中国人要清醒地认识到，要和世界西方的文明国家一定要团结在一起，紧紧地和西方的文明国家和当地的政府合作、团结在一起。让西方彻底地相信，新中国联邦人不等同于中国共产党。
 
-1：GTV直播画面，是自己工程师开发的真实水平，高清达到1080甚至1440。但关注量、数据、上传，都被动了手脚。一上传就听不清，效果就是垃圾，还有很多丢失。YouTube直播没那么好，上传以后更好。咱不自强，必被人家收拾。但要代替深网，还得等到8月15日才行。之后要百分之百保证，上传效果只能好，不能差。
+Second, all Chinese people must clearly realize that we must unite with the civilized countries of the West, and closely cooperate with Western civilized nations and your local governments. Let the Western world completely believe that the NFSC is not the same as the CCP.
 
-2：任何人下载APP，马上可以收到通知。迅速连线8、10个人，未来可能100个人也可以联线，形成私密直播；可以加标题、编辑、剪辑。现在已经是4G、5G的时代，完全可以做到。像手机这么简单连接，碰上这样画面，可以加标题、打赏，是最想要的功能，而不需要OBS。
+新中国联邦人绝对是西方可相信的未来的中国人的代表。新中国联邦人，不仅可信、可依赖，而且可合作。最后达到让西方人知道，如果你想和中国人拥有一个永久的和平，你要和新中国联邦人打交道。这就像刚开始我说的，必须让海外的这近百万的国际婚姻家庭的、所有的和中国有关系的家庭更加有尊严、更加有安全感，广泛地传播真正的中国的历史和文化和中国的文明。
 
-3：互联网解决不了，声道互相干扰的问题。像Skype不好的是中间缓冲没做好，视频也很烂。高科技不行，100%不安全。GTV设计当中，最好有自动功能。一个人说话，其他的麦自动屏蔽掉。大家在直播，如果没说话，马上自动反应，麦没关就显示红的。在技术上实现，就可以了。
+Let the Western world know that the NFSC is absolutely trustworthy and can represent the Chinese people in the future, and that the people of the NFSC are not only credible and reliable but are also cooperative. And finally let the West know that if they want to seek perpetual peace with the Chinese, they need to work with the NFSC. As I said at the beginning, we must grant the nearly one million transnational marriages abroad and all families with ties to China more respect and endurance, and widely disseminate true Chinese history and culture, as well as Chinese civilization.
 
-中国人小聪明多，比外国人脑子活。我们就是执行力太差，非得有外国人统治我们才能实现。中国人领导，实现不了。约翰也想干好，但有时执行不下去。
+所以说兄弟姐妹们，我们必须每个人发自内心地问问自己，你有准备好吗？你愿意这么做吗？
 
-**G系列和农场系列其他重点信息**
+Therefore, brothers and sisters, each of us must ask ourselves from the heart, are you ready? Would you be willing to do this?
 
-1：喜马拉雅联盟委员会是一个NGO组织，不代表G系列，也不承担法律责任。回答只代表联盟委员会。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+[视频来源](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64)： (42:59-45:35)
+鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1351941/)
 
-2：加字幕的视频，要学习“喜站”。一个“喜站”的点击率，是战友的总和。到今天,已经成为爆料革命最高质量的资产。在最快时间，抓住西方领导人或重要人士灭共最关键一段，再加上字幕。
+* * *
 
-3: G-Club卡，多的可以挑选组合。未来增加的功能，靠G-Club会员共同努力。
+***翻译**：鹦鹉（纽约香草山农场）
+**字幕**：Rock小哥
+**校对**：BruhM
+**视频解码剪辑**：恒久忍耐
+**自媒体推广**：V%、TINALS
+**校对 & 编辑**：Isaiah4031*
 
-**灭共重点信息**
-
-1：刚说完大连炸桥；香港炸楼、炸桥；北京要炸“中南坑”。香港避风塘，几十艘船大爆炸；在北京地下水道发生倒塌，死了上百个人。这些人都是进京保卫“百年冥诞”。结果上面说敏感时期，保密不要说。
-
-2：国内央行出事，抓了一堆人。写纪录片《大秦帝国的裂变》的人自杀，家人自杀未遂。他是王岐山、董宏的好哥们，打着王岐山的名义，玩了几百亿。北京银行、盛京银行要完蛋，但“中南坑”又批示，用电脑控制，不能出事。
-
-3：比特币的事：全球最大虚拟币交易市场—HB的创造者，现在要玩蛋。这位加拿大华人，是由国安委培养的。但现在共产党发现这哥们不听话，正在追杀中。各种虚拟币交易半天，都是大量洗钱，还帮助共产党的“反对面”洗钱。
-
-**活着不能大意**
-
-七哥在大风大浪倾覆当中，能活到今天。经历了太多事，既要有勇敢，还要有智慧地活着。对爱你的人，不是你给他(她)多少东西，他(她)才爱你。是你活得更好、更健康，爱你的人才幸福。你都变成瘸子、残疾、一身病，是对爱你的人最大惩罚。琼瑶式的活法，是自杀、毒药，不现实。
-
-要有责任感，不要有鲁莽之心。鲁莽不是勇气，也不能大意。有爹妈、家人，出去不带口罩、手套。就是不负责任，没有防范心理。都是从年轻过来的，七哥也经历无数多的事：命就一条，一生不需要犯多少次错误，犯一次大错误就结束了。要为家人着想，像：
-
-1：James战友，翻译特别好。才20多岁，去年12月份出车祸死了。
-
-2：我们律师一家人带俩孩子，一个大货车给撞飞了。车给撞废了，人差点死了。
-
-3：一个战友的家人，一直说服家人不要打疫苗。结果家人打疫苗，还骂他。现在妈瘫了、亲姐姐死了。现在是叫天天不灵，叫地地不应。
-
-所以对战友最有用的，不是说教，是分享人生经验。让战友活得更健康、更幸福、更安全，比给他(她)财富还重要。
-
-**承受住考验，才能强大**
-
-欢迎战友来纽约工作，目前帮助战友获得工作签证的科技公司，没有一个不成功的。所有的签证手续，都会合法化。但只有一个要求，做好地狱般的考验。之后，才能走进你的天堂。希望每个人都能强大起来，未来成为新中国联邦的栋梁。
-
-1：原来一位朋友的女儿，因为家庭原因去了日本。她最想学金融，爸妈不让学。原因都是共产党，洗脑的那些东西。七哥告诉她，爸妈说再坏的话，不要反抗。记住，反而是有用的。说话再好听，不要以为都受用。人生都需要这两面，你才能做好自己。给她介绍到公司实习，现在年薪八十几万美元，前五号人物。
-
-她能成功，就是遭受了一系列的考验。在日本种族歧视很严重，日本女人都很难上，中国女人更难。日本社会很现实，这样的女人更受人尊重。男人有了本事，可能当女王的奴隶。跟人家包二奶、三奶，最后把自己给包进去。女人要有了本事，不依靠男人的财富。日子活得自由自在，还长寿。
-
-人生不同阶段，有不同的精彩。青春很美丽，有能力、年轻，就别浪费时间。多学东西多干事。等到中老年，有了信仰，会活得很精彩。最怕年轻人对着钱去，钱眼里装下的东西是很少的。当真有钱的时候，还能活下来的人没几个。钱是一个过程当中，最重要的一个武器。我干那么大的事，没有一分利益，完全不需要这么做。当你很清楚需要什么的时候，不会再问这个问题。
-
-人生要经历很多沟沟坎坎，但别往回看。征服自己过去的错误，才拥有美好的未来。七哥经历的清丰看守所；共产党无数次对家人的打击；中纪委对我的严刑拷打，都没有回头，就往前看。只有你强大，你一切都是正确的。你输了，永远是在人家底下吃饭。七哥面对人生那么多挑战，有这么大的压力，每天都还开心。
-
-**其他方面：**
-
-1：山口百惠和三浦友和急流勇退，不再回头，恩爱一辈子。人家也有考验，没有倒在名利下。郝海东，叶钊颖追求爱情，谁也不理。他们现在过的，就是七哥未来隐居的生活。
-
-2：只有让你自己的提升，给对方带来了不同的点，才能让对方感觉有新鲜感。现在很多中年男人，肚子一大就挺出来，跟十个月怀的孩子似的。抽烟，牙都黑了也不刷。让人家看不起，老婆、孩子烦。
-
-**3：实力是最大的脸：**中国人太要脸，要到自己没法活的地步。总看别人怎么看待自己，是世界最愚蠢的。七哥这辈子没有害羞的感受，只告诉别人，我想做什么。像教我唱歌的老师，很多不能改的内容，听我说完都改了。还老发信息，特别想再合作。实力是最大的脸，不是靠你要。一位在日本的战友，受歧视。你强大的时候，最小心的是你不会歧视别人，不是别人歧视你。
-
-4：草根和大树，看起来大树很强大，草坪很脆弱。但在草坪面前，这树不值钱。但当一根草的时候，活不了。草根只有联系起来，才能形成草坪。树很巨大，只有大家在一起的叫成林。独木成林是很少的，最经受风雨，所以团结太重要。
-
-新中国联邦就是站在一起的草根，所有水分都被草吸走。这种力量，不用在乎七哥是谁，要在乎新中国联邦。把这两个事整明白，就会有无穷的战斗力。要爱同胞、爱中国人。海外见中国人，好像见仇家一样，是共产党最混蛋的地方。
-
-内容来源：
-
-全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+GETTR: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
 
 
 
-> [全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播](https://gnews.org/zh-hans/1356870/)
+> [Once the Origin of the CCP Virus Is Confirmed, the West Will Take the Soleimani-Style Action on the CCP](https://gnews.org/1355405/)
 
 
-
-2021年6月28日 文贵先生盖特 1
-
+2021年6月25日直播（一）[只要确定中共病毒来自武汉实验室  美国就会对中南坑实施斩首](https://gnews.org/zh-hans/1355387/)
 
 
-> [2021年6月28日 文贵先生盖特 1](https://gnews.org/zh-hans/1357451/)
+> [The Price of the CCP Ravaging the World Will Be Borne by Overseas Chinese](https://gnews.org/1388660/)
 
 
+2021年6月25日直播（二）[中共蹂躏世界  牺牲的是海外华人的形象、安全和利益](https://gnews.org/zh-hans/1388642/)
 
-整理：pride
 
-0
+> [The Strategy of Taking Down the CCP By Spreading the Truth of the Virus Will Be the Greatest Milestone of the Whistleblower Movement](https://gnews.org/1388496/)
+
+
+2021年6月25日直播（三）[多国已获得中共病毒生化武器证据  以毒灭共将成为爆料革命最伟大里程碑](https://gnews.org/zh-hans/1388472/)
++3

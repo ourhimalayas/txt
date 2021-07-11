@@ -1,28 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 博雷利呼吁欧盟对俄中“疫苗外交”作出反应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1389981/)
+## [秘翻在线] 倒川派政团猛批 丰田随即停止向挑战大选结果的共和党议员捐款
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1390654/)
 
-2021年7月11日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11092452/comps-sc-china-drone-8.jpg)
-据克罗地亚新闻网报道，欧盟外交与安全政策高级代表何塞•博雷利称，欧盟需要学会应对俄罗斯和中国采取的“疫苗外交”手段。他称，“俄中两国正在世界各地推行‘疫苗外交’政策，我们需要了解这一点，并据此采取行动。”
+撰稿：待命（文晓）
+责编：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11175928/Picture1-31.png)图片来源：news.yahoo.co.jp
+纽约(CNN财经）报道：丰田汽车公司表示，以１０日为界，将停止向反对接受去年美国总统选举结果的共和党议员提供政治捐款。
 
-据他介绍，俄罗斯和中共国正变得越来越“难缠”，与他们合作变得越来越困难。他还补充称，仍然很难预测，到 2023 年是否能战胜疫情，但世界已经变得越来越不安全和自由。
+这一回应，是在反对前总统川普的政治行动委员会(PAC)林肯计划(Lincoln Project)谴责丰田汽车公司向政治家捐款的煽动性活动后作出的。
 
-他总结称，“欧盟是世界上唯一一个为其民众接种疫苗、向其他国家出口疫苗并向 COVAX 计划（2019新冠病毒病疫苗实施计划，COVID-19 Vaccines Global Access）捐款的地区。”
+该组织发布了一个视频片段，指责丰田公司支持那些”为不承认今年1月6日拜登胜利之选举结果”而举行投票活动的议员。他们说：美国的自由市场和民主制度长期以来一直有利于像丰田这样的公司，为什么丰田会支持那些试图推翻这种制度的政治家？
 
-**【[新闻来源](https://sputniknews.cn/covid-2019/202107111034057587/)】**
+丰田公司在一份新闻声明中说：对这些议员的支持，给一些利益相关者带来了困惑。所以，决定停止向那些不承认某些州的总统选举计票结果的议员提供援助。其实，今年的大部分政治捐款都给了承认总统选举结果的民主党和共和党的成员。
 
-* * *
+在1月6日发生所谓川普支持者占领美国国会大厦事件后，包括亚马逊和沃尔玛在内的一些美国大公司也暂停了向反对选举团投票的147名共和党议员捐款。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+[信息来源](https://news.yahoo.co.jp/articles/6ff8d19e7fc1641ece0dfdfe85bd63b4e35ecb1f)
 
 0

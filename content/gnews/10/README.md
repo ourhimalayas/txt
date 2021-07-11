@@ -1,52 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《柳叶刀》和《自然》杂志的“科学家”和“医生”的邪恶手上沾满鲜血（第五部分，共五部分）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1389730/)
+## 世紀之戰—CCP病毒生化戰爭共產主義魔鬼困擾着世界
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1390711/)
 
-- 作者：Jenny Ball
+作者：香草山農場 沙倫
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年7月11日电/西喜社**——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10110705/Screen-Shot-2021-07-10-at-11.01.58-PM-1.png)
 
-很多人都报道了“科学”期刊的各种罪状，他们捍卫中共撒谎，谴责有效的治疗方法，并推动疫苗。 但他们所扮演的角色是巨大的，值得关注……和惩罚。
 
-这是一篇值得仔细阅读思考的文章，篇幅较长，我将按主题分成五部分，翻译整理出来和大家分享。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172214/Screen-Shot-2021-07-11-at-5.18.09-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172158/Screen-Shot-2021-07-11-at-5.18.26-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172146/Screen-Shot-2021-07-11-at-5.18.43-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172129/Screen-Shot-2021-07-11-at-5.18.53-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172114/Screen-Shot-2021-07-11-at-5.19.19-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172058/Screen-Shot-2021-07-11-at-5.19.36-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172046/Screen-Shot-2021-07-11-at-5.20.06-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172033/Screen-Shot-2021-07-11-at-5.20.15-PM.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
-**数十亿美元的赌注**
+编辑/校对/发稿：正义的小新
 
-回到以前那么著名的和受人尊敬的科学期刊，为什么发表宣传和压制公开讨论的问题，最可能的原因——除了它们对中共国出版费和广告费的依赖——这是事实，如果 SARS-CoV-2 被证明是从实验室（无论位于何处）逃逸的人造病毒，用于功能获得研究，甚至疫苗研究的数十亿美元资金可能会泡汤了。
+**更多资讯，更多关注**
 
-作为研究出版商，期刊愿意保护整个研究行业，并为选定的发言人提供平台是有道理的——例如霍特兹——他们无耻地宣传官方说辞，无论它多么空洞或不科学，或者无论利益冲突多么明显。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-再举一个例子：2021 年 6 月 28 日，彭博社在推特上发布了一段短片，其中介绍了澳大利亚 WIV 病毒学家丹妮尔·安德森（Danielle Anderson），她在大流行爆发前不久离开了武汉。 安德森说她“不相信”病毒是人造的。 作为回应，霍特兹在推特上写道：
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*“*我们一致认为：*SARS-2*冠状病毒具有天然来源，不是通过*GOF [*功能获得*]*研究产生的，并且可能与武汉病毒研究所毫无关系。*”*
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-巧合的是，安德森也在《柳叶刀》的 COVID-19 委员会中任职，与达扎克所在的委员会相同。 她的《柳叶刀》委员会 介绍中没有提及她在 WIV 的工作，只说她是澳大利亚墨尔本大学的高级研究员。这是为什么？安德森与 WIV 的联系难度是另一个与她的信息无关的“随机巧合”？ 或者它是模式的一部分？
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-我相信病毒和其他病原体的工程是目前地球上生命的最大威胁之一。 我们很幸运SARS-CoV-2 的致命性远低于最初的预测。 下一次我们可能就没有那么幸运了。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-正如 2020 年 7 月报道的那样，尽管担心泄漏风险，中共国仍计划在其所有 23 个省份建立高度安全的生物实验室。 世界范围内有23家，但有数百个实验室每天都在进行此类研究。 考虑到实验室泄漏的历史，出现真正可怕的事只是时间问题。
-
-这就是为什么我们必须深入了解 SARS-CoV-2 的来源。 我们必须知道它是否是人造的，因为如果是，我们需要禁止旨在使病原体对人类更加危险的功能获得研究。
-
-是，有无害的功能获得实验，这不是我们在这里谈论的内容。不过，即使是无害的实验，当然也可以最终导致危险生物武器的过程中的步骤。总的来说，我认为我们需要认真重新考虑病毒基因操作和合成病毒创造的必要性和价值。
-
-**评论：有钱能使鬼推磨，难道为了“数十亿美元的赌注”，就让顶级科学家和百年科学杂志出卖良知去杀害世界上亿的无辜百姓？**
-
-**新中国联邦国旗中央的七芒星就是信仰之星，文贵先生多次感叹，如果没有信仰，即使推翻共产党，中国人民亦会迷茫，那么爆料革命的意义在哪里？**
-
-**信仰是我们正道主义的根基，没有了正道主义的信仰，掌握知识的科学家就是武装的撒旦，如现在《柳叶刀》杂志的“科学家”一样，成为双手沾满鲜血的杀害人类的罪犯！**
-
-**素材来源：**[noqreport.com](https://noqreport.com/2021/07/08/scientists-and-doctors-at-the-lancet-and-nature-have-blood-on-their-evil-hands/)
-
-素材： Jenny Ball；审核：文乐； 校对：阿伯塔； 发稿：信心的选择
-
-上一篇：[《柳叶刀》和《自然》杂志的“科学家”和“医生”的邪恶手上沾满鲜血（第四部分，共五部分）](https://gnews.org/zh-hans/1389703/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0

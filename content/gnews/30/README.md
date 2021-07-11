@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】预告：川普将在周日CPAC上向世界传达信息
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1389871/)
+## 如何观看唐纳德·川普在达拉斯CPAC的演讲？
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1390460/)
 
-#### 翻译整理：蓝精灵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11142140/Screenshot-2021-07-11-11.20.46-AM-edited.png)
+我在哪里可以看?
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11084452/Screenshot-2021-07-11-at-20-44-18-Matt-Schlapp-to-Newsmax-Trump-to-Tell-the-World-You-Wont-Silence-Us.png)
+唐纳德·川普的讲话将在福克斯新闻、福克斯国家频道、会议组织者美国保守联盟以及C-SPAN电视台播放。
 
-美国保守党联盟主席马特施拉普告诉Newsmax，激情的前总统唐纳德川普将于周日在 CPAC 向世界传达一个信息：你不能让我们失声 。
+他什么时候发言?
+这位前总统 定于下午3点35分上台发表主题演讲。
 
-“我认为最大的问题是取消文化主义者，作为 CPAC 在德克萨斯州大红州的高潮部分，唐纳德川普将登台并告诉世界，无论他们做什么，都不能让他失声。”“而且我认为这是我们为拯救这个国家所能做的最重要的事情。”
+CPAC在哪里举行? 为期三天的共和党集会在达拉斯举行。
 
-施拉普将于本周末在德克萨斯州达拉斯举行夏季版的保守党政治行动会议，川普将发表最后的主题演讲，为 2022 年中期选举“成为夺回美国的分水岭”奠定基础。“我们不会再把这个交给左派了。左派对这些 CEO 和公司进行了抨击，并要求他们屈从于他们的社会主义议程，即使这不符合股东和公司的利益。”
+预计川普会说什么? 这位前总统还没有释放任何文件.预计他将谈及拜登政府对边境危机的处理，他上周对科技公司提起的诉讼，他为2022年中期选举推荐的候选人，以及2020年总统选举的余波。
 
-施拉普还评论了主流媒体从新闻转向自由主义激进主义和压制逆向观点。施拉普说：“这些电台刚刚开启了任何持相反观点的人，这令人难过。” “他们总是说试图挽救的保守派是阴谋论者，他们说我们在兜售所有这些神话和其他一切。“如果 CNN 如此关心人们从哪里获取新闻，他们为什么不回到他们报道新闻的旧模式。所有这些醒过来的新闻公司都放弃了它，“
+文章源及观看链接：[纽约邮报](https://nypost.com/2021/07/11/how-to-watch-donald-trumps-speech-at-cpac-in-dallas/?utm_source=NYPTwitter&amp;utm_medium=SocialFlow&amp;utm_campaign=SocialFlow)
 
-施拉普还呼吁不要让我们的媒体和教育系统努力培养我们的青年成为“正统的共产主义战士”。
+编译：ARA
 
-“我们正处于这个奇怪的时代，我们经历了很多事情的消亡：公平新闻的消亡，民意调查的死亡。民意调查真的消失了，似乎从来没有反映现实。“施拉普说，我们必须收回我们言论和思想的政治自由，否则就取消这些机构，而不是用钱养活它们来教育我们的下一代。
+排版发布：紫橄榄
 
-“如果我们不能改变他们，我们就要确保我们拯救了我们孩子的灵魂，”他总结道。
+2021年7月11日
 
-参考链接：[Matt Schlapp to Newsmax: Trump to Tell the World, You Won’t Silence Us](https://www.newsmax.com/newsmax-tv/matt-schlapp-conservative-thought-speech/2021/07/10/id/1028169/)
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-* * *
-
-校对发布：日本东京方舟农场 文柯Miles
-
-+1
+0

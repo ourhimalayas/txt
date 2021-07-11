@@ -1,29 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【观点】中共病毒疫苗的次生灾害正在美国发生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1389592/)
+## 欧盟议会敦促官员离开北京奥运会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1390453/)
 
-作者：小红帽
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11141356/1344.png)欧洲对中共国的人权记录及其主办冬奥会的压力越来越大， 法新社
+**据《Faance-24》作者：斯特拉斯堡 2021年7月9日报道**
 
-编辑：翼族
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205445/image4-5.png)图片来源：雅典娜农场设计组（精灵蓝）
-自从中共病毒肆虐全球以来，在美国累计[造成61.1万人死亡](https://en.wikipedia.org/wiki/Template:COVID-19_pandemic_data)，超过3389万人受感染（数据截止到7月10日）。美国疫情的严重性，导致民众纷纷选择注射中共病毒疫苗以避免感染中共病毒，但是美国民众不知道，中共病毒疫苗根本不是救人的。相反，因为注射疫苗而造成死亡的案例比历史上的任何时期都要多。
+欧洲议会投票是欧盟与中共国之间关系恶化的另一个迹象，这是受到针对人权问题的一轮针锋相对的制裁，有效地阻止了一项长期谈判的投资协议的批准之后。
+中共国驻香港公署抨击投票是“政治哗众取宠，是中欧互利合作的绊脚石”。
 
-近日，美国疾病预防控制中心报告揭露，[有9048人在注射中共病毒疫苗后死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)。这是美国疾病预防控制中心于7月2日在疫苗不良事件报告系统[（VAERS](https://vaers.hhs.gov/)）中发布的最新数据。VAERS系统是由美国政府资助的数据库，用于追踪由疫苗引起的伤害和死亡案例。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205514/image1-2-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-数据显示，除了9048例死亡案例外，还有7463例永久性残疾， 7822例危及生命，其中最吓人的是，竟然有高达56915例急诊案例。
+不具约束力的决议以 578 票赞成、29 票反对和 73 票弃权获得通过。
+它得到了欧洲所有主流政治团体的支持，包括德国总理默克尔的中右翼 EPP 团体和法国马克龙的中间派。
 
-这份报告从2020年12月开始统计注射中共病毒疫苗后的死亡人数,短短7个月内接种中共病毒疫苗后死亡的数据,比起前30年（从1991年1月1日至2020年11月30日）所记录的接种疫苗后的死亡总数（[6045例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;PERPAGE=400&amp;DIED=Yes&amp;VAX_YEAR_LOW=1991&amp;VAX_YEAR_HIGH=2020&amp;VAX_MONTH_HIGH=11)）还要多。很明显，中共病毒疫苗的毒性比传统的疫苗强很多。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205600/image2-1-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-更让人无法接受的是，美国疾病预防控制中心竟然不阻止孕妇注射这些疫苗。截至到7月2日，最新数据显示有[994名](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5b%5d=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5b%5d=Abortion+%2810000210%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5b%5d=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5b%5d=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5b%5d=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5b%5d=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5b%5d=Foetal+death+%2810055690%29&amp;SYMPTOMS%5b%5d=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5b%5d=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5b%5d=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5b%5d=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5b%5d=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5b%5d=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5b%5d=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5b%5d=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5b%5d=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5b%5d=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5b%5d=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5b%5d=Premature+baby+%2810036590%29&amp;SYMPTOMS%5b%5d=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5b%5d=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5b%5d=Premature+labour+%2810036600%29&amp;SYMPTOMS%5b%5d=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5b%5d=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5b%5d=Stillbirth+%2810042062%29&amp;SYMPTOMS%5b%5d=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19)未出生的孩子在其母亲注射中共病毒疫苗后流产。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205639/image3.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-一位获奖的美国[脊柱外科医生和外科医生协会的前主席](https://humansarefree.com/2021/02/respected-doctor-who-studied-bioweapons-believes-covid-19-jabs-are-a-form-of-weaponized-medicine.html)曾发声，认为目前的中共病毒疫苗是针对人们部署的危险“生物武器”。非常遗憾的是，这并没有引起更多美国人的注意。很多人仍然相信主流媒体的宣传，选择打疫苗。
+立法者呼吁欧盟机构和成员国“拒绝政府代表和外交官参加北京 2022 年冬奥会的邀请，除非中共国政府证明香港、新疆维吾尔族地区、西藏、内蒙古和中国其他地方的人权状况出现可核查的改善”。
 
-爆料革命吹哨人郭文贵先生和闫丽梦科学家曾多次警告，中共病毒根本没有疫苗。但是被共产党深度渗透的美国各界似乎还在继续执行共产党的“中共病毒疫苗战”计划。笔者不禁联想到之前“[盖茨基金会资助华大基因，病毒测试“采集”美国人DNA数据](https://gnews.org/zh-hans/1182242/)”一案。中共是否正在和盖茨基金会全面展开减少世界人口的计划？在全球追责中共投放“生化武器”之际，这疫苗闹剧还要折腾多久？但愿美国人民以及全世界人民早日醒觉并认识到中共的邪恶。
+该决议“最强烈地”地谴责了中共国当局关闭香港民主派《苹果日报》和逮捕其工作人员的行为。
+它说，这些行为“是中共国在瓦解香港自由社会并最终终结香港的媒体自由和言论自由方面又迈出的一步”。
 
-毕竟留给人类的时间不多了，我们要尽快消灭共产党！
+**呼吁新的制裁**
 
-（文章仅代表作者个人观点）
+该决议称，根据中共国严厉的香港安全法，（香港）自由的恶化相当于“人权紧急情况”。
+香港国安法打破了欧洲与北京之间的信任，“导致北京在国际舞台上的信誉进一步受损”。
 
-+2
+欧洲议会议员强调“欧盟需要采取紧急和坚决行动”，并呼吁布鲁塞尔制定新一轮对中共国当局的制裁措施。
+该决议称，只要中共国对欧洲议会议员和学者的制裁到位，早先阻止欧盟·中国投资协议的决定就有效。
+
+议会在 5 月以压倒性多数投票拒绝对该交易进行任何考虑，只要有中共的制裁。
+中共国表示，在欧盟对中共国官员因侵犯人权的指控采取惩罚措施后，中共的制裁是合理的回应。
+
+比利时议会周四还通过了一项决议，警告中国维吾尔人面临“种族灭绝的严重风险”。
+该决议使议会与美国政府和包括英国、加拿大和荷兰在内的少数西方国家的类似声明保持一致。
+
+这引起了中共国的强烈反应。
+中共国外交部官员赵立坚说：“我们呼吁比利时立即纠正错误，以免中比关系恶化。”
+
+原文连接：[https://www.france24.com/en/live-news/20210709-eu-parliament-urges-officials-to-skip-beijing-olympics](https://www.france24.com/en/live-news/20210709-eu-parliament-urges-officials-to-skip-beijing-olympics)
+
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 心照
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
