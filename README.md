@@ -12,38 +12,38 @@
 
 ---
 
-### [中共旗舰芯片企业因债务问题申请破产 2025计划受挫](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [“重建更好世界”，美国启动DFC抗衡中共的“一带一路 ”](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《路德时评》解读美9.35亿打造月球轨道房，及美制裁34家中共军方关联企业](/content/gnews/2/README.md)
+### [7/7/2021 川普总统宣布对大科技巨头发起集体诉讼](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [《路德时评》解读美9.35亿打造月球轨道房，及美制裁34家中共军方关联企业](/content/gnews/3/README.md)
  ` 香柏树`
 
-### [美国增加制裁14家侵犯新疆人权的中共国企业](/content/gnews/3/README.md)
+### [美国增加制裁14家侵犯新疆人权的中共国企业](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国被指筹划打造全球军事补给网络，引发美国担忧](/content/gnews/4/README.md)
+### [中共国被指筹划打造全球军事补给网络，引发美国担忧](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【热点播报】海地总统莫伊兹被刺身亡 背后暗流涌动](/content/gnews/5/README.md)
- ` 纽约香草山MOS01`
+### [是什么让杰森·米勒的新社交媒体应用程序与众不同](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [班农：习傲慢演讲证实了郭文贵两周前给美国的预警](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共蹂躏世界&nbsp; 牺牲的是海外华人的形象、安全和利益](/content/gnews/7/README.md)
+ ` Himalaya Rose Garden Team`
 
-### [如同神曲“打倒中共”，盖特将成为文化的、百花齐放的平台](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [2021年7月10日 文贵先生盖特 2](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [中共黑客盖特，因为它不想让世界上任何人有真正的自由](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [【新闻速递】美国游泳冠军Michael Andrew说不会接种疫苗](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
 
-### [中共敢不敢具体向民众解释何为“稳定币”？](/content/gnews/9/README.md)
- ` 秘密翻译组G-Translators`
+### [新加坡在COVID-19疫苗接种统计中不计入北京科兴疫苗](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“不得擅自闯入”——立法者称， 这个标示可以对疫苗骚扰者提出指控](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [医疗群体被禁在社交媒体发布如硫酸羟氯喹有效治疗药物](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [多国已获得中共病毒生化武器证据&nbsp; 以毒灭共将成为爆料革命最伟大里程碑](/content/gnews/11/README.md)
+ ` Himalaya Rose Garden Team`
 
 ### [【樱花宅急便】川普重返白宫之战：对三科技巨头发起诉讼](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -66,117 +66,117 @@
 ### [中共治下，养老院如同监狱](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医疗群体被禁在社交媒体发布如硫酸羟氯喹有效治疗药物](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共蹂躏世界&nbsp; 牺牲的是海外华人的形象、安全和利益](/content/gnews/19/README.md)
+ ` Himalaya Rose Garden Team`
 
-### [2021/07/07 班农专访(1) 川普对封杀他的社交媒体发起诉讼](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [多国已获得中共病毒生化武器证据&nbsp; 以毒灭共将成为爆料革命最伟大里程碑](/content/gnews/20/README.md)
+ ` Himalaya Rose Garden Team`
 
-### [作为思想集市，盖特是为政治领域人士和全世界人民打造的](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [7/2/2021 李毅吐真言：留学归国的人才被糟蹋和打击的情况在中共国非常普遍，但美国却想尽办法把人才留住](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
 
-### [乔·拜登阿富汗撤军讲话：恐怖主义已扩散至阿富汗以外](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [7/4/2021 班农先生谈盖特的力量：盖特让人们能自由讨论被大科技寡头所噤声的话题并将像90年代的福克斯那样火起来](/content/gnews/22/README.md)
+ ` 秘密翻译组-北美组`
 
-### [班农：习傲慢演讲证实了郭文贵两周前给美国的预警](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [川普总统来不来 GETTR 都会应运而生&nbsp; 但他一定是我们绝对的战友](/content/gnews/23/README.md)
+ ` Himalaya Rose Garden Team`
 
-### [如同神曲“打倒中共”，盖特将成为文化的、百花齐放的平台](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [7/4/2021 班农先生：推特和盖特必将此消彼长 &#8211; 推特的活跃用户很少且充斥着无知与傲慢，而横空出世的盖特却提供了更宽松的言论环境](/content/gnews/24/README.md)
+ ` 秘密翻译组-北美组`
 
-### [【樱花宅急便】为何推广教育孩子要“持证上岗”](/content/gnews/25/README.md)
- ` 日本东京樱花团`
-
-### [【NewsExpress】朝鲜不要中共疫苗 也拒绝Covax计划提供的免费AZ](/content/gnews/26/README.md)
- ` 索尼克`
-
-### [日本为“被中共限制出境的人权活动家”举行签名活动](/content/gnews/27/README.md)
- ` 日本东京樱花团`
-
-### [疫苗谎言“云南瑞丽疫苗接种率近97%却封城”](/content/gnews/28/README.md)
- ` 日本东京樱花团`
-
-### [北京布什：“老朋友”——中共最高宣传员](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【新闻速递】美国因新疆人权问题将14家中共国公司列入经济黑名单](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
-
-### [中共旗舰芯片企业因债务问题申请破产 2025计划受挫](/content/gnews/31/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中共敢不敢具体向民众解释何为“稳定币”？](/content/gnews/32/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共病毒患者住院治疗时因缺乏维生素D而死亡](/content/gnews/33/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [全世界在关注没有观众的东京奥运会](/content/gnews/34/README.md)
- ` 日本东京樱花团`
-
-### [和中共一样，美国和西方寡头想在全世界推行金融极权主义](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国即将面临中共的迫在眉睫的攻击](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共内部统计：9600万农民死于大饥荒](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [杰森·米勒：人们想要一个新的平台，确保不会再失去发声的平台](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [华尔街终于醒了](/content/gnews/39/README.md)
+### [【NewsExpress】中国芯片巨头清华联合集团寻求破产](/content/gnews/25/README.md)
  ` 闪电侠`
 
-### [【新闻速递】海康威视被揭——聘请前美国官员为说客](/content/gnews/40/README.md)
+### [【新闻速递】Ashton Kutcher警告：中共国会通过TikTok推动反美宣传](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [参议员科顿加入福克斯新闻谈论耐克、中共以及奥运会问题](/content/gnews/41/README.md)
- ` 澳喜农场多语组`
+### [【NewsExpress】在缅甸中国人被勒令回国 却被限额申请入境](/content/gnews/27/README.md)
+ ` 闪电侠`
 
-### [7/9/2021 财经快讯：富国银行扼杀客户个人信用额度; 又有两家中共国公司撤回在美IPO计划](/content/gnews/42/README.md)
- ` 秘密翻译组金融团队`
+### [【新闻速递】拜登与普京通话，敦促俄罗斯对网络勒索集团采取行动](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
 
-### [瑞士联邦政府数据外包给中共国云未成事实](/content/gnews/43/README.md)
+### [北约与乌克兰联合军演结束](/content/gnews/29/README.md)
+ ` 闪电侠`
+
+### [【新闻速递】美国游泳冠军Michael Andrew说不会接种疫苗](/content/gnews/30/README.md)
+ ` 纽约香草山MOS02`
+
+### [盖特关于推特阻断推文输入的声明](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [澳门21名“不效忠”立法会参选人被DQ](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【文字版】路德时评2021.7.9早间（路安娜谈）:基辛格替中共站台与王岐山对话能转变中美关系吗](/content/gnews/44/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [媒体自由联盟21国政府就香港苹果日报关闭的声明](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [7/10/2021 日本银河快讯：菅义伟应对暴雨：&#8221;必须迅速行动，保护生命&#8221;；奥运会日本官员因门票取消而哽咽](/content/gnews/45/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [【简讯】中国2020年在提高贫困标准的情况下“成功”消除了全部贫困人囗！](/content/gnews/34/README.md)
+ ` 纽约香草山MOS02`
 
-### [2021年07月09日澳喜要闻（每日更新）](/content/gnews/46/README.md)
- ` 澳喜农场`
+### [波索比克：美国那1%是照搬中共模式；他们或许企图走中共模式走到极致](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂芬·莫舍：中国共产党手上有近5亿条中国人命.我称（中共）为人类历史上最大的杀人机器。](/content/gnews/47/README.md)
- ` 澳喜农场多语组`
+### [和中共一样，美国和西方寡头想在全世界推行金融极权主义](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【战友观点】英国BBC华盛顿分社里中共的鬼影现形了](/content/gnews/48/README.md)
- ` 温哥华扬帆农场`
-
-### [美日护台动作频繁统独议题持续威胁台湾](/content/gnews/49/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共战狼刚骂完美国和日本，转头开始骂欧盟](/content/gnews/50/README.md)
- ` 秘密翻译组G-Translators`
-
-### [伊丽莎白女王号航母打击群已通过苏伊士运河进入红海](/content/gnews/51/README.md)
- ` G-NEWS TAIWAN`
-
-### [日本450名医生提交请愿书，要求停止接种疫苗](/content/gnews/52/README.md)
- ` 秘密翻译组G-Translators`
-
-### [台湾民众:只有将柯文哲隔离，台湾才能真正做好防疫](/content/gnews/53/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共说谎百年 不配对世界具备话语权](/content/gnews/54/README.md)
- ` 秘密翻译组G-Translators`
-
-### [印度政府表示 Twitter 在印度失去了法律保护](/content/gnews/55/README.md)
+### [美国即将面临中共的迫在眉睫的攻击](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [质疑疫苗的仓促推广、mRNA技术发明人也遭封杀](/content/gnews/56/README.md)
+### [中共内部统计：9600万农民死于大饥荒](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [7/9/2021 国际财经快讯：欧盟 &#8220;脱欧法案 &#8220;的成本增加了数十亿英镑; 华尔街创收盘新高，金融业引领反弹](/content/gnews/39/README.md)
+ ` 秘密翻译组金融团队`
+
+### [7/10/2021 国内经济状况周报：液燃气价格走高；央行降准放水万亿 ；中共加速推出数字人民币](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中共降准难逃流动性危机](/content/gnews/41/README.md)
+ ` 军迷wilson`
+
+### [华尔街终于醒了](/content/gnews/42/README.md)
+ ` 闪电侠`
+
+### [新西兰教授嘲笑习近平推特账号一度被封（玫瑰看新闻七月七日）](/content/gnews/43/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [华盛顿邮报社论指:中共对民主世界与人类自由威胁日增（玫瑰看新闻七月七日）](/content/gnews/44/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [特别报道：中共国基因巨头获取了数百万女性的数据](/content/gnews/45/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [CDC跟踪疫苗接种情况，发布新的K-12 学校口罩指南](/content/gnews/46/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [五角大楼黑名单上的中共国监控公司聘请前美国官员为说客](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [福克斯警告“马克思主义是美国生活方式的对立者”](/content/gnews/48/README.md)
+ ` HimalayaRussia`
+
+### [自由平等博爱是万佛万神赋予人与生俱来的价值](/content/gnews/49/README.md)
+ ` G-NEWS TAIWAN`
+
+### [谁是媒体背后真正的控制者](/content/gnews/50/README.md)
+ ` G-NEWS TAIWAN`
+
+### [证据确凿福奇逃不过审判](/content/gnews/51/README.md)
  ` 秘密翻译组G-Translators`
+
+### [【币圈】-数字货币动态- 2021.7.10](/content/gnews/52/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美军让你知道 什么叫民主式效率](/content/gnews/53/README.md)
+ ` G-NEWS TAIWAN`
+
+### [台湾400万人上街一星期 能不独立？](/content/gnews/54/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美国朋友，灭共机遇不是一直都伴随你](/content/gnews/55/README.md)
+ ` 澳喜农场`
+
+### [反台湾人士的真相？](/content/gnews/56/README.md)
+ ` G-NEWS TAIWAN`
 

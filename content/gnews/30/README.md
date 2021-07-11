@@ -1,69 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】美国因新疆人权问题将14家中共国公司列入经济黑名单
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1386596/)
+## 【新闻速递】美国游泳冠军Michael Andrew说不会接种疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1388706/)
 
-作者：美东香草山健身部 文真
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/08025536/WhatsApp_Image_2020-10-24_at_04.33.05-6.jpeg)
+译评：纽约香草山健身部 Jack Li文阳
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-路透社华盛顿7月9日消息：拜登政府本周五将14家中国公司和其他实体列入经济黑名单，因为他们被指控在新疆侵犯人权和进行高科技监控。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10032007/%E5%9B%BE%E7%89%8719-1.png)
+新闻来源：NEWSMAX
 
-商务部称，这些公司 “在中共对新疆维吾尔自治区的维吾尔人、哈萨克人和其他穆斯林少数民族成员实施镇压、大规模拘留和高科技监控的行径中，与侵犯人权和虐待有牵连。”
+新闻链接：[US Olympic Swimmer Michael Andrew Won’t Get Vaccinated](https://www.newsmax.com/newsfront/vaccine-olympics/2021/07/09/id/1028115/)
 
-北京否认了被指控的虐待行为。
+译文：
 
-路透社在周四晚间首次报道了这一计划的补充内容。
+距东京奥运会仅剩几周时间，美国前100米个人混合泳世界冠军Michael Andrew表示，他将不会接种COVID-19疫苗。
 
-这些公司和实体包括中国电子信息技术研究院、新疆联海创智信息技术有限公司、深圳康贝尔信息技术有限公司、新疆熙菱信息技术股份有限公司、北京格灵深瞳信息技术有限公司、深圳华安泰智能科技有限公司、成都西物信安智能系统有限公司。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10194741/61.jpg)图片来源：AP
 
-商务部称，总共增加了34个实体，包括一些来自俄罗斯和伊朗的实体，还有五个实体直接支持中共与激光和战斗管理系统有关的军事现代化项目。
+22岁的安德鲁将与美国队一起参加他的第一次奥运会，他将参加100米蛙泳、200米个人混合泳和50米自由泳的比赛。
 
-商务部部长吉娜·雷蒙多（Gina Raimondo）在一份声明中说：“商务部仍然坚定地致力于采取强有力的、果断的行动，针对那些在新疆促成侵犯人权行为或利用美国技术助长中共破坏稳定的军事现代化努力的实体。”
+通过电话采访，安德鲁对记者说：“原因一方面是，即使在最后一刻，我不知道自己可能会有如何的反应，所以不想把任何不确定的东西放进我的身体。作为一名精英级别的运动员，我们所做的一切都是要经过深思熟虑的。对我来说，在训练周期中，尤其是在试训中，我不想冒任何风险，因为有些时期如果你接种疫苗，得有几天的假期。”
 
-该名单还包括为向伊朗出口美国物品提供便利的8个实体，以及参与采购美国原产电子元件的6个实体，这可能为了推动俄罗斯的军事计划。
+安德鲁后来表示，他也不会在“遥远的未来”接种疫苗，并透露这不是时间的问题。
 
-这一行动是在该部门上个月决定将其他家公司和其他中共国实体列入黑名单之后采取的，因为有人指控他们在中国偏远的西部地区强迫劳动。
+前往东京的奥运会运动员不需要接种疫苗，但由于COVID-19感染率上升，日本本周宣布进入紧急状态，组织者禁止观众到现场观看奥运会。
 
-中共驳斥了对新疆种族灭绝和强迫劳动的指控，并表示其政策对于杜绝分裂分子和宗教极端分子是必要的，这些人策划袭击并挑起了大部分穆斯林维吾尔族和中国最大民族汉族之间的紧张关系。
+安德鲁说，他在东京期间将遵守所有COVID-19协议——“大量测试、戴口罩、保持社交距离、显然远离人群，诸如此类。”
 
-“中方将采取一切必要措施维护中国公司的合法权益，拒绝美国干涉中国内政的企图。”外交部发言人汪文斌周五说。
+上个月，安德鲁在美国奥运会选拔赛中获得100米蛙泳第一名。
 
-最新的行动表明，美国总统乔·拜登旨在就美国政府所说的对新疆维吾尔族的人权侵犯不断恶化向中共国施压。
+简评：因为不了解，所以不参与——这是聪明人的行事准则，对待被植入身体的新冠疫苗更要慎重。闫博士说过，新冠是中共研发的生物武器，不会有疫苗。况且，疫苗被植入身体后无法再被取出。在疫情大时代下，正是考验人们智慧的时候。
 
-通常，被列入经济黑名单的实体需要向商务部申请许可证，并在寻求从美国供应商获得物品的许可时面临严格审查。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
-这不是美国政府第一次针对与新疆高科技监控活动指控有关的中共国企业。
-
-2019年，特朗普政府将中共国的一些顶级人工智能初创公司列入其经济黑名单，原因是其对待穆斯林少数民族的问题。
-
-特朗普领导下的商务部针对20个中共国公安局和8家公司，包括视频监控公司海康威视（002415.SZ），以及面部识别技术的领导者商汤集团有限公司和旷视科技有限公司。
-
-引用：
-
-[https://www.reuters.com/business/us-adds-14-chinese-companies-economic-black-list-over-xinjiang-2021-07-09/](https://www.reuters.com/business/us-adds-14-chinese-companies-economic-black-list-over-xinjiang-2021-07-09/)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05021712/7_july-4.jpg)
+编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
++1

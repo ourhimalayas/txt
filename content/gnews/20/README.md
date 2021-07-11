@@ -1,52 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/07/07 班农专访(1) 川普对封杀他的社交媒体发起诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1386672/)
+## 多国已获得中共病毒生化武器证据&nbsp; 以毒灭共将成为爆料革命最伟大里程碑
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1388472/)
 
-视频字幕/听写：云岭 | 翻译：Clau | 校对： Roberts | 简评/文字整理/编辑：胖丁| Page：我是球大哥
-[!\[\]()!\[\](https://spark.adobe.com/page/oey36LD12M3y9/images/af942b06-eb6c-4839-a1b5-30e0398b3540.png?asset_id=e7141527-7175-4c8b-b53d-457374723064&amp;img_etag=%22ad807ff8cab5c22ebf100b1a6803b776%22&amp;size=1024)](https://spark.adobe.com/page/oey36LD12M3y9/images/af942b06-eb6c-4839-a1b5-30e0398b3540.png?asset_id=e7141527-7175-4c8b-b53d-457374723064&amp;img_etag=%22ad807ff8cab5c22ebf100b1a6803b776%22&amp;size=1024)
-**简评：**
+**摘要：在2021年6月25日的GTV直播中，郭先生说美国国会正在通过一系列对中共惩罚的法案，欧洲、日本、澳大利亚等国已经获得来自中国的科学家和医学人士提供的全面证据和孙立军等中共藏匿在它国的证据，以毒灭共在五月份其实已胜利，剩下的只是走法律程序，以毒灭共会成为爆料革命最伟大的里程碑！**
 
-盖特的注册用户已经达到了100万，是社交媒体历史上达到100万用户最快的记录。现在注册盖特吧。
+**多国已获得中共病毒生化武器证据****  ****以毒灭共将成为爆料革命最伟大里程碑**
 
-同一天，川普总统将在他的川普国家高尔夫俱乐部宣布，他要发起一项对社交媒体的诉讼，对那些封杀他的社交媒体公司追责。已经有100家媒体到场，他们会谈论到与中共有业务往来的社交媒体寡头们。
+**The Strategy of Taking Down the CCP By Spreading the Truth of the Virus Will Be the Greatest Milestone of The Whistleblower Movement**
 
-GTV视频链接：[每周采访班农20210707-Q1: 盖特会发佈一个新闻，宣布已经拥有了 100万的用户，这是社交媒体历史上的最快记录](https://gtv.org/video/id=60e916534c6dfd47b42bba07)
+美国人民的代表叫国会，不是白宫。国会正在一系列的法案在对中共进行惩罚。如果你但凡有一点常识和智慧，你要记住，病毒的事情不是说什么会不会解决，是一定会解决。以毒灭共会成为爆料革命最伟大的里程碑！
 
+The representative of the American people is the Congress, not the White House. The Congress is passing a series of bills to penalize the Chinese Communist Party. If you have a little common sense and wisdom, you need to remember – there is no question that the virus thing will be straightened out, definitely. The strategy of “taking down the CCP by spreading the truth of the virus” will be the greatest milestone of the Whistleblower Movement!
 
+我再告诉大家，我们的从国内救出的科学家，在欧洲的科学家彻底地改变了以毒灭共的游戏规则。我们刚刚救出的人、到达美国的人和到达西方的人，已经100%地让西方认识到这是生化病毒，这是真正的病毒武器、超限战，真正的这是生化武器了。
 
-**视频字幕：**
+Let me tell you one more time –  the scientist we rescued from China, the one in Europe, has completely changed the rules of the game in terms of eradicating the CCP with the virus. Those who were just rescued by us and arrived in the US or the West have completely made the West realize that this is a bioweapon virus, and this is a real bioweapon and unrestricted warfare. This is a real bioweapon.
 
-**Castle**：我是Castle。
+我可以说从5月份这一切已经是100%定局，剩下的就是一个程序。而且我再可以告诉大家，会有更多的内部知情者和参与者会与我们爆料革命、新中国联邦合作，会跟世界上很多国家合作。
 
-第一个问题，根据Newsmax的报道，今天上午11点，川普总统将会在川普国家高尔夫球俱乐部宣布一项关于他对社交媒体平台的重要消息。你有什么可以谈的吗？班农先生。
+I can say that the ending was determined in May already, and what’s left is to just finish the process. I can tell you once more that there will be more insiders and people who have been involved [in the making of the bioweapon] joining us in the Whistleblower Movement and the New Federal State of China, and they will work with many countries around the world.
 
-**班农**：有。我想在你们的节目中发布这个消息，今天川普总统不会讨论他要使用什么社交媒体平台。如你所知，盖特会在几分钟内发布一个新闻，宣布他们已经拥有了100万的用户，这是社交媒体历史上达到100万用户的最快记录，现在就注册盖特吧。
+上周末有从国内出来的级别不高但很重要的医疗界人士和医学界人士，向欧洲的某国提供了所有的全程的一些病人的案例和信息，并且提供了视频医疗证据，还有研发的证据，对这些国家都是巨大的震撼。
 
-川普总统今天实际上是要谈一场诉讼。他要谈的是，从事实上对那些封杀他的社交媒体公司追责的可能性。因此，我预计今天11点的新闻发布会将会非常的激烈，已经有100个媒体到场，你们应该在直播中观看并发表评论。但我相信今天会谈论到对社交媒体寡头的追究，如你们所知，这些寡头全部都与中共有业务往来。
+Last weekend a low-level but a very critical medical and health science personnel gave a certain European country all the information including some patient case reports, video evidence of medical treatment and evidence of research and development [of the virus], which shocked these countries greatly.
 
-**完整访谈视频**：[每周班农采访 （2021年7月7日）](https://gtv.org/video/id=60e5a6658bc36963ff0af6ad)
+特别像澳大利亚。澳大利亚政府获得了像孙力军这些人藏在澳大利亚他老婆、他妹妹在家里边的一些武汉的一些证据。哈哈，武汉。澳大利亚政府更加坚定这绝对是共产党的病毒武器。澳大利亚拥有的证据一定会跟美国和英国、欧洲分享，这无容置疑。
 
-**主播**：Mike, Dr. TCC, Castle
+Especially in Australia, the Australian government obtained some evidence from Wuhan that people like Sun Lijun had hidden in Australia at his wife’s and his sister’s houses. Haha, Wuhan. The Australian government is now more confident that this is definitely a bioweapon of the CCP’s. The evidence that Australia has will definitely be shared with the US, the UK and Europe. There is no doubt about it.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/oey36LD12M3y9/images/8682b825-e26f-481b-917c-910f995d3656.png?asset_id=b3954339-2b53-41c2-b969-7035d8b4f20d&amp;img_etag=%221fc9b4e5b69e219c6d17cff0d3e767a8%22&amp;size=2560)](https://spark.adobe.com/page/oey36LD12M3y9/images/8682b825-e26f-481b-917c-910f995d3656.png?asset_id=b3954339-2b53-41c2-b969-7035d8b4f20d&amp;img_etag=%221fc9b4e5b69e219c6d17cff0d3e767a8%22&amp;size=1024)
+逃到日本去的这些军人和医学人士给日本政府提供的东西，日本政府全面在调查研究中，日本更加地震撼，日本拥有的也会跟美国、欧洲分享。每时每刻都在发生着这些一个又一个的真正的核导弹在袭击着中共，而且没有人可以阻挡。
 
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+The stuff that the military and medical personnels, who fled to Japan, provided to the Japanese government is being fully investigated by the Japanese government and has shocked Japan even more. What Japan has will be shared with the US and Europe as well. Such things are hitting the CCP like real nuclear missiles all the time, and nobody can stop this.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+[视频来源](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64)： (53:01-55:50)
+鸣谢：[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1351941/)
 
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:30 （美东时间09：30）直播***
+* * *
 
-编辑：【英国伦敦喜庄园编辑部】
+***翻译**：一花一世界
+**字幕**：Rock小哥
+**校对**：BruhM
+**视频解码剪辑**：恒久忍耐
+**自媒体推广**：V%、TINALS
+**校对 & 编辑**：Isaiah4031*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+GETTR: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
 
-
-[!\[\]()!\[\](https://spark.adobe.com/page/oey36LD12M3y9/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/oey36LD12M3y9/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-
-+1
++3

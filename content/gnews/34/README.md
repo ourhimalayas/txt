@@ -1,18 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全世界在关注没有观众的东京奥运会
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1386626/)
+## 【简讯】中国2020年在提高贫困标准的情况下“成功”消除了全部贫困人囗！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1388383/)
 
-撰稿：日本樱花团/待命（文晓）
- 责编：日本樱花团/煙火1095
+作者：教育部 007
 
-![](https://lh6.googleusercontent.com/fjIaV4yMEuzeigZlCy-BbD97ZR63s0zbKco7ZfNHnvH2W2Sdvy2vEvg6jkfvJN1UiyVAxZi-zsKk79BKSdgZmiEtO9Ydt_T5wBIb9P6aO5VCaRAvMp9n0NlT0c-jH0RKMar7Kq-u)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10110705/Screen-Shot-2021-07-10-at-11.01.58-PM-1.png)
 
-全世界在关注没有观众的东京奥运会。英国报纸称之为“打击”，中共国表现出“高度关注”。 7月8日，日本政府决定在以东京为主的三大都市即将召开的东京奥运会场馆内不设观众席。世界媒体纷纷爆料，称这是 “对奥运会的打击 “和 “挫败”。将于明年2月在北京举行冬奥会的中共国媒体相继报道了这一消息表现出高度关注。 英国报纸《卫报》报道说，东京感染人数的增加，已决定第四次宣布东京进入紧急状态。并指责”首相菅义伟在公众的反对和专家的警的情况下，仍表示支持国际奥委会举办奥运会的决定。 中共国方面，共产党下属的媒体爆出了东京奥运会无观众政策的消息。
 
-(文章仅代表作者个人观点)
 
-发布：东京樱花团/煙火1095
+
+
+美国2019年，65岁以下个人的贫困线为13300美元，65岁或以上的贫困线为12261美元；三人家庭（2个成人和1个孩子）的贫困线为20578美元；五人家庭（2个成人3个孩子）的贫困线为30510美元。
+![我们2020年在提高贫困标准的情况下“成功”消除了全部贫困人囗。你美国做得到吗？你们是在搬起石头砸自己的脚！]()![我们2020年在提高贫困标准的情况下“成功”消除了全部贫困人囗。你美国做得到吗？你们是在搬起石头砸自己的脚！](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10160803/%E6%88%AA%E5%B1%8F2021-07-10-%E4%B8%8B%E5%8D%884.07.18-e1625947714848.png)
+收入包括税前收入和现金福利援助，但不包括实物福利援助，如补充营养援助计划（SNAP）福利和医疗补助。 中国2019年，贫困标准为3218元人民币，合497美元。 我代表中国口炮部发言人，向美国政府表示强烈抗议！美国物价那么低，贫困线标准却定那么高，居心叵测，是想羞辱我中共吗？结果你的贫困率比我中共国还高，我们2020年在提高贫困标准的情况下“成功”消除了全部贫困人囗。你美国做得到吗？你们是在搬起石头砸自己的脚！
+
+校对/发稿：悟空
+
+参考来源：[https://gettr.com/post/pqovt](https://gettr.com/post/pqovt)
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+
+
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1

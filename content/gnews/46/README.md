@@ -1,13 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年07月09日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1386257/)
+## CDC跟踪疫苗接种情况，发布新的K-12 学校口罩指南
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1388230/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10010826/image0-32-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10010709/image1-5-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10010659/image2-1-scaled.jpg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10141024/1349-1.png)
+**据《零对冲》作者：TYLER DURDEN，2021年7月9日报道：**
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
-0
+在告诉公众没有理由相信公众将需要COVID疫苗“加速注射”之后，美国疾病控制与预防中心 (CDC) 于周五早上发布了更多更新的指南。这一次，更新后的指南侧重于K-12公立学校在即将到来的2021-2022学年应采取的预防措施。
+
+最重要的是，该指南包括一项指令，即无论是否可以实施所有COVID预防策略，学校都应保持开放，即使发生疫情，也应保持开放。
+
+新的联邦指导方针不是强制性的，但它们应该为公立学校管理人员提供一个框架，以帮助应对COVID时代教学的复杂性。
+
+更新后的指南建议面对面的教育是“优先事项”。重要的是，学校将被要求跟踪哪些学生和教职员工已“完全接种”疫苗。
+
+首先，学校可以做的最重要的事情是鼓励尽可能多的学生和教职员工接种疫苗。
+
+CDC表示：“在符合条件的学生、教师、工作人员和家庭成员中实现高水平的COVID-19疫苗接种是帮助学校安全恢复全面运营的最关键策略之一。”
+
+由于并非所有学生都会在即将到来的学年结束时接种疫苗，因此当局应在促进接种疫苗与修改后的社交距离策略之间取得平衡。例如，所有学生在教室内应至少保持3英尺的物理距离。如果这是不可能的，那么学校应该采取“分层”策略，包括频繁的测试、通风、洗手和“呼吸礼仪”。
+
+学校管理人员应跟踪周围社区内的COVID流行程度。
+学生和老师不会被要求在户外戴口罩，但当周围社区的传播水平很高时，即使是接种疫苗的人也可能会被要求在室内戴口罩。此外，CDC建议公交车司机及其乘客在往返学校的途中佩戴口罩，无论他们是否接种了疫苗。
+
+对于未接种疫苗的教职员工和学生，指南建议每周至少对他们进行一次检测，如果社区的传播率上升，则可能会进行更多检测。对于参与体育运动的学生，他们可能会被要求每周接受两次测试。
+
+由于CDC没有真正的权威性，它在指南中明确指出，学校将负责决定遵循哪些指南。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10141304/1349.png)
+除了深入研究鼓励接种疫苗的道德准则外，其他“预防策略”还包括促进疫苗接种、一致且正确地使用口罩、保持身体距离、筛查测试以便及时识别病例、聚集和爆发、通风、洗手和呼吸礼仪、生病要接受检测、接触者追踪（结合隔离和检疫）、清洁和消毒。
+
+学校可以混合搭配最适合他们的策略。分层特定预防策略的需求会有所不同，并且地方可能会根据社区传播水平、疫苗接种覆盖率以及当地政策和法规实施较少的COVID-19预防策略。
+
+一些学校可能会选择完全接受这些指导方针，而另一些学校可能会完全拒绝它们。在亚利桑那州，7月21日（美国最早的开学日期之一）欢迎学生返校的Chandler联合学区已经决定，戴口罩将是自愿的。事实上，共和党州长Doug Ducey签署了一项法律，禁止当地县和学区要求学生或教职员工戴口罩。
+
+原文连接：[https://www.zerohedge.com/covid-19/updated-cdc-guidance-asks-unvaccinated-students-teachers-wear-masks-school](https://www.zerohedge.com/covid-19/updated-cdc-guidance-asks-unvaccinated-students-teachers-wear-masks-school)
+
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1

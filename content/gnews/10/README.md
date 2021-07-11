@@ -1,42 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “不得擅自闯入”——立法者称， 这个标示可以对疫苗骚扰者提出指控
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1386722/)
+## 新加坡在COVID-19疫苗接种统计中不计入北京科兴疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1388552/)
 
-- 作者：Jenny Ball
+**据《rappler.com》 转载《路透社》文章，2021年7月7日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10174310/nurse.png)
+据新加坡卫生部称，新加坡已将那些接受科兴生物技术公司疫苗注射的人排除在其全国COVID-19疫苗接种人数之外。
 
+该国家卫生部在7月7日星期三的一份电子邮件声明中说：“全国疫苗接种人数只反映了在国家疫苗接种计划下接种的人。”
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+目前，这只包括那些接种了莫德纳公司和辉瑞生物技术公司/Cominarty疫苗的人。
 
-**西班牙2021年7月10日电/西喜社**
+科兴生物技术公司的CoronaVac疫苗不是新加坡国家疫苗接种计划的一部分，该城市国家表示它仍在等待科兴公司的关键数据。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10051554/1007.jpg)
+然而，在世界卫生组织（WHO）批准紧急使用后，它允许私人医疗机构通过特殊途径使用该（科兴生物）疫苗。选定的私人诊所可以利用该国目前20万剂CoronaVac的库存。
 
-今天早上，亚利桑那州参议员凯利·汤森（Kelly Townsend）告诉我们如何保护自己免受纳粹疫苗的侵害。
+大约370万人已经接受了至少一剂辉瑞公司或莫德纳公司的疫苗，复盖了约65%的人口，近220万人已经完成了该疫苗的完全接种计划。
 
-她分享了这条[推文](https://twitter.com/kelliwardaz/status/1412849185657851904)，告诉我们在联邦调查局要求我们提供文件之时， 我们可以做些什么。
+新加坡已经设定了一个目标，即在8月9日前后，三分之二的人完成两剂量的疫苗接种方案。
 
-我已经与当地执法部门谈过，如果您不希望联邦政府去你家问你打疫苗的事，他们建议，您在明显的位置张贴禁止擅自闯入的标志。这是能够指控某人违反您的意愿到您那儿的先决条件。
+在临床试验中，这两种药物对无症状疾病的疗效都远远超过90%，而科兴疫苗的试验结果从低至51%到约84%不等。本周早些时候，科兴公司没有回应关于其疗效的评论请求。
 
-亚利桑那州共和党主席凯利·沃德博士（ Kelli Ward ）随后建议，将您的标志个性化，以明确禁止疫苗骚扰者擅自闯入。
+新加坡医疗服务总监Kenneth Mak说，上个月来自其他国家的证据显示，接种过科兴疫苗的人仍然在被感染。他说：“存在着疫苗逃逸的重大风险。”
 
-谁会想到我们会看到“禁止擅自闯入” 而且还可以/应该将它们个性化以特别禁止那些骚扰让您接种疫苗的人？ 为什么《健康保险流通与责任法案》 HIPAA 和/或 第四法案没有阻止这种政府的骚扰行为？ 我们的健康信息难道不是私密的吗？
+截至7月3日，新加坡仅有17000多人接受了一剂科兴疫苗。 这些记录将被登记在国家免疫登记册上。
 
-我们防止不合理的搜查和扣押的权利去哪儿啦？
+接受科兴疫苗的人也不能免于参加某些活动或进入某些场所前需要进行的COVID-19测试。那些已经完成莫德纳公司或辉瑞公司全部疫苗接种方案的人则可以免于这种活动前测试。
 
-**评论：多么悲哀，宪法赋予美国公民的权利竟然被自己的民选政府公然无视和践踏****。****这份叫天天不灵的感觉，就是中国百姓在流氓共产党统治下的遭遇，民主国家的人民，应该从自己现在的处境中醒悟过来，并用法律保护自己。因为再忍耐沉默，我们拥有的一切都会被政府用各种名义剥夺殆尽！**
+卫生部上周说：“不属于我们国家疫苗接种计划的COVID-19疫苗可能没有记录足够的数据，说明其对COVID-19的感染具有保护作用，特别是无法证明对目前正在流行的Delta变体具有保护作用。”
 
-**我们的人权自由，任何人“不得擅自闯入”去抢走。行动！行动！快行动！**
+**文章来源**:[https://www.rappler.com/world/asia-pacific/singapore-not-counting-sinovac-shots-covid-19-vaccination-tally?utm\_medium=Social&utm\_source](https://www.rappler.com/world/asia-pacific/singapore-not-counting-sinovac-shots-covid-19-vaccination-tally?utm_medium=Social&amp;utm_source)
 
+翻译 : 洛杉矶盘古农场– Mike Li
+校对 :洛杉矶盘古农场– 心照
+编辑 :洛杉矶盘古农场– 明子
+发布 :洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-素材： Jenny Ball；审核：文乐； 校对：阿伯塔； 发稿：Nuevo唐人
-
-素材链接：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/07/no-trespassing-lawmaker-says-vaccine-harassers-can-charged/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1
