@@ -1,29 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【观点】中共病毒疫苗的次生灾害正在美国发生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1389592/)
+## 侵犯人权或助中共军队美增列34实体入黑名单
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1390099/)
 
-作者：小红帽
+#### 作者：日本东京方舟农场 東山堂主
 
-编辑：翼族
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205445/image4-5.png)图片来源：雅典娜农场设计组（精灵蓝）
-自从中共病毒肆虐全球以来，在美国累计[造成61.1万人死亡](https://en.wikipedia.org/wiki/Template:COVID-19_pandemic_data)，超过3389万人受感染（数据截止到7月10日）。美国疫情的严重性，导致民众纷纷选择注射中共病毒疫苗以避免感染中共病毒，但是美国民众不知道，中共病毒疫苗根本不是救人的。相反，因为注射疫苗而造成死亡的案例比历史上的任何时期都要多。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11095354/187EC97F-0E75-429F-AC5F-8D14FC0F0086.jpeg)
 
-近日，美国疾病预防控制中心报告揭露，[有9048人在注射中共病毒疫苗后死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)。这是美国疾病预防控制中心于7月2日在疫苗不良事件报告系统[（VAERS](https://vaers.hhs.gov/)）中发布的最新数据。VAERS系统是由美国政府资助的数据库，用于追踪由疫苗引起的伤害和死亡案例。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205514/image1-2-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-数据显示，除了9048例死亡案例外，还有7463例永久性残疾， 7822例危及生命，其中最吓人的是，竟然有高达56915例急诊案例。
+周五（7月9日）美国商务部增列34家国外实体进入黑名单，包括14个涉嫌在新疆侵犯人权与进行科技监控的中国实体，以及5家支持中国军事现代化与军方C4ISR（指挥、管制、通信、电脑、情报、监视、侦察系统）作战计划企业，其中包括列为台湾企业的杭州华澜微电子。
 
-这份报告从2020年12月开始统计注射中共病毒疫苗后的死亡人数,短短7个月内接种中共病毒疫苗后死亡的数据,比起前30年（从1991年1月1日至2020年11月30日）所记录的接种疫苗后的死亡总数（[6045例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;PERPAGE=400&amp;DIED=Yes&amp;VAX_YEAR_LOW=1991&amp;VAX_YEAR_HIGH=2020&amp;VAX_MONTH_HIGH=11)）还要多。很明显，中共病毒疫苗的毒性比传统的疫苗强很多。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205600/image2-1-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-更让人无法接受的是，美国疾病预防控制中心竟然不阻止孕妇注射这些疫苗。截至到7月2日，最新数据显示有[994名](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5b%5d=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5b%5d=Abortion+%2810000210%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5b%5d=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5b%5d=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5b%5d=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5b%5d=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5b%5d=Foetal+death+%2810055690%29&amp;SYMPTOMS%5b%5d=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5b%5d=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5b%5d=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5b%5d=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5b%5d=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5b%5d=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5b%5d=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5b%5d=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5b%5d=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5b%5d=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5b%5d=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5b%5d=Premature+baby+%2810036590%29&amp;SYMPTOMS%5b%5d=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5b%5d=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5b%5d=Premature+labour+%2810036600%29&amp;SYMPTOMS%5b%5d=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5b%5d=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5b%5d=Stillbirth+%2810042062%29&amp;SYMPTOMS%5b%5d=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19)未出生的孩子在其母亲注射中共病毒疫苗后流产。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205639/image3.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-一位获奖的美国[脊柱外科医生和外科医生协会的前主席](https://humansarefree.com/2021/02/respected-doctor-who-studied-bioweapons-believes-covid-19-jabs-are-a-form-of-weaponized-medicine.html)曾发声，认为目前的中共病毒疫苗是针对人们部署的危险“生物武器”。非常遗憾的是，这并没有引起更多美国人的注意。很多人仍然相信主流媒体的宣传，选择打疫苗。
+美国商务部网站发表声明说，美国商务部工业和安全局 (BIS) 将34家实体添加到实体名单中，这些实体参与或有参与违反美国外交政策和国家安全利益活动的风险。其中14家位于中华人民共和国（PRC）的实体帮助北京能对维吾尔族、哈萨克族和新疆维吾尔自治区其它穆斯林少数民族成员进行镇压、大规模拘留和高科技监控。中华人民共和国（中共）继续在这些地区犯下灭绝种族罪和危害人类罪。
 
-爆料革命吹哨人郭文贵先生和闫丽梦科学家曾多次警告，中共病毒根本没有疫苗。但是被共产党深度渗透的美国各界似乎还在继续执行共产党的“中共病毒疫苗战”计划。笔者不禁联想到之前“[盖茨基金会资助华大基因，病毒测试“采集”美国人DNA数据](https://gnews.org/zh-hans/1182242/)”一案。中共是否正在和盖茨基金会全面展开减少世界人口的计划？在全球追责中共投放“生化武器”之际，这疫苗闹剧还要折腾多久？但愿美国人民以及全世界人民早日醒觉并认识到中共的邪恶。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11095406/12FDB0DB-BC64-4F84-9EE5-5F902E6DB242.jpeg)
 
-毕竟留给人类的时间不多了，我们要尽快消灭共产党！
+被列为台湾企业的华澜微电子股份有限公司（Hangzhou Hualan Microelectronics Co.），北京东土科技股份有限公司（Kyland Technology Co., Ltd.）及其两个子公司北京东土军悦科技有限公司（Armyfly）和Kindroid加入黑名单。这些中企参与违反美国国家安全和外交政策的活动。具体而言，美国商务部确定这些实体正在采购并正试图采购源自美国的物品，以支持中共军事现代化。
 
-（文章仅代表作者个人观点）
+武汉锐科光纤激光技术则因构成违反出口管制规则（EAR）风险行为列入清单，原因是该公司从事构成违反“出口管制法规”（Export Administration Regulation, EAR）风险的行为。可能参与采购美国原产商品，用于未经授权的军事最终用途。
 
-+2
+北京海力联合科技有限公司（Beijing Hileed Solutions Co.,Ltd.），北京燕京电子有限公司（Beijing E-Science Co），Info Rank Technologies，以及一名个人Wingel Zhang也被加入黑名单，这些公司和个人在没有必要许可情况下出口和试图出口受EAR管辖的物品。
+
+除了中国之外，俄罗斯有6家实体列入，加拿大、伊朗与黎巴嫩各2家，荷兰、巴基斯坦、新加坡、韩国、台湾、土耳其、阿拉伯联合大公国与英国各有一家上榜。
+
+美商务部长吉娜‧雷蒙多（Gina Raimondo）在声明中表示：“商务部仍然坚定地致力于采取强有力果断行动，以打击那些在新疆实施侵犯人权行为，或利用美国技术推动中国（中共）进行破坏稳定的军事现代化努力的实体。”
+
+美国商务部的实体清单禁止美国公司在未获得美国政府许可情况下与指定公司开展业务。
+
+中共强硬回应: 中共外交部发言人汪文斌指责美方的[实体清单]是打着人权幌子打压中国特定企业和产业的工具，是美方祸乱新疆、以疆治华的手段.中共商务部11日在官网以发言人答记者问的方式表示，美国是[泛化国家安全概念，滥用出口管制措施]，中方表示坚决反对，将采取一切必要措施，并表示，国际行业机构和外国企业在华代表，近期将赴新疆实地考察棉田、纱厂。
+
+中共表面强硬,实则底气不足,美制裁的企业虽然只有20多家,但中共的官企民企密不可分,一个环节断裂,都有可能引起多米诺骨牌效应,加上中共病毒疫情连续冲击,国内企业恐怕会出现更大的倒闭潮!
+
+*注：文章仅代表作者观点*
+
+*参考链接：*
+
+1. [*https://www.cna.com.tw/news/firstnews/202107100004.aspx*](https://www.cna.com.tw/news/firstnews/202107100004.aspx)
+2. [*https://baijiahao.baidu.com/s?id=1704883533654365951&wfr=spider&for=pc*](https://baijiahao.baidu.com/s?id=1704883533654365951&amp;wfr=spider&amp;for=pc)
+3. [*https://news.sina.com.cn/c/2021-07-11/doc-ikqcfnca6212697.shtml*](https://news.sina.com.cn/c/2021-07-11/doc-ikqcfnca6212697.shtml)
+4. [*http://finance.eastmoney.com/a/202107111992478468.html*](http://finance.eastmoney.com/a/202107111992478468.html)
+5. [*https://www.commerce.gov/news/press-releases/2021/07/commerce-department-adds-34-entities-entity-list-target-enablers-chinas*](https://www.commerce.gov/news/press-releases/2021/07/commerce-department-adds-34-entities-entity-list-target-enablers-chinas)
+
+
+* * *
+
+*校对：**MIMI**素材**:**武汉老温*  *发布：**miumiu*
+
+0

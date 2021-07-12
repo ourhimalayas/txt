@@ -1,11 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 和中共一样，美国和西方寡头想在全世界推行金融极权主义
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1386634/)
+## 【喜悦新闻】法官命令麦克斯韦两周内披露克林顿基金会获得资金的财务记录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1390491/)
 
-7/1/2021 戴夫·拉马斯瓦米评论查理·芒格的言论，并说美国和西方的寡头想在全世界推行金融上的极权主义，他们在意识形态上和中共是天造地设的一对。
+- 制作：视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月11日电/西喜社**
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 +1

@@ -1,49 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.07.11
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1389465/)
+## 【观点】中共病毒疫苗的次生灾害正在美国发生
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1389592/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11051905/711.jpg)
-## **每日一问**
+作者：小红帽
 
-*在币圈赚到钱的都是些什么人？*
+编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205445/image4-5.png)图片来源：雅典娜农场设计组（精灵蓝）
+自从中共病毒肆虐全球以来，在美国累计[造成61.1万人死亡](https://en.wikipedia.org/wiki/Template:COVID-19_pandemic_data)，超过3389万人受感染（数据截止到7月10日）。美国疫情的严重性，导致民众纷纷选择注射中共病毒疫苗以避免感染中共病毒，但是美国民众不知道，中共病毒疫苗根本不是救人的。相反，因为注射疫苗而造成死亡的案例比历史上的任何时期都要多。
 
-## **喜马拉雅Coin要闻**
+近日，美国疾病预防控制中心报告揭露，[有9048人在注射中共病毒疫苗后死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)。这是美国疾病预防控制中心于7月2日在疫苗不良事件报告系统[（VAERS](https://vaers.hhs.gov/)）中发布的最新数据。VAERS系统是由美国政府资助的数据库，用于追踪由疫苗引起的伤害和死亡案例。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205514/image1-2-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
+数据显示，除了9048例死亡案例外，还有7463例永久性残疾， 7822例危及生命，其中最吓人的是，竟然有高达56915例急诊案例。
 
-- 联盟答疑7月9日消息，VOG义工的HCN配额，联盟会先买下来。
+这份报告从2020年12月开始统计注射中共病毒疫苗后的死亡人数,短短7个月内接种中共病毒疫苗后死亡的数据,比起前30年（从1991年1月1日至2020年11月30日）所记录的接种疫苗后的死亡总数（[6045例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;PERPAGE=400&amp;DIED=Yes&amp;VAX_YEAR_LOW=1991&amp;VAX_YEAR_HIGH=2020&amp;VAX_MONTH_HIGH=11)）还要多。很明显，中共病毒疫苗的毒性比传统的疫苗强很多。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205600/image2-1-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
+更让人无法接受的是，美国疾病预防控制中心竟然不阻止孕妇注射这些疫苗。截至到7月2日，最新数据显示有[994名](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5b%5d=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5b%5d=Abortion+%2810000210%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5b%5d=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5b%5d=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5b%5d=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5b%5d=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5b%5d=Foetal+death+%2810055690%29&amp;SYMPTOMS%5b%5d=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5b%5d=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5b%5d=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5b%5d=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5b%5d=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5b%5d=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5b%5d=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5b%5d=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5b%5d=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5b%5d=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5b%5d=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5b%5d=Premature+baby+%2810036590%29&amp;SYMPTOMS%5b%5d=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5b%5d=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5b%5d=Premature+labour+%2810036600%29&amp;SYMPTOMS%5b%5d=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5b%5d=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5b%5d=Stillbirth+%2810042062%29&amp;SYMPTOMS%5b%5d=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19)未出生的孩子在其母亲注射中共病毒疫苗后流产。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205639/image3.jpg)报告来源 ：medalerts.org 数据来源：VAERS
+一位获奖的美国[脊柱外科医生和外科医生协会的前主席](https://humansarefree.com/2021/02/respected-doctor-who-studied-bioweapons-believes-covid-19-jabs-are-a-form-of-weaponized-medicine.html)曾发声，认为目前的中共病毒疫苗是针对人们部署的危险“生物武器”。非常遗憾的是，这并没有引起更多美国人的注意。很多人仍然相信主流媒体的宣传，选择打疫苗。
 
+爆料革命吹哨人郭文贵先生和闫丽梦科学家曾多次警告，中共病毒根本没有疫苗。但是被共产党深度渗透的美国各界似乎还在继续执行共产党的“中共病毒疫苗战”计划。笔者不禁联想到之前“[盖茨基金会资助华大基因，病毒测试“采集”美国人DNA数据](https://gnews.org/zh-hans/1182242/)”一案。中共是否正在和盖茨基金会全面展开减少世界人口的计划？在全球追责中共投放“生化武器”之际，这疫苗闹剧还要折腾多久？但愿美国人民以及全世界人民早日醒觉并认识到中共的邪恶。
 
-## **新闻动态**
+毕竟留给人类的时间不多了，我们要尽快消灭共产党！
 
-1. 截至10日18点，资金净流入排名前三为：CHZ（+69.27万美元）、AKRO（+59.83万美元）、DGB（+53.42万美元）；资金净流出排名前三为：BTC（-1620.83万美元）、ETH（-767.87万美元）、EOS（-754.86万美元）。
-2. Aicoin数据显示，截止10日19点左右，Bitfinex比特币空头持仓过去24h增加46.95%，达到12008枚BTC，当前Bitfinex比特币多头持仓占比为80.95%，空头持仓占比为19.05%。
-3. OurNetwork数据显示，自4月中旬至今，Polygon上每日活跃用户（DAU）周环比增长5.91%，此前三周Polygon上活跃地址均超10万，日均用户数月环比增长25.11%，过去60天时间内更是增长了269%。
-4. Subscan数据显示，截至昨日10:50，第四轮Kusama平行链卡槽拍卖众筹已锁定约290150KSM。目前Shiden已经拿到第三个卡槽，当前锁定数量前三的分别是Khala Network12.02万KSM、Bifrost8.22万KSM以及Basilisk3.00万KSM。
-5. Token Terminal数据显示，以太坊上的NFT+区块链游戏项目AxieInfinity近30天的收入再创新高，突破3000万美元，继续在DeFi协议收入榜中保持第一。同时，其近7天收入突破2000万美元，再创新高。
-6. 以色列投资基金集团（Israel Investment Fund Group）近日发推表示，作为投资组合多元化政策的一部分，我们已向比特币投资了23亿美元，这是引领以色列走向货币未来的全球战略的一部分。
-7. Thefintechtimes消息，英国慈善机构国家Zakat基金会（NZF）开始接受加密货币作为一种捐赠方式。据金融市场行为监管局(FCA)近期的数据，英国目前有230万人拥有加密资产，18岁及以上的人中有78%知道加密货币——比去年增加了73%。
-8. 官方消息，7月10日，FORTH与TALLY达成合作，凡持有FORTH的用户均可以在TALLY上对Ampleforth的生态治理进行投票表决。上线不到两小时FORTH质押已超过2万枚。
-9. ABMedia消息，台湾钱包商Blocto于13日销售Flow标准代币，支持Flow/Solana跨链生态。据称其销售条件与私募轮相同，但仅限量提供给早期用户。
-10. ABMedia消息，苏富比9日开拍可用加密货币支付的101.38克拉巨钻，最终拍出1230万美元。
-11. ABMedia消息，YIELD App比特币基金于10日正式上线，且将提供高达12%的市场领先收益,其中包括以比特币（BTC）支付的6%基础APY（年化收益），以及另外6%以YLD支付的奖励。
-12. Blocktempo消息，Playboy宣布首次与NFT平台SupeRare合作，明日会在“Decentraland艺术周”上展出并拍卖一系列名为“迈阿密海滩艺术”的NFT艺术品。
-13. ABMedia消息，以太坊知名合成资产协议Synthetix (SNX)10日宣布，预计在7月26日上线在二层解决方案Optimistic Ethereum。
-14. ETC Cooperative近日发推宣布Cardano创始人及IOHK首席执行官Charles Hoskinson重新成为其董事会新成员，并表示其一直是ETC的支持者，在该项目上有着独特的远见和经验。
-15. 最新消息，DogeSwap已完成对其平台权益凭证DOG的第94次回购销毁，本周共销毁105,380枚DOG，回购费用来源于平台20%的交易手续费，截止目前已销毁DOG总数达4,796,619枚。DOG暂报0.024美金，行情波动较大，请做好风险控制。DogeSwap是基于火币生态链全新的DEX。
-16. 马斯克此前评论称，BTC和ETH追求的是多层交易系统，但底层交易速度慢、交易成本高。Doge有一个优点，即通过充当第二层的交易所来最大化提升基础层交易率并最小化交易成本。后续马斯克回复网友评论表示，区块大小和频率应稳步增加，以匹配广泛可用的带宽。此外，对于网友询问“每秒最佳交易数量是多少？是否应该达到Visa的速度才是真正有用的？”马斯克表示，不需要达到Visa的速度，因为受监管的交易所将成为事实上的第二层，提高底层交易速度和降低底层交易成本仍然是好的。
-17. TheDailyHodl消息，链上分析师Will Clemente表示，近期鲸鱼再次潜入比特币市场，比特币鲸鱼再次与散户投资者一起增持。这位分析师说道，这一趋势“本周只会加速”，鲸鱼购买了价值约22亿美元的BTC。他同时指出，比特币(BTC)网络上的新用户数量创下历史新高。
-18. 加密社区质疑“EOS母公司Block.One计划将Bullish上市”未给EOS持有者带来任何价值。例如，加密研究机构Messari研究主管EricTurner表示，Bullish通过SPAC上市，给EOS带来零价值。CNBC主持人Ran Neuner表达了同样的观点。
-19. 据澎湃新闻报道，国际清算银行（BIS）发布的关于央行数字货币（CBDC）的最新研究报告显示，央行数字货币跨境使用尚存在一定风险，大多数央行尚未对发行CBDC做出最终决定。
-20. Blocktempo消息，短影片社交平台TikTok宣布禁止全球用户，发布加密货币和投资等金融服务与产品的推广内容。接下来几周，他们将利用科技侦测违规内容，进行自动删除。
-21. Blocktempo报道，自5月以巴冲突加剧，武装组织哈玛斯透过加密货币筹资越加频繁，对此，以色列政府做出了扣押响应。名单列出84个目标地址，总价值超过700万美元。
-22. Blocktempo消息，Chia Network官方表示，有人在Stellar网络上创建了一个名为Chia的代币，并且盗用Chia的徽标和公司信息，试图冒充成Chia的官方产品。这是100%诈骗，吁切勿买入。
+（文章仅代表作者个人观点）
 
-
-
-
-*编辑：aQ
-发布：文顾*
-
-+1
++2

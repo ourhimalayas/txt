@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世紀之戰—CCP病毒生化戰爭共產主義魔鬼困擾着世界
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1390711/)
+## 试试自己的预测对不对
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1390860/)
 
-作者：香草山農場 沙倫
+#### 撰稿：待命（文晓）
 
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11215154/1-21.png)[图片来源](https://ilovelearningchinese.com/archives/750) 
+7月11日，日本读卖新闻发表了驻台湾记者杉山祐之的报道：
 
+台湾行政院（内阁）发言人10日宣布，负责数字事务的内阁成员唐凤将被派往日本，参加７月23日开幕的东京奥运会。据信，蔡英文政府希望派在日本很有名气、很受欢迎的唐凤访问日本，也是出于对正被中共政府盯得很紧的日本和台湾之间日益增强的关系之考虑。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10110705/Screen-Shot-2021-07-10-at-11.01.58-PM-1.png)
+2016年里约热内卢奥运会，台湾派出的是教育部长潘文忠总干事去参加。 发言人解释说，由于潘主任工作繁忙，因此，本次决定由唐凤担任，唐凤的数字政策和其他活动在国内外都得到了高度评价。
 
+杉山祐之记者预测：中共国有可能对那些与奥运会没有直接关系的部长访问日本做出反应。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172214/Screen-Shot-2021-07-11-at-5.18.09-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172158/Screen-Shot-2021-07-11-at-5.18.26-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172146/Screen-Shot-2021-07-11-at-5.18.43-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172129/Screen-Shot-2021-07-11-at-5.18.53-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172114/Screen-Shot-2021-07-11-at-5.19.19-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172058/Screen-Shot-2021-07-11-at-5.19.36-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172046/Screen-Shot-2021-07-11-at-5.20.06-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11172033/Screen-Shot-2021-07-11-at-5.20.15-PM.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+笔者也做与杉山祐之记者同样的预测！
 
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[信息来源](https://www.yomiuri.co.jp/world/20210711-OYT1T50078/)
 
 0

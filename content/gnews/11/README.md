@@ -1,47 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇因研究表明抗体不能预防Delta变种而为疫苗辩护
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1390423/)
+## 电邮揭示了非人畜共患冠状病毒和感染人类细胞的尝试
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1390809/)
 
-**据《Zero Hedge》 作者：TYLER DURDEN，2021 年 7 月 8 日发布**
+**据《国家脉动》作者：NATALIE WINTERS，2021 年 7 月 9 日报道**
 
-随着全球超过四百万确诊 COVID 的死亡病例，纽约时报刚刚发表了发表在《自然》杂志上的新研究，质疑美国制造的疫苗在提供针对 Delta 变体的保护方面的功效。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11134612/1339.png)
-在研究发布前不久，福奇医生周四为美国的 COVID 疫苗辩护，声称辉瑞、Moderna 和强生公司开发的疫苗都对 Delta 变体有效。这是一种突变株，已成为公共卫生官员们的困扰，声称它可能会引发另一波大流行病。但卫生官员们没有告诉你的是，流行病学家认为 COVID 现正在人群中流行，达到“零COVID”是根本不可能的。
+生态健康联盟主席皮特达扎克 (Peter Daszak) 于 2017 年通过电子邮件向福奇 (Anthony Fauci)发送电子邮件，概述了他与武汉病毒研究所的石正丽对“蝙蝠源冠状病毒”的合作研究，其中包括“在实验室中进行检测以确定它是否可以感染人类细胞。”
 
-无论如何，虽然疫苗制造商对生产可提供针对各种变异保护的有利可图的加强注射的机会垂涎三尺，但纽约时报预览并发表在《自然》杂志上的新研究发现，Delta 菌株能够绕过疫苗接种或先前感染产生的抗体。
+通过《信息自由法》获得并由《司法观察》归档的一封2017年10的电子邮件，达扎克将其命名为“机密——在我们的 NIAID R01项目中，中国一种新的源自蝙蝠的冠状病毒在猪体内被发现”。达扎克似乎提到了福奇的国家过敏和传染病研究所 (NIAID) 向生态健康联盟组织提供的 370 万美元资助，其宣称的目的是“理解蝙蝠冠状病毒出现的风险”。然而，这笔资助可能导致与军方相关的武汉病毒研究所的“功能获得”合作研究。
 
-Delta 最早在印度被发现，据信其传染性比 alpha 变种高约 60%——该菌株也被称为“肯特菌株”，或 B.1.1.7，最早由英国科学家发现。本周，随着新的 COVID 病例数量比前一周增加了两位数（而住院和死亡人数仍然停滞），Delta 被宣布为在美国发现的主要变种。
+在给福奇和他的 NIAID 同事的电子邮件中，最近被《柳叶刀》的 COVID-19 委员会除名的达扎克附上了一篇关于“新型蝙蝠起源的冠状病毒”的未发表论文，称该病毒是“未知的人畜共患的”。
 
-几乎同样令人担忧的是，研究人员发现，虽然 Delta 能够有效地逃避抗体反应，但在南非首次发现的 Beta 变体可以更轻松地做到这一点。
+他在将武汉研究员石正丽列为联合首席研究员之前补充道：“我们也在做化验，以确定它是否可以在实验室感染人类细胞——目前还没有证据证明这一点”。这一描述也破坏了福奇过去试图使他的机构在经济上和人员上与武汉病毒研究所保持距离的努力。
 
-**以下是《纽约时报》关于这项研究的报告的更多内容：**
+达扎克还透露，他在发送电子邮件的那天（2017 年 10 月 1 日）“再次”见到了福奇，恰逢“新兴和重新出现的病毒”会议的开幕日。福奇在活动上发表了主题演讲，达扎克和石也发表了讲话。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11205959/Screenshot-2021-07-11-173339-1.png)
+**完整的电子邮件**
 
-研究人员查看了 103 名感染冠状病毒的人的血液样本。研究发现，Delta 对来自该组未接种疫苗的人的样本的敏感度远低于 Alpha（变异株）。
+**电子邮件全文如下：**
 
-一剂疫苗显著提高了敏感性，这表明从 Covid-19 中康复的人仍然需要接种疫苗以抵御某些变异。
+亲爱的福奇医生和 NIAID 的同事们：
+很高兴今天再次见到你们。我附上了一篇未发表的论文，目前正在《自然》的第二轮审查中，该论文描述了一种新型蝙蝠来源的冠状病毒（SADS-CoV：猪急性腹泻综合症冠状病毒），它最近蔓延到中国南方的养猪场，导致广东省5个以上农场的25,000多头猪仔死亡。
 
-该团队还分析了 59 人在接受第一剂和第二剂阿斯利康或辉瑞 BioNTech 疫苗后的样本。
+该病毒与SARS-CoV起源于同一群蝙蝠，并出现在同一个地方。它不是人畜共患病（我们已经用抗体检测对35名以上的养猪场工人进行了检测，没有一个呈阳性。养猪场老板告诉我们，由于扑杀和分离受感染的猪群，病毒现在已经得到控制。现在还不知道这种病毒是否在其他地方出现过，但我们正在寻找。我们也在做化验，以确定它是否可以在实验室感染人类细胞——到目前为止还没有证据表明这一点。
 
-在实验室实验中，仅 10% 接受过一剂阿斯利康或辉瑞 BioNTech 疫苗免疫的人的血液样本能够中和 Delta 和 Beta 变体。但是第二剂将这个数字提高到 95%。两种疫苗引发的抗体水平没有显著差异。
+我希望这篇论文是有趣的。你应该知道这项工作得到了 NIAID R01 的支持，Erik Stem是 我的项目官员，我是首席研究员 (PI) ，石正丽作为联合 PI。
 
-研究人员总结道，“单剂量的辉瑞或阿斯利康对 Beta 和 Delta 变体要么效果不佳，要么根本没有效果”。来自以色列和英国的数据广泛支持这一发现，尽管这些研究表明，一剂疫苗仍足以预防因病毒而住院或死亡。
+如果您需要任何其他信息，请随时发送电子邮件或致电，我很乐意来到 NIAID 向您进一步介绍。我还会让您知道它是否发布、何时发布，以便我们可以尝试进行适当的宣传。
 
-此外，还发现 Delta 变体对基于抗体的治疗具有抗性，例如Eli Lilly公司生产的单克隆抗体鸡尾酒“bamlanivimab”。
+干杯，
+皮特达扎克
 
-与此同时，福奇医生告诉记者，死于该病毒的美国人中有十分之九没有接种疫苗。尽管越来越多的接种疫苗的患者被感染并病情严重，但福奇坚持认为“科学”表明疫苗在预防感染方面极为有效。
-
-逻辑令人困惑，但它是这样的：Delta很可怕，所以要接种疫苗，但疫苗不能预防 Delta。这只是最新的提醒。福奇医生及其公司不在乎“科学”，他们来这里是为了保护疫苗的叙述和声誉，否则就有破坏白宫的风险。
-
-原文连接：[https://www.zerohedge.com/covid-19/dr-fauci-defends-vaccines-new-research-shows-how-delta-evades-antibodies?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/covid-19/dr-fauci-defends-vaccines-new-research-shows-how-delta-evades-antibodies?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+**原文连接：**[https://thenationalpulse.com/exclusive/daszak-fauci-email-reveal-coronavirus-research-with-wuhan/](https://thenationalpulse.com/exclusive/daszak-fauci-email-reveal-coronavirus-research-with-wuhan/)
 
 翻译：洛杉矶盘古农场 – B7
 校对：洛杉矶盘古农场 – TrueSky
 编辑：洛杉矶盘古农场 – 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-+1
+0
