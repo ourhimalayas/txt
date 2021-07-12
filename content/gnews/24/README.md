@@ -1,243 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 报告: 中共国从全球数百万女性身上提取 DNA
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1389748/)
+## 对共产党灭亡前的巨变 新中国联邦人该怎么做
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1390386/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11074157/510A5F6B-35E9-4D0B-9264-E36C3D464E94.jpeg)](https://gtv.org/video/id=60e9bab74c6dfd47b42bdaf8)
-[https://gtv.org/video/id=60e9bab74c6dfd47b42bdaf8](https://gtv.org/video/id=60e9bab74c6dfd47b42bdaf8)
+**摘要：郭先生在2021年6月25日的GTV直播中，告诉新中国联邦人在中共带来巨大的挑战前应该做好的两件事：一、团结所有的中国人，尊重所有的中国人，真的为中国人呐喊；二、和世界西方的文明国家团结在一起，让西方彻底地相信，新中国联邦人不等同于中国共产党。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11124730/Miles_2021-06-25-live-p4.srt.txt)
+**对共产党灭亡前的巨变新中国联邦人该怎么做**
 
-字幕内容：
+**What Should the NSFC People Do in a Time of Upheaval**
 
-Elizabeth MacDonald (Fox business host)
+那我们新中国联邦人该做什么？兄弟姐妹们，一定要认真地考虑考虑，这个世界到了什么样的疯狂的程度。我们战友们不仅最关键地要团结在一起，我们要对这个世界有一个清醒的认知。前所未有对海外华人、对所有的有智慧的中国人，来了个巨大的挑战，一个是机会、一个是灾难。跟着共产党走进火葬场，跟着新中国联邦团结在一起获得这千载难逢的共产党灭亡前、灭亡后的最大的利好。
 
-伊丽莎白·麦克唐纳 (福克斯商业频道主持人）
+So what do the people of the NFSC need to do? Brothers and sisters, we must ponder over it. How crazy has this world become! My fellow fighters, it is crucial that we must not only unite together, but we should also have a clear vision of the world. To overseas Chinese people, to all of the wise Chinese people, the CCP brings us unprecedented challenges – one is an opportunity, and the other is a calamity. Follow the CCP into the crematorium or follow the NFSC closely and obtain this once-in-a-lifetime opportunity and benefits, before and after the demise of the CCP.
 
-Well this puts into new context
+但是需要战友们做两件事，你要想真的是占住这个最大的人类有史以来最大的机会，你必须团结所有的中国人，尊重所有的中国人，真的为中国人呐喊，就像新中国联邦宣言一样。
 
-嗯，这就有了新的背景
+But if you really want to grasp this greatest opportunity in human history, we need you to do two things: you must unite and respect all the Chinese, and truly fight for the Chinese, just like what the Declaration of the NFSC says.
 
-why China is accused of covering up the origins of the outbreak in Wuhan
+第二个事情，所有的中国人要清醒地认识到，要和世界西方的文明国家一定要团结在一起，紧紧地和西方的文明国家和当地的政府合作、团结在一起。让西方彻底地相信，新中国联邦人不等同于中国共产党。
 
-为什么中共国被指责掩盖武汉爆发的起源
+Second, all Chinese people must clearly realize that we must unite with the civilized countries of the West, and closely cooperate with Western civilized nations and your local governments. Let the Western world completely believe that the NFSC is not the same as the CCP.
 
-and how the Wuhan lab was collaborating with the Chinese military
+新中国联邦人绝对是西方可相信的未来的中国人的代表。新中国联邦人，不仅可信、可依赖，而且可合作。最后达到让西方人知道，如果你想和中国人拥有一个永久的和平，你要和新中国联邦人打交道。这就像刚开始我说的，必须让海外的这近百万的国际婚姻家庭的、所有的和中国有关系的家庭更加有尊严、更加有安全感，广泛地传播真正的中国的历史和文化和中国的文明。
 
-以及武汉实验室如何与中共军方合作
+Let the Western world know that the NFSC is absolutely trustworthy and can represent the Chinese people in the future, and that the people of the NFSC are not only credible and reliable but are also cooperative. And finally let the West know that if they want to seek perpetual peace with the Chinese, they need to work with the NFSC. As I said at the beginning, we must grant the nearly one million transnational marriages abroad and all families with ties to China more respect and endurance, and widely disseminate true Chinese history and culture, as well as Chinese civilization.
 
-and also Dr. Fauci and the NiH
+所以说兄弟姐妹们，我们必须每个人发自内心地问问自己，你有准备好吗？你愿意这么做吗？
 
-还有福奇博士和国立卫生研究院
+Therefore, brothers and sisters, each of us must ask ourselves from the heart, are you ready? Would you be willing to do this?
 
-was funding the Wuhan lab super-virus research
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+[视频来源](https://gtv.org/video/id=60d5d60a6e4b8a00c7a13a64)： (42:59-45:35)
+鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1351941/)
 
-是资助武汉实验室超级病毒研究
+* * *
 
-You know the other thing that Reuters is reporting is
+***翻译**：鹦鹉（纽约香草山农场）
+**字幕**：Rock小哥
+**校对**：BruhM
+**视频解码剪辑**：恒久忍耐
+**自媒体推广**：V%、TINALS
+**校对 & 编辑**：Isaiah4031*
 
-你知道路透社报道的另一件事是
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+GETTR: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
 
-they were China is using this DNA data bank
 
-是中共国利用DNA的数据库
 
-They got the biggest DNA data bank from around the world
+> [Once the Origin of the CCP Virus Is Confirmed, the West Will Take the Soleimani-Style Action on the CCP](https://gnews.org/1355405/)
 
-他们从世界各地获得了最大的 DNA 数据，并建立数据库
 
-in the world rather
+2021年6月25日直播（一）[只要确定中共病毒来自武汉实验室  美国就会对中南坑实施斩首](https://gnews.org/zh-hans/1355387/)
 
-不如说是，在世界上获得了
 
-China is running the biggest DNA data bank in the world
+> [The Price of the CCP Ravaging the World Will Be Borne by Overseas Chinese](https://gnews.org/1388660/)
 
-中共国正在运行世界上最大的DNA数据库
 
-and that they’re using DNA they’re harvesting via this prenatal test
+2021年6月25日直播（二）[中共蹂躏世界  牺牲的是海外华人的形象、安全和利益](https://gnews.org/zh-hans/1388642/)
 
-并且他们正在使用华大集团出售的通过这个
 
-that the BGI group sells
+> [The Strategy of Taking Down the CCP By Spreading the Truth of the Virus Will Be the Greatest Milestone of the Whistleblower Movement](https://gnews.org/1388496/)
 
-产前测试获得的 DNA
 
-It’s a Chinese company it is a popular test too
-
-这是一家中共的公司，也是一个很普遍的测试
-
-Maybe they’re talking about genetically enhanced soldiers, pathogens
-
-也许他们在谈论基因增强的士兵
-
-that would target Americans or other populations around the world
-
-将针对美国人或世界各地的其他人群的病原体
-
-target the food supply so what can the U.S. congress do about this?
-
-针对其他国家的食品供应链，那么美国国会能做些什么呢？
-
-Rep. Darrell Issa (R-CA)
-
-众议员达雷尔·伊萨 (共和党-加州)
-
-Well I think what we have to do is what president Trump was doing
-
-好吧，我认为我们必须做的是川普总统以前做的事情
-
-That is treat China as an existential threat
-
-那就是将中共国视为生存威胁
-
-Treat them as an evil empire to paraphrase president Reagan
-
-用里根总统的话说，将他们视为邪恶帝国
-
-and recognize we are in a economic war
-
-并认识到我们正处于一场经济战争中
-
-but we’re also in a war that we have a history on
-
-但我们也处在一场我们历经许久的战争中
-
-and the history is that each time we see a new threat
-
-而历史上，每次我们看到新的威胁时
-
-we find out we gave or sold that threat to the Chinese
-
-我们发现我们把威胁拱手相让给中共
-
-You know the communists have said forever
-
-你知道共产党人说过永远
-
-when they hang us
-
-当他们吊死我们时
-
-they will do it with a rope we sold them
-
-他们会用我们卖给他们的绳子来吊死我们
-
-and in this case buying discounted products from countries all over the world
-
-在这种情况下，从世界各国购买打折产品
-
-that allowed them to harvest it that is in addition to the kind of data harvesting spying
-
-这使他们能够收获它，除了那种数据收集间谍
-
-they might do by raiding our DNA tranches here
-
-他们可能会在这里突袭我们的 DNA 片段
-
-So yes, they do have the largest and continue to do so
-
-所以是的，他们确实拥有最大数据库，并继续这样做
-
-the challenge they know no limit
-
-他们知道的挑战是无限的
-
-what they’re willing to do to accomplish their goals of world dominance
-
-他们愿意做任何事来实现他们统治世界的目标
-
-Elizabeth MacDonald
-
-伊丽莎白·麦克唐纳
-
-Here is the thing Quickly
-
-这里是这样，很快的
-
-I have to cut in because we’re running out of time
-
-我必须要插入，因为我们的时间要不够了
-
-The U.S. and the U.K. give their country the people they give DNA
-
-美国和英国给出他们的国民的DNA
-
-The U. S. and UK give DNA to China of Americans and of British people
-
-美国和英国将本国人的DNA给了中共国
-
-China doesn’t allow its Chinese DNA to go out of the country
-
-中共国不允许中国人的DNA走出国门
-
-China has been accused of genocide
-
-中共国已被指控种族灭绝
-
-Now the final word Reuters is reporting
-
-现在最后要说的，路透社报道
-
-that China could be doing is singling out Tibetans and
-
-中共国可能正在做的就是孤立出西藏人和
-
-singling out Uyghurs and treats their characteristics
-
-孤立出维吾尔族人并对待他们的特征
-
-Your final word
-
-最后的时间交给你
-
-Rep. Darrell Issa
-
-众议员达雷尔·伊萨
-
-There is nothing scarier than a racial purity government
-
-没有什么比种族纯洁性政府更可怕的了
-
-even one that thinks about it or considers it
-
-即使是考虑它或考虑它的人
-
-but remember a disease is easily developed
-
-但请记住，疾病很容易开发的
-
-would only be immune have immunity by a chosen group or the like
-
-只有被选定的群体或类似群体才能免疫
-
-Are we facing that? Yes
-
-我们是否面临这样的情况？ 是的
-
-I think after Covid-19
-
-我认为在 Covid-19 之后，
-
-we have recognize that we cannot take chances with China
-
-我们已经认识到我们不能再给中共国机会了
-
-We have to have defenses that are affirmative especially in data
-
-我们必须有肯定的防御，尤其是在数据方面
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 [https://www.youtube.com/watch?v=OdmllkfTAFY](https://www.youtube.com/watch?v=OdmllkfTAFY)
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+2021年6月25日直播（三）[多国已获得中共病毒生化武器证据  以毒灭共将成为爆料革命最伟大里程碑](https://gnews.org/zh-hans/1388472/)
++3

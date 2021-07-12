@@ -1,66 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】澳洲最新民调，中共国犯台迫在眉睫
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1388873/)
+## 【观点】中共病毒疫苗的次生灾害正在美国发生
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1389592/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+作者：小红帽
 
-翻译：Lish
+编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205445/image4-5.png)图片来源：雅典娜农场设计组（精灵蓝）
+自从中共病毒肆虐全球以来，在美国累计[造成61.1万人死亡](https://en.wikipedia.org/wiki/Template:COVID-19_pandemic_data)，超过3389万人受感染（数据截止到7月10日）。美国疫情的严重性，导致民众纷纷选择注射中共病毒疫苗以避免感染中共病毒，但是美国民众不知道，中共病毒疫苗根本不是救人的。相反，因为注射疫苗而造成死亡的案例比历史上的任何时期都要多。
 
-校对/编辑：文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10212550/unnamed-1-1.jpg)图片来源：MINEWS
-文章导读：
+近日，美国疾病预防控制中心报告揭露，[有9048人在注射中共病毒疫苗后死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)。这是美国疾病预防控制中心于7月2日在疫苗不良事件报告系统[（VAERS](https://vaers.hhs.gov/)）中发布的最新数据。VAERS系统是由美国政府资助的数据库，用于追踪由疫苗引起的伤害和死亡案例。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205514/image1-2-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
+数据显示，除了9048例死亡案例外，还有7463例永久性残疾， 7822例危及生命，其中最吓人的是，竟然有高达56915例急诊案例。
 
-最新澳洲民调显示，大多数的澳洲人认为中共犯台迫在眉睫。中共国侵略成性，澳洲政府会参与保卫台湾，但是澳洲担心遭到中共国的攻击。调查结论，与中共国的冲突将是澳大利亚的一场“选择之战”。调查报告智库人员更是指出，“大多数人认为澳洲走上战争不符合我们的最佳利益。”
+这份报告从2020年12月开始统计注射中共病毒疫苗后的死亡人数,短短7个月内接种中共病毒疫苗后死亡的数据,比起前30年（从1991年1月1日至2020年11月30日）所记录的接种疫苗后的死亡总数（[6045例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;PERPAGE=400&amp;DIED=Yes&amp;VAX_YEAR_LOW=1991&amp;VAX_YEAR_HIGH=2020&amp;VAX_MONTH_HIGH=11)）还要多。很明显，中共病毒疫苗的毒性比传统的疫苗强很多。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205600/image2-1-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
+更让人无法接受的是，美国疾病预防控制中心竟然不阻止孕妇注射这些疫苗。截至到7月2日，最新数据显示有[994名](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5b%5d=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5b%5d=Abortion+%2810000210%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5b%5d=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5b%5d=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5b%5d=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5b%5d=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5b%5d=Foetal+death+%2810055690%29&amp;SYMPTOMS%5b%5d=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5b%5d=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5b%5d=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5b%5d=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5b%5d=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5b%5d=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5b%5d=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5b%5d=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5b%5d=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5b%5d=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5b%5d=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5b%5d=Premature+baby+%2810036590%29&amp;SYMPTOMS%5b%5d=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5b%5d=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5b%5d=Premature+labour+%2810036600%29&amp;SYMPTOMS%5b%5d=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5b%5d=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5b%5d=Stillbirth+%2810042062%29&amp;SYMPTOMS%5b%5d=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19)未出生的孩子在其母亲注射中共病毒疫苗后流产。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205639/image3.jpg)报告来源 ：medalerts.org 数据来源：VAERS
+一位获奖的美国[脊柱外科医生和外科医生协会的前主席](https://humansarefree.com/2021/02/respected-doctor-who-studied-bioweapons-believes-covid-19-jabs-are-a-form-of-weaponized-medicine.html)曾发声，认为目前的中共病毒疫苗是针对人们部署的危险“生物武器”。非常遗憾的是，这并没有引起更多美国人的注意。很多人仍然相信主流媒体的宣传，选择打疫苗。
 
-爆料革命战友非常明白，澳洲人民根本没得选择，因为第三次世界大战已经爆发，只不过这是一场看不见硝烟的生物战争。七哥提示，澳洲政府早已掌握了孙立军存放在澳洲新西兰的相关病毒证据，澳洲政府站在西方前列追溯病毒真相绝非偶然。当然，西方民主社会对政府的说法普遍存疑，需要有一个求索证据的过程。2021“以毒灭共”，新中国联邦战友们将不遗余力传播真相，唤醒澳洲和世界民众。
+爆料革命吹哨人郭文贵先生和闫丽梦科学家曾多次警告，中共病毒根本没有疫苗。但是被共产党深度渗透的美国各界似乎还在继续执行共产党的“中共病毒疫苗战”计划。笔者不禁联想到之前“[盖茨基金会资助华大基因，病毒测试“采集”美国人DNA数据](https://gnews.org/zh-hans/1182242/)”一案。中共是否正在和盖茨基金会全面展开减少世界人口的计划？在全球追责中共投放“生化武器”之际，这疫苗闹剧还要折腾多久？但愿美国人民以及全世界人民早日醒觉并认识到中共的邪恶。
 
-**译文：**
+毕竟留给人类的时间不多了，我们要尽快消灭共产党！
 
-澳大利亚研究所的一份报告显示，大多数澳大利亚人和台湾人认为中共国是一个侵略成性，都担心与中共国发生冲突。
-
-新的研究表明，近一半的澳洲人担心中共国会在可预见的未来发动攻击，但表示澳洲会出于自愿参与战争。
-
-澳大利亚研究所7月发表的一份报告传达了调查结果，即澳洲人和台湾人对于捍卫台湾国家安全所带来的潜在威胁表明了看法。
-
-这项研究表明，42%的澳洲人认为中共国将在“某个时候或不久”（对台湾）发起攻击；有51%的台湾人认为中共国将在不久的将来攻击他们的国家。
-
-一项重要发现显示，澳洲和台湾在很大程度上将中共国视为一种威胁，分别有62%和65%的人说中共国是一个侵略成性的国家。
-
-本次调查前，堪培拉与北京之间的紧张关系已持续升温超过12个月，澳大利亚官员被中共国的同行们拒之门外。
-
-当2020年澳洲政府对中共病毒发起溯源调查后，中共国对澳洲出口实施了一系列的贸易制裁，包括对牛肉、葡萄酒、大麦和木材的制裁，迫使澳洲出口商向其他市场进行多元化发展。
-
-在台湾摆脱中共国的独立进程中，中国共产党也加强了对台湾的舆论攻势，也是这个独裁国家“愤怒”的来源。在上周中共百年冥诞上，习近平主席发表了令人不寒而栗的讲话。他警告，任何走向台湾独立的举动都会遭到“果断的行动”。他还加倍承诺将要台湾“收复”，并在香港加强中共专制统治。
-
-这份报告的参与作者艾伦·比姆（Allan Behm）透露，他对澳洲人对与中国的潜在冲突的恐惧程度感到震惊。
-
-他说：“鉴于澳洲和台湾的历史和地理差异，在预计来自中共国的攻击方面，澳洲人可能比台湾更害怕。中共国最近的行动和澳洲社会的强硬态度，毫无疑问地在澳洲社区产生恐惧和不安全感。
-
-“对台湾人来说，潜在的战争及其后果非常真实，而澳大利亚人–以及那些‘敲响战鼓’的人–可能并不完全理解与中共国的战争会带来什么。幸运的是，这项民意调查最终显示，大多数人认为澳洲走上战争不符合我们的最佳利益。”
-
-报告结果显示，三分之二的受访澳大利亚人同意台湾应该继续追求独立，尽管面临中共的报复威胁。
-
-有二分之一到五分之一的澳大利亚人还表示，如果发生冲突，他们会支持澳洲军队（参与）保卫台湾。
-
-调查结果得出的结论是，与中共国的冲突将是澳大利亚的一场“选择之战”。澳大利亚的外交将以尽可能促进与中共国的“共同利益”和“共同价值观”为中心。
-
-报告的共同作者梅丽莎-康利-泰勒（Melissa Conley Tyler）对如此多的澳洲人担心与中共国迫在眉睫的战争表示惊讶，并指出澳洲对台湾的支持可能并不够具体。
-
-“令我惊讶的是，如同台湾，相当多的澳洲人认为中共国将对澳发动武装攻击”，她说：“值得怀疑的是，世界上任何一个军事规划者都会同意这种评估，这就引出了一个问题：是什么在煽动这种恐惧（情绪）？”
-
-“那么，在这场危机中，台湾可以依靠澳大利亚吗？以这些民调数字，我建议台湾人先不要下定论。”
-
-原文链接：
-
-[New survey reveals nearly 50 per cent of Aussies think China will attack in the near future](https://www.skynews.com.au/australia-news/new-survey-reveals-nearly-50-per-cent-of-aussies-think-china-will-attack-in-the-near-future/news-story/01734238b1263452e92af6e3c0808881)
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章仅代表作者个人观点）
 
 +2

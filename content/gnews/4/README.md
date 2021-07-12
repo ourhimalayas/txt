@@ -1,32 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文贵视角】隐藏的原“战友”已和共产党交易完，将诋毁爆料革命！！！
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1390683/)
+## 古巴爆发街头抗议
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1390694/)
 
-撰稿：Skagen 【秘翻Gnews原创组】
-责编：Shifter
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11182345/%E5%9B%BE%E5%83%8F-1-1.jpg)图片来源：GTV
-**现在的复杂情况下，重温文贵先生2021年6月18日盖特中的话对战友们认清云诡波谲的形势非常重要！**
+**翻译：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11184654/12-9.jpg)
+路透社哈瓦那报道，周日，成千上万的古巴人走上了从哈瓦那到圣地亚哥的古巴街头，他们对数月的危机、大流行限制以及政府的疏忽感到沮丧。
 
-**有一位原战友和共产党交易完了，在找机会诋毁爆料革命**
+下午晚些时候，总统兼共产党主席米格尔·迪亚兹-卡内尔向全国发表讲话，称美国应对动乱负责。后备箱装有机枪的特种部队吉普车停在哈瓦那街头，迪亚兹-卡内尔呼吁支持者直面“挑衅”，并称支持者准备用他们的生命捍卫政府。
 
-最近共产党在海外的“九层妖塔”兴风作浪，一会儿真消息，一会儿假消息。现在对咱们爆料革命加以诋毁。我知道现在有人藏在爆料革命中的已经和共产党交易完了，就等待机会攻击我，攻击战友了。此人过去是战友，现在已经拿过钱了，原因是家人也被威胁，所以他也拿钱了，就等待出手呢。
 
-**郭先生希望他（她）良心发现，如果他（她）出手会先让几招**
 
-我现在不揭发他，我希望他（她）能良心发现。但是如果你良心不发现，你就先攻击吧，等你攻击完我再出手。我说过，对女性让三招，对战友让五招甚至七招，我再出手。能咋滴，对不对？
+> JUST IN – Mass protests erupt in several cities in [#Cuba](https://twitter.com/hashtag/Cuba?src=hash&amp;ref_src=twsrc%5Etfw) over the poor state of the socialized medical system. Protesters demand freedom from communist dictatorship.[pic.twitter.com/NOSdVgP0By](https://t.co/NOSdVgP0By)
+> — Disclose.tv 🚨 (@disclosetv) [July 11, 2021](https://twitter.com/disclosetv/status/1414315600361529347?ref_src=twsrc%5Etfw)
 
-**砸郭下场，前有九指妖为先例**
 
-你能攻击我们什么？无非是“郭文贵掏裆，郭文贵强奸，郭文贵三秒，郭文贵没钱，郭文贵是骗子，是吧？你就造谣这个嘛，你去造嘛。都造谣了几百亿次了，你说我还在乎吗？如果有人愿意相信，让他信去吧。 信谣言的人就不是我们战友，因为战友不会信！所以“九层妖塔”在战友中还管用，还有潜伏在战友中的，反过来“砸郭”的。认为还管用还有人看“你们的”，你们就去看“九指妖”的下场吧！现在听说只剩十几个人了，是吧？十几个人估计有他们自己好几个替身，什么陈其生、魏修竹、PJ Pan。你们赶快准备去监狱呆着去吧，就别折腾了。“九指妖”现在成啥了？你出个镜啊？魏修竹也出个镜吧。PJ Pan还有脸出镜吗！为什么“砸郭”以后都变得这么烂啊？你们也像个人样，是吧？丢死人了！
 
-最后，郭先生说，这几天七哥看到太多大事儿要发生，7月17号咱们再说吧！
+**来源：**[https://www.compuserve.com/news/world/story/0002/20210711/KBN2EH0ID\_1](https://www.compuserve.com/news/world/story/0002/20210711/KBN2EH0ID_1)
 
-参考链结：
-
-[郭文贵先生6月18号盖特](https://gwins.org/cn/milesguo/23087.html)
-
-（本文仅代表撰稿者个人观点）
+***校对发布**：文顾*
 
 0

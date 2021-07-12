@@ -1,103 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月28日 郭先生直播和盖特 重点内容汇总
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1389584/)
+## 中共停飞英国飞机的真正原因是要威胁英国送回病毒科学家
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1391091/)
 
-**概况**
+**摘要：郭先生在2021年6月30日的GTV直播中揭露中共停飞英国到香港航班的真正原因。是因为两名中共的病毒专家藏在英国，英国拒不交出而惹恼了中共，习近平下令要采取一切措施打击英国，而英国将对中共采取一些列非常强硬的回击。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11222540/Miles_2021-06-30-live-p1.srt.txt)
+**中共停飞英国飞机的真正原因是要威胁英国送回病毒科学家**
 
-G-TV想干的事太多，质量就有问题，以后要实现3个新功能。喜马拉雅联盟委员会是NGO组织，不代表G系列，也不承担法律责任。央行出事，抓了一堆人。但中南坑要用假数据，保北京银行、盛京银行。全球最大虚拟币交易市场—HB的华人创造者，正被中共追杀。自己活得更好，爱你的人才幸福。实力，是自己要的最大的脸。
+**CCP Bans UK Flights to Force It to Send Back Two Chinese Virologists**
 
-**金句**
+大家知道为什么给英国香港停飞吗？我可以告诉大家，你们很多人会看到这个秘密。
 
-孩子要离婚，自然有她的理由。舒不舒服，只有孩子知道。
+Do you have any idea why all flights from the UK to Hong Kong were banned? I can tell you the answer, but many of you will see the secret reason.
 
-**汇总**
+在病毒上英国已经倾尽全力，死那么多人，造成那么大伤害，还要舔共产党的腚，为啥它要搞它？是为了香港的事吗？绝对不是！中共为什么敢跟英国人停飞呀？他咋不停美国的飞呀？这里面啥原因大家去想想，你们知道啥原因？
 
-**G-TV要实现的3个目标**
+Britain has given its best effort in terms of controlling the virus. So many people have lost their lives and so much damage has been done, but still, it kissed the ass of the CCP. So why does the CCP still want to screw the UK? Is it for the Hong Kong matter? Absolutely not! Why does the CCP dare to ban flights from the UK? Why not the United States? What is the reason behind this? You think about it. What is the reason?
 
-战友把心放端正，财富不能是贪来、偷来的，不能有投机心理。贪来的财富，会付出安全和鲜血的代价。G系列投资得来的财富，才会带来快乐、安全和健康。我们有天时、地利、人和，但不努力啥都不是。G-TV想赚钱，得靠大家努力。现在干的事太多，质量就有问题。
+核心原因就是一个：两个在英国的中共的病毒专家，中共现在说“必须把他给我弄回来”，核心就这么简单。就这两件事儿上，说只要你把这俩人给我弄回来，啥都好谈。
 
-1：GTV直播画面，是自己工程师开发的真实水平，高清达到1080甚至1440。但关注量、数据、上传，都被动了手脚。一上传就听不清，效果就是垃圾，还有很多丢失。YouTube直播没那么好，上传以后更好。咱不自强，必被人家收拾。但要代替深网，还得等到8月15日才行。之后要百分之百保证，上传效果只能好，不能差。
+Just one core reason: there are two CCP virus experts hiding in the UK. The CCP said that the UK must send them back to China, and it’s that simple. The CCP told the UK that so long as you get these two people back to me, anything would be negotiable.
 
-2：任何人下载APP，马上可以收到通知。迅速连线8、10个人，未来可能100个人也可以联线，形成私密直播；可以加标题、编辑、剪辑。现在已经是4G、5G的时代，完全可以做到。像手机这么简单连接，碰上这样画面，可以加标题、打赏，是最想要的功能，而不需要OBS。
+英国拒绝了，英国说没有，就不承认，就是不承认，——没有。
 
-3：互联网解决不了，声道互相干扰的问题。像Skype不好的是中间缓冲没做好，视频也很烂。高科技不行，100%不安全。GTV设计当中，最好有自动功能。一个人说话，其他的麦自动屏蔽掉。大家在直播，如果没说话，马上自动反应，麦没关就显示红的。在技术上实现，就可以了。
+Britain refused and denied, saying there were no such people, simply didn’t admit.
 
-中国人小聪明多，比外国人脑子活。我们就是执行力太差，非得有外国人统治我们才能实现。中国人领导，实现不了。约翰也想干好，但有时执行不下去。
+最后中方所谓的习一神马上发令：“采取一切可能之措施，对他们进行打击！”开始了，然后停飞、停止一切金融合作。要英国作出三项承诺：必须要把所有这两个科学家，无条件地送回去。
 
-**G系列和农场系列其他重点信息**
+Finally the so-called Xi-the-only-god gave an immediate order to take all possible measures against the UK! The order started to take effect, the flights were banned, and all financial cooperation ceased. The CCP demanded the UK for three commitments: first, the two scientists must be sent back to China, unconditionally.
 
-1：喜马拉雅联盟委员会是一个NGO组织，不代表G系列，也不承担法律责任。回答只代表联盟委员会。
+第二不能再支持香港人，现在香港要在已经将近登记的预约的120万人要在伦敦成立一个百万人的香港的组织，他们认为这个必须停，必须停。第三个，更夸张的事情，要求是必须要和美国对《大西洋宪章》的签署，要进行重新声明，不针对中国。
 
-2：加字幕的视频，要学习“喜站”。一个“喜站”的点击率，是战友的总和。到今天,已经成为爆料革命最高质量的资产。在最快时间，抓住西方领导人或重要人士灭共最关键一段，再加上字幕。
+Secondly, the UK can no longer support Hong Kong people. A Hong Kong organization to be established in London has already had 1.2 million people registered. The CCP demands this must be stopped. The third, the more absurd requirement is that the UK and the US must revise the Atlantic Charter, so it cannot be directed against China.
 
-3: G-Club卡，多的可以挑选组合。未来增加的功能，靠G-Club会员共同努力。
+然后跟普京俄罗斯商量好，咱俩得对付英国，捏死美国不可能，捏他老二是可能的，对付英国。两人一商量：“对！对着老二冲过去！”就去了。英国会怎么做呢？战友们记住，英国会非常软的回击，然后会非常硬的行动！
 
-**灭共重点信息**
+Then the CCP talked with Putin of Russia, “We should team up against the UK. Defeating the US is not practical, but taking out his allies is possible, so let’s attack the UK.” So the two went ahead to do it. What will Britain do? Our fellow fighters must bear in mind that Britain will respond moderately, but very fierce actions will follow!
 
-1：刚说完大连炸桥；香港炸楼、炸桥；北京要炸“中南坑”。香港避风塘，几十艘船大爆炸；在北京地下水道发生倒塌，死了上百个人。这些人都是进京保卫“百年冥诞”。结果上面说敏感时期，保密不要说。
+据我所知，道听途说瞎蒙的啊，做梦梦见的，英国将对所有留英的学生和教育悄悄地进行遣散、遣回行动，对所有的所谓的核电厂和对英国的这些金融机构的投资和具有巨大影响力的投资，逐渐全部清退，把华为彻底清除出英国市场。然后要对香港、对台湾事件上有切实的行动，包括新中国联邦，所以共产党它越疯狂，对咱越好。
 
-2：国内央行出事，抓了一堆人。写纪录片《大秦帝国的裂变》的人自杀，家人自杀未遂。他是王岐山、董宏的好哥们，打着王岐山的名义，玩了几百亿。北京银行、盛京银行要完蛋，但“中南坑”又批示，用电脑控制，不能出事。
+As far as I know – based on my guessing and dreaming and rumors – Britain will quietly repatriate all Chinese students and dismiss Chinese educational institutions in the UK, gradually clear out all the so-called nuclear power plants invested by the CCP and investments in financial institutions including the investments with great influence in the UK by the CCP, and completely remove Huawei from the British market. Then there would be concrete actions on the Hong Kong and Taiwan issue, including the NFSC. Therefore, the crazier the CCP becomes, the better the situation will become for us.
 
-3：比特币的事：全球最大虚拟币交易市场—HB的创造者，现在要玩蛋。这位加拿大华人，是由国安委培养的。但现在共产党发现这哥们不听话，正在追杀中。各种虚拟币交易半天，都是大量洗钱，还帮助共产党的“反对面”洗钱。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+[视频来源](https://gtv.org/video/id=60dc7565871bef6d4ab1451c)： (1:00:22-1:00:55, 1:02:21-1:02:50, 1:03:15-1:05:14)
+鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供[中文文本](https://gnews.org/zh-hans/1364325/)
 
-**活着不能大意**
+* * *
 
-七哥在大风大浪倾覆当中，能活到今天。经历了太多事，既要有勇敢，还要有智慧地活着。对爱你的人，不是你给他(她)多少东西，他(她)才爱你。是你活得更好、更健康，爱你的人才幸福。你都变成瘸子、残疾、一身病，是对爱你的人最大惩罚。琼瑶式的活法，是自杀、毒药，不现实。
+***翻译**：鹦鹉（纽约香草山农场）
+**字幕**：Rock小哥
+**校对**：BruhM
+**视频解码剪辑**：恒久忍耐
+**自媒体推广**：V%、TINALS
+**校对 & 编辑**：Isaiah4031*
 
-要有责任感，不要有鲁莽之心。鲁莽不是勇气，也不能大意。有爹妈、家人，出去不带口罩、手套。就是不负责任，没有防范心理。都是从年轻过来的，七哥也经历无数多的事：命就一条，一生不需要犯多少次错误，犯一次大错误就结束了。要为家人着想，像：
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+GETTR: [https://gettr.com/user/himalayargt](https://gettr.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
 
-1：James战友，翻译特别好。才20多岁，去年12月份出车祸死了。
-
-2：我们律师一家人带俩孩子，一个大货车给撞飞了。车给撞废了，人差点死了。
-
-3：一个战友的家人，一直说服家人不要打疫苗。结果家人打疫苗，还骂他。现在妈瘫了、亲姐姐死了。现在是叫天天不灵，叫地地不应。
-
-所以对战友最有用的，不是说教，是分享人生经验。让战友活得更健康、更幸福、更安全，比给他(她)财富还重要。
-
-**承受住考验，才能强大**
-
-欢迎战友来纽约工作，目前帮助战友获得工作签证的科技公司，没有一个不成功的。所有的签证手续，都会合法化。但只有一个要求，做好地狱般的考验。之后，才能走进你的天堂。希望每个人都能强大起来，未来成为新中国联邦的栋梁。
-
-1：原来一位朋友的女儿，因为家庭原因去了日本。她最想学金融，爸妈不让学。原因都是共产党，洗脑的那些东西。七哥告诉她，爸妈说再坏的话，不要反抗。记住，反而是有用的。说话再好听，不要以为都受用。人生都需要这两面，你才能做好自己。给她介绍到公司实习，现在年薪八十几万美元，前五号人物。
-
-她能成功，就是遭受了一系列的考验。在日本种族歧视很严重，日本女人都很难上，中国女人更难。日本社会很现实，这样的女人更受人尊重。男人有了本事，可能当女王的奴隶。跟人家包二奶、三奶，最后把自己给包进去。女人要有了本事，不依靠男人的财富。日子活得自由自在，还长寿。
-
-人生不同阶段，有不同的精彩。青春很美丽，有能力、年轻，就别浪费时间。多学东西多干事。等到中老年，有了信仰，会活得很精彩。最怕年轻人对着钱去，钱眼里装下的东西是很少的。当真有钱的时候，还能活下来的人没几个。钱是一个过程当中，最重要的一个武器。我干那么大的事，没有一分利益，完全不需要这么做。当你很清楚需要什么的时候，不会再问这个问题。
-
-人生要经历很多沟沟坎坎，但别往回看。征服自己过去的错误，才拥有美好的未来。七哥经历的清丰看守所；共产党无数次对家人的打击；中纪委对我的严刑拷打，都没有回头，就往前看。只有你强大，你一切都是正确的。你输了，永远是在人家底下吃饭。七哥面对人生那么多挑战，有这么大的压力，每天都还开心。
-
-**其他方面：**
-
-1：山口百惠和三浦友和急流勇退，不再回头，恩爱一辈子。人家也有考验，没有倒在名利下。郝海东，叶钊颖追求爱情，谁也不理。他们现在过的，就是七哥未来隐居的生活。
-
-2：只有让你自己的提升，给对方带来了不同的点，才能让对方感觉有新鲜感。现在很多中年男人，肚子一大就挺出来，跟十个月怀的孩子似的。抽烟，牙都黑了也不刷。让人家看不起，老婆、孩子烦。
-
-**3：实力是最大的脸：**中国人太要脸，要到自己没法活的地步。总看别人怎么看待自己，是世界最愚蠢的。七哥这辈子没有害羞的感受，只告诉别人，我想做什么。像教我唱歌的老师，很多不能改的内容，听我说完都改了。还老发信息，特别想再合作。实力是最大的脸，不是靠你要。一位在日本的战友，受歧视。你强大的时候，最小心的是你不会歧视别人，不是别人歧视你。
-
-4：草根和大树，看起来大树很强大，草坪很脆弱。但在草坪面前，这树不值钱。但当一根草的时候，活不了。草根只有联系起来，才能形成草坪。树很巨大，只有大家在一起的叫成林。独木成林是很少的，最经受风雨，所以团结太重要。
-
-新中国联邦就是站在一起的草根，所有水分都被草吸走。这种力量，不用在乎七哥是谁，要在乎新中国联邦。把这两个事整明白，就会有无穷的战斗力。要爱同胞、爱中国人。海外见中国人，好像见仇家一样，是共产党最混蛋的地方。
-
-内容来源：
-
-全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播
-
-
-
-> [全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播](https://gnews.org/zh-hans/1356870/)
-
-
-
-2021年6月28日 文贵先生盖特 1
-
-
-
-> [2021年6月28日 文贵先生盖特 1](https://gnews.org/zh-hans/1357451/)
-
-
-
-整理：pride
-
-0
++5

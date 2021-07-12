@@ -1,48 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 侵犯人权或助中共军队美增列34实体入黑名单
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1390099/)
+## 福奇因研究表明抗体不能预防Delta变种而为疫苗辩护
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1390423/)
 
-#### 作者：日本东京方舟农场 東山堂主
+**据《Zero Hedge》 作者：TYLER DURDEN，2021 年 7 月 8 日发布**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11095354/187EC97F-0E75-429F-AC5F-8D14FC0F0086.jpeg)
+随着全球超过四百万确诊 COVID 的死亡病例，纽约时报刚刚发表了发表在《自然》杂志上的新研究，质疑美国制造的疫苗在提供针对 Delta 变体的保护方面的功效。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11134612/1339.png)
+在研究发布前不久，福奇医生周四为美国的 COVID 疫苗辩护，声称辉瑞、Moderna 和强生公司开发的疫苗都对 Delta 变体有效。这是一种突变株，已成为公共卫生官员们的困扰，声称它可能会引发另一波大流行病。但卫生官员们没有告诉你的是，流行病学家认为 COVID 现正在人群中流行，达到“零COVID”是根本不可能的。
 
-周五（7月9日）美国商务部增列34家国外实体进入黑名单，包括14个涉嫌在新疆侵犯人权与进行科技监控的中国实体，以及5家支持中国军事现代化与军方C4ISR（指挥、管制、通信、电脑、情报、监视、侦察系统）作战计划企业，其中包括列为台湾企业的杭州华澜微电子。
+无论如何，虽然疫苗制造商对生产可提供针对各种变异保护的有利可图的加强注射的机会垂涎三尺，但纽约时报预览并发表在《自然》杂志上的新研究发现，Delta 菌株能够绕过疫苗接种或先前感染产生的抗体。
 
-美国商务部网站发表声明说，美国商务部工业和安全局 (BIS) 将34家实体添加到实体名单中，这些实体参与或有参与违反美国外交政策和国家安全利益活动的风险。其中14家位于中华人民共和国（PRC）的实体帮助北京能对维吾尔族、哈萨克族和新疆维吾尔自治区其它穆斯林少数民族成员进行镇压、大规模拘留和高科技监控。中华人民共和国（中共）继续在这些地区犯下灭绝种族罪和危害人类罪。
+Delta 最早在印度被发现，据信其传染性比 alpha 变种高约 60%——该菌株也被称为“肯特菌株”，或 B.1.1.7，最早由英国科学家发现。本周，随着新的 COVID 病例数量比前一周增加了两位数（而住院和死亡人数仍然停滞），Delta 被宣布为在美国发现的主要变种。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11095406/12FDB0DB-BC64-4F84-9EE5-5F902E6DB242.jpeg)
+几乎同样令人担忧的是，研究人员发现，虽然 Delta 能够有效地逃避抗体反应，但在南非首次发现的 Beta 变体可以更轻松地做到这一点。
 
-被列为台湾企业的华澜微电子股份有限公司（Hangzhou Hualan Microelectronics Co.），北京东土科技股份有限公司（Kyland Technology Co., Ltd.）及其两个子公司北京东土军悦科技有限公司（Armyfly）和Kindroid加入黑名单。这些中企参与违反美国国家安全和外交政策的活动。具体而言，美国商务部确定这些实体正在采购并正试图采购源自美国的物品，以支持中共军事现代化。
+**以下是《纽约时报》关于这项研究的报告的更多内容：**
 
-武汉锐科光纤激光技术则因构成违反出口管制规则（EAR）风险行为列入清单，原因是该公司从事构成违反“出口管制法规”（Export Administration Regulation, EAR）风险的行为。可能参与采购美国原产商品，用于未经授权的军事最终用途。
+研究人员查看了 103 名感染冠状病毒的人的血液样本。研究发现，Delta 对来自该组未接种疫苗的人的样本的敏感度远低于 Alpha（变异株）。
 
-北京海力联合科技有限公司（Beijing Hileed Solutions Co.,Ltd.），北京燕京电子有限公司（Beijing E-Science Co），Info Rank Technologies，以及一名个人Wingel Zhang也被加入黑名单，这些公司和个人在没有必要许可情况下出口和试图出口受EAR管辖的物品。
+一剂疫苗显著提高了敏感性，这表明从 Covid-19 中康复的人仍然需要接种疫苗以抵御某些变异。
 
-除了中国之外，俄罗斯有6家实体列入，加拿大、伊朗与黎巴嫩各2家，荷兰、巴基斯坦、新加坡、韩国、台湾、土耳其、阿拉伯联合大公国与英国各有一家上榜。
+该团队还分析了 59 人在接受第一剂和第二剂阿斯利康或辉瑞 BioNTech 疫苗后的样本。
 
-美商务部长吉娜‧雷蒙多（Gina Raimondo）在声明中表示：“商务部仍然坚定地致力于采取强有力果断行动，以打击那些在新疆实施侵犯人权行为，或利用美国技术推动中国（中共）进行破坏稳定的军事现代化努力的实体。”
+在实验室实验中，仅 10% 接受过一剂阿斯利康或辉瑞 BioNTech 疫苗免疫的人的血液样本能够中和 Delta 和 Beta 变体。但是第二剂将这个数字提高到 95%。两种疫苗引发的抗体水平没有显著差异。
 
-美国商务部的实体清单禁止美国公司在未获得美国政府许可情况下与指定公司开展业务。
+研究人员总结道，“单剂量的辉瑞或阿斯利康对 Beta 和 Delta 变体要么效果不佳，要么根本没有效果”。来自以色列和英国的数据广泛支持这一发现，尽管这些研究表明，一剂疫苗仍足以预防因病毒而住院或死亡。
 
-中共强硬回应: 中共外交部发言人汪文斌指责美方的[实体清单]是打着人权幌子打压中国特定企业和产业的工具，是美方祸乱新疆、以疆治华的手段.中共商务部11日在官网以发言人答记者问的方式表示，美国是[泛化国家安全概念，滥用出口管制措施]，中方表示坚决反对，将采取一切必要措施，并表示，国际行业机构和外国企业在华代表，近期将赴新疆实地考察棉田、纱厂。
+此外，还发现 Delta 变体对基于抗体的治疗具有抗性，例如Eli Lilly公司生产的单克隆抗体鸡尾酒“bamlanivimab”。
 
-中共表面强硬,实则底气不足,美制裁的企业虽然只有20多家,但中共的官企民企密不可分,一个环节断裂,都有可能引起多米诺骨牌效应,加上中共病毒疫情连续冲击,国内企业恐怕会出现更大的倒闭潮!
+与此同时，福奇医生告诉记者，死于该病毒的美国人中有十分之九没有接种疫苗。尽管越来越多的接种疫苗的患者被感染并病情严重，但福奇坚持认为“科学”表明疫苗在预防感染方面极为有效。
 
-*注：文章仅代表作者观点*
+逻辑令人困惑，但它是这样的：Delta很可怕，所以要接种疫苗，但疫苗不能预防 Delta。这只是最新的提醒。福奇医生及其公司不在乎“科学”，他们来这里是为了保护疫苗的叙述和声誉，否则就有破坏白宫的风险。
 
-*参考链接：*
+原文连接：[https://www.zerohedge.com/covid-19/dr-fauci-defends-vaccines-new-research-shows-how-delta-evades-antibodies?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/covid-19/dr-fauci-defends-vaccines-new-research-shows-how-delta-evades-antibodies?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-1. [*https://www.cna.com.tw/news/firstnews/202107100004.aspx*](https://www.cna.com.tw/news/firstnews/202107100004.aspx)
-2. [*https://baijiahao.baidu.com/s?id=1704883533654365951&wfr=spider&for=pc*](https://baijiahao.baidu.com/s?id=1704883533654365951&amp;wfr=spider&amp;for=pc)
-3. [*https://news.sina.com.cn/c/2021-07-11/doc-ikqcfnca6212697.shtml*](https://news.sina.com.cn/c/2021-07-11/doc-ikqcfnca6212697.shtml)
-4. [*http://finance.eastmoney.com/a/202107111992478468.html*](http://finance.eastmoney.com/a/202107111992478468.html)
-5. [*https://www.commerce.gov/news/press-releases/2021/07/commerce-department-adds-34-entities-entity-list-target-enablers-chinas*](https://www.commerce.gov/news/press-releases/2021/07/commerce-department-adds-34-entities-entity-list-target-enablers-chinas)
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 心照
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-* * *
-
-*校对：**MIMI**素材**:**武汉老温*  *发布：**miumiu*
-
-0
++1
