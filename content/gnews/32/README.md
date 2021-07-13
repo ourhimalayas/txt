@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西媒头条】第22期（2021年7月13日）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1393781/)
+## 和流氓做朋友，物以类聚
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1394134/)
 
-- 制作：蚂蚁兄弟
+撰稿：东京樱花团/盐和光
 
+校对： 东京樱花团/喜马拉雅的微尘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11051102/image0-36-e1626184683887.jpg)
+塔利班近日表态要在阿富汗保护中共，该表态声震四海，石破天惊，世界哗然，是想以证明独裁政权在国际社会上并不孤单吗？相互抱团取暖？
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+塔利班最近几年，总是以高级待遇迎接，去过几次北京访问，具体细节未有公布也不得而知，过去就一直和中共有所谓商业往来，文中说欢迎中共国投资阿富汗，保护中方在阿富汗投资，是投资还是资助？塔利班这话的潜台词是以后你们来帮我们搞铁路搞公路电力水利桥梁啥的，我们也想过好日子，给我们送钱吧，让说啥都可以。
 
-**西班牙2021年7月13日电/西喜社——**
+把一小股地方游击势力，把女性当畜牲，视知识为罪恶，出口鸦片为生，异教徒人尽可诛，和被世界定性的恐怖组织当作朋友？你若从事光明正大正常贸易，谁会来攻击你？还用的了保护？
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+信息来源链接：[https://m.thepaper.cn/newsDetail\_forward\_13517921](https://m.thepaper.cn/newsDetail_forward_13517921)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13060305/Captura_de_pantalla_2021-07-13_a_las_11.51.50.png)
+（文章仅代表作者本人观点）
 
-素材：Isabel；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+发布：东京樱花团/喜马拉雅的微尘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11064307/image0-1-20.jpg)
+0

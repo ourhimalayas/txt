@@ -1,13 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年07月12日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1392905/)
+## 你想要生活在共产党主导的世界吗？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1394043/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12221027/image0-49-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12222219/image1-7-scaled.jpg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+台湾宝岛农场 文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13080843/My-Post-10.jpg)
+美国前国务卿迈克·蓬佩奥（Mike Pompeo）7月11日表示，中共是美国最大威胁，必须发起一场持续严肃的运动反击中共，让中共付出真正代价。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+蓬佩奥采访中说到：「我们不想生活在一个由中国共产党主导的世界。当你听到习近平威胁台湾人民时，这需要美国的决心、力量和威慑，美国的领导力必须在那里。我希望拜登总统能够接受这一点」。由此可知，中共对台的一切作为都被美国高度重视。
+
+**新疆集中营真实情况没有被了解，只有比你想得更惨**
+
+中国共产党在香港所做出的一切，世界有目共睹，勇敢的香港人民用她们的勇气，完全揭露了中国共产党的手段。中共对香港的政治迫害、大屠杀在国际媒体持续关注、监督之下，中共行径还能如此嚣张、邪恶。那么中共对待中国人民呢？新疆集中营的维吾尔族人呢？
+
+想必只有更加夸张、更加邪恶，你想要被这样的体制主宰吗？台湾若受到中共武力侵夺，中共对台湾的迫害只会比新疆、香港更为惨忍。
+
+中共掩盖病毒(COVID-19)真相、恶意释放，使用中共病毒(COVID-19)来达成他们要的目的，伤害了全世界。
+
+中共病毒的扩散，破坏了经济、医疗体系，甚至意图以疫苗制造社会分化、动乱。中共病毒(COVID-19)还不断的奇特变异中，消灭中国共产党，让中国共产党究责赔偿全世界，并利用法律制裁他们，并让中国共产党体制彻底消失。
+
+为你了的下一代，为了你的未来，消灭共产党是正义的必须，行动、行动、行动。
+
+加入新中国联邦，与无数正义的无名战友一起消灭中国共产党。
+
+中共病毒(COVID-19)的真相永远无法抹灭的源头与事实，在世界的追责之下，中共必然灭亡。
+
+传播真相，缺你不可，你的一小步，将是灭共的一大步。
+
+资料来源:
+
+[蓬佩奥：美需持续反击让中共付出真正代价-大纪元](https://www.epochtimes.com/b5/21/7/12/n13082614.htm)
+
+* * *
+
+审编：zhong
+
+校对：铃铃卷
+
+发布：little liu
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 0

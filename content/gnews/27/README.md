@@ -1,24 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】中共吹嘘其六月进口增长加速
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1393532/)
+## 【NewsExpress】美国白宫将发布警告美国公司留港风险
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1394150/)
 
 #### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13035324/ak_chcosadfasdn_130721.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13100625/535mlklhiohioj5156hk_0.jpg)
 
-本周二（7月13日），中共国海关总署公布数据显示，中共国出境出货量同比增长32.2%，高于5月份的27.9%。这一结果超过了《华尔街日报》调查经济学家预期的23.2%的增长。
+ZeroHedge新闻网7月13日报道：拜登总统本周将延续川普政府的政策，警告美国企业在香港经营的风险越来越大，因为中共进一步加强了对香港的控制权。据接近白宫的消息人士告诉英国《金融时报》，拜登还准备对中共国实施更多制裁，这与中共涉嫌在新疆犯下种族灭绝罪和反人类罪，以及破坏香港自治制度，例如中共强行关闭因亲民主立场而广受欢迎的《苹果日报》。很快，拜登政府将把警告替换成强制美国企业离开中共国的命令。
 
-中共国6月份进口增长 36.7%，低于5月份51.1%的增速。尽管如此，6月份的数据仍远高于经济学家预测的增长25.6%。该国的贸易顺差从5月份的455亿美元扩大到6月份的515亿美元。
+据五名知情人士透露，拜登政府将在周二更新川普政府去年对新疆发出的警告，商业咨询将强调美国公司面临的法律风险，除非它们确保其供应链不涉及新疆的强迫劳动。一位不愿透露姓名的官员说：“该建议的重点是强调如果你不退出这些供应链，就有违反美国法律的风险。”
 
-海关总署的数据显示，以人民币计算，6月份中共国出口增长20.2%，高于5月份的 18.1%。上月以人民币计算的进口增长 24.2%，低于5月39.5%的增长。6月份贸易顺差为人民币 3,328 亿元，而5月份为人民币 2,960 亿元。
+香港拥有庞大的外籍商界人士（其中包括数以千计的美国银行家和其他金融服务业员工），香港美国商会表示，到2020年，它有超过120名会员和282家美国公司将其地区总部设在该地区。
 
-评论：
-
-中共国的假擀面杖经济公布的数据向来都是造假，想写多少是多少，中共国必须通过数据造假来来掩饰其即将崩塌的经济。中共国的低端制造业这几个月一直在倒闭，因为中共病毒疫情，全球多个国家再次陷入停摆，唯有中共国进出口在增加，只要稍微动脑就能想明白这数据就是假的。
-
-参考文章：[China Export Growth Accelerated in June](https://www.marketwatch.com/story/china-export-growth-accelerated-in-june-271626147244)
+参考文章：[White House Warns US Firms About Risks Of Remaining In Hong Kong](https://www.zerohedge.com/markets/white-house-warns-us-firms-about-risks-remaining-hong-kong?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 本文仅代表作者本人观点，不代表Gnews平台
 
