@@ -1,66 +1,275 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7/10/2021 国内经济状况周报：液燃气价格走高；央行降准放水万亿 ；中共加速推出数字人民币
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1387904/)
+## 美国投资者们在中共国投资上获得了昂贵的教训
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1389005/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10114920/%E5%9B%BE%E7%89%872-12.jpg)[图片来源](http://www.chinagasholdings.com/)
-**1.****成本上升推动液燃气价格走高**
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10234346/ACBC4617-45F4-4D3A-BD7D-635C0B5C7AEC.jpeg)](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
+[https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
 
-[6月，中共燃气供应总量下滑，受下旬安全检查力度增加影响，6月终端整体用气量也出现下降。由于东北亚燃气现货价格及国内西北管道原料气价格继续上涨，国内液厂及接收站继续抬高出货价格，LNG价格整体上涨。预计7月份LNG价格将继续维持在高位。](http://www.chinaprice.cn/jgdt/40981.jhtml)
+字幕内容：
 
-[据监测，6月份国内燃气工厂平均开工率为56.12%。工厂总产量为149.98万吨，较5月份减少2.13万吨，跌幅1.4%。进口供应：据隆众统计，6月份LNG进口量为618.41万吨，环比减少12.01%。其中，槽批出货量178.63万吨，较5月减少35.71万吨，跌幅16.66%。同时，国内煤矿生产有所下降，车用液燃气需求量下滑；工业终端燃气用量出现大幅下滑。虽然部分储备库进行了补气工作，但是全月整体消费量比上月仍有明显下降。](http://www.chinaprice.cn/jgdt/40981.jhtml)
+Larry Kudlow (Fox businese host)
 
-**2.****央行全面降准释放万亿资金**
+拉里·库德洛 (福克斯商业频道主持人)
 
-[人民银行7月9日公告称，为支持实体经济发展，促进综合融资成本稳中有降，将于7月15日下调金融机构存款准备金率0.5个百分点（不含已执行5%存款准备金率的金融机构）。本次下调后，金融机构加权平均存款准备金率为8.9%。公告显示，此次降准为全面降准，除已执行5%存款准备金率的部分县域法人金融机构外，对其他金融机构普遍下调存款准备金率0.5个百分点，降准释放长期资金约1万亿元。](https://news.cnstock.com/news,yw-202107-4726224.htm)
+So China cracks down on the ride-hailing firm DIDI,
 
-评：前几周百亿百亿偷摸着来，这次直接不装了，真渴啊
+所以中共国打击打车公司滴滴
 
-**3.****在岸人民币对美元汇率开盘小幅下挫**
+and it is American shareholders get an expensive lesson in Xi Jinping risk
 
-[7月9日，在岸人民币对美元汇率开盘小幅下跌，报6.4838。与此同时，离岸人民币对美元震荡拉升，升破6.49关口。截至9时40分，在岸、离岸人民币对美元汇率分别报6.4832、6.4887。同日，人民币对美元中间价较上一交易日调降50个基点，报6.4705。](https://news.cnstock.com/news,bwkx-202107-4725846.htm)
+而且美国股东们在“习近平风险”中得到了昂贵的教训
 
-**4.****中共通过控制嘀嘀来控制全球金融**
+Joining us now Michael Pillsbury
 
-[嘀嘀打车拥有 4.93 亿用户（超过优步）、1500 万司机，并在巴西和墨西哥开展业务。 它于 6 月 30 日上市，从全球投资者那里筹集资金，公司估值为 680 亿美元。 其招股说明书包含 60 页的“风险因素”，包括监管打击，大多数投资者都对此嗤之以鼻。 但几乎立即其中一个出现了。滴滴的上市似乎违背了国家网信办的意愿。 7 月 4 日，监管机构予以回击，称滴滴违反了收集个人数据的规定，并在中国的移动应用商店中对其进行了禁止。 这导致滴滴的股价下跌了 20% 以上。 美国鹰派参议员马克卢比奥表示，让滴滴在纽约漂浮是“鲁莽的”。](https://www.economist.com/leaders/2021/07/10/chinas-communists-take-control-of-tech)
+现在加入我们的是迈克尔·皮尔斯伯里（白邦瑞）
 
-[对上海帮的科技股打击行动始于去年，当时中共监管机构在最后一刻取消了蚂蚁集团在香港和上海的 3000 亿美元上市计划。政府继续威胁其他科技公司和谦卑的大亨，尤其是阿里巴巴的联合创始人和蚂蚁金服的创始人马云。所有政府都担心数据隐私和垄断，但中共的干预标志着党对技术的系统性攻击。 7 月 7 日，彭博社报道称，中共可能会重新审查“可变利益实体”的使用，这是一种支持几乎所有外国投资中共科技的法律结构。信息很明确：强大的科技公司必须服从共产党，他们的老板应该保持沉默，外国所有者的财产权可能会受到侵犯。](https://www.economist.com/leaders/2021/07/10/chinas-communists-take-control-of-tech)
+the director of center for Chinese strategy at the Hudson Institute
 
-**5.****“高息”存款将退出历史舞台**
+哈德逊研究所的中国战略中心主任
 
-[6月21日，市场利率定价自律机制优化了存款利率自律上限的确定方式，将原由存款基准利率一定倍数形成的存款利率自律上限，改为在存款基准利率基础上加上一定基点确定。](https://www.163.com/money/article/GEI0VOE0002580S6.html?clickfrom=w_money)
+Michael, Welcome back
 
-[改革以后，记者走访广州国有银行网点发现，银行1年期以上存款利率大幅下调，市面上利率超过4%的“高息”存款陆续消失，有储户表示不理解，银行客户经理也表示很无奈，不过三年期的大额存单还较为受欢迎。记者走访广州、深圳银行网点发现，建行的起点金额为一万的定期存款，1年期、2年期和3年期的定期存款产品年化利率从2.1%、2.94%和3.85%分别降到了2%、2.6%和3.25%；最新发行的20万元起大额存单中，1个月、3个月、6个月以及1年期的产品年化利率分别为1.69%、1.70%、1.90%和2.10%，暂无2年期和3年期的产品。而30万元起大额存单中，只有2年期产品发售，2年期大额存单利率从3.15%降到了2.7%。](https://www.163.com/money/article/GEI0VOE0002580S6.html?clickfrom=w_money)
+迈克尔, 欢迎回来
 
-**6.****中共禁止斗鱼虎牙合并**
+It has been way, way too long
 
-[4日，中共对虎牙公司（以下简称虎牙）与斗鱼国际控股有限公司（以下简称斗鱼）合并案，依法进行经营者集中反垄断审查。审查表明，本案相关市场为中国境内网络游戏运营服务市场。腾讯在上游网络游戏运营服务市场份额超过40%，排名第一；虎牙和斗鱼在下游游戏直播市场份额分别超过40%和30%，排名第一、第二，合计超过70%。目前，腾讯已具有对虎牙的单独控制权和对斗鱼的共同控制权。如虎牙与斗鱼合并，将使腾讯单独控制合并后实体，进一步强化腾讯在游戏直播市场的支配地位，同时使腾讯有能力和动机在上下游市场实施闭环管理和双向纵向封锁，具有或者可能具有排除、限制竞争效果，不利于市场公平竞争、可能减损消费者利益，也不利于网络游戏和游戏直播市场规范健康持续发展。经评估，腾讯提出的附加限制性条件承诺方案不能有效解决前述竞争关注。](https://www.163.com/money/article/GEHMQA3K00259DLP.html?clickfrom=w_stock)
+已经过去太久了
 
-[根据《反垄断法》第二十八条和《经营者集中审查暂行规定》第三十五条规定，市场监管总局决定依法禁止此项经营者集中。](https://www.163.com/money/article/GEHMQA3K00259DLP.html?clickfrom=w_stock)
+China hasn’t done anything really bad or interesting until this
 
-**7.****苏宁易购交易本周再生变局”**
+在此之前，中共国没有做过任何非常糟糕或有趣的事情
 
-[7月5日晚间，苏宁易购公告称，公司控股股东、实控人张近东及其一致行动人苏宁控股集团，公司持股5%以上股东苏宁电器集团，西藏信托拟将所持公司合计数量占公司总股本16.96%的股份转让给新新零售基金二期，转让完成后，公司将处于无控股股东、无实控人状态。此次转让价格为每股5.59元，与停牌前最后一个交易日（6月15日）的收盘价持平。](https://www.yicai.com/news/101101310.html)
+This is interesting to me but here is the way I want
 
-[今年2月，苏宁易购公告称，公司股东拟以6.92元/股的价格转让公司23%股份，交易金额约为148.17亿元，受让方深国际控股（深圳）有限公司（下称“深国际”）将持有苏宁易购8%的股份，深圳市鲲鹏股权投资管理有限公司（下称“鲲鹏资本”）持股比例为15%。如今，这一潜在收购生出变故。7月5日晚间，苏宁易购公告称，因各方未能就商业条款形成实质性正式协议，现根据实际情况，经协议各方协商一致，同意终止该协议。](https://www.yicai.com/news/101101310.html)
+这对我来说很有趣，但这是我想要的方式
 
-[此次股份转让完成后，公司的前四大股东分别为张近东及其一致行动人苏宁控股集团、淘宝中国、江苏新新零售创新基金二期（有限合伙）、江苏新新零售创新基金（有限合伙），持股比例分别为20.35%、19.99%、16.96%、5.59%。其中，新新零售基金二期和江苏新新零售创新基金（有限合伙） 不存在一致行动关系，新新零售基金二期和淘宝中国不存在一致行动关系。](https://www.yicai.com/news/101101310.html)
+I’m going to frame this
 
-**8.****中办国办：从严打击证券违法活动**** ****加强中概股监管**
+我要把这个装裱起来
 
-[7月6日消息，中共中央办公厅、国务院办公厅近日印发《关于依法从严打击证券违法活动的意见》(以下简称“《意见》”)。《意见》共八大方面三十条内容。业内人士指出，《意见》是第一次以中办、国办名义联合印发打击证券违法活动的专门文件。整体而言，《意见》以体制机制改革为主线，是今后较长一段时间内资本市场执法和司法工作的纲领性文件。](http://finance.eastmoney.com/a/202107071986851047.html)
+I think American investors，the American investors should know
 
-**9.****数字人民币加速推出中**
+我认为美国投资者, 美国投资者应该知道
 
-[7月8日讯，中共央行副行长范一飞表示，数字人民币究竟对货币体系、货币政策、金融稳定带来哪些影响，中共始终高度关注，也努力通过业务、技术和政策设计，确保数字人民币体系对这些宏观方面的影响降到最低，中共还是有信心把这项工作继续扩大试点面，加大试点范围。数字人民币主要是白名单邀请方式，白名单用户已达1000万。北京冬奥会场景是下一步试点的重点领域。](https://www.cls.cn/detail/785737)
+that these Chinese companies have fraudulent accounting
 
-**10.****上半年M****2****供应量同比增长8****.6%**
+这些中共国公司的会计造假
 
-[6月末，广义货币(M2)余额231.78万亿元，同比增长8.6%，增速比上月末高0.3个百分点，比上年同期低2.5个百分点；狭义货币(M1)余额63.75万亿元，同比增长5.5%，增速分别比上月末和上年同期低0.6个和1个百分点；流通中货币(M0)余额8.43万亿元，同比增长6.2%。上半年净投放现金32亿元。6月末，本外币贷款余额191.62万亿元，同比增长11.9%。月末人民币贷款余额185.5万亿元，同比增长12.3%，增速比上月末高0.1个百分点，比上年同期低0.9个百分点。](https://finance.ifeng.com/c/87juuoQ8XVt)
+they will not show their paperwork to our public accountability board
 
-[上半年人民币贷款增加12.76万亿元，同比多增6677亿元。分部门看，住户贷款增加4.58万亿元，其中，短期贷款增加1.15万亿元，中长期贷款增加3.43万亿元；企（事）业单位贷款增加8.37万亿元，其中，短期贷款增加1.23万亿元，中长期贷款增加6.62万亿元，票据融资增加2211亿元；非银行业金融机构贷款减少1832亿元。6月份，人民币贷款增加2.12万亿元，同比多增3086亿元。](https://finance.ifeng.com/c/87juuoQ8XVt)
+他们不会提供他们的文件给我们的公共会计委员会
 
-By 【秘密翻译组-金融法律组】
+and that is the reason why Robert O’Brien and I
 
-+1
+而且这就是为什么罗伯特·奥布莱恩和我
+
+took the thrift savings plan, retirement plan out of investing in China
+
+把节俭储蓄计划，退休计划投资从中共国撤出
+
+The lesson I learned here yeah China is cracking down on private companies
+
+我在这里学到的教训，中共国是正在打击私营公司
+
+but you couldn’t believe them in the first place
+
+但你一开始无法相信他们
+
+because they’re all phony and fraudulent
+
+因为他们都是假的和欺诈的
+
+Michael Pillsbury
+
+迈克尔·皮尔斯伯里 （白邦瑞）
+
+Well, that’s right
+
+嗯，对的
+
+I remember you working on this directly with the president
+
+我记得你直接和总统一起研究这个
+
+Larry, so in a way what is happening here
+
+拉里，从某种意义上说，这里发生
+
+with the decoupling of capital markets is the outcome of your work
+
+资本市场与中共国的脱钩是你工作的结果
+
+Congratulations
+
+恭喜
+
+Larry Kudlow
+
+拉里·库德洛
+
+We tried to warn them
+
+我们试图警告他们
+
+You know I was reading various editorials
+
+你知道我在读各种社论
+
+but I don’t think they really understand that
+
+但我认为他们并不真正理解那个
+
+Look all these companies have become an instrumentality of the Chinese Government，
+
+看所有这些公司都成为了中共政府的工具
+
+haven’t they?
+
+不是吗？
+
+They have to give up information to the Chinese government
+
+他们不得不向中共国政府提供信息
+
+isn’t that part of the problem?
+
+这不是问题的一部分吗？
+
+Michael Pillsbury
+
+迈克尔·皮尔斯伯里 （白邦瑞）
+
+Yeah, China is very clear about it
+
+是的，中国关于这点很明确
+
+They have to have communist party representatives at the top of the leadership
+
+他们必须有共产党的代表在领导层的最高层
+
+and follow the party’s rules
+
+并遵守共产党的规则
+
+This is not a secret anymore in China
+
+这在中共国已经不是秘密了
+
+Quite a burden on some of these companies as the DIDI drop has now shown
+
+正如滴滴现在的下跌表明的那样，这些公司中的一些人受到的打压相当大
+
+Larry Kudlow
+
+拉里·库德洛
+
+So how much you know China cracking down really not on this ride-sharing company DIDI
+
+那么你知道多少中共国真正打击不止这家拼车公司滴滴吗？
+
+But other companies too
+
+但其他公司也是
+
+They cracked down on Jack Ma’s Ant, the financial company
+
+他们打击了马云的蚂蚁金服金融公司
+
+They do much more of this
+
+他们做更多的这种打击私人企业的事情
+
+Will this hurt China, Michael?
+
+会伤害中共国吗？迈克尔
+
+That is another thing, will it do damage to the Chinese economy?
+
+那是另外一回事，它会损害中共的经济吗？
+
+Michael Pillsbury
+
+迈克尔·皮尔斯伯里 （白邦瑞）
+
+Well，They don’t look at it that way, Larry
+
+他们不这么看，拉里
+
+They see this what they call it as a win-win for China
+
+他们认为这个是对中共国的双赢
+
+They want to protect their big data
+
+他们想保护他们的大数据
+
+They are certain we’ll come at them through their IPO companies
+
+他们认为我们会通过中国的 IPO 公司找到他们
+
+and steal their consumer big data
+
+并窃取他们的消费者的大数据
+
+This is how they see the future of the global economy is a data centric economy
+
+这就是他们如何看待全球经济的未来是以数据为中心的经济
+
+Secondly, they think this is a security move
+
+其次，他们认为这是一个安全举措
+
+They don’t want the Americans to continue financing these huge IPOs
+
+他们不希望美国人继续为这些巨大的 IPO 提供资金
+
+but in the sense of hurting China
+
+但从伤害中共国的意义上来说
+
+it certainly hurts the private sector in China
+
+它肯定会伤害中共国的私营企业经济
+
+It is making the whole economy move toward what I think Xi Jinping wants
+
+它正在使整个经济朝着我认为是习近平想要的方向发展
+
+He has been pretty clear about it in his speeches
+
+他在他的演讲中已经很明确了
+
+He wants a state-owned, state-controlled economy
+
+他想要一个国有的、国家控制的经济
+
+with something like 30 to 40% of the economy can be in private hands
+
+有大约 30% 到 40% 的经济可以掌握在私人手中
+
+But nothing strategic, nothing important
+
+但这些私人经济没什么战略意义的，不在重要的领域
+
+All of that has to be under the state-owned enterprise system
+
+这一切都要在国营体制下
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://www.youtube.com/watch?v=\_im5BotK7k8](https://www.youtube.com/watch?v=_im5BotK7k8)
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场- 文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

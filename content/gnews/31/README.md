@@ -1,18 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国警告中共国不要攻击菲律宾军队
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1391565/)
+## 港警“国安处”12日再采取行动，拘捕五人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1392830/)
 
 2021年7月12日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12075708/1029858464-4.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12215816/0-39.png)
 
-美国周日就海牙国际法庭关于南海仲裁5周年之际，再次向中共国发出警告，如果菲律宾武装部队在南中国海受到攻击，将触发1951年的美菲共同防御条约，并“重申 ”该条约适用于南中国海
+编辑摘要：
 
-美国国务卿布林肯在一份书面声明中发表了上述言论，该声明纪念一个仲裁法庭驳回中共国在南中国海的巨大领土主张的裁决五周年。就国际仲裁法庭的裁决，中共国在上个星期五重申，不接受这一裁决。
+港警“国安处”12日再采取行动，在全香港多地拘捕五人，包括15岁的中学生，指其与先前破获的组织“光城者”有关，涉嫌“串谋策划恐怖活动罪”，违反香港国安法。警方不排除会逮捕更多人。
 
-**【新闻来源】**
+**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210712-%E6%B8%AF%E8%AD%A6-%E5%9B%BD%E5%AE%89%E5%A4%84-12%E6%97%A5%E5%86%8D%E9%87%87%E5%8F%96%E8%A1%8C%E5%8A%A8%EF%BC%8C%E6%8B%98%E6%8D%95%E4%BA%94%E4%BA%BA)**】**
 
 * * *
 
@@ -22,5 +22,7 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
+
 ![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 0

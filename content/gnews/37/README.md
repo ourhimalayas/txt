@@ -1,11 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 波索比克：美国那1%是照搬中共模式；他们或许企图走中共模式走到极致
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1387764/)
+## 【喜悦新闻】法官命令麦克斯韦两周内披露克林顿基金会获得资金的财务记录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1390491/)
 
-07/05/2021战斗室：我们这儿的1%，或者说西方的精英们，现在绝对是照搬中共模式，而且也许企图走中共模式走到极致。《人事》资深编辑杰克·波索比克近日发布[社评](https://humanevents.com/2021/07/04/americas-ruling-class-and-chinas-ruling-class-are-more-similar-than-you-think/)，分析美国那1%寡头和精英与中共的关系，提出他们已变成如中共版的统治阶级。
+- 制作：视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月11日电/西喜社**
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1

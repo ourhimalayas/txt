@@ -1,275 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国投资者们在中共国投资上获得了昂贵的教训
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1389005/)
+## 复旦大学教师杀人案折射出中共如何收割千人计划精英
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1392778/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10234346/ACBC4617-45F4-4D3A-BD7D-635C0B5C7AEC.jpeg)](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
-[https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
+作者：经济小组/喜马拉雅华盛DC[农场](https://gnews.org/zh-hans/author/himalayadcgnews/) – 烟波浩淼
+编辑：经济小组/加拿大多伦多枫叶农场-向往真理
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12213303/Picture1-33.png)图片来源于网络
+6月初，复旦大学39岁年轻教授姜文华将学院书记王永珍割喉，致其当场毙命的新闻在社交媒体上引起热议。这个事件与其他极端事件不同的是，杀人的姜文华并不是突发精神病，也不是残害无辜反社会人格的人，更不是暴力成性的极端分子，而是一名从小就是好学生，拥有海归博士后学历的象牙塔里的知识精英。这样的精英人才都举刀杀人，不得不让人深思——中共教育体系为何总是培养高学历犯罪？
 
-字幕内容：
+从姜文华的履历看，他从复旦附中毕业升入复旦大学，2004年毕业于复旦大学数学与应用专业，在校期间曾获得复旦大学首届校长奖，该奖是复旦大学设立的最高奖项。这说明姜文华在大学时代也是一个优秀的学生。随后姜文华留学美国，2009年获得美国罗格斯特(Rutgers)大学统计学博士学位，又先后去了美国国立卫生研究院 (NIH)、著名学府约翰霍普金斯大学从事博士后研究。
 
-Larry Kudlow (Fox businese host)
+据网上流传的姜文华师弟写的回忆文章称，姜文华学业和学术一流；内心干净、心地善良；在师道尊严的环境下成长，对老师言听计从，对领导唯唯诺诺，不敢越雷池半步；生活规律，洁身自好，不抽烟，不喝酒，不打牌，不玩游戏，没有任何不良嗜好，准时上课，从不迟到旷课。读博士期间做助教，工作认真负责；对自己爱的人和他认为爱他的人会用心交往。这位友人称，姜文华“不撒谎也不会撒谎，不害人也不知道怎么害人；对别人不设防，不太知人情社里，不知江湖险恶”。他师弟还说，如果当时他毕业之后去了本可以进的美国顶级大学做博士后，他今天应该是美国学术圈里一个小有名气的教授了。但是很不正常地却去了NIH做了两年博士后。据姜文华说，博士后导师水平低，学术上帮不了他，只是一味地给他一堆没什么学术价值的事情做，让他荒废了两年的宝贵时光，没能如愿以偿重回美国的顶级大学做终身教职（tenure track）的教授，只好选择回国了。[1] 由此可见，按他的性格，在美国安安静静做学问，哪怕不是特别心仪的学校，也比回到中共国更适合他。
 
-拉里·库德洛 (福克斯商业频道主持人)
+姜文华回国后先在苏州大学任副教授，负责高维数据的非参数经验贝叶斯方法的科研项目。2017年调入复旦，2021年被解聘。多数网络媒体将案发的背景描述为姜文华当初参加了复旦引进人才计划，约定六年考核科研任务，不达标就解聘，即近年国内所谓的“非升即走”的长聘教轨制。同年6月7日，复旦大学数学学院党委书记王永珍代表学院宣布对姜解聘的决定后，姜将其割喉，致王当场死亡。从表面上看，是乎是长聘教轨制导致了这一悲剧。尽管长聘教轨制确实遭到学者特别是年轻学者的强烈诟病，它让这个外来的竞争制度在中共体制下走了样，被许多人抨击为压榨奴役青年教师的聘任制度，是一个典型的内卷工具。但是， 姜文华事件背后是否有更多深层次的原因呢？
 
-So China cracks down on the ride-hailing firm DIDI,
+从姜文华事件发生后，网上帖文揭露出背后的故事看，姜文华是个纯粹的象牙塔里的人，他唯一在意的是做学问，不爱财，不图名，是有才华，很能干的学者。这样的一个学者为什么被逼到走头无路？
 
-所以中共国打击打车公司滴滴
+知情人透露出，不会托人走关系，请客送礼的姜文华从美国取得博士和博士后回国只在苏州大学谋到个副教授职位。按照中共国大学的职称规定，世界著名大学的博士和博士后出站，即可直接聘请为正教授。姜文华不仅没有被评为正教授，连续五年都没有能晋升为正教授，原因是得罪了苏州大学的某领导，而这个领导是王永珍的同学和好友。所以当姜文华高升到了复旦，惹恼了苏州大学的那位领导。姜文华本以为在复旦凭科研就可以顺利晋升，结果再次年年落磅， 理由是：政审不合格。王永珍作为系里一把手，手握一票否决权，他用这张王牌替老朋友打压姜文华。
 
-and it is American shareholders get an expensive lesson in Xi Jinping risk
+很多评论认为姜文华绝不是考核不合格、也不是科研不达标、 更不是讲课被举报。[2] 政审不合格宣判了姜文华的学术死刑，也导致了这起悲剧的发生。这也就不难理解为什么姜文华在被捕时的录像里回答警察的问话时说他“一直受迫害，受到了很多陷害，受到了很多恶劣的待遇”。尽管中共不可能把书记的行为公布于众，但是从复旦校园发起给王永珍捐款的时候，大部分网上讨论的却是要给姜文华捐款，可以看出姜文华得到了很多人的同情，这也反映出高校里政工管理学术遭到普遍的不满。
 
-而且美国股东们在“习近平风险”中得到了昂贵的教训
+中共国知识分子受迫害由来已久。早在文革前，文革中，知识分子就受尽屈辱，仅文革期间海归科学家因为不堪受辱而自杀，有资料记载的就有8位之多。其他知识分子遭到批判、各种蹲牛棚、挨批斗折磨、受到非人待遇、暴力致死的不计其数。近年来海归被逼自杀的，北有中国人民大学哈佛博士后曹廷炳坠楼身亡，南有浙江大学海归博士涂序新跳楼自杀，湖南大学海归博士南方圆跳江自杀。其中，涂博士在留下的遗书中写道：“在此时刻，我认为当初的决定下得是草率的，事后的发展完全没有预计，感谢一些朋友事前的忠告。国内学术圈的现实：残酷、无信、无情。虽然因我的自以为是而忽视。”[3] 从这里不难看出，涂博士当初没有认清中共体制的本质，后悔了当初的选择。这些事件的深层原因是这个体制的恶，让这些本该成为学术精英，在科学领域作出杰出贡献的年轻人，在体制中被逼自杀，甚至举刀杀人，的确令人震惊。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12214611/Picture2-6.png)文革中的批斗场面（ 图源：网络）
+看看中共的高校，所有院校、系、部门的一把手都必须是党的人。他们可以对教师在职称评定，科研经费申请中以行政手段进行打压。会拉关系，有靠山的人，哪怕学术平平也会混的风生水起， 而有真才实学的优秀学者，却往往被边缘化，沦为高学历“韭菜”。
 
-Joining us now Michael Pillsbury
+海归教授饶毅和施一公2010年曾联合在《科学》杂志上发表评论， 他们称：“在中国，为了获得重大项目，一个公开的秘密是：做好的研究，不如与官员和他们赏识的专家拉关系重要。”饶毅也在他的博客里发表一些对科技政策和科技管理的意见和建议。
 
-现在加入我们的是迈克尔·皮尔斯伯里（白邦瑞）
+施一公和饶毅在2011年中科院院士评选中均双双落选。饶毅撰写了一篇题目为《解剖“逆淘汰”社会现象的一只麻雀》博文，为施一公的落选鸣不平。他写道：“针对优秀论文特别多的施一公，有人提出不能以论文取人，而论文数量和质量远不如他的人，并无论文以外的贡献，却当选院士。施一公是发表优秀论文最多的大陆华人生物学家，因此刷掉他发出的信号超出他个人，而易被理解有意教训以他为代表的大多数优秀华裔生物学家“。
 
-the director of center for Chinese strategy at the Hudson Institute
+饶毅认为，中科院在院士评选中，重视的不是学术水平、年龄、学术年资、在国内科学贡献大小，而是“ 在有些人面前低头排队时间的长短”。与饶毅和施一公同时落选的还有其他3个同为海归的教授。6个海归教授中，5个落选者均为全时回国，但当选者是一位尚未全时回国，贡献也不在落选者之上的人。对于这种淘汰，饶毅当时就宣布不再参选院士。
 
-哈德逊研究所的中国战略中心主任
+再来看长聘教轨制，美国的长聘教轨制主要的竞争是在招聘的时候，一个职位一个人，聘期到了很少拿不到永久职位的。这个制度被搬到中共国后就被扭曲了，一个坑里种上5-6个甚至更多萝卜，从而形成恶性竞争，疯狂内卷，学术腐败，最终劣币驱逐良币。大量海归在“千人计划”的吸引下回国，在奉献了自己五六年最佳年华和科研成果后，却发现当年学校招的成百上千的特聘教授，最后只有几个可以通过中共设定的考核。然而那些遭解聘的往往是留下大量科研成果的人，他们走后，科研成果归学校所有，贡献给了大学排名和申请更多的科研经费，再招更多“韭菜”继续收割。遭解聘者中要么郁郁寡欢自吞苦水，要么被逼走上绝路。
 
-Michael, Welcome back
+中共利用这些千人计划的手段招聘一茬又一茬最年轻有为的精英，通过他们不断盗取美国和其他西方发达国家的最新科技。用完一茬踢出校门，再用同样手段骗来一茬。以武汉大学为例，2015年启动聘期制教师选聘工作，2018年底首聘期到期的共69人，通过个人申报、业绩展示、学院审核、学部专家组评审和学校审定，正式申报的48人中（含42名聘期制教师），只有6人被直接聘任为固定教职副教授。[4] 其余的就走向了失业和再就业。在中共这个极权绞肉机体系里，长聘教轨制就这样变成了持续不断为中共输送廉价高质量新鲜“韭菜”的工具。所以，操纵这个工具的中共体制才是姜文华事件的罪魁祸首。
 
-迈克尔, 欢迎回来
+当然，无论选择自杀或杀害他人都是不可取的极端做法。在中共体制逆淘汰的环境中也要珍惜生命。同时奉劝仍然在海外，还想回国报效或追梦，以为中共会提供好的科研环境的精英们，一定要看清中共的本质。回国需谨慎，选择很重要！不要再前仆后继被中共欺骗, 为中共输血，成为中共体制的牺牲品。已经作出了错误选择，回到了中共国的精英们，就算被辞退，换一家高校，或者选择进入一家企业或其他就业门路，也不要采取极端方式。在中共这个内卷日益严重的体制里，尽可能挣脱这种无限的恶循环。
 
-It has been way, way too long
+不如像郭文贵先生说的那样，如果你不想跪下，又站不起来，你就躺平吧!
 
-已经过去太久了
+【本文仅代表作者个人观点，与Gnews无关】
 
-China hasn’t done anything really bad or interesting until this
-
-在此之前，中共国没有做过任何非常糟糕或有趣的事情
-
-This is interesting to me but here is the way I want
-
-这对我来说很有趣，但这是我想要的方式
-
-I’m going to frame this
-
-我要把这个装裱起来
-
-I think American investors，the American investors should know
-
-我认为美国投资者, 美国投资者应该知道
-
-that these Chinese companies have fraudulent accounting
-
-这些中共国公司的会计造假
-
-they will not show their paperwork to our public accountability board
-
-他们不会提供他们的文件给我们的公共会计委员会
-
-and that is the reason why Robert O’Brien and I
-
-而且这就是为什么罗伯特·奥布莱恩和我
-
-took the thrift savings plan, retirement plan out of investing in China
-
-把节俭储蓄计划，退休计划投资从中共国撤出
-
-The lesson I learned here yeah China is cracking down on private companies
-
-我在这里学到的教训，中共国是正在打击私营公司
-
-but you couldn’t believe them in the first place
-
-但你一开始无法相信他们
-
-because they’re all phony and fraudulent
-
-因为他们都是假的和欺诈的
-
-Michael Pillsbury
-
-迈克尔·皮尔斯伯里 （白邦瑞）
-
-Well, that’s right
-
-嗯，对的
-
-I remember you working on this directly with the president
-
-我记得你直接和总统一起研究这个
-
-Larry, so in a way what is happening here
-
-拉里，从某种意义上说，这里发生
-
-with the decoupling of capital markets is the outcome of your work
-
-资本市场与中共国的脱钩是你工作的结果
-
-Congratulations
-
-恭喜
-
-Larry Kudlow
-
-拉里·库德洛
-
-We tried to warn them
-
-我们试图警告他们
-
-You know I was reading various editorials
-
-你知道我在读各种社论
-
-but I don’t think they really understand that
-
-但我认为他们并不真正理解那个
-
-Look all these companies have become an instrumentality of the Chinese Government，
-
-看所有这些公司都成为了中共政府的工具
-
-haven’t they?
-
-不是吗？
-
-They have to give up information to the Chinese government
-
-他们不得不向中共国政府提供信息
-
-isn’t that part of the problem?
-
-这不是问题的一部分吗？
-
-Michael Pillsbury
-
-迈克尔·皮尔斯伯里 （白邦瑞）
-
-Yeah, China is very clear about it
-
-是的，中国关于这点很明确
-
-They have to have communist party representatives at the top of the leadership
-
-他们必须有共产党的代表在领导层的最高层
-
-and follow the party’s rules
-
-并遵守共产党的规则
-
-This is not a secret anymore in China
-
-这在中共国已经不是秘密了
-
-Quite a burden on some of these companies as the DIDI drop has now shown
-
-正如滴滴现在的下跌表明的那样，这些公司中的一些人受到的打压相当大
-
-Larry Kudlow
-
-拉里·库德洛
-
-So how much you know China cracking down really not on this ride-sharing company DIDI
-
-那么你知道多少中共国真正打击不止这家拼车公司滴滴吗？
-
-But other companies too
-
-但其他公司也是
-
-They cracked down on Jack Ma’s Ant, the financial company
-
-他们打击了马云的蚂蚁金服金融公司
-
-They do much more of this
-
-他们做更多的这种打击私人企业的事情
-
-Will this hurt China, Michael?
-
-会伤害中共国吗？迈克尔
-
-That is another thing, will it do damage to the Chinese economy?
-
-那是另外一回事，它会损害中共的经济吗？
-
-Michael Pillsbury
-
-迈克尔·皮尔斯伯里 （白邦瑞）
-
-Well，They don’t look at it that way, Larry
-
-他们不这么看，拉里
-
-They see this what they call it as a win-win for China
-
-他们认为这个是对中共国的双赢
-
-They want to protect their big data
-
-他们想保护他们的大数据
-
-They are certain we’ll come at them through their IPO companies
-
-他们认为我们会通过中国的 IPO 公司找到他们
-
-and steal their consumer big data
-
-并窃取他们的消费者的大数据
-
-This is how they see the future of the global economy is a data centric economy
-
-这就是他们如何看待全球经济的未来是以数据为中心的经济
-
-Secondly, they think this is a security move
-
-其次，他们认为这是一个安全举措
-
-They don’t want the Americans to continue financing these huge IPOs
-
-他们不希望美国人继续为这些巨大的 IPO 提供资金
-
-but in the sense of hurting China
-
-但从伤害中共国的意义上来说
-
-it certainly hurts the private sector in China
-
-它肯定会伤害中共国的私营企业经济
-
-It is making the whole economy move toward what I think Xi Jinping wants
-
-它正在使整个经济朝着我认为是习近平想要的方向发展
-
-He has been pretty clear about it in his speeches
-
-他在他的演讲中已经很明确了
-
-He wants a state-owned, state-controlled economy
-
-他想要一个国有的、国家控制的经济
-
-with something like 30 to 40% of the economy can be in private hands
-
-有大约 30% 到 40% 的经济可以掌握在私人手中
-
-But nothing strategic, nothing important
-
-但这些私人经济没什么战略意义的，不在重要的领域
-
-All of that has to be under the state-owned enterprise system
-
-这一切都要在国营体制下
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 [https://www.youtube.com/watch?v=\_im5BotK7k8](https://www.youtube.com/watch?v=_im5BotK7k8)
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场- 文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考资料：
+[1][https://www.soundofhope.org/post/514691](https://www.soundofhope.org/post/514691)
+[2][https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%BE%AE%E8%A8%80%E5%BE%AE%E8%AF%AD/20210613-%E5%81%87%E6%95%99%E6%8E%88%E9%A3%9E%E9%BB%84%E8%85%BE%E8%BE%BE-%E7%9C%9F%E5%AD%A6%E8%80%85%E8%B5%B0%E6%8A%95%E6%97%A0%E8%B7%AF](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%BE%AE%E8%A8%80%E5%BE%AE%E8%AF%AD/20210613-%E5%81%87%E6%95%99%E6%8E%88%E9%A3%9E%E9%BB%84%E8%85%BE%E8%BE%BE-%E7%9C%9F%E5%AD%A6%E8%80%85%E8%B5%B0%E6%8A%95%E6%97%A0%E8%B7%AF)
+[3][https://www.douban.com/group/topic/8416676/](https://www.douban.com/group/topic/8416676/)
+[4][https://new.qq.com/omn/20210108/20210108A0GSES00.html](https://new.qq.com/omn/20210108/20210108A0GSES00.html)
 
 0

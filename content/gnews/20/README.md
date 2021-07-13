@@ -1,29 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲前线】墨尔本711线下活动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1391240/)
+## 【有声读物】民调机构：世界发达经济体对中共的负面看法已创历史新高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1392052/)
 
-素材提供：文泓
-视频剪辑：尕鱼儿
-编辑：翼族
+配音：香草山香港部 文凱琳
 
-
-
-从418到711，雅典娜农场已经在墨尔本顺利组织了11次线下活动，期间还经历了封城。
-
-11，不只是一个简单的数字，而是墨尔本爆料革命战友们宣传病毒真相和揭露中共邪恶的勇气和执着。
-
-中共不亡，战斗不息！
-
-（视频文字仅代表作者观点）
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-+2
+
+
+
+
+据零对冲报道，在上周中共庆祝其成立100周年之际，美国民调机构和智库机构皮尤研究中心（Pew Research Center）发布了一份新报告。该报告显示，17个发达经济体对北京（中共）的负面看法达到了历史最高点。在欧洲、北美和亚太地区的发达经济体中，很少有人认为中共国政府尊重其人民的个人自由。
+
+
+
+**文字版原文：[【热点播报】民调机构：世界发达经济体对中共的负面看法已创历史新高](https://gnews.org/zh-hans/1390631/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

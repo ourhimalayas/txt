@@ -1,81 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/07/12 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1391245/)
+## 7月12日美国政要反共推文精选：美国两党的大多数人现在都相信新冠病毒泄露自实验室
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1392749/)
 
-收集：Cindy，Daniel
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
-
-## 央广网:【每日一习话·礼赞一百年】必须加快国防和军队现代化
-
-![中国军队]( "中国军队")![中国军队](https://cdn.sputniknews.cn/images/102985/84/1029858464.jpg "中国军队")
+参议员汤姆·科顿： 这是常识。【转推国家评论，据Politico和 哈佛大学的民调显示，美国两党的大多数人现在都相信新冠病毒泄露自实验室】
 
 
-> 评论：中共的体制之恶和思维模式之恶是与任何的现代化都沾不上边的，并且是背道而驰的，习神的现代化强军梦真的只是一个白日梦而已。
+
+> Common sense. [https://t.co/mAKLMVDrcq](https://t.co/mAKLMVDrcq)
+> — Tom Cotton (@TomCottonAR) [July 12, 2021](https://twitter.com/TomCottonAR/status/1414581290288959495?ref_src=twsrc%5Etfw)
 
 
-## 俄媒：中共百年的五大胜利
 
-![俄共主席：中国共产党用巨大胜利迎接百年庆典|久加诺夫_新浪财经_新浪网]()![俄共主席：中国共产党用巨大胜利迎接百年庆典|久加诺夫_新浪财经_新浪网](https://n.sinaimg.cn/spider202172/200/w640h360/20210702/dfc3-krwipas4289343.jpg)
-
-
-> 评论：中共百年，命运即将到头，竟然还给自己唱胜利赞歌，无耻下流到极点。
+拥护美国价值行动委员会： 本届政府的软弱给了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 更大的底气。 中国人民希望我们为他们站出来。你们会不会加入我们这场战斗，一起向 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 追责？
 
 
-## 新冠病毒感染及病情遗传因素首次确定 鉴定出十三个新的相关基因组区域
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/05234111/0-13.png)
-
-
-> 评论：不追溯CCP VIRUS的来源、赔偿、问责，研究啥基金最终都是残害人用的。
-
-
-## 总统遇刺加剧局势动荡，上千海地民众涌向美国使馆
-
-![总统遇刺加剧局势动荡，上千海地民众涌向美国使馆]()![总统遇刺加剧局势动荡，上千海地民众涌向美国使馆](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/3d7a1b7f60026c5849c144a2ac63c73au1.png)
+> This Administration has emboldened the Chinese Communist Party with their weakness.
+> 
+> The people of China are counting on us to stand up for them. Will you join us in this fight to hold the CCP accountable? [pic.twitter.com/K0CuNoJRJW](https://t.co/K0CuNoJRJW)
+> — CAVPAC (@cav\_pac) [July 12, 2021](https://twitter.com/cav_pac/status/1414590693775974404?ref_src=twsrc%5Etfw)
 
 
-> 评论：赤裸裸的谋杀，查查背后，海地总统肯定知道什么机密被灭口了。
+
+众议员肯·巴克： [#抖音](https://twitter.com/hashtag/%E6%8A%96%E9%9F%B3?src=hashtag_click) [#TikTok](https://twitter.com/hashtag/TikTok?src=hashtag_click) 的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 所有权对数百万美国人形成了严重的国家安全威胁。这就是为什么汤姆·科顿和我再次发起“禁止抖音在政府部门设备上使用法案”，这是一项保护美国人隐私和数据的基本常识的立法。【转推华尔街独家，中国监管机构对数据安全发出警告后，字节跳动搁置了 IPO 意向】
 
 
-## 澎湃新闻: 徽黄山市发改委回应“猪肉价格下跌为啥肉包子不降价”
 
-![猪价下跌“新高度”，4月猪价要“一跌到底”？猪肉价格还得降？|生猪价格|屠企_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0404%2F19967b2cp00qr1j400026c000ut00j2m.png&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
-
-
-> 评论：中共的假擀面杖经济可以作假，但是真正的民生实情和民间疾苦是永远都做不了假的。
+> TikTok’s Chinese ownership poses a serious national security threat to millions of Americans. That’s why [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) and I reintroduced the No TikTok on Government Devices Act, common sense legislation to protect Americans’ privacy and data. [https://t.co/37kAH0Rkgn](https://t.co/37kAH0Rkgn)
+> — Rep. Ken Buck (@RepKenBuck) [July 12, 2021](https://twitter.com/RepKenBuck/status/1414589602002841606?ref_src=twsrc%5Etfw)
 
 
-## “击垮”苏联，美国20年“打不死”！塔利班为何说中共国才是阿富汗的朋友？
 
-![击垮”苏联，美国20年“打不死”！塔利班为何说中国才是阿富汗的朋友？ |拉登|贝拉克·侯赛因·奥巴马_网易新闻](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0711%2F5793306bj00qw21rp000zc000h600b1c.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-
-
-> 评论：塔利班是中共的狐朋狗友,他们这些恐怖分子早该要被老天收了。
+前国务卿蓬佩奥： 很高兴看到国务卿布林肯再次肯定了我对 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 中共 非法地把南中国海变成自己的努力的陈述。他对我们对菲律宾人们做出的承诺的再度肯定是同等重要的。 我们必须阻止 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 非法的，危险的行为。（转推国务院，美国重申其 2020 年 7 月 13 日关于南海海域主张的政策】
 
 
-## 21名国际专家联合撰文：病毒“极不可能”来自武汉实验室
 
-![21名国际专家联合撰文：病毒“极不可能”来自武汉实验室|论文_新浪财经_新浪网]()![21名国际专家联合撰文：病毒“极不可能”来自武汉实验室|论文_新浪财经_新浪网](https://n.sinaimg.cn/sinakd202179s/221/w584h437/20210709/ce85-ksmehzt0693127.jpg)
-
-
-> 评论：一年半了，病毒溯源还没有定性，可见CCP的能量还没有耗完呢，下半年病毒真相被公布，CCP就要嗝屁了。
-
-
-## “中国崩溃论”学者章家敦又来“预测中国”，遭网友群嘲
-
-![思想领袖】章家敦：中共淡化疫情致国际传播| 冠状病毒| 世界卫生组织| 武汉肺炎| 大纪元]()![思想领袖】章家敦：中共淡化疫情致国际传播| 冠状病毒| 世界卫生组织| 武汉肺炎| 大纪元](https://i.epochtimes.com/assets/uploads/2020/05/9ef3036ee6f3412dfa11409ea8e374a0-450x300.jpg)
+> Happy to see [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) reaffirm my statement about the CCP's unlawful effort to make the South China Sea its own. His reaffirmation of our commitment to the Philippine people is equally important. 
+> 
+> We must stop the CCP’s unlawful, dangerous behavior.[https://t.co/Ci4griAxbd](https://t.co/Ci4griAxbd)
+> — Mike Pompeo (@mikepompeo) [July 12, 2021](https://twitter.com/mikepompeo/status/1414583297603215364?ref_src=twsrc%5Etfw)
 
 
-> 评论：中共就是用这下三滥的宣传洗脑国内民众，对CCP有反对意见的人就人身攻击，我们爆料革命就是传播真相，唯真不破，直到CCP灭亡消失。
+
+参议员霍利新闻办公室： 让我们在美国工人身上打个赌。让我们通过企业透明度和保护性关税让他们有机会在公平的条件下竞争。 “中国不能指望在公平的竞争环境中与美国工人竞争。” 【附福克斯新闻：霍利参议员说：中共国的威胁是真的，而大企业出卖了（美国）】
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+> Let’s make a bet on American workers. Let’s give them the opportunity to compete on fair terms through corporate transparency and protective tariffs.
+> 
+> "China cannot hope to compete with American workers on a level playing field."[https://t.co/HgglwH1aqR](https://t.co/HgglwH1aqR)
+> — Senator Hawley Press Office (@SenHawleyPress) [July 12, 2021](https://twitter.com/SenHawleyPress/status/1414671169828032515?ref_src=twsrc%5Etfw)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-+1
+
+0

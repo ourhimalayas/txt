@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国安法实施后，那些选择离开故土的香港人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1391538/)
+## 【NewsExpress】川普发声明支持古巴抗议者反对共产主义政权
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1392914/)
 
-2021年7月12日
+前总统唐纳德川普周一发表声明：衷心支持古巴抗议者，并要求总统乔拜登站出来反对共产主义政权，否则“历史会记住”。
 
-![上月，香港国际机场的登机口。自从中国出台全面的国家安全法以来，成千上万的人已经计划离开这座城市，到别处开始新的生活。]()![上月，香港国际机场的登机口。自从中国出台全面的国家安全法以来，成千上万的人已经计划离开这座城市，到别处开始新的生活。](https://static01.nyt.com/images/2021/07/12/world/00Hongkong-migration1-print/merlin_189990900_023394ff-77e0-4238-a98b-3cbec0e3abbd-master1050.jpg)
+“古巴和迈阿密正在爆发大规模示威活动，以抗议古巴共产党政府（尽管今天古巴的抗议者为零，但是你知道这意味着什么！），”川普写道。“不要忘记拜登和民主党人竞选时要扭转我对古巴的强硬立场。记得奥巴马和卡斯特罗一起参加棒球比赛时，他们监禁、殴打和杀害古巴人民。我100%支持古巴人民为自由而战。政府必须让他们发言并获得自由！乔拜登必须站出来反对共产主义政权，否则历史会记住。古巴人民应该得到自由和人权！他们不害怕！”
 
-自从中共国出台全面的国家安全法以来，成千上万的人已经计划离开香港，到别处开始新的生活。
+美国有线电视新闻网首席白宫记者凯特兰柯林斯指责川普之前对古巴的制裁，导致了反共产主义抗议，反对该国的经济破坏和压迫。柯林斯敦促拜登政府不要撤销川普实施的限制。
 
-许多人都准备去英国，英国国民海外护照（British National Overseas，简称BNO）持有者可以在那里工作并获得公民身份。根据英国移民局的数据，今年第一季度，有3.43万人申请了这种特殊签证。
+白宫新闻秘书 Jen Psaki则避免使用“社会主义”或“共产主义”等术语，而是称古巴的问题是该国“经济管理不善”的结果。Psaki 还提出抗议的潜在原因是关于没有获取足够的疫苗。
 
-在短短12个月内，从报纸和书店，到立法会和学校，国安法几乎渗透到香港日常生活的方方面面。很多港人离开的原因是不希望子女在要注意公开场合言行的环境下长大。
+古巴总统米格尔·迪亚斯·卡内尔早些时候呼吁采取行动，要求反抗议者反击示威者。迪亚兹·卡内尔将起义的原因归咎于美国的“经济窒息政策”。
 
-移居英国的香港移民试图通过举办和组织活动来相互支持，例如远足。还有将来自香港的新移民与当地英国居民配对的计划，以促进文化交流。通过这样的活动结识其他移民并讨论融入英国社会的过程。
+参考链接：
 
-**【[新闻来源](https://cn.nytimes.com/china/20210712/hong-kong-migrants-london/)】**
+[https://thepostmillennial.com/trump-backs-cuban-protesters-demands-biden-stand-up-to-communist-regime](https://thepostmillennial.com/trump-backs-cuban-protesters-demands-biden-stand-up-to-communist-regime)
 
-* * *
+翻译整理：蓝精灵
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+校对发布：Penny
 
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

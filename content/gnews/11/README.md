@@ -1,65 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美好的世界一定没有邪恶的中共
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1391198/)
+## 【秘翻快报】美国务院在推特上将COVID-19与古巴抗议活动联系起来的做法受到批评
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1392723/)
 
-撰稿：东京樱花团/ThreeColors
+据福克斯新闻网7月12日的报道
 
-校对：东京樱花团/喜马拉雅的微尘
+美国国务院周日因美国国务院西半球事务局代理助理秘书朱莉钟 (Julie Chung) ，将古巴爆发的历史性抗议活动和中共病毒联系在一起的推文受到批评。
+
+推文中表示，古巴人民行使和平集会权力，表达对不断上升的中共病毒感染数和死亡病例以及药品短缺的不满。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12212716/%E5%8F%A4%E5%B7%B4.jpg)
+
+图片来自链接
+
+佛罗里达州共和党参议员马克卢比奥称国务院的这条推文“荒谬可笑”。
+
+他在推特发文表示：“古巴人民抗议在古巴进行62 年的社会主义独裁政权，因为那是谎言、暴政和苦难，绝不是‘表达对COVID－19 病例/死亡人数不断上升的担忧。
+
+白宫国家安全顾问杰克沙利文在他的帖子中附上朱莉钟 的推文，称美国“支持古巴各地的言论、集会自由，并将强烈谴责任何针对和平抗议者的暴力行为。”
+
+新闻链接：[https://www.foxnews.com/politics/state-department-tweet-tying-covid-19-to-cuban-protests-is-criticizedFox NewsState Department tweet tying COVID-19](https://www.foxnews.com/politics/state-department-tweet-tying-covid-19-to-cuban-protests-is-criticized)[to Cuban protests is criticized](https://www.foxnews.com/politics/state-department-tweet-tying-covid-19-to-cuban-protests-is-criticized)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12023858/timg.jpg)
-无论你信不信中共病毒是由中共制造的，
 
-中共病毒依旧在全世界，危害和杀虐人类，
 
-每天都有很多的人死于中共病毒；
 
-无论你相不相信中共病毒疫苗有无疗效，
 
-全世界依旧努力让更多的人尽快接种疫苗，
 
-不顾疫苗的严重后遗症甚至致死；
+以上新闻来源，不代表Gnews平台
 
-无论你相不相信中共活摘器官仍在继续，
 
-大陆每年所进行的器官移植数量一直不少，
 
-死刑犯，法轮功学员，新疆同胞；
+采集／ 撰稿：ALI 112
 
-无论你相不相信三年饥荒死了近一亿人，
 
-听听家里老人讲那段饥肠辘辘的艰苦岁月，
 
-中共的人祸让人吃树皮，吃死人；
+审稿：明澈 发文：文柳
 
-无论你有没有想过要拥有信仰言论自由，
 
-那都是作为一个人的最基本的人权与隐私，
-
-出生权，接受平等的教育与医疗；
-
-你的人生和幸福都应该掌握在你的手里，
-
-别人没有权利说你是爱国的或者是卖国的，
-
-中国人不同意只做居民要做公民；
-
-无论你对政治感不感兴趣，花不花心思，
-
-你都不能放弃你的权利和监督国家的义务，
-
-政治决定你能否被社会公平对待；
-
-无论你曾经被中共洗脑反美反日反文明，
-
-从这一刻开始必须拒绝洗脑，拒绝当粉红，
-
-为一个没有中共的美好未来努力！
-
-（文章仅代表作者个人观点）
-
-发布：东京樱花团/喜马拉雅的微尘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11064307/image0-1-20.jpg)
-+1
+ 
+0
