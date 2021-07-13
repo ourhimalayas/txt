@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】美国白宫将发布警告美国公司留港风险
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1394150/)
+## 【新闻速递】德州民主党人逃离该州以阻止共和党的投票法
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1394574/)
 
-#### 文章撰写:【默凡】
+翻译：纽约香草山健身部 Ivy001
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13100625/535mlklhiohioj5156hk_0.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-ZeroHedge新闻网7月13日报道：拜登总统本周将延续川普政府的政策，警告美国企业在香港经营的风险越来越大，因为中共进一步加强了对香港的控制权。据接近白宫的消息人士告诉英国《金融时报》，拜登还准备对中共国实施更多制裁，这与中共涉嫌在新疆犯下种族灭绝罪和反人类罪，以及破坏香港自治制度，例如中共强行关闭因亲民主立场而广受欢迎的《苹果日报》。很快，拜登政府将把警告替换成强制美国企业离开中共国的命令。
 
-据五名知情人士透露，拜登政府将在周二更新川普政府去年对新疆发出的警告，商业咨询将强调美国公司面临的法律风险，除非它们确保其供应链不涉及新疆的强迫劳动。一位不愿透露姓名的官员说：“该建议的重点是强调如果你不退出这些供应链，就有违反美国法律的风险。”
 
-香港拥有庞大的外籍商界人士（其中包括数以千计的美国银行家和其他金融服务业员工），香港美国商会表示，到2020年，它有超过120名会员和282家美国公司将其地区总部设在该地区。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13123900/111-%E3%80%90%E6%96%B0%E9%97%BB%E9%80%9F%E9%80%92%E3%80%91%E5%BE%B7%E5%B7%9E%E6%B0%91%E4%B8%BB%E5%85%9A%E4%BA%BA%E9%80%83%E7%A6%BB%E8%AF%A5%E5%B7%9E%E4%BB%A5%E9%98%BB%E6%AD%A2%E5%85%B1%E5%92%8C%E5%85%9A%E7%9A%84%E6%8A%95%E7%A5%A8%E6%B3%95.jpg)图片来源：Reuters
 
-参考文章：[White House Warns US Firms About Risks Of Remaining In Hong Kong](https://www.zerohedge.com/markets/white-house-warns-us-firms-about-risks-remaining-hong-kong?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[德克萨斯州](https://www.bbc.com/news/world-us-canada-57814213)的民主党政治家们已经集体离开德州，以防止该州的共和党人通过一项收紧投票规则的法律。因为众议院要求150名议员中至少有三分之二的人出席投票，此举将使该州的众议院暂时瘫痪。
 
-本文仅代表作者本人观点，不代表Gnews平台
+周一，至少50名众议院民主党人登上了两架从奥斯汀飞往华盛顿的私人飞机。此举是在共和党领导的各州掀起投票限制浪潮之际进行的。共和党人认为这些措施对选举安全至关重要，但民主党人认为这是对投票权的攻击。
 
-* * *
+德克萨斯州的法案将禁止24小时投票场所，并扩大党派投票监督员的权力。计划在本周晚些时候进行第一次投票。民主党人退场使得克萨斯州投票法案停摆。
 
-校对发布：日本东京方舟农场 文柯Miles
+当议员们降落在华盛顿特区时，民主党人表示，他们不会在下个月为期30天的特别会议结束前返回。
 
-0
+根据德克萨斯州众议院的规定，缺席的政治家可以被逮捕并返回议院。但负责的机构在德克萨斯州以外的地方没有管辖权。
+
+校对/发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

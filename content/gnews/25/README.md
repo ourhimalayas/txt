@@ -1,47 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】美国在阿富汗撤军 最高指挥官卸任
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1394486/)
+## 230名民主派议员被迫退出香港地方议会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1394789/)
 
-翻译：纽约香草山健身部 Ivy001
+2021年7月13日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13170111/1462045-4.jpg)
+香港 — 由于日益增长的政治压力威胁到香港民主运动的生存，至少有230名香港区议会议员可能因不符合宣誓资格而计划辞去职务。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+根据一项新法律，香港议员现在必须宣誓效忠港共政府。当地媒体本月报道称，即使这些议员过去因违规宣誓，也将有大约 230 人被取消议员资格，并可能被要求返还 100 万港元（129,000 美元）的薪津。
+
+违反誓言的议员可能面临被起诉，导致许多区议员被迫在宣誓前下台。据当地《明报》报道，仅从周三到周一，就有 192 人表示将辞职。
+
+总体而言，预计超过一半的民主派议会成员将离开他们的席位。
+
+大逃离之际，人们越来越担心香港民主运动的未来。
+
+**【[新闻来源](https://asia.nikkei.com/Politics/230-elected-pro-democrats-quit-Hong-Kong-local-councils)】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13111329/109-%E3%80%90%E6%96%B0%E9%97%BB%E9%80%9F%E9%80%92%E3%80%91%E7%BE%8E%E5%9B%BD%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%97%E6%92%A4%E5%86%9B-%E6%9C%80%E9%AB%98%E6%8C%87%E6%8C%A5%E5%AE%98%E5%8D%B8%E4%BB%BB-1.jpg)图片来源：BBC
-
-随着美国领导的阿富汗军事任务迅速接近尾声，美国和北约在阿富汗的最高将领已正式移交控制权。[奥斯汀·斯科特·米勒将军](https://www.bbc.com/news/world-us-canada-57809533)于周一卸任，此前拜登总统已经宣布美国的军事行动将于8月31日停止。
-
-包括英国在内的其他北约国家已经在拜登总统的最后期限之前撤出了几乎所有的军事力量。
-
-在星期一的一个简单仪式上，米勒将军将他的职责移交给两位美国将军。一位将在佛罗里达州的中央司令部总部监督美国的军事行动，另一位将指挥美国正式撤军后留下的大约650名部队。
-
-“对我来说，告别是很重要的”，米勒将军在最后的讲话中对包括阿富汗高级官员在内的与会者说，”我们现在的要做的，是不要忘记。”
-
-米勒将军是监督驻阿富汗的北约和美军的最长任期的官员，他称这是他职业生涯的 “亮点”。
-
-BBC首席国际记者莱塞·杜塞参加了这个在喀布尔举行的仪式，他说，他的离开标志了一个时代的结束。
-
-撤军以后，美国及其盟友将更难知道阿富汗当地发生了什么，更难在政府控制的地区产生决定性影响，更难在塔利班负责的越来越多的地区产生影响。
-
-塔利班最近声称，他们的战士已经夺回了阿富汗85%的领土。这个数字无法独立核实，也受到政府的质疑。其他方面的估计称，在阿富汗400个地区中，塔利班控制了的三分之一以上。
-
-美国领导的部队于2001年将塔利班赶下台。该组织一直窝藏乌萨马·本·拉丹，以及其他与美国的2001年9月11日袭击有关的基地组织人物。拜登总统和其他美国领导人表示相信塔利班不会推翻喀布尔的阿富汗政府，尽管根据6月份分发给官员的一份评估报告，一些情报分析人员担心这可能发生。
-
-周一的仪式结束后，阿富汗国家安全顾问哈姆杜拉·莫希布告诉记者，”将不会接管。”
-
-校对/发稿：雪梨
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

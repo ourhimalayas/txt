@@ -1,49 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你想要生活在共产党主导的世界吗？
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1394043/)
+## 美国警告中共：停止在南海的挑衅行为
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1394526/)
 
-台湾宝岛农场 文旦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13080843/My-Post-10.jpg)
-美国前国务卿迈克·蓬佩奥（Mike Pompeo）7月11日表示，中共是美国最大威胁，必须发起一场持续严肃的运动反击中共，让中共付出真正代价。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13114126/1371.png)
+据《globalnation》作者Christia Marie Ramos和记者CMRamosINQ，2021 年7月12日报道：
 
-蓬佩奥采访中说到：「我们不想生活在一个由中国共产党主导的世界。当你听到习近平威胁台湾人民时，这需要美国的决心、力量和威慑，美国的领导力必须在那里。我希望拜登总统能够接受这一点」。由此可知，中共对台的一切作为都被美国高度重视。
+美国国务卿安东尼·布林肯呼吁中国停止在南中国海的挑衅行为，因为菲律宾正值其在海牙仲裁法院胜诉五周年之际，反对北京在南海区域的广泛主张。
 
-**新疆集中营真实情况没有被了解，只有比你想得更惨**
+“以规则为基础的海上秩序受到的威胁最大的莫过于南海。中共国（PRC）继续胁迫和恐吓东南亚沿海国家，威胁到这条关键的全球通道的航行自由，”布林肯周一在一份声明中说。“我们呼吁中华人民共和国（中共国）遵守国际法规定的义务，停止挑衅行为，并采取措施向国际社会保证，所有国家，无论大小都应致力于尊重各国权利的基于规则的海洋秩序。“ 他补充道。”
 
-中国共产党在香港所做出的一切，世界有目共睹，勇敢的香港人民用她们的勇气，完全揭露了中国共产党的手段。中共对香港的政治迫害、大屠杀在国际媒体持续关注、监督之下，中共行径还能如此嚣张、邪恶。那么中共对待中国人民呢？新疆集中营的维吾尔族人呢？
+布林肯还重申了华盛顿在与马尼拉的共同防御条约下的防御义务。
+他说：“ 美国重申其 2020 年 7 月 13 日关于南中国海海洋主张的政策。”
 
-想必只有更加夸张、更加邪恶，你想要被这样的体制主宰吗？台湾若受到中共武力侵夺，中共对台湾的迫害只会比新疆、香港更为惨忍。
+“ 我们还重申，在南海对菲律宾武装部队、公共船只或飞机进行武装袭击将援引美国根据 1951 年《美菲共同防御条约》第四条做出的共同防御承诺，”他补充说。这是为了纪念联合国支持的海牙常设仲裁法院2016 年 7 月的裁决，该裁决作出有利于菲律宾的裁决，并使中共国在南海（包括西菲律宾海）的广泛主张无效。
 
-中共掩盖病毒(COVID-19)真相、恶意释放，使用中共病毒(COVID-19)来达成他们要的目的，伤害了全世界。
+然而，北京拒绝承认上述裁决。“ 仲裁庭表示，中共国对仲裁庭确定为菲律宾专属经济区和大陆架一部分的区域没有合法主张，”布林肯说。布林肯表示，根据《海洋法公约》规定的条约义务，中国和菲律宾都“有法律义务遵守”海牙法院的裁决。与此同时，华盛顿的最高外交官强调，“ 海洋自由仍然对全球和平与繁荣至关重要。”
 
-中共病毒的扩散，破坏了经济、医疗体系，甚至意图以疫苗制造社会分化、动乱。中共病毒(COVID-19)还不断的奇特变异中，消灭中国共产党，让中国共产党究责赔偿全世界，并利用法律制裁他们，并让中国共产党体制彻底消失。
+原文链接：
+[https://globalnation.inquirer.net/197633/us-to-china-stop-provocative-behavior-in-south-china-sea?utm\_medium=Social&utm\_source=Twitter#Echobox=1626054673-1](https://globalnation.inquirer.net/197633/us-to-china-stop-provocative-behavior-in-south-china-sea?utm_medium=Social&amp;utm_source=Twitter#Echobox=1626054673-1)
 
-为你了的下一代，为了你的未来，消灭共产党是正义的必须，行动、行动、行动。
+翻译：洛杉矶盘古农场–格格巫
+校对：洛杉矶盘古农场– Mike Li
+编辑：洛杉矶盘古农场– 轰炸机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-加入新中国联邦，与无数正义的无名战友一起消灭中国共产党。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-中共病毒(COVID-19)的真相永远无法抹灭的源头与事实，在世界的追责之下，中共必然灭亡。
-
-传播真相，缺你不可，你的一小步，将是灭共的一大步。
-
-资料来源:
-
-[蓬佩奥：美需持续反击让中共付出真正代价-大纪元](https://www.epochtimes.com/b5/21/7/12/n13082614.htm)
-
-* * *
-
-审编：zhong
-
-校对：铃铃卷
-
-发布：little liu
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 0

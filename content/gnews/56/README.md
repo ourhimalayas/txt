@@ -1,44 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保守党议员警告中共国对英国大学“言论自由”构成威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1392262/)
+## 中共黑瘫GETTR（盖特）后果很严重
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1393086/)
 
-**据《EXPRESS 》作者：TIM MCNULTY，2021 年 7 月 10 日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/04200749/13B5D8ED-4EFD-49E0-8A9F-02590530CC9F_1_201_a.jpeg)图片来源：https://www.gosolis.com/blog/fbi-warms-businesses-of-cyber-attack-from-china/
+#### 加拿大多伦多枫叶农场 
 
-一位保守党议员警告说，中共国对英国大学的言论自由构成威胁，她警告校园内的“大规模自我审查”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12124213/1362-1.png)
-保守党议员艾丽西亚·卡恩斯 (Alicia Kearns) 警告称，中共国在学术界的影响力正成为英国大学的“大问题”。 作为议会外交事务特别委员会成员，卡恩斯女士告诉 Express.co.uk，她对中共国试图扼杀关于人权问题的自由辩论感到震惊，例如虐待新疆少数民族维吾尔人。
+丁过美东时间7月4日上午，由美国前总统川普的高级顾问杰森．米勒担任首席执行官的GETTR上线，这个采用了最先进技术的社交媒体网站，遭到了黑客的攻击，出现短暂瘫痪，但系统随后迅速被修复，使GETTR上线第一天就获得了一次不错的测试演练机会。
 
-卡恩斯女士告诉 Express.co.uk：“我们的大学具有讽刺意味的是，这是一个贯穿整个问题的问题，即我们的大学旨在成为言论自由的校园。”
+能够黑瘫有强大防火墙的GETTR决非普通的黑客，而是有国家网络战技术能力的强大力量，据信是由中共发起的。据华尔街日报报道，GETTR的主要机构投资者，是由反共斗士郭文贵先生控制的投资基金。GETTR承诺为所有人提供一个无偏见的自由发声平台，创建永远不会因为言论而被禁声、干涉的思想集市。这是对极权专制的否定和挑战，当然遭到中共的忌恨，同时也表明中共心虚害怕了。
 
-“辩论，对话，让我暂时成为魔鬼并提出其他建议。”
-“在我们的校园里，我们遇到了一个大问题，即自我审查。”
-“但除了我们自我审查之外，我们受得到了国际世界强国的渗透，他们收买了学者、研究领域、大学的学院。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12124602/1362-2.png)中共国：保守党议员 Alicia Kearns 讨论了英国大学的“大问题”（图片来源：EXPRESS）![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12124735/1362-3.png)中国共产党被指控对维吾尔人进行种族灭绝（图片来源：盖蒂）
-这位议员补充说：“我们看到他们中的一些人站出来说，我们不能对发生种族灭绝的新疆发生的事情进行批评或讨论。”
-“因为我们不公平，或者我们必须让中共国政府自己叙述新疆。”
-“是的，来说说你们那面的事，但我们不会也不谈论你们在做什么。”
-“我非常担心我们国家的未来，如果大学是一个应该持续公开讨论甚至不容质疑的地方，就会有外国势力收买我们，尤其是中共国。”
+GETTR目前已经有超过50万注册用户，进驻的名人包括美国前国务卿迈克. 蓬佩奥、前美国总统首席战略顾问史蒂夫．班农、亲川普的广播公司Newsmax等等。在这一次网络攻击中，黑客修改了这些重要用户的资料，但未造成其他损失。米勒表示，攻击发生几分钟后我们就击退了黑客，修复了我们的系统，入侵者所能做的就是更改一些用户名而已。问题迅速解决，得益于系统釆用了先进技术。
 
-就在几天前，中共国研究小组的议员告诉 Express.co.uk，英国正处于与侵略性外国势力（尤其是习近平的中共政权）的“持续混合战争状态”。
-卡恩斯女士告诉 Express.co.uk：“各国寻求实现其目标和破坏他人的方式已经发生了根本性的转变。”
-“我们一直处于混合战争状态，像中共国这样的国家正在利用他们可用的每一个潜在杠杆。”
-“从文化到教育，再到军事，再到各种可能的情况，包括虚假信息。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12124853/1362-4.png)中共国：军事力量（图片来源：EXPRESS）
-“他们正在利用他们可用的一切来实现他们的战略意图。”
-“当你有一个像中共国这样的专制政权时，对他们来说要容易得多，因为他们可以把整个国家的努力都投入其中，”这位议员解释说。
-“因为他们拥有他们所拥有的指挥和控制功能，而且他们没有充满活力的民主。”
-“所以我们必须认识到，混合战争不是一些深奥的事后想法，只是想推着说哦，是的。他们到处攻击我们，我们一直在战争中。”
+GETTR的注册地在美国特拉华州，总部设在纽约，中共对一家美国网络公司发动攻击，实质上是对美国的一种战争行为。早在2011年5月，美国国防部就得出结论，来自另一国家的电脑破坏行为可构成战争行为。如果美国的网络部队最终认定系中共发动了本次网络攻击，中共必须承担后果。
 
-原文连接：[https://www.express.co.uk/news/uk/1460287/china-threat-academic-free-speech-uk-university-latest-chinese-communist-party-news-VN](https://www.express.co.uk/news/uk/1460287/china-threat-academic-free-speech-uk-university-latest-chinese-communist-party-news-VN)
+参考链接：
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – TrueSky
-编辑：洛杉矶盘古农场 – 心照
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[特朗普前顾问米勒：新社交应用Gettr获得郭文贵相关基金会的支持](https://cn.wsj.com/articles/%E7%89%B9%E6%9C%97%E6%99%AE%E5%89%8D%E9%A1%BE%E9%97%AE%E7%B1%B3%E5%8B%92%EF%BC%9A%E6%96%B0%E7%A4%BE%E4%BA%A4%E5%BA%94%E7%94%A8gettr%E8%8E%B7%E5%BE%97%E9%83%AD%E6%96%87%E8%B4%B5%E7%9B%B8%E5%85%B3%E5%9F%BA%E9%87%91%E4%BC%9A%E7%9A%84%E6%94%AF%E6%8C%81-11625206510)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Pro-Trump social media app GETTR hacked on launch day as half million sign up](https://www.theglobeandmail.com/world/article-pro-trump-social-media-app-hacked-on-launch-day-as-half-million-sign/)
 
 0
