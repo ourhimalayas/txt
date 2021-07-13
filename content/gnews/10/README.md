@@ -1,59 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】完整注射新冠疫苗后感染Delta变种病毒成无症状感染者
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1392848/)
+## 世卫专家敦促各国不要混合接种中共病毒疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1393679/)
 
-作者：纽约香草山农场 Delilah小胖
+#### 作者：日本东京方舟农场 青衣
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13051654/9A0698A3-D92E-4602-96AF-2DCEA6E5DF1D.jpeg)
 
+据《联合早报》7月13日消息，世界卫生组织专家敦促各国不要将不同制药商研发的冠病（中共病毒）疫苗混合使用。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+据《路透社》报道，世界卫生组织首席科学家斯瓦米内森（Soumya Swaminathan）近日表示，混合接种不同品牌的冠病（中共病毒）疫苗是一个“危险趋势”，因为目前仍缺乏这样做对人体健康影响的相关数据。
 
+斯瓦米内森在周一（12日）的线上简报会上表示，“混合接种冠病（中共病毒）疫苗还是一个无数据、无证据的领域”。她说：“人们一旦决定几时开始，让哪些人接种第二、第三甚至是第四剂疫苗，世界各国将会陷入一个混乱的局面。”
 
+不过，一些国家已经开始为人们混合接种中共病毒疫苗。
 
-2021年7月12日，据CNBC报道，世卫组织官员今天指出，完整接种新冠病毒疫苗后再次感染Delta变种病毒的人中大部分是无症状感染者。
+加拿大国家免疫咨询委员会6月1日宣布，允许混合接种中共病毒疫苗，以加快疫苗接种进度。
 
-世卫组织官员在今天的新闻简报会中称，虽然接种疫苗会保护大部分的人在感染后不会出现病情恶化或者死亡，但是，即使民众完全接种了新冠疫苗，他们仍然有几率感染Delta变种病毒。
+根据新规定，第一针接种阿斯利康疫苗的人，第二针可选择相同疫苗，也可选择辉瑞-BioNTech或莫德纳疫苗；允许辉瑞疫苗和莫德纳疫苗交叉“混打”，即第一针打辉瑞，第二针打莫德纳，反之亦可。
 
-世卫组织的谭德赛承认，“已经有报告表明接种人群中出现感染新冠病毒的案例，尤其是Delta变种病毒”。他还说， “（已注射新冠疫苗）的感染者症状较轻，或者是无症状感染者。”
+不过新规定不建议第一针接种辉瑞或莫德纳疫苗的人，第二针接种阿斯利康疫苗。
 
-世卫组织的另外一位官员还警告说，接种疫苗的人仍然能够感染新冠病毒并传播给其他人，这也就是为什么世卫组织一直敦促人们持续性地佩戴口罩，并且保持社交距离。
+泰国因为有超过600名医护在完整接种两剂中共国科兴疫苗后仍然感染中共病毒，因此泰国卫生部也正在研讨将为高危人群组补充接种第三剂阿斯利康、辉瑞或莫德纳疫苗。
 
-世卫组织官员也指出，需要更多的研究来理解新冠疫苗对病毒传播的影响。
+而在南美洲，之前接种中共国疫苗的多个国家现在都成了中共病毒新增病例比率最高的国家，当地政府因而也在推进混合接种计划。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12220556/78.jpg)
+自全世界大规模推进疫苗接种计划后，世界多国出现了新一波疫情爆发，疫苗的有效性开始遭到广泛质疑。再加上病毒的不断变异更是大幅降低了疫苗的保护力。在如此背景之下，一些国家又开始以加强保护为名进行混合疫苗接种，其有可能产生的危害结果让人不寒而栗。
 
-根据这则报道笔者可以理解为，打不打疫苗的实际作用不大。一来打完疫苗仍然会感染病毒，并且感染的几率并未达到可以被忽略不计的地步；二来接种新冠疫苗之后可能会出现轻度的，甚至是无症状感染。这种情况下，无症状感染者会无意识地将病毒传染给其他人。这种无症状传播往往是更为可怕的，因为无症状，感染者自身不会主动佩戴口罩，或者进行自我约束和有意识地保护其他人。实际上，哪怕在西方国家，生病的人往往会自觉地佩戴口罩，以避免把自身的疾病传染给其他人。这在西方国家，比如美国，是普通百姓基本的个人素质。现在，因为感染后无症状，这些“健康”的带菌者失去了自身主动防护和保护其他人的意识，自己变成了无辜的超级传播者。
+不去思考疫苗是否真能起到保护作用，而是不断增加接种次数，或进行疫苗混合接种，全世界人都成了疫苗实验的小白鼠。如此危险之举如果不及时制止，人类将面临巨大的灾难！
 
-同时，因为接种了新冠疫苗，接种者自以为可以毫无防护地参加任何社交活动，哪怕是有限制的社交活动。在增加了的社交活动中，这些轻微症状或者无症状者会大面积地感染其他人。这种无症状感染完全会在无声无息中进行，其危害程度更加严重。因此，即使接种者手持“疫苗”护照，他人也无法判断其是否是无症状感染者。
+*注：本文仅代表作者观点*
 
-参考阅读：
+*参考链接：*
 
-[Most fully vaccinated people who get Covid delta infections are asymptomatic, WHO says](https://www.cnbc.com/2021/07/12/most-fully-vaccinated-people-who-get-covid-delta-infections-are-asymptomatic-who-says-.html)
-
-[COVID-19 Pandemic Planning Scenarios](https://www.cdc.gov/coronavirus/2019-ncov/hcp/planning-scenarios.html)
-
-封面图来源：[The Guardian](https://www.theguardian.com/commentisfree/2021/feb/09/these-wealthy-vaccine-cheats-prove-we-were-never-all-in-this-together)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+1. [*https://www.cna.com.tw/news/aopl/202107110199.aspx*](https://www.cna.com.tw/news/aopl/202107110199.aspx)
+2. [*https://www.orientaldaily.com.my/news/international/2021/07/07/422779*](https://www.orientaldaily.com.my/news/international/2021/07/07/422779)
 
 
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+*校对：MIMI     发布：miumiu*
 
 0

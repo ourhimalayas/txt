@@ -1,58 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7月12日美国政要反共推文精选：美国两党的大多数人现在都相信新冠病毒泄露自实验室
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1392749/)
+## 美英加奥集体对中共“出击”
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1393773/)
 
-参议员汤姆·科顿： 这是常识。【转推国家评论，据Politico和 哈佛大学的民调显示，美国两党的大多数人现在都相信新冠病毒泄露自实验室】
+撰稿：东京樱花团/墨然
+校对：东京樱花团/喜马拉雅的微尘
 
+联合国人权理事会第47届会议于6月21日起在日内瓦举行，目前会议已经接近尾声，并且于7月13日闭幕。在这期间，加拿大甘当“反华急先锋”，在会议开始之初就代表40多个国家就人权问题攻击涉港、涉疆等中共国内政问题。英国、美国、加拿大、澳大利亚等国家集体站队，就中共过去的一些反人类、反人权的罪行进行指责与批判。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13055437/renquanlishihui.png)
 
-> Common sense. [https://t.co/mAKLMVDrcq](https://t.co/mAKLMVDrcq)
-> — Tom Cotton (@TomCottonAR) [July 12, 2021](https://twitter.com/TomCottonAR/status/1414581290288959495?ref_src=twsrc%5Etfw)
+就香港与新疆问题的处理来看，可以毫不夸张将中共定义为“刽子手”。在香港街头以维护治安的名义抓捕同胞，在新疆像“切韭菜”一样的收割无辜百姓的生命。中共作为全球最大的人口贩子，不仅贩卖妇女儿童，且其活体器官摘除的做法更是丧心病狂。他们不把百姓当人，任意折辱、囚禁、还恬不知耻的在国际上大放厥词，说中共国是自由、民主、法治的国家，进而抨击美国、甚至是西方的人权。而在中共领导下的百姓可谓苦不堪言，这个苦并不仅仅是身体上的苦，而是精神上的匮乏，他们麻木、呆滞、信息闭塞、任人鱼肉。将这些可怜的百姓唤醒，助其脱离苦海，是爆料革命发起的初衷，也是我之所愿。道阻且长、行则将至，我们一起努力！
 
+新闻来源链接：[https://kandianshare.html5.qq.com/v2/news/3507210771217365314?cardmode=1&docId=3507210771217365314&from\_app=qb&sGuid=fb3158541062f8f8442c4c351aa188cb&sQueryId=1626146725327&sUserId=&sUserType=-1&sh\_sid=5\_\_\_\_fb3158541062f8f8442c4c351aa188cb&target\_app=kb](https://kandianshare.html5.qq.com/v2/news/3507210771217365314?cardmode=1&amp;docId=3507210771217365314&amp;from_app=qb&amp;sGuid=fb3158541062f8f8442c4c351aa188cb&amp;sQueryId=1626146725327&amp;sUserId=&amp;sUserType=-1&amp;sh_sid=5____fb3158541062f8f8442c4c351aa188cb&amp;target_app=kb)
 
-
-拥护美国价值行动委员会： 本届政府的软弱给了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 更大的底气。 中国人民希望我们为他们站出来。你们会不会加入我们这场战斗，一起向 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 追责？
-
-
-
-> This Administration has emboldened the Chinese Communist Party with their weakness.
-> 
-> The people of China are counting on us to stand up for them. Will you join us in this fight to hold the CCP accountable? [pic.twitter.com/K0CuNoJRJW](https://t.co/K0CuNoJRJW)
-> — CAVPAC (@cav\_pac) [July 12, 2021](https://twitter.com/cav_pac/status/1414590693775974404?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： [#抖音](https://twitter.com/hashtag/%E6%8A%96%E9%9F%B3?src=hashtag_click) [#TikTok](https://twitter.com/hashtag/TikTok?src=hashtag_click) 的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 所有权对数百万美国人形成了严重的国家安全威胁。这就是为什么汤姆·科顿和我再次发起“禁止抖音在政府部门设备上使用法案”，这是一项保护美国人隐私和数据的基本常识的立法。【转推华尔街独家，中国监管机构对数据安全发出警告后，字节跳动搁置了 IPO 意向】
-
-
-
-> TikTok’s Chinese ownership poses a serious national security threat to millions of Americans. That’s why [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) and I reintroduced the No TikTok on Government Devices Act, common sense legislation to protect Americans’ privacy and data. [https://t.co/37kAH0Rkgn](https://t.co/37kAH0Rkgn)
-> — Rep. Ken Buck (@RepKenBuck) [July 12, 2021](https://twitter.com/RepKenBuck/status/1414589602002841606?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 很高兴看到国务卿布林肯再次肯定了我对 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 中共 非法地把南中国海变成自己的努力的陈述。他对我们对菲律宾人们做出的承诺的再度肯定是同等重要的。 我们必须阻止 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 非法的，危险的行为。（转推国务院，美国重申其 2020 年 7 月 13 日关于南海海域主张的政策】
-
-
-
-> Happy to see [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) reaffirm my statement about the CCP's unlawful effort to make the South China Sea its own. His reaffirmation of our commitment to the Philippine people is equally important. 
-> 
-> We must stop the CCP’s unlawful, dangerous behavior.[https://t.co/Ci4griAxbd](https://t.co/Ci4griAxbd)
-> — Mike Pompeo (@mikepompeo) [July 12, 2021](https://twitter.com/mikepompeo/status/1414583297603215364?ref_src=twsrc%5Etfw)
-
-
-
-参议员霍利新闻办公室： 让我们在美国工人身上打个赌。让我们通过企业透明度和保护性关税让他们有机会在公平的条件下竞争。 “中国不能指望在公平的竞争环境中与美国工人竞争。” 【附福克斯新闻：霍利参议员说：中共国的威胁是真的，而大企业出卖了（美国）】
-
-
-
-> Let’s make a bet on American workers. Let’s give them the opportunity to compete on fair terms through corporate transparency and protective tariffs.
-> 
-> "China cannot hope to compete with American workers on a level playing field."[https://t.co/HgglwH1aqR](https://t.co/HgglwH1aqR)
-> — Senator Hawley Press Office (@SenHawleyPress) [July 12, 2021](https://twitter.com/SenHawleyPress/status/1414671169828032515?ref_src=twsrc%5Etfw)
-
-
-
-0
+（文章仅代表作者个人观点）
+发布：东京樱花团/野猫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11064307/image0-1-20.jpg)
++2
