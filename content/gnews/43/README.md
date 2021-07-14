@@ -1,52 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】未雨绸缪——澳洲投资远程导弹和网络安全
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1395930/)
+## 西喜时事新闻简报 — 南海军事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1396036/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+- 作者：WENWU
 
-#### **翻译：Lish**
 
-#### **校对/编辑：文泓**
-![此图像的alt属性为空；文件名为%E6%B0%91%E4%B8%BB-3.png]()![此图像的alt属性为空；文件名为%E6%B0%91%E4%B8%BB-3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14054509/%E6%B0%91%E4%B8%BB-3.png)
-图片来源：4BC NEWS
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-国防部长彼得-达顿说，随着澳大利亚在中东地区长达数十年的战役结束，他正在将军事重点转移到澳洲本地，并确保澳美两国的关系比以往任何时候都“更深更强”。
+**西班牙2021年7月14日电/西喜社——**
 
-随着西方盟国从长达20年的地区冲突中撤出，澳大利亚已正式从阿富汗撤出所有部队。而国防部长表示，现在正是投资澳大利亚军事未来的最佳时机。
+您若想了解全文报导内容，请点击标题链接
 
-达顿先生告诉澳大利亚天空新闻网，通过阿富汗战争环境的历练，让澳洲国防军的所有部门收获军事财富，以便对现在和未来的敌人“进行威慑和采取行动”。
+1 [台湾NCSIST称“霹雳2000”火箭可对抗两栖攻击](https://www.taiwannews.com.tw/en/news/4246249)
 
-他说：“我们需要确保能够尽快地引进这些（军工）设备。”
+据《台湾英文新闻》(Taiwannews)2021年7月12日电，台湾国立中山科技学院（NCSIST）为“霹雳2000”多管火箭发射器开发的集束弹药是为对抗两栖的攻击，补充常规管炮，并为台湾陆军提供火力，将遵守《集束弹药公约》，台湾的对手是中共，独裁政府是不会遵守国际公约，所以台湾必须重视
 
-莫里森政府已承诺投入10多亿澳元建立一个制导武器系统产业，让澳大利亚建立远程导弹能力，达顿先生说这是一种巨大的威慑。
+2 [专家建议美国帮助改革台湾国防战略](https://www.taiwannews.com.tw/en/news/4246316)
 
-联邦政府加强了对国防的投入，其中包括投资2700亿澳元，用以在未来十年内建立更强的军事能力，在此大背景下，创建本地武器工业的举措应运而生。
+据《台湾英文新闻》（Taiwannews)2021年7月12日电，中共国已成为美国的军事竞争对手，是“华盛顿面临的最大的战略挑战”。美国官员强调对北京何时入侵台湾无法估计，或与台湾成立一个美台联合工作组，专注于建立整体防御概念。台湾的李喜明和李艾睿建议美国帮助台湾进行重组和实施防御策略
 
-澳大利亚战略政策研究所（ASPI）警告说，如果澳大利亚不迅速提高其国防投入，它可能会被中共国严重压制。
+3 [美国警告中共国支持南海裁决，并致力于菲律宾防御](https://www.cnn.com/2021/07/12/asia/us-philippines-south-china-sea-intl-hnk/index.html)
 
-ASPI的马尔科姆-戴维斯博士在今年6月说：“我们面临着几十年来最危险的战略前景，其中心是与中国的战争预期。”
+据《美国有线电视》（CNN）2021年7月12日电，如果中共国对菲律宾在该地区的资产采取任何军事行动，美国可以援引《[美菲共同防御协议](https://www.cnn.com/2021/06/14/asia/philippines-us-visiting-forces-agreement-intl-hnk/index.html)》。中共国不遵守国际法，并否认2016年海牙常设仲裁法院的裁决继续侵犯菲律宾的主权，即是马尼拉专属经济区（EEZ）[建岛等活动](https://www.cnn.com/2020/12/07/china/south-china-sea-bases-military-intl-hnk/index.html)来欺凌该地区。中共指责蓬佩奥挑拨离间，“歪曲”国际法
 
-国防部长说，增强（远程）导弹能力的投资建设，将使澳大利亚有能力“保护自己”，并确保外国对手“在攻击我们时要三思而后行”。
+4 [贝克利：北京攻打台湾胜算有多大？](https://www.voachinese.com/a/interview-with-Michael-Beckley-on-Beijing-s-possible-attack-on-Taiwan-20210713/5963763.html)
 
-达顿先生说，澳大利亚还需要大力投资于网络安全，并警告说，“这些攻击已经开始了”。
+据《美国之音》（AOV）北京时间2021年7月14日电，库尔特·坎贝尔（Kurt Campbell)表示，台湾有权享有和平生活，中共国对台湾的进攻行动将是“灾难性”的。中共国军队指挥部以贪污腐败著称，其攻打易守难攻的台湾，必定会付出难以承受的代价，美军将低成本完成阻断中共攻占台湾的任务。另外，美国保卫或协助保卫台湾的政治意愿在很大程度上取决于台湾人所展示的意愿，并且一旦战争爆发台湾本土就看天命了
 
-他说：“这条战线每天都在进行，我们每天都在受到来自国家行为者和非国家行为者的攻击，都在攻击我们的国防系统。”
+5 [菲律宾软中带硬助长美国干预南海](https://cn.reuters.com/article/%25E6%25B8%25AF%25E6%258A%25A5%25E7%25A4%25BE%25E8%25AF%2584%25EF%25BC%259A%25E8%258F%25B2%25E5%25BE%258B%25E5%25AE%25BE%25E8%25BD%25AF%25E4%25B8%25AD%25E5%25B8%25A6%25E7%25A1%25AC%25EF%25BC%258C%25E5%258A%25A9%25E9%2595%25BF%25E7%25BE%258E%25E5%259B%25BD%25E5%25B9%25B2%25E9%25A2%2584%25E5%258D%2597%25E6%25B5%25B7-%25E4%25BF%25A1%25E6%258A%25A57%25E6%259C%258813%25E6%2597%25A5-idCNL4S2OP01M)
 
-达顿先生说，展望未来，他致力于“与我们的伙伴合作”，特别是与美国合作，以巩固澳大利亚在印度太平洋地区的地位。
+据《路透社》援引香港《信报》2021年7月12日电，2016年7月12日荷兰海牙仲裁法庭在《联合国海洋法公约》下，裁定中共国的“填海造陆”给环境造成不可挽救的损失，应停止在南海的「活动」。6月24日，为满足有打仗意愿的菲律宾在武器上的需求，美国国防部宣布：同意价值25亿美元的三项对菲律宾军售协议，包括F-16战机、响尾蛇空对空导弹和鱼叉反舰导弹等等。显然美国在竭力满足菲律宾对华抗争的需求
 
-他说，澳大利亚在防务方面的下一步是确保其与美国的关系“比以往任何时候都更加深入和强大”。
+审核：蚂蚁兄弟； 校对：信心满满； 发稿：Nuevo唐人
 
-“我认为我们在本地区前所未有地需要美国”，他说：“这是我目前正在投入大量精力的一件事情。”
 
-原文链接：
-
-[Australia to refocus defence to Indo-pacific and cyber threats amid ongoing attacks, says Peter Dutton | Sky News Australia](https://www.skynews.com.au/australia-news/politics/australia-to-refocus-defence-to-indopacific-and-cyber-threats-amid-ongoing-attacks-says-peter-dutton/news-story/73048a0768d304b1093ce2251ee91bf8)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena  [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13150256/2.001.jpeg)
++1

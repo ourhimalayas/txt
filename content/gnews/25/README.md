@@ -1,28 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国东盟举行特别外长会——主谈疫情、南海、湄湄公河、缅甸
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1395834/)
+## 【周说｜文贵】2021年7月11日至13日
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1395955/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053437/Untitled-design-11-1140x450-750x450-1.png)图片来源：网络截图
-美国和东盟7月14日举行了拜登政府执政以来的首个最高级别会晤——东盟-美国外长特别会议，因为Covid-19（CCP病毒）疫情，会议以视频会晤的方式举行。
+作者：香草山教育部 月野兔
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10111333/Screen-Shot-2021-07-10-at-11.13.07-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14052720/0-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053211/image0-53.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14055940/1-118.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14054730/2-94.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053159/3-41.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053037/4-21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053049/5-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053020/6-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053027/7-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053015/8-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053027/9-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053038/10-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053059/11-9.jpg)
+校对/发稿：飞虹
 
-美国国务卿布林肯会议期间与东盟国家外长和东盟秘书长进行了会谈。布林肯重申了美国对东盟中心地位的承诺，并强调了东盟在印太地区架构中的重要作用。布林肯与与会的东盟10国外长承诺将继续建设东盟-美国以人权和基本自由、经济繁荣和牢固的民间联系为基础的战略伙伴关系。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
 
-同时布林肯在会上强调，美国承诺与东盟在内的国际伙伴将合作抗击 COVID-19（CCP病毒）疫情，并特别强调“美国拒绝中国在南海提出的非法海洋主权主张，并重申美国与东南亚各南海主权申索国站在一起，共同面对中国的胁迫；布林肯还承诺，美国将继续支持在湄公河-美国合作框架下，建立一个自由开放的湄公河地区。
+**更多资讯，更多关注**
 
-此外，布林肯对缅甸的军事政变深表关切，并回顾了《东盟宪章》中有关法治、善治、民主和人权的原则。他呼吁东盟采取联合行动，敦促结束暴力，恢复缅甸的民主过渡，并释放所有被“不公正”拘押的人。东盟的关于缅甸问题的五点共识是向前迈出的重要一步，敦促东盟立即采取行动，让缅甸政权对共识负责，并任命一名特使处理涉缅事务。
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-值得注意的是，布林肯在讲话中，对缅甸的称呼不是现在常用的Myanmar，而是Burma，也就是缅甸国名的旧称。
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-另据菲律宾总理府的新闻发布，菲律宾外交部长洛钦在东盟-美国外长特别会议上发言时，欢迎美国政府对2016年7月仲裁裁决的公开支持，及其对美菲《共同防御条约》的承诺，“它是具有约束力的国际法，是《联合国海洋法公约》关于南海海洋权益的最权威的应用。因此，它有助于东盟基于规则的秩序，使所有”使用南海这条重要动脉的国家受益“。其余的都是虚张声势”。
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-分析认为，东盟自奥巴马政府2008年上台后，其国务卿希拉里为代表的执政团队在重返亚洲计划中“真嚷嚷，假行动”的放任态度，导致中共国深度介入并把控了东盟区域各国；但从前任川普政府到现任拜登政府，美国显然意识到了不能任由中共势力进一步扩张，加之近期中共在缅甸和南海的搅局，更坚定了美国拿回东盟主导权的决心。疫情、南海、缅甸和湄公河将会成为美国在中共家门口以其人之道还治其人之身遏制中共势力的四个死穴。
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-消息来源：美国国务院网站 菲律宾总统府 网络公开消息
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-（本文系作者个人观点）
+
 
 0
