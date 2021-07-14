@@ -1,30 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 230名民主派议员被迫退出香港地方议会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1394789/)
+## 法国总统有没有权利强制推行接种疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1395058/)
 
-2021年7月13日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13170111/1462045-4.jpg)
-香港 — 由于日益增长的政治压力威胁到香港民主运动的生存，至少有230名香港区议会议员可能因不符合宣誓资格而计划辞去职务。
+**编译：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13201411/712-2.jpg)
+一名来自法国疗养院的工作人员桑德拉·巴罗纳 (Sandra Barona) 强烈反对接受 COVID-19 疫苗注射，她说在法国总统埃马纽埃尔·马克龙 (Emmanuel Macron) 下令所有卫生工作者接种疫苗后，她可能会辞去工作。
 
-根据一项新法律，香港议员现在必须宣誓效忠港共政府。当地媒体本月报道称，即使这些议员过去因违规宣誓，也将有大约 230 人被取消议员资格，并可能被要求返还 100 万港元（129,000 美元）的薪津。
+巴罗纳的言论代表了一大部分民众的心声，因为他们都觉得，针对这次病毒的疫苗开发周期太短，因此表示怀疑，尽管世界各地的监管机构一再表示速度不会影响安全。 但她依然有保持质疑的权利，而且这个质疑也十分合理。
 
-违反誓言的议员可能面临被起诉，导致许多区议员被迫在宣誓前下台。据当地《明报》报道，仅从周三到周一，就有 192 人表示将辞职。
+对于马克龙用是否接种疫苗来区分人群的行文，一些马克龙的反对者称，这可能会给总统的计划带来法律问题。
 
-总体而言，预计超过一半的民主派议会成员将离开他们的席位。
+马克龙认为疫苗是过上正常生活的唯一途径，他说接种是个人责任问题，也是集体自由问题，因为Delta变体病毒激化了病毒的快速传播。
 
-大逃离之际，人们越来越担心香港民主运动的未来。
+面对具有高度传染性的新变种和疫苗接种率的急剧下降，他说有必要强迫卫生工作者接种 COVID-19疫苗并带动民众跟随。
 
-**【[新闻来源](https://asia.nikkei.com/Politics/230-elected-pro-democrats-quit-Hong-Kong-local-councils)】**
+计划从9月中旬开始，卫生工作者将接受疫苗接种检查，未接种 COVID-19 的人员将不被允许工作，并将暂停支付工资。
 
-* * *
+这个疫苗接种令标志着马克龙态度的大转弯，他在12月曾发推文说：“我之前说过，我要重复一遍：疫苗接种不是强制性的。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+但在一个多年来反疫苗情绪高涨的国家里，官方数据显示卫生工作者的接种率明显低于预期，根据法国公共卫生部门的数据，只有45%的疗养院和长期护理机构的工作人员接种了两剂疫苗。
 
+当然拒绝接种疫苗的原因有很多，有一些是因为对潜在健康原因的担忧，但还有一些是对于强迫这种行为的抵制。但马克龙的态度翻转实际与很多国家的首脑一再强推疫苗有异曲同工之妙。可能这种态度背后的动机才是疫苗真相的关键。
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+（本文只代表作者观点，与Gnews平台无关。）
+
+**新闻来源**：[‘We have rights’: the French health workers furious about COVID vaccine order | Reuters](https://www.reuters.com/world/europe/we-have-rights-french-health-workers-furious-about-covid-vaccine-order-2021-07-13/)
+
+***校对发布：文顾***
+
 0

@@ -1,36 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新民调显示大多数美国人相信COVID‑19从武汉实验室泄露
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1394097/)
+## 美国警告中共：停止在南海的挑衅行为
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1394526/)
 
-**据《零对冲》作者：TYLER DURDEN，2021年7月11日发布：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13114126/1371.png)
+据《globalnation》作者Christia Marie Ramos和记者CMRamosINQ，2021 年7月12日报道：
 
-一项新的Politico-Harvard研究发现，大多数美国人现在认为COVID‑19是从武汉实验室泄露的，再次强调了授权“事实核查员”、媒体机构和硅谷审查信息的危险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13094255/1368.png)
-“相比之下，在2020年3月，只有29%的美国人接受实验室泄漏理论。”
-民调发现，52%的美国人相信实验室泄密假说，这曾被嘲笑为边缘的“阴谋论”，其中包括59%的共和党人和52%的民主党人。
+美国国务卿安东尼·布林肯呼吁中国停止在南中国海的挑衅行为，因为菲律宾正值其在海牙仲裁法院胜诉五周年之际，反对北京在南海区域的广泛主张。
 
-两党对这一理论的支持是非常不寻常的，民调设计者鲍勃-布兰登评论说：“通常情况下，我们的民调发现共和党人和民主党人之间有很大的分歧，所以这是很独特的。”
-《每日邮报》报道，“Politico-Harvard的研究表明，曾经被自由派媒体作为极右翼假新闻报道的内容现在被两党广泛接受。”
+“以规则为基础的海上秩序受到的威胁最大的莫过于南海。中共国（PRC）继续胁迫和恐吓东南亚沿海国家，威胁到这条关键的全球通道的航行自由，”布林肯周一在一份声明中说。“我们呼吁中华人民共和国（中共国）遵守国际法规定的义务，停止挑衅行为，并采取措施向国际社会保证，所有国家，无论大小都应致力于尊重各国权利的基于规则的海洋秩序。“ 他补充道。”
 
-“相比之下，在2020年3月，只有29%的美国人接受实验室泄漏理论。”
-事实上，在许多个月里，媒体和社交媒体网络将整个说法定性为危险的阴谋论，那些宣传它的人被审查和贬低。
+布林肯还重申了华盛顿在与马尼拉的共同防御条约下的防御义务。
+他说：“ 美国重申其 2020 年 7 月 13 日关于南中国海海洋主张的政策。”
 
-2020年6月，副总统卡马拉-哈里斯甚至声称唐纳德-川普对该理论的鼓吹代表了“针对亚裔美国人和亚裔移民的种族主义和排外言论直接使他们的生命受到威胁”。
+“ 我们还重申，在南海对菲律宾武装部队、公共船只或飞机进行武装袭击将援引美国根据 1951 年《美菲共同防御条约》第四条做出的共同防御承诺，”他补充说。这是为了纪念联合国支持的海牙常设仲裁法院2016 年 7 月的裁决，该裁决作出有利于菲律宾的裁决，并使中共国在南海（包括西菲律宾海）的广泛主张无效。
 
-正如我们之前强调的那样，生态健康联盟（一个与武汉实验室功能研究收益有广泛联系的组织）主席彼得-达扎克博士感谢安东尼-福奇博士在大流行病的早期就否定了实验室泄漏理论。
+然而，北京拒绝承认上述裁决。“ 仲裁庭表示，中共国对仲裁庭确定为菲律宾专属经济区和大陆架一部分的区域没有合法主张，”布林肯说。布林肯表示，根据《海洋法公约》规定的条约义务，中国和菲律宾都“有法律义务遵守”海牙法院的裁决。与此同时，华盛顿的最高外交官强调，“ 海洋自由仍然对全球和平与繁荣至关重要。”
 
-达扎克还被Facebook委以重任，负责“事实核查”（审查）与该假设有关的信息，而谷歌通过YouTube也审查了有关该理论的信息，它也资助了达斯扎克的病毒研究。
-武汉实验室泄密事件再次强调了“事实核查者”、媒体机构和硅谷巨头不应该被赋予支配现实的垄断权力。
+原文链接：
+[https://globalnation.inquirer.net/197633/us-to-china-stop-provocative-behavior-in-south-china-sea?utm\_medium=Social&utm\_source=Twitter#Echobox=1626054673-1](https://globalnation.inquirer.net/197633/us-to-china-stop-provocative-behavior-in-south-china-sea?utm_medium=Social&amp;utm_source=Twitter#Echobox=1626054673-1)
 
-通过将与实验室泄密理论有关的内容列入黑名单，直到几个月前，这些实体很可能是促进现代史上最大的掩盖事件之一的同谋。
-
-原文连接：[https://www.zerohedge.com/covid-19/majority-americans-now-believe-covid-was-leaked-wuhan-lab-new-poll-finds](https://www.zerohedge.com/covid-19/majority-americans-now-believe-covid-was-leaked-wuhan-lab-new-poll-finds)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 轰炸机
+翻译：洛杉矶盘古农场–格格巫
+校对：洛杉矶盘古农场– Mike Li
+编辑：洛杉矶盘古农场– 轰炸机
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

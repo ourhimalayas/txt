@@ -1,24 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国多地紧急通知！未接种新冠疫苗人员将影响出行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1393848/)
+## 浙江通知不打疫苗限制出行
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1394024/)
 
-2021年7月13日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13070650/df85f048-e11a-4c3a-9823-59e20fa485a9-4.jpg)
-日前江西崇仁县、江西定南县、江西安远县、浙江丽水、宁波宁海相继发布告知书，没接种新冠疫苗将影响出行。
+撰稿：东京樱花团／欢天喜地
 
-**多地要求在查验健康码的同时检查新冠病毒疫苗接种记录，即****“****二码联查****”****。并要求**党政机关、企事业单位干部职工和党员**带头接种。**
+校对：东京樱花团／喜马拉雅的微尘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13080431/500988357-scaled.jpg)
+据宁波宁海县卫生和计划生育局官方微信公众号消息，该县疫情防控办公室7月11日发布通知：25日起，原则上不允许未接种新冠疫苗人员（禁忌症者除外)进入医疗机构住院部、养老院、学校（幼儿园、托儿所、校外培训机构）、图书馆、博物馆、监所等重点场所。 同时，入境人员居家健康观察和日常健康监测期间共同生活居住人员均须接种疫苗，否则居家审核不予通过。农村集市摊主未接种疫苗不允许出摊。商场超市、宾馆酒店、剧院影院等人员集聚场所可参照以上管控措施。
 
-**【[新闻来源](https://new.qq.com/rain/a/20210712A0BN3P00)】**
+笔者认为通过强硬的手段是共产党已经穷途末路，无计可施。顺我者昌，逆我者亡的这种土匪气体现得淋漓尽致。不顾老百姓的死活，逼迫着人去打疫苗，可怜的是又有多少无知百姓会因此上当，可恨的是又有多少小粉红为共匪宣传。笔者相信在保护好自己的安全的情况下努力传播CCP病毒真相让更多人醒过来，这种逼迫反而会加速共匪灭亡。
 
-* * *
+信息来源链接：[https://m.toutiao.com/is/esaqP3Q/](https://m.toutiao.com/is/esaqP3Q/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+（文章仅代表作者本人意见）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-+2
+发布：东京樱花团/喜马拉雅的微尘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11064307/image0-1-20.jpg)
++6

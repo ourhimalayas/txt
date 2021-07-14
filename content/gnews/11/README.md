@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】出口管制应该包括美国人的基因序列
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1394227/)
+## 2021年07月13日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1394908/)
 
-6/29/2021 布雷特·科默博士：出口管制也应该包括美国人的基因序列。中共国的数据库绝对保留有我们的基因及基因易感性信息。一旦敌对分子掌握了不同种族之间的基因差异，他们可以运用这些知识，并针对具有特定易感性的种族制造基因武器。
+撰稿：GTV澳喜影像视频组、新闻组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13184139/image0-51-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13184610/image1-8-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

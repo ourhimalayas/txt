@@ -1,31 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克里斯·芬顿就好莱坞与中（共）国之间的关系发出警告
-` 澳喜农场欧洲部` [轉載自GNews](https://gnews.org/zh-hans/1394749/)
+## 2021年07月13日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1394908/)
 
-**翻译字幕: 舒凡**
+撰稿：GTV澳喜影像视频组、新闻组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13184139/image0-51-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13184610/image1-8-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**校对编辑: 莫黎**
-
-
-**Video: The Nation Speaks**, **Cover Image: Hollywood Insider **
-
-
-好莱坞电影业高管、作家- 克里斯·芬顿针对好莱坞为了利益一味的逢迎中（共）国的行为发出警告。他强调人们应该把美国的价值观放在贪婪的资本主义之前，否则美国就会走向衰败。
-
-
-
-
-
-**新闻来源： **
-
-**The Nations Speaks with Cindy Drukier**
-
-
-
-* * *
-
-**发布: 澳喜农场欧洲部**
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0
