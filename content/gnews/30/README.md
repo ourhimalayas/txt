@@ -1,30 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 230名民主派议员被迫退出香港地方议会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1394789/)
+## 王定刚给闫丽梦送饺子的时候他老婆知道吗？
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1395478/)
 
-2021年7月13日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/13170111/1462045-4.jpg)
-香港 — 由于日益增长的政治压力威胁到香港民主运动的生存，至少有230名香港区议会议员可能因不符合宣誓资格而计划辞去职务。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14015803/047c9c8ace534cf46ffd03f11e3f4076_500x0_%E5%89%AF%E6%9C%AC.png)
+据雅典娜农场@Anson[发表于 00:52 AM · Jul 14, 2021](https://app.gettr.com/post/p3y3mc)的盖特——
 
-根据一项新法律，香港议员现在必须宣誓效忠港共政府。当地媒体本月报道称，即使这些议员过去因违规宣誓，也将有大约 230 人被取消议员资格，并可能被要求返还 100 万港元（129,000 美元）的薪津。
+蛇与燕的故事**🤢🤢🤢**
 
-违反誓言的议员可能面临被起诉，导致许多区议员被迫在宣誓前下台。据当地《明报》报道，仅从周三到周一，就有 192 人表示将辞职。
+[https://app.gettr.com/post/p3y3mc](https://app.gettr.com/post/p3y3mc)
 
-总体而言，预计超过一半的民主派议会成员将离开他们的席位。
+那么路德送饺子是个什么梗呢？闫丽梦吃饺子是个什么梗呢？据[第一是香港将有生死行动，与中共5.20两会相对应，中共将对香港抗争者有更大的打击，中共威胁要打烂台湾。第二是美国等西方国](https://gtv.org/video/id=5ec09a52b8919f61b27e7053)
 
-大逃离之际，人们越来越担心香港民主运动的未来。
+郭先生在视频中提到：
 
-**【[新闻来源](https://asia.nikkei.com/Politics/230-elected-pro-democrats-quit-Hong-Kong-local-councils)】**
+［路德没事儿了就给人家女性送饺子，老送饺子，打电话，偷偷地——别让他老婆看见了：“买点儿饺子，我给你送饺子去了。”但愿不是“火鸡龚”那饺子，那饺子不能吃，绝对不能吃，吃了绝对跑肚，一辈子都不想再吃了。我们路德先生永远是贼心不死，但愿他老婆不会看到，他老婆特别好。］
 
-* * *
+看完这一段，我差点笑晕过去，但是笑完了，我就真心想批评郭先生了，郭先生这知蒋干、用蒋干，把我们绕了一年的弯弯，让王定刚和闫丽梦这两个炮友表演了一年，批评完郭先生我就想抽自己两个大耳刮子，郭先生早就告诉了我的东西，我愣是今天才看出来。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+抽完我自己两个大耳刮子后，我就真心同情起王定刚和闫丽梦了，本来王定刚送饺子是玩个前戏，可是被郭先生硬生生公告天下了，被公告天下了，这前戏还得继续，这床戏还得继续，只是苦了王定刚的妻子小蔡同志了，一边为老公炮友做着饺子，一边还要让老公与他人尽床第之欢，唉，节操碎了一地！
 
+撰稿：喜马拉雅的肉夹馍；
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
++7

@@ -1,51 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国政府警告美国企业留在香港的风险
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1394981/)
+## 鲁哈尼宣称伊朗已具备90%浓缩铀生产能力
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1395830/)
 
-作者：纽约香草山农场 四季
+#### 撰稿：yyshere
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053450/%E9%B2%81%E5%93%88%E5%B0%BC.jpg)图片来源：网络截图
+根据伊朗媒体的报道，即将离任的伊朗总统鲁哈尼7月14日在内阁会议上表示，伊朗的铀浓缩能力已经达到武器级别，“（情况已表明）我们的原子能部门，以现有这样的能力和力量，可以生产20%、60%的浓缩铀，或者，如果我们有一天需要用于反应堆，甚至是90%的浓缩铀，我们可以做到这一点”。
 
+鲁哈尼还表示，尽管有来自外国的压力，但根据2015年达成的核协议，伊朗设法保持了核计划。
 
+而根据此前的公开报道，伊朗在今年4月14日已经开始把铀的浓缩比例提高到60%，并通知了国际原子能机构。当时鲁哈尼表示，伊朗“提高了铀浓缩率，并安装了新类型的离心机”，是对以色列针对“纳坦兹核设施的‘恐怖主义’袭击的回应。鲁哈尼还在召开内阁会议开始时指出，对纳坦兹核设施的袭击是在维也纳进行的核谈判中削弱伊朗立场的阴谋。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+60%的浓缩铀，就能成为伊朗生产舰船核推进发动机的特殊燃料。
 
+分析人士认为，以往伊朗极少会很少谈及武器级的铀浓缩活动，鲁哈尼的这次谈话应该是在向国际社会释放某种压力。
 
+消息来源：伊朗伊斯兰共和国广播电视台 网络公开消息
 
-据零对冲周二报道，美国政府本周警告美国企业，因为北京（中共）正在巩固其对香港的权力，企业在香港经营的风险将越来越大。很快，这一警告可能会变成命令企业回国的诏书。
-
-![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/hk_0.jpg?itok=GE6iSDVp)图片来源：零对冲
-
-政府还将更新川普政府去年发布的关于新疆的警告。该警告中强调美国公司即将面临的法律风险，除非他们确保其供应链不牵涉到新疆的强迫劳动。该决定的部分原因是政府认为企业对这一问题不够重视。假设政府能贯彻执行，这将是拜登政府首次发布与香港有关的咨询。
-
-一位不愿意透露姓名的官员说，“咨询的重点是强调如果你不退出这些供应链，你就有违反美国法律的风险。我们想向商业界明确地表示，他们需要意识到他们与涉及侵犯人权的实体合作的声誉、经济和法律风险”。
-
-香港有一个相当大的外籍商业社区，其中有成千上万的美国银行家和其他金融服务雇员。香港美国商会表示，它有超过120万名会员，2020年有282家美国公司将其地区总部设在香港。
-
-美国公司已经在担心，根据新的国家安全法，中共国政府可能会访问他们存储在服务器上的任何数据。
-
-参考阅读：
-
-[White House Warns US Firms About Risks Of Remaining In Hong Kong](https://www.zerohedge.com/markets/white-house-warns-us-firms-about-risks-remaining-hong-kong)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+（本文系作者个人观点）
 
 0

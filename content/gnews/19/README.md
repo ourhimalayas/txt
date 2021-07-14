@@ -1,19 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国纪录片《习近平的世界》节选：中共南海岛礁军事化
-` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1394823/)
+## 【危在旦夕】陆军少将乔·阿巴科：社会主义长征战略渗透重要机构颠覆美国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1395790/)
 
-#### 听写：Ikonic 翻译：Miao
-校对：Ikonic  字幕：Vékap
+【危在旦夕】陆军少将乔·阿巴科介绍退役将领公开信的背景。社会主义和马克思主义意识形态的危险──社会主义长征战略通过渗透政府、教育、政治、媒体、娱乐和司法机构及主要企业颠覆美国。2021年7月3日，“枕头大王”麦克·林德尔在“The American Report”网站推出访谈 “Absolute Peril”（https://theamericanreport.org/2021/07/03/absolute-peril/），麦金纳尼、弗林、阿巴科、塞林四位美国老将连线谈马克思主义以及中共颠覆美国。
 
-* * *
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-- [Click to watch the exciting video on GTV UK English](https://gtv.org/user/602f9f5c047c4c3086d4f215#video)
-- [Click here to read more articles in G-News](https://gnews.org/author/himalaya_hawk/)
-- [Click to watch the exciting video on G-TV](https://gtv.org/user/5ee680a45bd6f123dd104807)
-
-
-Edited by：【Himalaya London Club UK】
-[!\[\]()!\[\](https://spark.adobe.com/page/wXdWelgzCHkm5/images/6fb55def-9148-454d-97d0-7ed7ac879ac3.jpg?asset_id=fb66511d-252b-45b3-a98a-ddd6246086ec&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/wXdWelgzCHkm5/images/6fb55def-9148-454d-97d0-7ed7ac879ac3.jpg?asset_id=fb66511d-252b-45b3-a98a-ddd6246086ec&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 0

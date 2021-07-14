@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】阿撤侨航班22人确诊 被送往武汉
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1388788/)
+## 【樱花宅急便】盖特盖过推特 大战只是刚刚开始
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1391460/)
 
-中共新浪网报道：“湖北省卫健委今晨通报，7月6日0时至24时，湖北省新增新冠肺炎确诊病例25例、31例无症状感染者，均为境外输入。目前确诊病例均已转至定点医疗机构救治，无症状感染者均在集中隔离医学观察。”
+#### 作者：东京樱花团｜捆绑CCP一千年
+![](https://lh3.googleusercontent.com/lhbkc81J14sllgxasXGWJ392RQoI8Sj-5IP6LiegkRVnWy1uJwyDf-oVjMI0EuTT7rQTk56Xol6y4yP2EurpS4HJ3pUH8MsEiTBWynJla9JTJ1Ya38aMSdI_yvZsguztDYWR6AFx)
+全新社交媒体平台GETTR（盖特）CEO杰森.米勒（Jason Miller）说：“[我们不会放弃这场斗争，也不会放弃捍卫你们言论自由的权利，永远不会！”](https://www.gettr.com/post/p3lqte) 并贴出GETTR官文称：《GETTR 就 Twitter 阻止推文输入发表声明》称：“Twitter 禁止用户将现有的推文导入GETTR，这是一个新的自由言论平台。”根据《通信体面法》第 230 条，Twitter必须做出决定：它是否拥有所有人的推文，并因此对发布者原创文章内容负责。GETTR 珍惜为言论自由权利而战的机会。
 
-中国两个从阿富汗撤侨专机全部被安排在武汉降落。其中，7月6日的航班上31名确诊感染者。
+该盖文至今已有2100人转帖，5100人点赞。其中跟帖评论者“川普赢了2020年”称：“我们对推特提起集体诉讼吧！GETTR启动，我们跟随！是时候告他们了！”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10204354/Picture1-28.png)
+也有提出批评的声音，比如网友“斯库巴杜@scubbadu”回复给@杰森·米勒说：为什么没有拇指向下…我们应该没有权利不喜欢，只有选择…喜欢就转贴回复…？
 
-下面这则是中共驻阿富汗使馆的新闻，“春苗行动已经于7月5日实施完成全部在阿德中国公民的自愿接种疫苗”。
+“Ghozt”网友评论说：这是 Twitter方面绝对不能接受的行为。他们走得太远了，他们需要尊重“言论自由”，或者离开我们伟大的美国。我们决不会落入马克思主义的社会主义理想。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10204527/Picture2-3.png)
+或许一些不太理解的网友还不明白，此时此刻，新兴的社交媒体盖特（GETTR）正在参与对CCP的战斗，一些点差的功能一旦放开，就会成为CCP攻击的破口，而盖特已经在遭遇持续恶言攻击诋毁杰森米勒。正如“JediQ”这位网友评论所言：与敌方战斗人员合谋操纵选举，允许网络攻击摧毁我们的经济都是为了全球大重启（阴谋）、为了共产主义？是否被视为叛国罪？
 
-从这几篇新闻连起来看，笔者有一个疑问：撤侨回来的都是中国公民，他们全部都接种了疫苗，航班为何还有确诊案例？
-
-也有网友提出了疑问：全部隔离在武汉，是因为武汉医疗水平高还是因为武汉人体内的自然抗体最高？
-
-参考链接：
-
-[https://news.sina.com.cn/c/2021-07-07/doc-ikqcfnca5512081.shtm](https://news.sina.com.cn/c/2021-07-07/doc-ikqcfnca5512081.shtm)
-
-翻译整理：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-+1
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 /*tdownc2p
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11063407/image0-1-19.jpg)
++3
