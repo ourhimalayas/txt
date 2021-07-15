@@ -12,38 +12,38 @@
 
 ---
 
-### [蓬佩奥：终结新疆种族灭绝 勿因气候议题让步中共](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [脸书为了应对盖特竞争推出10亿美元奖励计划](/content/gnews/1/README.md)
+ ` 军迷wilson`
 
-### [【文雍漫谈】我们都低估了人性中的恶](/content/gnews/2/README.md)
+### [带血的疫苗经济——（科兴）疫苗背后的真相](/content/gnews/2/README.md)
+ ` 新西兰NZ-财经G乐部`
+
+### [闫丽梦和路德破釜沉舟——中共真相与欺骗交织的超限战实际案例](/content/gnews/3/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [【文雍漫谈】我们都低估了人性中的恶](/content/gnews/4/README.md)
  ` 文雍`
 
-### [2021-07-14 文贵先生直播：蛇妖闫，路德骗亡腚肛自爆](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [用闫丽梦的矛，攻闫丽梦的盾，看看她是天使还是魔鬼？](/content/gnews/4/README.md)
+### [用闫丽梦的矛，攻闫丽梦的盾，看看她是天使还是魔鬼？](/content/gnews/5/README.md)
  ` 闪电侠`
 
-### [美国对中共国在新疆的镇压发起新一轮抨击](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [2021年7月15日文贵先生直播同步精要文字版](/content/gnews/6/README.md)
+ ` 喜联盟七哥直播组`
 
-### [2021年7月14日 文贵先生盖特 5](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [《文贵说》| 图片连载（九十五）](/content/gnews/7/README.md)
+ ` 文贵说｜Words From Miles`
 
-### [【魔鬼集团现行记】路德与令完成搅和到一起](/content/gnews/7/README.md)
+### [中共71庆典显示他们正在将中国变成一个大号的朝鲜](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【文贵直播摘录】7月14日：“亡腚缸”和“蛇妖闫”的背叛是给爆料革命的一份礼物，有助于扫除爆料革命队伍中的垃圾](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
+### [【五月花谈】以毒灭共之软灭共](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
 
-### [7/15/2021日本银河快讯：受通胀冲击，日本企业逐渐转嫁成本；人权组织敦促日本停止缅甸项目](/content/gnews/9/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [奥克兰抗议者抵制强制接种 COVID-19 疫苗](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [COVID-19感染了伊丽莎白女王号上约百名已接种疫苗船员](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【热点播报】美国与疫苗相关的死亡人数迅速增加](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
+### [【五月花谈】以毒灭共之硬灭共](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
 
 ### [【第五大道】“绿帽党”自爆案的启示](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -66,117 +66,117 @@
 ### [【世事解评】中共政党下的数字货币状况](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【粤语配音】蓬佩奥：美国要让中共和习总书记付出代价，让中国人民选出自己的领导人](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【魔鬼集团现行记】王定刚自称独立，但实际从爆料革命得到大量支持](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【魔鬼集团现行记】忘恩负义的闫丽梦砸郭、砸爆料革命](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【魔鬼集团现行记】路德与令完成搅和到一起](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭先生病后直播：金云大师早看出闫是蛇精，亡腚肛是癞蛤蟆](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【魔鬼集团现行记】贪婪的路德从不满足对他的捐款](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国召开民主国家AI峰会， 集结力量遏制中国数字威权](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [海牙仲裁5周年：中美角力南中国海，布林肯频发声](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【NewsExpress】美国参议院通过法案禁止所有来自中共国新疆的产品](/content/gnews/27/README.md)
- ` 闪电侠`
-
-### [【NewsExpress】7月底美国在阿富汗启动盟友避难所行动](/content/gnews/28/README.md)
- ` 闪电侠`
-
-### [美国国务院发布《2021年种族灭绝报告》列举了包括中共国在内几个国家](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【NewsExpress】巴基斯坦汽车爆炸 9名中国人不幸遇难身亡](/content/gnews/30/README.md)
- ` 闪电侠`
-
-### [尽管研究表明抗体不能预防delta变种病毒，福奇仍为疫苗辩护](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国不接种疫苗者：限制入学、停发工资、不许进入公共场所](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【热点播报】国际能源署对新的石油价格战发出警告](/content/gnews/33/README.md)
- ` 纽约香草山MOS03`
-
-### [日本警告台海局势，称对本国安全构成威胁](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本最新国防白皮书：以更强烈危机感密切注视台海局势](/content/gnews/35/README.md)
- ` 日本东京方舟农场`
-
-### [【粤语配音】中共如何控制中国人民的生活](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [悉尼·鲍威尔：疫苗尚属实验性的，有各种不良副作用](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共与西班牙工人社会党(PSOE)和西班牙共产党(PCE)保持友好关系 —中国共产党在西班牙政府中的影响力的一些事实](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [7/14/2021 财经快讯：美国加强对新疆地区商业风险的警告；美国CPI创 13 年来最大涨幅](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
-
-### [7/13/2021 财经快讯：拜登警告美国公司在香港经营的风险；英格兰银行取消对银行股息的限制](/content/gnews/40/README.md)
- ` 秘密翻译组金融团队`
-
-### [复旦大学教师杀人案折射出中共如何收割千人计划精英](/content/gnews/41/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [7/12/2021财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；中共谴责美国扩大经济黑名单](/content/gnews/42/README.md)
- ` 秘密翻译组金融团队`
-
-### [英国反谍高官：要以警惕恐怖主义态度对待中俄间谍威胁](/content/gnews/43/README.md)
- ` 日本东京方舟农场`
-
-### [美参议院通过《防止强迫维吾尔人劳动法》禁止进口新疆产品](/content/gnews/44/README.md)
- ` 日本东京方舟农场`
-
-### [7/15/2021日本银河快讯：受通胀冲击，日本企业逐渐转嫁成本；人权组织敦促日本停止缅甸项目](/content/gnews/45/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [防止种族灭绝和暴行的报告让美国成为焦点](/content/gnews/46/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花国际要闻汇编🌸7月14号](/content/gnews/47/README.md)
- ` 日本东京樱花团`
-
-### [美国两任国务卿认定，中共问题是世界乱源](/content/gnews/48/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共国是古巴抗议的幕后黑手吗？如何与北京相关联](/content/gnews/49/README.md)
+### [中国专家: 习近平正在为他的国家准备战争](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【币圈】-数字货币动态- 2021.07.14](/content/gnews/50/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [我们已经看到古巴、香港和中共国发生的事情，我们必须不惜一切代价捍卫我们的第二修正案](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共被指筹划打造全球军事补给网络引发美国担忧](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
+### [美国需要决定他们是为了古巴人民还是古巴政府](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 南海军事篇](/content/gnews/52/README.md)
+### [纽约冠状病毒医生：相信像福奇这样的“反社会者”是“一个非常愚蠢的选择”](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【澳洲热点】未雨绸缪——澳洲投资远程导弹和网络安全](/content/gnews/53/README.md)
+### [【澳洲热点】短视频：中共间谍船抵近澳洲领海监测多国海上军演](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [吃禁果的恶果——赶出伊甸园](/content/gnews/54/README.md)
- ` 滴水穿石`
+### [前美国总统唐纳德川普在保守党政治行动会议上讲话](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [白宫酝酿推出数字贸易协议以在印太抗衡中共国](/content/gnews/55/README.md)
+### [【NewsExpress】中共国指责美国对新疆措施威胁全球贸易](/content/gnews/25/README.md)
+ ` 索尼克`
+
+### [【NewsExpress】报告称拜登政府正探索与中共国建立紧急“红色电话”式热线的想法](/content/gnews/26/README.md)
+ ` 索尼克`
+
+### [奥克兰抗议者抵制强制接种 COVID-19 疫苗](/content/gnews/27/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【NewsExpress】美申请失业金人数降至 36万人，创下大流行来新低](/content/gnews/28/README.md)
+ ` 索尼克`
+
+### [【热点播报】7月15日国际新闻速递](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
+
+### [【NewsExpress】印度外长称：中印两国边境持续紧张的局势不利于两国利益](/content/gnews/30/README.md)
+ ` 索尼克`
+
+### [【五月花评】亡腚肛砸郭的原因及目的](/content/gnews/31/README.md)
+ ` 波士顿五月花农场`
+
+### [【五月花谈】以毒灭共之软灭共](/content/gnews/32/README.md)
+ ` 波士顿五月花农场`
+
+### [【香港快讯】 7月15日 梁凌杰逝世 25 个月 太古广场献花位置遭橙带围封 大批警员把守](/content/gnews/33/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [“孙大午案”罪名很“郭文贵”，且评论区出现一边倒的现象](/content/gnews/34/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【快速新闻】拜登政府或将审查制度扩展到私人言论，你将不能说或读到你想要的信息](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共71庆典显示他们正在将中国变成一个大号的朝鲜](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [班农先生：大觉醒正在这个国家进行，并将导致大重组](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [BBC所谓“极右美国华裔公民”文章是仇恨异族的信息战](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [7/15/2021财经快讯：抗议者阻碍塔斯马尼亚中资矿山运作；方舟基金减少对中共国股票的敞口](/content/gnews/39/README.md)
+ ` 秘密翻译组金融团队`
+
+### [7/14/2021 财经快讯：美国加强对新疆地区商业风险的警告；美国CPI创 13 年来最大涨幅](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [7/13/2021 财经快讯：拜登警告美国公司在香港经营的风险；英格兰银行取消对银行股息的限制](/content/gnews/41/README.md)
+ ` 秘密翻译组金融团队`
+
+### [复旦大学教师杀人案折射出中共如何收割千人计划精英](/content/gnews/42/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【三票专栏】误闯敌阵的日子](/content/gnews/43/README.md)
+ ` 三票先生`
+
+### [【币圈】-数字货币动态- 2021.07.15](/content/gnews/44/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [揭密亡腚肛与蛇妖闫团伙的低劣骗术](/content/gnews/45/README.md)
+ ` 日本东京樱花团`
+
+### [美《维吾尔强迫劳动预防法》法案提出脱钩中共](/content/gnews/46/README.md)
+ ` G-NEWS TAIWAN`
+
+### [“灭共”才会有一个互联互通的新欧洲](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [美重申川普南海政策](/content/gnews/48/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美日再次承诺将尽全力维护台海和平稳定](/content/gnews/49/README.md)
+ ` G-NEWS TAIWAN`
+
+### [英国反谍高官：要以警惕恐怖主义态度对待中俄间谍威胁](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [7/14/2021日本银河快讯：日本防卫白皮书关注美中对立和台湾局势；东京晴海奥运村13日低调开园](/content/gnews/56/README.md)
+### [美参议院通过《防止强迫维吾尔人劳动法》禁止进口新疆产品](/content/gnews/51/README.md)
+ ` 日本东京方舟农场`
+
+### [7/15/2021日本银河快讯：受通胀冲击，日本企业逐渐转嫁成本；人权组织敦促日本停止缅甸项目](/content/gnews/52/README.md)
  ` 日本银河系农场-阿尔法星球`
+
+### [防止种族灭绝和暴行的报告让美国成为焦点](/content/gnews/53/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花国际要闻汇编🌸7月14号](/content/gnews/54/README.md)
+ ` 日本东京樱花团`
+
+### [美国两任国务卿认定，中共问题是世界乱源](/content/gnews/55/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共国是古巴抗议的幕后黑手吗？如何与北京相关联](/content/gnews/56/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

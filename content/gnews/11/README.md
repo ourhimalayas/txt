@@ -1,81 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国与疫苗相关的死亡人数迅速增加
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1397152/)
+## 【五月花谈】以毒灭共之硬灭共
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1398317/)
 
-翻译：香草山商业组  文锤
+五月花写作组 | 作者：跟随战神 | 编辑：文合 | 封面、发布：吐纳
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15103433/%E6%9C%AA%E5%91%BD%E5%90%8D_%E5%89%AF%E6%9C%AC.jpg)
+自2017年1月，郭文贵先生拉开爆料革命的大幕以来，世界发生了翻天覆地的变化。中共从极致的顶峰快速滑落，飞速奔向死亡的深渊。正如文贵先生所言，中共被灭是必然，无非是早一点、晚一点，快一点、慢一点的区别而已。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+以毒灭共是文贵先生提出的灭共方式。截止今年5月，因CCP病毒被感染者已达1亿六千多万人，死亡400多万人，触目惊心！冰冷数字的背后是一条条鲜活的生命。
 
+目前，探究病毒真相正在紧锣密鼓地进行。CCP病毒就是中共制造、是生化武器这个真相已经逐渐浮出水面，并且正在被世界所认知。据文贵先生透露，美国的病毒白皮书已经出了几版，但是最终版还没有面世。众所周知，美国是一个法制国家，是一个严谨的国家，一切以法律和事实为依据。最终版之所以没有面世，可能是因为有些细节还需要进一步核实和完善。
 
+病毒白皮面世之日，美国人民和全世界人民都将知道病毒的真相。美国的主流媒体也不会再遮遮掩掩、犹抱琵琶。“冤有头债有主、中共魔头是毒主”。届时，所有受害者亲属的愤怒都将达到高峰，声讨和干灭中共的呼声会一浪高过一浪。他们逝去的亲人，他们遭受的痛苦，他们被禁锢的苦难，他们经济的损失，他们精神上的折磨等等，所有愤怒的宣泄口只有一个——中共。美国是以民意为导向的国家，强大的民意是美国政府决策和施政的根据。拜登政府就是再有包庇中共之心也不敢有庇护中共之实。美国是CCP病毒最大的受害者，超过911几百倍的死亡人数是美国不可承受之重！既然不能承受那就让中共承受。
 
+CCP病毒面前只有两种人：受害者和施害者。世界上75亿人绝大多数都是受害者，而施害者只是中共的决策者和执行者，这些人在中共中也是极少数。那时，美国、欧洲、日本、澳洲、印度等都会是灭共的先锋和主力，乃至俄罗斯也会加入灭共的行列。因为没有哪个国家、哪个党派、哪个政客、哪个人还要以毁灭人类的魔鬼为伍。全人类面临的只有一个问题：是被中共毁灭还是消灭中共。灭共不但是正义的需要，更是生存的需要。除了灭共别无选择。
 
+病毒白皮面世之日，就是中共死亡倒计时开始之时，进入“硬灭共”的快车道。所谓硬灭共，就是以美国为首的世界正义力量，采取包括斩首行动在内的军事手段。硬灭共的其特点就是强硬、快速、准确，以迅雷不及掩耳之势解决中共。
 
-文章来源与阅读：
+病毒是中共精心泡制的生化武器，施放病毒无疑是发动战争。按照联合国«战争法»是向全世界开战。美国及北约在遭受打击后可立刻反击，这在美国和国际法上都会获得支持。CCP病毒给全人类造成的灾难和损失会有一个总清算。联合国成立国际审判法庭，要求中共病毒元凶到庭接受审判。同时会对中共提出巨额的经济赔偿，追究中共的责任。如果中共拒不到庭，继续负隅顽抗，甚至变本加厉，那么将会遭到美国和北约的军事打击，或斩首或将中共元凶捉拿归案。其结果是树倒猢狲散，中共解体。这种方式的优点是快速准确，犹如从10开始倒计时，雷霆万钧、干净利索，普通民众几乎不遭受牵连。这也是文贵先生一直希望的：中共灭亡时尽量不带走无辜的中国人。
 
-[US vaccine-related deaths increasing rapidly – Swiss Policy Research (swprs.org)](https://swprs.org/us-vaccine-deaths-increasing-rapidly/?amp&amp;__twitter_impression=true)
+病毒白皮书的面世大约在2021年底，或者说美国会选择在这个时间点公布白皮书。文贵先生曾经公开说过，2021年底将有大事发生，很可能指的是病毒白皮书一事。按照这个时间推算，解决掉中共的时间不会超过2个月，就是在2022年3月之前中共彻底消失，这和文贵先生说的没有明年二十大（中共的二十大在3月初召开）相契合。以毒灭共即将震撼登场，让我们拭目以待。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14231248/518-1-openvaers-july-9-2021-s.png)USA: Reported post-vaccination deaths, 1990 to 2021 ([Sauce](https://www.openvaers.com/covid-data/mortality))
+（本文观点仅代表作者个人）
 
-**每周美国 VAERS 更新展示，最近一周增加了令人震惊的 2,083 例接种疫苗后死亡的案例**
+* * *
 
-(VAERS: 美国疫苗不良事件报告系统，成立于1990年，是一个国家预警系统，用于检测美国许可疫苗中可能存在的安全问题。VAERS 由疾病控制和预防中心 (CDC) 和美国食品和药物管理局 (FDA) 共同管理。)
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-最新的[美国 VAERS 每周更新](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.openvaers.com/covid-data)增加了令人震惊的2,083例疫苗接种后死亡的人数——这是迄今为止最大的每周增加人数——这使报告的接种疫苗后死亡总数增加到9,048例。在一周内发生的这2,083例报告并非所有的死亡案例，因为还有大量报告积压。
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-到目前为止，总共有近1,000例疫苗接种后流产、3,000多例心脏病发作、约7,500例残疾、近20,000例严重过敏反应以及近1,000例25岁以下人群的心肌炎症[已被报告](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.openvaers.com/covid-data)给VAERS。
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-伦敦玛丽女王大学研究人员最近的一项分析发现，即使是老年人，向VAERS报告的死亡人数中也[约有85%](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.researchgate.net/publication/352837543_Analysis_of_COVID-19_vaccine_death_reports_from_the_Vaccine_Adverse_Events_Reporting_System_VAERS_Database_Interim_Results_and_Analysis)是明确、很可能或有可能是由疫苗引起的。此外，由于严重漏报，与疫苗相关的真实死亡人数可能明显更高，仅在美国就可能有10,000至50,000人死亡。
-
-事实上，尽管因中共病毒而死亡的人数较少，但美国所有 75岁以下年龄组的[额外全因死亡率](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.usmortality.com/excess)仍然无法解释，自疫苗接种运动开始以来，45岁以下年龄组的额外全因死亡率已达到创纪录水平，在75岁以上的人群中，潜在的疫苗相关死亡率可能会被冬季后期下降的额外死亡率所掩盖。
-
-最近有很多关于一篇[最终被撤回的论文](518-美国与疫苗相关的死亡人数迅速增加%20-%20Copy.docx)的讨论，该[论文](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://science.sciencemag.org/content/373/6551/147.full)声称中共病毒疫苗每挽救人，就会导致2人死亡。该论文受到批评的两个主要观点是：第一，该论文仅观察了三周时间就过低评估了疫苗的保护作用；第二，该论文通过统计所有报告的疫苗接种后死亡人数过高估计了真正与疫苗相关的死亡人数。
-
-对其批评的第一点是有理由的：应该基于接近 100% 的人口感染率来估计疫苗的保护作用，而不仅仅是三周观察的时间窗口。但第二点被误导了：由于报告不足，报告的死亡人数是疫苗相关死亡人数的下限，而不是上限。
-
-然而，还有一个更重要的问题需要考虑：基于年龄的风险分层的界定。在特定年龄以下，与中共病毒相关的死亡率非常低，以至于中共病毒疫苗必然会杀死或严重伤害更多的健康人，而不是他们拯救的人。在美国，这个年龄门槛可能接近40岁，而在一些西欧国家，这个年龄界定可能达到60岁（对于身体健康的人来说）。
-
-有人认为，针对 COVID 的疫苗接种至少可以预防儿童和年轻人的“长期 Covid”或多系统炎症综合征 (MIS)；然而，来自以色列和美国的新报告表明，恰恰相反，covid 疫苗本身可能会[导致 MIS](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.israelnationalnews.com/News/News.aspx/296876)以及[“长期 Covid”样病症](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.c19vaxreactions.com/)，通常持续数月甚至更长。
-
-展望未来，应牢记三种与中共病毒疫苗相关的潜在风险：
-
-1. 除了[直接的不良事件](https://swprs-org.translate.goog/the-latest-on-covid-vaccine-adverse-events/?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)（例如中风和心脏病发作）之外，中共病毒疫苗是否会导致心血管损害，而且只会在未来变得明显？
-2. 面对新的[免疫逃逸冠状病毒变种](https://swprs-org.translate.goog/coronavirus-variants-what-next/?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)，例如印度和秘鲁变种（delta 和 lambda），疫苗保护能持续多久，尤其[是老年人](https://swprs-org.translate.goog/the-vaccine-conundrum/?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)？
-3. 一旦新的冠状病毒变种实现完全免疫逃逸，疫苗诱导的非中和抗体水平非常高，是否会导致抗体依赖性[疾病增强](https://swprs-org.translate.goog/coronavirus-variants-what-next/?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)（ADE）？
-
-
-第2号和第3号风险可以通过更新的加强注射来减轻，但这些可能会加剧第1号风险。
-
-作为当前 Covid 疫苗的潜在替代品，可以考虑三种选择：
-
-1. 自然感染，结合[早期治疗](https://swprs-org.translate.goog/on-the-treatment-of-covid-19/?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)避免疾病蔓延
-2. 医学监督的低剂量口服[活病毒攻击](https://swprs-org.translate.goog/covid-vaccination-vs-viral-challenge-in-low-risk-people/?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)（使用毒性最低的毒株）
-3. 快速追踪可能更安全的[鼻/口服中共病毒疫苗](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://medicalxpress.com/news/2021-05-intranasal-covid-vaccine-candidate-sterilizing.html)（目前正在开发中）
-
-
-要研究严重和致命的 Covid 疫苗反应的病例报告，请加入[Covid 疫苗损伤](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://t.me/s/covidvaccineinjuries)（电报群）。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
-
-+2
+0

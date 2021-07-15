@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】巴基斯坦汽车爆炸 9名中国人不幸遇难身亡
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1396994/)
+## 【NewsExpress】印度外长称：中印两国边境持续紧张的局势不利于两国利益
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1398225/)
 
-周三巴基斯坦北部一辆公共汽车发生爆炸，造成 13 人死亡，其中包括 9 名中国公民，北京称炸弹袭击但伊斯兰堡称车辆故障，当地政府和警方消息人士告诉路透社，爆炸将巴士送过峡谷后，两名巴基斯坦士兵也遇难。
+#### 文章撰写:【默凡】
 
-作为北京“一带一路”倡议的一部分，中国工程师和巴基斯坦建筑工人在爆炸发生地西部开伯尔-普图赫瓦省从事水电项目工作数年。一位不愿透露姓名的哈扎拉地区高级行政官员说，这辆巴士载着 30 多名中国工程师前往上科希斯坦的达苏大坝。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15094143/SC63H6LVL5KIROEsdfaMHQRI6TCQGI.jpg)
 
-中国外交部称爆炸为炸弹袭击，但没有提供更多细节。巴基斯坦外交部表示，机械故障导致气体泄漏，导致爆炸。
+2021年7月9日在俄罗斯莫斯科举行外交会谈后，印度外交部长Subrahmanyam Jaishankar与俄罗斯外交部长Sergei Lavrov出席了联合新闻发布会。
 
-达苏水电项目是中巴经济走廊（CPEC）的一部分，该项目投资 650 亿美元，目的是将中国西部与巴基斯坦南部港口瓜达尔港连接起来。
+周三，印度外交部长向中共国外长表示，尽管中印两国去年达成协议，但始终未能解决喜马拉雅西部有争议的边界僵局，这不符合任何一方的利益。
 
-当局说，救援人员使用空中救护车将伤者（包括中国工程师）送往距离爆炸现场约 10 公里（6 英里）的达苏一家医院。巴基斯坦外交部表示，它与中共国驻伊斯兰堡大使馆保持密切联系，并在一份声明中补充说：“巴基斯坦高度重视中国公民、项目和机构的安全和保障。”
+根据去年的协议，双方军事指挥官于2月完成了从班公湖地区撤出部队、坦克和大炮的工作，这是从其他摩擦点全面撤出的第一步。但是，印度外交部长表示，其他领域的摩擦仍未解决。
 
-参考链接：
+自2020年4月以来，数千名士兵一直在实际控制线 (LAC) 或事实上的边界上对峙，包括在冰川盘公湖，这引发了人们对两国之间更广泛冲突的担忧。印度和中共国士兵都在去年6月的冲突中丧生，这是40多年来在有争议的边界上的首次战斗伤亡。
 
-[https://www.theglobeandmail.com/world/article-nine-chinese-nationals-among-13-killed-in-pakistan-bus-explosion/?cmpid=rss&utm\_source=dlvr.it&utm\_medium=twitter](https://www.theglobeandmail.com/world/article-nine-chinese-nationals-among-13-killed-in-pakistan-bus-explosion/?cmpid=rss&amp;utm_source=dlvr.it&amp;utm_medium=twitter)
+目前，两位部长同意寻求双方都能接受的解决方案，并通过避免任何可能加剧紧张局势的单边行动来确保当地的稳定。
 
-翻译整理：蓝精灵
+参考文章：[India tells China continuing border tensions not in either side’s interests](https://www.reuters.com/world/china/india-tells-china-continuing-border-tensions-not-either-sides-interests-2021-07-14/)
 
-校对发布：Penny
+本文仅代表作者本人观点，不代表Gnews平台
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+* * *
+
+校对发布：日本东京方舟农场 文柯Miles
 
 0

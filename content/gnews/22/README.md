@@ -1,11 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【魔鬼集团现行记】路德与令完成搅和到一起
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1397084/)
+## 纽约冠状病毒医生：相信像福奇这样的“反社会者”是“一个非常愚蠢的选择”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1398282/)
 
-7/11/2021 路德现在声称他独立收集新闻信息，但据郭文贵先生，路德与令完成搅和到一起，墨博士不是一般人。
+- 制作：视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月15日电/西喜社**
+
+发稿：信心的选择
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15042609/%E8%A5%BF%E7%AB%99-1.jpg)
+
++2
