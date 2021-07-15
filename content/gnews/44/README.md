@@ -1,52 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】未雨绸缪——澳洲投资远程导弹和网络安全
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1395930/)
+## 杰森·米勒的GETTR一周内吸引了超过140万用户
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1396803/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+- 作者：wenwu
 
-#### **翻译：Lish**
 
-#### **校对/编辑：文泓**
-![此图像的alt属性为空；文件名为%E6%B0%91%E4%B8%BB-3.png]()![此图像的alt属性为空；文件名为%E6%B0%91%E4%B8%BB-3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14054509/%E6%B0%91%E4%B8%BB-3.png)
-图片来源：4BC NEWS
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-国防部长彼得-达顿说，随着澳大利亚在中东地区长达数十年的战役结束，他正在将军事重点转移到澳洲本地，并确保澳美两国的关系比以往任何时候都“更深更强”。
+**西班牙2021年7月14日电/西喜社**
 
-随着西方盟国从长达20年的地区冲突中撤出，澳大利亚已正式从阿富汗撤出所有部队。而国防部长表示，现在正是投资澳大利亚军事未来的最佳时机。
+“这简直是惊人的，”米勒本周在接受《Fox Business》采访时表示。“这是有史以来最快的社交媒体平台，用户达到100万——我们在发布后仅三天就能够做到这点。”
 
-达顿先生告诉澳大利亚天空新闻网，通过阿富汗战争环境的历练，让澳洲国防军的所有部门收获军事财富，以便对现在和未来的敌人“进行威慑和采取行动”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14175830/unknown-21.png)
 
-他说：“我们需要确保能够尽快地引进这些（军工）设备。”
+米勒告诉《Fox Business》，前国务卿迈克·蓬佩奥、众议院少数党领袖凯文·麦卡锡、众议院共和党会议主席埃莉斯·斯特凡尼克、前住房和城市发展部部长本·卡森等，这些著名共和党人以及其他受欢迎的保守派大咖都加入了该平台。比如，查理·柯克、莫妮卡·克劳利、罗根·奥汉德利等等。
 
-莫里森政府已承诺投入10多亿澳元建立一个制导武器系统产业，让澳大利亚建立远程导弹能力，达顿先生说这是一种巨大的威慑。
+“这个平台正在增长，当你看到其他一些不同的平台他们花了多长时间才能达到100万用户时，真的很令人兴奋”,米勒说，并指出脸书用了近一年时间才达到了100万用户，而推特在推出近两年后才达到100万用户。
 
-联邦政府加强了对国防的投入，其中包括投资2700亿澳元，用以在未来十年内建立更强的军事能力，在此大背景下，创建本地武器工业的举措应运而生。
+“我们花了三天时间，”米勒说。“我认为这表明人们对一个不审查政治信仰的媒体平台的态度。”
 
-澳大利亚战略政策研究所（ASPI）警告说，如果澳大利亚不迅速提高其国防投入，它可能会被中共国严重压制。
+米勒告诉《FOX Business》，该公司正在招募一名曾在 2020年民主党总统竞选中担任工作人员的人，以增加其对民主党参与的努力。
 
-ASPI的马尔科姆-戴维斯博士在今年6月说：“我们面临着几十年来最危险的战略前景，其中心是与中国的战争预期。”
+“如果你相信言论自由并反对取消文化，这职位是给你的，”米勒说。“我们已经为拜登总统和哈里斯副总统留出了联系方式，我确实认为他们会在某个时候签约。”
 
-国防部长说，增强（远程）导弹能力的投资建设，将使澳大利亚有能力“保护自己”，并确保外国对手“在攻击我们时要三思而后行”。
+据网络安全公司Hudson Rock称，在黑客访问了 85,000名用户的数据后，该应用程序上周面临[一波强硬的压力](https://techcrunch.com/2021/07/06/gettr-trump-social-network-hack-defaced/)。米勒上周在一份[声明中](https://twitter.com/lorenzofb/status/1412775113603391497/photo/1)表示，该问题已得到解决，并且正在接受另一轮安全测试。
 
-达顿先生说，澳大利亚还需要大力投资于网络安全，并警告说，“这些攻击已经开始了”。
+米勒说，他们44%的签约都在美国，但他们已经看到了“即时的全球影响力”。
 
-他说：“这条战线每天都在进行，我们每天都在受到来自国家行为者和非国家行为者的攻击，都在攻击我们的国防系统。”
+“关于言论自由的中右翼辩论在美国很火爆，但它的规模和范围大得多，”米勒说。
 
-达顿先生说，展望未来，他致力于“与我们的伙伴合作”，特别是与美国合作，以巩固澳大利亚在印度太平洋地区的地位。
+15%的GETTR用户位于巴西，沙特阿拉伯、德国、日本和加拿大的用户注册紧随其后。
 
-他说，澳大利亚在防务方面的下一步是确保其与美国的关系“比以往任何时候都更加深入和强大”。
+米勒说：“我们还在招聘职位，以帮助领导全球业务在其他一些国家设立办事处。”
 
-“我认为我们在本地区前所未有地需要美国”，他说：“这是我目前正在投入大量精力的一件事情。”
+推特、脸书和Instagram等社交媒体平台与新闻和媒体组织，建立了合作伙伴关系——米勒说他们正在积极努力追求这一点。
 
-原文链接：
+他说：“我们全力以赴与新闻媒体联系，让他们使用该平台。这包括左派和右派的媒体。”
 
-[Australia to refocus defence to Indo-pacific and cyber threats amid ongoing attacks, says Peter Dutton | Sky News Australia](https://www.skynews.com.au/australia-news/politics/australia-to-refocus-defence-to-indopacific-and-cyber-threats-amid-ongoing-attacks-says-peter-dutton/news-story/73048a0768d304b1093ce2251ee91bf8)
+米勒表示，本周GETTR将推出小部件，以便新闻媒体可以开始在他们的平台上分享。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena  [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“我们相信这将是一个巨大的推动力，”他说。
 
-0
+**简评：**
+
+**川普在他的任期内被脸书、推特等社交媒体永久禁言，这造就了GETTR的出现与成功。川普近日的诉讼一定会引起媒体行业的大地震，这是毋庸置疑的。**
+
+**据2021年7月12日[《中央广场》（The Center Square)](https://www.thecentersquare.com/wisconsin/wisconsin-lawmaker-wants-to-ban-social-media-censorship-force-tech-transparency/article_9b793ec2-e341-11eb-8201-0bce6ace74c4.html)报道，威斯康星州的共和党参议员朱利安·布拉德利（Julian Bradley)有一项[新的立法](https://mcusercontent.com/14fa96d1d3d32ff6ab8990880/files/551b6c46-4964-aa85-beaa-46242389115c/Bradley_Tech_Accounability_Bill.pdf)，将迫使科技公司展示他们的算法，并解释决定谁被屏蔽和谁可以自由发帖的政策。也就是说，硅谷的自由派亿万富豪必须公开他们媒体平台上的影子规则，并且只需要简单遵守自己的规则。**
+
+**GETTR的出现，正是保证老百姓的言论自由在网络时代可以远离独裁政府审核的必经之路。这是老百姓所渴望的和乐于见到的。**
+
+**新闻来源：**[《福克斯》](https://www.foxbusiness.com/politics/jason-miller-gettr-platform-1-million-users-after-launch)（Fox business)|作者：布鲁克·辛曼（Brooke Singman)｜发布时间：2021年7月13日
+
+审核：文乐； 校对：阿伯塔； 发稿：信心的选择
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14111522/%E8%A5%BF%E7%AB%99.jpg)
+
++4

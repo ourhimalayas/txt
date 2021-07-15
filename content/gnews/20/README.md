@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 杰森·米勒：Gettr将会是一个真正捍卫言论自由的平台
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1395784/)
+## 7/12/2021 路骗现形记：路骗开始叫嚣与爆料革命、文贵先生和新中国联邦切割
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1396585/)
 
-07/12/2021 杰森·米勒在接受采访时表示，Gettr将会是一个真正捍卫言论自由的社交媒体平台，目前注册盖特的人数正在迅速增长。
+路骗污蔑新中国联邦是消灭三份“闫报告”的“邪恶组织”，狺狺狂吠地叫嚣着与文贵先生、爆料革命和新中国联邦一刀两断、污蔑战友们的反击是对它们的攻击
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+By: 【秘密翻译组G-Translators】
 
-0
++1

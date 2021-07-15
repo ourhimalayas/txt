@@ -12,38 +12,38 @@
 
 ---
 
-### [中共恶意黑客攻击盖特](/content/gnews/1/README.md)
+### [美国对中共国在新疆的镇压发起新一轮抨击](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【灭共头条】一场大戏——从万众敬仰到千夫所指](/content/gnews/2/README.md)
  ` 秘密翻译组-原创组`
 
-### [【G时评】警惕CCP“以爆灭爆”中挖好的坑](/content/gnews/3/README.md)
+### [中共恶意黑客攻击盖特](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【G时评】警惕CCP“以爆灭爆”中挖好的坑](/content/gnews/4/README.md)
  ` GISELLE`
 
-### [闫丽梦和路德破釜沉舟——中共真相与欺骗交织的超限战实际案例](/content/gnews/4/README.md)
+### [闫丽梦和路德破釜沉舟——中共真相与欺骗交织的超限战实际案例](/content/gnews/5/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [闫丽梦是伪装成天使的燕子](/content/gnews/5/README.md)
- ` 丁过`
+### [【文贵直播摘录】7月14日：“亡腚缸”和“蛇妖闫”的背叛是给爆料革命的一份礼物，有助于扫除爆料革命队伍中的垃圾](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
 
-### [郭文贵：人民银行副行长范一飞是个骗子，盗囯贼的马仔](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [【文贵话语摘录】觉醒的前夜，妖孽横行，心定才能成正业](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
 
-### [【聚焦】短视频：所罗门群岛领导人曝光中共国贿赂](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
+### [2021年7月14日 文贵先生盖特 4](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [川普的诉讼和新应用GETTR共同打破大科技公司垄断](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【西媒头条】第23期（2021年7月14日）](/content/gnews/9/README.md)
+### [家长起诉华盛顿特区允许未成年人在父母不知情或未同意的情况下接种疫苗](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国议会投票通过强制护士接种疫苗](/content/gnews/10/README.md)
- ` Shuizhuyu`
+### [病毒共存对心脏和睡眠的影响](/content/gnews/10/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [缅甸抗议者举行反军方快闪集会 暂无抓捕消息](/content/gnews/11/README.md)
- ` 曹操`
+### [随着Delta变种病毒肆虐，马来西亚寻求加强卫生系统](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [【樱花宅急便】盖特盖过推特 大战只是刚刚开始](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -66,53 +66,53 @@
 ### [墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【危在旦夕】陆军少将乔·阿巴科：社会主义长征战略渗透重要机构颠覆美国](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [7/12/2021 蛇妖闫现形记：蛇妖阎突然变脸诋毁郭先生和战友们,却不知它的大头里到底装了多少病毒证据？](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
 
-### [杰森·米勒：Gettr将会是一个真正捍卫言论自由的平台](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [7/12/2021 路骗现形记：路骗开始叫嚣与爆料革命、文贵先生和新中国联邦切割](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
 
-### [【危在旦夕】弗林中将：左派精英正试图将这个国家拖入共产主义道路](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [【魔鬼集团现行记】：直播视频打脸“路骗”](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
 
-### [郭文贵：人民银行副行长范一飞是个骗子，盗囯贼的马仔](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [蛇妖闫 亡腚肛 现形记](/content/gnews/22/README.md)
+ ` MOSREC`
 
-### [社交媒体——我们以辩论争取民主的新战场](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [要想有言论自由，让自由市场来铺路吧](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【周说｜文贵】2021年7月11日至13日](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [美国东盟举行特别外长会——主谈疫情、南海、湄湄公河、缅甸](/content/gnews/26/README.md)
- ` 曹操`
-
-### [鲁哈尼宣称伊朗已具备90%浓缩铀生产能力](/content/gnews/27/README.md)
- ` 曹操`
-
-### [缅甸抗议者举行反军方快闪集会 暂无抓捕消息](/content/gnews/28/README.md)
- ` 曹操`
-
-### [突尼斯用军队推进疫苗接种 中共对突疫苗外交或将失败](/content/gnews/29/README.md)
- ` 曹操`
-
-### [王定刚跟闫丽梦如果有就有有的说法,如果没有就有没有的说法](/content/gnews/30/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【西媒头条】第23期（2021年7月14日）](/content/gnews/31/README.md)
+### [女议员呼吁 不要那些大佬决定谁是我们的司令](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [从路德的履历分析他为何背叛爆料革命](/content/gnews/32/README.md)
+### [Snow 降魔除妖](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【NewsExpress】自由女神的妹妹“自由照亮世界”落户华盛顿](/content/gnews/25/README.md)
+ ` 闪电侠`
+
+### [用闫丽梦的矛，攻闫丽梦的盾，看看她是天使还是魔鬼？](/content/gnews/26/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】巴西总统称博尔索纳罗住院寻找打嗝的原因](/content/gnews/27/README.md)
+ ` 索尼克`
+
+### [【NewsExpress】成龙说他渴望加入中国共产党](/content/gnews/28/README.md)
+ ` 索尼克`
+
+### [【NewsExpress】中共国将派400多名运动员参加东京奥运会](/content/gnews/29/README.md)
+ ` 索尼克`
+
+### [【NewsExpress】气候变化借口不应成为中共国践踏人权的通行证](/content/gnews/30/README.md)
+ ` 索尼克`
+
+### [DC每日热点0714](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【西媒头条】第23期（2021年7月14日）](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [从路德的履历分析他为何背叛爆料革命](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [耶伦呼吁美欧共同对抗中共“不公平经济行为”和“践踏人权行为”](/content/gnews/33/README.md)
- ` 日本东京樱花团`
-
-### [闫丽梦的话简直是毁人三观啊](/content/gnews/34/README.md)
- ` 日本东京樱花团`
 
 ### [日本最新国防白皮书：以更强烈危机感密切注视台海局势](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -126,57 +126,57 @@
 ### [中共与西班牙工人社会党(PSOE)和西班牙共产党(PCE)保持友好关系 —中国共产党在西班牙政府中的影响力的一些事实](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [7/13/2021 财经快讯：拜登警告美国公司在香港经营的风险；英格兰银行取消对银行股息的限制](/content/gnews/39/README.md)
+### [7/14/2021 财经快讯：美国加强对新疆地区商业风险的警告；美国CPI创 13 年来最大涨幅](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [复旦大学教师杀人案折射出中共如何收割千人计划精英](/content/gnews/40/README.md)
+### [7/13/2021 财经快讯：拜登警告美国公司在香港经营的风险；英格兰银行取消对银行股息的限制](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [复旦大学教师杀人案折射出中共如何收割千人计划精英](/content/gnews/41/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [7/12/2021财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；中共谴责美国扩大经济黑名单](/content/gnews/41/README.md)
+### [7/12/2021财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；中共谴责美国扩大经济黑名单](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国投资者们在中共国投资上获得了昂贵的教训](/content/gnews/42/README.md)
+### [防止种族灭绝和暴行的报告让美国成为焦点](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [杰森·米勒的GETTR一周内吸引了超过140万用户](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花国际要闻汇编🌸7月14号](/content/gnews/45/README.md)
+ ` 日本东京樱花团`
+
+### [川普总统的诉讼和GETTR应用程序有什么共同之处](/content/gnews/46/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国两任国务卿认定，中共问题是世界乱源](/content/gnews/47/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共国是古巴抗议的幕后黑手吗？如何与北京相关联](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 南海军事篇](/content/gnews/43/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【币圈】-数字货币动态- 2021.07.14](/content/gnews/49/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [【澳洲热点】未雨绸缪——澳洲投资远程导弹和网络安全](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
-
-### [吃禁果的恶果——赶出伊甸园](/content/gnews/45/README.md)
- ` 滴水穿石`
-
-### [白宫酝酿推出数字贸易协议以在印太抗衡中共国](/content/gnews/46/README.md)
+### [中共被指筹划打造全球军事补给网络引发美国担忧](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [7/14/2021日本银河快讯：日本防卫白皮书关注美中对立和台湾局势；东京晴海奥运村13日低调开园](/content/gnews/47/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [新能源车企烧光84亿](/content/gnews/48/README.md)
- ` 秘密翻译组G-Translators`
-
-### [首都医疗集团连亏7年背17亿债](/content/gnews/49/README.md)
- ` 秘密翻译组G-Translators`
-
-### [独家：推动 &#8220;通俄门 &#8220;骗局的情报委员会议员竟然是中资公司的投资人](/content/gnews/50/README.md)
- ` 秘密翻译组G-Translators`
-
-### [震惊:上周美国CCP病毒疫苗死亡人数超过了CCP病毒的死亡人数](/content/gnews/51/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【聚焦】短视频：所罗门群岛领导人曝光中共国贿赂](/content/gnews/52/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国立法者呼吁加大海军建设 以应对中共国的威胁](/content/gnews/53/README.md)
- ` 秘密翻译组G-Translators`
-
-### [2021年07月13日澳喜要闻（每日更新）](/content/gnews/54/README.md)
- ` 澳喜农场`
-
-### [中共指责美国对中国公司的制裁 &#8220;违反了国际贸易规则&#8221;](/content/gnews/55/README.md)
+### [西喜时事新闻简报 — 南海军事篇](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [克里斯·芬顿就好莱坞与中（共）国之间的关系发出警告](/content/gnews/56/README.md)
- ` 澳喜农场欧洲部`
+### [【澳洲热点】未雨绸缪——澳洲投资远程导弹和网络安全](/content/gnews/52/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [吃禁果的恶果——赶出伊甸园](/content/gnews/53/README.md)
+ ` 滴水穿石`
+
+### [白宫酝酿推出数字贸易协议以在印太抗衡中共国](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
+
+### [7/14/2021日本银河快讯：日本防卫白皮书关注美中对立和台湾局势；东京晴海奥运村13日低调开园](/content/gnews/55/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [新能源车企烧光84亿](/content/gnews/56/README.md)
+ ` 秘密翻译组G-Translators`
 

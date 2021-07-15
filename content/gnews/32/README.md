@@ -1,33 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从路德的履历分析他为何背叛爆料革命
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1395502/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1396193/)
 
-撰稿SEA111
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14062143/IMAGE-2021-07-14-181906.jpg)
-路德的婚恋履历（这里就用比较好听的婚恋这个词吧，其实可以叫出轨史）：
-
-路德原名王定刚，1977年生，1994年到1998年在郑州大学获得电气和电子工程学位，他的第一任妻子就是学校的同学。后因与其公司前台出轨并至女方怀孕，被其前妻知晓后经法院判决离婚。
-
-离婚后并未与这位为其生有一子的女士结婚，而是与其前妻的闺蜜兼同学结了婚，也就是现任妻子蔡女士，现仍与其妻及多位子女居于郭先生的房子内。就是在这里，和带着中共任务到美国的闫特工再次出轨，并与这闫特工在2021年7月12日的直播中正式砸郭和与爆料革命为敌。
-
-从这里，可以看见路德对身边女性的不断的喜新厌旧和背叛。
-
-路德的事业履历（这里用比较好听的事业这个词，其实可以叫吃软饭历史）：
-
-2003年，只有27岁的王定刚凭借其妻子家庭雄厚经济实力支助，成立了广州榕腾视听科技股份有限公司，是一家专业从事高星级酒店数字化视听传媒系统集成的高新技术企业，并有广州、北京、郑州、杭州等地分公司。至2018年，仍然担任榕腾公司CEO。
-
-2014年以申请宗教庇护为由移民美国，在美国凭借现任妻子的雄厚经济实力成立公司谋生。后经杨建利引荐认识郭先生，之后成立了名义上传播爆料革命的路德社，凭借爆料革命的热度和郭先生的支持迅速成为自媒体网红，通过油管直播获取大量经济利益。至今直播间仍设于郭先生借给他的房子里，并在这个直播间开始直播砸郭。
-
-从路德的过往历史可以看出他的个性就是习惯性背叛，背叛女人更是他的家常便饭，他不可能为了哪个女人就做出什么重大决定，哪怕是为了闫燕子。也就是说不可能为色背叛爆料革命。
-
-那么再看看有没有可能为财。从他的履历看，说他贪财肯定不冤枉他，而且是贪完就忘恩负义。然而他肯定知道爆料革命的独特之处就是对参与者的财富回馈，所以也不存在为财背叛的可能。
-
-那么只剩下一种可能，路德是中共的走狗，他是接受了主子中共的命令而转向攻击郭先生和爆料革命的！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14061945/IMAGE-2021-07-14-181902.jpg)
-(以上路德歷史部分，有些來源於卡麗熙直播爆料）
+- 作者：土饭团(文团)
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-0
+**西班牙2021年7月14日电/西喜社——**
+
+您若想了解全文报导内容，请点击标题链接
+
+**1.[Pompeo警告说，如果中共国政府庆祝成立200周年，将出现“不同的世界”](https://www.foxnews.com/media/pompeo-warns-of-different-world-if-chinese-government-celebrates-200th-anniversary)**
+
+福克斯新闻7月12日电，美国前国务卿Mike Pompeo在‘Sunday Morning Futures’节目中告诉Maria Bartiromo，如果中共政府庆祝成立200周年，我们将生活在一个“非常不同的世界”，他认为中共对美国构成了“唯一最大的威胁”。
+
+**2.[共和党参议员称中共国永远不会以“理性”的方式行事，抨击自由派团体的一厢情愿](https://www.foxnews.com/politics/gop-senator-says-china-wont-ever-behave-in-rational-fashion-slams-liberal-groups-for-wishful-thinking)**
+
+福克斯新闻7月11日电，田纳西州共和党参议员[Bill Hagerty](https://www.foxnews.com/person/h/sen-bill-hagerty)批评那些呼吁拜登政府软化对华立场的自由派团体，他在周六的采访中说，美国的对手不会以“理性”的方式行事。警告中共国在世界范围内的经济和军事野心，特别是在北极、非洲和南中共国海。
+
+**3.[美国警告中共国支持南海裁决并致力于菲律宾防御](https://edition.cnn.com/2021/07/12/asia/us-philippines-south-china-sea-intl-hnk/index.html)**
+
+CNN 7月12日电，美国国务卿Antony Blinken重申，根据一项有70年历史的共同防御条约，美国承诺保卫菲律宾武装部队在南中共国海免遭攻击。如果中共国对菲律宾在该地区的资产采取任何军事行动，美国可以援引[美菲共同防御协议](https://www.cnn.com/2021/06/14/asia/philippines-us-visiting-forces-agreement-intl-hnk/index.html)。
+
+**4.[Biden任命前五角大楼官员担任关键的中共国科技职位](https://www.reuters.com/world/us/former-pentagon-official-be-nominated-key-us-commerce-department-post-source-2021-07-13/)**
+
+路透社7月14日电，美国总统Joe Biden周二提名前五角大楼官员Alan Estevez为美国商务部工业与安全副部长，这是美中科技战中的一个关键职位。商务部工业与安全局（BIS）的这一职位在近年来受到关注，因为华盛顿加强了对出口管制的使用，以阻止中共国获得美国技术。
+
+**5.[美国加大对中共国新疆地区商业风险的警告力度](https://www.reuters.com/world/us/us-state-department-warns-business-risk-linked-chinas-xinjiang-2021-07-13/)**
+
+路透社7月14日电，美国政府周二加强了对企业的警告，指出与中共国新疆地区建立供应链和投资联系的风险越来越大，理由是那里存在强迫劳动和侵犯人权行为。美国国务院在一份声明中说：“鉴于这些侵权行为的严重性和程度，不退出与新疆有关的供应链、企业投资的企业和个人可能面临违反美国法律的高风险。
+
+**6.[白帽黑客对中共国渗透美国科技敲响警钟](https://www.foxnews.com/media/white-hat-hacker-sounds-the-alarm-on-chinas-infiltration-of-american-tech)**
+
+福克斯新闻7月13日电，Lara Logan与一位白帽黑客在[Lara Logan Has No Agenda](https://nation.foxnews.com/lara-logan-has-no-agenda/?cmpid=org=NAT::ag=owned::mc=referral::src=FNC_web::cmp=article::add=LaraLoganBigTechBigBrother_FNC_SeriesDetail&amp;utm_source=referral&amp;utm_medium=FNC_web&amp;utm_campaign=article&amp;utm_content=LaraLoganBigTechBigBrother_FNC_SeriesDetail)节目中讨论隐私问题和大科技公司如何应对数据泄露的问题。来自中共国的这种威胁可以在“超限战”的理论中清楚地看到。所制定的战略是“在每条战线上与美国作战，从网络安全到外太空，再到美国人过量服用芬太尼等药物的内城。”
+
+**7.[美国在东盟会议上抨击中共国在南中共国海的非法主张](https://english.kyodonews.net/news/2021/07/a265bf977bfa-update1-us-raps-china-at-asean-meeting-for-unlawful-claims-in-s-china-sea.html)**
+
+共同社7月14日电，美国国务卿Antony Blinken在周三与东盟同行的在线会议上重申了华盛顿的立场，即它不会接受中共国在南中共国海的非法海洋主张。美国-东盟会议也是在中共国日益强硬的情况下召开的，Biden政府将美中之间的竞争归结为民主政府和独裁政府之间的斗争。
+
+审核：蚂蚁兄弟； 校对：信心满满； 发稿：信心的选择
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14085038/GNEWS_CH.jpeg)
++1

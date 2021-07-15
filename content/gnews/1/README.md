@@ -1,20 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共恶意黑客攻击盖特
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1396104/)
+## 美国对中共国在新疆的镇压发起新一轮抨击
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1396922/)
 
 2021年7月14日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14071233/GettyImages-624664040-1024x683-2.jpg)
-社交软件盖特的CEO表示某些国家在背后组织水军对盖特进行恶意攻击，这些水军发布的淫秽图片席卷了整个平台。
 
-在与《华盛顿自由灯塔》的独家采访中，盖特创始人兼川普总统的前任发言人杰森·米勒称：“某独裁政权可能在背后对我们进行隐秘攻击。”当问及为什么那些国家要攻击盖特时，米勒说：“当你在推进民主和自由的时候，他们已经在背后瞄准你了。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02182502/0-3.jpeg)2021年3月18日，在中国西部的新疆维吾尔自治区，一个家庭站在阿克苏的地下零售街入口处。美国国务院于7月13日发布了一份报告，记录了针对维吾尔人的人权侵犯行为
 
-盖特是一个类似推特的平台，承诺要维护自由言论，于7月4日正式上线。盖特一上线就受到保守派人的欢迎，数日内就超过一百万下载量。但是，盖特也受到网络水军攻击的困扰，米勒称这些攻击是“有预谋有组织的”。米勒没有提及是哪个国家在背后进行攻击。
+摘要翻译：
 
-盖特的主要挑战是为推特和脸书用户提供另外一种选择，同时还要做到不抄袭这两个平台。这两个平台目前都在受到质疑因为无理由地禁止用户或隐藏用户的帖子，并且在没有人工审核的前提下用系统的自动程序删除帖子。
+美国国务院周二表示，中共政府仍在对中共国西部的穆斯林维吾尔人和其他少数民族进行种族灭绝和“可怕的”侵犯人权行为。
 
-**【[新闻来源](https://freebeacon.com/media/gettr-founder-says-authoritarian-regimes-are-behind-attacks-on-the-app/)】**
+对企业的最新警告中概述了这些侵犯人权的行为，即从新疆购买来自强迫劳动的中国制造的商品或服务、或支持受制裁的大规模监视可能违反美国法律。
+
+根据美国国务院与其他五个政府部门发布的最新供应链咨询：“中共国的反人类罪包括监禁、酷刑、强奸、强迫绝育和迫害，包括通过强迫劳动和对宗教或信仰自由、言论自由和行动自由施加严厉限制。”
+
+这份长达36页的咨询文件警告说，不停止与原产于新疆的商品和服务交易的企业、投资者和个人“冒着违反美国法律的高风险；”以及与该地区强迫劳动和大规模监控活动有关的“重大声誉、经济和法律风险。”未能回避与新疆侵犯人权行为有关的供应链、企业或投资的企业和个人，可能会因基于人权相关法律的各种犯罪行为而受到调查。
+
+**【**[新闻来源](https://www.washingtontimes.com/news/2021/jul/13/us-launches-fresh-salvo-over-chinese-repression-xi/?utm_source=RSS_Feed&amp;utm_medium=RSS)**】**
 
 * * *
 
@@ -24,7 +28,7 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,275 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国投资者们在中共国投资上获得了昂贵的教训
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1389005/)
+## 7/12/2021财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；中共谴责美国扩大经济黑名单
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1391654/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10234346/ACBC4617-45F4-4D3A-BD7D-635C0B5C7AEC.jpeg)](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
-[https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3](https://gtv.org/video/id=60e9ba7e4c6dfd47b42bdae3)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/12080842/%E5%9B%BE%E7%89%873-11.png)[图片来源](https://www.wallstreetcn.com/)
+**1.** **耶伦称将努力解决尚未签署税收协议国家的关切问题**
 
-字幕内容：
+[意大利威尼斯（路透社）–美国财政部长珍妮特-耶伦（Janet Yellen）周六表示，她将努力解决那些尚未签署全球公司税协议的国家的关切问题，但她补充说，不必让所有国家都采用这一协议。耶伦与德国财政部长奥拉夫-肖尔茨(Olaf Scholz)一同面对记者，她说她相信爱尔兰、爱沙尼亚和匈牙利等国家的关切问题可以在10月份的G20领导人峰会之前得到解决。她表示将努力，但强调并非每个国家都必须加入。](https://www.oann.com/u-s-s-yellen-says-will-try-to-address-concerns-of-tax-deal-holdout-countries/)
 
-Larry Kudlow (Fox businese host)
+**2.****白宫籍竞争行政令瞄准银行合并及财务数据**
 
-拉里·库德洛 (福克斯商业频道主持人)
+[华盛顿7月10日（路透社）- 据知情人士透露，美国总统拜登计划的促进美国更大竞争力的行政命令，将促使美联储和司法部更新并购准则，加大对交易的审查，从而将目标对准银行并购。该行政令还将要求消费者金融保护局(CFPB)发布规则，让消费者充分管控其财务数据，从而更容易转换银行。前总统奥巴马的政府在2016年发布了一项类似的命令，但未能取得成果。消息人士称，拜登的命令包括政府机构应如何审查交易和行业竞争的细节。](https://businesshala.com/exclusive-white-house-to-target-bank-mergers-financial-data-with-competition-order/)
 
-So China cracks down on the ride-hailing firm DIDI,
+**3.中共国谴责美国扩大经济黑名单的举动是“不合理的打压**”
 
-所以中共国打击打车公司滴滴
+[上海7月11日（路透社）- 中共国周日说，它“坚决反对”美国因23个中国实体涉嫌侵犯人权和军事关系等问题，而将他们列入美国的经济黑名单。商务部在一份声明中说，将中国实体列入黑名单是“严重违反国际经济和贸易规则”，是对中共国公司的 “不合理的打压”。此前的周五，美国商务部表示，它已将14家公司和其他实体列入其经济黑名单，称它们 “在中共国对新疆维吾尔自治区的维吾尔人、哈萨克人和其他穆斯林少数民族成员实施镇压、大规模拘留和高科技监控的运动中，与侵犯和践踏人权行为有牵连。”](https://www.reuters.com/world/china/china-commerce-ministry-criticises-additions-us-economic-black-list-2021-07-11/)
 
-and it is American shareholders get an expensive lesson in Xi Jinping risk
+**4.目前全球有至少80家央行在研究数字货币**
 
-而且美国股东们在“习近平风险”中得到了昂贵的教训
+[欧洲中央银行（ECB）行长克里斯蒂娜-拉加德本周二在一次新闻发布会上说，全球有至少80家中央银行正在研究数字货币。她说，“我们有责任真正拥有可用的数字货币，这些数字货币的运作将使消费者受益”。 在谈到数字货币的使用时，她补充说， “它可以像纸币一样使用。我认为它不会像纸币那样具有一定程度的匿名性”。拉加德指出，在与消费者的协商中，他们的答复非常多，他们希望隐私得到保护，但又不想要匿名，因为他们了解匿名的风险。](https://www.thegatewaypundit.com/2021/07/currently-least-80-central-banks-around-world-looking-digital-currencies/)
 
-Joining us now Michael Pillsbury
+**5.****受库存供应及欧佩克影响，油价继续走高**
 
-现在加入我们的是迈克尔·皮尔斯伯里（白邦瑞）
+[美国西德克萨斯中质油和国际基准布伦特原油期货周五收高，因为买家继续对周四发布的政府报告作出反应，该报告显示美国库存再次大幅下降。同时，中国和印度的亚洲需求强劲的迹象支撑油价走高。周五，9月WTI原油期货收于73.81美元，上涨1.59美元或+2.20%；9月布伦特原油期货收于75.55美元，上涨1.43美元或1.89%。](https://finance.yahoo.com/news/oil-price-fundamental-daily-forecast-050118192.html)
 
-the director of center for Chinese strategy at the Hudson Institute
+**6.大型保险公司发起“零排放”气候联盟**
 
-哈德逊研究所的中国战略中心主任
+[米兰（路透社）–八家世界领先的保险和再保险公司周日成立了一个联盟，以帮助加快向零排放经济的过渡。这些公司包括欧洲保费最高的三家保险公司–安联、安盛和忠利–表示，净零排放保险联盟（NZIA）将致力于在2050年前将承保组合转向温室气体净零排放。Generali首席执行官Philippe Donnet在周日于威尼斯举行的G20气候峰会上介绍了该联盟，该联盟于4月首次提出。许多位于欧洲的领先保险公司已经采取了气候友好型政策。上个月，Generali公司承诺在2050年前实现其直接投资组合的碳中和。](https://www.oann.com/big-insurance-companies-launch-net-zero-climate-alliance/)
 
-Michael, Welcome back
+**7****.国债涨势让投资者争相寻找高收益率投资**
 
-迈克尔, 欢迎回来
+[纽约（路透社）–国债收益率的暴跌正促使一些投资者转向其他创收工具，包括派息股票和新兴市场债券，这往往是为了换取更大的风险。今年早些时候，尽管中共病毒疫情后美国经济增长复苏，但很少有人预计国债收益率会在夏季之前下挫至历史低点附近。然而，美联储的鹰派转变、国内债券收益持平或为负数的国家的投资者的需求以及流行的国债空头押注的平仓，都压低了收益率。这使人们对所谓的再通胀交易的未来产生了怀疑。10年期国债，周五的收益率为1.35%，远低于3月份创下的1.77%的高点。](https://www.reuters.com/article/us-usa-markets-yield/treasury-rally-leaves-investors-scrambling-for-yield-plays-idUSKBN2EH09T)
 
-It has been way, way too long
+**8****.****Venmo****、****PayPal****增收交易费用将影响小型企业**
 
-已经过去太久了
+[从7月20日开始，PayPal的交易费将是3.49%，外加49美分。根据Fox 4的报道，Venmo个人账户的交易费将是1.9%，外加10美分。从这些数字来看，如果一个人购买500美元，卖家使用PayPal将损失约18美元。报道还说，使用Venmo，卖家将损失不到10美元。现在，使用这些支付方式的企业将不得不决定，他们是想把不断增加的交易费用转嫁给他们的客户，还是什么都不做，承担经济损失。](https://www.breitbart.com/tech/2021/07/10/venmo-paypal-transaction-fee-changes-will-impact-small-businesses/)
 
-China hasn’t done anything really bad or interesting until this
-
-在此之前，中共国没有做过任何非常糟糕或有趣的事情
-
-This is interesting to me but here is the way I want
-
-这对我来说很有趣，但这是我想要的方式
-
-I’m going to frame this
-
-我要把这个装裱起来
-
-I think American investors，the American investors should know
-
-我认为美国投资者, 美国投资者应该知道
-
-that these Chinese companies have fraudulent accounting
-
-这些中共国公司的会计造假
-
-they will not show their paperwork to our public accountability board
-
-他们不会提供他们的文件给我们的公共会计委员会
-
-and that is the reason why Robert O’Brien and I
-
-而且这就是为什么罗伯特·奥布莱恩和我
-
-took the thrift savings plan, retirement plan out of investing in China
-
-把节俭储蓄计划，退休计划投资从中共国撤出
-
-The lesson I learned here yeah China is cracking down on private companies
-
-我在这里学到的教训，中共国是正在打击私营公司
-
-but you couldn’t believe them in the first place
-
-但你一开始无法相信他们
-
-because they’re all phony and fraudulent
-
-因为他们都是假的和欺诈的
-
-Michael Pillsbury
-
-迈克尔·皮尔斯伯里 （白邦瑞）
-
-Well, that’s right
-
-嗯，对的
-
-I remember you working on this directly with the president
-
-我记得你直接和总统一起研究这个
-
-Larry, so in a way what is happening here
-
-拉里，从某种意义上说，这里发生
-
-with the decoupling of capital markets is the outcome of your work
-
-资本市场与中共国的脱钩是你工作的结果
-
-Congratulations
-
-恭喜
-
-Larry Kudlow
-
-拉里·库德洛
-
-We tried to warn them
-
-我们试图警告他们
-
-You know I was reading various editorials
-
-你知道我在读各种社论
-
-but I don’t think they really understand that
-
-但我认为他们并不真正理解那个
-
-Look all these companies have become an instrumentality of the Chinese Government，
-
-看所有这些公司都成为了中共政府的工具
-
-haven’t they?
-
-不是吗？
-
-They have to give up information to the Chinese government
-
-他们不得不向中共国政府提供信息
-
-isn’t that part of the problem?
-
-这不是问题的一部分吗？
-
-Michael Pillsbury
-
-迈克尔·皮尔斯伯里 （白邦瑞）
-
-Yeah, China is very clear about it
-
-是的，中国关于这点很明确
-
-They have to have communist party representatives at the top of the leadership
-
-他们必须有共产党的代表在领导层的最高层
-
-and follow the party’s rules
-
-并遵守共产党的规则
-
-This is not a secret anymore in China
-
-这在中共国已经不是秘密了
-
-Quite a burden on some of these companies as the DIDI drop has now shown
-
-正如滴滴现在的下跌表明的那样，这些公司中的一些人受到的打压相当大
-
-Larry Kudlow
-
-拉里·库德洛
-
-So how much you know China cracking down really not on this ride-sharing company DIDI
-
-那么你知道多少中共国真正打击不止这家拼车公司滴滴吗？
-
-But other companies too
-
-但其他公司也是
-
-They cracked down on Jack Ma’s Ant, the financial company
-
-他们打击了马云的蚂蚁金服金融公司
-
-They do much more of this
-
-他们做更多的这种打击私人企业的事情
-
-Will this hurt China, Michael?
-
-会伤害中共国吗？迈克尔
-
-That is another thing, will it do damage to the Chinese economy?
-
-那是另外一回事，它会损害中共的经济吗？
-
-Michael Pillsbury
-
-迈克尔·皮尔斯伯里 （白邦瑞）
-
-Well，They don’t look at it that way, Larry
-
-他们不这么看，拉里
-
-They see this what they call it as a win-win for China
-
-他们认为这个是对中共国的双赢
-
-They want to protect their big data
-
-他们想保护他们的大数据
-
-They are certain we’ll come at them through their IPO companies
-
-他们认为我们会通过中国的 IPO 公司找到他们
-
-and steal their consumer big data
-
-并窃取他们的消费者的大数据
-
-This is how they see the future of the global economy is a data centric economy
-
-这就是他们如何看待全球经济的未来是以数据为中心的经济
-
-Secondly, they think this is a security move
-
-其次，他们认为这是一个安全举措
-
-They don’t want the Americans to continue financing these huge IPOs
-
-他们不希望美国人继续为这些巨大的 IPO 提供资金
-
-but in the sense of hurting China
-
-但从伤害中共国的意义上来说
-
-it certainly hurts the private sector in China
-
-它肯定会伤害中共国的私营企业经济
-
-It is making the whole economy move toward what I think Xi Jinping wants
-
-它正在使整个经济朝着我认为是习近平想要的方向发展
-
-He has been pretty clear about it in his speeches
-
-他在他的演讲中已经很明确了
-
-He wants a state-owned, state-controlled economy
-
-他想要一个国有的、国家控制的经济
-
-with something like 30 to 40% of the economy can be in private hands
-
-有大约 30% 到 40% 的经济可以掌握在私人手中
-
-But nothing strategic, nothing important
-
-但这些私人经济没什么战略意义的，不在重要的领域
-
-All of that has to be under the state-owned enterprise system
-
-这一切都要在国营体制下
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 [https://www.youtube.com/watch?v=\_im5BotK7k8](https://www.youtube.com/watch?v=_im5BotK7k8)
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场- 文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+By【秘密翻译组-金融组】
+作者：Opal
 
 0

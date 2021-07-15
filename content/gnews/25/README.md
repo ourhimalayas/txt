@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【周说｜文贵】2021年7月11日至13日
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1395955/)
+## 【NewsExpress】自由女神的妹妹“自由照亮世界”落户华盛顿
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1396921/)
 
-作者：香草山教育部 月野兔
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10111333/Screen-Shot-2021-07-10-at-11.13.07-PM.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14052720/0-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053211/image0-53.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14055940/1-118.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14054730/2-94.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053159/3-41.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053037/4-21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053049/5-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053020/6-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053027/7-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053015/8-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053027/9-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053038/10-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14053059/11-9.jpg)
-校对/发稿：飞虹
+美国有线电视新闻网2021年7月14日报道：自由女神像在纽约港正式揭幕一百三十五年后，她的“小妹妹”已在法国大使位于华盛顿特区的家门前居住。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+微型自由女神像将于周三与美国国务卿安东尼·布林肯和法国外交部长让·伊夫·勒德里昂在法国巴士底狱举行的仪式上正式落成。法国大使菲利普·艾蒂安 (Philippe Etienne) 说，在美国拥有这座雕像“意义重大”，“强烈提醒法国人民与美国人民之间的友谊。”“这提醒人们自由这一核心价值对世界的重要性，”他告诉美国有线电视新闻网，并指出自由女神像的正式名称是“自由照亮世界”。
 
-**更多资讯，更多关注**
+“小妹妹”是原版的精确复制品，但尺寸是原来的十六分之一。它由雕塑家奥古斯特·巴托尔迪 (Auguste Bartholdi) 1878 年的石膏模型制成，并在开始前往美国之前在巴黎国家工艺美术博物馆展出了十年。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+CMA CGM 北美总裁埃德·奥尔德里奇 (Ed Aldridge) 表示，6 月初，这座重 1,000 磅、高 9 英尺的雕像从博物馆中卸下，被雕像处理运输和物流的公司放在“专门为我们的‘小妹妹’定制的有机玻璃容器中”。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+参考链接：
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+[https://edition.cnn.com/2021/07/14/politics/statue-of-liberty-little-sister-washington-dc/index.html?utm\_medium=social&utm\_source=twCNNi&utm\_content=2021-07-14T22%3A17%3A05&utm\_term=link](https://edition.cnn.com/2021/07/14/politics/statue-of-liberty-little-sister-washington-dc/index.html?utm_medium=social&amp;utm_source=twCNNi&amp;utm_content=2021-07-14T22%3A17%3A05&amp;utm_term=link)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+翻译整理：蓝精灵
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对发布：Penny
 
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
