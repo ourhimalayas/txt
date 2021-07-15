@@ -1,33 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】美国国际集团向 Blackstone 出售人寿和退休业务的股份
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1396960/)
+## 海牙仲裁5周年：中美角力南中国海，布林肯频发声
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1397254/)
 
-路透 7 月 14 日报道美国国际集团AIG将出售人寿和退休部分业务给黑石集团。
+2021年7月14日
 
-美国国际集团和黑石集团周三表示，这家私募股权公司将以 22 亿美元现金收购该部门 9.9% 的股份，这使得该保险公司的股价在盘后交易中上涨了 6% 以上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15005222/0-52.png)
 
-AIG 一直在接受潜在投资者关于收购人寿和退休部19.9% 股权的询问，该部门负责销售保险和年金，但首席执行官彼得·扎菲诺(Peter Zaffino) 在 5 月份表示，该公司将通过 IPO 出售这些股份，从而打破了投标人的希望。
+编辑摘要：
 
-AIG 努力将其人寿保险和退休业务与其财产和意外伤害业务分离开来，该业务于 2020 年宣布，多年以后，激进投资者将 AIG 分拆。
+据华盛顿战略与国际研究中心（CSIS）研究显示：与5年前相比，中共国海警船只和民兵在菲律宾韧性经济区内的次数更多，菲律宾渔民在渔场工作时恐惧更大。自2016年以来，菲律宾已经提出128次外交抗议。2020年7月的民间调查显示，70%的菲律宾人希望政府对南中国海提出主张。
 
-Blackstone 还将与 AIG 建立长期资产管理关系，管理 500 亿美元，约占人寿和退休投资组合的 25%。这一数额将在未来六年内增加到 925 亿美元。Blackstone 股价上涨 3.6%，至 102.25 美元。
+在国际仲裁法院裁决驳回中共国对南海主权主张5年之际，7月9日北京方面重申不接受该裁决。
 
-包括 Blackstone 在内的私募股权公司一直在积极收购年金提供商，称他们可以利用自己的投资实力从大笔资金中获得更好的回报，这是当前低利率环境下的一个重要考虑因素。作为回报，收购公司为此类服务赚取费用。
+美国国务卿布林肯7月11日发表声明，美国重申2020年7月13日宣布的针对南中国海的政策。如果菲律宾武装部队、政府船只或飞机在南中国海遭到武装攻击，美国有义务根据美菲1951年共同防御条件采取共同行动。
 
-两家公司表示，在周三还宣布的另一项协议中，Blackstone Real Estate Income Trust 将以 51 亿美元收购 AIG 的部分经济适用房资产。
+中共军方7月12日称，“美国是南海安全风险制造者”。布林肯7月14日再次明确拒绝中共国在南中国海主权问题上的“非法立场”，说美国将与东南亚国家站在一起对抗北京的“胁迫”。
 
-管理经济适用房投资组合已超过 30 年的 AIG 表示，这些资产“不再是 AIG 长期投资战略的核心”。
+历史回顾：
 
-参考链接：
+前美国国务卿蓬佩奥在2020年7月13日发表声明，明确宣布美国认为北京提出的涵盖大部分南中国海的资源权利主张“完全不合法”，表示美国与东南亚盟国与合作伙伴站在一起，维护他们对离岸资源的主权。这是美国首次明确拒绝接受中共国对南中国海的大部分主权主张。
 
-[https://www.reuters.com/business/aig-sell-10-stake-life-retirement-business-blackstone-2021-07-14/?taid=60ef60be8b2ab800018b46c2&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/aig-sell-10-stake-life-retirement-business-blackstone-2021-07-14/?taid=60ef60be8b2ab800018b46c2&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+美国国会参众两院外委会两大政党的四位领导人发表一份联合声明，对蓬佩奥宣布明确美国的南中国海态度表示完全支持。
 
-翻译整理：蓝精灵
+**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E8%A6%81%E9%97%BB%E5%88%86%E6%9E%90/20210714-%E6%B5%B7%E7%89%99%E4%BB%B2%E8%A3%815%E5%91%A8%E5%B9%B4-%E5%8D%97%E6%B5%B7%E6%88%90%E4%B8%AD%E7%BE%8E%E8%A7%92%E5%8A%9B%E9%87%8D%E9%98%B5-%E5%B8%83%E6%9E%97%E8%82%AF%E9%A2%91%E5%8F%91%E5%A3%B0)**】**
 
-校对发布：Penny
+* * *
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-0
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1

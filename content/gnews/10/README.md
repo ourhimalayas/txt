@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒共存对心脏和睡眠的影响
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1396742/)
+## COVID-19感染了伊丽莎白女王号上约百名已接种疫苗船员
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1397242/)
 
-消息来源：今日意大利（today.it）
-发布时间：2021年07月13日
-翻译/整理/简评：萧亦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14170957/07142.jpg)
-自大流行开始以来，已有超过 400 万意大利人感染了冠状（中共）病毒，他们中的许多人即使在拭子检测结果为阴性后，仍继续出现咳嗽、气短、疲劳、头痛、心悸、胸痛、关节痛、抑郁和失眠等疾病。这不仅会影响严重感染的患者，还会影响无症状患者。最近几个月开始的几项观察性研究表明，14% 的感染者中出现病毒共存，且平均持续四个月。
+据《福克斯新闻》作者：Edmund DeMarche，2021年7月13日报道：
 
-斯克利普斯研究所平移研究所的研究人员发现：平均而言，患者的静息心率在两个半月前不会恢复正常，而睡眠觉醒节律在诊断后的第 24 天左右才开始恢复正常。对于那些患有长期病毒共存的人，有 14% 的样本其症状持续的时间要长得多，心率在四个月内才能保持到正常水平。
+周三的一份报告称，皇家海军的 HMS 伊丽莎白女王号航母上约有 100 名已接种疫苗的船员被诊断出患有 COVID-19，但疫情正在得到控制。
 
-简评：中共病毒夺走了无数人的生命，同时病毒共存又影响了无数人的的正常生活。其中又有多少人的病毒共存持续时间是更长的时间呢？
+BBC报道称，由约3700人组成的航母群中的战舰上感染人数较多。 皇家海军的旗舰已经进入印度洋，最终将前往日本。 一位女发言人告诉 BBC，这些病例是在例行测试中发现的，“对部署没有影响”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15003208/B40A8CD8-E451-49BF-8116-690E180AFEBD.png)*HMS 伊丽莎白女王超级航母于 2017 年 8 月 16 日在英国朴茨茅斯驶入港口。 伊丽莎白女王号是新的伊丽莎白女王级超级航母的主力舰。 她重达 65,000 吨，是英国皇家海军部署的最大战舰。 （Leon Neal/盖蒂图片社摄）*
+这艘 65,000 吨的航母——据说能够容纳 36 架 F-35——一直在支持针对伊拉克境内的伊斯兰恐怖组织的实时军事行动，被视为实力的明显体现。 史蒂夫·穆尔豪斯 (Steve Moorhouse) 准将告诉美联社，该航母为英国在海外开展军事行动提供了灵活性，并“让那些希望对我们造成伤害的人……保持警惕。”
 
-（本文只代表译者观点，与Gnews无关）
+他继续说道，“但这是一个现实，当你为自己购买一艘第五代航空母舰并将其带到世界各地时……人们对它感兴趣。”
 
-发表：萧亦
+原文连接：[https://www.foxnews.com/world/covid-19-infects-about-100-vaccinated-crewmembers-on-royal-navys-hms-queen-elizabeth-report](https://www.foxnews.com/world/covid-19-infects-about-100-vaccinated-crewmembers-on-royal-navys-hms-queen-elizabeth-report)
 
-新闻链接：[https://www.today.it/benessere/salute/long-covid-quando-compare-quanto-dura-effetti-sintomi.html](https://www.today.it/benessere/salute/long-covid-quando-compare-quanto-dura-effetti-sintomi.html)
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

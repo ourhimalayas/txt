@@ -1,26 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生病后直播：金云大师早看出闫是蛇精，亡腚肛是癞蛤蟆
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1396987/)
+## 【粤语配音】蓬佩奥：美国要让中共和习总书记付出代价，让中国人民选出自己的领导人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1397393/)
 
-2021年7月14日
+蓬佩奥：美国要让中共和习总书记付出代价，从而使中国人民能最终选出自己的领导人，如果中共和习继续领导中国 ，最终将导致非常糟糕的结果。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/14211738/1-23-9.png)
-
-
-
-文贵先生病后直播：金云大师早看出闫是蛇精，亡腚肛是癞蛤蟆。道家大师帮助郭先生神奇恢复。
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7/12/2021 蛇妖闫现形记：蛇妖阎突然变脸诋毁郭先生和战友们,却不知它的大头里到底装了多少病毒证据？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1396598/)
+## 【魔鬼集团现行记】忘恩负义的闫丽梦砸郭、砸爆料革命
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1397370/)
 
-蛇妖闫口出狂言污蔑郭文贵先生以病毒真相和灭共的名义将战友们”一鸭十吃”，并恬不知耻地称郭先生和战友们不懂科学，却不知它的”大头”里装了多少关于病毒的证据
+7/12/2021 忘恩负义的闫丽梦砸郭、砸爆料革命。
 
-By: 【秘密翻译组G-Translators】
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
