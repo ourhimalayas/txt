@@ -1,121 +1,149 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们已经看到古巴、香港和中共国发生的事情，我们必须不惜一切代价捍卫我们的第二修正案
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398325/)
+## 国务院称他们“注意到”中共国的威胁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398489/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15104952/2EDD87D6-359B-406C-BD67-A4635CD9025D.jpeg)
-[https://gtv.org/video/id=60ef213c4c6dfd47b42dd5e5](https://gtv.org/video/id=60ef213c4c6dfd47b42dd5e5)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15124024/Screenshot-2021-07-15-093912.png)
+[https://gtv.org/video/id=60e5ea3f4c6dfd47b42b0d76](https://gtv.org/video/id=60e5ea3f4c6dfd47b42b0d76)
 
 **字幕内容:**
 
-Anna Paulina Luna
-安娜·宝琳娜·卢娜
+Brian Brenberg(Fox business host)
+布赖恩·布伦伯格（福克斯商业频道主持人）
 
-One more thing I forgot to tell you guys, you know, again
-还有一件事我忘了告诉你们，你们知道，再次
+President Xi warning any country that attempts to bully China
+习主席警告任何企图欺负中共国的国家
 
-the difference between us and a lot of these other countries that we see around the world
-我们与我们在世界各地看到的许多其他国家之间的差异
+will face “broken heads and bloodshed”
+将面临“头破血流”
 
-that are pressing your citizens
-是，如果政府对公民镇压
+This is at the 100th anniversary of the communist party
+这是他在共产党成立100周年的纪念仪式上的发言
 
-is that here in the United States we have the Second Amendment
-在美国这里，我们有第二修正案赋予人们持枪反击的权利
+U.S. state department responding to these threats saying
+美国国务院回应这些威胁时说
 
-and I think what this is showing us is these people
-我认为这向我们证明
+only they are taking note of them
+他们只是注意到共产党的威胁
 
-that literally flee Cuba to try to come to the United States
-那些逃离古巴试图来到美国的人
+Fox News Rich Edson is live from the state department with the details
+福克斯新闻里奇埃德森在国务院现场直播并介绍细节
 
-actually have genuine Asylum cases
-实际上有真正的庇护案件
+Rich
+里奇
 
-what sets us apart is the fact that we can defend ourselves
-让我们与众不同的是，我们可以保护自己
+Rich Edson （Fox News reporter)
+里奇 埃德森（福克斯新闻记者）
 
-and because we have the Second Amendment
-因为我们有第二修正案
+Good afternoon, Brian
+下午好！布莱恩
 
-it empowers people over government and over bad actors in government
-它使人民有能力战胜政府，战胜政府中那些
+This is part of a more aggressive tone from China’s government
+这是中国政府更加咄咄逼人的语气的威胁
 
-that would essentially want to oppress their citizens
-本质上想压迫其公民的不良行为者
+towards the west and especially the United States
+对西方尤其是美国来说
 
-that’s a whole reason and Foundation as to why our founding fathers put that into effect
-这就是我们的开国之父为何将其付诸实施的一个完整原因和基础
+The State Department refused to respond to those specific comments from Chinese presi-dent Xi Jinping
+国务院拒绝回应中共国家主席习近平的这些具体评论
 
-and for someone like me who is not just
-对于像我这样的人，我认为
+though they say officials here are watching
+虽然他们说白宫官员正在对此观察
 
-I think develop this really deep sense of patriotism
-不只是培养这种非常深刻的爱国主义意识
+Edward “Ned” Price (state department spokesman)
+爱德华“内德”普莱斯（国务院发言人）
 
-whether it was in my military experience or whether it was understanding that as a woman
-无论是在我的军事经历中还是作为女性的理解
+Of course we’re aware that Chinese Communist Party commemorated its 100th anniver-sary today
+当然我们注意到今天是中国共产党建党100周年的纪念
 
-that the concept of a firearm is truly ultimately the equalizer
-枪支的概念最终是能够保护自己的
-in regards to being able to defend yourself
-平等因素
+We’re aware of president Xi’s remarks and taken a note of them
+我们注意到习主席的表态并注意到这些言论
 
-but think about what’s happening right now
-但想想现在正在发生的事情
+But won’t comment on the specifics
+但不会评论具体情况
 
-look at the footage is coming out of Cuban
-看看从古巴出来的境况
+Rich Edson
+里奇 ·埃德森
 
-understand that there actively on a regular basis
-了解每时每刻都有一些人
+The state department also says
+国务院还通报了
 
-people that don’t want American citizens to have firearms to defend themselves
-不希望美国公民拥有枪支来保护自己
+reports of China’s nuclear arsenal growing more quickly
+关于中共国核武库增长更加快速的消息
 
-and ultimately it is your job it is the elected officials
-归根结底，这是你的工作，是你推举的民选官员的工作
+and higher level than expected were concerning
+其速度高于预期的水平令人担忧
 
-that you put into power it is their job
-他们的工作是维护
+In his speech marking the 100th anniversary of the Chinese Communist Party
+在庆祝中国共产党成立100周年的讲话中
 
-to stand up for your rights to keep and bear arms
-持有和携带武器的权利
+President Xi also warned adversaries would face a ‘Great Wall of Steel’
+习主席还警告对手将面临一个“钢铁长城”
 
-remember all that I wanted to share that thought with you
-记住，我想和你分享的这个想法
+The Rhetoric between the U.S. and China has intensified
+中美之间的口水战愈演愈烈
 
-because I feel like a lot of people are not understanding
-因为我觉得很多人不理解
+especially over Covid-19 vaccine distribution
+特别是在 Covid-19 疫苗分发方面
 
-that yes was happening in Cuba was terrible
-是的，发生在古巴是可怕的
+and China’s refusal to allow a transparent investigation into the origins of Covid-19
+以及中国拒绝允许对 Covid-19 的起源进行透明调查
 
-was happening in Hong Kong is terrible
-在香港发生的事情太可怕了
+the U.S. has also criticized China’s crackdown in Hong Kong
+美国也批评中共国打压香港
 
-what’s happening in China is terrible
-在中共国发生的事情太可怕了
+trade practices and repression of Uighurs
+中共的贸易行为和其对维吾尔族人的压迫
 
-but ultimately the reason
-但归根结底的理由
+Congress is working on legislation to counter China
+国会正致力于立法以对抗中共国
 
-why those people are essentially press to have no freedom
-这些人本质上是被压迫，没有自由的原因
+though it is stuck in the House
+虽然它在众议院举步维艰
 
-is because they lost and they gave up their ability to own firearms
-是因为他们丧失了并放弃了他们拥有枪支的能力
+The Republicans claim the Democrats Bill needs
+共和党人声称民主党法案需要
 
-**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
+stronger language on Taiwan and technology exports to China.
+更加强硬的语言对中共国在台湾和技术出口问题上
 
-原视频链接 [https://www.gettr.com/post/p3wey5](https://www.gettr.com/post/p3wey5)
+The two sides are also fighting over climate change provisions in the bill
+双方还在法案中的气候变化条款上争论不休
 
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
+now last month the Senate did approve a version of the bill
+现在上个月参议院确实批准了该法案的一个版本
+
+meant to confront China
+旨在对抗中共国
+
+but that would still need to pass the House
+但这仍然需要通过众议院
+
+and they have to get together and pass the same bill
+并且他们必须团结在一起通过同样的法案
+
+so it seems a bit off for now.
+所以现在看起来还没有达成一致
+
+Brian back to you,
+布赖恩，回到你那里
+
+Brian Brenberg
+布赖恩·布伦伯格
+
+Rich Edson thank you so much.
+里奇 埃德森，非常感谢你
+
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
+
+原视频链接: [https://www.youtube.com/watch?v=ik5Km8resOM](https://www.youtube.com/watch?v=ik5Km8resOM)
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 青梅煮酒
-审片：洛杉矶盘古农场-银龙
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

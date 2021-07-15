@@ -1,138 +1,210 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国需要决定他们是为了古巴人民还是古巴政府
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398286/)
+## 中国专家: 习近平正在为他的国家准备战争
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398428/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15101549/82EBD262-2672-4164-9F16-4740C4B4295D.jpeg)
-[https://gtv.org/video/id=60efccc54c6dfd47b42e2840](https://gtv.org/video/id=60efccc54c6dfd47b42e2840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15114919/20210715-vi.png)
+[https://gtv.org/video/id=60e5ea074c6dfd47b42b0d66](https://gtv.org/video/id=60e5ea074c6dfd47b42b0d66)
 
-**字幕内容:**
+**字幕内容：**
 
-Steve Bannon
-史蒂夫班农
+Maria Bartiromo (Fox Business host)
+玛丽亚·巴蒂罗莫（福克斯商业频道主持人）
 
-So you’re the chairman of the, of the new American Museum of the Cuban diaspora,
-所以你是古巴侨民新美国博物馆的主席
+Jonathan, the whole world should worry about a communist nation,
+乔纳森，全世界都应该担心的一个共产主义国家
 
-tell us what’s really going on
-告诉我们到底发生了什么?
+being the dominant superpower,
+成为占主导地位的超级大国
 
-the mainstream media is trying to point this out
-主流媒体正试图指出这是
+what does the United States need to do to slow this progress down.
+美国需要做些什么来减缓这一进程？
 
-it’s just about COVID, Is there something deeper,
-这只是关于 COVID， 有没有更深层的东西？
+We’re talking a lot about investing in Chinese companies
+我们谈论了很多关于投资中共公司的事情
 
-there are the Cuban people finally had a belly full of this
-还有就是古巴人民终于受够了这个
+and whether or not there is a ban in place
+以及是否有禁令
 
-of this transnational criminal organization which is the Communist Party in Cuba,
-这个跨国犯罪组织—古巴的共产党
+so far any policy out of the Biden administration
+到目前为止，拜登政府的任何政策
 
-are they finally prepared you think the throw it off?
-他们终于准备好了，你认为人们准备丢弃它了吗？
+has had no teeth in terms of really effectively pushing back on the CCP,
+在真正有效地反击中共方面没有强硬起来
 
-Marcell Felip (Chair, American Museum of the Cuban Diaspora)
-马塞尔·费利普（美国古巴侨民博物馆主席）
+what does the US need to do.
+美国需要做什么？
 
-Yesterday they made it extremely, extremely clear,
-昨天人们说得非常非常的清楚，
+Dr. Jonathan Ward
+乔纳森·沃德博士
 
-if anyone cared to listen to the chancellor,
-如果有人愿意听总理的话
+We need to get our bankers out of China,
+我们需要让我们的银行家离开中共国
 
-every single video that was sent from the island over
-从岛上传来的每一个视频
+let’s start with that, I mean, as you said, you know,
+让我们从那个开始，我的意思是，正如你所说的，你知道
 
-there was not one video that discussed COVID
-没有一个视频是讨论 COVID的
+people should worry about China’s ascendancy
+人们应该担心中共国的崛起
 
-or demands related to COVID
-或与 COVID 相关的诉求
+they should worry about the crimes against humanity
+人们应该担心在新疆正在
 
-every single video said two things: （西班牙语）
-每个视频都说了两件事
+that are taking place in Xinjiang
+发生的危害人类罪
 
-which is the answer to the regime
-这是对政权的回答
+they should worry about
+他们应该担心关于
 
-（西班牙语）quite frankly, this whole narrative
-坦率地说，这整个叙述
+the military buildup in the intention to take over Taiwan and the fact
+意图占领台湾的军事集结和事实上
 
-that this is a COVID based protest is a regime spin and talking point,
-这是一个基于COVID的抗议活动，是一个政权旋转的宣传
+that Xi Jinping at the end of the day when you listen to this speech.
+而习近平，请听他发表的重要演讲
 
-which has been picked up, Unfortunately, by our State Department and by certainly friendly media to the regime,
-不幸的是，我们的国务院和肯定对该政权
-友好的媒体都按照这个宣传来报道
+This is a man who’s preparing his nation for war.
+这是一个为国家准备战争的人
 
-it bears no resemblance to what’s going on on the ground, whatsoever.
-它与在街上发生的事情毫无相似之处，无论如何
+That’s what this is, and they’ve been doing
+就是这样，他们很早就一直在准备
 
-I believe that there is a fight within this administration
-我相信本届政府内部存在斗争
+that for a long time for war with us for war with their neighbors,
+与我们和其邻国的战争
 
-Jake Sullivan yesterday, issued a strong statement
-杰克沙利文昨天发表了强硬声明
+and yet you know if you’re Larry Fink you’re going into China
+然而你知道如果你是拉里-芬克，你准备要去中国
 
-that made reference to, to this illusion of COVID but again,
-提到了这种对 COVID 原因的错觉，但又一次
+if you’re if you’re Jamie Diamond you’re in China,
+如果你是杰米戴-蒙德，你是在中国
 
-Biden’s pointing to a new statement
-拜登指出一份新声明
+we all want to be in China. and, you know,
+我们都想在中共国，而且你知道
 
-that while starts off pretty strong
-虽说开始的时候很强势
+the first thing the United States could do is,
+美国可以做的第一件事是
 
-once again mentions COVID and mentioned, more importantly,
-但再次提到 COVID 并提到，更重要的是
+is get our own house in order and we stopped funding,
+得到我们自己的众议院的命令并停止
 
-this concept that the Cuban government must attend to,
-古巴政府必须要把注意力引到COVID病毒上
+the rise of our adversary
+对我们对手的崛起的投资
 
-means that the Cuban people.
-意味着古巴人民
+and the conversion of China’s economic power to military power
+和中共国经济实力向军事实力的转变
 
-See, the Cuban government is the problem
-看，看清楚，古巴政府才是问题所在
+and that was another key point in this speech,
+并且那是在这次演讲的另一个关键点
 
-that cannot be part of the solution.
-古巴政府不能成为解决方案的一部分。
+the real problem in America is
+美国真正的问题是
 
-And as we want to attend to the needs of the Cuban people,
-因为，我们想满足古巴人民的需求
+that America is sort of talking out of two sides of his mouth on one hand,
+美国一方面是从他的两党发声
 
-is like ask a third right to attend to the needs of the Jewish population.
-就像要求第三项权利来满足犹太人的需求
+we have policy in DC from from both administrations
+我们有来自DC 的两届政府的政策
 
-It makes no sense
-这是没有意义的
+that have tried to form a new strategy towards China
+试图形成对华的新战略
 
-the Cuban government has to go,
-古巴政府必须离开
+and yet on the other hand, look at the Greenwich Economic Forum
+然而另一方面，看看格林威治经济论坛
 
-and the US government has to make a decision right now,
-美国政府现在必须马上做出决定
+and it’s gonna host a bunch of Communist Party officials
+它会接待一群共产党官员
 
-if it’s going to support the Cuban people,
-它是要支持古巴人民
+And you know, promote US investment into China and vice versa.
+你知道，促进美国对中共国的投资，反之亦然
 
-or the Cuban government, it cannot do both,
-还是古巴政府，它不能两者兼而有之
+So, we’re not really playing a coherent game here,
+所以，我们在这里并不是真的在玩一个连贯的游戏
 
-as certainly administration approves the suggestion.
-当然，行政部门批准了该建议
+we’re not coherent on China as a country,
+我们对中共国这个国家的看法不一致
 
-**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
+even if we’re bipartisan in Washington,
+即使我们在华盛顿的两党
 
-原视频链接 [https://rumble.com/vjqzed-america-needs-to-decide-if-they-are-for-the-cuban-people-or-cuban-governmen.html](https://rumble.com/vjqzed-america-needs-to-decide-if-they-are-for-the-cuban-people-or-cuban-governmen.html)
+that’s our biggest problem,
+这是我们最大的问题
 
-英听校： 洛杉矶盘古农场 – Layka
+and as soon as you stop that,
+而且一旦你停下来
+
+as soon as we get Wall Street to reinvest in the United States
+一旦我们让华尔街回到美国进行投资
+
+and stop investing in China,
+并停止在中共国投资
+
+then we can start thinking about winning this game
+那么我们就可以开始考虑赢得这场竞争了
+
+until then, you know, we’re not there.
+在那之前，你知道，我们没有任何机会
+
+Maria Bartiromo
+玛丽亚·巴蒂罗莫
+
+So it’s about money, Jonathan,
+所以，乔纳森，它是关于金钱
+
+it’s just about money that for those bankers, I mean, look,
+对于那些银行家来说，这只是关于金钱，我的意思是，看，
+
+Dr. Jonathan Ward
+乔纳森·沃德博士
+
+Unfortunately
+不幸的
+
+Maria Bartiromo
+玛丽亚·巴蒂罗莫
+
+are they not recognizing the national security risks,
+难道他们没有意识到国家安全的风险吗？
+
+Dr. Jonathan Ward
+乔纳森·沃德博士
+
+they would say that Wall Street has got,
+他们会说华尔街已经做了
+
+you know, very detrimental approach to this
+你知道，对国家安全非常有害的事情
+
+because they can make money, very simply off the rise of China,
+仅仅因为他们可以赚钱，很简单得靠中共国的崛起
+
+is that good for America.
+这对美国有好处吗？
+
+Well let’s look at Xi Jinping’s speech
+来看看习近平的讲话
+
+Maria Bartiromo
+玛丽亚·巴蒂罗莫
+
+It’s a great point, Jonathan Ward
+这是一个很好的观点，乔纳森·沃德
+
+Good to have you.
+很高兴有你来
+
+Thanks very much for joining us.
+非常感谢你加入我们
+
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
+
+**原视频链接:**[https://www.youtube.com/watch?v=slfu3adG1OU](https://www.youtube.com/watch?v=slfu3adG1OU)
+
+英听校：洛杉矶盘古农场 – Layka
 翻译： 洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
+字幕+视频制作： 洛杉矶盘古农场 -文将
+审片：洛杉矶盘古农场 -银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

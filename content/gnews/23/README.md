@@ -1,52 +1,141 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】短视频：中共间谍船抵近澳洲领海监测多国海上军演
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1398143/)
+## 美国需要决定他们是为了古巴人民还是古巴政府
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398286/)
 
-#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15101549/82EBD262-2672-4164-9F16-4740C4B4295D.jpeg)
+[https://gtv.org/video/id=60efccc54c6dfd47b42e2840](https://gtv.org/video/id=60efccc54c6dfd47b42e2840)
 
-#### 翻译：Lish
+**字幕内容:**
 
-#### 校对/编辑：文泓 
+Steve Bannon
+史蒂夫班农
 
-#### 听写核对：枳实 
+So you’re the chairman of the, of the new American Museum of the Cuban diaspora,
+所以你是古巴侨民新美国博物馆的主席
 
-#### 视频剪辑字幕：七彩光 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15091224/%E6%B0%91%E4%B8%BB-4.png)
-图片来源：视频截屏
+tell us what’s really going on
+告诉我们到底发生了什么?
 
-正值澳大利亚进行大规模军演之际，中共国的间谍船再一次来到了昆士兰水域。现在让我们来连线特鲁迪-麦金托什，特鲁迪，国防部长已经坦率地表明了北京来到此地的原因。
+the mainstream media is trying to point this out
+主流媒体正试图指出这是
 
-防长彼得-达顿的言辞直截了当，他说中共国是过来监视昆士兰外海正在进行的这次大型海上军演。来自澳洲、美国、欧盟和英国以及新西兰的17000名士兵参加了这次为期两周的演习。与此同时，这艘中国船将监测正在发生的事情。澳洲政府表示，它对北京的存在非常警觉，但这并不意外。此前，他们曾在2017年和2019年将间谍船开到这里，监测代号为“护身军刀”的海上军演。以下是国防部长彼得-达顿昨晚的讲话：
+it’s just about COVID, Is there something deeper,
+这只是关于 COVID， 有没有更深层的东西？
 
-我们认为，目前印度洋总的来说还算安全，但是，即便与几年前相比，安全局势也有很大变化。因此，中共国收集关于这些演习的情报，我们在过去已经看到了这一点。毫无疑问，共产党会否认这一点，但他们的（军事）存在已经成为现实，我们希望他们在国际法范畴内运作。
+there are the Cuban people finally had a belly full of this
+还有就是古巴人民终于受够了这个
 
-真不知道他们究竟想干什么，事实上（他们）是在自欺欺人。作为我们最大的贸易伙伴没有必要在那里以这种方式行事，这已经不是第一次了。毫无疑问他们——中共，真的应该感到羞愧。
+of this transnational criminal organization which is the Communist Party in Cuba,
+这个跨国犯罪组织—古巴的共产党
 
-这艘中国船只位于澳大利亚的专属经济区内，关键是不在我们的领海内。因此，根据国际法，它确实享有航行自由的权利。**总理斯科特****–****莫里森指出，同样的权利应该适用于中共国南海**。我们知道，劳拉，当其他国家派巡逻船只通过这些水域时，却会招致北京的不满。
+are they finally prepared you think the throw it off?
+他们终于准备好了，你认为人们准备丢弃它了吗？
 
-参议员，中共在搞什么鬼？
+Marcell Felip (Chair, American Museum of the Cuban Diaspora)
+马塞尔·费利普（美国古巴侨民博物馆主席）
 
-好吧，这只是中共国在搬起石头砸自己的脚,这不是很绅士，所以说这是极其错误的。不知道他们究竟要做什么，实际上他们是在自欺欺人。我们最大的贸易伙伴没有必要在那里以这种方式行事。这已经不是第一次了。毫无疑问中共真的应该感到羞愧。你知道，真正困扰我的是什么? 就是我们已经六、七次试图在参议院就中共国问题展开调查,总理可以出来采取强硬措施，并做他想做的事情，但他不想谈论正在发生的这些事情。我希望对中共国进行公开和透明的调查。是什么阻止了自由党和工党这样做呢？祝他们下次竞选能有好运。因为我现在可以告诉你，彼得，实际上我估计每三个人就有一个想和我谈论中共国。普通人对中共国一直在施加的权力感到担忧。而且这些年来情况越来越糟。2
+Yesterday they made it extremely, extremely clear,
+昨天人们说得非常非常的清楚，
 
-是啊，副总理巴纳比最近接受我们的访谈时说，从他的选区的民众那里得到了类似的信息，即中共国才是一个比新冠病毒更大的问题。那么，你认为(间谍船上)这些人，所有在船上的中共军人，他们只是拿着望远镜坐在上面看着这些军事演习做记录？还是为了吓唬人？
+if anyone cared to listen to the chancellor,
+如果有人愿意听总理的话
 
-不，我认为这是显示恐吓与对抗。而且坦率地说，他们的职业水平很糟糕,他们应该收拾船只返回老家。这就是我的想法。
+every single video that was sent from the island over
+从岛上传来的每一个视频
 
-像“护卫军刀”这样的军事演习继续举行有多重要？
+there was not one video that discussed COVID
+没有一个视频是讨论 COVID的
 
-对我们来说，与其他国家进行联合军演真的很重要。你知道，这有助于我们提前准备，确保部队处于警戒状态。这确实很重要，不仅对美国，而且对一起参与联合演习的任何国家，都是很好的训练。而且你知道，这非常昂贵。在演习中，我们希望能够训练多国协同作战，以备我们未来可能的实战之需。没有那些演习,我们的军事能力将无法发挥出足够的水平。
+or demands related to COVID
+或与 COVID 相关的诉求
 
-**原文链接：**
+every single video said two things: （西班牙语）
+每个视频都说了两件事
 
-**1、** [China ‘embarrassing’ itself by stationing spy ship off Qld coast | Sky News Australia](https://www.skynews.com.au/world-news/china/china-embarrassing-itself-by-stationing-spy-ship-off-qld-coast/video/d9a8cec33356398fce0fea7c42ee8328)
+which is the answer to the regime
+这是对政权的回答
 
-**2、**[Chinese spy ship returns to waters off Australia | Sky News Australia](https://www.skynews.com.au/world-news/china/chinese-spy-ship-returns-to-waters-off-australia/video/07ac066aed3ea58cee7d47098fc12a5d)
+（西班牙语）quite frankly, this whole narrative
+坦率地说，这整个叙述
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+that this is a COVID based protest is a regime spin and talking point,
+这是一个基于COVID的抗议活动，是一个政权旋转的宣传
+
+which has been picked up, Unfortunately, by our State Department and by certainly friendly media to the regime,
+不幸的是，我们的国务院和肯定对该政权
+友好的媒体都按照这个宣传来报道
+
+it bears no resemblance to what’s going on on the ground, whatsoever.
+它与在街上发生的事情毫无相似之处，无论如何
+
+I believe that there is a fight within this administration
+我相信本届政府内部存在斗争
+
+Jake Sullivan yesterday, issued a strong statement
+杰克沙利文昨天发表了强硬声明
+
+that made reference to, to this illusion of COVID but again,
+提到了这种对 COVID 原因的错觉，但又一次
+
+Biden’s pointing to a new statement
+拜登指出一份新声明
+
+that while starts off pretty strong
+虽说开始的时候很强势
+
+once again mentions COVID and mentioned, more importantly,
+但再次提到 COVID 并提到，更重要的是
+
+this concept that the Cuban government must attend to,
+古巴政府必须要把注意力引到COVID病毒上
+
+means that the Cuban people.
+意味着古巴人民
+
+See, the Cuban government is the problem
+看，看清楚，古巴政府才是问题所在
+
+that cannot be part of the solution.
+古巴政府不能成为解决方案的一部分。
+
+And as we want to attend to the needs of the Cuban people,
+因为，我们想满足古巴人民的需求
+
+is like ask a third right to attend to the needs of the Jewish population.
+就像要求第三项权利来满足犹太人的需求
+
+It makes no sense
+这是没有意义的
+
+the Cuban government has to go,
+古巴政府必须离开
+
+and the US government has to make a decision right now,
+美国政府现在必须马上做出决定
+
+if it’s going to support the Cuban people,
+它是要支持古巴人民
+
+or the Cuban government, it cannot do both,
+还是古巴政府，它不能两者兼而有之
+
+as certainly administration approves the suggestion.
+当然，行政部门批准了该建议
+
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
+
+原视频链接 [https://rumble.com/vjqzed-america-needs-to-decide-if-they-are-for-the-cuban-people-or-cuban-governmen.html](https://rumble.com/vjqzed-america-needs-to-decide-if-they-are-for-the-cuban-people-or-cuban-governmen.html)
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
