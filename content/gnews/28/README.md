@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【NewsExpress】成龙说他渴望加入中国共产党
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1396664/)
+## 【NewsExpress】自由女神的妹妹“自由照亮世界”落户华盛顿
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1396921/)
 
-著名演员成龙在中共国电影协会的座谈会上表示，他想加入中国共产党，这是成龙在他的出生地香港被控制的情况下对国家做出的最公开的忠诚誓言。据《综艺》报道，成龙说 ，“在国外他们常说，身为中国人而自豪。我很幸运能成为中国人，但我也很嫉妒你们都是党员。我只是觉得中国共产党真的很了不起”。
+美国有线电视新闻网2021年7月14日报道：自由女神像在纽约港正式揭幕一百三十五年后，她的“小妹妹”已在法国大使位于华盛顿特区的家门前居住。
 
-“我要当党员！”在中国国家主席习近平发表主旨演讲一周后他发表了上述言论，他在演讲中谴责各国试图阻止中共国的全球崛起。伴随着八路军战士的表演。 “我觉得我们共产党的八路军真了不起！”成龙说。
+微型自由女神像将于周三与美国国务卿安东尼·布林肯和法国外交部长让·伊夫·勒德里昂在法国巴士底狱举行的仪式上正式落成。法国大使菲利普·艾蒂安 (Philippe Etienne) 说，在美国拥有这座雕像“意义重大”，“强烈提醒法国人民与美国人民之间的友谊。”“这提醒人们自由这一核心价值对世界的重要性，”他告诉美国有线电视新闻网，并指出自由女神像的正式名称是“自由照亮世界”。
 
-成龙此前曾表示支持大陆，大陆采取行动阻挠香港的民主努力。 “我不确定拥有自由是否好，”他在 2009 年的一次会议上说。 “我逐渐开始觉得我们中国人需要被控制。如果我们不受控制，我们就会做我们想做的事。”
+“小妹妹”是原版的精确复制品，但尺寸是原来的十六分之一。它由雕塑家奥古斯特·巴托尔迪 (Auguste Bartholdi) 1878 年的石膏模型制成，并在开始前往美国之前在巴黎国家工艺美术博物馆展出了十年。
 
-简评：在国际围剿中共国的大势下，成龙依然为发动生化战，实施种族大屠杀和剥夺香港民主自由的邪恶独裁政党站台，只好祝他跟着共产党走进火葬场一路走好。
+CMA CGM 北美总裁埃德·奥尔德里奇 (Ed Aldridge) 表示，6 月初，这座重 1,000 磅、高 9 英尺的雕像从博物馆中卸下，被雕像处理运输和物流的公司放在“专门为我们的‘小妹妹’定制的有机玻璃容器中”。
 
-新闻来源：[thedailybeast](https://www.thedailybeast.com/jackie-chan-says-hes-eager-to-join-chinese-communist-party)
+参考链接：
 
-编译： Boxinglady
+[https://edition.cnn.com/2021/07/14/politics/statue-of-liberty-little-sister-washington-dc/index.html?utm\_medium=social&utm\_source=twCNNi&utm\_content=2021-07-14T22%3A17%3A05&utm\_term=link](https://edition.cnn.com/2021/07/14/politics/statue-of-liberty-little-sister-washington-dc/index.html?utm_medium=social&amp;utm_source=twCNNi&amp;utm_content=2021-07-14T22%3A17%3A05&amp;utm_term=link)
 
-校对发稿：Ada(马德里）
+翻译整理：蓝精灵
 
-本文只代表个人观点，不代表 Gnews 平台
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

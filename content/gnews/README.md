@@ -12,20 +12,20 @@
 
 ---
 
-### [美国对中共国在新疆的镇压发起新一轮抨击](/content/gnews/1/README.md)
+### [2021-07-14 文贵先生直播：蛇妖闫，路德骗亡腚肛自爆](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【灭共头条】一场大戏——从万众敬仰到千夫所指](/content/gnews/2/README.md)
- ` 秘密翻译组-原创组`
+### [用闫丽梦的矛，攻闫丽梦的盾，看看她是天使还是魔鬼？](/content/gnews/2/README.md)
+ ` 闪电侠`
 
-### [中共恶意黑客攻击盖特](/content/gnews/3/README.md)
+### [【文雍漫谈】我们都低估了人性中的恶](/content/gnews/3/README.md)
+ ` 文雍`
+
+### [带血的疫苗经济——（科兴）疫苗背后的真相](/content/gnews/4/README.md)
+ ` 新西兰NZ-财经G乐部`
+
+### [美国对中共国在新疆的镇压发起新一轮抨击](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【G时评】警惕CCP“以爆灭爆”中挖好的坑](/content/gnews/4/README.md)
- ` GISELLE`
-
-### [闫丽梦和路德破釜沉舟——中共真相与欺骗交织的超限战实际案例](/content/gnews/5/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
 ### [【文贵直播摘录】7月14日：“亡腚缸”和“蛇妖闫”的背叛是给爆料革命的一份礼物，有助于扫除爆料革命队伍中的垃圾](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
@@ -66,40 +66,40 @@
 ### [墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [7/12/2021 蛇妖闫现形记：蛇妖阎突然变脸诋毁郭先生和战友们,却不知它的大头里到底装了多少病毒证据？](/content/gnews/19/README.md)
+### [郭先生病后直播：金云大师早看出闫是蛇精，亡腚肛是癞蛤蟆](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021-07-14 文贵先生直播：蛇妖闫，路德骗亡腚肛自爆](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [7/12/2021 蛇妖闫现形记：蛇妖阎突然变脸诋毁郭先生和战友们,却不知它的大头里到底装了多少病毒证据？](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [7/12/2021 路骗现形记：路骗开始叫嚣与爆料革命、文贵先生和新中国联邦切割](/content/gnews/20/README.md)
+### [7/12/2021 路骗现形记：路骗开始叫嚣与爆料革命、文贵先生和新中国联邦切割](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [【魔鬼集团现行记】：直播视频打脸“路骗”](/content/gnews/21/README.md)
+### [【魔鬼集团现行记】：直播视频打脸“路骗”](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [蛇妖闫 亡腚肛 现形记](/content/gnews/22/README.md)
+### [蛇妖闫 亡腚肛 现形记](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [女议员呼吁 不要那些大佬决定谁是我们的司令](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [Snow 降魔除妖](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【NewsExpress】自由女神的妹妹“自由照亮世界”落户华盛顿](/content/gnews/25/README.md)
+### [【NewsExpress】巴基斯坦扣留五艘涉嫌非法捕鱼的中共国拖网渔船](/content/gnews/25/README.md)
  ` 闪电侠`
 
-### [用闫丽梦的矛，攻闫丽梦的盾，看看她是天使还是魔鬼？](/content/gnews/26/README.md)
+### [【NewsExpress】美国国际集团向 Blackstone 出售人寿和退休业务的股份](/content/gnews/26/README.md)
  ` 闪电侠`
 
-### [【NewsExpress】巴西总统称博尔索纳罗住院寻找打嗝的原因](/content/gnews/27/README.md)
+### [【NewsExpress】字节跳动布局地产 在杭州插入阿里心脏](/content/gnews/27/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】自由女神的妹妹“自由照亮世界”落户华盛顿](/content/gnews/28/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】巴西总统称博尔索纳罗住院寻找打嗝的原因](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [【NewsExpress】成龙说他渴望加入中国共产党](/content/gnews/28/README.md)
- ` 索尼克`
-
-### [【NewsExpress】中共国将派400多名运动员参加东京奥运会](/content/gnews/29/README.md)
- ` 索尼克`
-
-### [【NewsExpress】气候变化借口不应成为中共国践踏人权的通行证](/content/gnews/30/README.md)
+### [【NewsExpress】成龙说他渴望加入中国共产党](/content/gnews/30/README.md)
  ` 索尼克`
 
 ### [DC每日热点0714](/content/gnews/31/README.md)
