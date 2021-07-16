@@ -1,79 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 成千上万的香港人用脚投票，香港人的外流步伐加快
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1398517/)
+## FDA可能会在严冬前授权儿童接种 COVID-19 疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1399018/)
 
-- 作者：Jenny Ball
+**编译：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15204910/57617653_101.jpg)
+美国食品和药物管理局可能会在严冬前授予允许儿童接种COVID-19疫苗的紧急使用权。
 
+到目前为止，FDA只为12岁以上的人提供COVID-19疫苗的紧急批准。辉瑞和 Moderna 目前都在为 12 岁以下的人进行试验。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+尽管预计试验结果将在秋季公布，但 FDA 的一位官员告诉NBC新闻，最快将在隆冬为12 岁以下的孩子授予可接种疫苗的权利，因为该机构需要更多的安全数据。对于成年人，FDA 要求在疫苗试验后提供两个月的后续安全数据。 12岁以下儿童的试验需要四到六个月的时间。
 
-**西班牙2021年7月15日电/西喜社**
+Buddy Creech 博士——Moderna临床试验的主要研究人员之一，说预测将推出类似于辉瑞的儿科数据，其中包括年仅6个月大的儿童。
 
-香港，仪式般的情景每天都在展现。
+他补充说，要获得儿童数据需要很长时间，想要获得5岁及以下儿童的数据可能需要更长的时间。
 
-在一个几乎空无一人的机场航站楼，数百人排队等候单程旅行。年迈的父母拄着拐杖送别他们的成年子女和孙子孙女，他们在与多年不见的亲人合影时拥抱哭泣。他们的目的地：英国。
+（本文只代表作者观点，与Gnews平台无关。）
 
-最近一天，32 岁的张（ Cheung ）脖子上挂着一个旅行枕头，他放下行李登上英国航空公司飞往伦敦的航班。当他们与家人和朋友一起走过航站楼时，他拍了拍父亲的背——但当他靠向移民门时，他的父亲开始哭泣。
+**新闻来源**：[FDA may authorize COVID-19 vaccine for children by midwinter | Washington Examiner](https://www.washingtonexaminer.com/news/fda-may-authorize-covid-19-vaccine-for-children-by-midwinter)
 
-“很遗憾，我们在这种情况下离开，”张说，因为担心受到影响，他只透露了自己的姓氏。
+***校对发布：文顾***
 
-香港人对北京迅速侵蚀他们的自由感到震惊，他们正在用脚投票。根据激进投资者大卫·韦伯 (David Webb) 编制的政府数据，本月人员外流速度加快，居民的净流出量通常每天超过 1,000 人，即使大流行继续在影响着旅行。许多移民正在接受英国提供的避风港，并为其前殖民地的约 500 万居民提供了获得公民身份的途径，这是为应对北京对香港这个金融中心的镇压而引入的法案。
-
-英国政府预计五年内将有大约 30 万人搬迁，这将是该国最大的移民潮之一。（[Letters from Hong Kong’s jails](https://www.washingtonpost.com/world/interactive/2021/hong-kong-security-law-activists-prison/?itid=lk_interstitial_manual_11)）
-
-与其他数千人一样，当港府在 2019 年镇压民主抗议活动时，张先生开始计划离开，这些抗议活动是由一项允许引渡到中共国大陆的提议引发的。北京随后出台了一项限制言论自由并导致数十名民主活动人士入狱的国家安全法，这“三重事实”坚定了他的决定。（[jailing of dozens of pro-democracy activists](https://www.washingtonpost.com/world/interactive/2021/hong-kong-security-law-activists-prison/?itid=lk_inline_manual_12) ）
-
-“最初，我们还有一些希望，200 万人上街抗议可以成为香港变得更好的起点，”张说。但政府的反应表明它“反对”人民。他补充说这座城市“在各个方面都不适合居住，无论是政治、经济还是社会政策。”
-
-香港经历了之前的移民潮，特别是在 1997 年返回中共国之前，当时成千上万的人从加拿大和澳大利亚等地获得了外国居留权或护照。通常情况下，当他们的配偶和孩子出国时，父母会留下来—允许这些“宇航员家庭”与香港保持联系，并对中共国统治下的生活采取“观望”的态度。香港大学社会科学学院院长助理叶兆辉（Paul Yip Siu-fai）说。（注明：宇航员家庭是指80年代初中共国人移居国外、承包工作或定居后将钱和收入寄回家，以养活留在家乡的家庭的新经济来源。香港和台湾是最早以航天员家庭为中心的。）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15132137/unknown-1-10.png)人们在香港机场排队办理登机手续。 （文森特于/美联社）
-
-许多人最终返回香港。但如果当时存在不确定性，现在香港的道路看起来更加清晰。
-
-“他们回来的机会较低，”叶说，并指出，年迈的父母很可能被留在香港。
-
-国安法重塑了香港，使人们不再希望中共国会信守承诺，在 2047 年之前维护这座城市的自由。除了将异议定为刑事犯罪，最高可判处终身监禁，当局还利用该法禁止歌曲和口号、阻止发行被视为颠覆性的电影，并在政府冻结公司资产后迫使民主的《苹果日报》关闭。 由于担心模糊的红线和现在经常逮捕活动人士，数十个民间社会团体和工会已经解散。
-
-与此同时，中共国彻底改革了香港的选举制度，以防止民主阵营赢得权力，并禁止政府反对派担任公职。（相关链接如下）
-
-- [overhauled Hong Kong’s electoral system](https://www.washingtonpost.com/world/asia_pacific/china-hongkong-election-legislature/2021/03/30/bb1f405c-912d-11eb-aadc-af78701a30ca_story.html?itid=lk_inline_manual_21)
-- [barred government opponents](https://www.washingtonpost.com/world/asia_pacific/china-hong-kong-patriot-democracy/2021/02/23/98202106-75ae-11eb-9489-8f7dacd51e75_story.html?itid=lk_inline_manual_21)
-- [Hong Kong*’*s Apple Daily newspaper folds under government pressure](https://www.washingtonpost.com/world/asia_pacific/hong-kong-apple-daily-closes/2021/06/23/7926de56-d3f6-11eb-b39f-05a2d776b1f4_story.html?itid=lk_interstitial_manual_22)
-
-
-离开的人包括许多中产阶级家庭。 “他们拥有更多资源，因此希望能够选择孩子的教育，”叶说。
-
-他们也在把钱拿出香港。香港强制性公积金系统的养老金数据显示，过去一年提取的金额激增，在 2020 年最后三个月和 2021 年第一季度再次达到约 2.5 亿美元。离境时提取退休储蓄的人，必须签署声明，声明他们不打算回港工作或永久居住。
-
-在周末的一次电台采访中，香港领导人林郑月娥表示，她“尊重人们为家人做出的个人选择”，外流并不是一个“大问题”。 她补充说，来自中共国和其他地方的有才华的工人希望来香港发展自己的事业。
-
-“离开的人最终会意识到香港有多好，”林说。
-
-《十年》电影描绘了香港的黑暗景象。 在那段时间里，生活模仿了艺术。
-
-有些人选择台湾、加拿大、澳大利亚或美国，但很大一部分人选择了英国。为响应国安法，英国首相鲍里斯·约翰逊（Boris Johnson）政府去年放宽了移民壁垒，允许 1997 年之前在香港出生的人在英国逗留五年，六年后申请英国公民身份。任何符合英国国民（海外）护照的人都可以申请特殊签证； 根据英国内政部的数据，第一季度约有 34,300 人这样做，而根据其他规定，还有数千人获准入境。（[thousands more have been granted entry](https://committees.parliament.uk/publications/6564/documents/71253/default/) ）
-
-反过来，香港和中共国政府不再承认 BN(O) 护照，使持有该文件的人更难获得他们的退休储蓄。8 月 1 日生效的新措施，授予当局阻止人们离开香港的权力。
-
-接受《华盛顿邮报》采访的家庭将教育视为决定因素，有些人指出，香港的“爱国教育”运动，学生现在必须从小就学习国安法。一些出版商修改了历史教科书以符合北京的观点，以期通过教育许可官员的审查，偏离课程的教师可能面临停止教学或撤销注册。
-
-32 岁的杰弗里·刘（Jeffrey Lau ） 7 月 5 日与妻子和两个儿子一起离开，他说，去年他帮助大儿子从当地学校转到国际学校，但后来决定在英国让他的孩子受教育是最好的。
-
-“自由的收紧影响了我们的孩子，”刘说。 “我们选择这个时间离开，因为现在我大儿子是学校假期。”他在英国还没有工作，但刘并不担心——他这样做是为了让他的孩子们可以自由地生活。“最重要的是他们的未来，”他说。
-
-**评论：读着读着就流泪，翻译着就止不住的心痛！2019年6月开始，坚持了一年之久的香港年轻人为主的抗争运动，那一幕幕中共流氓政府指挥的港府和黑社会，对抗争青年的残酷镇压、暗杀、虐待 、被自杀，现在仍历历在目不寒而颤。曾经是东方之珠的香港青年用他们的生命在告诉世界，中共政权是如何肆意践踏世界公约！他们用生命在展现中共政权对维护自己权利和自由的残酷罪行！他们在用生命发出这呼呼：香港的今天，就是世界的明天！**
-
-**不幸的是，世界的无视让世界现在正在经历着香港的遭遇， 在中共的病毒超限战中丧失了无数的生命，一个一个的权利自由被剥夺！**
-
-**香港之所以是我们新中国联邦人心中的圣城，是因为香港人民争取自由的决心和勇气。它在激励着我们爆料革命的战友们，坚持揭露中共假恶丑的真相，勇敢的战斗在灭共的事业中！为了不让我们的世界变成下一个香港，为了不让我们的后代遭受共产主义的毒害，我们不灭中共誓不休！**
-
-素材来源：[www.washingtonpost.com](https://www.washingtonpost.com/world/2021/07/14/hong-kong-exodus-britain-emigration/?utm_campaign=wp_todays_worldview&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_todayworld&amp;carta-url=https://s2.washingtonpost.com/car-ln-tr/3426b42/60efb1e59d2fda945a04f99b/5e2dde419bbc0f6326309bfd/66/78/60efb1e59d2fda945a04f99b)
-
-审核：文乐； 校对：信心满满； 发稿：信心的选择
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15134433/GNEWS_CH..jpeg)
-
-+1
+0

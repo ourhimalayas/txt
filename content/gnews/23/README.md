@@ -1,137 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国需要决定他们是为了古巴人民还是古巴政府
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398286/)
+## 我们已经看到古巴、香港和中共国发生的事情，我们必须不惜一切代价捍卫我们的第二修正案
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398325/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15101549/82EBD262-2672-4164-9F16-4740C4B4295D.jpeg)
-[https://gtv.org/video/id=60efccc54c6dfd47b42e2840](https://gtv.org/video/id=60efccc54c6dfd47b42e2840)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15104952/2EDD87D6-359B-406C-BD67-A4635CD9025D.jpeg)
+[https://gtv.org/video/id=60ef213c4c6dfd47b42dd5e5](https://gtv.org/video/id=60ef213c4c6dfd47b42dd5e5)
 
 **字幕内容:**
 
-Steve Bannon
-史蒂夫班农
+Anna Paulina Luna
+安娜·宝琳娜·卢娜
 
-So you’re the chairman of the, of the new American Museum of the Cuban diaspora,
-所以你是古巴侨民新美国博物馆的主席
+One more thing I forgot to tell you guys, you know, again
+还有一件事我忘了告诉你们，你们知道，再次
 
-tell us what’s really going on
-告诉我们到底发生了什么?
+the difference between us and a lot of these other countries that we see around the world
+我们与我们在世界各地看到的许多其他国家之间的差异
 
-the mainstream media is trying to point this out
-主流媒体正试图指出这是
+that are pressing your citizens
+是，如果政府对公民镇压
 
-it’s just about COVID, Is there something deeper,
-这只是关于 COVID， 有没有更深层的东西？
+is that here in the United States we have the Second Amendment
+在美国这里，我们有第二修正案赋予人们持枪反击的权利
 
-there are the Cuban people finally had a belly full of this
-还有就是古巴人民终于受够了这个
+and I think what this is showing us is these people
+我认为这向我们证明
 
-of this transnational criminal organization which is the Communist Party in Cuba,
-这个跨国犯罪组织—古巴的共产党
+that literally flee Cuba to try to come to the United States
+那些逃离古巴试图来到美国的人
 
-are they finally prepared you think the throw it off?
-他们终于准备好了，你认为人们准备丢弃它了吗？
+actually have genuine Asylum cases
+实际上有真正的庇护案件
 
-Marcell Felip (Chair, American Museum of the Cuban Diaspora)
-马塞尔·费利普（美国古巴侨民博物馆主席）
+what sets us apart is the fact that we can defend ourselves
+让我们与众不同的是，我们可以保护自己
 
-Yesterday they made it extremely, extremely clear,
-昨天人们说得非常非常的清楚，
+and because we have the Second Amendment
+因为我们有第二修正案
 
-if anyone cared to listen to the chancellor,
-如果有人愿意听总理的话
+it empowers people over government and over bad actors in government
+它使人民有能力战胜政府，战胜政府中那些
 
-every single video that was sent from the island over
-从岛上传来的每一个视频
+that would essentially want to oppress their citizens
+本质上想压迫其公民的不良行为者
 
-there was not one video that discussed COVID
-没有一个视频是讨论 COVID的
+that’s a whole reason and Foundation as to why our founding fathers put that into effect
+这就是我们的开国之父为何将其付诸实施的一个完整原因和基础
 
-or demands related to COVID
-或与 COVID 相关的诉求
+and for someone like me who is not just
+对于像我这样的人，我认为
 
-every single video said two things: （西班牙语）
-每个视频都说了两件事
+I think develop this really deep sense of patriotism
+不只是培养这种非常深刻的爱国主义意识
 
-which is the answer to the regime
-这是对政权的回答
+whether it was in my military experience or whether it was understanding that as a woman
+无论是在我的军事经历中还是作为女性的理解
 
-（西班牙语）quite frankly, this whole narrative
-坦率地说，这整个叙述
+that the concept of a firearm is truly ultimately the equalizer
+枪支的概念最终是能够保护自己的
+in regards to being able to defend yourself
+平等因素
 
-that this is a COVID based protest is a regime spin and talking point,
-这是一个基于COVID的抗议活动，是一个政权旋转的宣传
+but think about what’s happening right now
+但想想现在正在发生的事情
 
-which has been picked up, Unfortunately, by our State Department and by certainly friendly media to the regime,
-不幸的是，我们的国务院和肯定对该政权
-友好的媒体都按照这个宣传来报道
+look at the footage is coming out of Cuban
+看看从古巴出来的境况
 
-it bears no resemblance to what’s going on on the ground, whatsoever.
-它与在街上发生的事情毫无相似之处，无论如何
+understand that there actively on a regular basis
+了解每时每刻都有一些人
 
-I believe that there is a fight within this administration
-我相信本届政府内部存在斗争
+people that don’t want American citizens to have firearms to defend themselves
+不希望美国公民拥有枪支来保护自己
 
-Jake Sullivan yesterday, issued a strong statement
-杰克沙利文昨天发表了强硬声明
+and ultimately it is your job it is the elected officials
+归根结底，这是你的工作，是你推举的民选官员的工作
 
-that made reference to, to this illusion of COVID but again,
-提到了这种对 COVID 原因的错觉，但又一次
+that you put into power it is their job
+他们的工作是维护
 
-Biden’s pointing to a new statement
-拜登指出一份新声明
+to stand up for your rights to keep and bear arms
+持有和携带武器的权利
 
-that while starts off pretty strong
-虽说开始的时候很强势
+remember all that I wanted to share that thought with you
+记住，我想和你分享的这个想法
 
-once again mentions COVID and mentioned, more importantly,
-但再次提到 COVID 并提到，更重要的是
+because I feel like a lot of people are not understanding
+因为我觉得很多人不理解
 
-this concept that the Cuban government must attend to,
-古巴政府必须要把注意力引到COVID病毒上
+that yes was happening in Cuba was terrible
+是的，发生在古巴是可怕的
 
-means that the Cuban people.
-意味着古巴人民
+was happening in Hong Kong is terrible
+在香港发生的事情太可怕了
 
-See, the Cuban government is the problem
-看，看清楚，古巴政府才是问题所在
+what’s happening in China is terrible
+在中共国发生的事情太可怕了
 
-that cannot be part of the solution.
-古巴政府不能成为解决方案的一部分。
+but ultimately the reason
+但归根结底的理由
 
-And as we want to attend to the needs of the Cuban people,
-因为，我们想满足古巴人民的需求
+why those people are essentially press to have no freedom
+这些人本质上是被压迫，没有自由的原因
 
-is like ask a third right to attend to the needs of the Jewish population.
-就像要求第三项权利来满足犹太人的需求
+is because they lost and they gave up their ability to own firearms
+是因为他们丧失了并放弃了他们拥有枪支的能力
 
-It makes no sense
-这是没有意义的
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
 
-the Cuban government has to go,
-古巴政府必须离开
-
-and the US government has to make a decision right now,
-美国政府现在必须马上做出决定
-
-if it’s going to support the Cuban people,
-它是要支持古巴人民
-
-or the Cuban government, it cannot do both,
-还是古巴政府，它不能两者兼而有之
-
-as certainly administration approves the suggestion.
-当然，行政部门批准了该建议
-
-**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-原视频链接 [https://rumble.com/vjqzed-america-needs-to-decide-if-they-are-for-the-cuban-people-or-cuban-governmen.html](https://rumble.com/vjqzed-america-needs-to-decide-if-they-are-for-the-cuban-people-or-cuban-governmen.html)
+原视频链接 [https://www.gettr.com/post/p3wey5](https://www.gettr.com/post/p3wey5)
 
 英听校： 洛杉矶盘古农场 – Layka
 翻译： 洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+字幕+视频制作：洛杉矶盘古农场- 青梅煮酒
 审片：洛杉矶盘古农场-银龙
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

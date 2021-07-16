@@ -1,209 +1,148 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国专家: 习近平正在为他的国家准备战争
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398428/)
+## 国务院称他们“注意到”中共国的威胁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1398489/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15114919/20210715-vi.png)
-[https://gtv.org/video/id=60e5ea074c6dfd47b42b0d66](https://gtv.org/video/id=60e5ea074c6dfd47b42b0d66)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15124024/Screenshot-2021-07-15-093912.png)
+[https://gtv.org/video/id=60e5ea3f4c6dfd47b42b0d76](https://gtv.org/video/id=60e5ea3f4c6dfd47b42b0d76)
 
-**字幕内容：**
+**字幕内容:**
 
-Maria Bartiromo (Fox Business host)
-玛丽亚·巴蒂罗莫（福克斯商业频道主持人）
+Brian Brenberg(Fox business host)
+布赖恩·布伦伯格（福克斯商业频道主持人）
 
-Jonathan, the whole world should worry about a communist nation,
-乔纳森，全世界都应该担心的一个共产主义国家
+President Xi warning any country that attempts to bully China
+习主席警告任何企图欺负中共国的国家
 
-being the dominant superpower,
-成为占主导地位的超级大国
+will face “broken heads and bloodshed”
+将面临“头破血流”
 
-what does the United States need to do to slow this progress down.
-美国需要做些什么来减缓这一进程？
+This is at the 100th anniversary of the communist party
+这是他在共产党成立100周年的纪念仪式上的发言
 
-We’re talking a lot about investing in Chinese companies
-我们谈论了很多关于投资中共公司的事情
+U.S. state department responding to these threats saying
+美国国务院回应这些威胁时说
 
-and whether or not there is a ban in place
-以及是否有禁令
+only they are taking note of them
+他们只是注意到共产党的威胁
 
-so far any policy out of the Biden administration
-到目前为止，拜登政府的任何政策
+Fox News Rich Edson is live from the state department with the details
+福克斯新闻里奇埃德森在国务院现场直播并介绍细节
 
-has had no teeth in terms of really effectively pushing back on the CCP,
-在真正有效地反击中共方面没有强硬起来
+Rich
+里奇
 
-what does the US need to do.
-美国需要做什么？
+Rich Edson （Fox News reporter)
+里奇 埃德森（福克斯新闻记者）
 
-Dr. Jonathan Ward
-乔纳森·沃德博士
+Good afternoon, Brian
+下午好！布莱恩
 
-We need to get our bankers out of China,
-我们需要让我们的银行家离开中共国
+This is part of a more aggressive tone from China’s government
+这是中国政府更加咄咄逼人的语气的威胁
 
-let’s start with that, I mean, as you said, you know,
-让我们从那个开始，我的意思是，正如你所说的，你知道
+towards the west and especially the United States
+对西方尤其是美国来说
 
-people should worry about China’s ascendancy
-人们应该担心中共国的崛起
+The State Department refused to respond to those specific comments from Chinese presi-dent Xi Jinping
+国务院拒绝回应中共国家主席习近平的这些具体评论
 
-they should worry about the crimes against humanity
-人们应该担心在新疆正在
+though they say officials here are watching
+虽然他们说白宫官员正在对此观察
 
-that are taking place in Xinjiang
-发生的危害人类罪
+Edward “Ned” Price (state department spokesman)
+爱德华“内德”普莱斯（国务院发言人）
 
-they should worry about
-他们应该担心关于
+Of course we’re aware that Chinese Communist Party commemorated its 100th anniver-sary today
+当然我们注意到今天是中国共产党建党100周年的纪念
 
-the military buildup in the intention to take over Taiwan and the fact
-意图占领台湾的军事集结和事实上
+We’re aware of president Xi’s remarks and taken a note of them
+我们注意到习主席的表态并注意到这些言论
 
-that Xi Jinping at the end of the day when you listen to this speech.
-而习近平，请听他发表的重要演讲
+But won’t comment on the specifics
+但不会评论具体情况
 
-This is a man who’s preparing his nation for war.
-这是一个为国家准备战争的人
+Rich Edson
+里奇 ·埃德森
 
-That’s what this is, and they’ve been doing
-就是这样，他们很早就一直在准备
+The state department also says
+国务院还通报了
 
-that for a long time for war with us for war with their neighbors,
-与我们和其邻国的战争
+reports of China’s nuclear arsenal growing more quickly
+关于中共国核武库增长更加快速的消息
 
-and yet you know if you’re Larry Fink you’re going into China
-然而你知道如果你是拉里-芬克，你准备要去中国
+and higher level than expected were concerning
+其速度高于预期的水平令人担忧
 
-if you’re if you’re Jamie Diamond you’re in China,
-如果你是杰米戴-蒙德，你是在中国
+In his speech marking the 100th anniversary of the Chinese Communist Party
+在庆祝中国共产党成立100周年的讲话中
 
-we all want to be in China. and, you know,
-我们都想在中共国，而且你知道
+President Xi also warned adversaries would face a ‘Great Wall of Steel’
+习主席还警告对手将面临一个“钢铁长城”
 
-the first thing the United States could do is,
-美国可以做的第一件事是
+The Rhetoric between the U.S. and China has intensified
+中美之间的口水战愈演愈烈
 
-is get our own house in order and we stopped funding,
-得到我们自己的众议院的命令并停止
+especially over Covid-19 vaccine distribution
+特别是在 Covid-19 疫苗分发方面
 
-the rise of our adversary
-对我们对手的崛起的投资
+and China’s refusal to allow a transparent investigation into the origins of Covid-19
+以及中国拒绝允许对 Covid-19 的起源进行透明调查
 
-and the conversion of China’s economic power to military power
-和中共国经济实力向军事实力的转变
+the U.S. has also criticized China’s crackdown in Hong Kong
+美国也批评中共国打压香港
 
-and that was another key point in this speech,
-并且那是在这次演讲的另一个关键点
+trade practices and repression of Uighurs
+中共的贸易行为和其对维吾尔族人的压迫
 
-the real problem in America is
-美国真正的问题是
+Congress is working on legislation to counter China
+国会正致力于立法以对抗中共国
 
-that America is sort of talking out of two sides of his mouth on one hand,
-美国一方面是从他的两党发声
+though it is stuck in the House
+虽然它在众议院举步维艰
 
-we have policy in DC from from both administrations
-我们有来自DC 的两届政府的政策
+The Republicans claim the Democrats Bill needs
+共和党人声称民主党法案需要
 
-that have tried to form a new strategy towards China
-试图形成对华的新战略
+stronger language on Taiwan and technology exports to China.
+更加强硬的语言对中共国在台湾和技术出口问题上
 
-and yet on the other hand, look at the Greenwich Economic Forum
-然而另一方面，看看格林威治经济论坛
+The two sides are also fighting over climate change provisions in the bill
+双方还在法案中的气候变化条款上争论不休
 
-and it’s gonna host a bunch of Communist Party officials
-它会接待一群共产党官员
+now last month the Senate did approve a version of the bill
+现在上个月参议院确实批准了该法案的一个版本
 
-And you know, promote US investment into China and vice versa.
-你知道，促进美国对中共国的投资，反之亦然
+meant to confront China
+旨在对抗中共国
 
-So, we’re not really playing a coherent game here,
-所以，我们在这里并不是真的在玩一个连贯的游戏
+but that would still need to pass the House
+但这仍然需要通过众议院
 
-we’re not coherent on China as a country,
-我们对中共国这个国家的看法不一致
+and they have to get together and pass the same bill
+并且他们必须团结在一起通过同样的法案
 
-even if we’re bipartisan in Washington,
-即使我们在华盛顿的两党
+so it seems a bit off for now.
+所以现在看起来还没有达成一致
 
-that’s our biggest problem,
-这是我们最大的问题
+Brian back to you,
+布赖恩，回到你那里
 
-and as soon as you stop that,
-而且一旦你停下来
+Brian Brenberg
+布赖恩·布伦伯格
 
-as soon as we get Wall Street to reinvest in the United States
-一旦我们让华尔街回到美国进行投资
+Rich Edson thank you so much.
+里奇 埃德森，非常感谢你
 
-and stop investing in China,
-并停止在中共国投资
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
 
-then we can start thinking about winning this game
-那么我们就可以开始考虑赢得这场竞争了
-
-until then, you know, we’re not there.
-在那之前，你知道，我们没有任何机会
-
-Maria Bartiromo
-玛丽亚·巴蒂罗莫
-
-So it’s about money, Jonathan,
-所以，乔纳森，它是关于金钱
-
-it’s just about money that for those bankers, I mean, look,
-对于那些银行家来说，这只是关于金钱，我的意思是，看，
-
-Dr. Jonathan Ward
-乔纳森·沃德博士
-
-Unfortunately
-不幸的
-
-Maria Bartiromo
-玛丽亚·巴蒂罗莫
-
-are they not recognizing the national security risks,
-难道他们没有意识到国家安全的风险吗？
-
-Dr. Jonathan Ward
-乔纳森·沃德博士
-
-they would say that Wall Street has got,
-他们会说华尔街已经做了
-
-you know, very detrimental approach to this
-你知道，对国家安全非常有害的事情
-
-because they can make money, very simply off the rise of China,
-仅仅因为他们可以赚钱，很简单得靠中共国的崛起
-
-is that good for America.
-这对美国有好处吗？
-
-Well let’s look at Xi Jinping’s speech
-来看看习近平的讲话
-
-Maria Bartiromo
-玛丽亚·巴蒂罗莫
-
-It’s a great point, Jonathan Ward
-这是一个很好的观点，乔纳森·沃德
-
-Good to have you.
-很高兴有你来
-
-Thanks very much for joining us.
-非常感谢你加入我们
-
-**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-**原视频链接:**[https://www.youtube.com/watch?v=slfu3adG1OU](https://www.youtube.com/watch?v=slfu3adG1OU)
-
+原视频链接: [https://www.youtube.com/watch?v=ik5Km8resOM](https://www.youtube.com/watch?v=ik5Km8resOM)
 英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作： 洛杉矶盘古农场 -文将
-审片：洛杉矶盘古农场 -银龙
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
