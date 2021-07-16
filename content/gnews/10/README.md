@@ -1,31 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花谈】以毒灭共之软灭共
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1398454/)
+## 闫丽梦在Zenodo网站发表的三篇报告和两篇文章已经被全部拿下
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1400422/)
 
-五月花写作组 | 作者：跟随战神 | 编辑：文合 | 封面、发布：吐纳
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15120432/%E6%9C%AA%E5%91%BD%E5%90%8D_%E5%89%AF%E6%9C%AC-1.jpg)
-以毒灭共还存在另一种可能性。以美国为首的北约没有采取军事行动，没有采取无人机斩首的“硬”方式，而是采取经济制裁、金融制裁、科技制裁、技术制裁等一系列手段和措施。我们姑且称之为“软灭共”。其实这些措施一点也不软，这样的手段完全可以将中共国打回到刀耕火种时代。无论如何，病毒打开了中共的死亡之门。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16113011/003_%E5%89%AF%E6%9C%AC.jpg)
+据郭先生[发表于 9:38 PM · Jul 16, 2021](https://app.gettr.com/post/p4e5lz)的盖特——
 
-软灭共的关键词是“脱钩”，政治脱钩、金融脱钩、经济脱钩、科技脱钩、技术脱钩、文化脱钩到全面脱钩、彻底脱钩。用经济、金融的绳索紧紧勒住中共的脖子，越勒越紧。同时，美国会冻结中共国的资产，冻结甚至没收中共官员在美国的所有资产。将中共踢出世界货币组织，踢出世界贸易组织，直至踢出联合国。彻底的孤立中共，以期困死CCP。从历史上看，正是由于美国的允许和帮助，中共才顺利加入世贸组织，在濒临崩溃的边缘得以吸血续命，成长为如今的庞然怪兽。从这点上看，美国部分政客和贪婪的华尔街难辞其咎。如今，以病毒为引子，美国采取反其道行之的办法，制裁中共。中共会顿感呼吸困难，但是何时窒息而亡，还要走持续一段时间。
+一切都已经开始 【大家好，闫在Zenodo网站上发表的那3篇有关病毒的报告
 
-“脱钩”在川普总统在任时已经进行，拜登政府要做的是继续延续和加大力度。中共凭着高压的独裁统治和几十年经济高速发展积累的财富，还会继续支撑一段时间。但是，中共国会成为一座孤岛，在灭亡的道路上会越走越快。而且，有一个不可忽略的因素，随着美国等外部压力的增加，中共国的矛盾完全爆发。一个被联合国及全世界不承认的国家，其执政的合法性会受到严重质疑。同时，有种族灭绝和反人类罪的加持，中共会遭到国内民众的巨大挑战。民不聊生的状况会加剧国内动荡，动摇中共政权。更重要的是，没收中共官员在美国的资产会导致中共内部发生巨大的变化，发生惨烈的厮杀，“共”心不稳、人人自危，导致以共灭共的发生。顺便提一下北韩，很可能在中共之前倒下。因为中共已经自身难保，恐怕无暇顾及这个小弟，没有了中共的扶持，北韩将很快崩溃。北韩的瓦解反过来会加速中共的灭亡。
+**➕**2篇文章，已经被全部拿下！谢谢！】
 
-软灭共的优点是中共内部经过充分演化，中国人民能刻苦铭心感受痛苦，痛彻心扉感受到中共的邪恶，对灭共后新政权的建立做了充足的社会准备和思想铺垫。缺点是时间较长、过程痛苦。中国人民会更加水深火热，甚至发生大规模人道灾难，许多无辜的生命将成为中共的牺牲品。凤凰涅槃，浴火重生，结果美好、过程煎熬。无辜同胞受到牵连，这是文贵先生和爆料革命最不愿意看到的。
+盖特配图一——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103827/001-3.jpg)
+盖文配图二——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103801/002-1.jpg)
+盖文配图三——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103745/003-1.jpg)
+根据蛇妖闫的推特附属三份报告及论文链接——
 
-软灭共的时间会是哪一年？2024年？2025年？在没有其他因素的前提下，软灭共的时间可能会持续一段时间。但是，左右局势的其他因素太多了，比如随着美国的制裁中共内部发生的械斗，中共内部的爆料革命战友在鹬蚌相争之际出手，比如台湾问题、南海问题等等，凡此种种，皆可随时致中共于死地。
+Update of “origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)” links:
 
-需要特别说明的是，以毒灭共的真正推手是爆料革命和新中国联邦。
+1st Yan Report [https://zenodo.org/record/4028830#.YGc-meT3aEc](https://t.co/bvbzeL3ETA?amp=1)
 
-（本文观点仅代表作者个人）
+2nd Yan Report [https://zenodo.org/record/4073131#.YGc-d-T3aEc](https://t.co/Kw8xuixz54?amp=1)
 
-* * *
+3rd Yan Report [https://zenodo.org/record/4650821#.YGc-7-T3aEe](https://t.co/BSIPG1jgyR?amp=1)
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+Response to Fake News [@CNN](https://twitter.com/CNN)[https://zenodo.org/record/4283480#.YGc\_ceT3aEc](https://t.co/PwU2i8olXn?amp=1) Additional, [https://zenodo.org/record/4448499#.YGc\_nOT3aEc](https://t.co/9gVV4Kj7C4?amp=1) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+推文配图为——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103729/004.jpg)
+下面我们详细把几份报告的变化对比一下——
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route](https://zenodo.org/record/4028830#.YGc-meT3aEc)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103717/005-1.png)
+[SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud](https://zenodo.org/record/4073131#.YGc-d-T3aEc)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103701/006-1.png)
+[The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGc-7-T3aEe)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103647/004-3.png)
+[CNN Used Lies and Misinformation to Muddle the Water on the Origin of SARS-CoV-2](https://t.co/PwU2i8olXn?amp=1)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103626/007-1.png)
+[Call for the WHO Team to Investigate the Pangolin Coronaviruses and the RmYN02 Bat Coronavirus](https://zenodo.org/record/4448499#.YGc_nOT3aEc)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103557/009-1.png)
+上面的文章里出现的英文都是啥意思呢？［**Files of this record temporarily closed since they are subject to a take down request because the affiliation assertion has been challenged.**］
 
-0
+——由于附属声明受到质疑，此记录的文件受到删除请求的约束，因此暂时关闭。
+
+［**Caution: Potentially Misleading Contents**］——注意：潜在误导性内容
+
+［**Files of this record temporarily closed since they are subject to a take down request because the affiliation assertion has been challenged.**］——由于附属声明受到质疑，此记录的文件受到删除请求的约束，因此暂时关闭。
+
+本来以为那是个拯救人类的天使，结果那是个100块就可以办个月卡的天屎，从天使到天屎是一字之差也是一念之差，论文从刊登到撤下貌似是终点又回到了起点，可是在终点回到起点的过程中，中国共产党被打了个半死，在天使变天屎的过程中，那个曾经闪着科学家光芒的博士除了多了一段与亡腚缸的床第故事之外，她和亡腚缸也一起走向了不归路。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
++1
