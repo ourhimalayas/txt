@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年7月16日 文贵先生盖特 7
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1400264/)
+## 全文字版2018年1月11日郭文贵先生报平安短视频II
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1401060/)
 
-#### **编辑整理： 波士顿五月花农场 （霹雳鼠年）**
+虽然不准，但是绝大多数人家是搞平衡，这个平衡就搞得中东满处那样，就象何频先生说的。但是杀敌一千，自伤八百、自伤一万我都认了，不活我都认了。只要能说出盗国贼的真相，说出那些真正的腐败官员的真相，我值得！我愿意！这个报道对我来讲，我是完全可以接受的。
 
-一切都已经开始
+至于说对我这人，我是什么人，流氓、恶棍，我不在乎。只要有利于打击盗国贼，我干嘛在乎这个？对我的利益、名声 和我是什么人，我根本不在乎。只要有利于杀敌，有利于实现我们的喜马拉雅目标，只要能实现中国体制的改变，我都接受。所以，尊敬的战友们，不要有抱怨，这是好事。谢谢大家，我今天一天在外面开会，晚上再跟你们回复，谢谢大家！谢谢！
 
-【大家好，闫在Zenodo网站上发表的那3篇有关病毒的报告 **➕** 2篇文章，已经被全部拿下！谢谢！】
+编辑整理——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103344/Fig01-9.jpg)Fig01
+伦敦喜庄园：胖丁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103345/Fig02-1.jpg)Fig02
+整合发布——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103400/Fig03-1.jpg)Fig03
-
-[【2021年7月16日】文贵先生盖特原文](https://gettr.com/post/p4e5lz)
-
-**喜联盟Gnews编辑部**
+日本银河系农场：山川异域
 
 0

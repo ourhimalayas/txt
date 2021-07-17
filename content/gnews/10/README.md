@@ -1,66 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦在Zenodo网站发表的三篇报告和两篇文章已经被全部拿下
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1400422/)
+## 【医疗前沿世界】羟氯喹的悲哀——贪婪、傲慢与偏见（3）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1400505/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16113011/003_%E5%89%AF%E6%9C%AC.jpg)
-据郭先生[发表于 9:38 PM · Jul 16, 2021](https://app.gettr.com/post/p4e5lz)的盖特——
+作者：香草山农场教育部 霍比特人
 
-一切都已经开始 【大家好，闫在Zenodo网站上发表的那3篇有关病毒的报告
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-**➕**2篇文章，已经被全部拿下！谢谢！】
 
-盖特配图一——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103827/001-3.jpg)
-盖文配图二——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103801/002-1.jpg)
-盖文配图三——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103745/003-1.jpg)
-根据蛇妖闫的推特附属三份报告及论文链接——
 
-Update of “origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)” links:
 
-1st Yan Report [https://zenodo.org/record/4028830#.YGc-meT3aEc](https://t.co/bvbzeL3ETA?amp=1)
 
-2nd Yan Report [https://zenodo.org/record/4073131#.YGc-d-T3aEc](https://t.co/Kw8xuixz54?amp=1)
+福奇、加洛、达扎克，这些本该为人类谋福利的科学家不仅不行善举，反而与恶魔勾结制造出了邪恶的病毒，酿成了空前的惨剧之后继续作恶，掩盖病毒真相的同时打压羟氯喹等药物，所为何来？是因为来自政界、金融界、商界等各个领域的大佬要利用疫情窃取大选，发黑心财，而小小的羟氯喹对于这些幕后黑手获得巨额利益造成了致命的威胁，所以受到他们的走狗，即科学界和主流媒体的无情碾压吗？是的，但是事情没那么简单。
 
-3rd Yan Report [https://zenodo.org/record/4650821#.YGc-7-T3aEe](https://t.co/BSIPG1jgyR?amp=1)
+自川普当选之后，被上述各种势力操控的主流媒体对川普从来是一边倒地进行打压，在疫情问题上更是攻击他防疫不力，当然不允许羟氯喹被广泛使用而救死扶伤。事实上，在川普公开推荐之后，羟氯喹就成了川普的化身，抹黑攻击羟氯喹就等于抹黑攻击川普本人，可怜数以亿计感染了新冠的病患得不到羟氯喹的救治，全世界数十亿人无法广泛使用羟氯喹作为预防，几十万美国人白白成了政治斗争的牺牲品，他们不是死于疾病，而是死于谋杀！不是吗？看看各国政府和医学科学界都干了些什么？眼前正在发生的病患不积极治疗，却寄希望于遥遥无期且效果不明的疫苗，这绝对不是正常的思维，这是说不通的。仔细回顾这一年多来发生的一切，回顾战友们挖掘的许许多多信息，一条隐约的线索浮现了出来，那就是邪恶的全球大重置计划！
 
-Response to Fake News [@CNN](https://twitter.com/CNN)[https://zenodo.org/record/4283480#.YGc\_ceT3aEc](https://t.co/PwU2i8olXn?amp=1) Additional, [https://zenodo.org/record/4448499#.YGc\_nOT3aEc](https://t.co/9gVV4Kj7C4?amp=1) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16165207/538-1.png)图源网络
 
-推文配图为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103729/004.jpg)
-下面我们详细把几份报告的变化对比一下——
+这不是危言耸听。
 
-[Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route](https://zenodo.org/record/4028830#.YGc-meT3aEc)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103717/005-1.png)
-[SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud](https://zenodo.org/record/4073131#.YGc-d-T3aEc)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103701/006-1.png)
-[The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGc-7-T3aEe)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103647/004-3.png)
-[CNN Used Lies and Misinformation to Muddle the Water on the Origin of SARS-CoV-2](https://t.co/PwU2i8olXn?amp=1)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103626/007-1.png)
-[Call for the WHO Team to Investigate the Pangolin Coronaviruses and the RmYN02 Bat Coronavirus](https://zenodo.org/record/4448499#.YGc_nOT3aEc)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103557/009-1.png)
-上面的文章里出现的英文都是啥意思呢？［**Files of this record temporarily closed since they are subject to a take down request because the affiliation assertion has been challenged.**］
+大家不妨回顾一下如下这几篇文章：
 
-——由于附属声明受到质疑，此记录的文件受到删除请求的约束，因此暂时关闭。
+- 20201103 地狱计划 -邪恶势力大联盟 病毒为由 -密谋全球“大重置” – GNEWS 作者：欧洲战友团 Anglesky。
+- 20201117 澳大利亚参议员：资本主义的“大重置”威胁着我们的生活方式 – GNEWS 作者：康州农场 文韵。
+- 20201119 加国总理放奇言：大瘟疫提供机会 世界＂大重置＂上推特热搜 – GNEWS 作者：喜马拉雅农场新西兰站 上进哥。
+- 20201121 邪恶的难以置信的“大重置计划”，正一步步向我们走来 – GNEWS 作者：多伦多枫叶农场 文文—自由法兰西。
+- 20201121【热点播报】“大重构” 是拯救世界还是惊天大阴谋 – GNEWS 作者：纽约香草山农场 卓别林（文尊）。
+- 20201123 大重置：全球化推进背后的邪恶 – GNEWS 作者：康州农场 残夜听雨声。
+- 20201128 大重置阴谋—-联合国宣布生物识别数字身份钱包 – GNEWS 作者：多伦多枫叶农场 香江小哥。
+- 20201130 大重置的真实面目 – GNEWS 作者：多伦多枫叶农场 云起时。
+- 20201213 “大重置 ”及其侵吞全球民众储蓄的计划 – GNEWS 作者：多伦多枫叶农场 云起时。
+- 20201214 美国红衣主教：“大重置”借中共病毒攻击 “自由” 和 “家庭” – GNEWS 作者：多伦多枫叶农场 文来。
+- 20201220【Giselle专栏】大重置计划与全球化脉络 – GNEWS 作者：墨尔本雅典娜农场 Giselle。
+- 20201220 达沃斯论坛和世界经济大重启背后的阴谋 – GNEWS 作者：秘密翻译组 越王剑。
+- 20201221 各国大重置计划表完全一致 加拿大正按此第二轮封城中 – GNEWS 作者：多伦多枫叶农场 云起时。
+- 20201229 德经济学家：若无川普胜选 大重置将导致史上最严重经济崩溃 – GNEWS 作者：多伦多枫叶农场 阿黎。
 
-［**Caution: Potentially Misleading Contents**］——注意：潜在误导性内容
 
-［**Files of this record temporarily closed since they are subject to a take down request because the affiliation assertion has been challenged.**］——由于附属声明受到质疑，此记录的文件受到删除请求的约束，因此暂时关闭。
+大家还记得比尔盖茨惊世骇俗的言论吗?在中共病毒肆虐初期，他主张对全人类强制接种疫苗并在体内植入芯片，由此可以获知是否得过中共病毒等信息。这种技术在今天已经不是天方夜谭。五年前盖茨曾说如果有什么东西可以杀掉上千万人，那更可能是具有高度传染性的病毒，而不是战争；不是导弹，而是微生物。他还提到未来的病毒具有超强传播性，会出现无症状感染者，中共病毒恰恰具备了比尔盖茨五年前提及的所有病毒特征，把它和盖茨百般支持为中共掩盖病毒真相的WHO联系起来，这绝不是巧合。
 
-本来以为那是个拯救人类的天使，结果那是个100块就可以办个月卡的天屎，从天使到天屎是一字之差也是一念之差，论文从刊登到撤下貌似是终点又回到了起点，可是在终点回到起点的过程中，中国共产党被打了个半死，在天使变天屎的过程中，那个曾经闪着科学家光芒的博士除了多了一段与亡腚缸的床第故事之外，她和亡腚缸也一起走向了不归路。
+所谓大重置的概念，最早是在1993年在世界经济论坛（也叫达沃斯论坛，是全世界顶级富豪交流讨论如何统治世界的峰会）上被提出的，2000年时有了比较具体的定义。它的理论基础是必须实行全球化，即贸易和国际往来、资本和投资流动、人口流动以及知识和传播这四个全球化（可对比中共提出的全球一体化）。在经济上通过合并重组加速垄断，让利益更集中；在政治上让影子政府操控全球主要国家政治格局；在文化上让极权独裁主义文化悄悄取代民主自由思想而控制人的思想（好莱坞正在潜移默化地进行这一计划）。揭开所有伪善华丽的表象，它的本质就是在技术高度发达的今天，少数世界最大的富豪和他们控制的精英集团（华尔街、主流媒体等）为了永远保住他们的统治地位和优势地位，谋求用经济的手段（财富的傲慢）和政治的手段（权力的傲慢）通过高科技精确到人，定点精确地管理和统治全世界包括人类在内的所有资源。为此他们需要打破国界，剥夺别人的隐私（而自己绝对保持隐私），剥夺别人的言论自由（而自己有绝对话语权）、私有财产自由（而自己对财富绝对垄断），把全球包括人类在内所有资源和相关信息掌握在手中。他们将随时知道你在哪里，你在做什么，你在想什么，你的财产信息，你的人际关系信息，你的身体健康信息，你的一切，然后控制你的钱和你的身体和你的思想，控制你的一切，用逼迫和欺骗的方式。这比奥威尔笔下的1984更加恐怖，且已经几乎要成为现实。这个极少数顶级富豪家族（包括教皇、教廷）控制的阶层，大家一般称为沼泽地，江、曾、孟、王这些盗国贼家族实际上已经成为沼泽地的一部分，他们和西方黑暗势力联合成为利益共同体，试图实现对全球资源，对全人类的千秋万代的（隐秘的）独裁统治。表面上有选举，有言论自由，实际上无论是选举还是言论，从物质到精神，一切尽在他们的掌控，这就是所谓大重置的本质。这个邪恶的沼泽地，就是一个跨国的覆盖全球的黑帮，是换了一副嘴脸的变相的中外联合组成的国际“共产党”。
 
-撰稿：喜马拉雅的肉夹馍；
+大重置的势力是令人恐怖的。马克龙、约翰逊、默克尔、特鲁多，许多国家的领导人都是为这一势力效力的走狗。看看加拿大“土豆”在疫情之后实施的极端的几乎是法西斯的政策。这些国家的领导人也是最早向拜登祝贺当选的人。沼泽地认为疫情是实施这一计划的极好契机（这也是中共盗国贼敢于放病毒的底气所在），当然不可能追究病毒真相，更不可能治病救人。看看现在这个世界，没有人管什么羟氯喹，没有人管治病救人，几乎所有国家都在拼命地推行疫苗政策（末日博士福奇领导的科学界正在为此卖力地奔走，这些可怜虫犯下滔天的罪行，最终不过分得一勺残羹而已。）。总结一下：先放病毒，杀人制造恐慌（同时可排除异己）的同时给推行疫苗政策制造借口，然后迫使全人类注射疫苗，这是全球大重置计划的开始。用病毒令人类无法逃避，强制疫苗和健康护照以及数字身份证追踪全世界人口，然后用确保普遍收入和取消个人债务的空洞许诺诱骗人们放弃个人私有财产，不接受的人将被关押、软禁或没收财产（这是加拿大特鲁多政府试图推行的）。全人类将进入黑暗时代。现在世界上能阻止这一邪恶的魔鬼计划的，只剩下美国，所以他们要千方百计把川普搞下台。2018年，索罗斯在达沃斯论坛直接释放了一个信号，他直接宣告说：“我认为川普政府是这个世界的一个危险，而这个危险将在2020年消失”。现在大家都看到了，2020年发生了什么。索罗斯制造了投票机，民主党疯狂舞弊，中共黑客篡改选票，如此大规模全方位的大选舞弊能够得逞，是两党合谋的结果。他们一拍即合，结果作为竞选连任的总统，川普不仅受到对手的攻击，还受到本党的攻击，甚至连竞选搭档的副总统也出卖他，除了民众之外，在上流社会他几乎成了孤家寡人，这种局面至今仍未改变。
 
-审核：喜马拉雅的馍夹肉；
+由此我们可以知道，沼泽地怎么能允许如此庞大而邪恶的计划被小小的羟氯喹所阻挠。如果人类普遍使用羟氯喹等药物积极治疗，作为大重置计划的开始阶段的疫苗政策就无法推行，他们当然不能允许。于是，作为沼泽地的走狗的全球媒体和整个科学界以及政界商界异口同声一边倒地攻击羟氯喹，攻击川普，也就顺理成章了。何止是羟氯喹，任何试图阻止他们的都会受到无情的攻击，比如新中国联邦，比如班农和战斗室，又比如盖特。
 
-校对：Maarago
+这史无前例的邪恶阴谋已经被全世界正义力量所觉察，虽然他们一时得手窃取了2020年美国大选，但是正义力量已经觉醒，正在集结起来与其展开斗争。这是一场史无前例的遍及全球的大战，战场无所不在，敌人也无所不在。从梵蒂冈到华盛顿，从英伦到法兰西到德意志，日本、巴西、澳大利亚，无论你身在何处，没有人不深陷这场人类的浩劫之中。政界、商界、科学界、传媒界、娱乐界，就在你我在手机上点点划划，在电脑上码字发图上传视频的时候，在几乎所有社交媒体上，战斗无处不在。
 
-（文章内容仅代表作者个人观点）
+贪婪、冷血的沼泽地和中共盗国贼，资本的傲慢和权力的傲慢一拍即合，黑暗势力共同体正在试图吞噬全人类。在这危急时刻，是爆料革命和文贵先生唤醒了全世界爱好和平和正义的人们，人类真的到了生死存亡的关键时刻，我们每个人都无法置身事外，要么战斗以获得自由，要么从此永远沦为沼泽地（包括中共盗国贼）的奴隶。在这样的背景下，小小的羟氯喹被推到了风口浪尖，遭到无情的打压也就毫不奇怪了。羟氯喹的悲哀跟全人类面临的危机比起来似乎微不足道，但是宣传羟氯喹等药物的作用，对于揭穿和阻止疫苗背后的这场惊天邪恶阴谋是十分重要的，也是每个不愿意成为黑暗势力的奴隶的人力所能及的。（全文完）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
 
 +1

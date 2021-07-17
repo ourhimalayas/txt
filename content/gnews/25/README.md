@@ -1,66 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦在Zenodo网站发表的三篇报告和两篇文章已经被全部拿下
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1400422/)
+## 由于政府禁止未接种疫苗的人进入公共场所，希腊各地爆发大规模抗议活动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1400986/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16113011/003_%E5%89%AF%E6%9C%AC.jpg)
-据郭先生[发表于 9:38 PM · Jul 16, 2021](https://app.gettr.com/post/p4e5lz)的盖特——
+- 作者：Jenny Ball
 
-一切都已经开始 【大家好，闫在Zenodo网站上发表的那3篇有关病毒的报告
 
-**➕**2篇文章，已经被全部拿下！谢谢！】
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-盖特配图一——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103827/001-3.jpg)
-盖文配图二——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103801/002-1.jpg)
-盖文配图三——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103745/003-1.jpg)
-根据蛇妖闫的推特附属三份报告及论文链接——
+**西班牙2021年7月16日电/西喜社**
 
-Update of “origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)” links:
+几天前，当法国总统埃马纽埃尔·马克龙 (Emmanuel Macron) 强制要求所有卫生保健工作者（其中许多人以前拒绝）接种疫苗，同时收紧 COVID 规定以迫使法国公民接种疫苗时，激怒了整个欧洲的疫苗怀疑论者。当其他政府考虑是否效仿时，周四，数千人走上雅典街头抗议，反对疫苗接种计划。
 
-1st Yan Report [https://zenodo.org/record/4028830#.YGc-meT3aEc](https://t.co/bvbzeL3ETA?amp=1)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16175542/image0-6-2.jpg)
 
-2nd Yan Report [https://zenodo.org/record/4073131#.YGc-d-T3aEc](https://t.co/Kw8xuixz54?amp=1)
+在抗议者看来，最大的违规行为是政府决定禁止未接种疫苗的人进入某些公共场所。 他们还反对为青少年接种疫苗的计划。禁止未接种疫苗者进入酒吧、餐厅、剧院和其他娱乐场所的政策将于周五生效，并至少持续到 8 月。从周四开始，青少年将能够接种疫苗。
 
-3rd Yan Report [https://zenodo.org/record/4650821#.YGc-7-T3aEe](https://t.co/BSIPG1jgyR?amp=1)
+据路透社报道，超过 5000 名反疫苗抗议者，有的人挥舞着希腊国旗和木制十字架，聚集在希腊首都，高喊“拿走你的疫苗，离开这里！” 同时呼吁总理基里亚科斯·米佐塔基斯（Kyriakos Mitsotakis）辞职。
 
-Response to Fake News [@CNN](https://twitter.com/CNN)[https://zenodo.org/record/4283480#.YGc\_ceT3aEc](https://t.co/PwU2i8olXn?amp=1) Additional, [https://zenodo.org/record/4448499#.YGc\_nOT3aEc](https://t.co/9gVV4Kj7C4?amp=1) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click)
+由于有大量警察在场监督他们，抗议者聚集在议会外直接向立法者提出抗议。
 
-推文配图为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103729/004.jpg)
-下面我们详细把几份报告的变化对比一下——
+周三的抗议是反对接种运动的最大示威。《天空脉动》（Pulse for Skai ）TV 最近的一项民意调查发现，大多数希腊人表示，他们会在疫苗可用时接种，其中大多数人赞成对某些工作或人群进行某种形式的强制性疫苗接种。已经有 41% 的希腊人接种了疫苗。
 
-[Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route](https://zenodo.org/record/4028830#.YGc-meT3aEc)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103717/005-1.png)
-[SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud](https://zenodo.org/record/4073131#.YGc-d-T3aEc)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103701/006-1.png)
-[The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGc-7-T3aEe)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103647/004-3.png)
-[CNN Used Lies and Misinformation to Muddle the Water on the Origin of SARS-CoV-2](https://t.co/PwU2i8olXn?amp=1)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103626/007-1.png)
-[Call for the WHO Team to Investigate the Pangolin Coronaviruses and the RmYN02 Bat Coronavirus](https://zenodo.org/record/4448499#.YGc_nOT3aEc)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16103557/009-1.png)
-上面的文章里出现的英文都是啥意思呢？［**Files of this record temporarily closed since they are subject to a take down request because the affiliation assertion has been challenged.**］
+“每个人都有选择的权利。我们选择的是：政府不要为我们选择，”心脏病专家费登·沃沃利斯 (Faidon Vovolis) 说。他质疑并要求对戴口罩和疫苗进行科学论证，并领导了“再次自由”运动，称该运动称为抗议。沃沃利斯说，他成立该组织是为了回应政府为遏制病毒采取的“严厉措施”。
 
-——由于附属声明受到质疑，此记录的文件受到删除请求的约束，因此暂时关闭。
+除了雅典的大量人群外，希腊第二大城市塞萨洛尼基（Thessaloniki）也出现了数千人。 法国也发生了类似的示威活动（回应马克龙的最新法令）。
 
-［**Caution: Potentially Misleading Contents**］——注意：潜在误导性内容
+**评论：非常振奋看到拥有自由的希腊民众开始抗议，抵制“政府为我们选择”，人们有自由选择的权利！同时看到医疗专业人士用科学知识质疑政府的行为，要求政府对强迫戴口罩打疫苗进行科学论证。是的，在一年半多的病毒期间，竟然没有看到任何政府就治疗病毒感染的任何行为，更有甚着，竟然压制一切治疗和防治的信息，在大流行期间几乎听不到大夫医院治疗的信息，而是政府在为民众“开药方”——先是让人们戴口罩造成恐惧心理，用吓唬民众推动疫苗经济，这是何等匪夷所思用心险恶！希腊民众已经发出了忍无可忍的呼声：要求无良政府的总理辞职！同样的抗议运动也在法国首都巴黎展开，并将在各国掀起抗议热潮。**
 
-［**Files of this record temporarily closed since they are subject to a take down request because the affiliation assertion has been challenged.**］——由于附属声明受到质疑，此记录的文件受到删除请求的约束，因此暂时关闭。
+**爆料革命引领人文贵先生说的，消灭共产党将是改变世界政治、经济格局的大变革。我们有幸加入到这场保护人类自由未来的战斗的人们，加油、行动，不要让自由的未来在我们这代人手中葬送掉。**
 
-本来以为那是个拯救人类的天使，结果那是个100块就可以办个月卡的天屎，从天使到天屎是一字之差也是一念之差，论文从刊登到撤下貌似是终点又回到了起点，可是在终点回到起点的过程中，中国共产党被打了个半死，在天使变天屎的过程中，那个曾经闪着科学家光芒的博士除了多了一段与亡腚缸的床第故事之外，她和亡腚缸也一起走向了不归路。
+**素材来源：**[零对冲](https://www.zerohedge.com/geopolitical/protests-erupt-across-greece-government-bans-unvaccinated-public-spaces?utm_campaign=&amp;utm_content=Zerohedge:+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter)
 
-撰稿：喜马拉雅的肉夹馍；
+素材：Jenny Ball；审核：文乐； 校对：阿伯塔； 发稿：信心的选择
 
-审核：喜马拉雅的馍夹肉；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
 
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
-+1
++4

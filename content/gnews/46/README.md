@@ -1,35 +1,176 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “阎王”的内心藏着地狱之门
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1400400/)
+## 参议员特德克·鲁兹：乔拜登和卡马拉哈里斯不想让古巴移民来美国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1401014/)
 
-作者：仙女儿-文善| 校对：神奇四侠| 审核：神奇四侠| Page：小六月
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16181402/%4020210716.png)
+[https://gtv.org/video/id=60f19a653324080c882a8ff6](https://gtv.org/video/id=60f19a653324080c882a8ff6)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rTrwFEoTVXXP1/images/8e64bb95-540c-405d-8d97-7d760ae171da.jpg?asset_id=bbaaac76-ef97-4007-9359-05e9d88f4365&amp;img_etag=%22e223113cf2c055493f1b04a4c15e3527%22&amp;size=1024)](https://spark.adobe.com/page/rTrwFEoTVXXP1/images/8e64bb95-540c-405d-8d97-7d760ae171da.jpg?asset_id=bbaaac76-ef97-4007-9359-05e9d88f4365&amp;img_etag=%22e223113cf2c055493f1b04a4c15e3527%22&amp;size=1024)
+**字幕内容：**
 
-随着亡腚肛与阎蛇妖团伙的自爆，大家问的最多的就是“为什么”，缺德社的节目虽然做得吭哧瘪肚的，可是还不至于愚蠢和恶毒到如此地步吧？做这种遗臭万年、令子孙背负耻辱的事情到底是为什么？
+John Roberts (Fox News host)
+约翰·罗伯茨（福克斯新闻主持人）
 
-这里有一个参考答案，当然还要特别感谢鸡腿潘和九指妖不惜以牺牲自已为代价对我的“历练”，让我“成长”，更让我想通了一件事，就是人与人之间的差距有时比人与畜牲之间的差距还要大。
+Republican Texas Senator Ted Cruz joins us now
+共和党德克萨斯州参议员特德克鲁兹现在加入我们
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rTrwFEoTVXXP1/images/60c17472-da5c-43b5-b36b-b7abcae58528.jpg?asset_id=00f2d9a4-744a-4680-b338-27c7456806dd&amp;img_etag=%226bc30345420300493998dbf49db89fb3%22&amp;size=1024)](https://spark.adobe.com/page/rTrwFEoTVXXP1/images/60c17472-da5c-43b5-b36b-b7abcae58528.jpg?asset_id=00f2d9a4-744a-4680-b338-27c7456806dd&amp;img_etag=%226bc30345420300493998dbf49db89fb3%22&amp;size=1024)
+he’s a member of the Senate Foreign Relations Committee,
+他是参议院外交关系委员会的成员
 
-在人与人的交往中，有一种很有意思的现象，就是习惯以自己内心所想、所见为标准，以此来分析和判断他人，并以为对方也是这样，这在心理学上称为“投射效应”。
+his father fled Cuba in the 1950s,
+他的父亲在 1950 年代逃离古巴
 
-我们之所以不解亡腚肛与阎蛇妖为何如此不堪，简单的说是因为他们的所作所为远远超出了我们做人的底线，违背了我们做人的标准与基本原则，可是你会以做人的标准去要求一个畜牲吗？显然不会，而事实证明，人与人之间的差距有时比人和畜牲之间的差距还要大。
+and he’s got an op ed titled Cuba Libra in the National Review today
+他在今天的《国家评论》中刊登了“自由古巴”的专栏文章
 
-反过来，“投射效应”也可以解释“阎王”团伙为什么会走到今天而且会一意孤行下去，因为他们的内心至始至终就是伪善的，所以他们不相信别人会是善良的；因为他们是无利不起早的人，就会把别人对他们的好都想成是有所图的；你给他打赏，他认为你是在巴结他，因为他就是这样一路捧高踩低走到今天的；你尊重他，他反而认为你是卑微的，因为他卑微的过往让他认定人与人之间不是你给他跪下，就是他给你跪下；你赠予他房子，他认为你在坑害他，因为一个贪婪的人，是无法明白人与人之间可以不求回报真诚相待的；蛇妖一路靠出卖灵魂出位，她便相信了这个世界只有弱肉强食、丛林法则；她自己是肮脏的，便一厢情愿的认为整个世界都是不干净的；她自己谎话连篇，便自以为是的觉得这个世界没有真心换真心。
+Senator good to talk to you.
+参议员, 很高兴与你谈话
 
-爆料革命让我们每一位真心灭共的战友在不同程度上得到提升，我们是什么时候练就的如此处乱不惊的本事的？回头望一望几年前的自己，都会被今天的从容淡定感动到落泪吧？这一切都是源于我们内心的那颗善良的种子，在爆料革命智慧的浇灌下收获的美丽生命。 而“阎王”团伙这种把路走绝的精神则是他们肮脏内心的投射，更是我们爆料革命成长道路上不可或缺的“有机肥”，虽然臭了些，但是可以“废物利用”，也不失乐趣。
+We heard from Jen Psaki the press secretary at the briefing,
+我们在简报会上听取了新闻发言人珍·普萨基的简报
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+just a short time ago saying
+在刚刚不久前说
 
+that the Cuban people are rising up against oppression
+古巴人民正在奋起反抗政府的压迫
 
-编辑：【英国伦敦喜庄园编辑部】
+and mismanagement from the government
+和管理不善
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rTrwFEoTVXXP1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/rTrwFEoTVXXP1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+that the Biden administration supports their right to protest
+拜登政府支持他们抗议的权利
+
+but as Phil Keating was pointing out just a moment ago,
+但正如菲尔·基廷刚才指出的那样，
+
+Alejandro Mayorkas the DHS Secretary has no interest in entertaining anybody
+国土安全部部长亚历杭德罗·马约卡斯没有兴趣迎接任何
+
+coming across the Florida straits to make an asylum claim.
+跨越佛罗里达海峡来做庇护申请的人
+
+Here’s what he said yesterday, listen here.
+这是他昨天说的，听这里
+
+Alejandro Mayorkas (the DHS Secretary)
+亚历杭德罗·马约卡斯（国土安全部部长）
+
+The time is never right to attempt migration by sea.
+尝试从海上迁徙的时机永远不合适
+
+To those who risked their lives.
+对那些冒着生命危险的人
+
+Doing so, this risk is not worth taking.
+这样做，这种风险是不值得去冒的
+
+Allow me to be clear, if you take to the sea.
+允许我说清楚，如果你从海上来
+
+You will not come to the United States.
+你将不会成功来到美国
+
+John Roberts
+约翰·罗伯茨
+
+Now nobody wants to see a risky mass migration across the Florida states
+现在没有人愿意看到跨越佛罗里达州的大规模移民
+
+it is very very dangerous
+这是非常非常危险的
+
+but there seems to be some contradictory messaging going on here
+但这里似乎有一些相互矛盾的信息
+
+that on the southern border between the US and Mexico
+在美国和墨西哥之间的南部边界上
+
+Democrats are saying, entertain all asylum claims
+民主党人说，接受所有庇护申请
+
+Mayorkas is rejecting that out of hand when it comes to Cubans,
+当谈到古巴人时，马约卡斯立即拒绝了这一点
+
+what do you think
+你怎样认为？
+
+Senator Ted Cruz
+参议员特德克鲁兹
+
+I look that that’s exactly right,
+我认为这一点就是明显的问题
+
+it seems for Joe Biden and Kamala Harris,
+对于乔拜登和卡马拉哈里斯来说
+
+the only immigrants on the face of the earth that they don’t want to come to America are Cubans
+地球上他们唯一不接受来美国的移民是古巴人
+
+that’s the only instance in which the Biden administration
+这是拜登政府唯一一次
+
+is expressing a resistance to people coming here illegally
+对非法来到这里的人表示抵制
+
+in my home state of Texas we have open borders
+在我的家乡德克萨斯州，那里有开放的边界
+
+we have the Biden DHS releasing people,
+拜登的国土安全部释放的难民
+
+hundreds of thousands of people
+数十万的难民
+
+we’re also saying I spoke yesterday
+我们还说，我昨天说过
+
+with with a Texas Mayor down on the border,
+一个德克萨斯州市长在边境
+
+who was describing that they’re seeing COVID cases skyrocketing
+描述他们看到 COVID 病例激增的现况
+
+in the Biden administration is is leaning in even further,
+在拜登政府更倾向于对非法移民开发大门
+
+but when it comes to Cuba. It’s not complicated.
+但说到古巴时，这并不复杂
+
+Here’s what Joe Biden needs to say,
+这是乔-拜登需要说的话
+
+the communist dictatorship in Cuba is evil.
+古巴的共产主义专政是邪恶的
+
+It is oppressive they are murderers they are tortured
+这是压迫，共产专政是凶手，人们被折磨
+
+and the people want freedom
+而且人们想要自由
+
+the American people stand with the Cuban people
+美国人民与古巴人民站在一起
+
+and and unfortunately the Biden administration
+不幸的是拜登政府
+
+has been lukewarm at best on on that silencer messaging.
+充其量是不冷不热的在传递冷漠的信息
+
+**原视频链接**: h[ttps://twitter.com/sentedcruz/status/1415382213760372736?s=24](//twitter.com/sentedcruz/status/1415382213760372736?s=24)
+
+英听校：洛杉矶盘古农场- Layka
+翻译：洛杉矶盘古农场- Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作： 洛杉矶盘古农场 – 文将
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
 

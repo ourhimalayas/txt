@@ -1,11 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【魔鬼集团现行记】黑心墨“博士”诬陷试图揭露他谎言的人们为中共工作
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1400169/)
+## 你的私人通讯将被DNC监控
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1400265/)
 
-07/12/2021 黑心墨“博士”诬陷试图揭露他谎言的人们为中共工作。
+- 制作：视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月16日电/西喜社**
+
+发稿：信心的选择
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
 
 +2
