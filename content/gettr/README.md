@@ -12,9 +12,18 @@
 
 :new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
+:new: :tada::tada::tada: 視頻文字版已更新
+
 ---
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
+
+`@miles 7/18/2021 2:54 PM (UTC)`
+
+对不起战友们：我今天口误．应是．花桥小区的老师！【汉口倒是有花桥小区，离万人宴的百步亭小区不远】
+![img](https://media.gettr.com/group24/getter/2021/07/18/14/46a7d1fc-04da-e36a-c19e-3049642c3fca/9ae761db47793a41c828f03d8c4ef882.jpg)
+
+---
 
 **:arrows_clockwise: miles 已轉發**
 
@@ -308,14 +317,6 @@ RT @RepLeeZeldin: Voter ID laws should be enacted in all 50 states. RT if you ag
 Sellin He is a low-level liar through and through!  Can't deceive in the Western world, come to deceive those foolish Chinese.  Wang Dinggang and others are still relatives.  These perverted demons.
 > `@nanastalkshow 7/13/2021 11:22 PM (UTC)`<br/>Lawrence Sellin was also involved in spreading disinformation about the (Obama) presidential eligibility in 2013. People called him out, but he turned up to stalk one of them for 3 months! Check it out: https://www.obamaconspiracy.org/2013/09/lawrence-sellin-phd-spreads-misinformation-about-presidential-eligibility/<br/>Others' opinion about him:<br/>&quot;Idiots(like Lawrence Sellin) come from all walks of life...
 ![img](https://media.gettr.com/group22/origin/2021/07/13/23/da6ec346-16d1-36d1-5434-2b4c492dfa98/c8b62e5e33cf42c6f4bf2a5fe4afca14.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@repbilljohnson 7/13/2021 4:59 PM (UTC)`
-
-The rapid rise of inflation has made it clear— President Biden should be proposing strategic budget cuts NOT pushing for a record-breaking $6 trillion government budget.
 
 ---
 
