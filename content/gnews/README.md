@@ -31,14 +31,14 @@
 ### [英众议院通过动议对北京冬奥会进行外交抵制](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月18日文贵先生直播同步精要文字版](/content/gnews/6/README.md)
+### [2021年7月18日 文贵先生盖特 1](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/7/README.md)
  ` 喜联盟七哥直播组`
 
-### [2021/07/17 文贵盖特精要-001](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【中英文字幕】7/16/2021文贵盖特：共产党与德国默克尔密谋的新尼克松计划，彻底失败](/content/gnews/8/README.md)
- ` Caihongqiao`
+### [2021年7月18日文贵先生直播同步精要文字版](/content/gnews/8/README.md)
+ ` 喜联盟七哥直播组`
 
 ### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -88,23 +88,23 @@
 ### [【粤语配音】默克尔：与中共国的贸易必须建立在公平竞争的原则上](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [COVID 大流行期间的麦加朝觐](/content/gnews/25/README.md)
+### [「欢迎习神加入」——杰森·米勒谈GETTR的言论自由运动](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [COVID 大流行期间的麦加朝觐](/content/gnews/26/README.md)
  ` 闪电侠`
 
-### [【秘翻在线】美国重申不承认中共国对南海的非法主权申索](/content/gnews/26/README.md)
+### [【秘翻在线】美国重申不承认中共国对南海的非法主权申索](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】海地和斯威士兰生变，台湾外交处境艰难](/content/gnews/27/README.md)
+### [【秘翻在线】海地和斯威士兰生变，台湾外交处境艰难](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [谴责大流行“暴利”，抗议者倡导宾州公共卫生保健](/content/gnews/28/README.md)
+### [谴责大流行“暴利”，抗议者倡导宾州公共卫生保健](/content/gnews/29/README.md)
  ` 闪电侠`
 
-### [随着COVID-19在马来西亚飙升，电容器行业转向中共国](/content/gnews/29/README.md)
+### [随着COVID-19在马来西亚飙升，电容器行业转向中共国](/content/gnews/30/README.md)
  ` 闪电侠`
-
-### [洛杉矶警方称不会强制执行新的口罩规定 称没有科学支持](/content/gnews/30/README.md)
- ` 曹操`
 
 ### [英国航母打击群或于9月在日本靠港](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
