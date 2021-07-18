@@ -2,26 +2,37 @@
 ---
 
 
-## 美国在反对政府的起义中为100多万古巴人恢复了互联网的使用
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1404890/)
+## DC每日热点0718
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1405016/)
 
-2021年7月18日
+作者：楚门门
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18185133/DC0718-scaled.jpg)
+道琼斯指数 34687.85 ▼0.86%
+纳斯达克指数 14427.24 ▼0.80%
+WTI纽约原油CFD 71.257 ▼0.17%
+布伦特原油CFD 73.379 ▼0.29%
+美元兑人民币 1USD=6.479RMB
+美元兑港币 1USD=7.767HKD
+国际黄金 1812.05美元/盎司
+全球CCP病毒感染人数 190,923,871 例
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18163558/cuba_0-1.jpg)
-
-随着古巴夏季的起义，共产主义政府已经发现了切断数百万居民互联网的方法，因此在社交媒体上进行有组织的抗议几乎是不可能的。当时有报道称古巴政权利用中共国制造的技术系统封锁互联网和手机服务，使有组织的抗议活动无法进行。与此同时，古巴总统米格尔-迪亚斯-卡内尔抨击美国公然和“可耻”地企图通过引发三十年来最大的反政府抗议活动来“分裂”他的国家。
-
-**【[新闻来源](https://www.zerohedge.com/geopolitical/us-backed-tech-restores-internet-more-1-million-cubans-amid-uprisings-against-govt?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+1、澳大利亚贸易部长：愿与中共对话，但会“有耐心”
+2、中共国购买荷兰EUV芯片光刻机遭美国拦阻
+3、德国比利时洪灾造成170人死亡
+4、古巴政府举行支持政府集会对抗抗议活动
+5、联合国要求古巴释放反政府抗议人士
+6、东京奥运前5天：两名运动员测出“阳性”
+7、日英已就英赴印度太平洋地区的航母打击群于今年9月在日本靠港一事展开协调，届时英航母打击群将与日美海军进行联合训练
+8、美国望于9月下旬举行四国集团领导人面对面峰会
+9、中共国派出第二艘情报船监视美澳军演 澳国防部：完全料到中方会派一艘船来监视，令我们惊讶的是这次派了两艘
+10、巴基斯坦巴士爆炸案中共国公安部介入 环球时报扬言虽远必诛
+11、中共国多地启动未成年人接种疫苗
+12、法国各地11万人周末举行反疫苗示威
+13、中共宣布数字人民币交易量超过50亿美元
+14、戛纳电影节落幕 香港影片《天下乌鸦》获短片金棕榈
+15、印尼连2天新病例居全球之首 科兴功效再受关注
+16、对抗中共 日本拟2024财年靠东海基地部署F-35B战机
+17、英相约翰逊在与确诊者有过密切接触后，原计划继续办公。但批评声四起，现开始为期10天的自我隔离
+18、报告显示：中共通过吸引和拉拢外国人来扩张中方话语权，发展外宣新武器：外籍网红
 
 0

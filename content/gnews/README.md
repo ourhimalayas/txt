@@ -106,17 +106,17 @@
 ### [【秘翻在线】超过千名以色列人新冠病毒检测呈阳性 政府发布新的限制措施](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美国在反对政府的起义中为100多万古巴人恢复了互联网的使用](/content/gnews/31/README.md)
+### [DC每日热点0718](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国在反对政府的起义中为100多万古巴人恢复了互联网的使用](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国航母打击群或于9月在日本靠港](/content/gnews/32/README.md)
+### [英国航母打击群或于9月在日本靠港](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【香港快讯】 7月18日 收229张限聚令告票后　铜锣湾篮球市集如常举行](/content/gnews/33/README.md)
+### [【香港快讯】 7月18日 收229张限聚令告票后　铜锣湾篮球市集如常举行](/content/gnews/34/README.md)
  ` 喜馬拉雅-粵語組`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
