@@ -2,232 +2,84 @@
 ---
 
 
-## 三名纽约洋基队接种疫苗的球员的 COVID-19 检测呈阳性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404198/)
+## 郭文贵先生2019年6月13日至2020年1月20日中共生化武器文字汇总
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1404601/)
 
-字幕内容：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18111117/EhyvAHHXgAAp-GT_%E5%89%AF%E6%9C%AC.png)
+1、[2019年6月13日傍晚与细丝和庄烈宏直播](https://youtu.be/MfMWvs3CT-U)：
 
-**Art Shamsky (Host, The Art Shansky Podcast)**
+[（对待香港反送中运动）干下去，它（共产党）就得开家伙——这开家伙一开始不是真子弹，但它一定制造各种假象，制造用真子弹的理由，或者就是刚才我说的，纳米激光技术。这个东西是很可怕的，等同于化学（武器）。世界公约里约定的化学武器，是禁止使用的，但是现在你高科技，禁止的范围包括不了——这个可怕了！]
 
-阿特** **沙姆斯基（主持人，**The Art Shansky **播客）
+[据我所知，这些东西是在叙利亚他们尝试过，用过，用的效果非常好。它不是化学武器，你也没法定它是化学武器。]
 
-All over the world, it’s very precarious right now, sports in particular
+2、[郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](https://youtu.be/2f4PzOyMwCw)
 
-现在全世界都很危险特别是在体育界
+[共产党最信奉的一条就是：你家的灾难就是我的机会。]
 
-are really under pressure to get these things right
+[共产党所有喜马拉雅计划里最核心的，当它遇到问题的时候，就在你家制造灾难，变成它的机会。在最糟糕，最狠地时候，就是要把这种灾难变成浑水，它才能摸鱼。所以共产党有多么的感激美国911啊！共产党有多么的感激伊拉克战争啊！王毅这回来了，你不要让我尝试打开中东的潘多拉盒子。]
 
-真正面临着要把这些事情做好的压力
+［王毅的潘多拉盒子之说，和今天北朝鲜的核武器，和即将，我说的是即将，一定会是伊朗说我有核武器，我有打远程的，一万三千公里的导弹了。一定会的。然后，霍尔木兹海峡发生冲突，发生战争了。浑水造成了，有人要摸鱼了。］
 
-and as you can see,
+［听说中共最近无限次地告诉伊朗，你要快要狠地按照我们计划实施。亮出你的核武器，我已经给你了，亮吧！］
 
-正如你所看到的
+3、[2019年6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](https://youtu.be/38MI-3Et2fw) ：
 
-My games being canceled all these doubleheaders mounted up
+［所有的共产主义国家，平均杀人是13%-15%，只有中国共产党杀人是到25%-27%。］
 
-我的赛事被取消、所有这些双头游戏
+4、[2019-06-29郭文贵先生直播【G20有….协议  爆料革命大胜】](https://www.youtube.com/watch?v=tYQ0MIwPrJQ)
 
-and all the changes in the game is,
+［但是你说郭文贵把共产党现在给灭了，但中国人得几亿人陪着死，中国私人企业家的厂子很多要关门，你愿不愿意？我绝对不愿意，我绝对不愿意！说实在的，当我看到了中国医院里边，生意最好的，一个郑州的叫什么，河南医学院，河医啊，一万三千个床位，就这还得排队，上不去。］
 
-和游戏中的所有变化是
+［然后郑州过去的唯一火葬场，曾经我壹个哥哥就在那火葬的，现在郑州周围增加到十几个火葬场。西安周围增加了几十个火葬场。给新疆人在各省各地盖的监狱几百座，为了关这些所谓的金融犯罪份子，共产党剪羊毛的工具，盖了几千座监狱。］
 
-it’s really a very, very tough situation now.
+5、[2019年7月5日文贵船上直播](https://youtu.be/PgoJRfbNxeI)
 
-目前真的是非常非常艰难的情况
+［最近八年来，中国最大的发明就是对付老百姓的所谓维稳的准化学武器的这种武器。在香港大家看到了布袋弹，这就是比爹和娘还亲的共产党，一切都是党的一切都得听党的。］
 
-As far as the Yankees situation.
+6、[2019年12月10日文贵报平安：共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](https://livestream.com/accounts/27235681/events/8197481/videos/199785518)
 
-以至于洋基队的情况
+［香港此时此刻正在水深火热之中，共产党正在炮制着一剂又一剂猛药，想毒死香港人。］
 
-I’m shocked that this happened all of a sudden,
+7、 [2019年12月12日文贵报平安：对港四大原则即将出台，香港将面临诱惑分化](https://livestream.com/accounts/27235681/events/8197481/videos/199850403)：
 
-我很震惊这突然发生的状况
+［我说10月、11月是最凶残的，大家都看到了。8·29、8·30、8·31，王岐山到了广州以后，平港七策是最凶险的，你们已经感受到它的凶残。这王岐山到广州，又再换腰子的时候，换肾的时候，又给香港人布下了香港人将面临的4大挑战。］
 
-coming out of the all-star game
+［这四大原则估计对香港将是巨大挑战。一手是鲍鱼，一手是毒药，一手是甜糖，一手是子弹，你选择啥吧？］
 
-来自于全明星赛中
+8、[2020年1月2日文贵报平安直播：聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](https://livestream.com/accounts/27235681/events/8197481/videos/200401000)
 
-but, you know, you’re just gonna have to improvise,
+[参与了武汉市政府所谓成立的紧急SARS，这个紧急传染病防治小组，包括来自卫生部，还来自国家公安部、政法委、国家安全委员会来的人，大家开会来看，这事可能有点猫腻。]
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18111035/001-4.jpg)
+[特别是昨天，在会上有人提出来说，SARS这个传染病已经到香港了，大家要做好到香港去帮助香港同胞，防止这个传染病的计划和措施。要求湖北省准备好2000人，而且说有参加的很多、有军医，这事有问题了。]
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18111040/002-3.png)
+[以SARS、以病戒严，以病封港，以病弄死港，然后呢！以病杀人。哇塞！这个事挺大的啊，这事挺大。这王岐山这小子，你别说孟建柱和王岐山这俩人真是有坏想法。在这个武汉协调会上，孟建柱出现了。孟建柱最近在在在武汉。]
 
-但是，你知道，你只能去凑合
+9、[2020年1月6日文贵报平安第一次直播：谈灭爆小组网络占山头插红旗全线失败](https://livestream.com/accounts/27235681/events/8197481/videos/200508152)
 
-do what they can do
+[孟建柱现在正在武汉，指挥着所谓新的非典的整个事情。]
 
-做他们能做的
+10、[2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待华人不受人尊重的原因](https://livestream.com/accounts/27235681/events/8197481/videos/200965130)：
 
-and last year was a real test for sports in particular baseball,
+[第一条：共产党有没有能力制造这种非典式的、可控的传染性病毒？我告诉你答案：能 ！可以，有这能力！
 
-而且去年是对体育运动的真正考验，尤其是棒球
+第二个，他现在有没有理由，有没有这个原因他敢这么做？我告诉答案：当他共产党权利受到威胁的时候；当他觉得这个国家养不起那么多人的时候；当他觉得这个生化武器对待改变世界，和实现他所谓的世界多级国家治理达到一级国家治理的时候。他会做！这是第二。
 
-and we’ll see what’s going to happen
+第三个，现在的武汉“非典”，是不是中共培养的，什么这个佛山啊，还是舟山病毒？对不起，我不知道！我没证据！
 
-我们会看看将会发生什么
+第四，大家认为这个，问我这个事情到底确定是不是中国共产党自己操作的，我不知道，但我有两条建议：第一个，只要是胡舒立出来说话了，《财新》说话了，你回去看看《财新》过去十八年的历史！十八年的历史！如果你们要看不明白这个，战友们你们就不应该当我战友！]
 
-and I know we don’t even know
+［共产党（的）领导每个人都是想：中国人要死一半人，他们日子就好过了。他觉得奴隶不需要十四亿，七亿就够了。这就是共产党。］
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18111046/003-2.jpg)
+附[GNEWS独家报道：武汉爆发SARS病毒 官方隐瞒信息长达五天！](https://gnews.org/zh-hans/69337/)（2019-12-31 02:10）
 
-而且我认识到我们甚至不知道
+［中国时间2019年12月30日上午在2019年的最后两天武汉突然曝出SARS病毒，此信息一经传到网络当地和中国整个网络全都惊恐万分，中共官方和媒体在12月31日进行了舆论管控和对公众撒谎（辟谣），武汉市卫生健康委员会发布红头文件：关于做好不明原因肺炎救治工作的紧急通知。该文件里只说不明原因肺炎。但事实真的像官方所说么？根本不是而且情况比官方说的严重的多。］
 
-what the game is going to be playing tonight
+整理：喜马拉雅的肉夹馍；
 
-今晚要进行什么赛事
+审核：喜马拉雅的馍夹肉；
 
-so I’m just wondering what’s going to happen
+校对：Maarago
 
-所以我只是想知道会发生什么
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-basically we’re gonna have to make some tough decisions
-
-基本上我们将不得不做出一些艰难的决定
-
-**Shaun Kraisman (Newsmax TV Anchor)**
-
-肖恩**·**克莱斯曼（**Newsmax **电视主播）
-
-such as baseball obviously, if you’ve heard,
-
-很明显，比如棒球，如果你已经听到了
-
-Bubba Watson as well had issue with going overseas
-
-还有布巴·沃森（职业高尔夫球员）出国有问题
-
-because he’s been vaccinated,
-
-因为他已经打过疫苗了
-
-but he came in contact with someone that had it.
-
-但他接触到了带病毒的人
-
-Your thoughts on that and where we’re going.
-
-您对此的看法以及我们要怎样做
-
-Not even just in the sports world,
-
-不仅在体育界
-
-but just in general, as a human population.
-
-但总的来说，作为一个人类
-
-Yeah. Are we are we following the guide
-
-是的， 我们是否遵循指导
-
-we feel like we’re following the guidelines of science on this
-
-我们觉得我们正在遵循科学的指导方针
-
-**Art Shamsky**
-
-阿特** **沙姆斯基
-
-I don’t know every teams have gotten everybody to get vaccinated,
-
-我不知道每个球队都让每个人接种了疫苗
-
-but we were so anxious to get back in a somewhat normal way
-
-但我们非常渴望回到某种正常的方式
-
-that we kind of rushed into things
-
-我们有点像是急于求成
-
-that I think it’s, it’s coming back to bite us a little bit.
-
-我认为是，它会回来咬咬我们
-
-We’re also so hungry for sports and hungry to get out
-
-我们也很渴望于体育运动而且也很想出去
-
-and now we see that there’re spikes up in a lot of cities of Los Angeles,
-
-现在我们看到洛杉矶的很多城市都出现了高峰（病毒感染）
-
-now you have to mask indoors, again,
-
-现在你必须又要在室内戴口罩了
-
-and who knows what’s going to happen.
-
-而且谁知道将会发生什么
-
-I know people want to be out and doing things,
-
-我知道人们想在室外活动并做事
-
-but we have to be very very careful.
-
-但是我们必须要特别特别的小心
-
-And We all know, sports is kind of like a thing for us
-
-我们都知道，运动对我们来说是重要的东西
-
-to be able to forget about all our other problems
-
-能够忘记我们所有的其他问题
-
-but the reality, the fact is, they’ve created a lot of problems
-
-但现实，事实是，他们造成了很多问题
-
-and now we’re going to have to wait to see what happens.
-
-现在我们将不得不去等待，看看会发生什么
-
-I do want to get this straight.
-
-我确实想弄清楚这一点
-
-Everybody loves the game of baseball.
-
-每个人都喜欢棒球比赛
-
-We want to see it back playing some normal fashion
-
-我们希望看到重新回到正常状态下的比赛
-
-but who knows what’s going to happen
-
-但是谁知道会发生什么
-
-I think the next few days are very very curious for the world sports,
-
-我认为接下来的几天对于世界体育来说是非常非常的好奇
-
-**Shaun Kraisman**
-
-肖恩**·**克莱斯曼
-
-yeah, just to be clear, I know I pointed out six
-
-是呀，只是澄清一下，我知道我指出了六个
-
-is three that were positive, they have three pending.
-
-三个是阳性，还有三个待定
-
-They’re waiting on the rapid tests according to the coach Katherine there.
-
-根据凯瑟琳教练的说法，他们正在等待快速测试结果
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 https://twitter.com/newsmax/status/1416036680973406213?s=24
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++5
