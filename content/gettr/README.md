@@ -16,6 +16,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@philip 7/18/2021 1:25 AM (UTC)`
+
+Thank You, Jason! 
+> `@jasonmillerindc 7/18/2021 12:51 AM (UTC)`<br/>Hey everyone - just met great patriot @philip - let’s give him a follow, and welcome to #GETTR!
+
+---
+
 `@miles 7/18/2021 1:19 AM (UTC)`
 
 尊敬的战友们好：明天7月18号，星期天上午9:30文贵乱聊直播，一切都已经开始！
@@ -307,13 +316,6 @@ Sellin He is a low-level liar through and through!  Can't deceive in the Western
 `@repbilljohnson 7/13/2021 4:59 PM (UTC)`
 
 The rapid rise of inflation has made it clear— President Biden should be proposing strategic budget cuts NOT pushing for a record-breaking $6 trillion government budget.
-
----
-
-`@miles 7/13/2021 11:23 PM (UTC)`
-
-<br/>尊敬的战友们好：明天7月14号上午8:30．文贵开始直播，由于身体未全面恢复！时间不会太长，希望更多的战友．有什么问题直接在留言区问我．我会尽量的回答大家集中关注的问题，一切都已经开始！
-![img](https://media.gettr.com/group12/getter/2021/07/13/23/4cfb3743-3c86-c92c-c92e-ba918a6bd49d/out.jpg)
 
 ---
 
