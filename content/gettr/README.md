@@ -18,6 +18,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/18/2021 10:36 PM (UTC)`
+
+【这才是第一个发现羟氯喹可以治疗病毒的人，缺德社，别想摘桃子🍑混淆视听。。。。看油管日期】
+![img](https://media.gettr.com/group13/getter/2021/07/14/20/af35bc5a-578c-3a21-fc26-1540917ef786/785f3378a5cf2bfd0a2798275b92c35a.jpg)
+
+---
+
+`@miles 7/18/2021 10:25 PM (UTC)`
+
+7月18日：共产党的内部政治斗争……全面升级……
+![img](https://media.gettr.com/group32/getter/2021/07/18/22/8e101704-fda0-9bab-482b-01d2434a5d9c/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@janjekielek 7/18/2021 4:19 PM (UTC)`
@@ -303,21 +317,6 @@ I had an excellent meeting at the Millerville Co-op Creamery—among the last re
 
 👍👍👍
 ![img](https://media.gettr.com/group8/getter/2021/07/14/17/dabe6075-0728-832d-ec35-a9b360121a89/d29597898227cd7327d788e07bbe36c6.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@repleezeldin 6/25/2021 5:41 PM (UTC)`
-
-RT @RepLeeZeldin: Voter ID laws should be enacted in all 50 states. RT if you agree!
-
----
-
-`@miles 7/14/2021 4:48 AM (UTC)`
-
-这个丑陋蛇妖闫……满嘴的谎言……张嘴就来！
-![img](https://media.gettr.com/group47/getter/2021/07/14/04/e6e9eb23-e052-092f-ee5c-29bdc8b32ff5/c2a829fe4fd32419fb3f26798a0dd2be.jpg)
 
 ---
 

@@ -40,14 +40,14 @@
 ### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/8/README.md)
  ` 喜联盟七哥直播组`
 
-### [【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/9/README.md)
+### [2021年7月18日灭共要闻](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/10/README.md)
+### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【秘翻在线】](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [【战友心声】路德是如何攻击新中国联邦的？](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [默克尔在与拜登联合新闻发布会上的表现](/content/gnews/43/README.md)
+### [2021年7月18日灭共要闻](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [深海海底是中共国的下一个目标](/content/gnews/44/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中国公民因策划购买美国突击队船只而被判入狱3年半](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [默克尔在与拜登联合新闻发布会上的表现](/content/gnews/46/README.md)
  ` HimalayaRussia`
 
-### [【独立观点】ZOOM的安全漏洞曾让数百万电脑面临被恶意软件感染的风险](/content/gnews/44/README.md)
+### [【独立观点】ZOOM的安全漏洞曾让数百万电脑面临被恶意软件感染的风险](/content/gnews/47/README.md)
  ` 纽约香草山MOS02`
 
-### [联合国人权事务负责人敦促释放古巴抗议者](/content/gnews/45/README.md)
+### [联合国人权事务负责人敦促释放古巴抗议者](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《园丁与木匠》- 3. 为什么有的孩子不听父母话？](/content/gnews/46/README.md)
+### [《园丁与木匠》- 3. 为什么有的孩子不听父母话？](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“制度精神”与《大宪章》](/content/gnews/47/README.md)
+### [“制度精神”与《大宪章》](/content/gnews/50/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [共和党主席又质疑大选欺诈舞弊](/content/gnews/48/README.md)
+### [共和党主席又质疑大选欺诈舞弊](/content/gnews/51/README.md)
  ` HimalayaRussia`
 
-### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/49/README.md)
+### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/52/README.md)
  ` HimalayaRussia`
 
-### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/50/README.md)
+### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/53/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中共惊惧美欧的太空军事能力](/content/gnews/51/README.md)
+### [中共惊惧美欧的太空军事能力](/content/gnews/54/README.md)
  ` 丁过`
 
-### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/52/README.md)
+### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国空军将向太平洋地区派遣约25架F-22战斗机](/content/gnews/53/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【战友寄语】美制裁7名中联办官员毫无力度](/content/gnews/54/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
-
-### [打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗](/content/gnews/56/README.md)
+### [美国空军将向太平洋地区派遣约25架F-22战斗机](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

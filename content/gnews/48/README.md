@@ -2,37 +2,36 @@
 ---
 
 
-## 共和党主席又质疑大选欺诈舞弊
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1404867/)
+## 联合国人权事务负责人敦促释放古巴抗议者
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404901/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**据《Newsmax.com》作者：Juan Barreto，2021 年 7 月 16 日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18164919/20100718.jpg)
+7 月 12 日，居住在哥伦比亚的古巴公民在古巴大使馆外抗议古巴总统米格尔·迪亚兹-卡内尔政府。（Juan Barreto / 法新社）
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18152027/A-5.jpg)thekycker.com
-对中共的邪恶在觉醒中，对中共病毒的真相在推进中，对大选舞弊的认知，随着亚利桑那州“国家审计”的结果即将公布，曾经主张“大选舞弊是阴谋论”的人也开始质疑，这类人的典型代表就是共和党全国委员会主席罗娜·罗姆尼·麦克丹尼尔（Ronna Romney McDaniel），当然，麦克丹尼尔不属于完全的建制派，在大选欺诈舞弊问题上有过怀疑，也曾相信，但是在听取了亚利桑那州参议院的听证会后，她的态度再度改变，反映了共和党内部，以及美国人对大选舞弊的觉悟。相信随着审计报告的公布，其它摇摆州审计的进行，民主党、共和党建制派阻挠审计的难度会加大，从而真相将慢慢浮出水面。
+联合国人权事务负责人敦促古巴政府释放所有在古巴抗议活动中被拘留的人，并呼吁政府解决他们的不满。
 
-《门道专家》这样报道，“惊人的！就选举舞弊和隐藏捐赠者现金的指控向《纽约时报》（NY Times）道歉之后，共和党主席罗纳·麦克丹尼尔在审计听证会后，终于在推特上发布了选举舞弊的信息”。
+在周五的一份声明中，联合国人权事务高级专员米歇尔·巴切莱特 (Michelle Bachelet) 呼吁对哈瓦那一名抗议者的死亡展开调查，这名 36 岁的抗议者周一在示威者与警察的冲突中死亡。
 
-文章说，在一月拜登就职后，共和党主席麦克丹尼尔对她的决定表示过后悔和遗憾，她曾经决定坚决支持数百万相信我们的大选被盗的美国人。
+智利前总统巴切莱特说：“我敦促政府通过对话解决抗议者的不满，尊重和充分保护所有人的和平集会权以及意见和言论自由的权利。”
 
-此前，共和党从捐赠者那里筹集了超过2.2亿美元的法律费用，以打击大选欺诈行为，但没有人知道这钱去了哪里。
+巴切莱特对大规模逮捕表示担忧，她说： “尤其令人担忧的是，这些人包括据称被单独监禁的人和下落不明的人。所有因行使权利而被拘留的人都必须立即获释。”
 
-几个月来，共和党主席和共和党一直对2020年的选举舞弊保持沉默，显然，他们的理念与选民的理念不相符。
+巴切莱特还呼吁停止对古巴的制裁，“因为制裁对人权，包括健康权产生了负面影响。”
 
-上周五（7月16日），共和党主席麦克丹尼尔终于在沉默数月后，在推特上发布了有关选举舞弊的推文！
+由于粮食短缺、物价上涨和其他不满情绪，古巴最近几天发生了 25 年来最大规模的抗议活动。警方逮捕了数十名抗议者，有时是暴力逮捕，政府指控抗议者抢劫和破坏商店。
 
-原文链接了有关文章和麦克丹尼尔推文照片。【1】
+古巴政府最初将抗议活动归咎于社交媒体和美国政府，但古巴总统米格尔·迪亚斯-卡内尔后来承认其政府在处理物资短缺和忽视某些部门方面存在缺陷。
 
-（原文完）
+**原文连接：**[https://www.newsmax.com/newsfront/us-cuba-protesters/2021/07/16/id/1028832/](https://www.newsmax.com/newsfront/us-cuba-protesters/2021/07/16/id/1028832/)
 
-麦克丹尼尔的推文写道：“越来越多的证据表明，在富尔顿（Fulton）郡的重复扫描选票和邮寄选票违规提出了令人震惊的问题，需要回答。美国人应该得到安全、透明、自由和公平的选举。”【2】
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 -– TrueSky
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-亚利桑那州的“国家审计”基本上是铁案了，需要其他摇摆州进行同样的司法审计了，麦克丹尼尔需要这样的努力来重获人心。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-有关链接：
-
-【1】[https://www.thegatewaypundit.com/2021/07/stunning-apologizing-ny-times-claims-election-fraud-hoarding-donor-cash-gop-chair-ronna-mcdaniel-finally-tweets-election-fraud-az-audit-hearing/](https://www.thegatewaypundit.com/2021/07/stunning-apologizing-ny-times-claims-election-fraud-hoarding-donor-cash-gop-chair-ronna-mcdaniel-finally-tweets-election-fraud-az-audit-hearing/)
-
-【2】[https://twitter.com/GOPChairwoman/status/1416161977047605248](https://twitter.com/GOPChairwoman/status/1416161977047605248)
-
-0
++1
