@@ -40,14 +40,14 @@
 ### [【中英文字幕】7/16/2021文贵盖特：共产党与德国默克尔密谋的新尼克松计划，彻底失败](/content/gnews/8/README.md)
  ` Caihongqiao`
 
-### [【秘翻在线】](/content/gnews/9/README.md)
+### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【秘翻在线】](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
 
-### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/10/README.md)
+### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
-
-### [郭文贵先生2019年6月13日至2020年1月20日中共生化武器文字汇总](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [【战友心声】路德是如何攻击新中国联邦的？](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
@@ -88,22 +88,22 @@
 ### [【粤语配音】默克尔：与中共国的贸易必须建立在公平竞争的原则上](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【秘翻在线】中共强拉俄国站台 指责美国太空新野心](/content/gnews/25/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [郭文贵先生2019年6月13日至2020年1月20日中共生化武器文字汇总](/content/gnews/27/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【秘翻在线】](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [巴西总统出院 住院期间从未停止工作](/content/gnews/29/README.md)
+### [洛杉矶警方称不会强制执行新的口罩规定 称没有科学支持](/content/gnews/25/README.md)
  ` 曹操`
 
-### [巴安全局势堪忧 中共会否介入式维和？](/content/gnews/30/README.md)
+### [【秘翻在线】中共强拉俄国站台 指责美国太空新野心](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【秘翻在线】](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [郭文贵先生2019年6月13日至2020年1月20日中共生化武器文字汇总](/content/gnews/28/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【秘翻在线】](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [巴西总统出院 住院期间从未停止工作](/content/gnews/30/README.md)
  ` 曹操`
 
 ### [英国航母打击群或于9月在日本靠港](/content/gnews/31/README.md)
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【战友寄语】美制裁7名中联办官员毫无力度](/content/gnews/43/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/44/README.md)
- ` 日本东京方舟农场`
-
-### [打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗](/content/gnews/45/README.md)
+### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【合辑】大废墙的厉害国杂谈](/content/gnews/46/README.md)
+### [美国空军将向太平洋地区派遣约25架F-22战斗机](/content/gnews/44/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【战友寄语】美制裁7名中联办官员毫无力度](/content/gnews/45/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/46/README.md)
+ ` 日本东京方舟农场`
+
+### [打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【合辑】大废墙的厉害国杂谈](/content/gnews/48/README.md)
  ` 大废墙`
 
-### [【重磅】](/content/gnews/47/README.md)
+### [【重磅】](/content/gnews/49/README.md)
  ` 日本东京樱花团`
 
-### [【你负责包饺子】](/content/gnews/48/README.md)
+### [【你负责包饺子】](/content/gnews/50/README.md)
  ` 日本东京樱花团`
 
-### [中共是阻碍世界文明进步的根源](/content/gnews/49/README.md)
+### [中共是阻碍世界文明进步的根源](/content/gnews/51/README.md)
  ` G-NEWS TAIWAN`
 
-### [跟着共产党，奔向火葬场](/content/gnews/50/README.md)
+### [跟着共产党，奔向火葬场](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [小平三落的原因](/content/gnews/51/README.md)
+### [小平三落的原因](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [2021/07/17 大卫作战室直播精要 -001](/content/gnews/52/README.md)
+### [2021/07/17 大卫作战室直播精要 -001](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自传体小说连载之十八：《我的忏悔录》](/content/gnews/53/README.md)
+### [自传体小说连载之十八：《我的忏悔录》](/content/gnews/55/README.md)
  ` 秘密翻译组G-Translators`
 
-### [2021/07/17 文贵盖特精要-001](/content/gnews/54/README.md)
+### [2021/07/17 文贵盖特精要-001](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/07/16 文贵盖特精要-001](/content/gnews/55/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共的杀人诛心](/content/gnews/56/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
