@@ -68,23 +68,23 @@
 ### [【世事解评】滴滴事件——背后大BOSS是谁](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【澳洲热点】短视频：总理莫里森要求对新冠病毒起源给出解释](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [郭文贵精品视频-中共末世的党外抢钱党内清洗之孙力军篇](/content/gnews/20/README.md)
+### [被社会主义铁拳砸醒的“自干五”女子](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [【字幕】7/17/2021文贵盖特：共产党的内部的政治斗争……已经到了最后的阶段](/content/gnews/21/README.md)
+### [【澳洲热点】短视频：总理莫里森要求对新冠病毒起源给出解释](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵精品视频-中共末世的党外抢钱党内清洗之孙力军篇](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [【字幕】7/17/2021文贵盖特：共产党的内部的政治斗争……已经到了最后的阶段](/content/gnews/22/README.md)
  ` Caihongqiao`
 
-### [7/14/2021 郭先生揭穿蛇妖闫、亡腚缸、博士团和假军人塞林这帮骗子的真面目](/content/gnews/22/README.md)
+### [7/14/2021 郭先生揭穿蛇妖闫、亡腚缸、博士团和假军人塞林这帮骗子的真面目](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [7/14/2021 郭先生直播：蛇妖闫、王腚肛的自爆未对爆料革命造成任何损失、反而是好处多多](/content/gnews/23/README.md)
+### [7/14/2021 郭先生直播：蛇妖闫、王腚肛的自爆未对爆料革命造成任何损失、反而是好处多多](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
-
-### [拜登政府想把北京式监控带到美国—阅读人们短信，去“挨家挨户”打疫苗](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [【秘翻在线】维也纳最新爆发20名官员患“哈瓦那综合征”](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
@@ -128,57 +128,57 @@
 ### [【世事解评】欧盟委员会多国提出抗衡中共国“一带一路”计划](/content/gnews/38/README.md)
  ` 纽约香草山MOS02`
 
-### [来自中共的知识产权盗窃的风险在上升](/content/gnews/39/README.md)
+### [数字货币市场火，媒体大佬忙建平台](/content/gnews/39/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [来自中共的知识产权盗窃的风险在上升](/content/gnews/40/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/40/README.md)
+### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/41/README.md)
+### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共安全部等七部委调查滴滴背后的真相](/content/gnews/42/README.md)
- ` 军迷wilson`
+### [【战友心声】炮蛇精闫丽梦、轰骗子王定刚](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【灭共内涵段子】段子三则](/content/gnews/43/README.md)
+### [猛料|中共想要的中美新尼克松时刻被挫败，共产主义者默克尔无法复制基辛格](/content/gnews/44/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+
+### [【灭共内涵段子】段子三则](/content/gnews/45/README.md)
  ` 日本东京樱花团`
 
-### [[财经浅析 ] 中共在养猪行业割韭菜](/content/gnews/44/README.md)
+### [[财经浅析 ] 中共在养猪行业割韭菜](/content/gnews/46/README.md)
  ` 澳喜农场`
 
-### [7/18/2021日本银河快讯：日本呼吁中美洲八国警惕中共，维护国际秩序；日本单日感染人数超过3800人](/content/gnews/45/README.md)
+### [7/18/2021日本银河快讯：日本呼吁中美洲八国警惕中共，维护国际秩序；日本单日感染人数超过3800人](/content/gnews/47/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [亡腚肛、蛇妖闫为什么会砸爆料革命](/content/gnews/46/README.md)
+### [亡腚肛、蛇妖闫为什么会砸爆料革命](/content/gnews/48/README.md)
  ` 澳喜农场`
 
-### [针对近期时态的一点感想](/content/gnews/47/README.md)
+### [针对近期时态的一点感想](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [【蛇妖闫现形录】天使与魔鬼只在一念之间](/content/gnews/48/README.md)
+### [【蛇妖闫现形录】天使与魔鬼只在一念之间](/content/gnews/50/README.md)
  ` 纽约香草山MOS02`
 
-### [拜登政府官员承认实验室泄漏理论是“可信的”](/content/gnews/49/README.md)
+### [拜登政府官员承认实验室泄漏理论是“可信的”](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共对二次病毒调查态度首次出现软化迹象](/content/gnews/50/README.md)
+### [中共对二次病毒调查态度首次出现软化迹象](/content/gnews/52/README.md)
  ` 军迷wilson`
 
-### [美国务院就《香港国安法》实施一周年发表声明](/content/gnews/51/README.md)
+### [美国务院就《香港国安法》实施一周年发表声明](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [2021年7月17日灭共要闻](/content/gnews/52/README.md)
+### [2021年7月17日灭共要闻](/content/gnews/54/README.md)
  ` 秘密翻译组G-Translators`
 
-### [敌对国家对英国的威胁可能与恐怖主义一样严重](/content/gnews/53/README.md)
+### [敌对国家对英国的威胁可能与恐怖主义一样严重](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [由于中共的镇压，许多香港公民正在逃离](/content/gnews/54/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [五角大楼官员说中共国正在开发太空武器](/content/gnews/55/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [辉瑞称疫苗的免疫力开始减弱，需在六个月后接种第三剂](/content/gnews/56/README.md)
+### [由于中共的镇压，许多香港公民正在逃离](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
