@@ -2,49 +2,100 @@
 ---
 
 
-## 樱花国际要闻汇编🌸7月18日
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1403606/)
+## 2021/07/18 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1403848/)
 
-素材汇编：东京樱花团 GNEWS组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18005335/20210718015134213-1.jpg)
-1、[美阻止中共购买艾司摩尔EUV设备](https://www.aboluowang.com/2021/0718/1620499.html)
+收集：Alicia，Cindy，Daniel，Filon，Kangen，The flying hawk，文大石
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-华尔街日报（WSJ）报导，北京要求荷兰政府允许艾司摩尔（ASML）把一款生产尖端微处理器芯片所需的关键设备，卖给中国公司，因受到美国政府阻挡而无法如愿。迄今为止艾司摩尔一台都没卖给中企。
+## 光明网：全国多地不接种疫苗将影响出行？官方回应！
 
-该设备重180吨、售价1.5亿美元，是艾司摩尔招牌产品，称为“极紫外光（EUV）微影系统”，是制造最先进微处理器必需。英特尔、三星电子、台积电等公司都使用EUV设备，生产用于智能手机、5G无线设备、人工智能电脑系统的尖端芯片。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18041423/df85f048-e11a-4c3a-9823-59e20fa485a9-5-2.jpg)
 
-2、[法国各地11万人周末举行反疫苗示威](https://www.aboluowang.com/2021/0718/1620657.html)
 
-法国周末（7月17）再次爆发反疫苗示威，反对接种疫苗以及实施疫苗通行证。从里尔到马赛，从巴黎到蒙彼利埃，约11万民众参加示威活动。法新社记者现场报道，多地示威在”平静”中结束；里昂示威者与警方冲突，9人被捕。
+> 评论：中共的官僚总是在作恶做过了头引起民间反弹时就把锅甩给前面的炮灰打手，就例如这次的毒疫苗强制接种问题，然后自己躲在后面在装出一副青天大老爷的样子。但是中共永远都无法回避这一切的恶果都是中共自身之前种下的恶因，而且文贵先生说过CCP病毒溯源和追责问题已经在2021年5月份就已经完成了，不管中共再怎么撒泼打滚耍无赖，并且继续在墙内瞎忽悠，然后再找些大头症患者在海外四处捣乱，依然无法改变中共已经完犊子的这件事实。
 
-3、[美与中亚国家发表C5+1国际会议联合声明](https://www.aboluowang.com/2021/0718/1620495.html)
 
-中亚国家与美国“C5+1”会谈在乌兹别克斯坦首都塔什干举行。美国国务院7月16日发布了有关C5+1国际会议的联合声明。
+## 每日经济新闻：“官方带娃”时代来了，首批城市“带”得如何？
 
-主题为：中亚和南亚：区域连通性。挑战与机遇”的声明说， C5+1国家承诺通过我们的区域外交平台加强接触，并寻求机会通过贸易、运输和能源联系加强中亚和南亚地区之间的联系。 C5+1认识到加强互联互通支持其实现繁荣和安全的中亚的共同目标。中亚经济增长和有关与南亚经济体建立更密切联系的远见卓识，也加强了 C5+1对加强该地区安全与稳定的承诺，包括通过阿富汗和平谈判。
+![]()![](https://p5.itc.cn/q_70/images03/20210717/93710c4804b149f2a3a347bd26afbeab.jpeg)
 
-4、[全美史上首次 加州议会通过保证生活费](https://www.aboluowang.com/2021/0717/1620412.html)
 
-《布莱巴特新闻》报道，由民主党领导的加州立法机构，15日批准了有史以来第一个由州政府资助的保障收入计划。
+> 评论：中共总喜欢打着做好事的旗号干坏事，而这个“官方带娃”值得警惕，想一想红黄蓝事件以及类似事件，明智的家长就应该知道不要把孩子往魔窟里送。
 
-加州的立法者批准了3500万美元，用于每月向孕妇和”最近离开寄养家庭的年轻成年人”支付现金，并对这些现金的使用没有做出任何限制。
 
-美联社报道，投票结果是参议院36比0，议会64比0，这表明民主党和共和党，都在支持政府资助的收入保障计划。
+## 澎湃新闻：我国发现首例人类感染猴B病毒致死病例：为一男性兽医
 
-5、[美驻维也纳20名外交人员患脑部怪病](https://www.aboluowang.com/2021/0718/1620718.html)
+![中國首現人類感染猴B病毒北京獸醫解剖死猴後染毒身亡｜香港01｜即時中國](https://cdn.hk01.com/di/media/images/dw/20210718/493361889774931968632584.jpeg/GADEUbb_SKPyObmJZFiRsnBLnpvLCelUeGj5KHho-Sg?v=w1920)
 
-英国广播公司(BBC)报导，美国派驻维也纳的20多名外交官和行政人员罹患怪病，类似几年前美国驻古巴哈瓦那大使馆的情况。奥地利和美国已展开联合调查。
 
-“哈瓦那症候群”迄今无法解释，美国科学家说，最可能的原因是已侦测到的微波辐射。
+> 评论：警惕这是中共准备为再次释放新型病毒做铺垫 。共党不完，新型病毒不会止。尝到新冠病毒“甜头”的中共，不会放弃这种掌控世界的手段。
 
-6、[巴基斯坦巴士爆炸案为自杀恐攻](https://www.aboluowang.com/2021/0718/1620498.html)
 
-根据巴基斯坦英文报纸“黎明报”（Dawn）报导，巴基斯坦北部14日发生巴士爆炸案，为自杀炸弹客所为，他驾驶载有爆炸物的汽车冲撞巴士，造成9名中国籍水坝工程人员死亡。
+## BBC：[美国就香港的营商环境发风险警告， 宣布制裁再多一批中国官员](https://www.bbc.com/zhongwen/simp/world-57870007)
+![One Hong Kong protester is draped with the US flag during the 24th May 2020 protests.]()![One Hong Kong protester is draped with the US flag during the 24th May 2020 protests.](https://ichef.bbci.co.uk/news/640/cpsprodpb/AB27/production/_119451834_gettyimages-1215098878.jpg)
 
-报道说：“当车队驶上开放通行的道路上时，另一辆车设法钻进车队之间，而这辆车载满爆炸物。”“驾驶冲撞第一辆巴士，接着发生了爆炸。然而，由于引信故障，爆炸物没有完全引爆。第2辆巴士的驾驶看见前方巴士被撞后，试图急转弯但失控，造成巴士坠谷，导致车上多数人丧命。”
+> 评论：这是与中共国全方位脱钩的预警。
 
-免责申明：本文只代表作者观点，与GNews网站无关。
-编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
+
+## BBC：[中国港澳办主任夏宝龙：香港管治架构应排除“反中乱港分子”](https://www.bbc.com/zhongwen/simp/chinese-news-57863034)
+
+![1]()![1](https://ichef.bbci.co.uk/news/640/cpsprodpb/B594/production/_119448464_xxjpsgc007147_20210716_pepfn0a001_720x720.jpg)
+
+
+> 评论：香港将完全失去民主与自由。
+
+
+## 法广：[香港反修例运动纪录片《时代革命》震撼戛纳电影节](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210716-%E9%A6%99%E6%B8%AF%E5%8F%8D%E4%BF%AE%E4%BE%8B%E8%BF%90%E5%8A%A8%E7%BA%AA%E5%BD%95%E7%89%87-%E6%97%B6%E4%BB%A3%E9%9D%A9%E5%91%BD-%E9%9C%87%E6%92%BC%E6%88%9B%E7%BA%B3%E7%94%B5%E5%BD%B1%E8%8A%82)
+
+![第74届戛纳电影节意外在特别放映单元增加的香港纪录片《时代革命》剧照。香港电影人周冠威是影片唯一署名导演。](https://s.rfi.fr/media/display/120aac54-e669-11eb-bb5e-005056a90284/w:980/p:16x9/033fa08ce0c56b0acfb788fd5b65cfa2b78ed84e.webp)
+
+
+> 评论：时代革命为灭共打开了第一道大门，也给十日展现出香港人为争取自由和民主的不屈不挠的伟大精神。
+
+
+## 法广：[被指涉袭香港高院保安 “王婆婆”罪成判囚 1 个月](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210714-%E8%A2%AB%E6%8C%87%E6%B6%89%E8%A2%AD%E9%A6%99%E6%B8%AF%E9%AB%98%E9%99%A2%E4%BF%9D%E5%AE%89-%E7%8E%8B%E5%A9%86%E5%A9%86-%E7%BD%AA%E6%88%90%E5%88%A4%E5%9B%9A-1-%E4%B8%AA%E6%9C%88)
+
+![香港“王婆婆”王凤瑶资料图片](https://s.rfi.fr/media/display/b8655050-c1f1-11eb-86fb-005056a98db9/w:980/p:16x9/31.5%20%E7%8E%8B%E5%A9%86%E5%A9%86%E4%B8%80%E4%BA%BA%E5%89%8D%E8%A1%8C%E4%BA%A6%E9%81%AD%E8%AD%A6%E6%96%B9%E5%9C%8D%E6%8D%95%28%E7%B6%B2%E4%B8%8A%E5%BD%B1%E7%89%87%E6%88%AA%E5%9C%96%29.webp)
+
+
+> 评论：中共连一个老婆婆都不放过，整个就是一个无耻的黑帮。
+
+
+## 新唐人推文
+
+
+
+> 美國制裁七名中聯辦官員 布林肯譴責國安法
+>  [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hash&amp;ref_src=twsrc%5Etfw) 國安法實施一年多，港人處境迅速惡化。週五，[#美國](https://twitter.com/hashtag/%E7%BE%8E%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 財政部海外資產控制辦公室宣布，制裁香港中聯辦七名副主任。同一天，國務卿布林肯也發文譴責 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw)。[https://t.co/jbz5d44pHg](https://t.co/jbz5d44pHg)
+> — 新唐人電視台 (@NTDChinese) [July 17, 2021](https://twitter.com/NTDChinese/status/1416506246140682240?ref_src=twsrc%5Etfw)
+
+
+
+
+> 评论：美国终于意识到国安法的危害，香港的彻底沦陷
+
+
+## （美国政要推文）参议员外国关系委员会资深委员(吉姆·里施)
+
+
+
+> 参议员外国关系委员会资深委员(吉姆·里施)：[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 的镇压使 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hash&amp;ref_src=twsrc%5Etfw) 从一个充满活力的国际金融之都变成了一个这样城市，在那里公司必须警惕香港商业咨询所强调的强制数据传输等风险。中共不仅对人权有害，对企业也有害。 [https://t.co/hW2gegnZoa](https://t.co/hW2gegnZoa)
+> — 美国政要直译推 (@zhiyitw33) [July 17, 2021](https://twitter.com/zhiyitw33/status/1416495129901162498?ref_src=twsrc%5Etfw)
+
+
+
+
+> 评论：一旦香港和世界脱钩，中共的钱袋子就彻底空了
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

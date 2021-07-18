@@ -2,19 +2,20 @@
 ---
 
 
-## 【秘翻在线】美国德克萨斯州出现罕见的猴痘病例
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403703/)
+## 【秘翻在线】美科技巨头与中共沆瀣一气
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403698/)
 
-#### 采集/撰稿：zzballack
+撰稿：William 校对：牛小妹
 
-#### 责编：胡天
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18023823/1-82.png)
-来源：印度斯坦时报
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18035104/facebook-1-1.jpg)
+身为Facebook和Lead Stories(TikTok 的事实核查合作伙伴)的联合创始人兼主编——艾伦·杜克（Alan Duke）在War room 的采访中，明确地表示他不会拒绝任何来自与共产党有关系的客户，尽管是被美国认证的共产党关系深厚的公司。
 
-据《零对冲》7月17日报导，在德克萨斯州出现了极为罕见的猴痘（Monkeypox ）病例后，美国疾控中心正在努力追踪该病例的直接接触者。该患者最近在尼日利亚旅行后返回美国，在7月6日入境亚特兰大国际机场，然后第二天抵达达拉斯的爱田机场，现在在达拉斯的一所医院隔离。据说该患者是德州的第一起类似病例，也是美国近20年来的首起猴痘病例。美国上一次大规模的猴痘爆发还是在2003年，当时有47人感染。
+在War room 的采访中，艾伦·杜克承认在疫情期间审查了保守派媒体《国家脉动》(National Pulse)的几篇关于批评乔·拜登和 Facebook 的文章。虽然该公司(Lead Stories)声称公正，但联邦选举委员会 (FEC) 的记录显示，该公司员工的所有捐款都捐给了民主党候选人和反川普团体。除了审查 Facebook 的内容外，杜克的网点还与 TikTok 的母公司字节跳动(ByteDance)合作。字节跳动(ByteDance)的创始人承诺利用他的公司弘扬社会主义核心价值观，并成立了一个由共产党管理内容监管专家组，其中包括与解放军军方有联系的前党内高级官员担任高管。
 
-据美国CDC官员说，人接触了猴痘病毒后，7到14天后开始出现症状，通常是疲劳、发烧、头痛和肌肉痛。接着一个星期内感染者的身上开始出现皮疹，并扩散到全身。在疹子结痂脱落之前，患者被认为具有传染性。但是鉴于猴痘致死率低于天花（smallpox）,达拉斯卫生官员称“没必要恐慌”。这两种疾病很相似，都会出现严重的皮疹，持续时间约为一个月，但是猴痘患者遍布全身的皮疹看起来更加可怕和痛苦。由于猴痘的携带者是啮齿动物等野生动物，所以它可能不那么容易传播。人际间是通过体液和呼吸道飞沫传播。美国CDC尚未确定猴痘的主要携带者，但“怀疑非洲的啮齿动物在传播中起了一部分作用。”
+史蒂芬·班农后来询问，如果可以向你展示美国国务院(State Department)的这些文件，并且娜塔莉(Natalie)向你展示字节跳动负责人所说的话的细节，如果你了解到他们参与中共的细节，特别是中共的情报部门，你会答应放弃他们的客户吗？
 
-[新闻来源](https://www.zerohedge.com/medical/cdc-scrambles-rare-case-monkeypox-turns-texas-after-infected-person-took-inbound-flights)
+杜克立即拒绝承诺放弃与中共有关的科技公司,并表示他们是一家提供服务的美国公司，这是自由企业，所以不会承诺拒绝与任何来自中共国的公司做生意。
+
+**[新闻来源](https://thenationalpulse.com/news/alan-duke-wont-commit-to-dropping-ccp-as-client/)**
 
 0
