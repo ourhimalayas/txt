@@ -31,13 +31,13 @@
 ### [英众议院通过动议对北京冬奥会进行外交抵制](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月18日 文贵先生盖特 1](/content/gnews/6/README.md)
+### [【郭先生盖特视频摘要】2021.7.16：蓬佩奥是灭共最关键的人之一](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年7月18日 文贵先生盖特 1](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/7/README.md)
- ` 喜联盟七哥直播组`
-
-### [2021年7月18日文贵先生直播同步精要文字版](/content/gnews/8/README.md)
+### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/8/README.md)
  ` 喜联盟七哥直播组`
 
 ### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/9/README.md)
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/43/README.md)
+### [共和党主席又质疑大选欺诈舞弊](/content/gnews/43/README.md)
  ` HimalayaRussia`
 
-### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/44/README.md)
+### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/44/README.md)
+ ` HimalayaRussia`
+
+### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/45/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中共惊惧美欧的太空军事能力](/content/gnews/45/README.md)
+### [中共惊惧美欧的太空军事能力](/content/gnews/46/README.md)
  ` 丁过`
 
-### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/46/README.md)
+### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国空军将向太平洋地区派遣约25架F-22战斗机](/content/gnews/47/README.md)
+### [美国空军将向太平洋地区派遣约25架F-22战斗机](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【战友寄语】美制裁7名中联办官员毫无力度](/content/gnews/48/README.md)
+### [【战友寄语】美制裁7名中联办官员毫无力度](/content/gnews/49/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/49/README.md)
+### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗](/content/gnews/50/README.md)
+### [打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【合辑】大废墙的厉害国杂谈](/content/gnews/51/README.md)
+### [【合辑】大废墙的厉害国杂谈](/content/gnews/52/README.md)
  ` 大废墙`
 
-### [【重磅】](/content/gnews/52/README.md)
+### [【重磅】](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [【你负责包饺子】](/content/gnews/53/README.md)
+### [【你负责包饺子】](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [中共是阻碍世界文明进步的根源](/content/gnews/54/README.md)
+### [中共是阻碍世界文明进步的根源](/content/gnews/55/README.md)
  ` G-NEWS TAIWAN`
 
-### [跟着共产党，奔向火葬场](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [小平三落的原因](/content/gnews/56/README.md)
+### [跟着共产党，奔向火葬场](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 

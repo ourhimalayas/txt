@@ -2,131 +2,57 @@
 ---
 
 
-## 【合辑】大废墙的厉害国杂谈
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1404443/)
+## 打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404475/)
 
-## 墙国文宣随想
+**据《大纪元时报》作者：NINA NGUYEN，2021 年 7 月 16 日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18102956/1435%E6%8B%B7%E8%B2%9D.png)2020 年 9 月 7 日，新西兰军队在奥克兰中央商务区的一家酒店门前看守，该酒店在新西兰奥克兰被用作 COVID-19 的隔离设施。（Fiona Goodall / 盖蒂图片社）
+新西兰国防军 (NZDF) 的现役成员指责该国国防军对其成员施加越来越大的敌意压力，要求其接种 COVID-19 疫苗，因为这个太平洋国家推出了 CCP 病毒疫苗。
 
+这个问题在一封由 Stuff.co.nz 获得的发给国防部长 Peeni Henare 的未公开信中得到了披露，信中概述了未接种疫苗的穿制服的成员如何受到不公平待遇和不当胁迫。
 
+有成员解释说，当着别人的面向领导报告自己的疫苗接种情况，并解释为什么没有接种疫苗，这违反隐私法。其他拒绝接种疫苗的成员声称，他们的名字被列在墙上的名单上。
 
-## 墙国文宣案例之商业分析：小品《打工奇遇》
+一些成员还声称，他们被告知必须接种疫苗，否则他们将被解雇或重新分配，即使他们有正当的医疗理由不接受疫苗接种。
 
+新西兰国防军总司令凯文·肖特 (Kevin Short) 在 4 月份表示，新西兰国防军不会强迫人们接种疫苗，并且“将由个人决定同意或不同意”接种疫苗。之后就出现了欺凌和胁迫的指控。
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18100412/13-4-768x450-1.jpg)](https://gnews.org/zh-hans/984262/)
+然而，肖特指出，不接受注射可能会影响一个人的部署能力，因为该疫苗现在被认为是国防军的主要接种疫苗。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18104134/1435%E2%80%911%E6%8B%B7%E8%B2%9D.png)新西兰皇家国防军于 2016 年 11 月 15 日在新西兰发生地震后用直升机从凯库拉疏散游客。
 
-[中共之恶的核心是体制之恶。中共治下的商人，腹背受气，如今仍然在夹缝中艰难求生。](https://gnews.org/zh-hans/984262/)
+肖特说，“我的期望是，每个人都会接种疫苗，让他们发挥自己的作用。”
 
+新西兰国防军发言人在 7 月 16 日的一封电子邮件中告诉《大纪元时报》，新西兰国防军已经向所有成员明确表示，他们需要接种 COVID-19 疫苗才能继续履行职责。
 
+发言人说：“新西兰国防军从 COVID-19 疫苗接种计划一开始就非常清楚，人员部署的能力将取决于他们的疫苗接种状态，与其他针对麻疹、脊髓灰质炎、肝炎、白喉和破伤风等疾病的疫苗接种一样。”
 
+“新西兰国防军鼓励对 COVID-19 疫苗有疑问的所有成员以及任何感兴趣的应聘者与他们的医生或值得信赖的医疗保健专业人员交谈。”
 
+这位发言人的评论是在 3 月新西兰国防部长 Peeni Henare 在一次媒体发布会上宣布新西兰国防军将为所有可部署的军事人员接种疫苗之后发表的。
 
+“新西兰国防军成员必须为其他任务做好准备，例如短期通知的国内或国际部署。新西兰国防军还通过运营自己的机场和港口在边境开展业务，许多成员的生活与营地和基地共同混合在一起。”他说，“出于所有这些原因，为大约 9500 人的整个部队统一接种疫苗是有意义的。”
 
+他指出，国防军不得不经常应对太平洋地区的自然灾害。保护该地区免受 COVID-19 的侵害非常重要。
 
-## 墙国邪恶宣传案例经典：小品 – 超生游击队
+Henare说：“没有人愿意将 COVID-19 传播到可能没有 COVID-19 的太平洋国家。为可部署的军队接种疫苗是一个谨慎的举动。”
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18103932/1435%E2%80%912%E6%8B%B7%E8%B2%9D.png)国防部长 Peeni Henare 于 2019 年 12 月 11 日在新西兰惠灵顿的议会提问时间发表讲话。 （Hagen Hopkins /盖蒂图片社）
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18100743/%E8%B6%85%E7%94%9F-2-400x225-1.jpg)](https://gnews.org/zh-hans/957043/)
+然而，这封信的作者和背后团体的法定代表马修·黑格 (Matthew Hague) 说，没有理由不允许未接种疫苗的成员继续他们的职业生涯，因为获得医疗豁免的国防军成员已经能够这样做。
 
+他说：“要求穿制服的成员违背他们的意愿接种疫苗将违反《权利法案》。”
 
-[中共将基本的公民权利回收，然后根据阶级制度的需要再分配。通过魔幻的宣传手段，让百姓不去思考中共邪恶，反而不断检查自己是否足够顺从。](https://gnews.org/zh-hans/957043/)
+黑格说：“过去几年，国防军向他们的成员提出了很多要求，新西兰国防军的成员已经挺身而出，为新西兰尽其所能。他们所要求的只是国防部公平合法地对待他们。”
 
+原文连接：[https://www.theepochtimes.com/get-jabbed-or-get-sacked-jobs-of-serving-members-of-the-nz-defence-force-threatened\_3900756.html](https://www.theepochtimes.com/get-jabbed-or-get-sacked-jobs-of-serving-members-of-the-nz-defence-force-threatened_3900756.html)
 
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-* * *
-
-## 草民翻墙笔记
-
-
-
-## 墙民隐私保护笔记（一） 翻墙参战之前
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18103819/66.png)
-
-
-[作为墙国居民，翻墙是一个独特且有趣的经历。能在Gnews上看到这篇文章的墙民，一定对翻墙已经非常熟悉。然而，熟悉不等于已经做好准备。作为爆料革命的墙内战友，翻墙只是寻求正义和真相的第一步。](https://gnews.org/zh-hans/384688/)
-
-
-
-
-
-
-
-## 墙民隐私保护笔记（二）安全翻墙指南
-
-
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18102828/FFFF.png)](https://gnews.org/zh-hans/394571/)
-
-
-[从技术选择角度，向战友们分享对中共防火墙的认识以及保护自己隐私的心得。](https://gnews.org/zh-hans/394571/)
-
-
-
-
-
-
-
-## 墙民隐私保护笔记(三）安全参战指南
-
-
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18101715/ggggggg-400x225-1.jpg)](https://gnews.org/zh-hans/538122/)
-
-
-[在美国2020总统大选的关键时刻，在正邪交锋白热化的时刻，给战友们即可以保护自己又可以参战的建议。](https://gnews.org/zh-hans/538122/)
-
-
-
-
-
-* * *
-
-## 中共病毒杂谈
-
-
-
-## 【公开信】致墙内科研工作者
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18102410/20200213-3d5f760abc5fb20b_700x5000.png)
-
-
-[希望唤醒墙内的科研草根。我们追求的是正义、真相与善良，我们需要的是勇气与智慧。期待在爆料革命的路上，在新中国联邦与您相遇。](https://gnews.org/zh-hans/1280238/)
-
-
-
-
-
-
-
-## 对FDA关于伊维菌素陈述的疑问
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18102630/%E6%88%AA%E5%B1%8F2021-06-19-07.50.01.png)
-
-
-[笔者虽然不是病毒专业人士，但是对于FDA网站上一篇题为《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》的声明，依然抱有很多疑问。](https://gnews.org/zh-hans/1332671/)
-
-
-
-
-
-
-
-## 从中共病毒蹂躏下的印度想到的
-
-
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18101446/%E6%9C%AA%E6%A0%87%E9%A2%98-1-400x225-1.jpg)](https://gnews.org/zh-hans/1165779/)
-
-
-[显然，当下全世界对中共的集体声讨丝毫没有影响它继续祸害人类，笔者尝试从另一个方面去解读中共的超限战战术。](https://gnews.org/zh-hans/1165779/)
-
-
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
