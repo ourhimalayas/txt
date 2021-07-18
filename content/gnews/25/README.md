@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【秘翻在线】造假！古巴政府制造支持政府集会以应对全国抗议
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403561/)
 
-撰稿人：喜相逢 校对发布：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17233142/6-16.jpg)图片来源：yahoo finance
-据路透社最新报道， 为应对上周天以来古巴全国各地爆发的抗议反共活动，本周六古巴政府在首都哈瓦那举行支持政府的大规模群众集会。人们挥舞着印有古巴总统兼共产党领袖米格尔-迪亚斯-卡内尔，前总统 劳尔-卡斯特罗及已故总统 菲德尔-卡斯特罗的图片和海报。
+## 把片头、新闻策划、视频及设备和房子全拿掉后路德社会是啥样
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1403690/)
 
-此前一周， 古巴人民前所未有的抗议震撼了这个共产党统治的国家。古巴各地的抗议和示威活动因基本物资普遍短缺， 人们强烈要求获得应有的政治权利， 抗议该岛国爆发了自大流行病开始以来最严重的CCP病毒疫情。
 
-在哈瓦那的集会正式开始前不久，当局将一名高喊 “自由 “等反政府口号的男子从人群中带走。前总统卡斯特罗与数千人一起参与了本次政府组织的集会，谴责美国的贸易禁运。 政府承认了一些缺点， 但是将古巴各地爆发的抗议活动全部归咎于美国资助的 “反革命分子 “利用美国制裁造成的经济困难。同时古巴现总统公开讲话中告诉群众“敌人又一次投入到破坏公民的神圣团结和安宁中”，  “我们召集你们是为了再次谴责封锁、侵略和恐怖”。
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18021922/S_%E5%89%AF%E6%9C%AC.png" alt="" class="wp-image-1403691" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18021922/S_%E5%89%AF%E6%9C%AC.png" alt="" class="wp-image-1403691"></noscript></figure>
+<p>只要别人做到了我自己做不到的，我都会顶礼膜拜，在路德社被起底之前，每天早晚各一期的路德社一直是我佩服和崇拜的对象，为什么呢？因为如果是我一个人，我做不到这样的节目强度，对于每期节目内容我也做不到那样的深度和广度，在我看来路德一个人做了这全套，这种强度和这种深度是我达不到的，所以路德社是我佩服和崇拜的对象。</p>
+<p>可是在看了哈恩<a href="https://app.gettr.com/post/p4jsbg">发表于 1:25 PM · Jul 18, 2021</a>的盖特：</p>
+<p>离开义工战友们缺德骗 从凤凰变成秃尾巴野鸡哈哈</p>
+<p>盖特配图为——</p>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18021950/be8b56ea58e6e83789dc800f5234079e_500x0.jpg" alt="" class="wp-image-1403694" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18021950/be8b56ea58e6e83789dc800f5234079e_500x0.jpg" alt="" class="wp-image-1403694"></noscript></figure>
+<p>原来片头是义工做的，原来新闻素材是义工提供的，原来图片是义工设计的，原来视频是义工翻译的，原来设备是郭先生提供的，原来房子是郭先生赠予的，在这些之外，这个号称独立的路德社剩下了什么呢？</p>
+<p>除了卖情怀和拉着路德社的美国爹塞林以及路德的姘头蛇妖闫之外，路德社还有什么呢？路德社就变成了光腚社，在我看来一台节目如果能吸引到观众，它要么能告诉观众所不知道的事情——所谓重大历史事件的解读，它要么能提供观众所不了解的信息——所谓重大情报的披露，它要么能告诉观众所不明白的道理——所谓腹有诗书气自华。</p>
+<p>在离开了爆料革命这个最大的信息源和背书之后，那个本来一肚子男盗女娼的亡腚缸还能卖出点儿什么新鲜货呢？离开了爆料革命战友们的支持，离开了郭先生无私支持的设备及住所，路德社还能风光几时呢？</p>
+<p>但无论如何，亡腚缸到此时也还有一点是我永远无法企及的——那种无底线的不要脸，因为要是我的话，要是我要背叛爆料革命和砸郭，我首先要把郭先生无私赠予的住所和设备一一返还，再要把战友们的作品一一下架和撤换，而亡腚缸却能无视这一切的赠予和支持勇敢地翻脸，此时此刻我还是很佩服亡腚缸的，人至贱则无敌，亡腚缸，你赢了！</p>
+<p>撰稿：喜马拉雅的肉夹馍；</p>
+<p>审核：喜马拉雅的馍夹肉；</p>
+<p>校对：Maarago</p>
+<p>（文章内容仅代表作者个人观点）</p>
+<p><a href="https://discord.com/channels/805765245758472202/851632878567948351" target="_blank" rel="noreferrer noopener">日本银河系农场Discord群</a>，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道<a href="https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA" target="_blank" rel="noreferrer noopener">日本银河系农场</a>以及我们的G-TV官方频道<a href="https://gtv.org/user/60c0168b8ce6da73c416c24b#home" target="_blank" rel="noreferrer noopener">日本银河系农场</a>。</p>
+<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403690" data-ulike-nonce="8e16a01472" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403690"></button><span class="count-box">0</span> </div></div>
 
-古巴政府表示同一时刻，全国范围多地已召开类似集会。此次参加政府组织集会的工人们是由被称为保卫革命委员会的街区委员会召集起来的。他们凌晨4点由国家大巴统一接到哈瓦那集会。 参加哈瓦那集会的州社会工作者玛格丽特-阿特加（Margaritza Arteaga）说：“这场革命将持续很长时间”。
-
-古巴与中共的同一手法，一边内部制造“粉红”占领媒体来公开打压真正的抗议人士，一边破坏与外界联系的通讯渠道， 私底下还要制造各种各样拘留及非正常死亡。 不知道凌晨四点被大巴接走的工人们是不是也会每人拿到一点工钱？古巴本次企图使用像长期的，持续的， 全国各地的支持共产主义的集会来应对爆发的抗议，并趁此机会将矛头全部指向美国。表面承认了错误， 但是未有一点真正听从民意并作出改变，可见共产政府一贯的用心之险恶，阴毒。  多年共产主义对整个国家造成的恶果爆发以后， 一旦普通的人们一点一点的醒来不再犹豫，人们如何还能被人为制造的“政治正确”， 和大街上挥舞的“领袖”头像再次影响？人们如何不更加的愤怒和尝试反抗？
-
-**新闻来源**：[https://www.reuters.com/world/americas/cuban-government-holds-mass-rally-havana-after-protests-2021-07-17/](https://www.reuters.com/world/americas/cuban-government-holds-mass-rally-havana-after-protests-2021-07-17/)
-
-0

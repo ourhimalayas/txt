@@ -1,47 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 令人震惊的达扎克/福奇邮件揭示了冠状病毒和试图感染人类细胞的企图
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1403099/)
 
-翻译：飞利普 | 校对：烟波浩淼
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17171952/Picture1-51.png)图片来自网络
-生态健康联盟主席彼得·达扎克(Peter Daszak)于2017年向安东尼·福奇(Anthony Fauci)发送邮件，概述了他与武汉病毒研究所石正丽对“蝙蝠源冠状病毒”的合作研究，其中包括“在实验室中进行检测以确定它是否可以感染人类细胞。”
-
-达扎克将2017年10月通过司法观察提交的《信息自由法》[发布](https://thenationalpulse.com/exclusive/daszak-fauci-email-reveal-coronavirus-research-with-wuhan/#google_vignette)的电子邮件命名为“机密——根据我们国家过敏和传染病研究所R01(NIAID R01)在中国的猪中发现的一种新的源自蝙蝠的冠状病毒。” 达扎克似乎提到了福奇的国家过敏和传染病研究所向生态健康联盟组织提供的370万美元[拨款](https://reporter.nih.gov/search/chN6XjrC-0Wj3GvdZ1GkwQ/project-details/9819304)，其宣称的目的是“了解蝙蝠冠状病毒出现的风险”。
-
-然而，这笔拨款很可能导致了与军方有联系的武汉病毒研究所的 “[功能增强](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)“研究合作。
-
-最近被《柳叶刀》的中共病毒委员会[撤职](https://thenationalpulse.com/breaking/scalp-daszak-recused-from-covid-commission-after-repeated-national-pulse-exposes/)的达扎克在给福奇和他的国家过敏和传染病研究所同事的邮件中附上了一篇未发表的关于一种“未知的人畜共患病”的“新型蝙蝠源冠状病毒”论文。
-
-他在将武汉研究员石正丽列为联合首席研究员之前补充道，“我们也在做检测，以确定它是否可以在实验室感染人类细胞，目前还没有证据证明这一点”。 这一描述也破坏了福奇过去试图在财务和人事上与武毒所[保持距离](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)的努力。
-
-达扎克还透露，他在发送邮件的当天（2017 年 10 月 1 日）“[再次](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)”见到了福奇，[恰逢](https://thenationalpulse.com/exclusive/fauci-headlined-conference-with-shi-and-daszak/)是[“新出现和重新出现的病毒”](https://thenationalpulse.com/exclusive/fauci-headlined-conference-with-shi-and-daszak/)会议开幕日。福奇在活动上发表了主题演讲，达扎克和石也发表了讲话。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17172338/Picture2-8.png)完整邮件
-邮件全文如下：
-
-*尊敬的福奇博士和国家过敏和传染病研究所的同事们，*
-
-*很高兴今天再次见到您。我附上了一篇未发表的论文，目前正在《自然》杂志的第二轮审查中，该论文描述了一种最近蔓延到中共国南方的养猪场，导致广东省**5**个以上养猪场超过**25,000**头仔猪死亡的新型蝙蝠源冠状病毒**(SADS-CoV**：猪急性腹泻综合征冠状病毒**)**。*
-
-*该病毒与**SARS-CoV**起源于同一组蝙蝠，并出现在同一个地方。不知道是不是人畜共患病（我们已经用抗体检测法对**35**名多养猪场工人进行了检测，没有一个呈阳性）。养猪场老板告诉我们，多亏了对受感染猪群的扑杀和隔离。由于扑杀，病毒现在已经得到控制。现在还不知道这种病毒是否在其他地方出现过，但我们正在寻找。我们也在做检测，以确定它是否可以在实验室感染人类细胞，到目前为止还没有证据表明这一点。*
-
-*我希望对这篇论文有兴趣。您应该知道这项工作得到了国家过敏和传染病研究所标准的独立拨款**(RO1)**的支持，埃里克·斯特米**(Erik Stemmy)**是项目官员，我是首席项目官员**(PI)**，而石正丽是联合项目官员**(co-PI)**。*
-
-*如果您需要任何其他信息，请随时发送邮件或致电，我很乐意来到国家过敏和传染病研究所（**NIAID**）向您进一步介绍。* *我还会让您知道它是否**/**何时发布，以便我们可以酌情尝试进行一些宣传。*
-
-*谢谢，*
-
-*彼得·达扎克(Peter Daszak)*
-
-【本文仅代表作者个人观点，与Gnews无关】
-
-原文作者：娜塔莉·温特斯（NATALIE WINTERS）
-发布时间：2021年7月9日
-原文链接：https://thenationalpulse.com/exclusive/daszak-fauci-email-reveal-coronavirus-research-with-wuhan/
+## 川普总统称审计结果已足以改变大选
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1403161/)
 
 
+<p>俄罗斯莫斯科喀秋莎农场&nbsp;&nbsp; 仰望七星&nbsp;&nbsp;</p>
+<p>编辑上传&nbsp; 水星</p>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17180854/F-2.jpg" alt="" class="wp-image-1403162" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17180854/F-2.jpg" alt="" class="wp-image-1403162"></noscript><figcaption>rightedition.com</figcaption></figure>
+<p>《门道专家》发文，“川普总统最新发布的声明毁了《福克斯新闻》（FOX News）和布雷特·拜尔（Bret Baier），称亚利桑那州的审计已经足以改变大选结果”。</p>
+<p>全文如下：</p>
+<p>周四（7月15日），亚利桑那州参议院就正在进行的马里科帕（Maricopa）郡司法审计举行了听证会。审计小组宣布，马里科帕郡2020年选举收到，并纳入的选票，比寄出的选票多7.4万张。</p>
+<p>《网络忍者》（The Cyber Ninjas）首席执行官道格洛根（Doug Logan）报告了这一点，以及他们调查中发现的其他问题。他们在选票中发现74,243封邮寄选票，但没有清楚的记录！审计小组还宣布，清点选票时没有符合规定的文件库存，也没有符合规定的打印校正。其他选票则用夏普笔（Sharpie pens）在纸上划上了记号。</p>
+<p>根据选举（事务）专家约万·普利策（Jovan Pulitzer）的说法，今天呈现的只是主菜来之前的开胃菜！</p>
+<p>在周四的爆炸性听证会之后，亚利桑那州参议员温迪·罗杰斯（Wendy Rogers）呼吁该州撤回拜登的选举结果，并举行新的选举。</p>
+<p>罗杰斯参议员已经看够了！</p>
+<p>（原文附上了罗杰斯参议员的推文）</p>
+<p>川普总统也这样认为。川普总统写道，听证会的调查结果足以改变大选结果。</p>
+<p>今天早些时候，《福克斯新闻》主持人布雷特·拜尔淡化了周四亚利桑那州参议院大选审计的爆料。（《福克斯新闻》和布雷特·拜尔）此举对川普总统来说并不太好。川普总统抨击了布雷特·拜尔和《福克斯新闻》，并同意亚利桑那州参议员的意见，即周四披露的舞弊和投票违规行为足以改变亚利桑那州2020年大选的结果。</p>
+<p>川普总统声明全文：</p>
+<p>《福克斯新闻》和其他媒体错误地站在阴险和可怕的马里科帕郡选举委员会一边，称在总统选举中没有发现任何舞弊行为。他们发出了该郡和《美联社》（the Associated Press）故意发出的严重错误信息，忽略了非常重要的、亚利桑那州参议院昨天的听证会，听证会显示16.8万张印刷在非法纸张上的伪造选票（非官方选票），收到7.4万张从未邮寄的邮寄选票（神奇出现的选票），11,000名选民在选举后被添加到选民名单中仍然投票，机器的所有访问日志都被删除，选举服务器在选举期间遭到黑客攻击。他们站在郡选举委员会一边，而不是站在勇敢的亚利桑那州参议员一边，这些人是为亚利桑那州人民而战。在亚利桑那州的选举夜，福克斯的同一个主播在台前为乔·拜登呼喊，现在他想让你们相信没有欺诈，这个主播正是布雷特·拜尔。值得庆幸的是，亚利桑那州有强大的州参议员愿意为真相而战，参议员温迪·罗杰斯说“我已经听够了，是取消这次选举的资格的时候了。”参议员凯利·汤森说，舞弊太严重了，“我想看起诉书。”参议员桑尼·博雷利说，“我看到了足够的证据，对马里科帕郡选举结果认证的有效性提出质疑。亚利桑那州的舞弊和投票违规现象比我们想象得要严重很多倍。”必须改变选举结果。</p>
+<p>（原文完）</p>
+<p>福克斯揭露中共病毒真相方面很积极，遥遥领先与其他大的媒体。在揭露大选舞弊方面迟迟没有发声，这次对亚利桑那州的“国家审计”仍然进行了负面（至少是不积极）报道，大选日当晚，在亚利桑那州计票没有完成的情况下，福克斯就确认了拜登的当选，川普总统发怒实属正常。</p>
+<p>正像文章描述的那样，亚利桑那州参议院“呈现的只是主菜来之前的开胃菜”，估计会有更多、更大的舞弊行为被揭露。罗杰斯州参议员“撤回拜登的选举结果，并举行新的选举”的要求，代表了美国爱国者的心声，川普总统也首次发出“必须改变选举结果”的呼吁。</p>
+<p>看看美国人民的反应吧，美国遇到了前所未有的问题，亚利桑那州的“国家审计”创造了历史，成为处理大规模选举争议的典范，如果大选舞弊行为能够最终揭露，说明美国纠错能力还是有效的。当然，正义的人们充分相信这一点。</p>
+<p>原文链接：</p>
+<p><a href="https://www.thegatewaypundit.com/2021/07/president-trump-wrecks-fox-news-bret-baier-latest-release-says-az-audit-findings-enough-already-change-outcome-election/">https://www.thegatewaypundit.com/2021/07/president-trump-wrecks-fox-news-bret-baier-latest-release-says-az-audit-findings-enough-already-change-outcome-election/</a></p>
+<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403161" data-ulike-nonce="edefa8394c" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403161"></button><span class="count-box">+4</span> </div></div>
 
-编辑&发布：黎明的光芒
-
-+4

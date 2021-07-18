@@ -1,69 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】据法国内政部称，周六有近11.4万名示威者反对政府卫生措施
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1403449/)
 
-翻译：纽约香草山媒体部 Gtv abeilles（蜜蜂）
-
+## 【秘翻在线】中国工人在巴基斯坦遇袭伤亡
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403622/)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+<h4>撰稿：Grace</h4>
+<h4>校对：胡天</h4>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18012042/1-81.png" alt="" class="wp-image-1403629" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18012042/1-81.png" alt="" class="wp-image-1403629"></noscript></figure>
+<p>图片来源：新浪</p>
+<p>据《新浪网》7月17日发表的一篇报道, 在7月17日，中共国的国务委员赵克志与巴基斯坦内政部长拉希德紧急通话，讨论14日在巴基斯坦发生的中国工人遇袭导致伤亡的事件。</p>
+<p>中共国驻巴基斯坦大使馆证实，当地时间14日，被炸的大巴是中方企业承建的开普省达苏水电站的出勤班车。这次爆炸造成9名中国人和3名巴基斯坦人遇难。巴基斯坦信息部长法瓦德·乔杜里表示不排除此次爆炸事件是恐怖袭击的可能性。</p>
+<p>据报道，中共国的各层领导，包括李克强， 赵克志，赵立坚谴责了这次的爆炸事件，但他们在与巴基斯坦对此次爆炸事件的沟通中都高度强调中共国与巴基斯坦的“全天候战略合作伙伴”。</p>
+<p>本次恐怖袭击的原因是什么？是否与政治有关？随着中共在全球倒行逆施的曝光，海外华人的生存处境会更加险恶，只有及时与中共切割，唤醒世界：中共等于中国人，才能避免更多悲剧发生。</p>
+<p><strong>新闻来源：<a href="https://news.sina.com.cn/c/2021-07-17/doc-ikqciyzk6055172.shtml">赵克志周末紧急通话 透露重要信息！</a></strong></p>
+<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403622" data-ulike-nonce="958c366e98" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403622"></button><span class="count-box">0</span> </div></div>
 
-
-
-新闻来源：20 minutes
-
-新闻链接：[Coronavirus : Près de 114.000 manifestants contre les mesures sanitaires ce samedi, selon le ministère de l’Intérieur](https://www.20minutes.fr/societe/3085771-20210717-paris-milliers-personnes-defilent-contre-vaccination-pass-sanitaire)
-
-译文：
-
-从里昂到巴黎，从波尔多到马赛，法国近期发生了许多示威活动。
-
-![]()![](https://img.20mn.fr/qWv6f3pZQ2-LktLi947pFik/310x190_manifestants-contre-pass-sanitaire-samedi-17-juillet-2021-paris.jpg)2021年7月17日星期六，巴黎反对健康证的示威者。图片来源：20 minutes (Bertrand Guay)
-
-“反对健康证，停止独裁”，“自由”，“马克龙独裁”……
-
-据内政部称，本周六下午，正是在这些口号下，近11.4万人在法国各地举行示威，他们从马赛经蒙彼利埃和巴黎到里尔，反对接种Covid-19疫苗和政府推行健康证。据内政部统计，此次共有136次集会，其中18000人在巴黎游行，他们分为几个队伍。另外还有96000人在全国其他地区游行。
-
-在首都，第一支游行队伍从皇家宫出发，然后穿越塞纳河。该游行队伍的首领是国民阵线的前二号人物弗洛里安-菲利波特（Florian Philippot）、前共和党议员马丁-旺纳（Martine Wonner）、歌手弗朗西斯-拉兰内（Francis Lalanne）和前“黄马甲”大使雅克琳-莫罗（Jacline Mouraud），法国国旗一直在队伍中飘扬。
-
-53岁的费尔南达是弗洛里安-菲利波特的支持者，她表示：“我出生在萨拉查独裁统治下的葡萄牙，我不希望我们再重温那段历史。”菲利普特认为，这也是抵抗运动中极其强大的东西。菲利普特是2022年总统选举的候选人，他正在努力将反卫生法结构化。游行中可以看到一些带有黄星的传单，上面写着“健康证”。
-
-Dupont-Aignan称，“这（健康证）是一种前所未有的滥用权力行为。”
-
-在示威之前，“支持法国”组织的主席尼古拉-杜邦-艾格南在宪法委员会外举行了新闻发布会。在埃马纽埃尔-马克龙宣布相关政策之后，他谴责“马克龙这一前所未有的滥用权力”和“健康政变”。他认为，日常生活中健康卡的实施是“走向独裁的螺旋式上升的开始”。
-
-与此同时，约1500人在首都南部的街道上举行示威，游行队伍人数不一，但队伍前方有警察封锁。下午2点30分左右，游行队伍从第14区开始，向Jussieu区进发，伴随着“法兰西共和国的民主于2021年7月12日消失”等标语。“我们是因为‘黄马甲’的理念和感到自身自由的被限制而来的。这又将是一个破坏自由的法律，因此它把我们带到了街上。”“黄马甲”热罗姆-罗德里格斯说：“我们一直都在街上（游行）。”
-
-“我们根本不是反疫苗，我们只是希望每个人都有接受或不接受疫苗的自由。”三十多岁的Aurélie和Tiphaine都在巴黎地区的一家购物中心工作，他们说：“PCR测试就可以了，而且测试就应该免费做。”
-
-最后，有几十个人参加了在共和国广场上举行的另一次未经批准的集会。
-
-**其他相关城市**
-
-在马赛的老港区域，根据警察局的说法，大约有4250人参与游行，他们指着正在排队接种疫苗的“羊”，说他们在电视上接受了“不良信息”。在尼斯，约1600名身穿黄色马甲的示威者反对健康证以及强制接种疫苗，他们为此在市中心游行了几个小时。在法国西部，此类游行的动员程度似乎要低一些。在波尔多，曾发布禁令禁止在市中心示威的县政府表示，有1200人示威者参与了游行，他们在一些地方阻挠了电车和汽车交通。
-
-在图卢兹，该省统计了2500名示威者，和梅斯一样，示威者包括一些“黄马甲”和“白大衣”。法新社记者指出，在斯特拉斯堡，示威活动聚集了2800人（在大区政府），其中一些人戴着黄星。在南希，游行动员的高峰期有1200人。另外，当天上午还有约400人在坎佩尔游行，1200人在佩皮尼昂游行，1700人在克莱蒙费朗游行，2300人在瓦朗斯（德隆）游行。在第戎，警察甚至使用了催泪瓦斯，这也是因为有轨电车的交通被高呼“自由、自由”的示威者们短时间阻断了。其他类似的示威活动在里昂、圣埃蒂安、罗阿纳和欧塞尔都在进行。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-0

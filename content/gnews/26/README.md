@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【秘翻在线】中共国青少年近视率“领先”世界
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403539/)
 
-撰稿：柯亭
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17230434/5-23.jpg)图片来源：百度
-据《人民网》2021年7月16日报道，国家卫健康委2020年9月-12月开展了全国近视专项调查。结果显示：2020年，中共国儿童青少年总体近视率为52.7%。其中6岁儿童、小学生、初中生、高中生的近视比例依次增加，且近10%近视学生为高度近视，容易引发多种严重并发症。
+## 【秘翻在线】世卫组织将公开招聘专家组再次调查武汉病毒
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403674/)
 
-2015年，WHO（世界卫生组织）和Brien Holden视力研究院（总部位于澳大利亚的非政府组织）联合发表了《近视和高度近视的影响》的报告（[https://www.who.int/blindness/causes/MyopiaReportforWeb.pdf](https://www.who.int/blindness/causes/MyopiaReportforWeb.pdf)）。该报告预测：世界人口的平均近视率2020年为28%、2050年为52%。
 
-CCP的残忍洗脑教育，不仅毒害青少年同胞的心灵和身体，而且在青少年近视率方面，领先”世界30年。彻底消灭CCP，也是培养健康青少年的必须。
-
-**新闻来源：** [中共国青少年近视率“领先”世界](http://opinion.people.com.cn/n1/2021/0716/c431649-32160567.html)
-
-0
+<p>撰稿：待命（文晓）</p>
+<p>责编：待命（文晓）</p>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18015425/%E7%94%BB%E5%83%8F1-4.png" alt="" class="wp-image-1403668" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18015425/%E7%94%BB%E5%83%8F1-4.png" alt="" class="wp-image-1403668"></noscript></figure>
+<p>日本朝日新闻记者大室一也7月17日发自罗马的消息：</p>
+<p>世界卫生组织（WHO）于7月16日召开了不对公众开放的成员国会议，讨论对中共病毒起源的进一步调查。据世卫组织网站报道，本次会议宣布，将成立一个新的专家科学咨询小组来开展这项工作。而且，该咨询小组还将负责调查未来任何新病原体的爆发。</p>
+<p>咨询小组的成员将公开招聘，根据其技术专长进行选拔，以吸引高素质的专家。同时也会考虑区域和性别的平衡。而于今年1月和2月赴中国武汉进行的实地调查小组，则是由17名中共国专家和17名在国际组织任职的多国专家所组成。</p>
+<p>谭德塞说：世界需要一个对“有可能造成流行病，甚至大流行病的新病原体的起源”具有更加稳定和可预测能力的组织来开展这项工作。</p>
+<p><a href="https://www.asahi.com/articles/ASP7K368WP7JUHBI03B.html">消息来源</a></p>
+<p>（文章仅代表作者个人观点）</p>
+<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403674" data-ulike-nonce="b845b61e1c" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403674"></button><span class="count-box">0</span> </div></div>
+ 

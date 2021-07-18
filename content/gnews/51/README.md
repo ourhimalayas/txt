@@ -1,42 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼官员说中共国正在开发太空武器
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1403206/)
 
-**据《每日传讯报官网》作者：CHRISTOPHER TREMOGLIE，2021年7月11日报道**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17184905/202107s.jpg)
-五角大楼的一位官员说，中共国在能够缩小这个共产主义国家和美国之间的空间技术差距的武器方面正在取得重大进展。
+## 敌对国家对英国的威胁可能与恐怖主义一样严重
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1403269/)
 
-报道称，这个亚洲霸主正在大量投资于有能力干扰和摧毁卫星的武器。MSN报道说，这种武器会对美国国家安全构成直接威胁，这也是在川普政府下建立美国太空部队的原因之一。
 
-五角大楼印太司令部最高情报官员迈克尔·斯图德曼少将在一次网络研讨会上说，中共国发展的太空武器——反卫星（AST）武器可能拥有这样的手段，可以被认为是”从干扰到炫目，到从地面到太空的动能杀伤所有这些卫星，他们都在进行中”。
+<p><strong>据《卫报》作者：Dan Sabbagh，2021 年 7 月 14 日报道</strong></p>
+<figure class="wp-block-image size-large is-resized"><img loading="lazy" data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021.jpg" alt="" class="wp-image-1403275" width="850" height="479" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021.jpg 890w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021-400x225.jpg 400w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021-768x432.jpg 768w" sizes="(max-width: 850px) 100vw, 850px" style="display:none;visibility:hidden;"><noscript><img loading="lazy" src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021.jpg" alt="" class="wp-image-1403275" width="850" height="479" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021.jpg 890w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021-400x225.jpg 400w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17193435/2021-768x432.jpg 768w" sizes="(max-width: 850px) 100vw, 850px"></noscript><figcaption>军情五处总干事肯·麦卡勒姆 (Ken McCallum) 将威胁更新的重点转移到敌对国家活动上。 照片：Stefan Rousseau/PA</figcaption></figure>
+<p><strong>Ken McCallum说公众应警惕来自中共国和俄罗斯的威胁</strong></p>
+<p>军情五处负责人警告：中共国、俄罗斯和其他敌对国家的活动对公众的影响可能与恐怖主义一样大，这标志着英国国内间谍机构的重点发生了重大转变。</p>
+<p>预计肯·麦卡勒姆 (Ken McCallum) 在周三发布年度威胁更新时表示，英国公众将必须“建立与我们多年来在恐怖主义问题上所做的相同的公众意识和应对国家威胁的能力”。</p>
+<p>但是，尽管英国公众熟悉俄罗斯的威胁，正如索尔兹伯里的 Skripals 中毒所表明的那样，但这位间谍首领会表明说，通常来自中共国的威胁并非如此。</p>
+<p>麦卡勒姆会说，如果大学和研究人员不保持警惕，他们就有可能“发现他们的发明被盗或被复制”，而且企业可能“会因为失去他们辛苦建立的优势而被掏空”。</p>
+<p>麦卡勒姆会说，“只要有一半的机会，敌对的行为者就会走捷径得到英国多年潜心的研究或投资。这正在大规模发生。它会影响我们所有人。英国就业、英国公共服务、英国期货等。”</p>
+<p>自IS首领巴格达迪 (Abu Bakr al-Baghdadi) 去世以及该组织于 2019 年在其领土上最终失败以来，来自敌对国家的威胁已上升到安全议程。</p>
+<p>根据议会情报和安全委员会的说法，十多年前，在 2008/2009 年，军情五处仅分配了3%的努力来针对敌对国家活动，然而此后情况发生了重大变化，因为俄罗斯和中共国都变得急剧自信。</p>
+<p>春季早些时候，军情五处警告说；在过去五年中，有 10,000 名英国人在 LinkedIn （领英，职业社交网站）上被虚假个人资料伪装的人盯上。这种窃取知识产权的企图经常来自中共国，尽管麦卡勒姆出于外交原因谨慎地不在他预先发表的言论中直接点名中共国。</p>
+<p>一种常见的方法是使用一个看起来属于一名年轻女性的账户——通常有一个英国化的名字和东亚姓氏，她冒充招聘人员，以提供工作为幌子，试图从研究人员或专家那里获取信息。</p>
+<p>间谍首领会说，“直接说：如果您在高科技企业工作，或从事前沿科学研究，或出口到某些市场，你会感兴趣——比你想象的更感兴趣——外国间谍。你不必害怕；但要打开。</p>
+<p>军情五处过去因对中共国不够重视而受到批评，英国首相鲍里斯·约翰逊 (Boris Johnson) 仍然相当谨慎，因为与北京合作的经济优势过于被公开批评。</p>
+<p>最近对英国国防和外交政策的综合审查得出结论：中共国“提出了挑战”，因为它是“一个威权国家，与我们的价值观不同”，甚至保守党后座议员希望将中共国更明确地定义为敌国。</p>
+<p>然而，也有消息称，英国去年悄悄驱逐了三名冒充记者的中共国间谍。麦卡勒姆上任时承诺加强该机构对北京的关注。</p>
+<p><strong>原文连接：</strong><a href="https://www.theguardian.com/uk-news/2021/jul/14/public-should-be-alert-to-threat-from-china-and-russia-says-mi5-chief">https://www.theguardian.com/uk-news/2021/jul/14/public-should-be-alert-to-threat-from-china-and-russia-says-mi5-chief</a></p>
+<p>翻译：洛杉矶盘古农场 – B7<br>校对：洛杉矶盘古农场 – TrueSky<br>编辑：洛杉矶盘古农场 – 心照<br>发布 : 洛杉矶盘古农场 – 彩虹 Rainbow</p>
+<figure class="wp-block-image size-large is-style-rounded"><img loading="lazy" width="1280" height="490" data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg" alt="" class="wp-image-1352759" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg 1280w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-400x153.jpeg 400w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-768x294.jpeg 768w" sizes="(max-width: 1280px) 100vw, 1280px" style="display:none;visibility:hidden;"><noscript><img loading="lazy" width="1280" height="490" src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg" alt="" class="wp-image-1352759" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg 1280w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-400x153.jpeg 400w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-768x294.jpeg 768w" sizes="(max-width: 1280px) 100vw, 1280px"></noscript></figure>
+<p>洛杉矶盘古农场欢迎您加入:(或点击上方图片）</p>
+<p><a href="https://discord.gg/2vuvRm7z6U">https://discord.gg/2vuvRm7z6U</a></p>
+<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403269" data-ulike-nonce="e02e230a5d" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403269"></button><span class="count-box">0</span> </div></div>
 
-斯图德曼说：”他们看了看我们的太空能力，并希望获得等同于或超过这些能力，并能够占据主导地位，以保证他们需要的机动性，如果他们处于战斗状态，能够确保达成他们的目的。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17184856/202107%40q.png)
-据五角大楼印度·太平洋司令部的最高情报官员称，中共国正在对旨在干扰或摧毁卫星的武器进行长期投资，因为该国寻求迅速缩小与美国在空间技术方面的差距。
-
-美国国家情报总监办公室（DNI）在4月就中共国的军事进步向美国情报界发出警告。
-
-该警告称，中共国军队将“把空间服务——如卫星侦察和定位、导航、定时和卫星通信纳入其武器和指挥控制系统，以削弱美国军队的信息优势”，MSN报道。
-
-MSN报道说，国家情报局坚持认为，太空武器的发展将是未来太空军事威慑的一个组成部分。国家情报局还在其年度“威胁评估”报告中对反卫星武器表示关注，并需要”部署新的破坏性和非破坏性地基和天基反卫星武器”。
-
-该报告还明确指出，中共国已经开发了“旨在摧毁低地球轨道卫星的地基反卫星导弹和可能旨在使敏感的天基光学传感器失明或受损的地基反卫星激光器”。
-
-美国正在采取预防措施，应对中共国可能很快带来的威胁。MSN报道说，太空部队正在未来7年内建造一个多达48个这样的地基武器。这种武器中的第一种在2020年3月宣布投入使用。
-
-在武器差异方面，斯图曼对用于我们国防的太空武器的发展前景进行了评估。据MSN报道，他谈到了美国的开发力度加大，并承认是为了应对中共国所带来的威胁。
-
-**原文连接：**[https://dailycaller.com/2021/07/11/china-space-weapons-admiral-michael-studeman/](https://dailycaller.com/2021/07/11/china-space-weapons-admiral-michael-studeman/)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0

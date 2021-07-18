@@ -1,38 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社要不要删除哈恩的音视频，要不要给义工们一个说法
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1403530/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17225341/ddc3e96aaa3515e665fb998cf174791c_500x0_%E5%89%AF%E6%9C%AC.jpg)
-据哈恩[发表于 09:39 AM · Jul 18, 2021](https://app.gettr.com/post/p4id69)的盖特：
+## 【秘翻在线】中国工人在巴基斯坦遇袭伤亡
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403622/)
 
-路德社是骗子自媒体，我被他骗去做节目，还说我蹭他热度，为了出名，你快把我音频删了，我怕出名被误会我和王定刚一样是骗子，路缺德跟紧把我音频删了。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17225402/%E6%8D%95%E8%8E%B7-3.png)
-不管路德是不是独立媒体，在亡腚缸背叛爆料革命和砸郭前，大家是战友，所以会有哈恩及其他战友们上路德社做嘉宾，所以会有很多默默支持路德社的义工们无冤无悔地付出，嘉宾们上路德社应该没有出场费，义工们既然戴着义工的标签那更是无偿付出.
 
-郭文贵先生在[2021年7月14号 文贵直播：蛇妖闫，骗子王腚肛自爆，这是上天的安排；已经对他们采取法律行动，全面追责反击；新中国联邦在7月4号后已发生质的改变，接下来的90天将有灭共的重大事件发生](https://gtv.org/video/id=60eee549d251c22166804ace)中提到：
+<h4>撰稿：Grace</h4>
+<h4>校对：胡天</h4>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18012042/1-81.png" alt="" class="wp-image-1403629" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18012042/1-81.png" alt="" class="wp-image-1403629"></noscript></figure>
+<p>图片来源：新浪</p>
+<p>据《新浪网》7月17日发表的一篇报道, 在7月17日，中共国的国务委员赵克志与巴基斯坦内政部长拉希德紧急通话，讨论14日在巴基斯坦发生的中国工人遇袭导致伤亡的事件。</p>
+<p>中共国驻巴基斯坦大使馆证实，当地时间14日，被炸的大巴是中方企业承建的开普省达苏水电站的出勤班车。这次爆炸造成9名中国人和3名巴基斯坦人遇难。巴基斯坦信息部长法瓦德·乔杜里表示不排除此次爆炸事件是恐怖袭击的可能性。</p>
+<p>据报道，中共国的各层领导，包括李克强， 赵克志，赵立坚谴责了这次的爆炸事件，但他们在与巴基斯坦对此次爆炸事件的沟通中都高度强调中共国与巴基斯坦的“全天候战略合作伙伴”。</p>
+<p>本次恐怖袭击的原因是什么？是否与政治有关？随着中共在全球倒行逆施的曝光，海外华人的生存处境会更加险恶，只有及时与中共切割，唤醒世界：中共等于中国人，才能避免更多悲剧发生。</p>
+<p><strong>新闻来源：<a href="https://news.sina.com.cn/c/2021-07-17/doc-ikqciyzk6055172.shtml">赵克志周末紧急通话 透露重要信息！</a></strong></p>
+<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403622" data-ulike-nonce="958c366e98" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403622"></button><span class="count-box">0</span> </div></div>
 
-［过去的两三年他一共接受打赏，大概60万美元、100多万人民币，广告费收入大概将近100万美元，所以他就是骗我的嘛，加一起他就干了一两百万美元，这就是路大脑袋亡腚缸和蛇妖闫骗的战友们的钱。］
-
-路德的这些收益与战友们的付出是息息相关的，哈恩应该没有收到路德的出场费，义工战友们也没有在路德社的收益中得到任何分成，那么在现在路德社背叛爆料革命并试图把爆料革命战友们打成恐怖分子集团的情况下，战友们应该做什么？
-
-哈恩公开提出了要求路德社删除哈恩上节目的音视频频，郝海东先生和叶钊颖女士也在[《GTV-真人真事》第17期嘉宾：郝海东先生，叶钊颖女士](https://gtv.org/video/id=60f2e9c3ae54765d3b25e42b)节目中提到要求路德社删除郝叶伉俪的音视频，那么四年来默默支持路德社的义工战友们，我们应该怎么办？
-
-郭文贵先生在[20210716的视频：从近几天发生的一系列事件来看．我们爆料革命升级的一个契机。](https://gtv.org/video/id=60f1ec1cd7e3a7013567a36a)直播中提到：
-
-［中国人他永远他属羊的，啥事——好事、坏事都忘得快，——一周。对待亡腚缸、对待蛇妖闫最起码要6周的大战，6周的大战，千万要记住，6周的大战。看看你们各农场，看看你们每个战友，你们怎么做吧？最起码要6周的大战。］
-
-我们是属羊的吗？我们不是！现在哈恩已经提出来要删除她上路德社的音视频，郝叶伉俪也已经公开提出删除他们上路德社的音视频，那么各位路德社的前义工战友们，如果我们要求路德社删除所有我们提供义工服务的音视频会怎么样呢？如果路德社不删除这些音视频，那么亡腚缸应该按什么比例支付嘉宾及义工们的费用呢？如果路德社删除了这些音视频，那么路德社还有什么呢？
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
-0

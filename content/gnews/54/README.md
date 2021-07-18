@@ -1,72 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “马克思主义是杀死人的毒药”：为自由而战的终极格斗锦标赛（UFC）明星谈
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1403133/)
 
-- 作者： Jenny Ball
+## 辉瑞称疫苗的免疫力开始减弱，需在六个月后接种第三剂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1403159/)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+<p><strong>据《每日电讯报》作者：艾米丽·克雷格（Emily Craig），2021年7月9日报道：</strong></p>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17175744/20210717.jpg" alt="" class="wp-image-1403153" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17175744/20210717.jpg" alt="" class="wp-image-1403153"></noscript></figure>
+<p>辉瑞公司及其德国合作伙伴 BioNTech 表示，他们的 新冠加强剂注射通过中和抗体比标准的两次剂量高 5 到 10 倍，扩大了对疾病的保护。 图为：2021 年 1 月，一名医护人员在洛杉矶准备一剂辉瑞新冠疫苗</p>
+<p>· 第三剂产生的中和抗体是两剂的 10 倍<br>· 辉瑞和 BioNTech 将要求监管机构在数周内批准第三剂<br>· 但英国科学家一再表示，没有证据表明需要增强剂</p>
+<p>辉瑞声称其新冠疫苗提供的免疫力已经在减弱 。它要为已接种第二剂疫苗六个月后都人们提供加强剂注射。</p>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17175733/20210717..png" alt="" class="wp-image-1403150" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17175733/20210717..png" alt="" class="wp-image-1403150"></noscript></figure>
+<p>据报道，这家美国制药巨头和与其合作开发这种疫苗的德国公司将要求美国和欧洲监管机构在几周内批准加强剂注射。</p>
+<p>辉瑞公司首席执行官阿尔伯特·布尔拉 （Albert Bourla）一直表示，他认为美国人需要第三剂，甚至建议疫苗将像流感疫苗一样每年接种一次</p>
+<p>他们声称，来自以色列“走在世界前列”的真实数据表明，“疫苗接种后六个月预防感染和症状疾病的效力下降”。</p>
+<p>辉瑞和 BioNTech 表示，与此同时，对其加强注射的科学试验表明，它产生的中和抗体比比两次剂量高出 10 倍。</p>
+<p>但致力于研究大流行的研究人员一再警告说，目前没有实质性证据表明需要第三针。</p>
+<p>美国疾病控制与预防中心 (CDC) 试图淡化恐惧，昨天表示，完全接种疫苗的美国人还不需要加强剂注射。</p>
+<p>但辉瑞公司的首席执行官阿尔伯特·布尔拉（Albert Bourla）一直声称他相信人们需要第三剂（疫苗），甚至暗示疫苗将像流感疫苗一样每年一次。</p>
+<p>就在 No10 继续计划新冠加强剂计划之际，今年秋天将在注射流感疫苗的同时进行补充。<br>但部长们尚未对这项推动做出承诺，最终将是根据顶级专家的试验和建议做出决定。</p>
+<p>辉瑞没有公布以色列的全部数据，这引发了关于加强剂疫苗的争论。</p>
+<p>然而，由于印度三角洲变种的迅速传播，过去几周中东国家的疗效估计值有所下降。</p>
+<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17175708/%40%4020210716.png" alt="" class="wp-image-1403147" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17175708/%40%4020210716.png" alt="" class="wp-image-1403147"></noscript></figure>
+<p>辉瑞疫苗被发现有 94% 有效率，但以色列卫生部门负责人声称现在疫苗可以阻止 64% 的感染</p>
+<p>以色列卫生官员现在声称，疫苗可以阻止 64% 的感染，而在突变病菌株出现之前，5 月份这一比例为 94%。 部长们将这些数据描述为“令人不安”。</p>
+<p>但科学家们试图消除对疫苗功效的任何担忧，称总体而言情况仍然“令人欣慰”。</p>
+<p>同样的统计数据显示，疫苗仍然可以预防严重疾病，将住院风险降低了 93%。 相比之下，以色列新闻网站 Ynet 报道称，5 月份的这一数字略高于 98%。</p>
+<p>以色列在 6 月初放宽了其余限制，放宽了在咖啡馆、酒吧和餐馆内顾客戴口罩和限制的要求。</p>
+<p>但仅仅 10 天后，由于感染激增，禁止室内（就餐）被重新引入，90% 的病例归咎于印度变种。</p>
+<p>以色列昨天记录了 611 例新病例，高于两周前的 219 例。</p>
+<p>辉瑞表示，该数据显示注射疫苗六个月后对传播和疾病的保护作用减弱，这就是需要第三剂的原因。</p>
+<p>辉瑞和 BioNTech 表示，临床试验发现第三剂在第二剂后六个月进行施打，产生的中和抗体水平比最初的两剂高 5 到 10 倍。</p>
+<p>更重要的是，这些公司表示，随着印度“三角洲”变种的继续传播，他们计划调整疫苗加强剂以直接瞄准印度的“三角洲”变种。</p>
+<p>两家公司表示，他们计划很快发布“更明确的数据”，并将其提交给监管机构批准。<br>两家公司都表示，他们相信他们的（疫苗）加强针有可能对所有变种提供“最高水平”的保护，包括印度三角洲变种。</p>
+<p>然而，科学家们“保持警惕”并正在开发第三剂的更新版本。</p>
+<p>两家公司在一份声明中表示：“正如以色列卫生部发布的“真实世界”的证据所见，疫苗接种后 6 个月内疫苗效力下降，与此同时，三角洲变种正在成为该国的主要病毒变种。”</p>
+<p>“这些发现与公司第三阶段研究正在进行的分析一致。”<br>数据显示，该疫苗仍能提供对严重疾病的显着保护，但由于变异，对有症状疾病的疗效下降。</p>
+<p>声明写道：“这就是为什么我们已经说过，并且我们仍然相信，根据我们迄今为止掌握的全部数据，在全面接种疫苗后的 6 到 12 个月内可能需要接种第三剂疫苗。”</p>
+<p>该公司表示，目前正在研究临床试验材料，以针对该变体进行加强剂注射，并计划在 8 月开始研究。</p>
+<p>在回应辉瑞和 BioNTech 的说法时，疾病预防控制中心和美国食品和药物管理局说：“如果科学证明需要（疫苗）加强剂，我们已做好准备。”</p>
+<p>英国正计划在秋季接种新冠疫苗加强剂，但尚未就是否对所有人进行管理做出最终决定。</p>
+<p>牛津大学的安德鲁·波拉德 (Andrew Pollard) 曾为阿斯利康 (AstraZeneca) 进行注射试验。他说：“到目前为止，我们还没有证据表明我们确实需要助加强剂（疫苗）。</p>
+<p>“很难证明给我们自己注射第三剂是合理的，尤其是在没有明确需要的情况下，在生命仍然处于危险之中的完全没有注射疫苗的人的前提下。”</p>
+<p>莫德纳 (Moderna) 的官员也在测试第三剂新冠疫苗，他们也对美国人需要注射加强针发表了类似的评论。</p>
+<p>莫德纳 (Moderna) 首席执行官斯蒂芬·班塞尔（Stéphane Bancel）在 5 月的关于盈利（情况）的电话会议上对投资者说：“我们认为病毒不会消失，因此需要加强剂注射。”</p>
+<p><strong>原文连接</strong>：<a href="https://www.dailymail.co.uk/news/article-9772541/Pfizer-wants-dose-jab-dished-six-months-amid-fears-waning-immunity.html">https://www.dailymail.co.uk/news/article-9772541/Pfizer-wants-dose-jab-dished-six-months-amid-fears-waning-immunity.html</a></p>
+<p>翻译：洛杉矶盘古农场 &#8211; WH<br>校对：洛杉矶盘古农场 &#8211; Mike Li<br>编辑：洛杉矶盘古农场 &#8211; 心照<br>发布 : 洛杉矶盘古农场 – 彩虹 Rainbow</p>
+<figure class="wp-block-image size-large is-style-rounded"><img loading="lazy" width="1280" height="490" data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg" alt="" class="wp-image-1352759" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg 1280w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-400x153.jpeg 400w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-768x294.jpeg 768w" sizes="(max-width: 1280px) 100vw, 1280px" style="display:none;visibility:hidden;"><noscript><img loading="lazy" width="1280" height="490" src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg" alt="" class="wp-image-1352759" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg 1280w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-400x153.jpeg 400w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30-768x294.jpeg 768w" sizes="(max-width: 1280px) 100vw, 1280px"></noscript></figure>
+<p>洛杉矶盘古农场欢迎您加入:(或点击上方图片）</p>
+<p><a href="https://discord.gg/2vuvRm7z6U">https://discord.gg/2vuvRm7z6U</a></p>
+<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403159" data-ulike-nonce="6fad415d90" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403159"></button><span class="count-box">+2</span> </div></div>
 
-**西班牙2021年7月17日电/西喜社**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17175350/07_12_2021_Candace_ep18_BTS_3189-scaled-1.png)贝尼尔·达里乌什（Beneil Dariush ）
-
-如果你第一次见到贝尼尔·达里乌什（Beneil Dariush ），你可能会感到有些困惑。
-
-他是 UFC 拳手，但他却不是你心目中的典型形象。他说话略带轻柔，深思熟虑，并且坚定地与他的基督教信仰保持一致。
-
-可以用一个词来形容他——讨人喜欢。
-
-他是一个在格斗场地扎根的人，但不要让他的可爱欺骗了你——他是一个竞争者，他不怕表达自己的信仰。
-
-出生在伊朗的达里乌什亲眼目睹了专制政府的罪恶，他正在利用自己的平台向人们发出呼吁。
-
-他在 UFC 262 的最后一场比赛战胜托尼·弗格森(Tony Ferguson)之后，达里乌什利用他的胜利时刻来揭露马克思主义的邪恶。
-
-“首先，我要感谢我的主和救世主耶稣·基督，这是第一，”达里乌什在战斗结束后告诉本文作者乔·摩根（Joe Morgan）。 “第二，我想把这场斗争的胜利，献给所有受到马克思主义意识形态伤害的人，数百万的受害者。”
-
-“这只是一场格斗，我知道这并不那么重要，但我想让你们知道，我爱你们。我理解你们的痛苦……尽管我不完全理解，但我爱你们。我理解你们的痛苦。”
-
-本周，达里乌什出现在 《每日电讯》坎迪斯（The Daily Wire，Candace）的最新一集节目中，并解释了他声明背后的原因。
-
-“嗯，有几件事。他的催化剂是拳手罗斯，”达里乌什对坎迪斯说。 “不知道大家是否熟悉她……她刚刚又赢得了冠军。她在与张伟丽的格斗后出来说：“死了也比红色好。”我相信她的家人是立陶宛人。这就是他们的口号，“死了比红色好”。但她的讲话引来了可怕的反馈。这我无法理解，她没有说任何疯狂的话。你不想要共产主义。你不想要这种社会主义。这就是摧毁国家和生命的原因。”
-
-在与达里乌什交谈时，很明显他理解左派使用词语来表达他们的观点的方式，他们为达到目的会使用任何方式来扭曲事实。
-
-“我看到媒体怎样操作的，他们会改变原意，说成是‘共产主义……这在美国甚至都不是问题，’诸如此类，”达里乌什说。 “他们对她施加了很大的压力。我实际上为她感到难过，她本应该能够说她想说的，几乎每个人都应该说。因此，我实际上只想说和她同样的话，但问题是媒体玩文字的方式。”
-
-“所以你说共产主义，他们说‘我们并不是真正在谈论共产主义。我们在谈论社会主义。’你说社会主义，他们说，‘好吧，这不是那种社会主义，而是这种。’”
-
-因此，达里乌什决定用一个词来形容极权政府——马克思主义。
-
-“我只是说‘马克思主义’，它涵盖了一切。它们之间的唯一区别是，其中一个是较慢的毒药，稍后会杀死你，而另一个杀死你的速度更快。所以我认为，我们必须确保我们开始称它为马克思主义。都是一回事儿，都是一样的。”
-
-他的妻子也有这方面的遭遇。她的家人为了逃避马克思主义而离开越南。不像被宠坏的美国年轻人，他们认为社会主义是未来——那也是一种接受施舍的方式——达里乌什看到了它的本质，他愿意大声疾呼。
-
-“我妻子是越南人，所以她的父母来自越南。他们逃离了马克思主义，”达里乌什告诉坎迪斯。 “他们逃离了那里，他们给我讲了这些故事。”
-
-“她的父亲可以说是乘小船来的，他告诉我们十有八九不会成功。他在那十艘中唯一成功的船上。然后她妈妈告诉我，他们最后一分钟是如何离开房子的故事。如果他们多呆一天，他们就会被关进集中营，或者被关进监狱。”
-
-虽然伊朗本身不是一个马克思主义国家，但它仍然是一个极权主义政府，一个控制人民的政府。 达里乌什认为两者没有区别。
-
-“在我的国家，阿亚图拉来了，他们承诺所有这些免费的东西，他们说，‘让我们接管，我们将为你做所有事情。’”
-
-“他们使政府成为上帝。这是一样的，这没什么不同，这是马克思主义意识形态，”达里乌什说。 “你让政府成为第一，让人们放弃了他们的权利。政府一旦掌权——就没有人能夺走它。你不接受。如果自由是白白得到的，它就会用流血收回来，这是你远离共产主义、马克思主义的唯一途径。”
-
-**评论：只有经历了独裁的残暴，才能体会到什么马克思，社会主义，共产主义都是一回事儿，他们的最终目的就是要“让人们放弃了他们的权利”，为此他们会使尽一切手段，玩文字游戏变换名称，正如里根所预见的那样：将来的社会主义一定是用自由主义的幌子！他们以自由的名义，却是在抢夺走绝大多数民众的自由，干着只许州官放火，不许百姓点灯的勾当。**
-
-**我们来自最邪恶社会主义中共国的人们，更加能够体会到冒着九死一生的危险，逃离越南的人们，更能体会到“死了都比红色好“意味着什么。用个简单的逻辑：那些被洗脑的美国年轻人，你们不喜欢美国，可以如此的谩骂自己还享受着自由的美国，你们完全可以自由地去到你们追求的社会主义中共国，为什么你们不去，你们没有任何生命危险去中共国啊？但是，如果我们中国百姓敢说共产党一个不字，哪怕是在自己的社交平台，或是在朋友聚会，你就面临着被抓起来的危险，因为在中共最标杆的社会主义国家，连百姓说自由二字都是犯法的！**
-
-**你们用最基本的逻辑想想，为什么是社会主义国家和集权国家的人们，宁可当难民也要往美国逃？哪怕是中共高官，他们的家人财产都在美国和西方民主国家？为什么没有看到美国的自由派们像他们那样渴望自由往中共国跑啊？而且他们还没有任何人阻挡他们离开美国？**
-
-**当人们用最基本的常识看问题时，就能够明白为什么终极格斗锦标赛明星冒着媒体的攻击，要告诉人们：马克思主义是杀死你的慢性毒药！**
-
-**素材来源：**[www.dailywire.com](https://www.dailywire.com/news/marxism-is-a-poison-that-will-kill-you-meet-the-ufc-star-fighting-for-freedom)
-
-素材：Jenny Ball；审核：文乐； 校对：阿伯塔； 发稿：信心的选择
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
-
-+3
