@@ -2,42 +2,23 @@
 ---
 
 
-## 「欢迎习神加入」——杰森·米勒谈GETTR的言论自由运动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1404731/)
+## 【秘翻在线】超过千名以色列人新冠病毒检测呈阳性 政府发布新的限制措施
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404883/)
 
-- 作者：wenwu
+作者：西枫westca
 
+责编：Ermat 【㊙️翻  Gnews原创组】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18155116/image1-3-3.jpg)图片来源：www.haaretz.com
+以色列总理纳夫塔利·贝内特 (Naftali Bennett) 周日发布了新的限制措施，以遏制具有高度传染性的 COVID-19 delta 变种。 根据新的限制，将对违反隔离规定的确诊冠状病毒患者提起诉讼。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+根据卫生部的数据，自3月以来，以色列的每日感染人数首次达到四位数，周五有 1,118 人被诊断出患有 COVID。周六有 463 名以色列人对病毒进行了阳性检测，其中 59 人病情严重，其中 16 人使用呼吸机。 在接受筛查的人中，1.58%的检测呈阳性、病人感染人数的繁殖率位1.37， 这意味着COVID-9再次传播。据希伯来大学研究人员称，目前，大约60%病情严重的患者已经接种了疫苗， 50以上的新感染者中约有90%已完全接种过疫苗。
 
-**西班牙2021年7月18日电/西喜社**
+以色列是新冠病毒疫苗接种普及率最高的国家， 大约超过60%的国民已接种过疫苗。早期接种过疫苗的人群，更有可能感染 COVID-19，这可能意味着接种几个月后，疫苗的保护作用就会减弱，甚至疫苗根本没有起到保护作用。 在这种情况下，各国仍在大力推广疫苗接种，甚至开始研究追加第三针疫苗。目的何在？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18124508/unknown-26.png)
+参考链接：
 
-保守派的社交媒体平台得不到美国的主流新闻的好评，就可以发现美国变得多么无望、赤裸裸的党派斗争。美国主流新闻近日报道GETTR包括“最新亲川普的推特克隆版头天就泄漏用户数据”；“最新川普的社交平台GETTR已经一团糟”;“GETTR的兴衰”。
+[Israel Toughens COVID Restrictions as Delta Infections Rise](https://www.haaretz.com/israel-news/israel-toughens-covid-restrictions-as-delta-infections-rise-1.10009775)
 
-GETTR（get togather合起来 ）的首席执行官并不为所动。杰森·米勒对坐在华盛顿特区的SUV里通过Zoom与我交谈的官员表示，进入GETTR社区只有两个测试：第一，你相信言论自由；第二条，你拒绝取消文化（独裁）。
+[More than 1,000 Israelis test positive for COVID](https://www.jpost.com/breaking-news/for-first-time-since-march-855-new-coronavirus-cases-in-israel-674084)
 
-米勒是共和党战略和通信领域的老手，在政治运动中有着长期的工作记录，包括2008年鲁迪·朱利安尼的总统竞选。2016年，他在担任特德·克鲁兹(Ted Cruz)的最高竞选顾问后，就被川普(Donald Trump)挖走，并成为这位前总统的最资深助手之一。
-
-但米勒说，他希望GETTR能成为各地沉默者的一个平台。”我从来没有说这只是为共和党人或只是为保守派，甚至只是为美国人，坦率地说，因为言论自由问题是一个全球性的问题”。
-
-米勒承认GETTR理想的困难。他说：”我们想确保每个人都有多种平台，也许这个平台就在美国，成保守派觉得他们原先的平台已经被夺走”。”但也许不只发生在香港–也许就是学生觉得中国共产党日益增长的影响力，正在侵犯他们的自由。” （白话：美国和香港一样都正在被共产主义中国剥夺了他们的自由，并开始对人民洗脑）
-
-**简评：**
-
-**GETTR****是欢迎独裁国家加入的社交平台，但中共独裁政府却加大油门发动战争，要让人获得言论自由，从而平息战争这很困难。**
-
-**从以下两篇文章便可以知一二**。
-**[《西喜时事新闻简报 — 中共踩油门篇》](https://gnews.org/zh-hans/1400572/)
-[《西喜时事新闻简报 —美国时事 篇》](https://gnews.org/zh-hans/1404208/)**
-
-**美国人是不会放弃天赋人权的，追求快乐必然会选择GETTR，全世界人也是如此。所以，G系列是全球人类追求的理想：那就是灭共，重新夺回自己的自由。**
-
-新闻来源：[《反应新闻》](https://reaction.life/president-xi-is-welcome-to-join-jason-miller-on-gettrs-free-speech-crusade/)（Reaction)｜作者：奥利弗·罗德斯｜发布时间：2021年7月17日｜
-
-审核：Jenny Ball； 校对：阿伯塔； 发稿：信心的选择
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
-
-+1
+0

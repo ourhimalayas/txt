@@ -2,32 +2,39 @@
 ---
 
 
-## 【秘翻在线】美国副总统哈里斯被带到沃尔特里德医疗中心
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404885/)
+## 拜登高级官员现接受 中共病毒 实验室泄漏理论
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1404930/)
 
-撰稿：Skagen
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18163310/%E5%9B%BE%E5%83%8F-1-2.jpg)
-图片来源：AP
+负责调查大流行起源的拜登政府高级官员现在认为，实验室意外泄漏理论至少与它在野外出现的可能性一样可信，美国有线电视新闻网将其描述为“与一年前民主党公开淡化所谓的实验室泄漏理论时相比发生了戏剧性的转变。
 
-据conservative brief.com 最新新闻，美国副总统卡马拉·哈里斯被带到沃尔特里德医疗中心（Walter Reed Medical Center）。
+据报道，尽管美国情报界对这两种理论存在“坚决分歧”，但对于去年提出实验室泄漏可能性的人来说，这一承认是最新的证明——包括前总统川普，他去年在提出实验室泄漏理论后遭到民主党人的严厉批评。
 
-哈里斯副总统在几天前与德克萨斯州的民主党立法者会面，他们中的三人被检测出COVID-19呈阳性，一天后，副总统就去了沃尔特里德医院。
+虽然 CNN 可能被迫改变了他们的调子，但他们的匿名消息来源声称，目前的情报“强化了这种病毒最有可能来自动物与人类接触的自然来源并且不是故意设计”的信念，但并不排除这种可能性该病毒是对蝙蝠进行冠状病毒研究的武汉病毒研究所意外泄漏的结果。”
 
-《福克斯新闻》则更详细点出时间：哈里斯是在周二会见了德克萨斯州的民主党立法者。三位民主党人的冠状病毒检测结果呈阳性，其中一位周五晚上检测结果呈阳性，另外两位周六早上检测结果呈阳性。
+周四，世界卫生组织总干事谭德塞（Tedros Adhanom Ghebreyesus）退缩了，承认该组织否认该病毒从武汉病毒研究所出现的可能性（兜售中共国宣传）为时过早，并敦促中共国提供“这些实验室在大流行之前和大流行刚开始时的情形。”在世卫组织对中国的访问得出结论认为实验室泄漏“极不可能”之后，他的评论完全是自2 月份以来180度的改变。
 
-《福克斯新闻》询问哈里斯的办公室，副总统是否有任何COVID-19的症状，但他们没有立即回应。周六，哈里斯的发言人桑德斯（Symone Sanders）说，哈里斯没有与受感染的立法者有密切接触。
+“我自己是一名实验室技术员，一名免疫学家，我在实验室工作过，实验室事故时有发生，”谭德塞说，“这很常见。”
 
-桑德斯在一份声明中说：”根据这些阳性测试的时间线，确定副总统和她在场的工作人员没有暴露的风险，因为他们没有与测试呈阳性的人密切接触，因此不需要测试或隔离，”桑德斯补充说，**哈里斯和她的工作人员已经全面接种疫苗**。
+对此，中共国外交部发表声明称，“疫情发生以来，中方在追查病毒源头方面采取了科学、专业、认真、负责的态度。”
 
-这次访问是为了 “例行的医生预约”，但是时间上令人好奇，因为”例行 “检查被安排在了星期天，人们有多少次会在周日去看医生做常规检查？
+拜登总统下令情报官员对大流行的起源进行为期 90 天的调查，此前一位前官员告诉《纽约时报》，有大量未经审查的证据需要进一步调查。
 
-哈里斯的发言人说，哈里斯与检测结果呈阳性的立法者没有密切接触，但从她推特账户上的一张照片来看，大众都能看到”密切 “接触的程度。
+2020 年 4 月，美国国务院的电报显示，美国外交官担心中共国首屈一指的武汉病毒研究实验室发生实验室泄漏。 除其他外，电报显示美国科学家曾多次访问中共国实验室，电报还说，科学家们担心实验室的任何泄漏都可能导致新的类似 SARS 的大流行。
 
-参考链结：
+中共国长期以来一直拒绝实验室泄漏的说法，坚持认为自 2019 年在武汉首次发现该病毒以来，该病毒是快速通过另一种物种从蝙蝠传给人类的。——纽约邮报
 
-1. [conservative brief.com](https://conservativebrief.com/kamala-harris-walter-reed-45749/)
-2. [福克斯新闻](https://www.foxnews.com/politics/harris-walter-reed-routine-doctor-appointmentdays-texas-democrats-covid)
-3. [哈里斯推特](https://twitter.com/KamalaHarris/status/1416042437017964546)
+拜登政府的情绪转变是在国家安全顾问杰克沙利文上个月告诉福克斯新闻之后发生的，如果中共国不配合推进大流行调查，中共国将面临“国际社会的孤立”。“如果事实证明中共国拒绝履行其国际义务，我们将不得不考虑我们对此的反应，”沙利文当天晚些时候告诉CNN。
 
+我们不太确定中共国会配合……
+
+文章来源：
+
+[https://www.zerohedge.com/covid-19/top-biden-officials-now-embracing-covid-lab-leak-theory?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/covid-19/top-biden-officials-now-embracing-covid-lab-leak-theory?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+翻译整理：文复
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

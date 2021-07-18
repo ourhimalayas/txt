@@ -2,35 +2,32 @@
 ---
 
 
-## 报告：中共国首例猴B病毒人类感染病例死亡
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1404831/)
+## 【秘翻在线】美国副总统哈里斯被带到沃尔特里德医疗中心
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404885/)
 
-北京：据官方媒体报道，一名被确认为中共国首例猴 B 病毒 (BV) 人类感染病例的北京兽医在日益担忧的情况下死亡。
+撰稿：Skagen
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18163310/%E5%9B%BE%E5%83%8F-1-2.jpg)
+图片来源：AP
 
-周六，引用中国疾病预防控制中心英文平台，官方媒体《环球时报》报道，这位 53 岁的男性兽医在一家研究非人类灵长类动物的机构工作，在 3 月初解剖两只死猴子一个月后，他出现了恶心和呕吐的早发症状。
+据conservative brief.com 最新新闻，美国副总统卡马拉·哈里斯被带到沃尔特里德医疗中心（Walter Reed Medical Center）。
 
-报道称，这名兽医曾在多家医院寻求治疗，最终于 5 月 27 日死亡。
+哈里斯副总统在几天前与德克萨斯州的民主党立法者会面，他们中的三人被检测出COVID-19呈阳性，一天后，副总统就去了沃尔特里德医院。
 
-它补充说，就目前而言，他的密切接触者是安全的。
+《福克斯新闻》则更详细点出时间：哈里斯是在周二会见了德克萨斯州的民主党立法者。三位民主党人的冠状病毒检测结果呈阳性，其中一位周五晚上检测结果呈阳性，另外两位周六早上检测结果呈阳性。
 
-报道称，此前中共国没有发生致命甚至临床明显的猴 B 病毒感染，因此该兽医病例是中共国发现的首例猴 B 病毒人类感染病例。
+《福克斯新闻》询问哈里斯的办公室，副总统是否有任何COVID-19的症状，但他们没有立即回应。周六，哈里斯的发言人桑德斯（Symone Sanders）说，哈里斯没有与受感染的立法者有密切接触。
 
-研究人员在 4 月收集了兽医的脑脊液，并确定他的猴 B 病毒呈阳性，但他的密切接触者的样本显示该病毒呈阴性。
+桑德斯在一份声明中说：”根据这些阳性测试的时间线，确定副总统和她在场的工作人员没有暴露的风险，因为他们没有与测试呈阳性的人密切接触，因此不需要测试或隔离，”桑德斯补充说，**哈里斯和她的工作人员已经全面接种疫苗**。
 
-该病毒最初于 1932 年分离，是一种在猕猴属猕猴中发生的地方性疱疹病毒。它可以通过身体分泌物的直接接触和交换传播，死亡率为 70% 至 80%。
+这次访问是为了 “例行的医生预约”，但是时间上令人好奇，因为”例行 “检查被安排在了星期天，人们有多少次会在周日去看医生做常规检查？
 
-该杂志暗示猴 B 病毒可能对职业工人构成潜在威胁。
+哈里斯的发言人说，哈里斯与检测结果呈阳性的立法者没有密切接触，但从她推特账户上的一张照片来看，大众都能看到”密切 “接触的程度。
 
-报告称，有必要在无特定病原体的恒河猴群落发展过程中消除猴B 病毒，并加强对实验室猕猴和职业工人的监测。
+参考链结：
 
-文章来源：
+1. [conservative brief.com](https://conservativebrief.com/kamala-harris-walter-reed-45749/)
+2. [福克斯新闻](https://www.foxnews.com/politics/harris-walter-reed-routine-doctor-appointmentdays-texas-democrats-covid)
+3. [哈里斯推特](https://twitter.com/KamalaHarris/status/1416042437017964546)
 
-[https://timesofindia.indiatimes.com/world/china/chinas-first-human-infection-case-with-monkey-b-virus-dies-report/articleshow/84525517.cms](https://timesofindia.indiatimes.com/world/china/chinas-first-human-infection-case-with-monkey-b-virus-dies-report/articleshow/84525517.cms)
-
-翻译整理：文复
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

@@ -2,34 +2,47 @@
 ---
 
 
-## 雅典数千人集会反对 COVID-19 疫苗接种
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404689/)
+## 【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1404922/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18115031/1437.png)2021 年 7 月 14 日，在希腊雅典，政府宣布对某些部门强制接种疫苗后，反疫苗抗议者参加了议会大楼外的示威活动
-**据《路透社》记者： Vassilis Triandafyllou， Alkis Konstantinidis，2021 年 7 月 15 日报道：**
+作者：纽约香草山佛教部 369文驹
 
-《路透社》雅典 7 月 14 日——超过 5,000 名反疫苗抗议者周三在雅典集会，反对希腊的冠状病毒疫苗接种计划，其中一些人挥舞着希腊国旗和木制十字架。
 
-抗议者大喊“带上你的疫苗，离开这里！”并呼吁基里亚科斯·米佐塔基斯 (Kyriakos Mitsotakis) 总理辞职。抗议者在有大量警察在场的情况下聚集在议会外。
 
-周三的抗议是反对疫苗接种运动的最大表现。Pulse for Skai TV 最近的一项民意调查发现，大多数希腊人表示他们会接种疫苗，而且大多数人支持对某些人群进行强制性疫苗接种。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-大约 41% 的希腊人已全面接种疫苗。周一，在重要的旅游季节中期，新的 COVID-19 感染率急剧上升，政府下令对医护人员和疗养院工作人员进行强制性疫苗接种。
 
-“每个人都有选择的权利。我们选择的是政府不为我们选择。”心脏病专家费登·沃沃利斯 (Faidon Vovolis) 说，他质疑围绕口罩和疫苗的科学研究，并领导了“再次自由”运动，也称为抗议。沃沃利斯说，他成立该组织是为了回应政府为遏制病毒而采取的“强硬措施”。
 
-抗议在希腊相当普遍，最近几个月发生了几次抗议，涉及从新劳动法到以色列最近对加沙的军事行动等问题。
+7月17日，中共新闻频道发布消息称：“7月16日，经国务院联防联控机制有关部门组织论证，国药集团中（共）国生物北京生物制品研究所（中共病毒）灭活疫苗获批在3到17岁人群中紧急使用。”
 
-自大流行开始以来，这个拥有 1100 万人口的国家已有超过 444,700 人感染，12,782 人死亡。当局周三记录了近 3,000 例新感染病例。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18170634/10-11.jpg)图源网络
 
-原文连接：[https://www.reuters.com/world/europe/athens-thousands-rally-against-covid-19-vaccinations-2021-07-14/](https://www.reuters.com/world/europe/athens-thousands-rally-against-covid-19-vaccinations-2021-07-14/)
+中共毒疫苗政策一步步收紧，从送大米、送鸡蛋，到请明星站台，再到不接种毒疫苗就禁止进入公共场合、停发公务员工资、孩子不予上学等措施，如今发展到连18岁以下的儿童、青少年也要接种毒疫苗。实际上，中共对老百姓的压迫不分年龄——想当初，因计划生育所扼杀的胎儿总计消灭了约4亿人口，现在中共对儿童、青少年下手，还意外吗？中共邪恶的本性从来没改变，历史的惨剧正在现实中上演。文贵先生在2021年3月14日的直播中引用他母亲、父亲的话说：“我们这一辈子过的就是家，就是孩子的日子，就是为你们（孩子）而活着。如果没有你们，我们活着有什么意思？”而今，中共又一次要对每个家庭的孩子下毒手！
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – TrueSky
-编辑：洛杉矶盘古农场 – 明子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+推翻中共，为了孩子、为了亲人、为了我们的家！
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考阅读：
+
+国药集团新冠疫苗获批在3—17岁人群中使用\_https://news.cctv.com/2021/07/18/ARTIulG6rnXCfUThdLhObyV1210718.shtml
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

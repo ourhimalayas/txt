@@ -40,14 +40,14 @@
 ### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/8/README.md)
  ` 喜联盟七哥直播组`
 
-### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/9/README.md)
+### [【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
+
+### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【秘翻在线】](/content/gnews/10/README.md)
+### [【秘翻在线】](/content/gnews/11/README.md)
  ` 秘密翻译组G-Translators`
-
-### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
 
 ### [【战友心声】路德是如何攻击新中国联邦的？](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
@@ -88,23 +88,23 @@
 ### [【粤语配音】默克尔：与中共国的贸易必须建立在公平竞争的原则上](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【秘翻在线】美国副总统哈里斯被带到沃尔特里德医疗中心](/content/gnews/25/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】超过千名以色列人新冠病毒检测呈阳性 政府发布新的限制措施](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [报告：中共国首例猴B病毒人类感染病例死亡](/content/gnews/27/README.md)
+### [拜登高级官员现接受 中共病毒 实验室泄漏理论](/content/gnews/25/README.md)
  ` 闪电侠`
 
-### [「欢迎习神加入」——杰森·米勒谈GETTR的言论自由运动](/content/gnews/28/README.md)
+### [【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [【秘翻在线】美国副总统哈里斯被带到沃尔特里德医疗中心](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【秘翻在线】超过千名以色列人新冠病毒检测呈阳性 政府发布新的限制措施](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [报告：中共国首例猴B病毒人类感染病例死亡](/content/gnews/29/README.md)
+ ` 闪电侠`
+
+### [「欢迎习神加入」——杰森·米勒谈GETTR的言论自由运动](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [COVID 大流行期间的麦加朝觐](/content/gnews/29/README.md)
- ` 闪电侠`
-
-### [【秘翻在线】美国重申不承认中共国对南海的非法主权申索](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [美国在反对政府的起义中为100多万古巴人恢复了互联网的使用](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [“制度精神”与《大宪章》](/content/gnews/43/README.md)
+### [联合国人权事务负责人敦促释放古巴抗议者](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [《园丁与木匠》- 3. 为什么有的孩子不听父母话？](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [共和党主席又质疑大选欺诈舞弊](/content/gnews/44/README.md)
+### [“制度精神”与《大宪章》](/content/gnews/45/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [共和党主席又质疑大选欺诈舞弊](/content/gnews/46/README.md)
  ` HimalayaRussia`
 
-### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/45/README.md)
+### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/47/README.md)
  ` HimalayaRussia`
 
-### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/46/README.md)
+### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/48/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中共惊惧美欧的太空军事能力](/content/gnews/47/README.md)
+### [中共惊惧美欧的太空军事能力](/content/gnews/49/README.md)
  ` 丁过`
 
-### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/48/README.md)
+### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国空军将向太平洋地区派遣约25架F-22战斗机](/content/gnews/49/README.md)
+### [美国空军将向太平洋地区派遣约25架F-22战斗机](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【战友寄语】美制裁7名中联办官员毫无力度](/content/gnews/50/README.md)
+### [【战友寄语】美制裁7名中联办官员毫无力度](/content/gnews/52/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/51/README.md)
+### [意大利智库在参议院举办研讨会要求究责中共病毒](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗](/content/gnews/52/README.md)
+### [打针或解雇：新西兰国防军成员被迫接受 COVID-19 疫苗](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【合辑】大废墙的厉害国杂谈](/content/gnews/53/README.md)
+### [【合辑】大废墙的厉害国杂谈](/content/gnews/55/README.md)
  ` 大废墙`
 
-### [【重磅】](/content/gnews/54/README.md)
+### [【重磅】](/content/gnews/56/README.md)
  ` 日本东京樱花团`
-
-### [【你负责包饺子】](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [中共是阻碍世界文明进步的根源](/content/gnews/56/README.md)
- ` G-NEWS TAIWAN`
 
