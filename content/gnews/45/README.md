@@ -5,22 +5,32 @@
 ## 针对近期时态的一点感想
 ` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1403536/)
 
+撰稿：特战一兵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17230433/181.jpg)图片来自网络
+山雨欲来风满楼。共产党倒台之前，妖魔鬼怪纷纷出洞。
 
-<p>撰稿：特战一兵</p>
-<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17230433/181.jpg" alt="" class="wp-image-1403547" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17230433/181.jpg" alt="" class="wp-image-1403547"></noscript><figcaption>图片来自网络</figcaption></figure>
-<p>山雨欲来风满楼。共产党倒台之前，妖魔鬼怪纷纷出洞。</p>
-<p>针对情况的复杂性，有些战友开始担忧，有些战友不知所措，有些战友甚至开始怀疑、动摇。</p>
-<p>实际上，要让我们自己在纷繁复杂的环境中保持心明眼亮，保持稳如磐石，只需一招，那就是：问问自己我们参加爆料革命的初衷是什么？</p>
-<p>我不能保证所有人，但我想我们大部分人会和我一样，参加爆料革命的初衷是消灭共产党。只要我们坚持这个初衷，那么任何的困难都能克服。</p>
-<p>我们要对我们与共产党斗争的艰巨性有个清楚的认识，这是一场危险的斗争，甚至是你死我活的斗争。连生命都在所不惜，那么还有什么值得我们斤斤计较的呢？</p>
-<p>我们与共产党斗争的路还很长，在这个过程中我们会遇到挫折，遇到磨难，甚至遇到生死抉择。我们必须对这一个做好思想准备。文贵先生所说的“无我”并不是一句空话，只有在斗争中遭受过挫折和磨难的人，才能更好地理解这一句话的含义。</p>
-<p>我们现在还没有到生死抉择的关头，仅仅因为王闫的突然发难就开始怀疑起爆料革命。这样的战友实际上是意志不坚定的人，甚至不配称我们战友。这种人，遇到一点挫折，都有退缩甚至变节的可能。所以，这种人，在关键时刻的退缩直至退出革命，对爆料革命来说是一件好事。大浪淘沙，金子一定可以留到最后。</p>
-<p>另外，除了我们这些内部的不坚定分子以外，我们要深刻认识到爆料革命是共产党最害怕最痛恨最想摧垮的对象。共产党集一国之力，用各种手段来打击爆料革命，其中一种方式就是派出许许多多蛇和燕子打入我们爆料革命的内部，他们会在各种时刻搞破坏，比如收集情报、离间、造谣、制造混乱等等。对这些特务，我们必须要有敏感性，要有警觉性。其实，对付他们的办法也很简单，那就是我们紧跟爆料革命，不管狂风巨涛，我自岿然不动。只要我们能做到这一点，共产党终将无可奈何，一切手段都归于无效。</p>
-<p>所以，我们一定要坚持我们的信念，不要被其它的细枝末节扰乱了自己的心。紧跟爆料革命，奋勇斗争，直至把共产党埋葬于垃圾堆之下，迎来属于我们自己的新中国联邦。</p>
-<p>（2021-7-16）</p>
-<p>以上内容仅代表作者本人观点</p>
-<p><a href="https://gnews.org/zh-hans/author/aujenny/">【澳喜文章1】</a></p>
-<p><a href="https://gnews.org/zh-hans/author/himalaya-australia/">【澳喜文章2】</a></p>
-<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg" alt="" class="wp-image-1368730" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg" alt="" class="wp-image-1368730"></noscript></figure>
-<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1403536" data-ulike-nonce="fd03eec6f5" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1403536"></button><span class="count-box">0</span> </div></div>
+针对情况的复杂性，有些战友开始担忧，有些战友不知所措，有些战友甚至开始怀疑、动摇。
 
+实际上，要让我们自己在纷繁复杂的环境中保持心明眼亮，保持稳如磐石，只需一招，那就是：问问自己我们参加爆料革命的初衷是什么？
+
+我不能保证所有人，但我想我们大部分人会和我一样，参加爆料革命的初衷是消灭共产党。只要我们坚持这个初衷，那么任何的困难都能克服。
+
+我们要对我们与共产党斗争的艰巨性有个清楚的认识，这是一场危险的斗争，甚至是你死我活的斗争。连生命都在所不惜，那么还有什么值得我们斤斤计较的呢？
+
+我们与共产党斗争的路还很长，在这个过程中我们会遇到挫折，遇到磨难，甚至遇到生死抉择。我们必须对这一个做好思想准备。文贵先生所说的“无我”并不是一句空话，只有在斗争中遭受过挫折和磨难的人，才能更好地理解这一句话的含义。
+
+我们现在还没有到生死抉择的关头，仅仅因为王闫的突然发难就开始怀疑起爆料革命。这样的战友实际上是意志不坚定的人，甚至不配称我们战友。这种人，遇到一点挫折，都有退缩甚至变节的可能。所以，这种人，在关键时刻的退缩直至退出革命，对爆料革命来说是一件好事。大浪淘沙，金子一定可以留到最后。
+
+另外，除了我们这些内部的不坚定分子以外，我们要深刻认识到爆料革命是共产党最害怕最痛恨最想摧垮的对象。共产党集一国之力，用各种手段来打击爆料革命，其中一种方式就是派出许许多多蛇和燕子打入我们爆料革命的内部，他们会在各种时刻搞破坏，比如收集情报、离间、造谣、制造混乱等等。对这些特务，我们必须要有敏感性，要有警觉性。其实，对付他们的办法也很简单，那就是我们紧跟爆料革命，不管狂风巨涛，我自岿然不动。只要我们能做到这一点，共产党终将无可奈何，一切手段都归于无效。
+
+所以，我们一定要坚持我们的信念，不要被其它的细枝末节扰乱了自己的心。紧跟爆料革命，奋勇斗争，直至把共产党埋葬于垃圾堆之下，迎来属于我们自己的新中国联邦。
+
+（2021-7-16）
+
+以上内容仅代表作者本人观点
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+0

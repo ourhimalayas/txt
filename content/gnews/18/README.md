@@ -5,30 +5,50 @@
 ## 【世事解评】滴滴事件——背后大BOSS是谁
 ` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1399855/)
 
+作者：香草山商业部 文明
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10111333/Screen-Shot-2021-07-10-at-11.13.07-PM.png)
+滴滴从2012年成立以来，先后经历了4年的商业战争。不论是与摇摇招车等公司的北京本地PK、与快的的全国PK，还是与Uber全球的PK，最终都是滴滴成为赢家。再比如2015年9月滴滴快的确认完成30亿美元融资，创造全球独角兽企业融资纪录；还有2016年6月滴滴完成45亿美元股权融资，账面现金或超百亿美元。很显然这么多大动作，绝非仅仅滴滴的创业团队所决定，这背后一定有着错综复杂的利益转移和交换。
 
-<p>作者：香草山商业部&nbsp;文明</p>
-<figure class="wp-block-image size-large"><img data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10111333/Screen-Shot-2021-07-10-at-11.13.07-PM.png" alt="" class="wp-image-1387784" style="display:none;visibility:hidden;"><noscript><img src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10111333/Screen-Shot-2021-07-10-at-11.13.07-PM.png" alt="" class="wp-image-1387784"></noscript></figure>
-<p>滴滴从2012年成立以来，先后经历了4年的商业战争。不论是与摇摇招车等公司的北京本地PK、与快的的全国PK，还是与Uber全球的PK，最终都是滴滴成为赢家。再比如2015年9月滴滴快的确认完成30亿美元融资，创造全球独角兽企业融资纪录；还有2016年6月滴滴完成45亿美元股权融资，账面现金或超百亿美元。很显然这么多大动作，绝非仅仅滴滴的创业团队所决定，这背后一定有着错综复杂的利益转移和交换。</p>
-<div class="wp-block-image"><figure class="aligncenter size-large is-resized"><img loading="lazy" data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750.png" alt="" class="wp-image-1399836" width="551" height="332" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750.png 996w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750-373x225.png 373w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750-768x463.png 768w" sizes="(max-width: 551px) 100vw, 551px" style="display:none;visibility:hidden;"><noscript><img loading="lazy" src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750.png" alt="" class="wp-image-1399836" width="551" height="332" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750.png 996w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750-373x225.png 373w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750-768x463.png 768w" sizes="(max-width: 551px) 100vw, 551px"></noscript></figure></div>
-<p>有观点认为马云是背后的大佬，理由是不管滴滴还是快的，两家企业的创始人都和马云有千丝万缕的关系（滴滴创始人程维曾经是阿里巴巴区域销售经理，后来升级到支付宝B2C事业部副总经理，而快的创始人陈伟星是马云在湖畔大学的学生），而且阿里巴巴是快的发展规程中最大的金主，且滴滴出行完成的45亿美元融资过程中，阿里巴巴以及蚂蚁金服都积极参与。</p>
-<p>也有一种观点认为柳传志才是背后掌握整盘大旗的人!这个版本是目前流传最为广泛的。在大家看来，中共国三大网约车平台都和柳传志直接有关，柳传志的女儿柳青是滴滴快的总裁，柳传志的侄女柳甄是Uber中共国区战略负责人，还有，柳传志创办的联想控股，则是神州租车的大股东，柳家才是中共国网约车市场幕后的最大BOSS。</p>
-<p>还有一种观点认为异常低调的马化腾才是背后隐藏的真正大BOSS，原因是在整个中共国网约车的发展历程中，收益最大的不是滴滴管理团队或者其他战略投资人，而是腾讯。因为，一开始腾讯通过对滴滴的持续补贴，前提是“用户必须开通并且使用微信支付”，最终腾讯的百亿级别投资换来的是几亿的微信支付用户，这个性价比可太高了。马化腾这盘旗，有些让人细思恐极呀。</p>
-<p>滴滴自成立9年以来，合计融资21次，累计融资金额超过226亿美元。20余次融资和两次合并之后，股权结构已经非常复杂，股东包括软银、Uber、腾讯、阿里巴巴、苹果、丰田、金沙江创投、高瓴资本、红杉资本等投资机构。<strong>而腾讯、阿里巴巴还是习近平对手江家的资产。</strong><strong></strong></p>
-<div class="wp-block-image"><figure class="aligncenter size-large is-resized"><img loading="lazy" data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751.png" alt="" class="wp-image-1399842" width="450" height="1239" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751.png 640w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751-261x720.png 261w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751-82x225.png 82w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751-558x1536.png 558w" sizes="(max-width: 450px) 100vw, 450px" style="display:none;visibility:hidden;"><noscript><img loading="lazy" src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751.png" alt="" class="wp-image-1399842" width="450" height="1239" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751.png 640w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751-261x720.png 261w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751-82x225.png 82w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751-558x1536.png 558w" sizes="(max-width: 450px) 100vw, 450px"></noscript></figure></div>
-<p>滴滴于2021年6月11日正式向SEC递交了IPO招股书，股票代码为“DIDI”，由高盛、摩根士丹利、摩根大通、华兴资本担任承销商。 于6月30日在美国纽约证交所上市，是继2014年阿里巴巴赴美上市后，规模最大的中共国公司IPO（首次公开募股）案。上市两天后就被国家以安全为由下架。</p>
-<p>滴滴未按照中共说的延迟在美国上市时间，仍赶在6月30日就在美国上市。明显有些违抗党中央的意愿，挑战习权力的意思。如果习不做出回应，就等同于放软、示弱，很可能会让党内更多派系权贵跟上来、挑战他，甚至骑到他头上。</p>
-<p>在滴滴App下架后不久，中共又对今年六月刚在美股上市的3家网络平台公司：中共国最大线上人力银行网“Boss直聘”、有中共国货车界Uber之称的满帮集团旗下“运满满”与“货车帮”进行网路安全审查，并暂停新用户注册。</p>
-<p>从美中从贸易战打到科技战的演变来看，不论蚂蚁金服、滴滴出行，还是满帮，背后都手握中共国人民资金流。而在美中贸易战之后，中共国经济发展已在变慢，资金也可能出现缺口了，因此习得积极找寻财源。</p>
-<p><strong>可想而知，滴滴下架背后的原因恐怕不只数据安全这单单一项吧。</strong><strong></strong></p>
-<p>滴滴遭下架一事更是扯出蚂蚁上市夭折的内幕：北京当局调查发现，在持有蚂蚁集团股权的层层不透明投资工具的背后，是一个由人脉广泛的中共权贵组成的小圈子，其中一些人将对习近平构成“潜在挑战”。江泽民孙子江志成创办的博裕资本，通过私募基金“北京京管”持有蚂蚁股权；前中共政治局常委贾庆林的女婿李伯潭，亦通过控制的北京昭德投资持有蚂蚁股份。</p>
-<p>其中以上海帮为主的红三代们开投顾公司，结合海外投顾公司带着中共国企业到海外上市，并通过IPO吸金，但最终这些资金不会回到中共国，而是以投资的名义藏在海外，这些IPO的风险将由中共国百姓承担，而利润却被他们分走。而红二代们至今还掌握着中共国所有跟国家政权、民生有关的企业。说白了就是滴滴被查实际上是中共最高权力斗争的结果，习担心对他明年连任构成威胁，也不希望滴滴挂牌上市，为“太子党”投资者们带来巨大利益。</p>
-<p>校对/发稿：飞虹</p>
-<div class="wp-block-image"><figure class="aligncenter size-large is-resized"><img loading="lazy" data-cfsrc="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg" alt="" class="wp-image-1384968" width="345" height="446" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg 1275w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-556x720.jpg 556w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-174x225.jpg 174w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-768x994.jpg 768w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-1187x1536.jpg 1187w" sizes="(max-width: 345px) 100vw, 345px" style="display:none;visibility:hidden;"><noscript><img loading="lazy" src="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg" alt="" class="wp-image-1384968" width="345" height="446" srcset="https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg 1275w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-556x720.jpg 556w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-174x225.jpg 174w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-768x994.jpg 768w, https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2-1187x1536.jpg 1187w" sizes="(max-width: 345px) 100vw, 345px"></noscript></figure></div>
-<p><strong>更多资讯，更多关注</strong></p>
-<p><a href="https://gtv.org/user/5ffbdcd7f579a75e0bd123e6"><strong><u><strong>纽约香草山农场GTV</strong></u></strong><strong><u><strong>&#8211;</strong></u></strong><strong><u><strong>香草山之声</strong></u></strong></a><strong></strong></p>
-<p><a href="https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10"><strong><u><strong>纽约香草山农场GTV-MOS TALK</strong></u></strong></a><strong><u><strong>香草山访谈</strong></u></strong><strong><u><strong></strong></u></strong></p>
-<p><a href="https://twitter.com/HIMALAYA_MOS"><strong><u><strong>纽约香草山农场</strong></u></strong><strong><u><strong>Twitter</strong></u></strong></a><strong><u><strong>(</strong></u></strong><strong><u><strong>中文</strong></u></strong><strong><u><strong>)</strong></u></strong><strong><u><strong></strong></u></strong></p>
-<p><a href="https://twitter.com/MosHimalaya"><strong><u><strong>纽约香草山农场Twitter(英文)</strong></u></strong></a><strong></strong></p>
-<p><a href="https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg"><strong><u><strong>纽约香草山农场&nbsp;You</strong></u></strong><strong><u><strong>Tube</strong></u></strong></a><strong></strong></p>
-<div class="wpulike wpulike-default "><div class="wp_ulike_general_class wp_ulike_is_not_logged"><button type="button" aria-label="Like Button" data-ulike-id="1399855" data-ulike-nonce="70e937d347" data-ulike-type="post" data-ulike-template="wpulike-default" data-ulike-display-likers="" data-ulike-disable-pophover="" class="wp_ulike_btn wp_ulike_put_image wp_post_btn_1399855"></button><span class="count-box">+1</span> </div></div>
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750.png)
 
+有观点认为马云是背后的大佬，理由是不管滴滴还是快的，两家企业的创始人都和马云有千丝万缕的关系（滴滴创始人程维曾经是阿里巴巴区域销售经理，后来升级到支付宝B2C事业部副总经理，而快的创始人陈伟星是马云在湖畔大学的学生），而且阿里巴巴是快的发展规程中最大的金主，且滴滴出行完成的45亿美元融资过程中，阿里巴巴以及蚂蚁金服都积极参与。
+
+也有一种观点认为柳传志才是背后掌握整盘大旗的人!这个版本是目前流传最为广泛的。在大家看来，中共国三大网约车平台都和柳传志直接有关，柳传志的女儿柳青是滴滴快的总裁，柳传志的侄女柳甄是Uber中共国区战略负责人，还有，柳传志创办的联想控股，则是神州租车的大股东，柳家才是中共国网约车市场幕后的最大BOSS。
+
+还有一种观点认为异常低调的马化腾才是背后隐藏的真正大BOSS，原因是在整个中共国网约车的发展历程中，收益最大的不是滴滴管理团队或者其他战略投资人，而是腾讯。因为，一开始腾讯通过对滴滴的持续补贴，前提是“用户必须开通并且使用微信支付”，最终腾讯的百亿级别投资换来的是几亿的微信支付用户，这个性价比可太高了。马化腾这盘旗，有些让人细思恐极呀。
+
+滴滴自成立9年以来，合计融资21次，累计融资金额超过226亿美元。20余次融资和两次合并之后，股权结构已经非常复杂，股东包括软银、Uber、腾讯、阿里巴巴、苹果、丰田、金沙江创投、高瓴资本、红杉资本等投资机构。**而腾讯、阿里巴巴还是习近平对手江家的资产。**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751.png)
+
+滴滴于2021年6月11日正式向SEC递交了IPO招股书，股票代码为“DIDI”，由高盛、摩根士丹利、摩根大通、华兴资本担任承销商。 于6月30日在美国纽约证交所上市，是继2014年阿里巴巴赴美上市后，规模最大的中共国公司IPO（首次公开募股）案。上市两天后就被国家以安全为由下架。
+
+滴滴未按照中共说的延迟在美国上市时间，仍赶在6月30日就在美国上市。明显有些违抗党中央的意愿，挑战习权力的意思。如果习不做出回应，就等同于放软、示弱，很可能会让党内更多派系权贵跟上来、挑战他，甚至骑到他头上。
+
+在滴滴App下架后不久，中共又对今年六月刚在美股上市的3家网络平台公司：中共国最大线上人力银行网“Boss直聘”、有中共国货车界Uber之称的满帮集团旗下“运满满”与“货车帮”进行网路安全审查，并暂停新用户注册。
+
+从美中从贸易战打到科技战的演变来看，不论蚂蚁金服、滴滴出行，还是满帮，背后都手握中共国人民资金流。而在美中贸易战之后，中共国经济发展已在变慢，资金也可能出现缺口了，因此习得积极找寻财源。
+
+**可想而知，滴滴下架背后的原因恐怕不只数据安全这单单一项吧。**
+
+滴滴遭下架一事更是扯出蚂蚁上市夭折的内幕：北京当局调查发现，在持有蚂蚁集团股权的层层不透明投资工具的背后，是一个由人脉广泛的中共权贵组成的小圈子，其中一些人将对习近平构成“潜在挑战”。江泽民孙子江志成创办的博裕资本，通过私募基金“北京京管”持有蚂蚁股权；前中共政治局常委贾庆林的女婿李伯潭，亦通过控制的北京昭德投资持有蚂蚁股份。
+
+其中以上海帮为主的红三代们开投顾公司，结合海外投顾公司带着中共国企业到海外上市，并通过IPO吸金，但最终这些资金不会回到中共国，而是以投资的名义藏在海外，这些IPO的风险将由中共国百姓承担，而利润却被他们分走。而红二代们至今还掌握着中共国所有跟国家政权、民生有关的企业。说白了就是滴滴被查实际上是中共最高权力斗争的结果，习担心对他明年连任构成威胁，也不希望滴滴挂牌上市，为“太子党”投资者们带来巨大利益。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
