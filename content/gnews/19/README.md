@@ -2,199 +2,227 @@
 ---
 
 
-## 佛罗里达州副州长对古巴自由抗议的评论：年轻一代不惧怕压迫政权
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404239/)
+## 三名纽约洋基队接种疫苗的球员的 COVID-19 检测呈阳性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404198/)
 
 字幕内容：
 
-**Stefan Kleinhenz (OAN host)**
+**Art Shamsky (Host, The Art Shansky Podcast)**
 
-斯特凡**·**克莱因恩茨** **（**OAN**主持人）
+阿特** **沙姆斯基（主持人，**The Art Shansky **播客）
 
-How going forward, can the results finally be different?
+All over the world, it’s very precarious right now, sports in particular
 
-怎么往前走，最后能不能有不一样的结果。
+现在全世界都很危险特别是在体育界
 
-We do have to think about this in the non-traditional way,
+are really under pressure to get these things right
 
-我们必须以非传统的方式思考这个问题
+真正面临着要把这些事情做好的压力
 
-what can we do？what can the Americans government and the people here
+and as you can see,
 
-我们能做些什么？美国政府和这里的人民能做些什么
+正如你所看到的
 
-do for the people of Cuba that will bring new and different results？
+My games being canceled all these doubleheaders mounted up
 
-去为古巴人民带来新的和不同的结果？
+我的赛事被取消、所有这些双头游戏
 
-**Jeanette Nunez (Fla. Lieutenant Governor)**
+and all the changes in the game is,
 
-珍妮特**·**努涅斯（佛罗里达州副州长）
+和游戏中的所有变化是
 
-And that’s a great point because as you said,
+it’s really a very, very tough situation now.
 
-这是一个很好的观点，因为正如你所说的
+目前真的是非常非常艰难的情况
 
-for 62 years， far beyond many people’s lifetime
+As far as the Yankees situation.
 
-62年，远远超出许多人的一生
+以至于洋基队的情况
 
-that country has been oppressed
+I’m shocked that this happened all of a sudden,
 
-那个国家被压迫了
+我很震惊这突然发生的状况
 
-that country has been held by dictators and tyrants,
+coming out of the all-star game
 
-那个国家一直被独裁者和暴君控制着
+来自于全明星赛中
 
-that cared little for their people
+but, you know, you’re just gonna have to improvise,
 
-他们（独裁者和暴君）很少关心他们的人民
+但是，你知道，你只能去凑合
 
-and so many that have lent their voice to free Cuba
+do what they can do
 
-还有许多为解放古巴而发声的人
+做他们能做的
 
-have been demoralized for six decades,
+and last year was a real test for sports in particular baseball,
 
-状态不佳已经有六十年了
+而且去年是对体育运动的真正考验，尤其是棒球
 
-not seeing change come to the island
+and we’ll see what’s going to happen
 
-岛上没有看到变化
+我们会看看将会发生什么
 
-The young people, the younger generation, they are finally fed up
+and I know we don’t even know
 
-年轻人，更年轻的一代，他们终于受够了
+而且我认识到我们甚至不知道
 
-they’re no longer fearful.
+what the game is going to be playing tonight
 
-他们不再害怕了
+今晚要进行什么赛事
 
-they do not care if they lose their lives or their freedoms
+so I’m just wondering what’s going to happen
 
-他们不在乎是否失去他们的生命或自由
+所以我只是想知道会发生什么
 
-they want change. They want to be able to bring that change,
+basically we’re gonna have to make some tough decisions
 
-他们想要改变，他们希望能够带来这种改变
+基本上我们将不得不做出一些艰难的决定
 
-it shouldn’t be a partisan issue.
+**Shaun Kraisman (Newsmax TV Anchor)**
 
-这不应该是党派问题
+肖恩**·**克莱斯曼（**Newsmax **电视主播）
 
-Everybody should stand on the side of a free Cuba.
+such as baseball obviously, if you’ve heard,
 
-每个人都应该站在一个自由的古巴这一方面
+很明显，比如棒球，如果你已经听到了
 
-And so what I what I believe firmly is
+Bubba Watson as well had issue with going overseas
 
-所以我坚信的是
+还有布巴·沃森（职业高尔夫球员）出国有问题
 
-that not only do we have to lent support and solidarity.
+because he’s been vaccinated,
 
-我们不仅要提供支持和团结
+因为他已经打过疫苗了
 
-People are starting to open their eyes to the ills of Castro’s regime to the ills of communism,
+but he came in contact with someone that had it.
 
-人们开始看清了卡斯特罗政权的弊病和共产主义的弊病睁
+但他接触到了带病毒的人
 
-You know it’s not in vogue in the progressives
+Your thoughts on that and where we’re going.
 
-你知道它在进步人士中并不流行
+您对此的看法以及我们要怎样做
 
-to speak ill of communism and socialism
+Not even just in the sports world,
 
-说共产主义和社会主义的坏话
+不仅在体育界
 
-they embrace it, they adore it.
+but just in general, as a human population.
 
-他们拥抱它，他们崇拜它
+但总的来说，作为一个人类
 
-But I think when the average person
+Yeah. Are we are we following the guide
 
-但我认为当普通人
+是的， 我们是否遵循指导
 
-starts to see a country brutalizing its people
+we feel like we’re following the guidelines of science on this
 
-开始看到一个国家对其人民进行残酷对待时
+我们觉得我们正在遵循科学的指导方针
 
-simply for demanding freedom God given rights.
+**Art Shamsky**
 
-简单的要求自由，这是上帝赋予的权利
+阿特** **沙姆斯基
 
-I think that’s what you see really the shift in the paradigm
+I don’t know every teams have gotten everybody to get vaccinated,
 
-我认为这就是你真正看到的模式转变
+我不知道每个球队都让每个人接种了疫苗
 
-as it relates to what the average individual understands about Cuba,
+but we were so anxious to get back in a somewhat normal way
 
-因为它与普通人对古巴的了解有关
+但我们非常渴望回到某种正常的方式
 
-what the average individual wants to do for Cubans
+that we kind of rushed into things
 
-普通人想为古巴人做些什么
+我们有点像是急于求成
 
-so I think from the standpoint of what we’re in the state can do
+that I think it’s, it’s coming back to bite us a little bit.
 
-所以我认为从我们的国家可以做的事情的角度来看
+我认为是，它会回来咬咬我们
 
-we lend our support.
+We’re also so hungry for sports and hungry to get out
 
-我们可以提供支持
+我们也很渴望于体育运动而且也很想出去
 
-We want to see the administration tackle this issue,
+and now we see that there’re spikes up in a lot of cities of Los Angeles,
 
-我们希望看到政府解决这个问题
+现在我们看到洛杉矶的很多城市都出现了高峰（病毒感染）
 
-we want to see a call on the international community to bring change to the island
+now you have to mask indoors, again,
 
-我们希望看到国际社会呼吁为该岛带来改变
+现在你必须又要在室内戴口罩了
 
-we want to see the Cuban people have access to the Internet,
+and who knows what’s going to happen.
 
-我们希望看到古巴人民可以进入互联网
+而且谁知道将会发生什么
 
-what did they do the minute, this, this uprising took place?
+I know people want to be out and doing things,
 
-这个起义发生的时候，他们（独裁者和暴君）做了什么？
+我知道人们想在室外活动并做事
 
-they shut down the internet,
+but we have to be very very careful.
 
-他们关闭了互联网
+但是我们必须要特别特别的小心
 
-not only to eliminate their opportunity to connect with each other to communicate, communicate,
+And We all know, sports is kind of like a thing for us
 
-不仅要消除他们相互联系交流的机会
+我们都知道，运动对我们来说是重要的东西
 
-but to not allow the truth to be told
+to be able to forget about all our other problems
 
-而且不允许真相被说出来
+能够忘记我们所有的其他问题
 
-and that I think was the most powerful thing.
+but the reality, the fact is, they’ve created a lot of problems
 
-我认为这是最强大的东西
+但现实，事实是，他们造成了很多问题
 
-The world finally got to see the truth, and the,
+and now we’re going to have to wait to see what happens.
 
-世界终于看到了真相
+现在我们将不得不去等待，看看会发生什么
 
-the veil that they were hiding behind was lifted
+I do want to get this straight.
 
-他们隐藏在背后的面纱被揭开了
+我确实想弄清楚这一点
 
-and everyone saw the evil for what it was.
+Everybody loves the game of baseball.
 
-每个人都看到了那邪恶的本质
+每个人都喜欢棒球比赛
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+We want to see it back playing some normal fashion
 
-原视频链接 https://rumble.com/vjxceh-fla.-lt.-governor-on-cuba-freedom-protests-young-generation-does-not-fear-o.html
+我们希望看到重新回到正常状态下的比赛
+
+but who knows what’s going to happen
+
+但是谁知道会发生什么
+
+I think the next few days are very very curious for the world sports,
+
+我认为接下来的几天对于世界体育来说是非常非常的好奇
+
+**Shaun Kraisman**
+
+肖恩**·**克莱斯曼
+
+yeah, just to be clear, I know I pointed out six
+
+是呀，只是澄清一下，我知道我指出了六个
+
+is three that were positive, they have three pending.
+
+三个是阳性，还有三个待定
+
+They’re waiting on the rapid tests according to the coach Katherine there.
+
+根据凯瑟琳教练的说法，他们正在等待快速测试结果
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/newsmax/status/1416036680973406213?s=24
 
 英听校： 洛杉矶盘古农场 – Layka
 翻译： 洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场-天涯行
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
 审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场-文韵
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

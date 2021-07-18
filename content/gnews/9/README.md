@@ -2,40 +2,232 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1404208/)
+## 三名纽约洋基队接种疫苗的球员的 COVID-19 检测呈阳性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404198/)
 
-- 作者：WENWU
+字幕内容：
 
+**Art Shamsky (Host, The Art Shansky Podcast)**
 
-***更多真相，请关注*** ***[Gtv、Gnews！](https://gtv.org/)***
+阿特** **沙姆斯基（主持人，**The Art Shansky **播客）
 
-**西班牙2021年7月18日电/西喜社——**
+All over the world, it’s very precarious right now, sports in particular
 
-您若想了解全文报导内容，请点击标题链接
+现在全世界都很危险特别是在体育界
 
-1 [“腐败”的大科技在审查武汉实验室泄漏理由](https://www.skynews.com.au/opinion/big-tech-rotten-for-censorship-of-wuhan-lab-leak-theory/video/afaa739c13798a171186c48da171fd2e)
+are really under pressure to get these things right
 
-据澳洲《天空新闻》（skynews)2021年7月16日电，《天空新闻》主持人詹姆斯·莫罗表示，作为西方权威的核心——脸书和整个医疗机构（包括世卫组织），他们早期禁止人们谈论中共病毒来自武汉实验室泄漏，并采用媒体平台封号和取笑的措施对言论自由进行打击。他们通过封号等手段，一次又一次证明自己是腐朽的。世卫组织在周四改口否认了自己早先提出武汉实验室泄漏“不成熟”的说法后，便改变了社交媒体的游戏规则
+真正面临着要把这些事情做好的压力
 
-2 [拜登指责脸书在审查制度中“杀人”](https://nypost.com/2021/07/16/psaki-white-house-in-touch-with-facebook-to-push-true-narratives/)
+and as you can see,
 
-据《纽约邮报》（nypost)2021年7月16日电，白宫新闻秘书珍·普萨基（Jen Psaki）告诉记者，拜登政府正在“定期”与脸书等大科技公司进行协商，禁止美国人发表反接种疫苗的“错误言论”，并将公开发表“误导疫苗信息”的个人信息。脸书早期封杀了“实验室泄漏理论”言论，如今表示，普萨基在白宫新闻发布会敦促大科技公司加强言论管控的评论“没有事实支持”。前总统川普律师约翰科尔表示，诉讼将证明社交媒体公司 [是“政府执行机关”](https://nypost.com/2021/07/07/donald-trump-to-sue-mark-zuckerberg-jack-dorsey-report/)，因此，“宪法第一修正案”（禁止政府剥夺言论自由）确实适用于他们的行为
+正如你所看到的
 
-3 [白宫使脸书武器化以审查中共病毒的“误导信息”](https://nypost.com/2021/07/15/white-house-flagging-posts-for-facebook-to-censor-due-to-covid-19-misinformation/?utm_source=twitter_sitebuttons&amp;utm_medium=site%2520buttons&amp;utm_campaign=site%2520buttons)
+My games being canceled all these doubleheaders mounted up
 
-据《纽约邮报》（nypost)2021年7月15日电，美国前总统川普上周对脸书、推特和油管提起诉讼，这些公司被美国政府官员拉拢、胁迫和武器化，成为代表拜登政府非法、违宪审查的“白宫执行机关”。近日，外科医生穆尔蒂和新闻秘书普萨基在白宫新闻发布会上表示，68%的美国人都接种了疫苗，拜登政府命令各大媒体禁止美国人在其社交媒体上发布疫苗 “杀人” 的言论。这或许代表拜登政府违反了宪法第一修正案
+我的赛事被取消、所有这些双头游戏
 
-4 [“Pingdemic”——拜登政府制造的另一个混乱](https://www.spiked-online.com/2021/07/16/the-pingdemic-another-mess-of-the-governments-making/)
+and all the changes in the game is,
 
-据《刺突新闻》（spiked)2021年7月16日电，英国人一直是自去年以来，世界上最热情使用Pingdemic这款应用程序的人，下载量在11月超过2000万次。政府去年[将蓝牙接触追踪技术的控制权让给](https://www.spiked-online.com/2021/04/13/how-privacy-activists-sold-our-sovereignty/)了谷歌和苹果，这是没有自信的政府采用威权政策联合大科技公司发起，追踪个人疫苗。病毒并不是来自大科技公司的技术，借他们的手段强制打疫苗的措施是错误，更多人正在删除该应用程序
+和游戏中的所有变化是
 
-5 [参议员霍利向推特和脸书首席执行官发送了严厉的信息](https://www.westernjournal.com/sen-hawley-sends-scathing-message-twitter-facebook-ceos-shocking-admission-collusion-biden-admin/)
+it’s really a very, very tough situation now.
 
-据《西方日报》（westernjournal)2021年7月16日电，霍利周四（15日）晚上还在推特上向脸书发了一封信：拜登政府显然与脸书协商审查言论，并逃避第一修正案。我正在向脸书寻求答案。他向脸书CEO表示，第一修正案是神圣不可侵犯的，拜登政府显然超越权限招募私人商讨“警察”业务，以违法压制美国的言论自由。最后，要求脸书公开拜登政府要求脸书员工举报的社交媒体帖子和内容的完整说明；公开拜登政府要求脸书从其平台上删除的帖子和内容的完整说明；公开脸书由于拜登政府的要求删除了哪些帖子和内容
+目前真的是非常非常艰难的情况
 
-审核：蚂蚁兄弟； 校对：阿伯塔； 发稿：Nuevo唐人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
+As far as the Yankees situation.
 
+以至于洋基队的情况
 
-+1
+I’m shocked that this happened all of a sudden,
+
+我很震惊这突然发生的状况
+
+coming out of the all-star game
+
+来自于全明星赛中
+
+but, you know, you’re just gonna have to improvise,
+
+但是，你知道，你只能去凑合
+
+do what they can do
+
+做他们能做的
+
+and last year was a real test for sports in particular baseball,
+
+而且去年是对体育运动的真正考验，尤其是棒球
+
+and we’ll see what’s going to happen
+
+我们会看看将会发生什么
+
+and I know we don’t even know
+
+而且我认识到我们甚至不知道
+
+what the game is going to be playing tonight
+
+今晚要进行什么赛事
+
+so I’m just wondering what’s going to happen
+
+所以我只是想知道会发生什么
+
+basically we’re gonna have to make some tough decisions
+
+基本上我们将不得不做出一些艰难的决定
+
+**Shaun Kraisman (Newsmax TV Anchor)**
+
+肖恩**·**克莱斯曼（**Newsmax **电视主播）
+
+such as baseball obviously, if you’ve heard,
+
+很明显，比如棒球，如果你已经听到了
+
+Bubba Watson as well had issue with going overseas
+
+还有布巴·沃森（职业高尔夫球员）出国有问题
+
+because he’s been vaccinated,
+
+因为他已经打过疫苗了
+
+but he came in contact with someone that had it.
+
+但他接触到了带病毒的人
+
+Your thoughts on that and where we’re going.
+
+您对此的看法以及我们要怎样做
+
+Not even just in the sports world,
+
+不仅在体育界
+
+but just in general, as a human population.
+
+但总的来说，作为一个人类
+
+Yeah. Are we are we following the guide
+
+是的， 我们是否遵循指导
+
+we feel like we’re following the guidelines of science on this
+
+我们觉得我们正在遵循科学的指导方针
+
+**Art Shamsky**
+
+阿特** **沙姆斯基
+
+I don’t know every teams have gotten everybody to get vaccinated,
+
+我不知道每个球队都让每个人接种了疫苗
+
+but we were so anxious to get back in a somewhat normal way
+
+但我们非常渴望回到某种正常的方式
+
+that we kind of rushed into things
+
+我们有点像是急于求成
+
+that I think it’s, it’s coming back to bite us a little bit.
+
+我认为是，它会回来咬咬我们
+
+We’re also so hungry for sports and hungry to get out
+
+我们也很渴望于体育运动而且也很想出去
+
+and now we see that there’re spikes up in a lot of cities of Los Angeles,
+
+现在我们看到洛杉矶的很多城市都出现了高峰（病毒感染）
+
+now you have to mask indoors, again,
+
+现在你必须又要在室内戴口罩了
+
+and who knows what’s going to happen.
+
+而且谁知道将会发生什么
+
+I know people want to be out and doing things,
+
+我知道人们想在室外活动并做事
+
+but we have to be very very careful.
+
+但是我们必须要特别特别的小心
+
+And We all know, sports is kind of like a thing for us
+
+我们都知道，运动对我们来说是重要的东西
+
+to be able to forget about all our other problems
+
+能够忘记我们所有的其他问题
+
+but the reality, the fact is, they’ve created a lot of problems
+
+但现实，事实是，他们造成了很多问题
+
+and now we’re going to have to wait to see what happens.
+
+现在我们将不得不去等待，看看会发生什么
+
+I do want to get this straight.
+
+我确实想弄清楚这一点
+
+Everybody loves the game of baseball.
+
+每个人都喜欢棒球比赛
+
+We want to see it back playing some normal fashion
+
+我们希望看到重新回到正常状态下的比赛
+
+but who knows what’s going to happen
+
+但是谁知道会发生什么
+
+I think the next few days are very very curious for the world sports,
+
+我认为接下来的几天对于世界体育来说是非常非常的好奇
+
+**Shaun Kraisman**
+
+肖恩**·**克莱斯曼
+
+yeah, just to be clear, I know I pointed out six
+
+是呀，只是澄清一下，我知道我指出了六个
+
+is three that were positive, they have three pending.
+
+三个是阳性，还有三个待定
+
+They’re waiting on the rapid tests according to the coach Katherine there.
+
+根据凯瑟琳教练的说法，他们正在等待快速测试结果
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/newsmax/status/1416036680973406213?s=24
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

@@ -2,232 +2,42 @@
 ---
 
 
-## 三名纽约洋基队接种疫苗的球员的 COVID-19 检测呈阳性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404198/)
+## 美国奥运游泳运动员为不接受 COVID 疫苗的决定辩护
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1404185/)
 
-字幕内容：
+- 作者： Jenny Ball
 
-**Art Shamsky (Host, The Art Shansky Podcast)**
 
-阿特** **沙姆斯基（主持人，**The Art Shansky **播客）
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-All over the world, it’s very precarious right now, sports in particular
+**西班牙2021年7月18日电/西喜社**
 
-现在全世界都很危险特别是在体育界
+*“事实上，疫苗的有效性低于我感染 COVID 的风险，我刚刚意识到，没有必要为准备参加奥运会而打疫苗，”迈克尔·安德鲁（Michael Andrew）告诉福克斯新闻。*
 
-are really under pressure to get these things right
+2021 年 7 月 16 日《生活新闻》（LifeSiteNews）——美国游泳运动员迈克尔·安德鲁在参加东京奥运会之前公开为他放弃 COVID-19“疫苗”的决定辩护，他说“我不想在我的身体里放任何东西 ] ，我不知道我的身体可能会有什么反应。”
 
-真正面临着要把这些事情做好的压力
+在接受 FOX 商业节目“瓦尼和他的朋友们Varney & Co.” 的斯图尔特·瓦尼（ Stuart Varney ）的采访时[interview](https://video.foxbusiness.com/v/6263541066001?ftag=MSF0951a18%22%20%5Cl%20%22sp=show-clips) ，被视为即将在东京举行的奥运会上获得金牌的安德鲁解释说，他决定不接种提供的“疫苗”， 主要是基于“疫苗的有效性低于我感染 COVID 的风险这一事实”。
 
-and as you can see,
+作为精英运动员，安德鲁解释说，“我们摄入和放入体内的一切（原文如此）都是经过深思熟虑的。” 作为奥运选拔赛前严格训练制度的一部分，这位游泳运动员说，由于副作用，他“不想冒险离开游泳池”，就像那些接种疫苗的人一样。 对此，他证实自己“没有接种疫苗”，未来也没有接种的打算。
 
-正如你所看到的
+“事实上，疫苗的有效性低于我感染 COVID 的风险，我刚刚意识到，没有必要为准备参加奥运会而打疫苗，”迈克尔·安德鲁说。
 
-My games being canceled all these doubleheaders mounted up
+事实上，根据斯坦福大学杰出的约翰·P·A·约阿尼迪斯（John P. A. Ioannidis）教授的说法，该病毒在所有年龄段的估计存活率为 99.85%，而在安德鲁所在的年龄段，这一数字会增加到 99.95%。与此形成鲜明对比的是，截至 2021 年 7 月 9 日，在疫苗不良事件记录系统 (VAERS) 上发现，使用实验性 COVID 疫苗后，惊人地有 10,991 人死亡。 VAERS 是 FDA 和 CDC 运行的美国疫苗伤害数据库。
 
-我的赛事被取消、所有这些双头游戏
+数据库报告的因疫苗受伤总数超过 460,000 人，其中约 10% 的人被认为是严重的。 报告表明，VAERS 数据仅占所有疫苗相关伤害的 1% 到 10%。
 
-and all the changes in the game is,
+瓦尼问安德鲁感染 COVID-19 的明显风险这一挑战，拒绝目前针对该病毒提供的“疫苗”，安德鲁可能因此将放弃他的金牌希望。“这是我愿意承担的风险，”奥运选手回答道。“这是我不会掉以轻心的事情，但我感谢我作为美国人所拥有的自由。”
 
-和游戏中的所有变化是
+**评论： 真希望更多人看到，用正常的逻辑思维，在一个自由的国度，就可以坚持自己的选择自由！太多的人失去了正常人的常识；又有太多的人，无论在中共这样的独裁国家，还是美国西方这样的民主国家，失去了自己选择的自由权利！**
 
-it’s really a very, very tough situation now.
+**多简单的常识：“该病毒在所有年龄段的估计存活率为**** 99.85%****，而在安德鲁所在的年龄段，这一数字会增加到**** 99.95%****。”而接种实验性**** COVID ****疫苗后**** 10,991 ****人死亡，受伤总数超过**** 460,000 ****人，其中约**** 10% ****的人被认为是严重的。**** ****更何况****VAERS ****数据仅占所有疫苗相关伤害的**** 1% ****到**** 10%****。这个对比后， 你还会选择打试验性用于紧急状况的疫苗吗？**
 
-目前真的是非常非常艰难的情况
+**如果你有常识，你有拒绝的权利吗？这才是我们真正失去的宝贵财产：我们的自由和权利！**
 
-As far as the Yankees situation.
+**素材来源：**[www.lifesitenews.com](https://www.lifesitenews.com/news/olympic-us-swimmer-defends-decision-not-to-take-a-covid-jab)
 
-以至于洋基队的情况
+素材：Jenny Ball；审核：文乐； 校对：信心满满； 发稿：信心的选择
 
-I’m shocked that this happened all of a sudden,
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
 
-我很震惊这突然发生的状况
-
-coming out of the all-star game
-
-来自于全明星赛中
-
-but, you know, you’re just gonna have to improvise,
-
-但是，你知道，你只能去凑合
-
-do what they can do
-
-做他们能做的
-
-and last year was a real test for sports in particular baseball,
-
-而且去年是对体育运动的真正考验，尤其是棒球
-
-and we’ll see what’s going to happen
-
-我们会看看将会发生什么
-
-and I know we don’t even know
-
-而且我认识到我们甚至不知道
-
-what the game is going to be playing tonight
-
-今晚要进行什么赛事
-
-so I’m just wondering what’s going to happen
-
-所以我只是想知道会发生什么
-
-basically we’re gonna have to make some tough decisions
-
-基本上我们将不得不做出一些艰难的决定
-
-**Shaun Kraisman (Newsmax TV Anchor)**
-
-肖恩**·**克莱斯曼（**Newsmax **电视主播）
-
-such as baseball obviously, if you’ve heard,
-
-很明显，比如棒球，如果你已经听到了
-
-Bubba Watson as well had issue with going overseas
-
-还有布巴·沃森（职业高尔夫球员）出国有问题
-
-because he’s been vaccinated,
-
-因为他已经打过疫苗了
-
-but he came in contact with someone that had it.
-
-但他接触到了带病毒的人
-
-Your thoughts on that and where we’re going.
-
-您对此的看法以及我们要怎样做
-
-Not even just in the sports world,
-
-不仅在体育界
-
-but just in general, as a human population.
-
-但总的来说，作为一个人类
-
-Yeah. Are we are we following the guide
-
-是的， 我们是否遵循指导
-
-we feel like we’re following the guidelines of science on this
-
-我们觉得我们正在遵循科学的指导方针
-
-**Art Shamsky**
-
-阿特** **沙姆斯基
-
-I don’t know every teams have gotten everybody to get vaccinated,
-
-我不知道每个球队都让每个人接种了疫苗
-
-but we were so anxious to get back in a somewhat normal way
-
-但我们非常渴望回到某种正常的方式
-
-that we kind of rushed into things
-
-我们有点像是急于求成
-
-that I think it’s, it’s coming back to bite us a little bit.
-
-我认为是，它会回来咬咬我们
-
-We’re also so hungry for sports and hungry to get out
-
-我们也很渴望于体育运动而且也很想出去
-
-and now we see that there’re spikes up in a lot of cities of Los Angeles,
-
-现在我们看到洛杉矶的很多城市都出现了高峰（病毒感染）
-
-now you have to mask indoors, again,
-
-现在你必须又要在室内戴口罩了
-
-and who knows what’s going to happen.
-
-而且谁知道将会发生什么
-
-I know people want to be out and doing things,
-
-我知道人们想在室外活动并做事
-
-but we have to be very very careful.
-
-但是我们必须要特别特别的小心
-
-And We all know, sports is kind of like a thing for us
-
-我们都知道，运动对我们来说是重要的东西
-
-to be able to forget about all our other problems
-
-能够忘记我们所有的其他问题
-
-but the reality, the fact is, they’ve created a lot of problems
-
-但现实，事实是，他们造成了很多问题
-
-and now we’re going to have to wait to see what happens.
-
-现在我们将不得不去等待，看看会发生什么
-
-I do want to get this straight.
-
-我确实想弄清楚这一点
-
-Everybody loves the game of baseball.
-
-每个人都喜欢棒球比赛
-
-We want to see it back playing some normal fashion
-
-我们希望看到重新回到正常状态下的比赛
-
-but who knows what’s going to happen
-
-但是谁知道会发生什么
-
-I think the next few days are very very curious for the world sports,
-
-我认为接下来的几天对于世界体育来说是非常非常的好奇
-
-**Shaun Kraisman**
-
-肖恩**·**克莱斯曼
-
-yeah, just to be clear, I know I pointed out six
-
-是呀，只是澄清一下，我知道我指出了六个
-
-is three that were positive, they have three pending.
-
-三个是阳性，还有三个待定
-
-They’re waiting on the rapid tests according to the coach Katherine there.
-
-根据凯瑟琳教练的说法，他们正在等待快速测试结果
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 https://twitter.com/newsmax/status/1416036680973406213?s=24
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++2

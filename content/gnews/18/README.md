@@ -2,53 +2,204 @@
 ---
 
 
-## 【世事解评】滴滴事件——背后大BOSS是谁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1399855/)
+## 佛罗里达州副州长对古巴自由抗议的评论：年轻一代不惧怕压迫政权
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404239/)
 
-作者：香草山商业部 文明
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10111333/Screen-Shot-2021-07-10-at-11.13.07-PM.png)
-滴滴从2012年成立以来，先后经历了4年的商业战争。不论是与摇摇招车等公司的北京本地PK、与快的的全国PK，还是与Uber全球的PK，最终都是滴滴成为赢家。再比如2015年9月滴滴快的确认完成30亿美元融资，创造全球独角兽企业融资纪录；还有2016年6月滴滴完成45亿美元股权融资，账面现金或超百亿美元。很显然这么多大动作，绝非仅仅滴滴的创业团队所决定，这背后一定有着错综复杂的利益转移和交换。
+字幕内容：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052736/%E5%9B%BE%E7%89%8750.png)
+**Stefan Kleinhenz (OAN host)**
 
-有观点认为马云是背后的大佬，理由是不管滴滴还是快的，两家企业的创始人都和马云有千丝万缕的关系（滴滴创始人程维曾经是阿里巴巴区域销售经理，后来升级到支付宝B2C事业部副总经理，而快的创始人陈伟星是马云在湖畔大学的学生），而且阿里巴巴是快的发展规程中最大的金主，且滴滴出行完成的45亿美元融资过程中，阿里巴巴以及蚂蚁金服都积极参与。
+斯特凡**·**克莱因恩茨** **（**OAN**主持人）
 
-也有一种观点认为柳传志才是背后掌握整盘大旗的人!这个版本是目前流传最为广泛的。在大家看来，中共国三大网约车平台都和柳传志直接有关，柳传志的女儿柳青是滴滴快的总裁，柳传志的侄女柳甄是Uber中共国区战略负责人，还有，柳传志创办的联想控股，则是神州租车的大股东，柳家才是中共国网约车市场幕后的最大BOSS。
+How going forward, can the results finally be different?
 
-还有一种观点认为异常低调的马化腾才是背后隐藏的真正大BOSS，原因是在整个中共国网约车的发展历程中，收益最大的不是滴滴管理团队或者其他战略投资人，而是腾讯。因为，一开始腾讯通过对滴滴的持续补贴，前提是“用户必须开通并且使用微信支付”，最终腾讯的百亿级别投资换来的是几亿的微信支付用户，这个性价比可太高了。马化腾这盘旗，有些让人细思恐极呀。
+怎么往前走，最后能不能有不一样的结果。
 
-滴滴自成立9年以来，合计融资21次，累计融资金额超过226亿美元。20余次融资和两次合并之后，股权结构已经非常复杂，股东包括软银、Uber、腾讯、阿里巴巴、苹果、丰田、金沙江创投、高瓴资本、红杉资本等投资机构。**而腾讯、阿里巴巴还是习近平对手江家的资产。**
+We do have to think about this in the non-traditional way,
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16052934/%E5%9B%BE%E7%89%8751.png)
+我们必须以非传统的方式思考这个问题
 
-滴滴于2021年6月11日正式向SEC递交了IPO招股书，股票代码为“DIDI”，由高盛、摩根士丹利、摩根大通、华兴资本担任承销商。 于6月30日在美国纽约证交所上市，是继2014年阿里巴巴赴美上市后，规模最大的中共国公司IPO（首次公开募股）案。上市两天后就被国家以安全为由下架。
+what can we do？what can the Americans government and the people here
 
-滴滴未按照中共说的延迟在美国上市时间，仍赶在6月30日就在美国上市。明显有些违抗党中央的意愿，挑战习权力的意思。如果习不做出回应，就等同于放软、示弱，很可能会让党内更多派系权贵跟上来、挑战他，甚至骑到他头上。
+我们能做些什么？美国政府和这里的人民能做些什么
 
-在滴滴App下架后不久，中共又对今年六月刚在美股上市的3家网络平台公司：中共国最大线上人力银行网“Boss直聘”、有中共国货车界Uber之称的满帮集团旗下“运满满”与“货车帮”进行网路安全审查，并暂停新用户注册。
+do for the people of Cuba that will bring new and different results？
 
-从美中从贸易战打到科技战的演变来看，不论蚂蚁金服、滴滴出行，还是满帮，背后都手握中共国人民资金流。而在美中贸易战之后，中共国经济发展已在变慢，资金也可能出现缺口了，因此习得积极找寻财源。
+去为古巴人民带来新的和不同的结果？
 
-**可想而知，滴滴下架背后的原因恐怕不只数据安全这单单一项吧。**
+**Jeanette Nunez (Fla. Lieutenant Governor)**
 
-滴滴遭下架一事更是扯出蚂蚁上市夭折的内幕：北京当局调查发现，在持有蚂蚁集团股权的层层不透明投资工具的背后，是一个由人脉广泛的中共权贵组成的小圈子，其中一些人将对习近平构成“潜在挑战”。江泽民孙子江志成创办的博裕资本，通过私募基金“北京京管”持有蚂蚁股权；前中共政治局常委贾庆林的女婿李伯潭，亦通过控制的北京昭德投资持有蚂蚁股份。
+珍妮特**·**努涅斯（佛罗里达州副州长）
 
-其中以上海帮为主的红三代们开投顾公司，结合海外投顾公司带着中共国企业到海外上市，并通过IPO吸金，但最终这些资金不会回到中共国，而是以投资的名义藏在海外，这些IPO的风险将由中共国百姓承担，而利润却被他们分走。而红二代们至今还掌握着中共国所有跟国家政权、民生有关的企业。说白了就是滴滴被查实际上是中共最高权力斗争的结果，习担心对他明年连任构成威胁，也不希望滴滴挂牌上市，为“太子党”投资者们带来巨大利益。
+And that’s a great point because as you said,
 
-校对/发稿：飞虹
+这是一个很好的观点，因为正如你所说的
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+for 62 years， far beyond many people’s lifetime
 
-**更多资讯，更多关注**
+62年，远远超出许多人的一生
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+that country has been oppressed
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+那个国家被压迫了
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+that country has been held by dictators and tyrants,
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+那个国家一直被独裁者和暴君控制着
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+that cared little for their people
 
-+1
+他们（独裁者和暴君）很少关心他们的人民
+
+and so many that have lent their voice to free Cuba
+
+还有许多为解放古巴而发声的人
+
+have been demoralized for six decades,
+
+状态不佳已经有六十年了
+
+not seeing change come to the island
+
+岛上没有看到变化
+
+The young people, the younger generation, they are finally fed up
+
+年轻人，更年轻的一代，他们终于受够了
+
+they’re no longer fearful.
+
+他们不再害怕了
+
+they do not care if they lose their lives or their freedoms
+
+他们不在乎是否失去他们的生命或自由
+
+they want change. They want to be able to bring that change,
+
+他们想要改变，他们希望能够带来这种改变
+
+it shouldn’t be a partisan issue.
+
+这不应该是党派问题
+
+Everybody should stand on the side of a free Cuba.
+
+每个人都应该站在一个自由的古巴这一方面
+
+And so what I what I believe firmly is
+
+所以我坚信的是
+
+that not only do we have to lent support and solidarity.
+
+我们不仅要提供支持和团结
+
+People are starting to open their eyes to the ills of Castro’s regime to the ills of communism,
+
+人们开始看清了卡斯特罗政权的弊病和共产主义的弊病睁
+
+You know it’s not in vogue in the progressives
+
+你知道它在进步人士中并不流行
+
+to speak ill of communism and socialism
+
+说共产主义和社会主义的坏话
+
+they embrace it, they adore it.
+
+他们拥抱它，他们崇拜它
+
+But I think when the average person
+
+但我认为当普通人
+
+starts to see a country brutalizing its people
+
+开始看到一个国家对其人民进行残酷对待时
+
+simply for demanding freedom God given rights.
+
+简单的要求自由，这是上帝赋予的权利
+
+I think that’s what you see really the shift in the paradigm
+
+我认为这就是你真正看到的模式转变
+
+as it relates to what the average individual understands about Cuba,
+
+因为它与普通人对古巴的了解有关
+
+what the average individual wants to do for Cubans
+
+普通人想为古巴人做些什么
+
+so I think from the standpoint of what we’re in the state can do
+
+所以我认为从我们的国家可以做的事情的角度来看
+
+we lend our support.
+
+我们可以提供支持
+
+We want to see the administration tackle this issue,
+
+我们希望看到政府解决这个问题
+
+we want to see a call on the international community to bring change to the island
+
+我们希望看到国际社会呼吁为该岛带来改变
+
+we want to see the Cuban people have access to the Internet,
+
+我们希望看到古巴人民可以进入互联网
+
+what did they do the minute, this, this uprising took place?
+
+这个起义发生的时候，他们（独裁者和暴君）做了什么？
+
+they shut down the internet,
+
+他们关闭了互联网
+
+not only to eliminate their opportunity to connect with each other to communicate, communicate,
+
+不仅要消除他们相互联系交流的机会
+
+but to not allow the truth to be told
+
+而且不允许真相被说出来
+
+and that I think was the most powerful thing.
+
+我认为这是最强大的东西
+
+The world finally got to see the truth, and the,
+
+世界终于看到了真相
+
+the veil that they were hiding behind was lifted
+
+他们隐藏在背后的面纱被揭开了
+
+and everyone saw the evil for what it was.
+
+每个人都看到了那邪恶的本质
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://rumble.com/vjxceh-fla.-lt.-governor-on-cuba-freedom-protests-young-generation-does-not-fear-o.html
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
