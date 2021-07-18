@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【魔鬼集团现行记】亡腚缸诬陷给他油管点踩的人们是中共的五毛
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1400147/)
+## 7/14/2021 郭先生直播：蛇妖闫、王腚肛的自爆未对爆料革命造成任何损失、反而是好处多多
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1403221/)
 
-07/12/2021 亡腚缸诬陷给他油管点踩的人们是中共的五毛。
+蛇妖闫、亡腚肛的自爆未对爆料革命造成任何损失、反而是好处多多; 已拿起法律武器对其全面追责、反击；新中国联邦在7月4号后已发生质的改变，灭共之势已不可逆转
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+By: 【秘密翻译组G-Translators】
 
 0

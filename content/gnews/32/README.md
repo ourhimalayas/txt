@@ -1,22 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一名中共国公民因串谋向中共国出口军用引擎设备而获刑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1401108/)
+## 中共国部分地区强制接种新冠疫苗引批评
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1403447/)
 
-2021年7月16日
+2021年7月17日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16210130/0-69.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17215941/0-77.png)
 
-编辑摘要：
+摘要：
 
-美国司法部星期五(7月16日)宣布，中共国公民葛松涛(译音，Ge Songtao)，以欺诈手段向中共国出口涉及军用的海上冲锋舟和引擎，罪名成立，于星期三被判处三年零六个月刑罚。此外，法庭还下令葛松涛放弃其用于购买设备的114,834.27美元。
+中共国多个地方政府正计划禁止未接种新冠疫苗的居民进入公共场所，这在中共国推动群体免疫的过程中引发了争议。
 
-美国司法部说，葛松涛从2018年起伙同其情人郑艳(译音，Zheng Yan)、美籍华裔雇员杨阳(译音，Yang Yang)及其美国海军上尉丈夫杨帆(译音，Fan Yang)，利用美国商务部的自动出口系统，谎称进口方是香港公司的欺诈方式，企图将涉及军用的引擎设备经由香港转运至中共国。
+最近几天，浙江、福建和江西等东部省份的多个县市为18岁或以上的人群设定了8月底完成两针疫苗接种的最后期限。其中许多县市还要求到7月下旬，除不宜接种者外，未打疫苗者不得进入学校、图书馆、监狱、养老院和医疗机构住院部等公共场所。一些地方在通知中写道这是根据国家、省和市的安排，但没有解释他们是否收到中央政府的命令。
 
-他们四人都在2019年10月被捕。据司法部消息，除了同案被告[杨帆](https://www.voachinese.com/a/china-navy-military-security-20191101/5149766.html)的审判定于8月2日开庭以外，其他三人均已认罪。
-
-**【**[新闻来源](https://www.voachinese.com/a/chinese-national-sentenced-to-jail-in-scheme-ship-raiding-crafts-to-china-20210716/5968717.html)**】**
+**【**[新闻来源](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E9%83%A8%E5%88%86%E5%9C%B0%E5%8C%BA%E5%BC%BA%E5%88%B6%E8%A6%81%E6%B1%82%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%BC%95%E6%89%B9%E8%AF%84-11626305709)**】**
 
 * * *
 

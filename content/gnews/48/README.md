@@ -1,19 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共试图收购美国陆军模拟开发商
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1401015/)
+## 2021年7月17日灭共要闻
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1403288/)
 
-翻译：神奇四侠
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17194637/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A2-14.jpg)](https://gtv.org/video/id=60f36ead0aa48611138260f3)
+[播放视频](https://gtv.org/video/id=60f36ead0aa48611138260f3)
 
-这条消息是德国《图片报》最先披露，这一潜在的收购导致担心中共想利用Crytek开发的 CryEngine为中国军队制作战争模拟程序。有了这些，中共可以比以前更真实地演练针对台湾和西方的战争。
+主要内容：
 
-这种担忧并不是杞人忧天，因为美国国务院已经强调了这家腾讯与中共政府的密切关系，将其称为 共产党影响和控制的工具。
+澳洲，巴黎希腊等地爆发反对强制接种疫苗和疫苗护照游行；
 
-《图片报》补充说：中共可以监视德国、美国和其他国家如何模拟军事冲突，因为美国军队和德国武装部队都使用CryEngine进行军事模拟和士兵培训项目
+BBC主持人死亡证明死因：“阿斯利康 Covid 19 病毒疫苗接种的并发症”；
 
-新闻来源：[国家脉搏](https://thenationalpulse.com/breaking/tencent-to-buy-military-tech-simulator/)
+河南多地强降雨小区进水，商铺被淹；
 
-校对发稿：紫橄榄
+网友：在新疆加油会把人先关在笼子里！
 
-+1
+国安法恶法之下过去一年对新闻自由是最坏的一年
+
+0
