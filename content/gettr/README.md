@@ -18,6 +18,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@janjekielek 7/18/2021 4:19 PM (UTC)`
+
+"#China 's renminbi is not convertible on the capital account… Companies are trapped."<br/> <br/>#GordonChang explains that companies investing in China under the #CCP will never be able to get their money out in USD. They can only reinvest profits back into China.<br/><br/>I spoke with Gordon at @CPAC #cpac2021 <br/><br/>🔴 WATCH: https://ept.ms/3B3MzpI
+![img](https://media.gettr.com/group3/origin/2021/07/18/16/1646de5a-6df6-2735-51d2-d2a0923a056a/out.jpg)
+
+---
+
 `@miles 7/18/2021 2:54 PM (UTC)`
 
 对不起战友们：我今天口误．应是．花桥小区的老师！【汉口倒是有花桥小区，离万人宴的百步亭小区不远】
@@ -309,14 +318,6 @@ RT @RepLeeZeldin: Voter ID laws should be enacted in all 50 states. RT if you ag
 
 这个丑陋蛇妖闫……满嘴的谎言……张嘴就来！
 ![img](https://media.gettr.com/group47/getter/2021/07/14/04/e6e9eb23-e052-092f-ee5c-29bdc8b32ff5/c2a829fe4fd32419fb3f26798a0dd2be.jpg)
-
----
-
-`@miles 7/14/2021 12:57 AM (UTC)`
-
-Sellin He is a low-level liar through and through!  Can't deceive in the Western world, come to deceive those foolish Chinese.  Wang Dinggang and others are still relatives.  These perverted demons.
-> `@nanastalkshow 7/13/2021 11:22 PM (UTC)`<br/>Lawrence Sellin was also involved in spreading disinformation about the (Obama) presidential eligibility in 2013. People called him out, but he turned up to stalk one of them for 3 months! Check it out: https://www.obamaconspiracy.org/2013/09/lawrence-sellin-phd-spreads-misinformation-about-presidential-eligibility/<br/>Others' opinion about him:<br/>&quot;Idiots(like Lawrence Sellin) come from all walks of life...
-![img](https://media.gettr.com/group22/origin/2021/07/13/23/da6ec346-16d1-36d1-5434-2b4c492dfa98/c8b62e5e33cf42c6f4bf2a5fe4afca14.png)
 
 ---
 
