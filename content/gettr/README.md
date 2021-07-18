@@ -18,6 +18,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@janjekielek 7/18/2021 11:35 PM (UTC)`
+
+"When we stop reading them, they die."<br/><br/>Author Heather Mac Donald explains how #CancelCulture has impacted the quality of US education, and says we have an obligation to keep the great works alive.<br/><br/>🔴 WATCH the FULL EPISODE on @AmThoughtLeader on @EpochTV : https://ept.ms/3xwNpcb
+![img](https://media.gettr.com/group34/origin/2021/07/18/23/f0826991-9ce2-0d60-3df1-bf7c18c40222/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@jenniferatntd 7/17/2021 2:36 PM (UTC)`
+
+My exclusive content. How ironic! While CCP vows to #NukeJapan , its state-owned enterprise begging overseas Chinese to buy #Japanese chips...Remember last year overseas Chinese mobilized & almost bought out all masks in the world? Don't underestimate this.  警惕：中共或發動海外華人代購芯片<br/><br/>https://www.jenniferzengblog.com/home/2021/7/17/exclusive-overseas-chinese-asked-to-buy-chips-for-ccps-state-owned-enterprise
+
+---
+
 `@miles 7/18/2021 10:36 PM (UTC)`
 
 【这才是第一个发现羟氯喹可以治疗病毒的人，缺德社，别想摘桃子🍑混淆视听。。。。看油管日期】
@@ -301,22 +318,6 @@ This is the reality of life under communism.<br/>https://rumble.com/vjtye9-cuban
 
 Let’s #Gettr ！
 ![img](https://media.gettr.com/group23/getter/2021/07/14/16/98f67348-fe12-937b-2001-a6d2a63a1664/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@repfischbach 7/6/2021 6:11 PM (UTC)`
-
-I had an excellent meeting at the Millerville Co-op Creamery—among the last remaining creameries in Minnesota to produce small batch butter. We discussed the importance of these longstanding cooperatives for our rural communities. Thanks for having me!
-![img](https://media.gettr.com/group40/origin/2021/07/06/18/9ac6789f-0add-e14b-ba6b-864f70e91059/20b87ff393376eb4b541fbb318a432f8.JPEG)
-
----
-
-`@miles 7/14/2021 5:33 PM (UTC)`
-
-👍👍👍
-![img](https://media.gettr.com/group8/getter/2021/07/14/17/dabe6075-0728-832d-ec35-a9b360121a89/d29597898227cd7327d788e07bbe36c6.jpg)
 
 ---
 
