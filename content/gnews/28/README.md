@@ -2,23 +2,47 @@
 ---
 
 
-## 【秘翻在线】超过千名以色列人新冠病毒检测呈阳性 政府发布新的限制措施
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404883/)
+## 【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1404922/)
 
-作者：西枫westca
+作者：纽约香草山佛教部 369文驹
 
-责编：Ermat 【㊙️翻  Gnews原创组】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18155116/image1-3-3.jpg)图片来源：www.haaretz.com
-以色列总理纳夫塔利·贝内特 (Naftali Bennett) 周日发布了新的限制措施，以遏制具有高度传染性的 COVID-19 delta 变种。 根据新的限制，将对违反隔离规定的确诊冠状病毒患者提起诉讼。
 
-根据卫生部的数据，自3月以来，以色列的每日感染人数首次达到四位数，周五有 1,118 人被诊断出患有 COVID。周六有 463 名以色列人对病毒进行了阳性检测，其中 59 人病情严重，其中 16 人使用呼吸机。 在接受筛查的人中，1.58%的检测呈阳性、病人感染人数的繁殖率位1.37， 这意味着COVID-9再次传播。据希伯来大学研究人员称，目前，大约60%病情严重的患者已经接种了疫苗， 50以上的新感染者中约有90%已完全接种过疫苗。
 
-以色列是新冠病毒疫苗接种普及率最高的国家， 大约超过60%的国民已接种过疫苗。早期接种过疫苗的人群，更有可能感染 COVID-19，这可能意味着接种几个月后，疫苗的保护作用就会减弱，甚至疫苗根本没有起到保护作用。 在这种情况下，各国仍在大力推广疫苗接种，甚至开始研究追加第三针疫苗。目的何在？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-参考链接：
 
-[Israel Toughens COVID Restrictions as Delta Infections Rise](https://www.haaretz.com/israel-news/israel-toughens-covid-restrictions-as-delta-infections-rise-1.10009775)
 
-[More than 1,000 Israelis test positive for COVID](https://www.jpost.com/breaking-news/for-first-time-since-march-855-new-coronavirus-cases-in-israel-674084)
+7月17日，中共新闻频道发布消息称：“7月16日，经国务院联防联控机制有关部门组织论证，国药集团中（共）国生物北京生物制品研究所（中共病毒）灭活疫苗获批在3到17岁人群中紧急使用。”
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18170634/10-11.jpg)图源网络
+
+中共毒疫苗政策一步步收紧，从送大米、送鸡蛋，到请明星站台，再到不接种毒疫苗就禁止进入公共场合、停发公务员工资、孩子不予上学等措施，如今发展到连18岁以下的儿童、青少年也要接种毒疫苗。实际上，中共对老百姓的压迫不分年龄——想当初，因计划生育所扼杀的胎儿总计消灭了约4亿人口，现在中共对儿童、青少年下手，还意外吗？中共邪恶的本性从来没改变，历史的惨剧正在现实中上演。文贵先生在2021年3月14日的直播中引用他母亲、父亲的话说：“我们这一辈子过的就是家，就是孩子的日子，就是为你们（孩子）而活着。如果没有你们，我们活着有什么意思？”而今，中共又一次要对每个家庭的孩子下毒手！
+
+推翻中共，为了孩子、为了亲人、为了我们的家！
+
+参考阅读：
+
+国药集团新冠疫苗获批在3—17岁人群中使用\_https://news.cctv.com/2021/07/18/ARTIulG6rnXCfUThdLhObyV1210718.shtml
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
