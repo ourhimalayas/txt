@@ -88,22 +88,22 @@
 ### [【粤语配音】默克尔：与中共国的贸易必须建立在公平竞争的原则上](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [「欢迎习神加入」——杰森·米勒谈GETTR的言论自由运动](/content/gnews/25/README.md)
+### [报告：中共国首例猴B病毒人类感染病例死亡](/content/gnews/25/README.md)
+ ` 闪电侠`
+
+### [「欢迎习神加入」——杰森·米勒谈GETTR的言论自由运动](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID 大流行期间的麦加朝觐](/content/gnews/26/README.md)
+### [COVID 大流行期间的麦加朝觐](/content/gnews/27/README.md)
  ` 闪电侠`
 
-### [【秘翻在线】美国重申不承认中共国对南海的非法主权申索](/content/gnews/27/README.md)
+### [【秘翻在线】美国重申不承认中共国对南海的非法主权申索](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】海地和斯威士兰生变，台湾外交处境艰难](/content/gnews/28/README.md)
+### [【秘翻在线】海地和斯威士兰生变，台湾外交处境艰难](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [谴责大流行“暴利”，抗议者倡导宾州公共卫生保健](/content/gnews/29/README.md)
- ` 闪电侠`
-
-### [随着COVID-19在马来西亚飙升，电容器行业转向中共国](/content/gnews/30/README.md)
+### [谴责大流行“暴利”，抗议者倡导宾州公共卫生保健](/content/gnews/30/README.md)
  ` 闪电侠`
 
 ### [英国航母打击群或于9月在日本靠港](/content/gnews/31/README.md)
