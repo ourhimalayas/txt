@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 29/30 [**<**](/content/README-28.md) [1](/content/README.md) ... [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) **29** [30](/content/README-30.md) [**>**](/content/README-30.md) [查看全部](/content/README-all.md)
+
+[（五）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-4956474100974687354.md)
+
+[（四）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-980107644225560251.md)
+
+[(三）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-239017834240302827.md)
 
 [（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/content/2018/04/20180418-144661617364703849.md)
 
@@ -58,12 +64,6 @@
 [（一）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（一）](/content/2018/04/20180418-5664665363890615082.md)
 
 [翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼](/content/2018/04/20180418-3031315413205773844.md)
-
-[2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/2018/04/20180418-1436420880757298143.md)
-
-[2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/content/2018/04/20180418-6242782845301179834.md)
-
-[2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/content/2018/04/20180418-3702263840213416314.md)
 
 
 ## 頁面 29/30 [**<**](/content/README-28.md) [1](/content/README.md) ... [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) **29** [30](/content/README-30.md) [**>**](/content/README-30.md) [查看全部](/content/README-all.md)

@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[文字版:2020年9月17日郭先生GTV直播](/content/2020/09/20200926-1150166459194589190.md)
+
+[文字版:2020年9月13日郭先生GTV直播](/content/2020/09/20200926-5663801126723482334.md)
+
+[文字版:2020年9月9日郭先生GTV直播](/content/2020/09/20200926-1971840848005876799.md)
 
 [文字版：2020年9月8日郭先生GTV直播](/content/2020/09/20200921-1213567933833974136.md)
 
@@ -58,12 +64,6 @@
 [【文字版】2020年8月4日文贵先生直播视频](/content/2020/08/20200814-4721687325348689489.md)
 
 [文字版:2020年7月30日郭先生GTV连线朴昌海先生及韩国战友团](/content/2020/08/20200805-753892440282858627.md)
-
-[【文字版】2020年8月2日郭先生直播视频](/content/2020/08/20200805-2636896334085187647.md)
-
-[文字版:2020年8月1日郭先生GTV盖特视频](/content/2020/08/20200803-8172548442733905184.md)
-
-[文字版：2020年7月28日郭先生GTV直播](/content/2020/08/20200803-447737050239599079.md)
 
 
 ## 頁面 2/30 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [30](/content/README-30.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

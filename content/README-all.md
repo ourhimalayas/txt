@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,9 +10,15 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
+
+[全文字版2021年7月16日郭文贵先生G-TV直播](/content/2021/07/20210716-1402217.md)
+
+[全文字版郭文贵先生2021年7月15日G-TV直播](/content/2021/07/20210715-1399731.md)
+
+[全文字版2021年7月14日郭文贵先生G-TV直播](/content/2021/07/20210714-1397682.md)
 
 [文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
 

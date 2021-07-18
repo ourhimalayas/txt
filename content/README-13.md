@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 13/30 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [30](/content/README-30.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年9月1日文贵与班农先生直播](/content/2019/09/20190903-5392054395112197573.md)
+
+[文字版：2019-08-28郭文貴直播军车进入香港](/content/2019/08/20190829-4985715477870205378.md)
+
+[文字版：2019年8月26日報平安](/content/2019/08/20190827-4686079139048004973.md)
 
 [文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/content/2019/08/20190827-7154322243260745813.md)
 
@@ -58,12 +64,6 @@
 [文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/content/2019/08/20190804-3048854052865103791.md)
 
 [文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/content/2019/08/20190802-6690690952476016345.md)
-
-[文字版：7月29日 共产党已经进入倒计时](/content/2019/07/20190730-277183401038624152.md)
-
-[文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/content/2019/07/20190730-643602008810576333.md)
-
-[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/2019/07/20190728-6395183003803536442.md)
 
 
 ## 頁面 13/30 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [30](/content/README-30.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

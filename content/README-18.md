@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 18/30 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [30](/content/README-30.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+
+[文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-8075148906737063035.md)
+
+[文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-7889508875905531484.md)
+
+[文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/2019/02/20190209-3549584960178600210.md)
 
 [文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/content/2019/02/20190208-3310541803704262131.md)
 
@@ -58,12 +64,6 @@
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/content/2019/01/20190107-8663591932172573911.md)
 
 [文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/content/2019/01/20190102-5930616806834548247.md)
-
-[文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/2018/12/20181231-1701485310206179392.md)
-
-[文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！  ](/content/2018/12/20181228-5085719562457402069.md)
-
-[文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望](/content/2018/12/20181224-4525324540610359598.md)
 
 
 ## 頁面 18/30 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [30](/content/README-30.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

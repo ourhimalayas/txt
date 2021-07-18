@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 27/30 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
+
+[文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
+
+[翻译：班农在第十二届族群青年领袖研习营演讲](/content/2018/04/20180418-291103909959910855.md)
+
+[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
 
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
 
@@ -58,12 +64,6 @@
 [文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
 
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
-
-[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
-
-[文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
-
-[CNBC 报导：中国内部影响世界的绝密“法宝”](/content/2018/04/20180418-6039693712536282425.md)
 
 
 ## 頁面 27/30 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)

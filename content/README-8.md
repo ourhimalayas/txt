@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 8/30 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [30](/content/README-30.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/2020/01/20200127-1065691289737851203.md)
+
+[文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/2020/01/20200124-5709534972923488807.md)
+
+[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/content/2020/01/20200124-8451089471226145185.md)
 
 [文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/content/2020/01/20200122-2341307363254649322.md)
 
@@ -58,12 +64,6 @@
 [文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/content/2020/01/20200102-3330652484007682662.md)
 
 [文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/content/2019/12/20191231-3168641532778332278.md)
-
-[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/content/2019/12/20191231-1107954365607490232.md)
-
-[文字版：2019年12月27日文贵报平安录播](/content/2019/12/20191231-7426238118380743813.md)
-
-[文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/content/2019/12/20191228-6979826398362851059.md)
 
 
 ## 頁面 8/30 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [30](/content/README-30.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 21/30 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [30](/content/README-30.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
+
+[文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/content/2018/09/20180929-7242138828289666043.md)
+
+[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/content/2018/09/20180922-1607406229433269336.md)
+
+[翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/content/2018/09/20180922-4453715019951435654.md)
 
 [文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/2018/09/20180922-4402169540593751293.md)
 
@@ -58,12 +64,6 @@
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/content/2018/08/20180817-7104426966626506659.md)
 
 [文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/2018/08/20180817-2378902037495839266.md)
-
-[文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/content/2018/08/20180816-757785613793361402.md)
-
-[文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张](/content/2018/08/20180814-4681495316347763859.md)
-
-[文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/2018/08/20180814-2211522547668099731.md)
 
 
 ## 頁面 21/30 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [30](/content/README-30.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)

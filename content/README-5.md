@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 5/30 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [30](/content/README-30.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+
+[文字版：5月9日郭先生GTV直播连线草根小哥](/content/2020/05/20200512-4168570393845620810.md)
+
+[文字版:5月8日郭先生GTV直播连线战友文信](/content/2020/05/20200510-6481268913488602343.md)
+
+[文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
 
 [文字版：5月6日郭先生GTV直播连线Twins](/content/2020/05/20200510-2903203991693841280.md)
 
@@ -58,12 +64,6 @@
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/content/2020/04/20200408-8436401289033941417.md)
 
 [文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/content/2020/04/20200406-4712830590535337259.md)
-
-[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想](/content/2020/04/20200406-3461892408125397096.md)
-
-[文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/content/2020/04/20200404-7348500743663555332.md)
-
-[文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/2020/04/20200404-1051683434562586641.md)
 
 
 ## 頁面 5/30 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [30](/content/README-30.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)

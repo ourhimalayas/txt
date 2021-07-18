@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_down:
@@ -10,10 +10,16 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
+:new: :tada::tada::tada: [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md)
 
 ---
 ## 頁面 30/30 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [查看全部](/content/README-all.md)
+
+[2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/2018/04/20180418-1436420880757298143.md)
+
+[2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/content/2018/04/20180418-6242782845301179834.md)
+
+[2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/content/2018/04/20180418-3702263840213416314.md)
 
 [20179年9月19日明镜专访郭文贵第六期（3）：孟建柱女儿是美国公民，掌握财产惊天](/content/2018/04/20180418-4699290349257208973.md)
 
