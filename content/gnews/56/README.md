@@ -2,35 +2,57 @@
 ---
 
 
-## 针对近期时态的一点感想
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1403536/)
+## 【灭共内涵段子】段子三则
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1403730/)
 
-撰稿：特战一兵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17230433/181.jpg)图片来自网络
-山雨欲来风满楼。共产党倒台之前，妖魔鬼怪纷纷出洞。
+作者：东京樱花团｜待命（文晓）、风翼、文一
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17094855/213132.png)
+段子一：【你负责包饺子】
 
-针对情况的复杂性，有些战友开始担忧，有些战友不知所措，有些战友甚至开始怀疑、动摇。
+作者：待命（文晓）
 
-实际上，要让我们自己在纷繁复杂的环境中保持心明眼亮，保持稳如磐石，只需一招，那就是：问问自己我们参加爆料革命的初衷是什么？
+亡腚肛：梦，咱走。
 
-我不能保证所有人，但我想我们大部分人会和我一样，参加爆料革命的初衷是消灭共产党。只要我们坚持这个初衷，那么任何的困难都能克服。
+小  蔡：你们干啥去？
 
-我们要对我们与共产党斗争的艰巨性有个清楚的认识，这是一场危险的斗争，甚至是你死我活的斗争。连生命都在所不惜，那么还有什么值得我们斤斤计较的呢？
+亡腚肛：别问那么多！一天两次直播，我们不得去“编妓”啊。
 
-我们与共产党斗争的路还很长，在这个过程中我们会遇到挫折，遇到磨难，甚至遇到生死抉择。我们必须对这一个做好思想准备。文贵先生所说的“无我”并不是一句空话，只有在斗争中遭受过挫折和磨难的人，才能更好地理解这一句话的含义。
+小  蔡：哦，那我能帮上你们吗？
 
-我们现在还没有到生死抉择的关头，仅仅因为王闫的突然发难就开始怀疑起爆料革命。这样的战友实际上是意志不坚定的人，甚至不配称我们战友。这种人，遇到一点挫折，都有退缩甚至变节的可能。所以，这种人，在关键时刻的退缩直至退出革命，对爆料革命来说是一件好事。大浪淘沙，金子一定可以留到最后。
+亡腚肛：能，你负责包饺子🥟
+![](https://lh3.googleusercontent.com/TvFiX3gTFHRGhsv-9dLuDxXLNqhbBdf1Yz1jQmO9JRHAEErL9LUOEx3mmc_bnUGmh3r3sRGggTtTWSlZZ7XFb-jYzfqfqptoP37QuDpGjukARFsgsnHyDi9eJ7enXJRhAhcfRsID)
+段子二：《医嘱》
 
-另外，除了我们这些内部的不坚定分子以外，我们要深刻认识到爆料革命是共产党最害怕最痛恨最想摧垮的对象。共产党集一国之力，用各种手段来打击爆料革命，其中一种方式就是派出许许多多蛇和燕子打入我们爆料革命的内部，他们会在各种时刻搞破坏，比如收集情报、离间、造谣、制造混乱等等。对这些特务，我们必须要有敏感性，要有警觉性。其实，对付他们的办法也很简单，那就是我们紧跟爆料革命，不管狂风巨涛，我自岿然不动。只要我们能做到这一点，共产党终将无可奈何，一切手段都归于无效。
+作者：风冀
 
-所以，我们一定要坚持我们的信念，不要被其它的细枝末节扰乱了自己的心。紧跟爆料革命，奋勇斗争，直至把共产党埋葬于垃圾堆之下，迎来属于我们自己的新中国联邦。
+医  生：你需要截肢了。
 
-（2021-7-16）
+亡腚肛：医生，我感觉我很健康啊？
 
-以上内容仅代表作者本人观点
+医  生：不对啊，俗话说“吃人嘴短，拿人手短”
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+亡腚肛：什么？
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+医  生：你这吃恩人多少，拿恩人多少？不高位截肢说不过去啊！
+![](https://lh5.googleusercontent.com/YflcKH-Eyu33dt0RdaRhEk0ebl_UzOM-ykcwRoJTZe1yz9znykFxbF_kHiFxTGb7joiQXfBiVl1b0qe6BuD1IzLCOyB_EEO95zdF9-d5ex7gwfeqQvyG2z_eDjgRRfS2XI4VQveS)
+段子三：《超级重磅》
+
+作者：文一
+
+缺德社经常发所谓重磅，混肴视听，从存粮到真假天线宝…
+
+这一天
+
+战友1：喂，这回缺德社真有重磅了
+
+战友2：是吗，啥啊？
+
+战友1：大头亡和蛇精妖不久要双双把家还，一个回香港，一个去广东。
+
+战友2：哈哈…,那咱们就准备点礼物吧。
+![](https://lh6.googleusercontent.com/_Bxkvo9Ukt8QGTphkdkThUYEbh-b6-HKlsSuW2X3CUSjhTOmZXL5v_5E8jIvQBOPap1K-oyJ2TEDFa7lucBz2gkY3RaxvoF1R6aT-krhlGfrIYXLz-OZJGKY0yfj4Im6RJ-2sxbb)
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 /*平安卿卿
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
 0
