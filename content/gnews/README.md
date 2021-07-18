@@ -38,14 +38,14 @@
 ### [2021年7月17日 文贵先生盖特 6](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [【秘翻在线】普萨基：古巴的共产主义是“失败的意识形态”](/content/gnews/9/README.md)
- ` 秘密翻译组G-Translators`
-
-### [各国陆续推动健康通行证 台湾台北柯文哲跟上](/content/gnews/10/README.md)
+### [新冠疫苗背后的中共股东们](/content/gnews/9/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共多地启动12至17岁未成年人疫苗接种工作](/content/gnews/11/README.md)
- ` 经济金融组`
+### [【秘翻在线】选举欺诈坐实，推特好日子到头了](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【秘翻在线】普萨基：古巴的共产主义是“失败的意识形态”](/content/gnews/11/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [【战友心声】路德是如何攻击新中国联邦的？](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
@@ -86,23 +86,23 @@
 ### [7/14/2021 郭先生直播：蛇妖闫、王腚肛的自爆未对爆料革命造成任何损失、反而是好处多多](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [【秘翻在线】普萨基：古巴的共产主义是“失败的意识形态”](/content/gnews/25/README.md)
+### [【秘翻在线】选举欺诈坐实，推特好日子到头了](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共多地启动12至17岁未成年人疫苗接种工作](/content/gnews/26/README.md)
+### [【秘翻在线】普萨基：古巴的共产主义是“失败的意识形态”](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共多地启动12至17岁未成年人疫苗接种工作](/content/gnews/27/README.md)
  ` 经济金融组`
 
-### [慈善团体视频显示缅甸仰光CCP病毒死者激增](/content/gnews/27/README.md)
+### [慈善团体视频显示缅甸仰光CCP病毒死者激增](/content/gnews/28/README.md)
  ` 曹操`
 
-### [【秘翻在线】中共密切关注黎巴嫩经济危机为几何？](/content/gnews/28/README.md)
+### [【秘翻在线】中共密切关注黎巴嫩经济危机为几何？](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美国休斯顿一水上乐园化学品泄露29人送医](/content/gnews/29/README.md)
+### [美国休斯顿一水上乐园化学品泄露29人送医](/content/gnews/30/README.md)
  ` 曹操`
-
-### [【秘翻在线】美科技巨头与中共沆瀣一气](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [2021/07/18 英喜时事速递](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -140,45 +140,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [各国陆续推动健康通行证 台湾台北柯文哲跟上](/content/gnews/43/README.md)
+### [华大基因洋洋自得地炫耀自己的无底线，可悲，更可耻](/content/gnews/43/README.md)
+ ` 日本东京樱花团`
+
+### [自取其辱是伪类们的必然结果](/content/gnews/44/README.md)
+ ` 日本东京樱花团`
+
+### [新冠疫苗背后的中共股东们](/content/gnews/45/README.md)
  ` G-NEWS TAIWAN`
 
-### [山川异域，风月同天](/content/gnews/44/README.md)
+### [各国陆续推动健康通行证 台湾台北柯文哲跟上](/content/gnews/46/README.md)
+ ` G-NEWS TAIWAN`
+
+### [山川异域，风月同天](/content/gnews/47/README.md)
  ` 首尔天池农场`
 
-### [【魔鬼集团现行记】7/16/2021 路缺德社挑拨离间各农场与爆料革命的关系、污蔑战友和GETTR的标志](/content/gnews/45/README.md)
+### [【魔鬼集团现行记】7/16/2021 路缺德社挑拨离间各农场与爆料革命的关系、污蔑战友和GETTR的标志](/content/gnews/48/README.md)
  ` 秘密翻译组-北美组`
 
-### [【各抒己见】举报“蛇和燕子”的证据呢](/content/gnews/46/README.md)
+### [【各抒己见】举报“蛇和燕子”的证据呢](/content/gnews/49/README.md)
  ` 日本东京樱花团`
 
-### [【战友心声】炮蛇精闫丽梦、轰骗子王定刚](/content/gnews/47/README.md)
+### [【战友心声】炮蛇精闫丽梦、轰骗子王定刚](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [猛料|中共想要的中美新尼克松时刻被挫败，共产主义者默克尔无法复制基辛格](/content/gnews/48/README.md)
+### [猛料|中共想要的中美新尼克松时刻被挫败，共产主义者默克尔无法复制基辛格](/content/gnews/51/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [【灭共内涵段子】段子三则](/content/gnews/49/README.md)
+### [【灭共内涵段子】段子三则](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [[财经浅析 ] 中共在养猪行业割韭菜](/content/gnews/50/README.md)
+### [[财经浅析 ] 中共在养猪行业割韭菜](/content/gnews/53/README.md)
  ` 澳喜农场`
 
-### [7/18/2021日本银河快讯：日本呼吁中美洲八国警惕中共，维护国际秩序；日本单日感染人数超过3800人](/content/gnews/51/README.md)
+### [7/18/2021日本银河快讯：日本呼吁中美洲八国警惕中共，维护国际秩序；日本单日感染人数超过3800人](/content/gnews/54/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [亡腚肛、蛇妖闫为什么会砸爆料革命](/content/gnews/52/README.md)
+### [亡腚肛、蛇妖闫为什么会砸爆料革命](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [针对近期时态的一点感想](/content/gnews/53/README.md)
+### [针对近期时态的一点感想](/content/gnews/56/README.md)
  ` 澳喜农场`
-
-### [【蛇妖闫现形录】天使与魔鬼只在一念之间](/content/gnews/54/README.md)
- ` 纽约香草山MOS02`
-
-### [拜登政府官员承认实验室泄漏理论是“可信的”](/content/gnews/55/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共对二次病毒调查态度首次出现软化迹象](/content/gnews/56/README.md)
- ` 军迷wilson`
 
