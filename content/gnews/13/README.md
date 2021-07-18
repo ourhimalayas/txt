@@ -2,29 +2,39 @@
 ---
 
 
-## 【观点】中共病毒疫苗的次生灾害正在美国发生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1389592/)
+## 【世间万象】缅北印象
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1398164/)
 
-作者：小红帽
+#### 作者：酢漿草
 
-编辑：翼族
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205445/image4-5.png)图片来源：雅典娜农场设计组（精灵蓝）
-自从中共病毒肆虐全球以来，在美国累计[造成61.1万人死亡](https://en.wikipedia.org/wiki/Template:COVID-19_pandemic_data)，超过3389万人受感染（数据截止到7月10日）。美国疫情的严重性，导致民众纷纷选择注射中共病毒疫苗以避免感染中共病毒，但是美国民众不知道，中共病毒疫苗根本不是救人的。相反，因为注射疫苗而造成死亡的案例比历史上的任何时期都要多。
+#### 编辑：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15091602/Picture2-3.jpg)
+图片来源：Pulitzer Center
 
-近日，美国疾病预防控制中心报告揭露，[有9048人在注射中共病毒疫苗后死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)。这是美国疾病预防控制中心于7月2日在疫苗不良事件报告系统[（VAERS](https://vaers.hhs.gov/)）中发布的最新数据。VAERS系统是由美国政府资助的数据库，用于追踪由疫苗引起的伤害和死亡案例。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205514/image1-2-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-数据显示，除了9048例死亡案例外，还有7463例永久性残疾， 7822例危及生命，其中最吓人的是，竟然有高达56915例急诊案例。
+朋友，您见过直径三米多的树吗？您见过拳头大小的一块石头能价值千万元吗？还有见证地球每一次纪元变化的琥珀蜜蜡论堆卖吗？如果您在中缅边境的集镇呆过一段时间的话，你就习以为常了。这些神奇的东西都产自缅北地区，或许会让您一夜暴富，但也可能赔的血本无归。翡翠、宝石和木材，成为中国财富追求者的目标。
 
-这份报告从2020年12月开始统计注射中共病毒疫苗后的死亡人数,短短7个月内接种中共病毒疫苗后死亡的数据,比起前30年（从1991年1月1日至2020年11月30日）所记录的接种疫苗后的死亡总数（[6045例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;PERPAGE=400&amp;DIED=Yes&amp;VAX_YEAR_LOW=1991&amp;VAX_YEAR_HIGH=2020&amp;VAX_MONTH_HIGH=11)）还要多。很明显，中共病毒疫苗的毒性比传统的疫苗强很多。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205600/image2-1-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-更让人无法接受的是，美国疾病预防控制中心竟然不阻止孕妇注射这些疫苗。截至到7月2日，最新数据显示有[994名](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5b%5d=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5b%5d=Abortion+%2810000210%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5b%5d=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5b%5d=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5b%5d=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5b%5d=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5b%5d=Foetal+death+%2810055690%29&amp;SYMPTOMS%5b%5d=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5b%5d=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5b%5d=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5b%5d=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5b%5d=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5b%5d=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5b%5d=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5b%5d=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5b%5d=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5b%5d=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5b%5d=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5b%5d=Premature+baby+%2810036590%29&amp;SYMPTOMS%5b%5d=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5b%5d=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5b%5d=Premature+labour+%2810036600%29&amp;SYMPTOMS%5b%5d=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5b%5d=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5b%5d=Stillbirth+%2810042062%29&amp;SYMPTOMS%5b%5d=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19)未出生的孩子在其母亲注射中共病毒疫苗后流产。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205639/image3.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-一位获奖的美国[脊柱外科医生和外科医生协会的前主席](https://humansarefree.com/2021/02/respected-doctor-who-studied-bioweapons-believes-covid-19-jabs-are-a-form-of-weaponized-medicine.html)曾发声，认为目前的中共病毒疫苗是针对人们部署的危险“生物武器”。非常遗憾的是，这并没有引起更多美国人的注意。很多人仍然相信主流媒体的宣传，选择打疫苗。
+让中国人胆寒的野人山区南部，胡康河谷下游地区出产这个星球最美丽的令人迷醉的翡翠原石。因为这里出产的翡翠是能够达到宝石级别的品质，翡翠加工出的饰品成为东方人迷恋追捧的珍贵玉石，由此产生了一条巨大的产销链，财富在这里讲述着沉浮故事。
 
-爆料革命吹哨人郭文贵先生和闫丽梦科学家曾多次警告，中共病毒根本没有疫苗。但是被共产党深度渗透的美国各界似乎还在继续执行共产党的“中共病毒疫苗战”计划。笔者不禁联想到之前“[盖茨基金会资助华大基因，病毒测试“采集”美国人DNA数据](https://gnews.org/zh-hans/1182242/)”一案。中共是否正在和盖茨基金会全面展开减少世界人口的计划？在全球追责中共投放“生化武器”之际，这疫苗闹剧还要折腾多久？但愿美国人民以及全世界人民早日醒觉并认识到中共的邪恶。
+早在元朝时期，缅甸翡翠就开始流入中国，到清朝达到兴盛阶段。由于缅北地势险要、气候恶劣，前去寻求财富是要冒着生命危险的，再加上语言沟通不畅，所以只有一些边境地区的人前去购买翡翠原石过来加工销售，凭借三分的眼光、三分的胆识、三分的运气外加一分抵挡诱惑的定力（注：拒绝鸦片烟上瘾）。几十倍的利润不在话下，血本无归也属家常便饭，如此，更为翡翠添加了几份神秘色彩。
 
-毕竟留给人类的时间不多了，我们要尽快消灭共产党！
+上世纪九十年代以来，大型机械设备进行开采，高效的采矿能力，几百平方千米的矿区被翻个底儿朝天。近年来，很多出产原石的场口传来资源枯竭的消息。大批原材料运进中国，几个边境城市成了聚散地，翡翠加工销售成了地方一大产业。高品质的翡翠成了达官贵人追捧的藏品，甚至可以洗干净一些黑钱，顶级的珠宝级别的翡翠制品市场上很少见到，但会在一些风情万种的艺人身上偶尔展示。
 
-（文章仅代表作者个人观点）
+上世纪末的二十多年间，每到旱季，缅北山区有七八万中国人在原始森林里伐木、修路养路，短途运输、长途运输木材的车辆在丛林间川流不息、热闹非凡。从十月份到来年的四月份半年时间里，每年运往国内的木材大约上百万立方，边境口岸集镇兴建了堆料场和木材加工场。内地老板也蜂拥而至，边城一度呈现欣欣向荣的繁荣景象。控制缅北地区的武装组织也得到丰厚的回报，他们向木材老板收现金，收粮食布匹啤酒等实物；向过往车辆收取过路费，或者游荡到民工工棚里要吃的；替中国木材老板观察着缅甸政府军的动向，如果军方有异动就及时通知中国民工躲藏或撤离。同时也贿赂一些政府部门，否则也不可能让中国方面采伐这么多年。二十多年过去了，几乎所有山头再也见不到一棵像样的树了，然后又把埋在土里的树根刨出来，运到国内做根雕，可谓是连根拔起都是钱啊！
+
+缅北地区还蕴藏着大量高品位铁矿石，平均含铁量达到56%，矿选成本低，一般的设备就能生产高品质的精矿粉。选矿厂建在边境线的山区，除了修几个沉淀泥沙的池子，几乎都不用考虑对环境的影响。每年都有上百万吨的精矿粉运往内地钢铁加工厂。其他的稀有金属也是储量丰富，天然气管道前几年就铺设完毕，现在已经源源不断向国内供气。
+
+近年来中共国实施一带一路战略，打造中缅经济走廊，与缅甸政府加强了农业技术合作。由于缅甸常年气温高，土地肥沃，替代罂粟种植的水稻、苞谷、橡胶和水果产业兴盛，大量农产品进口国内。中国资金雄厚的老板去购买了大片土地，种植水果或者经济作物，或者投资建设水电站。在边境口岸地区建设集镇，那里的房子盖的最豪的，是当地的军事长官府邸。
+
+缅北地区由克钦邦和掸邦控制，也是能跟政府军抗衡的武装力量。他们武器装备差，常见最多的就是国内淘汰了的五六式自动步枪，甚至还有半自动步枪，还是疏于保养锈迹斑斑的那种。他们凭借缅北山区复杂的地形跟政府武装周旋多年，政府也奈何不了他们，何况背后还有一个巨人暗中支持。
+
+缅甸国家人口众多、地域广阔，资源禀赋极佳。然而，专制的缅甸军政府长期掌握政权，甚至推翻了民选政府，中共又是其背后的金主，导致缅甸民生疾苦。现在的缅甸，如同一个六七岁的孩童捧着一个金光闪闪的大金碗，却站在街边讨饭。
+
+（文章内容仅代表作者观点）
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 +2

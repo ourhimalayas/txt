@@ -2,232 +2,36 @@
 ---
 
 
-## 三名纽约洋基队接种疫苗的球员的 COVID-19 检测呈阳性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404198/)
+## 自传体小说连载之十八：《我的忏悔录》
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404313/)
 
-字幕内容：
+#### ——献给在中共国长大的人
 
-**Art Shamsky (Host, The Art Shansky Podcast)**
+#### 作者：峥嵘/责编：白夜
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18085922/16266132801.png)
+#### 
+第六章 高考-3
 
-阿特** **沙姆斯基（主持人，**The Art Shansky **播客）
+前段时间度假，搁笔已有月逾。好在美女木兰也不催稿，任由我天马行空，散漫不羁，我喜欢这位素昧平生的责任编辑。我这个长篇虽然是处女作，但多是自己人生的真实经历，所以写起来自然是滔滔不绝，毫不费力。
 
-All over the world, it’s very precarious right now, sports in particular
+还是书归正传，回到龟城（我父母所在的城——我更愿意叫这裡是龟城——由来在前文已讲过，在此不再赘述）的日子，开始我并不开心。后来有了虹的陪伴，才慢慢快乐起来。那段美好的时光，好像永远停留在夏天。8964也是发生在那个夏天，那种莫名的自由和兴奋，至今萦绕我的心头。
 
-现在全世界都很危险特别是在体育界
+有一次我带虹去我家裡玩，当然父母都不在家。他们总是不在家，他们忙，忙著入党，忙著当官，忙著往上爬。我跟虹到我家附近的广场去玩，广场上有一个电影院——某某剧场。广场中央有一个毛贼东的雕像，就是那种高举右手的标准毛贼像，毛右手五指分开，左手藏在背后，人们笑称打麻将明面上只能打五毛钱的，桌底下要再加五毛，实际上是打一块的。
 
-are really under pressure to get these things right
+那天广场上非常热闹，有很多头缠白布条的学生，上面用墨汁写著「绝食」二字。我们看到有人在兜售照片，凑近一看，才知道是卖天安门广场绝食学生的现场照片，是彩色照片，10块钱一张。在当时这价钱其实是蛮贵的，那时候哪怕五块钱，都是大钱了。虹悄悄跟我说：「他们卖这些照片，是在发国难财！」我吃了一惊，我不敢相信虹能说出这样的话来。她看我吃惊的样子，补充了一句：「是我爸爸告诉我的，他们瞎闹腾，肯定没戏！」果不其然，如她所说，没过多久，就没人上街游行示威了。
 
-真正面临着要把这些事情做好的压力
+新闻联播裡说，那是一场春夏之交的反革命暴乱，有很多人被全国通缉，我只记得王丹、柴玲和吾尔开希三个人的名字。有一天，我去虹家的部队大院裡玩，虹带我去看一个佈告栏。上面贴著20多人的全国通缉令。我忽然发现王丹的照片被打了个黒叉，我就问虹是怎麽回事。她随口说：「王丹已经被抓了，就前几天，在他姨家。」我不禁大叫：「这麽快啊！」虹骄傲地说：「那还不快，除非像吾尔开希一样跑到国外！」我问：「你怎麽知道这麽多？」「都是我爸爸讲的，你不要告诉别人！你要保密！」「好的。」后来听说，吾尔开希的父亲，是个大官，偷偷把儿子送出国。再后来，才知道是香港的「黄雀行动」，救了这帮孙子。
 
-and as you can see,
+虹跟我什麽都说，她表面文文静静，不苟言笑，可是跟我单独在一起的时候，疯到不行。她皮肤白皙，胸部丰满。因为她的出现，我几乎都忘了春了。唉，我这个人，一辈子辜负了太多女人了，只有通过写下这些文字，才能充分地忏悔我的过失。
 
-正如你所看到的
+紧张的高考複习，对沉浸在恋爱中的我来说，简直是小菜一碟。父母总是警告我：「不要早恋！早恋会害死你！」可是他们越这样说，我越要早恋。倒不是我太逆反，而是恋爱太tm的爽了！我跟虹的成绩，都是越考越好。我把我的学习方法，100%地毫无保留地教给她，数理化我是大拿，语文英语生物也不错，尤其是生理卫生，那是我的强中强。唯独政治课不行，不愿意死记硬背。关键我不怕背诵，就怕变来变去。我们那届高考，最闹心。一会儿说苏联的戈尔巴乔夫是中国人民的好朋友，一会儿又说他叛变了苏联人民。我们的政治老师，特别辛苦，跑到北京海淀开会。最后回来告诉我们，老戈的题必考，两个答案都得记。靠！全班同学譁然大笑！老师正而八经地说：「笑什麽笑？这就是政治！你们还小，不懂！一定要记住两个答案！必考题！白拿分的！」不出老师的压题，真的考了，我们班同学都答对了。
 
-My games being canceled all these doubleheaders mounted up
+写到这儿，不由得想起我最爱的香港大作家——倪匡——这老爷子的书巨好看，我强烈推荐给各位亲耐的战友们。卫斯理系统，简直就是神来之笔。尤其是《天外星球》，裡面写了邓小平。今天的字数差不多了，我跟木兰的约定是，每篇1000字左右。就此打住，下回分解。
 
-我的赛事被取消、所有这些双头游戏
+诚意推荐倪老爷子的一个採访视频，他对ccp的评价和判断，绝对是香港第一。如果他老人家自谦第二，则没人敢称第一。
 
-and all the changes in the game is,
+[视频连结](https://youtu.be/yJKbquy0DlA)
 
-和游戏中的所有变化是
 
-it’s really a very, very tough situation now.
-
-目前真的是非常非常艰难的情况
-
-As far as the Yankees situation.
-
-以至于洋基队的情况
-
-I’m shocked that this happened all of a sudden,
-
-我很震惊这突然发生的状况
-
-coming out of the all-star game
-
-来自于全明星赛中
-
-but, you know, you’re just gonna have to improvise,
-
-但是，你知道，你只能去凑合
-
-do what they can do
-
-做他们能做的
-
-and last year was a real test for sports in particular baseball,
-
-而且去年是对体育运动的真正考验，尤其是棒球
-
-and we’ll see what’s going to happen
-
-我们会看看将会发生什么
-
-and I know we don’t even know
-
-而且我认识到我们甚至不知道
-
-what the game is going to be playing tonight
-
-今晚要进行什么赛事
-
-so I’m just wondering what’s going to happen
-
-所以我只是想知道会发生什么
-
-basically we’re gonna have to make some tough decisions
-
-基本上我们将不得不做出一些艰难的决定
-
-**Shaun Kraisman (Newsmax TV Anchor)**
-
-肖恩**·**克莱斯曼（**Newsmax **电视主播）
-
-such as baseball obviously, if you’ve heard,
-
-很明显，比如棒球，如果你已经听到了
-
-Bubba Watson as well had issue with going overseas
-
-还有布巴·沃森（职业高尔夫球员）出国有问题
-
-because he’s been vaccinated,
-
-因为他已经打过疫苗了
-
-but he came in contact with someone that had it.
-
-但他接触到了带病毒的人
-
-Your thoughts on that and where we’re going.
-
-您对此的看法以及我们要怎样做
-
-Not even just in the sports world,
-
-不仅在体育界
-
-but just in general, as a human population.
-
-但总的来说，作为一个人类
-
-Yeah. Are we are we following the guide
-
-是的， 我们是否遵循指导
-
-we feel like we’re following the guidelines of science on this
-
-我们觉得我们正在遵循科学的指导方针
-
-**Art Shamsky**
-
-阿特** **沙姆斯基
-
-I don’t know every teams have gotten everybody to get vaccinated,
-
-我不知道每个球队都让每个人接种了疫苗
-
-but we were so anxious to get back in a somewhat normal way
-
-但我们非常渴望回到某种正常的方式
-
-that we kind of rushed into things
-
-我们有点像是急于求成
-
-that I think it’s, it’s coming back to bite us a little bit.
-
-我认为是，它会回来咬咬我们
-
-We’re also so hungry for sports and hungry to get out
-
-我们也很渴望于体育运动而且也很想出去
-
-and now we see that there’re spikes up in a lot of cities of Los Angeles,
-
-现在我们看到洛杉矶的很多城市都出现了高峰（病毒感染）
-
-now you have to mask indoors, again,
-
-现在你必须又要在室内戴口罩了
-
-and who knows what’s going to happen.
-
-而且谁知道将会发生什么
-
-I know people want to be out and doing things,
-
-我知道人们想在室外活动并做事
-
-but we have to be very very careful.
-
-但是我们必须要特别特别的小心
-
-And We all know, sports is kind of like a thing for us
-
-我们都知道，运动对我们来说是重要的东西
-
-to be able to forget about all our other problems
-
-能够忘记我们所有的其他问题
-
-but the reality, the fact is, they’ve created a lot of problems
-
-但现实，事实是，他们造成了很多问题
-
-and now we’re going to have to wait to see what happens.
-
-现在我们将不得不去等待，看看会发生什么
-
-I do want to get this straight.
-
-我确实想弄清楚这一点
-
-Everybody loves the game of baseball.
-
-每个人都喜欢棒球比赛
-
-We want to see it back playing some normal fashion
-
-我们希望看到重新回到正常状态下的比赛
-
-but who knows what’s going to happen
-
-但是谁知道会发生什么
-
-I think the next few days are very very curious for the world sports,
-
-我认为接下来的几天对于世界体育来说是非常非常的好奇
-
-**Shaun Kraisman**
-
-肖恩**·**克莱斯曼
-
-yeah, just to be clear, I know I pointed out six
-
-是呀，只是澄清一下，我知道我指出了六个
-
-is three that were positive, they have three pending.
-
-三个是阳性，还有三个待定
-
-They’re waiting on the rapid tests according to the coach Katherine there.
-
-根据凯瑟琳教练的说法，他们正在等待快速测试结果
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 https://twitter.com/newsmax/status/1416036680973406213?s=24
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

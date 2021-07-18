@@ -2,46 +2,46 @@
 ---
 
 
-## 数字货币市场火，媒体大佬忙建平台
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1403814/)
+## 2021/07/15 参议员HAWLEY：提供真相和疫苗接种途径，人们自己选择
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1400913/)
 
-翻译：奮鬥
-校对/导读：守望黎明
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18033740/7.18-2.jpg)
-图片来源：pexels.com
+视频字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | 校对：Wade | 简评/文字整理/编辑：胖丁| Page：我是球大哥
 
-【**导读**：随着世界经济全面吃紧，各国对于资金流动的限制越来越多，因此市场对于资金自由流动的需求日趋迫切，借此东风各类数字货币交易市场作为打破资金流动束缚的途径变得越来越活跃，各类新的交易平台也应运而生。由此可见喜马拉雅的喜币H-coin和喜美元H-dollar生逢其时，尤其在中共走向末路，中共国经济体系行将崩溃，大量资金急于外逃寻求避风港的时候，喜币喜美元的市场需求十分巨大，前景十分诱人】
+[!\[\]()!\[\](https://spark.adobe.com/page/kPlWe6ETupHPL/images/891fe91c-cdd2-40f5-9c96-2f0bc349301e.png?asset_id=dfe01a2f-e0d9-4268-ad13-9cdb76a50b4f&amp;img_etag=%223ecd21c05ba8d8b01e07d4f075458464%22&amp;size=1024)](https://spark.adobe.com/page/kPlWe6ETupHPL/images/891fe91c-cdd2-40f5-9c96-2f0bc349301e.png?asset_id=dfe01a2f-e0d9-4268-ad13-9cdb76a50b4f&amp;img_etag=%223ecd21c05ba8d8b01e07d4f075458464%22&amp;size=1024)
 
-支付公司杀入金融服务创新的热门新领域。媒体平台大佬杰克·多西(Jack Dorsey)表示，他名下的支付公司 Square 将推出比特币去中心化金融平台。周四，多西让他的移动支付公司 Square 成了金融创新领域的热议对象，他宣布将为开发商推出一个平台，以创建基于比特币的“去中心化金融”项目。
+**简评：**
 
-多尔西在推特上说，Square计划创建一项“新业务”，“目标是使创建非监管、无须许可和去中心化的金融服务变得更加容易”，这标志着新生市场上的这类大型项目开始上路。
+Delta变种病毒在没有接种疫苗的群体中传播，感染病例很高。应该告诉人们事实真相和接种疫苗的途径，让人们自己做决定，而不是联邦机构的人员挨家挨户去告诉人们应该怎么做。
 
-去中心化金融，简称DeFi，是对越来越多的加密货币项目的称呼，这些项目试图建立一个以加密货币计价的联锁金融系统，以削减传统中间商的作用。
+GTV视频链接：[Hawley: 你只需要向人们提供事实，让人们有接种疫苗的途径，然后让人们自己做决定](https://gtv.org/video/id=60f198ed3324080c882a8f03)
 
-支持者说，它将提供一种获得金融服务的新方式，涵盖从贷款和贸易到保险和储蓄等各种服务产品。
 
-担任Square和推特（Twitter）首席执行官的多西说，Square“对于想要建立的初始平台基元有自己的想法。”
 
-然而，目前还不清楚这项业务将为潜在的开发商们提供哪些服务，或如何将其货币化。在正式名称选定之前，它将暂时被称为 “TBD”。
+**视频字幕：**
 
-多西说，“我们将完全公开地做这件事。使用公开的路径图，公开的开发进程以及公开的数据源。”。曾参与Square推动加密货币的高管迈克·布洛克(Mike Brock)将负责该平台。
+**主持人**：政府说冠状病毒最大的问题是这个Delta变种，如果它在没有接种疫苗的群体中传播，每个人的风险都是极高的。
 
-许多DeFi项目都建立在以太坊区块链上，因为它可以更轻松地创建智能合约——本质上是在满足某些条件时自动触发的计算机代码。多西说，该平台的“主要焦点” 将是比特币，即最古老和最流行的区块链。
+你认为这真的是很大的威胁吗？
 
-比特币区块链历来被认为比同类的以太坊速度要慢、效率低。然而，在11月，它将迎来几年来的第一次大升级，被称为Taproot，这会使智能合约的协议能更迅捷地生成。
+**Hawley**：我认为Delta 变种肯定是很严重的威胁。 这是非常令人担忧的，而且病例正在上升。
 
-Square 成立于2009年，最初是一家数字支付公司，但多西已经显露出了对该集团抱有的更多期待。今年早些时候，Square以2.97亿美元收购了 Jay-Z 旗下陷入困境的流媒体平台Tidal的多数股权，出人意料地进入了音乐行业，并让 Jay-Z 这位说唱歌手进入了 Square 的董事会。
+我想我们应该做的是，让人们知道事实。我们应该说，这是有关疫苗你应该知道的所有资讯，这是你可以去接种的地方。
 
-多西是激进的比特币倡导者，已经对加密货币进行的多项押注，TBD项目是其最新一次尝试。Square的收入在 2020年翻了一倍多，部分原因就是在其点对点移动支付工具 Cash App 上，比特币的交易量增加。
+我们应该鼓励人们做出适合自己和家庭的医疗决定。
 
-原文链接：
+此时，我只想说，我相信密苏里州的百姓能够做出有利于自己和家庭的決定。
 
-[Jack Dorsey says Square will launch bitcoin DeFi platform](https://www.ft.com/content/1e297176-8bf0-4649-8c35-b763cfd3b5be)
+我认为不应该告诉他们该怎么做。不应该有联邦机构人员挨家挨户告诉他们该做什么。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+你只需要向人们提供事实，让人们有接种疫苗的途径，然后让人们自己做決定。
 
-0
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/kPlWe6ETupHPL/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/kPlWe6ETupHPL/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++2

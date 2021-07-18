@@ -2,61 +2,232 @@
 ---
 
 
-## 【战友心声】路德是如何攻击新中国联邦的？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1399064/)
+## 三名纽约洋基队接种疫苗的球员的 COVID-19 检测呈阳性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404198/)
 
-作者：文兵贤弟
+字幕内容：
 
+**Art Shamsky (Host, The Art Shansky Podcast)**
 
+阿特** **沙姆斯基（主持人，**The Art Shansky **播客）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+All over the world, it’s very precarious right now, sports in particular
 
+现在全世界都很危险特别是在体育界
 
+are really under pressure to get these things right
 
-因为文贵先生说过，“不能太自我，不能有大头症”。所以路德有了发难的口实：（我们）没有“自由”，为了“自由”，所以要攻击新中国联邦。既然你觉得新中国联邦不好，你觉得没有你要的“自由和民主”，那你自己离开搞一个好的不就完了吗？你攻击新中国联邦干什么？此举看似“政治正确”，其实是误导他人。
+真正面临着要把这些事情做好的压力
 
-在此，笔者不得不讨论下什么是自由。首先，宇宙里的任何东西都是有限的、是守恒的，自由当然也不例外——自由也是守恒的，也是有限的，所以我们要争取自由。如果自由是取之不尽、用之不竭的，我们为什么还要不惜一切去争取呢？既然自由是守恒的，那任何人的自由多一分，其他人的自由就少一分。现在我们可以看看路德到底有没有自由？在路德攻击新中国联邦前，他已经身处新中国联邦的核心，住着豪宅、开着豪车，难道他还嫌不够自由吗？那路德到底想要什么样的“自由”？恐怕他想要的是“绝对的自由”，就是每天双休杨澜、闫丽梦的自由。但是，他妄图的这种绝对自由，对其他人来说就意味着绝对的灾难。这样的自由，新中国联邦给不了他。换言之，如果让路德得到了他想要的绝对自由，那么就会有更多的杨改兰、祥林嫂。再顺便说一下，路德的节目中常常提到祥林嫂，其实祥林嫂就是现在的杨改兰：祥林嫂的孩子被狼吃了，整个人神志失常了，是最底层、最可怜的人。可是，笔者从未感到路德对祥林嫂有半分同情，他这样的人和悲天悯人的文贵先生又如何能比？事实上，美国的伟大也正是基于对弱者的同情。
+and as you can see,
 
-从另一方面看，为什么西方的民主、法治、自由这些美好的概念来到中（共）国最终都会变成灾难呢？大抵任何事情都过犹不及，大多数民众的思维里没有分寸、量化的概念。至于路德等人为什么最终选择背叛？原因就在于他们贪得无厌——他们本已在新中国联邦里得到了属于自己的那份尊重、自由。但是他们并不满足，还觊觎不属于他们的那份尊重和自由。实际上，路德变脸并不是在一夜之间，他在一个月前就已经开始试探性地攻击新中国联邦了——任何事情都是有迹可循的。（视频参见：[wenbing的盖特](https://gettr.com/post/p3znpl)）
+正如你所看到的
 
-在6月14日的节目里，路德找了个洋爹，用《新大西洋宪章》拐弯抹角地攻击新中国联邦——也不知道新中国联邦让他受了多大的“委屈”。（视频参见：[wenbing的盖特](https://gettr.com/post/p3zppz)）
+My games being canceled all these doubleheaders mounted up
 
-另外，墨博士和路德也在6月14日的节目里用“蒋干”来诋毁文贵先生了。试问，你们两个咋能提前一个月就知道塞林要暴雷呢？这不是串通是什么？（视频参见：[wenbing的盖特](https://gettr.com/post/p40r6z)）
+我的赛事被取消、所有这些双头游戏
 
-在6月15日的节目中，路德又用共产党说过的“无我”来攻击新中国联邦。为什么共产党要说“无我”？这和文贵先生说的无我是一回事吗？说到底，再好的概念被绝对化后都会变味，就像美味的蛋糕，吃一块、两块是享受，吃几十块就是折磨。文贵先生说的无我，是让你别太贪得无厌，让你差不多着点，也是让你不要太独了，是让你只拿属于你的那一份就行了；而共产党说的“无我”是绝对无我，是让老百姓去给他当炮灰。这二者能一样吗？同样是水，结构都是水分子，但一杯水和大海能一样吗？这分明是偷换概念、蛊惑人心。（视频参见：[wenbing的盖特](https://gettr.com/post/p3zebd)）
+and all the changes in the game is,
 
-为什么我们要参加新中国联邦？难道是为了消灭共产党之后，站在天安门城楼上封侯拜相、世袭罔替吗？究其根本，是因为我们当中的很多人已经身处自由世界，我们大多已经拥有了自由，现在我们参加新中国联邦，是要把我们的自由分享给更多的人。达己而后成人，如果你自己都没有自由，又怎么能帮助其他人得到自由呢？你自己连擦屁股纸都没有，你又如何帮助其他人呢？如果没有无我利他之心，你根本就不该参加新中国联邦。想在新中国联邦里图名图利，那你是来错了地方。再顺便说一下，也是在6月15日的节目中，冠博士因为没有顺着路德的话往下说，第二天就被路德踢了。多么小人！而且路德、闫丽梦居然在文贵先生生病期间偷袭新中国联邦，何其小人！这一行为和五四运动何其相似？！
+和游戏中的所有变化是
 
-五四运动以来，一群被煽动的学生只是因为中华民国政府在巴黎和会中没有占到什么便宜，就说是丧权辱国，就把共产党引来，就把中华民国毁了。巴黎和会时，中华民国到底有没有丧权辱国？好比下棋时，一手棋是好是坏如何判断？棋是两个人在下，两个人都要赢，可以说只要不吃亏，或者是不吃大亏就是好棋。一战中，中国本身就是战胜国，并没有吃任何亏。可是被煽动的学生认为，战胜国就应该是占尽便宜，没有占尽便宜就是丧权辱国。难道没有占尽便宜就要推翻来之不易的中华民国，没有占尽便宜就要全盘西化，难道没有占尽便宜，就能给国家带来不可挽回的灾难吗？路德就是因为没能在新中国联邦里占更大的便宜，所以反过来又开始攻击新中国联邦，这在大是大非面前失去了判断。
+it’s really a very, very tough situation now.
 
-另外，在6月14日的节目中，路德还攻击了龙图腾。事实上，盘古就是龙型建筑，这次指桑骂槐地攻击新中国联邦就已经很明显了。（视频参见：[wenbing的盖特](https://gettr.com/post/p3ze3f)）
+目前真的是非常非常艰难的情况
 
-中国文化有糟粕，但全是糟粕吗？是绝对的糟粕吗？没有半点优点吗？那请问路德：你能把你的肤色混成绝对的白色吗？文革期间，就是因为中共把中国文化定义为绝对的糟粕，随后就开始对整个国家、文化进行大破坏。而今，路德开出救中国的药方是——科学。路德用绝对的科学来攻击中国文化。可是科学是要花钱的，政府又不生产价值，所有钱都是中国老百姓的。如果政府要搞绝对的科学、推进绝对的文明，那就得多收税，以后老百姓还吃不吃饭了？还活不活了？说到底，我们这个国家究竟需要什么？需要的是“人与人之间的分寸”。
+As far as the Yankees situation.
 
-至路德、闫丽梦：
+以至于洋基队的情况
 
-你们6月份试探性地攻击新中国联邦，难道以为文贵先生不知道？在大是大非面前，本就不存在选边站。任何事情千万别做绝了，你们天天做节目揭露共产党，应该知道与共产党为伍的下场。别为了一点点小利，就背上这千古的骂名。你们以为反投共产党，共产党能放过你们吗？你们是第一天反共吗？
+I’m shocked that this happened all of a sudden,
 
-（本文仅代表作者观点）
+我很震惊这突然发生的状况
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01045038/7_july-3.jpg)
+coming out of the all-star game
 
-校对/发稿：Irene木木
+来自于全明星赛中
 
-**更多资讯，更多关注**
+but, you know, you’re just gonna have to improvise,
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+但是，你知道，你只能去凑合
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+do what they can do
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+做他们能做的
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+and last year was a real test for sports in particular baseball,
 
+而且去年是对体育运动的真正考验，尤其是棒球
 
+and we’ll see what’s going to happen
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+我们会看看将会发生什么
 
+and I know we don’t even know
 
+而且我认识到我们甚至不知道
 
-+2
+what the game is going to be playing tonight
+
+今晚要进行什么赛事
+
+so I’m just wondering what’s going to happen
+
+所以我只是想知道会发生什么
+
+basically we’re gonna have to make some tough decisions
+
+基本上我们将不得不做出一些艰难的决定
+
+**Shaun Kraisman (Newsmax TV Anchor)**
+
+肖恩**·**克莱斯曼（**Newsmax **电视主播）
+
+such as baseball obviously, if you’ve heard,
+
+很明显，比如棒球，如果你已经听到了
+
+Bubba Watson as well had issue with going overseas
+
+还有布巴·沃森（职业高尔夫球员）出国有问题
+
+because he’s been vaccinated,
+
+因为他已经打过疫苗了
+
+but he came in contact with someone that had it.
+
+但他接触到了带病毒的人
+
+Your thoughts on that and where we’re going.
+
+您对此的看法以及我们要怎样做
+
+Not even just in the sports world,
+
+不仅在体育界
+
+but just in general, as a human population.
+
+但总的来说，作为一个人类
+
+Yeah. Are we are we following the guide
+
+是的， 我们是否遵循指导
+
+we feel like we’re following the guidelines of science on this
+
+我们觉得我们正在遵循科学的指导方针
+
+**Art Shamsky**
+
+阿特** **沙姆斯基
+
+I don’t know every teams have gotten everybody to get vaccinated,
+
+我不知道每个球队都让每个人接种了疫苗
+
+but we were so anxious to get back in a somewhat normal way
+
+但我们非常渴望回到某种正常的方式
+
+that we kind of rushed into things
+
+我们有点像是急于求成
+
+that I think it’s, it’s coming back to bite us a little bit.
+
+我认为是，它会回来咬咬我们
+
+We’re also so hungry for sports and hungry to get out
+
+我们也很渴望于体育运动而且也很想出去
+
+and now we see that there’re spikes up in a lot of cities of Los Angeles,
+
+现在我们看到洛杉矶的很多城市都出现了高峰（病毒感染）
+
+now you have to mask indoors, again,
+
+现在你必须又要在室内戴口罩了
+
+and who knows what’s going to happen.
+
+而且谁知道将会发生什么
+
+I know people want to be out and doing things,
+
+我知道人们想在室外活动并做事
+
+but we have to be very very careful.
+
+但是我们必须要特别特别的小心
+
+And We all know, sports is kind of like a thing for us
+
+我们都知道，运动对我们来说是重要的东西
+
+to be able to forget about all our other problems
+
+能够忘记我们所有的其他问题
+
+but the reality, the fact is, they’ve created a lot of problems
+
+但现实，事实是，他们造成了很多问题
+
+and now we’re going to have to wait to see what happens.
+
+现在我们将不得不去等待，看看会发生什么
+
+I do want to get this straight.
+
+我确实想弄清楚这一点
+
+Everybody loves the game of baseball.
+
+每个人都喜欢棒球比赛
+
+We want to see it back playing some normal fashion
+
+我们希望看到重新回到正常状态下的比赛
+
+but who knows what’s going to happen
+
+但是谁知道会发生什么
+
+I think the next few days are very very curious for the world sports,
+
+我认为接下来的几天对于世界体育来说是非常非常的好奇
+
+**Shaun Kraisman**
+
+肖恩**·**克莱斯曼
+
+yeah, just to be clear, I know I pointed out six
+
+是呀，只是澄清一下，我知道我指出了六个
+
+is three that were positive, they have three pending.
+
+三个是阳性，还有三个待定
+
+They’re waiting on the rapid tests according to the coach Katherine there.
+
+根据凯瑟琳教练的说法，他们正在等待快速测试结果
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 https://twitter.com/newsmax/status/1416036680973406213?s=24
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-文韵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

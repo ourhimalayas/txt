@@ -2,40 +2,46 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1404208/)
+## 2021/07/16 文贵盖特精要-001
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1404281/)
 
-- 作者：WENWU
+听写：樂禧禧| Pr:万物归一 | Page：小六月
+[!\[\]()!\[\](https://spark.adobe.com/page/FQZefF2kZIXxZ/images/7d130610-b451-4f45-a023-0f0d458b5470.png?asset_id=acdbc8e9-4d32-41c9-bdfa-c50e14081af8&amp;img_etag=%221ec5ba3ee1b7b0d2fc3cf7632dc9d7c7%22&amp;size=1024)](https://spark.adobe.com/page/FQZefF2kZIXxZ/images/7d130610-b451-4f45-a023-0f0d458b5470.png?asset_id=acdbc8e9-4d32-41c9-bdfa-c50e14081af8&amp;img_etag=%221ec5ba3ee1b7b0d2fc3cf7632dc9d7c7%22&amp;size=1024)
+[链接](https://www.gettr.com/post/p4f61u)
+
+7月16:尊敬的战友们好，你们健身了吗？传播C C P病毒、香港危机真相了吗？
+
+•美军军机又降落台湾了，听说在台海美军的潜水艇和中共的潜水艇差点PK。
+
+•谭德赛还有美军CDC，欧洲传染病预防组织，昨天紧急开会，研究中共病毒到底怎么回事。
+
+•把「蛇妖闫」在网站上发表的三篇文章拿下来了，爆料革命新中国联邦是战友的力量，真正的是背后千千万万的战友和真正参与实验室制造病毒的科学家们和政府官员，勇敢站出来，这是谭德赛和世界各國都必须面对的事实，铁证。
+
+•蛇妖闫一定会送回香港，申请的证庇必须撤回，马亨也会跟政府交代是谁帮他来美国的。
+
+•接下来对共产党的一系列制裁不会停，拜登政府的灭共只能越来越快。
+
+•过去四年，最重要是彭佩奥国务卿把共产党定义为新疆种族大屠杀和反人类罪，因此中共就不应该再存在在这世界上。彭佩奥国务卿是当今世界灭共的最大力量，他被世界誉为美国近几十年来的最优秀的外交官。
+
+•接下来对香港共产党高官的制裁，包括民主党的官员都会和我们站在一起，过不了多少天看看发生什么事？看看真正和我们在一起灭共的是什么人，背后真正的沼泽地是谁，是共产党不曾想象的。
+
+•因為「蛇妖闫」闫丽梦和「亡腚肛」王定刚，灭共的决心更加多了百倍万倍，让这两个人渣变成天上掉下来的一堆屎。
+
+•现在国内房地产商，整栋楼打半折都没有人买，只能想办法忽悠那些占便宜的老百姓，这说明供需出了大问题，社会的流动性资金的流动性出大问题，中共国的经济产值和经济总量是一千多倍，怎么可能撑下去？
+
+•过去两周共产党花了两到三个月，动用所有高人游说，中美之间要出现一个尼克松时刻，要默克尔代表基辛格，她绝对是亲共的，但是默克尔这回失败了，共产党遭到重创。
+
+•默克尔把德国带上了未来二百年都回不来的路。它有三个最大的弱点，信息互联网时代德国的信息产业几乎和非洲差不多。第二个，德国作为GDP大量的产量，现在材料的整个革命，德国没跟上。第二个和第三个德国由于大量的产业移向了中国，帮助了中共，现在是升级版的工业版，美国人现在已经大量的排欧的产品，所以这三样德国的意识型态、通信技术、现代材料技术和挺共，会导致灾难的结果。
+
+•灭共是我们一切的目标，新中国联邦没有人能挡住他的诞生，没有人能挡住他将被世界和联合国承认，代表新中国和中国的合法的唯一的政治权力机构。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-***更多真相，请关注*** ***[Gtv、Gnews！](https://gtv.org/)***
-
-**西班牙2021年7月18日电/西喜社——**
-
-您若想了解全文报导内容，请点击标题链接
-
-1 [“腐败”的大科技在审查武汉实验室泄漏理由](https://www.skynews.com.au/opinion/big-tech-rotten-for-censorship-of-wuhan-lab-leak-theory/video/afaa739c13798a171186c48da171fd2e)
-
-据澳洲《天空新闻》（skynews)2021年7月16日电，《天空新闻》主持人詹姆斯·莫罗表示，作为西方权威的核心——脸书和整个医疗机构（包括世卫组织），他们早期禁止人们谈论中共病毒来自武汉实验室泄漏，并采用媒体平台封号和取笑的措施对言论自由进行打击。他们通过封号等手段，一次又一次证明自己是腐朽的。世卫组织在周四改口否认了自己早先提出武汉实验室泄漏“不成熟”的说法后，便改变了社交媒体的游戏规则
-
-2 [拜登指责脸书在审查制度中“杀人”](https://nypost.com/2021/07/16/psaki-white-house-in-touch-with-facebook-to-push-true-narratives/)
-
-据《纽约邮报》（nypost)2021年7月16日电，白宫新闻秘书珍·普萨基（Jen Psaki）告诉记者，拜登政府正在“定期”与脸书等大科技公司进行协商，禁止美国人发表反接种疫苗的“错误言论”，并将公开发表“误导疫苗信息”的个人信息。脸书早期封杀了“实验室泄漏理论”言论，如今表示，普萨基在白宫新闻发布会敦促大科技公司加强言论管控的评论“没有事实支持”。前总统川普律师约翰科尔表示，诉讼将证明社交媒体公司 [是“政府执行机关”](https://nypost.com/2021/07/07/donald-trump-to-sue-mark-zuckerberg-jack-dorsey-report/)，因此，“宪法第一修正案”（禁止政府剥夺言论自由）确实适用于他们的行为
-
-3 [白宫使脸书武器化以审查中共病毒的“误导信息”](https://nypost.com/2021/07/15/white-house-flagging-posts-for-facebook-to-censor-due-to-covid-19-misinformation/?utm_source=twitter_sitebuttons&amp;utm_medium=site%2520buttons&amp;utm_campaign=site%2520buttons)
-
-据《纽约邮报》（nypost)2021年7月15日电，美国前总统川普上周对脸书、推特和油管提起诉讼，这些公司被美国政府官员拉拢、胁迫和武器化，成为代表拜登政府非法、违宪审查的“白宫执行机关”。近日，外科医生穆尔蒂和新闻秘书普萨基在白宫新闻发布会上表示，68%的美国人都接种了疫苗，拜登政府命令各大媒体禁止美国人在其社交媒体上发布疫苗 “杀人” 的言论。这或许代表拜登政府违反了宪法第一修正案
-
-4 [“Pingdemic”——拜登政府制造的另一个混乱](https://www.spiked-online.com/2021/07/16/the-pingdemic-another-mess-of-the-governments-making/)
-
-据《刺突新闻》（spiked)2021年7月16日电，英国人一直是自去年以来，世界上最热情使用Pingdemic这款应用程序的人，下载量在11月超过2000万次。政府去年[将蓝牙接触追踪技术的控制权让给](https://www.spiked-online.com/2021/04/13/how-privacy-activists-sold-our-sovereignty/)了谷歌和苹果，这是没有自信的政府采用威权政策联合大科技公司发起，追踪个人疫苗。病毒并不是来自大科技公司的技术，借他们的手段强制打疫苗的措施是错误，更多人正在删除该应用程序
-
-5 [参议员霍利向推特和脸书首席执行官发送了严厉的信息](https://www.westernjournal.com/sen-hawley-sends-scathing-message-twitter-facebook-ceos-shocking-admission-collusion-biden-admin/)
-
-据《西方日报》（westernjournal)2021年7月16日电，霍利周四（15日）晚上还在推特上向脸书发了一封信：拜登政府显然与脸书协商审查言论，并逃避第一修正案。我正在向脸书寻求答案。他向脸书CEO表示，第一修正案是神圣不可侵犯的，拜登政府显然超越权限招募私人商讨“警察”业务，以违法压制美国的言论自由。最后，要求脸书公开拜登政府要求脸书员工举报的社交媒体帖子和内容的完整说明；公开拜登政府要求脸书从其平台上删除的帖子和内容的完整说明；公开脸书由于拜登政府的要求删除了哪些帖子和内容
-
-审核：蚂蚁兄弟； 校对：阿伯塔； 发稿：Nuevo唐人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/FQZefF2kZIXxZ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/FQZefF2kZIXxZ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
-+1
+0
