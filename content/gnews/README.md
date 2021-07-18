@@ -70,40 +70,40 @@
 ### [【世事解评】滴滴事件——背后大BOSS是谁](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【澳洲热点】短视频：中共国再派间谍船偷窥澳美军演](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
+### [【粤语配音】杰森·米勒：Gettr将会是一个真正捍卫言论自由的平台](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [被社会主义铁拳砸醒的“自干五”女子](/content/gnews/20/README.md)
+### [疯了！《六军韬略》叫嚣不惜发动核战坚决把日本灭国](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [【澳洲热点】短视频：总理莫里森要求对新冠病毒起源给出解释](/content/gnews/21/README.md)
+### [【澳洲热点】短视频：中共国再派间谍船偷窥澳美军演](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵精品视频-中共末世的党外抢钱党内清洗之孙力军篇](/content/gnews/22/README.md)
+### [被社会主义铁拳砸醒的“自干五”女子](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [【字幕】7/17/2021文贵盖特：共产党的内部的政治斗争……已经到了最后的阶段](/content/gnews/23/README.md)
- ` Caihongqiao`
-
-### [7/14/2021 郭先生揭穿蛇妖闫、亡腚缸、博士团和假军人塞林这帮骗子的真面目](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [【澳洲热点】短视频：中共国再派间谍船偷窥澳美军演](/content/gnews/25/README.md)
+### [【澳洲热点】短视频：总理莫里森要求对新冠病毒起源给出解释](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国有线电视新闻网报道，拜登官员认为实验室泄漏“至少与自然起源一样可信”](/content/gnews/26/README.md)
+### [郭文贵精品视频-中共末世的党外抢钱党内清洗之孙力军篇](/content/gnews/24/README.md)
+ ` 澳喜农场`
+
+### [疯了！《六军韬略》叫嚣不惜发动核战坚决把日本灭国](/content/gnews/25/README.md)
+ ` 澳喜农场`
+
+### [拜登发表 “杀人”言论后，白宫加倍严厉批评Facebook](/content/gnews/26/README.md)
+ ` 经济金融组`
+
+### [【澳洲热点】短视频：中共国再派间谍船偷窥澳美军演](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国有线电视新闻网报道，拜登官员认为实验室泄漏“至少与自然起源一样可信”](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】邮件显示中共用钱“收买”亨特·拜登](/content/gnews/27/README.md)
+### [【秘翻在线】邮件显示中共用钱“收买”亨特·拜登](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】韩国将把驱逐舰上受病毒感染的海员们带回家](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】选举欺诈坐实，推特好日子到头了](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】普萨基：古巴的共产主义是“失败的意识形态”](/content/gnews/30/README.md)
+### [【秘翻在线】韩国将把驱逐舰上受病毒感染的海员们带回家](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [2021/07/18 英喜时事速递](/content/gnews/31/README.md)

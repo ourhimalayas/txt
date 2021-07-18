@@ -2,32 +2,50 @@
 ---
 
 
-## 【澳洲热点】短视频：总理莫里森要求对新冠病毒起源给出解释
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1403225/)
+## 【澳洲热点】短视频：中共国再派间谍船偷窥澳美军演
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1404018/)
 
 #### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-#### **翻译：文扬**
-**校对/编辑：文泓**
-**听写核对：枳实**
-**视频字幕：七彩光**
+#### **翻译：奮鬥**
 
-![](https://lh5.googleusercontent.com/X76I5PkLjvbRDVSFmlUzJ3LIuUPsUyFTwVm4CeH53itNxkyTF95VGCUHzKVO_njMA1tgax5Khc8YFiG-tjwADIOAqtF22zsUn9fXK0kWBYL4i-Cr4otGjuROiP6YWlXtrObTP3484G09ZkBxvQ)
+#### **校对：文泓**
 
-图片来源：South China Morning Post
+#### **听写核对：枳实**
 
-关于病毒起源，回顾以往，昨天世界卫生组织总干事承认曾经过早地排除了疫情起源于武毒所实验室泄漏的可能性。对此你有何反应？你是否认为已经（对疫情溯源）进行了足够彻底的调查？
+#### **视频字幕：七彩光**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18061655/1-126.jpg)
+**图片来源：Daily Mail**
 
-嗯，一直以来澳大利亚只是简单的想知道（结果），这是为了全世界的健康福祉，与政治无关。
+**背景介绍：**
 
-到底发生了什么？我们怎样才能防止它再次发生？这只是一个澳大利亚人真诚地提出的问题，并真诚地寻求各方合作以找出答案。当然，我们不知道这个实验室是否就是大疫情的起源，很可能是，也可能不是，我没有任何看法。我没资格做出这样的判断。但澳大利亚一直寻求实现的是，了解整件事的来龙去脉，这样我们才能更好地保护这个世界免于发生下一次大疫情的侵害。这次大疫情已经摧毁了数百万人的生命，摧毁了更多人的生计，把整个世界都弄得一团糟。这只是一场如此可怕的大瘟疫，而且情况还在继续恶化。在英国的每日新增病例已经超过 40,000 个。在印度尼西亚和斐济每天有 47,000 个病例，我们现在在那里有一个医疗团队。他们现在一直在提供不同的额外疫苗来支持他们。这是非常，非常可怕的大瘟疫。世界需要答案，这个世界有权得到这个答案，那些失去生命和生计的人。他们有权得到答案。澳大利亚将继续提出问题以获得这些答案。
+7月14日，美澳“护身军刀2021”大规模军演已在澳大利亚周边海域拉开帷幕，参演部队来自美、澳、新、日、韩、英，总兵力约为17000人。自 2005 年以来，“护身军刀”演习每两年举行一次，五角大楼及其太平洋司令部将其视为在亚洲地区举行的最重要的演习之一，演习主要目的是实施区域封锁的练习，重点是反潜和防空演习。
 
-原文链接：[Scott Morrison demands answers over COVID origins after WHO Wuhan lab leak concession | Sky News Australia](https://www.skynews.com.au/australia-news/politics/scott-morrison-demands-answers-over-covid-origins-after-who-wuhan-lab-leak-concession/news-story/b0f36abb176d41fb2c5d77d3846cbf79)
+两年前的演习“天王星”号赶来监视，今年的演习，中共国派遣两艘间谍船“天王星”和“海王星”号。“天王星”号间谍船是中共国815级，“海王星”号是813级电子侦察船。均配备先进的通讯系统，具备精准搜集和拦截无线电信号的功能，而且其电磁兼容性和自动化程度较高，电磁波信号的监听数据收集、分析和处理能力较强，还具备卫星侦察能力。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+今年“2021护身军刀”澳美大规模军演，中共国两艘间谍船不请自到，如此心虚害怕，是在担心多国联军南海强拆吧？
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**译文：**
+
+天空新闻证实，正值澳美重大军事演习展开之际，第二艘中共国间谍船正在靠近澳大利亚水域。中共解放军电子侦察船“海王星号”，目前正通过所罗门海域接近澳大利亚东海岸。
+
+国防部长彼得·达顿（Peter Dutton）表示，作为更广泛监视工作的一部分，澳大利亚国防军（ADF）一直在监测该船的接近，预计它将进入“护身军刀”军事演习的附近。
+
+达顿先生说，这艘船就像第一艘姐妹船一样，过境期间表现得很合法，澳大利亚国防军希望它能继续这样做。
+
+在天空新闻的一份声明中，他说，国防部将对这些船只继续监测。我了解到，国防部对“护身军刀”演习中可能发生的国际冲突已有准备，并已采取措施保障参与部队的信息和安全。
+
+以前曾有一艘中国间谍船试图监视澳美军事演习，但这是第一次部署两艘电子侦察船。
+
+更多内容，请在明天东部时间上午8点收听基兰·吉尔伯特的周日议程。
+
+原文链接：[Second Chinese spy ship en route to Australia ahead of US military exercises | Sky News Australia](https://www.skynews.com.au/australia-news/defence-and-foreign-affairs/second-chinese-spy-ship-en-route-to-australia-ahead-of-us-military-exercises/video/78c3e7bf84acde8c9d628df707cc087e)
+
+**更多资讯，请关注：**
+
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena    [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU) [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
 +1
