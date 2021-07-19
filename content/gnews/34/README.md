@@ -2,24 +2,39 @@
 ---
 
 
-## “世界上最热衷熊市的对冲基金”做空科技股
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1406477/)
+## 【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1406634/)
 
-2021年7月19日
+#### 雅典娜【聚焦澳洲】，汇聚澳洲时事分析报道
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19084447/04CFBC61-C2AF-4E6B-8A36-F46E6284A866_w1023_r1_s-6.jpg)
+#### 翻译：奮鬥
+编辑：枳实
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19095152/%E6%97%A0%E6%A0%87%E9%A2%98.png)
+澳洲天空电视播放了一段在中国共产党的频道中流传的新视频，该视频中警告，如果东京对台湾进行军事干预，中共将在“全面战争”中用核武器摧毁日本。新视频特别针对日本，威胁说它将成为中共不对无核国家使用核武器的既定政策的 “例外”。
 
-在过去十年中，五大科技公司，FAAMG，在结束科技泡沫的呼声中壮大，向来以其准确的市场时机预测而闻名的Ned David Research，也在近期落马。两个月前，就在在科技股撕开熊市并形成14%的反弹之前，该机构对科技股发起做空。接着，就在上周末五大科技公司经历大跌时，该公司的策略师放弃了他们的减持立场。但考虑到上周的协调性下跌，我们很可能面临3月以来的第一次市场崩溃。
+“我们将首战用核弹。我们将持续用核弹。我们将这样做，直到日本第二次宣布无条件投降，”视频中说。”当我们解放台湾时，如果日本胆敢武力干涉，即便它只出动一兵一卒，一机一舰我们不仅会还击，还会对日本本土发动全面战争。”该视频最后指出。”不会有和平谈判”。
 
-**【[新闻来源](https://www.zerohedge.com/markets/worlds-most-bearish-hedge-fund-goes-short-tech?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)】**
+在日本政界人士公开加倍强调日本对台湾主权的承诺后，东京和北京之间的紧张关系最近急剧上升。”副首相麻生太郎说：”在我们与美国的联盟下，我们必须保卫台湾。国防部长中山泰秀补充说，日本和美国必须 “保护作为民主国家的台湾”。日本上周发布的《2021年日本防卫白皮书》–其中提到了台湾稳定的重要性–也激怒了中共国。
 
-* * *
+中共国外交部发言人赵立坚在上周的评论中敦促日本调整其 “心态”。“我们再次敦促日本以正确的心态处理相关问题，体现对中国主权的尊重和对维护地区和平与稳定的诚意。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+“我必须强调，台湾是中国的一部分，台湾问题纯粹是中国的内政。中国从不允许任何国家以任何形式干涉台湾问题。””中国必须而且将会统一。中国的完全统一对地区和平与稳定最为有利。”
 
+然而，这段视频——出现在一个由中共批准的、与中共解放军关系密切的频道上——在其回应中并没有没有这种外交辞令式的善意或委婉。它要求中共政府放弃其 “不首先使用”核武器政策。”1964年，当我们的第一颗原子弹被成功引爆时，我们向世界承诺，我们不会对无核国家使用原子武器，我们也不会成为首先使用原子武器的国家，”旁白指出。”近60年过去了，现在国际形势已经发生了翻天覆地的变化。我国正处于一个重大的变革之中。必须调整一切政治政策、策略和战略，以保障我国的和平崛起。”有必要对我们的核政策进行有限的调整。”
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+这段5分钟的视频现已被撤下，它曾吸引了数百万人观看，这并不是第一个受到官方认可的威胁攻击西方的视频。中国人民解放军去年发布了一段征兵视频，展示了一架H-6K轰炸机模拟对美国关岛基地的打击。
+
+澳大利亚国立大学战略与防务研究中心的斯蒂芬-弗鲁林(Stephan Fruhling)教授在接受news.com.au采访时认为，该短片中表达的情绪不太可能得到北京更有权力的政治干部的公开附和。”我的感觉是，他们会压制这种言论，因为这只会加强美国在印太地区更多仰仗核武器的理由。”
+
+然而，弗鲁林教授补充说，中国对日本或美国使用核武器来解决’台湾问题’的可能性是 “非常真实的”。”在我看来，如果（北京）认为对日本或美国使用核武器会会影响台湾战争的胜负，那么他们对使用核武器的可能性是非常真实的。”
+
+原文链接：[CCP sanctioned video threatens China will nuke Japan in a ‘full-scale war’](https://www.skynews.com.au/world-news/china/ccp-sanctioned-video-threatens-china-will-nuke-japan-in-a-fullscale-war/news-story/dd3ce2fdab6e83fa77025eb5c3d23803)
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
 0

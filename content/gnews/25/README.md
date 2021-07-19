@@ -2,47 +2,23 @@
 ---
 
 
-## 【新闻快讯】中共国对挪威议会进行了网络攻击
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407068/)
+## 中共国黑客攻击让白宫陷入困境
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1407110/)
 
-作者：香草山健身部 文真
+华盛顿7 月 19 日（路透社 Breakingviews）——当中共国与美国公司发生冲突时，白宫可以使用三个工具：羞耻、关税和制裁。只有最后一个可能有效，而且最难部署。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+周一，美国、欧盟、日本和其他盟国呼吁北京对微软 (MSFT.O) 电子邮件软件进行黑客攻击，影响了数千家企业。不过，谴责不太可能超过获取商业机密的好处。正如财政部长珍妮特耶伦上周指出的那样，关税可能是另一种选择，但它们也伤害了美国消费者。
 
+与此同时，制裁在过去一直有效。 2015 年奥巴马政府采取行动，切断从美国金融系统黑客中受益的中共国公司，直到北京承诺控制网络攻击。这奏效了一段时间，但在川普于 2017 年上任后入侵再次抬头。
 
+问题在于，中共国很容易对制裁进行报复。像苹果 (AAPL.O) 或星巴克 (SBUX.O) 等在那里占有一席之地的品牌可能会受到伤害。当然，华盛顿可以惩罚个别勒索软件组织。但总的来说，公司将在很大程度上加强自己的防御。黑客攻击的目标是脆弱公司的利润率。 （吉娜·琼）
 
-挪威外交部长伊内·埃里克森·索雷德（Ine Eriksen Soereide）周一表示，3月10日对北欧国家议会电子邮件系统的网络攻击是从中共国进行的，她敦促中共当局采取措施，防止今后发生类似行动。
+新闻来源：[reuters](https://www.reuters.com/breakingviews/china-hack-backs-white-house-into-corner-2021-07-19/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19124345/%E5%9B%BE%E7%89%8757.png)
+编译： Boxinglady
 
-据路透社报道，挪威外交部长在一份声明中说：“这是一起严重的事件，袭击了我们最重要的民主机构。”
+校对发稿：法图麦
 
-挪威外交部长补充说，该国情报部门调查显示，这次攻击是由中共国实施的，并且挪威的几个盟友，包括欧盟和微软，也证实了这一结论。
-
-这次攻击利用了微软Exchange软件的一个安全漏洞。
-
-索雷德说：“中共政府必须防止这种攻击。” 她补充说，她希望中国能非常认真地对待这个问题。
-
-据索雷德称，中共国驻挪威大使已于周一被召见，直接讨论此事。
-
-引用：
-
-[https://insiderpaper.com/china-carried-out-cyber-attack-on-norways-parliament/](https://insiderpaper.com/china-carried-out-cyber-attack-on-norways-parliament/)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+本文只代表个人观点，不代表 Gnews 平台
 
 0

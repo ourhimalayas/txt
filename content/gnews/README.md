@@ -31,13 +31,13 @@
 ### [外国的月亮比较圆？中共外宣新武器：外籍网红](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月19日 文贵先生盖特 3](/content/gnews/6/README.md)
+### [2021年7月19日 文贵先生盖特 5](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
+### [2021年7月19日 文贵先生盖特 4](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月19日 文贵先生盖特 1](/content/gnews/8/README.md)
+### [2021年7月19日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/9/README.md)
@@ -88,35 +88,35 @@
 ### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【新闻快讯】中共国对挪威议会进行了网络攻击](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [【秘翻在线】 欧洲通膨来了?](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【新闻速递】中共国被控对微软Exchange服务器进行网络攻击](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
-
-### [全球领导人寻求新的技术伙伴关系以应对中（共）国带来的威胁](/content/gnews/28/README.md)
- ` 澳喜农场欧洲部`
-
-### [杰布·布什要求拜登拆除古巴防火墙](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [美国和盟国指责中共国进行全球黑客攻击](/content/gnews/30/README.md)
+### [中共国黑客攻击让白宫陷入困境](/content/gnews/25/README.md)
  ` 索尼克`
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/31/README.md)
+### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/26/README.md)
+ ` 索尼克`
+
+### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/27/README.md)
+ ` 索尼克`
+
+### [【新闻快讯】中共国对挪威议会进行了网络攻击](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [【秘翻在线】 欧洲通膨来了?](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【新闻速递】中共国被控对微软Exchange服务器进行网络攻击](/content/gnews/30/README.md)
+ ` 纽约香草山MOS02`
+
+### [【秘翻在线】中共会想念老朋友安吉拉·默克尔](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【香港快讯】 7月19日 港府宣布入境条例8月生效 「预先通报旅客资料系统」稍后落实](/content/gnews/32/README.md)
+### [【香港快讯】 7月19日 港府宣布入境条例8月生效 「预先通报旅客资料系统」稍后落实](/content/gnews/33/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/33/README.md)
+### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
-
-### [“世界上最热衷熊市的对冲基金”做空科技股](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -127,8 +127,8 @@
 ### [【粤语配音】活在中共统治的中国人都是奴隶](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【世事解评】欧盟委员会多国提出抗衡中共国“一带一路”计划](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
+### [2021/07/15 参议员HAWLEY：提供真相和疫苗接种途径，人们自己选择](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [7/19/2021 财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；美国向企业发出关于香港风险的警告](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
