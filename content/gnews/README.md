@@ -31,13 +31,13 @@
 ### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭爆料串珠（322）中共高官的性变态视频，看完你就不想活了](/content/gnews/6/README.md)
+### [2021/07/19-001 文贵先生盖特精要](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭爆料串珠（322）中共高官的性变态视频，看完你就不想活了](/content/gnews/7/README.md)
  ` 郭爆料串珠`
 
-### [郭爆料串珠（321）共产党灭亡后，谁会当中国领导人？](/content/gnews/7/README.md)
- ` 郭爆料串珠`
-
-### [郭爆料串珠（320）G系列是全世界最敢讲真话的媒体，连美国政府都做不到](/content/gnews/8/README.md)
+### [郭爆料串珠（321）共产党灭亡后，谁会当中国领导人？](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
 ### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/9/README.md)
@@ -70,23 +70,23 @@
 ### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/19/README.md)
+### [古巴妇女揭露古巴政权有多邪恶](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/20/README.md)
  ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [法国纪录片《习近平的世界》节选: 台湾是民主的典范，让北京无法忍受](/content/gnews/20/README.md)
+### [法国纪录片《习近平的世界》节选: 台湾是民主的典范，让北京无法忍受](/content/gnews/21/README.md)
  ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [亡腚缸和蛇妖闫](/content/gnews/21/README.md)
+### [亡腚缸和蛇妖闫](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/22/README.md)
+### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/23/README.md)
+### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/24/README.md)
  ` MOSREC`
-
-### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [由于担心冠状病毒变异，美国股市暴跌](/content/gnews/25/README.md)
  ` 索尼克`
@@ -106,17 +106,17 @@
 ### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/31/README.md)
+### [美国起诉四名中共特工](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】中共会想念老朋友安吉拉·默克尔](/content/gnews/32/README.md)
+### [【秘翻在线】中共会想念老朋友安吉拉·默克尔](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/33/README.md)
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [【香港快讯】 7月19日 港府宣布入境条例8月生效 「预先通报旅客资料系统」稍后落实](/content/gnews/34/README.md)
- ` 喜馬拉雅-粵語組`
 
 ### [中共国危机：中共军事威胁适得其反，习近平政权“可能很快崩溃”](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`

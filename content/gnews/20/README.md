@@ -2,11 +2,11 @@
 ---
 
 
-## 法国纪录片《习近平的世界》节选: 台湾是民主的典范，让北京无法忍受
-` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1407192/)
+## 法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡
+` 英国伦敦喜庄园法语 Himalaya London Club UK-FR` [轉載自GNews](https://gnews.org/zh-hans/1407214/)
 
-#### Transcription: Ikonic Traduction: Lina
-Relecture: Ikonic Sous-titrage: Vékap
+#### 听写：Ikonic 翻译：Miao
+校对：Ikonic 字幕：Vékap
 
 * * *
 
