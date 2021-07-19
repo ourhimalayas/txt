@@ -2,29 +2,27 @@
 ---
 
 
-## 【观点】中共病毒疫苗的次生灾害正在美国发生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1389592/)
+## 【拆台新闻】如蜡烛被极权体制燃尽的乡村教师
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1402718/)
 
-作者：小红帽
+作者：紫橄榄
 
-编辑：翼族
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205445/image4-5.png)图片来源：雅典娜农场设计组（精灵蓝）
-自从中共病毒肆虐全球以来，在美国累计[造成61.1万人死亡](https://en.wikipedia.org/wiki/Template:COVID-19_pandemic_data)，超过3389万人受感染（数据截止到7月10日）。美国疫情的严重性，导致民众纷纷选择注射中共病毒疫苗以避免感染中共病毒，但是美国民众不知道，中共病毒疫苗根本不是救人的。相反，因为注射疫苗而造成死亡的案例比历史上的任何时期都要多。
+2021年7月16日，中共国举国家机器以党控制的媒体对全民百姓大肆洗脑与宣传： “ 七一勋章获得者，点亮乡村女孩人生梦想的优秀人民教师、全国优秀共产党员 — 云南丽江华坪女子中学校长张桂梅。常年超负荷的工作让张桂梅身患20多种疾病，但她依然坚守在这里，像一盏灯照亮孩子们的梦想。”
 
-近日，美国疾病预防控制中心报告揭露，[有9048人在注射中共病毒疫苗后死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)。这是美国疾病预防控制中心于7月2日在疫苗不良事件报告系统[（VAERS](https://vaers.hhs.gov/)）中发布的最新数据。VAERS系统是由美国政府资助的数据库，用于追踪由疫苗引起的伤害和死亡案例。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205514/image1-2-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-数据显示，除了9048例死亡案例外，还有7463例永久性残疾， 7822例危及生命，其中最吓人的是，竟然有高达56915例急诊案例。
+此文信息的“壮志豪情”以红色革命的鸡汤精神，忽悠中国民众继续成为极权控制下的现代奴隶。 现在的网络时代，哪怕中共国红色网络防火墙筑起有万米之高，有思想与智慧的民众也能慧眼识出被当蜡烛燃尽的乡村教师的一生之悲…….
 
-这份报告从2020年12月开始统计注射中共病毒疫苗后的死亡人数,短短7个月内接种中共病毒疫苗后死亡的数据,比起前30年（从1991年1月1日至2020年11月30日）所记录的接种疫苗后的死亡总数（[6045例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;PERPAGE=400&amp;DIED=Yes&amp;VAX_YEAR_LOW=1991&amp;VAX_YEAR_HIGH=2020&amp;VAX_MONTH_HIGH=11)）还要多。很明显，中共病毒疫苗的毒性比传统的疫苗强很多。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205600/image2-1-1.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-更让人无法接受的是，美国疾病预防控制中心竟然不阻止孕妇注射这些疫苗。截至到7月2日，最新数据显示有[994名](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5b%5d=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5b%5d=Abortion+%2810000210%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5b%5d=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5b%5d=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5b%5d=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5b%5d=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5b%5d=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5b%5d=Foetal+death+%2810055690%29&amp;SYMPTOMS%5b%5d=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5b%5d=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5b%5d=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5b%5d=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5b%5d=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5b%5d=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5b%5d=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5b%5d=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5b%5d=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5b%5d=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5b%5d=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5b%5d=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5b%5d=Premature+baby+%2810036590%29&amp;SYMPTOMS%5b%5d=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5b%5d=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5b%5d=Premature+labour+%2810036600%29&amp;SYMPTOMS%5b%5d=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5b%5d=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5b%5d=Stillbirth+%2810042062%29&amp;SYMPTOMS%5b%5d=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19)未出生的孩子在其母亲注射中共病毒疫苗后流产。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/10205639/image3.jpg)报告来源 ：medalerts.org 数据来源：VAERS
-一位获奖的美国[脊柱外科医生和外科医生协会的前主席](https://humansarefree.com/2021/02/respected-doctor-who-studied-bioweapons-believes-covid-19-jabs-are-a-form-of-weaponized-medicine.html)曾发声，认为目前的中共病毒疫苗是针对人们部署的危险“生物武器”。非常遗憾的是，这并没有引起更多美国人的注意。很多人仍然相信主流媒体的宣传，选择打疫苗。
+”七一勋章” 是中共授予其党员的一种勋章，是现行中共国功勋荣誉制度中最高的一级，可对其党员进行宣传与立杆，共产党内的“标杆”来做中国人的标杆？这不正是中共极权统治与强行脑控中国人的一种实证吗？这就是中共从民国政府抢夺国家政权之70年以来，中共以其党替代中国的强盗逻辑与结果。
 
-爆料革命吹哨人郭文贵先生和闫丽梦科学家曾多次警告，中共病毒根本没有疫苗。但是被共产党深度渗透的美国各界似乎还在继续执行共产党的“中共病毒疫苗战”计划。笔者不禁联想到之前“[盖茨基金会资助华大基因，病毒测试“采集”美国人DNA数据](https://gnews.org/zh-hans/1182242/)”一案。中共是否正在和盖茨基金会全面展开减少世界人口的计划？在全球追责中共投放“生化武器”之际，这疫苗闹剧还要折腾多久？但愿美国人民以及全世界人民早日醒觉并认识到中共的邪恶。
+中共让全民学习乡村教师蜡烛燃尽的精神，就是一个宣传国人成为奴隶的新方式，在中共“百年送终”庆典中，控制乡村弱势群体更加快速。而这个信号是大批的大学生毕业后就业困难，各层失业率急剧上升的社会矛盾的突显，更是转移城市突显的失业加剧的社会矛盾。
 
-毕竟留给人类的时间不多了，我们要尽快消灭共产党！
+中共国意在引导大学生毕业后到偏远地区工作，不是从事自己所学的专业，学非所用当起“老师”又对村民的后代一代又一代地洗脑，将这些百姓的后裔世代为奴，弱化贫民化，以垄断农村地区的土地及生态资源，将边远地区封闭起来进行永久的奴隶制生活。
 
-（文章仅代表作者个人观点）
+中共国把乡村老师当中共对全民乡村儿童的洗脑工具，在2014年中共国的教师生存现状**：八成以上教师反应工作压力大，工作繁重；六成以上教师实际工资收入集中在1001-3000元之间，3001-5000元的只占32%；九成以上对实际工资收入不满意。[（数据来源BBC](https://www.bbc.com/zhongwen/simp/indepth/2014/09/140910_ana_china_teachers_day)**）乡村教师必须从早上睁开眼睛干到晚上，日复一日，常年超负荷的工作，不请假不休假，在没有医疗保障与养老体制之下，不得不付出一生的脑力工作，“廉价”的工作岗位，最终使他们身患“20多种疾病”，这是中共极权体制下压榨老师们的血汗所致，中共还拿到党媒上宣传，从另一层面上展示了中共的邪恶罪行。
 
-+2
+总之，中共独裁的逆向淘汰制度，永远不会有合理分配社会资源的制度，而边远地区被二元制度边缘化的公民，更是进入封闭的现代奴隶生活，让百姓平民拼上老命为一日三餐而奔波，不再有自由与思考的能力，华夏人民走向倒退的与世界文明相背的进程。中共更要举中共国之力更强化地进行全民的心灵鸡汤、灌输洗脑，以延续中共的另一个百年。但现在的国际形势，追讨中共发起生物超限战的责任，消灭中共犯罪组织的大潮已经形成……
+
+校对发稿：Ada(马德里）
+
+（本文系作者个人观点，不代表GNEWS平台）
+
+0

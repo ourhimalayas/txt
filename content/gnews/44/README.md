@@ -2,47 +2,47 @@
 ---
 
 
-## 五毒攻心，无药可救
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1405039/)
+## 马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1405222/)
 
-作者：小红帽
-编辑：守望黎明
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18193405/7.19-2.jpg)
-图片来源：Gnews图片
+翻译：烟波浩淼 |校对：雨山溪桥客
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18221635/Picture1-63.png)图片来自网络
+上周六，数千名抗议者走上巴黎街头，抗议法国总统马克龙新的强制实施疫苗护照的措施。
 
-佛家把人性中的恶念归结为五毒心，即贪、嗔、痴、慢、疑。这五种心态如果不加戒除任意发展，便会使人泯灭良善之心，进而做恶甚至走向万劫不复。这次亡腚肛和蛇精闫狼狈为奸，背叛和攻击文贵先生和爆料革命的事件，一下子暴露了两人丑恶的面目。静心回想，那个亡腚肛假意跟随爆料革命多年，却早已身中五毒，无药可救，发作只是迟早的事。
+马克龙最近宣布，要进入餐馆和剧院，必须持有中共病毒护照。
 
-**1、贪—亡腚肛的贪财、好色**
+马克龙还宣布了一项针对所有医护人员的强制性疫苗新规定。
 
-亡腚缸的贪色令人嗔目。他先是贪恋第一任妻子家的财势做了上门女婿，借女方家的资助搞起了自己的企业。成家立业后的亡腚肛并不消停，婚内出轨又玩起了婚外情。这还不算完，他还忙里偷闲，把公司前台小姐的肚子搞大了…… 除了不记名的小三，总计有过三个老婆六个娃的亡腚肛雄心不减，在与闫妖见面没多久，又与她勾搭成奸。情债累累的他在色字上的贪婪真是非同一般。
+到法国旅游的游客将不得不通过数字护照出示疫苗接种证明或中共病毒检测阴性。
 
-除了贪色他同样贪财。草根小哥先后多次给他的节目打赏，亡腚肛提起这事满脸不屑：那个打赏一次只有50万日元，不是50万美金！意思是嫌给少了。
+新的中共病毒护照措施将于8月份开始实施。
 
-**2、嗔—对爆料革命心怀怨恨**
+周六，抗议者聚集在皇家宫广场。
 
-亡腚缸尽管隐藏的很深，但从他砸锅之后的恶毒言辞可以看出，他对爆料革命有一种畸形的怨恨。他蔑视GTV和盖特，认为所有的流量都是弄虚作假造出来的。他恶意揣度G系列投资，认为那就是圈钱骗财。他甚至和那个“洋爹”塞林一唱一和，污蔑新中国联邦是极端组织，是邪教。亡腚缸不仅诬陷郭文贵先生是中共特务，还诋毁郭先生要将爆料革命的追随者带到反共的大船上并绑架战友不让离开，然后设法将船凿沉彻底消灭海外的反共力量，自己再伺机弃船逃跑。一个跟随了爆料革命三四年的人，天天赞歌不断，心底里却埋藏着如此刻骨的邪恶看法，亡腚肛的心理扭曲达到了变态的地步。
+视频：
 
-**3、痴-亡腚肛恩将仇报，是非不分**
 
-亡腚肛跟随了四年的爆料革命，照常理无论他当初加入的动机如何，总该对爆料革命在海内外的支持度和广泛人脉有一个较深的体会，对于它在灭共事业中的中流砥柱地位总该有一个起码的了解，更应该明白中共已经走到了穷途末路。在这个时候，他竟然与蛇精闫沆瀣一气，为了一点蝇头小利选择与中共合作，企图灭掉爆料革命，真是既自不量力又愚不可及。还有那个“洋爹”塞林上校，因触犯法条连美国都不敢回，楞是被路大脑袋当成了自己的大靠山，还把他捧成了可以调动千军万马的大神，说他随时可以派出头戴绿色贝雷帽的特种部队，干掉任何敢对他们一伙人说三道四的人。这种荒唐至极的故事要痴呆到什么程度才能想得出来啊！
 
-**4、慢-自我膨胀，想独吞爆料革命成果**
+> 🔴🇫🇷 Manifestation à [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) , La place est déjà pleine . [#paris](https://twitter.com/hashtag/paris?src=hash&amp;ref_src=twsrc%5Etfw) [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#DictatureSanitaire](https://twitter.com/hashtag/DictatureSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#Manif17juillet](https://twitter.com/hashtag/Manif17juillet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PU6wiwD9JG](https://t.co/PU6wiwD9JG)
+> — Thibault Penet Officiel (@ThibaultPnt\_76) [July 17, 2021](https://twitter.com/ThibaultPnt_76/status/1416371048040304640?ref_src=twsrc%5Etfw)
 
-有人会问亡腚肛和蛇妖闫什么时候开始自我膨胀，生歹心呢？自打在2020年1月19日爆出蛇妖闫提供的病毒来源消息之后，亡腚肛在自己的节目中反复提及这一“伟大”事件，沉醉在自己是揭露病毒真相的首功之臣的得意之中，蛇妖闫更是被他捧为揭露病毒真相的唯一英雄，是全世界的大救星。面对突如其来的赞赏和荣誉，闫王二人私欲极度膨胀，觉得自己在国际上出名了，可以不受任何控制，也无须再把为自己提供了巨大帮助和支持的爆料革命和新中国联邦放在眼里。在这种私欲爆棚的心态之下，中共稍一收买利诱，就把他们引上了灭掉爆料革命并取而代之的末路狂奔，公开向爆料革命发起了挑战。
 
-**5、疑-行事多疑**
+抗议者挤满巴黎街头，要求马克龙辞职，并高呼“通行证不会通过！”
+视频：
 
-郭文贵先生要把自己的大房子送给亡腚肛一家居住，对于房子的赠予合同，亡腚肛来来回回谈了五次，竟然相信那个“找爹”博博士的话，说这个合同有问题。郭先生的律师们都很奇怪，哪还有送房子还送出问题的道理？而这个疑神疑鬼的亡腚缸认定郭文贵先生的这个合同给他设了局，所以磨磨唧唧就是不肯签。这真是天意，他的疑心让他最终错失了得到郭先生房子的机会。
 
-爆料革命的宗旨是：不忘掉任何一个帮助过我们的人，滴水之恩涌泉相报；不忘掉任何一个伤害过我们的人，哪怕穷尽所有合法的手段都要讨回公道。亡腚肛贪、嗔、痴、慢、疑五毒俱全，最终背叛并恶毒地攻击爆料革命，成了所有正义战友的敌人。亡腚肛，可是真的要自取灭亡了。
 
-（文章仅代表作者观点）
+> « Liberté », « Macron démission », « le pass ne passera pas » scandent les nombreux participants à la [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) contre le [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) et le [#VaccinObligatoire](https://twitter.com/hashtag/VaccinObligatoire?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) dans les rues de [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/wFylro1zPM](https://t.co/wFylro1zPM)
+> — Morgan (@MorganRostagnat) [July 17, 2021](https://twitter.com/MorganRostagnat/status/1416411317041352704?ref_src=twsrc%5Etfw)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+原文作者：克里斯蒂·娜莱拉（Cristina Laila）
+发布时间：2021 年 7 月 17 日
+原文链接：[https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/](https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/)
+
+【本文仅代表作者个人观点，跟Gnews无关】
+
+编辑&发布：黎明的光芒
 
 0

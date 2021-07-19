@@ -2,23 +2,19 @@
 ---
 
 
-## 【NewsExpress】Zoom以150亿美元收购云软件提供商Five9
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1405223/)
+## 【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405268/)
 
-**翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18220833/28-6.jpg)
-路透社7月18日报道：电话会议服务提供商 Zoom Video Communications Inc (ZM.O)已达成协议，以约147亿美元的全股票交易收购云软件提供商 Five9 Inc (FIVN.O)。在一份声明中表示说Five9 将成为 Zoom 的一个运营部门，其首席执行官 Rowan Trollope 将成为 Zoom 的总裁并在交易完成后继续担任该部门的负责人，该交易预计将于 2022 年上半年完成。
+撰稿：William
 
-补充说，根据两家公司董事会批准的协议，Five9 股东的每股 Five9将获得 0.5533 股 Zoom A 类普通股。根据 Zoom A 类普通股 7 月 16 日的收盘价，这代表 Five9 普通股每股价格为 200.28 美元，隐含交易价值约为 147 亿美元。
+校对 :牛小妹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18222831/%E6%8B%9C%E7%99%BB-1.jpg)
+图／AFP
 
-自冠状病毒大流行以来，Zoom 已成为家喻户晓的名字和投资者的最爱，因为企业和学校采用其服务来举办虚拟课程、办公室聚会和社交活动。
+在拜登指责社交媒体巨头Facebook传递相关错误的冠状病毒疫苗信息“杀人”之后，白宫似乎没有松手对 Facebook 的严厉批评。一位消息人士7月17日向福克斯新闻(Fox News)透露，对Facebook 的公开指责是因为该平台未能消除网上有关疫苗接种会有危险的讯息。自 2 月以来，白宫一直在寻求 Facebook 和其他社交媒体网站的帮助，以阻止错误信息传播开来，例如接受注射会导致不育的后果。随着美国中共冠状病毒病例的增加和疫苗接种率的下降，白宫本周火急燎燎的启动了”打击错误信息”的行动，首先是美国卫生局局长维维克·默蒂(Vivek Murthy) 周四发出警告:”有关冠状病毒的虚假信息是虚假信息，是对公共卫生的紧急威胁。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+”虽然白宫与这家大型科技巨头表面发生公开争吵，但一些共和党人批评白宫对 Facebook”努力删除他们认为有问题的帖子”太过友善。白宫表面上批评脸书，暗地里与Facebook等科技巨头合作，压制人民反对疫苗的言论。最近成立一个众议院核心小组，旨在控制大型科技公司的德克萨斯州众议员兰斯古登7月17日告诉福克斯新闻。“拜登白宫当局与社交媒体巨头合作删除网路上他们认为的错误信息正受到强烈批评，法律界人士表示此举涉嫌违反第一修正案并已经提起调查要求。” 消息来源：
 
-**参考链接：**
+[https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks](https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks)
 
-[https://www.reuters.com/technology/zoom-buy-cloud-software-provider-five9-147-bln-deal-2021-07-19/?taid=60f4da504f7e8d0001f2aea5&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/zoom-buy-cloud-software-provider-five9-147-bln-deal-2021-07-19/?taid=60f4da504f7e8d0001f2aea5&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-***校对发布：文顾***
-
-0
++1
