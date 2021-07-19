@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 12:10 AM (UTC)`
+
+She is a lunatic and a liar
+![img](https://media.gettr.com/group8/getter/2021/07/19/00/c225403f-716e-bf6e-59e4-4df7c0c999bd/694f167f2e4cf187a4fa7365af9e043c.jpg)
+
+---
+
 `@miles 7/19/2021 12:03 AM (UTC)`
 
 跟着共产党走进火葬场．孙大午在双指期间所遭受的待遇，算是不错的啦．比文贵本人待遇高多了！还将有无数个私人企业家走向哪里！这叫前仆后继……只有消灭共产党……中国人民才能都得到解放！
@@ -308,14 +315,6 @@ G翻身又翻了一个身…… https://www.gfashion.com/zh/
 
 Thank you for the letter sent by a French friend Jean Michel to me through our fellow warriors.  We share the same feeling, but will never give up in pursuing the truth. No one should lie, spread rumors and exaggerate the truth about CCP virus. The corona-virus is certainly the biological and chemical weapon of the CCP,  but no one is allowed to gain benefits or get fame through this. This false Dr. Yan took advantage of all the support she received from the New Federal State of China and the whistle-blower movement. Instead, she helped the CCP escape accountability. Sellin, who was disenlisted by the US Army, was a mastermind behind it. We wondered if he was being bought and manipulated by the CCP. We will take legal action and let the world to see the truth.
 ![img](https://media.gettr.com/group36/getter/2021/07/14/19/b9213f68-306c-9387-8b65-1e3b13325698/3bccd85a7db75e9bb950509e363100d1.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@dineshdsouza 7/14/2021 2:00 PM (UTC)`
-
-This is the reality of life under communism.<br/>https://rumble.com/vjtye9-cuban-girl-reveals-the-harsh-truth-about-life-in-cuba.html?mref=23gga&amp;mc=8uxj1
 
 ---
 
