@@ -2,19 +2,32 @@
 ---
 
 
-## 【秘翻在线】中共港澳办以老套路回击美制裁
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404973/)
+## 中共扬言将使用核武器，如果日本在台湾问题上进行干预
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405050/)
 
-撰稿：Andrew
+2021年7月18日
 
-校对：Ermat【㊙️翻  Gnews原创组】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18175737/image1-3-4.jpg)图片来源：香港电台
-据《新华网》2021年7月17日报道，中共港澳办发言人针对美制裁驻港机构官员制裁进行了套路式的“严厉回击”，还表示美对港营商环境评论是一派胡言。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18195641/0-86.png)
 
-如以往一样，整篇文章充斥着谩骂、歪曲事实和假大空的外交固定用语。全文对美制裁内容，具体制裁官员名单只字未提，对于隔着网络防火墙的天真的中国老百姓而言，只知道结果，不知道起因，最终只能忍受这种洗脑式的思想强奸。
+摘要翻译：
 
-随着被制裁的官员数量越来越多，相信中共的民心离土崩瓦解也不远了。
+中国共产党东北地区的一个委员会转发了一段视频，威胁说如果日本干预中共国对于台湾的入侵，将对其“连续的使用核弹”。
 
-**新闻来源：**[国务院港澳办发言人：美方的所谓制裁令人不齿](http://www.xinhuanet.com/gangao/2021-07/17/c_1127665087.htm)
+该视频指出“日本是世界上唯一遭受过原子弹袭击的国家，从政府到人民都对原子弹有着深刻的记忆，也正是因为日本有这样一种独特的感觉，对日本的核威慑才会事半功倍”。
+
+在中国国家主席习近平警告外国如果试图干涉中共国内政，将 “被打得头破血流 ”之后的几周里，中共当局转发了这个帖子。
+
+**【**[新闻来源](https://www.express.co.uk/news/world/1464137/china-nuclear-bombs-ccp-threat-japan-taiwan-nukes-interfere-pla-china-xigua-ont?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

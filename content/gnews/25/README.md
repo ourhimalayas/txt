@@ -2,30 +2,23 @@
 ---
 
 
-## 众议院决定在新冠大流行后将削减对中共国研究人员的资助
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405077/)
+## 【秘翻在线】“滴滴出行”背后的江家
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405120/)
 
-2021年7月18日
+撰稿：Ermat 【㊙️翻  Gnews原创组】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18202432/0-33.jpeg)
+责编：Ermat 【㊙️翻  Gnews原创组】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18205154/v2-96a2de649e515f12f3c9898a4ed120de_1440w.jpg)图片来源：zhuanlan.zhihu.com
+据《大纪元时报》7月17日报道，“滴滴出行”通过联想集团创始人柳传志，博裕资本的联合创始人马雪征，及阿里巴巴实现了与江家的利益捆绑。
 
-摘要翻译：
+作为博裕资本创始人之一的马雪征，曾出任联想集团首席财务官，后来又出任联想非执行副主席。她协助联想集团创始人柳传志工作长达17年。众所周知，博裕资本是由江泽民之孙江志成创立而成，而且它也是”滴滴”的投资方。柳传志曾说“我是给马雪征打工的。”这一语道破了其中的玄机。
 
-众议院的一个小组本周通过了几项措施，旨在削减美国纳税人对中共国科学研究所资助，因为越来越多的立法者对新冠来源透明度的呼吁持续增加。
+不仅如此，由江家掌控的阿里巴巴也是“滴滴出行”的股东之一。靠着这背后的利益交织关系，“滴滴出行”成功地靠上了江家这棵大树。
 
-众议院拨款委员会通过了附属于支出法案的几项措施，这些措施将终止美国纳税人对武汉病毒研究所（WIV）的资助，削减对中共国某些医学实验的资助，并调查为什么冠状基因测序数据被从美国国立卫生研究院删除的原因。
+参考链接：
 
-**【**[新闻来源](https://www.washingtontimes.com/news/2021/jul/17/house-panel-votes-cut-wuhan-institute-virology-fun/?utm_source=RSS_Feed&amp;utm_medium=RSS)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+[披露滴滴背后的中共权贵大家族（下）](https://www.epochtimes.com/gb/21/7/16/n13094113.htm)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

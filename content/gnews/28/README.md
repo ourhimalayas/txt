@@ -2,35 +2,19 @@
 ---
 
 
-## 【一周盘点】香草山翻译部周刊——第五期（2021年7月18日）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1404963/)
+## 【秘翻在线】中共港澳办以老套路回击美制裁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404973/)
 
-作者：纽约香草山翻译部
+撰稿：Andrew
 
+校对：Ermat【㊙️翻  Gnews原创组】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18175737/image1-3-4.jpg)图片来源：香港电台
+据《新华网》2021年7月17日报道，中共港澳办发言人针对美制裁驻港机构官员制裁进行了套路式的“严厉回击”，还表示美对港营商环境评论是一派胡言。
 
+如以往一样，整篇文章充斥着谩骂、歪曲事实和假大空的外交固定用语。全文对美制裁内容，具体制裁官员名单只字未提，对于隔着网络防火墙的天真的中国老百姓而言，只知道结果，不知道起因，最终只能忍受这种洗脑式的思想强奸。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+随着被制裁的官员数量越来越多，相信中共的民心离土崩瓦解也不远了。
 
-
-
-![]()![](https://media.discordapp.net/attachments/830167012663754773/866179148904136724/Issue-5-CN.png?width=1083&amp;height=609)
-
-发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+**新闻来源：**[国务院港澳办发言人：美方的所谓制裁令人不齿](http://www.xinhuanet.com/gangao/2021-07/17/c_1127665087.htm)
 
 0

@@ -2,22 +2,20 @@
 ---
 
 
-## 中共扬言将使用核武器，如果日本在台湾问题上进行干预
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405050/)
+## 众议院决定在新冠大流行后将削减对中共国研究人员的资助
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405077/)
 
 2021年7月18日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18195641/0-86.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18202432/0-33.jpeg)
 
 摘要翻译：
 
-中国共产党东北地区的一个委员会转发了一段视频，威胁说如果日本干预中共国对于台湾的入侵，将对其“连续的使用核弹”。
+众议院的一个小组本周通过了几项措施，旨在削减美国纳税人对中共国科学研究所资助，因为越来越多的立法者对新冠来源透明度的呼吁持续增加。
 
-该视频指出“日本是世界上唯一遭受过原子弹袭击的国家，从政府到人民都对原子弹有着深刻的记忆，也正是因为日本有这样一种独特的感觉，对日本的核威慑才会事半功倍”。
+众议院拨款委员会通过了附属于支出法案的几项措施，这些措施将终止美国纳税人对武汉病毒研究所（WIV）的资助，削减对中共国某些医学实验的资助，并调查为什么冠状基因测序数据被从美国国立卫生研究院删除的原因。
 
-在中国国家主席习近平警告外国如果试图干涉中共国内政，将 “被打得头破血流 ”之后的几周里，中共当局转发了这个帖子。
-
-**【**[新闻来源](https://www.express.co.uk/news/world/1464137/china-nuclear-bombs-ccp-threat-japan-taiwan-nukes-interfere-pla-china-xigua-ont?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)**】**
+**【**[新闻来源](https://www.washingtontimes.com/news/2021/jul/17/house-panel-votes-cut-wuhan-institute-virology-fun/?utm_source=RSS_Feed&amp;utm_medium=RSS)**】**
 
 * * *
 
