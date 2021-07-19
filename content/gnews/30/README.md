@@ -2,47 +2,25 @@
 ---
 
 
-## 【新闻快讯】中共国对挪威议会进行了网络攻击
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407068/)
+## 【秘翻在线】 欧洲通膨来了?
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407036/)
 
-作者：香草山健身部 文真
+撰稿:William
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+校对:牛小妹
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19124455/%E6%AD%90%E6%B4%B2.jpg)
+中央社
 
-挪威外交部长伊内·埃里克森·索雷德（Ine Eriksen Soereide）周一表示，3月10日对北欧国家议会电子邮件系统的网络攻击是从中共国进行的，她敦促中共当局采取措施，防止今后发生类似行动。
+根据零对冲(Zero Hedge)的报导，欧洲央行(ECB)行长克里斯蒂娜·拉加德(Christine Lagarde)在 7 月 8 日大动作地提出的欧元货币政策的新货币框架。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19124345/%E5%9B%BE%E7%89%8757.png)
+欧洲央行称，其新框架已成为必要，因为“零界限”(zero bound)问题已变得如此严重。也就是说，在利率已经如此之低的情况下，尽管目标利率已经为零或低于零，央行仍需要新的工具来推高物价通膨(price inflation)。然而，这个问题是欧洲央行自己造成的。行长克里斯蒂娜说，已经进行了审查，以确保欧洲的货币政策战略适合今天和未来的目标。但她不考虑对该策略的批评，也不提出任何反驳。她没有解释为什么她老调重弹却期望能获得更好的结果。
 
-据路透社报道，挪威外交部长在一份声明中说：“这是一起严重的事件，袭击了我们最重要的民主机构。”
+文中谈到，这种所谓的“均衡实际利率极低”(extraordinarily low equilibrium real rates)问题是央行自己造成的。 2010-12 年的欧洲主权债务和银行业危机，触发了均衡实际利率最初的下行力量，它本身就是 1997-2007 年欧洲央行政策的结果。这是高度通货膨胀，尽管在资产市场的大部分时间里，这种症状比商品和服务市场更明显。欧洲央行在生产率快速增长和全球化之际将通膨目标定为 2%，同时由于欧洲货币联盟内部竞争加剧导致价格下行压力，欧洲央行助长了货币通膨。
 
-挪威外交部长补充说，该国情报部门调查显示，这次攻击是由中共国实施的，并且挪威的几个盟友，包括欧盟和微软，也证实了这一结论。
+文中最后提到，稳健货币才是零利率边界问题的答案，而不是围绕深究当前货币框架。 消息来源:
 
-这次攻击利用了微软Exchange软件的一个安全漏洞。
-
-索雷德说：“中共政府必须防止这种攻击。” 她补充说，她希望中国能非常认真地对待这个问题。
-
-据索雷德称，中共国驻挪威大使已于周一被召见，直接讨论此事。
-
-引用：
-
-[https://insiderpaper.com/china-carried-out-cyber-attack-on-norways-parliament/](https://insiderpaper.com/china-carried-out-cyber-attack-on-norways-parliament/)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.zerohedge.com/markets/ecbs-new-inflation-plan-old-plan-worse](https://www.zerohedge.com/markets/ecbs-new-inflation-plan-old-plan-worse)
 
 0
