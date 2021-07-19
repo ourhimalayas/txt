@@ -2,10 +2,45 @@
 ---
 
 
-## 【中共国段子】绿色贝雷帽（1）
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1406286/)
+## “COVID-19源自中共实验室”已普遍被世界接受
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1406683/)
 
-【作者】Xingfffooo
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19072021/simplified40.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
+台湾宝岛农场｜文旦、天灭中共
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19090919/My-Post-19.jpg)
+据美国有线电视新闻网报道，目前，越来越多参与该病毒调查的美国政府高级官员，支持病毒可能是源自武汉病毒研究所的说法。此前，这一说法曾被嘲笑为阴谋论。
+
+另据《纽约邮报》（New York Post）报导，尽管美国官员们对于病毒是否是从自然界出现的、是否是从动物传染给人类的问题仍然存在分歧，但承认“病毒源自实验室”标志着，左派开始正视前总统川普（特朗普）和一些欧洲科学家，在去年疫情最严重的时候，提出病毒从中共实验室泄露的理论。
+
+今年5月，就在拜登宣布对病毒来源进行新的调查后不久，白宫向记者发布的一份简报显示，拜登政府官员一直在向中共施加外交压力，要求中共开放中国科学家在疫情初期收集的数据。
+
+中共病毒（COVID-19）蔓延至今，已经造成了1亿多人的感染，400万人的死亡，但世界对于病毒溯源的调查仍然在进行中，迟迟未做最终定调。皆因中共在病毒爆发之初，就启动国家机器全面封锁信息，阻碍、误导其他国家的调查团队找到零号病例、获得原始数据，令他们始终无法循着正确的方向，对病毒进行研究。
+
+令人疑窦丛生的是，中共为什么要极力阻碍调查，甚至掩盖、扭曲病毒真相，扰乱调查，难道病毒也有党性，会绕开中共吗？难道中共官员从一开始就知道，他们不会感染上病毒吗？
+
+回想中共在病毒(COVID-19)爆发之前，在全球范围内，大肆采购医疗物资，等到疫情失控之后，悄无声息的封锁国内航线，却继续开放国外航线，最终让病毒迅速在全球扩散开来，这一切都像是有预谋的布局。
+
+最奇怪的是，离开中（共）国的病毒，就回复病毒本性，变得”不长眼睛”，即使位高如总统，都会感染病毒，无人能够幸免。
+
+以上疑问的唯一解释，病毒是中共高官有计划释放的，而且他们服用了解药。
+
+美国对于病毒溯源的调查即将届满90天期限，相信真正的行动很快会展开，病毒真相会亦会被一一拆解，毒杀世界400万人的中国共产党一定会被追责，中共必将面临法律审判。
+
+中共病毒(COVID-19)的真相永远无法抹灭的源头与事实，在世界的追责之下，中共必然灭亡。
+
+传播真相，缺你不可，你的一小步，将是灭共的一大步。
+
+资料来源:
+
+[拜登政府官员现在相信病毒从中共实验室泄漏-大纪元](https://www.epochtimes.com/b5/21/7/18/n13096316.htm)
+
+* * *
+
+审核╱zhong｜校对╱铃铃卷｜发布╱little liu
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 0

@@ -16,37 +16,37 @@
 
 ---
 
-### [独家重磅深挖：收购计票公司Dominion的私募基金Staple Street Capital 牵扯出巨大的政治背景](/content/gnews/1/README.md)
- ` 恩典农场`
-
-### [海地面临着混乱的领导人危机](/content/gnews/2/README.md)
+### [海地面临着混乱的领导人危机](/content/gnews/1/README.md)
  ` 闪电侠`
 
-### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/3/README.md)
+### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧洲议会外委会通过中国新战略，挺欧台投资协定](/content/gnews/4/README.md)
+### [欧洲议会外委会通过中国新战略，挺欧台投资协定](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [外国的月亮比较圆？中共外宣新武器：外籍网红](/content/gnews/5/README.md)
+### [外国的月亮比较圆？中共外宣新武器：外籍网红](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/18 文贵先生直播精要-001](/content/gnews/6/README.md)
+### [英众议院通过动议对北京冬奥会进行外交抵制](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [7月16日郭先生盖特文字精简版分享](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [2021年7月18日 文贵先生盖特 5](/content/gnews/8/README.md)
+### [2021年7月19日 文贵先生盖特 3](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/9/README.md)
+### [2021年7月19日 文贵先生盖特 2](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/9/README.md)
+ ` G-NEWS TAIWAN`
+
+### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/11/README.md)
+### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
@@ -70,53 +70,53 @@
 ### [戳穿中共百年冥诞致词里的谎言——一国两制&amp;全面管治权&amp;九二共识](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/19/README.md)
+### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/20/README.md)
+### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/21/README.md)
+### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/22/README.md)
+### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/23/README.md)
+### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【NewsExpress】拆台：中共加紧推广数字人民币](/content/gnews/25/README.md)
+### [【NewsExpress】欧盟与英国指控中共对Microsoft Exchange服务器发动网络攻击](/content/gnews/25/README.md)
  ` 索尼克`
 
-### [【秘翻在线】法国中共病毒疫苗接种中心遭到破坏](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯](/content/gnews/27/README.md)
+### [【NewsExpress】拆台：中共加紧推广数字人民币](/content/gnews/26/README.md)
  ` 索尼克`
 
-### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/28/README.md)
+### [【秘翻在线】法国中共病毒疫苗接种中心遭到破坏](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/29/README.md)
+### [【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯](/content/gnews/28/README.md)
+ ` 索尼克`
+
+### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【联盟汇报】2021年7月18日](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
+### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [“世界上最热衷熊市的对冲基金”做空科技股](/content/gnews/31/README.md)
+### [“世界上最热衷熊市的对冲基金”做空科技股](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【西媒头条】第26期（2021年7月19日）](/content/gnews/32/README.md)
+### [【西媒头条】第26期（2021年7月19日）](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [尽管勒布朗摇尾乞怜，中共国仍然拒绝了他的影片](/content/gnews/33/README.md)
+### [尽管勒布朗摇尾乞怜，中共国仍然拒绝了他的影片](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花墙内要闻汇编🌸7月19日](/content/gnews/34/README.md)
- ` 日本东京樱花团`
 
 ### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [2021/07/18 文贵先生直播精要-001](/content/gnews/43/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [全球舰队靠拢亚太地区阻止中共扩张](/content/gnews/43/README.md)
+ ` G-NEWS TAIWAN`
 
-### [7月16日郭先生盖特文字精简版分享](/content/gnews/44/README.md)
+### [美军C-130型大力神战术运输机，携外交邮袋降落桃园机场](/content/gnews/44/README.md)
+ ` G-NEWS TAIWAN`
+
+### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/45/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年7月19日灭共要闻](/content/gnews/45/README.md)
+### [【杂谈】Duck勃和他的洋爹塞林](/content/gnews/46/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/47/README.md)
+ ` G-NEWS TAIWAN`
+
+### [2021/07/18 文贵先生直播精要-001](/content/gnews/48/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [7月16日郭先生盖特文字精简版分享](/content/gnews/49/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [2021年7月19日灭共要闻](/content/gnews/50/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【中共国段子】绿色贝雷帽（2）](/content/gnews/46/README.md)
+### [【中共国段子】绿色贝雷帽（2）](/content/gnews/51/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [【中共国段子】绿色贝雷帽（1）](/content/gnews/47/README.md)
+### [【中共国段子】绿色贝雷帽（1）](/content/gnews/52/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [中共“超限战”渗透游戏行业](/content/gnews/48/README.md)
+### [中共“超限战”渗透游戏行业](/content/gnews/53/README.md)
  ` 澳喜农场`
 
-### [保护自己非常重要](/content/gnews/49/README.md)
+### [保护自己非常重要](/content/gnews/54/README.md)
  ` 澳喜农场`
 
-### [【币圈】-数字货币动态 -2021.07.19](/content/gnews/50/README.md)
+### [【币圈】-数字货币动态 -2021.07.19](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/51/README.md)
+### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十八）](/content/gnews/52/README.md)
- ` RU WEI`
-
-### [【每日快报】大批民众在白宫抗议发生在古巴的镇压；数千人也在迈阿密集会 2021.07.19](/content/gnews/53/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [试看路德闫丽梦团伙如何把自己的屎吃回去（三）](/content/gnews/54/README.md)
- ` 日本东京樱花团`
-
-### [人为何而活](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [【战友心声】从“墨博士”的推文看人性的丑恶](/content/gnews/56/README.md)
- ` 纽约香草山MOS03`
 

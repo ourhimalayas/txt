@@ -2,10 +2,41 @@
 ---
 
 
-## 【中共国段子】绿色贝雷帽（2）
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1406317/)
+## 【杂谈】Duck勃和他的洋爹塞林
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1406640/)
 
-【作者】美国队长
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19073307/simplified41.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
-0
+#### **作者/编辑：**翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18192223/7.19-1.png)
+图片来源：雅典娜农场设计组（Anson）
+
+伪类们由于极度不自信，一般都必须找个“爹”来做靠山，于是有的找吃六四血馒头的“英雄”，有的找所谓的“民运大佬”……而有的伪类，由于心底里压根就瞧不起自己中国人，索性找个洋爹，比如跟某个国会议员拍张照到处炫耀，其实那只是数千捐款买来的而已……而这次闫王自爆事件中的博博士，俗称“Duck勃”，就找了个不知哪里冒出来的洋爹——塞林。
+
+貌似之前并没有人听说过“博博士”。一般有人动不动自称“X博士”，就已经够让人起一层鸡皮疙瘩的了，这个Duck勃还把“博”字double一下，把自己称做“博博士”，简直让人觉得病态。说穿了，过度标榜自己的人，其实骨子里就是自卑，因此Duck勃找个洋人做“爹”也就成了顺理成章的事。美军上校、博士、绿色贝雷帽……一大串唬人的头衔和称号，Duck勃的洋爹塞林博士横空出世了。
+
+其实一开始，有人就觉得这个Duck勃的来历“面目不清”（引用九指妖的说法），自从被路大脑袋推上了缺德社后，被文贵先生多次点名表扬才慢慢声名鹊起。据说Duck勃就职于美国雷神公司的某一家供货商单位，上知天文，下肢瘫不瘫咱不知道，总之曾经把很多不懂军事的人唬得一愣一愣的，只是自从“末日飞机”起飞之后，大半年的时间以来我已经不听缺德社的节目了，这里不得不说有Duck勃的一份功劳。
+
+再说到Duck勃的洋爹塞林，就更是“面目不清”了。这个跨界奇才，一会儿英文，一会儿中文，据说还会阿拉伯语和库尔德语；一会儿退役美军上校，一会儿又是预备役陆军上校；不但是国际IT专家，还在医药行业做医学研究，最后索性成了手握中共病毒真相的病毒学专家。其实所有伪类上位的方式都一样，无非就是蹭蹭蹭，洋爹塞林也一样。塞林通过蹭上了王定刚和闫丽梦，从而蹭上了爆料革命和文贵先生，连线参加了“六四”新中国联邦一周年的庆典，再然后就进入了直线下坠的自爆模式。
+
+但是骗子总归是骗子，扒一扒这个跳梁小丑在推特上给自己吹牛皮的信息就能看出来：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19094941/11-10.png)
+图片来源：推特截图
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19094839/22-1.png)
+图片来源：推特截图
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19092525/1ca7aeef-0868-4a0c-882b-7b9df07bcf0d.jpg)
+图片来源：推特截图
+
+从2020年11月到12月，短短一个月之间，一个从事IT行业60多岁的退伍军人突然开始学起了医，而这个时间点正好是中共病毒在武汉开始出现的时间，这不得不让人觉得异常的蹊跷。
+
+关于塞林的真实身份，已经有很多GNEWS文章进行了揭示，根据美国《连线》（Wired）杂志网站2010年8月27日一篇题为《Colonel Kicked Out of Afghanistan for Anti-PowerPoint Rant》的新闻报道，这个名叫劳伦斯·塞林（Lawrence Sellin）的骗子是被北约驻阿富汗司令部开除的参谋人员，而这个被北约开除的美军参谋人员，居然在王定刚的“博士团”的热捧下，摇身一变成了上校、博士和专家，堂而皇之地成了爆料革命的红人。
+
+爆料革命里的每个伪类，都幻想自己会侥幸成功，但是爆料革命就像是照妖镜，因为我们有“唯真不破”，一切伪类终会现形。亡腚肛和Duck勃们，带上你们的洋爹，坐着你们的“末日飞机”，去给中国共产党陪葬吧！
+
+（文章内容仅代表作者观点）
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
++1

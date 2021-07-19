@@ -2,72 +2,45 @@
 ---
 
 
-## “这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1406083/)
+## “COVID-19源自中共实验室”已普遍被世界接受
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1406683/)
 
-- 作者： Jenny Ball
+台湾宝岛农场｜文旦、天灭中共
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19090919/My-Post-19.jpg)
+据美国有线电视新闻网报道，目前，越来越多参与该病毒调查的美国政府高级官员，支持病毒可能是源自武汉病毒研究所的说法。此前，这一说法曾被嘲笑为阴谋论。
 
+另据《纽约邮报》（New York Post）报导，尽管美国官员们对于病毒是否是从自然界出现的、是否是从动物传染给人类的问题仍然存在分歧，但承认“病毒源自实验室”标志着，左派开始正视前总统川普（特朗普）和一些欧洲科学家，在去年疫情最严重的时候，提出病毒从中共实验室泄露的理论。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+今年5月，就在拜登宣布对病毒来源进行新的调查后不久，白宫向记者发布的一份简报显示，拜登政府官员一直在向中共施加外交压力，要求中共开放中国科学家在疫情初期收集的数据。
 
-**西班牙2021年7月19日电/西喜社**
+中共病毒（COVID-19）蔓延至今，已经造成了1亿多人的感染，400万人的死亡，但世界对于病毒溯源的调查仍然在进行中，迟迟未做最终定调。皆因中共在病毒爆发之初，就启动国家机器全面封锁信息，阻碍、误导其他国家的调查团队找到零号病例、获得原始数据，令他们始终无法循着正确的方向，对病毒进行研究。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19054745/malone202.png)
+令人疑窦丛生的是，中共为什么要极力阻碍调查，甚至掩盖、扭曲病毒真相，扰乱调查，难道病毒也有党性，会绕开中共吗？难道中共官员从一开始就知道，他们不会感染上病毒吗？
 
-mRNA 疫苗领域的先驱罗伯特·马龙（ Robert Malone） 博士在周五分享了一条病毒推特帖子，该帖子展示了一个令人不安的趋势；世界上接种疫苗最多的国家正在经历 COVID-19 病例激增，而接种疫苗最少的国家则没有。
+回想中共在病毒(COVID-19)爆发之前，在全球范围内，大肆采购医疗物资，等到疫情失控之后，悄无声息的封锁国内航线，却继续开放国外航线，最终让病毒迅速在全球扩散开来，这一切都像是有预谋的布局。
 
-“这让我很担心，”马龙在推特上写道，并附有 Twitter 用户创作的冗长帖子。
+最奇怪的是，离开中（共）国的病毒，就回复病毒本性，变得”不长眼睛”，即使位高如总统，都会感染病毒，无人能够幸免。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053038/unknown-1-13.png)
+以上疑问的唯一解释，病毒是中共高官有计划释放的，而且他们服用了解药。
 
-看看为什么马龙博士担心：
+美国对于病毒溯源的调查即将届满90天期限，相信真正的行动很快会展开，病毒真相会亦会被一一拆解，毒杀世界400万人的中国共产党一定会被追责，中共必将面临法律审判。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053329/unknown-2-12.png)
+中共病毒(COVID-19)的真相永远无法抹灭的源头与事实，在世界的追责之下，中共必然灭亡。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053429/unknown-3-4.png)
+传播真相，缺你不可，你的一小步，将是灭共的一大步。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053535/unknown-4-4.png)
+资料来源:
 
-不丹小王国的特别之处在于，从 27/3 开始，他们在一周内接种了 64% 的人口。 仅几天后，案例就增加了。
+[拜登政府官员现在相信病毒从中共实验室泄漏-大纪元](https://www.epochtimes.com/b5/21/7/18/n13096316.htm)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053656/unknown-6-2.png)
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053730/unknown-7-2.png)
+审核╱zhong｜校对╱铃铃卷｜发布╱little liu
 
-为什么我的完全封锁并接种疫苗的情况不能减少病例？
-
-你知道delta有多危险吗？？
-
-如果您想知道 Delta 到底有多糟糕，即使在高度接种疫苗的 SF（76% 的 12 岁以上的人完全接种疫苗）并且仍然有很多戴口罩（商店里的大多数人），我们看到 Covid 的增长非常陡峭 。每日病例增加 4 倍，住院患者增加一倍。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053822/unknown-8-1.png)
-
-“但是 100% 的疫苗接种率怎么样？”
-
-你看：伊丽莎白女王号上1600 名接种两剂疫苗的英国士兵。 他们甚至有卫生规则，保持距离等两个月……  16 分之一结果证明被感染（= 发病率高于任何国家！）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053910/unknown-9-1.png)
-
-“但疫苗也降低了人们的传染性？”这是一些研究者所声称的，是的。
-
-但是他们在什么时候测量了这种效果？疫苗最初会触发您的免疫系统。
-
-但是，如果效果消退后，您在没有任何免疫粘膜保护四处走动是什么结果？
-
-**评论： ****罗伯特博士的担忧，让人们感受到大规模接种疫苗的灾难即将到来，真不知道这些mRNA****疫苗杀死了人们自身的免疫细胞后，人们“在没有任何免疫粘膜保护四处走动是什么结果？”**
-
-**中共制造释放病毒，试图用这个生化武器超限战一举称霸世界；那么中共推出的疫苗难道是他要自己消灭自己发起的生化战？这么想来就会明白，疫苗只能是更邪恶的生化武器，以便中共快速彻底拿下世界！**
-
-**让我们传播真相，抵制疫苗！**
-
-**中共总爱说西方民主国家对付中共的战略或行动是“搬起石头砸自己的脚”，现在这句话用到中共自己身上。全世界以毒灭共。中共何止是搬起石头砸自己的脚，就是砸死了他这个邪恶的政党！**
-
-**素材来源：**[零对冲](https://www.zerohedge.com/covid-19/worrying-me-quite-bit-mrna-vaccine-inventor-shares-viral-thread-showing-covid-surge-most?utm_campaign=&amp;utm_content=Zerohedge%3A+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter)
-
-素材：Jenny Ball；审核：文乐； 校对：信心满满； 发稿：信心的选择
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
-
-
-
-+1
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
+0
