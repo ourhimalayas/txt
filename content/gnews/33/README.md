@@ -2,18 +2,18 @@
 ---
 
 
-## 中国邮政储蓄银行，重罚！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405184/)
+## 2021上半年中朝贸易额同比下滑84％
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405428/)
 
 2021年7月18日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18215152/0-88.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002049/0-37.jpeg)
 
 编辑摘要：
 
-南部身边事7月5日报道，据中国银行保险监督管理委员会行政处罚信息公开表，中国邮政储蓄银行股份有限公司存在主要的违法违规事实。银保监会决定没收违法所得11.401116万元，罚款437.677425万元，罚没合计449.078541万元。
+7月18日，中国海关总署发布数据称，2021年1～6月中国与朝鲜双边贸易总额为6572万美元。比2020年同期下滑84％，比新冠疫情蔓延前的2019年同期减少95％。朝鲜的对外贸易中，对华贸易占9成以上。
 
-**【**[新闻来源](https://c.m.163.com/news/a/GE5HV2TL05454AK1.html?spss=newsapp)**】**
+**【**[新闻来源](https://cn.nikkei.com/politicsaeconomy/investtrade/45428-2021-07-19-09-34-29.html)**】**
 
 * * *
 

@@ -2,89 +2,94 @@
 ---
 
 
-## 默克尔在与拜登联合新闻发布会上的表现
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1404969/)
+## 【医疗前沿世界】使用COVID PCR测试拭子与吸入石棉一样危险
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405432/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：香草山商业组    文锤
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18174810/M-6.jpg)blowthetruth.com
-让“闫妖腚肛7.12惊天叛逆”搅合得没有花太多精力关注默克尔访美，静下来后，浏览了拜登、默克尔新闻发布会的报道，还是有点感触，就像文贵先生透露的那样，中共希望默克尔承担“基辛格式中共说客”的使命，看上去她不太配合，还是想配合，但大势之下不容易做到？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-引自白宫官网：
 
-拜登总统和默克尔总理在记者招待会上的讲话
 
-2021年7月15日
 
-东室
 
-美国东部时间下午5:16
+原文阅读：
 
-拜登总统：
+[https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
 
-谢谢大家，请坐。今天，我非常荣幸——欢迎一位亲爱的朋友来到白宫。
+访问Antonietta Gatti 教授 参考视频链接：
 
-在我发言之前，默克尔总理，我要向你和德国人民表示我的诚挚慰问和美国人民的慰问，因为过去的24小时，在德国及其邻国发生的洪灾造成了毁灭性的生命损失和破坏，这是一场悲剧，我们的心都碎了——我们的心与失去亲人的家庭同在。
+[https://www.youtube.com/watch?v=DgoQp3bVdAc](https://www.youtube.com/watch?v=DgoQp3bVdAc)
 
-……
+**译文：**
 
-今天，我在新的《华盛顿宣言》（Washington Declaration）中倾诉了我们的心声，这份文件确认了我们对民主原则的承诺，这些原则是我们两国的核心，我们将如何运用这些原则来应对今天和明天的最大挑战。
+**一位实验物理学家和生物材料研究人员在显微镜下检查了各种**** PCR ****测试拭子，发现它们所含的纤维对人类来说与吸入石棉一样危险。**
 
-我们两国都明白，必须证明民主政体能够在21世纪的第二个25年里满足我们人民的需要，当我们看到中共国或任何其他国家破坏自由开放的社会时，我们将坚持民主原则和普遍权利。
+Antonietta Gatti 教授 检查了各种 PCR 测试拭子并分析了它们的成分。结果表明，它们由坚韧的材料制成，并含有大量纳米颗粒，包括银、铝、钛和玻璃纤维。所有这些都没有在 PCR 测试包装说明书上声明。
 
-我们团结一致，致力于解决欧盟或欧盟成员候选人或世界上任何地方的民主倒退、腐败、虚假民粹主义问题。
+根据教授的说法，如果这些纤维卡在粘膜中，它们会导致严重的伤口和炎症。不再完整的粘膜无法在病毒、细菌和真菌到达呼吸道之前发挥其抵御作用。细菌无需任何免疫过滤即可穿透呼吸道。对于从所谓的大流行开始以来，一直遵守当局规定，并参加定期测试和戴口罩的人来说，这不是好消息。这是因为口罩是所有类型细菌的理想滋生地。
 
-……
+在实验室里，Gatti 教授使用电子显微镜（ESEM 和 EDS）分析各种类型的拭子，这些拭子用于收集人体有机物进行 PCR 诊断，以检查形态和化学成分。
 
-我们需要在世界各地抗击中共病毒疫情（COVID-19），为明天加强全球卫生安全，以便为下一次疫情做好准备。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002919/546-1.png)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
 
-我们需要确保管控新兴技术使用的路径规则是促进自由，而不是独裁和镇压。
+使用中国深圳 Biocomma 制造的“棉毛”棒，Gatti 教授无法确定它是由碳制成还是由棉制成。产品中的污垢由碳酸钙、不锈钢和硅酸盐组成。
 
-……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002923/546-2.jpg)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
 
-默克尔：
+一根来自中国Manta的刷状测试棒，显示出大量断裂的纤维。发现碳、氧、硅、锆、硫、铝、钛和钠是样品的成分。
 
-……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002925/546-3.jpg)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
 
-我们还谈到了外交政策中的其他优先事项，例如，我们与中共国的关系，我们是捍卫自由、民主社会的国家——捍卫这些权利——生活在这些社会中的人的公民权利。所以，在人权得不到保障的地方，我们会发出自己的声音，明确表示不同意这一点，我们也支持世界各国的领土完整。
+Biocomma 的另一个拭子似乎是由玻璃纤维制成的，或者至少有玻璃纤维涂层。成分是碳、氧、铝、硅和钛。不能排除由有机材料制成的附加涂层。
 
-我们还谈到了与中共国合作和竞争的许多方面，无论是在经济领域，还是在气候保护方面，无论是在军事领域，还是在安全方面。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002930/546-4.png)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
 
-……
+另一个测试棒——FLOQSwabs——的敷抹器的尖端涂有垂直排列的短尼龙纤维。
 
-记者问：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002932/546-5.jpg)FLOQSwabs拭子棉签 [图片来源](https://labelians.fr/ecouvillon-floqu-floqswabs.html)
 
-……我想问你，在与拜登总统会谈之后，你是否觉得他更了解你对中共国的看法，或者说局势是否仍然紧张，是否仍然需要脱钩？
+Gatti 教授说：“该公司解释说，纤维芯由尼龙制成，并带有专利材料涂层，在分析中，该材料是硅酸盐-锆-钛。这种涂层使纤维更硬，从而能够撕裂粘膜。在涂片操作期间施加的压力可能会破坏一些留在原位的纤维。发生这种情况时，它们会引起异物反应，从而损害粘膜，从而阻碍呼吸和说话。”
 
-拜登总统：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002938/546-6.jpg)*PCR 测试拭子的颈部* [图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
 
-……让我谈谈商业方面的建议。香港的局势正在恶化，中共国政府没有遵守它做出的处理香港问题的承诺。因此，它更像是一个关于香港可能发生的事情的建议。既简单又复杂。
+根据Gatti教授的分析，拭子颈部图片上的小白点是银纳米粒子——“银是一种没有在制造商数据表中声明的材料。”
 
-……
+Gatti 教授得出以下结论——
 
-默克尔：
+“这种 “豪猪” 拭子由坚韧的纤维制成。如果它们刮擦鼻粘膜，它们会损坏它，导致出血病变，或者在任何情况下都会对组织造成创伤。
 
-我们谈到中共国，有很多共识，中共国在很多领域都是我们的竞争对手。与中共国的贸易需要建立在这样一个假设之上，即我们有一个公平的竞争环境，以便我们都遵循同样的规则，有同样的标准。顺便说一句，这也是中欧贸易协定背后的推动力，即他们（应该）遵守《国际劳工组织》（ILO，International Labor Organization）的核心劳工规范。
+“在粘膜的愈合过程中，断裂的纤维可以穿透组织进入身体，而没有机会将它们去除，导致肉芽肿或纤维化组织的形成，就像任何异物在身体中一样。
 
-我们深信，我们两国需要成为在许多领域的技术领导者，显然，中共国有这样的希望也是合理的，我们将在许多最先进的技术上进行合作——例如芯片。我认为，总统在这方面发起的行动是关键的，也是至关重要的。
+所检查的医疗器械并非完全具有生物相容性，因此不符合 ISO 标准 10993 的要求，以及获得 CE 标志所需的测试。
 
-我们希望在数字化时代进行贸易，安全问题在我们的议程上显得非常重要——因此我们应该就此进行交流，我们应该谈谈这个问题。我们应该讨论管理互联网的规范和标准，我们能否就共同准则达成一致。我认为，特别是在中美关系方面，我们应该协调努力，我们在欧盟这样做，我们也应该和美国这样做。
+教授的调查结果总结如下——
 
-显然，还有利益——有时是不同的利益，但有时是共同的利益。很明显，我们也有美国公司与欧洲公司竞争的领域，我们必须接受这一点。但我认为，基本上，我们与中共国打交道的规则应该建立在我们共同的价值观之上。
+- 拭子对鼻咽粘膜是危险的。玻璃纤维又硬又脆，会划伤粘膜并造成损伤。粘膜出血是测试侵入性的一个标志。
+- 重复的拭子测试会产生慢性病变。脆性玻璃纤维碎片的释放会引起生物反应，例如肉芽肿和/或组织纤维化。
+- 这些涂抹拭子对婴儿和儿童的健康构成威胁。如果测试是必要的，必须对儿童使用小而温和的涂抹拭子。
 
-我认为，关于疫情，我们显然认为，疫情——只有每个人都接种疫苗，我们才能控制疫情……
 
-……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
 
-（白宫新闻稿完）
+校对/发稿：小鹿
 
-拜登总统指名道姓地下了这样的定义，“当我们看到中共国或任何其他国家破坏自由开放的社会时，我们将坚持民主原则和普遍权利。”默克尔还能怎样呢？默克尔在新闻发布会上的这番表态与拜登保持了距离，可以从中共那里领点犒赏，还是中共不买账，只有她自己知道。
 
-正义的人们期待她滚蛋的9月份，希望那时候的德国回到正道主义的路线上来。
 
-白宫新闻链接：
+**更多资讯，更多关注**
 
-[https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/07/15/remarks-by-president-biden-and-chancellor-merkel-of-the-federal-republic-of-germany-in-press-conference/](https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/07/15/remarks-by-president-biden-and-chancellor-merkel-of-the-federal-republic-of-germany-in-press-conference/)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-0
+[**纽约香草山农场****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1

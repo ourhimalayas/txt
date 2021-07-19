@@ -2,75 +2,75 @@
 ---
 
 
-## 樱花国际要闻汇编🌸7月19日
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1405439/)
+## 【新闻速递】自由和平等，但前提是您接种了疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405530/)
 
-*素材汇编：东京樱花团 GNEWS组*
+翻译：香草山商业组  文锤
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002408/20210719122716876.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-*1、 美连续第二周疫苗接种致死多于病毒死亡*
 
-[https://www.aboluowang.com/2021/0719/1620900.html](https://www.aboluowang.com/2021/0719/1620900.html)
 
-*《网关专家》7月17日报道，美国疾控中心的疫苗跟踪网站VAERS，公布了上周7天的数据。显示美国死于新冠疫苗的人数竟然比新冠病毒致死的人数还要多。在这7天中，有1,918人死于COVID，而死于COVID疫苗的人数则达到了2092人，比COVID死亡人数多了174人。*
 
-*目前COVID疫苗的不良反应报告已经超过40万份。*
 
-*2、 欧洲央行称下周货币政策将有新的调整*
+原文阅读: [https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
 
-[https://www.aboluowang.com/2021/0718/1620894.html](https://www.aboluowang.com/2021/0718/1620894.html)
+作者：Pierre Farge 和 Bilal Bentahar
 
-*欧盟统计局16日公布的数据显示，继前几个月稳步上升后，6月欧元区通胀压力有所减缓，同比涨幅为1.9%，低于5月的2.0%。*
+**卫生政策侵犯了我们的自由，尤其是违反了对任何医疗的自由和知情同意。**
 
-*欧洲央行此前表示，随着全球经济逐渐复苏，今年下半年欧元区通胀率将继续上升，但这一现象将是暂时性的。欧洲央行将继续实施超宽松货币政策，包括新冠疫情暴发后推出的1.85万亿欧元紧急资产购买计划。*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19005358/553-1.png)[图片来源](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
 
-*3、 东南亚正在经历自疫情以来最严重的灾难*
+**虽然 Delta 变种有可能使法国陷入第四波疫情，但马克龙周一宣布实施新的健康限制措施，这是对我们公共自由的又一次攻击。律师皮埃尔·法热 (Pierre Farge) 对这些措施的虚伪性提出了看法。 **
 
-[https://www.aboluowang.com/2021/0719/1621044.html](https://www.aboluowang.com/2021/0719/1621044.html)
+“一个愿意为了自己的安全而牺牲自由的民族，两者都不配拥有，最终会失去安全和自由。”
 
-*随着新冠病毒的Delta变种席卷东南亚，该地区的大多数国家正在经历自疫情以来最严重的灾难。英国《卫报》7月18日报道，卫生专家认为印尼疫情的真实情况被严重低估了，澳大利亚格里菲斯大学的印尼流行病学家迪基·布迪曼（Dicky Budiman）说：“亚洲（疫情）中心现在已经在印度尼西亚，但如果我们进行更多检测，会发现那里已经是世界（疫情）的中心。”*
+[本杰明·富兰克林](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)( [Benjamin Franklin)](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)的话在政府最近实施的疫苗接种措施中成为热门话题。
 
-*印度尼西亚每日感染疫情人数连续三天超过了印度和巴西，7月17日印度尼西亚报告了51,952例病例和1,092例死亡，根据官方记录，该国已有超过72,400人死亡。*
+自大流行危机开始以来，共和国总统和部分行政部门轮流声称接种疫苗将始终是一种选择。
 
-*此外，东南亚的疫苗接种率极低。在缅甸只有不到4%的人口接种过一剂疫苗，在越南，完全接种疫苗的公民不到1%。泰国和菲律宾的疫苗接种率不到5%。*
+在宣布的最新措施最终将禁止令变为[疫苗接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)，但并未法律上[强制接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)疫苗。
 
-*4、OPEC+同意8月起增产40万桶*
+**用社会的压力和经济原因作为说服的工具**
 
-[https://www.aboluowang.com/2021/0718/1620893.html](https://www.aboluowang.com/2021/0718/1620893.html)
+所谓的[健康通行证](https://www-contrepoints-org.translate.goog/2021/07/16/401720-pass-sanitaire-piege-sans-fin-pour-la-liberte?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)包括出示针对[Covid-19](https://www-contrepoints-org.translate.goog/2021/07/14/401502-covid-19-que-sait-on-du-variant-delta?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)的疫苗接种证书或不到 48 小时的 PCR 检测阴性证明，而且这个PCR检测很快就就不是免费的了，从而对低收入者形成了歧视。
 
-*7月18日，OPEC+官方发布声明表示，主要产油国已达成初步协议，将逐步提高石油产量至12月。从今年8月起每月增产至多40万桶/日。这将结束主要产油国们之间争执不下的僵持局面。*
+换句话说，[拒绝接种疫苗的代价](https://www-contrepoints-org.translate.goog/2021/07/13/401476-macron-acte-la-societe-a-2-vitesses-au-nom-de-la-panique-sanitaire?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)要么是牺牲一个人的社交生活，要么是因为一个人无法再进入最基本的旅行和聚会场所，或者在别无选择时牺牲自己的钱包，如果不接种疫苗，那么只能为最轻微的旅行或见面承担 PCR 测试的费用。
 
-*根据协议，OPEC+同意阿联酋新的原油减产基线为350万桶/日，将沙特和俄罗斯的基准石油产量调整为1150万桶/日。伊拉克和科威特的产量基线分别提高15万桶/日，总基线增幅将为163万桶/日。关于基线调整的协议将于2022年5月开始生效，关于减产的协议将延长至2022年底。*
+因此，社会和财政压力如此之大，以至于放弃疫苗几乎是不可想象的。
 
-*5、 英国成立4000人特种部队抗击中俄*
+因此，这项健康政策必然侵害我们的自由，尤其是根据[《公共卫生](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[法》](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[第 L.1111-4](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)和[《民法》第 16-3](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)对任何医疗的自由和知情同意。
 
-*[https://www.aboluowang.com/2021/0719/1621082.html](https://www.aboluowang.com/2021/0719/1621082.html)*
+事实如此，对未能接种疫苗的处罚也证实了这种侵害，无论是在禁止旅行方式还是禁止在餐厅等聚会场所。
 
-*俄卫星通讯社7月17日引述《泰晤士报》消息，英国特种部队正在启动打击国家级别对手的框架下针对俄罗斯和中共的新秘密任务。英国指挥官马克·托顿表示，英国特殊的航空服务和特殊的船只服务将实施对抗这些国家的更危险的任务。他将领导英国海军陆战队的“未来的特种部队”，它将帮助打击恐怖主义和威慑各地的雇佣军。*
+**对我们的自由进行危险的限制**
 
-*消息还说，4000人将进入这个部队，并将与英国军情六处一起合作监视中俄的军队和情报机构。特种部队可能还从事培训南中国海地区附近国家的海军部队工作，以便这些国家更好地保护自己免受中共的伤害。*
+虽然所有这些措施只能通过议会方式生效，但这并不一定保证尊重[法治](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/%25C3%2589tat_de_droit)和共和国原则，尤其[是 1789 年《人权宣言》第 6 条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/loda/article_lc/LEGIARTI000006527432/)所载明的原则。所有这些因素都证明，这些措施可能与遏制流行病不成比例，而且无论如何都是虚伪的，因此在总统选举前夕具有政治风险。
 
-*6、 美将建新式太空雷达基地监视中俄*
+这项法案必须在 7 月 19 日在部长会议上讨论，然后由国民议会于 7 月 21 日和参议院于 7 月 22 日和 23 日进行审查，成功通过的机会很大，下议院在立法事项上的多数意见将有最后决定权。这种情况将给宪法委员会一次充分发挥他作用的机会，而宪法委员会一定会抓住这个机会。
 
-*[https://www.aboluowang.com/2021/0719/1621083.html](https://www.aboluowang.com/2021/0719/1621083.html)*
+自由和平等，但前提是您接种了疫苗。
 
-*俄卫星通讯7月18日引述天空新闻台消息，美国正在着手建立新式全球太空雷达基地，以“记录俄罗斯和中共试图使美国极其重要卫星出现故障的企图”。按照计划，美国将在全球建造三个太空雷达基地，包括在苏格兰或英格兰南部、美国德克萨斯州和澳大利亚三个地点。据悉，首个设施计划于2025年投入使用*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
 
-*报道引述美国太空部队中校杰克·沃克解释称：“这很必要，因为我们希望持续监控那些对我们在地球同步轨道上的系统构成威胁的目标。”*
+校对/发稿：小鹿
 
-*7、 英国BNO特许入境将到期 港人忙离境*
 
-*[https://www.aboluowang.com/2021/0719/1620916.html](https://www.aboluowang.com/2021/0719/1620916.html)*
 
-*因“港区国安法”实施，英国2020年宣布BNO新制，让持有BNO的香港居民自今年1月31日起，可与家人循LOTR机制前往英国居留，满6年后可取得永久居留资格。 中共当局对于此举表达强烈不满，并宣布不承认BNO为有效证件。*
+**更多资讯，更多关注**
 
-*英国政府数度延长LOTR期限，先是延至3月31日，后来又依次延长到5月17日、6月21日。最新一次延长的期限为7月19日，此后未再有新的变化，导致不少原本心存观望的香港民众，在上周赶办赴英手续及抢订机票。*
+[**纽约香草山农场GTV–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*至于离港的原因，这些港人纷纷指向“港区国安法”。*
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*免责申明：本文只代表作者观点，与GNews网站无关。
-编辑：东京樱花团 / 文小白
-发布：东京樱花团 /老黑*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
-+1
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
+0

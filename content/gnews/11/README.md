@@ -2,47 +2,43 @@
 ---
 
 
-## 马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1405222/)
+## CDC和CCP在美国全面实现暴政的10个步骤
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1405461/)
 
-翻译：烟波浩淼 |校对：雨山溪桥客
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18221635/Picture1-63.png)图片来自网络
-上周六，数千名抗议者走上巴黎街头，抗议法国总统马克龙新的强制实施疫苗护照的措施。
+**作者：**S.D. Well 2021-07-09
 
-马克龙最近宣布，要进入餐馆和剧院，必须持有中共病毒护照。
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19003214/0718.jpg)
+图片来源：网络
 
-马克龙还宣布了一项针对所有医护人员的强制性疫苗新规定。
+（自然新闻）现在，如果你还没有为对抗中共病毒接种疫苗，那么你知道疫苗比病毒危险得多。事实上，如果你知道他们今天放入疫苗中的任何东西，那么你知道中共病毒只是在美国引入共产主义的借口，一个人口减少计划，有1.5亿人像保龄球针一样建立起来，为”大封锁”做准备。
 
-到法国旅游的游客将不得不通过数字护照出示疫苗接种证明或中共病毒检测阴性。
+最重要的是要认识到，对于未接种疫苗的人来说，现在还为时不晚，因为最初需要传播对中共病毒的恐惧，以建立政府权威，这样他们才能进一步侵犯我们的宪法权利，命令我们四处游荡——整天戴口罩，保持社会距离，关闭我们的企业，只从资助对中共病毒的假战争的大公司购买产品。这是一场假战争， “他们” （民主党、CCP和运行  的全球主义者） 想要你的支持。
 
-新的中共病毒护照措施将于8月份开始实施。
+你看，政府都更喜欢民众对战争的支持，无论是运功战、假”恐怖战”，还是针对”杀手病毒”的假战争。具有讽刺意味的是，这次敌人根本不是外国人：事实上，他是每个美国人。
 
-周六，抗议者聚集在皇家宫广场。
+真正阴险的议程总有遮掩。每个人都必须买进。当然，9/11掩盖了哈里伯顿挪用50亿美元和宪法及残疾人隐私爱国者法案。阿富汗战争遮盖了美国接管鸦片贸易，因为海洛因高度流行成瘾，破坏健康的处方止痛药。现在，中共病毒和三角洲变种是共产党接管美国和人口减少/消毒运动的掩护，通过一次”疫苗加强剂”的注射，至少可以消灭50%的美国民众。可以称之为”杀人开关”。
 
-视频：
+**实现暴政的10个步骤**
 
-
-
-> 🔴🇫🇷 Manifestation à [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) , La place est déjà pleine . [#paris](https://twitter.com/hashtag/paris?src=hash&amp;ref_src=twsrc%5Etfw) [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#DictatureSanitaire](https://twitter.com/hashtag/DictatureSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#Manif17juillet](https://twitter.com/hashtag/Manif17juillet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PU6wiwD9JG](https://t.co/PU6wiwD9JG)
-> — Thibault Penet Officiel (@ThibaultPnt\_76) [July 17, 2021](https://twitter.com/ThibaultPnt_76/status/1416371048040304640?ref_src=twsrc%5Etfw)
-
-
-抗议者挤满巴黎街头，要求马克龙辞职，并高呼“通行证不会通过！”
-视频：
-
-
-
-> « Liberté », « Macron démission », « le pass ne passera pas » scandent les nombreux participants à la [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) contre le [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) et le [#VaccinObligatoire](https://twitter.com/hashtag/VaccinObligatoire?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) dans les rues de [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/wFylro1zPM](https://t.co/wFylro1zPM)
-> — Morgan (@MorganRostagnat) [July 17, 2021](https://twitter.com/MorganRostagnat/status/1416411317041352704?ref_src=twsrc%5Etfw)
+1. 创造一种新的人类疾病（病毒），杀死弱者和免疫受损者（完成）。
+2. 将中共病毒传播到全球（完成）。
+3. 为该病毒制造“疫苗”，让“疫苗”导致血栓和危及生命的心肌炎（完成）。
+4. 大肆传播对中共病毒的恐惧，以至于全球至少有70%的人（或者至少是在美国）接种“疫苗”（目前只达到50%）。
+5. 传播对一种新”变种”（称为三角洲）的恐惧，宣传这种”变种”甚至比原始病毒”更致命”和”更具传染性”（刚开始）。
+6. 将所有疫苗的伤害和死亡归咎于新的”三角洲变种”（刚刚开始）。
+7. 要求每个接种疫苗者接种他们针对”三角洲变种”的疫苗，该接种要么指令接受者的细胞产生数十亿有毒的蛋白质，导致患者精神错乱并导致心力衰竭，要么疫苗中最终含有模仿病毒感染机制的致病蛋白的”有效载荷”，这些致病蛋白过量使用接种者的免疫系统，导致他们死亡。
+8. 一场新的群众性事件”发生”，使人民之间的一切交流陷入瘫痪，然后中国共产党人开始从我们南部边境”放牧”。
+9. 另一个大规模枪击事件 “发生”，看起来像特朗普的支持者，且是 “反疫苗” 的右翼极端分子。
+10. 没收所有剩下的未接种疫苗的美国人的枪支，从而共和国也丢失了。
 
 
+**美国的共产主义者和人口减少主义者打着”爱国”的幌子，让你出于对中共病毒及其变种的恐惧而接受自己的疫苗终止制剂**
 
-原文作者：克里斯蒂·娜莱拉（Cristina Laila）
-发布时间：2021 年 7 月 17 日
-原文链接：[https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/](https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/)
+接种疫苗死掉被认为是”爱国的”，因为这个国家现在由共产党人管理，他们想用国内生物恐怖主义（致命疫苗）消灭至少3/4的美国人，并将十亿中国人从中国转移到这里。正如希特勒利用宣传来推销他的动机对社会和德国经济有帮助一样，CDC和CCP正在”推销”疫苗、口罩、社会疏远和封锁给每一个人，正如我们所知道的那样终结美国。这就是为什么精神错乱的造假总统乔只是告诉大家，美国人接种疫苗是你们可以做的最爱国的事情。
 
-【本文仅代表作者个人观点，跟Gnews无关】
+**评：**美国不但存在共产主义者而且中国共产党几乎控制了50%的美国内部力量（文贵先生在17年爆料中共通过蓝金黄的手段对美国进行渗透时曾经提到）。被全球主义者控制的美国政府及其医疗部门仍然在大力推行疫苗接种运动，前不久拜登政府已经开启“挨家挨户”驱动疫苗接种运动，主流媒体大肆宣传中共病毒Delta变种的强传染性致死性，目的是恐吓更多的民众接受接种，以达到更高的接种率；同时把疫苗引起的伤害和死亡归因于这一新变种病毒，而避谈或淡化这种实验性中共病毒疫苗的副作用和致死性。美国的邪恶势力在继续通过医疗暴政的手段来达到最终在美国实现全面暴政，并没有收手的迹象；中共统治美国乃至全世界的邪恶计划通过其在全球各国的同伙的协助下仍在进行。知道中共病毒及其疫苗真相，以及中共的邪恶图谋的正义人士需要站起来他团结联合起来对抗全球邪恶力量，消灭中共是自救救家人乃至救全人类的要求。
 
-编辑&发布：黎明的光芒
+原文：S.D. Well, “10 Steps to TOTAL TYRANNY by the CDC and CCP in America”. [Natural News](Natural%20News), July 9, 2021. [https://www.naturalnews.com/2021-07-09-10-steps-to-total-tyranny-cdc-and-ccp.html#](https://ssl.microsofttranslator.com/bv.aspx?ref=TVert&amp;from=&amp;to=zh-Hans&amp;a=https%3A%2F%2Fwww.naturalnews.com%2F2021-07-09-10-steps-to-total-tyranny-cdc-and-ccp.html%23)
 
 0
