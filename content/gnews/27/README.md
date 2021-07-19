@@ -2,19 +2,34 @@
 ---
 
 
-## 【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405268/)
+## 中共智库说821人注射疫苗后感染，敢打疫苗吗？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405208/)
 
-撰稿：William
+2021年7月18日
 
-校对 :牛小妹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18222831/%E6%8B%9C%E7%99%BB-1.jpg)
-图／AFP
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18220609/0-35.jpeg)
 
-在拜登指责社交媒体巨头Facebook传递相关错误的冠状病毒疫苗信息“杀人”之后，白宫似乎没有松手对 Facebook 的严厉批评。一位消息人士7月17日向福克斯新闻(Fox News)透露，对Facebook 的公开指责是因为该平台未能消除网上有关疫苗接种会有危险的讯息。自 2 月以来，白宫一直在寻求 Facebook 和其他社交媒体网站的帮助，以阻止错误信息传播开来，例如接受注射会导致不育的后果。随着美国中共冠状病毒病例的增加和疫苗接种率的下降，白宫本周火急燎燎的启动了”打击错误信息”的行动，首先是美国卫生局局长维维克·默蒂(Vivek Murthy) 周四发出警告:”有关冠状病毒的虚假信息是虚假信息，是对公共卫生的紧急威胁。
+编辑摘要：
 
-”虽然白宫与这家大型科技巨头表面发生公开争吵，但一些共和党人批评白宫对 Facebook”努力删除他们认为有问题的帖子”太过友善。白宫表面上批评脸书，暗地里与Facebook等科技巨头合作，压制人民反对疫苗的言论。最近成立一个众议院核心小组，旨在控制大型科技公司的德克萨斯州众议员兰斯古登7月17日告诉福克斯新闻。“拜登白宫当局与社交媒体巨头合作删除网路上他们认为的错误信息正受到强烈批评，法律界人士表示此举涉嫌违反第一修正案并已经提起调查要求。” 消息来源：
+2021年6月1日，中共国家中医药管理局官网上发布消息，表彰三支中医抗疫医疗队在境外成功救治确诊新冠的中企员工821人，零转重、零病亡、医务人员零感染。所有中企海外员工是最优先注射新冠疫苗、最早完成两针注射的群体，但是仍然有821人感染了新冠病毒。
 
-[https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks](https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks)
+中共国大力宣传如何如何抗疫成功，全世界抗疫楷模，但为何有这么多人注册两针疫苗之后仍然感染？
 
-+1
+从现在发生的事实看，新冠疫苗注射全球最领先的国家，在放开管控后无一例外疫情重新爆发，这只能说明一点：新冠疫苗有效性存疑，甚至根本无效。尤其是注射了中共国产疫苗的国家，比如马来西亚，因200多名医务工作人员注射科兴疫苗后仍然感染新冠而不得不终止科兴疫苗，转用辉瑞疫苗。
+
+你还敢打疫苗吗？
+
+**【**[新闻来源](https://www.kunlunce.net/e/wap/show.php?classid=176&amp;id=153637)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+0

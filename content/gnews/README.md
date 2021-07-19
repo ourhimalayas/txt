@@ -40,14 +40,14 @@
 ### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/8/README.md)
  ` 喜联盟七哥直播组`
 
-### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/9/README.md)
+### [【樱花宅急便】美国政府在病毒溯源问题上观点全面转变](/content/gnews/9/README.md)
+ ` 日本东京樱花团`
+
+### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年7月18日灭共要闻](/content/gnews/10/README.md)
+### [2021年7月18日灭共要闻](/content/gnews/11/README.md)
  ` 秘密翻译组G-Translators`
-
-### [【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -88,23 +88,23 @@
 ### [佛罗里达州副州长对古巴自由抗议的评论：年轻一代不惧怕压迫政权](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共智库说821人注射疫苗后感染，敢打疫苗吗？](/content/gnews/25/README.md)
+### [中美潜艇险些擦枪走火，日本防卫白皮书明确针对中共](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【NewsExpress】中国疫苗在亚洲的成功是否正在减弱？](/content/gnews/26/README.md)
+### [中共国制造业再遇“困难”，大量一线员工辞职](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共智库说821人注射疫苗后感染，敢打疫苗吗？](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【NewsExpress】中国疫苗在亚洲的成功是否正在减弱？](/content/gnews/28/README.md)
  ` 闪电侠`
 
-### [【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯](/content/gnews/27/README.md)
+### [【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯](/content/gnews/28/README.md)
+### [【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
-
-### [【NewsExpress】Zoom以150亿美元收购云软件提供商Five9](/content/gnews/29/README.md)
- ` 闪电侠`
-
-### [【NewsExpress】南非严重的暴力事件200多人遇难](/content/gnews/30/README.md)
- ` 闪电侠`
 
 ### [中国邮政储蓄银行，重罚！](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

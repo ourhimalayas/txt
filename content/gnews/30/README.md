@@ -2,21 +2,19 @@
 ---
 
 
-## 【NewsExpress】南非严重的暴力事件200多人遇难
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1405205/)
+## 【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405218/)
 
-**翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18215717/27-7.jpg)
-在前总统雅各布祖马因拒绝遵守腐败调查而被判处 15 个月监禁后，种族隔离后南非发生了最致命的暴力事件。在另一起案件中，预计他将于周一出庭，面临贪污指控。
+撰稿：William
 
-2020 年 3 月，祖马派遣 70,000 名军队执行该国的严格封锁措施，以对抗 COVID-19 的传播，这是自 1994 年南非实现民主以来最大规模的士兵部署。上个周四上午，政府报告说，有 10,000 名士兵与警察一起在街道上巡逻，南非国防军已启动其全部 12,000 名士兵的后备部队。上周，祖马因在 2009 年至 2018 年担任总统期间拒绝在国家支持的腐败指控调查中作证而开始因藐视法庭而开始服刑 15 个月后，动荡爆发了。
+校对 :牛小妹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18221452/%E6%8B%9C%E7%99%BB.jpg)
+图面来源：图／达志影像／美联社
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+在拜登指责社交媒体巨头Facebook传递相关错误的冠状病毒疫苗信息“杀人”之后，白宫似乎没有松手对 Facebook 的严厉批评。一位消息人士7月17日向福克斯新闻(Fox News)透露，对Facebook 的公开指责是因为该平台未能消除网上有关疫苗接种会有危险的讯息。自 2 月以来，白宫一直在寻求 Facebook 和其他社交媒体网站的帮助，以阻止错误信息传播开来，例如接受注射会导致不育的后果。随着美国中共冠状病毒病例的增加和疫苗接种率的下降，白宫本周火急燎燎的启动了”打击错误信息”的行动，首先是美国卫生局局长维维克·默蒂(Vivek Murthy) 周四发出警告:”有关冠状病毒的虚假信息是虚假信息，是对公共卫生的紧急威胁。
 
-**参考链接：**
+”虽然白宫与这家大型科技巨头表面发生公开争吵，但一些共和党人批评白宫对 Facebook”努力删除他们认为有问题的帖子”太过友善。白宫表面上批评脸书，暗地里与Facebook等科技巨头合作，压制人民反对疫苗的言论。最近成立一个众议院核心小组，旨在控制大型科技公司的德克萨斯州众议员兰斯古登7月17日告诉福克斯新闻。“拜登白宫当局与社交媒体巨头合作删除网路上他们认为的错误信息正受到强烈批评，法律界人士表示此举涉嫌违反第一修正案并已经提起调查要求。” 消息来源：
 
-[https://www.republicworld.com/world-news/africa/south-africa-witnesses-worst-post-apartheid-violence-over-200-killed-just-1-arrested.html](https://www.republicworld.com/world-news/africa/south-africa-witnesses-worst-post-apartheid-violence-over-200-killed-just-1-arrested.html)
-
-***校对发布：文顾***
+[https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks](https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks)
 
 0
