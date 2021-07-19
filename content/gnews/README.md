@@ -88,35 +88,35 @@
 ### [因为其大棒动机，推特由于侵犯言论自由而被起诉](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯](/content/gnews/25/README.md)
- ` 索尼克`
-
-### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/26/README.md)
+### [【秘翻在线】法国中共病毒疫苗接种中心遭到破坏](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/27/README.md)
+### [【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯](/content/gnews/26/README.md)
+ ` 索尼克`
+
+### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【联盟汇报】2021年7月18日](/content/gnews/28/README.md)
+### [【联盟汇报】2021年7月18日](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [【NewsExpress】中共军方举行抢滩登陆演习 警告台湾和美国](/content/gnews/29/README.md)
+### [【NewsExpress】中共军方举行抢滩登陆演习 警告台湾和美国](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [Facebook暂停对儿童戴口罩实用性表示怀疑的用户 社交媒体平台正面临巨大诉讼](/content/gnews/30/README.md)
+### [樱花墙内要闻汇编🌸7月19日](/content/gnews/31/README.md)
+ ` 日本东京樱花团`
+
+### [西喜时事新闻简报 — 中共踩油门篇](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 中共踩油门篇](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【秘翻在线】美国会警告称中共威胁国家食品系统](/content/gnews/32/README.md)
+### [【秘翻在线】美国会警告称中共威胁国家食品系统](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】知名歌手谴责古巴政府暴行为民主发声](/content/gnews/33/README.md)
+### [【秘翻在线】知名歌手谴责古巴政府暴行为民主发声](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
-
-### [美日澳印正安排今年9月举行首次面对面四方峰会](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -130,17 +130,17 @@
 ### [2021/07/15 参议员HAWLEY：提供真相和疫苗接种途径，人们自己选择](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [数字货币市场火，媒体大佬忙建平台](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
-
-### [来自中共的知识产权盗窃的风险在上升](/content/gnews/40/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/41/README.md)
+### [7/19/2021 财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；美国向企业发出关于香港风险的警告](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
- ` 秘密翻译组G-Translators`
+### [数字货币市场火，媒体大佬忙建平台](/content/gnews/40/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [来自中共的知识产权盗窃的风险在上升](/content/gnews/41/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
+ ` 秘密翻译组金融团队`
 
 ### [【中共国段子】绿色贝雷帽（2）](/content/gnews/43/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`

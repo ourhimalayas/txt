@@ -18,6 +18,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 12:20 PM (UTC)`
+
+共产党你完了👉👉👉【中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃” 】https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn
+
+---
+
 `@miles 7/19/2021 12:10 AM (UTC)`
 
 She is a lunatic and a liar
@@ -308,13 +314,6 @@ G翻身又翻了一个身…… https://www.gfashion.com/zh/
 
 这个蛇妖闫😓😓😓😓😓😓<br/><br/><br/><br/><br/>【抗议闫妖现场第一天总结：<br/><br/>路人爆料：<br/>1. 几个月前，路人第一次见到闫妖，知道闫妖住在附近，发现妖精不带口罩频繁出入公共场所。<br/>2. 路人爆料，第一次见亡腚缸来公寓接闫妖，闫妖穿红裙+白色Gucci外套，上了一辆灰色特斯拉。<br/>3. 路人认识亡腚缸是路德，对他们俩有深刻印象。闫亡俩人经常出入公寓周边的餐馆一起幽会吃饭。闫妖次次吃饭用餐穿衣服都是高级名牌，背Gucci包，特别显眼。<br/>4. 路人说为啥觉得闫妖不靠谱，行为举止和电视上看到的科学家不一样。路人说住附近公寓的都是当地奢侈公寓，非富即贵。<br/><br/>住户爆料：<br/>1. 战友一说抗议中共间谍，住户就问是不是Doctor，认出闫妖，并且爆料闫妖敲过美国男士邻居的门。】
 ![img](https://media.gettr.com/group13/getter/2021/07/14/21/c53198f4-e622-0e30-be6e-f1ab94a68cb3/out.jpg)
-
----
-
-`@miles 7/14/2021 7:36 PM (UTC)`
-
-Thank you for the letter sent by a French friend Jean Michel to me through our fellow warriors.  We share the same feeling, but will never give up in pursuing the truth. No one should lie, spread rumors and exaggerate the truth about CCP virus. The corona-virus is certainly the biological and chemical weapon of the CCP,  but no one is allowed to gain benefits or get fame through this. This false Dr. Yan took advantage of all the support she received from the New Federal State of China and the whistle-blower movement. Instead, she helped the CCP escape accountability. Sellin, who was disenlisted by the US Army, was a mastermind behind it. We wondered if he was being bought and manipulated by the CCP. We will take legal action and let the world to see the truth.
-![img](https://media.gettr.com/group36/getter/2021/07/14/19/b9213f68-306c-9387-8b65-1e3b13325698/3bccd85a7db75e9bb950509e363100d1.jpg)
 
 ---
 
