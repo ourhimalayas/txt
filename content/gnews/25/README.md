@@ -2,34 +2,72 @@
 ---
 
 
-## 北戴河静悄悄 中南海更换警卫局长
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1406012/)
+## “这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1406083/)
 
-2021年7月19日
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19044724/04CFBC61-C2AF-4E6B-8A36-F46E6284A866_w1023_r1_s-1.jpg)
-
-中共最近两个动向引起注意，一是中南海警卫局换头；二是“2021中国网络诚信大会”搞了一个十大涉党史谣言榜。
-
-中共党庆百年，世界只记住习近平说的几个字：谁要敢欺负我们，就让他头破血流！
-
-该宣布的胜利已经宣布了，抗议胜利，脱贫胜利，习近平就等着二十大再受党中央再拥戴一次了？但是有迹象似乎显出习近平还不太放心。7月15日，中共中央网信办召开“2021中国网络诚信大会”，发布了一个“十大涉党史辟谣榜单”。可是看网络的反应，十大谣言里面至少有八个受人怀疑。
-
-习近平为何从野战军调入大保镖
-
-另外一个动向是习近平换了中南海警卫局长。习近平没有从熟悉中南海警务的中央警卫局干部中选拔，而是从野战军调来了一位局长。香港明报认为这凸显了习近平用人思维的变化。
-
-中央警卫局专家指出，中共历史上，中央警卫局局长都是最高领导人最信任的大内安全主管，都由内部升迁产生。一切都挡不住习近平自我继位的意志，天津市委书记早已替习近平说出了心里话：忠诚不绝对，就是绝对不忠诚。
-
-**【[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210719-%E5%8C%97%E6%88%B4%E6%B2%B3%E9%9D%99%E6%82%84%E6%82%84-%E4%B8%AD%E5%8D%97%E6%B5%B7%E6%9B%B4%E6%8D%A2%E8%AD%A6%E5%8D%AB%E5%B1%80%E9%95%BF)】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- 作者： Jenny Ball
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月19日电/西喜社**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19054745/malone202.png)
+
+mRNA 疫苗领域的先驱罗伯特·马龙（ Robert Malone） 博士在周五分享了一条病毒推特帖子，该帖子展示了一个令人不安的趋势；世界上接种疫苗最多的国家正在经历 COVID-19 病例激增，而接种疫苗最少的国家则没有。
+
+“这让我很担心，”马龙在推特上写道，并附有 Twitter 用户创作的冗长帖子。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053038/unknown-1-13.png)
+
+看看为什么马龙博士担心：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053329/unknown-2-12.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053429/unknown-3-4.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053535/unknown-4-4.png)
+
+不丹小王国的特别之处在于，从 27/3 开始，他们在一周内接种了 64% 的人口。 仅几天后，案例就增加了。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053656/unknown-6-2.png)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053730/unknown-7-2.png)
+
+为什么我的完全封锁并接种疫苗的情况不能减少病例？
+
+你知道delta有多危险吗？？
+
+如果您想知道 Delta 到底有多糟糕，即使在高度接种疫苗的 SF（76% 的 12 岁以上的人完全接种疫苗）并且仍然有很多戴口罩（商店里的大多数人），我们看到 Covid 的增长非常陡峭 。每日病例增加 4 倍，住院患者增加一倍。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053822/unknown-8-1.png)
+
+“但是 100% 的疫苗接种率怎么样？”
+
+你看：伊丽莎白女王号上1600 名接种两剂疫苗的英国士兵。 他们甚至有卫生规则，保持距离等两个月……  16 分之一结果证明被感染（= 发病率高于任何国家！）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19053910/unknown-9-1.png)
+
+“但疫苗也降低了人们的传染性？”这是一些研究者所声称的，是的。
+
+但是他们在什么时候测量了这种效果？疫苗最初会触发您的免疫系统。
+
+但是，如果效果消退后，您在没有任何免疫粘膜保护四处走动是什么结果？
+
+**评论： ****罗伯特博士的担忧，让人们感受到大规模接种疫苗的灾难即将到来，真不知道这些mRNA****疫苗杀死了人们自身的免疫细胞后，人们“在没有任何免疫粘膜保护四处走动是什么结果？”**
+
+**中共制造释放病毒，试图用这个生化武器超限战一举称霸世界；那么中共推出的疫苗难道是他要自己消灭自己发起的生化战？这么想来就会明白，疫苗只能是更邪恶的生化武器，以便中共快速彻底拿下世界！**
+
+**让我们传播真相，抵制疫苗！**
+
+**中共总爱说西方民主国家对付中共的战略或行动是“搬起石头砸自己的脚”，现在这句话用到中共自己身上。全世界以毒灭共。中共何止是搬起石头砸自己的脚，就是砸死了他这个邪恶的政党！**
+
+**素材来源：**[零对冲](https://www.zerohedge.com/covid-19/worrying-me-quite-bit-mrna-vaccine-inventor-shares-viral-thread-showing-covid-surge-most?utm_campaign=&amp;utm_content=Zerohedge%3A+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter)
+
+素材：Jenny Ball；审核：文乐； 校对：信心满满； 发稿：信心的选择
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
+
+
+
++1

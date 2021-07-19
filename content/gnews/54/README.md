@@ -2,35 +2,27 @@
 ---
 
 
-## 【归档备查】闫丽梦推特
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1357221/)
+## 【人不能没有梦】
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1405864/)
 
-##### Gnews病毒真相小组 整理
-
-借助 https://www.einsightdata.com/ 整理推文
-
-由于众多战友已被屏蔽，同时防止推特或闫丽梦耍流氓，故开放此文便于查询取证。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/29063440/%E6%88%AA%E5%B1%8F2021-06-29-18.32.57.png)
-## [2021年7月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1370278/)
-
-## [2021年6月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359093/)
-
-## [2021年5月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359070/)
-
-## [2021年4月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359062/)
-
-## [2021年3月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359049/)
-
-## [2021年2月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359040/)
-
-## [2021年1月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359038/)
-
-## [2020年12月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359031/)
-
-## [2020年11月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359026/)
-
-## [2020年10月——闫丽梦博士推特归档](https://gnews.org/zh-hans/1359020/)
+作者：待命（文晓）
 
 
 
-+1
+战友：大脑袋，你跟随爆料革命很久了，感觉最大的收获是什么？
+
+“亡腚肛”；我这人不图钱。要说最大的收获，是弄懂了“人活在世，不能没有梦”。
+
+战友：你的“梦”是？
+
+“亡腚肛”：远在天边近在眼前，“添屎”闫丽梦三个字中，明明白白有个“梦”嘛，你们咋就看不到呢？
+
+战友：我滴个妈呀
+
+[盖特链接](https://www.gettr.com/post/p4e3l6)
+
+（文章仅代表作者个人观点）
+
+发布：东京樱花团/tdownc2p
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
+0

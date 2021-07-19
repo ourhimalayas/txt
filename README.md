@@ -40,14 +40,14 @@
 ### [2021年7月18日 文贵先生盖特 2](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/9/README.md)
+### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/10/README.md)
+### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【秘翻在线】垂死病中惊坐起，罡风吹屋呓语吟](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -70,41 +70,41 @@
 ### [【新闻速递】字节跳动的今日头条被中（共）国勒令自9月起停止新用户注册](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [因为其大棒动机，推特由于侵犯言论自由而被起诉](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [班农：除了中国人，地球上几乎所有的人都可以投票，这太荒谬了！](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [川普总统：控告这些违反言论自由的大科技公司](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [北戴河静悄悄 中南海更换警卫局长](/content/gnews/25/README.md)
+### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【NewsExpress】默克尔称欧洲洪水令人恐惧，死亡人数接近200人](/content/gnews/26/README.md)
+### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [因为其大棒动机，推特由于侵犯言论自由而被起诉](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【联盟汇报】2021年7月18日](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [【NewsExpress】中共军方举行抢滩登陆演习 警告台湾和美国](/content/gnews/27/README.md)
  ` 索尼克`
 
-### [【秘翻在线】泄露清单揭示全球滥用网络监控武器](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
+### [Facebook暂停对儿童戴口罩实用性表示怀疑的用户 社交媒体平台正面临巨大诉讼](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】垂死病中惊坐起，罡风吹屋呓语吟](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
+### [北戴河静悄悄 中南海更换警卫局长](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】中共国骂又出花样，骂美国是蚂蚁撼树](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】台湾 &#8220;IT天才部长 &#8220;唐凤取消了对日访问](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
+### [【NewsExpress】默克尔称欧洲洪水令人恐惧，死亡人数接近200人](/content/gnews/30/README.md)
+ ` 索尼克`
 
 ### [【秘翻在线】知名歌手谴责古巴政府暴行为民主发声](/content/gnews/31/README.md)
  ` 秘密翻译组G-Translators`
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [人为何而活](/content/gnews/43/README.md)
+### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/43/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十八）](/content/gnews/44/README.md)
+ ` RU WEI`
+
+### [【每日快报】大批民众在白宫抗议发生在古巴的镇压；数千人也在迈阿密集会 2021.07.19](/content/gnews/45/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [试看路德闫丽梦团伙如何把自己的屎吃回去（三）](/content/gnews/46/README.md)
  ` 日本东京樱花团`
 
-### [【战友心声】从“墨博士”的推文看人性的丑恶](/content/gnews/44/README.md)
+### [人为何而活](/content/gnews/47/README.md)
+ ` 日本东京樱花团`
+
+### [【战友心声】从“墨博士”的推文看人性的丑恶](/content/gnews/48/README.md)
  ` 纽约香草山MOS03`
 
-### [“说说你的看法– 老百姓真的脱贫了？” 第03期](/content/gnews/45/README.md)
+### [“说说你的看法– 老百姓真的脱贫了？” 第03期](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [不多，记不准了](/content/gnews/46/README.md)
+### [不多，记不准了](/content/gnews/50/README.md)
  ` 日本东京樱花团`
 
-### [缺德社大脑袋无知慧](/content/gnews/47/README.md)
+### [缺德社大脑袋无知慧](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [中共超限战灭港行动（五十一）倒行逆施激民愤 616民阵发起大游行](/content/gnews/48/README.md)
+### [中共超限战灭港行动（五十一）倒行逆施激民愤 616民阵发起大游行](/content/gnews/52/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [爱之深，急着切](/content/gnews/49/README.md)
+### [爱之深，急着切](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [【人不能没有梦】](/content/gnews/50/README.md)
+### [【人不能没有梦】](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [【百年罪恶看中共】一首违反人伦无耻至极的洗脑歌曲《唱支山歌给党听》](/content/gnews/51/README.md)
+### [【百年罪恶看中共】一首违反人伦无耻至极的洗脑歌曲《唱支山歌给党听》](/content/gnews/55/README.md)
  ` 温哥华扬帆农场`
 
-### [【雅典娜诗集】良知审判](/content/gnews/52/README.md)
+### [【雅典娜诗集】良知审判](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
-
-### [照这样下去的话，中共国就再也不会有鲁迅！](/content/gnews/53/README.md)
- ` 日本东京樱花团`
-
-### [【归档备查】闫丽梦推特](/content/gnews/54/README.md)
- ` 大废墙`
-
-### [浅析伪类攻击爆料革命的拙劣手法（二）](/content/gnews/55/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [《蓝枫法律》第16期-六大法律思维模式](/content/gnews/56/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
