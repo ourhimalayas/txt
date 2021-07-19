@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 12:03 AM (UTC)`
+
+跟着共产党走进火葬场．孙大午在双指期间所遭受的待遇，算是不错的啦．比文贵本人待遇高多了！还将有无数个私人企业家走向哪里！这叫前仆后继……只有消灭共产党……中国人民才能都得到解放！
+![img](https://media.gettr.com/group8/getter/2021/07/19/00/fc90f6b2-d248-4fa2-6cbd-d558524f4b11/be3adaad6e2d6d093df8bb5caca7dacf.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@janjekielek 7/18/2021 11:35 PM (UTC)`
@@ -309,15 +316,6 @@ Thank you for the letter sent by a French friend Jean Michel to me through our f
 `@dineshdsouza 7/14/2021 2:00 PM (UTC)`
 
 This is the reality of life under communism.<br/>https://rumble.com/vjtye9-cuban-girl-reveals-the-harsh-truth-about-life-in-cuba.html?mref=23gga&amp;mc=8uxj1
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@near432 7/14/2021 4:34 PM (UTC)`
-
-Let’s #Gettr ！
-![img](https://media.gettr.com/group23/getter/2021/07/14/16/98f67348-fe12-937b-2001-a6d2a63a1664/out.jpg)
 
 ---
 
