@@ -2,47 +2,23 @@
 ---
 
 
-## 【新闻快讯】中共国对挪威议会进行了网络攻击
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407068/)
+## 就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1407091/)
 
-作者：香草山健身部 文真
+•最近几周，中共国和日本一直在台湾问题上交锋
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+•日本警告称，中共国控制这个自治岛的任何举动都将引发军事反应
 
+•北京称此举是“危险的”
 
+•在对峙中，中共国官员转发了一段视频，呼吁对日本进行核攻击。由非官方军事评论员制作的视频称，如果日本派遣“哪怕是一兵一卒”来保卫台湾，日本也应该受到核武器的打击
 
-挪威外交部长伊内·埃里克森·索雷德（Ine Eriksen Soereide）周一表示，3月10日对北欧国家议会电子邮件系统的网络攻击是从中共国进行的，她敦促中共当局采取措施，防止今后发生类似行动。
+新闻来源：[dailymail](https://www.dailymail.co.uk/news/article-9803237/Chinese-officials-repost-threat-NUKE-Japan-amid-tensions-Taiwan.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19124345/%E5%9B%BE%E7%89%8757.png)
+编译： Boxinglady
 
-据路透社报道，挪威外交部长在一份声明中说：“这是一起严重的事件，袭击了我们最重要的民主机构。”
+校对发稿：法图麦
 
-挪威外交部长补充说，该国情报部门调查显示，这次攻击是由中共国实施的，并且挪威的几个盟友，包括欧盟和微软，也证实了这一结论。
-
-这次攻击利用了微软Exchange软件的一个安全漏洞。
-
-索雷德说：“中共政府必须防止这种攻击。” 她补充说，她希望中国能非常认真地对待这个问题。
-
-据索雷德称，中共国驻挪威大使已于周一被召见，直接讨论此事。
-
-引用：
-
-[https://insiderpaper.com/china-carried-out-cyber-attack-on-norways-parliament/](https://insiderpaper.com/china-carried-out-cyber-attack-on-norways-parliament/)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+本文只代表个人观点，不代表 Gnews 平台
 
 0

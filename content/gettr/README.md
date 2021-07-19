@@ -18,6 +18,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@repandybiggsaz 11/27/2020 12:04 AM (UTC)`
+
+I’m thankful for President @realDonaldTrump and his exceptional leadership at the helm of our nation. He has fought every day for Americans, and he has kept his promises. <br/><br/>Our country is better off because of his tireless work on our behalf.  
+![img](https://media.gettr.com/group7/tw/2021/07/13/15/b930b194-4262-4e90-0d13-fde4ff8184c7/22545e90e54b9a9cbc08af9311fac0b0.jpg)
+
+---
+
 `@miles 7/19/2021 5:54 PM (UTC)`
 
 WOW
@@ -304,13 +313,6 @@ Glad to see so many PATRIOTS leaving the plantation and following me here on Get
 
 This clip clearly displays Miles Guo’s Revelation Timeline of the CCP Virus. Many Chinese scientists and medical workers have been and are risking their lives to expose the truth regarding the CCP Virus. Conversely, some opportunists and liars have compiled some known information to form so-called “reports” to seize the right to speak about the virus. They have deceived the feelings of many Chinese People and American People for their own selfish interests. These opportunists and liars should face legal consequences and be called out and shamed by the public.<br/><br/>The consensus that the CCP-engineered COVID-19 in its labs has reached and &quot;using the truth of the CCP Virus to Knock down the CCP” has been a foregone conclusion in May 2021.<br/><br/>
 ![img](https://media.gettr.com/group16/getter/2021/07/15/17/66754fd7-0cc0-da3a-5b69-bbd1f9f58d6d/out.jpg)
-
----
-
-`@miles 7/15/2021 4:52 PM (UTC)`
-
-乖乖哟……<br/><br/>https://www.washingtonexaminer.com/washington-secrets/gettr-explodes-passing-1-5-million-users-in-just-11-days
-![img](https://media.gettr.com/group40/getter/2021/07/15/16/968e79e2-6f9d-9026-4b08-59afdd9758f5/fc56fd94f1ec46d613e8265f450da759.jpg)
 
 ---
 

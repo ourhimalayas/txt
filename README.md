@@ -31,23 +31,23 @@
 ### [外国的月亮比较圆？中共外宣新武器：外籍网红](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月19日 文贵先生盖特 5](/content/gnews/6/README.md)
+### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [2021年7月19日 文贵先生盖特 5](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月19日 文贵先生盖特 4](/content/gnews/7/README.md)
+### [2021年7月19日 文贵先生盖特 4](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月19日 文贵先生盖特 3](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/9/README.md)
+### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/10/README.md)
+### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/11/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -58,17 +58,17 @@
 ### [【拆台新闻】如蜡烛被极权体制燃尽的乡村教师](/content/gnews/14/README.md)
  ` 索尼克`
 
-### [2021年7月19日 秘翻快报 【头条新闻】](/content/gnews/15/README.md)
+### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/15/README.md)
+ ` 温哥华扬帆农场`
+
+### [2021年7月19日 秘翻快报 【头条新闻】](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/16/README.md)
+### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021/07/19 墙内世界](/content/gnews/17/README.md)
+### [2021/07/19 墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【快讯】中共下放行政处罚权：重演突尼斯自焚小贩 “颜色革命”戏码](/content/gnews/18/README.md)
- ` 纽约香草山MOS02`
 
 ### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
@@ -88,23 +88,23 @@
 ### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/25/README.md)
+### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/26/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国黑客攻击让白宫陷入困境](/content/gnews/26/README.md)
+### [中共国黑客攻击让白宫陷入困境](/content/gnews/27/README.md)
  ` 索尼克`
 
-### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/27/README.md)
+### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/28/README.md)
+### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [【新闻快讯】中共国对挪威议会进行了网络攻击](/content/gnews/29/README.md)
+### [【新闻快讯】中共国对挪威议会进行了网络攻击](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
-
-### [【秘翻在线】 欧洲通膨来了?](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/31/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
