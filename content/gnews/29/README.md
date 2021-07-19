@@ -2,34 +2,18 @@
 ---
 
 
-## 中共智库说821人注射疫苗后感染，敢打疫苗吗？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405208/)
+## 【秘翻在线】中共军方举行海滩突击演习以威慑美国和台湾
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405491/)
 
-2021年7月18日
+#### 撰稿：zzballack
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002036/%E5%86%9B%E8%B4%B9.jpg)图片来源：Taiwannews
+据 Newsmax 7月18日报道，距美国第一架军机降落台湾不到两个月，第二架军机于7月15日短暂降落在台湾的台北松山机场，停留约半小时。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18220609/0-35.jpeg)
+第二天7月16日，中共解放军的陆军和海军就在福建沿海水域举行了联合两栖登陆演习。《环球时报》援引一位未具名的军事专家的评论说：“这次演习应该被视为是对美国和‘台湾分裂主义者’的警告和威慑，而且未来可能还会有更综合、更复杂的演习。”7月15日，中共国防部就美军机在未经其批准的情况下就进入台湾领空发表警告说此举将会带来“严重后果”。
 
-编辑摘要：
+看到中共官方只能用口炮来回应美军军机进入台湾，就不由得想到南京军区副司令王洪光的名言“美军敢去台湾，我就三天拿下台湾。”现在距美军机入境台湾三天了，中共军方怎么还没有实质性的官方行动。所谓演习也只是做做样子，主要是给国内的人洗脑。
 
-2021年6月1日，中共国家中医药管理局官网上发布消息，表彰三支中医抗疫医疗队在境外成功救治确诊新冠的中企员工821人，零转重、零病亡、医务人员零感染。所有中企海外员工是最优先注射新冠疫苗、最早完成两针注射的群体，但是仍然有821人感染了新冠病毒。
-
-中共国大力宣传如何如何抗疫成功，全世界抗疫楷模，但为何有这么多人注册两针疫苗之后仍然感染？
-
-从现在发生的事实看，新冠疫苗注射全球最领先的国家，在放开管控后无一例外疫情重新爆发，这只能说明一点：新冠疫苗有效性存疑，甚至根本无效。尤其是注射了中共国产疫苗的国家，比如马来西亚，因200多名医务工作人员注射科兴疫苗后仍然感染新冠而不得不终止科兴疫苗，转用辉瑞疫苗。
-
-你还敢打疫苗吗？
-
-**【**[新闻来源](https://www.kunlunce.net/e/wap/show.php?classid=176&amp;id=153637)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**新闻来源：**[China Military Holds Beach Assault Drill to Threaten US, Taiwan](https://www.newsmax.com/newsfront/china-beach-military-drill/2021/07/18/id/1029016/)
 
 0

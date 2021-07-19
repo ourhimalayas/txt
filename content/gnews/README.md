@@ -40,14 +40,14 @@
 ### [【郭先生盖特视频摘要】2021.7.16：蓬佩奥是灭共最关键的人之一](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【新闻速递】自由和平等，但前提是您接种了疫苗](/content/gnews/9/README.md)
+### [快讯！韩驱逐舰海外群体感染中共病毒 超八成舰员确诊](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [【新闻速递】自由和平等，但前提是您接种了疫苗](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [7/19/2021日本银河快讯：英航母打击群或于9月在日本靠港；南非奥运代表团成员中共病毒检测阳性](/content/gnews/10/README.md)
+### [7/19/2021日本银河快讯：英航母打击群或于9月在日本靠港；南非奥运代表团成员中共病毒检测阳性](/content/gnews/11/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [CDC和CCP在美国全面实现暴政的10个步骤](/content/gnews/11/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -70,41 +70,41 @@
 ### [【世事解评】滴滴事件——背后大BOSS是谁](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【中英文字幕】7/17/2021文贵盖特：共产党的内部的政治斗争……已经到了最后的阶段](/content/gnews/19/README.md)
- ` Caihongqiao`
-
-### [【有声读物】字节跳动的今日头条被中（共）国勒令自9月起停止新用户注册](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [【有声读物】7月17日国际新闻速递](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [【粤语配音】中共是地球上对我们的繁荣、安全和价值观的最大威胁](/content/gnews/22/README.md)
+### [杰森·米勒：GETTR正在建立一个真正的在线社群，在全球范围内发展迅速](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【粤语配音】盖特一个重要的功能是可以导入个人推号里的所有内容](/content/gnews/23/README.md)
+### [杰森·米勒：在适度标准下，GETTR可以提供真正的言论自由](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【中英文字幕】7/16/2021文贵盖特：共产党与德国默克尔密谋的新尼克松计划，彻底失败](/content/gnews/24/README.md)
+### [《新闻联播》配合古巴独裁政府鼓吹美国煽动暴乱](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [【中英文字幕】7/17/2021文贵盖特：共产党的内部的政治斗争……已经到了最后的阶段](/content/gnews/22/README.md)
  ` Caihongqiao`
 
-### [【秘翻在线】中共军方举行海滩突击演习以威慑美国和台湾](/content/gnews/25/README.md)
+### [【有声读物】字节跳动的今日头条被中（共）国勒令自9月起停止新用户注册](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [【有声读物】7月17日国际新闻速递](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [快讯！韩驱逐舰海外群体感染中共病毒 超八成舰员确诊](/content/gnews/25/README.md)
+ ` 日本东京方舟农场`
+
+### [【秘翻在线】防火墙倒塌之时就是中共灭亡之日](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】中共毒疫苗已扩散至埃及和巴勒斯坦](/content/gnews/26/README.md)
+### [【秘翻在线】联合创始人：维基百科已沦为左倾建制派的宣传工具](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】国会立法禁止中共在美招聘人才](/content/gnews/27/README.md)
- ` 闪电侠`
+### [【秘翻在线】北京的控制让香港不复往昔](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [中共国制造业再遇“困难”，大量一线员工辞职](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【秘翻在线】中共军方举行海滩突击演习以威慑美国和台湾](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [中共智库说821人注射疫苗后感染，敢打疫苗吗？](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【NewsExpress】中国疫苗在亚洲的成功是否正在减弱？](/content/gnews/30/README.md)
- ` 闪电侠`
+### [【秘翻在线】中共毒疫苗已扩散至埃及和巴勒斯坦](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [英国成立4000人特种部队抗击中俄 培训南海周边国家](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [浅析伪类攻击爆料革命的拙劣但卑鄙的手法 （一）](/content/gnews/43/README.md)
+### [《蓝枫法律》第16期-六大法律思维模式](/content/gnews/43/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【澳洲热点】美军爱国者导弹首次在澳洲本土发射](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
+### [美国政府发布商业咨询公告警告在港企业面临四大风险](/content/gnews/44/README.md)
+ ` 日本东京方舟农场`
 
-### [【新闻速递】自由和平等，但前提是您接种了疫苗](/content/gnews/45/README.md)
- ` 纽约香草山MOS02`
-
-### [【金融讲座】详谈国际支付](/content/gnews/46/README.md)
- ` 纽约香草山MOS02`
-
-### [7/19/2021日本银河快讯：英航母打击群或于9月在日本靠港；南非奥运代表团成员中共病毒检测阳性](/content/gnews/47/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [CDC和CCP在美国全面实现暴政的10个步骤](/content/gnews/48/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共科技公司试图收购美国陆军模拟开发商](/content/gnews/49/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【医疗前沿世界】使用COVID PCR测试拭子与吸入石棉一样危险](/content/gnews/50/README.md)
- ` 纽约香草山MOS02`
-
-### [中美潜艇险些擦枪走火，日本防卫白皮书明确针对中共](/content/gnews/51/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【信仰之声】基督徒如何从“论断人”的教导中判断伪类？](/content/gnews/52/README.md)
+### [【信仰之声】如何运用《圣经》判断伪类？](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`
 
-### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/53/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [加拿大生活美谈 2021-07- 15第十五期](/content/gnews/46/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [五毒攻心，无药可救](/content/gnews/54/README.md)
+### [浅析伪类攻击爆料革命的拙劣但卑鄙的手法 （一）](/content/gnews/47/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [【澳洲热点】美军爱国者导弹首次在澳洲本土发射](/content/gnews/48/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年7月18日灭共要闻](/content/gnews/55/README.md)
- ` 秘密翻译组G-Translators`
+### [【新闻速递】自由和平等，但前提是您接种了疫苗](/content/gnews/49/README.md)
+ ` 纽约香草山MOS02`
 
-### [深海海底是中共国的下一个目标](/content/gnews/56/README.md)
+### [【金融讲座】详谈国际支付](/content/gnews/50/README.md)
+ ` 纽约香草山MOS02`
+
+### [7/19/2021日本银河快讯：英航母打击群或于9月在日本靠港；南非奥运代表团成员中共病毒检测阳性](/content/gnews/51/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [CDC和CCP在美国全面实现暴政的10个步骤](/content/gnews/52/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共科技公司试图收购美国陆军模拟开发商](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【医疗前沿世界】使用COVID PCR测试拭子与吸入石棉一样危险](/content/gnews/54/README.md)
+ ` 纽约香草山MOS02`
+
+### [中美潜艇险些擦枪走火，日本防卫白皮书明确针对中共](/content/gnews/55/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【信仰之声】基督徒如何从“论断人”的教导中判断伪类？](/content/gnews/56/README.md)
+ ` 纽约香草山MOS03`
 

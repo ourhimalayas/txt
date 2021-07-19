@@ -2,47 +2,33 @@
 ---
 
 
-## 马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1405222/)
+## 中共科技公司试图收购美国陆军模拟开发商
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1405487/)
 
-翻译：烟波浩淼 |校对：雨山溪桥客
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18221635/Picture1-63.png)图片来自网络
-上周六，数千名抗议者走上巴黎街头，抗议法国总统马克龙新的强制实施疫苗护照的措施。
+据《国家脉动》作者：[NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/)，2021年7月16日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19003258/8F8EC788-C2C9-4548-85C5-D652EB938787.png)
+腾讯——一家被标记为中共“工具”的科技公司，正试图收购一家被西方国家用来进行军事模拟的德国游戏开发商。
 
-马克龙最近宣布，要进入餐馆和剧院，必须持有中共病毒护照。
+据报道，这家将前奥巴马竞选主管作为说客、拜登白宫成员作为投资者的科技公司为Crytek公司提供超过3.5亿美元的资金。
 
-马克龙还宣布了一项针对所有医护人员的强制性疫苗新规定。
+德国《图片报》首先[披露](https://www.bild.de/politik/ausland/politik-ausland/china-konzern-will-deutsche-gaming-firma-kaufen-wegen-kriegs-simulationssoftware-77067376.bild.html%2523fromWall)，潜在的收购导致“担心中共国想使用 Crytek 开发的‘哭泣引擎’ （‘CryEngine’）为中国军队制作战争模拟程序”。
 
-到法国旅游的游客将不得不通过数字护照出示疫苗接种证明或中共病毒检测阴性。
+报告[补充](https://twitter.com/julianroepcke/status/1415035847645270025?s=10)说：“有了这些，中共国可以比以往任何时候都更现实地演练对台湾和西方的战争了。”
 
-新的中共病毒护照措施将于8月份开始实施。
+这种担忧并非瞎猜，因为美国国务院强调了这家科技公司与中共国政府的密切关系，[称](https://qz.com/1708662/chinese-tech-giants-tools-of-the-communist-party-us-official/)其为“共产党用以影响和控制的[工具](https://2017-2021.state.gov/huawei-and-its-siblings-the-chinese-tech-giants-national-security-and-foreign-policy-implications/index.html)”。
 
-周六，抗议者聚集在皇家宫广场。
+正如国务院所指出的：值得注意的是，现代化“中共国模式”建立在技术促进的监视和社会控制的基础上。 华为、腾讯、中兴、阿里巴巴和百度等科技公司代表了中共党国以关键方式开发、构建和维护了这些统治中国的技术。 随着这些公司向全世界地区出口产品和服务，与这种“中共国模式”相关的安全和人权问题也逐渐随之出口。
 
-视频：
+《图片报》补充说：“中共国可以暗中监视德国、美国和其他国家如何模拟军事冲突，因为美国陆军和德国武装部队都把‘哭泣引擎’ （‘CryEngine’）用在他们的士兵的军事模拟和训练计划中”。
 
+原文链接：[https://thenationalpulse.com/breaking/tencent-to-buy-military-tech-simulator/](https://thenationalpulse.com/breaking/tencent-to-buy-military-tech-simulator/)
 
+翻译：洛杉矶盘古农场 – 郭班之樱
+校对：洛杉矶盘古农场 – Mike Li
+审核：洛杉矶盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-> 🔴🇫🇷 Manifestation à [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) , La place est déjà pleine . [#paris](https://twitter.com/hashtag/paris?src=hash&amp;ref_src=twsrc%5Etfw) [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#DictatureSanitaire](https://twitter.com/hashtag/DictatureSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#Manif17juillet](https://twitter.com/hashtag/Manif17juillet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PU6wiwD9JG](https://t.co/PU6wiwD9JG)
-> — Thibault Penet Officiel (@ThibaultPnt\_76) [July 17, 2021](https://twitter.com/ThibaultPnt_76/status/1416371048040304640?ref_src=twsrc%5Etfw)
-
-
-抗议者挤满巴黎街头，要求马克龙辞职，并高呼“通行证不会通过！”
-视频：
-
-
-
-> « Liberté », « Macron démission », « le pass ne passera pas » scandent les nombreux participants à la [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) contre le [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) et le [#VaccinObligatoire](https://twitter.com/hashtag/VaccinObligatoire?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) dans les rues de [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/wFylro1zPM](https://t.co/wFylro1zPM)
-> — Morgan (@MorganRostagnat) [July 17, 2021](https://twitter.com/MorganRostagnat/status/1416411317041352704?ref_src=twsrc%5Etfw)
-
-
-
-原文作者：克里斯蒂·娜莱拉（Cristina Laila）
-发布时间：2021 年 7 月 17 日
-原文链接：[https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/](https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/)
-
-【本文仅代表作者个人观点，跟Gnews无关】
-
-编辑&发布：黎明的光芒
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
