@@ -2,54 +2,33 @@
 ---
 
 
-## 中美潜艇险些擦枪走火，日本防卫白皮书明确针对中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405235/)
+## 中共科技公司试图收购美国陆军模拟开发商
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1405487/)
 
-2021年7月18日
+据《国家脉动》作者：[NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/)，2021年7月16日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19003258/8F8EC788-C2C9-4548-85C5-D652EB938787.png)
+腾讯——一家被标记为中共“工具”的科技公司，正试图收购一家被西方国家用来进行军事模拟的德国游戏开发商。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18221825/0-1-6.jpeg)
+据报道，这家将前奥巴马竞选主管作为说客、拜登白宫成员作为投资者的科技公司为Crytek公司提供超过3.5亿美元的资金。
 
-编辑摘要：
+德国《图片报》首先[披露](https://www.bild.de/politik/ausland/politik-ausland/china-konzern-will-deutsche-gaming-firma-kaufen-wegen-kriegs-simulationssoftware-77067376.bild.html%2523fromWall)，潜在的收购导致“担心中共国想使用 Crytek 开发的‘哭泣引擎’ （‘CryEngine’）为中国军队制作战争模拟程序”。
 
-《信传媒》援引郭文贵先生7月17日直播表示，二次世界大战轴心国日本和德国如今走上两条路，日本将成为西方国家代理人，德国却被默克尔带向衰退之路。同时还表示，美军C-146A行政专机自日本冲绳降落台北松山机场前后，美中两国的潜水艇在台海附近差点擦枪走火打起来。
+报告[补充](https://twitter.com/julianroepcke/status/1415035847645270025?s=10)说：“有了这些，中共国可以比以往任何时候都更现实地演练对台湾和西方的战争了。”
 
-**日本《防卫白皮书》明确针对中共**
+这种担忧并非瞎猜，因为美国国务院强调了这家科技公司与中共国政府的密切关系，[称](https://qz.com/1708662/chinese-tech-giants-tools-of-the-communist-party-us-official/)其为“共产党用以影响和控制的[工具](https://2017-2021.state.gov/huawei-and-its-siblings-the-chinese-tech-giants-national-security-and-foreign-policy-implications/index.html)”。
 
-北京最近非常在意日本的举动，继日本日本防卫副大臣中山泰秀6月28日在美国智库会议上表示，台湾不是朋友，是兄弟、是家人，日本要对北京向台湾的施压觉醒，保护台湾这个民主国家之后，7月13日公布的日本《防卫白皮书》破天荒指出台湾安危对日本的重要性。
+正如国务院所指出的：值得注意的是，现代化“中共国模式”建立在技术促进的监视和社会控制的基础上。 华为、腾讯、中兴、阿里巴巴和百度等科技公司代表了中共党国以关键方式开发、构建和维护了这些统治中国的技术。 随着这些公司向全世界地区出口产品和服务，与这种“中共国模式”相关的安全和人权问题也逐渐随之出口。
 
-郭文贵先生表示，这次《防卫白皮书》跟所有历史上不一样的，基于以下两点，第一，这次日本的白皮书基本上走向了联合国、国家军队和日本正常化。第二，基本很明确，日本就是跟着美国走跟着欧洲走了。只要美国、欧洲需要跟老共干，那就干，需要打就打。而且这一次是得到了日本整个举国上下的大大的赞成。
+《图片报》补充说：“中共国可以暗中监视德国、美国和其他国家如何模拟军事冲突，因为美国陆军和德国武装部队都把‘哭泣引擎’ （‘CryEngine’）用在他们的士兵的军事模拟和训练计划中”。
 
-**美国对日本军力解封，日本将成亚洲代言人**
+原文链接：[https://thenationalpulse.com/breaking/tencent-to-buy-military-tech-simulator/](https://thenationalpulse.com/breaking/tencent-to-buy-military-tech-simulator/)
 
-郭文贵先生说，现在日本内部政治界流行两句话，叫“日本又回来了”；第二，“日本要和世界所有的西方文明、民主国家一起来参与管理世界”。说白了，日本被定为西方在亚洲的合法代言人。亚洲由日本说了算，那中共就完球蛋了。
+翻译：洛杉矶盘古农场 – 郭班之樱
+校对：洛杉矶盘古农场 – Mike Li
+审核：洛杉矶盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**默克尔跟中共靠近，把德国产业喂养中共反咬自己**
-
-郭文贵先生指出，现在代表基辛格角色的的是德国总理默克尔，但是她失败了，共产党遭到重挫，中欧投资协议被冻结。
-
-郭文贵先生抨击，默克尔是绝对的共产主义，虽然她任期剩下不到3个月，过去多年来，却把德国带入了未来200年都回不来的路。
-
-第一，在网际网路时代，德国的网路资讯产业进步与非洲差不多，大量GDP没跟上现代的、后工业化的环保以及绿色现代材料的工业革命，以后只能买其他国家的东西。
-
-第二，德国把大量产业移向中共，帮中共升级工业，将中共变成德国最大的竞争者，德国成了西方共产主义传播的平台，德国再犯下二战时期的错误，中共倒下时一定会带走德国。
-
-**全球加速“以毒灭共”，中共持续对付郭文贵先生**
-
-在国际上，全球正在加速以毒灭共，世卫组织（WHO）秘书长谭德赛、美国CDC及欧洲疾病预防控制中心（ECDC）召开紧急会议，研究中共病毒。近期，路德指说郭文贵是共产党、香港女科学家闫丽梦说他把自己斯里兰卡籍先生弄到美国来要害死她。
-
-不过从2017年以来，中共为了对付他，每隔一段时间就会有人出来指责郭文贵是中共间谍、是共产党，但这一切都不会动摇他持续的消灭共产党的运动。
-
-**【**[新闻来源](https://www.cmmedia.com.tw/home/articles/28806)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

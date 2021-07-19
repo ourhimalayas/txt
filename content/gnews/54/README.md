@@ -2,94 +2,43 @@
 ---
 
 
-## 【医疗前沿世界】使用COVID PCR测试拭子与吸入石棉一样危险
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405432/)
+## CDC和CCP在美国全面实现暴政的10个步骤
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1405461/)
 
-翻译：香草山商业组    文锤
+**作者：**S.D. Well 2021-07-09
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19003214/0718.jpg)
+图片来源：网络
 
+（自然新闻）现在，如果你还没有为对抗中共病毒接种疫苗，那么你知道疫苗比病毒危险得多。事实上，如果你知道他们今天放入疫苗中的任何东西，那么你知道中共病毒只是在美国引入共产主义的借口，一个人口减少计划，有1.5亿人像保龄球针一样建立起来，为”大封锁”做准备。
 
+最重要的是要认识到，对于未接种疫苗的人来说，现在还为时不晚，因为最初需要传播对中共病毒的恐惧，以建立政府权威，这样他们才能进一步侵犯我们的宪法权利，命令我们四处游荡——整天戴口罩，保持社会距离，关闭我们的企业，只从资助对中共病毒的假战争的大公司购买产品。这是一场假战争， “他们” （民主党、CCP和运行  的全球主义者） 想要你的支持。
 
+你看，政府都更喜欢民众对战争的支持，无论是运功战、假”恐怖战”，还是针对”杀手病毒”的假战争。具有讽刺意味的是，这次敌人根本不是外国人：事实上，他是每个美国人。
 
+真正阴险的议程总有遮掩。每个人都必须买进。当然，9/11掩盖了哈里伯顿挪用50亿美元和宪法及残疾人隐私爱国者法案。阿富汗战争遮盖了美国接管鸦片贸易，因为海洛因高度流行成瘾，破坏健康的处方止痛药。现在，中共病毒和三角洲变种是共产党接管美国和人口减少/消毒运动的掩护，通过一次”疫苗加强剂”的注射，至少可以消灭50%的美国民众。可以称之为”杀人开关”。
 
-原文阅读：
+**实现暴政的10个步骤**
 
-[https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-访问Antonietta Gatti 教授 参考视频链接：
-
-[https://www.youtube.com/watch?v=DgoQp3bVdAc](https://www.youtube.com/watch?v=DgoQp3bVdAc)
-
-**译文：**
-
-**一位实验物理学家和生物材料研究人员在显微镜下检查了各种**** PCR ****测试拭子，发现它们所含的纤维对人类来说与吸入石棉一样危险。**
-
-Antonietta Gatti 教授 检查了各种 PCR 测试拭子并分析了它们的成分。结果表明，它们由坚韧的材料制成，并含有大量纳米颗粒，包括银、铝、钛和玻璃纤维。所有这些都没有在 PCR 测试包装说明书上声明。
-
-根据教授的说法，如果这些纤维卡在粘膜中，它们会导致严重的伤口和炎症。不再完整的粘膜无法在病毒、细菌和真菌到达呼吸道之前发挥其抵御作用。细菌无需任何免疫过滤即可穿透呼吸道。对于从所谓的大流行开始以来，一直遵守当局规定，并参加定期测试和戴口罩的人来说，这不是好消息。这是因为口罩是所有类型细菌的理想滋生地。
-
-在实验室里，Gatti 教授使用电子显微镜（ESEM 和 EDS）分析各种类型的拭子，这些拭子用于收集人体有机物进行 PCR 诊断，以检查形态和化学成分。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002919/546-1.png)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-使用中国深圳 Biocomma 制造的“棉毛”棒，Gatti 教授无法确定它是由碳制成还是由棉制成。产品中的污垢由碳酸钙、不锈钢和硅酸盐组成。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002923/546-2.jpg)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-一根来自中国Manta的刷状测试棒，显示出大量断裂的纤维。发现碳、氧、硅、锆、硫、铝、钛和钠是样品的成分。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002925/546-3.jpg)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-Biocomma 的另一个拭子似乎是由玻璃纤维制成的，或者至少有玻璃纤维涂层。成分是碳、氧、铝、硅和钛。不能排除由有机材料制成的附加涂层。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002930/546-4.png)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-另一个测试棒——FLOQSwabs——的敷抹器的尖端涂有垂直排列的短尼龙纤维。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002932/546-5.jpg)FLOQSwabs拭子棉签 [图片来源](https://labelians.fr/ecouvillon-floqu-floqswabs.html)
-
-Gatti 教授说：“该公司解释说，纤维芯由尼龙制成，并带有专利材料涂层，在分析中，该材料是硅酸盐-锆-钛。这种涂层使纤维更硬，从而能够撕裂粘膜。在涂片操作期间施加的压力可能会破坏一些留在原位的纤维。发生这种情况时，它们会引起异物反应，从而损害粘膜，从而阻碍呼吸和说话。”
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002938/546-6.jpg)*PCR 测试拭子的颈部* [图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-根据Gatti教授的分析，拭子颈部图片上的小白点是银纳米粒子——“银是一种没有在制造商数据表中声明的材料。”
-
-Gatti 教授得出以下结论——
-
-“这种 “豪猪” 拭子由坚韧的纤维制成。如果它们刮擦鼻粘膜，它们会损坏它，导致出血病变，或者在任何情况下都会对组织造成创伤。
-
-“在粘膜的愈合过程中，断裂的纤维可以穿透组织进入身体，而没有机会将它们去除，导致肉芽肿或纤维化组织的形成，就像任何异物在身体中一样。
-
-所检查的医疗器械并非完全具有生物相容性，因此不符合 ISO 标准 10993 的要求，以及获得 CE 标志所需的测试。
-
-教授的调查结果总结如下——
-
-- 拭子对鼻咽粘膜是危险的。玻璃纤维又硬又脆，会划伤粘膜并造成损伤。粘膜出血是测试侵入性的一个标志。
-- 重复的拭子测试会产生慢性病变。脆性玻璃纤维碎片的释放会引起生物反应，例如肉芽肿和/或组织纤维化。
-- 这些涂抹拭子对婴儿和儿童的健康构成威胁。如果测试是必要的，必须对儿童使用小而温和的涂抹拭子。
+1. 创造一种新的人类疾病（病毒），杀死弱者和免疫受损者（完成）。
+2. 将中共病毒传播到全球（完成）。
+3. 为该病毒制造“疫苗”，让“疫苗”导致血栓和危及生命的心肌炎（完成）。
+4. 大肆传播对中共病毒的恐惧，以至于全球至少有70%的人（或者至少是在美国）接种“疫苗”（目前只达到50%）。
+5. 传播对一种新”变种”（称为三角洲）的恐惧，宣传这种”变种”甚至比原始病毒”更致命”和”更具传染性”（刚开始）。
+6. 将所有疫苗的伤害和死亡归咎于新的”三角洲变种”（刚刚开始）。
+7. 要求每个接种疫苗者接种他们针对”三角洲变种”的疫苗，该接种要么指令接受者的细胞产生数十亿有毒的蛋白质，导致患者精神错乱并导致心力衰竭，要么疫苗中最终含有模仿病毒感染机制的致病蛋白的”有效载荷”，这些致病蛋白过量使用接种者的免疫系统，导致他们死亡。
+8. 一场新的群众性事件”发生”，使人民之间的一切交流陷入瘫痪，然后中国共产党人开始从我们南部边境”放牧”。
+9. 另一个大规模枪击事件 “发生”，看起来像特朗普的支持者，且是 “反疫苗” 的右翼极端分子。
+10. 没收所有剩下的未接种疫苗的美国人的枪支，从而共和国也丢失了。
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
+**美国的共产主义者和人口减少主义者打着”爱国”的幌子，让你出于对中共病毒及其变种的恐惧而接受自己的疫苗终止制剂**
 
-校对/发稿：小鹿
+接种疫苗死掉被认为是”爱国的”，因为这个国家现在由共产党人管理，他们想用国内生物恐怖主义（致命疫苗）消灭至少3/4的美国人，并将十亿中国人从中国转移到这里。正如希特勒利用宣传来推销他的动机对社会和德国经济有帮助一样，CDC和CCP正在”推销”疫苗、口罩、社会疏远和封锁给每一个人，正如我们所知道的那样终结美国。这就是为什么精神错乱的造假总统乔只是告诉大家，美国人接种疫苗是你们可以做的最爱国的事情。
 
+**评：**美国不但存在共产主义者而且中国共产党几乎控制了50%的美国内部力量（文贵先生在17年爆料中共通过蓝金黄的手段对美国进行渗透时曾经提到）。被全球主义者控制的美国政府及其医疗部门仍然在大力推行疫苗接种运动，前不久拜登政府已经开启“挨家挨户”驱动疫苗接种运动，主流媒体大肆宣传中共病毒Delta变种的强传染性致死性，目的是恐吓更多的民众接受接种，以达到更高的接种率；同时把疫苗引起的伤害和死亡归因于这一新变种病毒，而避谈或淡化这种实验性中共病毒疫苗的副作用和致死性。美国的邪恶势力在继续通过医疗暴政的手段来达到最终在美国实现全面暴政，并没有收手的迹象；中共统治美国乃至全世界的邪恶计划通过其在全球各国的同伙的协助下仍在进行。知道中共病毒及其疫苗真相，以及中共的邪恶图谋的正义人士需要站起来他团结联合起来对抗全球邪恶力量，消灭中共是自救救家人乃至救全人类的要求。
 
+原文：S.D. Well, “10 Steps to TOTAL TYRANNY by the CDC and CCP in America”. [Natural News](Natural%20News), July 9, 2021. [https://www.naturalnews.com/2021-07-09-10-steps-to-total-tyranny-cdc-and-ccp.html#](https://ssl.microsofttranslator.com/bv.aspx?ref=TVert&amp;from=&amp;to=zh-Hans&amp;a=https%3A%2F%2Fwww.naturalnews.com%2F2021-07-09-10-steps-to-total-tyranny-cdc-and-ccp.html%23)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
-
-+1
+0
