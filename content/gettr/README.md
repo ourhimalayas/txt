@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 5:13 PM (UTC)`
+
+From the video of Wang Jian, Chairman of the Beijing Genomic Institute (BGI), the CCP has long planned to use various high-tech industries controlled by PLA to biologically weaponize the CCP’s entire army. Anyone with a conscience should watch this video carefully!
+![img](https://media.gettr.com/group31/getter/2021/07/19/17/c6426cdb-80cb-f745-69df-ac9be0858706/out.jpg)
+
+---
+
 `@miles 7/19/2021 4:59 PM (UTC)`
 
 This is the real face of Serpent Yan! 
@@ -304,13 +311,6 @@ This clip clearly displays Miles Guo’s Revelation Timeline of the CCP Virus. M
 
 尊敬的战友们好，你们健身了吗？传播CCP病毒．香港危机真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group28/getter/2021/07/15/13/075550e3-185f-ff43-1225-3b4a43c78e71/out.jpg)
-
----
-
-`@miles 7/15/2021 12:02 PM (UTC)`
-
-G翻身又翻了一个身…… https://www.gfashion.com/zh/
-![img](https://media.gettr.com/group2/getter/2021/07/15/12/7aad81e0-6278-00c2-e549-17dbcd808c3e/fd910955525ccc64b776211c12b29122.jpg)
 
 ---
 
