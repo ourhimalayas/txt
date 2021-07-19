@@ -2,23 +2,30 @@
 ---
 
 
-## 【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1406185/)
+## 【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1406306/)
 
-撰稿：风之伤
+#### 文章撰写:【默凡】
 
-校对：文柯Miles
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19073259/443nipasdafste_asdf2021-07-19_19-32-15.png)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19061414/sadf135s1a4d65g456rtr56h65tyh56yt.jpg)图片来源：AI Jazeera
+美国前国务卿蓬佩奥近日参加「家庭领导峰会」并发表讲话，他在讲话表示，不珍视人命和破坏家庭是全球共产主义暴政的标志，已成立100周年的中国共产党被认为是世界上杀人最多的杀人犯。
 
-据每日快报 2021年7月19日报道，俄罗斯普京已向乔·拜登提出提供俄罗斯在中亚的军事基地，以方便美国从阿富汗收集情报。该提议是在莫斯科上周警告华盛顿不要试图在与阿富汗相邻的前苏联国家建立自己的军事基地之后提出的。 美国撤军导致塔利班死灰复燃，塔利班继续在向首都喀布尔推进的过程中击溃政府军。 这个伊斯兰组织声称控制了该国高达 85% 的土地。
-
-这种情况引起了克里姆林宫的担忧，普京认为美国在阿富汗的存在对该国是有益的，有助于带来稳定。俄罗斯外交部长谢尔盖·拉夫罗夫则批评美国和北约部队从该国 “仓促撤离”，称这一决定威胁到了俄罗斯的未来，担心塔利班的重新崛起可能会在临近的中亚国家引发动荡，并增加了来自恐怖主义和毒品贩运的威胁。俄罗斯特别是在高加索地区有大量的穆斯林人口，并且近年来一直在与伊斯兰原教旨主义的兴起作斗争。
-
-在上个月的日内瓦峰会上，普京提出美国可以使用俄罗斯在吉尔吉斯斯坦（是俄罗斯最大的外国基地，可容纳约6000名士兵）和塔吉克斯坦的基地来收集情报。该提案将允许美军在其行动中使用无人机，但目前还不清楚是否会允许美军在基地永久驻扎。白宫尚未对该提议作出明确答复，克里姆林宫也拒绝就此事发表评论。
-
-新闻来源： [Putin extends allied hand to Biden as he ‘offers Russian bases to spy on Taliban’](https://www.express.co.uk/news/world/1464386/putin-offers-biden-russian-bases-to-spy-on-taliban-us-president-white-house-islamists-ont)
+蓬佩奥卸任前认定中共在新疆犯下种族灭绝罪和反人类罪，中共在新疆关押超过一百万维吾尔族人，并进行强迫节育和强迫流产，这就像上世纪三十年代的德国。美国已经指出中共的罪行，让全球形成共识并认识到中共的邪恶。美国如果继续中共的邪恶行径，这将威胁美国的国家安全。
 
 
 
-+1
+> 蓬佩奥：中共是全世界杀人最多的杀人犯！ 中共现在正在进行种族灭绝！
+> 蓬佩奥在「家庭领导峰会」上讲话
+> Mike Pompeo: the CCP is the largest murder of people in the world. Today the CCP is conducting Genocide in west China! [pic.twitter.com/YudeJ7c1pw](https://t.co/YudeJ7c1pw)
+> — 卓奥友峰 (@ChoOyu64) [July 18, 2021](https://twitter.com/ChoOyu64/status/1416891492107386880?ref_src=twsrc%5Etfw)
+
+
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+校对发布：日本东京方舟农场 文柯Miles
+
+0

@@ -58,17 +58,17 @@
 ### [【拆台新闻】如蜡烛被极权体制燃尽的乡村教师](/content/gnews/14/README.md)
  ` 索尼克`
 
-### [【快讯】中共下放行政处罚权：重演突尼斯自焚小贩 “颜色革命”戏码](/content/gnews/15/README.md)
+### [2021/07/19 墙内世界](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【快讯】中共下放行政处罚权：重演突尼斯自焚小贩 “颜色革命”戏码](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [【快讯】中共国发射遥感卫星三十号10组卫星](/content/gnews/16/README.md)
+### [【快讯】中共国发射遥感卫星三十号10组卫星](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [戳穿中共百年冥诞致词里的谎言——一国两制&amp;全面管治权&amp;九二共识](/content/gnews/17/README.md)
+### [戳穿中共百年冥诞致词里的谎言——一国两制&amp;全面管治权&amp;九二共识](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [【战友心声】国内如何避免强制打疫苗](/content/gnews/18/README.md)
- ` 纽约香草山MOS03`
 
 ### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -88,34 +88,34 @@
 ### [因为其大棒动机，推特由于侵犯言论自由而被起诉](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/25/README.md)
- ` 秘密翻译组G-Translators`
-
-### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【联盟汇报】2021年7月18日](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
-
-### [【NewsExpress】中共军方举行抢滩登陆演习 警告台湾和美国](/content/gnews/28/README.md)
+### [【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯](/content/gnews/25/README.md)
  ` 索尼克`
 
-### [Facebook暂停对儿童戴口罩实用性表示怀疑的用户 社交媒体平台正面临巨大诉讼](/content/gnews/29/README.md)
+### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [北戴河静悄悄 中南海更换警卫局长](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【联盟汇报】2021年7月18日](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
 
-### [【秘翻在线】美国会警告称中共威胁国家食品系统](/content/gnews/31/README.md)
+### [【NewsExpress】中共军方举行抢滩登陆演习 警告台湾和美国](/content/gnews/29/README.md)
+ ` 索尼克`
+
+### [Facebook暂停对儿童戴口罩实用性表示怀疑的用户 社交媒体平台正面临巨大诉讼](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西喜时事新闻简报 — 中共踩油门篇](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【秘翻在线】美国会警告称中共威胁国家食品系统](/content/gnews/32/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】知名歌手谴责古巴政府暴行为民主发声](/content/gnews/32/README.md)
+### [【秘翻在线】知名歌手谴责古巴政府暴行为民主发声](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美日澳印正安排今年9月举行首次面对面四方峰会](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/07/19 英喜时事速递](/content/gnews/34/README.md)
+### [美日澳印正安排今年9月举行首次面对面四方峰会](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共“超限战”渗透游戏行业](/content/gnews/43/README.md)
+### [【中共国段子】绿色贝雷帽（2）](/content/gnews/43/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [【中共国段子】绿色贝雷帽（1）](/content/gnews/44/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [中共“超限战”渗透游戏行业](/content/gnews/45/README.md)
  ` 澳喜农场`
 
-### [保护自己非常重要](/content/gnews/44/README.md)
+### [保护自己非常重要](/content/gnews/46/README.md)
  ` 澳喜农场`
 
-### [【币圈】-数字货币动态 -2021.07.19](/content/gnews/45/README.md)
+### [【币圈】-数字货币动态 -2021.07.19](/content/gnews/47/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/46/README.md)
+### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十八）](/content/gnews/47/README.md)
+### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十八）](/content/gnews/49/README.md)
  ` RU WEI`
 
-### [【每日快报】大批民众在白宫抗议发生在古巴的镇压；数千人也在迈阿密集会 2021.07.19](/content/gnews/48/README.md)
+### [【每日快报】大批民众在白宫抗议发生在古巴的镇压；数千人也在迈阿密集会 2021.07.19](/content/gnews/50/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [试看路德闫丽梦团伙如何把自己的屎吃回去（三）](/content/gnews/49/README.md)
+### [试看路德闫丽梦团伙如何把自己的屎吃回去（三）](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [人为何而活](/content/gnews/50/README.md)
+### [人为何而活](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [【战友心声】从“墨博士”的推文看人性的丑恶](/content/gnews/51/README.md)
+### [【战友心声】从“墨博士”的推文看人性的丑恶](/content/gnews/53/README.md)
  ` 纽约香草山MOS03`
 
-### [“说说你的看法– 老百姓真的脱贫了？” 第03期](/content/gnews/52/README.md)
+### [“说说你的看法– 老百姓真的脱贫了？” 第03期](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [不多，记不准了](/content/gnews/53/README.md)
+### [不多，记不准了](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [缺德社大脑袋无知慧](/content/gnews/54/README.md)
- ` 日本东京樱花团`
-
-### [中共超限战灭港行动（五十一）倒行逆施激民愤 616民阵发起大游行](/content/gnews/55/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [爱之深，急着切](/content/gnews/56/README.md)
+### [缺德社大脑袋无知慧](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 

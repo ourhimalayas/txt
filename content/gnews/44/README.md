@@ -2,25 +2,10 @@
 ---
 
 
-## 保护自己非常重要
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1406210/)
+## 【中共国段子】绿色贝雷帽（1）
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1406286/)
 
-撰稿: Markus Shaw
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19062846/2021-07-19_T1.jpeg)（图片来源於网络）
-路德社事件之后，爆料革命内部出现了很多对原来非常信任的战友们的各种怀疑，对爆料革命的军心稳定產生了不小的动摇。虽然文贵先生直播即时稳定了军心，但是这桩事件的反思应该在大家心裡铭记。我来分享一些保护自己，在爆料革命中坚强战斗的心得体会。
-
-首先就是不要透露个人信息。这点对保护自己来说至关重要，只有保护好自己的个人信息，才能确保不会被中共的国安，间谍势力跟踪，查询。其次就是有一套良好的认知体系。中共的超限战中，有一个环节比病毒战更加隐密，那就是认知超限战。所谓认知超限战，就是通过媒体宣传带风向，通过政治操作改变公眾对事件，人物等认知，具体到每位农场参加工作的战友身边，就是通过建立及其良好的个人形象，对战友表现出及其亲近，努力甘愿为战友付出。但是看到这裡，可能有的战友就会问了，这样努力而亲近战友的可能是个好战友呀，因为这些也是好战友追求去做的事情呀。
-
-这样说是没错的，这也正是十面埋伏无法被发现的原因，因为他们和真战友一模一样，甚至比真战友更加讨喜。所以我们对这样的潜藏中共间谍是很难有对策的。但只要保护好第一条原则，即不透露个人信息，就一定能够最大程度限制这样的中共特务对我们的危害。
-
-保护好自己，更加在於有好的心态。文贵先生在直播中提到过，很多高级间谍都是潜藏在农场内部很深的，他还说过一段时间可能一週，甚至一天就要爆一个间谍事件出来。我们不能因为潜藏的对手暴露出来，就把心情完全低落下去，放下工作。这样只会中了中共的招数。越是有间谍，越要团结，越要有紧随文贵先生的良好心态，看开些，把工作做好，专注於有意义的事情。这样才能让中共间谍无计可施。
-
-（文章内容仅代表作者观点）
-
-*编辑：8 Mile*
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
+【作者】Xingfffooo
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19072021/simplified40.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
+![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
 0

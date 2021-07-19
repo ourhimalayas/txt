@@ -2,19 +2,21 @@
 ---
 
 
-## 【秘翻在线】知名歌手谴责古巴政府暴行为民主发声
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405986/)
+## 【秘翻在线】美国会警告称中共威胁国家食品系统
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1406195/)
 
-搜索/翻译/撰稿：sisyphus（天元）
+搜索/采集/撰稿：sisyphus（天元）
 
 校对： Chris
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19042818/19073.png)图片来源： 美国之音
-据国会山报(The Hill) 7月19日报道，古巴出生的流行歌手格洛丽亚·埃斯特凡(Gloria Estefan) 呼吁美国和联合国在古巴政府暴力镇压抗议活动后对古巴政府采取行动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19062306/19075.jpg)图片来源： Investigate Midwest
+据《政客》（Politico）美东时间7月19日报道，美国众议院警告称中共的投资对美国食品系统构成了安全风险，将中共的影响力从美国经济中剔除已成为两党共识，国会立法者正在研究打击中共购买美国农业地产的措施。确保美国农场的持有权保持在美国人手中。
 
-她表示，“我为岛上的古巴人民以及他们已经遭受超过62年的苦难心痛，尽管被共产主义政权殴打，谋杀和监禁，滥用权力，饥饿和精神打压。但现在他们勇于站出来维护自己的权力，他们需要我们和世界上的民主和自由国家的支持，联合国和美国必须强烈谴责古巴政府对他们自己的人民采取的暴力镇压罪行”。
+据美国农业部2020年的数据显示，中国业主在美国控制了约19.2万英亩的农业用地，总价值19亿美元，包括用于耕种，放牧和林业的土地。虽然这个数量仍低于其他国家的居民所拥有的，但购买量的增幅和卖买家与中共的潜在联系让美国感到十分惊恐。
 
-这是几十年来规模最大的一次抗议活动，人们希望这些活动能够影响有意义的政权变革。
+众议员丹·纽豪斯在最近的众议院拨款听证会上表示：“美国的土地正在逐渐被有中共背景的人垄断”。
 
-新闻来源：[Gloria Estefan says US should get involved in Cuba](https://thehill.com/blogs/in-the-know/in-the-know/563625-gloria-estefan-says-us-should-get-involved-in-cuba?rl=1)
+前副总统迈克·彭斯上周三在保守党传统基金会上表示：“美国不能允许中共控制我们的粮食供应”。并敦促拜登总统和国会终止对外国居民名下的土地的所有农业补贴。
+
+新闻来源：[China is buying up American farms. Washington wants to crack down.](https://www.politico.com/news/2021/07/19/china-buying-us-farms-foreign-purchase-499893)
 
 0
