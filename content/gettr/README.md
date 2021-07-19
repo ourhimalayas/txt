@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 11:45 PM (UTC)`
+
+尊敬的战友们好……你们健身了吗？
+![img](https://media.gettr.com/group13/getter/2021/07/19/23/b474ec4c-41b9-81c3-0c54-d44accbaf468/out.jpg)
+
+---
+
 `@miles 7/19/2021 10:54 PM (UTC)`
 
 150万粉丝的歌星因为穿上G翻身而引轰动．https://www.instagram.com/p/CRhJesBFADH/?utm_medium=copy_link
@@ -303,15 +310,6 @@ America stands with the Cuban people.<br/> <br/>America stands against socialism
 这是好主意呀！快行动吧……
 > `@usalee 7/15/2021 5:37 PM (UTC)`<br/>战友的智慧👍
 ![img](https://media.gettr.com/group30/getter/2021/07/15/17/c8ca24cc-9e9f-d309-bb3d-18397090476b/ae2b6e59eb84ff438fdaf6757c963e79.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 7/15/2021 1:17 AM (UTC)`
-
-Thanks again Scott!!!<br/><br/>Great advocate for free speech - please give him a follow!
-> `@scottsands 7/14/2021 3:22 PM (UTC)`<br/>GETTR’s own @jasonmillerindc back on my show at 5:46p ET today. <br/>🎧 📻 📱 💻 <br/>http://www.WSPD.com/listen 
 
 ---
 
