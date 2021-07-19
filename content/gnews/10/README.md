@@ -2,47 +2,29 @@
 ---
 
 
-## 马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1405222/)
+## 【樱花宅急便】美国政府在病毒溯源问题上观点全面转变
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1405370/)
 
-翻译：烟波浩淼 |校对：雨山溪桥客
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18221635/Picture1-63.png)图片来自网络
-上周六，数千名抗议者走上巴黎街头，抗议法国总统马克龙新的强制实施疫苗护照的措施。
+作者：东京樱花团 文小白
 
-马克龙最近宣布，要进入餐馆和剧院，必须持有中共病毒护照。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18234208/file7f4dhrylmvmvze28a6q.jpg)
 
-马克龙还宣布了一项针对所有医护人员的强制性疫苗新规定。
+据消息人士7月16日向美国有线电视新闻网介绍说，在肆虐全世界的新冠病毒溯源的问题上，进行溯源调查的官员在认识上发生了变化，越来越认可COVID-19来自武汉病毒实验室。白宫的态度也日渐强硬。日前美国白宫国家安全顾问沙利文（Jake Sullivan）告诉福克斯新闻，如果中方不配合调查，中方将面临“[国际社会的孤立](https://www.aboluowang.com/tag/%E7%A6%8F%E5%85%8B%E6%96%AF%E6%96%B0%E9%97%BB-1.html)”。
 
-到法国旅游的游客将不得不通过数字护照出示疫苗接种证明或中共病毒检测阴性。
+根据约翰霍普金斯大学的数据，截至7月19日现在，自2019年底在中国武汉报告了首例 COVID-19病例以来，全球已有1.9亿人感染，409万人死于该疾病。
 
-新的中共病毒护照措施将于8月份开始实施。
+在拜登总统突然下令美国情报机构调查新冠病毒来源之后，许多科学家做出了积极反应
 
-周六，抗议者聚集在皇家宫广场。
+今年5月26日，美国总统拜登机构调查新突然下令美国情报冠病毒来源，指示要收集和分析可以更接近新冠病毒来源明确结论的信息，并在90天内写出报告。声明中还直接提及中国，敦促中国参与所谓的“全面、透明、以证据为基础”的国际调查。白宫新闻秘书珍·普萨基（Jen Psaki）告诉记者，政府一直在通过外交渠道向中国政府施压，要求允许国际调查人员可以得到中国在疫情爆发初期收集的数据。
 
-视频：
+・延展阅读：[谭德塞：第二阶段冠病溯源应包括调查武汉实验室](https://www.zaobao.com.sg/realtime/china/story20210718-1170427)
 
+・延展阅读：[美国报告认为新冠病毒有可能从武汉实验室泄露](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E6%8A%A5%E5%91%8A%E8%AE%A4%E4%B8%BA%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9C%89%E5%8F%AF%E8%83%BD%E4%BB%8E%E6%AD%A6%E6%B1%89%E5%AE%9E%E9%AA%8C%E5%AE%A4%E6%B3%84%E9%9C%B2-11623117009)
 
+对于越来越多的美国政界人士和科学家来说，搞清楚灾难性的新冠大流行背后的病毒是否源于中国实验室泄漏是十分紧迫和有必要的。中共政府拒绝允许对武汉实验室进行独立调查或共享其研究数据，只能让人们更加的开始合理怀疑。
 
-> 🔴🇫🇷 Manifestation à [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) , La place est déjà pleine . [#paris](https://twitter.com/hashtag/paris?src=hash&amp;ref_src=twsrc%5Etfw) [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#DictatureSanitaire](https://twitter.com/hashtag/DictatureSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) [#Manif17juillet](https://twitter.com/hashtag/Manif17juillet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/PU6wiwD9JG](https://t.co/PU6wiwD9JG)
-> — Thibault Penet Officiel (@ThibaultPnt\_76) [July 17, 2021](https://twitter.com/ThibaultPnt_76/status/1416371048040304640?ref_src=twsrc%5Etfw)
-
-
-抗议者挤满巴黎街头，要求马克龙辞职，并高呼“通行证不会通过！”
-视频：
-
-
-
-> « Liberté », « Macron démission », « le pass ne passera pas » scandent les nombreux participants à la [#manifestation](https://twitter.com/hashtag/manifestation?src=hash&amp;ref_src=twsrc%5Etfw) contre le [#PassSanitaire](https://twitter.com/hashtag/PassSanitaire?src=hash&amp;ref_src=twsrc%5Etfw) et le [#VaccinObligatoire](https://twitter.com/hashtag/VaccinObligatoire?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) dans les rues de [#Paris](https://twitter.com/hashtag/Paris?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/wFylro1zPM](https://t.co/wFylro1zPM)
-> — Morgan (@MorganRostagnat) [July 17, 2021](https://twitter.com/MorganRostagnat/status/1416411317041352704?ref_src=twsrc%5Etfw)
-
-
-
-原文作者：克里斯蒂·娜莱拉（Cristina Laila）
-发布时间：2021 年 7 月 17 日
-原文链接：[https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/](https://www.thegatewaypundit.com/2021/07/protests-erupt-france-macron-mandates-covid-vaccine-passports-video/)
-
-【本文仅代表作者个人观点，跟Gnews无关】
-
-编辑&发布：黎明的光芒
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*编辑：东京樱花团  煙火1095*
+*发布：东京樱花团 老黑*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
 0

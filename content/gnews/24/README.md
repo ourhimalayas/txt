@@ -2,204 +2,23 @@
 ---
 
 
-## 佛罗里达州副州长对古巴自由抗议的评论：年轻一代不惧怕压迫政权
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404239/)
+## 【中英文字幕】7/16/2021文贵盖特：共产党与德国默克尔密谋的新尼克松计划，彻底失败
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1404302/)
 
-字幕内容：
+制作： 【彩虹桥】
 
-**Stefan Kleinhenz (OAN host)**
+7月16号尊敬的战友们好，你们健身了吗？传播CCP病毒、香港危机真相了吗？兄弟姐妹们热闹不热闹，今天7月16号，大家现在看到了吗，美国军机又降落台湾了，是吧，不但降落台湾，知道昨天发生什么事了吗？听说在台海美军的潜水艇和中共的潜水艇差点PK，哇塞..事很大吧，谭得塞还有美国CDC，欧洲传染病防卫组织，昨天紧急开会，研究中共病毒到底怎么回事儿？发生啥事儿了？发生啥事儿了？
 
-斯特凡**·**克莱因恩茨** **（**OAN**主持人）
+同时咱把“蛇妖闫”所谓在网站上发表的三篇文章，咱给她拿下来了，能让你上是因为我，是因为我们爆料革命，现在给你拿下来让你看一看，没有你爆料革命以毒灭共，只能说是飞速前进，让你看一看，能让你上也能让你下，爆料革命、新中国联邦是战友的力量，不是你的，我用实际证明给你看，真正的是背后的千千万万的战友和勇敢站出来真正的参与实验室制造病毒的那些科学家们和政府官员，这是谭得塞、美国、欧洲世界、日本、北欧，甚至俄罗斯，都必须面对的现实，铁证啊，你“蛇妖闫”有啥铁证啊？就靠你杀老鼠的手，罪恶累累的手吗？和凭你吸那个“路大脑袋”“亡腚缸”的痰吗？恶心死我了。
 
-How going forward, can the results finally be different?
+所以说怎么样，我会再次的行动告诉你，是一定会把你送回香港。你为什么来到这里？我们给你申请的证庇，我们向政府申请的，必须给你撤回来，你不是说，是我把你先生弄到美国来，马亨来杀你的吗？马亨会跟政府交代的，他认不认识我？他怎么来的美国？很快，兄弟姐妹们要看到的事情，严肃的国际形势，看看最近对共产党的制裁，接下来一系列的制裁，我以前说过，永远不会停，拜登政府的灭共，只能越来越快，不会越来越慢，拜登政府对灭共的行动，只能越来越进行，不能停留在口炮党上，过去的四年，最重要的事情把共产党由彭佩奥国务卿定义为新疆种族大屠杀和反人类罪，彭佩奥国务卿可以说，当今世界灭共的最大的力量，最坚定的灭共力量，最大的杀手之一，他曾经是西点军校的第一人，同时他又是在CIA最优秀的中情局局长，又到了国务卿，他在全世界所有的情报系统，包括他个人的人脉关系，被世界誉为美国近几十年出来的最优秀的外交官，最资深的外交官，蓬佩奥先生做得最关键的一个就是依法灭共、种族大屠杀、反人类罪的政府应该呆在这个世界吗？
 
-怎么往前走，最后能不能有不一样的结果。
+接下来看看不仅仅是因为香港对这些人所谓的共产党高官的制裁，接下来会有一系列的包括民主党的官员都会和我们站在一起，记住七哥说的话，今天已经是剩了八十七天了，我三年前说的90天，看看他们会发生什么事情，真正的和我们在一起灭共的是真正的什么人，绝对不是“路大骗子”“路大脑袋”绝对不是“蛇妖闫”，她连饭都吃不上，她跟你灭啥共啊，是不是？那么这种情况下，看看我们背后真正的沼泽地是谁，会让你们看到恍然一悟，哇..原来过去这四年是这些人支持爆料革命，这些人站出来，都是你过去不曾想象的，是共产党不曾想像的，共产党以为我们灭了“蛇妖闫”灭了“亡腚缸”不让他代表我们爆料革命，然后不要谈我们有没有欺骗我们战友，你以为你赢了共产党，灭你的决心更加多了百倍万倍。我们能让一个骗子，没饭吃的“亡腚缸”这个人渣，能让“蛇妖闫”这个魔鬼这个人渣，变成天上掉下来的一块屎，能把你打得跪下，你看着下一个出来的人，你看他是从哪儿来的，下一个再出来的人再又从哪儿来的。
 
-We do have to think about this in the non-traditional way,
+现在国内的经济大家都看到什么情况，现在房地产商，如果你整栋楼卖，没人买，打半折都没有人买，只能想办法忽悠那些占便宜的老百姓，也就是像那个卖菜一样，是吧？你大量批发打折，没有人要，只能是想办法忽悠那些旁边的急需买菜或者是为了占点小便宜的人，那说明什么问题呀，供需出大问题了，房地产的市场供需成了大问题了，社会的流动性资金的流动性出大问题了，更重要的事情就像我昨天说的，你的国家的经济产值和你的经济总量，是你的一千多倍，你怎么可能撑下去？是吧？最重要的共产党今天七哥已经报了猛料，过去两周七哥最在乎的一件事情是什么？共产党花了过去两到三个月，干了一件大事，游说所有的人要在中美之间再出现一个尼克松时刻，这是共产党运作的…所有的高人全出手了，出来说的人要代表基辛格的人是谁？知道吗？默克尔，德国的总理，这是很险的，很有可能发生的，默克尔的骨子里面绝对是共产主义，绝对是亲共的，她把德国带向了一个真的是未来…我听到欧洲的一个真正的政治专家,叫欧洲关系学和地域学的专家,他说Miles以前我不这么认为，他是过去默克尔强力的支持者，他说现在我真这么认为，我说默克尔把德国带上了德国未来200年都回不来的路。
 
-我们必须以非传统的方式思考这个问题
+它有三个最大的弱点，信息互联网时代德国的信息产业，几乎和非洲差不多，那就整个德国就完了，第二个德国作为GDP大量的产量，它所有的生产没有跟上现代的后工业化的完全环保绿化的，现在材料的整个革命，德国没跟上，完了，以后你就要买人家的东西，是吧？这是第二个，第三个德国由于大量的产业移向了中国，帮助了中共，现在可以说是升级版的工业版，最后它成了德国的最大的竞争者，然后又成了共产主义、社会主义一个西方的传播平台。德国就像二战犯下的错误一样，共产党这个魔鬼倒下之前，一定带走德国，德国的经济和德国整个的产品，它卖给谁去，除了欧洲那些人，它卖给谁去？亚洲没有人买欧洲产品，它只能卖给中国和欧洲，美国人现在已经大量的排欧的产品，所以这三样德国的意思形态、通信技术、现代材料技术和挺共，会导致灾难的结果，这回共产党杀手锏一个是德国默克，另外一个就是找了另外一个国家元首，另外一个国家元首说：对不起，这事我不能做，我不能做…我不能做，但是默克尔这回失败了，共产党遭到了重创。
 
-what can we do？what can the Americans government and the people here
-
-我们能做些什么？美国政府和这里的人民能做些什么
-
-do for the people of Cuba that will bring new and different results？
-
-去为古巴人民带来新的和不同的结果？
-
-**Jeanette Nunez (Fla. Lieutenant Governor)**
-
-珍妮特**·**努涅斯（佛罗里达州副州长）
-
-And that’s a great point because as you said,
-
-这是一个很好的观点，因为正如你所说的
-
-for 62 years， far beyond many people’s lifetime
-
-62年，远远超出许多人的一生
-
-that country has been oppressed
-
-那个国家被压迫了
-
-that country has been held by dictators and tyrants,
-
-那个国家一直被独裁者和暴君控制着
-
-that cared little for their people
-
-他们（独裁者和暴君）很少关心他们的人民
-
-and so many that have lent their voice to free Cuba
-
-还有许多为解放古巴而发声的人
-
-have been demoralized for six decades,
-
-状态不佳已经有六十年了
-
-not seeing change come to the island
-
-岛上没有看到变化
-
-The young people, the younger generation, they are finally fed up
-
-年轻人，更年轻的一代，他们终于受够了
-
-they’re no longer fearful.
-
-他们不再害怕了
-
-they do not care if they lose their lives or their freedoms
-
-他们不在乎是否失去他们的生命或自由
-
-they want change. They want to be able to bring that change,
-
-他们想要改变，他们希望能够带来这种改变
-
-it shouldn’t be a partisan issue.
-
-这不应该是党派问题
-
-Everybody should stand on the side of a free Cuba.
-
-每个人都应该站在一个自由的古巴这一方面
-
-And so what I what I believe firmly is
-
-所以我坚信的是
-
-that not only do we have to lent support and solidarity.
-
-我们不仅要提供支持和团结
-
-People are starting to open their eyes to the ills of Castro’s regime to the ills of communism,
-
-人们开始看清了卡斯特罗政权的弊病和共产主义的弊病睁
-
-You know it’s not in vogue in the progressives
-
-你知道它在进步人士中并不流行
-
-to speak ill of communism and socialism
-
-说共产主义和社会主义的坏话
-
-they embrace it, they adore it.
-
-他们拥抱它，他们崇拜它
-
-But I think when the average person
-
-但我认为当普通人
-
-starts to see a country brutalizing its people
-
-开始看到一个国家对其人民进行残酷对待时
-
-simply for demanding freedom God given rights.
-
-简单的要求自由，这是上帝赋予的权利
-
-I think that’s what you see really the shift in the paradigm
-
-我认为这就是你真正看到的模式转变
-
-as it relates to what the average individual understands about Cuba,
-
-因为它与普通人对古巴的了解有关
-
-what the average individual wants to do for Cubans
-
-普通人想为古巴人做些什么
-
-so I think from the standpoint of what we’re in the state can do
-
-所以我认为从我们的国家可以做的事情的角度来看
-
-we lend our support.
-
-我们可以提供支持
-
-We want to see the administration tackle this issue,
-
-我们希望看到政府解决这个问题
-
-we want to see a call on the international community to bring change to the island
-
-我们希望看到国际社会呼吁为该岛带来改变
-
-we want to see the Cuban people have access to the Internet,
-
-我们希望看到古巴人民可以进入互联网
-
-what did they do the minute, this, this uprising took place?
-
-这个起义发生的时候，他们（独裁者和暴君）做了什么？
-
-they shut down the internet,
-
-他们关闭了互联网
-
-not only to eliminate their opportunity to connect with each other to communicate, communicate,
-
-不仅要消除他们相互联系交流的机会
-
-but to not allow the truth to be told
-
-而且不允许真相被说出来
-
-and that I think was the most powerful thing.
-
-我认为这是最强大的东西
-
-The world finally got to see the truth, and the,
-
-世界终于看到了真相
-
-the veil that they were hiding behind was lifted
-
-他们隐藏在背后的面纱被揭开了
-
-and everyone saw the evil for what it was.
-
-每个人都看到了那邪恶的本质
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 https://rumble.com/vjxceh-fla.-lt.-governor-on-cuba-freedom-protests-young-generation-does-not-fear-o.html
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-文韵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+啥都不说了，我就录这一段吧，还再来一段吗？别来了吧，兄弟姐妹们，走着看，“路大脑袋”还有“蛇妖闫”，记住，只要是有利爆料革命，那他就会存在，只要是没有利和反对爆料革命，和无利与新中国联邦的，他就不会存在，任何人，包括我，包括任何人，灭共是我们一切的目标。新中国联邦没有人能挡住它的诞生，没有人能挡得住它将被世界和联合国承认的，代表新中国和中国的合法的唯一的政治权力机构，咱走着看，谢谢。
 
 0

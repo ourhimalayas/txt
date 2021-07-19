@@ -2,16 +2,18 @@
 ---
 
 
-## 美国在反对政府的起义中为100多万古巴人恢复了互联网的使用
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1404890/)
+## 中国邮政储蓄银行，重罚！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405184/)
 
 2021年7月18日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18163558/cuba_0-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18215152/0-88.png)
 
-随着古巴夏季的起义，共产主义政府已经发现了切断数百万居民互联网的方法，因此在社交媒体上进行有组织的抗议几乎是不可能的。当时有报道称古巴政权利用中共国制造的技术系统封锁互联网和手机服务，使有组织的抗议活动无法进行。与此同时，古巴总统米格尔-迪亚斯-卡内尔抨击美国公然和“可耻”地企图通过引发三十年来最大的反政府抗议活动来“分裂”他的国家。
+编辑摘要：
 
-**【[新闻来源](https://www.zerohedge.com/geopolitical/us-backed-tech-restores-internet-more-1-million-cubans-amid-uprisings-against-govt?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)】**
+南部身边事7月5日报道，据中国银行保险监督管理委员会行政处罚信息公开表，中国邮政储蓄银行股份有限公司存在主要的违法违规事实。银保监会决定没收违法所得11.401116万元，罚款437.677425万元，罚没合计449.078541万元。
+
+**【**[新闻来源](https://c.m.163.com/news/a/GE5HV2TL05454AK1.html?spss=newsapp)**】**
 
 * * *
 

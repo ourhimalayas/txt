@@ -31,23 +31,23 @@
 ### [英众议院通过动议对北京冬奥会进行外交抵制](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【郭先生盖特视频摘要】2021.7.16：蓬佩奥是灭共最关键的人之一](/content/gnews/6/README.md)
+### [【中英文字幕】7/17/2021文贵盖特：共产党的内部的政治斗争……已经到了最后的阶段](/content/gnews/6/README.md)
+ ` Caihongqiao`
+
+### [【郭先生盖特视频摘要】2021.7.16：蓬佩奥是灭共最关键的人之一](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年7月18日 文贵先生盖特 1](/content/gnews/7/README.md)
+### [2021年7月18日 文贵先生盖特 1](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/8/README.md)
- ` 喜联盟七哥直播组`
-
-### [【樱花宅急便】美国政府在病毒溯源问题上观点全面转变](/content/gnews/9/README.md)
+### [樱花国际要闻汇编🌸7月19日](/content/gnews/9/README.md)
  ` 日本东京樱花团`
 
-### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【樱花宅急便】美国政府在病毒溯源问题上观点全面转变](/content/gnews/10/README.md)
+ ` 日本东京樱花团`
 
-### [2021年7月18日灭共要闻](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
+### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -70,26 +70,26 @@
 ### [【世事解评】滴滴事件——背后大BOSS是谁](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【有声读物】字节跳动的今日头条被中（共）国勒令自9月起停止新用户注册](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [【有声读物】7月17日国际新闻速递](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [【粤语配音】中共是地球上对我们的繁荣、安全和价值观的最大威胁](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【粤语配音】盖特一个重要的功能是可以导入个人推号里的所有内容](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【中英文字幕】7/16/2021文贵盖特：共产党与德国默克尔密谋的新尼克松计划，彻底失败](/content/gnews/23/README.md)
+### [【中英文字幕】7/17/2021文贵盖特：共产党的内部的政治斗争……已经到了最后的阶段](/content/gnews/19/README.md)
  ` Caihongqiao`
 
-### [佛罗里达州副州长对古巴自由抗议的评论：年轻一代不惧怕压迫政权](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [【有声读物】字节跳动的今日头条被中（共）国勒令自9月起停止新用户注册](/content/gnews/20/README.md)
+ ` MOSREC`
 
-### [中美潜艇险些擦枪走火，日本防卫白皮书明确针对中共](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【有声读物】7月17日国际新闻速递](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [【粤语配音】中共是地球上对我们的繁荣、安全和价值观的最大威胁](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【粤语配音】盖特一个重要的功能是可以导入个人推号里的所有内容](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【中英文字幕】7/16/2021文贵盖特：共产党与德国默克尔密谋的新尼克松计划，彻底失败](/content/gnews/24/README.md)
+ ` Caihongqiao`
+
+### [【NewsExpress】国会立法禁止中共在美招聘人才](/content/gnews/25/README.md)
+ ` 闪电侠`
 
 ### [中共国制造业再遇“困难”，大量一线员工辞职](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -106,17 +106,17 @@
 ### [【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中国邮政储蓄银行，重罚！](/content/gnews/31/README.md)
+### [樱花国际要闻汇编🌸7月19日](/content/gnews/31/README.md)
+ ` 日本东京樱花团`
+
+### [2021上半年中朝贸易额同比下滑84％](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0718](/content/gnews/32/README.md)
+### [中国邮政储蓄银行，重罚！](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0718](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [美国在反对政府的起义中为100多万古巴人恢复了互联网的使用](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国航母打击群或于9月在日本靠港](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【信仰之声】基督徒如何从“论断人”的教导中判断伪类？](/content/gnews/43/README.md)
+### [中美潜艇险些擦枪走火，日本防卫白皮书明确针对中共](/content/gnews/43/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【信仰之声】基督徒如何从“论断人”的教导中判断伪类？](/content/gnews/44/README.md)
  ` 纽约香草山MOS03`
 
-### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/44/README.md)
+### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/45/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [五毒攻心，无药可救](/content/gnews/45/README.md)
+### [五毒攻心，无药可救](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年7月18日灭共要闻](/content/gnews/46/README.md)
+### [2021年7月18日灭共要闻](/content/gnews/47/README.md)
  ` 秘密翻译组G-Translators`
 
-### [深海海底是中共国的下一个目标](/content/gnews/47/README.md)
+### [深海海底是中共国的下一个目标](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国公民因策划购买美国突击队船只而被判入狱3年半](/content/gnews/48/README.md)
+### [中国公民因策划购买美国突击队船只而被判入狱3年半](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [默克尔在与拜登联合新闻发布会上的表现](/content/gnews/49/README.md)
+### [默克尔在与拜登联合新闻发布会上的表现](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [【独立观点】ZOOM的安全漏洞曾让数百万电脑面临被恶意软件感染的风险](/content/gnews/50/README.md)
+### [【独立观点】ZOOM的安全漏洞曾让数百万电脑面临被恶意软件感染的风险](/content/gnews/51/README.md)
  ` 纽约香草山MOS02`
 
-### [联合国人权事务负责人敦促释放古巴抗议者](/content/gnews/51/README.md)
+### [联合国人权事务负责人敦促释放古巴抗议者](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《园丁与木匠》- 3. 为什么有的孩子不听父母话？](/content/gnews/52/README.md)
+### [《园丁与木匠》- 3. 为什么有的孩子不听父母话？](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“制度精神”与《大宪章》](/content/gnews/53/README.md)
+### [“制度精神”与《大宪章》](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [共和党主席又质疑大选欺诈舞弊](/content/gnews/54/README.md)
+### [共和党主席又质疑大选欺诈舞弊](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/55/README.md)
+### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/56/README.md)
  ` HimalayaRussia`
-
-### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/56/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
