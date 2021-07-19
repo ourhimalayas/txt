@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 5:54 PM (UTC)`
+
+WOW
+![img](https://media.gettr.com/group9/getter/2021/07/19/17/ee49ce09-b638-7228-e940-d5f83eddd120/91a9ab20d3d997f5e50e5ffd8ef1ebe2.jpg)
+
+---
+
 `@miles 7/19/2021 5:13 PM (UTC)`
 
 From the video of Wang Jian, Chairman of the Beijing Genomic Institute (BGI), the CCP has long planned to use various high-tech industries controlled by PLA to biologically weaponize the CCP’s entire army. Anyone with a conscience should watch this video carefully!
@@ -304,13 +311,6 @@ This clip clearly displays Miles Guo’s Revelation Timeline of the CCP Virus. M
 
 乖乖哟……<br/><br/>https://www.washingtonexaminer.com/washington-secrets/gettr-explodes-passing-1-5-million-users-in-just-11-days
 ![img](https://media.gettr.com/group40/getter/2021/07/15/16/968e79e2-6f9d-9026-4b08-59afdd9758f5/fc56fd94f1ec46d613e8265f450da759.jpg)
-
----
-
-`@miles 7/15/2021 1:11 PM (UTC)`
-
-尊敬的战友们好，你们健身了吗？传播CCP病毒．香港危机真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group28/getter/2021/07/15/13/075550e3-185f-ff43-1225-3b4a43c78e71/out.jpg)
 
 ---
 
