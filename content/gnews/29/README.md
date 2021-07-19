@@ -2,34 +2,22 @@
 ---
 
 
-## 【一周盘点】香草山翻译部周刊——第五期（2021年7月18日）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1404963/)
+## 【秘翻在线】“滴滴出行”背后的江家
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405120/)
 
-作者：纽约香草山翻译部
+撰稿：Ermat 【㊙️翻  Gnews原创组】
 
+责编：Ermat 【㊙️翻  Gnews原创组】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18205154/v2-96a2de649e515f12f3c9898a4ed120de_1440w.jpg)图片来源：zhuanlan.zhihu.com
+据《大纪元时报》7月17日报道，“滴滴出行”通过联想集团创始人柳传志，博裕资本的联合创始人马雪征，及阿里巴巴实现了与江家的利益捆绑。
 
+作为博裕资本创始人之一的马雪征，曾出任联想集团首席财务官，后来又出任联想非执行副主席。她协助联想集团创始人柳传志工作长达17年。众所周知，博裕资本是由江泽民之孙江志成创立而成，而且它也是”滴滴”的投资方。柳传志曾说“我是给马雪征打工的。”这一语道破了其中的玄机。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+不仅如此，由江家掌控的阿里巴巴也是“滴滴出行”的股东之一。靠着这背后的利益交织关系，“滴滴出行”成功地靠上了江家这棵大树。
 
+参考链接：
 
-
-![]()![](https://media.discordapp.net/attachments/830167012663754773/866179148904136724/Issue-5-CN.png?width=1083&amp;height=609)
-
-发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[披露滴滴背后的中共权贵大家族（下）](https://www.epochtimes.com/gb/21/7/16/n13094113.htm)
 
 
 
