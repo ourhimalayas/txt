@@ -2,19 +2,30 @@
 ---
 
 
-## 【秘翻在线】中共港澳办以老套路回击美制裁
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404973/)
+## 众议院决定在新冠大流行后将削减对中共国研究人员的资助
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1405077/)
 
-撰稿：Andrew
+2021年7月18日
 
-校对：Ermat【㊙️翻  Gnews原创组】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18175737/image1-3-4.jpg)图片来源：香港电台
-据《新华网》2021年7月17日报道，中共港澳办发言人针对美制裁驻港机构官员制裁进行了套路式的“严厉回击”，还表示美对港营商环境评论是一派胡言。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18202432/0-33.jpeg)
 
-如以往一样，整篇文章充斥着谩骂、歪曲事实和假大空的外交固定用语。全文对美制裁内容，具体制裁官员名单只字未提，对于隔着网络防火墙的天真的中国老百姓而言，只知道结果，不知道起因，最终只能忍受这种洗脑式的思想强奸。
+摘要翻译：
 
-随着被制裁的官员数量越来越多，相信中共的民心离土崩瓦解也不远了。
+众议院的一个小组本周通过了几项措施，旨在削减美国纳税人对中共国科学研究所资助，因为越来越多的立法者对新冠来源透明度的呼吁持续增加。
 
-**新闻来源：**[国务院港澳办发言人：美方的所谓制裁令人不齿](http://www.xinhuanet.com/gangao/2021-07/17/c_1127665087.htm)
+众议院拨款委员会通过了附属于支出法案的几项措施，这些措施将终止美国纳税人对武汉病毒研究所（WIV）的资助，削减对中共国某些医学实验的资助，并调查为什么冠状基因测序数据被从美国国立卫生研究院删除的原因。
+
+**【**[新闻来源](https://www.washingtontimes.com/news/2021/jul/17/house-panel-votes-cut-wuhan-institute-virology-fun/?utm_source=RSS_Feed&amp;utm_medium=RSS)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -2,34 +2,32 @@
 ---
 
 
-## 雅典数千人集会反对 COVID-19 疫苗接种
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1404689/)
+## 【秘翻在线】美国副总统哈里斯被带到沃尔特里德医疗中心
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404885/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18115031/1437.png)2021 年 7 月 14 日，在希腊雅典，政府宣布对某些部门强制接种疫苗后，反疫苗抗议者参加了议会大楼外的示威活动
-**据《路透社》记者： Vassilis Triandafyllou， Alkis Konstantinidis，2021 年 7 月 15 日报道：**
+撰稿：Skagen
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18163310/%E5%9B%BE%E5%83%8F-1-2.jpg)
+图片来源：AP
 
-《路透社》雅典 7 月 14 日——超过 5,000 名反疫苗抗议者周三在雅典集会，反对希腊的冠状病毒疫苗接种计划，其中一些人挥舞着希腊国旗和木制十字架。
+据conservative brief.com 最新新闻，美国副总统卡马拉·哈里斯被带到沃尔特里德医疗中心（Walter Reed Medical Center）。
 
-抗议者大喊“带上你的疫苗，离开这里！”并呼吁基里亚科斯·米佐塔基斯 (Kyriakos Mitsotakis) 总理辞职。抗议者在有大量警察在场的情况下聚集在议会外。
+哈里斯副总统在几天前与德克萨斯州的民主党立法者会面，他们中的三人被检测出COVID-19呈阳性，一天后，副总统就去了沃尔特里德医院。
 
-周三的抗议是反对疫苗接种运动的最大表现。Pulse for Skai TV 最近的一项民意调查发现，大多数希腊人表示他们会接种疫苗，而且大多数人支持对某些人群进行强制性疫苗接种。
+《福克斯新闻》则更详细点出时间：哈里斯是在周二会见了德克萨斯州的民主党立法者。三位民主党人的冠状病毒检测结果呈阳性，其中一位周五晚上检测结果呈阳性，另外两位周六早上检测结果呈阳性。
 
-大约 41% 的希腊人已全面接种疫苗。周一，在重要的旅游季节中期，新的 COVID-19 感染率急剧上升，政府下令对医护人员和疗养院工作人员进行强制性疫苗接种。
+《福克斯新闻》询问哈里斯的办公室，副总统是否有任何COVID-19的症状，但他们没有立即回应。周六，哈里斯的发言人桑德斯（Symone Sanders）说，哈里斯没有与受感染的立法者有密切接触。
 
-“每个人都有选择的权利。我们选择的是政府不为我们选择。”心脏病专家费登·沃沃利斯 (Faidon Vovolis) 说，他质疑围绕口罩和疫苗的科学研究，并领导了“再次自由”运动，也称为抗议。沃沃利斯说，他成立该组织是为了回应政府为遏制病毒而采取的“强硬措施”。
+桑德斯在一份声明中说：”根据这些阳性测试的时间线，确定副总统和她在场的工作人员没有暴露的风险，因为他们没有与测试呈阳性的人密切接触，因此不需要测试或隔离，”桑德斯补充说，**哈里斯和她的工作人员已经全面接种疫苗**。
 
-抗议在希腊相当普遍，最近几个月发生了几次抗议，涉及从新劳动法到以色列最近对加沙的军事行动等问题。
+这次访问是为了 “例行的医生预约”，但是时间上令人好奇，因为”例行 “检查被安排在了星期天，人们有多少次会在周日去看医生做常规检查？
 
-自大流行开始以来，这个拥有 1100 万人口的国家已有超过 444,700 人感染，12,782 人死亡。当局周三记录了近 3,000 例新感染病例。
+哈里斯的发言人说，哈里斯与检测结果呈阳性的立法者没有密切接触，但从她推特账户上的一张照片来看，大众都能看到”密切 “接触的程度。
 
-原文连接：[https://www.reuters.com/world/europe/athens-thousands-rally-against-covid-19-vaccinations-2021-07-14/](https://www.reuters.com/world/europe/athens-thousands-rally-against-covid-19-vaccinations-2021-07-14/)
+参考链结：
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – TrueSky
-编辑：洛杉矶盘古农场 – 明子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+1. [conservative brief.com](https://conservativebrief.com/kamala-harris-walter-reed-45749/)
+2. [福克斯新闻](https://www.foxnews.com/politics/harris-walter-reed-routine-doctor-appointmentdays-texas-democrats-covid)
+3. [哈里斯推特](https://twitter.com/KamalaHarris/status/1416042437017964546)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
