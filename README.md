@@ -70,22 +70,22 @@
 ### [戳穿中共百年冥诞致词里的谎言——一国两制&amp;全面管治权&amp;九二共识](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/19/README.md)
+### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/20/README.md)
+### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/21/README.md)
+### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/22/README.md)
+### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [因为其大棒动机，推特由于侵犯言论自由而被起诉](/content/gnews/24/README.md)
+### [新冠病毒实验室起源理论正在被严肃对待](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [【秘翻在线】法国中共病毒疫苗接种中心遭到破坏](/content/gnews/25/README.md)
@@ -106,17 +106,17 @@
 ### [【NewsExpress】中共军方举行抢滩登陆演习 警告台湾和美国](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [樱花墙内要闻汇编🌸7月19日](/content/gnews/31/README.md)
- ` 日本东京樱花团`
+### [“世界上最热衷熊市的对冲基金”做空科技股](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报 — 中共踩油门篇](/content/gnews/32/README.md)
+### [【西媒头条】第26期（2021年7月19日）](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】美国会警告称中共威胁国家食品系统](/content/gnews/33/README.md)
- ` 秘密翻译组G-Translators`
+### [尽管勒布朗摇尾乞怜，中共国仍然拒绝了他的影片](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】知名歌手谴责古巴政府暴行为民主发声](/content/gnews/34/README.md)
- ` 秘密翻译组G-Translators`
+### [樱花墙内要闻汇编🌸7月19日](/content/gnews/34/README.md)
+ ` 日本东京樱花团`
 
 ### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [【中共国段子】绿色贝雷帽（2）](/content/gnews/43/README.md)
+### [2021年7月19日灭共要闻](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【中共国段子】绿色贝雷帽（2）](/content/gnews/44/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [【中共国段子】绿色贝雷帽（1）](/content/gnews/44/README.md)
+### [【中共国段子】绿色贝雷帽（1）](/content/gnews/45/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [中共“超限战”渗透游戏行业](/content/gnews/45/README.md)
+### [中共“超限战”渗透游戏行业](/content/gnews/46/README.md)
  ` 澳喜农场`
 
-### [保护自己非常重要](/content/gnews/46/README.md)
+### [保护自己非常重要](/content/gnews/47/README.md)
  ` 澳喜农场`
 
-### [【币圈】-数字货币动态 -2021.07.19](/content/gnews/47/README.md)
+### [【币圈】-数字货币动态 -2021.07.19](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/48/README.md)
+### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/49/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十八）](/content/gnews/49/README.md)
+### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十八）](/content/gnews/50/README.md)
  ` RU WEI`
 
-### [【每日快报】大批民众在白宫抗议发生在古巴的镇压；数千人也在迈阿密集会 2021.07.19](/content/gnews/50/README.md)
+### [【每日快报】大批民众在白宫抗议发生在古巴的镇压；数千人也在迈阿密集会 2021.07.19](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [试看路德闫丽梦团伙如何把自己的屎吃回去（三）](/content/gnews/51/README.md)
+### [试看路德闫丽梦团伙如何把自己的屎吃回去（三）](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [人为何而活](/content/gnews/52/README.md)
+### [人为何而活](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [【战友心声】从“墨博士”的推文看人性的丑恶](/content/gnews/53/README.md)
+### [【战友心声】从“墨博士”的推文看人性的丑恶](/content/gnews/54/README.md)
  ` 纽约香草山MOS03`
 
-### [“说说你的看法– 老百姓真的脱贫了？” 第03期](/content/gnews/54/README.md)
+### [“说说你的看法– 老百姓真的脱贫了？” 第03期](/content/gnews/55/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [不多，记不准了](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [缺德社大脑袋无知慧](/content/gnews/56/README.md)
+### [不多，记不准了](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 

@@ -2,10 +2,22 @@
 ---
 
 
-## 【中共国段子】绿色贝雷帽（2）
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1406317/)
+## 2021年7月19日灭共要闻
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1406486/)
 
-【作者】美国队长
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19073307/simplified41.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19085034/%E6%88%AA%E5%B1%8F2021-07-19-21.46.54.png)](https://gtv.org/video/id=60f574a90aa4861113834316)
+**[播放视频](https://gtv.org/video/id=60f574a90aa4861113834316)**
+
+主要内容：
+
+法国巴黎市民们抗议强制接种疫苗和疫苗护照。
+
+大外宣转换方针寻找“更好讲述中国和中共故事”的外籍网红
+
+羊毛出在羊身上；中共称免费疫苗，但钱却来自医保基金。
+
+官方说不强制，但使用的手段全是强制：不打疫苗不准出行！
+
+国内失业率爆表，劳务市场失业人员成群结队。
+
 0

@@ -2,42 +2,39 @@
 ---
 
 
-## WHO呼吁中共国加强合作调查病毒起源
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1406081/)
+## 【有声读物】如何运用《圣经》判断伪类？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1406402/)
 
-视频字幕/听写：云岭| 翻译：Wade|翻译校对：云岭|简评/文字整理/编辑：胖丁| Page：小雨
+配音：香草山媒体部 Gtv abeilles（蜜蜂）
 
-**简评：**
-
-谭德赛承认之前过于打压病毒实验室来源。他温和地提议进入实验室调查，因为数百万受害者和遇难者需要真相。WHO官员同意谭德塞的说法。呼吁中共国在调查病毒起源上加强合作。
-
-**[视频GTV链接](https://gtv.org/video/id=60f285750aa48611138165c1)**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**视频字幕：**
-
-**谭德赛：**（**过去）对于一个病毒来源的打压过于草率，比如实验室来源理论**。你们知道我自己就是实验室技术员。我是免疫学家，曾在实验室里工作。实验室事故是很常见的。我见过实验室事故，曾经我自己的错误也导致过事故。检查到底发生了什么，尤其是我们自己的实验室，是很重要的。
-
-我们需要信息，疫情初期这些实验室的直接信息。如果我们能有全部信息，我们就可以排除这种可能性。我们面临的挑战之一就是进入实验室的权限，还有各种假设的透明度。所以我希望这两个问题能引起更好的合作。
-
-我所说的两件事，第一，了解真相能帮我们防止未来发生类似的问题。第二，我认为我们欠那些数百万受害者、数百万遇难者一个真相。
-
-我希望能有更好的合作。我们继续了与中共国和其他成员国的互动，未来会有更好的合作弄清楚到底发生了什么。
-
-**世卫组织（WHO）官员**：首先，我绝对同意谭德赛刚刚说的。两天前在法兰克福的一个会议上，一名7岁的小女孩问我病毒来自哪里，我无法给她一个合适的明确答案。我们必须明白它来自哪里。当然，我们都有各自的理论。
-
-动物起源是合理的，但无论如何，我们真的需要知道它是如何发生的，从而吸取教训防止未来再次发生。我们确实感谢中共国政府到目前为止的合作。但这还不够。很明显，就像G7领导人提出的，还有更多的调查也支持这个观点。所以我们呼吁中共国在调查病毒起源上加強合作。就像刚才所说的，我们欠人们一个交代。
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/EbPmS0SA4gHDt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/EbPmS0SA4gHDt/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
+无论你是不是基督徒，上述经文都与我们当下发生的事情有关联。你或许不想读，跳过这段经文，但那就是我们如何用《圣经》价值观看待伪类亡腚缸、蛇妖闫的问题。当然，这只是其中之一，因为我总相信，《圣经》就是我们衡量事物本质的尺子，对待伪类，祂就是照妖镜。
+
+
+
+**文字版原文：[【信仰之声】如何运用《圣经》判断伪类？](https://gnews.org/zh-hans/1405598/)**
+
+作者：纽约香草山福音部 捆绑CCP一千年
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

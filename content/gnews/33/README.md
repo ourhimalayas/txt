@@ -2,21 +2,22 @@
 ---
 
 
-## 【秘翻在线】美国会警告称中共威胁国家食品系统
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1406195/)
+## 尽管勒布朗摇尾乞怜，中共国仍然拒绝了他的影片
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1406464/)
 
-搜索/采集/撰稿：sisyphus（天元）
+2021年7月19日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19083842/04CFBC61-C2AF-4E6B-8A36-F46E6284A866_w1023_r1_s-5.jpg)
+勒布朗·詹姆斯的《空中大灌篮：新传奇》本周末仅收获国内票房3200万美元，而其制作费用接近2.5亿美元。相比其他得益于中共国巨大票房市场的好莱坞大片，勒布朗的影片并没有进入中共国市场的通行证。此前，这部影片的主演，NBA球星曾扮演“社会正义战士”，在2019年火箭队总经理莫雷发推支持香港抗争者后，为中国共产党的纳粹行径做辩护。但这样的巴结并没有收获回报，中共本可以拯救勒布朗的新片，但并没有这样做。
 
-校对： Chris
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19062306/19075.jpg)图片来源： Investigate Midwest
-据《政客》（Politico）美东时间7月19日报道，美国众议院警告称中共的投资对美国食品系统构成了安全风险，将中共的影响力从美国经济中剔除已成为两党共识，国会立法者正在研究打击中共购买美国农业地产的措施。确保美国农场的持有权保持在美国人手中。
+**【[新闻来源](https://www.breitbart.com/entertainment/2021/07/18/nolte-china-snubs-space-jam-despite-lebrons-pathetic-pandering/)】**
 
-据美国农业部2020年的数据显示，中国业主在美国控制了约19.2万英亩的农业用地，总价值19亿美元，包括用于耕种，放牧和林业的土地。虽然这个数量仍低于其他国家的居民所拥有的，但购买量的增幅和卖买家与中共的潜在联系让美国感到十分惊恐。
+* * *
 
-众议员丹·纽豪斯在最近的众议院拨款听证会上表示：“美国的土地正在逐渐被有中共背景的人垄断”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-前副总统迈克·彭斯上周三在保守党传统基金会上表示：“美国不能允许中共控制我们的粮食供应”。并敦促拜登总统和国会终止对外国居民名下的土地的所有农业补贴。
 
-新闻来源：[China is buying up American farms. Washington wants to crack down.](https://www.politico.com/news/2021/07/19/china-buying-us-farms-foreign-purchase-499893)
-
-0
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1
