@@ -2,23 +2,25 @@
 ---
 
 
-## 【秘翻在线】美国指控中共情报人员策划了黑客活动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1406919/)
+## 【秘翻在线】 欧洲通膨来了?
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407036/)
 
-撰稿：zzballack
+撰稿:William
 
-校对 :牛小妹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19110336/zz.png)
-图片来源：Pixabay
+校对:牛小妹
 
-据《零对冲》7月19日报道，拜登政府将持续对中共采取强硬的政策。美国将宣布中共政府在全球策划一系列针对公共和私人实体的恶意勒索、数据盗窃和其它网路间谍攻击活动，包括今年稍早揭露的微软电子邮件系统黑客攻击事件。
 
-据彭博社报道，美国将会对中共国安部利用签下犯罪合同的黑客在全球开展未经批准的网路活动提出证据，其中包括为了私人的经济利益，对世界各地的受害者进行网路敲诈、隐蔽式黑客攻击和盗窃。另外，其它联邦部门如美国国家安全局（NSA）、网路安全和基础设施安全部（The Cybersecurity and Infrastructure Security Agency）、和联邦调查局（FBI）将会曝光中共资助的网路黑客所使用的50多种战术。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19124455/%E6%AD%90%E6%B4%B2.jpg)
+中央社
 
-据CNBC报道，北约成员国与欧盟、纽西兰、日本和澳大利亚组成的联盟正在北约成员国之间建立新联盟，他们将会分享网路威胁情报以及合作改善网路安全。预计他们还将会与美国共同谴责中共及其情报机构下令进行的包括入侵微软电邮系统在内的黑客攻击行为。
+根据零对冲(Zero Hedge)的报导，欧洲央行(ECB)行长克里斯蒂娜·拉加德(Christine Lagarde)在 7 月 8 日大动作地提出的欧元货币政策的新货币框架。
 
-新闻来源：
+欧洲央行称，其新框架已成为必要，因为“零界限”(zero bound)问题已变得如此严重。也就是说，在利率已经如此之低的情况下，尽管目标利率已经为零或低于零，央行仍需要新的工具来推高物价通膨(price inflation)。然而，这个问题是欧洲央行自己造成的。行长克里斯蒂娜说，已经进行了审查，以确保欧洲的货币政策战略适合今天和未来的目标。但她不考虑对该策略的批评，也不提出任何反驳。她没有解释为什么她老调重弹却期望能获得更好的结果。
 
-[https://www.zerohedge.com/geopolitical/us-accuses-chinese-intelligence-agents-masterminding-microsoft-hack](https://www.zerohedge.com/geopolitical/us-accuses-chinese-intelligence-agents-masterminding-microsoft-hack)
+文中谈到，这种所谓的“均衡实际利率极低”(extraordinarily low equilibrium real rates)问题是央行自己造成的。 2010-12 年的欧洲主权债务和银行业危机，触发了均衡实际利率最初的下行力量，它本身就是 1997-2007 年欧洲央行政策的结果。这是高度通货膨胀，尽管在资产市场的大部分时间里，这种症状比商品和服务市场更明显。欧洲央行在生产率快速增长和全球化之际将通膨目标定为 2%，同时由于欧洲货币联盟内部竞争加剧导致价格下行压力，欧洲央行助长了货币通膨。
+
+文中最后提到，稳健货币才是零利率边界问题的答案，而不是围绕深究当前货币框架。 消息来源:
+
+[https://www.zerohedge.com/markets/ecbs-new-inflation-plan-old-plan-worse](https://www.zerohedge.com/markets/ecbs-new-inflation-plan-old-plan-worse)
 
 0

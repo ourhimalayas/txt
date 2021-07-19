@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 4:59 PM (UTC)`
+
+This is the real face of Serpent Yan! 
+![img](https://media.gettr.com/group26/getter/2021/07/19/16/d6e470d1-5802-5f5c-5cbb-9a468b326835/out.jpg)
+
+---
+
 `@miles 7/19/2021 1:26 PM (UTC)`
 
 <br/>7月19号：尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？灭共已经到了最关键的时刻，我们全球的战友们．越是在这个时候越要擦亮眼睛．辩善恶是非．一切都已经开始！
@@ -304,13 +311,6 @@ This clip clearly displays Miles Guo’s Revelation Timeline of the CCP Virus. M
 
 G翻身又翻了一个身…… https://www.gfashion.com/zh/
 ![img](https://media.gettr.com/group2/getter/2021/07/15/12/7aad81e0-6278-00c2-e549-17dbcd808c3e/fd910955525ccc64b776211c12b29122.jpg)
-
----
-
-`@miles 7/15/2021 12:25 AM (UTC)`
-
-这是文贵赠予骗子王腚肛房子的合同，王腚肛以合同有问题，要问朋友修改为由，拒绝签字，之后再也没有回复了！<br/><br/>骗子王腚肛他们是胡说八道的，这是完全按照美国的标准的赠予合同，是最单纯的，他们完全是在撒谎！<br/><br/>王腚肛（Lude）与赠予公司CEOMax的短信（中文翻译）：<br/><br/>5/27/2021<br/><br/>路德：你好Max，我的律师朋友在帮我检查合同。他们是这个合同有很多问题。所以他们让我不要签署，直到他们把合同修改好。<br/><br/>Max： 你好路德，没有问题。你改好后发给我。<br/><br/>路德： 非常感谢😊<br/><br/>6/16/2021<br/><br/>Max： 路德你好，跟进一下，你会发我一份修改好的合同吗？<br/><br/>路德： Max你好， 谢谢，让我问下我的朋友。
-![img](https://media.gettr.com/group16/getter/2021/07/15/00/c2ebe0dc-68a6-f229-7d47-93c618ed7a18/12702162f872f1637d001c75e630f662.jpg)
 
 ---
 

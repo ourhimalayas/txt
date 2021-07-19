@@ -2,21 +2,67 @@
 ---
 
 
-## 【秘翻在线】美国政府官员指责中共国通过微软系统
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1406896/)
+## 【新闻速递】中共国被控对微软Exchange服务器进行网络攻击
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1406976/)
 
-#### 撰稿：Wenwang | 校对：沙拉猫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19110312/capture-6.jpg)图片来源：Shutterstock
-据《华盛顿时报》（The Washington Times）的深资情报安全记者比尔·格茨（Bill Gertz）7月19日报道，拜登政府一名高级官员公开指出，中共的国家安全部（MSS）是前不久微软公司（Microsoft）软件被攻击，造成世界各地数万计算机系统瘫痪事件的背后黑手。
+作者：香草山教育部 Naughty（文行）
 
-报道指出，拜登政府的高级官员是在周日晚间的一次新闻发布会上对记者发表上述指责的。他说，MSS以合同方式雇用私人骇客，让他们在全球范围内从事非法的网络犯罪活动，这种犯罪方法“让我们眼界大开，也使我们无比惊讶。”美国及其盟友国家将在周一采取一项重大联合行动，公开揭露中共国对全世界发动网络攻击的秘密。
-
-一直以来，中共国用各种方式对世界，特别是对西方民主国家发动了一波又一波的超限战攻击，其网路攻击力度和数量远超俄罗斯。现在，以美国为首的西方国家终于认识到，这无数个骇客背后的金主和黑手不是别人，而是中共国，真正的敌人就是邪恶的犯罪组织——中国共产党。意识必将导致行动，西方国家一定会出重拳反击中共的网路犯罪活动。
-
-**更新消息**：白宫今天（7月19日）已经发布了美国与盟友国家（包括欧盟，英国，和北约）联合发表的声明，谴责中共国对西方国家发动网路攻击。声明还列举了中共国进行网路攻击的细节。（[白宫声明的英文原文链接](https://www.whitehouse.gov/briefing-room/statements-releases/2021/07/19/the-united-states-joined-by-allies-and-partners-attributes-malicious-cyber-activity-and-irresponsible-state-behavior-to-the-peoples-republic-of-china)）
-
-新闻来源：[U.S. says Chinese intelligence behind global cyberattack using Microsoft software flaw](https://www.washingtontimes.com/news/2021/jul/19/us-says-chinese-intelligence-behind-cyberattack-us/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
+
+英国和欧盟指责中共国今年早些时候进行了一次重大的网络攻击。这次袭击的目标是微软Exchange服务器，影响了全球超过25万台服务器。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19123646/image0-69.jpg)
+
+欧盟是第一个发表声明称袭击来自“中国领土”的，而英国表示，中共国作为该次行动者应对此负责，预计美国也会跟进表示谴责。
+
+两国还表示，中国国家安全部应对其他间谍活动负责。
+
+美国和英国经常指责民族主义国家的网络运动，欧盟也加入了指责北京的行列，这表明了对此案的重视程度。西方情报官员说，中共国的行为明显比他们以前看到的任何行为都要严重。
+
+在英国，国家网络安全中心（NCSC）向70多个受影响的组织发布了有针对性的建议，以应对袭击。
+
+黑客利用了一个漏洞，该漏洞允许将网络外壳放置在可以作为后门的系统上，从而允许进一步的行动。
+
+然后，其他黑客组织利用了这一点，使系统容易受到罪犯和勒索软件攻击以及间谍活动的影响。
+
+外交大臣多米尼克·拉布说，中共国国家支持的团体对微软Exchange服务器的网络攻击是一种鲁莽但熟悉的行为模式。中共政府必须结束这种系统的网络破坏，如果不这样做，将会追究其责任。
+
+英国外交部表示，这次袭击极有可能促成大规模间谍活动，包括获取个人身份信息和知识产权。
+
+它表示，中共政府“无视结束其鲁莽运动的一再呼吁，而是允许其国家支持的骇客扩大袭击规模，并在被抓住时鲁莽行事”。
+
+微软早在3月份就宣布了黑客攻击的细节，并表示与中共有联系的名为Hafnium的团体应对此负责。中共否认了这些指控。欧盟的声明发表在外交和安全政策高级代表的声明中。
+
+微软Exchange服务器的妥协和利用损害了全球数千台计算机和网络的安全性和完整性，包括欧盟成员国和欧盟机构。它允许大量黑客访问，这些黑客迄今仍在利用这个漏洞。
+
+这种不负责任和有害的行为给我们的政府机构和私营公司带来了安全风险和重大经济损失，并对我们的安全、经济和社会表现出显著的溢出效应和系统性影响。
+
+欧盟声明还表示，它看到了其他引起关注的中共国行为。“我们还检测到恶意网络活动，针对欧盟和成员国的政府机构和政治组织，以及欧洲主要行业，其影响显著。”
+
+与英国一样，欧盟将这些活动与两个也设在中共国的团体（称为APT 40和APT 31）联系起来，这些团体被指控犯有间谍和知识产权盗窃罪。
+
+来源：BBC NEWS
+
+原文链接：
+
+[https://www.bbc.com/news/world-asia-china-57889981](https://www.bbc.com/news/world-asia-china-57889981)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/07135620/7_july-4-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
