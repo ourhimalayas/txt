@@ -2,23 +2,19 @@
 ---
 
 
-## 【NewsExpress】抗议者因 Covid 措施和疫苗攻击塞浦路斯电视台
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1405188/)
+## 【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405268/)
 
-**翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18215028/26-7.jpg)
-周日晚上，反对冠状病毒措施和疫苗的抗议者袭击了塞浦路斯一家电视台，并在尼科西亚大楼外焚烧汽车。
+撰稿：William
 
-警方在 Sigma TV 证实了这一事件，并表示在总统府外发生了反对病毒隔离措施和强制接种疫苗的大规模抗议活动后，约有 2,500 名抗议者前往。西格玛电视台说，“周日晚上在我们总部外发生了一次袭击”，一名法新社记者在首都尼科西亚西格玛电视台附近地区看到了数千人，他们举着标语牌反对本周早些时候在塞浦路斯共和国生效的“安全通行证”。警方称，当晚早些时候，约有 5,000 人在总统府外示威，抗议结束时，约有一半人前往西格玛电视大楼。Sigma 被视为对反疫苗接种活动家采取强硬立场，在之前的反冠状病毒措施抗议活动中成为攻击目标。
+校对 :牛小妹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18222831/%E6%8B%9C%E7%99%BB-1.jpg)
+图／AFP
 
-塞浦路斯共和国本周推出了一种安全通行证，只允许那些接种了 Covid 疫苗的人进入超市、商场、餐馆和其他企业。在病例激增之后，它还扩大了 Covid 疫苗接种的范围，将 16 岁和 17 岁的青少年纳入其中，并加大了说服年轻人接种疫苗的力度。塞浦路斯已记录了超过 90,000 例冠状病毒病例和 384 例死亡。
+在拜登指责社交媒体巨头Facebook传递相关错误的冠状病毒疫苗信息“杀人”之后，白宫似乎没有松手对 Facebook 的严厉批评。一位消息人士7月17日向福克斯新闻(Fox News)透露，对Facebook 的公开指责是因为该平台未能消除网上有关疫苗接种会有危险的讯息。自 2 月以来，白宫一直在寻求 Facebook 和其他社交媒体网站的帮助，以阻止错误信息传播开来，例如接受注射会导致不育的后果。随着美国中共冠状病毒病例的增加和疫苗接种率的下降，白宫本周火急燎燎的启动了”打击错误信息”的行动，首先是美国卫生局局长维维克·默蒂(Vivek Murthy) 周四发出警告:”有关冠状病毒的虚假信息是虚假信息，是对公共卫生的紧急威胁。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+”虽然白宫与这家大型科技巨头表面发生公开争吵，但一些共和党人批评白宫对 Facebook”努力删除他们认为有问题的帖子”太过友善。白宫表面上批评脸书，暗地里与Facebook等科技巨头合作，压制人民反对疫苗的言论。最近成立一个众议院核心小组，旨在控制大型科技公司的德克萨斯州众议员兰斯古登7月17日告诉福克斯新闻。“拜登白宫当局与社交媒体巨头合作删除网路上他们认为的错误信息正受到强烈批评，法律界人士表示此举涉嫌违反第一修正案并已经提起调查要求。” 消息来源：
 
-**参考链接：**
+[https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks](https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks)
 
-[https://www.france24.com/en/live-news/20210718-protesters-attack-cyprus-tv-over-covid-measures-vaccines](https://www.france24.com/en/live-news/20210718-protesters-attack-cyprus-tv-over-covid-measures-vaccines)
-
-***校对发布：文顾***
-
-0
++1

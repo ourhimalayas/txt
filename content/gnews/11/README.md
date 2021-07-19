@@ -2,32 +2,47 @@
 ---
 
 
-## 【秘翻在线】美国副总统哈里斯被带到沃尔特里德医疗中心
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1404885/)
+## 【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1404922/)
 
-撰稿：Skagen
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18163310/%E5%9B%BE%E5%83%8F-1-2.jpg)
-图片来源：AP
+作者：纽约香草山佛教部 369文驹
 
-据conservative brief.com 最新新闻，美国副总统卡马拉·哈里斯被带到沃尔特里德医疗中心（Walter Reed Medical Center）。
 
-哈里斯副总统在几天前与德克萨斯州的民主党立法者会面，他们中的三人被检测出COVID-19呈阳性，一天后，副总统就去了沃尔特里德医院。
 
-《福克斯新闻》则更详细点出时间：哈里斯是在周二会见了德克萨斯州的民主党立法者。三位民主党人的冠状病毒检测结果呈阳性，其中一位周五晚上检测结果呈阳性，另外两位周六早上检测结果呈阳性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-《福克斯新闻》询问哈里斯的办公室，副总统是否有任何COVID-19的症状，但他们没有立即回应。周六，哈里斯的发言人桑德斯（Symone Sanders）说，哈里斯没有与受感染的立法者有密切接触。
 
-桑德斯在一份声明中说：”根据这些阳性测试的时间线，确定副总统和她在场的工作人员没有暴露的风险，因为他们没有与测试呈阳性的人密切接触，因此不需要测试或隔离，”桑德斯补充说，**哈里斯和她的工作人员已经全面接种疫苗**。
 
-这次访问是为了 “例行的医生预约”，但是时间上令人好奇，因为”例行 “检查被安排在了星期天，人们有多少次会在周日去看医生做常规检查？
+7月17日，中共新闻频道发布消息称：“7月16日，经国务院联防联控机制有关部门组织论证，国药集团中（共）国生物北京生物制品研究所（中共病毒）灭活疫苗获批在3到17岁人群中紧急使用。”
 
-哈里斯的发言人说，哈里斯与检测结果呈阳性的立法者没有密切接触，但从她推特账户上的一张照片来看，大众都能看到”密切 “接触的程度。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/18170634/10-11.jpg)图源网络
 
-参考链结：
+中共毒疫苗政策一步步收紧，从送大米、送鸡蛋，到请明星站台，再到不接种毒疫苗就禁止进入公共场合、停发公务员工资、孩子不予上学等措施，如今发展到连18岁以下的儿童、青少年也要接种毒疫苗。实际上，中共对老百姓的压迫不分年龄——想当初，因计划生育所扼杀的胎儿总计消灭了约4亿人口，现在中共对儿童、青少年下手，还意外吗？中共邪恶的本性从来没改变，历史的惨剧正在现实中上演。文贵先生在2021年3月14日的直播中引用他母亲、父亲的话说：“我们这一辈子过的就是家，就是孩子的日子，就是为你们（孩子）而活着。如果没有你们，我们活着有什么意思？”而今，中共又一次要对每个家庭的孩子下毒手！
 
-1. [conservative brief.com](https://conservativebrief.com/kamala-harris-walter-reed-45749/)
-2. [福克斯新闻](https://www.foxnews.com/politics/harris-walter-reed-routine-doctor-appointmentdays-texas-democrats-covid)
-3. [哈里斯推特](https://twitter.com/KamalaHarris/status/1416042437017964546)
+推翻中共，为了孩子、为了亲人、为了我们的家！
+
+参考阅读：
+
+国药集团新冠疫苗获批在3—17岁人群中使用\_https://news.cctv.com/2021/07/18/ARTIulG6rnXCfUThdLhObyV1210718.shtml
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
 
 
 0

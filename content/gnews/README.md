@@ -40,14 +40,14 @@
 ### [2021年7月18日文贵先生第二次直播同步精要文字版](/content/gnews/8/README.md)
  ` 喜联盟七哥直播组`
 
-### [2021年7月18日灭共要闻](/content/gnews/9/README.md)
+### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年7月18日灭共要闻](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/10/README.md)
+### [【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
-
-### [【秘翻在线】美国副总统哈里斯被带到沃尔特里德医疗中心](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [【战友心声】路德是如何攻击新中国联邦的？](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
@@ -88,23 +88,23 @@
 ### [【粤语配音】默克尔：与中共国的贸易必须建立在公平竞争的原则上](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【NewsExpress】抗议者因 Covid 措施和疫苗攻击塞浦路斯电视台](/content/gnews/25/README.md)
- ` 闪电侠`
-
-### [【NewsExpress】“流氓”中国病毒学家加入推特，发布实验室创建的病毒证据](/content/gnews/26/README.md)
- ` 闪电侠`
-
-### [【NewsExpress】古巴高级官员辞职](/content/gnews/27/README.md)
- ` 闪电侠`
-
-### [【NewsExpress】科技巨头市值超出国家GDP，对国际经济产生重大影响](/content/gnews/28/README.md)
- ` 闪电侠`
-
-### [【秘翻在线】“滴滴出行”背后的江家](/content/gnews/29/README.md)
+### [【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [众议院决定在新冠大流行后将削减对中共国研究人员的资助](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【秘翻在线】白宫表面指责 Facebook散播错误的疫苗资讯](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【NewsExpress】Zoom以150亿美元收购云软件提供商Five9](/content/gnews/27/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】南非严重的暴力事件200多人遇难](/content/gnews/28/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】抗议者因 Covid 措施和疫苗攻击塞浦路斯电视台](/content/gnews/29/README.md)
+ ` 闪电侠`
+
+### [【NewsExpress】“流氓”中国病毒学家加入推特，发布实验室创建的病毒证据](/content/gnews/30/README.md)
+ ` 闪电侠`
 
 ### [中国邮政储蓄银行，重罚！](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -142,45 +142,45 @@
 ### [【秘翻在线】中共重创爱立信能让华为复活吗](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [五毒攻心，无药可救](/content/gnews/43/README.md)
+### [马克龙要求颁发中共病毒(COVID)疫苗护照 法国爆发抗议活动](/content/gnews/43/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [五毒攻心，无药可救](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年7月18日灭共要闻](/content/gnews/44/README.md)
+### [2021年7月18日灭共要闻](/content/gnews/45/README.md)
  ` 秘密翻译组G-Translators`
 
-### [深海海底是中共国的下一个目标](/content/gnews/45/README.md)
+### [深海海底是中共国的下一个目标](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国公民因策划购买美国突击队船只而被判入狱3年半](/content/gnews/46/README.md)
+### [中国公民因策划购买美国突击队船只而被判入狱3年半](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [默克尔在与拜登联合新闻发布会上的表现](/content/gnews/47/README.md)
+### [默克尔在与拜登联合新闻发布会上的表现](/content/gnews/48/README.md)
  ` HimalayaRussia`
 
-### [【独立观点】ZOOM的安全漏洞曾让数百万电脑面临被恶意软件感染的风险](/content/gnews/48/README.md)
+### [【独立观点】ZOOM的安全漏洞曾让数百万电脑面临被恶意软件感染的风险](/content/gnews/49/README.md)
  ` 纽约香草山MOS02`
 
-### [联合国人权事务负责人敦促释放古巴抗议者](/content/gnews/49/README.md)
+### [联合国人权事务负责人敦促释放古巴抗议者](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《园丁与木匠》- 3. 为什么有的孩子不听父母话？](/content/gnews/50/README.md)
+### [《园丁与木匠》- 3. 为什么有的孩子不听父母话？](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“制度精神”与《大宪章》](/content/gnews/51/README.md)
+### [“制度精神”与《大宪章》](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [共和党主席又质疑大选欺诈舞弊](/content/gnews/52/README.md)
+### [共和党主席又质疑大选欺诈舞弊](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/53/README.md)
+### [美国务院发C5+1联合声明对抗“一带一路”](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/54/README.md)
+### [2021/07/18 德意志时讯：CCP病毒溯源，世卫组织希望深入了解武汉的实验室](/content/gnews/55/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中共惊惧美欧的太空军事能力](/content/gnews/55/README.md)
+### [中共惊惧美欧的太空军事能力](/content/gnews/56/README.md)
  ` 丁过`
-
-### [雅典数千人集会反对 COVID-19 疫苗接种](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
