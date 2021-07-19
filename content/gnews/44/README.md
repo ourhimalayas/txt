@@ -2,10 +2,24 @@
 ---
 
 
-## 【中共国段子】绿色贝雷帽（2）
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1406317/)
+## 7月16日郭先生盖特文字精简版分享
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1406612/)
 
-【作者】美国队长
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19073307/simplified41.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
+编辑校对：TS2020相聚盘古   英文翻译：Joyce
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19092428/%E5%9B%BE%E7%89%87-1-4.jpg)
+1. 台海军事冲突随时会发生：过去几天美军机再次降落台湾，美军潜艇与中共军潜艇在台海差一点发生冲突。
+2. 法理灭共延烧至欧洲：欧洲传染病防卫组织召开紧急会议，专题研究CCP病毒的问题与病毒追责；
+3. 法理灭共已无可阻挡：法理灭共之以毒灭共是爆料革命战友们的实力、真正参与CCP病毒研究的正义科学家的揭露、有良知政府官员综合推动的结果；铁证如山，美、欧、日、俄以及北欧都不得不面对的问题；与无良知的闫、王无关紧要；闫的三篇论文证实被撤下。
+4. CCP将面对严峻的国际形势：拜登政府会持续采取一系列的制裁措施，越来越快、越来越具体、永不停歇；前国务卿蓬佩奥是最强大、最坚定、最具实力的灭共力量之一，具备外交、情报、策略深厚底蕴的外交官，最大的成绩就是法理灭共，新疆种族大屠杀和反人类罪就是灭共的绞索之一；
+5. 国内房地产供销结构、金融流动性已出现大问题，1320倍的广义货币流量的冲击已经起不到任何作用，脆断随时发生；
+6. 绝对亲共的德国默克尔：试图尝试成为新版“尼克松”，彻底失败，是CCP遭受的重创；最终会将德国带向200年的不归路。德国在意识形态、创新材料、通信技术、传播亲共四个方面的错误，必被CCP带进灾难。
+7. 真正的灭共终结者：灭共战线的真正成员会很快持续站出来，沼泽地坚定的支持者、一系列的官员（包括民主党）才是真正的坚定的灭共者成员。
+8. 唯一合法的政治机构：新中国联邦，无人能够阻挡他的诞生以及被国际社会承认，将会是国人合法的、唯一的政治机构。灭共是一切的目标。
+
+
+【文章仅限作者个人观点 不代表GNEWS平台】
+
+审核校对：Barry Jack
+上传排版：F
+
 0
