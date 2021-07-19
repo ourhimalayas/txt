@@ -2,46 +2,39 @@
 ---
 
 
-## 中共国报复澳大利亚，污染南中国海水域
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1406066/)
+## 【有声读物】如何运用《圣经》判断伪类？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1406402/)
 
-视频字幕/听写：云岭| 翻译：Wade|翻译校对：clau |简评/文字整理/编辑：胖丁| Page：小雨
+配音：香草山媒体部 Gtv abeilles（蜜蜂）
 
-**简评：**
-
-因为澳大利亚在病毒问题上反抗中共，遭到了中共国疯狂的报复。除了提高关税，中共国还在联合国里动用力量针对环境和文化问题上攻击澳大利亚。在联合国教科文组织里拥有很大话语权的中共国把大堡礁列为濒危物种。
-
-中共国在南海修建的人工岛屿的下水道排污系统和大量的人为垃圾污染了南中国海水域，违反了国际和当地的环境法律，遭到了菲律宾的控诉。中共国最好先把南中国海清理干净，然后再插手大堡礁的事情。
-
-[**视频GTV链接**](https://gtv.org/video/id=60f285f30aa48611138165e7)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**视频字幕：**
-
-**天空新闻（Sky News）主持人保罗•默里（Paul Murray）**：不说病毒了，大家都已经听够了。但依旧关于中共囯。大家知道，中共囯无所不用其极地报复澳大利亚，因为我们的“罪过”。
-
-我们犯了什么罪？我们的“罪过”就是反抗在这个起源于中共囯，毁了西方世界、杀了这么多人的病毒，反抗了中共囯。除了（提高）关税和假装在贸易上存在各种问题。中共囯还尽全力在联合国这样的组织里捣乱，试图在环境和文化问题上攻击澳大利亚。
-
-联合国教科文组织在中共囯举行了会议，中共囯在这个组织里有很大的话语权，正试图把大堡礁列为濒危物种。
-
-就因为我们想对这个杀了这么多人的病毒进行问询。而且因为这个病毒，墨尔本的人们今晚被圈在家里，悉尼已经被圈了几周。來吧，大家想知道我们政府为什么会站出来做正确的事情，与中共囯开战？
-
-我们今天得知了中共囯如何处理海洋问题。他们在南海造岛。我们现在知道南中国海的珊瑚礁周围开始出现大量的人为垃圾。这样说吧，很明显这些人工岛屿的下水道排污摧毁了珊瑚礁。
-
-中共囯把南中国海变成粪池，毁坏珊瑚礁的行为遭到了菲律宾的控诉。当地政客说中共不仅实质上侵犯了他们的领海，还重新将其命名为西菲律宾海。菲律宾参议院声称中共囯现在把南中国海变成了厕所，大量的污染物和长城一样，都可以从太空中被观察到。一名菲律宾政客说中共囯把他们当作厕所。这非常明显的违反了国际和当地环境法律，现在的情况越来越糟。
-
-我们不是任何一个国家的垃圾场，更不能任由他国侵占我们的领土。中共囯在联合国对大堡礁指手画脚之前，先把你们在南中国海丢的垃圾和修建的人工岛清理干净。
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kqKAKBLxcoRIR/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/kqKAKBLxcoRIR/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
+无论你是不是基督徒，上述经文都与我们当下发生的事情有关联。你或许不想读，跳过这段经文，但那就是我们如何用《圣经》价值观看待伪类亡腚缸、蛇妖闫的问题。当然，这只是其中之一，因为我总相信，《圣经》就是我们衡量事物本质的尺子，对待伪类，祂就是照妖镜。
+
+
+
+**文字版原文：[【信仰之声】如何运用《圣经》判断伪类？](https://gnews.org/zh-hans/1405598/)**
+
+作者：纽约香草山福音部 捆绑CCP一千年
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

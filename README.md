@@ -31,23 +31,23 @@
 ### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月19日 文贵先生盖特 7](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [郭爆料串珠（322）中共高官的性变态视频，看完你就不想活了](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
 
-### [2021年7月19日 文贵先生盖特 6](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [郭爆料串珠（321）共产党灭亡后，谁会当中国领导人？](/content/gnews/7/README.md)
+ ` 郭爆料串珠`
 
-### [亡腚缸和蛇妖闫](/content/gnews/8/README.md)
- ` HimalayaRussia`
+### [郭爆料串珠（320）G系列是全世界最敢讲真话的媒体，连美国政府都做不到](/content/gnews/8/README.md)
+ ` 郭爆料串珠`
 
-### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/9/README.md)
+### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/10/README.md)
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/11/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -70,41 +70,41 @@
 ### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [亡腚缸和蛇妖闫](/content/gnews/19/README.md)
+### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/19/README.md)
+ ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
+
+### [法国纪录片《习近平的世界》节选: 台湾是民主的典范，让北京无法忍受](/content/gnews/20/README.md)
+ ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
+
+### [亡腚缸和蛇妖闫](/content/gnews/21/README.md)
  ` HimalayaRussia`
 
-### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/20/README.md)
+### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/21/README.md)
+### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/22/README.md)
+### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【秘翻在线】恒大财产遭冻结引发股灾](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/25/README.md)
+### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/26/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国黑客攻击让白宫陷入困境](/content/gnews/26/README.md)
+### [中共国黑客攻击让白宫陷入困境](/content/gnews/27/README.md)
  ` 索尼克`
 
-### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/27/README.md)
+### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/28/README.md)
+### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [【新闻快讯】中共国对挪威议会进行了网络攻击](/content/gnews/29/README.md)
+### [【新闻快讯】中共国对挪威议会进行了网络攻击](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
-
-### [【秘翻在线】 欧洲通膨来了?](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国发布香港商业警告和进一步的制裁措施](/content/gnews/43/README.md)
+### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/43/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国发布香港商业警告和进一步的制裁措施](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国的太空计划比你想象中的更具军事性](/content/gnews/44/README.md)
+### [中共国的太空计划比你想象中的更具军事性](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯批评中（共）国网络攻击威胁安全](/content/gnews/45/README.md)
+### [布林肯批评中（共）国网络攻击威胁安全](/content/gnews/46/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [日本首次在国防报告中提及台湾海峡的稳定问题](/content/gnews/46/README.md)
+### [日本首次在国防报告中提及台湾海峡的稳定问题](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯在关于全球暴行的报告中列举了新疆的虐待行为](/content/gnews/47/README.md)
+### [布林肯在关于全球暴行的报告中列举了新疆的虐待行为](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/48/README.md)
+### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/49/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美军增派25架F-22进驻关岛，百架五代匿踪战机云集印太](/content/gnews/49/README.md)
+### [美军增派25架F-22进驻关岛，百架五代匿踪战机云集印太](/content/gnews/50/README.md)
  ` G-NEWS TAIWAN`
 
-### [全球舰队靠拢亚太地区阻止中共扩张](/content/gnews/50/README.md)
+### [全球舰队靠拢亚太地区阻止中共扩张](/content/gnews/51/README.md)
  ` G-NEWS TAIWAN`
 
-### [美军C-130型大力神战术运输机，携外交邮袋降落桃园机场](/content/gnews/51/README.md)
+### [美军C-130型大力神战术运输机，携外交邮袋降落桃园机场](/content/gnews/52/README.md)
  ` G-NEWS TAIWAN`
 
-### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/52/README.md)
+### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/53/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【杂谈】Duck勃和他的洋爹塞林](/content/gnews/53/README.md)
+### [【杂谈】Duck勃和他的洋爹塞林](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/54/README.md)
+### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/55/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021/07/18 文贵先生直播精要-001](/content/gnews/55/README.md)
+### [2021/07/18 文贵先生直播精要-001](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [7月16日郭先生盖特文字精简版分享](/content/gnews/56/README.md)
- ` 喜马拉雅农场新西兰站`
 
