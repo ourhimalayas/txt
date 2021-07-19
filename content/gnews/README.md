@@ -16,11 +16,11 @@
 
 ---
 
-### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/1/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/2/README.md)
+### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/2/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
 ### [【三票专栏】谈谈叛徒的品位](/content/gnews/3/README.md)
  ` 三票先生`
@@ -88,23 +88,23 @@
 ### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】恒大财产遭冻结引发股灾](/content/gnews/25/README.md)
+### [由于担心冠状病毒变异，美国股市暴跌](/content/gnews/25/README.md)
+ ` 索尼克`
+
+### [【秘翻在线】恒大财产遭冻结引发股灾](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/26/README.md)
+### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国黑客攻击让白宫陷入困境](/content/gnews/27/README.md)
+### [中共国黑客攻击让白宫陷入困境](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/28/README.md)
+### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/29/README.md)
+### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/30/README.md)
  ` 索尼克`
-
-### [【新闻快讯】中共国对挪威议会进行了网络攻击](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
 
 ### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -118,17 +118,17 @@
 ### [【香港快讯】 7月19日 港府宣布入境条例8月生效 「预先通报旅客资料系统」稍后落实](/content/gnews/34/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/35/README.md)
+### [中共国危机：中共军事威胁适得其反，习近平政权“可能很快崩溃”](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳洲总理无惧惹怒中共坚持贯彻调查中共病毒疫情起源](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [【粤语配音】中共全方位压榨中国老百姓](/content/gnews/36/README.md)
+### [【粤语配音】中共全方位压榨中国老百姓](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【粤语配音】活在中共统治的中国人都是奴隶](/content/gnews/37/README.md)
+### [【粤语配音】活在中共统治的中国人都是奴隶](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2021/07/15 参议员HAWLEY：提供真相和疫苗接种途径，人们自己选择](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [7/19/2021 财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；美国向企业发出关于香港风险的警告](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
