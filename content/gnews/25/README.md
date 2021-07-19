@@ -2,23 +2,19 @@
 ---
 
 
-## 【秘翻在线】美国指控中共情报人员策划了黑客活动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1406919/)
+## 中国公民因欺诈性购买和出口美国军用工艺、发动机而被判刑
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1406986/)
 
-撰稿：zzballack
+一名中共国公民和两名同案被告因企图利用虚假出口信息通过欺诈手段向中共国出口海上突击艇和军用发动机，并违反美国法律而被判刑。
 
-校对 :牛小妹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19110336/zz.png)
-图片来源：Pixabay
+来自中共国南京的 51 岁的葛松涛于 2020 年 11 月 2 日对指控认罪，并于 2021 年 7 月 14 日被判处三年零六个月的联邦监狱徒刑。葛密谋“通过联邦政府的自动出口系统提交虚假出口信息，并以欺诈方式向中共国出口海上突袭艇和发动机。”出口企图“违反了美国法律”。葛同意行政没收 114,834.27 美元，因为他已安排将这笔钱汇给一家美国制造商，用于购买发动机和突袭艇。
 
-据《零对冲》7月19日报道，拜登政府将持续对中共采取强硬的政策。美国将宣布中共政府在全球策划一系列针对公共和私人实体的恶意勒索、数据盗窃和其它网路间谍攻击活动，包括今年稍早揭露的微软电子邮件系统黑客攻击事件。
+葛先生曾任总部位于中共国上海的上海微风科技有限公司董事长。 2018 年，葛开始寻找“美国制造的作战橡胶突击艇的供应来源，该艇配备的发动机可以使用汽油、柴油或喷气燃料运行。 .中共国不能制造有可比性的此类发动机。”这种带有多燃料发动机的飞行器能够从水下潜艇发射，也可以由飞机投放到海洋中。它们被美国军方使用。
 
-据彭博社报道，美国将会对中共国安部利用签下犯罪合同的黑客在全球开展未经批准的网路活动提出证据，其中包括为了私人的经济利益，对世界各地的受害者进行网路敲诈、隐蔽式黑客攻击和盗窃。另外，其它联邦部门如美国国家安全局（NSA）、网路安全和基础设施安全部（The Cybersecurity and Infrastructure Security Agency）、和联邦调查局（FBI）将会曝光中共资助的网路黑客所使用的50多种战术。
+新闻来源：[thenationalpulse](https://thenationalpulse.com/breaking/chinese-national-sentenced-for-fraudulent-scheme-to-purchase-and-export-us-military-craft-engines/)
 
-据CNBC报道，北约成员国与欧盟、纽西兰、日本和澳大利亚组成的联盟正在北约成员国之间建立新联盟，他们将会分享网路威胁情报以及合作改善网路安全。预计他们还将会与美国共同谴责中共及其情报机构下令进行的包括入侵微软电邮系统在内的黑客攻击行为。
-
-新闻来源：
-
-[https://www.zerohedge.com/geopolitical/us-accuses-chinese-intelligence-agents-masterminding-microsoft-hack](https://www.zerohedge.com/geopolitical/us-accuses-chinese-intelligence-agents-masterminding-microsoft-hack)
+编译： Boxinglady
+校对发稿：法图麦
+本文只代表个人观点，不代表 Gnews 平台
 
 0
