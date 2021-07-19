@@ -2,74 +2,44 @@
 ---
 
 
-## 【新闻速递】自由和平等，但前提是您接种了疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405530/)
+## 【秘翻在线】垂死病中惊坐起，罡风吹屋呓语吟
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405942/)
 
-翻译：香草山商业组  文锤
+**评中共新华网新闻： 关键时刻的中国主张 习近平为亚太发展引领方向**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+**撰稿：雨季仰光**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19041522/1-84.png)
+据新华网北京7月18日报道，中共主席习近平16日晚应邀在北京以视频方式出席亚太经合组织领导人非正式会议并发表讲话。讲话中，习为亚太地区未来发展诊脉开方，提出要加强抗疫国际合作、深化区域经济一体化、坚持包容可持续发展、把握科技创新机遇的中共国主张。
 
+笔者尝试以一个有常识的普通公民的正常思考来对此次讲话作一个简单展开和逐段点评。
 
+报道说，“砖家”认为，这是一次在关键时刻召开的特别会议，习主席为亚太发展提出中国方案。这些方案既是基于中共国改革开放和发展实践成果，也符合时代发展大势，必将推动地区形成合力，引领亚太发展方向，助力世界经济复苏。
 
+评：“既是基于”的这个前提都不成立，看看中共国改革开放这几十年地家底都在他上任期间被败成如今民不聊生的境地就清晰可见， 何来的成果；“也符合”完全是自以为是的胡言乱语式的推导，时代发展的大势是去除给人类带来灾难的共产主义思潮；“必将推动”也是主观自嗨式的毫无逻辑的推断，中共打着一带一路的旗号，实则将蒙在鼓里或不明真相的发展中国家拖入其债务陷阱，最终码头港口和战略通道被中共霸占，沦为新时代的经济殖民地。
 
+文章继续鼓吹，抗疫是当前亚太经合组织合作最紧迫的任务。面对起伏反复的新冠肺炎疫情、依然严峻的疫情防控形势，习主席提出，各国休戚相关、命运与共，必须团结合作、共克时艰，共同守护人类健康美好未来。
 
-原文阅读: [https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
+评：所谓“抗疫“其实质就是疫苗经济，通过泯灭人性地从本国开始然后向全世界施放病毒，妄图搞垮美国和西方经济 ，弱化民主国家，同时再以所谓疫苗来再次收割世界遭受荼毒地国家和民众。却美其名曰：共克时艰，共同守护人类健康美好未来。你们在实验室刻意研发最致命的病毒和伤尽天良地释放病毒的时候还有一丁点人性吗？
 
-作者：Pierre Farge 和 Bilal Bentahar
+报道表示，中共国竭尽所能，向发展中国家提供5亿多剂疫苗，为实现疫苗在发展中国家的可及性和可负担性作出中国贡献，为筑牢全球抗疫防线贡献中共国力量。
 
-**卫生政策侵犯了我们的自由，尤其是违反了对任何医疗的自由和知情同意。**
+评：号称竭尽所能提供所谓疫苗给世界，可是暂时抛开你病毒施放者的身份不表，从第一波冠状病毒大流行之初，你们“积极”向世界提供的检测试剂及相关产品都因假冒伪劣在实际检测中带来大量误检错检而被很多西方国家发现并拒绝，居然还能恬着脸继续招摇撞骗，现在输出的疫苗因各种并发症和几轮注射依然感染病毒甚至接种人群在很多地区成高爆发疫情的奇怪现象只能归结为以疫苗之名行大赚滴血的人命钱之实。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19005358/553-1.png)[图片来源](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
+报道还说，“这5亿多剂疫苗相当于当前全球疫苗总产量的六分之一，”中共国国际问题研究院副研究员苏晓晖说，“这是一种巨大的贡献，将对国际社会积极参与抗疫合作起到带领作用。
 
-**虽然 Delta 变种有可能使法国陷入第四波疫情，但马克龙周一宣布实施新的健康限制措施，这是对我们公共自由的又一次攻击。律师皮埃尔·法热 (Pierre Farge) 对这些措施的虚伪性提出了看法。 **
+评：谢谢了，墙国总喜欢以毫无意义的唬人数据来掩盖你们数据之下 的丑陋真相，你们最好的行善就是少产出甚至不产出就是对世界的积德
 
-“一个愿意为了自己的安全而牺牲自由的民族，两者都不配拥有，最终会失去安全和自由。”
+报道称，疫情冲击下，世界经济脆弱复苏。习主席主张，深化区域经济一体化，“要拆墙而不要筑墙，要开放而不要隔绝，要融合而不要脱钩”。
 
-[本杰明·富兰克林](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)( [Benjamin Franklin)](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)的话在政府最近实施的疫苗接种措施中成为热门话题。
+评：真无耻到家了，你们自己给本国14亿人民在互联互通的网络时代建网络防火墙，将民众隔离在自己设置的深井之中，不就是害怕老百姓看多了会明白 ，听多了会觉醒吗？要融合，不要脱钩是讲出了习内心的恐惧和担忧，但是你逆世界主流价值观，玩弄假骗偷，操作蓝金黄来搞脏搞乱清平世界，谁会和你一起沆瀣一气呢？避之都唯恐不及。
 
-自大流行危机开始以来，共和国总统和部分行政部门轮流声称接种疫苗将始终是一种选择。
+报告还继续用数据鼓吹，中共国经济上半年同比增长12.7%。作为全球率先控制疫情、率先恢复经济的国家，中共国经济亮眼的成绩单为亚太和全球经济复苏注入信心和动力。
 
-在宣布的最新措施最终将禁止令变为[疫苗接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)，但并未法律上[强制接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)疫苗。
+评：这个是中共国政府统计局的数据吧？一个人口普查都迟迟不敢公布真相，最后经领导一再“斟酌”，拍脑袋定了一个政治正确的数据 出来，却前后数据没有连贯性和逻辑性，其他此类数据作假比比皆是，毋庸细数和一一道来。反观这一令人乍舌的经济增长数据，在病毒让全世界经济全面停摆的态势下，在几波疫情肆虐世界中共国也不可能例外，进出小区要严格检查，餐馆，商场都门可罗雀，而医院人满为患，人人以邻为壑，国内国际旅行各种检查隔离，中小企业大量因疫情冲击都难以为继的这种众所周知，耳熟能详的形势下，中共告诉大家你的经济比太平盛世的GDP增长还要迅猛，那不是欺人，那是一个重病在床，积重难返，行将入土的患者的呓语和胡话。
 
-**用社会的压力和经济原因作为说服的工具**
+在一时难辨真假，或一般民众难以取证来识别对错的时候，常识和逻辑是个好东西。将新闻连起来看，把历史展开来读，把数据稍加分析，从中我们就不难发现说谎者自我矛盾，自打耳光的只为眼前和未来的宣传做铺垫和遮掩的真相。
 
-所谓的[健康通行证](https://www-contrepoints-org.translate.goog/2021/07/16/401720-pass-sanitaire-piege-sans-fin-pour-la-liberte?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)包括出示针对[Covid-19](https://www-contrepoints-org.translate.goog/2021/07/14/401502-covid-19-que-sait-on-du-variant-delta?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)的疫苗接种证书或不到 48 小时的 PCR 检测阴性证明，而且这个PCR检测很快就就不是免费的了，从而对低收入者形成了歧视。
-
-换句话说，[拒绝接种疫苗的代价](https://www-contrepoints-org.translate.goog/2021/07/13/401476-macron-acte-la-societe-a-2-vitesses-au-nom-de-la-panique-sanitaire?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)要么是牺牲一个人的社交生活，要么是因为一个人无法再进入最基本的旅行和聚会场所，或者在别无选择时牺牲自己的钱包，如果不接种疫苗，那么只能为最轻微的旅行或见面承担 PCR 测试的费用。
-
-因此，社会和财政压力如此之大，以至于放弃疫苗几乎是不可想象的。
-
-因此，这项健康政策必然侵害我们的自由，尤其是根据[《公共卫生](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[法》](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[第 L.1111-4](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)和[《民法》第 16-3](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)对任何医疗的自由和知情同意。
-
-事实如此，对未能接种疫苗的处罚也证实了这种侵害，无论是在禁止旅行方式还是禁止在餐厅等聚会场所。
-
-**对我们的自由进行危险的限制**
-
-虽然所有这些措施只能通过议会方式生效，但这并不一定保证尊重[法治](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/%25C3%2589tat_de_droit)和共和国原则，尤其[是 1789 年《人权宣言》第 6 条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/loda/article_lc/LEGIARTI000006527432/)所载明的原则。所有这些因素都证明，这些措施可能与遏制流行病不成比例，而且无论如何都是虚伪的，因此在总统选举前夕具有政治风险。
-
-这项法案必须在 7 月 19 日在部长会议上讨论，然后由国民议会于 7 月 21 日和参议院于 7 月 22 日和 23 日进行审查，成功通过的机会很大，下议院在立法事项上的多数意见将有最后决定权。这种情况将给宪法委员会一次充分发挥他作用的机会，而宪法委员会一定会抓住这个机会。
-
-自由和平等，但前提是您接种了疫苗。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
+**新闻来源：**[**纵论天下****| ****关键时刻的中国主张**** ****习近平为亚太发展引领方向**](http://www.xinhuanet.com/world/2021-07/18/c_1211246125.htm)
 
 
 
