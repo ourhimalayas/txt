@@ -2,36 +2,75 @@
 ---
 
 
-## 7/19/2021日本银河快讯：英航母打击群或于9月在日本靠港；南非奥运代表团成员中共病毒检测阳性
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1405505/)
+## 【新闻速递】自由和平等，但前提是您接种了疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405530/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19004359/%E5%9B%BE%E7%89%872-45.png)[图片来源](https://www.orientaldaily.com.my/)
-**1.22日即将与日本队比赛的南非男足奥运代表队三人在奥运村被确诊感染中共病毒**
+翻译：香草山商业组  文锤
 
-[据日刊体育7月18日的消息，南非奥委会18日宣布，南非男足奥运代表队在奥运村中共病毒检测中确诊感染中共病毒，包括两名运动员和一名职员。目前三人被转移到酒店隔离，而该代表队的其他成员则停留在各自房间里。该代表队计划在奥运会开幕式前一天，即22日，将在味之素体育场与日本队进行首场男子足球比赛。这是首次发现居住在奥运村的运动员被感染。](https://news.yahoo.co.jp/articles/65ffdc88600f854b90ebe0f4314226ad23685fd0)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-**2****.****行政改革担当大臣河野太郎称想尽快确定9月前中共病毒疫苗的供应量**
 
-[据NHK7月18日的报道，关于中共病毒的疫苗接种，行政改革担当大臣河野太郎在NHK电视节目“周日辩论”中表示，他希望尽快确定9月前中共病毒疫苗的供应量，以便当地政府能够制定计划。最重要的是，因为所需数量的疫苗缺货，当地政府一直在取消疫苗接种的预约。河野太郎表示，“真的很抱歉，我们无法根据接种量供应足够的疫苗。我会尽快在9月前做出预测，以便当地政府妥善制定接种计划。”另一方面，关于是否需要接种第3剂疫苗，他说，“政府正在讨论明年之后的行动措施，因此我希望将来向大家说明此事。”](https://www3.nhk.or.jp/news/html/20210718/k10013145661000.html)
 
-**3.公明党代表山口那津男称尽量实现东京残奥会有观众入场观赛**
 
-[据每日新闻7月18日的报道，关于8月24日开幕的东京残奥会，公明党代表山口那津男当日在金泽市的一次演讲中提到，将促成东京残奥会有观众入场观赛，以激励参赛的运动员。东京残奥会是否允许观众入场将在奥运会结束后决定。此外，山口那津男表示，旅游业和餐饮业受到中共病毒疫情蔓延的重创，需要进一步的支援，并表示在疫情被抑制后应进行新的“GoTo活动”。](https://news.yahoo.co.jp/articles/b2d9163752ab9d043cb6ebb47bf0049af7b373bd?tokyo2020)
 
-**4.英航母打击群或于9月在日本靠港**
+原文阅读: [https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
 
-[据共同社7月18日的报道，日本政府相关人士18日透露，日英两国政府已就英国派赴印度太平洋地区的航母打击群9月在日本靠港一事展开协调。预计停靠地点分散在日本国内4地，核心航母“伊丽莎白女王”号将进入美国海军横须贺基地（神奈川县横须贺市）。日本防卫相岸信夫与英国国防大臣华莱士定于20日在东京举行的会谈将确认此事。航母打击群计划在日本近海与日本自卫队、美军开展联合训练。航母打击群已确认多名船员感染中共病毒，但英方认为对航行和联合训练并无影响。](https://nordot.app/789410188969033728)
+作者：Pierre Farge 和 Bilal Bentahar
 
-**5.****东京奥运・残奥会期间远程办公者略有增加，而中小企业称即使在奥运期间也无法改变工作方式**
+**卫生政策侵犯了我们的自由，尤其是违反了对任何医疗的自由和知情同意。**
 
-[据产经新闻7月18日的消息，在东京奥运・残奥会期间，企业都在努力采取远程办公的措施以缓解交通拥堵。一项政府调查显示，选择远程办公的人略有增加。而一些中小企业称，无法因为举行奥运会就改变工作方式。为了缓解交通拥堵并防止中共病毒的传播，政府已将涵盖比赛期间在内的七个星期定为“远程办公日”。大约有800家公司和地方政府宣布参与，政府的目标是扩大到3000家公司。](https://news.yahoo.co.jp/articles/8f6ad5991c18f87bf691363a1cf2a8a6183836e7)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19005358/553-1.png)[图片来源](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
 
-**6.****菅义伟内阁支持率35.9%创新低**
+**虽然 Delta 变种有可能使法国陷入第四波疫情，但马克龙周一宣布实施新的健康限制措施，这是对我们公共自由的又一次攻击。律师皮埃尔·法热 (Pierre Farge) 对这些措施的虚伪性提出了看法。 **
 
-[据共同社报道，同社7月17、18日实施的日本全国电话舆论调查结果显示，菅义伟内阁支持率为35.9%，较上一期（6月）调查时下降8.1个百分点，跌至去年9月内阁上台以来最低。不支持率49.8%也创菅义伟内阁最高，超出支持率13.9个百分点。当询问是否担心东京奥运会和残奥会将导致中共病毒疫情扩大时，回答“感到不安”的占到87.0%。对中共病毒疫苗接种的相关政府应对措施“感到不满”的回答占58.5%。](https://nordot.app/789463611822800896)
+“一个愿意为了自己的安全而牺牲自由的民族，两者都不配拥有，最终会失去安全和自由。”
 
-【日本银河系农场-阿尔法星球】
-作者：ハエ
-校对：Tracy
+[本杰明·富兰克林](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)( [Benjamin Franklin)](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)的话在政府最近实施的疫苗接种措施中成为热门话题。
+
+自大流行危机开始以来，共和国总统和部分行政部门轮流声称接种疫苗将始终是一种选择。
+
+在宣布的最新措施最终将禁止令变为[疫苗接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)，但并未法律上[强制接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)疫苗。
+
+**用社会的压力和经济原因作为说服的工具**
+
+所谓的[健康通行证](https://www-contrepoints-org.translate.goog/2021/07/16/401720-pass-sanitaire-piege-sans-fin-pour-la-liberte?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)包括出示针对[Covid-19](https://www-contrepoints-org.translate.goog/2021/07/14/401502-covid-19-que-sait-on-du-variant-delta?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)的疫苗接种证书或不到 48 小时的 PCR 检测阴性证明，而且这个PCR检测很快就就不是免费的了，从而对低收入者形成了歧视。
+
+换句话说，[拒绝接种疫苗的代价](https://www-contrepoints-org.translate.goog/2021/07/13/401476-macron-acte-la-societe-a-2-vitesses-au-nom-de-la-panique-sanitaire?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)要么是牺牲一个人的社交生活，要么是因为一个人无法再进入最基本的旅行和聚会场所，或者在别无选择时牺牲自己的钱包，如果不接种疫苗，那么只能为最轻微的旅行或见面承担 PCR 测试的费用。
+
+因此，社会和财政压力如此之大，以至于放弃疫苗几乎是不可想象的。
+
+因此，这项健康政策必然侵害我们的自由，尤其是根据[《公共卫生](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[法》](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[第 L.1111-4](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)和[《民法》第 16-3](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)对任何医疗的自由和知情同意。
+
+事实如此，对未能接种疫苗的处罚也证实了这种侵害，无论是在禁止旅行方式还是禁止在餐厅等聚会场所。
+
+**对我们的自由进行危险的限制**
+
+虽然所有这些措施只能通过议会方式生效，但这并不一定保证尊重[法治](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/%25C3%2589tat_de_droit)和共和国原则，尤其[是 1789 年《人权宣言》第 6 条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/loda/article_lc/LEGIARTI000006527432/)所载明的原则。所有这些因素都证明，这些措施可能与遏制流行病不成比例，而且无论如何都是虚伪的，因此在总统选举前夕具有政治风险。
+
+这项法案必须在 7 月 19 日在部长会议上讨论，然后由国民议会于 7 月 21 日和参议院于 7 月 22 日和 23 日进行审查，成功通过的机会很大，下议院在立法事项上的多数意见将有最后决定权。这种情况将给宪法委员会一次充分发挥他作用的机会，而宪法委员会一定会抓住这个机会。
+
+自由和平等，但前提是您接种了疫苗。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
 
 0
