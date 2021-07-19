@@ -2,94 +2,36 @@
 ---
 
 
-## 【医疗前沿世界】使用COVID PCR测试拭子与吸入石棉一样危险
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405432/)
+## 7/19/2021日本银河快讯：英航母打击群或于9月在日本靠港；南非奥运代表团成员中共病毒检测阳性
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1405505/)
 
-翻译：香草山商业组    文锤
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19004359/%E5%9B%BE%E7%89%872-45.png)[图片来源](https://www.orientaldaily.com.my/)
+**1.22日即将与日本队比赛的南非男足奥运代表队三人在奥运村被确诊感染中共病毒**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+[据日刊体育7月18日的消息，南非奥委会18日宣布，南非男足奥运代表队在奥运村中共病毒检测中确诊感染中共病毒，包括两名运动员和一名职员。目前三人被转移到酒店隔离，而该代表队的其他成员则停留在各自房间里。该代表队计划在奥运会开幕式前一天，即22日，将在味之素体育场与日本队进行首场男子足球比赛。这是首次发现居住在奥运村的运动员被感染。](https://news.yahoo.co.jp/articles/65ffdc88600f854b90ebe0f4314226ad23685fd0)
 
+**2****.****行政改革担当大臣河野太郎称想尽快确定9月前中共病毒疫苗的供应量**
 
+[据NHK7月18日的报道，关于中共病毒的疫苗接种，行政改革担当大臣河野太郎在NHK电视节目“周日辩论”中表示，他希望尽快确定9月前中共病毒疫苗的供应量，以便当地政府能够制定计划。最重要的是，因为所需数量的疫苗缺货，当地政府一直在取消疫苗接种的预约。河野太郎表示，“真的很抱歉，我们无法根据接种量供应足够的疫苗。我会尽快在9月前做出预测，以便当地政府妥善制定接种计划。”另一方面，关于是否需要接种第3剂疫苗，他说，“政府正在讨论明年之后的行动措施，因此我希望将来向大家说明此事。”](https://www3.nhk.or.jp/news/html/20210718/k10013145661000.html)
 
+**3.公明党代表山口那津男称尽量实现东京残奥会有观众入场观赛**
 
+[据每日新闻7月18日的报道，关于8月24日开幕的东京残奥会，公明党代表山口那津男当日在金泽市的一次演讲中提到，将促成东京残奥会有观众入场观赛，以激励参赛的运动员。东京残奥会是否允许观众入场将在奥运会结束后决定。此外，山口那津男表示，旅游业和餐饮业受到中共病毒疫情蔓延的重创，需要进一步的支援，并表示在疫情被抑制后应进行新的“GoTo活动”。](https://news.yahoo.co.jp/articles/b2d9163752ab9d043cb6ebb47bf0049af7b373bd?tokyo2020)
 
-原文阅读：
+**4.英航母打击群或于9月在日本靠港**
 
-[https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
+[据共同社7月18日的报道，日本政府相关人士18日透露，日英两国政府已就英国派赴印度太平洋地区的航母打击群9月在日本靠港一事展开协调。预计停靠地点分散在日本国内4地，核心航母“伊丽莎白女王”号将进入美国海军横须贺基地（神奈川县横须贺市）。日本防卫相岸信夫与英国国防大臣华莱士定于20日在东京举行的会谈将确认此事。航母打击群计划在日本近海与日本自卫队、美军开展联合训练。航母打击群已确认多名船员感染中共病毒，但英方认为对航行和联合训练并无影响。](https://nordot.app/789410188969033728)
 
-访问Antonietta Gatti 教授 参考视频链接：
+**5.****东京奥运・残奥会期间远程办公者略有增加，而中小企业称即使在奥运期间也无法改变工作方式**
 
-[https://www.youtube.com/watch?v=DgoQp3bVdAc](https://www.youtube.com/watch?v=DgoQp3bVdAc)
+[据产经新闻7月18日的消息，在东京奥运・残奥会期间，企业都在努力采取远程办公的措施以缓解交通拥堵。一项政府调查显示，选择远程办公的人略有增加。而一些中小企业称，无法因为举行奥运会就改变工作方式。为了缓解交通拥堵并防止中共病毒的传播，政府已将涵盖比赛期间在内的七个星期定为“远程办公日”。大约有800家公司和地方政府宣布参与，政府的目标是扩大到3000家公司。](https://news.yahoo.co.jp/articles/8f6ad5991c18f87bf691363a1cf2a8a6183836e7)
 
-**译文：**
+**6.****菅义伟内阁支持率35.9%创新低**
 
-**一位实验物理学家和生物材料研究人员在显微镜下检查了各种**** PCR ****测试拭子，发现它们所含的纤维对人类来说与吸入石棉一样危险。**
+[据共同社报道，同社7月17、18日实施的日本全国电话舆论调查结果显示，菅义伟内阁支持率为35.9%，较上一期（6月）调查时下降8.1个百分点，跌至去年9月内阁上台以来最低。不支持率49.8%也创菅义伟内阁最高，超出支持率13.9个百分点。当询问是否担心东京奥运会和残奥会将导致中共病毒疫情扩大时，回答“感到不安”的占到87.0%。对中共病毒疫苗接种的相关政府应对措施“感到不满”的回答占58.5%。](https://nordot.app/789463611822800896)
 
-Antonietta Gatti 教授 检查了各种 PCR 测试拭子并分析了它们的成分。结果表明，它们由坚韧的材料制成，并含有大量纳米颗粒，包括银、铝、钛和玻璃纤维。所有这些都没有在 PCR 测试包装说明书上声明。
+【日本银河系农场-阿尔法星球】
+作者：ハエ
+校对：Tracy
 
-根据教授的说法，如果这些纤维卡在粘膜中，它们会导致严重的伤口和炎症。不再完整的粘膜无法在病毒、细菌和真菌到达呼吸道之前发挥其抵御作用。细菌无需任何免疫过滤即可穿透呼吸道。对于从所谓的大流行开始以来，一直遵守当局规定，并参加定期测试和戴口罩的人来说，这不是好消息。这是因为口罩是所有类型细菌的理想滋生地。
-
-在实验室里，Gatti 教授使用电子显微镜（ESEM 和 EDS）分析各种类型的拭子，这些拭子用于收集人体有机物进行 PCR 诊断，以检查形态和化学成分。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002919/546-1.png)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-使用中国深圳 Biocomma 制造的“棉毛”棒，Gatti 教授无法确定它是由碳制成还是由棉制成。产品中的污垢由碳酸钙、不锈钢和硅酸盐组成。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002923/546-2.jpg)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-一根来自中国Manta的刷状测试棒，显示出大量断裂的纤维。发现碳、氧、硅、锆、硫、铝、钛和钠是样品的成分。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002925/546-3.jpg)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-Biocomma 的另一个拭子似乎是由玻璃纤维制成的，或者至少有玻璃纤维涂层。成分是碳、氧、铝、硅和钛。不能排除由有机材料制成的附加涂层。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002930/546-4.png)[图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-另一个测试棒——FLOQSwabs——的敷抹器的尖端涂有垂直排列的短尼龙纤维。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002932/546-5.jpg)FLOQSwabs拭子棉签 [图片来源](https://labelians.fr/ecouvillon-floqu-floqswabs.html)
-
-Gatti 教授说：“该公司解释说，纤维芯由尼龙制成，并带有专利材料涂层，在分析中，该材料是硅酸盐-锆-钛。这种涂层使纤维更硬，从而能够撕裂粘膜。在涂片操作期间施加的压力可能会破坏一些留在原位的纤维。发生这种情况时，它们会引起异物反应，从而损害粘膜，从而阻碍呼吸和说话。”
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19002938/546-6.jpg)*PCR 测试拭子的颈部* [图片来源](https://dailyexpose.co.uk/2021/05/21/covid-pcr-test-swabs-are-as-dangerous-as-inhaling-asbestos/)
-
-根据Gatti教授的分析，拭子颈部图片上的小白点是银纳米粒子——“银是一种没有在制造商数据表中声明的材料。”
-
-Gatti 教授得出以下结论——
-
-“这种 “豪猪” 拭子由坚韧的纤维制成。如果它们刮擦鼻粘膜，它们会损坏它，导致出血病变，或者在任何情况下都会对组织造成创伤。
-
-“在粘膜的愈合过程中，断裂的纤维可以穿透组织进入身体，而没有机会将它们去除，导致肉芽肿或纤维化组织的形成，就像任何异物在身体中一样。
-
-所检查的医疗器械并非完全具有生物相容性，因此不符合 ISO 标准 10993 的要求，以及获得 CE 标志所需的测试。
-
-教授的调查结果总结如下——
-
-- 拭子对鼻咽粘膜是危险的。玻璃纤维又硬又脆，会划伤粘膜并造成损伤。粘膜出血是测试侵入性的一个标志。
-- 重复的拭子测试会产生慢性病变。脆性玻璃纤维碎片的释放会引起生物反应，例如肉芽肿和/或组织纤维化。
-- 这些涂抹拭子对婴儿和儿童的健康构成威胁。如果测试是必要的，必须对儿童使用小而温和的涂抹拭子。
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
-
-+1
+0

@@ -2,75 +2,51 @@
 ---
 
 
-## 【新闻速递】自由和平等，但前提是您接种了疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405530/)
+## 加拿大生活美谈 2021-07- 15第十五期
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1405553/)
 
-翻译：香草山商业组  文锤
+蒙特利尔皇家山战友团
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+作者: 平民正道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19010557/15_cr.jpg)
+#### 一周新闻播报
 
+1: 今日单日新增病例65人，比昨天减少了10人，目前累计病例已达到：376,109例，其中364,222人已经康复。死亡人数：11,232人。
 
+2: 昨天14号接种疫苗人数:101,686人，总接种量已达到:9,752,346剂，72.3%的人口已经接种。
 
+3: 魁省12-17岁的年轻人可预约接种第2剂疫苗，77%的12-17岁的年轻人已经接种至少一剂疫苗，6%的人接种了两剂。
 
+4: 由于劳动力市场短缺，魁省移民也有了变化，CSQ甄选发生了重大改变。需要有魁省学历，受训的领域，语言能力还有工作经验。这场改革还是侧重吸收优质人才来缓解魁省劳动力市场和人才缺失的问题。
 
-原文阅读: [https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
+5: 魁省劳动力短缺，部分行业工资上涨，有电工，社会工作者，物理治疗师，家庭护理员，幼儿教育工作者，零售业和餐饮业，护士和程序员。
 
-作者：Pierre Farge 和 Bilal Bentahar
+6: 安省伦敦的一名牙医完全接种了新冠病毒疫苗，是混打辉瑞和Moderna两种疫苗。想回他的祖籍国巴巴多斯探亲时，被要求进行酒店隔离。疫苗混打不被巴巴多斯政府认可。
 
-**卫生政策侵犯了我们的自由，尤其是违反了对任何医疗的自由和知情同意。**
+#### 翌姗姐开场白
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19005358/553-1.png)[图片来源](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
+加拿大生活美谈这档节目主要是跟大家聊一聊加拿大的生活、自然环境、学习教育、生活理念还有对大自然的敬畏和爱护，邻里之间互相帮助和互相监督。既然想要生活在海外这片新天地里，就要了解她的所有的法律条款和规矩。俗话说得好：没有规矩，不成方圆。不能生活在海外却拿着中国的思维标准来衡量现在的生活状态。那只能一味地索取从来不想付出。当你得到一点帮助的时候反而嫌钱少。
 
-**虽然 Delta 变种有可能使法国陷入第四波疫情，但马克龙周一宣布实施新的健康限制措施，这是对我们公共自由的又一次攻击。律师皮埃尔·法热 (Pierre Farge) 对这些措施的虚伪性提出了看法。 **
+进入七月，新鲜事如泉水一样涌出来，冲刷着我们的头脑。就像各路风水大师和星象大师给我们的各种预测脚本一样，做好防范措施。不管如何预测，测到了疫情前来的暴风雨了吗？它来的那么猝不及防。刚进入到七月中旬那难忘的周一，亡腚缸在节目里还开心地跟郝海东、叶昭颖连线。十二号真的是一个分水岭。咱们已经习惯它早晚两场的直播，想不到它跟你来了个急刹车。经过九指妖事件，咱们已经没那么痛苦了。心脏经过一次次冲击和锻炼越来越强大了。这件事对我们来说已经不算啥，只是一个小插曲而已。
 
-“一个愿意为了自己的安全而牺牲自由的民族，两者都不配拥有，最终会失去安全和自由。”
+#### 翌姗姐批亡腚缸、蛇精闫和博士团
 
-[本杰明·富兰克林](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)( [Benjamin Franklin)](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)的话在政府最近实施的疫苗接种措施中成为热门话题。
+每个人都有一个家。每个人的成长路程都和家庭环境、生活理念还有我们的信仰、道德品质有着密切的关系。有的人说话不经过大脑的思考。亡腚缸和蛇精闫说过的话都留在网络记忆里，人们很容易获得证据。作为父母 ，你希望你的孩子也这样吗？昨天还感恩戴德 ，今天就诅咒人去死。
 
-自大流行危机开始以来，共和国总统和部分行政部门轮流声称接种疫苗将始终是一种选择。
+博士团的人，满嘴胡言，信口开河，真怕他们的孩子也受到影响。很多在国外学业有成的专家学者们不知道回国被利用。他们没有独立思考能力吗？学成回国报效祖国，最后有人要用割喉来发泄自己的那一腔愤怒。还有的自以为有了思考能力的学者们，却在做着盗窃者的行为，到了机场被捕。这难道不影响中国人的形象吗？这不会影响到我们今后新中国联邦的孩子们出国深造的机会吗？很多国家开始拒签中国留学生的签证。这就是为什么新中国联邦在这里呐喊，中国人不等于中国共产党。博士们误导了很多千辛万苦翻墙出来了解真相的人。大姐们拿博士们当人才在这里跟他们说话。大姐们成功的时候，他们还都兜着尿布呢。大姐们有极大的耐心和爱心听他们讲话。要不是他们用着郭先生搭建的爆料革命的平台，谁知道他们。他们这样会毁了自己的博士荣誉。大姐们用自己的勤劳和智慧得到的当地人的认可，毁在他们手上。一旦有什么事情发生，首当其冲遭殃的是我们这些海外华侨。不管你是公民还是永久居民，你那张脸没法变。
 
-在宣布的最新措施最终将禁止令变为[疫苗接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)，但并未法律上[强制接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)疫苗。
+不是只有博士们会读书，有文化，不要诋毁别人抬高你自己。他们是不是天天跟自己家孩子讲关塔那摩和什么法案。过去大姐们和战友们一直关注着他们是因为他们做着爆料革命的节目。他们乱说话大姐们都忍者，认为他们经验不够，需要时间来锻炼慢慢成长。他们利用平台满足自己的私欲。他们把战友们的信任放在脚底下去碾压和歧视。
 
-**用社会的压力和经济原因作为说服的工具**
+翌姗大姐呼吁女性同胞们看一个男人的重点在于是否有责任和担当。我们不希望自己的丈夫和女婿是一个没有良心，不负责任的人。没有一个家庭愿意要只是做一台播种机的人。这些都离不开来源于原生态家庭和生长环境的教育。教育要从自己做起。家庭是社会的基础。我们现在要回归家庭，要有信仰。不然又会出现一波又一波的人间悲剧。我们看到杨改兰和国内外许多人的故事，自己也会思考。
 
-所谓的[健康通行证](https://www-contrepoints-org.translate.goog/2021/07/16/401720-pass-sanitaire-piege-sans-fin-pour-la-liberte?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)包括出示针对[Covid-19](https://www-contrepoints-org.translate.goog/2021/07/14/401502-covid-19-que-sait-on-du-variant-delta?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)的疫苗接种证书或不到 48 小时的 PCR 检测阴性证明，而且这个PCR检测很快就就不是免费的了，从而对低收入者形成了歧视。
+#### 病毒
 
-换句话说，[拒绝接种疫苗的代价](https://www-contrepoints-org.translate.goog/2021/07/13/401476-macron-acte-la-societe-a-2-vitesses-au-nom-de-la-panique-sanitaire?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)要么是牺牲一个人的社交生活，要么是因为一个人无法再进入最基本的旅行和聚会场所，或者在别无选择时牺牲自己的钱包，如果不接种疫苗，那么只能为最轻微的旅行或见面承担 PCR 测试的费用。
+郭先生已经警告过，病毒还会向我们袭来。我们不能掉以轻心，要好好保护自己和家人。疫苗经济会导致社会经济的崩溃，会导致社会的瘫痪和我们的不便。这会直接影响到我们的生活，要做好防范措施。
 
-因此，社会和财政压力如此之大，以至于放弃疫苗几乎是不可想象的。
+[视频链接](https://www.gtv.org/video/id=60f0bef0d251c22166823273)
 
-因此，这项健康政策必然侵害我们的自由，尤其是根据[《公共卫生](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[法》](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[第 L.1111-4](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)和[《民法》第 16-3](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)对任何医疗的自由和知情同意。
+* * *
 
-事实如此，对未能接种疫苗的处罚也证实了这种侵害，无论是在禁止旅行方式还是禁止在餐厅等聚会场所。
-
-**对我们的自由进行危险的限制**
-
-虽然所有这些措施只能通过议会方式生效，但这并不一定保证尊重[法治](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/%25C3%2589tat_de_droit)和共和国原则，尤其[是 1789 年《人权宣言》第 6 条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/loda/article_lc/LEGIARTI000006527432/)所载明的原则。所有这些因素都证明，这些措施可能与遏制流行病不成比例，而且无论如何都是虚伪的，因此在总统选举前夕具有政治风险。
-
-这项法案必须在 7 月 19 日在部长会议上讨论，然后由国民议会于 7 月 21 日和参议院于 7 月 22 日和 23 日进行审查，成功通过的机会很大，下议院在立法事项上的多数意见将有最后决定权。这种情况将给宪法委员会一次充分发挥他作用的机会，而宪法委员会一定会抓住这个机会。
-
-自由和平等，但前提是您接种了疫苗。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
+发稿：月亮之上
 
 0

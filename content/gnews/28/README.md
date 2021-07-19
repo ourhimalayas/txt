@@ -2,22 +2,22 @@
 ---
 
 
-## 【秘翻在线】联合创始人：维基百科已沦为左倾建制派的宣传工具
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405582/)
+## 【秘翻在线】防火墙倒塌之时就是中共灭亡之日
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1405612/)
 
-#### 撰稿：坤霆
+#### 撰稿：柯亭
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19012902/%E7%BB%8F%E6%B5%8E%E5%AD%A6%E4%BA%BA.jpg)图片来源：经济学人
-据澳洲新闻网7月19日报道， 维基百科联合创始人拉里·桑格（Larry Sanger）在接受UnHerd’s Lockdown TV采访时警告说，该网站不再值得信任，坚称它现在只是左倾建制派的宣传工具。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19013724/%E7%BA%A7%E8%AD%A6%E6%88%92.jpg)图片来源：维基百科
+据人民网报道，2021年7月13日至15日在北京召开的中共国互联网大会，发布了《中国互联网发展报告（2021）》。报告称，截止2020年底，中共国5G网络用户数超过1.6亿，约占全球5G总用户数的89%，网民规模达9.89亿使互联网普及率达到70.4%。
 
-他指出如果保守派的声音一旦出现，只要是与现有的意见不同，那么不是被剔除，就是被严重警告。“你现在不能在社会政治问题上引用福克斯新闻，因为它现在被禁止了。” 这很明显就是对受人尊敬的保守派声音进行打压。
+什么是互联网？维基百科强调互联网是全球范围内互联的“Network of Networks”。中共国因其长城防火墙，其所谓互联网并非真正的Internet (Global Network of Networks)，只是其控制范围内的一个局部网络（Local Network of Networks）而已。
 
-“这就意味着，如果保守派的声音没有出现在主流左派媒体上，那它就不会出现在维基百科上。”
+自从美国政府对中共的5G巨头华为实施芯片制裁以来，华为一度去尝试养猪业，且不说哪一天能做出真正的5G手机。中共国所谓的1.6亿5G网络用户用的是什么设备？网络速度有多快？
 
-桑格认为，现在人们对已发生的事只能得到一种观点，这不是该网站的初衷——给出多个观点供人们参考。这样很危险，巩固了富人的力量，让他们可以操控和影响民众，比如说使用专门的公关公司来影响某个公司的上市。
+中共真正擅长的是利用高科技手段实现对人的监控，从而维持其残忍的独裁统治。7月18日，郭文贵先生在第二次直播中说到，天空WIFI一旦开始就没有什么网墙。
 
-对此，维基百科尚未做出回应。
+据预计，StarLink的天空WIFI将于2021年9月实现全球连续覆盖。可以预期：亿万的中共国网民能使用真正的互联网之时，就是中共灭亡之日！
 
-**新闻来源****：**[Wikipedia co-founder says site is now ‘propaganda’ for left-leaning ‘establishment’](https://www.news.com.au/technology/online/internet/wikipedia-cofounder-says-site-is-now-propaganda-for-leftleaning-establishment/news-story/72c3c7a0c6aa3b6d86ae2c542258b28c)
+**新闻来源：**[中共国局域网用户最新数据](http://finance.people.com.cn/n1/2021/0719/c1004-32161412.html)
 
 0

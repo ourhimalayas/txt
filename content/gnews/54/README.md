@@ -2,43 +2,75 @@
 ---
 
 
-## CDC和CCP在美国全面实现暴政的10个步骤
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1405461/)
+## 【新闻速递】自由和平等，但前提是您接种了疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405530/)
 
-**作者：**S.D. Well 2021-07-09
+翻译：香草山商业组  文锤
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19003214/0718.jpg)
-图片来源：网络
-
-（自然新闻）现在，如果你还没有为对抗中共病毒接种疫苗，那么你知道疫苗比病毒危险得多。事实上，如果你知道他们今天放入疫苗中的任何东西，那么你知道中共病毒只是在美国引入共产主义的借口，一个人口减少计划，有1.5亿人像保龄球针一样建立起来，为”大封锁”做准备。
-
-最重要的是要认识到，对于未接种疫苗的人来说，现在还为时不晚，因为最初需要传播对中共病毒的恐惧，以建立政府权威，这样他们才能进一步侵犯我们的宪法权利，命令我们四处游荡——整天戴口罩，保持社会距离，关闭我们的企业，只从资助对中共病毒的假战争的大公司购买产品。这是一场假战争， “他们” （民主党、CCP和运行  的全球主义者） 想要你的支持。
-
-你看，政府都更喜欢民众对战争的支持，无论是运功战、假”恐怖战”，还是针对”杀手病毒”的假战争。具有讽刺意味的是，这次敌人根本不是外国人：事实上，他是每个美国人。
-
-真正阴险的议程总有遮掩。每个人都必须买进。当然，9/11掩盖了哈里伯顿挪用50亿美元和宪法及残疾人隐私爱国者法案。阿富汗战争遮盖了美国接管鸦片贸易，因为海洛因高度流行成瘾，破坏健康的处方止痛药。现在，中共病毒和三角洲变种是共产党接管美国和人口减少/消毒运动的掩护，通过一次”疫苗加强剂”的注射，至少可以消灭50%的美国民众。可以称之为”杀人开关”。
-
-**实现暴政的10个步骤**
-
-1. 创造一种新的人类疾病（病毒），杀死弱者和免疫受损者（完成）。
-2. 将中共病毒传播到全球（完成）。
-3. 为该病毒制造“疫苗”，让“疫苗”导致血栓和危及生命的心肌炎（完成）。
-4. 大肆传播对中共病毒的恐惧，以至于全球至少有70%的人（或者至少是在美国）接种“疫苗”（目前只达到50%）。
-5. 传播对一种新”变种”（称为三角洲）的恐惧，宣传这种”变种”甚至比原始病毒”更致命”和”更具传染性”（刚开始）。
-6. 将所有疫苗的伤害和死亡归咎于新的”三角洲变种”（刚刚开始）。
-7. 要求每个接种疫苗者接种他们针对”三角洲变种”的疫苗，该接种要么指令接受者的细胞产生数十亿有毒的蛋白质，导致患者精神错乱并导致心力衰竭，要么疫苗中最终含有模仿病毒感染机制的致病蛋白的”有效载荷”，这些致病蛋白过量使用接种者的免疫系统，导致他们死亡。
-8. 一场新的群众性事件”发生”，使人民之间的一切交流陷入瘫痪，然后中国共产党人开始从我们南部边境”放牧”。
-9. 另一个大规模枪击事件 “发生”，看起来像特朗普的支持者，且是 “反疫苗” 的右翼极端分子。
-10. 没收所有剩下的未接种疫苗的美国人的枪支，从而共和国也丢失了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
 
-**美国的共产主义者和人口减少主义者打着”爱国”的幌子，让你出于对中共病毒及其变种的恐惧而接受自己的疫苗终止制剂**
 
-接种疫苗死掉被认为是”爱国的”，因为这个国家现在由共产党人管理，他们想用国内生物恐怖主义（致命疫苗）消灭至少3/4的美国人，并将十亿中国人从中国转移到这里。正如希特勒利用宣传来推销他的动机对社会和德国经济有帮助一样，CDC和CCP正在”推销”疫苗、口罩、社会疏远和封锁给每一个人，正如我们所知道的那样终结美国。这就是为什么精神错乱的造假总统乔只是告诉大家，美国人接种疫苗是你们可以做的最爱国的事情。
 
-**评：**美国不但存在共产主义者而且中国共产党几乎控制了50%的美国内部力量（文贵先生在17年爆料中共通过蓝金黄的手段对美国进行渗透时曾经提到）。被全球主义者控制的美国政府及其医疗部门仍然在大力推行疫苗接种运动，前不久拜登政府已经开启“挨家挨户”驱动疫苗接种运动，主流媒体大肆宣传中共病毒Delta变种的强传染性致死性，目的是恐吓更多的民众接受接种，以达到更高的接种率；同时把疫苗引起的伤害和死亡归因于这一新变种病毒，而避谈或淡化这种实验性中共病毒疫苗的副作用和致死性。美国的邪恶势力在继续通过医疗暴政的手段来达到最终在美国实现全面暴政，并没有收手的迹象；中共统治美国乃至全世界的邪恶计划通过其在全球各国的同伙的协助下仍在进行。知道中共病毒及其疫苗真相，以及中共的邪恶图谋的正义人士需要站起来他团结联合起来对抗全球邪恶力量，消灭中共是自救救家人乃至救全人类的要求。
 
-原文：S.D. Well, “10 Steps to TOTAL TYRANNY by the CDC and CCP in America”. [Natural News](Natural%20News), July 9, 2021. [https://www.naturalnews.com/2021-07-09-10-steps-to-total-tyranny-cdc-and-ccp.html#](https://ssl.microsofttranslator.com/bv.aspx?ref=TVert&amp;from=&amp;to=zh-Hans&amp;a=https%3A%2F%2Fwww.naturalnews.com%2F2021-07-09-10-steps-to-total-tyranny-cdc-and-ccp.html%23)
+原文阅读: [https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
+
+作者：Pierre Farge 和 Bilal Bentahar
+
+**卫生政策侵犯了我们的自由，尤其是违反了对任何医疗的自由和知情同意。**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19005358/553-1.png)[图片来源](https://www.contrepoints.org/2021/07/18/401732-liberte-et-egalite-mais-uniquement-si-vous-etes-vaccines?utm_source=Newsletter+Contrepoints&amp;utm_campaign=e259fbf1dd-Newsletter_auto_Mailchimp&amp;utm_medium=email&amp;utm_term=0_865f2d37b0-e259fbf1dd-114777817&amp;mc_cid=e259fbf1dd&amp;mc_eid=d0f1cc2798)
+
+**虽然 Delta 变种有可能使法国陷入第四波疫情，但马克龙周一宣布实施新的健康限制措施，这是对我们公共自由的又一次攻击。律师皮埃尔·法热 (Pierre Farge) 对这些措施的虚伪性提出了看法。 **
+
+“一个愿意为了自己的安全而牺牲自由的民族，两者都不配拥有，最终会失去安全和自由。”
+
+[本杰明·富兰克林](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)( [Benjamin Franklin)](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/Benjamin_Franklin)的话在政府最近实施的疫苗接种措施中成为热门话题。
+
+自大流行危机开始以来，共和国总统和部分行政部门轮流声称接种疫苗将始终是一种选择。
+
+在宣布的最新措施最终将禁止令变为[疫苗接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)，但并未法律上[强制接种](https://www-contrepoints-org.translate.goog/2021/07/16/401677-allocution-de-macron-vers-un-paternalisme-autoritaire-de-letat-francais?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)疫苗。
+
+**用社会的压力和经济原因作为说服的工具**
+
+所谓的[健康通行证](https://www-contrepoints-org.translate.goog/2021/07/16/401720-pass-sanitaire-piege-sans-fin-pour-la-liberte?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)包括出示针对[Covid-19](https://www-contrepoints-org.translate.goog/2021/07/14/401502-covid-19-que-sait-on-du-variant-delta?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)的疫苗接种证书或不到 48 小时的 PCR 检测阴性证明，而且这个PCR检测很快就就不是免费的了，从而对低收入者形成了歧视。
+
+换句话说，[拒绝接种疫苗的代价](https://www-contrepoints-org.translate.goog/2021/07/13/401476-macron-acte-la-societe-a-2-vitesses-au-nom-de-la-panique-sanitaire?_x_tr_sl=auto&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=ajax,nv,elem)要么是牺牲一个人的社交生活，要么是因为一个人无法再进入最基本的旅行和聚会场所，或者在别无选择时牺牲自己的钱包，如果不接种疫苗，那么只能为最轻微的旅行或见面承担 PCR 测试的费用。
+
+因此，社会和财政压力如此之大，以至于放弃疫苗几乎是不可想象的。
+
+因此，这项健康政策必然侵害我们的自由，尤其是根据[《公共卫生](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[法》](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[第 L.1111-4](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)和[《民法》第 16-3](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000006419297/)[条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000041721056/)对任何医疗的自由和知情同意。
+
+事实如此，对未能接种疫苗的处罚也证实了这种侵害，无论是在禁止旅行方式还是禁止在餐厅等聚会场所。
+
+**对我们的自由进行危险的限制**
+
+虽然所有这些措施只能通过议会方式生效，但这并不一定保证尊重[法治](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=http://www.wikiberal.org/wiki/%25C3%2589tat_de_droit)和共和国原则，尤其[是 1789 年《人权宣言》第 6 条](https://translate.google.com/website?sl=auto&amp;tl=zh-CN&amp;ajax=1&amp;nv=1&amp;elem=1&amp;se=1&amp;u=https://www.legifrance.gouv.fr/loda/article_lc/LEGIARTI000006527432/)所载明的原则。所有这些因素都证明，这些措施可能与遏制流行病不成比例，而且无论如何都是虚伪的，因此在总统选举前夕具有政治风险。
+
+这项法案必须在 7 月 19 日在部长会议上讨论，然后由国民议会于 7 月 21 日和参议院于 7 月 22 日和 23 日进行审查，成功通过的机会很大，下议院在立法事项上的多数意见将有最后决定权。这种情况将给宪法委员会一次充分发挥他作用的机会，而宪法委员会一定会抓住这个机会。
+
+自由和平等，但前提是您接种了疫苗。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01163039/7-july.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
 
 0
