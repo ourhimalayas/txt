@@ -2,41 +2,44 @@
 ---
 
 
-## 【快讯】中共国发射遥感卫星三十号10组卫星
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1405858/)
+## 2021/07/19 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1406245/)
 
-作者：香草山健身部 文鹰
+## 001 开除党籍后才有资格被法律审判
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19071751/01-1-3.jpg)
+
+视频注：中共国官员犯法后的治理流程，第一步永远是先被党内开除党籍和公职；第二步才能交给检察机关去走法律流程。党中央先决定你犯法了，法律才可以确认你的法律罪行。这就是中共处理官员荒唐地假法治程序。
+
+## 002 永远重复着被“河流”带走生命的孩子
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19071811/02-6.jpg)
+
+视频注：中共国每年暑假，都是孩子被淹溺的高发期。中共国孩子喜欢去河流游泳的本质原因，是根本没有免费安全的游泳池供孩子们玩耍，安全的都是要收费的。即使每年层出不穷的孩子溺亡事故，也从未见政府部门牵头为孩子们提供全方位安全免费的暑期游玩场所，孩子大量溺亡事件其实反映的是政府职能部门的缺位。
+
+## 003 年轻小伙深夜在汉堡店“要个饭”
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19071814/03-5.jpg)
+
+视频注：
+从小伙子羞涩的举止中能看出他并非懒惰无赖之流。中共国年轻人靠自己的勤劳付出无法得到同等有尊严的生活和机会，这是现在中共国年轻人普遍的无奈现状。
+在中共国，努力工作的人往往吃不饱，这就是中共国的邪恶体制。推翻CCP, 中国人才能活下去。
+
+## 004 重病中年女子“保钱不保命”
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19071815/04-4.jpg)
+
+视频注：中共国的“医疗保障体系”对普通人而言就是灾难，毫无保障而言。43岁的重病中年女子，继续治疗就意味着可能掏空整个大家庭的所有积蓄。所以中共国大部分重病患者会在巨大医疗费用压力面前提前放弃治疗，静静等待死亡的到来。如果不是走投无路，谁愿意放弃自己的生命呢？中共国就是一个吃人的体制。
 
 
 
-中共新华社西昌7月19日电：7月19日8时19分，中共西昌卫星发射中心用长征二号丙运载火箭，成功将遥感三十号10组卫星发射升空，卫星顺利进入轨道，这次任务还搭载发射了“天启星座15星”（瑞金号/彩虹鱼号）。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19024454/%E5%9B%BE%E7%89%8755.png)图片来源：中共新华社
 
-天启星座是浙江嘉兴、江西瑞金、陕西延安三地政府和卫星运营方北京国电高科科技有限公司共同发起，以中共“中央苏区”原驻地，临时中央政府诞生地及红军长征出发地三个地方命名的，旨在致敬“红色精神与航天精神”，献礼中共百年冥诞。6月18号已发射“嘉兴号”，9月预计发射“延安号”。
+编辑：【英国伦敦喜庄园编辑部】
 
-天启星座是中共国首个组网提供数据运营的低轨物联网星座。本次发射系列共计14颗卫星，已经完成第一极端组网建设，后期计划2020年年底完成全部38颗卫星组网，将实现全球覆盖。
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-参考阅读：
-
-[https://xhpfmapi.zhongguowangshi.com/vh512/share/10130347?isview=1&homeshow=1&newstype=1001](https://xhpfmapi.zhongguowangshi.com/vh512/share/10130347?isview=1&amp;homeshow=1&amp;newstype=1001)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

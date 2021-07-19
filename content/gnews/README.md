@@ -40,14 +40,14 @@
 ### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/9/README.md)
+### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/9/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/11/README.md)
  ` G-NEWS TAIWAN`
-
-### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -58,17 +58,17 @@
 ### [【拆台新闻】如蜡烛被极权体制燃尽的乡村教师](/content/gnews/14/README.md)
  ` 索尼克`
 
-### [2021/07/19 墙内世界](/content/gnews/15/README.md)
+### [2021年7月19日 秘翻快报 【头条新闻】](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2021/07/19 墙内世界](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快讯】中共下放行政处罚权：重演突尼斯自焚小贩 “颜色革命”戏码](/content/gnews/16/README.md)
+### [【快讯】中共下放行政处罚权：重演突尼斯自焚小贩 “颜色革命”戏码](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
-
-### [【快讯】中共国发射遥感卫星三十号10组卫星](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [戳穿中共百年冥诞致词里的谎言——一国两制&amp;全面管治权&amp;九二共识](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
@@ -88,23 +88,23 @@
 ### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【NewsExpress】欧盟与英国指控中共对Microsoft Exchange服务器发动网络攻击](/content/gnews/25/README.md)
+### [【热点播报】7月19日国际新闻速递](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
+
+### [【NewsExpress】欧盟与英国指控中共对Microsoft Exchange服务器发动网络攻击](/content/gnews/26/README.md)
  ` 索尼克`
 
-### [【NewsExpress】拆台：中共加紧推广数字人民币](/content/gnews/26/README.md)
+### [【NewsExpress】拆台：中共加紧推广数字人民币](/content/gnews/27/README.md)
  ` 索尼克`
 
-### [【秘翻在线】法国中共病毒疫苗接种中心遭到破坏](/content/gnews/27/README.md)
+### [【秘翻在线】法国中共病毒疫苗接种中心遭到破坏](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯](/content/gnews/28/README.md)
+### [【NewsExpress】蓬佩奥在家庭领导峰会上称中共是杀人犯](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/29/README.md)
+### [【秘翻在线】普京向拜登提供俄罗斯基地监视塔利班](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
-
-### [“这让我担心”：mRNA 疫苗的发明者分享了病毒线索，显示在大多数疫苗接种国家出现了 COVID 激增](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [全球舰队靠拢亚太地区阻止中共扩张](/content/gnews/43/README.md)
+### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/43/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [美军增派25架F-22进驻关岛，百架五代匿踪战机云集印太](/content/gnews/44/README.md)
  ` G-NEWS TAIWAN`
 
-### [美军C-130型大力神战术运输机，携外交邮袋降落桃园机场](/content/gnews/44/README.md)
+### [全球舰队靠拢亚太地区阻止中共扩张](/content/gnews/45/README.md)
  ` G-NEWS TAIWAN`
 
-### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/45/README.md)
+### [美军C-130型大力神战术运输机，携外交邮袋降落桃园机场](/content/gnews/46/README.md)
+ ` G-NEWS TAIWAN`
+
+### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【杂谈】Duck勃和他的洋爹塞林](/content/gnews/46/README.md)
+### [【杂谈】Duck勃和他的洋爹塞林](/content/gnews/48/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/47/README.md)
+### [“COVID-19源自中共实验室”已普遍被世界接受](/content/gnews/49/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021/07/18 文贵先生直播精要-001](/content/gnews/48/README.md)
+### [2021/07/18 文贵先生直播精要-001](/content/gnews/50/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [7月16日郭先生盖特文字精简版分享](/content/gnews/49/README.md)
+### [7月16日郭先生盖特文字精简版分享](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年7月19日灭共要闻](/content/gnews/50/README.md)
+### [2021年7月19日灭共要闻](/content/gnews/52/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【中共国段子】绿色贝雷帽（2）](/content/gnews/51/README.md)
+### [【中共国段子】绿色贝雷帽（2）](/content/gnews/53/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [【中共国段子】绿色贝雷帽（1）](/content/gnews/52/README.md)
+### [【中共国段子】绿色贝雷帽（1）](/content/gnews/54/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [中共“超限战”渗透游戏行业](/content/gnews/53/README.md)
+### [中共“超限战”渗透游戏行业](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [保护自己非常重要](/content/gnews/54/README.md)
+### [保护自己非常重要](/content/gnews/56/README.md)
  ` 澳喜农场`
-
-### [【币圈】-数字货币动态 -2021.07.19](/content/gnews/55/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【DC大中华时事】香港议员宣誓在即 引发历史最大规模辞职潮 民主派6成已辞职 2021.07.19](/content/gnews/56/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
