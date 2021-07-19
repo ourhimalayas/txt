@@ -2,29 +2,18 @@
 ---
 
 
-## 缺德社大脑袋无知慧
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1405919/)
+## “说说你的看法– 老百姓真的脱贫了？” 第03期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1405975/)
 
-作者：东京樱花团/春华秋实
-插图：樱花团设计组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19035234/e3be77c81db09376ede58b10a1605cff.jpg)
-亡腚缸：最近我看打赏的少了，看广告的少了，点赞的也少了，踩的倒多了。bo博**💩**，你怎么看？
+- 制作：蚂蚁兄弟
 
-bo博**💩**：嗯，呵呵，大家想一想啊，打赏的冲着郝董和叶女士的多。
 
-亡腚缸：咱不是有闫天**💩**吗，洋爹吗，你知道的吧？
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-安丽：嗯，咳咳，你看啊，咱还有美军呢，怕啥。
+**西班牙2021年7月19日电/西喜社——**
 
-亡腚缸：这安保费，搬家费啥的，你们看呢，啊。
-
-⋯⋯⋯⋯⋯
-
-亡腚缸：看来你们不花钱啊。。。
-
-[盖特链接](https://www.gettr.com/post/p4l5p8)
-
-（文章仅代表作者个人观点）
-发布：东京樱花团/老黑
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
-0
+中国的外表似乎已被中共“打扮”得光彩夺目，中共把它那“铸就百年辉煌”的海市蜃楼展现给世界的同时，在它那光怪陆离、浮华于世的外表背后，那几亿贫困人口的真实生活，才是这个国家的实际现状。以下一段段网络留言，真真正正的记录下了中国大多数人生活的现状。希望这一切能被世界看到，希望这一切能够让每一个人深思……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19042447/%E8%84%B1%E8%B4%AB3-scaled.jpeg)
+素材：Aires的星； 发稿：Nuevo唐人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/15180024/GNEWS_CH.-1.jpeg)
++1
