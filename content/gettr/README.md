@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 10:54 PM (UTC)`
+
+150万粉丝的歌星因为穿上G翻身而引轰动．https://www.instagram.com/p/CRhJesBFADH/?utm_medium=copy_link
+![img](https://media.gettr.com/group47/getter/2021/07/19/22/23235200-2cfe-bea1-4109-8111a1bda685/8e51dca32589fb50004b6e002c5e1eec.jpg)
+
+---
+
 `@miles 7/19/2021 7:15 PM (UTC)`
 
 路大脑袋．路骗出啥事了……😱😱😱😱【大家关注香草山打伪直播，路大头家有突发情况报道】
@@ -305,14 +312,6 @@ America stands with the Cuban people.<br/> <br/>America stands against socialism
 
 Thanks again Scott!!!<br/><br/>Great advocate for free speech - please give him a follow!
 > `@scottsands 7/14/2021 3:22 PM (UTC)`<br/>GETTR’s own @jasonmillerindc back on my show at 5:46p ET today. <br/>🎧 📻 📱 💻 <br/>http://www.WSPD.com/listen 
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@vernonjones 7/3/2021 12:16 PM (UTC)`
-
-Glad to see so many PATRIOTS leaving the plantation and following me here on Gettr! <br/><br/>#GETTR #vernonjonesforgeorgia
 
 ---
 
