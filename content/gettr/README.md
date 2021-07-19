@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/19/2021 7:15 PM (UTC)`
+
+路大脑袋．路骗出啥事了……😱😱😱😱【大家关注香草山打伪直播，路大头家有突发情况报道】
+![img](https://media.gettr.com/group2/getter/2021/07/19/19/e9e9b496-1118-4508-8d8a-d8bd36f7f3e1/9ae761db47793a41c828f03d8c4ef882.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@repandybiggsaz 11/27/2020 12:04 AM (UTC)`
@@ -306,13 +313,6 @@ Thanks again Scott!!!<br/><br/>Great advocate for free speech - please give him 
 `@vernonjones 7/3/2021 12:16 PM (UTC)`
 
 Glad to see so many PATRIOTS leaving the plantation and following me here on Gettr! <br/><br/>#GETTR #vernonjonesforgeorgia
-
----
-
-`@miles 7/15/2021 5:21 PM (UTC)`
-
-This clip clearly displays Miles Guo’s Revelation Timeline of the CCP Virus. Many Chinese scientists and medical workers have been and are risking their lives to expose the truth regarding the CCP Virus. Conversely, some opportunists and liars have compiled some known information to form so-called “reports” to seize the right to speak about the virus. They have deceived the feelings of many Chinese People and American People for their own selfish interests. These opportunists and liars should face legal consequences and be called out and shamed by the public.<br/><br/>The consensus that the CCP-engineered COVID-19 in its labs has reached and &quot;using the truth of the CCP Virus to Knock down the CCP” has been a foregone conclusion in May 2021.<br/><br/>
-![img](https://media.gettr.com/group16/getter/2021/07/15/17/66754fd7-0cc0-da3a-5b69-bbd1f9f58d6d/out.jpg)
 
 ---
 

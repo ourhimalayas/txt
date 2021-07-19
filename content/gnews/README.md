@@ -31,14 +31,14 @@
 ### [外国的月亮比较圆？中共外宣新武器：外籍网红](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/6/README.md)
+### [2021年7月19日 文贵先生盖特 6](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [亡腚缸和蛇妖闫](/content/gnews/7/README.md)
+ ` HimalayaRussia`
+
+### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/8/README.md)
  ` 温哥华扬帆农场`
-
-### [2021年7月19日 文贵先生盖特 5](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [2021年7月19日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -58,34 +58,34 @@
 ### [【拆台新闻】如蜡烛被极权体制燃尽的乡村教师](/content/gnews/14/README.md)
  ` 索尼克`
 
-### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/15/README.md)
+### [【热点推荐】中共国变相强制打疫苗，山东公安、交警联合执法路上严查未打疫苗者](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年7月19日 秘翻快报 【头条新闻】](/content/gnews/16/README.md)
+### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/16/README.md)
+ ` 温哥华扬帆农场`
+
+### [2021年7月19日 秘翻快报 【头条新闻】](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/17/README.md)
+### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021/07/19 墙内世界](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [亡腚缸和蛇妖闫](/content/gnews/19/README.md)
+ ` HimalayaRussia`
 
-### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/19/README.md)
+### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/20/README.md)
+### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/21/README.md)
+### [WHO呼吁中共国加强合作调查病毒起源](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/22/README.md)
+### [中共国报复澳大利亚，污染南中国海水域](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [曾谴责实验室泄露理论的科学家转变立场要求彻查实验室泄露假说](/content/gnews/24/README.md)
+### [美国参议院周三通过《维吾尔强迫劳动预防法》](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/25/README.md)
