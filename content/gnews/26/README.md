@@ -2,31 +2,23 @@
 ---
 
 
-## 观看：Facebook Fact Checker 表示他对中国共产党的关系“非常满意”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1409485/)
+## 【秘翻在线】前总统川普有意参加2024总统竞选
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1409607/)
 
-Facebook 事实核查合作伙伴 Lead Stories 的创始人兼主编艾伦·杜克承认，他对与中共关联的技术公司字节跳动开展业务“非常自在”。
+撰稿：西枫west ca
 
-承认是在杜克出现在史蒂夫班农的战争室：大流行播客期间，在那里他被问及他是否“与一家和中国共产党及人民解放军有直接联系并从属于国家资产的公司保持关系。”
+校对：Ermat
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20162023/image1-15.jpg)图片来源：Fox News
+一位前共和党全国委员会官员告诉滚石杂志：”前总统川普最近几个月至少告诉三个和他一起吃饭的人，他计划在2024年竞选”。
 
-TikTok 的母公司字节跳动已经看到其创始人承诺利用该公司“弘扬社会主义核心价值观”，并聘请与军方有联系的前党内高级官员担任高管。鉴于其作为一家中共国公司的地位，字节跳动还受中共国《国家情报法》第七条的约束，该条规定“任何组织或公民都应支持、协助和配合国家情报工作。”
+并且在一次市民大会上，福克斯新闻主持人肖恩·汉尼提 (Sean Hannity) 向川普询问了他对 2024 年大选的计划，“我们没有太多时间，但让我们谈谈你未来的计划，”汉尼提开始说。“现在……请问在座的各位，2024年还想看总统竞选吗？让我问你这个问题而不给出答案，你下定决心了吗?” 川普笑着说: “是的”。
 
-尽管存在这些联系，Lead Stories 仍将字节跳动列为其“主要资金来源”之一。
+此外，前总统克林顿的助手迪克莫里斯表示，川普将在2024年获胜是“显而易见的”。莫里斯说：“如果川普竞选，他将赢得共和党提名， 并参加竞选”。曾担任川普总统白宫首席策略师的史蒂夫班农也做出了预测：“川普将在 2024 年再次参选，这一点毫无疑问。”
 
-“我对我们与所有客户的关系以及我们所做的工作感到非常满意，”杜克在被问及与字节跳动的关系时回应道，然后重申，“我对此感到非常满意。”
+在过去数周内，前总统川普参加了俄艾俄州，佛罗利达州等地的“挽救美国“集会，得到了数万美国人到场支持。这意味有着强大的民众基础的川普，再次参选的可能性很大。
 
-文章来源：
-
-
-
-> [WATCH: Facebook Fact Checker Says He is ‘Very Comfortable’ With Chinese Communist Relationship.](https://thenationalpulse.com/breaking/fb-fact-checker-comfortable-with-ccp-relationship/)
+**新闻来源：**[Report: Donald Trump Tells Dinner Guests He’s Running For President In 2024](https://conservativebrief.com/leaked-upcoming-45806/)
 
 
-
-翻译整理：文复
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
