@@ -2,54 +2,55 @@
 ---
 
 
-## 在拜登的“杀戮”言论之后白宫加倍对Facebook严厉批评
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1409556/)
+## 【鹰眼墙国】房价上涨，销售面积显增，房价“如此”管控？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1409794/)
 
-**《福克斯新闻》作者：Marisa Schultz ，Jacqui Heinrich，2021年7月18日报道：**
-拜登周五指责 Facebook 通过冠状病毒错误信息“杀人”
+香草山写作组  鹰(文言)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20160146/1456%E2%80%911.png)Psaki 说政府正在与 Facebook 合作以限制 COVID的 错误信息，福克斯新闻白宫记者Peter Doocy与新闻秘书Jen Psaki进行了激烈的交流。
 
-在拜登总统周五指责这家社交媒体巨头通过有关冠状病毒疫苗的错误信息“杀人”之后，白宫并没有放弃对 Facebook 的严厉批评。
-拜登政府的一位消息人士周六向福克斯新闻透露，对Facebook 非常公开的叫板是在该平台未能消除有关已在网上传播的疫苗接种的“危险”信息的几个月后引发的。
 
-自 2 月以来，白宫一直在寻求 Facebook 和其他社交媒体网站的帮助，以阻止错误信息传播开来，例如接受注射会导致不育的“神话”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-尽管 Facebook 就他们如何与政府合作并采取正面行动遏制疫苗错误信息发表了积极的公开声明，但白宫认为，这家大型科技公司未能做到。
 
-拜登政府的一名官员告诉福克斯新闻：“他们一直隐瞒什么是有关规则，他们为防止危险的错误信息传播而采取的措施[以及]他们是如何衡量信息是否有效的。”
 
-由于具有高度传染性的 Delta 变种的传播、年轻人对疫苗的犹豫以及民意调查显示大多数未接种疫苗的人相信有关疫苗的“神话”，紧张局势达到了沸点。
+新浪网7月19日转载中国新闻网消息，中共北京2021年上半年商品房销售面积为488.7万平方米，同比2020年上涨65%，两年平均涨幅达12.3%。
 
-随着美国冠状病毒病例的增加和疫苗接种率的下降，白宫本周启动了打击错误信息的努力，首先是美国外科医生 Vivek Murthy 周四警告说，有关冠状病毒的虚假信息是对公共卫生的“紧急威胁”。
+2020年北京商品房销售面积970.9万平方米（同比增加3.4%），其中住宅面积733.6万平方米，同比下降7%，而办公楼和商业营业用房销售面积分别同比增加37.1%、62.8%。也就是说，在“房住不炒”政策下，北京的“保障性住房”面积缩水，而用于谋取“暴利”的办公楼和商业用房却在猛增。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20155841/Screen-Shot-2021-07-20-at-3.48.18-PM.png)
+进入2021年后，中共北京接连发布放假管控措施。不但通过集中供地来限制土地买卖，更有约谈房产中介和严禁“炒房”舆论等“祸水东引”的政策。然而，房价依旧高涨，北京6月份二手房均价除西城（同比下降3.5%）、房山（2.14%）、通州（1.52%）、平谷（1.9%），其他区均呈上涨趋势，其中海淀区涨幅最高达8.15%，6月份新房价格与2020年大致持平。由于物价的上涨，居民收入水平变相缩水。房价的持平和上涨都对应着“房价调控”政策的无效化。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20155831/Screen-Shot-2021-07-20-at-3.48.22-PM.png)
+再者，虽然中共政府有各种房价“调控措施”，更有“一地一策”和“逢涨必查”的高压，但全国范围内借由学区房炒作的现象依旧层出不穷，在中共垄断教育资源的现状下，配套的学区房追捧热度只增不减。2021年7月份，北京西城区学区房“暴跌”引发热议，根据政策“2020年7月31日后西城区取得房屋所有权的家庭，适龄儿童入小学不再登记为划片学校，而采取多校划片方式就近入学”，至此，中共完成了炒作学区房助推房价上涨后的民众接盘。在中共政府的有意助推下，学区房成为收割部分群体的有力工具。普通房屋的价格上涨趋势和销售面积的“暴涨”也揭示出中共利用房地产抢夺民财的企图。房价管控只是收割民意的牌坊，更何谈彻底抑制房价了。
 
-外科医生办公室发布了一份名为“面对健康错误信息”的新报告，该报告建议社交媒体平台“对反复违反平台政策的账户施加明确的后果”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20160539/1456%E2%80%912.png)
-白宫新闻秘书 Jen Psaki 周四还宣布，拜登政府一直在“标记”内容供 Facebook 删除。
+新闻来源：
 
-“我们正在为 Facebook 标记传播虚假信息的有问题的帖子。我们正在与医生和医学专家合作……他们以准确的信息受到听众的欢迎，”她说。“所以，我们正在帮助获得可信的内容。”
+上半年北京商品房销售面积同比增加65%https://news.sina.com.cn/c/2021-07-19/doc-ikqcfnca7799800.shtml
 
-拜登周五更进一步声称， Facebook 和其他平台不采取行动删除虚假信息正在使人们因可预防的疾病而丧生。
-拜登说：“我们唯一的流行病是未接种疫苗的人，他们 (平台) 正在杀人。”
+北京西城落地史上“最狠”学区房政策，有业主一天降价40万https://www.163.com/dy/article/GE34VFCT0519D3BI.html
 
-白宫的评论很快引起了 Facebook 的谴责。
-“白宫正在寻找未能实现疫苗目标的替罪羊。”Facebook 发言人告诉 NBC 的 Dylan Beyers。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20160535/1456%E2%80%913.png)
-虽然白宫与这家大型科技巨头发生公开争吵，但一些共和党人和批评人士指责白宫在Facebook删除他们认为有问题的帖子方面对Facebook过于友好。
+快讯｜北京市统计局：2020年全市住宅销售面积733.6万平方米 同比下降7%https://estate.caijing.com.cn/20210120/4733011.shtml
 
-“民主党人都是倾向第一修正案的，除非他们不喜欢所说的话。”德克萨斯州众议员兰斯古登周六告诉福克斯新闻。 古登最近成立了一个众议院核心小组，旨在控制大型科技公司。
+浪尖上的北京学区房 有房主连夜降价80万https://www.163.com/money/article/GE5OV1OV002580S6.html
 
-“规范政府与科技巨头勾结，审查他们认为是错误信息的任何内容，实际上使我们的第一修正案权利处于危险之中。”古登说。
-福克斯新闻的Audrey Conklin为本报告做出了贡献。
+5家房地产中介被约谈，北京：逢涨必查、逢炒必办https://bj.house.163.com/21/0204/08/G1VRF3LA000782A4.html
 
-原文连接：[https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks](https://www.foxnews.com/politics/white-house-criticism-facebook-biden-killing-remarks)
+北京6月房价出炉！看看您家涨了还是跌了？https://new.qq.com/omn/20210611/20210611A0AXVV00.html
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – TrueSky
-编辑：洛杉矶盘古农场 – 轰炸机
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+北京房价四连跌，北京楼市调控成功，最新北京楼市数据出炉https://new.qq.com/omn/20210503/20210503A02LHA00.html
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0
