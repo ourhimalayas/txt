@@ -2,18 +2,20 @@
 ---
 
 
-## 【秘翻在线】Ben &amp; Jerry&#8217;s 因抗议活动停止在约旦河西岸销售冰淇淋
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407784/)
+## 【秘翻在线】变种中共病毒感染突增 美医生呼吁强制室内口罩
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407798/)
 
-#### 编译：花岗岩
+#### 撰稿：喜相逢
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19224819/bj.jpg)图片来源：网络截图
-据7 月 19日《纽约邮报》报道，联合利华（Unilever）旗下冰淇淋品牌 Ben & Jerry’s 由于在线抗议者的巨大压力，在周一宣布将停止在“被占领的巴勒斯坦领土”销售冰淇淋。该公司认为，在巴勒斯坦被占领土 (the Occupied Palestinian Territory/OPT) 出售  Ben & Jerry 冰淇淋与我们的价值观不一致。”这一声明引起了以色列人的愤怒，其中包括最近被罢免的总理本雅明·内塔尼亚胡（Benjamin Netanyahu）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19230944/abc.jpg)
+据《纽约邮报》（New York Post）报道， 来自美国丹佛（Denver）的一位急诊室医生萨森（Comilla Sasson）呼吁重新实施室内口罩的规则， 因为最新中共病毒变体Delta 正在推动疫情的全面爆发， 人们必须改变应对方法来保证每个人的安全， 即使这种改变对于人们来说很难接受。
 
-这家冰淇淋制造商还表示，该公司不会撤出以色列，它将继续以不同的方式在以色列销售冰淇淋。Ben & Jerry’s，以大胆介入有争议的社会问题而声名鹊起，在2000年被欧洲消费品集团联合利华 (Unilever) 收购。联合利华在一份声明中表示尊重该品牌独立董事会的决定，并说其首要任务是为消费者提供健康、幸福和享受的基本产品。但是他们不会撤出以色列市场。
+这位医生说， 关于疫情的数据正在发生变化。 高传染性的Delta 病毒已经在丹佛州占据了90%的病例。美国疾控中心（Centers for Disease Control and Prevention）的提供的数据为大约97%的住院患者是未接种疫苗的人，但萨森医生说， 根据最新了解，以及在美国各地的情况， 目前正在出现的感染 Delta 病毒的病例，基本上是已接种中共病毒疫苗的人。 萨森医生强调称， 接种疫苗者感染中共病毒后虽然只有轻微症状， 但是会在不知不觉中传播病毒。
 
-去年，该公司发表了一份题为《沉默不是一种选择》的声明以支持因乔治·弗洛伊德（George Floyd）之死而在全国爆发的“黑命贵”（Black Lives Matter）的抗议活动。
+综上， 萨森医生和美国维韦克·穆尔西博士（Dr. Vivek Murthy）表示， 室内通风条件不好， 易于中共病毒的传播， 他们认为美国各州可能会重新实施室内带口罩等更多的缓解措施以应对 delta 病毒的涌现及爆发。
 
-**新闻来源：**[Ben & Jerry’s stops selling ice cream in West Bank amid protests](https://nypost.com/2021/07/19/ben-jerrys-stops-selling-ice-cream-in-west-bank/)
+CCP 通过病毒正在微妙地改变世界，从没有口罩到全部室外戴口罩， 再到室内也要口罩，呼吸自由成了一种奢侈。所谓的疫苗根本无法抵挡一波又一波的病毒变异， 唯有查找病毒真相、消灭中共，才能让世界重回正道。
+
+新闻来源：[Denver doctor calls for indoor mask mandates over COVID breakthrough cases](https://nypost.com/2021/07/19/denver-doctor-calls-for-indoor-mask-mandates-over-breakthrough-cases/)
 
 0

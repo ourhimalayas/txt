@@ -2,10 +2,10 @@
 ---
 
 
-## 【新闻速递】因Covid-19病例持续激增 泰国抗议者与警察发生冲突
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407672/)
+## 【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407722/)
 
-翻译：纽约香草山健身部 文真
+翻译：纽约香草山健身部 Ivy001
 
 
 
@@ -13,33 +13,27 @@
 
 
 
-新闻来源：CNN
+新闻来源：REUTERS
 
-新闻链接：[Thai protesters clash with police as Covid-19 cases continue to surge](https://www.cnn.com/2021/07/19/asia/thailand-protests-covid-intl-hnk/index.html?fbclid=IwAR05saHmMtW4KmVu9aY4AE1taVeQIDcE0jbOu9G8nUkZ9M9OgVdNiA7aD30)
+新闻链接：[U.S. issues ‘Do Not Travel’ advisory for UK over COVID-19](https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-raises-covid-warning-travelers-united-kingdom-2021-07-19/)
 
 译文：
 
-周日，抗议者试图前往泰国总理巴育-占奥查（Prayuth Chan-ocha）的办公室，要求他因处理新冠病毒大流行及其经济影响不当而引咎辞职。警方使用催泪瓦斯、水炮和橡皮子弹驱散抗议者。
+华盛顿，7月19日（路透社）——因为英国的COVID-19病例数量不断上升，美国国务院和美国疾病控制和预防中心（CDC）周一对前往该国的旅客发出了最高警告。
 
-![]()![](https://cdn.cnn.com/cnnnext/dam/assets/210718233708-01-thailand-protests-0718-restricted-exlarge-169.jpg)
+![]()![](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/GR45FFD77VK7XPEYZB2EGG5RBI.jpg)图片来源：REUTERS/Tami Chappell
 
-警方称，在冲突中有8名警官和至少一名记者受伤，还有13名抗议者被逮捕。
+两者都将前往英国的旅行提高到了“四级”，告诉美国人应该避免去那里旅行。疾病预防控制中心在一份通知中说：“如果你必须前往英国，请确保你在旅行前充分接种疫苗。”而国务院则说，“由于COVID-19，请不要去英国旅行。”
 
-抗议活动的组织者要求在下午6点后结束示威活动，但因警察和数百名抗议者持续对峙了几个小时，直到晚上9点泰国首都开始实施宵禁前，警察才驱散了人群。
+此前在5月份，美国政府曾将英国旅行降至“3级”——咨询评级。现在，美国政府再次将英国旅行提高到“四级”——警告评级。
 
-一些抗议者试图拆除当局设置的从民主纪念碑到政府大楼的铁丝网和金属路障，之后警方进行了武力干预。
+美国自2020年3月起禁止几乎所有最近停留英国的非美国公民进入美国。英国则允许美国人访问，但要求在抵达时进行10天的隔离，并进行两次COVID-19测试。
 
-警方副发言人Kissana Phathanacharoen说，抗议者用“乒乓弹、吊枪和爆竹”攻击警方。他补充说，警方的行动遵循法律和法规，完全遵守控制人群的国际标准。
+拜登政府于6月表示，美国正在与英国、加拿大、墨西哥和欧盟组成专家工作组，以确定在一年多的限制之后，如何更好地重新开始安全旅行。
 
-最近几周，包括巴育的前政治盟友在内的一些团体举行了反对总理的街头抗议活动，因为不断增加的新冠病毒感染和大流行病对经济造成的损害，人们的沮丧感日益强烈。
+美国和航空公司官员预计，对英国旅客的限制最早要到8月才能解除——并警告说可能会进一步推后。
 
-周日的活动中，许多抗议者携带模拟尸袋，代表新冠病毒造成的死亡。
-
-34岁的抗议者Kanyaporn Veeratat告诉路透社：“政府在控制疫情方面一直很差，如果我们不做任何事情，就不会有任何改变。”
-
-由青年团体领导的第一次大规模街头抗议浪潮已经过去了一年，该浪潮吸引了全国各地数十万人参加。此次抗议活动也恰逢抗议浪潮的一周年纪念。
-
-周一，泰国报告了11,784例新增Covid-19病例——连续第四天创下感染记录——以及81例相关死亡病例。目前，泰国死亡病例总数达到3,422例，登记病例总数为415,170例。
+航空公司和其他机构已经向政府施加压力，要求解除对在过去14天内去过英国、欧洲26个没有边境管制的申根国家、爱尔兰、中国、印度、南非、伊朗和巴西的大多数非美国公民的入境限制。
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 

@@ -2,57 +2,28 @@
 ---
 
 
-## 【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407722/)
+## 【秘翻在线】新冠之霾难消 道指创 9 个月来最大跌幅
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407827/)
 
-翻译：纽约香草山健身部 Ivy001
+#### 编译：坤霆
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19234306/%E4%B8%89%E5%9B%9B.jpg)图片来源：Daily Express
+据合众国际社（UPI） 7月19日报道，道琼斯工业平均指数下跌725点，创下9个月来最严重的跌幅，原因是人们担心新冠病毒病例激增和Delta变体可能会阻碍经济复苏。
 
+据疾病控制和预防中心称，约翰·霍普金斯的数据显示，过去一周，所有50个州的新冠病毒病例都在上升，感染率上升了69%，死亡人数增加了26%，住院人数增加了36%。
 
+摩根士丹利美国首席股票策略师迈克·威尔逊周一表示，随着收益和经济增长的大幅放缓，市场表现出了更加强势的防御性。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+蓝筹股指数下跌2.09%，这是自10月份下跌943点以来最严重的跌幅，标准普尔500指数下跌1.59%，纳斯达克综合指数下跌1.06%，连续第五个交易日下跌。
 
+10年期国债收益率跌至1.17%的新低，自2月以来首次跌破1.2%。
 
+有些股票原本可以受益于边境重新开放的，比如说航空股，也遭受了不同程度的跌幅。
 
-新闻来源：REUTERS
+能源股也在下跌，埃克森美孚下跌3.44%，雪佛龙下跌2.7%，西德克萨斯中质原油下跌7.8%，至每桶66.26美元。
 
-新闻链接：[U.S. issues ‘Do Not Travel’ advisory for UK over COVID-19](https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-raises-covid-warning-travelers-united-kingdom-2021-07-19/)
+与全球增长相关的关键股票也遭受打击，通用汽车下跌了2.31%，卡特彼勒收盘下跌1.82%。
 
-译文：
-
-华盛顿，7月19日（路透社）——因为英国的COVID-19病例数量不断上升，美国国务院和美国疾病控制和预防中心（CDC）周一对前往该国的旅客发出了最高警告。
-
-![]()![](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/GR45FFD77VK7XPEYZB2EGG5RBI.jpg)图片来源：REUTERS/Tami Chappell
-
-两者都将前往英国的旅行提高到了“四级”，告诉美国人应该避免去那里旅行。疾病预防控制中心在一份通知中说：“如果你必须前往英国，请确保你在旅行前充分接种疫苗。”而国务院则说，“由于COVID-19，请不要去英国旅行。”
-
-此前在5月份，美国政府曾将英国旅行降至“3级”——咨询评级。现在，美国政府再次将英国旅行提高到“四级”——警告评级。
-
-美国自2020年3月起禁止几乎所有最近停留英国的非美国公民进入美国。英国则允许美国人访问，但要求在抵达时进行10天的隔离，并进行两次COVID-19测试。
-
-拜登政府于6月表示，美国正在与英国、加拿大、墨西哥和欧盟组成专家工作组，以确定在一年多的限制之后，如何更好地重新开始安全旅行。
-
-美国和航空公司官员预计，对英国旅客的限制最早要到8月才能解除——并警告说可能会进一步推后。
-
-航空公司和其他机构已经向政府施加压力，要求解除对在过去14天内去过英国、欧洲26个没有边境管制的申根国家、爱尔兰、中国、印度、南非、伊朗和巴西的大多数非美国公民的入境限制。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+原文链接：[Dow drops 725 points in worst day since October amid COVID-19 fears](https://www.upi.com/Top_News/US/2021/07/19/Dow-Jones-Industrial-Average-drops-725-points-COVID-19-surge/6671626725908/)
 
 0
