@@ -2,15 +2,29 @@
 ---
 
 
-## 《公民记者》突发事件报道：没见过这种玫瑰红的火焰
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1407922/)
+## 【周说｜文贵】2021年7月14日至7月16日
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1408047/)
 
-素材&撰稿：我爱和平/白雪
-视频素材：一路有你
-据墙内战友报道：今晨（20日）河南登封某铝厂因当地连续大雨导致河水倒灌入电解槽而引发生爆炸，目前该厂全系列停产，人员紧急撤离，涉及运行产能4万余吨。大雨就能引起这么大的事故，你们的工程设计、施工、监理、验收、生产安全、运行管理环节一定是有问题的！
+作者：香草山教育部 月野兔
 
-这样玫瑰红色的火焰看着令人头皮发麻，铝制品燃烧对空气对环境的污染是我们未知的，但看到消防人员没有任何放毒气保护实在令人担忧。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-（本文纯属个人观点）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20024934/1-127.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20030605/2%E7%9A%84%E5%89%AF%E6%9C%AC.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020702/3-54.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020520/4-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020542/5-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/6-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020533/7-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/8-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020535/9-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020635/10-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020609/11-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020612/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021122/13-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021135/14-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021146/15-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021202/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021209/17-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021224/18-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021228/19-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/20-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021327/21-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/22-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021335/23-14.jpg)
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

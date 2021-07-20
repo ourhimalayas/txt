@@ -2,29 +2,25 @@
 ---
 
 
-## 【周说｜文贵】2021年7月14日至7月16日
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1408047/)
+## 【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1408327/)
 
-作者：香草山教育部 月野兔
+作者：yyshere
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+台湾外交部当地时间7月20日周二宣布，台湾将与立陶宛互设代表处。外长吴钊燮在法发布会上表示，办事处将寻求加强双方的经济和贸易关系，以及其他各个领域的合作。
 
+吴钊燮特别指出，与以往台湾在其他国家设立的办事处不同，这个驻立陶宛的办事处是以“台湾“作为名称，而非此前在其他国家设立的办事处都以”中国台北“冠名，“台湾和立陶宛政府经过密切协商之后，双方同意在立陶宛首都维尔纽斯设立驻立陶宛台湾代表处。代表处的名称是’台湾驻立陶宛代表处’（The Taiwanese Representative Office in Lithuania）。外交部目前正积极展开各项准备工作”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20024934/1-127.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20030605/2%E7%9A%84%E5%89%AF%E6%9C%AC.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020702/3-54.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020520/4-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020542/5-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/6-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020533/7-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/8-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020535/9-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020635/10-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020609/11-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020612/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021122/13-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021135/14-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021146/15-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021202/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021209/17-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021224/18-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021228/19-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/20-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021327/21-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/22-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021335/23-14.jpg)
-校对/发稿：飞虹
+吴钊燮在发布上透露，立陶宛将于今年秋季在台湾设立办事处，”立陶宛政府也宣布了今年秋天要来台湾设立代表处的好消息。因此，我相信台湾和立陶宛虽然距离遥远，在互相设立据点之后，双方在经贸交流、各领域的合作，人民的友谊都将持续加深“。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+此前，台湾于2020年在索马里兰成立了首个以“台湾“冠名的驻外代表机构。而台湾在欧洲设立的首个代表处是2003年在斯洛伐克的布拉迪斯拉法成立的。
 
-**更多资讯，更多关注**
+有分析认为，台湾这次在欧洲国家设立以“台湾”冠名的实际上可以被认为是具有大使馆性质的代表处，可以被认为是一个撕裂中共国在世界围剿孤立台湾政策的突破口。更应该看到的是，虽然迫于中共的淫威或是妥协于北京的利诱，目前仅有15个国家和台湾保持着外交关系，但事实上台湾始终通过代表处于世界所有主要国家保持着密切的联系。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+消息来源： 台湾外交部
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+校对发稿：Ada(马德里）
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（本文系作者个人观点，不代表GNEWS平台）
 
 0

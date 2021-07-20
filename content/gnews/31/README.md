@@ -2,19 +2,17 @@
 ---
 
 
-## 【秘翻在线】格林议员因散播中共病毒的错误信息被推特暂禁12小时
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1408276/)
+## 【秘翻在线】共和党人呼吁美国运动员在北京冬奥期间不要使用数字元
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1408318/)
 
 撰稿：zzballack
 
-校对： Chris
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20034732/20171.jpg)图片来源：businessinsider
-7月19日，推特官方以散播无根无据的信息为由，暂禁佐治亚州共和党众议员马乔丽·泰勒·格林 (Marjorie Taylor Greene)的推特账户12小时。
+校对：Chris
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20044514/20173.jpg)图片来源：china-briefing
+据《国会山报》（The Hill）7月19日报道，继汤姆·科顿（Tom Cotton）参议员在6月写给拜登总统的信，表示担忧中共会利用2022北京冬奥会收集美国运动员的DNA信息后。共和党议员也担忧中共会在北京冬奥期间利用向美国奥运选手推广数字人民币的机会获取其隐私。
 
-推特发言人说：“格林在7月19日发布的两条推文没有任何依据，违反了公司政策。它们分别是‘中共病毒对不肥胖或65岁以下的人来说并不危险’，‘减肥可以保护人们免于中共病毒导致的并发症甚至死亡’。”这两条推文被推特标记为具有误导性，被禁止分享、点赞和评论。但是格林的推文并非没有依据，据发现肥胖的人因中共病毒患上并发症和住院治疗的风险较其他人更高。
+7月19日，共和党参议员玛莎布莱克本（Marsha Blackburn）、罗杰·威克 (Roger Wicker)和辛西娅·拉米斯 (Cynthia Lummis)联名写信给美国奥林匹克与残疾人奥林匹克委员会。信中写道：“不允许参赛运动员在北京冬奥期间使用中共政府开发的数字货币，因为担心中共会利用数字货币监视美国运动员。鉴于中共使用新兴技术镇压维吾尔少数民族、香港人以及渴望言论自由的中国人，所以这些担心并非空穴来风。像微信这类的数字支付平台被中共用于监视、威胁和逮捕中共国公民。”中共央行上周宣布中共国境内的外国人即使没有中共国的银行账户，也可以使用移动支付程式。信中还写道：“最重要的是，美国奥委会需要与美国国务院、财政部和商务部合作，确保美国运动员的隐私不被中共政府获取。”
 
-格林议员接受国会山报 (The Hill)采访时对此评论说：“推特、脸书和硅谷的其它寡头集团与白宫一道审查美国公民，这是对言论自由的共产主义式攻击。我不会退缩并将继续把真相告诉给美国人。”另外她也反对要求军方人员接种中共病毒疫苗和强制戴口罩。
-
-新闻来源： [Greene gets 12-hour Twitter suspension over COVID-19 misinformation](https://thehill.com/homenews/house/563806-marjorie-taylor-greene-gets-12-hour-twitter-suspension-over-covid-19)
+新闻来源：[Republicans raise concerns about Olympians using digital yuan during Beijing Games](https://thehill.com/homenews/senate/563700-republicans-raise-concerns-about-olympians-using-digital-yuan-during-beijing?rl=1)
 
 0
