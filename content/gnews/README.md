@@ -16,20 +16,20 @@
 
 ---
 
-### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/1/README.md)
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/2/README.md)
+### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/3/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【三票专栏】谈谈叛徒的品位](/content/gnews/3/README.md)
+### [【三票专栏】谈谈叛徒的品位](/content/gnews/4/README.md)
  ` 三票先生`
 
-### [海地面临着混乱的领导人危机](/content/gnews/4/README.md)
+### [海地面临着混乱的领导人危机](/content/gnews/5/README.md)
  ` 闪电侠`
-
-### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【文贵直播摘录】2021年7月18日：世界、中共和爆料革命的最新动态](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
@@ -40,14 +40,14 @@
 ### [郭爆料串珠（322）中共高官的性变态视频，看完你就不想活了](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
-### [【新闻速递】韩国一艘驱逐舰上超过80%的船员Covid-19检测呈阳性](/content/gnews/9/README.md)
+### [【新闻速递】因Covid-19病例持续激增 泰国抗议者与警察发生冲突](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [7月19日美国政要推文精选：美国一直并将继续与古巴人民站在一起，努力推翻古巴共产党 政权](/content/gnews/10/README.md)
- ` 美国政要直译推`
-
-### [加拿大放松边境限制 允许接种疫苗的美国公民于8月9日起可以入境](/content/gnews/11/README.md)
+### [纳瓦罗全文译：拜登将川普疫苗武器化](/content/gnews/10/README.md)
  ` 曹操`
+
+### [【新闻速递】韩国一艘驱逐舰上超过80%的船员Covid-19检测呈阳性](/content/gnews/11/README.md)
+ ` 纽约香草山MOS02`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
  ` 日本东京樱花团`
@@ -88,35 +88,35 @@
 ### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/24/README.md)
  ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [智库报告：中共国是全球限制数据流动最多的国家](/content/gnews/25/README.md)
+### [【秘翻在线】口惠而实不至 拜登对待中共微软骇客事件态度暧昧](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【新闻速递】道指经历了近九个月以来最糟糕的一天](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [日本读卖新闻头版独家报道—中国人留学雪上加霜](/content/gnews/27/README.md)
+ ` 日本东京樱花团`
+
+### [【新闻速递】因Covid-19病例持续激增 泰国抗议者与警察发生冲突](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [挪威：源自中共国的黑客今年3月曾袭击其议会电邮系统](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【新闻速递】韩国一艘驱逐舰上超过80%的船员Covid-19检测呈阳性](/content/gnews/26/README.md)
- ` 纽约香草山MOS02`
-
-### [7月19日美国政要推文精选：美国一直并将继续与古巴人民站在一起，努力推翻古巴共产党 政权](/content/gnews/27/README.md)
- ` 美国政要直译推`
-
-### [【新闻速递】中国被指控对微软Exchange服务器进行网络攻击](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
-
-### [1月6日闯国会的参与者因重罪被判8个月](/content/gnews/29/README.md)
+### [纳瓦罗全文译：拜登将川普疫苗武器化](/content/gnews/30/README.md)
  ` 曹操`
 
-### [新任海地领导人获得国际支持](/content/gnews/30/README.md)
- ` 曹操`
+### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【澳洲热点】短视频：澳美军演展示利器震慑中共国](/content/gnews/31/README.md)
+### [【澳洲热点】短视频：澳美军演展示利器震慑中共国](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【热点播报】美国指责中共国情报人员策划了对微软和其他国家的黑客活动](/content/gnews/32/README.md)
+### [【热点播报】美国指责中共国情报人员策划了对微软和其他国家的黑客活动](/content/gnews/33/README.md)
  ` 纽约香草山MOS03`
 
-### [美国起诉四名中共特工](/content/gnews/33/README.md)
+### [美国起诉四名中共特工](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [西喜时事新闻简报 — 中共病毒篇](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【粤语配音】班农：记住郭文贵对美国和西方的警告](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [英国最大军舰进入印度洋与印度海军进行演习](/content/gnews/43/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年07月19日澳喜要闻（每日更新）](/content/gnews/44/README.md)
- ` 澳喜农场`
-
-### [【枳实】中共病毒、疫苗和杂谈](/content/gnews/45/README.md)
- ` 大废墙`
-
-### [拜登官员认为实验室泄漏理论与自然起源理论一样可信](/content/gnews/46/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【战友心声】谈谈亡腚肛节目的硬伤](/content/gnews/47/README.md)
- ` 纽约香草山MOS03`
-
-### [美与西方国家共同揭露中共网络黑客行为](/content/gnews/48/README.md)
+### [中共威胁对日本使用核武](/content/gnews/43/README.md)
  ` HimalayaRussia`
 
-### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/49/README.md)
+### [【独立观点】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/44/README.md)
+ ` 纽约香草山MOS02`
+
+### [英国最大军舰进入印度洋与印度海军进行演习](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年07月19日澳喜要闻（每日更新）](/content/gnews/46/README.md)
+ ` 澳喜农场`
+
+### [【枳实】中共病毒、疫苗和杂谈](/content/gnews/47/README.md)
+ ` 大废墙`
+
+### [拜登官员认为实验室泄漏理论与自然起源理论一样可信](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【战友心声】谈谈亡腚肛节目的硬伤](/content/gnews/49/README.md)
+ ` 纽约香草山MOS03`
+
+### [美与西方国家共同揭露中共网络黑客行为](/content/gnews/50/README.md)
+ ` HimalayaRussia`
+
+### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/51/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国发布香港商业警告和进一步的制裁措施](/content/gnews/50/README.md)
+### [美国发布香港商业警告和进一步的制裁措施](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国的太空计划比你想象中的更具军事性](/content/gnews/51/README.md)
+### [中共国的太空计划比你想象中的更具军事性](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯批评中（共）国网络攻击威胁安全](/content/gnews/52/README.md)
+### [布林肯批评中（共）国网络攻击威胁安全](/content/gnews/54/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [日本首次在国防报告中提及台湾海峡的稳定问题](/content/gnews/53/README.md)
+### [日本首次在国防报告中提及台湾海峡的稳定问题](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯在关于全球暴行的报告中列举了新疆的虐待行为](/content/gnews/54/README.md)
+### [布林肯在关于全球暴行的报告中列举了新疆的虐待行为](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/55/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [美军增派25架F-22进驻关岛，百架五代匿踪战机云集印太](/content/gnews/56/README.md)
- ` G-NEWS TAIWAN`
 

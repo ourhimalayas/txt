@@ -2,64 +2,42 @@
 ---
 
 
-## 7月19日美国政要推文精选：美国一直并将继续与古巴人民站在一起，努力推翻古巴共产党 政权
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1407655/)
+## 纳瓦罗全文译：拜登将川普疫苗武器化
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1407659/)
 
-参议员泰德·克鲁兹： 美利坚合众国一直并将继续与古巴人民站在一起，努力推翻古巴 [#共产党](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 政权。 通过古巴人的勇气，照亮 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 的黑暗与邪恶，古巴(人民)将获得自由。 [#SOSCuba](https://twitter.com/hashtag/SOSCuba?src=hashtag_click) [#PatriaYVida](https://twitter.com/hashtag/PatriaYVida?src=hashtag_click) [#AbajoLaDictadura](https://twitter.com/hashtag/AbajoLaDictadura?src=hashtag_click) 【附克鲁兹以上言论的视频】
+#### 编译：脐橙君
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19220027/%E5%A8%9C%E5%A8%9C.jpg)图片来源：网络截图
+2020年2月9日，我代表川普总统向白宫冠状病毒特别工作组写了一份备忘录，该备忘录将有助于加速开发目前正在向美国人民提供接种的疫苗的过程。在我最疯狂的梦想中，我从未想过拜登政府会将川普总统疫苗战略变成文化、经济和社会方面控制的武器。
 
+在此，你可以证明——民主党已经尝试这样做了——每个美国人都必须接种疫苗，以免感染其他美国人。作为一名经济学家，我理解这种对他人的积极利益或“积极的外部性”论点。 然而，身在疫苗研发的前线，我也同样明白这一点：现在美国公众使用的疫苗带来的风险并非不可忽视。 其中一些风险我们尚未完全了解。仅就这些点而言，就不应强迫或施压美国公民接种疫苗。
 
+在这里，疫苗接种“护照”可能被用来拒绝我们乘坐飞机旅行，限制我们进入餐馆或体育场馆，将我们的孩子变成他们学校的特例，甚至剥夺我们的工作，这些想法不仅仅是在道德上令人反感，更是糟糕的科学和糟糕的风险管理。
 
-> The United States of America has stood and will continue to stand with the Cuban people as they work to bring down the Communist Cuban Regime.
-> 
-> Through Cubans’ courage, shining a light on the dark evils of communism, Cuba will be freed.[#SOSCuba](https://twitter.com/hashtag/SOSCuba?src=hash&amp;ref_src=twsrc%5Etfw) [#PatriaYVida](https://twitter.com/hashtag/PatriaYVida?src=hash&amp;ref_src=twsrc%5Etfw) [#AbajoLaDictadura](https://twitter.com/hashtag/AbajoLaDictadura?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/JevXSUiyxa](https://t.co/JevXSUiyxa)
-> — Senator Ted Cruz (@SenTedCruz) [July 19, 2021](https://twitter.com/SenTedCruz/status/1417233708797599745?ref_src=twsrc%5Etfw)
+个人选择应该成为我们在这场大流行中的指导原则，这在四个简单的观察中是显而易见的。
 
+首先，疫苗会造成相当大的伤害。副作用范围从发冷、发烧、疲劳、肌肉疼痛和头痛到更严重的血栓、心肌炎症（心肌炎）、心脏内膜炎症（心包炎）、贝尔氏麻痹（面瘫的一种）、格林-巴利综合征、过敏反应和死亡。
 
+其次，这些疫苗是根据紧急使用授权而不是食品和药物管理局的完全批准进行管理的。 完全了解所有可能的副作用需要相当长的时间——长达一年半或更长时间——而且 FDA 本身已经承认在继续进行临床试验时可能出现“严重和意外的副作用”。
 
-参议员兰德·保罗: 5 月份当我问福奇博士对武汉实验室的“功能增强性”研究资助时，他一再否认。然而，根据《信息自由法》发布的电子邮件显示他知道。他不是值得信赖的顾问，需要从权威职位上撤职。 【附[http://townhall.com](https://t.co/njamfL451G?amp=1)报道：福奇在武汉病毒起源一事上撒谎了吗？他都不会现身为自己辩解】
+第三，已经在使用的几种疫苗，都用实验性的“信使核糖核酸”或mRNA技术，这些会出什么问题？谁知道？
 
+第四，也许是最重要的，风险在我们人口的不同分布之间存在显着差异。 例如，60岁以上的人死于该病毒的风险呈指数级上升，而患有肺病或心脏病、糖尿病或肥胖症等严重合并症的人如果被感染，同样面临更高的死亡和严重疾病风险。
 
+显然，老年人和患有严重并发症的个人更有动力接种疫苗，因为他们自身的感染风险和并发症可能显着高于疫苗本身的无关紧要的风险。
 
-> When I asked Dr. Fauci about GOF research funding to a Wuhan lab in May he repeatedly denied it. Yet, emails released under the Freedom of Information Act show he knew. He isn’t a trusted advisor & needs to be removed from a position of authority. [https://t.co/VgQL4mtWuX](https://t.co/VgQL4mtWuX)
-> — Senator Rand Paul (@RandPaul) [July 19, 2021](https://twitter.com/RandPaul/status/1417199576738668555?ref_src=twsrc%5Etfw)
+另一方面，年轻和健康的人可能只会出现中度症状或没有病毒症状，而且死亡风险很小。 对于非常年幼的孩子来说尤其如此——迄今为止，这是一场超越严峻的大流行病的巨大财富之一。
 
+因此，许多父母理性角度看，与其注射具有明显副作用和不确定的长期影响来比较，让他们的孩子冒着被感染的风险并发展自己的自然免疫力，这种方式要好得多。 在这里，必须要说的是：强迫或迫使我们的幼儿接种疫苗无异于强迫他们承担巨大的不必要的风险和成本，以换取对成年人的微小的投机性积极外部利益。这种政府强制授权，赋予了“妇女儿童优先”这句话全新的含义。
 
+影响风险计算的不仅仅是年龄和合并症，被病毒感染的人通常会产生强大的天然抗体和称为记忆T细胞的免疫细胞。这些免疫可能与疫苗产生的任何免疫一样有效（或更多）。
 
-国务卿布林肯： 美国已经加入到全世界其他国家的行列，谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在网络空间不负责任的，破坏性的，不稳定的行为，这对我们的经济和国家安全形成了重大的威胁。（转推发言人普莱斯推文）
+强迫拥有这些抗体的人接种疫苗就是迫使他们承担疫苗接种的风险和成本，同时几乎没有或根本没有增加的额外的免疫效益。如果有这种想法是非常愚蠢的。
 
+让我们再看看民主党拜登政权的讽刺意味，在疫苗接种的决定方面，它绝不是“亲选择”。 川普总统的第二任期永远不会容忍我们现在目睹的暴政和糟糕的科学。
 
+新闻来源：[Biden’s weaponization of the Trump vaccines – Washington Times](https://amp.washingtontimes.com/news/2021/jul/19/bidens-weaponization-of-the-trump-vaccines/?__twitter_impression=true)
 
-> The United States has joined countries around the world in condemning the PRC for its pattern of irresponsible, disruptive, and destabilizing behavior in cyberspace, which poses a major threat to our economic and national security. [https://t.co/y5SWPj98p3](https://t.co/y5SWPj98p3)
-> — Secretary Antony Blinken (@SecBlinken) [July 19, 2021](https://twitter.com/SecBlinken/status/1417103602133479429?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 我不会离开战斗。这些年来我一直在做的事情对我和我的家人来说都很重要，我将继续努力以确保我在美国所拥有的机会，每个人都可以拥有。 【附[http://amestrib.com](https://t.co/Z8UxIup59d?amp=1)文章：美国前国务卿迈克·蓬佩奥在访问艾姆斯时，为共和党人提供选举建议】
-
-
-
-> I'm not going to leave the fight. The things that I've been working on all these years are important to me and to my family, and I'm going to continue to work to make sure that the opportunities that I had here in America are available to everyone.[https://t.co/nVnN3jM0lA](https://t.co/nVnN3jM0lA)
-> — Mike Pompeo (@mikepompeo) [July 19, 2021](https://twitter.com/mikepompeo/status/1417122793888620549?ref_src=twsrc%5Etfw)
-
-
-
-前白宫顾问纳瓦罗： 来自跨国组织 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的最新作品。全世界是时候与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 断绝关系了了。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 将会继续做它一直在做的坏事。美国，盟国指控 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 黑客微软。【转华盛顿邮报同名文章】
-
-
-
-> The latest production from the trans-national organization known as the Chinese Communist Party. It is time for the world to sever the cord with China. CCP will continue to do what it has been doing. 
-> U.S., allies accuse China of hacking Microsoft [https://t.co/v8HKBw3pR2](https://t.co/v8HKBw3pR2)
-> — Peter Navarro (@RealPNavarro) [July 19, 2021](https://twitter.com/RealPNavarro/status/1417116028123889667?ref_src=twsrc%5Etfw)
-
-
-
-国务院发言人内德·普莱斯： 除了对微软交换服务器的入侵之外，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国安部还培育了一个对全球人民和组织有害的犯罪黑客生态系统。今天，我们加入盟友和伙伴的行列，谴责这一不负责任的行为。【转推国务院声明——应对中国在网络空间的破坏稳定和不负责任的行为】
-
-
-
-> Beyond the compromise of Microsoft Exchange Server, the PRC’s Ministry of State Security cultivated an ecosystem of criminal hackers harmful to people and organizations globally. Today, we join allies and partners to call out this irresponsible behavior. [https://t.co/cFIHJwT58R](https://t.co/cFIHJwT58R)
-> — Ned Price (@StateDeptSpox) [July 19, 2021](https://twitter.com/StateDeptSpox/status/1417103178181627908?ref_src=twsrc%5Etfw)
-
-
+（本文仅代表作者个人观点）
 
 0
