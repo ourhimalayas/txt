@@ -2,43 +2,31 @@
 ---
 
 
-## 【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1408000/)
+## 东京奥运会开幕式作曲担当小山田圭吾宣布辞职
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1408129/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+撰稿：东京樱花团/待命（文晓）
 
-#### 翻译：奮鬥
+校对：东京樱花团/喜马拉雅的微尘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20022623/asdf.png)
+[图片来源](https://sunnews.cc/international/291367.html)
 
-#### 校对/编辑：文泓
+7月20日，日本雅虎网站头版发表文章称：
 
-#### 听写核对：枳实
+小山田圭吾表示：承认曾有过欺负人的行为，辞去东京奥运会开幕式作曲担当职务。在日本引起骚动。
 
-#### 视频字幕：七彩光
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20013124/%E9%BB%91%E5%AE%A2.png)
-图片来源：WIRED
+小山田圭吾，是东京奥运会开幕式的一位作曲家。７月19日他承认自己在学生时代曾欺负过别人，因此宣布辞职。
 
-背景介绍：
+对此奥运组委会主席桥本女士在20日上午接受采访时表示：非常抱歉！真希望自己能早点知道这件事。感到遗憾的是，我没能更早地采取措施，我们必须尽一切努力来控制局面。
 
-2015 年11月16日，G20会议的领导人发布公报，任何国家都不应为了为公司或商业部门提供竞争优势而通过 信息通讯技术（ICT ）窃取知识产权，包括商业秘密或其他机密商业信息，承诺不进行网络经济间谍活动。中共国是会议成员国之一。2021年7月19日澳洲与西方盟国集体谴责中共以国家行为对世界各国组织黑客实施网络攻击，中共国网络超限战的黑幕正在揭开。
+至于小山田圭吾的后任，她说还没有想好。但因为离赛开幕已没有多少时间了，所以必须一如既往的去努力工作。
 
-视频翻译：
+关于小山田圭吾的辞职，东京都知事小池说：奥运会的初衷是促进和谐和多样性。从这个角度看，我认为奥运会的举办应该考虑人权问题。有必要使奥运会成为每个人都能充分理解这些问题的盛会。
 
-澳大利亚政府正与美国和英国的盟友一起指控北京对微软的软件（漏洞）实施了重大的网络攻击。
+[信息来源](https://news.yahoo.co.jp/articles/2457c94f5b2615feba0e0011e4d6de91cd4e6f8d?tokyo2020)
 
-据称，中共国家行为黑客破坏了包括澳大利亚在内的世界各地的40万台服务器。内政部长、国防部长和外交部长昨晚发表了一份联合声明，他们还与国际伙伴一起谴责了这些活动。
+（文章仅代表作者个人观点）
 
-这些行动已经破坏了国际稳定和安全，为一系列其他行为者打开了大门，包括继续利用这一漏洞获取非法利益的网络犯罪分子。澳大利亚呼吁包括中共国在内的所有国家在网络空间负责任地行事。
-
-中共国必须遵守它在G20会议上做出的承诺，并在双边范围内，不以网络为手段盗窃知识产权、商业秘密和机密商业信息，以获得竞争优势。
-
-这一史无前例的行动是与美国、英国、新西兰、加拿大和欧盟的盟友协商一致的。拜登政府还承认，中共的国家行为黑客攻击对美国及其盟国的利益构成了重大威胁。
-
-**原文链接：**[Australian government accuses China of state-sponsored hacking | Sky News Australia](https://www.skynews.com.au/world-news/china/australian-government-accuses-china-of-statesponsored-hacking/video/ce4f6d183050c3d96784b350b4b35457)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-+1
+发布：东京樱花团/tdownc2p
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
++2
