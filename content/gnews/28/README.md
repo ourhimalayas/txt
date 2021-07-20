@@ -2,57 +2,20 @@
 ---
 
 
-## 【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407722/)
+## 【秘翻在线】变种中共病毒感染突增 美医生呼吁强制室内口罩
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407798/)
 
-翻译：纽约香草山健身部 Ivy001
+#### 撰稿：喜相逢
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19230944/abc.jpg)
+据《纽约邮报》（New York Post）报道， 来自美国丹佛（Denver）的一位急诊室医生萨森（Comilla Sasson）呼吁重新实施室内口罩的规则， 因为最新中共病毒变体Delta 正在推动疫情的全面爆发， 人们必须改变应对方法来保证每个人的安全， 即使这种改变对于人们来说很难接受。
 
+这位医生说， 关于疫情的数据正在发生变化。 高传染性的Delta 病毒已经在丹佛州占据了90%的病例。美国疾控中心（Centers for Disease Control and Prevention）的提供的数据为大约97%的住院患者是未接种疫苗的人，但萨森医生说， 根据最新了解，以及在美国各地的情况， 目前正在出现的感染 Delta 病毒的病例，基本上是已接种中共病毒疫苗的人。 萨森医生强调称， 接种疫苗者感染中共病毒后虽然只有轻微症状， 但是会在不知不觉中传播病毒。
 
+综上， 萨森医生和美国维韦克·穆尔西博士（Dr. Vivek Murthy）表示， 室内通风条件不好， 易于中共病毒的传播， 他们认为美国各州可能会重新实施室内带口罩等更多的缓解措施以应对 delta 病毒的涌现及爆发。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+CCP 通过病毒正在微妙地改变世界，从没有口罩到全部室外戴口罩， 再到室内也要口罩，呼吸自由成了一种奢侈。所谓的疫苗根本无法抵挡一波又一波的病毒变异， 唯有查找病毒真相、消灭中共，才能让世界重回正道。
 
-
-
-新闻来源：REUTERS
-
-新闻链接：[U.S. issues ‘Do Not Travel’ advisory for UK over COVID-19](https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-raises-covid-warning-travelers-united-kingdom-2021-07-19/)
-
-译文：
-
-华盛顿，7月19日（路透社）——因为英国的COVID-19病例数量不断上升，美国国务院和美国疾病控制和预防中心（CDC）周一对前往该国的旅客发出了最高警告。
-
-![]()![](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/GR45FFD77VK7XPEYZB2EGG5RBI.jpg)图片来源：REUTERS/Tami Chappell
-
-两者都将前往英国的旅行提高到了“四级”，告诉美国人应该避免去那里旅行。疾病预防控制中心在一份通知中说：“如果你必须前往英国，请确保你在旅行前充分接种疫苗。”而国务院则说，“由于COVID-19，请不要去英国旅行。”
-
-此前在5月份，美国政府曾将英国旅行降至“3级”——咨询评级。现在，美国政府再次将英国旅行提高到“四级”——警告评级。
-
-美国自2020年3月起禁止几乎所有最近停留英国的非美国公民进入美国。英国则允许美国人访问，但要求在抵达时进行10天的隔离，并进行两次COVID-19测试。
-
-拜登政府于6月表示，美国正在与英国、加拿大、墨西哥和欧盟组成专家工作组，以确定在一年多的限制之后，如何更好地重新开始安全旅行。
-
-美国和航空公司官员预计，对英国旅客的限制最早要到8月才能解除——并警告说可能会进一步推后。
-
-航空公司和其他机构已经向政府施加压力，要求解除对在过去14天内去过英国、欧洲26个没有边境管制的申根国家、爱尔兰、中国、印度、南非、伊朗和巴西的大多数非美国公民的入境限制。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+新闻来源：[Denver doctor calls for indoor mask mandates over COVID breakthrough cases](https://nypost.com/2021/07/19/denver-doctor-calls-for-indoor-mask-mandates-over-breakthrough-cases/)
 
 0

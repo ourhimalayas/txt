@@ -16,20 +16,20 @@
 
 ---
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/1/README.md)
+### [美国、欧盟、英国、北约谴责中共网络黑客攻击](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/2/README.md)
+### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/3/README.md)
+### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/4/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【三票专栏】谈谈叛徒的品位](/content/gnews/4/README.md)
+### [【三票专栏】谈谈叛徒的品位](/content/gnews/5/README.md)
  ` 三票先生`
-
-### [海地面临着混乱的领导人危机](/content/gnews/5/README.md)
- ` 闪电侠`
 
 ### [7.16文贵先生盖特要点](/content/gnews/6/README.md)
  ` 左媛专栏`
@@ -70,40 +70,40 @@
 ### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【澳洲热点】短视频：澳美军演展示利器震慑中共国](/content/gnews/19/README.md)
+### [【有声读物】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [【有声读物】2021年7月16日：中共预谋重演尼克松时刻失败](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [【有声读物】2021年7月17日：世界上最难的是对善恶的判断和认知](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [【有声读物】美国和欧盟领导人警告：人工智能规则必须由民主国家制定](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [【澳洲热点】短视频：澳美军演展示利器震慑中共国](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [查理·柯克: “任何人都不应违背自己的意愿被迫接种疫苗。”](/content/gnews/20/README.md)
+### [查理·柯克: “任何人都不应违背自己的意愿被迫接种疫苗。”](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [参议员罗恩·约翰逊: “福奇博士很多解释工作要做，中共国政府也是如此。”](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/07/19-001 大卫作战室直播精要](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [古巴妇女揭露古巴政权有多邪恶](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/24/README.md)
- ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
-
-### [【秘翻在线】新冠之霾难消 道指创 9 个月来最大跌幅](/content/gnews/25/README.md)
+### [【秘翻在线】内蒙古呼伦贝尔水库溃坝 新华网和人民网却睁眼瞎](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】拜登说：中共国政府有可能在包庇甚至协助罪犯](/content/gnews/26/README.md)
+### [【秘翻在线】新冠之霾难消 道指创 9 个月来最大跌幅](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】变种中共病毒感染突增 美医生呼吁强制室内口罩](/content/gnews/27/README.md)
+### [【秘翻在线】拜登说：中共国政府有可能在包庇甚至协助罪犯](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/28/README.md)
+### [【秘翻在线】变种中共病毒感染突增 美医生呼吁强制室内口罩](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [【秘翻在线】戴薇夫人可不一般！](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】Ben &amp; Jerry&#8217;s 因抗议活动停止在约旦河西岸销售冰淇淋](/content/gnews/30/README.md)
+### [【秘翻在线】戴薇夫人可不一般！](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [柯达IG发新疆照片提大规模囚禁 遭中共和小粉红围攻](/content/gnews/31/README.md)

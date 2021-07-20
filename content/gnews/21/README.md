@@ -2,94 +2,47 @@
 ---
 
 
-## 参议员罗恩·约翰逊: “福奇博士很多解释工作要做，中共国政府也是如此。”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1407357/)
+## 【有声读物】2021年7月17日：世界上最难的是对善恶的判断和认知
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1407853/)
 
-**字幕内容：**
-Lyndsay Keith (Newsmax host)
-林赛·基思（Newsmax 主持人）
+录音：教育部 蒙古鸿雁
 
-One of the things that you got to wonder
-你必须想知道的事情之一
+音频处理：喜山必胜Maverick
 
-and I want to go back to Sean and I talked about before the fact
-我想回到肖恩和我以前谈过的事实
+1、 回看爆料革命四年：病毒、香港、新疆大屠杀、海航、王建之死、中国的整个经济、蓝金黄、3F方案、13579计划、对美国的渗透、中概股的崩塌、华人在海外的安全及生存危机。现在，中国孩子的海外留学之路被中共基本毁掉，所有知名的中国企业，如恒大、民生、盛京等，管理层基本都完蛋了。
 
-that we don’t have answers from China
-我们没有来自中共国的答案
+2、最近国安委成立特大案专案组，目的是为了抓谁？无非是抓孟建柱、曾庆红、江泽民、韩正等上海帮。没有爆料革命国内战友无私地、冒着生命风险地付出，我们不可能有这些情报。
 
-and now you have the chief of the World Health Organization saying
-而现在世界卫生组织的负责人说
+3、世界上最昂贵的就是真相，最难的就是对善恶的判断和认知。
 
-we need more transparency from China,
-我们需要要求中共国提供更高的透明度
+4、以毒灭共是我们爆料革命最早提出的，如果没有媒体、没有政治关系、没有背后的庞大的运作和公关，“蛇妖闫”的三份报告不可能挂上网，也不可能灭共。
 
-they didn’t get it in that first review report that came out
-他们没有在第一份审查报告时提供需要的透明度
+5、文贵对灭共有1000%的信心，但是，让中国14亿人都能明辨是非、分清善恶则没有那么大信心。
 
-are we going to get answers from China?
-我们会从中共国得到答案吗？
+6、在2020年有G系列之前，文贵都是往外给钱，给了很多钱出去，没有一个说感恩、说公平话的——换一个人都不会坚持下去。
 
-are we ever going to figure out the true origins?
-我们会找出真正的起源吗？
+7、中国人一听说哪个领导被抓，周围人全都投案自首，即出卖领导，没有忠诚可言。相反，盘古和裕达的员工以及方正海通的管理层都绝对忠诚，从未放弃，文贵引以为荣。
 
-Senator Ron Johnson
-参议员罗恩·约翰逊
+8、中国人种没问题，是共产党的病毒文化把中国人变质了。只要中国有了法治、文明和对世界的认知，人能够打开眼睛、打开耳朵，听到不同的声音，就能像香港、新加坡一样，成为世界人种的圣地。
 
-I doubt you’ve had 18 months to destroy
-我对此持怀疑态度，中共有18 个月的时间来毁灭
+9、战友们不要抱怨，谁都不是神，要把自己做好。
 
-whatever evidence once existed
-任何曾经存在的证据
+发布：奇门遁甲
 
-but we know that China is guilty of that
-但我们知道中共国是有罪的
+原文链接：
 
-they allowed airplanes and travel outside of Wuhan
-他们允许飞机离开武汉
+[【文贵盖特摘录】2021年7月17日：世界上最难的是对善恶的判断和认知](https://gnews.org/zh-hans/1403364/)
 
-to infect the rest of the world
-去感染世界其他地方
+**更多资讯，更多关注**
 
-but not within China itself.
-但飞机不可以飞往中共国境内其他地区
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-So they knew there was a real problem there
-所以他们知道那是个大危机
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-and again they infected the world they allowed that to happen,
-然而，他们选择感染世界，他们允许这种情况发生
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-they weren’t transparent, but let’s face it,
-他们并不透明，但让我们面对现实
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-Dr. Fauci was involved in that cover up.
-福奇博士参与了掩盖真相
-
-We’ve asked him we’ve demanded the full unredacted emails
-我们已经问过他，我们要求提供完整未编辑的电子邮件
-
-that really kind of point to that cover up as well
-这些邮件真的揭示那些真相的掩盖
-
-so Dr. Fauci has an awful lot of explaining do
-所以福奇博士有很多解释要做
-
-as does the Chinese government
-中共国政府也是如此
-
-**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-**原视频链接 **:[https://twitter.com/newsmax/status/1416261382371221504?s=24](https://twitter.com/newsmax/status/1416261382371221504?s=24)
-英听校：洛杉矶盘古农场- Layka
-翻译：洛杉矶盘古农场- Layka
-翻译终校：洛杉矶盘古农场- Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片： 洛杉矶盘古农场-银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02180522/ca1affbb-9efa-40ff-ab92-f03507874447.jpg)
 
 0

@@ -2,72 +2,60 @@
 ---
 
 
-## 查理·柯克: “任何人都不应违背自己的意愿被迫接种疫苗。”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1407386/)
+## 【有声读物】2021年7月16日：中共预谋重演尼克松时刻失败
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1407863/)
 
-**字幕内容：**
-Charlie Kirk (American Activist)
-查理 柯克（美国活动家）
+录音：教育部 蒙古鸿雁
 
-In a last couple of weeks we have started to see
-在过去的几周里，我们开始看到
+音频处理：喜山必胜Maverick
 
-people start to falter in on this idea of reopening America
-人们开始对重新开放美国的想法犹豫不决
+发布：奇门遁甲
 
-now I want to be very clear as we’re here
-现在我想说得很清楚，正如我们在这里
+1、美军机降落台湾。昨天在台海，中美潜水艇差点儿PK。
 
-with thousands and thousands of people here in this room
-在这个房间里有成千上万的人
+2、世卫组织（WHO）谭德赛、美国CDC及欧洲疾病预防控制中心（ECDC）召开紧急会议，研究中共病毒。
 
-locked downs might be coming again to America
-封锁可能会再次来到美国
+3、已将“蛇妖闫”的三份报告从网站下架。当初能上架是因为七哥和爆料革命，能让你上，也能让你下。没有你，以毒灭共只能飞速前进。
 
-we can’t never allow America to be locked down again
-我们永远不能让美国再次被封锁
+4、爆料革命、新中国联邦的力量不是你“蛇妖闫”，  是背后千千万万个战友和勇敢站出来的真正参与实验室制造病毒的科学家和政府官员。这是谭德赛、美国、欧洲、日本、北欧，甚至俄罗斯都必须面对的现实，那是铁证。
 
-we will never tolerate lockdowns again in our country
-我们永远不会再容忍我们国家的封锁
+5、一定会将“蛇妖闫”送回香港，一定撤回对其政庇的申请。其丈夫如何到美国的他本人会向美国政府交代，看到底是不是七哥给弄来的。
 
-and you see in Los Angeles
-而且你看到在洛杉矶
+6、接下来对中共会有一系列的制裁，拜登的灭共会更快、更具体。
 
-there are already reinstituting the mask mandate
-已经恢复了强制戴口罩的命令
+7、彭佩奥是当今世界上灭共的最大力量、最大杀手，也最坚定。他是美国近几十年最优秀、最资深的外交管。他最大的贡献就是法定化灭共，把中共定义为种族大屠杀和反人类罪。
 
-and in fact,
-而且事实上
-not a fan
-不是粉丝
+8、美国不仅会对香港官员制裁，还会有很多民主党人士跟我们站在一起。看看未来90天会发生什么，到时候大家会知道，这四年来究竟是什么人跟我们一起灭共——连共产党都无法想象，大家到时候会恍然大悟。
 
-in fact Turning Point USA
-事实上美国转折点
+9、国内房地产供需关系出现大问题，社会资金流动性出现大问题。
 
-we’re very proud to be the first and only organization
-我们很自豪能成为第一个也是唯一的一个组织
+10、中共花了近两个月的时间游说所有人，希望在中美之间出现一个尼克松时刻。所有高人都出来了，代表基辛格的是默克尔，但是她失败了，共产党遭到重挫。
 
-to launch an effort to defend each every one of you
-发起努力捍卫你们每一个人
+11、默克尔是绝对的共产主义，她把德国带入了未来200年都回不来的路。德国有三个弱点：
 
-to make sure you are not mandated to get a vaccine against your will on college campus
-确保你不被强制要求在大学校园内违背你的意愿接种疫苗
+- 信息互联网时代，德国的信息产业与非洲差不多；
+- 大量GDP没跟上现代的、后工业化的环保以及绿色现代材料的工业革命，以后只能买其他国家的东西。
+- 大量产业移向中共，帮中共升级工业，将中共变成德国最大的竞争者。德国成了西方共产主义传播的平台。德国犯下二战时期的错误，中共倒下时一定会带走德国。
 
-no person should ever be forced to get the vaccine against their will
-任何人都不应被迫违背自己的意愿接种疫苗
 
-**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
+12、没有人能阻止新中国联邦代表中国人民。
 
-**原视频链接:** [https://twitter.com/realamvoice/status/1416522468848668674?s=24](https://twitter.com/realamvoice/status/1416522468848668674?s=24)
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场–青梅煮酒
-审片：洛杉矶盘古农场：– 银龙
-发布 : 洛杉矶盘古农场 ：– 彩虹 Rainbow
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+原文链接：
+
+[【文贵盖特摘录】2021年7月16日：中共预谋重演尼克松时刻失败](https://gnews.org/zh-hans/1403134/)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02180522/ca1affbb-9efa-40ff-ab92-f03507874447.jpg)
 
 0
