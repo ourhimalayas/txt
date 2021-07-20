@@ -18,6 +18,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/20/2021 11:38 PM (UTC)`
+
+尊敬的战友们好，马上开始乱聊直播……
+![img](https://media.gettr.com/group50/getter/2021/07/20/23/e5d85af0-ab2f-7df3-642f-ce3f53e09104/4b3f93e7a8f8a77ed1a16a84bbfca3e9.jpg)
+
+---
+
+`@miles 7/20/2021 11:32 PM (UTC)`
+
+7月20号：下午7点半左右．尊敬的战友们好，你们健身了吗？想不想七个马上开始乱聊直播呀……
+![img](https://media.gettr.com/group33/getter/2021/07/20/23/455612e5-9997-657e-3261-01c2f57581ed/out.jpg)
+
+---
+
 `@miles 7/20/2021 11:09 PM (UTC)`
 
 蛇妖闫与谁一起逃跑了呀？二
@@ -298,19 +312,6 @@ Welcome to the great @steveguest!<br/><br/>https://www.gettr.com/user/steveguest
 
 七月十七号：尊敬的战友们好．新中国联邦灭共后．未来最大的挑战之一……就是让中国人有基本的辨别善恶的能力。<br/>共产党的内部的政治斗争……已经到了最后的阶段……准备好中南城的老杂毛们……随时给我们送大礼吧！一切都已经开始
 ![img](https://media.gettr.com/group18/getter/2021/07/17/14/8f35d5d9-b645-a08a-120f-2de5ab8a322e/out.jpg)
-
----
-
-`@miles 7/17/2021 11:04 AM (UTC)`
-
-7月17号：👉👉👉这个采访太有意思了……这将是一个繁忙的星期六啊，可能发生很多事情的，重要的星期六．又是一个．717……
-![img](https://media.gettr.com/group24/getter/2021/07/17/11/7f5df6d9-25b4-eb29-e530-6b1ff55f90d9/out.jpg)
-
----
-
-`@miles 7/17/2021 2:37 AM (UTC)`
-
-兄弟姐妹们，明天7月17号．别忘了看安红妹妹的节目啊，明天7哥将搬着板凳看《安红有话要说。》<br/><br/>https://www.gettr.com/post/p4dva8
 
 ---
 

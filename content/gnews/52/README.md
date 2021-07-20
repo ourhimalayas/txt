@@ -2,36 +2,55 @@
 ---
 
 
-## 【樱花宅急便】美军机三度降落台湾 中共党卫军给予“高口炮”回击
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1409703/)
+## 【鹰眼墙国】房价上涨，销售面积显增，房价“如此”管控？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1409794/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/B82JFNsBEfryhXYkYsS00EmN2aIjjT51-F1Q7obkF0BqWQs2vyR2ARYD7cYXpL1lBEYbbvlB4w-_kzbUY8myQz4zqJu7KmLkVEck2jt0XaJwtf_Zo4nhZ-P0QEOJTbH6_k3i1O5J)
-[*图片来源*](https://static.dw.com/image/55180702_403.jpg)
-
-据中共国参考消息题为《外媒：美军机频降台湾  解放军台海展开军事训练》消息援引新加坡《联合早报》网站7月19日的报道称：“美国军机上周再度降落台湾。”
-
-该消息说，中国海事局网站发出警告称，“浙江台州头门港码头附近海域7月18日起至8月3日开展军事训练，禁止驶入；渤海海峡黄海北部，也从18日起至8月1日执行军事任务，禁止驶入。”
-
-- *延展阅读：*[*美国海军战舰“闯入”中国航空母舰“辽宁”号编队*](https://www.bbc.com/zhongwen/simp/world-56912687)
-- *延展阅读：*[*辽宁号怎么了？盛传海上定点停留一天*](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/hx1-04162021082954.html)
+香草山写作组  鹰(文言)
 
 
-据该消息证实，美军机飞抵中共国宣称红线地区台湾——中华民国已不止一次，“此前，一架美军C-146A“猎狼犬”专机从驻日美军冲绳基地起飞，降落台北松山机场并短暂停留。”
 
-对此，中国国防部当天严正警告，“美方切勿玩火、立即停止冒险挑衅行径”。发言人吴谦称：“台湾是中国领土神圣不可分割的一部分。任何外军飞机降落我领土都必须经中华人民共和国政府许可。”对擅闯我领空的行为，“都将引发严重后果。”
-
-而早在2017年，中国驻美公使宣称：“[美舰抵达高雄之日即解放军武统台湾之时](https://www.voachinese.com/a/voanews-20171209-us-taiwan-china-military/4156647.html)”。实际上，今年6月份，中共更为著名的“口炮”威胁称：“美军机在台起降「台海战争就此打响」 ”而C-17军机今降落松山机场，北平无战事。
-
-- *阅读延展：*[*中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃*](https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn)*”。*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
 
-对美军高烈度军事行动，中共底线究竟在哪里？就此问题，也许德国之声中文网给出了很好的答案，“[接下来就是行动了](https://www.dw.com/zh/%E6%8E%A5%E4%B8%8B%E6%9D%A5%E5%B0%B1%E6%98%AF%E8%A1%8C%E5%8A%A8%E4%BA%86-%E4%B8%A4%E6%9C%88%E5%85%A7%E4%B8%89%E6%9E%B6%E7%BE%8E%E5%86%9B%E6%9C%BA%E9%99%8D%E8%90%BD%E5%8F%B0%E6%B9%BE/a-58442511)“? 两月內三架美军机降落台湾。” 对此问题，各界十分关注，灭共者郭文贵先生盖特评论称：“[共产党你完了。习近平政权“可能很快崩溃](https://www.gettr.com/post/p4lz7f)。”
 
-至于中共党卫军-解放军究竟如何应对，中国网民替中共党卫军给出很好的解答。“微博上的网民对此调侃，“行动？行动就是继续警告”、“就算来了军机，也有别的说词。就算F35来了降落，还是有套说词，就是警告或严重警告，没有啥事。”
+新浪网7月19日转载中国新闻网消息，中共北京2021年上半年商品房销售面积为488.7万平方米，同比2020年上涨65%，两年平均涨幅达12.3%。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / tdownc2p*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
+2020年北京商品房销售面积970.9万平方米（同比增加3.4%），其中住宅面积733.6万平方米，同比下降7%，而办公楼和商业营业用房销售面积分别同比增加37.1%、62.8%。也就是说，在“房住不炒”政策下，北京的“保障性住房”面积缩水，而用于谋取“暴利”的办公楼和商业用房却在猛增。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20155841/Screen-Shot-2021-07-20-at-3.48.18-PM.png)
+进入2021年后，中共北京接连发布放假管控措施。不但通过集中供地来限制土地买卖，更有约谈房产中介和严禁“炒房”舆论等“祸水东引”的政策。然而，房价依旧高涨，北京6月份二手房均价除西城（同比下降3.5%）、房山（2.14%）、通州（1.52%）、平谷（1.9%），其他区均呈上涨趋势，其中海淀区涨幅最高达8.15%，6月份新房价格与2020年大致持平。由于物价的上涨，居民收入水平变相缩水。房价的持平和上涨都对应着“房价调控”政策的无效化。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20155831/Screen-Shot-2021-07-20-at-3.48.22-PM.png)
+再者，虽然中共政府有各种房价“调控措施”，更有“一地一策”和“逢涨必查”的高压，但全国范围内借由学区房炒作的现象依旧层出不穷，在中共垄断教育资源的现状下，配套的学区房追捧热度只增不减。2021年7月份，北京西城区学区房“暴跌”引发热议，根据政策“2020年7月31日后西城区取得房屋所有权的家庭，适龄儿童入小学不再登记为划片学校，而采取多校划片方式就近入学”，至此，中共完成了炒作学区房助推房价上涨后的民众接盘。在中共政府的有意助推下，学区房成为收割部分群体的有力工具。普通房屋的价格上涨趋势和销售面积的“暴涨”也揭示出中共利用房地产抢夺民财的企图。房价管控只是收割民意的牌坊，更何谈彻底抑制房价了。
+
+新闻来源：
+
+上半年北京商品房销售面积同比增加65%https://news.sina.com.cn/c/2021-07-19/doc-ikqcfnca7799800.shtml
+
+北京西城落地史上“最狠”学区房政策，有业主一天降价40万https://www.163.com/dy/article/GE34VFCT0519D3BI.html
+
+快讯｜北京市统计局：2020年全市住宅销售面积733.6万平方米 同比下降7%https://estate.caijing.com.cn/20210120/4733011.shtml
+
+浪尖上的北京学区房 有房主连夜降价80万https://www.163.com/money/article/GE5OV1OV002580S6.html
+
+5家房地产中介被约谈，北京：逢涨必查、逢炒必办https://bj.house.163.com/21/0204/08/G1VRF3LA000782A4.html
+
+北京6月房价出炉！看看您家涨了还是跌了？https://new.qq.com/omn/20210611/20210611A0AXVV00.html
+
+北京房价四连跌，北京楼市调控成功，最新北京楼市数据出炉https://new.qq.com/omn/20210503/20210503A02LHA00.html
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
 0

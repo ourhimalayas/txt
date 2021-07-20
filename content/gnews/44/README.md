@@ -2,21 +2,49 @@
 ---
 
 
-## 2021.07.20 Zhengzhou Was Hit by Floods
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1409761/)
+## 美国机构发出警告，中共国为窃取机密进行“侵略性”黑客活动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1409891/)
 
-July 20, 2021
+**据《Cyberscoop.com》作者：Sean Lyngaas，2021 年 7 月 16 日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20191503/flag-china.png)
+**根据《 CyberScoop》 获得的美国政府评估，中共国政府支持的黑客对知识产权的猖獗欲望是“对美国和盟国网络空间资产的重大威胁”。**
 
-2021.07.20 Zhengzhou was hit by floods, and the people suffered heavy casualties.
+美国国家安全局、联邦调查局和国土安全部网络机构的分析警告说，与北京有联系的黑客仍在“积极”瞄准美国及其盟国的国防、半导体公司、医疗机构和大学，以窃取敏感的企业数据和个人身份信息。
 
-* * *
+该咨询提醒人们，尽管拜登政府对设在俄罗斯的勒索软件团伙给予了高度关注，但中共国政府支持的黑客活动仍然对美国利益构成巨大威胁。该文件计划在未来几周内公开发布，最快可能在周一发布。
 
-- [Click here to read more articles in G-News](https://gnews.org/author/himalaya_hawk/)
-- [Click to watch the exciting video on G-TV](https://gtv.org/user/5ee680a45bd6f123dd104807)
+“美国国家安全局、[网络安全和基础设施安全局]和联邦调查局观察到，中共国政府支持的针对美国政治、经济、军事、教育和[关键基础设施]人员和组织的网络活动越来越复杂，”该咨询报告说，“这些网络行动支持中共国的长期经济和军事发展目标。”
+。
+该咨询称，中共国政府支持的黑客热衷于掩盖他们的踪迹，并密切关注网络安全行业追踪他们的努力。根据评估，黑客轮流使用虚拟专用服务器并使用“小型办公室和家庭办公室路由器”来避免检测。
 
+该咨询是美国与私营部门、州和地方政府分享外国黑客技术细节的反复努力的一部分，以便组织可以采取防御措施。目标是削弱代表中共国、俄罗斯、伊朗和其他国家的国家支持的黑客进行网络间谍活动的影响。
 
-Edited by：【Himalaya London Club UK】
+分析人士称，中共国尤其是美国的经济竞争对手，利用其黑客实力获得战略优势。 2015 年，奥巴马总统和中共国国家主席习近平一致认为，两国都不会“明知故犯地支持通过网络窃取知识产权”。虽然分析人士一直在争论中共国是否遵守了该协议的内容，但有证据表明，与中共国国家有关联的黑客继续从跨国公司窃取敏感数据。
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+根据跨部门分析，中共国黑客往往会在流行软件的缺陷公之于众后不久就在互联网上搜索易受攻击的设备。该文件称，他们有时会使用公开可用的“概念证明”黑客工具来利用该软件。
+
+例如，今年 4 月，美国安全公司 FireEye 曝光了一项涉嫌中共国窃取美国和欧洲政府组织以及交通和电信部门的数据的活动。攻击者闯入流行的虚拟专用网络软件 Pulse Connect Secure 钻入网络。
+FireEye 总结道：“中共国的网络间谍活动表现出更高的风险承受能力，并且比之前描述的更少受到外交压力的限制。”
+
+半导体行业——全球智能手机市场的关键一直是可疑的中共国黑客特别感兴趣的行业。据台湾公司 CyCraft 称，其中一项活动试图在 2018 年和 2019 年从台湾半导体行业的多家供应商那里窃取源代码。
+
+中共国驻华盛顿大使馆发言人刘鹏宇否认了美国政府咨询中的指控。
+“中共国是网络攻击的最大受害者之一，也是网络安全的坚定支持者。”刘在一封电子邮件声明中说，“中方坚决反对任何形式的网络攻击和网络犯罪，一直在与之斗争。”
+
+该警告只是美国关注涉嫌中共国黑客行为的最新例子。微软在 3 月份透露，据称中共国间谍利用 Exchange Server 软件中的关键缺陷从美国组织窃取电邮收件箱。这些漏洞暴露了数以万计的美国组织，将黑客与出于经济动机的犯罪分子区分开来。
+拜登政府尚未公开将黑客行为归咎于任何外国政府。
+美国家安全委员会发言人没有回应就此事发表评论的请求。
+2021 年 7 月 17 日更新：这个报道已经根据中共国驻华盛顿大使馆的声明进行了更新。
+
+**原文连接：**[https://www.cyberscoop.com/china-hacking-fbi-biden-alert-ip/](https://www.cyberscoop.com/china-hacking-fbi-biden-alert-ip/)
+
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
