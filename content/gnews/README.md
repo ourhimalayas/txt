@@ -70,23 +70,23 @@
 ### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021/07/18 中共国拒绝美国副国务卿的访问提议](/content/gnews/19/README.md)
+### [河南登封铝厂大爆炸像极了天津塘沽8.12大爆炸](/content/gnews/19/README.md)
+ ` 澳喜农场`
+
+### [2021/07/18 中共国拒绝美国副国务卿的访问提议](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/18 谭德塞改口，病毒可能来自实验室泄漏](/content/gnews/20/README.md)
+### [2021/07/18 谭德塞改口，病毒可能来自实验室泄漏](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/17 蓬佩奥：没有信仰的国家挑战敬畏上帝的国家](/content/gnews/21/README.md)
+### [2021/07/17 蓬佩奥：没有信仰的国家挑战敬畏上帝的国家](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/16 世卫承认排除新冠来自中共实验室是个错误](/content/gnews/22/README.md)
+### [2021/07/16 世卫承认排除新冠来自中共实验室是个错误](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/17 世卫承认存在病毒实验室泄漏的可能性](/content/gnews/23/README.md)
+### [2021/07/17 世卫承认存在病毒实验室泄漏的可能性](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【有声读物】论天国的仇敌:世界的主是谁？](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [【秘翻在线】震惊：媒体披露针对全球政客、活动家和记者的网络间谍武器被滥用](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [【中共国段子】密集恐惧症](/content/gnews/43/README.md)
+### [【中共国段子】绿色贝雷帽（3）](/content/gnews/43/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [天堂之路不走 地狱之门勇敲](/content/gnews/44/README.md)
+### [【中共国段子】密集恐惧症](/content/gnews/44/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [“计划生育”的必要性](/content/gnews/45/README.md)
+### [天堂之路不走 地狱之门勇敲](/content/gnews/45/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [“计划生育”的必要性](/content/gnews/46/README.md)
  ` 澳喜农场`
 
-### [拜登指责中共国保护黑客](/content/gnews/46/README.md)
+### [拜登指责中共国保护黑客](/content/gnews/47/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十九）](/content/gnews/47/README.md)
+### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十九）](/content/gnews/48/README.md)
  ` RU WEI`
 
-### [中共国疫苗的失败](/content/gnews/48/README.md)
+### [中共国疫苗的失败](/content/gnews/49/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【雅典娜诗集】亡命腚缸](/content/gnews/49/README.md)
+### [【雅典娜诗集】亡命腚缸](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [关键时候还得小蔡](/content/gnews/50/README.md)
+### [关键时候还得小蔡](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [比谁快](/content/gnews/51/README.md)
+### [比谁快](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [东京奥运会开幕式作曲担当小山田圭吾宣布辞职](/content/gnews/52/README.md)
+### [东京奥运会开幕式作曲担当小山田圭吾宣布辞职](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击](/content/gnews/53/README.md)
+### [【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/54/README.md)
+### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/55/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [【独立观点】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/55/README.md)
+### [【独立观点】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/56/README.md)
  ` 纽约香草山MOS02`
-
-### [英国最大军舰进入印度洋与印度海军进行演习](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

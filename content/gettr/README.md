@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/20/2021 10:59 AM (UTC)`
+
+所有的战友都应该看，并应该转给所有的亲人和朋友的视频！
+![img](https://media.gettr.com/group43/getter/2021/07/20/10/ffe01917-e329-1292-ce3b-62fcd4e05a1c/out.jpg)
+
+---
+
 `@miles 7/20/2021 10:44 AM (UTC)`
 
 以毒灭共．是有新中国联邦和爆料革命在全球范围开始的．没有任何人可以代替我们的做用！
@@ -304,13 +311,6 @@ Welcome to the great @steveguest!<br/><br/>https://www.gettr.com/user/steveguest
 `@glkeile 7/15/2021 11:20 PM (UTC)`
 
 I sent a message to GETTR and within minutes I had a response via email. Now that's impressive.<br/><br/><br/>You can follow 200 people per 24 hours for anyone that was wondering. <br/><br/>I don't recall ever tapping the follow button 200 times in a day EVER,  but it is  what it is and I'm still unable to follow until after 1 to 2 a.m. <br/><br/>I still like GETTR better than other platforms. <br/>
-
----
-
-`@miles 7/15/2021 10:42 PM (UTC)`
-
-这帮找爹的孙子．找爹博．路大骗子……蛇妖闫……塞林骗子……真是吓死个人呀……🙈🙈🙈🙈🙈🙈😂😂😂😂😂😂😂😂😂😂
-![img](https://media.gettr.com/group24/getter/2021/07/15/22/2886b968-0eb0-910e-c68c-45676af655e6/out.jpg)
 
 ---
 
