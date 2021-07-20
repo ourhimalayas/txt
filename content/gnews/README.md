@@ -40,14 +40,14 @@
 ### [2021年7月20日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/9/README.md)
+### [2021年7月20日樱花快报](/content/gnews/9/README.md)
+ ` 日本东京樱花团`
+
+### [【快讯】韩国军方记录了迄今为止最大的COVID-19感染群](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/11/README.md)
  ` G-NEWS TAIWAN`
-
-### [丧家狗亡腚肛连夜逃窜](/content/gnews/10/README.md)
- ` 日本东京樱花团`
-
-### [何时迎来不戴口罩的日子](/content/gnews/11/README.md)
- ` 日本东京樱花团`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
  ` 文雍`
@@ -88,34 +88,34 @@
 ### [2021/07/16 世卫承认排除新冠来自中共实验室是个错误](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【热点播报】7月20日国际新闻速递](/content/gnews/25/README.md)
+### [【密翻在线】中共国河南省遭受暴雨袭击，郑州尤为危急](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [河南郑州灾情部分视频汇总截止北京时间2021年7月20日23：18分](/content/gnews/26/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【热点播报】7月20日国际新闻速递](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [【NewsExpress】俄罗斯航空航天展展出第五代战机原型机](/content/gnews/26/README.md)
+### [【NewsExpress】俄罗斯航空航天展展出第五代战机原型机](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [【NewsExpress】东京奥运命运多舛 尚未开幕已非常新闻频发](/content/gnews/27/README.md)
+### [【NewsExpress】东京奥运命运多舛 尚未开幕已非常新闻频发](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [【秘翻在线】美式橄榄球明星因发布身穿G|FASHION照片引发轰动](/content/gnews/28/README.md)
+### [【秘翻在线】美式橄榄球明星因发布身穿G|FASHION照片引发轰动](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [美国前线医生对卫生与公众服务部(DHHS)部长的起诉书(1)](/content/gnews/30/README.md)
- ` Runaway`
-
-### [日本称中国政府很可能与网络黑客攻击日本公司有关](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [丧家狗亡腚肛连夜逃窜](/content/gnews/32/README.md)
+### [2021年7月20日樱花快报](/content/gnews/31/README.md)
  ` 日本东京樱花团`
 
-### [2021年7月20日樱花简报](/content/gnews/33/README.md)
- ` 日本东京樱花团`
+### [【快讯】韩国军方记录了迄今为止最大的COVID-19感染群](/content/gnews/32/README.md)
+ ` 纽约香草山MOS02`
 
-### [冲破北京阻力，台湾与立陶宛将互设代表处](/content/gnews/34/README.md)
+### [【香港快讯】 7月20日 【首宗国安法】 控辩双方完成结案陈词　下周二裁决](/content/gnews/33/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [日本称中国政府很可能与网络黑客攻击日本公司有关](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【百年中共 滔天罪行】第3期](/content/gnews/35/README.md)
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [[独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施](/content/gnews/43/README.md)
+### [拜登认为共产主义是“失败的制度”、古巴是“失败的国家”](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共东海“实际使用武器训练”大规模军演尴尬提前结束](/content/gnews/44/README.md)
+ ` G-NEWS TAIWAN`
+
+### [世界将在根本上 断绝中共一切关系](/content/gnews/45/README.md)
+ ` G-NEWS TAIWAN`
+
+### [[独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施](/content/gnews/46/README.md)
  ` MOSglobal`
 
-### [樱花灭共段子 之 亡腚缸【储君之争】](/content/gnews/44/README.md)
+### [樱花灭共段子 之 亡腚缸【储君之争】](/content/gnews/47/README.md)
  ` 日本东京樱花团`
 
-### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/45/README.md)
+### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/48/README.md)
  ` G-NEWS TAIWAN`
 
-### [何时迎来不戴口罩的日子](/content/gnews/46/README.md)
+### [何时迎来不戴口罩的日子](/content/gnews/49/README.md)
  ` 日本东京樱花团`
 
-### [50国齐声讨，中共的石头最终砸向了自己](/content/gnews/47/README.md)
+### [50国齐声讨，中共的石头最终砸向了自己](/content/gnews/50/README.md)
  ` G-NEWS TAIWAN`
 
-### [美加大金融监管力度中概股在美上巿更积极！](/content/gnews/48/README.md)
+### [美加大金融监管力度中概股在美上巿更积极！](/content/gnews/51/README.md)
  ` G-NEWS TAIWAN`
 
-### [美国指责中共国的黑客行为，在网络攻势中开辟新战线](/content/gnews/49/README.md)
+### [美国指责中共国的黑客行为，在网络攻势中开辟新战线](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国家安全部骇客任务，对全球发动情报超限战](/content/gnews/50/README.md)
+### [中共国家安全部骇客任务，对全球发动情报超限战](/content/gnews/53/README.md)
  ` G-NEWS TAIWAN`
 
-### [中资孔子学院将目光投向K-12课堂](/content/gnews/51/README.md)
+### [中资孔子学院将目光投向K-12课堂](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【杂谈】路大脑袋的房事](/content/gnews/52/README.md)
+### [【杂谈】路大脑袋的房事](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [默克尔在白宫表示：共同的价值观将指导对中共国政策](/content/gnews/53/README.md)
+### [默克尔在白宫表示：共同的价值观将指导对中共国政策](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年7月20日灭共要闻](/content/gnews/54/README.md)
- ` 秘密翻译组G-Translators`
-
-### [美国副国务卿将在下周访问日本、韩国和蒙古](/content/gnews/55/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【极新闻】中共释放新的病毒信号吗？](/content/gnews/56/README.md)
- ` 澳喜农场`
 

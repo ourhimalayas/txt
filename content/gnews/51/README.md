@@ -2,51 +2,89 @@
 ---
 
 
-## 中资孔子学院将目光投向K-12课堂
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1408697/)
+## 美加大金融监管力度中概股在美上巿更积极！
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1408800/)
 
-据《WASHINTON FREEBEACON》，作者：ALEX NESTER，2021 年 7 月 16 日报道
+台湾宝岛农场｜樱桃的奇幻之旅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09104402/%E6%93%B7%E5%8F%9679-8.jpg)
+**中概股2021年至今在美IPO约有34家，约等于去年总数**
 
-在关闭孔子学院分院之后，将资源转移到附属K-12项目并与中国学校建立姐妹关系后，几所美国大学与中共国依然保持着关系。
+2021年至今的中国企业在美国IPO上巿以路透社数据显示约有34家，相当等于去年全年的34家。中概股在今年赴美上巿累集筹资创纪录约125亿美元，远高于去年同期14宗新上巿筹集的19亿美元。根据美中经济暨安全审查委员会(USCC)资 料显示，至目前为止总共约有248家中国企业在美国三大交易所上巿，总巿值约达2.1兆美元，而这些中概股家数约占外国公司在美投资的90%以上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20101142/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2021-07-20-221122.jpg)
+由以上图表可以看出，中概股每年均呈年年增长速度在美国上巿圈钱，虽然今年美国加强审查，但中概股在美上巿还是有增无减。
 
-许多大学没有完全切断与孔子学院的联系，而是将资源转移到针对K-12课堂的附属项目上。孔子课堂项目为美国的小学、初中和高中学生提供一系列中国语言和文化课程。孔子课堂通常与附近大学的孔子学院联系在一起，由中共国教育部的一个部门“国家汉办”资助和运营。
+**去年川普签置「外国公司问责法」**
 
-这种转变揭示了中国共产党在美国教育机构中根深蒂固的程度。美国安全官员最近警告称，北京努力与教育机构建立联系，以改变美国人对共产主义政权的看法。
+去年川普去年12月签署法案「外国公司问责法」要求在美国交易挂牌上市的外国公司，必须遵守美国的审计标准。若三年不合规，将会受到退巿的惩罚。也就是会计师事务所在对这些公司进行审计过程中，将可获取公司的各类营业及财务等资料，并形成审计工作记录。
 
-在美国务院宣布孔子学院为中共国宣传机构后，十几所大学关闭了孔子学院分院。据全国学者协会的中国问题专家雷切尔·彼得森 (Rachelle Peterson) 称，共产党政权已准备好应对后果。
+过去，中概股均以财务审计报告涉及「国家安全」为由，还可以得到美国监管机构在审查方面的豁免。美国监券监管机构3月开始推出新的法规，中（共）国公司如不遵守美国审计规则，可能被摘牌。他们若还遵守中国法规定，以不能透露国家机密为由，恐怕就只能被迫摘牌退巿。
 
-“中共国政府已经开发了一个微妙而复杂的工具网络，”彼得森告诉华盛顿自由灯塔， “就孔子学院而言，中国共产党意识到它们在美国失宠，他们正在准备与美国接触的其他方式——其中许多都同样存在问题。”
+随着美国政府日益收紧中企从华尔街融资的通道，中共控制下的中概股若无涉及科技等敏感数据则，他们和私募基金正在加紧从美国圈钱。目前己有多家媒体报导，揭示出这些中概股从美国募集来的资金许多都流向了中共的国有企业和5G、军工等重点项目。以上将审查这些资讯更为严格。
 
-孔子课堂只是其中一些“有问题”的替代方案。全国学者协会估计，在其鼎盛时期，有超过500所孔子课堂在运营——远远超过41个活跃的孔子学院分院。由于大多数联邦监管都针对高等教育，中共国已经能够秘密地在K-12教育领域站稳脚跟。
+**中共国企图阻止中企至境外上巿，阻止逃离资金**
 
-众议员克里斯斯图尔特 (Chris Stewart)（犹他州共和党）告诉自由灯塔，他担心在他所在地区运营的孔子课堂向孩子们传授不正确的中国共产党的观点。
+而在中共国方面，北京政府也是加强管控对所有在境外上巿的中国企业。中国监管会以违反网路安全为由，正考虑修订针对科技股为主的中企海外上巿新规则，将加强对跨境数据流动和安全的限制，将限制中企至海外上巿，实为阻止资金外流。
 
-“孔子课堂与孔子学院有点不同，也有点难，因为它们不那么明显，”斯图尔特说， “我们现在试图做的事情是表明不要将孔子课堂用于情报访问、计算机访问或成人宣传，但他们在软化儿童。”
+北京政府为了阻止中企在海外上巿，尤其对具有垄断的大科技公司，如去年的蚂蚁金服赴港上巿前夕被喊卡，以及今年初被中共国劝退的字节跳动(Tiktok) 。而最近的滴滴出行在美IPO募资挂牌几天，中共国在国内强制将APP全面下架。另三家网路平台公司在6月份上巿后，目前已经暂停新用户注册，分别是：
 
-在斯图尔特地区运营的孔子课堂只是从全国各地关闭的孔子学院分院发展起来的几个这样的前哨基地。
+- 「BOSS直聘」：有中国最大线上人力银行之称。
+- 「运满满、货车帮」：中国货车Uber之称的满帮集团旗下。
 
-在俄亥俄州迈阿密大学宣布关闭孔子学院一年多后，一个为俄亥俄州近1200名K-12学生提供服务的孔子课堂联盟继续运营。在肯塔基州西部，由辛普森县公立学校领导的30多名工作人员组成的联盟接过了2019年关闭的西肯塔基大学孔子学院的职责。
 
-当密歇根州立大学孔子学院今年关闭时，学校计划将该项目的资源“转移到大学内的其他领域”，以“使学校无法获得这些学习选择的K-12学生和教师受益，”一位女发言人告诉自由灯塔。
+**中概股红色家族与华尔街大鳄勾兑，增推中概股上巿**
 
-除了将资源从大学转移到中小学课堂之外，中共国还找到了在关闭孔子学院的大学中立足的方法。几所大学已经寻求与中共国“姊妹学校”建立合作伙伴关系，以取代它们的孔子学院。
+这些中概股背后股东，可想而知多为红色家族、太子党们及富豪们。在感受到中共国内经济可能处于崩塌边缘及人民币将变冥纸之际，想方设法透过在海外挂牌上巿释出股权而套出资金，故今年中概股创记录多至海外挂牌，尤其是到美国IPO募资上巿，即使美国现在审计的规范趋严。
 
-中田纳西州立大学在收到参议员玛莎布莱克本 (Marsha Blackburn)（田纳西州共和党）的批评后，于2020年8月关闭了孔子学院。但学校继续促进与中共国姊妹大学的联系。内布拉斯加大学表示，在其孔子学院于2020年12月关闭后，它仍然“坚定地致力于”与中共国大学的联系。
+虽然美国对中概股的严格管控措施，但由于推动中概股在美国上巿是一个非常庞大的利益链，这是中共红色家族-卖国贼集团跟华尔街大鳄们已勾兑数年，早已形成一条龙等金融供应链服务，而这些投资银行们也赚取高佣金等，并知道如何以法律来规避美国监察制度。
 
-塔夫斯大学计划在9月关闭孔子学院分院，在给自由灯塔的一份声明中表示，学校将“专注于扩大和深化”与北京师范大学的联系。同样，威廉玛丽学院在6月底关闭了孔子学院，但将继续“通过大学与大学之间的协议”提供与中共国相关的课程，一位女发言人告诉自由灯塔。
+**中概股的风险**
 
-至少在一个案例中，中共国继续向一所大学捐款以加强关系。彼得森发现教育部文件显示，密歇根大学在2019年关闭孔子学院后收到了来自中共国的30万美元的礼物。
+1.中概股在美实施审查制度，而北京政府是否愿意将资料释出予美国审查？两国规范的认知不同，这些中概股有牵涉到军民融合，影响到美国国家利益，势必遭到下巿命运。
 
-“所有迹象都表明，孔子学院有替代者，”彼得森说。“替代的参与形式正在涌现——许多方式将面临与孔子学院相同的问题。”。
+2.中共国正在试图阻止这些资金外逃，而制订的新法则更形严苛，对那些已
 
-原文连接：[https://freebeacon.com/national-security/china-backed-confucius-institute-turns-its-attention-to-k-12-classrooms/amp/?\_\_twitter\_impression=true](https://freebeacon.com/national-security/china-backed-confucius-institute-turns-its-attention-to-k-12-classrooms/amp/?__twitter_impression=true)
+在境外上巿公司，只要几条新法律出台，就可置一些中概股业绩下滑，如强制取消APP或注册用户等手段。
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – TrueSky
-编辑：洛杉矶盘古农场 – 心照
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+3.国内政治斗争：由于江泽民、王岐山及一些红色家族等已多年在海外形成一个自有金融体系，习家在这利益链着墨不多，势必打击他的政敌并防止他们的利益坐大，内斗将会更加剧烈，对一些中概股将会被打击更大。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+4.华尔街的一些大鳄们已习惯跟中共这些红色家族利益勾兑，大鳄们从中概股获得庞大利益，并无对许多投资者做好风险评估，他们未来将会输在这条供应链上。因为他们赚的是投机财，一旦游戏规则改变，他们放在这条供应链的资金必将有重大损失。可以想像，例如滴滴出行上巿几天时，他们本以为会循以前模式赚钱，从没有想到，北京政府会阻断APP，导致股价的下跌。
 
+5.更重要是，郭文贵先生已在好几年前警示爆料革命的战友们，在中共极权体制下以假骗偷治国，CCP为了个人及家族利益，对中国人民的各种巧取豪夺，这样的国家的经济怎么会好！
+
+**中共国**
+
+- 外资、产业外移：中共国内银行已几乎被淘空，外汇枯竭。
+- 房地产目前硬撑，国内经济绝对处于崩塌边缘。
+- 货币超发，人民币价值几乎为零。
+- 中共将受到全球强力的制裁：中共在全球放病毒，未来将受各国制裁。
+
+
+可想而知中概股的命运不可能会好，目前有些中概股已在反应这些利空。幸运的是文贵先生已早几年的预示中概股的下场，目前也已经陆续在发生中，相信战友投资者避开这些具风险性的中概股。
+
+本文仅代表人立场
+
+资料来源:
+
+[中共掐紧赴美上市中企中概股ADR集体跳水-自由财经](https://ec.ltn.com.tw/article/breakingnews/3596000)
+
+[https://www.google.com.tw/amp/s/ec.ltn.com.tw/amp /article/breakingnews/3596000](https://www.google.com.tw/amp/s/ec.ltn.com.tw/amp/article/breakingnews/3596000)
+
+[分析：美国IPO市场成为中概股雷区中国加强监管带来不确定性](https://www.reuters.com/article/us-ipo-market-china-crackdown-0708-idCNKCS2EE073)
+
+[美国加大监管力度中概股在美上市为何不减反增？](https://www.voacantonese.com/a/more-Chinese-companies-listed-in-US-despite-risk-of-delisting-20210521/5899203.html)
+
+[https://www.google.com.tw/amp/s/www.voacantonese.com/amp/more-Chinese-companies-listed-in-US-despite-risk-of-delisting-20210521/5899203.html](https://www.google.com.tw/amp/s/www.voacantonese.com/amp/more-Chinese-companies-listed-in-US-despite-risk-of-delisting-20210521/5899203.html)
+
+[https ://www.cw.com.tw/article/5116463?share=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJhcnRpY2xlX2lkIjo1MTE2NDYzLCJ1c2VyX25hbWUiOiJcdTRlZGRcdTRlMTZcdTgyYjMiLCJpc3MiOiJodHRwczpcL1wvd3d3LmN3LmNvbS50dyIsImlhdCI6MTYyNjE3Mzg3NSwibmJmIjoxNjI2MTcwNDAwLCJleHAiOjE2MjYyNjA0MDB9.kfVUJ7fZSnhdFejOagp4eiAnQ4BlEKpVPq2rfEqtdcQ&utm\_campaign=line\_-website\_share-icon-np&utm\_medium=website\_share&utm\_source=line\_](https://www.cw.com.tw/article/5116463?share=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJhcnRpY2xlX2lkIjo1MTE2NDYzLCJ1c2VyX25hbWUiOiJcdTRlZGRcdTRlMTZcdTgyYjMiLCJpc3MiOiJodHRwczpcL1wvd3d3LmN3LmNvbS50dyIsImlhdCI6MTYyNjE3Mzg3NSwibmJmIjoxNjI2MTcwNDAwLCJleHAiOjE2MjYyNjA0MDB9.kfVUJ7fZSnhdFejOagp4eiAnQ4BlEKpVPq2rfEqtdcQ&amp;utm_campaign=line_-website_share-icon-np&amp;utm_medium=website_share&amp;utm_source=line_)
+
+* * *
+
+审核╱zhong｜校对╱铃铃卷｜发布╱little liu
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 0

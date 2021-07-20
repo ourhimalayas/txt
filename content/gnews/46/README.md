@@ -2,16 +2,45 @@
 ---
 
 
-## 何时迎来不戴口罩的日子
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1408835/)
+## [独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施
+` MOSglobal` [轉載自GNews](https://gnews.org/zh-hans/1408891/)
 
-撰稿:东京樱花团/小小星
-校对：东京樱花团/喜马拉雅的微尘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20103451/S1-GA740_0513HK_OR_20200513072342.jpg)
-自从两年前中共释放新冠病毒到这个世界以后。不管春夏秋冬，我们就没有离开过口罩。尽管我们新中国联邦和爆料革命的战友，在推特、油管、脸书等各种社交媒体中，告诉世人病毒的真相。可是已经习惯了听从政府的百姓，有几个能相信我们的声音。更可恶的是，喊着爆料革命的口号，却找时机来砸爆料革命的伪类。特别是最近的亡腚肛和闫妖精企图在他们被战友和世界正义力量取得信任的时候，来摧毁我们爆料革命。他们假惺惺地传播真相，实际是想毁坏我们爆料革命的信誉。这种像九指妖、肛裂宏等等的伪类，在中共的纵恿下满嘴谎言、没有底线。这样为虎作伥的宵小之辈不光是我们中国人，世界各国也层出不穷，他们为了眼前的一丁点利益，甘愿被ccp利用操纵。他们从来不去想想自己为什么在酷暑炎热的夏天也要带着口罩，不想想是谁在影响孩子的未来和人类的延续！
-在这场正义与邪恶的较量中，死亡了数百万无辜的民众，但是现在病毒仍肆无忌惮地在世界蔓延。
-我们新中国联邦人的呐喊和行动希望能够唤醒更多正义的人们，早日消灭ccp，消灭病毒，迎来不戴口罩的日子！
-（文章仅代表作者本人观点）
-发布：东京樱花团/喜马拉雅的微尘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
+
+翻译：纽约香草山翻译部bright lee dt
+
+最近“无德社”的亡腚肛带领的所谓“博士军团”连同蛇妖闫，以及逃亡海外的骗子塞林集体抹黑攻击郭文贵、新中国联邦、法治基金、法治社会、爆料革命及盖特，在多个媒体上稍有名气后企图独揽病毒溯源之成果。对于该团伙在推特上的造谣污蔑性推文，广大战友提出纷纷质疑，但却遭到该团伙公开恐吓。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20110206/1-5.jpeg)图片来源：huarenone.com
+无德社一众先将骗子塞林包装成为功勋卓著的绿色贝雷帽上校，在直播中多次恐吓所有公开质疑他们的推特号将被定性为支持生化恐怖组织成员，已被美军记录并将逮捕关进美国在古巴的关塔那摩拘留设施，不享受美国本土的人权待遇。
+
+但不出几日，最快打脸来了。据NBCNEWS报道，拜登政府从关塔那摩湾移交其第一个被拘留者并指出早在今年6月份美国总统拜登就已经打算关闭位于古巴东南海岸的拘留设施。除去移除的第一位被拘留者，该拘留设施尚有39名被拘留者。剩余拘留者将在国会批准后关押在美国境内拘留设施。拜登更希望在他的第一个任期内完成关塔纳摩的关闭。
+
+同时美国防部于周一发表声明，其中提及”美国赞扬摩洛哥王国在确保两国国家安全利益方面的长期伙伴关系，” 并且 “美国也非常感谢摩洛哥王国愿意支持美国正在进行的关闭关塔那摩湾拘留设施的努力。”
+
+至此，无德社又一个谎言不攻自破，不管用多少华丽的包装，在真相面前永远是不堪一击。等待着他们的将是大量的法律诉讼，因果巡回，报应不爽。
+
+相关新闻来源：
+
+[https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333](https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333)
+
+校队发稿：Brian Sanitizer
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02221725/ca1affbb-9efa-40ff-ab92-f03507874447-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
+
+
+
 0
