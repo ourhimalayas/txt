@@ -2,18 +2,23 @@
 ---
 
 
-## 【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407975/)
+## 【NewsExpress】昂山素季的民盟发言人吴年温感染CCP病毒逝世
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1408303/)
 
-#### 撰稿：WL102
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20011847/%E5%95%8A%E5%95%8A.jpg)图片来源：网络截图
-据路透社7 月 19 日报道，英国首席科学顾问帕特里克·瓦兰斯说，60% 因中共病毒入院的病例没有接种疫苗。纠正了他周一早些时候发表的声明。
+作者：yyshere
 
-之前，瓦兰斯在与首相鲍里斯·约翰逊举行的新闻发布会上说，因中共病毒入院的人中有 60% 接种了两剂疫苗。
+因军事政变下台的缅甸前执政党全国民主联盟的发言人吴年温因Covid-19（CCP病毒）感染死亡，吴年温的律师在当地时间7月20日星期二对外宣布了这一消息。
 
-但截至秘翻在线发稿，路透社的这篇报道却已被撤。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20011826/%E4%BE%B5%E6%9D%83.jpg)撤稿页面截图
-新闻链接：[https://www.reuters.com/business/healthcare-pharmaceuticals/60-people-being-admitted-uk-hospitals-had-two-covid-jabs-adviser-2021](https://www.reuters.com/business/healthcare-pharmaceuticals/60-people-being-admitted-uk-hospitals-had-two-covid-jabs-adviser-2021)（已撤稿）
+吴年温，79岁，此前是昂山素季创立的全国民主联盟党内的重要人物，生前任中央执行委员会成员，也是缅甸国内知名的政治人物。今年2月1日军方政变夺权后，吴年温与其他民盟高层人士一起被捕，并以煽动叛乱罪关押在仰光的永盛监狱。
+
+据吴年温的律师San Mar La Nyunt证实，她在周二上午通过视频电话与吴年温进行了联系，就在他去世前的几分钟。
+
+San Mar La Nyunt透露，吴年温生前患有慢性病。
+
+消息来源： 美联社
+
+校对发稿：Ada(马德里）
+
+（本文系作者个人观点，不代表GNEWS平台）
 
 0

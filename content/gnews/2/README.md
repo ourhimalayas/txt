@@ -2,57 +2,41 @@
 ---
 
 
-## 【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407722/)
+## 中共威胁对日本使用核武
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1407688/)
 
-翻译：纽约香草山健身部 Ivy001
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19220107/J.jpg)reportwire.in
+《福克斯新闻》发表文章，“在中国共产党管辖的电视台播放的视频中，中共威胁要在台湾问题上对日本进行核打击”。副标题称，副首相麻生太郎（Taro Aso）敦促通过对话解决任何问题。
 
+全文如下：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+中国共产党播放了一段视频，警告日本，如果这个岛国干涉中共对台湾的处置，日本将面对核打击和“全面战争”。
 
+这段视频出现在中共管辖的一个频道上，特别指出日本是中共国不对无核国家使用核武器政策的一个例外。视频说：“我们将首先使用核弹，我们将继续使用核弹，我们将这样做，直到日本第二次宣布无条件投降。”
 
+中共宣称将“解放台湾”，并警告日本不要部署“一兵一机一舰”。
 
-新闻来源：REUTERS
+据《台湾新闻》（Taiwan News）报道，这段视频在获得200万次浏览量后，被中共国平台“西瓜”（Xigua）删除，但拷贝被上传到了油管和推特。
 
-新闻链接：[U.S. issues ‘Do Not Travel’ advisory for UK over COVID-19](https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-raises-covid-warning-travelers-united-kingdom-2021-07-19/)
+《日本时报》（The Japan Times）报道，两周前，日本官员就台湾主权发表评论，副首相麻生太郎表示，日本必须“保卫台湾”。
 
-译文：
+“如果（台湾上空）发生重大事件，可以肯定地说，这将与威胁（日本）生存的局势有关，如果真是这样，日本和美国必须一起保卫台湾。” 麻生太郎说。
 
-华盛顿，7月19日（路透社）——因为英国的COVID-19病例数量不断上升，美国国务院和美国疾病控制和预防中心（CDC）周一对前往该国的旅客发出了最高警告。
+不过，麻生太郎坚称，日本将通过对话解决任何问题，日本内阁官房长官加藤（Katsunobu Kato）表示，台湾的突发事件是一种“假想的情况”。
 
-![]()![](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/GR45FFD77VK7XPEYZB2EGG5RBI.jpg)图片来源：REUTERS/Tami Chappell
+据《澳大利亚天空新闻》（Sky News Australia）网报道，中共外交部发言人赵立坚敦促日本在这一问题上调整“心态”。赵说：“我们再次敦促日方以正确的心态对待有关问题，表现出对中共国主权的尊重和维护地区和平稳定的诚意。”
 
-两者都将前往英国的旅行提高到了“四级”，告诉美国人应该避免去那里旅行。疾病预防控制中心在一份通知中说：“如果你必须前往英国，请确保你在旅行前充分接种疫苗。”而国务院则说，“由于COVID-19，请不要去英国旅行。”
+赵还说：“我必须强调，台湾是中共国的一部分，台湾问题纯属中共国内政，中共国决不允许任何国家以任何形式干涉台湾问题。”赵强调，台湾是中共国统一计划的一部分。
 
-此前在5月份，美国政府曾将英国旅行降至“3级”——咨询评级。现在，美国政府再次将英国旅行提高到“四级”——警告评级。
+（全文完）
 
-美国自2020年3月起禁止几乎所有最近停留英国的非美国公民进入美国。英国则允许美国人访问，但要求在抵达时进行10天的隔离，并进行两次COVID-19测试。
+这就是流氓、无赖政权掌握核武器的后果，如果不对这样的独裁恶魔政府进行有效的管控，他们是无底线的。当务之急就是要尽快认证中共对全世界实施的生物武器攻击，唤醒世界，对魔鬼绞杀，还世界以安宁！
 
-拜登政府于6月表示，美国正在与英国、加拿大、墨西哥和欧盟组成专家工作组，以确定在一年多的限制之后，如何更好地重新开始安全旅行。
+原文链接：
 
-美国和航空公司官员预计，对英国旅客的限制最早要到8月才能解除——并警告说可能会进一步推后。
+[https://www.foxnews.com/world/china-nuke-japan-taiwan-video-ccp-channel](https://www.foxnews.com/world/china-nuke-japan-taiwan-video-ccp-channel)
 
-航空公司和其他机构已经向政府施加压力，要求解除对在过去14天内去过英国、欧洲26个没有边境管制的申根国家、爱尔兰、中国、印度、南非、伊朗和巴西的大多数非美国公民的入境限制。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-0
++1

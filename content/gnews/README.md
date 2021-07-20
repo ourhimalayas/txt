@@ -16,20 +16,20 @@
 
 ---
 
-### [中共威胁对日本使用核武](/content/gnews/1/README.md)
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共威胁对日本使用核武](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/2/README.md)
+### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/3/README.md)
  ` 纽约香草山MOS02`
 
-### [“驻立陶宛台湾代表处” 第二个非邦交国以台湾为名的代表处](/content/gnews/3/README.md)
+### [“驻立陶宛台湾代表处” 第二个非邦交国以台湾为名的代表处](/content/gnews/4/README.md)
  ` G-NEWS TAIWAN`
 
-### [【樱花宅急便】香港特别集中营](/content/gnews/4/README.md)
+### [【樱花宅急便】香港特别集中营](/content/gnews/5/README.md)
  ` 日本东京樱花团`
-
-### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [2021年7月19日 文贵先生盖特 10](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
@@ -40,13 +40,13 @@
 ### [2021年7月19日 文贵先生盖特 8](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [中共国疫苗的失败](/content/gnews/9/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [美国前线医生对卫生与公众服务部(DHHS)部长的起诉书(1)](/content/gnews/9/README.md)
+ ` Runaway`
 
-### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/10/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [【西媒头条】第27期（2021年7月20日）](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？](/content/gnews/11/README.md)
+### [【秘翻在线】墙国强制接种的闹剧一出双簧？](/content/gnews/11/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
@@ -88,47 +88,47 @@
 ### [2021/07/17 世卫承认存在病毒实验室泄漏的可能性](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】印度中共病毒死亡人数或超过400万](/content/gnews/25/README.md)
+### [美国前线医生对卫生与公众服务部(DHHS)部长的起诉书(1)](/content/gnews/25/README.md)
+ ` Runaway`
+
+### [【秘翻在线】印度中共病毒死亡人数或超过400万](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】震惊：媒体披露针对全球政客、活动家和记者的网络间谍武器被滥用](/content/gnews/26/README.md)
+### [【秘翻在线】震惊：媒体披露针对全球政客、活动家和记者的网络间谍武器被滥用](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处](/content/gnews/27/README.md)
+### [【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [【NewsExpress】韩国总理和国防部长就文武大帝号驱逐舰群聚感染致歉](/content/gnews/28/README.md)
+### [【NewsExpress】韩国总理和国防部长就文武大帝号驱逐舰群聚感染致歉](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [【NewsExpress】昂山素季的民盟发言人吴年温感染CCP病毒逝世](/content/gnews/29/README.md)
+### [【NewsExpress】昂山素季的民盟发言人吴年温感染CCP病毒逝世](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/31/README.md)
+### [【西媒头条】第27期（2021年7月20日）](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】共和党人呼吁美国运动员在北京冬奥期间不要使用数字元](/content/gnews/32/README.md)
+### [【秘翻在线】墙国强制接种的闹剧一出双簧？](/content/gnews/32/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共国正在努力寻找市场——这只无形的手来引导全世界（一）](/content/gnews/33/README.md)
+### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】中共全面夺取国内数据控制权欲与美争霸](/content/gnews/34/README.md)
+### [【秘翻在线】共和党人呼吁美国运动员在北京冬奥期间不要使用数字元](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [英国派遣航母和特种部队 北约参与南海问题已不可逆转](/content/gnews/35/README.md)
+### [【百年中共 滔天罪行】第3期](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英国派遣航母和特种部队 北约参与南海问题已不可逆转](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [美日印澳拟举行四方安全会谈领袖峰会 联合对抗中共](/content/gnews/36/README.md)
+### [美日印澳拟举行四方安全会谈领袖峰会 联合对抗中共](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [美国联同欧亚盟国共同揭露谴责中共实施恶意网络攻击](/content/gnews/37/README.md)
+### [美国联同欧亚盟国共同揭露谴责中共实施恶意网络攻击](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
-
-### [【粤语配音】班农：记住郭文贵对美国和西方的警告](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [7/19/2021 财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；美国向企业发出关于香港风险的警告](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
