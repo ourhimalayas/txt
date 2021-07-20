@@ -2,20 +2,22 @@
 ---
 
 
-## 【秘翻在线】内蒙古呼伦贝尔水库溃坝 新华网和人民网却睁眼瞎
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407854/)
+## 【秘翻在线】美司法部实施更严格的限制没收记者记录资料的措施
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407865/)
 
-#### 撰稿：柯亭
+#### 翻译： Evalu
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19235731/%E5%85%AB%E5%85%AB.jpg)图片来源：Baidu
-据光明网7月20日报道，7月18日内蒙古呼伦贝尔永安水库和心法水库相继出现决口垮坝。该报道未提及受灾的具体数据。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20002452/%E7%A6%BB%E8%81%8C.jpg)图片来源：网络截图
+7月19日，据美国合众社（UPI）报道，美国司法部部长麦瑞克·戈兰徳（Merrick Garland）周一要求司法部在泄漏调查中不能没收记者的通信或录音记录。
 
-据《深港在线》7月19日报道，该次水灾造成16,660人受灾，325,622亩农田被淹，损毁桥梁22座、涵洞124道、公路15.6公里、路肩19,748米。
+在司法部的备忘录中，戈兰徳写道，“将不再应用強制性法律手段向从事新闻收集活动的新闻媒体人士获取信息“，该规定于周一生效，但对于那些违法的行为，如内部交易或用非法手段获取政府信息的行为，司法部仍然可以没收违法记者的记录材料。
 
-很多网络媒体平台上流传一位现场目击溃坝者拍摄到的一段小视频，显示溃坝造成的水势相当凶险。这可能是目前尚有几家媒体报道该次灾难的原因。
+戈兰徳指出，“一个自由和独立的媒体对于我们的民主制度是重要的”，同时，也要明确在什么情况下可以采用強制没收的手段。
 
-然而，中共国字号新华网和人民网，却看不到任何关于该次灾难的报道。用“内蒙古溃坝”搜索，新华网显示“很抱歉，找不到‘内蒙古溃坝的相关信息’”，人民网则显示2020-05-06发生的“乌兹别克斯坦水库溃坝事故致4人死亡”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20001941/20210719-%E3%80%90%E7%A7%98%E7%BF%BB%E5%9C%A8%E7%BA%BF%E3%80%91%E5%86%85%E8%92%99%E5%8F%A4%E5%91%BC%E4%BC%A6%E8%B4%9D%E5%B0%94%E6%B0%B4%E5%BA%93%E6%BA%83%E5%9D%9D%EF%BC%8C%E6%96%B0%E5%8D%8E%E7%BD%91%E5%92%8C%E4%BA%BA%E6%B0%91%E7%BD%91%E5%8D%B4%E7%9D%81%E7%9C%BC%E7%9E%8E-p2.png)“内蒙古溃坝”新华网搜索结果页面![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20002123/20210719-%E3%80%90%E7%A7%98%E7%BF%BB%E5%9C%A8%E7%BA%BF%E3%80%91%E5%86%85%E8%92%99%E5%8F%A4%E5%91%BC%E4%BC%A6%E8%B4%9D%E5%B0%94%E6%B0%B4%E5%BA%93%E6%BA%83%E5%9D%9D%EF%BC%8C%E6%96%B0%E5%8D%8E%E7%BD%91%E5%92%8C%E4%BA%BA%E6%B0%91%E7%BD%91%E5%8D%B4%E7%9D%81%E7%9C%BC%E7%9E%8E-p3.png)“内蒙古溃坝”人民网搜索结果页面
-新闻来源：[内蒙古呼伦贝尔水库溃坝](https://m.gmw.cn/2021-07/20/content_1302415713.htm)
+美国国家安全信息不容泄漏，这是重要的国家利益，戈兰徳的备忘录是在评估现有政策后作出的，这个评估是基于在川普任内司法部有关泄漏调查中所強制没收记录的报告，当时的司法部获得了2017年的电话记录、电子邮件，包括CNN与五角大楼通讯员的通话。
+
+戈兰德进一步指出，司法部将继续检示以保护记者不被强制性没收。
+
+**新闻来源：**[Justice Dept. implements tighter restrictions on seizing journalists’ records](https://www.upi.com/Top_News/US/2021/07/19/Merrick-Garland-Justice-Department-tightening-restrictions-seizing-journalists-records/4301626729702/)
 
 0

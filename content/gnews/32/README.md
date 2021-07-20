@@ -2,20 +2,18 @@
 ---
 
 
-## 美军机再降落台湾 五天内两次 北京没话说了？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1407686/)
+## 柯达IG发新疆照片提大规模囚禁 遭中共和小粉红围攻
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1407771/)
 
 2021年7月19日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19220331/0-102.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19224707/0-1-12.png)
 
 编辑摘要：
 
-继15日美国军方行政专机降落台湾后，又有一架美军C-130(民用版)N3755P行政专机19日降落台湾桃园机场卸货，停留大约一小时后飞离台湾，台湾媒体报道，可以确定该机是在执行美国在台协会的机密任务，运送“外交邮带”。
+美国摄影器材公司柯达7月15日在[社群平台IG](https://www.soundofhope.org/term/577271)发布一系列有关[新疆](https://www.soundofhope.org/term/1309)的[摄影作品](https://www.soundofhope.org/term/9682)，并引述法国[摄影师](https://www.soundofhope.org/term/13148)瓦克（Patrick Wack)的话，称当地[大规模囚禁](https://www.soundofhope.org/term/577277)[维吾尔人](https://www.soundofhope.org/term/25805)与穆斯林。中共[共青团](https://www.soundofhope.org/term/8528)和官媒《[环球时报](https://www.soundofhope.org/term/1266)》带头[围攻](https://www.soundofhope.org/term/362692)，大批[小粉红](https://www.soundofhope.org/term/1996)网民涌入留言攻击。目前[柯达](https://www.soundofhope.org/term/12190)已经将照片撤下，但在瓦克的个人IG上，仍可看到部分照片。
 
-中国的外交官、一些解放军将领及官媒一直以来放风：美军入台之际，就是武统台湾之时。现在，美机不但飞越台湾上空了，而且屡次降落台湾大地了，按理说早已触及中共的底线了，相比起先前“战狼”式的外交表现，如今的中共却无奈的很。
-
-**【**[新闻来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210719-%E7%BE%8E%E6%9C%BA%E5%86%8D%E8%90%BD%E5%8F%B0%E6%B9%BE-%E4%BA%94%E5%A4%A9%E5%86%85%E4%B8%A4%E6%AC%A1-%E5%8C%97%E4%BA%AC%E6%B2%A1%E8%AF%9D%E8%AF%B4%E4%BA%86)**】**
+**【**[新闻来源](https://www.soundofhope.org/post/527084)**】**
 
 * * *
 

@@ -2,28 +2,40 @@
 ---
 
 
-## 柯达IG发新疆照片提大规模囚禁 遭中共和小粉红围攻
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1407771/)
+## 终极危机：军队大清洗反噬中共，习近平政权“行将崩溃”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1407970/)
 
-2021年7月19日
+翻译：小红帽
+校对/导读：守望黎明
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20011522/image001-6.jpg)图片来源：网络图片
+【导读】一般来讲，“老外”们对于中共国内部的政治问题往往后知后觉，一些在中共国内尽人皆知的东西，那些外国分析家们却往往还是一头雾水。然而，随着中共病毒全球蔓延引发了世界各国对中共国问题非同以往的关注，而爆料革命的出现，让这些中国问题关注者们好似找到了指南针。曾经不得要领不知所云的分析家们，如今水平纷纷快速晋级，分析起中共来头头是道，不仅能抽丝剥茧发现端倪，而且能够直指问题的核心了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19224707/0-1-12.png)
+资深中国问题专家保罗·蒙克表示，中共国领导人习近平可能很快就会被推翻，中国共产党可能会“崩溃”。 蒙克先生在接受澳大利亚天空新闻频道采访时透露，尽管中共政权对自己进行了包装，但中共国的经济“比它表现出来的要脆弱得多”。 这位著名作家和专家还表示，中共国军队比许多人预想的要脆弱得多，如果中共继续推进入侵台湾的行动，可能会面临重大挫败。
 
-编辑摘要：
+习近平上周刚刚主持庆祝了中国共产党执政一百周年。
 
-美国摄影器材公司柯达7月15日在[社群平台IG](https://www.soundofhope.org/term/577271)发布一系列有关[新疆](https://www.soundofhope.org/term/1309)的[摄影作品](https://www.soundofhope.org/term/9682)，并引述法国[摄影师](https://www.soundofhope.org/term/13148)瓦克（Patrick Wack)的话，称当地[大规模囚禁](https://www.soundofhope.org/term/577277)[维吾尔人](https://www.soundofhope.org/term/25805)与穆斯林。中共[共青团](https://www.soundofhope.org/term/8528)和官媒《[环球时报](https://www.soundofhope.org/term/1266)》带头[围攻](https://www.soundofhope.org/term/362692)，大批[小粉红](https://www.soundofhope.org/term/1996)网民涌入留言攻击。目前[柯达](https://www.soundofhope.org/term/12190)已经将照片撤下，但在瓦克的个人IG上，仍可看到部分照片。
+习主席在向竞争对手发出的警告中说，如果外国势力企图欺负或影响中共国，他们将会被打得“头破血流”。
 
-**【**[新闻来源](https://www.soundofhope.org/post/527084)**】**
+然而，蒙克先生表示，中共的“盲动”可能会导致自身的崩溃。
 
-* * *
+蒙克先生警告说，中共的统治模式“大限已到”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+蒙克先生解释说：“如果从表面上看，中共国的经济比它所表现的要脆弱。这是专家们已经谈论了十年的老问题。现在这种快速增长的经济模式既不稳定又不可持续，除非进行重大的改革。”
 
+“权威人士说，如果不很快开始改革，中共国经济增长很快会停滞，就像上世纪90年代的日本一样。”
 
-编辑：【英国伦敦喜庄园编辑部】
+“如果中共真的感到自身很安全、感到自己的执政有合法性，它就不会像现在这样，异乎寻常地大搞审查和镇压，一定是它的合法性危机正在显露出来。”
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+由于中共国盲动而引发冲突的危险已大大增加。
+
+“习近平清洗了军队的高级层。虽然入侵台湾的言论已经在军队站了上风，但中共的军事实力可能比我们想象的更脆弱。”
+
+“习近平尽管已经清除了军队的核心层和国家安全部门，他周边无人能挑战他。未经党的批准任何人都没权出来讲话，来自外部的新闻也受到了全面压制。”
+
+“然而一旦启动入侵台湾，其中的任何挫折都可能导致其政权垮台。一场大危机会随之出现。”
+
+**原文链接：**
+
+[China crisis: Xi Jinping’s regime could collapse as Beijing purge of military backfires | World | News | Express.co.uk](https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn?fbclid=IwAR04-7sL6Y2DPlFnAaowZwBEsa5EoQcBGtMSBlTN-cP6Z8osHdYvVxIdKLg)
 
 0
