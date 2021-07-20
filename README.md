@@ -16,29 +16,29 @@
 
 ---
 
-### [【樱花宅急便】香港特别集中营](/content/gnews/1/README.md)
+### [“驻立陶宛台湾代表处” 第二个非邦交国以台湾为名的代表处](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【樱花宅急便】香港特别集中营](/content/gnews/2/README.md)
  ` 日本东京樱花团`
 
-### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/2/README.md)
+### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【深度报道】令人尊敬的医学主持人成了疫苗推销员](/content/gnews/3/README.md)
+### [【深度报道】令人尊敬的医学主持人成了疫苗推销员](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国、欧盟、英国、北约谴责中共网络黑客攻击](/content/gnews/4/README.md)
+### [美国、欧盟、英国、北约谴责中共网络黑客攻击](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/6/README.md)
+### [【字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/7/README.md)
  ` Caihongqiao`
 
-### [7.16文贵先生盖特要点](/content/gnews/7/README.md)
+### [7.16文贵先生盖特要点](/content/gnews/8/README.md)
  ` 左媛专栏`
-
-### [【文贵直播摘录】2021年7月18日：世界、中共和爆料革命的最新动态](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
 
 ### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/9/README.md)
  ` 日本银河系农场-阿尔法星球`
@@ -142,11 +142,11 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/43/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [“驻立陶宛台湾代表处” 第二个非邦交国以台湾为名的代表处](/content/gnews/44/README.md)
- ` G-NEWS TAIWAN`
+### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/44/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
 ### [中共威胁对日本使用核武](/content/gnews/45/README.md)
  ` HimalayaRussia`
