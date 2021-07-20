@@ -2,40 +2,30 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1407112/)
+## 美国起诉四名中共特工
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1407325/)
 
-- 作者：wenwu
+编辑：胖丁｜2021年7月19日
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19185631/0-94.png)
+
+编辑摘要：
+
+美国司法部7月19日宣布，指控4名中国公民参与一项由中共国家安全部主导的入侵电脑系统的全球黑客攻击行动。三名被告是海南省国安厅的特工，另一名是电脑黑客。这些攻击行动从2011到2018年针对美国和其他国家的公司、大学和政府机构，盗取知识产权和机密商业信息，包括传染病研究等等，行业包括航天、国防、教育、政府、卫生、生物制药及海事。
+
+美国司法部副部长莉萨·莫纳科说：“中共的黑客攻击行动，提醒我们没有一个国家或行业是安全的。全世界希望公平规则，而不是偷盗。”其他同盟国星期一也谴责中共国家安全部从事全球网络黑客行动。
+
+**【**[新闻来源](https://www.voachinese.com/a/US-DOJ-says-four-Chinese-nationals-charged-in-global-hacking-campaign-20210719/5971445.html)**】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+编辑：【英国伦敦喜庄园编辑部】
 
-**西班牙2021年7月19日电/西喜社**
-
-您若想了解全文报导内容，请点击标题链接
-
-**1.[日本奥运村首位居民感染中共病毒](https://www.ntd.com/first-resident-of-olympic-village-tests-positive-for-covid_644773.html)**
-
-据《新唐人》（ntd)2021年7月17日电，东京奥运会组织者周六表示，发现一名住在海滨奥运村的人感染中共病毒，组织者会尽力确保参与比赛的人是安全的。据了解，此人是来自国外住在奥运村参与组织比赛的访客。他在周五的每日例行病毒测试中被发现，总共已发现45人感染了中共病毒。
-
-**2.[开赛在即 东京奥运村2选手染疫](https://www.epochtimes.com/gb/21/7/18/n13096752.htm)**
-
-据《大纪元》(epochtimes)2021年7月18日电，东京奥运奥委会近日宣布，发现共10人感染中共病毒。其中，有两人入驻选手村，成为选手村感染首例，总共已发现55人感染了中共病毒。日本奥运会负责人桥本圣子（Seiko Hashimoto)表示，日方会确保疫情爆发后的应对措施。
-
-**3.[美国单日新增病例突翻三倍，创3月新高](https://c.m.163.com/news/a/GF3NNKGP05198NMR.html?spss=newsapp)**
-
-据《网易新闻》2021年7月17日电，美国时间周五（16日，或北京时间17日）数据显示，中共病毒感染病例飙升至74000例。其中，佛罗里达洲在本周的新增病例比上周多了接近一倍，为45604例。次日便回归到新增病例12146例，这引起了美国民众的广泛关注。
-
-**4.[北卡罗纳州发起了“上门”注射疫苗运动](https://www.foxnews.com/health/north-carolina-county-doses-to-doors-vaccine)**
-
-据《福克斯新闻》(foxnews)2021年7月19日电，在北卡罗来纳州[梅克伦堡县](https://www.mecknc.gov/COVID-19/Pages/Home.aspx)，卫生部门工作人员和社区外联团体发起了一场“上门疫苗服务”活动，该县只有一半的注射率。白宫新闻秘书珍·普萨基周五谴责南卡罗纳州州长亨利·麦克马斯特等人没有提供所在州人民的疫苗信息。“上门疫苗服务”的志愿者表示这是证明疫苗的有效性，绝不是强制性的。
-
-**5.[英国今解封，夜店如同新年一样](https://news.ltn.com.tw/news/world/breakingnews/3608058)**
-
-据《自由时报》2021年7月19日电，英国政府今天几乎完全解除了中共病毒的防疫限制，导致伦敦凌晨的夜店犹如新年一般。英国政府科学顾问的流行病学家佛格森(Neil Ferguson)于昨日（18日）表示，解封后英国单日的新增病例将暴增至20万；单日新增的住院病例数或超过2千例。当前疫苗显然对三角洲病毒没有抵抗效果。
-
-审核：蚂蚁兄弟； 校对：阿伯塔； 发稿：信心的选择
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19065322/GNEWS_CH.-2.jpeg)
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
