@@ -2,47 +2,27 @@
 ---
 
 
-## 【新闻速递】道指经历了近九个月以来最糟糕的一天
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407695/)
+## 【秘翻在线】戴薇夫人可不一般！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407797/)
 
-作者：纽约香草山健身部 Jack Li文阳
+撰稿：待命（文晓）
 
+责编：待命（文晓）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19224804/%E7%94%BB%E5%83%8F1-7.png)[图片来源](https://zhuanlan.zhihu.com/p/97871067)
+7月19日，「中日体育」在日本雅虎网站发文称：
 
+名人戴薇夫人（81岁）18日更新了她的推特。关于东京奥运会开幕在即，她说：”没有观众的奥运是毫无意义的”。这个帖子，在互联网上引起了争议。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+对于在东京和其它城市举行没有观众的奥运会之决定，她说：奥运会应该在有观众的情形下举行，没有观众是毫无意义的，我们应该有尊严地举办这个世界性的盛会。
 
+她还表示：日本人对国际奥委会主席巴赫的不尊重是一种耻辱。政府和人民现在应该团结起来，向世界展示一个不屈服于中共病毒，使奥运会获得成功的日本。
 
+互联网上有人赞同这个观点：”职业棒球和联赛能有观众，奥运也应该有观众”。”既然决定举办奥运，却又决定无观众，这是最愚蠢的事情”。还有人持怀疑态度称：”即便是你的家人发生了不幸，你也能这样说吗？”。”避免尴尬比让人死亡更重要吗？”。 “在疫苗接种不足的情况下，有观众是一件可怕的事情。”等等”。
 
-7 月 19 日路透社报道，由于投资者担心病毒导致再次停顿和经济复苏遥遥无期，Delta变种感染人数的激增引发了周一华尔街的大幅抛售。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19222332/Untitled-design-6-1.png)图片来源：Getty Images
-美国三大股指收盘均大幅走低，标普和纳斯达克指数录得自 5 月中旬以来的最大单日百分比跌幅，道指经历了近九个月以来最糟糕的一天，避险情绪也导致美国 10 年期国债收益率下滑，拉动对利率敏感的银行股价。
+印度尼西亚前总统苏加诺的日本妻子，戴薇夫人已81岁高龄。但却总是美丽大方，仪表端庄的出境。而且，在电视直播中与时俱进、谈吐不凡。笔者在日近三十年，所见之处，不得不感叹：印度尼西亚前总统苏加诺真是好眼力，一见钟情、一追到底于德维夫人！这位戴薇夫人可不一般！
 
-“股市大跌的原因大部分与 Delta 变种病毒有关，”芝加哥 Kingsview Asset Management 的投资组合经理 Paul Nolte 表示。“也有人担心经济可能不会像每个人想象的那样迅速开放，而每个人都期待的大繁荣将更像是流行而不是繁荣。” Paul Nolte 补充说：“可悲的是，我们正远离快速的经济增长，从我们看到的活动来看，我们高估了很多经济报告。”
+[信息来源](https://news.yahoo.co.jp/articles/802bb40e119705a60ebd5b047b5e47018f79dd40)
 
-旅游和休闲类股暴跌，标准普尔 1500 航空公司指数和标准普尔 1500 酒店和餐厅指数(.SPCOMHRL) 跌幅明显高于大盘。
-
-衡量投资者焦虑程度的“悲观指数”VIX 达到两个月以来的最高水平。
-
-新闻来源：https://www.reuters.com/business/wall-street-ends-sharply-lower-delta-variant-sparks-new-lockdown-fears-2021-07-19/
-
-校对/发稿：火内
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章仅代表作者个人观点）
 
 0

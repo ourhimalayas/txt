@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/20/2021 2:56 AM (UTC)`
+
+今天的郑州．太像欧洲……
+![img](https://media.gettr.com/group42/getter/2021/07/20/02/5d0fec79-c62d-6fc3-4a31-8480a1f74705/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mtg4america 7/20/2021 12:55 AM (UTC)`
@@ -304,15 +311,6 @@ I sent a message to GETTR and within minutes I had a response via email. Now tha
 
 The internationalization of the RMB is a currency bomb and a  financial trap set by CCP.  And the RBM will be worthless; China's real estate and finance are about to collapse. <br/><br/>Wang Dinggang and Snake Demon Yan will go back to where they should be!
 ![img](https://media.gettr.com/group40/getter/2021/07/15/18/5c6747bf-044c-6da1-c224-27e2f35a7b8d/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@senategop 7/12/2021 7:58 PM (UTC)`
-
-America stands with the Cuban people.<br/> <br/>America stands against socialism + communism.<br/><br/>America stands for freedom.
-![img](https://media.gettr.com/group45/origin/2021/07/12/19/82fafadd-d113-d039-3aa2-895c8203175f/out.jpg)
 
 ---
 

@@ -2,63 +2,57 @@
 ---
 
 
-## 【新闻速递】因Covid-19病例持续激增 泰国抗议者与警察发生冲突
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407672/)
+## 【新闻速递】东京奥运村的第三名运动员新冠检测呈阳性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407749/)
 
-翻译：纽约香草山健身部 文真
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-新闻来源：CNN
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-新闻链接：[Thai protesters clash with police as Covid-19 cases continue to surge](https://www.cnn.com/2021/07/19/asia/thailand-protests-covid-intl-hnk/index.html?fbclid=IwAR05saHmMtW4KmVu9aY4AE1taVeQIDcE0jbOu9G8nUkZ9M9OgVdNiA7aD30)
 
-译文：
 
-周日，抗议者试图前往泰国总理巴育-占奥查（Prayuth Chan-ocha）的办公室，要求他因处理新冠病毒大流行及其经济影响不当而引咎辞职。警方使用催泪瓦斯、水炮和橡皮子弹驱散抗议者。
+7月19日东京奥运会，捷克共和国队周一报告了一名接种了疫苗的沙滩排球运动员被检测出新冠病毒阳性，可能会缺席第一场比赛，他是东京奥运村的第三名检测呈阳性的运动员。周日另两名南非男子足球运动员被宣布感染了新冠病毒 。
 
-![]()![](https://cdn.cnn.com/cnnnext/dam/assets/210718233708-01-thailand-protests-0718-restricted-exlarge-169.jpg)
+在检测确认感染后，捷克沙滩排球运动员 Ondřej Perušič 可能会错过周一的首场比赛。本来他和他的队友将开始他们的奥运项目，对阵来自拉脱维亚的球队。捷克队领队马丁·多克托尔在一份声明中表示，他们将要求推迟比赛，直到被感染的球员获准参加比赛。Ondřej Perušič 说他已经接种了疫苗，他是捷克代表团中第二位在东京检测呈阳性的成员，另一位是在周六检验出的一名球队官员。另外，他是第三位留在村里检测呈阳性的运动员，另两位是周日宣布的两名南非男子足球运动员。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19223659/Untitled-design-9-1.png)图片来源：路透社
+同样在周一，美国体操运动员Kara Eaker的私人教练证实，这位 18 岁的替补选手在日本的一个奥运会训练营中检测呈阳性。教练 Al Fong 说，两个月前，18 岁的 Eaker 接种了新型冠状病毒疫苗。 Eaker是抵达日本后的第一位被检测呈阳性的美国运动员，他一直与其他替补队员同住。
 
-警方称，在冲突中有8名警官和至少一名记者受伤，还有13名抗议者被逮捕。
+一天前检测呈阳性的南非球员和一名球队视频分析员被转移到东京奥组委管理的“隔离设施”。
 
-抗议活动的组织者要求在下午6点后结束示威活动，但因警察和数百名抗议者持续对峙了几个小时，直到晚上9点泰国首都开始实施宵禁前，警察才驱散了人群。
+在南非队周围的 21 名密切接触者，在周四对阵日本队的第一场比赛之前，正面临额外的监测。监控制度包括每日测试、乘坐专用车辆旅行、与未受影响的队友分开训练以及被限制在自己的房间里吃饭。
 
-一些抗议者试图拆除当局设置的从民主纪念碑到政府大楼的铁丝网和金属路障，之后警方进行了武力干预。
+奥运会运营总监Pierre Ducrey 表示：“尽管他们是密切接触者，可以尽量少做事情，这样就可以在受到监控的同时继续为奥运会做准备。”
 
-警方副发言人Kissana Phathanacharoen说，抗议者用“乒乓弹、吊枪和爆竹”攻击警方。他补充说，警方的行动遵循法律和法规，完全遵守控制人群的国际标准。
+周一早些时候，在报道捷克病例之前，东京奥运会组织者确认了三起新的新冠病例，其中包括一名抵达东京的媒体工作者和一名在千叶县的奥运会工作人员或官员。组织者说，这两名身份不明的人都要进行了 14 天的隔离。
 
-最近几周，包括巴育的前政治盟友在内的一些团体举行了反对总理的街头抗议活动，因为不断增加的新冠病毒感染和大流行病对经济造成的损害，人们的沮丧感日益强烈。
+东京都当局周一报告了 727 例新的 COVID-19 病例，这是该数字连续第 30 天高于前一周。上周一的数字是 502。
 
-周日的活动中，许多抗议者携带模拟尸袋，代表新冠病毒造成的死亡。
+比赛于周五开幕，几乎所有活动场地都没有球迷，包括开幕式。现在，东京处于紧急状态，疫苗推出速度比预期的要慢。日本当局周一表示，该国 1.26 亿人口中有 21.6% 的人已全面接种疫苗。
 
-34岁的抗议者Kanyaporn Veeratat告诉路透社：“政府在控制疫情方面一直很差，如果我们不做任何事情，就不会有任何改变。”
+自 7 月 1 日宣布两个新病例之前，与奥运会相关的感染总数正式为 58 例，他们应该在周二被添加到官方统计中。Ducrey 说，自 7 月 1 日以来有 22,000 人抵达日本，其中 4,000 人留在了该村。大约有 11,000 名运动员计划参加东京奥运会。
 
-由青年团体领导的第一次大规模街头抗议浪潮已经过去了一年，该浪潮吸引了全国各地数十万人参加。此次抗议活动也恰逢抗议浪潮的一周年纪念。
+新闻来源：https://abcnews.go.com/Sports/wireStory/olympic-athlete-tests-positive-tokyo-days-1st-game-78921440
 
-周一，泰国报告了11,784例新增Covid-19病例——连续第四天创下感染记录——以及81例相关死亡病例。目前，泰国死亡病例总数达到3,422例，登记病例总数为415,170例。
+校对/发稿：火内
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
-编辑/校对/发稿：Irene木木
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+
+
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
 
 0

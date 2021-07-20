@@ -16,37 +16,37 @@
 
 ---
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/1/README.md)
+### [【深度报道】令人尊敬的医学主持人成了疫苗推销员](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/2/README.md)
+### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/3/README.md)
+### [中共危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/4/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【三票专栏】谈谈叛徒的品位](/content/gnews/4/README.md)
+### [【三票专栏】谈谈叛徒的品位](/content/gnews/5/README.md)
  ` 三票先生`
 
-### [海地面临着混乱的领导人危机](/content/gnews/5/README.md)
- ` 闪电侠`
+### [7.16文贵先生盖特要点](/content/gnews/6/README.md)
+ ` 左媛专栏`
 
-### [【文贵直播摘录】2021年7月18日：世界、中共和爆料革命的最新动态](/content/gnews/6/README.md)
+### [【文贵直播摘录】2021年7月18日：世界、中共和爆料革命的最新动态](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [2021/07/19-001 文贵先生盖特精要](/content/gnews/7/README.md)
+### [2021/07/19-001 文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭爆料串珠（322）中共高官的性变态视频，看完你就不想活了](/content/gnews/8/README.md)
- ` 郭爆料串珠`
-
-### [【新闻速递】因Covid-19病例持续激增 泰国抗议者与警察发生冲突](/content/gnews/9/README.md)
+### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [纳瓦罗全文译：拜登将川普疫苗武器化](/content/gnews/10/README.md)
- ` 曹操`
+### [【新闻速递】东京奥运村的第三名运动员新冠检测呈阳性](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
 
-### [【新闻速递】韩国一艘驱逐舰上超过80%的船员Covid-19检测呈阳性](/content/gnews/11/README.md)
+### [【新闻速递】因Covid-19病例持续激增 泰国抗议者与警察发生冲突](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/12/README.md)
@@ -88,35 +88,35 @@
 ### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/24/README.md)
  ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [【秘翻在线】口惠而实不至 拜登对待中共微软骇客事件态度暧昧](/content/gnews/25/README.md)
+### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
+
+### [【秘翻在线】戴薇夫人可不一般！](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【新闻速递】道指经历了近九个月以来最糟糕的一天](/content/gnews/26/README.md)
+### [【秘翻在线】Ben &amp; Jerry&#8217;s 因抗议活动停止在约旦河西岸销售冰淇淋](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【新闻速递】东京奥运村的第三名运动员新冠检测呈阳性](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [日本读卖新闻头版独家报道—中国人留学雪上加霜](/content/gnews/27/README.md)
- ` 日本东京樱花团`
+### [【秘翻在线】口惠而实不至 拜登对待中共微软骇客事件态度暧昧](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【新闻速递】因Covid-19病例持续激增 泰国抗议者与警察发生冲突](/content/gnews/28/README.md)
+### [【新闻速递】道指经历了近九个月以来最糟糕的一天](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [挪威：源自中共国的黑客今年3月曾袭击其议会电邮系统](/content/gnews/29/README.md)
+### [柯达IG发新疆照片提大规模囚禁 遭中共和小粉红围攻](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [纳瓦罗全文译：拜登将川普疫苗武器化](/content/gnews/30/README.md)
- ` 曹操`
-
-### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/31/README.md)
+### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【澳洲热点】短视频：澳美军演展示利器震慑中共国](/content/gnews/32/README.md)
+### [【澳洲热点】短视频：澳美军演展示利器震慑中共国](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【热点播报】美国指责中共国情报人员策划了对微软和其他国家的黑客活动](/content/gnews/33/README.md)
+### [【热点播报】美国指责中共国情报人员策划了对微软和其他国家的黑客活动](/content/gnews/34/README.md)
  ` 纽约香草山MOS03`
-
-### [美国起诉四名中共特工](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【粤语配音】班农：记住郭文贵对美国和西方的警告](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

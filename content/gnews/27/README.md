@@ -2,29 +2,18 @@
 ---
 
 
-## 日本读卖新闻头版独家报道—中国人留学雪上加霜
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1407724/)
+## 【秘翻在线】Ben &amp; Jerry&#8217;s 因抗议活动停止在约旦河西岸销售冰淇淋
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407784/)
 
-撰稿：东京樱花团/待命（文晓）
-校对：东京樱花团/喜马拉雅的微尘
+#### 编译：花岗岩
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19224819/bj.jpg)图片来源：网络截图
+据7 月 19日《纽约邮报》报道，联合利华（Unilever）旗下冰淇淋品牌 Ben & Jerry’s 由于在线抗议者的巨大压力，在周一宣布将停止在“被占领的巴勒斯坦领土”销售冰淇淋。该公司认为，在巴勒斯坦被占领土 (the Occupied Palestinian Territory/OPT) 出售  Ben & Jerry 冰淇淋与我们的价值观不一致。”这一声明引起了以色列人的愤怒，其中包括最近被罢免的总理本雅明·内塔尼亚胡（Benjamin Netanyahu）。
 
+这家冰淇淋制造商还表示，该公司不会撤出以色列，它将继续以不同的方式在以色列销售冰淇淋。Ben & Jerry’s，以大胆介入有争议的社会问题而声名鹊起，在2000年被欧洲消费品集团联合利华 (Unilever) 收购。联合利华在一份声明中表示尊重该品牌独立董事会的决定，并说其首要任务是为消费者提供健康、幸福和享受的基本产品。但是他们不会撤出以色列市场。
 
+去年，该公司发表了一份题为《沉默不是一种选择》的声明以支持因乔治·弗洛伊德（George Floyd）之死而在全国爆发的“黑命贵”（Black Lives Matter）的抗议活动。
 
-![](https://lh4.googleusercontent.com/ydl3xeTdRiTgtfUxS9P7w5E9Vv2LGEO74QVHGzznt_OTyjJ6l3mKrJes_iVfabEAdEMcYc6aafpHH6fWNTGqaAuuIIhecZJWEYJMwdTXAiuWaPQJ6lUN6RrnxXEyjyhnPrsNmMPb)
-[图片来源](https://zhuanlan.zhihu.com/p/262504693)
-
-7月20日，著名的读卖新闻在日本雅虎网站刊登头版独家报道：【加强对尖端技术专业留学生的移民审查. . .来自中共国的情况下，要求提供职历和接受财政研究经费援助的报告】
-
-据悉，日本政府已决定，今年春天开始强化在日本大学学习的外国人的移民标准。新规定要求对那些在日本大学学习可用于军事目的相关先进技术的人，所在校不仅要向移民和归化局详细报告他们的学术和就业史，必要时还要报告资助他们学习或研究的组织和公司。如果大学判断某人在经济和安全方面可疑的情况下，将考虑不签发签证。
-
-该消息是由几位政府官员透露的。出于对中共国现状的考虑，该机构旨在防止可用于军事目的的先进技术外流。该机构由国家安全局（NSS）牵头，与外交部和经济、贸易和工业部合作开展这项工作。
-
-之前，大学只需要向该机构提交同意接受外国学生的信函和说明其最终教育背景的简历（CV）即可。新规定要求研究火箭材料和人工智能（AI）的外国学生提交能够详细说明他们过去的学术和专业历史的资料，以及详细的个人简历，包括其组织以及合同关系。
-
-[消息来源](https://news.yahoo.co.jp/articles/06eee08322abddf4539afb766ad1e0e27e86cba8)：
-
-（文章仅代表作者个人观点）
-
-发布：东京樱花团/煙火1095
+**新闻来源：**[Ben & Jerry’s stops selling ice cream in West Bank amid protests](https://nypost.com/2021/07/19/ben-jerrys-stops-selling-ice-cream-in-west-bank/)
 
 0

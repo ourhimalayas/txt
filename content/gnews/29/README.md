@@ -2,34 +2,20 @@
 ---
 
 
-## 挪威：源自中共国的黑客今年3月曾袭击其议会电邮系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1407710/)
+## 【秘翻在线】口惠而实不至 拜登对待中共微软骇客事件态度暧昧
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407744/)
 
-2021年7月19日
+#### 撰稿：坤霆
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19222907/000-1.jpg)图片来源：洛杉矶时报
+据新闻博客网站“网关专家”（the gateway pundit）7月19日报道，美国总统乔·拜登（Joe Biden）在周一的记者会上被问到，“在中共国国家支持的黑客广泛黑客入侵微软服务器后，为什么他的政府不对中国实施制裁？”，以及“中国在网络攻击方面所做的和俄罗斯所做的有什么区别？”等问题。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19221139/0-1-11.png)
+但拜登仅仅对中共的网络破坏行为口炮了几句，并未做出实质性回应，或流露出采取任何行动的意思。
 
-编辑摘要：
+尤其对于第二个问题，拜登吞吞吐吐地找了一个可悲的借口， “我的理解是，中国政府——与俄罗斯政府没有什么不同，他们这样做不是为了他们自己，而是在保护那些这样做的人。”记者对此颇有微词。
 
-挪威7月19日表示，3月10日针对该国议会电子邮件系统的网络攻击源自中共国。挪威呼吁中共当局采取措施防止此类活动。
+对此，“网管专家”评论道，“乔·拜登本可以节省很多时间，只要说他不能制裁中（共）国，因为他的儿子亨特（Hunter Biden）的投资公司与中（共）国银行签署了10亿美元的投资协议。”
 
-挪威外交部表示，挪威情报机构的调查显示，这次攻击来自“在中共国运作的行为者”。“我们的几个盟友、欧盟和微软也证实了这一点。”
-
-挪威的声明是国际协调反应的一部分。美国和由美国盟国组成的联盟指责中国国家安全部发起了一场全球网络黑客活动，并具体指明，今年早些时候披露的一场更广泛的针对微软发起的攻击是源自于中共国。
-
-中共国大使馆质疑挪威与其他西方国家的协调行动是否是“一场相互串通的政治操弄”。
-
-**【**[新闻来源](https://www.voachinese.com/a/Norway-cyber-china-20210719/5971736.html)**】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+原文链接：[China Joe Says He Won’t Sanction China For Its Recent Widespread Hack of Microsoft Exchange Server](https://www.thegatewaypundit.com/2021/07/china-joe-says-wont-sanction-china-recent-widespread-hack-microsoft-exchange-server-video/)
 
 0
