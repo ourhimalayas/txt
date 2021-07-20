@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/20/2021 2:13 PM (UTC)`
+
+This is Li-Meng Yan, whom Mr. Miles Guo and many fellow fighters risked so much to help escaped from Hong Kong and made her a so-called hero, but she suddenly started to threaten and discredit Mr. Guo in her broadcast on July 12, 2021<br/><br/>这是郭文贵先生花巨资，冒着巨大的风险和战友们将闫丽梦从香港拯救到美国纽约，并将她塑造成英雄之后，她在2021年7月12日的直播中威胁伤害郭文贵先生的视频
+![img](https://media.gettr.com/group22/getter/2021/07/20/14/e371e6a1-97dc-7167-927d-a342914a15b6/out.jpg)
+
+---
+
 `@miles 7/20/2021 1:18 PM (UTC)`
 
 7月20号：尊敬的战友好．共产党策划的．以路大骗子．蛇妖闫．失败者塞林．找爹博．癌症丽．德意志之鹰为首的．最大的灭爆行动已经宣告彻底失败，这次战斗更加巩固了新中国联邦爆料革命以毒灭共的基础……和信心！
@@ -303,13 +310,6 @@ Welcome to the great @steveguest!<br/><br/>https://www.gettr.com/user/steveguest
 
 一切都已经开始<br/><br/>【大家好，闫在Zenodo网站上发表的那3篇有关病毒的报告 ➕ 2篇文章，已经被全部拿下！谢谢！】
 ![img](https://media.gettr.com/group31/getter/2021/07/16/13/538b5404-e827-b516-e500-5f3c77d44acf/50d15e467649dccf1c1776b5cb3632bd.jpg)
-
----
-
-`@miles 7/16/2021 1:29 PM (UTC)`
-
-7月16号：尊敬的战友们好，快去看正在进行的真人真事．番外篇的直播吧。<br/><br/>https://gtv.org/broadcast/watch/60f17c09d7e3a701356754e1
-![img](https://media.gettr.com/group14/getter/2021/07/16/13/0e047d42-2615-717d-c822-90cc775e933f/a9d5b30522a47fd7d2740d5608e0c2dd.jpg)
 
 ---
 
