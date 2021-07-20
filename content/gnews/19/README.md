@@ -2,49 +2,152 @@
 ---
 
 
-## 【澳洲热点】短视频：“护卫军刀”澳美军演向北京传递“威慑信息”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1409636/)
+## 共产主义国家，如果有与政府正统相反事实，独裁政权会阻止你分享事实
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1409686/)
 
-翻译：文扬
+**字幕内容:**
 
-校对/编辑：文泓
+Maria Bartiromo (Fox News host)
+玛丽亚·巴蒂罗莫（福克斯新闻主持人）
 
-听写核对：枳实
+yeah I’m very disturbed I want to get to Cuba,
+是的，我很不安，谈到古巴
 
-视频字幕：七彩光
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20165202/7.21-1-1.jpg)
-图片来源：视频截屏
+I know that you have witnessed the effects
+我知道你已经与你的父亲和你的阿姨
 
-中共军方对澳美军事演习的兴趣正在加大，试图通过向昆士兰海岸派遣第二艘间谍船，向太平洋地区施加越来越大的影响。名为“护身军刀”高标准实弹军演，目前正在罗克汉普顿附近的肖尔沃特湾训练场附近进行，参与演习的有澳大利亚，美国和日本军队，以及韩国、新西兰和加拿大，甚至一些英国人员。上周，中共国派出了一艘高度精密的情报船通过托雷斯海峡，另一艘在过去几天内穿越太平洋。（现在）这些间谍船滞留在澳大利亚领海之外。国防部长彼得·达顿（Peter Dutton）说，中共国（对军演）感兴趣并不意外，但他对北京派出两艘船感到惊讶，并希望它们遵守国际法。现在从澳大利亚战略政策研究所加入访谈还有迈克尔·谢尔桥（Michael shear bridge），迈克尔，好吧，这些中国船只想干什么？
+of this communist regime firsthand with your father and your aunt,
+亲眼目睹了这个共产主义政权的统治
 
-嗯，克里斯，这很有意思。这两艘中国军用间谍船，它们都是大型电磁（信号）吸尘器。 但是，当他们在七国联合军演一侧窥视时，他们正在竭力遵守所有国际法，而同样这些船只和更多的中共海军（舰船）每天都在南海、台湾周围和日本沿海违反这些法律。（现在）他们表现出惊人的虚伪，因为他们清楚地了解他们所违反的法律。他们努力遵守这些法律，只是因为他们认为这样做对他们在昆士兰海岸（监测军演）比较有利。
+but first on China. I mean,
+但是首先关于中共国，我的意思
 
-是的，好吧，（防长）达顿说他们应该遵守法律，你在暗示他们实际违反法律。想问你，如果我们在他们的演习中做同样的事情，中共国会如何反应？ 我的意思是，也许，这就是美国海军一直会做的事情？
+Joe Biden says he’s the one leader that knows Xi Jinping best on the world stage,
+乔拜登说他是世界舞台上最了解习近平的一位领导人
 
-哦，不。我的意思是，两艘间谍船在昆士兰外海徘徊时，他们正在竭力遵守国际法。但是现在，南海和台湾附近，以及靠近日本的地方，中共海军正在违反同样的法律。所以（现在）事实告诉我们，他们这些法律了如指掌，但只要对他们有利，他们就会随心所欲地违反这些法律。
+and that Xi Jinping truly believes he’s going to acquire America
+并且习近平真的相信他会兼并美国
 
-是的，现在，总结得好！他们的虚伪很明显。但是，当中共军队在台湾海峡进行军事演习时，例如，可能是美国舰船，对他们的船只进行监视，并试图获取任何他们可以获得的东西，那又该如何？
+and overtake America within 15 years.
+并在 15 年内超越美国
 
-（美军）绝对会的，但会按照国际法运作。不过，我认为“护卫军刀”澳美军演的重要意义，是向北京发出的一个威慑性信号。而且，（间谍船）拥有这些强力电磁（信号）吸尘器，实际上是作用的。他们试图观察强大的七国军队是如何协同作战，而多国协同作战的方式，就是为了阻止中共军队做愚蠢的事情。
+I mean, they’re following our political debates,
+我的意思是，他们在关注我们的政治辩论
 
-是的，好吧，接下来探讨一下与中国有关的另一个话题，我想参考托尼·阿博特主持的一个播客。节目的前期讲到国家内阁时谈到了这一点，他对与中国的贸易关系也有些看法。他谈到了中共国对澳大利亚的贸易行动，也谈到了需要参考唐纳德·川普是如何对抗中共国的。
+they’re piling on
+他们在堆积
 
-尼克，令我深感焦虑的是，西方世界现在与共产主义中国的较量，将与（历史上）老牌的苏联集团长期较量一样困难。因为旧苏联虽然是一个一流的军事强国，但它只是一个三流的经济体。我们现在面对的是一个一流的经济体，正在迅速发展相应的军事力量。当然，还有14亿中国人，而即使在苏联的全盛时期，俄罗斯的人口也只有美国的一半。
+do the progressives understand the dangerous situation they’re putting this country in.
+进步人士是否了解他们将这个国家置于危险境地？
 
-我认为（需要）认识到中共国是一个问题，它仍然是一个共产主义国家。当然，冷战看似结束了，但实际上却（因中共而）加剧了。
+The CCP has goals, their Belt and Road Initiative,
+中共有目标，他们的“一带一路”倡议，
 
-迈克尔，这里的重点是用冷战的术语来谈论这个问题，认为这将比原来与苏联的冷战更加困难，因为（中共国）有额外的人口和财富。
+their civil military fusion, they want to overtake the United States
+他们的军民融合，他们想超越美国
 
-嗯，我认为他提出了一个非常重要的观点。托尼·阿博特说的掷地有声的的事情之一是，别再说这只是美国和中国之间的事。正如我们在康沃尔的七国集团会议上看到的那样，面对来自中共国的咄咄逼人的挑战，有众多的国家因为共同的利益而在共同应对。这就是我们在昆士兰海岸看到的，七个强大的国家一起合作应对中共国的挑战。这虽然是一个长期的战略，但与短短2年前相比，我们现在已经有了更多的力量和信心。
+is the Biden administration, enabling it with all of this censorship.
+拜登政府会通过所有这些审查制度使中共实现其计划吗？
 
-**原文链接：**
+Senator Ted Cruz
+参议员特德克鲁兹
 
-[Major military exercises in QLD serve as ‘deterrent message’ to Beijing | Sky News Australia](https://www.skynews.com.au/opinion/chris-kenny/major-military-exercises-in-qld-serve-as-deterrent-message-to-beijing/video/3c49caef73e407001b1a8d45bc28c989)
+So unfortunately they are and one of the sad realities today
+所以不幸的是，今天的悲惨现实之一是
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Is the Democratic Party is structurally pro China,
+民主党在结构上是亲中共国的
+
+the Democratic party today is funded by their biggest funders are big tech
+今天民主党的最大的资助者是提供资金的大科技公司
+
+and big tech is in bed with the Chinese Communist
+而大型科技公司与中国共产党同床共枕
+
+among the biggest funders of the Democratic Party are the giant corporations
+民主党最大的资助者是大公司
+
+and many of the giant corporations
+许多财富 50 强和财富 100 强
+
+the fortune 50 and fortune 100 are in bed with the Chinese Communist,
+的大公司与中国共产党同床共枕
+
+and you look at the Biden administration just six months into it,
+而且你看看拜登政府仅仅执政六个月
+
+Joe Biden named the UN ambassador.
+乔拜登任命了联合国大使
+
+An individual who last year, gave a pay speech for a Confucius Institute,
+她去年为孔子学院做了一个付费演讲
+
+paid for by the Chinese Communist government,
+由中共政府支付的
+
+praising the Chinese Communist government,
+赞美中国共产党政府
+
+just a couple of months in the Biden administration reversed the State Depart-ment policy
+拜登政府仅仅几个月就扭转了国务院的政策
+
+and they now banned Taiwan,
+而且他们现在禁止台湾官员
+
+any Taiwanese official from displaying a Taiwanese military uniform
+在美国政府财产上展示台湾军装
+
+from displaying a Taiwanese flag on US government property
+展示台湾国旗
+
+why because it offends the communist government overlords, in China,
+为什么？因为它冒犯了中国共产党政府的霸主
+
+and I gotta tell you,
+我得告诉你
+
+we really saw just how pro China today’s Democrats
+我们真的看到了今天的民主党人在参议院外交关系委员会中
+
+are in the Senate Foreign Relations Committee
+是多么的亲中共国
+
+where we were debating Joe Biden’s Green New Deal executive order,
+我们在那里辩论乔拜登的绿色新政行政命令
+
+I introduced an amendment that said,
+我提出了一项修正案，说
+
+All right, you can’t buy electric cars from the region in China,
+好吧，你不能购买中共国这个地区的电动车
+
+where the Uighurs are being held in concentration camps are being tortured are being murdered,
+那里是维吾尔人被关押在集中营，被折磨，被谋杀的地方
+
+you can’t buy electric cars that were made with Chinese slave labor.
+你不能购买中共国奴隶制造的电动汽车
+
+And every single Senate Democrat on the committee voted no,
+委员会中的每一位参议院民主党人都投了反对票
+
+because they’re much more committed to the radical environmental agenda
+因为他们更加致力于激进的环境议程
+
+than they are to not funding slave labor from the Chinese communist govern-ments.
+而不是不资助中国共产党政府的奴隶劳工
+
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
+
+**原视频链接: **[https://twitter.com/tedcruz/status/1416849000792215553?s=24](https://twitter.com/tedcruz/status/1416849000792215553?s=24)
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校： 洛杉矶盘古农场- Mike Li
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：发布 : 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
