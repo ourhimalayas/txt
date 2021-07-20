@@ -2,10 +2,45 @@
 ---
 
 
-## 【中共国段子】密集恐惧症
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1408470/)
+## 美国副国务卿将在下周访问日本、韩国和蒙古
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1408633/)
 
-【作者】Odin
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20062018/simplified43.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
+据《亚洲日经》 转载路透社文章，2021年7月15日发布
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20083819/1B79B3BE-6B07-4D3A-AFC9-9162CB5B1356.jpeg)*美国副国务卿温迪-谢尔曼计划在本月晚些时候访问亚洲。   © 路透社*
+华盛顿（路透社）：美国国务院表示，美国副国务卿温迪·谢尔曼将在下周访问日本、韩国和蒙古，没有提及外交政策界所期待的和一些媒体所报道的那样，在中共国的任何停留。
+
+在国务院周四宣布这一消息后，消息人士告诉路透社，华盛顿准备在周五对中共国官员实施制裁，因为北京对香港的民主进行了镇压，并对在香港经营的国际企业发出警告，警告他们情况正在恶化。
+
+美国总统拜登在与来访的德国总理安格拉·默克尔举行的新闻发布会上被问及咨询计划时说，香港的情况正在“恶化”。
+
+美国和中共国的关系深陷困境，自拜登政府3月在阿拉斯加举行的首次高级外交会议以来，双方几乎没有高层面对面的接触，当时中方对美国在会谈前宣布的制裁表示愤怒。
+
+在那次会议之前，华盛顿已经采取了一系列行动：包括开始撤销中共国的电信执照，出于国家安全考虑向多家中共国信息技术公司发出传票，以及追加对香港的制裁。
+
+谢尔曼此行将是她在不到两个月的时间里第二次访问亚洲，此前她在5月底和6月初访问了印度尼西亚、柬埔寨和泰国。
+
+美国国务院表示，她将与日本官员讨论一系列问题，包括气候危机和加强全球卫生安全。
+
+它说，谢尔曼和日本及韩国的同行将举行一次联合会议，讨论在朝鲜和其他问题上的合作，包括气候变化和全球健康。
+
+声明说，她将在首尔举行进一步会谈，然后前往乌兰巴托加强美国和蒙古的战略伙伴关系，并补充说此行日期从7月18日至25日。
+
+声明说，谢尔曼将“重申美国致力于与盟友和伙伴合作，促进印度洋·太平洋地区的和平、安全和繁荣，并维护基于规则的国际秩序”，国务院用这种语言来指称其反击中共国的努力。
+
+白宫说，周五，拜登将参加亚太贸易集团（APEC）领导人的虚拟会议，会议将讨论终结COVID-19大流行病和支持全球经济复苏。
+
+它说，这将是拜登与许多亚太经合组织领导人，特别是东南亚领导人的首次接触，他将“强调对该亚太地区的重视，以及他对自由和开放的印度洋·太平洋的愿景。”
+
+国务卿安东尼·布林肯本周与东南亚国家联盟（ASEAN）的同行举行了一次虚拟会议，并表示华盛顿拒绝中共国在南中国海的“非法”海洋主张，并与面临中国 “胁迫”的东南亚国家站在一起。
+
+这次会议是在外交官和其他人士担心华盛顿没有对这个对抗中共国的至关重要的战略地区给予足够重视的情况下召开的。
+
+文章来源:[https://asia.nikkei.com/Politics/International-relations/Senior-US-diplomat-Sherman-to-visit-Japan-South-Korea-Mongolia](https://asia.nikkei.com/Politics/International-relations/Senior-US-diplomat-Sherman-to-visit-Japan-South-Korea-Mongolia)
+
+翻译:洛杉矶盘古农场 – Mike Li 校对:洛杉矶盘古农场 – 心照 编辑:洛杉矶盘古农场 – 轰炸机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 0

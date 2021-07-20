@@ -40,13 +40,13 @@
 ### [2021年7月19日 文贵先生盖特 8](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [美国前线医生对卫生与公众服务部(DHHS)部长的起诉书(1)](/content/gnews/9/README.md)
- ` Runaway`
+### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【西媒头条】第27期（2021年7月20日）](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】墙国强制接种的闹剧一出双簧？](/content/gnews/11/README.md)
+### [2021年7月20日灭共要闻](/content/gnews/11/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
@@ -88,35 +88,35 @@
 ### [2021/07/17 世卫承认存在病毒实验室泄漏的可能性](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国前线医生对卫生与公众服务部(DHHS)部长的起诉书(1)](/content/gnews/25/README.md)
+### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国前线医生对卫生与公众服务部(DHHS)部长的起诉书(1)](/content/gnews/27/README.md)
  ` Runaway`
 
-### [【秘翻在线】印度中共病毒死亡人数或超过400万](/content/gnews/26/README.md)
+### [【秘翻在线】印度中共病毒死亡人数或超过400万](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】震惊：媒体披露针对全球政客、活动家和记者的网络间谍武器被滥用](/content/gnews/27/README.md)
+### [【秘翻在线】震惊：媒体披露针对全球政客、活动家和记者的网络间谍武器被滥用](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处](/content/gnews/28/README.md)
+### [【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [【NewsExpress】韩国总理和国防部长就文武大帝号驱逐舰群聚感染致歉](/content/gnews/29/README.md)
- ` 索尼克`
-
-### [【NewsExpress】昂山素季的民盟发言人吴年温感染CCP病毒逝世](/content/gnews/30/README.md)
- ` 索尼克`
-
-### [【西媒头条】第27期（2021年7月20日）](/content/gnews/31/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】墙国强制接种的闹剧一出双簧？](/content/gnews/32/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/33/README.md)
+### [【西媒头条】第27期（2021年7月20日）](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】共和党人呼吁美国运动员在北京冬奥期间不要使用数字元](/content/gnews/34/README.md)
+### [【秘翻在线】墙国强制接种的闹剧一出双簧？](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
+
+### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [【百年中共 滔天罪行】第3期](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [网络袭击的真相：原来都是中共国政府雇佣的](/content/gnews/43/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [默克尔在白宫表示：共同的价值观将指导对中共国政策](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【中共国段子】绿色贝雷帽（3）](/content/gnews/44/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+### [2021年7月20日灭共要闻](/content/gnews/44/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【中共国段子】密集恐惧症](/content/gnews/45/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+### [美国副国务卿将在下周访问日本、韩国和蒙古](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [天堂之路不走 地狱之门勇敲](/content/gnews/46/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [“计划生育”的必要性](/content/gnews/47/README.md)
+### [【极新闻】中共释放新的病毒信号吗？](/content/gnews/46/README.md)
  ` 澳喜农场`
 
-### [拜登指责中共国保护黑客](/content/gnews/48/README.md)
+### [网络袭击的真相：原来都是中共国政府雇佣的](/content/gnews/47/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【中共国段子】绿色贝雷帽（3）](/content/gnews/48/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [【中共国段子】密集恐惧症](/content/gnews/49/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [天堂之路不走 地狱之门勇敲](/content/gnews/50/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [“计划生育”的必要性](/content/gnews/51/README.md)
+ ` 澳喜农场`
+
+### [拜登指责中共国保护黑客](/content/gnews/52/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十九）](/content/gnews/49/README.md)
+### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十九）](/content/gnews/53/README.md)
  ` RU WEI`
 
-### [中共国疫苗的失败](/content/gnews/50/README.md)
+### [中共国疫苗的失败](/content/gnews/54/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【雅典娜诗集】亡命腚缸](/content/gnews/51/README.md)
+### [【雅典娜诗集】亡命腚缸](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【周说｜文贵】2021年7月14日至7月16日](/content/gnews/52/README.md)
+### [【周说｜文贵】2021年7月14日至7月16日](/content/gnews/56/README.md)
  ` 纽约香草山MOS02`
-
-### [关键时候还得小蔡](/content/gnews/53/README.md)
- ` 日本东京樱花团`
-
-### [比谁快](/content/gnews/54/README.md)
- ` 日本东京樱花团`
-
-### [东京奥运会开幕式作曲担当小山田圭吾宣布辞职](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击](/content/gnews/56/README.md)
- ` 墨尔本雅典娜农场`
 
