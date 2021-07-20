@@ -16,20 +16,20 @@
 
 ---
 
-### [澳大利亚总理将继续询问有关武汉实验室泄漏的问题](/content/gnews/1/README.md)
+### [世界将在根本上 断绝中共一切关系](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [大洪水袭击中国中部，地铁被淹没](/content/gnews/2/README.md)
+ ` 闪电侠`
+
+### [澳大利亚总理将继续询问有关武汉实验室泄漏的问题](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国联同欧亚盟国共同揭露谴责中共实施恶意网络攻击](/content/gnews/2/README.md)
+### [美国联同欧亚盟国共同揭露谴责中共实施恶意网络攻击](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/3/README.md)
+### [中共国发生首例人类感染猴B病毒，致死率为80%](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [中共威胁对日本使用核武](/content/gnews/4/README.md)
- ` HimalayaRussia`
-
-### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/5/README.md)
- ` 纽约香草山MOS02`
 
 ### [2021年7月20日 文贵先生盖特 5](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
@@ -40,14 +40,14 @@
 ### [2021年7月20日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月20日樱花快报](/content/gnews/9/README.md)
+### [拒绝中共病毒疫苗！为自由而战！](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年7月20日樱花快报](/content/gnews/10/README.md)
  ` 日本东京樱花团`
 
-### [【快讯】韩国军方记录了迄今为止最大的COVID-19感染群](/content/gnews/10/README.md)
+### [【快讯】韩国军方记录了迄今为止最大的COVID-19感染群](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
-
-### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/11/README.md)
- ` G-NEWS TAIWAN`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
  ` 文雍`
@@ -130,57 +130,57 @@
 ### [【粤语配音】班农：记住郭文贵对美国和西方的警告](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [7/19/2021 财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；美国向企业发出关于香港风险的警告](/content/gnews/39/README.md)
+### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [数字货币市场火，媒体大佬忙建平台](/content/gnews/40/README.md)
+### [7/19/2021 财经快讯：耶伦称将努力解决尚未签署税收协议国家的关切问题；美国向企业发出关于香港风险的警告](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [数字货币市场火，媒体大佬忙建平台](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [来自中共的知识产权盗窃的风险在上升](/content/gnews/41/README.md)
+### [来自中共的知识产权盗窃的风险在上升](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
- ` 秘密翻译组金融团队`
-
-### [拜登认为共产主义是“失败的制度”、古巴是“失败的国家”](/content/gnews/43/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共东海“实际使用武器训练”大规模军演尴尬提前结束](/content/gnews/44/README.md)
- ` G-NEWS TAIWAN`
-
-### [世界将在根本上 断绝中共一切关系](/content/gnews/45/README.md)
- ` G-NEWS TAIWAN`
-
-### [[独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施](/content/gnews/46/README.md)
- ` MOSglobal`
-
-### [樱花灭共段子 之 亡腚缸【储君之争】](/content/gnews/47/README.md)
- ` 日本东京樱花团`
-
-### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/48/README.md)
- ` G-NEWS TAIWAN`
-
-### [何时迎来不戴口罩的日子](/content/gnews/49/README.md)
- ` 日本东京樱花团`
-
-### [50国齐声讨，中共的石头最终砸向了自己](/content/gnews/50/README.md)
- ` G-NEWS TAIWAN`
-
-### [美加大金融监管力度中概股在美上巿更积极！](/content/gnews/51/README.md)
- ` G-NEWS TAIWAN`
-
-### [美国指责中共国的黑客行为，在网络攻势中开辟新战线](/content/gnews/52/README.md)
+### [拒绝中共病毒疫苗！为自由而战！](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国家安全部骇客任务，对全球发动情报超限战](/content/gnews/53/README.md)
+### [家庭反洗脑序列：第十八篇 太不靠谱](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [拜登认为共产主义是“失败的制度”、古巴是“失败的国家”](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共东海“实际使用武器训练”大规模军演尴尬提前结束](/content/gnews/46/README.md)
  ` G-NEWS TAIWAN`
 
-### [中资孔子学院将目光投向K-12课堂](/content/gnews/54/README.md)
+### [[独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施](/content/gnews/47/README.md)
+ ` MOSglobal`
+
+### [樱花灭共段子 之 亡腚缸【储君之争】](/content/gnews/48/README.md)
+ ` 日本东京樱花团`
+
+### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/49/README.md)
+ ` G-NEWS TAIWAN`
+
+### [何时迎来不戴口罩的日子](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
+
+### [50国齐声讨，中共的石头最终砸向了自己](/content/gnews/51/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美加大金融监管力度中概股在美上巿更积极！](/content/gnews/52/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美国指责中共国的黑客行为，在网络攻势中开辟新战线](/content/gnews/53/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国家安全部骇客任务，对全球发动情报超限战](/content/gnews/54/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中资孔子学院将目光投向K-12课堂](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【杂谈】路大脑袋的房事](/content/gnews/55/README.md)
+### [【杂谈】路大脑袋的房事](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
-
-### [默克尔在白宫表示：共同的价值观将指导对中共国政策](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

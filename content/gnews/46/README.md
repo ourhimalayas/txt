@@ -2,45 +2,47 @@
 ---
 
 
-## [独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施
-` MOSglobal` [轉載自GNews](https://gnews.org/zh-hans/1408891/)
+## 中共东海“实际使用武器训练”大规模军演尴尬提前结束
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1409108/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
+台湾宝岛农场｜快慢机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20111650/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2021-07-20-231412.jpg)
+7月16日组织发起至21日共计5天的，中共东海“实际使用武器训练”大规模封海军演，在仅仅持续了短短不足48小时后，便匆匆尴尬收场！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20111819/My-Post-3-3.jpg)
+据中共浙江海事局官方网站所发布的最新航行警告讯息显示，7月16号组织发起至7月21日结束，全程预计演习周期为6天的，东海“实际使用武器训练”大规模封海军演行动。已于当地时间7月18日提前草草收场。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20111700/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2-2021-07-20-231437.jpg)
+中共军方随后给出的解释为，由于代号“烟花”的第6号台风，目前正在以10公里/小时的速度，缓慢向东海方向的闽、浙沿海一线区域移动，且强度正在不断升级。预计可达40-48米/秒的13-15级强台风规模。
 
-翻译：纽约香草山翻译部bright lee dt
+鉴于“烟花”台风可能升级的强度规模，及其预计过境区域，将覆盖东海“实际使用武器训练”大规模军演海区。因此，中共军方为保证参演部队官兵及装备的安全等综合因素考量，被迫决定提前终止本次军演。
 
-最近“无德社”的亡腚肛带领的所谓“博士军团”连同蛇妖闫，以及逃亡海外的骗子塞林集体抹黑攻击郭文贵、新中国联邦、法治基金、法治社会、爆料革命及盖特，在多个媒体上稍有名气后企图独揽病毒溯源之成果。对于该团伙在推特上的造谣污蔑性推文，广大战友提出纷纷质疑，但却遭到该团伙公开恐吓。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20110206/1-5.jpeg)图片来源：huarenone.com
-无德社一众先将骗子塞林包装成为功勋卓著的绿色贝雷帽上校，在直播中多次恐吓所有公开质疑他们的推特号将被定性为支持生化恐怖组织成员，已被美军记录并将逮捕关进美国在古巴的关塔那摩拘留设施，不享受美国本土的人权待遇。
+众所周知，中共在7月16日仓促组织的这次所谓东海“实际使用武器训练”大规模军演，是对前日7月15号，美军特种作战司令部旗下，全球空中运输快速反应小组的那架C-146A型军机，降落台北松山机场行动的一次象征性回应。
 
-但不出几日，最快打脸来了。据NBCNEWS报道，拜登政府从关塔那摩湾移交其第一个被拘留者并指出早在今年6月份美国总统拜登就已经打算关闭位于古巴东南海岸的拘留设施。除去移除的第一位被拘留者，该拘留设施尚有39名被拘留者。剩余拘留者将在国会批准后关押在美国境内拘留设施。拜登更希望在他的第一个任期内完成关塔纳摩的关闭。
+本次东海军演的原定时间是7月16日上午12:00-7月21日下午18:00，共计6天。但浙江海事局在其官方网站上，所发布的关于“东海实际使用武器训练”演习结束的，浙航警686/21航行警告讯息的时间显示为2021-07-18 15:51。
 
-同时美国防部于周一发表声明，其中提及”美国赞扬摩洛哥王国在确保两国国家安全利益方面的长期伙伴关系，” 并且 “美国也非常感谢摩洛哥王国愿意支持美国正在进行的关闭关塔那摩湾拘留设施的努力。”
+也就是说，东海军演至少是在7月18日中午之前便已经悄悄结束收兵了。因为既然是一场所谓的大规模两栖海陆空协同军演，对于参演的陆基岸防部队从主阵地撤离、两栖装甲抢滩冲锋集群的入坞装载，以及海军各型舰艇的回港靠泊等一系列相关作业程序，都需要消耗一定时间才能完成。
 
-至此，无德社又一个谎言不攻自破，不管用多少华丽的包装，在真相面前永远是不堪一击。等待着他们的将是大量的法律诉讼，因果巡回，报应不爽。
+由此推断，中共仓促组织的本轮东海“实际使用武器训练”的“大规模海陆空多兵种联合两栖登陆军演”才持续了短短不足48小时，便草草尴尬收场。
 
-相关新闻来源：
+此前中共军方曾不止一次的公开吹嘘，各战区一线甲种打击集群，已经具备全天候多领域的综合攻防一体作战能力。召之能战，战之必胜！是中共军方各基层部队的必备口号之一。
 
-[https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333](https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333)
+既然都已经具备全天候攻防一体的作战能力了，为何连一个常规台风都应对不了呢？昼夜兼备及复杂气象条件下的接敌反应，才是评判是否具备全天候，攻防一体综合作战能力的唯一标准。很显然，中共军方还不足以称得上，具备全天候打击能力的武装力量。
 
-校队发稿：Brian Sanitizer
+再有就是，如今的气象预警手段，可以说是误差概率很低的一种科技存在了。除了地震、火山等极个别的自然灾害预警暂时还没有实质性突破外。像类似于台风这种准确性几乎100%的，海洋气象综合预警系统。又怎么会不提前发出预警讯息呢？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02221725/ca1affbb-9efa-40ff-ab92-f03507874447-1.jpg)
+同时，中共军方又怎么可能不会提前关注，军演区域的未来气象条件预估数据呢？由此可见，本轮东海军演的突然草草尴尬收场“烟花”台风绝不仅仅是主因！
 
-**更多资讯，更多关注**
+此文仅代表笔者个人观点！
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻链接：[https://www.msa.gov.cn/html/hxaq/aqxx/hxjg/Zhejiang/20210718/3A8E74C1-506D-47EB-B9DB-1E22269A51F2.html](https://www.msa.gov.cn/html/hxaq/aqxx/hxjg/Zhejiang/20210718/3A8E74C1-506D-47EB-B9DB-1E22269A51F2.html)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+* * *
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+审核╱zhong｜校对╱阿尔道夫｜发布╱little liu
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
-
-
-
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 0
