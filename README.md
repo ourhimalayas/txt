@@ -16,19 +16,19 @@
 
 ---
 
-### [“驻立陶宛台湾代表处” 第二个非邦交国以台湾为名的代表处](/content/gnews/1/README.md)
+### [中共威胁对日本使用核武](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [“驻立陶宛台湾代表处” 第二个非邦交国以台湾为名的代表处](/content/gnews/3/README.md)
  ` G-NEWS TAIWAN`
 
-### [【樱花宅急便】香港特别集中营](/content/gnews/2/README.md)
+### [【樱花宅急便】香港特别集中营](/content/gnews/4/README.md)
  ` 日本东京樱花团`
 
-### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【深度报道】令人尊敬的医学主持人成了疫苗推销员](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国、欧盟、英国、北约谴责中共网络黑客攻击](/content/gnews/5/README.md)
+### [美军机再降落台湾 五天内两次 北京没话说了？](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [2021年7月6-10日 郭先生盖特和直播信息汇总](/content/gnews/6/README.md)
@@ -40,13 +40,13 @@
 ### [7.19文贵先生盖特要点](/content/gnews/8/README.md)
  ` 左媛专栏`
 
-### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/9/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？](/content/gnews/10/README.md)
+### [【秘翻在线】格林议员因散播中共病毒的错误信息被推特暂禁12小时](/content/gnews/9/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】新冠之霾难消 道指创 9 个月来最大跌幅](/content/gnews/11/README.md)
+### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/10/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？](/content/gnews/11/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
@@ -106,17 +106,17 @@
 ### [【秘翻在线】河南登封一电解铝厂发生爆炸](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】美国及盟友指责中共国黑客进行网络攻击](/content/gnews/31/README.md)
+### [【秘翻在线】格林议员因散播中共病毒的错误信息被推特暂禁12小时](/content/gnews/31/README.md)
  ` 秘密翻译组G-Translators`
 
-### [DC每日热点0719](/content/gnews/32/README.md)
+### [【秘翻在线】美国及盟友指责中共国黑客进行网络攻击](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [DC每日热点0719](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021/07/20 英喜时事速递](/content/gnews/33/README.md)
+### [2021/07/20 英喜时事速递](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [终极危机：军队大清洗反噬中共，习近平政权“行将崩溃”](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [美日印澳拟举行四方安全会谈领袖峰会 联合对抗中共](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -160,27 +160,27 @@
 ### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/48/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共威胁对日本使用核武](/content/gnews/49/README.md)
- ` HimalayaRussia`
-
-### [【独立观点】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/50/README.md)
+### [【独立观点】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/49/README.md)
  ` 纽约香草山MOS02`
 
-### [英国最大军舰进入印度洋与印度海军进行演习](/content/gnews/51/README.md)
+### [英国最大军舰进入印度洋与印度海军进行演习](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年07月19日澳喜要闻（每日更新）](/content/gnews/52/README.md)
+### [2021年07月19日澳喜要闻（每日更新）](/content/gnews/51/README.md)
  ` 澳喜农场`
 
-### [【枳实】中共病毒、疫苗和杂谈](/content/gnews/53/README.md)
+### [【枳实】中共病毒、疫苗和杂谈](/content/gnews/52/README.md)
  ` 大废墙`
 
-### [拜登官员认为实验室泄漏理论与自然起源理论一样可信](/content/gnews/54/README.md)
+### [拜登官员认为实验室泄漏理论与自然起源理论一样可信](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【战友心声】谈谈亡腚肛节目的硬伤](/content/gnews/55/README.md)
+### [【战友心声】谈谈亡腚肛节目的硬伤](/content/gnews/54/README.md)
  ` 纽约香草山MOS03`
 
-### [美与西方国家共同揭露中共网络黑客行为](/content/gnews/56/README.md)
+### [美与西方国家共同揭露中共网络黑客行为](/content/gnews/55/README.md)
  ` HimalayaRussia`
+
+### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/56/README.md)
+ ` 温哥华圆成农场🇨🇦`
 

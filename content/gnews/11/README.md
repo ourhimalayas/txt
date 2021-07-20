@@ -2,28 +2,18 @@
 ---
 
 
-## 【秘翻在线】新冠之霾难消 道指创 9 个月来最大跌幅
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407827/)
+## 【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407975/)
 
-#### 编译：坤霆
+#### 撰稿：WL102
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19234306/%E4%B8%89%E5%9B%9B.jpg)图片来源：Daily Express
-据合众国际社（UPI） 7月19日报道，道琼斯工业平均指数下跌725点，创下9个月来最严重的跌幅，原因是人们担心新冠病毒病例激增和Delta变体可能会阻碍经济复苏。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20011847/%E5%95%8A%E5%95%8A.jpg)图片来源：网络截图
+据路透社7 月 19 日报道，英国首席科学顾问帕特里克·瓦兰斯说，60% 因中共病毒入院的病例没有接种疫苗。纠正了他周一早些时候发表的声明。
 
-据疾病控制和预防中心称，约翰·霍普金斯的数据显示，过去一周，所有50个州的新冠病毒病例都在上升，感染率上升了69%，死亡人数增加了26%，住院人数增加了36%。
+之前，瓦兰斯在与首相鲍里斯·约翰逊举行的新闻发布会上说，因中共病毒入院的人中有 60% 接种了两剂疫苗。
 
-摩根士丹利美国首席股票策略师迈克·威尔逊周一表示，随着收益和经济增长的大幅放缓，市场表现出了更加强势的防御性。
-
-蓝筹股指数下跌2.09%，这是自10月份下跌943点以来最严重的跌幅，标准普尔500指数下跌1.59%，纳斯达克综合指数下跌1.06%，连续第五个交易日下跌。
-
-10年期国债收益率跌至1.17%的新低，自2月以来首次跌破1.2%。
-
-有些股票原本可以受益于边境重新开放的，比如说航空股，也遭受了不同程度的跌幅。
-
-能源股也在下跌，埃克森美孚下跌3.44%，雪佛龙下跌2.7%，西德克萨斯中质原油下跌7.8%，至每桶66.26美元。
-
-与全球增长相关的关键股票也遭受打击，通用汽车下跌了2.31%，卡特彼勒收盘下跌1.82%。
-
-原文链接：[Dow drops 725 points in worst day since October amid COVID-19 fears](https://www.upi.com/Top_News/US/2021/07/19/Dow-Jones-Industrial-Average-drops-725-points-COVID-19-surge/6671626725908/)
+但截至秘翻在线发稿，路透社的这篇报道却已被撤。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20011826/%E4%BE%B5%E6%9D%83.jpg)撤稿页面截图
+新闻链接：[https://www.reuters.com/business/healthcare-pharmaceuticals/60-people-being-admitted-uk-hospitals-had-two-covid-jabs-adviser-2021](https://www.reuters.com/business/healthcare-pharmaceuticals/60-people-being-admitted-uk-hospitals-had-two-covid-jabs-adviser-2021)（已撤稿）
 
 0
