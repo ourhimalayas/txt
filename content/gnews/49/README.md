@@ -2,45 +2,56 @@
 ---
 
 
-## [独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施
-` MOSglobal` [轉載自GNews](https://gnews.org/zh-hans/1408891/)
+## 拜登认为共产主义是“失败的制度”、古巴是“失败的国家”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1408925/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
+**由Lorenz Duchamps通过大纪元时报撰写，作者：TYLER DURDEN，2021 年 7 月 16 日报道:**
 
-翻译：纽约香草山翻译部bright lee dt
+拜登总统周四在白宫发表讲话时说，古巴的专制和共产主义政权是一个“失败的国家”，普遍而言，共产主义是一个“失败的体系”。
 
-最近“无德社”的亡腚肛带领的所谓“博士军团”连同蛇妖闫，以及逃亡海外的骗子塞林集体抹黑攻击郭文贵、新中国联邦、法治基金、法治社会、爆料革命及盖特，在多个媒体上稍有名气后企图独揽病毒溯源之成果。对于该团伙在推特上的造谣污蔑性推文，广大战友提出纷纷质疑，但却遭到该团伙公开恐吓。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20110206/1-5.jpeg)图片来源：huarenone.com
-无德社一众先将骗子塞林包装成为功勋卓著的绿色贝雷帽上校，在直播中多次恐吓所有公开质疑他们的推特号将被定性为支持生化恐怖组织成员，已被美军记录并将逮捕关进美国在古巴的关塔那摩拘留设施，不享受美国本土的人权待遇。
+“共产主义是一个失败的系统——一个普遍失败的系统。 我不认为社会主义是一个非常有用的替代品，但那是另一回事，”拜登在与德国总理默克尔的联合新闻发布会上说。
 
-但不出几日，最快打脸来了。据NBCNEWS报道，拜登政府从关塔那摩湾移交其第一个被拘留者并指出早在今年6月份美国总统拜登就已经打算关闭位于古巴东南海岸的拘留设施。除去移除的第一位被拘留者，该拘留设施尚有39名被拘留者。剩余拘留者将在国会批准后关押在美国境内拘留设施。拜登更希望在他的第一个任期内完成关塔纳摩的关闭。
+拜登的言论是总统迄今为止最强烈的信号，支持古巴人抗议领导人米格尔·迪亚兹-卡内尔（Miguel Diaz-Canel）的统治政权，他也是古巴共产党的领导人。
 
-同时美国防部于周一发表声明，其中提及”美国赞扬摩洛哥王国在确保两国国家安全利益方面的长期伙伴关系，” 并且 “美国也非常感谢摩洛哥王国愿意支持美国正在进行的关闭关塔那摩湾拘留设施的努力。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20111534/1449%E2%80%911.png)
 
-至此，无德社又一个谎言不攻自破，不管用多少华丽的包装，在真相面前永远是不堪一击。等待着他们的将是大量的法律诉讼，因果巡回，报应不爽。
+他还表示，在数十年来最大规模的反政府抗议活动之后，该政权中断了公民的在线通信，他的政府正在“考虑”可能恢复岛国人民访问互联网的方法。
 
-相关新闻来源：
+拜登说：“我们正在考虑我们是否有技术能力来恢复这种互联网访问。”
 
-[https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333](https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20111817/1449%E2%80%912.png)拜登总统和德国总理默克尔于 2021 年 7 月 15 日在华盛顿白宫东厅举行联合新闻发布会。（Saul Loeb / 法新社通过盖蒂图片社）
 
-校队发稿：Brian Sanitizer
+拜登还表示，目前，他们不考虑重新建立美国对古巴的汇款，因为该政权“极有可能”没收这些资金。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02221725/ca1affbb-9efa-40ff-ab92-f03507874447-1.jpg)
+拜登说：“我们会考虑做很多事情来帮助古巴人民，但这需要不同的情况或保证不会被“古巴政权”利用。”
 
-**更多资讯，更多关注**
+“例如，能够将汇款汇回古巴。我现在不会这样做，因为事实是，该政权极有可能没收这些汇款或大笔汇款。”
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+从上周末开始，数千名古巴人公开抗议专制政权，并呼吁领导人卡内尔下台。一些示威者以及美国的古巴人呼吁拜登政府在该政权大规模逮捕示威者的情况下进行干预。
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+拜登发表他们“考虑”帮助古巴人的言论之际，佛罗里达州州长罗恩·德桑蒂斯（R-Fla.）在一封信中要求总统为该岛国的公民提供联邦援助，并帮助他们上网。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20111938/1449%E2%80%913.png)佛罗里达州州长罗恩·德桑蒂斯于 2021 年 6 月 14 日在佛罗里达州瑟夫赛德的巴尔港舒尔举行的新闻发布会上发表讲话。（Joe Raedle / 盖蒂图片社）
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+这位共和党州长在信中写道：“我写信是为了敦促您协助为古巴人民提供互联网接入服务，他们反对共产主义压迫并在数十年的残酷独裁统治下遭受苦难后要求发表意见。”
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“如你所知，古巴人民走上街头抗议共产党政权，古巴政府以暴力回应，”他说，“起初，世界可以看到这场群众运动的图像和视频，但现在卡内尔总统的专制政权已经关闭了互联网。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
+白宫新闻秘书 Jen Psaki 周四在另一场新闻发布会上也称共产主义是“失败的意识形态”，并解释说古巴人“应得自由”。
+Psaki 说：“他们应该得到一个支持他们的政府，无论是确保他们拥有健康和医疗用品、获得疫苗，还是他们是否有经济机会和繁荣。”
 
+她继续说道：“这是一个镇压其人民并使古巴人民失望的政府——一个专制的共产主义政权，因此我们在街上看到他们。”
 
+在示威活动中，活动人士本周告诉新闻媒体，在政权主导的镇压行动中，已有 100 多人被捕、拘留或失踪。
+
+原文连接：[https://www.zerohedge.com/geopolitical/biden-admits-communism-failed-system-and-cuba-failed-state?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/geopolitical/biden-admits-communism-failed-system-and-cuba-failed-state?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 心照
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
