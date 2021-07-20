@@ -2,29 +2,23 @@
 ---
 
 
-## 【周说｜文贵】2021年7月14日至7月16日
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1408047/)
+## 【NewsExpress】昂山素季的民盟发言人吴年温感染CCP病毒逝世
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1408303/)
 
-作者：香草山教育部 月野兔
+作者：yyshere
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+因军事政变下台的缅甸前执政党全国民主联盟的发言人吴年温因Covid-19（CCP病毒）感染死亡，吴年温的律师在当地时间7月20日星期二对外宣布了这一消息。
 
+吴年温，79岁，此前是昂山素季创立的全国民主联盟党内的重要人物，生前任中央执行委员会成员，也是缅甸国内知名的政治人物。今年2月1日军方政变夺权后，吴年温与其他民盟高层人士一起被捕，并以煽动叛乱罪关押在仰光的永盛监狱。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20024934/1-127.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20030605/2%E7%9A%84%E5%89%AF%E6%9C%AC.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020702/3-54.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020520/4-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020542/5-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/6-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020533/7-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/8-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020535/9-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020635/10-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020609/11-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020612/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021122/13-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021135/14-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021146/15-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021202/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021209/17-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021224/18-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021228/19-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/20-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021327/21-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/22-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021335/23-14.jpg)
-校对/发稿：飞虹
+据吴年温的律师San Mar La Nyunt证实，她在周二上午通过视频电话与吴年温进行了联系，就在他去世前的几分钟。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+San Mar La Nyunt透露，吴年温生前患有慢性病。
 
-**更多资讯，更多关注**
+消息来源： 美联社
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+校对发稿：Ada(马德里）
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（本文系作者个人观点，不代表GNEWS平台）
 
 0

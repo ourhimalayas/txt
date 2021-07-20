@@ -2,20 +2,18 @@
 ---
 
 
-## 【秘翻在线】未来8个月 香港将迎来三次伪选举
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407935/)
+## 【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1407975/)
 
-#### 撰稿：Grace
+#### 撰稿：WL102
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20005931/bb.jpg)图片来源：BBC
-据网易7月19日报道，未来8个月，香港将会有3场选举。今年9月的选举委员会界别分组选举、12月的立法会选举以及明年3月的行政长官选举。这3场选举将分别会为中共的香港产生新一届选委、第七届立法会议员，以及第六届特区行政长官。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20011847/%E5%95%8A%E5%95%8A.jpg)图片来源：网络截图
+据路透社7 月 19 日报道，英国首席科学顾问帕特里克·瓦兰斯说，60% 因中共病毒入院的病例没有接种疫苗。纠正了他周一早些时候发表的声明。
 
-在7月16日的一场会议中，中共的港澳事务办公室主任夏宝龙五次高度强调只有爱被中共统治的人才有可能成为下一任管制香港的“爱国者”。任何反对中共的人都绝不允许进入管制香港的架构里。
+之前，瓦兰斯在与首相鲍里斯·约翰逊举行的新闻发布会上说，因中共病毒入院的人中有 60% 接种了两剂疫苗。
 
-据报道，7月6日李家超被中共任命为候选人资格审查委员会主席。李家超表示未来三场选举对全面落实 “爱国者” 制港至关重要。他向中共承诺他与资审会全体成员会完成党交给他的确认和把关候选人资格的重任。
-
-在这篇报道里，夏宝龙和李家超都明确地向中共表态他们会继续做好打压爱香港，爱自由的香港同胞的工作。他们绝不会让任何不爱中共，反中共的香港同胞有机会帮助香港老百姓发声。这三场所谓的“选举”只不过是中共早已经选定好主角的政治舞台剧。
-
-**新闻来源：**[未来8个月3场选举，谁能成为香港管治者？夏宝龙画出“铁的底线”](https://www.163.com/dy/article/GFA3P5K9051482MP.html)
+但截至秘翻在线发稿，路透社的这篇报道却已被撤。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20011826/%E4%BE%B5%E6%9D%83.jpg)撤稿页面截图
+新闻链接：[https://www.reuters.com/business/healthcare-pharmaceuticals/60-people-being-admitted-uk-hospitals-had-two-covid-jabs-adviser-2021](https://www.reuters.com/business/healthcare-pharmaceuticals/60-people-being-admitted-uk-hospitals-had-two-covid-jabs-adviser-2021)（已撤稿）
 
 0

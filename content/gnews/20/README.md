@@ -2,42 +2,40 @@
 ---
 
 
-## 【有声读物】论天国的仇敌:世界的主是谁？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1408028/)
+## 2021/07/18 谭德塞改口，病毒可能来自实验室泄漏
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1408440/)
 
-配音：香草山福音部 Daxia
+字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | 校对：云岭 | 简评/文字整理/编辑：胖丁  | Page: Daoiii
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/xShyUFpmAyUic/images/e756907c-2492-4348-b664-d6ab67ffd906.png?asset_id=55ca57aa-46d7-4583-8349-74ea4f88ff1f&amp;img_etag=%22f1951c93026520822c404adb3916551c%22&amp;size=1024)](https://spark.adobe.com/page/xShyUFpmAyUic/images/e756907c-2492-4348-b664-d6ab67ffd906.png?asset_id=55ca57aa-46d7-4583-8349-74ea4f88ff1f&amp;img_etag=%22f1951c93026520822c404adb3916551c%22&amp;size=1024)
 
+简评：
 
+**世卫组织总干事谭德塞去年初对中共国抗击疫情大加赞赏，但是一年后的现在，他说存在病毒实验室泄漏的可能性，要求中共国提供早期的数据并保持信息的透明度。中共《环球时报》引用一位流行病学家的话说，谭德塞是为了谋求第二个五年期的连任，才顺服西方的压力说出这番话。**
 
-
-
-
-
-很多看上去很敬虔的基督徒好像[旷野](http://sj.jidujiao.com/lockey.php)的先知呐喊着说，末日即将到来，耶稣才是世界的救主。
-
-弟兄姊妹们，经上记着说：“以后我不再和你们多说话，因为这世界的王将到，他在我里面是毫无所有。”（[约翰福音14:30](http://sj.jidujiao.com/lockey.php)）这就是当下我们所遭遇的，世界的王企图掌管世界。牠攻打、毁坏世界，试图统治全球，做世界的王，这就是中共CCP当下所做的。但经上记着说，当“现在这世界受审判的时候，这世界的王要被赶出去。”（[约翰福音12:31](http://sj.jidujiao.com/lockey.php)）是谁有资格、有能力将这世界的王赶出去呢？祂就是救主耶稣基督。但耶稣不是世界的救主，主是要审判这个世界的。保罗说：“末期到了，那时基督即将一切执政的、掌权的、有能的都毁灭了，就把国交与父神。”（[哥林多前书 15:24](http://sj.jidujiao.com/lockey.php)）当天国降临时，“凡称呼我‘主啊，主啊’的人，不能都进天国；惟独遵行我天父旨意的人，才能进去。”（[马太福音 7:21](http://sj.jidujiao.com/lockey.php)）
+GTV视频链接：[Sky News：谭德塞被现实愚弄，机会主义者只在乎利益](https://gtv.org/video/id=60f50b300aa4861113831dee)
 
 
 
-**文字版原文：[【信仰之声】论天国的仇敌:世界的主是谁？](https://gnews.org/zh-hans/1389916/)**
+视频字幕：
 
-作者：纽约香草山福音部   捆绑CCP一千年
+**主持人：**我们来看看世卫组织总干事谭德塞。他去年初对中共国应对病毒大流行赞不绝口。但是他现在说，中共国应该说清楚，应该透明。他说新冠病毒可能来自武汉实验室泄漏，实验室事故是经常发生的我们来看看他怎么说。
+
+*谭德塞：我们要求中共国对疫情早期的数据和信息透明、公开和采取正常合作（的态度）*
+
+*早期的推动减少了对实验室泄漏（的考量）。*
+
+**主持人：**这个改变够大的。一点也不惊奇，中共宣传机器《环球时报》进行了反击。他们引用中国疾病预防控制中心前首席流行病学家曾光的话。据报道，他说，我相信谭德塞是在第二阶段病毒起源调查即将开始之际，在西方国家的压力下说这番话的。他也需要西方的支援，因为他计划竞选其第二个五年任期的世卫组织负责人。
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+[!\[\]()!\[\](https://spark.adobe.com/page/xShyUFpmAyUic/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/xShyUFpmAyUic/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -2,31 +2,50 @@
 ---
 
 
-## 【有声读物】中共向儿童下手！毒疫苗获批在3到17岁人群中使用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1407864/)
+## 2021/07/16 世卫承认排除新冠来自中共实验室是个错误
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1408427/)
 
-录音：教育部 蒙古鸿雁
+字幕/听写：云岭 | 翻译：Roberts | 校对：云岭 | 简评/文字整理/编辑：胖丁 | Page: Daoiii
 
-音频处理：喜山必胜Maverick
+[!\[\]()!\[\](https://spark.adobe.com/page/oxgJHGNDUubs1/images/5bc12074-6ccd-4033-8498-4850143b9ed3.jpg?asset_id=849edc3f-3c74-48e0-848d-f2839b44b639&amp;img_etag=%22ca8f0ea76da3a68fcff9d751d2cc81cd%22&amp;size=1024)](https://spark.adobe.com/page/oxgJHGNDUubs1/images/5bc12074-6ccd-4033-8498-4850143b9ed3.jpg?asset_id=849edc3f-3c74-48e0-848d-f2839b44b639&amp;img_etag=%22ca8f0ea76da3a68fcff9d751d2cc81cd%22&amp;size=1024)
 
-发布：奇门遁甲
+简评：
 
-7月17日，中共新闻频道发布消息称：“7月16日，经国务院联防联控机制有关部门组织论证，国药集团中（共）国生物北京生物制品研究所（中共病毒）灭活疫苗获批在3到17岁人群中紧急使用。”
+**世卫组织承认，排除新冠病毒来自中共实验室是一个错误。中共对于敏感事情的发生，首先是审查。2003年非典和这一次的疫情都是如此，不是邀请美国疾控中心参与帮助，而是首先审查。**
 
-原文链接：
+**中共利用其在联合国强大的外交影响力来实现它的目标，世卫组织的谭德塞也被游说。但世卫组织的资金大部分来自西方，谭德塞开始承受压力。不可能总是按照中共国的方式行事。**
 
-[【墙内热搜】中共向儿童下手！毒疫苗获批在3到17岁人群中使用](https://gnews.org/zh-hans/1404922/)
+GTV视频链接：[澳大利亚前外交顾问方式安德鲁•菲兰：2003年爆发的SARS给了中共国处理COVID – 19的范本，但西方国家的压力开始作用于谭德塞，不可能总听中共的行事](https://gtv.org/video/id=60f388cb0aa4861113826d27)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+视频字幕：
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**主持人：**世卫组织负责人终于承认，排除新冠病毒来自中共国实验室是一个错误。总干事自己曾经做过实验室技术员，他说实验室事故时有发生。他呼吁中共国要更加透明，Andrew，你怎么看？
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**安德鲁：**祝谭德塞博士好运。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02180522/ca1affbb-9efa-40ff-ab92-f03507874447.jpg)
+你知道，94年的一个早晨，我在北京去政府大楼上班的路上，我想你也在那里工作过。
+
+**主持人：**是的，工作过几年。
+
+**安德鲁：**一名解放军士兵离开军营，来到使馆区，开枪打死8人，伤了很多人，包括在那个区域的伊拉克和伊朗的外交官。当天晚上我回到我的公寓，那里距中共国领导们居住的大院很近。我看到CNN报导了当天发生的事情，当地媒体三天之后才有报导。
+
+然后当地报纸在不起眼的地方有一段报导。中共国所有敏感的东西都受到审查。2003年非典发生的时候就是这样，这一次更是如此。事实上，非典为中共国提供了应对此类危机的范本。不是邀请美国疾控中心参与帮助他们，而是对一切进行审查。
+
+武汉市委书记被审查，从上至下统统被审查。所以，中共国对此负有责任。但是在世卫组织，谭德塞、陈冯富珍被中共国游说，尤其谭德塞被游说得厉害。中共国在非洲的外交影响力非常大，54个国家中的53个在联合国参与投票。近年来在各种事情上，中共国利用联合国来实现其目标。最近的大堡礁案就是一个例子。
+
+但是最终，还是西方占优势，而不是中共国。世卫组织的大多数资金来自于西方国家，这方面的压力开始作用于谭德塞。不可能总是按照中共国的方式行事。他们开始明白这一点了。
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/oxgJHGNDUubs1/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/oxgJHGNDUubs1/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
+
 
 0
