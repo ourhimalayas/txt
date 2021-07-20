@@ -70,40 +70,40 @@
 ### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [古巴妇女揭露古巴政权有多邪恶](/content/gnews/19/README.md)
+### [参议员罗恩·约翰逊: “福奇博士很多解释工作要做，中共国政府也是如此。”](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/20/README.md)
+### [2021/07/19-001 大卫作战室直播精要](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [古巴妇女揭露古巴政权有多邪恶](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [法国纪录片《习近平的世界》节选: 中共国建立多边组织与联合国抗衡](/content/gnews/22/README.md)
  ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [法国纪录片《习近平的世界》节选: 台湾是民主的典范，让北京无法忍受](/content/gnews/21/README.md)
+### [法国纪录片《习近平的世界》节选: 台湾是民主的典范，让北京无法忍受](/content/gnews/23/README.md)
  ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [亡腚缸和蛇妖闫](/content/gnews/22/README.md)
+### [亡腚缸和蛇妖闫](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [【聚焦澳洲】澳媒披露中共威胁对日发动全面核打击](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
+### [【热点播报】中共的控制意味着香港正在失去国际金融中心的地位](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
 
-### [【有声读物】如何运用《圣经》判断伪类？](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [由于担心冠状病毒变异，美国股市暴跌](/content/gnews/25/README.md)
+### [由于担心冠状病毒变异，美国股市暴跌](/content/gnews/26/README.md)
  ` 索尼克`
 
-### [【秘翻在线】恒大财产遭冻结引发股灾](/content/gnews/26/README.md)
+### [【秘翻在线】恒大财产遭冻结引发股灾](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/27/README.md)
+### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国黑客攻击让白宫陷入困境](/content/gnews/28/README.md)
+### [中共国黑客攻击让白宫陷入困境](/content/gnews/29/README.md)
  ` 索尼克`
 
-### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/29/README.md)
- ` 索尼克`
-
-### [就台湾岛激烈对峙中，中共国官员向日本发出核弹威胁](/content/gnews/30/README.md)
+### [中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃”](/content/gnews/30/README.md)
  ` 索尼克`
 
 ### [美国起诉四名中共特工](/content/gnews/31/README.md)
