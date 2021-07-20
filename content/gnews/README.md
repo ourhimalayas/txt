@@ -31,17 +31,17 @@
 ### [【樱花宅急便】香港特别集中营](/content/gnews/5/README.md)
  ` 日本东京樱花团`
 
-### [2021年7月19日 文贵先生盖特 10](/content/gnews/6/README.md)
+### [郭爆料串珠（323）为什么中共官员的好色程度超过常人？](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
+
+### [2021年7月19日 文贵先生盖特 10](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月19日 文贵先生盖特 9](/content/gnews/7/README.md)
+### [2021年7月19日 文贵先生盖特 9](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月19日 文贵先生盖特 8](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/9/README.md)
- ` 秘密翻译组G-Translators`
+### [澳大利亚总理将继续询问有关武汉实验室泄漏的问题](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
@@ -58,17 +58,17 @@
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/14/README.md)
  ` 日本东京樱花团`
 
-### [【墙内视频】河南登封一电解铝企业多次传出爆炸声，官方称是“事故”引发质疑](/content/gnews/15/README.md)
+### [2021年7月20日 秘翻快报 【头条新闻】](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【墙内视频】河南登封一电解铝企业多次传出爆炸声，官方称是“事故”引发质疑](/content/gnews/16/README.md)
  ` 温哥华扬帆农场`
 
-### [【热点推荐】中共国变相强制打疫苗，山东公安、交警联合执法路上严查未打疫苗者](/content/gnews/16/README.md)
+### [【热点推荐】中共国变相强制打疫苗，山东公安、交警联合执法路上严查未打疫苗者](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/17/README.md)
+### [【墙闻观察】中共北京各区洪水滔天，民众受灾严重](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
-
-### [零号病人从伪造的华南海鲜市场到情报认定的花桥小区意味着啥](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [河南登封铝厂大爆炸像极了天津塘沽8.12大爆炸](/content/gnews/19/README.md)
  ` 澳喜农场`
@@ -88,7 +88,7 @@
 ### [2021/07/17 世卫承认存在病毒实验室泄漏的可能性](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/25/README.md)
+### [【秘翻在线】美式橄榄球明星因发布身穿G|FASHION照片引发轰动](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/26/README.md)
@@ -106,17 +106,17 @@
 ### [【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/31/README.md)
+### [樱花国际要闻汇编🌸7月20日](/content/gnews/31/README.md)
+ ` 日本东京樱花团`
+
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【西媒头条】第27期（2021年7月20日）](/content/gnews/32/README.md)
+### [【西媒头条】第27期（2021年7月20日）](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】墙国强制接种的闹剧一出双簧？](/content/gnews/33/README.md)
+### [【秘翻在线】墙国强制接种的闹剧一出双簧？](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
-
-### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【百年中共 滔天罪行】第3期](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [默克尔在白宫表示：共同的价值观将指导对中共国政策](/content/gnews/43/README.md)
+### [澳大利亚总理将继续询问有关武汉实验室泄漏的问题](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年7月20日灭共要闻](/content/gnews/44/README.md)
- ` 秘密翻译组G-Translators`
+### [中共国家安全部骇客任务，对全球发动情报超限战](/content/gnews/44/README.md)
+ ` G-NEWS TAIWAN`
 
-### [美国副国务卿将在下周访问日本、韩国和蒙古](/content/gnews/45/README.md)
+### [中资孔子学院将目光投向K-12课堂](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【极新闻】中共释放新的病毒信号吗？](/content/gnews/46/README.md)
- ` 澳喜农场`
-
-### [网络袭击的真相：原来都是中共国政府雇佣的](/content/gnews/47/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【中共国段子】绿色贝雷帽（3）](/content/gnews/48/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [【中共国段子】密集恐惧症](/content/gnews/49/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [天堂之路不走 地狱之门勇敲](/content/gnews/50/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [“计划生育”的必要性](/content/gnews/51/README.md)
- ` 澳喜农场`
-
-### [拜登指责中共国保护黑客](/content/gnews/52/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十九）](/content/gnews/53/README.md)
- ` RU WEI`
-
-### [中共国疫苗的失败](/content/gnews/54/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [【雅典娜诗集】亡命腚缸](/content/gnews/55/README.md)
+### [【杂谈】路大脑袋的房事](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【周说｜文贵】2021年7月14日至7月16日](/content/gnews/56/README.md)
- ` 纽约香草山MOS02`
+### [默克尔在白宫表示：共同的价值观将指导对中共国政策](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年7月20日灭共要闻](/content/gnews/48/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国副国务卿将在下周访问日本、韩国和蒙古](/content/gnews/49/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【极新闻】中共释放新的病毒信号吗？](/content/gnews/50/README.md)
+ ` 澳喜农场`
+
+### [网络袭击的真相：原来都是中共国政府雇佣的](/content/gnews/51/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【中共国段子】绿色贝雷帽（3）](/content/gnews/52/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [【中共国段子】密集恐惧症](/content/gnews/53/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [天堂之路不走 地狱之门勇敲](/content/gnews/54/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [“计划生育”的必要性](/content/gnews/55/README.md)
+ ` 澳喜农场`
+
+### [拜登指责中共国保护黑客](/content/gnews/56/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 

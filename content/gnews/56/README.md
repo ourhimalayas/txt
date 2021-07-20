@@ -2,29 +2,29 @@
 ---
 
 
-## 【周说｜文贵】2021年7月14日至7月16日
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1408047/)
+## 拜登指责中共国保护黑客
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1408367/)
 
-作者：香草山教育部 月野兔
+消息来源：意大利共和报（repubblica.it）
+发布时间：2021年07月19日
+翻译/整理/简评：萧亦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20052447/07202.jpg)
+乔拜登总统在他关于经济的演讲的间隙这样说到：针对美国发起的网络攻击“似乎”不是由北京政府直接实施的，但中共国正在保护黑客。并表示他将在明天提供更准确的信息。而事实上，美国已经正式指控中共国政府侵入了微软的电子邮件系统，而该系统被政府、跨国公司和军事承包商所使用。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+大约 25 万台服务器分布在世界各地，连接到 Microsoft Exchange。华盛顿与其盟友包括北约、加拿大、澳大利亚、日本、英国和欧盟等一起提出抗议。这是第一次如此直接而详细。拜登政府指责北京支持网络犯罪集团，以实施全球黑客计划，包括对公司进行勒索攻击，模仿最近从网络上消失的俄罗斯帮派 REvil。
 
+对电子邮件系统的攻击可以追溯到 3 月份。微软当时指出了一个名为 Hafnium 的中共国组织，但无法确定黑客是否与中共国政府有直接联系。而现在情况似乎发生了变化。FBI 谈到了这个黑客组织以政治、经济、军事、教育和基础设施为目标，它获得了对被黑企业系统的访问权限。调查仍在进行中，证实了这次袭击的危险程度。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20024934/1-127.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20030605/2%E7%9A%84%E5%89%AF%E6%9C%AC.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020702/3-54.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020520/4-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020542/5-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/6-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020533/7-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020518/8-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020535/9-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020635/10-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020609/11-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20020612/12-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021122/13-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021135/14-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021146/15-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021202/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021209/17-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021224/18-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021228/19-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/20-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021327/21-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021331/22-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20021335/23-14.jpg)
-校对/发稿：飞虹
+欧盟外交政策高级代表Josep Borrell也同样表示：“欧盟及其成员国认为恶意网络活动是在中共国境内进行的，Microsoft Exchange 服务器的被利用破坏了数千台计算机的安全和完整性，包括世界各地的网络以及欧盟成员国和相关机构”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+华盛顿的公开谴责标志着向新型冷战又迈进了一步。早在 6 月，在北约峰会期间，乔·拜登总统要求其盟国不仅要关注俄罗斯，同样要关注中共国，因为中共国开始第一次构成风险。微软没有及时注意到黑客已经到达了系统的“后门”，这可能会在未来产生影响。理论上，他们可以再次出击。北京上一次被抓是在七年前：2014年，奥巴马任内，中共国从美国政府人事管理办公室窃取了超过 2200 万份与安全相关的文件，破坏了保存数十万联邦机构雇员数据的档案。
 
-**更多资讯，更多关注**
+简评：又一当头棍指向中共国，“自作孽不可活”。当所有的力量集中起来针对中共国的时候，它曾经的作恶必不会被饶恕。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（本文只代表译者观点，与Gnews无关）
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+发表：萧亦
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻链接：[https://www.repubblica.it/esteri/2021/07/19/news/cyberattacchi\_usa\_accusano\_governo\_cinese\_per\_hacker\_mail\_microsoft\_nato\_ue\_hafnium-310885488/](https://www.repubblica.it/esteri/2021/07/19/news/cyberattacchi_usa_accusano_governo_cinese_per_hacker_mail_microsoft_nato_ue_hafnium-310885488/)
 
 0
