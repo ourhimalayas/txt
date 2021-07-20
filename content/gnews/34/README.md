@@ -2,37 +2,30 @@
 ---
 
 
-## 【快讯】正在研究的Covid19基准将允许制药商仅在几千人中进行疫苗试验
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1409205/)
+## 北京对日本的核威胁激怒英国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1409241/)
 
-作者：教育部 四季
+2021年7月20日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20123948/cuba_0-7.jpg)
+
+上周，中国威胁说，如果东京进行干预以保护台湾，将使日本“离开地球表面”后，愤怒的英国对其进行了反击。请注意的是，中国共产党（中共）独裁统治下的中国于1964 年签署了“不首先使用”（NFU）核武器政策，但现在却声称对日本例外。
+
+英国国防部长本·华莱士（Ben Wallace）警告说，西方必须尽一切努力避免在亚洲发生冷战。华莱士还声称，中国不会吓到英国。“我们将尊重中国，并希望中国尊重我们。 . .我们将在国际法允许的地方航行。” 他说，英国有“义务”坚持航行自由。
+
+英国女王伊丽莎白女王号及其舰队驶往日本,将于 8 月与澳大利亚、法国、日本、新西兰、韩国和美国一起参加在菲律宾海的演习。
+
+**【[新闻来源](https://www.express.co.uk/news/world/1464936/china-news-uk-Japan-nuclear-weapons-defence-secretary-royal-navy-us?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)】**
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20122337/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%8812.23.04-e1626798273477.png)
-- 7月20日，据OAN 网站援引路透社的报道，科学家们正在研究一种COVID-19疫苗效力的基准，以使制药商能够进行规模更小、更快的人体试验，将其推向市场并解决全球疫苗的巨大短缺问题。研究人员和制药商告诉路透社，COVID-19 的既定基准将允许制药商仅在几千人中进行疫苗试验，大约是为获得目前广泛使用的冠状病毒疫苗授权而进行的研究规模的十分之一。 一些专家说，也有可能每种不同类型的冠状病毒疫苗都需要自己的相关性。 疫苗开发商正试图设计出可接受的替代品，以替代大规模的安慰剂对照试验。 欧洲和英国的卫生监管机构正在与各公司合作，为这些所谓的“免疫桥接”研究制定标准。美国食品和药物管理局拒绝透露它是否会接受下一代疫苗的这种试验。Moderna公司表示，相关的基准也可能表明人们何时以及是否需要注射疫苗加强剂。
-- 
-
-
-参考来源：
-
-[ttps://www.oann.com/global-quest-underway-to-speed-covid-19-vaccine-trials/](//www.oann.com/global-quest-underway-to-speed-covid-19-vaccine-trials/)
-
-校对/发稿：悟空
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20112700/1d33a7c1-79e4-4eff-bede-92d856cd77cd.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

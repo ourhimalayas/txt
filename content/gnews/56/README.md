@@ -2,45 +2,45 @@
 ---
 
 
-## Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1408885/)
+## [独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施
+` MOSglobal` [轉載自GNews](https://gnews.org/zh-hans/1408891/)
 
-台湾宝岛农场｜斗阵来拼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
 
-Delta变种病毒来势汹汹，已成为全球疫情的主要病毒!随着美国本土病例日益增加，美国境内大多数湾区县市政府建议他们的居民，无论已经接种疫苗与否，在室内都建议能戴上口罩，来降低感染Delta变种病毒的风险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20103308/My-Post-1-9.jpg)
-人们对Delta变种病毒的恐惧，也反应在美股表现上。由于在疫情阴霾之下，美国股市19日大跌，道琼工业指数收挫725点，更是创下去年10月以来最大跌幅。
+翻译：纽约香草山翻译部bright lee dt
 
-19日收盘，道琼工业指数重挫725.81点，或2.09％，收33962.04点；那斯达克指数终场下跌152.25点，或1.065％，收14,274.98点；标普500指数则是下跌68.67点，或1.59％，以4258.9点作收。
+最近“无德社”的亡腚肛带领的所谓“博士军团”连同蛇妖闫，以及逃亡海外的骗子塞林集体抹黑攻击郭文贵、新中国联邦、法治基金、法治社会、爆料革命及盖特，在多个媒体上稍有名气后企图独揽病毒溯源之成果。对于该团伙在推特上的造谣污蔑性推文，广大战友提出纷纷质疑，但却遭到该团伙公开恐吓。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20110206/1-5.jpeg)图片来源：huarenone.com
+无德社一众先将骗子塞林包装成为功勋卓著的绿色贝雷帽上校，在直播中多次恐吓所有公开质疑他们的推特号将被定性为支持生化恐怖组织成员，已被美军记录并将逮捕关进美国在古巴的关塔那摩拘留设施，不享受美国本土的人权待遇。
 
-专家分析，由于投资者担心COVID-19疫情的延烧，封城的政策一旦重启，预期经济下滑的投资心理，恐加剧了对经济放缓的担忧。
+但不出几日，最快打脸来了。据NBCNEWS报道，拜登政府从关塔那摩湾移交其第一个被拘留者并指出早在今年6月份美国总统拜登就已经打算关闭位于古巴东南海岸的拘留设施。除去移除的第一位被拘留者，该拘留设施尚有39名被拘留者。剩余拘留者将在国会批准后关押在美国境内拘留设施。拜登更希望在他的第一个任期内完成关塔纳摩的关闭。
 
-- 纽约时间本周一，Delta变异感染病例的激增，引发美股盘中卖压一路上升
-- 有「恐慌指数」之称的芝加哥期权交易所波动率指数VIX也飙涨逾20%，为两个月来的最高收盘水平。
+同时美国防部于周一发表声明，其中提及”美国赞扬摩洛哥王国在确保两国国家安全利益方面的长期伙伴关系，” 并且 “美国也非常感谢摩洛哥王国愿意支持美国正在进行的关闭关塔那摩湾拘留设施的努力。”
+
+至此，无德社又一个谎言不攻自破，不管用多少华丽的包装，在真相面前永远是不堪一击。等待着他们的将是大量的法律诉讼，因果巡回，报应不爽。
+
+相关新闻来源：
+
+[https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333](https://www.nbcnews.com/news/us-news/biden-administration-transfers-its-first-detainee-guant-namo-bay-n1274333)
+
+校队发稿：Brian Sanitizer
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02221725/ca1affbb-9efa-40ff-ab92-f03507874447-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02220847/image1-2.png)
 
 
-根据诸多研究报导可知，Delta病毒株还是目前全世界最具传染性的冠状病毒株，传播速度达到原始病毒的225%，传播速度之快，真的非常惊人!难怪美国的金融股票市场，会随着境内感染病例的增加，进而造成19日美股大盘恐慌性下跌作收。病毒除了给人们带来生活型态上的改变，同时伴随着对人类心理造成极度的恐惧及创伤，恐更胜于感染病毒后对身体造成的伤害。
 
-中国共产党制造病毒对全球发起超限生物武器战的初衷，就是要打乱社会秩序，让人类每天都生活在可能染上病毒的恐惧之中。这种伤害，正是邪恶的中共所希望的结果。因此，除了持续传播病毒真相，也必须坚定自己的意志，千万别被担心受怕染病的恐惧所打倒。
-
-郭文贵先生于7月19日发布GETTR： **「灭共已经到了最关键的时刻，我们全球的战友们，越是在这个时候要擦亮眼睛，辨善恶是非，一切都已经开始」!**
-
-(本文只是笔者观点，不代表G NEWS立场)
-
-参考资料:
-
-[Delta Variant: Most Bay Area Counties Recommend Face Masks Indoors as COVID Cases Rise](https://www.nbcbayarea.com/news/local/delta-variant-most-bay-area-counties-recommend-face-masks-indoors-as-covid-cases-rise/2596455/)
-
-[Wall Street ends sharply lower as Delta COVID variant sparks new lockdown fears](https://www.reuters.com/business/wall-street-ends-sharply-lower-delta-covid-variant-sparks-new-lockdown-fears-2021-07-19/)
-
-* * *
-
-审核╱zhong｜校对╱铃铃卷｜发布╱little liu
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 0

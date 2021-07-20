@@ -31,13 +31,13 @@
 ### [美国联同欧亚盟国共同揭露谴责中共实施恶意网络攻击](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [【郭先生盖特视频摘要】2021.7.16：猛料：中共游说世界想再出一个尼克松时刻](/content/gnews/6/README.md)
+### [【文贵视角】新中国联邦开启的灭共形势让世界看到希望](/content/gnews/6/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【郭先生盖特视频摘要】2021.7.16：猛料：中共游说世界想再出一个尼克松时刻](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年7月20日 文贵先生盖特 5](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [2021年7月20日 文贵先生盖特 4](/content/gnews/8/README.md)
+### [2021年7月20日 文贵先生盖特 5](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [中共病毒疫苗接种率极高的以色列现状](/content/gnews/9/README.md)
@@ -70,22 +70,22 @@
 ### [【热点推荐】中共国变相强制打疫苗，山东公安、交警联合执法路上严查未打疫苗者](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [【有声读物】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/19/README.md)
+### [2021/7/20日 大卫作战室直播精要 -001](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【有声读物】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [河南登封铝厂大爆炸像极了天津塘沽8.12大爆炸](/content/gnews/20/README.md)
+### [河南登封铝厂大爆炸像极了天津塘沽8.12大爆炸](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [2021/07/18 中共国拒绝美国副国务卿的访问提议](/content/gnews/21/README.md)
+### [2021/07/18 中共国拒绝美国副国务卿的访问提议](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/18 谭德塞改口，病毒可能来自实验室泄漏](/content/gnews/22/README.md)
+### [2021/07/18 谭德塞改口，病毒可能来自实验室泄漏](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/17 蓬佩奥：没有信仰的国家挑战敬畏上帝的国家](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/07/16 世卫承认排除新冠来自中共实验室是个错误](/content/gnews/24/README.md)
+### [2021/07/17 蓬佩奥：没有信仰的国家挑战敬畏上帝的国家](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [伊恩·邓肯·史密斯说他受到来自中国的“现实的直接威胁”](/content/gnews/25/README.md)
@@ -106,17 +106,17 @@
 ### [【热点播报】7月20日国际新闻速递](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [新疆古尔邦节的清真寺神职人员被清洗，无人主持仪式](/content/gnews/31/README.md)
+### [西喜时事新闻简报—台湾篇](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点0720](/content/gnews/32/README.md)
+### [新疆古尔邦节的清真寺神职人员被清洗，无人主持仪式](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC每日热点0720](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [北京对日本的核威胁激怒英国](/content/gnews/33/README.md)
+### [北京对日本的核威胁激怒英国](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【快讯】正在研究的Covid19基准将允许制药商仅在几千人中进行疫苗试验](/content/gnews/34/README.md)
- ` 纽约香草山MOS02`
 
 ### [英国派遣航母和特种部队 北约参与南海问题已不可逆转](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
@@ -142,45 +142,45 @@
 ### [来自中共的知识产权盗窃的风险在上升](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [缺德社自爆将加速爆料革命媒体的成长](/content/gnews/43/README.md)
+### [以法灭共：合理使用法律武器将爆料革命进行到底](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [网友们怎么评论亡腚缸和蛇妖闫](/content/gnews/44/README.md)
+### [【文贵视角】新中国联邦开启的灭共形势让世界看到希望](/content/gnews/44/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [缺德社自爆将加速爆料革命媒体的成长](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [德尔塔DELTA和DELTA Plus很有可能是共产党释放的新型变种病毒](/content/gnews/45/README.md)
+### [网友们怎么评论亡腚缸和蛇妖闫](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [路德好色是本性，乱性是日常](/content/gnews/46/README.md)
+### [德尔塔DELTA和DELTA Plus很有可能是共产党释放的新型变种病毒](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒疫苗接种率极高的以色列现状](/content/gnews/47/README.md)
+### [路德好色是本性，乱性是日常](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共病毒疫苗接种率极高的以色列现状](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共间谍路德和闫丽梦攻击爆料革命和新中国联邦](/content/gnews/48/README.md)
+### [中共间谍路德和闫丽梦攻击爆料革命和新中国联邦](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [爆料革命一定赢！](/content/gnews/49/README.md)
+### [爆料革命一定赢！](/content/gnews/51/README.md)
  ` HimalayaRussia`
 
-### [拒绝中共病毒疫苗！为自由而战！](/content/gnews/50/README.md)
+### [拒绝中共病毒疫苗！为自由而战！](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [家庭反洗脑序列：第十八篇 太不靠谱](/content/gnews/51/README.md)
+### [家庭反洗脑序列：第十八篇 太不靠谱](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登认为共产主义是“失败的制度”、古巴是“失败的国家”](/content/gnews/52/README.md)
+### [拜登认为共产主义是“失败的制度”、古巴是“失败的国家”](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共东海“实际使用武器训练”大规模军演尴尬提前结束](/content/gnews/53/README.md)
+### [中共东海“实际使用武器训练”大规模军演尴尬提前结束](/content/gnews/55/README.md)
  ` G-NEWS TAIWAN`
 
-### [[独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施](/content/gnews/54/README.md)
+### [[独立观点] 最快打脸，美国将逐步关停关塔那摩拘留设施](/content/gnews/56/README.md)
  ` MOSglobal`
-
-### [樱花灭共段子 之 亡腚缸【储君之争】](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [Delta变种病毒为人类带来的恐惧恐再重挫全球金融市场](/content/gnews/56/README.md)
- ` G-NEWS TAIWAN`
 
