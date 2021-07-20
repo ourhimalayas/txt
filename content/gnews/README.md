@@ -88,23 +88,23 @@
 ### [2021/07/17 蓬佩奥：没有信仰的国家挑战敬畏上帝的国家](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [伊恩·邓肯·史密斯说他受到来自中国的“现实的直接威胁”](/content/gnews/25/README.md)
+### [观看：Facebook Fact Checker 表示他对中国共产党的关系“非常满意”](/content/gnews/25/README.md)
  ` 闪电侠`
 
-### [中共国推出“世界最快”高速列车，时速超370英里](/content/gnews/26/README.md)
+### [伊恩·邓肯·史密斯说他受到来自中国的“现实的直接威胁”](/content/gnews/26/README.md)
  ` 闪电侠`
 
-### [郑州爆发千年一遇特大暴雨，老百姓受灾严重](/content/gnews/27/README.md)
+### [中共国推出“世界最快”高速列车，时速超370英里](/content/gnews/27/README.md)
+ ` 闪电侠`
+
+### [郑州爆发千年一遇特大暴雨，老百姓受灾严重](/content/gnews/28/README.md)
  ` 经济金融组`
 
-### [【密翻在线】中共国河南省遭受暴雨袭击，郑州尤为危急](/content/gnews/28/README.md)
+### [【密翻在线】中共国河南省遭受暴雨袭击，郑州尤为危急](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [河南郑州灾情部分视频汇总截止北京时间2021年7月20日23：18分](/content/gnews/29/README.md)
+### [河南郑州灾情部分视频汇总截止北京时间2021年7月20日23：18分](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [【热点播报】7月20日国际新闻速递](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
 
 ### [西喜时事新闻简报—台湾篇](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -118,17 +118,17 @@
 ### [北京对日本的核威胁激怒英国](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国派遣航母和特种部队 北约参与南海问题已不可逆转](/content/gnews/35/README.md)
+### [【国际时评】美国及其众多盟友联合指责中共国安黑客实施恶意网络攻击](/content/gnews/35/README.md)
+ ` 温哥华扬帆农场`
+
+### [英国派遣航母和特种部队 北约参与南海问题已不可逆转](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [美日印澳拟举行四方安全会谈领袖峰会 联合对抗中共](/content/gnews/36/README.md)
+### [美日印澳拟举行四方安全会谈领袖峰会 联合对抗中共](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [【粤语配音】班农：记住郭文贵对美国和西方的警告](/content/gnews/37/README.md)
+### [【粤语配音】班农：记住郭文贵对美国和西方的警告](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国危机：中共军事威胁适得其反，习近平政权“可能很快崩溃”](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
