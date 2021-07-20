@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/20/2021 10:24 AM (UTC)`
+
+7月20号：尊敬的战友们好，你们还记得23个月以前这个视频吗？……
+![img](https://media.gettr.com/group50/getter/2021/07/20/10/79edfb9e-8f91-1e6f-48ed-23e856abb1a8/out.jpg)
+
+---
+
 `@miles 7/20/2021 2:56 AM (UTC)`
 
 今天的郑州．太像欧洲……
@@ -304,13 +311,6 @@ I sent a message to GETTR and within minutes I had a response via email. Now tha
 
 事实上，我们比这个数字厉害得多．真正的价值，那是这个路大脑骗子子能懂得呀……莘县阳谷县搭县县走着看……
 ![img](https://media.gettr.com/group45/getter/2021/07/15/18/c8f8769a-adb7-813d-91fe-ceef961a4c5a/f088bac72a7fe7d9fee477234cbbfc6b.jpg)
-
----
-
-`@miles 7/15/2021 6:25 PM (UTC)`
-
-The internationalization of the RMB is a currency bomb and a  financial trap set by CCP.  And the RBM will be worthless; China's real estate and finance are about to collapse. <br/><br/>Wang Dinggang and Snake Demon Yan will go back to where they should be!
-![img](https://media.gettr.com/group40/getter/2021/07/15/18/5c6747bf-044c-6da1-c224-27e2f35a7b8d/out.jpg)
 
 ---
 
