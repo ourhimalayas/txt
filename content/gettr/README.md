@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/20/2021 1:18 PM (UTC)`
+
+7月20号：尊敬的战友好．共产党策划的．以路大骗子．蛇妖闫．失败者塞林．找爹博．癌症丽．德意志之鹰为首的．最大的灭爆行动已经宣告彻底失败，这次战斗更加巩固了新中国联邦爆料革命以毒灭共的基础……和信心！
+![img](https://media.gettr.com/group31/getter/2021/07/20/13/7a139fb6-d932-b387-9588-f1be72e80832/out.jpg)
+
+---
+
 `@miles 7/20/2021 10:59 AM (UTC)`
 
 所有的战友都应该看，并应该转给所有的亲人和朋友的视频！
@@ -303,14 +310,6 @@ Welcome to the great @steveguest!<br/><br/>https://www.gettr.com/user/steveguest
 
 7月16号：尊敬的战友们好，快去看正在进行的真人真事．番外篇的直播吧。<br/><br/>https://gtv.org/broadcast/watch/60f17c09d7e3a701356754e1
 ![img](https://media.gettr.com/group14/getter/2021/07/16/13/0e047d42-2615-717d-c822-90cc775e933f/a9d5b30522a47fd7d2740d5608e0c2dd.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@glkeile 7/15/2021 11:20 PM (UTC)`
-
-I sent a message to GETTR and within minutes I had a response via email. Now that's impressive.<br/><br/><br/>You can follow 200 people per 24 hours for anyone that was wondering. <br/><br/>I don't recall ever tapping the follow button 200 times in a day EVER,  but it is  what it is and I'm still unable to follow until after 1 to 2 a.m. <br/><br/>I still like GETTR better than other platforms. <br/>
 
 ---
 
