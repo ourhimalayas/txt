@@ -2,60 +2,94 @@
 ---
 
 
-## 2021/07/19-001 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1407348/)
+## 参议员罗恩·约翰逊: “福奇博士很多解释工作要做，中共国政府也是如此。”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1407357/)
 
-听写：call me uncle | 校对：樂禧禧 | Page：我是球大哥
+**字幕内容：**
+Lyndsay Keith (Newsmax host)
+林赛·基思（Newsmax 主持人）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/df6b904f-a045-462a-bde1-1bcfe4b9ec4a.png?asset_id=ab2a26e0-195e-4bf1-82ba-0228ed668536&amp;img_etag=%224c1a4c1d0a60c5a643b776328778c482%22&amp;size=1024)](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/df6b904f-a045-462a-bde1-1bcfe4b9ec4a.png?asset_id=ab2a26e0-195e-4bf1-82ba-0228ed668536&amp;img_etag=%224c1a4c1d0a60c5a643b776328778c482%22&amp;size=1024)
+One of the things that you got to wonder
+你必须想知道的事情之一
 
+and I want to go back to Sean and I talked about before the fact
+我想回到肖恩和我以前谈过的事实
 
+that we don’t have answers from China
+我们没有来自中共国的答案
 
+and now you have the chief of the World Health Organization saying
+而现在世界卫生组织的负责人说
 
+we need more transparency from China,
+我们需要要求中共国提供更高的透明度
 
-1. 大卫作战室节目由英喜团队支撑，以轻松、幽默方式梳理最新热点，紧跟爆料革命的节奏。
+they didn’t get it in that first review report that came out
+他们没有在第一份审查报告时提供需要的透明度
 
-2. 蓬佩奥是反共灭共标志性人物，2020-1-19对中共定义反人类宗族灭绝，持续在国际上发酵。
+are we going to get answers from China?
+我们会从中共国得到答案吗？
 
-3. 美国两党政治有持续性指引，中美不可能再回到曾经的蜜月期。
+are we ever going to figure out the true origins?
+我们会找出真正的起源吗？
 
-4. 中共现政策，人权上可以演演戏，但在地缘政治上要求拥有话语权，目的在于推人民币国际化和化解国内危机。
+Senator Ron Johnson
+参议员罗恩·约翰逊
 
-5. 国内经济、银行系统、信贷体系、老百姓福利都开始显现问题。
+I doubt you’ve had 18 months to destroy
+我对此持怀疑态度，中共有18 个月的时间来毁灭
 
-6. 五眼联盟等国强调–宗教自由、人权，蓬佩奥将引领两党更多人站在反共灭共阵营。
+whatever evidence once existed
+任何曾经存在的证据
 
-7. 环球日报关于病毒的报道，目的在于摘掉中共生化武器的帽子，将责任推向美国。
+but we know that China is guilty of that
+但我们知道中共国是有罪的
 
-8. 英国出台的禁止活摘器官通过二读，意义在于英国更加关注到中共的邪恶。
+they allowed airplanes and travel outside of Wuhan
+他们允许飞机离开武汉
 
-9. 英国Express报道中共军方背景华大科技收集孕妇数据丰富其数据库，结合2020年8月在香港实行大规模核糖核酸筛查，目的在于收集个人信息和生物信息。
+to infect the rest of the world
+去感染世界其他地方
 
-10. 中共两招：军民融合–不接受监管不透明即解放军说了算，国防民兵后备役–绕开国际监管、有事方便直接上。
+but not within China itself.
+但飞机不可以飞往中共国境内其他地区
 
-11. 英国特种部队在中俄问题上最好准备，一般对付反恐问题才上特种部队，信号耐人寻味。
+So they knew there was a real problem there
+所以他们知道那是个大危机
 
-12. 英国Express开始全面报道关于中共威胁意义在于引起英国各界人士的关注。
+and again they infected the world they allowed that to happen,
+然而，他们选择感染世界，他们允许这种情况发生
 
-13. 中共对印太、亚太、五眼联盟国家政策，胡萝卜加大棒。胡萝卜–经济贸易合作，大棒–强调终将收复台湾。更明目张胆公开三个登台步骤，实则就是宣传而已。
+they weren’t transparent, but let’s face it,
+他们并不透明，但让我们面对现实
 
-14. 七哥重要直播，中共未来内部将裂变，党内竞争已经白热化，斗鱼与虎牙的合并被取消就是党内斗争的结果。
+Dr. Fauci was involved in that cover up.
+福奇博士参与了掩盖真相
 
-15. 共产党宣传的“头破血流”，实则上国内从上到下，没人可以幸免。
+We’ve asked him we’ve demanded the full unredacted emails
+我们已经问过他，我们要求提供完整未编辑的电子邮件
 
-[**欢迎关注Youtube-大卫作战室**](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+that really kind of point to that cover up as well
+这些邮件真的揭示那些真相的掩盖
 
-***每周一到周六直播：英国时间13点20；美东早8点20；盘古21点20***
+so Dr. Fauci has an awful lot of explaining do
+所以福奇博士有很多解释要做
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+as does the Chinese government
+中共国政府也是如此
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
 
+**原视频链接 **:[https://twitter.com/newsmax/status/1416261382371221504?s=24](https://twitter.com/newsmax/status/1416261382371221504?s=24)
+英听校：洛杉矶盘古农场- Layka
+翻译：洛杉矶盘古农场- Layka
+翻译终校：洛杉矶盘古农场- Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片： 洛杉矶盘古农场-银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

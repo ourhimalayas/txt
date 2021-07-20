@@ -18,6 +18,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@changdaobrother 7/20/2021 12:23 AM (UTC)`
+
+自发抗议路缺德和蛇妖闫的战友们辛苦了🙏🙏🙏，爆料革命，强身更强心，继续加油💪
+![img](https://media.gettr.com/group5/getter/2021/07/20/00/1e575a74-bc6d-365d-7261-ec97987074a5/c6c53cc98f8b92d340622ab821ebcab0.jpg)
+
+---
+
 `@miles 7/19/2021 11:45 PM (UTC)`
 
 尊敬的战友们好……你们健身了吗？
@@ -302,14 +311,6 @@ America stands with the Cuban people.<br/> <br/>America stands against socialism
 
 只有三次啪啪啪的……双骗婚姻！
 ![img](https://media.gettr.com/group2/getter/2021/07/15/18/e2cbced2-0f45-2a61-eae9-1d77d12cb100/9802725526f752f49fc851bb0a6ebad2.jpg)
-
----
-
-`@miles 7/15/2021 5:50 PM (UTC)`
-
-这是好主意呀！快行动吧……
-> `@usalee 7/15/2021 5:37 PM (UTC)`<br/>战友的智慧👍
-![img](https://media.gettr.com/group30/getter/2021/07/15/17/c8ca24cc-9e9f-d309-bb3d-18397090476b/ae2b6e59eb84ff438fdaf6757c963e79.jpg)
 
 ---
 

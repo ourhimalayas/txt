@@ -2,174 +2,60 @@
 ---
 
 
-## 古巴妇女揭露古巴政权有多邪恶
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1407323/)
+## 2021/07/19-001 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1407348/)
 
-**字幕内容：**
+听写：call me uncle | 校对：樂禧禧 | Page：我是球大哥
 
-I’m gonna speak in English about what’s going on in Cuba
-我要用英语谈论古巴正在发生的事情
+[!\[\]()!\[\](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/df6b904f-a045-462a-bde1-1bcfe4b9ec4a.png?asset_id=ab2a26e0-195e-4bf1-82ba-0228ed668536&amp;img_etag=%224c1a4c1d0a60c5a643b776328778c482%22&amp;size=1024)](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/df6b904f-a045-462a-bde1-1bcfe4b9ec4a.png?asset_id=ab2a26e0-195e-4bf1-82ba-0228ed668536&amp;img_etag=%224c1a4c1d0a60c5a643b776328778c482%22&amp;size=1024)
 
-Because there is a lot of English speaker talk about this
-因为有很多说英语的人在谈论这个
 
-and my generation talk about this
-而且我的这一代人在谈论这个
 
-Cuba has been under dictatorship for 62 years
-古巴已经在独裁统治下有62年了
 
-so people for naturally for us last 62 years
-所以，我们自然而然地被独裁统治了 62 年
 
-since nineteen sixty nineteen fifty-eight around there
-自从在1960年1958年那时
+1. 大卫作战室节目由英喜团队支撑，以轻松、幽默方式梳理最新热点，紧跟爆料革命的节奏。
 
-people started making homemade boats
-人们开始自制船只
+2. 蓬佩奥是反共灭共标志性人物，2020-1-19对中共定义反人类宗族灭绝，持续在国际上发酵。
 
-that we call (in spanish) and have bring them to the coast of Florida seeking shelter
-我们称其为“自制船”，并用他们到佛罗里达海岸来寻求庇护
+3. 美国两党政治有持续性指引，中美不可能再回到曾经的蜜月期。
 
-let me explain to you why
-让我向你解释为什么
+4. 中共现政策，人权上可以演演戏，但在地缘政治上要求拥有话语权，目的在于推人民币国际化和化解国内危机。
 
-because you might be saying
-因为你可能会说
+5. 国内经济、银行系统、信贷体系、老百姓福利都开始显现问题。
 
-Woo, they’re just the immigrants invading
-哇，他们只是入侵的移民
+6. 五眼联盟等国强调–宗教自由、人权，蓬佩奥将引领两党更多人站在反共灭共阵营。
 
-because they want to leave their home country
-因为他们想离开自己的祖国
+7. 环球日报关于病毒的报道，目的在于摘掉中共生化武器的帽子，将责任推向美国。
 
-No, it’s because us Cubans we don’t complain about anything
-不，这是因为我们古巴人，我们不抱怨任何事情
+8. 英国出台的禁止活摘器官通过二读，意义在于英国更加关注到中共的邪恶。
 
-it takes a lot for us to complain
-我们需要被压的喘不过气来才会开始抱怨
+9. 英国Express报道中共军方背景华大科技收集孕妇数据丰富其数据库，结合2020年8月在香港实行大规模核糖核酸筛查，目的在于收集个人信息和生物信息。
 
-and this I’m sick and tired of it
-而且这就是让我厌倦它的
+10. 中共两招：军民融合–不接受监管不透明即解放军说了算，国防民兵后备役–绕开国际监管、有事方便直接上。
 
-somebody tell me what’s going on
-有人能告诉我在古巴发生了什么吗？
+11. 英国特种部队在中俄问题上最好准备，一般对付反恐问题才上特种部队，信号耐人寻味。
 
-there’s no coffins for dead bodies
-那里人死了没有棺材可用
+12. 英国Express开始全面报道关于中共威胁意义在于引起英国各界人士的关注。
 
-if you have a dead family member
-如果你有家人死了
+13. 中共对印太、亚太、五眼联盟国家政策，胡萝卜加大棒。胡萝卜–经济贸易合作，大棒–强调终将收复台湾。更明目张胆公开三个登台步骤，实则就是宣传而已。
 
-they got pronounce dead
-他们被宣布死亡了
+14. 七哥重要直播，中共未来内部将裂变，党内竞争已经白热化，斗鱼与虎牙的合并被取消就是党内斗争的结果。
 
-they got wrapped in a bedsheet
-他们被裹在床单里
+15. 共产党宣传的“头破血流”，实则上国内从上到下，没人可以幸免。
 
-you get you get that you can deliver the dead body
-你知道你可以运送尸体
+[**欢迎关注Youtube-大卫作战室**](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
 
-and you have to take it home with you
-而且你得自己把尸体带回家
+***每周一到周六直播：英国时间13点20；美东早8点20；盘古21点20***
 
-what you do with the body they don’t care
-你对尸体怎样处理？他们不在乎
+[!\[\]()!\[\](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
 
-do you have to figure it out
-你必须自己想办法
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-if you don’t have a car they don’t provide transportation
-如果你没有车，他们不会提供交通工具
 
-and you have to take the dead body home walking
-而且你必须走路将尸体带回家
+编辑：【英国伦敦喜庄园编辑部】
 
-there’s no drinking water
-那里没有饮用水
-
-food cost $200 a pound of rice cost 200 US Dollars
-食物要200美元，一磅的大米要200美元
-
-you don’t want to know how much 10 pounds on one cost
-你不想知道10镑的食物要花费多少钱
-
-my favorite part, Canadian dollars is currency for Cuba right now
-我最喜欢的部分，加元现在是古巴的货币
-
-if you don’t have family here in the United States to give you money
-如果你在美国没有家人给你钱
-
-you have to figure it out
-你自己要想办法解决生活
-
-you figured out because only way you can get money in Cuba
-你要自己想办法，因为在古巴，唯一的途径得到钱
-
-is if you get it sent to you by here
-是如果有人在美国给你汇钱
-
-oh and here it months to go to Cuba
-噢，而且要几个月才能把钱汇到古巴
-
-they shut off the light and water at 7 as soon as the sun goes down
-在七点太阳刚一落山时他们就开始停水，停电
-
-Electricity got shut out
-电被切断了
-
-Internet is shut right now worldwide in Cuba
-古巴的互联网目前在全球范围内关闭
-
-that’s why we’re not getting any new news
-那就是为什么我们得不到任何新闻
-
-but we are family there
-但是我们的家人在那里
-
-everybody’s out on the streets right now
-每个人目前都走上了街头
-
-just the same way they were yesterday on the street right now
-就像他们昨天在街上现在是一样的
-
-there’s no medication there’s no Advil， there’s no antibiotics
-那里没有药物，没有安非他命，没有抗生素
-
-there’s no butterfly butterfly needles
-没有蝴蝶针
-
-there’s no IVs there’s nothing there’s nothing
-没有静脉注射，什么都没有，什么都没有
-
-and now people are hearing scream out of Cuba
-现在人们听到了来自古巴的尖叫声
-
-I’m sick and tired of this dictatorship and my whole life
-我厌倦了这种独裁统治和我的整个人生
-
-when we visited Cuba you cannot say a word against the government
-当我们探访古巴时，你不能说反对政府的话
-
-but now I can go to my country and say (in spanish)
-但现在我可以去我的国家并且说：下台吧
-
-Fuck the regiment
-该死的独裁政权
-
-**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-**原视频链接:**[https://rumble.com/vjuau1-cuban-woman-reveals-how-evil-the-cuban-regime-is.html](https://rumble.com/vjuau1-cuban-woman-reveals-how-evil-the-cuban-regime-is.html)
-
-英听校：洛杉矶盘古农场- Layka
-翻译： 洛杉矶盘古农场- Layka
-翻译终校：洛杉矶盘古农场- Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[!\[\]()!\[\](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k0XwCKWLmd5bK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
