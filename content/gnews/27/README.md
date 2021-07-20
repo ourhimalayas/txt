@@ -2,24 +2,37 @@
 ---
 
 
-## 由于担心冠状病毒变异，美国股市暴跌
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1407241/)
+## 【新闻速递】马来西亚用压路机摧毁了 1,000 台比特币矿机
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407439/)
 
-美国道琼斯工业平均指数继续表现糟糕的下午，全球股市纷纷下跌。
+作者：纽约香草山健身部 Jack Li文阳
 
-全球经济增长放缓的前景导致欧洲大多数股市出现大幅下跌，此前亚洲股市隔夜下跌，当时印度尼西亚报告病例增加，一些运动员在东京奥运村测试呈阳性，奥运会将于周五开幕.
 
-华尔街投资者加入了股市抛售行列，道琼斯指数在纽约午餐时间下跌超过 2%。
 
-在英国，富时 100 指数早些时候收盘下跌 2.4% 至 6,844 点，这是自 5 月 11 日以来的最大单日跌幅，也是自 4 月初以来的最低收盘价。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-对鲍里斯·约翰逊政府放松封锁规则将有助于新变种在英国传播的担忧, 也严重打压了英镑的价值，英镑兑欧元和美元下跌。英镑跌至 1.37 美元，为 4 月以来最低，兑欧元下跌约 0.6% 至 1.16 欧元。
 
-分析人士表示，尽管疫苗接种率较高，但很少有市场能免于伴随着卫生专业人员警告的恐惧感，即该病毒仍可能导致住院人数激增并对年轻人造成伤害。
 
-新闻来源: [theguardian](https://www.theguardian.com/us-news/live/2021/jul/19/microsoft-hack-latest-news-china-biden-doj-warning-infrastructure-bill)
-编译： Boxinglady
-校对发稿：法图麦
-本文只代表个人观点，不代表 Gnews 平台
+在马来西亚沙捞越州，1069台价值126万美元加密货币挖矿机被一台压路机压扁了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19203209/Untitled-design-14.png)
+据马来西亚出版物《星报》报道，今年早些时候，这些矿机在2月至4月期间的六次突击检查中被没收，因为经营者被指控偷电，他们在开采比特币和以太坊的过程中偷走了大约 200 万美元的电力。
+
+今年早些时候比特币的价格飙升至历史新高，导致去中心化网络的大量电力使用。由于在矿工经营的地方经常报告能源盗窃，全球范围内的采矿业务受打击。
+
+新闻来源：https://www.zerohedge.com/crypto/malaysia-destroys-1000-bitcoin-mining-rigs-steamroller
+
+校对/发稿：火内
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

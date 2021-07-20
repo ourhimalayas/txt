@@ -2,23 +2,49 @@
 ---
 
 
-## 中共国黑客攻击让白宫陷入困境
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1407110/)
+## 【热点播报】中共的控制意味着香港正在失去国际金融中心的地位
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407327/)
 
-华盛顿7 月 19 日（路透社 Breakingviews）——当中共国与美国公司发生冲突时，白宫可以使用三个工具：羞耻、关税和制裁。只有最后一个可能有效，而且最难部署。
+作者：纽约香草山农场 四季
 
-周一，美国、欧盟、日本和其他盟国呼吁北京对微软 (MSFT.O) 电子邮件软件进行黑客攻击，影响了数千家企业。不过，谴责不太可能超过获取商业机密的好处。正如财政部长珍妮特耶伦上周指出的那样，关税可能是另一种选择，但它们也伤害了美国消费者。
 
-与此同时，制裁在过去一直有效。 2015 年奥巴马政府采取行动，切断从美国金融系统黑客中受益的中共国公司，直到北京承诺控制网络攻击。这奏效了一段时间，但在川普于 2017 年上任后入侵再次抬头。
 
-问题在于，中共国很容易对制裁进行报复。像苹果 (AAPL.O) 或星巴克 (SBUX.O) 等在那里占有一席之地的品牌可能会受到伤害。当然，华盛顿可以惩罚个别勒索软件组织。但总的来说，公司将在很大程度上加强自己的防御。黑客攻击的目标是脆弱公司的利润率。 （吉娜·琼）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-新闻来源：[reuters](https://www.reuters.com/breakingviews/china-hack-backs-white-house-into-corner-2021-07-19/)
 
-编译： Boxinglady
 
-校对发稿：法图麦
+据零对冲报道，中共最近实施了一项新法规，要求公司对外国的IPO进行审查，但在香港上市的公司，中共计划免除网络安全监管机构对其的审核批准。北京（中共）暗示，香港比纽约更适合中共国公司进行IPO。
 
-本文只代表个人观点，不代表 Gnews 平台
+![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/chinese%20IPOs%20in%20HK.jpg?itok=wEz67NWR)图片来源：零对冲
+
+中共此举发出了一个明确的信号，即香港、上海和深圳市场是寻求上市的中共国科技公司的首选之地，因为中共越来越担心科技巨头控制的大量数据可能会受到外国政府的窥视。在滴滴出行纽约首次公开上市的几天后，中共政府开始对网约车巨头滴滴展开了新的网络安全调查。该调查造成的结果是，包括“小红书”在内的初创企业正在搁置其在美国的IPO。
+
+与此同时，拜登政府周五警告美国企业在香港做生意的风险并发布了一份咨询意见称，中共国对这个金融中心施加了更多的控制已经威胁到了法治，并危及公司员工和数据安全。
+
+对于国际投资者，香港已不再是特殊的了，它基本上和其他中国城市一样了。
+
+参考阅读：
+
+[Beijing’s Grip Means Hong Kong Is No Longer Special](https://www.zerohedge.com/markets/beijings-grip-means-hong-kong-no-longer-special)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

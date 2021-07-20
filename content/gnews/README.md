@@ -31,13 +31,13 @@
 ### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/19-001 文贵先生盖特精要](/content/gnews/6/README.md)
+### [【文贵直播摘录】2021年7月18日：世界、中共和爆料革命的最新动态](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [2021/07/19-001 文贵先生盖特精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭爆料串珠（322）中共高官的性变态视频，看完你就不想活了](/content/gnews/7/README.md)
- ` 郭爆料串珠`
-
-### [郭爆料串珠（321）共产党灭亡后，谁会当中国领导人？](/content/gnews/8/README.md)
+### [郭爆料串珠（322）中共高官的性变态视频，看完你就不想活了](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
 ### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/9/README.md)
@@ -88,23 +88,23 @@
 ### [法国纪录片《习近平的世界》节选: 台湾是民主的典范，让北京无法忍受](/content/gnews/24/README.md)
  ` 英国伦敦喜庄园法语 Himalaya London Club UK-FR`
 
-### [【墙内热搜】中共国6月份债券与首批基础设施不动产信托](/content/gnews/25/README.md)
+### [美国、欧盟、英国、北约谴责中共网络黑客攻击](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【新闻速递】中共科技巨头腾讯收购英国游戏开发商Sumo](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [【热点播报】中共的控制意味着香港正在失去国际金融中心的地位](/content/gnews/26/README.md)
+### [【新闻速递】马来西亚用压路机摧毁了 1,000 台比特币矿机](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [由于担心冠状病毒变异，美国股市暴跌](/content/gnews/27/README.md)
- ` 索尼克`
+### [美国和其盟友指责中国黑客行为 并表示采取任何必要措施](/content/gnews/28/README.md)
+ ` 曹操`
 
-### [【秘翻在线】恒大财产遭冻结引发股灾](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
+### [【墙内热搜】中共国6月份债券与首批基础设施不动产信托](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
 
-### [【热点推荐】突发：恒大被广发行要求冻结1.32亿资产，港股跌幅超16%，遭遇股债双杀](/content/gnews/29/README.md)
- ` 温哥华扬帆农场`
-
-### [中共国黑客攻击让白宫陷入困境](/content/gnews/30/README.md)
- ` 索尼克`
+### [【热点播报】中共的控制意味着香港正在失去国际金融中心的地位](/content/gnews/30/README.md)
+ ` 纽约香草山MOS02`
 
 ### [【热点播报】美国指责中共国情报人员策划了对微软和其他国家的黑客活动](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登官员认为实验室泄漏理论与自然起源理论一样可信](/content/gnews/43/README.md)
+### [【枳实】中共病毒、疫苗和杂谈](/content/gnews/43/README.md)
+ ` 大废墙`
+
+### [拜登官员认为实验室泄漏理论与自然起源理论一样可信](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【战友心声】谈谈亡腚肛节目的硬伤](/content/gnews/44/README.md)
+### [【战友心声】谈谈亡腚肛节目的硬伤](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`
 
-### [美与西方国家共同揭露中共网络黑客行为](/content/gnews/45/README.md)
+### [美与西方国家共同揭露中共网络黑客行为](/content/gnews/46/README.md)
  ` HimalayaRussia`
 
-### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/46/README.md)
+### [研究证明：自然感染中共病毒产生真正的免疫力，而疫苗摧毁了它](/content/gnews/47/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国发布香港商业警告和进一步的制裁措施](/content/gnews/47/README.md)
+### [美国发布香港商业警告和进一步的制裁措施](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国的太空计划比你想象中的更具军事性](/content/gnews/48/README.md)
+### [中共国的太空计划比你想象中的更具军事性](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯批评中（共）国网络攻击威胁安全](/content/gnews/49/README.md)
+### [布林肯批评中（共）国网络攻击威胁安全](/content/gnews/50/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [日本首次在国防报告中提及台湾海峡的稳定问题](/content/gnews/50/README.md)
+### [日本首次在国防报告中提及台湾海峡的稳定问题](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯在关于全球暴行的报告中列举了新疆的虐待行为](/content/gnews/51/README.md)
+### [布林肯在关于全球暴行的报告中列举了新疆的虐待行为](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/52/README.md)
+### [奥运村新发生两起冠状（中共）病毒病例](/content/gnews/53/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美军增派25架F-22进驻关岛，百架五代匿踪战机云集印太](/content/gnews/53/README.md)
+### [美军增派25架F-22进驻关岛，百架五代匿踪战机云集印太](/content/gnews/54/README.md)
  ` G-NEWS TAIWAN`
 
-### [全球舰队靠拢亚太地区阻止中共扩张](/content/gnews/54/README.md)
+### [全球舰队靠拢亚太地区阻止中共扩张](/content/gnews/55/README.md)
  ` G-NEWS TAIWAN`
 
-### [美军C-130型大力神战术运输机，携外交邮袋降落桃园机场](/content/gnews/55/README.md)
+### [美军C-130型大力神战术运输机，携外交邮袋降落桃园机场](/content/gnews/56/README.md)
  ` G-NEWS TAIWAN`
-
-### [郭先生直播乱聊7月16日视频 文字精简版分享](/content/gnews/56/README.md)
- ` 喜马拉雅农场新西兰站`
 
