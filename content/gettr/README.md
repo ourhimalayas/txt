@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/20/2021 10:44 AM (UTC)`
+
+以毒灭共．是有新中国联邦和爆料革命在全球范围开始的．没有任何人可以代替我们的做用！
+![img](https://media.gettr.com/group48/getter/2021/07/20/10/eb2840c3-3052-19df-844f-c27f95cab0ff/out.jpg)
+
+---
+
 `@miles 7/20/2021 10:24 AM (UTC)`
 
 7月20号：尊敬的战友们好，你们还记得23个月以前这个视频吗？……
@@ -304,13 +311,6 @@ I sent a message to GETTR and within minutes I had a response via email. Now tha
 
 这帮找爹的孙子．找爹博．路大骗子……蛇妖闫……塞林骗子……真是吓死个人呀……🙈🙈🙈🙈🙈🙈😂😂😂😂😂😂😂😂😂😂
 ![img](https://media.gettr.com/group24/getter/2021/07/15/22/2886b968-0eb0-910e-c68c-45676af655e6/out.jpg)
-
----
-
-`@miles 7/15/2021 6:49 PM (UTC)`
-
-事实上，我们比这个数字厉害得多．真正的价值，那是这个路大脑骗子子能懂得呀……莘县阳谷县搭县县走着看……
-![img](https://media.gettr.com/group45/getter/2021/07/15/18/c8f8769a-adb7-813d-91fe-ceef961a4c5a/f088bac72a7fe7d9fee477234cbbfc6b.jpg)
 
 ---
 
