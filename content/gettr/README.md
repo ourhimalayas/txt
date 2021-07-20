@@ -20,6 +20,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@mtg4america 7/20/2021 12:55 AM (UTC)`
+
+
+![img](https://media.gettr.com/group41/getter/2021/07/20/00/1cd05faf-61f4-9c84-4689-e13b4de8e791/796c9ab2e92e2e2ae95ff27d67349d7e.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@changdaobrother 7/20/2021 12:23 AM (UTC)`
 
 自发抗议路缺德和蛇妖闫的战友们辛苦了🙏🙏🙏，爆料革命，强身更强心，继续加油💪
@@ -304,13 +313,6 @@ The internationalization of the RMB is a currency bomb and a  financial trap set
 
 America stands with the Cuban people.<br/> <br/>America stands against socialism + communism.<br/><br/>America stands for freedom.
 ![img](https://media.gettr.com/group45/origin/2021/07/12/19/82fafadd-d113-d039-3aa2-895c8203175f/out.jpg)
-
----
-
-`@miles 7/15/2021 6:14 PM (UTC)`
-
-只有三次啪啪啪的……双骗婚姻！
-![img](https://media.gettr.com/group2/getter/2021/07/15/18/e2cbced2-0f45-2a61-eae9-1d77d12cb100/9802725526f752f49fc851bb0a6ebad2.jpg)
 
 ---
 
