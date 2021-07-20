@@ -2,23 +2,28 @@
 ---
 
 
-## 【秘翻在线】印度中共病毒死亡人数或超过400万
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1408513/)
+## 【秘翻在线】美式橄榄球明星因发布身穿G|FASHION照片引发轰动
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1408632/)
 
-撰稿：风之伤
+撰稿发布：文柯Miles
 
-校对：文柯Miles
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20093411/Snsdafipaste_2021-07-20_21-24-41-1.png)](https://www.instagram.com/p/CRhJesBFADH/?utm_source=ig_web_button_share_sheet)Deandrehopkins
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20072157/asdsa56d4g54h5665j7u56k18956l1.jpg)
+7月19日，美式橄榄球明星 [德安德烈·霍普金斯](https://en.wikipedia.org/wiki/DeAndre_Hopkins) 在社交媒体发布身穿**G|FASHION**的照片而引发轰动，有超过5万名粉丝给他点赞，德安德烈更是直接用Sensational（轰动效应）作为贴文。
 
-据BBC 2021年7月20日报道，印度官方记录的中共病毒死亡人数已超过414,000。总部设在美国全球发展中心的研究人员，使用了三种不同的数据来源统计6月21日之前未计算的死亡人数。
+德安德鲁·霍普金斯1992年6月6日出生，是美国国家橄榄球联盟（NFL）亚利桑那红雀队的一名外接手。目前他在克莱姆森大学打橄榄球，并在2013年NFL的第一轮选秀中被休斯顿德州人队选中。霍普金斯曾五次入选职业碗，并入选了五支全明星队。
 
-据数据推断出七个州的死亡登记，占印度人口的一半。研究人员将国际上对特定年龄段感染死亡率的估计（死于病毒的人数），应用于两个全国范围的抗体测试数据，也称为血清调查。并查看了印度对 177,000 个家庭的 868,000 人的消费者调查，该调查也记录了家庭中是否有成员在过去四个月中死亡。最终研究人员发现，超额死亡人数估计在 340 万至 470 万之间，比印度官方的中共病毒死亡人数高出约 10 倍，这也远高于流行病学家的估计的五到七倍。
-
-研究人员包括全球发展中心的贾斯汀·桑德弗尔和哈佛大学的阿布舍克·阿南德表示，去年的第一波似乎比人们普遍认为的更具杀伤力，死亡率似乎中等。印度并不是一个例外，死亡率与规模和感染率相当的国家没有什么不同。无论来源和估计如何，最关键的结论是，中共病毒大流行期间的实际死亡人数可能远大于官方统计。真正的死亡人数可能是数百万，而不是数十万人，这可以说是印度自分裂和独立以来面临最严重的悲剧。
-
-新闻来源： [Covid-19: India excess deaths cross four million, says study](https://www.bbc.com/news/world-asia-india-57888460)
+德安德鲁·霍普金斯是著名的社交明星，他在Ins上有超过150万的关注粉丝，在Twitter上也有近65万关注粉丝。7月19日，他在Ins和Twitter上贴出了这张照片，照片贴出后立即吸引了无数粉丝互动回复，人们称赞衣服的品味与时尚气息，有人直接惊呼“Amazing”（不可思议的），也有女士评论道 “It’s absolutely gorgeous”（它是绝对华丽的）。
 
 
+
+> If you stand for nothing, you’ll fall for anything. [pic.twitter.com/KCBWvAsXcf](https://t.co/KCBWvAsXcf)
+> — Deandre Hopkins (@DeAndreHopkins) [July 19, 2021](https://twitter.com/DeAndreHopkins/status/1417238893536194566?ref_src=twsrc%5Etfw)
+
+
+
+**G|FASHION**是一个全球性的奢侈品牌，拥有世界顶级设计师和定制系列。 **G|FASHION**将最先进的制作工艺与创新的服装概念融合，缔造出每个系列的独特风格。在**G|FASHION**的世界里，享有盛誉的设计师和世界顶级工匠共同成长。每一季都会有崭露头角的设计天才加入**G|FASHION**无与伦比的创意精英团队，前景无可限量。
+
+**G|FASHION**引领奢侈品时尚届新的黄金标准，是一场由郭文贵先生构思并策划的顶级工艺加前卫风格的时装盛典。
 
 0

@@ -2,28 +2,14 @@
 ---
 
 
-## 冲破北京阻力，台湾与立陶宛将互设代表处
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1408769/)
+## 丧家狗亡腚肛连夜逃窜
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1408858/)
 
-2021年7月20日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20100204/cuba_0-4.jpg)
-台湾的外交部长吴钊燮星期二（7月20日）宣布，台湾与立陶宛政府经过密切协商后，双方同意台湾将在立陶宛首都维尔纽斯设立“驻立陶宛台湾代表处（The Taiwanese Representative Office in Lithuania）”。吴钊燮强调，这是台湾在欧洲国家中设立的第一个以台湾为名的代表处。
-
-立陶宛政府多次表示，将在今年秋天在台湾设立代表处，以拓展亚太市场。
-
-波罗的海小国立陶宛，虽然它面对敌国、身处外力压迫最前线，仍举国支持民主、自由、人权，而台湾面临相同处境，也坚持民主、自由、人权。
-
-**【[新闻来源](https://www.voachinese.com/a/Taiwan-and-Lithuania-exchange-representative-offices-despite-Beijing-pressure-20210720/5972391.html)】**
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+撰稿:东京樱花团/神的带领
+校对：东京樱花团/喜马拉雅的微尘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20024317/2cf0cc83832ed175826bdeddcc4fd779.jpg)
+昨天看了英喜农场的直播获悉亡腚肛连夜逃跑了。看到现场一片狼藉，像遭难了似的——七哥那豪华典雅的别墅被猪糟蹋了，真的感觉痛恨无比！ 看到那漂亮的别墅外观，感觉温馨舒适，一种美尽在眼里，看到那私人泳池更显豪华，静谧中生趣。曾经看七哥在那个家直播时是那样优雅整洁，书香与艺术结合，每件家具都古朴中透着时尚，绝对的好品质，这曾经是我梦想家的样子。当七哥把房子送给亡腚肛时不知有多少战友心生羡慕，有多少人以此为标准而奋斗。 但如今确是物是人非的场景，既心疼七哥的房子被糟蹋，又心疼七哥的一片情谊被枉付，亡腚肛伙同家属把能拿的都拿走了，可恨的是还在床垫子上留下一片尿迹，简直让人作呕。可恨的连狗狗的便便还留在房间里，最最可恨的是这个家伙还买了专业顶门的棍子，从里边把门顶住，即便你有钥匙也进不去。从这些，可以看出亡腚肛是一个极其下作和阴损的小人。可以说，一个人德不配位给他再好的东西也是枉费！另一方面也可以看出，亡腚肛跟从爆料革命过的是天上人间的生活，而一旦叛变跟从共产党就会一落千丈。估计亡腚肛正领着家眷及情妇闫妖正在东躲西藏，过着朝不保夕地狱一般的生活。 逃窜中的丧家犬亡腚肛是跑不掉的，美国的法律不会放过你这个臭无赖的。期待亡腚肛被抓的场景。
+（文章仅代表作者本人观点）
+发布：东京樱花团/喜马拉雅的微尘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
 0
