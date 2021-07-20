@@ -2,42 +2,44 @@
 ---
 
 
-## 【有声读物】论天国的仇敌:世界的主是谁？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1408028/)
+## 2021/07/17 世卫承认存在病毒实验室泄漏的可能性
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1408410/)
 
-配音：香草山福音部 Daxia
+字幕/听写：云岭 | 翻译：葡萄树 | 校对：Clau | 简评/文字整理/编辑：胖丁 | Page: Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/kGpXZGXJRuluT/images/99f3b090-2662-4df2-b567-874e7ed74c94.jpg?asset_id=72f28dd7-9f5b-46c7-9d06-4852e6a9cf3d&amp;img_etag=%22749aa9aab2c681d6f05d6eaa340a61f0%22&amp;size=1024)](https://spark.adobe.com/page/kGpXZGXJRuluT/images/99f3b090-2662-4df2-b567-874e7ed74c94.jpg?asset_id=72f28dd7-9f5b-46c7-9d06-4852e6a9cf3d&amp;img_etag=%22749aa9aab2c681d6f05d6eaa340a61f0%22&amp;size=1024)
+简评：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**拜登政府签署了90天调查新冠起源的命令，白宫一些高级官员认为实验室泄漏理论可信，但是中共国没有提供更多的原始信息或数据。白宫开始发出更多的公开威胁，国家安全顾问沙利文态度强硬。中共国否认实验室泄漏，并强调应该调查其他国家。年初世卫组织第一份调查报告指出，病毒可能来自自然。但是现在世卫组织总干事说，存在实验室泄漏的可能性。**
 
-
-
-
-
-
-
-很多看上去很敬虔的基督徒好像[旷野](http://sj.jidujiao.com/lockey.php)的先知呐喊着说，末日即将到来，耶稣才是世界的救主。
-
-弟兄姊妹们，经上记着说：“以后我不再和你们多说话，因为这世界的王将到，他在我里面是毫无所有。”（[约翰福音14:30](http://sj.jidujiao.com/lockey.php)）这就是当下我们所遭遇的，世界的王企图掌管世界。牠攻打、毁坏世界，试图统治全球，做世界的王，这就是中共CCP当下所做的。但经上记着说，当“现在这世界受审判的时候，这世界的王要被赶出去。”（[约翰福音12:31](http://sj.jidujiao.com/lockey.php)）是谁有资格、有能力将这世界的王赶出去呢？祂就是救主耶稣基督。但耶稣不是世界的救主，主是要审判这个世界的。保罗说：“末期到了，那时基督即将一切执政的、掌权的、有能的都毁灭了，就把国交与父神。”（[哥林多前书 15:24](http://sj.jidujiao.com/lockey.php)）当天国降临时，“凡称呼我‘主啊，主啊’的人，不能都进天国；惟独遵行我天父旨意的人，才能进去。”（[马太福音 7:21](http://sj.jidujiao.com/lockey.php)）
+GTV视频链接：[CNN主持人兼华盛顿高级记者Pamela Brown报道, 一些高级国家安全官员从情报角度认为，实验室泄漏理论 “非常可信”](https://gtv.org/video/id=60f3e6440aa4861113829649)
 
 
 
-**文字版原文：[【信仰之声】论天国的仇敌:世界的主是谁？](https://gnews.org/zh-hans/1389916/)**
+视频字幕：
 
-作者：纽约香草山福音部   捆绑CCP一千年
+**Pamela：**你知道拜登总统签署了90天调查新冠病毒起源的命令。拜登政府的几个高级官员，包括国家安全顾问沙利文认为新冠病毒从武汉实验室意外泄漏的理论，至少与它从动物直接传给人的可能性一样可信。这是与我们交流过的参与COVID起源调查的多位官员的说法，这是团队工作的结果。
+
+Jake，要说清楚的是，这不意味着他们相信病毒是实验室制造，或者故意释放，而是可能在实验室研究时意外泄露。不过，这与一年前相比发生了戏剧性的转变，正如你指出的，Jake， 民主党公开淡化所谓实验室泄露理论。
+
+但是同样重要的是，实验室泄漏理论是可信的。这种观点是一些高级国家安全官员从情报的角度得出的。多数研究冠状病毒和调查疫情起源的科学家仍然说，证据强烈支援病毒自然来源。不太可能是科学家研究过程中病毒从实验室泄漏。
+
+发现重要遗传学证据表明病毒来自动物的科学家说，他们想了解在疫情初期中共国知道的数据和早期样本。这是调查中遇到的一部分问题。从情报的角度说，消息人士告诉CNN， 在为期90天的审查中，中共国并没有提供更多有关大流行的原始信息或数据。
+
+但是随着审查的进行，白宫开始发出更多的公开威胁，而且杰克·沙利文对中共国使用更强烈的语言要求合作。你知道，Jake， 中共国强烈否认实验室泄漏理论，并且说世卫组织应该调查是否起源于其他国家。
+
+**Jake：**是的，那么世卫组织对此事怎么说的？
+
+**Pamela：**Jake，最近的进展非常有趣。世卫组织总干事说，实验室泄漏的可能性不应该排除在外。你知道，今年年初世卫组织发布了一份初步报告，认为病毒极不可能从实验室泄露，而是很可能来自于自然。
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+[!\[\]()!\[\](https://spark.adobe.com/page/kGpXZGXJRuluT/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/kGpXZGXJRuluT/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
-**更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

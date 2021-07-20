@@ -2,13 +2,49 @@
 ---
 
 
-## 2021年07月19日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1407487/)
+## 【独立观点】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1407663/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19204003/image0-71-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19210323/image1-14-scaled.jpg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+作者：纽约香草山健身部 Jack Li文阳
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-0
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+拜登政府刚发表声明指责中共对美国进行了网络攻击，声称会保留采取更多单边行动的权利。北京马上回应了拜登政府及其 “盟友联盟 “的最新指控，在其英文《环球时报》发表的一篇社论中，抨击美国政府关于中共国政府与独立黑客合作的说法是 “一个巨大的谎言”，北京指责华盛顿对中共国的“诽谤”“过分”。他们威胁说，若美国“采取激进措施，对中共国进行国家级网络攻击，或对中共国实施所谓的制裁，将进行报复”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19215436/Untitled-design-4-1.png)图片来源：网络
+环球社论称，美国指控的中共国故意允许犯罪黑客，以牺牲中共国“国家声誉”为代价获利的想法也是荒谬的。我倒想问问已经臭大街的中共，你到底还有多少所谓的“国家声誉”？你的“国家声誉”都是金钱利益买来的，除了收买几个地痞流氓，正常点的国家早就掩鼻逃离你了。
+
+环球说：“中共国有严格的问责制度。多年来，美国一直指责中共国进行网络攻击，这已成为中美之间高度敏感的问题。我们不禁要问：中共国像美方指责的那样对美国发动大规模网络攻击，严重打击中美关系的动机和利益是什么？美国的哪一条信息或经济利益比中共国的国家声誉更重要？” 这话应该问问你们元首，这种小动作，既不能动摇美国的民主政体，而且必将招致美国及其盟国的猛烈反击，究竟何为？老大难道真的是逆增援？
+
+环球社评补充说，网络攻击极难追踪，华盛顿正在“利用”其网络困境来“陷害”中共国。“几乎所有国家都发生了网络攻击，中共国遭受的损失比美国更大。” 既然攻击来自俄罗斯，中共如果想要洗清自己，希望拿出诚意，加大力度彻查，把黑客的罪名转给俄爹吧。
+
+最后，北京指责华盛顿对中共国的“诽谤”“过分”。他们补充说：“如果美国“采取激进措施，对中共国进行国家级网络攻击，或对中共国实施所谓的制裁，我们将进行报复”。
+
+美国表示，中共国政府是一系列恶意勒索软件、数据盗窃和其他针对全球公共和私人实体的网络间谍攻击的幕后策划者，其中包括今年早些时候发现的 Microsoft Exchange 黑客攻击。
+
+据彭博社报道，美国将提供证据，证明中共国国家安全部如何利用犯罪合同黑客在全球范围内进行未经批准的网络活动，包括为自己谋取私利。此外，美国国家安全局、中央情报局和联邦调查局将揭露中共国国家资助的网络黑客使用的 50 多种策略。
+
+真是一波未平一波又起，旧账未清，又一笔账又被翻出来了。接下来，中共必将迎来一波又一波的制裁和打击，不再仅限于军方，不再仅对于高科技，想必连低科技，中共都别想沾了。拜登用行动再次证明，灭共事业不会因为谁谁而逆转，全球灭共大潮滚滚向前推进。
+
+新闻来源：https://www.zerohedge.com/geopolitical/us-accuses-chinese-intelligence-agents-masterminding-microsoft-hack
+
+校对/发稿：火内
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
