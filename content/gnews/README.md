@@ -43,11 +43,11 @@
 ### [中共国疫苗的失败](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【秘翻在线】格林议员因散播中共病毒的错误信息被推特暂禁12小时](/content/gnews/10/README.md)
- ` 秘密翻译组G-Translators`
-
-### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/11/README.md)
+### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/10/README.md)
  ` 日本银河系农场-阿尔法星球`
+
+### [【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？](/content/gnews/11/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
  ` 文雍`
@@ -88,20 +88,20 @@
 ### [2021/07/17 世卫承认存在病毒实验室泄漏的可能性](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】震惊：媒体披露针对全球政客、活动家和记者的网络间谍武器被滥用](/content/gnews/25/README.md)
+### [【秘翻在线】印度中共病毒死亡人数或超过400万](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处](/content/gnews/26/README.md)
+### [【秘翻在线】震惊：媒体披露针对全球政客、活动家和记者的网络间谍武器被滥用](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【NewsExpress】台湾在欧洲国家立陶宛设立首个冠名“台湾“的代表处](/content/gnews/27/README.md)
  ` 索尼克`
 
-### [【NewsExpress】韩国总理和国防部长就文武大帝号驱逐舰群聚感染致歉](/content/gnews/27/README.md)
+### [【NewsExpress】韩国总理和国防部长就文武大帝号驱逐舰群聚感染致歉](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [【NewsExpress】昂山素季的民盟发言人吴年温感染CCP病毒逝世](/content/gnews/28/README.md)
+### [【NewsExpress】昂山素季的民盟发言人吴年温感染CCP病毒逝世](/content/gnews/29/README.md)
  ` 索尼克`
-
-### [【周说｜文贵】2021年7月14日至7月16日](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
 
 ### [【秘翻在线】疫苗接种数据成烫手山药 路透撤稿为哪般？](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
@@ -142,45 +142,45 @@
 ### [7/17/2021国内经济状况周报：数字人民币与实物人民币挂钩，尿素上涨带动化肥价格上涨](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [【中共国段子】绿色贝雷帽（3）](/content/gnews/43/README.md)
+### [网络袭击的真相：原来都是中共国政府雇佣的](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【中共国段子】绿色贝雷帽（3）](/content/gnews/44/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [【中共国段子】密集恐惧症](/content/gnews/44/README.md)
+### [【中共国段子】密集恐惧症](/content/gnews/45/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [天堂之路不走 地狱之门勇敲](/content/gnews/45/README.md)
+### [天堂之路不走 地狱之门勇敲](/content/gnews/46/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [“计划生育”的必要性](/content/gnews/46/README.md)
+### [“计划生育”的必要性](/content/gnews/47/README.md)
  ` 澳喜农场`
 
-### [拜登指责中共国保护黑客](/content/gnews/47/README.md)
+### [拜登指责中共国保护黑客](/content/gnews/48/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十九）](/content/gnews/48/README.md)
+### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（十九）](/content/gnews/49/README.md)
  ` RU WEI`
 
-### [中共国疫苗的失败](/content/gnews/49/README.md)
+### [中共国疫苗的失败](/content/gnews/50/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【雅典娜诗集】亡命腚缸](/content/gnews/50/README.md)
+### [【雅典娜诗集】亡命腚缸](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [关键时候还得小蔡](/content/gnews/51/README.md)
- ` 日本东京樱花团`
-
-### [比谁快](/content/gnews/52/README.md)
- ` 日本东京樱花团`
-
-### [东京奥运会开幕式作曲担当小山田圭吾宣布辞职](/content/gnews/53/README.md)
- ` 日本东京樱花团`
-
-### [【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
-
-### [7/20/2021日本银河快讯：美日等盟国发声明谴责中共网络攻击行为；文在寅放弃东京奥运期间访日](/content/gnews/55/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [【独立观点】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/56/README.md)
+### [【周说｜文贵】2021年7月14日至7月16日](/content/gnews/52/README.md)
  ` 纽约香草山MOS02`
+
+### [关键时候还得小蔡](/content/gnews/53/README.md)
+ ` 日本东京樱花团`
+
+### [比谁快](/content/gnews/54/README.md)
+ ` 日本东京樱花团`
+
+### [东京奥运会开幕式作曲担当小山田圭吾宣布辞职](/content/gnews/55/README.md)
+ ` 日本东京樱花团`
+
+### [【澳洲热点】短视频：澳洲谴责中共以国家行为实施黑客攻击](/content/gnews/56/README.md)
+ ` 墨尔本雅典娜农场`
 

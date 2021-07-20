@@ -2,10 +2,27 @@
 ---
 
 
-## 【中共国段子】绿色贝雷帽（3）
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1408489/)
+## 网络袭击的真相：原来都是中共国政府雇佣的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1408488/)
 
-【作者】Xingfffooo
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20063838/simplified42.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
-0
+- 作者：wenwu
+
+
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年7月20日电/西喜社**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20064350/%E7%BD%91%E7%BB%9C.jpg)
+图：美国白宫7月19日发表于申明–美国与盟国和伙伴一道，将追究中共国的不负责任恶性网络攻击行为
+据2021年7月19日《法广网》援引《美国白宫网站声明》的报道，周一（19日）美国和盟友及其伙伴正在揭露中共国网络攻击活动的更多细节，并就中共的攻击行为造成美国和盟友的损失与危害，进一步采取反抗措施。
+
+在该声明中明确了，它是建立在G7和欧盟整治勒索软件的承诺和7年来北约首次通过新网络防御政策之上，为迫使像中共国这样以国家级别力量培养情报企业（包括合同黑客），通过开展网络袭击谋求经济利益的行为得到制裁；在此声明中表示，美国司法部还将对中共国政府的四名国安部黑客提出刑事指控，他们多年对至少十几个国家的海事、航空、国防、教育和医疗保健进行黑客攻击。
+
+该报道更透露，在美国司法部的文件中证明了中共国以国家级力量对知识产权、商业秘密与机密商业信息的窃取，而后延展到关键的公共卫生信息。例如：埃博拉病毒疫苗的窃取。另外，据2021年6月3日[《纽约时报中文网》](https://cn.nytimes.com/usa/20210603/mta-cyber-attack/)的报道，一个与中共国有联系的黑客组织于4月入侵了大都会运输署（Metropolitan Transportation Authority)的计算机系统。另外，此事件发生正值全球最大的交通车辆生产商、中共国国企中车股份有限公司(China Railway Rolling Stock Corporation)，以国家补助来积极竞争美国波士顿、芝加哥、洛杉矶和费城的敌特车厢合同。司法部认定，中共国的国企公司是使中共国更容易对美国交通基础设施发动网络攻击，并且还可以作为[推动经济发展](https://cn.nytimes.com/usa/20200917/china-hackers/)的必要“借鉴”手段。
+
+中共国的网络攻击就是“盗夷长技以制夷”，最终会如同“慈禧”越过红线向“八国”宣战一般。所以，美国和北约等国家联盟将会对中共国是否越过红线，进行非常明确的政策，这就让美国和盟友与伙伴进入了可以随时启动战争的战备状态。
+
+也就是说，如果中共国的网络攻击部队对美国和北约盟友国家发动网络空间袭击后，造成了人民的死亡。或将直接无宣告进入对中共国的战争状态。
+
+审核：蚂蚁兄弟； 校对：信心满满； 发稿：Nuevo唐人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19065322/GNEWS_CH.-2.jpeg)
++2
