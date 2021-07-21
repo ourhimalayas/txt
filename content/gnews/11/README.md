@@ -2,29 +2,46 @@
 ---
 
 
-## 中共指责病毒溯源上谭德赛一反常态
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1409802/)
+## 【快讯】众议院议长佩洛西的助手尽管接种了疫苗，依然感染中共病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1409976/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：小韭菜a
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20183147/L-3.jpg)俄罗斯莫斯科喀秋莎农场 剿匪打工仔
-在文贵先生引领的爆料革命、新中国联邦揭露中共病毒真相的进程中，中共生物武器的罪恶越来越被世界所认识，邪恶的中共不会束手就擒，会想方设法地继续抵赖，继续蒙骗国内民众。7月20日国内媒体以这样的方式密集报道了相关事情。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-据环球网7月20日报道，最近，世卫组织总干事谭德塞一反常态，在（中共病毒）新冠溯源问题上与美国统一战线，宣称“在中(共)国进行的(中共)病毒溯源调查受到阻碍”，甚至要求中共国提供疫情初期原始数据，话里话外指责中共国“未分享关键信息”，还表示现在放弃病毒人造论为时尚早。他的一番表态与之前对中共国的信任模样截然相反。
 
-早前，世卫组织派专家来中共国调查时，中共国就已经提供了大量的数据和信息，而对于涉及隐私不能携带出境的数据来访专家也表示了理解。世卫组织在3月30日就发布溯源报告，给出“实验室事故引发病毒是极不可能”的结论。现在谭德塞突然改口让人不解，他甚至完全无视了55个国家“反对（中共）病毒溯源政治化”的致函，执意要对中共国展开新一轮溯源要求。
 
-值得注意的是，谭德塞态度大变与美国传染病学专家福奇频频改口如出一辙。早前，福奇称没有证据支持“实验室泄漏论”，后又改口称并不完全“确信”新冠病毒是自然发展的，为美国栽赃“中共国泄漏病毒”提供了舆论支持，美国顺水推舟指责中共国。但在6月21日，福奇又公开表态称是政治影响了他的言行，承认（中共）病毒溯源问题被“政治化”。如今福奇已经承认（中共）病毒与蝙蝠病毒基因物质完全符合，为何谭德塞还要同美国一道执着来中共国调查呢？
 
-在7月19日举行的例行记者会上，外交部发言人赵立坚表态称，世卫组织提出的第二阶段溯源工作计划，同中方及很多国家在溯源问题上的立场不符，希望世卫组织秉持科学专业客观精神，同国际社会一道，共同抵制将溯源问题政治化的逆流，共同维护全球抗疫合作良好氛围。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20195929/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%887.58.50-e1626825617427.png)
+众议院议长南希佩洛西（Nancy Pelosi）的发言人上周与逃离该州前往华盛顿特区的德克萨斯州立法机构成员会面后，周一的冠状病毒检测呈阳性。
 
-（原文完）
+佩洛西的高级助手德鲁·哈米尔（Drew Hammill）说，7月19日发言人新闻办公室的一名完全接种疫苗的高级发言人检测出COVID阳性，他在上周与德克萨斯州立法机构成员接触过后。安全起见，议长办公室因此采取了额外的预防措施，比如在国会医生放宽口罩限制后，最近几周许多议员选择不戴口罩，但是周二佩洛西和她的工作人员被看到在国会大厦重新戴上口罩。
 
-这就变相地告诉了墙内同胞，世界怀疑中共病毒来自武汉实验室，为了溯源，世卫组织进行过第一次调查，而不是研究（以前中共媒体称作“研究”，而不是“调查”）；谭德塞、福奇曾经为中共说好话，帮助掩盖，现在他们的立场变了。看看下步中共还用怎样的方式进行。
+【评】前有50多名完全接种疫苗的德州议员乘坐私人包机前往华盛顿，途中他们并没有戴口罩，结果6名人员的中共病毒检测为阳性。后有完全接种疫苗的佩洛西发言人感染，可见这疫苗的预防效果不尽人如意。主流媒体，医药公司，和政府机构一直强调新冠死亡病例里99%以上都是没有接种过疫苗的病人，但是并没有说明现在新增感染病例里有多少是接种过疫苗有多少是没有接种过疫苗的。这个比例–显示疫苗有效性最重要的指标–现在却没有人谈，实在是可疑！
 
-原文链接：
+校对/发稿：悟空
 
-[https://new.qq.com/rain/a/20210720A09QMQ00](https://new.qq.com/rain/a/20210720A09QMQ00)
+参考来源：
+
+[https://www.foxnews.com/politics/pelosi-aide-white-house-official-test-positive-covid](https://www.foxnews.com/politics/pelosi-aide-white-house-official-test-positive-covid)
+
+
+
+> Speaker Pelosi did not respond to questions on if she would accept the GOP Leader’s picks to serve on the Jan 6th select committee [pic.twitter.com/JvWmzN9LyZ](https://t.co/JvWmzN9LyZ)
+> — Kelly Phares (@kellyfphares) [July 20, 2021](https://twitter.com/kellyfphares/status/1417473908333293568?ref_src=twsrc%5Etfw)
+
+
+
+[https://www.foxnews.com/politics/sixth-texas-dem-comes-down-with-covid-19-and-is-isolating-report](https://www.foxnews.com/politics/sixth-texas-dem-comes-down-with-covid-19-and-is-isolating-report)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20112700/1d33a7c1-79e4-4eff-bede-92d856cd77cd.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

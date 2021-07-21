@@ -2,46 +2,49 @@
 ---
 
 
-## 共和党高层聚集到杰森·米勒(Jason Miller)的新社交媒体平台盖特GETTR
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1409864/)
+## 【医疗前沿世界】超级抗体S2H97可以对抗多种中共病毒变种
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1409940/)
 
-- 翻译: 文戈七雄
+作者：纽约香草山医疗部  云豹
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年7月20日电/西喜社**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20190317/gettr-hp.jpg)图片来源：nypost.com
-GETTR盖特有一些大的收获。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-这个社交媒体平台是唐纳德·川普的前顾问杰森·米勒(Jason Miller)上个月推出的，据称有一大批共和党高级官员加入了该网站。
 
-在国会中已经签署的主要名字包括众议院少数党领袖凯文·麦卡锡(加州共和党)，会议主席伊莉斯·斯特凡尼克(纽约州共和党)，以及众议员吉姆·乔丹(俄亥俄州共和党)，众议员李·泽尔丁(纽约州共和党)，参议员詹姆斯·兰克福德(俄克拉荷马州共和党)和其他一系列人。
 
-GETTR一直被定位为Twitter的竞争对手，后者因广泛的审查和屏蔽合法新闻报道而受到批评，比如《华盛顿邮报》关于亨特·拜登(Hunter Biden)笔记本电脑的爆炸性报道。
+今日，美国华盛顿州西雅图 Fred Hutchinson 癌症研究中心的生化专家 Tyler Starr 和他的同事共同发现了使用抗体来治疗SARS-CoV-2中共病毒的方法，有可能可以解决SARS-CoV-2 病毒的一些变种借由突变来逃避抗体抓捕作用的问题。
 
-许多共和党人，甚至民主党人，都在推动利用监管改革来迫使推特更透明地运作——而其他立法者则认为它是一家私人公司，答案是让其他人建立新的平台，这正是米勒所做的。
+该研究团队成员Vir Biotechnology 公司从感染了SARS-CoV-2 病毒或其近亲SARS-CoV病毒的病人身中分离出 12 种抗体。这些抗体会锁定在病毒表面，负责与人体细胞膜受体上的病毒蛋白结合。许多针对 SARS-CoV-2 病毒感染的抗体疗法，都是基于相同的病毒蛋白质片段，此部分称为病毒的受体结合域(receptor binding domain)。
 
-米勒告诉《华盛顿邮报》，该平台目前拥有150万用户，其中45%来自美国，15%来自巴西，其余则来自多个国家。
+研究人员列出了多种 SARS-CoV-2 变体病毒的受体结合域中的数千个突变。他们还对一群sarbecoviruses（类似SARS-CoV-2 病毒）的数十种冠状病毒的受体结合域中的突变进行了编组。最后，他们评估了所有这些病毒突变对此12种抗体粘附到病毒受体结合域的能力有多少的影响。
 
-GETTR的推出，正值拜登政府因赞同Facebook等社交媒体网络试图审查白宫认为的“错误信息”而受到批评之际。
+他们发现，一种定名为S2H97的抗体能够黏附到研究人员测试的所有 sarbecovirus病毒的受体结合域上。在实验室中，S2H97抗体能够阻止一系列 SARS-CoV-2 病毒变种和其他 sarbecovirus病毒在实验室培养的细胞系列中传播。S2H97抗体也可以保护仓鼠免于受到 SARS-CoV-2病毒的感染。
 
-“社交媒体巨头正在与乔·拜登合作，”米勒说，“这是危险的。”
+研究人员在对 S2H97 抗体的分子结构做进一步检查后发现，它是针对病毒受体结合域上一个隐藏良好、只有在与细胞膜上受体结合时才会弹开的病毒受体结合域分子产生作用。Starr 指出，此病毒受体结合域特别片段产生作用的分子，可以用来防护多种病毒的感染，或许有朝一日可用于广效性抗SARS类病毒疫苗的制造。
 
-他接着说，“言论自由只有在失去他们的时候才重要。”
+其他 11 种抗体也可以对多种病毒产生作用。但是，如果这些抗体越是有效地阻止SARS-CoV-2病毒株进入细胞，它可以结合的病毒种类范围就越小。研究人员也发现，在病毒发生突变时，这种会与抗体结合导致病毒失效的病毒受体结合域的特殊部位，一般不会因为病毒的突变而产生改变。
 
-虽然目前主要被视为是保守派的一个平台，但米勒说，GETTR正在努力扩大网站的意识形态吸引力，并打算在不久的将来聘请一名民主党人参与主管。
+此新发现，对于未来研究广效性的对抗sarbecovirus病毒治疗和疫苗研发将有新的助益。
 
-前总统川普尚未加入这个新平台，但本月，他对科技巨头Facebook、Twitter和YouTube提起诉讼，原因是它们关闭了他的账户，并对其他保守派采取了类似行动，他称这是“对美国人民非法和可耻的审查”。
+(以上为作者观点，不代表G NEWS的立场)
 
-川普称，这两起集体诉讼要求对所违反《第一修正案》的行为支付总额可能达“数万亿”美元的赔偿金，具体数额不详。
+[https://www.nature.com/articles/d41586-021-01917-9](https://www.nature.com/articles/d41586-021-01917-9)
 
-川普还要求联邦法官推翻1996年授予互联网公司的有争议的豁免权保护，宣布《通信规范法案》(Communications Decency Act)第230条违宪。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
-**新闻来源：**[nypost.com](https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/)
+编辑/校对/发稿：正义的小新
 
-审核： sunshine； 校对：Jenny Ball，阿伯塔； 发稿：信心的选择
+**更多资讯，更多关注**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19065322/GNEWS_CH.-2.jpeg)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 +1

@@ -2,29 +2,46 @@
 ---
 
 
-## 【NewsExpress】评论：超级水坝导致天灾人祸，目的是维护党的合法性
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1409937/)
+## 【快讯】众议院议长佩洛西的助手尽管接种了疫苗，依然感染中共病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1409976/)
 
-**翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20192503/22-16.jpg)
-译者：以下是作者布拉马·切拉尼在六月份时候发表的一篇关于中共大坝的社评，摘要了部分。因为在中共国，正在发生着惨无人道的水灾。几十年以来， 水灾除了暴雨等自然因素之外，必定伴随着大坝崩溃，泄洪，淹哪个城市，救哪个城市的选择。这不是天灾，这是人祸。以下是部分摘要：
+作者：小韭菜a
 
-中国是世界上筑坝最多的国家，拥有比世界其他地方加起来还要多的大坝。这些大坝和水利工程都为中共助长的民族主义提供了重要的素材，其目的是维护党的合法性。中共经常炫耀其水利工程实力，包括执行有史以来最雄心勃勃的跨河调水，以彰显其军事和经济实力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-中共建造水坝的目的还在用来控制下游国家的杠杆来源。中共在 1951 年吞并了亚洲十大水系的起点，水资源丰富的青藏高原，这赋予了中共在亚洲水图上的巨大权力。 随后的几十年里，中共充分利用了这一河岸优势。例如，在湄公河上建造了 11 座巨型水坝，从而确保了关闭该地区水龙头的能力。
 
-中共没有考虑其战略的高成本，这远远超出了与邻国的政治摩擦。中共永无止境的筑坝正在对亚洲的主要河流系统造成环境破坏，包括中国大陆的双重生命线：黄河和长江。巨型水坝破坏生态系统，导致淡水物种灭绝，导致三角洲退缩，并且排放的温室气体通常比化石燃料发电厂更多。近几十年来，中国有 350 多个湖泊消失了，自由流动的河流几乎没有，河流破碎和枯竭已成为地方性的问题。
 
-社会成本同样严重。首先，鉴于共产主义统治的前三年建筑质量低劣，到 1981 年约有 3,200 座大坝倒塌，仅 1975 年板桥大坝溃决就造成多达 230,000 人死亡。此外，大坝项目已经使大量中国人流离失所。2007年，就在中国大坝建设势头强劲之际，时任总理温家宝透露，中共上台以来，中国已搬迁2290万人为水利工程让路，这个数字比超过 100 个国家的全部人口还要多。仅三峡大坝就有超过 140 万人流离失所。
 
-峡谷是世界上生物多样性最丰富的地区之一，中共并不关心，它更感兴趣的是能够利用水作为对抗亚洲竞争对手印度的武器。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20195929/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%887.58.50-e1626825617427.png)
+众议院议长南希佩洛西（Nancy Pelosi）的发言人上周与逃离该州前往华盛顿特区的德克萨斯州立法机构成员会面后，周一的冠状病毒检测呈阳性。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+佩洛西的高级助手德鲁·哈米尔（Drew Hammill）说，7月19日发言人新闻办公室的一名完全接种疫苗的高级发言人检测出COVID阳性，他在上周与德克萨斯州立法机构成员接触过后。安全起见，议长办公室因此采取了额外的预防措施，比如在国会医生放宽口罩限制后，最近几周许多议员选择不戴口罩，但是周二佩洛西和她的工作人员被看到在国会大厦重新戴上口罩。
 
-**参考链接：**
+【评】前有50多名完全接种疫苗的德州议员乘坐私人包机前往华盛顿，途中他们并没有戴口罩，结果6名人员的中共病毒检测为阳性。后有完全接种疫苗的佩洛西发言人感染，可见这疫苗的预防效果不尽人如意。主流媒体，医药公司，和政府机构一直强调新冠死亡病例里99%以上都是没有接种过疫苗的病人，但是并没有说明现在新增感染病例里有多少是接种过疫苗有多少是没有接种过疫苗的。这个比例–显示疫苗有效性最重要的指标–现在却没有人谈，实在是可疑！
 
-[https://www.channelnewsasia.com/news/asia/commentary-china-has-an-insatiable-appetite-for-super-dams-15089708?cid=h3\_referral\_inarticlelinks\_24082018\_cna](https://www.channelnewsasia.com/news/asia/commentary-china-has-an-insatiable-appetite-for-super-dams-15089708?cid=h3_referral_inarticlelinks_24082018_cna)
+校对/发稿：悟空
 
-***校对发布：文顾***
+参考来源：
 
-+1
+[https://www.foxnews.com/politics/pelosi-aide-white-house-official-test-positive-covid](https://www.foxnews.com/politics/pelosi-aide-white-house-official-test-positive-covid)
+
+
+
+> Speaker Pelosi did not respond to questions on if she would accept the GOP Leader’s picks to serve on the Jan 6th select committee [pic.twitter.com/JvWmzN9LyZ](https://t.co/JvWmzN9LyZ)
+> — Kelly Phares (@kellyfphares) [July 20, 2021](https://twitter.com/kellyfphares/status/1417473908333293568?ref_src=twsrc%5Etfw)
+
+
+
+[https://www.foxnews.com/politics/sixth-texas-dem-comes-down-with-covid-19-and-is-isolating-report](https://www.foxnews.com/politics/sixth-texas-dem-comes-down-with-covid-19-and-is-isolating-report)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20112700/1d33a7c1-79e4-4eff-bede-92d856cd77cd.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
