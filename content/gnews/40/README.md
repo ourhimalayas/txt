@@ -2,45 +2,71 @@
 ---
 
 
-## 7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1409132/)
+## 【世事解评】GETTR开启社交媒体新时代 千万用户即将涌入
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1409912/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20113946/%E5%9B%BE%E7%89%872-50.png)[图片来源](https://www.thegatewaypundit.com/)
-**1.****拜登说他不会因中****共****最近广泛入侵微软Exchange服务器而制裁中****共****国**
+作者 ：经济小组 / 纽约香草山金融部 ilovezhanshen
 
-[周一，乔-拜登在就消费价格上涨发表讲话后接受了记者的几个问题。一位记者问乔-拜登，在中共支持的黑客大范围入侵微软Exchange服务器后，他的政府为什么不对中共国实施制裁。拜登显然没有准备好回答，停顿了很久才说：”这需要更长时间的解释。”记者说:”我们有世界上所有的时间！”拜登说，”不，我们没有。”然后为他不制裁中共国的决定想出了一个可悲的借口。拜登说：”我的理解是，中共政府与俄罗斯政府不一样的是，他们自己并没有这样做，而是在保护那些正在做这件事的人。”](https://www.thegatewaypundit.com/2021/07/china-joe-says-wont-sanction-china-recent-widespread-hack-microsoft-exchange-server-video/)
+编审：经济小组/加拿大多伦多枫叶农场 向往真理
 
-**2.参议员布莱克本就大科技公司言论审查致信拜登**
 
-[参议员玛莎-布莱克本(Marsha Blackburn)对拜登政府与Facebook合作打击所谓的疫苗错误信息进行了回应。在发给乔-拜登本人的一封信中，她强调了她的担忧，同时指出政府的这一举措可能违反了第一修正案。这位田纳西州的立法者询问了他们在标记和删除帖子或禁止用户时使用的标准。她还质疑政府指示社交媒体平台遵循其指导的法律依据。](https://www.oann.com/sen-blackburn-writes-letter-to-biden-about-big-tech-censorship/)
 
-[布莱克本要求在8月2日之前得到关于此事的简报。 民主党正在继续推动大科技公司从互联网上清除他们认为是围绕冠状病毒的错误信息。目前还不知道脸书、推特或谷歌是否会遵循政府关于内容审核的这一新指南，尽管白宫表示他们正在与这些公司密切合作，标记他们认为有问题的内容。](https://www.oann.com/sen-blackburn-writes-letter-to-biden-about-big-tech-censorship/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-**3.****“世纪的金融故事”，****SEC与瑞波公司的司法案件在大媒体的忽视中继续向前推进**
 
-[“世纪的金融故事 “正在升温。 今天会有更多消息。昨天我们分享了所附推文中的视频，提供了 “世纪金融故事 “的最新情况。 这个故事涉及美国证券交易委员会、加密货币和中共国。 这里发生了很多事情，但到目前为止，它收到的消息很少。此案件被认为，美国的机会主义者是否像其他人一样把加密货币让给了中共国？最近，Ripple要求Clayton在SEC的一名高层人员提供证词，法院后来裁定Ripple可以对政府所保护的个人进行取证。 上周，美国证券交易委员会告诉法官，他们需要时间来评估法官的决定，即瑞波公司想要传唤的个人要由瑞波公司传唤，这个故事正在升温，主流媒体们对此重大新闻继续选择了忽略。](https://www.thegatewaypundit.com/2021/07/financial-story-century-secs-case-ripple-moves-forward-video/)
 
-**4.****墨尔本和****悉尼的封锁每周****损失高达20亿美元**
+由前川普总统发言人杰森·米勒（Jason Miller）创立的新社交媒体平台GETTR自7月4日上线以来已经突破了150万用户，其用户速度增长之快远远超过了所有其他的社交媒体平台，包括Instagram, Facebook和 Twitter。据《华盛顿观察家报》（Washington Examiner）7月15日报道，已经有15%的共和党人知晓GETTR，其中2%已经加入GETTR，有8%正计划加入，用户转化率高达三分之二 [1]。这意味着随着GETTR未来被更多人所知，新加入的用户将会是千万级别的。
 
-[经济学家沃伦-霍根说，墨尔本和悉尼的封锁使澳大利亚每周损失高达20亿美元。悉尼和整个维多利亚州目前被封锁，占全国总人口的近一半。”我们每周的成本高达15亿至20亿美元。我们谈论的是经济活动受到15%到20%的打击，”霍根先生告诉澳大利亚天空新闻。](https://www.skynews.com.au/business/finance/melbourne-sydney-lockdowns-costing-up-to-2-billion-a-week/video/99bbb80f571def987d86a7f70060cc47)
+上线于美国独立日7月4日，GETTR提供了一个独立思想与言论自由的愿景和平台，以反抗自2020年美国大选以来美国主流媒体对保守派言论的媒体封杀（Cancel Culture）。此前，在各主流社交媒体上，传播病毒人造，羟氯喹，解雇福奇，拜登硬盘，大选舞弊等话题都有被封号的风险。很多保守派大V，包括川普总统在内，都被封号。GETTR CEO杰森·米勒表示，GETTR将保证各种政治观点的言论自由，不会因为任何人的政治观点而将其封杀 [2]。
 
-**5.Robinhood在美国大型IPO中寻求高达350亿美元的估值
-**
-[7月19日（路透社）–Robinhood Markets Inc在周一提交的文件中透露，该公司在美国首次公开募股的目标估值高达350亿美元，为今年最令人期待的股市上市之一创造了条件。在上市计划出台前几个月，这家在线经纪公司发现自己处于新一代散户投资者和华尔街对冲基金在1月底的对抗中心。路透社此前曾报道，Robinhood的目标是IPO估值高达400亿美元。该公司表示，约有5500万股股票在IPO中发行，股票价格预计在38美元至42美元之间。如果按最高价定价，这将筹集超过23亿美元。](https://www.reuters.com/business/finance/robinhood-aims-up-35-bln-valuation-us-ipo-2021-07-19/)
+班农先生于7月4日在直播中表示，GETTR的价值来源于世界上被左派”全球主义”媒体压制了言论的巨量支持保守派与平民主义的人口。其中，在欧洲、美国、巴西、加拿大、日本、澳大利亚 等占据世界经济80%的发达国家中，就有大约7.5亿至10亿人的市场。除此之外，班农先生还认为GETTR未来最大的市场将是海外华人群体以及中国大陆，成为摆脱中共垄断媒体生态的重要武器 [3] [4]。
 
-**6.病毒爆发引发全球经济复苏担忧，股市动荡不安
-**
-[亚洲股市周二早盘下跌，因为越来越多的人担心变异的冠状病毒蔓延会损害全球经济复苏，包括石油在内的风险较大的资产大幅下滑。摩根士丹利资本国际公司(MSCI)对日本以外的亚太股市的衡量标准最高下跌了0.29%，澳大利亚的S&P/ASX 200指数下跌了0.39%。日本日经225指数在早盘创下六个月新低，跌幅扩大至1.05%。恒生指数开盘下跌0.3%，中国基准沪深300指数开盘时下滑0.7%。](https://www.reuters.com/business/global-markets-wrapup-1-2021-07-20/)
+之前保守派社交媒体没能成功的原因在于大量的工程师人才以及资本主要集中于例如Facebook，Youtube，Twitter等硅谷的全球主义媒体，保守派虽然有做出相关的努力，但依然和它们有很大差距。GETTR吸取了之前的经验教训，可以在这些方面做到超越这些硅谷公司20%的水平，包括更简洁的界面，777字的文字容量，更强大的视频、直播功能等等。更加优越的技术、雄厚的资本，再加上真正开放、包容的言论环境将使GETTR获得前所未有的天量用户群体。班农先生表示，目前的Twitter只有3000万活跃用户， GETTR未来的用户群将远远超过这个数量级，达到十几亿甚至几十亿的规模 [3] [4]。
 
-**7.澳大利亚央行的乐观主义政策受到LOCKDOWN的考验
-**
-[澳大利亚央行在本月早些时候削减刺激措施时，指望经济能保持惊人的实力，但现在可能被迫重新考虑，因为冠状病毒导致的全国封锁。7月6日的政策会议记录显示，澳大利亚储备银行（RBA）政策委员会认为经济成果 “实质性 “地好于预期，特别是在劳动力市场。因此，它决定从9月起，将每周购买债券的数量从目前的50亿澳元减少到40亿澳元（29.4亿美元）。然而，随着新南威尔士州和维多利亚州的商店、餐馆和建筑工地的停业，活动自此转入低潮。](https://jp.reuters.com/article/us-australia-rba-minutes/australian-central-banks-policy-optimism-tested-by-lockdowns-idUSKBN2EQ04V)
+除了班农之外，已经有多名保守派大V加盟GETTR，包括前国务卿Mike Pompeo, 众议院少数党领袖Kevin McCarthy, 众议院共和党会议主席Elise Stefanik, 前任白宮贸易与制造业政策办公室主任Peter Navarro，前美国住房与城市发展部部长Ben Carson等等。除此之外，代表保守派内非常流行的声音的Charlie Kirk, Monica Crowley, Rogan O’Handley等人，以及新兴保守派媒体Newsmax也已经入住GETTR。目前GETTR用户有约44%来自美国，15%来自巴西，沙特阿拉伯，德国，日本，加拿大等国的用户紧随其后 [5]。
 
-**8.耶伦敦促美国迅速通过稳定币规则
-**
-[财政部长珍妮特-耶伦周一告诉监管机构，美国政府必须迅速采取行动，为稳定币建立一个监管框架，这是一类迅速增长的数字货币。财政部在一份声明中说，一个由美国监管机构组成的小组计划在未来几个月发布建议，以弥补围绕稳定币的任何监管漏洞。周一召开的总统金融市场工作组会议强调了政策制定者如何快速行动以确保其规则能够跟上整个数字货币的快速技术变化。该小组讨论了稳定币的快速增长，根据财政部的数据，稳定币是试图将其价值与传统货币（如美元）挂钩的加密货币。监管机构讨论了它们的潜在用途，以及对终端用户和金融系统的风险。](https://www.reuters.com/technology/yellen-says-us-must-move-quickly-establish-stablecoin-rule-framework-2021-07-19/)
+除了保证言论自由之外，GETTR也很重视对用户数据的所有权的保护。在最近的[一份声明](https://twitter.com/GettrOfficial/status/1412518014805807108?s=20)中，杰森·米勒表示，GETTR不会收集用户的个人信息，更不会像其他社交媒体巨头一样，将商业模式建立在收集和出售用户数据上，并从中牟取巨额利润。另外，基于用户对各自内容的所有权，用户可以将其过往的推文从Twitter转移到GETTR平台上。杰森·米勒在另一份声明中还表示，Twitter最近对此的阻碍侵犯了用户对自己数据的所有权[7] [8]。
 
-By【秘密翻译组-金融法律组】
-作者：千年等一回
+GETTR 的标语是Marketplace of ideas，代表了一个自由的思想市场的概念。因此它将不仅是一个保守派言论的平台，它也将欢迎左派大V的加入。杰森·米勒在最近多次接受采访时都表达了这一立场，并称已经为总统拜登与副总统哈里斯准备好了GETTR用户名 [5] [9]。作为GETTR主要盟友之一的郭文贵先生 [2] 在7月19日表示，GETTR将会成为团结、凝聚目前高度分裂的美国两党的平台，未来将会邀请包括拜登、佩罗西、舒默在内的大量左派大V加入 [10]。
+
+与其他社交媒体巨头相比，不管是对政治观点的包容，还是技术、资本、未来的市场潜能，以及对用户数据所有权的保护，GETTR都已经占了上风。可以预见，在不远的未来，GETTR将重新制定相关的游戏规则，开创一个社交媒体乃至整个新闻界的新时代，为已经腐朽不堪的全球媒体界注入一股清流。
+
+参考链接：
+
+[1] GETTR explodes, passing 1.5 million users in just 11 days [https://www.washingtonexaminer.com/washington-secrets/gettr-explodes-passing-1-5-million-users-in-just-11-days](https://www.washingtonexaminer.com/washington-secrets/gettr-explodes-passing-1-5-million-users-in-just-11-days)
+
+[2] New Social Media Platform Gettr Says No to Cancel Culture, Yes to Free Speech [https://www.dailysignal.com/2021/07/09/new-social-media-platform-gettr-says-no-to-cancel-culture-yes-to-free-speech/](https://www.dailysignal.com/2021/07/09/new-social-media-platform-gettr-says-no-to-cancel-culture-yes-to-free-speech/)
+
+[3] [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](https://gnews.org/zh-hans/1376105/)
+
+[4] Highlights of Mr. Miles Guo’s Live Broadcast on July 4th, 2021(2) [https://gnews.org/1374721/](https://gnews.org/1374721/)
+
+[5] Former Trump adviser Jason Miller’s GETTR social media platform reaches 1M users days after launch – Platform says it’s seeking to engage more Democratic users [https://www.foxbusiness.com/politics/jason-miller-gettr-platform-1-million-users-after-launch](https://www.foxbusiness.com/politics/jason-miller-gettr-platform-1-million-users-after-launch)
+
+[6] [GETTR statement regarding a reported hack](https://twitter.com/GettrOfficial/status/1412518014805807108?s=20)
+
+[7] GETTR Statement on Twitter’s Blocking of Tweet Importation [https://twitter.com/GettrOfficial/status/1413904254989910016?s=20](https://twitter.com/GettrOfficial/status/1413904254989910016?s=20)
+
+[8] [https://twitter.com/RealPNavarro/status/1414203005109481472?s=20](https://twitter.com/RealPNavarro/status/1414203005109481472?s=20)
+
+[9] What makes Jason Miller’s new social media app different? [https://spectatorworld.com/topic/interview-jason-miller-ceo-gettr-trump/](https://spectatorworld.com/topic/interview-jason-miller-ceo-gettr-trump/)
+
+[10] 郭文贵先生7月19日盖特  [https://gettr.com/post/p4ngh8](https://gettr.com/post/p4ngh8)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0
