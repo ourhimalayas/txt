@@ -18,6 +18,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@breaking911 7/21/2021 6:37 AM (UTC)`
+
+Do us a favor and share with your fellow Patriots that @Breaking911 is on #GETTR!
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@taishan 7/21/2021 3:00 AM (UTC)`
+
+看看CCP是如何吹牛B忽悠百姓的吧！号称可以防遇200年一遇的洪水！人们该醒了吧！这534亿都进了谁的腰包呢？📣📣📣
+![img](https://media.gettr.com/group34/getter/2021/07/21/03/65239771-2a44-bcad-9593-a71a37d6f870/bfd61536afa26175edae551f23e4a929.jpg)
+
+---
+
 `@miles 7/21/2021 6:13 AM (UTC)`
 
 【郭家嘴水库也出事儿了，豆腐渣工程不知道害死多少无辜老百姓，唉！】
@@ -295,22 +312,6 @@ My exclusive content. How ironic! While CCP vows to #NukeJapan , its state-owned
 
 对不起战友们：我今天口误．应是．花桥小区的老师！【汉口倒是有花桥小区，离万人宴的百步亭小区不远】
 ![img](https://media.gettr.com/group24/getter/2021/07/18/14/46a7d1fc-04da-e36a-c19e-3049642c3fca/9ae761db47793a41c828f03d8c4ef882.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@philip 7/18/2021 1:25 AM (UTC)`
-
-Thank You, Jason! 
-> `@jasonmillerindc 7/18/2021 12:51 AM (UTC)`<br/>Hey everyone - just met great patriot @philip - let’s give him a follow, and welcome to #GETTR!
-
----
-
-`@miles 7/18/2021 1:19 AM (UTC)`
-
-尊敬的战友们好：明天7月18号，星期天上午9:30文贵乱聊直播，一切都已经开始！
-![img](https://media.gettr.com/group26/getter/2021/07/18/01/ce19fcb1-a14a-7032-6c55-ae269823047d/9e445801aa7b510d44defff62bfb86fc.jpg)
 
 ---
 
