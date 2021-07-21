@@ -2,80 +2,53 @@
 ---
 
 
-## 郑州异常水灾，淹没对台作战指挥中心
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1410627/)
+## 中共党卫军资讯工程大学，对台作战隐秘核心指挥中枢
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1410603/)
 
-台湾宝岛农场｜文旦、zhong
+台湾宝岛农场｜快慢机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20235430/%E5%9C%96%E7%89%87-1.jpg)
+#### 对台作战指挥中心在“河南郑州”
 
-**背景事实**
-中国河南郑州市20日受到暴雨狂炸，短短一小时内降雨量就达到201.9公厘，达当地年降雨量的三分之一，超越历年纪录创下雨量新高。到暴雨影响，当地交通大乱，地铁遭积水淹没，多位乘客受困车厢，水深及腰，情况相当危急。为此，中国官方启动《一级机制》，针对多个区域农作物、群众受灾、防洪河道及大型水库等危机做出应急处置。（[郑州暴雨水淹进地铁！乘客受困“积水至胸口以下” 当局启动“一级机制”应对](https://tw.news.yahoo.com/鄭州暴雨水淹進地鐵-乘客受困-積水至胸口以下-當局啟動-級機制-000050115.html)）
+郭文贵先生在7月20日的关于郑州水灾直播中向外界首次透露，中共对台武统的核心作战方案制定指挥中枢，就在位于河南省郑州市的，中共党卫军资讯工程大学校区内，地下深达几十米的秘密军事掩体设施之中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21000423/%E5%9C%96%E7%89%87-1-1.jpg)
+当地时间7月19日，一场令人始料未及的强降雨极端对流天气，迅速袭击了河南省郑州市。 与中共大陆境内的其它主要城市别无二致且糟糕透顶的，基础市政豆腐渣排水工程一样。 郑州全市瞬间汪洋一片。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21000454/%E5%9C%96%E7%89%87-1.png)
+市区主干道上的积水已经深达1米有余。 大量无法及时有效排出的积水，顺势集中倾泻奔涌而下，灌入郑州市的地铁隧道网路之内。 从GETTR及GTV上的现场视频、图片等讯息显示，大量市民被困在已停驶地铁车厢内齐胸深的洪水中，孤立无援，惊恐万分。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20233519/IMG_6996.png)
+郭文贵先生在本次直播中所标示出的那张，郑州市紧急人员撤离范围图上，最为核心的区域就是“中原佛手”裕达国贸。 而在其周边则分布着如，郑州市政府、南水北调工程总指挥等，数个重要机关与职能部门所在地。 更为诡异的是，这片被划入紧急撤离范围的区域，竟然是郑州市地势最高处。 自古水往低处流，然而郑州这次所遭受的洪水侵袭，却一反常态的逆势而上。
 
-**淹水真实情形**
+同样位于该区域右下角的航海路与大学路区域附近，有一所中共党卫军资讯工程大学，郭先生首次向外界透露，对台作战的核心指挥中枢，便位于该所中共军校内部，地下深达数十米的秘密军事掩体之中。 而并非之前被外界所猜测的在福建境内。
 
+同时，郭先生还爆出，对台作战的核心主力部队为驻河南的54集团军、辅以数个合成化作战旅、及1个整编机械师，再加上驻福建的35集团军。 对台作战的类比1：1演训基地，就在位于本次发大水的，河南新乡至郑州新区和荥阳附近区域。
 
+另外，原本兼顾有战时人防功能的郑州地铁隧道网路，在设计之处，便考虑到把郑州市内的主要政府机关、与关键之能部门所在地等设施，一并接入到地铁隧道网路之中。 便于战时生存所用。
 
-> [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) Central Chinese city [#Zhengzhou](https://twitter.com/hashtag/Zhengzhou?src=hash&amp;ref_src=twsrc%5Etfw) hit by devastating downpour, with hourly precipitation over 100mm.
-> 20,000 PLA and PAP troops are ready to help with flood response as water level continue to rise along the rivers. 
-> 
-> Our prayers are with people of [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) 🙏[#愿军民平](https://twitter.com/hashtag/%E6%84%BF%E5%86%9B%E6%B0%91%E5%B9%B3?src=hash&amp;ref_src=twsrc%5Etfw) [#flood](https://twitter.com/hashtag/flood?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ZgzWEIDky8](https://t.co/ZgzWEIDky8)
-> — Chaudhary Parvez (@ChaudharyParvez) [July 20, 2021](https://twitter.com/ChaudharyParvez/status/1417509504782987265?ref_src=twsrc%5Etfw)
+位于上述中共党卫军资讯工程大学校区内，地下40米处的对台作战总指挥中枢系统，也毫无例外的，被优先接入到郑州的地铁隧道管网之中。
 
+汹涌的洪水侵入地铁隧道后，顺着这项耗资巨大，所建设的引水管网指引，轻而易举的便找到了该指挥中枢。 并不费吹灰之力的，将该处变为了，名副其实的水下基地。 被淹后的对台作战核心指挥中枢损失惨重，据说还有不少的人员伤亡情况。
 
+**中共对台作战主力，为何选择舍近求远？**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21000540/%E5%9C%96%E7%89%87-1-1.png)
+驻守于河南新乡的54集团军，此前曾参加过1979年的中越战争。 也是中央军委在习近平的命令下，从原有七大军区18个集团军群，改制整编为五大战区下辖13个集团军群后，少数得以保留原有番号的战区王牌军。
 
+而院址设在河南省会郑州的中共党卫军资讯工程大学，其强项即是军事地形图绘测量，与作战环境及模拟工程布设等科目。 加上地处中原腹地，周边邙山的广袤山地地形区域，可以为其提供天然优良，类比台湾本岛原比例的，模拟作战演训环境。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21000602/%E5%9C%96%E7%89%87-1-2.png)
+而近在咫尺驻守附近新乡周边区域的54集团军群，便可以顺势在此展开对台武力进攻的类比演训，同时位于郑州党卫军资讯工程大学校区地下40米处的，对台作战总指挥中枢，也可依据54集团军，在邙山区域的类比攻台演训基地，所暴露出的战术缺口，展开及时的修改与调整。
 
+中共依托其大陆境内错综复杂的公路网路，以及贯穿南北的高速铁路系统。 在短时间内，将一个整编集团军群，进行千里范围内的快速机动部署，还是问题不大的。 各战区内的一线甲种部队，也都将跨区域的远端机动拉练，视为标准作训科目展开针对性实操。
 
-> [#Visual](https://twitter.com/hashtag/Visual?src=hash&amp;ref_src=twsrc%5Etfw) [#warning](https://twitter.com/hashtag/warning?src=hash&amp;ref_src=twsrc%5Etfw) ⚠️
-> Major flood in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s [#henan](https://twitter.com/hashtag/henan?src=hash&amp;ref_src=twsrc%5Etfw) province due to heavy rain. 
-> 
-> Pray for those people!🙏🙏 
-> This is terrible…[#ClimateCrisis](https://twitter.com/hashtag/ClimateCrisis?src=hash&amp;ref_src=twsrc%5Etfw) [#河南](https://twitter.com/hashtag/%E6%B2%B3%E5%8D%97?src=hash&amp;ref_src=twsrc%5Etfw) [#郑州](https://twitter.com/hashtag/%E9%83%91%E5%B7%9E?src=hash&amp;ref_src=twsrc%5Etfw) [#洪水](https://twitter.com/hashtag/%E6%B4%AA%E6%B0%B4?src=hash&amp;ref_src=twsrc%5Etfw) [#Zhengzhou](https://twitter.com/hashtag/Zhengzhou?src=hash&amp;ref_src=twsrc%5Etfw) [#chinaflood](https://twitter.com/hashtag/chinaflood?src=hash&amp;ref_src=twsrc%5Etfw) – [#bigbreaking](https://twitter.com/hashtag/bigbreaking?src=hash&amp;ref_src=twsrc%5Etfw) [#hilo](https://twitter.com/hashtag/hilo?src=hash&amp;ref_src=twsrc%5Etfw) [#video](https://twitter.com/hashtag/video?src=hash&amp;ref_src=twsrc%5Etfw) [#imagenesfuertes](https://twitter.com/hashtag/imagenesfuertes?src=hash&amp;ref_src=twsrc%5Etfw) [#inundaciones](https://twitter.com/hashtag/inundaciones?src=hash&amp;ref_src=twsrc%5Etfw)[#Henan](https://twitter.com/hashtag/Henan?src=hash&amp;ref_src=twsrc%5Etfw) [#河南](https://twitter.com/hashtag/%E6%B2%B3%E5%8D%97?src=hash&amp;ref_src=twsrc%5Etfw) [#郑州](https://twitter.com/hashtag/%E9%83%91%E5%B7%9E?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3Ywr0C8K3Y](https://t.co/3Ywr0C8K3Y)
-> — Chaudhary Parvez (@ChaudharyParvez) [July 20, 2021](https://twitter.com/ChaudharyParvez/status/1417506430408560643?ref_src=twsrc%5Etfw)
+如若对台展开武力侵袭，驻守福建的35集团军，应该担负的是远端火力打击覆盖后，首批伤亡概率最高的，两栖抢滩登陆夺岛先锋角色。 而后续支援的54集团军群，以及那数个合成化作战旅与1个机械化整编师，才极有可能是最终登台夺岛的杀手锏。
 
-
-
-**死亡人数**
-官方称：12人死亡。新中国联邦人郭文贵先生预估，死亡人数至少上万，因河南政府的贪污腐败，真相无法传出。在灾难发生后，政府紧急断电、断通讯，并且派出警力禁止人民对外发声，所有真相都被掩盖。
-
-郑州严重水灾，死伤无数，地方政府却没有完全救援，甚至断网断电阻绝通讯，大报警、上网发布救援影片、文字。经郭文贵先生直播爆料，郑州警方找到受灾家属，竟然是要求不可对外告知伤亡事故。
-
-**郑州异常水灾**
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20233519/IMG_6996.png)红色图示正中央是郑州地势最高的地方，水淹地势最高处，更淹了地下对台作战指挥中心
-
-
-### **对台作战指挥中心在“本次淹水处”**
-
-郑州原西路、大学路中间就是解放军测绘学院，地铁系统从学院下方经过，为了要跟对台作战指挥中心联在一起，具有作战、国防功能。郭文贵先生爆料，对台作战指挥中心并不在福建，正在郑州的解放军学院，**本次淹水地带**。
-
-郑州对台作战指挥中心位在地下40米处，此次洪水将作战指挥中心灭顶。当初铁道系统与解放军绘测学院相连结，目的是附加军事功能，本次却成为了引水道。上图片红色区块为淹水区域，其中包含了解放军绘测学院，解放军绘测学院下方40米处为对台作战指挥中心。
-
-- 延伸阅读：[中共党卫军资讯工程大学，对台作战隐秘核心指挥中枢](https://gnews.org/zh-hans/?p=1410603&amp;preview=true)
-
-
-**郭文贵先生06/20警告：中共高度可能对台武力攻击，转移病毒焦点**
-
-国际病毒溯源行动快速进行中，世界卫生组织秘书长谭德塞也松口称“病毒可能出自实验室”一改过去坚定自然源起的说法。美拜登政府宣布90天内情报界要对调查病毒真相，中共在病毒真相快被揭露的时点（夏秋之际），可能在西方国家自然风口处释放“全新病毒武器、化学武器”。
-
-同时，武力攻打台湾，制造大型人道灾难，将世界焦点从病毒转移到“台海战事”。台海局势危及之际，洪水通过铁道系统淹没郑州对台作战指挥中心，是否为天意？
-
-希望无辜受难的人民可以得到及时、有效的救援。
-
-参考资料
-
-- [https://tw.news.yahoo.com/鄭州暴雨水淹進地鐵-乘客受困-積水至胸口以下-當局啟動-級機制-000050115.html](https://tw.news.yahoo.com/鄭州暴雨水淹進地鐵-乘客受困-積水至胸口以下-當局啟動-級機制-000050115.html)
-- [https://gtv.org/video/id=60f75ecf08c0dc04e908751e](https://gtv.org/video/id=60f75ecf08c0dc04e908751e)
-
+（本文仅代表个人）
 
 * * *
 
-资料搜集、发布╱little liu
+审编╱zhong｜发布╱little liu
 
-***更多資訊***
-*[台灣農場精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台灣農場精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[台灣寶島農場官方YOUTUBE頻道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[點擊此處加入「台灣寶島農場」Discord伺服器](https://discord.gg/zE5xTQzArt)*
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
-
-
 0

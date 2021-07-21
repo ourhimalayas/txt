@@ -2,65 +2,80 @@
 ---
 
 
-## 【战友心声】“上合天道，下合人心”的中华传统智慧
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1410393/)
+## 郑州异常水灾，淹没对台作战指挥中心
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1410627/)
 
-**作者**：纽约香草山美食部 Rainer
+台湾宝岛农场｜文旦、zhong
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+**背景事实**
+中国河南郑州市20日受到暴雨狂炸，短短一小时内降雨量就达到201.9公厘，达当地年降雨量的三分之一，超越历年纪录创下雨量新高。到暴雨影响，当地交通大乱，地铁遭积水淹没，多位乘客受困车厢，水深及腰，情况相当危急。为此，中国官方启动《一级机制》，针对多个区域农作物、群众受灾、防洪河道及大型水库等危机做出应急处置。（[郑州暴雨水淹进地铁！乘客受困“积水至胸口以下” 当局启动“一级机制”应对](https://tw.news.yahoo.com/鄭州暴雨水淹進地鐵-乘客受困-積水至胸口以下-當局啟動-級機制-000050115.html)）
 
-
-
-
-
-读德教启蒙第十八期有感：前几期先生提到了犹太民族的教育，德国的K12基础教育，美国的大学教育，今天与大家分享我们中华传统教育。
-
-首先，我们看看中华传统教育与西方现代教育的区别。
-
-一、源头与教育目的不同，西方的现代教育是伴随着工业大革命诞生的，以前传统的工匠都是师徒制，但整个工业革命的发展对工人的需求大大增加，除了最早的三所大学（意大利/法国/英国）以外，后来大部分的教育是为了培养源源不断的工业技术人才，以适应社会大发展的需求。而中华传统教育是为了培养精英的，培养修身齐家治国平天下的精英，而不是培养牙医，律师。
-
-二、教学内容和手段不同。西方以传授知识为主，培养牙医，律师等专业人才，主要是通过记忆和背诵，不关心做人的道理，把人变成一种资源（人力资源），对于如何面对人生的难题却少有涉足。而中华传统教育是培养精英的教育，学习过程中非常注重思辨，注重解决人生的问题，而不是解决器物层面的技术问题，希望大家都能成圣成贤。中华传统教育重视天道，而西方重视地道，即物质，所以如果中西方互补，那这样的教育是非常好的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20231759/%E5%9B%BE%E7%89%871-110.png)
-三、最终的结果不同。大家读历史会听说过，战国时期少年宰相甘罗，12岁就当了秦国的宰相，不费一丁一卒就要回5座城池。武则天的得力助手上官婉兒，19岁就辅佐武则天批奏折。这么年轻就能做这么伟大的事，都是依托于中国有非常好的教育体系，继承了中华上下五千年的智慧，所以他们的智慧不是十几岁，是1万年+十几岁。从经济上看，宋朝当时的GDP占了全球的80%，到后来南宋快不行了也占了全球的50%，而美国作为现在全球最发达的国家，其GDP也只占世界的20%左右，所以可见中华传统文化是非常优秀的，而现在CCP把自己的根斩了，也没把西方好的学来，学的是最垃圾的共产主义，所以这一切的问题都是人心的问题，改变人心，唯有靠教育。
-
-那中华传统文化的原理是什么？厉害在哪里？所谓“上合天道，下合人心”，天道就是宇宙不变的规律，人心就是心理学（西方也在研究）。首先我们看看中华传统文化教什么内容？大家听说过纪晓岚编译的《四库全书》，书里面把历史很多好的东西都改了，历朝历代都在篡改历史，但是《四库全书》的编译方法很好，是按照经、史、子、集这四大类来归纳的。我们所有学习的内容，都可以按照这个分类来套。
-
-经就是经典，比如儒家有十三经，道家有道藏，佛家有佛经等等。经就是宇宙不变的规律，不变的才叫经。
-
-而光学经是不足的，只知道大道理，不会应用，也发挥不了太多作用，所以要学历史。历史就如MBA的案例库，如唐太宗说的：以史为镜，可以知兴替。古人是如何学历史的呢？翻开一个历史事件，某某皇帝碰到一个事件，这时老师会让学生合上书，让同学们假设你是这位皇帝，你会如何做？每个人都说，分析利弊，最后再打开书看看历史上是如何做的。这就是思辨的过程，而不是死记硬背记历史。古代没有历史学家，只有经史学家。古人认为学史之前必学经，因为经是让你开大智慧，提升人格与智慧的，但学经之后需要灵活运用，这时候再学史，再学案例。如果不学经，直接学历史，就如王岐山，他是学历史出身，专门学历史上的大奸贼，学历史上不好的案例，包括毛贼东，残害了中国几亿人。所以说必须先学经再学史，历史就是告诉我们未来应该如何做的，现在发生的很多事情历史已经重复很多遍了。
-
-子就是各种技术，诸子百家，有兵家、阴阳家、纵横家，这些都只是工具而已。
-
-集就是文学艺术修养，艺术家、戏子都属于集，现在集都排到最前面去了。包括我们学校的课程也可以套入这四大类，语文属于子，不是经。经是人类智慧的高度概括，是永恒不变的宇宙规律。包括数学、物理化学、英语都属于子，画画、音乐属于集，那同学会问历史课属于史吗？如果历史课老师只是让我们死记硬背，那不叫史，是案例讨论，套入到历史当中思辨的过程才是史。所以把我们学习的课程套入到经、史、子、集这四大类，就知道我们课程设置是否合理。西方的当然要学，但大部分都是在子与集，经和史才是中华传统的核心价值。经是要开启大智慧，提升人格和智慧需要高手的指点，汉，唐，宋这3个朝代都是发扬经的。
-
-中华传统文化的总纲领：子曰：志于道，据于德，依于仁，游于艺。就是说中华传统文化的教育是要正确地立志向。志上面一个士，下面一个心，就是古代知识分子的心，志于道，就是立志明白宇宙人生的规律，明白之后可以应用于各种道比如商道，医道，茶道等等。这主要是讲内心的，而行为上要据于德，也就是按照规律做事，符合规律才叫德。这就是知行合一。依于仁，很多人理解为仁爱，这只是外在的意思，仁比如说桃仁杏仁，桃子外面的皮，拨开后吃完肉有个核，核打开后才是仁，其实就是种子，而且桃仁种出来就是桃子，杏仁种出来就是杏。也就是每个人要找到自己的种子，自己的基因，知道你是哪块料，才能因材施教。现在统一的教材，统一的考试，害死了很多人。就如森林里的各种动物，考试就是比谁爬树最快，那当然是猴子爬树最快了，你让鱼去爬树练一百年也练不好，那是浪费生命，而且会很痛苦，找不到自信。鱼就只管游泳，马就只管跑就好了。每个人都是天才，每个人要找到自己的天赋，而如何找到就是德教核心课程的第一阶段，如何找到自己。游于艺，要根据前三句联系起来才能明白。即天天在这上面练习，达到艺术的效果，游刃有余，勤学苦练达到顶级的境界。
-
-德教系统里分了几个阶段，首先是明心，明白自己的内心，找到自己的天赋，点亮自己的内心，不再迷茫，做一个有智慧的人。修身，就是全方位提升自己，这里有四个板块，从自己的内心找到快乐，而不是通过别人，也不要指望别人给你带来快乐。比如说找一个好老婆、好丈夫来改善生活。最重要的是从自己的内心找到快乐。齐家就是我们之前一直提到的4张证书，孝道证书是如何处理好与父母的关系，在社会上也就能处理好与领导的关系。悌道证书是如何处理好与兄弟姐妹的关系，能做好了到社会上也就能和同事处理好关系。爱道证书是处理好与伴侣之间的关系，在社会上就是处理好与合伙人的关系。教道证书是处理好与孩子的关系，在社会上即处理好跟下属或者学生的关系。把家庭做好了，齐家了才能治企，所以中华传统就是从家道开始的，再扩散到社会中去，所以中国非常适合家族企业。企业治理好了，再展开就是利天下，造福人类。所以要把次序学好，现在很多企业家是跟着CCP蓝金黄混了一桶金，然后就认为自己能管理企业了，结果家庭企业都没做好就各种乱搞，整个社会价值观都变了，这也说明了教育的重要性。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20234356/%E5%9B%BE%E7%89%872-51.png)
-
-七哥已经给我们做了一个很好的榜样，而德教就是搭个梯子，希望战友们都能达到七哥的境界，通过正确的方法学习，每个人都可以变成七哥。所以先生将其归纳为中华传统智慧的现代应用。这里不谈宗教的问题，通过任何教都可以学习中华传统智慧，这里体现的是学生与老师的关系，比如我们说孔老先生是至圣先师，道家老子是开教宗师，佛家的南无本师释迦牟尼佛等等，都说的是老师与弟子的关系，是弟子某某，而不是主仆、父子的关系，是师生的关系。让我们一起学习中华传统智慧吧，战友们一起努力！
-
-编辑 ：飞虹 校对/发稿：遍地开花
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01045038/7_july-3.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+**淹水真实情形**
 
 
 
+> [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) Central Chinese city [#Zhengzhou](https://twitter.com/hashtag/Zhengzhou?src=hash&amp;ref_src=twsrc%5Etfw) hit by devastating downpour, with hourly precipitation over 100mm.
+> 20,000 PLA and PAP troops are ready to help with flood response as water level continue to rise along the rivers. 
+> 
+> Our prayers are with people of [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) 🙏[#愿军民平](https://twitter.com/hashtag/%E6%84%BF%E5%86%9B%E6%B0%91%E5%B9%B3?src=hash&amp;ref_src=twsrc%5Etfw) [#flood](https://twitter.com/hashtag/flood?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ZgzWEIDky8](https://t.co/ZgzWEIDky8)
+> — Chaudhary Parvez (@ChaudharyParvez) [July 20, 2021](https://twitter.com/ChaudharyParvez/status/1417509504782987265?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#Visual](https://twitter.com/hashtag/Visual?src=hash&amp;ref_src=twsrc%5Etfw) [#warning](https://twitter.com/hashtag/warning?src=hash&amp;ref_src=twsrc%5Etfw) ⚠️
+> Major flood in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s [#henan](https://twitter.com/hashtag/henan?src=hash&amp;ref_src=twsrc%5Etfw) province due to heavy rain. 
+> 
+> Pray for those people!🙏🙏 
+> This is terrible…[#ClimateCrisis](https://twitter.com/hashtag/ClimateCrisis?src=hash&amp;ref_src=twsrc%5Etfw) [#河南](https://twitter.com/hashtag/%E6%B2%B3%E5%8D%97?src=hash&amp;ref_src=twsrc%5Etfw) [#郑州](https://twitter.com/hashtag/%E9%83%91%E5%B7%9E?src=hash&amp;ref_src=twsrc%5Etfw) [#洪水](https://twitter.com/hashtag/%E6%B4%AA%E6%B0%B4?src=hash&amp;ref_src=twsrc%5Etfw) [#Zhengzhou](https://twitter.com/hashtag/Zhengzhou?src=hash&amp;ref_src=twsrc%5Etfw) [#chinaflood](https://twitter.com/hashtag/chinaflood?src=hash&amp;ref_src=twsrc%5Etfw) – [#bigbreaking](https://twitter.com/hashtag/bigbreaking?src=hash&amp;ref_src=twsrc%5Etfw) [#hilo](https://twitter.com/hashtag/hilo?src=hash&amp;ref_src=twsrc%5Etfw) [#video](https://twitter.com/hashtag/video?src=hash&amp;ref_src=twsrc%5Etfw) [#imagenesfuertes](https://twitter.com/hashtag/imagenesfuertes?src=hash&amp;ref_src=twsrc%5Etfw) [#inundaciones](https://twitter.com/hashtag/inundaciones?src=hash&amp;ref_src=twsrc%5Etfw)[#Henan](https://twitter.com/hashtag/Henan?src=hash&amp;ref_src=twsrc%5Etfw) [#河南](https://twitter.com/hashtag/%E6%B2%B3%E5%8D%97?src=hash&amp;ref_src=twsrc%5Etfw) [#郑州](https://twitter.com/hashtag/%E9%83%91%E5%B7%9E?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/3Ywr0C8K3Y](https://t.co/3Ywr0C8K3Y)
+> — Chaudhary Parvez (@ChaudharyParvez) [July 20, 2021](https://twitter.com/ChaudharyParvez/status/1417506430408560643?ref_src=twsrc%5Etfw)
+
+
+
+**死亡人数**
+官方称：12人死亡。新中国联邦人郭文贵先生预估，死亡人数至少上万，因河南政府的贪污腐败，真相无法传出。在灾难发生后，政府紧急断电、断通讯，并且派出警力禁止人民对外发声，所有真相都被掩盖。
+
+郑州严重水灾，死伤无数，地方政府却没有完全救援，甚至断网断电阻绝通讯，大报警、上网发布救援影片、文字。经郭文贵先生直播爆料，郑州警方找到受灾家属，竟然是要求不可对外告知伤亡事故。
+
+**郑州异常水灾**
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20233519/IMG_6996.png)红色图示正中央是郑州地势最高的地方，水淹地势最高处，更淹了地下对台作战指挥中心
+
+
+### **对台作战指挥中心在“本次淹水处”**
+
+郑州原西路、大学路中间就是解放军测绘学院，地铁系统从学院下方经过，为了要跟对台作战指挥中心联在一起，具有作战、国防功能。郭文贵先生爆料，对台作战指挥中心并不在福建，正在郑州的解放军学院，**本次淹水地带**。
+
+郑州对台作战指挥中心位在地下40米处，此次洪水将作战指挥中心灭顶。当初铁道系统与解放军绘测学院相连结，目的是附加军事功能，本次却成为了引水道。上图片红色区块为淹水区域，其中包含了解放军绘测学院，解放军绘测学院下方40米处为对台作战指挥中心。
+
+- 延伸阅读：[中共党卫军资讯工程大学，对台作战隐秘核心指挥中枢](https://gnews.org/zh-hans/?p=1410603&amp;preview=true)
+
+
+**郭文贵先生06/20警告：中共高度可能对台武力攻击，转移病毒焦点**
+
+国际病毒溯源行动快速进行中，世界卫生组织秘书长谭德塞也松口称“病毒可能出自实验室”一改过去坚定自然源起的说法。美拜登政府宣布90天内情报界要对调查病毒真相，中共在病毒真相快被揭露的时点（夏秋之际），可能在西方国家自然风口处释放“全新病毒武器、化学武器”。
+
+同时，武力攻打台湾，制造大型人道灾难，将世界焦点从病毒转移到“台海战事”。台海局势危及之际，洪水通过铁道系统淹没郑州对台作战指挥中心，是否为天意？
+
+希望无辜受难的人民可以得到及时、有效的救援。
+
+参考资料
+
+- [https://tw.news.yahoo.com/鄭州暴雨水淹進地鐵-乘客受困-積水至胸口以下-當局啟動-級機制-000050115.html](https://tw.news.yahoo.com/鄭州暴雨水淹進地鐵-乘客受困-積水至胸口以下-當局啟動-級機制-000050115.html)
+- [https://gtv.org/video/id=60f75ecf08c0dc04e908751e](https://gtv.org/video/id=60f75ecf08c0dc04e908751e)
+
+
+* * *
+
+资料搜集、发布╱little liu
+
+***更多資訊***
+*[台灣農場精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台灣農場精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[台灣寶島農場官方YOUTUBE頻道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[點擊此處加入「台灣寶島農場」Discord伺服器](https://discord.gg/zE5xTQzArt)*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 
 
 0
