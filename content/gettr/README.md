@@ -18,6 +18,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/21/2021 2:33 PM (UTC)`
+
+谢谢战友制作的精美的关于郑州水灾的视频。人类治理自然灾害和公共灾难．最好的办法，就是及时的知情和通报和沟通系统。而恰巧在这时候共产党关闭了他们的独裁领导下的公共的救命的基础．通信网络，并阻止人民互救能力．因此发生的次生灾害是巨大的犯罪！
+![img](https://media.gettr.com/group6/getter/2021/07/21/14/68ea2f38-9141-2a1c-3f87-35dba6805250/out.jpg)
+
+---
+
+`@miles 7/21/2021 2:30 PM (UTC)`
+
+7月21号：尊敬的战友们好！郑州所谓的千年不遇的天灾人祸……正在发生巨大的人道灾难，都是因为一党独裁共产党假黑骗统治的结果！只有消灭共产党，我们的子孙和我们每个中国人才会安全……才会有未来！
+![img](https://media.gettr.com/group27/getter/2021/07/21/14/a9f6acc1-91ce-ed51-27f2-8d1100351ca2/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@breaking911 7/21/2021 6:37 AM (UTC)`
@@ -296,22 +310,6 @@ My exclusive content. How ironic! While CCP vows to #NukeJapan , its state-owned
 
 7月18日：共产党的内部政治斗争……全面升级……
 ![img](https://media.gettr.com/group32/getter/2021/07/18/22/8e101704-fda0-9bab-482b-01d2434a5d9c/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@janjekielek 7/18/2021 4:19 PM (UTC)`
-
-"#China 's renminbi is not convertible on the capital account… Companies are trapped."<br/> <br/>#GordonChang explains that companies investing in China under the #CCP will never be able to get their money out in USD. They can only reinvest profits back into China.<br/><br/>I spoke with Gordon at @CPAC #cpac2021 <br/><br/>🔴 WATCH: https://ept.ms/3B3MzpI
-![img](https://media.gettr.com/group3/origin/2021/07/18/16/1646de5a-6df6-2735-51d2-d2a0923a056a/out.jpg)
-
----
-
-`@miles 7/18/2021 2:54 PM (UTC)`
-
-对不起战友们：我今天口误．应是．花桥小区的老师！【汉口倒是有花桥小区，离万人宴的百步亭小区不远】
-![img](https://media.gettr.com/group24/getter/2021/07/18/14/46a7d1fc-04da-e36a-c19e-3049642c3fca/9ae761db47793a41c828f03d8c4ef882.jpg)
 
 ---
 
