@@ -2,50 +2,70 @@
 ---
 
 
-## 西喜时事新闻简报—台湾篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1409431/)
+## 【通讯】特朗普顾问杰森-米勒表示有大批共和党高级官员加入 GETTR
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1409641/)
 
-- 作者：此生灭共
+摘录： 纽约香草山 夕也
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年7月20日电/西喜社**
 
-您若想了解全文报导内容，请点击标题链接
 
-**1. [在中共认可的频道播放的视频中，中共国威胁要在台湾对日本进行核打击](https://www.foxnews.com/world/china-nuke-japan-taiwan-video-ccp-channel)**
+前唐纳德-特朗普顾问杰森-米勒上个月刚刚推出了GETTER。Getty Images
+Klobuchar就COVID的错误信息抨击社交媒体
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20172143/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%885.21.01.png)
+GETTR已经得到了一些大的收获。这个由前唐纳德-特朗普顾问杰森-米勒(Jason Miller)上个月推出的社交媒体平台正在表示有一大批共和党高级官员加入其网站。
 
-FOX 7月19日电，中共国[共产党](https://www.foxnews.com/politics)播放了一段视频，警告[日本](https://www.foxnews.com/category/world/world-regions/japan)如果岛国干涉[中共国](https://www.foxnews.com/category/world/world-regions/china)对台湾的处理，将进行[核](https://www.foxnews.com/category/us/disasters/nuclear)反应和“全面战争” ，该视频指出日本是中共国不对无核国家使用核武器的政策的一个例外。
+签约的国会主要人物包括众议院少数党领袖凯文-麦卡锡(Kevin McCarthy)，会议主席伊利斯-斯特凡尼克(Elise Stefanik)，以及众议员吉姆-乔丹(Jim Jordan)，众议员李-泽尔丁(Lee Zeldin)，参议员詹姆斯-兰克福德(James Lankford)和一系列其他人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20145127/unknown-1-15.png)
+GETTR被认为是推特的竞争对手，推特因广泛的审查制度和阻止访问合法的新闻报道而受到批评，例如《邮报》关于亨特-拜登笔记本电脑的爆炸性报道。
 
-**2.[美日确定台湾稳定的重要性](https://english.kyodonews.net/news/2021/07/cf3e61441170-update1-japan-us-affirm-importance-of-stability-over-taiwan-strait.html)**
+许多共和党人，甚至民主党人都推动使用监管变革，迫使推特以更高的透明度运作–而其他立法者则认为，推特是一家私营公司，答案是由其他人来建立新的平台，这就是米勒所做的GETTR。
 
-共同社7月20日电，周二，日本副外相森武雄和美国副国务卿温迪·谢尔曼在东京举行的会议，肯定了台湾海峡和平与稳定的重要性。
+米勒告诉《邮报》，该平台现在有150万用户，其中45%在美国，15%在巴西，其余的在不同的国家。
+GETTR的推出正值拜登政府因试图影响Facebook等社交媒体网络以审查。”社交媒体巨头正在与乔-拜登合作，”米勒说，”这很危险。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20145347/unknown-2-14.png)
+“只有在他们欢迎的情况下，言论自由对他们才重要”。
 
-** 3.[台湾首家欧洲办事处以台湾名义激怒中共国](https://www.bloomberg.com/news/articles/2021-07-20/u-s-hails-taiwan-move-to-open-first-europe-office-with-its-name)**
+虽然目前被视为主要是保守派的平台，但米勒说，GETTR正在努力扩大网站的意识形态吸引力，并希望在不久的将来聘请一名民主参与主管。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20172210/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%885.17.23.png)
+众议院少数党领袖凯文-麦卡锡已签约加入该平台。
 
-彭博社7月20日电，台湾将以“台湾”为名在欧洲设立首个办事处，台湾外交部长吴钊燮周二在新闻发布会上表示，台北政府将在波罗的海国家立陶宛开设办事处。这对北京来说是个重大外交挫折。
+共和党众议院会议主席Elise Stefanik, R-N.Y.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20172256/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%885.17.47-e1626816209447.png)
+会议主席Elise Stefanik也已经注册了Twitter的替代方案。
+CQ-Roll Call, Inc via Getty Images
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20172414/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%885.17.58.png)
+众议员吉姆-乔丹(Jim Jordan)是签署该应用程序的主要共和党人之一。
+Getty Images
+前总统特朗普尚未加入这个新平台，但本月他对大型科技巨头Facebook、Twitter和YouTube提起诉讼，因为它们关闭了他的账户并对其他保守派采取了类似行动，他称之为 “对美国人民进行非法和可耻的审查”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20145520/unknown-3-6.png)
+这些集体诉讼文件要求对所谓的违反第一修正案的行为进行未指明的赔偿，川普办公室表示这些赔偿总额可能达到 “数万亿美元”。
 
-**4.[中共国警告立陶宛台湾开设事实上的大使馆](https://www.reuters.com/world/taiwan-open-representative-office-china-sceptic-lithuania-2021-07-20/)**
+川普还要求联邦法官推翻1996年授予互联网公司的有争议的豁免保护，宣布《通信礼仪法》第230条违宪。
 
-路透社7月20日电，中共周二警告立陶宛不要“向台独势力发出错误信号”，国台办表示，反对与台湾有正式外交关系的任何国家。只有 15 个国家与台湾建立了正式的外交关系，但许多在国家拥有事实上的大使馆，它被称为贸易办事处，例如欧盟的成员国立陶宛。中共已加大压力，要求各国不要与台湾接触。
+参考来源：以上报道来自：大卫-马库斯2021年7月20日｜下午2:32
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20145709/unknown-4-6.png)
+[https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/](https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/)
 
-**5.[尽管有来自北京的压力，台湾与立陶宛的关系仍在增长](https://apnews.com/article/europe-business-government-and-politics-beijing-taiwan-5f5b1080226893dc09d9a94adb2f346d)**
+校对/发稿：悟空
 
-美联社7月20日电，台湾与立陶宛互设办事处，是其在中共施压下取得的突破性进展，其将被命名为“台湾驻立陶宛代表处”，而在此之前，台湾为了避讳北京，在其他国家的办事处一直被称作“中共国台湾”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20112700/1d33a7c1-79e4-4eff-bede-92d856cd77cd.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20145918/unknown-5-2.png)
 
-审核：蚂蚁兄弟； 校对：信心满满； 发稿：信心的选择
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19065322/GNEWS_CH.-2.jpeg)
 
-+1
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

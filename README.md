@@ -16,20 +16,20 @@
 
 ---
 
-### [【医疗前沿世界】超级抗体S2H97可以对抗多种中共病毒变种](/content/gnews/1/README.md)
+### [【文贵视角】新中国联邦开启的灭共形势让世界看到希望](/content/gnews/1/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【医疗前沿世界】超级抗体S2H97可以对抗多种中共病毒变种](/content/gnews/2/README.md)
  ` 纽约香草山MOS03`
 
-### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/2/README.md)
+### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [郑州地铁事件，曝光死亡人数不断增加](/content/gnews/3/README.md)
+### [郑州地铁事件，曝光死亡人数不断增加](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [7/20/2021 洪水淹没郑州市区，老百姓遭殃](/content/gnews/4/README.md)
+### [7/20/2021 洪水淹没郑州市区，老百姓遭殃](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
-
-### [世界将在根本上 断绝中共一切关系](/content/gnews/5/README.md)
- ` G-NEWS TAIWAN`
 
 ### [2021年7月20日文贵先生直播同步精要文字版](/content/gnews/6/README.md)
  ` 喜联盟七哥直播组`
@@ -40,14 +40,14 @@
 ### [2021/07/20-001 文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】Twitter 再次暂停共和党众议员帐号](/content/gnews/9/README.md)
- ` 秘密翻译组G-Translators`
+### [【新闻速递】航空公司在交通信号灯清单的法律挑战中失败](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
 
-### [7月20日美国政要推文精选：福奇博士的NIH资助了武汉病毒学实验室](/content/gnews/10/README.md)
- ` 美国政要直译推`
+### [【新闻速递】接种疫苗的佩洛西助手在与德州民主党人接触后被检测出COVID阳性](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
 
-### [在法国，没有COVID 通行证的人进入酒吧或餐厅将面临惩罚](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [【超限生物武器】2019新冠病毒如同非典病毒一样，是一场事先谋划的完美犯罪](/content/gnews/11/README.md)
+ ` 纽约香草山MOS01`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
  ` 文雍`
@@ -88,35 +88,35 @@
 ### [2021/7/20日 大卫作战室直播精要 -001](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【NewsExpress】加拿大48座基督教教堂被烧毁或遭到破坏](/content/gnews/25/README.md)
- ` 闪电侠`
+### [暴雨令河南多市一片汪洋惨状连连 郑州进入一级应急防汛](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】Twitter 再次暂停共和党众议员帐号](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [7月20日美国政要推文精选：福奇博士的NIH资助了武汉病毒学实验室](/content/gnews/27/README.md)
- ` 美国政要直译推`
-
-### [【郑州地铁灌水事件】中共开始封锁消息](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【NewsExpress】中共统战部关联的墨尔本中文媒体奥斯特倒闭](/content/gnews/29/README.md)
- ` 闪电侠`
-
-### [【新闻速递】Delta变种病例增至美国病例的83%，拜登政府重启“公共卫生紧急状态”](/content/gnews/30/README.md)
+### [【军事快讯】俄罗斯最先进S-500防空系统已完成测试](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [【NewsExpress】国会山上的几名完全接种疫苗的人的病毒检测呈阳性](/content/gnews/31/README.md)
+### [【新闻速递】航空公司在交通信号灯清单的法律挑战中失败](/content/gnews/27/README.md)
+ ` 纽约香草山MOS02`
+
+### [【新闻速递】气候变化 美国推动中国更快地进行碳减排](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [【秘翻在线】美外交、情报人员多名患不明疾病](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【秘翻在线】中共军方警告暴雨或导致小浪底水坝溃坝](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [郑州洪水 地铁内多人被困并有死伤](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【NewsExpress】国会山上的几名完全接种疫苗的人的病毒检测呈阳性](/content/gnews/32/README.md)
  ` 闪电侠`
 
-### [川普总统对科技巨头Facebook、Twitter和YouTube提起达数万亿美元的诉讼](/content/gnews/32/README.md)
+### [川普总统对科技巨头Facebook、Twitter和YouTube提起达数万亿美元的诉讼](/content/gnews/33/README.md)
  ` STHK`
 
-### [【通讯】特朗普顾问杰森-米勒表示有大批共和党高级官员加入 GETTR](/content/gnews/33/README.md)
+### [【通讯】特朗普顾问杰森-米勒表示有大批共和党高级官员加入 GETTR](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
-
-### [西喜时事新闻简报—台湾篇](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [2021/07/19 众议员乔丹：福奇刻意隐瞒病毒真相](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -142,45 +142,45 @@
 ### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [川普总统责问马里科帕郡监事会在隐瞒什么？](/content/gnews/43/README.md)
- ` HimalayaRussia`
+### [【Myway专栏】病毒和疫苗合辑](/content/gnews/43/README.md)
+ ` 大废墙`
 
-### [【秘翻在线】向微信圈那些拼命转发郑州危情的人们致敬](/content/gnews/44/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【战友寄语】中共终于实现“爱国者治港”的阴谋](/content/gnews/45/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [2021年07月20日澳喜要闻（每日更新）](/content/gnews/46/README.md)
- ` 澳喜农场`
-
-### [参议员布莱克本: 政府的COVID Facebook审查制度可能违反第一修正案](/content/gnews/47/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [在法国，没有COVID 通行证的人进入酒吧或餐厅将面临惩罚](/content/gnews/48/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳国防长惊讶中共国派出第二艘间谍船监视澳大利亚行动](/content/gnews/49/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [理想与现实](/content/gnews/50/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [中共国和印度打破僵局的希望破灭紧张局势依然高涨](/content/gnews/51/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [随着中共病毒的大流行 众议院拨款委员会投票决定削减对中共国研究人员的资助](/content/gnews/52/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【战友心声】天有不测风云](/content/gnews/53/README.md)
+### [【今日祷告】为郑州祈福](/content/gnews/44/README.md)
  ` 纽约香草山MOS03`
 
-### [【热点推荐】上海帮祭出恒大欲引全国内乱来打击习？](/content/gnews/54/README.md)
- ` 温哥华扬帆农场`
+### [【超限生物武器】2019新冠病毒如同非典病毒一样，是一场事先谋划的完美犯罪](/content/gnews/45/README.md)
+ ` 纽约香草山MOS01`
 
-### [美国机构发出警告，中共国为窃取机密进行“侵略性”黑客活动](/content/gnews/55/README.md)
+### [川普总统责问马里科帕郡监事会在隐瞒什么？](/content/gnews/46/README.md)
+ ` HimalayaRussia`
+
+### [【秘翻在线】向微信圈那些拼命转发郑州危情的人们致敬](/content/gnews/47/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【战友寄语】中共终于实现“爱国者治港”的阴谋](/content/gnews/48/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [2021年07月20日澳喜要闻（每日更新）](/content/gnews/49/README.md)
+ ` 澳喜农场`
+
+### [参议员布莱克本: 政府的COVID Facebook审查制度可能违反第一修正案](/content/gnews/50/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [在法国，没有COVID 通行证的人进入酒吧或餐厅将面临惩罚](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【战友心声】重庆人在反抗](/content/gnews/56/README.md)
+### [澳国防长惊讶中共国派出第二艘间谍船监视澳大利亚行动](/content/gnews/52/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [理想与现实](/content/gnews/53/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [中共国和印度打破僵局的希望破灭紧张局势依然高涨](/content/gnews/54/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [随着中共病毒的大流行 众议院拨款委员会投票决定削减对中共国研究人员的资助](/content/gnews/55/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【战友心声】天有不测风云](/content/gnews/56/README.md)
  ` 纽约香草山MOS03`
 

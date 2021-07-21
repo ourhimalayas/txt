@@ -2,29 +2,32 @@
 ---
 
 
-## 【NewsExpress】加拿大48座基督教教堂被烧毁或遭到破坏
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1410248/)
+## 暴雨令河南多市一片汪洋惨状连连 郑州进入一级应急防汛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410381/)
 
-**翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20220029/canadachurch.png)
-获取的视频片段显示，在教堂被烧毁前几天，一名妇女试图点燃加拿大教堂。萨里加拿大皇家骑警在一份新闻稿中说，圣乔治科普特东正教教堂在周一清晨的一场大火中被毁，起火原因仍在调查中。火灾被视为“可疑”，特别是考虑到 CTV Vancouver 获得的视频监控录像显示，上周三一名妇女试图点燃教堂。
+2021年7月20日
 
-当局尚未确定这些事件之间存在关联。据 CTV 报道，这座教堂有 380 多个家庭参加，还为 65 名儿童提供日托服务。加拿大皇家骑警周二告诉 DCNF，虽然它正在调查针对教堂的罪行，但它没有关于有多少教堂遭到破坏或烧毁的统计数据。根据加拿大出版物 True North 的一项估计，自从在土著儿童寄宿学校附近发现没有标记的坟墓以来，加拿大至少有 48 座基督教教堂遭到破坏、亵渎或烧毁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20231011/0-113.png)
 
-纽约邮报的托伦斯写道：“作为加拿大的一名女学生，我了解到该国强制同化政策的丑陋历史。在一个世纪的过程中，150,000 名当地儿童被从他们的家庭中带走，他们被强行带走并被送到主要由天主教会经营的政府资助的学校接受英语（或法语）语言教育。”大多数负责的神职人员都是“善意的”，但有些人“利用他们的职位进行虐待”。
+编辑摘要：
 
-她补充说：“这个想法是将贫困儿童变成有生产力、甚至富裕的加拿大主流社会成员，从教会的角度来看，拯救他们的灵魂。” “加拿大真相与和解委员会在 2015 年得出结论，至少有 3,200 名学生死亡，后来将该数字修正为 4,100。第一大死因是肺结核；流感也重灾区。在远离家乡的地方，孩子们经常被埋葬在现场，他们的坟墓上标有木制十字架，其中大部分已经腐蚀并消失了。”
+中共国河南省连日来遭遇强降雨影响，多地降雨量接连打破历史记录，多处出现河流和水库水位暴涨导致溃堤和洪灾。十多个城市，包括省会郑州变成水乡泽国，灾情惨重。官方及官媒目前还没有提及有人员死亡或失联，不过社交媒体上流传的许多视频显示，有一些人已被淹死。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+郑州市防汛抗灾指挥部星期二（7月20日）发布紧急通知称，由于当前防汛抗灾形势十分严峻，决定从17时起将防汛II级应急响应提升至I级。
 
-**参考链接：**
+郑州星期二（7月20日）曾在一个小时内下了超过200毫米的暴雨，社媒上传的视频显示，有人站在灌满齐腰深水的地铁车厢里，而建于地下的地铁站也成了水池。还有的地铁站，两边铁轨坑道内浑浊的洪水奔腾向前；并且有躺在地铁月台上的多名死者照片。
+
+根据媒体报道，河南全境目前至少有31座大中型水库水位超过防汛警戒线，其中至少13座水库有决堤的危险。
+
+【[新闻链接](https://www.voachinese.com/a/Dozens-Henan-Cities-Under-Water-Amid-Heavy-Rain-20210720/5972737.html)】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> [48 Christian Churches in Canada Have Been Burned Down or Vandalized as Persecution Continues](https://www.lifenews.com/2021/07/20/48-christian-churches-in-canada-have-been-burned-down-or-vandalized-as-persecution-continues/)
-
-
-
-***校对发布：文顾***
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

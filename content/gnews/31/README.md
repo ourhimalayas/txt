@@ -2,23 +2,33 @@
 ---
 
 
-## 【NewsExpress】国会山上的几名完全接种疫苗的人的病毒检测呈阳性
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1410157/)
+## 郑州洪水 地铁内多人被困并有死伤
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410278/)
 
-**翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20211458/22-17.jpg)
-众议院少数党领袖凯文麦卡锡的以色列之行被推迟。近一半的众议院议员再次蒙上口罩。一位参议院民主党人甚至出示了一张“疫苗接种证明”卡进入国会大厦。
+2021年7月20日
 
-随着 Covid 感染重新回到国会山上，打破了在致命的大流行和叛乱之后刚刚开始在整个建筑群中安定下来的平静感。现在人们对高度传染性的 Delta 变体的担忧加剧，国会医生周二证实，国会大厦办公楼已经报道了变体病毒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20224002/0-109.png)
 
-有些办公室已经开始取消或缩小公共活动的规模。众议院国土安全委员会最高共和党人、德克萨斯众议员迈克尔麦考尔表示，共和党领导人现在决定放弃原定于 8 月访问以色列的计划。接种疫苗的人中病例的增加，包括周二议长南希佩洛西办公室的一名高级助手和一名白宫官员。周二，许多人涌向国会大厦的免费冠状病毒检测站点，其中一些是几个月来的第一次。
+编辑摘要：
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+7月20日晚，因特大暴雨郑州地铁灌水，数百名乘客被困车厢在齐腰甚至齐胸深的水中求救。
 
-**参考链接：**
+获救人数不明，但有多名死者照片在社交媒体上流传。
 
-[https://www.politico.com/news/2021/07/20/covid-delta-variant-capitol-complex-500344](https://www.politico.com/news/2021/07/20/covid-delta-variant-capitol-complex-500344)
+- [来自推特视频1](https://twitter.com/woodmank417/status/1417533412038955011?s=21)
+- [来自推特视频2](https://twitter.com/mroilman/status/1417529591300726789?s=21)
+- [来自推特视频3](https://twitter.com/snowgf3/status/1417489315786018816?s=21)
 
-***校对发布：文顾***
+
+【[新闻链接](https://twitter.com/jenniferatntd/status/1417610838232477699?s=21)】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

@@ -2,19 +2,33 @@
 ---
 
 
-## 【秘翻在线】向微信圈那些拼命转发郑州危情的人们致敬
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410239/)
+## 【今日祷告】为郑州祈福
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1410341/)
 
-撰稿：待命（文晓）
+祷告者：香草山福音部 kikii
 
-责编：待命（文晓）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20215513/%E7%94%BB%E5%83%8F1-10.png)（图片源自微信）
-一夜间，一场暴雨，使河南郑州等地陷入灾难。一时间，被困在地铁中求救的视频、对话截图在互联网上疯传。一瞬间，世界各地的海外华人就收到了各种求救信息。只有中共中央电视台CCTV好像什么都不知道、什么都没看见。不仅一切安好，赞词不绝，还忧虑着远隔万里的他国灾情！担心着他国人民的安全！这一刻，中共化身之CCTV播音员的脸，迅速的扭曲变形！
 
-如此情景，如此危难，让世界知道了真相的，竟然是微信朋友圈。是那些不惧恶党恫吓的，有良知的，尊重生命的人们，冒着被删帖、被封号、被喝茶、被消失的危险，通过微信朋友圈，向世界传递着这个噩耗！在朋友圈里，笔者看到了几个人在发疯一样的转发！庆幸啊！自己的朋友圈里不乏这些有良知的，充满人性的人！
 
-远水不解近渴，我能做的，就是不让这些真相在我这里停止传播。转！转！转！向微信圈那些拼命转发郑州危情的人们致敬！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-（文章仅代表作者个人观点）                        河南,灾难,微信,真相,CCTV
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20224350/16x9-feature-photos-MOS-logos-1-24.png)
+亲爱的阿爸父啊，共惨党的罪恶，他们的手沾满鲜血，嘴唇说的尽是谎言，无一人用公义待人民。神啊，河南郑州同胞百姓无指望，在黑暗之中，在水深之处。求忌恶如仇，恼怒的主施行审判在罪孽多端之徒时，求保守无辜的百姓，求父神施恩的手帮助，全能的主施恩拯救，唯有在袮里面我们得享平安，不记念我们所行的过犯。保守中华人民心怀意念，唤醒一切还在沉睡的人们，站出来反抗恶政府，与公义的主同行，不再被奴役，一生要来荣耀袮名，建造爱神爱人的新国度，父神，求怜悯袮给予我们回转归向袮的机会，将郑州无辜百姓交在恩主手中，奉主耶稣基督得胜，宝贵的圣名求，阿门🙏🙏
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

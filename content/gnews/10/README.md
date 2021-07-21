@@ -2,45 +2,45 @@
 ---
 
 
-## 7月20日美国政要推文精选：福奇博士的NIH资助了武汉病毒学实验室
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1410203/)
+## 【新闻速递】接种疫苗的佩洛西助手在与德州民主党人接触后被检测出COVID阳性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1410301/)
 
-参议员兰德·保罗： 是的，福奇博士的 NIH 确实资助了武汉病毒学实验室。这是他们的首席科学家石正丽博士黑纸白字的承认。麻省理工学院生物学家凯文·埃斯维尔特 (Kevin Esvelt) 审查了这篇在福奇博士的 NIH/NIAID 资助下发表的论文，并得出结论“研究人员使用的某些技术似乎符合功能获得的定义
-
-
-
-> MIT biologist Kevin Esvelt reviewed this paper that was published with financial assistance from Dr. Fauci’s NIH/NIAID and concluded “certain techniques that the researchers used seemed to meet the definition of gain-of-function”
-> — Senator Rand Paul (@RandPaul) [July 20, 2021](https://twitter.com/RandPaul/status/1417506039713390593?ref_src=twsrc%5Etfw)
+翻译： 纽约香草山健身部 Ivy001
 
 
 
-众议院外交委员会共和党领袖： 麦考尔：”正如我作为众议院外交委员会首席共和党人不断警告的那样，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国和我们的盟友构成了许多威胁，尤其是在网络方面。看看最近发布的这份清单，概述了与中共关联的黑客们采用的手段。“我还推出了《网络外交法》，这将确保国务院拥有必要的资源和能力来反击中共等恶意行为者。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-> "I also have introduced the Cyber Diplomacy Act which will ensure the State Department has the necessary resources and abilities to push back against malign actors such as the CCP."
-> — House Foreign Affairs GOP (@HouseForeignGOP) [July 20, 2021](https://twitter.com/HouseForeignGOP/status/1417500479773360135?ref_src=twsrc%5Etfw)
+7月20日，Fox News报道：众议院议长南希-佩洛西的一名发言人在上周与逃离德州前往华盛顿特区的立法机构成员会面后，周一被检测出冠状病毒阳性。报道称，另一位白宫助理在与佩洛西工作人员参加同一屋顶招待会后也检测出阳性结果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20224816/Untitled-design-10-1.png)图片来源 FoxNews
+佩洛西的高级助手德鲁-哈米尔（Drew Hammill）说，这名工作人员已经完全接种了疫苗，最近没有与这位加州民主党人接触，尽管议长办公室因此而采取了额外的预防措施。
 
+Hammill在福克斯新闻获得的一份声明中说：”昨天，议长新闻办公室一位完全接种过疫苗的高级发言人在上周与德克萨斯州立法机构成员接触后，对COVID检测呈阳性。”
 
+“这个人在接触后没有与议长接触过。整个新闻办公室今天都在远程工作，只有那些没有接触过此人或最近检测结果为阴性的人除外。 我们的办公室将继续密切关注主治医生办公室的指导。”
 
-参议员汤姆·科顿： 作为避免因新冠招致谴责的绝望的尝试，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国有媒体现在把手指指向马里兰的迪特里克堡（生物基地）。（白宫发言人）珍·萨奇是否会把脸书标志为不实信息呢？
+另外，Axios报道说，一名白宫官员在上周三晚上与佩洛西的工作人员参加了同一个屋顶招待会后，也被检测出冠状病毒阳性。该媒体报道说，这位白宫助理也完全接种了疫苗。
 
+一位白宫官员告诉Axios：”我们知道会有突破性的病例，但正如这个例子所显示的，接种疫苗的人的病例通常是温和的。”
 
+此前，德克萨斯州代表团的六名成员在离开州议会大厦并来到华盛顿，试图阻挠共和党人寻求通过新的选举改革的特别立法会议，结果被检测出病毒呈阳性。
 
-> In a desperate bid to avoid blame for COVID, Chinese state media is now pointing the finger at Fort Detrick in Maryland.
-> 
-> Will Jen Psaki flag to Facebook as disinformation? [pic.twitter.com/8cdidVpmD1](https://t.co/8cdidVpmD1)
-> — Tom Cotton (@SenTomCotton) [July 20, 2021](https://twitter.com/SenTomCotton/status/1417480884157091850?ref_src=twsrc%5Etfw)
+https://www.foxnews.com/politics/pelosi-aide-white-house-official-test-positive-covid
 
+校对/发稿：火内
 
+**更多资讯，更多关注**
 
-众议员布莱恩·马斯特 美国必须对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 采取更积极强硬的行动，以阻止此类（黑客）袭击！ 【附thehill的文章：美国和几个盟国周一公开指责与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政府有关联的黑客对微软邮件服务系统的攻击行为】
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-> The United States must get more aggressive against China to stop these types of attacks! [https://t.co/japG21YMap](https://t.co/japG21YMap)
-> — Rep. Brian Mast (@RepBrianMast) [July 20, 2021](https://twitter.com/RepBrianMast/status/1417616558428405760?ref_src=twsrc%5Etfw)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

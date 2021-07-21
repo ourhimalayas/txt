@@ -2,45 +2,175 @@
 ---
 
 
-## 川普总统责问马里科帕郡监事会在隐瞒什么？
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1410241/)
+## 【Myway专栏】病毒和疫苗合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+Gnews病毒真相小组 整理
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20220031/T.png)worthypolitics.com
-《门道专家》发表文章，“川普总统：马里科帕（Maricopa）郡监事会的掩盖——他们在隐瞒什么？”
 
-全文如下：
 
-唐纳德J.川普总统昨天又发表声明，抨击马里科帕郡监事会拒绝服从2020年大选的调查。
 
-川普总统说：
 
-为什么亚利桑那州建制派的马里科帕郡监事会拒绝提供路由器？他们想隐瞒什么？他们在为生或死而战。怎么回事？提交路由器！难道这不意味着退却，尽管他们的声明自相矛盾，连接到互联网？在2020年的总统选举中，选举舞弊是一件大事，事实每天都有进展！
+## 新冠病毒预防和治疗方案总结
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
+[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
 
-（声明完）
 
-该郡监事会正全力阻止这一调查，并利用条文中的每一个借口拒绝提供传唤的证据。
 
-从他们的行为来看，非常明显，这个郡（的监事会）是有罪的，他们正在尽一切努力掩盖罪行。
 
-他们并没有回答审计人员的问题，而是狡辩和指责。
 
-根据调查结果和报道的问题，我们已经有证据表明2020年的大选是可耻的。
+## 疫苗的副作用收集与分析
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
 
-马里科帕郡监事会的行动表明，他们知道出了什么问题，他们不想让人们知道那是什么。
 
-（原文完）
+## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
 
-马里科帕郡监事会共有5名成员，似乎是一个集体行动，如此铁板一块地企图掩盖罪恶的欺诈舞弊行为，不得不令人怀疑他们也是舞弊欺诈的密谋策划和执行者，是一个窝案！其它摇摆州选举管理部门也是同样的情况，有窝案的嫌疑。这是偶然的吗？
 
-笔者早就猜测过，背后有更大的阴谋集团，自从2015年11月川普获胜那刻起，民主党奥巴马就认定了川普与俄罗斯勾结，俄罗斯干扰了美国大选，并开始着手酝酿操作接下来的大选，经过数年的准备，造就了现状。尚不清楚索罗斯等金主是利用了奥巴马，还是奥巴马利用了索罗斯，有一点可以肯定，中共也介入了其中，作掉川普总统是他们的共同目标。
 
-等待真相大白于天下！
 
-原文链接：
 
-[https://www.thegatewaypundit.com/2021/07/president-trump-unleashes-maricopa-countys-board-supervisors-hiding/](https://www.thegatewaypundit.com/2021/07/president-trump-unleashes-maricopa-countys-board-supervisors-hiding/)
+## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
 
-0
+
+
+
+
+## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
+
+
+
+
+
+## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
+
+
+
+
+
+## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
+
+
+
+
+
+## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
+
+
+
+
+
+## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
+
+
+
+
+
+
+
+
+
+## 疫苗和病毒的毒性分析
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
+
+
+## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
+
+
+
+
+
+## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
+
+
+
+
+
+## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
+
+
+
+
+
+## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
+
+
+
+
+
+## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
+
+
+
+
+
+## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
+
+
+
+
+
+
+
+## 病毒超限战解析合辑
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
+
+
+
+
+## 中共制毒体系挖掘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
+
+
+## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
+
+
+
+
+
+## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
+
+
+
+
+
+## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
+
+
+
+
+
+## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
+
+
+
+
+
+
+
+
+
+## 其他文章
+
+
+
+福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
+
+
+
+> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
+
+
+
+
+
+如何劝说身边的人不去打中共病毒疫苗
+
+
+
+> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
+
+
+
+
+
++1
