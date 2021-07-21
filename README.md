@@ -16,29 +16,29 @@
 
 ---
 
-### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/1/README.md)
+### [盖特已经为川普总统保留了他的推特用户名](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【秘翻在线】法国被列入”疫苗暴政”国家](/content/gnews/2/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【医疗前沿世界】超级抗体S2H97可以对抗多种中共病毒变种](/content/gnews/2/README.md)
+### [【医疗前沿世界】超级抗体S2H97可以对抗多种中共病毒变种](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [【文贵视角】新中国联邦开启的灭共形势让世界看到希望](/content/gnews/3/README.md)
+### [【文贵视角】新中国联邦开启的灭共形势让世界看到希望](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [郑州地铁事件，曝光死亡人数不断增加](/content/gnews/4/README.md)
+### [郑州地铁事件，曝光死亡人数不断增加](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
 
-### [7/20/2021 洪水淹没郑州市区，老百姓遭殃](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [2021年7月20日 文贵先生盖特 7](/content/gnews/6/README.md)
+### [2021年7月20日 文贵先生盖特 10](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月20日 文贵先生盖特 6](/content/gnews/7/README.md)
+### [2021年7月20日 文贵先生盖特 9](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年7月20日文贵先生直播同步精要文字版](/content/gnews/8/README.md)
- ` 喜联盟七哥直播组`
+### [2021年7月20日 文贵先生盖特 8](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [【郑州暴雨】中共不死，灾难不已](/content/gnews/9/README.md)
  ` 秘密翻译组G-Translators`
@@ -88,23 +88,23 @@
 ### [【澳洲热点】短视频：“护卫军刀”澳美军演向北京传递“威慑信息”](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北京拒绝世卫组织提出的对新冠病毒起源的第二次调查](/content/gnews/25/README.md)
+### [【NewsExpress】因病毒疫情暂时缓解，日本进出口贸易激增](/content/gnews/25/README.md)
+ ` 索尼克`
+
+### [北京拒绝世卫组织提出的对新冠病毒起源的第二次调查](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】中共为刺激生育再出新政——取消“社会抚养费”](/content/gnews/26/README.md)
+### [【秘翻在线】中共为刺激生育再出新政——取消“社会抚养费”](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [毫无察觉的中共立体监控，还原1930年代德国](/content/gnews/27/README.md)
+### [毫无察觉的中共立体监控，还原1930年代德国](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】香港政府开始讨论“禁止人肉搜索”法案](/content/gnews/28/README.md)
+### [【秘翻在线】香港政府开始讨论“禁止人肉搜索”法案](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】反常！中共国媒体统一报道南京爆发疫情](/content/gnews/29/README.md)
+### [【秘翻在线】反常！中共国媒体统一报道南京爆发疫情](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
-
-### [【NewsExpress】国会听证会上 福奇和保罗就病毒起源指控发生冲突](/content/gnews/30/README.md)
- ` 闪电侠`
 
 ### [【郑州暴雨】中共不死，灾难不已](/content/gnews/31/README.md)
  ` 秘密翻译组G-Translators`
@@ -142,45 +142,45 @@
 ### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【樱花宅急便】独家：郑州最高的地方爆发最大的水灾](/content/gnews/43/README.md)
+### [中共央行支持上海试行人民币自由使用背后有什么猫腻](/content/gnews/43/README.md)
  ` 日本东京樱花团`
 
-### [樱花墙内要闻汇编🌸7月21日](/content/gnews/44/README.md)
+### [河南水灾与爆料革命的使命天意](/content/gnews/44/README.md)
  ` 日本东京樱花团`
 
-### [【樱花宅急便】郑州洪水肆虐 乘客被困地铁](/content/gnews/45/README.md)
+### [【樱花宅急便】独家：郑州最高的地方爆发最大的水灾](/content/gnews/45/README.md)
  ` 日本东京樱花团`
 
-### [【雅典娜观察】郑州水灾死亡人数成谜，央视新闻一片祥和](/content/gnews/46/README.md)
+### [樱花墙内要闻汇编🌸7月21日](/content/gnews/46/README.md)
+ ` 日本东京樱花团`
+
+### [【樱花宅急便】郑州洪水肆虐 乘客被困地铁](/content/gnews/47/README.md)
+ ` 日本东京樱花团`
+
+### [【雅典娜观察】郑州水灾死亡人数成谜，央视新闻一片祥和](/content/gnews/48/README.md)
  ` 墨尔本雅典娜农场`
 
-### [亡腚缸【大头症】](/content/gnews/47/README.md)
+### [亡腚缸【大头症】](/content/gnews/49/README.md)
  ` 日本东京樱花团`
 
-### [7/21日本银河快讯：日本严审中共国科技领域留学生；新增9名奥运会相关人员确诊中共病毒](/content/gnews/48/README.md)
+### [7/21日本银河快讯：日本严审中共国科技领域留学生；新增9名奥运会相关人员确诊中共病毒](/content/gnews/50/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [哭某某大粉红被抓](/content/gnews/49/README.md)
+### [哭某某大粉红被抓](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [中国内蒙古两座大坝在暴雨过后倒塌](/content/gnews/50/README.md)
+### [中国内蒙古两座大坝在暴雨过后倒塌](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【中共国段子】洪灾时的中共喉舌](/content/gnews/51/README.md)
+### [【中共国段子】洪灾时的中共喉舌](/content/gnews/53/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [美国指责中共国策划全球黑客事件后，北京威胁要“报复”](/content/gnews/52/README.md)
+### [美国指责中共国策划全球黑客事件后，北京威胁要“报复”](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【中共国段子】爱到深处](/content/gnews/53/README.md)
+### [【中共国段子】爱到深处](/content/gnews/55/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [3名逃离德克萨斯州的民主党人感染了COVID-19](/content/gnews/54/README.md)
+### [3名逃离德克萨斯州的民主党人感染了COVID-19](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [世卫组织负责人称排除COVID实验室泄漏可能性为时过早](/content/gnews/55/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共党卫军资讯工程大学，对台作战隐秘核心指挥中枢](/content/gnews/56/README.md)
- ` G-NEWS TAIWAN`
 

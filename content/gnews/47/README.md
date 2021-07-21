@@ -2,28 +2,25 @@
 ---
 
 
-## 亡腚缸【大头症】
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1411012/)
+## 【樱花宅急便】郑州洪水肆虐 乘客被困地铁
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1411062/)
 
-撰稿：东京樱花团/风翼
-插图：东京樱花团/设计组 
-校对：东京樱花团/喜马拉雅的微尘
+作者：东京樱花团｜文小白
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21021849/image0-81.jpg)
 
-亡腚肛：我脑袋大，智商高！
 
-战友：猪的脑袋也大！
 
-亡腚肛：我个高、肌肉多，一个人能打翻10个人。
 
-战友：个高有肌肉就厉害了？那恐龙不是也照样灭绝了！
 
-盖特链接：[https://www.gettr.com/post/p4rlf8](https://www.gettr.com/post/p4rlf8)
 
-*（文章仅代表作者本人观点） 
-发布：东京樱花团/老黑*
+7月20日，洪水突袭郑州市，地铁被洪水倒灌。五号线正在行驶中的地铁被洪水困在地下隧道，很快淹到乘客的胸部，车中上百名乘客被困，情况十分紧急，纷纷在微信发出紧急呼救，多人死亡。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16033232/image0-1-33.jpg)
+近日，河南郑州连日暴雨，洪水肆虐，当地民众上传网络的多段视频显示，多人被滔滔洪水直接卷走，十分悲惨。
 
+[新闻来源](https://www.aboluowang.com/2021/0721/1621738.html)
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 /*tdownc2p
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
 0
