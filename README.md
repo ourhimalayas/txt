@@ -31,14 +31,14 @@
 ### [郑州水灾根本原因在于“人祸”](/content/gnews/5/README.md)
  ` 日本东京樱花团`
 
-### [2021年7月21日 文贵先生盖特 6](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [【中英文字幕】7/20/2021文贵盖特：共产党策划最大的灭爆行动已经宣告彻底失败](/content/gnews/6/README.md)
+ ` Caihongqiao`
 
-### [2021年7月21日 文贵先生盖特 5](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [7/18/2021 郭先生：中共内斗中出现新四人帮，世界将承认新中国联邦](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
 
-### [2021年7月21日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [7/18/2021 郭先生：爆料革命和新中国联邦正以历史上前所未有的方式灭共](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/9/README.md)
  ` HimalayaRussia`
@@ -70,40 +70,40 @@
 ### [【世事解评】郑州地铁5号线事件：一场中共官方舆情维稳、草菅人命的大戏！](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [7/20/2021中共政权面对洪水无计可施，只会发通知并谎报死亡数字](/content/gnews/19/README.md)
+### [【中英文字幕】7/20/2021文贵盖特：共产党策划最大的灭爆行动已经宣告彻底失败](/content/gnews/19/README.md)
+ ` Caihongqiao`
+
+### [7/18/2021 郭先生：中共内斗中出现新四人帮，世界将承认新中国联邦](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/20/README.md)
+### [7/18/2021 郭先生：爆料革命和新中国联邦正以历史上前所未有的方式灭共](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [7/20/2021中共政权面对洪水无计可施，只会发通知并谎报死亡数字](/content/gnews/22/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/23/README.md)
  ` Caihongqiao`
 
-### [2021/7/21 大卫作战室直播精要](/content/gnews/21/README.md)
+### [2021/7/21 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/22/README.md)
- ` Caihongqiao`
+### [【热点播报】香港警方逮捕《苹果日报》前执行主编](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
 
-### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【有声读物】电网超载，中共国一些城市警告将有计划停电](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [高盛一半的超级富豪客戶的投资组合中添加了加密货币](/content/gnews/25/README.md)
+### [高盛一半的超级富豪客戶的投资组合中添加了加密货币](/content/gnews/26/README.md)
  ` 索尼克`
 
-### [【秘翻在线】中共国开启对未成年人接种疫苗](/content/gnews/26/README.md)
+### [【秘翻在线】中共国开启对未成年人接种疫苗](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】参议员本·萨斯 (R-Neb.) 称中共国国家主席习近平是“懦夫”](/content/gnews/27/README.md)
+### [【NewsExpress】参议员本·萨斯 (R-Neb.) 称中共国国家主席习近平是“懦夫”](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [前美国国务卿迈克-蓬佩奥聚焦2022中期选举，未来如何担当将顺其自然](/content/gnews/28/README.md)
+### [前美国国务卿迈克-蓬佩奥聚焦2022中期选举，未来如何担当将顺其自然](/content/gnews/29/README.md)
  ` 经济金融组`
 
-### [美国副国务卿雪蔓：台湾与美国将继续加强政治经济关系](/content/gnews/29/README.md)
- ` 经济金融组`
-
-### [Delta病毒席卷澳洲3大城，超过一半人口处于封城之下](/content/gnews/30/README.md)
+### [美国副国务卿雪蔓：台湾与美国将继续加强政治经济关系](/content/gnews/30/README.md)
  ` 经济金融组`
 
 ### [英国国防部向亚洲海域永久派驻两艘军舰](/content/gnews/31/README.md)
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [【世事解评】永别了，路德！](/content/gnews/43/README.md)
+### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中国报告首例死亡来自罕见的猴子B病毒](/content/gnews/44/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【世事解评】永别了，路德！](/content/gnews/45/README.md)
  ` 纽约香草山MOS02`
 
-### [路德连夜潜逃，警方破门搜捕](/content/gnews/44/README.md)
+### [路德连夜潜逃，警方破门搜捕](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [王定刚仓皇潜逃后将走向何方?](/content/gnews/45/README.md)
+### [王定刚仓皇潜逃后将走向何方?](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/46/README.md)
+### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/48/README.md)
  ` HimalayaRussia`
 
-### [郑州水灾，是天灾更是人祸！](/content/gnews/47/README.md)
+### [郑州水灾，是天灾更是人祸！](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/48/README.md)
+### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/49/README.md)
+### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/50/README.md)
+### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/51/README.md)
+### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/53/README.md)
  ` 温哥华扬帆农场`
 
-### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/52/README.md)
+### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [你在我这里只是草芥](/content/gnews/53/README.md)
+### [你在我这里只是草芥](/content/gnews/55/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我所理解的喜马拉雅元白皮书](/content/gnews/54/README.md)
+### [我所理解的喜马拉雅元白皮书](/content/gnews/56/README.md)
  ` 德农—喜马拉雅经济金融节目组`
-
-### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/55/README.md)
- ` HimalayaRussia`
-
-### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
