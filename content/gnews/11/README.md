@@ -2,38 +2,71 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1412005/)
+## 【简讯】GTV新闻节目组每日简讯
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1412043/)
 
-- **作者：土饭团(文团)**
+作者：GTV新闻采访文稿组
 
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年7月21日电/西喜社**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-你若想了解全文报导内容，请点击标题链接
 
-**1.[美国将 Microsoft Exchange 黑客攻击归咎于中共国政府的附属机构](http://%28https://www.foxnews.com/politics/us-blames-china-microsoft-exchange-hack%29)**
 
-福克斯新闻7月19日电，Biden政府周一指责中共国在今年早些时候入侵Microsoft Exchange电子邮件服务器软件，使全球数以万计的电脑受到影响。美国政府与盟友及合作伙伴一起宣布了这一消息，其中包括欧盟、英国、加拿大、澳大利亚、新西兰、日本和北约。Biden政府的一位官员说，这是北约第一次谴责中共国的网络活动。
+**国际时事动态**
 
-**2.[四名中共国公民因参与全球黑客活动而在圣地亚哥被起诉](https://www.nbcsandiego.com/news/local/4-chinese-nationals-charged-in-san-diego-for-roles-in-global-hacking-campaign/2660604/%29)**
+美国副国务卿温迪·谢尔曼7 月 21 日在东京告诉记者，她没有更新亚洲之行的行程， 谢尔曼与日本和韩国同行讨论了维护台湾海峡和平的问题，同时回避了她是否会访问中国的问题。目前还没有计划在中国停留。（[原文链接](https://www.bloomberg.com/news/articles/2021-07-21/u-s-envoy-discusses-taiwan-in-tokyo-no-update-on-china-trip)）
 
-NBC 7 San Diego 7月20日电，圣地亚哥的联邦检察官宣布对四名中共国公民的指控，他们被指控参与了入侵全球各实体计算机系统的活动，以便为中共国政府的利益窃取信息。据称，被告隶属于海南国家安全局并为其工作，在起诉书中将其描述为中华人民共和国国家安全部下属的省级外国情报机构。
+据布赖特巴特新闻网报道，中共再次拒绝了对武汉病毒实验室的调查，中共告诉世卫组织应该在美国寻找实验室泄漏源。试图甩锅美国。（[原文链接](https://www.breitbart.com/politics/2021/07/20/nothing-to-see-here-china-rejects-coronavirus-audit-tells-w-h-o-to-look-at-u-s-for-lab-leak-source/)）
 
-**3.[美国官员认为COVID实验室泄漏理论与自然起源的说法一样可信](https://www.aninews.in/news/world/asia/us-officials-consider-covid-lab-leak-theory-as-credible-as-natural-origins-narrative20210718055940/%29)**
+据布赖特巴特新闻网7月20日报道，英国国防部长华莱士和日本国防部长岸伸夫的联合公告中表示，英国将在亚洲永久部署两艘战舰。英国战略布局将向印太倾斜，这将挑战中共的领土主张，志在成为反恐和其他地区行动的永久部署。（[原文链接](https://www.breitbart.com/europe/2021/07/20/britain-tilts-east-will-deploy-warships-in-asia-permanently-challenge-chinese-territory-claims/)）
 
-ANI 7月18日电，负责对COVID-19起源进行情报审查的美国官员认为，病毒从武汉实验室意外逃逸的理论与它在野外自然出现的可能性一样合理。最近几个月，实验室泄漏理论获得了极大的支持，促使美国总统[joe biden](https://www.google.com/search?rlz=1C1CHWL_zh-CNUS962US962&amp;biw=1536&amp;bih=766&amp;tbm=nws&amp;q=joe+biden&amp;spell=1&amp;sa=X&amp;ved=2ahUKEwjy96PiovHxAhVDHc0KHaeyC9kQBSgAegQIAxA3)给美国情报团队一个90天的截止日期，以寻找病毒起源的答案。
+据布赖特巴特新闻网7月20日报道，参议员兰德保罗和安东尼福奇博士就白宫首席医疗顾问否认美国国立卫生研究院 ( NIH) 资助武汉病毒研究所，从事病毒功能增强研究发生激烈争论，《华盛顿邮报》的一位专栏作家周二认为“兰德保罗是对的，福奇是错的”（[原文链接](https://www.breitbart.com/politics/2021/07/20/washington-post-columnist-rand-paul-was-right-and-fauci-was-wrong/)）
 
-4.[**Fauci，Rand Paul在关于delta变种的听证会上对功能增强研究进行了“撒谎”的指责**](http://%28https://www.foxnews.com/politics/fauci-walensky-masks-virus-rules-delta-covid-spread-senate-hearing)
+中华民国外交部7月20日宣布，考量后疫情时期恢复双边互访交流与活跃观光市场的需求，各机关决定自今年8 月1 日起，延长泰国、汶莱、菲律宾及俄罗斯等国公民来台免签证措施1 年，至明年7 月31 日，并续行「观宏专案」至明年12 月31 日。（[原文链接](https://hk.finance.yahoo.com/news/%E6%B3%B0-%E6%B1%B6-%E8%8F%B2-%E4%BF%844%E5%9C%8B%E4%BE%86%E5%8F%B0%E5%85%8D%E7%B0%BD-%E5%A4%96%E4%BA%A4%E9%83%A8-112354275.html)）
 
-福克斯新闻7月20日电，在周二的参议院听证会上，肯塔基州参议员Paul Paul在对Fauci的提问中，接近于指责Fauci在之前的证词中向国会撒谎，他说NIAID从来没有资助过中共国的功能增强研究。Paul引用[一篇](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)关于蝙蝠冠状病毒研究的[论文](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)说，美国的资金基本上都流向了危险且有争议的研究。
+台湾焦点7 月 21 日 台北报道，根据台湾投资委员会的数据，2021 年上半年台湾批准的外国直接投资 (FDI) 价值较上年同期下降近 40%。该委员会表示，下降反映了 COVID-19 大流行，这造成了经济不确定性，以及 2020 年上半年设定的相对较高的比较基数。（[原文链接](https://focustaiwan.tw/business/202107210006)）
 
-5.[**Blinken谴责中共国在网络空间破坏稳定、不负责任的行为**](http://%28https://www.aninews.in/news/world/us/blinken-reprimands-china-for-destabilizing-irresponsible-behaviour-in-cyberspace20210719182611/%29)
+**中共病毒真相**
 
-ANI 7月19日电，美国国务卿Antony Blinken周一（当地时间）谴责中共国在网络空间的不负责任、破坏性和破坏稳定的行为，对经济和国家安全构成重大威胁。Blinken 说：“中共国国家安全部（MSS）培养了一个黑客犯罪合同的生态系统，他们为了自己的经济利益，既开展国家支持的活动，又进行网络犯罪。”
+据美国有限CNN报道，美国CDC 国家卫生统计中心的研究人员在 7 月 21 日星期三发布的一份新报告中写道，美国的预期寿命在 2020 年下降了一年半，主要是由于 Covid-19 大流行导致的死亡人数增加。（[原文链接](https://www.cnn.com/2021/07/21/health/life-expectancy-covid-19-pandemic-cdc-study-wellness/index.html)）
 
-**审核：蚂蚁兄弟  ，  校对：信心满满 ，     发布：信心满满**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19065322/GNEWS_CH.-2.jpeg)
+据ESPN报道，英国著名足球队阿森纳，于 7 月 20 日星期二宣布，由于足球俱乐部出现少量 COVID-19 阳性病例后，他们取消了前往美国的季前巡回赛。（[原文链接](https://www.espn.com/soccer/arsenal-engarsenal/story/4435582/arsenal-cancel-preseason-us-tour-due-to-covid-19-cases-reports)）
+
+据路透社7 月 21 日悉尼报道，澳大利亚最大的两个州，周三报告称，新的 COVID-19 病例急剧增加，这打击了解除封锁限制的希望，目前该国一半以上的人口处于居家令状态。（[原文链接](https://www.reuters.com/world/asia-pacific/australias-victoria-logs-biggest-daily-rise-covid-19-cases-week-2021-07-20/)）
+
+美国每日科学杂志7 月 20 日发文，由日本熊本大学和东京大学领导的一个国际研究小组表明，SARS-CoV-2 刺突蛋白的 L452R 突变是两种变体Epsilon 和 Delta共有的，通过 人类白细胞抗原 HLA-A24，并增强病毒感染性。 HLA-A24 是最突出的 HLA I 类等位基因之一，尤其是在东亚/东南亚人群中，这可能使他们特别容易受到具有这种突变的冠状病毒变体的影响。（[原文链接](https://www.sciencedaily.com/releases/2021/07/210720114413.htm)）
+
+**国内新闻**
+
+郑州在7月21日遭受到历史上最大的暴雨袭击，交通运输部办公厅印发紧急通知部署做好城市轨道交通防汛工作，要求运营单位要充分汲取近期发生的雨水倒灌事件教训，进一步调整完善应急预案，对超设计暴雨强度等非常规情况下采取停运列车，疏散乘客，关闭车站等应急措施。（[原文链接](https://3g.163.com/news/article/GFEINHOE0001899O.html?spss=adap_pc)）
+
+评论：地方救灾还没结束，中央已经开始铺垫推卸责任。交通运输部出公告转移视线。公告意在批评郑州地铁在7月20日没有及时停运导致乘客在地铁淹水后丧生。可是一个城市的排水系统整体落后失效导致的雨水倒灌，怎么能单独推给一个地铁公司来负责。
+
+近日有网友在网上怒斥中共草菅人命：他们看不到尸横遍地，他们看不见求救信号，他们听不见人们的哭声，他们看不懂年轻姑娘发在微博朋友圈的话：也许这是我最后一次发信息了，他们对年轻人死不瞑目的样子无动于衷，他们隐藏事故真相，伤亡人数，不许媒体报道，他们还上门找伤亡的家属，威胁不许发声，他们还要惺惺作态，做秀歌颂，五毛们纷纷出动连连直播，哄骗老百姓，他们是谁，就是万恶的共产党，这千古第一邪教，他们不但残害自己的老百姓，还把灾难带向世界，只有全球善良正义的人们齐心协力，歼灭恶毒的共产党，世界才会太平，74亿的人民才能安居乐业，善良的各国人民，为在水深火热中的中国人，行动吧，也为了你们自己，一起行动，消灭邪党，刻不容缓！ 共产党又犯下的这一桩滔天大罪，在人民的生命财产造成巨大伤亡损失，共产党却还要鼓动五毛出来要老百姓感恩感谢它，它的疯狂就是它的末日，它的作秀就是它草芥人命犯罪的铁证。（[原文链接](https://www.gettr.com/post/p4tvl5)）
+
+7月21日路透社报道，周三，中国中部河南省的大片地区被水淹没，其省会郑州遭受了天气观察人士所说的 1000 年来最大降雨的袭击，受灾最严重。当地政府表示，在黄河沿岸拥有超过 1200 万人口的郑州市，12 人在洪水泛滥的地铁线路中丧生，500 多人被救出。由于下雨，当局停止了公交车服务，因为这些车辆都是电力驱动的，这就是为什么很多人乘坐地铁，悲剧发生了。 从周六晚上到周二晚些时候，郑州的降雨量为 617.1 毫米，几乎与全市 640.8 毫米的年平均降雨量相当。数十座水库和大坝也超过了警戒线。 当地有关部门表示，降雨导致郑州市以西洛阳市的伊河滩大坝出现 20 米的溃口，大坝“随时可能倒塌”。
+
+综合来自各方面的消息，有民众质疑中共在这次郑州特大水灾中的表现。他们认为对这场史上罕见的降雨没有及时预警，灾难发生后没有采取有效的救援措施，质疑官方通告的只有12人丧生。他们认为中共满口谎，言草菅人命。
+
+有网友在网上质疑，当河南郑州整个处在水灾中的时候，共产党的口舌还在长细解读放大澳洲的水灾，当老百姓自发的救人时，当局还隐藏水灾的严重事故，不作新闻报道，当所有的人为河南人民的生命祈祷祈福时，共产党还在做秀，他们看不到5号车里求救的信号，他们听不见年轻姑娘视频里说的那句，也许这个信息是我最后一次发朋友圈，他们听不到群众的惊叫声声，又几个人被冲下去了，他们更看不见尸横遍地，一个个一幕幕惨不忍睹，这不是天灾，更多的是人祸，太多的共产党的豆腐工程导致了惨状，千万个家庭千万个哭声又在中华大地嚎啕而起，邪恶的共产党又欠下了一笔血债，它草芥人命，把老百姓的生命视为蝼蚁，把人民的血汗财产损失轻瞄淡写，泯灭良知的五毛们，助纣为虐，天怒人怨，🙏祈祷所有的灾难随着共产党早日灰飞烟灭，🙏祈祷河南郑州的人们平安，早日脱离灾难，减少人员伤亡……（[原文链接](https://www.reuters.com/world/china/heavy-rainfall-kills-12-central-chinas-henan-provincial-capital-xinhua-2021-07-20/)）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+信息整理：顽童2017
+
+校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
 0
