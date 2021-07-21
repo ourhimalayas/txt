@@ -2,13 +2,45 @@
 ---
 
 
-## 2021年07月20日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1410216/)
+## 川普总统责问马里科帕郡监事会在隐瞒什么？
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1410241/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20214909/211-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20215048/212-scaled.jpg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20220031/T.png)worthypolitics.com
+《门道专家》发表文章，“川普总统：马里科帕（Maricopa）郡监事会的掩盖——他们在隐瞒什么？”
+
+全文如下：
+
+唐纳德J.川普总统昨天又发表声明，抨击马里科帕郡监事会拒绝服从2020年大选的调查。
+
+川普总统说：
+
+为什么亚利桑那州建制派的马里科帕郡监事会拒绝提供路由器？他们想隐瞒什么？他们在为生或死而战。怎么回事？提交路由器！难道这不意味着退却，尽管他们的声明自相矛盾，连接到互联网？在2020年的总统选举中，选举舞弊是一件大事，事实每天都有进展！
+
+（声明完）
+
+该郡监事会正全力阻止这一调查，并利用条文中的每一个借口拒绝提供传唤的证据。
+
+从他们的行为来看，非常明显，这个郡（的监事会）是有罪的，他们正在尽一切努力掩盖罪行。
+
+他们并没有回答审计人员的问题，而是狡辩和指责。
+
+根据调查结果和报道的问题，我们已经有证据表明2020年的大选是可耻的。
+
+马里科帕郡监事会的行动表明，他们知道出了什么问题，他们不想让人们知道那是什么。
+
+（原文完）
+
+马里科帕郡监事会共有5名成员，似乎是一个集体行动，如此铁板一块地企图掩盖罪恶的欺诈舞弊行为，不得不令人怀疑他们也是舞弊欺诈的密谋策划和执行者，是一个窝案！其它摇摆州选举管理部门也是同样的情况，有窝案的嫌疑。这是偶然的吗？
+
+笔者早就猜测过，背后有更大的阴谋集团，自从2015年11月川普获胜那刻起，民主党奥巴马就认定了川普与俄罗斯勾结，俄罗斯干扰了美国大选，并开始着手酝酿操作接下来的大选，经过数年的准备，造就了现状。尚不清楚索罗斯等金主是利用了奥巴马，还是奥巴马利用了索罗斯，有一点可以肯定，中共也介入了其中，作掉川普总统是他们的共同目标。
+
+等待真相大白于天下！
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/07/president-trump-unleashes-maricopa-countys-board-supervisors-hiding/](https://www.thegatewaypundit.com/2021/07/president-trump-unleashes-maricopa-countys-board-supervisors-hiding/)
+
 0

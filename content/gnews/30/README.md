@@ -2,22 +2,20 @@
 ---
 
 
-## 【秘翻在线】中共军方警告暴雨或导致小浪底水坝溃坝
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410270/)
+## 【秘翻在线】超八成美新感染病例为 Delta 变体感染
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410426/)
 
-#### 编译： Evalu
+#### 翻译：坤霆
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20224924/%E5%B0%8F%E6%B5%AA%E5%BA%95.jpeg)图片来源：搜狐
-据法新社7月20日报道，中共国军方警告在中共国中部地区的一座大坝有可能在罕见暴雨后严重受损并可能随时发生溃坝事件，该场暴雨已造成三人死亡并引起该地区停摆现象。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20232053/%E5%AF%B9%E7%9A%84.jpg)图片来源：网易
+据路透社7月21日报道，福奇在周二的听证会上一改往日的假装冷静的态度，对参议院保罗进行了反击：“保罗， 我从未对国会撒谎……你不知道你在说什么。” 善于伪装的福奇撑大了嗓门还用手指指着对方。
 
-国家气象台已发布河南省中部地区最高警戒，该地区的倾盆大雨已造成大范围道路中断，洪水区域居民疏散。
+这位来自肯塔基的参议员几次在听证会上指控福奇用国家卫生研究院的资金资助了武汉病毒研究所。这笔资金在该研究所研究新冠病毒上发挥了作用。
 
-周二晚上，该地区中共国解放军警告大暴雨已引起洛阳的易鹤滩水坝出现长达20米的断裂，该水坝位于一个拥有几百万人口城市的附近，该水坝随时可能出现溃坝事件。
+福奇还指出，今年早期在印度冠状病毒大爆发时发现的delta变体在美国新感染的病例中占了超过80%。同时还强调了疫苗在预防住院和死亡方面的有效率仍然超过了90%。
 
-近几十年来，这种威胁愈加严重，因为水坝隔绝了河水与湖水的连接，而原本这种连接可以有助于在夏天暴雨季节缓冲洪水的形成。
+保罗在听证会上对福奇说，如果在国会撒谎被抓获……根据美国刑法，将构成重罪，并面临五年的监禁。
 
-目前，在社交媒体上有一些视频显示在河南郑州的地铁站里的水已漫过乘客的肩部，有些人站在座位上。另据当地政府的官方微博显示，有乘客被从堵塞的地铁车厢中解救出来，但在当地政府正式媒体上并没有显示该新闻。
-
-新闻来源：[Chinese army warns dam battered by storms could collapse](https://www.france24.com/en/live-news/20210720-chinese-army-warns-dam-battered-by-storms-could-collapse)
+原文链接：[Delta variant behind more than 80% of U.S. cases, Fauci says](https://www.reuters.com/business/healthcare-pharmaceuticals/delta-variant-behind-more-than-80-us-cases-vaccines-still-highly-effective-fauci-2021-07-20/)
 
 0
