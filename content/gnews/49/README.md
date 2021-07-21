@@ -2,37 +2,41 @@
 ---
 
 
-## GETTR 保留“@RealDonaldTrump”，它“在保险箱里”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1412187/)
+## 参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他
+` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/1412331/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21115610/1471.png)
+编撰：QF
 
-**据《washingtonexaminer 》作者：Paul Bedard，2021 年 7 月 19 日发布：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21123139/%E6%88%AA%E5%B1%8F2021-07-22-%E4%B8%8A%E5%8D%8812.22.38.png)图片来源：公共网络
 
-社交媒体上对保守派声音的审查，以前总统唐纳德-川普的推特和脸书禁令为首，正在将共和党人进一步推离这些网站。
+美国东部时间2021年7月20日（周二）晚，参议员兰德-保罗在《福克斯新闻黄金时间》节目中表示，**对****COVID-19****起源有不同意见的科学家与安东尼****–****福奇博士保持沉默，这主要是因为这位顶级的疾病专家控制着他们的大部分经费。**
 
-在新的 Fabrizio, Lee & Associates 向 Secrets 提供的民意调查中，共和党人只有14% 的表示他们对Twitter有好感，22% 的人表示对Facebook 有好感。
+**小帖士：**
 
-“共和党选民厌倦了大型社交媒体公司。”民意测验专家Tony Fabrizio在他的分析中说。
+福奇（Fauci）自1968年以来一直在位于马里兰州贝塞斯达的美国国立卫生研究院工作。他于1984年被里根总统任命为NIAID的负责人。
 
-但是，他补充说，这不是反互联网的事情。Fabrizio说，共和党人对亚马逊、谷歌和苹果等其他大型科技公司的认可要多得多。
+在当天早些时候由明尼苏达州民主党人艾米·克罗布彻主持的参议院听证会上，**参议员兰德****–****保罗对福奇进行了严厉的质询，**福奇对保罗关于功能增益（Gain-of-Function）研究的定义进行了争论，这位议员说这个定义来自另一位流行病学专家提供的一份文件。
 
-他补充说，共和党对 Facebook 和 Twitter 的反对为新的支持保守派社交网站（例如 Parler 和 GETTR）的发展打开了大门。
+兰德-保罗参议员继续敦促美国国家过敏与传染病研究所所长福奇重新考虑之前的证词「否认NIAID或NIH对武汉实验室的特别资助」；**许多人认为****COVID-19****就是在武汉实验室那里产生的。**
 
-GETTR 创始人、特朗普的前发言人杰森米勒表示，该网站的增长速度超过了 Twitter 和 Facebook，如果川普加入，该网站的发展会真正地快速增长。
+保罗对福奇的行为做出了进一步的反应，**这是因为福奇这位****80****岁的纽约州布鲁克林人在功能增益研究资金的问题上并没有像他应该做的那样让步。**
 
-他说，为了以防万一，川普的前推特账号@RealDonaldTrump已经被保留给他的前老板。“它在保险箱里，”米勒说。
+保罗说，他大声朗读了美国国立卫生研究院对功能增益研究的定义，以及在新泽西州罗格斯大学工作的一位细胞生物学专家的学术论文，该论文将武汉实验室石正丽博士的工作描述为这种实验的正式定义。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21120200/1471%E2%80%911.png)Twitter 已暂停前总统特朗普的著名帐户，新网站 GETTR 保留了他的句柄。
+**针对兰德****–****保罗参议员的质询，福奇博士所能做的就是吐口水，说保罗是骗子。但福奇从来也没有在任何时候对我们提出的任何事实作出回应，即他给武汉的钱确实是为了获得功能。**
 
-原文连接：[https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe](https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe)
+保罗本身作为医生，说出并反驳福奇的事实归结为医学界的许多人都是因为依赖NIAID的资金，而福奇在这方面拥有最终的决定权。
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 轰炸机
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**小贴士：**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+兰德·保罗（英语：Rand Paul；1963年1月7日－），全名兰德尔·霍华德·“兰德”·保罗，美国肯塔基州医生与政治人物；于2011年代表共和党当选美国参议员至今。此前，兰德·保罗是一名专业眼科医生，父亲罗恩·保罗是前德州美国众议员与医生。
 
-0
+兰德-保罗在关于COVID-19起源的激烈交流中质问福奇视频链接（中文字幕）：
+
+[https://gettr.com/post/p4u2qv](https://gettr.com/post/p4u2qv)
+
+在周二举行的听证会上，**面对兰德****–****保罗参议员展示的关于「中共利用武汉实验进行（功能增益）研究，****COVID-19****非自然，而是实验室制造的人传人病毒」的铁证时，福奇狡辩，做贼心虚的心里展示的一览无余。借用诸葛亮对王朗掷地有声地喊出的一句话“从未见过有如此厚颜无耻之人”来结束对福奇的描述吧！**
+
+新闻来源：[Foxnews](https://www.foxnews.com/media/rand-paul-anthony-fauci-intimidates-scientists)
+
++1

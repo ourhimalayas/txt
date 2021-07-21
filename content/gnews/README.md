@@ -70,53 +70,53 @@
 ### [2021年7月21日 秘翻快报 【头条新闻】](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【有声读物】电网超载，中共国一些城市警告将有计划停电](/content/gnews/19/README.md)
+### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【有声读物】电网超载，中共国一些城市警告将有计划停电](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [【有声读物】天有不测风云](/content/gnews/20/README.md)
+### [【有声读物】天有不测风云](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [【有声读物】为郑州祈祷](/content/gnews/21/README.md)
+### [【有声读物】为郑州祈祷](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [推特驚現鄭州遇難者眼角膜疑似被割的圖片](/content/gnews/22/README.md)
+### [推特驚現鄭州遇難者眼角膜疑似被割的圖片](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [郑州洪灾乃中共之灾](/content/gnews/23/README.md)
+### [郑州洪灾乃中共之灾](/content/gnews/24/README.md)
  ` 日本东京樱花团`
 
-### [2021/07/17 中共第二艘间谍船正接近美国与澳洲军演海域](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【NewsExpress】参议员本·萨斯 (R-Neb.) 称中共国国家主席习近平是“懦夫”](/content/gnews/25/README.md)
+### [高盛一半的超级富豪客戶的投资组合中添加了加密货币](/content/gnews/25/README.md)
  ` 索尼克`
 
-### [前美国国务卿迈克-蓬佩奥聚焦2022中期选举，未来如何担当将顺其自然](/content/gnews/26/README.md)
- ` 经济金融组`
-
-### [美国副国务卿雪蔓：台湾与美国将继续加强政治经济关系](/content/gnews/27/README.md)
- ` 经济金融组`
-
-### [Delta病毒席卷澳洲3大城，超过一半人口处于封城之下](/content/gnews/28/README.md)
- ` 经济金融组`
-
-### [【秘翻在线】澳洲疫情扩大，民众避免交谈](/content/gnews/29/README.md)
+### [【秘翻在线】中共国开启对未成年人接种疫苗](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】参议员提议加强台湾防御以应对中共国威胁](/content/gnews/30/README.md)
+### [【NewsExpress】参议员本·萨斯 (R-Neb.) 称中共国国家主席习近平是“懦夫”](/content/gnews/27/README.md)
  ` 索尼克`
 
-### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/31/README.md)
+### [前美国国务卿迈克-蓬佩奥聚焦2022中期选举，未来如何担当将顺其自然](/content/gnews/28/README.md)
  ` 经济金融组`
 
-### [【五月花评】美军机降台湾，中共嘴硬手软](/content/gnews/32/README.md)
+### [美国副国务卿雪蔓：台湾与美国将继续加强政治经济关系](/content/gnews/29/README.md)
+ ` 经济金融组`
+
+### [Delta病毒席卷澳洲3大城，超过一半人口处于封城之下](/content/gnews/30/README.md)
+ ` 经济金融组`
+
+### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/32/README.md)
+ ` 经济金融组`
+
+### [【五月花评】美军机降台湾，中共嘴硬手软](/content/gnews/33/README.md)
  ` 波士顿五月花农场`
 
-### [【五月花评】郑州水灾背后是人祸](/content/gnews/33/README.md)
+### [【五月花评】郑州水灾背后是人祸](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
-
-### [挥舞国安法大棒 香港警方再拘捕前报社编辑](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【秘翻在线】科技巨头 富可敌国](/content/gnews/35/README.md)
  ` 秘密翻译组G-Translators`
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [你在我这里只是草芥](/content/gnews/43/README.md)
+### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [你在我这里只是草芥](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我所理解的喜马拉雅元白皮书](/content/gnews/44/README.md)
+### [我所理解的喜马拉雅元白皮书](/content/gnews/45/README.md)
  ` 德农—喜马拉雅经济金融节目组`
 
-### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/45/README.md)
+### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/46/README.md)
  ` HimalayaRussia`
 
-### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/46/README.md)
+### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/47/README.md)
+### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/48/README.md)
  ` HimalayaRussia`
 
-### [参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他](/content/gnews/48/README.md)
+### [参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他](/content/gnews/49/README.md)
  ` 经济金融组`
 
-### [GETTR 保留“@RealDonaldTrump”，它“在保险箱里”](/content/gnews/49/README.md)
+### [GETTR 保留“@RealDonaldTrump”，它“在保险箱里”](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本驻澳大使称澳洲不是一个人在战斗](/content/gnews/50/README.md)
+### [日本驻澳大使称澳洲不是一个人在战斗](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [彼得·纳瓦罗:任何美国公民都不应该被强迫或压迫去接种疫苗](/content/gnews/51/README.md)
+### [彼得·纳瓦罗:任何美国公民都不应该被强迫或压迫去接种疫苗](/content/gnews/52/README.md)
  ` 经济金融组`
 
-### [中国科技界亿万富翁因中共国政府的打压而加大捐赠力度](/content/gnews/52/README.md)
+### [中国科技界亿万富翁因中共国政府的打压而加大捐赠力度](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [谭德塞警告有可能出现更危险的冠状病毒毒株](/content/gnews/53/README.md)
+### [谭德塞警告有可能出现更危险的冠状病毒毒株](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【樱花宅急便】习指示全力救援同时警告大灾后有大疫](/content/gnews/54/README.md)
+### [【樱花宅急便】习指示全力救援同时警告大灾后有大疫](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [【杂谈】关于郑州的愤怒](/content/gnews/55/README.md)
+### [【杂谈】关于郑州的愤怒](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
-
-### [从郑州水灾看自媒体的重要性](/content/gnews/56/README.md)
- ` 文名`
 
