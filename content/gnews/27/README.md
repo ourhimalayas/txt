@@ -2,28 +2,22 @@
 ---
 
 
-## 盖特已经为川普总统保留了他的推特用户名
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410643/)
+## 【秘翻在线】香港政府开始讨论“禁止人肉搜索”法案
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410666/)
 
-2021年7月20日
+#### 编译：坤霆
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21001837/%E9%A6%99%E6%B8%AF-2.jpg)图片来源：Lowy Institute
+据路透社7月21日报道，香港的立法院在周三开始讨论一项“禁止人肉搜索（anti-doxxing）”的隐私法案。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21001455/0-2-5.png)
+人肉搜索（doxxing），是指公开发布个人活组织的私人或识别信息，尤其是指在2019年大规模民主抗议活动后，民众自发的公布卖港贼们的私人信息。但是这并不包含政府运用其手段人肉并迫害民主活动人士。
 
-摘要翻译：
+自北京于2020年全面实施《国家安全法》以来，中共政府一直在将香港推向独裁的道路，因为去年民主党议员集体辞职或被取消资格，立法院里已经没有任何反对党。 这意味着该法律可以迅速通过，授权个人数据隐私专员办公室调查和起诉人肉搜索。
 
-盖特创始人兼川普总统的前发言人杰森·米勒告诉《华盛顿审查员》，盖特已经为前总统川普保留了他在推特上的用户名@RealDonaldTrump，以备川普加入盖特平台。目前川普在推特和脸书的账户都已经被禁。
+该立法立即遭到了人权和科技行业团体的反对。 原因是这些措施是用于保护当权者，并针对人民。亚洲互联网联盟是一个包括谷歌、facebook和推特在内的倡导组织，在6月25日给专员的信中警告说，如果当局继续推进这项立法，科技公司可能会停止在香港提供服务。
 
-他告诉《福克斯新闻》，在月初盖特平台正式发布的时候，川普总统的老推特用户名“已经为他准备好了。我希望他会加入盖特，但是他有几个其它选择正在考虑。”
+香港政府表示，在2019年6月至2021年4月期间，收到了5700多起与人肉搜索相关的投诉。警方称，在此期间逮捕了17名涉嫌人，其中两人已被定罪。
 
-【[新闻链接](https://www.newsmax.com/politics/gettr-miller-trump-handle/2021/07/19/id/1029163/)】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+**新闻来源****：**[Hong Kong begins talks on controversial ‘anti-doxxing’ privacy bill](https://www.reuters.com/business/finance/hong-kong-begins-talks-controversial-anti-doxxing-privacy-bill-2021-07-20/)
 
 0

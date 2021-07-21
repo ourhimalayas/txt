@@ -2,19 +2,32 @@
 ---
 
 
-## 【秘翻在线】向微信圈那些拼命转发郑州危情的人们致敬
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410239/)
+## 暴雨令河南多市一片汪洋惨状连连 郑州进入一级应急防汛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410381/)
 
-撰稿：待命（文晓）
+2021年7月20日
 
-责编：待命（文晓）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20215513/%E7%94%BB%E5%83%8F1-10.png)（图片源自微信）
-一夜间，一场暴雨，使河南郑州等地陷入灾难。一时间，被困在地铁中求救的视频、对话截图在互联网上疯传。一瞬间，世界各地的海外华人就收到了各种求救信息。只有中共中央电视台CCTV好像什么都不知道、什么都没看见。不仅一切安好，赞词不绝，还忧虑着远隔万里的他国灾情！担心着他国人民的安全！这一刻，中共化身之CCTV播音员的脸，迅速的扭曲变形！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20231011/0-113.png)
 
-如此情景，如此危难，让世界知道了真相的，竟然是微信朋友圈。是那些不惧恶党恫吓的，有良知的，尊重生命的人们，冒着被删帖、被封号、被喝茶、被消失的危险，通过微信朋友圈，向世界传递着这个噩耗！在朋友圈里，笔者看到了几个人在发疯一样的转发！庆幸啊！自己的朋友圈里不乏这些有良知的，充满人性的人！
+编辑摘要：
 
-远水不解近渴，我能做的，就是不让这些真相在我这里停止传播。转！转！转！向微信圈那些拼命转发郑州危情的人们致敬！
+中共国河南省连日来遭遇强降雨影响，多地降雨量接连打破历史记录，多处出现河流和水库水位暴涨导致溃堤和洪灾。十多个城市，包括省会郑州变成水乡泽国，灾情惨重。官方及官媒目前还没有提及有人员死亡或失联，不过社交媒体上流传的许多视频显示，有一些人已被淹死。
 
-（文章仅代表作者个人观点）                        河南,灾难,微信,真相,CCTV
+郑州市防汛抗灾指挥部星期二（7月20日）发布紧急通知称，由于当前防汛抗灾形势十分严峻，决定从17时起将防汛II级应急响应提升至I级。
+
+郑州星期二（7月20日）曾在一个小时内下了超过200毫米的暴雨，社媒上传的视频显示，有人站在灌满齐腰深水的地铁车厢里，而建于地下的地铁站也成了水池。还有的地铁站，两边铁轨坑道内浑浊的洪水奔腾向前；并且有躺在地铁月台上的多名死者照片。
+
+根据媒体报道，河南全境目前至少有31座大中型水库水位超过防汛警戒线，其中至少13座水库有决堤的危险。
+
+【[新闻链接](https://www.voachinese.com/a/Dozens-Henan-Cities-Under-Water-Amid-Heavy-Rain-20210720/5972737.html)】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

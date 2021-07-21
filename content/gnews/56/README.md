@@ -2,49 +2,76 @@
 ---
 
 
-## 参议员布莱克本: 政府的COVID Facebook审查制度可能违反第一修正案
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1410182/)
+## 【超限生物武器】2019新冠病毒如同非典病毒一样，是一场事先谋划的完美犯罪
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1410281/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20212615/Marsha-Blackburn-AP-640x480-1.jpg)图片来源：Breitbart
-据《NEWSMAX》7月19日报道，田纳西州参议员玛莎-布莱克本（Marsha Blackburn)写信给总统乔-拜登，抨击政府与Facebook合作，在平台上消除疫苗的”错误信息”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11055951/Gnews-Logo-1.png)
 
-白宫新闻秘书普萨基（Psaki）上周透露，拜登政府正在努力阻止它认为关于COVID-19和疫苗接种的错误信息在社交媒体平台上传播。
+译者： 天佑我华     校对：cosmo
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20223604/721.png)
+中国军事医学科学出版社于2015年出版的中共军事教科书《非典非自然起源和人制人新种病毒基因武器》第201-202页是该书主编徐德忠写给一位国际组织总干事的一封信的部分内容，其中陈述了非典病毒（SARS-CoV）的非自然起源以及其存在逆向进化的特质:
 
-布莱克本认为政府可能侵犯了用户的第一修正案权利。布莱克本在福克斯新闻获得的一封信中写道：”这些披露的信息令人深感担忧。”政府与大型科技公司合作审查美国人的言论自由的公然行为令人震惊,可以说是违反了第一修正案。”
+“*将**SRAS**和上述这些相似的新发传染病流行史和研究过程相比较**,**人们不难发现**, SARS-CoV**的起源和贮存宿主未确定**,**绝非研究者不努力**,**绝非研究的方法不先进**,**绝非研究* *的广度和深度不够**,**而是未从相反方向考虑**,**即在自然界根本不存在**SARS-CoV**的贮存宿主**;**存在的仅是**Bt SL-CoV**的贮存宿主。不存在贮存宿主**,**当然**SARS-CoV**即无生存之地。因此**, SARS-CoV**仅仅是人类历史上的匆匆过客。故我们将**SA**RS-**CoV**谓之**“**过客病毒**(passenger virus)**“.*
 
-布莱克本要求政府提供更多关于它如何与Facebook合作的信息。
+*所以**,**还是凯瑟琳**·**霍姆斯博士高瞻远瞩**,**在**SRAS**流行后**2**年**,**于美国科学促进会**(AAAS)**年会上说的**“**在人间已经发生的这种病毒株**,**可能仅存在实验标本内**”**这句话是事实的**,**是基于她和传染病长期斗争之经验与科学家敏锐之眼光。至于后来补充和论文中的字**(21),**是为留有余地和谨慎的科学态度之反映**,**因为她虽不是流行病学家**,**但她作为国际微生物学界的权威**,**心里明白**: 2003**年年底至**2004**年初出现**4**名轻型又无继发的病例后**,**呼吸道传染病多发的**2004—2005**年冬春季再无发病**,**人群和自然界是否存在传染源值得疑。*
 
-“你在指导社交媒体平台使用什么标准来标记和删除帖子？”布莱克本问道。”你正在指导社交媒体平台使用什么标准来禁止用户？”
+*那么**,**为什么自然界根本不存在**SARS-CoV**的贮存宿主**,**为什么现在自然界和人群已不存在**SARS-CoV,**其仅存在于实验室内**?**欲探讨其原因**,**则应先叙述本文题目中表明的**SARSCoV**存在逆向进化**(reve**rse evolutio**n)**。**”*
 
-“请问政府决定指导社交媒体平台从其网站上标记和删除帖子的法律依据是什么？”白宫是否有专门的工作人员在社交媒体上搜索要标记删除的内容？”
+摘自《非典非自然起源和人制人新种病毒基因武器》第201-202页
 
-普萨基上周为政府的行动进行了辩护，说它正试图通过”定期确保社交媒体平台了解我们和许多其他美国人，在所有社交和传统媒体上看到的对公众健康有害的最新叙述”来确保信息的准确性。
+【作者评论】
 
-普萨基补充说：”正如你们所知道的，信息传播得相当快。如果它在上面停留了几天，几天，几天。当人们看到它时，你知道，就很难把它放回盒子里，当然，促进高质量的信息算法，我不知道他们是如何工作的，但他们都知道他们是如何工作的。”
+在这封信中，此教科书的主编徐德忠博士明确表示，非自然起源的非典病毒（SARS， SARS-CoV）在自然界根本就不可能存在贮存宿主，并高度赞扬了凯瑟琳·霍姆斯博士在2005年就选择了对有关非典病毒非自然起源的正确研究方向。他还将非典病毒的过客特征归因于其逆向进化的能力。根据病毒学规则，逆向进化是天然病毒中极为罕见的现象。这是又一佐证表明了非典病毒具有非自然的起源。这封信中的所有信息都表明，尽管中共一直在全世界宣传非典病毒自然起源于果子狸，但其实他们早就非常明了非典病毒的真正起源。
 
-周五，拜登被要求回答如何向社交平台表达他关于COVID-19错误信息的信息。
+此外，这封给某一国际组织总干事的信写于2013年，从时间线明显地揭示出，不仅中共，而且一些国际专家和组织官员都已了解非典病毒的非自然起源。但是至今都还没有主流媒体，相关专家或像世界卫生组织那样的任何国际性机构在全球公开并正式地发表过非典病毒起源的真实信息。实际上，中共已经成功地把中国人的饮食习惯污名化，将其作为非典病毒大流行的根源。因此，自非典爆发以来，全世界都把这种观点视为理所当然。所有这些掩盖和宣传都是做为一个事先谋划的完美犯罪的伪装， 而这个完美犯罪可让真正的罪犯逃避司法审判。
 
-“他们正在杀人，”拜登说。”我们唯一的大流行病是在未接种疫苗的人中间，他们正在杀人。”
+目前，全世界正在面对增强版本的非典病毒，即2019新冠病毒（COVID-19），也称为非典病毒2 （SAV-CoV-2），两个版本的国际命名几乎相同，并且历史似乎在重演。只是这一次，中共完全将病毒归咎于中国人的饮食习惯和蝙蝠。而且，这次这个事先谋划的完美犯罪针对的不仅仅是中国人，而是世界所有人口。此外，在中国武汉爆发2019新冠疫情一年多之后，世界卫生组织WHO终于组建了一支专业调查小组前往武汉病毒实验室寻找2019新冠病毒的来源，但是新鲜出炉的报告备受批评。团队中的一名专家彼得·达萨克（Peter Daszak）像病毒学外行一样以非专业的方式介绍了这项调查，很明显地为中共隐瞒证据。也许，某些专家和官员早已知道2019新冠病毒的真实起源。或许这次，在十几年前中共对中国人进行了非典病毒的完美实验和完美犯罪之后，他们与中共勾结，通过科技，气候变化理论和冠状病毒部署了“大重启”计划。这项由中共和全球主义者精心策划的阴谋，在维迦诺（Viganò）大主教的一次[采访](https://brownpelicanla.com/new-interview-archbishop-vigano-discusses-the-great-reset-gives-hope-in-light-of-our-lady-of-fatima/)中被披露。在“大重启”中，2019新冠病毒被用作超限生物武器，为一场正在持续绵延中的超限战服务。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20223636/722.jpg)
+【**超限生物武器**】系列中文译文：
 
-在指出拜登错过了他在7月4日之前让全国70%的人接种疫苗的目标时，Facebook回答说，它通过告知数百万人如何接种疫苗拯救了生命。
+1. 非典病毒–中共国军事教材中详尽阐述的一种生物武器[https://gnews.org/zh-hans/988271/](https://gnews.org/zh-hans/988271/)
+2. 中共首例人造生物病毒SARS的真相 [https://gnews.org/zh-hans/1003167/](https://gnews.org/zh-hans/1003167/)
+3. 中共军方确认非典的非自然起源[https://gnews.org/zh-hans/1082314/](https://gnews.org/zh-hans/1082314/)
+4. 中国人民解放军教科书作者写给某国际组织总干事的一封信：[https://gnews.org/zh-hans/1102679/](https://gnews.org/zh-hans/1102679/)
+5. 中共解放军的“当代基因武器”一书是新冠肺炎的一面镜子：[https://gnews.org/zh-hans/1118259/](https://gnews.org/zh-hans/1118259/)
+6. 非典(SARS)病毒的基因特征表明了其非自然起源：[https://gnews.org/zh-hans/1245000/](https://gnews.org/zh-hans/1245000/)
+7. 军队教科书中长期已知并教授多年的人造病毒: [https://gnews.org/zh-hans/1343365/](https://gnews.org/zh-hans/1343365/)
+8. 非典(SARS)病毒非自然起源的流行特性和临床特性之证据:https://gnews.org/zh-hans/1367213/
 
-“我们不会被没有事实支持的指责所干扰，”Facebook的一位发言人说。”事实是，有超过20亿人在Facebook上浏览过关于COVID-19和疫苗的权威信息，这比互联网上任何其他地方都要多。
 
-“超过330万美国人还使用了我们的疫苗查找工具，以了解在哪里以及如何获得疫苗。事实表明，Facebook正在帮助拯救生命”。
+**【****超限生物武器****】**系列英文原文:
 
-在普萨基和拜登的评论之后，社交媒体上爆发了一场风暴。用户表示，他们对政府和Facebook在审查信息方面的密切关系感到担忧。
+1. A Bioweapon Elaborated in Chinese Military Program’s Textbook: [https://gnews.org/901853/](https://gnews.org/901853/)
+2. The Truth of SARS, CCP’s First Artificial Organism Virus: [https://gnews.org/901948/](https://gnews.org/901948/)
+3. Letter by PLA Textbook Author to an International Organization Chief: [https://gnews.org/906519/](https://gnews.org/906519/)
+4. The Unnatural Origin of SARS Confirmed by the Chinese Military: [https://gnews.org/908635/](https://gnews.org/908635/)
+5. Through the Looking Glass of PLA’s “Contemporary Genetic Weapons”: [https://gnews.org/916061/](https://gnews.org/916061/)
+6. Genetic Characteristics of SARS-CoV Suggest Unnatural Origin: [https://gnews.org/929502/](https://gnews.org/929502/)
+7. Manufactured Virus Known and Taught for Years in Military Textbook: https://gnews.org/935235/
+8. Evidence of the Epidemic and Clinical Characteristics of the Unnatural Origin of SARS:
 
-“拜登总统的白宫正在与大科技公司联手审查言论。这是错误的，违背了第一修正案的权利。”众议院少数党领袖凯文-麦卡锡（Kevin McCarthy)在推特上说。
 
-美国人民应该知道，纳税人付了多少钱为拜登监视他们的个人社交媒体账户和压制他们的声音？美国人有没有意识到他们正在失去言论自由这个另令美国人骄傲的美国建国精神？是时候反抗大科技与政府联手压制言论自由了。
 
-原文链接：
 
-[https://www.newsmax.com/newsfront/sen-blackburn-biden-psaki-facebook/2021/07/19/id/1029099/](https://www.newsmax.com/newsfront/sen-blackburn-biden-psaki-facebook/2021/07/19/id/1029099/)
+> [\[Covid Origin\] Evidence of the Epidemic and Clinical Characteristics of the Unnatural Origin of SARS](https://gnews.org/954425/)
 
-* * *
 
-发稿 Spirit
 
+- Covid-19 is a Perfect Crime, just like SARS: https://gnews.org/970785/
+
+
+上传：浪迹天涯
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/11050504/july2021-3.png)
 0

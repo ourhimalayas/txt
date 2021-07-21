@@ -2,22 +2,28 @@
 ---
 
 
-## 【秘翻在线】东京奥运会：首位感染中共病毒的美参赛选手已接种过疫苗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410522/)
+## 盖特已经为川普总统保留了他的推特用户名
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410643/)
 
-#### 撰稿：喜相逢
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20235036/%E5%A5%A5.jpg)图片来源：网络截图
-据美联社和CNA 综合报道， 目前东京奥运会中共病毒病例感染人数已上升至71例。 18岁新星，美国体操候补队员卡拉艾克（Kara Eaker）成为美国第一个检测出阳性的美国人， 而她在两个月前刚刚接种完整疫苗，而且是无症状感染者。 她与另一名替补选手正在东京单独的住宿场所隔离。 而且，艾克是在“假阳性”的测试结果之后多次测试的最终结果。
+2021年7月20日
 
-目前的确诊人数中， 28人来自各国代表团，33人为日方工作人员。 其中，南非足球代表队抵达日本一周后有3人确诊。美国代表团中除艾克外，还有3人染疫。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21001455/0-2-5.png)
 
-ESPN 记者分析称，备战奥运已承受非人压力， 东京奥运会也严格限制随团人员人数，没有家人陪伴，没有观众掌声， 更要面临因为接触史或筛检阳性之后的隔离程序。
+摘要翻译：
 
-新闻来源:
+盖特创始人兼川普总统的前发言人杰森·米勒告诉《华盛顿审查员》，盖特已经为前总统川普保留了他在推特上的用户名@RealDonaldTrump，以备川普加入盖特平台。目前川普在推特和脸书的账户都已经被禁。
 
-1. [美國隊3人確診 各國選手承受「染疫即退賽」壓力](https://www.cna.com.tw/news/aspt/202107210013.aspx)
-2. [US Olympic gymnastics alternate tests positive for virus](https://apnews.com/article/gymnast-covid-2020-tokyo-olympics-44e21e98694b6c82cb57429bf8af4644)
+他告诉《福克斯新闻》，在月初盖特平台正式发布的时候，川普总统的老推特用户名“已经为他准备好了。我希望他会加入盖特，但是他有几个其它选择正在考虑。”
 
+【[新闻链接](https://www.newsmax.com/politics/gettr-miller-trump-handle/2021/07/19/id/1029163/)】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
