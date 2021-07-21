@@ -20,6 +20,36 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@witchpeace 7/21/2021 1:37 AM (UTC)`
+
+
+![img](https://media.gettr.com/group12/getter/2021/07/21/01/0786961d-167a-6f27-b939-c88056de152e/out.jpg)
+
+---
+
+`@miles 7/21/2021 1:53 AM (UTC)`
+
+😭😭😭😭😭
+![img](https://media.gettr.com/group20/getter/2021/07/21/01/3a8b3d8b-f1de-3b3a-4ca2-d474f4cf5053/out.jpg)
+
+---
+
+`@miles 7/21/2021 1:52 AM (UTC)`
+
+😱😱😱
+![img](https://media.gettr.com/group35/getter/2021/07/21/01/fed4ad37-7bc6-7a44-38f3-5a461868ca00/out.jpg)
+
+---
+
+`@miles 7/21/2021 1:52 AM (UTC)`
+
+😱😱😱
+![img](https://media.gettr.com/group39/getter/2021/07/21/01/2747acaa-6022-ae07-bb5f-33f1a342af73/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@thetrumpproject 7/20/2021 3:16 PM (UTC)`
 
 Oh Damn... That's Just 🔥 🔥 🔥<br/>Order Yours: teezily.com/6az<br/>#TrumpWon #Trump2024 #ImpeachJoe<br/>#trump #biden #FallOfCabal<br/>#patriotparty #bigtech #Jesus <br/>#TheGreatAwakening #trump2024<br/>#ImpeachBiden #DumpJoe #FuckTwitter<br/>#FuckFacebook #StopTheSteal <br/>#TrumpNation #Trump2024<br/>#JoeBidenIsNotMyPresident<br/>#BidenIsNotMyPresident<br/>#NotMyPresident
@@ -283,37 +313,6 @@ Former President Trump tore into Fox News Channel and the network's handling of 
 `@timmurtaugh 7/15/2021 7:09 PM (UTC)`
 
 You can say you got in on the ground floor.⤵️<br/><br/>GETTR explodes, passing 1.5 million users in just 11 days<br/><br/>And new, independent polling shows the probable growth is enormous. <br/><br/>https://www.washingtonexaminer.com/washington-secrets/gettr-explodes-passing-1-5-million-users-in-just-11-days
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@timmurtaugh 7/16/2021 5:56 PM (UTC)`
-
-Welcome to the great @steveguest!<br/><br/>https://www.gettr.com/user/steveguest
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ilpresidento 7/17/2021 8:20 PM (UTC)`
-
-
-![img](https://media.gettr.com/group41/origin/2021/07/17/20/24a9bcd5-4a22-f980-c7c5-553e889c4534/9ec47bb45abff9a3d65e163ae3cb206e.jpg)
-
----
-
-`@miles 7/18/2021 12:28 AM (UTC)`
-
-这个愚蠢至极的……張口就是谎言……蛇妖闫……
-![img](https://media.gettr.com/group1/getter/2021/07/18/00/dec573ee-9f20-b973-8329-79f8a8532b64/9ae761db47793a41c828f03d8c4ef882.jpg)
-
----
-
-`@miles 7/17/2021 6:58 PM (UTC)`
-
-国际化的管理运行．法治基金．法治社会．才能永远是战友们在美国．西方的诺亚方舟！
-![img](https://media.gettr.com/group13/getter/2021/07/17/18/98410968-1855-153f-8fcc-bbdbdb8d37fa/2fd9abb7bc19842a28809526b2fe244c.jpg)
 
 ---
 
