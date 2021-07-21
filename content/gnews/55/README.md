@@ -2,33 +2,43 @@
 ---
 
 
-## 【今日祷告】为郑州祈福
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1410341/)
+## 【热点播报】电网超载，中共国一些城市警告将有计划停电
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1410397/)
 
-祷告者：香草山福音部 kikii
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+作者：纽约香草山健身部 Jack Li文阳
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20224350/16x9-feature-photos-MOS-logos-1-24.png)
-亲爱的阿爸父啊，共惨党的罪恶，他们的手沾满鲜血，嘴唇说的尽是谎言，无一人用公义待人民。神啊，河南郑州同胞百姓无指望，在黑暗之中，在水深之处。求忌恶如仇，恼怒的主施行审判在罪孽多端之徒时，求保守无辜的百姓，求父神施恩的手帮助，全能的主施恩拯救，唯有在袮里面我们得享平安，不记念我们所行的过犯。保守中华人民心怀意念，唤醒一切还在沉睡的人们，站出来反抗恶政府，与公义的主同行，不再被奴役，一生要来荣耀袮名，建造爱神爱人的新国度，父神，求怜悯袮给予我们回转归向袮的机会，将郑州无辜百姓交在恩主手中，奉主耶稣基督得胜，宝贵的圣名求，阿门🙏🙏
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-编辑/校对/发稿：正义的小新
+
+
+近期，由于用电需求达到历史性高位，及供应短缺给电网带来压力重不堪负。中共国一些大城市已经发出警告，将采取有计划的停电，在炎热的酷暑下，居民和工厂将面临停电的危机。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20231906/Untitled-design-16.png)图片来源：EPA- EFE
+据中共国国家电网消息，华东、华中区域电网，及广东、江苏、浙江等11个省级电网负荷创出历史新高。包括北京和西安在内的一些人口稠密地区的有关部门已经提醒电力用户做好停电的准备。陕西省西安市上周两次停电，一位居民反映：“我们停电了两天，7 月 13 日晚上 6 点到晚上 10 点，7 月 14 日晚上 9 点到晚上 11 点，没有电梯，没有水。” 西安政府已发出通知，要求车主只能在非高峰时段为电动汽车充电。当地电网运营商在上周的新闻发布会上说，在气温保持在35摄氏度以上之际，暂时切断了几个地区的电力供应。在南方出口中心广东，工厂主在 5 月份被告知，他们将不得不在需求高峰期每周停产两到三天。
+
+随着夏季高温，热浪袭来，不断增长的电力需求给中共国的主要能源—煤炭行业带来了进一步的压力。自从停止从澳大利亚采购煤炭后，供应忧虑日益加深，动力煤价格周一上涨至921元人民币/吨之上，接近5月创下的盘中纪录944.2元。
+
+中共国家发改委上周表示：各地要大规模建立煤炭储备能力，以满足需求和降低价格。发言人金贤东周一表示，指导地方和企业促进水电、核电、风电、太阳能发电等清洁能源电力多发满发，以满足夏季用电高峰需求。
+
+简评：中共的政府一发声，就表示出大问题了。中共一直发展的水电站可谓多如牛毛，加上近年加速发展的核电、风电、太阳能发电，一时风头无两。一场与澳大利亚打的煤炭贸易战，把中共的底裤打掉，漏出了老底，原来是如此的不堪一击。
+
+新闻来源：
+
+https://hk.finance.yahoo.com/news/%E7%94%A8%E9%9B%BB%E9%9C%80%E6%B1%82%E9%AB%98%E6%BC%B2%E9%9B%BB%E7%B6%B2%E8%B6%85%E8%BC%89-%E4%B8%AD%E5%9C%8B-%E4%BA%9B%E5%9F%8E%E5%B8%82%E8%AD%A6%E5%91%8A%E5%8F%AF%E8%83%BD%E6%9C%83%E5%81%9C%E9%9B%BB-015508074.html
+
+校对/发稿：火内
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

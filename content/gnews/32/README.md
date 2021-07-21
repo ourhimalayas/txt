@@ -2,28 +2,23 @@
 ---
 
 
-## 英国最大晶片厂落实售予中资公司后被停发拨款
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410458/)
+## 郑州洪灾乃中共之灾
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1410814/)
 
-2021年7月20日
+撰稿：东京樱花团/明骏2064
+校对：东京樱花团/喜马拉雅的微尘
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21001125/0-115.png)
+7月20日，河南郑州及郊县暴发了他們所谓的千年一遇的特大洪灾，目前中共国内都是自媒体在传播水灾的时事情况。
 
-编辑摘要：
+但是官媒新闻竟然还在播报欧州方面的灾情，看了着实让人愤怒！不实时播报本国灾情，却在关心他国的安全，试问良心何在？政府不积极开展紧急救援，红十字会却在第一时间公布账号要求企事业单位及个人捐款？这是一个什么样的所谓的为人民服务的政府？同胞兄弟姐妹们只能开展自救救助。试问下政腐为何半夜悄悄泄洪却秘而不宣？又为何不提前预警并关闭地铁及危险地段道路？年年投入巨资修建下水管道抗涝泄洪工程为什么没有任何效果？为何缺少抗洪救灾物资及应急救援队伍不见踪影？为何官媒只报导死难十二人，这么大的洪灾睁眼说瞎话可能只死这十几个人吗？再有郑州市民去年喝下去的孟婆汤感觉预知到什么滋味了吗？
 
-英国《每日电讯报》报道，英国最大晶片厂落实出售给中资公司闻泰科技旗下的安世半导体后，英国政府停止向 NWF 提供研发拨款。
+这一切灾难都源于中共的贪腐、无能和懒政，豆腐渣工程层出不穷，个个贪污并且捞取政绩，一旦出现事故就互相推诿扯皮，根本不顾民众安危。
 
-CNBC 引述消息报道，NWF 大部分合约都接受英国研究及创新署的资助，金额高达 5500 万英镑。威尔斯政府于本月 11 日表示，不会再投资于 NWF。
+这不是天灾，纯属人祸！CCP不倒，灾难不断！为此次洪灾死难者默哀，为同胞们祈福！
 
-【[新闻链接](https://www.thestandnews.com/international/%E8%8B%B1%E5%9C%8B%E6%9C%80%E5%A4%A7%E6%99%B6%E7%89%87%E5%BB%A0%E8%90%BD%E5%AF%A6%E5%94%AE%E4%BA%88%E4%B8%AD%E8%B3%87%E5%85%AC%E5%8F%B8%E5%BE%8C-%E9%81%AD%E6%94%BF%E5%BA%9C%E7%B5%82%E6%AD%A2%E7%A0%94%E7%99%BC%E6%92%A5%E6%AC%BE)】
+*（文章仅代表作者本人观点）
+ 发布：东京樱花团/老黑*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
 
 0

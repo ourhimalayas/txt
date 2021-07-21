@@ -2,26 +2,23 @@
 ---
 
 
-## 南京机场9工作人员确诊新冠肺炎 250多架次航班受影响
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410611/)
+## 警察已找上门，警告死者的亲人们不许发声！
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1410723/)
 
-2021年7月20日
+撰稿：东京樱花团/待命（文晓）
+校对：东京樱花团/喜马拉雅的微尘
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20235514/0-3-6.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21010014/%E5%9B%BE%E7%89%87-2.png)
 
-编辑摘要：
+[图片来源](https://www.163.com/news/article/E17SSFIP000187OQ.html)
 
-据台湾中央社报道，在南京禄口国际机场工作人员定期新冠病毒核酸检测采样中，20日有9人检测结果呈阳性。南京禄口国际机场20日计划起降航班405架次，截至20日晚间11时，已取消105架次，延误151架次。
+昨晚起，河南郑州的灾难成了中共网络警察删也删不完的网上主聊话题。借暴雨时泄洪，多好的借口啊！日后可以说是天灾。中共媒体集体装傻只字不提，是为什么？真正的原因，永远也不会、也不敢告诉老百姓。
 
-【[新闻链接](https://www.rfa.org/mandarin/Xinwen/10-07202021173420.html)】
+真正的灾难原因不明！真正的救援措施不明！真正的死亡数字不明！到底有多少个家庭在这次灾难中哭泣？不明！只听说警察已找上门，警告死者的亲人们不许发声！
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+*（文章仅代表作者个人观点）
+发布：东京樱花团/老黑*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
