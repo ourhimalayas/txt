@@ -2,44 +2,32 @@
 ---
 
 
-## 毫无察觉的中共立体监控，还原1930年代德国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410692/)
+## 北京拒绝世卫组织提出的对新冠病毒起源的第二次调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1411046/)
 
-2021年7月20日
+2021年7月21日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21005252/0-116.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21024458/china-640x480-1.jpg)
 
-编辑摘要：
+上周，世界卫生组织（WHO）呼吁对中共国实验室进行新的审计，以开展对新冠病毒起源的第二阶段调查。然而，北京周一拒绝了该提议。
 
-**“抗疫”管理模式将被固化和常态化**
+中国外交部发言人赵立坚称，该提议“与包括中国在内的许多国家的立场不同”，因此，世卫组织领导的对中国实验室的任何新审计都应“由成员国决定”。
 
-疫情期间，中共对城乡实行了严格的网格化管理。组织基层干部和群众，网上网下精准排查、地毯式摸排。新冠疫情爆发之后，当局依赖这种网格治理，把70%的城市化人口牢牢控制住了。中共国所谓的防疫成功很大程度上归功于这个所谓的“网格化”管理 ，所以需要固定下来。
+赵甚至在周一的简报会后发推文，世卫组织应该检查位于马里兰州弗雷德里克的德特里克堡，因为他去年宣扬了一个毫无根据的阴谋论，指责美国军方将病毒带到了中国。
 
-西方媒体惊叹，几十年未见的毛泽东时代群众运动在中国再次出现。
+二月份，世卫组织专家组访问武汉病毒研究所。正如布莱巴特新闻网报道的那样，在第一阶段调查结束后，世卫组织团队表示，新冠病毒的来源“仍未确定”。
 
-**“枫桥经验”，就地解决问题，不把矛盾上交**
+**【[新闻来源](https://www.breitbart.com/politics/2021/07/20/nothing-to-see-here-china-rejects-coronavirus-audit-tells-w-h-o-to-look-at-u-s-for-lab-leak-source/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)】**
 
-中国独立时事评论员吴强认为，中国的“抗疫模式”也是“枫桥经验”的具体应用和再现。“枫桥经验”指的是1963年，在浙江省宁波枫桥区进行的监督改造所谓“四类分子（地主、富农、反革命、坏分子）” 的经验。
-
-“枫桥经验“是毛泽东的治国理念，在邓小平、江泽民时代几乎绝迹，习近平上台后，不止一次地提出”枫桥经验”。吴强认为，“枫桥经验”的精髓就是“矛盾不上交”，“就地解决矛盾”。这是习近平避免让自己成为社会矛盾的最后防线的一种策略。
-
-**天网、地网和人网，民众被监控而不自知**
-
-中共国将抗击疫情期间群众路线和网络监控称为“天网+地网+人网”立体化社区管控模式。在治安防控领域，“天网”是遍布全国各地的安保视频监控系统、地网指的是地面的巡防系统，而“人网”则是群众联防系统以及志愿者结成的治安力量。
-
-独立时评人吴强说，对民众来说，数字极权时代最大的危险是被监控却不自知。在中共国，一旦被列入黑名单，就会被数字极权打入另册。走在街道上，摄像头做了人脸识别后，就会把你用红点标记出来。
-
-这种毫无察觉的监控让人想起1930年代的德国。在逮捕异议分子时，都是在夜晚进行。这种监控方式让很多中共国人生活在一种虚假的安全和幸福之中。这与很多德国公民在二战投降后毫无察觉集中营的存在是一样的道理。
-
-【[新闻链接](https://www.voachinese.com/a/china-grass-roots-control-07-20-2021/5972805.html)】
+* * *
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

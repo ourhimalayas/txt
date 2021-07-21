@@ -2,32 +2,28 @@
 ---
 
 
-## 哭某某大粉红被抓
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1410931/)
+## 亡腚缸【大头症】
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1411012/)
 
-撰稿：东京樱花团/风翼 
-插图：东京樱花团/设计组
+撰稿：东京樱花团/风翼
+插图：东京樱花团/设计组 
 校对：东京樱花团/喜马拉雅的微尘
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21015442/image1-7.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21021849/image0-81.jpg)
 
-听说大粉红被抓了！
+亡腚肛：我脑袋大，智商高！
 
-我再也不能因“美国经济大乱”借酒消愁了。
+战友：猪的脑袋也大！
 
-不能再自卑消沉时用“美国欠中国一个道歉”瞬间来精神了。
+亡腚肛：我个高、肌肉多，一个人能打翻10个人。
 
-不能在被裁员时用“美国将要大崩盘了”来给自己打鸡血了。
+战友：个高有肌肉就厉害了？那恐龙不是也照样灭绝了！
 
-不能在没钱交房租时用“美国受到致命打击”来消除忧愁了。
-
-不能在啃着馒头吃着咸菜时“美国在磨难中”安慰自己了。
-
-盖特链接：[https://www.gettr.com/post/p4p9vd](https://www.gettr.com/post/p4p9vd)
+盖特链接：[https://www.gettr.com/post/p4rlf8](https://www.gettr.com/post/p4rlf8)
 
 *（文章仅代表作者本人观点） 
 发布：东京樱花团/老黑*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16033232/image0-1-33.jpg)
 
-+1
+0
