@@ -2,48 +2,37 @@
 ---
 
 
-## 日本驻澳大使称澳洲不是一个人在战斗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1412169/)
+## GETTR 保留“@RealDonaldTrump”，它“在保险箱里”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1412187/)
 
-- 编译： 葛大饼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21115610/1471.png)
 
+**据《washingtonexaminer 》作者：Paul Bedard，2021 年 7 月 19 日发布：**
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+社交媒体上对保守派声音的审查，以前总统唐纳德-川普的推特和脸书禁令为首，正在将共和党人进一步推离这些网站。
 
-**西班牙2021年7月21日电/西喜社**
+在新的 Fabrizio, Lee & Associates 向 Secrets 提供的民意调查中，共和党人只有14% 的表示他们对Twitter有好感，22% 的人表示对Facebook 有好感。
 
-刚刚在Gettr发现的一篇文章，由[**RippleNews**](https://gettr.com/user/ripplenews) 发布，标题为“日本驻堪培拉大使称，日本处理对中共关系不可能比澳大利亚更温柔”。
+“共和党选民厌倦了大型社交媒体公司。”民意测验专家Tony Fabrizio在他的分析中说。
 
-日本驻堪培拉大使山上（Yamagami）先生在堪培拉国家新闻俱乐部发言时说，日本和澳大利亚之间的关系经历了 “惊人的 “转变，两国现在有着密切的战略联系。
+但是，他补充说，这不是反互联网的事情。Fabrizio说，共和党人对亚马逊、谷歌和苹果等其他大型科技公司的认可要多得多。
 
-他明确提到了中共政府对澳大利亚实施的一系列贸易制裁，因为两国在中共病毒、侵犯人权、外国投资和网络攻击方面继续发生冲突。
+他补充说，共和党对 Facebook 和 Twitter 的反对为新的支持保守派社交网站（例如 Parler 和 GETTR）的发展打开了大门。
 
-“澳大利亚不是一个人在战斗，”他说。”我赞赏澳大利亚以一贯的、有原则的和有弹性的方式面对巨大的压力。日本完全支持澳大利亚根据国际法，通过对话解决当前争端的努力。”
+GETTR 创始人、特朗普的前发言人杰森米勒表示，该网站的增长速度超过了 Twitter 和 Facebook，如果川普加入，该网站的发展会真正地快速增长。
 
-当被问及日本是否可以就如何处理北京问题向澳大利亚提供任何建议时，山上先生说”澳大利亚、日本、美国，和志同道合的国家必须走到一起，联手应对这个新兴大国的崛起所带来的这些挑战。所以，不要担心，你知道，你做得很好。我们在同一条船上，我们应该一起工作，”山上先生说。
+他说，为了以防万一，川普的前推特账号@RealDonaldTrump已经被保留给他的前老板。“它在保险箱里，”米勒说。
 
-他还认为，澳大利亚的政策制定者，应该更加密切关注位于日本和中共国之间的东中共国海。大使说：”我预见到，我们将需要加深有关这一水域的沟通和合作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21120200/1471%E2%80%911.png)Twitter 已暂停前总统特朗普的著名帐户，新网站 GETTR 保留了他的句柄。
 
-澳大利亚、美国和日本的军舰，已经在整个地区进行了几次联合演习，但澳大利亚更多关注的是中共国和几个东南亚国家相互竞争的南海。
+原文连接：[https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe](https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe)
 
-然而，北京和东京之间在中共国东海的紧张局势也在上升，中共国海岸警卫队的船只，多次驶入有争议的尖阁群岛附近水域。大使说，这种情况 “绝非与澳大利亚无关”，因为东中共国海是澳大利亚货物的另一条关键航道。
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 轰炸机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-他说，澳大利亚和日本应该考虑在该海域举行更多的军事演习或联合情报收集行动，并指出澳大利亚和日本的船只，已经在该地区合作执行了联合国对朝鲜的制裁。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-“中共国东海与中共国南海一样，对澳大利亚的安全和经济利益至关重要。两者都是我们的生命线，”山上先生说。”任何在这些海域以武力或胁迫方式挑战现状的单方面企图，都将不可避免地影响到我们的繁荣。”他还说，澳大利亚和日本之间期待已久的互惠准入协议的谈判–去年由总理斯科特-莫里森（Scott Morrison）和菅义伟（Yoshihide Suga）原则上同意–现在正处于 “最后阶段”。
-
-**新闻评论：**
-
-**日本驻堪培拉大使山水****先生说 ：“****澳大利亚、日本、美国，和志同道合的国家必须走到一起，联手应对这个新兴大国的崛起所带来的这些挑战。****”**** 全世界联合灭共啊！**
-
-**郭先生在直播中也提到，日本已经是完全觉醒， 那我们就期待着这位驻澳大使说的日本处理对中共关系不可能比澳大利亚更温柔的行动吧**！
-
-新闻链接：[www.abc.net.au](https://www.abc.net.au/news/2021-07-21/japan-ambassador-yamagami-australia-china/100312044)
-
-审核：Jenny Ball; 校对：信心满满; 发稿：Nuevo唐人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19065322/GNEWS_CH.-2.jpeg)
-
-
-
-
-+1
+0
