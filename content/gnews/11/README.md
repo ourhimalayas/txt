@@ -2,58 +2,38 @@
 ---
 
 
-## 福奇：如果这里有人撒谎，那就是你
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1411709/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1412005/)
 
-- 编译：wenwu
+- **作者：土饭团(文团)**
 
 
 ***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
 **西班牙2021年7月21日电/西喜社**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21085944/pasted-image-0-59.png)
-安东尼·福奇 (Anthony Fauci) 以直言不讳而闻名。但在周二（20日）国会听证会上，兰德·保罗参议员指责他撒谎。
 
-兰德·保罗是长期反对戴口罩的肯塔基州共和党参议员，他在关于中共病毒大流行的国会听证会上与国家顶级传染病专家福奇[发生冲突时，](https://twitter.com/cspan/status/1417502417713864711?s=20)被激怒了。
+你若想了解全文报导内容，请点击标题链接
 
-保罗表示，福奇在5月份国会听证会上撒谎，当时他否认美国国立卫生研究院 (NIH) 资助了在中共国武汉病毒研究所所谓的“功能增强”研究——在实验室中增强病毒以研究其在现实世界中的潜在影响的做法。
+**1.[美国将 Microsoft Exchange 黑客攻击归咎于中共国政府的附属机构](http://%28https://www.foxnews.com/politics/us-blames-china-microsoft-exchange-hack%29)**
 
-“福奇博士，你知道向国会撒谎是犯罪，你是否希望收回你在5月11日的声明，你声称NIH从未资助过武汉实验室的“功能增强研究”？” 参议员要求。
+福克斯新闻7月19日电，Biden政府周一指责中共国在今年早些时候入侵Microsoft Exchange电子邮件服务器软件，使全球数以万计的电脑受到影响。美国政府与盟友及合作伙伴一起宣布了这一消息，其中包括欧盟、英国、加拿大、澳大利亚、新西兰、日本和北约。Biden政府的一位官员说，这是北约第一次谴责中共国的网络活动。
 
-福奇用非常明显的布鲁克林口音，有力地回击道：“保罗参议员，我从来没有在国会面前撒谎，我也不会收回那句话。”
+**2.[四名中共国公民因参与全球黑客活动而在圣地亚哥被起诉](https://www.nbcsandiego.com/news/local/4-chinese-nationals-charged-in-san-diego-for-roles-in-global-hacking-campaign/2660604/%29)**
 
-他还告诉参议院卫生、健康、教育、劳工和养老金委员会，保罗引用的一项研究提到了一种完全不同于导致中共病毒大流行的病毒。“你所指的这篇论文是由上链和下链的合格员工判断为没有经过功能增强的。”
+NBC 7 San Diego 7月20日电，圣地亚哥的联邦检察官宣布对四名中共国公民的指控，他们被指控参与了入侵全球各实体计算机系统的活动，以便为中共国政府的利益窃取信息。据称，被告隶属于海南国家安全局并为其工作，在起诉书中将其描述为中华人民共和国国家安全部下属的省级外国情报机构。
 
-保罗打断了他，福奇坚持说“让我说完”。但保罗继续说，随着交流变得更加激动，并用他的手指着。
+**3.[美国官员认为COVID实验室泄漏理论与自然起源的说法一样可信](https://www.aninews.in/news/world/asia/us-officials-consider-covid-lab-leak-theory-as-credible-as-natural-origins-narrative20210718055940/%29)**
 
-福奇愤怒地说：“保罗参议员，坦率地说，你不知道自己在说什么。我想正式地说出来。你不知道你在说什么。”
+ANI 7月18日电，负责对COVID-19起源进行情报审查的美国官员认为，病毒从武汉实验室意外逃逸的理论与它在野外自然出现的可能性一样合理。最近几个月，实验室泄漏理论获得了极大的支持，促使美国总统[joe biden](https://www.google.com/search?rlz=1C1CHWL_zh-CNUS962US962&amp;biw=1536&amp;bih=766&amp;tbm=nws&amp;q=joe+biden&amp;spell=1&amp;sa=X&amp;ved=2ahUKEwjy96PiovHxAhVDHc0KHaeyC9kQBSgAegQIAxA3)给美国情报团队一个90天的截止日期，以寻找病毒起源的答案。
 
-随着两人反复打断对方，争吵仍在继续，委员会主席努力保持控制。福奇总结道：“参议员，如果有人在这里撒谎，那就是你。”
+4.[**Fauci，Rand Paul在关于delta变种的听证会上对功能增强研究进行了“撒谎”的指责**](http://%28https://www.foxnews.com/politics/fauci-walensky-masks-virus-rules-delta-covid-spread-senate-hearing)
 
-批评人士说，保罗是作秀给右翼的美国人看，在那里福奇成为了一个恶棍，成为媒体评论员的目标，前美国总统川普更在集会上高呼“把福奇抓起来”。
+福克斯新闻7月20日电，在周二的参议院听证会上，肯塔基州参议员Paul Paul在对Fauci的提问中，接近于指责Fauci在之前的证词中向国会撒谎，他说NIAID从来没有资助过中共国的功能增强研究。Paul引用[一篇](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)关于蝙蝠冠状病毒研究的[论文](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)说，美国的资金基本上都流向了危险且有争议的研究。
 
-国家[过敏和传染病研究所](https://www.niaid.nih.gov/)主任此前曾表示，他处理此类观点的部分方式是，参考马里奥·普佐1969年的小说《教父》中的哲学：“这不是个人问题，它是完全的商业上的工作。”
+5.[**Blinken谴责中共国在网络空间破坏稳定、不负责任的行为**](http://%28https://www.aninews.in/news/world/us/blinken-reprimands-china-for-destabilizing-irresponsible-behaviour-in-cyberspace20210719182611/%29)
 
-福奇还在周二的听证会上表示，中共病毒的Delta变体是美国80%以上新增Covid-19病例的原因，但授权的疫苗在预防住院和死亡方面仍有90%以上的有效性。
+ANI 7月19日电，美国国务卿Antony Blinken周一（当地时间）谴责中共国在网络空间的不负责任、破坏性和破坏稳定的行为，对经济和国家安全构成重大威胁。Blinken 说：“中共国国家安全部（MSS）培养了一个黑客犯罪合同的生态系统，他们为了自己的经济利益，既开展国家支持的活动，又进行网络犯罪。”
 
-拜登在5月下旬呼吁助手调查病毒的起源，并在90天内向他报告。更普遍的理论是，该病毒起源于动物，可能是蝙蝠，然后传染给了人类。
-
-明尼苏达州民主党参议员蒂娜·史密斯（Tina Smith）问福奇，他是否还有什么想说的，以“抵消我们刚刚目睹的这些对你的诚信的攻击”。
-
-他回答说：“这是保罗参议员现在在基于不现实的多次听证会上所做的一种模式。他说的功能增强，这已经被有资格的人多次评估过，不属于功能增强的定义。我没有在国会面前撒谎，也从来没有说谎。特别是在国会听证会之前撒谎。”
-
-**简评：**
-
-**福奇欺负美国国会听证会上的参议员没有一个是有“文凭”的，咋整？**
-
-**据网络流传消息，近日“妖精闫”有可能陪着“路大脑袋”带着3个孩子私奔去了，“路大脑袋”的老婆还屁颠屁颠和“妖精闫”一起到了德州。今日，“妖精闫”更想在推特上硬贴兰德·保罗参议员，可惜人家不踩它，被人嫌弃啊！**
-
-**与次同时，却转了新中国联邦的朋友，也是班农战斗室与《国家脉动》的主编Raheem J.Kassam的[推文](https://twitter.com/RaheemKassam/status/1417530500411965446?s=20)：在这次交流中，你（兰德·保罗）是唯一一个真正使用科学和证据的人，而福奇则试图用花言巧语来回避这件事。另外，附带了5篇《国家脉动》，是关于“功能增强”与福奇有关证据的报道。**
-
-**最后补充一下福奇是很关心疫苗的。Richard M.Fleming在2021年6月30日的[节目中（1:25:50-1:27:00）](https://brandnewtube.com/watch/event-2021-in-dallas-tx-dr-richard-fleming_eslCioAoMq7HsRV.html)做出了介绍：福奇在采访中表示，疫苗可能让你成为无症状病毒携带者并传染给其他人**。
-
-**新闻来源：[《卫报》](https://www.theguardian.com/us-news/2021/jul/20/anthony-fauci-rand-paul-coronavirus-research)（the Guardian) | 作者：大卫·斯密斯｜发布时间：2021年7月20日**
-
-**审核：文乐， 校对：阿伯塔， 发布：信心满满**
+**审核：蚂蚁兄弟  ，  校对：信心满满 ，     发布：信心满满**
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19065322/GNEWS_CH.-2.jpeg)
-+1
+0

@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/21/2021 2:58 PM (UTC)`
+
+Liars and Traitors <br/><br/>Infiltration and Lies:The unrestricted media war with the CCP 
+![img](https://media.gettr.com/group48/getter/2021/07/21/14/d1b4cf3d-8e61-94ac-d615-7988024c93c7/out.jpg)
+
+---
+
 `@miles 7/21/2021 2:33 PM (UTC)`
 
 谢谢战友制作的精美的关于郑州水灾的视频。人类治理自然灾害和公共灾难．最好的办法，就是及时的知情和通报和沟通系统。而恰巧在这时候共产党关闭了他们的独裁领导下的公共的救命的基础．通信网络，并阻止人民互救能力．因此发生的次生灾害是巨大的犯罪！
@@ -303,13 +310,6 @@ My exclusive content. How ironic! While CCP vows to #NukeJapan , its state-owned
 
 【这才是第一个发现羟氯喹可以治疗病毒的人，缺德社，别想摘桃子🍑混淆视听。。。。看油管日期】
 ![img](https://media.gettr.com/group13/getter/2021/07/14/20/af35bc5a-578c-3a21-fc26-1540917ef786/785f3378a5cf2bfd0a2798275b92c35a.jpg)
-
----
-
-`@miles 7/18/2021 10:25 PM (UTC)`
-
-7月18日：共产党的内部政治斗争……全面升级……
-![img](https://media.gettr.com/group32/getter/2021/07/18/22/8e101704-fda0-9bab-482b-01d2434a5d9c/out.jpg)
 
 ---
 
