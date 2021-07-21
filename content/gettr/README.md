@@ -18,6 +18,31 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@wencheng 7/21/2021 9:03 PM (UTC)`
+
+这垃圾去年七月混到我们节目组潜伏，虽然五月德农事件已经涵养，但是还突破做人底线。再放张这个面相咕噜的吸毒脸，旁边女朋友好像大使馆建工
+![img](https://media.gettr.com/group29/getter/2021/07/21/21/e996b83e-518d-c791-4d6d-94546ec22f4d/d58e98c58a3f9e8722230036846cacaa.jpg)
+> `@miles 7/21/2021 8:49 PM (UTC)`<br/>这是真特务呀……😏😏😏【七哥，德意志之鹰叫 吴宏斌，他女友在discord里叫Alicia，真名叫陈依依，】
+![img](https://media.gettr.com/group37/getter/2021/07/21/20/bcb8f989-14dd-6438-3884-9f91bad3b776/92129f8ad5a7e6b966b8b2eedcf05466.jpg)
+
+---
+
+`@miles 7/21/2021 9:04 PM (UTC)`
+
+Live broadcast on July 20 with English subtitles
+![img](https://media.gettr.com/group14/getter/2021/07/21/21/a9f9b19a-3af4-37dd-07ec-5177ef75661a/out.jpg)
+
+---
+
+`@miles 7/21/2021 9:01 PM (UTC)`
+
+好厉害的战友！
+![img](https://media.gettr.com/group9/getter/2021/07/21/21/2f3f38df-15f7-59a9-0690-0c053196ef4c/6127beabaa4c398d4086a69cd06ecd77.jpg)
+
+---
+
 `@miles 7/21/2021 8:49 PM (UTC)`
 
 这是真特务呀……😏😏😏【七哥，德意志之鹰叫 吴宏斌，他女友在discord里叫Alicia，真名叫陈依依，】
@@ -286,30 +311,6 @@ This is the real face of Serpent Yan!
 
 She is a lunatic and a liar
 ![img](https://media.gettr.com/group8/getter/2021/07/19/00/c225403f-716e-bf6e-59e4-4df7c0c999bd/694f167f2e4cf187a4fa7365af9e043c.jpg)
-
----
-
-`@miles 7/19/2021 12:03 AM (UTC)`
-
-跟着共产党走进火葬场．孙大午在双指期间所遭受的待遇，算是不错的啦．比文贵本人待遇高多了！还将有无数个私人企业家走向哪里！这叫前仆后继……只有消灭共产党……中国人民才能都得到解放！
-![img](https://media.gettr.com/group8/getter/2021/07/19/00/fc90f6b2-d248-4fa2-6cbd-d558524f4b11/be3adaad6e2d6d093df8bb5caca7dacf.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@janjekielek 7/18/2021 11:35 PM (UTC)`
-
-"When we stop reading them, they die."<br/><br/>Author Heather Mac Donald explains how #CancelCulture has impacted the quality of US education, and says we have an obligation to keep the great works alive.<br/><br/>🔴 WATCH the FULL EPISODE on @AmThoughtLeader on @EpochTV : https://ept.ms/3xwNpcb
-![img](https://media.gettr.com/group34/origin/2021/07/18/23/f0826991-9ce2-0d60-3df1-bf7c18c40222/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jenniferatntd 7/17/2021 2:36 PM (UTC)`
-
-My exclusive content. How ironic! While CCP vows to #NukeJapan , its state-owned enterprise begging overseas Chinese to buy #Japanese chips...Remember last year overseas Chinese mobilized & almost bought out all masks in the world? Don't underestimate this.  警惕：中共或發動海外華人代購芯片<br/><br/>https://www.jenniferzengblog.com/home/2021/7/17/exclusive-overseas-chinese-asked-to-buy-chips-for-ccps-state-owned-enterprise
 
 ---
 

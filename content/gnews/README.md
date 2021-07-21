@@ -31,14 +31,14 @@
 ### [郑州水灾根本原因在于“人祸”](/content/gnews/5/README.md)
  ` 日本东京樱花团`
 
-### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/6/README.md)
+### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/6/README.md)
  ` Caihongqiao`
 
-### [2021年7月21日 文贵先生盖特 3](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/7/README.md)
+ ` Caihongqiao`
 
-### [郭爆料串珠（325）默克尔是绝对的共产主义，中共灭亡一定会带走德国](/content/gnews/8/README.md)
- ` 郭爆料串珠`
+### [2021年7月21日 文贵先生盖特 3](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/9/README.md)
  ` HimalayaRussia`
@@ -70,23 +70,23 @@
 ### [2021年7月21日 秘翻快报 【头条新闻】](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/19/README.md)
+### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/19/README.md)
  ` Caihongqiao`
 
-### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/20/README.md)
+### [2021/7/21 大卫作战室直播精要](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/21/README.md)
+ ` Caihongqiao`
+
+### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【有声读物】电网超载，中共国一些城市警告将有计划停电](/content/gnews/21/README.md)
+### [【有声读物】电网超载，中共国一些城市警告将有计划停电](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [【有声读物】天有不测风云](/content/gnews/22/README.md)
+### [【有声读物】天有不测风云](/content/gnews/24/README.md)
  ` MOSREC`
-
-### [【有声读物】为郑州祈祷](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [推特驚現鄭州遇難者眼角膜疑似被割的圖片](/content/gnews/24/README.md)
- ` 澳喜农场`
 
 ### [高盛一半的超级富豪客戶的投资组合中添加了加密货币](/content/gnews/25/README.md)
  ` 索尼克`
