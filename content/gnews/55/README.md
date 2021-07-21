@@ -2,37 +2,43 @@
 ---
 
 
-## GETTR 保留“@RealDonaldTrump”，它“在保险箱里”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1412187/)
+## 保罗参议员要求对福奇进行“刑事移交”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1412395/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21115610/1471.png)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**据《washingtonexaminer 》作者：Paul Bedard，2021 年 7 月 19 日发布：**
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21124636/F-3.jpg)thefreethoughtproject.com
+《福克斯新闻》发表文章，“兰德·保罗（Rand Paul）说，他将要求司法部就福奇的证词进行‘刑事移交’”。副标题指出，参议员兰德·保罗指责福奇“在他是否资助功能增强研究的问题上撒谎”。
 
-社交媒体上对保守派声音的审查，以前总统唐纳德-川普的推特和脸书禁令为首，正在将共和党人进一步推离这些网站。
+全文如下：
 
-在新的 Fabrizio, Lee & Associates 向 Secrets 提供的民意调查中，共和党人只有14% 的表示他们对Twitter有好感，22% 的人表示对Facebook 有好感。
+参议员兰德·保罗说，他将致信司法部，要求对安东尼·福奇进行刑事调查。“我将致函司法部，要求刑事移交，因为他向国会撒谎。” 肯塔基州的共和党人在周二（7月20日）晚上的“汉尼蒂”（Hannity）节目上，将福奇的情况告诉给了肖恩·汉尼蒂（Sean Hannity）。
 
-“共和党选民厌倦了大型社交媒体公司。”民意测验专家Tony Fabrizio在他的分析中说。
+“他这样做是因为他有私利掩盖他的行踪，掩盖他与武汉实验室的联系。” 保罗继续说。
 
-但是，他补充说，这不是反互联网的事情。Fabrizio说，共和党人对亚马逊、谷歌和苹果等其他大型科技公司的认可要多得多。
+在保罗接受采访之前，他和福奇在周二的参议院听证会上进行了又一次激烈的交锋，当时两人就武汉一家实验室的功能增强研究成果“撒谎”的指控，被认为是中共（冠状）病毒的起源。
 
-他补充说，共和党对 Facebook 和 Twitter 的反对为新的支持保守派社交网站（例如 Parler 和 GETTR）的发展打开了大门。
+国家卫生研究院（NIH）和国家过敏和传染病研究所（NIAID）表示，他们支持资助蝙蝠病毒的研究，但从未资助中共病毒的功能增强研究和人类的遗传性研究。
 
-GETTR 创始人、特朗普的前发言人杰森米勒表示，该网站的增长速度超过了 Twitter 和 Facebook，如果川普加入，该网站的发展会真正地快速增长。
+保罗在听证会上曾问NIAID主任：“福奇，你知道向国会撒谎是一种犯罪，你想收回你5月11日的声明吗？你在声明中声称NIH从未资助武汉功能增强研究？” 在他引用了一篇关于蝙蝠冠状病毒研究的论文之后，引用了罗格斯大学（Rutgers University）分子生物学家理查德·艾布赖特（Richard Ebright）博士的话，“研究匹配，实际上是功能增强研究的定义的缩影。”
 
-他说，为了以防万一，川普的前推特账号@RealDonaldTrump已经被保留给他的前老板。“它在保险箱里，”米勒说。
+福奇回应说：“我从未在国会面前撒谎，我也不会收回那份声明。”“你不知道你所说的相当坦率，我要说的是，正式（的表达）。” 福奇补充说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21120200/1471%E2%80%911.png)Twitter 已暂停前总统特朗普的著名帐户，新网站 GETTR 保留了他的句柄。
+保罗认为，福奇是在“绕开”功能增强研究的定义，因为他“试图掩盖全球400万人死于疫情的责任。”
 
-原文连接：[https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe](https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe)
+保罗在接受汉尼蒂采访时补充说，福奇不应该为这次疫情承担全部的“责任”，他说，“关于它是否来自实验室，仍有一些猜测。”“但他在是否资助了功能增强研究的问题上撒了谎。”他说，“是的，他应该受到惩罚。”
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 轰炸机
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+福奇办公室没有就保罗参议员打算致函司法部事宜回应《福克斯新闻》的置评要求。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（全文完）
+
+保罗参议员对老贼福奇看的是很透的，感到纳闷的是老贼还是那样“死硬”，看不出一点忏悔，而议员中，为什么只有保罗在质询？事实已经如此明显，罪恶已是如此深重，对每年掌管400亿美元分配权的老贼，竟束手无策，难道这就是美国的政治、科技生态？
+
+倘若没有文贵先生引领的爆料革命、新中国联邦，美国还真是在向黑暗中挺进。赶紧醒悟吧，求助、联合新中国联邦，将魔共消灭，这才是美国重振、复兴的前提。
+
+原文链接：
+
+[https://www.foxnews.com/politics/rand-fauci-doj-investigation](https://www.foxnews.com/politics/rand-fauci-doj-investigation)
 
 0

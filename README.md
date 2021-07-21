@@ -31,23 +31,23 @@
 ### [郑州水灾根本原因在于“人祸”](/content/gnews/5/README.md)
  ` 日本东京樱花团`
 
-### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/6/README.md)
- ` Caihongqiao`
-
-### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/7/README.md)
- ` Caihongqiao`
-
-### [2021年7月21日 文贵先生盖特 3](/content/gnews/8/README.md)
+### [2021年7月21日 文贵先生盖特 6](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/9/README.md)
+### [2021年7月21日 文贵先生盖特 5](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [2021年7月21日 文贵先生盖特 4](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [Delta病毒席卷澳洲3大城，超过一半人口处于封城之下](/content/gnews/10/README.md)
- ` 经济金融组`
+### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/10/README.md)
+ ` HimalayaRussia`
 
-### [【秘翻在线】澳洲疫情扩大，民众避免交谈](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
+### [Delta病毒席卷澳洲3大城，超过一半人口处于封城之下](/content/gnews/11/README.md)
+ ` 经济金融组`
 
 ### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -58,17 +58,17 @@
 ### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【热点推荐】记录中共人祸的死亡线路——郑州地铁五号线！](/content/gnews/15/README.md)
+### [【香港721】元朗恐襲 警黑合作](/content/gnews/15/README.md)
+ ` SupportHK`
+
+### [【热点推荐】记录中共人祸的死亡线路——郑州地铁五号线！](/content/gnews/16/README.md)
  ` 温哥华扬帆农场`
 
-### [【热点推荐】今日仍处洪流中的郑州，街道水流有多急？可瞬间冲跑壮汉！](/content/gnews/16/README.md)
+### [【热点推荐】今日仍处洪流中的郑州，街道水流有多急？可瞬间冲跑壮汉！](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [【世事解评】郑州地铁5号线事件：一场中共官方舆情维稳、草菅人命的大戏！](/content/gnews/17/README.md)
+### [【世事解评】郑州地铁5号线事件：一场中共官方舆情维稳、草菅人命的大戏！](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
-
-### [2021年7月21日 秘翻快报 【头条新闻】](/content/gnews/18/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/19/README.md)
  ` Caihongqiao`
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [郑州水灾，是天灾更是人祸！](/content/gnews/43/README.md)
+### [王定刚仓皇潜逃后将走向何方?](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/44/README.md)
+ ` HimalayaRussia`
+
+### [郑州水灾，是天灾更是人祸！](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/44/README.md)
+### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/45/README.md)
+### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/46/README.md)
+### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/47/README.md)
+### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/49/README.md)
  ` 温哥华扬帆农场`
 
-### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/48/README.md)
+### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [你在我这里只是草芥](/content/gnews/49/README.md)
+### [你在我这里只是草芥](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我所理解的喜马拉雅元白皮书](/content/gnews/50/README.md)
+### [我所理解的喜马拉雅元白皮书](/content/gnews/52/README.md)
  ` 德农—喜马拉雅经济金融节目组`
 
-### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/51/README.md)
+### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/52/README.md)
+### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/53/README.md)
+### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他](/content/gnews/54/README.md)
+### [参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他](/content/gnews/56/README.md)
  ` 经济金融组`
-
-### [GETTR 保留“@RealDonaldTrump”，它“在保险箱里”](/content/gnews/55/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [日本驻澳大使称澳洲不是一个人在战斗](/content/gnews/56/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
