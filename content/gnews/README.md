@@ -88,22 +88,22 @@
 ### [2021/07/17 中共第二艘间谍船正接近美国与澳洲军演海域](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [前美国国务卿迈克-蓬佩奥聚焦2022中期选举，未来如何担当将顺其自然](/content/gnews/25/README.md)
- ` 经济金融组`
-
-### [美国副国务卿雪蔓：台湾与美国将继续加强政治经济关系](/content/gnews/26/README.md)
- ` 经济金融组`
-
-### [Delta病毒席卷澳洲3大城，超过一半人口处于封城之下](/content/gnews/27/README.md)
- ` 经济金融组`
-
-### [【秘翻在线】澳洲疫情扩大，民众避免交谈](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【NewsExpress】参议员提议加强台湾防御以应对中共国威胁](/content/gnews/29/README.md)
+### [【NewsExpress】参议员本·萨斯 (R-Neb.) 称中共国国家主席习近平是“懦夫”](/content/gnews/25/README.md)
  ` 索尼克`
 
-### [【NewsExpress】温迪·谢尔曼将成为拜登政府访华的最高级别官员](/content/gnews/30/README.md)
+### [前美国国务卿迈克-蓬佩奥聚焦2022中期选举，未来如何担当将顺其自然](/content/gnews/26/README.md)
+ ` 经济金融组`
+
+### [美国副国务卿雪蔓：台湾与美国将继续加强政治经济关系](/content/gnews/27/README.md)
+ ` 经济金融组`
+
+### [Delta病毒席卷澳洲3大城，超过一半人口处于封城之下](/content/gnews/28/README.md)
+ ` 经济金融组`
+
+### [【秘翻在线】澳洲疫情扩大，民众避免交谈](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【NewsExpress】参议员提议加强台湾防御以应对中共国威胁](/content/gnews/30/README.md)
  ` 索尼克`
 
 ### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/31/README.md)
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/43/README.md)
+### [你在我这里只是草芥](/content/gnews/43/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [我所理解的喜马拉雅元白皮书](/content/gnews/44/README.md)
+ ` 德农—喜马拉雅经济金融节目组`
+
+### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/45/README.md)
  ` HimalayaRussia`
 
-### [参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他](/content/gnews/44/README.md)
- ` 经济金融组`
-
-### [GETTR 保留“@RealDonaldTrump”，它“在保险箱里”](/content/gnews/45/README.md)
+### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本驻澳大使称澳洲不是一个人在战斗](/content/gnews/46/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/47/README.md)
+ ` HimalayaRussia`
 
-### [彼得·纳瓦罗:任何美国公民都不应该被强迫或压迫去接种疫苗](/content/gnews/47/README.md)
+### [参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他](/content/gnews/48/README.md)
  ` 经济金融组`
 
-### [中国科技界亿万富翁因中共国政府的打压而加大捐赠力度](/content/gnews/48/README.md)
+### [GETTR 保留“@RealDonaldTrump”，它“在保险箱里”](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [谭德塞警告有可能出现更危险的冠状病毒毒株](/content/gnews/49/README.md)
+### [日本驻澳大使称澳洲不是一个人在战斗](/content/gnews/50/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【樱花宅急便】习指示全力救援同时警告大灾后有大疫](/content/gnews/50/README.md)
+### [彼得·纳瓦罗:任何美国公民都不应该被强迫或压迫去接种疫苗](/content/gnews/51/README.md)
+ ` 经济金融组`
+
+### [中国科技界亿万富翁因中共国政府的打压而加大捐赠力度](/content/gnews/52/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [谭德塞警告有可能出现更危险的冠状病毒毒株](/content/gnews/53/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【樱花宅急便】习指示全力救援同时警告大灾后有大疫](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [【杂谈】关于郑州的愤怒](/content/gnews/51/README.md)
+### [【杂谈】关于郑州的愤怒](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [从郑州水灾看自媒体的重要性](/content/gnews/52/README.md)
+### [从郑州水灾看自媒体的重要性](/content/gnews/56/README.md)
  ` 文名`
-
-### [福奇：如果这里有人撒谎，那就是你](/content/gnews/53/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [行动与布署才是对中共最有利的威吓](/content/gnews/54/README.md)
- ` G-NEWS TAIWAN`
-
-### [【澳洲热点】短视频：公开谴责中共国世界形成统一战线](/content/gnews/55/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【文贵视角】郑州大水：不仅是天灾，更是人祸](/content/gnews/56/README.md)
- ` 秘密翻译组G-Translators`
 
