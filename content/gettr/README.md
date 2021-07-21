@@ -18,6 +18,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/21/2021 6:07 AM (UTC)`
+
+天哪……😱😱😱😭😭😭
+![img](https://media.gettr.com/group34/getter/2021/07/21/06/1547da4c-e5a4-0fbf-98b2-e4837dd2ef4c/out.jpg)
+
+---
+
+`@miles 7/21/2021 5:57 AM (UTC)`
+
+【郑州市联通的不通．移动的都断网了。很多警察找上门来警告，不允许对外发任何视频和有关讯情的消息，很多医生都跑了．医院都没人了。<br/>牛老师的家人说，他们一个小区死的人都超过100个，很多地方都是尸体，根本没人管，没人问。每个人都蒙了，非常的害怕，不知道下1分钟会发生什么真后悔没有听你的话早日离开这个鬼地方。】
+![img](https://media.gettr.com/group45/getter/2021/07/21/05/c14a2884-1ed8-2125-6549-6122e30bbceb/b54ceaf51ef4e85dfde3275f15b2339f.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@witchpeace 7/21/2021 1:37 AM (UTC)`
@@ -124,13 +138,6 @@ This is Li-Meng Yan, whom Mr. Miles Guo and many fellow fighters risked so much 
 
 7月20号：尊敬的战友们好，你们还记得23个月以前这个视频吗？……
 ![img](https://media.gettr.com/group50/getter/2021/07/20/10/79edfb9e-8f91-1e6f-48ed-23e856abb1a8/out.jpg)
-
----
-
-`@miles 7/20/2021 2:56 AM (UTC)`
-
-今天的郑州．太像欧洲……
-![img](https://media.gettr.com/group42/getter/2021/07/20/02/5d0fec79-c62d-6fc3-4a31-8480a1f74705/out.jpg)
 
 ---
 
@@ -305,14 +312,6 @@ Thank You, Jason!
 `@toddstarnes 7/18/2021 12:31 AM (UTC)`
 
 Former President Trump tore into Fox News Channel and the network's handling of election results. <br/><br/>https://www.toddstarnes.com/politics/trump-gives-fox-news-early-arizona-call/
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@timmurtaugh 7/15/2021 7:09 PM (UTC)`
-
-You can say you got in on the ground floor.⤵️<br/><br/>GETTR explodes, passing 1.5 million users in just 11 days<br/><br/>And new, independent polling shows the probable growth is enormous. <br/><br/>https://www.washingtonexaminer.com/washington-secrets/gettr-explodes-passing-1-5-million-users-in-just-11-days
 
 ---
 
