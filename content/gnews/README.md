@@ -70,22 +70,22 @@
 ### [【世事解评】郑州地铁5号线事件：一场中共官方舆情维稳、草菅人命的大戏！](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/19/README.md)
+### [7/20/2021中共政权面对洪水无计可施，只会发通知并谎报死亡数字](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/20/README.md)
  ` Caihongqiao`
 
-### [2021/7/21 大卫作战室直播精要](/content/gnews/20/README.md)
+### [2021/7/21 大卫作战室直播精要](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/21/README.md)
+### [【字幕】7/22/2021文贵盖特：郑州千年不遇的天灾人祸……正在发生巨大的人道灾难](/content/gnews/22/README.md)
  ` Caihongqiao`
 
-### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/22/README.md)
+### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【有声读物】电网超载，中共国一些城市警告将有计划停电](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [【有声读物】天有不测风云](/content/gnews/24/README.md)
+### [【有声读物】电网超载，中共国一些城市警告将有计划停电](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [高盛一半的超级富豪客戶的投资组合中添加了加密货币](/content/gnews/25/README.md)
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [王定刚仓皇潜逃后将走向何方?](/content/gnews/43/README.md)
+### [【世事解评】永别了，路德！](/content/gnews/43/README.md)
+ ` 纽约香草山MOS02`
+
+### [路德连夜潜逃，警方破门搜捕](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/44/README.md)
+### [王定刚仓皇潜逃后将走向何方?](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/46/README.md)
  ` HimalayaRussia`
 
-### [郑州水灾，是天灾更是人祸！](/content/gnews/45/README.md)
+### [郑州水灾，是天灾更是人祸！](/content/gnews/47/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/46/README.md)
+### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/47/README.md)
+### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/48/README.md)
+### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/49/README.md)
+### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/51/README.md)
  ` 温哥华扬帆农场`
 
-### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/50/README.md)
+### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [你在我这里只是草芥](/content/gnews/51/README.md)
+### [你在我这里只是草芥](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我所理解的喜马拉雅元白皮书](/content/gnews/52/README.md)
+### [我所理解的喜马拉雅元白皮书](/content/gnews/54/README.md)
  ` 德农—喜马拉雅经济金融节目组`
 
-### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/53/README.md)
+### [美国务院网站更新显示副国务卿将会见王毅](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/54/README.md)
+### [习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [保罗参议员要求对福奇进行“刑事移交”](/content/gnews/55/README.md)
- ` HimalayaRussia`
-
-### [参议员兰德-保罗：福奇利用手中控制的经费恐吓科学家，不让他们反驳他](/content/gnews/56/README.md)
- ` 经济金融组`
 
