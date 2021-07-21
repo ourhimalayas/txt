@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/21/2021 8:49 PM (UTC)`
+
+这是真特务呀……😏😏😏【七哥，德意志之鹰叫 吴宏斌，他女友在discord里叫Alicia，真名叫陈依依，】
+![img](https://media.gettr.com/group37/getter/2021/07/21/20/bcb8f989-14dd-6438-3884-9f91bad3b776/92129f8ad5a7e6b966b8b2eedcf05466.jpg)
+
+---
+
 `@miles 7/21/2021 2:58 PM (UTC)`
 
 Liars and Traitors <br/><br/>Infiltration and Lies:The unrestricted media war with the CCP 
@@ -303,13 +310,6 @@ She is a lunatic and a liar
 `@jenniferatntd 7/17/2021 2:36 PM (UTC)`
 
 My exclusive content. How ironic! While CCP vows to #NukeJapan , its state-owned enterprise begging overseas Chinese to buy #Japanese chips...Remember last year overseas Chinese mobilized & almost bought out all masks in the world? Don't underestimate this.  警惕：中共或發動海外華人代購芯片<br/><br/>https://www.jenniferzengblog.com/home/2021/7/17/exclusive-overseas-chinese-asked-to-buy-chips-for-ccps-state-owned-enterprise
-
----
-
-`@miles 7/18/2021 10:36 PM (UTC)`
-
-【这才是第一个发现羟氯喹可以治疗病毒的人，缺德社，别想摘桃子🍑混淆视听。。。。看油管日期】
-![img](https://media.gettr.com/group13/getter/2021/07/14/20/af35bc5a-578c-3a21-fc26-1540917ef786/785f3378a5cf2bfd0a2798275b92c35a.jpg)
 
 ---
 
