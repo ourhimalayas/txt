@@ -2,26 +2,39 @@
 ---
 
 
-## 推特驚現鄭州遇難者眼角膜疑似被割的圖片
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1411297/)
+## 【有声读物】天有不测风云
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1412239/)
 
-撰稿：白雪
-7月20日的鄭州經歷了水火兩重天，先是鄭州鋁廠大爆炸玫瑰紅色的的火焰令人震驚，緊接著推特，電報群滿了鄭州洪水遍地的視頻和圖片。中原重地鄭州遭遇著千年一遇的強降雨，24小時降雨超過600mm，到處是渾濁的洪水，漂浮的汽車，人們還沒回過神來。更大的慘劇發生了，鄭州地鐵5號線一節列車完全淹沒在洪水中。但官方目前報道大部分乘客獲救。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21043156/IMG_0308.jpg)
-**CCP國家電視臺當晚直到22:18分才報道河南水災，而且無人員損失報道，時長僅4分鐘。但在10:28分鐘詳盡報道了歐洲水災及死亡人數。
-央視點評各地應對暴雨洪災很有樣，大大的點贊！**
+配音：香草山香港部 文凯林
 
-**
-《人民日報》急著為鄭州政府辟謠，官方說法12人死亡。但民間報道到處能看到屍體漂在洪水中，文貴先生更是憂心的認為死亡人數至少上萬。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21043020/IMAGE-2021-07-21-182942.jpg)
-**最揪心的是我們看到這樣的照片，推友質疑為什麼被洪水淹死的人會有血跡在屍體旁邊？我們需要要真相！**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21044608/IMG_0309.jpg)
-（视频素材：一路有你）
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-本文纯属个人观点
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031325/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 
+
+
+
+
+天有不测风云 ，人有旦夕祸福。但很多的不幸，包括生命的流逝、人民的流离失所，往往都是由人为因素导致的。中共国平民百姓在遇到灾难和危险时，中共国却并未及时派军队抢救灾情，丝毫没有为百姓着想。若大的政权，治理不了若大的水灾，无能照顾好百姓的生命及生存问题。“厉害我的国”啊！ 中共国极权无能力统治。
+
+
+
+**文字版原文：[【战友心声】天有不测风云](https://gnews.org/zh-hans/1409957/)**
+
+作者：纽约香草山美食部 玫瑰圆
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
