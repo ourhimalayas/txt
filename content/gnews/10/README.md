@@ -2,36 +2,45 @@
 ---
 
 
-## 在法国，没有COVID 通行证的人进入酒吧或餐厅将面临惩罚
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1410137/)
+## 7月20日美国政要推文精选：福奇博士的NIH资助了武汉病毒学实验室
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1410203/)
 
-**据《零对冲》作者：TYLER DURDEN，2021 年 7 月 18 日报道：**
+参议员兰德·保罗： 是的，福奇博士的 NIH 确实资助了武汉病毒学实验室。这是他们的首席科学家石正丽博士黑纸白字的承认。麻省理工学院生物学家凯文·埃斯维尔特 (Kevin Esvelt) 审查了这篇在福奇博士的 NIH/NIAID 资助下发表的论文，并得出结论“研究人员使用的某些技术似乎符合功能获得的定义
 
-**由 Paul Joseph Watson 通过Summit News 撰写。**
 
-**在法国，没有 COVID 通行证进入酒吧或餐厅的人将面临 6 个月的监禁，而未能检查顾客健康状态的企业主将面临 1 年的监禁和 45,000 欧元的罚款。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20211458/202107a.jpg)
-是的，是真的。
 
-这些惩罚是法国政府为强迫公民接种冠状病毒疫苗而采取的严厉措施的一部分，强迫疫苗接种导致众多主要城市多次爆发不守规矩的抗议活动。
-总统马克龙本周早些时候宣布，那些无法证明自己接种过疫苗或 COVID 测试呈阴性（自费）的人从 8 月 1 日起将被禁止使用公共交通工具、进入电影院、购物中心、酒吧、咖啡馆、餐厅和其他场所。
-**《门卫报》报道，“根据法律草案，无法出示有效健康通行证的人可能会面临长达 6 个月的监禁和高达 10,000 欧元（8,500 英镑）的罚款，而“欢迎公众的机构”的拥有者若未能检查顾客的通行证可能会被判入狱一年并被罚款 45,000 欧元。”**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20211510/2021%40.png)
-制裁代表了西方强制疫苗接种的最专制举措，并且可能超过世界其他地区的许多实际独裁统治。
+> MIT biologist Kevin Esvelt reviewed this paper that was published with financial assistance from Dr. Fauci’s NIH/NIAID and concluded “certain techniques that the researchers used seemed to meet the definition of gain-of-function”
+> — Senator Rand Paul (@RandPaul) [July 20, 2021](https://twitter.com/RandPaul/status/1417506039713390593?ref_src=twsrc%5Etfw)
 
-《门卫报》相当委婉地将其描述为“大棒法”。并且比喻，如果那根“大棒”是一根电动牛角的话，那它的大小相当于纽约世贸中心一号大楼的大小。
-在多次骚乱之后，政府不得不在去年 12 月撤回类似的法律，但只是重新引入了同样的立法，对持不同政见者的惩罚更加严厉。
-正如我们之前强调的那样，巴黎警方使用催泪瓦斯驱散抗议现场示威者的措施也在全国其他几个主要城市展开使用。
-我们现在正进入大流行阶段，很明显，那些拒绝接种疫苗的人将永远处于最严厉的封锁措施之下。
 
-原文连接：[https://www.zerohedge.com/covid-19/french-face-6-months-jail-entering-bar-or-restaurant-without-covid-pass](https://www.zerohedge.com/covid-19/french-face-6-months-jail-entering-bar-or-restaurant-without-covid-pass)
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 –TrueSky
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+众议院外交委员会共和党领袖： 麦考尔：”正如我作为众议院外交委员会首席共和党人不断警告的那样，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国和我们的盟友构成了许多威胁，尤其是在网络方面。看看最近发布的这份清单，概述了与中共关联的黑客们采用的手段。“我还推出了《网络外交法》，这将确保国务院拥有必要的资源和能力来反击中共等恶意行为者。”
+
+
+
+> "I also have introduced the Cyber Diplomacy Act which will ensure the State Department has the necessary resources and abilities to push back against malign actors such as the CCP."
+> — House Foreign Affairs GOP (@HouseForeignGOP) [July 20, 2021](https://twitter.com/HouseForeignGOP/status/1417500479773360135?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 作为避免因新冠招致谴责的绝望的尝试，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国有媒体现在把手指指向马里兰的迪特里克堡（生物基地）。（白宫发言人）珍·萨奇是否会把脸书标志为不实信息呢？
+
+
+
+> In a desperate bid to avoid blame for COVID, Chinese state media is now pointing the finger at Fort Detrick in Maryland.
+> 
+> Will Jen Psaki flag to Facebook as disinformation? [pic.twitter.com/8cdidVpmD1](https://t.co/8cdidVpmD1)
+> — Tom Cotton (@SenTomCotton) [July 20, 2021](https://twitter.com/SenTomCotton/status/1417480884157091850?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特 美国必须对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 采取更积极强硬的行动，以阻止此类（黑客）袭击！ 【附thehill的文章：美国和几个盟国周一公开指责与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政府有关联的黑客对微软邮件服务系统的攻击行为】
+
+
+
+> The United States must get more aggressive against China to stop these types of attacks! [https://t.co/japG21YMap](https://t.co/japG21YMap)
+> — Rep. Brian Mast (@RepBrianMast) [July 20, 2021](https://twitter.com/RepBrianMast/status/1417616558428405760?ref_src=twsrc%5Etfw)
+
+
 
 0

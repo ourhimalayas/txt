@@ -2,25 +2,45 @@
 ---
 
 
-## 【NewsExpress】中共统战部关联的墨尔本中文媒体奥斯特倒闭
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1410096/)
+## 7月20日美国政要推文精选：福奇博士的NIH资助了武汉病毒学实验室
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1410203/)
 
-**翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20203851/09BenSmith-02-master1050.jpg)
-奥斯特国际媒体集团因债权人（包括税务局）要求偿还超过 550 万美元而倒闭，在一名债权人采取行动后，于 3 月由法院指定的清算人接管。奥斯特的媒体资产包括广播、周报和生活方式杂志。它主要平台是 3CW 中文电台，该电台不再广播，集团南岸总部的电话号码已断开连接。
+参议员兰德·保罗： 是的，福奇博士的 NIH 确实资助了武汉病毒学实验室。这是他们的首席科学家石正丽博士黑纸白字的承认。麻省理工学院生物学家凯文·埃斯维尔特 (Kevin Esvelt) 审查了这篇在福奇博士的 NIH/NIAID 资助下发表的论文，并得出结论“研究人员使用的某些技术似乎符合功能获得的定义
 
-奥斯特由蒋兆青所有，他与中共产党的统战部有联系。在澳大利亚战略政策研究所去年发布的一份关于中共政府对当地媒体影响的报告中，江先生多次被提及，并在 2019 年关于同一问题的报道中占有重要地位。
 
-这位前足球运动员参与了许多房地产开发项目，包括 Yarraville 的 Bradmill 工厂和悉尼价值 1 亿美元的高尔夫球场，同时他还在 Heathcote 拥有一家酿酒厂。蒋先生的另一家媒体业务，即中国国际广播电台拥有 60% 的股权，全球 CAMG Media 仍然具有偿付能力。中国国际广播电台由中共政府运营，并与澳大利亚、美国和欧洲的华裔商人合作，在这些国家推广其内容。
 
-一份由破产专家 Worrells 编写的 Oster 报告称，债权人欠债 560 万美元，但其中约 260 万美元是欠关联方的。清算人马修杰斯警告债权人不要期待回报。主要债权人包括拖欠近 550,000 美元的澳大利亚税务局，和拖欠约 287,000 美元出租广播许可证的广播集团 JLS Media。它成功地在维多利亚州最高法院寻求对奥斯特的清盘令。澳大利亚东北中国商会被欠款 10 万美元，而拥有 K-Rock 和 Bay FM 的吉朗广播公司则面临 64,000 美元的损失。
+> MIT biologist Kevin Esvelt reviewed this paper that was published with financial assistance from Dr. Fauci’s NIH/NIAID and concluded “certain techniques that the researchers used seemed to meet the definition of gain-of-function”
+> — Senator Rand Paul (@RandPaul) [July 20, 2021](https://twitter.com/RandPaul/status/1417506039713390593?ref_src=twsrc%5Etfw)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
 
-**参考链接：**
 
-[https://www.adelaidenow.com.au/business/victoria-business/chinese-language-media-tycoon-tommy-jiang-has-business-seized-by-liquidator/news-story/b5c6f455ffb84f591da7e03ef4262649](https://www.adelaidenow.com.au/business/victoria-business/chinese-language-media-tycoon-tommy-jiang-has-business-seized-by-liquidator/news-story/b5c6f455ffb84f591da7e03ef4262649)
+众议院外交委员会共和党领袖： 麦考尔：”正如我作为众议院外交委员会首席共和党人不断警告的那样，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国和我们的盟友构成了许多威胁，尤其是在网络方面。看看最近发布的这份清单，概述了与中共关联的黑客们采用的手段。“我还推出了《网络外交法》，这将确保国务院拥有必要的资源和能力来反击中共等恶意行为者。”
 
-***校对发布：文顾***
+
+
+> "I also have introduced the Cyber Diplomacy Act which will ensure the State Department has the necessary resources and abilities to push back against malign actors such as the CCP."
+> — House Foreign Affairs GOP (@HouseForeignGOP) [July 20, 2021](https://twitter.com/HouseForeignGOP/status/1417500479773360135?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 作为避免因新冠招致谴责的绝望的尝试，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国有媒体现在把手指指向马里兰的迪特里克堡（生物基地）。（白宫发言人）珍·萨奇是否会把脸书标志为不实信息呢？
+
+
+
+> In a desperate bid to avoid blame for COVID, Chinese state media is now pointing the finger at Fort Detrick in Maryland.
+> 
+> Will Jen Psaki flag to Facebook as disinformation? [pic.twitter.com/8cdidVpmD1](https://t.co/8cdidVpmD1)
+> — Tom Cotton (@SenTomCotton) [July 20, 2021](https://twitter.com/SenTomCotton/status/1417480884157091850?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特 美国必须对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 采取更积极强硬的行动，以阻止此类（黑客）袭击！ 【附thehill的文章：美国和几个盟国周一公开指责与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政府有关联的黑客对微软邮件服务系统的攻击行为】
+
+
+
+> The United States must get more aggressive against China to stop these types of attacks! [https://t.co/japG21YMap](https://t.co/japG21YMap)
+> — Rep. Brian Mast (@RepBrianMast) [July 20, 2021](https://twitter.com/RepBrianMast/status/1417616558428405760?ref_src=twsrc%5Etfw)
+
+
 
 0

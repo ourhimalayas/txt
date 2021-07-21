@@ -2,37 +2,40 @@
 ---
 
 
-## 【战友心声】天有不测风云
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1409957/)
+## 澳国防长惊讶中共国派出第二艘间谍船监视澳大利亚行动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1410092/)
 
-香草山美食部 玫瑰圆
+**据《sbs.com.au》网站，2021年7月18日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20203459/Screenshot-2021-07-20-173319.png)资料来源：澳联社
+国防部长彼得·达顿（Peter Dutton）表示，中共国派遣第二艘间谍船“显然已经做出了扩大存在的决定”。
 
+国防部长彼得·达顿 (Peter Dutton) 对中共国决定派遣第二艘间谍船在东海岸监视澳美军事演习感到惊讶。
 
+他说，中共国在此类演习中部署船只并不罕见，在 2017 年和 2019 年都这样做过。
+他对记者说：“我们很惊讶有两艘船，很显然中共国已经决定扩大存在。”
+“我们希望他们在国际法规则范围内运作和行事。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+贸易部长丹特汉 (Dan Tehan) 也不太担心，他说所有国家都有权使用他们的船只来监督演习。
+“重要的是每个人都明白我们有规则，我们希望每个人都遵守这些规则，在航行自由方面。”他告诉天空新闻的周日议程节目。
+“我们的贸易规则也是如此。我们希望每个人都遵守这些贸易规则。这是保持我们地区自由、开放、和平和繁荣的最佳方式。”
+丹特汉先生在韩国进行了讲话，这是他在新加坡、越南和日本进行的区域访问的一部分。
+此次访问正值中美贸易紧张局势加剧之际。
 
+“我们已经非常明确地表示，我们希望看到我们的贸易多样化。”丹特汉先生说。
+“我们认为，重要的是要确保随着市场的来往，随着对我们商品的需求来往，我们为出口商提供选择。”
+他说，澳大利亚正在尽其所能保持该地区的自由、开放和弹性。
+他说：“我们需要在经济和贸易方面做的是确保我们能够维持基于规则的体系。”
+“这意味着我们地区的增长是世界上任何其他地区都没有的，并惠及了该地区的所有国家。”
 
+**原文连接**：[https://www.sbs.com.au/news/peter-dutton-is-surprised-china-has-sent-a-second-spy-ship-to-monitor-australian-operations](https://www.sbs.com.au/news/peter-dutton-is-surprised-china-has-sent-a-second-spy-ship-to-monitor-australian-operations)
 
-天有不测风云 ，人有旦夕祸福。但很多的不幸，包括生命的流逝、人民的流离失所，往往都是由人为因素导致的。中共国平民百姓在遇到灾难和危险时，中共国却并未及时派军队抢救灾情，丝毫没有为百姓着想。若大的政权，治理不了若大的水灾，无能照顾好百姓的生命及生存问题。“厉害我的国”啊！ 中共国极权无能力统治。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20195640/1-99.png)
-低洼地区、土松、急水汹湧、地陷塌、几多洼洞……有人不慎掉落凹洞被水冲走，不知生死；有的抱儿牵女的往高处跑，怕被冲走的可能；城市区域马路淹水，车辆被漂走，水冲进家里冲走家具、食物，水太深，甚至有人困在水中喊救命，景象ㄧ片凄凉……
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20200116/2-7.58.41-PM.jpg)
-没有坚固、安全的水霸，没有管治和维护。泄洪时，雨仍一直下，水冲破房门，一发不可收拾。中国百姓还指望没有信仰、正义、良善的共产党给他们带来幸福和安全的生活吗？
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

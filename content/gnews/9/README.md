@@ -2,44 +2,26 @@
 ---
 
 
-## 7月20日美国政要推文精选：福奇博士的NIH资助了武汉病毒学实验室
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1410203/)
+## 【秘翻在线】Twitter 再次暂停共和党众议员帐号
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410136/)
 
-参议员兰德·保罗： 是的，福奇博士的 NIH 确实资助了武汉病毒学实验室。这是他们的首席科学家石正丽博士黑纸白字的承认。麻省理工学院生物学家凯文·埃斯维尔特 (Kevin Esvelt) 审查了这篇在福奇博士的 NIH/NIAID 资助下发表的论文，并得出结论“研究人员使用的某些技术似乎符合功能获得的定义
+撰稿：William
 
+校对：牛小妹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20214053/p-8-edited.jpg)
+图片:AP
 
+Twitter 已暂停共和党议员马乔里·泰勒·格林(Marjorie Taylor Greene)发布有关中共冠状病毒的“误导性”信息。这家社交媒体巨头表示，她的帐户在 12 小时内处于“只读模式”。
 
-> MIT biologist Kevin Esvelt reviewed this paper that was published with financial assistance from Dr. Fauci’s NIH/NIAID and concluded “certain techniques that the researchers used seemed to meet the definition of gain-of-function”
-> — Senator Rand Paul (@RandPaul) [July 20, 2021](https://twitter.com/RandPaul/status/1417506039713390593?ref_src=twsrc%5Etfw)
+共和党众议员格林女士一直直言不讳地批评疫苗和口罩的使用。在两条推文中，她认为不应该要求民众接种疫苗，并且认为中共冠状病毒对 65 岁以下非肥胖的民众没有危险。
 
+这两个帖子仍在她的推特中，但已被 Twitter 标记为“具有误导性”。格林女士曾于今年 4 月被 Twitter 暂停帐号，但该公司后来表示这是系统自动审核系统造成的错误，而恢复了帐号。
 
+对于她最近的暂停帐号，格林女士表示，矽谷公司正在白宫的支持限制人民言论自由。她在给《纽约时报》的一份声明中表示这些大型科技公司正与拜登政权合作，以限制我们的声音并防止任何未经国家政权批准的信息传播。就在上周，民主党总统乔拜登敦促社交媒体公司采取更多行动，打击在其平台上传播有关中共病毒和疫苗的未经政权认可的信息。
 
-众议院外交委员会共和党领袖： 麦考尔：”正如我作为众议院外交委员会首席共和党人不断警告的那样，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国和我们的盟友构成了许多威胁，尤其是在网络方面。看看最近发布的这份清单，概述了与中共关联的黑客们采用的手段。“我还推出了《网络外交法》，这将确保国务院拥有必要的资源和能力来反击中共等恶意行为者。”
+新闻来源：
 
-
-
-> "I also have introduced the Cyber Diplomacy Act which will ensure the State Department has the necessary resources and abilities to push back against malign actors such as the CCP."
-> — House Foreign Affairs GOP (@HouseForeignGOP) [July 20, 2021](https://twitter.com/HouseForeignGOP/status/1417500479773360135?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 作为避免因新冠招致谴责的绝望的尝试，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国有媒体现在把手指指向马里兰的迪特里克堡（生物基地）。（白宫发言人）珍·萨奇是否会把脸书标志为不实信息呢？
-
-
-
-> In a desperate bid to avoid blame for COVID, Chinese state media is now pointing the finger at Fort Detrick in Maryland.
-> 
-> Will Jen Psaki flag to Facebook as disinformation? [pic.twitter.com/8cdidVpmD1](https://t.co/8cdidVpmD1)
-> — Tom Cotton (@SenTomCotton) [July 20, 2021](https://twitter.com/SenTomCotton/status/1417480884157091850?ref_src=twsrc%5Etfw)
-
-
-
-众议员布莱恩·马斯特 美国必须对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 采取更积极强硬的行动，以阻止此类（黑客）袭击！ 【附thehill的文章：美国和几个盟国周一公开指责与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政府有关联的黑客对微软邮件服务系统的攻击行为】
-
-
-
-> The United States must get more aggressive against China to stop these types of attacks! [https://t.co/japG21YMap](https://t.co/japG21YMap)
-> — Rep. Brian Mast (@RepBrianMast) [July 20, 2021](https://twitter.com/RepBrianMast/status/1417616558428405760?ref_src=twsrc%5Etfw)
+[https://www.bbc.com/news/world-us-canada-57897401](https://www.bbc.com/news/world-us-canada-57897401)
 
 
 

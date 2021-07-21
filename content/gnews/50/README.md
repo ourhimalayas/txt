@@ -2,31 +2,13 @@
 ---
 
 
-## 【热点推荐】上海帮祭出恒大欲引全国内乱来打击习？
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1409938/)
+## 理想与现实
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1409966/)
 
-温哥华扬帆农场 – Meilen美伦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20192311/20210720-Meilen-%E4%B8%8A%E6%B5%B7%E5%B8%AE%E7%A5%AD%E5%87%BA%E6%81%92%E5%A4%A7%E6%AC%B2%E5%BC%95%E5%85%A8%E5%9B%BD%E5%86%85%E4%B9%B1%E6%9D%A5%E6%89%93%E5%87%BB%E4%B9%A0%EF%BC%9F.png)
-据2021年7月19日午间各大媒体纷纷报导江苏省法院裁决书广发行要求冻结恒大1.32亿资产事件后，即刻引起了网民热议，对此事件，同一天下午，恒大集团在官网发布声明称：公司江苏省公司旗下项目公司宜兴市恒誉置业有限公司与广发银行宜兴支行项目贷款1.32亿到期日为2022年3月27日。对于宜兴支行滥用诉讼前保全的行为，公司将依法起诉。声明具体内容如下：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20192322/20210720-Meilen-%E4%B8%8A%E6%B5%B7%E5%B8%AE%E7%A5%AD%E5%87%BA%E6%81%92%E5%A4%A7%E6%AC%B2%E5%BC%95%E5%85%A8%E5%9B%BD%E5%86%85%E4%B9%B1%E6%9D%A5%E6%89%93%E5%87%BB%E4%B9%A0%EF%BC%9F2.png)
-而江苏省法院裁定书显示，广发银行近日请求冻结被申请人宜兴市恒誉置业有限公司、恒大地产集团有限公司银行存款1.32亿元人民币，或查封、扣押其他等值财产。
+【作者、发表】Candy
 
-对于申请原因，广发银行宜兴支行给出的理由是：情况紧急，不立即申请保全将会使其合法权益受到难以弥补的损害。
+![](https://lh5.googleusercontent.com/5gnDKw8U3utwEnBQN5ve6wVnSAumc55cPscipR9IR2uK99LdogM_bQnaBEM02DiOCECeVa8PtFVAU9991JufgJT2mwJXDyGY6Xq4njjsubP8xpgauiBRglCWIZlLxlN-6Qd3B3hs6SM)
 
-对此，恒大集团的声明或是对该裁决书的反击。而这同一天时间对恒大集团的捧杀和反击究竟是为哪般？
-
-据文贵先生7月17日的爆料称：“共产党的内部政治斗争已经到了『最后的阶段』，准备好！中南坑的老杂毛们，随时给我们送大礼吧！”今天恒大集团所遭遇的这一出，不正是验证了先生的爆料么？因为，恒大集团属江派上海帮，上海帮盗走的资金财力雄厚不差钱，而恒大又是房地产风向标，由此，上海帮今天来回折腾恒大或许就是要祭出恒大来搞乱全国地产。因地产一乱，这结局肯定是全国一片哀嚎！如此一来，更有利于上海帮打击习派了。
-
-因为国之大局一乱，必定对习不利！而郭文贵先生18日的爆料也称：“(中共)政权灭亡前一定是内乱！”只是这内斗导致的内乱代价很大——带着的是14亿人民的血流成河……
-
-另外，今日的裁决书事件直接导致恒大全系股市杀跌超10%以上，遭遇股债双杀，不但引起网民热议，也引来了网民的担忧。
-
-可见，这个“内乱”已经开始。这中南坑的盗国贼们，为了牢牢掌握独裁权力，宁愿牺牲14亿人民的利益而不惜引发内乱还不愿和平解放，足够邪恶，这也是中共体制的本质！无论如何，中共还想坐稳政权已不可能，新联邦中国必是唯一个合法代表中国人的、未来政治权利实体！
-
-（本文仅代表本人观点，与G-news平台无关）
-
-编审 ：文敏
-
-发稿： Shuang
-
+（本文仅代表作者个人观点）
+![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
 0
