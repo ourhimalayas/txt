@@ -2,25 +2,21 @@
 ---
 
 
-## 【秘翻在线】中共国未来将面临低生育率压力
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411686/)
+## 【秘翻在线】中共对英国前保守党领袖伊恩·史密斯爵士发出直接威胁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411805/)
 
-撰稿：风之伤
+撰稿：zzballack
 
 校对：文柯Miles
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21081253/5645j9uh87t56es7iu9j9jiojkoko.jpg)图片来源：Human Rights Watch
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21090439/kjhkjy89y8787878y8989iojjkllllk-1.jpg)
 
-据《 路透社》2021年7月21日报道，国家卫生健康委员会（NHC）表示中共国未来将面临低生育率的压力，今年上半年新出生人口总数仍在放缓。一份官方文件显示，中共国将允许对三岁以下儿童的费用进行减税，这是大幅放宽生育政策的一部分，以阻止世界上人口最多的国家的出生率急剧下降的情况。
+据布雷特·巴特新闻网 7月21日报导，英国前保守党领袖伊恩·邓肯·史密斯爵士（Sir Iain Duncan Smith）周二在英国下议院（House of Commons）演讲时说：“我已经从五眼联盟获悉，中共政府将会对对华政策跨国议会联盟 (Inter-Parliamentary Alliance on China，IPAC) 的联合主席进行主动和直接的威胁，我作为联合主席的一员，已经被告知必须保持小心，并且会获得情报部门的支持和帮助。”
 
-中共国在5月31日宣布，允许已婚夫妇最多拥有三个孩子，而不是只有两个。2016年废除了有几十年历史的独生子女政策，转而支持二孩政策，试图避免人口迅速老龄化对其经济造成的风险。由于在城市养育孩子的成本很高，因此未能使出生率持续上升。
+今年年初，伊恩爵士以及其他英国人士，因支持对参与迫害新疆维吾尔穆斯林的中共官员进行制裁而被中共政府制裁。除此之外，中共人员还对在英国的支持香港人抗争的人权活动家和留学生进行威胁恐吓，加上英国官方最新指控中共进行网络黑客活动，标志中英两国间的对抗升级。
 
-最近的数据显示，中共国在2020年的生育率仅为每名妇女1.3个孩子，与日本和意大利等老龄化社会相当，远远低于更替水平所需的大约2.1个。
+香港监察(Hong Kong Watch)的创始人和主席、在IPAC担任顾问的贝内迪克特·罗杰斯 (Benedict Rogers)接受布雷特巴特伦敦采访时说：“中共的这些威胁，揭示了中共政权对当今世界及其自由构成巨大危险，而且还在与日俱增。我本人经常受到威胁和骚扰，比如收到威胁信；我邻居收到要求‘监视我’的信件；住在英国其它地方的我母亲收到信件，被要求劝我停止人权宣传工作。另外我知道，至少有四位独立的国会议员被中共驻伦敦大使馆游说让我闭嘴。中共用传统老套的方式比如信件以及影响国会议员来威胁我，但是他们威胁网络安全的方法更加复杂、危险和邪恶，这是不能忽略的，不能仅仅只是谴责。自由世界必须联合起来，并采取强有力的行动制止中共这种肆无忌惮的行为，并向其追责。”
 
-中共国务院在6月联合通过的政策文件，由官方新闻机构新华社在周二发布实施三胎政策的具体措施。生育第三个孩子的父母将不再需要支付罚款，也不会面临工作单位的处罚。第三个孩子在获得被称为”户口”的户籍许可或学校学位方面将不再面临限制。此外，照顾三岁以下儿童的费用将可以免税。并让地方政府”适当照顾”有未成年人的父母申请租住公房。除此之外还将对辅助生殖技术的使用进行标准化和监管。
-
-5月份的十年一次的人口普查显示，过去十年中共国的人口增长速度是1950年代以来最慢的，达到14.1亿。这加剧了人们对中共国未富先老的担忧，以及对当局在解决出生率下降问题上等待时间过长的批评。
-
-新闻来源： [China will face pressure of low fertility rates in future -health authority](https://www.reuters.com/world/china/china-will-face-pressure-low-fertility-rates-future-health-authority-2021-07-21/)
+新闻来源：[Communist China ‘Directly Threatening’ Former Conservative Party Leader Sir Iain Duncan Smith](https://www.breitbart.com/europe/2021/07/21/communist-china-directly-threatening-former-conservative-party-leader-sir-iain-duncan-smith/)
 
 0

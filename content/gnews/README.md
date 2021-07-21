@@ -34,19 +34,19 @@
 ### [【澳洲热点】短视频：公开谴责中共国世界形成统一战线](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【文贵视角】郑州大水：不仅是天灾，更是人祸](/content/gnews/7/README.md)
- ` 秘密翻译组G-Translators`
-
-### [全文字版2021年7月20日郭文贵先生GTV直播](/content/gnews/8/README.md)
+### [全文字版2021年7月20日郭文贵先生GTV直播](/content/gnews/7/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [【秘翻在线】全球最大中共病毒疫苗“兵工厂”](/content/gnews/9/README.md)
+### [郭先生0720VI蛇妖闫已经从她和亡腚缸的双修房中夺路而逃](/content/gnews/8/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [福奇：如果这里有人撒谎，那就是你](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【秘翻在线】全球最大中共病毒疫苗“兵工厂”](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】初步窥探中共病毒疫苗中的氧化石墨烯](/content/gnews/10/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】美参议员指责福奇在病毒功能增强研究上做虚假陈述](/content/gnews/11/README.md)
+### [【秘翻在线】初步窥探中共病毒疫苗中的氧化石墨烯](/content/gnews/11/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/12/README.md)
@@ -58,17 +58,17 @@
 ### [爆料革命揭露中共病毒时间线，以毒灭共已成定局、不可逆转](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [河南郑州灾情部分视频汇总截止北京时间2021年7月21日20：00分](/content/gnews/15/README.md)
+### [2021年7月21日 秘翻快报 【头条新闻】](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [河南郑州灾情部分视频汇总截止北京时间2021年7月21日20：00分](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [戳穿中共百年冥诞致词里的谎言——未来属于青年？希望寄于青年？](/content/gnews/16/README.md)
+### [戳穿中共百年冥诞致词里的谎言——未来属于青年？希望寄于青年？](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【呐喊】关注郑州被困百姓，积极自救互救](/content/gnews/17/README.md)
+### [【呐喊】关注郑州被困百姓，积极自救互救](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
-
-### [打老百姓的警察和城管你将万倍亿倍的偿还这血债！](/content/gnews/18/README.md)
- ` 澳喜农场`
 
 ### [推特驚現鄭州遇難者眼角膜疑似被割的圖片](/content/gnews/19/README.md)
  ` 澳喜农场`
@@ -88,99 +88,99 @@
 ### [共产主义国家，如果有与政府正统相反事实，独裁政权会阻止你分享事实](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【秘翻在线】中共国未来将面临低生育率压力](/content/gnews/25/README.md)
+### [【秘翻在线】中共对英国前保守党领袖伊恩·史密斯爵士发出直接威胁](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【NewsExpress】美CDC：中共病毒疫情使美预期寿命下降1.5岁](/content/gnews/26/README.md)
+### [【文贵视角】郑州大水：不仅是天灾，更是人祸](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【秘翻在线】中共国未来将面临低生育率压力](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【NewsExpress】美CDC：中共病毒疫情使美预期寿命下降1.5岁](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [【秘翻在线】全球最大中共病毒疫苗“兵工厂”](/content/gnews/27/README.md)
+### [【秘翻在线】全球最大中共病毒疫苗“兵工厂”](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【樱花宅急便】7.21元朗恐袭两周年](/content/gnews/28/README.md)
+### [【樱花宅急便】7.21元朗恐袭两周年](/content/gnews/30/README.md)
  ` 日本东京樱花团`
 
-### [【秘翻在线】西方盟友与中共国“划清界限”](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
+### [【西媒头条】第28期（2021年7月21日）](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】 台风接踵而至 ， 同胞们需做好防范自我保护](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
-
-### [郑州水灾根本原因在于“人祸”](/content/gnews/31/README.md)
+### [郑州水灾根本原因在于“人祸”](/content/gnews/32/README.md)
  ` 日本东京樱花团`
 
-### [樱花国际要闻汇编🌸7月21日](/content/gnews/32/README.md)
+### [樱花国际要闻汇编🌸7月21日](/content/gnews/33/README.md)
  ` 日本东京樱花团`
 
-### [【秘翻在线】美参议员指责福奇在病毒功能增强研究上做虚假陈述](/content/gnews/33/README.md)
+### [【秘翻在线】美参议员指责福奇在病毒功能增强研究上做虚假陈述](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】国土安全委员会委员投资中共公司股票](/content/gnews/34/README.md)
+### [【秘翻在线】科技巨头 富可敌国](/content/gnews/35/README.md)
  ` 秘密翻译组G-Translators`
 
-### [2021/07/19 众议员乔丹：福奇刻意隐瞒病毒真相](/content/gnews/35/README.md)
+### [2021/07/19 众议员乔丹：福奇刻意隐瞒病毒真相](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/07/17 美国退役上将谈中共国-阿富汗计划](/content/gnews/36/README.md)
+### [2021/07/17 美国退役上将谈中共国-阿富汗计划](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【国际时评】美国及其众多盟友联合指责中共国安黑客实施恶意网络攻击](/content/gnews/37/README.md)
+### [【国际时评】美国及其众多盟友联合指责中共国安黑客实施恶意网络攻击](/content/gnews/38/README.md)
  ` 温哥华扬帆农场`
 
-### [英国派遣航母和特种部队 北约参与南海问题已不可逆转](/content/gnews/38/README.md)
- ` 日本东京方舟农场`
-
-### [中共国正在努力寻找市场——这只无形的手来引导全世界（三）](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【世事解评】GETTR开启社交媒体新时代 千万用户即将涌入](/content/gnews/40/README.md)
- ` 纽约香草山MOS03`
-
-### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/41/README.md)
+### [7/21/2021财经快讯：欧盟修改法律使比特币转账更具追溯性；芯片短缺降低戴姆勒汽车销量](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/42/README.md)
+### [中共国正在努力寻找市场——这只无形的手来引导全世界（三）](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【澳洲热点】短视频：公开谴责中共国世界形成统一战线](/content/gnews/43/README.md)
+### [【世事解评】GETTR开启社交媒体新时代 千万用户即将涌入](/content/gnews/41/README.md)
+ ` 纽约香草山MOS03`
+
+### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
+ ` 秘密翻译组金融团队`
+
+### [从郑州水灾看自媒体的重要性](/content/gnews/43/README.md)
+ ` 文名`
+
+### [福奇：如果这里有人撒谎，那就是你](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [行动与布署才是对中共最有利的威吓](/content/gnews/45/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【澳洲热点】短视频：公开谴责中共国世界形成统一战线](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【文贵视角】郑州大水：不仅是天灾，更是人祸](/content/gnews/44/README.md)
- ` 秘密翻译组G-Translators`
-
-### [英国晶圆厂收购案或生变 涉中共官方背景面临调查](/content/gnews/45/README.md)
+### [英国晶圆厂收购案或生变 涉中共官方背景面临调查](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [美国会推跨党派法案促国民警卫队与台军方建立伙伴关系](/content/gnews/46/README.md)
+### [美国会推跨党派法案促国民警卫队与台军方建立伙伴关系](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [中共的最后一次财富掠夺](/content/gnews/47/README.md)
+### [中共的最后一次财富掠夺](/content/gnews/49/README.md)
  ` 新西兰NZ-财经G乐部`
 
-### [法国媒体调查影片揭露中共在南海的军事扩张野心](/content/gnews/48/README.md)
+### [法国媒体调查影片揭露中共在南海的军事扩张野心](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [【战云长天时评64期】中共是“完美犯罪”学理论践行者——案例二十二：邓小平的“拨乱反正”是完美犯罪升级版](/content/gnews/49/README.md)
+### [【战云长天时评64期】中共是“完美犯罪”学理论践行者——案例二十二：邓小平的“拨乱反正”是完美犯罪升级版](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [挪威称对议会的网络攻击来自中共国](/content/gnews/50/README.md)
+### [挪威称对议会的网络攻击来自中共国](/content/gnews/52/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郑州突发水灾之微观篇](/content/gnews/51/README.md)
+### [郑州突发水灾之微观篇](/content/gnews/53/README.md)
  ` G-NEWS TAIWAN`
 
-### [论郑州大水是天意灭共](/content/gnews/52/README.md)
+### [论郑州大水是天意灭共](/content/gnews/54/README.md)
  ` G-NEWS TAIWAN`
 
-### [【币圈】-数字货币动态-2021.7.21](/content/gnews/53/README.md)
+### [【币圈】-数字货币动态-2021.7.21](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [200 万中共国人写信给世卫组织](/content/gnews/54/README.md)
+### [200 万中共国人写信给世卫组织](/content/gnews/56/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [英国将永久在亚洲水域部署两艘军舰强化参与印太危机](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
-
-### [【墙内新闻浅析】习近平在庆祝中共成立100周年大会上讲话（二十）](/content/gnews/56/README.md)
- ` RU WEI`
 
