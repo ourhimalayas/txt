@@ -2,58 +2,46 @@
 ---
 
 
-## 【新闻速递】Delta变种病例增至美国病例的83%，拜登政府重启“公共卫生紧急状态”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1409999/)
+## 【快讯】众议院议长佩洛西的助手尽管接种了疫苗，依然感染中共病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1409976/)
 
-翻译/整理：纽约香草山健身部 文真
+作者：小韭菜a
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/16150758/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-新闻来源：FOX NEWS
 
-新闻链接：1. [CDC: Delta variant accounts for 83% of US cases](https://www.foxnews.com/health/cdc-delta-variant-accounts-for-83-of-us-cases?fbclid=IwAR3JSlhNUdeH9yiH1oQw1nzii9vJk7S30R4cqlSuq9U4QRBjQCFhrsiq3TI)
-2. [Biden administration renews COVID-19 ‘public health emergency’ declaration](https://www.foxnews.com/health/biden-renews-covid-19-emergency?fbclid=IwAR0sDTz_4s3EfDwWsmM_kW14QMagpw0-6XsC4hOwvquSrnE1R2NrYmo44Dg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20195929/%E6%88%AA%E5%B1%8F2021-07-20-%E4%B8%8B%E5%8D%887.58.50-e1626825617427.png)
+众议院议长南希佩洛西（Nancy Pelosi）的发言人上周与逃离该州前往华盛顿特区的德克萨斯州立法机构成员会面后，周一的冠状病毒检测呈阳性。
 
-译文：
+佩洛西的高级助手德鲁·哈米尔（Drew Hammill）说，7月19日发言人新闻办公室的一名完全接种疫苗的高级发言人检测出COVID阳性，他在上周与德克萨斯州立法机构成员接触过后。安全起见，议长办公室因此采取了额外的预防措施，比如在国会医生放宽口罩限制后，最近几周许多议员选择不戴口罩，但是周二佩洛西和她的工作人员被看到在国会大厦重新戴上口罩。
 
-美国卫生官员称，Delta变种新冠病例继续激增，估计占美国COVID-19总病例数的83%，比7月3日那一周有了大幅增加——当时该变种病例占新冠病例的50%左右。
+【评】前有50多名完全接种疫苗的德州议员乘坐私人包机前往华盛顿，途中他们并没有戴口罩，结果6名人员的中共病毒检测为阳性。后有完全接种疫苗的佩洛西发言人感染，可见这疫苗的预防效果不尽人如意。主流媒体，医药公司，和政府机构一直强调新冠死亡病例里99%以上都是没有接种过疫苗的病人，但是并没有说明现在新增感染病例里有多少是接种过疫苗有多少是没有接种过疫苗的。这个比例–显示疫苗有效性最重要的指标–现在却没有人谈，实在是可疑！
 
-![]()![](https://a57.foxnews.com/static.foxnews.com/foxnews.com/content/uploads/2021/07/640/320/AP21182690570920.jpg?ve=1&amp;tl=1)图片来源：FOX NEWS
+校对/发稿：悟空
 
-美国疾病控制和预防中心主任罗谢尔-瓦伦斯基博士（Dr. Rochelle Walensky）周二在美国参议院听证会上说：“防止COVID-19变种病毒传播的最好办法是防止疾病的传播，而接种疫苗是我们最有力的工具。”
+参考来源：
 
-Delta变种是一种变异的新冠病毒，比其它新冠变种更容易传播。它最先于印度被发现，但如今已经在全世界范围内传播。
+[https://www.foxnews.com/politics/pelosi-aide-white-house-official-test-positive-covid](https://www.foxnews.com/politics/pelosi-aide-white-house-official-test-positive-covid)
 
-由于新冠病毒的持续蔓延，拜登政府再次宣布“公共卫生紧急情况”生效。
 
-卫生与公众服务部部长泽维尔-贝塞拉（Xavier Becerra）周一发布了更新声明——这是联邦政府自去年首次宣布大流行开始以来的第六次“紧急情况”。
 
-在宣布之后，联邦政府可以动用某些资金来对抗公共卫生紧急情况，以及采取其他行动。
+> Speaker Pelosi did not respond to questions on if she would accept the GOP Leader’s picks to serve on the Jan 6th select committee [pic.twitter.com/JvWmzN9LyZ](https://t.co/JvWmzN9LyZ)
+> — Kelly Phares (@kellyfphares) [July 20, 2021](https://twitter.com/kellyfphares/status/1417473908333293568?ref_src=twsrc%5Etfw)
 
-截至星期二上午，新冠病毒已经在192个国家和地区感染了超过190,939,839人，造成至少4,096,422人死亡。在美国，所有50个州加上哥伦比亚特区都报告了COVID-19确诊病例，总计超过34,132,079人患病，至少有609,231人死亡。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
-编辑/校对/发稿：Irene木木
-
+[https://www.foxnews.com/politics/sixth-texas-dem-comes-down-with-covid-19-and-is-isolating-report](https://www.foxnews.com/politics/sixth-texas-dem-comes-down-with-covid-19-and-is-isolating-report)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20112700/1d33a7c1-79e4-4eff-bede-92d856cd77cd.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -16,38 +16,38 @@
 
 ---
 
-### [世界将在根本上 断绝中共一切关系](/content/gnews/1/README.md)
+### [郑州地铁事件，曝光死亡人数不断增加](/content/gnews/1/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [7/20/2021 洪水淹没郑州市区，老百姓遭殃](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [世界将在根本上 断绝中共一切关系](/content/gnews/3/README.md)
  ` G-NEWS TAIWAN`
 
-### [大洪水袭击中国中部，地铁被淹没](/content/gnews/2/README.md)
+### [大洪水袭击中国中部，地铁被淹没](/content/gnews/4/README.md)
  ` 闪电侠`
 
-### [50国齐声讨，中共的石头最终砸向了自己](/content/gnews/3/README.md)
+### [50国齐声讨，中共的石头最终砸向了自己](/content/gnews/5/README.md)
  ` G-NEWS TAIWAN`
 
-### [澳大利亚总理将继续询问有关武汉实验室泄漏的问题](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [【字幕】7/20/2021文贵盖特：共产党策划最大的灭爆行动已经宣告彻底失败](/content/gnews/6/README.md)
+ ` Caihongqiao`
 
-### [美国联同欧亚盟国共同揭露谴责中共实施恶意网络攻击](/content/gnews/5/README.md)
- ` 日本东京方舟农场`
-
-### [2021/07/20-001 文贵先生盖特精要](/content/gnews/6/README.md)
+### [2021/07/20-001 文贵先生盖特精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【文贵视角】新中国联邦开启的灭共形势让世界看到希望](/content/gnews/7/README.md)
+### [【文贵视角】新中国联邦开启的灭共形势让世界看到希望](/content/gnews/8/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【郭先生盖特视频摘要】2021.7.16：猛料：中共游说世界想再出一个尼克松时刻](/content/gnews/8/README.md)
+### [【新闻速递】Delta变种病例增至美国病例的83%，拜登政府重启“公共卫生紧急状态”](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
+
+### [【快讯】众议院议长佩洛西的助手尽管接种了疫苗，依然感染中共病毒](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [随着中共病毒的大流行 众议院拨款委员会投票决定削减对中共国研究人员的资助](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [郑州地铁事件，曝光死亡人数不断增加](/content/gnews/9/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【新闻速递】Delta变种病例增至美国病例的83%，拜登政府重启“公共卫生紧急状态”](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
-
-### [【快讯】众议院议长佩洛西的助手尽管接种了疫苗，依然感染中共病毒](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
 
 ### [【文雍漫谈】大头病得真不轻 错把棒棒糖当龙晶](/content/gnews/12/README.md)
  ` 文雍`
@@ -58,52 +58,52 @@
 ### [【樱花宅急便】谁在运作美副国务卿谢尔曼或访华](/content/gnews/14/README.md)
  ` 日本东京樱花团`
 
-### [7/20/2021 洪水淹没郑州市区，老百姓遭殃](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [【墙内视频】河南特大暴雨，灾区惨绝人寰，中共官方所有的紧急预案都是纸上谈兵！](/content/gnews/16/README.md)
+### [【墙内视频】河南特大暴雨，灾区惨绝人寰，中共官方所有的紧急预案都是纸上谈兵！](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [2021.07.20 郑州大水](/content/gnews/17/README.md)
+### [2021.07.20 郑州大水](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [病毒溯源步步紧逼之下厉害国竟无一人是男儿,居然祭起了网民签名](/content/gnews/18/README.md)
+### [病毒溯源步步紧逼之下厉害国竟无一人是男儿,居然祭起了网民签名](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [议员吉姆·乔丹谈 Covid 实验室泄漏理论](/content/gnews/19/README.md)
+### [2021年7月20日 秘翻快报 【头条新闻】](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【字幕】7/20/2021文贵盖特：共产党策划最大的灭爆行动已经宣告彻底失败](/content/gnews/19/README.md)
+ ` Caihongqiao`
+
+### [议员吉姆·乔丹谈 Covid 实验室泄漏理论](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产主义国家，如果有与政府正统相反事实，独裁政权会阻止你分享事实](/content/gnews/20/README.md)
+### [共产主义国家，如果有与政府正统相反事实，独裁政权会阻止你分享事实](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【澳洲热点】短视频：“护卫军刀”澳美军演向北京传递“威慑信息”](/content/gnews/21/README.md)
+### [【澳洲热点】短视频：“护卫军刀”澳美军演向北京传递“威慑信息”](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021/7/20日 大卫作战室直播精要 -001](/content/gnews/22/README.md)
+### [2021/7/20日 大卫作战室直播精要 -001](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【有声读物】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/23/README.md)
+### [【有声读物】在美国指责中共策划全球黑客事件后，中共威胁要进行“报复”](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [河南登封铝厂大爆炸像极了天津塘沽8.12大爆炸](/content/gnews/24/README.md)
- ` 澳喜农场`
-
-### [【新闻速递】Delta变种病例增至美国病例的83%，拜登政府重启“公共卫生紧急状态”](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [【快讯】众议院议长佩洛西的助手尽管接种了疫苗，依然感染中共病毒](/content/gnews/26/README.md)
- ` 纽约香草山MOS02`
-
-### [【NewsExpress】中国南京渌口机场检测病毒阳性9份](/content/gnews/27/README.md)
+### [【NewsExpress】中共统战部关联的墨尔本中文媒体奥斯特倒闭](/content/gnews/25/README.md)
  ` 闪电侠`
 
-### [【医疗前沿世界】超级抗体S2H97可以对抗多种中共病毒变种](/content/gnews/28/README.md)
+### [【新闻速递】Delta变种病例增至美国病例的83%，拜登政府重启“公共卫生紧急状态”](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [【快讯】众议院议长佩洛西的助手尽管接种了疫苗，依然感染中共病毒](/content/gnews/27/README.md)
+ ` 纽约香草山MOS02`
+
+### [【NewsExpress】中国南京渌口机场检测病毒阳性9份](/content/gnews/28/README.md)
+ ` 闪电侠`
+
+### [【医疗前沿世界】超级抗体S2H97可以对抗多种中共病毒变种](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
 
-### [【NewsExpress】评论：超级水坝导致天灾人祸，目的是维护党的合法性](/content/gnews/29/README.md)
- ` 闪电侠`
-
-### [【NewsExpress】中共军队预报被风暴袭击的大坝可能会倒塌](/content/gnews/30/README.md)
+### [【NewsExpress】评论：超级水坝导致天灾人祸，目的是维护党的合法性](/content/gnews/30/README.md)
  ` 闪电侠`
 
 ### [川普总统对科技巨头Facebook、Twitter和YouTube提起达数万亿美元的诉讼](/content/gnews/31/README.md)
@@ -142,45 +142,45 @@
 ### [中共国正在努力寻找市场——这只无形的手来引导全世界（二）](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国和印度打破僵局的希望破灭紧张局势依然高涨](/content/gnews/43/README.md)
+### [澳国防长惊讶中共国派出第二艘间谍船监视澳大利亚行动](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [随着中共病毒的大流行 众议院拨款委员会投票决定削减对中共国研究人员的资助](/content/gnews/44/README.md)
+### [理想与现实](/content/gnews/44/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [中共国和印度打破僵局的希望破灭紧张局势依然高涨](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [随着中共病毒的大流行 众议院拨款委员会投票决定削减对中共国研究人员的资助](/content/gnews/46/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【战友心声】天有不测风云](/content/gnews/45/README.md)
+### [【战友心声】天有不测风云](/content/gnews/47/README.md)
  ` 纽约香草山MOS03`
 
-### [【热点推荐】上海帮祭出恒大欲引全国内乱来打击习？](/content/gnews/46/README.md)
+### [【热点推荐】上海帮祭出恒大欲引全国内乱来打击习？](/content/gnews/48/README.md)
  ` 温哥华扬帆农场`
 
-### [美国机构发出警告，中共国为窃取机密进行“侵略性”黑客活动](/content/gnews/47/README.md)
+### [美国机构发出警告，中共国为窃取机密进行“侵略性”黑客活动](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【战友心声】重庆人在反抗](/content/gnews/48/README.md)
+### [【战友心声】重庆人在反抗](/content/gnews/50/README.md)
  ` 纽约香草山MOS03`
 
-### [【墙文推荐】上帝拯救我逃脱牢狱之灾](/content/gnews/49/README.md)
+### [【墙文推荐】上帝拯救我逃脱牢狱之灾](/content/gnews/51/README.md)
  ` 纽约香草山MOS03`
 
-### [【鹰眼墙国】皮革服装行业或迎“转机”？](/content/gnews/50/README.md)
+### [【鹰眼墙国】皮革服装行业或迎“转机”？](/content/gnews/52/README.md)
  ` 纽约香草山MOS03`
 
-### [中共指责病毒溯源上谭德赛一反常态](/content/gnews/51/README.md)
+### [中共指责病毒溯源上谭德赛一反常态](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [【鹰眼墙国】推广数字人民币=内用粮票的“独角戏”](/content/gnews/52/README.md)
+### [【鹰眼墙国】推广数字人民币=内用粮票的“独角戏”](/content/gnews/54/README.md)
  ` 纽约香草山MOS03`
 
-### [【鹰眼墙国】南水北调解决用水危机？](/content/gnews/53/README.md)
+### [【鹰眼墙国】南水北调解决用水危机？](/content/gnews/55/README.md)
  ` 纽约香草山MOS03`
 
-### [【鹰眼墙国】小牛资本良性清退未果，非法集资遭立案](/content/gnews/54/README.md)
- ` 纽约香草山MOS03`
-
-### [【鹰眼墙国】房价上涨，销售面积显增，房价“如此”管控？](/content/gnews/55/README.md)
- ` 纽约香草山MOS03`
-
-### [【鹰眼墙国】脱钩加剧，国际消费中心城市培育“胎死腹中”](/content/gnews/56/README.md)
+### [【鹰眼墙国】小牛资本良性清退未果，非法集资遭立案](/content/gnews/56/README.md)
  ` 纽约香草山MOS03`
 

@@ -2,27 +2,29 @@
 ---
 
 
-## 【NewsExpress】中共军队预报被风暴袭击的大坝可能会倒塌
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1409895/)
+## 【NewsExpress】评论：超级水坝导致天灾人祸，目的是维护党的合法性
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1409937/)
 
 **翻译整理：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20190940/this-aerial-photo-taken-on-july-5-2021-shows-water-being-released-from-the-xiaolangdi-reservoir-dam-in-luoyang-in-china-s-central-henan-province-which-has-been-hit-by-severe-storms-and-torrential-rai.jpg)
-中共军队发出警告说，该国中部的一座受灾大坝（洛阳伊河滩大坝）在暴雨中遭到严重破坏，“随时可能倒塌”。由于倾盆大雨造成大面积破坏和被洪水淹没街道的居民疏散，气象部门对河南省中部发布了最高警告级别。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20192503/22-16.jpg)
+译者：以下是作者布拉马·切拉尼在六月份时候发表的一篇关于中共大坝的社评，摘要了部分。因为在中共国，正在发生着惨无人道的水灾。几十年以来， 水灾除了暴雨等自然因素之外，必定伴随着大坝崩溃，泄洪，淹哪个城市，救哪个城市的选择。这不是天灾，这是人祸。以下是部分摘要：
 
-周二晚上，中共人民解放军地区部队警告说，倾盆大雨已经在洛阳的伊河滩大坝造成了 20米的溃坝，这座拥有约 700 万人口的城市存在“随时可能倒塌”的风险。中共人民解放军中央战区表示，已派出士兵进行爆破和分洪等应急响应。
+中国是世界上筑坝最多的国家，拥有比世界其他地方加起来还要多的大坝。这些大坝和水利工程都为中共助长的民族主义提供了重要的素材，其目的是维护党的合法性。中共经常炫耀其水利工程实力，包括执行有史以来最雄心勃勃的跨河调水，以彰显其军事和经济实力。
 
-几十年来，这种由于大坝崩溃的威胁已经恶化，部分原因是大坝和堤坝的广泛建设切断了河流与邻近湖泊之间的联系，并破坏了曾帮助吸收夏季潮汐的洪泛区。
+中共建造水坝的目的还在用来控制下游国家的杠杆来源。中共在 1951 年吞并了亚洲十大水系的起点，水资源丰富的青藏高原，这赋予了中共在亚洲水图上的巨大权力。 随后的几十年里，中共充分利用了这一河岸优势。例如，在湄公河上建造了 11 座巨型水坝，从而确保了关闭该地区水龙头的能力。
 
-译者：
+中共没有考虑其战略的高成本，这远远超出了与邻国的政治摩擦。中共永无止境的筑坝正在对亚洲的主要河流系统造成环境破坏，包括中国大陆的双重生命线：黄河和长江。巨型水坝破坏生态系统，导致淡水物种灭绝，导致三角洲退缩，并且排放的温室气体通常比化石燃料发电厂更多。近几十年来，中国有 350 多个湖泊消失了，自由流动的河流几乎没有，河流破碎和枯竭已成为地方性的问题。
 
-上面的这张于 2021 年 7 月 5 日拍摄的航拍照片显示，中国中部河南省洛阳市的小浪底水库大坝正在泄水，该水库遭受强风暴和暴雨袭击。早在7月5日发生的泄水，媒体和防洪机构，气象部门并没有给老百姓任何的警示，让一场早有预警可以疏散居民的灾难，演绎成了突如其来的巨大自然灾害。该警告是由中共解放军发出。
+社会成本同样严重。首先，鉴于共产主义统治的前三年建筑质量低劣，到 1981 年约有 3,200 座大坝倒塌，仅 1975 年板桥大坝溃决就造成多达 230,000 人死亡。此外，大坝项目已经使大量中国人流离失所。2007年，就在中国大坝建设势头强劲之际，时任总理温家宝透露，中共上台以来，中国已搬迁2290万人为水利工程让路，这个数字比超过 100 个国家的全部人口还要多。仅三峡大坝就有超过 140 万人流离失所。
+
+峡谷是世界上生物多样性最丰富的地区之一，中共并不关心，它更感兴趣的是能够利用水作为对抗亚洲竞争对手印度的武器。
 
 \*以上仅代表作者观点，不代表Gnews平台\*
 
 **参考链接：**
 
-[https://www.channelnewsasia.com/news/asia/chinese-army-warns-dam-battered-by-storms-could-collapse-15257186](https://www.channelnewsasia.com/news/asia/chinese-army-warns-dam-battered-by-storms-could-collapse-15257186)
+[https://www.channelnewsasia.com/news/asia/commentary-china-has-an-insatiable-appetite-for-super-dams-15089708?cid=h3\_referral\_inarticlelinks\_24082018\_cna](https://www.channelnewsasia.com/news/asia/commentary-china-has-an-insatiable-appetite-for-super-dams-15089708?cid=h3_referral_inarticlelinks_24082018_cna)
 
 ***校对发布：文顾***
 
-0
++1

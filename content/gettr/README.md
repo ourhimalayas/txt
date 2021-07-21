@@ -18,6 +18,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@thetrumpproject 7/20/2021 3:16 PM (UTC)`
+
+Oh Damn... That's Just 🔥 🔥 🔥<br/>Order Yours: teezily.com/6az<br/>#TrumpWon #Trump2024 #ImpeachJoe<br/>#trump #biden #FallOfCabal<br/>#patriotparty #bigtech #Jesus <br/>#TheGreatAwakening #trump2024<br/>#ImpeachBiden #DumpJoe #FuckTwitter<br/>#FuckFacebook #StopTheSteal <br/>#TrumpNation #Trump2024<br/>#JoeBidenIsNotMyPresident<br/>#BidenIsNotMyPresident<br/>#NotMyPresident
+![img](https://media.gettr.com/group23/origin/2021/07/20/15/af64da2b-4a69-a03b-328b-813907e316bc/d52c1a4340bbd5ef793e69c530463071.jpg)
+
+---
+
 `@miles 7/20/2021 11:38 PM (UTC)`
 
 尊敬的战友们好，马上开始乱聊直播……
@@ -305,13 +314,6 @@ Welcome to the great @steveguest!<br/><br/>https://www.gettr.com/user/steveguest
 
 国际化的管理运行．法治基金．法治社会．才能永远是战友们在美国．西方的诺亚方舟！
 ![img](https://media.gettr.com/group13/getter/2021/07/17/18/98410968-1855-153f-8fcc-bbdbdb8d37fa/2fd9abb7bc19842a28809526b2fe244c.jpg)
-
----
-
-`@miles 7/17/2021 2:27 PM (UTC)`
-
-七月十七号：尊敬的战友们好．新中国联邦灭共后．未来最大的挑战之一……就是让中国人有基本的辨别善恶的能力。<br/>共产党的内部的政治斗争……已经到了最后的阶段……准备好中南城的老杂毛们……随时给我们送大礼吧！一切都已经开始
-![img](https://media.gettr.com/group18/getter/2021/07/17/14/8f35d5d9-b645-a08a-120f-2de5ab8a322e/out.jpg)
 
 ---
 
