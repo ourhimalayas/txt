@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/21/2021 6:13 AM (UTC)`
+
+【郭家嘴水库也出事儿了，豆腐渣工程不知道害死多少无辜老百姓，唉！】
+![img](https://media.gettr.com/group9/getter/2021/07/21/06/7565c260-795d-5104-29ab-0368923e0333/out.jpg)
+
+---
+
 `@miles 7/21/2021 6:07 AM (UTC)`
 
 天哪……😱😱😱😭😭😭
@@ -304,14 +311,6 @@ Thank You, Jason!
 
 尊敬的战友们好：明天7月18号，星期天上午9:30文贵乱聊直播，一切都已经开始！
 ![img](https://media.gettr.com/group26/getter/2021/07/18/01/ce19fcb1-a14a-7032-6c55-ae269823047d/9e445801aa7b510d44defff62bfb86fc.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@toddstarnes 7/18/2021 12:31 AM (UTC)`
-
-Former President Trump tore into Fox News Channel and the network's handling of election results. <br/><br/>https://www.toddstarnes.com/politics/trump-gives-fox-news-early-arizona-call/
 
 ---
 
