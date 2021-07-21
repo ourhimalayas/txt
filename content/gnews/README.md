@@ -16,20 +16,20 @@
 
 ---
 
-### [【NewsExpress】美国指控 4 名与间谍机构合作参与全球黑客活动的中共国公民](/content/gnews/1/README.md)
+### [英国国防部向亚洲海域永久派驻两艘军舰](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【NewsExpress】美国指控 4 名与间谍机构合作参与全球黑客活动的中共国公民](/content/gnews/2/README.md)
  ` 索尼克`
 
-### [【世事解评】GETTR开启社交媒体新时代 千万用户即将涌入](/content/gnews/2/README.md)
+### [【世事解评】GETTR开启社交媒体新时代 千万用户即将涌入](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [【香港快讯】 7月21日 港大学生会迁出大楼最后期限 校方派员换门锁 张翔拒回应评议会事件](/content/gnews/3/README.md)
+### [【香港快讯】 7月21日 港大学生会迁出大楼最后期限 校方派员换门锁 张翔拒回应评议会事件](/content/gnews/4/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [【郑州洪水】跟进报道（多视频）](/content/gnews/4/README.md)
+### [【郑州洪水】跟进报道（多视频）](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
-
-### [郑州水灾根本原因在于“人祸”](/content/gnews/5/README.md)
- ` 日本东京樱花团`
 
 ### [【中英文字幕】7/20/2021文贵盖特：共产党策划最大的灭爆行动已经宣告彻底失败](/content/gnews/6/README.md)
  ` Caihongqiao`
@@ -106,16 +106,16 @@
 ### [美国副国务卿雪蔓：台湾与美国将继续加强政治经济关系](/content/gnews/30/README.md)
  ` 经济金融组`
 
-### [英国国防部向亚洲海域永久派驻两艘军舰](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/32/README.md)
+### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/33/README.md)
+### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/32/README.md)
  ` 经济金融组`
 
-### [【五月花评】美军机降台湾，中共嘴硬手软](/content/gnews/34/README.md)
+### [【五月花评】美军机降台湾，中共嘴硬手软](/content/gnews/33/README.md)
+ ` 波士顿五月花农场`
+
+### [【五月花评】郑州水灾背后是人祸](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
 ### [【秘翻在线】科技巨头 富可敌国](/content/gnews/35/README.md)
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/43/README.md)
+### [6月的通胀报告应该让美国人感到紧张](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国报告首例死亡来自罕见的猴子B病毒](/content/gnews/44/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【世事解评】永别了，路德！](/content/gnews/45/README.md)
- ` 纽约香草山MOS02`
-
-### [路德连夜潜逃，警方破门搜捕](/content/gnews/46/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [王定刚仓皇潜逃后将走向何方?](/content/gnews/47/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/48/README.md)
- ` HimalayaRussia`
-
-### [郑州水灾，是天灾更是人祸！](/content/gnews/49/README.md)
- ` 墨尔本雅典娜农场`
-
-### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/50/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/51/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/52/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/53/README.md)
+### [【热点推荐】郑州还泡在水中，政府已经开抓暴雨“不当言论者”](/content/gnews/44/README.md)
  ` 温哥华扬帆农场`
 
-### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/54/README.md)
+### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [你在我这里只是草芥](/content/gnews/55/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [中国报告首例死亡来自罕见的猴子B病毒](/content/gnews/46/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [我所理解的喜马拉雅元白皮书](/content/gnews/56/README.md)
- ` 德农—喜马拉雅经济金融节目组`
+### [【世事解评】永别了，路德！](/content/gnews/47/README.md)
+ ` 纽约香草山MOS02`
+
+### [路德连夜潜逃，警方破门搜捕](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [王定刚仓皇潜逃后将走向何方?](/content/gnews/49/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/50/README.md)
+ ` HimalayaRussia`
+
+### [郑州水灾，是天灾更是人祸！](/content/gnews/51/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郑州哭的很伤心！悲哉！痛哉！](/content/gnews/52/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [共产党把人变成魔鬼，爆料革命使人成为天使](/content/gnews/53/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [海伦·罗利称是马克思主义对亚裔美国人社区有害](/content/gnews/54/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【小雨专栏】在路上（010）——眼睛篇](/content/gnews/55/README.md)
+ ` 温哥华扬帆农场`
+
+### [美国国会针对中共在美国招募人才的行为进行调查](/content/gnews/56/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

@@ -2,33 +2,32 @@
 ---
 
 
-## 【NewsExpress】美国指控 4 名与间谍机构合作参与全球黑客活动的中共国公民
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1412294/)
+## 英国国防部向亚洲海域永久派驻两艘军舰
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1412529/)
 
-与中国最高情报机构合作的四名中共国公民被指控参与一项全球黑客活动，以窃取公司、大学和政府机构的商业机密和敏感信息。
+2021年7月21日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21115421/cuba_0-12.jpg)
+据英国国防部称，两艘舰艇–HMS Spey和HMS Tamar，将从今年晚些时候开始被派往印度-太平洋地区，并将长期驻扎在那里。
 
-这些指控是在周一美国及其盟国协调一致谴责中国政权赞助针对世界各地目标的“恶意”网络攻击之际宣布的。他们说，中共国国家安全部（MSS）是该政权的首席情报机构，是部署这些黑客的幕后推手。美国还将今年早些时候披露的微软大规模黑客攻击归因于为 MSS 工作的黑客。
+HMS Spey是今年晚些时候将被部署到该地区的舰艇之一。(EPA)
 
-根据司法部的一份声明，被指控的黑客由 MSS 赞助，并将他们的盗窃重点放在对中共国公司有重大好处的信息上，例如研发过程。
+在8月，英国航母和护航舰艇计划与其他国家的部队一起在菲律宾海进行演习。航母打击群的高调访问计划是在伦敦深化与东京的安全关系之时制定的，东京近几个月来对中共国在该地区包括台湾的领土野心表示了越来越大的担忧。
 
-起诉书称，被告和国家安全局下属的海南省国家安全局官员试图通过使用幌子公司来掩盖中共国政权在黑客攻击中的作用，起诉书于 5 月退回并于周五启封。
+国防部长本-华莱士(Ben Wallace)表示，在这次行动中，皇家海军舰队将驶过中共国声称的有争议的水域。
 
-美国司法部表示，该活动从 2011 年到 2018 年活跃，针对包括航空、国防、教育、政府、医疗保健、生物制药和海事行业在内的一系列行业的商业秘密。
+据国防部称，这两艘永久驻扎的舰艇将在演习之后的8月底部署，并在行动中得到澳大利亚、日本和新加坡以及其他伙伴的支持。
 
-受害者包括奥地利、柬埔寨、加拿大、德国、印度尼西亚、马来西亚、挪威、沙特阿拉伯、南非、瑞士、英国和美国。
+翻译: Beicy-数学老师
 
-检察官指控黑客窃取外国信息以帮助中国国有企业获得目标公司的合同，例如一个大型高速铁路项目。该部门表示，该组织还针对与埃博拉、中东呼吸综合征、艾滋病毒/艾滋病、马尔堡和兔热病相关的传染病研究的研究机构和大学。
+**【[新闻来源](https://www.independent.co.uk/news/uk/politics/uk-warships-asian-waters-permanent-b1887124.html)】**
 
-美国副总检察长丽莎·摩纳哥在声明中说：“这些刑事指控再次凸显中国继续利用网络攻击来窃取其他国家的产品，公然无视其双边和多边承诺。”
+* * *
 
-它说，两项起诉书指控丁晓阳、程庆民和朱云民是 HSSD（ 海南省国安厅）官员，负责协调前台公司的计算机黑客和语言学家。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-司法部称，第四被告、海南贤盾科技发展有限公司员工吴树荣“制造恶意软件，侵入外国政府、公司和大学运营的计算机系统，并监督其他海南贤盾黑客” .
 
-新闻来源：[newsweek](https://www.zerohedge.com/technology/us-charges-4-chinese-nationals-working-spy-agency-global-hacking-campaign?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-编译： Boxinglady
-校对发稿：法图麦
-本文只代表个人观点，不代表 Gnews 平台
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/21/2021 11:42 PM (UTC)`
+
+7/20/2021 CCP Regime Ruling the Country in a Mafia-style with Falsehood, and in front of Heavy Rainfall and Reservoir Discharging, the Communist state and local governments have no means, no capabilities to save its people but just shouting no sleep like a log and do self-protection， reporting false death toll to cover up<br/><br/>7/20/2021 以假、黑治国下的中共国民不聊生，在洪水面前，中共倾全国之力却无计可施、无力救援，只能提醒市民不能熟睡、自我安全预防，并谎报死亡数字<br/>
+![img](https://media.gettr.com/group31/getter/2021/07/21/23/778faed2-4a10-ec1e-49c2-fbf35e785056/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@wencheng 7/21/2021 9:03 PM (UTC)`
@@ -304,13 +311,6 @@ This is the real face of Serpent Yan!
 `@miles 7/19/2021 12:20 PM (UTC)`
 
 共产党你完了👉👉👉【中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃” 】https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn
-
----
-
-`@miles 7/19/2021 12:10 AM (UTC)`
-
-She is a lunatic and a liar
-![img](https://media.gettr.com/group8/getter/2021/07/19/00/c225403f-716e-bf6e-59e4-4df7c0c999bd/694f167f2e4cf187a4fa7365af9e043c.jpg)
 
 ---
 
