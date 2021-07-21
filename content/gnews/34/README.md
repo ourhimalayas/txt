@@ -2,28 +2,29 @@
 ---
 
 
-## 英国最大晶片厂落实售予中资公司后被停发拨款
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410458/)
+## 我的厉害国，此骂何时休？
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1411061/)
 
-2021年7月20日
+撰稿：东京樱花团/待命（文晓）
+校对：东京樱花团/喜马拉雅的微尘
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21001125/0-115.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21024617/%E6%88%91%E7%9A%84%E5%8E%89%E5%AE%B3%E5%9B%BD%EF%BC%8C%E6%AD%A4%E9%AA%82%E4%BD%95%E6%97%B6%E4%BC%91%EF%BC%9F.jpg)
 
-编辑摘要：
+[图片来源](http://world.people.com.cn/n1/2018/1225/c1002-30485799.html)
 
-英国《每日电讯报》报道，英国最大晶片厂落实出售给中资公司闻泰科技旗下的安世半导体后，英国政府停止向 NWF 提供研发拨款。
+早间电视新闻在日本雅虎网站发表消息称：遭多国一起谴责网络攻击，中共说是无理取闹。
 
-CNBC 引述消息报道，NWF 大部分合约都接受英国研究及创新署的资助，金额高达 5500 万英镑。威尔斯政府于本月 11 日表示，不会再投资于 NWF。
+美国、日本、欧盟（EU）等国家群起谴责中共的网络攻击。对此，中共反击说：这些攻击纯属无理取闹。美国政府官员18日表示，中共政府支持网络攻击。这对美国及其盟友是个严重的威胁，我们会计划采取行动。
 
-【[新闻链接](https://www.thestandnews.com/international/%E8%8B%B1%E5%9C%8B%E6%9C%80%E5%A4%A7%E6%99%B6%E7%89%87%E5%BB%A0%E8%90%BD%E5%AF%A6%E5%94%AE%E4%BA%88%E4%B8%AD%E8%B3%87%E5%85%AC%E5%8F%B8%E5%BE%8C-%E9%81%AD%E6%94%BF%E5%BA%9C%E7%B5%82%E6%AD%A2%E7%A0%94%E7%99%BC%E6%92%A5%E6%AC%BE)】
+英国、欧盟和北约（北大西洋公约组织）都谴责了中共国，日本则表示 “强烈支持 “此举。对此，中共国驻包括英国和加拿大在内的几个国家的大使馆发表声明，谴责称： “这是充满了猜测和无理的指责”。还说：”中国正在加强网络管理，坚决捍卫网络空间的安全。中国是网络攻击的主要受害者”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+近年，中共妄图称霸世界的一系列动作，招致了世界各国的反对。而且，这个势头愈演愈烈。于是，中共外交部的国骂也随之越骂越厉、越骂越狠、越骂越花，骂完东边骂西边。本次又更上一层楼，由以往的独骂，发展成了群骂。外交部发言人的主要工作，无外乎就是在记者会上的指责、谴责、抗议等等这些国民早已耳熟能详的套话和国骂，已经骂到让我这个“人民”都感到羞耻的地步。不禁感叹：我的厉害国，此骂何时休？
 
+[信息来源](https://news.yahoo.co.jp/articles/c57b69e629b813c1ff40444ff7a2a868dfe2ba65)
 
-编辑：【英国伦敦喜庄园编辑部】
+*（文章仅代表作者个人观点）
+发布：东京樱花团/老黑*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
 
 0
