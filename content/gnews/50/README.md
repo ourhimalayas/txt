@@ -2,34 +2,56 @@
 ---
 
 
-## GETTR 保留“@RealDonaldTrump”，它“在保险箱里”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1412187/)
+## 习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1412252/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21115610/1471.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21122506/1474%E2%80%911.png)习近平上周纪念了在中国执政的共产党成立一百周年
 
-**据《washingtonexaminer 》作者：Paul Bedard，2021 年 7 月 19 日发布：**
+**据《express》 作者：Oli Smith，2021年7月10日报道：**
 
-社交媒体上对保守派声音的审查，以前总统唐纳德-川普的推特和脸书禁令为首，正在将共和党人进一步推离这些网站。
+高级中国分析家保罗-蒙克说，中共国领导人习近平可能很快被推翻，中国共产党可能“崩溃”。蒙克先生在接受《澳大利亚天空新闻网》采访时透露，尽管中共政权对自己进行了伪装，但中共国的经济“比它显示的更脆弱”。这位著名作家和专家还表示，中共国的军事力量比许多人猜想的要弱得多，如果它推进对台湾的入侵，可能会立即面临重大困难。
 
-在新的 Fabrizio, Lee & Associates 向 Secrets 提供的民意调查中，共和党人只有14% 的表示他们对Twitter有好感，22% 的人表示对Facebook 有好感。
+在给对手的信息中，习主席警告说，如果外国势力试图欺负或影响中国，他们将“头破血流”。
 
-“共和党选民厌倦了大型社交媒体公司。”民意测验专家Tony Fabrizio在他的分析中说。
+然而，蒙克先生表示，中共“鲁莽的行动”可能导致其自身的崩溃。
 
-但是，他补充说，这不是反互联网的事情。Fabrizio说，共和党人对亚马逊、谷歌和苹果等其他大型科技公司的认可要多得多。
+他警告说，中国共产党的统治模式已经“达到了它的天命”。
 
-他补充说，共和党对 Facebook 和 Twitter 的反对为新的支持保守派社交网站（例如 Parler 和 GETTR）的发展打开了大门。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21125456/1474%E2%80%912.png)中国领导人习近平可能很快被推翻，中国共产党可能 “崩溃”（图片: IG）
 
-GETTR 创始人、特朗普的前发言人杰森米勒表示，该网站的增长速度超过了 Twitter 和 Facebook，如果川普加入，该网站的发展会真正地快速增长。
+他解释说：“如果你能看穿表面光鲜华丽的‘宣传’外衣，从经济上看，中共国比它说的要脆弱的多。这是专家们已经讨论了十年的事情。”
 
-他说，为了以防万一，川普的前推特账号@RealDonaldTrump已经被保留给他的前老板。“它在保险箱里，”米勒说。
+“这种非常快速的增长的经济模式是不稳定的，不可持续的，需要重大改革。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21120200/1471%E2%80%911.png)Twitter 已暂停前总统特朗普的著名帐户，新网站 GETTR 保留了他的句柄。
+“学者们说，如果不尽快进行改革，你可能看到的是中国经济增长的平缓，就像我们在1990年代在日本看到的情况一样。”
 
-原文连接：[https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe](https://www.washingtonexaminer.com/washington-secrets/gettr-reserves-realdonaldtrump-its-in-the-safe)
+“如果中共感到安全，感到自己合法，它就不会进行非同寻常的审查和镇压，所以我们马上就会见证一个合法的危机。”
 
-翻译：洛杉矶盘古农场 – B7
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 轰炸机
+“由于中共国鲁莽的举动而爆发冲突的危险已经大大增加了。”
+
+“习近平已经清洗了高级军事人员。虽然入侵台湾的言论占了上风，但中共国的军事力量可能比我们想象的更脆弱。”
+
+“实现入侵台湾的任务的任何挫败都可能以其自身政权的崩溃而告终。”
+
+“这可能导致一场危机。他已经清洗了核心部门和安全部门的官员，他身边的人都不会挑战他。”
+
+“没有得到党内认可的人根本没有发言权，外部新闻被系统地压制。”
+
+近几个月来，西方和中共国之间的关系因贸易和大流行病而恶化。
+
+台湾问题也是中共国和美国之间紧张关系的主要来源。
+
+然而，中共国主要的持不同政见者和学者蔡霞最近说，共产党政权比它看起来要脆弱得多。
+
+她说：“我建议美国为中共可能突然解体做好充分准备。”
+
+“习近平过于多疑和狭隘的个性导致了党内的不断清洗，这给中高层官员带来了极度的不满。每个人都感到不安全。”
+
+文章来源:**[https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn](https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn)**
+
+翻译:洛杉矶盘古农场 – Mike Li
+校对:洛杉矶盘古农场 – TrueSky
+编辑:洛杉矶盘古农场 – 明子
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

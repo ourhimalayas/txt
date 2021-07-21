@@ -2,59 +2,38 @@
 ---
 
 
-## 习的政权“很快会崩溃”，因为军事整顿对中共造成了反作用
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1412252/)
+## 你在我这里只是草芥
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1412474/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21122506/1474%E2%80%911.png)习近平上周纪念了在中国执政的共产党成立一百周年
+作者：衮来衮切| PR：X-Wing|审核：仙女儿-文善| Page：小六月
 
-**据《express》 作者：Oli Smith，2021年7月10日报道：**
+[!\[\]()!\[\](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/ed15f45c-5241-4dd9-b26d-f9ab9c08db49.jpg?asset_id=6f376de5-ac6f-4204-aaf5-b89dbf0ec8fd&amp;img_etag=%22dadf4655bf4c2736041ecf8b5b69c1e8%22&amp;size=2560)](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/ed15f45c-5241-4dd9-b26d-f9ab9c08db49.jpg?asset_id=6f376de5-ac6f-4204-aaf5-b89dbf0ec8fd&amp;img_etag=%22dadf4655bf4c2736041ecf8b5b69c1e8%22&amp;size=1024)
 
-高级中国分析家保罗-蒙克说，中共国领导人习近平可能很快被推翻，中国共产党可能“崩溃”。蒙克先生在接受《澳大利亚天空新闻网》采访时透露，尽管中共政权对自己进行了伪装，但中共国的经济“比它显示的更脆弱”。这位著名作家和专家还表示，中共国的军事力量比许多人猜想的要弱得多，如果它推进对台湾的入侵，可能会立即面临重大困难。
+汹涌澎湃的洪水顺流而下，显得那么无情，那么冲动。郑州被水淹了，地铁塌了，路面塌了，楼房塌了，工厂爆炸。一切一切就和捅破天一样，洪水漫天而来，到处都是求救声，呐喊声，以及哭声。
 
-在给对手的信息中，习主席警告说，如果外国势力试图欺负或影响中国，他们将“头破血流”。
+[!\[\]()!\[\](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/bd003ac4-7d46-407e-9bbe-f335bededa31.jpg?asset_id=1f1945df-1243-4926-95b3-873d3974b325&amp;img_etag=%22cd7d4764a3d68f94300ae56feb1ee107%22&amp;size=2560)](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/bd003ac4-7d46-407e-9bbe-f335bededa31.jpg?asset_id=1f1945df-1243-4926-95b3-873d3974b325&amp;img_etag=%22cd7d4764a3d68f94300ae56feb1ee107%22&amp;size=1024)
 
-然而，蒙克先生表示，中共“鲁莽的行动”可能导致其自身的崩溃。
+这次洪水真的是天灾吗？郑州气象局对此次降雨做出如下解答：郑州气象局对这次特大暴雨做了一个数据的梳理和总结。郑州20日16时~17时，一个小时的降雨量达到了201.9mm。19日20时到20日20时，单日降雨量552.5mm。17日20时到20日20时，三天的过程降雨量617.1mm。其中小时降水，单日降水均已突破自1951年郑州建站以来60年的历史记录。郑州常年平均全年降雨量为640.8mm，相当于这三天下了以往一年的量。从气候学的角度来看，小时降水、日降水的概率，重现期通过分布曲线拟合来看，都是超千年一遇的。
 
-他警告说，中国共产党的统治模式已经“达到了它的天命”。
+这些拿着皇粮的人动不动就是百年，千年一遇。既然能如此准确为何没有提前通知民众？为何没有停工停学？为何没有停止地铁交通？在这事后诸葛亮，号称全球经济体的大国，连如此大雨都无法预测吗？何况这真的是大雨导致的吗？大国号称的水库，可以阻止洪水，防止干旱。大水了要泄洪，干旱了要蓄水。年年如此，代代如此。这就是所谓的水资源利用，水资源控制。一切都是上层利益罢了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21125456/1474%E2%80%912.png)中国领导人习近平可能很快被推翻，中国共产党可能 “崩溃”（图片: IG）
+[!\[\]()!\[\](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/c10c8295-854f-4e8e-b79f-2aa2c7a6cd8b.png?asset_id=bf21265b-187a-4767-b0c1-070c354d261a&amp;img_etag=%22d57806bcd9ca4ecb6e4eb6075b01904d%22&amp;size=3049)](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/c10c8295-854f-4e8e-b79f-2aa2c7a6cd8b.png?asset_id=bf21265b-187a-4767-b0c1-070c354d261a&amp;img_etag=%22d57806bcd9ca4ecb6e4eb6075b01904d%22&amp;size=1024)
 
-他解释说：“如果你能看穿表面光鲜华丽的‘宣传’外衣，从经济上看，中共国比它说的要脆弱的多。这是专家们已经讨论了十年的事情。”
+可怜的老百姓啊，还活生生的相信国家政府来营救你，孰不知营救的是面子，营救的是媒体，营救的是大外宣。我们的生命才值几个钱，过几天当官的被表彰，抗洪有功劳，全民战胜无情的洪水，朋友圈到处是“郑州加油”。可是自己的损失自己扛，自己的亲人自己救，自己的命自己把握，这么多年了连基本的预警方案、营救方案都无法做到的政府还有什么值得我们期待的呢？处处充满了欺骗，充满了谎言，充满了丑陋的嘴脸和邪恶的思想。
 
-“这种非常快速的增长的经济模式是不稳定的，不可持续的，需要重大改革。”
+我们只是被他们放在砧板上的鱼肉而已，只是被他们养在羊圈里的羊而已，只是他们不惜一切代价战斗到底的那个代价而已。醒醒吧，我的同胞们，不要再有任何幻想。想想那些逝去的先烈，想想那些淹死在这场闹剧里的同胞们，想想那些衣不蔽体食不果腹的同胞们。拿起我们自己的战斗的“武器”，坚定我们的信念，推翻这个无耻、无知的政党，当一回自己的主人。
 
-“学者们说，如果不尽快进行改革，你可能看到的是中国经济增长的平缓，就像我们在1990年代在日本看到的情况一样。”
+但愿河南不再是第二个湖南。天佑我们可怜的百姓，愿安好。
 
-“如果中共感到安全，感到自己合法，它就不会进行非同寻常的审查和镇压，所以我们马上就会见证一个合法的危机。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-“由于中共国鲁莽的举动而爆发冲突的危险已经大大增加了。”
 
-“习近平已经清洗了高级军事人员。虽然入侵台湾的言论占了上风，但中共国的军事力量可能比我们想象的更脆弱。”
+编辑：【英国伦敦喜庄园编辑部】
 
-“实现入侵台湾的任务的任何挫败都可能以其自身政权的崩溃而告终。”
+[!\[\]()!\[\](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/nF6bcgIlL9Rad/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-“这可能导致一场危机。他已经清洗了核心部门和安全部门的官员，他身边的人都不会挑战他。”
 
-“没有得到党内认可的人根本没有发言权，外部新闻被系统地压制。”
-
-近几个月来，西方和中共国之间的关系因贸易和大流行病而恶化。
-
-台湾问题也是中共国和美国之间紧张关系的主要来源。
-
-然而，中共国主要的持不同政见者和学者蔡霞最近说，共产党政权比它看起来要脆弱得多。
-
-她说：“我建议美国为中共可能突然解体做好充分准备。”
-
-“习近平过于多疑和狭隘的个性导致了党内的不断清洗，这给中高层官员带来了极度的不满。每个人都感到不安全。”
-
-文章来源:**[https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn](https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn)**
-
-翻译:洛杉矶盘古农场 – Mike Li
-校对:洛杉矶盘古农场 – TrueSky
-编辑:洛杉矶盘古农场 – 明子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
