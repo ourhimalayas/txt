@@ -2,32 +2,27 @@
 ---
 
 
-## 暴雨令河南多市一片汪洋惨状连连 郑州进入一级应急防汛
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410381/)
+## 中共国在东海举行海军演习
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1410504/)
 
-2021年7月20日
+**《台湾新闻网》作者：Kelvin Chen，2021年7月18日报道：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20231011/0-113.png)
+**军事分析家称演习是在对抗美台关系发展。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20234853/202107-1.jpg)中共国海军在南海航行。 （美联社照片）
+台北（台湾新闻）——中共国海事局（MSA）周六（7月17日）表示，中国人民解放军海军将开始进行为期六天的演习，该演习将持续到7月21日。
+MSA周六早上发出警告说，实弹演习将在浙江省沿海的东海举行，禁止所有船只靠近。据《自由时报》报道，隔离训练区距台湾仅 243 公里。
+中共政府周六下午再次发出警告，称7月18日至8月3日还将在浙江台州举行军事演习，船舶不得进入指定训练区。
+台湾国立政治大学国际事务学院副教授陈文甲表示，这次突然的军演是为了对抗美台关系的发展。更具体地说，是对7月15日美国军机在台北松山机场短暂停留的报复。美国飞机虽然停留时间不长，但却是短时间内的第二次。
+6月6日，三名美国参议员乘坐C-17军用运输机抵达台北进行旋风访问，期间宣布捐赠75万剂疫苗。
 
-编辑摘要：
+**原文连接：**[https://www.taiwannews.com.tw/en/news/4251307](https://www.taiwannews.com.tw/en/news/4251307)
+翻译：洛杉矶盘古农场 – B7
+校对：洛杉矶盘古农场 – TrueSky
+编辑：洛杉矶盘古农场 – 轰炸机
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-中共国河南省连日来遭遇强降雨影响，多地降雨量接连打破历史记录，多处出现河流和水库水位暴涨导致溃堤和洪灾。十多个城市，包括省会郑州变成水乡泽国，灾情惨重。官方及官媒目前还没有提及有人员死亡或失联，不过社交媒体上流传的许多视频显示，有一些人已被淹死。
-
-郑州市防汛抗灾指挥部星期二（7月20日）发布紧急通知称，由于当前防汛抗灾形势十分严峻，决定从17时起将防汛II级应急响应提升至I级。
-
-郑州星期二（7月20日）曾在一个小时内下了超过200毫米的暴雨，社媒上传的视频显示，有人站在灌满齐腰深水的地铁车厢里，而建于地下的地铁站也成了水池。还有的地铁站，两边铁轨坑道内浑浊的洪水奔腾向前；并且有躺在地铁月台上的多名死者照片。
-
-根据媒体报道，河南全境目前至少有31座大中型水库水位超过防汛警戒线，其中至少13座水库有决堤的危险。
-
-【[新闻链接](https://www.voachinese.com/a/Dozens-Henan-Cities-Under-Water-Amid-Heavy-Rain-20210720/5972737.html)】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -2,50 +2,62 @@
 ---
 
 
-## 【新闻速递】福奇和保罗在听证会上互相指责对功能增益研究“撒谎”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1410404/)
+## 【秘翻在线】2020年3月泽连科医师曾公开向川普总统呼吁羫氯奎治疗方案
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410467/)
 
-译评：纽约香草山健身部 文真
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+撰稿:牛小妹
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20234321/p-10.jpg)
+图片:网路
 
-在周二的参议院听证会上，福奇医生（Dr. Anthony Fauci）和保罗参议员（Sen. Rand Paul）相互指责对方在功能增益研究方面“撒谎”。
+2020年3月20日，泽连科医师就已经公开呼吁实施羫氯奎的院外治疗,并宣称零死亡率、零住院和零插管 ，这样惊人的有效治疗成效，为什么各国政府及科技寡头仍企图掩盖真相?以下是佛拉基米尔．泽连科( Vladimir(Zev) Zelendo)医师对致以色列卫生部的公开信。
 
-![]()![](https://a57.foxnews.com/static.foxnews.com/foxnews.com/content/uploads/2021/06/640/320/Anthony-Fauci-testifies-Washington-DC.jpg?ve=1&amp;tl=1)图片来源：Getty Image
+佛拉基米尔．泽连科医师
 
-在对福奇的提问中，保罗指责福奇在之前的证词中对国会撒谎——福奇称NIAID从来没有资助过中共国的功能增益研究。保罗引用一篇关于蝙蝠冠状病毒研究的论文说，美国的钱基本上都用于危险和有争议的研究上——福奇强烈反对这一说法。
+认证家庭医生
 
-福奇否认对国会撒谎，他不承认有功能增益实验。福奇认为，疫苗非常有效地应对Delta变种新冠病毒对美国疫情的影响。同时，福奇还反对任何关于他或NIH可能以某种方式对COVID-19病毒负责的暗示——保罗否认他这样暗示——福奇表示，有关的研究制造了病毒“在分子上不可能”成为该疾病的起源。
+连络电话 845-238-0000
 
-此次听证会的目的是审视摆脱新冠大流行的“前行之路”。Delta变种新冠病例在过去两周内持续激增，估计占美国COVID-19病例总数的83%。疾病控制和预防中心（CDC）主任罗谢尔-瓦伦斯基（Rochelle Walensky）在听证会上也被问及接下来的健康措施，例如公共交通工具上的口罩规定和学校儿童的疫苗规定。对Delta变种病毒的担忧导致一些人呼吁恢复大流行时期的严格卫生措施。卫生与公众服务部部长泽维尔-贝塞拉（Xavier Becerra）周一发布了更新声明，由于Delta变种，“公共卫生紧急情况”生效。
+2020年3月20日
 
-福奇和瓦伦斯基在听证会中强调疫苗对于阻止Delta变种新冠病毒传播的重要性，但这显得过分乐观。事实上，Delta变种新冠病毒在疫苗高接种率的以色列大爆发已经表明了疫苗难以有效预防Delta变种病毒。另外，由Delta变种新冠病毒导致的病例激增引发了民众对经济复苏的担忧，这导致本周美股的大幅波动。其次，实验性疫苗的广泛接种所导致的各种副作用并发症不断地在社交媒体上被曝光，疫苗次生灾难只是刚刚开始。
+致以色列卫生部：
 
-参考阅读：
+我是佛拉基米尔．泽连科医师，我在纽约门罗村行医。在过去的 16 年里，我照顾了大约 75% 的卡雅思乔尔村(Kiryas Joel) 成年人口，这是大约 35,000 人属于犹太哈德西教派的经典圣地。 截至今天为止，65% 的 Covid-19 测试结果为阳性。如果推算到整个社区，目前很可能超过 20,000 人是被感染。 Kiryas Joel 居民的平均年龄在 15 岁左右。我估计大约有 1500 名患者属于高危类别（即&gt; 60，免疫功能低下，合并症等）。
 
-[Fauci, Rand Paul trade ‘lying’ accusations about gain-of-function research in hearing on delta variant](https://www.foxnews.com/politics/fauci-walensky-masks-virus-rules-delta-covid-spread-senate-hearing?fbclid=IwAR2id84FmdTfgquJCQa1GBJA5THa92zQG-kRC0CN50zi7FbOTGAnNDPzD0w)
+我为院外门诊制定了以下治疗方案：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+1-     任何呼吸急促的患者，无论年龄大小，我都会治疗。
 
-编辑/校对/发稿：Irene木木
+2-     任何症状轻微的高危患者，我都会治疗。
 
-**更多资讯，更多关注**
+3-     我不治疗年轻和低危患者，除非他们有呼吸急促。
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我要特别感谢川普总统批准羟氯喹用于对抗中共病毒。
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+我的治疗方案如下：
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+1- 羟氯喹 200 毫克，一粒，每天两次，连续五天
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+2- 阿奇霉素 500 毫克，每天一粒，连续五天
+
+3- 硫酸锌 220 毫克，每天一粒，连续五天
+
+我的治疗计划的基本原理如下，我将中共国和韩国的数据与法国最近发表的研究结合起来。我们知道羟氯喹有助于锌进入细胞。我们知道锌会减缓细胞内病毒的复制。关于阿奇霉素的使用，我推测它可能会预防继发性细菌感染，但我不确定。这三种药物是众所周知的并且通常耐受性良好，因此对患者的风险很低。
+
+自上周四以来，我的团队已经在卡雅思乔尔治疗了大约 350 名患者，我已经治疗了大约 150 名纽约州蒙西和纽约市。我可以肯定地报告说，自星期四以来，我们在卡雅思乔尔 的零死亡、零住院和零插管。我从医学上建议卡雅思乔尔希伯来志愿紧急医疗服务 组织( Kiryas Joel Hatzolah )，并且我完全了解他们的医疗数据。据我所知，我的 150 名院外治疗患者的一切都很好，感谢神。我并没有看到这种治疗产生任何严重的副作用。我只见过大约 10% 的患者因服药而出现恶心和腹泻。
+
+总之，我的建议是尽快对适当的患者实施”院外门诊治疗”，这项治疗方向正可以预防急性呼吸窘迫综合征 (ARDS) 和任何呼吸支持的需要。
+
+非常尊重，
+
+佛拉基米尔．泽连科医师
+
+副本：唐纳德•J•川普总统
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+资料来源：[Coronavirus: Letter from Dr. Zelenko to Israel Ministry of Health and President Trump](Letter%20from%20Dr.%20Zelenko%20to%20Israel%20Ministry%20of%20Health%20and%20President%20Trump)
 
 
 

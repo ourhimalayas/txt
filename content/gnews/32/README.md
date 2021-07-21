@@ -2,25 +2,18 @@
 ---
 
 
-## 郑州洪水 地铁内多人被困并有死伤
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410278/)
+## 南京机场9工作人员确诊新冠肺炎 250多架次航班受影响
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1410611/)
 
 2021年7月20日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20224002/0-109.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20235514/0-3-6.png)
 
 编辑摘要：
 
-7月20日晚，因特大暴雨郑州地铁灌水，数百名乘客被困车厢在齐腰甚至齐胸深的水中求救。
+据台湾中央社报道，在南京禄口国际机场工作人员定期新冠病毒核酸检测采样中，20日有9人检测结果呈阳性。南京禄口国际机场20日计划起降航班405架次，截至20日晚间11时，已取消105架次，延误151架次。
 
-获救人数不明，但有多名死者照片在社交媒体上流传。
-
-- [来自推特视频1](https://twitter.com/woodmank417/status/1417533412038955011?s=21)
-- [来自推特视频2](https://twitter.com/mroilman/status/1417529591300726789?s=21)
-- [来自推特视频3](https://twitter.com/snowgf3/status/1417489315786018816?s=21)
-
-
-【[新闻链接](https://twitter.com/jenniferatntd/status/1417610838232477699?s=21)】
+【[新闻链接](https://www.rfa.org/mandarin/Xinwen/10-07202021173420.html)】
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)

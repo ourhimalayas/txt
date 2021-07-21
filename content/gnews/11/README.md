@@ -2,20 +2,22 @@
 ---
 
 
-## 【秘翻在线】超八成美新感染病例为 Delta 变体感染
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410426/)
+## 【秘翻在线】东京奥运会：首位感染中共病毒的美参赛选手已接种过疫苗
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1410522/)
 
-#### 翻译：坤霆
+#### 撰稿：喜相逢
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20232053/%E5%AF%B9%E7%9A%84.jpg)图片来源：网易
-据路透社7月21日报道，福奇在周二的听证会上一改往日的假装冷静的态度，对参议院保罗进行了反击：“保罗， 我从未对国会撒谎……你不知道你在说什么。” 善于伪装的福奇撑大了嗓门还用手指指着对方。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/20235036/%E5%A5%A5.jpg)图片来源：网络截图
+据美联社和CNA 综合报道， 目前东京奥运会中共病毒病例感染人数已上升至71例。 18岁新星，美国体操候补队员卡拉艾克（Kara Eaker）成为美国第一个检测出阳性的美国人， 而她在两个月前刚刚接种完整疫苗，而且是无症状感染者。 她与另一名替补选手正在东京单独的住宿场所隔离。 而且，艾克是在“假阳性”的测试结果之后多次测试的最终结果。
 
-这位来自肯塔基的参议员几次在听证会上指控福奇用国家卫生研究院的资金资助了武汉病毒研究所。这笔资金在该研究所研究新冠病毒上发挥了作用。
+目前的确诊人数中， 28人来自各国代表团，33人为日方工作人员。 其中，南非足球代表队抵达日本一周后有3人确诊。美国代表团中除艾克外，还有3人染疫。
 
-福奇还指出，今年早期在印度冠状病毒大爆发时发现的delta变体在美国新感染的病例中占了超过80%。同时还强调了疫苗在预防住院和死亡方面的有效率仍然超过了90%。
+ESPN 记者分析称，备战奥运已承受非人压力， 东京奥运会也严格限制随团人员人数，没有家人陪伴，没有观众掌声， 更要面临因为接触史或筛检阳性之后的隔离程序。
 
-保罗在听证会上对福奇说，如果在国会撒谎被抓获……根据美国刑法，将构成重罪，并面临五年的监禁。
+新闻来源:
 
-原文链接：[Delta variant behind more than 80% of U.S. cases, Fauci says](https://www.reuters.com/business/healthcare-pharmaceuticals/delta-variant-behind-more-than-80-us-cases-vaccines-still-highly-effective-fauci-2021-07-20/)
+1. [美國隊3人確診 各國選手承受「染疫即退賽」壓力](https://www.cna.com.tw/news/aspt/202107210013.aspx)
+2. [US Olympic gymnastics alternate tests positive for virus](https://apnews.com/article/gymnast-covid-2020-tokyo-olympics-44e21e98694b6c82cb57429bf8af4644)
+
 
 0
