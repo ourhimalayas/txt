@@ -2,25 +2,19 @@
 ---
 
 
-## 【秘翻在线】中共国智能手机二季度全球销量占据三分之一强
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411298/)
+## 【秘翻在线】参议员兰德保罗：福奇因向国会撒谎该被判刑
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411329/)
 
-#### 搜索/采集/撰稿：彩虹     
+#### 撰稿：zzballack
 
-#### 校对： Chris
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21050126/21071.jpg)图片来源：nengjiansjkx.com
-美国《新闻周刊（Newsweek）》高级记者杰森·雷蒙（Jason Lemon）7月17日报道，根据独立分析公司Canalys的数据显示，中共国公司生产的智能手机在全球二季度销量中占据三分之一以上份额。
+#### 校对：Chris
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21052326/210702.jpg)图片来源：businessinsider
+据The Post Millennial 7月21日报道，7月20日晚上，共和党参议员兰德·保罗（Rand Paul）在接受福克斯主持人肖恩·汉尼蒂 (Sean Hannity)采访时说，他将送一份刑事转介信给司法部，要求其对福奇进行刑事调查。
 
-其中，三星（Samsung）手机以19%位居榜首，而小米（Xiaomi）则超过了苹果以17%的份额位居第二名，其次是苹果（Apple）14%，而另两家中共国公司OPPO和Vivo 分别占10%位列第四和第五名。
+保罗说：“我有证据表明福奇对国会撒谎，根据联邦法律可判其最高5年的监禁重罪。另外在中共病毒问题上与福奇有不同观点的医学专家不敢在公众面前表达他们的异议，是因为害怕其研究资金受到影响。我每时每刻都会收到不信任福奇言论的科学家的来信，他们说福奇的话没有任何道理，认为他不能准确的读懂科学文献。福奇自1984年开始就担任美国国家过敏和传染病研究所（NIAID）的主任，至今38年了，他掌控了所有的资金。不敢公开表达反对意见中的很多人都是大学的科学家，他们非常依赖国立卫生研究院（NIH）的资金，与福奇对峙意味着他们再也无法获得资助。”
 
-分析显示，小米的销售额在第二季度增长了高达83%，而三星的销售额仅增长了15%。同时，苹果公司几乎没有增长，只增长了1%。
+兰德保罗被认为是最直言不畏的福奇批评者之一。在7月20日早上的国会听证会上，他再次就功能增强研究质问福奇。保罗向国会递交了一篇在2017年发表的名为《Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus》的论文，作者之一的石正丽在文中概述了被保罗称为“功能增强研究“的过程，“把两种蝙蝠冠状病毒的刺突基因和一个SARS有关的骨架组合在一起，创造了一个在自然界中不存在的病毒，并且可以在人体中复制。”石正丽说NIH为此研究提供了大量的资金，她对此表示感谢。保罗说这个研究符合NIH之前对功能增强研究的定义，自然界中只对动物起作用的病毒经武汉实验室的改造后获得了感染人类的功能，这充分证明了福奇声称他从未资助过武毒所的功能增强研究是个彻头彻尾的谎言。
 
-Canalys研究经理本·斯坦顿（Ben Stanton）在其组织的网站上发表声明，指小米主要销售比三星和苹果便宜得多的手机。他说：“不过，它在很大程度上仍然偏向于大众市场，与三星和苹果相比，其平均售价分别便宜了40%和75%左右。”
-
-文章指出，小米公司作为一家跨国公司，在川普总统离开白宫前，将其加入了与中共军方有关联的出口管制名单，但在拜登入主白宫后，该公司就这一指定对国防部和财政部提出了法律申诉。由于诉讼，美国最终在5月初同意将小米从黑名单上删除。
-
-之前彭博社(Bloomberg)报道说，如果美国没有撤回该决定，这家中共国电子巨头将从美国交易所退市，并从全球基准指数中删除。尽管美国政府作出了决定，但白宫国家安全委员会发言人艾米丽·霍恩(Emily Horne)在当时发表的一份声明中说：“拜登政府对美国在与中国军方有联系的公司的潜在投资深表关切，并完全致力于对这些公司保持压力。”
-
-新闻来源：[Xiaomi, Accused by Trump of Chinese Military Ties, Overtakes Apple in Smartphone Sales](https://www.newsweek.com/xiaomi-accused-trump-chinese-military-ties-overtakes-apple-smartphone-sales-1610733)
+新闻来源：[BREAKING: Rand Paul will send letter to DOJ asking for criminal referral on Fauci](https://thepostmillennial.com/breaking-rand-paul-will-send-criminal-referral-letter-about-fauci-to-the-doj)
 
 0

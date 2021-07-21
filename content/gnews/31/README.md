@@ -2,31 +2,17 @@
 ---
 
 
-## 【秘翻在线】国土安全委员会委员投资中共公司股票
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411404/)
+## 【秘翻在线】美参议员指责福奇在病毒功能增强研究上做虚假陈述
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411462/)
 
-#### 搜索/采集/撰稿：彩虹
+#### 采集/翻译/撰稿：sisyphus（天元）
 
 #### 校对： Chris
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21054614/210703.jpg)图片来源：cn.wsj.com
-7月19日，《国家脉动》（The National Pulse）调查记者娜塔莉·温特斯（Natalie Winters）推出独家文章，报道在众议院金融服务委员会,国家安全、国际发展和货币政策小组委员会以及众议院国土安全委员会任职的乔什·戈特海默（Josh Gottheimer）议员，投资过至少6家中共控制的上市公司股票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21062235/210704.jpg)图片来源：CNBC
+据零对冲(Zero Hedge)7月21报道，美国参议院兰德·保罗（Rand Paul）周二指责福奇（Fauci）博士5月份在国家卫生研究院资助武汉病毒研究所的蝙蝠冠状病毒功能增强研究方面做虚假陈述。而福奇博士再次声称美国从未资助过武汉病毒研究所的功能增强项目。
 
-自2017年以来一直代表新泽西州第五国会选区的戈特海默，在他最近的财务披露表中披露了中共与他之间的财务关系。该财务表表明他与中共领导的公司关系密切，其投资公司中包括被美国国务院和国防部标记的公司。
+据以前各大媒体报道，福奇博士领导的美国国立卫生研究院有效的资助了武汉病毒研究所的蝙蝠冠状病毒的大部分功能增强研究。连华盛顿邮报（The Washington Post）也正式报道武汉病毒研究所与美国大学和机构合作公开参与了功能增强研究。 据多名川普政府官员表示，在美国病毒功能增强研究是被禁止的，但当时福奇博士没有向白宫的高层人士提出重启研究经费的问题。所有人都不知道他要重新开启功能增强研究。《澳大利亚周末报》也证实当时的中央情报局局长迈克·彭培奥（Mike Pompeo）和国家安全委员会成员马修·波廷格（Matthew Pottinger）都没有得到通报。
 
-2019年3月15日，戈特海默购买了价值1001美元至15000美元的中国移动股票，后来在2019年12月10日卖出了该证券，而美国国防部认定中国移动是中国人民解放军几十年的合作者。
-
-戈特海默在2019年11月26日和12月6日的交易中购买了阿里巴巴股票，价值高达15,000美元。
-
-2019年1月29日，他购买了腾讯股票，价值高达15,000美元。
-
-在2019年12月10日出售价值1001美元至15000美元的百度公司证券后，戈特海默还保留了最多1000美元的股票。
-
-而腾讯、阿里巴巴和百度被美国国务院标记为 “共产党影响和控制工具 “的中国科技公司。
-
-他还在2019年3月18日购买了高达15000美元的平安保险的股票，其主要股东包括中国共产党员和中共国有实体公司。
-
-作为负责美国国家安全的相关公务人员，在明知道中共威胁的情况下，仍然投资相关中共控制的上市公司股票，其背后的目的和原因，令人不寒而栗。
-
-新闻来源：[Clinton Protégé Congressman Serving on National Security Committees Invested In At Least SIX Chinese Communist Party-Linked Firms, Including Military Proxies.](https://thenationalpulse.com/exclusive/josh-gottheimer-invested-in-ccp-linked-companies/)
+新闻来源：[“You Don’t Know What You’re Talking About” – Frazzled Fauci Erupts After Latest Rand Paul Grilling](https://www.zerohedge.com/political/rand-paul-accuses-dr-fauci-lying-about-nih-funding-illegal-gain-function-research)
 
 0
