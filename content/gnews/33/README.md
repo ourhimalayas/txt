@@ -2,19 +2,17 @@
 ---
 
 
-## 常庄水库泄洪时间矛盾，无视公民生命财产安全
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1411412/)
+## 【秘翻在线】美参议员指责福奇在病毒功能增强研究上做虚假陈述
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411462/)
 
-撰稿：东京樱花团/知了知了
+#### 采集/翻译/撰稿：sisyphus（天元）
 
-校对:东京樱花团/喜马拉雅的微尘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21055332/merlin_191080176_6c8ee4ce-2743-4ce5-8f07-8747b66111d5-master1050.jpg)
-近日，郑州市遭遇持续强降雨，内涝严重，地铁坍塌，7月20日常庄水库出现险情，当局会商决定泄洪。据郑州市委宣传部微博官媒“郑州”发布的21日报道，20日上午10时30分，常庄水库开始向下游泄洪，截至当日21时34分，距当日最高水位已回落70厘米。而“人民日报”于7月20日晚10时30分发出警报称，河南郑州中牟县防汛抗旱指挥部7月20日发布通告，常庄水库将于7月20日晚泄洪。 常庄水库距西三环仅两公里，其泄洪通道穿过市区，水库泄洪会阻碍市区降雨排除，加剧市区内涝。20日上午，郑州市区仍有大量人流车流出行，而官方决定泄洪，导致郑州市内涝突然加剧，房屋被淹、地面塌陷和地铁灌水等灾难频发，公民生命财产受到了极大损失。若官方在泄洪前做好应急预案，及时发布消息劝阻居民出行，停止各类地下交通运行，或可减少损失。
+#### 校对： Chris
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21062235/210704.jpg)图片来源：CNBC
+据零对冲(Zero Hedge)7月21报道，美国参议院兰德·保罗（Rand Paul）周二指责福奇（Fauci）博士5月份在国家卫生研究院资助武汉病毒研究所的蝙蝠冠状病毒功能增强研究方面做虚假陈述。而福奇博士再次声称美国从未资助过武汉病毒研究所的功能增强项目。
 
-信息来源：[https://m.weibo.cn/status/4661201264709039](https://m.weibo.cn/status/4661201264709039)
+据以前各大媒体报道，福奇博士领导的美国国立卫生研究院有效的资助了武汉病毒研究所的蝙蝠冠状病毒的大部分功能增强研究。连华盛顿邮报（The Washington Post）也正式报道武汉病毒研究所与美国大学和机构合作公开参与了功能增强研究。 据多名川普政府官员表示，在美国病毒功能增强研究是被禁止的，但当时福奇博士没有向白宫的高层人士提出重启研究经费的问题。所有人都不知道他要重新开启功能增强研究。《澳大利亚周末报》也证实当时的中央情报局局长迈克·彭培奥（Mike Pompeo）和国家安全委员会成员马修·波廷格（Matthew Pottinger）都没有得到通报。
 
-（文章仅代表作者本人观点）
+新闻来源：[“You Don’t Know What You’re Talking About” – Frazzled Fauci Erupts After Latest Rand Paul Grilling](https://www.zerohedge.com/political/rand-paul-accuses-dr-fauci-lying-about-nih-funding-illegal-gain-function-research)
 
-发布：东京樱花团/喜马拉雅的微尘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/17041633/image0-1-37.jpg)
-+1
+0

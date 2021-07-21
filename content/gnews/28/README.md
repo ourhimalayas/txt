@@ -2,56 +2,35 @@
 ---
 
 
-## 【秘翻在线】初步窥探中共病毒疫苗中的氧化石墨烯
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1411492/)
+## 【樱花宅急便】7.21元朗恐袭两周年
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1411633/)
 
-#### 撰稿：zzballack
+作者：东京樱花团｜阿恩
 
-#### 校对：Chris
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21064505/210705.png)图片来源：siteintelgroup
-中共病毒疫苗有很多副作用，更奇怪的是接种了疫苗的人成了“万磁王”，身体有了磁力，能吸住一些金属物品。全球有良知的科学家纷纷抨击未经过第三期临床试验和美国食品药品监管局批准的疫苗如此仓促地大范围推广会酿成灾难性的后果。除了疫苗产生的数亿个刺突蛋白会对人体有害外，研究人员还发现疫苗中还有其他成分氧化石墨烯（Graphite Oxide），而且所占比例高达99%，这着实让人震惊，这也许可以解释为什么接种疫苗的人会成为“磁化人”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21074541/721yuanlang.jpg)
 
-我们先看一张图。某人获得了一个有辉瑞疫苗残留物的注射器，并用显微镜放大100倍观察一滴辉瑞疫苗，结果发现在疫苗中有大量的细丝状东西。从第7到第9张图片可以看出，这些细丝在遇到血液或唾液时是如何反应的，把发现的目标对象紧紧缠住。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21064625/210706.jpg)图片来源：https://gettr.com/post/p4qz9j
-在显微镜下观察辉瑞疫苗，还可以观察到好像某种形式的原型纳米机器人或智能物质被设定用于攻击人体细胞。相关视频：[https://gettr.com/post/p4r9d4](https://gettr.com/post/p4r9d4)
+2019年的今天，元朗地铁站发生了由上百名“白衣人”持藤条和铁通痛殴香港市民的惨剧，现场女记者冒死直播，被殴至头破血流也不曾停止将“白衣人”的罪行展现在全球观众的眼前，镜头所见，“白衣人”实行无差别行凶，无论男老幼，甚至孕妇也惨遭毒手，大批手无寸铁的市民被围堵在元朗地铁站内，惊叫声、哭喊声响彻站内……
 
-西班牙的科学家发现这些细丝很像是氧化石墨烯，并且在mRNA疫苗中的占比高达99.9%。所以说这些“疫苗”根本不是疫苗，而是毒药，目的在于杀人。这是一项人类实验，人们在无知的情況下接受了致命成份。氧化石墨烯納米粒子会被脂质纳米颗粒（Lipid nanoparticles）帶入细胞內，导致免疫系统崩溃，和随后的細胞因子风暴。积聚在肺部的氧化石墨烯會通過在肺泡道中均勻傳播而产生双侧肺炎。吸入它以后会导致粘膜发炎，从而导致味觉丧失，嗅觉部分或全部丧失。氧化石墨烯在生物体内能夠获得強大的磁性，使得接种者称为“万磁王”。另外还会引起女性不孕不育、心肌炎、肺炎、猝死等。
+截至今日，参与恐袭的上百名“白衣人”，仅7人被定暴动、有意图伤人等罪罪成。而这两年间，成千反逃犯条例的市民被香港警方抓捕，民主派成为港府重点打击的目标，其骨干成员、立法会议员和区议员陆续被捕、被羁押以及被判囚；在7.21元朗恐袭事件中的受害者立法会议员林卓廷从原告变成被告，目前被长期羁押；当年报案被“白衣人”殴打得偏题鳞伤的厨师苏先生和林婆婆因被警方玩弄证据而被迫撤销控诉；报道7.21事件的专题编导蔡玉玲也被扣上违法查牌条例被法院判罚……（[资料来源（1）](https://www.thestandnews.com/politics/%E7%B9%BC%E7%BA%8C%E8%BF%BD%E5%B0%8B-721-%E5%A4%A7%E6%95%B8%E6%93%9A%E5%9B%9E%E6%BA%AF%E5%8F%AF%E7%96%91%E6%96%87%E5%AE%A3-%E9%96%89%E8%B7%AF%E9%9B%BB%E8%A6%96%E5%AE%9A%E6%A0%BC%E8%9B%9B%E7%B5%B2%E9%A6%AC%E8%BF%B9)）
 
+2020年7月21日，香港市民不惧警察在元朗的千人布防坚持纪念，警方大规模截查和票控记者，当日票控159人违反「限聚令」，并拘捕7人。（[资料来源（2）](https://zh.wikipedia.org/wiki/%E5%85%83%E6%9C%97%E8%A5%B2%E6%93%8A%E4%BA%8B%E4%BB%B6%E4%B8%80%E9%80%B1%E5%B9%B4)）
 
+2021年香港的传媒界已经被中共搅得天翻地覆，大量的自媒体迁出香港，本地知名媒体被迫结业，地方电视台均被中共接管，所有的节目都要进行过滤，不合规的全部删除及停播，大批媒体从业人员被迫离开工作岗位，不少名人主播如曾志豪等不甘与中共同流合污而奔走异国他乡，更有知名专栏作者冯伟光在香港国际机场被警方拘捕。
 
-> 🆘疫苗真的很危險！最好現在就停止一切接種⁉️ [pic.twitter.com/9HUdw1pMKL](https://t.co/9HUdw1pMKL)
-> — NFSC.喜台農.IIII (@NfscSuperpower) [July 6, 2021](https://twitter.com/NfscSuperpower/status/1412453407009296384?ref_src=twsrc%5Etfw)
+反逃犯条例（反送中）运动后，几乎每周都是香港人的纪念日，这些已记入历史的事件成为了香港人的精神财富，虽然所有参与其中的人均面临被港共政府检控的风险，但这种舍生忘死的经历只会锻造更坚强的信念。中共非常惧怕香港人的团结和打不死的信念，但独裁政权无法控制人的精神，它的走狗们只想从物质层面麻痹港人，如增加公屋供应，改善居住条件，保障低收入，提供更多年轻人就业机会…… 这些民主国家基本的社服资源，在中共的嘴中就成了“造福港人”的千秋大业，是“难得的恩典”。
 
+难怪圣经上说：
 
+*愚昧人不喜欢明白事理，只喜欢显露自己的心意。*
 
+*愚昧人的嘴引起纷争，他的口招来责打。*
 
+*愚昧人的口自取灭亡，他的嘴唇是自己性命的网罗。*
 
-> 看這個。 [pic.twitter.com/V3EL41m8IX](https://t.co/V3EL41m8IX)
-> — RICHARD FULL (@RICHARD08999364) [July 2, 2021](https://twitter.com/RICHARD08999364/status/1411026710892625920?ref_src=twsrc%5Etfw)
+今年的7.21，香港没有纪念活动，因为香港人已将纪念的火种带到全球，之后的每个纪念日，全球都会亮起自由民主的星星之火，等候上帝的旨意再次聚拢。
 
-
-
-
-
-> 打了疫苗後你的红血球细胞變…..😱 [pic.twitter.com/anYVc5BU2L](https://t.co/anYVc5BU2L)
-> — 文德 (台灣寶島農場) GETTR @dching (@DCAtomy) [July 16, 2021](https://twitter.com/DCAtomy/status/1416058687571980293?ref_src=twsrc%5Etfw)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21065224/210706.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21065243/210708.png)
-另外，上海交通大学樊春海院士、中科院上海高等研究院诸颖研究员等人研究了在最大安全起始剂量下，血液暴露于氧化石墨烯（graphite oxide，GO）对BALB/c小鼠和非人灵长类动物（食蟹猕猴）的影响。研究表明GO进入血液后可能导致非人灵长类动物的过敏性死亡，成果发表于Nano Today上。
-
-
-
-> 上海交通大学樊春海院士、中科院上海高等研究院诸颖研究员等人研究了在最大安全起始剂量下，血液暴露于GOs对BALB/c小鼠和非人灵长类动物（食蟹猕猴）的影响。研究表明GO的血液暴露可能诱导非人灵长类动物的过敏性死亡，成果发表于Nano Today上。GO是疫苗99％的成分！ [pic.twitter.com/9RUcuxt538](https://t.co/9RUcuxt538)
-> — Rural 猫 (@Rural\_cat1) [July 20, 2021](https://twitter.com/Rural_cat1/status/1417341406847197185?ref_src=twsrc%5Etfw)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21070734/Screenshot-2021-07-21-210704.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21070852/Screenshot-2021-07-21-210757.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21070921/Screenshot-2021-07-21-210808.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21070958/Screenshot-2021-07-21-210820.png)
-新闻来源：
-
-1. [PFIZER輝瑞瓶原形畢露](https://cofacts.tw/article/gf4nyiys0n1)
-2. [含有氧化石墨烯納米顆粒的有：](https://cofacts.tw/article/2zgvpqdhst4i9)
-3. [惊!疫苗99%成分为凝血强毒性氧化石墨烯纳米佐剂](https://m.creaders.net/blog/d/408360)
-
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 野猫*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21070812/image0-1-51.jpg)
 0
