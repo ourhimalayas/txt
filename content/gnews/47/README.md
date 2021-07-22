@@ -2,45 +2,41 @@
 ---
 
 
-## 共和党高层人士涌入杰森-米勒的新社交媒体平台GETTR
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1413404/)
+## 【聚焦澳洲】澳拟出手阻止中共控制太平洋岛国网络
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1413459/)
 
-据《纽约邮报》作者：[David Marcus](https://nypost.com/author/david-marcus/)，2021年7月20日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003617/BBE8BF5E-767D-4E63-B361-189E1178AFD6.jpeg)*前唐纳德-川普顾问杰森-米勒上个月刚刚推出GETTER.Getty Images*
-GETTR已经得到了一些大的收获。
+#### **雅典娜【聚焦澳洲】，汇聚澳洲时事分析报道**
 
-前唐纳德-川普顾问杰森-米勒(Jason Miller)上个月推出的社交媒体平台正在有一大批共和党高级官员加入其网站。
+#### 作者：小红帽
 
-国会中已经注册的主要人物包括众议院少数党领袖凯文-麦卡锡(Kevin McCarthy)，会议主席伊利斯-斯特凡尼克(Elise Stefanik)，以及众议员吉姆-乔丹(Jim Jordan)，众议员李-泽尔丁(Lee Zeldin)，参议员詹姆斯-兰克福德(James Lankford)和一系列其他人。
+#### 编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22012015/Digicel.jpg)
+图片来源：The Irish Times
 
-GETTR被作为推特的竞争对手，推特因广泛的审查制度和阻止访问合法的新闻报道而受到批评，例如《邮报》关于亨特-拜登笔记本电脑的爆炸性报道。
+根据《[自由亚洲电台》](https://www.rfa.org/mandarin/Xinwen/10-07192021151512.html)7月19日报道，澳洲最大电信企业——澳大利亚电信公司(Telstra公司)宣布，正考虑在巴布亚新几内亚、斐济、瑙鲁、萨摩亚、汤加和瓦努阿图等六个太平洋岛国收购移动网络，澳大利亚政府将帮助支付相关收购款项。《华尔街日报》的报道指出，如果相关协议达成，这将是澳大利亚政府为限制中共国在该地区、特别是在电信领域的影响力，而采取的最新举措。
 
-许多共和党人，甚至民主党人都推动使用监管变革，迫使推特以更高的透明度运作–而其他立法者则认为，推特是一家私营公司，答案是由其他人来建立新的竞争平台，这正是米勒所做的。
+[Telstra公司](https://www.reuters.com/business/media-telecom/telstra-talks-buy-digicel-pacific-with-australian-government-help-2021-07-18/)表示，澳大利亚政府将为总部位于牙买加的Digicel提供大部分资金。Digicel是太平洋地区最大的移动电话运营商，在巴布亚新几内亚、斐济、萨摩亚、瓦努阿图和塔希提岛开展业务。去年Digicel曾经否认，考虑将其太平洋业务出售给中共国有企业中国移动有限公司。由于Digicel是太平洋地区网络业务的主要参与者，澳大利亚政府将Digicel视为重要战略资产，认为不能让其落入中共的手中。
 
-米勒告诉《邮报》，该平台现在有150万用户，其中45%在美国，15%在巴西，其余的用户来自不同的国家。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003715/4E47B358-DEF8-4D8E-8723-60E146A68584.png)*杰森-米勒正在努力扩大该网站的意识形态吸引力，并希望聘请一名民主党人主管参与经营。Getty Images*
-GETTR的推出正值拜登政府被批评为试图影响Facebook等社交媒体网络来审查白宫认为的“错误信息”。
+Telstra公司承认，澳大利亚政府最先与其进行了接洽，并提供了有关收购Digicel的技术建议。这项具有高度吸引力的商业资产，对太平洋地区的电信安全至关重要。尽管Telstra公司没有提供澳大利亚政府具体的支持金额，但是有澳大利亚媒体报道称，这笔交易总价值约20亿澳元（15亿美元），其中澳大利亚政府将支付约15亿澳元。
 
-“社交媒体巨头正在与乔-拜登合作，”米勒说：“这很危险。”
+早在2018年9月28日[澳大利亚国家广播公司](http://mil.news.sina.com.cn/china/2018-09-29/doc-ifxeuwwr9389614.shtml)就曾报道，美国驻澳大利亚代理大使卡鲁索（James Carouso）表示，美国正与日本和澳大利亚合作，针对华为的方案制定一项“反要约”（counter offer）。美国、日本、澳大利亚三国在2018年7月建立三方合作伙伴关系，共同投资“印太”地区，力图与中共国“一带一路”倡议下迅速扩张的新项目竞争。当时，澳大利亚以国家安全为由将华为排除在全国移动通讯网络的承包名单之外。后来，华为的该项目继续遭到美国及其盟友的“积极反制”，因为该项目被认为是中共在该地区深化外交关系并提高援助以加强其影响力的做法。
 
-他接着说：“只有在他们喜欢的情况下，言论自由对他们才重要。”
+中共一直致力于扩大在太平洋地区的影响力，其方式包括向太平洋小国提供贷款和外援，以及购买港口等具有战略意义的重要资产。随着澳大利亚与中共对抗的加剧，澳大利亚为了本地区的电信安全，提出了收购太平洋岛国电信网络的举动。有外交政策专家认为，这是为了阻止中共涉足当地具有重要战略性的领域。
 
-虽然目前被视为主要是保守派的平台，但米勒说，GETTR正在努力扩大网站的意识形态吸引力，并希望在不久的将来聘请一名民主党人主管参与经营。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003933/CDC7735F-4168-44E0-A6AD-C31729CFFE46.png)众议院少数党领袖凯文-麦卡锡(Kevin McCarthy)已注册该平台。Getty Images ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003953/03D4F467-38BF-4E58-BF33-EE56726BAB09.png)会议主席伊利斯-斯特凡尼克也注册了Twitter的替代方案－Getter。CQ-Roll Call, Inc via Getty Images![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22004019/5DB1530E-002A-4F37-A359-A387DA9BB8CF.png)众议员吉姆-乔丹是注册该应用程序的主要共和党人之一。Getty Images
-前总统川普尚未加入这个新平台，但本月他对大型科技巨头Facebook、Twitter和YouTube提起诉讼，因为它们关闭了他的账户并对其他保守派采取类似行动，他称之为“对美国人民进行非法和可耻的审查”。
+（文章内容仅代表作者观点）
 
-这些集体诉讼文件要求对所谓的违反第一修正案的行为进行未指明的赔偿，川普说，这些赔偿总额可能达到“数万亿美元”。
+**参考链接：**
 
-川普还要求联邦法官推翻1996年授予互联网公司的有争议的豁免保护，宣布《通信礼仪法》第230条违宪。
+1、[这个太平洋岛国与华为合作网络基建 美日澳要搅黄|巴布亚新几内亚|澳大利亚|华为\_新浪军事\_新浪网 (sina.com.cn)](http://mil.news.sina.com.cn/china/2018-09-29/doc-ifxeuwwr9389614.shtml)
 
-原文连接[https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/](https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/)
+2、[澳大利亚寻求向太平洋岛国提供融资 阻止中国收购移动网络 — 普通话主页 (rfa.org)](https://www.rfa.org/mandarin/Xinwen/10-07192021151512.html)
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 轰炸机
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+3、[Telstra in talks to buy Digicel Pacific in Australian govt-backed bid | Reuters](https://www.reuters.com/business/media-telecom/telstra-talks-buy-digicel-pacific-with-australian-government-help-2021-07-18/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-0
++2
