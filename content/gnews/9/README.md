@@ -2,22 +2,37 @@
 ---
 
 
-## 【秘翻在线】拜登竭力敦促美国人接种疫苗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413278/)
+## 【有声读物】美国因英国COVID-19疫情向国民发出旅行警告
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1413356/)
 
-#### 编译：喜相逢
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21233633/bb-1.jpg)图片来源：axios.com
-据美联社最新报道，美国总统拜登在俄亥俄州辛辛那提的电视市政厅发言时再次提到关于接种疫苗等话题。
+录音：教育部 蒙古鸿雁
 
-拜登对12岁以下的儿童能够在未来几个月批准接种疫苗表示乐观，但同时对不愿意接种疫苗的美国人表示极度的愤慨。由于Delta变异毒株的迅速传播而激增的感染病例，拜登认为公共卫生的危机已经等同于未接种疫苗的困境，并且对美国放缓的疫苗接种率表示失望，恳请美国人加紧接种疫苗。
+音频处理：喜山必胜Maverick
 
-拜登在CNN的市政厅上发言说：“那些没有接种疫苗的人对我们来说就是另一次大流行。”
+发布：奇门遁甲
 
-拜登在圣约瑟夫山大学的论坛表示：“如果你接种了疫苗，你就不会被送进医院，不会进重症监护室，也不会死亡。”
+华盛顿，7月19日（路透社）——因为英国的COVID-19病例数量不断上升，美国国务院和美国疾病控制和预防中心（CDC）周一对前往该国的旅客发出了最高警告。
 
-根据霍普金斯大学的数据， 整个美国，过去两周每天新增病例的平均数从不到13700例上升到本周二的37000多例。来自美国疾控中心CDC的数据显示，其中有56.2%的美国人至少已经接种了第一剂疫苗。
+原文链接：
 
-新闻来源：[Biden says getting vaccinated ‘gigantically important’](https://apnews.com/article/joe-biden-business-government-and-politics-cincinnati-380825918f9571f2ba5ea5e3d98b3f7d)
+[【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](https://gnews.org/zh-hans/1407722/)
+
+
+
+> [【新闻速递】美国因英国COVID-19疫情向国民发出旅行警告](https://gnews.org/zh-hans/1407722/)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02180522/ca1affbb-9efa-40ff-ab92-f03507874447.jpg)
 
 0

@@ -2,22 +2,55 @@
 ---
 
 
-## 2021年7月21日灭共要闻
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1412975/)
+## 【香草诗词】远猷
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1413087/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21202148/iShot2021-07-22-09.20.54.jpg)](https://gtv.org/video/id=60f8bb060aa48611138478d6)
-**[播放视频](https://gtv.org/video/id=60f8bb060aa48611138478d6)**
+作者：纽约香草山佛教部    GForever
 
-主要内容：
 
-美国司法部起诉四名中国黑客其中三名为国安系统情报人员。
 
-拜登指责中国政府在保护那些发动网络攻击的黑客
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
-凯尔巴斯：中国央行数字货币是数字特洛伊木马
 
-河南郑州爆发洪灾，人民财产受到巨大损失
 
-中共官媒避重就轻或转移话题，甚至禁言！
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21214751/Screenshot_2.jpg)（视频截图）
+
+
+
+人间炼狱在郑州，
+
+惨不忍睹心哀愁。
+
+妖魔中共是祸首，
+
+爆料革命谋远猷！
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01044955/7_july-1.jpg)
+
+
+
+编辑/校对/发稿：369文驹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+
+
 
 0

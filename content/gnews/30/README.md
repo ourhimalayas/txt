@@ -2,18 +2,18 @@
 ---
 
 
-## 【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413147/)
+## 【秘翻在线】岳晓勇被任命为新任中共阿富汗事务特使
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413253/)
 
-#### 翻译：Fenny
+#### 撰稿：Grace
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21224002/%E4%BB%A5%E8%89%B2%E5%88%97.jpg)图片来源：以色列时报
-据新闻博客网站“网关专家”（Gateway Pundit）21日报道， 威州议员约翰逊（Ron Johnson）作客福克斯电视台玛丽亚的早间节目时说，以色列的最新感染数据表明，新的感染病人中，接种过疫苗的人占高达84%。这是早上刚刚从以色列得到的数据。这表明辉瑞疫苗对预防 Delta 变种病毒基本无效。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21231714/%E6%9C%88-scaled.jpg)图片来源：中共外交部网站
+据中新社7月21日报道，中共国外交部发言人赵立坚21日在例行记者会上宣布， 曾经担任中共国驻卡塔尔、约旦和爱尔兰大使的岳晓勇被任命为新任的中共国外交部阿富汗事务特使，他将接替前任特使刘健的工作。
 
-采访是继保罗议员宣布他已经请求司法部对福奇博士（Dr. Anthony Fauci）对国会撒谎展开犯罪调查之后。福奇支助武汉毒所的功能增强研究，但他公然撒谎。在一个2018年的录像里，福奇曾宣布，重启功能增强研究。
+据报道，赵立坚表示中共一直高度重视与相关各方的沟通协调和与阿富汗的国际合作。他更是污蔑美国近期宣布完全自阿富汗撤军的做法，赵立坚荒唐地指责美军的撤军导致阿富汗多地接连发生爆炸袭击事件，安全形势日益严峻，严重威胁阿富汗和平稳定与人民生命安全。
 
-保罗议员表示，美国人民、世界人民都应该得到真相。不幸的是，由社交媒体、主流媒体、科技巨头、联邦健康机构和大政府组成的阴谋集团阻碍真相。关键的真相都被掩盖了很久。
+从阿富汗事务特使的更换和赵立坚对美国撤军的荒谬的指责，很多人可能已经估计到美国在阿富汗的撤军已经对中共在阿富汗的势力造成某种程度的影响了。
 
-新闻来源：[Sen. Ron Johnson: Data from Israel Shows 84% of New COVID Cases are with Vaccinated Individuals](https://www.thegatewaypundit.com/2021/07/sen-ron-johnson-data-israel-shows-84-new-covid-cases-vaccinated-individuals-video/)
+**新闻来源：**[中方任命岳晓勇为新任中国外交部阿富汗事务特使](http://www.chinanews.com/gn/2021/07-21/9525363.shtml)
 
 0
