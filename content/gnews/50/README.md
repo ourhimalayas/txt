@@ -2,55 +2,10 @@
 ---
 
 
-## 【香草诗词】远猷
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1413087/)
+## 【中共国段子】略施小计
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1413266/)
 
-作者：纽约香草山佛教部    GForever
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
-
-
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21214751/Screenshot_2.jpg)（视频截图）
-
-
-
-人间炼狱在郑州，
-
-惨不忍睹心哀愁。
-
-妖魔中共是祸首，
-
-爆料革命谋远猷！
-
-
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01044955/7_july-1.jpg)
-
-
-
-编辑/校对/发稿：369文驹
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
-
-
-
+【作者】美国队长
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21233003/simplified46.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
+![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
 0

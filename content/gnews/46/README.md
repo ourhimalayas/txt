@@ -2,10 +2,41 @@
 ---
 
 
-## 【中共国段子】略施小计
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1413266/)
+## 参议员兰德保罗和福奇在参议院听证会上发生冲突
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1413383/)
 
-【作者】美国队长
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21233003/simplified46.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
-![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
-0
+据《newsmax》作者：Brian Freeman，2021年7月20日发布：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22002622/648AC2B5-33C6-43AF-A352-AEF32C5AB0EA.jpeg)
+2021 年 7 月 20 日，在华盛顿特区国会山，顶级传染病专家安东尼-福奇（Anthony Fauci） 博士在参议院健康、教育、劳工和养老金委员会作证时回应了肯塔基州参议员 Rand Paul 的指控( J. Scott Applewhite-Pool/Getty 拍摄)
+
+据《国家评论》报道，周二，参议员兰德保罗（Rand Paul）和安东尼-福奇博士在参议院健康委员会听证会上发生了冲突，这位肯塔基州共和党人暗指美国国家过敏和传染病研究所所长安东尼-福奇此前曾就在资助中共国武汉病毒研究所进行有争议的研究时，美国国立卫生研究院 (NIH) 所扮演的角色’问题向国会撒了谎。
+
+保罗暗指福奇在 5 月的证词中误导了国会，福奇在证词中表示，美国从未资助过武汉病毒研究所的功能增强实验项目，该项实验目涉及赋予病毒在实验室中更具传染性或致命性的能力。
+
+保罗说，在 5 月份的国会作证时，福奇表示“NIH 从来没有，现在也没有资助武汉病毒研究所（WIV）的功能增强研究。”然而，功能增强研究完全是由石博士[石正丽]在武汉病毒研究所完成的，并由美国国立卫生研究院资助。
+
+在周二关于联邦政府对冠状病毒大流行反应的听证会上，保罗引用了武汉病毒研究所（WIV）科学家的一篇论文，其中将 NIH 列为资金来源，并描述了生产“嵌合”冠状病毒（即那些被人为改造的冠状病毒）的尝试。
+
+这位参议员随后表示，论文中记录的相关研究，明确地符合功能增强研究的定义，然后问福奇，知道向国会撒谎是一种犯罪……你是否希望撤回你在 5 月 11 日所做的“NIH 从未资助过WIV进行功能增强研究”的声明？
+
+福奇回应说：“我从来没有在国会面前撒谎，我也不会收回那句话。这篇论文已经被相关学术链条上下游的认证研究人员判定为没有进行功能增强研究。”
+
+当保罗打断他，试图询问 WIV 实验室发生的事情为什么不是功能增强研究时，福奇回答说：“保罗参议员，我想正式地告诉你，你并不知道你在说些什么。”《国会山报》报道。
+
+保罗再次打断福奇，并阅读 NIH 对功能增强的定义，其中说“增加动物之间传播能力的科学研究是功能增强实验”。
+
+这位参议员继续说，WIV 研究人员“得到了动物病毒……然后增加了它们对人类的传染性。你怎么能说这不是功能获得——这是一种舞蹈，你正在围绕这个跳舞，因为你在试图推脱对全球 400 万人死于大流行病的责任。”
+
+福奇随后回击说：“参议员，我完全讨厌你现在散播的谎言。如果你看看 WIV 论文中研究的那些病毒。这些病毒在分子上不可能导致 SARS-CoV-2 ……而你却暗指我们的所作所为应该对个人的死亡负责。如果有人在这里撒谎，参议员，就是你。”
+
+原文连接[https://www.newsmax.com/us/rand-paul-fauci-hearing-coronavirus/2021/07/20/id/1029305/](https://www.newsmax.com/us/rand-paul-fauci-hearing-coronavirus/2021/07/20/id/1029305/)
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 轰炸机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1

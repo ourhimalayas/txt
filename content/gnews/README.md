@@ -40,14 +40,14 @@
 ### [2021/07/21-001 文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【有声读物】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/9/README.md)
+### [7/22/21日本银河快讯：日美韩决定推动朝鲜完全无核化；奥运门票购买者个人信息遭泄露](/content/gnews/9/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [【有声读物】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [【有声读物】东京奥运村的第三名运动员新冠检测呈阳性](/content/gnews/10/README.md)
+### [【有声读物】东京奥运村的第三名运动员新冠检测呈阳性](/content/gnews/11/README.md)
  ` MOSREC`
-
-### [【秘翻在线】拜登竭力敦促美国人接种疫苗](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [从郑州水灾看自媒体的重要性](/content/gnews/12/README.md)
  ` 文名`
@@ -70,40 +70,40 @@
 ### [【世事解评】郑州地铁5号线事件：一场中共官方舆情维稳、草菅人命的大戏！](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【有声读物】美国共和党高层人士蜂拥加入杰森·米勒领导的新社交媒体平台——GETTR](/content/gnews/19/README.md)
+### [【有声读物】为河南特大洪水祷告](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [【有声读物】随着台湾冲突的爆发，中（共）国威胁要“将日本从地球上抹去”](/content/gnews/20/README.md)
+### [【有声读物】基督徒如何从“论断人”的教导中判断伪类？](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [【有声读物】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/21/README.md)
+### [【有声读物】美国共和党高层人士蜂拥加入杰森·米勒领导的新社交媒体平台——GETTR](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [【有声读物】东京奥运村的第三名运动员新冠检测呈阳性](/content/gnews/22/README.md)
+### [【有声读物】随着台湾冲突的爆发，中（共）国威胁要“将日本从地球上抹去”](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [【有声读物】走出红海——致河南郑州同胞](/content/gnews/23/README.md)
+### [【有声读物】美国因英国COVID-19疫情向国民发出旅行警告](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [【中英文字幕】7/20/2021文贵盖特：共产党策划最大的灭爆行动已经宣告彻底失败](/content/gnews/24/README.md)
- ` Caihongqiao`
+### [【有声读物】东京奥运村的第三名运动员新冠检测呈阳性](/content/gnews/24/README.md)
+ ` MOSREC`
 
-### [【秘翻在线】5G当道 明年iPhone将彻底告别4G](/content/gnews/25/README.md)
+### [【秘翻在线】260亿美元！美医药巨头将支付史上第二高和解金](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】东京奥运会开幕式表演总监被开](/content/gnews/26/README.md)
+### [早有预警？武汉病毒所在疫情前数月坦承实验室安全堪忧](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【秘翻在线】5G当道 明年iPhone将彻底告别4G](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】恒大被香港银行停贷](/content/gnews/27/README.md)
+### [【秘翻在线】东京奥运会开幕式表演总监被开](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】东京奥运会开幕式总导演被炒](/content/gnews/28/README.md)
+### [【秘翻在线】恒大被香港银行停贷](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【秘翻在线】拜登竭力敦促美国人接种疫苗](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【秘翻在线】岳晓勇被任命为新任中共阿富汗事务特使](/content/gnews/30/README.md)
+### [【秘翻在线】东京奥运会开幕式总导演被炒](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [虽证据日增，北京仍否认新疆强迫劳动](/content/gnews/31/README.md)
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [脸书（Facebook）现在表示，它不想让你知道的都是假新闻](/content/gnews/43/README.md)
+### [7/22/21日本银河快讯：日美韩决定推动朝鲜完全无核化；奥运门票购买者个人信息遭泄露](/content/gnews/43/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [共和党高层人士涌入杰森-米勒的新社交媒体平台GETTR](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [司法部指控4名中共国居民参与国家支持的全球黑客活动](/content/gnews/44/README.md)
+### [浅解中共为什么突然重提并赞扬邓小平理论](/content/gnews/45/README.md)
+ ` 军迷wilson`
+
+### [参议员兰德保罗和福奇在参议院听证会上发生冲突](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【中共国段子】业绩下滑](/content/gnews/45/README.md)
+### [脸书（Facebook）现在表示，它不想让你知道的都是假新闻](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [司法部指控4名中共国居民参与国家支持的全球黑客活动](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【中共国段子】业绩下滑](/content/gnews/49/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [【中共国段子】略施小计](/content/gnews/46/README.md)
+### [【中共国段子】略施小计](/content/gnews/50/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [【今日祷告】为河南特大洪水祷告](/content/gnews/47/README.md)
+### [【今日祷告】为河南特大洪水祷告](/content/gnews/51/README.md)
  ` 纽约香草山MOS03`
 
-### [【雅典娜诗集】凶兆民谣](/content/gnews/48/README.md)
+### [【雅典娜诗集】凶兆民谣](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【墙文推荐】唐云：大河长天](/content/gnews/49/README.md)
+### [【墙文推荐】唐云：大河长天](/content/gnews/53/README.md)
  ` 纽约香草山MOS03`
 
-### [【香草诗词】远猷](/content/gnews/50/README.md)
+### [【香草诗词】远猷](/content/gnews/54/README.md)
  ` 纽约香草山MOS03`
 
-### [中国被洪水淹没郑州市附近大坝过去 48 小时内第三个倒塌](/content/gnews/51/README.md)
+### [中国被洪水淹没郑州市附近大坝过去 48 小时内第三个倒塌](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年7月21日灭共要闻](/content/gnews/52/README.md)
+### [2021年7月21日灭共要闻](/content/gnews/56/README.md)
  ` 秘密翻译组G-Translators`
-
-### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/53/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [2021年07月21日澳喜要闻（每日更新）](/content/gnews/54/README.md)
- ` 澳喜农场`
-
-### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/55/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [强制接种疫苗的国家映射暴政](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

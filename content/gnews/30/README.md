@@ -2,18 +2,16 @@
 ---
 
 
-## 【秘翻在线】岳晓勇被任命为新任中共阿富汗事务特使
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413253/)
+## 【秘翻在线】东京奥运会开幕式总导演被炒
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413315/)
 
-#### 撰稿：Grace
+#### 翻译：坤霆
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21231714/%E6%9C%88-scaled.jpg)图片来源：中共外交部网站
-据中新社7月21日报道，中共国外交部发言人赵立坚21日在例行记者会上宣布， 曾经担任中共国驻卡塔尔、约旦和爱尔兰大使的岳晓勇被任命为新任的中共国外交部阿富汗事务特使，他将接替前任特使刘健的工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21235029/%E5%B0%8F%E6%9E%97%E8%B4%A4%E5%A4%AA%E9%83%8E.jpg)图片来源：网络截图
+据德国之声7月22日报道，在东京奥运会开幕式前一天，奥运会总指挥桥本诚子解雇了开幕式总导演小林贤太郎，原因是这位前喜剧演员在1998年的喜剧节目中开了一个关于犹太人大屠杀的玩笑。
 
-据报道，赵立坚表示中共一直高度重视与相关各方的沟通协调和与阿富汗的国际合作。他更是污蔑美国近期宣布完全自阿富汗撤军的做法，赵立坚荒唐地指责美军的撤军导致阿富汗多地接连发生爆炸袭击事件，安全形势日益严峻，严重威胁阿富汗和平稳定与人民生命安全。
+在作曲家小山田圭吾因欺负残疾同学而被迫辞职后，仪式已经计划在没有开幕音乐的情况下进行。
 
-从阿富汗事务特使的更换和赵立坚对美国撤军的荒谬的指责，很多人可能已经估计到美国在阿富汗的撤军已经对中共在阿富汗的势力造成某种程度的影响了。
-
-**新闻来源：**[中方任命岳晓勇为新任中国外交部阿富汗事务特使](http://www.chinanews.com/gn/2021/07-21/9525363.shtml)
+新闻来源：[Tokyo 2020 chiefs fire opening ceremony director over Holocaust joke](https://www.dw.com/en/tokyo-2020-chiefs-fire-opening-ceremony-director-over-holocaust-joke/a-58584728)
 
 0

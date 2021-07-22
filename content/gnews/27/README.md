@@ -2,20 +2,26 @@
 ---
 
 
-## 【秘翻在线】恒大被香港银行停贷
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413328/)
+## 【秘翻在线】5G当道 明年iPhone将彻底告别4G
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413335/)
 
-#### 撰稿：柯亭
+#### 编译：花岗岩
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21235653/%E6%81%92%E5%A4%A7.jpg)图片来源：谷歌
-据腾讯网北京时间7月22日报道：7月21日下午，香港市场传出消息，指包括汇丰、中银香港、恒生和东亚在内的至少四家银行暂停向恒大香港的未竣工楼盘新买家提供按揭，成为外界对恒大财务实力缺乏信心的最新迹象。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22000513/appl.jpg)图片来源：网络截图
+7月21日，据日经亚洲报道，苹果明年不会推出任何新的 4G 机型，而是将广受欢迎的、最便宜的 iPhone SE升级为5G做为主要销售产品。
 
-用谷歌搜索该新闻条目，发现至少有10家以上的媒体报道该消息，包括新浪、网易、yahoo和彭博社等。
+由于 iPhone 的小型版本iPhone Mini的需求一直很低迷，该公司明年将不会推出更新版本的 iPhone Mini。iPhone Mini 将由6.7 英寸的 iPhone Pro Max 的新版本取代。这意味着 2022 年下半年发布的高端 iPhone 机型数量将保持不变，为四款——两款 6.1 英寸手机和两款 6.7 英寸手机。
 
-在中共内部互相厮杀、摇摇欲坠、即将灭亡之际，发生任何一家企业被停止贷款、被查处、被倒闭，已经不再是吸引眼球的新闻。爆料革命四年来，郭文贵先生一次次准确地提前预警了这些必然的结局。
+苹果还将在 2021 年下半年发布其他产品的更新版本，希望能从冠状病毒大流行中获取预期的经济复苏。其中包括 MacBook Pro 和新版 Air Pods，这款广受欢迎的无线耳机将于下个月开始生产。
 
-王健被跳墙死，叶简明和肖建华被消失，吴小晖被当庭掉眼泪自我检讨，马云和马化腾被停止法人代表，桩桩件件，历历在目。这一次，恒大的许家印刚刚被登上天安门，随后被停止贷款。太多太多这样的狗血剧，一次次重演，已经令大众麻木。
+今年新的iPhone的大规模生产也将在8月开始，这与苹果大流行前的生产计划一致。到2022年1月底，产量将达到9500万部，但消息人士认为这种预测有待审查。日经亚洲消息称，苹果2021年全年目标产量为2.3亿部iPhone，包括现有机型和新机型，比去年增长11%。
 
-**新闻来源：** [恒大香港被停止贷款](https://new.qq.com/rain/a/20210722A01GW700)
+**新闻来源：**
 
-+1
+1. [Apple to go all in on 5G for its 2022 iPhone lineup](https://asia.nikkei.com/Business/Technology/Apple-to-go-all-in-on-5G-for-its-2022-iPhone-lineup)
+2. [Apple to upgrade budget handset to 5G, drop iPhone Mini from 2022 lineup -Nikkei](Apple%20to%20upgrade%20budget%20handset%20to%205G,%20drop%20iPhone%20Mini%20from%202022%20lineup%20-Nikkei)
+
+
+
+
+0

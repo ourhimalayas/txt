@@ -2,26 +2,20 @@
 ---
 
 
-## 【秘翻在线】5G当道 明年iPhone将彻底告别4G
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413335/)
+## 【秘翻在线】260亿美元！美医药巨头将支付史上第二高和解金
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413371/)
 
-#### 编译：花岗岩
+#### 翻译：坤霆
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22000513/appl.jpg)图片来源：网络截图
-7月21日，据日经亚洲报道，苹果明年不会推出任何新的 4G 机型，而是将广受欢迎的、最便宜的 iPhone SE升级为5G做为主要销售产品。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22004537/opioid-treatment.jpg)图片来源：网络截图
+据半岛电视台7月21日报道，包括强生在内的美国几大医药巨头将被罚款260亿美元，因为是他们参与并加速了全国鸦片类药物的大流行，其中包括我们熟悉的中共鸦片超限战药物芬太尼。
 
-由于 iPhone 的小型版本iPhone Mini的需求一直很低迷，该公司明年将不会推出更新版本的 iPhone Mini。iPhone Mini 将由6.7 英寸的 iPhone Pro Max 的新版本取代。这意味着 2022 年下半年发布的高端 iPhone 机型数量将保持不变，为四款——两款 6.1 英寸手机和两款 6.7 英寸手机。
+这项提议中，全美最大的三家药物供应商麦克森（McKesson），嘉德诺（Cardinal Health）和美源伯根（Amerisource Bergen）将共同赔付210亿美元，强生（Johnson & Johnson）则赔付50亿美元。他们被指控在20年的鸦片类药物滥用过程中导致了五十万美国人死亡。
 
-苹果还将在 2021 年下半年发布其他产品的更新版本，希望能从冠状病毒大流行中获取预期的经济复苏。其中包括 MacBook Pro 和新版 Air Pods，这款广受欢迎的无线耳机将于下个月开始生产。
+其中一位总检察官说，“显然，这些钱根本不足以弥补人们所受的痛苦和折磨，但还是能为需要帮助的人提供帮助的。” 公共卫生官员还说：“这可能是我们解决鸦片类药物滥用的第一步，前提是钱用在了该用的地方。”
 
-今年新的iPhone的大规模生产也将在8月开始，这与苹果大流行前的生产计划一致。到2022年1月底，产量将达到9500万部，但消息人士认为这种预测有待审查。日经亚洲消息称，苹果2021年全年目标产量为2.3亿部iPhone，包括现有机型和新机型，比去年增长11%。
+与此同时，美国疾病控制和预防中心（CDC）上星期公布的数据显示：2020年是有史以来美国因过量服用药物导致死亡的人数最多的一年，即93331人，比上一年增加了29%。
 
-**新闻来源：**
-
-1. [Apple to go all in on 5G for its 2022 iPhone lineup](https://asia.nikkei.com/Business/Technology/Apple-to-go-all-in-on-5G-for-its-2022-iPhone-lineup)
-2. [Apple to upgrade budget handset to 5G, drop iPhone Mini from 2022 lineup -Nikkei](Apple%20to%20upgrade%20budget%20handset%20to%205G,%20drop%20iPhone%20Mini%20from%202022%20lineup%20-Nikkei)
-
-
-
+原文链接：[Major drug companies reach landmark $26bn US opioid settlement](https://www.aljazeera.com/news/2021/7/21/major-drug-distributors-reach-landmark-26-bn-us-opioid-settlement)
 
 0

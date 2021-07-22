@@ -2,31 +2,39 @@
 ---
 
 
-## 【有声读物】随着台湾冲突的爆发，中（共）国威胁要“将日本从地球上抹去”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1413365/)
+## 【有声读物】基督徒如何从“论断人”的教导中判断伪类？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1413411/)
 
-录音：教育部 蒙古鸿雁
+配音：香草山福音部 Daxia
 
-音频处理：喜山必胜Maverick
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-发布：奇门遁甲
 
-[中（共）国](https://www.express.co.uk/latest/china)誓言，如果东京干预保护台湾，将与日本发动核战争。在日本准备举办 2021 年奥运会之际，北京发出威胁，东亚超级大国一直在为台湾的地位而发生冲突。近几个月来，这个岛国首当其冲地受到中（共）国军事侵略的影响，中国共产党试图将这个分离的国家并入中国大陆。
 
-原文链接：
 
-[【新闻速递】随着台湾冲突的爆发，中（共）国威胁要“将日本从地球上抹去”](https://gnews.org/zh-hans/1407583/)
 
+
+
+前言：战友们，上述经文与本文的主题是否有关系？那就在于我们如何看待“论断人”的教义在实际运用中的合理性——我说的这个“合理性”是合乎圣经的教导。如律法中的一条这样说道：“使瞎子走差路的，必受咒诅！百姓都要说：‘阿们！’”（申命记 27:18）那么，到底谁是瞎子？谁使瞎子走错路？今天我要谈论的就是这个领域的问题。这也和揭露CCP的假恶丑、偷盗、欺骗有着直接关系。当然，我们解决这个问题的前提就是要扫除“不要论断人”的教义带给信徒的错误判断以及其所造成的混乱。如此一来，我们就不会心存疑虑。
+
+
+
+**文字版原文：[【信仰之声】基督徒如何从“论断人”的教导中判断伪类？](https://gnews.org/zh-hans/1405171/)**
+
+作者：纽约香草山福音部 捆绑CCP一千年
+
+
+
+发稿：雪梨
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01004136/Untitled-design-2021-06-30T224106.492.png)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02180522/ca1affbb-9efa-40ff-ab92-f03507874447.jpg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

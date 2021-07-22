@@ -2,8 +2,8 @@
 ---
 
 
-## 【有声读物】东京奥运村的第三名运动员新冠检测呈阳性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1413333/)
+## 【有声读物】随着台湾冲突的爆发，中（共）国威胁要“将日本从地球上抹去”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1413365/)
 
 录音：教育部 蒙古鸿雁
 
@@ -11,22 +11,22 @@
 
 发布：奇门遁甲
 
-7月19日东京奥运会，捷克共和国队周一报告了一名接种了疫苗的沙滩排球运动员被检测出新冠病毒阳性，可能会缺席第一场比赛，他是东京奥运村的第三名检测呈阳性的运动员。周日另两名南非男子足球运动员被宣布感染了新冠病毒 。
+[中（共）国](https://www.express.co.uk/latest/china)誓言，如果东京干预保护台湾，将与日本发动核战争。在日本准备举办 2021 年奥运会之际，北京发出威胁，东亚超级大国一直在为台湾的地位而发生冲突。近几个月来，这个岛国首当其冲地受到中（共）国军事侵略的影响，中国共产党试图将这个分离的国家并入中国大陆。
 
 原文链接：
 
-[【新闻速递】东京奥运村的第三名运动员新冠检测呈阳性](https://gnews.org/zh-hans/1407749/)
+[【新闻速递】随着台湾冲突的爆发，中（共）国威胁要“将日本从地球上抹去”](https://gnews.org/zh-hans/1407583/)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02180522/ca1affbb-9efa-40ff-ab92-f03507874447.jpg)
 
 0

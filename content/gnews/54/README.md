@@ -2,13 +2,55 @@
 ---
 
 
-## 2021年07月21日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1412910/)
+## 【香草诗词】远猷
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1413087/)
 
-撰稿：GTV澳喜影像视频组、新闻组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21195309/E322ECD0-6B25-4B11-8F6F-209E749414FB-scaled.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21195407/54692550-B9FE-4F84-B975-7B9BDB62F6DE-scaled.jpeg)
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+作者：纽约香草山佛教部    GForever
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21214751/Screenshot_2.jpg)（视频截图）
+
+
+
+人间炼狱在郑州，
+
+惨不忍睹心哀愁。
+
+妖魔中共是祸首，
+
+爆料革命谋远猷！
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01044955/7_july-1.jpg)
+
+
+
+编辑/校对/发稿：369文驹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+
+
+
 0
