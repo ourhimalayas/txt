@@ -40,14 +40,14 @@
 ### [2021/07/21-001 文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共虚假信息战正酣 矛头直指德特里克堡泄漏理论](/content/gnews/9/README.md)
- ` 曹操`
+### [7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查](/content/gnews/9/README.md)
+ ` 美国政要直译推`
 
-### [美中共病毒感染两周内增二倍 政府归咎于疫苗接种率低](/content/gnews/10/README.md)
- ` 曹操`
-
-### [2021年7月21日灭共要闻](/content/gnews/11/README.md)
+### [【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
+
+### [中共虚假信息战正酣 矛头直指德特里克堡泄漏理论](/content/gnews/11/README.md)
+ ` 曹操`
 
 ### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -88,34 +88,34 @@
 ### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/24/README.md)
  ` Caihongqiao`
 
-### [数千名奥运门票购买者个人信息遭泄露](/content/gnews/25/README.md)
- ` 曹操`
-
-### [中共虚假信息战正酣 矛头直指德特里克堡泄漏理论](/content/gnews/26/README.md)
- ` 曹操`
-
-### [【独立观点】乌克兰总统终于有机会访问白宫](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
-
-### [美中共病毒感染两周内增二倍 政府归咎于疫苗接种率低](/content/gnews/28/README.md)
- ` 曹操`
-
-### [【新闻速递】法国和南太平洋国家合作打击“掠夺性”捕鱼，应对中共国海洋侵略](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
-
-### [蓬佩奥爱荷华演讲：“我们不是种族主义国家”](/content/gnews/30/README.md)
- ` 曹操`
-
-### [中俄欲操纵国际电信联盟　 中方黑客组织遭锁定](/content/gnews/31/README.md)
+### [法轮功7·20反迫害22周年：美加法等国有政要发声支持](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英、日同盟 向中共国海军秀肌肉](/content/gnews/32/README.md)
+### [7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查](/content/gnews/26/README.md)
+ ` 美国政要直译推`
+
+### [【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [共和党高层涌向杰森·米勒的新社交媒体平台GETTR](/content/gnews/28/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [数千名奥运门票购买者个人信息遭泄露](/content/gnews/29/README.md)
+ ` 曹操`
+
+### [中共虚假信息战正酣 矛头直指德特里克堡泄漏理论](/content/gnews/30/README.md)
+ ` 曹操`
+
+### [虽证据日增，北京仍否认新疆强迫劳动](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [克里敦促中共与美合作减排，中共回应与两国整体相关](/content/gnews/33/README.md)
+### [中俄欲操纵国际电信联盟　 中方黑客组织遭锁定](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美安全机构解密中共黑客入侵案例，超出想象](/content/gnews/34/README.md)
+### [英、日同盟 向中共国海军秀肌肉](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [克里敦促中共与美合作减排，中共回应与两国整体相关](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【秘翻在线】科技巨头 富可敌国](/content/gnews/35/README.md)
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [【墙文推荐】唐云：大河长天](/content/gnews/43/README.md)
+### [【今日祷告】为河南特大洪水祷告](/content/gnews/43/README.md)
  ` 纽约香草山MOS03`
 
-### [【香草诗词】远猷](/content/gnews/44/README.md)
+### [【雅典娜诗集】凶兆民谣](/content/gnews/44/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【墙文推荐】唐云：大河长天](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`
 
-### [中国被洪水淹没郑州市附近大坝过去 48 小时内第三个倒塌](/content/gnews/45/README.md)
+### [【香草诗词】远猷](/content/gnews/46/README.md)
+ ` 纽约香草山MOS03`
+
+### [中国被洪水淹没郑州市附近大坝过去 48 小时内第三个倒塌](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年7月21日灭共要闻](/content/gnews/46/README.md)
+### [2021年7月21日灭共要闻](/content/gnews/48/README.md)
  ` 秘密翻译组G-Translators`
 
-### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/47/README.md)
+### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/49/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2021年07月21日澳喜要闻（每日更新）](/content/gnews/48/README.md)
+### [2021年07月21日澳喜要闻（每日更新）](/content/gnews/50/README.md)
  ` 澳喜农场`
 
-### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/49/README.md)
+### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/51/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [强制接种疫苗的国家映射暴政](/content/gnews/50/README.md)
+### [强制接种疫苗的国家映射暴政](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国称：将在亚洲海域永久部署两艘皇家海军军舰](/content/gnews/51/README.md)
+### [英国称：将在亚洲海域永久部署两艘皇家海军军舰](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [6月的通胀报告应该让美国人感到紧张](/content/gnews/52/README.md)
+### [6月的通胀报告应该让美国人感到紧张](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【热点推荐】郑州还泡在水中，政府已经开抓暴雨“不当言论者”](/content/gnews/53/README.md)
+### [【热点推荐】郑州还泡在水中，政府已经开抓暴雨“不当言论者”](/content/gnews/55/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/54/README.md)
+### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中国报告首例死亡来自罕见的猴子B病毒](/content/gnews/55/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【世事解评】永别了，路德！](/content/gnews/56/README.md)
- ` 纽约香草山MOS02`
 

@@ -2,46 +2,54 @@
 ---
 
 
-## 中共虚假信息战正酣 矛头直指德特里克堡泄漏理论
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1413044/)
+## 7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1413186/)
 
-#### 编译：脐橙君
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21212420/%E5%9C%B0%E5%BE%97.jpg)图片来源：澎湃
-大多数美国人可能都从未听说过德特里克堡，这里距离华盛顿大约一个小时的车程，是美国生物武器计划的原址。但数亿中共国的网民却非常熟悉德特里克堡的名字，为什么连美国公民都不熟悉的名字却会被中共国网民所熟知？这主要归功于中共所谓的战狼外交官。这些外交官们在社交媒体和新闻发布会上多次表示，距离中共国半个地球远的马里兰州德特里克堡需要作为病毒的潜在来源进行彻底调查。
+众议员戴安娜·哈什巴格: [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 在掩盖什么？现在我们需要对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源进行全面彻查！ 【附washingtonexaminer的文章：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 反对世卫组织有关呼吁对冠状病毒实验室泄漏理论进行第二次调查】
 
-“2019 年 7 月，威斯康星州爆发了神秘的EVALI [电子烟或电子烟使用相关的肺损伤]，其症状几乎与 Covid-19 相同。“6月22日，战狼外交部发言人华春莹在推特上说，疫情爆发地距离德特里克堡不到1小时车程。
 
-不仅是华春莹，还有同样出自同门的赵立坚和汪文斌，在官方新闻发布会上，呼吁对德特里克堡进行调查总计33次。 根据《南华早报》查阅的外交部记录，自美国总统乔·拜登1月上任以来，最近有27次被提及这个地名。
 
-对德特里克堡的关注与在中共国以外提出的假设相反，即大流行可能是由武汉病毒研究所的病毒逃逸或事故引起，武汉病毒研究所是世界领先的研究蝙蝠冠状病毒的研究实验室之一，蝙蝠冠状病毒是同一病原体家族，也是导致Covid-19大流行的原因。
+> What is the Chinese Communist Party hiding? We need a full COVID origin investigation NOW![https://t.co/Qi4ypUw96G](https://t.co/Qi4ypUw96G)
+> — Rep. Diana Harshbarger (@RepHarshbarger) [July 21, 2021](https://twitter.com/RepHarshbarger/status/1417943714232680449?ref_src=twsrc%5Etfw)
 
-这种言论在中共国以外不太被接受，但在中共国国内，民族主义者会对此说法感到兴奋不已。
 
-当由Sars-CoV-2病毒引起的这场大流行于2019年底首次在中共武汉市出现时，大多数的假设是从动物身上直接传染给人类，就像2003年的SARS1那样。然而现在，随着越来越多的科学家和政治家呼吁对中共病毒的起源进行更强有力的独立调查，包括武汉实验室泄漏假说，中共国作为拒绝该呼吁的回击言论，就是认为德特里克堡也同样需要成为被调查的一部分。
 
-德特里克堡曾经是美国生物武器计划的研究所之一，该计划从1943年一直持续到1969年关闭。2019年8月，德特里克堡的BSL-4或顶级安全实验室因与危险材料处置相关的安全违规而被美国疾病控制与预防中心关闭。之后，于2020年4月重新开放，但在中共国严格控制的国内信息环境中，关闭成了值得怀疑的关键点。德特里克堡的中文名称标签在类似Twitter的平台，微博上的点击量超过2.7亿次，主题通常是美国隐藏生物武器和研究致命病毒。
+霍利参议员新闻办公室： 昨天，众议院民主党人阻止了参议员霍利对与Covid-19 起源相关的情报进行解密的立法，该法案已在参议院全体会议上获得通过。 为什么众议院民主党人害怕有关 Covid 的真相？相信美国人民可以处理真相。他们应该知道这种病毒的真正起源。
 
-中共国媒体在大流行期间也遵循了这一路线。根据《环球时报》、《人民日报》和《中国日报》英文版面的分析，《环球时报》、《人民日报》和《中国日报》在关于德特里克堡的文章数量多达100多篇。“这是一种新型的针锋相对。也许他们相信这会满足他们自己的舆论战要求，因为这在中共国以外不是很可信的事情，但在中共国国内，民族主义者（小粉红）会对此感到兴奋，”政治学教授卡贝斯坦说。
 
-北京第一次提到德特里克堡是在2020年3月，当时美国总统唐纳德川普在没有公布证据的情况下声称中共病毒起源于武汉的实验室泄漏。尽管川普在选举中落败，但对实验室的担忧并未消失，尽管世界卫生组织3月30日的一份报告称，武汉的实验室泄漏“极不可能”。但越来越多的政局表明，这种说法不是空穴来风，而是有其合理的依据。
 
-世卫组织报告发布后的第二天，包括美国、英国、澳大利亚、日本、韩国和加拿大在内的 14 个国家发表声明，表示担心无法获得原始武汉实验室数据，会对调查产生质疑。
+> The American people can be trusted with the truth. They deserve to know the true origin of this virus. [pic.twitter.com/H9GbEjR63P](https://t.co/H9GbEjR63P)
+> — Senator Hawley Press Office (@SenHawleyPress) [July 21, 2021](https://twitter.com/SenHawleyPress/status/1417869058779893760?ref_src=twsrc%5Etfw)
 
-关于德特里克堡发生的事，从开始到关闭，接受着来自世界各方机构的监督，但相比之下，中共政府从未允许任何西方专家、科学家或国际团队访问其任何所谓的防御性军事生物武器设施。”
 
-中共流亡富豪郭文贵一再指责北京在实验室制造的中共病毒是生物武器，声称更多的袭击正在或即将发生。
 
-中共以德特里克堡为目标是一种“经典的威权策略”，出自俄罗斯的虚假宣传手册。过去，俄罗斯人直接通过不同的代理人，不断编造新的故事，例如美国国防部正在格鲁吉亚和乌克兰制造生物武器，用于对付俄罗斯族人。根据华盛顿威尔逊中心智库保存的解密电报，德特里克堡在 1980 年代参与了苏联的虚假宣传活动，当时克格勃特工部门针对艾滋病爆发发起了感染行动。这与北京目前的言论有明显的相似之处。一旦中共开始这场舆论战争，他们就不会停止并全力以赴。
+仍在等待美国国立卫生研究院主任[@NIHDirector](https://twitter.com/NIHDirector)和福奇博士对“功能增强”的问题的答案。 这些联邦卫生机构必须变得透明。 【附约翰逊的视频，揭露了福奇与 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的证据，谴责福奇否认此事的无耻行径，宣称应追责福奇等人】
 
-今年5月，拜登表示，他已经给了该国情报界 90 天的时间来收集证据，使华盛顿能够就大流行是源自人类与受感染动物的接触还是实验室事故做出“最终结论”。根据拜登的最后期限，该结论将在8月24日左右达成。
 
-周六，中共民族主义小报《环球时报》发表了所谓的公开信和请愿书，呼吁世卫组织调查德特里克堡。 据该网站称，该请愿书迄今已收到超过 300 万个签名。它还分享了一项民意调查，询问受访者应该在哪里对Covid-19的起源进行下一次调查，其中指定的四个选项是美国和德特里克堡、印度、意大利和“其他国家”——94.4% 的受访者选择了美国。
 
-赵立坚周一在新闻发布会上提到了这一点，他说：“人民和媒体的这些自发行动实际上提出了国际社会长期以来无法回答的问题，美国一些人一直保密。”
+> Still waiting for an answer to our questions about gain-of-function from [@NIHDirector](https://twitter.com/NIHDirector?ref_src=twsrc%5Etfw) and Dr. Fauci. 
+> 
+> These federal health agencies have to become transparent.[https://t.co/pwabdlNYss](https://t.co/pwabdlNYss) [pic.twitter.com/tKdPFk9vUH](https://t.co/tKdPFk9vUH)
+> — Senator Ron Johnson (@SenRonJohnson) [July 21, 2021](https://twitter.com/SenRonJohnson/status/1417925643283615744?ref_src=twsrc%5Etfw)
 
-这是一场虚假信息的战争，但无论中共如何掩盖，真相只有一个，随着病毒一波波地反复，加上疫苗带来的潜在危机，似乎这场病毒战争正在推向高潮，打破正常生活的民怨与各国政府财政上的不看重负，最终都会有一个出口，那就是对真相的还原。中共虚假信息战争不会得逞。
 
-新闻来源：[China is pushing its own coronavirus lab leak theory in latest battle of narratives | South China Morning Post (scmp.com)](https://www.scmp.com/news/china/diplomacy/article/3141823/china-pushing-its-own-coronavirus-lab-leak-theory-latest)
+
+众议员马乔里·泰勒·格林： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 想要统治全世界。下面是我将怎么对付 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) ：（视频中，她谈到不允许中共的人到学校里，不给对中共效忠的学生签证，针对新冠的现在的做法是什么，中共还有多少生物武器，在哪里等等）
+
+
+
+> China wants to dominate the world. Here’s how I would handle the CCP. [pic.twitter.com/Hv6bUHcJEA](https://t.co/Hv6bUHcJEA)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [July 21, 2021](https://twitter.com/RepMTG/status/1417857226803396611?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨（著名军情记者）： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已在绞索上了吗？请看我在战斗室的访谈。 【附[http://rumble.com](https://t.co/HA2j2bTMIU?amp=1)该视频：中共即将崩溃。视频中比尔·格茨说他同意资深中国问题专家Paul Monk的看法，中共目前在军事和经济上可能比它表面上看起来要脆弱的多，清洗使军队对中共不满】
+
+
+
+> Is China's Communist Party on the ropes? My interview on Warroom. [https://t.co/9DxPIgZJDx](https://t.co/9DxPIgZJDx)
+> — Bill Gertz (@BillGertz) [July 20, 2021](https://twitter.com/BillGertz/status/1417558920495878147?ref_src=twsrc%5Etfw)
+
+
 
 0

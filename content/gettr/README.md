@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/22/2021 3:08 AM (UTC)`
+
+7/20/21: Miles Guo：The biggest flood happened at the highest place in Zhengzhou with Yuda Palace Hotel being the center; Two of my cellmates in the Qingfeng Detention Center had 4 family members killed by flooding, and one cellmate’s home was cut off from electricity and his cell phone(s) stopped to work, with the police coming to his home to silence him<br/><br/>7/20/2021 郭先生直播(节选1): 郑州最高的地方发了水灾, 以裕达国贸为中心；文贵在清丰看守所的两位狱友共有4位家人被洪水夺走生命，其中一位狱友家竟然被断电，手机也无法使用，并被警察找上门来要求噤声
+![img](https://media.gettr.com/group22/getter/2021/07/22/03/4039133f-64b3-a804-5a1d-b3b4a4a6c0cd/out.jpg)
+
+---
+
 `@miles 7/22/2021 1:44 AM (UTC)`
 
 7/20/2021 The City of Zhengzhou is flooded, and the Lao Baixing are trapped in the train waiting for rescue without any food or drink. Although the Henan Provincial Government issued orders to enter combat readiness, there is just local assembly and standby. How can such a government rescue the people?<br/><br/>7/20/2021 郑州各处被洪水淹没，老百姓被困在火车上，没吃没喝苦等救援；而河南政府口口声声说进入备战状态，却只在本地集结待命。请问这样的政府如何能救灾？<br/>
@@ -305,13 +312,6 @@ This is the real face of Serpent Yan!
 
 <br/>7月19号：尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？灭共已经到了最关键的时刻，我们全球的战友们．越是在这个时候越要擦亮眼睛．辩善恶是非．一切都已经开始！
 ![img](https://media.gettr.com/group30/getter/2021/07/19/13/40b1c8e5-985e-bbb0-7f06-ed8b2346d3e5/out.jpg)
-
----
-
-`@miles 7/19/2021 1:03 PM (UTC)`
-
-这就是影响力，这是真正的行动力的结果，只有爆料革命．新中国联帮．可以让任何人成为世界上的明星！
-![img](https://media.gettr.com/group46/getter/2021/07/19/13/29f62296-cedc-0f14-8339-d2a8cb8fe43f/8cafe15f3d6429cd4618efbd1cb8bafe.jpg)
 
 ---
 
