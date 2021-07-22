@@ -2,27 +2,49 @@
 ---
 
 
-## 前美国国务卿迈克-蓬佩奥聚焦2022中期选举，未来如何担当将顺其自然
-` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/1412410/)
+## 【热点播报】香港警方逮捕《苹果日报》前执行主编
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412782/)
 
-编撰：QF
+作者：纽约香草山农场 四季
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21124908/%E6%88%AA%E5%B1%8F2021-07-22-%E4%B8%8A%E5%8D%8812.27.57.png)图片来源：公共网络
 
-前美国国务卿迈克-蓬佩奥在爱荷华州的一个保守派基督教集会上发言时，就针对他是否会在2024年竞选总统的这一问题上并没有正面进行回应。
 
-**蓬佩奥在接受采访时表示：****“****我们正在帮助人们在****2022****年参选，这就是我们所关注的范围。****“****这场斗争将要继续下去。它将持续到****2022****年以后，但会发生什么，我在其中的作用是什么，只有上帝知道。****“**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-蓬佩奥在成为美国国务卿之前曾是美国堪萨斯州的代表和中央情报局局长，**最近他成立了自己的政治团体—****the Champion American Values PAC****，**允许他为其他共和党人筹集资金。
 
-上周五（7月16日），蓬佩奥在爱荷华州首府得梅因举行的家庭领袖年度峰会上发表了讲话，该峰会由家庭领袖主办，家庭领袖是一个基督教保守派团体，其使命是 “激励家庭、教会和政府的基督式领导”。
 
-蓬佩奥在峰会上说道：”我的妻子苏珊出生在爱荷华城，但她是在威奇托长大的。她的夏天是在科拉维尔和草莓角度过的，所以这就是我回来的原因”。**蓬佩奥前国务卿的这番话被外界认为是在暗示他将要回访爱荷华州。虽然他说他还没有确定回访爱荷华州的日期，但他确信这是在计划之中的。**
+据路透社7月21日报道，继6月24日香港《苹果日报》 被迫永久停刊后，香港警方周三逮捕了《苹果日报》的前执行主编，这是港府对该报纸进行的国家安全调查中的最新逮捕。
 
-蓬佩奥在讲话中还提到：“我相信我们会回来的，你们都有一个重要的州长竞选即将到来。我们将确保我们在爱荷华州各地让保守派当选。”**蓬佩奥说，当这种情况发生时，我们将把南希****–****佩洛西踢出议长职位，并确保拜登总统的任期越短越好。**
+![]()![](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/3I6IBXERLRN7RIZL7GHINTR2TI.jpg)图片来源：路透社
 
-**蓬佩奥前国务卿为共和党人列出了一份**** “****典型的保守主义**** “****成就清单，他说这将是他们成功的关键，**包括唐纳德-特朗普总统领导下的低失业率、放松监管以及通过不参与新的战争将美国放在首位的相关政策。
+警方在一份声明中表示，该执行主编涉嫌“与外国或外国势力勾结，危害国家安全”。警方表示，该报的几十篇文章可能违反了中共国实施的国家安全法，这是当局根据该法对媒体报道采取的第一个例子。当局否认香港的权利和自由受到侵蚀，但表示危害中共国国家安全的行为已经超过了红线。
 
-新闻来源：[The Press-Citizen](https://www.press-citizen.com/story/news/politics/iowa-poll/caucus/2021/07/16/mike-pompeo-twitter-iowa-family-leadership-summit-2024-candidate-caucuses-elect-republicans-2022/7994319002/)
+对2020年6月出台的这一法律的批评者来说，在这个1997年回归中共国统治的前英国殖民地，该法律被用来压制异议和侵蚀基本自由，包括媒体的自由。
+
+参考阅读：
+
+[Hong Kong police arrest former Apple Daily editor in chief-media](https://www.reuters.com/world/china/hong-kong-police-arrest-former-apple-daily-editor-chief-media-2021-07-21/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

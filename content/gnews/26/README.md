@@ -2,17 +2,41 @@
 ---
 
 
-## 高盛一半的超级富豪客戶的投资组合中添加了加密货币
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1412504/)
+## 中共国债务风险增长: 3个警告信号
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1412837/)
 
-编译：Boxinglady
+2021年7月21日
 
-CapGemini 最近的一项分析发现，现在世界上有创纪录的 2100 万百万富翁，他们拥有总计 80 万亿美元的财富。仅去年一年，百万富翁的数量就增长了 7.6%，尽管——或者更确切地说是由于——冠状病毒大流行。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21200702/0-5.jpg)2021年5月19日星期三，在中共国北京金融街的华融资产管理公司总部，标识牌亮起。Yan Cong｜彭博社｜盖蒂图片
 
-有人说，如果这些高净值人士每人只购买和持有一个比特币，就不会再有比特币在流通。当然，这不可能发生：我们知道少数鲸鱼持有绝大多数比特币。以至于根据摩根大通的数据，目前流通的大约 1870 万比特币中只有 5% 在过去一年中实际易手，这意味着数百万比特币被少数账户持有。
+北京–在中共国不断增长的债务堆中，正在出现薄弱环节。
 
-高盛发现，只有15% 的受访者（对全球150 多个家族办公室进行了调查）已经投资于加密货币（根据Gemini 最近发布的一项调查，这几乎与拥有加密货币的美国人总数相同。 ）但值得注意的是，在经历了史无前例的全球货币和财政刺激一年之后，另外45% 的人有兴趣进入该领域作为对冲“通胀上升、长期低利率和其他宏观经济发展”
+国家债务水平已攀升至GDP的近四倍，而在过去18个月中，越来越多的公司债券出现违约。
 
-新闻来源：[零对冲](https://www.zerohedge.com/markets/half-goldmans-ultra-wealthy-clients-will-be-adding-crypto-their-portfolio?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-)
+中共国坏账管理公司华融的案例也吓坏了投资者，今年该公司未能及时提交财报，其以美元计价的债券暴跌，导致市场大跌。
+
+根据惠誉评级的数据，今年上半年，中国违约的公司债券总数达到625.9亿元（96.8亿美元），是2014年以来上半年最多的一年。其中，国有企业的违约占到一半以上，约356.5亿元。
+
+经济学家说，随着投资者的担忧加剧，以下是需要关注的三个重要进展。
+
+1. 地方政府灰色地带的债券违约
+
+
+2. 华融对该行业的’大悬案”
+
+3. 一些省份和地方银行的薄弱环节
+
+【新闻链接】
+
+**翻译:** Beicy-数学老师｜**校对: ** 感恩
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

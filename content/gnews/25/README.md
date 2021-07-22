@@ -2,10 +2,10 @@
 ---
 
 
-## 【热点播报】香港警方逮捕《苹果日报》前执行主编
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412782/)
+## 【快讯】美国官员称全球半导体供应短缺现缓和迹象
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412948/)
 
-作者：纽约香草山农场 四季
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
@@ -13,17 +13,17 @@
 
 
 
-据路透社7月21日报道，继6月24日香港《苹果日报》 被迫永久停刊后，香港警方周三逮捕了《苹果日报》的前执行主编，这是港府对该报纸进行的国家安全调查中的最新逮捕。
+美国总统拜登政府官员表示，全球半导体供应短缺情况开始出现缓和迹象。有芯片制造商承诺，将会生产更多车用芯片，令此前因芯片短缺导致停产的车厂可以重新开工。
 
-![]()![](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/3I6IBXERLRN7RIZL7GHINTR2TI.jpg)图片来源：路透社
+![]()![](https://newsstatic.rthk.hk/images/mfile_1601801_1_L_20210721065420.jpg)图片来源：Shutterstock
 
-警方在一份声明中表示，该执行主编涉嫌“与外国或外国势力勾结，危害国家安全”。警方表示，该报的几十篇文章可能违反了中共国实施的国家安全法，这是当局根据该法对媒体报道采取的第一个例子。当局否认香港的权利和自由受到侵蚀，但表示危害中共国国家安全的行为已经超过了红线。
+美国商务部长雷蒙多努力与半导体制造商协商，促成供应商及客户，包括汽车制造商，举行了一系列会议。政府高层官员表示，此次会议促进了芯片制造商的生产与分配以及汽车制造商订单方面之间的互信。
 
-对2020年6月出台的这一法律的批评者来说，在这个1997年回归中共国统治的前英国殖民地，该法律被用来压制异议和侵蚀基本自由，包括媒体的自由。
+雷蒙多提到，会谈使芯片制造商的生产与出货更具透明度，并将逐步增加对汽车制造商的芯片供应。另有官员说，政府最近向马来西亚及越南政府施压，以确保半导体工厂保持一定的产量。
 
 参考阅读：
 
-[Hong Kong police arrest former Apple Daily editor in chief-media](https://www.reuters.com/world/china/hong-kong-police-arrest-former-apple-daily-editor-chief-media-2021-07-21/)
+[美国官员称全球半导体供应短缺情况开始出现缓和迹象](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1601801-20210721.htm)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
@@ -42,8 +42,6 @@
 
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
 
 
 

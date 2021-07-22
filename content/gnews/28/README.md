@@ -2,34 +2,53 @@
 ---
 
 
-## 【NewsExpress】参议员本·萨斯 (R-Neb.) 称中共国国家主席习近平是“懦夫”
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1412462/)
+## 【热点播报】苹果公司已为其2022年的手机阵容投入5G技术
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412845/)
 
-在香港《苹果日报》前高级编辑被捕后，参议员本·萨斯 (R-Neb.) 称中共国国家主席习近平是“懦夫”。
+作者：纽约香草山农场 四季
 
-“习主席是个胆小鬼——太害怕如果民主报纸说出他的共产党的真相，可能会发生什么，”萨斯周三在一份新闻稿中说。
 
-他补充说：“我们有责任揭露这些逮捕事件，让世界了解《苹果日报》上讲真话的英雄。”
 
-前执行总编辑林文中周三因涉嫌串谋与外国势力勾结危害国家安全而被捕。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-与林一起，一名前副出版商和副主编也被捕。所有员工的保释金都被撤销。
 
-此次逮捕是在政府于 6 月冲进新闻编辑室关闭办公室并没收电脑之后进行的。
 
-在新闻编辑室遭到突击检查后，萨斯提出了一项法案，为该报的工作人员和编辑授予他们工作的国会金奖。
+据零对冲7月21日报道，科技巨头苹果表示，该公司正在寻求促进智能手机的销售，明年发布的所有手机都将具备5G功能。
 
-“经营苹果日报的男男女女都是英雄。让我们弄清楚他们为什么只做最后一期：他们捍卫思想和言论自由让中国共产党感到害怕。他们勇敢地站到袋鼠法庭上，说出了真相。苹果日报的记者揭露习主席害怕他想压制的那些人。自由世界欠这些英雄感激之情，我们至少能做的就是授予他们国会金质奖章，”萨斯当时说。
+![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/AI%205g.png?itok=OGbSiYlL)图片来源：零对冲
 
-袋鼠法庭或者袋鼠审判 （英语：kangaroo court, kangaroo trial）是一个英文独有的名词，用于一些让人认为不公平的法庭审判或裁决。
+报道称，该公司将不会在2022年推出任何新的4G机型，而是提供一款兼容5G的低端iPhone SE，预计这款手机将“最早于2022年上半年”上市。
 
-袋鼠法庭一词起源于19世纪美国，当时一些法官在偏远地区巡回办案，其收入来自办案数量甚至被告的罚金，因此将这种到处奔跑办案而不重视公正的法庭称为袋鼠法庭。
+苹果新款的5G iPhone将看起来像iPhone 8的更新版本，它有一个4.7英寸的液晶显示屏。这款手机将使用苹果自己的A15处理器，手机的5G连接将由高通的X60调制解调器芯片驱动，它也将归属于该公司的高端手机系列。
 
-根据最近颁布的《国家安全法》，香港目前正在打击该市的任何政治异议。
+该公司也在抛弃迷你iPhone的想法，因为它未能得到消费者的青睐。换言之，它将被新的6.7英寸的iPhone Pro Max取代，这意味着在2022年下半年将有四款新手机发布。
 
-新闻来源：[thehill](https://thehill.com/homenews/senate/564068-sasse-calls-chinas-xi-a-coward-after-apple-daily-arrest)
-编译： Boxinglady
-校对发稿：法图麦
-本文只代表个人观点，不代表 Gnews 平台
+这家科技巨头还希望在2022年改造众多其他产品，包括其MacBook Pros和Airpods。
+
+在5G竞赛中，苹果已经落后于三星、Oppo和华为等公司，这可能是我们几天前注意到该公司在智能手机市场份额滑落到第二位的部分原因。
+
+参考阅读：
+
+[Apple Is Going “All In” On 5G For Its 2022 iPhone Refresh](https://www.zerohedge.com/markets/apple-going-all-5g-its-2022-iphone-refresh)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
