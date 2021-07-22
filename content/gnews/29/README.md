@@ -2,10 +2,10 @@
 ---
 
 
-## 【热点播报】苹果公司已为其2022年的手机阵容投入5G技术
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412845/)
+## 【快讯】美国官员称全球半导体供应短缺现缓和迹象
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412948/)
 
-作者：纽约香草山农场 四季
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
@@ -13,23 +13,17 @@
 
 
 
-据零对冲7月21日报道，科技巨头苹果表示，该公司正在寻求促进智能手机的销售，明年发布的所有手机都将具备5G功能。
+美国总统拜登政府官员表示，全球半导体供应短缺情况开始出现缓和迹象。有芯片制造商承诺，将会生产更多车用芯片，令此前因芯片短缺导致停产的车厂可以重新开工。
 
-![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/AI%205g.png?itok=OGbSiYlL)图片来源：零对冲
+![]()![](https://newsstatic.rthk.hk/images/mfile_1601801_1_L_20210721065420.jpg)图片来源：Shutterstock
 
-报道称，该公司将不会在2022年推出任何新的4G机型，而是提供一款兼容5G的低端iPhone SE，预计这款手机将“最早于2022年上半年”上市。
+美国商务部长雷蒙多努力与半导体制造商协商，促成供应商及客户，包括汽车制造商，举行了一系列会议。政府高层官员表示，此次会议促进了芯片制造商的生产与分配以及汽车制造商订单方面之间的互信。
 
-苹果新款的5G iPhone将看起来像iPhone 8的更新版本，它有一个4.7英寸的液晶显示屏。这款手机将使用苹果自己的A15处理器，手机的5G连接将由高通的X60调制解调器芯片驱动，它也将归属于该公司的高端手机系列。
-
-该公司也在抛弃迷你iPhone的想法，因为它未能得到消费者的青睐。换言之，它将被新的6.7英寸的iPhone Pro Max取代，这意味着在2022年下半年将有四款新手机发布。
-
-这家科技巨头还希望在2022年改造众多其他产品，包括其MacBook Pros和Airpods。
-
-在5G竞赛中，苹果已经落后于三星、Oppo和华为等公司，这可能是我们几天前注意到该公司在智能手机市场份额滑落到第二位的部分原因。
+雷蒙多提到，会谈使芯片制造商的生产与出货更具透明度，并将逐步增加对汽车制造商的芯片供应。另有官员说，政府最近向马来西亚及越南政府施压，以确保半导体工厂保持一定的产量。
 
 参考阅读：
 
-[Apple Is Going “All In” On 5G For Its 2022 iPhone Refresh](https://www.zerohedge.com/markets/apple-going-all-5g-its-2022-iphone-refresh)
+[美国官员称全球半导体供应短缺情况开始出现缓和迹象](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1601801-20210721.htm)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 

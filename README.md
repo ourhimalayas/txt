@@ -40,13 +40,13 @@
 ### [2021/07/20 文贵先生直播精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年7月21日灭共要闻](/content/gnews/9/README.md)
+### [美中共病毒感染两周内增二倍 政府归咎于疫苗接种率低](/content/gnews/9/README.md)
+ ` 曹操`
+
+### [2021年7月21日灭共要闻](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
 
-### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/10/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/11/README.md)
+### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
 ### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/12/README.md)
@@ -88,35 +88,35 @@
 ### [2021/7/21 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【新闻速递】无竞争对手，布里斯班当选2032年奥运会主办方](/content/gnews/25/README.md)
+### [美中共病毒感染两周内增二倍 政府归咎于疫苗接种率低](/content/gnews/25/README.md)
+ ` 曹操`
+
+### [【新闻速递】法国和南太平洋国家合作打击“掠夺性”捕鱼，应对中共国海洋侵略](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [【快讯】美国官员称全球半导体供应短缺现缓和迹象](/content/gnews/26/README.md)
+### [蓬佩奥爱荷华演讲：“我们不是种族主义国家”](/content/gnews/27/README.md)
+ ` 曹操`
+
+### [【新闻速递】无竞争对手，布里斯班当选2032年奥运会主办方](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [中共国债务风险增长: 3个警告信号](/content/gnews/27/README.md)
+### [【快讯】美国官员称全球半导体供应短缺现缓和迹象](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共国债务风险增长: 3个警告信号](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快讯】一年内泰、汶、菲、俄4国来台免签](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
-
-### [【热点播报】苹果公司已为其2022年的手机阵容投入5G技术](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
-
-### [【热点播报】香港警方逮捕《苹果日报》前执行主编](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
-
-### [美安全机构解密中共黑客入侵案例，超出想象](/content/gnews/31/README.md)
+### [英、日同盟 向中共国海军秀肌肉](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [海军演习显示中共国海军重心转向台湾](/content/gnews/32/README.md)
+### [克里敦促中共与美合作减排，中共回应与两国整体相关](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [美安全机构解密中共黑客入侵案例，超出想象](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/34/README.md)
- ` 经济金融组`
+### [海军演习显示中共国海军重心转向台湾](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [【秘翻在线】科技巨头 富可敌国](/content/gnews/35/README.md)
  ` 秘密翻译组G-Translators`

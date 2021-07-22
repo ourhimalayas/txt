@@ -2,25 +2,24 @@
 ---
 
 
-## 中国在兽医死亡后报告了首例人类B型病毒病例
-` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/1412419/)
+## 海军演习显示中共国海军重心转向台湾
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1412901/)
 
-编撰：QF
+2021年7月21日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21125337/%E6%88%AA%E5%B1%8F2021-07-22-%E4%B8%8A%E5%8D%8812.25.08.png)图片来源：Foxnews
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21194532/0-45.jpeg)
 
-B病毒于1932年首次被发现，此后只有不到100例确诊的人类病例。**据相关媒体报道，中共官员上周末表示，中国的一名兽医已成为该国第一个感染极其罕见的乙型猴病毒并死亡的人。据《华盛顿邮报》报道，这位****53****岁的兽医在北京一家育种研究所解剖两只猴子两个月后出现严重恶心和发烧，并于****5****月****27****日死亡。**
+据《南华早报》对过去十年中共国海军演习的评估显示，2017年中共国海军的注意力发生了转移；同年，官方媒体报道称，军方开始进行征服和控制岛屿的演习。 此前，海军曾冒险进入南海、西太平洋、日俄之间的大豆海峡，甚至印度洋进行训练。然而，中共国海军在过去几年中发生的明显变化，在远海进行的演习减少，引发了对其企图征服台湾的可能性的担忧。
 
-**小贴士：**
+【[新闻链接](https://www.scmp.com/news/china/military/article/3141563/china-brings-its-navy-drills-closer-home-focus-core-issue)】
 
-B病毒又名疱疹病毒B（Herpes virus B）、猴疱疹病毒一型（Macacine herpesvirus 1，McHV-1；Cercopithecine herpesvirus 1）、猴B病毒、疱疹B病毒，为甲型疱疹病毒亚科单纯疱疹病毒属的一种疱疹病毒，以猕猴为自然宿主。B病毒的基因组序列、结构与引发的免疫反应均与感染人类的单纯疱疹病毒（HSV-1）相似，多数猕猴可能皆曾感染此病毒，大多无症状或症状轻微，且病毒会潜伏于神经节，可再次活化并经由体液散播给其他个体。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-援引日本神户大学传染病专家Kentaro Iwata的观点，这种病毒攻击中枢神经系统，如果不治疗，死亡率约为80%。
 
-美国疾病预防控制中心表示，目前只有一例有记载的病毒在人与人之间传播的案例。据CDC称，一名曾经访问过尼日利亚的美国居民在上周回到德克萨斯州后被诊断出患有猴痘。**猴痘是一种完全不同的病毒****—****它引起类似流感的症状和皮疹，并与天花有关****—****但两种病毒都可以通过与动物接触而感染。**
+编辑：【英国伦敦喜庄园编辑部】
 
-根据《华盛顿邮报》的相关报道，**在这位中国兽医的血液和唾液样本对猴痘****B****病毒检测呈阳性后，他的两位同事检测呈阴性。**
-
-新闻来源：[Foxnews](https://www.foxnews.com/world/china-reports-first-human-case-of-monkey-b-virus-after-veterinarians-death)
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

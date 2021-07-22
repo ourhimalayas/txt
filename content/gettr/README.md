@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/22/2021 1:44 AM (UTC)`
+
+7/20/2021 The City of Zhengzhou is flooded, and the Lao Baixing are trapped in the train waiting for rescue without any food or drink. Although the Henan Provincial Government issued orders to enter combat readiness, there is just local assembly and standby. How can such a government rescue the people?<br/><br/>7/20/2021 郑州各处被洪水淹没，老百姓被困在火车上，没吃没喝苦等救援；而河南政府口口声声说进入备战状态，却只在本地集结待命。请问这样的政府如何能救灾？<br/>
+![img](https://media.gettr.com/group10/getter/2021/07/22/01/e0fcaf42-3bb8-9543-1176-bdd40d3d9185/out.jpg)
+
+---
+
 `@miles 7/21/2021 11:42 PM (UTC)`
 
 7/20/2021 CCP Regime Ruling the Country in a Mafia-style with Falsehood, and in front of Heavy Rainfall and Reservoir Discharging, the Communist state and local governments have no means, no capabilities to save its people but just shouting no sleep like a log and do self-protection， reporting false death toll to cover up<br/><br/>7/20/2021 以假、黑治国下的中共国民不聊生，在洪水面前，中共倾全国之力却无计可施、无力救援，只能提醒市民不能熟睡、自我安全预防，并谎报死亡数字<br/>
@@ -305,12 +312,6 @@ This is the real face of Serpent Yan!
 
 这就是影响力，这是真正的行动力的结果，只有爆料革命．新中国联帮．可以让任何人成为世界上的明星！
 ![img](https://media.gettr.com/group46/getter/2021/07/19/13/29f62296-cedc-0f14-8339-d2a8cb8fe43f/8cafe15f3d6429cd4618efbd1cb8bafe.jpg)
-
----
-
-`@miles 7/19/2021 12:20 PM (UTC)`
-
-共产党你完了👉👉👉【中国危机：随着军事清洗对中共适得其反，习近平政权“可能很快崩溃” 】https://www.express.co.uk/news/world/1460629/China-crisis-news-Xi-Jinping-Beijing-Chinese-Communist-Party-Taiwan-latest-vn
 
 ---
 
