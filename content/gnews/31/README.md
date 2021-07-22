@@ -2,44 +2,30 @@
 ---
 
 
-## 虽证据日增，北京仍否认新疆强迫劳动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1413136/)
+## 林郑月娥以国家安全作為掩護，试图逃脱反贿赂法的制裁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1413521/)
 
 2021年7月21日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21224841/0-10.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22014625/photo_2021-07-20_09-54-43-Copy-1200x675-1.jpg)
 
-编辑摘要：
+香港领导人林郑月娥以需要保障国家安全为由，为她背弃将该市反贿赂法扩大到她自己的职位的选举承诺的决定做辩护。
 
-7月14日，美国国会参议院通过了《防止强迫维吾尔人劳动法》，确保中共国新疆强迫劳动制造的商品不得进入美国市场。中国外交部发言人赵立坚强烈否认新疆和中共国其他地方存在强迫劳动的指控。
+林郑月娥上周四告诉立法会，她不会继续履行2017年的承诺，即“尽快”将《防止贿赂条例》第3条和第8条的适用范围扩大到行政长官，她说这将妨碍她向北京负责的能力。
 
-中共国不透明的媒体环境和准入限制使外界难以进行核查。即使这样，新疆地区采用强迫劳动的可靠证据越来越多。
+她重申，根据《基本法》，行政长官代表北京履行职责，并高于政府的行政、立法和司法部门，“在一个涉及行政首长诚信的问题上……让他或她受制于本应适用于其他公职人员的地方立法，是违反宪法的。”
 
-澳大利亚战略政策研究所(ASPI)智库2020年3月的一份报告发现，在一项名为“援疆”的项目中，2017年至2019年间，至少有8万名维吾尔人被转移到新疆以外。在中共国九个省内确定了27家正在使用维吾尔劳工的工厂。无处不在的监控装置使得没有哪个工人敢发声，只有离开中共国后才得以曝光。ASPI表示，“任意拘留的威胁”是使维吾尔人不敢拒绝工作分配的主要因素。
+**【[新闻来源](https://hongkongfp.com/2021/07/20/hong-kongs-carrie-lam-seeks-refuge-from-citys-anti-bribery-laws-behind-blanket-of-national-security/)】**
 
-中共政府2020年11月的一份官方文件记载，“260万少数民族居民在新疆地区境内和中共国各地被’安置’到农场和工厂就业。“劳动力转移“得到再教育和拘留持续威胁的支撑”。
-
-中共声称“恐怖分子、分裂分子和宗教极端分子”是劳动力转移的一个理由，这种就业计划被订为一种“反恐策略”。中共实质上是在辩称，拒绝参与国家就业项目等同于支持恐怖主义、分裂主义和宗教极端主义。
-
-谢菲尔德哈勒姆大学的报告指出，（再教育）营幸存者和曾经被迫工作、现已获释的被拘留者表示，这些人员并非自愿，而是遭到了继续监禁的胁迫。这些劳动力转移项目“降低了新疆维吾尔人的人口密度”，而这种转移既不是扶贫，也不是经济发展。这牵涉北京在新疆的行为构成种族灭绝的指控。
-
-这些劳工据称在监狱般的条件下做工。那些工厂有许多“被铁蒺藜网、铁门和保安摄像头包围，并受到警察或额外的保安监控”。而属于中国多数民族汉族的工人可以在工作场所不受限制地各处走动，收工后回家。
-
-美国参议院通过的法案申明，来自受迫害少数民族群体的“数十万曾被拘留的人士”从中国政府所谓的“再教育营”获释后，可能在强迫劳动的条件下工作。
-
-这部法案设立了“可反驳的推定” 机制，在新疆开采、生产或制造的任何商品都被推定为全部或部分出自强迫劳动，因此，根据《 1930年关税法》第307节，进口此类商品是非法的。进口商若想表明该货物并非强迫劳动产品，必须由该出口商出具证明。
-
-该法案接下来将送交众议院审议。
-
-【[新闻链接](https://www.voacantonese.com/a/xinjiang-forced-labor/5973746.html)】
+* * *
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
