@@ -2,45 +2,51 @@
 ---
 
 
-## 共和党高层人士涌入杰森-米勒的新社交媒体平台GETTR
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1413404/)
+## 全程近五公里的郑州京广快速路隧道5分钟内惨遭灭顶之灾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1413496/)
 
-据《纽约邮报》作者：[David Marcus](https://nypost.com/author/david-marcus/)，2021年7月20日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003617/BBE8BF5E-767D-4E63-B361-189E1178AFD6.jpeg)*前唐纳德-川普顾问杰森-米勒上个月刚刚推出GETTER.Getty Images*
-GETTR已经得到了一些大的收获。
+台灣寶島農場｜快慢機
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013806/%E5%9C%96%E7%89%87-1-3.png)
+全程总长近五公里的，郑州京广快速路隧道，在当地时间7月20日遭受暴雨洪水袭击下的短短5分钟内，便已被彻底灌满，惨遭灭顶之灾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013905/%E5%9C%96%E7%89%87-31.png)
+郑州京广绕城快速路，是郑州市近年来，为缓解日益增长的城市拥堵交通压力，而投入重金修建的基础道路设施项目。而以南、北向布局，全程总长近五公里的京广路隧道，便位于该条绕城快速路的核心区段内。
 
-前唐纳德-川普顾问杰森-米勒(Jason Miller)上个月推出的社交媒体平台正在有一大批共和党高级官员加入其网站。
+据悉，自京广绕城快速路建成通车以来，尤其是该条京广路隧道南北双向进出口路段区间内，堵车情况早已成为途径此路段的家常便饭，至今也从未有所缓解。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013920/%E5%9C%96%E7%89%872-1.jpg)
+当7月20日那场史无前例的强降水，突然袭击郑州市区之时，该路段的车流量，依旧如往常一样拥堵不堪。然而此时还隧道内龟速前行移动的人们，却未曾察觉，一场突如其来的灭顶之灾，所留给他们的仅有，不足短短5分钟的逃生之机。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013930/%E5%9C%96%E7%89%874-1-e1626932629295.png)
+狂风暴雨挟杂着波涛汹涌的洪水，就这样在短短5分钟内，瞬间将京广路隧道，南北两端双向出口，彻底淹没。仅仅几分钟前还在该路段及隧道内，拥堵不前的大量滞留车辆，转眼间便悉数全部被数米深的洪水彻底吞噬。
 
-国会中已经注册的主要人物包括众议院少数党领袖凯文-麦卡锡(Kevin McCarthy)，会议主席伊利斯-斯特凡尼克(Elise Stefanik)，以及众议员吉姆-乔丹(Jim Jordan)，众议员李-泽尔丁(Lee Zeldin)，参议员詹姆斯-兰克福德(James Lankford)和一系列其他人。
+初步估计，在这条全程总长近5公里的双向六车道隧道内，至少有数百辆各型机动车及成员，在这次灭顶之灾中不幸罹难。
 
-GETTR被作为推特的竞争对手，推特因广泛的审查制度和阻止访问合法的新闻报道而受到批评，例如《邮报》关于亨特-拜登笔记本电脑的爆炸性报道。
+然而，更加令人愤恨的是，在京广路隧道遭遇灭顶之灾险情之后的20余个小时内，当地无论是政府机关，还是其它相关部门，抑或是军警等应急救援单位，竟没有任何一个在第一时间，立即前往该处展开救援。甚至连郑州市公安局交警支队，都没有及时的，将通往该路段的相关道路进行警戒封锁。
 
-许多共和党人，甚至民主党人都推动使用监管变革，迫使推特以更高的透明度运作–而其他立法者则认为，推特是一家私营公司，答案是由其他人来建立新的竞争平台，这正是米勒所做的。
+截止到当地时间7月21日下午15时左右，才有区区30名私人应急救援队成员，携带1台抽水设备，姗姗来迟的赶赴京广路隧道事发路段，以近乎杯水车薪的排水措施，对隧道内预计残存的，逾50万立方米积水展开抽排作业。
 
-米勒告诉《邮报》，该平台现在有150万用户，其中45%在美国，15%在巴西，其余的用户来自不同的国家。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003715/4E47B358-DEF8-4D8E-8723-60E146A68584.png)*杰森-米勒正在努力扩大该网站的意识形态吸引力，并希望聘请一名民主党人主管参与经营。Getty Images*
-GETTR的推出正值拜登政府被批评为试图影响Facebook等社交媒体网络来审查白宫认为的“错误信息”。
+此时距隧道被洪水吞噬已整整过去了近20几个小时，隧道内的人员生还几率已经极其渺茫。实际伤亡人数应该仅次于，郑州地铁5号线内的伤亡数量。
 
-“社交媒体巨头正在与乔-拜登合作，”米勒说：“这很危险。”
+由此我们不难看出，在郑州市民在被来势汹汹的洪水围困侵袭，严重危及生命的急难关头，中共当地的政府机关与职能部门，以及所谓的“人民子弟兵”与“人民警察”等强力机构，竟没有任何一个，于灾情突发的第一时间，投入到抗洪救灾一线的。
 
-他接着说：“只有在他们喜欢的情况下，言论自由对他们才重要。”
+反而是在强降雨过境北上，洪峰退却之后，大批军警才与中共的党媒喉舌宣传机构一起，声势浩大的出现在了郑州市区街头。从已知的公共社交网络媒体上，所看到的郑州市区最初的灾情救助情况，无一例外的都是民间百姓，自发相互施救的镜头及场景。
 
-虽然目前被视为主要是保守派的平台，但米勒说，GETTR正在努力扩大网站的意识形态吸引力，并希望在不久的将来聘请一名民主党人主管参与经营。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003933/CDC7735F-4168-44E0-A6AD-C31729CFFE46.png)众议院少数党领袖凯文-麦卡锡(Kevin McCarthy)已注册该平台。Getty Images ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003953/03D4F467-38BF-4E58-BF33-EE56726BAB09.png)会议主席伊利斯-斯特凡尼克也注册了Twitter的替代方案－Getter。CQ-Roll Call, Inc via Getty Images![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22004019/5DB1530E-002A-4F37-A359-A387DA9BB8CF.png)众议员吉姆-乔丹是注册该应用程序的主要共和党人之一。Getty Images
-前总统川普尚未加入这个新平台，但本月他对大型科技巨头Facebook、Twitter和YouTube提起诉讼，因为它们关闭了他的账户并对其他保守派采取类似行动，他称之为“对美国人民进行非法和可耻的审查”。
+而彼时的那些个中共党员干部及军警将士们？你们又在哪里？爹亲娘亲不如当亲！危难时刻，这个“至亲至爱”的共产党又在哪里？不听党的话，党不不答应；听了党的话，党却要你自生自灭，毫不怜惜！这就是万恶的“中国共产党”许给10几亿平民百姓的无耻诺言！
 
-这些集体诉讼文件要求对所谓的违反第一修正案的行为进行未指明的赔偿，川普说，这些赔偿总额可能达到“数万亿美元”。
+（本文仅代表个人）
 
-川普还要求联邦法官推翻1996年授予互联网公司的有争议的豁免保护，宣布《通信礼仪法》第230条违宪。
+资料来源：
 
-原文连接[https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/](https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/)
+- [https://www.youtube.com/watch?v=b8Z7WOTSRko](https://www.youtube.com/watch?v=b8Z7WOTSRko https://m.sohu.com/a/478762205_120244154/?pvid=000115_3w_a)
+- [https://m.sohu.com/a/478762205\_120244154/?pvid=000115\_3w\_a](https://www.youtube.com/watch?v=b8Z7WOTSRko https://m.sohu.com/a/478762205_120244154/?pvid=000115_3w_a)
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 轰炸机
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+* * *
 
+發布╱zhong
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
 0

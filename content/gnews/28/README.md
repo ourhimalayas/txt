@@ -2,22 +2,45 @@
 ---
 
 
-## 白宫通讯主任承认正试图审查保守新闻网站 实则醉翁之意不在酒
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1413472/)
+## 【新闻速递】美国副国务卿谢尔曼将于下周在天津与王毅外长见面
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1413544/)
 
-#### 编译：脐橙君
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22012917/%E5%95%8A%E5%95%8A-1.jpg)
-在本周接受 CNN 采访时，白宫通讯主任凯特·贝丁菲尔德承认，拜登政府的审查工作专门针对发布“错误信息”的保守新闻网站。
+作者：纽约香草山农场写作组 Delilah小胖
 
-“你一定听说总统对这个问题非常积极。他认为这是生态系统的重要组成部分，从另一方面来看，当昨天总统被问及此事时，他也做了一定说明。这也是创造内容者应该负的责任，我会再次回到这个问题，有些保守新闻媒体正在创造不负责任的内容，例如分享有关病毒的错误信息，”贝丁菲尔德说。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-贝丁菲尔德发表上述评论之前，白宫新闻秘书珍·帕萨基 (Jen Psaki) 上周表示，政府正直接与 Facebook 合作，“标记”他们认为包含错误信息的帖子。
 
-“我们正在为Facebook标记传播虚假信息的有问题的帖子，”Psaki 告诉记者。
 
-白宫对打击“错误信息”不感兴趣。如果他们真的在乎所谓的“错误信息”，那么他们该禁止他们自己。他们真正有兴趣的是关闭对拜登政府追责的保守媒体网站。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22014826/%E5%9B%BE%E7%89%8735-1.png)图片来源：cnbc.com
 
-新闻来源：[White House Communications Director Admits They’re Trying to Censor Conservative News Sites by Katie Pavlich (townhall.com)](https://townhall.com/tipsheet/katiepavlich/2021/07/21/white-house-communications-director-admits-theyre-trying-to-censor-conservative-sites-n2592826)
+据美国财经权威媒体CNBC.com 2021年7月21日周三报道，美国副国务卿温迪·谢尔曼将于下周访华。她将与中共国外长王毅在天津会面，而不是在首都北京。谢尔曼此行是拜登总统就任以来中美两个世界最大经济体的第二次高层会晤。
 
-0
+美国国务院表示，这次会谈美方将为维护美国的利益和价值观与中共官员进行坦诚交流，并且这次会面，是美方负责任地管理两国双边关系的一种体现。
+
+这次会面背后的局势令人关切，在宣布副国务卿谢尔曼的本次出访计划之前几天，美国媒体纷纷报道了美国与北约和欧洲共同正式谴责中共国对微软公司服务器的黑客攻击。并且，尤为重要的是，拜登总统对CCP新冠病毒起源调查报告承诺的出炉日期，也就还只有一个月的时间。
+
+颇为耐人寻味的是，副国务卿谢尔曼的这次出访报道中，特别提到了拜登总统的对华态度。拜登在上个月，与习主席通话中曾表示，他将与盟友更密切地合作来对抗北京。
+
+相信，美国副国务卿谢尔曼的这次出访，或许是在美国拜登总统揭露CCP病毒真相前，给中共的最后一次弃恶从善的机会。
+
+参考阅读：
+
+[Deputy Secretary of State Wendy Sherman is set to visit China next week 美国副国务卿温迪·谢尔曼将于下周访华](https://www.cnbc.com/2021/07/21/deputy-secretary-of-state-wendy-sherman-will-visit-china-next-week.html?&amp;qsearchterm=china)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09105418/7-july-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2

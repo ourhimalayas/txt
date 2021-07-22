@@ -2,52 +2,42 @@
 ---
 
 
-## 脸书（Facebook）现在表示，它不想让你知道的都是假新闻
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1413366/)
+## 共和党高层人士涌入杰森-米勒的新社交媒体平台GETTR
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1413404/)
 
-据《dreddymd.com》作者：DREDDYMD ，2021年7月20日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22001615/D8272CBD-F018-4A3B-8596-DEDC51358C62.jpeg)
-马克·扎克伯格 (Mark Zuckerberg  ) 裁定 ，一项经同行评议的研究报告不允许在Facebook 平台上发表，因为该研究识别了戴口罩对健康的危害。
+据《纽约邮报》作者：[David Marcus](https://nypost.com/author/david-marcus/)，2021年7月20日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003617/BBE8BF5E-767D-4E63-B361-189E1178AFD6.jpeg)*前唐纳德-川普顾问杰森-米勒上个月刚刚推出GETTER.Getty Images*
+GETTR已经得到了一些大的收获。
 
-发表在享有盛誉的美国医学会杂志 (Journal of the American Medical Association (JAMA)) 上的争议论文，揭示了给学童戴口罩会使他们暴露在危险的高量的二氧化碳摄入中。
+前唐纳德-川普顾问杰森-米勒(Jason Miller)上个月推出的社交媒体平台正在有一大批共和党高级官员加入其网站。
 
-根据扎克伯格“博士”的说法，这根本不可能是真实的信息，因为它与托尼·福奇 (Tony Fauci) 某次所说的相反。然而，福奇之后又多次否定了自己的说法。
+国会中已经注册的主要人物包括众议院少数党领袖凯文-麦卡锡(Kevin McCarthy)，会议主席伊利斯-斯特凡尼克(Elise Stefanik)，以及众议员吉姆-乔丹(Jim Jordan)，众议员李-泽尔丁(Lee Zeldin)，参议员詹姆斯-兰克福德(James Lankford)和一系列其他人。
 
-Facebook 已决定，任何分享这项“有争议”的 JAMA 研究的新闻媒体或页面，都将在平台上看到其“整体分发减少”，或“以其他方式受到限制”。
+GETTR被作为推特的竞争对手，推特因广泛的审查制度和阻止访问合法的新闻报道而受到批评，例如《邮报》关于亨特-拜登笔记本电脑的爆炸性报道。
 
-**Facebook **将这项研究称为**“**假新闻**”**，称唯一可以在平台上分享的**“**科学**”**形式是：口罩在对抗武汉冠状病毒 **(Covid-19) **方面完全安全且神奇有效的那种。
+许多共和党人，甚至民主党人都推动使用监管变革，迫使推特以更高的透明度运作–而其他立法者则认为，推特是一家私营公司，答案是由其他人来建立新的竞争平台，这正是米勒所做的。
 
-佛罗里达大学的另一项识别了儿童口罩上的危险病原体的研究，也被限制在 Facebook 上分享，因为扎克伯格不同意其结论。
+米勒告诉《邮报》，该平台现在有150万用户，其中45%在美国，15%在巴西，其余的用户来自不同的国家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003715/4E47B358-DEF8-4D8E-8723-60E146A68584.png)*杰森-米勒正在努力扩大该网站的意识形态吸引力，并希望聘请一名民主党人主管参与经营。Getty Images*
+GETTR的推出正值拜登政府被批评为试图影响Facebook等社交媒体网络来审查白宫认为的“错误信息”。
 
-现在，当用户或页面试图分享这两篇文章中的任何一篇时，Facebook 的“事实核查员”会弹出警告，解释说经过同行评审这是科学“骗局”，因为它们与CDC的罗谢尔·瓦伦斯基、福奇以及其他在政府工作的宣传员的观点不同。
+“社交媒体巨头正在与乔-拜登合作，”米勒说：“这很危险。”
 
-Facebook 建议其用户查看一些名为“Lead Stories”的“事实核查”媒体，以了解为什么 JAMA 研究是“骗局”。至于口罩病原体实验室报告，Facebook 表示其用户应该相信“法新社法国”。
+他接着说：“只有在他们喜欢的情况下，言论自由对他们才重要。”
 
-**Facebook **甚至无法弄清楚自己的事实，搞笑地将**“**法新社法国**”**称为**“**法新社非洲**”**。
+虽然目前被视为主要是保守派的平台，但米勒说，GETTR正在努力扩大网站的意识形态吸引力，并希望在不久的将来聘请一名民主党人主管参与经营。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003933/CDC7735F-4168-44E0-A6AD-C31729CFFE46.png)众议院少数党领袖凯文-麦卡锡(Kevin McCarthy)已注册该平台。Getty Images ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22003953/03D4F467-38BF-4E58-BF33-EE56726BAB09.png)会议主席伊利斯-斯特凡尼克也注册了Twitter的替代方案－Getter。CQ-Roll Call, Inc via Getty Images![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22004019/5DB1530E-002A-4F37-A359-A387DA9BB8CF.png)众议员吉姆-乔丹是注册该应用程序的主要共和党人之一。Getty Images
+前总统川普尚未加入这个新平台，但本月他对大型科技巨头Facebook、Twitter和YouTube提起诉讼，因为它们关闭了他的账户并对其他保守派采取类似行动，他称之为“对美国人民进行非法和可耻的审查”。
 
-詹妮弗·卡布雷拉（Jennifer Cabrera）写了一篇关于口罩病原体实验室报告的文章。她分享的一系列截图显示，法新社法国在它（报告）发布后整整 20 天都没有对其进行审阅。
+这些集体诉讼文件要求对所谓的违反第一修正案的行为进行未指明的赔偿，川普说，这些赔偿总额可能达到“数万亿美元”。
 
-在法新社法国进行评估的同一天，Facebook 宣布其调查结果比报告本身更“有效”。Facebook 还第一次搞笑地将法新社法国误认为“法新社非洲”，这表明它甚至无法弄清楚自己的事实。
+川普还要求联邦法官推翻1996年授予互联网公司的有争议的豁免保护，宣布《通信礼仪法》第230条违宪。
 
-“法新社的‘事实核查’只是突出了进行测试的科学家与未进行测试的其他科学家之间的分歧。”卡布雷拉在推特上写道。
+原文连接[https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/](https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/)
 
-“法新社没有承认更多的研究可以解决争端，而是简单地称该报告是假的。那不是科学——那是宣传。”
-
-Facebook当然对“揭穿”科学和事实有着既得利益。它与波因特研究所（Poynter Institute）等团体合作。该机构运营着一个“国际事实核查网络”，负责监管互联网内容，以确保其与政府官方说法相符。
-
-波因特研究所从由 eBay 创始人皮埃尔·奥米迪亚和极左翼亿万富翁乔治·索罗斯创立的少数几个赠款组织那里获得了 130 万美元的赠款。
-
-“记得打针，因为疫苗会保护你免受所有新型冠状病毒的侵害。”我们的一位评论者开玩笑说，整个中共病毒马戏团在短期内没有结束的迹象。
-
-“你会相信的，因为我们是权威，而你只是一个没有受过教育的平民。你会死，但这就是我们想要的。照我们说的去做，一切都会好起来的。”
-
-关于大科技公司审查有关中共病毒的所有真相的更多相关新闻，可以在[Censorship.news](http://censorship.news/)上找到。
-
-原文链接：[https://dreddymd.com/2021/07/20/facebook-now-says-medical-studies-published-in-peer-reviewed-journals-are-fake-news-if-they-conclude-things-that-globalists-dont-want-you-to-know/](https://dreddymd.com/2021/07/20/facebook-now-says-medical-studies-published-in-peer-reviewed-journals-are-fake-news-if-they-conclude-things-that-globalists-dont-want-you-to-know/)
-
-翻译：洛杉矶盘古农场 – 柯镇恶
-校对：洛杉矶盘古农场 – 心照
-编辑：洛杉矶盘古农场 – 明子
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 轰炸机
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/26102157/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
