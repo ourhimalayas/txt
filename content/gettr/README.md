@@ -18,6 +18,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 7/22/2021 5:28 AM (UTC)`
+
+7/20/21: Miles Guo：It serves the CCP right - Water flooded the PLA’s General Command for operations against Taiwan located 40 meters underground and the area with 1:1 mock-ups for battle drills in Zhengzhou<br/><br/>7/20/2021 郭先生直播(节选2): 中共罪有应得 - 洪水淹没了解放军设在郑州位于地下40米处的对台作战总指挥部和1:1的训练模型区<br/>
+![img](https://media.gettr.com/group45/getter/2021/07/22/05/11d983dd-d2cc-6557-346e-1eb49e935475/out.jpg)
+
+---
+
 `@miles 7/22/2021 3:08 AM (UTC)`
 
 7/20/21: Miles Guo：The biggest flood happened at the highest place in Zhengzhou with Yuda Palace Hotel being the center; Two of my cellmates in the Qingfeng Detention Center had 4 family members killed by flooding, and one cellmate’s home was cut off from electricity and his cell phone(s) stopped to work, with the police coming to his home to silence him<br/><br/>7/20/2021 郭先生直播(节选1): 郑州最高的地方发了水灾, 以裕达国贸为中心；文贵在清丰看守所的两位狱友共有4位家人被洪水夺走生命，其中一位狱友家竟然被断电，手机也无法使用，并被警察找上门来要求噤声
@@ -305,13 +312,6 @@ From the video of Wang Jian, Chairman of the Beijing Genomic Institute (BGI), th
 
 This is the real face of Serpent Yan! 
 ![img](https://media.gettr.com/group26/getter/2021/07/19/16/d6e470d1-5802-5f5c-5cbb-9a468b326835/out.jpg)
-
----
-
-`@miles 7/19/2021 1:26 PM (UTC)`
-
-<br/>7月19号：尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？灭共已经到了最关键的时刻，我们全球的战友们．越是在这个时候越要擦亮眼睛．辩善恶是非．一切都已经开始！
-![img](https://media.gettr.com/group30/getter/2021/07/19/13/40b1c8e5-985e-bbb0-7f06-ed8b2346d3e5/out.jpg)
 
 ---
 
