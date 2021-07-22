@@ -2,43 +2,36 @@
 ---
 
 
-## 共和党高层涌向杰森·米勒的新社交媒体平台GETTR
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1413157/)
+## 法轮功7·20反迫害22周年：美加法等国有政要发声支持
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1413211/)
 
-翻译：烟波浩淼 |校对：雨山溪桥客
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21223423/Picture1-68.png)前唐纳德·川普（Donald Trump）顾问杰森•米勒（Jason Miller ）上个月推出了 GETTER，图片来自网络
-盖特（GETTR）已经获得了一些大的收获。
+2021年7月21日
 
-据悉上个月，前唐纳德·川普总统顾问杰森•米勒推出的社交媒体平台GETTR已有许多共和党高层官员加入。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21230355/0-11.jpg)
 
-在已经签约的国会主要议员中，有众议院少数党领袖加州共和党议员凯文·麦卡锡（Kevin McCarthy）、会议主席纽约州共和党议员埃利斯·斯特凡尼克（Elise Stefanik），以及共和党俄亥俄州众议员吉姆·乔丹（Jim Jordan）、纽约州共和党众议员李·泽尔丁（Lee Zeldin）、俄克拉荷马州参议员詹姆斯·兰克福德（James Lankford）和其他一些人。
+编辑摘要：
 
-盖特被认为是推特的竞争对手，推特因广泛的审查制度和阻止合法新闻报道而受到批评，比如对《华盛顿邮报》关于亨特·拜登的笔记本电脑事件的[爆炸性报道](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)进行的审查。
+全球法轮功人士日前通过不同方式在不同国家地区举行“全球720反迫害22周年”活动，美国15名国会议员向其所在州的法轮大法学会发出声援信和视频表达支持，并对北京严重侵犯人权等罪行进行谴责。他们承诺将继续在美国国会推动相关法案，结束中国大地上对法轮功的迫害，并让中共对其罪行承担责任。
 
-许多[共和党人](https://nypost.com/2020/10/28/ted-cruz-rips-jack-dorsey-over-censorship-of-posts-bombshell/)甚至[民主党人](https://nypost.com/2020/11/18/democrats-use-big-tech-hearings-to-demand-more-censorship/)都在推动利用监管改革，迫使推特的运营更加透明——而其他立法者则认为，推特是一家私人公司，答案是让其他人建立新的平台，这正是米勒所做的。
+前美国国务卿蓬佩奥、美国联邦参议院外交关系委员会主席罗伯特‧梅嫩德斯（Robert Menendez）、美国佛州国会参议员马可‧卢比奥（Marco Rubio）、美国密苏里州国会众议员维姬‧哈兹勒（Vicky Hartzler）等政要纷纷发表声明，谴责中共侵害人权以及对法轮功的残酷迫害。
 
-米勒告诉《华盛顿邮报》，这个平台现在有150万用户，其中45%在美国，15%在巴西，其余的分布在不同的国家。
+在法国，巴黎等10大城市的法轮功学员在7月17日举行了反迫害集会，也获得法国媒体报道和一些政要的声援，包括法国参议院副主席娜塔莉·德拉特（Nathalie DELATTRE）女士、法国参议员、国会议员、《法国西部》报记者等。
 
-盖特的推出正值拜登政府[试图影响](https://nypost.com/2021/07/16/psaki-white-house-in-touch-with-facebook-to-push-true-narratives/)脸书等社交媒体网络，审查白宫认为“错误信息”的时候。
+35名加拿大议员最近联名致函总理特鲁多，要求加国政府敦促中共停止对法轮功的持续迫害，并对发动和积极参与迫害的中共官员实施制裁。
 
-米勒说：“社交媒体巨头正在与乔·拜登合作，这很危险。”
+2016年，美国众议院采取行动，通过了一项决议案，呼吁中共停止其活摘器官的恐怖行为，并立即释放所有的法轮功学员和其他良心犯。虽然这是朝着正确方向迈了一步，但是还必须做更多的工作。
 
-他接着说，“只有他们喜欢言论自由，言论自由才对他们重要。”
+据大纪元报道：调查中共强摘器官的“独立人民法庭”（Independent people’s tribunal）于2019年6月17日在伦敦宣判结果，判定中共活摘良心犯器官的行径已存在多年，并仍然存在，法轮功学员是器官供应的最主要来源。
 
-尽管目前主要被视为保守派的一个平台，但米勒说，盖特正在努力扩大网站的意识形态吸引力，并希望在不久的将来聘请一名民主党主管参与管理。
+【[新闻链接](https://www.rfi.fr/cn/%E5%B0%88%E6%AC%84%E6%AA%A2%E7%B4%A2/%E8%A6%81%E8%81%9E%E5%88%86%E6%9E%90/20210721-%E6%B3%95%E8%BC%AA%E5%8A%9F720%E5%8F%8D%E8%BF%AB%E5%AE%B322%E5%91%A8%E5%B9%B4-%E6%9C%89%E7%BE%8E%E5%8A%A0%E6%B3%95%E7%AD%89%E5%9C%8B%E6%94%BF%E7%99%BC%E8%81%B2%E6%94%AF%E6%8C%81)】
 
-前总统川普尚未加入这一新平台，但本月他对大型科技巨头脸书、推特和油管提起诉讼，控告他们关闭自己的账户，并对其他保守派采取类似行动，他称之为“对美国人民的非法和可耻的审查”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-这些集体诉讼文件要求对涉嫌违反《第一修正案》（First Amendment）的行为进行未指明的赔偿，川普表示，这些赔偿总额可能达到“数万亿”美元。
 
-川普还要求联邦法官推翻1996年授予互联网公司的有争议的豁免权保护，宣布《通信体面法》第230条款违宪。
+编辑：【英国伦敦喜庄园编辑部】
 
-【本文仅代表作者个人观点，与Gnews 无关】
-
-原文作者：大卫-马库斯（David Marcus）
-发布时间：2021年7月20日下午2:32更新
-原文链接：[https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/](https://nypost.com/2021/07/20/new-social-media-platform-gettr-attracting-big-gop-names/)
-
-编辑&发布:黎明的光芒
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

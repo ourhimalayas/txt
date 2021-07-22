@@ -40,14 +40,14 @@
 ### [2021/07/21-001 文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查](/content/gnews/9/README.md)
- ` 美国政要直译推`
-
-### [【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗](/content/gnews/10/README.md)
+### [【秘翻在线】拜登竭力敦促美国人接种疫苗](/content/gnews/9/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共虚假信息战正酣 矛头直指德特里克堡泄漏理论](/content/gnews/11/README.md)
- ` 曹操`
+### [7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查](/content/gnews/10/README.md)
+ ` 美国政要直译推`
+
+### [【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗](/content/gnews/11/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [人的大脑和脊髓、心肌和肺受损是永久性的](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -88,23 +88,23 @@
 ### [【中英文字幕】7/19/2021文贵盖特：灭共已经到了最关键的时刻，我们全球的战友们要擦亮眼睛，辩善恶是非](/content/gnews/24/README.md)
  ` Caihongqiao`
 
-### [法轮功7·20反迫害22周年：美加法等国有政要发声支持](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查](/content/gnews/26/README.md)
- ` 美国政要直译推`
-
-### [【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗](/content/gnews/27/README.md)
+### [【秘翻在线】拜登竭力敦促美国人接种疫苗](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [共和党高层涌向杰森·米勒的新社交媒体平台GETTR](/content/gnews/28/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【秘翻在线】岳晓勇被任命为新任中共阿富汗事务特使](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [数千名奥运门票购买者个人信息遭泄露](/content/gnews/29/README.md)
- ` 曹操`
+### [【秘翻在线】中东最大石油公司再遭黑客袭击 海量数据泄露](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [中共虚假信息战正酣 矛头直指德特里克堡泄漏理论](/content/gnews/30/README.md)
- ` 曹操`
+### [法轮功7·20反迫害22周年：美加法等国有政要发声支持](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查](/content/gnews/29/README.md)
+ ` 美国政要直译推`
+
+### [【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [虽证据日增，北京仍否认新疆强迫劳动](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [【今日祷告】为河南特大洪水祷告](/content/gnews/43/README.md)
+### [【中共国段子】业绩下滑](/content/gnews/43/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [【中共国段子】略施小计](/content/gnews/44/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [【今日祷告】为河南特大洪水祷告](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`
 
-### [【雅典娜诗集】凶兆民谣](/content/gnews/44/README.md)
+### [【雅典娜诗集】凶兆民谣](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【墙文推荐】唐云：大河长天](/content/gnews/45/README.md)
+### [【墙文推荐】唐云：大河长天](/content/gnews/47/README.md)
  ` 纽约香草山MOS03`
 
-### [【香草诗词】远猷](/content/gnews/46/README.md)
+### [【香草诗词】远猷](/content/gnews/48/README.md)
  ` 纽约香草山MOS03`
 
-### [中国被洪水淹没郑州市附近大坝过去 48 小时内第三个倒塌](/content/gnews/47/README.md)
+### [中国被洪水淹没郑州市附近大坝过去 48 小时内第三个倒塌](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年7月21日灭共要闻](/content/gnews/48/README.md)
+### [2021年7月21日灭共要闻](/content/gnews/50/README.md)
  ` 秘密翻译组G-Translators`
 
-### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/49/README.md)
+### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/51/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2021年07月21日澳喜要闻（每日更新）](/content/gnews/50/README.md)
+### [2021年07月21日澳喜要闻（每日更新）](/content/gnews/52/README.md)
  ` 澳喜农场`
 
-### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/51/README.md)
+### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/53/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [强制接种疫苗的国家映射暴政](/content/gnews/52/README.md)
+### [强制接种疫苗的国家映射暴政](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国称：将在亚洲海域永久部署两艘皇家海军军舰](/content/gnews/53/README.md)
+### [英国称：将在亚洲海域永久部署两艘皇家海军军舰](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [6月的通胀报告应该让美国人感到紧张](/content/gnews/54/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【热点推荐】郑州还泡在水中，政府已经开抓暴雨“不当言论者”](/content/gnews/55/README.md)
- ` 温哥华扬帆农场`
-
-### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/56/README.md)
+### [6月的通胀报告应该让美国人感到紧张](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

@@ -2,24 +2,54 @@
 ---
 
 
-## 数千名奥运门票购买者个人信息遭泄露
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1413045/)
+## 7月21日美国政要推文精选：中国共产党在掩盖什么，现在我们需要对冠状病毒 起源进行全面彻查
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1413186/)
 
-#### 编译：脐橙君
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21212408/ty.jpg)图片来源：Olympics
-“如果您购买了东京奥运会的门票，您可能需要更改密码。”周三，一位不愿透露姓名的政府官员透露，数以千计的东京奥运会门票购买者的登录ID和密码在网上泄露，同时泄露的还有夏季奥运会志愿者门户网站的个人登录信息。
+众议员戴安娜·哈什巴格: [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 在掩盖什么？现在我们需要对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源进行全面彻查！ 【附washingtonexaminer的文章：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 反对世卫组织有关呼吁对冠状病毒实验室泄漏理论进行第二次调查】
 
-由于冠状病毒的限制，持票人将无法参加实际活动。正如《太阳报》所指出的：
 
-这座城市对奥运会继续开绿灯，民众对此的反对呼声越来越高。尽管首都处于紧急状态，但外国运动员、政要和媒体仍被允许参加，这引起了极大的愤怒。我们的明星们被警告要遵守协议，并被告知“不要去晚上8点以后营业或提供酒水的餐馆”。在此之前，组织者强调了有关奥运会参与人员被发现在市中心饮酒或违反隔离规定的报道。这些报道“有可能严重损害 2020 年东京奥运会及其组织的声誉”。
 
-东京当地对举办奥运会的担忧日益加剧。数以万计的外国运动员、官员和记者可能会加速感染率并引入更多的传染性变异。在朝日新闻公布的一项调查中，超过一半的日本公众不希望奥运会继续进行。根据朝日新闻的一项民意调查，68%的日本受访者怀疑奥运会能否“安全可靠”地举行，这是日本首相菅义伟和国际奥委会反复做出的承诺。
+> What is the Chinese Communist Party hiding? We need a full COVID origin investigation NOW![https://t.co/Qi4ypUw96G](https://t.co/Qi4ypUw96G)
+> — Rep. Diana Harshbarger (@RepHarshbarger) [July 21, 2021](https://twitter.com/RepHarshbarger/status/1417943714232680449?ref_src=twsrc%5Etfw)
 
-门票销售惨败只是困扰奥运会的最新不幸事件。因为数十名运动员和其他参与奥运会有关的的人员被检测出COVID-19呈阳性，打破了场馆旨在预防疾病的承诺，有几名参与者不得不退出比赛。与此同时，奥运会本周失去了最大的赞助商丰田，该公司宣布也不会参加开幕式。
 
-据《太阳报》报道，还有一个意外的坏消息，就是在福岛垒球场发现了一只熊，据太阳报称，“官员们已经确认他们无法追踪到这头巨兽，已被确认为亚洲黑熊。”
 
-新闻来源：[Thousands Of Olympics Ticket Buyers Have Personal Info Leaked Online | ZeroHedge](https://www.zerohedge.com/geopolitical/thousands-olympics-ticket-buyers-have-personal-info-leaked-online)
+霍利参议员新闻办公室： 昨天，众议院民主党人阻止了参议员霍利对与Covid-19 起源相关的情报进行解密的立法，该法案已在参议院全体会议上获得通过。 为什么众议院民主党人害怕有关 Covid 的真相？相信美国人民可以处理真相。他们应该知道这种病毒的真正起源。
+
+
+
+> The American people can be trusted with the truth. They deserve to know the true origin of this virus. [pic.twitter.com/H9GbEjR63P](https://t.co/H9GbEjR63P)
+> — Senator Hawley Press Office (@SenHawleyPress) [July 21, 2021](https://twitter.com/SenHawleyPress/status/1417869058779893760?ref_src=twsrc%5Etfw)
+
+
+
+仍在等待美国国立卫生研究院主任[@NIHDirector](https://twitter.com/NIHDirector)和福奇博士对“功能增强”的问题的答案。 这些联邦卫生机构必须变得透明。 【附约翰逊的视频，揭露了福奇与 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的证据，谴责福奇否认此事的无耻行径，宣称应追责福奇等人】
+
+
+
+> Still waiting for an answer to our questions about gain-of-function from [@NIHDirector](https://twitter.com/NIHDirector?ref_src=twsrc%5Etfw) and Dr. Fauci. 
+> 
+> These federal health agencies have to become transparent.[https://t.co/pwabdlNYss](https://t.co/pwabdlNYss) [pic.twitter.com/tKdPFk9vUH](https://t.co/tKdPFk9vUH)
+> — Senator Ron Johnson (@SenRonJohnson) [July 21, 2021](https://twitter.com/SenRonJohnson/status/1417925643283615744?ref_src=twsrc%5Etfw)
+
+
+
+众议员马乔里·泰勒·格林： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 想要统治全世界。下面是我将怎么对付 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) ：（视频中，她谈到不允许中共的人到学校里，不给对中共效忠的学生签证，针对新冠的现在的做法是什么，中共还有多少生物武器，在哪里等等）
+
+
+
+> China wants to dominate the world. Here’s how I would handle the CCP. [pic.twitter.com/Hv6bUHcJEA](https://t.co/Hv6bUHcJEA)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [July 21, 2021](https://twitter.com/RepMTG/status/1417857226803396611?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨（著名军情记者）： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已在绞索上了吗？请看我在战斗室的访谈。 【附[http://rumble.com](https://t.co/HA2j2bTMIU?amp=1)该视频：中共即将崩溃。视频中比尔·格茨说他同意资深中国问题专家Paul Monk的看法，中共目前在军事和经济上可能比它表面上看起来要脆弱的多，清洗使军队对中共不满】
+
+
+
+> Is China's Communist Party on the ropes? My interview on Warroom. [https://t.co/9DxPIgZJDx](https://t.co/9DxPIgZJDx)
+> — Bill Gertz (@BillGertz) [July 20, 2021](https://twitter.com/BillGertz/status/1417558920495878147?ref_src=twsrc%5Etfw)
+
+
 
 0

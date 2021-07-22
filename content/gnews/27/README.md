@@ -2,18 +2,18 @@
 ---
 
 
-## 【秘翻在线】保罗议员：84%的以色列新感染病例接种过疫苗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413147/)
+## 【秘翻在线】中东最大石油公司再遭黑客袭击 海量数据泄露
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413196/)
 
-#### 翻译：Fenny
+#### 编译：喜相逢
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21224002/%E4%BB%A5%E8%89%B2%E5%88%97.jpg)图片来源：以色列时报
-据新闻博客网站“网关专家”（Gateway Pundit）21日报道， 威州议员约翰逊（Ron Johnson）作客福克斯电视台玛丽亚的早间节目时说，以色列的最新感染数据表明，新的感染病人中，接种过疫苗的人占高达84%。这是早上刚刚从以色列得到的数据。这表明辉瑞疫苗对预防 Delta 变种病毒基本无效。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21225559/ame.jpg)图片来源：新浪
+据彭博社报道，世界最大石油生产商沙特阿拉伯石油公司（Saudi Aramco/简称沙特阿美），确认公司约1兆节的数据遭泄露，黑客在暗网出售，并向阿美公司索要5000万美金赎金。
 
-采访是继保罗议员宣布他已经请求司法部对福奇博士（Dr. Anthony Fauci）对国会撒谎展开犯罪调查之后。福奇支助武汉毒所的功能增强研究，但他公然撒谎。在一个2018年的录像里，福奇曾宣布，重启功能增强研究。
+阿美称早先已经意识到，数据是被第三方承包商持有的有限数据公司间接释放，而非由于公司整体的系统被破坏，所以公司运营并未受到影响。早在2012年，阿美就遭受过 “鱼叉钓鱼式” 攻击， 3万多台电脑在数小时内被摧毁。 沙特官方认为黑客来源于沙特以外的某国身份不明的人。 2016年，普华永道会计师事务所在调查报告中称，中东一直是吸引高价黑客的地方。
 
-保罗议员表示，美国人民、世界人民都应该得到真相。不幸的是，由社交媒体、主流媒体、科技巨头、联邦健康机构和大政府组成的阴谋集团阻碍真相。关键的真相都被掩盖了很久。
+近年，全球能源行业遭受网络攻击频率逐渐增加，而石油厂、天然气厂、 油井、管道、炼油厂等公司长期以来在网络安全方面一直很落后。从电力、电网运营商到各类能源公司都表示网络攻击已变得愈加普遍。美国最大的电网运营商——美国区域电网（PJM Interconnection LLC）——因遭受到越来越多的攻击已向监管机构作出警告。
 
-新闻来源：[Sen. Ron Johnson: Data from Israel Shows 84% of New COVID Cases are with Vaccinated Individuals](https://www.thegatewaypundit.com/2021/07/sen-ron-johnson-data-israel-shows-84-new-covid-cases-vaccinated-individuals-video/)
+新闻来源：[Saudi Aramco confirms data leak after reports of cyber ransom](https://www.aljazeera.com/economy/2021/7/21/saudi-aramco-confirms-data-leak-after-reports-of-cyber-ransom)
 
 0
