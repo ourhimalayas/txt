@@ -2,30 +2,48 @@
 ---
 
 
-## 司法部指控4名中共国居民参与国家支持的全球黑客活动
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1413334/)
+## 脸书（Facebook）现在表示，它不想让你知道的都是假新闻
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1413366/)
 
-据《abc新闻》作者：Alexander Mallin，Luke Barr  2021年7月19日报道：
+据《dreddymd.com》作者：DREDDYMD ，2021年7月20日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22001615/D8272CBD-F018-4A3B-8596-DEDC51358C62.jpeg)
+马克·扎克伯格 (Mark Zuckerberg  ) 裁定 ，一项经同行评议的研究报告不允许在Facebook 平台上发表，因为该研究识别了戴口罩对健康的危害。
 
-美国司法部周一宣布，解封了一份控告四名中共国居民的起诉书，指控被告多年来一直致力于入侵美国和至少其他 11 个国家的数十家公司、大学和政府的计算机系统。
+发表在享有盛誉的美国医学会杂志 (Journal of the American Medical Association (JAMA)) 上的争议论文，揭示了给学童戴口罩会使他们暴露在危险的高量的二氧化碳摄入中。
 
-这份由大陪审团于 5 月返回，但上周五才解封的两项起诉书，列出了与该计划有关的四名中共国居民——其中三人被确认为是中共国情报机构分支“海南国家安全局（HSSD）”的官员。
+根据扎克伯格“博士”的说法，这根本不可能是真实的信息，因为它与托尼·福奇 (Tony Fauci) 某次所说的相反。然而，福奇之后又多次否定了自己的说法。
 
-根据法庭文件，丁晓阳、程庆民、朱允敏和吴淑荣有一个目标：在受保护的计算机上安装恶意软件，并窃取计算机上的数据。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22000431/D8D43432-6A39-4BBE-B802-EB023EC2220A.png)*图片：联邦调查局/司法部*
-起诉书称：HSSD 创立了一个幌子公司，以“识别和招募有才华的计算机黑客来渗透外国实体（包括外国大学）并窃取商业机密、专有数据等，并招募有才华的语言学家来翻译被盗材料”。
+Facebook 已决定，任何分享这项“有争议”的 JAMA 研究的新闻媒体或页面，都将在平台上看到其“整体分发减少”，或“以其他方式受到限制”。
 
-检察官声称：该计划从 2009 年 7 月持续到 2018 年 9 月，针对包括美国国立卫生研究院（NIH）在内的美国多所研究型大学；主要使用网络钓鱼技术以获取公司和机构数据。
+**Facebook **将这项研究称为**“**假新闻**”**，称唯一可以在平台上分享的**“**科学**”**形式是：口罩在对抗武汉冠状病毒 **(Covid-19) **方面完全安全且神奇有效的那种。
 
-美国司法部称：黑客的目标是与埃博拉、中东呼吸综合征、艾滋病毒/艾滋病、马尔堡和兔热病相关的传染病研究（机密）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22000546/F0DFBE78-93EA-4B4B-A054-92FC2F22562E.png)*美国司法部发布的一张海报展示了被通缉的4人的照片*
-“这些刑事指控再次凸显了中共国继续利用网络攻击来窃取其他国家的产品，公然无视其双边和多边承诺。”副总检察长丽莎·摩纳哥说。“中共国黑客活动的广度和持续时间（包括对十几个国家涵盖医疗保健、生物医学研究、航空和国防等领域的黑客活动）提醒我们没有任何国家或行业是安全的。今天的国际谴责表明，世界需要公平的规则，从而使各国投资于创新，而不是盗窃。”
+佛罗里达大学的另一项识别了儿童口罩上的危险病原体的研究，也被限制在 Facebook 上分享，因为扎克伯格不同意其结论。
 
-在起诉书解封之前，拜登政府与几个盟友和伙伴以及北约正在联手“揭露和批评”中共的“恶意网络活动模式”。政府高级官员于周一宣布，中共国正在从一些他们支持的网络攻击中获利，并正式表明他们（中共）是 3 月份的微软的Exchange 服务器泄露事件的幕后黑手。
+现在，当用户或页面试图分享这两篇文章中的任何一篇时，Facebook 的“事实核查员”会弹出警告，解释说经过同行评审这是科学“骗局”，因为它们与CDC的罗谢尔·瓦伦斯基、福奇以及其他在政府工作的宣传员的观点不同。
 
-[点击这里在Scribd 上查看起诉书原文。](https://www.scribd.com/document/516442938/Xiaoyang-Certified-Indictment-Unsealed-0%23from_embed)
+Facebook 建议其用户查看一些名为“Lead Stories”的“事实核查”媒体，以了解为什么 JAMA 研究是“骗局”。至于口罩病原体实验室报告，Facebook 表示其用户应该相信“法新社法国”。
 
-原文链接：[https://abcnews.go.com/Politics/doj-charges-chinese-nationals-state-backed-worldwide-hacking/story?id=78924111](https://abcnews.go.com/Politics/doj-charges-chinese-nationals-state-backed-worldwide-hacking/story?id=78924111)
+**Facebook **甚至无法弄清楚自己的事实，搞笑地将**“**法新社法国**”**称为**“**法新社非洲**”**。
+
+詹妮弗·卡布雷拉（Jennifer Cabrera）写了一篇关于口罩病原体实验室报告的文章。她分享的一系列截图显示，法新社法国在它（报告）发布后整整 20 天都没有对其进行审阅。
+
+在法新社法国进行评估的同一天，Facebook 宣布其调查结果比报告本身更“有效”。Facebook 还第一次搞笑地将法新社法国误认为“法新社非洲”，这表明它甚至无法弄清楚自己的事实。
+
+“法新社的‘事实核查’只是突出了进行测试的科学家与未进行测试的其他科学家之间的分歧。”卡布雷拉在推特上写道。
+
+“法新社没有承认更多的研究可以解决争端，而是简单地称该报告是假的。那不是科学——那是宣传。”
+
+Facebook当然对“揭穿”科学和事实有着既得利益。它与波因特研究所（Poynter Institute）等团体合作。该机构运营着一个“国际事实核查网络”，负责监管互联网内容，以确保其与政府官方说法相符。
+
+波因特研究所从由 eBay 创始人皮埃尔·奥米迪亚和极左翼亿万富翁乔治·索罗斯创立的少数几个赠款组织那里获得了 130 万美元的赠款。
+
+“记得打针，因为疫苗会保护你免受所有新型冠状病毒的侵害。”我们的一位评论者开玩笑说，整个中共病毒马戏团在短期内没有结束的迹象。
+
+“你会相信的，因为我们是权威，而你只是一个没有受过教育的平民。你会死，但这就是我们想要的。照我们说的去做，一切都会好起来的。”
+
+关于大科技公司审查有关中共病毒的所有真相的更多相关新闻，可以在[Censorship.news](http://censorship.news/)上找到。
+
+原文链接：[https://dreddymd.com/2021/07/20/facebook-now-says-medical-studies-published-in-peer-reviewed-journals-are-fake-news-if-they-conclude-things-that-globalists-dont-want-you-to-know/](https://dreddymd.com/2021/07/20/facebook-now-says-medical-studies-published-in-peer-reviewed-journals-are-fake-news-if-they-conclude-things-that-globalists-dont-want-you-to-know/)
 
 翻译：洛杉矶盘古农场 – 柯镇恶
 校对：洛杉矶盘古农场 – 心照

@@ -2,18 +2,22 @@
 ---
 
 
-## 【秘翻在线】2020年大选审计过后 宾州取消投票机认证
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413458/)
+## 白宫通讯主任承认正试图审查保守新闻网站 实则醉翁之意不在酒
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1413472/)
 
-#### 编译：坤霆
+#### 编译：脐橙君
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22011909/%E6%8A%95%E7%A5%A8%E6%9C%BA.jpg)图片来源：Politico
-据路透社7月22日报道，在去年12月共和党议员提出的对富尔顿县（Fulton County）的大选投票结果进行审计后， 宾夕法尼亚州最高投票委员会官员取消了该县的多米尼投票机认证。该举动极大鼓舞了川普的支持者及其盟友。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22012917/%E5%95%8A%E5%95%8A-1.jpg)
+在本周接受 CNN 采访时，白宫通讯主任凯特·贝丁菲尔德承认，拜登政府的审查工作专门针对发布“错误信息”的保守新闻网站。
 
-该州的执行秘书维罗妮卡·德格拉芬赖德（Veronica Degraffenreid）说，富顿县违反了该州的选举法案——让第三方获取其选票数据库权限。Wake Technology Services Inc就是这个第三方公司，可以随意进入其数据库修改和操纵选票。这家公司并没有对此事发表任何评论，据悉它还牵涉到了亚利桑那州正在进行的投票审计中。
+“你一定听说总统对这个问题非常积极。他认为这是生态系统的重要组成部分，从另一方面来看，当昨天总统被问及此事时，他也做了一定说明。这也是创造内容者应该负的责任，我会再次回到这个问题，有些保守新闻媒体正在创造不负责任的内容，例如分享有关病毒的错误信息，”贝丁菲尔德说。
 
-德格拉芬赖德还说，我们现在不能认证多米尼投票系统是可以安全使用的。
+贝丁菲尔德发表上述评论之前，白宫新闻秘书珍·帕萨基 (Jen Psaki) 上周表示，政府正直接与 Facebook 合作，“标记”他们认为包含错误信息的帖子。
 
-新闻来源：[Pennsylvania decertifies county’s voting machines after 2020 audit](https://www.reuters.com/world/us/pennsylvania-decertifies-countys-voting-machines-after-2020-audit-2021-07-21/)
+“我们正在为Facebook标记传播虚假信息的有问题的帖子，”Psaki 告诉记者。
+
+白宫对打击“错误信息”不感兴趣。如果他们真的在乎所谓的“错误信息”，那么他们该禁止他们自己。他们真正有兴趣的是关闭对拜登政府追责的保守媒体网站。
+
+新闻来源：[White House Communications Director Admits They’re Trying to Censor Conservative News Sites by Katie Pavlich (townhall.com)](https://townhall.com/tipsheet/katiepavlich/2021/07/21/white-house-communications-director-admits-theyre-trying-to-censor-conservative-sites-n2592826)
 
 0

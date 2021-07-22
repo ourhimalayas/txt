@@ -2,22 +2,23 @@
 ---
 
 
-## 白宫通讯主任承认正试图审查保守新闻网站 实则醉翁之意不在酒
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1413472/)
+## 【秘翻在线】日本静大教授杨海英在煽动种族仇恨
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413531/)
 
-#### 编译：脐橙君
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22012917/%E5%95%8A%E5%95%8A-1.jpg)
-在本周接受 CNN 采访时，白宫通讯主任凯特·贝丁菲尔德承认，拜登政府的审查工作专门针对发布“错误信息”的保守新闻网站。
+撰稿：待命（文晓）
 
-“你一定听说总统对这个问题非常积极。他认为这是生态系统的重要组成部分，从另一方面来看，当昨天总统被问及此事时，他也做了一定说明。这也是创造内容者应该负的责任，我会再次回到这个问题，有些保守新闻媒体正在创造不负责任的内容，例如分享有关病毒的错误信息，”贝丁菲尔德说。
+责编：待命（文晓）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22014210/%E7%94%BB%E5%83%8F5.png)(图片源自本文链接）
+日本静冈大学教授杨海英，21日晚在他的推特和日本雅虎网站，用日语发表著名文章，叫嚣汉族人最支持中共的种族灭绝行为！
 
-贝丁菲尔德发表上述评论之前，白宫新闻秘书珍·帕萨基 (Jen Psaki) 上周表示，政府正直接与 Facebook 合作，“标记”他们认为包含错误信息的帖子。
+文贵先生远见卓识，很早前就提出了“中共不等于中国” 、“中共不等于中国人”，为的是不让中共绑架十四亿中国人民的企图得逞。杨海英这是公开跟我们新中国联邦主张的“中共不等于中国人”唱反调，这是想挑动日本人仇恨华人！是想置在日华人于死地！
 
-“我们正在为Facebook标记传播虚假信息的有问题的帖子，”Psaki 告诉记者。
+来自中国内蒙，在日本静冈大学任教的杨海英，他为谁？为什么要挖空心思地，撰文发表这样的文章呢？这是他的个人行为吗？其它国家、其它语言，类似这样的言论会不会接踵而至？其后果是什么？应引起警觉！这是我们每个海外华人应该深思的问题！
 
-白宫对打击“错误信息”不感兴趣。如果他们真的在乎所谓的“错误信息”，那么他们该禁止他们自己。他们真正有兴趣的是关闭对拜登政府追责的保守媒体网站。
+[信息来源](https://news.yahoo.co.jp/articles/9c8c664d71ad53836ed78020202752125751a371)
 
-新闻来源：[White House Communications Director Admits They’re Trying to Censor Conservative News Sites by Katie Pavlich (townhall.com)](https://townhall.com/tipsheet/katiepavlich/2021/07/21/white-house-communications-director-admits-theyre-trying-to-censor-conservative-sites-n2592826)
+
+
+（文章仅代表作者个人观点）
 
 0

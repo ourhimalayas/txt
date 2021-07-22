@@ -2,47 +2,10 @@
 ---
 
 
-## 【今日祷告】为河南特大洪水祷告
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1413219/)
+## 【中共国段子】略施小计
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1413266/)
 
-祷告者：香草山福音部 捆绑ccp一千年
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/19201631/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
-
-
-
-主啊！坐在白色大宝座的天父上帝，三位一体的神，我奉耶稣基督尊贵的名祈求。求你的灵开启我的心智，开启罪人与你交通的管道，我好站在这里为遭遇洪水之灾的同胞。
-
-主啊，看到河南郑州的人遭遇这样洪水灾难的时候，我们在揪心、难过、流泪。在看到一个个被洪水冲毁的家园中，生命随时在淹没。在这个关键危机的时刻，主啊，生命就像草芥一样一个个的被冲走的时候，主啊，求你保守河南灾区人民早日脱离危险。
-
-主啊，求你的百姓在洪水大灾中悔改归主。求你早日启用我们新中国联邦，好为14亿被奴役的中国人带来尊严。主啊！求你在这个国家中早日施行毁坏、拔除中共这颗毒害百姓毒瘤的工作，因为中共是抵挡你真道的敌基督者。
-
-主啊！看看那些敌基督者——中共在宣传他们所谓的抗洪救险英雄，他们总是擅长在灾难或人手所造的灾难中宣传他们的救人的丰功伟绩，他们在说，我们给了多少钱，我们出了人来救人。那些关键的人生命的丧失的画面，他们从来都不报道。
-
-我们再次将这样的邪恶政府在你面前控诉，并将河南交在主你的手上，再次将我们河南人交在主你的手上，我们也为河南——被誉为中国的福音之都——东方的耶路撒冷交在主你的手上。让我们知道在这个关键时刻，你大能的救恩必临到渴慕你话语的人身上，也比使更多的河南人在洪水中看见救恩就悔改归向你。
-
-主啊！我们知道在挪亚时代，你就用洪水除灭了地上一切的罪，从此以后啊，你在天空画出一道彩虹，用虹为记号说：我便记念我与你们和各样有血肉的活物所立的约，水就再不泛滥。主，要我们知道洪水是早晚会退去，但中共政权比洪水更猛兽。
-
-感谢主，你让我们知道，当上帝在审判一个文化时，审判一个邪恶犯罪集团的时候，沉默其中的人是不分义人和罪人（义人死进天国），有时候我们很难分辨说好人和坏人。但当我们都沉浸在一个罪恶的环境当中继续保持沉默的时候，我们就有罪了，我们早晚会要为此付出这样的代价。
-
-这就是我们新中国联邦人的使命，我们爆料革命的价值所在，我们就是要向罪恶的中共说不，我们就是要去发声，去把神的审判、救恩和公义、慈爱的信息传达出来。使更多的中国人得到救赎，不站中共的道路，不坐中共这个亵慢神的座位。主啊！以上的祷告奉我主耶稣基督得胜的名求。阿们！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
+【作者】美国队长
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21233003/simplified46.jpg)【免责声明】：本段子纯属虚构，如有雷同，实属巧合
+![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg]()![This image has an empty alt attribute; its file name is 0923D000-696C-4EAA-A068-736D14D6694D.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
 0

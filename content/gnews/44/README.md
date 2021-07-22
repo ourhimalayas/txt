@@ -2,41 +2,51 @@
 ---
 
 
-## 【聚焦澳洲】澳拟出手阻止中共控制太平洋岛国网络
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1413459/)
+## 全程近五公里的郑州京广快速路隧道5分钟内惨遭灭顶之灾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1413496/)
 
-#### **雅典娜【聚焦澳洲】，汇聚澳洲时事分析报道**
+台灣寶島農場｜快慢機
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013806/%E5%9C%96%E7%89%87-1-3.png)
+全程总长近五公里的，郑州京广快速路隧道，在当地时间7月20日遭受暴雨洪水袭击下的短短5分钟内，便已被彻底灌满，惨遭灭顶之灾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013905/%E5%9C%96%E7%89%87-31.png)
+郑州京广绕城快速路，是郑州市近年来，为缓解日益增长的城市拥堵交通压力，而投入重金修建的基础道路设施项目。而以南、北向布局，全程总长近五公里的京广路隧道，便位于该条绕城快速路的核心区段内。
 
-#### 作者：小红帽
+据悉，自京广绕城快速路建成通车以来，尤其是该条京广路隧道南北双向进出口路段区间内，堵车情况早已成为途径此路段的家常便饭，至今也从未有所缓解。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013920/%E5%9C%96%E7%89%872-1.jpg)
+当7月20日那场史无前例的强降水，突然袭击郑州市区之时，该路段的车流量，依旧如往常一样拥堵不堪。然而此时还隧道内龟速前行移动的人们，却未曾察觉，一场突如其来的灭顶之灾，所留给他们的仅有，不足短短5分钟的逃生之机。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22013930/%E5%9C%96%E7%89%874-1-e1626932629295.png)
+狂风暴雨挟杂着波涛汹涌的洪水，就这样在短短5分钟内，瞬间将京广路隧道，南北两端双向出口，彻底淹没。仅仅几分钟前还在该路段及隧道内，拥堵不前的大量滞留车辆，转眼间便悉数全部被数米深的洪水彻底吞噬。
 
-#### 编辑：翼族
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22012015/Digicel.jpg)
-图片来源：The Irish Times
+初步估计，在这条全程总长近5公里的双向六车道隧道内，至少有数百辆各型机动车及成员，在这次灭顶之灾中不幸罹难。
 
-根据《[自由亚洲电台》](https://www.rfa.org/mandarin/Xinwen/10-07192021151512.html)7月19日报道，澳洲最大电信企业——澳大利亚电信公司(Telstra公司)宣布，正考虑在巴布亚新几内亚、斐济、瑙鲁、萨摩亚、汤加和瓦努阿图等六个太平洋岛国收购移动网络，澳大利亚政府将帮助支付相关收购款项。《华尔街日报》的报道指出，如果相关协议达成，这将是澳大利亚政府为限制中共国在该地区、特别是在电信领域的影响力，而采取的最新举措。
+然而，更加令人愤恨的是，在京广路隧道遭遇灭顶之灾险情之后的20余个小时内，当地无论是政府机关，还是其它相关部门，抑或是军警等应急救援单位，竟没有任何一个在第一时间，立即前往该处展开救援。甚至连郑州市公安局交警支队，都没有及时的，将通往该路段的相关道路进行警戒封锁。
 
-[Telstra公司](https://www.reuters.com/business/media-telecom/telstra-talks-buy-digicel-pacific-with-australian-government-help-2021-07-18/)表示，澳大利亚政府将为总部位于牙买加的Digicel提供大部分资金。Digicel是太平洋地区最大的移动电话运营商，在巴布亚新几内亚、斐济、萨摩亚、瓦努阿图和塔希提岛开展业务。去年Digicel曾经否认，考虑将其太平洋业务出售给中共国有企业中国移动有限公司。由于Digicel是太平洋地区网络业务的主要参与者，澳大利亚政府将Digicel视为重要战略资产，认为不能让其落入中共的手中。
+截止到当地时间7月21日下午15时左右，才有区区30名私人应急救援队成员，携带1台抽水设备，姗姗来迟的赶赴京广路隧道事发路段，以近乎杯水车薪的排水措施，对隧道内预计残存的，逾50万立方米积水展开抽排作业。
 
-Telstra公司承认，澳大利亚政府最先与其进行了接洽，并提供了有关收购Digicel的技术建议。这项具有高度吸引力的商业资产，对太平洋地区的电信安全至关重要。尽管Telstra公司没有提供澳大利亚政府具体的支持金额，但是有澳大利亚媒体报道称，这笔交易总价值约20亿澳元（15亿美元），其中澳大利亚政府将支付约15亿澳元。
+此时距隧道被洪水吞噬已整整过去了近20几个小时，隧道内的人员生还几率已经极其渺茫。实际伤亡人数应该仅次于，郑州地铁5号线内的伤亡数量。
 
-早在2018年9月28日[澳大利亚国家广播公司](http://mil.news.sina.com.cn/china/2018-09-29/doc-ifxeuwwr9389614.shtml)就曾报道，美国驻澳大利亚代理大使卡鲁索（James Carouso）表示，美国正与日本和澳大利亚合作，针对华为的方案制定一项“反要约”（counter offer）。美国、日本、澳大利亚三国在2018年7月建立三方合作伙伴关系，共同投资“印太”地区，力图与中共国“一带一路”倡议下迅速扩张的新项目竞争。当时，澳大利亚以国家安全为由将华为排除在全国移动通讯网络的承包名单之外。后来，华为的该项目继续遭到美国及其盟友的“积极反制”，因为该项目被认为是中共在该地区深化外交关系并提高援助以加强其影响力的做法。
+由此我们不难看出，在郑州市民在被来势汹汹的洪水围困侵袭，严重危及生命的急难关头，中共当地的政府机关与职能部门，以及所谓的“人民子弟兵”与“人民警察”等强力机构，竟没有任何一个，于灾情突发的第一时间，投入到抗洪救灾一线的。
 
-中共一直致力于扩大在太平洋地区的影响力，其方式包括向太平洋小国提供贷款和外援，以及购买港口等具有战略意义的重要资产。随着澳大利亚与中共对抗的加剧，澳大利亚为了本地区的电信安全，提出了收购太平洋岛国电信网络的举动。有外交政策专家认为，这是为了阻止中共涉足当地具有重要战略性的领域。
+反而是在强降雨过境北上，洪峰退却之后，大批军警才与中共的党媒喉舌宣传机构一起，声势浩大的出现在了郑州市区街头。从已知的公共社交网络媒体上，所看到的郑州市区最初的灾情救助情况，无一例外的都是民间百姓，自发相互施救的镜头及场景。
 
-（文章内容仅代表作者观点）
+而彼时的那些个中共党员干部及军警将士们？你们又在哪里？爹亲娘亲不如当亲！危难时刻，这个“至亲至爱”的共产党又在哪里？不听党的话，党不不答应；听了党的话，党却要你自生自灭，毫不怜惜！这就是万恶的“中国共产党”许给10几亿平民百姓的无耻诺言！
 
-**参考链接：**
+（本文仅代表个人）
 
-1、[这个太平洋岛国与华为合作网络基建 美日澳要搅黄|巴布亚新几内亚|澳大利亚|华为\_新浪军事\_新浪网 (sina.com.cn)](http://mil.news.sina.com.cn/china/2018-09-29/doc-ifxeuwwr9389614.shtml)
+资料来源：
 
-2、[澳大利亚寻求向太平洋岛国提供融资 阻止中国收购移动网络 — 普通话主页 (rfa.org)](https://www.rfa.org/mandarin/Xinwen/10-07192021151512.html)
+- [https://www.youtube.com/watch?v=b8Z7WOTSRko](https://www.youtube.com/watch?v=b8Z7WOTSRko https://m.sohu.com/a/478762205_120244154/?pvid=000115_3w_a)
+- [https://m.sohu.com/a/478762205\_120244154/?pvid=000115\_3w\_a](https://www.youtube.com/watch?v=b8Z7WOTSRko https://m.sohu.com/a/478762205_120244154/?pvid=000115_3w_a)
 
-3、[Telstra in talks to buy Digicel Pacific in Australian govt-backed bid | Reuters](https://www.reuters.com/business/media-telecom/telstra-talks-buy-digicel-pacific-with-australian-government-help-2021-07-18/)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
 
-+2
+發布╱zhong
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/09151257/%E7%AA%84-4.jpg)
+0

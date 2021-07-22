@@ -2,20 +2,18 @@
 ---
 
 
-## 【秘翻在线】260亿美元！美医药巨头将支付史上第二高和解金
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413371/)
+## 【秘翻在线】2020年大选审计过后 宾州取消投票机认证
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1413458/)
 
-#### 翻译：坤霆
+#### 编译：坤霆
 校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22004537/opioid-treatment.jpg)图片来源：网络截图
-据半岛电视台7月21日报道，包括强生在内的美国几大医药巨头将被罚款260亿美元，因为是他们参与并加速了全国鸦片类药物的大流行，其中包括我们熟悉的中共鸦片超限战药物芬太尼。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/22011909/%E6%8A%95%E7%A5%A8%E6%9C%BA.jpg)图片来源：Politico
+据路透社7月22日报道，在去年12月共和党议员提出的对富尔顿县（Fulton County）的大选投票结果进行审计后， 宾夕法尼亚州最高投票委员会官员取消了该县的多米尼投票机认证。该举动极大鼓舞了川普的支持者及其盟友。
 
-这项提议中，全美最大的三家药物供应商麦克森（McKesson），嘉德诺（Cardinal Health）和美源伯根（Amerisource Bergen）将共同赔付210亿美元，强生（Johnson & Johnson）则赔付50亿美元。他们被指控在20年的鸦片类药物滥用过程中导致了五十万美国人死亡。
+该州的执行秘书维罗妮卡·德格拉芬赖德（Veronica Degraffenreid）说，富顿县违反了该州的选举法案——让第三方获取其选票数据库权限。Wake Technology Services Inc就是这个第三方公司，可以随意进入其数据库修改和操纵选票。这家公司并没有对此事发表任何评论，据悉它还牵涉到了亚利桑那州正在进行的投票审计中。
 
-其中一位总检察官说，“显然，这些钱根本不足以弥补人们所受的痛苦和折磨，但还是能为需要帮助的人提供帮助的。” 公共卫生官员还说：“这可能是我们解决鸦片类药物滥用的第一步，前提是钱用在了该用的地方。”
+德格拉芬赖德还说，我们现在不能认证多米尼投票系统是可以安全使用的。
 
-与此同时，美国疾病控制和预防中心（CDC）上星期公布的数据显示：2020年是有史以来美国因过量服用药物导致死亡的人数最多的一年，即93331人，比上一年增加了29%。
-
-原文链接：[Major drug companies reach landmark $26bn US opioid settlement](https://www.aljazeera.com/news/2021/7/21/major-drug-distributors-reach-landmark-26-bn-us-opioid-settlement)
+新闻来源：[Pennsylvania decertifies county’s voting machines after 2020 audit](https://www.reuters.com/world/us/pennsylvania-decertifies-countys-voting-machines-after-2020-audit-2021-07-21/)
 
 0
