@@ -2,8 +2,8 @@
 ---
 
 
-## 【热点播报】香港警方逮捕《苹果日报》前执行主编
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412782/)
+## 【热点播报】苹果公司已为其2022年的手机阵容投入5G技术
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412845/)
 
 作者：纽约香草山农场 四季
 
@@ -13,17 +13,23 @@
 
 
 
-据路透社7月21日报道，继6月24日香港《苹果日报》 被迫永久停刊后，香港警方周三逮捕了《苹果日报》的前执行主编，这是港府对该报纸进行的国家安全调查中的最新逮捕。
+据零对冲7月21日报道，科技巨头苹果表示，该公司正在寻求促进智能手机的销售，明年发布的所有手机都将具备5G功能。
 
-![]()![](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/3I6IBXERLRN7RIZL7GHINTR2TI.jpg)图片来源：路透社
+![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/AI%205g.png?itok=OGbSiYlL)图片来源：零对冲
 
-警方在一份声明中表示，该执行主编涉嫌“与外国或外国势力勾结，危害国家安全”。警方表示，该报的几十篇文章可能违反了中共国实施的国家安全法，这是当局根据该法对媒体报道采取的第一个例子。当局否认香港的权利和自由受到侵蚀，但表示危害中共国国家安全的行为已经超过了红线。
+报道称，该公司将不会在2022年推出任何新的4G机型，而是提供一款兼容5G的低端iPhone SE，预计这款手机将“最早于2022年上半年”上市。
 
-对2020年6月出台的这一法律的批评者来说，在这个1997年回归中共国统治的前英国殖民地，该法律被用来压制异议和侵蚀基本自由，包括媒体的自由。
+苹果新款的5G iPhone将看起来像iPhone 8的更新版本，它有一个4.7英寸的液晶显示屏。这款手机将使用苹果自己的A15处理器，手机的5G连接将由高通的X60调制解调器芯片驱动，它也将归属于该公司的高端手机系列。
+
+该公司也在抛弃迷你iPhone的想法，因为它未能得到消费者的青睐。换言之，它将被新的6.7英寸的iPhone Pro Max取代，这意味着在2022年下半年将有四款新手机发布。
+
+这家科技巨头还希望在2022年改造众多其他产品，包括其MacBook Pros和Airpods。
+
+在5G竞赛中，苹果已经落后于三星、Oppo和华为等公司，这可能是我们几天前注意到该公司在智能手机市场份额滑落到第二位的部分原因。
 
 参考阅读：
 
-[Hong Kong police arrest former Apple Daily editor in chief-media](https://www.reuters.com/world/china/hong-kong-police-arrest-former-apple-daily-editor-chief-media-2021-07-21/)
+[Apple Is Going “All In” On 5G For Its 2022 iPhone Refresh](https://www.zerohedge.com/markets/apple-going-all-5g-its-2022-iphone-refresh)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
 
@@ -42,8 +48,6 @@
 
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
 
 
 

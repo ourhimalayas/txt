@@ -2,41 +2,13 @@
 ---
 
 
-## 没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1412965/)
+## 2021年07月21日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1412910/)
 
-**作者：**HAF 2021-07-19
+撰稿：GTV澳喜影像视频组、新闻组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21195309/E322ECD0-6B25-4B11-8F6F-209E749414FB-scaled.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21195407/54692550-B9FE-4F84-B975-7B9BDB62F6DE-scaled.jpeg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21201429/7575.png)图片来源：网络
-在法国，没有疫苗通行证进入酒吧或餐馆的人将面临6个月的监禁，而未能检查顾客们证件的业主将面临1年监禁和45000欧元的罚款。
-
-是的，这是真的。
-
-这些惩罚是法国政府严格努力的一部分，目的是在众多主要城市强迫公民接种中共冠状病毒疫苗，应对他们多次不守规矩的抗议活动。
-
-总统伊曼纽尔·马克龙本周早些时候宣布，从8月1日起，那些无法证明自己接种了疫苗或（自费）检测中共病毒呈阴性的人将被禁止乘坐公共交通工具、进入电影院、购物中心、酒吧、咖啡馆、餐厅和其他场所。
-
-根据法律草案，“无法出示有效健康通行证的人将面临最高6个月的监禁和最高10000欧元（8500英镑）的罚款，而“欢迎公众的商业”的所有者如果未能检查顾客的通行证，可能会坐牢一年，并被处以45000欧元的罚款”。据卫报报道。
-
-这些制裁是西方强制遵守疫苗规定的最专制举动，可能超过世界其他地区的许多实际的独裁政权。
-
-《卫报》相当委婉地将其描述为“大棒法”，如果“大棒”是一头像纽约世贸中心大楼大小的电牛，那将会是真的。
-
-在多次骚乱之后，政府不得不在12月撤回类似的法律，但只是重新引入了同样的立法，对持不同政见者进行了更严厉的惩罚。
-
-正如我们先前所强调的，巴黎警方使用催泪瓦斯驱散在全国其他几个主要城市发生的抗议政府采取这些措施示威活动的示威者。
-
-我们现在正进入病毒大流行阶段，越来越明显的是，那些拒绝接种疫苗的人将长期处于最繁重的封锁措施之下。
-
-**评：**法国全国各地的民众多次进行示威活动抗议政府实行医疗、疫苗暴政，说明民众开始觉醒站出来反抗被全球精英主义分子控制的政府通过实验性中共病毒疫苗控制奴役法国民众的阴谋。疫苗的安全性没有经过任何临床实验验证，其副作用和致命性已经有广泛的报道并被事实和数据所支持。接种疫苗不但不能保护人体免于中共病毒的感染，反而让接种者更易于受到中共病毒变种的感染并且导致更大的死亡率。近期在全球各国纷纷出现民众反抗政府强推疫苗接种政策法令是人类开始大觉醒，集体站出来反对全球主义者通过中共病毒疫苗实现大重启和世界新秩序、控制奴役全人类的一个信号。这说明属于全人类的爆料革命启蒙开智各国民众反抗该国暴政独裁的政府的运动进入到一个新的阶段，觉醒了的民众的力量正在不断增强，腐败残暴的黑暗势力正在衰退中。
-
-#### **原文：**HAF, “French Face 6 Months In Jail For Entering A Bar Or Restaurant Without A COVID Pass”. Human Are Free, July 19, 2021.** **[https://humansarefree.com/2021/07/french-6-months-in-jail-for-entering-a-bar.html](https://ssl.microsofttranslator.com/bv.aspx?ref=TVert&amp;from=&amp;to=zh-Hans&amp;a=https%3A%2F%2Fhumansarefree.com%2F2021%2F07%2Ffrench-6-months-in-jail-for-entering-a-bar.html)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210721
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/01173736/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/03031357/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
 0

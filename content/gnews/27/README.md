@@ -2,47 +2,41 @@
 ---
 
 
-## 【快讯】一年内泰、汶、菲、俄4国来台免签
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1412921/)
+## 中共国债务风险增长: 3个警告信号
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1412837/)
 
-作者：纽约香草山健身部 Jack Li文阳
+2021年7月21日
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21200702/0-5.jpg)2021年5月19日星期三，在中共国北京金融街的华融资产管理公司总部，标识牌亮起。Yan Cong｜彭博社｜盖蒂图片
 
+北京–在中共国不断增长的债务堆中，正在出现薄弱环节。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+国家债务水平已攀升至GDP的近四倍，而在过去18个月中，越来越多的公司债券出现违约。
 
+中共国坏账管理公司华融的案例也吓坏了投资者，今年该公司未能及时提交财报，其以美元计价的债券暴跌，导致市场大跌。
 
+根据惠誉评级的数据，今年上半年，中国违约的公司债券总数达到625.9亿元（96.8亿美元），是2014年以来上半年最多的一年。其中，国有企业的违约占到一半以上，约356.5亿元。
 
-中华民国外交部7月20日在其网站宣布：考量后疫情时代恢复双边互访交流与活络观光市场的需求，各机关决议自今年8月1日起，延长试办泰国、汶莱、菲律宾及俄罗斯国民来台免签证措施1年，至明年7月31日，并续行“观宏专案”至明年12月31日。
+经济学家说，随着投资者的担忧加剧，以下是需要关注的三个重要进展。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/21200057/37-3.jpg)图源网络
-
-为了配合推动新南向政策并精进签证政策，外交部指出，今年4月12日邀集相关机关召开跨部会议，针对泰国、汶莱、菲律宾、俄罗斯国民来台免签、观宏专案团体旅游电子签证及东南亚国家人民来台先行上网查核（有条件式免签）等便利措施，并将进行全面性检视。
-
-台湾未来将持续检视及精进相关签证政策，盼在深化双边交流及争取国际旅客的同时，兼顾国境安全及社会治安，并持续与相关国家接洽，实质提升对外签证待遇，增进国人旅外便利。
-
-参考阅读：
-
-[外交部宣布自110年8月1日起至111年7月31日止，延長試辦泰國、汶萊、菲律賓等「新南向政策」目標國及俄羅斯國民來台免簽證措施](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=96171)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/07/02125347/7-july-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+1. 地方政府灰色地带的债券违约
 
 
+2. 华融对该行业的’大悬案”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+3. 一些省份和地方银行的薄弱环节
+
+【新闻链接】
+
+**翻译:** Beicy-数学老师｜**校对: ** 感恩
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/M5UTLt9esNuV7/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

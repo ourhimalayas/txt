@@ -31,14 +31,14 @@
 ### [【香港快讯】 7月21日 港大学生会迁出大楼最后期限 校方派员换门锁 张翔拒回应评议会事件](/content/gnews/5/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [【中英文字幕】7/20/2021文贵盖特：共产党策划最大的灭爆行动已经宣告彻底失败](/content/gnews/6/README.md)
- ` Caihongqiao`
+### [【文贵直播摘录】2021年7月20日：河南水灾死伤惨重、警察对死者家属封口，对台作战指挥中心淹没](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
 
-### [7/18/2021 郭先生：中共内斗中出现新四人帮，世界将承认新中国联邦](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
+### [2021/07/21-001 文贵先生盖特精要](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [7/18/2021 郭先生：爆料革命和新中国联邦正以历史上前所未有的方式灭共](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
+### [2021/07/20 文贵先生直播精要](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [2021年7月21日灭共要闻](/content/gnews/9/README.md)
  ` 秘密翻译组G-Translators`
@@ -88,35 +88,35 @@
 ### [2021/7/21 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快讯】美国官员称全球半导体供应短缺现缓和迹象](/content/gnews/25/README.md)
+### [【新闻速递】无竞争对手，布里斯班当选2032年奥运会主办方](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [中共国债务风险增长: 3个警告信号](/content/gnews/26/README.md)
+### [【快讯】美国官员称全球半导体供应短缺现缓和迹象](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共国债务风险增长: 3个警告信号](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快讯】一年内泰、汶、菲、俄4国来台免签](/content/gnews/27/README.md)
+### [【快讯】一年内泰、汶、菲、俄4国来台免签](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [【热点播报】苹果公司已为其2022年的手机阵容投入5G技术](/content/gnews/28/README.md)
+### [【热点播报】苹果公司已为其2022年的手机阵容投入5G技术](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [【热点播报】香港警方逮捕《苹果日报》前执行主编](/content/gnews/29/README.md)
+### [【热点播报】香港警方逮捕《苹果日报》前执行主编](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [高盛一半的超级富豪客戶的投资组合中添加了加密货币](/content/gnews/30/README.md)
- ` 索尼克`
-
-### [海军演习显示中共国海军重心转向台湾](/content/gnews/31/README.md)
+### [美安全机构解密中共黑客入侵案例，超出想象](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/32/README.md)
+### [海军演习显示中共国海军重心转向台湾](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【快速新闻】凯尔巴斯警告美国，应该禁止中国数字货币](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/33/README.md)
+### [中国在兽医死亡后报告了首例人类B型病毒病例](/content/gnews/34/README.md)
  ` 经济金融组`
-
-### [【五月花评】美军机降台湾，中共嘴硬手软](/content/gnews/34/README.md)
- ` 波士顿五月花农场`
 
 ### [【秘翻在线】科技巨头 富可敌国](/content/gnews/35/README.md)
  ` 秘密翻译组G-Translators`
@@ -142,45 +142,45 @@
 ### [7/20/2021财经快讯：拜登说不会因中共入侵微软制裁中共国；英国银行寻求偿还中共病毒贷款](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [2021年7月21日灭共要闻](/content/gnews/43/README.md)
+### [中国被洪水淹没郑州市附近大坝过去 48 小时内第三个倒塌](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年7月21日灭共要闻](/content/gnews/44/README.md)
  ` 秘密翻译组G-Translators`
 
-### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/44/README.md)
+### [VAX骗局被揭露：洛杉矶县重新实行强制戴口罩令](/content/gnews/45/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2021年07月21日澳喜要闻（每日更新）](/content/gnews/45/README.md)
+### [2021年07月21日澳喜要闻（每日更新）](/content/gnews/46/README.md)
  ` 澳喜农场`
 
-### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/46/README.md)
+### [没有疫苗通行证的法国人进入酒吧或餐厅将面临6个月的监禁](/content/gnews/47/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [强制接种疫苗的国家映射暴政](/content/gnews/47/README.md)
+### [强制接种疫苗的国家映射暴政](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国称：将在亚洲海域永久部署两艘皇家海军军舰](/content/gnews/48/README.md)
+### [英国称：将在亚洲海域永久部署两艘皇家海军军舰](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [6月的通胀报告应该让美国人感到紧张](/content/gnews/49/README.md)
+### [6月的通胀报告应该让美国人感到紧张](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【热点推荐】郑州还泡在水中，政府已经开抓暴雨“不当言论者”](/content/gnews/50/README.md)
+### [【热点推荐】郑州还泡在水中，政府已经开抓暴雨“不当言论者”](/content/gnews/51/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/51/README.md)
+### [中共国捍卫阿富汗塔利班，坚称其不是恐怖组织](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国报告首例死亡来自罕见的猴子B病毒](/content/gnews/52/README.md)
+### [中国报告首例死亡来自罕见的猴子B病毒](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【世事解评】永别了，路德！](/content/gnews/53/README.md)
+### [【世事解评】永别了，路德！](/content/gnews/54/README.md)
  ` 纽约香草山MOS02`
 
-### [路德连夜潜逃，警方破门搜捕](/content/gnews/54/README.md)
+### [路德连夜潜逃，警方破门搜捕](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [王定刚仓皇潜逃后将走向何方?](/content/gnews/55/README.md)
+### [王定刚仓皇潜逃后将走向何方?](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [众议院否决了解密中共病毒起源情报的法案](/content/gnews/56/README.md)
- ` HimalayaRussia`
 
