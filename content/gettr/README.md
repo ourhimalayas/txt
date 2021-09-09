@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/9/2021 2:23 PM (UTC)`
+
+8月8号：尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。<br/><br/>和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，和正义感，绝不能将自己的一生变成．金钱．性．虚荣．自私自利的奴隶……我们要开启人类真正的美好．安全，愉悦．自信．阳光．的未来的生活模式。
+![img](https://media.gettr.com/group22/getter/2021/09/09/14/07bb7197-8774-0100-06c3-ea07493a5087/out.jpg)
+
+---
+
 `@miles 9/9/2021 1:28 PM (UTC)`
 
 9.8日：打破中共房产骗局的第一块砖头……<br/><br/><br/>【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】
@@ -296,13 +303,6 @@ September 5th, a manifestation of the heavens. A black swan landed in Beijing's 
 
 吃饭饭啦……未来农场的必备菜！
 ![img](https://media.gettr.com/group6/getter/2021/09/05/17/bc54c438-824d-75cc-eb68-d892872fda27/out.jpg)
-
----
-
-`@miles 9/5/2021 4:49 PM (UTC)`
-
-9.5日：应很多战友要求……发几张今天直播后的照片！
-![img](https://media.gettr.com/group33/getter/2021/09/05/16/d90ff5db-506d-fc72-db3e-eef3241ecd32/d4f08abed9022605d37d1541b5962f44.jpg)
 
 ---
 
