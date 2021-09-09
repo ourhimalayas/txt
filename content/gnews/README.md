@@ -28,23 +28,23 @@
 ### [美疫苗接种报告：65万不良事件](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年9月9日 文贵先生盖特 6](/content/gnews/6/README.md)
+### [切尔诺贝利核事故真相](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年9月9日 文贵先生盖特 6](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月9日 文贵先生盖特 5](/content/gnews/7/README.md)
+### [2021年9月9日 文贵先生盖特 5](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月9日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [德国奥博豪森市接种加强疫苗后出现很多并发症](/content/gnews/9/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/9/README.md)
+### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [青蒿素、土霉素、伊维菌素对于治疗新冠绝对有效，但一定不能同时服用。](/content/gnews/10/README.md)
+### [青蒿素、土霉素、伊维菌素对于治疗新冠绝对有效，但一定不能同时服用。](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [事实：新冠疫苗的刺突蛋白将促使心脏病发作](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -103,29 +103,29 @@
 ### [美国建立的阿富汗人数据库 被塔利班用于监视镇压](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/31/README.md)
+### [中共国经济崩溃的开始：恒大面临破产](/content/gnews/31/README.md)
+ ` 纽约香草山MOS02`
+
+### [德国奥博豪森市接种加强疫苗后出现很多并发症](/content/gnews/32/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大药厂掌控的媒体攻击为新冠病毒提供便宜有效的早期治疗选项的医生](/content/gnews/32/README.md)
+### [大药厂掌控的媒体攻击为新冠病毒提供便宜有效的早期治疗选项的医生](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Jason Miller:在巴西的短暂拘留是推动言论自由的代价](/content/gnews/33/README.md)
+### [Jason Miller:在巴西的短暂拘留是推动言论自由的代价](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点0909](/content/gnews/34/README.md)
+### [DC每日热点0909](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [CNN承认，中共国网络军队煽动了&#8221;种族不公正&#8221;的抗议活动](/content/gnews/35/README.md)
+### [CNN承认，中共国网络军队煽动了&#8221;种族不公正&#8221;的抗议活动](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC大中华时事：日本副防卫大臣再次强调，台湾有事就是日本有事](/content/gnews/36/README.md)
+### [DC大中华时事：日本副防卫大臣再次强调，台湾有事就是日本有事](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [事实：新冠疫苗的刺突蛋白将促使心脏病发作](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：海通证券屡受处罚究竟为哪般？](/content/gnews/38/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

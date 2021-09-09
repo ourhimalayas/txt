@@ -2,19 +2,18 @@
 ---
 
 
-## 2021年9月9日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1522566/)
+## 2021年9月9日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1522591/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-😍😍😍😍😍😍😍😍
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1.gif)
-老奶奶仗义执言，路大脑袋是个跳梁小丑，恶心至极，会得到报应的。
-郭先生宽容大度：I don`t care!~你去放你的狗屁吧
-奶奶这句话说的太潇洒了～👍😂
-地球上将来没有他的立锥之地，关他麽监狱也不会要这种人，发射去火星当肥料吧😄
+🍎🍎🍎🍎🍎☂️☂️☂️☂️☂️
 
-[【2021年9月9日】文贵先生盖特原文](https://gettr.com/post/pakgpy225a)
+刚刚配上中文字幕。班农回答飞飞的问题说”我不在乎CNBC怎么说，我不会对文贵说的任何话打折扣。“
+
+# bannon said, “I think #Miles is becoming quickly the George Washington of the diaspora, the new China, the new Chinese so no, I won’t care what #CNBC says, I won’t discount anything Miles says.”
+
+[【2021年9月9日】文贵先生盖特原文](https://gettr.com/post/pakjt12477)
 
 **喜联盟Gnews编辑部**
 

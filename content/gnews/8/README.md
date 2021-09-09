@@ -2,15 +2,19 @@
 ---
 
 
-## 2021年9月9日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1522523/)
+## 2021年9月9日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1522566/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-🙏🙏🙏🙏🙏🙏🙏
-【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/46e532b1ca4996ad470349eb1e31c406.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/86f5d4ddfdaf21d0ce49e2caf7fc843a.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/656e91e7f1e085195d1a1d890188faa0.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/bf4e973ac9b5f393e8592a61a0e4659e.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/cb8376d6c72b8f3ea30904768d03d5cb.jpg)
-[【2021年9月9日】文贵先生盖特原文](https://gettr.com/post/pakuo8a5b6)
+😍😍😍😍😍😍😍😍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1.gif)
+老奶奶仗义执言，路大脑袋是个跳梁小丑，恶心至极，会得到报应的。
+郭先生宽容大度：I don`t care!~你去放你的狗屁吧
+奶奶这句话说的太潇洒了～👍😂
+地球上将来没有他的立锥之地，关他麽监狱也不会要这种人，发射去火星当肥料吧😄
+
+[【2021年9月9日】文贵先生盖特原文](https://gettr.com/post/pakgpy225a)
 
 **喜联盟Gnews编辑部**
 
