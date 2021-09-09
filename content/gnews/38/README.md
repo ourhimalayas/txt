@@ -2,19 +2,33 @@
 ---
 
 
-## 贝莱德押注中（共）国市场
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1521894/)
+## 艺术灭共：天津行业整顿,查处书法培训机构
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521840/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09091-1.png)
-全球最大的资产管理公司贝莱德看好中（共）国的储蓄市场。这家美国金融巨头刚刚向中（共）国投资者筹集了 67 亿元人民币（10 亿美元）的新投资基金。贝莱德是首家获准在中（共）国市场推出金融服务的外资集团：其新基金在五天内收到11万份投资订单。
+栏目记者/责任编辑：捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-54.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/9091.png)
+9月8日墙内新华社消息，天津某书法协会给没有书法基础的人发放书法培训师资格证被查处, 罚款并责令停业整顿, 此事甚至惊动了国务院天津督查组。这种行业小骗局在中共国司空见惯，为何惊动了天津督查组？引来新华社报道？
 
-与授予美国贝莱德管理中（共）国基金的许可证背道而驰的是习近平谈到要“重新分配收入和共同富裕”。贝莱德的举动激起了金融家乔治索罗斯的愤怒，他在《华尔街日报》的一次演讲中称此举是“一个悲剧性的错误”，是对西方客户和美国安全的冒险赌博。索罗斯正在讨伐习近平，他称习近平是自由社会最危险的敌人. 索罗斯警告储蓄者不要相信中（共）国市场，他说习近平将每一家中（共）国公司都视为是共产党利用的工具。
+就在近日, 文贵先生在其系列直播中, 曝光中共国艺术品收藏领域假丑恶现象, 盗国贼及其白手套利用艺术品进行金融财富的掠夺黑幕. 此次一个小小的天津书法协会查处事件, 才被新华社拿来放大报道, 表明中共或许将对书画行业发起所谓整风整顿，并很有可能发展成为整个文化艺术领域文革式大整顿的开始。
 
-免责申明：本文只代表译者观点，与Gnews无关
+70年来, 对于中共治下的艺术领域从业者来说,人们几乎都是在欺骗人和被人骗的游戏规则下, 为生存得过且过。正如郭文贵先生所言，“ 艺术品是寻找权力和金钱的艺术，是腐败的媒介”。
 
-原文链接：[https://www.corriere.it/america-cina/2021/09/09/processo-mancato-l-11-settembre-7c0273dc-113c-11ec-a833-233e7ea760f4.shtml](https://www.corriere.it/america-cina/2021/09/09/processo-mancato-l-11-settembre-7c0273dc-113c-11ec-a833-233e7ea760f4.shtml)
+终审: 文龍
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+上传：浪迹天涯
 
+参考链接：[http://www.news.cn/politics/2021-09/08/c\_1127841630.htm](http://www.news.cn/politics/2021-09/08/c_1127841630.htm) [https://gtv.org/video/id=61375c1e637d1e60db2fe8ad](https://gtv.org/video/id=61375c1e637d1e60db2fe8ad)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-4.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-51.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
 0

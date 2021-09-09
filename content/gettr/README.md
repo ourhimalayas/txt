@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/9/2021 2:55 PM (UTC)`
+
+🙏🙏🙏🙏🙏🙏🙏 <br/>【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
+![img](https://media.gettr.com/group16/getter/2021/09/09/14/4882323e-b270-2b88-cf3d-eeb0104228d7/bf4e973ac9b5f393e8592a61a0e4659e.jpg)
+
+---
+
 `@miles 9/9/2021 2:44 PM (UTC)`
 
 9.9日：尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。<br/><br/>和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，和正义感，绝不能将自己的一生变成．金钱．性．虚荣．自私自利的奴隶……我们要开启人类真正的美好．安全，愉悦．自信．阳光．的未来的生活模式。
@@ -296,13 +303,6 @@ September 5th, a manifestation of the heavens. A black swan landed in Beijing's 
 
 文贵永远都是农民草根的儿子……终生为穷人和草根利益而战……✊✊✊
 ![img](https://media.gettr.com/group37/getter/2021/09/05/17/9eee3107-e3a0-d892-9790-ff6972ee876a/0d0bfaa9223cedd2ab9fa4e497d2d4b6.jpg)
-
----
-
-`@miles 9/5/2021 5:03 PM (UTC)`
-
-吃饭饭啦……未来农场的必备菜！
-![img](https://media.gettr.com/group6/getter/2021/09/05/17/bc54c438-824d-75cc-eb68-d892872fda27/out.jpg)
 
 ---
 

@@ -2,68 +2,36 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国国际时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1521930/)
+## 人权组织敦促世界各大广播公司 取消北京冬奥会报道计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522064/)
 
-- 编译：wenwu–西班牙喜悦农场
+栏目记者：禹水沃土 
+责任编辑: 晓仙女，Foxrina
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-85.png)
+美国广播公司9月8日新闻，人权组织要求包括美国NBC在内的世界各大广播公司，取消对明年2月将在北京举办的冬季奥运会的报道，该请求来自代表中国少数民族，包括维吾尔人、藏人、香港居民和其他人的权利团体的公开信。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide4-7.jpeg)
 
-您若想了解全文报导内容，请点击标题链接
+中共正在对维吾尔人进行种族灭绝，并镇压西藏香港和许多其他人的运动，广播公司对奥运会的报道将帮助中共营造出“正常国家”的美好形象，无异于协助中共掩盖罪恶，甚至加剧其侵犯人权的行为。
 
-**1. [王毅称中方决定向阿富汗提供价值2亿元等物资](https://www.reuters.com/article/wangyi-china-afg-aid-0909-idCNKBS2G502P)**
+据悉，NBC 将支付 77.5 亿美元购买接下来六届奥运会的转播权，并与总部位于瑞士的国际奥委会密切合作。这些款项估计占国际奥委会总收入的 40%。中共被定义“种族灭绝和反人类罪”以来，国际奥委会主席托马斯·巴赫始终拒绝就中国维吾尔人或其他少数民族的待遇发表评论或谴责。奥委会和一些大公司为了利益而无视人权、无视生命，毫无奥运精神且甘当中共的帮凶。新中国联邦将和全世界正义的人们站在一起，阻止中共利用冬奥会的野心。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-4-7.png)
+(本文仅代表作者观点）
 
-据北京站《路透社》2021年9月8日电，中国国务委员兼外长王毅周三（8日）称，中方决定紧急提供价值2亿元人民币的粮食、越冬物资、疫苗和药品；待安全等条件具备后，中方会在尊重阿富汗主权独立的前提下，愿帮助阿富汗建设有助于改善民生的项目，并在力所能及的范围内，支持阿富汗和平重建和经济发展。
+参考链接：[Broadcasters urged to cancel plans to cover Beijing Olympics](https://abcnews.go.com/Entertainment/wireStory/broadcasters-urged-cancel-plans-cover-beijing-olympics-79888453)
 
-美国及其盟友是阿富汗问题的始作俑者，其比任何国家都更有义务向阿富汗人民提供经济、民生和人道主义援助，以敦促塔利班坚决同所有极端恐怖势力彻底切割，并采取有效措施予以约束打击；美国政府宣布完成在阿富汗撤军行动一周后，当地时间9月7日下午，阿富汗塔利班向外界公布了“阿富汗伊斯兰酋长国”的临时政府机构以及部分内阁成员名单。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-**2. [习近平任命新将军担任解放军指挥部监督印中边境](https://www.hindustantimes.com/world-news/xi-jinping-picks-new-general-to-head-pla-command-overseeing-india-china-border-101631000993687.html)**
+终审：FoxRina
+校对/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-5-7.png)
-
-据《印度斯坦时报》2021年9月8日电，中国国家主席习近平周一（6日）提拔负责新疆军区的中国人民解放军（PLA）高级军官汪海江为上将和负责监管有争议的中印边界的关键西部战区司令部（WTC）的负责人。 据[《法广网》](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210908-%E6%B8%AF%E5%AA%92%E7%A7%B0%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%99%8B%E5%8D%875%E5%A4%A7%E4%B8%8A%E5%B0%86%E8%83%8C%E5%90%8E%E5%AD%98%E8%B9%8A%E8%B7%B7)2021年9月8日电，习近平在两个月内第二次颁授上将军衔有许多蹊跷：
-
-一，西部战区在不到一年之内，换了4任司令（张旭东、徐起零、汪海江、赵宗岐）。西部战区在共军5大战区中辖区面积最大，司令部设在四川成都，是对印度、阿富汗的最前线，连续两任司令健康出问题，令外界十分关注。
-
-二，卸任的多名将领并未到达退役之龄。
-
-**3. [肯尼亚：政府为何隐瞒与中国的贷款合同？](https://www.theafricareport.com/125090/kenya-why-is-the-government-hiding-its-chinese-loan-contracts/) **
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-6-5.png)
-
-据《非洲报告》2021年9月8日电，越来越多的肯尼亚人对司法部长 (AG) Kihara Kariuki 越来越愤怒，因为他决心挑战活动人士在法庭上要求披露与中国签订的 32亿美元标准轨距铁路 (SGR) 合同的要求。此举并不顺利，许多人感到被出卖，并想知道为什么政府的高级律师如此坚决地将这些信息保密，而他的行为违反了他应该维护的同一宪法。
-
-肯尼亚宪法 [第 227(1) 条](https://www.klrc.go.ke/index.php/constitution-of-kenya/152-chapter-twelve-public-finance/part-6-control-of-public-money/396-227-procurement-of-public-goods-and-services) 和 2015 年[公共采购](https://www.afrocave.com/public-participation-kenya/)和处置法规定，公共项目必须公开并要求公众参与该过程。总统似乎在 2019 年同意这个立场，当时[他承诺](https://nairobinews.nation.co.ke/news/forget-it-state-house-makes-u-turn-on-releasing-sgr-contract)将合同公开，结果却故意把这事情忘了；在这里扮演魔鬼的拥护者，让我们假设合同保密符合公民的最佳利益。为什么总检察长没有到公众和国民议会面前解释原因？州议会内精英圈子之外的任何人都不知道为什么他们如此害怕告诉我们我们这些人有义务支付的这笔贷款的真相！
-
-**4. [新书欲揭中共权贵和中国富豪勾结内幕，作者遭死亡威胁](https://www.voachinese.com/a/desomond-shum-threat-china-09062021/6214485.html)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-7-5.png)
-
-据《美国之音》2021年9月7日电，沈栋的回忆录《红色轮盘：当代中国财富、权力、腐败和复仇的内幕故事》（Red Roulette: An Insider’s Story of Wealth, Power, Corruption, and Vengeance in Today’s China）定于周二出版。在书中，沈栋披露了自己和前妻与温家宝家族和孙政才进行钱权交易的过程以及其他中共权贵家族的敛财故事。沈栋定于周二（7日）接受美国之音的专访。
-
-该书作者沈栋（Desmond Shum）因为即将出版的最新回忆录，他遭到中共的生命威胁。威胁是由他的前妻，被指称为温家宝家族“白手套”的段伟红，（又称Whitney Duan）带给他的。段伟红于2017年9月5日在北京被马明哲“绑架”。在回忆录中，沈栋回顾了他和段伟红与温家宝的夫人张培莉以及被习近平清洗掉的潜在继任者孙政才之间的交易。通过交易，段和沈获得了利润丰厚的房地产和物流项目以及对大型国有企业股权的投资。他同时还揭露了段与王岐山，甚至习近平的交往。书中也揭露了其他中共权贵家族，比如江泽民、贾庆林、邓小平等家族的财富来源。
-
-段伟红在中国被关押了四年，到目前为止还没有受到起诉。沈栋在《红色轮盘》的结尾处曾经写道，自己写书的目的之一就是希望中共对段伟红的关押做出回应。在回忆录中，中共与富豪结盟是暂时的，是其实现掌控全中国这一目标的一部分，一旦中共不再需要富豪来建设经济、进行海外投资或帮助掌控香港时，富豪们就会被“抛弃”。
-
-**5. [邹幸彤被捕：香港警方指支联会为“外国代理人”并拘多名高层](https://www.bbc.com/zhongwen/simp/chinese-news-58484215)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-8-6.png)
-
-据《BBC》2021年9月8日电，香港警方早前向多名支联会常委发信，指当局“有合理理由相信”支联会是香港《国安法》执行细节中指的“外国代理人”，并要求对方交出支联会与多个组织或人士联络的资料。支联会全称是香港市民支援爱国民主运动联合会， 主要活动包括举办六四烛光悼念集会及之前星期日的大游行等；也就是，华人民主书院、中国维权律师关注组、壹传媒创办人黎智英的前私人助理Mark Simon等。警方在信件中又强调，没有遵从通知规定，被定罪后可能会罚款10万港元和监禁六个月。
-
-香港警方周三（8日）在新闻稿证实，按香港《国安法》执行细节相关规定拘捕支联会常委会四人，包括副主席邹幸彤、常委梁锦威、邓岳君和陈多伟；多名支联会常委之后周日（5日）召开记者会，（邹幸彤）表明支联会不是外国代理人，因此警方没有权要求支联会交出资料。
-
-香港警方这次引用的是香港《国安法》第43条实施细则附表五的权力，容许警方要求“外国代理人”或“台湾代理人”提供其在香港的活动和成员的个人资料、资产详情等；附表五同时规定，没有按照要求提供资料，可能会被罚款10万港元（约合12800美元）和监禁六个月；警方早前也按这个附表的权力，要求支援香港示威浪潮被捕示威者法律开支的612基金、华人民主书院，交出相关资料。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEWS_CH.-2.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
 
-
-+1
+0

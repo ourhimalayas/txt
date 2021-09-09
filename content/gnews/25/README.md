@@ -2,28 +2,32 @@
 ---
 
 
-## 美国建立的阿富汗人数据库 被塔利班用于监视镇压
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522045/)
+## 美国官方文件被曝光，证实武汉病毒所开展冠状病毒改造实验
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522104/)
 
-栏目记者/责任编辑：文顺
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-84.png)
-据法广网9月8日报导，美国斥资数亿美元建立的阿富汗人数据库，目前已落入塔利班之手。该数据库已沦为塔利班监视、镇压和惩罚阿富汗人民的利器。
+栏目记者/责任编辑：七哩香
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
+美国新闻网站The Intercept 9月7日披露的900多页文件显示，武汉病毒研究所曾经通过总部设在纽约的非政府组织“生态健康联盟”得到资金，从事改造蝙蝠冠状病毒的实验，从而使实验室制造的冠状病毒能够感染人类，并使其致病性更强。这一披露为新冠病毒来自于实验室提供了新的有力线索，同时反驳了中共官方的说法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide10-2.jpeg)
 
-美国自2006年起收集阿富汗人的生物特征数据，包含数百万阿富汗人的指纹、虹膜、面部图片。美国与其支持的阿富汗政府共享该系统。
+这批文件是The Intercept与美国国家卫生研究院进行的《信息自由法》诉讼中获得的。文件包括由国家过敏和传染病研究所资助的两个先前未公布的研究建议书，以及与生态健康联盟的研究有关的项目更新。
 
-自8月15日喀布尔陷落以来，不断有消息说，这个本为推行法治秩序及政府咎责力、建设现代化国家所用的数据库，已被塔利班没收，用来找出曾替美军工作的阿富汗人，或以此恫吓他们。
+据报道，其中一项由生态健康联盟负责人彼得·达扎克(Peter Daszak)主导的，名为《了解蝙蝠冠状病毒出现的风险》的资金申请计划，研究内容是通过筛选蝙蝠样本来寻找新型冠状病毒，还涉及筛选与活体动物接触的人。文件还涉及病毒研究的几个关键细节，包括在武汉大学动物实验中心的P3实验室，而不是武汉病毒研究所的P4实验室进行的人源化小鼠的关键实验工作。
 
-美方专家学者对此表示担忧，特别是该数据库会极大地提高塔利班的侦监及拦截能力，得以无情地杀害与他们作对的人。
+达扎克与中共深度勾结，之前《国家脉动》还挖掘了打杂客的演讲：他将描述为“杀手级”的病毒工作，委托给他的“中共国同事”。
+
+生态健康联盟从蝙蝠冠状病毒的研究中，共获得总计约310万美元的拨款，其中包括给武汉病毒研究所的59.9万美元经费，用于找到和改变可能感染人类的蝙蝠冠状病毒的“功能增益研究”。
 
 (本文仅代表作者观点）
 
-参考链接：[美国建立的阿富汗人数据库落入塔利班手中被用于监视镇压阿富汗人](https://www.rfi.fr/cn/美洲/20210908-美国建立的阿富汗人数据库落入塔利班手中被用于监视镇压阿富汗人)
+参考链接：[新披露文件证实 武汉病毒所曾进行蝙蝠冠状病毒改造实验](https://gnews.org/wp-admin/post-new.php)
+
+[NEW DETAILS EMERGE ABOUT CORONAVIRUS RESEARCH AT CHINESE LAB](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：FoxRina
+终审：暗黑
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -33,4 +37,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
 0
