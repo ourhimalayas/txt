@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/9/2021 7:05 PM (UTC)`
+
+G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要的项目考察，马上将和米兰最优秀的工厂签约，并在当地设置分公司. G|FASHION驻米兰设计师团队不久将推出更加惊艳的新产品，继续引爆时尚潮流. 🔥🔥🔥❤️❤️❤️❤️ 
+![img](https://media.gettr.com/group49/getter/2021/09/09/19/d8d15b78-3c9f-9857-92cd-941c3c4fe157/out.jpg)
+
+---
+
 `@miles 9/9/2021 5:02 PM (UTC)`
 
 🍎🍎🍎🍎🍎☂️☂️☂️☂️☂️
@@ -298,12 +305,6 @@ The heavens master of all things arranged this event at such a time and place, a
 
 September 5th, a manifestation of the heavens. A black swan landed in Beijing's Tiananmen Square. It is the only time in the history of China that can be traced, at the heart of 1.4 billion people, at the core of China, at this most sensitive time, the showing of the black swan symbolizing the change, the turning over of the heavens and the earth, a representation of the message from above. This is a natural fact that CCTV and all the propaganda agencies in China cannot change, and this is the last warning from the heavens to China. This is both a final warning to China and a final opportunity for the Chinese people to understand and cherish this opportunity! We shall see ......
 ![img](https://media.gettr.com/group23/origin/2021/09/05/20/c4872a23-d29c-fe56-35a8-8ee57a6b3ef2/out.jpg)
-
----
-
-`@miles 9/5/2021 6:48 PM (UTC)`
-
-北京天安门上飞来的黑天鹅．是中国历史上能查到的唯一的一次在核心的地段14亿人的中国的心脏🫀中心上．在这个最敏感的时候．落下来，象征着变革．改变，天翻地覆，来自上天信息的代表。这是中央电视台和中国的所有的宣传机构无法改变的自然的事实，这也是上天给中国最后的一次警告。这既是给中国的一个最后的警告，也是一个最后的机会，中国人是否能懂得和珍惜把握住，这次机会！咱们走着瞧……万物的主宰者，安排的此事件．这样的时间这样的地点一个具有绝对象征意义的物理世界上天万物的主人的显灵！它的意义深远，将成为历史上和未来的人类．又一个信仰和宗教界的最大的真实传奇．从这一刻起信仰和宗教和我们的物理，世界将走向一个新的历史的篇章．这就是互联网和社交媒体时间的伟大之处，再也没有人可以代表黑天鹅事件，成立各种的捐款和宗教组织欺骗愚弄普通的人们了在互联网的时代，真想离我们非常的近，这是这个伟大的时代的伟大之处🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
 ---
 

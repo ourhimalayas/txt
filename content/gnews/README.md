@@ -28,14 +28,14 @@
 ### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/5/README.md)
  ` 儒为`
 
-### [2021年9月9日 文贵先生盖特 2](/content/gnews/6/README.md)
+### [2021年9月9日 文贵先生盖特 6](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月9日 文贵先生盖特 1](/content/gnews/7/README.md)
+### [2021年9月9日 文贵先生盖特 5](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月8号郭文贵先生直播全文字版](/content/gnews/8/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [2021年9月9日 文贵先生盖特 4](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [事实：新冠疫苗的刺突蛋白将促使心脏病发作](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -46,14 +46,14 @@
 ### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/12/README.md)
+### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/12/README.md)
+ ` HimalayaRussia`
+
+### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/13/README.md)
+### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [墙内世界](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -85,46 +85,46 @@
 ### [有声| 北约示警：中共发展核武 不受限且不透明](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [只要中共不亡 黑暗还会再来](/content/gnews/25/README.md)
+### [秘翻在线: 文化市场的大疯狂标志着什么](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [只要中共不亡 黑暗还会再来](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/26/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/27/README.md)
  ` wenwu`
 
-### [德国大选白热化，对中共强硬成共识](/content/gnews/27/README.md)
+### [德国大选白热化，对中共强硬成共识](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [人权组织敦促世界各大广播公司 取消北京冬奥会报道计划](/content/gnews/28/README.md)
+### [人权组织敦促世界各大广播公司 取消北京冬奥会报道计划](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美国建立的阿富汗人数据库 被塔利班用于监视镇压](/content/gnews/29/README.md)
+### [美国建立的阿富汗人数据库 被塔利班用于监视镇压](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [习近平致电祝贺朝鲜民主主义人民共和国成立73周年](/content/gnews/30/README.md)
- ` 首尔天池农场`
-
-### [DC大中华时事：日本副防卫大臣再次强调，台湾有事就是日本有事](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [事实：新冠疫苗的刺突蛋白将促使心脏病发作](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：海通证券屡受处罚究竟为哪般？](/content/gnews/33/README.md)
- ` 秘密翻译组G-Translators`
-
-### [西媒头条 — 第64期](/content/gnews/34/README.md)
+### [Jason Miller:在巴西的短暂拘留是推动言论自由的代价](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：中共积极支持塔利班却不公开表态承认其政权的合法性](/content/gnews/35/README.md)
- ` 秘密翻译组G-Translators`
+### [DC每日热点0909](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [具大爆发潜质、损伤大脑、致死率75%的新病毒正在印度传播](/content/gnews/36/README.md)
+### [CNN承认，中共国网络军队煽动了&#8221;种族不公正&#8221;的抗议活动](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC大中华时事：日本副防卫大臣再次强调，台湾有事就是日本有事](/content/gnews/34/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [事实：新冠疫苗的刺突蛋白将促使心脏病发作](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：威胁全人类的是中国共产党不是西方文明世界](/content/gnews/37/README.md)
+### [秘翻在线：海通证券屡受处罚究竟为哪般？](/content/gnews/36/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：印尼与中共国本币结算机制正式启动](/content/gnews/38/README.md)
+### [西媒头条 — 第64期](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：中共积极支持塔利班却不公开表态承认其政权的合法性](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [案例研究：中共如何收买外国政客](/content/gnews/47/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/48/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/49/README.md)
- ` 纽约香草山MOS03`
-
-### [因要求强制接种COVID-19疫苗，底特律医院系统被起诉](/content/gnews/50/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [塔利班将独家报道权交给中共央视](/content/gnews/51/README.md)
+### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/47/README.md)
  ` HimalayaRussia`
 
-### [体制内同样深受中共体制之害](/content/gnews/52/README.md)
- ` 日本东京樱花团`
-
-### [9/09/21 香港快讯 【支联会拒交资料】警国安处搜查六四纪念馆](/content/gnews/53/README.md)
- ` 英喜-粵語組`
-
-### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/54/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [自始至终，中共贼首认为自己的行为都是正义的](/content/gnews/55/README.md)
- ` 纽约香草山MOS03`
-
-### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/56/README.md)
+### [案例研究：中共如何收买外国政客](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP百年百罪 第九集（36 &#8211; 38罪）](/content/gnews/57/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/49/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/50/README.md)
+ ` 纽约香草山MOS03`
+
+### [因要求强制接种COVID-19疫苗，底特律医院系统被起诉](/content/gnews/51/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [塔利班将独家报道权交给中共央视](/content/gnews/52/README.md)
+ ` HimalayaRussia`
+
+### [体制内同样深受中共体制之害](/content/gnews/53/README.md)
+ ` 日本东京樱花团`
+
+### [9/09/21 香港快讯 【支联会拒交资料】警国安处搜查六四纪念馆](/content/gnews/54/README.md)
+ ` 英喜-粵語組`
+
+### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/55/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [自始至终，中共贼首认为自己的行为都是正义的](/content/gnews/56/README.md)
+ ` 纽约香草山MOS03`
+
+### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/57/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

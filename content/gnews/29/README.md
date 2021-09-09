@@ -2,24 +2,23 @@
 ---
 
 
-## 美国建立的阿富汗人数据库 被塔利班用于监视镇压
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522045/)
+## 人权组织敦促世界各大广播公司 取消北京冬奥会报道计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522064/)
 
-栏目记者/责任编辑：文顺
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-84.png)
-据法广网9月8日报导，美国斥资数亿美元建立的阿富汗人数据库，目前已落入塔利班之手。该数据库已沦为塔利班监视、镇压和惩罚阿富汗人民的利器。
+栏目记者：禹水沃土 
+责任编辑: 晓仙女，Foxrina
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-85.png)
+美国广播公司9月8日新闻，人权组织要求包括美国NBC在内的世界各大广播公司，取消对明年2月将在北京举办的冬季奥运会的报道，该请求来自代表中国少数民族，包括维吾尔人、藏人、香港居民和其他人的权利团体的公开信。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide4-7.jpeg)
 
-美国自2006年起收集阿富汗人的生物特征数据，包含数百万阿富汗人的指纹、虹膜、面部图片。美国与其支持的阿富汗政府共享该系统。
+中共正在对维吾尔人进行种族灭绝，并镇压西藏香港和许多其他人的运动，广播公司对奥运会的报道将帮助中共营造出“正常国家”的美好形象，无异于协助中共掩盖罪恶，甚至加剧其侵犯人权的行为。
 
-自8月15日喀布尔陷落以来，不断有消息说，这个本为推行法治秩序及政府咎责力、建设现代化国家所用的数据库，已被塔利班没收，用来找出曾替美军工作的阿富汗人，或以此恫吓他们。
-
-美方专家学者对此表示担忧，特别是该数据库会极大地提高塔利班的侦监及拦截能力，得以无情地杀害与他们作对的人。
+据悉，NBC 将支付 77.5 亿美元购买接下来六届奥运会的转播权，并与总部位于瑞士的国际奥委会密切合作。这些款项估计占国际奥委会总收入的 40%。中共被定义“种族灭绝和反人类罪”以来，国际奥委会主席托马斯·巴赫始终拒绝就中国维吾尔人或其他少数民族的待遇发表评论或谴责。奥委会和一些大公司为了利益而无视人权、无视生命，毫无奥运精神且甘当中共的帮凶。新中国联邦将和全世界正义的人们站在一起，阻止中共利用冬奥会的野心。
 
 (本文仅代表作者观点）
 
-参考链接：[美国建立的阿富汗人数据库落入塔利班手中被用于监视镇压阿富汗人](https://www.rfi.fr/cn/美洲/20210908-美国建立的阿富汗人数据库落入塔利班手中被用于监视镇压阿富汗人)
+参考链接：[Broadcasters urged to cancel plans to cover Beijing Olympics](https://abcnews.go.com/Entertainment/wireStory/broadcasters-urged-cancel-plans-cover-beijing-olympics-79888453)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -33,4 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
 0

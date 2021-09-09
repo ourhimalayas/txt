@@ -2,14 +2,19 @@
 ---
 
 
-## 2021年9月9日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1522446/)
+## 2021年9月9日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1522566/)
 
 编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-9.8日：打破中共房产骗局的第一块砖头…… 【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8ef727fcceb48c2f5dac03db5178104d.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/c6ff6e3b99cdcdb33785f8bb5470a48c.jpg)
-[【2021年9月9日】文贵先生盖特原文](https://gettr.com/post/pajce80a0e)
+😍😍😍😍😍😍😍😍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1.gif)
+老奶奶仗义执言，路大脑袋是个跳梁小丑，恶心至极，会得到报应的。
+郭先生宽容大度：I don`t care!~你去放你的狗屁吧
+奶奶这句话说的太潇洒了～👍😂
+地球上将来没有他的立锥之地，关他麽监狱也不会要这种人，发射去火星当肥料吧😄
+
+[【2021年9月9日】文贵先生盖特原文](https://gettr.com/post/pakgpy225a)
 
 **喜联盟Gnews编辑部**
 
