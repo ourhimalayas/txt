@@ -2,61 +2,53 @@
 ---
 
 
-## 德国奥博豪森市接种加强疫苗后出现很多并发症
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1522691/)
+## 中共国经济崩溃的开始：恒大面临破产
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1522686/)
 
-翻译加简介：貓聲
+作者：纽约香草山农场 – 四季
 
-德国奥博豪森一家养老院对90人进行了加强疫苗接种，出现了很多副作用导致的严重并发症，一名死亡和两名急救。上报各部门后，负责该地区的北莱茵州医学协会门兴格拉德巴赫地区办事处就此事件致函该协会所有医生，请他们在进行接种加强疫苗之前做出慎重考虑。
-
-该信函发出后不到两天，北莱茵州医学协会在自己网络平台上做了进一步声明，刻意说明写此公函的目的并不是警告医生们不允许他们接种疫苗。文后附有该声明的链接。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/疫苗接种.png)
-下面是该信函的中文翻译版本：
-
-北莱茵州医学协会
-
-门兴格拉德巴赫地区办事处 | Ludwig-Weber-Str. 15 | 41061 门兴格拉德巴赫
-
-致门兴格拉德巴赫
-
-所有医生及
-
-获授权的医生
-
-主题：COVID-19 (截至2021年9月7日)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
 
-尊敬的，亲爱的同事们：
 
-我想给您一些非常重要的关于疫苗接种的的信息!
 
-在奥伯豪森ASB养老院进行了90次强化接种后，出现了许多严重的并发症，包括一位死亡和两位需要抢救。
+据[《门道专家》（The Gateway Pundit）](https://www.thegatewaypundit.com/2021/09/exclusive-beginning-chinas-economic-collapse-largest-issuer-chinas-commercial-paper-evergrande-facing-bankruptcy-entire-world-economy-likely-impacted/)网站9月9日报道，陷入困境的中共国房地产巨头恒大，其股价在其两天内被两次下调信用评级后再次下滑。该公司因超过3000亿美元的未偿债务而陷入严重的财务困境，这让人们担心这家全球负债最多的公司即将违约，面临破产。
 
-在90名接种者中，共有9人病重，主要是心肺问题。已通报给保罗-埃利希研究所、公共卫生部门和北莱茵州医学协会，必要的调查也已经展开。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/928-1-Evergrande-in-Hong-Kong.jpg)图片来源：The Gateway Pundit
 
-特别是由于目前既没有EMA的上市授权，也没有STIKO对这些加强型疫苗的推荐，因此我们有必要及时向您通报这些事件。
+恒大在香港上市后经过多年的借贷，已经积累了总额超过3000亿美元的债务，成为世界上负债最多的公司之一。
 
-我们在此请您考虑，您是否最好先等待批准和推荐，还是您真的认为这种加强型疫苗接种非常紧急，且有必要在没有STIKO的推荐及按照《冠状病毒疫苗条例》获得批准的情况下进行接种，请您认真斟酌，然后做出您自己的医疗决定。
+其股价今年已经累计下跌了75%。周四上午，股价下跌了近10%，至3.35港元，低于该公司2009年在香港挂牌时的上市价格。同一天，该公司的一种债券在价格暴跌20%后被深圳证券交易所暂停交易。
 
-我们会及时向你通报进一步信息。
+按照中共官方媒体的披露，今年以来已经有274家房地产公司发布破产公告，平均每天一家。
 
-致以最诚挚的问候
+可以预见的是中共国房地产泡沫即将破裂，其经济也将随之崩塌。
 
-您的
+（本文仅代表作者观点）
 
-（签名）                                                                                                    （签名）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
-Dr.med. A. Theilmeier医生                                                                    Dr.med. H. Hüren医生
-
-法定健康保险医师协会                                                                         医学协会
-
-门兴格拉德巴赫办事处主席                                                                门兴格拉德巴赫办事处主席
+编辑/校对/发稿：小鹿
 
 
 
-附图是信函的传真件：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/photo_2021-09-09_17-45-18.jpg)
-该信函发出后，收到很多反响，北莱茵州医学协会在自己网络平台上做了进一步声明，刻意说明写此公函的目的并不是警告医生们不允许他们接种疫苗。 这里是该声明的链接：[Kein Todesfall nach Auffrischungsimpfung (aekno.de)](https://www.aekno.de/presse/nachrichten/nachricht/default-79be1cda0b)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
+
+
+
 0

@@ -2,108 +2,22 @@
 ---
 
 
-## 切尔诺贝利核事故真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522708/)
+## 艺术品拍卖行业的黑暗
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1522776/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a61at-1rt89-1.jpg)
-[https://gtv.org/video/id=613a2ec6784c5a2583542dc3](https://gtv.org/video/id=613a2ec6784c5a2583542dc3)
+所有的拍卖行背后都有军方和政治的绝对实力，否则它玩不成。我可以告诉你，全世界的艺术界的黑暗比黑社会还黑。
 
-**字幕内容:**
+**【郭先生直播摘要】2021.9.7 艺术品拍卖行业的黑暗**
 
-**郭文贵
-Miles Guo**
+**郭先生：**
 
-所以我亲自问过戈尔巴乔夫
-Yo personalmente le pregunté a Gorbachev
+所有的拍卖行背后都有军方和政治的绝对实力，否则它玩不成，就你这东西你可能收不来钱。再一个人家买走了假的，我来告你啊。拍卖行卖出的东西不是什么牛叉的事，卖出的东西不来找你麻烦才是牛叉的事，你知道吗？我可以告诉你，全世界的艺术界的黑暗比黑社会还黑。那黑社会的生意谁来保驾啊？总统、政治、军事，所以保利能干。马云能敢干吗？民生董文标搞了收藏，他敢稿拍卖吗？最后人家告诉标董文标，董文标你可以玩钱，你想搞字画，搞拍卖，你早着呢
 
-你说的是官僚、腐败、谎言
-Lo que tu dices es burocracia, corrupción, mentiras
+你有枪吗？你有权利吗？把董文标都弄得狗似的不敢说话了，是吧。你两个烧钱烧得不知干啥了。所以刚才正清你没有搞明白。保利能干，他就是玩就是玩这个。王雁南能干是因为赵紫阳的女儿，因为是李东生，毛泽东的外甥。这都是中国的叫什么原始股东，中华人民共和国的原始股东，还有董事会成员。
 
-他说：郭先生
-Él dijo: Sr. Guo
-
-导致这些结局都有一个目的
-Hay un objetivo para que se ocasionara este resultado
-
-他不仅要升官，升官干什么
-Él no solo quiere ascender el cargo, para qué es
-
-他说是整个国家的腐败
-Él dijo todo el país está deteriorado
-
-切尔诺贝利里面最关键的是
-El punto clave de Chernóbil
-
-它上面应该有覆盖层
-Eso arriba hay una capa de cobertura
-
-还有一个多套备用电系统
-También hay un sistema de energía de respaldo múltiple
-
-他这些王八蛋玩官僚嘛
-Esos bastardos juegan a la burocracia
-
-它要压力测试，停电以后还能重启
-Eso se necesita probar con presión, poder reiniciar luego de que se vaya la luz
-
-它没有第二套系统
-Eso no tiene un segundo sistema
-
-他为了想跟他争那个官，争那个所长和当地的主任
-Para poder competir ese cargo de funcionario, competir el puesto de director y director local
-
-他最后下令官僚，让所有人
-Finalmente ordenó a la burocracia, que todos
-
-把（设备）关了
-Apagaran (los equipos)
-
-给我扔了，给我弄
-Lo arrojaran, lo hagan
-
-然后一个设计想省钱
-Entonces querían ahorrar el dinero en el diseño
-
-然后“叭”
-Y, ¨pa¨
-
-整个石墨，又是石墨啊
-Todo el grafito, otra vez el grafito
-
-石墨的保护层和氢子进行对撞
-La capa protectora del grafito choca con los átomos de hidrógeno
-
-“嘣”一下爆炸了
-¨Boom¨ se explotó en un rato
-
-看上去省钱，事实上是什么
-Al parecer se ahorró dinero, pero en realidad qué es
-
-说那里的将近40%的东西
-Se dice que casi el 40% de las cosas de allá
-
-全部被腐败了
-Se ha deteriorado todo
-
-腐败
-Deteriorado
-
-一党独政、独裁导致的官僚
-Gobierno de un sólo partido, burocracia causada por la dictadura
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1434801683440160774?s=24](https://twitter.com/se1y7cblljselva/status/1434801683440160774?s=24)
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：北方信使
+听写：烟波浩淼
+字幕+视频制作：小腾腾说
+*编辑&发布：黎明的光芒*
 
 0
