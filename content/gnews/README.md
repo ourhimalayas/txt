@@ -37,14 +37,14 @@
 ### [七哥快讯908:研究团契会就会知道未来新中国联邦走向何方](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/9/README.md)
+### [美黑客事件新细节：后门导致信息泄露](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
  ` wenwu`
-
-### [返校期美国25万儿童中共病毒检测呈阳性](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美疫苗接种报告：65万不良事件](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [家庭反洗脑序列：第26篇 又一代新粉红即将出炉](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -103,29 +103,29 @@
 ### [瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪](/content/gnews/31/README.md)
+### [中共房市新规：“集中供地”加“密集调控”，会加速崩盘吗？](/content/gnews/31/README.md)
+ ` 日本东京樱花团`
+
+### [秘翻在线 :伊维菌素对中共病毒的卓越疗效无人可挡](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美黑客事件新细节：后门导致信息泄露](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/32/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
  ` wenwu`
 
-### [中共国12-17岁人群新冠疫苗接种](/content/gnews/33/README.md)
+### [中共国12-17岁人群新冠疫苗接种](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [一名日本男子在接种Moderna疫苗后死亡](/content/gnews/34/README.md)
+### [一名日本男子在接种Moderna疫苗后死亡](/content/gnews/37/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美疫苗接种报告：65万不良事件](/content/gnews/35/README.md)
+### [美疫苗接种报告：65万不良事件](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [美国国安委中国主任曾任职中共资助的阿什中心](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共治下，“艺术”沦为“骗术”](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：纽约邮报称福奇隐藏了病毒真相应该滚蛋](/content/gnews/38/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/4/21国内经济财经周报：中共设立北京证券交易所；平安接连回购增持](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [自传体小说连载之二十一：《我的忏悔录》](/content/gnews/47/README.md)
- ` 秘密翻译组G-Translators`
-
-### [国际要闻汇编](/content/gnews/48/README.md)
+### [樱花灭共诗——风雅丧（新韵）](/content/gnews/47/README.md)
  ` 日本东京樱花团`
 
-### [返校期美国25万儿童中共病毒检测呈阳性](/content/gnews/49/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [樱花灭共段子之田螺松果系列（12-14）](/content/gnews/48/README.md)
+ ` 日本东京樱花团`
 
-### [英国政府审查被中资准备收购的石墨烯厂](/content/gnews/50/README.md)
- ` 日本东京方舟农场`
+### [樱花灭共段子之爱国大V被捕记、火车广告牌、人奶事件](/content/gnews/49/README.md)
+ ` 日本东京樱花团`
 
-### [美众议院议员调查亨特·拜登的艺术品交易情况](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
+### [人类正在至暗时代](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
 
-### [电邮泄密：美国务院阻止了阿富汗的疏散航班](/content/gnews/52/README.md)
- ` 日本东京方舟农场`
+### [墙内疫苗心情日记（十三）](/content/gnews/51/README.md)
+ ` 日本东京樱花团`
 
-### [时隔70年“公私合营2.0”山雨又来](/content/gnews/53/README.md)
- ` 日本东京方舟农场`
+### [樱花灭共段子之小白脸、安静与热闹、黑帮的特点](/content/gnews/52/README.md)
+ ` 日本东京樱花团`
 
-### [墙内热点新闻](/content/gnews/54/README.md)
+### [樱花灭共段子之部长家着火、毒手药王、三次分配、共产主义](/content/gnews/53/README.md)
+ ` 日本东京樱花团`
+
+### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/54/README.md)
  ` 澳喜农场`
 
-### [0分0球0射正，中共男足惨败于日本](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
+### [自传体小说连载之二十一：《我的忏悔录》](/content/gnews/55/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/56/README.md)
- ` 儒为`
+### [国际要闻汇编](/content/gnews/56/README.md)
+ ` 日本东京樱花团`
 
-### [家庭反洗脑序列：第26篇 又一代新粉红即将出炉](/content/gnews/57/README.md)
+### [返校期美国25万儿童中共病毒检测呈阳性](/content/gnews/57/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 

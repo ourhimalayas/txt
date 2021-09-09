@@ -2,40 +2,32 @@
 ---
 
 
-## 索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1521552/)
+## 中共房市新规：“集中供地”加“密集调控”，会加速崩盘吗？
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1521663/)
 
-2021年9月9日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/090903-1.jpg)乔治·索罗斯. 图片：来自FABRICE COFFRINI/法新社/盖蒂图片社
-索罗斯在专栏文章中写道：“现在向中国投入数十亿美元是一个悲剧性的错误。”“贝莱德的客户可能会亏损，更重要的是，这将损害美国和其他民主国家的国家安全利益。”
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/VFkvzhNCU63I1g0_R-l4G-rLYjj9UL_Sji8R4Y1OmmwLiLEDkM8wtJ83YjiPUpX3qZcTqKH6qVQkpFPdHctghvSQDxmCTFFtnpP2kxTQA18ztP8OLBdU29XfI6YQYbP5U6nncF8C=s0)
+[*图片来源*](https://www.ft.com/__origami/service/image/v2/images/raw/https%253A%252F%252Fs3-ap-northeast-1.amazonaws.com%252Fpsh-ex-ftnikkei-3937bb4%252Fimages%252F8%252F1%252F3%252F0%252F30870318-3-eng-GB%252FCropped-1606376266RTX2NKDM.JPG?width=700&amp;fit=cover&amp;gravity=faces&amp;dpr=2&amp;quality=medium&amp;source=nar-cms)
 
-索罗斯讽刺道，华尔街公司可能受到利润的驱使，远远超出其自身在气候变化和人权等所有其他领域关注。
+据中共国[新华社9月8日消息](http://www.news.cn/fortune/2021-09/09/c_1127842278.htm)，中共国再次启动地产交易，并声称“坚持房住不炒”，而第二批集中供地“密集启动”。外界只能理解为中共国楼市“坚持‘小姐’不是婊子，却密集接客”。这种打着限购的旗号捞钱不是疯了就是快揭不开锅。
 
-诚然，当谈到在华尔街抵制中共国时，索罗斯是一个孤独的声音。
+该消息称：福州作为土拍规则调整后首个重启集中供地的城市，最终成交14宗地块，成交总额76.07亿元。此外，另有2宗地块流拍，5宗地块终止出让，福州第二批集中供地正式收官。
 
-索罗斯声称，“历史早期的努力在道德上是合理的，声称他们正在架设桥梁，拉近两国的距离，但现在的情况完全不同。今天，美国和中共国正卷入两种治理制度之间的生死冲突：镇压和民主。”
-
-索罗斯的结论是国会应该通过立法，授权美国证券交易委员会限制资金流向中共国。这项努力应该得到两党的支持。
-
-当然，索罗斯对中共国的蔑视和批评是正确的，我们预计他的哀叹将受到合理的忽视和嘲弄，但任何对习近平政权的坏话都是立即缩短职业生涯的理由。
-
-底线很简单：如果所有哀叹美国社会和经济缺陷的人拒绝向中国提出批评，他们的观点可以而且应该被合理忽视。
-
-**简评：**当年投资海航的“资本大鳄”索罗斯如今都跳出来抨击中共国的资本市场了，看来共产党治下的中国经济真的是即将出现大的问题了。
-
-原文链接：[Soros Slams BlackRock For Investing In China, Exposing Wall Street’s ESG Hypocrisy](https://www.zerohedge.com/markets/soros-slams-blackrock-investing-china-exposing-wall-streets-esg-hypocrisy)
-
-*编辑：Johnston-Zhang  | 校对： clau*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- *延展阅读：*[***大湾区楼市“降温”***](http://finance.eastmoney.com/a/202108152046393857.html)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+北京首批30宗宅地最终以1109.71亿元的价格成功出让。同时青岛、杭州、重庆、天津等地都在进行新一轮利益分摊中，其中深圳第二批集中供应地块溢价率上限统一由45%降至15%。杭州一般地块溢价率上限由20%调整为15%。南京新规最高溢价率由之前的30%下调至15%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- *延展阅读：*[***国际信用评级机构对中国恒大持斧头***](https://asia.nikkei.com/Business/Markets/China-debt-crunch/Credit-rating-agencies-take-the-axe-to-China-Evergrande)
+- *延展阅读：*[***“房住不炒”在资本眼里只是笑话，在炒家眼里已成废话，何也？***](https://www.163.com/dy/article/FGVKGEC305444SSR.html)
 
 
+此次[北京引入“竞现房销售面积”新规](https://www.jiemian.com/article/6548675.html)表示，地价到达上限后，将依次采取“竞地价款的付款进度”、“竞现房销售的比例”、“竞全装修房屋的比例”等三种方式控制越来越大的泡沫。这表示中共国高层最新一轮捞钱大战的竞争游戏开演。一位房企人士表示，“资金实力不足以及资金运转不健康的企业将逐渐退出市场。”
 
-0
+值得注意的是，郭文贵先生曝光许家印后，此轮新的楼市利益在分配时，世界最大房地产大亨许家印已经出局。根据[郭先生爆料](https://gtv.org/video/id=61329547ed01d564561e341e)，中共国房地产市值应该是150万亿，是美欧日的2.5倍。这意味着中共政权存续在此一搏。
+
+（本文只代表作者观点，与GNews网站无关）
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-5-e1630998215814.jpg)
++1
