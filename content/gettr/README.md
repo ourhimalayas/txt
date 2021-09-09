@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/9/2021 1:28 PM (UTC)`
+
+9.8日：打破中共房产骗局的第一块砖头……<br/><br/><br/>【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】
+![img](https://media.gettr.com/group16/getter/2021/09/09/13/fabe58fd-1f49-4649-e367-0c5caa0cb85f/8ef727fcceb48c2f5dac03db5178104d.jpg)
+
+---
+
 `@miles 9/9/2021 4:55 AM (UTC)`
 
 9/08/2021 Miles Guo: What are the purposes of Illuminati? Why will sperms and eggs be the most valuable things in the world? The New Federal State of China has surpassed Illuminati, we have the real strengths, and we don’t have to beg anyone else!<br/><br/>9/08/2021文贵直播：光明会的宗旨是什么？为什么世界上最值钱的将是精子和卵子？新中国联邦的追求超越了光明会，我们拥有真正的实力，不用看任何人的脸色!<br/>
@@ -296,13 +303,6 @@ September 5th, a manifestation of the heavens. A black swan landed in Beijing's 
 
 9.5日：应很多战友要求……发几张今天直播后的照片！
 ![img](https://media.gettr.com/group33/getter/2021/09/05/16/d90ff5db-506d-fc72-db3e-eef3241ecd32/d4f08abed9022605d37d1541b5962f44.jpg)
-
----
-
-`@miles 9/5/2021 12:56 AM (UTC)`
-
-9/4/2021 Miles Guo’s GETTR：The recent broadcasts on the antidotes have had a huge impact inside China! Fellow fighters should make sure to prevent the virus, prepare the medicines, and go out less often! The key is to see if the CCP will release the new virus between this October and December!<br/><br/>9/4/2021 文贵盖特：最近关于解药的直播在国内产生了巨大影响！战友们要防好病毒、备好药、少出门！最关键的是看中共会不会在今年10月到12月之间放新病毒！<br/>
-![img](https://media.gettr.com/group39/getter/2021/09/05/00/8d2c09ab-ad32-038c-faa3-abbaa958dcbb/out.jpg)
 
 ---
 
