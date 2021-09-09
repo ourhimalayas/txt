@@ -28,23 +28,23 @@
 ### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/5/README.md)
  ` 儒为`
 
-### [2021年9月8号郭文贵先生直播全文字版](/content/gnews/6/README.md)
+### [2021年9月9日 文贵先生盖特 2](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月9日 文贵先生盖特 1](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月8号郭文贵先生直播全文字版](/content/gnews/8/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [【字幕】9/9/2021文贵盖特：中共即将崩溃的庞氏骗局的经济](/content/gnews/7/README.md)
- ` Caihongqiao`
-
-### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/8/README.md)
- ` 纽约香草山MOS03`
-
-### [具大爆发潜质、损伤大脑、致死率75%的新病毒正在印度传播](/content/gnews/9/README.md)
+### [事实：新冠疫苗的刺突蛋白将促使心脏病发作](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/10/README.md)
- ` 纽约香草山MOS03`
+### [具大爆发潜质、损伤大脑、致死率75%的新病毒正在印度传播](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [因要求强制接种COVID-19疫苗，底特律医院系统被起诉](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
 
 ### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -103,29 +103,29 @@
 ### [习近平致电祝贺朝鲜民主主义人民共和国成立73周年](/content/gnews/30/README.md)
  ` 首尔天池农场`
 
-### [具大爆发潜质、损伤大脑、致死率75%的新病毒正在印度传播](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：威胁全人类的是中国共产党不是西方文明世界](/content/gnews/32/README.md)
- ` 秘密翻译组G-Translators`
-
-### [秘翻在线：印尼与中共国本币结算机制正式启动](/content/gnews/33/README.md)
- ` 秘密翻译组G-Translators`
-
-### [秘翻在线：艾未未“臭名”远洋 瑞士信贷关闭其基金会账号](/content/gnews/34/README.md)
- ` 秘密翻译组G-Translators`
-
-### [乔·罗根欲诉CNN造谣其服用兽用驱虫剂](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [瑞典宣布：将取消大多数剩余的新冠病毒限制](/content/gnews/36/README.md)
- ` 纽约香草山MOS02`
-
-### [郭文贵直播摘要、音频、视频 2021.9.8 : 再谈中共国艺术与腐败](/content/gnews/37/README.md)
+### [DC大中华时事：日本副防卫大臣再次强调，台湾有事就是日本有事](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [放弃自由赢得民心](/content/gnews/38/README.md)
- ` 日本东京樱花团`
+### [事实：新冠疫苗的刺突蛋白将促使心脏病发作](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：海通证券屡受处罚究竟为哪般？](/content/gnews/33/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [西媒头条 — 第64期](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：中共积极支持塔利班却不公开表态承认其政权的合法性](/content/gnews/35/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [具大爆发潜质、损伤大脑、致死率75%的新病毒正在印度传播](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：威胁全人类的是中国共产党不是西方文明世界](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [秘翻在线：印尼与中共国本币结算机制正式启动](/content/gnews/38/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
