@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/9/2021 3:19 PM (UTC)`
+
+😍😍😍😍😍😍😍😍
+> `@yongkai 9/9/2021 3:14 PM (UTC)`<br/><br/>
+
+---
+
 `@miles 9/9/2021 2:55 PM (UTC)`
 
 🙏🙏🙏🙏🙏🙏🙏 <br/>【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
@@ -296,13 +303,6 @@ September 5th, a manifestation of the heavens. A black swan landed in Beijing's 
 
 兄弟姐妹们 这是我今天直播中提到的切尔诺贝利电影的全名
 ![img](https://media.gettr.com/group18/getter/2021/09/05/17/15a3ccb3-519a-775d-63c9-bc5e36868edc/2e28bec9feb16c09df78c8652cca438d.jpg)
-
----
-
-`@miles 9/5/2021 5:09 PM (UTC)`
-
-文贵永远都是农民草根的儿子……终生为穷人和草根利益而战……✊✊✊
-![img](https://media.gettr.com/group37/getter/2021/09/05/17/9eee3107-e3a0-d892-9790-ff6972ee876a/0d0bfaa9223cedd2ab9fa4e497d2d4b6.jpg)
 
 ---
 
