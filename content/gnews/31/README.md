@@ -2,42 +2,41 @@
 ---
 
 
-## 郭文贵直播摘要、音频、视频 2021.9.8 : 再谈中共国艺术与腐败
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1522174/)
+## 瑞典宣布：将取消大多数剩余的新冠病毒限制
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1522305/)
 
-摘要撰稿人： 文俊
+作者：香草山商业部-往后余生Jane
 
-音频提供者： 左媛
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-09-at-11.11.17-AM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-### 视频：
 
-视频链接
+瑞典政府的一项公告表示，对餐厅、剧院和体育场馆等公共场所的限制将于9月取消。瑞典在疫情期间的夏季间歇期，开始放松一些限制。
 
-### 音频：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20200422-COVID-19-Restaurant-Stockholm-GettyImages-1210662488-700x420-1.jpg)
 
-### 摘要：
+据政府称，疫苗护照正在美国几个城市、法国、意大利、瑞士、以色列和其他地区推出，未来可能会被授权用于“大型公共集会”。
 
-1. 中东投资喜联储100亿美元
-2. 艺术品抵押：私人银行骗有钱人的钱 洗劫穷人的钱
-3. 共产党大外宣媒体：博讯、多维、CNBC
-4. 艺术品市场：评估，鉴定，律师风控一条龙被控制 想骗谁骗谁
-5. 信托市场官方公布：20.6万亿 真正市场80万亿人民币
-6. 《酒浴》布画 陈元手里估计是复制品
-7. 没有段伟红前夫沈栋的《红色轮盘》全球发布，段伟红现在也出不来
-8. 信托变成了骗托 中共一切的信托都是假的
-9. 中共官方艺术品交易市场在1.8-2万亿 加上隐形抵押实际上会超过5万亿
-10. 《中国神仙图》某个人拿这幅图抵押了8个亿 最后此人在中国搞成了万亿的房地产规模
-11. 光明会（团契会）崇拜：希特勒、毛泽东、斯大林。光明会在人类存在几百年了
-12. Gclub完全透明，团契会是我们几十年前的过去，战友们仔细研究就知道我们的未来。
-13. 未来的两三个月，国内会严格管控手机、互联网，翻墙会越来越难
-14. 郭先生马上要参加一个视频会，讨论如何让墙内的同胞可以获得更多真实的信息
-15. 王岐山是中国光明会最大的瓢把子
-16. 张宏伟是中国光明会成员之一
-17. “森本木郎一”就是七哥在日本的名字
+政府表示，在家工作将被删除，并可以开始逐步重返工作场所。几天前，政府宣布，由于瑞典病例激增，将禁止来自以色列的游客进入瑞典。以色列是世界上新冠病毒疫苗接种率最高的国家之一，但并没有减少感染数字。
 
+参考链接：
+
+[https://www.zerohedge.com/markets/sweden-announces-it-will-remove-most-remaining-covid-19-restrictions](https://www.zerohedge.com/markets/sweden-announces-it-will-remove-most-remaining-covid-19-restrictions)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

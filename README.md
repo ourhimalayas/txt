@@ -28,23 +28,23 @@
 ### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/5/README.md)
  ` 儒为`
 
-### [8/31郭文贵盖特：爆料革命推动美国法官下令医生使用伊维菌素（粤语配音）](/content/gnews/6/README.md)
+### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [8/31郭文贵盖特：爆料革命推动美国法官下令医生使用伊维菌素（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/31郭文贵盖特：昨天公布中共病毒解药引起全世界巨大反响（粤语配音）](/content/gnews/7/README.md)
+### [8/31郭文贵盖特：昨天公布中共病毒解药引起全世界巨大反响（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021/09/07 文贵先生直播精要](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/9/README.md)
+ ` 纽约香草山MOS03`
 
-### [美国官方文件被曝光，证实武汉病毒所开展冠状病毒改造实验](/content/gnews/9/README.md)
+### [因要求强制接种COVID-19疫苗，底特律医院系统被起诉](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国官方文件被曝光，证实武汉病毒所开展冠状病毒改造实验](/content/gnews/11/README.md)
  ` GTV新闻访谈`
-
-### [多位医生学者谈疫苗危害，质疑接种疫苗的目的](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [更多疫苗会降低免疫反应，导致保护降低](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
@@ -67,65 +67,65 @@
 ### [记住原计划在2021年9月3日配合共匪执行台湾计划2的连战](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [韩国19万人接种疫苗现异常 800人死亡](/content/gnews/19/README.md)
+### [魔鬼沼泽地光明会中国分舵](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [韩国19万人接种疫苗现异常 800人死亡](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [自然免疫力会有保护作用，胜过打疫苗](/content/gnews/20/README.md)
+### [自然免疫力会有保护作用，胜过打疫苗](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵精品视频-爆料革命的靶心：中国光明会的瓢把子王岐山](/content/gnews/21/README.md)
+### [郭文贵精品视频-爆料革命的靶心：中国光明会的瓢把子王岐山](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [视频| 日本称地塞米松是感染新冠居家治疗唯一可依赖的药物](/content/gnews/22/README.md)
+### [视频| 日本称地塞米松是感染新冠居家治疗唯一可依赖的药物](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声| 北约示警：中共发展核武 不受限且不透明](/content/gnews/23/README.md)
+### [有声| 北约示警：中共发展核武 不受限且不透明](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声| 马云玩起NFT数字艺术](/content/gnews/24/README.md)
- ` MOSREC`
+### [只要中共不亡 黑暗还会再来](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/25/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/26/README.md)
  ` wenwu`
 
-### [德国大选白热化，对中共强硬成共识](/content/gnews/26/README.md)
+### [德国大选白热化，对中共强硬成共识](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [人权组织敦促世界各大广播公司 取消北京冬奥会报道计划](/content/gnews/27/README.md)
+### [人权组织敦促世界各大广播公司 取消北京冬奥会报道计划](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [美国建立的阿富汗人数据库 被塔利班用于监视镇压](/content/gnews/28/README.md)
+### [美国建立的阿富汗人数据库 被塔利班用于监视镇压](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [习近平致电祝贺朝鲜民主主义人民共和国成立73周年](/content/gnews/29/README.md)
+### [习近平致电祝贺朝鲜民主主义人民共和国成立73周年](/content/gnews/30/README.md)
  ` 首尔天池农场`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/30/README.md)
- ` wenwu`
+### [瑞典宣布：将取消大多数剩余的新冠病毒限制](/content/gnews/31/README.md)
+ ` 纽约香草山MOS02`
 
-### [郭文贵直播摘要、音频、视频 2021.9.8 : 再谈中共国艺术与腐败](/content/gnews/31/README.md)
+### [郭文贵直播摘要、音频、视频 2021.9.8 : 再谈中共国艺术与腐败](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [放弃自由赢得民心](/content/gnews/32/README.md)
+### [放弃自由赢得民心](/content/gnews/33/README.md)
  ` 日本东京樱花团`
 
-### [非法向中共出口水下监听设备,中国籍移民获刑](/content/gnews/33/README.md)
+### [非法向中共出口水下监听设备,中国籍移民获刑](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [艺术灭共：天津开始查处书法培训机构](/content/gnews/34/README.md)
+### [艺术灭共：天津开始查处书法培训机构](/content/gnews/35/README.md)
  ` 日本东京樱花团`
 
-### [中共正扩大在全球社交媒体的超限宣传战](/content/gnews/35/README.md)
+### [中共正扩大在全球社交媒体的超限宣传战](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [港警搜查香港六四纪念馆](/content/gnews/36/README.md)
+### [港警搜查香港六四纪念馆](/content/gnews/37/README.md)
  ` Charlie`
 
-### [惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由](/content/gnews/37/README.md)
+### [惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由](/content/gnews/38/README.md)
  ` GTV新闻访谈`
-
-### [秘翻在线：中共信息战扩展更多国家 并将新冠病毒归咎美国](/content/gnews/38/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -139,48 +139,48 @@
 ### [新冠疫苗设计缺陷导致疫苗有毒，并引发变异逃脱免疫监控](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [09/09/2021 国际财经快讯：日本政府将对进口小麦涨价19％；Coinbase称SEC计划对其加密货币贷款项目采取执法行动](/content/gnews/43/README.md)
+### [字节跳动正在与华尔街银行谈判，欲借款超过30亿美元](/content/gnews/43/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [09/09/2021 国际财经快讯：日本政府将对进口小麦涨价19％；Coinbase称SEC计划对其加密货币贷款项目采取执法行动](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/44/README.md)
+### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/45/README.md)
+### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/6/2021国际财经快讯：美国港口阻塞或至2022年；8月粮食价格跃至十年内新高](/content/gnews/46/README.md)
- ` 秘密翻译组金融团队`
-
-### [9/09/21 香港快讯 【支联会拒交资料】警国安处搜查六四纪念馆](/content/gnews/47/README.md)
- ` 英喜-粵語組`
-
-### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/48/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [自始至终，中共贼首认为自己的行为都是正义的](/content/gnews/49/README.md)
+### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/47/README.md)
  ` 纽约香草山MOS03`
 
-### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/50/README.md)
+### [因要求强制接种COVID-19疫苗，底特律医院系统被起诉](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP百年百罪 第九集（36 &#8211; 38罪）](/content/gnews/51/README.md)
+### [塔利班将独家报道权交给中共央视](/content/gnews/49/README.md)
+ ` HimalayaRussia`
+
+### [体制内同样深受中共体制之害](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
+
+### [9/09/21 香港快讯 【支联会拒交资料】警国安处搜查六四纪念馆](/content/gnews/51/README.md)
+ ` 英喜-粵語組`
+
+### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/52/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [自始至终，中共贼首认为自己的行为都是正义的](/content/gnews/53/README.md)
+ ` 纽约香草山MOS03`
+
+### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/54/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [CCP百年百罪 第九集（36 &#8211; 38罪）](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（一）](/content/gnews/52/README.md)
+### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（一）](/content/gnews/56/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [GETTR上市两个月注册用户突破200万](/content/gnews/53/README.md)
+### [GETTR上市两个月注册用户突破200万](/content/gnews/57/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [美国海岸警卫队队长：中共新海事规则“非常令人担忧”](/content/gnews/54/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [全球抗议疫苗接种 媒体不报道](/content/gnews/55/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [从国际奥委会声明来看我们与目标的距离](/content/gnews/56/README.md)
- ` G-NEWS TAIWAN`
-
-### [樱花灭共诗——风雅丧（新韵）](/content/gnews/57/README.md)
- ` 日本东京樱花团`
 

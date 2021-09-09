@@ -2,40 +2,31 @@
 ---
 
 
-## 中共正扩大在全球社交媒体的超限宣传战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522018/)
+## 艺术灭共：天津开始查处书法培训机构
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1522034/)
 
-栏目记者/责任编辑：七哩香
+#### 作者：东京樱花团｜捆绑CCP一千年
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-54.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/天津shufa.png)[*图片来源*](https://n.sinaimg.cn/translate/699/w1268h1031/20190310/eK8--htzuhtp4463609.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-80.png)
+据中共国[新华社9月8日消息](http://www.news.cn/politics/2021-09/08/c_1127841630.htm)， 天津某书法协会给没有书法基础的人发放硬笔书法培训师资格证被处罚金21万余元，没收违法所得16万元，责令停业整顿。该机构声称有了这个证就可获得开班办学许可，且收费不低，均在4000元至7000元不等的价格。
 
-9月8日, 美国网络安全公司” 火眼 ” 分析人员发布报告，根据该公司2019年以来的数据跟踪分析，中共在全球社交媒体上发动的舆论操纵战，已经从美国的三大社交媒体平台扩展到世界各地至少30多个社交平台，以及数十个网站和论坛，包含至少七种语言, 甚至试图动员美国的政策抗议者发起暴乱。
+- *延展阅读：*[***评论：请领导干部退出书画界***](http://covid-19.chinadaily.com.cn/hqgj/jryw/2014-12-03/content_12826043.html)
+- *延展阅读：*[***天价艺术背后的合法洗钱：告诉你富豪为什么热衷于抬高艺术品的价格***](http://www.yewuben.com/blog/11558.html)***！***
 
-火眼公司分析称, 这些超限宣传战的主题与中共官媒态度口径一致，包括散布新冠病毒的虚假信息，攻击爆料革命发起人郭文贵及新中国联邦，批评以班农先生为代表的正义人士，引导美国国内政治议题。与此同时, 中共还试图鼓动美国境内各地的抗议者，以反对种族主义等为借口举行线下示威活动。
 
-中共则不仅制造和释放了冠状病毒生物武器，更是把社交媒体视为对付西方民主国家最重要的超限战武器之一。而郭先生和爆料革命创建的GTV、GNEWS、GETTR系列平台，正是对中共超限宣传战最有力的反击阵地!
+在郭文贵先生9月7日曝光中共国艺术品市场骗取财富的惊天黑幕交易后，中共国官方迅速采取行动，对书画领域开始查处整顿。新华社报道的一个小的几乎可以忽略不计的机构被停业，或许是整个艺术行业大整顿的开始。
 
-参考链接： [报告：亲中影响力活动显著扩大网络足迹，并试图动员人在美参加抗议活动](https://www.voachinese.com/a/fire-eye-influence-campaign-tactics-china-20210908/6217951.html)
+此事惊动了国务院天津督查组，认为“硬笔书法培训师”、“美术培训师等资格证”并不在《国家职业资格目录》中。这种骗局在中共国几十年来司空见惯，随处可见，为何这点小事惊动了国务院督查组？且中共国最高官媒长篇大论，天津河西区政府出动市场监管、公安、税务、民政、教育、司法、人社等7大部门对该机构进行？
 
-（本文仅代表作者观点）
+- *延展阅读：*[***落马官员受贿后疯狂买藏品 不料都是赝品***](https://www.163.com/news/article/E1GS8T7K0001899N.html)
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审:  文龙
-校正/发稿：浪迹天涯
+对于艺术领域的草根，除了为了吃的好一点，骗取一些虚荣的面子外，没有任何出路，人们在欺骗人和被人骗的游戏规则下艰难度日。对于艺术行业所谓大师就是完全不一样的活法。正如郭文贵先生所言，“[所有玩艺术的都是官僚、财富、黑暗、腐败被洗净的后虚荣的不自然的笑声的结果](https://gtv.org/video/id=61375c1e637d1e60db2fe8ad)。” （见 1:53.17时段）
 
-**更多资讯，更多关注**
+（本文只代表作者观点，与GNews网站无关）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-54.png)
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-5-e1630998215814.jpg)
 0

@@ -2,51 +2,41 @@
 ---
 
 
-## 更多疫苗会降低免疫反应，导致保护降低
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1522076/)
+## 美国官方文件被曝光，证实武汉病毒所开展冠状病毒改造实验
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522104/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-09_131040.png)
-**简评：**
+栏目记者/责任编辑：七哩香
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
+美国新闻网站The Intercept 9月7日披露的900多页文件显示，武汉病毒研究所曾经通过总部设在纽约的非政府组织“生态健康联盟”得到资金，从事改造蝙蝠冠状病毒的实验，从而使实验室制造的冠状病毒能够感染人类，并使其致病性更强。这一披露为新冠病毒来自于实验室提供了新的有力线索，同时反驳了中共官方的说法。
 
-FDA授权了两款疫苗，一个是仅限16岁以上的辉瑞紧急使用授权产品，另一个是辉瑞生产的Biotech公司的疫苗。传统上来说，紧急使用授权的产品不需要承担责任，只有通过商标授权的要承担责任。民众不可能打到有许可的疫苗。CDC主任说，即使接种过疫苗也可能感染Delta病毒，并且无症状传播。但是没有数据支持，只是采取专制措施来强迫们进行第三次疫苗注射。不能假设疫苗越多越好，因为更多的疫苗会降低免疫反应，导致保护降低。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide10-2.jpeg)
 
-GTV视频链接：[Dr. Robert Malone: 我們現在的疫苗仍然沒有被FDA完全授權](https://gtv.org/video/id=612c76c42d693f187162e5af)
+这批文件是The Intercept与美国国家卫生研究院进行的《信息自由法》诉讼中获得的。文件包括由国家过敏和传染病研究所资助的两个先前未公布的研究建议书，以及与生态健康联盟的研究有关的项目更新。
 
+据报道，其中一项由生态健康联盟负责人彼得·达扎克(Peter Daszak)主导的，名为《了解蝙蝠冠状病毒出现的风险》的资金申请计划，研究内容是通过筛选蝙蝠样本来寻找新型冠状病毒，还涉及筛选与活体动物接触的人。文件还涉及病毒研究的几个关键细节，包括在武汉大学动物实验中心的P3实验室，而不是武汉病毒研究所的P4实验室进行的人源化小鼠的关键实验工作。
 
+达扎克与中共深度勾结，之前《国家脉动》还挖掘了打杂客的演讲：他将描述为“杀手级”的病毒工作，委托给他的“中共国同事”。
 
-**视频字幕：**
+生态健康联盟从蝙蝠冠状病毒的研究中，共获得总计约310万美元的拨款，其中包括给武汉病毒研究所的59.9万美元经费，用于找到和改变可能感染人类的蝙蝠冠状病毒的“功能增益研究”。
 
-**Dr. Robert：**简单概括一下我前面说的，实际上FDA在两封不同的信函中授权了两个产品，这个引起很多疑惑和混乱。一个是辉瑞紧急使用授权产品，这个仅限与16岁以上。另外一个是辉瑞生产的BioNTech公司的疫苗。他俩在本质上是相同的，(但BioNTech的产品)实际上还没有上市。 不清楚的是，他们在免责保护方面有什么不同。
+(本文仅代表作者观点）
 
-**主持人：**传统来说，那些紧急使用授权的产品，他们不需要承担责任。但是那些通过商标完全授权的，他们要承担责任。现在我们只有，我叫做“混合物”，哈哈，我不是医生。我们现在的疫苗仍然没有被FDA完全授权，所以现在非常模糊。而且，即使（像主流媒体）说的，FDA通过商标“完全授权”，他们也绕过了以往的主要步骤。对吗？
+参考链接：[新披露文件证实 武汉病毒所曾进行蝙蝠冠状病毒改造实验](https://gnews.org/wp-admin/post-new.php)
 
-**Dr. Robert：**对。我想对你的听众和观众说，你不可能打到有许可的疫苗。在美国还没有，根本沒有。
+[NEW DETAILS EMERGE ABOUT CORONAVIRUS RESEARCH AT CHINESE LAB](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)
 
-**主持人：**谢谢你用让我们能听懂的外行话把这个说清楚。现在你们感到震惊了，但是还不至于太震惊。来听听CDC主任今天早些时候是怎么说的。听完她说的，看你有什么反应。我们来听听。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-**另一个主持人：**你很清楚，Delta变种的其中一个最大问题是，即使是接种过疫苗的人也可以被感染，而且在不知觉和没有症状的情况下传播病毒。这是我们今年夏天COVID病例呈爆炸性增长的原因。所以，我的问题是：是他们的“希望”还是更好的数据表明第三次注射疫苗可以阻止病毒传播？
+终审：暗黑
+校对/发稿：谐趣园
 
-**CDC Director：**是“希望”，我们还没有数据。我们确实知道疫苗对Alpha变种更有效，能减少传播。我们还没有看到数据，我们希望……
-
-**主持人：**我感觉此处我应该听到唱片划痕的声音，“我们—嗯–希望，应该能—起到作用”，“应该，可能，呃呃呃”。我不知道听起来应该是什么。
-
-**Dr. Robert：**我想我们现在可以说，我们真正拥有一个基于“信仰”的政府。
-
-**主持人：**是的，看你怎么定义“信仰”了，当然是对他们疫苗的信仰。但是，你说过她应该为她说过的话而感到羞愧，你想再扩充一下吗？
-
-**Dr. Robert：**当然。我的意思是，这简直是奇葩。我们现在处于这样的境地，他们将使用专制措施和强制疫苗来要求人们进行第三次注射，而他们没有数据支持。现在我要告诉你，为什么这件事对你、对我，一个疫苗学家都很重要？有一个概念叫做“高区容忍度”。你不能在疫苗上也假设越多越好，更多的疫苗会降低免疫反应，可以导致保护降低。这就是为什么我们需要数据。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：雨中漫步|听写：云岭|翻译：Roberts| PR：Wade|简评/文字整理/编辑：胖丁| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-
-[![](https://spark.adobe.com/page/V92rcDBGsLty2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/V92rcDBGsLty2/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
 
 0

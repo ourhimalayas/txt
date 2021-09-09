@@ -2,40 +2,28 @@
 ---
 
 
-## 非法向中共出口水下监听设备,中国籍移民获刑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522033/)
+## 放弃自由赢得民心
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1522068/)
 
-栏目记者/责任编辑：云豹
+#### 作者：东京樱花团｜阿恩
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0909阿恩.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-82.png)
+[**立场新闻：荃湾区议员岑敖晖完成“六四案“的刑期后被加控藐视法庭罪**](https://www.thestandnews.com/politics/%E5%B2%91%E6%95%96%E6%9A%89%E8%A2%AB%E5%8A%A0%E8%A2%AB%E6%8E%A7%E8%97%90%E8%A6%96%E6%B3%95%E5%BA%AD-%E8%88%87%E5%91%A8%E6%A2%93%E6%A8%82%E9%80%9D%E4%B8%96%E5%8D%8A%E5%B9%B4%E8%B2%BC%E6%96%87%E6%9C%89%E9%97%9C)
 
-综合外电报导，因非法出口可用于监听潜艇活动的水下监听设备给中共，9月8日 波士顿联邦地区法院判处中国籍/绿卡持有者覃树人两年有期徒刑，罚金2万美元。
+港版《国安法》成为中共拘捕异见人士的法宝，香港积蓄了几十年的民主力量被中共打击得支离破碎，监仓中关押的都是具有代表性的人物，包括立法会议员、区议员、社团领袖…… 这些人许多都不肯认罪，甚至放弃定期申请保释，有牢底坐穿的打算。一些人选择认罪求情，希望能减少刑期早日重出江湖。我们无权评判他们的决定，但现实状况下，选择认罪的结果也不尽人意。
 
-覃树人是一名中国籍海洋生物学者，2014年绿卡移民到美国。2015年到2016年间，在没有出口许可证情况下 将所购买的水下监听设备, 出口给中国西北工业大学。该大学是参与中共军方水下无人机研究项目的军事研究机构。检方还指控覃树人涉及出口无人水面载具给中共，而他的客户名单上还包括中共海军的南海舰队及其海军潜艇学院。
+- *延展阅读：*[***刑事藐视法庭***](https://www.clic.org.hk/zh/topics/FreedomOfAssemblyProcessionDemonstration/RelatedOffences/Public_Order_Offences/Criminal_contempt_of_court)
 
-参考链接：[覃樹人為中共走私美國反潛作戰科技 遭判2年徒刑](https://www.cna.com.tw/news/aopl/202109090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-（本文仅代表作者观点）
+因”六四非法集结案“与岑敖晖判囚的还有黄之锋、袁嘉蔚和梁凯晴，他们四人同在庭上认罪，黄之锋判囚10个月，岑敖晖判囚6个月，袁嘉蔚、梁凯晴被判囚4个月，但四人中仅梁凯晴如期刑满出狱。黄之锋于今年1月7日在狱中被捕，控罪是参与民主派初选违反港版《国安法》中的”颠覆国家政权罪“。袁嘉蔚在六四非法集结案刑期届满后，又因参与民主派初选转为还押身份。岑敖晖”六四非法集结案“今日期届满，又被加控控藐视法庭，事因周梓乐逝世半年的发贴质疑警察谋杀周梓乐，岑敖晖还身负参民主派初选的控罪。中共加给他们的控罪似乎源源不绝，他们被囚禁的日子也好像无尽头。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+感恩香港人的不离不弃，他们默默用书信给在囚者送上真诚的祝福和安慰，让他们知道还有这么多香港人与他们同在；他们为求入法庭支持不惜清早排队只求一票，他们在囚车入口忍受酷热持文宣聚集，只为告知囚车中的人并不孤单，他们冒死追逐出口处的囚车，只为车中人能听到“加油”的声音……
 
-终审:  文龙
-校正/发稿：浪迹天涯
+那些不肯认罪的在囚者深知中共的诡诈，它揪住人最渴望的自由，与之妥协的代价却是失去自由，所以他们情愿放弃自由，令中共无从下手。漫长的囚禁确实消磨人的意志，但上帝让这些不肯屈服的在囚者明白他的心意，从此监狱就是他们的工场，他们要在新的工场强身健体，博览群书，服务于身边的囚友，将追求民主自由的信念从监狱中传递开，监狱这个被世人遗忘的地方，将成为积蓄民主力量的仓库，这些经历过人间冷暖忍受过残酷生存境况的人在未来的日子将被上帝大大使用。
 
-**更多资讯，更多关注**
+（本文只代表个人观点，与Gnews网站无关）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is image-55.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
-
+*校对、发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-5-e1630998215814.jpg)
 0

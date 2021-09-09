@@ -2,18 +2,35 @@
 ---
 
 
-## 习近平致电祝贺朝鲜民主主义人民共和国成立73周年
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1521101/)
+## 美国建立的阿富汗人数据库 被塔利班用于监视镇压
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522045/)
 
-韩国天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/09/99封.jpeg)图片来源网路
-据新华社北京9月9日的报道，习近平致电金正恩祝贺朝鲜人民民主共和国成立73周年。贺电指出朝鲜劳动党团结带领朝鲜人民不懈努力，推动社会事业取得巨大成就，同时指出中朝传统友谊历久弥坚，是双方共同的宝贵财富。
+栏目记者/责任编辑：文顺
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-84.png)
+据法广网9月8日报导，美国斥资数亿美元建立的阿富汗人数据库，目前已落入塔利班之手。该数据库已沦为塔利班监视、镇压和惩罚阿富汗人民的利器。
 
-简评：所谓“推动社会事业取得巨大成就”是指金正恩不停地核试验威胁到周边国家安全吗？还是指建立了防火墙把自己的国民圈养起来，让他们不能了解到外面资本主义的真实世界？
-友谊是不是历久弥新，就看平时的礼尚往来。中共送给朝鲜的疫苗，金正恩都没有给军队注射，连对中共最起码的信任都没有，何来友谊？没有友谊，又何来友谊历久弥坚呢？
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-5.jpeg)
 
-（本文仅代表作者观点，与Gnews平台无关）
+美国自2006年起收集阿富汗人的生物特征数据，包含数百万阿富汗人的指纹、虹膜、面部图片。美国与其支持的阿富汗政府共享该系统。
 
-[新闻来源](http://www.news.cn/2021-09/09/c_1127843420.htm)
+自8月15日喀布尔陷落以来，不断有消息说，这个本为推行法治秩序及政府咎责力、建设现代化国家所用的数据库，已被塔利班没收，用来找出曾替美军工作的阿富汗人，或以此恫吓他们。
 
+美方专家学者对此表示担忧，特别是该数据库会极大地提高塔利班的侦监及拦截能力，得以无情地杀害与他们作对的人。
+
+(本文仅代表作者观点）
+
+参考链接：[美国建立的阿富汗人数据库落入塔利班手中被用于监视镇压阿富汗人](https://www.rfi.fr/cn/美洲/20210908-美国建立的阿富汗人数据库落入塔利班手中被用于监视镇压阿富汗人)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：FoxRina
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
