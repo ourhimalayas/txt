@@ -2,33 +2,31 @@
 ---
 
 
-## 惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521929/)
+## 艺术灭共：天津开始查处书法培训机构
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1522034/)
 
-栏目记者/责任编辑：修文
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-51.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-79.png)
-中共网信办日前宣布整治唱衰唱空市场的金融”黑嘴”，于9月8日发布首波成果，共处置封禁数千个违规账号。 中国网路社群平台如微信、百度、抖音、快手纷纷宣布配合官方政策，并定期发布整治报告。
+#### 作者：东京樱花团｜捆绑CCP一千年
 
-中国证券市场长期以来被官方操纵来割韭菜。中共不承认股市债市是已被掏空的虚壳，将民间的愤懑情绪甩锅到自媒体, 称是这些所谓的”黑嘴”唱衰了原本繁荣的金融市场。于是要剥夺仅有的一点财经评论自由，只能有赞美这一种声音,为持续割韭菜加油喝彩。但事实是墙内股市持续低迷，债市频频爆雷, 中共经济的衰退崩溃已不可避免。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/天津shufa.png)[*图片来源*](https://n.sinaimg.cn/translate/699/w1268h1031/20190310/eK8--htzuhtp4463609.jpg)
 
-参考链接：[www.rfi.fr](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210908-%E4%B8%AD%E5%9B%BD%E6%95%B4%E6%B2%BB%E9%87%91%E8%9E%8D%E9%BB%91%E5%98%B4-%E5%B7%B2%E6%9F%A5%E5%B0%811793%E4%B8%AA%E7%A4%BE%E7%BE%A4%E5%B8%90%E5%8F%B7)
+据中共国[新华社9月8日消息](http://www.news.cn/politics/2021-09/08/c_1127841630.htm)， 天津某书法协会给没有书法基础的人发放硬笔书法培训师资格证被处罚金21万余元，没收违法所得16万元，责令停业整顿。该机构声称有了这个证就可获得开班办学许可，且收费不低，均在4000元至7000元不等的价格。
 
-终审:  文龍
-
-上传：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-4.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
+- *延展阅读：*[***评论：请领导干部退出书画界***](http://covid-19.chinadaily.com.cn/hqgj/jryw/2014-12-03/content_12826043.html)
+- *延展阅读：*[***天价艺术背后的合法洗钱：告诉你富豪为什么热衷于抬高艺术品的价格***](http://www.yewuben.com/blog/11558.html)***！***
 
 
+在郭文贵先生9月7日曝光中共国艺术品市场骗取财富的惊天黑幕交易后，中共国官方迅速采取行动，对书画领域开始查处整顿。新华社报道的一个小的几乎可以忽略不计的机构被停业，或许是整个艺术行业大整顿的开始。
+
+此事惊动了国务院天津督查组，认为“硬笔书法培训师”、“美术培训师等资格证”并不在《国家职业资格目录》中。这种骗局在中共国几十年来司空见惯，随处可见，为何这点小事惊动了国务院督查组？且中共国最高官媒长篇大论，天津河西区政府出动市场监管、公安、税务、民政、教育、司法、人社等7大部门对该机构进行？
+
+- *延展阅读：*[***落马官员受贿后疯狂买藏品 不料都是赝品***](https://www.163.com/news/article/E1GS8T7K0001899N.html)
+
+
+对于艺术领域的草根，除了为了吃的好一点，骗取一些虚荣的面子外，没有任何出路，人们在欺骗人和被人骗的游戏规则下艰难度日。对于艺术行业所谓大师就是完全不一样的活法。正如郭文贵先生所言，“[所有玩艺术的都是官僚、财富、黑暗、腐败被洗净的后虚荣的不自然的笑声的结果](https://gtv.org/video/id=61375c1e637d1e60db2fe8ad)。” （见 1:53.17时段）
+
+（本文只代表作者观点，与GNews网站无关）
+
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-5-e1630998215814.jpg)
 0

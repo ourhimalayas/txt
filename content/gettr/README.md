@@ -15,6 +15,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/9/2021 5:02 PM (UTC)`
+
+🍎🍎🍎🍎🍎☂️☂️☂️☂️☂️
+> `@s7gril 9/9/2021 4:31 PM (UTC)`<br/>刚刚配上中文字幕。班农回答飞飞的问题说”我不在乎CNBC怎么说，我不会对文贵说的任何话打折扣。“ <br/>#bannon said, "I think #Miles is becoming quickly the George Washington of the diaspora, the new China, the new Chinese so no, I won't care what #CNBC says, I won't discount anything Miles says."
+![img](https://media.gettr.com/group1/origin/2021/09/09/16/1853d4ca-ae73-02c3-89dd-dc29033ce274/out.jpg)
+
+---
+
 `@miles 9/9/2021 3:19 PM (UTC)`
 
 😍😍😍😍😍😍😍😍
@@ -296,13 +304,6 @@ September 5th, a manifestation of the heavens. A black swan landed in Beijing's 
 `@miles 9/5/2021 6:48 PM (UTC)`
 
 北京天安门上飞来的黑天鹅．是中国历史上能查到的唯一的一次在核心的地段14亿人的中国的心脏🫀中心上．在这个最敏感的时候．落下来，象征着变革．改变，天翻地覆，来自上天信息的代表。这是中央电视台和中国的所有的宣传机构无法改变的自然的事实，这也是上天给中国最后的一次警告。这既是给中国的一个最后的警告，也是一个最后的机会，中国人是否能懂得和珍惜把握住，这次机会！咱们走着瞧……万物的主宰者，安排的此事件．这样的时间这样的地点一个具有绝对象征意义的物理世界上天万物的主人的显灵！它的意义深远，将成为历史上和未来的人类．又一个信仰和宗教界的最大的真实传奇．从这一刻起信仰和宗教和我们的物理，世界将走向一个新的历史的篇章．这就是互联网和社交媒体时间的伟大之处，再也没有人可以代表黑天鹅事件，成立各种的捐款和宗教组织欺骗愚弄普通的人们了在互联网的时代，真想离我们非常的近，这是这个伟大的时代的伟大之处🙏🙏🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 9/5/2021 5:45 PM (UTC)`
-
-兄弟姐妹们 这是我今天直播中提到的切尔诺贝利电影的全名
-![img](https://media.gettr.com/group18/getter/2021/09/05/17/15a3ccb3-519a-775d-63c9-bc5e36868edc/2e28bec9feb16c09df78c8652cca438d.jpg)
 
 ---
 

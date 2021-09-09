@@ -2,40 +2,41 @@
 ---
 
 
-## 非法向中共出口水下监听设备,中国籍移民获刑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522033/)
+## 瑞典宣布：将取消大多数剩余的新冠病毒限制
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1522305/)
 
-栏目记者/责任编辑：云豹
+作者：香草山商业部-往后余生Jane
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-82.png)
 
-综合外电报导，因非法出口可用于监听潜艇活动的水下监听设备给中共，9月8日 波士顿联邦地区法院判处中国籍/绿卡持有者覃树人两年有期徒刑，罚金2万美元。
 
-覃树人是一名中国籍海洋生物学者，2014年绿卡移民到美国。2015年到2016年间，在没有出口许可证情况下 将所购买的水下监听设备, 出口给中国西北工业大学。该大学是参与中共军方水下无人机研究项目的军事研究机构。检方还指控覃树人涉及出口无人水面载具给中共，而他的客户名单上还包括中共海军的南海舰队及其海军潜艇学院。
+瑞典政府的一项公告表示，对餐厅、剧院和体育场馆等公共场所的限制将于9月取消。瑞典在疫情期间的夏季间歇期，开始放松一些限制。
 
-参考链接：[覃樹人為中共走私美國反潛作戰科技 遭判2年徒刑](https://www.cna.com.tw/news/aopl/202109090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20200422-COVID-19-Restaurant-Stockholm-GettyImages-1210662488-700x420-1.jpg)
 
-（本文仅代表作者观点）
+据政府称，疫苗护照正在美国几个城市、法国、意大利、瑞士、以色列和其他地区推出，未来可能会被授权用于“大型公共集会”。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+政府表示，在家工作将被删除，并可以开始逐步重返工作场所。几天前，政府宣布，由于瑞典病例激增，将禁止来自以色列的游客进入瑞典。以色列是世界上新冠病毒疫苗接种率最高的国家之一，但并没有减少感染数字。
 
-终审:  文龙
-校正/发稿：浪迹天涯
+参考链接：
+
+[https://www.zerohedge.com/markets/sweden-announces-it-will-remove-most-remaining-covid-19-restrictions](https://www.zerohedge.com/markets/sweden-announces-it-will-remove-most-remaining-covid-19-restrictions)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is image-55.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

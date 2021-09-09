@@ -28,13 +28,13 @@
 ### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/5/README.md)
  ` 儒为`
 
-### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/6/README.md)
+### [【字幕】9/9/2021文贵盖特：中共即将崩溃的庞氏骗局的经济](/content/gnews/6/README.md)
+ ` Caihongqiao`
+
+### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [8/31郭文贵盖特：爆料革命推动美国法官下令医生使用伊维菌素（粤语配音）](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [8/31郭文贵盖特：昨天公布中共病毒解药引起全世界巨大反响（粤语配音）](/content/gnews/8/README.md)
+### [8/31郭文贵盖特：爆料革命推动美国法官下令医生使用伊维菌素（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/9/README.md)
@@ -46,14 +46,14 @@
 ### [美国官方文件被曝光，证实武汉病毒所开展冠状病毒改造实验](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/13/README.md)
+### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GETTR上市两个月注册用户突破200万](/content/gnews/14/README.md)
+### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
+
+### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [墙内世界](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -103,29 +103,29 @@
 ### [习近平致电祝贺朝鲜民主主义人民共和国成立73周年](/content/gnews/30/README.md)
  ` 首尔天池农场`
 
-### [瑞典宣布：将取消大多数剩余的新冠病毒限制](/content/gnews/31/README.md)
+### [秘翻在线：印尼与中共国本币结算机制正式启动](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [秘翻在线：艾未未“臭名”远洋 瑞士信贷关闭其基金会账号](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [乔·罗根欲诉CNN造谣其服用兽用驱虫剂](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [瑞典宣布：将取消大多数剩余的新冠病毒限制](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [郭文贵直播摘要、音频、视频 2021.9.8 : 再谈中共国艺术与腐败](/content/gnews/32/README.md)
+### [郭文贵直播摘要、音频、视频 2021.9.8 : 再谈中共国艺术与腐败](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [放弃自由赢得民心](/content/gnews/33/README.md)
+### [放弃自由赢得民心](/content/gnews/36/README.md)
  ` 日本东京樱花团`
 
-### [非法向中共出口水下监听设备,中国籍移民获刑](/content/gnews/34/README.md)
+### [非法向中共出口水下监听设备,中国籍移民获刑](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [艺术灭共：天津开始查处书法培训机构](/content/gnews/35/README.md)
+### [艺术灭共：天津开始查处书法培训机构](/content/gnews/38/README.md)
  ` 日本东京樱花团`
-
-### [中共正扩大在全球社交媒体的超限宣传战](/content/gnews/36/README.md)
- ` GTV新闻访谈`
-
-### [港警搜查香港六四纪念馆](/content/gnews/37/README.md)
- ` Charlie`
-
-### [惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由](/content/gnews/38/README.md)
- ` GTV新闻访谈`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/47/README.md)
- ` 纽约香草山MOS03`
-
-### [因要求强制接种COVID-19疫苗，底特律医院系统被起诉](/content/gnews/48/README.md)
+### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [塔利班将独家报道权交给中共央视](/content/gnews/49/README.md)
+### [土霉素,地塞米松在新冠疫情中的应用](/content/gnews/48/README.md)
+ ` 纽约香草山MOS03`
+
+### [因要求强制接种COVID-19疫苗，底特律医院系统被起诉](/content/gnews/49/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [塔利班将独家报道权交给中共央视](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [体制内同样深受中共体制之害](/content/gnews/50/README.md)
+### [体制内同样深受中共体制之害](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [9/09/21 香港快讯 【支联会拒交资料】警国安处搜查六四纪念馆](/content/gnews/51/README.md)
+### [9/09/21 香港快讯 【支联会拒交资料】警国安处搜查六四纪念馆](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/52/README.md)
+### [美国敦促塔利班允许包机离开阿富汗](/content/gnews/53/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [自始至终，中共贼首认为自己的行为都是正义的](/content/gnews/53/README.md)
+### [自始至终，中共贼首认为自己的行为都是正义的](/content/gnews/54/README.md)
  ` 纽约香草山MOS03`
 
-### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/54/README.md)
+### [索罗斯称贝莱德的中国投资很大可能会亏损](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP百年百罪 第九集（36 &#8211; 38罪）](/content/gnews/55/README.md)
+### [CCP百年百罪 第九集（36 &#8211; 38罪）](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（一）](/content/gnews/56/README.md)
+### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（一）](/content/gnews/57/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [GETTR上市两个月注册用户突破200万](/content/gnews/57/README.md)
- ` 温哥华圆成农场🇨🇦`
 
