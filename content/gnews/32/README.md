@@ -2,24 +2,33 @@
 ---
 
 
-## 免疫专家：接种疫苗的人应该被隔离
-` Runaway` [轉載自GNews](https://gnews.org/zh-hans/1521693/)
+## 澳大利亚：唯有西澳州财政收支有盈余
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1521702/)
 
-据美国前线医生报道，世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安.佩龙（Christian Perronne）教授表示，所有接种疫苗的人都必须在冬季隔离，否则可能会患上严重疾病。佩龙教授专门研究热带病理学和新兴传染病，他是公共卫生高级委员会传染病专门委员会主席。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1631170346591_G053FCMVV.2-2.jpg)图片来源：Perth Now
+**整理报道：**翼族
 
-当确认了以色列和英国迅速恶化的疫情后，这位传染病专家表示：“接种疫苗的人应该被隔离，应该与社会隔离。”
+澳大利亚2020-2021财年各州和领地公布的财政收支显示，整个澳大利亚联邦只有西澳州有盈余，而其它州则充斥着债务和赤字。
 
-他说：“未接种疫苗的人并不危险，接种疫苗的人对其他人才是危险的，这已经在以色列得到证实。我与许多以色列的医生有联系，他们遇到了大问题，医院里的重症病例都是接种过疫苗的人，而在英国更大的疫苗接种计划中，也存在问题。”
+铁矿石价格的猛涨，使得西澳大利亚州产生了创纪录的56亿澳元的预算盈余，也使其成为全国表现最好的经济体、唯一有盈余的一个州。而维多利亚州则拥有全澳最高的财政赤字，高达175亿澳元。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/11111.jpg)图片来源：ABC
+预计西澳州一直到2024-25财年都将持续预算盈余，2021-22财年预计盈余为28亿澳元。州长马克·麦高恩（Mark McGowan）表示：“即使在全球大流行期间，与其它任何一个司法管辖区不同，西澳大利亚州的财务状况依然强劲且可持续。”
 
-据报道，目前法国COVID-19大流行工作组在收到消息后“非常恐慌”，担心如果专家所言成真，会出现混乱。
+鉴于该州的经济地位，麦高恩州长表示，他预计各州之间将重新燃起关于商品及服务税（GST）分割的争论。GST收入显著增加了西澳州的预算盈余，上个财政年度，该州的GST收入增加了超过45亿澳元，预计2021-22财年将超过50亿澳元。
 
-以色列医生Kobi Haviv告诉第13频道新闻：“95%的重病患者都接种了疫苗。完全接种疫苗的人占住院人数的85-90%。我们正在开设越来越多的COVID分支机构。疫苗的有效性正在下降或消失。”
+另外，西澳州的其它税收也高于预期，增长了11.7%，计11亿澳元，主要是由于该州蓬勃发展的房地产市场。
 
-（以上观点仅代表作者本人）
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-参考链接：
-[Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
+参考链接：[WA Budget reveals $5.6 billion surplus but no border reopening date, delays to infrastructure](https://www.abc.net.au/news/2021-09-09/wa-budget-5-point-6-billion-surplus-but-no-border-reopening-date/100438990)
 
+*编辑/发布：翼族*
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

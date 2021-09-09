@@ -2,27 +2,24 @@
 ---
 
 
-## 秘翻在线 :伊维菌素对中共病毒的卓越疗效无人可挡
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1521637/)
+## 免疫专家：接种疫苗的人应该被隔离
+` Runaway` [轉載自GNews](https://gnews.org/zh-hans/1521693/)
 
-撰稿：William
+据美国前线医生报道，世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安.佩龙（Christian Perronne）教授表示，所有接种疫苗的人都必须在冬季隔离，否则可能会患上严重疾病。佩龙教授专门研究热带病理学和新兴传染病，他是公共卫生高级委员会传染病专门委员会主席。
 
-校对：牛小妹
+当确认了以色列和英国迅速恶化的疫情后，这位传染病专家表示：“接种疫苗的人应该被隔离，应该与社会隔离。”
+
+他说：“未接种疫苗的人并不危险，接种疫苗的人对其他人才是危险的，这已经在以色列得到证实。我与许多以色列的医生有联系，他们遇到了大问题，医院里的重症病例都是接种过疫苗的人，而在英国更大的疫苗接种计划中，也存在问题。”
+
+据报道，目前法国COVID-19大流行工作组在收到消息后“非常恐慌”，担心如果专家所言成真，会出现混乱。
+
+以色列医生Kobi Haviv告诉第13频道新闻：“95%的重病患者都接种了疫苗。完全接种疫苗的人占住院人数的85-90%。我们正在开设越来越多的COVID分支机构。疫苗的有效性正在下降或消失。”
+
+（以上观点仅代表作者本人）
+
+参考链接：
+[Immunization expert: ‘Unvaccinated people are not dangerous; vaccinated people are dangerous for others’](https://americasfrontlinedoctors.org/frontlinenews/immunization-expert-unvaccinated-people-are-not-dangerous-vaccinated-people-are-dangerous-for-others/)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/p-1.jpg)
-图片来源：National Review
-
-**无论是治疗或预防中共病毒(COVID-19)，伊维菌素都是”神奇药物”**
-
-根据The Daily Bell的报导，美国胸科医师学会在2021 年 1 月评估伊维菌素对治疗重病患者的临床效果，针对 280 名患者进行了研究，其中 173 名患者接受伊维菌素治疗，107 名患者未接受伊维菌素治疗，结果显示接受伊维菌素组的死亡率明显降低，绝对风险也降低。然而这个研究结果已被主流媒体屏蔽，无法出现在《纽约时报》或 Snopes事实查核机构上。
-
-另外一项 2020 年埃及随机对照研究表明，伊维菌素做为预防中共病毒侵入的效果也十分惊人。研究指出，在接受伊维菌素治疗的 203 名无症状密切家庭接触者中，只有 15 名（7.4%）被发现感染。而在未使用伊维菌素的 101 名接触者中，有高达 59 人（58.4%）患上了这种疾病。另外，在日本抗生素杂志也有指出，截至 2021 年 2 月 27 日，经过统合分析(meta-analysis)，全球 42 项临床研究结果显示，伊维菌素可有效治疗和预防中共病毒相关疾病。
-
-**主流媒体及CDC企图掩盖伊维菌素的神效**
-
-尽管有许多的数据以及研究证明伊维菌素对中共病毒治疗非常有效。但是大外宣媒体、相关研究机构仍然不回应、不支持，甚至污蔑伊维菌素的疗效。知名播客主持人乔•罗根 (Joe Rogan) 在社交媒体上发布了一段视频，分享自己患有中共病毒疾病，在服用伊维菌素后，症状获得控制。竟然遭受主流媒体用漫划嘲笑使用马匹驱虫剂的伊维菌素。另外，CDC 甚至称伊维菌素是未经 FDA 授权或批准用于预防或治疗中共病毒的用药。
-
-新闻来源：[https://www.thedailybell.com/all-articles/news-analysis/covid-propaganda-roundup-the-ivermectin-war/](https://www.thedailybell.com/all-articles/news-analysis/covid-propaganda-roundup-the-ivermectin-war/)
 
 0
