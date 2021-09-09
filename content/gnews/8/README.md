@@ -2,14 +2,11 @@
 ---
 
 
-## 2021.9.7 郭先生直播 新中国联邦给我们依靠和幸福
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1521557/)
+## 8/27郭文贵盖特：七哥为什么要和战友连线直播？（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1521947/)
 
-- 制作：葛大饼
+8/27/2021 郭文贵盖特：七哥为什么要和战友连线直播？请战友们在关键时刻，一定要提高判断力和认知能力，才能救己救人。
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
-
-+2
+0

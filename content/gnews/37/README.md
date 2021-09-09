@@ -2,33 +2,33 @@
 ---
 
 
-## 澳大利亚：唯有西澳州财政收支有盈余
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1521702/)
+## 艺术灭共：天津行业整顿,查处书法培训机构
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521840/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1631170346591_G053FCMVV.2-2.jpg)图片来源：Perth Now
-**整理报道：**翼族
+栏目记者/责任编辑：捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-54.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/9091.png)
+9月8日墙内新华社消息，天津某书法协会给没有书法基础的人发放书法培训师资格证被查处, 罚款并责令停业整顿, 此事甚至惊动了国务院天津督查组。这种行业小骗局在中共国司空见惯，为何惊动了天津督查组？引来新华社报道？
 
-澳大利亚2020-2021财年各州和领地公布的财政收支显示，整个澳大利亚联邦只有西澳州有盈余，而其它州则充斥着债务和赤字。
+就在近日, 文贵先生在其系列直播中, 曝光中共国艺术品收藏领域假丑恶现象, 盗国贼及其白手套利用艺术品进行金融财富的掠夺黑幕. 此次一个小小的天津书法协会查处事件, 才被新华社拿来放大报道, 表明中共或许将对书画行业发起所谓整风整顿，并很有可能发展成为整个文化艺术领域文革式大整顿的开始。
 
-铁矿石价格的猛涨，使得西澳大利亚州产生了创纪录的56亿澳元的预算盈余，也使其成为全国表现最好的经济体、唯一有盈余的一个州。而维多利亚州则拥有全澳最高的财政赤字，高达175亿澳元。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/11111.jpg)图片来源：ABC
-预计西澳州一直到2024-25财年都将持续预算盈余，2021-22财年预计盈余为28亿澳元。州长马克·麦高恩（Mark McGowan）表示：“即使在全球大流行期间，与其它任何一个司法管辖区不同，西澳大利亚州的财务状况依然强劲且可持续。”
+70年来, 对于中共治下的艺术领域从业者来说,人们几乎都是在欺骗人和被人骗的游戏规则下, 为生存得过且过。正如郭文贵先生所言，“ 艺术品是寻找权力和金钱的艺术，是腐败的媒介”。
 
-鉴于该州的经济地位，麦高恩州长表示，他预计各州之间将重新燃起关于商品及服务税（GST）分割的争论。GST收入显著增加了西澳州的预算盈余，上个财政年度，该州的GST收入增加了超过45亿澳元，预计2021-22财年将超过50亿澳元。
+终审: 文龍
 
-另外，西澳州的其它税收也高于预期，增长了11.7%，计11亿澳元，主要是由于该州蓬勃发展的房地产市场。
+上传：浪迹天涯
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+参考链接：[http://www.news.cn/politics/2021-09/08/c\_1127841630.htm](http://www.news.cn/politics/2021-09/08/c_1127841630.htm) [https://gtv.org/video/id=61375c1e637d1e60db2fe8ad](https://gtv.org/video/id=61375c1e637d1e60db2fe8ad)
 
-参考链接：[WA Budget reveals $5.6 billion surplus but no border reopening date, delays to infrastructure](https://www.abc.net.au/news/2021-09-09/wa-budget-5-point-6-billion-surplus-but-no-border-reopening-date/100438990)
+**更多资讯，更多关注**
 
-*编辑/发布：翼族*
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-4.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-51.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
 0

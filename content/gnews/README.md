@@ -28,14 +28,14 @@
 ### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/5/README.md)
  ` 儒为`
 
-### [郭先生：西方如果不重视疫苗问题 将不再是人类的灯塔](/content/gnews/6/README.md)
- ` MG 澳喜农场多语组`
+### [8/28郭文贵直播：极少数人想通过打疫苗“净化”人类（粤语配音）](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021.9.7 郭先生直播，共产党不亡，最黑暗的时代是不会到来的](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [8/28郭文贵直播：在冠状病毒、疫苗面前，人类智商、智慧和家人之间的关系将经历考验（粤语配音）](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021.9.7 郭先生直播 新中国联邦给我们依靠和幸福](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [8/27郭文贵盖特：七哥为什么要和战友连线直播？（粤语配音）](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [郭先生：西方如果不重视疫苗问题 将不再是人类的灯塔](/content/gnews/9/README.md)
  ` MG 澳喜农场多语组`
@@ -85,47 +85,47 @@
 ### [有声| 黑天鹅降临天安门，或暗示中南海上演颠覆好戏](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [&#8220;只要中共不亡, 黑暗还会再来!&#8221;](/content/gnews/25/README.md)
+### [美国建立的阿富汗人数据库 被塔利班用于监视镇压](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [盖特突破200万用户 创当日新用户注册量新高](/content/gnews/26/README.md)
+### [习近平致电祝贺朝鲜民主主义人民共和国成立73周年](/content/gnews/26/README.md)
+ ` 首尔天池农场`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/27/README.md)
+ ` wenwu`
+
+### [&#8220;只要中共不亡, 黑暗还会再来!&#8221;](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [科兴称其疫苗在智利获批用于儿童和青少年](/content/gnews/27/README.md)
+### [盖特突破200万用户 创当日新用户注册量新高](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [马里兰州完全接种疫苗后, 感染人数“迅速增加”](/content/gnews/28/README.md)
+### [科兴称其疫苗在智利获批用于儿童和青少年](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：亚马逊——高速运转的悲剧陷阱](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [陈元手中握有《酒浴》，民生张宏伟一定会被抓](/content/gnews/30/README.md)
+### [非法向中共出口水下监听设备,中国籍移民获刑](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由](/content/gnews/31/README.md)
+### [艺术灭共：天津开始查处书法培训机构](/content/gnews/32/README.md)
+ ` 日本东京樱花团`
+
+### [中共正扩大在全球社交媒体的超限宣传战](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：中共信息战扩展更多国家 并将新冠病毒归咎美国](/content/gnews/32/README.md)
- ` 秘密翻译组G-Translators`
-
-### [艺术灭共：天津行业整顿,查处书法培训机构](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [贝莱德押注中（共）国市场](/content/gnews/34/README.md)
+### [港警搜查香港六四纪念馆](/content/gnews/34/README.md)
  ` Charlie`
 
-### [秘翻在线：特里普拉邦爆发暴力冲突 印共办公室遭到破坏](/content/gnews/35/README.md)
+### [惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：中共信息战扩展更多国家 并将新冠病毒归咎美国](/content/gnews/36/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：世界卫生组织腐败现象严重 被各个行业与政府收买](/content/gnews/36/README.md)
- ` 秘密翻译组G-Translators`
+### [艺术灭共：天津行业整顿,查处书法培训机构](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
 
-### [澳大利亚：唯有西澳州财政收支有盈余](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [短视频：大胡子医生详细解说打了疫苗后怎么办](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
+### [贝莱德押注中（共）国市场](/content/gnews/38/README.md)
+ ` Charlie`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

@@ -2,14 +2,11 @@
 ---
 
 
-## 2021.9.7 郭先生直播，共产党不亡，最黑暗的时代是不会到来的
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1521583/)
+## 8/28郭文贵直播：在冠状病毒、疫苗面前，人类智商、智慧和家人之间的关系将经历考验（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1521949/)
 
-- 制作：葛大饼
+8/28/2021郭文贵直播：在冠状病毒、疫苗面前，人类智商、智慧和家人之间的关系将经历考验，新中国联邦和背后的力量一定会拯救人类！
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
-
-+2
+0

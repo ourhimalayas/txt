@@ -2,21 +2,28 @@
 ---
 
 
-## 惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521929/)
+## 非法向中共出口水下监听设备,中国籍移民获刑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522033/)
 
-栏目记者/责任编辑：修文
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-51.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-79.png)
-中共网信办日前宣布整治唱衰唱空市场的金融”黑嘴”，于9月8日发布首波成果，共处置封禁数千个违规账号。 中国网路社群平台如微信、百度、抖音、快手纷纷宣布配合官方政策，并定期发布整治报告。
+栏目记者/责任编辑：云豹
 
-中国证券市场长期以来被官方操纵来割韭菜。中共不承认股市债市是已被掏空的虚壳，将民间的愤懑情绪甩锅到自媒体, 称是这些所谓的”黑嘴”唱衰了原本繁荣的金融市场。于是要剥夺仅有的一点财经评论自由，只能有赞美这一种声音,为持续割韭菜加油喝彩。但事实是墙内股市持续低迷，债市频频爆雷, 中共经济的衰退崩溃已不可避免。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
 
-参考链接：[www.rfi.fr](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210908-%E4%B8%AD%E5%9B%BD%E6%95%B4%E6%B2%BB%E9%87%91%E8%9E%8D%E9%BB%91%E5%98%B4-%E5%B7%B2%E6%9F%A5%E5%B0%811793%E4%B8%AA%E7%A4%BE%E7%BE%A4%E5%B8%90%E5%8F%B7)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-82.png)
 
-终审:  文龍
+综合外电报导，因非法出口可用于监听潜艇活动的水下监听设备给中共，9月8日 波士顿联邦地区法院判处中国籍/绿卡持有者覃树人两年有期徒刑，罚金2万美元。
 
-上传：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-4.png)
+覃树人是一名中国籍海洋生物学者，2014年绿卡移民到美国。2015年到2016年间，在没有出口许可证情况下 将所购买的水下监听设备, 出口给中国西北工业大学。该大学是参与中共军方水下无人机研究项目的军事研究机构。检方还指控覃树人涉及出口无人水面载具给中共，而他的客户名单上还包括中共海军的南海舰队及其海军潜艇学院。
+
+参考链接：[覃樹人為中共走私美國反潛作戰科技 遭判2年徒刑](https://www.cna.com.tw/news/aopl/202109090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审:  文龙
+校正/发稿：浪迹天涯
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,8 +34,8 @@
 
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+![This image has an empty alt attribute; its file name is image-55.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
 
 0
