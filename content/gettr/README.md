@@ -15,17 +15,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/9/2021 2:44 PM (UTC)`
+
+9.9日：尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。<br/><br/>和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，和正义感，绝不能将自己的一生变成．金钱．性．虚荣．自私自利的奴隶……我们要开启人类真正的美好．安全，愉悦．自信．阳光．的未来的生活模式。
+![img](https://media.gettr.com/group13/getter/2021/09/09/14/cb902a65-b04f-a874-a01c-34ebf19195e9/out.jpg)
+
+---
+
 `@miles 9/9/2021 2:37 PM (UTC)`
 
 🙏🙏🙏🙏🙏🙏🙏【2015诺贝尔奖颁奖文稿, 为什么伊维菌素和青蒿素每年可以拯救数以亿计的人 , 网上传言说伊维菌素是给动物吃的,可以闭嘴了】
 ![img](https://media.gettr.com/group31/getter/2021/09/09/14/6adb27b3-16c1-bb41-5f53-00df03d59828/0d66d719a5d3661589711dfe35357278.jpg)
-
----
-
-`@miles 9/9/2021 2:23 PM (UTC)`
-
-8月8号：尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。<br/><br/>和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，和正义感，绝不能将自己的一生变成．金钱．性．虚荣．自私自利的奴隶……我们要开启人类真正的美好．安全，愉悦．自信．阳光．的未来的生活模式。
-![img](https://media.gettr.com/group22/getter/2021/09/09/14/07bb7197-8774-0100-06c3-ea07493a5087/out.jpg)
 
 ---
 
@@ -63,13 +63,6 @@ And globally today was our best new user sign-up day since July 14th!<br/><br/>A
 
 <br/>9月8号，尊敬的战友们好很多战友，希望明天继续大直播，抱歉的通知，大家明天没有时间只能在后天星期五上午9:00继续开始我们大直播万分的抱歉。<br/><br/>【七哥盼望着你明天能继续直播，虽然很辛苦，但是我们这里的兄弟姐妹们都盼着你的再次大直播，让我们继续这些天的寻找真理之路真相之路，对于我们拥有一个上万人的企业太重要了，我们不想再当奴隶了，我们想得到真相解救更多的人，拜托了几个带去上万个同胞的感谢。】
 ![img](https://media.gettr.com/group13/getter/2021/09/08/23/5faf18a7-bcaf-1eab-721f-68a6e38a7abf/out.jpg)
-
----
-
-`@miles 9/8/2021 11:05 PM (UTC)`
-
-👍👍👍👍👍👍👍👍👍🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🌹🌹🌹🌹🌹🌹🌹🌹🌹🌹🌹盖特突破200万用户啦 👏👏👏
-![img](https://media.gettr.com/group32/getter/2021/09/08/23/c06673bb-52a7-024b-29fd-8f42c32e370a/480fd144d3f7c2198e8397cf26a01bae.jpg)
 
 ---
 
@@ -303,6 +296,13 @@ September 5th, a manifestation of the heavens. A black swan landed in Beijing's 
 
 文贵永远都是农民草根的儿子……终生为穷人和草根利益而战……✊✊✊
 ![img](https://media.gettr.com/group37/getter/2021/09/05/17/9eee3107-e3a0-d892-9790-ff6972ee876a/0d0bfaa9223cedd2ab9fa4e497d2d4b6.jpg)
+
+---
+
+`@miles 9/5/2021 5:03 PM (UTC)`
+
+吃饭饭啦……未来农场的必备菜！
+![img](https://media.gettr.com/group6/getter/2021/09/05/17/bc54c438-824d-75cc-eb68-d892872fda27/out.jpg)
 
 ---
 
