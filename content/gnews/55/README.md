@@ -2,29 +2,37 @@
 ---
 
 
-## 美13名议员担忧拜登批准华为购买芯片
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1522512/)
+## 人权团体呼吁NBC等大电视公司取消转播北京冬奥会计划
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1522598/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/H.jpg)yahoo.com
-上午（9月9日）发文，开脑洞悉数了拜登政府疑似地与中共勾兑【1】，其实美国人也在担心！MSN转载了路透社文章“共和党议员对美国批准华为汽车芯片提出警告”，报道称，周四（9月9日），13名共和党议员对美国批准华为为其不断增长的汽车零部件业务购买芯片表示担忧。【2】
+据美联社9月7日报道，一封呼吁世界各大电视台取消转播北京冬奥会（明年2月4日开幕）的公开信，被送交至NBC环球公司首席执行长杰夫∙谢尔以及其它国际大电视台的主管。信中表示，这些电视台面临成为中共“正在恶化的侵权行为”之“帮凶”的风险。
 
-文章说，“能源和商业委员会”（the Energy and Commerce Committee）的立法者询问美国运输部长（Transportation Secretary）皮特·布蒂吉格（Pete Buttigieg），是否担心“华为将在未来汽车零部件开发中寻找立足点，以便收集美国人和我们运输基础设施的信息”? 这是路透社从一封信中所看到的。
+这封公开信由多个人权团体发表，代表中国境内的少数民族，包括维吾尔族人、藏人和港人等。
 
-路透社8月曾报道，美国官员已经批准了被列入黑名单的中共国电信公司华为（Huawei）价值数亿美元的许可证申请。
+NBC多年来一直是总部设于瑞士的国际奥林匹克委员会的合作伙伴，并且以77.5亿美元的价码拿下未来6届奥运会的独家电视转播权。NBC为奥运会独家电视转播权付出的费用估计占到国际奥委会全部收入的40%。
 
-（原文完）
+公开信中写道，“你们所有的公司都面临成为中共利用体育洗刷严重并持续恶化侵权行为计划帮凶的高度风险，而且会让中共当局的行为更加肆无忌惮。” “你们公司转播北京2022冬奥会就是让侵权行为合法化，而且为被普遍视为一场‘种族灭绝的运动会’作宣传。”
 
-数亿美元，只是个名义上的数字，只要开了这个口，通过这条渠道什么“私活”夹带不了？这就是拜登政府，一步步地为中共松套、解套，按中共的布局行进。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/800.jpeg)图片来自于网络
 
-还好，认清中共邪恶面目的立法者，在新中国联邦的提醒下，也在紧盯着拜登政府的一举一动，13名议员的行动说明，美国的正义力量也决不允许他们为所欲为。
+国际西藏网络共同主席拉登特通（Lhadon Tethong）接受美联社访问时表示，接受公共资助的加拿大广播公司（CBC）、英国广播公司（BBC）和德国公共广播联盟（ARD）绝对不应对北京冬奥会做转播。她呼吁这些国家的民众就此发声。
 
-有关链接：
+“NBC、CBC和其他一些广播公司计划帮助中共领导人，在他们正在对维吾尔族人实施种族灭绝、对藏人和许多其他人实施大规模镇压之时，营造一幅‘正常奥运会’美好画面是不可想象的，”拉登特通说。
 
-【1】[https://gnews.org/zh-hans/1522272/](https://gnews.org/zh-hans/1522272/)
+拉登特通强调，“我们这次发出的这封信就是要让这些广播公司知道，如果他们转播北京2022冬奥会，他们就是帮凶。”
 
-【2】[https://www.msn.com/en-ca/money/topstories/republican-lawmakers-raise-alarm-about-u-s-approval-of-auto-chips-for-huawei/ar-AAOgDw1?ocid=msedgntp](https://www.msn.com/en-ca/money/topstories/republican-lawmakers-raise-alarm-about-u-s-approval-of-auto-chips-for-huawei/ar-AAOgDw1?ocid=msedgntp)
+今年2月由全球180个人权组织组成的一个国际联盟曾经致信世界各国领导人，要求关注中国的人权纪录，并抵制明年的北京冬奥会。这封写给世界各国领导人的公开信同样以西藏、新疆、内蒙古和香港为例，列举了中共政府对藏人、维吾尔族人的政治迫害以及在香港对民主抗争者的围捕。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Broadcasters urged to cancel plans to cover Beijing Olympics](https://apnews.com/article/entertainment-sports-china-beijing-hong-kong-a2b128fcdd3c0626fcf83e7e405db52c)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
 0

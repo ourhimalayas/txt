@@ -13,20 +13,20 @@
 
 ---
 
-### [特鲁多政府强权控制加拿大公共卫生局](/content/gnews/1/README.md)
+### [德国奥博豪森市接种加强疫苗后出现很多并发症](/content/gnews/1/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [特鲁多政府强权控制加拿大公共卫生局](/content/gnews/2/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共末日凶兆频现 《人民日报》发社论为自己壮胆](/content/gnews/2/README.md)
+### [中共末日凶兆频现 《人民日报》发社论为自己壮胆](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [CNBC抹黑七哥，助GTV盖特流量大增](/content/gnews/3/README.md)
+### [CNBC抹黑七哥，助GTV盖特流量大增](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/4/README.md)
+### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/5/README.md)
  ` 澳喜农场`
-
-### [美疫苗接种报告：65万不良事件](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [艺术品拍卖行业的黑暗](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -109,23 +109,23 @@
 ### [中共国经济崩溃的开始：恒大面临破产](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [德国奥博豪森市接种加强疫苗后出现很多并发症](/content/gnews/33/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/34/README.md)
+### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大药厂掌控的媒体攻击为新冠病毒提供便宜有效的早期治疗选项的医生](/content/gnews/35/README.md)
+### [大药厂掌控的媒体攻击为新冠病毒提供便宜有效的早期治疗选项的医生](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Jason Miller:在巴西的短暂拘留是推动言论自由的代价](/content/gnews/36/README.md)
+### [Jason Miller:在巴西的短暂拘留是推动言论自由的代价](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点0909](/content/gnews/37/README.md)
+### [DC每日热点0909](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [CNN承认，中共国网络军队煽动了&#8221;种族不公正&#8221;的抗议活动](/content/gnews/38/README.md)
+### [CNN承认，中共国网络军队煽动了&#8221;种族不公正&#8221;的抗议活动](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [DC大中华时事：日本副防卫大臣再次强调，台湾有事就是日本有事](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/47/README.md)
+### [蓬佩奥：拜登知道若无美军支持，阿富汗将沦陷于塔利班](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [塔利班的幕后力量是中共](/content/gnews/48/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/49/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗接种进入“关键期”-“混乱期”](/content/gnews/48/README.md)
+### [疫苗接种进入“关键期”-“混乱期”](/content/gnews/50/README.md)
  ` 澳喜农场`
 
-### [【文炬拾字】我的曾祖当红军](/content/gnews/49/README.md)
+### [【文炬拾字】我的曾祖当红军](/content/gnews/51/README.md)
  ` 温哥华扬帆农场`
 
-### [日本数字金融委员会：必须避免在监管稳定币时扼杀民间创新](/content/gnews/50/README.md)
+### [日本数字金融委员会：必须避免在监管稳定币时扼杀民间创新](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
 
-### [9.9文贵先生盖特要点](/content/gnews/51/README.md)
+### [9.9文贵先生盖特要点](/content/gnews/53/README.md)
  ` 左媛专栏`
 
-### [中共商人因向中共非法出口美国海洋技术而获刑](/content/gnews/52/README.md)
+### [中共商人因向中共非法出口美国海洋技术而获刑](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
 
-### [人权团体呼吁NBC等大电视公司取消转播北京冬奥会计划](/content/gnews/53/README.md)
+### [人权团体呼吁NBC等大电视公司取消转播北京冬奥会计划](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [青蒿素、土霉素、伊维菌素对于治疗新冠绝对有效，但一定不能同时服用。](/content/gnews/54/README.md)
+### [青蒿素、土霉素、伊维菌素对于治疗新冠绝对有效，但一定不能同时服用。](/content/gnews/56/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/55/README.md)
+### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/57/README.md)
  ` HimalayaRussia`
-
-### [案例研究：中共如何收买外国政客](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [GETTR首席执行官米勒称其在巴西被短暂拘留是“政治报复”](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
