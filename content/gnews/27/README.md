@@ -2,57 +2,29 @@
 ---
 
 
-## 中共反邪教小组锚定“光明会” G系列打造全球“阳光情报机构”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521147/)
+## 马里兰州完全接种疫苗后, 感染人数“迅速增加”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521735/)
 
-栏目记者/责任编辑：Zion文恩
+栏目记者：禹水沃土
+责任编辑：浪迹天涯
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据 TheBlaze 9 月 8 日报道称，马里兰州的健康数据让人们察觉到新冠疫苗的实际效果与早先宣传相反，尤其是针对 Delta 变体。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P.002.jpeg)
+根据该州卫生部的数据和新研究，在完全接种疫苗的人群中，感染、疾病和住院人数正在迅速增加。 在过去的三个月里，在安妮阿伦德尔县和霍华德县，有三到四成住院患者接种过新冠疫苗。马里兰州的部分健康专家无视数据和事实，依然催促居民继续接种。 爆料革命、和其他站出来的人们将继续传播疫苗真相，强制疫苗接种只会造成更大的人道灾难。 
+(本文仅代表作者观点)
 
+参考链接：[Report: Fully vaccinated make up 30%-40% of COVID hospitalizations in Maryland counties — and the number is ‘increasing rapidly](https://www.theblaze.com/news/maryland-covid-hospitalizations-vaccinated)
 
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
-中共对内愚民洗脑，宣扬唯物主义无神论，但高层领导无不烧香拜佛、装神弄鬼。9月8日直播中，郭文贵先生进一步讲述了中共的艺术品交易中的权、钱、色，更揭露了中共盗国贼中竟然有世界黑暗组织的高级成员。
-
-据郭先生回忆80年代几次出访欧洲的经历，让他结识了“光明会”某成员，更让他深入地认识到俱乐部的力量。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/111-1.jpg)图片来源： GTV
-中共当朝赵高：王岐山，是中国光明会最大的“瓢把子”，他们以密宗作为纽带，先后发展了陈峰、王健等人入会。然而，王岐山不是本人加入“光明会”，而是作为“二代会员”，其岳父姚依林是光明会的一代成员。
-
-此外，郭先生爆料，与陈云之子陈元狼狈为奸，以票据套取国开行千亿人民币的张宏伟，也是光明会成员。张宏伟过去的所作所为，会在未来对中国的老百姓造成无法规避的伤害。他在民生银行、国开行伪造的票据，以及他与巴基斯坦、东南亚的合作，处处都有邪教势力和黑暗势力加持的痕迹。
-
-郭先生说，中共国安委已经成立了“打击邪教”的专案组。去年七月份，该小组抓捕了人民银行某副行长，此人涉嫌接受肖建华从纽约制造的假画。“灭邪教小组”针对哪些人，已不言自明。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/111.1.jpg)图片来源： Alamy
-郭先生坦言，自己并没有加入“光明会”，但与世界上很多“神秘俱乐部”保持着紧密的关系，这些俱乐部是合法的情报、金融交易平台。G系列所创造的财富，以及爆料革命以真灭伪、唯真不破的宗旨，让这些俱乐部坚定地站在我们这一边，他们是灭共的无形力量，也是支配中共当下局势的无形力量之一。
-
-参考链接：
-[2021年9月8日文贵直播：拍卖行业的鉴定，评估，律师一条龙造假；中共的信托艺术市场是骗托骗术市场，就是洗钱的工具；中国有团契会光明会和共济会，王岐山，张宏伟都是中国光明会会员；七哥的俱乐部都是全世界最合法的情报机构](https://gtv.org/video/id=6138b725be28c76ac943a810)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 暗黑
-校对/发稿：为真不破20
+终审：暗黑 
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

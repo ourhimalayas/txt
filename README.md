@@ -28,23 +28,23 @@
 ### [中国平安背后一本烂帐，马明哲牵出改革开放30年中共上层贪婪角斗](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021.9.7 郭先生直播，共产党不亡，最黑暗的时代是不会到来的](/content/gnews/6/README.md)
+### [郭先生：西方如果不重视疫苗问题 将不再是人类的灯塔](/content/gnews/6/README.md)
+ ` MG 澳喜农场多语组`
+
+### [2021.9.7 郭先生直播，共产党不亡，最黑暗的时代是不会到来的](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021.9.7 郭先生直播 新中国联邦给我们依靠和幸福](/content/gnews/7/README.md)
+### [2021.9.7 郭先生直播 新中国联邦给我们依靠和幸福](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥快讯908:研究团契会就会知道未来新中国联邦走向何方](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
+### [郭先生：西方如果不重视疫苗问题 将不再是人类的灯塔](/content/gnews/9/README.md)
+ ` MG 澳喜农场多语组`
 
-### [全球抗议疫苗接种 媒体不报道](/content/gnews/9/README.md)
+### [全球抗议疫苗接种 媒体不报道](/content/gnews/10/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [短视频：大胡子医生详细解说打了疫苗后怎么办](/content/gnews/10/README.md)
+### [短视频：大胡子医生详细解说打了疫苗后怎么办](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
-
-### [免疫专家：接种疫苗的人应该被隔离](/content/gnews/11/README.md)
- ` Runaway`
 
 ### [家庭反洗脑序列：第26篇 又一代新粉红即将出炉](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -85,47 +85,47 @@
 ### [有声| 黑天鹅降临天安门，或暗示中南海上演颠覆好戏](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：亚马逊——高速运转的悲剧陷阱](/content/gnews/25/README.md)
+### [盖特突破200万用户 创当日新用户注册量新高](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [科兴称其疫苗在智利获批用于儿童和青少年](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [马里兰州完全接种疫苗后, 感染人数“迅速增加”](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：亚马逊——高速运转的悲剧陷阱](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [陈元手中握有《酒浴》，民生张宏伟一定会被抓](/content/gnews/26/README.md)
+### [陈元手中握有《酒浴》，民生张宏伟一定会被抓](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [中共反邪教小组锚定“光明会” G系列打造全球“阳光情报机构”](/content/gnews/27/README.md)
+### [中共反邪教小组锚定“光明会” G系列打造全球“阳光情报机构”](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [美媒CNBC抹黑郭文贵先生，谎称郭先生传播疫苗阴谋论](/content/gnews/28/README.md)
- ` GTV新闻访谈`
+### [美国海岸警卫队队长：中共新海事规则“非常令人担忧”](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：世界多个科研团队均证实黄花蒿应对中共病毒经济、有效](/content/gnews/29/README.md)
+### [秘翻在线：世界卫生组织腐败现象严重 被各个行业与政府收买](/content/gnews/32/README.md)
  ` 秘密翻译组G-Translators`
 
-### [瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：世界卫生组织腐败现象严重 被各个行业与政府收买](/content/gnews/31/README.md)
- ` 秘密翻译组G-Translators`
-
-### [澳大利亚：唯有西澳州财政收支有盈余](/content/gnews/32/README.md)
+### [澳大利亚：唯有西澳州财政收支有盈余](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [短视频：大胡子医生详细解说打了疫苗后怎么办](/content/gnews/33/README.md)
+### [短视频：大胡子医生详细解说打了疫苗后怎么办](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [免疫专家：接种疫苗的人应该被隔离](/content/gnews/34/README.md)
+### [免疫专家：接种疫苗的人应该被隔离](/content/gnews/35/README.md)
  ` Runaway`
 
-### [中共房市新规：“集中供地”加“密集调控”，会加速崩盘吗？](/content/gnews/35/README.md)
+### [中共房市新规：“集中供地”加“密集调控”，会加速崩盘吗？](/content/gnews/36/README.md)
  ` 日本东京樱花团`
 
-### [秘翻在线 :伊维菌素对中共病毒的卓越疗效无人可挡](/content/gnews/36/README.md)
+### [秘翻在线 :伊维菌素对中共病毒的卓越疗效无人可挡](/content/gnews/37/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美黑客事件新细节：后门导致信息泄露](/content/gnews/37/README.md)
+### [美黑客事件新细节：后门导致信息泄露](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
