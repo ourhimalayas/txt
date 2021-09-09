@@ -2,36 +2,40 @@
 ---
 
 
-## 一名日本男子在接种Moderna疫苗后死亡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1521466/)
+## 索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1521552/)
 
-*评论：接种新冠疫苗带来的灾难性的后果正在不断的显现出来， 随着不断的有人在接种新冠疫苗以后死亡，疫苗的安全性受到越来越多的质疑。 爆料革命带给全世界的关于新冠疫苗的真相一定会让新冠疫苗运动停下来。*
+2021年9月9日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/090903-1.jpg)乔治·索罗斯. 图片：来自FABRICE COFFRINI/法新社/盖蒂图片社
+索罗斯在专栏文章中写道：“现在向中国投入数十亿美元是一个悲剧性的错误。”“贝莱德的客户可能会亏损，更重要的是，这将损害美国和其他民主国家的国家安全利益。”
 
-据《 KYODO NEWS》2021年9月7日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-30.jpg)
-日本卫生部周一表示，日本一名49岁的男子上个月在注射了一剂Moderna Inc.的 COVID-19 疫苗后死亡，该疫苗后来被Moderna Inc.在该国的经销商召回。
+索罗斯讽刺道，华尔街公司可能受到利润的驱使，远远超出其自身在气候变化和人权等所有其他领域关注。
 
-Moderna和武田药品工业上周三表示，在一些小瓶中发现不锈钢污染物后，他们将召回三批疫苗。
+诚然，当谈到在华尔街抵制中共国时，索罗斯是一个孤独的声音。
 
-该男子的剂量来自三个批次中的一个，两名年龄分别为38岁和30岁的男子在8月接种第二剂莫德纳疫苗后的几天内死亡，两人都接种了一剂这一批次停打的疫苗。厚生劳动省表示，在两个小瓶中均未确认有异物。
+索罗斯声称，“历史早期的努力在道德上是合理的，声称他们正在架设桥梁，拉近两国的距离，但现在的情况完全不同。今天，美国和中共国正卷入两种治理制度之间的生死冲突：镇压和民主。”
 
-据该部称，这名对荞麦过敏的49岁男子于8月11日接受了第二次注射，并于次日上午确认死亡。
+索罗斯的结论是国会应该通过立法，授权美国证券交易委员会限制资金流向中共国。这项努力应该得到两党的支持。
 
-厚生劳动省说他的接种和死亡之间的任何因果关系仍然未知。
+当然，索罗斯对中共国的蔑视和批评是正确的，我们预计他的哀叹将受到合理的忽视和嘲弄，但任何对习近平政权的坏话都是立即缩短职业生涯的理由。
 
-Moderna和武田在宣布召回时说：“不锈钢通常用于心脏瓣膜、关节置换物以及金属缝合线和钉书钉。因此，预计在日本注射这些批次中发现的颗粒不会导致增加医疗风险。”
+底线很简单：如果所有哀叹美国社会和经济缺陷的人拒绝向中国提出批评，他们的观点可以而且应该被合理忽视。
 
-三起案件的死因仍在调查中。
+**简评：**当年投资海航的“资本大鳄”索罗斯如今都跳出来抨击中共国的资本市场了，看来共产党治下的中国经济真的是即将出现大的问题了。
 
-文章来源：https://english.kyodonews.net/news/2021/09/181f8cad76e2-man-dies-in-japan-after-receiving-dose-of-recalled-moderna-vaccine.html
+原文链接：[Soros Slams BlackRock For Investing In China, Exposing Wall Street’s ESG Hypocrisy](https://www.zerohedge.com/markets/soros-slams-blackrock-investing-china-exposing-wall-streets-esg-hypocrisy)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场– Mike Li
-评论：洛杉矶盘古农场– Raul
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*编辑：Johnston-Zhang  | 校对： clau*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
 0

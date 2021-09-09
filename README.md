@@ -7,9 +7,7 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
@@ -30,23 +28,23 @@
 ### [中国平安背后一本烂帐，马明哲牵出改革开放30年中共上层贪婪角斗](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [七哥快讯908:研究团契会就会知道未来新中国联邦走向何方](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2021年9月8日 文贵先生盖特 4](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月8日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [美疫苗接种报告：65万不良事件](/content/gnews/9/README.md)
+### [2021.9.7 郭先生直播，共产党不亡，最黑暗的时代是不会到来的](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [独家｜非专业研究—泰国政府将“穿心莲”作为新冠药物](/content/gnews/10/README.md)
- ` G&#124;News TAIWAN`
+### [2021.9.7 郭先生直播 新中国联邦给我们依靠和幸福](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：纽约邮报称福奇隐藏了病毒真相应该滚蛋](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
+### [七哥快讯908:研究团契会就会知道未来新中国联邦走向何方](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/9/README.md)
+ ` wenwu`
+
+### [返校期美国25万儿童中共病毒检测呈阳性](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美疫苗接种报告：65万不良事件](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [家庭反洗脑序列：第26篇 又一代新粉红即将出炉](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -105,29 +103,29 @@
 ### [瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [一名日本男子在接种Moderna疫苗后死亡](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美疫苗接种报告：65万不良事件](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/32/README.md)
+ ` wenwu`
 
-### [美国国安委中国主任曾任职中共资助的阿什中心](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共治下，“艺术”沦为“骗术”](/content/gnews/34/README.md)
+### [中共国12-17岁人群新冠疫苗接种](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：纽约邮报称福奇隐藏了病毒真相应该滚蛋](/content/gnews/35/README.md)
+### [一名日本男子在接种Moderna疫苗后死亡](/content/gnews/34/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美疫苗接种报告：65万不良事件](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国国安委中国主任曾任职中共资助的阿什中心](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共治下，“艺术”沦为“骗术”](/content/gnews/37/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线：纽约邮报称福奇隐藏了病毒真相应该滚蛋](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
-
-### [银河快讯：日首相将访美参加四方安全对话；进口小麦价格上涨19%](/content/gnews/36/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [廖亦武为调查“武汉病毒”的自媒体记者张展而作：上帝死了](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [岸信夫：日本正在探讨对敌攻击能力](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -153,36 +151,36 @@
 ### [9/4/21国内经济财经周报：中共设立北京证券交易所；平安接连回购增持](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [美众议院议员调查亨特·拜登的艺术品交易情况](/content/gnews/47/README.md)
- ` 日本东京方舟农场`
+### [自传体小说连载之二十一：《我的忏悔录》](/content/gnews/47/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [电邮泄密：美国务院阻止了阿富汗的疏散航班](/content/gnews/48/README.md)
- ` 日本东京方舟农场`
-
-### [时隔70年“公私合营2.0”山雨又来](/content/gnews/49/README.md)
- ` 日本东京方舟农场`
-
-### [墙内热点新闻](/content/gnews/50/README.md)
- ` 澳喜农场`
-
-### [0分0球0射正，中共男足惨败于日本](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
-
-### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/52/README.md)
- ` 儒为`
-
-### [家庭反洗脑序列：第26篇 又一代新粉红即将出炉](/content/gnews/53/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中国经济的再平衡到底发生了什么](/content/gnews/54/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [独家｜非专业研究—泰国政府将“穿心莲”作为新冠药物](/content/gnews/55/README.md)
- ` G&#124;News TAIWAN`
-
-### [墙内要闻汇编](/content/gnews/56/README.md)
+### [国际要闻汇编](/content/gnews/48/README.md)
  ` 日本东京樱花团`
 
-### [英国政府对拟收购纳米关键材料石墨烯公司的企业进行国家安全调查](/content/gnews/57/README.md)
- ` 滴水穿石`
+### [返校期美国25万儿童中共病毒检测呈阳性](/content/gnews/49/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英国政府审查被中资准备收购的石墨烯厂](/content/gnews/50/README.md)
+ ` 日本东京方舟农场`
+
+### [美众议院议员调查亨特·拜登的艺术品交易情况](/content/gnews/51/README.md)
+ ` 日本东京方舟农场`
+
+### [电邮泄密：美国务院阻止了阿富汗的疏散航班](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
+
+### [时隔70年“公私合营2.0”山雨又来](/content/gnews/53/README.md)
+ ` 日本东京方舟农场`
+
+### [墙内热点新闻](/content/gnews/54/README.md)
+ ` 澳喜农场`
+
+### [0分0球0射正，中共男足惨败于日本](/content/gnews/55/README.md)
+ ` 日本东京方舟农场`
+
+### [中共《国家人权行动计划（2021－2025年）》发布](/content/gnews/56/README.md)
+ ` 儒为`
+
+### [家庭反洗脑序列：第26篇 又一代新粉红即将出炉](/content/gnews/57/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 

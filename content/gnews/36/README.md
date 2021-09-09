@@ -2,36 +2,69 @@
 ---
 
 
-## 银河快讯：日首相将访美参加四方安全对话；进口小麦价格上涨19%
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1521236/)
+## 美国国安委中国主任曾任职中共资助的阿什中心
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1521445/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-19.png)[图片来源](https://www.voachinese.com/)
-**1.****日本首相将出席在华盛顿举行的四方首脑会议**
+- 编译: wenwu
 
-[据日经亚洲新闻 9月9日报道，日本首相菅义伟将于本月晚些时候前往华盛顿，出席四方安全对话的首次面对面领导人峰会。日本、美国、澳大利亚和印度旨在加强印太地区的四方伙伴关系，以应对中共国日益增长的影响力。菅义伟将不参加9月底举行的执政的自民党总裁选举，这意味着他将在几周后卸任首相。但他已决定参加在华盛顿举行的会议，以回应拜登的邀请。两位领导人预计还将在四国峰会期间会面，确认他们为实现台湾海峡的和平与稳定而进行的合作，这与他们4月份的双边会晤相呼应。两位领导人还同意成立冠状病毒疫苗、关键和新兴技术以及气候变化等专家工作组。](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/Suga-to-attend-Quad-summit-in-Washington)
 
-**2.****进口小麦价格下个月起价格上涨19%**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-72.png)
 
-[据读卖新闻  9月8日报道，农林渔水产省宣布，从10月起将政府出售给面粉厂和其他单位的进口小麦价格提高19.0%。 这是因为在中共国需求增加以及主要小麦产区美国和加拿大的天气不佳导致的产量下降，最终导致国际小麦价格上涨。 这是自2008年以来13年中的第一次价格上涨，与当时新兴市场的需求上升与生产地区的干旱相符。此次涨价适用于从美国、加拿大和澳大利亚进口的用于制作面包、面条和糖果的五个品牌的小麦，并将每吨加权平均价格从目前的51,930日元提高到61,820日元。](https://news.yahoo.co.jp/articles/73d6e227b8d9b6ab229d40a3759939ff9b986171)
+乔**·**拜登**(Joe Biden) **所任命的，国家安全委员会中国主任朱利安**·**格维茨**(Julian Gewirtz)**曾是中共国政权资助的阿什中心的研究员。该中心也曾为因侵犯人权而受到美国政府制裁的，中国共产党官员提供咨询。
 
-**3.****日本首相候选人岸田将针对收入差距**
+在哈佛肯尼迪学院内，阿什民主治理和创新中心，由几个中国共产党支持的实体[资助](https://thenationalpulse.com/politics/harvard-chinese-funding/)。阿什中心[捐助方](https://ash.harvard.edu/donors)包括中国南方电网公司，其管理层“[由中国中央政府直接任命](https://webcache.googleusercontent.com/search?q=cache:hTVlUNBmqn0J:https://www.fitchratings.com/research/corporate-finance/china-southern-power-grid-co-ltd-20-01-2020+&amp;cd=1&amp;hl=en&amp;ct=clnk&amp;gl=us)”。
 
-[据Tweet247 9月5日报道，有希望成为下任首相的岸田文雄周三表示，日本应该尝试一种全新的资本主义，以减少在疫情期间恶化的收入差距。岸田作为自民党管理层竞选的一部分，他介绍了他的金融保险政策。岸田表示，在21世纪初的改革过程中，放松管制扩大了富人和穷人之间的差距，前首相安倍晋三的 “安倍经济学”，试图通过实现积极的财政政策和提高税收来修复破损的资金池，但并没有导致优势向下滴。”岸田在周三的东京演讲中说：”如果没有财富分配，就不会有消费和需求的增长……如果财富分配失调，就不会有持续的发展… 毫无疑问，安倍经济学在进步方面取得了重大成就，但是当涉及到财富分配时，下渗效应还没是有发生。”](https://www.tweet247.net/news/world/japan-pm-contender-kishida-targets-income-disparity-rival-takaichi-launches-bid)
+阿什中心的其他捐款来自香港新世界集团（中国企业项目），这家中国公司董事会几乎全部[由](https://www.nwd.com.hk/corporate/about-NWD/leadership/dr-cheng-kar-shun-henry-gbs)中国共产党成员组成。而这位董事长兼执行董事[郑家顺](https://www.nwd.com.hk/corporate/about-NWD/leadership/dr-cheng-kar-shun-henry-gbs)，曾担中共政权的政治协商会议的常务委员，政协是负责开展[海外](https://www.google.com/search?q=2018+united+front&amp;oq=2018+united+front&amp;aqs=chrome..69i57j0i512l6j69i60.5427j0j7&amp;sourceid=chrome&amp;ie=UTF-8) 行动力和影响力的党国机构。因此，阿什中心经常制作，被中共国官方媒体，和政权官员放大的研究报告。2020 年 7 月的[一份报告](https://ash.harvard.edu/files/ash/files/final_policy_brief_7.6.2020.pdf)——《了解中共的韧性：随着时间的推移了解中国的公众舆论》——认为中国共产党“一如既往地强大”，而且“中国公民对政府的满意度，几乎全面提高”。
 
-**4.****PayPal的27亿美元****交易****使 “先买后付 “在日本升温**
+二十年来，阿什中心还[主办](https://ash.harvard.edu/china-programs-executive-education)了“中国领袖的发展项目”，该项目自称为“被中共国政府广泛认可，是最好的政府官员海外培训项目之一”。
 
-[据路透社9月7日报道，美国支付巨头PayPal Holdings Inc表示，它将以27亿美元的大额现金交易收购日本先买后付（BNPL）公司Paidy，为在经历疫情主导的行业中占据头把交椅再迈出一步。PayPal在一份投资者报告中说，收购Paidy将帮助PayPal在这个国家进行扩张，在过去10年里，该国的网上购物量增加了两倍多，达到约2,000亿美元，但超过三分之二的购买行为仍以现金支付。这家支付公司的股票在盘前交易中大涨1%，而其竞争对手Square的股票则小幅下跌。](https://www.reuters.com/article/paidy-m-a-paypal-idCAKBN2G4057)
+“在中国清华大学和哈佛肯尼迪学院任教，这个为期数周的培训项目，是专门为帮助中国地方和中央政府高级官员准备的，以更有效地应对中国国家改革的持续挑战，”摘要继续说道。
 
-**5.****东京、大阪和其他19个县的紧急状态将被延长至本月30日**
+除了与一所[试图](https://www.recordedfuture.com/chinese-cyberespionage-operations/)入侵美国政府的大学合作外，该项目还将哈佛教授的权威建议带给[残酷的](https://www.hrw.org/world-report/2019/country-chapters/china-and-tibet)中国共产党的高级领导人，这些人是由共产党中国的[中央组织部](https://cdrf-en.cdrf.org.cn/qyblshg/940.jhtml)亲自挑选的。几年来，新疆生产建设兵团的成员加入了中央委员会组织部，该兵团被《华盛顿邮报》认定为[针对](https://www.washingtonpost.com/opinions/global-opinions/chinas-repression-of-the-uighurs-began-10-years-ago-now-their-survival-is-at-stake/2019/07/04/3b568470-9daa-11e9-85d6-5211733f92c7_story.html)维吾尔人的“镇压工具”，并因此受到前美国[总统](https://thenationalpulse.com/news/harvard-uyghur-officials/)唐纳德·川普的制裁。
 
-[据NHK 9月8日报道政府将本月12日到期的21个县的紧急声明延长到本月30日，包括东京和大阪在内的19个县，而宫城县和冈山县决定从声明转向优先措施，以防止中共病毒的蔓延，并通知了执政党。在这种情况下，菅直人首相从下午5点半左右开始在首相官邸与经济振兴大臣西村先生、厚生劳动大臣田村先生以及其他相关大臣进行了约一个小时的会谈。在目前采取优先措施的12个县中，6个县–富山、山梨、爱媛、高知、佐贺和长崎–将被取消，而其他县的期限将延长至本月30日。](https://www3.nhk.or.jp/news/html/20210908/k10013250551000.html?utm_int=all_side_ranking-access_002)
+尽管有这些联系，[Gewirtz](https://cwp.sipa.columbia.edu/news/cwp-fellow-julian-gewirtz-leaves-take-position-nsc)还是在[2017](https://ash.harvard.edu/people/julian-gewirtz)[年](https://ash.harvard.edu/people/julian-gewirtz)至 2018 年期间担任阿什中心的[研究员](https://ash.harvard.edu/event/chinas-historical-experience-and-challenge-covering-chinese-politics-today)。
 
-**6.****大豆价格飙升，豆腐价格上涨**
+Gewirtz 还是“哥伦比亚-哈佛中国与世界问题研究项目Columbia-Harvard China and the World Program”（[CWP](https://cwp.sipa.columbia.edu/)）的研究员，CWP曾邀请过中美交流基金会 (CUSEF) 主席董建华作[演讲](https://cwp.sipa.columbia.edu/news/ch-tung-speaks-students-us-china-relations)。CUSEF 作为中共国“统战”的一部分，美中安全与经济审查[委员会](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)认为，中共的“统战”旨在“吸纳和消除可能反对中共执政的政策和权威的潜在反对者”和“影响外国政府采取支持北京的行动或立场。”
 
-[据NHK 9月8日报道，豆腐、油炸豆腐和其他日常饮食中必不可少的产品正在涨价。由于大豆价格飙升和运输用集装箱的短缺，一些豆腐制造商已经开始与他们的超市客户协商提价。此外，经济活动的正常化导致了运输集装箱的短缺，运费飙升。根据农林水产省的数据，豆腐的零售价格在十多年来一直呈下降趋势，但今年7月，日本豆腐协会（一个由豆腐制造商组成的团体）向超市和其他零售商发出一封信，称 “成本的快速增长使得仅靠企业的努力难以维持商业运营”。](https://www3.nhk.or.jp/news/html/20210908/k10013250341000.html?utm_int=news-business_contents_news-main_005)
+[同样](https://thenationalpulse.com/exclusive/yale-china-center-biden-ties/)，Gewirtz 的[父亲](https://www.courant.com/business/hc-xpm-2012-11-19-hc-rhodes-scholars-1119-20121118-story.html)Paul 是耶鲁大学法学院“蔡中曾中国中心”（[Paul Tsai China Center](https://law.yale.edu/china-center/people)）的主任，“蔡中曾中国中心”拿走了数百万中国共产党的现金，并将与中共国政府和军方有联系的个人视为研究员和发言人。2016年“蔡中曾中国中心”用3000万美金的[捐款](https://yaledailynews.com/blog/2016/03/28/law-school-receives-30-million-donation-to-rename-china-center/)重新建立。这笔捐款来自[Joseph Tsai](https://www.forbes.com/profile/joseph-tsai/?sh=6e6598d07b32)，他就是阿里巴巴的副主席和联合创始人[蔡崇信](https://www.reuters.com/article/us-alibaba-outlook/alibaba-slams-u-s-treatment-of-huawei-efforts-to-curb-chinas-rise-idUSKCN1PJ0RZ)。
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Curiosity
+马云所创立的阿里巴巴与中国共产党有着密切的[财务](https://www.forbes.com/sites/jaysomaney/2015/10/18/chinese-government-has-a-huge-stake-in-alibaba/?sh=7df8799a25b8)和[人员](https://cn.nytimes.com/business/20140721/c21alibaba/en-us/)联系。另外，[蔡崇信](https://www.taiwannews.com.tw/en/news/3792369)也是中美交流基金会（CUSEF）的“[赞助人](https://www.cusef.org.hk/en/who-we-are/our-leadership)”。
 
-0
+**简评：**
+
+**阿里巴巴的水真深，连着台湾和美国的暗黑势力！郭文贵先生在他的大直播中警告台湾人民，要注意习神的攻台B计划，特别是在9月24号前！**
+
+**现在可以看到，相信拜登也会走进火葬场！近日显现了不少神迹，包括黑天鹅，毛腊肉的4盏天灯落地、陕西窑洞坍塌等，可见万佛万神都在保佑台湾。**
+
+以下分享相关文章：
+
+[CBS同大内宣合作，播放残暴政权成就的纪录片](https://gnews.org/zh-hans/1451929/)
+[国会暴动：新的巴比特文件找到了“中文字”的死者线索](https://gnews.org/zh-hans/1457485/)
+[拜登的中东问题智库在中共的指导下出具阿富汗报告](https://gnews.org/zh-hans/1474780/)
+[独家：拜登首席顾问参与中共赞助的活动网页被删除](https://gnews.org/zh-hans/1488968/)
+[俄勒冈州州长与中共有长期合作](https://gnews.org/zh-hans/1491872/)
+[美国顶尖大学与社会主义中国合资的投资公司](https://gnews.org/zh-hans/1508002/)
+
+（文章仅代表作者观点，与GNEWS无关）
+
+新闻来源：[《国家脉动》](https://thenationalpulse.com/exclusive/biden-nsc-director-is-fellow-at-ccp-funded-ash-center/)｜作者：娜塔丽·温特斯｜发布时间：2021年9月7日
+
+* * *
+
+*审核：文乐 
+校对：信心满满
+发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
+
+
+
+
+
+
+
+
+
+
+
++1
