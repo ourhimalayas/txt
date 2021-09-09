@@ -2,36 +2,25 @@
 ---
 
 
-## 中共实验室冠状病毒研究的新细节出现
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522814/)
+## 澳洲天主教神父呼吁政府给予个人选择不接种疫苗的自由
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1522867/)
 
-**据《The Intercept》作者：逊莎朗·勒纳，玛拉·赫维斯坦达尔在2021 年 9 月 7 日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/axg4x-99g49.jpg)2021年2月3日，中国中部湖北省武汉市的武汉病毒研究所。
-照片：赫克托雷塔马尔/法新社通过盖蒂图片社
-新发布的文件详细介绍了，美国资助的中共国武汉病毒研究所对几种冠状病毒的研究。
-The Intercept获得了900多页文件，详细介绍了与生态健康联盟有关的项目，生态健康联盟是一家总部位于美国的卫生组织，使用了联邦资金资助中共实验室的蝙蝠冠状病毒研究。
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/09/天主教.png)图片来自网络
+澳大利亚天主教医学会正在向总理和州卫生部长施加压力，要求政府和医疗机构“尊重和保护个人意愿”和“个人拒绝接种的合法性”。
 
-大量文件包括，由美国国家过敏和传染病研究所资助的两项先前未发表的赠款提案，以及与生态健康联盟研究相关的项目更新。这些文件是与The Intercept 对美国国立卫生研究院正在进行的《信息自由法》诉讼有关的。 The Intercept 正在向公众提供完整的文件。
+神父Paschal Corby 博士说“任何人都不应该被强迫接受任何疫苗”，”作为一项规则，接种疫苗不是一项道德方面的义务”。
 
-美国知情权执行董事加里·拉斯金说这可能是导致当前大流行的高风险研究的路线图。
+塔斯马尼亚大主教 Julian Porteous 本周要求州政府澄清其立场，但尚未收到回复。他说，他有义务尊重那些不愿意接种疫苗的神职人员的决定。大主教Porteous 自己已经接种过两针疫苗。他目前正在与塔斯马尼亚政府进行商谈，看能否用快速抗原检测来代替疫苗接种。
 
-其中一项名为“了解蝙蝠冠状病毒出现的风险”的资助，概述了由生态健康联盟主席彼得·达扎克 (Peter Daszak) 主导的计划：筛查数千个蝙蝠样本中的新型冠状病毒，这个研究涉及筛选与活体动物打交道的人。这些文件包含有关武汉研究的几个关键细节，包括人源化小鼠的关键实验工作是在武汉大学动物实验中心的生物安全3级实验室进行的，而不是像以前那样假定在武汉病毒研究所进行的。
+政府规定，从 9 月 17 日起，在养老院工作的人员必须至少预订第一剂疫苗，这也包括进入老年护理机构服务的神职人员。
 
-生态健康联盟为蝙蝠冠状病毒研究提供了总计310万美元的资金，其中599,000 美元被武汉病毒研究所用于识别和改变可能感染人类的蝙蝠冠状病毒。罗格斯大学分子生物学家理查德·埃布赖特 (Richard Ebright) 表示，这些文件包含有关在武汉进行的研究的关键信息，包括有关新病毒产生的信息。 “他们构建的病毒经过测试，可以感染老鼠。这些老鼠被设计成在细胞上显示人类类型的受体。”埃布赖特在审查文件后写信给 The Intercept。
+该州的天主教徒加入了一项全国性的呼吁，要求澄清对神职人员的强制接种的豁免。
 
-埃布赖特还表示，文件明确表明，两种不同类型的新型冠状病毒能够感染人源化小鼠。 “当他们在研究与 SARS 相关的冠状病毒时，他们同时对与 MERS 相关的冠状病毒进行了平行项目研究。”
+(文章内容仅代表作者观点)
 
-第二项资助是，“了解东南亚新兴传染病热点地区人畜共患病毒出现的风险”，于 2020 年 8 月获得。该资助持续至 2025 年。这份写于2019年的提案显得很有先见之明，侧重于在“突发传染病”爆发时在亚洲扩大规模和资源部署，并将亚洲称为“这个最热的EID热点地区”。
+[原文链接](https://www.themercury.com.au/news/tasmania/extremley-odd-call-for-catholic-priests-to-be-exempt-from-covid19-vaccination/news-story/2a57cb8aff803339b69c08b21d0ecee6?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)
 
-**原文链接：**[https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)
-
-翻译：洛杉矶盘古农场 — 蓝精灵
-翻译：洛杉矶盘古农场 — Mike Li
-编辑：洛杉矶盘古农场 — 心照
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
++1
