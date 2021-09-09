@@ -2,41 +2,56 @@
 ---
 
 
-## 美国官方文件被曝光，证实武汉病毒所开展冠状病毒改造实验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522104/)
+## 因要求强制接种COVID-19疫苗，底特律医院系统被起诉
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522256/)
 
-栏目记者/责任编辑：七哩香
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
-美国新闻网站The Intercept 9月7日披露的900多页文件显示，武汉病毒研究所曾经通过总部设在纽约的非政府组织“生态健康联盟”得到资金，从事改造蝙蝠冠状病毒的实验，从而使实验室制造的冠状病毒能够感染人类，并使其致病性更强。这一披露为新冠病毒来自于实验室提供了新的有力线索，同时反驳了中共官方的说法。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2136.png)图片来源网络
+**评语：**
+政治局常委没有一个打新冠疫苗的；辉瑞CEO也找理由不打。因为他们非常清楚注射新冠疫苗是什么后果。70个辉瑞制药投资人（如下图名单），全部来自中共国，这就是为什么先锋集团第一时间增持了辉瑞制药。全世界的“政治疫苗灾难”会引起疫苗诉讼、疫苗反抗。最黑暗的时刻还没到来！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide10-2.jpeg)
+据《路透社》作者： Daniel Wiessner，2021年9月8日报道：
 
-这批文件是The Intercept与美国国家卫生研究院进行的《信息自由法》诉讼中获得的。文件包括由国家过敏和传染病研究所资助的两个先前未公布的研究建议书，以及与生态健康联盟的研究有关的项目更新。
+（路透社）——底特律亨利-福特医疗系统的数十名员工提起诉讼，称该系统要求他们接种COVID-19疫苗的做法侵犯了他们身体完整的宪法权利。
 
-据报道，其中一项由生态健康联盟负责人彼得·达扎克(Peter Daszak)主导的，名为《了解蝙蝠冠状病毒出现的风险》的资金申请计划，研究内容是通过筛选蝙蝠样本来寻找新型冠状病毒，还涉及筛选与活体动物接触的人。文件还涉及病毒研究的几个关键细节，包括在武汉大学动物实验中心的P3实验室，而不是武汉病毒研究所的P4实验室进行的人源化小鼠的关键实验工作。
+包括护士、医生和其他亨利-福特公司的员工共约50人，周一向底特律联邦法院提出申诉，称这项任务要求他们在接种一种新的、可能有害的疫苗或放弃他们的医疗保健职业之间做出选择。
 
-达扎克与中共深度勾结，之前《国家脉动》还挖掘了打杂客的演讲：他将描述为“杀手级”的病毒工作，委托给他的“中共国同事”。
+由VonAllmen律师事务所和Renz法律事务所代理的原告声称，截至8月20日，美国有13000多名接种了COVID-19疫苗的人已经死亡，30000多人经历了永久性残疾或危及生命的医疗事件。他们引用了美国疾病控制和预防中心（CDC）的疫苗不良事件报告系统中未经核实的报告统计。
 
-生态健康联盟从蝙蝠冠状病毒的研究中，共获得总计约310万美元的拨款，其中包括给武汉病毒研究所的59.9万美元经费，用于找到和改变可能感染人类的蝙蝠冠状病毒的“功能增益研究”。
+在2021年7月21日的页面更新中，CDC说它收到了6207份关于2020年12月14日至2021年7月19日期间接受COVID疫苗后死亡的人的报告。它指出，“FDA要求医疗机构向VAERS报告任何接种COVID-19疫苗后的死亡，即使不清楚是否由疫苗导致。”
 
-(本文仅代表作者观点）
+疾病预防控制中心在其网站上说，对现有临床信息的审查，包括尸检和医疗记录，没有确定这些死亡与COVID-19疫苗之间的因果关系。
 
-参考链接：[新披露文件证实 武汉病毒所曾进行蝙蝠冠状病毒改造实验](https://gnews.org/wp-admin/post-new.php)
+诉讼发生时，越来越多的雇主正在考虑在未来几个月内采取疫苗强制措施，因为高度传染性的德尔塔变体刺激了COVID-19病例的重新出现，而且食品和药物管理局（FDA）最近全面批准了辉瑞/生物技术公司的COVID-19疫苗。
 
-[NEW DETAILS EMERGE ABOUT CORONAVIRUS RESEARCH AT CHINESE LAB](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)
+亨利-福特公司的工作人员还提出了一项动议，要求发布临时限制令，禁止亨利-福特公司在诉讼结果出来之前执行这一任务。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+亨利-福特在发言人提供的一份声明中说：“我们仍然相信，接种疫苗是我们大家对付COVID-19大流行病的最有力工具。除此之外，我们不能对未决诉讼发表评论”。亨利-福特在底特律地区经营六家医院，包括拥有877张床位的亨利-福特医院，以及40多个医疗中心和专业设施。
 
-终审：暗黑
-校对/发稿：谐趣园
+根据投诉，亨利-福特在6月通过了一项政策，规定所有员工和志愿者必须接种COVID-19疫苗。原告说，根据该政策，工人必须在9月10日之前接种疫苗，没有接种的工人将被停职，如果在10月1日前没有完成接种，将面临解雇。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+但是，工人们声称，尽管该政策的既定目标是保护员工，但数据表明，接种疫苗可能会使许多人受伤。他们还声称，几乎没有数据显示疫苗能有效防止COVID-19的传播。
 
+疾控中心（CDC）主任罗谢尔-瓦伦斯基在3月份的一份声明中说，“授权的mRNA COVID-19疫苗为我们国家的医疗保健人员、第一响应者和其他一线基本工作人员提供了早期的、实质性的现实世界的感染保护”。
 
-0
+原告说，亨利-福特的强制接种要求侵犯了他们在美国宪法第14修正案下的身体完整权。他们说，亨利-福特公司没有令人信服的立场，因为“注射（疫苗）已被证明是无效的，而且会造成伤害和死亡”。
+
+工人们说，福特公司是在法律的掩盖下行事，声称其疫苗任务是为了确保其员工、病人和访客的健康和安全的公共职能。
+
+原告律师写道：“这些职能中的每一项都是传统上完全由公共部门处理的，当HFHS承诺决定公共卫生政策时，它就成了一个具有国家法律色彩的行为者，使其活动受到宪法审查。”
+
+该案件是Kirn诉亨利-福特健康系统，美国密歇根州东区地区法院，编号为2：21-12078。
+
+文章点评仅代表个人
+
+原文连接：[https://www.reuters.com/legal/government/detroit-hospital-system-sued-over-covid-19-vaccine-mandate-2021-09-07/?taid=61380089eca2670001c476e9&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/legal/government/detroit-hospital-system-sued-over-covid-19-vaccine-mandate-2021-09-07/?taid=61380089eca2670001c476e9&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+翻译：洛杉矶盘古农场- TrueSky
+评论：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1
