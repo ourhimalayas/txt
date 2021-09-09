@@ -2,238 +2,96 @@
 ---
 
 
-## 中共利用恨医生来转移社会矛盾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1518930/)
+## 美疫苗接种报告：65万不良事件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1521491/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-5.jpg)https://gtv.org/video/id=61380ea1dc06117c561982e0
-原视频日期：04/09/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1434143212579422216?s=24
-任务编号：2095
-视频时间段：0:00-2:10
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-
-审片：洛杉矶盘古农场-
+- 编译：wenwu
 
-还有一个就是同样的道理
-Y existe la misma verdad
 
-他用绝大多数人这个医疗事件
-Él utiliza los casos médicos de la mayoría de las personas
+![](https://assets.gnews.org/wp-content/uploads/2021/09/01-5.jpg)
 
-恨医
-El odio hacia los médicos
+美国疾病控制与预防中心 (CDC) 周五发布的数据显示，在 2020 年 12 月 14 日至 2021 年 8 月 27 日期间，共有[650,077 起不良事件](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)报告给 VAERS，其中包括[13,911 例死亡](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)——比前一周报告的死亡人数增加284人。
 
-两个社会矛盾
-Conflictos entre dos sociedades
+[同期](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)有[85,971 起](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)包括死亡在内的[重伤报告，](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)比前一周增加了 1,505 起。其中不包括提交给 VAERS 的“[外国报告](https://wonder.cdc.gov/wonder/help/vaers/VAERS%20Advisory%20Guide.htm)”，2020 年 12 月 14 日至 2021 年 8 月 27 日期间，美国官方共报告了[514,270 起不良事件](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;STATE=NOTFR)，包括[6,296 人死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR)和[39,947 人重伤](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON&amp;STATE=NOTFR)。
 
-不恨共产党, 都恨医生
-No odian al PCCh sino a los médicos
+截至 8 月 27 日，美国报告的 6,296 例死亡病例中，[13% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=1)在接种疫苗后 24 小时内，[18% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=2)在接种疫苗后 48 小时内，[32% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2OCHECKED=ON&amp;V2OLOW=0&amp;V2OHIGH=2)在接种疫苗 48 小时之后出现症状的人群中；在美国，截至 8 月 27 日，已接种了 3.665 亿剂 COVID 疫苗。其中[包括](https://ourworldindata.org/grapher/covid-vaccine-doses-by-manufacturer?country=~USA)：2.08 亿剂[辉瑞](https://childrenshealthdefense.org/defender/cheryl-cohen-dies-rare-brain-disease-second-dose-pfizer-covid-shot/)、1.45 亿剂[莫德纳](https://childrenshealthdefense.org/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/)和 1400 万剂[强生](https://childrenshealthdefense.org/defender/fda-warning-jj-vaccine-serious-rare-autoimmune-disorder/)。
 
-关医生鸟事
-Esto no tiene nada que ver con ellos
+本周美国 12 至 17 岁儿童的数据显示：
 
-医生再坏是你体制的产物
-No importa lo malo que sean los médicos pero es el producto de tu sistema
+总共有[18,523 起](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)疫苗接种不良事件，其中[1,091 起被评为严重](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;SERIOUS=ON&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，[18 起已报告死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;DIED=Yes&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)。其中的18 人死亡中有两人是自杀。
 
-你恨不着医生, 你知道吗?
-No puedes odiar a ellos, ¿sabes?
+最近报道的死亡事件包括一名 15 岁男孩（VAERS ID [1498080](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1498080)），他之前患有 COVID-19，于 2021 年 5 月被诊断出患有心肌病，并在 6 月 18 日接受第二剂辉瑞疫苗四天后死亡，当时他在足球场并进入室性心动过速；和一名 13 岁的女孩（VAERS ID [1505250](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1505250)），她在接受第一剂辉瑞疫苗后患心脏病而死亡。
 
-严格的讲中国的医生是很伟大的
-Hablando estrictamente, los médicos chinos son muy grandiosos
+![](https://assets.gnews.org/wp-content/uploads/2021/09/02-4.jpg)
 
-在那种体制下
-Bajo ese tipo de sistema
+其他死亡包括：两名[13 岁男孩](https://childrenshealthdefense.org/defender/13-year-old-jacob-clynick-dies-pfizer-vaccine-myocarditis/)（VAERS ID [1406840](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1406840)和[1431289](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1431289)），他们在接种辉瑞疫苗两天后死亡，一名 13 岁男孩在[接种](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1463061)莫德纳疫苗后死亡（VAERS ID [1463061](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1463061)），三名 15 岁青少年（VAERS ID [1187918](https://www.medalerts.org/vaersdb/findfield.php?IDNUMBER=1187918)，[1382906](https://www.medalerts.org/vaersdb/findfield.php?IDNUMBER=1382906)和[1242573](https://www.medalerts.org/vaersdb/findfield.php?IDNUMBER=1242573)），五名16岁青少年（VAERS ID [1420630](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1420630)，[1466009](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1466009)，[1225942](https://www.medalerts.org/vaersdb/findfield.php?IDNUMBER=1225942)，[1475434](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1475434)和[1386841](https://www.medalerts.org/vaersdb/findfield.php?IDNUMBER=1386841)）和三个17岁青少年（VAERS ID [1199455](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1199455)，[1388042](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1388042)和[1420762](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1420762)）。
 
-你们没有去过北朝鲜
-Ustedes no han ido a Corea del Norte
+[2,715 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)12 至 17 岁儿童过敏反应的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，其中 99% 的病例归因于[辉瑞的疫苗](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)。
 
-你去北朝鲜
-Cuando vayan para allá
+[457 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)心肌炎和心包炎（心脏炎症）[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，其中[450 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)归因于辉瑞疫苗。
 
-你就知道中国医生有多伟大了
-Sabrán lo grandioso que son los médicos chinos
+[97 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)关于凝血障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，所有病例均归因于辉瑞疫苗。
 
-北朝鲜
-Corea del Norte
+从 2020 年 12 月 14 日到 2021 年 8 月 27 日，本周所有年龄组的美国 VAERS 总数据显示：
 
-我上那去
-Yo fuí para allá
+20% 的死亡与心脏疾病有关。
 
-我说我这个牙有点不舒服
-Y le dije que tenía dolor en este diente
+54% 的死者是男性，43% 是女性，其余的死亡报告不包括死者的性别。
 
-给我拿点牙药
-Puedes darme algún medicamento para esto
+[平均年龄](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)死亡的为73岁。
 
-这哥们初头跟我要多少钱
-Y este doctor al principio me cobró cuánto
+截至 8 月 27 日，共有[3,389 名孕妇](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=DIS&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Abnormal+labour+%2810000153%29&amp;SYMPTOMS%5B%5D=Abnormal+labour+affecting+foetus+%2810000154%29&amp;SYMPTOMS%5B%5D=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5B%5D=Abortion+%2810000210%29&amp;SYMPTOMS%5B%5D=Abortion+complete+%2810061614%29&amp;SYMPTOMS%5B%5D=Abortion+early+%2810052846%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5B%5D=Exposure+during+pregnancy+%2810073513%29&amp;SYMPTOMS%5B%5D=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5B%5D=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5B%5D=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5B%5D=Foetal+death+%2810055690%29&amp;SYMPTOMS%5B%5D=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5B%5D=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5B%5D=Foetal+exposure+during+pregnancy+%2810071404%29&amp;SYMPTOMS%5B%5D=Foetal+growth+abnormality+%2810077582%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5B%5D=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5B%5D=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5B%5D=Haemorrhage+%2810055798%29&amp;SYMPTOMS%5B%5D=Haemorrhage+in+pregnancy+%2810018981%29&amp;SYMPTOMS%5B%5D=Placental+calcification+%2810082008%29&amp;SYMPTOMS%5B%5D=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5B%5D=Placental+insufficiency+%2810035138%29&amp;SYMPTOMS%5B%5D=Placental+necrosis+%2810035139%29&amp;SYMPTOMS%5B%5D=Placental+transfusion+syndrome+%2810035146%29&amp;SYMPTOMS%5B%5D=Placenta+praevia+%2810035119%29&amp;SYMPTOMS%5B%5D=Placenta+praevia+haemorrhage+%2810035121%29&amp;SYMPTOMS%5B%5D=Pregnancy+test+positive+%2810036575%29&amp;SYMPTOMS%5B%5D=Premature+baby+%2810036590%29&amp;SYMPTOMS%5B%5D=Premature)报告了与刺突蛋白疫苗相关的不良事件，包括 1,008 名[流产或早产的](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5B%5D=Abortion+%2810000210%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5B%5D=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5B%5D=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5B%5D=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5B%5D=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5B%5D=Foetal+death+%2810055690%29&amp;SYMPTOMS%5B%5D=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5B%5D=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5B%5D=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5B%5D=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5B%5D=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5B%5D=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5B%5D=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5B%5D=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5B%5D=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5B%5D=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5B%5D=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5B%5D=Premature+baby+%2810036590%29&amp;SYMPTOMS%5B%5D=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5B%5D=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5B%5D=Premature+labour+%2810036600%29&amp;SYMPTOMS%5B%5D=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5B%5D=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5B%5D=Stillbirth+%2810042062%29&amp;SYMPTOMS%5B%5D=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19&amp;STATE=NOTFR)报告。
 
-你知道吗? 给了100美金
-¿Ustedes lo saben? 100 dólares
+在报告的[2,689例贝尔氏麻痹](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;STATE=NOTFR)中，50％是由于[辉瑞](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)接种，43％归因于[莫德纳](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)和7％归因于[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
 
-要小费
-Como propina
+545份[格林](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;STATE=NOTFR)[-巴利综合征](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;STATE=NOTFR)报告，其中39％的病例[归因于辉瑞](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)，34％归因于[莫德纳](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)和26％归因于[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
 
-他抽着烟
-Él estaba fumando
+[过敏性反应的报告共](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;STATE=NOTFR)[139,180](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;STATE=NOTFR)份，其中42％归因于[辉瑞的疫苗](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)，51％归因于[莫德纳](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)和7％归因于[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
 
-旁边那个女翻译说
-La traductora que estaba al lado dijo
+[8,751 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)关于凝血障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)。其中，有[3,721](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)[份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)归因于辉瑞，有[3,188 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)归因于莫德纳，有[1,794 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)归因于强生。
 
-我说给她一百美金
-Le dije que le diera 100 dólares
+[2,242 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR)心肌炎和心包炎，其中[1,411 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于辉瑞，[741](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)[例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于 莫德纳，[83 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)归因于强生的刺突蛋白疫苗。
 
-北朝鲜一百美金很多钱对不对啊
-100 dólares en Corea del Norte es mucho dinero ¿cierto?
+两名 FDA 高级官员在白宫“第三针”的争议中辞职
 
-把药退回来
-Quiere que le devuelva el medicamento
+正如[《捍卫者》](https://childrenshealthdefense.org/defender/2-top-fda-regulators-resign-white-house-approve-boosters/) 9 月 1 日[报道](https://childrenshealthdefense.org/defender/2-top-fda-regulators-resign-white-house-approve-boosters/)的那样，FDA 的两名疫苗高级官员宣布他们将在今年秋天离开该机构，这引发了人们质疑这是拜登政府排挤 FDA 的手段。
 
-张口要1000美金
-Y me dijo que son 1000 dólares
+根据 FDA[生物制品评估和研究中心](https://www.fda.gov/about-fda/fda-organization/center-biologics-evaluation-and-research-cber)主任 Peter Marks 博士于 8 月 31 日发送给工作人员的电子邮件，FDA 疫苗办公室主任 Marion Gruber 博士将于 10 月底辞职，并且她的副手菲利普·克劳斯博士将于 11 月离职。
 
-哇赛, 把我吓一大跳
-¡Wow! Quedé sorprendido
+知情人士[告诉《纽约时报》](https://www.nytimes.com/2021/08/31/us/politics/fda-vaccine-regulators-booster-shots.html)，格鲁伯和克劳斯对拜登政府[最近宣布](https://childrenshealthdefense.org/defender/covid-booster-shots-8-months-after-second-dose/)成年人应在[接种第二](https://childrenshealthdefense.org/defender_category/covid/)针八个月后[接种新冠肺炎](https://childrenshealthdefense.org/defender_category/covid/)疫苗感到不安。消息人士称，两人都不相信有足够的数据来证明提供[“再来一针”](https://childrenshealthdefense.org/defender/scientists-booster-shots-weak-evidence-vaccine-resistant-variants/)是合理的，他们都认为拜登的宣布是对美国食品和药物管理局的压力，要求其迅速授权。
 
-给我开个牙药
-Solo necesitaba que me diera una receta médica para los dientes
+美国卫生监管机构还表示，没有足够的数据为一般人群[推荐“再来一针”](https://childrenshealthdefense.org/defender/cdc-experts-disagree-pfizer-covid-boosters/)，但白宫已推进其在 9 月 20 日当周提供第三剂辉瑞或莫德纳疫苗的计划——尽管该计划需要先获得 FDA 和 CDC 的授权。
 
-而且翻译跟我说
-Además, la traductora me dijo
+美国食品和药物管理局咨询委员会将在白宫计划开始推出前几天举行关于“再来一针”刺突蛋白疫苗的会议
 
-你可以不要
-Puedes no aceptarlo
+FDA[宣布](https://www.fda.gov/news-events/press-announcements/fda-brief-fda-hold-advisory-committee-meeting-discuss-pfizer-biontechs-application-covid-19-booster)其疫苗和相关生物产品咨询委员会将于 9 月 17 日举行一次虚拟咨询会议，讨论辉瑞的刺突蛋白疫苗的“再来一针”申请——就在白宫认为普通人群可以接种疫苗的前几天。
 
-那个哥们在北朝鲜住着豪宅
-Ese médico vive en una mansión situada en Corea del Norte
+该咨询委员会主任彼得·马克斯博士说：“FDA 对数据进行透明、彻底和客观的审查至关重要，这样医学界和公众才能继续对COVID-19疫苗的安全性和[有效性](https://childrenshealthdefense.org/defender/peter-doshi-fda-data-approval-covid-vaccine/)，充满信心。”FDA 计划在该[机构的 YouTube 频道](https://www.youtube.com/user/usfoodanddrugadmin)上直播会议。会议也将在[FDA 网站上](https://www.fda.gov/news-events/press-announcements/fda-brief-fda-hold-advisory-committee-meeting-discuss-pfizer-biontechs-application-covid-19-booster)进行网播。据CNN[报道](https://www.cnn.com/2021/09/01/health/booster-vaccines-fda-advisers/index.html)，在 FDA 发布公告前不久，莫德纳表示已提交申请，以提供其c刺突蛋白疫苗的加强剂量。
 
-他说军人都给他钱
-Él dijo que los militares le daban dinero
+根据疾病预防控制中心的数据，955,000 名美国人已经[接种了额外的疫苗剂量](https://www.cnbc.com/2021/08/31/cdc-nearly-1-million-covid-booster-shots-have-already-been-administered-in-us.html)，但尚不清楚其中有多少是技术上授权的；英国小组不建议为12至15岁的健康儿童接种刺突蛋白疫苗。
 
-不是这个医生的恶
-No es que este médico sea malo
-你不要怪医生的道德
-No debes culpar a él que no tenga moral y ética siendo un médico
+![](https://assets.gnews.org/wp-content/uploads/2021/09/03-4.jpg)
 
-是因为他活在茅屎坑
-Es porque él está viviendo en un pozo de excrementos
+**简评：**
 
-他也得活着
-Y aún así debe sobrevivir
+**65万的疫苗接种不良事件（VAERS）就发生在近8月个内，美国政府不闻不问，仍然强推“再来一针”！另一方面，爆料革命郭文贵先生在周二（7）的[盖文](https://gettr.com/post/pafgze14fc)里分享：有种你别信【[抗寄生虫药伊维菌素在48小时内杀死冠状病毒](https://www.news-medical.net/news/20200406/Antiparasitic-drug-Ivermectin-kills-coronavirus-in-48-hours.aspx)】**
 
-上面有大粪坑
-Arriba hay un gran pozo de excrementos
+**值得一提的是，据2021年6月4日[《环球网》](https://world.huanqiu.com/article/43OjxwMtCtA)报道，美国国家公路交通安全管理局3日发布的报告显示，2020年美国的交通事故致死人数创13年来新高。2020年共计约38,680人；另一方面，全美汽车总行驶里程数下降至约4302亿英里，比2019年下降约13.2%**
 
-他在下边他能给你提供香油吗
-Él estando abajo ¿podrá propocionarte aceite de sésamo?
+**也就是说，美国2020年出现越来越少人开车，但车祸的几率却在攀升，这是否是因为2020年出现疫苗的原因呢？这值得思考！**
 
-怎么可能啊
-Es imposible
+（文章仅代表作者观点，与GNEWS无关）
 
-但是共产党巧妙的让你恨
-Pero el PCCh hábilmente te hace odiar
+新闻来源：[《捍卫者》](https://childrenshealthdefense.org/defender/vaers-cdc-injuries-reported-covid-vaccines-fda-boosters/)｜作者：梅根·雷德肖｜发布时间：2021年9月7日
 
-对共产党的恨
-El odio que tengas con ellos
+* * *
 
-全恨那些赵薇, 恨那些名人
-Lo transfieres a Zhaowei, a aquellos artistas famosos
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
 
-他碍你啥关系了
-¿Qué tiene que ver ella contigo?
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
 
-吴亦凡又没强奸你
-Yifan Wu tampoco te ha violado
 
-对不对啊
-¿Cierto?
 
-那些艺人都是工具好不好
-Todas esas artistas son sólo instrumentos
-那个文化的标准
-El estándar de esa cultura
-
-是你共产党写得不好
-Es porque el PCCh no lo escribió bien
-
-那个医疗事件
-El caso médico
-
-这是你的体制造成的
-Es ocasionado por tu sistema
-
-如果允许开私人医院
-Si permites a las clínicas privadas
-
-允许大家竞争
-A que todos se compitan entre sí
-
-然后全透明化
-Todo sea transparente
-
-外国的医院可以进去
-Los hospitales de países extranjeros puedan entrar
-
-大家可以更多的选择
-Todos puedan tener más opciones
-
-我不去你医院, 我不跟你
-No voy a tu clínica
-
-我去别的地方就完了
-Voy a otra y se acabó el problema
-
-你像北朝鲜
-Mira en Corea del Norte
-
-我们是外国人
-Somos extranjeros
-只能去这地方
-Solamente podemos ir a este lugar
-
-只能看这个医生
-Consultar con este médico
-
-只有这一个翻译
-Y tener esta traductora
-
-要1000(美金), 你给不给
-Son 1000 dólares, quieres o no
-
-你不给把药拿回来
-Si no quieres, devuélveme el medicamento
-
-我到任何国家
-Voy a cualquier país
-
-老子我去别的地方去了
-Si aquí no puedo, voy a otro lugar
-
-对吧, 不就完了吗
-Verdad? Así de fácil
-
-这就是大家记住
-Así que todos recuerden
-
-共产党巧妙地转移社会矛盾
-El PCCh hábilmente transfirió los conflictos sociales
-
-恨医, 恨医院
-Odio a los médicos y a los hospitales
-
-还有这次整个病毒
-También el virus de ahora
-
-都把医生当成魔鬼一样
-Todos ven a los médicos como demonios
-
-他本身就是转移社会矛盾
-Él en sí está transfiriendo los conflictos sociales
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

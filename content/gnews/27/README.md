@@ -2,18 +2,17 @@
 ---
 
 
-## 马里兰州完全接种疫苗后, 感染人数“迅速增加”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521735/)
+## 科兴称其疫苗在智利获批用于儿童和青少年
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521747/)
 
-栏目记者：禹水沃土
-责任编辑：浪迹天涯
+栏目记者/责任编辑：文扬四海
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据 TheBlaze 9 月 8 日报道称，马里兰州的健康数据让人们察觉到新冠疫苗的实际效果与早先宣传相反，尤其是针对 Delta 变体。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P.002.jpeg)
-根据该州卫生部的数据和新研究，在完全接种疫苗的人群中，感染、疾病和住院人数正在迅速增加。 在过去的三个月里，在安妮阿伦德尔县和霍华德县，有三到四成住院患者接种过新冠疫苗。马里兰州的部分健康专家无视数据和事实，依然催促居民继续接种。 爆料革命、和其他站出来的人们将继续传播疫苗真相，强制疫苗接种只会造成更大的人道灾难。 
+华尔街日报9月9日报道，中共科兴控股生物技术有限公司周三表示，其子公司”中维” 开发的新冠疫苗“克尔来福(CoronaVac)”已获批准在智利供6至17岁儿童和青少年紧急使用。克尔来福此前已获批在中国紧急用于3-17岁人群，并在印尼获批用于12-17岁人群。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P.001.jpeg)
+郭文贵先生情报显示，中共国的新冠疫苗每针可导致机体产生40-60万亿个刺突蛋白，刺突蛋白可以理解为打开人体基因的钥匙，堵塞毛细血管，影响肺、肝、脑等器官和心血管，导致心肌炎、心包炎、心肌梗塞 、脑梗等疾病。新冠疫苗接种率高的地区感染率和死亡率也随之升高，且不可能从身体清除。现阶段, 中共及全球阴谋利益集团正在强推毒疫苗给儿童和青少年，邪恶令人发指! 我们再次向全世界呼吁，不要让自己和家人接种新冠疫苗!
 (本文仅代表作者观点)
 
-参考链接：[Report: Fully vaccinated make up 30%-40% of COVID hospitalizations in Maryland counties — and the number is ‘increasing rapidly](https://www.theblaze.com/news/maryland-covid-hospitalizations-vaccinated)
+参考链接：[科兴控股称其新冠疫苗在智利获批用于儿童和青少年](https://cn.wsj.com/articles/科兴控股称其新冠疫苗在智利获批用于儿童和青少年-11631145434?tesla=y)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

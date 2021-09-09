@@ -2,48 +2,33 @@
 ---
 
 
-## 美国海岸警卫队队长：中共新海事规则“非常令人担忧”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1521544/)
+## 惩治金融&#8221;黑嘴&#8221;，盗国贼 剥夺唱衰市场的自由
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1521929/)
 
-*【简评】*
+栏目记者/责任编辑：修文
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-51.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-79.png)
+中共网信办日前宣布整治唱衰唱空市场的金融”黑嘴”，于9月8日发布首波成果，共处置封禁数千个违规账号。 中国网路社群平台如微信、百度、抖音、快手纷纷宣布配合官方政策，并定期发布整治报告。
 
-*从9月1日起，中共正式实施《*[*海上交通安全法*](https://www.epochtimes.com/gb/tag/%E6%B5%B7%E4%B8%8A%E4%BA%A4%E9%80%9A%E5%AE%89%E5%85%A8%E6%B3%95.html)*》修正案，要求所有外国船只在驶过中共声称的“领海”之前，需要向其报告船只名称、呼号、当前位置、目的地和货物等信息。*
+中国证券市场长期以来被官方操纵来割韭菜。中共不承认股市债市是已被掏空的虚壳，将民间的愤懑情绪甩锅到自媒体, 称是这些所谓的”黑嘴”唱衰了原本繁荣的金融市场。于是要剥夺仅有的一点财经评论自由，只能有赞美这一种声音,为持续割韭菜加油喝彩。但事实是墙内股市持续低迷，债市频频爆雷, 中共经济的衰退崩溃已不可避免。
 
-*中共的目的是要进一步明确其对有争议海洋领土的主张，从而逐渐扩张它的领土权。中共破坏《联合国海洋法公约》的行为，只会加剧南中国海和其周边海域的紧张局势，对经过该海域的国际船只构成威胁，也必将引发国际冲突。这种风险随着中共的主权扩张正在迫近。*
+参考链接：[www.rfi.fr](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210908-%E4%B8%AD%E5%9B%BD%E6%95%B4%E6%B2%BB%E9%87%91%E8%9E%8D%E9%BB%91%E5%98%B4-%E5%B7%B2%E6%9F%A5%E5%B0%811793%E4%B8%AA%E7%A4%BE%E7%BE%A4%E5%B8%90%E5%8F%B7)
 
-据《公正新闻》 2021年9月6日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-31.jpg)图片来自网络
-美国海岸警卫队在太平洋地区的最高指挥官迈克尔·麦卡利斯特副司令最近提请注意中共要求的一项新的海事信息报告的规定，称其“非常令人担忧”，并认为它违反了“国际协定和规范”。
+终审:  文龍
 
-麦卡利斯特说，如果中共选择执行这一要求，它将“开始为不稳定和潜在的冲突奠定基础”。据《大纪元时报》报道，他在9月3日的新闻发布会上表达了他的担忧。
+上传：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-4.png)
+**更多资讯，更多关注**
 
-该要求是，外国船只 —— 包括潜水器、核动力船、运载放射性物质的船只，以及运载散装石油、化学品、液化气和其他有毒有害物质的船只 —— 进入中国认为的领海，将被要求向中国海事局提供详细信息。这些信息包括船名、呼号、最后和下一次停靠的港口以及他们目前的位置。据该媒体报道，这一报告要求于9月1日开始生效。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-根据这项新法律，如果中国认为这些外国船只“威胁到中华人民共和国领土或领海的安全”，北京可以强迫它们离开。
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-五角大楼和国务院已经批评了这项新法律，并说它将对“海洋自由构成严重威胁”。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-“美国将继续在国际法允许的地方飞行、航行和行动。”五角大楼的马丁·迈纳斯中校告诉《星条旗报》。
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-美国海军战争学院斯托克顿国际法中心的国际法教授劳尔·佩德罗索（Raul A.F. Pedrozo）在他的分析中说：“中共正在再次测试国际社会，以衡量它将对制定另一部超出《联合国海洋法公约》所允许的管辖范围的海事法作出何种反应。”
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-55.png)
 
-这只是中共对南中国海提出侵略主张的又一个例子，尽管“海牙常设仲裁法院在2016年裁定北京政权的领土主张不符合《联合国海洋法公约》（UNCLOS），但他们仍然继续这样做。”
-
-随着美国从阿富汗撤军，阿富汗从稀土矿产和战略价值方面而言，对中共国来说都是一个财富 。 同样重要的是，美国如何撤军，这引起了美国盟友的担忧。
-
-但中共的侵略更令人担忧。
-
-原文链接：[https://justthenews.com/government/security/chinas-new-maritime-rule-very-concerning-says-us-coast-guard-chief](https://justthenews.com/government/security/chinas-new-maritime-rule-very-concerning-says-us-coast-guard-chief)
-
-（文章评论仅代表个人观点）
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 明子
-评论：洛杉矶盘古农场 – 明子
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

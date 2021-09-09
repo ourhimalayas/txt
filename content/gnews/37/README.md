@@ -2,27 +2,33 @@
 ---
 
 
-## 秘翻在线 :伊维菌素对中共病毒的卓越疗效无人可挡
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1521637/)
+## 澳大利亚：唯有西澳州财政收支有盈余
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1521702/)
 
-撰稿：William
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1631170346591_G053FCMVV.2-2.jpg)图片来源：Perth Now
+**整理报道：**翼族
 
-校对：牛小妹
+澳大利亚2020-2021财年各州和领地公布的财政收支显示，整个澳大利亚联邦只有西澳州有盈余，而其它州则充斥着债务和赤字。
 
+铁矿石价格的猛涨，使得西澳大利亚州产生了创纪录的56亿澳元的预算盈余，也使其成为全国表现最好的经济体、唯一有盈余的一个州。而维多利亚州则拥有全澳最高的财政赤字，高达175亿澳元。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/11111.jpg)图片来源：ABC
+预计西澳州一直到2024-25财年都将持续预算盈余，2021-22财年预计盈余为28亿澳元。州长马克·麦高恩（Mark McGowan）表示：“即使在全球大流行期间，与其它任何一个司法管辖区不同，西澳大利亚州的财务状况依然强劲且可持续。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/p-1.jpg)
-图片来源：National Review
+鉴于该州的经济地位，麦高恩州长表示，他预计各州之间将重新燃起关于商品及服务税（GST）分割的争论。GST收入显著增加了西澳州的预算盈余，上个财政年度，该州的GST收入增加了超过45亿澳元，预计2021-22财年将超过50亿澳元。
 
-**无论是治疗或预防中共病毒(COVID-19)，伊维菌素都是”神奇药物”**
+另外，西澳州的其它税收也高于预期，增长了11.7%，计11亿澳元，主要是由于该州蓬勃发展的房地产市场。
 
-根据The Daily Bell的报导，美国胸科医师学会在2021 年 1 月评估伊维菌素对治疗重病患者的临床效果，针对 280 名患者进行了研究，其中 173 名患者接受伊维菌素治疗，107 名患者未接受伊维菌素治疗，结果显示接受伊维菌素组的死亡率明显降低，绝对风险也降低。然而这个研究结果已被主流媒体屏蔽，无法出现在《纽约时报》或 Snopes事实查核机构上。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-另外一项 2020 年埃及随机对照研究表明，伊维菌素做为预防中共病毒侵入的效果也十分惊人。研究指出，在接受伊维菌素治疗的 203 名无症状密切家庭接触者中，只有 15 名（7.4%）被发现感染。而在未使用伊维菌素的 101 名接触者中，有高达 59 人（58.4%）患上了这种疾病。另外，在日本抗生素杂志也有指出，截至 2021 年 2 月 27 日，经过统合分析(meta-analysis)，全球 42 项临床研究结果显示，伊维菌素可有效治疗和预防中共病毒相关疾病。
+参考链接：[WA Budget reveals $5.6 billion surplus but no border reopening date, delays to infrastructure](https://www.abc.net.au/news/2021-09-09/wa-budget-5-point-6-billion-surplus-but-no-border-reopening-date/100438990)
 
-**主流媒体及CDC企图掩盖伊维菌素的神效**
+*编辑/发布：翼族*
 
-尽管有许多的数据以及研究证明伊维菌素对中共病毒治疗非常有效。但是大外宣媒体、相关研究机构仍然不回应、不支持，甚至污蔑伊维菌素的疗效。知名播客主持人乔•罗根 (Joe Rogan) 在社交媒体上发布了一段视频，分享自己患有中共病毒疾病，在服用伊维菌素后，症状获得控制。竟然遭受主流媒体用漫划嘲笑使用马匹驱虫剂的伊维菌素。另外，CDC 甚至称伊维菌素是未经 FDA 授权或批准用于预防或治疗中共病毒的用药。
-
-新闻来源：[https://www.thedailybell.com/all-articles/news-analysis/covid-propaganda-roundup-the-ivermectin-war/](https://www.thedailybell.com/all-articles/news-analysis/covid-propaganda-roundup-the-ivermectin-war/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
