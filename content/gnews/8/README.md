@@ -2,103 +2,97 @@
 ---
 
 
-## 切尔诺贝利核事故真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522708/)
+## 疫苗给孩子打伤害巨大
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522741/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a61at-1rt89-1.jpg)
-[https://gtv.org/video/id=613a2ec6784c5a2583542dc3](https://gtv.org/video/id=613a2ec6784c5a2583542dc3)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a9tfs-c6aph.jpg)
+[https://gtv.org/video/id=613a2f3b784c5a2583542dde](https://gtv.org/video/id=613a2f3b784c5a2583542dde)
 
-**字幕内容:**
+**字幕内容：**
 
-**郭文贵
-Miles Guo**
+**郭文贵**
+**Miles Guo**
 
-所以我亲自问过戈尔巴乔夫
-Yo personalmente le pregunté a Gorbachev
+他说打给孩子是什么样的威胁呢
+He told me what kind of threat does for the children?
 
-你说的是官僚、腐败、谎言
-Lo que tu dices es burocracia, corrupción, mentiras
+他说告诉你啊
+He said let me tell you
 
-他说：郭先生
-Él dijo: Sr. Guo
+孩子的威胁就大了去了
+The damage to the children is immensely
 
-导致这些结局都有一个目的
-Hay un objetivo para que se ocasionara este resultado
+他说孩子是一个海绵
+He said the children is like the sponge
 
-他不仅要升官，升官干什么
-Él no solo quiere ascender el cargo, para qué es
+吸了一堆油，你把这一把面撒到了海绵里
+Absorbed a bunch of oil and then you sprinkled flour into the sponge
 
-他说是整个国家的腐败
-Él dijo todo el país está deteriorado
+他说文贵，你把那个油给挤干了
+He said, Wengui, you squeezed that oil out
 
-切尔诺贝利里面最关键的是
-El punto clave de Chernóbil
+你看那个面能不能出来
+You see if the flour can come out
 
-它上面应该有覆盖层
-Eso arriba hay una capa de cobertura
+你把油给吸干了
+You sucked up the oil
 
-还有一个多套备用电系统
-También hay un sistema de energía de respaldo múltiple
+在水里看得出来
+It can be seen in the water
 
-他这些王八蛋玩官僚嘛
-Esos bastardos juegan a la burocracia
+他说你试一试
+He said try it
 
-它要压力测试，停电以后还能重启
-Eso se necesita probar con presión, poder reiniciar luego de que se vaya la luz
+让战友们回家试一试
+Let your comrades-in-arms go home and have a try
 
-它没有第二套系统
-Eso no tiene un segundo sistema
+顺便找一个你平常用的海绵
+find a sponge you usually use
 
-他为了想跟他争那个官，争那个所长和当地的主任
-Para poder competir ese cargo de funcionario, competir el puesto de director y director local
+放上油，再放上面（粉）
+Put oil on it, then put flour on top of it
 
-他最后下令官僚，让所有人
-Finalmente ordenó a la burocracia, que todos
+你洗完以后，海绵是黑的
+After washing, the sponge is black
 
-把（设备）关了
-Apagaran (los equipos)
+永远不会变白，不会变黄
+Never turn white, never turn yellow
 
-给我扔了，给我弄
-Lo arrojaran, lo hagan
+孩子的血管和细胞和基因
+Children’s blood vessels and cells and genes
 
-然后一个设计想省钱
-Entonces querían ahorrar el dinero en el diseño
+他说你的所有的打开你基因门
+He said the vaccine will open your genetic door
 
-然后“叭”
-Y, ¨pa¨
+它是打开你每个基因和细胞的门
+It opens the door that every gene and cell of yours
 
-整个石墨，又是石墨啊
-Todo el grafito, otra vez el grafito
+你怎么可以再把门关上，把它撵出去呢
+How could you close the door again and push it out?
 
-石墨的保护层和氢子进行对撞
-La capa protectora del grafito choca con los átomos de hidrógeno
+永远不可能了
+Never possible
 
-“嘣”一下爆炸了
-¨Boom¨ se explotó en un rato
+你能消解就是你细胞把它消解
+Can you dissolve it, can the cell dissolve it?
 
-看上去省钱，事实上是什么
-Al parecer se ahorró dinero, pero en realidad qué es
+他说你细胞（能）消解（掉吗）
+He asked me, can the cell dissolve it?
 
-说那里的将近40%的东西
-Se dice que casi el 40% de las cosas de allá
+它是不可消解掉，它不能消化的东西
+It can’t dissolve, it can’t indigestible
 
-全部被腐败了
-Se ha deteriorado todo
+怎么能消解呢
+How can it be resolved?
 
-腐败
-Deteriorado
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-一党独政、独裁导致的官僚
-Gobierno de un sólo partido, burocracia causada por la dictadura
+**原视频链接 **: **https://twitter.com/se1y7cblljselva/status/1431620415038771201?s=24**
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1434801683440160774?s=24](https://twitter.com/se1y7cblljselva/status/1434801683440160774?s=24)
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+中听英: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

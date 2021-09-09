@@ -28,23 +28,23 @@
 ### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [艺术品拍卖行业的黑暗](/content/gnews/6/README.md)
+### [2021/09/08文贵先生直播精要](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [艺术品拍卖行业的黑暗](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗给孩子打伤害巨大](/content/gnews/7/README.md)
+### [疫苗给孩子打伤害巨大](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [切尔诺贝利核事故真相](/content/gnews/8/README.md)
+### [中共实验室冠状病毒研究的新细节出现](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/9/README.md)
+### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [独家：30岁女士接种辉瑞疫苗后出现神经系统并发症](/content/gnews/10/README.md)
+### [独家：30岁女士接种辉瑞疫苗后出现神经系统并发症](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [疫苗接种进入“关键期”-“混乱期”](/content/gnews/11/README.md)
- ` 澳喜农场`
 
 ### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -103,28 +103,28 @@
 ### [美国建立的阿富汗人数据库 被塔利班用于监视镇压](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [独家：30岁女士接种辉瑞疫苗后出现神经系统并发症](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国经济崩溃的开始：恒大面临破产](/content/gnews/32/README.md)
+### [VAERS 报告称，在母亲注射辉瑞之后，护理婴儿死于血栓和动脉发炎](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [一份泄露的文件暴露了中国共产党对英国各界的大规模渗透！](/content/gnews/32/README.md)
+ ` 滴水穿石`
 
-### [大药厂掌控的媒体攻击为新冠病毒提供便宜有效的早期治疗选项的医生](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [Jason Miller:在巴西的短暂拘留是推动言论自由的代价](/content/gnews/35/README.md)
+### [独家：30岁女士接种辉瑞疫苗后出现神经系统并发症](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点0909](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共国经济崩溃的开始：恒大面临破产](/content/gnews/34/README.md)
+ ` 纽约香草山MOS02`
 
-### [CNN承认，中共国网络军队煽动了&#8221;种族不公正&#8221;的抗议活动](/content/gnews/37/README.md)
+### [已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [大药厂掌控的媒体攻击为新冠病毒提供便宜有效的早期治疗选项的医生](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [Jason Miller:在巴西的短暂拘留是推动言论自由的代价](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC大中华时事：日本副防卫大臣再次强调，台湾有事就是日本有事](/content/gnews/38/README.md)
+### [DC每日热点0909](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [蓬佩奥：拜登知道若无美军支持，阿富汗将沦陷于塔利班](/content/gnews/47/README.md)
+### [2021/09/08文贵先生直播精要](/content/gnews/47/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [那一年，它死了，死得其所](/content/gnews/48/README.md)
+ ` 日本东京樱花团`
+
+### [世卫组织的这一要求或将造成更严重的疫苗接种后果](/content/gnews/49/README.md)
+ ` 日本东京樱花团`
+
+### [樱花灭共段子之活着、韭菜养成、墙内最新疫苗新闻](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
+
+### [中共实验室冠状病毒研究的新细节出现](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [塔利班的幕后力量是中共](/content/gnews/48/README.md)
+### [中共欲对香港民主运动赶尽杀绝](/content/gnews/52/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/49/README.md)
+### [蓬佩奥：拜登知道若无美军支持，阿富汗将沦陷于塔利班](/content/gnews/53/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [塔利班的幕后力量是中共](/content/gnews/54/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [疫苗接种进入“关键期”-“混乱期”](/content/gnews/50/README.md)
+### [疫苗接种进入“关键期”-“混乱期”](/content/gnews/56/README.md)
  ` 澳喜农场`
 
-### [【文炬拾字】我的曾祖当红军](/content/gnews/51/README.md)
+### [【文炬拾字】我的曾祖当红军](/content/gnews/57/README.md)
  ` 温哥华扬帆农场`
-
-### [日本数字金融委员会：必须避免在监管稳定币时扼杀民间创新](/content/gnews/52/README.md)
- ` 日本东京方舟农场`
-
-### [9.9文贵先生盖特要点](/content/gnews/53/README.md)
- ` 左媛专栏`
-
-### [中共商人因向中共非法出口美国海洋技术而获刑](/content/gnews/54/README.md)
- ` 日本东京方舟农场`
-
-### [人权团体呼吁NBC等大电视公司取消转播北京冬奥会计划](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
-
-### [青蒿素、土霉素、伊维菌素对于治疗新冠绝对有效，但一定不能同时服用。](/content/gnews/56/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/57/README.md)
- ` HimalayaRussia`
 

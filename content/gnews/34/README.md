@@ -2,33 +2,52 @@
 ---
 
 
-## 大药厂掌控的媒体攻击为新冠病毒提供便宜有效的早期治疗选项的医生
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1522480/)
+## 中共国经济崩溃的开始：恒大面临破产
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1522686/)
 
-2021年9月9日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/090908.jpg)
-（文章转载自“美国前线医生”）
+作者：纽约香草山农场 – 四季
 
-节选：
-
-AFLDS（Americas Frontline Doctor，美国前线医生）的成立是为了应对媒体史无前例的审查，该审查针对运用廉价、易得的药物对新冠病毒感染者进行的早期门诊治疗。我们对巨大的人道主义需求做出了回应，积极致力于使羟氯喹在柜台上销售，就像在许多其他国家一样。2020年10月12日，一份公民请愿书被提交给了美国食品药品监督管理局（FDA），但遭到忽视。因此，AFLDS努力与远程医疗公司建立关系，使医生能够通过虚拟的方式看到病人。其他几个组织也介入了这一防疫空缺，与合格的医生一起适当地开出这些经过验证的、安全有效的药物，拯救了数百万人的生命。
-
-在全球范围内，众所周知，早期治疗是有效的，但这一事实却继续被不诚实的美国主流媒体疯狂地压制着。在印度，向她的人民隐瞒这种廉价、安全药物的科学家现在正面临死刑。在日本，东京医学会敦促所有医生开出伊维菌素。在中国，自2020年3月起推荐使用氯喹。在美国，主流媒体从未报道现在超过300项显示早期治疗有效的研究，包括《美国医学杂志》和《美国治疗学杂志》以及美国医生和外科医生协会发布的治疗算法。《华尔街日报》确实试图批评FDA，因为它试图阻止人们获得这种诺贝尔得奖药物。
-
-AFLDS受到了恶意的攻击，这是那些从大药厂和与疫情有关的政府广告中赚取数十亿美元的媒体机构精心策划并持续进行的努力的一部分。疾病预防控制中心CDC自己的数据驳斥了政府和制药业的说法，即只有疫苗才能将我们拯救出新冠病毒的手掌。事实上，他们的数据显示，我们自身的免疫系统几乎总是可以控制这种病毒，即使没有治疗，50岁以下的存活率为99.98%，70岁以上的存活率几乎为95%。通过早期治疗，这两个数字都接近100%。
-
-AFLDS继续鼓励公众保持冷静。德尔塔变种的传染性很强，但临床上比原始的武汉变种要温和。新冠肺炎病的存活率非常高，随着保护医生独立性和病人选择的力度加大，我们将拯救更多生命。
-
-[新闻原文链接](http://medicine.news/2021-09-07-media-attacks-physicians-who-promote-options-for-covid19.html#)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[《门道专家》（The Gateway Pundit）](https://www.thegatewaypundit.com/2021/09/exclusive-beginning-chinas-economic-collapse-largest-issuer-chinas-commercial-paper-evergrande-facing-bankruptcy-entire-world-economy-likely-impacted/)网站9月9日报道，陷入困境的中共国房地产巨头恒大，其股价在其两天内被两次下调信用评级后再次下滑。该公司因超过3000亿美元的未偿债务而陷入严重的财务困境，这让人们担心这家全球负债最多的公司即将违约，面临破产。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/928-1-Evergrande-in-Hong-Kong.jpg)图片来源：The Gateway Pundit
+
+恒大在香港上市后经过多年的借贷，已经积累了总额超过3000亿美元的债务，成为世界上负债最多的公司之一。
+
+其股价今年已经累计下跌了75%。周四上午，股价下跌了近10%，至3.35港元，低于该公司2009年在香港挂牌时的上市价格。同一天，该公司的一种债券在价格暴跌20%后被深圳证券交易所暂停交易。
+
+按照中共官方媒体的披露，今年以来已经有274家房地产公司发布破产公告，平均每天一家。
+
+可以预见的是中共国房地产泡沫即将破裂，其经济也将随之崩塌。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
 
 
 
