@@ -37,14 +37,14 @@
 ### [七哥快讯908:研究团契会就会知道未来新中国联邦走向何方](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美黑客事件新细节：后门导致信息泄露](/content/gnews/9/README.md)
+### [短视频：大胡子医生详细解说打了疫苗后怎么办](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [免疫专家：接种疫苗的人应该被隔离](/content/gnews/10/README.md)
+ ` Runaway`
+
+### [美黑客事件新细节：后门导致信息泄露](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
- ` wenwu`
 
 ### [家庭反洗脑序列：第26篇 又一代新粉红即将出炉](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -103,29 +103,29 @@
 ### [瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共房市新规：“集中供地”加“密集调控”，会加速崩盘吗？](/content/gnews/31/README.md)
+### [短视频：大胡子医生详细解说打了疫苗后怎么办](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [免疫专家：接种疫苗的人应该被隔离](/content/gnews/32/README.md)
+ ` Runaway`
+
+### [中共房市新规：“集中供地”加“密集调控”，会加速崩盘吗？](/content/gnews/33/README.md)
  ` 日本东京樱花团`
 
-### [秘翻在线 :伊维菌素对中共病毒的卓越疗效无人可挡](/content/gnews/32/README.md)
+### [秘翻在线 :伊维菌素对中共病毒的卓越疗效无人可挡](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美黑客事件新细节：后门导致信息泄露](/content/gnews/33/README.md)
+### [美黑客事件新细节：后门导致信息泄露](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪](/content/gnews/34/README.md)
+### [索罗斯抨击贝莱德投资于中共国：暴露华尔街的虚伪](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/37/README.md)
  ` wenwu`
 
-### [中共国12-17岁人群新冠疫苗接种](/content/gnews/36/README.md)
+### [中共国12-17岁人群新冠疫苗接种](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [一名日本男子在接种Moderna疫苗后死亡](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美疫苗接种报告：65万不良事件](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
