@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/10/2021 1:20 PM (UTC)`
+
+早在四年前，郭文贵先生已经准确爆料：恒大将比海航更惨，在国际上更加震撼！<br/>As early as four years ago, Miles Guo has precisely predicted  the fate of Evergrande : Evergrande will fail and will have a more epic fall than HNA, which will give the world a bigger shock.
+![img](https://media.gettr.com/group1/getter/2021/09/10/13/99e055a3-dd7d-8eca-2a1e-2867a6f5251d/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@purelotusheart1 9/10/2021 2:31 AM (UTC)`
@@ -301,13 +308,6 @@ Clues of COVID-19 to be recognized as bioweapon regarding Wuhan<br/><br/>关于�
 
 9/5/2021 Miles Guo：Who is holding the equity of Lufax? Why is each share of Lufax a bomb for the whole world? What does it mean for Lufax to have infiltrated half of the world’s power and financial institutions, and all the pension funds?<br/><br/>9/5/2021 文贵直播：都谁掌握了陆金所的股权？为什么说陆金所的每一股都是给世界的炸弹？陆金所黑掉了半个世界的权力和金融机构和所有养老基金，这意味着什么？<br/>
 ![img](https://media.gettr.com/group48/getter/2021/09/06/05/b097bac8-2f50-103c-87d7-519531e97bcf/out.jpg)
-
----
-
-`@miles 9/6/2021 3:27 AM (UTC)`
-
-9/5/2021 Miles Guo：The market value of the fund that acquired the egg and sperm banks soared 500 times in about 1000 days! The eggs and sperms of unvaccinated human beings will be the rarest thing in the world and the most abundant assets left to you by the Whistleblowers’ Movement! The CCP will release new coronaviruses. Fellow fighters, please prepare medicines!<br/><br/>9/5/2021 文贵直播：中共收购的西方卵子、精子库基金市值1000多天暴涨500倍！未打疫苗者的卵子和精子将成为世界上最稀有的东西，也是爆料革命留给你们的最丰富的资产！中共会放出新的冠状病毒，请战友们备好药！<br/>
-![img](https://media.gettr.com/group4/getter/2021/09/06/03/ff0fe345-8a18-7a41-3355-ce820f237e37/out.jpg)
 
 ---
 
