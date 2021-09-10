@@ -2,30 +2,33 @@
 ---
 
 
-## 郭先生盖特视频：中共已被黑暗势力彻底控制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523187/)
+## 深圳市将于下月在香港发行人民币债券
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523344/)
 
-栏目记者/责任编辑：Zion文恩
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-当地时间9月9日，郭文贵先生在其盖特视频中揭露：国际黑暗势力已控制了共产党的一切，进而也控制了中国的一切。江绵恒、江志成、王岐山、陈峰、蔡鄂生、范一飞、周小川、郭树清等盗国贼，其背后都有国际黑暗势力的痕迹。
+栏目记者/责任编辑：AsG諾雅
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide10-4.jpeg)
 
-这些人在西方藏匿的盗国资产、私生子女、以及涉嫌各种犯罪的秘密，皆因黑暗力量的保护或干预，而没有大白于天下。某个国际执法组织的原负责人，曾向郭先生爆料：他本人经手二十余个中共家族涉嫌洗钱、毒品、腐败的案子，均被各种力量阻止。
 
-值得欣喜的是，中共即将崩溃的“经济庞氏骗局”震撼了国内各政治帮派；爆料革命所揭露的真相，都一一得到了验证。中共的房地产骗局以及共产党在国际上的邪恶的力量，正在土崩瓦解。爆料革命将引导战友们破译出中共盗国贼的“藏宝密码”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-86.png)
 
-郭先生说， 人生在世，最可怕的是无知，最珍贵的是勇气。爆料革命将引导更多的同胞们开智，拓展视野，锤炼出以“无私、无我、正义”为支撑的勇气。郭先生还说到，无知是一切灾难的开始，我们要找回属于我们每一个人的勇气和正义感，绝不能将自己的一生变成金钱、性欲、虚荣、自私自利的奴隶。我们要以行动开启人类真正的美好、安全、愉悦、自信、阳光的未来的生活模式。 明天，郭先生将继续爆料大直播，与战友们详谈“黑天鹅事件”、中共对台重要消息、以及恒大崩盘对中共的影响等内容，敬请期待。
 
-参考链接：[https://gettr.com/post/pakwde8939](https://gettr.com/post/pakwde8939)
 
-本文仅代表作者观点
+港共政府特首林郑月娥9月8日在立法会透露，深圳市政府有意在香港发行的、规模不超过五十亿元的离岸人民币债券将在10月推出，香港将成为第一个承接中共国地方政府在境外发行债券的城市。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+林郑月娥称香港人应做好迎接金融上陆续而来的各项重大举措的准备，深港金融合作将迈向一个新台阶。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1.jpg)图片来源： 网络
+深圳市财政局8月24日发表公告称，深圳改革试点首批授权事项之一就是创新地方政府举债机制，到境外发行离岸人民币地方政府债券。同日，广东省也发表公告，将在澳门发行以人民币计价的离岸地方政府债券，宣称这不仅是大陆地方政府首度发行离岸人民币债券、向境外投资测试水温，也是大陆金融市场开放的又一措施。 不管官方吹嘘得如何光鲜亮丽，中共国地方政府到香港发人民币债券，首先就是要打通中共地方到香港吸血的正式途径，解决中共国经济下滑、融资日趋困难的问题，同时促进中共梦寐以求的人民币国际化，也方便以债回笼海外人民币，在需要的时候操控人民币汇率。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.2.jpg)图片来源： RFI
+参考链接：
+[深圳市人民币债券 下月在香港发行 规模最多50亿](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210909-%E6%B7%B1%E5%9C%B3%E5%B8%82%E4%BA%BA%E6%B0%91%E5%B8%81%E5%80%BA%E5%88%B8-%E4%B8%8B%E6%9C%88%E5%9C%A8%E9%A6%99%E6%B8%AF%E5%8F%91%E8%A1%8C-%E8%A7%84%E6%A8%A1%E6%9C%80%E5%A4%9A50%E4%BA%BF) 
+[深廣首發離岸人民幣債](https://wantrich.chinatimes.com/news/20210826S450182)
 
-**终审：鬼五**
+（本文仅代表作者观点）
 
-**校对/发稿：童谣**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Q大哥
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
@@ -38,5 +41,11 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
 0

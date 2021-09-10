@@ -2,40 +2,20 @@
 ---
 
 
-## 拜登将宣布所有联邦雇员必须强制接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523185/)
+## 秘翻在线：朝鲜深夜阅兵未展示新武器 金正恩西装造型引关注
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523245/)
 
-栏目记者：A Cat(明沐) 
-责任编辑：火来
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-9月9日，拜登将宣布，鉴于目前疫情反弹，delta病毒变种肆虐，美国所有的联邦雇员将被要求强制接种新冠疫苗。
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0-4.jpg)图片来源：网络截图
+据合众国际社9月9日报道，朝鲜在周四举行了一整夜的阅兵式，为了纪念其成立73周年，但似乎没有展示任何新型武器。
 
-大规模接种疫苗，成了拜登政府应对疫情危机的唯一手段。我们一再强调，疫苗不是解决中共病毒疫情的手段，而且疫苗将对人体造成极大伤害，反对强制疫苗的声浪也在全球各地涌现，但是，各国政府仍然继续推行疫苗。而疫苗导致的灾难，将给人类带来不可挽回的损失。
+首尔和华盛顿一直在密切关注事态发展，看看朝鲜是否会在游行期间炫耀任何新的军事硬件，然而，总部位于首尔的亚洲政策研究所高级研究员表示，游行似乎旨在向经济危机期间的国内受众传达有力的信息，展示内部凝聚力和团结，提醒公众朝鲜是一个政党、一个国家、一个领导人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide4-9.jpeg)
+今年1月，在拜登就职前几天，朝鲜举行了游行，其中包括一枚潜艇发射弹道导弹。该国最后一次已知的武器试验是在3月份，当时，朝鲜违反联合国制裁发射了两枚短程弹道导弹。观察家们继续等待这个国家的下一个重大挑衅。
 
-目前，多种药物对于预防和治疗中共病毒有特别好的效果，特别是Zelenko医生公布的药方，已经成功的拯救了成千上万的人。我们也再次呼吁大家了解疫苗的真相和危害，使用安全有效的药物对抗中共病毒。
+此外，金正恩以罕见的西装造型亮相也颇耐人寻味。
 
-参考链接：[Biden to announce vaccine requirement for all federal workers](https://thehill.com/policy/healthcare/571469-biden-to-announce-vaccine-requirement-for-all-federal-workers)
+原文链接：[North Korea stages military parade overnight, but shows no new weapons](https://www.upi.com/Top_News/World-News/2021/09/09/military-parade-Kim-Jong-Un-no-new-weapons/4021631174662/)
 
-本文仅代表作者观点
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
-
-**终审：Ryan**
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

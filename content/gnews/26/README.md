@@ -2,38 +2,33 @@
 ---
 
 
-## 郭文贵先生近期连续大直播回顾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523192/)
+## 中共军方正在酝酿进入阿富汗的巴格拉姆美国空军基地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523352/)
 
-栏目记者/责任编辑：火来
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-从8月18日开始，郭文贵先生率领多位战友，一起参与一系列的大直播，环环紧扣，内容震撼。直播主题覆盖非常广，包括了文革，台湾局势，中共经济的崩溃和内斗，爆料革命的精神财富，疫苗和病毒的真相，病毒的解药，宗教，中共文化运动，中共假骗偷经济，共产主义以假治国的本性，政治与艺术的关系，以及中共官场，艺术市场和金融市场的骗术等等，每一个直播主题都是刺向中共核心要害的利刃。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide13.jpeg)
-
-通过郭文贵先生的直播，我们了解到，中共手里的底牌有
-
-1. 武力攻占台湾，转移党内政治派系矛盾
-2. 发动文革2.0，再次摧毁民智民心，清除异己
-3. 通过出卖老百姓利益与西方勾兑，制造假擀面杖子经济
-4. 以病毒，疫苗打垮全世界，以解药要挟全世界，妄图扼住世界的咽喉
-5. 对内文化洗脑，精神控制
-6. 用一个又一个的谎言蒙蔽真相
-7. 利用艺术市场和金融市场的骗术，掠夺百姓财富
+栏目记者/责任编辑：AsG諾雅
 
 
-郭文贵先生的系列直播，全面的将中共这些底牌公之于众，无疑将唤醒更多的人，看清中共的本质。同时，也给出了全体中国人，以及全世界精神重建的方向，那就是爆料革命倡导的正道主义。人性的贪婪已经把人类的文化，宗教，经济，社会制度推向了崩溃的边缘，人类走到了一个需要变革的时代，而爆料革命必将引领这个时代。
 
-参考链接：
-[2021年9月8日文贵直播：拍卖行业的鉴定，评估，律师一条龙造假；中共的信托艺术市场是骗托骗术市场，就是洗钱的工具；中国有团契会光明会和共济会，王岐山，张宏伟都是中国光明会会员；七哥的俱乐部都是全世界最合法的情报机构](https://gtv.org/video/id=6138b725be28c76ac943a810)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-本文仅代表作者观点
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
 
-**终审：鬼五**
 
-**校对/发稿：童谣**
+
+零对冲9月8日援引美国新闻网周二的报道，消息人士透露，中共军方正在寻求进入此前美国在阿富汗最重要和最具代表性的单一空军基地——巴格拉姆机场。据悉，中共军方正在进行一项可行性研究，内容涉及在未来几年内，在塔利班政府的邀请和同意下，把与“一带一路 ”倡议相关的工人、士兵和其他工作人员送往巴格拉姆，以基础设施投资项目为幌子，悄悄地将其经济和军事影响力扩展到当地，曲线实现在该空军基地的存在。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-19.jpg)图片来源： 网络
+一周前，塔利班发言人扎比胡拉-穆贾希德告诉意大利报纸《共和国报》，中共国将是阿富汗“最重要的合作伙伴”，新政府正在寻求基础设施投资。他补充指出，阿富汗拥有丰富的铜矿，中共可以把这些铜矿重新投入运营并实现现代化，而且中共国是其通往世界各地市场的通道。 虽然中共外交部发言人汪文斌周二强烈否认并指责了相关指控，但是从经验来看，中共在近年通过类似的策略，已经获得了柬埔寨里姆海军基地大约三分之一的独家权利；向缅甸可可群岛的当地军政府提供了无线电、雷达和其他军事设备，并据称在过去三十年拥有该群岛的租赁权；在吉布提建立了远征空军基地。中共对巴格拉姆的潜在计划将对美国的形象造成更为毁灭性的打击，也将促使美国越来越把中共国定为最紧迫和最具挑战性的全球威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1.jpg)图片来源： 网络
+信息链接：
+[China Mulling Eventual Takeover Of Bagram Airbase In Afghanistan: Report](https://www.zerohedge.com/geopolitical/china-mulling-eventual-takeover-bagram-airbase-afghanistan-report)
+[China Weighing Occupation of Former U.S. Air Base at Bagram: Sources](http://china%20weighing%20occupation%20of%20former%20u.s.%20air%20base%20at%20bagram:%20Sources/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
@@ -46,5 +41,11 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-+1
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+0

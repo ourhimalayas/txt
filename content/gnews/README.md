@@ -46,14 +46,14 @@
 ### [澳洲国民银行修改银行标志以促销疫苗](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/12/README.md)
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/12/README.md)
  ` G&#124;News TAIWAN`
 
-### [快讯：拜登与习近平通电话](/content/gnews/13/README.md)
- ` HimalayaRussia`
+### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/13/README.md)
+ ` G&#124;News TAIWAN`
 
-### [多名国会参选人对阿富汗撤军战略表示失望与愤慨](/content/gnews/14/README.md)
- ` 澳喜农场`
+### [快讯：拜登与习近平通电话](/content/gnews/14/README.md)
+ ` HimalayaRussia`
 
 ### [【视频】平安集团十八年股东变迁](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -85,22 +85,22 @@
 ### [视频| 日本称地塞米松是感染新冠居家治疗唯一可依赖的药物](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：朝鲜深夜阅兵未展示新武器 金正恩西装造型引关注](/content/gnews/25/README.md)
+### [中共国获邀参加政府就职典礼](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [中共军方正在酝酿进入阿富汗的巴格拉姆美国空军基地](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [深圳市将于下月在香港发行人民币债券](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [中共国暂缓电子游戏审批工作](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：朝鲜深夜阅兵未展示新武器 金正恩西装造型引关注](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [郭文贵先生近期连续大直播回顾](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [郭先生盖特视频：中共已被黑暗势力彻底控制](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [曾经接种先锋以色列 如今向世界展示次生灾难](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [拜登将宣布所有联邦雇员必须强制接种新冠疫苗](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [乌克兰议会确认比特币合法化](/content/gnews/30/README.md)
+### [郭文贵先生近期连续大直播回顾](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [Afterpay呼吁私企参与发行加密货币“稳定币”](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/47/README.md)
+### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/47/README.md)
  ` G&#124;News TAIWAN`
 
-### [樱花灭共诗——应天长•美挑战海上交通法](/content/gnews/48/README.md)
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/48/README.md)
+ ` G&#124;News TAIWAN`
+
+### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/49/README.md)
+ ` G&#124;News TAIWAN`
+
+### [樱花灭共诗——应天长•美挑战海上交通法](/content/gnews/50/README.md)
  ` 日本东京樱花团`
 
-### [纽约邮报罔顾事实称中共病毒疫苗有效](/content/gnews/49/README.md)
+### [纽约邮报罔顾事实称中共病毒疫苗有效](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/50/README.md)
+### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [快讯：拜登与习近平通电话](/content/gnews/51/README.md)
+### [快讯：拜登与习近平通电话](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [国际要闻汇编](/content/gnews/52/README.md)
+### [国际要闻汇编](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [文雍漫谈：有一种温暖超越语言](/content/gnews/53/README.md)
+### [文雍漫谈：有一种温暖超越语言](/content/gnews/55/README.md)
  ` 文雍`
 
-### [拜登:所有联邦雇员必须强制接种新冠疫苗](/content/gnews/54/README.md)
+### [拜登:所有联邦雇员必须强制接种新冠疫苗](/content/gnews/56/README.md)
  ` 纽约香草山MOS01`
 
-### [墙内要闻汇编](/content/gnews/55/README.md)
+### [墙内要闻汇编](/content/gnews/57/README.md)
  ` 日本东京樱花团`
-
-### [2021年09月09日澳喜要闻（每日更新）](/content/gnews/56/README.md)
- ` 澳喜农场`
-
-### [G时评：治学的三重境界](/content/gnews/57/README.md)
- ` GISELLE`
 
