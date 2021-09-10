@@ -2,31 +2,26 @@
 ---
 
 
-## 多名国会参选人对阿富汗撤军战略表示失望与愤慨
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1523217/)
+## 快讯：拜登与习近平通电话
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1523235/)
 
-翻译：Gradient Boost
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-视频与字幕：Gradient Boost
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/B-1.jpg)bloomnews.net
+白宫最新消息：
+拜登与中共国主席习近平通话
+2021年9月9日
+声明和新闻稿
 
-近日福克斯新闻在访谈节目中询问了四名国会参选人对于阿富汗撤军行动的看法，这些国会参选人部分甚至曾在军队服役。他们对于本届美国政府在阿富汗的撤军行动感到不满，甚至愤怒，认为这是严重的战略性失误。
+约瑟夫·R·拜登（Joseph R. Biden）总统，今天（9月9日）与中共国的习近平主席对话，两位领导人进行了广泛的战略讨论，讨论了我们利益交汇的领域，以及我们利益、价值观和观点分歧的领域，他们同意要公开、坦率地处理这两组问题。拜登总统明确表示，此次讨论是美国持续努力的一部分，以负责任的方式管理美国和中共国之间的竞争，拜登总统强调了美国对印度洋-太平洋和世界和平、稳定与繁荣的持久利益，两位领导人讨论了两国确保竞争不会演变为冲突的责任。
 
-参选人Morgan Luttrell认为，塔利班根本不值得信任，不论是过去还是现在。他认为政府没有进行正确的行动与决策。作为曾在那里服役的老兵，他坦言自己感到难过，而这份心情似乎也同样被全国范围内的其他老兵所共同拥有。
+（新闻稿完）
 
-参选人Braky Duke表示，现在并不该是撤军的时刻，阿富汗盟友以及当地的美国公民事实上仍然需要美国军事力量的支援以及保护。将他们完全抛弃绝对不是真正的美国精神，他对此感到不满以及愤怒。
+全世界都在孤立这个邪魔政权，你拜登还在巴结他们，名义上是在通话，没准还在继续勾兑，且看你们还进行怎样的表演！
 
-参选人Eli Crane则正在反思，这一次撤军行动到底对外部传递了怎样的信号，他认为这次的撤军行动伤害了盟友关系，同时伊朗与中共国等邪恶势力相比乐见其成。总体而言，美国以及全球都面临这更加危险的环境。而当主持人谈到先前美国总统拒绝为阿富汗提供空中火力支援以防止恐怖分子由巴基斯坦入侵时，Eli Crane强调火力支援的提供是可以改变当时情况乃至如今现状的。
+原文链接：
 
-参选人Ryan Zinke则将话题从阿富汗拉回美国自身，通货膨胀、能源问题以及南部边境线的完全丧失……他认为现在是时候踩下刹车停止一切，当然这需要美国人民的真正觉醒。
+[https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/09/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-the-peoples-republic-of-china/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/09/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-the-peoples-republic-of-china/)
 
-（本文为翻译文章，无翻译者个人观点）
-
-新闻参考链接：
-
-[福克斯新闻](https://www.foxnews.com/)（英文）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
 0

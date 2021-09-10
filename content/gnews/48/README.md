@@ -2,26 +2,23 @@
 ---
 
 
-## 快讯：拜登与习近平通电话
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1523235/)
+## 樱花灭共诗——应天长•美挑战海上交通法
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1523305/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+第七舰队南海现，无视我交通法案。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/B-1.jpg)bloomnews.net
-白宫最新消息：
-拜登与中共国主席习近平通话
-2021年9月9日
-声明和新闻稿
+不先报，擅自贯。美帝公然来挑畔。
 
-约瑟夫·R·拜登（Joseph R. Biden）总统，今天（9月9日）与中共国的习近平主席对话，两位领导人进行了广泛的战略讨论，讨论了我们利益交汇的领域，以及我们利益、价值观和观点分歧的领域，他们同意要公开、坦率地处理这两组问题。拜登总统明确表示，此次讨论是美国持续努力的一部分，以负责任的方式管理美国和中共国之间的竞争，拜登总统强调了美国对印度洋-太平洋和世界和平、稳定与繁荣的持久利益，两位领导人讨论了两国确保竞争不会演变为冲突的责任。
+共嚷嚷，没出战。嘴硬心虚抽脸。
 
-（新闻稿完）
+口炮叼盘叫唤，埋怨还犯贱。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/546.jpg)
+(本文只代表作者观点，与GNews网站无关)
 
-全世界都在孤立这个邪魔政权，你拜登还在巴结他们，名义上是在通话，没准还在继续勾兑，且看你们还进行怎样的表演！
-
-原文链接：
-
-[https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/09/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-the-peoples-republic-of-china/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/09/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-the-peoples-republic-of-china/)
-
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
 0

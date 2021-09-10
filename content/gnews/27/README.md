@@ -2,34 +2,28 @@
 ---
 
 
-## 曾经接种先锋以色列 如今向世界展示次生灾难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523186/)
+## 郭先生盖特视频：中共已被黑暗势力彻底控制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523187/)
 
-栏目记者/责任编辑：安吉娜
+栏目记者/责任编辑：Zion文恩
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-新冠疫苗对人体免疫系统造成不可逆破坏，并导致多种不良副反应、诱发各类疾病，危害生命。以色列，作为曾经新冠疫苗接种竞赛中的领跑者，如今伴随疫情高发，已然成为疫苗政治次生灾难前线地区之一。前一周数据分析显示，以色列人均病例数和感染后的严重程度在任何地方都是最高的。
+当地时间9月9日，郭文贵先生在其盖特视频中揭露：国际黑暗势力已控制了共产党的一切，进而也控制了中国的一切。江绵恒、江志成、王岐山、陈峰、蔡鄂生、范一飞、周小川、郭树清等盗国贼，其背后都有国际黑暗势力的痕迹。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-13.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide10-4.jpeg)
 
-以色列政府为儿童及三十岁以下年轻人接种疫苗，并使用辉瑞加强针，使得以色列年轻人出现心脏病高发趋势。人们感到受到了政府的欺骗，甚至对宗教产生了怀疑。以色列也有医生使用伊维菌素治疗中共病毒感染，但同样被网络审查压制。
+这些人在西方藏匿的盗国资产、私生子女、以及涉嫌各种犯罪的秘密，皆因黑暗力量的保护或干预，而没有大白于天下。某个国际执法组织的原负责人，曾向郭先生爆料：他本人经手二十余个中共家族涉嫌洗钱、毒品、腐败的案子，均被各种力量阻止。
 
-郭先生在8月28日直播中提到，净化人类的计划，比尔盖茨、沃伦巴菲特、中共和以色列都在进行；未来只有集权统治。两年后会看，会更为清除的认识到现在经历的是人类、宗教的大搏杀。 如今，很多看清真相的以色列在社交媒体上发文，愤怒的表示，政府推行的疫苗护照，如同二战时期被纳粹占领的欧洲，犹太人，无论老少，包括婴儿车里的婴儿，都被迫佩戴的黄色六角星徽章。这些标识对犹太人是羞辱、并将他们标记为隔离和歧视的对象，甚至成为以后在大屠杀中更易被识别。
+值得欣喜的是，中共即将崩溃的“经济庞氏骗局”震撼了国内各政治帮派；爆料革命所揭露的真相，都一一得到了验证。中共的房地产骗局以及共产党在国际上的邪恶的力量，正在土崩瓦解。爆料革命将引导战友们破译出中共盗国贼的“藏宝密码”。
 
-参考链接：
-[The Yellow Star](https://www.bl.uk/learning/histcitizen/voices/info/yellowstar/theyellowstar.html)
-[Israel was a vaccination poster child. Now its COVID surge shows the world what’s coming next](https://fortune.com/2021/09/07/israel-vaccination-poster-child-covid-surge-shows-world-coming-next/)
+郭先生说， 人生在世，最可怕的是无知，最珍贵的是勇气。爆料革命将引导更多的同胞们开智，拓展视野，锤炼出以“无私、无我、正义”为支撑的勇气。郭先生还说到，无知是一切灾难的开始，我们要找回属于我们每一个人的勇气和正义感，绝不能将自己的一生变成金钱、性欲、虚荣、自私自利的奴隶。我们要以行动开启人类真正的美好、安全、愉悦、自信、阳光的未来的生活模式。 明天，郭先生将继续爆料大直播，与战友们详谈“黑天鹅事件”、中共对台重要消息、以及恒大崩盘对中共的影响等内容，敬请期待。
 
-
-
-> [郭文贵先生GTV直播2021年8月28日文字精简版分享](https://gnews.org/zh-hans/1499513/)
-
-
+参考链接：[https://gettr.com/post/pakwde8939](https://gettr.com/post/pakwde8939)
 
 本文仅代表作者观点
 
 ![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
 
-**终审： 鬼五**
+**终审：鬼五**
 
 **校对/发稿：童谣**
 
@@ -45,4 +39,4 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-+2
+0
