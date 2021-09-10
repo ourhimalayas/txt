@@ -28,14 +28,14 @@
 ### [中共发誓对所有文娱工作者进行强行驯化](/content/gnews/5/README.md)
  ` 日本东京樱花团`
 
-### [2021年9月10日郭文贵先生G-TV直播小飞象速记版](/content/gnews/6/README.md)
+### [2021年9月10日 文贵先生盖特 1](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月10日郭文贵先生G-TV直播小飞象速记版](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年9月10日文贵先生直播同步精要文字版](/content/gnews/7/README.md)
+### [2021年9月10日文贵先生直播同步精要文字版](/content/gnews/8/README.md)
  ` 香草山郭先生直播同步精要组`
-
-### [七哥说 — 第5期](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
@@ -103,29 +103,29 @@
 ### [港警突袭六四纪念馆,中共暴政在继续](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [加拿大联邦大选法语辩论日，人民党支持率激增](/content/gnews/31/README.md)
+### [台湾最新民调显示：近9成民众反对“一国两制”](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府](/content/gnews/32/README.md)
+### [加拿大联邦大选法语辩论日，人民党支持率激增](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [西媒头条 — 第65期](/content/gnews/33/README.md)
+### [共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
+
+### [西媒头条 — 第65期](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/34/README.md)
+### [拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧](/content/gnews/35/README.md)
+### [13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [拜登与习近平通话，设置“护栏”以确保“竞争不会演变成冲突”](/content/gnews/36/README.md)
+### [拜登与习近平通话，设置“护栏”以确保“竞争不会演变成冲突”](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [世卫组织科学家可能因攻击伊维菌素和拒绝对患者进行有效治疗而面临死刑](/content/gnews/37/README.md)
+### [世卫组织科学家可能因攻击伊维菌素和拒绝对患者进行有效治疗而面临死刑](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [德国检察官突查财政部和司法部](/content/gnews/38/README.md)
- ` AUJenny`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

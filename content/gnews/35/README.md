@@ -2,22 +2,24 @@
 ---
 
 
-## 13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524266/)
+## 拜登总统发布美国历史上最广泛的强制接种疫苗指令
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524269/)
 
-作者：香草山教育部-有莫举名
+作者：香草山农场-Yousei
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧.jpg)图片来源：网络
+![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登总统发布美国历史上最广泛的强制接种疫苗指令.jpg)图片来源：网络
 
-美国国会能源和商务委员会(Energy and Commerce Committee)的13名议员，在致美国运输部长布蒂吉格(Pete Buttigieg)的一封信中表明，他们对未来华为生产的汽车零部件可能收集美国公民和美国交通基础设施的相关信息感到担心。
+拜登总统于9月9日发布了一项美国历史上最广泛的联邦雇员强制接种新冠疫苗的指令。该指令要求所有拥有100 名以上雇员的企业雇主必须接种疫苗或每周进行病毒检测。多达1亿美国人将会受到该指令的影响。据悉，不遵守该指令的企业将面临“每次高达近14,000美元的巨额罚款”。此外，指令还要求参与医疗保险和医疗补助的医院和其他医疗机构的医护人员接种疫苗，预计该项要求的影响将覆盖超过1700万人。
 
-能源和商务委员会资深成员、众议员罗杰斯（Cathy McMorris Rodgers）等共和党人表示，美国绝不能允许中（共）国主导包括自动驾驶汽车在内的高科技行业。今年8月，有媒体报道称，拜登政府已经批准了价值数亿美元的许可申请，允许美国公司向被列入黑名单的华为出售汽车芯片。
+NBC 新闻报道了更多相关细节，称这项指令”旨在加大对未接种疫苗者的压力，同时，也对联邦雇员、大型雇主和医疗保健提供者提出了额外的要求。”
 
-参考链接：[美国共和党议员对美国政府批准向华为供应汽车芯片提出警告](https://www.reuters.com/article/idCNKBS2G605L?edition-redirect=ca)
+一贯宣扬自由民主的左派拜登政府给美国承诺的“自由之夏”，或将随着此项指令的发布一起结束。
+
+参考链接：[President Biden Set to Issue Most Sweeping Set of Vaccine Mandates in American History](https://beckernews.com/breaking-president-biden-set-to-issue-most-sweeping-set-of-vaccine-mandates-in-american-history-41399/)
 
 校对/发稿：雪梨
 

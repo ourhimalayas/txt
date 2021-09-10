@@ -2,46 +2,53 @@
 ---
 
 
-## 共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524370/)
+## 加拿大联邦大选法语辩论日，人民党支持率激增
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524364/)
 
-作者：香草山商业部-往后余生Jane
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+作者：纽约香草山美食部 – 文百合
 
 
 
-共和党全国委员会主席罗娜·麦克丹尼尔周四宣布，共和党全国委员会打算，就直接影响私营部门的疫苗授权，起诉拜登总统。美国受影响的大约有一亿人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ronna-McDaniel-Reuters.jpg)Republican National Committee chairwoman Ronna McDaniel 
- 图片来源：Foxnews
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
 
 
-拜登当选时告诉美国人，他不会强制实施疫苗授权，他撒谎了。现在，全国各地的小企业、工人和家庭将付出代价，许多是没有钱或法律资源，来打击拜登的违宪行动和独裁法令的。但当他的法令生效时，共和党全国委员会将起诉政府，以保护美国人及其自由，并称拜登的疫苗授权绝对违宪！
+9月8日晚，加拿大联邦大选领导人法语辩论落下帷幕。
 
-周四早些时候，拜登正式宣布了他的计划，迫使员工超过100人的公司为工人接种冠状病毒疫苗或每周进行检测。随后，俄克拉荷马州司法部长约翰·奥康纳发表声明说，将强烈反对联邦政府强制接种疫苗的任何企图，我们正在准备诉讼，以捍卫我们的权利，并在联邦政府的过度影响下捍卫法治。
+事实上，加拿大人民党（People’s Party of Canada）领袖Maxime Bernier并未被邀请参与此次大选辩论。但据昨日的统计数据显示，加拿大人民党的支持率却一路攀升至10%，并且仍在持续增长。
 
-中共病毒肆虐一年零八个月，整个世界处于恐惧之中。美国至今对溯源问题未做结论，对救命的青蒿素、伊维菌素等安全有效药物更是极力压制，害怕人们使用，反而强制注射有毒疫苗及疫苗护照，腐败的政客、国际邪恶组织及媒体，共同撒谎、欺骗大众，草菅人命。人民醒了，反抗疫苗暴政的运动势不可挡！
+![](https://media.discordapp.net/attachments/879117708753514526/885564953526939698/image0.jpg?width=915&amp;height=609)图源网络
 
-参考链接：
+对此，网友们戏称，没有Mad Max的大选辩论不过是走走过场。实际上，大选辩论中缺席的人民党是目前加拿大国内唯一一个反对国际共产与强制疫苗的党派。虽然Max在他的推特中对这种排挤行为表示了不满，但他同时也强调，他并不会改变他的初衷，他将继续为自由发声。
 
-[https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates](https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates)
+在联邦大选越来越近的当下，Max每天都按行程在全国各地进行演讲和拉票。据悉，每场演讲中他的支持者都有上千之多。可见，Max颇受民众欢迎。
 
-校对/发稿：飞虹
+（本文仅代表作者观点）
+
+参考阅读：
+
+[Polling Canada的推特](https://twitter.com/canadianpolling/status/1435706387850534916?s=21)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
+***编辑/校对/发稿：Irene木木***
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-0
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
++1

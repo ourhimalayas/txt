@@ -2,39 +2,18 @@
 ---
 
 
-## 拜登总统发布美国历史上最广泛的强制接种疫苗指令
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524269/)
+## 西媒头条 — 第65期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1524339/)
 
-作者：香草山农场-Yousei
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+- 制作：蚂蚁兄弟
 
 
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登总统发布美国历史上最广泛的强制接种疫苗指令.jpg)图片来源：网络
+![](https://assets.gnews.org/wp-content/uploads/2021/09/xm0910.001.jpeg)
 
-拜登总统于9月9日发布了一项美国历史上最广泛的联邦雇员强制接种新冠疫苗的指令。该指令要求所有拥有100 名以上雇员的企业雇主必须接种疫苗或每周进行病毒检测。多达1亿美国人将会受到该指令的影响。据悉，不遵守该指令的企业将面临“每次高达近14,000美元的巨额罚款”。此外，指令还要求参与医疗保险和医疗补助的医院和其他医疗机构的医护人员接种疫苗，预计该项要求的影响将覆盖超过1700万人。
+发稿：信心的选择
 
-NBC 新闻报道了更多相关细节，称这项指令”旨在加大对未接种疫苗者的压力，同时，也对联邦雇员、大型雇主和医疗保健提供者提出了额外的要求。”
-
-一贯宣扬自由民主的左派拜登政府给美国承诺的“自由之夏”，或将随着此项指令的发布一起结束。
-
-参考链接：[President Biden Set to Issue Most Sweeping Set of Vaccine Mandates in American History](https://beckernews.com/breaking-president-biden-set-to-issue-most-sweeping-set-of-vaccine-mandates-in-american-history-41399/)
-
-校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
 
 0

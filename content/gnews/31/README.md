@@ -2,53 +2,53 @@
 ---
 
 
-## 加拿大联邦大选法语辩论日，人民党支持率激增
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524364/)
+## 台湾最新民调显示：近9成民众反对“一国两制”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524445/)
 
-作者：纽约香草山美食部 – 文百合
+作者：纽约香草山农场 – 四季
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
 
-9月8日晚，加拿大联邦大选领导人法语辩论落下帷幕。
 
-事实上，加拿大人民党（People’s Party of Canada）领袖Maxime Bernier并未被邀请参与此次大选辩论。但据昨日的统计数据显示，加拿大人民党的支持率却一路攀升至10%，并且仍在持续增长。
 
-![](https://media.discordapp.net/attachments/879117708753514526/885564953526939698/image0.jpg?width=915&amp;height=609)图源网络
+据美国之音9月10日[报道](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)，台湾行政院大陆事务委员会星期四公布的最新一项民调显示，有87.5%的民众反对北京的“一国两制”，另有89.4%的民众反对北京对台湾的外交打压。
 
-对此，网友们戏称，没有Mad Max的大选辩论不过是走走过场。实际上，大选辩论中缺席的人民党是目前加拿大国内唯一一个反对国际共产与强制疫苗的党派。虽然Max在他的推特中对这种排挤行为表示了不满，但他同时也强调，他并不会改变他的初衷，他将继续为自由发声。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/934-1-From-Doc.jpg)图片来源：路透社（REUTERS）
 
-在联邦大选越来越近的当下，Max每天都按行程在全国各地进行演讲和拉票。据悉，每场演讲中他的支持者都有上千之多。可见，Max颇受民众欢迎。
+这项由台湾国立政治大学选举研究中心，受陆委会委托所作的民调还显示，88.8%的台湾民众反对中共当局在立陶宛同意让台湾以“台湾”名义设立代表处后，一再以经济，外交手段对立陶宛施压。88.6%的民众支持蔡英文政府持续与美国等理念相近的国家合作，确保台海和平稳定的现状。另有81.3%的民众支持政府强化国家安全与自我防卫能力；82.8%的民众支持政府捍卫国家主权和台湾民主。
+
+在两岸关系方面，有85.4%的民众主张“广义维持现状”。85.1%的民众认为台湾的未来和两岸关系的发展需要由台湾2350万人民决定。
+
+台湾陆委会在公布这项民调结果时指出，北京当局应该停止对台湾的威吓打压，正视台湾提出的“和平、对等、民主、对话”的互动倡议，务实处理两岸问题，以便为良性互动创造有利条件。
+
+台湾的最新民调体现了台湾人民的觉醒，只有台湾人民才是台湾捍卫自由、民主的真正力量。
 
 （本文仅代表作者观点）
 
-参考阅读：
-
-[Polling Canada的推特](https://twitter.com/canadianpolling/status/1435706387850534916?s=21)
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
-***编辑/校对/发稿：Irene木木***
+编辑/校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-+1
+0
