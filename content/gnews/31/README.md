@@ -2,19 +2,40 @@
 ---
 
 
-## 秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1524598/)
+## 医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524629/)
 
-编译：Nstar
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-11-030153.jpg)
-2015 年，诺贝尔生理学或医学委员会在其自 6 年前颁发的唯一一个传染病治疗奖中，表彰了伊维菌素 (IVM) 的发现，这是一种用于对抗世界上一些最具破坏性的热带疾病的多方面药物。
+2021年9月10日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091004.jpg)
+**摘要翻译：**
 
-自 2020 年 3 月首次使用 IVM 对抗中共病毒以来，已有 20 多项随机临床试验 (RCT) 跟踪了此类住院和门诊治疗。2021 年报告的 IVM 治疗 RCT 的七项荟萃分析中有六项发现 COVID-19 的死亡率显著降低，与对照组相比，死亡的平均相对风险降低了 31%。与对照组相比，使用最高 IVM 剂量的 RCT 使死亡率降低了 92%（总共 400 名受试者，p&lt;0.001）。
+由于一家医院公然违抗法庭命令，拒绝给一名在德克萨斯州的越战老兵服用伊维菌素治疗CCP冠状病毒（Covid-19），(导致)他感染后死亡。
 
-在秘鲁的大规模 IVM 治疗期间，在治疗最广泛的十个州中，30 天内的超额死亡人数平均下降了 74%。死亡的减少与所有 25 个州的 IVM 分布程度相关，p&lt;0.002。在 SARS-CoV-2 和相关的 β 冠状病毒的两种动物模型中，还观察到使用 IVM 的发病率急剧下降。IVM 的指定生物学机制，即与 SARS-CoV-2 刺突蛋白的竞争性结合，可能是非表位特异性的，可能对新出现的病毒突变株产生完全效力。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-16.png)
-上表中， A) 是秘鲁全国超额全因死亡（所有年龄)数据。从 2020 年 8 月 1 日到 12 月 1 日，这些数字减少了 14 倍；然后，在限制 IVM 使用后，到 2 月 1 日增加了 13 倍。对于 A 和 B两个图，y 值是 7 天移动平均线；数据来自于秘鲁国家死亡信息系统 (SINADEF)。
+8月19日，74岁的越战老兵皮特·洛佩兹(Pete Lopez) 在休斯敦附近的纪念赫尔曼糖城医院(Memorial Hermann Sugar Land Hospital)的医务人员在对中共病毒检测呈阳性后被带上了呼吸机。如果按照洛佩兹的意愿给他注射伊维菌素，他可能会活下来，但却被医院的工人拒绝而死亡。
 
-新闻来源：[https://pubmed.ncbi.nlm.nih.gov/34466270/](https://www.news-medical.net/news/20210719/Study-proves-effectiveness-of-Artemisia-annua-against-SARS-CoV-2-in-vitro.aspx)
+皮特·洛佩兹的孙女加布里埃尔·斯奈德(Gabrielle Snider)说：
+
+“医院剥夺了我祖父和我们（他的家人）了解这种药物是否对他有效的机会”。
+
+尽管伊维菌素自1996年以来就被美国食品和药物管理局(FDA)批准用于人类，美国医学会（AMA）决定，它现在只是一种 “马匹除虫剂”，不应该也不能被用于生病和垂死的人，即使它可以拯救他们的生命。
+
+在俄亥俄州发生了类似的情况，一位名叫杰弗瑞·史密斯(Jeffery Smith) 的男子被当地医院收治，并被拒绝伊维菌素治疗。史密斯的家人起诉了西切斯特医院并取得了胜利。他在技术上赢得了这个案子，而且确实得到了伊维菌素，效果非常好，医院决定他很快就可以脱离呼吸机，被送回家。
+
+周五，德克萨斯州医学委员会和德克萨斯州药学委员会共同发表了一份联合声明，支持所有医生有权开出伊维菌素等药物的标示外使用，这已是几十年来的普遍做法。
+
+[新闻链接](https://pandemic.news/2021-09-09-veteran-dies-hospital-refuses-court-ordered-ivermectin.html)
+
+*翻译：suigintou#9482|校对：Beicy-数学老师*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
 0

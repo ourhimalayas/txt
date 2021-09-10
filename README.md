@@ -37,13 +37,13 @@
 ### [2021年9月10日 文贵先生盖特 1](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [拜登政府强推疫苗引美入深渊](/content/gnews/9/README.md)
+### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登政府强推疫苗引美入深渊](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [COVID疫苗：公众需要的不只是“相信我们”（1/2）](/content/gnews/11/README.md)
+### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/12/README.md)
@@ -103,29 +103,29 @@
 ### [中情局有意注册抖音账号，卢比奥参议员公开反对](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/31/README.md)
- ` 秘密翻译组G-Translators`
-
-### [秘翻在线：恒大——中共国的雷曼兄弟！](/content/gnews/32/README.md)
- ` 秘密翻译组G-Translators`
-
-### [阿拉斯加州州长回应拜登的疫苗授权：“这毋庸置疑是可以引用《第 25 修正案》的案例”](/content/gnews/33/README.md)
+### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [调查显示：公司强行疫苗接种将迫使近75％的未接种疫苗员工辞职](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [DC每日热点0910](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：水灾疫情让河南建业集团雪上加霜](/content/gnews/35/README.md)
+### [秘翻在线：澳大利教师团结起来反对强制接种疫苗](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [台湾最新民调显示：近9成民众反对“一国两制”](/content/gnews/36/README.md)
- ` 纽约香草山MOS02`
+### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/34/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [加拿大联邦大选法语辩论日，人民党支持率激增](/content/gnews/37/README.md)
- ` 纽约香草山MOS02`
+### [秘翻在线：恒大——中共国的雷曼兄弟！](/content/gnews/35/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
+### [阿拉斯加州州长回应拜登的疫苗授权：“这毋庸置疑是可以引用《第 25 修正案》的案例”](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [调查显示：公司强行疫苗接种将迫使近75％的未接种疫苗员工辞职](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：水灾疫情让河南建业集团雪上加霜](/content/gnews/38/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
