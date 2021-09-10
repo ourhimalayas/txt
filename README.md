@@ -37,13 +37,13 @@
 ### [中共房地产市值高过美德法日英](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：美特使施压 塔利班放行200人离境](/content/gnews/9/README.md)
+### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线：美特使施压 塔利班放行200人离境](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
 
-### [媒体开始狂吹“Mu变种”为新一波强制疫苗做铺垫](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [“自由律师”律所证实FDA就批准辉瑞疫苗向美国人撒谎](/content/gnews/11/README.md)
+### [媒体开始狂吹“Mu变种”为新一波强制疫苗做铺垫](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/12/README.md)
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [自传体小说连载之二十二：《我的忏悔录》](/content/gnews/47/README.md)
- ` 秘密翻译组G-Translators`
-
-### [塔利班声称全面控制潘杰希尔山谷](/content/gnews/48/README.md)
- ` 墨尔本雅典娜农场`
-
-### [阿富汗记者因报导妇女示威惨遭塔利班毒打](/content/gnews/49/README.md)
- ` 日本东京方舟农场`
-
-### [国会共和党人攻击拜登的疫苗接种强制令](/content/gnews/50/README.md)
+### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/51/README.md)
+### [自传体小说连载之二十二：《我的忏悔录》](/content/gnews/48/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [塔利班声称全面控制潘杰希尔山谷](/content/gnews/49/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [阿富汗记者因报导妇女示威惨遭塔利班毒打](/content/gnews/50/README.md)
+ ` 日本东京方舟农场`
+
+### [国会共和党人攻击拜登的疫苗接种强制令](/content/gnews/51/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/52/README.md)
  ` G-NEWS TAIWAN`
 
-### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/52/README.md)
+### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/53/README.md)
  ` G-NEWS TAIWAN`
 
-### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/53/README.md)
+### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/54/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/54/README.md)
+### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/55/README.md)
  ` G&#124;News TAIWAN`
 
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/55/README.md)
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/56/README.md)
  ` G&#124;News TAIWAN`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/56/README.md)
+### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/57/README.md)
  ` G&#124;News TAIWAN`
-
-### [樱花灭共诗——应天长•美挑战海上交通法](/content/gnews/57/README.md)
- ` 日本东京樱花团`
 
