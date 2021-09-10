@@ -2,35 +2,52 @@
 ---
 
 
-## 已发表的科学论文揭示伊维菌素如何阻止中共病毒的复制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1522667/)
+## 中共国经济崩溃的开始：恒大面临破产
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1522686/)
 
-2021年9月9日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0.png)
-摘要翻译：
+作者：纽约香草山农场 – 四季
 
-主流媒体和美国食品和药物管理局（FDA）希望你相信伊维菌素只不过是“马膏”，对人类没有起到合理的作用。然而，事实证明，伊维菌素在对抗病毒方面展示出令人难以置信的疗效。
-
-今年早些时候发表在《未来病毒学》杂志上的一篇论文解释说，伊维菌素能够和SARS-CoV-2发病机制中的关键蛋白有效的结合。伊维菌素不仅仅是一种“动物药物”，它可能是结束这场大流行病的最终解药——前提是只要人们被允许使用它。
-
-在印度，伊维菌素被广泛用于治疗武汉冠状病毒（Covid-19），来自印度的研究人员利用一种硅学方法，证明了伊维菌素在对抗中共病毒的情况下是不需要使用口罩或 “疫苗”的。
-
-**科学证明：**对于治疗冠状病毒来说，伊维菌素是一种安全和有效的药物。
-
-这些有力的发现完全推翻了医疗机构所推崇的错误说法，他们声称伊维菌素是“危险的”和“未经证实的”，尽管这个药物早在1996年就被美国食品和药物管理局批准用于人类用途。
-
-**简评：**不管是主流媒体还是监管部门，它们都在竭尽全力地诋毁伊维菌素在治疗新冠病毒上的有效性和安全性，但这种淆视听的做法，只会让越来越多的有良知的人反感，从而去了解这种救命“神药”，使用它并终结这一场史无前例的大流行病。
-
-[原文链接](https://pandemic.news/2021-09-08-science-paper-ivermectin-blocks-viral-replication-covid.html)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[《门道专家》（The Gateway Pundit）](https://www.thegatewaypundit.com/2021/09/exclusive-beginning-chinas-economic-collapse-largest-issuer-chinas-commercial-paper-evergrande-facing-bankruptcy-entire-world-economy-likely-impacted/)网站9月9日报道，陷入困境的中共国房地产巨头恒大，其股价在其两天内被两次下调信用评级后再次下滑。该公司因超过3000亿美元的未偿债务而陷入严重的财务困境，这让人们担心这家全球负债最多的公司即将违约，面临破产。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/928-1-Evergrande-in-Hong-Kong.jpg)图片来源：The Gateway Pundit
+
+恒大在香港上市后经过多年的借贷，已经积累了总额超过3000亿美元的债务，成为世界上负债最多的公司之一。
+
+其股价今年已经累计下跌了75%。周四上午，股价下跌了近10%，至3.35港元，低于该公司2009年在香港挂牌时的上市价格。同一天，该公司的一种债券在价格暴跌20%后被深圳证券交易所暂停交易。
+
+按照中共官方媒体的披露，今年以来已经有274家房地产公司发布破产公告，平均每天一家。
+
+可以预见的是中共国房地产泡沫即将破裂，其经济也将随之崩塌。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
 
 
 

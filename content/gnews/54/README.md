@@ -2,24 +2,25 @@
 ---
 
 
-## 世卫组织的这一要求或将造成更严重的疫苗接种后果
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1522857/)
+## 澳洲天主教神父呼吁政府给予个人选择不接种疫苗的自由
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1522867/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ewr.png)
-（图片源于本文链接）
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/09/天主教.png)图片来自网络
+澳大利亚天主教医学会正在向总理和州卫生部长施加压力，要求政府和医疗机构“尊重和保护个人意愿”和“个人拒绝接种的合法性”。
 
-世界卫生组织（WHO）总干事谭德塞要求各国在今年年底之前暂停注射中共病毒 “加强版 “疫苗，以确保对发展中国家的公平供应。
+神父Paschal Corby 博士说“任何人都不应该被强迫接受任何疫苗”，”作为一项规则，接种疫苗不是一项道德方面的义务”。
 
-上个月，关于为延长抗病毒效果，而为已经接种两针疫苗的人再接种”加强版 “疫苗，谭德塞要求9月底之前不要实施。但美国却计划在本月开始，推广的趋势越来越大，特别是在资金充足的发达国家。
+塔斯马尼亚大主教 Julian Porteous 本周要求州政府澄清其立场，但尚未收到回复。他说，他有义务尊重那些不愿意接种疫苗的神职人员的决定。大主教Porteous 自己已经接种过两针疫苗。他目前正在与塔斯马尼亚政府进行商谈，看能否用快速抗原检测来代替疫苗接种。
 
-[信息源](https://news.yahoo.co.jp/articles/222af71733c90cac5dcda2e7e83b88f4e27bca7c/images/000)
+政府规定，从 9 月 17 日起，在养老院工作的人员必须至少预订第一剂疫苗，这也包括进入老年护理机构服务的神职人员。
 
-人类有个尽人皆知的毛病，那就是没什么，反倒想要什么。疫苗是各国政府在推广，因此，大多数国民都会去响应、去积极接种疫苗。突然一声令下，说要暂停，势必导致那些不了解疫苗的人们才生恐慌心理，担心自己接种不上疫苗，反倒着急要尽快接种疫苗。所以，世卫组织这个要求，很可能会导致更多人铤而走险，或将造成更严重的疫苗接种灾难。
+该州的天主教徒加入了一项全国性的呼吁，要求澄清对神职人员的强制接种的豁免。
 
-（文章仅代表作者个人观点，与GNEWS无关）
+(文章内容仅代表作者观点)
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-0
+[原文链接](https://www.themercury.com.au/news/tasmania/extremley-odd-call-for-catholic-priests-to-be-exempt-from-covid19-vaccination/news-story/2a57cb8aff803339b69c08b21d0ecee6?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
++1
