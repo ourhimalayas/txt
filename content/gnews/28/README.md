@@ -2,47 +2,24 @@
 ---
 
 
-## 中共国获邀参加政府就职典礼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523373/)
+## 秘翻在线：乔·拜登疫苗强制令引发地方官员强烈反弹
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523317/)
 
-栏目记者/责任编辑：火来
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-18.jpg)图片来源：福克斯新闻
+9月9日，美国总统乔·拜登（Joe Biden）要求所有联邦雇员接种疫苗。他声明拥有超过100名员工的公司必须对工人进行中共病毒测试或证明他们已经接种中共病疫苗。
 
+俄亥俄州参议院候选人J.D. Vance回应拜登的疫苗命令，他授权呼吁进行大规模的非暴力反抗。J.D. Vance说：”不要遵守这些规定。不要支付政府的罚金。不要允许自己被欺负和控制。只有大规模的公民抗命才能把我们从乔-拜登的赤裸裸的独裁主义中拯救出来。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-6.jpg)图片来源：推特截图
+佛罗里达州议员Anthony Sabatini呼吁：”佛罗里达州必须召开特别会议，使拜登的疫苗命令无效。任何试图强加这些规定的联邦官员都应被当场逮捕，并根据佛罗里达州的法律予以起诉。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-10.jpg)图片来源：推特截图
+南达科他州的州长。克里斯蒂-诺姆（Kristi Noem）回应说：” 如果拜登总统非法强制注射疫苗，我将采取法律规定的一切行动，保护南达科他州人不受联邦政府的影响。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-11.jpg)
+德州州长格雷格-艾伯特(Greg Abbott)宣布：”拜登的疫苗命令是对私营企业的攻击。我发布了一项行政命令，保护德克萨斯州人选择是否接种COVID疫苗的权利，并将其列入特别会议议程。德克萨斯州已经在努力阻止这种权力掠夺”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/7-4.jpg)图片来源：推特截图
+另外，共和党国家委员会（RNC）主席Ronna McDaniel 表示：”许多小企业和工人没有钱或法律资源来对抗拜登的违宪行为和专制法令，但当他的法令生效时，RNC将起诉政府以保护美国人和他们的自由。”
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
-9月9日，据俄罗斯中央社报道，中共国已经获得阿富汗塔利班的邀请，将派代表出席9月11日在阿富汗首都喀布尔举行的阿富汗新政府就职典礼。该报道还称，与中共国同时受邀的仅有俄罗斯、巴基斯坦、伊朗等国，没有西方国家。俄罗斯官员表示，俄方很可能会派遣大使级代表，出席阿富汗新政府的就职典礼。这可能成为中共国派遣代表规格高低的参考指标。刚刚在一天前，中共国外交部长王毅宣布，将紧急提供给阿富汗塔利班，价值人民币2亿元的粮食、过冬物资、疫苗和药品，其中还包括首批300万剂新冠疫苗。中共与塔利班互动频繁，如今受邀参加塔利班政府的就职典礼，更是撕下遮羞布，明目张胆的伙同其他几个流氓国家一道，与塔利班为伍，沆瀣一气。目前，塔利班仍然是联合国认定的恐怖组织，中共的行为已经表明，自己将与文明世界彻底割裂，继续在末路上狂奔。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-11.jpg)ttutu’p图片来源： 网络
-参考链接：
-[中国宣布支援塔利班 获邀参加政府就职典礼](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210909-%E4%B8%AD%E5%9B%BD%E5%AE%A3%E5%B8%83%E6%94%AF%E6%8F%B4%E5%A1%94%E5%88%A9%E7%8F%AD-%E8%8E%B7%E9%82%80%E5%8F%82%E5%8A%A0%E6%94%BF%E5%BA%9C%E5%B0%B1%E8%81%8C%E5%85%B8%E7%A4%BC)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
+原文链接：[GT Online: Joe Biden’s Vaccine Mandates Trigger Strong Reactions](https://gnews.org/1523321/)
 
 0
