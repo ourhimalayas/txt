@@ -37,14 +37,14 @@
 ### [中共房地产市值高过美德法日英](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [突发：拜登发出史上最全面的疫苗授权](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国大学生因未接种疫苗被禁止参加在线课程](/content/gnews/10/README.md)
+### [澳著名主持人：前夫接种辉瑞疫苗后心包炎入院](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [突发：拜登发出史上最全面的疫苗授权](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国大学生因未接种疫苗被禁止参加在线课程](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
@@ -85,47 +85,47 @@
 ### [有声| 瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：金·卡戴珊“带货”加密货币遭英金融监管官员炮轰](/content/gnews/25/README.md)
+### [秘翻在线： 中共国江苏田湾核电站再出异常状况令居民惊恐](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：脸书雷朋联名推出智能眼镜 隐私问题引担忧](/content/gnews/26/README.md)
+### [秘翻在线：美国将中共孔子学院赶出去 将台湾华语学习中心请进来](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：泄露的文件揭露了中共对英国的大规模渗透](/content/gnews/27/README.md)
+### [秘翻在线：台湾最新官方民调显示近九成民众反对“一国两制”](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：方舟投资急剧下调中共国头寸](/content/gnews/28/README.md)
+### [秘翻在线：金·卡戴珊“带货”加密货币遭英金融监管官员炮轰](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：乔·拜登疫苗强制令引发地方官员强烈反弹](/content/gnews/29/README.md)
+### [秘翻在线：脸书雷朋联名推出智能眼镜 隐私问题引担忧](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [台湾公布最新民调, 近九成民众不接受“一国两制”](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：泄露的文件揭露了中共对英国的大规模渗透](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [突发：拜登发出史上最全面的疫苗授权](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [文革发起者去世45周年 《文革受难者》一书作者警醒世人](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
 
-### [巴议员推法案 欲使比特币成为法定货币](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [电邮泄密：美国务院阻止了阿富汗的疏散航班](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
 
-### [加州疫苗护照法案被叫停，声名狼藉的州长纽森将面临罢免](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [塔利班临时政府名单令多国失望 唯北京积极回应](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
 
-### [美国大学生因未接种疫苗被禁止参加在线课程](/content/gnews/34/README.md)
+### [神秘的“黑天鹅事件”“灰犀牛事件”到底是什么？](/content/gnews/34/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [澳著名主持人：前夫接种辉瑞疫苗后心包炎入院](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美特使施压 塔利班放行200人离境](/content/gnews/35/README.md)
- ` 秘密翻译组G-Translators`
-
-### [媒体开始狂吹“Mu变种”为新一波强制疫苗做铺垫](/content/gnews/36/README.md)
+### [突发：拜登发出史上最全面的疫苗授权](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳推新监控法：当局可修改或删除推特和脸书帖子](/content/gnews/37/README.md)
+### [巴议员推法案 欲使比特币成为法定货币](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [每日快报：Tik Tok向13-15岁的未成年人推荐性、毒品和酒精主题的内容](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [加州疫苗护照法案被叫停，声名狼藉的州长纽森将面临罢免](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共钟南山牵头临床，新冠在研药或使住院死亡降78%](/content/gnews/47/README.md)
+### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（二）](/content/gnews/47/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共钟南山牵头临床，新冠在研药或使住院死亡降78%](/content/gnews/48/README.md)
  ` 儒为`
 
-### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/48/README.md)
+### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [自传体小说连载之二十二：《我的忏悔录》](/content/gnews/49/README.md)
+### [自传体小说连载之二十二：《我的忏悔录》](/content/gnews/50/README.md)
  ` 秘密翻译组G-Translators`
 
-### [塔利班声称全面控制潘杰希尔山谷](/content/gnews/50/README.md)
+### [塔利班声称全面控制潘杰希尔山谷](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [阿富汗记者因报导妇女示威惨遭塔利班毒打](/content/gnews/51/README.md)
+### [阿富汗记者因报导妇女示威惨遭塔利班毒打](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
 
-### [国会共和党人攻击拜登的疫苗接种强制令](/content/gnews/52/README.md)
+### [国会共和党人攻击拜登的疫苗接种强制令](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/53/README.md)
+### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/54/README.md)
  ` G-NEWS TAIWAN`
 
-### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/54/README.md)
+### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/55/README.md)
  ` G-NEWS TAIWAN`
 
-### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/55/README.md)
+### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/56/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/56/README.md)
- ` G&#124;News TAIWAN`
-
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/57/README.md)
+### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/57/README.md)
  ` G&#124;News TAIWAN`
 

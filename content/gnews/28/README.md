@@ -2,22 +2,19 @@
 ---
 
 
-## 秘翻在线：方舟投资急剧下调中共国头寸
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523313/)
+## 秘翻在线：金·卡戴珊“带货”加密货币遭英金融监管官员炮轰
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523532/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-35.jpg)图片来源：网络截图
-据《金融时报》9月10日报道，方舟资产投资管理首席执行官、全球最受关注的投资者之一卡蒂·伍德表示，她的基金大幅减少了对华的风险敞口，只剩下一个明显“讨好”北京的公司投资组合。
+#### 撰稿：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kim-kardashian-crypto.jpg)图片来源：NYP
+早在今年6月份，金·卡戴珊（Kim Kardashian）在 Instagram 上跨界推广加密货币 Ethereum Max 引发热议。
 
-她说，中共当局现在专注于社会问题和社会工程，而牺牲了资本市场。任何被北京认为利润过高的生意都有被镇压的风险。
+近日，英国金融行为监管局（Financial Conduct Authority/FCA）主席查尔斯·兰德尔（Charles Randell）在剑桥国际经济犯罪研讨会（the Cambridge International Symposium on Economic Crime）上点名批评卡戴珊“通过宣传Ethereum Max的广告，鼓动她的2.5亿粉丝炒作加密代币”。卡戴珊的Instagram帖子已经被正确地标记为广告，兰德尔认为，这可能是“历史上受众范围最大的一次金融促销。”
 
-方舟大幅整合的寻求政府青睐的中共国公司投资组合包括京东物流，伍德表示，京东物流正在以极低的毛利率在三四线城市建设基础设施。
+兰德尔表示， Ethereum Max是“由来路不明的开发者在一个月前开发的投机性数字代币”，与Ethereum 风马牛不相及。虽然不能确定 Ethereum Max 是否是一个骗局，但网红被骗子收买，帮助他们“先拉后砸”是常有的事。甚至，有些网红推广的加密货币最后发现根本不存在。他还指责网红为“一夜暴富的幻想”添油加醋。
 
-伍德还注意到电子商务平台拼多多，她说该平台正在对杂货部门以及农场和商店之间的供应链进行大量投资。她说：“我认为这基本上是免费投资来帮助政府。”她补充说，某些公司似乎在专门“讨好政府”。
+目前约有230万英国人持有加密货币，其中14%的人还使用信贷来购买它们，这无疑增加了损失的风险。兰德尔说，FCA曾多次警告持有“投机性代币”的风险，这些代币不受FCA监管，也不在任何赔偿计划的范围内。
 
-伍德认为，尽管方舟最近进行了投资组合重组，但她不认为中共国想与世界其他地区隔绝或停止增长，而是在经历“重置”。
-
-原文链接：[Cathie Wood’s Ark cuts China positions ‘dramatically’](https://www.ft.com/content/4ddf4b5b-3267-41b2-ad04-8f4e77783a5c)
+新闻来源：[Kim Kardashian crypto ad singled out by financial watchdog](https://www.bbc.com/news/technology-58462517)
 
 0

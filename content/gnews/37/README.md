@@ -2,66 +2,37 @@
 ---
 
 
-## 澳推新监控法：当局可修改或删除推特和脸书帖子
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1523676/)
+## 巴议员推法案 欲使比特币成为法定货币
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1523721/)
 
 - 编译：wenwu
 
 
-一项新法律赋予澳大利亚警方前所未有的在线监视、数据拦截和更改数据的权力。在《[监视立法修正案](https://www.aph.gov.au/Parliamentary_Business/Bills_Legislation/Bills_Search_Results/Result?bId=r6623)》中概述的这些权力引起了对潜在滥用、隐私和安全的担忧。
+[巴拿马](https://zh.wikipedia.org/wiki/%E5%B7%B4%E6%8B%BF%E9%A9%AC)正在探索如何快速追随萨尔瓦多的脚步，后者官方周二授权比特币为法定货币。在萨尔瓦多采用[比特币](https://www.cnet.com/how-to/what-is-bitcoin/)作为法定货币后的第二天（8日），巴拿马国会议员Gabriel Silva提出了一项法案，旨在为“巴拿马共和国使用、持有和发行数字价值和加密资产，提供法律、监管和财政确定性”。
 
-该法案更新了[《2004 年](https://www.homeaffairs.gov.au/nat-security/files/surveillance-devices-act-2004-annual-report-2015-16.pdf)[监控设备法》](https://www.homeaffairs.gov.au/nat-security/files/surveillance-devices-act-2004-annual-report-2015-16.pdf)和[《1979 年电信（拦截和访问）法》](http://www.comlaw.gov.au/Series/C2004A02124)。从本质上讲，它允许执法机构或当局（如澳大利亚联邦警察和澳大利亚刑事情报委员会）在调查严重的网上犯罪时，修改、增加、复制或删除数据。
+Silva周三（8日）在推特上宣布了这项题为“《加密货币法》：使巴拿马与数字经济、区块链、加密资产和互联网兼容”的法案。席尔瓦在[推文中](https://twitter.com/gabrielsilva8_7/status/1435015640226615299)表示，该法案有可能创造就业机会、吸引投资，并促进政府提高透明度。
 
-人权法律中心表示，该法案对言论自由和新闻自由[没有足够的保障](https://www.hrlc.org.au/news/2021/8/25/insufficient-safeguards-in-new-surveillance-law)。数字权利观察称其为“[无正当理由的监视制度](https://digitalrightswatch.org.au/2021/09/02/australias-new-mass-surveillance-mandate/)”，并指出政府无视两党议会委员会的建议，以[限制新法律授予的权力](https://parlinfo.aph.gov.au/parlInfo/download/committees/reportjnt/024617/toc_pdf/AdvisoryreportontheSurveillanceLegislationAmendment%28IdentifyandDisrupt%29Bill2020.pdf;fileType=application%2Fpdf)。
+像Silva这样的加密货币倡导者，将[比特币](https://www.cnet.com/how-to/what-is-bitcoin/)、[以太坊](https://www.cnet.com/how-to/bitcoin-ethereum-or-litecoin-which-cryptocurrency-is-best-for-you/)和[狗狗](https://www.cnet.com/news/dogecoin-the-origin-story-of-the-elon-musk-supported-cryptocurrency/)[币](https://www.cnet.com/how-to/what-is-bitcoin/)视为全球货币的未来。底层的[区块链技术](https://www.cnet.com/blockchain-decoded/)允许这些货币能够通过创建一个记录交易的数字账本来运作，而不是依赖中央银行来承保——加密货币爱好者会用“操纵”——货币的价值。
 
-此外，执法部门的合法黑客行为可能使黑客罪犯（中俄）更容易，通过[政府](https://insiderpaper.com/bidens-government-critcised-for-leaving-service-dogs-in-kabul-twitter-enraged/)故意留下的漏洞而非法访问计算机系统。
+巴拿马的新法案旨在促进加密货币和其他数字资产的使用，类似于中美洲国家萨尔瓦多的立法。但它也[概述了](https://97855788-39ff-4655-a39b-3acea3b2f10b.filesusr.com/ugd/3b5653_bd5292fe23de49b08a78728ba65b4761.pdf)政府为了身份和透明度而[扩大](https://97855788-39ff-4655-a39b-3acea3b2f10b.filesusr.com/ugd/3b5653_bd5292fe23de49b08a78728ba65b4761.pdf)，对区块链技术的使用。世界经济论坛（和其他机构）已经探索[了区块链技术可减轻腐败的潜力](https://www.weforum.org/agenda/2020/06/governments-leverage-blockchain-public-procurement-corruption/)（比特币是洗钱的工具）。但是以这种方式在全国范围内部署该技术将是前所未有的举措，会产生一系列令人眼花缭乱的影响。
 
-法律中有哪些内容？
+萨尔瓦多在全国范围内[推出比特币](https://www.cnet.com/personal-finance/your-money/el-salvador-and-bitcoin-everything-you-need-to-know/)并不顺利。如果巴拿马通过其《加密货币法》，它可能会为国家级别的加密货币授权，提供另一个令人关注的测试案例。
 
-该法案为执法机构引入了[三项新权力](https://tutanota.com/blog/posts/australia-surveillance-bill/)：
-
-1. “数据毁坏令”允许当局通过复制、删除或修改他们认为合适的数据来“毁坏数据”；
-2. “网络活动授权”允许从授权对象所使用或可能使用的设备或网络中收集情报；
-3. “帐户接管令”允许当局控制一个在线帐户（例如社交媒体帐户），以收集信息为名进行调查。
-
-
-还有一个“紧急授权”程序，允许在某些情况下无需授权，即可进行以上活动。
-
-合法的数据拦截如何运作？
-
-“合法拦截”是一种网络技术，允许根据司法或行政命令的授权对通信进行电子监视。为实现这一目标，电信和互联网服务提供商制定了标准（即法规和规则），例如[欧洲电信标准协会](https://www.etsi.org/technologies/lawful-interception)推荐的[标准](https://www.etsi.org/technologies/lawful-interception)。
-
-执法机构可能会[要求](https://lims.utimaco.com/how-lawful-interception-activities-support-leas/)服务提供商在不通知用户的情况下交出通信数据、解密数据或截获数据的副本。服务提供商可能还必须提供可用的分析工具，例如目标行为的图形或图表。
-
-有哪些隐私问题？
-
-澳大利亚信息专员办公室和其他机构也[提出了隐私问题](https://www.oaic.gov.au/engage-with-us/submissions/surveillance-legislation-amendment-identify-and-disrupt-bill-2020-submission-to-the-parliamentary-joint-committee-on-intelligence-and-security/)。该法案可能会影响未涉嫌犯罪活动调查的第三方。特别是，该法案可以授权访问的第三方计算机、通信和数据。
-
-人权法律中心认为，拟议的广泛权力可能[会迫使](https://www.hrlc.org.au/news/2021/8/25/insufficient-safeguards-in-new-surveillance-law)任何对目标计算机或网络具有相关知识的个人进行黑客活动。在某些情况下，这可能与个人免于自证其罪的权利发生冲突。该法案允许执法机构能够修改刑事诉讼中的潜在证据，也是一个值得关注的主要问题。检测和预防不适当的数据毁坏，将是一个关键问题。
-
-新授权令的实施需要符合《[1988 年隐私法](https://www.legislation.gov.au/Series/C2004A03712)》，该[法](https://www.legislation.gov.au/Series/C2004A03712)旨在促进和保护个人隐私，并规范澳大利亚政府机构和组织。在某些机构可能拥有对《隐私法》有豁免权的情况下，重要的是在公共安全和[隐私影响](https://www.natlawreview.com/article/even-hacking-field-government-surveillance-bill-passed-parliament)之间取得[平衡](https://www.oaic.gov.au/privacy/the-privacy-act/)。
-
-有哪些安全问题和影响？
-
-现代加密很难破解，因此黑客经常利用系统中的其他漏洞来访问未加密的数据。据报道，政府也在[利用这些漏洞](https://www.europarl.europa.eu/RegData/etudes/STUD/2017/583137/IPOL_STU%282017%29583137_EN.pdf) 进行合法的黑客攻击。具体来说，它们依赖于“[零日漏洞利用](https://www.fireeye.com/current-threats/what-is-a-zero-day-exploit.html)”，即利用软件供应商或开发人员不知道的软件漏洞来入侵系统。在修补这些漏洞之前，这些漏洞可能会被利用数月甚至数年。如果执法机构使用零日漏洞进行合法黑客攻击，则可能会出现利益冲突。
-
-为了保护公民，我们希望这些机构向软件制造商报告或披露他们发现的任何软件漏洞，以便修补漏洞。但是，他们可能会选择不报告这些漏洞，而是将这些漏洞用于自己的黑客攻击。这使用户面临风险，因为任何第三方，包括犯罪组织，都可以利用这些所谓的零日漏洞。
-
-政府使用黑客工具可能会导致整体[网络](https://insiderpaper.com/arizona-election-audit-report-delayed-cyber-ninjas-ceo-test-positive-for-covid/)安全性变差。授予澳大利亚执法机构的授权可以保护公共安全和国家利益，但它们也可能为攻击者访问政府数据提供强大的手段。这包括国家官员等目标个人的数据和在线帐户，这可能会严重影响国家[安全](https://insiderpaper.com/what-is-pegasus-and-how-the-spyware-is-used-to-hack-phones/)。在考虑到新法案的通过，需要考虑这种可能性。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-7-6.png)
 
 **简评：**
 
-**澳大利亚当局的监控法让人想到了拜登政府和推特和脸书的审查制度合作。拜登版的数字化维稳，主要从事“纠正”网络上关于疫苗的虚假信息。以推特为例，它可能采取的是要求用户删除贴文，并且强制停止账户12小时；脸书可能只是要求删除它所指定的，有时会强制封杀账户30天。**
+**2017年6月13日，巴拿马共和国政府宣布建立与[中华人民共和国](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9C%8B)的[正式官方关系](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%EF%BC%8D%E5%B7%B4%E6%8B%BF%E9%A9%AC%E5%85%B3%E7%B3%BB)，结束与[中华民国](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E6%B0%91%E5%9C%8B)长达106年的[外交关系](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E6%B0%91%E5%9C%8B%E8%88%87%E5%B7%B4%E6%8B%BF%E9%A6%AC%E9%97%9C%E4%BF%82)；鉴于它重要的地理位置巴拿马的经济的重点是[服务业](https://zh.wikipedia.org/wiki/%E6%9C%8D%E5%8A%A1%E4%B8%9A)，以金融、贸易和旅游为主。由于巴拿马的建立和贸易都和美国有重要关系，巴拿马从1907年开始使用[美元](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%85%83)作为流通货币，本国货币为[巴波亚](https://zh.wikipedia.org/wiki/%E5%B7%B4%E6%8B%BF%E9%A6%AC%E5%B7%B4%E6%B3%A2%E4%BA%9E)，也是第一个[美国](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9C%8B)以外使用美元作为法定货币的国家。**
 
-**笔者认为，这些法律都有一个核心方向：以“取消文化”作为手段，给网络用户制造一个虚假世界并让他们生活在里面。另一方面，据2021年9月7日盖特账户[@Pandarolling](https://gettr.com/post/padlmt65df)的分享：Tanya Davies 议员刚刚在Facebook 直播爆料：澳洲政府在三月份给所有的家庭医生(GP)发信警告，不允许医生在任何形式上干扰国家对人民进行新冠疫苗接种，明确说明如果有医生敢干预，就会对医生进行调查，结果可能是吊销行医执照。**
+**另一方面，巴拿马的华人华侨占国家总人口的7%（28万），并专门设有“[华人节](https://theory.gmw.cn/2018-12/07/content_32124145.htm)”。中共国于2017年9月在巴拿马成立了第一所孔子学院；中国国务院新闻办公室与拉美议会就合作共建“中国馆”签署协议并于今年11月正式揭牌。**
 
-**值得一提的是，新中国联邦的GETTR正是为言论自由所设立的安全港湾，这是真实新闻的基本基础。**
+**值得一提的是，巴拿马也参与了中共国巴拿马运河“一带一路”的项目合作，意味着中共国挺进了美国的[后花园](https://news.sina.com.cn/c/2019-04-07/doc-ihvhiewr3881075.shtml)。那么这些“一带一路”是否有保密协议，它们的内容又是什么？或者是说从中共国老百姓身上薅出什么利益给了这些国家，以维持合作的关系。也许是中共国的习神所提供的比特币（支持人民币为代价）、股票…**
 
-**据2021年9月8日《法广网》报道，微信、百度、抖音、快手纷纷宣布配合官方整治唱衰唱空市场的金融”黑嘴”的政策。然而，政府的强权不仅只在中共国发生，而是在全世界。**
+**也就是说，习神或许正在通过“一带一路”拿下美元的主导地位。当然，如果比特币不会烂尾的话…**
 
 （文章仅代表作者观点，与GNEWS无关）
 
-**新闻来源：**[《内幕消息》](https://insiderpaper.com/australian-government-new-surveillance-laws-modify-twitter-facebook-posts/)｜作者：James Jin Kang|发布时间：2021年9月7日
+**新闻来源：**[《CNET》](https://www.cnet.com/personal-finance/panama-unveils-bill-to-make-bitcoin-legal-tender/)｜作者：朱利安·多塞特｜发布时间：2021年9月8日
 
 * * *
 
