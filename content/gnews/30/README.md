@@ -2,38 +2,35 @@
 ---
 
 
-## 德国大选白热化，对中共强硬成共识
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1522080/)
+## 加拿大人民在觉醒
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1523125/)
 
-栏目记者：七哩香
-责任编辑：Foxrina
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-86.png)
-距离德国联邦选举不到三周时间，新的民调呈现戏剧性转变。没有一个党派占据绝对优势，这为德国大选结果和政府组成添加了变数。然而分析认为，无论哪个党派赢得选举组成政府，都将对中共采取更强硬的立场。
+作者：香草山健身部 – 格格
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+9月8日下午1点，在加拿大温哥华市政府门前，由本地WeAreAllEssential(小业主协会)组织的反对强制打疫苗和反对疫苗护照的抗议活动，我们温哥华战友也自发聚集在Vancouver City Hall，加入到抗议的队伍中。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263366287933451/image0.jpg)
+在抗议现场，不同族裔的抗议者举着“COVID-19 ,Survival Rate 99.9%,Why risk an experimental vaccine?”( COVID-19，存活率99.9%，为什么要冒着危险试验疫苗)，“NO VACCINE COERCION”等标语牌子，表达自己的诉求。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263367948869672/image3.jpg)
+咱们温哥华战友，有的举着我们新中国联邦的国旗，有的举着“CCP MADE COVID -19 BIOCHEMICAL WEAPON”和“REJECT THE TYRANNY OF VACCINE  PASSWORDS”标语牌，有的在现场发放关于病毒疫苗的宣传单，还有多位抗议者上台发表演讲。新中国联邦温哥华扬帆农场的双鱼侠战友上台演讲时，揭露病毒来自于中共军方实验室，病毒疫苗对人们生活的影响，新中国联邦在郭文贵先生带领下坚持传播病毒疫苗真相，唯有消灭中共，世界才有真正的和平等等。双鱼侠战友的精彩演讲受到大家的欢迎。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263366749290536/image1.jpg)
+作为新中国联邦一员，响应郭先生的号召，我自愿参加了此次抗议集会，向过路市民发放宣传单，介绍咱们新中国联邦主张正道主义，揭露CCP病毒疫苗真相。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263367365881906/image2.jpg)
+亲历了这次活动，让我感触最深的是，有许多市民是主动向我要宣传单，与去年病毒肆孽期间，我和战友上街发病毒真相传单时，路人市民躲闪拒绝的情景形成鲜明对比，明显感觉到加拿大人开始觉醒了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-11.jpeg)
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
 
-民调机构Forsa 9月7日发布的调查显示，德国社民党的支持率较上月大幅上升7个百分点至25%，现总理默克尔所在的基民盟跌至19%，绿党紧随其后为17%，自民党为13%。
-
-默克尔的亲共政策遭到反对党和欧洲盟友的批评，其所在的基民盟被指以经济利益为借口，拒绝批评中共的侵略性外交。社民党批评默克尔的政策“已经过时”，称通过经济无法使中国变得自由民主。绿党和自民党对中共的立场则更加强硬，绿党的总理候选人贝尔博克表示，德国需要限制中共参与敏感经济领域，并团结欧洲一致对华。自民党则干脆在5月的党代会上删除了其竞选纲领中的“一个中国政策”的表述，称该政策让中共有借口打压香港的异议人士，并威胁台湾的民主自由。民调显示，58%的德国人认为，宁愿经贸受损，也应对中共更强硬。
-
-欧洲已经觉醒，民意的转变意味着默克尔亲共政府时代的落幕。
-
-(本文仅代表作者观点）
-
-参考链接：[德国大选白热化，对华强硬成共识](https://www.voachinese.com/a/china-germany-election-economy-20210908/6217943.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：FoxRina
-校对/发稿：谐趣园
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-
-
-0
++1

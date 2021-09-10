@@ -2,33 +2,29 @@
 ---
 
 
-## 美国敦促塔利班允许包机离开阿富汗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1522226/)
+## 美13名议员担忧拜登批准华为购买芯片
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1522512/)
 
-**圆成农场新闻组**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/C242CD2D-533E-4024-9184-80A498E916F3_cx0_cy7_cw0_w1023_r1_s1.jpg)图片来源：网络
-美国国务卿布林肯星期三敦促塔利班允许包机离开阿富汗。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-有报道说，美国公民和面临危险的阿富汗人被困在阿富汗北方的马扎里沙里夫机场，有些包机的组织人指责国务院没有充分努力促使他们离开。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/H.jpg)yahoo.com
+上午（9月9日）发文，开脑洞悉数了拜登政府疑似地与中共勾兑【1】，其实美国人也在担心！MSN转载了路透社文章“共和党议员对美国批准华为汽车芯片提出警告”，报道称，周四（9月9日），13名共和党议员对美国批准华为为其不断增长的汽车零部件业务购买芯片表示担忧。【2】
 
-华盛顿正与国际伙伴合作，向塔利班施加更大的压力，要塔利班履行允许选择离开阿富汗的任何人能安全自由离开的保证。
+文章说，“能源和商业委员会”（the Energy and Commerce Committee）的立法者询问美国运输部长（Transportation Secretary）皮特·布蒂吉格（Pete Buttigieg），是否担心“华为将在未来汽车零部件开发中寻找立足点，以便收集美国人和我们运输基础设施的信息”? 这是路透社从一封信中所看到的。
 
-布林肯和马斯星期三与一些合作伙伴和盟友举行了会谈，讨论阿富汗局势，包括在塔利班掌权后继续向阿富汗提供人道救援的努力。
+路透社8月曾报道，美国官员已经批准了被列入黑名单的中共国电信公司华为（Huawei）价值数亿美元的许可证申请。
 
-这次与22个国家、北约、欧盟和联合国高级官员举行的部长级视频会议举行的前一天，塔利班宣布了“看守”伊斯兰政府，后者由塔利班已故创始人毛拉奥马尔（Mullah Omar）的亲密副手毛拉阿洪德（Mullah Hasan Akhund）领导。
+（原文完）
 
-塔利班领导的新政府还包括内政部长哈卡尼（Sirajuddin Haqqani）。哈卡尼是被美国列为全球恐怖组织的哈卡尼网络的负责人。
+数亿美元，只是个名义上的数字，只要开了这个口，通过这条渠道什么“私活”夹带不了？这就是拜登政府，一步步地为中共松套、解套，按中共的布局行进。
 
-随着911的临近，美国与塔利班的旧仇新恨交织在一起，十分引人关注！
+还好，认清中共邪恶面目的立法者，在新中国联邦的提醒下，也在紧盯着拜登政府的一举一动，13名议员的行动说明，美国的正义力量也决不允许他们为所欲为。
 
-新闻链接：[https://www.voachinese.com/a/blinken-urge-taliban-to-allow-flights-to-leave-20210908/6217930.html](https://www.voachinese.com/a/blinken-urge-taliban-to-allow-flights-to-leave-20210908/6217930.html)
+有关链接：
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+【1】[https://gnews.org/zh-hans/1522272/](https://gnews.org/zh-hans/1522272/)
 
-编辑/发布：比卡丘
-
-20210909
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-
+【2】[https://www.msn.com/en-ca/money/topstories/republican-lawmakers-raise-alarm-about-u-s-approval-of-auto-chips-for-huawei/ar-AAOgDw1?ocid=msedgntp](https://www.msn.com/en-ca/money/topstories/republican-lawmakers-raise-alarm-about-u-s-approval-of-auto-chips-for-huawei/ar-AAOgDw1?ocid=msedgntp)
 
 0

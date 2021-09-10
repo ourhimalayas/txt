@@ -2,29 +2,26 @@
 ---
 
 
-## 美13名议员担忧拜登批准华为购买芯片
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1522512/)
+## 快讯：拜登与习近平通电话
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1523235/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/H.jpg)yahoo.com
-上午（9月9日）发文，开脑洞悉数了拜登政府疑似地与中共勾兑【1】，其实美国人也在担心！MSN转载了路透社文章“共和党议员对美国批准华为汽车芯片提出警告”，报道称，周四（9月9日），13名共和党议员对美国批准华为为其不断增长的汽车零部件业务购买芯片表示担忧。【2】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/B-1.jpg)bloomnews.net
+白宫最新消息：
+拜登与中共国主席习近平通话
+2021年9月9日
+声明和新闻稿
 
-文章说，“能源和商业委员会”（the Energy and Commerce Committee）的立法者询问美国运输部长（Transportation Secretary）皮特·布蒂吉格（Pete Buttigieg），是否担心“华为将在未来汽车零部件开发中寻找立足点，以便收集美国人和我们运输基础设施的信息”? 这是路透社从一封信中所看到的。
+约瑟夫·R·拜登（Joseph R. Biden）总统，今天（9月9日）与中共国的习近平主席对话，两位领导人进行了广泛的战略讨论，讨论了我们利益交汇的领域，以及我们利益、价值观和观点分歧的领域，他们同意要公开、坦率地处理这两组问题。拜登总统明确表示，此次讨论是美国持续努力的一部分，以负责任的方式管理美国和中共国之间的竞争，拜登总统强调了美国对印度洋-太平洋和世界和平、稳定与繁荣的持久利益，两位领导人讨论了两国确保竞争不会演变为冲突的责任。
 
-路透社8月曾报道，美国官员已经批准了被列入黑名单的中共国电信公司华为（Huawei）价值数亿美元的许可证申请。
+（新闻稿完）
 
-（原文完）
+全世界都在孤立这个邪魔政权，你拜登还在巴结他们，名义上是在通话，没准还在继续勾兑，且看你们还进行怎样的表演！
 
-数亿美元，只是个名义上的数字，只要开了这个口，通过这条渠道什么“私活”夹带不了？这就是拜登政府，一步步地为中共松套、解套，按中共的布局行进。
+原文链接：
 
-还好，认清中共邪恶面目的立法者，在新中国联邦的提醒下，也在紧盯着拜登政府的一举一动，13名议员的行动说明，美国的正义力量也决不允许他们为所欲为。
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1522272/](https://gnews.org/zh-hans/1522272/)
-
-【2】[https://www.msn.com/en-ca/money/topstories/republican-lawmakers-raise-alarm-about-u-s-approval-of-auto-chips-for-huawei/ar-AAOgDw1?ocid=msedgntp](https://www.msn.com/en-ca/money/topstories/republican-lawmakers-raise-alarm-about-u-s-approval-of-auto-chips-for-huawei/ar-AAOgDw1?ocid=msedgntp)
+[https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/09/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-the-peoples-republic-of-china/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/09/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-the-peoples-republic-of-china/)
 
 0

@@ -2,19 +2,47 @@
 ---
 
 
-## 秘翻在线: 文化市场的大疯狂标志着什么
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1522581/)
+## 曾经接种先锋以色列 如今向世界展示次生灾难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523186/)
 
-撰稿：西枫westca
+栏目记者/责任编辑：安吉娜
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+新冠疫苗对人体免疫系统造成不可逆破坏，并导致多种不良副反应、诱发各类疾病，危害生命。以色列，作为曾经新冠疫苗接种竞赛中的领跑者，如今伴随疫情高发，已然成为疫苗政治次生灾难前线地区之一。前一周数据分析显示，以色列人均病例数和感染后的严重程度在任何地方都是最高的。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-1-1.jpg)图片来源：www.theverge.com
-据The Verge网站9月9日报道，苏富比刚刚以2440万美元拍卖出一串无聊猿NFT。苏富比的此次拍卖来自尤佳实验室， 这是一组来自“无聊猿游艇俱乐部中近10000只猿的随机选择。它们以水手帽、眼罩、骨项链、耳环和其他配件的独特排列来装扮。拍卖价以1200万起价。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-13.jpeg)
 
-NFT是一种可收藏的数字资产，是以太坊区块链的一部分。它的价值是以一种加密货币和一种艺术或文化形式所显示。就像艺术被视为一种保值投资一样。但是与区块链中的标准硬币不同，NFT 是独一无二的，不能进行同类交换（因此，不可替代）。NFT 的类型多种多样，任何可以以数字存储并被认为具有价值的独特事物。 从本质上讲，它们就像任何其他物理收藏家的物品一样，但不是收到画布上的油画挂在墙上，而是以 JPG 、MP3、GIF等形式呈现。因其具有价值，所以它们可以像其他类型的艺术品一样被买卖——而且，就像实物艺术品一样，其价值在很大程度上取决于市场和需求。像苏富比和佳士得这样的数百年历史的拍卖行已经看到了推广这种艺术新形式的价值，并开始主办一些高调的NFT拍卖会，从中获取10%的佣金。
+以色列政府为儿童及三十岁以下年轻人接种疫苗，并使用辉瑞加强针，使得以色列年轻人出现心脏病高发趋势。人们感到受到了政府的欺骗，甚至对宗教产生了怀疑。以色列也有医生使用伊维菌素治疗中共病毒感染，但同样被网络审查压制。
 
-这桩疯狂的交易，被西方媒体认作为是那些无聊的以太币持有者的一种洗钱方式。郭先生刚刚在两天前的大直播中指出，在文化交易市场存在着大量的权钱交易，全世界的艺术界比黑社会还要黑暗。 在数字货币将要走上世界舞台之时，一种以艺术为名的NFT逢时而生。它会是黑暗势力来操作社会的又一种工具吗？
+郭先生在8月28日直播中提到，净化人类的计划，比尔盖茨、沃伦巴菲特、中共和以色列都在进行；未来只有集权统治。两年后会看，会更为清除的认识到现在经历的是人类、宗教的大搏杀。 如今，很多看清真相的以色列在社交媒体上发文，愤怒的表示，政府推行的疫苗护照，如同二战时期被纳粹占领的欧洲，犹太人，无论老少，包括婴儿车里的婴儿，都被迫佩戴的黄色六角星徽章。这些标识对犹太人是羞辱、并将他们标记为隔离和歧视的对象，甚至成为以后在大屠杀中更易被识别。
 
-**新闻来源：**[Bored Ape Yacht Club auction sells for millions – The Verge](https://www.theverge.com/2021/9/9/22664469/bored-ape-yacht-club-sothebys-auction-amount)
+参考链接：
+[The Yellow Star](https://www.bl.uk/learning/histcitizen/voices/info/yellowstar/theyellowstar.html)
+[Israel was a vaccination poster child. Now its COVID surge shows the world what’s coming next](https://fortune.com/2021/09/07/israel-vaccination-poster-child-covid-surge-shows-world-coming-next/)
 
-0
+
+
+> [郭文贵先生GTV直播2021年8月28日文字精简版分享](https://gnews.org/zh-hans/1499513/)
+
+
+
+本文仅代表作者观点
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+
+**终审： 鬼五**
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
++2

@@ -2,24 +2,21 @@
 ---
 
 
-## 雅典娜时报-第047期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1523162/)
+## 时隔7个月美中首脑举行电话峰会
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1523204/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 作者：东京樱花团｜文小白
 
-#### **编辑：**精靈藍
-**排版：**小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0909拜习会.jpg)[图片来源](https://jp.reuters.com/article/biden-xi-idJPKBN2G6078?il=0)
+
+根据2021年9月9日路透社消息，美国总统拜登与中国国家主席习近平举行了电话会谈。 据白宫透露。 这是自今年2月以来，时隔7个月，两国领导人的首次直接对话。
+
+信息来源：[2021年9月9日 美中领导人通电话 公开讨论双边关系](https://jp.reuters.com/article/biden-xi-idJPKBN2G6078?il=0)
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对、发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-5-e1630998215814.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-11-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-7.png)
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-*发布：小红帽*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-0
++1
