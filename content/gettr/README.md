@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/10/2021 11:46 PM (UTC)`
+
+9/10/2021 Miles Guo：The phone call between Biden and Xi is good for us! Because the day the CCP and the U.S. talks about resuming their cooperation is the day the CCP will perish! Wang Qishan rose to the top of the CCP because of Russia! The CCP is pro-Russian at heart!<br/><br/>9/10/2021 文贵直播：拜登和习的通话对咱是好事！因为中共和美国重谈合作之时，就是中共灭亡之日！王岐山能进入中共权力核心靠的就是俄罗斯！中共的骨子里是亲俄的！<br/>
+![img](https://media.gettr.com/group30/getter/2021/09/10/23/9e42ab98-e998-1f8d-2ef4-5dc2cc136387/out.jpg)
+
+---
+
 `@miles 9/10/2021 11:38 PM (UTC)`
 
 9/10/2021 Miles Guo ：Who is protecting the Jiang family and the Zhu family? Why do Bloomberg and Soros endorse Wang Qishan rather than Xi Jinping? Which one of the CCP’s old kleptocrats is in the same boat with the dark forces?<br/><br/>9/10/2021 文贵直播：是谁在保护着江家和朱家？为什么布隆伯格和索罗斯捧的是王岐山而非习近平？共产党老杂毛中谁是跟黑暗势力穿一条裤子的？
@@ -302,13 +309,6 @@ I have no delusions about winning a Nobel Prize for the tremendous success that 
 
 9月6号：尊敬的战友们好．黑天鹅事件，和延安的摇窖洞崩塌……断了共产党的根呀……因此同时发生的对台的战争方案临时的改变……这将意味着什么？天助台湾的呢……明天上午9:00继续和战友们一起大直播，聊一些共产党的艺术性．和艺术市场的勾兑．开启我们的用艺术灭共的新时代！
 ![img](https://media.gettr.com/group47/getter/2021/09/06/14/4a253f2c-641c-f00b-4ae3-96d0299a53c4/out.jpg)
-
----
-
-`@miles 9/6/2021 1:49 PM (UTC)`
-
-9月6号：尊敬的战友们好，你们传播CC P病毒疫苗的解药了吗？你们健身了吗？一切都已经开始！
-![img](https://media.gettr.com/group17/getter/2021/09/06/13/254f3e6c-3fff-7e0a-80b5-390920a56287/out.jpg)
 
 ---
 
