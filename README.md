@@ -28,23 +28,23 @@
 ### [美疫苗接种报告：65万不良事件](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共房地产市值高过美德法日英](/content/gnews/6/README.md)
+### [串珠384：病毒开启了世界政治、经济的大重启模式](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
+
+### [串珠383：秘书周亮要被抓，王岐山会疯掉](/content/gnews/7/README.md)
+ ` 郭爆料串珠`
+
+### [中共房地产市值高过美德法日英](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [“自由律师”律所证实FDA就批准辉瑞疫苗向美国人撒谎](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵先生盖特视频2021年9月9日文字精简版分享](/content/gnews/8/README.md)
- ` TS2020相聚盘古`
-
-### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/9/README.md)
- ` 秘密翻译组G-Translators`
-
-### [秘翻在线：拜登疫苗新规将迫使百人以上私营企业接种新冠疫苗](/content/gnews/10/README.md)
- ` 秘密翻译组G-Translators`
-
-### [打疫苗](/content/gnews/11/README.md)
+### [最后一课：加拿大伦理学教授认为强制接种疫苗违反伦理](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [国会共和党人攻击拜登的疫苗接种强制令](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
@@ -103,29 +103,29 @@
 ### [台湾公布最新民调, 近九成民众不接受“一国两制”](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [德国选举，检察官调查俄罗斯黑客攻击](/content/gnews/31/README.md)
- ` Charlie`
-
-### [习：美国政策造成严重困难](/content/gnews/32/README.md)
- ` Charlie`
-
-### [几内亚政变让中（共）国担忧](/content/gnews/33/README.md)
- ` Charlie`
-
-### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/34/README.md)
- ` 秘密翻译组G-Translators`
-
-### [银河快讯：G7财长就新国际税收规则达成协议；日本放弃举办2021年世俱杯](/content/gnews/35/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [秘翻在线：中美通话，又是一场新的勾兑？](/content/gnews/36/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《追风筝的人》和中共政府在新疆的时间扭曲大法](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [币圈新闻动态：纳斯达克证券交易所将是向DeFi Chain代币化股票服务提供喂价](/content/gnews/38/README.md)
+### [每日快报：Tik Tok向13-15岁的未成年人推荐性、毒品和酒精主题的内容](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
+
+### [“自由律师”律所证实FDA就批准辉瑞疫苗向美国人撒谎](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共发誓对所有文娱工作者进行强行驯化](/content/gnews/33/README.md)
+ ` 日本东京樱花团`
+
+### [德国选举，检察官调查俄罗斯黑客攻击](/content/gnews/34/README.md)
+ ` Charlie`
+
+### [习：美国政策造成严重困难](/content/gnews/35/README.md)
+ ` Charlie`
+
+### [几内亚政变让中（共）国担忧](/content/gnews/36/README.md)
+ ` Charlie`
+
+### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [银河快讯：G7财长就新国际税收规则达成协议；日本放弃举办2021年世俱杯](/content/gnews/38/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/47/README.md)
+### [国会共和党人攻击拜登的疫苗接种强制令](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/48/README.md)
  ` G-NEWS TAIWAN`
 
-### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/48/README.md)
+### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/49/README.md)
  ` G-NEWS TAIWAN`
 
-### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/49/README.md)
+### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/50/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/50/README.md)
+### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/51/README.md)
  ` G&#124;News TAIWAN`
 
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/51/README.md)
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/52/README.md)
  ` G&#124;News TAIWAN`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/52/README.md)
+### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/53/README.md)
  ` G&#124;News TAIWAN`
 
-### [樱花灭共诗——应天长•美挑战海上交通法](/content/gnews/53/README.md)
+### [樱花灭共诗——应天长•美挑战海上交通法](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [纽约邮报罔顾事实称中共病毒疫苗有效](/content/gnews/54/README.md)
+### [纽约邮报罔顾事实称中共病毒疫苗有效](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/55/README.md)
+### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [快讯：拜登与习近平通电话](/content/gnews/56/README.md)
+### [快讯：拜登与习近平通电话](/content/gnews/57/README.md)
  ` HimalayaRussia`
-
-### [国际要闻汇编](/content/gnews/57/README.md)
- ` 日本东京樱花团`
 

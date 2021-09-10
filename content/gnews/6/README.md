@@ -2,218 +2,82 @@
 ---
 
 
-## 中共房地产市值高过美德法日英
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1523613/)
+## 串珠384：病毒开启了世界政治、经济的大重启模式
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1523665/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-10.jpg)[https://gtv.org/video/id=613addf3784c5a2583545357](https://gtv.org/video/id=613addf3784c5a2583545357)
+**简述：**明天我就给大家宣布，我们所有战友们要面对一个问题，从明天开始起我们就该分辨什么呢？老世界和新世界。从明天起咱再说话老世界就是从明天以前叫老世界了，从明天之后就叫新世界。一定要这么看问题，这不是开玩笑的。对我们爆料革命，不都是有利的，有些还有弊的。世界银行IMF，这些大的金融机构、国际机构，还NGO组织，包括联合国全部都得重启了。支撑它们的是美国，以美国资本主义、民主社会、具有西方宗教文明的社会，严格讲是蓝色海洋国家，地球上绝大多数的海洋国家，基督教徒，犹太教系，资本主义，民主文明，英国大陆法（系），是这些为基础的联合国和二战后的美国，以美元为主导的西方民主社会。——郭文贵2020年3月13日
 
+现在世界经济、政治都在大重启的模式，任何一个国家的主题离不开病毒，离不开共产党。共产党不仅搞病毒，搞中国共产党为标准的CCP经济，还在全世界输出革命。接下来中共有一系列对美、对欧的经济政策公布，都会给市场带来了巨大的不确定性。——郭文贵2021年2月6日
 
-马明哲现在出事儿的时候
-Ahora que Mingzhe Ma está en problemas
+![](https://assets.gnews.org/wp-content/uploads/2021/09/394-1.jpg)
 
-查马明哲的时候
-Cuando lo estaban investigando
+封面：从明天以前叫老世界了，从明天之后就叫新世界。一定要这么看问题，这不是开玩笑的。郭文贵2020年3月13日
 
-你想到中国房地产是多少钱吗?
-Has pensado cuánto vale la propiedad inmobiliaria en China?
+共产党不仅搞病毒，搞中共为标准的CCP经济，还在全世界输出革命。郭文贵2021年2月6日
 
-我现在问一件(事), 大卫
-Ahora te pregunto una cosa, David
+**2020年3月13日**
 
-你知道中国房地产整个市值多少吗?
-¿Sabes cuánto es el valor total del mercado de las propiedades inmobiliarias en China?
+明天我就给大家宣布，我们所有战友们要面对一个问题，从明天开始起我们就该分辨什么呢？老世界和新世界。从明天起咱再说话老世界就是从明天以前叫老世界了，从明天之后就叫新世界。一定要这么看问题，这不是开玩笑的。对我们爆料革命，不都是有利的，有些还有弊的。
 
-我觉得有60万亿左右吧
-Yo pienso que son aproximadamente 60 billones
+世界银行IMF，这些大的金融机构、国际机构，还NGO组织，包括联合国全部都得重启了。支撑它们的是美国，以美国资本主义、民主社会、具有西方宗教文明的社会，严格讲是蓝色海洋国家，地球上绝大多数的海洋国家，基督教徒，犹太教系，资本主义，民主文明，英国大陆法（系），是这些为基础的联合国和二战后的美国，以美元为主导的西方民主社会。
 
-我也知道你会说是60万亿
-Yo sabía que ibas a decir 60 billones
+现在是什么概念了？现在是以海洋国家遇到了最大威胁，大陆国家包括中国为首的俄罗斯，包括印度，这些国家，包括南美一些国家，现在遇到了一个新的挑战，新的一个机会。世界版图将彻底改变。
 
-这是官方数字
-Este es el número oficial
+所以说明天我给大家讲讲，再往下发展会发展到哪去？灭掉共产党这个词说得可容易了，你以为共产党这个机构说“叭唧”就没了，然后世界就在等着，美国在等着：啊！共产党没了，那我跟新中国打交道吧！…哪那么简单呐？你关掉一个小卖店，你想想有多少事呀？工商执照，税务执照，员工遣散，废旧东西处理，新东西怎么办？欠货款怎么办？一堆的事呢！小卖部（都如此），何况一个国家政权呢？！可没那么简单！
 
-中国房地产是90万亿
-La propiedad inmobiliaria de China es 90 billones
+所以说兄弟姐妹们，灭共产党所有的中国人，党内的人都在恨共产党，包括习近平。没了共产党自己会怎么样？没有共产党的中国会怎么样？美国人也在这么想。
 
-90万亿你知道大卫意味着什么?
-David, ¿sabes qué significa estos 90 billones?
+最近我们美国几个最牛的哥们，每次都问我：“Miles，没有共产党的中国谁穷？谁可信？没有共产党中国是什么样？”都在问我这话。我再说一遍，爆料革命，一但把自己神化，然后跳进政治的漩涡里，权力的漩涡里，那我们就是第二个魔鬼将来世上。人家打开潘多拉盒子放出的魔鬼，我们就是其中魔鬼之一。只要我们心里一直动念，想去搞政治，那就必死无疑，绝对是魔鬼。但是爆料革命的战友们出来一批精英，会参与到新中国的建立，这是必须的。但是那是人民一人一票选举的结果和国际重建机构的认可。
 
-安红你知道吗?
-Anhong, ¿sabes?
+爆料革命在任何情况下，我们就是一个普普通通的草根，我们就是普普通通的人。（如果）要把自己像马克思，像列宁，包括像过去罗马帝国，包括西班牙帝国都是打着宗教的名义，弄成神的名义，都是神的战争，都神化，先神化，包括共产主义它本质就是神化自己，都是糊弄老百姓，那咱就是魔鬼。我们就是普通的人！
 
-你知道美国是多少吗?
-¿Sabes cuánto es en EE. UU?
+这两天，昨天晚上欧洲的好多国家领导人说：Miles，我们现在严肃认真的跟你谈谈，如何在没有共产党的中国跟你合作？跟你爆料革命合作？我们很严肃和认真，我们可以率先宣布，我们承认爆料革命是新中国民主的下一个什么政治改革和走向西方民主国际合作的一个主要力量，然后我们会承认你们这个机构什么什么官方的合法性。我说你觉得说这个有意思吗？你能不能活到那一天都两回事。还有我再给你们重申，如果郭文贵和爆料革命愿意那么做，你们记住，我们比共产党还坏。你们又将犯一个错误，再陪一个魔鬼。不可能的！我说我们就是普通的人。
 
-日本多少吗? 德国, 法国
-En Japón, Alemania y Francia
+**2020年3月27日**
 
-你知道这几个国家加在一起的和是多少
-Sabes cuánto es el total de todos estos países
+我给他原话，我说现在对每个人来讲都是最好的时间。在我们的有生之年永远不可能，你再回到今天此时此刻，包括今天正在看直播的战友们。你们想人类上回到今天这个事绝不再可能，不管这病毒是没了还是不没了，我可以告诉你永远不可能。
 
-你们知道吗?
-¿Lo saben?
+所有今天这一刻，以前的都将成为美好的回忆或者叫美好的难忘的回忆。你记住永远不可能比现在再好了，永远不可能。人类的这70年最好的日子过到头了。
 
-这些美国, 日本, 德国, 法国, 英国加在一起
-Así como EE. UU, Japón, Alemania, Francia y Reino Unido, sumando a todos
+而让我告诉他，伦敦只能更坏，永远不可能再好。只是坏到什么程度而已，对你来讲回到乡下去现在是最好的时间，多一秒钟都是浪费都是作死。很多人还没想明白呢，它这个病毒，你看看日本做的那个我发到咱们战友群的视频，它这个东西简直跟有生命一样，我说叫AI病毒，它在空中能待很长时间，一喷出去全世界如果战友们现在跟我嘴对嘴的话你们都被传染上了，如果咱嘴对嘴我也早被传染上了，咱们大家如果有一个有的早都被传染了，全完了。那多可怕啊，金属的东西摸完以后长时间存在，最长达十几天呐，日本还正在拍还没拍完呢，过两天还要再出来，就是说他们摸过的电视机电视屏最长的达17天，就摸过的电视屏、电视、包括手机有可能时间更长，它跟那个电子不知道产生了什么反应，非常恐怖啊战友们。
 
-它还不到90万亿
-No llega ni a 90 billones
+这个时候你活着，你就别想着活多舒坦了，能躲过这一劫的人都是大菩萨，你就大造化了，所以说伦敦这愣了，他说那我们现在搬家，我说你赶快收拾收拾快搬出去。这个约翰Johnson（英国首相）这个傻叉我说对了吧，我从1月份就说他将付出巨大的代价，马克龙将付出巨大代价，包括美国政府，现在已经在付代价了，原因很简单战友们，只要你相信共产党，你就得走进火葬场，只要你和共产党有合作，你将失去一切所拥有的，这是毋庸置疑的，所以说他们现在遭受这样的事情完全是情理之中啊。
 
-(只有) 80万亿
-(Solamente) hay 80 billones
+**2021年2月6日直播**
 
-就是中国共产党的房地产市场
-Significa que el mercado inmobiliario del PCCh sobrepasa
+中共有病毒解药
 
-是这些美法德意日总和还超过你
-A estos cinco países mencionados anteriormente
+英国、法国跟共产党减少了接触和合作，少用了共产党的疫苗，减少中共派来的技术和协助合作人员，疫情好转。香港人不愿意跟老共合作，减少了去共匪控制区。目前是中国所谓发达地区感染率最低的。天天举着红旗，跟着中南坑老杂毛混的地方，国内病毒全都出大事了。
 
-你知道共产党的这个真实的
-Sabes cuál es el porcentaje real
+如果病毒能控制住，是人类最大的幸福。但是全世界的经济家，有脑子的人，精英们都知道，共产党绝对有解药。共产党的高官不染病、不死人，没有解药控制不到这个程度。要想安全，找共产党要解药！要想好少感染，真正解决问题，少和共产党合作。
 
-它的GDP的多少倍吗
-En cuanto al producto bruto interno (PBI) de PCCh
+如果共产党能把解药给拿出来，世界的经济将一个大迸发、大复苏、大发展。一旦确认共产党有解药或者未成功的疫苗，共产党又不给的话，那战争是不可避免的。如果中共给解药，就坐实了共产党制造的生化武器。跟共产党之间将有一段巨大的政治、外交、金融方面的较量，无论经济战争还是火战，最后都不可避免以战争结束。
 
-没概念吧, 兄弟们
-No tienen idea, ¿cierto? Hermanos
+世界经济将非常不稳定
 
-你们几个都没有 (知道的)
-Todos ustedes no saben
+现在世界经济、政治都在大重启的模式，任何一个国家的主题离不开病毒，离不开共产党。共产党不仅搞病毒，搞中国共产党为标准的CCP经济，还在全世界输出革命。接下来中共有一系列对美、对欧的经济政策公布，都会给市场带来了巨大的不确定性。
 
-看谁举手啊
-A ver quién se levanta la mano
+**2021年3月11日**
 
-打断我啊, 500%
-Para interrumpirme, son 500%
+美国的恶性通胀，共产党的恶性的整个全世界的货币扩张，然后恶性的所谓的疫苗经济和疫苗认证，到了人类上所有的一切，不是他们的大重启，是我们的大重启。他酝酿了一个大重启的按钮，最后是我们来按，根据我们的计划来算。走着看，兄弟姐妹们，还是那句话:莘县阳谷县搭县，咱们走走看！共产党你完球蛋了！不信咱走走看。好了，今天就直播到这儿。咱们一起为75亿全世界人民、14亿新中国联邦同胞、台湾同胞、西藏同胞、香港同胞和所有爆料革命的战友和家人们祈福！
 
-官方说是400%
-Oficialmente dicen que es el 400%
+**2021年3月13日盖特**
 
-实际是500%
-En realidad es el 500%
+新中国联邦人未来如何面对中国人最重要的文化基础—家庭文化。新中国联邦建国根本，关于如何理解孝敬，如何对待老人和父母，孝敬和人权、政体、科技的关系。特别在这恶魔当道，人类大重启关键的时代,对我们每个人都很重要。
 
-你知道美国是多少倍吗?
-¿Sabes cuánto es en EE. UU?
+* * *
 
-你们几个知道吗?
-Ustedes saben?
+郭爆料串珠系列文章，都是从900多篇郭文贵先生直播听写文字版、盖特精选而成，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
 
-美国的房地产总市值
-El valor total del mercado de las propiedades inmobiliarias en EE. UU
+整理：文迅等 | 封面设计：展翅上腾 | 校对/发布：拱卒
 
-是它的GDP的1.6倍
-Es 1.6 veces de su PBI
+#### 相关阅读链接：[《郭爆料串珠系列》文章标题和链接汇总](https://gnews.org/zh-hans/?s=%E4%B8%B2%E7%8F%A0)
 
-事实上, 达2倍
-Realmente, alcanza el doble
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-日本大概得2倍多
-Al igual que en Japón
 
-英国3.5倍, 法国3.5倍
-En Reino Unido y Francia es el triple y medio
-
-德国大概3倍左右
-Alemania es aproximadamente el triple
-
-那么, 我告诉你
-Entonces, te digo
-
-这是什么概念
-En qué consiste esto
-
-美国房地美当年出事的时候
-En aquel momento cuando Freddie Mac estaba en problemas
-
-你知道它的房地产GDP是多少吗?
-¿Sabías cuanto fue su PBI de la propiedad inmobiliaria?
-
-是它的GDP
-Es su PBI
-
-房地产的总额是它的GDP 1.6倍而已
-El valor total de la propiedad inmobiliaria es nada mas el 1.6 veces de su PBI
-
-160%
-160%
-
-现在的美国房地产还是在160%
-Actualmente, la propiedad inmobiliaria de EE. UU sigue siendo el 160%
-
-当年的日本经济危机
-La crisis económica de Japón en ese entonces
-
-房地产是它的 (GDP) 300%
-La propiedad inmobiliaria es el 300% de su PBI
-
-就是今天共产党的
-Significa que hoy el PCCh
-
-已经超过300的二倍了
-Ya supera el doble del 300%
-
-基本是300% (的二倍), 兄弟
-Hermano, básicamente (es el doble) de 300%
-
-你看这个经济
-Mira esta economía
-
-我再跟你说
-Y luego te digo
-
-一个你没有想到
-Algo que no se te ha ocurrido
-
-所有这些数据更可怕的事情
-Que es algo más terrible que todos estos datos
-
-美意法英日人家是包含了所有的
-El valor de la propiedad inmobiliaria de estos cinco países involucra todo
-
-就是他是资本市场, 市场经济
-Lo que es su mercado capital y de economía
-
-没有什么老宅, 新宅, 农村宅, 什么宅
-No existe lo que es vivienda vieja, nueva, rural, entre otros
-
-它都是房地产
-Todos son propiedades inmobiliarias
-
-只要你有贷款的
-Mientras tengas un préstamo
-
-只要有市值的, 都算在里边了
-Siempre tenga un valor en el mercado, se tomará en cuenta
-
-可以说是100%
-Puede decir que es el 100%
-
-中共国的房地产只包含商品房
-Las propiedades inmobiliarias del PCCh solamente está incluido vivienda de productos básicos
-
-没含安红她老家那的房子
-Excluyendo la casa de Anhong en su ciudad natal
-
-也没(含)盖喜安娜她祖爷的房
-Tampoco incluye la casa del bisabuelo de Gaixianna
-
-(中共国) 就是这纯商业房
-(En la República Popular de China) es simplemente vivienda comercial
-
-就(已经)90万亿美元
-Y vale 90 billones de dólares
-
-原视频日期：06/09/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1434804790437957633?s=24
-视频时间段：0:00-2:10
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
