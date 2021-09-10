@@ -28,14 +28,14 @@
 ### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [2021/09/09文贵先生盖特精要](/content/gnews/6/README.md)
+### [郭文贵先生GTV直播2021年9月8日文字精简版分享](/content/gnews/6/README.md)
+ ` TS2020相聚盘古`
+
+### [2021/09/09文贵先生盖特精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/08文贵先生直播精要](/content/gnews/7/README.md)
+### [2021/09/08文贵先生直播精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [艺术品拍卖行业的黑暗](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [澳洲天主教神父呼吁政府给予个人选择不接种疫苗的自由](/content/gnews/9/README.md)
  ` 澳喜农场`
