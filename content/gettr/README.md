@@ -15,6 +15,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/10/2021 12:49 AM (UTC)`
+
+9/9/2021 Miles Guo’s GETTR: The international dark forces have controlled everything in the CCP and therefore controls the whole China! Why hasn’t any Western media exposed any kind of crimes committed by the CCP’s old kleptocrats? Because they are covered up by the dark forces<br/><br/>9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着
+![img](https://media.gettr.com/group26/getter/2021/09/10/00/bc451203-a0f7-f43a-4994-6eba5f1fe993/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@drzevzelenko 9/9/2021 5:58 PM (UTC)`
+
+Good information here.
+> `@miles 9/9/2021 2:55 PM (UTC)`<br/>🙏🙏🙏🙏🙏🙏🙏 <br/>【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
+![img](https://media.gettr.com/group16/getter/2021/09/09/14/4882323e-b270-2b88-cf3d-eeb0104228d7/bf4e973ac9b5f393e8592a61a0e4659e.jpg)
+
+---
+
 `@miles 9/9/2021 7:05 PM (UTC)`
 
 G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要的项目考察，马上将和米兰最优秀的工厂签约，并在当地设置分公司. G|FASHION驻米兰设计师团队不久将推出更加惊艳的新产品，继续引爆时尚潮流. 🔥🔥🔥❤️❤️❤️❤️ 
@@ -290,21 +307,6 @@ Clues of COVID-19 to be recognized as bioweapon regarding Wuhan<br/><br/>关于�
 
 9/5/2021 Miles Guo：Peter Ma plays with both the CCP and the entire world, and he is among the few in this planet that can provide 100 billion USD in cash at any time. He was the most powerful person that was the first to lay out the plans of the COVID vaccines! Without the help of Xi family and the American bigshots, Lufax would not be able to be listed in the U.S. so quickly<br/><br/>9/5/2021 文贵直播：马明哲玩得动中共和全世界，他是全球屈指可数的能随时拿出1000亿美元现金的人之一，布局中共病毒疫苗最早和最厉害的也是他！陆金所能在美国以神速上市靠的是习家和美国大佬！<br/>
 ![img](https://media.gettr.com/group27/getter/2021/09/05/21/e8bb4a38-2b61-3e5a-4efa-43c0056aa153/out.jpg)
-
----
-
-`@miles 9/5/2021 8:17 PM (UTC)`
-
-The heavens master of all things arranged this event at such a time and place, a physical world with absolute symbolic significance, the manifestation of God’s will! It is so far-reaching that it will become the most significant event in the history and the future of mankind. Another one of the greatest true legends of faith and religion. From this moment on, faith and religion and our physical world will move to a new chapter of history. This is the greatness of the Internet and social media time, no one can manipulate the Black Swan event anymore, set up all kinds of donations and religious organizations to deceive and fool the ordinary people. In the age of the Internet, the truth is very close to us, which is the greatness of this magnificent era!🙏🙏🙏🙏🙏🙏🙏🙏
-> `@miles 9/5/2021 8:16 PM (UTC)`<br/>September 5th, a manifestation of the heavens. A black swan landed in Beijing's Tiananmen Square. It is the only time in the history of China that can be traced, at the heart of 1.4 billion people, at the core of China, at this most sensitive time, the showing of the black swan symbolizing the change, the turning over of the heavens and the earth, a representation of the message from above. This is a natural fact that CCTV and all the propaganda agencies in China cannot change, and this is the last warning from the heavens to China. This is both a final warning to China and a final opportunity for the Chinese people to understand and cherish this opportunity! We shall see ......
-![img](https://media.gettr.com/group23/origin/2021/09/05/20/c4872a23-d29c-fe56-35a8-8ee57a6b3ef2/out.jpg)
-
----
-
-`@miles 9/5/2021 8:16 PM (UTC)`
-
-September 5th, a manifestation of the heavens. A black swan landed in Beijing's Tiananmen Square. It is the only time in the history of China that can be traced, at the heart of 1.4 billion people, at the core of China, at this most sensitive time, the showing of the black swan symbolizing the change, the turning over of the heavens and the earth, a representation of the message from above. This is a natural fact that CCTV and all the propaganda agencies in China cannot change, and this is the last warning from the heavens to China. This is both a final warning to China and a final opportunity for the Chinese people to understand and cherish this opportunity! We shall see ......
-![img](https://media.gettr.com/group23/origin/2021/09/05/20/c4872a23-d29c-fe56-35a8-8ee57a6b3ef2/out.jpg)
 
 ---
 
