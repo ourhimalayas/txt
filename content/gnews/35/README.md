@@ -2,31 +2,31 @@
 ---
 
 
-## 中情局有意注册抖音账号，卢比奥参议员公开反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524059/)
+## 德国检察官突查财政部和司法部
+` AUJenny` [轉載自GNews](https://gnews.org/zh-hans/1524021/)
 
-栏目记者/责任编辑：有莫举名
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
-9月9日，美国联邦参议员、参议院情报委员会副主席卢比奥发表声明, 公开反对美中情局在抖音注册账号的意向，强调此举将危害美国国家安全。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-98.png)
-9月8日，中情局发言人称中情局有可能在抖音海外版上注册账号。卢比奥随即致函中情局局长伯恩斯, 敦促他“承诺中情局不会入驻抖音，以及任何对国家安全以及用户数据隐私构成威胁的其它社媒平台。”去年8月份，针对外界担心中共政府通过抖音收集美国用户资料一事，中情局曾提出一份报告，指无证据显示这一担忧, 令人大跌眼镜 !
+翻译撰稿：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1172.jpg)网络截图
+周四，德国检察官突击检查了财政部和司法部，指控政府的反洗钱机构–金融情报部门（FIU）未能调查许多银行洗钱的情况。指控的核心是金融情报室没有将报告转交给警方和司法部门，然而，”目前还不清楚金融情报室是自己没有转发欺诈报告，还是被一个或两个部委的人指示这样做”。
 
-(本文仅代表作者观点)
+据信，有 “数以百万计 “自非洲的钱涉嫌洗钱，但德国的金融情报部门（隶属于财政部）却视而不见。
 
-参考链接：
+近几个月来金融犯罪监督机构一直受到审查。”DW写道：”该组织还被怀疑掩盖了德国金融技术公司Wirecard的欺诈行为，该公司去年以惊人的方式倒闭了。
 
-[https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html](https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html)
+“这对德国来说是一个安全风险，”一位立法者Fabio De Masi在突击检查后说。”我们需要一个具有刑事专业知识的金融警察。德国是犯罪分子的天堂”。
 
-[https://www.zaobao.com.sg/realtime/world/story20200809-1075631](https://www.zaobao.com.sg/realtime/world/story20200809-1075631)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-99.png)
-终审:  文龙
-校正/发稿：浪迹天涯
+检察官表示，他们目前没有怀疑任何特定的雇员有犯罪行为，但一个关键的问题是，金融情报机构是否奉命无视银行对可疑交易的警告，还是因为无能和缺乏资源？
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+评论：德国现任财政部长肖尔茨(Olaf Scholz)是社会民主党的热门总理候选人。8月底，在距离今年德国大选投票日还剩下不到4周的时候，他在三名总理候选人实况辩论会上表现突出，民调显示肖尔茨支持率最高。他在老年选民中的支持率为46%，中年选民的支持率为49%，而在年轻选民中的支持率也高达31%。显然，这次突击检查将肖尔茨推上了舆论的风头浪尖，竞选之路也将更加艰难。
+
+七哥在近期的直播中提过，明年几个影响世界格局的大选，其中包括德国。
+
+（本文纯属纯属个人观点，与Gnews无关）
+
+[原文链接：](https://t.co/7RudgISn8L)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/AUSTRALIA-1.jpeg)
+
 
 0

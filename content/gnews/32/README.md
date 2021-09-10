@@ -2,31 +2,37 @@
 ---
 
 
-## 德国检察官突查财政部和司法部
-` AUJenny` [轉載自GNews](https://gnews.org/zh-hans/1524021/)
+## 13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524266/)
 
-翻译撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1172.jpg)网络截图
-周四，德国检察官突击检查了财政部和司法部，指控政府的反洗钱机构–金融情报部门（FIU）未能调查许多银行洗钱的情况。指控的核心是金融情报室没有将报告转交给警方和司法部门，然而，”目前还不清楚金融情报室是自己没有转发欺诈报告，还是被一个或两个部委的人指示这样做”。
+作者：香草山教育部-有莫举名
 
-据信，有 “数以百万计 “自非洲的钱涉嫌洗钱，但德国的金融情报部门（隶属于财政部）却视而不见。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
-近几个月来金融犯罪监督机构一直受到审查。”DW写道：”该组织还被怀疑掩盖了德国金融技术公司Wirecard的欺诈行为，该公司去年以惊人的方式倒闭了。
 
-“这对德国来说是一个安全风险，”一位立法者Fabio De Masi在突击检查后说。”我们需要一个具有刑事专业知识的金融警察。德国是犯罪分子的天堂”。
 
-检察官表示，他们目前没有怀疑任何特定的雇员有犯罪行为，但一个关键的问题是，金融情报机构是否奉命无视银行对可疑交易的警告，还是因为无能和缺乏资源？
+![](https://assets.gnews.org/wp-content/uploads/2021/09/13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧.jpg)图片来源：网络
 
-评论：德国现任财政部长肖尔茨(Olaf Scholz)是社会民主党的热门总理候选人。8月底，在距离今年德国大选投票日还剩下不到4周的时候，他在三名总理候选人实况辩论会上表现突出，民调显示肖尔茨支持率最高。他在老年选民中的支持率为46%，中年选民的支持率为49%，而在年轻选民中的支持率也高达31%。显然，这次突击检查将肖尔茨推上了舆论的风头浪尖，竞选之路也将更加艰难。
+美国国会能源和商务委员会(Energy and Commerce Committee)的13名议员，在致美国运输部长布蒂吉格(Pete Buttigieg)的一封信中表明，他们对未来华为生产的汽车零部件可能收集美国公民和美国交通基础设施的相关信息感到担心。
 
-七哥在近期的直播中提过，明年几个影响世界格局的大选，其中包括德国。
+能源和商务委员会资深成员、众议员罗杰斯（Cathy McMorris Rodgers）等共和党人表示，美国绝不能允许中（共）国主导包括自动驾驶汽车在内的高科技行业。今年8月，有媒体报道称，拜登政府已经批准了价值数亿美元的许可申请，允许美国公司向被列入黑名单的华为出售汽车芯片。
 
-（本文纯属纯属个人观点，与Gnews无关）
+参考链接：[美国共和党议员对美国政府批准向华为供应汽车芯片提出警告](https://www.reuters.com/article/idCNKBS2G605L?edition-redirect=ca)
 
-[原文链接：](https://t.co/7RudgISn8L)
+校对/发稿：雪梨
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AUSTRALIA-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
 
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

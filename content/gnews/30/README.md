@@ -2,23 +2,25 @@
 ---
 
 
-## 德州州长：疫苗强制令是对私营企业的攻击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523955/)
+## 驳斥CNBC的不实报导，班农先生坚定支持文贵先生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523903/)
 
-栏目记者/责任编辑：DM
-
+栏目记者/责任编辑：雪梨
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+针对CNBC抹黑文贵先生传播疫苗阴谋论的报导，班农先生日前在接受英喜农场专访时说，“我不会对文贵说的任何话打折扣”。
 
-针对拜登政府新冠疫苗强制令，9月10日，德克萨斯州的州长：格里·艾伯特（Greg Abbott）在社交媒体上发布一项行政命令，保护德州人民自由选择的权力，并将其添加到特别会议议程。德州在竭力阻止这种权利攫(jué)取。
+班农先生说，从新冠病毒和疫苗的历史记录来看，文贵先生领导的爆料革命，早在2019年底就向世人提出警告，称湖北武汉有类似SARS的病毒；2020年春天，文贵先生提醒人类中共已经拥有新冠疫苗，并警示疫苗对变异菌株无效，更不要接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0910-morning-6-11.006.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0910-morning-6-11.010.jpeg)
 
-周四早间，白宫发言人珍·帕萨吉就记者提问时轻蔑地回答，不但可以强制联邦雇员接种新冠疫苗，对于私人企业他们也能强制；随即当日下午，拜登总统宣布，所有拥有 100 名以上员工的雇主，被要求令其员工接种疫苗，或进行周测试，公司员工必须自费配合接受测试，该政策预计将影响多达 1 亿美国人；医疗机构约一千七百万的医护人员，也被要求必须完全接种疫苗。拜登政府新冠病毒政策下，与联邦政府有业务来往的承包商也不能幸免，这又涵盖了另外几百万工人。政府继续施压，对不遵守新政策的企业将处以巨额罚款，每次违规的罚金可达一万四千美元。
+世界上包括美国成百上千医生，经过大量的临床和科学研究，以及目前洛杉矶，和其他49个州涌现的Mu（穆）变体病毒造成的大面积感染，再次验证了文贵先生的情报。
 
-巴西总统博索纳罗曾举例辉瑞疫苗合同的霸王条款，里面清楚地写着：“辉瑞不对任何副作用承担责任”。有毒的新冠疫苗由中共及国际邪恶组织在背后操控。爆料革命及正义力量已给黑暗的世界带来了光亮，无数医生和临床结果已证明青蒿素、伊维菌素、硫酸氢氯喹、锌载体等有效预防和治疗药物。此时此刻，不仅仅是德州，全人类都必须团结，拒绝疫苗暴政，以捍卫健康和生命的权利！
+《班农作战室》每天一个小时的病毒专题节目，就是源自文贵先生的提醒和建议。当时正值左派对川普总统发起弹劾案，病毒专题节目遭到华盛顿很多人的嘲笑，包括主流媒体朋友；班农先生坚信文贵先生的判断。事实证明，中共制造和散播的病毒已经改变了整个世界。
+
+班农先生说，文贵先生每次宣布关于病毒的重要信息，主流媒体一定会进行攻击。从主流媒体歪曲事实，到该消息真实性得到验证，往往需要九十到一百天的时间。他说，文贵先生没有传播假消息；相反，任何关于中共、武汉实验室和病毒的消息，都逐个得到验证。
 (本文仅代表作者观点)
 
-参考链接：[Biden’s vaccine mandate is an assault on private businesses.](https://twitter.com/gregabbott_tx/status/1436104824660049921?s=21)
+参考链接：[班农回答飞飞的问题说 ”我不在乎CNBC怎么说，我不会对文贵说的任何话打折扣。“](https://gettr.com/post/palnqwbe4f)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -31,7 +33,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
 0

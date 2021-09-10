@@ -2,35 +2,30 @@
 ---
 
 
-## 秘翻在线：微软高管对中国技术滥用发出警告
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523997/)
+## 台湾最新民调显示：近9成民众反对“一国两制”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524041/)
 
-#### 文章撰写：寶寶
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-1.jpeg)台湾民众反对“一国两制” 网络图片
 
-#### 校对发布：文柯Miles
+2021年09月10日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/rsz_gettyisadfsdfamages-869597360.jpg)Photo credit should read THOMAS PETER/AFP via Getty Images
+台湾行政院大陆事务委员会9月9日最新民调显示，有87.5%的民众反对北京“一国两制”，89.4%反对北京对台湾的外交打压，88.8%反对中共当局以经济外交手段对立陶宛施压，因为立陶宛同意让台湾以“台湾”名义设立代表处。此次民调在9月2日至6日以电话访问台湾20岁以上成年民众，收到有效样本1073份，信赖度为95%。
 
-据华盛顿自由灯塔（Washington Free Beacon）9月9日报道，微软首席科学家正在向国会警告中共人工智能技术的危险性，而微软目前正与中共深入合作。
+台湾民众对所谓“一国两制”从来都持强烈的怀疑和反对态度，尤其香港国安法实施之后，民主自由被破坏以及民主派人士被清算，让台湾人看到“一国两制”的谎话。
 
-埃里克·霍维茨（Eric Horvitz）博士今年向国会报告说，中共在其国内使用人工智能技术对全世界崇尚自由的人来说是巨大的威胁。这份报告是霍维茨在国会人工智能工作组汇报上提出的。该报告发布之际，微软首席执行官布拉德·史密斯（Brad Smith）正在与中共高级官员会面，讨论深化数字技术合作和微软在中共国业务的联系。
+从来没有所谓的“一国两制”，中共以欺骗手段拿回香港之后，从来没想过要继续保持香港的民主体制。2019年反送中之后，中共对香港实施全面管控。香港的民主体制已经彻底遭到破坏，取而代之的是中共的独裁暴政。台湾人民面对中共的咄咄逼人，不信加反抗才能有出路。
 
-微软是向中共低头以换取进入该国丰厚利润市场的众多公司之一。 美国篮球协会（NBA）支持其球员和教练的政治激进主义，但对中共侵犯人权和压制言论自由保持沉默。 苹果允许中共官员亲自监控其在中共国的设施和数据中心。 科技公司也面临来自内部的压力，要求淡化中共侵犯人权的行为。 苹果员工呼吁该公司谴责以色列在加沙地带的行为，而不是中共国使用奴隶劳工的行为。
+新闻参考链接：[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
 
-微软允许中共严格审查微软的子公司领英网络（LinkedIn）。 LinkedIn 为西方用户创建了西方和中国用户的个人资料，一旦发现有中共屏蔽的词汇，该平台就关闭这些用户的中文版本个人资料。 今年三月，LinkedIn 更进了一步，封禁了一名驻英国的批评中共人士。
+* * *
 
-史密斯上周在与中共工业和信息化部的高级监管员肖亚庆的会晤中继续与中共政府接触。 据肖说，双方探讨了扩大微软与中共的合作。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-作为美国人工智能安全委员会工作的一部分，霍维茨就中共在人工智能滥用问题上敲响了警钟。 该委员会的报告一再警告说，中共使用人工智能对自由和美国国家安全构成威胁。 报告的作者说，中共“在国内以及越来越多地在国外使用人工智能作为压迫和监视的工具，这与我们认为应该人工智能该如何使用完全背道而驰”。
 
-该报告还强调了中共利用人工智能来实现更有效的面部识别技术，该行为相当危险。 作者写道，中共使用人工智技术能压迫维吾尔少数民族，由此可预见威权政府将如何使用人工智能系统来加强审查、跟踪其公民的人身活动和网络活动，以及消除异见。 微软为其Azure云服务扩展了在中共国的数据中心，其中包括一个面部识别软件包。
+编辑：【英国伦敦喜庄园编辑部】
 
-今年三月中共入侵了数十万台微软服务器，一些学者认为这次攻击是为了收集数据来训练人工智能（AI）模型。 讽刺的是，作为回应，微软扩大了在中国的业务。 拜登政府更是拒绝制裁实施网络攻击的中共。
-
-微软没有回应置评请求。
-
-参考文章：[Microsoft Exec Sounds Alarm About Chinese Tech Abuses as Company Collaborates With China](https://freebeacon.com/national-security/microsoft-exec-sounds-alarm-about-chinese-tech-abuses-as-company-collaborates-with-china/)
-
-本文仅代表作者本人观点，不代表Gnews平台
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
