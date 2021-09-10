@@ -15,6 +15,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ilpresidento 9/7/2021 4:54 PM (UTC)`
+
+MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https://rumble.com/vm7a2h-meus-patriotas-brasileiros-know-what-time-it-is-viva-a-liberdade.html
+
+---
+
 `@miles 9/10/2021 4:29 PM (UTC)`
 
 【您爆了青蒿素是解药后，开会了】
@@ -301,14 +309,6 @@ I have no delusions about winning a Nobel Prize for the tremendous success that 
 
 Clues of COVID-19 to be recognized as bioweapon regarding Wuhan<br/><br/>关于武汉的中共病毒即将被认定为生物武器的线索
 ![img](https://media.gettr.com/group28/getter/2021/09/06/10/08d6347e-f29a-b057-2cdc-787d798f6aee/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@qifeng 9/6/2021 7:37 AM (UTC)`
-
-新闻调查挖掘报告：《精子战争》<br/><br/>七哥直播中曾经提到一个神秘的资本，在全世界的辅助生殖市场兴风作浪，不断垄断和收购精子库。<br/><br/>经过挖掘战队的缜密挖掘，这家资本终于浮出水面。<br/><br/>这就是在资本市场一直保持低调“闷声发大财”的华平投资。華平投資 (Warburg Pincus)<br/><br/>这是一家 著名的PE，旗下管理众多的私募股权投资基金。<br/><br/>神通广大，不仅是京东、神舟租车、猿辅导背后的大股东，也参与了阿里的投资。<br/><br/>最早的国美电器黄光裕案也与华平投资具有很大的关系？<br/><br/>华平投资的背后老板究竟是谁？为什么要投资世界精子库。<br/><br/>敬请关注《精子战争》 系列。
 
 ---
 
