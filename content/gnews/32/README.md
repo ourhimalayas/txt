@@ -2,30 +2,31 @@
 ---
 
 
-## 台湾最新民调显示：近9成民众反对“一国两制”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524041/)
+## 德国检察官突查财政部和司法部
+` AUJenny` [轉載自GNews](https://gnews.org/zh-hans/1524021/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-1.jpeg)台湾民众反对“一国两制” 网络图片
+翻译撰稿：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1172.jpg)网络截图
+周四，德国检察官突击检查了财政部和司法部，指控政府的反洗钱机构–金融情报部门（FIU）未能调查许多银行洗钱的情况。指控的核心是金融情报室没有将报告转交给警方和司法部门，然而，”目前还不清楚金融情报室是自己没有转发欺诈报告，还是被一个或两个部委的人指示这样做”。
 
-2021年09月10日
+据信，有 “数以百万计 “自非洲的钱涉嫌洗钱，但德国的金融情报部门（隶属于财政部）却视而不见。
 
-台湾行政院大陆事务委员会9月9日最新民调显示，有87.5%的民众反对北京“一国两制”，89.4%反对北京对台湾的外交打压，88.8%反对中共当局以经济外交手段对立陶宛施压，因为立陶宛同意让台湾以“台湾”名义设立代表处。此次民调在9月2日至6日以电话访问台湾20岁以上成年民众，收到有效样本1073份，信赖度为95%。
+近几个月来金融犯罪监督机构一直受到审查。”DW写道：”该组织还被怀疑掩盖了德国金融技术公司Wirecard的欺诈行为，该公司去年以惊人的方式倒闭了。
 
-台湾民众对所谓“一国两制”从来都持强烈的怀疑和反对态度，尤其香港国安法实施之后，民主自由被破坏以及民主派人士被清算，让台湾人看到“一国两制”的谎话。
+“这对德国来说是一个安全风险，”一位立法者Fabio De Masi在突击检查后说。”我们需要一个具有刑事专业知识的金融警察。德国是犯罪分子的天堂”。
 
-从来没有所谓的“一国两制”，中共以欺骗手段拿回香港之后，从来没想过要继续保持香港的民主体制。2019年反送中之后，中共对香港实施全面管控。香港的民主体制已经彻底遭到破坏，取而代之的是中共的独裁暴政。台湾人民面对中共的咄咄逼人，不信加反抗才能有出路。
+检察官表示，他们目前没有怀疑任何特定的雇员有犯罪行为，但一个关键的问题是，金融情报机构是否奉命无视银行对可疑交易的警告，还是因为无能和缺乏资源？
 
-新闻参考链接：[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
+评论：德国现任财政部长肖尔茨(Olaf Scholz)是社会民主党的热门总理候选人。8月底，在距离今年德国大选投票日还剩下不到4周的时候，他在三名总理候选人实况辩论会上表现突出，民调显示肖尔茨支持率最高。他在老年选民中的支持率为46%，中年选民的支持率为49%，而在年轻选民中的支持率也高达31%。显然，这次突击检查将肖尔茨推上了舆论的风头浪尖，竞选之路也将更加艰难。
 
-* * *
+七哥在近期的直播中提过，明年几个影响世界格局的大选，其中包括德国。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+（本文纯属纯属个人观点，与Gnews无关）
 
+[原文链接：](https://t.co/7RudgISn8L)
 
-编辑：【英国伦敦喜庄园编辑部】
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/AUSTRALIA-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

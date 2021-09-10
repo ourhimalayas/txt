@@ -2,35 +2,31 @@
 ---
 
 
-## 秘翻在线：微软高管对中国技术滥用发出警告
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523997/)
+## 中情局有意注册抖音账号，卢比奥参议员公开反对
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524059/)
 
-#### 文章撰写：寶寶
+栏目记者/责任编辑：有莫举名
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
+9月9日，美国联邦参议员、参议院情报委员会副主席卢比奥发表声明, 公开反对美中情局在抖音注册账号的意向，强调此举将危害美国国家安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-98.png)
+9月8日，中情局发言人称中情局有可能在抖音海外版上注册账号。卢比奥随即致函中情局局长伯恩斯, 敦促他“承诺中情局不会入驻抖音，以及任何对国家安全以及用户数据隐私构成威胁的其它社媒平台。”去年8月份，针对外界担心中共政府通过抖音收集美国用户资料一事，中情局曾提出一份报告，指无证据显示这一担忧, 令人大跌眼镜 !
 
-#### 校对发布：文柯Miles
+(本文仅代表作者观点)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/rsz_gettyisadfsdfamages-869597360.jpg)Photo credit should read THOMAS PETER/AFP via Getty Images
+参考链接：
 
-据华盛顿自由灯塔（Washington Free Beacon）9月9日报道，微软首席科学家正在向国会警告中共人工智能技术的危险性，而微软目前正与中共深入合作。
+[https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html](https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html)
 
-埃里克·霍维茨（Eric Horvitz）博士今年向国会报告说，中共在其国内使用人工智能技术对全世界崇尚自由的人来说是巨大的威胁。这份报告是霍维茨在国会人工智能工作组汇报上提出的。该报告发布之际，微软首席执行官布拉德·史密斯（Brad Smith）正在与中共高级官员会面，讨论深化数字技术合作和微软在中共国业务的联系。
+[https://www.zaobao.com.sg/realtime/world/story20200809-1075631](https://www.zaobao.com.sg/realtime/world/story20200809-1075631)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-99.png)
+终审:  文龙
+校正/发稿：浪迹天涯
 
-微软是向中共低头以换取进入该国丰厚利润市场的众多公司之一。 美国篮球协会（NBA）支持其球员和教练的政治激进主义，但对中共侵犯人权和压制言论自由保持沉默。 苹果允许中共官员亲自监控其在中共国的设施和数据中心。 科技公司也面临来自内部的压力，要求淡化中共侵犯人权的行为。 苹果员工呼吁该公司谴责以色列在加沙地带的行为，而不是中共国使用奴隶劳工的行为。
-
-微软允许中共严格审查微软的子公司领英网络（LinkedIn）。 LinkedIn 为西方用户创建了西方和中国用户的个人资料，一旦发现有中共屏蔽的词汇，该平台就关闭这些用户的中文版本个人资料。 今年三月，LinkedIn 更进了一步，封禁了一名驻英国的批评中共人士。
-
-史密斯上周在与中共工业和信息化部的高级监管员肖亚庆的会晤中继续与中共政府接触。 据肖说，双方探讨了扩大微软与中共的合作。
-
-作为美国人工智能安全委员会工作的一部分，霍维茨就中共在人工智能滥用问题上敲响了警钟。 该委员会的报告一再警告说，中共使用人工智能对自由和美国国家安全构成威胁。 报告的作者说，中共“在国内以及越来越多地在国外使用人工智能作为压迫和监视的工具，这与我们认为应该人工智能该如何使用完全背道而驰”。
-
-该报告还强调了中共利用人工智能来实现更有效的面部识别技术，该行为相当危险。 作者写道，中共使用人工智技术能压迫维吾尔少数民族，由此可预见威权政府将如何使用人工智能系统来加强审查、跟踪其公民的人身活动和网络活动，以及消除异见。 微软为其Azure云服务扩展了在中共国的数据中心，其中包括一个面部识别软件包。
-
-今年三月中共入侵了数十万台微软服务器，一些学者认为这次攻击是为了收集数据来训练人工智能（AI）模型。 讽刺的是，作为回应，微软扩大了在中国的业务。 拜登政府更是拒绝制裁实施网络攻击的中共。
-
-微软没有回应置评请求。
-
-参考文章：[Microsoft Exec Sounds Alarm About Chinese Tech Abuses as Company Collaborates With China](https://freebeacon.com/national-security/microsoft-exec-sounds-alarm-about-chinese-tech-abuses-as-company-collaborates-with-china/)
-
-本文仅代表作者本人观点，不代表Gnews平台
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

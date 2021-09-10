@@ -2,22 +2,55 @@
 ---
 
 
-## 踢蛋蛋，心有灵“犀”
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1523990/)
+## 秘翻新视野9月10日播报简要
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1524004/)
 
-#### 撰稿、插图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/09/er.jpg)
-心有灵犀是一个美好的词汇，是无数男女梦寐以求的一个最高境界！无论每个人对爱情的设想是性格互补、有共同的语言，还是三观一致，无不都追求的是一种少摩擦、无碰撞、情趣相投配合默契的融洽关系，而描绘这种关系的最高境界就是心有灵犀。数百上千年来，引无数英雄佳人争相尝试。然而达到这种美好的境界的还是少数。
+BY：秘翻时评
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/fengmian.png)](https://gtv.org/video/id=613acd3bbe28c76ac944d81f)
+【点击图片即可观看】
 
-而如今中共官场追求的最高境界无非也是一个“心有灵犀”，领导的心意你要明白，领导的意图你要懂，领导的烦恼你能解。会来事、会办事，能够察言观色，手脚麻利，眼明手快，才是中共职场上升的一个通行证。在极权体制下，这种最高追求其是单向的心有灵犀，是不负责任的心有灵犀。
+国内外新闻
 
-心有灵犀在男女关系上也许是一种高效、畅快、愉悦的关系，然而在国家治理和社会管理上，未免不是一种灾难！上级的最大追求，就是你努力的方向；上级的一切喜好都是你努力的目标。在这种模式下，领导的一个表情、一个眼神、一句话，甚至只言片语都成为职场上的一个指令让无数舔腚狗臆想出“无数解读”，制造出许多眼花缭乱的“土药方”，甚至层层加码，导致各种异类政策层出不穷。肥了当官，穷苦了百姓。这是一个多么可悲的世道，然而它却大行其道。
+1．澳航将禁止未接种疫苗旅客搭乘国际航班（见证伟大时刻）
 
-无论是环保检查的“封煤毁炉”、“杀猪封圏”，还是疫苗施打的“抽奖”、“送礼”，或“生拉硬拽”无不充斥这种荒诞无稽治理逻辑。一只黑天鹅的戏剧性表演，会不会又是一场滑天之大稽的系列表演的开始……
+[https://www.epochtimes.com/b5/21/9/9/n13221258.htm](https://www.epochtimes.com/b5/21/9/9/n13221258.htm)
 
-（文章仅代表作者个人观点，与GNEWS无关）
+2. 14位美国州长反对联邦强制疫苗令（风之伤）
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[https://www.epochtimes.com/gb/21/9/10/n13223181.htm](https://www.epochtimes.com/gb/21/9/10/n13223181.htm)
+
+3. 台湾最新民调显示：近9成民众反对“一国两制”(见证伟大时刻)
+
+[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
+
+4. 美中太空战 美上将：中共在开发卫星杀手（风之伤）
+
+[https://www.epochtimes.com/gb/21/9/9/n13222775.htm](https://www.epochtimes.com/gb/21/9/9/n13222775.htm)
+
+盖特新闻
+
+1.台湾大牛盖文：
+
+在加拿大卡爾加里，消防員、緊急醫療工作者和警察默默站立一小時，抗議政府的強制性疫苗和證件。（见证伟大时刻，annafu）
+
+[https://gettr.com/post/palvajc4a9](https://gettr.com/post/palvajc4a9)
+
+2.秘翻盖文：澳大利亚健康从业者监管机构 (AHPRA) 发出信函，威胁因任何形式干预政府疫苗接种计划而对医生进行调查或吊销执照（风之伤）
+
+[https://gettr.com/post/pam1jg3478](https://gettr.com/post/pam1jg3478)
+
+3.郭先生盖文：国际黑暗势力
+
+9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着（大家）
+
+[https://gettr.com/post/pakv0u3cc1](https://gettr.com/post/pakv0u3cc1)
+
+4.郭先生盖文：
+
+打破中共房产骗局的第一块砖头……
+
+【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】（大家）
+
+[https://gettr.com/post/pajce80a0e](https://gettr.com/post/pajce80a0e)
+
 0

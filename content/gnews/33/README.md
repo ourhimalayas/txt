@@ -2,31 +2,41 @@
 ---
 
 
-## 中情局有意注册抖音账号，卢比奥参议员公开反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524059/)
+## 秘翻在线：香港六四纪念馆遭警方突袭
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1524058/)
 
-栏目记者/责任编辑：有莫举名
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
-9月9日，美国联邦参议员、参议院情报委员会副主席卢比奥发表声明, 公开反对美中情局在抖音注册账号的意向，强调此举将危害美国国家安全。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-98.png)
-9月8日，中情局发言人称中情局有可能在抖音海外版上注册账号。卢比奥随即致函中情局局长伯恩斯, 敦促他“承诺中情局不会入驻抖音，以及任何对国家安全以及用户数据隐私构成威胁的其它社媒平台。”去年8月份，针对外界担心中共政府通过抖音收集美国用户资料一事，中情局曾提出一份报告，指无证据显示这一担忧, 令人大跌眼镜 !
+#### 翻译：文斗
 
-(本文仅代表作者观点)
+#### 校对发布：文柯Miles
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Snipastasdfsagfe_2021-09eg-10_2trh1-33-25.png)
 
-[https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html](https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html)
+路透社9月9日报道，香港警方周四突击检查了已关闭的六四博物馆，该博物馆专门纪念1989年中共镇压北京天安门广场及周边地区民主抗议者的受害者。
 
-[https://www.zaobao.com.sg/realtime/world/story20200809-1075631](https://www.zaobao.com.sg/realtime/world/story20200809-1075631)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-99.png)
-终审:  文龙
-校正/发稿：浪迹天涯
+这次突击检查发生在十几名民运人士对在去年六四纪念日期间故意参加未经批准的集会“认罪”后几个小时，当时警方以中共病毒为由禁止了集会。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+2021年的守夜活动也因类似原因被禁止。
+
+突袭的原因尚不清楚，警方没有立即回应质询请求。人们看到警察往一辆卡车上搬运纸板，其中一个纸板上有博物馆的标志，另一个纸板上有一张点燃蜡烛的照片。
+
+周三，警方逮捕了香港市民支援爱国民主运动联合会（支联会）的四名成员，其中包括副主席邹幸彤 ( Chow Hang Tung)，支联会组织了年度集会。
+
+根据支联会发给记者的副本，警方在8月向支联会发函，要求在9月7日前提供有关其成员、财务和活动的信息。
+
+函件指控支联会是 “外国势力代理人”。支联会表示不会提供所要求的信息。周三的逮捕是由于没有遵守国家安全法的要求。
+
+8月，支联会表示，由于食物环境卫生署对其许可证的调查，该博物馆于6月2日关闭，以 “8964博物馆”的名义在网上重新开放。其表示，网上博物馆的运作独立于支联会。
+
+支联会领导人何俊仁和李卓人已因在2019年席卷香港的反政府抗议活动中的角色而入狱。
+
+这个前英国殖民地在1997年回归中共国统治，中共承诺其广泛的自由将保持不变。传统上，香港会举行最大规模的六四守夜活动，以纪念镇压的受害者。
+
+中共国大陆禁止纪念六四活动，并对这个话题进行严格审查。中共国从未对1989年的镇压提供过完整的记录。（六四镇压）几天后，官方给出的死亡人数约为300人，其中大部分是士兵，但人权组织和目击者说可能有数千人被杀。
+
+香港当局一再否认遏制人权和自由，并说执法是基于证据，与被捕者的背景、职业或政治信仰无关。
+
+译评：中共打着“国家安全”、“法律”的借口打击香港的人权、自由，香港以肉眼可见的速度沦为中共的一个内地城市。东方明珠被中共魔鬼霸占，这是香港的悲痛，也是自由世界的悲哀。
+
+原文链接：[Hong Kong police raid museum commemorating 1989 Tiananmen victims](https://www.reuters.com/world/china/hong-kong-police-raid-museum-commemorating-1989-tiananmen-victims-2021-09-09/)
 
 0

@@ -2,30 +2,30 @@
 ---
 
 
-## 蔡英文总统主持台海军新型“塔江舰&#8221;入列仪式
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524039/)
+## 台湾最新民调显示：近9成民众反对“一国两制”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524041/)
 
-采集编辑/终审: 文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-88.png)
-9月9日,台湾总统蔡英文赴  苏澳海军基地,主持了最新型“塔江”巡逻舰入列典礼。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-1.jpeg)台湾民众反对“一国两制” 网络图片
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-95.png)
+2021年09月10日
 
-台军自主研发建造的塔江号巡逻舰 是为满足台湾海军在防空及飞弹拦截上的作战需求而设计建造。由于该舰反舰以及中程防空作战能力突出,航速较快 且舰体具备一定的隐形能力, 素有“航母杀手”之称。
+台湾行政院大陆事务委员会9月9日最新民调显示，有87.5%的民众反对北京“一国两制”，89.4%反对北京对台湾的外交打压，88.8%反对中共当局以经济外交手段对立陶宛施压，因为立陶宛同意让台湾以“台湾”名义设立代表处。此次民调在9月2日至6日以电话访问台湾20岁以上成年民众，收到有效样本1073份，信赖度为95%。
 
-蔡英文总统主政以来，两岸关系陷入僵局。中共指责借口蔡政府奉行台独政策，因此切断了与台湾的所有官方联系。解放军持续在台湾周边地区海空域实施恫吓和军事压力。蔡英文在典礼致辞中称, 有了塔江舰的加入，“捍卫海疆的台湾海军如虎添翼”。
+台湾民众对所谓“一国两制”从来都持强烈的怀疑和反对态度，尤其香港国安法实施之后，民主自由被破坏以及民主派人士被清算，让台湾人看到“一国两制”的谎话。
 
-(本文仅代表作者观点)
+从来没有所谓的“一国两制”，中共以欺骗手段拿回香港之后，从来没想过要继续保持香港的民主体制。2019年反送中之后，中共对香港实施全面管控。香港的民主体制已经彻底遭到破坏，取而代之的是中共的独裁暴政。台湾人民面对中共的咄咄逼人，不信加反抗才能有出路。
 
-参考链接:[https://www.voachinese.com/a/Taiwan-president-commissions-domestic-made-naval-worship-20210909/6219772.html](https://www.voachinese.com/a/Taiwan-president-commissions-domestic-made-naval-worship-20210909/6219772.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-96.png)
-校正/发稿：浪迹天涯
+新闻参考链接：[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

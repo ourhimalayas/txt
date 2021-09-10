@@ -28,23 +28,23 @@
 ### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵视角：赵容奭计葵生是牛人，不亚于贯君刘呈杰](/content/gnews/6/README.md)
+### [2021年9月9日 文贵先生盖特 7](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [文贵视角：赵容奭计葵生是牛人，不亚于贯君刘呈杰](/content/gnews/7/README.md)
  ` 秘密翻译组G-Translators`
 
-### [串珠384：病毒开启了世界政治、经济的大重启模式](/content/gnews/7/README.md)
+### [串珠384：病毒开启了世界政治、经济的大重启模式](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
-### [串珠383：秘书周亮要被抓，王岐山会疯掉](/content/gnews/8/README.md)
- ` 郭爆料串珠`
+### [白宫表示将对未接种疫苗的美国人采取COVID-19新措施](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳著名主持人：前夫接种辉瑞疫苗后心包炎入院](/content/gnews/9/README.md)
+### [澳著名主持人：前夫接种辉瑞疫苗后心包炎入院](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [突发：拜登发出史上最全面的疫苗授权](/content/gnews/10/README.md)
+### [突发：拜登发出史上最全面的疫苗授权](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [美国大学生因未接种疫苗被禁止参加在线课程](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/12/README.md)
  ` G&#124;News TAIWAN`
@@ -103,29 +103,29 @@
 ### [德州州长：疫苗强制令是对私营企业的攻击](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：香港六四纪念馆遭警方突袭](/content/gnews/31/README.md)
- ` 秘密翻译组G-Translators`
-
-### [台湾最新民调显示：近9成民众反对“一国两制”](/content/gnews/32/README.md)
+### [世卫组织科学家可能因攻击伊维菌素和拒绝对患者进行有效治疗而面临死刑](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中情局有意注册抖音账号，卢比奥参议员公开反对](/content/gnews/33/README.md)
- ` GTV新闻访谈`
+### [德国检察官突查财政部和司法部](/content/gnews/32/README.md)
+ ` AUJenny`
 
-### [蔡英文总统主持台海军新型“塔江舰&#8221;入列仪式](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：微软高管对中国技术滥用发出警告](/content/gnews/35/README.md)
+### [秘翻在线：香港六四纪念馆遭警方突袭](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【玫瑰看新闻】第156期](/content/gnews/36/README.md)
+### [台湾最新民调显示：近9成民众反对“一国两制”](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中情局有意注册抖音账号，卢比奥参议员公开反对](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
+
+### [蔡英文总统主持台海军新型“塔江舰&#8221;入列仪式](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：微软高管对中国技术滥用发出警告](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【玫瑰看新闻】第156期](/content/gnews/38/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [朝鲜国庆日疑似举行了阅兵式](/content/gnews/37/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [文革发起者去世45周年 《文革受难者》一书作者警醒世人](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [还有后来人](/content/gnews/47/README.md)
- ` 日本东京樱花团`
-
-### [秘翻新视野9月10日播报简要](/content/gnews/48/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [日本学者认为把接种疫苗当作解决问题的做法不好](/content/gnews/49/README.md)
- ` 日本东京樱花团`
-
-### [踢蛋蛋，心有灵“犀”](/content/gnews/50/README.md)
- ` 日本东京樱花团`
-
-### [文贵视角：赵容奭计葵生是牛人，不亚于贯君刘呈杰](/content/gnews/51/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【玫瑰看新闻】第155期](/content/gnews/52/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（二）](/content/gnews/53/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [中共钟南山牵头临床，新冠在研药或使住院死亡降78%](/content/gnews/54/README.md)
- ` 儒为`
-
-### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/55/README.md)
+### [白宫表示将对未接种疫苗的美国人采取COVID-19新措施](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [自传体小说连载之二十二：《我的忏悔录》](/content/gnews/56/README.md)
+### [CCP百年百罪 第十集（39 &#8211; 42罪）](/content/gnews/48/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [还有后来人](/content/gnews/49/README.md)
+ ` 日本东京樱花团`
+
+### [秘翻新视野9月10日播报简要](/content/gnews/50/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [日本学者认为把接种疫苗当作解决问题的做法不好](/content/gnews/51/README.md)
+ ` 日本东京樱花团`
+
+### [踢蛋蛋，心有灵“犀”](/content/gnews/52/README.md)
+ ` 日本东京樱花团`
+
+### [文贵视角：赵容奭计葵生是牛人，不亚于贯君刘呈杰](/content/gnews/53/README.md)
  ` 秘密翻译组G-Translators`
 
-### [塔利班声称全面控制潘杰希尔山谷](/content/gnews/57/README.md)
- ` 墨尔本雅典娜农场`
+### [【玫瑰看新闻】第155期](/content/gnews/54/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（二）](/content/gnews/55/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共钟南山牵头临床，新冠在研药或使住院死亡降78%](/content/gnews/56/README.md)
+ ` 儒为`
+
+### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/57/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
