@@ -13,20 +13,20 @@
 
 ---
 
-### [德国奥博豪森市接种加强疫苗后出现很多并发症](/content/gnews/1/README.md)
+### [青蒿素、土霉素、伊维菌素对于治疗新冠绝对有效，但一定不能同时服用。](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [洛杉矶警察和消防员联合抵抗强制接种疫苗](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国经济崩溃的开始：恒大面临破产](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [德国奥博豪森市接种加强疫苗后出现很多并发症](/content/gnews/4/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [特鲁多政府强权控制加拿大公共卫生局](/content/gnews/2/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [中共末日凶兆频现 《人民日报》发社论为自己壮胆](/content/gnews/3/README.md)
- ` GTV新闻访谈`
-
-### [CNBC抹黑七哥，助GTV盖特流量大增](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [丧心病狂，中共国学校瞒着家长给学生强制接种疫苗](/content/gnews/5/README.md)
- ` 澳喜农场`
+### [美疫苗接种报告：65万不良事件](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [郭文贵先生GTV直播2021年9月8日文字精简版分享](/content/gnews/6/README.md)
  ` TS2020相聚盘古`
@@ -37,14 +37,14 @@
 ### [2021/09/08文贵先生直播精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年09月09日澳喜要闻（每日更新）](/content/gnews/9/README.md)
+### [文雍漫谈：有一种温暖超越语言](/content/gnews/9/README.md)
+ ` 文雍`
+
+### [2021年09月09日澳喜要闻（每日更新）](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [澳洲国民银行修改银行标志以促销疫苗](/content/gnews/10/README.md)
+### [澳洲国民银行修改银行标志以促销疫苗](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
-
-### [众议员克里斯·斯图尔特： 拜登总统无权强制接种疫苗](/content/gnews/11/README.md)
- ` 美国政要直译推`
 
 ### [美13名议员担忧拜登批准华为购买芯片](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -103,29 +103,29 @@
 ### [德国大选白热化，对中共强硬成共识](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [绝望的阿富汗家庭正以800美元卖掉女儿](/content/gnews/31/README.md)
+### [雅典娜时报-第047期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲国民银行修改银行标志以促销疫苗](/content/gnews/32/README.md)
+### [绝望的阿富汗家庭正以800美元卖掉女儿](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [众议员克里斯·斯图尔特： 拜登总统无权强制接种疫苗](/content/gnews/33/README.md)
+### [澳洲国民银行修改银行标志以促销疫苗](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [众议员克里斯·斯图尔特： 拜登总统无权强制接种疫苗](/content/gnews/34/README.md)
  ` 美国政要直译推`
 
-### [腾讯和网易被约谈后市值蒸发600亿美元](/content/gnews/34/README.md)
+### [腾讯和网易被约谈后市值蒸发600亿美元](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [VAERS 报告称，在母亲注射辉瑞之后，护理婴儿死于血栓和动脉发炎](/content/gnews/35/README.md)
+### [VAERS 报告称，在母亲注射辉瑞之后，护理婴儿死于血栓和动脉发炎](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
 
-### [一份泄露的文件暴露了中国共产党对英国各界的大规模渗透！](/content/gnews/36/README.md)
+### [一份泄露的文件暴露了中国共产党对英国各界的大规模渗透！](/content/gnews/37/README.md)
  ` 滴水穿石`
 
-### [独家：30岁女士接种辉瑞疫苗后出现神经系统并发症](/content/gnews/37/README.md)
+### [独家：30岁女士接种辉瑞疫苗后出现神经系统并发症](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国经济崩溃的开始：恒大面临破产](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登:所有联邦雇员必须强制接种新冠疫苗](/content/gnews/47/README.md)
+### [文雍漫谈：有一种温暖超越语言](/content/gnews/47/README.md)
+ ` 文雍`
+
+### [拜登:所有联邦雇员必须强制接种新冠疫苗](/content/gnews/48/README.md)
  ` 纽约香草山MOS01`
 
-### [墙内要闻汇编](/content/gnews/48/README.md)
+### [墙内要闻汇编](/content/gnews/49/README.md)
  ` 日本东京樱花团`
 
-### [2021年09月09日澳喜要闻（每日更新）](/content/gnews/49/README.md)
+### [2021年09月09日澳喜要闻（每日更新）](/content/gnews/50/README.md)
  ` 澳喜农场`
 
-### [G时评：治学的三重境界](/content/gnews/50/README.md)
+### [G时评：治学的三重境界](/content/gnews/51/README.md)
  ` GISELLE`
 
-### [中共超限战灭港行动（七十一）光复屯门上水行动](/content/gnews/51/README.md)
+### [中共超限战灭港行动（七十一）光复屯门上水行动](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [天安门广场刚刚请走黑天鹅，北京暴雨冰雹又来袭](/content/gnews/52/README.md)
+### [天安门广场刚刚请走黑天鹅，北京暴雨冰雹又来袭](/content/gnews/53/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [斗争哲学批判](/content/gnews/53/README.md)
+### [斗争哲学批判](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [G时评：思维的三重境界](/content/gnews/54/README.md)
+### [G时评：思维的三重境界](/content/gnews/55/README.md)
  ` GISELLE`
 
-### [人工永生](/content/gnews/55/README.md)
+### [人工永生](/content/gnews/56/README.md)
  ` 纽约香草山MOS03`
 
-### [2021/09/09文贵先生盖特精要](/content/gnews/56/README.md)
+### [2021/09/09文贵先生盖特精要](/content/gnews/57/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲天主教神父呼吁政府给予个人选择不接种疫苗的自由](/content/gnews/57/README.md)
- ` 澳喜农场`
 
