@@ -28,32 +28,32 @@
 ### [美疫苗接种报告：65万不良事件](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [郭文贵先生GTV直播2021年9月8日文字精简版分享](/content/gnews/7/README.md)
+### [郭文贵先生盖特视频2021年9月9日文字精简版分享](/content/gnews/6/README.md)
  ` TS2020相聚盘古`
 
-### [2021/09/09文贵先生盖特精要](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [打疫苗](/content/gnews/9/README.md)
+### [郭文贵先生GTV直播2021年9月8日文字精简版分享](/content/gnews/8/README.md)
+ ` TS2020相聚盘古`
+
+### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [秘翻在线：拜登疫苗新规将迫使百人以上私营企业接种新冠疫苗](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [打疫苗](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳政府官员承认：接触者追踪属于新世界秩序一部分](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/12/README.md)
+ ` G-NEWS TAIWAN`
 
-### [文雍漫谈：有一种温暖超越语言](/content/gnews/11/README.md)
- ` 文雍`
-
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/12/README.md)
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/13/README.md)
  ` G&#124;News TAIWAN`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/13/README.md)
+### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/14/README.md)
  ` G&#124;News TAIWAN`
-
-### [快讯：拜登与习近平通电话](/content/gnews/14/README.md)
- ` HimalayaRussia`
 
 ### [拜习10日通话与中共军机6日驱离美巡逻机有何关联](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -85,47 +85,47 @@
 ### [有声| 郭文贵先生重磅爆料平安集团 动摇中共根基](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：脸书雷朋联名推出智能眼镜 隐私问题引担忧](/content/gnews/25/README.md)
+### [秘翻在线：金·卡戴珊“带货”加密货币遭英金融监管官员炮轰](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：泄露的文件揭露了中共对英国的大规模渗透](/content/gnews/26/README.md)
+### [秘翻在线：脸书雷朋联名推出智能眼镜 隐私问题引担忧](/content/gnews/26/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：方舟投资急剧下调中共国头寸](/content/gnews/27/README.md)
+### [秘翻在线：泄露的文件揭露了中共对英国的大规模渗透](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：乔·拜登疫苗强制令引发地方官员强烈反弹](/content/gnews/28/README.md)
+### [秘翻在线：方舟投资急剧下调中共国头寸](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [台湾公布最新民调, 近九成民众不接受“一国两制”](/content/gnews/29/README.md)
+### [秘翻在线：乔·拜登疫苗强制令引发地方官员强烈反弹](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [台湾公布最新民调, 近九成民众不接受“一国两制”](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共国获邀参加政府就职典礼](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [几内亚政变让中（共）国担忧](/content/gnews/31/README.md)
+ ` Charlie`
 
-### [银河快讯：G7财长就新国际税收规则达成协议；日本放弃举办2021年世俱杯](/content/gnews/31/README.md)
+### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [银河快讯：G7财长就新国际税收规则达成协议；日本放弃举办2021年世俱杯](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：中美通话，又是一场新的勾兑？](/content/gnews/32/README.md)
+### [秘翻在线：中美通话，又是一场新的勾兑？](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [《追风筝的人》和中共政府在新疆的时间扭曲大法](/content/gnews/33/README.md)
+### [《追风筝的人》和中共政府在新疆的时间扭曲大法](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：纳斯达克证券交易所将是向DeFi Chain代币化股票服务提供喂价](/content/gnews/34/README.md)
+### [币圈新闻动态：纳斯达克证券交易所将是向DeFi Chain代币化股票服务提供喂价](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：中共评论美国反恐20年](/content/gnews/35/README.md)
+### [DC大中华时事：中共评论美国反恐20年](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/36/README.md)
+### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/38/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [澳政府官员承认：接触者追踪属于新世界秩序一部分](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Afterpay呼吁私企参与发行加密货币“稳定币”](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/7/2021 国际财经快讯：沙特原油降价需求担忧浮现；宜家在供应问题上举步维艰](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/47/README.md)
+### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/47/README.md)
  ` G-NEWS TAIWAN`
 
-### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/48/README.md)
+### [Sotheby&#8217;s Asia程寿康、仇国仕与中共洗劫几万亿的人民资产](/content/gnews/48/README.md)
+ ` G-NEWS TAIWAN`
+
+### [从对台二号作战方案看共产党的一贯伎俩](/content/gnews/49/README.md)
  ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/49/README.md)
+### [中共驻美大使秦刚晒图 赞与基辛格会面“受益匪浅”](/content/gnews/50/README.md)
  ` G&#124;News TAIWAN`
 
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/50/README.md)
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/51/README.md)
  ` G&#124;News TAIWAN`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/51/README.md)
+### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/52/README.md)
  ` G&#124;News TAIWAN`
 
-### [樱花灭共诗——应天长•美挑战海上交通法](/content/gnews/52/README.md)
+### [樱花灭共诗——应天长•美挑战海上交通法](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [纽约邮报罔顾事实称中共病毒疫苗有效](/content/gnews/53/README.md)
+### [纽约邮报罔顾事实称中共病毒疫苗有效](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/54/README.md)
+### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [快讯：拜登与习近平通电话](/content/gnews/55/README.md)
+### [快讯：拜登与习近平通电话](/content/gnews/56/README.md)
  ` HimalayaRussia`
 
-### [国际要闻汇编](/content/gnews/56/README.md)
+### [国际要闻汇编](/content/gnews/57/README.md)
  ` 日本东京樱花团`
-
-### [文雍漫谈：有一种温暖超越语言](/content/gnews/57/README.md)
- ` 文雍`
 
