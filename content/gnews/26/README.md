@@ -2,31 +2,33 @@
 ---
 
 
-## 中情局有意注册抖音账号，卢比奥参议员公开反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524059/)
+## 中共影响力萎缩, 台湾华语学习中心取代孔子学院
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524313/)
 
-栏目记者/责任编辑：有莫举名
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
-9月9日，美国联邦参议员、参议院情报委员会副主席卢比奥发表声明, 公开反对美中情局在抖音注册账号的意向，强调此举将危害美国国家安全。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-98.png)
-9月8日，中情局发言人称中情局有可能在抖音海外版上注册账号。卢比奥随即致函中情局局长伯恩斯, 敦促他“承诺中情局不会入驻抖音，以及任何对国家安全以及用户数据隐私构成威胁的其它社媒平台。”去年8月份，针对外界担心中共政府通过抖音收集美国用户资料一事，中情局曾提出一份报告，指无证据显示这一担忧, 令人大跌眼镜 !
+栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-104.png)
+爆料革命蝴蝶效应影响之下, 中共孔子学院被认定为隶属中共政府的外国使团, 在美国及世界各地不断被关闭，与此同时,由台湾政府资助的“台湾华语学习中心”开始陆续筹建设立。8月底至今，在洛杉矶、尔湾及旧金山分别已有三所台湾华语学习中心揭幕。
 
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide12.jpeg)
 
-参考链接：
+据悉在“台美教育倡议”架构下，台湾侨委会预计将在美国各大城市设立15个台湾华语学习中心。侨委会主席童振源表示，华语学习中心的设立是希望在美台共同认可的民主自由价值观下，为美国人提供一个学习华语的场所和环境。
 
-[https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html](https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html)
+台湾华语学习中心取代中共国孔子学院，是自由民主价值观对强权和暴力意识形态的替代，更标志中共政权影响力的进一步萎缩 。
 
-[https://www.zaobao.com.sg/realtime/world/story20200809-1075631](https://www.zaobao.com.sg/realtime/world/story20200809-1075631)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-99.png)
-终审:  文龙
-校正/发稿：浪迹天涯
+(本文仅代表作者观点）
+
+参考链接：[孔子学院被美国“赶出去”，台湾华语学习中心开进来](https://www.voachinese.com/a/taiwan-opens-mandarin-learning-centers-in-the-us-seen-as-alternative-to-confucius-institute-20210909/6220924.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

@@ -28,23 +28,23 @@
 ### [中共发誓对所有文娱工作者进行强行驯化](/content/gnews/5/README.md)
  ` 日本东京樱花团`
 
-### [2021年9月9日 文贵先生盖特 10](/content/gnews/6/README.md)
+### [七哥说 — 第5期](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年9月9日 文贵先生盖特 10](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月9日 文贵先生盖特 9](/content/gnews/7/README.md)
+### [2021年9月9日 文贵先生盖特 9](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月9日 文贵先生盖特 8](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [白宫表示将对未接种疫苗的美国人采取COVID-19新措施](/content/gnews/9/README.md)
+### [如果强制接种新冠疫苗，70%未接种的美国人将选择辞职](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳著名主持人：前夫接种辉瑞疫苗后心包炎入院](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [白宫表示将对未接种疫苗的美国人采取COVID-19新措施](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [突发：拜登发出史上最全面的疫苗授权](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [澳著名主持人：前夫接种辉瑞疫苗后心包炎入院](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -85,22 +85,22 @@
 ### [有声| 瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/25/README.md)
+### [洛杉矶公立学校将强制12岁以上学生接种疫苗](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [中共影响力萎缩, 台湾华语学习中心取代孔子学院](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [中情局有意注册抖音账号，卢比奥参议员公开反对](/content/gnews/26/README.md)
+### [中情局有意注册抖音账号，卢比奥参议员公开反对](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [港警突袭六四纪念馆,中共暴政在继续](/content/gnews/27/README.md)
+### [港警突袭六四纪念馆,中共暴政在继续](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [911事件 20周年在即, 阿富汗局势陷入轮回](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [驳斥CNBC的不实报导，班农先生坚定支持文贵先生](/content/gnews/30/README.md)
+### [蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [请党放心一定灭掉你](/content/gnews/47/README.md)
+### [如果强制接种新冠疫苗，70%未接种的美国人将选择辞职](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [请党放心一定灭掉你](/content/gnews/48/README.md)
  ` 银河勇气之星`
 
-### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/48/README.md)
+### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [白宫表示将对未接种疫苗的美国人采取COVID-19新措施](/content/gnews/49/README.md)
+### [白宫表示将对未接种疫苗的美国人采取COVID-19新措施](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP百年百罪 第十集（39 &#8211; 42罪）](/content/gnews/50/README.md)
+### [CCP百年百罪 第十集（39 &#8211; 42罪）](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [还有后来人](/content/gnews/51/README.md)
+### [还有后来人](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [秘翻新视野9月10日播报简要](/content/gnews/52/README.md)
+### [秘翻新视野9月10日播报简要](/content/gnews/53/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [日本学者认为把接种疫苗当作解决问题的做法不好](/content/gnews/53/README.md)
+### [日本学者认为把接种疫苗当作解决问题的做法不好](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [踢蛋蛋，心有灵“犀”](/content/gnews/54/README.md)
+### [踢蛋蛋，心有灵“犀”](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [文贵视角：赵容奭计葵生是牛人，不亚于贯君刘呈杰](/content/gnews/55/README.md)
+### [文贵视角：赵容奭计葵生是牛人，不亚于贯君刘呈杰](/content/gnews/56/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【玫瑰看新闻】第155期](/content/gnews/56/README.md)
+### [【玫瑰看新闻】第155期](/content/gnews/57/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [七哥一周聊：光明会－王岐山－中共的人类清理计划和世界新秩序（二）](/content/gnews/57/README.md)
- ` 日本银河系农场-阿尔法星球`
 
