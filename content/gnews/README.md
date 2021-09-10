@@ -28,13 +28,13 @@
 ### [美疫苗接种报告：65万不良事件](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵先生盖特视频2021年9月9日文字精简版分享](/content/gnews/6/README.md)
- ` TS2020相聚盘古`
+### [中共房地产市值高过美德法日英](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年9月9日郭先生盖特1「9分47秒」](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵先生GTV直播2021年9月8日文字精简版分享](/content/gnews/8/README.md)
+### [郭文贵先生盖特视频2021年9月9日文字精简版分享](/content/gnews/8/README.md)
  ` TS2020相聚盘古`
 
 ### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/9/README.md)
@@ -67,22 +67,22 @@
 ### [墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [后院起火 第三集](/content/gnews/19/README.md)
+### [中共房地产市值高过美德法日英](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [后院起火 第三集](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频| 中共国药集团获准进行新冠肺炎人体免疫球蛋白试验](/content/gnews/20/README.md)
+### [视频| 中共国药集团获准进行新冠肺炎人体免疫球蛋白试验](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频| 特鲁多民调落后，加拿大保守党有望上台执政](/content/gnews/21/README.md)
+### [视频| 特鲁多民调落后，加拿大保守党有望上台执政](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声| 瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声| 中共反邪教小组锚定“光明会” G系列打造全球“阳光情报机构”](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声| 郭文贵先生重磅爆料平安集团 动摇中共根基](/content/gnews/24/README.md)
+### [有声| 瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [秘翻在线：金·卡戴珊“带货”加密货币遭英金融监管官员炮轰](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [台湾公布最新民调, 近九成民众不接受“一国两制”](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [几内亚政变让中（共）国担忧](/content/gnews/31/README.md)
+### [德国选举，检察官调查俄罗斯黑客攻击](/content/gnews/31/README.md)
  ` Charlie`
 
-### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/32/README.md)
+### [习：美国政策造成严重困难](/content/gnews/32/README.md)
+ ` Charlie`
+
+### [几内亚政变让中（共）国担忧](/content/gnews/33/README.md)
+ ` Charlie`
+
+### [秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [银河快讯：G7财长就新国际税收规则达成协议；日本放弃举办2021年世俱杯](/content/gnews/33/README.md)
+### [银河快讯：G7财长就新国际税收规则达成协议；日本放弃举办2021年世俱杯](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：中美通话，又是一场新的勾兑？](/content/gnews/34/README.md)
+### [秘翻在线：中美通话，又是一场新的勾兑？](/content/gnews/36/README.md)
  ` 秘密翻译组G-Translators`
 
-### [《追风筝的人》和中共政府在新疆的时间扭曲大法](/content/gnews/35/README.md)
+### [《追风筝的人》和中共政府在新疆的时间扭曲大法](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：纳斯达克证券交易所将是向DeFi Chain代币化股票服务提供喂价](/content/gnews/36/README.md)
+### [币圈新闻动态：纳斯达克证券交易所将是向DeFi Chain代币化股票服务提供喂价](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [DC大中华时事：中共评论美国反恐20年](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/38/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

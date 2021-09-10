@@ -2,61 +2,218 @@
 ---
 
 
-## 郭文贵先生盖特视频2021年9月9日文字精简版分享
-` TS2020相聚盘古` [轉載自GNews](https://gnews.org/zh-hans/1523553/)
+## 中共房地产市值高过美德法日英
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1523613/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-09-10-下午6.29.53.png)
-1. **明天（纽约时间）的大直播会有台湾的重要消息；**
-2. **续谈天降黑天鹅的详细故事；**
-3. **恒大房地产不再恒大的详情；**
-4. **西方金融界正在研究为什么郭先生的判断总是准确、超前；**
-5. **连续的大直播确实极大地震撼了世界和共产党内部；**
-6. **为什么江家、朱家的财富和人都是来美国、欧洲，购买大量的地产和房产，没人调查、没人查封；曾家财富从不去美国、欧洲，只去澳大利亚、日本、新西兰。原因是什么？**
-7. **有勇气、有视野、有判断是最重要的能力**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-10.jpg)[https://gtv.org/video/id=613addf3784c5a2583545357](https://gtv.org/video/id=613addf3784c5a2583545357)
 
 
-七哥提供线索，答案会慢慢带给大家，最好的答案来自自己，而不是被告知，经过爆料革命的熏陶，战友们具备自我分析能力，每个人都明眼开智，会有自己的正确结论。
+马明哲现在出事儿的时候
+Ahora que Mingzhe Ma está en problemas
 
-8、**联邦是一个群体的联邦**
+查马明哲的时候
+Cuando lo estaban investigando
 
-新中国联邦不是郭先生一个人的联邦，任何东西对于郭先生本人都没有任何意义。
+你想到中国房地产是多少钱吗?
+Has pensado cuánto vale la propiedad inmobiliaria en China?
 
-9、**爆料革命揭示的信息一直都在被时间验证**
+我现在问一件(事), 大卫
+Ahora te pregunto una cosa, David
 
-国内经济状态对国内各种政治帮派都产生了巨大的震撼，过去他们自己都不相信，现在爆料革命所揭示的信息都在发生，并且一直都在被时间不断验证。
+你知道中国房地产整个市值多少吗?
+¿Sabes cuánto es el valor total del mercado de las propiedades inmobiliarias en China?
 
-10、**黑暗势力已经完全控制了中国**
+我觉得有60万亿左右吧
+Yo pienso que son aproximadamente 60 billones
 
-有人问黑暗势力有多大程度控制了中国？答案是：黑暗势力已经绝对控制了CCP的一切，既然能够控制CCP的一切，就能够控制整个中国。
+我也知道你会说是60万亿
+Yo sabía que ibas a decir 60 billones
 
-11、**没有西方黑暗势力的控制，盗国贼们早就死掉一万次了**
+这是官方数字
+Este es el número oficial
 
-王岐山、陈峰、韩正、刚被抓的人民银行副行长蔡鄂生、范一飞（原上海银行行长，现人民银行行长）、周小川、郭树清，哪个没有国际黑暗势力的支持，没有这样的组织力量，他们早就死掉一万次了。他们有钱有势，有财富，孩子都在西方留学。西方随便找个媒体、使个眼神、扔一篇稿子，爆料任何一个罪名，他们分分钟钟完蛋。全世界的媒体就在五大家族手中，不超过五个家族。
+中国房地产是90万亿
+La propiedad inmobiliaria de China es 90 billones
 
-12、**共产党在海外的腐败案件很多未被曝光，是被某种力量保护下来的。**
+90万亿你知道大卫意味着什么?
+David, ¿sabes qué significa estos 90 billones?
 
-AMF国际货币组织主席（法国人）刚刚因为性骚扰服务生被抓，但是，共产党在某国一地的一位警察手里就有超过20起国人吸毒、腐败、洗钱的案件，被某种力量给搁置下来，没有被曝光。
+安红你知道吗?
+Anhong, ¿sabes?
 
-13、**光明会里不都是坏人，还有很多朋友，不能与光明会为敌。与之相关的事情用某国际黑暗组织来描述，不在使用原名。**
+你知道美国是多少吗?
+¿Sabes cuánto es en EE. UU?
 
-**14、世界上最可怕的是无知**
+日本多少吗? 德国, 法国
+En Japón, Alemania y Francia
 
-最值得珍惜的就是勇气，最昂贵的不是钻石，也不是字画，勇气是未来带给人生最重要的东西。正义、无我、无私构建出勇气的基础，勇气就是无我无私的品牌。无知是一切灾难的开始，是人生走进地狱的第一个台阶。
+你知道这几个国家加在一起的和是多少
+Sabes cuánto es el total de todos estos países
 
-15、**大家群休共同开智明目**
+你们知道吗?
+¿Lo saben?
 
-打开人生走向地狱的无知台阶，转身走向无我、无私、正义、智慧的未来天堂之路。
+这些美国, 日本, 德国, 法国, 英国加在一起
+Así como EE. UU, Japón, Alemania, Francia y Reino Unido, sumando a todos
 
-16、**预见性和有计划的措施是成功的关键**
+它还不到90万亿
+No llega ni a 90 billones
 
-在日本加入一些高端俱乐部需要具备基本条件，比如国籍和名字，当时的环境下需用日本人的名字森本郎一，而没有使用郭浩云。同时也是多年计划的结果。
+(只有) 80万亿
+(Solamente) hay 80 billones
 
-17、**路大头的灾难是自己给自己构建的地狱之路，美国法律是他地狱之路的通道。**
+就是中国共产党的房地产市场
+Significa que el mercado inmobiliario del PCCh sobrepasa
 
-本文系编者根据郭先生盖特视频编辑整理，仅供读者阅读参考，不承担任何责任，观看原视频请点击链接：[https://gettr.com/post/pakwde8939](https://gettr.com/post/pakwde8939)
+是这些美法德意日总和还超过你
+A estos cinco países mencionados anteriormente
 
-编辑整理：TS2020相聚盘古
+你知道共产党的这个真实的
+Sabes cuál es el porcentaje real
 
-翻译上传：TS2020相聚盘古
+它的GDP的多少倍吗
+En cuanto al producto bruto interno (PBI) de PCCh
+
+没概念吧, 兄弟们
+No tienen idea, ¿cierto? Hermanos
+
+你们几个都没有 (知道的)
+Todos ustedes no saben
+
+看谁举手啊
+A ver quién se levanta la mano
+
+打断我啊, 500%
+Para interrumpirme, son 500%
+
+官方说是400%
+Oficialmente dicen que es el 400%
+
+实际是500%
+En realidad es el 500%
+
+你知道美国是多少倍吗?
+¿Sabes cuánto es en EE. UU?
+
+你们几个知道吗?
+Ustedes saben?
+
+美国的房地产总市值
+El valor total del mercado de las propiedades inmobiliarias en EE. UU
+
+是它的GDP的1.6倍
+Es 1.6 veces de su PBI
+
+事实上, 达2倍
+Realmente, alcanza el doble
+
+日本大概得2倍多
+Al igual que en Japón
+
+英国3.5倍, 法国3.5倍
+En Reino Unido y Francia es el triple y medio
+
+德国大概3倍左右
+Alemania es aproximadamente el triple
+
+那么, 我告诉你
+Entonces, te digo
+
+这是什么概念
+En qué consiste esto
+
+美国房地美当年出事的时候
+En aquel momento cuando Freddie Mac estaba en problemas
+
+你知道它的房地产GDP是多少吗?
+¿Sabías cuanto fue su PBI de la propiedad inmobiliaria?
+
+是它的GDP
+Es su PBI
+
+房地产的总额是它的GDP 1.6倍而已
+El valor total de la propiedad inmobiliaria es nada mas el 1.6 veces de su PBI
+
+160%
+160%
+
+现在的美国房地产还是在160%
+Actualmente, la propiedad inmobiliaria de EE. UU sigue siendo el 160%
+
+当年的日本经济危机
+La crisis económica de Japón en ese entonces
+
+房地产是它的 (GDP) 300%
+La propiedad inmobiliaria es el 300% de su PBI
+
+就是今天共产党的
+Significa que hoy el PCCh
+
+已经超过300的二倍了
+Ya supera el doble del 300%
+
+基本是300% (的二倍), 兄弟
+Hermano, básicamente (es el doble) de 300%
+
+你看这个经济
+Mira esta economía
+
+我再跟你说
+Y luego te digo
+
+一个你没有想到
+Algo que no se te ha ocurrido
+
+所有这些数据更可怕的事情
+Que es algo más terrible que todos estos datos
+
+美意法英日人家是包含了所有的
+El valor de la propiedad inmobiliaria de estos cinco países involucra todo
+
+就是他是资本市场, 市场经济
+Lo que es su mercado capital y de economía
+
+没有什么老宅, 新宅, 农村宅, 什么宅
+No existe lo que es vivienda vieja, nueva, rural, entre otros
+
+它都是房地产
+Todos son propiedades inmobiliarias
+
+只要你有贷款的
+Mientras tengas un préstamo
+
+只要有市值的, 都算在里边了
+Siempre tenga un valor en el mercado, se tomará en cuenta
+
+可以说是100%
+Puede decir que es el 100%
+
+中共国的房地产只包含商品房
+Las propiedades inmobiliarias del PCCh solamente está incluido vivienda de productos básicos
+
+没含安红她老家那的房子
+Excluyendo la casa de Anhong en su ciudad natal
+
+也没(含)盖喜安娜她祖爷的房
+Tampoco incluye la casa del bisabuelo de Gaixianna
+
+(中共国) 就是这纯商业房
+(En la República Popular de China) es simplemente vivienda comercial
+
+就(已经)90万亿美元
+Y vale 90 billones de dólares
+
+原视频日期：06/09/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1434804790437957633?s=24
+视频时间段：0:00-2:10
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

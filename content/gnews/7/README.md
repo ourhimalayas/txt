@@ -2,25 +2,150 @@
 ---
 
 
-## 2021年9月9日郭先生盖特1「9分47秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1523242/)
+## 习近平首个雄安新区项目失败国际项目会赢吗？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1523601/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁 & Antsee-GTV
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-9.jpg)https://gtv.org/video/id=613adda0784c5a2583545346
+你有基本的常识
+Si tienes conocimientos básicos
 
-Video link: [https://gettr.com/post/pakwde8939](https://gettr.com/post/pakwde8939)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F9F24423-3B63-48CB-B3E5-0C4B173C094A.png)
-尊敬的战友们好，今天是9月8日。九月九号是“毛贼东”逝世的日子啊，是吧？今天上午我刚跟很多地方开完会，接下来还有几个会。明天下午要见人，今天下午也要见人，而且都是见重要的人。还有超级豪华晚饭，一会我去吃饺子，中午的午饭。今天不直播，明天上午直播。主要谈啥呢？明天台湾有重要消息，明天讲讲台湾的消息，还有明天我们好好再讲讲黑天鹅到底现在发生啥事了？它跟台湾也有关系。明天再好好谈谈国内的恒大。恒大经济咋了啊？还有恒大地产？西方金融界都在说：“为什么Miles郭怎么这么早就能说恒大要完蛋呢？为什么他就说对了？”西方很多人在研究爆料革命。头几段的大直播震撼了世界和共匪内部。
+现在你看这个包括判断平安的事情
+Ahora ves que esto incluye determinar el suceso de Ping An
 
-说实话，没有人认真研究过为什么江家，朱家来美国，来到欧洲，他们大量的地产、房产没人查封，没人动？曾家是不敢来美国的，曾家是澳大利亚，大家发现了吗？为啥曾家要去澳大利亚啊？啥情况？对不对兄弟姐妹们？没人问这个问题。慢慢7哥都会把答案带给你们，或者让你们自己找到答案。不用我说你们就有答案了 — 这就是7哥要干的事。就是不用我说，未来你们听着听着自己都有答案了，最好的答案是来自于自己，而不是来自于任何人 — 这就是爆料革命。让每个人开智，让每个人未来都有能力判断是非 — 这是7哥最想要的，也是爆料革命最想要的：让大家有勇气，有视野，有判断力。这是我最重要的目的。这样新中国联邦才能成为“人群的联邦”，它不能是我一个人的联邦；一个人的联邦7哥不需要。我和所有人不一样的事情是别人想要很多东西，一个人要很多东西或者少部分人要很多东西；7哥恰恰相反，任何东西对我本人来讲没有任何意义。这是咱跟所有人不同的地方，也是咱牛的地方。
+判断北交所的事情
+Determinar el asunto de la Bolsa de Valores de Beijing
 
-国内的经济到了这种情况下，据说，我瞎懵的 — 国内的经济对国内的各政治帮派产生了巨大的震撼。很多人过去他们自己也不一定相信咱说的事就能发生。结果都发生了。黑暗的势力有多大的程度控制着中国？我可以告诉大家黑暗势力已经绝对控制了共产党的一切。既然能控制共产党的一切，当然就控制了全中国。王岐山和陈峰的身份，包括被抓起来的人民银行行长蔡鄂生，他带着个所谓的西藏的喇嘛。包括原上海银行行长，现在的人民银行副行长范一飞、周小川、郭树清，哪个没有国际黑暗组织力量的介入？没有这些力量，他们早就被曝光一万回了 — 他们存的钱，他们孩子在西方的留学，他们存的资产。
+一片信息咵咵都来了
+Todas las informaciones vienen
 
-西方不用郭文贵和爆料革命。随便个媒体 — 全世界的媒体和全美国的媒体就在五大家族手里控制着，不超过五个家族。你觉得会是蒙出来的，没人安排吗？这五大家族中任何一个人使个眼色，给下面扔一稿子就把韩正啊、周小川、郭树清、蔡锷生、王岐山、江绵恒、江支成啊分分钟就曝光了 — 赌博、吸毒、嫖娼、虐童、洗黑钱、强奸、强奸未遂、Me Too。随便一个都能曝光。大家从来没有问过全世界很多国家，像那非洲国家或中东国家在美国经常被弄，连法国可能当上总统的人就在对面的时代广场所谓性骚扰服务员，还有IMF（世界货币基金组织）的主席被抓。是中共的人没干这事儿，还是中共的人都是君子，都是老实人？不是的，因为不允许媒体报道，从来没有一件曝的。某个国际刑警组织 — 不是大家熟知的“国际刑警组织”，是另外一个 — 退休的一把手告诉我说：“我最起码经历了20几个关于中共家族吸毒腐和洗钱的案子都被某种力量给搁置下了。”另外，战友们拜托了，最近咱不要老说“光明会”了，代替个词，用个其它词儿，可以叫“某国际黑暗组织”。就不要说“光明会”了，因为“光明会”里不都是坏人，还有朋友。咱不跟“光明会”作对，称之为国际上的黑暗组织就行了。
+都是错的，因为你没情报
+Pero son erróneas, porque no tienes información
 
-明天继续大直播，明天直播只能不到十一点半就要结束，因为我中午有个重要的VIP午餐，还有VIP下午餐、晚餐，所以只能到十一点半。跟谁直播现在还不知道，还是很多战友一起来。世界上最可怕的就是无知，最需要珍惜的就是勇气；最昂贵的不是钻石，也不是字画。去他大爷的字画吧，死的时候啥也带不走。勇气会给你的未来和人生带来最重要的东西。当然勇气必须基于正义、无我、无私的很多基础才能带出真正的勇气出来；它是无私无我的之子。更重要的事情，大家记住，无知是一切灾难的开始，是人生走向地狱的第一个台阶。所以我们一定要让大家集体“群修”，把智慧、脑子全开了，把心和眼开了，打破这个让人生走向地狱的无知的第一个台阶，扭转头来（调转方向）开始走向无私、无我、正义和智慧的未来的天堂。慢慢来，不要着急。
+雄安，华夏幸福地产
+Xiong’an y China Fortune Land Development
 
-任何事没有计划都不行。在日本你可以不拥有日本护照，但是如果没有一个日本名字，那你加入日本的几个会是不可能的，是不是啊？像日本的N什么会，那是不可以的，所以我起了日本名字。我告诉大家的是“森本朗一”，叫“一郎”也是可以的，字的笔划都是一样的。为什么要有个日本名字？因为日本人不能放一个“郭文贵”或其它的非日本名字在他们的“某某会”里啊，不中啊，是吧？那是多年计划的结果，不是蒙出来的，不是“路大脑袋”、“蛇妖闫”瞎胡编的。这两天，他们逮着又开始宣传自己呢，作死呢。他们的麻烦马上即将到来，灾难即将到来。美国法律已经为他们准备好了一切他们该去的地方。姆该嗮了，明儿早上见。
+是整个的，马明哲的
+Es todo de Ma Mingzhe
 
+真正的是他倒下的第一个多米诺骨牌
+La verdad es que él es la primera ficha de dominó que se cayó
 
+而雄安就是习的一整个项目已经彻底破产
+Y Xiong’an es un proyecto completo de Xi, que ya se quebró definitivamente
+
+你觉得习在雄安在他自己的国里面
+Tú crees que Xi estando en Xiong’an y en su propio país
+
+他都不能把自己的第一个项目雄安立起来
+No puede levantar el primer proyecto de Xiong’an
+
+你觉得他能干倒美元吗？
+¿Tú crees que podrá tumbar el dólar?
+
+习这些年竟然都能受王岐山摆布
+Ya que Xi ha estado a la merced de Wang Qishan todos estos años
+
+你觉得习能把中国真的整向国际第一大国吗
+Tú crees que Xi pueda llevar a China como primer país mundista
+
+你觉得习身边的人
+Tu crees que las personas que están alrededor de Xi
+
+连这个平安的陆金所上市都识破不了
+Si no pudo determinar que Lufax se haga como empresa de capital abierto de Ping An
+
+还干掉了蚂蚁金服
+Hasta mató a Ant Group
+
+三马是绝对的死嗑
+Los tres Ma de seguro morirán
+
+一马马明哲，干掉二马
+El primer Ma es Ma Mingzhe, resuelve el segundo Ma
+
+而且利用了习
+Además, utilizaron a Xi
+
+你觉得习能被马明哲利用的人
+¿Tu crees que Xi podrá ser utilizado por Ma Mingzhe?
+
+你觉得他能不被美国的这300个华尔街大佬利用吗？
+¿Tú crees que él no será utilizado por estos 300 jefes del Wall Street de EE. UU?
+
+你觉得习能在这个时候闭关锁国
+Tu crees que Xi podrá encerrar y bloquear el país
+
+要玩中小企业国际板
+Para jugar al tablero internacional de la pequeña y mediana empresa
+
+你觉得闭关锁国以后还能完成国际板吗？
+¿Tu crees que cerrando y bloqueando el país se puede cumplir con el tablero internacional?
+
+你觉得90万亿的房地产的总值
+¿Tú crees que el valor total de 90 billones de bienes raíces
+
+是中国的GDP总值五倍，500%
+Son cinco veces del PIB total de China, 500%
+
+美日法德英总和的好几倍
+Son varias veces del total de EE. UU, Japón, Francia, Alemania y Reino Unido
+
+两三倍
+Dos a tres veces
+
+你觉得这样的中国金融能撑下去
+¿Tú crees que este tipo de finanzas en China puede seguir sosteniendo
+
+还能搞国际金融吗？
+¿Y además hacer la finanza internacional?
+
+他打开之日即是灭亡之时
+El momento en que lo abra es la hora de la muerte
+
+跟雄安项目一定是殊途同归
+Es con el proyecto Xiong’an alcanzando el mismo objetivo por diferentes rutas
+
+救不起，撑不起
+No se podrá sostener ni salvar
+
+为什么
+Por qué
+
+所有这些穷国家贪婪至极
+Todos estos países pobres son extremadamente codiciosos
+
+像路大脑骗蛇妖闫一样
+Es como Lude mintió a Limeng Yan
+
+你给她个信用卡她直接20万买名牌服装
+Le das una tarjeta de crédito con 200 mil para que compre ropas de marca
+
+你给巴勒斯坦说
+Le dices a Palestina
+
+现在我给你融资北京板
+Ahora te financio el tablero de Beijing
+
+它把所有的都卖给你
+Él te vende todo lo que hay
+
+它要把它祖宗奶奶未来子孙都卖给你
+Te va a vender desde sus ancestros y abuelos hasta los futuros nietos
+
+弄1万亿都不拉倒
+Ni obteniendo 1 billón se conforma
+
+原视频日期：06/09/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1434802358110674944?s=24
+视频时间段：0:00-2:10
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
