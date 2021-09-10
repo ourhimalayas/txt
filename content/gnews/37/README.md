@@ -2,23 +2,19 @@
 ---
 
 
-## 秘翻在线：厚生省公布了截至9月3日的Eta株感染病例总数
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523581/)
+## 德国选举，检察官调查俄罗斯黑客攻击
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1523617/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/画像6.png)（图片源自本文链接）
-日本「朝日新闻」9月9日消息：
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09103.jpg)
+德国检察官办公室发言人今天证实，卡尔斯鲁厄联邦总检察长已对俄罗斯在德国竞选活动中发起的黑客攻击展开调查。。
 
-自去年12月以来，在日本检疫的感染病例中发现了18例中共病毒的变异株，即Eta株, 厚生省公布了截至9月3日的病例总数。
+几个月来，一个名为“Ghostwriter”的黑客组织一直试图访问联邦议院和州议会（地区商会）成员的私人电子邮件。根据推测，俄罗斯安全当局和军事秘密部门是袭击的幕后黑手。尤其是基民盟、基社盟和社民党政府联盟的代表他们落入了黑客的视线范围之内。
 
-Eta菌株于去年12月首次在几个国家发现，并在今年3月被世界卫生组织（WHO）指定为 “需要注意的异变毒株”（VOI）。 与阿尔法和德尔塔菌株这种”需要关注的变异毒株”（VOC）相比，并没有那么令人震惊。
+免责申明：本文只代表译者观点，与Gnews无关
 
-在日本，该变异株没有被国家传染病研究所的分类指定为VOC或VOI，而且直到8月底为止都没有被列为需要公布的对象。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/09/09/elezioni-germania-procura-indaga-su-attacchi-hacker-russi\_1b5ace64-5f9f-4683-849a-c4eab3b737a8.html](https://www.ansa.it/sito/notizie/topnews/2021/09/09/elezioni-germania-procura-indaga-su-attacchi-hacker-russi_1b5ace64-5f9f-4683-849a-c4eab3b737a8.html)
 
-[信息源](https://www.asahi.com/articles/ASP996H55P99ULBJ00T.html)
-
-随着中共病毒的不断变异，这个毒株、那个毒株越来越多，这已经不是非感染病专家的普通百姓们所能掌握的了。人们将习惯于这种报道，习惯于病毒的变异，直到不在乎病毒的变异，不屑于了解病毒相关信息，甚至习惯于身边的人、熟悉的人因感染病毒而随时离开这个世界。人类会不会变得越来越冷血？从这个意义上讲，中共带给人类的何止是病毒感染！
-
-（文章仅代表作者个人观点）
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
 
 0
