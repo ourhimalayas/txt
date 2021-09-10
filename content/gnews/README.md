@@ -37,14 +37,14 @@
 ### [2021/09/09文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳政府官员承认：接触者追踪属于新世界秩序一部分](/content/gnews/9/README.md)
+### [打疫苗](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳政府官员承认：接触者追踪属于新世界秩序一部分](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文雍漫谈：有一种温暖超越语言](/content/gnews/10/README.md)
+### [文雍漫谈：有一种温暖超越语言](/content/gnews/11/README.md)
  ` 文雍`
-
-### [2021年09月09日澳喜要闻（每日更新）](/content/gnews/11/README.md)
- ` 澳喜农场`
 
 ### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/12/README.md)
  ` G&#124;News TAIWAN`
@@ -55,35 +55,35 @@
 ### [快讯：拜登与习近平通电话](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/15/README.md)
+### [拜习10日通话与中共军机6日驱离美巡逻机有何关联](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【视频】平安集团十八年股东变迁](/content/gnews/16/README.md)
+### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【视频】平安集团十八年股东变迁](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [墙内世界](/content/gnews/17/README.md)
+### [墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [教师待遇本不够，而今又添“拖欠”愁](/content/gnews/18/README.md)
- ` 纽约香草山MOS02`
+### [后院起火 第三集](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 中共国经济崩溃的开始：恒大面临破产](/content/gnews/19/README.md)
+### [视频| 中共国药集团获准进行新冠肺炎人体免疫球蛋白试验](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2021/09/09大卫作战室直播精要](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [视频| 特鲁多民调落后，加拿大保守党有望上台执政](/content/gnews/21/README.md)
+ ` MOSREC`
 
-### [魔鬼沼泽地光明会中国分舵](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [有声| 瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/22/README.md)
+ ` MOSREC`
 
-### [韩国19万人接种疫苗现异常 800人死亡](/content/gnews/22/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [有声| 中共反邪教小组锚定“光明会” G系列打造全球“阳光情报机构”](/content/gnews/23/README.md)
+ ` MOSREC`
 
-### [自然免疫力会有保护作用，胜过打疫苗](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭文贵精品视频-爆料革命的靶心：中国光明会的瓢把子王岐山](/content/gnews/24/README.md)
- ` 澳喜农场`
+### [有声| 郭文贵先生重磅爆料平安集团 动摇中共根基](/content/gnews/24/README.md)
+ ` MOSREC`
 
 ### [秘翻在线：脸书雷朋联名推出智能眼镜 隐私问题引担忧](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
@@ -103,29 +103,29 @@
 ### [中共国获邀参加政府就职典礼](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：中美通话，又是一场新的勾兑？](/content/gnews/31/README.md)
+### [银河快讯：G7财长就新国际税收规则达成协议；日本放弃举办2021年世俱杯](/content/gnews/31/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [秘翻在线：中美通话，又是一场新的勾兑？](/content/gnews/32/README.md)
  ` 秘密翻译组G-Translators`
 
-### [《追风筝的人》和中共政府在新疆的时间扭曲大法](/content/gnews/32/README.md)
+### [《追风筝的人》和中共政府在新疆的时间扭曲大法](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：纳斯达克证券交易所将是向DeFi Chain代币化股票服务提供喂价](/content/gnews/33/README.md)
+### [币圈新闻动态：纳斯达克证券交易所将是向DeFi Chain代币化股票服务提供喂价](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：中共评论美国反恐20年](/content/gnews/34/README.md)
+### [DC大中华时事：中共评论美国反恐20年](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/35/README.md)
+### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳政府官员承认：接触者追踪属于新世界秩序一部分](/content/gnews/36/README.md)
+### [澳政府官员承认：接触者追踪属于新世界秩序一部分](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Afterpay呼吁私企参与发行加密货币“稳定币”](/content/gnews/37/README.md)
+### [Afterpay呼吁私企参与发行加密货币“稳定币”](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [泰国第一例官方确认和疫苗有关死亡案例](/content/gnews/38/README.md)
- ` 日本东京樱花团`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

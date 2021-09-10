@@ -2,45 +2,46 @@
 ---
 
 
-## 韩国19万人接种疫苗现异常 800人死亡
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1522021/)
+## 有声| 瑞典与以色列，自然群体免疫与人工免疫的实例
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1523508/)
 
-**By:秘翻新闻**
+配音：香草山教育部-蒙古鸿雁
 
-***2021-9-9***
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**新闻摘要:**
 
-1、路透社：中共网络水军指责郭文贵并将CCP病毒归咎于美国
 
-2、韩国19万人接种疫苗现异常 800人死亡
 
-3、向中共走私海洋技术 中国商人在美获刑2年
 
-4、无耻的福奇表示，第三剂中共病毒疫苗可能成为标准
+据瑞典政府周二发布的新闻称， 将从9月29日起取消大多数新冠疫情期间制定的限制。最近几周，该国新冠的死亡人数仍然偏低。
 
-5、疫情死亡率不断上升，华盛顿的太平间及殡仪馆压力巨大
+疫苗护照正在美国几个城市，法国，意大利，瑞士，以色列和其它地区推出之际，瑞典政府声称其推出的疫苗护照将来可能只会被授权用于”大型公众集会”，16岁以下的儿童和因医疗原因不能接种疫苗的个人除外。
 
-6、“要生存 要吃饭” 数百名郑州大巴司机交通厅前请愿
 
-7、从补习班到电视节目 中共全面控制民众意识形态
 
-8、惧经济造假被揭穿？中共封杀上千个财经账号
+**文字版原文：[瑞典与以色列，自然群体免疫与人工免疫的实例](https://gnews.org/zh-hans/1521078/)**
 
-9、央视主持人董卿被批“双面人”
+栏目记者/责任编辑：圣母院钟声
 
-10、恒大将推迟向银行支付贷款利息
 
-11、中共说援助阿富汗是美国和盟国的义务
 
-**GTV链接：**[https://gtv.org/broadcast/watch/6139d066be28c76ac944832a](https://gtv.org/broadcast/watch/6139d066be28c76ac944832a)
+*音频处理：喜山必胜Maverick
+发稿：雪梨*
 
-*发布:文橙*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-* * *
+**更多资讯，更多关注**
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
 0
