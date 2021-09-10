@@ -15,6 +15,16 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@purelotusheart1 9/10/2021 2:45 AM (UTC)`
+
+⚠️理查德弗莱明博士，物理学博士，医生，核子心脏病学家，律师，新冠病毒和疫苗研究的负责人刚刚宣布：<br/> “有一件非常关键的事情，通过在疫苗中加入氧化石墨烯可以防止刺突蛋白粘附在细胞上（注：接种部位），使刺突蛋白可以穿越血脑屏障（注：进入大脑），导致朊病毒疾病（注：例如疯牛病）”<br/><br/>⚠️弗莱明博士呼吁美国人民和议员们站出来，行动起来。<br/><br/> ⚠️郭文贵先生于 2021 年 8 月 24 日宣布每一种新冠疫苗都含有氧化石墨烯纳米颗粒，弗莱明博士收到爆料革命的信息后，改变了他之前对这个问题的理解。<br/><br/> ⚠️ 弗莱明博士的声明从科学角度强有力地证实了郭先生和爆料革命无名英雄的情报的准确性和重要性及其对西方人的影响力。
+> `@purelotusheart1 9/10/2021 2:31 AM (UTC)`<br/>⚠️Dr. Richard Fleming, PhD Physics, MD, Nucleus Cardiologist, JD, leader of Covid virus & vaccines research has just announced: <br/>“there is something very critical, by having graphene oxide in the vaccines and preventing the spike proteins from attaching to cells, it makes the spike proteins available to cross the blood-brain barriers to cause the prion diseases (eg mad cow disease)”<br/><br/>⚠️Mr. Miles’ announcement on Aug 24, 2021, that each and every vaccine has graphene oxide nanoparticle,  has changed Dr. Fleming’s previous understanding of the issue.<br/><br/>⚠️ Dr. Fleming’s annoucement is a powerful scientific confirmation proving the accuracy and importance of intel from Mr. Guo and anonymous heroes of our Whistleblower Movement. 
+![img](https://media.gettr.com/group15/getter/2021/09/10/02/16deeb83-be93-271f-1f9e-b46e9c02c653/out.jpg)
+
+---
+
 `@miles 9/10/2021 1:01 AM (UTC)`
 
 2021年9月9日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>September 9，2021 Rule of Law Foundation and Society donors messages collection<br/>Rule of Law Foundation and Society appreciate all of our supporters and donors!
@@ -300,13 +310,6 @@ Clues of COVID-19 to be recognized as bioweapon regarding Wuhan<br/><br/>关于�
 ![img](https://media.gettr.com/group41/origin/2021/09/05/03/46b7a24e-e12a-3b74-d4c7-ae8560bd629d/bbd76089902ce54c1dbda294269c5d4e.jpg)
 > `@drzevzelenko 9/3/2021 10:01 PM (UTC)`<br/>
 ![img](https://media.gettr.com/group30/getter/2021/09/03/22/cbf1926b-fc99-0f87-7bee-0b47e1469bef/a9c4ae6526ca785d5aa7dc081c7dc864.jpg)
-
----
-
-`@miles 9/6/2021 2:29 AM (UTC)`
-
-9月5号：尊敬的战友们好．几周来的大直播，让大家获得了海量的信息．更加了解了共产党的腐败……和在全世界的渗透，冠状病毒和疫苗的真相。<br/>明天我们没有直播。<br/>星期二上午9:00继续开始大直播，不再聊更多的严肃的话题，聊聊艺术和中国共产党之间的政治艺术腐败的关系……🤣🤣🤣💥💥💥😅😅😅💪💪💪💪💪
-![img](https://media.gettr.com/group45/getter/2021/09/06/02/04c51eb9-c724-8606-0b37-927896ca6469/ab8ae811691a20c2c5f9c460e90a8d96.jpg)
 
 ---
 
