@@ -2,121 +2,73 @@
 ---
 
 
-## COVID疫苗：公众需要的不只是“相信我们”（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1524458/)
+## 拜登政府强推疫苗引美入深渊
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1524554/)
 
-- 编译：Jenny Ball
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/B-2.jpg)washingtonlatest.com
+就在笔者昨天（9月10日）悉数了拜登屈从中共的表现：“表面上做足了文章，只闻雷声，不见雨滴，除了人权制裁，看不到实质性行动。北京冬奥会的抵制，世界看着你美国，卡在白宫停滞不前；川普总统禁止出口中共国的某些产品，白宫给取消了禁令；阿富汗军人仓促逃跑，除了人质，尖端的武器装备也留给了塔利班和中共；病毒报告的结论，几乎是中共需要的版本……拜登政府正在中共的威逼利诱下，将美国带向深渊。”“美13名议员担忧拜登批准华为购买芯片。”【1】、【2】之后，窃位总统竟然继续通话习近平【3】，进一步彰显了美国现政府亲共、媚共的姿态。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1009A.jpg)
+就在拜登与习近平通话前，白宫还做了两件配合中共的事情：强制注射疫苗、袒护老贼福奇。
 
-**企业、政府和科学界，为了我们最大利益而合作的想法是一个值得考究的问题——盲目接受任何行业针对全球危机的解决方案，都是没有根据的。**
+《福克斯新闻》发表了两篇报道，“拜登宣布超过100人的公司员工必须接种疫苗”【4】、“普萨基为福奇辩护：‘他说的是正确的’”【5】
 
-过去几个月关于拟议的数十亿美元和解的报告，以结束与[阿片类药物相关的巨额诉讼](https://www.latimes.com/world-nation/story/2021-07-20/us-opioid-lawsuits-on-verge-of-settlements-with-4-companies)，明确反映了药品生产商和经销商的态度。即使他们同意支付创纪录的金额，行业领导者和他们的公共关系代表仍坚持认为，大型制药公司与美国的麻醉品成瘾之间没有关联。
+第一篇原文如下：
 
-（阿片类药物：一种在成瘾性或生理作用上类似于鸦片的化合物。）
+拜登周四（9月9日）宣布，所有拥有 100 名以上员工的雇主将被迫要求接种中共病毒疫苗，或每周对员工进行测试。
 
-“普渡制药”（Purdue Pharmaceuticals）将阿片衍生物奥施康定（OxyContin）作为非成瘾性药物销售，要求获得广泛的法律豁免权，以换取其45亿美元的和解。
+该授权将于周四下午宣布，预计将影响多达 1 亿美国人。
 
-在宣布260亿美元的报价后，强生公司[Johnson & Johnson](https://childrenshealthdefense.org/defender/johnson-johnson-bankruptcy-liability-baby-powder-lawsuits/)执行副总裁兼总法律顾问迈克尔·乌尔曼 (Michael Ullmann) 发表了措辞谨慎的声明：
+这项扩展性的规定要求所有超过100人员工的雇主都要求他们接种疫苗，或者每周进行病毒检测，（此项政策）约有8000万美国人受到影响，接受联邦医疗保险或医疗补助的医疗机构大约1700万工作人员也必须接受全面接种。
 
-“我们认识到阿片类药物危机是一个极其复杂的公共卫生问题，我们对每个受影响的人深表同情。该解决方案，将直接支持州和地方在解决美国阿片类药物危机方面取得有意义的进展的努力。”
+拜登将要求“职业安全与健康管理局”（Occupational Safety and Health Administration）制定一项规定，要求公司员工接受测试。公司将必须支付测试费用，但他们可以将费用转嫁给员工。
 
-鉴于大型制药公司以一贯的策略，和对[疫苗](https://childrenshealthdefense.org/defender_category/covid/)快速开发的慈举，被告不承担促成类阿片流行的任何责任。
+拜登还签署了一项行政命令，要求为行政部门的雇员和与联邦政府有业务往来的承包商（必须）接种疫苗——而不是选择进行测试。这将涵盖了另外的几百万人。
 
-相反，为了这些大型制药公司的数十亿美元，他们要求所有涉及诉讼的州和市政当局，同意不再将他们的产品与毒瘾联系起来。
+除了疫苗接种要求外，拜登还将根据疾病控制和预防中心（CDC）的指导方针，对拒绝在航班上佩戴口罩的乘客、或拒绝在联邦所有权场所保持面部遮盖要求的人，处以双倍的联邦罚款。
 
-公司已提出对他们在过去的20年里导致的50万人死亡，花钱让他们保持沉默。这种企图贿赂的做法，反映了供应商[持续供应成瘾药物](https://www.washingtonpost.com/investigations/76-billion-opioid-pills-newly-released-federal-data-unmasks-the-epidemic/2019/07/16/5f29fd62-a73e-11e9-86dd-d7f0e60391e9_story.html)给数以百万计的人，他们今天还在遭受阿片类处方药物滥用的苦果。
+该规定还要求大公司为接种疫苗（员工）提供带薪休假。
 
-避免过量服用或幸存下来的吸毒者，必须寻找[一个允许使用麻醉品的社会](https://newrepublic.com/article/161692/america-segregates-drug-use)，同时将吸毒者指定为弃儿和罪犯。无论他们的药物来源是进口鸦片制剂，还是处方止痛药，充满敌意的文化，加上政府疏忽监督，大大加剧了他们的痛苦。
+据《福布斯》报道，拒绝遵守这项规定的企业将面临巨额罚款，每次违规最高可达14000美元。
 
-我们这实际上是对一个剥削弱势群体的有执照的贩毒集团已经视而不见了。
+而7月时白宫新闻秘书普萨基告诉记者，强制联邦打疫苗“不是联邦政府的责任”。
 
-直接参与普渡和强生诉讼的宾夕法尼亚州总检察长，乔什·夏皮罗 (Josh Shapiro)，简要分析了他的观点：
+（原文完）
 
-“这些死亡无可避免。这个流行病就是由一大群制药高管和药品经销商制造的。”
+世界真是到了疯狂的地步，邪恶势力正在驱使着白宫，白宫也在顺从着，使人感到不寒而栗！没有文贵先生、新中国联邦，这个世界真得让恶魔们霍霍了！
 
-**短视的监督**
+《福克斯新闻》的第二篇报道：
 
-政府监管机构[本可以阻止](https://www.nature.com/articles/d41586-019-02686-2)这场持续发生的悲剧。
+白宫新闻秘书詹·普萨基（Jen Psaki）周四（9月9日）为福奇辩护，有人指控他在美国政府是否资助武汉的功能增强研究导致中共病毒疫情的问题上向国会撒了谎。
 
-有权保护公众的美国食品和药物管理局 (FDA)，一直无法抵抗制药业的主导影响。
+福奇在国会山作证时坚决否认“国家卫生研究院”（NIH）资助了任何的武汉功能增强研究，但截获的周一发表的一篇报道中，揭露了数百页的文件，其中披露美国政府向美国的卫生组织“生态健康联盟”（ EcoHealth Alliance）注资310万美元，用于支持武汉病毒研究所（WIV）的蝙蝠冠状病毒研究，而武毒所将联邦资金中近60万美元用于发现和改变蝙蝠冠状病毒，这些病毒可以通过人传人感染人类。
 
-FDA仍然未能最大限度地减少吸毒者及其家人的痛苦和折磨，他们无法得到可预防流行病蹂躏的药物。
+《福克斯新闻社》驻白宫记者彼得·杜西（Peter Doocy）在周四（9月9日）的新闻发布会上询问了普萨基有关该报道的情况。
 
-2019 年，FDA批准新型阿片类止痛药咨询委员会的前任负责人雷福德·布朗（Raeford Brown） 博士说：
+杜西说：“你在新闻发布时说过，在任何情况下，拜登都不会解雇福奇。自从福奇告诉国会，国家卫生研究院从未资助武汉冠状病毒功能增强研究，但截获中心发表的文件表明这不是真的，这意味着在他误导了国会之后，情况仍然会如此吗？”
 
-“FDA的作案手法是，他们像是在谈论一场精彩的比赛，然后什么也没有发生。在过去的五年里，我直接与该机构合作，当我坐在会议上听他们讲话时，我所能想到的就是时间在流逝，以及每时每刻都有很多人在他们的无所事事中死去。FDA继续表现出的缺乏洞察力，在很多方面都是一种接近罪犯的故意视而不见。”
+新闻秘书很快为福奇辩护，并驳斥那些是不当的行为。
 
-**美国政府的**[**毒品战争被误导了**](https://www.nytimes.com/2021/08/08/opinion/opioid-epidemic-sacklers-settlement.html)**：它应该是针对制药业。**
+“好吧，首先，我要说，国家卫生研究院已经驳斥了这一报道，我要向你们指出这一点。”普萨基在提供一些要点之前说。“美国国立卫生研究院从未批准任何可能使冠状病毒对人类更危险的研究，这提醒我们，与我们正在对抗的现有冠状病毒相比，之前存在着不同的冠状病毒。”普萨基继续说，“这项研究产生的科学成果表明，NIH支持的工作中公布的蝙蝠冠状病毒序列不是COVID-2的毒株，因此他所说的是正确的。”
 
-但很明显，还没有改变任何事情的倾向，**主要是因为 ****FDA ****和大型制药公司一直有着互惠互利的关系。**
+（原文完）
 
-难道是因为FDA的阿片类药物[监督部门](https://www.forbes.com/sites/johnlamattina/2018/06/28/the-biopharmaceutical-industry-provides-75-of-the-fdas-drug-review-budget-is-this-a-problem/?sh=2c9e7f8b49ec)[75%](https://www.forbes.com/sites/johnlamattina/2018/06/28/the-biopharmaceutical-industry-provides-75-of-the-fdas-drug-review-budget-is-this-a-problem/?sh=2c9e7f8b49ec)[的预算依赖于](https://www.forbes.com/sites/johnlamattina/2018/06/28/the-biopharmaceutical-industry-provides-75-of-the-fdas-drug-review-budget-is-this-a-problem/?sh=2c9e7f8b49ec)制药巨头？或者可能是由于 FDA和CDC的监管机构，是制药行业与专业人士之间的[旋转门](https://thehill.com/blogs/congress-blog/politics/452654-for-big-pharma-the-revolving-door-keeps-spinning)？
+老贼福奇之所以底气这样硬，一次又一次地向国会撒谎，还在混淆定义、偷换概念，正是有猖狂的邪恶势力撑腰。
 
-这两种持续的结构性补贴，都是缺乏结束巨额收益流动意愿的明显症状。
+正像文贵先生所说，中共以及与中共背后的邪魔势力近期的猖狂，说明了他们死期的临近。自从文贵先生系列大直播公布了中共病毒、疫苗及解药，揭露了黑暗势力的运作过程后，举世震惊，世人不站出来抗魔擒妖，只有死路一条。拜登的这些倒行逆施实际上也让美国和世界看清了，也将美国和世界逼到了墙角，这些美国人才能挺身抗争，中共会加速灭亡。
 
-芬太尼（Fentanyl）和奥施康定（OxyContin）等处方药，以及类似的阿片类药物，因利润驱动的政策而被滥用，导致监管和限制其使用的努力无效。
+有关链接：
 
-即使考虑接受和解提议，阿片类药物成瘾，及其随之而来的悲惨后果也在增加。
+【1】[https://gnews.org/zh-hans/1522272/](https://gnews.org/zh-hans/1522272/)
 
-除了巨大的民事诉讼之外，**似乎没有努力揭示奸商和监管者之间阴险关系的细节——这并不是因为公众不知道这种破坏性的联盟**。
+【2】[https://gnews.org/zh-hans/1522512/](https://gnews.org/zh-hans/1522512/)
 
-**对令人厌恶行业的新的信任**
+【3】[https://gnews.org/zh-hans/1523235/](https://gnews.org/zh-hans/1523235/)
 
-[2019](https://news.gallup.com/poll/266060/big-pharma-sinks-bottom-industry-rankings.aspx)[年的一项盖洛普民意调查](https://news.gallup.com/poll/266060/big-pharma-sinks-bottom-industry-rankings.aspx)发现，制药业是美国最令人厌恶的行业。
+【4】[https://www.foxnews.com/politics/biden-set-to-announce-vaccine-mandate-or-weekly-testing-for-companies-with-more-than-100-employees](https://www.foxnews.com/politics/biden-set-to-announce-vaccine-mandate-or-weekly-testing-for-companies-with-more-than-100-employees)
 
-推而广之，尽管FDA和大型制药公司之间潜在的不道德关系，是一个很少详细分析的话题，但对诚实的政府监督的期望已经渺茫。
+【5】[https://www.foxnews.com/media/psaki-defends-fauci-allegations-lied-to-congress-doocy](https://www.foxnews.com/media/psaki-defends-fauci-allegations-lied-to-congress-doocy)
 
-由于制药巨头向州政府计划提供数十亿美元的和解资金，以解决社会和犯罪滥用问题，因此FDA对保护公众健康的监管和监督很少。
-
-谁在与制药巨头的联盟中拥有决定权，这已经不是什么秘密了。
-
-而现在，随着世界面临大流行的持续挑战，人们却对同一个财团抱有毫无根据的盲目信心。
-
-以爆炸性的健康危机为名，疫苗的开发迅速而激烈。然而，当最需要仔细审查每一个细节时，制药行业却有了犯错犯规的广阔空间。
-
-政府监管机构和大型制药公司[关系依旧](https://news.yahoo.com/fauci-defends-covid-boosters-says-three-shots-will-likely-be-the-new-norm-210524610.html)。他们对[实验性疫苗](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)的动机难道是表面看起来那样吗？
-
-为什么那些质疑其真实性的人会[受到谴责和排斥](https://childrenshealthdefense.org/defender/covid-countermeasures-forced-vaccination-passports-segregated-society/)？
-
-**随着疫苗获得惊人的利润，****FDA ****继续随着制药业的发展而手足舞蹈——这应该引起极大的关注。**
-
-处方药生意因其无情地从经常被滥用或具有众多相关风险的药物中寻求最大收益而声名狼藉。一切都没有改变。
-
-‎由于有渎职的历史，在[以保护利润为核心利益的行业](https://www.politico.com/news/2021/09/02/drug-prices-democrats-lobbying-508127)中，没有行善的余地——但公众被要求相信，他们这是富有同情心，是为民担忧，才在不懈努力地推动疫苗接种政策。有了发展市场的巨大经济动机，几乎不用讨COVID-19疫苗推广的利润会受到影响。
-
-现在的信息是，将来有各种新变种，这可能需要让每个人[反复不停地打疫苗](https://www.politico.com/news/2021/09/02/drug-prices-democrats-lobbying-508127)，也许[数年不止](https://www.cnbc.com/2021/09/07/who-says-covid-is-here-to-stay-as-hopes-for-eradicating-the-virus-diminish.html)。
-
-**国际销售活动**
-
-虽然表面上所有力量都在以结束全球大流行的名义聚集在一起，但疫苗分发无疑还有其他动机。
-
-从第一次宣布开始，就很明显一个国家无法独立实现群体免疫。撇开有效性和声明不谈，在第一剂疫苗接种六个月后，生产的COVID-19疫苗中，有[80%](https://www.cnbc.com/2021/04/09/who-says-poor-countries-have-received-just-0point2percent-of-worlds-vaccine-supply.html)[已销往世界上最富裕的国家](https://www.cnbc.com/2021/04/09/who-says-poor-countries-have-received-just-0point2percent-of-worlds-vaccine-supply.html)。
-
-南非生产的强生疫苗，被送往国外的剂量多于提供给本国居民的剂量。这件事公之于众时，该公司尴尬地[将疫苗退回非洲](https://www.wsj.com/articles/eu-to-return-millions-of-doses-of-j-js-covid-19-vaccine-imported-from-africa-11630591429)。
-
-也许全民疫苗接种运动[并不像描绘的那样公平](https://www.bmj.com/content/374/bmj.n2027)。再一次，对于有能力支付的国家来说，对昂贵药物的依赖，似乎是药物营销的一个关键组成部分。收件人被告知它是免费的，尽管没有任何费用——但无论是税收还是[其副作用](https://childrenshealthdefense.org/defender/vaers-cdc-injuries-reported-covid-vaccines-fda-boosters/)却不是免费的。
-
-请继续阅读本文第二部分更深层的分析。
-
-**评论：我们只需仔细阅读，就能够看到FDA，CDC如何充当大制药企业的前台推销商。这些企业的药品，在20年间害死了50万人，花钱不仅可以免罪，还让政府和卫生机构给他们当枪手，这还有我们百姓活的机会吗？**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-素材链接：[childrenshealthdefense.org](https://childrenshealthdefense.org/defender/covid-vaccines-public-deserves-more-than-just-trust-us/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=4ef62aac-dc30-4184-ae62-e53d1ceb3ab7)
-
-- [COVID疫苗：公众需要的不只是“相信我们”（2/2）](https://gnews.org/zh-hans/1524539/)
-
-
-* * *
-
-*审核：文乐
-校对: 阿伯塔
-发稿: Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
-
-
-
-+1
+0
