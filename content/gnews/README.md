@@ -28,13 +28,13 @@
 ### [中共发誓对所有文娱工作者进行强行驯化](/content/gnews/5/README.md)
  ` 日本东京樱花团`
 
-### [2021年9月10日 文贵先生盖特 3](/content/gnews/6/README.md)
+### [何为《攻台计划二》CCP的邪恶绝对超出你的想象](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年9月10日 文贵先生盖特 3](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月10日 文贵先生盖特 2](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月10日 文贵先生盖特 1](/content/gnews/8/README.md)
+### [2021年9月10日 文贵先生盖特 2](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/9/README.md)
@@ -67,23 +67,23 @@
 ### [墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大各行各业的民众静默抗议疫苗护照](/content/gnews/19/README.md)
+### [2021/09/10大卫作战室直播精要](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大各行各业的民众静默抗议疫苗护照](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登政府在阿富汗抛弃并留下了美国人](/content/gnews/20/README.md)
+### [拜登政府在阿富汗抛弃并留下了美国人](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共房地产市值高过美德法日英](/content/gnews/21/README.md)
+### [中共房地产市值高过美德法日英](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/22/README.md)
+### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [后院起火 第三集](/content/gnews/23/README.md)
+### [后院起火 第三集](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视频| 中共国药集团获准进行新冠肺炎人体免疫球蛋白试验](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [秘翻在线: 习近平对各行各业的重拳打压将重塑中共国社会](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/47/README.md)
+### [G时评：无我之境，就是涅槃](/content/gnews/47/README.md)
+ ` GISELLE`
+
+### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [观郭先生9月8日直播感想](/content/gnews/48/README.md)
+### [观郭先生9月8日直播感想](/content/gnews/49/README.md)
  ` 纽约香草山MOS03`
 
-### [威权主义大流行才是真正的威胁](/content/gnews/49/README.md)
+### [威权主义大流行才是真正的威胁](/content/gnews/50/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登政府强推疫苗引美入深渊](/content/gnews/50/README.md)
+### [拜登政府强推疫苗引美入深渊](/content/gnews/51/README.md)
  ` HimalayaRussia`
 
-### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/51/README.md)
+### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID疫苗：公众需要的不只是“相信我们”（1/2）](/content/gnews/52/README.md)
+### [COVID疫苗：公众需要的不只是“相信我们”（1/2）](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党就是中国合法光明会](/content/gnews/53/README.md)
+### [共产党就是中国合法光明会](/content/gnews/54/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [9/10/21 香港快讯 律政司控支联会「煽动颠覆」](/content/gnews/54/README.md)
+### [9/10/21 香港快讯 律政司控支联会「煽动颠覆」](/content/gnews/55/README.md)
  ` 英喜-粵語組`
 
-### [脆弱的中南坑老杂毛](/content/gnews/55/README.md)
+### [脆弱的中南坑老杂毛](/content/gnews/56/README.md)
  ` 银河勇气之星`
 
-### [中国人民被中共欺骗的百年（三）：第二次国共合作](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [如果强制接种新冠疫苗，70%未接种的美国人将选择辞职](/content/gnews/57/README.md)
+### [中国人民被中共欺骗的百年（三）：第二次国共合作](/content/gnews/57/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

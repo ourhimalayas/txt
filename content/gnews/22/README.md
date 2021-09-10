@@ -2,145 +2,213 @@
 ---
 
 
-## 习近平首个雄安新区项目失败国际项目会赢吗？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1523601/)
+## 中共房地产市值高过美德法日英
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1523613/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-9.jpg)https://gtv.org/video/id=613adda0784c5a2583545346
-你有基本的常识
-Si tienes conocimientos básicos
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-10.jpg)[https://gtv.org/video/id=613addf3784c5a2583545357](https://gtv.org/video/id=613addf3784c5a2583545357)
 
-现在你看这个包括判断平安的事情
-Ahora ves que esto incluye determinar el suceso de Ping An
 
-判断北交所的事情
-Determinar el asunto de la Bolsa de Valores de Beijing
+马明哲现在出事儿的时候
+Ahora que Mingzhe Ma está en problemas
 
-一片信息咵咵都来了
-Todas las informaciones vienen
+查马明哲的时候
+Cuando lo estaban investigando
 
-都是错的，因为你没情报
-Pero son erróneas, porque no tienes información
+你想到中国房地产是多少钱吗?
+Has pensado cuánto vale la propiedad inmobiliaria en China?
 
-雄安，华夏幸福地产
-Xiong’an y China Fortune Land Development
+我现在问一件(事), 大卫
+Ahora te pregunto una cosa, David
 
-是整个的，马明哲的
-Es todo de Ma Mingzhe
+你知道中国房地产整个市值多少吗?
+¿Sabes cuánto es el valor total del mercado de las propiedades inmobiliarias en China?
 
-真正的是他倒下的第一个多米诺骨牌
-La verdad es que él es la primera ficha de dominó que se cayó
+我觉得有60万亿左右吧
+Yo pienso que son aproximadamente 60 billones
 
-而雄安就是习的一整个项目已经彻底破产
-Y Xiong’an es un proyecto completo de Xi, que ya se quebró definitivamente
+我也知道你会说是60万亿
+Yo sabía que ibas a decir 60 billones
 
-你觉得习在雄安在他自己的国里面
-Tú crees que Xi estando en Xiong’an y en su propio país
+这是官方数字
+Este es el número oficial
 
-他都不能把自己的第一个项目雄安立起来
-No puede levantar el primer proyecto de Xiong’an
+中国房地产是90万亿
+La propiedad inmobiliaria de China es 90 billones
 
-你觉得他能干倒美元吗？
-¿Tú crees que podrá tumbar el dólar?
+90万亿你知道大卫意味着什么?
+David, ¿sabes qué significa estos 90 billones?
 
-习这些年竟然都能受王岐山摆布
-Ya que Xi ha estado a la merced de Wang Qishan todos estos años
+安红你知道吗?
+Anhong, ¿sabes?
 
-你觉得习能把中国真的整向国际第一大国吗
-Tú crees que Xi pueda llevar a China como primer país mundista
+你知道美国是多少吗?
+¿Sabes cuánto es en EE. UU?
 
-你觉得习身边的人
-Tu crees que las personas que están alrededor de Xi
+日本多少吗? 德国, 法国
+En Japón, Alemania y Francia
 
-连这个平安的陆金所上市都识破不了
-Si no pudo determinar que Lufax se haga como empresa de capital abierto de Ping An
+你知道这几个国家加在一起的和是多少
+Sabes cuánto es el total de todos estos países
 
-还干掉了蚂蚁金服
-Hasta mató a Ant Group
+你们知道吗?
+¿Lo saben?
 
-三马是绝对的死嗑
-Los tres Ma de seguro morirán
+这些美国, 日本, 德国, 法国, 英国加在一起
+Así como EE. UU, Japón, Alemania, Francia y Reino Unido, sumando a todos
 
-一马马明哲，干掉二马
-El primer Ma es Ma Mingzhe, resuelve el segundo Ma
+它还不到90万亿
+No llega ni a 90 billones
 
-而且利用了习
-Además, utilizaron a Xi
+(只有) 80万亿
+(Solamente) hay 80 billones
 
-你觉得习能被马明哲利用的人
-¿Tu crees que Xi podrá ser utilizado por Ma Mingzhe?
+就是中国共产党的房地产市场
+Significa que el mercado inmobiliario del PCCh sobrepasa
 
-你觉得他能不被美国的这300个华尔街大佬利用吗？
-¿Tú crees que él no será utilizado por estos 300 jefes del Wall Street de EE. UU?
+是这些美法德意日总和还超过你
+A estos cinco países mencionados anteriormente
 
-你觉得习能在这个时候闭关锁国
-Tu crees que Xi podrá encerrar y bloquear el país
+你知道共产党的这个真实的
+Sabes cuál es el porcentaje real
 
-要玩中小企业国际板
-Para jugar al tablero internacional de la pequeña y mediana empresa
+它的GDP的多少倍吗
+En cuanto al producto bruto interno (PBI) de PCCh
 
-你觉得闭关锁国以后还能完成国际板吗？
-¿Tu crees que cerrando y bloqueando el país se puede cumplir con el tablero internacional?
+没概念吧, 兄弟们
+No tienen idea, ¿cierto? Hermanos
 
-你觉得90万亿的房地产的总值
-¿Tú crees que el valor total de 90 billones de bienes raíces
+你们几个都没有 (知道的)
+Todos ustedes no saben
 
-是中国的GDP总值五倍，500%
-Son cinco veces del PIB total de China, 500%
+看谁举手啊
+A ver quién se levanta la mano
 
-美日法德英总和的好几倍
-Son varias veces del total de EE. UU, Japón, Francia, Alemania y Reino Unido
+打断我啊, 500%
+Para interrumpirme, son 500%
 
-两三倍
-Dos a tres veces
+官方说是400%
+Oficialmente dicen que es el 400%
 
-你觉得这样的中国金融能撑下去
-¿Tú crees que este tipo de finanzas en China puede seguir sosteniendo
+实际是500%
+En realidad es el 500%
 
-还能搞国际金融吗？
-¿Y además hacer la finanza internacional?
+你知道美国是多少倍吗?
+¿Sabes cuánto es en EE. UU?
 
-他打开之日即是灭亡之时
-El momento en que lo abra es la hora de la muerte
+你们几个知道吗?
+Ustedes saben?
 
-跟雄安项目一定是殊途同归
-Es con el proyecto Xiong’an alcanzando el mismo objetivo por diferentes rutas
+美国的房地产总市值
+El valor total del mercado de las propiedades inmobiliarias en EE. UU
 
-救不起，撑不起
-No se podrá sostener ni salvar
+是它的GDP的1.6倍
+Es 1.6 veces de su PBI
 
-为什么
-Por qué
+事实上, 达2倍
+Realmente, alcanza el doble
 
-所有这些穷国家贪婪至极
-Todos estos países pobres son extremadamente codiciosos
+日本大概得2倍多
+Al igual que en Japón
 
-像路大脑骗蛇妖闫一样
-Es como Lude mintió a Limeng Yan
+英国3.5倍, 法国3.5倍
+En Reino Unido y Francia es el triple y medio
 
-你给她个信用卡她直接20万买名牌服装
-Le das una tarjeta de crédito con 200 mil para que compre ropas de marca
+德国大概3倍左右
+Alemania es aproximadamente el triple
 
-你给巴勒斯坦说
-Le dices a Palestina
+那么, 我告诉你
+Entonces, te digo
 
-现在我给你融资北京板
-Ahora te financio el tablero de Beijing
+这是什么概念
+En qué consiste esto
 
-它把所有的都卖给你
-Él te vende todo lo que hay
+美国房地美当年出事的时候
+En aquel momento cuando Freddie Mac estaba en problemas
 
-它要把它祖宗奶奶未来子孙都卖给你
-Te va a vender desde sus ancestros y abuelos hasta los futuros nietos
+你知道它的房地产GDP是多少吗?
+¿Sabías cuanto fue su PBI de la propiedad inmobiliaria?
 
-弄1万亿都不拉倒
-Ni obteniendo 1 billón se conforma
+是它的GDP
+Es su PBI
+
+房地产的总额是它的GDP 1.6倍而已
+El valor total de la propiedad inmobiliaria es nada mas el 1.6 veces de su PBI
+
+160%
+160%
+
+现在的美国房地产还是在160%
+Actualmente, la propiedad inmobiliaria de EE. UU sigue siendo el 160%
+
+当年的日本经济危机
+La crisis económica de Japón en ese entonces
+
+房地产是它的 (GDP) 300%
+La propiedad inmobiliaria es el 300% de su PBI
+
+就是今天共产党的
+Significa que hoy el PCCh
+
+已经超过300的二倍了
+Ya supera el doble del 300%
+
+基本是300% (的二倍), 兄弟
+Hermano, básicamente (es el doble) de 300%
+
+你看这个经济
+Mira esta economía
+
+我再跟你说
+Y luego te digo
+
+一个你没有想到
+Algo que no se te ha ocurrido
+
+所有这些数据更可怕的事情
+Que es algo más terrible que todos estos datos
+
+美意法英日人家是包含了所有的
+El valor de la propiedad inmobiliaria de estos cinco países involucra todo
+
+就是他是资本市场, 市场经济
+Lo que es su mercado capital y de economía
+
+没有什么老宅, 新宅, 农村宅, 什么宅
+No existe lo que es vivienda vieja, nueva, rural, entre otros
+
+它都是房地产
+Todos son propiedades inmobiliarias
+
+只要你有贷款的
+Mientras tengas un préstamo
+
+只要有市值的, 都算在里边了
+Siempre tenga un valor en el mercado, se tomará en cuenta
+
+可以说是100%
+Puede decir que es el 100%
+
+中共国的房地产只包含商品房
+Las propiedades inmobiliarias del PCCh solamente está incluido vivienda de productos básicos
+
+没含安红她老家那的房子
+Excluyendo la casa de Anhong en su ciudad natal
+
+也没(含)盖喜安娜她祖爷的房
+Tampoco incluye la casa del bisabuelo de Gaixianna
+
+(中共国) 就是这纯商业房
+(En la República Popular de China) es simplemente vivienda comercial
+
+就(已经)90万亿美元
+Y vale 90 billones de dólares
 
 原视频日期：06/09/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1434802358110674944?s=24
+原视频网址： https://twitter.com/se1y7cblljselva/status/1434804790437957633?s=24
 视频时间段：0:00-2:10
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
 字幕+视频制作：洛杉矶盘古农场- 天涯行
 审片：洛杉矶盘古农场- 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

@@ -2,215 +2,270 @@
 ---
 
 
-## 中共房地产市值高过美德法日英
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1523613/)
+## 拜登政府在阿富汗抛弃并留下了美国人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1524737/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-10.jpg)[https://gtv.org/video/id=613addf3784c5a2583545357](https://gtv.org/video/id=613addf3784c5a2583545357)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a61at-1rt89-3.jpg)
+[https://gtv.org/video/id=613b9fcc784c5a2583548073](https://gtv.org/video/id=613b9fcc784c5a2583548073)
 
+**字幕内容**:
 
-马明哲现在出事儿的时候
-Ahora que Mingzhe Ma está en problemas
+Sean Hannity (Fox News host)
+肖恩·汉尼提(福克斯新闻主持人）
 
-查马明哲的时候
-Cuando lo estaban investigando
+Joining us now with reaction fox news contributor former secretary of state Mike Pompeo
+现在加入我们的是福克斯新闻撰稿人前国务卿迈克·庞佩奥
 
-你想到中国房地产是多少钱吗?
-Has pensado cuánto vale la propiedad inmobiliaria en China?
+Mr. secretary, you never would have allowed it to get to this point
+国务卿先生，你永远不会允许它走到这一步
 
-我现在问一件(事), 大卫
-Ahora te pregunto una cosa, David
+When the Taliban moved four inches out of where their space was allocated in an agreement
+当塔利班从协议中分配的空间移出四英寸时
 
-你知道中国房地产整个市值多少吗?
-¿Sabes cuánto es el valor total del mercado de las propiedades inmobiliarias en China?
+We know what would have happened
+我们知道会发生什么
 
-我觉得有60万亿左右吧
-Yo pienso que son aproximadamente 60 billones
+the fate of Solomonia the fate of Baghdadi
+所罗门尼亚的命运，巴格达迪的命运
 
-我也知道你会说是60万亿
-Yo sabía que ibas a decir 60 billones
+the fate of the Al-Qaeda leader in Yemen
+在也门的基地组织领导人的命运
 
-这是官方数字
-Este es el número oficial
+and the fate of the ISIS Caliphate would have been their fate
+伊斯兰国哈里发的命运将是他们的命运
 
-中国房地产是90万亿
-La propiedad inmobiliaria de China es 90 billones
+So they watched this unfold for months
+所以他们看着这一切展开了几个月
 
-90万亿你知道大卫意味着什么?
-David, ¿sabes qué significa estos 90 billones?
+20 percent of the， 50 percent of the country
+占领20%，占领50%的国家
 
-安红你知道吗?
-Anhong, ¿sabes?
+and they didn’t lift a finger then they took Kabul
+然后他们没动一个手指头就拿下了喀布尔
 
-你知道美国是多少吗?
-¿Sabes cuánto es en EE. UU?
+and still Joe Biden when he had an opportunity to get everyone out
+还有乔拜登，当他有机会让所有人都出去的时候
 
-日本多少吗? 德国, 法国
-En Japón, Alemania y Francia
+and get them out while he had control he didn’t do it
+在他有控制权的时候把他们弄出来，他没有这样做
 
-你知道这几个国家加在一起的和是多少
-Sabes cuánto es el total de todos estos países
+Your reaction
+你的反应
 
-你们知道吗?
-¿Lo saben?
+Mike Pompeo （former secretary of state）
+迈克·庞佩奥（前国务卿）
 
-这些美国, 日本, 德国, 法国, 英国加在一起
-Así como EE. UU, Japón, Alemania, Francia y Reino Unido, sumando a todos
+Sean, this debacle didn’t have to be
+肖恩，这场灾难不是不得不（发生）
+this is a direct result of an arbitrary political decision
+这是随便政治决定的直接结果
 
-它还不到90万亿
-No llega ni a 90 billones
+to set a firm date to get out without even considering
+设定一个确定的日期离开，甚至不考虑
 
-(只有) 80万亿
-(Solamente) hay 80 billones
+how you were going to get every American out
+如何打算让每个美国人离开
 
-就是中国共产党的房地产市场
-Significa que el mercado inmobiliario del PCCh sobrepasa
+the fact that we’re hearing from American who are still on the ground
+事实上，我们听到了的消息仍有美国人在战地上
 
-是这些美法德意日总和还超过你
-A estos cinco países mencionados anteriormente
+we’ve got great Americans now
+我们现在有很伟大的美国人
 
-你知道共产党的这个真实的
-Sabes cuál es el porcentaje real
+risking their own lives to try and help extract them
+冒着生命危险试图帮助他们撤离
 
-它的GDP的多少倍吗
-En cuanto al producto bruto interno (PBI) de PCCh
+after the United States has given up all of its leverage
+在美国放弃所有影响力之后
 
-没概念吧, 兄弟们
-No tienen idea, ¿cierto? Hermanos
+all of its capacity to get these people home
+它的所有能力让这些人回家
 
-你们几个都没有 (知道的)
-Todos ustedes no saben
+This isn’t a debacle of extraordinary proportions
+这不是一个非同寻常的崩溃
 
-看谁举手啊
-A ver quién se levanta la mano
+and the fact that our commander-in-chief has chosen
+以及我们的总司令的选择
 
-打断我啊, 500%
-Para interrumpirme, son 500%
+not even to talk about this ongoing challenge of returning
+甚至不谈论这个持续的撤回来的挑战
 
-官方说是400%
-Oficialmente dicen que es el 400%
+what is likely to be hundreds and hundreds of U.S. persons from Afghanistan is truly tragic
+可能有成百上千名来自阿富汗的美国人真的很悲剧
 
-实际是500%
-En realidad es el 500%
+Sean Hannity
+肖恩·汉尼提
 
-你知道美国是多少倍吗?
-¿Sabes cuánto es en EE. UU?
+Somebody just hands me a note
+有人只是递给我一张纸条
 
-你们几个知道吗?
-Ustedes saben?
+Hannity supports militias
+汉尼提支持民兵
 
-美国的房地产总市值
-El valor total del mercado de las propiedades inmobiliarias en EE. UU
+No we have we have retired special ops
+不，我们有已经退休的特殊的人员
 
-是它的GDP的1.6倍
-Es 1.6 veces de su PBI
+We have some of the best trained American soldiers
+我们有一些训练有素的美国士兵
 
-事实上, 达2倍
-Realmente, alcanza el doble
+retired that are now willing to go back to the field
+退休的现在愿意回到战场
 
-日本大概得2倍多
-Al igual que en Japón
+go out behind enemy lines and support Americans
+走出敌后支援美国人
 
-英国3.5倍, 法国3.5倍
-En Reino Unido y Francia es el triple y medio
+they get them to a plane they want to take off
+把他们送上要起飞的飞机上
 
-德国大概3倍左右
-Alemania es aproximadamente el triple
+Cutter’s willing to take them and the State Department
+飞机愿意接受他们但是国务院
 
-那么, 我告诉你
-Entonces, te digo
+you know State Department says “no”
+你知道国务院说“不”
 
-这是什么概念
-En qué consiste esto
+They become an obstacle how is that possible
+他们成了累赘，这怎么可能
 
-美国房地美当年出事的时候
-En aquel momento cuando Freddie Mac estaba en problemas
+Mike Pompeo
+迈克·庞佩奥
 
-你知道它的房地产GDP是多少吗?
-¿Sabías cuanto fue su PBI de la propiedad inmobiliaria?
+Sean, it’s incomprehensible
+肖恩，这是不可理解的
 
-是它的GDP
-Es su PBI
+It is so confounding to think that it’s not even about being an obstacle
+甚至认为这不是障碍，真是令人困惑
 
-房地产的总额是它的GDP 1.6倍而已
-El valor total de la propiedad inmobiliaria es nada mas el 1.6 veces de su PBI
+why the entire United States government is not focused on
+为什么整个美国政府不关注在
 
-160%
-160%
+getting every single American out of there
+让每个美国人离开那里
 
-现在的美国房地产还是在160%
-Actualmente, la propiedad inmobiliaria de EE. UU sigue siendo el 160%
+lifting every every stone demanding that the Taliban release these folks
+掀起每一块石头要求塔利班释放这些人
 
-当年的日本经济危机
-La crisis económica de Japón en ese entonces
+not bribing them not to begging them
+不贿赂他们 不要乞求他们
 
-房地产是它的 (GDP) 300%
-La propiedad inmobiliaria es el 300% de su PBI
+but imposing American power on them
+但将美国的力量强加于他们
 
-就是今天共产党的
-Significa que hoy el PCCh
+this is this is what our administration would have done
+这是我们的政府会做的
 
-已经超过300的二倍了
-Ya supera el doble del 300%
+we would have made very clear
+我们会非常清楚地表明
 
-基本是300% (的二倍), 兄弟
-Hermano, básicamente (es el doble) de 300%
+that if you touch an American threatened American
+如果你敢动一个美国人，威胁美国人
 
-你看这个经济
-Mira esta economía
+you don’t allow an American to get on an airplane and get home
+你不允许美国人登上飞机回家
 
-我再跟你说
-Y luego te digo
+We’re going to make your life miserable
+我们会让你的生活变得悲惨
 
-一个你没有想到
-Algo que no se te ha ocurrido
+instead it seems like legal niceties statements press releases
+相反，它像是在发表法律细节的新闻稿
 
-所有这些数据更可怕的事情
-Que es algo más terrible que todos estos datos
+this is this the stuff of American power under president Biden
+这就是拜登总统领导下的美国权力
 
-美意法英日人家是包含了所有的
-El valor de la propiedad inmobiliaria de estos cinco países involucra todo
+This is an enormous mistake,
+这是一个巨大的错误
 
-就是他是资本市场, 市场经济
-Lo que es su mercado capital y de economía
+it will will cause more Americans to be at risk all across the world
+这将导致更多美国人在全世界面临风险
 
-没有什么老宅, 新宅, 农村宅, 什么宅
-No existe lo que es vivienda vieja, nueva, rural, entre otros
+and sadly these U.S. persons who are sitting inside Afghanistan today
+可悲的是这些今天还待在阿富汗境内的美国人
 
-它都是房地产
-Todos son propiedades inmobiliarias
+who want just to back to freedom are going to struggle to do so
+只想恢复自由的人将为此而奋斗
 
-只要你有贷款的
-Mientras tengas un préstamo
+and I fear I fear for the worst I hope for the best
+而且我害怕最坏的，我希望最好的
 
-只要有市值的, 都算在里边了
-Siempre tenga un valor en el mercado, se tomará en cuenta
+Sean Hannity
+肖恩·汉尼提
 
-可以说是100%
-Puede decir que es el 100%
+Should Americans support these organizations retired military
+美国人应该支持这些组织退役军人
 
-中共国的房地产只包含商品房
-Las propiedades inmobiliarias del PCCh solamente está incluido vivienda de productos básicos
+that are willing to risk their lives
+愿意冒着生命危险的人
 
-没含安红她老家那的房子
-Excluyendo la casa de Anhong en su ciudad natal
+I want to support them I’m grateful
+我想支持他们 我很感激
 
-也没(含)盖喜安娜她祖爷的房
-Tampoco incluye la casa del bisabuelo de Gaixianna
+I’m in awe of their bravery and courage
+我敬仰他们的勇敢和勇气
 
-(中共国) 就是这纯商业房
-(En la República Popular de China) es simplemente vivienda comercial
+Mike Pompeo
+迈克·庞佩奥
 
-就(已经)90万亿美元
-Y vale 90 billones de dólares
+I’m deeply grateful for their efforts， the United States should support them
+非常感谢他们的努力，美国应该支持他们
 
-原视频日期：06/09/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1434804790437957633?s=24
-视频时间段：0:00-2:10
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
+the United States government should support them
+美国政府应该支持他们
+
+when they’ve got an aircraft as described before with a couple of dozen seats
+当他们有一架如前所述的有几十个座位的飞机时
+
+for a couple dozen Americans to go home to their families
+让几十个美国人回家与家人团聚
+
+This kind of thing the U.S. government should not only encourage but should applaud
+这种事情美国政府不仅只是鼓励而且应该赞同
+
+we should thank them for their efforts
+我们应该感谢他们的努力
+
+we should support everything they’re doing to try and assist
+我们应该支持他们正在做的一切尝试和帮助
+
+every one of these Americans to get home
+带每一个美国人回家
+
+Sean Hannity
+肖恩·汉尼提
+
+God willing from your …
+上帝愿意从你的…
+
+we wouldn’t abandon him
+我们不会放弃他
+
+we would have you would have obliterated with Donald Trump
+你会与唐纳德·川
+普一起摧毁他们
+
+that I can tell every American
+我可以告诉每一个美国人
+
+Mike Pompeo
+迈克·庞佩奥
+
+We would never been here Sean
+我们决不会在这里，肖恩
+
+Sean Hannity
+肖恩·汉尼提
+
+Never in a million years
+在一百万年里都不会发生
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://www.youtube.com/watch?v=VhoKQ5xoUzA](https://www.youtube.com/watch?v=VhoKQ5xoUzA)
+
+英听中: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Raul
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
