@@ -2,50 +2,24 @@
 ---
 
 
-## 中共军方正在酝酿进入阿富汗的巴格拉姆美国空军基地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523352/)
+## 秘翻在线：乔·拜登疫苗强制令引发地方官员强烈反弹
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523317/)
 
-栏目记者/责任编辑：AsG諾雅
+#### 撰稿：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-18.jpg)图片来源：福克斯新闻
+9月9日，美国总统乔·拜登（Joe Biden）要求所有联邦雇员接种疫苗。他声明拥有超过100名员工的公司必须对工人进行中共病毒测试或证明他们已经接种中共病疫苗。
 
+俄亥俄州参议院候选人J.D. Vance回应拜登的疫苗命令，他授权呼吁进行大规模的非暴力反抗。J.D. Vance说：”不要遵守这些规定。不要支付政府的罚金。不要允许自己被欺负和控制。只有大规模的公民抗命才能把我们从乔-拜登的赤裸裸的独裁主义中拯救出来。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-6.jpg)图片来源：推特截图
+佛罗里达州议员Anthony Sabatini呼吁：”佛罗里达州必须召开特别会议，使拜登的疫苗命令无效。任何试图强加这些规定的联邦官员都应被当场逮捕，并根据佛罗里达州的法律予以起诉。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-10.jpg)图片来源：推特截图
+南达科他州的州长。克里斯蒂-诺姆（Kristi Noem）回应说：” 如果拜登总统非法强制注射疫苗，我将采取法律规定的一切行动，保护南达科他州人不受联邦政府的影响。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-11.jpg)
+德州州长格雷格-艾伯特(Greg Abbott)宣布：”拜登的疫苗命令是对私营企业的攻击。我发布了一项行政命令，保护德克萨斯州人选择是否接种COVID疫苗的权利，并将其列入特别会议议程。德克萨斯州已经在努力阻止这种权力掠夺”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/7-4.jpg)图片来源：推特截图
+另外，共和党国家委员会（RNC）主席Ronna McDaniel 表示：”许多小企业和工人没有钱或法律资源来对抗拜登的违宪行为和专制法令，但当他的法令生效时，RNC将起诉政府以保护美国人和他们的自由。”
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
-零对冲9月8日援引美国新闻网周二的报道，消息人士透露，中共军方正在寻求进入此前美国在阿富汗最重要和最具代表性的单一空军基地——巴格拉姆机场。据悉，中共军方正在进行一项可行性研究，内容涉及在未来几年内，在塔利班政府的邀请和同意下，把与“一带一路 ”倡议相关的工人、士兵和其他工作人员送往巴格拉姆，以基础设施投资项目为幌子，悄悄地将其经济和军事影响力扩展到当地，曲线实现在该空军基地的存在。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-19.jpg)图片来源： 网络
-一周前，塔利班发言人扎比胡拉-穆贾希德告诉意大利报纸《共和国报》，中共国将是阿富汗“最重要的合作伙伴”，新政府正在寻求基础设施投资。他补充指出，阿富汗拥有丰富的铜矿，中共可以把这些铜矿重新投入运营并实现现代化，而且中共国是其通往世界各地市场的通道。 虽然中共外交部发言人汪文斌周二强烈否认并指责了相关指控，但是从经验来看，中共在近年通过类似的策略，已经获得了柬埔寨里姆海军基地大约三分之一的独家权利；向缅甸可可群岛的当地军政府提供了无线电、雷达和其他军事设备，并据称在过去三十年拥有该群岛的租赁权；在吉布提建立了远征空军基地。中共对巴格拉姆的潜在计划将对美国的形象造成更为毁灭性的打击，也将促使美国越来越把中共国定为最紧迫和最具挑战性的全球威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1.jpg)图片来源： 网络
-信息链接：
-[China Mulling Eventual Takeover Of Bagram Airbase In Afghanistan: Report](https://www.zerohedge.com/geopolitical/china-mulling-eventual-takeover-bagram-airbase-afghanistan-report)
-[China Weighing Occupation of Former U.S. Air Base at Bagram: Sources](http://china%20weighing%20occupation%20of%20former%20u.s.%20air%20base%20at%20bagram:%20Sources/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
+原文链接：[GT Online: Joe Biden’s Vaccine Mandates Trigger Strong Reactions](https://gnews.org/1523321/)
 
 0
