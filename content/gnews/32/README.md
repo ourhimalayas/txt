@@ -2,23 +2,30 @@
 ---
 
 
-## 朝鲜国庆日疑似举行了阅兵式
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1523923/)
+## 台湾最新民调显示：近9成民众反对“一国两制”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524041/)
 
-**圆成农场新闻组**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AEN20210909000400325_01_i_P4-edited.jpg)图片来源：网络
-9月9日是朝鲜国庆日，每逢国庆节时，[朝鲜国旗](https://zh.wikipedia.org/wiki/%E6%9C%9D%E9%B2%9C%E5%9B%BD%E6%97%97)会插遍[平壤市](https://zh.wikipedia.org/wiki/%E5%B9%B3%E5%A3%A4%E5%B8%82)的大街小巷，而作为朝鲜一大特色的巨型标语也会伫立在市区的交通要道和车站、广场等醒目地区。据韩联社-一名消息人士说，朝鲜似乎在周四早些时候在平壤举行了阅兵式，以纪念建国73周年。细节目前还不清楚，包括领导人金正恩是否参加了这次活动，以及展示了何种武器。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-1.jpeg)台湾民众反对“一国两制” 网络图片
 
-根据军事消息来源和卫星图像，自本月初以来，已经发现了北方准备举行阅兵的迹象，在Mirim郊区的机场观察了部队编队和军车。
+2021年09月10日
 
-朝鲜上一次举行这样的阅兵式是在今年1月，当时朝鲜举行了一次罕见的党代会，并展示了一艘新型潜艇发射的弹道导弹（SLBM）和其他先进弹道导弹。去年10月，它还举行了大规模的夜间阅兵式，展示了新型SLBM和洲际弹道导弹（ICBM）。
+台湾行政院大陆事务委员会9月9日最新民调显示，有87.5%的民众反对北京“一国两制”，89.4%反对北京对台湾的外交打压，88.8%反对中共当局以经济外交手段对立陶宛施压，因为立陶宛同意让台湾以“台湾”名义设立代表处。此次民调在9月2日至6日以电话访问台湾20岁以上成年民众，收到有效样本1073份，信赖度为95%。
 
-新闻来源：[朝鲜似乎在周四早些时候举行了阅兵式： 来源|韩联社 (yna.co.kr)](https://en.yna.co.kr/view/AEN20210909000400325)
+台湾民众对所谓“一国两制”从来都持强烈的怀疑和反对态度，尤其香港国安法实施之后，民主自由被破坏以及民主派人士被清算，让台湾人看到“一国两制”的谎话。
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+从来没有所谓的“一国两制”，中共以欺骗手段拿回香港之后，从来没想过要继续保持香港的民主体制。2019年反送中之后，中共对香港实施全面管控。香港的民主体制已经彻底遭到破坏，取而代之的是中共的独裁暴政。台湾人民面对中共的咄咄逼人，不信加反抗才能有出路。
 
-编辑/发布：比卡丘
+新闻参考链接：[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
 
-20210910
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 0

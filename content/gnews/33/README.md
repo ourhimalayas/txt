@@ -2,41 +2,31 @@
 ---
 
 
-## 文革发起者去世45周年 《文革受难者》一书作者警醒世人
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1523880/)
+## 中情局有意注册抖音账号，卢比奥参议员公开反对
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524059/)
 
-作者：香草山教育部-飞虹
+栏目记者/责任编辑：有莫举名
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-87.png)
+9月9日，美国联邦参议员、参议院情报委员会副主席卢比奥发表声明, 公开反对美中情局在抖音注册账号的意向，强调此举将危害美国国家安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-98.png)
+9月8日，中情局发言人称中情局有可能在抖音海外版上注册账号。卢比奥随即致函中情局局长伯恩斯, 敦促他“承诺中情局不会入驻抖音，以及任何对国家安全以及用户数据隐私构成威胁的其它社媒平台。”去年8月份，针对外界担心中共政府通过抖音收集美国用户资料一事，中情局曾提出一份报告，指无证据显示这一担忧, 令人大跌眼镜 !
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+(本文仅代表作者观点)
 
+参考链接：
 
+[https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html](https://www.voachinese.com/a/rubio-knocks-cia-over-tiktok-20210909/6220445.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/文革发起者去世45周年-《文革受难者》一书作者警醒世人.jpg)图片来源：网络
-
-9月9日是已故前中共党魁毛泽东去世45周年的日子。中共官方没有任何表示，但允许了大批活跃的“毛粉”在线上线下发文和举行文艺活动以示纪念。
-
-近年来，中共一方面高喊“为人民谋福利”、“继续改革开放”，一方面却在控制舆论、打压异己、极权统治的道路上越走越远。这种与毛泽东的统治相似的“文革回潮”现象激起了社会的强烈回应。
-
-《文革受难者》一书的作者、芝加哥大学的王友琴教授近期接受专访，在谈及自己的书和网页在中共国屡屡遭禁，以及文革中多位受难者遭受迫害的详情时表示，毛泽东发动的那场史无前例的运动给无数家庭、个人以及中国社会造成了劫难，不容否认或轻描淡写，更不能让文革卷土重来。
-
-（栏目记者/责任编辑：飞虹）
-
-参考链接：[《文革受难者》作者王友琴专访：反人类的红卫兵运动不容重演](https://www.voachinese.com/a/china-cultural-revolution-insight-book-author-interview-20210908/6216321.html)
-
-校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+[https://www.zaobao.com.sg/realtime/world/story20200809-1075631](https://www.zaobao.com.sg/realtime/world/story20200809-1075631)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-99.png)
+终审:  文龙
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

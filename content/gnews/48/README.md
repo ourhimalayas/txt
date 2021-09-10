@@ -2,26 +2,55 @@
 ---
 
 
-## 日本学者认为把接种疫苗当作解决问题的做法不好
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1524008/)
+## 秘翻新视野9月10日播报简要
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1524004/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/768.png)
-（图片源自本文链接）
+BY：秘翻时评
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/fengmian.png)](https://gtv.org/video/id=613acd3bbe28c76ac944d81f)
+【点击图片即可观看】
 
-「体育报知」9月10日报道：
+国内外新闻
 
-日本医科大学专门研究传染病的特聘教授北村义浩先生10日，在早间电视系列节目的 “羽鸟慎一早间节目”上进行了远程直播。
+1．澳航将禁止未接种疫苗旅客搭乘国际航班（见证伟大时刻）
 
-该节目报道说，首相菅义伟9日在首相官邸举行了新闻发布会。会上列举了自己在处理中共病毒时遇到的挑战，比如治疗性药物和疫苗的相关审批耗时太长，而且由于各部委之间的垂直划分以及国家和地方政府之间有一道墙，以致很难做出紧急应对的灵活反应。他还反思说：最大的遗憾是，我们很难保证医疗系统。劳动大臣和东京都知事都向东京都政府提出了积极的建议，但都没有取得很好的效果。另一方面，在全世界（对疫苗）的激烈竞争中，我们在4月访问美国期间设法为所有的人争取到了足够的疫苗，并在5月份的假期后开始全面接种。
+[https://www.epochtimes.com/b5/21/9/9/n13221258.htm](https://www.epochtimes.com/b5/21/9/9/n13221258.htm)
 
-针对即将离任的首相菅直人的防疫措施，北村教授指出：我们是不是过于强调疫苗和治疗性药物了？我认为，防控的重点应该是预防飞沫感染的措施，比如控制人流。但是，我们也不能只责怪菅首相，因为其它国家也有这样身居高位的人。我认为把接种疫苗当作是解决一切问题的做法不是很好。
+2. 14位美国州长反对联邦强制疫苗令（风之伤）
 
-[信息源](https://news.yahoo.co.jp/articles/6e08c84b30e102372a88a15cbae350e4d4c2ce0a)
+[https://www.epochtimes.com/gb/21/9/10/n13223181.htm](https://www.epochtimes.com/gb/21/9/10/n13223181.htm)
 
-（文章仅代表作者个人观点，与GNEWS无关）
+3. 台湾最新民调显示：近9成民众反对“一国两制”(见证伟大时刻)
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
+
+4. 美中太空战 美上将：中共在开发卫星杀手（风之伤）
+
+[https://www.epochtimes.com/gb/21/9/9/n13222775.htm](https://www.epochtimes.com/gb/21/9/9/n13222775.htm)
+
+盖特新闻
+
+1.台湾大牛盖文：
+
+在加拿大卡爾加里，消防員、緊急醫療工作者和警察默默站立一小時，抗議政府的強制性疫苗和證件。（见证伟大时刻，annafu）
+
+[https://gettr.com/post/palvajc4a9](https://gettr.com/post/palvajc4a9)
+
+2.秘翻盖文：澳大利亚健康从业者监管机构 (AHPRA) 发出信函，威胁因任何形式干预政府疫苗接种计划而对医生进行调查或吊销执照（风之伤）
+
+[https://gettr.com/post/pam1jg3478](https://gettr.com/post/pam1jg3478)
+
+3.郭先生盖文：国际黑暗势力
+
+9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着（大家）
+
+[https://gettr.com/post/pakv0u3cc1](https://gettr.com/post/pakv0u3cc1)
+
+4.郭先生盖文：
+
+打破中共房产骗局的第一块砖头……
+
+【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】（大家）
+
+[https://gettr.com/post/pajce80a0e](https://gettr.com/post/pajce80a0e)
+
 0

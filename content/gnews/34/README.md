@@ -2,45 +2,30 @@
 ---
 
 
-## 电邮泄密：美国务院阻止了阿富汗的疏散航班
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1523839/)
+## 蔡英文总统主持台海军新型“塔江舰&#8221;入列仪式
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524039/)
 
-作者：文顺
+采集编辑/终审: 文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-88.png)
+9月9日,台湾总统蔡英文赴  苏澳海军基地,主持了最新型“塔江”巡逻舰入列典礼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-95.png)
 
+台军自主研发建造的塔江号巡逻舰 是为满足台湾海军在防空及飞弹拦截上的作战需求而设计建造。由于该舰反舰以及中程防空作战能力突出,航速较快 且舰体具备一定的隐形能力, 素有“航母杀手”之称。
 
+蔡英文总统主政以来，两岸关系陷入僵局。中共指责借口蔡政府奉行台独政策，因此切断了与台湾的所有官方联系。解放军持续在台湾周边地区海空域实施恫吓和军事压力。蔡英文在典礼致辞中称, 有了塔江舰的加入，“捍卫海疆的台湾海军如虎添翼”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/电邮泄密：美国务院阻止了阿富汗的疏散航班.png)图片来源：Daily Mail
+(本文仅代表作者观点)
 
-据每日邮报9月7日报导，一封上周一泄露的电子邮件显示，美国国务院拒绝批准一些私人包机离开阿富汗，这些航班本可以疏散美国公民和阿富汗特殊移民签证的申请人。
-
-拜登政府此前承诺尽其所能拯救所有美国人和尽可能多的阿富汗盟友，国家官员却拒绝允许埃里克·蒙塔尔私人支付的航班在该国境内或在其众多海外基地之一中降落，建议他向另一个国家寻求着陆空间。这位美国军事律师和退役海军陆战队员表示，联邦政府阻挠了他的救援工作。
-
-这份泄露的电子邮件显示，卡塔尔的乌代德空军基地“不允许独立包机”。“任何包机都不允许降落在德塔基地，但沙特阿拉伯除外。”
-
-邮件暴露后，《纽约时报》报道称，共有 1000 人——包括数十名美国公民和持有签证前往其他国家的（含美国人）阿富汗人，被关押在马扎里沙里夫机场近一周。
-
-参考链接：
-
-[Bombshell leaked emails prove the State Department DID block Afghan evacuation flights even if they had Americans on board, report claims](https://www.dailymail.co.uk/news/article-9967195/amp/Bombshell-leaked-emails-State-Department-refused-greenlight-Afghan-evacuation-planes-Report.html)
-
-校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+参考链接:[https://www.voachinese.com/a/Taiwan-president-commissions-domestic-made-naval-worship-20210909/6219772.html](https://www.voachinese.com/a/Taiwan-president-commissions-domestic-made-naval-worship-20210909/6219772.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-96.png)
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

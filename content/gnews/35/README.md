@@ -2,39 +2,35 @@
 ---
 
 
-## 塔利班临时政府名单令多国失望 唯北京积极回应
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1523799/)
+## 秘翻在线：微软高管对中国技术滥用发出警告
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523997/)
 
-作者：香草山教育部-飞虹
+#### 文章撰写：寶寶
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+#### 校对发布：文柯Miles
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/rsz_gettyisadfsdfamages-869597360.jpg)Photo credit should read THOMAS PETER/AFP via Getty Images
 
+据华盛顿自由灯塔（Washington Free Beacon）9月9日报道，微软首席科学家正在向国会警告中共人工智能技术的危险性，而微软目前正与中共深入合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/塔利班临时政府名单令多国失望-唯北京积极回应-scaled.jpg)Taliban fighters take control of Afghan presidential palace after the Afghan President Ashraf Ghani fled the country, in Kabul, Afghanistan, Sunday, Aug. 15, 2021. (AP Photo/Zabi Karimi)
+埃里克·霍维茨（Eric Horvitz）博士今年向国会报告说，中共在其国内使用人工智能技术对全世界崇尚自由的人来说是巨大的威胁。这份报告是霍维茨在国会人工智能工作组汇报上提出的。该报告发布之际，微软首席执行官布拉德·史密斯（Brad Smith）正在与中共高级官员会面，讨论深化数字技术合作和微软在中共国业务的联系。
 
-塔利班9月7日公布的临时政府人员，主要来自塔利班的领导层，其中，已故塔利班创始人奥马尔的紧密助手毛拉·哈桑·阿克洪德担任总理，塔利班政治委员会负责人巴拉达尔担任副总理。
+微软是向中共低头以换取进入该国丰厚利润市场的众多公司之一。 美国篮球协会（NBA）支持其球员和教练的政治激进主义，但对中共侵犯人权和压制言论自由保持沉默。 苹果允许中共官员亲自监控其在中共国的设施和数据中心。 科技公司也面临来自内部的压力，要求淡化中共侵犯人权的行为。 苹果员工呼吁该公司谴责以色列在加沙地带的行为，而不是中共国使用奴隶劳工的行为。
 
-针对这份名单，法新社表示，此前塔利班曾公开承诺，新政府将有包括女性在内的多方面人士的参与，但从公布的名单来看，新政府主要成员几乎是清一色的塔利班强硬人物，并没有女性官员。
+微软允许中共严格审查微软的子公司领英网络（LinkedIn）。 LinkedIn 为西方用户创建了西方和中国用户的个人资料，一旦发现有中共屏蔽的词汇，该平台就关闭这些用户的中文版本个人资料。 今年三月，LinkedIn 更进了一步，封禁了一名驻英国的批评中共人士。
 
-而中共却对这一名单做出了积极表态。在9月8日的例行记者会上，中共外交部发言人汪文斌表示，中共愿意与阿富汗塔利班新政府保持沟通，称临时政府的成立“结束了阿富汗长达三周多的无政府状态，是阿恢复国内秩序和战后重建的必要一步”。
+史密斯上周在与中共工业和信息化部的高级监管员肖亚庆的会晤中继续与中共政府接触。 据肖说，双方探讨了扩大微软与中共的合作。
 
-参考链接：[塔利班临时政府名单令多国失望 唯北京积极回应](https://www.voachinese.com/a/China-Reacts-Positively-To-Taliban-Cabinet-List-20210908/6217637.html)
+作为美国人工智能安全委员会工作的一部分，霍维茨就中共在人工智能滥用问题上敲响了警钟。 该委员会的报告一再警告说，中共使用人工智能对自由和美国国家安全构成威胁。 报告的作者说，中共“在国内以及越来越多地在国外使用人工智能作为压迫和监视的工具，这与我们认为应该人工智能该如何使用完全背道而驰”。
 
-校对/发稿：雪梨
+该报告还强调了中共利用人工智能来实现更有效的面部识别技术，该行为相当危险。 作者写道，中共使用人工智技术能压迫维吾尔少数民族，由此可预见威权政府将如何使用人工智能系统来加强审查、跟踪其公民的人身活动和网络活动，以及消除异见。 微软为其Azure云服务扩展了在中共国的数据中心，其中包括一个面部识别软件包。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+今年三月中共入侵了数十万台微软服务器，一些学者认为这次攻击是为了收集数据来训练人工智能（AI）模型。 讽刺的是，作为回应，微软扩大了在中国的业务。 拜登政府更是拒绝制裁实施网络攻击的中共。
 
-**更多资讯，更多关注**
+微软没有回应置评请求。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考文章：[Microsoft Exec Sounds Alarm About Chinese Tech Abuses as Company Collaborates With China](https://freebeacon.com/national-security/microsoft-exec-sounds-alarm-about-chinese-tech-abuses-as-company-collaborates-with-china/)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+本文仅代表作者本人观点，不代表Gnews平台
 
 0

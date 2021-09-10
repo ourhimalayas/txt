@@ -2,53 +2,30 @@
 ---
 
 
-## 中共国经济崩溃的开始：恒大面临破产
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1522686/)
+## 中共发誓对所有文娱工作者进行强行驯化
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1523633/)
 
-作者：纽约香草山农场 – 四季
+#### 作者：东京樱花团｜捆绑CCP一千年
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/文化.png)[*图片来源*](https://kaoyan.eol.cn/nnews/202109/W020210907683652642416.jpg)
 
+据中共国[新华社](http://www.news.cn/politics/2021-09/09/c_1127845874.htm)消息：中共文化和旅游部9日召开电视电话会议，要求从严、从实加大力度对文娱和旅游领域系统性综合治理，将目前的文化创作、生产的文娱作品视为“歪风邪气”，要坚决“铲除其滋生土壤”，重新塑造并推出[中共邪恶初心](https://popula.com/2019/05/07/%E5%88%AB%E5%BF%98%E5%88%9D%E5%BF%83-never-forget-why-we-started/)的文艺工作者，营造[专制独裁](https://www.bbc.com/ukchina/simp/vert_fut/2015/06/150609_vert_fut_dictatorships_realistic)邪恶的文艺生态。
 
+中共文旅部还要求全体文娱单位要系统、认真对标、对表中宣部下发的《文娱领域综合治理工作的通知》，并按照《文娱领域综合治理和“饭圈”乱象专项整治工作安排》的要求把惩治从业者行为和加强党史学习教育结合起来，要加强做好“重大题材演出创作”管理，开展从业人员轮训。要选树一批优秀文艺工作者典型，还要把此轮运动宣传为“[我为群众办实事](http://dangshi.people.com.cn/n1/2021/0507/c436975-32096915.html)”。
 
-
-
-据[《门道专家》（The Gateway Pundit）](https://www.thegatewaypundit.com/2021/09/exclusive-beginning-chinas-economic-collapse-largest-issuer-chinas-commercial-paper-evergrande-facing-bankruptcy-entire-world-economy-likely-impacted/)网站9月9日报道，陷入困境的中共国房地产巨头恒大，其股价在其两天内被两次下调信用评级后再次下滑。该公司因超过3000亿美元的未偿债务而陷入严重的财务困境，这让人们担心这家全球负债最多的公司即将违约，面临破产。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/928-1-Evergrande-in-Hong-Kong.jpg)图片来源：The Gateway Pundit
-
-恒大在香港上市后经过多年的借贷，已经积累了总额超过3000亿美元的债务，成为世界上负债最多的公司之一。
-
-其股价今年已经累计下跌了75%。周四上午，股价下跌了近10%，至3.35港元，低于该公司2009年在香港挂牌时的上市价格。同一天，该公司的一种债券在价格暴跌20%后被深圳证券交易所暂停交易。
-
-按照中共官方媒体的披露，今年以来已经有274家房地产公司发布破产公告，平均每天一家。
-
-可以预见的是中共国房地产泡沫即将破裂，其经济也将随之崩塌。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
+- *延展阅读：*[***教育部：坚决查处住家教师、众筹私教、直播变录播等违规学科类培训***](http://www.infzm.com/contents/213279)
+- *延展阅读：*[***又红又专——一个不为人知的清华***](https://kaoyan.eol.cn/nnews/202109/t20210907_2152545.shtml)
 
 
+中共这一举措被许多“小骂大帮忙”的中共大外宣解读为，这是中共文化大革命重演版前奏。实际上，远不止文革重演这么简单，实际上早在2020年中共发动生物战之前就已经启动文革模式。中共此轮运动是彻头彻尾的对文艺工作者的“轮奸”，并要求“不许反抗”，要做好对那些愿意屈膝的软骨头进行洗脑工作，“开展轮训”、 “选树一批优秀文艺工作者典型”，以劣币驱逐良币模式逼着文化人下跪，哪怕还有一点点风骨，要把这批有思想的文娱工作者进行降格打击，直到被驯化为止。
 
-**更多资讯，更多关注**
+由于爆料革命连日来持续[曝光中共文化艺术界的黑幕](https://www.gettr.com/post/paivjq9a54)，中共为了自保，加大清洗。其目的还在于保住中共囊中羞涩的钱袋子不外流，就连教师在家开展在线培训都不被许可。
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2021年9月10日
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（本文只代表作者观点，与GNews网站无关）
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
-
-
-
-0
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-5-e1630998215814.jpg)
++1
