@@ -15,6 +15,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@rolfoundation 9/10/2021 4:12 PM (UTC)`
+
+【法治基金/法治社会捐款者留言09/09/2021】<br/><br/>如何给法治基金/法治社会留言？<br/><br/>发送您的留言至：<br/>法治基金官方邮箱—support@rolfoundation.org<br/>法治社会官方邮箱—support@rolsociety.org<br/>（注：请将“捐款留言”作为邮箱标题）<br/><br/>下一期视频，我们希望见到您❤️
+![img](https://media.gettr.com/group18/getter/2021/09/10/16/bfc4ec87-a6f1-26ac-b0f8-19d3ae071d04/out.jpg)
+
+---
+
 `@miles 9/10/2021 1:20 PM (UTC)`
 
 早在四年前，郭文贵先生已经准确爆料：恒大将比海航更惨，在国际上更加震撼！<br/>As early as four years ago, Miles Guo has precisely predicted  the fate of Evergrande : Evergrande will fail and will have a more epic fall than HNA, which will give the world a bigger shock.
@@ -301,13 +310,6 @@ Clues of COVID-19 to be recognized as bioweapon regarding Wuhan<br/><br/>关于�
 
 十几亿的中国人．最终会出几个像这个螳螂这么厉害还有血性的男人的🔥🔥🔥会出现非常非常多的像雌狮子雌豹子一样的女人……我的感觉中国的好男人和好女人👩正在找回属于自己的血性和正义的力量。【七哥您好! 记得您怼过在直播里挑战您的伪类，关于螳螂的。这段视频很好地展示了螳螂的凶悍，反杀把猎食者吃了。🙏🙏🙏🙏】
 ![img](https://media.gettr.com/group9/getter/2021/09/06/09/54052a1a-3a9c-03a7-f1b7-5eddec35c403/out.jpg)
-
----
-
-`@miles 9/6/2021 5:17 AM (UTC)`
-
-9/5/2021 Miles Guo：Who is holding the equity of Lufax? Why is each share of Lufax a bomb for the whole world? What does it mean for Lufax to have infiltrated half of the world’s power and financial institutions, and all the pension funds?<br/><br/>9/5/2021 文贵直播：都谁掌握了陆金所的股权？为什么说陆金所的每一股都是给世界的炸弹？陆金所黑掉了半个世界的权力和金融机构和所有养老基金，这意味着什么？<br/>
-![img](https://media.gettr.com/group48/getter/2021/09/06/05/b097bac8-2f50-103c-87d7-519531e97bcf/out.jpg)
 
 ---
 
