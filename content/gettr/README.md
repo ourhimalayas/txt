@@ -17,6 +17,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@purelotusheart1 9/10/2021 2:31 AM (UTC)`
+
+⚠️Dr. Richard Fleming, PhD Physics, MD, Nucleus Cardiologist, JD, leader of Covid virus & vaccines research has just announced: <br/>“there is something very critical, by having graphene oxide in the vaccines and preventing the spike proteins from attaching to cells, it makes the spike proteins available to cross the blood-brain barriers to cause the prion diseases (eg mad cow disease)”<br/><br/>⚠️Mr. Miles’ announcement on Aug 24, 2021, that each and every vaccine has graphene oxide nanoparticle,  has changed Dr. Fleming’s previous understanding of the issue.<br/><br/>⚠️ Dr. Fleming’s annoucement is a powerful scientific confirmation proving the accuracy and importance of intel from Mr. Guo and anonymous heroes of our Whistleblower Movement. 
+![img](https://media.gettr.com/group15/getter/2021/09/10/02/16deeb83-be93-271f-1f9e-b46e9c02c653/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@purelotusheart1 9/10/2021 2:45 AM (UTC)`
 
 ⚠️理查德弗莱明博士，物理学博士，医生，核子心脏病学家，律师，新冠病毒和疫苗研究的负责人刚刚宣布：<br/> “有一件非常关键的事情，通过在疫苗中加入氧化石墨烯可以防止刺突蛋白粘附在细胞上（注：接种部位），使刺突蛋白可以穿越血脑屏障（注：进入大脑），导致朊病毒疾病（注：例如疯牛病）”<br/><br/>⚠️弗莱明博士呼吁美国人民和议员们站出来，行动起来。<br/><br/> ⚠️郭文贵先生于 2021 年 8 月 24 日宣布每一种新冠疫苗都含有氧化石墨烯纳米颗粒，弗莱明博士收到爆料革命的信息后，改变了他之前对这个问题的理解。<br/><br/> ⚠️ 弗莱明博士的声明从科学角度强有力地证实了郭先生和爆料革命无名英雄的情报的准确性和重要性及其对西方人的影响力。
@@ -299,17 +308,6 @@ Clues of COVID-19 to be recognized as bioweapon regarding Wuhan<br/><br/>关于�
 
 9/5/2021 Miles Guo：The market value of the fund that acquired the egg and sperm banks soared 500 times in about 1000 days! The eggs and sperms of unvaccinated human beings will be the rarest thing in the world and the most abundant assets left to you by the Whistleblowers’ Movement! The CCP will release new coronaviruses. Fellow fighters, please prepare medicines!<br/><br/>9/5/2021 文贵直播：中共收购的西方卵子、精子库基金市值1000多天暴涨500倍！未打疫苗者的卵子和精子将成为世界上最稀有的东西，也是爆料革命留给你们的最丰富的资产！中共会放出新的冠状病毒，请战友们备好药！<br/>
 ![img](https://media.gettr.com/group4/getter/2021/09/06/03/ff0fe345-8a18-7a41-3355-ce820f237e37/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jsdfposjpqyuee1 9/5/2021 3:24 AM (UTC)`
-
-感谢战友们发来的反馈，战友们的要求必须满足🙏火来把大胡子Zelenko医生的配方中文版做了一些微调，更加清楚了。这事儿很重要，必须给它整明白了，谢谢大家。一切以大胡子医生的英文原版为准🙏
-![img](https://media.gettr.com/group41/origin/2021/09/05/03/46b7a24e-e12a-3b74-d4c7-ae8560bd629d/bbd76089902ce54c1dbda294269c5d4e.jpg)
-> `@drzevzelenko 9/3/2021 10:01 PM (UTC)`<br/>
-![img](https://media.gettr.com/group30/getter/2021/09/03/22/cbf1926b-fc99-0f87-7bee-0b47e1469bef/a9c4ae6526ca785d5aa7dc081c7dc864.jpg)
 
 ---
 
