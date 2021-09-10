@@ -103,29 +103,29 @@
 ### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/31/README.md)
+### [华大基因目标：收集全球基因数据并为中共军队建立基因数据库](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0910](/content/gnews/32/README.md)
+### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0910](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：澳大利教师团结起来反对强制接种疫苗](/content/gnews/33/README.md)
+### [秘翻在线：澳大利教师团结起来反对强制接种疫苗](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/34/README.md)
+### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/35/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：恒大——中共国的雷曼兄弟！](/content/gnews/35/README.md)
+### [秘翻在线：恒大——中共国的雷曼兄弟！](/content/gnews/36/README.md)
  ` 秘密翻译组G-Translators`
 
-### [阿拉斯加州州长回应拜登的疫苗授权：“这毋庸置疑是可以引用《第 25 修正案》的案例”](/content/gnews/36/README.md)
+### [阿拉斯加州州长回应拜登的疫苗授权：“这毋庸置疑是可以引用《第 25 修正案》的案例”](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [调查显示：公司强行疫苗接种将迫使近75％的未接种疫苗员工辞职](/content/gnews/37/README.md)
+### [调查显示：公司强行疫苗接种将迫使近75％的未接种疫苗员工辞职](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：水灾疫情让河南建业集团雪上加霜](/content/gnews/38/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
