@@ -2,73 +2,50 @@
 ---
 
 
-## 澳推新监控法：当局可修改或删除推特和脸书帖子
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1523676/)
+## 加州疫苗护照法案被叫停，声名狼藉的州长纽森将面临罢免
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1523737/)
 
-- 编译：wenwu
+2021年09月10日
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/csm_39931_a72ab4b9b8-3.jpg)网络图片
 
-一项新法律赋予澳大利亚警方前所未有的在线监视、数据拦截和更改数据的权力。在《[监视立法修正案](https://www.aph.gov.au/Parliamentary_Business/Bills_Legislation/Bills_Search_Results/Result?bId=r6623)》中概述的这些权力引起了对潜在滥用、隐私和安全的担忧。
+加利福尼亚州民主党立法者一直在推进一项旨在剥夺公民人身自由以及限制公民在社会各个方面的自由权利的法案。
 
-该法案更新了[《2004 年](https://www.homeaffairs.gov.au/nat-security/files/surveillance-devices-act-2004-annual-report-2015-16.pdf)[监控设备法》](https://www.homeaffairs.gov.au/nat-security/files/surveillance-devices-act-2004-annual-report-2015-16.pdf)和[《1979 年电信（拦截和访问）法》](http://www.comlaw.gov.au/Series/C2004A02124)。从本质上讲，它允许执法机构或当局（如澳大利亚联邦警察和澳大利亚刑事情报委员会）在调查严重的网上犯罪时，修改、增加、复制或删除数据。
+这些加州民主党人是国家的叛徒，他们希望建立一种侵犯所有人医疗隐私的疫苗护照制度，同时不遵守新冠病毒规定隔离的个人将被无休止的要求接种疫苗和成为医院长期的访客。
 
-人权法律中心表示，该法案对言论自由和新闻自由[没有足够的保障](https://www.hrlc.org.au/news/2021/8/25/insufficient-safeguards-in-new-surveillance-law)。数字权利观察称其为“[无正当理由的监视制度](https://digitalrightswatch.org.au/2021/09/02/australias-new-mass-surveillance-mandate/)”，并指出政府无视两党议会委员会的建议，以[限制新法律授予的权力](https://parlinfo.aph.gov.au/parlInfo/download/committees/reportjnt/024617/toc_pdf/AdvisoryreportontheSurveillanceLegislationAmendment%28IdentifyandDisrupt%29Bill2020.pdf;fileType=application%2Fpdf)。
+在8月下旬第455号众议院法案被泄漏后，来自加利福尼亚州奥克兰的民主党女议员巴菲·威克斯 (Buffy Wicks)，放弃了将新的疫苗护照制度放入法案。该法案在两党中普遍不受欢迎。
 
-此外，执法部门的合法黑客行为可能使黑客罪犯（中俄）更容易，通过[政府](https://insiderpaper.com/bidens-government-critcised-for-leaving-service-dogs-in-kabul-twitter-enraged/)故意留下的漏洞而非法访问计算机系统。
+专制的医疗歧视和隔离制度被暂时中止
 
-法律中有哪些内容？
+这些拙劣的疫苗供应商们邪恶和歧视性的计划正在被发出自由呼声的加利福尼亚市民所抛弃。
 
-该法案为执法机构引入了[三项新权力](https://tutanota.com/blog/posts/australia-surveillance-bill/)：
+声名狼藉的加利福尼亚州州长加文·纽森 (Gavin Newsom)支持疫苗计划，并希望在公共和私人领域执行这些疫苗护照制度。纽森一直在这些残暴的立法者们背后“默默关注和提供技术支持”。随着加利福尼亚人民反击医疗暴政，他目前面临着历史性的罢免选举。
 
-1. “数据毁坏令”允许当局通过复制、删除或修改他们认为合适的数据来“毁坏数据”；
-2. “网络活动授权”允许从授权对象所使用或可能使用的设备或网络中收集情报；
-3. “帐户接管令”允许当局控制一个在线帐户（例如社交媒体帐户），以收集信息为名进行调查。
+随着反全美疫苗护照立法落空，纽森可能会尝试在全州范围内强制执行疫苗计划。如果纽森在罢免选举中幸存下来，他将在罢免选举后执行这一违宪命令。 加州民主党人暂时放弃了疫苗护照制度，因为反对的声音越来越大，这可能“损害纽森击败可能的罢免选举”。巴菲·威克斯 (Buffy Wicks) 打算在1 月份再次引入疫苗护照制度，并希望以“最强有力的法案”强制每个人接种疫苗。
 
+任何违背宪法的法律都是无效的
 
-还有一个“紧急授权”程序，允许在某些情况下无需授权，即可进行以上活动。
+加州疫苗护照法案要求所有人屈从于加州政府和目前控制它的疫苗行业。从科学的角度来看，该法案无视自然免疫及其在建立群体免疫方面的优越作用。该法案还无视提高存活率的整体策略和医疗方法。相反，该法案要求所有人接受以 covid-19 凝块注射和削弱免疫力的形式进行的致命和致残的医学实验。该法案恐吓所有公共和私营部门的工作人员，将他们的血统提交给了一个永无止境的清单，这些清单包括未来对人们征收的疫苗接种、医学检测、戴口罩和任何其他公共卫生要求。
 
-合法的数据拦截如何运作？
+如果立法机关和州长赋予该制度法定权力，那么加利福尼亚人民在做任何事情前都将被迫出示证据证明他们多次注射了刺突蛋白。该制度将创建一个两极的社会，健康和免疫者将被隔离和惩罚，而疫苗接种者将继续痛苦、生病、虚弱、住院并寻求不可靠政府的许可以行使基本的公民自由。
 
-“合法拦截”是一种网络技术，允许根据司法或行政命令的授权对通信进行电子监视。为实现这一目标，电信和互联网服务提供商制定了标准（即法规和规则），例如[欧洲电信标准协会](https://www.etsi.org/technologies/lawful-interception)推荐的[标准](https://www.etsi.org/technologies/lawful-interception)。
+任何过着正常生活的人，都不会想要一个“奴隶身份”。被威胁着通过每周或每天的DNA拭子（新冠病毒测试）来证明自己的清白。这种程度的医疗强制剥夺了个人受宪法保护的正当权利。新冠病毒的测试要求错误地指责健康的人犯了他们没有犯下的虚构罪行，惩罚了未接种疫苗者、未感染者和免疫的人。在这种医疗暴政下，个人在被证明有罪之前不再是无辜的——这一美国基本原则正在受到不断地挑战。在疫苗护照制度下，每个被视为“未接种疫苗”的人都犯有传播他们没有的感染罪，并被迫使用常规的、以欺诈方式校准的测试，这些测试旨在剥夺人们的权利，并使人们受制于医疗暴政。
 
-执法机构可能会[要求](https://lims.utimaco.com/how-lawful-interception-activities-support-leas/)服务提供商在不通知用户的情况下交出通信数据、解密数据或截获数据的副本。服务提供商可能还必须提供可用的分析工具，例如目标行为的图形或图表。
+最终，无论有多少人在民意调查或立法机构中投票被侵犯了生命、自由、个人财产、宗教、正当程序或隐私都将不再重要。美国是一个保障个人基本权利的宪法国家。疫苗护照、强制检测、强制蒙面和强制性疫苗政策正在让宪法失效。任何违背宪法的法律都是无效的。
 
-有哪些隐私问题？
+**简评：**权力的无限扩张是每一个政客和权力拥有者都永远盼望的事情，而中共发起的疫苗生物战，正在让某些邪恶的西方政客以此为借口，想让计划得逞。如果在疫苗这场全球性战争中失败，人类将会跌入无尽深渊。全球所有正义的力量都应该团结起来反抗，反击邪恶力量在全球的扩张。为了我们每一个人的未来，赢得这场正义之战。
 
-澳大利亚信息专员办公室和其他机构也[提出了隐私问题](https://www.oaic.gov.au/engage-with-us/submissions/surveillance-legislation-amendment-identify-and-disrupt-bill-2020-submission-to-the-parliamentary-joint-committee-on-intelligence-and-security/)。该法案可能会影响未涉嫌犯罪活动调查的第三方。特别是，该法案可以授权访问的第三方计算机、通信和数据。
-
-人权法律中心认为，拟议的广泛权力可能[会迫使](https://www.hrlc.org.au/news/2021/8/25/insufficient-safeguards-in-new-surveillance-law)任何对目标计算机或网络具有相关知识的个人进行黑客活动。在某些情况下，这可能与个人免于自证其罪的权利发生冲突。该法案允许执法机构能够修改刑事诉讼中的潜在证据，也是一个值得关注的主要问题。检测和预防不适当的数据毁坏，将是一个关键问题。
-
-新授权令的实施需要符合《[1988 年隐私法](https://www.legislation.gov.au/Series/C2004A03712)》，该[法](https://www.legislation.gov.au/Series/C2004A03712)旨在促进和保护个人隐私，并规范澳大利亚政府机构和组织。在某些机构可能拥有对《隐私法》有豁免权的情况下，重要的是在公共安全和[隐私影响](https://www.natlawreview.com/article/even-hacking-field-government-surveillance-bill-passed-parliament)之间取得[平衡](https://www.oaic.gov.au/privacy/the-privacy-act/)。
-
-有哪些安全问题和影响？
-
-现代加密很难破解，因此黑客经常利用系统中的其他漏洞来访问未加密的数据。据报道，政府也在[利用这些漏洞](https://www.europarl.europa.eu/RegData/etudes/STUD/2017/583137/IPOL_STU%282017%29583137_EN.pdf) 进行合法的黑客攻击。具体来说，它们依赖于“[零日漏洞利用](https://www.fireeye.com/current-threats/what-is-a-zero-day-exploit.html)”，即利用软件供应商或开发人员不知道的软件漏洞来入侵系统。在修补这些漏洞之前，这些漏洞可能会被利用数月甚至数年。如果执法机构使用零日漏洞进行合法黑客攻击，则可能会出现利益冲突。
-
-为了保护公民，我们希望这些机构向软件制造商报告或披露他们发现的任何软件漏洞，以便修补漏洞。但是，他们可能会选择不报告这些漏洞，而是将这些漏洞用于自己的黑客攻击。这使用户面临风险，因为任何第三方，包括犯罪组织，都可以利用这些所谓的零日漏洞。
-
-政府使用黑客工具可能会导致整体[网络](https://insiderpaper.com/arizona-election-audit-report-delayed-cyber-ninjas-ceo-test-positive-for-covid/)安全性变差。授予澳大利亚执法机构的授权可以保护公共安全和国家利益，但它们也可能为攻击者访问政府数据提供强大的手段。这包括国家官员等目标个人的数据和在线帐户，这可能会严重影响国家[安全](https://insiderpaper.com/what-is-pegasus-and-how-the-spyware-is-used-to-hack-phones/)。在考虑到新法案的通过，需要考虑这种可能性。
-
-**简评：**
-
-**澳大利亚当局的监控法让人想到了拜登政府和推特和脸书的审查制度合作。拜登版的数字化维稳，主要从事“纠正”网络上关于疫苗的虚假信息。以推特为例，它可能采取的是要求用户删除贴文，并且强制停止账户12小时；脸书可能只是要求删除它所指定的，有时会强制封杀账户30天。**
-
-**笔者认为，这些法律都有一个核心方向：以“取消文化”作为手段，给网络用户制造一个虚假世界并让他们生活在里面。另一方面，据2021年9月7日盖特账户[@Pandarolling](https://gettr.com/post/padlmt65df)的分享：Tanya Davies 议员刚刚在Facebook 直播爆料：澳洲政府在三月份给所有的家庭医生(GP)发信警告，不允许医生在任何形式上干扰国家对人民进行新冠疫苗接种，明确说明如果有医生敢干预，就会对医生进行调查，结果可能是吊销行医执照。**
-
-**值得一提的是，新中国联邦的GETTR正是为言论自由所设立的安全港湾，这是真实新闻的基本基础。**
-
-**据2021年9月8日《法广网》报道，微信、百度、抖音、快手纷纷宣布配合官方整治唱衰唱空市场的金融”黑嘴”的政策。然而，政府的强权不仅只在中共国发生，而是在全世界。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：**[《内幕消息》](https://insiderpaper.com/australian-government-new-surveillance-laws-modify-twitter-facebook-posts/)｜作者：James Jin Kang|发布时间：2021年9月7日
+原文链接： [Vaccine passport legislation gets shut down in California as disgraced governor Newsom faces recall](https://dreddymd.com/2021/09/07/vaccine-passport-legislation-gets-shut-down-in-california-as-disgraced-governor-newsom-faces-recall/)
 
 * * *
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 +1

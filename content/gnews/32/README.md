@@ -2,59 +2,43 @@
 ---
 
 
-## 媒体开始狂吹“Mu变种”为新一波强制疫苗做铺垫
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1523670/)
+## 巴议员推法案 欲使比特币成为法定货币
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1523721/)
 
-- 编译**： Jenny Ball**
+- 编译：wenwu
 
 
-上周是“Delta变种”，而今主流媒体的新宠“毒株”是“Mu变种”，据推测，就在政府正准备重新实施另一轮封锁之际，这种病毒“开始在美国兴起”。
+[巴拿马](https://zh.wikipedia.org/wiki/%E5%B7%B4%E6%8B%BF%E9%A9%AC)正在探索如何快速追随萨尔瓦多的脚步，后者官方周二授权比特币为法定货币。在萨尔瓦多采用[比特币](https://www.cnet.com/how-to/what-is-bitcoin/)作为法定货币后的第二天（8日），巴拿马国会议员Gabriel Silva提出了一项法案，旨在为“巴拿马共和国使用、持有和发行数字价值和加密资产，提供法律、监管和财政确定性”。
 
-据说，Mu变种于 1 月在哥伦比亚首次被发现。从那时起，它神秘地传播到了至少40 个国家，包括美国和英国。
+Silva周三（8日）在推特上宣布了这项题为“《加密货币法》：使巴拿马与数字经济、区块链、加密资产和互联网兼容”的法案。席尔瓦在[推文中](https://twitter.com/gabrielsilva8_7/status/1435015640226615299)表示，该法案有可能创造就业机会、吸引投资，并促进政府提高透明度。
 
-仅在美国，据说现在至少有 2,3000 个 Mu变种的“病例”，这都是使用[欺诈性](https://www.naturalnews.com/2021-08-01-fda-covid-pcr-test-fraud.html)[PCR](https://www.naturalnews.com/2021-08-01-fda-covid-pcr-test-fraud.html)[测试](https://www.naturalnews.com/2021-08-01-fda-covid-pcr-test-fraud.html)检测到的。
+像Silva这样的加密货币倡导者，将[比特币](https://www.cnet.com/how-to/what-is-bitcoin/)、[以太坊](https://www.cnet.com/how-to/bitcoin-ethereum-or-litecoin-which-cryptocurrency-is-best-for-you/)和[狗狗](https://www.cnet.com/news/dogecoin-the-origin-story-of-the-elon-musk-supported-cryptocurrency/)[币](https://www.cnet.com/how-to/what-is-bitcoin/)视为全球货币的未来。底层的[区块链技术](https://www.cnet.com/blockchain-decoded/)允许这些货币能够通过创建一个记录交易的数字账本来运作，而不是依赖中央银行来承保——加密货币爱好者会用“操纵”——货币的价值。
 
-我们被告知，目前该国唯一一个据称没有Mu变种的州是内布拉斯加州。有意思的是，Mu 变种神奇地出现在美国，就像 Delta 变种据说“接近尾声”一样。
+巴拿马的新法案旨在促进加密货币和其他数字资产的使用，类似于中美洲国家萨尔瓦多的立法。但它也[概述了](https://97855788-39ff-4655-a39b-3acea3b2f10b.filesusr.com/ugd/3b5653_bd5292fe23de49b08a78728ba65b4761.pdf)政府为了身份和透明度而[扩大](https://97855788-39ff-4655-a39b-3acea3b2f10b.filesusr.com/ugd/3b5653_bd5292fe23de49b08a78728ba65b4761.pdf)，对区块链技术的使用。世界经济论坛（和其他机构）已经探索[了区块链技术可减轻腐败的潜力](https://www.weforum.org/agenda/2020/06/governments-leverage-blockchain-public-procurement-corruption/)（比特币是洗钱的工具）。但是以这种方式在全国范围内部署该技术将是前所未有的举措，会产生一系列令人眼花缭乱的影响。
 
-像往常一样，“科学家”据说对 Mu 变种感到害怕，主流媒体报道，称其“可能是迄今为止最危险的”**。现在还有人相信这种胡说八道吗**？
+萨尔瓦多在全国范围内[推出比特币](https://www.cnet.com/personal-finance/your-money/el-salvador-and-bitcoin-everything-you-need-to-know/)并不顺利。如果巴拿马通过其《加密货币法》，它可能会为国家级别的加密货币授权，提供另一个令人关注的测试案例。
 
-**加利福尼亚州、佛罗里达州，是新的****Mu****感染****病例最多的州**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-7-6.png)
 
-Mu变种非常严重，据说现在整个佛罗里达州有384例。我们被告知加州，特别是洛杉矶，是另一个Mu“热点”，也有 384 例。
+**简评：**
 
-当他们不再忙着拍摄TikTok舞蹈视频时，医院工作人员说，他们对所有涌入他们工作地方的Mu新病例感到“不知所措”。显然，他们宁愿在社交媒体上，也不愿与那些讨厌的病人打交道。
+**2017年6月13日，巴拿马共和国政府宣布建立与[中华人民共和国](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9C%8B)的[正式官方关系](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%EF%BC%8D%E5%B7%B4%E6%8B%BF%E9%A9%AC%E5%85%B3%E7%B3%BB)，结束与[中华民国](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E6%B0%91%E5%9C%8B)长达106年的[外交关系](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E6%B0%91%E5%9C%8B%E8%88%87%E5%B7%B4%E6%8B%BF%E9%A6%AC%E9%97%9C%E4%BF%82)；鉴于它重要的地理位置巴拿马的经济的重点是[服务业](https://zh.wikipedia.org/wiki/%E6%9C%8D%E5%8A%A1%E4%B8%9A)，以金融、贸易和旅游为主。由于巴拿马的建立和贸易都和美国有重要关系，巴拿马从1907年开始使用[美元](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%85%83)作为流通货币，本国货币为[巴波亚](https://zh.wikipedia.org/wiki/%E5%B7%B4%E6%8B%BF%E9%A6%AC%E5%B7%B4%E6%B3%A2%E4%BA%9E)，也是第一个[美国](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9C%8B)以外使用美元作为法定货币的国家。**
 
-世卫组织于8月下旬正式命名了Mu变种，让世界为随之而来的下一波医学法西斯主义“浪潮”做好准备。
+**另一方面，巴拿马的华人华侨占国家总人口的7%（28万），并专门设有“[华人节](https://theory.gmw.cn/2018-12/07/content_32124145.htm)”。中共国于2017年9月在巴拿马成立了第一所孔子学院；中国国务院新闻办公室与拉美议会就合作共建“中国馆”签署协议并于今年11月正式揭牌。**
 
-这一次，美国可能会看到比Delta变种更严厉的限制，这显然才是目的。随着希腊字出现的每个新病毒，医疗警察的国家都希望以此尽可能地加强暴政。
+**值得一提的是，巴拿马也参与了中共国巴拿马运河“一带一路”的项目合作，意味着中共国挺进了美国的[后花园](https://news.sina.com.cn/c/2019-04-07/doc-ihvhiewr3881075.shtml)。那么这些“一带一路”是否有保密协议，它们的内容又是什么？或者是说从中共国老百姓身上薅出什么利益给了这些国家，以维持合作的关系。也许是中共国的习神所提供的比特币（支持人民币为代价）、股票…**
 
-总人口约为1000万的洛杉矶县，据说有167例Mu变异病例。这代表了0.0000167% 的感染率，卫生当局认为这是非常可怕的。
-
-洛杉矶县公共卫生主任芭芭拉·费雷尔(Barbara Ferrer)宣布：“像Mu等变种的识别，以及变种在全球范围内的传播，凸显了洛杉矶县居民继续采取措施保护自己和他人的必要性。”
-
-“这就是接种疫苗和分层保护如此重要的原因。这些行动可以打破传播链，并限制 COVID-19的扩散，从而不使病毒变异成为更危险的东西。”
-
-在加州领先之前，阿拉斯加的Mu病例数最高，为146例，其次是康涅狄格州73例，缅因州42例，夏威夷39例。
-
-假电视“医生”福奇对Mu变种特别害怕，前几天,他告诉仍在看他讲话的人，“时刻注意”引入的每一个新变种至关重要。
-
-这么编累不累啊，唯一合乎逻辑的反应就是大笑。这场大流行，已经结束了至少一年，如果它曾经开始的话，但有说话权的人还在用编造的“牛粪影响世界气候”这样的臭狗屎欺骗世界。这真是一个小丑的世界。
-
-更多关于中共病毒“变种”的最新假新闻，请访问[Propaganda.news](https://propaganda.news/).
-
-**评论：福奇用美国纳税人的钱资助中共武汉军方实验室，进行冠状病毒功能增强试验，证据已经曝光，他对美国国会撒谎将面临****5****年监禁，在进去之前，你还想引入所有希腊字母病毒杀伤害死更多的人吗？纽伦堡大审判才是对刽子手级别的罪犯福奇最应该的惩罚！**
-
-“**这真是一个小丑的世界。”这真是一个荒诞的世界。该让这一切都结束了！人类需要一个正道主义的新时代！**
+**也就是说，习神或许正在通过“一带一路”拿下美元的主导地位。当然，如果比特币不会烂尾的话…**
 
 （文章仅代表作者观点，与GNEWS无关）
 
-新闻来源**:** [DailyMail.co.uk](https://www.dailymail.co.uk/health/article-9966309/Cases-Mu-variant-begin-rise-experts-fear-variant-contagious-Delta.html) / [Archive.is](https://archive.is/1atd9) / [NaturalNews.com](https://www.naturalnews.com/2021-08-01-fda-covid-pcr-test-fraud.html) / [newstarget.com](https://www.newstarget.com/2021-09-08-media-mu-variant-hysteria-lockdowns-vaccine-mandates.html)
+**新闻来源：**[《CNET》](https://www.cnet.com/personal-finance/panama-unveils-bill-to-make-bitcoin-legal-tender/)｜作者：朱利安·多塞特｜发布时间：2021年9月8日
 
 * * *
 
 *审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
+校对：信心满满
+发布：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
 

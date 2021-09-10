@@ -2,19 +2,44 @@
 ---
 
 
-## 秘翻在线：美特使施压 塔利班放行200人离境
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523685/)
+## 美国大学生因未接种疫苗被禁止参加在线课程
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1523713/)
 
-#### 翻译/撰稿：zzballack
+#### **整理报道：**小红帽
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16312666521.png)   图片来源：aljazeera.com
-据《雅虎新闻》9月9日报道，一名美国官员说塔利班在美国阿富汗和解问题特别代表扎勒米·哈利勒扎德（Zalmay Khalilzad）的施压和敦促下，9月9日同意放行滞留在当地的200名美国人、美国永久居民和其他西方护照持有者乘坐包机离开阿富汗。这是美国8月31日结束阿富汗撤军行动以来美国人首次大规模离开阿富汗。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-1230129200.jpg)
 
-美联社（The Associated Press）报道称，两名卡塔尔官员说，他们预计有100至150名美国人将乘坐向阿富汗运送人道主义救援物资的卡塔尔航班从喀布尔机场出发。该航班并非撤离航班，因为所有乘客都持有外国护照。
 
-据报道之前几天，塔利班试图阻止阿富汗北部城市马扎里沙里夫 (Mazar-i-Sharif)一个机场的几架载有美国人和阿富汗人的包机离开。塔利班为此辩护说他们阻止飞机离开是因为许多人没有必要的旅行证件证件。美国国务卿安东尼·布林肯（Antony Blinken）9月7日说：“美国在与塔利班就此沟通后得到保证，所有持有有效旅行证件的美国公民和阿富汗公民将被允许离开。”有报道称，由于阿富汗多达80%的经费预算来自国际社会，加上该国经济危机快速恶化，塔利班无法承受被国际社会孤立的局面，所以不得不做出让步。
+图片来源：The Week UK
 
-新闻来源：[Taliban Gives Permission for 200 American Civilians, Others to Leave Afghanistan](https://news.yahoo.com/taliban-gives-permission-200-american-121455768.html)
+**【雅典娜快讯】，紧贴时事脉搏**
+
+美国罗格斯大学（Rutgers University）的一名学生因未接种中共病毒疫苗，而被禁止参加在线虚拟课程，尽管他愿意呆在校园外。
+
+就读心理学专业的劳根·霍拉（Logan Hollar）去年转学到该大学，随后报名参加了本学年所有的在线虚拟课程。然而，当他上个月底去支付在线课程费用时，霍拉发现他在罗格斯大学的电子邮件和相关帐户已被拒绝使用。
+
+当霍拉询问学校当局为什么冻结他的校园账户时，他被告知即使是那些参加虚拟课程的学生也必须接种疫苗。
+
+霍拉解释了他不接种中共病毒疫苗的原因。“我不属于高危年龄人群。我很健康，也有锻炼身体。我觉得中共病毒并不可怕，”这位22岁的年轻人说，“如果有人想接种疫苗，我没意见，但我认为不应该强迫他们。”
+
+尽管该大学声称可为霍拉提供疫苗豁免，但霍拉尝试申请却并未成功。罗格斯大学发言人多利·德弗林（Dory Devlin）强调，学生需要遵守疫苗规定才能参加课程。
+
+霍拉表示，他可能要被迫转学到另一所大学，因为他已经错过了好几门课程。
+
+据悉，之前已有好几所美国大学威胁要切断学生的互联网访问，除非他们遵守严格的中共病毒封锁规则。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻**：[Rutgers Uni Student Banned From Taking Online Virtual Classes Because He’s Unvaccinated – Summit News](https://summit.news/2021/09/07/rutgers-uni-student-banned-from-taking-online-virtual-classes-because-hes-unvaccinated/)
+
+*编辑：翼族
+发布：小红帽*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
