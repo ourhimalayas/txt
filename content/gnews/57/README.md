@@ -2,55 +2,41 @@
 ---
 
 
-## 秘翻新视野9月10日播报简要
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1524004/)
+## 白宫表示将对未接种疫苗的美国人采取COVID-19新措施
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1524170/)
 
-BY：秘翻时评
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/fengmian.png)](https://gtv.org/video/id=613acd3bbe28c76ac944d81f)
-【点击图片即可观看】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2147.png)
+**评论：**
 
-国内外新闻
+不管拜登政府采取何种措施，不打疫苗是最好的选择。
 
-1．澳航将禁止未接种疫苗旅客搭乘国际航班（见证伟大时刻）
+据《thehill.com》作者：ALEX GANGITANO，2021年9月8日报道:
 
-[https://www.epochtimes.com/b5/21/9/9/n13221258.htm](https://www.epochtimes.com/b5/21/9/9/n13221258.htm)
+白宫表示，拜登总统将于周四宣布其政府应对 COVID-19 的新措施，包括检测、授权和学校的新措施，具体情况取决于个人的疫苗接种情况。
 
-2. 14位美国州长反对联邦强制疫苗令（风之伤）
+白宫新闻秘书 Jen Psaki 周三告诉记者，新措施将涉及全国人民。
 
-[https://www.epochtimes.com/gb/21/9/10/n13223181.htm](https://www.epochtimes.com/gb/21/9/10/n13223181.htm)
+“总统宣布了六个步骤，将会增加新的措施，” Psaki说。“其中一些将与新检测有关，一些将与指令有关，一些将与我们如何确保孩子在学校受到保护有关。”
 
-3. 台湾最新民调显示：近9成民众反对“一国两制”(见证伟大时刻)
+上周，在就业报告发布后，总统表示，他的政府正在寻找更安全的方法，让孩子们重返学校，让工作的人重返办公室。
 
-[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
+Psaki表示，当组合政策最终确定时，将在周四预公布更多内容。  她补充说：“肯定会有新的组成部分，当然会影响全国人民，但我们也在共同努力控制病毒，努力恢复正常生活。”
 
-4. 美中太空战 美上将：中共在开发卫星杀手（风之伤）
+拜登即将发表讲话之际，全国各地的病例和住院人数都在增加，这很大程度上是因为高度传染性的德尔塔变种的传播。
 
-[https://www.epochtimes.com/gb/21/9/9/n13222775.htm](https://www.epochtimes.com/gb/21/9/9/n13222775.htm)
+当被问及新措施是否会影响美国人的生活时，Psaki说，“这取决于你是否接种了疫苗。”
 
-盖特新闻
+文章点评仅代表个人
 
-1.台湾大牛盖文：
+原文链接：[https://thehill.com/homenews/administration/571364-white-house-signals-new-measures-coming-for-unvaccinated-americans](https://thehill.com/homenews/administration/571364-white-house-signals-new-measures-coming-for-unvaccinated-americans)
 
-在加拿大卡爾加里，消防員、緊急醫療工作者和警察默默站立一小時，抗議政府的強制性疫苗和證件。（见证伟大时刻，annafu）
+翻译：洛杉矶盘古农场 – 轰炸机
+校对：洛杉矶盘古农场 –Mike Li
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – 批批
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://gettr.com/post/palvajc4a9](https://gettr.com/post/palvajc4a9)
-
-2.秘翻盖文：澳大利亚健康从业者监管机构 (AHPRA) 发出信函，威胁因任何形式干预政府疫苗接种计划而对医生进行调查或吊销执照（风之伤）
-
-[https://gettr.com/post/pam1jg3478](https://gettr.com/post/pam1jg3478)
-
-3.郭先生盖文：国际黑暗势力
-
-9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着（大家）
-
-[https://gettr.com/post/pakv0u3cc1](https://gettr.com/post/pakv0u3cc1)
-
-4.郭先生盖文：
-
-打破中共房产骗局的第一块砖头……
-
-【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】（大家）
-
-[https://gettr.com/post/pajce80a0e](https://gettr.com/post/pajce80a0e)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

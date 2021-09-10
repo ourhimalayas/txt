@@ -2,53 +2,34 @@
 ---
 
 
-## 加拿大联邦大选法语辩论日，人民党支持率激增
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524364/)
+## 调查显示：公司强行疫苗接种将迫使近75％的未接种疫苗员工辞职
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524504/)
 
-作者：纽约香草山美食部 – 文百合
+2021年9月10日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091001.jpg)
+**摘要翻译：**
+
+这项调查是在美国不同的雇主在辉瑞公司的Comirnaty疫苗获得全面批准后强制要求他们的工人注射疫苗的情况下进行的。
+
+由《华盛顿邮报》和美国广播公司新闻进行的调查有1066名成年受访者。他们在2021年8月20日至9月1日期间接受采访。根据《华盛顿邮报》-美国广播公司新闻的民意调查，如果雇主要求接种COVID-19疫苗，只有16%的未接种者会接种。同时，42%的人说他们会辞去工作，35%的人说他们会以医疗或宗教理由要求豁免。
+
+但在无法获得医疗或宗教豁免的情况下，72%的受访者表示他们会辞职。只有18%的受访者说，尽管没有豁免，他们仍然会注射疫苗。
+
+《福克斯新闻》在2021年8月早些时候进行的一项民意调查反映了客户对员工接种疫苗的偏爱。其调查发现，44%的受访者更倾向于访问员工有接种疫苗或工人COVID-19检测阴性的机构。
+
+[新闻链接](https://dreddymd.com/2021/09/10/75-of-unvaccinated-workers-to-quit-if-companies-make-vaccines-required/)
+
+*翻译：suigintou#9482|校对：感恩*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
-
-
-
-9月8日晚，加拿大联邦大选领导人法语辩论落下帷幕。
-
-事实上，加拿大人民党（People’s Party of Canada）领袖Maxime Bernier并未被邀请参与此次大选辩论。但据昨日的统计数据显示，加拿大人民党的支持率却一路攀升至10%，并且仍在持续增长。
-
-![](https://media.discordapp.net/attachments/879117708753514526/885564953526939698/image0.jpg?width=915&amp;height=609)图源网络
-
-对此，网友们戏称，没有Mad Max的大选辩论不过是走走过场。实际上，大选辩论中缺席的人民党是目前加拿大国内唯一一个反对国际共产与强制疫苗的党派。虽然Max在他的推特中对这种排挤行为表示了不满，但他同时也强调，他并不会改变他的初衷，他将继续为自由发声。
-
-在联邦大选越来越近的当下，Max每天都按行程在全国各地进行演讲和拉票。据悉，每场演讲中他的支持者都有上千之多。可见，Max颇受民众欢迎。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Polling Canada的推特](https://twitter.com/canadianpolling/status/1435706387850534916?s=21)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-+1
+0
