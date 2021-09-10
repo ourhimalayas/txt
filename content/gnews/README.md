@@ -37,14 +37,14 @@
 ### [2021年9月10日 文贵先生盖特 1](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/9/README.md)
+### [威权主义大流行才是真正的威胁](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登政府强推疫苗引美入深渊](/content/gnews/10/README.md)
+### [拜登政府强推疫苗引美入深渊](/content/gnews/11/README.md)
  ` HimalayaRussia`
-
-### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -85,23 +85,23 @@
 ### [有声| 瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/25/README.md)
+### [秘翻在线: 习近平对各行各业的重拳打压将重塑中共国社会](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/26/README.md)
  ` wenwu`
 
-### [阿肯色州州长反对拜登的强制疫苗新政](/content/gnews/26/README.md)
+### [阿肯色州州长反对拜登的强制疫苗新政](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [洛杉矶公立学校将强制12岁以上学生接种疫苗](/content/gnews/27/README.md)
+### [洛杉矶公立学校将强制12岁以上学生接种疫苗](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [中共影响力萎缩, 台湾华语学习中心取代孔子学院](/content/gnews/28/README.md)
+### [中共影响力萎缩, 台湾华语学习中心取代孔子学院](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/29/README.md)
+### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
-
-### [中情局有意注册抖音账号，卢比奥参议员公开反对](/content/gnews/30/README.md)
- ` GTV新闻访谈`
 
 ### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -151,36 +151,36 @@
 ### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登政府强推疫苗引美入深渊](/content/gnews/47/README.md)
+### [威权主义大流行才是真正的威胁](/content/gnews/47/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [拜登政府强推疫苗引美入深渊](/content/gnews/48/README.md)
  ` HimalayaRussia`
 
-### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/48/README.md)
+### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID疫苗：公众需要的不只是“相信我们”（1/2）](/content/gnews/49/README.md)
+### [COVID疫苗：公众需要的不只是“相信我们”（1/2）](/content/gnews/50/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党就是中国合法光明会](/content/gnews/50/README.md)
+### [共产党就是中国合法光明会](/content/gnews/51/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [9/10/21 香港快讯 律政司控支联会「煽动颠覆」](/content/gnews/51/README.md)
+### [9/10/21 香港快讯 律政司控支联会「煽动颠覆」](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [脆弱的中南坑老杂毛](/content/gnews/52/README.md)
+### [脆弱的中南坑老杂毛](/content/gnews/53/README.md)
  ` 银河勇气之星`
 
-### [中国人民被中共欺骗的百年（三）：第二次国共合作](/content/gnews/53/README.md)
+### [中国人民被中共欺骗的百年（三）：第二次国共合作](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [如果强制接种新冠疫苗，70%未接种的美国人将选择辞职](/content/gnews/54/README.md)
+### [如果强制接种新冠疫苗，70%未接种的美国人将选择辞职](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [请党放心一定灭掉你](/content/gnews/55/README.md)
+### [请党放心一定灭掉你](/content/gnews/56/README.md)
  ` 银河勇气之星`
 
-### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [白宫表示将对未接种疫苗的美国人采取COVID-19新措施](/content/gnews/57/README.md)
+### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/57/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

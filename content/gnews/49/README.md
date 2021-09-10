@@ -2,111 +2,141 @@
 ---
 
 
-## COVID疫苗：公众需要的不只是“相信我们”（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1524458/)
+## COVID疫苗：公众需要的不只是“相信我们”（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1524539/)
 
 - 编译：Jenny Ball
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1009A.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-108.png)
 
-**企业、政府和科学界，为了我们最大利益而合作的想法是一个值得考究的问题——盲目接受任何行业针对全球危机的解决方案，都是没有根据的。**
+在文章第一部分谈到，尽管没有任何费用——但无论是税收还是其副作用却不是免费的。
 
-过去几个月关于拟议的数十亿美元和解的报告，以结束与[阿片类药物相关的巨额诉讼](https://www.latimes.com/world-nation/story/2021-07-20/us-opioid-lawsuits-on-verge-of-settlements-with-4-companies)，明确反映了药品生产商和经销商的态度。即使他们同意支付创纪录的金额，行业领导者和他们的公共关系代表仍坚持认为，大型制药公司与美国的麻醉品成瘾之间没有关联。
+对于大型制药公司而言，与鸦片制剂相比，[大流行带来的潜在收益更多](https://edition.cnn.com/2021/05/21/business/covid-vaccine-billionaires/index.html)。不知何故，盲目信任仍在继续**，这让地球上最强大、最富有的行业之一，可以自由地推出有问题的产品** 。他们庞大的公关和游说力量，正在努力执行任务。新疫苗继续被视为是大流行病的一种出色的人道主义疗法。
 
-（阿片类药物：一种在成瘾性或生理作用上类似于鸦片的化合物。）
+随着疫苗授权的理由越来越多，制药行业通过其在 FDA 和CDC的倡导者，尽量减少对其的异议。
 
-“普渡制药”（Purdue Pharmaceuticals）将阿片衍生物奥施康定（OxyContin）作为非成瘾性药物销售，要求获得广泛的法律豁免权，以换取其45亿美元的和解。
+该行业给人的印象是，COVID-19 疫苗的开发和推出，不可能有缺陷或名不副实。
 
-在宣布260亿美元的报价后，强生公司[Johnson & Johnson](https://childrenshealthdefense.org/defender/johnson-johnson-bankruptcy-liability-baby-powder-lawsuits/)执行副总裁兼总法律顾问迈克尔·乌尔曼 (Michael Ullmann) 发表了措辞谨慎的声明：
+这种人为的共识，依赖于看似合理的逻辑：许多国家的所有善意的实验室、研究人员和医生，都不可能天真地将风险降至最低，或串通编造有关大流行或疫苗的虚假叙述。
 
-“我们认识到阿片类药物危机是一个极其复杂的公共卫生问题，我们对每个受影响的人深表同情。该解决方案，将直接支持州和地方在解决美国阿片类药物危机方面取得有意义的进展的努力。”
+他们公关活动的这种简单化的神话，解释了普遍的气氛——记者和公众无法想象他们不完全了解情况。然而，从最广泛的角度理解这种人为的基本原理很重要。
 
-鉴于大型制药公司以一贯的策略，和对[疫苗](https://childrenshealthdefense.org/defender_category/covid/)快速开发的慈举，被告不承担促成类阿片流行的任何责任。
+疫苗在一个气候变暖，两极正在融化，海洋上升的星球普遍推行。
 
-相反，为了这些大型制药公司的数十亿美元，他们要求所有涉及诉讼的州和市政当局，同意不再将他们的产品与毒瘾联系起来。
+未能减缓地球灾难的政府和企业，现在要求对我们未来的健康有绝对的信心。基于一个值得研究的借口，这些企业、政府和科学力量，正在为我们的最大利益进行合作。 盲目接受任何行业针对全球危机的解决方案，都是没有根据的。
 
-公司已提出对他们在过去的20年里导致的50万人死亡，花钱让他们保持沉默。这种企图贿赂的做法，反映了供应商[持续供应成瘾药物](https://www.washingtonpost.com/investigations/76-billion-opioid-pills-newly-released-federal-data-unmasks-the-epidemic/2019/07/16/5f29fd62-a73e-11e9-86dd-d7f0e60391e9_story.html)给数以百万计的人，他们今天还在遭受阿片类处方药物滥用的苦果。
+将我们的福祉托付给大型制药公司，就等于期待石油、军事和化学工业，将拯救地球免遭环境灾难。问题的根源已不是秘密了：利益高于一切。
 
-避免过量服用或幸存下来的吸毒者，必须寻找[一个允许使用麻醉品的社会](https://newrepublic.com/article/161692/america-segregates-drug-use)，同时将吸毒者指定为弃儿和罪犯。无论他们的药物来源是进口鸦片制剂，还是处方止痛药，充满敌意的文化，加上政府疏忽监督，大大加剧了他们的痛苦。
+制药业不断欺骗公众， 它与医疗机构合作分发成瘾性麻醉品。这家商业企业[还推广了其他有问题的疫苗和药物](https://prescriptiondrugs.procon.org/fda-approved-prescription-drugs-later-pulled-from-the-market/)，这些疫苗和药物，比它们预防的疾病或治疗的症状更危险。
 
-我们这实际上是对一个剥削弱势群体的有执照的贩毒集团已经视而不见了。
+**大量因疫苗或处方药的不良反应而受伤或死亡的人，不知何故**[**已成为我们接受的现实**](https://freepress.org/article/america%E2%80%99s-well-hidden-iatrogenic-epidemic-drug-and-vaccine-induced-disorders)**。** 几十年来，已经创造了一种可以容忍有毒副作用的氛围。同时，该行业[聘请专家](https://www.fiercepharma.com/marketing/ogilvy-health-s-new-pr-practice-chief-talks-pharma-image-and-social-trends)来产生集体思考。那些不同意参与他们诡计的人都被边缘化了。
 
-直接参与普渡和强生诉讼的宾夕法尼亚州总检察长，乔什·夏皮罗 (Josh Shapiro)，简要分析了他的观点：
+**挑战大型制药公司的官方路线具有很大的风险**。反驳可能会减少利润的政策，通常保证你的研究资助被终结，而且你很可能会结束一个[有利可图的职业](https://childrenshealthdefense.org/defender/state-medical-board-shut-down-dr-paul-thomas-pediatrician/)生涯。所以，随着危机的加剧，**对持不同政见者的容忍度甚至更低。**
 
-“这些死亡无可避免。这个流行病就是由一大群制药高管和药品经销商制造的。”
+**一场病毒大流行的骗局**
 
-**短视的监督**
+这场大流行的最大症状是常识的丧失。
 
-政府监管机构[本可以阻止](https://www.nature.com/articles/d41586-019-02686-2)这场持续发生的悲剧。
+在情绪上的操控，和企图 排斥任何质疑是否应该接种 COVID-19 疫苗的人，都有欺骗性公关活动的明显迹象。
 
-有权保护公众的美国食品和药物管理局 (FDA)，一直无法抵抗制药业的主导影响。
+它非常之成功。
 
-FDA仍然未能最大限度地减少吸毒者及其家人的痛苦和折磨，他们无法得到可预防流行病蹂躏的药物。
+大药企还收到了政治家和专家的公关礼物，他们重复了关于大流行的猜测，从不太可能到令人发指的猜测。
 
-2019 年，FDA批准新型阿片类止痛药咨询委员会的前任负责人雷福德·布朗（Raeford Brown） 博士说：
+医生和科学家提出的关于疫苗计划的大多数合理问题，都被标以出于政治动机的阴谋煽动者。
 
-“FDA的作案手法是，他们像是在谈论一场精彩的比赛，然后什么也没有发生。在过去的五年里，我直接与该机构合作，当我坐在会议上听他们讲话时，我所能想到的就是时间在流逝，以及每时每刻都有很多人在他们的无所事事中死去。FDA继续表现出的缺乏洞察力，在很多方面都是一种接近罪犯的故意视而不见。”
+关于偏离他们意图的主题，都当作传播错误信息。 目前，由于缺乏了解和批判性、没有详细的分析，对大流行的猜测千奇百怪。
 
-**美国政府的**[**毒品战争被误导了**](https://www.nytimes.com/2021/08/08/opinion/opioid-epidemic-sacklers-settlement.html)**：它应该是针对制药业。**
+如果可以获得更多的信息和细节，那么猜测就会减少。 但是相反，任何怀疑既定现实的人，[都说成是骗局的一部分](https://www.npr.org/2021/05/13/996570855/disinformation-dozen-test-facebooks-twitters-ability-to-curb-vaccine-hoaxes) 。
 
-但很明显，还没有改变任何事情的倾向，**主要是因为 ****FDA ****和大型制药公司一直有着互惠互利的关系。**
+疫苗的好处继续[被完全表述为毋庸置疑](https://news.yahoo.com/ap-fact-check-biden-inflates-011843623.html)。怀疑者必须是傻瓜，或者至少不知道他们的价值和重要性。
 
-难道是因为FDA的阿片类药物[监督部门](https://www.forbes.com/sites/johnlamattina/2018/06/28/the-biopharmaceutical-industry-provides-75-of-the-fdas-drug-review-budget-is-this-a-problem/?sh=2c9e7f8b49ec)[75%](https://www.forbes.com/sites/johnlamattina/2018/06/28/the-biopharmaceutical-industry-provides-75-of-the-fdas-drug-review-budget-is-this-a-problem/?sh=2c9e7f8b49ec)[的预算依赖于](https://www.forbes.com/sites/johnlamattina/2018/06/28/the-biopharmaceutical-industry-provides-75-of-the-fdas-drug-review-budget-is-this-a-problem/?sh=2c9e7f8b49ec)制药巨头？或者可能是由于 FDA和CDC的监管机构，是制药行业与专业人士之间的[旋转门](https://thehill.com/blogs/congress-blog/politics/452654-for-big-pharma-the-revolving-door-keeps-spinning)？
+对于那些对疫苗接种计划从任何方面提出异议的人，都以一种邪教般的、不合情理的态度对待。 直到疫苗对疾病变种的抑制存在不确定性时，人们提出了严肃问题，这种武断的气氛可能会有所缓和。
 
-这两种持续的结构性补贴，都是缺乏结束巨额收益流动意愿的明显症状。
+但相反，[愤怒的指责越来越多](https://www.baltimoresun.com/opinion/op-ed/bs-ed-op-0117-owe-the-unvaccinated-20210115-uqqip6jzk5dqpgm7ivsen7lucy-story.html)，这意味着，是[未接种疫苗的人在导致](https://childrenshealthdefense.org/defender/ap-breaks-mainstream-media-narrative-pandemic-of-unvaccinated/)大流行继续。
 
-芬太尼（Fentanyl）和奥施康定（OxyContin）等处方药，以及类似的阿片类药物，因利润驱动的政策而被滥用，导致监管和限制其使用的努力无效。
+如果将注意力集中在是[不健康的饮食和营养不良、肥胖和糖尿病等](https://www.scientificamerican.com/article/why-some-people-get-terribly-sick-from-covid-19/)造成的风险上，这种愤怒将得到更实际的应用。这些原因和其他因素影响了大流行的死亡率——并且，是这些继续危及生命的病毒致人住院的[主要原因](https://www.nih.gov/news-events/nih-research-matters/most-covid-19-hospitalizations-due-four-conditions) 。
 
-即使考虑接受和解提议，阿片类药物成瘾，及其随之而来的悲惨后果也在增加。
+自大流行开始以来，有关患重病风险较高的人的报告有所减少。相反，出现了一系列关于完全健康、未接种疫苗的人突然死于病毒的戏剧性故事。
 
-除了巨大的民事诉讼之外，**似乎没有努力揭示奸商和监管者之间阴险关系的细节——这并不是因为公众不知道这种破坏性的联盟**。
+例如，英国媒体广泛报道了一名所谓的、身体健康的 42 岁男子的死亡，他后悔没有接种疫苗，但没有提到他患有哮喘病，很可能使用类固醇来控制病情。几篇文章提到了他的基本情况，但在本章后面内容，似乎没有意识到这一启示反驳了文章的自己的断言。
 
-**对令人厌恶行业的新的信任**
+这个帐户是众多让每个人接种疫苗，打情绪牌运动的其中一个，它甚至掩盖了向那些有潜在疾病的人提供信息的规定， **也许人们的健康不是宣传的重点**。
 
-[2019](https://news.gallup.com/poll/266060/big-pharma-sinks-bottom-industry-rankings.aspx)[年的一项盖洛普民意调查](https://news.gallup.com/poll/266060/big-pharma-sinks-bottom-industry-rankings.aspx)发现，制药业是美国最令人厌恶的行业。
+为什么 COVID-19的 新闻报道，没有为处于危险中的人提供充分的指导，以及关于生活方式和饮食选择的令人信服的文章？
 
-推而广之，尽管FDA和大型制药公司之间潜在的不道德关系，是一个很少详细分析的话题，但对诚实的政府监督的期望已经渺茫。
+**这是因为，除了支持疫苗生产和销售的信息外，其他任何东西都是可以接受的。背离这一教义的全是禁忌。**
 
-由于制药巨头向州政府计划提供数十亿美元的和解资金，以解决社会和犯罪滥用问题，因此FDA对保护公众健康的监管和监督很少。
+**必须守住阵地**
 
-谁在与制药巨头的联盟中拥有决定权，这已经不是什么秘密了。
+**CDC**承认，**疫苗的有效性正在以两位数的百分比下降。** 同时，却还在实施对疫苗加强剂的需求。
 
-而现在，随着世界面临大流行的持续挑战，人们却对同一个财团抱有毫无根据的盲目信心。
+尽管在术语上存在矛盾，忽略了不一致，并与之前的乐观数据相冲突，但公关活动仍在继续。事实上，**随着疫苗缺陷和欺骗性逻辑变得明显，支持扭曲现实的力度就越大。**
 
-以爆炸性的健康危机为名，疫苗的开发迅速而激烈。然而，当最需要仔细审查每一个细节时，制药行业却有了犯错犯规的广阔空间。
+无论发生什么，制药行业、政府和忠实的新闻媒体，都在不断重复这句圣言：疫苗是安全、有效和免费的。
 
-政府监管机构和大型制药公司[关系依旧](https://news.yahoo.com/fauci-defends-covid-boosters-says-three-shots-will-likely-be-the-new-norm-210524610.html)。他们对[实验性疫苗](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)的动机难道是表面看起来那样吗？
+那些自我标榜为事实核查的网站，不敢批评公关表述的矛盾，反而将自己和
 
-为什么那些质疑其真实性的人会[受到谴责和排斥](https://childrenshealthdefense.org/defender/covid-countermeasures-forced-vaccination-passports-segregated-society/)？
+CDC、FDA 和大型制药公司观点保持一致。
 
-**随着疫苗获得惊人的利润，****FDA ****继续随着制药业的发展而手足舞蹈——这应该引起极大的关注。**
+新闻研究的主导者，应该是那些质疑测试或疫苗接种科学背后虚假数据的人。
 
-处方药生意因其无情地从经常被滥用或具有众多相关风险的药物中寻求最大收益而声名狼藉。一切都没有改变。
+大多数新闻媒体都坚定不移地坚持自己的立场。批评家仍在一门心思地揭穿那些质疑疫苗统计数据的人。媒体忘记了挑战制药行业这一更大的责任，而是对任何暗示疫苗统计数据有猫腻的质疑，反复得出惊人一致的结论：所有数据在经过适当分析后，就会表明接种疫苗的重要性，风险也小，而且在每种情况下，贬低者都是伪造或夸大其词。
 
-‎由于有渎职的历史，在[以保护利润为核心利益的行业](https://www.politico.com/news/2021/09/02/drug-prices-democrats-lobbying-508127)中，没有行善的余地——但公众被要求相信，他们这是富有同情心，是为民担忧，才在不懈努力地推动疫苗接种政策。有了发展市场的巨大经济动机，几乎不用讨COVID-19疫苗推广的利润会受到影响。
+偏离这种规定性解释，被认为是对神圣科学的侵犯。
 
-现在的信息是，将来有各种新变种，这可能需要让每个人[反复不停地打疫苗](https://www.politico.com/news/2021/09/02/drug-prices-democrats-lobbying-508127)，也许[数年不止](https://www.cnbc.com/2021/09/07/who-says-covid-is-here-to-stay-as-hopes-for-eradicating-the-virus-diminish.html)。
+**违反禁令提出其他形式的预防或治疗的可能性的医生和分析师被边缘化，或被逐出教会。对疫苗患者严重反应有渊博知识的医生，以及持不同意见的病毒学家，都被视为危险的异常者而规避。**
 
-**国际销售活动**
+主流媒体没有报道疫苗不良反应的数据。
 
-虽然表面上所有力量都在以结束全球大流行的名义聚集在一起，但疫苗分发无疑还有其他动机。
+**解药是真相**
 
-从第一次宣布开始，就很明显一个国家无法独立实现群体免疫。撇开有效性和声明不谈，在第一剂疫苗接种六个月后，生产的COVID-19疫苗中，有[80%](https://www.cnbc.com/2021/04/09/who-says-poor-countries-have-received-just-0point2percent-of-worlds-vaccine-supply.html)[已销往世界上最富裕的国家](https://www.cnbc.com/2021/04/09/who-says-poor-countries-have-received-just-0point2percent-of-worlds-vaccine-supply.html)。
+大型制药财团做任何事情，都要致力于以确保没有智慧的挑战者。
 
-南非生产的强生疫苗，被送往国外的剂量多于提供给本国居民的剂量。这件事公之于众时，该公司尴尬地[将疫苗退回非洲](https://www.wsj.com/articles/eu-to-return-millions-of-doses-of-j-js-covid-19-vaccine-imported-from-africa-11630591429)。
+**法律和政府都在支持这个行业。**
 
-也许全民疫苗接种运动[并不像描绘的那样公平](https://www.bmj.com/content/374/bmj.n2027)。再一次，对于有能力支付的国家来说，对昂贵药物的依赖，似乎是药物营销的一个关键组成部分。收件人被告知它是免费的，尽管没有任何费用——但无论是税收还是[其副作用](https://childrenshealthdefense.org/defender/vaers-cdc-injuries-reported-covid-vaccines-fda-boosters/)却不是免费的。
+截至 5 月 1 日，CDC 停止收集非住院或死亡的突破性病例数据。这一悄悄的决定同时透露，新的具有更高传染性的变种病毒会感染疫苗接种者。这些人轻症或无症状，可能会在不知不觉中继续感染他人， 这又有可能推动新的变种。
 
-请继续阅读本文第二部分更深层的分析。
+不知何故，一项偏离重要细节的政策，在更改后仅两个多月就回来了， CDC 宣布做出这一决定，是因为该机构有更重要的事情要做。
 
-**评论：我们只需仔细阅读，就能够看到FDA，CDC如何充当大制药企业的前台推销商。这些企业的药品，在20年间害死了50万人，花钱不仅可以免罪，还让政府和卫生机构给他们当枪手，这还有我们百姓活的机会吗？**
+媒体报道了一些科学家和组织的反对意见，但却没有明确调查为什么故意将这些数据视为无关紧要。
+
+忽略突破性案例的关键信息，直接说明了他们是如何掩盖疫苗的效力的。
+
+这种维持产品现状的方法并不新鲜。
+
+每一次滥用和丑闻爆出，边缘化异议和最小化非支持性数据，**一直都是大型制药公司主导话语权的前兆**。制药界否认事实并贬低批评者，直到事实证据压倒他们。然而他们不承认错误，继续前进——这是一种被迫支付数十亿美元的销售交易，通常被称为“损害赔偿”。
+
+也许有些人仍然相信大型制药公司应对大流行的主要指导方针是无私的仁慈。但如果他们的使命确实转向了结束痛苦和治愈百姓，那他们应该同意没有什么可隐瞒的。
+
+对于那些了解制药业基本道德从未改变的人来说，现在是比以往任何时候都更需要严格审查的时候了。
+
+**我们必须警惕地看待事实。对新闻媒体或任何单一来源的盲目信任是危险的。**
+
+CDC 的疫苗不良事件报告系统（VAERS）早就应该得到巨大改进。应严格收集并公开有关疫苗危险和并发症的数据。
+
+迫切需要开放性和透明度，以便可以客观地评估每个细节——必须睁大眼睛面对大流行。 **我们的医疗决定，必须基于广泛支持的、可验证的信息**。
+
+公众应该得到的不仅仅是“[相信我们](https://www.modernhealthcare.com/supply-chain/pfizer-ceo-public-just-trust-us-covid-booster)”。
+
+**评论：**“**这场大流行的最大症状是常识的丧失”，而造成常识丧失的过程，是中共在西方长期用各种手段宣传共产主义邪恶理论，制造混乱，温水煮青蛙的结果。 所以才**
+
+**会对“大量因疫苗或处方药的不良反应而受伤或死亡的人，不知何故已成为接受的现实”，而不是立刻用西方民主自由和宪法赋予的权利，用法律去制裁这些人。**
+
+**如果人们用常识，用最基本的逻辑去看疫苗，就不应该让紧急状况下使用的疫苗大规模强制接种，更不应该让未经过第三期人体试验的任何药物在市面使用！**
+
+“**医生和科学家提出的关于疫苗计划的大多数合理问题，都被标以出于政治动机的阴谋煽动者。”一直以来，科学的精神不就是质疑吗？而把质疑声音定义为出于政治动机的人，才真正是疫苗政治阴谋的始作俑者！**
+
+**文贵先生今天在****Gettr****视频中讲到判断的重要性！如果看不到真相，常识可能会是保护我们做出明智选择的根本！**
+
+**人类在这场人类大劫难中要总结的教训太多了！爆料革命四年来秉承的为真不破，是我们打破疫苗谎言和阴谋的武器！**
 
 （文章仅代表作者观点，与GNEWS无关）
 
 素材链接：[childrenshealthdefense.org](https://childrenshealthdefense.org/defender/covid-vaccines-public-deserves-more-than-just-trust-us/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=4ef62aac-dc30-4184-ae62-e53d1ceb3ab7)
 
-- [COVID疫苗：公众需要的不只是“相信我们”（2/2）](https://gnews.org/zh-hans/1524539/)
+- [COVID疫苗：公众需要的不只是“相信我们”（1/2）](https://gnews.org/zh-hans/1524458/)
 
 
 * * *
@@ -117,6 +147,4 @@ FDA仍然未能最大限度地减少吸毒者及其家人的痛苦和折磨，�
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-5-1536x1086-1.jpeg)
 
-
-
-+1
+0
