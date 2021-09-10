@@ -67,22 +67,22 @@
 ### [墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共房地产市值高过美德法日英](/content/gnews/19/README.md)
+### [加拿大各行各业的民众静默抗议疫苗护照](/content/gnews/19/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [拜登政府在阿富汗抛弃并留下了美国人](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/20/README.md)
+### [中共房地产市值高过美德法日英](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [后院起火 第三集](/content/gnews/21/README.md)
+### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [后院起火 第三集](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频| 中共国药集团获准进行新冠肺炎人体免疫球蛋白试验](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [视频| 特鲁多民调落后，加拿大保守党有望上台执政](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声| 瑞典与以色列，自然群体免疫与人工免疫的实例](/content/gnews/24/README.md)
+### [视频| 中共国药集团获准进行新冠肺炎人体免疫球蛋白试验](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [秘翻在线: 习近平对各行各业的重拳打压将重塑中共国社会](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [美国联邦执法人员协会反对拜登的病毒疫苗授权](/content/gnews/31/README.md)
+### [剧本化的新冠病毒宣传揭示了几乎全部的美国医生都只是腐败美国医学会和疫苗工业集团的傀儡](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华大基因目标：收集全球基因数据并为中共军队建立基因数据库](/content/gnews/32/README.md)
+### [美国联邦执法人员协会反对拜登的病毒疫苗授权](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/33/README.md)
+### [华大基因目标：收集全球基因数据并为中共军队建立基因数据库](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0910](/content/gnews/34/README.md)
+### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0910](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：澳大利教师团结起来反对强制接种疫苗](/content/gnews/35/README.md)
+### [秘翻在线：澳大利教师团结起来反对强制接种疫苗](/content/gnews/36/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/36/README.md)
+### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/37/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：恒大——中共国的雷曼兄弟！](/content/gnews/37/README.md)
+### [秘翻在线：恒大——中共国的雷曼兄弟！](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
-
-### [阿拉斯加州州长回应拜登的疫苗授权：“这毋庸置疑是可以引用《第 25 修正案》的案例”](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
