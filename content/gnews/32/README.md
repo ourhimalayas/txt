@@ -2,45 +2,23 @@
 ---
 
 
-## 电邮泄密：美国务院阻止了阿富汗的疏散航班
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1523839/)
+## 朝鲜国庆日疑似举行了阅兵式
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1523923/)
 
-作者：文顺
+**圆成农场新闻组**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/AEN20210909000400325_01_i_P4-edited.jpg)图片来源：网络
+9月9日是朝鲜国庆日，每逢国庆节时，[朝鲜国旗](https://zh.wikipedia.org/wiki/%E6%9C%9D%E9%B2%9C%E5%9B%BD%E6%97%97)会插遍[平壤市](https://zh.wikipedia.org/wiki/%E5%B9%B3%E5%A3%A4%E5%B8%82)的大街小巷，而作为朝鲜一大特色的巨型标语也会伫立在市区的交通要道和车站、广场等醒目地区。据韩联社-一名消息人士说，朝鲜似乎在周四早些时候在平壤举行了阅兵式，以纪念建国73周年。细节目前还不清楚，包括领导人金正恩是否参加了这次活动，以及展示了何种武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+根据军事消息来源和卫星图像，自本月初以来，已经发现了北方准备举行阅兵的迹象，在Mirim郊区的机场观察了部队编队和军车。
 
+朝鲜上一次举行这样的阅兵式是在今年1月，当时朝鲜举行了一次罕见的党代会，并展示了一艘新型潜艇发射的弹道导弹（SLBM）和其他先进弹道导弹。去年10月，它还举行了大规模的夜间阅兵式，展示了新型SLBM和洲际弹道导弹（ICBM）。
 
+新闻来源：[朝鲜似乎在周四早些时候举行了阅兵式： 来源|韩联社 (yna.co.kr)](https://en.yna.co.kr/view/AEN20210909000400325)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/电邮泄密：美国务院阻止了阿富汗的疏散航班.png)图片来源：Daily Mail
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-据每日邮报9月7日报导，一封上周一泄露的电子邮件显示，美国国务院拒绝批准一些私人包机离开阿富汗，这些航班本可以疏散美国公民和阿富汗特殊移民签证的申请人。
+编辑/发布：比卡丘
 
-拜登政府此前承诺尽其所能拯救所有美国人和尽可能多的阿富汗盟友，国家官员却拒绝允许埃里克·蒙塔尔私人支付的航班在该国境内或在其众多海外基地之一中降落，建议他向另一个国家寻求着陆空间。这位美国军事律师和退役海军陆战队员表示，联邦政府阻挠了他的救援工作。
-
-这份泄露的电子邮件显示，卡塔尔的乌代德空军基地“不允许独立包机”。“任何包机都不允许降落在德塔基地，但沙特阿拉伯除外。”
-
-邮件暴露后，《纽约时报》报道称，共有 1000 人——包括数十名美国公民和持有签证前往其他国家的（含美国人）阿富汗人，被关押在马扎里沙里夫机场近一周。
-
-参考链接：
-
-[Bombshell leaked emails prove the State Department DID block Afghan evacuation flights even if they had Americans on board, report claims](https://www.dailymail.co.uk/news/article-9967195/amp/Bombshell-leaked-emails-State-Department-refused-greenlight-Afghan-evacuation-planes-Report.html)
-
-校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-
-
+20210910
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 0

@@ -2,45 +2,39 @@
 ---
 
 
-## 09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1519073/)
+## 字节跳动正在与华尔街银行谈判，欲借款超过30亿美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522298/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210908-1.jpg)[图片来源](https://www.bbc.com/news/business-58459098)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2139.png)
+**评论：**
 
+自从2014年加入脸书和推特以来，美国的首要情报机构中情局（CIA）最近入驻了中共信息情报收集平台——抖音。中情局旨在加强了其在社交媒体上的存在，但不应该通过加入中共社交媒体工具，该行为等于与中共的情报机构分享美国情报人员的个人信息。西方政府在某些方面的无知实在令人震惊！
 
-**1.PayPal（贝宝）成功拿下日本线上支付市场，将以27亿美元收购Paidy公司**
+据《路透社》2021 年 9 月 8 日报道：
 
-[PayPal（贝宝）这家美国支付公司将其业务范围扩大至亚洲地区。这家美国支付巨头 表示，它将以 27 亿美元的现金交易收购日本先买后付（BNPL）公司 Paidy，在这个因疫情而繁荣的行业中又迈出了一步。其在线交易竞争对手 Square Inc 上个月以 290 亿美元成功收购澳大利亚 先买后付（BNPL） Afterpay公司。专家表示，这可能是该行业整合的开始。在联邦消费刺激政策和颠覆性消费信贷市场的推动下，BNPL 先买后付商业模式在疫情期间取得了巨大成功。各个信贷公司通过向商家收取费用以提供小额销售点贷款来赚钱，购物者可以通过无息分期付款来绕过信用检查。](https://www.foxbusiness.com/markets/paypal-snaps-up-japanese-buy-now-pay-later-firm-paidy-for-2-7b)
+据两名知情人士透露，短视频平台TikTok的中国所有者“字节跳动”正在与华尔街银行谈判，借入逾30亿美元为其债务再融资。
 
-**2.法院裁决波音股东可以就737 MAX 事故向董事会索赔**
+其中一位知情人士表示，该公司计划利用目前的低利率来偿还债务，并补充说条款和贷款规模仍可能发生变化。
 
-[特拉华州一名法官周二裁定，波音董事会必须面临股东就两起致命的 737 MAX 坠机事件提起的诉讼，这起事故在不到六个月的时间内造成 346 人死亡。副大法官摩根·祖恩裁定波音股东可能会向董事会提出一些索赔，但驳回了其他索赔请求。祖恩在衡平法院的裁决称，两起致命的 737 MAX 坠机事故中的第一起是关于名为 MCAS 的关键安全系统释放出了的“危险信号”，董事会本应该注意到但忽略了这个问题”。](https://www.foxbusiness.com/markets/shareholders-may-pursue-737-max-claims-against-boeing-board-court-rules)
+这些人以保密限制为由拒绝透露姓名。字节跳动拒绝置评。
 
-**3.美联储布拉德称今年应开始缩减刺激措施**
+科技新闻网站 The Information 报道称，字节跳动和银行讨论了筹集 40 亿至 50 亿美元的资金，为债务再融资和为海外扩张提供资金。
 
-[圣路易斯联邦储备银行行长詹姆斯布拉德在接受英国《金融时报》采访时表示，尽管上个月就业增长放缓，但美联储应该推进一项削减其大规模流行病刺激计划的计划。布拉德驳斥了人们对劳动力市场复苏步履蹒跚的担忧，尽管美国经济在 8 月份创造了7个月以来最少的就业岗位，此前休闲和酒店业的招聘因 COVID-19 感染卷土重来而停滞不前。“对工人的需求很大，空缺的职位比失业工人要多，”布拉德在周三发表的采访中说。](https://www.foxbusiness.com/economy/feds-bullard-says-stimulus-tapering-should-begin-this-year-report)
+消息人士还说，字节跳动一直在探索于2021年初公开上市，但该公司在4月份表示，它没有近期的首次公开募股（IPO）计划。
 
-**4.贝莱德公司回应索罗斯对其中国投资的批评**
+数据显示，2019年字节跳动从高盛、摩根大通、摩根士丹利、瑞银、花旗、中国银行和招商银行等12家银行组成的银团获得了约13亿美元的贷款，贷款将于2022年4月到期。
 
-[对冲基金大亨乔治·索罗斯在《华尔街日报》周一发表的一篇专栏文章中谴责了贝莱德最近在中国进行的数十亿美元投资。索罗斯称贝莱德最近决定在上个月在中国投资共同基金是一个“悲剧性错误”，可能会让贝莱德的客户蒙受损失，并且损害美国和其他民主国家的安全利益。贝莱德发言人回应称“美国和中国有着庞大而复杂的经济关系，2020 年，两国之间的商品和服务贸易总额超过 6000 亿美元。通过我们的投资活动，美国资产管理公司和其他金融机构为世界两大经济体的经济互联做出了贡献。”](https://www.foxbusiness.com/markets/blackrock-responds-soros-opinion-china)
+文章点评仅代表个人
 
-**5.比特币暴跌引发 Coinbase系统延迟和故障**
+原文链接：[https://www.reuters.com/technology/bytedance-talks-borrow-up-5-bln-information-2021-09-08/?taid=6138b62d6edf5a000104bf6b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/technology/bytedance-talks-borrow-up-5-bln-information-2021-09-08/?taid=6138b62d6edf5a000104bf6b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-[由于萨尔瓦多成为世界上第一个正式采用数字货币作为法定货币的国家，加之周二比特币价格下滑，双重因素导致加密货币交易所 Coinbase Global Inc. 交易量激增，交易狂潮导致 Coinbase 客户遇到服务延迟和一些报告的应用程序故障。但该公司在 Twitter 上向客户保证问题已解决，服务在几个小时内稳定下来。 该公司在一份声明中向 FOX Business 证实，“对于今天早上的事件，交易量的突然增加导致我们的服务下降。”Coinbase 的客户在回应该公司的社交媒体帖子时对这些故障表示愤怒，一些人对由于这些问题无法在下跌期间购买而感到愤怒。](https://www.foxbusiness.com/markets/bitcoin-tumble-trips-up-coinbase)
+翻译：洛杉矶盘古农场- 蓝精灵
+评论：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**6.比特币成为萨尔瓦多的法定货币首日崩盘引发抗议**
-
-[愤怒的抗议、技术故障和价值暴跌标志着萨尔瓦多采用比特币作为法定货币的第一天。周二比特币的价格跌至近一个月来的最低点，一度从 52,000 美元（37,730 英镑）跌至 43,000 美元以下。一位反对派政客表示，经济下滑导致拉丁美洲最贫穷的国家之一的该国损失了 300 万美元。在萨尔瓦多推出比特币与纳伊布·布克勒总统开始大胆实验时的设想相去甚远。苹果和华为等平台没有提供政府支持的数字钱包 Chivo，服务器在无法跟上用户注册的速度后不得不离线。](https://www.bbc.com/news/business-58459098)
-
-**7.苹果将于 9 月 14 日发布新款 iPhone 13**
-
-[苹果 (AAPL) 宣布将于 9 月 14 日举办一场活动，预计届时将推出备受期待的 iPhone 13。苹果公司传统上会在其库比蒂诺总部举行的年度秋季活动中揭开其最新款iPhone 的面纱。 由于持续的大流行，大型演出将再次以线上方式举行。iPhone 13 可能会成为新智能手机的名称，预计将包括摄像头改进、更快的显示刷新率，并可能提供卫星通信技术。据 MacRumors 称，改进后的相机应该可以拍出更好的低光照片，并为 iPhone 的超广角镜头带来自动对焦。 然而，这些变化可能只会出现在 iPhone 13 Pro 机型上，这意味着标准的 iPhone 13 和 iPhone 13 mini 可能无法获得新镜头。](https://finance.yahoo.com/news/apple-iphone-13-sept-14-161801022.html)
-
-**8.霍尔兹曼表示，通胀可能促使欧洲央行更快收紧政策**
-
-[欧洲央行决策者罗伯特·霍尔兹曼周三在给 Eurofi 杂志的投稿中表示，欧洲央行可能会比许多人预期的更早收紧政策，因为通胀压力可能会持续存在。欧洲央行将于周四开会，自冠状病毒大流行开始以来一直保持超宽松政策，并在 7 月公布新战略时承诺提供更长的宽松期限。 但通胀压力在夏季的几个月里比许多人预测的更快。作为奥地利央行行长的霍尔兹曼表示：“我们有可能比大多数金融市场专家预期的更快地实现货币政策正常化。”](https://www.reuters.com/business/finance/ecb-could-be-tightening-policy-quicker-than-markets-expect-ecbs-holzmann-2021-09-08/)
-
-By 【秘密翻译组-金融组】
-作者：Andrew
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

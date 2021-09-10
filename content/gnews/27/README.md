@@ -2,33 +2,45 @@
 ---
 
 
-## 秘翻在线：台湾最新官方民调显示近九成民众反对“一国两制”
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1523755/)
+## 倒在新冠疫苗毒液下的年轻灵魂
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523921/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-23.png)
-图片来自网络
+栏目记者/责任编辑： 安吉拉
 
-据《德国之声》中文网9月10日报道，台湾大陆委员会9日公布的例行民调结果显示，有87.5%的台湾人反对“一国两制”；8成以上民众支持捍卫国家主权及台湾民主。陆委会强调，“台湾多数民意反对中共对台政治和军事等施压，认同政府坚定维护主权安全的两岸政策立场”。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-今年7月，陆委会也曾经公布类似民调，当时有近89.2%的台湾民众不赞成中共国对台湾主张的“一国两制”。对比两次民调结果，看似反对或不赞成“一国两制”的台湾人减少了1.7个百分点，但仔细查看陆委会官网发现，7月与9月有关“一国两制”的民调问题略有不同：7月是问是否赞成“一国两制”，9月则是问是否反对“一国两制”。
 
-而在今年更早些时候的3月份，陆委会的民调则显示，有74.9％的台湾民众不认同 “一个中国原则”的“九二共识”；88.2%的民众反对中共国提出的以“一国两制”实现两岸统一。
 
-陆委会9月9日公布的民调中还包括中共国不断吸引拉拢台湾高科技人才。有逾6成民众支持政府修法加强管制涉国家核心关键技术人员赴中共国；另有6成民众支持台湾政府未来严审中共国人士的赴台申请。
+每天都在增加的数据表明，新冠疫苗残害和杀死了无数的人，特别是全球政府强推青少年甚至儿童开始接种以后，越来越多的年轻灵魂，纷纷倒在毒液之下，而主流媒体对谋杀行为视而不见、充耳不闻。这个冬天，全人类面对的，是即将来临、无法形容的严峻形势。
 
-此外，在长期观察议题方面，主张“广义维持现状”的民众仍占绝大多数，达到85.4%。在有关中共政府对台湾的态度方面，认为对台湾政府不友善的民众有73%；对台湾民众不友善的则相对较低，有将近60%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0910-morning-6-11.008.jpeg)
 
-陆委会在新闻稿中指出：“近期国际社会关切台海情势和平稳定的重要性。台湾做为区域负责任的一方，将致力维护台海和平现状，坚定捍卫国家主权与安全，并持续与有共同价值的友好伙伴深化合作；同时呼吁北京（中共）当局停止对台威吓打压，正视我方所提“和平、对等、民主、对话”的互动倡议，务实处理两岸问题，方能为良性互动创造有利条件。”
+以下仅是7月以来，因接种新冠疫苗的部分知名健康受害人案例：
 
-今年7月，中共国台办曾经对陆委会当时公布有关香港及“一国两制”的民调回应称，“一段时间来，民进党当局不断操弄香港事务，支持黑暴势力，叫嚣‘援港’行动，攻击‘一国两制’，企图把香港搞得越来越乱，如此达到谋‘独’拒统的政治目的。其恶毒的行径世人共睹，其阴险的图谋昭然若揭。”国台办的这番充满“文革风“的讲话的确很“中共化”。
+丹麦赛手雅各布-福格桑（Jakob Fuglsang），36岁，因副反应环法赛状态糟糕。比利时3名职业自行车少年运动员，15岁和17岁，指责辉瑞公司疫苗导致心脏问题；曾在中国获得金牌的肯尼亚选手吉尔伯特，23岁倒地而亡；美国田径明星26岁的卡梅隆（Cameron Burrell），新西兰24岁奥利维亚（Olivia Podmore），于奥运会几天后接连猝死。荷兰滑冰运动员努斯（Kjeld Nuis）与心包炎战斗有幸被挽回生命。
 
-从几次民调结果看，广大台湾人民对中共妄图以所谓“一国两制”的欺骗手段统一台湾的阴谋早已看破，香港的例子给了台湾人最好的一面镜子。只是台湾政界、商界、甚至军界中有太多的“卖台贼”。如台湾前总统马英九就曾在今年3月形容“一国两制”走入历史。当时国台办发言人朱凤莲居然还对此评论称，希望台湾有关政党和人士能够客观、务实看待完善香港特别行政区选举制度的有关做法，“抛开偏见，明辨是非”。
+以上只是因享受知名度，没有被媒体完全掩盖的部分病例，但有更多的受害案例没被报道。接种新冠疫苗后，这些少年的身体受到了无法逆转的伤害，余生将生活在心脏疾病的威胁中，这些普通的家庭也将承受无法言语的巨大压力和痛苦。
+(本文仅代表作者观点)
 
-由于这些出卖台湾人未来的“卖台贼“的存在，以及台湾执政党民进党领导人一再对政治局势产生幼稚判断，再加上复杂纷纭的国际形势，台湾的命运究竟走向何方目前还是个未知数。好在台湾还是一个民主国家，民意能起到很大作用。只要台湾人民立志坚决反抗中共，西方民主国家就不会对此坐视不理，最终的胜利也必将会属于台湾人民。
+参考链接:
 
-注：本文仅代表作者观点
+1. [Olympic Games: Fuglsang believes his Tour de France was wrecked by Covid vaccine](https://www.cyclingnews.com/news/olympic-games-covid-vaccine-wrecked-my-tour-de-france-says-fuglsang/)
+2. [Belgium, 3 professional cyclists accuse heart problems after Pfizer vaccine – Covid emergency](https://www.italy24news.com/business/167330.html)
+3. [Kenyan Athlete Gilbert Kwemoi, Who Won Gold Medal in China, Collapses & Dies](https://www.kenyans.co.ke/news/67479-kenyan-athlete-gilbert-kwemoi-who-won-gold-medal-china-collapses-dies)
+4. [Olympics world in disbelief after devastating double tragedy](https://au.sports.yahoo.com/olympics-2021-disbelief-devastating-double-tragedy-212845069.html)
+5. [Kjeld Nuis recovered well from inflamed pericardium after vaccination | Ice skating](https://netherlandsnewslive.com/kjeld-nuis-recovered-well-from-inflamed-pericardium-after-vaccination-ice-skating/202976/)
 
-**新闻链接：**[https://twitter.com/dw\_chinese/status/1436145373584637968](https://twitter.com/dw_chinese/status/1436145373584637968)
 
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑 
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0
