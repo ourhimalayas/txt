@@ -2,34 +2,42 @@
 ---
 
 
-## 蓬佩奥：拜登知道若无美军支持，阿富汗将沦陷于塔利班
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522808/)
+## 中共欲对香港民主运动赶尽杀绝
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1522812/)
 
-**据《一美新闻网》2021年9月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a61at-1rt89-2.jpg)华盛顿特区 – 4 月 21 日：前国务卿迈克·蓬佩奥 (Mike Pompeo) 于 2021 年 4 月 21 日在华盛顿特区与共和党研究委员会成员就伊朗问题向媒体发表讲话（摄影：Joshua Roberts/Getty Images）
-前国务卿迈克·蓬佩奥表示，在溷乱的阿富汗撤军期间，美国人没有任何筹码。在周五的一次采访中，蓬佩奥表示，当我们持有巴格拉姆空军基地并在地面部署部队时，美国拥有实际影响力。然而，这种影响力已不复存在。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/33-2-e1631226425861.jpg)
+#### 作者：北纬农夫
 
-他补充说，他相信当拜登政府官员谈论筹码时，他们实际上指的是钱，这意味着美国将付钱给塔利班，让剩余的美国人离开。蓬佩奥还表示，在与阿富汗领导人的对话中，拜登被告知，如果没有美国的支持，阿富汗军队将崩溃。这暴露了拜登政府的不诚实。
+编辑发表：子萍
 
-此外，蓬佩奥称拜登和阿富汗前总统阿什拉夫加尼就阿富汗军事准备问题的通话是“不可原谅的”。
-[https://twitter.com/mikepompeo/status/1434220024932229128?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1434220024932229128%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.oann.com%2Fpompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing%2F](https://twitter.com/mikepompeo/status/1434220024932229128?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1434220024932229128%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.oann.com%2Fpompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing%2F)
+**自从中共2019年6月入侵香港以来，曾经的东方之珠一直笼罩在白色恐怖中**，中共对香港民主运动人士的迫害及秋后算账从未停止过，数万人被监控与逮捕。
 
-当拜登政府说“筹码”时，这是一个暗语，表示美国的钱流向了这些屠夫（塔利班）。拜登向世界发出信号，他愿意把这些美国人买回来。其实并不一定是这样。
+中共在89-64 天安门大屠杀事件后，**成立于1989年的香港支联会一直是每年香港维园烛光守夜活动的组织者以及六四纪念馆的创建者。**今年8月25日，港共警方国安处去信支联会，要求就《香港国安法》43条附表5提供资料。 9月5日，支联会又被警方国安处指称为“外国代理人”，要求支联会最迟9月7日提供自成立以来所有成员名单、会议纪要、财务记录等资料，但支联会强烈否认是“外国代理人”并公然拒绝向警方国安处提交任何资料，质疑警方滥权及不合理要求。
 
-蓬佩奥在接受采访时说：“拜登知道真相，他知道阿富汗军队仍然需要美国的持续支持。 情报界和我们的军事领导人在我们整整四年中都非常清楚，尽管我们为他们做了一切，但他们继续需要我们的支持。”
+**昨天 （9月8日），港共黒警以国家安全法“不提供信息”为由逮捕了该联盟副主席周恒东和其他三名领导人。今天下午又强行突袭了六四纪念馆，欲对香港民主运动赶尽杀绝。** 对于勇敢站出来反抗中共入侵香港，并且站出来抵制中共的香港年轻一代， 他们不跪求中共犯罪组织。在香港民主自由被剥夺的同时，这些正义的香港同胞很多依然留守在香港继续生活在香港，以抗衡中共对香港的极权统治。
 
-评语：蓬佩奥周二（31日）表示，在前总统特朗普 的领导下，美国正准备有序、“基于满足条件”从阿富汗撤军，可惜美国人民于去年 11 月让拜登上台了。特朗普近期也在公开场合多次表示拜登的处理方式不妥当，更是不留情面地对拜登一顿炮轰，直言这是美国历史上“最大的外交政策耻辱”。如果特朗普总统还在职，会不会阿富汗仍在政府军控制下，我们不得而知。但我们深知，如果没有爆料革命、没有郭文贵先生的爆料和提前预警，世界将是无尽的黑暗。
+**新中国联邦与爆料革命的发起人郭文贵先生为香港同胞准备了50万新中国联护照，后续还另有50万份新中国联邦护照为他们准备**。新中国联邦人与香港不畏惧中共邪恶的同胞站在一起，**香港是我们的圣城！东方的民主自由灯塔！**
 
-**原文连接**: [https://www.oann.com/pompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing/](https://www.oann.com/pompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing/)
+2021.09.09
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Raul
-评论：洛杉矶盘古农场 – 钢铁儿
-编辑：洛杉矶盘古农场 – 心照
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+文章参考源： 新闻24：[https://www.news24.com/news24/World/News/hong-kong-police-raid-shuttered-tiananmen-museum-20210909#:~:text=Hong%20Kong%27s%20June%204th%20Museum,due%20to%20a%20licensing%20investigation](https://www.news24.com/news24/World/News/hong-kong-police-raid-shuttered-tiananmen-museum-20210909#:~:text=Hong%20Kong%27s%20June%204th%20Museum,due%20to%20a%20licensing%20investigation).
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[News24 Hong Kong police raid shuttered Tiananmen museum](https://www.news24.com/news24/World/News/hong-kong-police-raid-shuttered-tiananmen-museum-20210909)
 
+
+
+**【免责声明】**
+
+文中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+### 欢迎战友加入旧金山金喜农场
+
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+![This image has an empty alt attribute; its file name is 0836A88B-A2CA-462A-B5F8-28C25D6CFB59.png](https://assets.gnews.org/wp-content/uploads/2021/08/0836A88B-A2CA-462A-B5F8-28C25D6CFB59.png)
 0

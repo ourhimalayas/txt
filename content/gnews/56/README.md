@@ -2,42 +2,36 @@
 ---
 
 
-## 中共欲对香港民主运动赶尽杀绝
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1522812/)
+## 中共实验室冠状病毒研究的新细节出现
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522814/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/33-2-e1631226425861.jpg)
-#### 作者：北纬农夫
+**据《The Intercept》作者：逊莎朗·勒纳，玛拉·赫维斯坦达尔在2021 年 9 月 7 日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/axg4x-99g49.jpg)2021年2月3日，中国中部湖北省武汉市的武汉病毒研究所。
+照片：赫克托雷塔马尔/法新社通过盖蒂图片社
+新发布的文件详细介绍了，美国资助的中共国武汉病毒研究所对几种冠状病毒的研究。
+The Intercept获得了900多页文件，详细介绍了与生态健康联盟有关的项目，生态健康联盟是一家总部位于美国的卫生组织，使用了联邦资金资助中共实验室的蝙蝠冠状病毒研究。
 
-编辑发表：子萍
+大量文件包括，由美国国家过敏和传染病研究所资助的两项先前未发表的赠款提案，以及与生态健康联盟研究相关的项目更新。这些文件是与The Intercept 对美国国立卫生研究院正在进行的《信息自由法》诉讼有关的。 The Intercept 正在向公众提供完整的文件。
 
-**自从中共2019年6月入侵香港以来，曾经的东方之珠一直笼罩在白色恐怖中**，中共对香港民主运动人士的迫害及秋后算账从未停止过，数万人被监控与逮捕。
+美国知情权执行董事加里·拉斯金说这可能是导致当前大流行的高风险研究的路线图。
 
-中共在89-64 天安门大屠杀事件后，**成立于1989年的香港支联会一直是每年香港维园烛光守夜活动的组织者以及六四纪念馆的创建者。**今年8月25日，港共警方国安处去信支联会，要求就《香港国安法》43条附表5提供资料。 9月5日，支联会又被警方国安处指称为“外国代理人”，要求支联会最迟9月7日提供自成立以来所有成员名单、会议纪要、财务记录等资料，但支联会强烈否认是“外国代理人”并公然拒绝向警方国安处提交任何资料，质疑警方滥权及不合理要求。
+其中一项名为“了解蝙蝠冠状病毒出现的风险”的资助，概述了由生态健康联盟主席彼得·达扎克 (Peter Daszak) 主导的计划：筛查数千个蝙蝠样本中的新型冠状病毒，这个研究涉及筛选与活体动物打交道的人。这些文件包含有关武汉研究的几个关键细节，包括人源化小鼠的关键实验工作是在武汉大学动物实验中心的生物安全3级实验室进行的，而不是像以前那样假定在武汉病毒研究所进行的。
 
-**昨天 （9月8日），港共黒警以国家安全法“不提供信息”为由逮捕了该联盟副主席周恒东和其他三名领导人。今天下午又强行突袭了六四纪念馆，欲对香港民主运动赶尽杀绝。** 对于勇敢站出来反抗中共入侵香港，并且站出来抵制中共的香港年轻一代， 他们不跪求中共犯罪组织。在香港民主自由被剥夺的同时，这些正义的香港同胞很多依然留守在香港继续生活在香港，以抗衡中共对香港的极权统治。
+生态健康联盟为蝙蝠冠状病毒研究提供了总计310万美元的资金，其中599,000 美元被武汉病毒研究所用于识别和改变可能感染人类的蝙蝠冠状病毒。罗格斯大学分子生物学家理查德·埃布赖特 (Richard Ebright) 表示，这些文件包含有关在武汉进行的研究的关键信息，包括有关新病毒产生的信息。 “他们构建的病毒经过测试，可以感染老鼠。这些老鼠被设计成在细胞上显示人类类型的受体。”埃布赖特在审查文件后写信给 The Intercept。
 
-**新中国联邦与爆料革命的发起人郭文贵先生为香港同胞准备了50万新中国联护照，后续还另有50万份新中国联邦护照为他们准备**。新中国联邦人与香港不畏惧中共邪恶的同胞站在一起，**香港是我们的圣城！东方的民主自由灯塔！**
+埃布赖特还表示，文件明确表明，两种不同类型的新型冠状病毒能够感染人源化小鼠。 “当他们在研究与 SARS 相关的冠状病毒时，他们同时对与 MERS 相关的冠状病毒进行了平行项目研究。”
 
-2021.09.09
+第二项资助是，“了解东南亚新兴传染病热点地区人畜共患病毒出现的风险”，于 2020 年 8 月获得。该资助持续至 2025 年。这份写于2019年的提案显得很有先见之明，侧重于在“突发传染病”爆发时在亚洲扩大规模和资源部署，并将亚洲称为“这个最热的EID热点地区”。
 
-文章参考源： 新闻24：[https://www.news24.com/news24/World/News/hong-kong-police-raid-shuttered-tiananmen-museum-20210909#:~:text=Hong%20Kong%27s%20June%204th%20Museum,due%20to%20a%20licensing%20investigation](https://www.news24.com/news24/World/News/hong-kong-police-raid-shuttered-tiananmen-museum-20210909#:~:text=Hong%20Kong%27s%20June%204th%20Museum,due%20to%20a%20licensing%20investigation).
+**原文链接：**[https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)
 
-[News24 Hong Kong police raid shuttered Tiananmen museum](https://www.news24.com/news24/World/News/hong-kong-police-raid-shuttered-tiananmen-museum-20210909)
+翻译：洛杉矶盘古农场 — 蓝精灵
+翻译：洛杉矶盘古农场 — Mike Li
+编辑：洛杉矶盘古农场 — 心照
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-**【免责声明】**
-
-文中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-### 欢迎战友加入旧金山金喜农场
-
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-![This image has an empty alt attribute; its file name is 0836A88B-A2CA-462A-B5F8-28C25D6CFB59.png](https://assets.gnews.org/wp-content/uploads/2021/08/0836A88B-A2CA-462A-B5F8-28C25D6CFB59.png)
 0

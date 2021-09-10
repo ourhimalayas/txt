@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/10/2021 1:01 AM (UTC)`
+
+2021年9月9日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>September 9，2021 Rule of Law Foundation and Society donors messages collection<br/>Rule of Law Foundation and Society appreciate all of our supporters and donors!
+![img](https://media.gettr.com/group31/getter/2021/09/10/00/addba06b-ede5-b67d-ca74-05baad5f863c/out.jpg)
+
+---
+
 `@miles 9/10/2021 12:49 AM (UTC)`
 
 9/9/2021 Miles Guo’s GETTR: The international dark forces have controlled everything in the CCP and therefore controls the whole China! Why hasn’t any Western media exposed any kind of crimes committed by the CCP’s old kleptocrats? Because they are covered up by the dark forces<br/><br/>9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着
@@ -300,13 +307,6 @@ Clues of COVID-19 to be recognized as bioweapon regarding Wuhan<br/><br/>关于�
 
 9月5号：尊敬的战友们好．几周来的大直播，让大家获得了海量的信息．更加了解了共产党的腐败……和在全世界的渗透，冠状病毒和疫苗的真相。<br/>明天我们没有直播。<br/>星期二上午9:00继续开始大直播，不再聊更多的严肃的话题，聊聊艺术和中国共产党之间的政治艺术腐败的关系……🤣🤣🤣💥💥💥😅😅😅💪💪💪💪💪
 ![img](https://media.gettr.com/group45/getter/2021/09/06/02/04c51eb9-c724-8606-0b37-927896ca6469/ab8ae811691a20c2c5f9c460e90a8d96.jpg)
-
----
-
-`@miles 9/5/2021 10:02 PM (UTC)`
-
-9/5/2021 Miles Guo：Peter Ma plays with both the CCP and the entire world, and he is among the few in this planet that can provide 100 billion USD in cash at any time. He was the most powerful person that was the first to lay out the plans of the COVID vaccines! Without the help of Xi family and the American bigshots, Lufax would not be able to be listed in the U.S. so quickly<br/><br/>9/5/2021 文贵直播：马明哲玩得动中共和全世界，他是全球屈指可数的能随时拿出1000亿美元现金的人之一，布局中共病毒疫苗最早和最厉害的也是他！陆金所能在美国以神速上市靠的是习家和美国大佬！<br/>
-![img](https://media.gettr.com/group27/getter/2021/09/05/21/e8bb4a38-2b61-3e5a-4efa-43c0056aa153/out.jpg)
 
 ---
 
