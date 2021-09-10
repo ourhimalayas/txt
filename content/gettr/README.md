@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/10/2021 11:38 PM (UTC)`
+
+9/10/2021 Miles Guo ：Who is protecting the Jiang family and the Zhu family? Why do Bloomberg and Soros endorse Wang Qishan rather than Xi Jinping? Which one of the CCP’s old kleptocrats is in the same boat with the dark forces?<br/><br/>9/10/2021 文贵直播：是谁在保护着江家和朱家？为什么布隆伯格和索罗斯捧的是王岐山而非习近平？共产党老杂毛中谁是跟黑暗势力穿一条裤子的？
+![img](https://media.gettr.com/group2/getter/2021/09/10/23/604f77b6-6d93-e66c-2508-fd41879d7c80/out.jpg)
+
+---
+
 `@miles 9/10/2021 7:04 PM (UTC)`
 
 G Fashion 与意大利团队和生意伙伴共进晚餐. 在不久的将来会有非常独特，高质量的产品推出，让我们拭目以待🙏🙏🔥🔥🔥❤️❤️❤️ @DDNYC #GFashion 
@@ -302,13 +309,6 @@ I have no delusions about winning a Nobel Prize for the tremendous success that 
 
 9月6号：尊敬的战友们好，你们传播CC P病毒疫苗的解药了吗？你们健身了吗？一切都已经开始！
 ![img](https://media.gettr.com/group17/getter/2021/09/06/13/254f3e6c-3fff-7e0a-80b5-390920a56287/out.jpg)
-
----
-
-`@miles 9/6/2021 1:47 PM (UTC)`
-
-玩了很久……感觉浪费太多时间了……🙈🙈🙈❤️❤️❤️
-![img](https://media.gettr.com/group31/getter/2021/09/04/23/05d747f2-0190-7b0e-9a4f-b61ce213f813/6de90c35ed6c9ba54f6308096890c563.jpg)
 
 ---
 
