@@ -2,31 +2,19 @@
 ---
 
 
-## 只要中共不亡 黑暗还会再来
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1522302/)
+## 秘翻在线: 文化市场的大疯狂标志着什么
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1522581/)
 
-作者：香草山翻译部
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-sc-2.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-1-1.jpg)图片来源：www.theverge.com
+据The Verge网站9月9日报道，苏富比刚刚以2440万美元拍卖出一串无聊猿NFT。苏富比的此次拍卖来自尤佳实验室， 这是一组来自“无聊猿游艇俱乐部中近10000只猿的随机选择。它们以水手帽、眼罩、骨项链、耳环和其他配件的独特排列来装扮。拍卖价以1200万起价。
 
-视频参看：2021.09.09早GTV新闻访谈
+NFT是一种可收藏的数字资产，是以太坊区块链的一部分。它的价值是以一种加密货币和一种艺术或文化形式所显示。就像艺术被视为一种保值投资一样。但是与区块链中的标准硬币不同，NFT 是独一无二的，不能进行同类交换（因此，不可替代）。NFT 的类型多种多样，任何可以以数字存储并被认为具有价值的独特事物。 从本质上讲，它们就像任何其他物理收藏家的物品一样，但不是收到画布上的油画挂在墙上，而是以 JPG 、MP3、GIF等形式呈现。因其具有价值，所以它们可以像其他类型的艺术品一样被买卖——而且，就像实物艺术品一样，其价值在很大程度上取决于市场和需求。像苏富比和佳士得这样的数百年历史的拍卖行已经看到了推广这种艺术新形式的价值，并开始主办一些高调的NFT拍卖会，从中获取10%的佣金。
 
-[https://gtv.org/video/id=6139fe4abe28c76ac9449364](https://gtv.org/video/id=6139fe4abe28c76ac9449364)
+这桩疯狂的交易，被西方媒体认作为是那些无聊的以太币持有者的一种洗钱方式。郭先生刚刚在两天前的大直播中指出，在文化交易市场存在着大量的权钱交易，全世界的艺术界比黑社会还要黑暗。 在数字货币将要走上世界舞台之时，一种以艺术为名的NFT逢时而生。它会是黑暗势力来操作社会的又一种工具吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27.png)
-
-编辑/校对/发稿：香草山翻译部 – mi迷hu糊
-
-**更多资讯，更多关注**
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[Bored Ape Yacht Club auction sells for millions – The Verge](https://www.theverge.com/2021/9/9/22664469/bored-ape-yacht-club-sothebys-auction-amount)
 
 0

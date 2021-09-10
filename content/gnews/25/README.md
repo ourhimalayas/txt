@@ -2,35 +2,35 @@
 ---
 
 
-## 秘翻在线：阿斯利康疫苗最新副作用：格林巴利症候群
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1522991/)
+## 加拿大人民在觉醒
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1523125/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-21.png)
-图片来自网络
+作者：香草山健身部 – 格格
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+9月8日下午1点，在加拿大温哥华市政府门前，由本地WeAreAllEssential(小业主协会)组织的反对强制打疫苗和反对疫苗护照的抗议活动，我们温哥华战友也自发聚集在Vancouver City Hall，加入到抗议的队伍中。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263366287933451/image0.jpg)
+在抗议现场，不同族裔的抗议者举着“COVID-19 ,Survival Rate 99.9%,Why risk an experimental vaccine?”( COVID-19，存活率99.9%，为什么要冒着危险试验疫苗)，“NO VACCINE COERCION”等标语牌子，表达自己的诉求。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263367948869672/image3.jpg)
+咱们温哥华战友，有的举着我们新中国联邦的国旗，有的举着“CCP MADE COVID -19 BIOCHEMICAL WEAPON”和“REJECT THE TYRANNY OF VACCINE  PASSWORDS”标语牌，有的在现场发放关于病毒疫苗的宣传单，还有多位抗议者上台发表演讲。新中国联邦温哥华扬帆农场的双鱼侠战友上台演讲时，揭露病毒来自于中共军方实验室，病毒疫苗对人们生活的影响，新中国联邦在郭文贵先生带领下坚持传播病毒疫苗真相，唯有消灭中共，世界才有真正的和平等等。双鱼侠战友的精彩演讲受到大家的欢迎。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263366749290536/image1.jpg)
+作为新中国联邦一员，响应郭先生的号召，我自愿参加了此次抗议集会，向过路市民发放宣传单，介绍咱们新中国联邦主张正道主义，揭露CCP病毒疫苗真相。
+![](https://cdn.discordapp.com/attachments/717126831891021825/885263367365881906/image2.jpg)
+亲历了这次活动，让我感触最深的是，有许多市民是主动向我要宣传单，与去年病毒肆孽期间，我和战友上街发病毒真相传单时，路人市民躲闪拒绝的情景形成鲜明对比，明显感觉到加拿大人开始觉醒了。
 
-据台湾《中央社》9月9日报道，针对英国阿斯利康（AstraZeneca，AZ）疫苗可能产生的副作用，欧盟药品管理局（EMA）9月8日在定期安全更新上增列了极罕见的神经病变“格林巴利症候群”（GBS）。
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
 
-欧盟药品管理局表示，截止7月31日前，全球各地共接种了5亿9200万剂阿斯利康疫苗（Vaxzevria），其中通报出现了833例“格林巴利症候群”。阿斯利康疫苗与该疾病间的因果关系“至少有合理的可能性”。
+**校对/发稿：童谣**
 
-欧盟药品管理局在副作用分类中，将上述副作用列为“非常罕见”，即发生频率最低，并强调阿斯利康疫苗益处大于风险。
+**更多资讯，更多关注**
 
-此前，美国食品及药物管理局（FDA）也曾对强生集团（J&J）生产的COVID-19（中共病毒）疫苗加注警语，警告这支疫苗可能导致“格林巴利症候群”的副作用。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-今年3月，因为传出阿斯利康疫苗可能导致罕见的凝血副作用，该疫苗一度在许多欧盟国家中被暂停使用。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-阿斯利康公司的疫苗使用的是腺病毒载体，该疫苗目前尚未获得美国食品和药物管理局的紧急授权。而使用类似技术的强生疫苗在今年2月已获得FDA授权。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-据了解，“格林巴利症候群”是一种身体免疫系统攻击神经的疾病，有可能导致瘫痪。大多数患有这种疾病的人必须住院接受治疗，并且目前该疾病没有已知的治疗方法。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-在欧盟药品管理局公布这一消息后，阿斯利康公司尚未对此作出回应，但其公司的股票下跌了2.23%。
-
-自疫苗接种计划推出以来，越来越多的疫苗导致的严重副作用开始逐步显现，并越演愈烈。不但如此，疫苗不仅未能起到防护作用，反而进一步加速了中共病毒变种的出现。疫情未能得到缓解，在很多国家反而变得更加严重。这一切完全验证了爆料革命一再向世界发出的有关疫苗危害的警示。
-
-在疫苗带来巨大危害的事实面前，世界各国仍然还在大力推行疫苗接种，还在声称什么益处大于风险，令人出离愤怒。不过，现在已有越来越多的民众开始醒来，开始认识到疫苗的危害，开始反对接种疫苗。多个国家的民众都在进行反对疫苗大游行，惟望这样的行动能够愈发声势浩大，只有这样才有可能尽快阻止疫苗接种。
-
-注：本文仅代表作者观点
-
-**新闻链接**：[https://www.cna.com.tw/news/firstnews/202109090004.aspx](https://www.cna.com.tw/news/firstnews/202109090004.aspx)
-
-0
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
++1

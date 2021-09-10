@@ -2,25 +2,31 @@
 ---
 
 
-## 澳洲天主教神父呼吁政府给予个人选择不接种疫苗的自由
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1522867/)
+## 澳洲国民银行修改银行标志以促销疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1523062/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/09/天主教.png)图片来自网络
-澳大利亚天主教医学会正在向总理和州卫生部长施加压力，要求政府和医疗机构“尊重和保护个人意愿”和“个人拒绝接种的合法性”。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/47728169-0-image-a-20_1631230689990.jpg)图片来源：Nation.lk
+**整理报道：**翼族
 
-神父Paschal Corby 博士说“任何人都不应该被强迫接受任何疫苗”，”作为一项规则，接种疫苗不是一项道德方面的义务”。
+NAB（澳洲国民银行）是澳大利亚四大银行之一，该银行计划于本周五开始发起一项营销活动，并将其银行的标识从NAB更改为JAB【注：Jab在英文中有打针的意思】，以帮助提高疫苗接种率。
 
-塔斯马尼亚大主教 Julian Porteous 本周要求州政府澄清其立场，但尚未收到回复。他说，他有义务尊重那些不愿意接种疫苗的神职人员的决定。大主教Porteous 自己已经接种过两针疫苗。他目前正在与塔斯马尼亚政府进行商谈，看能否用快速抗原检测来代替疫苗接种。
+这不是NAB银行第一次发声鼓励人们接种疫苗。8 月份，NAB银行就曾宣布正在与澳大利亚卫生部及疫苗提供者合作，为其员工接种疫苗。
 
-政府规定，从 9 月 17 日起，在养老院工作的人员必须至少预订第一剂疫苗，这也包括进入老年护理机构服务的神职人员。
+NAB银行首席执行官罗斯·麦克尤恩（Ross McEwan）认为政府的工作重心应放在疫苗护照上，将其作为解除封锁政策的前提。
 
-该州的天主教徒加入了一项全国性的呼吁，要求澄清对神职人员的强制接种的豁免。
+麦克尤恩在众议院经济常务委员会上发表讲话时表示，当澳大利亚达到80%的疫苗接种目标前，澳大利亚必须要有一个系统的准备。他认为，澳大利亚人在国家11月中下旬左右达到这个难以确定的目标前，应该了解更多关于限制取消的详细信息。
 
-(文章内容仅代表作者观点)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-[原文链接](https://www.themercury.com.au/news/tasmania/extremley-odd-call-for-catholic-priests-to-be-exempt-from-covid19-vaccination/news-story/2a57cb8aff803339b69c08b21d0ecee6?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)
+**参考链接：**[NAB changes logo to JAB to encourage vaccination](https://www.news.com.au/finance/business/nab-changes-logo-to-jab-to-encourage-vaccination/news-story/80e3daee07152d5aaa385caa14405531)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
 +1

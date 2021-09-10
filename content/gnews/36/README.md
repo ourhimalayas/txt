@@ -2,53 +2,33 @@
 ---
 
 
-## 中共国经济崩溃的开始：恒大面临破产
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1522686/)
+## 一份泄露的文件暴露了中国共产党对英国各界的大规模渗透！
+` 滴水穿石` [轉載自GNews](https://gnews.org/zh-hans/1522810/)
 
-作者：纽约香草山农场 – 四季
+#### 文章新闻视频：[点击进入](https://gtv.org/video/id=613a7767be28c76ac944b5ff)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-09-3.30.30-PM-edited.png)截自网络 
+今天，一份泄露的文件暴露了中国共产党对英国各界的的渗透无处不在，包括英国公司阿斯利康、劳斯莱斯、汇丰银行和捷豹路虎，以及英国在全球各地的大使馆及公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+这份泄露的文件在《星期日邮报》传出，泄露的 195 万注册中共党员数据库揭示出 中共北京的邪恶影响，中共现在几乎全方位渗透到英国人生活的每个角落，包括国防、公司、银行和制药巨头。
 
+最令人震惊的是，其中一些对中共共产党的 宣誓效忠的“保守党的秘密，忠于党，努力工作，终生为共产主义而战……永不背叛党”的庄严誓言.
 
+据了解这些中共的忠诚党员已经在全球的英国领事馆及公司等找到了工作，有的甚至工作多年，更多的中共忠诚党员在英国的各大学、一些重要的科技公怀与团体工作。
 
+该数据库最初是在加密即时通讯应用 Telegram 上泄露的，有专家用软件对材料的详细分析显示，制药巨头辉瑞和阿斯利康——都参与了冠状病毒疫苗的开发——总共雇佣了 123 名中国共产党的忠实拥护者。分析显示，空客、波音和劳斯莱斯等拥有国防工业利益的公司雇佣了数百名中共党员。
 
+前保守党领袖伊恩·邓肯·史密斯 (Iain Duncan Smith) 今天在《星期日邮报》上写道：“这项调查证明，中国共产党成员现在遍布全球，成员为一些世界上最重要的跨国公司、学术机构工作，以及在我们英国的外交服务。
 
-据[《门道专家》（The Gateway Pundit）](https://www.thegatewaypundit.com/2021/09/exclusive-beginning-chinas-economic-collapse-largest-issuer-chinas-commercial-paper-evergrande-facing-bankruptcy-entire-world-economy-likely-impacted/)网站9月9日报道，陷入困境的中共国房地产巨头恒大，其股价在其两天内被两次下调信用评级后再次下滑。该公司因超过3000亿美元的未偿债务而陷入严重的财务困境，这让人们担心这家全球负债最多的公司即将违约，面临破产。
+“政府现在必须采取行动，将任何共产党员开除出我们在中国各地的领事。他们既可以为英国服务，也可以为中国共产党服务。他们不能两者兼得。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/928-1-Evergrande-in-Hong-Kong.jpg)图片来源：The Gateway Pundit
+在对材料进行认证后，在数据安全分析师 Internet 2.0 的帮助下，IPAC 将数据库传递给了全球四家媒体机构.
 
-恒大在香港上市后经过多年的借贷，已经积累了总额超过3000亿美元的债务，成为世界上负债最多的公司之一。
+此份报告像一颗新闻核弹，今天在全球开炸！ 但凡了解中共邪恶历史与其极权统治中国的群体来说，已经是旧闻。我们将继续跟踪报道。
 
-其股价今年已经累计下跌了75%。周四上午，股价下跌了近10%，至3.35港元，低于该公司2009年在香港挂牌时的上市价格。同一天，该公司的一种债券在价格暴跌20%后被深圳证券交易所暂停交易。
+撰稿：滴水穿石
 
-按照中共官方媒体的披露，今年以来已经有274家房地产公司发布破产公告，平均每天一家。
+2021年9月9日
 
-可以预见的是中共国房地产泡沫即将破裂，其经济也将随之崩塌。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
-
-
+参考源：[点击进入](https://www.dailymail.co.uk/news/article-9046783/Leaked-files-expose-mass-infiltration-UK-firms-Chinese-Communist-Party.html)
 
 0

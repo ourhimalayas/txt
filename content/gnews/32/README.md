@@ -2,30 +2,31 @@
 ---
 
 
-## 腾讯和网易被约谈后市值蒸发600亿美元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1522916/)
+## 澳洲国民银行修改银行标志以促销疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1523062/)
 
-2021年9月9日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/090926-1.jpg)图片：网络资源
-编辑摘要：
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/47728169-0-image-a-20_1631230689990.jpg)图片来源：Nation.lk
+**整理报道：**翼族
 
-据彭博社9月9日报导，网络游戏巨头腾讯和网易股价大幅下挫，市值蒸发600多亿美元。这两家公司随后遭中共监管机构约谈，向他们披露暂停游戏审批。
+NAB（澳洲国民银行）是澳大利亚四大银行之一，该银行计划于本周五开始发起一项营销活动，并将其银行的标识从NAB更改为JAB【注：Jab在英文中有打针的意思】，以帮助提高疫苗接种率。
 
-过去10个月，中共政府针对电商、网约车、校外辅导到社交媒体等多个行业展开一系列监管，投资者已成惊弓之鸟。暂停新游戏审批预示着中共监管政策的升级，将对开发商业务的长期增长造成打击。从叫停蚂蚁集团，到对美团和滴滴全球展开调查，北京遏制互联网巨头的行动已接近第11个月。
+这不是NAB银行第一次发声鼓励人们接种疫苗。8 月份，NAB银行就曾宣布正在与澳大利亚卫生部及疫苗提供者合作，为其员工接种疫苗。
 
-翻手为云覆手为雨，中共随心所欲玩转股市，投资中共股市，血本无归的危险性很高。
+NAB银行首席执行官罗斯·麦克尤恩（Ross McEwan）认为政府的工作重心应放在疫苗护照上，将其作为解除封锁政策的前提。
 
-[新闻参考链接](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210909-%E8%85%BE%E8%AE%AF%E5%92%8C%E7%BD%91%E6%98%93%E8%A2%AB%E7%BA%A6%E8%B0%88%E5%90%8E%E5%B8%82%E5%80%BC%E8%92%B8%E5%8F%91600%E4%BA%BF%E7%BE%8E%E5%85%83)
+麦克尤恩在众议院经济常务委员会上发表讲话时表示，当澳大利亚达到80%的疫苗接种目标前，澳大利亚必须要有一个系统的准备。他认为，澳大利亚人在国家11月中下旬左右达到这个难以确定的目标前，应该了解更多关于限制取消的详细信息。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考链接：**[NAB changes logo to JAB to encourage vaccination](https://www.news.com.au/finance/business/nab-changes-logo-to-jab-to-encourage-vaccination/news-story/80e3daee07152d5aaa385caa14405531)
 
-编辑：【英国伦敦喜庄园编辑部】
+*编辑/发布：翼族*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-
-0
++1
