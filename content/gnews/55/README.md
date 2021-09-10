@@ -2,30 +2,32 @@
 ---
 
 
-## 蓬佩奥：拜登知道若无美军支持，阿富汗将沦陷于塔利班
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522808/)
+## 中共实验室冠状病毒研究的新细节出现
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522814/)
 
-**据《一美新闻网》2021年9月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a61at-1rt89-2.jpg)华盛顿特区 – 4 月 21 日：前国务卿迈克·蓬佩奥 (Mike Pompeo) 于 2021 年 4 月 21 日在华盛顿特区与共和党研究委员会成员就伊朗问题向媒体发表讲话（摄影：Joshua Roberts/Getty Images）
-前国务卿迈克·蓬佩奥表示，在溷乱的阿富汗撤军期间，美国人没有任何筹码。在周五的一次采访中，蓬佩奥表示，当我们持有巴格拉姆空军基地并在地面部署部队时，美国拥有实际影响力。然而，这种影响力已不复存在。
+**据《The Intercept》作者：逊莎朗·勒纳，玛拉·赫维斯坦达尔在2021 年 9 月 7 日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/axg4x-99g49.jpg)2021年2月3日，中国中部湖北省武汉市的武汉病毒研究所。
+照片：赫克托雷塔马尔/法新社通过盖蒂图片社
+新发布的文件详细介绍了，美国资助的中共国武汉病毒研究所对几种冠状病毒的研究。
+The Intercept获得了900多页文件，详细介绍了与生态健康联盟有关的项目，生态健康联盟是一家总部位于美国的卫生组织，使用了联邦资金资助中共实验室的蝙蝠冠状病毒研究。
 
-他补充说，他相信当拜登政府官员谈论筹码时，他们实际上指的是钱，这意味着美国将付钱给塔利班，让剩余的美国人离开。蓬佩奥还表示，在与阿富汗领导人的对话中，拜登被告知，如果没有美国的支持，阿富汗军队将崩溃。这暴露了拜登政府的不诚实。
+大量文件包括，由美国国家过敏和传染病研究所资助的两项先前未发表的赠款提案，以及与生态健康联盟研究相关的项目更新。这些文件是与The Intercept 对美国国立卫生研究院正在进行的《信息自由法》诉讼有关的。 The Intercept 正在向公众提供完整的文件。
 
-此外，蓬佩奥称拜登和阿富汗前总统阿什拉夫加尼就阿富汗军事准备问题的通话是“不可原谅的”。
-[https://twitter.com/mikepompeo/status/1434220024932229128?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1434220024932229128%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.oann.com%2Fpompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing%2F](https://twitter.com/mikepompeo/status/1434220024932229128?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1434220024932229128%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.oann.com%2Fpompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing%2F)
+美国知情权执行董事加里·拉斯金说这可能是导致当前大流行的高风险研究的路线图。
 
-当拜登政府说“筹码”时，这是一个暗语，表示美国的钱流向了这些屠夫（塔利班）。拜登向世界发出信号，他愿意把这些美国人买回来。其实并不一定是这样。
+其中一项名为“了解蝙蝠冠状病毒出现的风险”的资助，概述了由生态健康联盟主席彼得·达扎克 (Peter Daszak) 主导的计划：筛查数千个蝙蝠样本中的新型冠状病毒，这个研究涉及筛选与活体动物打交道的人。这些文件包含有关武汉研究的几个关键细节，包括人源化小鼠的关键实验工作是在武汉大学动物实验中心的生物安全3级实验室进行的，而不是像以前那样假定在武汉病毒研究所进行的。
 
-蓬佩奥在接受采访时说：“拜登知道真相，他知道阿富汗军队仍然需要美国的持续支持。 情报界和我们的军事领导人在我们整整四年中都非常清楚，尽管我们为他们做了一切，但他们继续需要我们的支持。”
+生态健康联盟为蝙蝠冠状病毒研究提供了总计310万美元的资金，其中599,000 美元被武汉病毒研究所用于识别和改变可能感染人类的蝙蝠冠状病毒。罗格斯大学分子生物学家理查德·埃布赖特 (Richard Ebright) 表示，这些文件包含有关在武汉进行的研究的关键信息，包括有关新病毒产生的信息。 “他们构建的病毒经过测试，可以感染老鼠。这些老鼠被设计成在细胞上显示人类类型的受体。”埃布赖特在审查文件后写信给 The Intercept。
 
-评语：蓬佩奥周二（31日）表示，在前总统特朗普 的领导下，美国正准备有序、“基于满足条件”从阿富汗撤军，可惜美国人民于去年 11 月让拜登上台了。特朗普近期也在公开场合多次表示拜登的处理方式不妥当，更是不留情面地对拜登一顿炮轰，直言这是美国历史上“最大的外交政策耻辱”。如果特朗普总统还在职，会不会阿富汗仍在政府军控制下，我们不得而知。但我们深知，如果没有爆料革命、没有郭文贵先生的爆料和提前预警，世界将是无尽的黑暗。
+埃布赖特还表示，文件明确表明，两种不同类型的新型冠状病毒能够感染人源化小鼠。 “当他们在研究与 SARS 相关的冠状病毒时，他们同时对与 MERS 相关的冠状病毒进行了平行项目研究。”
 
-**原文连接**: [https://www.oann.com/pompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing/](https://www.oann.com/pompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing/)
+第二项资助是，“了解东南亚新兴传染病热点地区人畜共患病毒出现的风险”，于 2020 年 8 月获得。该资助持续至 2025 年。这份写于2019年的提案显得很有先见之明，侧重于在“突发传染病”爆发时在亚洲扩大规模和资源部署，并将亚洲称为“这个最热的EID热点地区”。
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Raul
-评论：洛杉矶盘古农场 – 钢铁儿
-编辑：洛杉矶盘古农场 – 心照
+**原文链接：**[https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)
+
+翻译：洛杉矶盘古农场 — 蓝精灵
+翻译：洛杉矶盘古农场 — Mike Li
+编辑：洛杉矶盘古农场 — 心照
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

@@ -2,36 +2,34 @@
 ---
 
 
-## 洛杉矶警察和消防员联合抵抗强制接种疫苗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1522754/)
+## 蓬佩奥：拜登知道若无美军支持，阿富汗将沦陷于塔利班
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1522808/)
 
-据TPM 的新闻记者詹姆斯·安东尼（James Anthony）2021 年 9 月 7 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture1-6.png)图片来自网络
-数百名洛杉矶地区的急救人员联合起来反对一项要求所有公职人员接种中共病毒疫苗的市政新法。
+**据《一美新闻网》2021年9月4日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a61at-1rt89-2.jpg)华盛顿特区 – 4 月 21 日：前国务卿迈克·蓬佩奥 (Mike Pompeo) 于 2021 年 4 月 21 日在华盛顿特区与共和党研究委员会成员就伊朗问题向媒体发表讲话（摄影：Joshua Roberts/Getty Images）
+前国务卿迈克·蓬佩奥表示，在溷乱的阿富汗撤军期间，美国人没有任何筹码。在周五的一次采访中，蓬佩奥表示，当我们持有巴格拉姆空军基地并在地面部署部队时，美国拥有实际影响力。然而，这种影响力已不复存在。
 
-据《洛杉矶时报》报道，类似于俄勒冈州急救人员最近采取的另一项行动，洛杉矶社区的消防员和警察团结起来，成立了两个联合的市政人员小组，以反对强制接种疫苗。
+他补充说，他相信当拜登政府官员谈论筹码时，他们实际上指的是钱，这意味着美国将付钱给塔利班，让剩余的美国人离开。蓬佩奥还表示，在与阿富汗领导人的对话中，拜登被告知，如果没有美国的支持，阿富汗军队将崩溃。这暴露了拜登政府的不诚实。
 
-据《每日电讯报》报道，在洛杉矶消防局的一名队长录制了一段广泛传播的，强烈反对针对公职人员的任何疫苗要求的视频后，一个名为“消防员为自由”的新建组织在其网站上发表声明说：“我们的目标是停止为所有城市雇员以及这个伟大国家的所有公民强制疫苗接种。我们希望在不受审查的情况下为人们带来知识和真相。”
+此外，蓬佩奥称拜登和阿富汗前总统阿什拉夫加尼就阿富汗军事准备问题的通话是“不可原谅的”。
+[https://twitter.com/mikepompeo/status/1434220024932229128?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1434220024932229128%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.oann.com%2Fpompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing%2F](https://twitter.com/mikepompeo/status/1434220024932229128?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1434220024932229128%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.oann.com%2Fpompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing%2F)
 
-该组织的既定目标写道，“作为 LAFD（洛杉矶市消防局）的利益相关者，我们的使命是维护作为拥有主权和自由的自然人类和美国公民的人权、宪法权、公民权和公民自由，” 并补充说，其成员相信“工作、自由意志、个人选择、医疗自由和同意的权利，而不受胁迫、报复、威胁、纪律处分或解雇。”
+当拜登政府说“筹码”时，这是一个暗语，表示美国的钱流向了这些屠夫（塔利班）。拜登向世界发出信号，他愿意把这些美国人买回来。其实并不一定是这样。
 
-该组织的使命宣称：“这不是打不打疫苗的问题，这不是左派对右派的政治问题。这是一个人权问题，我们希望你与我们站在一起，因为我们相信所有成员和公民都有选择的自由和自然权利。你的身体，你的选择。我的身体，我的选择。”
+蓬佩奥在接受采访时说：“拜登知道真相，他知道阿富汗军队仍然需要美国的持续支持。 情报界和我们的军事领导人在我们整整四年中都非常清楚，尽管我们为他们做了一切，但他们继续需要我们的支持。”
 
-“消防员为自由” 由大约 350 名洛杉矶市消防员组成，而许多洛杉矶警察局宣誓就职的警察及文职人员加入了“点名为自由”。
+评语：蓬佩奥周二（31日）表示，在前总统特朗普 的领导下，美国正准备有序、“基于满足条件”从阿富汗撤军，可惜美国人民于去年 11 月让拜登上台了。特朗普近期也在公开场合多次表示拜登的处理方式不妥当，更是不留情面地对拜登一顿炮轰，直言这是美国历史上“最大的外交政策耻辱”。如果特朗普总统还在职，会不会阿富汗仍在政府军控制下，我们不得而知。但我们深知，如果没有爆料革命、没有郭文贵先生的爆料和提前预警，世界将是无尽的黑暗。
 
-洛杉矶警察局警佐维罗妮卡·索塞多（ Veronica Saucedo ）告诉《洛杉矶时报》，“点名”有数百名成员，是“消防员为自由”的一个分支。 “我们支持个人权利、个人选择和管理我们自己的健康。”
+**原文连接**: [https://www.oann.com/pompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing/](https://www.oann.com/pompeo-biden-knew-afghanistan-would-fall-to-taliban-without-u-s-military-backing/)
 
-另一方面，洛杉矶市长埃里克·加塞蒂（ Eric Garcetti ）和市议会主席努里·马丁内斯（ Nury Martinez ）大力推动强制疫苗接种，并推进该政策立法，他们都是民主党人。洛杉矶市议会以 13-0 批准了该项新法律，并于上个月由市长签署。
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Raul
+评论：洛杉矶盘古农场 – 钢铁儿
+编辑：洛杉矶盘古农场 – 心照
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-该法令要求城市工作人员在 10 月初之前完全接种中共病毒疫苗，除非他们获得医疗或宗教豁免。《洛杉矶时报》报道称，如果有人在未获得经批准的豁免情况下拒绝接种疫苗，法律没有说明会发生什么，并补充说，有关该情况的细节正在城市领导人和各工会之间协商制定。
-
-马丁内斯在市长办公室发布的政府新闻稿中说：“我可以肯定地说，我们已经厌倦了为保护那些不想保护自己和不想接种疫苗的人而将我们的生命置于风险之中。为了要求洛杉矶人接种疫苗，作为领导人，我们要以洛杉矶市最大的雇主身份建立榜样。这是我们的职责。”
-
-【本文仅代表作者个人观点】
-
-原文链接：[https://thepostmillennial.com/la-police-firefighters-unite-to-fight-vaccine-mandate-for-city-workers?utm\_campaign=64474](https://thepostmillennial.com/la-police-firefighters-unite-to-fight-vaccine-mandate-for-city-workers?utm_campaign=64474)
-
-翻译:JS709 | 校对:Nick 
-*编辑&发布:黎明的光芒*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
