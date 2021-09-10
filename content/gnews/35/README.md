@@ -2,24 +2,22 @@
 ---
 
 
-## 拜登与习近平通话，设置“护栏”以确保“竞争不会演变成冲突”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524141/)
+## 13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524266/)
 
-作者：香草山农场-文扬四海
+作者：香草山教育部-有莫举名
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登与习近平通话，设置护栏以确保竞争不会演变成冲突.jpg)图片来源：网络
+![](https://assets.gnews.org/wp-content/uploads/2021/09/13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧.jpg)图片来源：网络
 
-据福克斯新闻9月9日报道，白宫周四晚间表示，拜登和习近平在当天的通话中讨论了有关利益交汇的领域，以及利益、价值观和观点分歧的问题。两位领导人讨论了两国确保竞争不会陷入冲突的责任。拜登明确表示此次讨论是“美国为负责任地管理美国和中国之间的竞争所做的持续努力的一部分”，并强调美国对印太地区和世界和平、稳定和繁荣的持久兴趣。
+美国国会能源和商务委员会(Energy and Commerce Committee)的13名议员，在致美国运输部长布蒂吉格(Pete Buttigieg)的一封信中表明，他们对未来华为生产的汽车零部件可能收集美国公民和美国交通基础设施的相关信息感到担心。
 
-据有关官员透露，此次通话由拜登发起，新华社通稿也强调习近平是“应约”同拜登通话。
+能源和商务委员会资深成员、众议员罗杰斯（Cathy McMorris Rodgers）等共和党人表示，美国绝不能允许中（共）国主导包括自动驾驶汽车在内的高科技行业。今年8月，有媒体报道称，拜登政府已经批准了价值数亿美元的许可申请，允许美国公司向被列入黑名单的华为出售汽车芯片。
 
-郭文贵先生不久前刚爆料拜登政府要和中共勾兑，拜登便急不可耐地主动和习近平通话，讨论一些无关痛痒的的话题，却只字未提病毒溯源等核心问题，反而还在和中共讨论两国如何竞争而不陷入冲突，还在幻想着持久的稳定和繁荣，而所谓采取新方法应对中共挑战只不过是自欺欺人。中共很清楚目前紧张的形势，企图利用桌子底下的交易、病毒疫苗和阿富汗问题为筹码和美国做交易。爆料革命会将一切黑暗勾兑曝光在阳光之下。
-
-参考链接：[Biden, in call with China’s Xi Jinping, sets ‘guardrails’ to ensure ‘competition does not veer into conflict’](https://www.foxnews.com/politics/biden-xi-china-guardrails.amp?__twitter_impression=true)
+参考链接：[美国共和党议员对美国政府批准向华为供应汽车芯片提出警告](https://www.reuters.com/article/idCNKBS2G605L?edition-redirect=ca)
 
 校对/发稿：雪梨
 
