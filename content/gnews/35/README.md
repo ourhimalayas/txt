@@ -2,31 +2,39 @@
 ---
 
 
-## 德国检察官突查财政部和司法部
-` AUJenny` [轉載自GNews](https://gnews.org/zh-hans/1524021/)
+## 拜登与习近平通话，设置“护栏”以确保“竞争不会演变成冲突”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524141/)
 
-翻译撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1172.jpg)网络截图
-周四，德国检察官突击检查了财政部和司法部，指控政府的反洗钱机构–金融情报部门（FIU）未能调查许多银行洗钱的情况。指控的核心是金融情报室没有将报告转交给警方和司法部门，然而，”目前还不清楚金融情报室是自己没有转发欺诈报告，还是被一个或两个部委的人指示这样做”。
+作者：香草山农场-文扬四海
 
-据信，有 “数以百万计 “自非洲的钱涉嫌洗钱，但德国的金融情报部门（隶属于财政部）却视而不见。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
-近几个月来金融犯罪监督机构一直受到审查。”DW写道：”该组织还被怀疑掩盖了德国金融技术公司Wirecard的欺诈行为，该公司去年以惊人的方式倒闭了。
 
-“这对德国来说是一个安全风险，”一位立法者Fabio De Masi在突击检查后说。”我们需要一个具有刑事专业知识的金融警察。德国是犯罪分子的天堂”。
 
-检察官表示，他们目前没有怀疑任何特定的雇员有犯罪行为，但一个关键的问题是，金融情报机构是否奉命无视银行对可疑交易的警告，还是因为无能和缺乏资源？
+![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登与习近平通话，设置护栏以确保竞争不会演变成冲突.jpg)图片来源：网络
 
-评论：德国现任财政部长肖尔茨(Olaf Scholz)是社会民主党的热门总理候选人。8月底，在距离今年德国大选投票日还剩下不到4周的时候，他在三名总理候选人实况辩论会上表现突出，民调显示肖尔茨支持率最高。他在老年选民中的支持率为46%，中年选民的支持率为49%，而在年轻选民中的支持率也高达31%。显然，这次突击检查将肖尔茨推上了舆论的风头浪尖，竞选之路也将更加艰难。
+据福克斯新闻9月9日报道，白宫周四晚间表示，拜登和习近平在当天的通话中讨论了有关利益交汇的领域，以及利益、价值观和观点分歧的问题。两位领导人讨论了两国确保竞争不会陷入冲突的责任。拜登明确表示此次讨论是“美国为负责任地管理美国和中国之间的竞争所做的持续努力的一部分”，并强调美国对印太地区和世界和平、稳定和繁荣的持久兴趣。
 
-七哥在近期的直播中提过，明年几个影响世界格局的大选，其中包括德国。
+据有关官员透露，此次通话由拜登发起，新华社通稿也强调习近平是“应约”同拜登通话。
 
-（本文纯属纯属个人观点，与Gnews无关）
+郭文贵先生不久前刚爆料拜登政府要和中共勾兑，拜登便急不可耐地主动和习近平通话，讨论一些无关痛痒的的话题，却只字未提病毒溯源等核心问题，反而还在和中共讨论两国如何竞争而不陷入冲突，还在幻想着持久的稳定和繁荣，而所谓采取新方法应对中共挑战只不过是自欺欺人。中共很清楚目前紧张的形势，企图利用桌子底下的交易、病毒疫苗和阿富汗问题为筹码和美国做交易。爆料革命会将一切黑暗勾兑曝光在阳光之下。
 
-[原文链接：](https://t.co/7RudgISn8L)
+参考链接：[Biden, in call with China’s Xi Jinping, sets ‘guardrails’ to ensure ‘competition does not veer into conflict’](https://www.foxnews.com/politics/biden-xi-china-guardrails.amp?__twitter_impression=true)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AUSTRALIA-1.jpeg)
+校对/发稿：雪梨
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

@@ -2,38 +2,37 @@
 ---
 
 
-## 世卫组织科学家可能因攻击伊维菌素和拒绝对患者进行有效治疗而面临死刑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524168/)
+## 13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524266/)
 
-2021年09月10日
+作者：香草山教育部-有莫举名
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/csm_39931_a72ab4b9b8-5.jpg)网络图片
-
-印度律师协会 (IBA) 对世界卫生组织 (WHO) 印度首席科学家斯瓦米纳坦（Swaminathan）提起的诉讼继续向前推进，指控她犯有谋杀和其他可能导致其终身监禁甚至死刑的罪行。
-
-今年5月份，斯瓦米纳坦因其在劝阻使用伊维菌素治疗武汉冠状病毒 (Covid-19) 方面做出的言行举动而被提起诉讼。
-
-斯瓦米纳坦被指控在伊维菌素问题上撒谎，以防止它落入病人之手。IBA 称斯瓦米纳坦关于伊维菌素的言行“极其不合理”，她声称的以救人为目的的说辞背后一定另有企图。
-
-IBA 援引印度刑法典第 302、304（第 2 段）和第 88 条针对斯瓦米纳坦的行径。 如果她被定罪，斯瓦米纳坦可能会因涉嫌犯罪而被处死。
-
-事实证明，斯瓦米纳坦的说法是错误的。 实际上，WHO已经在其“基本药物”列表中建议使用伊维菌素。伊维菌素的发明者也因开发该药物而于2015年获得诺贝尔医学奖。
-
-一般情况下，高级政府官员因执行本职公务而受到惩罚的情况极为罕见，因此斯瓦米纳坦一定是做了一些非常险恶的事情，才导致她今天成为被审查的目标。
-
-简评：印度律师协会 (IBA) 对世界卫生组织 (WHO) 印度首席科学家斯瓦米纳坦提起的诉讼对全世界的公权人物都有警示作用，不可为了个人利益而危害人类的根本利益。
-
-新闻链接：[https://pandemic.news/2021-09-09-who-scientist-death-penalty-attacking-ivermectin.html](https://pandemic.news/2021-09-09-who-scientist-death-penalty-attacking-ivermectin.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/13名共和党议员对拜登政府批准向华为提供汽车芯片表示担忧.jpg)图片来源：网络
+
+美国国会能源和商务委员会(Energy and Commerce Committee)的13名议员，在致美国运输部长布蒂吉格(Pete Buttigieg)的一封信中表明，他们对未来华为生产的汽车零部件可能收集美国公民和美国交通基础设施的相关信息感到担心。
+
+能源和商务委员会资深成员、众议员罗杰斯（Cathy McMorris Rodgers）等共和党人表示，美国绝不能允许中（共）国主导包括自动驾驶汽车在内的高科技行业。今年8月，有媒体报道称，拜登政府已经批准了价值数亿美元的许可申请，允许美国公司向被列入黑名单的华为出售汽车芯片。
+
+参考链接：[美国共和党议员对美国政府批准向华为供应汽车芯片提出警告](https://www.reuters.com/article/idCNKBS2G605L?edition-redirect=ca)
+
+校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

@@ -2,24 +2,24 @@
 ---
 
 
-## 拜登与习近平通话，设置“护栏”以确保“竞争不会演变成冲突”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524141/)
+## 拜登总统发布美国历史上最广泛的强制接种疫苗指令
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524269/)
 
-作者：香草山农场-文扬四海
+作者：香草山农场-Yousei
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登与习近平通话，设置护栏以确保竞争不会演变成冲突.jpg)图片来源：网络
+![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登总统发布美国历史上最广泛的强制接种疫苗指令.jpg)图片来源：网络
 
-据福克斯新闻9月9日报道，白宫周四晚间表示，拜登和习近平在当天的通话中讨论了有关利益交汇的领域，以及利益、价值观和观点分歧的问题。两位领导人讨论了两国确保竞争不会陷入冲突的责任。拜登明确表示此次讨论是“美国为负责任地管理美国和中国之间的竞争所做的持续努力的一部分”，并强调美国对印太地区和世界和平、稳定和繁荣的持久兴趣。
+拜登总统于9月9日发布了一项美国历史上最广泛的联邦雇员强制接种新冠疫苗的指令。该指令要求所有拥有100 名以上雇员的企业雇主必须接种疫苗或每周进行病毒检测。多达1亿美国人将会受到该指令的影响。据悉，不遵守该指令的企业将面临“每次高达近14,000美元的巨额罚款”。此外，指令还要求参与医疗保险和医疗补助的医院和其他医疗机构的医护人员接种疫苗，预计该项要求的影响将覆盖超过1700万人。
 
-据有关官员透露，此次通话由拜登发起，新华社通稿也强调习近平是“应约”同拜登通话。
+NBC 新闻报道了更多相关细节，称这项指令”旨在加大对未接种疫苗者的压力，同时，也对联邦雇员、大型雇主和医疗保健提供者提出了额外的要求。”
 
-郭文贵先生不久前刚爆料拜登政府要和中共勾兑，拜登便急不可耐地主动和习近平通话，讨论一些无关痛痒的的话题，却只字未提病毒溯源等核心问题，反而还在和中共讨论两国如何竞争而不陷入冲突，还在幻想着持久的稳定和繁荣，而所谓采取新方法应对中共挑战只不过是自欺欺人。中共很清楚目前紧张的形势，企图利用桌子底下的交易、病毒疫苗和阿富汗问题为筹码和美国做交易。爆料革命会将一切黑暗勾兑曝光在阳光之下。
+一贯宣扬自由民主的左派拜登政府给美国承诺的“自由之夏”，或将随着此项指令的发布一起结束。
 
-参考链接：[Biden, in call with China’s Xi Jinping, sets ‘guardrails’ to ensure ‘competition does not veer into conflict’](https://www.foxnews.com/politics/biden-xi-china-guardrails.amp?__twitter_impression=true)
+参考链接：[President Biden Set to Issue Most Sweeping Set of Vaccine Mandates in American History](https://beckernews.com/breaking-president-biden-set-to-issue-most-sweeping-set-of-vaccine-mandates-in-american-history-41399/)
 
 校对/发稿：雪梨
 

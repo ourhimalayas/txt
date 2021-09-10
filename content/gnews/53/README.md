@@ -2,55 +2,26 @@
 ---
 
 
-## 秘翻新视野9月10日播报简要
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1524004/)
+## 还有后来人
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1524025/)
 
-BY：秘翻时评
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/fengmian.png)](https://gtv.org/video/id=613acd3bbe28c76ac944d81f)
-【点击图片即可观看】
+#### 撰稿、插图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16-4.png)
+毁天灭地大中共，好事不成，做起坏事来那可是一个“绝”字了得。毁神佛，灭宗教，灭宗族，毁夫妻，抢民女，奸人妻不一而足。而如今流行一句话——“那些年被中共毁了的词语”，这不是一句空话，也不是一个玩笑，而是对经过中共洗礼后荒诞无稽的社会现实的真实写照。无论是“小姐”还是“专家”，无论是“教授”还是“慈善”，无论是“自愿捐款”还是“福利彩票”，每一个词汇无不都曾经带给人们一种美好的憧憬和向往；然而经过共产主义铁拳洗礼后的人们无不都有一种说不出的异样感觉。
 
-国内外新闻
+时至今日，习近平又开始大谈共同富裕，全党上下大肆宣传。然而这个人们一直追求的“共同富裕”梦想却让很多人有一种不寒而栗的感觉。是“共同富裕”这个词语让人们害怕还是这多年来在人们心灵上深深烙下的共产烙印使然？
 
-1．澳航将禁止未接种疫苗旅客搭乘国际航班（见证伟大时刻）
+语言文字具有欺骗性，在共产幽灵的掌控之下，语言文字更具魔性。不识破“共产”语言，不看透“共产”说辞，一次次被红魔欺骗的命运就不会改变。
 
-[https://www.epochtimes.com/b5/21/9/9/n13221258.htm](https://www.epochtimes.com/b5/21/9/9/n13221258.htm)
+人们害怕的不是“共同富裕”，人们害怕的是“共同富裕”只是个开始，这内涵外延无限大…这一波又一波，被波及到的人总有一天会是自己！！！
 
-2. 14位美国州长反对联邦强制疫苗令（风之伤）
+不灭共，毋宁死！
 
-[https://www.epochtimes.com/gb/21/9/10/n13223181.htm](https://www.epochtimes.com/gb/21/9/10/n13223181.htm)
+说明：本作品在**Wolverine**（盖特名）《共同富裕》作品的基础上进行的再创造，在此向**Wolverine**深表感谢，如有侵权请联系东京樱花团。
 
-3. 台湾最新民调显示：近9成民众反对“一国两制”(见证伟大时刻)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-[https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)
-
-4. 美中太空战 美上将：中共在开发卫星杀手（风之伤）
-
-[https://www.epochtimes.com/gb/21/9/9/n13222775.htm](https://www.epochtimes.com/gb/21/9/9/n13222775.htm)
-
-盖特新闻
-
-1.台湾大牛盖文：
-
-在加拿大卡爾加里，消防員、緊急醫療工作者和警察默默站立一小時，抗議政府的強制性疫苗和證件。（见证伟大时刻，annafu）
-
-[https://gettr.com/post/palvajc4a9](https://gettr.com/post/palvajc4a9)
-
-2.秘翻盖文：澳大利亚健康从业者监管机构 (AHPRA) 发出信函，威胁因任何形式干预政府疫苗接种计划而对医生进行调查或吊销执照（风之伤）
-
-[https://gettr.com/post/pam1jg3478](https://gettr.com/post/pam1jg3478)
-
-3.郭先生盖文：国际黑暗势力
-
-9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着（大家）
-
-[https://gettr.com/post/pakv0u3cc1](https://gettr.com/post/pakv0u3cc1)
-
-4.郭先生盖文：
-
-打破中共房产骗局的第一块砖头……
-
-【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】（大家）
-
-[https://gettr.com/post/pajce80a0e](https://gettr.com/post/pajce80a0e)
-
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 0
