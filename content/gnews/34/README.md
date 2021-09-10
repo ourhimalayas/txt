@@ -2,52 +2,33 @@
 ---
 
 
-## 台湾最新民调显示：近9成民众反对“一国两制”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524445/)
+## 调查显示：公司强行疫苗接种将迫使近75％的未接种疫苗员工辞职
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524504/)
 
-作者：纽约香草山农场 – 四季
+2021年9月10日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091001.jpg)
+**摘要翻译：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+这项调查是在美国不同的雇主在辉瑞公司的Comirnaty疫苗获得全面批准后强制要求他们的工人注射疫苗的情况下进行的。
 
+由《华盛顿邮报》和美国广播公司新闻进行的调查有1066名成年受访者。他们在2021年8月20日至9月1日期间接受采访。根据《华盛顿邮报》-美国广播公司新闻的民意调查，如果雇主要求接种COVID-19疫苗，只有16%的未接种者会接种。同时，42%的人说他们会辞去工作，35%的人说他们会以医疗或宗教理由要求豁免。
 
+但在无法获得医疗或宗教豁免的情况下，72%的受访者表示他们会辞职。只有18%的受访者说，尽管没有豁免，他们仍然会注射疫苗。
 
+《福克斯新闻》在2021年8月早些时候进行的一项民意调查反映了客户对员工接种疫苗的偏爱。其调查发现，44%的受访者更倾向于访问员工有接种疫苗或工人COVID-19检测阴性的机构。
 
+[新闻链接](https://dreddymd.com/2021/09/10/75-of-unvaccinated-workers-to-quit-if-companies-make-vaccines-required/)
 
-据美国之音9月10日[报道](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)，台湾行政院大陆事务委员会星期四公布的最新一项民调显示，有87.5%的民众反对北京的“一国两制”，另有89.4%的民众反对北京对台湾的外交打压。
+*翻译：suigintou#9482|校对：感恩*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/934-1-From-Doc.jpg)图片来源：路透社（REUTERS）
-
-这项由台湾国立政治大学选举研究中心，受陆委会委托所作的民调还显示，88.8%的台湾民众反对中共当局在立陶宛同意让台湾以“台湾”名义设立代表处后，一再以经济，外交手段对立陶宛施压。88.6%的民众支持蔡英文政府持续与美国等理念相近的国家合作，确保台海和平稳定的现状。另有81.3%的民众支持政府强化国家安全与自我防卫能力；82.8%的民众支持政府捍卫国家主权和台湾民主。
-
-在两岸关系方面，有85.4%的民众主张“广义维持现状”。85.1%的民众认为台湾的未来和两岸关系的发展需要由台湾2350万人民决定。
-
-台湾陆委会在公布这项民调结果时指出，北京当局应该停止对台湾的威吓打压，正视台湾提出的“和平、对等、民主、对话”的互动倡议，务实处理两岸问题，以便为良性互动创造有利条件。
-
-台湾的最新民调体现了台湾人民的觉醒，只有台湾人民才是台湾捍卫自由、民主的真正力量。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

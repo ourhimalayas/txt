@@ -2,32 +2,19 @@
 ---
 
 
-## 阿拉斯加州州长回应拜登的疫苗授权：“这毋庸置疑是可以引用《第 25 修正案》的案例”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524572/)
+## 秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1524598/)
 
-2021年9月10日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091002.jpg)
-**摘要：**
+编译：Nstar
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-11-030153.jpg)
+2015 年，诺贝尔生理学或医学委员会在其自 6 年前颁发的唯一一个传染病治疗奖中，表彰了伊维菌素 (IVM) 的发现，这是一种用于对抗世界上一些最具破坏性的热带疾病的多方面药物。
 
-阿拉斯加州州长迈克·邓利维周四回应总统乔·拜登推动强制接种疫苗的举动，建议根据《第 25 条修正案》将总统免职。
+自 2020 年 3 月首次使用 IVM 对抗中共病毒以来，已有 20 多项随机临床试验 (RCT) 跟踪了此类住院和门诊治疗。2021 年报告的 IVM 治疗 RCT 的七项荟萃分析中有六项发现 COVID-19 的死亡率显著降低，与对照组相比，死亡的平均相对风险降低了 31%。与对照组相比，使用最高 IVM 剂量的 RCT 使死亡率降低了 92%（总共 400 名受试者，p&lt;0.001）。
 
-拜登在新闻发布会上发布声明说：“我宣布，劳工部正在制定一项紧急规定，要求所有拥有 100 名或更多员工的雇主（这些雇主总共雇佣了8000多万工人）确保他们的员工全部接种疫苗或每周至少做一次显示阴性的测试 。最终结果是：我们将保护接种疫苗的工人免受未接种疫苗的同事的伤害。”
+在秘鲁的大规模 IVM 治疗期间，在治疗最广泛的十个州中，30 天内的超额死亡人数平均下降了 74%。死亡的减少与所有 25 个州的 IVM 分布程度相关，p&lt;0.002。在 SARS-CoV-2 和相关的 β 冠状病毒的两种动物模型中，还观察到使用 IVM 的发病率急剧下降。IVM 的指定生物学机制，即与 SARS-CoV-2 刺突蛋白的竞争性结合，可能是非表位特异性的，可能对新出现的病毒突变株产生完全效力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-16.png)
+上表中， A) 是秘鲁全国超额全因死亡（所有年龄)数据。从 2020 年 8 月 1 日到 12 月 1 日，这些数字减少了 14 倍；然后，在限制 IVM 使用后，到 2 月 1 日增加了 13 倍。对于 A 和 B两个图，y 值是 7 天移动平均线；数据来自于秘鲁国家死亡信息系统 (SINADEF)。
 
-在发生了阿富汗灾难性事件后，越来越多的政客呼吁拜登辞职或援引《第25修正案》将拜登免职。民意调查也显示，大多数美国人不再认为拜登“在工作中胜任、专注或有效。”
-
-[新闻链接](https://www.dailywire.com/news/alaskas-governor-responds-to-biden-vaccine-mandate-if-there-was-ever-a-case-for-25th-amendment)
-
-*翻译：shuibozhuliu|校对：感恩*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+新闻来源：[https://pubmed.ncbi.nlm.nih.gov/34466270/](https://www.news-medical.net/news/20210719/Study-proves-effectiveness-of-Artemisia-annua-against-SARS-CoV-2-in-vitro.aspx)
 
 0

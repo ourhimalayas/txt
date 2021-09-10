@@ -2,46 +2,53 @@
 ---
 
 
-## 共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524370/)
+## 台湾最新民调显示：近9成民众反对“一国两制”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524445/)
 
-作者：香草山商业部-往后余生Jane
+作者：纽约香草山农场 – 四季
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
 
-共和党全国委员会主席罗娜·麦克丹尼尔周四宣布，共和党全国委员会打算，就直接影响私营部门的疫苗授权，起诉拜登总统。美国受影响的大约有一亿人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ronna-McDaniel-Reuters.jpg)Republican National Committee chairwoman Ronna McDaniel 
- 图片来源：Foxnews
 
 
+据美国之音9月10日[报道](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)，台湾行政院大陆事务委员会星期四公布的最新一项民调显示，有87.5%的民众反对北京的“一国两制”，另有89.4%的民众反对北京对台湾的外交打压。
 
-拜登当选时告诉美国人，他不会强制实施疫苗授权，他撒谎了。现在，全国各地的小企业、工人和家庭将付出代价，许多是没有钱或法律资源，来打击拜登的违宪行动和独裁法令的。但当他的法令生效时，共和党全国委员会将起诉政府，以保护美国人及其自由，并称拜登的疫苗授权绝对违宪！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/934-1-From-Doc.jpg)图片来源：路透社（REUTERS）
 
-周四早些时候，拜登正式宣布了他的计划，迫使员工超过100人的公司为工人接种冠状病毒疫苗或每周进行检测。随后，俄克拉荷马州司法部长约翰·奥康纳发表声明说，将强烈反对联邦政府强制接种疫苗的任何企图，我们正在准备诉讼，以捍卫我们的权利，并在联邦政府的过度影响下捍卫法治。
+这项由台湾国立政治大学选举研究中心，受陆委会委托所作的民调还显示，88.8%的台湾民众反对中共当局在立陶宛同意让台湾以“台湾”名义设立代表处后，一再以经济，外交手段对立陶宛施压。88.6%的民众支持蔡英文政府持续与美国等理念相近的国家合作，确保台海和平稳定的现状。另有81.3%的民众支持政府强化国家安全与自我防卫能力；82.8%的民众支持政府捍卫国家主权和台湾民主。
 
-中共病毒肆虐一年零八个月，整个世界处于恐惧之中。美国至今对溯源问题未做结论，对救命的青蒿素、伊维菌素等安全有效药物更是极力压制，害怕人们使用，反而强制注射有毒疫苗及疫苗护照，腐败的政客、国际邪恶组织及媒体，共同撒谎、欺骗大众，草菅人命。人民醒了，反抗疫苗暴政的运动势不可挡！
+在两岸关系方面，有85.4%的民众主张“广义维持现状”。85.1%的民众认为台湾的未来和两岸关系的发展需要由台湾2350万人民决定。
 
-参考链接：
+台湾陆委会在公布这项民调结果时指出，北京当局应该停止对台湾的威吓打压，正视台湾提出的“和平、对等、民主、对话”的互动倡议，务实处理两岸问题，以便为良性互动创造有利条件。
 
-[https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates](https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates)
+台湾的最新民调体现了台湾人民的觉醒，只有台湾人民才是台湾捍卫自由、民主的真正力量。
 
-校对/发稿：飞虹
+（本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
+编辑/校对/发稿：小鹿
+
+
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
+
+
 
 0

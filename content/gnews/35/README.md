@@ -2,53 +2,19 @@
 ---
 
 
-## 加拿大联邦大选法语辩论日，人民党支持率激增
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524364/)
+## 秘翻在线：水灾疫情让河南建业集团雪上加霜
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1524474/)
 
-作者：纽约香草山美食部 – 文百合
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-11-020527.jpg)
+根据2021年9月9日新浪网报道， 建业集团向河南省政府提交了《关于企业出现重大风险和危机并请求帮扶救援的报告》。
 
+该报告称河南接连遭遇汛情、疫情的叠加冲击造成建业集团的经济损失超过50亿元。建业集团成立于1992年，一直是河南纳税大户，旗下的四家公司已实现香港主板上市。有金融机构人士透露，建业集团目前并未亏损，但是部分地方政府欠了建业集团不少钱一直没还，再加上汛情、疫情，对企业影响比较大。
 
+建业地产作为建业集团的重要上市公司，出现增收不增利，依靠“借新偿旧”维持公司运行，另一方面近两年房产销售额增速放缓，企业的回款力度也加大。建业集团面临着资金困难的现状。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+中共病毒和人为的水灾夺走了中共国老百姓的生命，同时也让无数的企业难以生存，中共国的经济崩溃已经在劫难逃。
 
+**新闻来源：**  https://finance.sina.com.cn/stock/s/2021-09-10/doc-iktzscyx3336891.shtml
 
-
-9月8日晚，加拿大联邦大选领导人法语辩论落下帷幕。
-
-事实上，加拿大人民党（People’s Party of Canada）领袖Maxime Bernier并未被邀请参与此次大选辩论。但据昨日的统计数据显示，加拿大人民党的支持率却一路攀升至10%，并且仍在持续增长。
-
-![](https://media.discordapp.net/attachments/879117708753514526/885564953526939698/image0.jpg?width=915&amp;height=609)图源网络
-
-对此，网友们戏称，没有Mad Max的大选辩论不过是走走过场。实际上，大选辩论中缺席的人民党是目前加拿大国内唯一一个反对国际共产与强制疫苗的党派。虽然Max在他的推特中对这种排挤行为表示了不满，但他同时也强调，他并不会改变他的初衷，他将继续为自由发声。
-
-在联邦大选越来越近的当下，Max每天都按行程在全国各地进行演讲和拉票。据悉，每场演讲中他的支持者都有上千之多。可见，Max颇受民众欢迎。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Polling Canada的推特](https://twitter.com/canadianpolling/status/1435706387850534916?s=21)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-+1
+0

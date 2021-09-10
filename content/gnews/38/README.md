@@ -2,28 +2,35 @@
 ---
 
 
-## 拜登总统发布美国历史上最广泛的强制接种疫苗指令
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1524269/)
+## 共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1524370/)
 
-作者：香草山农场-Yousei
+作者：香草山商业部-往后余生Jane
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登总统发布美国历史上最广泛的强制接种疫苗指令.jpg)图片来源：网络
+共和党全国委员会主席罗娜·麦克丹尼尔周四宣布，共和党全国委员会打算，就直接影响私营部门的疫苗授权，起诉拜登总统。美国受影响的大约有一亿人。
 
-拜登总统于9月9日发布了一项美国历史上最广泛的联邦雇员强制接种新冠疫苗的指令。该指令要求所有拥有100 名以上雇员的企业雇主必须接种疫苗或每周进行病毒检测。多达1亿美国人将会受到该指令的影响。据悉，不遵守该指令的企业将面临“每次高达近14,000美元的巨额罚款”。此外，指令还要求参与医疗保险和医疗补助的医院和其他医疗机构的医护人员接种疫苗，预计该项要求的影响将覆盖超过1700万人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ronna-McDaniel-Reuters.jpg)Republican National Committee chairwoman Ronna McDaniel 
+ 图片来源：Foxnews
 
-NBC 新闻报道了更多相关细节，称这项指令”旨在加大对未接种疫苗者的压力，同时，也对联邦雇员、大型雇主和医疗保健提供者提出了额外的要求。”
 
-一贯宣扬自由民主的左派拜登政府给美国承诺的“自由之夏”，或将随着此项指令的发布一起结束。
 
-参考链接：[President Biden Set to Issue Most Sweeping Set of Vaccine Mandates in American History](https://beckernews.com/breaking-president-biden-set-to-issue-most-sweeping-set-of-vaccine-mandates-in-american-history-41399/)
+拜登当选时告诉美国人，他不会强制实施疫苗授权，他撒谎了。现在，全国各地的小企业、工人和家庭将付出代价，许多是没有钱或法律资源，来打击拜登的违宪行动和独裁法令的。但当他的法令生效时，共和党全国委员会将起诉政府，以保护美国人及其自由，并称拜登的疫苗授权绝对违宪！
 
-校对/发稿：雪梨
+周四早些时候，拜登正式宣布了他的计划，迫使员工超过100人的公司为工人接种冠状病毒疫苗或每周进行检测。随后，俄克拉荷马州司法部长约翰·奥康纳发表声明说，将强烈反对联邦政府强制接种疫苗的任何企图，我们正在准备诉讼，以捍卫我们的权利，并在联邦政府的过度影响下捍卫法治。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+中共病毒肆虐一年零八个月，整个世界处于恐惧之中。美国至今对溯源问题未做结论，对救命的青蒿素、伊维菌素等安全有效药物更是极力压制，害怕人们使用，反而强制注射有毒疫苗及疫苗护照，腐败的政客、国际邪恶组织及媒体，共同撒谎、欺骗大众，草菅人命。人民醒了，反抗疫苗暴政的运动势不可挡！
+
+参考链接：
+
+[https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates](https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
 **更多资讯，更多关注**
 
