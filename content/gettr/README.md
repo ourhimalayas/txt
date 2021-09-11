@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 6:11 PM (UTC)`
+
+9月11号：<br/><br/>新中国联邦人的帅哥，美女．健康的身体．将是无尽的财富……新人类的未来。<br/><br/><br/>https://oversea.huanqiu.com/article/4434pHNrrW2
+![img](https://media.gettr.com/group25/getter/2021/09/11/18/b45925d3-a981-4fa2-64f5-9800206b42f8/d547826e7473e9f94ff046173dea2790.jpg)
+
+---
+
 `@miles 9/11/2021 4:45 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Dr. Zelenko Covid-19 Prophylaxis and Treatment Protocol<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>Zelenko医生中共病毒预防与治疗方案<br/>
@@ -294,16 +301,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 
 9/9/2021 Miles Guo’s GETTR: The international dark forces have controlled everything in the CCP and therefore controls the whole China! Why hasn’t any Western media exposed any kind of crimes committed by the CCP’s old kleptocrats? Because they are covered up by the dark forces<br/><br/>9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着
 ![img](https://media.gettr.com/group26/getter/2021/09/10/00/bc451203-a0f7-f43a-4994-6eba5f1fe993/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@drzevzelenko 9/9/2021 5:58 PM (UTC)`
-
-Good information here.
-> `@miles 9/9/2021 2:55 PM (UTC)`<br/>🙏🙏🙏🙏🙏🙏🙏 <br/>【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
-![img](https://media.gettr.com/group16/getter/2021/09/09/14/4882323e-b270-2b88-cf3d-eeb0104228d7/bf4e973ac9b5f393e8592a61a0e4659e.jpg)
 
 ---
 
