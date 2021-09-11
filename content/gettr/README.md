@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 11:25 PM (UTC)`
+
+9/11/2021 Miles Guo’s GETTR: An old friend of mine whose whole family got the COVID jab is now freaked out! What does the Qianhai Economic Zone’s expansion mean for the tycoons in Hong Kong！Be careful not to get the virus and prepare enough money to survive, because the world’s economy is having a big trouble!<br/><br/>9/11/2021文贵盖特：我的老朋友某国元首全家打了中共病毒疫苗，但他现在真的害怕了！前海经济开发区的扩大对香港富豪们意味着什么？要谨防感染病毒并准备好吃饭的钱，世界经济真的出大事了！<br/>
+![img](https://media.gettr.com/group49/getter/2021/09/11/23/5c3428f4-42d5-6ec6-68f0-3e1983b37786/out.jpg)
+
+---
+
 `@miles 9/11/2021 8:38 PM (UTC)`
 
 9月11号：郭文贵致平安集团，马明哲的视频<br/><br/>【马明哲，准备控告我们的战友巴顿将军，翟水台，天津老马，七哥你看该怎么办？】
@@ -289,15 +296,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 
 早在四年前，郭文贵先生已经准确爆料：恒大将比海航更惨，在国际上更加震撼！<br/>As early as four years ago, Miles Guo has precisely predicted  the fate of Evergrande : Evergrande will fail and will have a more epic fall than HNA, which will give the world a bigger shock.
 ![img](https://media.gettr.com/group1/getter/2021/09/10/13/99e055a3-dd7d-8eca-2a1e-2867a6f5251d/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@purelotusheart1 9/10/2021 2:31 AM (UTC)`
-
-⚠️Dr. Richard Fleming, PhD Physics, MD, Nucleus Cardiologist, JD, leader of Covid virus & vaccines research has just announced: <br/>“there is something very critical, by having graphene oxide in the vaccines and preventing the spike proteins from attaching to cells, it makes the spike proteins available to cross the blood-brain barriers to cause the prion diseases (eg mad cow disease)”<br/><br/>⚠️Mr. Miles’ announcement on Aug 24, 2021, that each and every vaccine has graphene oxide nanoparticle,  has changed Dr. Fleming’s previous understanding of the issue.<br/><br/>⚠️ Dr. Fleming’s annoucement is a powerful scientific confirmation proving the accuracy and importance of intel from Mr. Guo and anonymous heroes of our Whistleblower Movement. 
-![img](https://media.gettr.com/group15/getter/2021/09/10/02/16deeb83-be93-271f-1f9e-b46e9c02c653/out.jpg)
 
 ---
 
