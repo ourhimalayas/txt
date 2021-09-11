@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 12:39 AM (UTC)`
+
+这是真的吗？<br/><br/>【1982年6月，青海女孩陶金兰一人在挖掘水管时，无意中挖掘出一个银库，思想觉悟极高的她立即向上报。经过组织清点，银库中共有银元67981枚，十两，五十两银锭1569个。最后她得到了村支书的赞赏并得了面小红旗🚩多年后才发现那是她爷爷埋的…又过了二十年，村支书的儿孙们都成了房地产大老板，据说起家的第一桶金就是手里的百余个大元宝。而陶金兰的后人依然住在窑洞中以农垦为生……】
+![img](https://media.gettr.com/group8/getter/2021/09/11/00/49a86a71-de6d-7ff2-8873-5b7724c0dbc9/1c1a46264986d0cda8c419eefc697ccc.jpg)
+
+---
+
 `@miles 9/10/2021 11:46 PM (UTC)`
 
 9/10/2021 Miles Guo：The phone call between Biden and Xi is good for us! Because the day the CCP and the U.S. talks about resuming their cooperation is the day the CCP will perish! Wang Qishan rose to the top of the CCP because of Russia! The CCP is pro-Russian at heart!<br/><br/>9/10/2021 文贵直播：拜登和习的通话对咱是好事！因为中共和美国重谈合作之时，就是中共灭亡之日！王岐山能进入中共权力核心靠的就是俄罗斯！中共的骨子里是亲俄的！<br/>
@@ -302,13 +309,6 @@ I have no delusions about winning a Nobel Prize for the tremendous success that 
 `@miles 9/6/2021 7:21 PM (UTC)`
 
 😱😱😱【到2050每年将有 1000 万人死于抗生素耐药性疾病】https://gnews.org/zh-hans/1513608/ https://gnews.org/zh-hans/1513608/
-
----
-
-`@miles 9/6/2021 2:42 PM (UTC)`
-
-9月6号：尊敬的战友们好．黑天鹅事件，和延安的摇窖洞崩塌……断了共产党的根呀……因此同时发生的对台的战争方案临时的改变……这将意味着什么？天助台湾的呢……明天上午9:00继续和战友们一起大直播，聊一些共产党的艺术性．和艺术市场的勾兑．开启我们的用艺术灭共的新时代！
-![img](https://media.gettr.com/group47/getter/2021/09/06/14/4a253f2c-641c-f00b-4ae3-96d0299a53c4/out.jpg)
 
 ---
 
