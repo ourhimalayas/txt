@@ -28,14 +28,14 @@
 ### [拜登政府强推疫苗引美入深渊](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [七哥快讯910:毛泽东在中南海的居所绝对是双修的好地方](/content/gnews/6/README.md)
+### [七哥快讯910:这场灭共的事业全凭你的内心和你的世界](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥快讯910:为啥江家和王岐山绝对不会考虑中国和中国人](/content/gnews/7/README.md)
+### [七哥快讯910:盘古诞生之日就注定共产党必将被我们消灭](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [疫苗和平安的关系](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [七哥快讯910:毛泽东在中南海的居所绝对是双修的好地方](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
 
 ### [维州：优先为孕妇接种疫苗](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
@@ -85,47 +85,47 @@
 ### [2021/09/10大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：盖茨离婚后疯狂剁手 或成四季酒店新主](/content/gnews/25/README.md)
- ` 秘密翻译组G-Translators`
-
-### [澳美2+2会议前澳洲权衡中资租赁达尔文港的风险](/content/gnews/26/README.md)
+### [Moderna宣布正在研发针对中共病毒与流感的混合疫苗](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [华尔街英语传破产 欠款近12亿元](/content/gnews/27/README.md)
+### [BioNTech和Moderna都在努力推进5岁以上的儿童疫苗](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：国会议员不受拜登疫苗强制令约束](/content/gnews/28/README.md)
+### [联邦执法人员协会反对拜登颁布行政令强制要求接种冠状病毒“毒疫苗”](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：莫德纳公司研发“中共病毒-流感”二合一疫苗](/content/gnews/28/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线：习拜通话“不平等”](/content/gnews/29/README.md)
+### [秘翻在线：盖茨离婚后疯狂剁手 或成四季酒店新主](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [秘翻在线: 新冠病毒“起源”=“来源”？](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
+### [澳美2+2会议前澳洲权衡中资租赁达尔文港的风险](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
 
-### [维州：优先为孕妇接种疫苗](/content/gnews/31/README.md)
+### [拜登与习近平再通话，讨论了病毒溯源调查](/content/gnews/31/README.md)
+ ` 日本东京樱花团`
+
+### [日本共有18人感染了中共病毒“埃塔”变异株](/content/gnews/32/README.md)
+ ` 日本东京樱花团`
+
+### [阿富汗危机：(15) 美国的滑铁卢 911](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
+
+### [郭文贵直播摘要、音频、视频 2021.9.10 ：虚假金融 恒大崩溃](/content/gnews/34/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [维州：优先为孕妇接种疫苗](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [参议员瑞克·斯科特:抖音由中共国的公司拥有和运作受共产主义中国 政府控制](/content/gnews/32/README.md)
+### [参议员瑞克·斯科特:抖音由中共国的公司拥有和运作受共产主义中国 政府控制](/content/gnews/36/README.md)
  ` 美国政要直译推`
 
-### [DC大中华时事：习近平向国际粮食减损大会致贺信](/content/gnews/33/README.md)
+### [DC大中华时事：习近平向国际粮食减损大会致贺信](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：新书 &#8220;红色轮盘 &#8220;回忆录称中国绑架了亿万富翁](/content/gnews/34/README.md)
+### [每日快报：新书 &#8220;红色轮盘 &#8220;回忆录称中国绑架了亿万富翁](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [中企影音平台喜马拉雅宣布取消在美国进行IPO上市](/content/gnews/35/README.md)
- ` 纽约香草山MOS01`
-
-### [中共对所有文娱工作者强行驯化](/content/gnews/36/README.md)
- ` 纽约香草山MOS01`
-
-### [美国共和党州长准备就违宪的疫苗接种任务起诉拜登政府](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [德教云书院通过爆料革命平台拉人敛财及喜马拉雅农场联盟重要公告](/content/gnews/38/README.md)
- ` 滴水穿石`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

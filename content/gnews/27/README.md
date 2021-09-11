@@ -2,8 +2,8 @@
 ---
 
 
-## 华尔街英语传破产 欠款近12亿元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1525188/)
+## 联邦执法人员协会反对拜登颁布行政令强制要求接种冠状病毒“毒疫苗”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1525253/)
 
 栏目记者/责任编辑：AsG諾雅
 
@@ -15,14 +15,16 @@
 
 
 
-法广9月9日消息，受中共减少作业和补习的“双减”政策打击，华尔街英语传出将宣告破产，其位于11个城市的39个学习中心已经全部停业。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1.2-2.jpg)图片来源： 网络
-根据央视财经的报道，华尔街英语欠款高达人民币12亿元的学费，其中截至8月14日，有超过6000名学员涉及的合约金额共约人民币4.8亿元，52%学员通过借贷方式支付了学费。北京律师分析指出，即便该公司未来进入破产清算，首先支付的是拖欠国家的税款，然后支付拖欠员工的工资等。消费者作为债权人，能获得的清偿比率非常低，甚至可能完全清偿不到。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-37.jpg)图片来源： 网络
-中共政府“拍脑袋”治国，总要打着“为人民服务”的旗号，实际受伤害最深的永远是底层民众，而权贵阶层总能借各种“新政”中饱私囊。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1.1-2.jpg)图片来源： 网络
+布莱巴特9月9日消息，在CNN报道拜登将宣布要求所有联邦雇员接种冠状病毒疫苗后，代表全美约3万名联邦执法人员和代理人的联邦执法人员协会（FLEOA）主席拉里-科斯梅发表声明，反对该强制疫苗接种计划。他明确表示，强制行动是错误的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-22.jpg)图片来源：Breitbart
+科斯梅认为该行政命令诋毁了员工的合理关切和犹豫不决，使联邦政府介入到个人的医疗决定中。他指出，FLEOA一贯鼓励其成员寻求个人医疗指导，并在大多数情况下，接受疫苗接种。然而，以生计威胁和惩罚并不是答案。
+
+联邦执法人员协会将继续审查这一命令的法律状况，并采取适当行动，支持其成员并表达他们的关切。科斯梅强调说：“我们是建立在自由之上的国家。我们是捍卫这一自由的执法者。我们应该有做出自己健康决定的自由”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-1.jpg)图片来源： 网络
+在大量事实证明，一些已经被广为使用的基础药物能够有效预防和治疗中共病毒感染及其症状的情况下，美国政府仍然一意孤行掩藏真相、强推无效且危险的毒疫苗，严重的侵害了公民的基本人权，是对本国公民犯下的种族灭绝罪行。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.2.jpg)图片来源： 网络
 参考链接：
-[欠款近12亿！中国华尔街英语传破产 已全面停业](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210909-%E6%AC%A0%E6%AC%BE%E8%BF%9112%E4%BA%BF-%E4%B8%AD%E5%9B%BD%E5%8D%8E%E5%B0%94%E8%A1%97%E8%8B%B1%E8%AF%AD%E4%BC%A0%E7%A0%B4%E4%BA%A7-%E5%B7%B2%E5%85%A8%E9%9D%A2%E5%81%9C%E4%B8%9A)
+[Federal Law Enforcement Officers Association Opposes Biden Order to Mandate COVID Vaccine](https://www.breitbart.com/politics/2021/09/09/federal-law-enforcement-officers-association-opposes-biden-order-to-mandate-covid-vaccine/)
 
 （本文仅代表作者观点）
 
