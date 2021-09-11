@@ -15,6 +15,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 2:29 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Take a look at the side effects of the COVID vaccines, which jab is suitable for you?<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>看看冠状病毒疫苗的副作用是什么，有哪种疫苗适合你打呢？<br/>
+![img](https://media.gettr.com/group29/getter/2021/09/11/14/d61ccd47-d986-d768-247a-df63b295fd82/efb0631f01d0c1eb36afbbdcff68c91e.jpg)
+
+---
+
+`@miles 9/11/2021 2:21 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/23/2021 Miles Guo: Can 40 trillion mRNA molecules that make spike proteins stay in the human body forever? Vaccines are mandated across the world, while no one informs you of the risks or takes responsibilities. How ridiculous and vicious is it?<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/23/2021 文贵直播：40万亿个产生刺突蛋白的mRNA分子能人体内永远存在吗？世界各地强迫大家打疫苗的不但不能告知风险、还拒绝承担责任，这是什么流氓逻辑？<br/>
+![img](https://media.gettr.com/group8/getter/2021/09/11/14/ade58873-bc30-54fa-8e95-b4f979174219/out.jpg)
+
+---
+
 `@miles 9/11/2021 2:10 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/23/2021 Miles Guo：What does it mean that a vaccine shot produces at least 40 trillion mRNA molecules for making spike proteins? What are the terrible consequences of so many mRNA molecules entering the capillaries on the blood vessels, heart, liver, brain and other organs?<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/23/2021 文贵直播：一针疫苗会产生至少40万亿制造突刺蛋白的mRNA分子，这是什么概念？这么多mRNA分子进入毛细血管后会对心脏、肝脏、大脑等脏器产生什么可怕的后果？
@@ -293,20 +307,6 @@ And globally today was our best new user sign-up day since July 14th!<br/><br/>A
 
 9/7/2021 Miles Guo：Kevin Ching and Nicolas Chow are the most powerful guys in Asia’s auction business; All auction houses are backed by military and political forces; Only the “original shareholders” and “board members” of PRC can play with art auctions in China.<br/><br/>9/7/2021 文贵直播：程寿康和仇国仕是亚洲拍卖界最牛的俩人；拍卖行背后都有军方和政治的势力，国内只有中共国的“原始股东”和“董事会成员”才能玩艺术品拍卖<br/>
 ![img](https://media.gettr.com/group8/getter/2021/09/07/23/33f19860-d90e-1ad9-8fc6-11e466f4c818/out.jpg)
-
----
-
-`@miles 9/7/2021 9:34 PM (UTC)`
-
-🥵🥵🥵有种你别信<br/><br/>【抗寄生虫药伊维菌素在48小时内杀死冠状病毒 】https://www.news-medical.net/news/20200406/Antiparasitic-drug-Ivermectin-kills-coronavirus-in-48-hours.aspx
-![img](https://media.gettr.com/group13/getter/2021/09/07/21/d752b000-fe0f-951f-40dc-38c95e9ec773/f1a35669a2539e6847806eedb2d47b80.jpg)
-
----
-
-`@miles 9/7/2021 8:56 PM (UTC)`
-
-革命革命新中国联邦唯一的爆了的料……<br/><br/>【健康的 77 岁老人每周锻炼3次，仍然工作，儿子恳求他不要扎针，他还是打了。甚至打了加强针，11天后突然去世。<br/>他儿子写下故事，希望警醒世人。<br/>🕯️RIP<br/><br/>中国女富豪段伟红的前夫沈栋，在美国出版名为《红色轮盘》的回忆录，透露十多年前在北京开发房地产项目期间，曾利用段伟红与中共高层的关系开展业务，又提到，他和前妻与前总理温家宝家族的关系，以及前妻曾与因受贿被判无期徒刑的中共前政治局委员孙政才，进行金钱交易的内幕。】<br/>
-![img](https://media.gettr.com/group12/getter/2021/09/07/20/06997d5e-9317-6a87-8a6f-36ae2879c357/7e414ede56926768bff9c45883772e7b.jpg)
 
 ---
 

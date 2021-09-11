@@ -28,22 +28,22 @@
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/6/README.md)
+### [9/02 郭文贵盖特：大直播点了中共死穴（粤语配音）](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/28郭文贵直播：极少数人要通过病毒和疫苗削减老少残疾人口（粤语配音）](/content/gnews/7/README.md)
+### [9/1郭文贵直播：拜托大家传播大卫兄弟被地塞米松治愈（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/28郭文贵直播：病毒、疫苗会给宗教、家庭带来什么影响？（粤语配音）](/content/gnews/8/README.md)
+### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/9/README.md)
+### [9/1郭文贵直播：拜托大家传播大卫兄弟被地塞米松治愈（粤语配音）](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/28郭文贵直播：极少数人要通过病毒和疫苗削减老少残疾人口（粤语配音）](/content/gnews/10/README.md)
+### [大卫哥用亲身经历证明了地塞米松管用（粤语配音）](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/28郭文贵直播：病毒、疫苗会给宗教、家庭带来什么影响？（粤语配音）](/content/gnews/11/README.md)
+### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中美脱钩 汇丰退出美国](/content/gnews/12/README.md)
@@ -151,36 +151,36 @@
 ### [9/10/2021国际财经快讯：伦敦金融工作者涌回办公室；美国企业面临中共病毒疫苗的许多担忧](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [中美脱钩 汇丰退出美国](/content/gnews/47/README.md)
+### [烧香供养菩萨与消灭共产党](/content/gnews/47/README.md)
+ ` G-NEWS TAIWAN`
+
+### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/48/README.md)
+ ` 英喜-粵語組`
+
+### [中美脱钩 汇丰退出美国](/content/gnews/49/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [德教是什么鬼](/content/gnews/48/README.md)
+### [德教是什么鬼](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/49/README.md)
+### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/50/README.md)
+### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/51/README.md)
+### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [国际要闻汇编](/content/gnews/52/README.md)
+### [国际要闻汇编](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [墙内要闻汇编](/content/gnews/53/README.md)
+### [墙内要闻汇编](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/54/README.md)
+### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 
-### [樱花灭共诗——尘世绘（新韵）](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [樱花灭共诗——病毒真相交战](/content/gnews/56/README.md)
- ` 日本东京樱花团`
-
-### [日本海关截获假名牌商品大多来自中共国](/content/gnews/57/README.md)
+### [樱花灭共诗——尘世绘（新韵）](/content/gnews/57/README.md)
  ` 日本东京樱花团`
 
