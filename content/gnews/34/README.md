@@ -2,23 +2,34 @@
 ---
 
 
-## 英国的恐怖主义警报
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1526637/)
+## CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526693/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09112.jpg)
-在911袭击 20 周年前夕，英国反恐负责人透露，在过去四年里，英国的特工部门总共挫败了 31 起袭击事件，这些袭击已经进入最后阶段，其中六个在大流行期间被停止。
+2021年09月10日
 
-英国反情报和反恐部门军情五处的总干事肯·麦卡勒姆告诉BBC，这些阴谋大多是伊斯兰极端分子所为，还有越来越多的人来自英国极右翼。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/O575PLNMNJOCRJGPTCUJ4YU2NI-21.jpg)网络图片
 
-接受公共广播公司电台采访的军情五处负责人补充说，阿富汗落入塔利班手中，最终可能会“鼓励”与圣战网络和意识形态有关的英国恐怖分子。
+**摘要：**美国有线电视新闻网（CNN）终于承认，一份强调中共政府支持的社交媒体平台影响力的报告发现，该活动旨在动员人们反对“种族不公正”的抗议活动。
 
-麦卡勒姆说：“塔利班重返喀布尔将是对极端分子的“士气提振”。英国的恐怖主义威胁是真实存在的，而且会持续下去，我们国家将不可避免地发生恐怖袭击，我们将竭尽全力阻止它们，但不可能每次都能成功。”
+CNN关于最近发布的麦迪安威胁情报（ Mandiant Threat Intelligence ）和谷歌报告的摘要指出，与中国共产党 (CCP) 的虚假信息网络相关的机器人帐户，如何试图煽动亚裔美国人抗议种族主义以及声称 COVID-19 起源于中共国的人。虚假账户分享的帖子包括诸如“种族主义就是病毒”之类的信息。文章补充说：“美国官员认为该行动与中共国政府有关。”
 
-免责申明：本文只代表译者观点，与Gnews无关
+CNN 的文章承认：“虽然专家没有发现证据表明这些帖子成功地动员了抗议者，但报告说，它确实提供了早期预警，即活动背后的参与者可能开始探索，不限定于一种方式，用更直接的手段影响美国内政。”
 
-原文链接：[https://www.repubblica.it/esteri/2021/09/10/news/intelligence\_regno\_unito\_successo\_talebani\_puo\_ispirare\_lupi\_solitari\_-317273819/](https://www.repubblica.it/esteri/2021/09/10/news/intelligence_regno_unito_successo_talebani_puo_ispirare_lupi_solitari_-317273819/)
+报告称：“与之前的活动相比，这种直接呼吁动员人员的做法是一项重大进展，可能表明一种新的意图，即激励其人员在中共国领土之外的现实世界活动。”
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+CNN的转变表明，消灭中共是大势所趋。
+
+原文链接：[https://thenationalpulse.com/breaking/ccp-bots-used-to-incite-racial-justice-protests/](https://thenationalpulse.com/breaking/ccp-bots-used-to-incite-racial-justice-protests/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
