@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 4:09 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>9/1/2021 With his personal experience of contracting the CCP virus and being cured, brother David has proved that dexamethasone works! Don’t forget to take the medicine on time to prevent the CCP virus!<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>9/1/2021 大卫哥用感染中共病毒并被治愈的亲身经历证明了地塞米松管用！请大家记得按时服用药物防中共病毒！
+![img](https://media.gettr.com/group42/getter/2021/09/11/16/e34c3d47-9e13-b116-34f3-1ddb7321014f/out.jpg)
+
+---
+
 `@miles 9/11/2021 3:56 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/31/2021 Miles Guo’s GETTR：Yesterday’s announcement about the antidotes to the CCP virus has huge repercussions for the entire world! We should cherish artemisinin that can eliminate the CCP virus with a single blow!<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/31/2021 文贵盖特：昨天公布了中共病毒的解药后，引起了全世界的巨大反响！大家要珍惜可将中共病毒一剑封喉的青蒿素！<br/>
@@ -298,13 +305,6 @@ G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要�
 
 🙏🙏🙏🙏🙏🙏🙏 <br/>【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
 ![img](https://media.gettr.com/group16/getter/2021/09/09/14/4882323e-b270-2b88-cf3d-eeb0104228d7/bf4e973ac9b5f393e8592a61a0e4659e.jpg)
-
----
-
-`@miles 9/9/2021 2:44 PM (UTC)`
-
-9.9日：尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。<br/><br/>和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，和正义感，绝不能将自己的一生变成．金钱．性．虚荣．自私自利的奴隶……我们要开启人类真正的美好．安全，愉悦．自信．阳光．的未来的生活模式。
-![img](https://media.gettr.com/group13/getter/2021/09/09/14/cb902a65-b04f-a874-a01c-34ebf19195e9/out.jpg)
 
 ---
 
