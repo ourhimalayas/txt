@@ -13,17 +13,17 @@
 
 ---
 
-### [美军飞行员因拒绝强制疫苗而离职，美军实力快速削弱](/content/gnews/1/README.md)
+### [美国教师工会：CDC恐惧暴露疫苗真相](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美军飞行员因拒绝强制疫苗而离职，美军实力快速削弱](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞公司故意隐瞒疫苗副作用已触犯法律](/content/gnews/2/README.md)
+### [辉瑞公司故意隐瞒疫苗副作用已触犯法律](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [郭文贵先生2017年爆料恒大巨大诈骗内幕](/content/gnews/3/README.md)
+### [郭文贵先生2017年爆料恒大巨大诈骗内幕](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国教师工会：CDC恐惧暴露疫苗真相](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -37,14 +37,14 @@
 ### [9/03郭文贵直播：平安集团发展史囊括中共国各大家族的盗国史（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/02郭文贵盖特：44位染病的战友证明了我们推荐的药是有用的（粤语配音）](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [9/1郭文贵直播：拜托大家传播大卫兄弟被地塞米松治愈（粤语配音）](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [飞行恐惧、死亡威胁正在成为现实](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大卫哥用亲身经历证明了地塞米松管用（粤语配音）](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [马绍尔参议员讲述病毒爆发线和病毒本身](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [中美脱钩 汇丰退出美国](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
@@ -85,47 +85,47 @@
 ### [视频| 中企影音平台喜马拉雅宣布取消在美国进行IPO上市](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](/content/gnews/25/README.md)
+### [从鼓励到阉割，墙内网络直播业何去何从?](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [中共灭亡降至！文贵先生爆习拜通话内容](/content/gnews/26/README.md)
+### [债台高筑被遗弃, 恒大 &#8220;爆雷&#8221; 在即!](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞疫苗在10月份将获批用于5-11岁儿童](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：美国前驻阿富汗大使艾江山，现中共走狗](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生解析地产大亨王健林电视采访背后的秘密](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [王岐山及其裙带关系代表某国际黑暗组织操控中共](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [华尔街日报：中共国(CCP)的抖音向未成年人推荐吸毒和性视频](/content/gnews/31/README.md)
+### [拜登与中国习近平通电话说要设置“护栏”，以确保“竞争不会演变成冲突”](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/32/README.md)
+### [美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [中共灭亡降至！文贵先生爆习拜通话内容](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [辉瑞疫苗在10月份将获批用于5-11岁儿童](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [俄勒冈州民主党州长因疫苗授权被起诉](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [前太平洋司令部司令哈里斯呼吁美国对台湾政策进行审查](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线:菲律宾宣布使用伊维菌素预防或治疗中共病毒(Covid-19)](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [调兵10万 日本陆上自卫队举行28年来最大军演](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [华尔街日报：中共国(CCP)的抖音向未成年人推荐吸毒和性视频](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线 : 拜登为什么免除 60多万名美国邮政署员工的强制疫苗接种令?](/content/gnews/33/README.md)
+### [秘翻在线 : 拜登为什么免除 60多万名美国邮政署员工的强制疫苗接种令?](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：接种疫苗的人对其他人是危险的!](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共为何一反常态谴责几内亚政变](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [如果温家宝真的什么都不知道，他一定是在另外一个世界](/content/gnews/37/README.md)
- ` Shuizhuyu`
-
-### [奥巴马-拜登时代的阿富汗大使与中共政府合作](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

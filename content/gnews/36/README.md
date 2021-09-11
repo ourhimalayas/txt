@@ -2,31 +2,32 @@
 ---
 
 
-## 秘翻在线：美国CDC报告新冠疫苗已致14506人死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1525988/)
+## 华尔街日报：中共国(CCP)的抖音向未成年人推荐吸毒和性视频
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526259/)
 
-#### 撰稿：极寒将至 
+2021年09月10日
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-109.png)图片来源：盖特
-来自美国《地下基地》（Based under ground）网站的最新报告，美国疾病预防控制中心（CDC）周五发布的 VAERS （疫苗不良事件报告系统）数据显示，在 2020 年 12 月 14 日至 2021 年 9 月 3 日期间，所有年龄段共有 675,593 起新冠疫苗不良事件报告，其中包括 14,506 人死亡和 88,171 人重症。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/O575PLNMNJOCRJGPTCUJ4YU2NI-20.jpg)Getty Image
 
-其中，死亡报告比前一周增加了 595 起，重症报告（包括已死亡）比前一周增加了 2,200 起。
+**摘要翻译：**
 
-如果排除VAERS 中提交的“外国报告”  ，2020 年 12 月 14 日至 2021 年 9 月 3 日期间，美国报告了539,473 起不良事件，包括 6,577 人死亡 和 41,840 人重症。
+华尔街日报在最近的一篇文章中，描述了中国社交媒体应用软件抖音向未成年人推荐吸毒和色情内容的视频。儿童和未成年青少年在抖音的美国用户群中占相当大的比例。
 
-在美国，截至9月3日，已经接种了3.732亿剂新冠疫苗，其中包括，辉瑞公司的2.12亿剂，Moderna公司的1.46亿剂和强生公司的1400万剂。
+《华尔街日报》注意到一位13岁的抖音用户在该应用程序中搜索“OnlyFans”的故事，这是主要用于托管色情内容的订阅网站的名称。未成年用户随后观看了多个视频，其中包括两个色情内容的广告访问。
 
-美国 12 至 17 岁儿童的疫苗接种数据显示：总共19,015 起不良事件，其中 1,132 起被评为严重 ，19 起报告死亡，19 例死亡中有 2 例是自杀。
+抖音为一个13 岁的注册账户提供了至少 569 个关于吸毒、提及可卡因和冰毒成瘾的视频，以及用于在线销售毒品和用具的宣传视频。数百个类似的视频出现在《华尔街日报》其它未成年人账户的提要中。
 
-美国 VAERS 数据（从 2020 年 12 月 14 日到 2021 年 9 月 3 日）所有年龄段的数据显示：21% 的死亡与心脏疾病有关。54% 的死者是男性，42% 是女性，其余的死亡报告不包括死者的性别。死亡案例的平均年龄为72.9。
+新闻链接：[https://www.breitbart.com/tech/2021/09/10/wsj-communist-chinas-tiktok-suggests-videos-of-drug-use-and-sex-to-minors/](https://www.breitbart.com/tech/2021/09/10/wsj-communist-chinas-tiktok-suggests-videos-of-drug-use-and-sex-to-minors/)
 
-截至 9 月 3 日，  3,558 名孕妇 报告了与新冠疫苗相关的不良事件，包括 1042 名流产或早产报告 。
+* * *
 
-然而，这些触目惊心的数字依旧未能阻止拜登政府推出涉及一亿人的强制疫苗新政，其中包括联邦雇员、医护人员和百人以上企业的雇员。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-毒疫苗背后的黑手正在一步步将美国推入深渊……
 
-[新闻来源](https://basedunderground.com/2021/09/10/reports-of-injuries-deaths-after-covid-vaccines-hit-new-highs-just-as-biden-harris-regime-announce-medical-dictatorship/)
+编辑：【英国伦敦喜庄园编辑部】
 
-+1
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+0

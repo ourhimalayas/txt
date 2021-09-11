@@ -2,37 +2,34 @@
 ---
 
 
-## 王岐山及其裙带关系代表某国际黑暗组织操控中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1525154/)
+## 辉瑞疫苗在10月份将获批用于5-11岁儿童
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1526052/)
 
-栏目记者、责任编辑：Zion文恩
+栏目记者/责任编辑：文小白
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-105.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/王岐山及其裙带关系代表某国际黑暗组织操控中共.jpg)
-众所周知，中共创立之初是作为“共产国际”派驻中国的“远东支部”，负责为其拓展共产主义邪恶意识形态、输出革命、进而掌控亚洲。郭先生在今日的直播中，进一步揭露了中共的盗国、卖国本质，历代领导人无不有境外邪恶力量的扶持。
 
-十八大以来，王岐山借中纪委上位，绝不是中共几个家族的安排。王岐山能在十八大前准确地警告其同党时说到“好日子到头了，未来都是白刀子进红刀子出的日子，弄点钱快跑”，这绝不是危言耸听，而是预料到其背后黑暗组织布局的必然结果。王岐山之所以敢以黑反贪，是基于其对中共当局完全的控制，这背后也是黑暗黑暗力量的扶植。2017年习近平与俄罗斯签订“魔鬼契约”后，王岐山完全在执行其黑暗组织的任务——挑动中美各领域的全面较量、染指中东、一带一路、蓝金黄欧美、压制日韩、渗透世界粮仓——巴西等。王岐山的裙带关系周小川、郭树清、范一飞、周亮、康典等人，其所控制资本的体量，华尔街的金融玩家不及万一。以上这些，绝不是中共盗国家族可以控制或决定的；中共的盗国资本至今得以在海外安全存在，当然有国际黑暗力量的保护。
+据路透社9月10日消息：安东尼·福奇表示，辉瑞公司制造的新型冠状病毒疫苗在10 月底以前将获批准用于5至11岁的儿童。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021.9.11AM-.002.jpeg)
+提供疫苗的大制药厂商，面对各国民众反对的呼声、抗议活动和已经被揭露的真相，无视新冠疫苗导致不良副反应和死亡案例，连同机构政府，继续向低年龄范围人群强推疫苗接种。
 
-（本文仅代表作者观点）
+据悉，针对5至11岁儿童紧急使用授权（EUA）, 辉瑞公司已在美国国立卫生研究院 (NIH)千人在线会议上申请。如果可以提供足够的临床使用试验数据，2到3周后，即10月初就可获得批准。福奇还表示，美国 制莫德纳疫苗，数据收集则需要约6周，即 11 月左右可确认是否获批。
+(本文仅代表作者观点)
 
-参考链接：[王岐山及其裙带关系代表某国际黑暗组织操控中共](https://gtv.org/video/id=613b4bb7be28c76ac9450bcb)
+参考连接：[ファイザー製ワクチン、10月中に5─11歳向け認可も＝関係筋](https://jp.reuters.com/article/health-coronavirus-vaccines-kids-idJPKBN2G623O)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-99.png)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：鬼五
-校正/发稿：Hetangyuese
+终审：暗黑 
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-105.png)
-
-+2
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+0

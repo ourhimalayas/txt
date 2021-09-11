@@ -2,43 +2,34 @@
 ---
 
 
-## 秘翻在线：美国前驻阿富汗大使艾江山，现中共走狗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1525601/)
+## 美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1526079/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：雪梨
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-38.jpg)图片来源：网络图片
-9月9日，《国家脉动》记者娜塔莉·温特斯（Natalie Winters）撰文，披露艾江山（Karl Eikenberry）是奥巴马总统和乔·拜登副总统时期的前驻阿富汗大使，现在与几个由中共资助的游说团体合作，寻求“收编和消除潜在的（中共政权）反对派”，并在中共运营的一所大学工作任职。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-报道指出，艾江山作为奥巴马-拜登时期唯一的政治任命者，在2009年至2011年期间担任驻阿富汗大使。在他被任命之前，曾在美国陆军中担任中将，主要负责阿富汗事务，监督现已不存在的政府军队和警察部队的培训工作。
+据华盛顿邮报9月10日报导，针对拜登政府日前发布的，对企业和联邦工作人员强制接种新冠疫苗的行政令，共和党领导人谴责这些新措施违反宪法，并表示将针对这些行政命令对政府提起诉讼。
 
-自从他离开这个职位后，艾江山就开始与几个由中共管理的机构和措施有了合作关系。
+共和党全国委员会主席罗娜·麦克丹尼尔（Ronna McDaniel）质疑行政令的合法性，称其侵犯了宪法赋予美国公民的权力和自由，并计划在该指令最终揭晓时提起诉讼，届时将在提交法院的简报中阐述具体内容。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021.9.11AM-.004.jpeg)
+众多共和党州长也相继发表声明抨击该项指令，德克萨斯州州长称该项指令是”对私营企业的攻击”，怀俄明、南达科他和佐治亚州州长均表示将寻求法律的途径，反对和阻止这项违法行为。
 
-除了担任沙特阿拉伯国防部的高级顾问外，他还兼任设在清华大学的苏世民学院（Schwartzman College）的客座教授。作为中共领导人习近平的母校，清华大学有对美国政府发动网络攻击的历史。
+面对各国反对新冠疫苗和疫苗护照的浪潮，全世界逐渐认知到新冠疫苗的巨大伤害。拜登政府发布强制接种疫苗指令，进一步激起了美国人民的强烈反抗。
+(本文仅代表作者观点)
 
-国防情报局前高级情报官员和国务院官员尼古拉斯·埃夫蒂米亚斯（Nicholas Eftimiades）表示，“清华大学与中共国家科技和工业管理部门之间在为中共国家安全问题上有明确联系”。
+参考连接：[GOP governors threaten to sue over mandates; Biden says, ‘have at it’](https://www.washingtonpost.com/politics/2021/09/10/republican-governors-sue-biden-vaccine-mandate/)
 
-同样，艾江山是斯坦福大学国际安全与合作中心（CISAC）的国际安全研究员。《国家脉动》此前曾揭示该中心和几个与中共国军队和政府有关的实体进行了深入合作，包括那些被联邦调查局（FBI）标记为间谍活动并被美国政府列入黑名单的实体。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-艾江山也是加州大学圣迭戈分校（UCSD）*21**世纪中国研究中心*一个工作组的成员，该中心主要由电子商务巨头阿里巴巴的联合创始人资助。而阿里巴巴与中国共产党及其军队有着密切的财务和人事关系，被美国国务院标记为中共的“工具”。
+终审：暗黑 
+校正/发稿：我不在这里
 
-在学术界之外，艾江山还参加了由中美交流基金会（CUSEF）主办的东西方研究所的对话。该组织由中国共产党副书记领导的“统战部”所创立，旨在“收编和消除可能反对中共政权的政策和权威的人们”，并“影响外国政府采取支持中共指定政策的行动或立场。”
-
-另一个活动赞助商是中国国际友好联络会（CAIFC），也已被美国政府标记为在中共国军方主持下运作的统战团体。
-
-联邦委员会的报告指出：“中国国际友好联络会与国家安全部、民政部和外交部有额外的关系，它是一个部署秘密情报收集人员的平台。”
-
-尽管有这些关系，艾江山与中共同行一起参加了由中美交流基金会和中国国际友好联络会主办的2018年中美（退役高级军官）军方对话，即“三亚倡议”。
-
-该活动的一份摘要中说：“退休的美国和中共高级军阶官员和主办机构的高管在北京会面，讨论影响美中军方共同的关注和利益，包括朝鲜、台湾、南海、新兴技术以及其他区域安全挑战。”
-
-对此，《外交政策》（Foreign Policy）杂志指出，中共政权在努力颠覆美国前军事领导人，使其代表中共，和中共解放军进行宣传。
-
-该杂志说，这些解放军的项目之一是三亚倡议，这是一个将美国和中共前高级军事领导人聚集在一起的交流项目。2049计划研究所执行主任马克·斯托克斯（*Mark Stokes*）说，三亚倡议由解放军的一个部门领导，该部门从事政治战和游说行动。
-
-文章披露，这种高层交流的结果有时很明显。根据美国国会美中经济与安全审查委员会2011年年度报告中的一段话，2008年2月，参加三亚倡议的解放军对这些美国同行提出了要求，要他们说服五角大楼推迟发表一份关于中共军事建设的报告。然后，虽然该要求最终没有成功，但美国参加三亚倡议的成员却确实遵从了这一要求。
-
-新闻来源：[REVEALED: Biden Cabinet Secretaries, Local Mayors Collude With Chinese Communist Party on Agriculture Policy.](https://thenationalpulse.com/exclusive/afghanistan-ambassador-now-ccp-funded-academic/)
-
-+1
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+0

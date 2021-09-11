@@ -2,34 +2,50 @@
 ---
 
 
-## 辉瑞疫苗在10月份将获批用于5-11岁儿童
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1526052/)
+## 拜登与中国习近平通电话说要设置“护栏”，以确保“竞争不会演变成冲突”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526269/)
 
-栏目记者/责任编辑：文小白
+2021年9月11日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091102.jpg)档案图片：来自美联社
+拜登总统星期四晚上与中国国家主席习近平通了电话，旨在为美中关系设定“护栏和参数”，以确保两国在“激烈竞争”的同时，不会“陷入冲突”。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+白宫周四晚间表示，拜登和习近平进行了“广泛的战略性讨论，讨论了我们利益趋同的领域，以及我们的利益、价值观和观点分歧的领域。”
+
+声明说，拜登“明确表示”，此次讨论是“美国为负责任地管理美中之间的竞争而正在进行的努力的一部分”。
+
+白宫说：“拜登总统强调了美国对印度-太平洋和世界和平、稳定与繁荣的持久兴趣，两位领导人讨论了两国确保竞争不会演变成冲突的责任。”
+
+**北京的行为**
+
+至于北京的行为有问题或破坏稳定的领域，这位官员表示，领导人将进行“坦率、深入”的讨论。
+
+这位官员表示：“当利益一致时，我们将与中共国合作，我们将强调，我们相信，竞争能够负责任地进行。”
+
+此后，拜登政府警告称，中共国“迅速变得更加自信”，“是唯一有可能将其经济、外交、军事和技术力量结合起来，对一个稳定和开放的国际体系发起持续挑战的竞争者。”
+
+近几个月来，拜登政府还关注中共国对新冠大流行起源的国际调查缺乏透明度。
+
+**简评：**
+
+目前的中美关系被定义为“激烈竞争”与二战前对纳粹的绥靖政策是否似曾相识，相信所有的读者都有自己的判断。美国的经济已经被中共绑架，所以才会出现“我们之间要竞争，你的恒大不能崩”的局面，才会有两国“领导人”的通话。
+
+郭文贵先生从8月份开始的连续重磅大直播，为广大战友梳理了全球各种层面，各个环节存在的问题，面对即将到来的“黑天鹅”和“灰犀牛”，我们爆料革命和新中国联邦的战友们能做的就是做好准备，在保护好自己和家人的前提下，力所能及的做自己能做的事，迎接新的人类时期的到来。一切已经开始！
+
+[原文链接](https://www.foxnews.com/politics/biden-xi-china-guardrails)
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*翻译: Johnston-Zhang| 简评/校对: clau*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
-据路透社9月10日消息：安东尼·福奇表示，辉瑞公司制造的新型冠状病毒疫苗在10 月底以前将获批准用于5至11岁的儿童。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2021.9.11AM-.002.jpeg)
-提供疫苗的大制药厂商，面对各国民众反对的呼声、抗议活动和已经被揭露的真相，无视新冠疫苗导致不良副反应和死亡案例，连同机构政府，继续向低年龄范围人群强推疫苗接种。
-
-据悉，针对5至11岁儿童紧急使用授权（EUA）, 辉瑞公司已在美国国立卫生研究院 (NIH)千人在线会议上申请。如果可以提供足够的临床使用试验数据，2到3周后，即10月初就可获得批准。福奇还表示，美国 制莫德纳疫苗，数据收集则需要约6周，即 11 月左右可确认是否获批。
-(本文仅代表作者观点)
-
-参考连接：[ファイザー製ワクチン、10月中に5─11歳向け認可も＝関係筋](https://jp.reuters.com/article/health-coronavirus-vaccines-kids-idJPKBN2G623O)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：暗黑 
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

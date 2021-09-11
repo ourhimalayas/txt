@@ -15,6 +15,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 3:44 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/30/2021 Miles Guo: The artemisinin-based medicines discovered by Mrs. Tu Youyou are effective against the CCP virus. Mrs. Tu will become the hero to save the human race!<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/30/2021 文贵直播： 屠呦呦女士的发现的青蒿素系列药物对新冠病毒管用，屠女士将是拯救人类的英雄！<br/>
+![img](https://media.gettr.com/group15/getter/2021/09/11/15/8d513460-8dcb-977a-e7a3-428e6f513632/out.jpg)
+
+---
+
+`@miles 9/11/2021 3:40 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/30/2021 Miles Guo Life-saving broadcast: D-NAB is the antidote to the CCP virus! The CCP has at least 5 types of antidotes, of which the foundation is antigen neutralization<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/30/2021 文贵救命直播：D-NAB是中共病毒的解药！中共已有至少五种解药，抗原中和产品是解药根本基础<br/>
+![img](https://media.gettr.com/group26/getter/2021/09/11/15/38783529-d680-2a45-1340-22cfe9bd008a/out.jpg)
+
+---
+
+`@miles 9/11/2021 3:33 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Sherri Tenpenny: Vaccine DEMOCIDE: a federal whistleblower claims to have documentation showing 200,000 people died within a week or less after COVID-19 shots.<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>雪莉·坦佩尼: 疫苗大屠杀：一名联邦爆料人称有证据证明，20万人接种新冠疫苗后一周内死亡。
+![img](https://media.gettr.com/group20/getter/2021/09/11/15/9e38017f-eb1c-e71f-44f2-e86f2ff7c830/out.jpg)
+
+---
+
 `@miles 9/11/2021 3:27 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Dr. Sean Brooks： People who have taken the mRNA vaccines are to die in six months to three to five years<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>肖恩.布鲁克斯博士：接种mRNA疫苗的人将在六个月到三，五年内死亡
@@ -284,29 +305,6 @@ G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要�
 
 🙏🙏🙏🙏🙏🙏🙏【2015诺贝尔奖颁奖文稿, 为什么伊维菌素和青蒿素每年可以拯救数以亿计的人 , 网上传言说伊维菌素是给动物吃的,可以闭嘴了】
 ![img](https://media.gettr.com/group31/getter/2021/09/09/14/6adb27b3-16c1-bb41-5f53-00df03d59828/0d66d719a5d3661589711dfe35357278.jpg)
-
----
-
-`@miles 9/9/2021 1:28 PM (UTC)`
-
-9.8日：打破中共房产骗局的第一块砖头……<br/><br/><br/>【多地传出恒大 “爆雷”多地的恒大办事处都出现要求兑付的投资者，他们买了 “恒大财富”的理财产品，但这几天无法兑付，财经界亦有消息指，恒大停止偿付两家银行的债务利息。评级机构惠誉周三将中国恒大信用评级连降三级。】
-![img](https://media.gettr.com/group16/getter/2021/09/09/13/fabe58fd-1f49-4649-e367-0c5caa0cb85f/8ef727fcceb48c2f5dac03db5178104d.jpg)
-
----
-
-`@miles 9/9/2021 4:55 AM (UTC)`
-
-9/08/2021 Miles Guo: What are the purposes of Illuminati? Why will sperms and eggs be the most valuable things in the world? The New Federal State of China has surpassed Illuminati, we have the real strengths, and we don’t have to beg anyone else!<br/><br/>9/08/2021文贵直播：光明会的宗旨是什么？为什么世界上最值钱的将是精子和卵子？新中国联邦的追求超越了光明会，我们拥有真正的实力，不用看任何人的脸色!<br/>
-![img](https://media.gettr.com/group34/getter/2021/09/09/04/c700713f-7534-611d-a1c6-e0fd3c9a3e43/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 9/9/2021 1:29 AM (UTC)`
-
-And globally today was our best new user sign-up day since July 14th!<br/><br/>Also, 7,500 patriotic Brazilians signed up for #GETTR just during this evening’s interview with @AnaPaulaVolei on Jovem Pan!!!
-> `@jasonmillerindc 9/9/2021 1:00 AM (UTC)`<br/>Wow wow wow - we’ve just had our biggest-ever one-day jump in new user sign-ups in Brazil - over 30,000! 💪🇧🇷🇧🇷🇧🇷💪<br/><br/>"I can't say enough positive things about Brazil and the people of Brazil, and the people who make up our user base," Miller said. "Free speech is a real issue, not just in the U.S., but around the world." <br/><br/>https://www.foxnews.com/politics/jason-miller-detainment-brazil-brushback
 
 ---
 
