@@ -15,6 +15,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 3:27 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Dr. Sean Brooks： People who have taken the mRNA vaccines are to die in six months to three to five years<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>肖恩.布鲁克斯博士：接种mRNA疫苗的人将在六个月到三，五年内死亡
+![img](https://media.gettr.com/group16/getter/2021/09/11/15/261429cc-1b34-2716-c3e5-17feb9178304/out.jpg)
+
+---
+
+`@miles 9/11/2021 3:25 PM (UTC)`
+
+是吗？
+![img](https://media.gettr.com/group6/getter/2021/09/11/15/da52032c-b46f-decc-858c-c1f28862d06d/784e1426937878e400eac7a04580f4df.jpg)
+
+---
+
 `@miles 9/11/2021 3:15 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Prof. Bhakdi: It is terrible if your killer lymphocytes start to kill your  infected cells on the vessel wall. I want you to decide to not take the second shot vaccine.<br/><br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>巴克迪教授：吞噬淋巴细胞开始杀死血管壁上的感染细胞是很恐怖的,我希望你决定不要打第二针疫苗。
@@ -293,20 +307,6 @@ G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要�
 
 And globally today was our best new user sign-up day since July 14th!<br/><br/>Also, 7,500 patriotic Brazilians signed up for #GETTR just during this evening’s interview with @AnaPaulaVolei on Jovem Pan!!!
 > `@jasonmillerindc 9/9/2021 1:00 AM (UTC)`<br/>Wow wow wow - we’ve just had our biggest-ever one-day jump in new user sign-ups in Brazil - over 30,000! 💪🇧🇷🇧🇷🇧🇷💪<br/><br/>"I can't say enough positive things about Brazil and the people of Brazil, and the people who make up our user base," Miller said. "Free speech is a real issue, not just in the U.S., but around the world." <br/><br/>https://www.foxnews.com/politics/jason-miller-detainment-brazil-brushback
-
----
-
-`@miles 9/9/2021 1:02 AM (UTC)`
-
-9/08/2021 Miles Guo: All the CCP’s financial products and art are the tools for money laundering. The 3 authentic paintings including “Bath in Fire” and “Bath in Wine” reflect the secret history of the most powerful women in China. What do these paintings mean to the CCP kleptocrats’ families?<br/><br/>9/08/2021文贵直播：中共国的所有金融产品和艺术品都是洗钱的工具；《火浴》、《酒浴》等三幅真画反映了中国最牛的女人的秘史，这些画对中共老杂毛家族意味着什么？<br/>
-![img](https://media.gettr.com/group16/getter/2021/09/09/00/b75add80-ef42-c392-c63d-d4fed4b7d0bb/out.jpg)
-
----
-
-`@miles 9/8/2021 11:38 PM (UTC)`
-
-<br/>9月8号，尊敬的战友们好很多战友，希望明天继续大直播，抱歉的通知，大家明天没有时间只能在后天星期五上午9:00继续开始我们大直播万分的抱歉。<br/><br/>【七哥盼望着你明天能继续直播，虽然很辛苦，但是我们这里的兄弟姐妹们都盼着你的再次大直播，让我们继续这些天的寻找真理之路真相之路，对于我们拥有一个上万人的企业太重要了，我们不想再当奴隶了，我们想得到真相解救更多的人，拜托了几个带去上万个同胞的感谢。】
-![img](https://media.gettr.com/group13/getter/2021/09/08/23/5faf18a7-bcaf-1eab-721f-68a6e38a7abf/out.jpg)
 
 ---
 
