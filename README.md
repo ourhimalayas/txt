@@ -28,13 +28,13 @@
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021/09/11文贵盖特精要](/content/gnews/6/README.md)
+### [技术进步有助于穿透防火墙 传播病毒真相](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021/09/11文贵盖特精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年9月11日 文贵先生盖特 26](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月11日 文贵先生盖特 25](/content/gnews/8/README.md)
+### [2021年9月11日 文贵先生盖特 26](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/9/README.md)
@@ -151,36 +151,36 @@
 ### [彭博社分析师认为恒大债务危机将会带来系统性风险](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021/09/11文贵盖特精要](/content/gnews/47/README.md)
+### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/47/README.md)
+ ` 文永`
+
+### [2021/09/11文贵盖特精要](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [白宫承认拜登与习有私下交流](/content/gnews/48/README.md)
+### [白宫承认拜登与习有私下交流](/content/gnews/49/README.md)
  ` HimalayaRussia`
 
-### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/49/README.md)
+### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/50/README.md)
  ` MG 澳喜农场多语组`
 
-### [“政治黑天鹅事件”迫使习对台作战2号计划破产](/content/gnews/50/README.md)
+### [“政治黑天鹅事件”迫使习对台作战2号计划破产](/content/gnews/51/README.md)
  ` 纽约香草山MOS01`
 
-### [独裁者为何都爱斗争哲学？](/content/gnews/51/README.md)
+### [独裁者为何都爱斗争哲学？](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/52/README.md)
+### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [9.11恐怖袭击20周年](/content/gnews/53/README.md)
+### [9.11恐怖袭击20周年](/content/gnews/54/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/54/README.md)
+### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [烧香供养菩萨与消灭共产党](/content/gnews/55/README.md)
+### [烧香供养菩萨与消灭共产党](/content/gnews/56/README.md)
  ` G-NEWS TAIWAN`
 
-### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/56/README.md)
+### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/57/README.md)
  ` 英喜-粵語組`
-
-### [中美脱钩 汇丰退出美国](/content/gnews/57/README.md)
- ` 温哥华圆成农场🇨🇦`
 
