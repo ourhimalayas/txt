@@ -2,27 +2,53 @@
 ---
 
 
-## 9.11恐怖袭击20周年
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1526381/)
+## “政治黑天鹅事件”迫使习对台作战2号计划破产
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1526685/)
 
-**圆成农场新闻组**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/id13226550-GettyImages-1235178684-600x400-1-edited.jpg)图片来源：网络
-周六（9月11日）是9·11恐袭20周年，全球各地纷纷举行纪念活动，在美国近3000名遇难者的家人将聚集在纽约、宾夕法尼亚和华盛顿特区，参加纪念活动。
+作者：纽约香草山农场 – 捆绑CCP一千年
 
-周六，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）也在布鲁塞尔举行的9.11事件纪念仪式上发表讲话。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5546e0ef551359b23306ab93319bc764_500x0-1.jpg)
-爆料革命发起人郭文贵先生也在他的GETTR上发文称：我们世界上现在所存在的每个人，都活在因共产党制造的生化灾难的之中，我们每个人事实上都像这张照片中在堕落的那个人一样，我们面对着人类上前所未有的最大的恐怖威胁，那就是中国共产党！悲哀的是，全世界还在黑暗中天真幻想，今天世界上已被共产党病毒杀死的人数超过了911的多少倍？而且没有任何停止的迹象，全球还在疯狂的推广可能杀人的疫苗。新疆．阿富汗．香港．导致的灾难死亡人数都超过911N倍！希望人类早日醒来，新中国联邦肩负着重大的使命，消灭共产党，拯救全人类，彻底铲除恐怖主义的根源。
 
-新闻来源：[MILES GUO on GETTR](https://gettr.com/post/pari94b0a5)
 
-[【更新】9.11恐袭20周年 全球纪念 | 9.11事件 | 恐怖袭击 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/9/11/n13226388.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-编辑/发布：比卡丘
 
-20210911
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+据中共新华社9月7日的消息称，外交部“战狼”汪文斌当天在记者会上就台湾与洪都拉斯有关动向答记者问时，汪老调重弹地强调，“世界上只有一个中国。”同时，汪仍继续威胁台湾，声称“金元外交”注定将以失败告终。
+
+事实上，所谓的“金元外交”乃是中共反咬台湾一口的说辞。最早的“金元外交”来自美国霍华德总统，当时他对拉美国家承诺，不武力侵略并通过投资帮助拉美国家发展。因此有人认为，金元外交就是资本渗透加大棒政策。
+
+![](https://i.epochtimes.com/assets/uploads/2021/09/id13214037-515419-600x400.png)图源网络
+
+而今，汪战狼如此信心满满，难道他没有看到中共的“政治黑天鹅”事件已经上演了吗？试问，习近平9月3日计划宣布对台作战行动为何破产？据悉，中共原准备制造台湾内部军队叛乱，然后以此为由，出兵“拯救”台湾，结果黑天鹅于9月5日出人意料地出现在天安门广场。随后，中共这一邪恶的对台作战2号计划被爆料革命郭文贵先生于9月8日在大直播中曝光。于是，中共的对台作战2号计划宣告破产。可见，黑天鹅出现在天安门正是中共灭亡的征兆。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[2021年9月7号文贵直播](https://gtv.org/video/id=61375c1e637d1e60db2fe8ad)
+
+外交部正告台湾当局：挟洋自重注定失败\_http://www.news.cn/tw/2021-09/07/c\_1127837642.htm
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
 
 
 0
