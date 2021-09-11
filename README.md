@@ -28,13 +28,13 @@
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月11日 文贵先生盖特 15](/content/gnews/6/README.md)
+### [【字幕】9/11/2021文贵盖特：我们爆料革命新中国联邦，拯救很多无辜的生命和影响世界走向阳光](/content/gnews/6/README.md)
+ ` Caihongqiao`
+
+### [2021年9月11日 文贵先生盖特 20](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月11日 文贵先生盖特 14](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月11日 文贵先生盖特 13](/content/gnews/8/README.md)
+### [2021年9月11日 文贵先生盖特 19](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/9/README.md)
@@ -103,29 +103,29 @@
 ### [黑石取消收购Soho计划, 潘石屹&#8221;跑路&#8221;无望!](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [台湾替代孔子学院，在美设立“台湾华语文学习中心”](/content/gnews/31/README.md)
- ` 纽约香草山MOS02`
-
-### [俄罗斯和白俄罗斯走向经济和政治联盟](/content/gnews/32/README.md)
+### [英国的恐怖主义警报](/content/gnews/31/README.md)
  ` Charlie`
 
-### [俄勒冈州民主党州长因疫苗授权被起诉](/content/gnews/33/README.md)
+### [联合国大会召开前夕，美国会议员推动台湾加入联合国](/content/gnews/32/README.md)
+ ` 纽约香草山MOS02`
+
+### [台湾替代孔子学院，在美设立“台湾华语文学习中心”](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄罗斯和白俄罗斯走向经济和政治联盟](/content/gnews/34/README.md)
+ ` Charlie`
+
+### [俄勒冈州民主党州长因疫苗授权被起诉](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [前太平洋司令部司令哈里斯呼吁美国对台湾政策进行审查](/content/gnews/34/README.md)
+### [前太平洋司令部司令哈里斯呼吁美国对台湾政策进行审查](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/35/README.md)
+### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线:菲律宾宣布使用伊维菌素预防或治疗中共病毒(Covid-19)](/content/gnews/36/README.md)
+### [秘翻在线:菲律宾宣布使用伊维菌素预防或治疗中共病毒(Covid-19)](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [调兵10万 日本陆上自卫队举行28年来最大军演](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [华尔街日报：中共国(CCP)的抖音向未成年人推荐吸毒和性视频](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

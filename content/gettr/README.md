@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 7:42 PM (UTC)`
+
+9月11号：听爆料革命话的不是救命得新生．就是发大财：跟着共产党走进火葬场．任何有常识的人．都会进行实例对比，凡是搞神话的－搞口炮的．全都是骗，loser！【日本的情况在持续好转，病例数急速下降。 8月13日东京医学会建议全日本的医生用伊维菌素治疗COVID。】
+![img](https://media.gettr.com/group30/getter/2021/09/11/19/69add61b-0c9f-b65b-2b92-517260b7f6df/8e5ab5a210f61c3effdfd8bf6789582a.jpg)
+
+---
+
 `@miles 9/11/2021 6:33 PM (UTC)`
 
 考察G| Fashion米兰办公室的选址. 在这个时尚之都我们的意大利团队将会设计出很多惊艳的产品，将给我们带来视觉和精神上对美的冲击❤️❤️❤️🔥🔥🔥🦅🦅🦅🦅@DDNYC # GFashion 
@@ -294,13 +301,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 ⚠️理查德弗莱明博士，物理学博士，医生，核子心脏病学家，律师，新冠病毒和疫苗研究的负责人刚刚宣布：<br/> “有一件非常关键的事情，通过在疫苗中加入氧化石墨烯可以防止刺突蛋白粘附在细胞上（注：接种部位），使刺突蛋白可以穿越血脑屏障（注：进入大脑），导致朊病毒疾病（注：例如疯牛病）”<br/><br/>⚠️弗莱明博士呼吁美国人民和议员们站出来，行动起来。<br/><br/> ⚠️郭文贵先生于 2021 年 8 月 24 日宣布每一种新冠疫苗都含有氧化石墨烯纳米颗粒，弗莱明博士收到爆料革命的信息后，改变了他之前对这个问题的理解。<br/><br/> ⚠️ 弗莱明博士的声明从科学角度强有力地证实了郭先生和爆料革命无名英雄的情报的准确性和重要性及其对西方人的影响力。
 > `@purelotusheart1 9/10/2021 2:31 AM (UTC)`<br/>⚠️Dr. Richard Fleming, PhD Physics, MD, Nucleus Cardiologist, JD, leader of Covid virus & vaccines research has just announced: <br/>“there is something very critical, by having graphene oxide in the vaccines and preventing the spike proteins from attaching to cells, it makes the spike proteins available to cross the blood-brain barriers to cause the prion diseases (eg mad cow disease)”<br/><br/>⚠️Mr. Miles’ announcement on Aug 24, 2021, that each and every vaccine has graphene oxide nanoparticle,  has changed Dr. Fleming’s previous understanding of the issue.<br/><br/>⚠️ Dr. Fleming’s annoucement is a powerful scientific confirmation proving the accuracy and importance of intel from Mr. Guo and anonymous heroes of our Whistleblower Movement. 
 ![img](https://media.gettr.com/group15/getter/2021/09/10/02/16deeb83-be93-271f-1f9e-b46e9c02c653/out.jpg)
-
----
-
-`@miles 9/10/2021 1:01 AM (UTC)`
-
-2021年9月9日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>September 9，2021 Rule of Law Foundation and Society donors messages collection<br/>Rule of Law Foundation and Society appreciate all of our supporters and donors!
-![img](https://media.gettr.com/group31/getter/2021/09/10/00/addba06b-ede5-b67d-ca74-05baad5f863c/out.jpg)
 
 ---
 
