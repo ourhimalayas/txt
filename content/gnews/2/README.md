@@ -2,49 +2,19 @@
 ---
 
 
-## 台湾公布最新民调, 近九成民众不接受“一国两制”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1523377/)
+## 秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1524598/)
 
-栏目记者/责任编辑：文龍
+编译：Nstar
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-11-030153.jpg)
+2015 年，诺贝尔生理学或医学委员会在其自 6 年前颁发的唯一一个传染病治疗奖中，表彰了伊维菌素 (IVM) 的发现，这是一种用于对抗世界上一些最具破坏性的热带疾病的多方面药物。
 
+自 2020 年 3 月首次使用 IVM 对抗中共病毒以来，已有 20 多项随机临床试验 (RCT) 跟踪了此类住院和门诊治疗。2021 年报告的 IVM 治疗 RCT 的七项荟萃分析中有六项发现 COVID-19 的死亡率显著降低，与对照组相比，死亡的平均相对风险降低了 31%。与对照组相比，使用最高 IVM 剂量的 RCT 使死亡率降低了 92%（总共 400 名受试者，p&lt;0.001）。
 
+在秘鲁的大规模 IVM 治疗期间，在治疗最广泛的十个州中，30 天内的超额死亡人数平均下降了 74%。死亡的减少与所有 25 个州的 IVM 分布程度相关，p&lt;0.002。在 SARS-CoV-2 和相关的 β 冠状病毒的两种动物模型中，还观察到使用 IVM 的发病率急剧下降。IVM 的指定生物学机制，即与 SARS-CoV-2 刺突蛋白的竞争性结合，可能是非表位特异性的，可能对新出现的病毒突变株产生完全效力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-16.png)
+上表中， A) 是秘鲁全国超额全因死亡（所有年龄)数据。从 2020 年 8 月 1 日到 12 月 1 日，这些数字减少了 14 倍；然后，在限制 IVM 使用后，到 2 月 1 日增加了 13 倍。对于 A 和 B两个图，y 值是 7 天移动平均线；数据来自于秘鲁国家死亡信息系统 (SINADEF)。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
-9月9日，台湾行政院陆委会公布最新民调显示，有87.5%的民众反对且不能接受中共的所谓“一国两制”说辞，而对欧洲国家立陶宛同意以“台湾”名义设立代表处后遭到中共粗暴施压，多达89%民众对此表示强烈不满和愤慨！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-12.jpg)图片来源： RFI
-这项调查是由台湾国立政治大学选举研究中心受陆委会委托所作的，表明自香港实施国安法之后，民主自由遭侵蚀，港府在中共控制下对民主人士进行持续迫害与清算，反抗的港人伤亡及失踪案例层出不穷，且至今真相不明，这些都使台湾人深受震动，绝大多数台湾民众已经对中共所谓“一国两制”承诺表达出强烈的抗拒抵触态度。与此同时，面对中共咄咄逼人的“武统”威胁，更有82.8%的民众支持政府以任何方式捍卫国家主权和台湾民主。接受调查的民众表示，台湾的未来和两岸关系的发展，由台湾2350万人民选择和决定。本台特邀记者文龙报道。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1.jpg)图片来源： 网络
-参考链接：
-[台湾最新民调显示：近9成民众反对“一国两制”](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210909-%E5%8F%B0%E6%B9%BE%E6%9C%80%E6%96%B0%E6%B0%91%E8%B0%83%E6%98%BE%E7%A4%BA-%E8%BF%919%E6%88%90%E6%B0%91%E4%BC%97%E5%8F%8D%E5%AF%B9-%E4%B8%80%E5%9B%BD%E4%B8%A4%E5%88%B6?ref=tw_i)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
+新闻来源：[https://pubmed.ncbi.nlm.nih.gov/34466270/](https://www.news-medical.net/news/20210719/Study-proves-effectiveness-of-Artemisia-annua-against-SARS-CoV-2-in-vitro.aspx)
 
 0

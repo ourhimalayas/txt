@@ -13,20 +13,20 @@
 
 ---
 
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/1/README.md)
- ` G&#124;News TAIWAN`
+### [报道称BioNTech很快将为5-11岁儿童的疫苗寻求批准](/content/gnews/1/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [台湾公布最新民调, 近九成民众不接受“一国两制”](/content/gnews/2/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/2/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [拜登总统的演讲和电话一石激起千层浪](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
+### [剧本化的新冠病毒宣传揭示了几乎全部的美国医生都只是腐败美国医学会和疫苗工业集团的傀儡](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵先生盖特视频2021年9月9日文字精简版分享](/content/gnews/4/README.md)
- ` TS2020相聚盘古`
+### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共发誓对所有文娱工作者进行强行驯化](/content/gnews/5/README.md)
- ` 日本东京樱花团`
+### [拜登政府强推疫苗引美入深渊](/content/gnews/5/README.md)
+ ` HimalayaRussia`
 
 ### [郭先生：要防好病毒备好药少出门，提防中共投放新病毒](/content/gnews/6/README.md)
  ` MG 澳喜农场多语组`
@@ -46,8 +46,8 @@
 ### [拜登总统将颁布美国历史上最广泛的一套疫苗规定](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/12/README.md)
+ ` G&#124;News TAIWAN`
 
 ### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/13/README.md)
  ` G&#124;News TAIWAN`
@@ -85,23 +85,23 @@
 ### [拜登政府在阿富汗抛弃并留下了美国人](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线: 习近平对各行各业的重拳打压将重塑中共国社会](/content/gnews/25/README.md)
+### [秘翻在线: 新冠病毒“起源”=“来源”？](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/26/README.md)
+### [秘翻在线: 习近平对各行各业的重拳打压将重塑中共国社会](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/27/README.md)
  ` wenwu`
 
-### [阿肯色州州长反对拜登的强制疫苗新政](/content/gnews/27/README.md)
+### [阿肯色州州长反对拜登的强制疫苗新政](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [洛杉矶公立学校将强制12岁以上学生接种疫苗](/content/gnews/28/README.md)
+### [洛杉矶公立学校将强制12岁以上学生接种疫苗](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [中共影响力萎缩, 台湾华语学习中心取代孔子学院](/content/gnews/29/README.md)
+### [中共影响力萎缩, 台湾华语学习中心取代孔子学院](/content/gnews/30/README.md)
  ` GTV新闻访谈`
-
-### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
 
 ### [中企影音平台喜马拉雅宣布取消在美国进行IPO上市](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
@@ -115,17 +115,17 @@
 ### [德教云书院通过爆料革命平台拉人敛财及喜马拉雅农场联盟重要公告](/content/gnews/34/README.md)
  ` 滴水穿石`
 
-### [剧本化的新冠病毒宣传揭示了几乎全部的美国医生都只是腐败美国医学会和疫苗工业集团的傀儡](/content/gnews/35/README.md)
+### [美国联邦执法人员协会反对拜登的病毒疫苗授权](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国联邦执法人员协会反对拜登的病毒疫苗授权](/content/gnews/36/README.md)
+### [华大基因目标：收集全球基因数据并为中共军队建立基因数据库](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华大基因目标：收集全球基因数据并为中共军队建立基因数据库](/content/gnews/37/README.md)
+### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [DC每日热点0910](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,11 +151,11 @@
 ### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [【G时评】造物主的永恒“考题”](/content/gnews/47/README.md)
- ` GISELLE`
+### [两国升级军事合作，法国在澳大利亚军事存在常态化](/content/gnews/47/README.md)
+ ` 走进澳洲`
 
-### [报道称BioNTech很快将为5-11岁儿童的疫苗寻求批准](/content/gnews/48/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [【G时评】造物主的永恒“考题”](/content/gnews/48/README.md)
+ ` GISELLE`
 
 ### [美众议员坦尼向Newsmax表示：在中共国与塔利班结盟之时，拜登向中国卑躬屈膝](/content/gnews/49/README.md)
  ` 波士顿五月花农场`
@@ -181,6 +181,6 @@
 ### [威权主义大流行才是真正的威胁](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登政府强推疫苗引美入深渊](/content/gnews/57/README.md)
- ` HimalayaRussia`
+### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/57/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 

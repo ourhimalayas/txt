@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 1:46 AM (UTC)`
+
+9/10/2021 Miles Guo：Xi Jinping started to collude with Putin of Russia after being humiliated by President Obama; Wang Qishan, Zhang Hongwei, and Yao Yilin’s family are the executors of a certain global evil forces, they completely control Communist China’s moneybags and leaders, all the other Chinese are their slaves<br/><br/>9/10/2021 文贵直播：习在美国被奥巴马羞辱后和俄罗斯普京一拍即合；王岐山、张宏伟和姚家是国际某邪恶势力的中国执行人，百分百控制了国家钱袋子、领导人，其他的所有人都是奴隶<br/>
+![img](https://media.gettr.com/group46/getter/2021/09/11/01/ed09e503-4395-1f52-da59-5a87a6cc2ab9/out.jpg)
+
+---
+
 `@miles 9/11/2021 12:48 AM (UTC)`
 
 感谢为盖特辛勤付出认真工作的兄弟姐妹们！大家继续努力！👍👍👍👍💪💪💪<br/><br/>【非常感谢我在盖特得到认证了！<br/>在生活中，人们常常忘记说那两个简单的字。刚从GETTR拿到我的认证账户。我想对所有负责此事的人说声谢谢查尔斯，杰森·米勒，亨里克，黛利拉和客服。我从来没有和一个响应更快的客户支持部门打过交道，我指的不仅仅是认证，我指的是所有事情。他们总是反应迅速!<br/>如今这个客服和帮助热线被外包的时代，当你需要帮助时，不与来自外国的人交谈是令人耳目一新。 喜爱这个平台的伙伴们继续努力吧!】
@@ -304,13 +311,6 @@ Happy Brazil's Independence Day!<br/>Without independence, there is no freedom.
 `@drzevzelenko 9/6/2021 6:30 PM (UTC)`
 
 I have no delusions about winning a Nobel Prize for the tremendous success that the Zelenko Protocol has had in treating Covid as it is very political.  I do think this sends a good message though. <br/><br/>https://www.change.org/p/the-nobel-prize-committee-nobel-prize-in-medicine-to-dr-v-zelenko-zelenko-protocol-re-covid19-sars-covid2
-
----
-
-`@miles 9/6/2021 9:23 PM (UTC)`
-
-9/6/2021 Miles Guo’s GETTR: Yesterday’s black swan descending on Tiananmen Square and the collapse of the CCP’s Yan’an Cave Dwellings had tremendous psychological impacts on the CCP’s old kleptocrats, and meanwhile the CCP’s military operation plan to invade Taiwan had to change at the last minute. What do those events mean?<br/><br/>9/6/2021 文贵盖特：昨天的黑天鹅降临天安门、延安窑洞崩塌，在心理上对中共老杂毛造成了巨大影响，因此同时发生了对台作战方案的临时改变，这些事意味着什么？<br/>
-![img](https://media.gettr.com/group35/getter/2021/09/06/21/4435e061-a022-46e5-99c3-f92af027a4c1/out.jpg)
 
 ---
 

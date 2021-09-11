@@ -2,28 +2,37 @@
 ---
 
 
-## 中美关系回暖？拜登习近平通话：确保竞争不演变成冲突
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1523353/)
+## 报道称BioNTech很快将为5-11岁儿童的疫苗寻求批准
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1524937/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/30F7049F-1427-43E9-B005-8855C90D67A9.jpeg)
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.-COVID-19-Tips-1.jpg)图片来源：UNICEF
+根据《CTV新闻》9月10日报道，生物技术公司(BioNTech)的两位高管告诉《Der Spiegel报》，BioNTech将在未来几周内向全球申请批准将其COVID-19疫苗用于5-11岁的儿童，并且正在为上市做准备工作。
 
-美国白宫9月10日发声明指，总统拜登与中共党魁习近平自2月来首次通话，为两国领导人直接沟通长达7个月的空白划上句号，并形容这次通话是两国领袖之间进行的一次“广泛的、策略性的讨论”，聚焦在不让两国竞争演变成冲突方面的责任，包括“双方利益一致、以及双方利益、价值、观点有分歧的领域。”
+首席医疗官Oezlem Tuereci讲道：”在未来几周内，我们将向世界各地的监管机构提交5至11岁儿童的试验结果，并将请求批准这一年龄组的疫苗，也是在欧洲“。
 
-路透社引述一名美国高官的消息指，在这次为时90分钟的对话中，习近平及拜登两人之间的气氛是“亲切”和“坦率”，两人就一系列的跨国议题，包括新型冠状病毒 COVID-1，但通话目的不涉产生任何特定的协议及结果。
+这些自信的声明强调了与辉瑞公司合作的BioNTech公司在争取西方国家广泛批准12岁以下儿童接种疫苗的竞争中占据的领先地位。
 
-习近平表示，中美合作，两国和世界都会受益；中美对抗，两国和世界都会遭殃。中美关系不是一道是否搞好的选择题，而是一道如何搞好的必答题。
+BioNTech公司表示，预计将在9月份提交关于5至11岁儿童的监管档案资料，还制定了在今年晚些时候为6个月至2岁的儿童寻求批准的计划。他们正在调整最后的生产步骤，以便将其成熟的Comirnaty疫苗的低剂量儿科版本装瓶。
 
-拜登亦指，世界正在经历快速变化，美中关系是世界上最重要的双边关系，美中如何互动相处很大程度上将影响世界的未来。两国没有理由由于竞争而陷入冲突。美方无意改变“一个中国”原则。美方愿同中方开展更多坦诚交流和建设性对话，推动美中关系重回正轨。
+首席执行官Ugur Sahin说目前正在准备原始试验数据，以便向监管部门申报，”事情看起来不错，一切都在按计划进行“。
 
-早前，新中国联邦发起人之一郭文贵先生在美国90日病毒溯源报告届满前透露，拜登政府与中共勾兑完毕，不会就病毒是否来源于武汉病毒研究所作确认。
+亚军Moderna公司周四表示，一项在6至11岁儿童中测试其针剂的试验现已全部完成，正在另一项涉及6个月大的婴儿的研究中努力确定最佳剂量。
 
-今日，中美领袖之间“亲切”、“坦率”的破冰式通话，更令外界猜测，拜登政府是否转态，中美关系会否就此回暖。
+中共国在降低免疫接种运动的年龄限制方面一直走在前面。该国卫生当局在6月批准了科兴的疫苗在3岁儿童中的紧急使用。
 
-新闻来源：[白宫声明](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/09/readout-of-president-joseph-r-biden-jr-call-with-president-xi-jinping-of-the-peoples-republic-of-china/) / [路透社](https://www.reuters.com/world/china/biden-chinas-xi-discuss-managing-competition-avoiding-conflict-call-2021-09-10/)
+智利在很大程度上依赖科兴疫苗，本月批准在6岁以上的儿童中使用该疫苗。
+
+以色列卫生部在7月表示，如果5岁的儿童患有使他们特别容易受到COVID-19影响的疾病，他们可以注射辉瑞-生物技术公司的疫苗。
+
+这些消息让人心痛，含有氧化石墨烯的毒疫苗的世界接种率已经非常高，大药厂还在生产无数加强针剂欺骗人民继续打下去。现在连可怜的孩子都不放过，大药厂的贪婪和疫苗背后的黑势力的残忍势必让人们觉醒并反抗，但愿在孩子身上下手前能够停止推广疫苗。
+
+原文链接：
+
+[https://www.ctvnews.ca/health/coronavirus/biontech-to-seek-approval-soon-for-vaccine-for-5-11-year-olds-report-1.5579969](https://www.ctvnews.ca/health/coronavirus/biontech-to-seek-approval-soon-for-vaccine-for-5-11-year-olds-report-1.5579969)
 
 * * *
 
-*撰文｜台湾宝岛农场 天滅中共*
-*声明：以上观点仅代表作者*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/c9930e2158cc3d3f.jpg)
-+1
+发稿Spirit
+
+0
