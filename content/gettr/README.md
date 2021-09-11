@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 2:41 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/28/2021 Miles Guo：The world is under the control of only a handful of people, who are going to use the COVID virus and vaccines to eliminate the people with disabilities and to renege on the debts they owe the pension funds around the world. But all aspects of humankind and religions will be rewritten!<br/><br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/28/2021 文贵直播：世界是由极少数人把控的，要通过病毒和疫苗削减老少残疾人以赖掉各国巨额亏空的养老保险基金，但最终人类板块和宗教会被改写！
+![img](https://media.gettr.com/group11/getter/2021/09/11/14/edf19099-e7c1-71b8-efaf-32adda1a507b/out.jpg)
+
+---
+
 `@miles 9/11/2021 2:29 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Take a look at the side effects of the COVID vaccines, which jab is suitable for you?<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>看看冠状病毒疫苗的副作用是什么，有哪种疫苗适合你打呢？<br/>
@@ -300,13 +307,6 @@ And globally today was our best new user sign-up day since July 14th!<br/><br/>A
 
 9/7/2021 Miles Guo ：Xi was shocked by the fall of 4 lights at Mausoleum of Mao Zedong, the collapse of the Yan’an cave dwellings (“the caves of brothel”), and the “Black Swan” incident in Tiananmen Square. That’s why he had to cancel Plan B to invade Taiwan. God bless the Taiwanese people!<br/><br/> 9/7/2021 文贵直播：毛泽东纪念堂四灯坠落、延安窑洞坍塌和天安门黑天鹅事件给习造成了巨大震撼，迫使习不得不取消了攻台2号计划，天佑台湾人民！<br/>
 ![img](https://media.gettr.com/group7/getter/2021/09/07/23/ed6b4f6e-522d-f99d-d004-4a4be5d38a95/out.jpg)
-
----
-
-`@miles 9/7/2021 11:30 PM (UTC)`
-
-9/7/2021 Miles Guo：Kevin Ching and Nicolas Chow are the most powerful guys in Asia’s auction business; All auction houses are backed by military and political forces; Only the “original shareholders” and “board members” of PRC can play with art auctions in China.<br/><br/>9/7/2021 文贵直播：程寿康和仇国仕是亚洲拍卖界最牛的俩人；拍卖行背后都有军方和政治的势力，国内只有中共国的“原始股东”和“董事会成员”才能玩艺术品拍卖<br/>
-![img](https://media.gettr.com/group8/getter/2021/09/07/23/33f19860-d90e-1ad9-8fc6-11e466f4c818/out.jpg)
 
 ---
 
