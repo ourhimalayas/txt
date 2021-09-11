@@ -46,14 +46,14 @@
 ### [辉瑞寻求FDA批准给5-11岁儿童的疫苗](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/12/README.md)
+### [中美脱钩 汇丰退出美国](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/13/README.md)
  ` G&#124;News TAIWAN`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/13/README.md)
+### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/14/README.md)
  ` G&#124;News TAIWAN`
-
-### [快讯：拜登与习近平通电话](/content/gnews/14/README.md)
- ` HimalayaRussia`
 
 ### [中共官方宣布：中共国已有近9亿人完成新冠疫苗接种](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -85,22 +85,22 @@
 ### [视频| 中企影音平台喜马拉雅宣布取消在美国进行IPO上市](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：美国前驻阿富汗大使艾江山，现中共走狗](/content/gnews/25/README.md)
+### [美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [中共灭亡降至！文贵先生爆习拜通话内容](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [辉瑞疫苗在10月份将获批用于5-11岁儿童](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：美国前驻阿富汗大使艾江山，现中共走狗](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生解析地产大亨王健林电视采访背后的秘密](/content/gnews/26/README.md)
+### [郭文贵先生解析地产大亨王健林电视采访背后的秘密](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [王岐山及其裙带关系代表某国际黑暗组织操控中共](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：美联航强制疫苗政策升级 遭雇员坚决抵制](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [德州上诉法庭推翻地区法院关于伊维菌素治疗新冠患者的命令，终至患者死亡](/content/gnews/30/README.md)
+### [王岐山及其裙带关系代表某国际黑暗组织操控中共](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/31/README.md)
@@ -139,48 +139,48 @@
 ### [新冠疫苗设计缺陷导致疫苗有毒，并引发变异逃脱免疫监控](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [彭博社分析师关注恒大债务危机](/content/gnews/43/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [彭博社分析师认为恒大债务危机将会带来系统性风险](/content/gnews/44/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/10/2021国际财经快讯：伦敦金融工作者涌回办公室；美国企业面临中共病毒疫苗的许多担忧](/content/gnews/45/README.md)
+### [9/11/2021 国际财经快讯：美国讨论加密货币“稳定币”；摩根大通下调恒大的目标价](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [字节跳动正在与华尔街银行谈判，欲借款超过30亿美元](/content/gnews/46/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [彭博社分析师关注恒大债务危机](/content/gnews/44/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/47/README.md)
+### [彭博社分析师认为恒大债务危机将会带来系统性风险](/content/gnews/45/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/10/2021国际财经快讯：伦敦金融工作者涌回办公室；美国企业面临中共病毒疫苗的许多担忧](/content/gnews/46/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中美脱钩 汇丰退出美国](/content/gnews/47/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [德教是什么鬼](/content/gnews/48/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/49/README.md)
  ` 日本东京樱花团`
 
-### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/48/README.md)
+### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/50/README.md)
  ` 日本东京樱花团`
 
-### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/49/README.md)
+### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/51/README.md)
  ` 日本东京樱花团`
 
-### [国际要闻汇编](/content/gnews/50/README.md)
+### [国际要闻汇编](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [墙内要闻汇编](/content/gnews/51/README.md)
+### [墙内要闻汇编](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/52/README.md)
+### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [樱花灭共诗——尘世绘（新韵）](/content/gnews/53/README.md)
+### [樱花灭共诗——尘世绘（新韵）](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [樱花灭共诗——病毒真相交战](/content/gnews/54/README.md)
+### [樱花灭共诗——病毒真相交战](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 
-### [日本海关截获假名牌商品大多来自中共国](/content/gnews/55/README.md)
+### [日本海关截获假名牌商品大多来自中共国](/content/gnews/57/README.md)
  ` 日本东京樱花团`
-
-### [新的座右铭——过好今天才有更好的明天](/content/gnews/56/README.md)
- ` 日本东京樱花团`
-
-### [中共对美团等10家平台企业开展联合行政指导](/content/gnews/57/README.md)
- ` 儒为`
 
