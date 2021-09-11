@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 8:38 PM (UTC)`
+
+9月11号：郭文贵致平安集团，马明哲的视频<br/><br/>【马明哲，准备控告我们的战友巴顿将军，翟水台，天津老马，七哥你看该怎么办？】
+![img](https://media.gettr.com/group44/getter/2021/09/11/20/b2e17a59-360e-ed91-5afc-af5fb1fd10b7/out.jpg)
+
+---
+
 `@miles 9/11/2021 7:42 PM (UTC)`
 
 9月11号：听爆料革命话的不是救命得新生．就是发大财：跟着共产党走进火葬场．任何有常识的人．都会进行实例对比，凡是搞神话的－搞口炮的．全都是骗，loser！【日本的情况在持续好转，病例数急速下降。 8月13日东京医学会建议全日本的医生用伊维菌素治疗COVID。】
@@ -290,16 +297,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 `@purelotusheart1 9/10/2021 2:31 AM (UTC)`
 
 ⚠️Dr. Richard Fleming, PhD Physics, MD, Nucleus Cardiologist, JD, leader of Covid virus & vaccines research has just announced: <br/>“there is something very critical, by having graphene oxide in the vaccines and preventing the spike proteins from attaching to cells, it makes the spike proteins available to cross the blood-brain barriers to cause the prion diseases (eg mad cow disease)”<br/><br/>⚠️Mr. Miles’ announcement on Aug 24, 2021, that each and every vaccine has graphene oxide nanoparticle,  has changed Dr. Fleming’s previous understanding of the issue.<br/><br/>⚠️ Dr. Fleming’s annoucement is a powerful scientific confirmation proving the accuracy and importance of intel from Mr. Guo and anonymous heroes of our Whistleblower Movement. 
-![img](https://media.gettr.com/group15/getter/2021/09/10/02/16deeb83-be93-271f-1f9e-b46e9c02c653/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@purelotusheart1 9/10/2021 2:45 AM (UTC)`
-
-⚠️理查德弗莱明博士，物理学博士，医生，核子心脏病学家，律师，新冠病毒和疫苗研究的负责人刚刚宣布：<br/> “有一件非常关键的事情，通过在疫苗中加入氧化石墨烯可以防止刺突蛋白粘附在细胞上（注：接种部位），使刺突蛋白可以穿越血脑屏障（注：进入大脑），导致朊病毒疾病（注：例如疯牛病）”<br/><br/>⚠️弗莱明博士呼吁美国人民和议员们站出来，行动起来。<br/><br/> ⚠️郭文贵先生于 2021 年 8 月 24 日宣布每一种新冠疫苗都含有氧化石墨烯纳米颗粒，弗莱明博士收到爆料革命的信息后，改变了他之前对这个问题的理解。<br/><br/> ⚠️ 弗莱明博士的声明从科学角度强有力地证实了郭先生和爆料革命无名英雄的情报的准确性和重要性及其对西方人的影响力。
-> `@purelotusheart1 9/10/2021 2:31 AM (UTC)`<br/>⚠️Dr. Richard Fleming, PhD Physics, MD, Nucleus Cardiologist, JD, leader of Covid virus & vaccines research has just announced: <br/>“there is something very critical, by having graphene oxide in the vaccines and preventing the spike proteins from attaching to cells, it makes the spike proteins available to cross the blood-brain barriers to cause the prion diseases (eg mad cow disease)”<br/><br/>⚠️Mr. Miles’ announcement on Aug 24, 2021, that each and every vaccine has graphene oxide nanoparticle,  has changed Dr. Fleming’s previous understanding of the issue.<br/><br/>⚠️ Dr. Fleming’s annoucement is a powerful scientific confirmation proving the accuracy and importance of intel from Mr. Guo and anonymous heroes of our Whistleblower Movement. 
 ![img](https://media.gettr.com/group15/getter/2021/09/10/02/16deeb83-be93-271f-1f9e-b46e9c02c653/out.jpg)
 
 ---
