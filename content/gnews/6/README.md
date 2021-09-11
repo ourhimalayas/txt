@@ -2,18 +2,17 @@
 ---
 
 
-## 新中国联邦最关键要做让中国人了解真相
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1526255/)
+## 2021年9月11日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1526463/)
 
-**【郭先生直播摘要】2021.9.8 新中国联邦最关键要做让中国人了解真相**
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-**郭先生：**
+【**🆘**Important information about CCP virus, vaccine and antidote, please bookmark and forward】 8/24/2021 Miles Guo：Both masks and vaccines contain graphene, and its residuals in the human body can never be removed! The CCP together with the 70 major families in the world control 80% of the 10 key raw materials for pharmaceuticals, including the application of graphene in medical treatment.
 
-接下来我觉得未来两三个月，所有的手机互联网在国内会严格控制，但是由于技术的进步，它是封不住的，包括天空WiFi呀，包括新的这个iPhone啊，包括现在整个在俄罗斯，在蒙古，包括在这个尼泊尔周围，都很多人在搞所谓的翻墙软件，所以说这个未来国内的墙越来越难翻了。那么今天我下午谈的一个事情就是要跟我们Gclub，要跟我们盖特啊，还有GTV要合作的一个叫网络供应商，包括就提供中国人可能很快啊，在各个方面看网络能够穿过防火墙，甚至推翻防火墙，包括和某国政府，我们一会马上会有一个短的一个视频会。那么这个视频会其中会谈到如何在他的国家，建立一个能让中共所有国内咱同胞们看到更多国外的真实信息，特别是冠状病毒和疫苗真相面前，我觉得中国人最重要的，我觉得就是要获得真实的信息。我们让大家开智明眼的时候，大家能想到他能救命啊，如果中国人真的明白病毒和冠状病毒的整个来源和打疫苗的危害，我相信很多人不会打疫苗的，我们不要去怪他们，我们现在给了多少钱，不如让他们看清事情的本质和真相。这个我们爆料革命新中国联邦一定要有这个胸怀。
+【**🆘**有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】 8/24/2021 文贵直播：口罩和疫苗都含有石墨烯，它们在人体内的残留物将永远无法消除！包括中共老杂毛在内的全球70大家族投资了控制了10大医药关键原材料的80%，包括石墨烯在医疗中的使用！
 
-视频剪辑：北方信使
-听写：雨山溪桥客
-字幕+视频制作：小腾腾说
-*编辑&发布：黎明的光芒*
+[【2021年9月11日】文贵先生盖特原文](https://gettr.com/post/parb0fb3b5)
+
+**喜联盟Gnews编辑部**
 
 0

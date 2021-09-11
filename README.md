@@ -28,14 +28,14 @@
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦最关键要做让中国人了解真相](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [2021年9月11日 文贵先生盖特 4](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [关于政治、艺术和腐败关系](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [2021年9月11日 文贵先生盖特 3](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [9/03郭文贵直播：平安集团发展史囊括中共国各大家族的盗国史（粤语配音）](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [2021年9月11日 文贵先生盖特 2](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -67,22 +67,22 @@
 ### [9月8日恒大地产陕西公司 横幅：恒大还我血汗钱](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021/09/09 科顿议员：是追究托尼•福奇责任的时候了](/content/gnews/19/README.md)
+### [2021/09/08《红色轮盘》—记录红色政权内部运作及方式](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/09 川普：习近平可能会对台湾采取军事行动](/content/gnews/20/README.md)
+### [2021/09/09 科顿议员：是追究托尼•福奇责任的时候了](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声| 中共对所有文娱工作者强行驯化](/content/gnews/21/README.md)
+### [2021/09/09 川普：习近平可能会对台湾采取军事行动](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声| 中共对所有文娱工作者强行驯化](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/22/README.md)
+### [有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [视频| 蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [视频| 911事件 20周年在即, 阿富汗局势陷入轮回](/content/gnews/24/README.md)
+### [视频| 蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [秘翻在线：法国前卫生部长阿涅丝·比赞被共和国法院以 &#8220;危害他人生命 &#8220;罪名起诉](/content/gnews/25/README.md)
