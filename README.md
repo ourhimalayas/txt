@@ -37,14 +37,14 @@
 ### [2021年9月10日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [郭先生：要防好病毒备好药少出门，提防中共投放新病毒](/content/gnews/9/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/9/README.md)
+ ` wenwu`
+
+### [郭先生：要防好病毒备好药少出门，提防中共投放新病毒](/content/gnews/10/README.md)
  ` MG 澳喜农场多语组`
 
-### [拜登总统将颁布美国历史上最广泛的一套疫苗规定](/content/gnews/10/README.md)
+### [拜登总统将颁布美国历史上最广泛的一套疫苗规定](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -67,23 +67,23 @@
 ### [墙内世界](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/10大卫作战室直播精要](/content/gnews/19/README.md)
+### [有声| 加拿大联邦大选法语辩论日，人民党支持率激增](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声| 台湾最新民调显示：近9成民众反对“一国两制”](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声| 共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [2021/09/10大卫作战室直播精要](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大各行各业的民众静默抗议疫苗护照](/content/gnews/20/README.md)
+### [加拿大各行各业的民众静默抗议疫苗护照](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [拜登政府在阿富汗抛弃并留下了美国人](/content/gnews/21/README.md)
+### [拜登政府在阿富汗抛弃并留下了美国人](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共房地产市值高过美德法日英](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [习近平首个雄安新区项目失败国际项目会赢吗？](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [后院起火 第三集](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线: 习近平对各行各业的重拳打压将重塑中共国社会](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
@@ -103,29 +103,29 @@
 ### [拜登将发布美国历史上最广泛的疫苗授权](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [德教云书院通过爆料革命平台拉人敛财及喜马拉雅农场联盟重要公告](/content/gnews/31/README.md)
+### [中企影音平台喜马拉雅宣布取消在美国进行IPO上市](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
+
+### [中共对所有文娱工作者强行驯化](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [美国共和党州长准备就违宪的疫苗接种任务起诉拜登政府](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [德教云书院通过爆料革命平台拉人敛财及喜马拉雅农场联盟重要公告](/content/gnews/34/README.md)
  ` 滴水穿石`
 
-### [剧本化的新冠病毒宣传揭示了几乎全部的美国医生都只是腐败美国医学会和疫苗工业集团的傀儡](/content/gnews/32/README.md)
+### [剧本化的新冠病毒宣传揭示了几乎全部的美国医生都只是腐败美国医学会和疫苗工业集团的傀儡](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国联邦执法人员协会反对拜登的病毒疫苗授权](/content/gnews/33/README.md)
+### [美国联邦执法人员协会反对拜登的病毒疫苗授权](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华大基因目标：收集全球基因数据并为中共军队建立基因数据库](/content/gnews/34/README.md)
+### [华大基因目标：收集全球基因数据并为中共军队建立基因数据库](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/35/README.md)
+### [医院凶杀案：医院拒绝法庭的伊维菌素治疗令导致一位参战的美国退伍军人死亡](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC每日热点0910](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：澳大利教师团结起来反对强制接种疫苗](/content/gnews/37/README.md)
- ` 秘密翻译组G-Translators`
-
-### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/38/README.md)
- ` 秘密翻译组G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [09/08/2021 财经快讯： 比特币暴跌引发 Coinbase系统延迟和故障；比特币成为萨尔瓦多的法定货币首日崩盘引发抗议](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [CCP必灭之家庭篇](/content/gnews/47/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登总统将颁布美国历史上最广泛的一套疫苗规定](/content/gnews/48/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [G时评：无我之境，就是涅槃](/content/gnews/49/README.md)
+### [【G时评】造物主的永恒“考题”](/content/gnews/47/README.md)
  ` GISELLE`
 
-### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/50/README.md)
+### [报道称BioNTech很快将为5-11岁儿童的疫苗寻求批准](/content/gnews/48/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [美众议员坦尼向Newsmax表示：在中共国与塔利班结盟之时，拜登向中国卑躬屈膝](/content/gnews/49/README.md)
+ ` 波士顿五月花农场`
+
+### [中共官宣确保国庆双节市场供应充足，疑新闻舆论造假](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
+
+### [CCP必灭之家庭篇](/content/gnews/51/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登总统将颁布美国历史上最广泛的一套疫苗规定](/content/gnews/52/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [G时评：无我之境，就是涅槃](/content/gnews/53/README.md)
+ ` GISELLE`
+
+### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [观郭先生9月8日直播感想](/content/gnews/51/README.md)
+### [观郭先生9月8日直播感想](/content/gnews/55/README.md)
  ` 纽约香草山MOS03`
 
-### [威权主义大流行才是真正的威胁](/content/gnews/52/README.md)
+### [威权主义大流行才是真正的威胁](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登政府强推疫苗引美入深渊](/content/gnews/53/README.md)
+### [拜登政府强推疫苗引美入深渊](/content/gnews/57/README.md)
  ` HimalayaRussia`
-
-### [COVID疫苗：公众需要的不只是“相信我们”（2/2）](/content/gnews/54/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [COVID疫苗：公众需要的不只是“相信我们”（1/2）](/content/gnews/55/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [共产党就是中国合法光明会](/content/gnews/56/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [9/10/21 香港快讯 律政司控支联会「煽动颠覆」](/content/gnews/57/README.md)
- ` 英喜-粵語組`
 

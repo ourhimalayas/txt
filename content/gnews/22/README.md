@@ -2,218 +2,66 @@
 ---
 
 
-## 中共房地产市值高过美德法日英
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1523613/)
+## 2021/09/10大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524769/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-10.jpg)[https://gtv.org/video/id=613addf3784c5a2583545357](https://gtv.org/video/id=613addf3784c5a2583545357)
+2021年9月10日
 
+**主播**：大卫 / **嘉宾**：舒平风
 
-马明哲现在出事儿的时候
-Ahora que Mingzhe Ma está en problemas
+[GTV视频链接](https://gtv.org/video/id=613b3ac7be28c76ac944fffa)
 
-查马明哲的时候
-Cuando lo estaban investigando
 
-你想到中国房地产是多少钱吗?
-Has pensado cuánto vale la propiedad inmobiliaria en China?
 
-我现在问一件(事), 大卫
-Ahora te pregunto una cosa, David
+**板块1–国际政治**
 
-你知道中国房地产整个市值多少吗?
-¿Sabes cuánto es el valor total del mercado de las propiedades inmobiliarias en China?
+1.美-中-阿现阶段大背景：中共派官员与塔利班代表在喀布尔会谈；在塔利班默许的情况下，200多名困在阿富汗的美国人成功撤离；塔利班打算“911”在阿富汗宣布建国；中共声明过境南海的舰船要提前向其报备。
 
-我觉得有60万亿左右吧
-Yo pienso que son aproximadamente 60 billones
+2. 拜登致电习近平强调设置“守护者”防止竞争转化成冲突，表明中共前期布置的筹码成功施压美国。拜登政府正在采用“绥靖政策”，将促使中共更加嚣张，类似二战前期国际政治局势。
 
-我也知道你会说是60万亿
-Yo sabía que ibas a decir 60 billones
+3. 比尔·格兹撰文《华盛顿时报》指出针对前任总统川普，前情报官员对其进行“政治化”攻击、选择性汇报情报和信息，合理解释在川普执政最后时期“政令出不了白宫”。
 
-这是官方数字
-Este es el número oficial
+**板块2–中共病毒**
 
-中国房地产是90万亿
-La propiedad inmobiliaria de China es 90 billones
+1.拜登政府正强推疫苗，在民意基础不高的基础上，联邦执法人员协会（FLEOA）明确反对疫苗授权；阿拉斯加州长将运用《第25号修正案》罢免总统回应强推疫苗授权，拜登政府推行阻力极大。
 
-90万亿你知道大卫意味着什么?
-David, ¿sabes qué significa estos 90 billones?
+2. 法国也出现相似情形。英国已经要求小范围人口聚集地，例如夜店实行“疫苗护照”政策，由于有抗议疫苗事件，并未全面实行。随着疫苗真相逐步曝光，以后将会有大量法律诉讼。
 
-安红你知道吗?
-Anhong, ¿sabes?
+3.比尔·盖茨背景的基金参与投资病毒研发、解药研发、疫苗研发全过程。多年前已有计划欲通过“疫苗计划”削减人口实现碳零排放。
 
-你知道美国是多少吗?
-¿Sabes cuánto es en EE. UU?
+3.福奇通过下属的生态健康联盟向武汉实验室提供病毒功能增强技术。中共国单方面删除相关数据和资金走向，美国方面逐渐爆出资金流向（400万美元资助武汉实验室）、实验数据（武汉实验室病毒的病毒载量是自然菌株的10000倍、改造本不能感染人类的动物病毒具有传染性、无症状感染兼备有潜伏期）。
 
-日本多少吗? 德国, 法国
-En Japón, Alemania y Francia
+4.中共以权利为核心、实行“一帮流氓干掉另一帮流氓再重新洗牌”模式、没有道德底线，并且犯罪的成本和代价很低。西方社会以宗教和法律约束相对成本和代价高。兰德·保罗呼吁将向国会撒谎的福奇判处五年监禁，相比福奇的作恶太轻。战友持续传播中共病毒真相让西方世界了解和接收。
 
-你知道这几个国家加在一起的和是多少
-Sabes cuánto es el total de todos estos países
+**板块3–国内形式**
 
-你们知道吗?
-¿Lo saben?
+1.恒大爆雷，内部员工开始密集维权。中共国让恒大重新设定债务条款缓解债务紧张，计划延长还债时间私下操作不良资产再次“左手倒右手”，中资习惯性在资本市场“耍赖”行为。国开行副行长何兴翔被调查起诉判无期徒刑。
 
-这些美国, 日本, 德国, 法国, 英国加在一起
-Así como EE. UU, Japón, Alemania, Francia y Reino Unido, sumando a todos
+2.中共割韭菜模式：政府推高股市，银行借机将债务和不良资产打包以理财基金形式再销售，各大地产“大亨”利用假票据抵押和再抵押，结合中共宣传媒体造势，吸引老百姓的资金来接盘。
 
-它还不到90万亿
-No llega ni a 90 billones
+*编辑：【英国伦敦喜庄园编辑部】*
 
-(只有) 80万亿
-(Solamente) hay 80 billones
+*听写：call me uncle | 校对：乐禧禧* *| Page：我是球大哥*
 
-就是中国共产党的房地产市场
-Significa que el mercado inmobiliario del PCCh sobrepasa
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-是这些美法德意日总和还超过你
-A estos cinco países mencionados anteriormente
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
 
-你知道共产党的这个真实的
-Sabes cuál es el porcentaje real
+![](https://assets.gnews.org/wp-content/uploads/2021/09/090846.jpg)
 
-它的GDP的多少倍吗
-En cuanto al producto bruto interno (PBI) de PCCh
 
-没概念吧, 兄弟们
-No tienen idea, ¿cierto? Hermanos
 
-你们几个都没有 (知道的)
-Todos ustedes no saben
 
-看谁举手啊
-A ver quién se levanta la mano
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-打断我啊, 500%
-Para interrumpirme, son 500%
 
-官方说是400%
-Oficialmente dicen que es el 400%
+编辑：【英国伦敦喜庄园编辑部】
 
-实际是500%
-En realidad es el 500%
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-你知道美国是多少倍吗?
-¿Sabes cuánto es en EE. UU?
 
-你们几个知道吗?
-Ustedes saben?
-
-美国的房地产总市值
-El valor total del mercado de las propiedades inmobiliarias en EE. UU
-
-是它的GDP的1.6倍
-Es 1.6 veces de su PBI
-
-事实上, 达2倍
-Realmente, alcanza el doble
-
-日本大概得2倍多
-Al igual que en Japón
-
-英国3.5倍, 法国3.5倍
-En Reino Unido y Francia es el triple y medio
-
-德国大概3倍左右
-Alemania es aproximadamente el triple
-
-那么, 我告诉你
-Entonces, te digo
-
-这是什么概念
-En qué consiste esto
-
-美国房地美当年出事的时候
-En aquel momento cuando Freddie Mac estaba en problemas
-
-你知道它的房地产GDP是多少吗?
-¿Sabías cuanto fue su PBI de la propiedad inmobiliaria?
-
-是它的GDP
-Es su PBI
-
-房地产的总额是它的GDP 1.6倍而已
-El valor total de la propiedad inmobiliaria es nada mas el 1.6 veces de su PBI
-
-160%
-160%
-
-现在的美国房地产还是在160%
-Actualmente, la propiedad inmobiliaria de EE. UU sigue siendo el 160%
-
-当年的日本经济危机
-La crisis económica de Japón en ese entonces
-
-房地产是它的 (GDP) 300%
-La propiedad inmobiliaria es el 300% de su PBI
-
-就是今天共产党的
-Significa que hoy el PCCh
-
-已经超过300的二倍了
-Ya supera el doble del 300%
-
-基本是300% (的二倍), 兄弟
-Hermano, básicamente (es el doble) de 300%
-
-你看这个经济
-Mira esta economía
-
-我再跟你说
-Y luego te digo
-
-一个你没有想到
-Algo que no se te ha ocurrido
-
-所有这些数据更可怕的事情
-Que es algo más terrible que todos estos datos
-
-美意法英日人家是包含了所有的
-El valor de la propiedad inmobiliaria de estos cinco países involucra todo
-
-就是他是资本市场, 市场经济
-Lo que es su mercado capital y de economía
-
-没有什么老宅, 新宅, 农村宅, 什么宅
-No existe lo que es vivienda vieja, nueva, rural, entre otros
-
-它都是房地产
-Todos son propiedades inmobiliarias
-
-只要你有贷款的
-Mientras tengas un préstamo
-
-只要有市值的, 都算在里边了
-Siempre tenga un valor en el mercado, se tomará en cuenta
-
-可以说是100%
-Puede decir que es el 100%
-
-中共国的房地产只包含商品房
-Las propiedades inmobiliarias del PCCh solamente está incluido vivienda de productos básicos
-
-没含安红她老家那的房子
-Excluyendo la casa de Anhong en su ciudad natal
-
-也没(含)盖喜安娜她祖爷的房
-Tampoco incluye la casa del bisabuelo de Gaixianna
-
-(中共国) 就是这纯商业房
-(En la República Popular de China) es simplemente vivienda comercial
-
-就(已经)90万亿美元
-Y vale 90 billones de dólares
-
-原视频日期：06/09/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1434804790437957633?s=24
-视频时间段：0:00-2:10
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -2,39 +2,46 @@
 ---
 
 
-## 加拿大各行各业的民众静默抗议疫苗护照
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1524754/)
+## 有声| 台湾最新民调显示：近9成民众反对“一国两制”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1524904/)
 
-**By:秘翻新闻**
+配音：香草山美食部-玫瑰园
 
-***2021-9-10***
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-**新闻摘要:**
 
-1、香港的64纪念馆遭警方突袭
 
-2、中共六中全会即将召开 关注点有哪些
 
-3、国开行副行长何兴祥接受纪律审查和监察调查
 
-4、猪肉跌到白菜价 中国猪企全面亏损
 
-5、调查：TikTok将性和毒品视频推送给未成年人
 
-6、拜登最新强制疫苗令涉及1亿美国人 违规者面临处罚
+据美国之音9月10日[报道](https://www.voachinese.com/a/new-polls-in-Taiwan-show-nearly-90-of-population-oppose-one-country-two-systems-20210909/6220058.html)，台湾行政院大陆事务委员会星期四公布的最新一项民调显示，有87.5%的民众反对北京的“一国两制”，另有89.4%的民众反对北京对台湾的外交打压。
 
-7、中共威胁称，将派军舰进入美国领海
+这项由台湾国立政治大学选举研究中心，受陆委会委托所作的民调还显示，88.8%的台湾民众反对中共当局在立陶宛同意让台湾以“台湾”名义设立代表处后，一再以经济，外交手段对立陶宛施压。88.6%的民众支持蔡英文政府持续与美国等理念相近的国家合作，确保台海和平稳定的现状。另有81.3%的民众支持政府强化国家安全与自我防卫能力；82.8%的民众支持政府捍卫国家主权和台湾民主。
 
-8、加拿大各行各业的民众静默抗议疫苗护照
 
-9、洛杉矶联合学区或强制学生接种CCP病毒疫苗
 
-10、美中太空战 美上将：中共在开发卫星杀手
+**文字版原文：[台湾最新民调显示：近9成民众反对“一国两制”](https://gnews.org/zh-hans/1524445/)**
 
-**GTV链接：**[https://gtv.org/video/id=613b1e2bbe28c76ac944f5c7](https://gtv.org/video/id=613b1e2bbe28c76ac944f5c7)
+作者：纽约香草山农场 – 四季
 
-* * *
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+
+*音频处理：喜山必胜Maverick
+发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
 0
