@@ -2,33 +2,26 @@
 ---
 
 
-## 洛杉矶公立学校将强制12岁以上学生接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524335/)
+## 秘翻在线：习拜通话“不平等”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1525080/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-105.png)
-华盛顿邮报消息，洛杉矶公立学校董事会9月9日当天以6比0全票通过, 强制要求公立学校12岁及以上的学生接种疫苗的决策。洛杉矶成为美国第一个大规模地强制疫苗接种的学区。
+#### 撰稿：Julia
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-20.jpg)图片来源：DW
+据人民网9月10日报道，北京时间10日上午，习近平应约同美国总统拜登通电话,就中美关系和双方关心的问题进行了交流和沟通。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide13-1.jpeg)
+消息称，习近平在通话中指出，中美关系目前遭遇的“困难”是因为美国采取的对华政策导致的。“中美能否处理好彼此关系，攸关世界前途命运”。“中美合作，两国和世界都会受益；中美对抗，两国和世界都会遭殃。中美关系不是一道是否搞好的选择题，而是一道如何搞好的选择题。”
 
-据悉, 该决策要求12岁及以上的公立学校学生，必须在11月21日前接种第一针，12月中旬前接种第二针。另据洛杉矶卫生局报告，截至8月下旬，已有超过一半的12至18岁的学生至少接种了一剂新冠疫苗，但仍然有大约17.5万名符合条件的学生没有接种。民调显示，这些学生的家长担心疫苗对孩子的健康产生长期影响。
+习的这一席话在外界听来充满了威胁与逼迫就范的意味，不知双方是否就中共提出的“三条底线”“两份清单”已达成一定的共识，拜登则表示，“两国没有理由由于竞争而陷入冲突。美方无意改变一个中国的政策。”拜登还表示，美方愿同中方开展交流和对话，“确定双方可以开展合作的重点和优先领域，避免误解误判和意外冲突，推动美中关系重回正规”。双方在通话中还讨论了气候的问题。
 
-近期以来,全球各地反对强制注射疫苗,强制推行疫苗护照的呼声和抗议活动此起彼伏,而随者疫苗接种人群的不断扩大, 未来世界将要面临的潜在疫苗危机将日益严重.
+在中共官媒的报道中，习拜通话依旧充满了习一贯的强势与不可违逆的意味，而拜登不仅没有抗横之意，反而对习表现出“谦卑”的姿态。
 
-(本文仅代表作者观点）
+同一天，新华网还转发了来自央视新闻客户端的一则消息，暗指中共病毒来自美国。消息借新冠病毒起源于北卡实验室这一事实，将造成此次大流行的新冠病毒来源“甩锅”给了美国。
 
-参考链接：[Los Angeles mandates student vaccinations in nation’s second-largest school district](https://www.washingtonpost.com/education/2021/09/09/los-angeles-school-district-student-vaccine-mandate/)
+如果将习拜互动看作“扳手腕”的角力，以上信息表明，习那200斤身躯的霸气已经压住了拜登嬴弱的身躯。未来拜登是否会有出人意料的表现呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+新闻来源： [http://www.news.cn/politics/leaders/2021-09/10/c\_1127847695.htm](http://www.news.cn/politics/leaders/2021-09/10/c_1127847695.htm)
 
-终审：文龍
-校对/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
 0

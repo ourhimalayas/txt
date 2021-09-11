@@ -2,32 +2,20 @@
 ---
 
 
-## 阿肯色州州长反对拜登的强制疫苗新政
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1524349/)
+## 秘翻在线：国会议员不受拜登疫苗强制令约束
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1525079/)
 
-栏目记者：禹水沃土
-责任编辑：晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-106.png)
-9月9日拜登宣布 强制接种疫苗的计划后，遭到 各界强烈反对，阿肯色州州长哈钦森在发布声明,公开表示：联邦政府对私营企业的这一强制要求，是不正确的!  哈钦森一直支持企业员工自愿接种疫苗，反对政府管控企业的这种自由选择。除哈钦森外, 多名州长也拜登政府这一强制令表示反对，并表示要就此提交联邦法院申诉。
+##### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-12.jpg)图片来源：半岛电视台
+据《新闻周刊》2021年9月10日报道，总统拜登对联邦雇员的疫苗强制令不适用于国会议员或为国会或联邦法院系统工作的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-4.jpeg)
+拜登周四发布了两项行政命令，要求为联邦政府工作的联邦工作人员和承包商接种中共病毒疫苗。他还要求劳工部发布紧急命令，要求雇员超过100人的企业确保其工人每周接受疫苗接种或测试。国防部、退伍军人事务部、印第安人卫生局和国家卫生研究所将完成实施他们先前宣布的覆盖250万人的疫苗接种要求。
 
-爆料革命和新中国联邦一直不遗余力的在向全世界呼吁并警示，新冠病毒并非源自天然，而是中共在实验室制造并施放的生化武器. 而世界各国政府, 在本可以通过药物防治病毒的情况下，纷纷强行接种未经临床验证的疫苗，将使人类处于不可预知的风险之中.  而拜登政府此举表明, 他们将目前疫情防治的艰难，归咎于尚未实行全民疫苗接种, 这是极端不负责任的政令。
+然而，拜登关于联邦工作人员的命令只适用于行政部门的雇员。众议院和参议院属于独立的立法部门，而法院属于联邦政府的司法部门。《纽约时报》周四援引白宫官员的话报道说，该行政命令不适用于为国会或联邦法院工作的人。
 
-(本文仅代表作者观点）
+众议院议长南希·佩洛西在4月29日的新闻发布会上说，众议院不能要求议员接种疫苗。8月，众议院的19名民主党人给国会大厦的主治医生布莱恩·P·莫纳汉博士写了一封信，要求他考虑对不能出示疫苗接种证明的议员和工作人员实行疫苗要求或每周至少两次中共病毒测试。目前还没有任何要求出台。
 
-参考链接：[Arkansas governor pushes back against Biden’s vaccine mandate](https://thehill.com/homenews/state-watch/571628-arkansas-governor-pushes-back-against-bidens-vaccine-mandate)
+新闻来源：[Members of Congress and Their Staff Are Exempt From Biden’s Vaccine Mandate](https://www.newsweek.com/members-congress-staff-exempt-biden-covid-vaccine-mandate-1627859)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龍
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

@@ -2,58 +2,33 @@
 ---
 
 
-## 两国升级军事合作，法国在澳大利亚军事存在常态化
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1524980/)
+## 教培企业华尔街英语传破产
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1525127/)
 
-#### 翻译：文扬
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
-#### 校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-1.png)
-图片来源：The Sydney Morning Herald
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-10-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-澳大利亚海军未来潜艇升级计划将于下周正式敲定。耗资900亿美元由法国海军集团建造12艘新型攻击级潜艇，两国将正式商定该项目未来两年半的计划，最早在2024年建造第一艘潜艇的压力船体。
+视频参看： 2021.09.10晚GTV新闻访谈
 
-法国海军集团最初于今年早些时候提交了该项目下一阶段的计划，但遭到澳洲政府的否决，总理莫里森和防长达顿设定了9月份达成新协议的最后期限。据政府内部多名高级消息人士证实，该协议将于下周末正式敲定。
+[https://www.youtube.com/watch?v=etZPueefe84](https://www.youtube.com/watch?v=etZPueefe84)
 
-澳大利亚和法国目前有一份《部队地位协定》，其中规定了两国部队应如何共同行动，但正在探讨为彼此的军队提供更多准入机会的方案。
+[https://gtv.org/broadcast/watch/613bf822be28c76ac9457d1c](https://gtv.org/broadcast/watch/613bf822be28c76ac9457d1c)
 
-媒体透露，目前两国已经开始谈判，将大幅提升军事合作，这将提高两国军队之间的互通性。最终可能为法国海军舰艇在澳大利亚海军基地长期驻扎或部队轮换澳大利亚训练基地铺平道路。
+编辑/校对/发稿：香草山翻译部 – Lakers
 
-几十年来，法国一直活跃在太平洋地区，重点是新喀里多尼亚和法属波利尼西亚等岛屿领土，但随着中共国日益自信，法国一直在寻求加强其在印太地区的外交和军事存在。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27.png)
 
-谈判可能使**法澳两国防务关系提升到仅次于美国的第二位**，目前美国在达尔文部署了一支约2500名海军陆战队员的轮换部队。
+**更多资讯，更多关注**
 
-澳大利亚战略政策研究所执行主任彼得•詹宁斯（PeterJennings）表示，他希望政府和海军集团同意加快交付正在阿德莱德建造的潜艇。
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-2016年，随着中共国开始将南中国海军事化，印太地区紧张局势加剧，澳大利亚启动新的潜艇部队升级计划。但该计划一直受到成本井喷、时间表失误和使用当地承包商承诺的分歧的困扰。
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-前总理艾伯特最初承诺，升级后的第一艘潜艇将在2020年代中期投入使用。现在估计，它要到2035年才会下水。去年国防部官员警告说，澳洲已经没有10年的时间窗口来保护自己免受攻击。
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
 
-在上月达顿和佩恩与法国外长会晤后，在一份联合公报中同意就 “**加强法国与澳大利亚的军事合作并使之多样化，以支持法国在该地区的军事存在**”开始谈判。
-
-詹宁斯表示，法国仍有空间在整个印太地区部署更多的军事存在，而在澳大利亚落实将是最理想的。
-
-他说：“这可能导致法国在澳大利亚有更大、更正规的军事存在。”
-
-“法国海军舰艇驻扎在（西澳）HMAS斯特林海军基地，甚至悉尼港的可能性，将是法国展示其对印太地区安全利益的有力方式。如果他们这样做，没有哪个国家比澳大利亚更能承担这一存在。”
-
-法国空军将在明年参加澳大利亚皇家空军的“漆黑”演习，而法国将在2023年首次加入与美国和澳大利亚在昆士兰海岸举行的“护身军刀”海军演习。
-
-今年，法国军队多次访问澳大利亚。文德迈尔护卫舰在达尔文进行了港口访问，法国外国军团目前正在与澳大利亚士兵参加联合演习。
-
-法国驻澳大使馆发言人说，该地区正在看到深刻的战略变化，法国“作为一个成熟的印度太平洋国家，寻求维持一个开放和包容、没有一切形式的胁迫、建立在多边主义和尊重国际法基础上的地区”。
-
-发言人说：“在这方面，澳大利亚是法国在印太平洋地区的主要合作伙伴，我们自然希望加强双边防务关系。”在未来几年中，法国武装部队将继续考虑发展与澳大利亚国防军的互操作性，以便能够在该地区和全球联合行动。
-
-原文链接：[France and Australia look to boost military ties (theage.com.au)](https://www.theage.com.au/politics/federal/france-could-access-australian-military-sites-as-countries-look-to-boost-ties-20210909-p58q7j.html)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
