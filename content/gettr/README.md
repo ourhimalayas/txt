@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 3:15 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Prof. Bhakdi: It is terrible if your killer lymphocytes start to kill your  infected cells on the vessel wall. I want you to decide to not take the second shot vaccine.<br/><br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>巴克迪教授：吞噬淋巴细胞开始杀死血管壁上的感染细胞是很恐怖的,我希望你决定不要打第二针疫苗。
+![img](https://media.gettr.com/group8/getter/2021/09/11/15/a503946b-31c3-3ff7-f4ef-f8d0ea29724f/out.jpg)
+
+---
+
 `@miles 9/11/2021 3:02 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Dr. Zelenko questions the safety of COVID vaccines and calls the vaccine as poison deathtrap<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>泽连科医生质疑新冠疫苗即死亡毒针的安全性
@@ -300,13 +307,6 @@ And globally today was our best new user sign-up day since July 14th!<br/><br/>A
 
 <br/>9月8号，尊敬的战友们好很多战友，希望明天继续大直播，抱歉的通知，大家明天没有时间只能在后天星期五上午9:00继续开始我们大直播万分的抱歉。<br/><br/>【七哥盼望着你明天能继续直播，虽然很辛苦，但是我们这里的兄弟姐妹们都盼着你的再次大直播，让我们继续这些天的寻找真理之路真相之路，对于我们拥有一个上万人的企业太重要了，我们不想再当奴隶了，我们想得到真相解救更多的人，拜托了几个带去上万个同胞的感谢。】
 ![img](https://media.gettr.com/group13/getter/2021/09/08/23/5faf18a7-bcaf-1eab-721f-68a6e38a7abf/out.jpg)
-
----
-
-`@miles 9/8/2021 9:10 PM (UTC)`
-
-9/08/2021 Miles Guo: Wang Qishan is the head of the Illuminati’s China branch, together with Zhang Hongwei and other followers, have been doing all kinds of evil things by using the power of the cult. On behalf of the sunshine of the world’s justice forces, the New Federal State of China will stab the heart of the CCP from the earth’s south, center, and north, and Eastern Europe and Russia!<br/><br/>9/08/2021 文贵直播：光明会中国分舵舵主王岐山，连同张宏伟等人利用邪教力量坏事做尽，新中国联邦和代表阳光的世界正义力量要从地球南边、中部、北方、东欧、俄罗斯，一剑插入中共心脏！<br/>
-![img](https://media.gettr.com/group4/getter/2021/09/08/21/da6c1d89-41f4-cb81-a4bc-303c9b2633e5/out.jpg)
 
 ---
 

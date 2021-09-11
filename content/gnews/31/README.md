@@ -2,48 +2,32 @@
 ---
 
 
-## 美国现政府及地方官员在农业政策方面与中共勾结
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1526124/)
+## 华尔街日报：中共国(CCP)的抖音向未成年人推荐吸毒和性视频
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526259/)
 
-翻译报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-19.png)图片来源：路透社
-9月10日，《国家脉动》（TheNationalPulse）调查记者娜塔莉·温特斯（Natalie Winters）发布文章，揭露美国拜登政府内阁成员以及地方市长在农业政策方面与中共勾结。
+2021年09月10日
 
-报道说，一些由中国共产党支持的游说团体对美国官员赞助了一些活动及对中共国的访问，作为加强两国在农业和耕作方面合作的更广泛征服的一部分，其中就包括乔·拜登的农业部长汤姆·维尔萨克（Tom Vilsack）。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/O575PLNMNJOCRJGPTCUJ4YU2NI-20.jpg)Getty Image
 
-美国腹地中国协会（USHCA）与中共国国外游说团体的关系被揭露后，有报道称中国共产党员和公司购买了美国农田，于是引起了议员们对国家安全的关注。
+**摘要翻译：**
 
-报道披露，美国腹地中国协会由密苏里州前民主党州长鲍勃·霍尔登（Bob Holden）创建，声称是一个“两党组织，致力于在美国腹地地区（包括美国五大湖到海湾之间的20个州）和中华人民共和国之间建立更强大的联系。”
+华尔街日报在最近的一篇文章中，描述了中国社交媒体应用软件抖音向未成年人推荐吸毒和色情内容的视频。儿童和未成年青少年在抖音的美国用户群中占相当大的比例。
 
-该组织的使命声明说：“我们的重点将是努力建立信任，在美国腹地地区和中国之间，用志同道合的机构将政府官员、商界领袖、教育和社区的利益联系到一起”。
+《华尔街日报》注意到一位13岁的抖音用户在该应用程序中搜索“OnlyFans”的故事，这是主要用于托管色情内容的订阅网站的名称。未成年用户随后观看了多个视频，其中包括两个色情内容的广告访问。
 
-除了与中共国政府的各个部门合作，美国腹地中国协会还“自豪地与”中美交流基金会（CUSEF）合作。
+抖音为一个13 岁的注册账户提供了至少 569 个关于吸毒、提及可卡因和冰毒成瘾的视频，以及用于在线销售毒品和用具的宣传视频。数百个类似的视频出现在《华尔街日报》其它未成年人账户的提要中。
 
-根据美国政府的说法，该组织是中共“统战部”的一个组成部分，该组织试图“收编和消除可能反对执政的中国共产党的政策和权威的人们”，并“影响外国政府采取支持北京指定政策的行动或立场”。
+新闻链接：[https://www.breitbart.com/tech/2021/09/10/wsj-communist-chinas-tiktok-suggests-videos-of-drug-use-and-sex-to-minors/](https://www.breitbart.com/tech/2021/09/10/wsj-communist-chinas-tiktok-suggests-videos-of-drug-use-and-sex-to-minors/)
 
-美国腹地中国协会还与中国人民对外友好协会（CPAFFC）共同举办活动，后者被认为是统战部的“公开亮相”，是“党国的公开武装”。美国国务院将该组织定性为寻求“直接和恶意游说”美国国家和地方领导人。
+* * *
 
-美国腹地中国协会通过与全国州长协会和美国市长会议（协会）的合作，上述与中共有联系的游说团体已经以赞助演讲或旅行的方式向一些美国官员代表示好。最近，2020年5月，乔·拜登的农业部长汤姆·维尔萨克（Tom Vilsack）参加了美国腹地中国协会“庆祝”他被任命为拜登内阁的活动。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-2021年，该组织举办了一年一度的 “美中农业圆桌会议”，其中爱荷华州州长金·雷诺兹（Kim Reynolds）、爱荷华州农业部长迈克·奈格（Mike Naig）、密苏里州农业部主任克里斯·钦恩（Chris Chinn）和明尼苏达州农业部专员托姆·彼得森（Thom Petersen）等官员进行了讲话。
 
-与中美交流基金会合作，美国腹地中国协会还赞助了由美国腹地地区市长组成的代表团前往中国的旅行。根据《外国代理人登记法》（FARA）文件，中美交流基金会还对美国记者采取了这一伎俩，为他们提供免费旅行以换取“有利的报道”。这些旅行作为更广泛游说的一部分，成功地“向媒体、主要关键人和意见领袖以及普罗公众有效地传播有关中共国的正面信息”。
+编辑：【英国伦敦喜庄园编辑部】
 
-美国腹地中国协会代表团的参与者也呼吁与中国共产党在农业和养殖业方面进行更密切的合作，其中南达科他州（South Dakota）苏瀑市（Sioux Falls）市长保罗·谭哈肯（Paul TenHaken）最近一返回（美国），即刻从互联网上抹去了他的一篇（呼吁与中共合作的）专栏文章。
-
-该专栏文章说：“现在是苏瀑市着眼于与关键的中国社区和企业发展更深入、更一致关系的时候了。各自拥有2000万人口广州和深圳的城市领导人都表示有兴趣在苏瀑市和他们的一个城市（下属）地区之间形成一些政府合作。这些关系是在我们两个社区之间建立信任和经济伙伴关系的关键第一步。我们（城市）最大的雇主之一，史密斯菲尔德食品公司，是由一家中国母公司拥有的，我的办公室还与有中国控制关系的商业发展机会进行了几次讨论。通过加强与主要中国伙伴的文化和商业关系，苏瀑市的经济将更加强劲。” 报道还披露了加入美国腹地中国协会2019年首届代表团的其他代表，包括印第安纳州卡梅尔市（Carmel）市长詹姆斯·布雷纳德（James Brainard）、俄亥俄州扬斯敦市（Youngstown）市长加莫尔·蒂托·布朗（Jamael Tito Brown）和俄亥俄州莫米市（Maumee）市长理查德·卡尔（Richard Carr）。
-
-#### **新闻来源**
-
-[REVEALED: Biden Cabinet Secretaries, Local Mayors Collude With Chinese Communist Party on Agriculture Policy](https://thenationalpulse.com/exclusive/cusef-sponsoring-events-travel-for-ag-officials/)
-
-*编辑：*
-*发布：七彩光*
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

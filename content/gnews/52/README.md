@@ -2,23 +2,26 @@
 ---
 
 
-## 辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1526018/)
+## 美拟对中共产业补贴展开调查 不排除贸易制裁
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1526023/)
 
-#### 作者： 东京樱花团｜文小白
-![](https://assets.gnews.org/wp-content/uploads/2021/09/pasted-image-0-6.png)
-[*图片来源*](https://live-production.wcms.abc-cdn.net.au/829fb2938fc4055455dcda5adb4e646a?impolicy=wcms_crop_resize&amp;cropH=1058&amp;cropW=1880&amp;xPos=0&amp;yPos=56&amp;width=862&amp;height=485)
+#### 作者：东京樱花团｜文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/09/pasted-image-0-1-3.png)
+[*图片来源*](https://static01.nyt.com/images/2019/05/03/business/00CHINASUBSIDIES-1/merlin_149515059_53b91d42-fed8-4a02-bace-0028f75773cf-master1050.jpg)
 
-据[路透社9月10日消息](https://jp.reuters.com/article/health-coronavirus-vaccines-kids-idJPKBN2G623O)：美国拜登政府首席医疗顾问、美国国家过敏症和传染病研究所所长安东尼·福奇表示，辉瑞公司制造的新型冠状病毒疫苗在10 月底以前将获批准用于5至11岁的儿童。
+长期以来，中共政府在具有重要战略意义的领域为本国产业提供贸易补贴，让相关企业比外国竞争对手更具优势，以确保中国的竞争力。[拜登政府称中国政府对本国产业的补贴正在扭曲市场竞争，正在考虑是否就贸易制裁展开调查](https://news.yahoo.co.jp/articles/d495234a7cae933f81b91bbf66abc049d6a94148)。
 
-据知情人士透露，截至 9 月底，辉瑞公司已在数千名美国国立卫生研究院 (NIH) 工作人员参加的在线会议上申请了 5-11 岁儿童的紧急使用授权 (EUA)。他说，如果可以提供足够的临床使用试验数据，10 月初的2-3周内就可能获得批准。
+美国总统拜登与习近平于周五(10日)进行了自2月以来首次通话，外电引述消息人士报道，拜登政府内包括贸易代表戴琪及商务部长雷蒙多等多名财金官员于同日下午会商，评估对中国补贴政策启动新调查，作为在贸易上向北京施压的方式之一。不排除针对约3000亿美元中国进口商品征收关税。
 
-福奇还表示，对于美国制Moderna疫苗，分析和收集 5-11 岁儿童的数据可能需要比辉瑞疫苗多花大约3周的时间。预计在 11 月左右才知道Moderna疫苗是否获批用于5-11岁儿童。
+报道又指，美国贸易代表署(USTR)要求外部顾问将中国补贴对美国经济造成的伤害量化为具体数字，以衡量适当的回应措施。
 
-- *延展阅读：*[***深入对比全球17国儿童青少年新冠疫苗接种方案***](https://www.abc.net.au/chinese/2021-08-31/countries-children-covid-vaccine-pfizer-comparison-chinese/100419294)
+- *延展阅读：*[***中国对企业的补贴金5年翻番***](https://cn.nikkei.com/china/ccompany/38619-2019-12-17-10-37-58.html)
+- *延展阅读：*[***中美贸易谈判的棘手问题：产业补贴***](https://cn.nytimes.com/business/20190513/china-trump-trade-subsidies/)
 
 
-在全世界因新冠疫苗引发各种副作用，甚至死亡的事例层出不穷的时候，我们对给5-11儿童注射疫苗表示谨慎和担忧。
+此外，美国也希望在日本和欧洲等盟国的支持下，并寻求世界贸易组织（WTO）内部支持，加快制定国际规则。 预计中方的强烈反对在所难免。
+
+拜登政府对中共政府一贯的产业补贴感到失望，中美之间巨大的贸易不平等必将损害国际金融秩序，导致美国启动对中贸易制裁，加速中美脱钩。
 
 （本文只代表个人观点，与Gnews网站无关）
 

@@ -28,22 +28,22 @@
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/02 郭文贵盖特：大直播点了中共死穴（粤语配音）](/content/gnews/6/README.md)
+### [新中国联邦最关键要做让中国人了解真相](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [关于政治、艺术和腐败关系](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [9/03郭文贵直播：平安集团发展史囊括中共国各大家族的盗国史（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/1郭文贵直播：拜托大家传播大卫兄弟被地塞米松治愈（粤语配音）](/content/gnews/7/README.md)
+### [9/02郭文贵盖特：44位染病的战友证明了我们推荐的药是有用的（粤语配音）](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/8/README.md)
+### [9/1郭文贵直播：拜托大家传播大卫兄弟被地塞米松治愈（粤语配音）](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/1郭文贵直播：拜托大家传播大卫兄弟被地塞米松治愈（粤语配音）](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大卫哥用亲身经历证明了地塞米松管用（粤语配音）](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/11/README.md)
+### [大卫哥用亲身经历证明了地塞米松管用（粤语配音）](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中美脱钩 汇丰退出美国](/content/gnews/12/README.md)
@@ -103,29 +103,29 @@
 ### [王岐山及其裙带关系代表某国际黑暗组织操控中共](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/31/README.md)
+### [华尔街日报：中共国(CCP)的抖音向未成年人推荐吸毒和性视频](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线 : 拜登为什么免除 60多万名美国邮政署员工的强制疫苗接种令?](/content/gnews/32/README.md)
+### [秘翻在线 : 拜登为什么免除 60多万名美国邮政署员工的强制疫苗接种令?](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：接种疫苗的人对其他人是危险的!](/content/gnews/33/README.md)
+### [秘翻在线：接种疫苗的人对其他人是危险的!](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共为何一反常态谴责几内亚政变](/content/gnews/34/README.md)
+### [秘翻在线：中共为何一反常态谴责几内亚政变](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/35/README.md)
+### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [如果温家宝真的什么都不知道，他一定是在另外一个世界](/content/gnews/36/README.md)
+### [如果温家宝真的什么都不知道，他一定是在另外一个世界](/content/gnews/37/README.md)
  ` Shuizhuyu`
 
-### [奥巴马-拜登时代的阿富汗大使与中共政府合作](/content/gnews/37/README.md)
+### [奥巴马-拜登时代的阿富汗大使与中共政府合作](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [腾讯实行“一微两制” 境内外讯息交流随时中断](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [9/10/2021国际财经快讯：伦敦金融工作者涌回办公室；美国企业面临中共病毒疫苗的许多担忧](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [烧香供养菩萨与消灭共产党](/content/gnews/47/README.md)
+### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/47/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [烧香供养菩萨与消灭共产党](/content/gnews/48/README.md)
  ` G-NEWS TAIWAN`
 
-### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/48/README.md)
+### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/49/README.md)
  ` 英喜-粵語組`
 
-### [中美脱钩 汇丰退出美国](/content/gnews/49/README.md)
+### [中美脱钩 汇丰退出美国](/content/gnews/50/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [德教是什么鬼](/content/gnews/50/README.md)
+### [德教是什么鬼](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/51/README.md)
+### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/52/README.md)
  ` 日本东京樱花团`
 
-### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/52/README.md)
+### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/53/README.md)
  ` 日本东京樱花团`
 
-### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/53/README.md)
+### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [国际要闻汇编](/content/gnews/54/README.md)
+### [国际要闻汇编](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [墙内要闻汇编](/content/gnews/55/README.md)
+### [墙内要闻汇编](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 
-### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/56/README.md)
- ` 日本东京樱花团`
-
-### [樱花灭共诗——尘世绘（新韵）](/content/gnews/57/README.md)
+### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/57/README.md)
  ` 日本东京樱花团`
 
