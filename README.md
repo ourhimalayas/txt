@@ -28,13 +28,13 @@
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【字幕】9/11/2021文贵盖特：我们爆料革命新中国联邦，拯救很多无辜的生命和影响世界走向阳光](/content/gnews/6/README.md)
- ` Caihongqiao`
-
-### [2021年9月11日 文贵先生盖特 20](/content/gnews/7/README.md)
+### [2021年9月11日 文贵先生盖特 26](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月11日 文贵先生盖特 19](/content/gnews/8/README.md)
+### [2021年9月11日 文贵先生盖特 25](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月11日 文贵先生盖特 24](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/9/README.md)
@@ -85,47 +85,47 @@
 ### [视频| 蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：法国前卫生部长阿涅丝·比赞被共和国法院以 &#8220;危害他人生命 &#8220;罪名起诉](/content/gnews/25/README.md)
+### [秘翻在线: 黑石放弃收购SOHO 中国，潘石屹清仓套现受阻](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“一带一路”困难重重“中车集团”近3亿美元资金被南非冻结](/content/gnews/26/README.md)
+### [秘翻在线：法国前卫生部长阿涅丝·比赞被共和国法院以 &#8220;危害他人生命 &#8220;罪名起诉](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [“一带一路”困难重重“中车集团”近3亿美元资金被南非冻结](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美国采取多项行动 协助台湾提升国际地位](/content/gnews/27/README.md)
+### [美国采取多项行动 协助台湾提升国际地位](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [习近平表示将在年底向发展中国家捐赠1亿剂疫苗](/content/gnews/28/README.md)
+### [习近平表示将在年底向发展中国家捐赠1亿剂疫苗](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [前国安局长批评政府没有确立网络“红线&#8221;阻止中共大外宣](/content/gnews/29/README.md)
+### [前国安局长批评政府没有确立网络“红线&#8221;阻止中共大外宣](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [黑石取消收购Soho计划, 潘石屹&#8221;跑路&#8221;无望!](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [英国的恐怖主义警报](/content/gnews/31/README.md)
- ` Charlie`
-
-### [联合国大会召开前夕，美国会议员推动台湾加入联合国](/content/gnews/32/README.md)
- ` 纽约香草山MOS02`
-
-### [台湾替代孔子学院，在美设立“台湾华语文学习中心”](/content/gnews/33/README.md)
- ` 纽约香草山MOS02`
-
-### [俄罗斯和白俄罗斯走向经济和政治联盟](/content/gnews/34/README.md)
- ` Charlie`
-
-### [俄勒冈州民主党州长因疫苗授权被起诉](/content/gnews/35/README.md)
+### [CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [前太平洋司令部司令哈里斯呼吁美国对台湾政策进行审查](/content/gnews/36/README.md)
+### [英国的恐怖主义警报](/content/gnews/32/README.md)
+ ` Charlie`
+
+### [联合国大会召开前夕，美国会议员推动台湾加入联合国](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
+
+### [台湾替代孔子学院，在美设立“台湾华语文学习中心”](/content/gnews/34/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄罗斯和白俄罗斯走向经济和政治联盟](/content/gnews/35/README.md)
+ ` Charlie`
+
+### [俄勒冈州民主党州长因疫苗授权被起诉](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/37/README.md)
+### [前太平洋司令部司令哈里斯呼吁美国对台湾政策进行审查](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线:菲律宾宣布使用伊维菌素预防或治疗中共病毒(Covid-19)](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [彭博社分析师认为恒大债务危机将会带来系统性风险](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/47/README.md)
+### [独裁者为何都爱斗争哲学？](/content/gnews/47/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [9.11恐怖袭击20周年](/content/gnews/48/README.md)
+### [9.11恐怖袭击20周年](/content/gnews/49/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/49/README.md)
+### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/50/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [烧香供养菩萨与消灭共产党](/content/gnews/50/README.md)
+### [烧香供养菩萨与消灭共产党](/content/gnews/51/README.md)
  ` G-NEWS TAIWAN`
 
-### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/51/README.md)
+### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [中美脱钩 汇丰退出美国](/content/gnews/52/README.md)
+### [中美脱钩 汇丰退出美国](/content/gnews/53/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [德教是什么鬼](/content/gnews/53/README.md)
+### [德教是什么鬼](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/54/README.md)
+### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/55/README.md)
+### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 
-### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/56/README.md)
- ` 日本东京樱花团`
-
-### [国际要闻汇编](/content/gnews/57/README.md)
+### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/57/README.md)
  ` 日本东京樱花团`
 
