@@ -15,6 +15,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 3:02 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Dr. Zelenko questions the safety of COVID vaccines and calls the vaccine as poison deathtrap<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>泽连科医生质疑新冠疫苗即死亡毒针的安全性
+![img](https://media.gettr.com/group49/getter/2021/09/11/15/66a53439-65f1-f3ca-ea48-ba02d80aee21/out.jpg)
+
+---
+
+`@miles 9/11/2021 3:01 PM (UTC)`
+
+9.11号：万分荣幸！【感恩七哥🙏我姪女（94年）中學教師，學校強制性接種疫苗還外加2個名額（違者辭退）。6.2第一針，6.27第二針，8.15緊急住院闌尾炎手術，頭暈眩，渾身無力勉強吃半碗飯。七哥爆料解藥凌晨馬上購網購青蒿素（幾天後極低概率收到貨），9.5吃青蒿素2片，9.6一片後頭頭不暈開始能吃1碗半飯，體力精神狀態迅速】
+![img](https://media.gettr.com/group33/getter/2021/09/11/15/39f291d0-c376-93af-d9a6-64082b56961f/66ab2ce63d20b932dc86f7a6850b323d.jpg)
+
+---
+
+`@miles 9/11/2021 2:52 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Visual Display of What mRNA Vaccine Does To Your Body's Cells and Causes Blood Clots<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>视觉展示mRNA疫苗对身体细胞做了什么以及如何引起血栓的<br/>
+![img](https://media.gettr.com/group15/getter/2021/09/11/14/d63ec8a6-316a-8713-ca02-bf7d33828665/out.jpg)
+
+---
+
 `@miles 9/11/2021 2:41 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/28/2021 Miles Guo：The world is under the control of only a handful of people, who are going to use the COVID virus and vaccines to eliminate the people with disabilities and to renege on the debts they owe the pension funds around the world. But all aspects of humankind and religions will be rewritten!<br/><br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/28/2021 文贵直播：世界是由极少数人把控的，要通过病毒和疫苗削减老少残疾人以赖掉各国巨额亏空的养老保险基金，但最终人类板块和宗教会被改写！
@@ -286,27 +307,6 @@ And globally today was our best new user sign-up day since July 14th!<br/><br/>A
 
 9/08/2021 Miles Guo: Wang Qishan is the head of the Illuminati’s China branch, together with Zhang Hongwei and other followers, have been doing all kinds of evil things by using the power of the cult. On behalf of the sunshine of the world’s justice forces, the New Federal State of China will stab the heart of the CCP from the earth’s south, center, and north, and Eastern Europe and Russia!<br/><br/>9/08/2021 文贵直播：光明会中国分舵舵主王岐山，连同张宏伟等人利用邪教力量坏事做尽，新中国联邦和代表阳光的世界正义力量要从地球南边、中部、北方、东欧、俄罗斯，一剑插入中共心脏！<br/>
 ![img](https://media.gettr.com/group4/getter/2021/09/08/21/da6c1d89-41f4-cb81-a4bc-303c9b2633e5/out.jpg)
-
----
-
-`@miles 9/8/2021 10:45 AM (UTC)`
-
-9/07/2021 Miles Guo：How does the CCP swindle the Lao Baixing’s bank deposits via fake artworks? Where is the painting - “Bath in Fire''? Whitney Duan could be the first one who had touched this painting. What does it mean for her to be released recently?<br/><br/>9/07/2021 文贵直播：中共如何通过假艺术品交易骗走老百姓的银行存款？《火浴》这幅画现在在哪里？段伟红可能是第一个接触这幅画的人，而她最近被释放意味着什么？
-![img](https://media.gettr.com/group2/getter/2021/09/08/10/f63f9c52-a0c7-9adc-d335-e1f2d527b225/out.jpg)
-
----
-
-`@miles 9/8/2021 3:50 AM (UTC)`
-
-9/07/2021 Miles Guo: Peter Ma & Pony Ma have “contributed” tremendously to infiltrate and influence Taiwan with the help of so-called arts and painting auctions, Peter Ma and his Lufax have planted “nuclear bombs” in the financial markets of the West<br/><br/>9/07/2021 文贵直播：台湾某大佬家惊现中共军方某人私藏字画，马明哲、马化腾为中共对台渗透做出了卓越贡献，马明哲陆金所在西方金融界埋下的都是核弹<br/>
-![img](https://media.gettr.com/group5/getter/2021/09/08/03/c898ae94-d786-797f-f7ec-31685e8d9e2a/out.jpg)
-
----
-
-`@miles 9/8/2021 12:00 AM (UTC)`
-
-9/7/2021 Miles Guo ：Xi was shocked by the fall of 4 lights at Mausoleum of Mao Zedong, the collapse of the Yan’an cave dwellings (“the caves of brothel”), and the “Black Swan” incident in Tiananmen Square. That’s why he had to cancel Plan B to invade Taiwan. God bless the Taiwanese people!<br/><br/> 9/7/2021 文贵直播：毛泽东纪念堂四灯坠落、延安窑洞坍塌和天安门黑天鹅事件给习造成了巨大震撼，迫使习不得不取消了攻台2号计划，天佑台湾人民！<br/>
-![img](https://media.gettr.com/group7/getter/2021/09/07/23/ed6b4f6e-522d-f99d-d004-4a4be5d38a95/out.jpg)
 
 ---
 
