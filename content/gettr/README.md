@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 6:33 PM (UTC)`
+
+考察G| Fashion米兰办公室的选址. 在这个时尚之都我们的意大利团队将会设计出很多惊艳的产品，将给我们带来视觉和精神上对美的冲击❤️❤️❤️🔥🔥🔥🦅🦅🦅🦅@DDNYC # GFashion 
+![img](https://media.gettr.com/group43/getter/2021/09/11/18/1e4dd4fc-e124-4b18-8750-1f0e9c3e21bd/out.jpg)
+
+---
+
 `@miles 9/11/2021 6:11 PM (UTC)`
 
 9月11号：<br/><br/>新中国联邦人的帅哥，美女．健康的身体．将是无尽的财富……新人类的未来。<br/><br/><br/>https://oversea.huanqiu.com/article/4434pHNrrW2
@@ -294,13 +301,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 
 2021年9月9日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>September 9，2021 Rule of Law Foundation and Society donors messages collection<br/>Rule of Law Foundation and Society appreciate all of our supporters and donors!
 ![img](https://media.gettr.com/group31/getter/2021/09/10/00/addba06b-ede5-b67d-ca74-05baad5f863c/out.jpg)
-
----
-
-`@miles 9/10/2021 12:49 AM (UTC)`
-
-9/9/2021 Miles Guo’s GETTR: The international dark forces have controlled everything in the CCP and therefore controls the whole China! Why hasn’t any Western media exposed any kind of crimes committed by the CCP’s old kleptocrats? Because they are covered up by the dark forces<br/><br/>9/9/2021 文贵盖特：国际黑暗势力控制了中共的一切，从而控制了整个中国！为什么没有西方媒体爆中共老杂毛们的种种罪行？因为有黑暗势力罩着
-![img](https://media.gettr.com/group26/getter/2021/09/10/00/bc451203-a0f7-f43a-4994-6eba5f1fe993/out.jpg)
 
 ---
 
