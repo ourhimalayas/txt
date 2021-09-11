@@ -2,48 +2,173 @@
 ---
 
 
-## 2021/09/08《红色轮盘》—记录红色政权内部运作及方式
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526440/)
+## 通过法院强制命令，一妇女得到有争议的中共病毒治疗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1526895/)
 
-2021年9月11日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ada33-swutk.jpg)
+[https://gtv.org/video/id=613cc4b1784c5a258354e5e5](https://gtv.org/video/id=613cc4b1784c5a258354e5e5)
 
-**简评：**
+**字幕内容:**
+Dawn Hasbrouck (Fox 32 Chicago co-anchors)
+道恩·哈斯布鲁克（福克斯 32 芝加哥联合主播）
 
-《红色轮盘》是一本书，也是作者曾在中共国毫无道德底线和冷酷无情的系统中，和他的妻子游刃有余地达到商业和政治顶峰的真实经历。那是一个赌注最高、胜者为王的游戏，是一个强大势力不愿意让任何人听到的故事。作者的妻子段伟红在2017年9月5号消失在北京的街头，从此再也没有人见过她。为了纪念那段日子和给子女留下人生历程，作者冒着失去一切的危险来揭露真相。
+After a short but tense legal battle
+经过短暂但紧张的法律战
 
-[GTV视频链接](https://gtv.org/video/id=613b6e24784c5a2583546ee9)
+a suburban Hospital has agreed to allow one of its COVID patients
+一家郊区医院已同意允许其一名中共病毒患者
 
+to receive a controversial treatment,
+接受有争议的疗法
 
+Corey McPherrin (Fox 32 Chicago co-anchors)
+科里·麦克弗林（福克斯 32 芝加哥联合主播）
 
+Anthony Ponce has been following the story
+安东尼 庞塞一直在关注这个故事
 
+and has the latest for us tonight, Anthony,
+今晚他为我们提供最新的消息，安东尼
 
-**《红色轮盘》作者沈栋（画外音）：**2017年9月5号，段伟红在北京街头消失得无影无踪。从此，再也没有被看到。她做了我10年的妻子，是我小儿子的妈妈。
+Anthony Ponce (Fox 32 Chicago reporter)
+安东尼·庞塞（福克斯 32 芝加哥记者）
 
-我们俩都相信，我们是来建设新中国的。那一天改变了我们的生活。我们的飞黄腾达映射出中国的崛起，但是现在顺风车结束了。
+Cory and Dawn
+科里和道恩
 
-在我的新书中，我第一次打破笼罩中国数十年的沉默密码，向你们展示中国政府——中国真正的拥有者，它的内部运作和他们的交易方式。
+we’ve been following the story of an Elmhurst woman
+我们一直关注着一个在艾姆赫斯特（医院）女（病）人的故事
 
-这是一个为什么我只要回去就别想再出来的故事。这是我第一次爆料我们现在所处的位置和我们如何走到这一位置。
+who is in critical condition on a ventilator in the ICU
+在重症监护病房的呼吸机上情况危急
 
-我写这本书是为了让我儿子能够知道我们是谁，我们做了什么和我们成就了什么。这是一个浪漫的故事，也是中国的故事，更是我们如何在中国驾驭一个毫无道德底线和无情的系统，来达到商业和政治顶峰的故事。很多年，段伟红和我生活在一个胜者为王的游戏中，再没有比那里有更高的赌注。
+and her daughter’s legal battle to get doctors to use a drug
+她女儿通过法律抗战让医生使用一种药物
 
-现在我冒着失去一切的危险来揭露真相。这是一个强大势力拼命不让你听到的故事。这就是《红色轮盘》。
+that’s not approved by the FDA to treat COVID
+是未经食品药品监督管理局批准用于治疗中共病毒的药
 
-***編輯：【英國倫敦喜莊園編輯部】***
+And tonight, her efforts appear to be paying off.
+今晚，她的努力似乎得到了回报
 
-*視頻字幕：雲嶺 | 聽寫/翻譯：Roberts | PR：clau | 簡評/文字整理/編輯：胖丁 | Page：青山*
+Desi Fype （Covid patient’s daughter)
+德西· 佛佩 （Covid 病人的女儿）
 
+she looks calm, relaxed,
+她看起来平静、放松
 
+she looks comfortable. So this is all I can tell right now
+她看起来很舒适， 这是我现在能说的
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Anthony Ponce
+安东尼·庞塞
 
+Since her 68-year old Mom, Maria was placed on a ventilator on April 28
+自从她 68 岁的妈妈-玛丽亚于 4 月 28 日被放上呼吸机上
 
-编辑：【英国伦敦喜庄园编辑部】
+And with her condition not improving,
+而且她的病情没有好转
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+Desi Fype has been fighting Edward Elmhurst Hospital
+德西 佛佩 一直在与爱德华艾姆赫斯特医院据理力争
 
+over the anti-parasitic drug Ivermectin
+在抗寄生虫药伊维菌素上
 
+Desi Fype
+德西· 佛佩
+
+at the point of me having nothing else to lose,
+我没有任何东西可以失去了
+
+and saying that not a treatment in the hospital was making or any better.
+而且在医院治疗病情没得到改善
+
+I want you to try something different.
+我想让你尝试不同的东西
+
+Why not trying to save her life instead of seeing her decline
+为什么不尽力救她的命而看着她衰弱
+
+Anthony Ponce :
+安东尼·庞塞
+
+Ivermectin hasn’t been FDA approved as a COVID treatment
+伊维菌素尚未被食品药品监督管理局批准用于中共病毒 治疗
+
+but some doctors say it’s proved to be effective,
+但一些医生说它被证明是有效的
+
+and despite a judge’s orders.
+而且不顾法官的命令
+
+The hospital had been refusing to administer the drug,
+医院一直拒绝给用药
+
+until last night when it did about a face
+直到昨晚当他们改变了主意
+
+and agreed to let an outside Doctor give Maria, her first dose of Ivermectin,
+并同意让外面的医生给玛丽亚服用伊维菌素
+
+Desi Fype
+德西· 佛佩
+
+and I was really really excited
+我真的非常非常兴奋
+
+and hopeful to have this drug administered to my mom as well,
+并希望我妈妈也服用这种药物，
+
+because from the day that she was admitted to the hospital
+因为从她入院的那天起
+
+her condition kept only declining
+她的病情一直在加重
+
+Ralph Lorigo (Fype’s Attorney)
+拉尔夫·洛里戈（佛佩 的律师）
+
+Today, After her first dose,
+今天，在她第一次服药后
+
+the ventilator has been reduced from 75% to 65%.
+呼吸机从 75% 减少到 65%
+
+That’s an improvement.
+这是一个进步
+
+Now she will get a dose of Ivermectin every day until recovery
+现在她将每天服用一剂伊维菌素直至康复
+
+Anthony Ponce
+安东尼·庞塞
+
+Elmhurst hospitals about face came the night
+埃尔姆赫斯特医院今晚需面对此事
+
+before a judge was set to rule on a motion of contempt filed against it by the family’s attorneys,
+在法官决定对其家庭律师提出的异议裁决前
+
+the hospital has repeatedly declined to comment on this situation,
+医院一再拒绝对此事发表评论
+
+citing patient privacy regulations Cory.
+引用患者隐私法规。科里
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接** : [https://twitter.com/johndoe1284495/status/1435834766482231299?s=21](https://twitter.com/johndoe1284495/status/1435834766482231299?s=21)
+
+英听中: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
