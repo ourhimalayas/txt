@@ -2,40 +2,23 @@
 ---
 
 
-## CCP必灭之家庭篇
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1524793/)
+## 中共官宣确保国庆双节市场供应充足，疑新闻舆论造假
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1524925/)
 
-2021年9月10日
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh3.googleusercontent.com/DzkTJNaaHrYDVSVHvYMljkM5NsbKhh68EKFWyFReRyqhIMjZCcFpn-8X6_-S9svtTGlYEPpem7lCCoWRZWYLrdC-GnaGlSf1ZbvZuxHPiXDGuiU8NSYZssyJ-EkpuAzsN6hgH4kl=s0)
+[*图片来源*](https://p4.itc.cn/q_70/images03/20210910/eb1b0a9596f240ec9b3d548752358f99.jpeg)
 
-作者: JuvenGuo
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210825-GTV823-2.jpg)
-家庭，正常来说是爱的结晶，是人们温馨的港湾，也是很多人奋斗的动力。
+据[中共国新华社](http://www.news.cn/politics/2021-09/09/c_1127845010.htm)北京9月9日晚间消息称：对于如何保障中秋、国庆节日期间市场供应？商务部新闻发言人束珏婷9日表示，商务部将着力做好四方面工作四点措施，其中“四是加强监测。密切关注节日市场运行态势，加强生活必需品市场监测预警，及时掌握粮、油、肉、菜、蛋、奶等民生商品运行情况，准确摸清市场供求状况，及时协调解决可能出现的问题。”[**阅读更多**](http://thinktank.xinhua08.com/a/20210910/2000783.shtml)
+![](https://lh6.googleusercontent.com/TkMLvvfi8FkuMZOJ-XrkTQB3sFlBX8d6kgRXUSPMeXH3f0ss3sjETtVbOQwMZivW2LrCKA-dSScgY2144a7k2mcQrxavaigb3in-U7908j2MbMI9T5kzvwI9gvWS5fQhVx0LRaz5=s0)
+中共国在延安窑洞倒塌、黑天鹅事件出现后，如何保障节日期间市场供应充足、运行平稳？其中应该也包括在网上发布舆情方面造假。记者对此表示关切，并通过搜索引擎注意到《[黄山市多举措保障节日期间市场供应](http://m.ahwang.cn/content/2019-12/31/content_1965455.html)》时间点是2019年；《我[市四项举措确保节日期间副食品市场供应](http://henan.mofcom.gov.cn/aarticle/sjdixiansw/200709/20070905146948.html)》是2007年9月1日；《[中国多举措保障节日市场供应和消费安全](https://finance.sina.cn/sa/2012-01-21/detail-ikftssan7473708.d.html?from=wap)》是新浪网2012年1月21日的消息等等。很多此类新闻打开均显示“出错了”，处于没有这篇文章存在。
+![](https://lh6.googleusercontent.com/Gq9S_EvN_xJ1RzLIUJW1aK-0tKJqOZcqAmZoWqoMIIuGJcvDBVXjjNfo5cPHqZ-AT65Mvppci-AAUcmrZp01FSBavk2PKA6bf9klQ6QC-0vcr48OYo76LZPbNFaywz-9RLf0eGut=s0)
+为了确保上述推论不是无稽之谈，通过搜索“网站发文如何修改日期”关键词发现，[各大媒体完全具备随时修改时间点功能](https://www.zhihu.com/tardis/sogou/qus/442278245)。因此，人们有理由相信，中共管控危机的一贯造假手法就是捂住你的眼睛和耳朵，也可以让你睁开眼睛看也看不清楚。为了不让生活物资必需品供应不足，避免造成社会恐慌，中共完全会这样直接造假。自中共发动生物战以来，他们一直是这样在偷取你的时间概念。导致你无法证伪。而这，恰恰是中共国假骗偷的卑劣手段。
+![](https://lh5.googleusercontent.com/b2MB8cbeZtXDR7D3fvb67LgKTwL3C_qWl8PX4urF7hP1Vnljhh6No-POVdQVqJmxYMorBHj-lkSI4ZUnowwBojOtMTdQw56PhakAdeogYS53cXDg294CTpkVmWzuleK0-REkEzO1=s0)
+2021年9月9日
 
-爱之深，痛之切。CCP病毒危机之前这种体验可能零星的发生。到今天，美国总统拜登都下令强制执行接种CCP病毒疫苗。这对人心的考验到了极点，尤其是那些明白病毒和疫苗真相的人。
-
-病毒危机爆发后，只要有机会说上话的人，都在不同程度地传播病毒疫苗真相。我对于疫苗的了解，以乙肝疫苗为例：一男一女，如果女方有乙肝病毒，而男方打了乙肝疫苗，男女结婚发生关系，男方不会被传染，这叫疫苗；婚后他们如果要生宝宝，只要在怀孕期间给女方打了乙肝隔离疫苗，女方怀孕的宝宝也不会被传染乙肝，这叫疫苗；宝宝出生后，完成乙肝接种之前，爸爸打的乙肝疫苗不会对孩子造成危害；宝宝完成乙肝疫苗接种后，带乙肝病毒的妈妈就不再传染孩子。CCP病毒疫苗又是怎样的呢？一针又一针，越打发病率越高，越打死亡率越高。有的病毒还没来，疫苗的副作用就已经要了人命，这叫疫苗吗？
-
-至亲之人，父母、兄弟、姐妹、夫妻、子女，因为病毒已经爆发了无数次争吵。这次的CCP病毒疫苗，母亲已经打了两针，现住进医院生命垂危。没打疫苗之前曾百般劝说，结果是什么？打完一针后没事，就对我百般批评、怀疑。我劝阻不要再打第二针，口头上又答应了，而事实上到了时间又偷偷地去打了第二针。打完一时没事，对我又是一顿批评。这中间，我是各种狠话都说了。但是，现在母亲住进了医院，心脏病突发，而我因为没打疫苗医院不让去看望，内心痛苦之极，并深深地自责。
-
-我在宣传乙肝那个案例的时候，有一部分明理的人会对我的言论给予认可。不过他们自己还是打了疫苗。
-
-越是沉重打击，越是黑暗，我会越发的坚定。亲朋好友的无知，家人的逝去，会变成更强大的动力，支持正道主义，支持爆料革命和新中国联邦。
-
-（本文仅代表个人观点，与GNEWS无关）
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对: 文明明|审核:仙女儿-文善*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+（本文只代表作者观点，与GNews网站无关）
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-5-e1630998215814.jpg)
 0
