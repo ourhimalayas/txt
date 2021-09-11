@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 2:10 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/23/2021 Miles Guo：What does it mean that a vaccine shot produces at least 40 trillion mRNA molecules for making spike proteins? What are the terrible consequences of so many mRNA molecules entering the capillaries on the blood vessels, heart, liver, brain and other organs?<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/23/2021 文贵直播：一针疫苗会产生至少40万亿制造突刺蛋白的mRNA分子，这是什么概念？这么多mRNA分子进入毛细血管后会对心脏、肝脏、大脑等脏器产生什么可怕的后果？
+![img](https://media.gettr.com/group48/getter/2021/09/11/14/e8bfc856-2cdb-f13d-4324-944b45501288/out.jpg)
+
+---
+
 `@miles 9/11/2021 1:40 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/24/2021 Miles Guo：Both masks and vaccines contain graphene, and its residuals in the human body can never be removed! The CCP together with the 70 major families in the world control 80% of the 10 key raw materials for pharmaceuticals, including the application of graphene in medical treatment.<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/24/2021 文贵直播：口罩和疫苗都含有石墨烯，它们在人体内的残留物将永远无法消除！包括中共老杂毛在内的全球70大家族投资了控制了10大医药关键原材料的80%，包括石墨烯在医疗中的使用！<br/>
@@ -300,13 +307,6 @@ And globally today was our best new user sign-up day since July 14th!<br/><br/>A
 
 革命革命新中国联邦唯一的爆了的料……<br/><br/>【健康的 77 岁老人每周锻炼3次，仍然工作，儿子恳求他不要扎针，他还是打了。甚至打了加强针，11天后突然去世。<br/>他儿子写下故事，希望警醒世人。<br/>🕯️RIP<br/><br/>中国女富豪段伟红的前夫沈栋，在美国出版名为《红色轮盘》的回忆录，透露十多年前在北京开发房地产项目期间，曾利用段伟红与中共高层的关系开展业务，又提到，他和前妻与前总理温家宝家族的关系，以及前妻曾与因受贿被判无期徒刑的中共前政治局委员孙政才，进行金钱交易的内幕。】<br/>
 ![img](https://media.gettr.com/group12/getter/2021/09/07/20/06997d5e-9317-6a87-8a6f-36ae2879c357/7e414ede56926768bff9c45883772e7b.jpg)
-
----
-
-`@miles 9/7/2021 7:32 PM (UTC)`
-
-9月8日美东时间早上9:30AM参与直播的老黄瓜．老豆角名单如下！明天会发生什么事情呢🔥🔥🔥🔥🔥🔥🔥🔥<br/><br/>1. 郝董 叶女侠 <br/>2.岛哥<br/>3.唐平 威廉王<br/>4.魔女
-![img](https://media.gettr.com/group13/getter/2021/09/07/19/11b46810-7141-7e3f-6123-39f4ed511b7f/b5d4d4cc95184a4c48fd49912500cacc.gif)
 
 ---
 
