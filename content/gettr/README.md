@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 3:56 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/31/2021 Miles Guo’s GETTR：Yesterday’s announcement about the antidotes to the CCP virus has huge repercussions for the entire world! We should cherish artemisinin that can eliminate the CCP virus with a single blow!<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/31/2021 文贵盖特：昨天公布了中共病毒的解药后，引起了全世界的巨大反响！大家要珍惜可将中共病毒一剑封喉的青蒿素！<br/>
+![img](https://media.gettr.com/group8/getter/2021/09/11/15/c6a0b735-8d06-46d8-fa1e-27f1ce914eb1/out.jpg)
+
+---
+
 `@miles 9/11/2021 3:44 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/30/2021 Miles Guo: The artemisinin-based medicines discovered by Mrs. Tu Youyou are effective against the CCP virus. Mrs. Tu will become the hero to save the human race!<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/30/2021 文贵直播： 屠呦呦女士的发现的青蒿素系列药物对新冠病毒管用，屠女士将是拯救人类的英雄！<br/>
@@ -298,13 +305,6 @@ G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要�
 
 9.9日：尊敬的战友们好，中共即将崩溃的庞氏骗局的经济。<br/><br/>和房地产骗局⋯以及共产党在国际上的邪恶的力量！都正在土崩瓦解中……新中国联邦人，我们要找回属于我们每一个人，必须拥有有的勇气，和正义感，绝不能将自己的一生变成．金钱．性．虚荣．自私自利的奴隶……我们要开启人类真正的美好．安全，愉悦．自信．阳光．的未来的生活模式。
 ![img](https://media.gettr.com/group13/getter/2021/09/09/14/cb902a65-b04f-a874-a01c-34ebf19195e9/out.jpg)
-
----
-
-`@miles 9/9/2021 2:37 PM (UTC)`
-
-🙏🙏🙏🙏🙏🙏🙏【2015诺贝尔奖颁奖文稿, 为什么伊维菌素和青蒿素每年可以拯救数以亿计的人 , 网上传言说伊维菌素是给动物吃的,可以闭嘴了】
-![img](https://media.gettr.com/group31/getter/2021/09/09/14/6adb27b3-16c1-bb41-5f53-00df03d59828/0d66d719a5d3661589711dfe35357278.jpg)
 
 ---
 
