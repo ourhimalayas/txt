@@ -2,26 +2,17 @@
 ---
 
 
-## 七哥快讯910:毛泽东在中南海的居所绝对是双修的好地方
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1525221/)
+## 2021年9月10日 文贵先生盖特 10
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1525858/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3_副本.jpg)
-据[2021年9月10日文贵直播：恒大与香港黑帮玩的假金融游戏，恒大就是中国的雷曼兄弟，七哥四年前就准确爆出今天恒大的结局；房地产商都有自己的评估机构，进行金融骗贷；习和拜登通电话说了什么；共产党就是中国的光明会，背后是俄罗斯东正教支持；忠诚，守约是自觉自愿的，新中国联邦不要求](https://gtv.org/video/id=613b4bb7be28c76ac9450bcb)时间点2：35：53——
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-欸~！大家想过没有？光明会什么时候开始的人类？马克思、列宁、斯大林什么时候开始的？我再给大家说你们看爆料革命一定要看二战的纪录片，看看斯大林的书，斯大林这个人是杀人魔王，和希特勒和毛泽东简直就像一个人分了三个脑袋一样，毛泽东这个人能跟张玉凤之间能在那块儿搞.
+9/10/2021 Miles Guo：Xi Jinping started to collude with Putin of Russia after being humiliated by President Obama; Wang Qishan, Zhang Hongwei, and Yao Yilin’s family are the executors of a certain global evil forces, they completely control Communist China’s moneybags and leaders, all the other Chinese are their slaves
 
-为啥习一进去，给他安排家呢，习说我哪都不去，去毛泽东的房子，直接搬进去，彭丽媛给吓坏了，进去了，现在里面住着，游泳池他在里边游泳对吧？那是个双修的好地方！
+9/10/2021 文贵直播：习在美国被奥巴马羞辱后和俄罗斯普京一拍即合；王岐山、张宏伟和姚家是国际某邪恶势力的中国执行人，百分百控制了国家钱袋子、领导人，其他的所有人都是奴隶
 
-据风水先生说，在那个地方，吸天地之阴阳之气，有乾坤之大道，南北心之中轴，北边儿是水，南边是火，居火水之间，又有这个水池相映形成闭环，正好在闭环中间叫中南海，中南海的正中心就是毛泽东游泳池、他的卧室。然后在此双修集天地之灵气，吸日月之精华，乾坤之大道，必将永恒！共产党，我说这个你们去看看去，如果我说错一个字儿，你们就拿屎烀我一脸。
+[【2021年9月10日】文贵先生盖特原文](https://gettr.com/post/par9tm9817)
 
-（以下暂略）
+**喜联盟Gnews编辑部**
 
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
-+1
+0

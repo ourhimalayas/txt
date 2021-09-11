@@ -13,38 +13,38 @@
 
 ---
 
-### [报道称BioNTech很快将为5-11岁儿童的疫苗寻求批准](/content/gnews/1/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [美军飞行员因拒绝强制疫苗而离职，美军实力快速削弱](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：秘鲁的数据显示伊维菌素对中共病毒具有明显疗效](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
+### [辉瑞公司故意隐瞒疫苗副作用已触犯法律](/content/gnews/2/README.md)
+ ` 澳喜农场`
 
-### [剧本化的新冠病毒宣传揭示了几乎全部的美国医生都只是腐败美国医学会和疫苗工业集团的傀儡](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [郭文贵先生2017年爆料恒大巨大诈骗内幕](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [亲中共的社交媒体虚假宣传Covid-19及诋毁郭文贵先生](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [美国教师工会：CDC恐惧暴露疫苗真相](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登政府强推疫苗引美入深渊](/content/gnews/5/README.md)
- ` HimalayaRussia`
+### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥快讯910:这场灭共的事业全凭你的内心和你的世界](/content/gnews/6/README.md)
+### [七哥快讯910:中国共产党就是光明会在中国的合法的光明会](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥快讯910:盘古诞生之日就注定共产党必将被我们消灭](/content/gnews/7/README.md)
+### [七哥快讯910:王健林稔熟字画行骗所以能说出一亿的小目标](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥快讯910:毛泽东在中南海的居所绝对是双修的好地方](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
+### [2021年9月10日 文贵先生盖特 10](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [维州：优先为孕妇接种疫苗](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/10/README.md)
- ` wenwu`
+### [拜登制定新的疫苗政策，强制美国人接种疫苗](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
 
-### [郭先生：要防好病毒备好药少出门，提防中共投放新病毒](/content/gnews/11/README.md)
- ` MG 澳喜农场多语组`
+### [辉瑞寻求FDA批准给5-11岁儿童的疫苗](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/12/README.md)
  ` G&#124;News TAIWAN`
@@ -55,77 +55,77 @@
 ### [快讯：拜登与习近平通电话](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [9月8日恒大地产陕西公司 横幅：恒大还我血汗钱](/content/gnews/15/README.md)
+### [中共官方宣布：中共国已有近9亿人完成新冠疫苗接种](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜习10日通话与中共军机6日驱离美巡逻机有何关联](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共疫苗厂9月9日在塞尔维亚奠基,韩正私生子出席](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【视频】平安集团十八年股东变迁](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [彭博社分析师关注恒大债务危机](/content/gnews/19/README.md)
+### [许家印：恒大的一切都是党和国家给的](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [彭博社分析师认为恒大债务危机将会带来系统性风险](/content/gnews/20/README.md)
+### [因恒大财富暴雷，大批人在恒大办公室维权](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 加拿大联邦大选法语辩论日，人民党支持率激增](/content/gnews/21/README.md)
+### [9月8日恒大地产陕西公司 横幅：恒大还我血汗钱](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声| 中共对所有文娱工作者强行驯化](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声| 台湾最新民调显示：近9成民众反对“一国两制”](/content/gnews/22/README.md)
+### [有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声| 共和党全国委员会 (RNC) 将就疫苗授权起诉拜登政府](/content/gnews/23/README.md)
+### [视频| 蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [2021/09/10大卫作战室直播精要](/content/gnews/24/README.md)
+### [视频| 911事件 20周年在即, 阿富汗局势陷入轮回](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [视频| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [视频| 中企影音平台喜马拉雅宣布取消在美国进行IPO上市](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [秘翻在线：美国前驻阿富汗大使艾江山，现中共走狗](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生解析地产大亨王健林电视采访背后的秘密](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [王岐山及其裙带关系代表某国际黑暗组织操控中共](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：美联航强制疫苗政策升级 遭雇员坚决抵制](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [德州上诉法庭推翻地区法院关于伊维菌素治疗新冠患者的命令，终至患者死亡](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：接种疫苗的人对其他人是危险的!](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：中共为何一反常态谴责几内亚政变](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [如果温家宝真的什么都不知道，他一定是在另外一个世界](/content/gnews/34/README.md)
+ ` Shuizhuyu`
+
+### [奥巴马-拜登时代的阿富汗大使与中共政府合作](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [腾讯实行“一微两制” 境内外讯息交流随时中断](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Moderna宣布正在研发针对中共病毒与流感的混合疫苗](/content/gnews/25/README.md)
- ` GTV新闻访谈`
+### [辉瑞寻求FDA批准给5-11岁儿童的疫苗](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [BioNTech和Moderna都在努力推进5岁以上的儿童疫苗](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [联邦执法人员协会反对拜登颁布行政令强制要求接种冠状病毒“毒疫苗”](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：莫德纳公司研发“中共病毒-流感”二合一疫苗](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [秘翻在线：盖茨离婚后疯狂剁手 或成四季酒店新主](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [澳美2+2会议前澳洲权衡中资租赁达尔文港的风险](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [拜登与习近平再通话，讨论了病毒溯源调查](/content/gnews/31/README.md)
- ` 日本东京樱花团`
-
-### [日本共有18人感染了中共病毒“埃塔”变异株](/content/gnews/32/README.md)
- ` 日本东京樱花团`
-
-### [阿富汗危机：(15) 美国的滑铁卢 911](/content/gnews/33/README.md)
- ` 纽约香草山MOS02`
-
-### [郭文贵直播摘要、音频、视频 2021.9.10 ：虚假金融 恒大崩溃](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [维州：优先为孕妇接种疫苗](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [参议员瑞克·斯科特:抖音由中共国的公司拥有和运作受共产主义中国 政府控制](/content/gnews/36/README.md)
- ` 美国政要直译推`
-
-### [DC大中华时事：习近平向国际粮食减损大会致贺信](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [每日快报：新书 &#8220;红色轮盘 &#8220;回忆录称中国绑架了亿万富翁](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [秘翻在线：你愿意变成一个移动二维码吗？](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [字节跳动正在与华尔街银行谈判，欲借款超过30亿美元](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [G时评：国人为何羞于谈性却善于乱性？](/content/gnews/47/README.md)
- ` GISELLE`
-
-### [教培企业华尔街英语传破产](/content/gnews/48/README.md)
- ` 纽约香草山MOS01`
-
-### [2021年09月10日澳喜要闻（每日更新）](/content/gnews/49/README.md)
- ` 澳喜农场`
-
-### [两国升级军事合作，法国在澳大利亚军事存在常态化](/content/gnews/50/README.md)
- ` 走进澳洲`
-
-### [【G时评】造物主的永恒“考题”](/content/gnews/51/README.md)
- ` GISELLE`
-
-### [美众议员坦尼向Newsmax表示：在中共国与塔利班结盟之时，拜登向中国卑躬屈膝](/content/gnews/52/README.md)
- ` 波士顿五月花农场`
-
-### [中共官宣确保国庆双节市场供应充足，疑新闻舆论造假](/content/gnews/53/README.md)
+### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/47/README.md)
  ` 日本东京樱花团`
 
-### [CCP必灭之家庭篇](/content/gnews/54/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/48/README.md)
+ ` 日本东京樱花团`
 
-### [拜登总统将颁布美国历史上最广泛的一套疫苗规定](/content/gnews/55/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/49/README.md)
+ ` 日本东京樱花团`
 
-### [G时评：无我之境，就是涅槃](/content/gnews/56/README.md)
- ` GISELLE`
+### [国际要闻汇编](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
 
-### [青蒿素如何影响癌症、中共病毒和肯塔基州经济](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [墙内要闻汇编](/content/gnews/51/README.md)
+ ` 日本东京樱花团`
+
+### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/52/README.md)
+ ` 日本东京樱花团`
+
+### [樱花灭共诗——尘世绘（新韵）](/content/gnews/53/README.md)
+ ` 日本东京樱花团`
+
+### [樱花灭共诗——病毒真相交战](/content/gnews/54/README.md)
+ ` 日本东京樱花团`
+
+### [日本海关截获假名牌商品大多来自中共国](/content/gnews/55/README.md)
+ ` 日本东京樱花团`
+
+### [新的座右铭——过好今天才有更好的明天](/content/gnews/56/README.md)
+ ` 日本东京樱花团`
+
+### [中共对美团等10家平台企业开展联合行政指导](/content/gnews/57/README.md)
+ ` 儒为`
 

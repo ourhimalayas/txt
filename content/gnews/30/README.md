@@ -2,58 +2,45 @@
 ---
 
 
-## 澳美2+2会议前澳洲权衡中资租赁达尔文港的风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1525222/)
+## 德州上诉法庭推翻地区法院关于伊维菌素治疗新冠患者的命令，终至患者死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1525157/)
 
-栏目记者/责任编辑：AsG諾雅
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+栏目记者/责任编辑：圣母院钟声
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-106.png)
 
 
-法广9月10日援引《澳大利亚金融评论》报道，澳洲总理莫里森表示，其国防部正在审查终止中资企业岚桥集团对达尔文港的99年租约将引起中共国如何的反弹，他还证实澳美两国的国防部长和外交部长2+2会议预计本月内在华盛顿举行。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-1.jpg)图片来源： 网络
-达尔文港自2012年起成为美国陆战队基地，被视为澳洲重要战略据点。2015年，中资岚桥集团与澳洲自治领地北领地签署了达尔文港99年租赁合约一事，持续成为澳洲的国安争议焦点，多次传出要求撤销相关租赁合约的呼声。澳大利亚战略政策研究所所长彼得-詹宁斯预测，本次澳美2+2会议也会涉及这项议题。
 
-在立场方面，澳洲国防部长彼得-达顿和内政部长凯伦-安德鲁斯比较鹰派，希望以国安为由推动终止租约。而该国财政部、外交部和外贸部则对取消该租约有所保留，担心会进一步激怒中共当局，增加国家主权风险。中共可能做出的报复行动包括：对关押在中共监狱的澳籍公民的迫害，中共去年就曾经对已经被捕七年的澳州人Gillespie宣布，因走私毒品判处死刑；在中共国做生意的澳洲公司资产也可能被威胁，如澳大利亚电信公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2.2-1.jpg)图片来源： 网络
-岚桥集团原本是山东日照的一家民营企业，自1999年与中石油合作签约后开始迅速发展扩张，2014年相继在海外收购澳洲的西部能源公司、取得达尔文港99年经营权、收购巴拿马最大港口玛岛港、新西兰rkm油气田，成为中共向世界扩张的又一工具。
+尽管德克萨斯州地区法官最近命令休斯敦糖城的一家医院——纪念赫尔曼糖城医院给73岁的老兵皮特.洛佩兹开伊维菌素处方，但医院管理部门拒绝执行。相反，还到上诉法庭提出上诉，并迅速获得胜利。
 
-自今年七月开始，岚桥集团被爆金融信用评级下调及公司资产遭中共国司法冻结，显然也是中共高层权力斗争的牺牲品。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-29.jpg)图片来源： REUTERS 
-参考链接：
-[中资租赁达尔文港：澳美2+2会议前澳洲权衡风险](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210910-%E4%B8%AD%E8%B5%84%E7%A7%9F%E8%B5%81%E8%BE%BE%E5%B0%94%E6%96%87%E6%B8%AF-%E6%BE%B3%E7%BE%8E2-2%E4%BC%9A%E8%AE%AE%E5%89%8D%E6%BE%B3%E6%B4%B2%E6%9D%83%E8%A1%A1%E9%A3%8E%E9%99%A9)
-[岚桥集团32亿债务逾期，一系列疯狂海外扩张陷入危机](https://3g.163.com/dy/article/GG5N3EE70519B61A.html?referFrom=duckduckgo.com&amp;spss=adap_dy)
+家属说，伊维菌素最初是由病人的家庭医生开的，不幸的是在处方到达之前,皮特已经被送进医院。7月30日新冠检测呈阳性，8月4日住进医院重症监护室。到8月19日，很明显医院的新冠治疗方案失败，洛佩兹先生的病情恶化。他被戴上呼吸机，处于医学诱发的昏迷状态，这意味着他与死神只一步之差。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/德州上诉法庭推翻地区法院关于伊维菌素治疗新冠患者的命令，终至患者死亡.jpg)
+皮特家属开始寻求法律帮助。地区法官照顾了病人的利益，命令医院按照病人家庭医生的指示。在听证会上，威廉斯法官问医院代表”为什么医生不给用伊维菌素来拯救一个快要走到生命尽头的人？“ 院方代表回答：使用伊维菌素是”医学不当”行为。医院的律师还向州上诉法庭的三名大法官要求将先前地方法官的裁决定为越权，使威廉斯法官无权命令医院接受家庭医生的指导。
+
+病人在等待中去世了。洛佩兹先生的孙女加布里埃尔给医院发了电子邮件：“赫尔曼念医院夺走了我的祖父。做为家人，无论是否行得通，我们需要给予试用伊维菌素的机会。纪念赫尔曼医院剥夺了我们这个最后机会，也夺走了我们内心的平和。
+
+伊维菌素早被FDA批准使用，并正在针对中共病毒感染进行临床试验。因此，从法律上讲，医院没有合法理由反对给那些对原有治疗方案失败的患者使用试验期的药物。而现在的政府法规迫使医院及医生只能遵循卫生研究院不含伊维菌素的无效治疗方案。
+
+而如果FDA、NIH、CDC、世卫组织和大制药公司都承认这些旧药新用的真正疗效，那么生产疫苗的大制药公司的紧急使用授权将失效，并将承担赔偿责任。
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+参考文献：[德州上诉法庭推翻地区法院关于伊维菌素治疗新冠患者的命令，终至患者死亡](https://trialsitenews.com/texas-appellate-panel-overturns-district-courts-order-to-treat-covid-19-patient-with-ivermectin-patient-dies/)
 
-终审： Q大哥
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-99.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-105.png)
 
 
 0

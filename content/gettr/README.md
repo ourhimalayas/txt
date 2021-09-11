@@ -15,6 +15,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 9:22 AM (UTC)`
+
+9/10/2021 Miles Guo：The CCP will be taken down much faster and much more complete than expected! Zhang Hongwei will be killed because he owns the painting - “Bath in the Wine”!<br/><br/>9/10/2021 文贵直播：共产党会灭得比我们想象得要更干脆、更快！张宏伟因拥有《酒浴》这幅画将引来杀身之祸！<br/>
+![img](https://media.gettr.com/group45/getter/2021/09/11/09/c80758bd-e858-4c0e-3e36-4cb245099fc3/out.jpg)
+
+---
+
+`@miles 9/11/2021 9:14 AM (UTC)`
+
+9/10/2021 Miles Guo：Chen Luyu’s interview with Wang Jianlin reveals the CCP’s financial scam in which billions of RMB have been laundered from banks by using fake artworks as pledges<br/><br/>9/10/2021 文贵直播：从陈鲁豫采访王健林的画看中共玩弄虚假艺术品套走银行亿万真金白银的金融游戏！<br/>
+![img](https://media.gettr.com/group14/getter/2021/09/11/09/75c0ef4c-2a30-9e3b-e934-b7a6ee53b8d2/out.jpg)
+
+---
+
 `@miles 9/11/2021 1:46 AM (UTC)`
 
 9/10/2021 Miles Guo：Xi Jinping started to collude with Putin of Russia after being humiliated by President Obama; Wang Qishan, Zhang Hongwei, and Yao Yilin’s family are the executors of a certain global evil forces, they completely control Communist China’s moneybags and leaders, all the other Chinese are their slaves<br/><br/>9/10/2021 文贵直播：习在美国被奥巴马羞辱后和俄罗斯普京一拍即合；王岐山、张宏伟和姚家是国际某邪恶势力的中国执行人，百分百控制了国家钱袋子、领导人，其他的所有人都是奴隶<br/>
@@ -294,23 +308,6 @@ Please read and repost!!!<br/><br/>From Filipe Martins:<br/><br/>“There is no 
 
 这是好人呢……🙏🙏🙏🔥🔥🔥【七哥好，我曾经是在国内做私人银行的。今天您说艺术品基金，通过各私人银行融资是最普遍的做法，因为银监会对私人银行的投资范围开了口子。只是，以前我是经办，不知道背后猫腻那么深。我觉得好后悔，坑了那么多客户的资金，感谢您，今天的直播太震撼】
 ![img](https://media.gettr.com/group7/getter/2021/09/07/17/c9b007d0-f1f7-3048-85f9-3d91b134fc23/9f8b0fbaf22320d1c6bec6a76250e5e7.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@sweetrose 9/7/2021 12:56 PM (UTC)`
-
-Happy Brazil's Independence Day!<br/>Without independence, there is no freedom.
-![img](https://media.gettr.com/group16/origin/2021/09/07/12/e9652ddf-90c5-78e4-2917-a51563a2fb5e/f134fb41fbe62dbf11697219214c2b45.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@drzevzelenko 9/6/2021 6:30 PM (UTC)`
-
-I have no delusions about winning a Nobel Prize for the tremendous success that the Zelenko Protocol has had in treating Covid as it is very political.  I do think this sends a good message though. <br/><br/>https://www.change.org/p/the-nobel-prize-committee-nobel-prize-in-medicine-to-dr-v-zelenko-zelenko-protocol-re-covid19-sars-covid2
 
 ---
 
