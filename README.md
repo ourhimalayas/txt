@@ -28,23 +28,23 @@
 ### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥快讯910:中国共产党就是光明会在中国的合法的光明会](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
+### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥快讯910:王健林稔熟字画行骗所以能说出一亿的小目标](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
+### [8/28郭文贵直播：极少数人要通过病毒和疫苗削减老少残疾人口（粤语配音）](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月10日 文贵先生盖特 10](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [8/28郭文贵直播：病毒、疫苗会给宗教、家庭带来什么影响？（粤语配音）](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
+### [8/30郭文贵直播：D-NAB是中共病毒的解药！（粤语配音）](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登制定新的疫苗政策，强制美国人接种疫苗](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
+### [8/28郭文贵直播：极少数人要通过病毒和疫苗削减老少残疾人口（粤语配音）](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞寻求FDA批准给5-11岁儿童的疫苗](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [8/28郭文贵直播：病毒、疫苗会给宗教、家庭带来什么影响？（粤语配音）](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中美脱钩 汇丰退出美国](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`

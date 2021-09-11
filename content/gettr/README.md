@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 1:40 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>8/24/2021 Miles Guo：Both masks and vaccines contain graphene, and its residuals in the human body can never be removed! The CCP together with the 70 major families in the world control 80% of the 10 key raw materials for pharmaceuticals, including the application of graphene in medical treatment.<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>8/24/2021 文贵直播：口罩和疫苗都含有石墨烯，它们在人体内的残留物将永远无法消除！包括中共老杂毛在内的全球70大家族投资了控制了10大医药关键原材料的80%，包括石墨烯在医疗中的使用！<br/>
+![img](https://media.gettr.com/group34/getter/2021/09/11/13/aa91f03d-8efc-3ce4-fc3d-58abadb9fcaa/out.jpg)
+
+---
+
 `@miles 9/11/2021 1:12 PM (UTC)`
 
 <br/>9月11号：尊敬的战友们好，当我们看这张照片的时候，我们都会非常的心痛和悲伤。可是我们世界上的现在所存在的每个人都活在．因共产党的制造的生化灾难的之中，我们每个人事实上都像这张照片中在堕落的那个人一样，🥵🥵🥵我☺️面对着人类上前所未有的最大的恐怖威胁，那就是中国共产党……悲哀的是，全世界还在天真幻想。和黑暗中，今天世界上，已被共产党病毒杀死的人数……超过了911的多少倍？而且没有任何停止的迹象，还在疯狂的全球推广可能杀人的疫苗。新疆．阿富汗．香港．导致的灾难都，死亡人数，超过911N倍！希望人类早日醒来新中国联邦肩负着重大的使命，拯救全人类……消灭共产党……彻底地铲除恐怖主义的根源。😡😡😡😡😡😡😡😡😡🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
@@ -300,14 +307,6 @@ And globally today was our best new user sign-up day since July 14th!<br/><br/>A
 
 9月8日美东时间早上9:30AM参与直播的老黄瓜．老豆角名单如下！明天会发生什么事情呢🔥🔥🔥🔥🔥🔥🔥🔥<br/><br/>1. 郝董 叶女侠 <br/>2.岛哥<br/>3.唐平 威廉王<br/>4.魔女
 ![img](https://media.gettr.com/group13/getter/2021/09/07/19/11b46810-7141-7e3f-6123-39f4ed511b7f/b5d4d4cc95184a4c48fd49912500cacc.gif)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 9/7/2021 6:54 PM (UTC)`
-
-Please read and repost!!!<br/><br/>From Filipe Martins:<br/><br/>“There is no climate of anti-democratic sentiments in Brazil. Millions are peacefully demonstrating to support democracy, rule of law and basic liberties that are being undermined by authorities (outside the executive branch) who abuse power to intimidate and censor their critics.” <br/><br/>https://twitter.com/filgmartin/status/1435277805466443780?s=12
 
 ---
 
