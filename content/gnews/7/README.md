@@ -2,14 +2,16 @@
 ---
 
 
-## 2021年9月11日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1526458/)
+## 2021年9月11日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1526520/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-9月11号：尊敬的战友们好，当我们看这张照片的时候，我们都会非常的心痛和悲伤。可是我们世界上的现在所存在的每个人都活在．因共产党的制造的生化灾难的之中，我们每个人事实上都像这张照片中在堕落的那个人一样，**🥵🥵🥵**我**☺️**面对着人类上前所未有的最大的恐怖威胁，那就是中国共产党……悲哀的是，全世界还在天真幻想。和黑暗中，今天世界上，已被共产党病毒杀死的人数……超过了911的多少倍？而且没有任何停止的迹象，还在疯狂的全球推广可能杀人的疫苗。新疆．阿富汗．香港．导致的灾难都，死亡人数，超过911N倍！希望人类早日醒来新中国联邦肩负着重大的使命，拯救全人类……消灭共产党……彻底地铲除恐怖主义的根源。**😡😡😡😡😡😡😡😡😡🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5546e0ef551359b23306ab93319bc764.jpg)
-[【2021年9月11日】文贵先生盖特原文](https://gettr.com/post/pari94b0a5)
+【**🆘**Important information about CCP virus, vaccine and antidote, please bookmark and forward】 8/28/2021 Miles Guo：The world is under the control of only a handful of people, who are going to use the COVID virus and vaccines to eliminate the people with disabilities and to renege on the debts they owe the pension funds around the world. But all aspects of humankind and religions will be rewritten!
+
+【**🆘**有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】 8/28/2021 文贵直播：世界是由极少数人把控的，要通过病毒和疫苗削减老少残疾人以赖掉各国巨额亏空的养老保险基金，但最终人类板块和宗教会被改写！
+
+[【2021年9月11日】文贵先生盖特原文](https://gettr.com/post/paqoyv2792)
 
 **喜联盟Gnews编辑部**
 
