@@ -103,29 +103,29 @@
 ### [德州上诉法庭推翻地区法院关于伊维菌素治疗新冠患者的命令，终至患者死亡](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：接种疫苗的人对其他人是危险的!](/content/gnews/31/README.md)
+### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线 : 拜登为什么免除 60多万名美国邮政署员工的强制疫苗接种令?](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共为何一反常态谴责几内亚政变](/content/gnews/32/README.md)
+### [秘翻在线：接种疫苗的人对其他人是危险的!](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/33/README.md)
+### [秘翻在线：中共为何一反常态谴责几内亚政变](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [如果温家宝真的什么都不知道，他一定是在另外一个世界](/content/gnews/34/README.md)
+### [秘翻在线：美国CDC报告新冠疫苗已致14506人死亡](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [如果温家宝真的什么都不知道，他一定是在另外一个世界](/content/gnews/36/README.md)
  ` Shuizhuyu`
 
-### [奥巴马-拜登时代的阿富汗大使与中共政府合作](/content/gnews/35/README.md)
+### [奥巴马-拜登时代的阿富汗大使与中共政府合作](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [腾讯实行“一微两制” 境内外讯息交流随时中断](/content/gnews/36/README.md)
+### [腾讯实行“一微两制” 境内外讯息交流随时中断](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [辉瑞寻求FDA批准给5-11岁儿童的疫苗](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：你愿意变成一个移动二维码吗？](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
