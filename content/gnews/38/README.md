@@ -2,31 +2,32 @@
 ---
 
 
-## 秘翻在线 : 拜登为什么免除 60多万名美国邮政署员工的强制疫苗接种令?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1525979/)
+## 华尔街日报：中共国(CCP)的抖音向未成年人推荐吸毒和性视频
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526259/)
 
-撰稿：William
+2021年09月10日
 
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/圖片1-1.png)
-图片来源：REUTERS
+![](https://assets.gnews.org/wp-content/uploads/2021/09/O575PLNMNJOCRJGPTCUJ4YU2NI-20.jpg)Getty Image
 
-**美国各工会表达对官方强制接种疫苗政策的强烈不满**
+**摘要翻译：**
 
-包括纽约市教师工会及加州最大的公共部门美国邮政工会在内的各个工会，都表达了对官方强制接种疫苗政策的强烈不满。然而根据零对冲(Zero Hedge) 的报导,拜登独独免除了60多万名美国邮政署(USPS)员工的联邦强制疫苗接种令，据《华盛顿邮报》援引一位匿名的白宫官员说，拜登的强制命令并不包括美国邮政服务人员。
+华尔街日报在最近的一篇文章中，描述了中国社交媒体应用软件抖音向未成年人推荐吸毒和色情内容的视频。儿童和未成年青少年在抖音的美国用户群中占相当大的比例。
 
-即便白宫辩称，豁免强制接种疫苗的原因是因为美国邮政署传统上独立于联邦行政，然而根据《华盛顿邮报》指出，这个解释与现实相违背，邮政部门完全符合联邦的行政命令范围。拜登强制接种疫苗的对象涵盖所有联邦工作人员和所有员工超过 100 人的公司，但却未曾提及豁免”支持民主党执政”的相关工会的理由。
+《华尔街日报》注意到一位13岁的抖音用户在该应用程序中搜索“OnlyFans”的故事，这是主要用于托管色情内容的订阅网站的名称。未成年用户随后观看了多个视频，其中包括两个色情内容的广告访问。
 
-**政治实力超越福奇的科学论?**
+抖音为一个13 岁的注册账户提供了至少 569 个关于吸毒、提及可卡因和冰毒成瘾的视频，以及用于在线销售毒品和用具的宣传视频。数百个类似的视频出现在《华尔街日报》其它未成年人账户的提要中。
 
-根据《华盛顿邮报》的说法，644,000 名庞大的美国邮政署工作人员代表了联邦劳动力的很大一部分，每天都与同样庞大数量的公众互动。因此，如果拜登真的担心超级传播者，他应该要优先给邮政工人接种疫苗。然而事实上，他并没有按照福奇的科学推论(其实是谬论)优先给邮政工人接种疫苗。那么超过 60万名联邦工作人员是如何得到豁免权的呢？答案很简单，邮政工会的政治影响力远大于福奇的科学论。
+新闻链接：[https://www.breitbart.com/tech/2021/09/10/wsj-communist-chinas-tiktok-suggests-videos-of-drug-use-and-sex-to-minors/](https://www.breitbart.com/tech/2021/09/10/wsj-communist-chinas-tiktok-suggests-videos-of-drug-use-and-sex-to-minors/)
 
-实力强大的美国邮政工人工会(APWU)在 7 月批评了政府要求联邦工作人员接种疫苗的政策，并要求邮政领导层就此问题进行集体谈判。工会在一份声明中表示，虽然美国邮政工会领导层会继续鼓励邮政工人自愿接种疫苗，但联邦政府无权强制邮政员工接种疫苗。
+* * *
 
-**民主党担心邮寄影响下一次的选举?**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-为什么拜登抵触自己的政策，甚至让民众对拜登政府失去信心？我们很合理的推测:在下一次选举之前，民主党似乎不想对负责寄送业务的邮政工会做出任何有风险的举动，政治考量才是这场疫苗灾害背后的盘算。
 
-新闻来源:[Biden Exempts Over 600,000 USPS Workers From Federal Mandatory Vaccination Order](http://Biden%20Exempts%20Over%20600,000%20USPS%20Workers%20From%20Federal%20Mandatory%20Vaccination%20Order)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
