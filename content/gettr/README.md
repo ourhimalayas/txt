@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 4:28 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>9/5/2021 Miles Guo：The eggs and sperms of unvaccinated human beings will be the rarest thing in the world and the most abundant assets left to you by the Whistleblowers’ Movement! The CCP will release new coronaviruses，please prepare medicines!<br/><br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>9/5/2021 文贵直播：未打疫苗者的卵子和精子将成为世界上最稀有的东西，也是爆料革命留给你们的最丰富的资产！中共会放出新的冠状病毒，请一定备好药！<br/><br/>
+![img](https://media.gettr.com/group3/getter/2021/09/11/16/a13232c0-753c-0f61-0a70-d2201cb78fcb/out.jpg)
+
+---
+
 `@miles 9/11/2021 4:09 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>9/1/2021 With his personal experience of contracting the CCP virus and being cured, brother David has proved that dexamethasone works! Don’t forget to take the medicine on time to prevent the CCP virus!<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>9/1/2021 大卫哥用感染中共病毒并被治愈的亲身经历证明了地塞米松管用！请大家记得按时服用药物防中共病毒！
@@ -298,13 +305,6 @@ G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要�
 
 😍😍😍😍😍😍😍😍
 > `@yongkai 9/9/2021 3:14 PM (UTC)`<br/><br/>
-
----
-
-`@miles 9/9/2021 2:55 PM (UTC)`
-
-🙏🙏🙏🙏🙏🙏🙏 <br/>【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
-![img](https://media.gettr.com/group16/getter/2021/09/09/14/4882323e-b270-2b88-cf3d-eeb0104228d7/bf4e973ac9b5f393e8592a61a0e4659e.jpg)
 
 ---
 

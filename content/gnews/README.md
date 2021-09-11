@@ -46,13 +46,13 @@
 ### [马绍尔参议员讲述病毒爆发线和病毒本身](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中美脱钩 汇丰退出美国](/content/gnews/12/README.md)
+### [9.11恐怖袭击20周年](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/13/README.md)
- ` G&#124;News TAIWAN`
+### [中美脱钩 汇丰退出美国](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [拜登推更严厉疫苗强制令 共和党：为美国人起诉拜登违宪](/content/gnews/14/README.md)
+### [中美关系回暖？拜登习近平通话：确保竞争不演变成冲突](/content/gnews/14/README.md)
  ` G&#124;News TAIWAN`
 
 ### [中共官方宣布：中共国已有近9亿人完成新冠疫苗接种](/content/gnews/15/README.md)
@@ -67,40 +67,40 @@
 ### [9月8日恒大地产陕西公司 横幅：恒大还我血汗钱](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 中共对所有文娱工作者强行驯化](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [视频| 蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [视频| 911事件 20周年在即, 阿富汗局势陷入轮回](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [视频| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [视频| 中企影音平台喜马拉雅宣布取消在美国进行IPO上市](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [从鼓励到阉割，墙内网络直播业何去何从?](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [债台高筑被遗弃, 恒大 &#8220;爆雷&#8221; 在即!](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [拜登与中国习近平通电话说要设置“护栏”，以确保“竞争不会演变成冲突”](/content/gnews/27/README.md)
+### [2021/09/09 川普：习近平可能会对台湾采取军事行动](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](/content/gnews/28/README.md)
+### [有声| 中共对所有文娱工作者强行驯化](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [视频| 蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [视频| 911事件 20周年在即, 阿富汗局势陷入轮回](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [视频| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [“一带一路”困难重重“中车集团”近3亿美元资金被南非冻结](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [中共灭亡降至！文贵先生爆习拜通话内容](/content/gnews/29/README.md)
+### [美国采取多项行动 协助台湾提升国际地位](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞疫苗在10月份将获批用于5-11岁儿童](/content/gnews/30/README.md)
+### [前国安局长批评政府没有确立网络“红线&#8221;阻止中共大外宣](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [黑石取消收购Soho计划, 潘石屹&#8221;跑路&#8221;无望!](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [从鼓励到阉割，墙内网络直播业何去何从?](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [债台高筑被遗弃, 恒大 &#8220;爆雷&#8221; 在即!](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [俄勒冈州民主党州长因疫苗授权被起诉](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [9/10/2021国际财经快讯：伦敦金融工作者涌回办公室；美国企业面临中共病毒疫苗的许多担忧](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/47/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [烧香供养菩萨与消灭共产党](/content/gnews/48/README.md)
- ` G-NEWS TAIWAN`
-
-### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/49/README.md)
- ` 英喜-粵語組`
-
-### [中美脱钩 汇丰退出美国](/content/gnews/50/README.md)
+### [9.11恐怖袭击20周年](/content/gnews/47/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [德教是什么鬼](/content/gnews/51/README.md)
+### [习近平表示将在年底向发展中国家捐赠1亿剂疫苗](/content/gnews/48/README.md)
+ ` 纽约香草山MOS01`
+
+### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/49/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [烧香供养菩萨与消灭共产党](/content/gnews/50/README.md)
+ ` G-NEWS TAIWAN`
+
+### [9/11/21 香港快讯 【教协解散】近九成半特别会员代表赞成解散 冯伟华：心情沉重无奈、但必须做](/content/gnews/51/README.md)
+ ` 英喜-粵語組`
+
+### [中美脱钩 汇丰退出美国](/content/gnews/52/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [德教是什么鬼](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/52/README.md)
+### [美拟对中共产业补贴展开调查 不排除贸易制裁](/content/gnews/54/README.md)
  ` 日本东京樱花团`
 
-### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/53/README.md)
+### [辉瑞疫苗在 10 月份将获批用于 5-11 岁儿童](/content/gnews/55/README.md)
  ` 日本东京樱花团`
 
-### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/54/README.md)
+### [“墙国”直播从鼓励到阉割，中共国经济陷入深渊](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 
-### [国际要闻汇编](/content/gnews/55/README.md)
- ` 日本东京樱花团`
-
-### [墙内要闻汇编](/content/gnews/56/README.md)
- ` 日本东京樱花团`
-
-### [近藤诚医生的警钟（连载一）——新冠病毒疫苗潜在副作用的死亡人数究竟有多少？](/content/gnews/57/README.md)
+### [国际要闻汇编](/content/gnews/57/README.md)
  ` 日本东京樱花团`
 

@@ -2,17 +2,33 @@
 ---
 
 
-## 烧香供养菩萨与消灭共产党
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1526235/)
+## 习近平表示将在年底向发展中国家捐赠1亿剂疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1526326/)
 
-台湾宝岛农场 Amitofu
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
-烧香求菩萨保佑自己发财、求官位、求名利、求健康长寿，如果愿望达成我就添香油钱，这种对价关系是把菩萨当成有所求的贪财对象，这样是侮辱佛菩萨，怎么能求得到福报呢？笔者认为按六祖大师自性五分法身香，真烧香有分3支戒定慧香和5支香，戒香、定香、慧香、解脱香、解脱知见香，**常自内省去恶向善是真忏悔，香是内熏心性不假外求，全然的利他主义、正道主义，**欧洲科学家出来作证新冠状病毒来自中共、屠嗷嗷女士的青蒿素， 爆出D-Neutralizing AntiBody D -Nab、B-Nab和B干扰素合成的病毒解药大约有五种已合成100%的解药，可以治疗新冠状病毒，救几亿人类免于死亡病痛，**文贵先生的灭共事业和墙内外默默支持爆料革命的隐形战友，为了灭共不惜牺牲自己的生命，一心想着如何消灭中共盗国贼，让14亿人拥有自由不再被奴役，这些善行都是在烧大把的上等香**。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210910Miles-400x222.png)
-心无贪嗔痴无害人之心是戒香；在善恶环境中能定下心不被左右是定香；时常观照自己，勤修善不造恶，体恤老弱妇孺、贫苦人家是慧香；自心不攀善恶，自在无碍是解脱香；无私无我通达诸佛，无分别妄想执着之心是解脱知见香。而爆料革命战友们唯真不破的传播真相，无私无我的心量，传播中共病毒真相，疫苗的次生灾难，预防新冠状病毒的羟氯喹+锌+维生素C+维生素D3，治疗新冠状病毒的青蒿素、伊维菌素、土霉素、阿奇霉素、地塞米松，这些都是真正救人救命的无上上等香，而坚定消灭中共和在背后帮助战友逃离中共毒手的英雄们，以自己的安全来供养菩萨，都是真正的大供养。
+作者：香草山翻译部
 
-本文仅代表个人立场
-祈祷万佛万神加持文贵先生与新中国联邦战友
-审核:Athena雅典娜 发布:Amitofu
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-sc-4.png)
 
-+1
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.09.11早GTV新闻访谈
+
+[https://www.youtube.com/watch?v=e2va20ou984](https://www.youtube.com/watch?v=e2va20ou984)
+
+编辑/校对/发稿：香草山翻译部 – Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
