@@ -15,6 +15,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 12:48 AM (UTC)`
+
+感谢为盖特辛勤付出认真工作的兄弟姐妹们！大家继续努力！👍👍👍👍💪💪💪<br/><br/>【非常感谢我在盖特得到认证了！<br/>在生活中，人们常常忘记说那两个简单的字。刚从GETTR拿到我的认证账户。我想对所有负责此事的人说声谢谢查尔斯，杰森·米勒，亨里克，黛利拉和客服。我从来没有和一个响应更快的客户支持部门打过交道，我指的不仅仅是认证，我指的是所有事情。他们总是反应迅速!<br/>如今这个客服和帮助热线被外包的时代，当你需要帮助时，不与来自外国的人交谈是令人耳目一新。 喜爱这个平台的伙伴们继续努力吧!】
+> `@lancemigliaccio 9/3/2021 12:28 AM (UTC)`<br/>THANK YOU NOW VERIFIED ON GETTR❗:<br/>Too often in life people forget to say those two simple words. Just got my Verified Account from GETTR. Wanted to say THANK YOU to all the people responsible Charles, Jason Miller, Henrik, Delilah, and Support. Don't think I have ever dealt with a more responsive customer support department and I don't mean just for verification I mean for everything. They always respond promptly! And in today's day, and age of outsourced Help and Support lines it's refreshing not to talk to someone from a foreign country when you needs some help.<br/>Love the platform guys keep up the good work! <br/>Kind Regards, Lance Migliaccio<br/>@jasonmillerindc @support<br/>#thebigmigpodcast #thebigmig #longlivegettr #1amatters
+![img](https://media.gettr.com/group16/origin/2021/09/03/00/3cac65eb-03e3-5bca-3c5c-ea1acc12492a/e1bc99a2ce909c0f67e624a894b66bb1.png)
+
+---
+
 `@miles 9/11/2021 12:39 AM (UTC)`
 
 这是真的吗？<br/><br/>【1982年6月，青海女孩陶金兰一人在挖掘水管时，无意中挖掘出一个银库，思想觉悟极高的她立即向上报。经过组织清点，银库中共有银元67981枚，十两，五十两银锭1569个。最后她得到了村支书的赞赏并得了面小红旗🚩多年后才发现那是她爷爷埋的…又过了二十年，村支书的儿孙们都成了房地产大老板，据说起家的第一桶金就是手里的百余个大元宝。而陶金兰的后人依然住在窑洞中以农垦为生……】
@@ -303,12 +311,6 @@ I have no delusions about winning a Nobel Prize for the tremendous success that 
 
 9/6/2021 Miles Guo’s GETTR: Yesterday’s black swan descending on Tiananmen Square and the collapse of the CCP’s Yan’an Cave Dwellings had tremendous psychological impacts on the CCP’s old kleptocrats, and meanwhile the CCP’s military operation plan to invade Taiwan had to change at the last minute. What do those events mean?<br/><br/>9/6/2021 文贵盖特：昨天的黑天鹅降临天安门、延安窑洞崩塌，在心理上对中共老杂毛造成了巨大影响，因此同时发生了对台作战方案的临时改变，这些事意味着什么？<br/>
 ![img](https://media.gettr.com/group35/getter/2021/09/06/21/4435e061-a022-46e5-99c3-f92af027a4c1/out.jpg)
-
----
-
-`@miles 9/6/2021 7:21 PM (UTC)`
-
-😱😱😱【到2050每年将有 1000 万人死于抗生素耐药性疾病】https://gnews.org/zh-hans/1513608/ https://gnews.org/zh-hans/1513608/
 
 ---
 
