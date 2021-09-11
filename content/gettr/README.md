@@ -15,6 +15,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/11/2021 4:45 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Dr. Zelenko Covid-19 Prophylaxis and Treatment Protocol<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>Zelenko医生中共病毒预防与治疗方案<br/>
+![img](https://media.gettr.com/group32/getter/2021/09/11/16/0e71d490-18f2-32f7-bd39-18583ac0576b/0d0b926c0bfd0a83f808f3a45461e755.jpg)
+
+---
+
+`@miles 9/11/2021 4:39 PM (UTC)`
+
+【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>A study by the University of Kentucky found that artemisinin is effective against a variety of cancers and coronaviruses, and its growth and production can be scaled up pretty rapidly.<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>肯塔基大学研究发现，青蒿素对多种癌症和冠状病毒有疗效，并可以快速大规模种植、生产<br/>
+![img](https://media.gettr.com/group5/getter/2021/09/11/16/e7ff294e-660a-49b0-3d8d-fa070a34078c/out.jpg)
+
+---
+
+`@miles 9/11/2021 4:38 PM (UTC)`
+
+9月11号：尊敬的战友们好．每时每刻．我们爆料革命．新中国联邦都在拯救很多无辜的生命……和影响这个世界走向阳光！我们是这个世界上最伟大的正义的力量．共产党你完蛋了。
+![img](https://media.gettr.com/group17/getter/2021/09/11/16/a067c4c1-53ef-aba0-906a-7f33860ca02a/out.jpg)
+
+---
+
 `@miles 9/11/2021 4:28 PM (UTC)`
 
 【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>9/5/2021 Miles Guo：The eggs and sperms of unvaccinated human beings will be the rarest thing in the world and the most abundant assets left to you by the Whistleblowers’ Movement! The CCP will release new coronaviruses，please prepare medicines!<br/><br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>9/5/2021 文贵直播：未打疫苗者的卵子和精子将成为世界上最稀有的东西，也是爆料革命留给你们的最丰富的资产！中共会放出新的冠状病毒，请一定备好药！<br/><br/>
@@ -283,28 +304,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 Good information here.
 > `@miles 9/9/2021 2:55 PM (UTC)`<br/>🙏🙏🙏🙏🙏🙏🙏 <br/>【2015 Nobel Prize Award Speech: Why Ivermectin and Artemisinin could save hundreds of millions of people every year. The internet rumor that ivermectin is for animals used only can be silenced now.】
 ![img](https://media.gettr.com/group16/getter/2021/09/09/14/4882323e-b270-2b88-cf3d-eeb0104228d7/bf4e973ac9b5f393e8592a61a0e4659e.jpg)
-
----
-
-`@miles 9/9/2021 7:05 PM (UTC)`
-
-G| FASHION团队正在意大利米兰订购新的原料，同时将进行重要的项目考察，马上将和米兰最优秀的工厂签约，并在当地设置分公司. G|FASHION驻米兰设计师团队不久将推出更加惊艳的新产品，继续引爆时尚潮流. 🔥🔥🔥❤️❤️❤️❤️ 
-![img](https://media.gettr.com/group49/getter/2021/09/09/19/d8d15b78-3c9f-9857-92cd-941c3c4fe157/out.jpg)
-
----
-
-`@miles 9/9/2021 5:02 PM (UTC)`
-
-🍎🍎🍎🍎🍎☂️☂️☂️☂️☂️
-> `@s7gril 9/9/2021 4:31 PM (UTC)`<br/>刚刚配上中文字幕。班农回答飞飞的问题说”我不在乎CNBC怎么说，我不会对文贵说的任何话打折扣。“ <br/>#bannon said, "I think #Miles is becoming quickly the George Washington of the diaspora, the new China, the new Chinese so no, I won't care what #CNBC says, I won't discount anything Miles says."
-![img](https://media.gettr.com/group1/origin/2021/09/09/16/1853d4ca-ae73-02c3-89dd-dc29033ce274/out.jpg)
-
----
-
-`@miles 9/9/2021 3:19 PM (UTC)`
-
-😍😍😍😍😍😍😍😍
-> `@yongkai 9/9/2021 3:14 PM (UTC)`<br/><br/>
 
 ---
 
