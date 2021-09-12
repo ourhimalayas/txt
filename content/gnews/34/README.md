@@ -2,39 +2,36 @@
 ---
 
 
-## 美拟对中共产业补贴开展调查 不排除贸易制裁
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1527525/)
+## 拜登政府计划对中共国的产业补贴展开调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1527527/)
 
-作者：文小白
+2021年09月11日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-rand-paul-gain-function-wuhan-2.jpg)中国江苏省连云港一家工厂的工人们在焊接一个工件。（2021年8月27日）图片来源 ：AFP法新社
+
+**编辑摘要：**据美国之音9月11日报道，拜登政府官员正在考虑根据美国贸易法第301条款对中共国的补贴展开调查。华尔街日报报道，中共国通过广泛使用工业补贴手段，使其公司比外国竞争对手更具优势，而拜登政府的举措可能导致对中共国进口商品实施新制裁，并进一步加剧美中关系的紧张。
+
+白宫希望与欧盟、日本和其他亚洲盟友合作，并在世贸组织内部争取支持，对中共国的补贴行为发起挑战。
+
+三十多个美国最具影响力的商业团体呼吁拜登政府重启与中共国的谈判并削减进口关税。美国企业对拜登政府评估中共国贸易和经济政策的速度越来越失望；就特朗普政府达成的第一阶段贸易协议或寻求延长该协议方面，拜登政府基本上没有发出任何信号。
+
+美国贸易代表办公室决定执行中共国在特朗普政府谈判达成的第一阶段协议下的承诺，以在2020年和2021年增加购买美国商品2000亿美元。中共国在2020年未能实现这些目标，现在比2021年的预定采购量落后 30%。在今年年底到期的采购承诺谈判之后，将推动补贴议题。
+
+周四，拜登总统和中共国国家主席习近平进行了第二次对话，双方都力求防止整体关系进一步恶化。经济勾兑使得中美一直纠缠不清，也一步步把美国拖进中共的系统。拜登与习通话，也只是在寻求进一步合作。
+
+中美贸易是一个非常复杂的问题，涉及外交、金融、供应链经济、地缘政治、人权等，但301条款始终是有震慑力的贸易制裁手段之一。
+
+新闻参考链接：[拜登政府计划对中国的产业补贴展开调查](https://www.voachinese.com/a/biden-administration-takes-aim-at-china-s-industrial-subsidies/6222547.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/美拟对中共产业补贴开展调查-不排除贸易制裁.jpg)图片来源：网络
-
-长期以来，中共政府在具有重要战略意义的领域为本国产业提供贸易补贴，以确保中共国的竞争力。拜登政府称中共的补贴政策正在扭曲市场竞争，并考虑是否就贸易制裁展开调查。
-
-据悉，拜登政府内包括贸易代表戴琪及商务部长雷蒙多等官员将于同日下午讨论，评估对中共国的补贴政策启动新的调查，并量化中共国补贴对美国经济造成的伤害，以衡量适当的回应措施。此外，美国也会寻求日本和欧洲等盟国的支持，加快制定国际规则。
-
-美国政府一直谴责中共政府对国内产业的补贴政策，但一直没有采取有效的措施，导致中美巨大的贸易逆差。在当前中美两国严峻的国际形势下，美国对中共国的经济制裁将会引起广泛的关注。
-
-参考链接：[米、中国産業補助金の調査検討　貿易制裁も視野　報道](https://news.yahoo.co.jp/articles/d495234a7cae933f81b91bbf66abc049d6a94148)
-
-编辑/校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
