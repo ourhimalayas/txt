@@ -37,13 +37,13 @@
 ### [郭文贵先生GTV直播2021年9月10日文字精简版分享](/content/gnews/8/README.md)
  ` TS2020相聚盘古`
 
-### [加国伦理学教授因质疑疫苗接种而遭受不公评处置](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
+### [郭文贵先生大直播中提到的疫苗危害在逐渐变成现实](/content/gnews/9/README.md)
+ ` 日本东京樱花团`
 
-### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/10/README.md)
- ` G&#124;News TAIWAN`
+### [墙内疫苗心情日记（十四）](/content/gnews/10/README.md)
+ ` 日本东京樱花团`
 
-### [秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务](/content/gnews/11/README.md)
+### [加国伦理学教授因质疑疫苗接种而遭受不公评处置](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [白宫承认拜登与习有私下交流](/content/gnews/12/README.md)
@@ -85,23 +85,23 @@
 ### [有声| 学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [多位爆料革命战友因传播平安集团盗国真相遭其律师骚扰](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [加拿大保守党支持率激增 特鲁多赢得紧急大选的机会减少](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [塔利班已处决阿富汗前副总统的哥哥](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [抖音向未成年人推荐毒品和性爱的视频](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：美国鸡肉短缺严重 肯德基或加速推广植物肉炸鸡](/content/gnews/29/README.md)
+### [秘翻在线：秦刚爆粗鲁言论令人震惊 中共新任驻美大使原形毕露](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美监管机构准备就“稳定币是否威胁金融稳定”启动正式评估](/content/gnews/30/README.md)
+### [秘翻在线：中日两国在钓鱼岛再起冲突 发生撞船事件](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [多位爆料革命战友因传播平安集团盗国真相遭其律师骚扰](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大保守党支持率激增 特鲁多赢得紧急大选的机会减少](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [塔利班已处决阿富汗前副总统的哥哥](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [抖音向未成年人推荐毒品和性爱的视频](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
 
 ### [币圈新闻动态：比特币的合法性已被揭穿，它既不能很好地保值也不能取代黄金](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
