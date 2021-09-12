@@ -2,53 +2,34 @@
 ---
 
 
-## 联合国大会召开前夕，美国会议员推动台湾加入联合国
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1526607/)
+## CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526693/)
 
-作者：纽约香草山农场 – 四季
+2021年09月10日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/O575PLNMNJOCRJGPTCUJ4YU2NI-21.jpg)网络图片
 
+**摘要：**美国有线电视新闻网（CNN）终于承认，一份强调中共政府支持的社交媒体平台影响力的报告发现，该活动旨在动员人们反对“种族不公正”的抗议活动。
 
+CNN关于最近发布的麦迪安威胁情报（ Mandiant Threat Intelligence ）和谷歌报告的摘要指出，与中国共产党 (CCP) 的虚假信息网络相关的机器人帐户，如何试图煽动亚裔美国人抗议种族主义以及声称 COVID-19 起源于中共国的人。虚假账户分享的帖子包括诸如“种族主义就是病毒”之类的信息。文章补充说：“美国官员认为该行动与中共国政府有关。”
 
+CNN 的文章承认：“虽然专家没有发现证据表明这些帖子成功地动员了抗议者，但报告说，它确实提供了早期预警，即活动背后的参与者可能开始探索，不限定于一种方式，用更直接的手段影响美国内政。”
 
+报告称：“与之前的活动相比，这种直接呼吁动员人员的做法是一项重大进展，可能表明一种新的意图，即激励其人员在中共国领土之外的现实世界活动。”
 
-据[美国之音](https://www.voachinese.com/a/us-lawmakers-call-for-taiwan-un-membership-20210910/6222294.html)9月11日报道，第76届联合国大会将于9月14日至21日在纽约召开之际，共和党联邦众议员佩里（Rep. Scott Perry, R-PA）和蒂法尼（Rep. Tom Tiffany, R-WI）周四致函美国驻联合国大使托马斯-格林菲尔德（Linda Thomas-Greenfield），呼吁拜登政府使用美国在联合国的“发言权、投票和影响力”确保提升台湾的地位，协助台湾台湾成为联合国正式成员。
+CNN的转变表明，消灭中共是大势所趋。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/939-1-1.jpg)图片来源：REUTERS / LUCAS JACKSON
+原文链接：[https://thenationalpulse.com/breaking/ccp-bots-used-to-incite-racial-justice-protests/](https://thenationalpulse.com/breaking/ccp-bots-used-to-incite-racial-justice-protests/)
 
-蒂法尼议员在联名信中写道，没有任何令人信服或合乎逻辑的论据可以解释，台湾被排除在联合国之外长达50年之久。将台湾的地位提升至与中共国并列的位置，将是民主和以规则为基础的国际秩序的胜利，尤其正当中共国试图以‘强权即正义’的原则取代现有的国际秩序。
+* * *
 
-议员在信中批评说，美国承认古巴、伊朗、朝鲜和叙利亚等，支持恐怖主义的国家为联合国会员，却不承认台湾，“这是违反常理的”。
-
-与此同时，台湾外交部长吴钊燮最近几个月来，积极在全球多国的媒体投书，并接受多家外国媒体专访。 他指出，中华人民共和国从未统治台湾，只有台湾人民以民主程序选出的政府，才能在国际上代表台湾，并呼吁联合国接纳台湾。
-
-美国国会两党议员今年四月提出《台湾国际团结法》议案（Taiwan International Solidarity Act），旨在反击中共国歪曲国际组织的发言、政策和程序，并试图将台湾列为中共国的一部分。法案中说，美国反对未经台湾人民同意，谋求改变台湾地位的任何倡议。美国主张国际组织抵制中华人民共和国歪曲‘一个中国’立场的努力。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

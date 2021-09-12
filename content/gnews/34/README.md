@@ -2,34 +2,51 @@
 ---
 
 
-## CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526693/)
+## 中共科学家欲收购石墨烯厂 英政府下令国安审查
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1526894/)
 
-2021年09月10日
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/O575PLNMNJOCRJGPTCUJ4YU2NI-21.jpg)网络图片
-
-**摘要：**美国有线电视新闻网（CNN）终于承认，一份强调中共政府支持的社交媒体平台影响力的报告发现，该活动旨在动员人们反对“种族不公正”的抗议活动。
-
-CNN关于最近发布的麦迪安威胁情报（ Mandiant Threat Intelligence ）和谷歌报告的摘要指出，与中国共产党 (CCP) 的虚假信息网络相关的机器人帐户，如何试图煽动亚裔美国人抗议种族主义以及声称 COVID-19 起源于中共国的人。虚假账户分享的帖子包括诸如“种族主义就是病毒”之类的信息。文章补充说：“美国官员认为该行动与中共国政府有关。”
-
-CNN 的文章承认：“虽然专家没有发现证据表明这些帖子成功地动员了抗议者，但报告说，它确实提供了早期预警，即活动背后的参与者可能开始探索，不限定于一种方式，用更直接的手段影响美国内政。”
-
-报告称：“与之前的活动相比，这种直接呼吁动员人员的做法是一项重大进展，可能表明一种新的意图，即激励其人员在中共国领土之外的现实世界活动。”
-
-CNN的转变表明，消灭中共是大势所趋。
-
-原文链接：[https://thenationalpulse.com/breaking/ccp-bots-used-to-incite-racial-justice-protests/](https://thenationalpulse.com/breaking/ccp-bots-used-to-incite-racial-justice-protests/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 飞虹
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+9月6日，据英国政府的消息称，英国商务大臣夸滕根据《企业法》的规定，要求英国竞争和市场监管局对坦隆国际有限公司预期对佩培图斯集团的全部或部分收购进行国家安全审查。据悉，坦隆国际有限公司是由中共科学家周忠福博士创办的。而英国的这项安全审查针对包括周忠福本人在内及任何与他或其公司有关联的企业。
+
+![石墨烯的研究史回顾- 知乎](https://pic1.zhimg.com/v2-93364af855bb19b2416ceb25ffa1d249_720w.jpg?source=172ae18b)图源网络
+
+石墨烯是当前已知的最薄、最轻的“超级材料”，也是现存电阻率最小的材料，被视为新一代电子元件或晶体管。从电子，到国防，到医学等一系列行业中，石墨烯都有巨大的应用潜力。至于佩培图斯集团，则是一家表面改性石墨烯和碳纳米管的商用制造商，其在南威尔士拥有三个生产基地。佩培图斯虽是一家小公司，但其拥有超过10年帮助企业寻找全面解决方案的经验，也拥有“世界级的科学家、工程师和商业领袖团队”。而周忠福目前是阿伯里斯特威斯大学物理系的研究教授和首席研究员，但他在中共国也有多项头衔。
+
+最近几年，英、美等西方国家出于国家安全方面的考虑，都加强了对中共公司收购其企业的安全审查，尤其是那些涉及敏感技术行业的收购项目。前文提及的周忠福的收购项目恰恰属于这一类。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[中国科学家欲收购英一家石墨烯厂，英政府下令进行国安审查](https://www.voachinese.com/a/UK-China-graphene-acquisition-national-security-review-20210907/6216501.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
 
 0

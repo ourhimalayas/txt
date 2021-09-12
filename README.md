@@ -103,29 +103,29 @@
 ### [习近平表示将在年底向发展中国家捐赠1亿剂疫苗](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [警惕，中共正在干预加拿大大选！](/content/gnews/31/README.md)
+ ` 军迷wilson`
 
-### [中共科学家欲收购石墨烯厂 英政府下令国安审查](/content/gnews/32/README.md)
+### [解放军十九架军机再扰台](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [报复澳大利亚又失算，中共8月铁矿石进口暴增](/content/gnews/33/README.md)
- ` 纽约香草山MOS01`
-
-### [CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动](/content/gnews/34/README.md)
+### [《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国的恐怖主义警报](/content/gnews/35/README.md)
+### [中共科学家欲收购石墨烯厂 英政府下令国安审查](/content/gnews/34/README.md)
+ ` 纽约香草山MOS01`
+
+### [报复澳大利亚又失算，中共8月铁矿石进口暴增](/content/gnews/35/README.md)
+ ` 纽约香草山MOS01`
+
+### [CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英国的恐怖主义警报](/content/gnews/37/README.md)
  ` Charlie`
 
-### [联合国大会召开前夕，美国会议员推动台湾加入联合国](/content/gnews/36/README.md)
+### [联合国大会召开前夕，美国会议员推动台湾加入联合国](/content/gnews/38/README.md)
  ` 纽约香草山MOS02`
-
-### [台湾替代孔子学院，在美设立“台湾华语文学习中心”](/content/gnews/37/README.md)
- ` 纽约香草山MOS02`
-
-### [俄罗斯和白俄罗斯走向经济和政治联盟](/content/gnews/38/README.md)
- ` Charlie`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [彭博社分析师关注恒大债务危机](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/47/README.md)
+### [G时评：宗教的本质，究竟是什么？](/content/gnews/47/README.md)
+ ` GISELLE`
+
+### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/48/README.md)
  ` HimalayaRussia`
 
-### [塔吉克斯坦正在阿富汗危机中发挥关键作用](/content/gnews/48/README.md)
+### [塔吉克斯坦正在阿富汗危机中发挥关键作用](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/49/README.md)
+### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/50/README.md)
  ` 文永`
 
-### [2021/09/11文贵盖特精要](/content/gnews/50/README.md)
+### [2021/09/11文贵盖特精要](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [白宫承认拜登与习有私下交流](/content/gnews/51/README.md)
+### [白宫承认拜登与习有私下交流](/content/gnews/52/README.md)
  ` HimalayaRussia`
 
-### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/52/README.md)
+### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/53/README.md)
  ` MG 澳喜农场多语组`
 
-### [“政治黑天鹅事件”迫使习对台作战2号计划破产](/content/gnews/53/README.md)
+### [“政治黑天鹅事件”迫使习对台作战2号计划破产](/content/gnews/54/README.md)
  ` 纽约香草山MOS01`
 
-### [独裁者为何都爱斗争哲学？](/content/gnews/54/README.md)
+### [独裁者为何都爱斗争哲学？](/content/gnews/55/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/55/README.md)
+### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [9.11恐怖袭击20周年](/content/gnews/56/README.md)
+### [9.11恐怖袭击20周年](/content/gnews/57/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [CCP百年百罪 第十一集（43 &#8211; 46罪）](/content/gnews/57/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
