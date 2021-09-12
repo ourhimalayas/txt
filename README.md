@@ -37,13 +37,13 @@
 ### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [新州举行最后一次每日新闻发布会](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
+### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/9/README.md)
+ ` G&#124;News TAIWAN`
 
-### [秘翻在线：土耳其民众上街抗议当局疫情封锁措施](/content/gnews/10/README.md)
+### [秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/11/README.md)
+### [新州举行最后一次每日新闻发布会](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [白宫承认拜登与习有私下交流](/content/gnews/12/README.md)
@@ -103,28 +103,28 @@
 ### [秘翻在线：美监管机构准备就“稳定币是否威胁金融稳定”启动正式评估](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日越防长就缔结防卫装备出口协定达成一致](/content/gnews/31/README.md)
+### [秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日越防长就缔结防卫装备出口协定达成一致](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [银河快讯：日越防长就缔结防卫装备出口协定达成一致；日美联盟扩大到中东地区](/content/gnews/32/README.md)
+### [银河快讯：日越防长就缔结防卫装备出口协定达成一致；日美联盟扩大到中东地区](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [新州举行最后一次每日新闻发布会](/content/gnews/33/README.md)
+### [新州举行最后一次每日新闻发布会](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：土耳其民众上街抗议当局疫情封锁措施](/content/gnews/34/README.md)
+### [秘翻在线：土耳其民众上街抗议当局疫情封锁措施](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫](/content/gnews/35/README.md)
+### [秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/36/README.md)
+### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第049期](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/38/README.md)
+### [雅典娜时报-第049期](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【郭先生直播摘要】2021.9.7 从一幅古董名画看清台湾的危险](/content/gnews/47/README.md)
+### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/47/README.md)
+ ` G&#124;News TAIWAN`
+
+### [【郭先生直播摘要】2021.9.7 从一幅古董名画看清台湾的危险](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [9.11文贵先生盖特要点](/content/gnews/48/README.md)
+### [9.11文贵先生盖特要点](/content/gnews/49/README.md)
  ` 左媛专栏`
 
-### [你好朋友22期咱们爆料革命里的美丽的“老豆角”悟空](/content/gnews/49/README.md)
+### [你好朋友22期咱们爆料革命里的美丽的“老豆角”悟空](/content/gnews/50/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/50/README.md)
+### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月11日郭先生盖特1「9分29秒」](/content/gnews/51/README.md)
+### [2021年9月11日郭先生盖特1「9分29秒」](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](/content/gnews/52/README.md)
+### [中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](/content/gnews/53/README.md)
  ` 英喜-粵語組`
 
-### [G时评：宗教的本质，究竟是什么？](/content/gnews/53/README.md)
+### [G时评：宗教的本质，究竟是什么？](/content/gnews/54/README.md)
  ` GISELLE`
 
-### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/54/README.md)
+### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [塔吉克斯坦正在阿富汗危机中发挥关键作用](/content/gnews/55/README.md)
+### [塔吉克斯坦正在阿富汗危机中发挥关键作用](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/56/README.md)
+### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/57/README.md)
  ` 文永`
-
-### [2021/09/11文贵盖特精要](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 

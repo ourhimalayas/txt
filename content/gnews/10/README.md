@@ -2,21 +2,21 @@
 ---
 
 
-## 秘翻在线：土耳其民众上街抗议当局疫情封锁措施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527342/)
+## 秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527459/)
 
-#### 撰稿：彩虹       
+#### 翻译/撰稿：zzballack
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-122.png)图片来源：半岛电视台
-9月11日，《国会山报》（TheHill）记者卡洛琳-瓦基尔（Caroline Vakil）撰文，报道土耳其发生游行示威活动，反对封锁当局（中共病毒）疫情，侵犯个人自由。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-47.jpg)图片来源：euronews
+据《零对冲》(Zero Hedge)9月11日报道，由于大量产科医护人员拒绝遵从强制接种中共病毒疫苗的要求而辞职，纽约州北部的一家医院因人手不足被迫从9月24日开始“暂停”接生婴儿。
 
-文章说，根据《路透社》报道，本周早些时候，土耳其政府表示，参加音乐会和其他人群较多的活动时，需要提供疫苗接种证明或冠状病毒阴性测试。这些限制措施也适用于某些交通方式，如火车和巴士。同时，在公共场所，人们需要遵循社交疏导并佩戴口罩。另外，在学校工作且仍未接种疫苗的人，每周需要进行几次COVID-19（中共病毒）测试。
+纽约州刘易斯县的卫生系统首席执行官杰拉德·凯耶（Gerald Cayer）在9月10日的新闻发布会上宣布了这个消息，他说：“产科有六名员工辞职了，另外七名员工‘仍在犹豫中’，导致医院现在无法提供安全分娩服务。我们现在暂停服务，专注于招聘已经接种过疫苗的护士。现在仍有165名员工还没有接种疫苗，占员工总数的27%。剩余73%的464名员工已接种了疫苗。”纽约州州政府今年8月宣布，该州所有医院和长期护理机构的医护人员都必须在9月27日前至少接种第一剂疫苗。凯耶说：“这一公告促使30名员工接种了疫苗，而另外30人则因此辞职。”
 
-文章报道，法国和希腊已经要求医护人员接种疫苗。此外，法国正在要求人们使用健康证，健康证显示他们是否接种过疫苗或最近COVID-19（中共病毒）检测是否呈阴性。
+医护人员拒绝接种疫苗的现象并不只发生在纽约州。上个月，一群新墨西哥州的医护人员抗议强制疫苗令，他们说“这剥夺了人们的选择权和知情同意权（informed consent），违反了医疗道德准则以及基本人权、《宪法》和《纽伦堡守则》（Nuremberg Code）。”加利福尼亚州、科罗拉多州、威斯康星州、亚利桑那州、华盛顿州和其他地方也举行了抗议活动。而从油管上他们的抗议视频获得的压倒性支持率来看，大多数人都支持他们。
 
-周六，数千土耳其人走上街头示威，声称最近的这些限制措施侵犯了个人自由。这一消息传来后，法国和希腊也相继出现了类似的抗议活动。
+公民有不服从的义务和权利，全球各行各业的人们用辞职、罢工、和平游行的方式抗议强制疫苗令这一医疗暴政，捍卫自己的合法权利，不愿做全球主义者和精英阶层的奴隶。
 
-**新闻来源** [Thousands demonstrate in Turkey against COVID-19 protocols](https://thehill.com/policy/international/571841-turkey-sees-thousands-demonstrate-against-covid-19-protocols?rl=1)
+新闻来源：[NY Hospital Forced To Stop Delivering Babies After Maternity Workers Resign Over Vaccine](https://www.zerohedge.com/covid-19/ny-hospital-forced-stop-delivering-babies-after-maternity-workers-resign-over-vaccine)
 
 0

@@ -2,25 +2,21 @@
 ---
 
 
-## 日越防长就缔结防卫装备出口协定达成一致
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1527446/)
+## 秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527459/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/JaponVietnam.jpg)日越防长就缔结防卫装备出口协定达成一致
-据法广9月11日报道，日本防卫相岸信夫9月11日在河内与越南国防部长潘文江会谈，就日本向越南出口防卫装备和技术协定达成共识，为应对中共国在东海和南海加强的军事压力所采取的安全保障合作。越南是与日本缔结这种协定的第11个国家。
+#### 翻译/撰稿：zzballack
 
-岸信夫强调了日本提出的“自由开放的印度太平洋”的构想。日本也有意向国际社会表明，反对凭实力试图单方面改变现状和加剧紧张的行为。这是岸信夫去年9月就任日本防卫相后首次到外国访问。中共国外长王毅几乎同时也在河内访问。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-47.jpg)图片来源：euronews
+据《零对冲》(Zero Hedge)9月11日报道，由于大量产科医护人员拒绝遵从强制接种中共病毒疫苗的要求而辞职，纽约州北部的一家医院因人手不足被迫从9月24日开始“暂停”接生婴儿。
 
-新闻参考链接：[https://amp.rfi.fr/cn/国际/20210911-日越防长就缔结防卫装备出口协定达成一致](https://amp.rfi.fr/cn/国际/20210911-日越防长就缔结防卫装备出口协定达成一致)
+纽约州刘易斯县的卫生系统首席执行官杰拉德·凯耶（Gerald Cayer）在9月10日的新闻发布会上宣布了这个消息，他说：“产科有六名员工辞职了，另外七名员工‘仍在犹豫中’，导致医院现在无法提供安全分娩服务。我们现在暂停服务，专注于招聘已经接种过疫苗的护士。现在仍有165名员工还没有接种疫苗，占员工总数的27%。剩余73%的464名员工已接种了疫苗。”纽约州州政府今年8月宣布，该州所有医院和长期护理机构的医护人员都必须在9月27日前至少接种第一剂疫苗。凯耶说：“这一公告促使30名员工接种了疫苗，而另外30人则因此辞职。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+医护人员拒绝接种疫苗的现象并不只发生在纽约州。上个月，一群新墨西哥州的医护人员抗议强制疫苗令，他们说“这剥夺了人们的选择权和知情同意权（informed consent），违反了医疗道德准则以及基本人权、《宪法》和《纽伦堡守则》（Nuremberg Code）。”加利福尼亚州、科罗拉多州、威斯康星州、亚利桑那州、华盛顿州和其他地方也举行了抗议活动。而从油管上他们的抗议视频获得的压倒性支持率来看，大多数人都支持他们。
 
+公民有不服从的义务和权利，全球各行各业的人们用辞职、罢工、和平游行的方式抗议强制疫苗令这一医疗暴政，捍卫自己的合法权利，不愿做全球主义者和精英阶层的奴隶。
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+新闻来源：[NY Hospital Forced To Stop Delivering Babies After Maternity Workers Resign Over Vaccine](https://www.zerohedge.com/covid-19/ny-hospital-forced-stop-delivering-babies-after-maternity-workers-resign-over-vaccine)
 
 0
