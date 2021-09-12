@@ -2,41 +2,24 @@
 ---
 
 
-## 加密货币需求在阿富汗激增，可帮助塔利班躲避制裁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1527032/)
+## 秘翻在线：福奇在“为何中共病毒感染恢复者需要打疫苗？”的问题上闪烁其词
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527182/)
 
-栏目记者/责任编辑：文真
+#### 撰稿：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-25.jpg)图片来源：VOA
+零对冲（Zero Hedge）9月11日报道，一项由以色列研究人员进行的研究发现，以往感染过中共病毒的恢复者，比打过疫苗的人更有抵抗力。
+
+本周五，神经外科医生桑杰·古普塔（Dr. Sanjay Gupta）在CNN的节目中问福奇：“我总是收到人们的电话，说我已得过这个感染，我已经受到保护了，而且现在的研究已经显示比只打疫苗的人更具保护力，那么这些人是否还需要打疫苗？你对这种情况是如何处理的？”
+
+福奇说：“我对此没有明确答复。这是我们还需要讨论的关于这个免疫持久性的问题，至少以色列的这篇报告并没有告诉你自然感染后的免疫是不是比疫苗免疫持续时间更久，所以说，如果你感染了，你就得到保护了，但在一段不确定的时间后你可能就失去了保护。所以我们应该认真讨论这个问题。”
+
+以色列的发现是基于真实数据，辉瑞公司员工也参与领导了这项研究，得到了自然免疫表现出了持久的保护作用的证据。
+
+上个月，疾控中心（CDC）主任罗彻尔·瓦伦斯基（Dr. Rochelle Walensky）却传达了疾控中心和肯塔基州的研究认为疫苗比以往有过感染更具保护性。认为感染后再注射疫苗可以提供更好的保护。
+
+##### 新闻来源： [Fauci: No “Firm Answer” On Why Americans Who Recovered From COVID-19 Should Get Vaccinated](https://www.zerohedge.com/covid-19/fauci-no-firm-answer-why-americans-who-recovered-covid-19-should-get-vaccinated)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-116.png)
-
-
-
-根据2021年全球加密货币采用指数，美国撤军以来，加密货币的使用在阿富汗激增，使阿富汗成为世界上20大加密货币市场之一。
-
-塔利班夺权后，阿富汗外汇储备被封锁，世界银行和国际货币基金组织等机构已经停止了阿富汗的项目。阿富汗的中央银行系统正徘徊在彻底崩溃的边缘，阿富汗国家货币迅速贬值，阿富汗人寄希望于比特币，试图在政治和经济形势稳定后能够获得安全的资金。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/加密货币需求在阿富汗激增，可帮助塔利班躲避制裁.jpg)
-比特币等加密货币同样成为了塔利班绕过国际经济制裁的金融工具。塔利班支持者曾在推特上建议塔利班高层领导了解比特币的兑换，并称比特币是避开西方金融体系的完美金融工具。
-
-了解比特币交易的去向，便了解了中共洗钱和犯罪交易的证据。长期以来，伊朗非法政权一直在利用加密货币绕过制裁，这背后都是中共在利用比特币为各种恐怖组织提供资金。塔利班同样作为靠中共资金支持的非法政权，也不例外。
-
-（本文仅代表作者观点）
-
-参考新闻：[加密货币需求在阿富汗激增，可帮助塔利班躲避制裁](https://www.breitbart.com/asia/2021/09/10/cryptocurrency-afghanistan-taliban/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-96.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-113.png)
-
-+1
+0

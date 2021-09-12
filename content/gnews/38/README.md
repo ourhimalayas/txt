@@ -2,44 +2,38 @@
 ---
 
 
-## 《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526918/)
+## 推广疫苗护照，澳大利亚政府发起新一轮运动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527041/)
 
-2021年9月11日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091108-1.jpg)STR/法新社-盖蒂图片社/《时代》杂志
-**《时代》杂志不仅将福奇列入了2020年100位最具影响力人物的榜单，还在5月份发表了一篇热情洋溢的专题报道，将他描述为“科学和事实坚定不移的倡导者”。**
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-3.png)
+图片来源：AP
 
-《拦截》（The Intercept）的报告，是基于通过《信息自由法》(Freedom of Information Act)获得的900页未公开文件。这家进步的左翼媒体发现，美国政府向生态健康联盟（Eco Health Alliance）提供了总计310万美元的资金，其中包括武汉病毒学研究所用于研究识别和改变可能感染人类的蝙蝠冠状病毒的部分59.9万美元。
+在周日（9月12日），澳洲政府发起了一项新运动，旨在扩大疫苗接种点网络，针对目标是“年轻群体”，并耗费5000万澳元去说服20%不愿接种中共病毒疫苗的澳大利亚人。
 
-但福奇一再宣誓表示，美国国家卫生研究院（NIH）对武汉试验室的资助不包括功能增强性研究。
+卫生部长格雷格·亨特说，越来越多的人愿意接种，因为大家都希望达到70%至80%的完全接种率后，政府可以放松封锁和旅行限制。
 
-埃布赖特（Ebright ）随后在Twitter上发布了一个由八部分组成的帖子，更详细地解释了该文件有关武汉试验室制造的“新型、实验室生成的SARS相关冠状病毒”之一的“增强致病性”的披露
+“81% 的人表示他们将或打算接种疫苗，”亨特先生说。
 
-他指出，这种特殊的、由武汉实验室产生的与SARS有关的冠状病毒，“此前未公开披露过”，而且发现，它比“构建它的原始病毒”对人类致病性更强。
+“这项活动针对那些仍然不确定是否接种疫苗的人，因为这将使他们能够做自己喜欢的事情，例如与家人在一起、参加婚礼、参加音乐会和旅行。”
 
-埃布赖特的结论是： 福奇和NIH主任弗朗西斯 · 柯林斯(Francis Collins) 在资金以及资助其研究方面一直“不诚实” 。
+超过66%的符合条件的16岁以上澳大利亚人至少接种了一剂中共病毒疫苗，41%的人接种了全面疫苗，全国接种了约2200万剂。
 
-**个人评论**
+推广活动定于周日晚上播出，随后将通过购物中心和活动信息亭以及土著社区的外展活动等举措推出，并吸引更多的公众参与。
 
-越来越多的证据显示，福奇在对公众撒谎，并且在掩盖曾经用美国人的资金支持武毒所人工合成生化武器冠状病毒。激进的左派站在了福奇一边，控制舆论来打压真实的信息。真相在Miles领导的爆料革命影响下，借助Gnew，Gettr和GTV媒体得以广泛传播。
+在最近的24小时报告期内报告了2000多例病例后，澳大利亚的 COVID 感染人数将连续第三天打破记录。
 
-[原文链接](https://www.breitbart.com/entertainment/2021/09/10/time-magazine-silent-on-on-wuhan-lab-bombshell-report-after-putting-fauci-on-most-influential-people-of-2020-list/)
+这是大流行期间迄今为止该国每日病例数最多的一次，并且出现在一些州希望放宽封锁限制之际。
 
-*编辑：【英国伦敦喜庄园编辑部】*
+原文链接：[New campaign targets Australians reluctant to get vaccinated (sbs.com.au)](https://www.sbs.com.au/news/australians-reluctant-to-get-vaccinated-the-target-of-new-campaign/4ed784b9-b928-4a74-bf37-571a2aeb470d)
 
-*Editor: Johnston-Zhang| PR: Julia Win*
+编辑/发布：文泓
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

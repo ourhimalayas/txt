@@ -2,37 +2,21 @@
 ---
 
 
-## 产科人员拒绝疫苗，纽约医院停止接生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527264/)
+## 秘翻在线：土耳其民众上街抗议当局疫情封锁措施
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527342/)
 
-#### **整理报道：**小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/informnny.jpg)
-图片来源：informnny.com
+#### 撰稿：彩虹       
 
-**【雅典娜快讯】，紧贴时事脉搏**
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-122.png)图片来源：半岛电视台
+9月11日，《国会山报》（TheHill）记者卡洛琳-瓦基尔（Caroline Vakil）撰文，报道土耳其发生游行示威活动，反对封锁当局（中共病毒）疫情，侵犯个人自由。
 
-位于美国纽约的刘易斯县总医院（Lewis County General Hospital）将在9月24日之后停止接生，因为太多产科工作人员因中共病毒疫苗接种要求而辞职。
+文章说，根据《路透社》报道，本周早些时候，土耳其政府表示，参加音乐会和其他人群较多的活动时，需要提供疫苗接种证明或冠状病毒阴性测试。这些限制措施也适用于某些交通方式，如火车和巴士。同时，在公共场所，人们需要遵循社交疏导并佩戴口罩。另外，在学校工作且仍未接种疫苗的人，每周需要进行几次COVID-19（中共病毒）测试。
 
-刘易斯县卫生系统首席执行官杰拉尔德·凯尔（ Gerald Cayer）周五在洛维尔举行的新闻发布会上表示，产科部门有6名员工因拒绝接种中共病毒疫苗而辞职，另外7名员工尚未作出决定。
+文章报道，法国和希腊已经要求医护人员接种疫苗。此外，法国正在要求人们使用健康证，健康证显示他们是否接种过疫苗或最近COVID-19（中共病毒）检测是否呈阴性。
 
-凯尔称，医院将无法安全地为该部门配备人员，并将在9月24 日之后暂停接生。他希望这是暂时的情况，并将与州卫生部合作，确保该部门不会永久关闭。
+周六，数千土耳其人走上街头示威，声称最近的这些限制措施侵犯了个人自由。这一消息传来后，法国和希腊也相继出现了类似的抗议活动。
 
-今年8月，纽约州宣布，纽约州医院和长期护理机构的所有医护人员都必须在9月27 日之前至少接种一剂中共病毒疫苗。
-
-凯尔表示，医院有165名医院员工尚未接种中共病毒疫苗，这占员工总数的27%。其他的464名工人（占员工总数的73%）已经接种了疫苗。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻**：[Hospital to stop delivering babies as maternity workers resign over vaccine mandate (wwnytv.com)](https://www.wwnytv.com/2021/09/10/hospital-stop-delivering-babies-maternity-workers-resign-over-vaccine-mandate/)
-
-*编辑：翼族
-发布：小红帽*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源** [Thousands demonstrate in Turkey against COVID-19 protocols](https://thehill.com/policy/international/571841-turkey-sees-thousands-demonstrate-against-covid-19-protocols?rl=1)
 
 0

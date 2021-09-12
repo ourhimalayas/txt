@@ -2,19 +2,31 @@
 ---
 
 
-## 秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527307/)
+## 新州举行最后一次每日新闻发布会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527341/)
 
-撰稿：WENJIE
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-12-114159.jpg)
-近日北京融商网讯旗下的BWCHINESE（BWC中文网）发布题为《伊朗正式用人民币替代美元，向中国运送2000万吨石油后，事情有新进展》为题的文章。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：The Conversation
+**整理报道：**翼族
 
-文章说截至今年的3月的18个月，伊朗的石油卖家已持续向中共国市场运送了约2000万吨石油，而这些石油交易大多数金融是以人民币或欧元进行的；然后以上海原油期货交易市场为世界第三大原油期货交易市场，以及英国石油公司（BP）以人民币计价实物交割原油等实例表明石油人民币已经走进中东，石油美元或许面临被改写。文章还以多国联合开发加密货币，并引用俄媒信息认为数字人民币和石油人民币都在改写全球商品交易的货币形式，数字人民币最终可能使伊朗和其他国家更容易绕开之前的货币系统（即美元系统）。
+今天是新南威尔士州最后一次每日新闻发布会，州长格拉迪斯·贝瑞吉克莲(Gladys Berejiklian)在最后一次中共病毒媒体会议上宣布新增了1262例本地确诊病例和七例死亡。
 
-笔者认真拜读该文几遍，并辅以网络相关文章来佐证该文的引用实例。然而，令笔者大跌眼镜的是，该文明显以偏概全，以点带面的夸大实例，混淆逻辑，名副其实为中共“舔腚”的洗脑文章。其一，与伊朗的2000万吨石油金融大部分是人民币和欧元，那其他部分呢？大部分是多？人民币占比多少？其二，所谓的原油期货交易第三大市场没有错，但是有官方文章明确说出，上海石油期货交易市场只是反映本地区的供需，主要作为部分中资企业原油贸易基准价，相关应用场景及标的使用范围有限。作为大宗商品，人民币结算已经实现，但是定价能力不足。最后，文章说的英国石油实物交割石油数量少得可怜，两笔一起共计400万桶，合50万吨多。所以该文纯粹是洗脑国内民众、逻辑不严谨，贻笑大方的垃圾文章，只是作者自己意淫而已。
+在死亡的七人中，一名是20多岁的男子。首席卫生官科利·查恩特（Kerry Chant）博士说，这名男子有严重的潜在健康问题，没有接种疫苗。在过去的两周，新州政府停止公布死亡病例的疫苗接种情况，并且新州政府每周公布的病毒监测报告也停止在8月21日，再也没有更新。
 
-**[参考链接](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=2&amp;wm_id=fca2253025fc4728992aa042053d92bc&amp;wm_cid=442988570391621632&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
+新南威尔士州政府因决定停止每日上午11点的更新而受到猛烈的抨击。贝瑞吉克莲州长表示，未来她会在需要时出现在媒体面前。在此之前的一天，新南威尔士州周六记录了最糟糕的确诊数据，有1599例新增和8例死亡。
 
+贝瑞吉克莲州长警告说，未来几个月将是该州历史上最糟糕的时期。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考链接：**[Seven deaths announced in NSW’s last daily briefing](https://www.news.com.au/world/coronavirus/australia/alarming-figure-in-victorias-covid-outbreak-reveals-state-faces-worse-crisis-than-nsw/news-story/eb1ff5bd433cf733775da27776cfc717)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
