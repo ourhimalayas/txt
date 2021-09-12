@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/12/2021 1:05 AM (UTC)`
+
+9/22/2021 Miles Guo’s GETTR: Ping An Group and Peter Ma threatened to sue our fellow fighters of the Whistleblowers’ Movement; if Peter Ma really has his balls, come to sue Miles Guo<br/><br/>9/22/2021文贵盖特：平安集团、马明哲威胁起诉爆料革命战友，马明哲你要有种就来起诉郭文贵<br/>
+![img](https://media.gettr.com/group25/getter/2021/09/12/01/887d29cd-9940-454c-fd84-064111fe1109/out.jpg)
+
+---
+
 `@miles 9/12/2021 12:42 AM (UTC)`
 
 9月11号：尊敬的战友们好，明天上午9:00．继续和战友们一起的大直播，继续谈谈共产党病毒和共产党疫苗灾难！恒大的经济危机，将引发的共产党的经济大崩溃……等一系列的世界灭共大事件……共产党你完蛋了……
@@ -287,15 +294,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 
 9.10；比爹娘还亲的共产党，就这样对待他们的子民呢？【这是画家赵华胜1979年的作品《为了出路》：一个女青年为了得到工作，提着烟酒和两条鱼，在落叶冷风中，站在领导家门口等着送礼。领导家中正在推杯换盏，觥筹交错……】
 ![img](https://media.gettr.com/group21/getter/2021/09/10/16/aa5ab028-466f-24ed-4ab9-f6e6aa5ba413/732747f27ac6c11a6f3ab25011a1d7c8.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@rolfoundation 9/10/2021 4:12 PM (UTC)`
-
-【法治基金/法治社会捐款者留言09/09/2021】<br/><br/>如何给法治基金/法治社会留言？<br/><br/>发送您的留言至：<br/>法治基金官方邮箱—support@rolfoundation.org<br/>法治社会官方邮箱—support@rolsociety.org<br/>（注：请将“捐款留言”作为邮箱标题）<br/><br/>下一期视频，我们希望见到您❤️
-![img](https://media.gettr.com/group18/getter/2021/09/10/16/bfc4ec87-a6f1-26ac-b0f8-19d3ae071d04/out.jpg)
 
 ---
 
