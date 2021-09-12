@@ -2,39 +2,30 @@
 ---
 
 
-## 美拟对中共产业补贴开展调查 不排除贸易制裁
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1527525/)
+## 国安法生效半年 Google反悔承诺交用户资料
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1527537/)
 
-作者：文小白
+2021年09月11日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-rand-paul-gain-function-wuhan-3.jpg)网络图片
+
+**编辑摘要：**据《立场》9月11日报道，《香港国安法》去年7月1日生效前，引发资讯安全，忧虑个人隐私被网络监控。《香港自由新闻》报道，美国科技企业Google在国安法生效半年内，43次被港府要求交出用户资料，涉及47个账号。Google三次提供资料，两次涉及人口贩卖，一次涉及“可信的生命威胁”。其余申请遭Google拒绝。
+
+Google政策指，除非法律不许可，否则Google会通知帐户持有人有关索取资料要求，这三次交出的资料并没有经过美国母公司。
+
+其他港人常用的网上社交平台，包括 Facebook、Twitter、Telegram 等，去年也曾先后宣布暂停应港府要求交出用户资料，除非有关要求获得美国司法部许可。
+
+新闻参考链接：[國安法生效半年內　Google 三應港府要求交用戶資料　反悔去年公開不交資料承諾](https://www.thestandnews.com/politics/a_%E5%9C%8B%E5%AE%89%E6%B3%95%E7%94%9F%E6%95%88%E5%8D%8A%E5%B9%B4%E5%85%A7-google-%E4%B8%89%E6%87%89%E6%B8%AF%E5%BA%9C%E8%A6%81%E6%B1%82%E4%BA%A4%E7%94%A8%E6%88%B6%E8%B3%87%E6%96%99-%E5%81%9A%E6%B3%95%E9%81%95%E5%8E%BB%E5%B9%B4%E5%85%AC%E9%96%8B%E4%B8%8D%E4%BA%A4%E8%B3%87%E6%96%99%E8%81%B2%E6%98%8E)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/美拟对中共产业补贴开展调查-不排除贸易制裁.jpg)图片来源：网络
-
-长期以来，中共政府在具有重要战略意义的领域为本国产业提供贸易补贴，以确保中共国的竞争力。拜登政府称中共的补贴政策正在扭曲市场竞争，并考虑是否就贸易制裁展开调查。
-
-据悉，拜登政府内包括贸易代表戴琪及商务部长雷蒙多等官员将于同日下午讨论，评估对中共国的补贴政策启动新的调查，并量化中共国补贴对美国经济造成的伤害，以衡量适当的回应措施。此外，美国也会寻求日本和欧洲等盟国的支持，加快制定国际规则。
-
-美国政府一直谴责中共政府对国内产业的补贴政策，但一直没有采取有效的措施，导致中美巨大的贸易逆差。在当前中美两国严峻的国际形势下，美国对中共国的经济制裁将会引起广泛的关注。
-
-参考链接：[米、中国産業補助金の調査検討　貿易制裁も視野　報道](https://news.yahoo.co.jp/articles/d495234a7cae933f81b91bbf66abc049d6a94148)
-
-编辑/校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
