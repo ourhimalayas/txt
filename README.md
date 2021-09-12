@@ -37,22 +37,22 @@
 ### [2021年9月11日 文贵先生盖特 26](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/9/README.md)
- ` MG 澳喜农场多语组`
+### [推广疫苗护照，澳大利亚政府发起新一轮运动](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/10/README.md)
+### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/10/README.md)
+ ` HimalayaRussia`
+
+### [通过法院强制命令，一妇女得到有争议的中共病毒治疗](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国会议员及其工作人员可免于拜登的疫苗命令](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/12/README.md)
+### [白宫承认拜登与习有私下交流](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [白宫承认拜登与习有私下交流](/content/gnews/13/README.md)
- ` HimalayaRussia`
+### [9.11恐怖袭击20周年](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [9.11恐怖袭击20周年](/content/gnews/14/README.md)
+### [中美脱钩 汇丰退出美国](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
 ### [中共官方宣布：中共国已有近9亿人完成新冠疫苗接种](/content/gnews/15/README.md)
@@ -67,22 +67,22 @@
 ### [9月8日恒大地产陕西公司 横幅：恒大还我血汗钱](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [通过法院强制命令，一妇女得到有争议的中共病毒治疗](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/09/08《红色轮盘》—记录红色政权内部运作及方式](/content/gnews/20/README.md)
+### [2021/09/08《红色轮盘》—记录红色政权内部运作及方式](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/09 科顿议员：是追究托尼•福奇责任的时候了](/content/gnews/21/README.md)
+### [2021/09/09 川普：习近平可能会对台湾采取军事行动](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/09 川普：习近平可能会对台湾采取军事行动](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声| 中共对所有文娱工作者强行驯化](/content/gnews/23/README.md)
+### [有声| 中共对所有文娱工作者强行驯化](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/24/README.md)
+### [有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [视频| 蒙古：接种新冠疫苗后反成为疫情最严重国家](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [视频| 911事件 20周年在即, 阿富汗局势陷入轮回](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [习近平表示将在年底向发展中国家捐赠1亿剂疫苗](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [警惕，中共正在干预加拿大大选！](/content/gnews/31/README.md)
+### [推广疫苗护照，澳大利亚政府发起新一轮运动](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [警惕，中共正在干预加拿大大选！](/content/gnews/32/README.md)
  ` 军迷wilson`
 
-### [解放军十九架军机再扰台](/content/gnews/32/README.md)
+### [解放军十九架军机再扰台](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默](/content/gnews/33/README.md)
+### [《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共科学家欲收购石墨烯厂 英政府下令国安审查](/content/gnews/34/README.md)
+### [中共科学家欲收购石墨烯厂 英政府下令国安审查](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [报复澳大利亚又失算，中共8月铁矿石进口暴增](/content/gnews/35/README.md)
+### [报复澳大利亚又失算，中共8月铁矿石进口暴增](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动](/content/gnews/36/README.md)
+### [CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国的恐怖主义警报](/content/gnews/37/README.md)
+### [英国的恐怖主义警报](/content/gnews/38/README.md)
  ` Charlie`
-
-### [联合国大会召开前夕，美国会议员推动台湾加入联合国](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

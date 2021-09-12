@@ -2,60 +2,173 @@
 ---
 
 
-## 国会议员及其工作人员可免于拜登的疫苗命令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1526285/)
+## 通过法院强制命令，一妇女得到有争议的中共病毒治疗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1526895/)
 
-- 编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ada33-swutk.jpg)
+[https://gtv.org/video/id=613cc4b1784c5a258354e5e5](https://gtv.org/video/id=613cc4b1784c5a258354e5e5)
 
+**字幕内容:**
+Dawn Hasbrouck (Fox 32 Chicago co-anchors)
+道恩·哈斯布鲁克（福克斯 32 芝加哥联合主播）
 
-乔-拜登总统对联邦雇员的新疫苗授权并不适用于，国会议员或为国会或联邦法院系统工作的人。
+After a short but tense legal battle
+经过短暂但紧张的法律战
 
-拜登周四发布两项行政命令，要求为联邦政府工作的联邦工作人员和承包商，接种COVID疫苗。他还要求劳工部发布紧急命令，要求雇员超过100人的企业，确保其工人接受疫苗接种或每周测试。
+a suburban Hospital has agreed to allow one of its COVID patients
+一家郊区医院已同意允许其一名中共病毒患者
 
-然而，拜登关于联邦工作人员的命令适用于行政部门的雇员。众议院和参议院属于独立的立法部门，而法院属于联邦政府的司法部门。
+to receive a controversial treatment,
+接受有争议的疗法
 
-拜登在白宫网站上公布的COVID行动计划–“走出大流行之路”–明确了疫苗授权的效果。
+Corey McPherrin (Fox 32 Chicago co-anchors)
+科里·麦克弗林（福克斯 32 芝加哥联合主播）
 
-该计划说：”在总统7月份宣布加强对未接种疫苗的联邦工作人员的安全要求的基础上，总统已经签署了一项行政命令，将这些行动向前推进了一步，要求所有联邦行政部门的工作人员都要接种疫苗。”
+Anthony Ponce has been following the story
+安东尼 庞塞一直在关注这个故事
 
-“总统还签署了一项行政命令，指示将这一标准扩大到与联邦政府做生意的承包商的雇员，”该计划接着说。
+and has the latest for us tonight, Anthony,
+今晚他为我们提供最新的消息，安东尼
 
-“作为这项工作的一部分，国防部、退伍军人事务部、印第安人卫生局和国家卫生研究所将完成实施其先前宣布的覆盖250万人的疫苗接种要求。”
+Anthony Ponce (Fox 32 Chicago reporter)
+安东尼·庞塞（福克斯 32 芝加哥记者）
 
-《纽约时报》周四援引白宫官员的话报道说，该行政命令不适用于为国会或联邦法院工作的人。
+Cory and Dawn
+科里和道恩
 
-众议院议长南希-佩洛西在4月29日的新闻发布会上说，众议院不能要求议员接种疫苗。拜登宣布后，这些言论的视频剪辑在网上再次获得关注。
+we’ve been following the story of an Elmhurst woman
+我们一直关注着一个在艾姆赫斯特（医院）女（病）人的故事
 
-“所以，事情是这样的。我们不能要求某人接种疫苗。这不是我们能做的”，佩洛西说：”知道谁是或谁不是，这是一个隐私问题。”
+who is in critical condition on a ventilator in the ICU
+在重症监护病房的呼吸机上情况危急
 
-“我不能去国会大厦的医生那里说，‘给我那些没有接种疫苗的人的名字’，这样我就可以去鼓励他们或让别人知道，鼓励他们接种疫苗。所以我们不能–我们不能这样做”，她说。
+and her daughter’s legal battle to get doctors to use a drug
+她女儿通过法律抗战让医生使用一种药物
 
-佩洛西办公室周五在给《新闻周刊》的一份声明中重申了这一立场，称发言人4月29日的讲话是“指她所服务的机构”。
+that’s not approved by the FDA to treat COVID
+是未经食品药品监督管理局批准用于治疗中共病毒的药
 
-“她说她不能强迫议员接种疫苗，这是事实”，该声明中说。
+And tonight, her efforts appear to be paying off.
+今晚，她的努力似乎得到了回报
 
-8月，众议院的19名民主党人给国会大厦的主治医生布莱恩-P-莫纳汉博士写了一封信，要求他考虑一项疫苗要求，或者对不能出示疫苗接种证明的议员和工作人员每周至少进行两次COVID测试。目前还没有任何要求出台。
+Desi Fype （Covid patient’s daughter)
+德西· 佛佩 （Covid 病人的女儿）
 
-**简评：**
+she looks calm, relaxed,
+她看起来平静、放松
 
-**中共病毒疫苗的危害性，现在只是在科学界和媒体上吵来吵去。目前为止，并没有政府公开质疑，关于疫苗的潜在危害性。但是，世界上已经有许多国家的民众，对疫苗的安全性和政府强制性推广疫苗的行为产生了抗拒。以目前的数据来看，凡是疫苗接种率很高的国家，新一轮病毒的感染率及感染后的死亡率，都明显上升。**
+she looks comfortable. So this is all I can tell right now
+她看起来很舒适， 这是我现在能说的
 
-**如今，拜登政府开始在美国强制性的颁发命令，让人们注射疫苗。已然引起了很多民众的抗议，尤其是有消息传出，在拜登政府强令军队注射疫苗之后，有大批军人辞职。现在这个命令已经开始在政府部门实施，是否会遭到美国“公务员”的普遍抗拒？让我们拭目以待。**
+Anthony Ponce
+安东尼·庞塞
 
-**令人怀疑的是，美国的“高官”阶层，即国会议员或为国会或联邦法院系统工作的人，不适用这次新疫苗授权的范围。这很让人感到蹊跷，难道是美国的这些“高官”们对疫苗的安全不放心？还是他们知道很多不为人知的秘密？**
+Since her 68-year old Mom, Maria was placed on a ventilator on April 28
+自从她 68 岁的妈妈-玛丽亚于 4 月 28 日被放上呼吸机上
 
-**世界上深层的黑暗力量已经逐渐露出了它们邪恶的面目。只有更多的人快些觉醒，我们才可以更快的战胜邪恶，让人类迎来光明。**
+And with her condition not improving,
+而且她的病情没有好转
 
-（文章仅代表作者观点，与GNEWS无关）
+Desi Fype has been fighting Edward Elmhurst Hospital
+德西 佛佩 一直在与爱德华艾姆赫斯特医院据理力争
 
-**新闻来源：**[www.newsweek.com](https://www.newsweek.com/members-congress-staff-exempt-biden-covid-vaccine-mandate-1627859)
+over the anti-parasitic drug Ivermectin
+在抗寄生虫药伊维菌素上
 
-* * *
+Desi Fype
+德西· 佛佩
 
-*审核：蚂蚁兄弟*
-*校对：信心满满*
-*发布：信心的选择*
+at the point of me having nothing else to lose,
+我没有任何东西可以失去了
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+and saying that not a treatment in the hospital was making or any better.
+而且在医院治疗病情没得到改善
+
+I want you to try something different.
+我想让你尝试不同的东西
+
+Why not trying to save her life instead of seeing her decline
+为什么不尽力救她的命而看着她衰弱
+
+Anthony Ponce :
+安东尼·庞塞
+
+Ivermectin hasn’t been FDA approved as a COVID treatment
+伊维菌素尚未被食品药品监督管理局批准用于中共病毒 治疗
+
+but some doctors say it’s proved to be effective,
+但一些医生说它被证明是有效的
+
+and despite a judge’s orders.
+而且不顾法官的命令
+
+The hospital had been refusing to administer the drug,
+医院一直拒绝给用药
+
+until last night when it did about a face
+直到昨晚当他们改变了主意
+
+and agreed to let an outside Doctor give Maria, her first dose of Ivermectin,
+并同意让外面的医生给玛丽亚服用伊维菌素
+
+Desi Fype
+德西· 佛佩
+
+and I was really really excited
+我真的非常非常兴奋
+
+and hopeful to have this drug administered to my mom as well,
+并希望我妈妈也服用这种药物，
+
+because from the day that she was admitted to the hospital
+因为从她入院的那天起
+
+her condition kept only declining
+她的病情一直在加重
+
+Ralph Lorigo (Fype’s Attorney)
+拉尔夫·洛里戈（佛佩 的律师）
+
+Today, After her first dose,
+今天，在她第一次服药后
+
+the ventilator has been reduced from 75% to 65%.
+呼吸机从 75% 减少到 65%
+
+That’s an improvement.
+这是一个进步
+
+Now she will get a dose of Ivermectin every day until recovery
+现在她将每天服用一剂伊维菌素直至康复
+
+Anthony Ponce
+安东尼·庞塞
+
+Elmhurst hospitals about face came the night
+埃尔姆赫斯特医院今晚需面对此事
+
+before a judge was set to rule on a motion of contempt filed against it by the family’s attorneys,
+在法官决定对其家庭律师提出的异议裁决前
+
+the hospital has repeatedly declined to comment on this situation,
+医院一再拒绝对此事发表评论
+
+citing patient privacy regulations Cory.
+引用患者隐私法规。科里
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接** : [https://twitter.com/johndoe1284495/status/1435834766482231299?s=21](https://twitter.com/johndoe1284495/status/1435834766482231299?s=21)
+
+英听中: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

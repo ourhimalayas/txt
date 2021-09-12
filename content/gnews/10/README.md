@@ -2,30 +2,27 @@
 ---
 
 
-## 兰德·保罗指责福奇在COVID-19问题上撒了几十次谎
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1526499/)
+## 美共和党将起诉拜登政府强制疫苗的“违宪”行为
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1526922/)
 
-**评语：**
+俄罗斯莫斯科喀秋莎农场  银河
 
-肯塔基州共和党参议员兰德·保罗一直奋斗在抵制福奇、抵制抗疫暴政的前线。他抨击YouTube对中共病毒COVID-19言论的审查制度，认为“对川普的仇恨”阻碍了伊维菌素的使用。但是正如保罗参议员所说，拜登政府的司法部不会对此做任何事情。但我们相信，真相即将揭晓，而谎言代理人最终会被送进监狱。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/R.jpg)manzilnews.pk
+福克斯新闻9月10日报道，共和党怒斥拜登强制疫苗“绝对违宪”。共和党全国委员会(RNC)主席罗纳·麦克丹尼尔(Ronna McDaniel) 周四表示，共和党打算就中共病毒强制疫苗问题起诉乔·拜登总统。
 
-据《福克斯新闻》2021年9月7日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2137.png)
-在周二播出的《汉尼提》(Hannity)节目中，肯塔基州共和党参议员兰德·保罗抨击安东尼·福奇博士涉嫌在国家卫生研究院（NIH）资助武汉病毒研究所进行“功能增强性”研究一事上撒谎。
+周四早些时候，拜登正式宣布要求拥有100名以上员工的私营公司也要为员工接种中共病毒疫苗或进行检测，并称这不侵犯个人自由。拜登政府此令影响了大约1亿美国人。
 
-参议员兰德·保罗：这是一项可判处五年监禁的重罪。我们已经提交给司法部了。我认为拜登政府的司法部不会对此做任何事情，但是，我们所信任的政府官员对我们撒谎是非常危险的，况且他已经撒谎数十次。通常，他告诉我们这是为我们好，但是，没错儿，他已经进行了伪装，他进行了混淆，还有其他更好的词，但他肯定对美国公众撒谎了，他应该承担责任。不仅如此，他做出“继续资助武汉病毒研究所”的判断，但是病毒很可能来自这个实验室。我认为他的判断力太差了，应该立即被免职。
+“乔·拜登在当选时告诉美国人，他不会要求强制接种疫苗。”麦克丹尼尔在一份声明中说，“现在，全国各地的小企业、工人和家庭都将为此付出代价。”
 
-文章点评仅代表个人
+麦克丹尼尔说，“和许多美国人一样，我支持疫苗，反对强制令。许多小企业和工人没有资金或法律资源来对抗拜登的违宪行为和独裁政令，但当他的政令生效时，共和党全国委员会将起诉政府，以保护美国人民和他们的自由。”
 
-原文连接[https://www.foxnews.com/media/rand-paul-shreds-fauci-for-allegedly-lying-dozens-of-times-over-covid-19](https://www.foxnews.com/media/rand-paul-shreds-fauci-for-allegedly-lying-dozens-of-times-over-covid-19)
+在拜登宣布强制疫苗令后，俄克拉荷马州总检察长约翰·奥康纳(John O’Connor)发表了一份声明，宣布他和他的团队正在“准备提起诉讼”，以保护该州居民免受“联邦政府越权”的影响。
 
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Raul
-评语：洛杉矶盘古农场–钢蛋儿
-编辑：洛杉矶盘古农场–心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+奥康纳说，“我们尊重俄克拉荷马州的企业和个人为自己和家人做出医疗保健决定的权利。”“我的办公室将强烈反对联邦政府强制接种疫苗的任何企图。我们正准备提起诉讼，捍卫我们的权利，捍卫法治，反对联邦政府的越权行为。”
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：
+
+[https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates](https://www.foxnews.com/politics/rnc-announces-intention-to-sue-biden-admin-over-vaccine-mandates)
 
 0

@@ -2,46 +2,46 @@
 ---
 
 
-## 2021/09/09 川普：习近平可能会对台湾采取军事行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526360/)
+## 有声| 拜登总统发布美国历史上最广泛的强制接种疫苗指令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1525913/)
 
-2021年9月11日
+配音：香草山美食部-玫瑰园
 
-**简评：**
-
-由于阿富汗事件，让中共和全世界看到美国的软弱，习近平有可能会对台湾采取军事行动。前几天，他们已经向台湾发送了几架具有核能力的轰炸机。川普总统在任的时候，中共从来没有威胁过要打台湾。
-
-[GTV视频链接](https://gtv.org/video/id=613b6f87784c5a2583546f21)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**视频字幕：**
-
-**NEWSMAX主持人：**我想说说中共国，因为这个很重要。显然，中国人和世界上其他国家一样，感觉到美国现在的软弱。前几天，他们向台湾这个小岛发送了几架具有核能力的轰炸机，这是他们发布的重要声明。你认为习近平真的会对台湾有什么实质性的动作吗？
-
-**川普（电话采访）：**当他看到阿富汗发生的事情，当他在电视上看到我们某些无能的将军，这种情况有可能发生。
-
-我们有很伟大的将军，当我拿下ISIS的时候，我跟这些将军们打过交道，他们非常出色。但是你在电视上没有看到这些出色的将军。
-
-当习看到你我现在看到的，他们的无能和软弱，(对台湾的动作）非常有可能发生。
-
-顺便提一下，我在任的时候，他们从来没有威胁要攻打台湾。现在人人都都在说这件事。我在任的时候没人说，不会发生这种事。
-
-**主持人：**是的，他们怕你。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*视频字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | 简评/文字整理/编辑：胖丁 | Page：青山*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
+拜登总统于9月9日发布了一项美国历史上最广泛的联邦雇员强制接种新冠疫苗的指令。该指令要求所有拥有100 名以上雇员的企业雇主必须接种疫苗或每周进行病毒检测。多达1亿美国人将会受到该指令的影响。据悉，不遵守该指令的企业将面临“每次高达近14,000美元的巨额罚款”。此外，指令还要求参与医疗保险和医疗补助的医院和其他医疗机构的医护人员接种疫苗，预计该项要求的影响将覆盖超过1700万人。
+
+NBC 新闻报道了更多相关细节，称这项指令”旨在加大对未接种疫苗者的压力，同时，也对联邦雇员、大型雇主和医疗保健提供者提出了额外的要求。”
+
+
+
+**文字版原文：[拜登总统发布美国历史上最广泛的强制接种疫苗指令](https://gnews.org/zh-hans/1524269/)**
+
+作者：香草山农场-Yousei
+
+
+
+*音频处理：喜山必胜Maverick
+发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

@@ -2,44 +2,46 @@
 ---
 
 
-## 2021/09/09 科顿议员：是追究托尼•福奇责任的时候了
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526419/)
+## 有声| 中共对所有文娱工作者强行驯化
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1525923/)
 
-2021年9月11日
+配音：香草山美食部-玫瑰园
 
-**简评：**
-
-在病毒事件上，福奇一直对国会和美国人民说谎。福奇资助了中共实验室的病毒研究，随后该实验室在全球范围内释放病毒，导致瘟疫大流行。是时候追究福奇的责任了，他应该被解雇，并在法律的最大允许范围内被起诉。
-
-[GTV视频链接](https://gtv.org/video/id=613b70f8784c5a2583546f5d)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**视频字幕：**
-
-**来自《福克斯新闻》**
-
-**科顿议员（Tom Cotton）**：我已经说了四个月了—安东尼·福奇应该被解雇。现在很明显，他对国会撒了谎，所以他应该被调查，并在法律的最大范围内被起诉。
-
-这18个月以来，他一直站在道德的制高点，嘲笑那些想在美好的一天中，去户外体育场观看足球比赛的大学生们，或者不愿意自己在幼儿园的孩子一直都戴口罩的父母。福奇告诉你，你必须戴三个口罩。
-
-一直以来他都在撒谎，不仅仅是对国会撒谎，而是对美国人民撒谎。他（不承认）在资助中共实验室的非常鲁莽、危险的研究中所扮演的角色，而这个实验室在世界范围内释放了这种大流行病。
-
-这是一种耻辱。现在是托尼·福奇被追究责任的时候了。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*视频字幕/听写：云岭 | 翻译：*clau *| PR：*云岭*| 简评/文字整理/编辑：胖丁 | Page：青山*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
+9月9日，中共文化和旅游部在会议中声称，将加大力度对文娱和旅游领域的系统性综合治理，表示要铲除所谓“歪风邪气”的滋生土壤，打造中共邪恶初心的文艺工作者，营造专制独裁下的邪恶文艺生态。
+
+中共这一举措被许多“小骂大帮忙”的中共大外宣解读为中共文化大革命重演的前奏。实际上，中共这番操作远不止文革重演这么简单。其实，早在2020年，中共在发动生物战之前就已经启动了文革模式。至于此轮运动，则更像是中共彻头彻尾对文艺工作者的 “轮奸”，并要求他们不许反抗。为此，中共对那些愿意屈膝的软骨头们开展一系列的洗脑工作。其后又通过轮训，对有思想的文娱工作者进行降格打击，直到他们被驯化为止。
+
+
+
+**文字版原文：[中共对所有文娱工作者强行驯化](https://gnews.org/zh-hans/1524727/)**
+
+作者：纽约香草山农场 – 捆绑CCP一千年
+
+
+
+*音频处理：喜山必胜Maverick
+发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0
