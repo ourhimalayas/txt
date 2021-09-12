@@ -15,10 +15,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 9/12/2021 1:05 AM (UTC)`
+`@miles 9/12/2021 1:32 AM (UTC)`
 
-9/22/2021 Miles Guo’s GETTR: Ping An Group and Peter Ma threatened to sue our fellow fighters of the Whistleblowers’ Movement; if Peter Ma really has his balls, come to sue Miles Guo<br/><br/>9/22/2021文贵盖特：平安集团、马明哲威胁起诉爆料革命战友，马明哲你要有种就来起诉郭文贵<br/>
-![img](https://media.gettr.com/group25/getter/2021/09/12/01/887d29cd-9940-454c-fd84-064111fe1109/out.jpg)
+9/11/2021 Miles Guo’s GETTR: Ping An Group and Peter Ma threatened to sue our fellow fighters of the Whistleblowers’ Movement; if Peter Ma really has his balls, come to sue Miles Guo<br/><br/>9/11/2021文贵盖特：平安集团、马明哲威胁起诉爆料革命战友，马明哲你要有种就来起诉郭文贵
+![img](https://media.gettr.com/group34/getter/2021/09/12/01/1eb8ef5b-c0cf-3073-a396-3a9a954e1218/out.jpg)
 
 ---
 
