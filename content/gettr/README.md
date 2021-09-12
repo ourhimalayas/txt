@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/12/2021 12:42 AM (UTC)`
+
+9月11号：尊敬的战友们好，明天上午9:00．继续和战友们一起的大直播，继续谈谈共产党病毒和共产党疫苗灾难！恒大的经济危机，将引发的共产党的经济大崩溃……等一系列的世界灭共大事件……共产党你完蛋了……
+![img](https://media.gettr.com/group24/getter/2021/09/12/00/75c7f2a3-a3fb-54b5-2344-1ac94c38d331/out.jpg)
+
+---
+
 `@miles 9/11/2021 11:25 PM (UTC)`
 
 9/11/2021 Miles Guo’s GETTR: An old friend of mine whose whole family got the COVID jab is now freaked out! What does the Qianhai Economic Zone’s expansion mean for the tycoons in Hong Kong！Be careful not to get the virus and prepare enough money to survive, because the world’s economy is having a big trouble!<br/><br/>9/11/2021文贵盖特：我的老朋友某国元首全家打了中共病毒疫苗，但他现在真的害怕了！前海经济开发区的扩大对香港富豪们意味着什么？要谨防感染病毒并准备好吃饭的钱，世界经济真的出大事了！<br/>
@@ -289,13 +296,6 @@ MY PATRIOTAS BRASILEIROS KNOW WHAT TIME IT IS!!!  VIVA A LIBERDADE!!!<br/>https:
 
 【法治基金/法治社会捐款者留言09/09/2021】<br/><br/>如何给法治基金/法治社会留言？<br/><br/>发送您的留言至：<br/>法治基金官方邮箱—support@rolfoundation.org<br/>法治社会官方邮箱—support@rolsociety.org<br/>（注：请将“捐款留言”作为邮箱标题）<br/><br/>下一期视频，我们希望见到您❤️
 ![img](https://media.gettr.com/group18/getter/2021/09/10/16/bfc4ec87-a6f1-26ac-b0f8-19d3ae071d04/out.jpg)
-
----
-
-`@miles 9/10/2021 1:20 PM (UTC)`
-
-早在四年前，郭文贵先生已经准确爆料：恒大将比海航更惨，在国际上更加震撼！<br/>As early as four years ago, Miles Guo has precisely predicted  the fate of Evergrande : Evergrande will fail and will have a more epic fall than HNA, which will give the world a bigger shock.
-![img](https://media.gettr.com/group1/getter/2021/09/10/13/99e055a3-dd7d-8eca-2a1e-2867a6f5251d/out.jpg)
 
 ---
 
