@@ -2,33 +2,21 @@
 ---
 
 
-## 习近平表示将在年底向发展中国家捐赠1亿剂疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1526326/)
+## 秘翻在线：法国前卫生部长阿涅丝·比赞被共和国法院以 &#8220;危害他人生命 &#8220;罪名起诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1526427/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
+作者：Shanshan
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-18.jpg)
+图片来源：法新社
 
-作者：香草山翻译部
+据法新社2021年9月10号(星期五) 报道 : 法国共和国法院周五以 “危害他人生命 “的罪名对前卫生部长阿涅丝·比赞（Agnes Buzyn）提出起诉，原因是她对与冠状病毒有关的健康危机的管理，及另一项“主动放弃与灾难作斗争”而被列为协助证人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-sc-4.png)
+作为唯一有权对部长们在其任期内的行为进行审判的机构，从2020年7月以来，CJR( 共和国法院)一直在调查Covid-19健康危机的管理状况。该机构已经收到了数千份投诉。根据最高上诉法院检察官弗朗索莫林的统计，有14500份，其中许多来自反对健康危机管理的律师在网上提出的标准表格，包括有争议的法布里斯-迪维齐奥。有16件被认为是可以受理的，特别是涉及到护理人员缺乏设备或当局强制戴口罩的错误方式。
 
-文章仅代表作者本人观点，与Gnews无关
+现年58岁的阿涅丝·比赞是世界卫生组织（WHO）的代表，她在2017年至2020年2月期间担任卫生部长，当时，由于大流行病令整个世界担忧，她却离开了岗位，去竞选巴黎市长（未获成功）。2020年6月，她对《世界报》解释说：”当我离开部委时，我哭了，因为我知道海啸的浪潮就在我们前面，这引起了一场丑闻。何况在她辞职之前，她确实提到了 Covid-19 大规模传播的“非常低的风险”。
 
-视频参看：2021.09.11早GTV新闻访谈
+**Source：[法新社](https://www.rfi.fr/en/french-ex-health-minister-charged-over-handling-of-pandemic)**
 
-[https://www.youtube.com/watch?v=e2va20ou984](https://www.youtube.com/watch?v=e2va20ou984)
+(文章只代表作者个人观点）
 
-编辑/校对/发稿：香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

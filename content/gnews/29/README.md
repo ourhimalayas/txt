@@ -2,34 +2,19 @@
 ---
 
 
-## 美国采取多项行动 协助台湾提升国际地位
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1526380/)
+## 秘翻在线: 黑石放弃收购SOHO 中国，潘石屹清仓套现受阻
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1526686/)
 
-栏目记者/责任编辑：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-115.png)
-下周，联合国大会第76届会议即将在纽约开幕，共和党联邦众议员佩里和蒂法尼9月9日致函美国驻联合国大使托马斯·格林菲尔德，呼吁拜登政府使用美国在联合国的“发言权、投票和影响力”确保提升台湾的地位，最终协助台湾加入联合国。
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide13-2.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/87e8a3f6bcfb4598ab3eb9a8d6b76c0a.png)图片来源：sohu.com
+据9月10日晚第一金融网报道， SOHO中国在港交所发布公告，双方认定无法在截至日满足先决条件，黑石放弃了逾30亿美元的收购计划，双方也同意不会推迟最后截止日。
 
-与此同时 9月10日《金融时报》报道，，在与习近平二次通话后，拜登政府正在“认真考虑”将台湾政府的“驻美国台北经济文化代表处”更名为“台湾代表处”。另一个引发中共不满的消息是，周五美台高级别官员在华盛顿近郊举行了“特殊渠道”会谈, 这也是拜登政府官员首度与台湾高层举行面对面会谈。
+早在6月16日。SOHO中国对外宣布黑石发出全面收购要约，以约30亿美元收购控股权，而SOHO现有控股股东将保留9%股权。如交易完成后，会是黑石在中共国的最大一笔房地产投资。近年来，为能早日跑路撤离中共国，潘石屹一直在卖卖卖，此次的出售价也是打了不到6折。然而8月6日，Soho 中国收到了中国国家市场监管总局通知，对要约方根据“中国反垄断法”提交的申报正式立案审查。 这一消息的到来，加之近来中共国房地产企业大量出现问题，楼市明显降温。可能使黑石最终决定放弃收购计划。
 
-尽管中共一再蛮横声称中共国在联合国的主权范围包括台湾，并阻挠打压台湾与其他国家的官方形式交往，但美国以及立陶宛、欧盟近期的行动都表明了, 国际社会对台湾民主自由价值观的支持，对中共强权无视并破坏国际秩序的愤慨。
+但是正如郭先生早就预见到的，国内的私营企业家，无论如何与中共勾兑，都逃脱不了被割韭菜的结果。这次黑石的放弃，估计SOHO中国也很难找到新的买家。潘石屹的贪心，造成了今日结果，正是人算不如天算。
 
-(本文仅代表作者观点）
+**新闻来源：**[SOHO中国：黑石集团决定不就收购公司股权作出要约\_第一金融网 (afinance.cn)](http://www.afinance.cn/fang/fczx/202109/2606484.html)
 
-参考链接：[报道称白宫考虑允许台湾驻美代表处更名，美台国安高官在华盛顿近郊会谈](https://www.voachinese.com/a/biden-administration-is-reportedly-considering-allowing-taiwan-mission-in-washington-to-change-name-20210910/6222319.html)
-[联合国大会召开前夕 美国会议员推动台湾加入联合国](https://www.voachinese.com/a/us-lawmakers-call-for-taiwan-un-membership-20210910/6222294.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：FoxRina
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

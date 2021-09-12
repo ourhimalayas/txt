@@ -2,47 +2,46 @@
 ---
 
 
-## 视频| 911事件 20周年在即, 阿富汗局势陷入轮回
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1525909/)
+## 2021/09/09 川普：习近平可能会对台湾采取军事行动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526360/)
 
-制作：香草山健身部-书记己嗝屁！
+2021年9月11日
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**简评：**
 
+由于阿富汗事件，让中共和全世界看到美国的软弱，习近平有可能会对台湾采取军事行动。前几天，他们已经向台湾发送了几架具有核能力的轰炸机。川普总统在任的时候，中共从来没有威胁过要打台湾。
 
-
-
-
-
+[GTV视频链接](https://gtv.org/video/id=613b6f87784c5a2583546f21)
 
 
 
-2001年9月11日，伊斯兰恐怖主义“基地”组织在美国发动了自杀式恐怖袭击，极端恐怖分子劫持民航客机分别撞击纽约世贸中心和华盛顿五角大楼，导致三千人死亡，制造了震惊世界的“911”恐怖袭击事件!
+**视频字幕：**
 
-911事件后不到一个月，美国出兵空袭阿富汗，开启了“美国历史上最长的战争”，最终推翻了当年给基地组织提供一切援助的塔利班政权。20年过去了,2021年8月30日，美军完成军事行动，从阿富汗狼狈撤军，塔利班武装在中共支持下趁机夺取政权, 最终重新掌控了阿富汗.
+**NEWSMAX主持人：**我想说说中共国，因为这个很重要。显然，中国人和世界上其他国家一样，感觉到美国现在的软弱。前几天，他们向台湾这个小岛发送了几架具有核能力的轰炸机，这是他们发布的重要声明。你认为习近平真的会对台湾有什么实质性的动作吗？
+
+**川普（电话采访）：**当他看到阿富汗发生的事情，当他在电视上看到我们某些无能的将军，这种情况有可能发生。
+
+我们有很伟大的将军，当我拿下ISIS的时候，我跟这些将军们打过交道，他们非常出色。但是你在电视上没有看到这些出色的将军。
+
+当习看到你我现在看到的，他们的无能和软弱，(对台湾的动作）非常有可能发生。
+
+顺便提一下，我在任的时候，他们从来没有威胁要攻打台湾。现在人人都都在说这件事。我在任的时候没人说，不会发生这种事。
+
+**主持人：**是的，他们怕你。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*视频字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | 简评/文字整理/编辑：胖丁 | Page：青山*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**文字版原文：[911事件 20周年在即, 阿富汗局势陷入轮回](https://gnews.org/zh-hans/1523881/)**
-
-栏目记者/责任编辑：文龙
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0
