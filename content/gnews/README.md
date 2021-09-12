@@ -85,47 +85,47 @@
 ### [有声| 学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [塔利班已处决阿富汗前副总统的哥哥](/content/gnews/25/README.md)
+### [多位爆料革命战友因传播平安集团盗国真相遭其律师骚扰](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [抖音向未成年人推荐毒品和性爱的视频](/content/gnews/26/README.md)
+### [加拿大保守党支持率激增 特鲁多赢得紧急大选的机会减少](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：美国鸡肉短缺严重 肯德基或加速推广植物肉炸鸡](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：美监管机构准备就“稳定币是否威胁金融稳定”启动正式评估](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：福奇在“为何中共病毒感染恢复者需要打疫苗？”的问题上闪烁其词](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加密货币需求在阿富汗激增，可帮助塔利班躲避制裁](/content/gnews/30/README.md)
+### [塔利班已处决阿富汗前副总统的哥哥](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [银河快讯：日越防长就缔结防卫装备出口协定达成一致；日美联盟扩大到中东地区](/content/gnews/31/README.md)
+### [抖音向未成年人推荐毒品和性爱的视频](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：美国鸡肉短缺严重 肯德基或加速推广植物肉炸鸡](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：美监管机构准备就“稳定币是否威胁金融稳定”启动正式评估](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日越防长就缔结防卫装备出口协定达成一致](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [银河快讯：日越防长就缔结防卫装备出口协定达成一致；日美联盟扩大到中东地区](/content/gnews/32/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [新州举行最后一次每日新闻发布会](/content/gnews/32/README.md)
+### [新州举行最后一次每日新闻发布会](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：土耳其民众上街抗议当局疫情封锁措施](/content/gnews/33/README.md)
+### [秘翻在线：土耳其民众上街抗议当局疫情封锁措施](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫](/content/gnews/34/README.md)
+### [秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/35/README.md)
+### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第049期](/content/gnews/36/README.md)
+### [雅典娜时报-第049期](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/37/README.md)
+### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [美国第45届总统唐纳德 J. 川普2021年9月11日的声明](/content/gnews/38/README.md)
- ` 美国政要直译推`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`

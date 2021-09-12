@@ -2,24 +2,21 @@
 ---
 
 
-## 秘翻在线：福奇在“为何中共病毒感染恢复者需要打疫苗？”的问题上闪烁其词
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527182/)
+## 秘翻在线：美国鸡肉短缺严重 肯德基或加速推广植物肉炸鸡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527219/)
 
-#### 撰稿：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-25.jpg)图片来源：VOA
-零对冲（Zero Hedge）9月11日报道，一项由以色列研究人员进行的研究发现，以往感染过中共病毒的恢复者，比打过疫苗的人更有抵抗力。
+#### 撰稿：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/7-6.jpg)
+家禽短缺扰乱了整个英国和美国的鸡肉供应链，加之中共病毒大流行造成的持续混乱，肯德基已经开始在快餐连锁领域寻求素食突破口。
 
-本周五，神经外科医生桑杰·古普塔（Dr. Sanjay Gupta）在CNN的节目中问福奇：“我总是收到人们的电话，说我已得过这个感染，我已经受到保护了，而且现在的研究已经显示比只打疫苗的人更具保护力，那么这些人是否还需要打疫苗？你对这种情况是如何处理的？”
+肯德基美国总裁凯文·霍赫曼（Kevin Hochman）一直在筹备植物肉产品。该公司已经在试点地区尝试推出由别样肉客（Beyond Meat） 供货的植物肉鸡块，但全国推广尚未提上日程。
 
-福奇说：“我对此没有明确答复。这是我们还需要讨论的关于这个免疫持久性的问题，至少以色列的这篇报告并没有告诉你自然感染后的免疫是不是比疫苗免疫持续时间更久，所以说，如果你感染了，你就得到保护了，但在一段不确定的时间后你可能就失去了保护。所以我们应该认真讨论这个问题。”
+由于美国的鸡肉短缺情况非常严重，以至于肯德基香酥炸鸡排广告无法在美国投放。这可能会让胡克曼加速人造肉鸡块的推广，以缓解供应困境。
 
-以色列的发现是基于真实数据，辉瑞公司员工也参与领导了这项研究，得到了自然免疫表现出了持久的保护作用的证据。
+霍赫曼向彭博社透露，肯德基的计划是在不使用动物原料的前提下，尽可能复原肯德基炸鸡的质感和口感，他认为千禧一代更容易接受植物肉制品，因此，肯德基非常看好植物肉的前景——植物肉的火爆不会是昙花一现。
 
-上个月，疾控中心（CDC）主任罗彻尔·瓦伦斯基（Dr. Rochelle Walensky）却传达了疾控中心和肯塔基州的研究认为疫苗比以往有过感染更具保护性。认为感染后再注射疫苗可以提供更好的保护。
+然而，对于连锁快餐来说，素食并不是一块好啃的骨头。说服美国中部的人吃假肉更是难上加难。但植物肉鸡块或许真的能缓解肯德基的供应问题。
 
-##### 新闻来源： [Fauci: No “Firm Answer” On Why Americans Who Recovered From COVID-19 Should Get Vaccinated](https://www.zerohedge.com/covid-19/fauci-no-firm-answer-why-americans-who-recovered-covid-19-should-get-vaccinated)
+新闻来源：[KFC Bets On Vegan Nuggets Amid Nationwide Poultry Shortage](https://www.zerohedge.com/markets/kfc-bets-vegan-nuggets-amid-nationwide-poultry-shortage)
 
-
-
-0
++1

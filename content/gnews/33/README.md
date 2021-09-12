@@ -2,21 +2,31 @@
 ---
 
 
-## 秘翻在线：土耳其民众上街抗议当局疫情封锁措施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527342/)
+## 新州举行最后一次每日新闻发布会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527341/)
 
-#### 撰稿：彩虹       
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：The Conversation
+**整理报道：**翼族
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-122.png)图片来源：半岛电视台
-9月11日，《国会山报》（TheHill）记者卡洛琳-瓦基尔（Caroline Vakil）撰文，报道土耳其发生游行示威活动，反对封锁当局（中共病毒）疫情，侵犯个人自由。
+今天是新南威尔士州最后一次每日新闻发布会，州长格拉迪斯·贝瑞吉克莲(Gladys Berejiklian)在最后一次中共病毒媒体会议上宣布新增了1262例本地确诊病例和七例死亡。
 
-文章说，根据《路透社》报道，本周早些时候，土耳其政府表示，参加音乐会和其他人群较多的活动时，需要提供疫苗接种证明或冠状病毒阴性测试。这些限制措施也适用于某些交通方式，如火车和巴士。同时，在公共场所，人们需要遵循社交疏导并佩戴口罩。另外，在学校工作且仍未接种疫苗的人，每周需要进行几次COVID-19（中共病毒）测试。
+在死亡的七人中，一名是20多岁的男子。首席卫生官科利·查恩特（Kerry Chant）博士说，这名男子有严重的潜在健康问题，没有接种疫苗。在过去的两周，新州政府停止公布死亡病例的疫苗接种情况，并且新州政府每周公布的病毒监测报告也停止在8月21日，再也没有更新。
 
-文章报道，法国和希腊已经要求医护人员接种疫苗。此外，法国正在要求人们使用健康证，健康证显示他们是否接种过疫苗或最近COVID-19（中共病毒）检测是否呈阴性。
+新南威尔士州政府因决定停止每日上午11点的更新而受到猛烈的抨击。贝瑞吉克莲州长表示，未来她会在需要时出现在媒体面前。在此之前的一天，新南威尔士州周六记录了最糟糕的确诊数据，有1599例新增和8例死亡。
 
-周六，数千土耳其人走上街头示威，声称最近的这些限制措施侵犯了个人自由。这一消息传来后，法国和希腊也相继出现了类似的抗议活动。
+贝瑞吉克莲州长警告说，未来几个月将是该州历史上最糟糕的时期。
 
-**新闻来源** [Thousands demonstrate in Turkey against COVID-19 protocols](https://thehill.com/policy/international/571841-turkey-sees-thousands-demonstrate-against-covid-19-protocols?rl=1)
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考链接：**[Seven deaths announced in NSW’s last daily briefing](https://www.news.com.au/world/coronavirus/australia/alarming-figure-in-victorias-covid-outbreak-reveals-state-faces-worse-crisis-than-nsw/news-story/eb1ff5bd433cf733775da27776cfc717)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
