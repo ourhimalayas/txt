@@ -14,6 +14,10 @@
 ---
 ## 頁面 30/34 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
 
+[翻译：中国的思想警察管得越来越宽（小平事件）](/content/2018/04/20180418-8145984323910916538.md)
+
+[翻译：美籍华人记者声称中国绑架了他的妻子](/content/2018/04/20180418-3894960312910613407.md)
+
 [2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/2018/04/20180418-6010297384739671403.md)
 
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/2018/04/20180418-5726696199328694940.md)
@@ -59,10 +63,6 @@
 [2017.11.23文贵感恩节报平安视频](/content/2018/04/20180418-3850717849203274795.md)
 
 [2017.11.21 文贵Instagram健身直播 ](/content/2018/04/20180418-7655939134164928883.md)
-
-[文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
-
-[翻译：班农在第十二届族群青年领袖研习营演讲](/content/2018/04/20180418-291103909959910855.md)
 
 
 ## 頁面 30/34 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
