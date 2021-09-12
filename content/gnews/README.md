@@ -28,14 +28,14 @@
 ### [警惕，中共正在干预加拿大大选！](/content/gnews/5/README.md)
  ` 军迷wilson`
 
-### [2021年9月10日文贵直播全文字版](/content/gnews/6/README.md)
+### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月11日郭先生盖特1「9分29秒」](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月10日文贵直播全文字版](/content/gnews/8/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [技术进步有助于穿透防火墙 传播病毒真相](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/09/11文贵盖特精要](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
@@ -85,47 +85,47 @@
 ### [有声| 学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：福奇在“为何中共病毒感染恢复者需要打疫苗？”的问题上闪烁其词](/content/gnews/25/README.md)
+### [秘翻在线：美监管机构准备就“稳定币是否威胁金融稳定”启动正式评估](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加密货币需求在阿富汗激增，可帮助塔利班躲避制裁](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：澳洲政府草菅人命 禁用伊维菌素治疗中共病毒](/content/gnews/27/README.md)
+### [秘翻在线：福奇在“为何中共病毒感染恢复者需要打疫苗？”的问题上闪烁其词](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：近1.8亿人接种了两剂中共病毒疫苗](/content/gnews/28/README.md)
+### [加密货币需求在阿富汗激增，可帮助塔利班躲避制裁](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：澳洲政府草菅人命 禁用伊维菌素治疗中共病毒](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共官媒借”911“事件二十周年，攻击美国的人权状况](/content/gnews/29/README.md)
+### [秘翻在线：近1.8亿人接种了两剂中共病毒疫苗](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共官媒借”911“事件二十周年，攻击美国的人权状况](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共周四公布出售更多战略石油储备的计划](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/31/README.md)
+### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第049期](/content/gnews/32/README.md)
+### [雅典娜时报-第049期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/33/README.md)
+### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国第45届总统唐纳德 J. 川普2021年9月11日的声明](/content/gnews/34/README.md)
+### [美国第45届总统唐纳德 J. 川普2021年9月11日的声明](/content/gnews/35/README.md)
  ` 美国政要直译推`
 
-### [推广疫苗护照，澳大利亚政府发起新一轮运动](/content/gnews/35/README.md)
+### [推广疫苗护照，澳大利亚政府发起新一轮运动](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [解放军十九架军机再扰台](/content/gnews/36/README.md)
+### [解放军十九架军机再扰台](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默](/content/gnews/37/README.md)
+### [《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共科学家欲收购石墨烯厂 英政府下令国安审查](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
 
 ### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
  ` 秘密翻译组G-Translators`
@@ -151,36 +151,36 @@
 ### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](/content/gnews/47/README.md)
+### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/47/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月11日郭先生盖特1「9分29秒」](/content/gnews/48/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](/content/gnews/49/README.md)
  ` 英喜-粵語組`
 
-### [G时评：宗教的本质，究竟是什么？](/content/gnews/48/README.md)
+### [G时评：宗教的本质，究竟是什么？](/content/gnews/50/README.md)
  ` GISELLE`
 
-### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/49/README.md)
+### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/51/README.md)
  ` HimalayaRussia`
 
-### [塔吉克斯坦正在阿富汗危机中发挥关键作用](/content/gnews/50/README.md)
+### [塔吉克斯坦正在阿富汗危机中发挥关键作用](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/51/README.md)
+### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/53/README.md)
  ` 文永`
 
-### [2021/09/11文贵盖特精要](/content/gnews/52/README.md)
+### [2021/09/11文贵盖特精要](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [白宫承认拜登与习有私下交流](/content/gnews/53/README.md)
+### [白宫承认拜登与习有私下交流](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/54/README.md)
+### [德国自由党国会副议长库比奇抨击政府大规模限缩基本权利的政策](/content/gnews/56/README.md)
  ` MG 澳喜农场多语组`
 
-### [“政治黑天鹅事件”迫使习对台作战2号计划破产](/content/gnews/55/README.md)
+### [“政治黑天鹅事件”迫使习对台作战2号计划破产](/content/gnews/57/README.md)
  ` 纽约香草山MOS01`
-
-### [独裁者为何都爱斗争哲学？](/content/gnews/56/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [兰德·保罗指责福奇在COVID-19问题上撒了几十次谎](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

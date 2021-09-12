@@ -2,141 +2,35 @@
 ---
 
 
-## 技术进步有助于穿透防火墙 传播病毒真相
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1526881/)
+## 2021年9月11日郭先生盖特1「9分29秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1527300/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/av8ne-o75x5.jpg)
-[https://gtv.org/video/id=613cda95784c5a258354ee5b](https://gtv.org/video/id=613cda95784c5a258354ee5b)
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-**字幕内容:**
+Video link: [https://gettr.com/post/parjyxf689](https://gettr.com/post/parjyxf689)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/81511034-9213-4158-8093-E7B655F0A437.png)
+尊敬的战友们好，今天是911。后面「电视上」正在进行的「《真人真事》节目」还没完呢，马上要完了。这期《真人真事》节目采访的是猫本小哥，我看节目忘了录GETTR了。很多战友给我发信息，“7哥你今天还没有发视频呢”。我才想起来，快发。真的，我觉得从猫本小哥、正义小Sara、长岛哥这些战友所做的发自内心的这种节目，这种问答中，我最享受的是什么呢？就一个人，当你看到有人说实话，不但说实话，还是有用的话时特别享受。你说实话：“我放屁了；我拉屎了；我吃饭了。”这是实话，那有啥用啊？我也吃饭，我也拉屎啊，是不是？说的话有用，这是很关键的。再个是发自内心的，是原创，是来自于自己的。
 
-**郭文贵**
-**Miles Guo**
+大家记住，“道德”这俩字儿里边，千万别先讲“德”，否则就是王八孙子了。“德”在后，“道”在先。一定记住讲“德”不讲“道”者，不懂“德”，非“德者”也。这人一定是非骗即坏。得先讲“道”，“道”是什么？是行动，是术和标准。我2017年就讲了，是不是？所有2017年我讲过的话我都不愿再重复了。但有人现在还不懂起码的做人的基本 — 道德。讲“德”不讲“道”的人，你就是瞎忽悠的。再一个，大家记住：中国的“道”和“德”和西方的耶稣，还有西方的基督教，包括整个宗教系列：天主教、东正教、《旧约》、《新约》…… 100%是冲突的。道德讲的是人间法；基督徒有些人发那个他们自己根本读不懂的《旧约》和《新约》，而且是被人给篡改的，甚至一大半教徒不承认的所谓的《新约》和《旧约》，那都是瞎忽悠，瞎骗的。中国的道德是“人间法”；西方的所有的基督派系列，也就是耶路撒冷系列，所有讲的是“人神间法”，你也可以讲是人听从神的人间法，不是人间法。凡是在人间讲神话的，全都是孙子，全都该死，因为你在骗人。
 
-这个接下来我觉得
-Next to come, I think
+就像那什么狗屁的德先生，就一垃圾。从来不露脸，还说什么在德国北部啥的，其实他就在国内，好不好？装神弄鬼的，就是一骗子，连饭都找不着吃的人。给脸不要脸这种人，7哥就是想只要你有心灭共，就是王岐山、习近平咱也支持，但你别装神弄鬼。这孙子就是给脸不要脸，你只要把手伸到战友的腰包里，腰带里，你就是我们的敌人。凡是在人间讲神话的，用神话故事弄钱的全都该死，都是骗子。你可以告诉人们要有信仰，有神，但你不能代表神，你也不能因为你代表神叫别人付钱 — 这是绝对不可以的。可悲呀，还有人花钱。你花钱干啥啊？你拿那1000欧元干啥不行呢，是不是，多简单啊？我就不想多说了。
 
-我觉得未来两三个月
-I think the next two or three months
+大家知道我昨天和今天都是见重要的VIP，发生了很多很多事。以至于刚才好几个人问我昨天怎么样，我都不好意思说了，都不知道怎么说好了。昨天我第一次和我最好的朋友发了最大的脾气，从来没有过。我们相敬如宾这么多年，一二十年的老朋友了。人家是一国之元首，但再好也是元首啊。我昨天就因为他打了疫苗真跟他急了。孩子、孙子、家人都打了，但是他昨天也真害怕了，也信了。他说：“Miles，我100%信了，我吃药。”我说我真不愿意看到我去给你送行，火葬场什么的。他现在也发现这个世界太疯狂了。特别是他还刚去过中共国，跟中南坑的这帮老王八犊子都刚私下见过面。我昨天是冒了很大风险的，我说：“我不想见你，因为你打了疫苗，我怕你感染我。再就是你见过中南坑这帮家伙，太危险了。”
 
-所有的手机互联网在国内
-All mobile internet in China
+确实我感受到了爆料革命和新中国联邦的力量影响太大了！太大了！过去一星期，体制内直接找我的，想投资G系列的大概在六、七百人。这六、七百人都是直接找我的，都是通过各种关系找到我的，仅前天到昨天。现在我已经没有时间回复的大概就有110多个人。所以兄弟姐妹们，你说爆料革命影响多大？仅仅青蒿素这一样药品在国内，大家上网查一查，看看爆料后青蒿素涨了多少钱，市场交易量是多少？你就知道爆料革命有多少人看了。千万别相信那YouTube的「观看」数据。我那首歌，是哪首歌的，《Hero》还是《Take Down The CCP》，从50万直接给降到20万了；News Talk节目到50万了，直接给移掉了这个节目。别相信那个，你相信青蒿素，还有真正打榜的数字。
 
-会严格控制
-will be strictly controlled
+更夸张的是在香港，兄弟姐妹们，你们知道现在香港在发生什么事儿吗？我们明天直播中再好好聊聊。 “前海经济开发区”已经准备好对香港富豪，可不是在国内只弄马云、马明哲、马化腾，要把香港的那些舔共产党腚的四大不要脸「家族」的钱都给收了。明天我们直播准备谈谈这个事儿，讲讲什么是前海扩大经济区。
 
-但是由于技术的进步
-But due to the advancement of technology
+另外，现在这些宗教机构私下找我的太多了。都是示好的，“你讲的都是救人的，如何如何，但是能不能别提我？”。你说我们讲的，用共产党话说都是假话，都是胡说八道，都是骗子，你在乎我们说的干嘛，是吧？你不用在乎啊，但是他们就那么在乎。说明什么呢？说明我们说的是真的；说的重要。是吧？
 
-它是封不住的
-it can’t be blocked
+马明哲在到处告我们的战友，马明哲你为啥不来告我啊？有种放马过来，你告我，你告诉我那些穷战友干嘛啊？所有战友，只要是因为马明哲告你们的，请跟法治基金或你们的农场联系。法治基金全面出面，一切律师费用法治基金解决，放心吧兄弟姐妹们。这些天我们又救了太多人了。太多战友因为这个药而获救了，我都没法说了。仅在意大利，就十几个战友被从死亡线上拉回来了；日本最起码得有几百个，我在日本秘密储存的药现在已经消耗掉了1/3。这些药没有一个是通过农场发出去的，我说的不包含农场。大家小心不要染上了，染上就完了，兄弟姐妹们。另外我再重申一遍，世界的经济真出大事儿了。从昨天晚上四点到现在，我收到的都是各种世界上有关经济的奇怪疯狂的和崩塌的一些数据。务必得有吃饭的钱啊，兄弟姐妹们。
 
-包括天空Wifi
-Including Sky wifi
+今天忘了按时发GETTR了，抱歉。明天早上九点钟大直播见。今天乱聊，明天大直播可不是乱聊啊！
 
-包括新的这个iPhone 啊
-including the new iPhone
 
-包括现在整个在俄罗斯， 在蒙古
-including now in Russia, in Mongolia
 
-包括在这个尼泊尔周围
-including Nepal area
 
-有很多人在搞所谓的翻墙软件
-many people are working on so-called the softwares of circumventing the firewall.
 
-所以说未来国内的墙
-So in the future, the China firewall
 
-越来越难翻了
-is more and more difficult to cross
 
-那么今天我下午谈的一个事情
-So one thing I will talk about this afternoon
-
-就是要跟我们 G Club， 要跟我们盖特, 还有GTV要合作的，一个叫网络供应商
-is a network provider which is about to cooperate with our G Club, with our Gettr and with GTV
-
-包括提供，中国人可能很快
-It provides the Chinese may soon
-
-在各个方面看网络
-access the internet in all aspects
-
-能够穿过防火墙
-and be able to get through the firewall,
-
-甚至推翻防火墙
-even overthrow the firewall.
-
-包括和某国政府
-Including together with the government of a certain country,
-
-我们接下来一会儿马上会有一个短的视频会议
-We will have a short video conference soon
-
-那么这个视频会其中会谈到
-Then we will talk about at this video conference
-
-如何在它的国家建立一个
-how to in it’s country build up a …
-
-能让中共所有国内的咱同胞们
-which is able to make all our compatriots in China
-
-看到更多国外的真实信息
-see more real information from abroad
-
-特别是在冠状病毒和疫苗真相面前
-Especially the truth about coronavirus and vaccines
-
-我觉得中国人最重要的
-I think the most important thing for Chinese
-
-我觉得要获得真实的信息
-is to get real information.
-
-我们要让大家开智明眼的时候
-When we want everyone to open up their minds and eyes,
-
-大家要想到，它能救命啊
-Everyone, think about it, it can save lives.
-
-如果中国人真能明白病毒和冠状病毒的整个来源
-If the Chinese can really understand the whole origin of the virus and the coronavirus
-
-和打疫苗的危害
-And the harm of vaccination,
-
-我相信很多人都不会打疫苗的
-I believe many people will not be vaccinated.
-
-我们不要去怪他们
-Let’s not blame them
-
-我们现在给他们多少钱,不如让他们看清楚事情的本质和真相
-No matter how much money we give them now is not as good as to let them see the truth of the matter.
-
-这个像我们爆料革命新中国联邦一定要有这个胸怀
-The whistleblower revolutionary, the New Federal State of China must have this mindset
-
-我们尽可能的让他们看到这些东西
-We try our best to let them see these things
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1435931513640550410?s=24](https://twitter.com/se1y7cblljselva/status/1435931513640550410?s=24)
-
-中听英: 洛杉矶盘古农场 – Raul
-翻译: 洛杉矶古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1
