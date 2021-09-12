@@ -37,14 +37,14 @@
 ### [郭文贵先生盖特视频2021年9月11日文字精简版分享](/content/gnews/8/README.md)
  ` TS2020相聚盘古`
 
-### [美国19位州长抵制拜登的强制接种疫苗政策](/content/gnews/9/README.md)
+### [罗根：伊维菌素和“信息政治化”](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国19位州长抵制拜登的强制接种疫苗政策](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵精品视频-病毒疫苗是北京俄罗斯合作的超限生物武器](/content/gnews/10/README.md)
+### [郭文贵精品视频-病毒疫苗是北京俄罗斯合作的超限生物武器](/content/gnews/11/README.md)
  ` 澳喜农场`
-
-### [秘翻在线：疫苗接种引发的心肌炎不是一种温和的自限性疾病](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [要塞英雄开发商诉苹果垄断 美法官下令松绑App付费制](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
@@ -67,22 +67,22 @@
 ### [因恒大财富暴雷，大批人在恒大办公室维权](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [巴西总统发布新规，禁止社交网络随意删除内容](/content/gnews/19/README.md)
- ` Runaway`
-
-### [中共国脑梗，心梗突然增多，太可怕！走着走着人就没了](/content/gnews/20/README.md)
- ` 澳喜农场`
-
-### [有声| 中共灭亡降至！文贵先生爆习拜通话内容](/content/gnews/21/README.md)
+### [视频| 美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声| 美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](/content/gnews/22/README.md)
+### [视频| 学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声| 辉瑞疫苗在10月份将获批用于5-11岁儿童](/content/gnews/23/README.md)
+### [视频| Moderna宣布正在研发针对中共病毒与流感的混合疫苗](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声| 郭文贵先生解析地产大亨王健林电视采访背后的秘密](/content/gnews/24/README.md)
+### [视频| 辉瑞疫苗在10月份将获批用于5-11岁儿童](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [视频| 解放军十九架军机再扰台](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [视频| 报复澳大利亚又失算，中共8月铁矿石进口暴增](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [秘翻在线：秦刚爆粗鲁言论令人震惊 中共新任驻美大使原形毕露](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [抖音向未成年人推荐毒品和性爱的视频](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [基地组织发布领导人扎瓦希里的新视频](/content/gnews/31/README.md)
- ` Shuizhuyu`
-
-### [微软跟中共加强合作，公司高管对中共国技术滥用发出警告](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [两岸少儿书画展，喻“罄竹难书”，美海军在台海挑战其决心](/content/gnews/33/README.md)
- ` 日本东京樱花团`
-
-### [联邦调查局发布关于 9/11 调查的第一份文件](/content/gnews/34/README.md)
- ` Shuizhuyu`
-
-### [秘翻在线：疫苗接种引发的心肌炎不是一种温和的自限性疾病](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [巴西总统发布新规，禁止社交网络随意删除内容](/content/gnews/36/README.md)
- ` Runaway`
-
-### [突发：疫苗患者揭露美国政府与医学界勾结](/content/gnews/37/README.md)
+### [罗根：伊维菌素和“信息政治化”](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [币圈新闻动态：比特币的合法性已被揭穿，它既不能很好地保值也不能取代黄金](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [拜登通过无人机轰炸了喀布尔的无辜援助者](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [基地组织发布领导人扎瓦希里的新视频](/content/gnews/33/README.md)
+ ` Shuizhuyu`
+
+### [微软跟中共加强合作，公司高管对中共国技术滥用发出警告](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [两岸少儿书画展，喻“罄竹难书”，美海军在台海挑战其决心](/content/gnews/35/README.md)
+ ` 日本东京樱花团`
+
+### [联邦调查局发布关于 9/11 调查的第一份文件](/content/gnews/36/README.md)
+ ` Shuizhuyu`
+
+### [秘翻在线：疫苗接种引发的心肌炎不是一种温和的自限性疾病](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [巴西总统发布新规，禁止社交网络随意删除内容](/content/gnews/38/README.md)
+ ` Runaway`
 
 ### [加国伦理学教授因质疑疫苗接种而遭受不公评处置](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [要塞英雄开发商诉苹果垄断 美法官下令松绑App付费制](/content/gnews/47/README.md)
- ` 日本东京方舟农场`
-
-### [外企持续撤资，三星重工闭厂](/content/gnews/48/README.md)
- ` 日本东京方舟农场`
-
-### [塔利班效仿中共打压民众](/content/gnews/49/README.md)
- ` 日本东京方舟农场`
-
-### [墙内要闻汇编](/content/gnews/50/README.md)
+### [国际要闻汇编](/content/gnews/47/README.md)
  ` 日本东京樱花团`
 
-### [美国19位州长抵制拜登的强制接种疫苗政策](/content/gnews/51/README.md)
+### [动员10万兵力，日本陆上自卫队将举行28年来最大军演](/content/gnews/48/README.md)
+ ` 日本东京樱花团`
+
+### [要塞英雄开发商诉苹果垄断 美法官下令松绑App付费制](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [英国情报部门：阿富汗塔利班的接管可能助长恐怖阴谋](/content/gnews/52/README.md)
+### [外企持续撤资，三星重工闭厂](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [澳参议员：后阿富汗时代澳洲应及早扩充战备](/content/gnews/53/README.md)
+### [塔利班效仿中共打压民众](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [澳退役将领：中共台海开战的目标是缩减美国印太势力](/content/gnews/54/README.md)
+### [墙内要闻汇编](/content/gnews/52/README.md)
+ ` 日本东京樱花团`
+
+### [美国19位州长抵制拜登的强制接种疫苗政策](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [中共继续输出“疫苗炸弹”祸害世界](/content/gnews/55/README.md)
+### [英国情报部门：阿富汗塔利班的接管可能助长恐怖阴谋](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
+
+### [澳参议员：后阿富汗时代澳洲应及早扩充战备](/content/gnews/55/README.md)
+ ` 日本东京方舟农场`
+
+### [澳退役将领：中共台海开战的目标是缩减美国印太势力](/content/gnews/56/README.md)
+ ` 日本东京方舟农场`
+
+### [中共继续输出“疫苗炸弹”祸害世界](/content/gnews/57/README.md)
  ` 儒为`
-
-### [前美国安局长：面对中国的网攻能力 美国须有正常行为的标准](/content/gnews/56/README.md)
- ` 日本东京樱花团`
-
-### [郭文贵先生大直播中提到的疫苗危害在逐渐变成现实](/content/gnews/57/README.md)
- ` 日本东京樱花团`
 

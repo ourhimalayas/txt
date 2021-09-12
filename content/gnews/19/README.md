@@ -2,25 +2,47 @@
 ---
 
 
-## 巴西总统发布新规，禁止社交网络随意删除内容
-` Runaway` [轉載自GNews](https://gnews.org/zh-hans/1527442/)
+## 视频| 美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1527927/)
 
-巴西总统博尔索纳罗(Jair Bolsonaro)在去年12月新冠病毒疫苗开始接种之前的一次发言中质疑新冠疫苗的安全性，不幸的是，疫苗产生了大量的伤害并被媒体所掩盖。博尔索纳罗总统是唯一的敢于面对暗黑势力并宣传真相的国家级总统。
+制作：香草山健身部-书记己嗝屁！
 
-然而博尔索纳罗总统的有关COVID-19大流行的许多言论一直被认为是“虚假信息”，Facebook、Twitter 和 YouTube 都从他那里删除了所谓“宣传未经证实的冠状病毒治疗药物”的视频。博尔索纳罗总统说，在明年的选举中让他失败的唯一途径是投票被操纵，民意被屏蔽。
-
-博尔索纳罗总统本周发布并立即生效了新社交媒体规则，暂时禁止社交媒体公司随意删除内容。根据新政策，科技公司只有在内容涉及某些主题（例如裸体、毒品和暴力），或者它们鼓励犯罪或侵犯版权时，才能被删除，否则必须得到法庭命令。
-
-博尔索纳罗政府在推特上表示，该政策“禁止删除可能导致任何政治、意识形态、科学、艺术或宗教秩序审查的内容。”尽管目前新规则还只是以120天有效期的紧急命令形式发布，但这是国家级政府第一次阻止互联网公司肆意删除内容的尝试，影响深远。
-
-本周，特朗普先生的前顾问杰森米勒在巴西的一个机场被拘留了三个小时，他曾在那里参加一个保守派政治会议。米勒先生在接受采访时说，当局告诉他，作为最高法院调查的一部分他们来审问他。“这太荒谬了”他说，“这确实表明，在巴西这个国家，言论自由受到了多少攻击。”
-
-博尔索纳罗先生2018年赢得总统大选，长期以来一直被拿来与特朗普先生相提并论，尽管暗黑势力试图限制他的言论，但是显然他不想重蹈川普总统的覆辙。
-
-（以上观点仅代表个人）
-
-[Brazil’s President Bans Social Networks From Removing Some Posts](https://www.nytimes.com/2021/09/09/world/americas/bolsonaro-social-networks.html)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+
+
+
+
+据华盛顿邮报9月10日报导，针对拜登政府日前发布的，对企业和联邦工作人员强制接种新冠疫苗的行政令，共和党领导人谴责这些新措施违反宪法，并表示将针对这些行政命令对政府提起诉讼。
+
+共和党全国委员会主席罗娜·麦克丹尼尔（Ronna McDaniel）质疑行政令的合法性，称其侵犯了宪法赋予美国公民的权力和自由，并计划在该指令最终揭晓时提起诉讼，届时将在提交法院的简报中阐述具体内容。
+
+
+
+**文字版原文：[美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](https://gnews.org/zh-hans/1526079/)**
+
+栏目记者/责任编辑：雪梨
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0
