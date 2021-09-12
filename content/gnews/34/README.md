@@ -2,31 +2,39 @@
 ---
 
 
-## 新州举行最后一次每日新闻发布会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527341/)
+## 美拟对中共产业补贴开展调查 不排除贸易制裁
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1527525/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：The Conversation
-**整理报道：**翼族
+作者：文小白
 
-今天是新南威尔士州最后一次每日新闻发布会，州长格拉迪斯·贝瑞吉克莲(Gladys Berejiklian)在最后一次中共病毒媒体会议上宣布新增了1262例本地确诊病例和七例死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
-在死亡的七人中，一名是20多岁的男子。首席卫生官科利·查恩特（Kerry Chant）博士说，这名男子有严重的潜在健康问题，没有接种疫苗。在过去的两周，新州政府停止公布死亡病例的疫苗接种情况，并且新州政府每周公布的病毒监测报告也停止在8月21日，再也没有更新。
 
-新南威尔士州政府因决定停止每日上午11点的更新而受到猛烈的抨击。贝瑞吉克莲州长表示，未来她会在需要时出现在媒体面前。在此之前的一天，新南威尔士州周六记录了最糟糕的确诊数据，有1599例新增和8例死亡。
 
-贝瑞吉克莲州长警告说，未来几个月将是该州历史上最糟糕的时期。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/美拟对中共产业补贴开展调查-不排除贸易制裁.jpg)图片来源：网络
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+长期以来，中共政府在具有重要战略意义的领域为本国产业提供贸易补贴，以确保中共国的竞争力。拜登政府称中共的补贴政策正在扭曲市场竞争，并考虑是否就贸易制裁展开调查。
 
-**参考链接：**[Seven deaths announced in NSW’s last daily briefing](https://www.news.com.au/world/coronavirus/australia/alarming-figure-in-victorias-covid-outbreak-reveals-state-faces-worse-crisis-than-nsw/news-story/eb1ff5bd433cf733775da27776cfc717)
+据悉，拜登政府内包括贸易代表戴琪及商务部长雷蒙多等官员将于同日下午讨论，评估对中共国的补贴政策启动新的调查，并量化中共国补贴对美国经济造成的伤害，以衡量适当的回应措施。此外，美国也会寻求日本和欧洲等盟国的支持，加快制定国际规则。
 
-*编辑/发布：翼族*
+美国政府一直谴责中共政府对国内产业的补贴政策，但一直没有采取有效的措施，导致中美巨大的贸易逆差。在当前中美两国严峻的国际形势下，美国对中共国的经济制裁将会引起广泛的关注。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：[米、中国産業補助金の調査検討　貿易制裁も視野　報道](https://news.yahoo.co.jp/articles/d495234a7cae933f81b91bbf66abc049d6a94148)
+
+编辑/校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

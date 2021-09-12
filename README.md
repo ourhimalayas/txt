@@ -28,23 +28,23 @@
 ### [警惕，中共正在干预加拿大大选！](/content/gnews/5/README.md)
  ` 军迷wilson`
 
-### [【郭先生直播摘要】2021.9.7 从一幅古董名画看清台湾的危险](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [郭文贵先生GTV直播2021年9月10日文字精简版分享](/content/gnews/7/README.md)
+### [郭文贵先生盖特视频2021年9月11日文字精简版分享](/content/gnews/6/README.md)
  ` TS2020相聚盘古`
 
-### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [【郭先生直播摘要】2021.9.7 从一幅古董名画看清台湾的危险](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/9/README.md)
- ` G&#124;News TAIWAN`
+### [郭文贵先生GTV直播2021年9月10日文字精简版分享](/content/gnews/8/README.md)
+ ` TS2020相聚盘古`
 
-### [秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务](/content/gnews/10/README.md)
+### [加国伦理学教授因质疑疫苗接种而遭受不公评处置](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新州举行最后一次每日新闻发布会](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
+### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/10/README.md)
+ ` G&#124;News TAIWAN`
+
+### [秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [白宫承认拜登与习有私下交流](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -103,40 +103,40 @@
 ### [秘翻在线：美监管机构准备就“稳定币是否威胁金融稳定”启动正式评估](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线:产科人员因拒绝接种疫苗而辞职，医院被迫停止接生服务](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
+### [币圈新闻动态：比特币的合法性已被揭穿，它既不能很好地保值也不能取代黄金](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [日越防长就缔结防卫装备出口协定达成一致](/content/gnews/32/README.md)
+### [国安法生效半年 Google反悔承诺交用户资料](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [银河快讯：日越防长就缔结防卫装备出口协定达成一致；日美联盟扩大到中东地区](/content/gnews/33/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [拜登政府计划对中共国的产业补贴展开调查](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新州举行最后一次每日新闻发布会](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
+### [美拟对中共产业补贴开展调查 不排除贸易制裁](/content/gnews/34/README.md)
+ ` 纽约香草山MOS01`
 
-### [秘翻在线：土耳其民众上街抗议当局疫情封锁措施](/content/gnews/35/README.md)
+### [DC大中华时事：古特雷斯警告，世界正朝着错误的方向前进](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [涉嫌非法采集维吾尔人DNA，中共国科研论文被撤销](/content/gnews/36/README.md)
+ ` 纽约香草山MOS01`
+
+### [日渔船想登钓鱼岛 中共国海警船撞日本海上保安厅炮舰](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [每日快报：揭秘《柳叶刀》杂志的27位科学家中有26位与中共国有联系](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [加国伦理学教授因质疑疫苗接种而遭受不公评处置](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [雅典娜时报-第049期](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
-
-### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/39/README.md)
+### [30年前，科尔曼博士是在编写阴谋论还是预警今天的现实？](/content/gnews/40/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共病毒可能永远不会被消灭，会与人类共存](/content/gnews/40/README.md)
+### [中共病毒可能永远不会被消灭，会与人类共存](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗重温疫情起源和发展](/content/gnews/41/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新冠疫苗设计缺陷导致疫苗有毒，并引发变异逃脱免疫监控](/content/gnews/42/README.md)
+### [纳瓦罗重温疫情起源和发展](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/43/README.md)

@@ -2,37 +2,26 @@
 ---
 
 
-## 产科人员拒绝疫苗，纽约医院停止接生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527264/)
+## 日渔船想登钓鱼岛 中共国海警船撞日本海上保安厅炮舰
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1527485/)
 
-#### **整理报道：**小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/informnny.jpg)
-图片来源：informnny.com
+![](https://assets.gnews.org/wp-content/uploads/2021/09/w1280-p16x9-DiaoyudaoChineJapon.jpg)日渔船想登钓鱼岛 中共国海警船撞日本海上保安厅炮舰 网络图片
 
-**【雅典娜快讯】，紧贴时事脉搏**
+据《自由时报》电子报9月11日消息，5艘日本渔船日前到钓鱼岛，遭中共国4艘海警船跟踪、拦阻，日本海上保安厅也派出船舰到场，中共国海警船在事件中撞上日本船舰。
 
-位于美国纽约的刘易斯县总医院（Lewis County General Hospital）将在9月24日之后停止接生，因为太多产科工作人员因中共病毒疫苗接种要求而辞职。
+中共完全不顾国际条例和海牙法庭的判决，把钓鱼岛划为己有，动辄就把中国人民搬出来当挡箭牌，“人民如何不答应”，“中共国领土”应该捍卫。盗国贼集团洗劫国内财产的时候，人民在哪里？每当与其他国家有冲突的时候，人民就出面了。
 
-刘易斯县卫生系统首席执行官杰拉尔德·凯尔（ Gerald Cayer）周五在洛维尔举行的新闻发布会上表示，产科部门有6名员工因拒绝接种中共病毒疫苗而辞职，另外7名员工尚未作出决定。
+新闻参考链接：[https://www.rfi.fr/cn/国际/20210911-日渔船想登钓鱼岛-中国海警船撞日本海上保安厅炮舰](https://www.rfi.fr/cn/国际/20210911-日渔船想登钓鱼岛-中国海警船撞日本海上保安厅炮舰)
 
-凯尔称，医院将无法安全地为该部门配备人员，并将在9月24 日之后暂停接生。他希望这是暂时的情况，并将与州卫生部合作，确保该部门不会永久关闭。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-今年8月，纽约州宣布，纽约州医院和长期护理机构的所有医护人员都必须在9月27 日之前至少接种一剂中共病毒疫苗。
 
-凯尔表示，医院有165名医院员工尚未接种中共病毒疫苗，这占员工总数的27%。其他的464名工人（占员工总数的73%）已经接种了疫苗。
+编辑：【英国伦敦喜庄园编辑部】
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**参考新闻**：[Hospital to stop delivering babies as maternity workers resign over vaccine mandate (wwnytv.com)](https://www.wwnytv.com/2021/09/10/hospital-stop-delivering-babies-maternity-workers-resign-over-vaccine-mandate/)
 
-*编辑：翼族
-发布：小红帽*
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-0
++1

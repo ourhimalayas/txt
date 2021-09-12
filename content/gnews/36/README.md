@@ -2,19 +2,39 @@
 ---
 
 
-## 秘翻在线：石油人民币或数字人民币取代美元体系纯粹是意淫
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527307/)
+## 涉嫌非法采集维吾尔人DNA，中共国科研论文被撤销
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1527495/)
 
-撰稿：WENJIE
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-12-114159.jpg)
-近日北京融商网讯旗下的BWCHINESE（BWC中文网）发布题为《伊朗正式用人民币替代美元，向中国运送2000万吨石油后，事情有新进展》为题的文章。
+作者：香草山教育部-有莫举名
 
-文章说截至今年的3月的18个月，伊朗的石油卖家已持续向中共国市场运送了约2000万吨石油，而这些石油交易大多数金融是以人民币或欧元进行的；然后以上海原油期货交易市场为世界第三大原油期货交易市场，以及英国石油公司（BP）以人民币计价实物交割原油等实例表明石油人民币已经走进中东，石油美元或许面临被改写。文章还以多国联合开发加密货币，并引用俄媒信息认为数字人民币和石油人民币都在改写全球商品交易的货币形式，数字人民币最终可能使伊朗和其他国家更容易绕开之前的货币系统（即美元系统）。
-
-笔者认真拜读该文几遍，并辅以网络相关文章来佐证该文的引用实例。然而，令笔者大跌眼镜的是，该文明显以偏概全，以点带面的夸大实例，混淆逻辑，名副其实为中共“舔腚”的洗脑文章。其一，与伊朗的2000万吨石油金融大部分是人民币和欧元，那其他部分呢？大部分是多？人民币占比多少？其二，所谓的原油期货交易第三大市场没有错，但是有官方文章明确说出，上海石油期货交易市场只是反映本地区的供需，主要作为部分中资企业原油贸易基准价，相关应用场景及标的使用范围有限。作为大宗商品，人民币结算已经实现，但是定价能力不足。最后，文章说的英国石油实物交割石油数量少得可怜，两笔一起共计400万桶，合50万吨多。所以该文纯粹是洗脑国内民众、逻辑不严谨，贻笑大方的垃圾文章，只是作者自己意淫而已。
-
-**[参考链接](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=2&amp;wm_id=fca2253025fc4728992aa042053d92bc&amp;wm_cid=442988570391621632&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/涉嫌非法采集维吾尔人DNA，两家著名国际期刊罕见撤销已发表的中共国科研论文.jpg)
+
+因为相关研究人员涉嫌非法采集受试者的血样，两家世界著名期刊，《国际法律医学》杂志（International Journal of Legal Medicine）和《人类遗传学》杂志（Human Genetics），近日先后撤销了中共国科研人员已发表的两篇基于新疆维吾尔族人DNA的研究论文。论文作者中，包括中共公安部法医研究所研究员、主任法医师李彩霞。
+
+去年5月，因涉嫌帮助中共大规模侵犯维吾尔族人人权，该研究所被美国政府列入黑名单。比利时鲁汶天主教大学教授莫罗（Yves Moreau）的研究表明，中共研究人员在2011年至2018年期间发表的、与基因相关的论文中，约有一半论文的作者与中共警方、军方或司法机关有关联，因此相关研究均涉嫌以非法手段获取基因样本。
+
+中共根本不把人权当回事，非法采集普通老百姓DNA的行为在中共国是普遍存在的现象。只有消灭中共，才能真正杜绝中共国此类大规模侵犯人权的行为。
+
+参考链接：[涉嫌违反国际伦理道德 两家著名国际期刊罕见撤销已发表的中国科研论文](https://www.voachinese.com/a/two-scientific-journals-retract-articles-involving-Chinese-DNA-research-20210910/6221675.html)
+
+校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0
