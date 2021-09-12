@@ -37,22 +37,22 @@
 ### [郭文贵先生盖特视频2021年9月11日文字精简版分享](/content/gnews/8/README.md)
  ` TS2020相聚盘古`
 
-### [郭文贵精品视频-病毒疫苗是北京俄罗斯合作的超限生物武器](/content/gnews/9/README.md)
+### [美国19位州长抵制拜登的强制接种疫苗政策](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [郭文贵精品视频-病毒疫苗是北京俄罗斯合作的超限生物武器](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [秘翻在线：疫苗接种引发的心肌炎不是一种温和的自限性疾病](/content/gnews/10/README.md)
+### [秘翻在线：疫苗接种引发的心肌炎不是一种温和的自限性疾病](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生大直播中提到的疫苗危害在逐渐变成现实](/content/gnews/11/README.md)
- ` 日本东京樱花团`
+### [要塞英雄开发商诉苹果垄断 美法官下令松绑App付费制](/content/gnews/12/README.md)
+ ` 日本东京方舟农场`
 
-### [白宫承认拜登与习有私下交流](/content/gnews/12/README.md)
+### [白宫承认拜登与习有私下交流](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [9.11恐怖袭击20周年](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中美脱钩 汇丰退出美国](/content/gnews/14/README.md)
+### [9.11恐怖袭击20周年](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
 ### [韩正私生子彭晓的G42继拿下塞尔维亚之后又与匈牙利签约](/content/gnews/15/README.md)
@@ -103,28 +103,28 @@
 ### [抖音向未成年人推荐毒品和性爱的视频](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：疫苗接种引发的心肌炎不是一种温和的自限性疾病](/content/gnews/31/README.md)
+### [基地组织发布领导人扎瓦希里的新视频](/content/gnews/31/README.md)
+ ` Shuizhuyu`
+
+### [微软跟中共加强合作，公司高管对中共国技术滥用发出警告](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [两岸少儿书画展，喻“罄竹难书”，美海军在台海挑战其决心](/content/gnews/33/README.md)
+ ` 日本东京樱花团`
+
+### [联邦调查局发布关于 9/11 调查的第一份文件](/content/gnews/34/README.md)
+ ` Shuizhuyu`
+
+### [秘翻在线：疫苗接种引发的心肌炎不是一种温和的自限性疾病](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [巴西总统发布新规，禁止社交网络随意删除内容](/content/gnews/32/README.md)
+### [巴西总统发布新规，禁止社交网络随意删除内容](/content/gnews/36/README.md)
  ` Runaway`
 
-### [突发：疫苗患者揭露美国政府与医学界勾结](/content/gnews/33/README.md)
+### [突发：疫苗患者揭露美国政府与医学界勾结](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [币圈新闻动态：比特币的合法性已被揭穿，它既不能很好地保值也不能取代黄金](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [国安法生效半年 Google反悔承诺交用户资料](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登政府计划对中共国的产业补贴展开调查](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美拟对中共产业补贴开展调查 不排除贸易制裁](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [DC大中华时事：古特雷斯警告，世界正朝着错误的方向前进](/content/gnews/38/README.md)
+### [币圈新闻动态：比特币的合法性已被揭穿，它既不能很好地保值也不能取代黄金](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [加国伦理学教授因质疑疫苗接种而遭受不公评处置](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳退役将领：中共台海开战的目标是缩减美国印太势力](/content/gnews/47/README.md)
+### [要塞英雄开发商诉苹果垄断 美法官下令松绑App付费制](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [中共继续输出“疫苗炸弹”祸害世界](/content/gnews/48/README.md)
+### [外企持续撤资，三星重工闭厂](/content/gnews/48/README.md)
+ ` 日本东京方舟农场`
+
+### [塔利班效仿中共打压民众](/content/gnews/49/README.md)
+ ` 日本东京方舟农场`
+
+### [墙内要闻汇编](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
+
+### [美国19位州长抵制拜登的强制接种疫苗政策](/content/gnews/51/README.md)
+ ` 日本东京方舟农场`
+
+### [英国情报部门：阿富汗塔利班的接管可能助长恐怖阴谋](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
+
+### [澳参议员：后阿富汗时代澳洲应及早扩充战备](/content/gnews/53/README.md)
+ ` 日本东京方舟农场`
+
+### [澳退役将领：中共台海开战的目标是缩减美国印太势力](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
+
+### [中共继续输出“疫苗炸弹”祸害世界](/content/gnews/55/README.md)
  ` 儒为`
 
-### [前美国安局长：面对中国的网攻能力 美国须有正常行为的标准](/content/gnews/49/README.md)
+### [前美国安局长：面对中国的网攻能力 美国须有正常行为的标准](/content/gnews/56/README.md)
  ` 日本东京樱花团`
 
-### [郭文贵先生大直播中提到的疫苗危害在逐渐变成现实](/content/gnews/50/README.md)
+### [郭文贵先生大直播中提到的疫苗危害在逐渐变成现实](/content/gnews/57/README.md)
  ` 日本东京樱花团`
-
-### [墙内疫苗心情日记（十四）](/content/gnews/51/README.md)
- ` 日本东京樱花团`
-
-### [“爆二代”的未来](/content/gnews/52/README.md)
- ` 日本东京樱花团`
-
-### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/53/README.md)
- ` G&#124;News TAIWAN`
-
-### [【郭先生直播摘要】2021.9.7 从一幅古董名画看清台湾的危险](/content/gnews/54/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [9.11文贵先生盖特要点](/content/gnews/55/README.md)
- ` 左媛专栏`
-
-### [你好朋友22期咱们爆料革命里的美丽的“老豆角”悟空](/content/gnews/56/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/57/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
