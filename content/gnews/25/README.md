@@ -2,43 +2,24 @@
 ---
 
 
-## 中共周四公布出售更多战略石油储备的计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1527018/)
+## 秘翻在线：福奇在“为何中共病毒感染恢复者需要打疫苗？”的问题上闪烁其词
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1527182/)
 
-栏目记者/责任编辑：正义的小新
+#### 撰稿：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-25.jpg)图片来源：VOA
+零对冲（Zero Hedge）9月11日报道，一项由以色列研究人员进行的研究发现，以往感染过中共病毒的恢复者，比打过疫苗的人更有抵抗力。
+
+本周五，神经外科医生桑杰·古普塔（Dr. Sanjay Gupta）在CNN的节目中问福奇：“我总是收到人们的电话，说我已得过这个感染，我已经受到保护了，而且现在的研究已经显示比只打疫苗的人更具保护力，那么这些人是否还需要打疫苗？你对这种情况是如何处理的？”
+
+福奇说：“我对此没有明确答复。这是我们还需要讨论的关于这个免疫持久性的问题，至少以色列的这篇报告并没有告诉你自然感染后的免疫是不是比疫苗免疫持续时间更久，所以说，如果你感染了，你就得到保护了，但在一段不确定的时间后你可能就失去了保护。所以我们应该认真讨论这个问题。”
+
+以色列的发现是基于真实数据，辉瑞公司员工也参与领导了这项研究，得到了自然免疫表现出了持久的保护作用的证据。
+
+上个月，疾控中心（CDC）主任罗彻尔·瓦伦斯基（Dr. Rochelle Walensky）却传达了疾控中心和肯塔基州的研究认为疫苗比以往有过感染更具保护性。认为感染后再注射疫苗可以提供更好的保护。
+
+##### 新闻来源： [Fauci: No “Firm Answer” On Why Americans Who Recovered From COVID-19 Should Get Vaccinated](https://www.zerohedge.com/covid-19/fauci-no-firm-answer-why-americans-who-recovered-covid-19-should-get-vaccinated)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-113.png)
-
-
-
-据【国际商务时报】9 月 10 日报道：本周四，中共国采取了前所未有的市场干预措施，首次向国际市场出售其战略储备石油。
-
-中共国国家粮食和物资储备局表示，中国动用了其所谓“庞大的石油储备”，以“缓解原材料价格上涨的压力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/中共周四公布出售更多战略石油储备的计划.jpg)
-据悉，中共国此次出售的是7月中旬提供的数百万桶石油储备。对于世界第二大经济体和第二大石油消费国来说，这一决定是历史性的第一次。随后，全球油价基准布伦特原油下跌1.6%，而美国石油价格下跌1.7%。到周四结束时，两者分别回升至每桶71.85美元和68.45美元。
-
-中共国国家储备机构表示，国家储备原油的“常态化”轮换是“战略储备“发挥所谓“平衡市场作用的重要方式”，暗示中共国还可能会继续释放原油。
-
-值得注意的是，在中共国粮食储备告急，房地产濒临崩盘，经济即将崩溃的时候，中共决定出售其战略储备石油，是真的为了缓解原材料价格上涨，还是外汇告急、财政出现危机 – 时间将会带给我们答案。
-
-（本文仅代表作者观点）
-
-参考新闻：[中共周四公布出售更多战略石油储备的计划](https://www.ibtimes.com/why-china-selling-its-oil-reserves-3293059)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-96.png)
-
-终审：Q大哥
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-113.png)
 
 0

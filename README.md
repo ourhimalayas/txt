@@ -13,20 +13,20 @@
 
 ---
 
-### [美国教师工会：CDC恐惧暴露疫苗真相](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [秘翻在线: 黑石放弃收购SOHO 中国，潘石屹清仓套现受阻](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [美军飞行员因拒绝强制疫苗而离职，美军实力快速削弱](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [CNN承认，中共网军在美国煽动了“种族不公正”的抗议活动](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [辉瑞公司故意隐瞒疫苗副作用已触犯法律](/content/gnews/3/README.md)
- ` 澳喜农场`
+### [腾讯旗下的微信用户将一分为二，境外用户的微信将被迁移至海外版微信](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
 
-### [郭文贵先生2017年爆料恒大巨大诈骗内幕](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [东芝将关闭大连生产工业马达等的基地](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
 
-### [给儿童注射疫苗是非法、违法、不道德、有违伦理的](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [警惕，中共正在干预加拿大大选！](/content/gnews/5/README.md)
+ ` 军迷wilson`
 
 ### [2021年9月10日文贵直播全文字版](/content/gnews/6/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
@@ -37,14 +37,14 @@
 ### [2021/09/11文贵盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/9/README.md)
+### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [韩正私生子彭晓的G42继拿下塞尔维亚之后又与匈牙利签约](/content/gnews/10/README.md)
+### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [韩正私生子彭晓的G42继拿下塞尔维亚之后又与匈牙利签约](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [推广疫苗护照，澳大利亚政府发起新一轮运动](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [白宫承认拜登与习有私下交流](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -67,56 +67,56 @@
 ### [因恒大财富暴雷，大批人在恒大办公室维权](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 郭文贵先生解析地产大亨王健林电视采访背后的秘密](/content/gnews/19/README.md)
+### [有声| 中共灭亡降至！文贵先生爆习拜通话内容](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声| 王岐山及其裙带关系代表某国际黑暗组织操控中共](/content/gnews/20/README.md)
+### [有声| 美国共和党领导人将就拜登政府强制疫苗接种令提起诉讼](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声| 学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/21/README.md)
+### [有声| 辉瑞疫苗在10月份将获批用于5-11岁儿童](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声| 德州上诉法庭推翻地区法院关于伊维菌素治疗新冠患者的命令，终至患者死亡](/content/gnews/22/README.md)
+### [有声| 郭文贵先生解析地产大亨王健林电视采访背后的秘密](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [2021/09/08《红色轮盘》—记录红色政权内部运作及方式](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [有声| 王岐山及其裙带关系代表某国际黑暗组织操控中共](/content/gnews/23/README.md)
+ ` MOSREC`
 
-### [2021/09/09 川普：习近平可能会对台湾采取军事行动](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [有声| 学校违反州法强迫学生佩戴口罩 州长使用法律武器予以回击](/content/gnews/24/README.md)
+ ` MOSREC`
 
-### [中共周四公布出售更多战略石油储备的计划](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [腾讯旗下的微信用户将一分为二，境外用户的微信将被迁移至海外版微信](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [中共官媒借“911”二十周年攻击美国的人权](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
-
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/28/README.md)
- ` wenwu`
-
-### [秘翻在线: 黑石放弃收购SOHO 中国，潘石屹清仓套现受阻](/content/gnews/29/README.md)
+### [秘翻在线：福奇在“为何中共病毒感染恢复者需要打疫苗？”的问题上闪烁其词](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：法国前卫生部长阿涅丝·比赞被共和国法院以 &#8220;危害他人生命 &#8220;罪名起诉](/content/gnews/30/README.md)
+### [加密货币需求在阿富汗激增，可帮助塔利班躲避制裁](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：澳洲政府草菅人命 禁用伊维菌素治疗中共病毒](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [雅典娜时报-第049期](/content/gnews/31/README.md)
+### [秘翻在线：近1.8亿人接种了两剂中共病毒疫苗](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共官媒借”911“事件二十周年，攻击美国的人权状况](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [中共周四公布出售更多战略石油储备的计划](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [产科人员拒绝疫苗，纽约医院停止接生](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/32/README.md)
+### [雅典娜时报-第049期](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国第45届总统唐纳德 J. 川普2021年9月11日的声明](/content/gnews/33/README.md)
+### [澳洲医生质疑中共病毒措施和疫苗被停职](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国第45届总统唐纳德 J. 川普2021年9月11日的声明](/content/gnews/34/README.md)
  ` 美国政要直译推`
 
-### [推广疫苗护照，澳大利亚政府发起新一轮运动](/content/gnews/34/README.md)
+### [推广疫苗护照，澳大利亚政府发起新一轮运动](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
-
-### [警惕，中共正在干预加拿大大选！](/content/gnews/35/README.md)
- ` 军迷wilson`
 
 ### [解放军十九架军机再扰台](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`

@@ -2,32 +2,28 @@
 ---
 
 
-## 澳洲医生质疑中共病毒措施和疫苗被停职
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527108/)
+## 产科人员拒绝疫苗，纽约医院停止接生
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527264/)
 
 #### **整理报道：**小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-42.jpg)
-图片来源：friends.skykiwi.com
+![](https://assets.gnews.org/wp-content/uploads/2021/09/informnny.jpg)
+图片来源：informnny.com
 
 **【雅典娜快讯】，紧贴时事脉搏**
 
-9月3日，澳大利亚医疗当局暂停了悉尼一名医生的职务，因为该医生在社交媒体上批评医疗当局治疗中共病毒患者的方式，并质疑疫苗和封锁的有效性。
+位于美国纽约的刘易斯县总医院（Lewis County General Hospital）将在9月24日之后停止接生，因为太多产科工作人员因中共病毒疫苗接种要求而辞职。
 
-由于被停职，这位从事行医30多年的澳大利亚麻醉师保罗·奥斯特休斯（Paul Oosterhuis）不得不向新南威尔士医学委员会（MCNSW）提出质询。该医学委员会是与新南威尔士州卫生部合作，接受和管理该州个别医生和其他医疗从业人员相关投诉的机构。
+刘易斯县卫生系统首席执行官杰拉尔德·凯尔（ Gerald Cayer）周五在洛维尔举行的新闻发布会上表示，产科部门有6名员工因拒绝接种中共病毒疫苗而辞职，另外7名员工尚未作出决定。
 
-9月2日，医学委员会发表声明，确认它收到了至少两份关于奥斯特休斯社交媒体活动的匿名投诉。
+凯尔称，医院将无法安全地为该部门配备人员，并将在9月24 日之后暂停接生。他希望这是暂时的情况，并将与州卫生部合作，确保该部门不会永久关闭。
 
-根据中共病毒医生道德（Doctors For COVID Ethics）组织的说法，奥斯特休斯在他的社交媒体帐户上发布了有关中共病毒的信息。
+今年8月，纽约州宣布，纽约州医院和长期护理机构的所有医护人员都必须在9月27 日之前至少接种一剂中共病毒疫苗。
 
-新南威尔士医学委员会拒绝就此事发表进一步的公开声明。它已将奥斯特休斯的停职决定提交给澳大利亚健康从业者监管机构 (AHPRA)。
-
-澳大利亚健康从业者监管机构证实，它收到了对医疗专业人员未能履行该机构行为准则义务的担忧。
-
-然而，奥斯特休斯表示，他不会改变自己的行为以使自己更加合规。他说，他计划对停职提出上诉。
+凯尔表示，医院有165名医院员工尚未接种中共病毒疫苗，这占员工总数的27%。其他的464名工人（占员工总数的73%）已经接种了疫苗。
 
 （文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻**：[Australian doctor SUSPENDED over social media posts questioning COVID-19 policies, treatment and vaccines (newstarget.com)](https://www.newstarget.com/2021-09-10-australia-doctor-suspended-social-media-posts.html)
+**参考新闻**：[Hospital to stop delivering babies as maternity workers resign over vaccine mandate (wwnytv.com)](https://www.wwnytv.com/2021/09/10/hospital-stop-delivering-babies-maternity-workers-resign-over-vaccine-mandate/)
 
 *编辑：翼族
 发布：小红帽*
