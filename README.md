@@ -151,36 +151,36 @@
 ### [美国现政府及地方官员在农业政策方面与中共勾结](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/47/README.md)
+### [前美国安局长：面对中国的网攻能力 美国须有正常行为的标准](/content/gnews/47/README.md)
+ ` 日本东京樱花团`
+
+### [郭文贵先生大直播中提到的疫苗危害在逐渐变成现实](/content/gnews/48/README.md)
+ ` 日本东京樱花团`
+
+### [墙内疫苗心情日记（十四）](/content/gnews/49/README.md)
+ ` 日本东京樱花团`
+
+### [“爆二代”的未来](/content/gnews/50/README.md)
+ ` 日本东京樱花团`
+
+### [变种病毒突破免疫 世卫对疫苗终结疫情持悲观态度](/content/gnews/51/README.md)
  ` G&#124;News TAIWAN`
 
-### [【郭先生直播摘要】2021.9.7 从一幅古董名画看清台湾的危险](/content/gnews/48/README.md)
+### [【郭先生直播摘要】2021.9.7 从一幅古董名画看清台湾的危险](/content/gnews/52/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [9.11文贵先生盖特要点](/content/gnews/49/README.md)
+### [9.11文贵先生盖特要点](/content/gnews/53/README.md)
  ` 左媛专栏`
 
-### [你好朋友22期咱们爆料革命里的美丽的“老豆角”悟空](/content/gnews/50/README.md)
+### [你好朋友22期咱们爆料革命里的美丽的“老豆角”悟空](/content/gnews/54/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/51/README.md)
+### [2021年9月11日郭先生盖特2「2分31秒」](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月11日郭先生盖特1「9分29秒」](/content/gnews/52/README.md)
+### [2021年9月11日郭先生盖特1「9分29秒」](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](/content/gnews/53/README.md)
+### [中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](/content/gnews/57/README.md)
  ` 英喜-粵語組`
-
-### [G时评：宗教的本质，究竟是什么？](/content/gnews/54/README.md)
- ` GISELLE`
-
-### [美共和党将起诉拜登政府强制疫苗的“违宪”行为](/content/gnews/55/README.md)
- ` HimalayaRussia`
-
-### [塔吉克斯坦正在阿富汗危机中发挥关键作用](/content/gnews/56/README.md)
- ` 墨尔本雅典娜农场`
-
-### [第三次世界大战以及爆料革命在其中的关键作用– (2) 战争形式](/content/gnews/57/README.md)
- ` 文永`
 
