@@ -2,50 +2,43 @@
 ---
 
 
-## 报复澳大利亚又失算，中共8月铁矿石进口暴增
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1526766/)
+## 《时代》列福奇为“最有影响力人物” 对武毒所重磅报道沉默
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526918/)
 
-作者：纽约香草山农场 – 飞虹
+2021年9月11日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091108-1.jpg)STR/法新社-盖蒂图片社/《时代》杂志
+**《时代》杂志不仅将福奇列入了2020年100位最具影响力人物的榜单，还在5月份发表了一篇热情洋溢的专题报道，将他描述为“科学和事实坚定不移的倡导者”。**
 
+《拦截》（The Intercept）的报告，是基于通过《信息自由法》(Freedom of Information Act)获得的900页未公开文件。这家进步的左翼媒体发现，美国政府向生态健康联盟（Eco Health Alliance）提供了总计310万美元的资金，其中包括武汉病毒学研究所用于研究识别和改变可能感染人类的蝙蝠冠状病毒的部分59.9万美元。
 
+但福奇一再宣誓表示，美国国家卫生研究院（NIH）对武汉试验室的资助不包括功能增强性研究。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+埃布赖特（Ebright ）随后在Twitter上发布了一个由八部分组成的帖子，更详细地解释了该文件有关武汉试验室制造的“新型、实验室生成的SARS相关冠状病毒”之一的“增强致病性”的披露
 
+他指出，这种特殊的、由武汉实验室产生的与SARS有关的冠状病毒，“此前未公开披露过”，而且发现，它比“构建它的原始病毒”对人类致病性更强。
 
+埃布赖特的结论是： 福奇和NIH主任弗朗西斯 · 柯林斯(Francis Collins) 在资金以及资助其研究方面一直“不诚实” 。
 
-据中共海关总署9月7日公布的数据显示，尽管中共政府试图减少钢产量并缓解商品价格上扬，但8月份中共进口的铁矿砂及精矿高达9749.2万吨。这一数据虽然仍未达到去年同期的水平，但却比7月份的数据暴增10.2%。
+**个人评论**
 
-![资料照：一名澳大利亚矿工手握澳西部地区产出的一块铁矿石。](https://gdb.voanews.com/BAB091F6-385B-49ED-A29B-C41471D6DC02_w1023_r1_s.jpg)图片来源：路透社
+越来越多的证据显示，福奇在对公众撒谎，并且在掩盖曾经用美国人的资金支持武毒所人工合成生化武器冠状病毒。激进的左派站在了福奇一边，控制舆论来打压真实的信息。真相在Miles领导的爆料革命影响下，借助Gnew，Gettr和GTV媒体得以广泛传播。
 
-从2018年澳方禁止中共科技巨头华为参与澳大利亚的5G网络建设开始，澳大利亚与中共的关系逐渐降温。去年，澳大利亚莫里森总理呼吁国际社会就新冠病毒溯源展开独立调查，从而使澳中关系急速恶化。此后，中共对澳大利亚展开了全面的报复：对一大批澳大利亚出口中共国的商品进行制裁，其波及范围之广，在当代贸易史上也实属罕见。 澳大利亚财政部长弗莱登伯格9月6日在一场公开演讲中表示，截止6月的一年中，澳大利亚对中共的出口总额减少了大约54亿澳元，“但在同一时期，这些商品对世界其他地区的出口增加了44亿澳元”。这表明，中共对澳大利亚的贸易制裁并没有起到他们期望的效果。
+[原文链接](https://www.breitbart.com/entertainment/2021/09/10/time-magazine-silent-on-on-wuhan-lab-bombshell-report-after-putting-fauci-on-most-influential-people-of-2020-list/)
 
-如今，中共经济下滑，无奈之下只能增加铁矿石的进口，这其中澳大利亚的铁矿石约占全部的60%——这明确意味着中共经济报复政策的失败。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-（本文仅代表作者观点）
+*Editor: Johnston-Zhang| PR: Julia Win*
 
-参考阅读：
-
-[报复澳大利亚又失算，中国8月铁矿石进口暴增](https://www.voachinese.com/a/China-s-iron-ore-imports-hi-record-in-boost-to-Australia-20210907/6216160.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
 
 

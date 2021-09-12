@@ -2,32 +2,35 @@
 ---
 
 
-## 推广疫苗护照，澳大利亚政府发起新一轮运动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527041/)
+## 澳洲医生质疑中共病毒措施和疫苗被停职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1527108/)
 
-#### **编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-3.png)
-图片来源：AP
+#### **整理报道：**小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-42.jpg)
+图片来源：friends.skykiwi.com
 
-在周日（9月12日），澳洲政府发起了一项新运动，旨在扩大疫苗接种点网络，针对目标是“年轻群体”，并耗费5000万澳元去说服20%不愿接种中共病毒疫苗的澳大利亚人。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-卫生部长格雷格·亨特说，越来越多的人愿意接种，因为大家都希望达到70%至80%的完全接种率后，政府可以放松封锁和旅行限制。
+9月3日，澳大利亚医疗当局暂停了悉尼一名医生的职务，因为该医生在社交媒体上批评医疗当局治疗中共病毒患者的方式，并质疑疫苗和封锁的有效性。
 
-“81% 的人表示他们将或打算接种疫苗，”亨特先生说。
+由于被停职，这位从事行医30多年的澳大利亚麻醉师保罗·奥斯特休斯（Paul Oosterhuis）不得不向新南威尔士医学委员会（MCNSW）提出质询。该医学委员会是与新南威尔士州卫生部合作，接受和管理该州个别医生和其他医疗从业人员相关投诉的机构。
 
-“这项活动针对那些仍然不确定是否接种疫苗的人，因为这将使他们能够做自己喜欢的事情，例如与家人在一起、参加婚礼、参加音乐会和旅行。”
+9月2日，医学委员会发表声明，确认它收到了至少两份关于奥斯特休斯社交媒体活动的匿名投诉。
 
-超过66%的符合条件的16岁以上澳大利亚人至少接种了一剂中共病毒疫苗，41%的人接种了全面疫苗，全国接种了约2200万剂。
+根据中共病毒医生道德（Doctors For COVID Ethics）组织的说法，奥斯特休斯在他的社交媒体帐户上发布了有关中共病毒的信息。
 
-推广活动定于周日晚上播出，随后将通过购物中心和活动信息亭以及土著社区的外展活动等举措推出，并吸引更多的公众参与。
+新南威尔士医学委员会拒绝就此事发表进一步的公开声明。它已将奥斯特休斯的停职决定提交给澳大利亚健康从业者监管机构 (AHPRA)。
 
-在最近的24小时报告期内报告了2000多例病例后，澳大利亚的 COVID 感染人数将连续第三天打破记录。
+澳大利亚健康从业者监管机构证实，它收到了对医疗专业人员未能履行该机构行为准则义务的担忧。
 
-这是大流行期间迄今为止该国每日病例数最多的一次，并且出现在一些州希望放宽封锁限制之际。
+然而，奥斯特休斯表示，他不会改变自己的行为以使自己更加合规。他说，他计划对停职提出上诉。
 
-原文链接：[New campaign targets Australians reluctant to get vaccinated (sbs.com.au)](https://www.sbs.com.au/news/australians-reluctant-to-get-vaccinated-the-target-of-new-campaign/4ed784b9-b928-4a74-bf37-571a2aeb470d)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-编辑/发布：文泓
+**参考新闻**：[Australian doctor SUSPENDED over social media posts questioning COVID-19 policies, treatment and vaccines (newstarget.com)](https://www.newstarget.com/2021-09-10-australia-doctor-suspended-social-media-posts.html)
+
+*编辑：翼族
+发布：小红帽*
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

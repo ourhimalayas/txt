@@ -2,50 +2,141 @@
 ---
 
 
-## 2021/09/11文贵盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1526841/)
+## 技术进步有助于穿透防火墙 传播病毒真相
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1526881/)
 
-2021年9月11日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091105.png)
-[盖特链接](https://gettr.com/post/parjyxf689)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/av8ne-o75x5.jpg)
+[https://gtv.org/video/id=613cda95784c5a258354ee5b](https://gtv.org/video/id=613cda95784c5a258354ee5b)
 
-《真人真事》猫本小哥，正义小Sara，长岛哥是在做发自内心的问答节目。人关键要说出自己内心真实有用的实话。
+**字幕内容:**
 
-“道德”这两字，记住“德”在后，“道”在前；讲“德”不讲“道”者，不懂“德”，非德人也，一定是非骗即坏。要先讲“道”后“德”，“道”是行动和标准。做人之基本就是“道”和“德”。讲“德”不讲“道”的人，就是在瞎忽悠。中国的“道德”与西方的各个宗教是100%的冲突，“道德”是人间法，西方宗教（耶路撒冷系列）是人听从神的人间法。
+**郭文贵**
+**Miles Guo**
 
-德教云书院的德先生就是一个骗子，只要把手伸到战友腰包里，就是我们的敌人，凡是在人间用神话弄钱的都是骗子。
+这个接下来我觉得
+Next to come, I think
 
-一外国元首朋友相敬如宾好多年，昨天七哥对他发了很大脾气，因他全家都打了疫苗，现在他相信疫苗的事情并且害怕了，开始吃药。他也发现现在世界太疯狂了。
+我觉得未来两三个月
+I think the next two or three months
 
-新中国联邦爆料革命的影响太大了，过去一周国内体制内有6、7百人通过各种关系找七哥要投资G系列，就这两天就有110人想投G系列。
+所有的手机互联网在国内
+All mobile internet in China
 
-新中国联邦影响之大，就青蒿素从爆料之后的价格长了多少，市场交易量是多少，就可以推定出爆料革命有多少人看了。
+会严格控制
+will be strictly controlled
 
-明天值班谈香港扩大填海经济开发区对香港富豪的影响，中共不只是搞马明哲、马云、马化腾，中共会将香港四大不要脸家族的钱都收了。
+但是由于技术的进步
+But due to the advancement of technology
 
-宗教机构都害怕和在乎我们说到他们，这证明我们都是真的。
+它是封不住的
+it can’t be blocked
 
-马明哲都处告（起诉）战友，有本事可以告七哥。战友们请放心，所有被马明哲告的战友请跟法治基金或农场联系，一切律师费由法治基金负责。
+包括天空Wifi
+Including Sky wifi
 
-这些天用我们的药救了意大利、日本很多战友。大家一定要小心，不要染上病。
+包括新的这个iPhone 啊
+including the new iPhone
 
-世界的经济真的出大事了，这一天收到很多世界经济的各种奇怪，疯狂，崩塌的有关数据。一定要留着吃饭的钱。
+包括现在整个在俄罗斯， 在蒙古
+including now in Russia, in Mongolia
 
-***编辑：【英国伦敦喜庄园编辑部】***
+包括在这个尼泊尔周围
+including Nepal area
 
-*听写：乐禧禧| 校对: 小雨*
+有很多人在搞所谓的翻墙软件
+many people are working on so-called the softwares of circumventing the firewall.
 
+所以说未来国内的墙
+So in the future, the China firewall
 
+越来越难翻了
+is more and more difficult to cross
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+那么今天我下午谈的一个事情
+So one thing I will talk about this afternoon
 
+就是要跟我们 G Club， 要跟我们盖特, 还有GTV要合作的，一个叫网络供应商
+is a network provider which is about to cooperate with our G Club, with our Gettr and with GTV
 
-编辑：【英国伦敦喜庄园编辑部】
+包括提供，中国人可能很快
+It provides the Chinese may soon
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在各个方面看网络
+access the internet in all aspects
 
+能够穿过防火墙
+and be able to get through the firewall,
 
+甚至推翻防火墙
+even overthrow the firewall.
+
+包括和某国政府
+Including together with the government of a certain country,
+
+我们接下来一会儿马上会有一个短的视频会议
+We will have a short video conference soon
+
+那么这个视频会其中会谈到
+Then we will talk about at this video conference
+
+如何在它的国家建立一个
+how to in it’s country build up a …
+
+能让中共所有国内的咱同胞们
+which is able to make all our compatriots in China
+
+看到更多国外的真实信息
+see more real information from abroad
+
+特别是在冠状病毒和疫苗真相面前
+Especially the truth about coronavirus and vaccines
+
+我觉得中国人最重要的
+I think the most important thing for Chinese
+
+我觉得要获得真实的信息
+is to get real information.
+
+我们要让大家开智明眼的时候
+When we want everyone to open up their minds and eyes,
+
+大家要想到，它能救命啊
+Everyone, think about it, it can save lives.
+
+如果中国人真能明白病毒和冠状病毒的整个来源
+If the Chinese can really understand the whole origin of the virus and the coronavirus
+
+和打疫苗的危害
+And the harm of vaccination,
+
+我相信很多人都不会打疫苗的
+I believe many people will not be vaccinated.
+
+我们不要去怪他们
+Let’s not blame them
+
+我们现在给他们多少钱,不如让他们看清楚事情的本质和真相
+No matter how much money we give them now is not as good as to let them see the truth of the matter.
+
+这个像我们爆料革命新中国联邦一定要有这个胸怀
+The whistleblower revolutionary, the New Federal State of China must have this mindset
+
+我们尽可能的让他们看到这些东西
+We try our best to let them see these things
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1435931513640550410?s=24](https://twitter.com/se1y7cblljselva/status/1435931513640550410?s=24)
+
+中听英: 洛杉矶盘古农场 – Raul
+翻译: 洛杉矶古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
