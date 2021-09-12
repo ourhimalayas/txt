@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 30/34 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
+
+[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/2018/04/20180418-6010297384739671403.md)
 
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/2018/04/20180418-5726696199328694940.md)
 
@@ -63,8 +63,6 @@
 [文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
 
 [翻译：班农在第十二届族群青年领袖研习营演讲](/content/2018/04/20180418-291103909959910855.md)
-
-[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
 
 
 ## 頁面 30/34 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)

@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 11/34 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [34](/content/README-34.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+
+[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/content/2020/02/20200221-2173657397153903143.md)
 
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/content/2020/02/20200221-5201737352028779423.md)
 
@@ -63,8 +63,6 @@
 [文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/2020/01/20200127-1065691289737851203.md)
 
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/2020/01/20200124-5709534972923488807.md)
-
-[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/content/2020/01/20200124-8451089471226145185.md)
 
 
 ## 頁面 11/34 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [34](/content/README-34.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 8/34 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [34](/content/README-34.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
+
+[文字版:2020年6月8日郭先生连线木兰乱聊直播](/content/2020/06/20200611-1109197692077432203.md)
 
 [文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/content/2020/06/20200611-7286733971832697894.md)
 
@@ -63,8 +63,6 @@
 [文字版：5月9日郭先生GTV直播连线草根小哥](/content/2020/05/20200512-4168570393845620810.md)
 
 [文字版:5月8日郭先生GTV直播连线战友文信](/content/2020/05/20200510-6481268913488602343.md)
-
-[文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
 
 
 ## 頁面 8/34 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [34](/content/README-34.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

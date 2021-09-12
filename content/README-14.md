@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 14/34 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [34](/content/README-34.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播](/content/2019/11/20191128-7131783827849750716.md)
 
 [文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/content/2019/11/20191126-8526960149542259140.md)
 
@@ -63,8 +63,6 @@
 [文字版：2019年11月3日文贵进山前报平安](/content/2019/11/20191104-2786002853804232017.md)
 
 [文字版：2019年11月2日郭文贵先生在中央公园直播](/content/2019/11/20191104-8519209542622441736.md)
-
-[文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/2019/11/20191104-6514911663487933356.md)
 
 
 ## 頁面 14/34 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [34](/content/README-34.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)

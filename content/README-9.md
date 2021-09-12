@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 9/34 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [34](/content/README-34.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
+
+[文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
 
 [文字版：5月6日郭先生GTV直播连线Twins](/content/2020/05/20200510-2903203991693841280.md)
 
@@ -63,8 +63,6 @@
 [文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想](/content/2020/04/20200406-3461892408125397096.md)
 
 [文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/content/2020/04/20200404-7348500743663555332.md)
-
-[文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/2020/04/20200404-1051683434562586641.md)
 
 
 ## 頁面 9/34 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [34](/content/README-34.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)

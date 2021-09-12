@@ -12,8 +12,9 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-
 ## 頁面 1/34 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [34](/content/README-34.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+
+[2021年9月10日文贵直播全文字版](/content/2021/09/20210910-1524495.md)
 
 [2021年9月5日郭文贵先生直播全文字版](/content/2021/09/20210905-1514662.md)
 
@@ -62,8 +63,6 @@
 [全文字版2021年8月9日郭文贵先生G-TV直播](/content/2021/08/20210809-1460214.md)
 
 [全文字版2021年8月7日郭文贵先生G-TV直播](/content/2021/08/20210807-1452928.md)
-
-[全文字版2021年8月4日郭文贵先生G-TV直播](/content/2021/08/20210804-1446074.md)
 
 
 ## 頁面 1/34 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [34](/content/README-34.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

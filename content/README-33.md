@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 33/34 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
+
+[(三）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-239017834240302827.md)
 
 [（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/content/2018/04/20180418-144661617364703849.md)
 
@@ -63,8 +63,6 @@
 [2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/2018/04/20180418-1436420880757298143.md)
 
 [2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/content/2018/04/20180418-6242782845301179834.md)
-
-[2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/content/2018/04/20180418-3702263840213416314.md)
 
 
 ## 頁面 33/34 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)

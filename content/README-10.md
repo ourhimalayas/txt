@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 10/34 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [34](/content/README-34.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/2020/04/20200404-1051683434562586641.md)
 
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/2020/04/20200403-1478603494714953028.md)
 
@@ -63,8 +63,6 @@
 [文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/content/2020/02/20200223-7052827819661082462.md)
 
 [文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/content/2020/02/20200223-478006354833064962.md)
-
-[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/content/2020/02/20200221-2173657397153903143.md)
 
 
 ## 頁面 10/34 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [34](/content/README-34.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

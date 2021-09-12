@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 21/34 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [34](/content/README-34.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
+
+[文字版：4月9号文贵报平安直播！谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事](/content/2019/04/20190409-7580597247840553748.md)
 
 [文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！](/content/2019/04/20190408-8215608975739288782.md)
 
@@ -63,8 +63,6 @@
 [文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-8075148906737063035.md)
 
 [文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-7889508875905531484.md)
-
-[文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/2019/02/20190209-3549584960178600210.md)
 
 
 ## 頁面 21/34 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [34](/content/README-34.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)

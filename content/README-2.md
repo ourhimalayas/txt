@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 2/34 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [34](/content/README-34.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[全文字版2021年8月4日郭文贵先生G-TV直播](/content/2021/08/20210804-1446074.md)
 
 [全文字版2021年8月3日郭文贵先生G-TV直播](/content/2021/08/20210803-1444955.md)
 
@@ -63,8 +63,6 @@
 [全文字版2021年6月20日郭先生向西方再次发出警告做好准备](/content/2021/06/20210620-1338436.md)
 
 [全文字版2021年6月17日郭文贵先生G-TV直播](/content/2021/06/20210617-1331243.md)
-
-[全文字版郭文贵先生2021年6月15日G-TV直播](/content/2021/06/20210615-1326002.md)
 
 
 ## 頁面 2/34 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [34](/content/README-34.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

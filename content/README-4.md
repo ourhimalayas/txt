@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 4/34 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [34](/content/README-34.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+
+[2021年3月5日 郭文贵先生直播速记【文字版】](/content/2021/03/20210305-951891.md)
 
 [郭先生2021年2月18日直播精要文字版](/content/2021/02/20210218-916824.md)
 
@@ -63,8 +63,6 @@
 [文字版2020年12月6日郭先生GTV直播](/content/2020/12/20201206-671333.md)
 
 [文字版2020年12月4日郭先生GTV直播](/content/2020/12/20201204-669763.md)
-
-[文字版2020年12月3日郭先生GTV直播](/content/2020/12/20201203-669633.md)
 
 
 ## 頁面 4/34 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [34](/content/README-34.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

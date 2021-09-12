@@ -7,14 +7,14 @@
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
-[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-[](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
-
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
 ## 頁面 17/34 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [34](/content/README-34.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年8月26日報平安](/content/2019/08/20190827-4686079139048004973.md)
 
 [文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/content/2019/08/20190827-7154322243260745813.md)
 
@@ -63,8 +63,6 @@
 [文字版：7月29日 共产党已经进入倒计时](/content/2019/07/20190730-277183401038624152.md)
 
 [文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/content/2019/07/20190730-643602008810576333.md)
-
-[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/2019/07/20190728-6395183003803536442.md)
 
 
 ## 頁面 17/34 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [34](/content/README-34.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
