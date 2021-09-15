@@ -37,14 +37,14 @@
 ### [2021年9月14日 文贵先生盖特 6](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [接种疫苗需谨慎](/content/gnews/9/README.md)
+### [秘翻在线：AZ疫苗和辉瑞疫苗交叉接种后鼻血不止…](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [接种疫苗需谨慎](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/10/README.md)
+### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/11/README.md)
  ` G-NEWS TAIWAN`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
- ` wenwu`
 
 ### [拜习第二次通话，讨论双方合作、避免冲突](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -85,47 +85,47 @@
 ### [有声| 数字经济猛涨背后的缺陷](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/25/README.md)
+### [加州洛杉矶警察就强制接种令提起诉讼](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [SEC案件终结 爆料革命完胜中共](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [七哥将携战友为班农先生父亲百岁庆生!](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [英国加强针被批准将于下周开始推广](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/29/README.md)
  ` wenwu`
 
-### [秘翻在线： 不应该让你孩子打疫苗的13个理由](/content/gnews/26/README.md)
+### [秘翻在线： 不应该让你孩子打疫苗的13个理由](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：大阪府知事仍未意识到疫苗的副作用](/content/gnews/27/README.md)
+### [秘翻在线：AZ疫苗和辉瑞疫苗交叉接种后鼻血不止…](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：对抗拜登疫苗强制令 美国27个州将掀起法律大战](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：参谋长联席会议主席通敌叛国？川普声明斥之为“假新闻”](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：港共政府以打击罪案为名强推电话卡实名制](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [盖茨基金会对中共国有企业投资数百万美元](/content/gnews/31/README.md)
+### [盖茨基金会对中共国有企业投资数百万美元](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国与北京的新冲突](/content/gnews/32/README.md)
+### [英国与北京的新冲突](/content/gnews/33/README.md)
  ` Charlie`
 
-### [中（共）国在阿富汗的长期阴影](/content/gnews/33/README.md)
+### [中（共）国在阿富汗的长期阴影](/content/gnews/34/README.md)
  ` Charlie`
 
-### [巧取豪夺港人财富](/content/gnews/34/README.md)
+### [巧取豪夺港人财富](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/35/README.md)
+### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/36/README.md)
+### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [瑞士信贷剔出艾未未](/content/gnews/37/README.md)
+### [瑞士信贷剔出艾未未](/content/gnews/38/README.md)
  ` Charlie`
-
-### [新书爆料：米利将军曾向中共承诺不会执行川普命令](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`

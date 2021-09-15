@@ -2,49 +2,28 @@
 ---
 
 
-## 秘翻在线： 不应该让你孩子打疫苗的13个理由
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1534218/)
+## SEC案件终结 爆料革命完胜中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534329/)
 
-撰稿: Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获-1.jpg)
-图片来源：Zeleko医生盖特
+栏目记者/责任编辑：雪梨
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文贵先生在9月14日的直播中表示，历时近一年的SEC案已达成终结式的和解：爆料革命不仅以最快的速度，保证了所有个人和机构投资者的利益，成为世界金融领域的标杆；更让世人通过此案看清了中共虚假、欺骗、和蓝金黄的本性。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0915-morning-6-10.007-1.jpeg)
+经过SEC调查确认，此前的报案是中共特务的欺骗行为，GTV一方没有触犯任何法律。仅因为VOG的2700位战友，在人数上，触犯了《证券法》要求的注册豁免条例。为了保障每一名战友的安全和利益，文贵先生一人担负起一切责任，聘请几十人的律师团队，花费大量的时间和近2千万的律师费，在一年内，完成了有利于所有投资人的、历史性的和解。 SEC官僚腐败至极，加之中共操作，在没有通知当事人的情况下，将消息通过其合作单位直供华尔街日报，抢占“头条效应”。
 
-Zeleko医生2021年9月14号在盖特上转推了Dailyexpose.dk当天的一篇文章：《不应该让你孩子打疫苗的13个理由》。在9月13日星期一的新闻发布会上，英国的四位首席医疗官（CMO）建议英国政府向12至15岁的儿童提供辉瑞公司的疫苗。对此，这篇文章以英国实际的数据，和已经及正在发生的不可否认的案例对这些“医疗官僚”进行了回击。现将文章列出的13个理由进行了要点翻译，详文及数据请参考原文链接。
+金融时报、布伦伯格报等金融专刊在正、副标题中使用伪命题和假消息，援引此前的抹黑文章，继续诋毁GTV，继而印发全球转载。而文贵先生却说，此番宣传给G系列带来了至少价值1.6至2亿美元的广告效应。 中共一手捏造此案，国内战友被警察问话、威胁，加上蓝金黄美国相关部门，花费至少5亿美元，妄图以诈骗罪刑事起诉文贵先生，让投资者对文贵先生失去信心，意图迫使文贵先生及G系列公司永远不得进入美国市场。而让中共始料未及的是，恰是因为这起案件，全世界的金融圈认识到，文贵先生不仅没有造假、欺骗，更是勇敢地承担了所有的风险和责任。一夜之间，不仅文贵先生的个人声誉大增，爆料革命和G系列更因此享誉世界，身价百倍。 
+(本文仅代表作者观点)
 
-**不应该让你孩子打疫苗的13个理由(英国数据）**
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-1. 86%的儿童在临床试验中对辉瑞公司的Covid-19疫苗产生了不良反应
+终审：暗黑
+校正/发稿：我不在这里
 
-2. 在辉瑞公司的临床试验中，每9名儿童中就有1名出现严重不良反应，导致他们无法进行日常活动
-
-3.自2020年3月以来，仅有9例与Covid-19有关的死亡发生在儿童身上
-
-4. 儿童因Covid-19而患严重疾病的风险极低
-
-5. 辉瑞公司的Covid-19疫苗是实验性的，仍在进行临床试验
-
-6.由英国政府、牛津大学和CDC进行的三项科学研究于今年8月发表，发现Covid-19疫苗不起作用
-
-7. 英格兰公共卫生局的数据显示，大多数Covid-19的死亡都发生在接种疫苗的人群中，并表明疫苗会使疾病恶化
-
-8.仅在英国就发生了至少118万起Covid-19疫苗的不良反应
-
-9. 8个月内因Covid-19疫苗而死亡的人数超过了自2001年以来所有其他可用疫苗而死亡的人数
-
-10.辉瑞疫苗导致儿童心肌炎（心脏炎症）的风险
-
-11.儿童已经和正在因Covid-19疫苗死亡
-
-12.你的孩子接种Covid-19疫苗对谁有利？
-
-13.疫苗接种和免疫接种联合委员会拒绝建议向儿童提供辉瑞疫苗。
-
-Chris Whitty和他的首席医疗官同事们向政府建议针对儿童提供Covid-19疫苗，这不是一个基于科学的决定，而是一个基于政治的决定。
-
-文章作者呼吁：我们刚刚提出了13个事实性的理由，告诉你为什么你不应该让你的孩子接种Covid-19疫苗，而且每一个理由都是基于科学。现在选择权在你或是你的孩子手中，我们希望你做出正确的选择。
-
-**Source：[Dailyexpose.uk](https://theexpose.uk/2021/09/14/13-reasons-why-you-should-not-allow-your-child-to-get-the-covid-19-vaccine/)**
-
-
-
-+3
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+0
