@@ -2,21 +2,29 @@
 ---
 
 
-## GT Online: The Very Few Communists and Russia are the Real Devil behind Vaccines
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1535193/)
+## 香港囚权组织“石墙花”被迫解散
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1535235/)
 
-Written by: Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image3-5-2.jpg)
-Recently Mr. Guo said in a live broadcast that very few communists and Russia are the real devil behind the vaccine and more than 99% of the people are victims.
+**撰稿：日本东京方舟农场 Kevin wang**
 
-The shareholder Pioneer Group has over 70 communist shareholders. They took the lead in controlling the shareholding and controlling the material resources. Very few people in the Communist Party and Russia knew the inside story and were involved in the planning. They are the real devils. The Communist Party’s Standing Committee and Politburo members do not vaccinate. More than 99% of the people in the process do not know the inside story and are perpetrators as well as victims. UAE executives and their families were also vaccinated with the poison vaccine. Many people within Pfizer were also vaccinated.
+9月14日，由曾参与占中运动的前议员邵家臻创办的囚权组织“石墙花”，因迫于香港政府的压力，在社交媒体宣布解散。其在香港的办事处也停止运营。
+邵家臻当日在社交媒体上表示，世界上没有无缘无故的结业，苦苦经营了九个月，虽说见步行步，步步为营，但每一步确实十分沉重，过程中获得许多祝福和支持，才能走到今天，真的要多谢上天，多谢香港人，多谢石墙花同仁，多谢自己。
+他在接受采访时说道，我们只是夏天给一杯凉水，冬天给一杯暖水，一个最人道的工作，可惜今天已经走不下去，也不知道在囚人士日后能得到什么支持。
 
-The advice of the doctor Dr. Vladimir Zev Zelenko was the result of curing thousands of people. Ivermectin enables patients on oxygen to leave ICU beds and be discharged. The former President Donald Trump also recovered from the disease with a regimen of hydroxychloroquine plus zinc and vitamins.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/thumbnail_d-1427-800x450-1.jpg)图片来自于网络
 
-There are different types of vaccines, those that kill you quickly, those that kill you slowly, those that save you and those that don’t and many more. But it is absurd that only the CCP has it and no one else does.
+日前，香港保安局局长邓炳强不点名指责有组织在狱中散播危害国家安全的信息，垄断监狱物资，有敛财嫌疑，还有在押人士与监狱外人士企图建立势力、通风报信，包括利用议员等身分进行探访以传达讯息。
+邵家臻之后响应称，物资均为免费赠送物资，不存在敛财或垄断物资。“石墙花”会反省和调整工作避免误会，但会继续支持在囚人士。
+据石墙花网页数据显示，石墙花创办人邵家臻在2019年因占中运动入狱，一年后成立石墙花，为所有因社会运动被捕的人士（不论罪名）或有关人士提供各种支持，包括还押物资支持、情绪支持、个案跟进、以及福利申请等。
 
-Source:
+*注：本文仅代表作者观点，与 Gnews无关*
 
-[2021年8月25号文贵直播](https://www.gtv.org/video/id=61263b6114187a38e055117f)
+*参考链接：*
+
+[https://www.facebook.com/wallfarelimited/?ti=as](https://www.facebook.com/wallfarelimited/?ti=as)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
 0

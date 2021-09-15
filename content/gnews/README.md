@@ -13,20 +13,20 @@
 
 ---
 
-### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/1/README.md)
- ` 纽约香草山MOS01`
+### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
 
-### [Chief German Pathologist Warns of Lethal Risks of Covid-19 Vaccine](/content/gnews/2/README.md)
- ` GTV新闻访谈`
+### [法国：未接种疫苗的医护人员面临停职](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
 
-### [零对冲对加密货币市场最新变化的更新（FW37）](/content/gnews/3/README.md)
- ` 纽约香草山MOS02`
+### [谷歌因滥用市场主导地位被韩国罚款1.77亿美元](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
 
-### [The Los Angeles, California police filed a lawsuit against a compulsory vaccination order](/content/gnews/4/README.md)
- ` GTV新闻访谈`
+### [非洲大草原的厮杀正在人间上演](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
 
-### [GT Online: The Very Few Communists and Russia are the Real Devil behind Vaccines](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
+### [香港囚权组织“石墙花”被迫解散](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
 
 ### [关于疫苗：文贵先生2020.3.23-2021.9.12直播集锦](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
@@ -37,13 +37,13 @@
 ### [2021年9月15日 文贵先生盖特 2](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/9/README.md)
- ` 纽约香草山MOS01`
+### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
 
-### [澳洲为啥禁用伊维菌素：因为它太有效了！](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [法国：未接种疫苗的医护人员面临停职](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
 
-### [福建仙游疫情初判为德尔塔毒株](/content/gnews/11/README.md)
+### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
 ### [米利秘密电话通共事件继续发酵](/content/gnews/12/README.md)
@@ -67,22 +67,22 @@
 ### [林郑月娥承诺大力推动前海方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021/09/15 大卫作战室直播精要](/content/gnews/19/README.md)
+### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/19/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [2021/09/15 大卫作战室直播精要](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国军队为中共疫苗接种设定最后期限](/content/gnews/20/README.md)
+### [美国军队为中共疫苗接种设定最后期限](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/21/README.md)
+### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [接种疫苗需谨慎](/content/gnews/22/README.md)
+### [接种疫苗需谨慎](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声| 新加坡单日新增中共病毒感染人数上升](/content/gnews/24/README.md)
+### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [《GTV新闻访谈》重要提醒：YouTube备用账号](/content/gnews/25/README.md)
@@ -124,7 +124,7 @@
 ### [支付宝剥离贷款业务，用户数据将被国企控制](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [英国知名政评家认为习近平个人崇拜危害中共国](/content/gnews/38/README.md)
+### [福建仙游疫情初判为德尔塔毒株](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [9/13/2021 国际财经快讯：美元随国债收益率上扬；曼钦称不会在9月27日前通过预算法案](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [恒大财富暴雷，投资者抗议还钱](/content/gnews/47/README.md)
+### [非洲大草原的厮杀正在人间上演](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [零对冲对加密货币市场最新变化的更新（FW37）](/content/gnews/48/README.md)
+### [香港囚权组织“石墙花”被迫解散](/content/gnews/48/README.md)
+ ` 日本东京方舟农场`
+
+### [德国保守党派AfD领袖Alice Weidel采取行动反对任何对未接种疫苗者的歧视](/content/gnews/49/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [谷歌因滥用市场主导地位被韩国罚款1.77亿美元](/content/gnews/50/README.md)
+ ` 日本东京方舟农场`
+
+### [澳洲为啥禁用伊维菌素：因为它太有效了！](/content/gnews/51/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [恒大财富暴雷，投资者抗议还钱](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
+
+### [零对冲对加密货币市场最新变化的更新（FW37）](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年9月15日 文贵先生盖特 1](/content/gnews/49/README.md)
+### [英国知名政评家认为习近平个人崇拜危害中共国](/content/gnews/54/README.md)
+ ` 纽约香草山MOS01`
+
+### [2021年9月15日 文贵先生盖特 1](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [秘翻在线：中共国银行业对贵金属交易的恐惧导致限制相关个人业务](/content/gnews/50/README.md)
+### [秘翻在线：中共国银行业对贵金属交易的恐惧导致限制相关个人业务](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [亲共社交媒体的行动影响更多国家和平台，将CCP病毒归咎于美国](/content/gnews/51/README.md)
+### [亲共社交媒体的行动影响更多国家和平台，将CCP病毒归咎于美国](/content/gnews/57/README.md)
  ` 波士顿五月花农场`
-
-### [西媒头条 — 第68期](/content/gnews/52/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [9/15/21 香港快讯 12名民主派认未经批准集结 判囚 4 至 10 月 张文光、麦海华、梁国华获缓刑](/content/gnews/53/README.md)
- ` 英喜-粵語組`
-
-### [秘翻在线：中共国房地产时代已经结束了](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共驻英大使被禁止进入英国议会大厦](/content/gnews/55/README.md)
- ` GTV新闻访谈`
-
-### [中共就台湾代表处更名进行威胁, 美议员称: 虚张声势!](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [CCP百年百罪 第十五集（61 &#8211; 64罪）](/content/gnews/57/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 

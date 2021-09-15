@@ -2,43 +2,28 @@
 ---
 
 
-## Chief German Pathologist Warns of Lethal Risks of Covid-19 Vaccine
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535167/)
+## 法国：未接种疫苗的医护人员面临停职
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1535218/)
 
-Translated by: MOS Translation Team – Lakers
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-166.png)
+**撰稿：日本东京方舟农场 子辰**
 
+据美联社9月15日报导，没有接种 COVID-19 疫苗的法国医务工作者，将从即日起开始面临停职。
+法国议会今年夏天批准了这项授权，其中规定法国的医疗、家庭护理和急救人员必须接种疫苗，这意味着约有30万的卫生工作者将受到影响。
+据报道，周三是这些工作人员至少接种一针的最后期限，否则他们将面临停薪或无法工作的局面。但最高法院禁止员工直接被解雇。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/img_96005f5affdbce7bb9e65327b19f3c11cb3a.jpeg)图片来自于网络
 
+目前，大约 87% 的成法国年人至少接受过一次注射，83% 的法国人完成了完全接种。但是，包括医护人员在内的一部分人反对接种疫苗。
+周二在卫生部外参加抗议的急诊室医生兼 CGT 工会成员克里斯托夫·普鲁德霍姆 (Christophe Prudhomme) 说：“我们正在发出警报，如果你坚持实施这项措施，你的病床将被关闭，从而降低许多患者的（生存）机会。”
 
+*注：本文仅代表作者观点，与 Gnews无关*
 
+*参考链接：*
 
+[Unvaccinated French health care workers face suspension](https://apnews.com/article/europe-business-health-france-paris-7bf6ca4fac1fd80809eb2af63a2bd6b9)
 
+* * *
 
-
-
-
-
-Peter Schirmacher, director of the Pathological Institute at the University of Heidelberg, conducted more than forty autopsies on people who died within two weeks of receiving a Covid-19 vaccine against the Chinese Communist Party (CCP) virus and was shocked to find that 30 to 40 percent of the deaths were directly related to vaccinations, including rare cerebral venous thrombosis and autoimmune diseases, TheExpose.uk reported on Sep 13. In his book, the risk of lethal consequences of getting vaccinations is “underestimated,” and he has called for more autopsies of people who died after receiving vaccines to further determine whether the vaccine has contributed to the deaths.
-
-Despite criticism from government supporters, Schirmacher has the backing of the Federal Association of German Pathologists that already submitted a letter written in March to Health Minister Spann requesting doctors of patients who die within a few days or weeks of vaccination should apply autopsies if in doubt or the health authorities should take action, but remained unanswered.The possibility of suffering losses for vaccine businesses for a variety of pharmaceutical companies on a long-term basis caused by Schirmacher’s warning explains why his findings are under suppression and defamation by all concerned parties. The Whistleblower Movement perseveres to spread the truth based on the motto “Only the truth is unbreakable,” urging all communities to confront the dangers of the CCP virus vaccine, to halt vaccinations, and to request those national drug regulators to open up access to effective drugs.
-
-(This article represents the views of the author only)
-
-Source: [https://gnews.org/zh-hans/1533440/](https://gnews.org/zh-hans/1533440/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
-
-Edited/Proofread/Posted by: Stay
-
-**More information, follow us **
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
 0

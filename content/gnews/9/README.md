@@ -2,51 +2,30 @@
 ---
 
 
-## 美国将对五岁以上儿童强制使用新冠疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1535077/)
+## 美国企业家正在联合 准备对拜登强制接种发起诉讼
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1535228/)
 
-作者：纽约香草山农场 – 捆绑CCP一千年
+**撰稿：日本东京方舟农场 海星**
 
+据《艾迪·贝特曼医学博士网》9月14日报道，美国各地的私营企业家们正在集结，准备对拜登政府发布的强制接种疫苗政策提起历史性的诉讼。
+据报道，拜登政府9月9日发表的讲话中，要求所有员工人数超过100人的企业侵犯所有员工的医疗隐私和身体自主性，并要求违背人民意愿注射。根据拜登的法令，不遵守规定的雇员将被剥夺正当程序权利，被归类为肮脏的疾病媒介，并受到每周一次的中共病毒测试拭子和/或鼻探针的检查，这些检查是明显的欺诈行为。
+这场美国历史上最暴力、最专制的演讲之一，支持一些违反个人神圣和自由市场的违宪法令，令美国各地的私人雇主正在联合起来，准备对拜登煽动性的疫苗授权提起历史性的诉讼。
+美国转折点查理·柯克（Charlie Kirk）在推特上表示，不会为美国转折点的170多名全职员工强制接种疫苗。他还强调，他们会起诉乔·拜登，并赢得胜利。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/biden-harris-pelosi-fist-bump.jpg)图片来自于网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+校园改革网安吉丽娜·莫拉比托（Angelina Morabito）在推特上表示，拜登的强制接种疫苗政策将受到数百万公司的抗议。她写道：”如果你仔细听拜登的演讲，你可以听到一百万起诉讼的声音。”
+堪萨斯州参议员罗杰·马绍尔（Roger Marshall）称，该政策是对私营企业、公民自由以及宪法体系的全面攻击，但这很可能会在法庭上被推翻。
+该报道指出，这种行为触犯了《美国法典》第18章第2384条规定：如果两个或两个以上的人在任何州或地区，或在受美国管辖的任何地方，密谋用武力推翻、压制或破坏美国政府，或对其发动战争，或用武力反对美国政府的权力，或以武力防止、阻碍或拖延美国任何法律的执行，或以武力违反美国政府的授权扣押、夺取或占有美国的任何财产，应被罚款或被监禁不超过20年，或两者并罚。
 
+*注：本文仅代表作者观点，与 Gnews无关*
 
+*参考链接：*
 
-据印度新闻消息称，辉瑞（Pfizer）公司预计将于10月底前推出可用于5至11岁儿童注射的新冠疫苗。经辉瑞的董事会成员证实，该疫苗最快可于9月底之前被批准使用，并将“非常迅速”地在FDA获得“紧急授权”。早先，美国FDA已经授权疫苗公司对12至15岁的青少年进行新冠疫苗接种。FDA表示，这是基于很多当地学区民众和州长的建议所作出的决定。
+[Employers are uniting and preparing lawsuits against Biden’s seditious vaccine and testing mandates](https://dreddymd.com/2021/09/14/employers-are-uniting-lawsuits-against-bidens-vaccine-mandates/)
 
-![](https://img.republicworld.com/republic-prod/stories/promolarge/xhdpi/5tm505vrxtftbddc_1631517640.jpeg)图片来源：AP
+* * *
 
-事实上，世界各国政府目前针对新冠疫情都采取了一种舍本逐末的态度——他们在病毒溯源问题上迟疑，却在疫苗推广上表现得非常积极。可悲的是，政府对新冠疫苗导致的死亡和伤残事实视若不见，而今甚至任由其波及儿童。对此，德克萨斯州总检察长肯帕克斯顿于周五提出抗议，表示对私人企业的新冠疫苗授权可能是最违宪、最非法的事情。
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
-此前，郭文贵先生在直播中也对辉瑞公司发出过警告，同时，郭先生也再次预警世界称，今年年底将爆发疫苗政治的大危机。郭先生及其带领的新中国联邦人及爆料革命战友正在努力向世界传播新冠病毒及疫苗真相，正在尽全力阻止辉瑞等疫苗科技公司在全球肆无忌惮地用疫苗杀人，尤其是将黑手伸向儿童。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[US Likely To Authorize Pfizer COVID Vaccine For Kids Age 5-11 By October: Former FDA Chief](https://www.republicworld.com/world-news/us-news/us-likely-to-authorize-pfizer-covid-vaccine-for-kids-age-5-11-by-october-former-fda-chief.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
-
-
-
-0
++1

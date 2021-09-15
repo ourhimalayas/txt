@@ -2,32 +2,17 @@
 ---
 
 
-## 中共就台湾代表处更名进行威胁, 美议员称: 虚张声势!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534764/)
+## 秘翻在线：中共国银行业对贵金属交易的恐惧导致限制相关个人业务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1534921/)
 
-栏目记者/责任编辑：修文
-责任编辑：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
-美国政府目前认真考虑台湾驻美代表处更名一事，引发中共强烈不满，扬言召回驻美大使。对此，美国众议院 外委会亚太小组主席贝拉称:“美国不是立陶宛”，他不认为台湾驻美代表处更名会对美方有何危险，中共对此事的威胁是虚张声势，中方扬言召回大使，只是一种过激反应。
+撰稿： WENJIE
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-004640.jpg)图片来源：新浪财经
+近日新浪财经报道，建设银行在13日发布公告，宣布自10月18日起，将对连续12个月无任何交易且无持仓份额的客户关闭账户贵金属及双向交易业务，商业银行正全面收紧贵金属个人交易类业务。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide4-21.jpeg)
+文章以一些银行发布的公告宣告限制贵金属个人交易类业务，包括但不限于业务的暂停与停止、解除委托关系、下调持仓限额等限制措施。给出的理由是维护消费者权益，防范市场风险。文章还引用业内人士的观点，认为银行收紧相关业务，有助于防范贵金属市场波动风险；向投资者提示风险，落实投资者的管理工作；以及有助于防范潜在纠纷和监管问责风险，维护银行自身市场声誉。
 
-中共一直以来都将台湾作为在国际关系中用来绑架和较量的棋子，早已遭致世界各国的反感侧目. 如今病毒真相已欲盖弥彰，中共仍在使用台湾问题转移视线，连哭带闹, 很可能用力过猛，最终引发各国借力打力, 其中欧盟各国对此的反应已经初现端倪。
+笔者认为，银行都是以消费者为藉口，实则是规避银行本身代理责任的风险。自去年的“原油宝”事件发生后，暴露出银行对贵金属和大宗商品交易的不专业。为了规避银行面临的高风险，索性暂停业务或者转嫁业务风险给消费者，表明中共国银行业对贵金属交易的恐惧。
 
-（本文仅代表作者观点）
+**[参考链接](https://finance.sina.com.cn/jjxw/2021-09-15/doc-iktzscyx4294682.shtml)**
 
-参考链接：[駐美代表處更名引中國報復？ 美議員霸嗆：美國不是立陶宛](https://news.ltn.com.tw/news/world/breakingnews/3672280)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：FoxRina
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

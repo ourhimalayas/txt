@@ -2,35 +2,27 @@
 ---
 
 
-## The Los Angeles, California police filed a lawsuit against a compulsory vaccination order
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535186/)
+## 非洲大草原的厮杀正在人间上演
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1535248/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
+**撰稿：日本东京方舟农场 知心姐姐**
 
-**Translated by: MOS Translation Team- LaoSan**
+记得文贵先生多次提到非洲大草原动物世界的厮杀以及大迁徙，也曾提到过尿袋王和姚家对此的痴迷。这背后暗涵的深意也许就是黑暗势力在中国的角逐。可怜的国人不仅被中共奴役着，更是被世界黑暗势力榨取着身上的剩余价值。
 
-According to a report by the Guardian on September 14, police officers from the Los Angeles Police Department in California filed a lawsuit against the order of compulsory vaccination. The officers claimed that the law violated personal privacy and civil rights. According to the requirements of the Los Angeles government, in addition to approved religious or medical exemptions, other employees in the city must complete the Covid-19 vaccination before October 20. Last weekend, six Los Angeles police officers stated in a federal complaint that police officers used this order and threatened to “dismiss” police officers who refused to be vaccinated.  The mandatory covid-19 vaccination order has not only set off a wave of resistance in the Republican area, but now even the police officers in Los Angeles California, the headquarters of the Democratic Party, have clearly realized that the covid-19policy seriously violates human rights.  They must use legal weapons to defend their rights.
+老杂毛们辗转腾挪到海外的20万亿，是中国人用血和汗甚至生命换来的，却从未真正享受过这些劳动成果！盗国贼们用自己的喉舌粉饰欺瞒着百姓，而它们的子孙后代却在海外享用着这些无尽的财富。从文贵先生爆出的尿袋王海外资产和陈元张宏伟1200亿天价中介费的资金流向，可以合理推断他掌握着中共在海外所有资金的去处，最终这些本该属于中国人的巨额资产一定会还富于民！
 
-References:
+想象一下，文贵先生与老杂毛们和黑暗势力正在另一个战场上进行着厮杀！老杂毛们不会轻易放手，黑暗势力也不会轻易丢掉几十年来扶持中共获得的红利，而文贵先生引领的正义力量一定会在这场角逐中取得胜利！因为这股力量有上天的加持！
 
-[https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit?utm\_term=AutofeedHYPERLINK “https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit](https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit?utm_term=Autofeed&amp;CMP=twt_gu&amp;utm_medium&amp;utm_source=Twitter)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-69.jpg)图片来自于网络
 
-Edited by: Eglise Bell 圣母院钟声
+为了保护20万亿，老杂毛们和黑暗势力不惜发动生物战争，搅动世界秩序，让人类产生巨大的恐慌，再借疫苗消灭人口管制人类，进而达到它们“大重置”的目的！统治所有幸存的人类，甚至做好没有人类但可以制造人类的准备（丧葬业的及早布局、对精子卵子库的占有）！
 
-Posted by: Eglise Bell 圣母院钟声
+对于国人来讲，最危险的人物是习神！因为没有国际势力的加持，它只有把中国人牢牢地绑在它的战车上，当权力的争夺到达白热化的程度，国内经济彻底瘫痪，内战很有可能爆发！因此文贵先生此时提出“以（疫）苗灭共”，说明所有的正义力量和黑暗势力已经到了巅峰对决的时刻！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+*注：本文仅代表作者观点，与 Gnews无关*
 
-**For More information, follow us **
+* * *
 
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
+*校对：Ranting 发布：Ranting*
 
 0
