@@ -14,6 +14,8 @@
 ---
 ## 頁面 11/34 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [34](/content/README-34.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/content/2020/02/20200224-7577071556955663808.md)
+
 [文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/content/2020/02/20200223-7052827819661082462.md)
 
 [文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/content/2020/02/20200223-478006354833064962.md)
@@ -61,8 +63,6 @@
 [文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/content/2020/01/20200128-8595436432379526422.md)
 
 [文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/content/2020/01/20200128-4895858785511453067.md)
-
-[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/content/2020/01/20200127-3403056014280027444.md)
 
 
 ## 頁面 11/34 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [34](/content/README-34.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

@@ -14,6 +14,8 @@
 ---
 ## 頁面 24/34 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [34](/content/README-34.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号](/content/2018/11/20181115-2654226496006898669.md)
+
 [文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/content/2018/11/20181114-7269018934518411869.md)
 
 [文字版：2018年11月8日星期四郭文贵先生报平安直播王岐山与习近平谁将成为最后的共产党永久的实际控制人](/content/2018/11/20181109-6875461372122339144.md)
@@ -61,8 +63,6 @@
 [文字版：20181004 郭先生报平安直播 希望成功快点到来](/content/2018/10/20181005-2805451400972075742.md)
 
 [美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/content/2018/10/20181004-6010597625419921233.md)
-
-[文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/content/2018/10/20181004-4197432532070823443.md)
 
 
 ## 頁面 24/34 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [34](/content/README-34.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)

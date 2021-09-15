@@ -14,6 +14,8 @@
 ---
 ## 頁面 22/34 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [34](/content/README-34.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[关于C3 和C4基金](/content/2019/02/20190211-7844473960324146477.md)
+
 [文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-8075148906737063035.md)
 
 [文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-7889508875905531484.md)
@@ -61,8 +63,6 @@
 [文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/2019/01/20190108-2730263120772075960.md)
 
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/content/2019/01/20190107-8663591932172573911.md)
-
-[文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/content/2019/01/20190102-5930616806834548247.md)
 
 
 ## 頁面 22/34 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [34](/content/README-34.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
