@@ -13,29 +13,29 @@
 
 ---
 
-### [2021年9月15日 文贵先生盖特 2](/content/gnews/1/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月15日 文贵先生盖特 1](/content/gnews/2/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月15日 文贵先生盖特 1](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [秘翻在线：中共国银行业对贵金属交易的恐惧导致限制相关个人业务](/content/gnews/4/README.md)
+### [GT Online: The End of Communist China’s Real Estate Boom](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [老套路！福奇曾推艾滋病毒疫苗并大赚](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021年9月15日 文贵先生盖特 2](/content/gnews/6/README.md)
+### [2021年9月15日 文贵先生盖特 3](/content/gnews/2/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 1](/content/gnews/7/README.md)
+### [2021年9月15日 文贵先生盖特 3](/content/gnews/3/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [（日说｜文贵）2021年9月3日](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
+### [2021/09/15 大卫作战室直播精要](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [米利秘密电话通共事件继续发酵](/content/gnews/5/README.md)
+ ` HimalayaRussia`
+
+### [2021年9月15日 文贵先生盖特 3](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月15日 文贵先生盖特 2](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月15日 文贵先生盖特 1](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [老套路！福奇曾推艾滋病毒疫苗并大赚](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -46,13 +46,13 @@
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/11/README.md)
  ` 银河勇气之星`
 
-### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/12/README.md)
+### [米利秘密电话通共事件继续发酵](/content/gnews/12/README.md)
+ ` HimalayaRussia`
+
+### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/14/README.md)
+### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [恒大陷入流动性危机，员工集体追讨投资本金](/content/gnews/15/README.md)
@@ -67,22 +67,22 @@
 ### [林郑月娥承诺大力推动前海方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国军队为中共疫苗接种设定最后期限](/content/gnews/19/README.md)
+### [2021/09/15 大卫作战室直播精要](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国军队为中共疫苗接种设定最后期限](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/20/README.md)
+### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [接种疫苗需谨慎](/content/gnews/21/README.md)
+### [接种疫苗需谨慎](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/22/README.md)
+### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声| 新加坡单日新增中共病毒感染人数上升](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声| 中国与外界的联系正在被一一切断](/content/gnews/24/README.md)
+### [有声| 新加坡单日新增中共病毒感染人数上升](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [《GTV新闻访谈》重要提醒：YouTube备用账号](/content/gnews/25/README.md)
@@ -121,11 +121,11 @@
 ### [NIH前雇员爆料，福奇说&#8221;我不会接种疫苗&#8221;](/content/gnews/36/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [图解SEC索要的来自GTV和VOG的5.4亿美元资金构成](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [（日说｜文贵）2021年9月3日](/content/gnews/37/README.md)
+ ` 纽约香草山MOS02`
 
-### [秘翻在线：朝韩先后测试弹道导弹 半岛紧张局势加剧](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
+### [图解SEC索要的来自GTV和VOG的5.4亿美元资金构成](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -178,9 +178,9 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [老司机平安集团马明哲发家史——平安集团不平安连载01](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [秘翻在线：朝韩先后测试弹道导弹 半岛紧张局势加剧](/content/gnews/56/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [共产养老金，老百姓退休需认证](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [老司机平安集团马明哲发家史——平安集团不平安连载01](/content/gnews/57/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

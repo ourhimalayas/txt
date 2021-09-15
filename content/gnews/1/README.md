@@ -2,21 +2,35 @@
 ---
 
 
-## 2021年9月15日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1534937/)
+## GT Online: The End of Communist China’s Real Estate Boom
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1535004/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+Written by: WENJIE
 
-9月15号，亲爱的兄弟姐妹们，大好消息！大好消息！大好消息！**🎉🎉🎉🎉🎉🎉🎉👏👏👏👏👏👏👏** 纽约检察长终止了对GTV和Saraca两家公司所有的刑事调查，证明这两家公司没有涉及任何刑事犯罪，这说明了共产党对这两家公司的折腾一年多的虚假报案，和所谓的经济、法律超限战，已彻底失败！赔了夫人折了兵！并且在美国浪费大量的资源！而我们大赢！**💪💪💪**让美国人看清楚了他们的假控诉，假告诉，假投资，法律超限战已经警醒了美国，感谢纽约检察院，秉公执法，依法办案，给了公司真相！**🙏🙏🙏🙏🙏🙏🙏**我们相信，给这两家公司带来巨大损失灾难的假控诉，这些中共的间谍，假控诉人，假报案人，假投资人，一定会受到美国的刑事调查，最终这些人会按照美国的法律，被依法严惩！共产党你完蛋啦……超限战失败了……彻底失败啦……！！！没毛的豆豆报假案白报啦！！！纽约检察长的终止调查保证中没有包括VOG，正如七哥说的，对VOG的刑事调查不会停止，九指妖你完蛋啦！！！看看七哥过去怎么说的……！！！**💪💪💪✊✊✊** 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书 [https://gnews.org/zh-hans/1534601…](https://gnews.org/zh-hans/1534601/) ASSURANCE OF DISCONTINUANCE by LETITIA JAMES, Attorney General of the State of New York RE GTV Media Group, Inc., and Saraca Media Group, Inc. [https://gnews.org/1534522/](https://gnews.org/1534522/)
+Translated by: billwilliam
 
+Proofread by: Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-15-231621.jpg)
+Following debt scandals in developers like Tahoe Group, China Fortune Land Development, and Blu-ray Development, the intensifying crisis at Evergrande Group has made financial institutions more vigilant about the debt risks of real estate developers, as reported by the website eastmoney.com.
 
+The article analyzes all the routes of financing for real estate developers:
 
-> [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](https://gnews.org/zh-hans/1534601/)
+1. The scale of real estate trust financing has been declining for 12 consecutive months, with an average monthly drop of 41.03%. Besides pressure from financial operations, the main reason is the surge in risk of real estate trust because of risk events in large real estate developers.
 
+2. As for private equity in real estate, systemic risk events in realtors such as Blu-ray Development and China Fortune Land Development cause real estate private equity funds to apply more stringent risk control standards, resulting in a decrease in the number of real estate investment funds year over year.
 
+3. Headwinds in overseas bond issuance. With the tightening of the regulation and frequent occurrence of negative incidents in the real estate sector, offshore debt financing of real estate has been sluggish.
 
-[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb4d562b94)
+4. Banks are more reluctant in lending. Because of rising balances of non-performing loans and rising ratio of non-performing loans in the real estate sector for most banks, the banks are inevitably more vigilant in lending.
 
-**喜联盟Gnews编辑部**
+The article concludes that higher risk of default has rattled the nerves of all capital investors, and amid further tightening of financing for the real estate sector, the sector’s financing experiences shortage in cashflow.
+
+In my opinion, no real estate company can survive the wave of bankruptcy, given the systemic corruption pervading throughout the entire society of Communist China. In the future, more real estate companies will be embroiled in scandals, as a quote in the news article wrote, “the era of real estate boom is over.”
+
+Reference link:
+
+[http://caifuhao.eastmoney.com/news/20210915154757997519770](http://caifuhao.eastmoney.com/news/20210915154757997519770)
+
+[https://gnews.org/zh-hans/1534800](https://gnews.org/zh-hans/1534800)
 
 0

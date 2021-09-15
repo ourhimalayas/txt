@@ -2,14 +2,17 @@
 ---
 
 
-## 接种疫苗需谨慎
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1534320/)
+## 是父母的错吗？希特勒、列宁、斯大林的童年
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1534613/)
 
-- 制作：蚂蚁兄弟
+作者：Smart Boars
+
+翻译：keikei
 
 
-发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+你有没有想过你的童年是如何影响你的个性发展的?为什么你不记得?
+
+本视频通过希特勒、列宁、斯大林的童年，分析了他们的性格特质，进而解释了他们特有的行为模式是如何形成的。
 
 0
