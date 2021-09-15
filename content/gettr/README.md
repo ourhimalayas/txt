@@ -15,9 +15,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@usalee 9/15/2021 10:15 PM (UTC)`
+
+The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？太震撼了👍
+![img](https://media.gettr.com/group5/getter/2021/09/15/22/3e8f1f8c-7a70-bbd6-cd04-5e9bc3f2da45/out.jpg)
+
+---
+
 `@miles 9/15/2021 2:15 PM (UTC)`
 
-9月15号：感谢纽约南区伟大的检察长詹乐霞检查长，和所有的调查此案的检察官，公正办案，维护美国法律的尊严，看明白了共产党在美国发动的，针对我们爆料革命的法律超限战，不被他们利用。他们的阴谋彻底失败，纽约南区检查机构的有关GTV的刑事和解．彻底打脸，路大脑骗和海外的欺民远．这是我们爆料革命巨大的胜利✌️更加证明了美国的司法的伟大，一切都已经开始。(和解并不包括VOG，她们等着进监狱吧)
+9月15号：感谢纽约州伟大的詹乐霞总检查长，和所有的调查此案的检察官，公正办案，维护美国法律的尊严，看明白了共产党在美国发动的，针对我们爆料革命的法律超限战，不被他们利用。他们的阴谋彻底失败，纽约州检察机构的有关GTV的刑事和解．彻底打脸，路大脑骗和海外的欺民远．这是我们爆料革命巨大的胜利✌️更加证明了美国的司法的伟大，一切都已经开始。(和解并不包括VOG，她们等着进监狱吧)
 ![img](https://media.gettr.com/group3/getter/2021/09/15/14/319f7a64-c810-f0bd-512c-2bb3be4549c5/out.jpg)
 
 ---
@@ -284,13 +293,6 @@ President Trump, from last night’s fight:<br/><br/>“And I love the President
 
 9月11号：郭文贵致平安集团，马明哲的视频<br/><br/>【马明哲，准备控告我们的战友巴顿将军，翟水台，天津老马，七哥你看该怎么办？】
 ![img](https://media.gettr.com/group44/getter/2021/09/11/20/b2e17a59-360e-ed91-5afc-af5fb1fd10b7/out.jpg)
-
----
-
-`@miles 9/11/2021 7:42 PM (UTC)`
-
-9月11号：听爆料革命话的不是救命得新生．就是发大财：跟着共产党走进火葬场．任何有常识的人．都会进行实例对比，凡是搞神话的－搞口炮的．全都是骗，loser！【日本的情况在持续好转，病例数急速下降。 8月13日东京医学会建议全日本的医生用伊维菌素治疗COVID。】
-![img](https://media.gettr.com/group30/getter/2021/09/11/19/69add61b-0c9f-b65b-2b92-517260b7f6df/8e5ab5a210f61c3effdfd8bf6789582a.jpg)
 
 ---
 
