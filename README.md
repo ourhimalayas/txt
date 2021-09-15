@@ -103,29 +103,29 @@
 ### [秘翻在线：港共政府以打击罪案为名强推电话卡实名制](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国与北京的新冲突](/content/gnews/31/README.md)
- ` Charlie`
-
-### [中（共）国在阿富汗的长期阴影](/content/gnews/32/README.md)
- ` Charlie`
-
-### [巧取豪夺港人财富](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/34/README.md)
+### [盖茨基金会对中共国有企业投资数百万美元](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [瑞士信贷剔出艾未未](/content/gnews/36/README.md)
+### [英国与北京的新冲突](/content/gnews/32/README.md)
  ` Charlie`
 
-### [新书爆料：米利将军曾向中共承诺不会执行川普命令](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中（共）国在阿富汗的长期阴影](/content/gnews/33/README.md)
+ ` Charlie`
 
-### [秘翻在线：美国证券交易委员会主席敦促参议院立法监管虚拟货币](/content/gnews/38/README.md)
+### [巧取豪夺港人财富](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [瑞士信贷剔出艾未未](/content/gnews/37/README.md)
+ ` Charlie`
+
+### [新书爆料：米利将军曾向中共承诺不会执行川普命令](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
