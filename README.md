@@ -37,14 +37,14 @@
 ### [2021年9月14日 文贵先生盖特 6](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [接种疫苗需谨慎](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/10/README.md)
+ ` G-NEWS TAIWAN`
 
-### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
+ ` wenwu`
 
 ### [拜习第二次通话，讨论双方合作、避免冲突](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -85,47 +85,47 @@
 ### [有声| 数字经济猛涨背后的缺陷](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线： 不应该让你孩子打疫苗的13个理由](/content/gnews/25/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/25/README.md)
+ ` wenwu`
+
+### [秘翻在线： 不应该让你孩子打疫苗的13个理由](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：大阪府知事仍未意识到疫苗的副作用](/content/gnews/26/README.md)
+### [秘翻在线：大阪府知事仍未意识到疫苗的副作用](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：对抗拜登疫苗强制令 美国27个州将掀起法律大战](/content/gnews/27/README.md)
+### [秘翻在线：对抗拜登疫苗强制令 美国27个州将掀起法律大战](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：参谋长联席会议主席通敌叛国？川普声明斥之为“假新闻”](/content/gnews/28/README.md)
+### [秘翻在线：参谋长联席会议主席通敌叛国？川普声明斥之为“假新闻”](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：港共政府以打击罪案为名强推电话卡实名制](/content/gnews/29/README.md)
+### [秘翻在线：港共政府以打击罪案为名强推电话卡实名制](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国公司5亿美元收购mRNA疫苗技术](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [巧取豪夺港人财富](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [瑞士信贷剔出艾未未](/content/gnews/34/README.md)
+### [英国与北京的新冲突](/content/gnews/31/README.md)
  ` Charlie`
 
-### [新书爆料：米利将军曾向中共承诺不会执行川普命令](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中（共）国在阿富汗的长期阴影](/content/gnews/32/README.md)
+ ` Charlie`
 
-### [秘翻在线：美国证券交易委员会主席敦促参议院立法监管虚拟货币](/content/gnews/36/README.md)
+### [巧取豪夺港人财富](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [币圈新闻动态：SEC和解后退回的款项不能直接退到喜交所个人账户](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [瑞士信贷剔出艾未未](/content/gnews/36/README.md)
+ ` Charlie`
 
-### [银河快讯：新生银行考虑反收购措施；日本被联合国点名农民扶持措施有害](/content/gnews/38/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [新书爆料：米利将军曾向中共承诺不会执行川普命令](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：美国证券交易委员会主席敦促参议院立法监管虚拟货币](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -151,36 +151,36 @@
 ### [香港证券官员提议对加密货币交易实施更严格的监管](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [教育的目的是激发原创力](/content/gnews/47/README.md)
+### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/47/README.md)
+ ` G-NEWS TAIWAN`
+
+### [教育的目的是激发原创力](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共福建莆田展开首轮全市全员检测](/content/gnews/48/README.md)
+### [中共福建莆田展开首轮全市全员检测](/content/gnews/49/README.md)
  ` 儒为`
 
-### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/49/README.md)
+### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](/content/gnews/50/README.md)
+### [中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](/content/gnews/51/README.md)
  ` 英喜-粵語組`
 
-### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/51/README.md)
+### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/52/README.md)
+### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [墙内要闻汇编](/content/gnews/53/README.md)
+### [墙内要闻汇编](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利十六岁少女接种中共病毒疫苗十六小时后死亡](/content/gnews/54/README.md)
+### [意大利十六岁少女接种中共病毒疫苗十六小时后死亡](/content/gnews/55/README.md)
  ` xiaobaige`
 
-### [从1200亿美元巨额回扣看中共体制的滔天罪恶](/content/gnews/55/README.md)
+### [从1200亿美元巨额回扣看中共体制的滔天罪恶](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥一周聊：数字人民币配合大湾区计划将埋葬美元？](/content/gnews/56/README.md)
+### [七哥一周聊：数字人民币配合大湾区计划将埋葬美元？](/content/gnews/57/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [16岁少女接种辉瑞疫苗后出现神经系统症状](/content/gnews/57/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
