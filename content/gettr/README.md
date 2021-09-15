@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/15/2021 1:13 PM (UTC)`
+
+9月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒C C P疫苗灾难的解药的真相了吗？
+![img](https://media.gettr.com/group17/getter/2021/09/15/13/2b27df3c-c686-364a-074a-51a9ccf04605/out.jpg)
+
+---
+
 `@miles 9/15/2021 4:03 AM (UTC)`
 
 9/14/2021 Miles Guo: I urged Hongkongers to quit social media platforms such as Facebook, Instagram, Telegram, Twitter, Google etc. This is because under the infiltration of the CCP, these companies are fully cooperating in providing personal information to the CCP. I promise to protect Hongkongers at all costs.<br/><br/>9/14/2021 文贵直播: 文贵呼吁香港同胞们不要再使用Facebook、Instagram、Telegram、Twitter和Google等社交媒体。因为在共产党的渗透下，这些公司全面配合向中共提供个人信息。文贵先生承诺不惜一切代价保护香港同胞。
@@ -285,13 +292,6 @@ President Trump, from last night’s fight:<br/><br/>“And I love the President
 
 9月11号：<br/><br/>新中国联邦人的帅哥，美女．健康的身体．将是无尽的财富……新人类的未来。<br/><br/><br/>https://oversea.huanqiu.com/article/4434pHNrrW2
 ![img](https://media.gettr.com/group25/getter/2021/09/11/18/b45925d3-a981-4fa2-64f5-9800206b42f8/d547826e7473e9f94ff046173dea2790.jpg)
-
----
-
-`@miles 9/11/2021 4:45 PM (UTC)`
-
-【🆘Important information about CCP virus, vaccine and antidote, please bookmark and forward】<br/><br/>Dr. Zelenko Covid-19 Prophylaxis and Treatment Protocol<br/><br/>【🆘有关中共病毒、疫苗及解药的重要信息回顾，请大家收藏转发！】<br/><br/>Zelenko医生中共病毒预防与治疗方案<br/>
-![img](https://media.gettr.com/group32/getter/2021/09/11/16/0e71d490-18f2-32f7-bd39-18583ac0576b/0d0b926c0bfd0a83f808f3a45461e755.jpg)
 
 ---
 
