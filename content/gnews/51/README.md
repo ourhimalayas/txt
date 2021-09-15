@@ -2,25 +2,35 @@
 ---
 
 
-## 疫苗不是对抗新冠状病毒的唯一方案
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1534286/)
+## 台军成功进行37号汉光军演!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534724/)
 
-台湾宝岛农场 Amitofu
+责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-165.png)
+台湾中央社报导，台湾军队启动了年度的汉光37号演习，时间从13日至17日。 目的检视过去一年来，台湾军队在防卫中共攻台上的战略及战术训练成效。
 
-美媒报导抗寄生虫药物伊维菌素（Ivermectin）的需求近来大增24倍，根据华盛顿州卫生厅的新闻稿，全美在8月第2个星期，开出8万8000份伊维菌素处方药，远高于新冠状病毒疫情前的24倍。华盛顿毒物中心（Washington Poison Center）从去年起接获3倍多的相关咨询电话，大多数电话询问伊维菌素的安全性，有些人则因服用后产生轻微或中度的中毒现象而住院。目前美国尚无通报使用伊维菌素死亡的案例。
-2008年诺贝尔生理学/医学奖获得者卢克·蒙塔尼教授
-虽然WHO、美国CDC、FDA、NIAID和弗奇等疫苗厂商，声称抗疟疾药物羟氯奎宁（hydroxychloroquine）、抗寄生虫药物伊维菌素可有效治疗或预防新冠状病毒并没有根据、且为错误资讯，但美国前线医师组织America’s Frontline Doctors和Zelenko等多位医师发表HCQ加锌和伊维菌素可治疗新冠病患，伊维菌素也可治疗疫苗后的副作用，疫苗邪恶团体和所有媒体阻止了正确资讯的传播，导致数百万人因疫苗不适和延误用药而造成数十万人重症死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide2-12.jpeg)
 
-**笔者整理新冠状病毒与强迫施打疫苗的迷思**
+15日清晨，在模拟屏东军用机场被炸毁的演习假象下，台湾空军各种战机及预警机，分别在台湾最南端的”佳冬” 备用机场演练了紧急降落、加油、紧急起飞等战术项目。 与此同时,台湾海军船舰也紧急出港，由扫雷舰开辟安全航道，舰队驶向指定地点集结，演练港口遭轰炸而避免丧失作战能力。 16日台军将在屏东地区举行三军联合反登陆演习。 此次汉光37号演习，台军的雄风二型/三型反舰导弹机动发射组也将首度参与实弹演习并验证作战效能。
 
-**1.新冠状病毒是来自中共制造的生物超限战，病毒来自武汉实验室以SARS+HIV+COV人工合成，HIV爱滋病至今尚未有疫苗，而新冠状病毒却能在短时间出现疫苗。
-2.各国公共卫生强推疫苗施打率，想要群体免疫，塑造疫苗是唯一对抗病毒方案，而否决预防新冠状病毒的羟氯喹+锌+维生素C+维生素D3，治疗新冠状病毒的青蒿素、伊维菌素、土霉素、阿奇霉素、地塞米松。
-3.因施打疫苗后心肌炎血栓等副作用而住院者，部分医院开始使用伊维菌素治疗而成效显著。
-4.利用人们害怕死亡的心态，制造出不打疫苗就会重症、死亡的新闻，掩盖邪恶团体用施打疫苗，控制人类、大量降低人口的事实。
-5.疫苗施打并没有解决疫情，反而制造出更多问题与风险，将来大众运输交通工具飞机、公车、地铁的驾驶随时可能因脑梗、心梗而造成更大的公共安全危机。**
+汉光演习本是台湾军队每年的例行军演，但近年来的演习更像是大战前的预演和自卫能力的检验, 毕竟中共大兵压境, 武力侵台随时都可能发生。
 
-资料来源:[文贵先生9月14日直播](https://gtv.org/video/id=614095fb751e4f2b0e5254a0)
-祈祷万佛万神加持文贵先生与新中国联邦战友
-审核:Athena雅典娜 发布:Amitofu
+（本文仅代表作者观点）
+
+参考链接：[漢光演習 F-16V、幻象2000等戰機首度成功降落佳冬戰備道\[影\]](https://www.cna.com.tw/news/firstnews/202109155001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龍
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
 
 0

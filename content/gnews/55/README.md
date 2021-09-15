@@ -2,50 +2,34 @@
 ---
 
 
-## 中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1534195/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-#### 搜集/撰文：岁月如歌
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9151.jpg)
-值得注意的是7月13日～14日，反送中运动已经非常激烈，香港人利用周末分别在上水、金钟和沙田发起两天三场大游行运动。足见社会的撕裂程度有多深，官民矛盾已经到了无法愈合、真正“水深火热”的地步。也可见独裁统治插手曾经拥有文明法治的香港，对民生和社会有多大的伤害。 「邪恶中共」独裁欲称霸世界，“收复”台湾，首先掠夺了香港，把香港作为练兵场，杀戮自己的子民毫不客气，也绝不手软！
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-沙田反送中游行当天，香港记者协会、香港摄影记者协会、香港电台节目制作人员工会等七个团体也发起「停止警暴， 捍卫新闻自由」的新闻界静默游行。是什么样的待遇让这些平时作为旁观者的“无冕之王”走上街头，成为反送中运动的主角？回看前面的文章，以及相关的反送中运动新闻报导不难看出，自六月初反对逃犯条例修订抗议开始以来，警方多次将记者当作「执法对象」，以粗暴手段干预采访，以粗言秽语辱骂记者「记你老母」，鉴于种种不公待遇，当日大量记者上街捍卫他们的自由和权利。香港记者协会主席杨建兴称，记者多次受到警方推撞、辱骂、驱赶、以及警棍攻击。他们采访游行示威者工作时，主要的威胁竟然来自在场执法的警员。如此威胁下记者无法做到第四权角色；无法检查公权力如何运用。另外，行政长官多次单方面发布消息，不通知记者，把记者当作传声筒，他们不想成为新闻主角，希望能用沉默表达愤怒。在游行终点，游行单位发起联合声明，促请林郑月娥履行竞选时，曾签署的承诺《新闻自由约章》，强调，言论自由是不容被破坏的核心价值，希望政府正视警方阻挠。并要求事件成立独立人员组成的委员会彻查，警方是否受到系统指令。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9152.jpg)图片来自香港01
-我们也注意到香港运动由港岛区向其他区域扩散，从单纯的抗议恶法到关注民生，到拒绝红色渗透，甚至发展到了反大陆水货客。这些变化都显示出香港人内心从不满港府强推恶法，藐视民意引起的愤怒，转移到不满中共独裁统治，抗拒独裁之下的一切事物。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-沙田游行后发生的警民冲突，商场变成了战场，对于示威者而言，被封堵所有出路志在必得的抓捕，他们只有拼命反抗寻找生机，而警方咄咄逼人的围剿导致双方混战，两败俱伤。当然每次运动结束都少不了警方、官方出来指责市民这不该那不对，谴责市民暴力包庇警方暴力。这次也不例外。卢伟聪半夜探望受伤警员称，有警员被示威者咬断手指、有人面骨及眼骨裂开、有人被硬物打伤，他把示威者称为暴徒，说这次有10名警员受伤。至于示威者有多少人受伤，伤势如何，是否有官方探望，我想是不存在的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9153.jpg)图片来自香港01
-林郑与李家超到医院探望受伤警员时表示警员尽忠职守，惟受到“暴徒”肆意袭击，破坏香港法治精神。她强烈谴责示威者暴力，并要追究到底。如果大家没记错的话， 612爆发警民冲突之后，社会就呼吁成立独立调查组进行调查警方滥用暴力，至今没有下文，而此时林郑强调要调查到底，真是岂有此理啊，港人不是人，警方才是人吗？ 。 612发生警民冲突时，林郑月娥只是称支持警方（称暴徒），并不敢直接称示威者为暴徒，但是这次她亲口称示威者为暴徒了。足可见林政月娥对市民上街诉求已经极度不耐烦和不满。建制派认为政府已经让步，示威者应该“见好就收”，不可以再暴力示威并促请警方不要再批准任何抗议活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9154.jpg)图片来自BBC
-林郑月娥如此强烈表态，除了她自身的野心和孤傲外，恐怕也是对权力受阻感到恼火吧。长期受共产党思维影响，林郑是一个对权力和独裁十分迷恋的野心的女人，为讨好中共（也是她的野心），曾经许诺香港将从她这里得到改变，现在修例重重受阻，她能不恼火吗？这是其一，其二，据英国《金融时报》稍早引述两名知情人士报导，林政曾经数度向中共中央请辞，但不获批准，称她“需要为自己搞出来的烂摊子负责”。因为“没有人可以收拾这个烂摊子，也没有人想接受香港特首这个职务。”香港01报导，有消息流传林郑曾经在七一之后萌生去意，遂向北京当局递交正式辞职，但遭北京严正警告，这时候绝不可能辞职，否则情势将更难挽回。 《法广》15日也发表文章表示，北京需把林郑当作替罪羊，她本人已经被摆在刀刃上。 《路透社》分析，并非想退就可以退，必须要跟北京协调。中共领导人必须掂量这一辞职在大陆的影响引发的风险。而且在香港当时的气氛笼罩下，想找一个替换者并非容易。另有分析认为，如果此时林郑下台，港人会迅速推进普选，这更是中共不想看到的。当然，对于这些“传闻”中共和林郑月娥本人都予以否认。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-（未完待续）
-
-【本文仅代表作者个人观点】
-
-参考链接：
-[香港新闻界静默游行，沉默抗议警方暴力](https://theinitium.com/article/20190714-hongkong-whatsnew-journalist-protests/)
-
-[林郑辞职消息外泄 北京为何急忙辟谣？](https://m.secretchina.com/news/gb/2019/07/16/900479.html)
-
-[香港警察应对方式被质疑：冲突暴力升级引各界忧虑](https://www.bbc.com/zhongwen/simp/chinese-news-48986409)
-
-[沙田游行后警民冲突 商场一夜变战场](https://m.dw.com/zh/%E6%B2%99%E7%94%B0%E9%81%8A%E8%A1%8C%E5%BE%8C%E8%AD%A6%E6%B0%91%E8%A1%9D%E7%AA%81-%E5%95%86%E5%A0%B4%E4%B8%80%E5%A4%9C%E8%AE%8A%E6%88%B0%E5%A0%B4/a-49590253)
-
-导读：
-中共超限战灭港行动
-[中共超限战灭港行动（六十八）学生会代表前车之鉴 拒林郑闭门会晤邀请](https://gnews.org/zh-hans/1509708/)
-
-[中共超限战灭港行动（六十九）七七九龙区大游行（上）致大陆同胞书](https://gnews.org/zh-hans/1514105/)
-
-[中共超限战灭港行动（七十）七七九龙区大游行（下）疯狂黑警暴力清场](https://gnews.org/zh-hans/1516676/)
-
-[中共超限战灭港行动（七十一）光复屯门上水行动](https://gnews.org/zh-hans/1523035/)
-
-[中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](https://gnews.org/zh-hans/1527144/)
-
-*校对 / 封面合成：文粤  / 发布：天网灰灰*
-
-0
++4
