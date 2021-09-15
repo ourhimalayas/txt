@@ -13,20 +13,20 @@
 
 ---
 
-### [我们需要良知的唤醒 而非道德的灌输](/content/gnews/1/README.md)
+### [突发重磅：美英澳新协议“AUUKUS”将帮助澳洲获得第一艘核动力潜艇](/content/gnews/1/README.md)
+ ` AUJenny`
+
+### [谈谈我体悟阳明心学的过程](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我们需要良知的唤醒 而非道德的灌输](/content/gnews/2/README.md)
+### [我们需要良知的唤醒 而非道德的灌输](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Trillion Stolen by the CCP from China- the Wrestling Battlefield of Three Forces](/content/gnews/3/README.md)
+### [我们需要良知的唤醒 而非道德的灌输](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [Trillion Stolen by the CCP from China- the Wrestling Battlefield of Three Forces](/content/gnews/5/README.md)
  ` GTV新闻访谈`
-
-### [谈谈我体悟阳明心学的过程](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [墙内疫苗心情日记（十六）](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -46,14 +46,14 @@
 ### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [米利秘密电话通共事件继续发酵](/content/gnews/12/README.md)
+### [突发重磅：美英澳新协议“AUUKUS”将帮助澳洲获得第一艘核动力潜艇](/content/gnews/12/README.md)
+ ` AUJenny`
+
+### [米利秘密电话通共事件继续发酵](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [老套路！福奇曾推艾滋病毒疫苗并大赚](/content/gnews/13/README.md)
+### [老套路！福奇曾推艾滋病毒疫苗并大赚](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [恒大陷入流动性危机，员工集体追讨投资本金](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

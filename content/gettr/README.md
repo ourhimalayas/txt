@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/15/2021 11:41 PM (UTC)`
+
+G| Fashion 未来将推出郭式西装，纯手工剪裁，最高品质的布料，G｜ Club 会员能以最优惠的价格购买到全世界顶级设计师设计的最高品质的产品 🔥🔥🔥🔥 ❤️❤️❤️🥳🥳🥳🥳
+![img](https://media.gettr.com/group12/getter/2021/09/15/23/df725936-cc87-18c5-de96-51874323b29d/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@usalee 9/15/2021 10:15 PM (UTC)`
@@ -286,13 +293,6 @@ President Trump, from last night’s fight:<br/><br/>“And I love the President
 
 9/11/2021 Miles Guo’s GETTR: An old friend of mine whose whole family got the COVID jab is now freaked out! What does the Qianhai Economic Zone’s expansion mean for the tycoons in Hong Kong！Be careful not to get the virus and prepare enough money to survive, because the world’s economy is having a big trouble!<br/><br/>9/11/2021文贵盖特：我的老朋友某国元首全家打了中共病毒疫苗，但他现在真的害怕了！前海经济开发区的扩大对香港富豪们意味着什么？要谨防感染病毒并准备好吃饭的钱，世界经济真的出大事了！<br/>
 ![img](https://media.gettr.com/group49/getter/2021/09/11/23/5c3428f4-42d5-6ec6-68f0-3e1983b37786/out.jpg)
-
----
-
-`@miles 9/11/2021 8:38 PM (UTC)`
-
-9月11号：郭文贵致平安集团，马明哲的视频<br/><br/>【马明哲，准备控告我们的战友巴顿将军，翟水台，天津老马，七哥你看该怎么办？】
-![img](https://media.gettr.com/group44/getter/2021/09/11/20/b2e17a59-360e-ed91-5afc-af5fb1fd10b7/out.jpg)
 
 ---
 

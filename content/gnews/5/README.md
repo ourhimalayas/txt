@@ -2,24 +2,37 @@
 ---
 
 
-## 墙内疫苗心情日记（十六）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1535415/)
+## Trillion Stolen by the CCP from China- the Wrestling Battlefield of Three Forces
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535286/)
 
-#### 撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/09/fb7db9d72ee4ceb5.png)
-这几天上班都在默默的做事，不是自己的活我也做，别人下班了我还在做，因为我总觉得在疫情期间愧对老板了。
+Translated by: MOS Translation Team – Eleutheria
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/0914pm8-T.jpg)
 
-昨天，给一个我的好哥哥说，千万不要再打第二针了，但他就是不听。没办法，命在个人手里，尊重他的选择。我的老板也在准备打加强的第三针，他是体制内的人，我说什么也不信，甚至他的朋友还在找关系打疫苗，真是无语。体内40万亿个刺突毒蛋白，对于即将发生在身边的疫苗灾难，真的不敢多想。对于厂里的同事我也不能再多说疫苗了，因为大家打了疫苗，再多说大家既不听还招致非议，人各有命吧。
 
-9月14日七哥直播说GTV老椅子与美国SEC的官司打赢了，真心为老椅子战友高兴。官司的胜利，体现了七哥的卓越智慧，更验证了七哥、爆料革命和新中国联邦的信誉承诺。因为个人在财富上面真的是没有过多的盈余,但能参加爆料革命，跟七哥和战友们学到很多东西，想一想未来一个开智的新中国联邦人，财富不是什么大问题，而拥有财富后的怎么去分配才是最重要的。
+Faced with the increasingly tightening isolation and confrontation of the international community, the CCP’s finances are also headed for ruin. For four years now, through a series of precise exposures, the CCP has lost its credibility within China and among the international community. The CCP’s  $3 trillion foreign exchange reserves are about to dry up, more than $1 trillion of the #3 trillion foreign exchange is in U.S. Treasury bonds, leaving $2 trillion in foreign exchange reserves, only $1 trillion of which can be used freely. However the minimal annual expenditures require about $700 to $800 BN on imports to sustain the native economy. Hong Kong, which is a treasure trove of foreign exchange for the CCP, has been destructed by the Xi’s administration.
 
-近几期七哥的直播都在讲中共内部与某国际黑暗组织勾结的内幕，这必然加速中共内部斗争，加之恒大暴雷所引发的金融和社会问题，都是让共产党早点死亡的稻草。
+During a live broadcast on GTV on September 14, Miles Guo said Xi Jinping is aware of the CCP’s $20 trillion worth of stolen “party assets” overseas. This is enough to keep the CCP alive for a few more decades. However, Xi absolutely has no control over these properties. Only a few families, such as Deng Xiaoping, Jiang Zemin, Wang Qishan, and Zhu Rongji, have this information. Xi absolutely has no say in international finance. He has no more than 50 percent control over the CCP’s military.
 
-班农大师说的，明年北京相见。真的期盼那一天快点到来，虽然不知道以后的道路，但是能感觉到，正义的力量肯定胜利。或者在这样的一个不能与自己亲朋好友更多、更深沟通的年代，保护自己就是胜利。虽然压抑，但是每一次听到七哥的直播和战友们的信息，都能感受到无穷力量。因为有广大的战友相陪相伴，我不孤独不寂寞，难得的经历会让我更深的认识自己的价值和未来我要所做的事情。虽然在这些投资中，我没有更多的钱投入G系列，但能成为灭共的一份子我是幸运的！
+The 20 trillion dollars of assets belonging to the Chinese people will become a wrestling battlefield for the three forces on the New Federal State of China(NFSC), the CCP proxies of the international evil organizations, and the Xi’s administration.
 
-（文章仅代表作者个人观点，与GNEWS无关）
+The coming up exposures from Miles will focus on Wang Qishan’s overseas assets and the overseas layouts of Wang, Zhu Rongji, Jiang Mianheng, and others. It will be including how Wang Qishan used his position to pocket the stolen money of Zhou Yongkang and Xu Caihou, and reported a fraction of it to the Central Commission for Discipline Inspection. The fight between Xi, Wang, and other forces over the $20 trillion is essentially a dogfight between dark forces like Russia. And the NFSC’s “getting back money in the air” actions is a perfect legitimate fight of wealth, dignity, and well-being of the Chinese people.
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+(This article represents the views of the author only)
+
+Source: [https://gnews.org/zh-hans/1534881/](https://gnews.org/zh-hans/1534881/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+
+Edited/Proofread/Posted by: Stay
+
+**More information, follow us **
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0
