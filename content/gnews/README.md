@@ -67,65 +67,65 @@
 ### [林郑月娥承诺大力推动前海方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/19/README.md)
+### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/19/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声| 新加坡单日新增中共病毒感染人数上升](/content/gnews/20/README.md)
+### [有声| 新加坡单日新增中共病毒感染人数上升](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声| 中国与外界的联系正在被一一切断](/content/gnews/21/README.md)
+### [有声| 中国与外界的联系正在被一一切断](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声| 中共疫情在福建爆发，莆田和厦门封城](/content/gnews/22/README.md)
+### [有声| 中共疫情在福建爆发，莆田和厦门封城](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声| 以色列卫生部长无意间承认疫苗护照是胁迫性的](/content/gnews/23/README.md)
+### [有声| 以色列卫生部长无意间承认疫苗护照是胁迫性的](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声| 数字经济猛涨背后的缺陷](/content/gnews/24/README.md)
- ` MOSREC`
+### [秘翻在线：突发！澳洲内阁部长周三匆匆赶往堪培拉参加紧急会议](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [加州洛杉矶警察就强制接种令提起诉讼](/content/gnews/25/README.md)
+### [加州洛杉矶警察就强制接种令提起诉讼](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [SEC案件终结 爆料革命完胜中共](/content/gnews/26/README.md)
+### [SEC案件终结 爆料革命完胜中共](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [七哥将携战友为班农先生父亲百岁庆生!](/content/gnews/27/README.md)
+### [七哥将携战友为班农先生父亲百岁庆生!](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [英国加强针被批准将于下周开始推广](/content/gnews/28/README.md)
+### [英国加强针被批准将于下周开始推广](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/29/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/30/README.md)
  ` wenwu`
 
-### [秘翻在线： 不应该让你孩子打疫苗的13个理由](/content/gnews/30/README.md)
+### [NIH前雇员爆料，福奇说&#8221;我不会接种疫苗&#8221;](/content/gnews/31/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [（日说｜文贵）2021年9月3日](/content/gnews/32/README.md)
+ ` 纽约香草山MOS02`
+
+### [图解SEC索要的来自GTV和VOG的5.4亿美元资金构成](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：朝韩先后测试弹道导弹 半岛紧张局势加剧](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：朝韩先后测试弹道导弹 半岛紧张局势加剧](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [共产养老金，老百姓退休需认证](/content/gnews/32/README.md)
+### [共产养老金，老百姓退休需认证](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：AZ疫苗和辉瑞疫苗交叉接种后鼻血不止…](/content/gnews/33/README.md)
+### [秘翻在线：AZ疫苗和辉瑞疫苗交叉接种后鼻血不止…](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [盖茨基金会对中共国有企业投资数百万美元](/content/gnews/34/README.md)
+### [盖茨基金会对中共国有企业投资数百万美元](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国与北京的新冲突](/content/gnews/35/README.md)
+### [英国与北京的新冲突](/content/gnews/38/README.md)
  ` Charlie`
-
-### [中（共）国在阿富汗的长期阴影](/content/gnews/36/README.md)
- ` Charlie`
-
-### [巧取豪夺港人财富](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -151,36 +151,36 @@
 ### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/46/README.md)
  ` wenwu`
 
-### [老司机平安集团马明哲发家史——平安集团不平安连载01](/content/gnews/47/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/47/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [老司机平安集团马明哲发家史——平安集团不平安连载01](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/48/README.md)
+### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/49/README.md)
  ` G-NEWS TAIWAN`
 
-### [教育的目的是激发原创力](/content/gnews/49/README.md)
+### [教育的目的是激发原创力](/content/gnews/50/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共福建莆田展开首轮全市全员检测](/content/gnews/50/README.md)
+### [中共福建莆田展开首轮全市全员检测](/content/gnews/51/README.md)
  ` 儒为`
 
-### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/51/README.md)
+### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](/content/gnews/52/README.md)
+### [中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](/content/gnews/53/README.md)
  ` 英喜-粵語組`
 
-### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/53/README.md)
+### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/54/README.md)
+### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [墙内要闻汇编](/content/gnews/55/README.md)
+### [墙内要闻汇编](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利十六岁少女接种中共病毒疫苗十六小时后死亡](/content/gnews/56/README.md)
+### [意大利十六岁少女接种中共病毒疫苗十六小时后死亡](/content/gnews/57/README.md)
  ` xiaobaige`
-
-### [从1200亿美元巨额回扣看中共体制的滔天罪恶](/content/gnews/57/README.md)
- ` 墨尔本雅典娜农场`
 

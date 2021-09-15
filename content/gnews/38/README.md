@@ -2,40 +2,23 @@
 ---
 
 
-## 福奇资助的武汉研究使用中共国军方提供的人血样本
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1534240/)
+## 英国与北京的新冲突
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1534313/)
 
-2021年09月15日
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09152.jpg)
+最近几个月在英国发生了由香港引发的制裁和反制裁、新疆维吾尔穆斯林少数民族镇压、英国派往中（共）国海的军舰以及对中（共）国巨头华为排除 5G 网络之外等等事件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-1.jpg)网络图片
+而这一次，伦敦直接攻击了北京驻英国大使郑泽光：取消了他参加中（共）国问题小组在威斯敏斯特宫举办的下议院活动的邀请。
 
-国家脉搏透露，由安东尼·福奇的美国国立卫生研究院资助的一项冠状病毒研究是与中国共产党军队的一个“分支”合作进行的，该机构将武汉病毒学研究所的科学家命名为作者。
+邀请的取消是由同议院议长 Lindsay Hoyle 和上议院议长 John McFall 应七名国会议员的要求决定的。在最近几个月，英国政府与美国和其他西方盟国达成协议，对中（共）国采取的措施进行反制。
 
-2014年题为“使用ACE2受体的蝙蝠类非典冠状病毒的分离和表征”的研究是福奇国家过敏和传染病研究所 (NIAID) 提供的更广泛资助的结果，该研究所将美国纳税人的钱通过总部位于纽约的生态健康联盟送到了武汉病毒研究所。
+现在正在等待中（共）国当局的反应。在北京看来，这不可避免地被认为是公然的外交粗鲁，也将不可避免地激怒了中（共）国当局。两国双边友好关系进行了多年后的今天，现在英国经济在退欧后很有可能受到进一步影响。
 
-据负责生态健康联盟的福奇助手彼得·达萨克称，这项有争议的数百万美元赠款将支持将冠状病毒改造成“杀手”。
+免责申明：本文只代表译者观点，与Gnews无关
 
-然而，这些样本的来源是由中国人民解放军（PLA）控制：这个国家的军队与印度等美国盟友的冲突日益加剧。
+原文链接：[https://www.repubblica.it/esteri/2021/09/15/news/regno\_unito\_nuovo\_scontro\_con\_pechino\_l\_ambasciatore\_cinese\_bandito\_da\_westminster-317845804/?ref=RHTP-VS-I270681069-P18-S2-T1](https://www.repubblica.it/esteri/2021/09/15/news/regno_unito_nuovo_scontro_con_pechino_l_ambasciatore_cinese_bandito_da_westminster-317845804/?ref=RHTP-VS-I270681069-P18-S2-T1)
 
-据其网站称，南方医科大学前身为第一军医大学，隶属于解放军军事委员会。整个研究所获得了包括总后勤部在内的解放军各个部门的奖励。
-
-学校还设有各种实验室，包括基因工程研究所，该研究所被描述为“解放军重点生物芯片实验室的分支机构”和“陆军20强实验室之一”。这所学校的生物力学实验室在解放军的控制下运作，并得到了中国863计划的支持，该计划曾让参与该计划的中共国科学家因窃取美国公司的商业机密而被定罪。
-
-福奇的妻子克里斯汀·格雷迪目前是美国国立卫生研究院的生物伦理学主任，她负责监督丈夫将现金交给中国共产党研究人员的工作。
-
-简评：福奇利用生态健康联盟向武毒所和中共军队提供资金的又一个证据被爆出，福奇的最终结局会是什么，我们拭目以待。
-
-原文链接：[https://thenationalpulse.com/news/fauci-funded-study-recombining-viruses-used-pla-data/](Fauci-Funded%20Wuhan%20Research%20Relied%20On%20Human%20Blood%20Samples%20Provided%20by%20China’s%20Military)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
 
 0

@@ -2,32 +2,26 @@
 ---
 
 
-## 加州洛杉矶警察就强制接种令提起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534328/)
+## 秘翻在线：突发！澳洲内阁部长周三匆匆赶往堪培拉参加紧急会议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1534592/)
 
-栏目记者/责任编辑：雪梨
+#### 翻译：罗马骑士
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-66.jpg)图片来源：网络截图
+据《悉尼先驱晨报》9月15日报道，周三上午，几位联邦内阁部长被召集到堪培拉参加一次绝密会议，此前预计美国将于本周四上午发生重大国际事态发展。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+熟悉事态发展的消息人士称，一些内阁成员获得边境豁免，紧急飞往堪培拉参加仓促安排的会议，消息人士称这将具有国际意义。
 
+国防部长彼得·达顿和外交部长玛丽斯·佩恩将在未来两天在华盛顿举行一系列会议，据说他们是通过安全连接的方式，参加了此次会议。
 
+澳大利亚和外国外交官也将于周四听取有关事态发展的简报。
 
-据卫报9月14日报导，美国加州洛杉矶警察局的警员就强制接种新冠疫苗的命令提起诉讼，警员称该法令侵犯了个人隐私和公民权力。 根据洛杉矶政府要求，除了被批准的宗教或医疗豁免外，该城市的其他雇员需在10月20日之前完成新冠疫苗接种。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0915-morning-6-10.005.jpeg)
-上周末，六名洛杉矶警员在一份联邦申诉中表示，对于拒绝接种的警员，警局官员以此令和“解雇”进行威胁。强制新冠疫苗接种令不仅在共和党地区掀起了反抗的热潮，现在，连民主党的大本营：加州洛杉矶的警员也已经清楚地意识到，疫苗新政严重侵犯人权。他们要通过法律武器，捍卫自己的权力。 
-(本文仅代表作者观点)
+该公告对美国和英国政府也具有重要意义，将在澳大利亚时间上午 7 点发布。
 
-参考链接：[LA officers sue over vaccine mandate as police across California threaten to resign](https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit?utm_term=Autofeed&amp;CMP=twt_gu&amp;utm_medium&amp;utm_source=Twitter)
+白宫周四晚宣布，美国总统乔拜登将发表“关于国家安全新方案的简短讲话”。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+澳洲总理斯科特·莫里森下周将前往华盛顿参加包括美国、印度、日本和澳大利亚在内的四国联盟会议。 莫里森先生将在此行期间与拜登先生进行第一次面对面的一对一会谈。
 
-终审：暗黑
-校正/发稿：我不在这里
+新闻来源：[Ministers granted border exemptions to attend urgent meeting in Canberra](https://www.smh.com.au/politics/federal/ministers-granted-border-exemptions-to-attend-urgent-meeting-in-canberra-20210915-p58rzn.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0
