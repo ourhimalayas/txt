@@ -2,31 +2,26 @@
 ---
 
 
-## 英国加强针被批准将于下周开始推广
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534347/)
+## 盗国贼黑手伸向墙内百姓养老金
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534682/)
 
-栏目记者/责任编辑: Yousei
+栏目记者/责任编辑：捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-164.png)
+中共新华社9月15日消息, 中共国有银行旗下的理财子公司 ,已经获批开展养老理财产品，目前已达11只公募养老基金新品步入发行期。表明中共通过数年布局，开始把黑手伸向百姓的养老钱。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-22.jpeg)
 
+公开信息显示，已有“多路资金”正紧盯墙内养老投资基金. 目前中共参与公募养老基金发行的公司分别是华夏安盈、兴证全球、嘉实安康、泰达宏利等，而且中共要把养老金投资作为未来经济的第三支柱。众所周知，国内疫情导致经济持续下滑已两年，国内贫困人口不断扩大，很多人早已无力缴纳养老社保费, 王岐山所说 “老百姓吃三年草”已经不是空穴来风。新华社报道中明确告知：自2021 年 9 月 1 日起，职工退休一年内需要重新进行退休资格认证，否则养老金将自动暂停发放。 此举意味着将产生更多的官僚和腐败,更多的打击报复和行贿受贿,更多的冤案和上访, 但面对即将亡党亡国的中共, 盗国贼已经不顾一切。
 
+（本文仅代表作者观点）
 
-9月14日，在推出12至15岁儿童一剂毒针计划第二天，英国保守党政府宣布将为50岁以上的人提供第三针：毒剂加强针。目标群体设定为：50岁以上的所有国民、医护人员、有潜在健康问题的民众，以及免疫系统功能低下的病患。第三剂会以混打方案实施，总施打人数约为3千万。英国首相约翰逊表示，除了目前实行的呼吁民众接种的“A计划”外，还准备好了强制疫苗护照的”B计划”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0915-morning-6-10.003.jpeg)
-英国是全球新冠疫苗接种最高的国家之一，但英国确诊人数却远高于去年未施打的同期。具有讽刺意味的是，此前一天，约翰逊79岁的母亲刚刚去世。媒体并未报道死亡原因，但根据爆料革命的情报得知，这位老人是疫苗受害者。 已有的事实和研究表明，在新冠疫苗造成的多种不可逆的伤害中，包括位列致死第一位的心脏疾病，毒针对老幼病残等弱势群体则更为危险。但由于受到中共以及全球邪恶势力的影响，政府被操控，大媒体被垄断，医疗医药研究机构成为帮凶，人们难于得到真相。我们创建GTV，盖特，就是希望更多的人了解真相和获得解药等信息，得以自救和互助！
-(本文仅代表作者观点)
+参考链接：**[公募养老FOF“七剑齐发” 多路资金聚焦养老理财](http://www.news.cn/fortune/2021-09/15/c_1127862902.htm)**
+[9月份起，在职和退休人员都要注意，你的养老金还将有2个变化](https://new.qq.com/omn/20210807/20210807A07UCT00.html)
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-1. [英國宣布第三劑接種計畫 50歲以上國民與高危群體皆可施打](https://news.ltn.com.tw/news/world/breakingnews/3672139)
-2. [英國建議50歲以上追加第3劑疫苗 約翰遜籲更多人接種疫苗應對秋冬疫情](https://www.rfi.fr/cn/中國/20210914-英國建議50歲以上追加第3劑疫苗-約翰遜籲更多人接種疫苗應對秋冬疫情)
-3. [UK sets out pandemic plan for fall and winter; booster shots for over 50s to begin next week](https://www.cnbc.com/2021/09/14/uk-sets-out-covid-plan-for-fall-and-winter-booster-shots-to-begin-next-week.html)
-
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：暗黑
-校正/发稿：我不在这里
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,5 +29,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

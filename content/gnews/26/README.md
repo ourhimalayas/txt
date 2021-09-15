@@ -2,26 +2,27 @@
 ---
 
 
-## 加州洛杉矶警察就强制接种令提起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534328/)
+## 数千纽约教师游行,反对强制&#8221;毒针&#8221;政令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534744/)
 
-栏目记者/责任编辑：雪梨
+栏目记者/责任编辑：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-166.png)
+每日邮报消息，周一，数千名抗议强制接种疫苗的教师游行队伍, 穿过布鲁克林大桥抵达纽约市政厅附近, 抗议者们高呼口号谴责拜登总统的疫苗政策, 在曼哈顿 福利广场举行集会。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-8.jpeg)
 
+该示威是由反对疫苗强制政策的教师团体发起的，因为纽约市长要求公立学校教师在 9 月 27 日之前至少接种一剂 疫苗，否则将被解雇。同时,纽约市周一也开始在酒吧、餐馆和健身房实施疫苗强制政策。
 
+目前世界各地对疫苗强制政策的抗议示威活动此起彼伏，因为这一政策在侵犯人权的同时,已经开始呈现撕裂社会甚至家庭的迹象, 并且随着疫苗的副作用逐渐呈现，必定将对全球政治/经济/社会格局, 产生连锁性的影响。
 
-据卫报9月14日报导，美国加州洛杉矶警察局的警员就强制接种新冠疫苗的命令提起诉讼，警员称该法令侵犯了个人隐私和公民权力。 根据洛杉矶政府要求，除了被批准的宗教或医疗豁免外，该城市的其他雇员需在10月20日之前完成新冠疫苗接种。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0915-morning-6-10.005.jpeg)
-上周末，六名洛杉矶警员在一份联邦申诉中表示，对于拒绝接种的警员，警局官员以此令和“解雇”进行威胁。强制新冠疫苗接种令不仅在共和党地区掀起了反抗的热潮，现在，连民主党的大本营：加州洛杉矶的警员也已经清楚地意识到，疫苗新政严重侵犯人权。他们要通过法律武器，捍卫自己的权力。 
-(本文仅代表作者观点)
+（本文仅代表作者观点）
 
-参考链接：[LA officers sue over vaccine mandate as police across California threaten to resign](https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit?utm_term=Autofeed&amp;CMP=twt_gu&amp;utm_medium&amp;utm_source=Twitter)
+参考链接：[Furious teachers protesting mandatory vaccinations march across Brooklyn Bridge chanting ‘F\*\*\* Joe Biden’: Businesses reel against new NYC indoor vaccine rule crackdown amid Delta infections flattening](https://www.dailymail.co.uk/news/article-9990027/NYC-teachers-protesting-mandatory-vaccinations-chant-F-Joe-Biden-Brooklyn-Bridge-march.html?ito=push-notification&amp;ci=4X76GW4XYz&amp;cri=6RGj7Q7sux&amp;si=39450485&amp;xi=d249a8b2-b9a9-4ec5-973a-d15d46c8a95e&amp;ai=9990027)
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：暗黑
-校正/发稿：我不在这里
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,5 +30,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
