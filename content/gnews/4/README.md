@@ -2,31 +2,37 @@
 ---
 
 
-## The CCP Kleptocracy Reaches Into People’s Pensions
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535011/)
+## DC每日热点0915
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1535037/)
 
-Translated by: MOS Education Group – Winsun
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
-The Xinhua News Agency of the CCP reported on September 15 that the wealth management subsidiary of the state-owned bank of the Communist Party of China has been approved to develop pension wealth management products. Presently, 11 new public pension fund products have entered the issuance period.  It shows that the CCP has begun to extend its stained hands to the people’s pension funds through several years of deployment.
-![senior citizens pension: Pension for senior citizens under BPL likely to go  up - The Economic Times](https://m.economictimes.com/thumb/msid-73649980,width-1200,height-900,resizemode-4,imgsize-129511/senior-citizens.jpg)photo from indiatimes.com
-Public information shows that “multi-channel funds” are already focusing on pension investment funds in the wall. Currently, the companies participating in public pension fund issuance are China Anying, China Industrial Securities Global, Harvest Ankang, TEDA Manulife, etc.  Pension investment is the third pillar of the future economy.  As we all know, it has been two years since the beginning of domestic epidemic that has caused the economy to continue to decline, and the domestic poverty population has continued to expand. Many people have long been unable to pay pension social insurance premiums.  Wang Qishan’s saying that “people eat grass for three years” is no longer groundless. According to the Xinhua News Agency report, it is clearly stated that starting from September 1, 2021, employees need to re-certify their retirement qualifications within one year of retirement, otherwise pension payments will be automatically suspended.  This move means more bureaucracy and corruption, more retaliation and bribery, more unjust cases and petitions, but in the face of the CCP, which is about to perish, the country’s thieves have been desperate.
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/09/86861BD5-C833-445F-9618-EFD022534678-scaled.jpeg)
+道琼斯指数 34678.13 ▲0.29%
+纳斯达克指数 15040.87 ▲0.02%
+WTI纽约原油CFD 72.876 ▲3.43%
+布伦特原油CFD 75.973 ▲3.22%
+美元兑人民币 1USD=6.432RMB
+美元兑港币 1USD=7.781HKD
+国际黄金 1796.22 美元/盎司
+全球CCP病毒感染人数 226,815,408 例
 
-Reference link:
-
-[http://www.news.cn/fortune/2021-09/15/c\_1127862902.htm](http://www.news.cn/fortune/2021-09/15/c_1127862902.htm)
-
-[https://new.qq.com/omn/20210807/20210807A07UCT00.html](https://new.qq.com/omn/20210807/20210807A07UCT00.html)
-
-Proofread / Posted by: Brain Sanitizer
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
-**For more information, follow us **
-
-[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Gnews-Logo-39.png](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-39.png)
+1、朝鲜15日试射两枚弹道导弹 被指意在对美国施压
+2、为中共专制护航 香港将参与六四集会的民主派精英判刑
+3、美国国会正式就阿富汗撤军行动展开质询 忧虑未来如何应对中共挑战
+4、美军最高司令遭曝密通中共给定心丸 川普吁逮捕法办：这是叛国罪！
+5、美中达成一项协议，阻止缅甸军政府出席联大会议
+6、布林肯：美国不会取消对塔利班的制裁
+7、因制裁英国议员，中共驻英大使被禁进入英议会活动
+8、因涉嫌举报香港编辑，中文维基百科对7位中共国大陆编辑下达禁令
+9、华为疑渗透剑桥大学研究中心 英国政界批评学术界过份依赖中共国资金
+10、美国疫情趋缓，仍有2675完全接种美国人染疫身亡
+11、美特使重申对朝无敌意，希望平壤积极回应谈判提议
+12、抗衡中共施压，台湾经贸投资考察团将访问立陶宛、捷克、斯洛伐克
+13、欧盟或推“通全球”抗衡“一带一路”
+14、恒大评级遭降至“CC” 流动性似已枯竭或面折价出售
+15、接种新冠疫苗义务化：法国新规今天生效
+16、瑞士称不认可所有世卫批准的疫苗，英国阿斯利康、
+中共国科兴、中共国国药、俄罗斯卫星五号均不被认可
+17、佛州州长提警告 重罚强制疫苗接种行为
 
 0

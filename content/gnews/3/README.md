@@ -2,39 +2,37 @@
 ---
 
 
-## Huawei Infiltrates Cambridge University, Its Research Center’s Representative Receives &#8220;The CCP’s State Department Special Allowance&#8221;
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1534866/)
+## DC每日热点0915
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1535037/)
 
-Translated by: MOS Translation Group – Snorlax
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/09/86861BD5-C833-445F-9618-EFD022534678-scaled.jpeg)
+道琼斯指数 34678.13 ▲0.29%
+纳斯达克指数 15040.87 ▲0.02%
+WTI纽约原油CFD 72.876 ▲3.43%
+布伦特原油CFD 75.973 ▲3.22%
+美元兑人民币 1USD=6.432RMB
+美元兑港币 1USD=7.781HKD
+国际黄金 1796.22 美元/盎司
+全球CCP病毒感染人数 226,815,408 例
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-1.jpg)
-On September 14, the RFI citing the Times report that the Cambridge Center for China Management Studies (CCCM), which is part of Cambridge University’s Judge Business School, has apparently been infiltrated by Huawei.  Three quarters of the center’s directors are linked to Huawei. Its chief representative, Hu Yanping, is a former Huawei vice president and a continuing recipient of a “special allowance” from the Chinese State Council.
-
-Huawei is an intelligence agency of the Chinese Communist Party’s military. The Chinese government also requires information and communication companies to share user information with the government. Due to national security concerns, Huawei has been excluded from fifth-generation mobile communications (5G) construction in many countries, including the UK. The University of Cambridge’s close relationship with Huawei is therefore a threat to the UK’s national security. This has drawn the attention of Smith, the former leader of the British Conservative Party, Tugenhardt, the chairman of the Foreign Affairs Committee of the British Parliament, the leader of the Conservative Party’s China Study Group, and Patterson, the policy director of the British non-governmental organization Hong Kong Monitor. They called on the government and the university to launch an investigation.
-
-There have been numerous scandals over the years about the Chinese Communist Party actively infiltrating major prestigious institutions with funding and programs. The Times revealed last year that the University of Cambridge’s China Management Research Center had received donations of £200,000 and £155,000 from the Chinese government and Huawei last year. Twenty of the UK’s top universities were revealed a few months ago to have received more than £40 million in recent years from Huawei and other Chinese government-held companies. Oxford University said to the public in 2018 that it would no longer accept Huawei’s funding.
-
-There has been an international backlash against various Chinese Communist Party perversions. The repeated revelations of infiltration of prestigious British universities by Chinese companies, such as Huawei, also reflect a shift in the political winds in British politics.
-
-(This article represents the views of the author only)
-
-Reference: [https://gnews.org/zh-hans/1533230/](https://gnews.org/zh-hans/1533230/)
-
-Proofread by: MOS Translation Group – Lakers
-
-Edited by: MOS Translation Group – Lakers
-
-Posted by: MOS Translation Group – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
-
-**For more information, follow us**
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
+1、朝鲜15日试射两枚弹道导弹 被指意在对美国施压
+2、为中共专制护航 香港将参与六四集会的民主派精英判刑
+3、美国国会正式就阿富汗撤军行动展开质询 忧虑未来如何应对中共挑战
+4、美军最高司令遭曝密通中共给定心丸 川普吁逮捕法办：这是叛国罪！
+5、美中达成一项协议，阻止缅甸军政府出席联大会议
+6、布林肯：美国不会取消对塔利班的制裁
+7、因制裁英国议员，中共驻英大使被禁进入英议会活动
+8、因涉嫌举报香港编辑，中文维基百科对7位中共国大陆编辑下达禁令
+9、华为疑渗透剑桥大学研究中心 英国政界批评学术界过份依赖中共国资金
+10、美国疫情趋缓，仍有2675完全接种美国人染疫身亡
+11、美特使重申对朝无敌意，希望平壤积极回应谈判提议
+12、抗衡中共施压，台湾经贸投资考察团将访问立陶宛、捷克、斯洛伐克
+13、欧盟或推“通全球”抗衡“一带一路”
+14、恒大评级遭降至“CC” 流动性似已枯竭或面折价出售
+15、接种新冠疫苗义务化：法国新规今天生效
+16、瑞士称不认可所有世卫批准的疫苗，英国阿斯利康、
+中共国科兴、中共国国药、俄罗斯卫星五号均不被认可
+17、佛州州长提警告 重罚强制疫苗接种行为
 
 0
