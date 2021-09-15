@@ -2,38 +2,51 @@
 ---
 
 
-## 以色列用事实证明新冠疫苗实验是一个重大的失败
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535073/)
+## 英国议会决定禁止中共国大使进入议会大厦
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1535074/)
 
-2021年09月15日
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-2.jpg)网络图片
-
-随着新的感染和突破性病例在全球范围内持续攀升，很快变得清晰可见武汉新冠病毒疫苗实验是一个巨大的失败。
-
-以色列也许是在此事件上的最大证明。该国是世界上疫苗推广速度最快的国家之一。
-
-在符合条件的12岁及以上的以色列人口中，将近80%的人已经接种了疫苗。约有235万以色列人也已经接受了加强针。然而，据牛津大学的新数据显示，以色列的人均感染新冠病毒的病例指数是最高的。
-
-9月3日，以色列每百万人中平均每7天滚动的平均值就有1,143个新冠病例。比美国同一天报告的比率（即每百万人中有501人）高出一倍之多。
-
-《耶路撒冷邮报》最近报道说，自8月初以来，有将近20万以色列人新冠检测结果呈阳性，并且564人因患上新冠肺炎而死亡。
-
-在该国400名病情严重的新冠患者中，有64%的人已经完全接种了疫苗。
-
-**简评：**随着越来越多的人接种了新冠疫苗，疫苗的有效率和副作用也开始浮出水面。以色列用血一样的事实证明了疫苗不但没有帮助你抵御病毒的侵害，而且在相当大的程度上加剧了病毒的传染率和死亡率。当一个政府可以大到能给你提供一切的时候，它也势必大到可以夺走你的一切。就像文贵先生说的那样，以毒灭共已经结束，以苗灭共已经开启，希望越来越多的人们通过爆料革命和新中国联邦了解事实真相，推翻共产党这一邪恶组织。
-
-新闻链接：[Israel stands as greatest proof that COVID-19 vaccine experiment is a massive failure](https://vaccines.news/2021-09-14-covid-vaccine-experiment-is-massive-failure.html#)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[法广](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210914-%E8%8B%B1%E5%9B%BD%E8%AE%AE%E4%BC%9A%E5%86%B3%E5%AE%9A%E7%A6%81%E6%AD%A2%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E9%83%91%E6%B3%BD%E5%85%89%E8%BF%9B%E5%85%A5%E8%AE%AE%E4%BC%9A%E5%A4%A7%E5%8E%A6)9月14日报道，在中共今年3月底对多名英国议员实施制裁后，英国议会上下两院议长决定，反对中共国驻英国大使郑泽光周三访问英国议会。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/blob.jpg)图片来源：REUTERS – JASON LEE
+
+英国议会下院议长林赛在一份声明中说：“我定期与来自世界各国的大使会面，旨在与各国和议员建立持久的联系”。他说，“但我认为，当中共国对我们的一些议员进行制裁，我们仍然在议会等工作场所会见中共国大使是不合适的。”
+
+在英国与美国、加拿大和欧盟一起对四名侵犯维吾尔少数民族人权的中共国高级官员实施制裁几天后，今年3月，中共对批评其迫害新疆人权的9名英国人和4个实体，进行 “制裁”。被制裁者包括外交事务委员会主席汤姆·图根哈特（Tom Tugendhat）和前保守党领袖伊恩·邓肯·史密斯（Iain Duncan Smith）等著名议员。这些议员一直对中共的新疆人权问题提出尖锐批评。
+
+中共妄图在民主国家阻止言论自由，英国议会的这一举措是西方对中共战狼外交的一记有力的回击。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
+
+
 
 0

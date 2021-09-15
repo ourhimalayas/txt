@@ -2,57 +2,24 @@
 ---
 
 
-## Die wahren Farben des Kriegswolfs! Nachricht aus US-Medien, dass Qin Gang die US-Seite Während Seiner Rede Ausrief, &#8220;den Mund zu Halten&#8221;！
-` MOSglobal` [轉載自GNews](https://gnews.org/1535344/)
+## 墙内疫苗心情日记（十六）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1535415/)
 
-Umschreiben:  MOS Buddhism Group  –  Nancy
+#### 撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/09/fb7db9d72ee4ceb5.png)
+这几天上班都在默默的做事，不是自己的活我也做，别人下班了我还在做，因为我总觉得在疫情期间愧对老板了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+昨天，给一个我的好哥哥说，千万不要再打第二针了，但他就是不听。没办法，命在个人手里，尊重他的选择。我的老板也在准备打加强的第三针，他是体制内的人，我说什么也不信，甚至他的朋友还在找关系打疫苗，真是无语。体内40万亿个刺突毒蛋白，对于即将发生在身边的疫苗灾难，真的不敢多想。对于厂里的同事我也不能再多说疫苗了，因为大家打了疫苗，再多说大家既不听还招致非议，人各有命吧。
 
+9月14日七哥直播说GTV老椅子与美国SEC的官司打赢了，真心为老椅子战友高兴。官司的胜利，体现了七哥的卓越智慧，更验证了七哥、爆料革命和新中国联邦的信誉承诺。因为个人在财富上面真的是没有过多的盈余,但能参加爆料革命，跟七哥和战友们学到很多东西，想一想未来一个开智的新中国联邦人，财富不是什么大问题，而拥有财富后的怎么去分配才是最重要的。
 
+近几期七哥的直播都在讲中共内部与某国际黑暗组织勾结的内幕，这必然加速中共内部斗争，加之恒大暴雷所引发的金融和社会问题，都是让共产党早点死亡的稻草。
 
+班农大师说的，明年北京相见。真的期盼那一天快点到来，虽然不知道以后的道路，但是能感觉到，正义的力量肯定胜利。或者在这样的一个不能与自己亲朋好友更多、更深沟通的年代，保护自己就是胜利。虽然压抑，但是每一次听到七哥的直播和战友们的信息，都能感受到无穷力量。因为有广大的战友相陪相伴，我不孤独不寂寞，难得的经历会让我更深的认识自己的价值和未来我要所做的事情。虽然在这些投资中，我没有更多的钱投入G系列，但能成为灭共的一份子我是幸运的！
 
+（文章仅代表作者个人观点，与GNEWS无关）
 
-**Interviews mit der GTV Presse       13.09.2021**
-
-Der neue chinesische Botschafter in den USA, Qin Gang, hielt am 31. August seine erste öffentliche Rede seit seinem Amtsantritt Ende Juli. Er setzte die übliche Härte und Brutalität der Xi Jinping-Regierung fort und zeigte die wahre Natur eines Kriegswolfs, die im großen Gegensatz zu den Erwartungen der Außenwelt steht.
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/972-1-1.jpeg)
-
-Die [National Review](https://www.nationalreview.com/corner/new-chinese-ambassador-snaps-at-u-s-please-shut-up/) berichtete am 10. September, dass auf die Präsentation am 31. August eine Live-Fragestunde folgte,  Qin Gangs Auftritt war sogar noch augenöffnender!
-
-Qin Gang scherte sich nicht um diplomatische Etikette und Diplomatie und befahl der amerikanischen Seite direkt, “den Mund zu halten”.
-
-Damals fragte McEwen, leitender Direktor des Asienbüros des Nationalen Sicherheitsrats unter der Obama-Regierung, Qin Gang an Ort und Stelle: “Welche Schritte müssen die USA und China jeweils unternehmen, um die bilateralen Beziehungen zu verbessern”.  In seiner Antwort beschuldigte Qin zunächst die US-Regierung, die Situation zu verschlimmern, und rief dann: “Wenn wir unsere Differenzen nicht lösen können, halten Sie den Mund”.
-
-Es ist erwähnenswert, dass die meisten Teilnehmer der Veranstaltung prokommunistische Mitglieder der amerikanischen Elite waren, “alte Freunde” in den Augen der Kommunistischen Partei Chinas, wie der ehemalige Außenminister Kissinger und der ehemalige Finanzminister Jacob Lew.
-
-**Original-Artikel:**
-
-[战狼本色!美媒爆料秦刚演讲叫嚣美方“闭嘴”! – GNEWS](https://gnews.org/zh-hans/1530272/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
-
-*Gepostet von: Xiaolunn*
-
-
-
-**Für weitere Informationen, folgen Sie uns:**
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 0

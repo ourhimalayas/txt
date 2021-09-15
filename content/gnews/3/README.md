@@ -2,57 +2,37 @@
 ---
 
 
-## Die Britische Regierung Genehmigt die Coronavirus-Impfung für 12- bis 15-Jährige und Sorgt damit für Empörung Bei den Eltern
-` MOSglobal` [轉載自GNews](https://gnews.org/1535357/)
+## Trillion Stolen by the CCP from China- the Wrestling Battlefield of Three Forces
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535286/)
 
-Umschreiben:  MOS Buddhism Group   –  Nancy
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
+Translated by: MOS Translation Team – Eleutheria
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/0914pm8-T.jpg)
 
 
+Faced with the increasingly tightening isolation and confrontation of the international community, the CCP’s finances are also headed for ruin. For four years now, through a series of precise exposures, the CCP has lost its credibility within China and among the international community. The CCP’s  $3 trillion foreign exchange reserves are about to dry up, more than $1 trillion of the #3 trillion foreign exchange is in U.S. Treasury bonds, leaving $2 trillion in foreign exchange reserves, only $1 trillion of which can be used freely. However the minimal annual expenditures require about $700 to $800 BN on imports to sustain the native economy. Hong Kong, which is a treasure trove of foreign exchange for the CCP, has been destructed by the Xi’s administration.
 
+During a live broadcast on GTV on September 14, Miles Guo said Xi Jinping is aware of the CCP’s $20 trillion worth of stolen “party assets” overseas. This is enough to keep the CCP alive for a few more decades. However, Xi absolutely has no control over these properties. Only a few families, such as Deng Xiaoping, Jiang Zemin, Wang Qishan, and Zhu Rongji, have this information. Xi absolutely has no say in international finance. He has no more than 50 percent control over the CCP’s military.
 
-**Interviews mit der GTV Presse       13.09.2021**
+The 20 trillion dollars of assets belonging to the Chinese people will become a wrestling battlefield for the three forces on the New Federal State of China(NFSC), the CCP proxies of the international evil organizations, and the Xi’s administration.
 
-Unter Hinweis auf die Notwendigkeit, Ausbrüche des Virus in Klassenzimmern und weitere Störungen des Winterunterrichts zu verhindern, kündigte Großbritanniens Chief Medical Officer Chris Whitty am 13. September an, dass gesunden Kindern im Alter von 12 bis 15 Jahren im Land eine Dosis des Impfstoffs von Pfizer angeboten wird und dass mehr als drei Millionen Jugendliche den Impfstoff bereits in der nächsten Woche erhalten werden, wenn die Minister zustimmen.
+The coming up exposures from Miles will focus on Wang Qishan’s overseas assets and the overseas layouts of Wang, Zhu Rongji, Jiang Mianheng, and others. It will be including how Wang Qishan used his position to pocket the stolen money of Zhou Yongkang and Xu Caihou, and reported a fraction of it to the Central Commission for Discipline Inspection. The fight between Xi, Wang, and other forces over the $20 trillion is essentially a dogfight between dark forces like Russia. And the NFSC’s “getting back money in the air” actions is a perfect legitimate fight of wealth, dignity, and well-being of the Chinese people.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/973-1-1-58-1280x720-1.jpg)Bildnachweis：Yonatan Sindel/Flash90
+(This article represents the views of the author only)
 
-Es wird davon ausgegangen, dass der Impfstoff in erster Linie im Rahmen des bestehenden Schulimpfungsprogramms verabreicht wird und die Zustimmung der Eltern eingeholt wird. Allerdings haben die Kinder das letzte Wort, wenn sie für reif und kompetent genug gehalten werden.  Jeff Barton, Generalsekretär der Association of School and College Leaders (ASCL), erklärte, viele der Mitgliedsschulen der Vereinigung hätten verschiedene Schreiben erhalten, in denen ihnen rechtliche Schritte angekündigt würden, wenn sie an einem neuen Impfprogramm gegen das Coronavirus teilnehmen würden.  Verärgerte Eltern sind wütend über den Schritt der Regierung, die Entscheidung kleinen Kindern zu überlassen, die “nicht einmal entscheiden können, welchen Tee sie wollen, geschweige denn, welchen Impfstoff”.
+Source: [https://gnews.org/zh-hans/1534881/](https://gnews.org/zh-hans/1534881/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/973-2-1.1-5-1280x720-1.jpg)Bildnachweis：Yonatan Sindel/Flash90
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
 
-Und Anfang dieses Monats empfahl der Gemeinsame Ausschuss für Impfungen und Immunisierung (JCVI) keine Massenimpfung für gesunde Kinder unter 16 Jahren. Eine Studie vom Juli ergab, dass Kinder nur 0,005 % aller Todesfälle durch das CCA-Virus im Vereinigten Königreich ausmachten. Zum Zeitpunkt der Durchführung der Studie waren im Vereinigten Königreich 25 Kinder gestorben, von denen 19 potenziell gesundheitsgefährdend waren. Eine der Forscherinnen der Studie, Dr. Elizabeth Whitaker vom Imperial College, sagte. “Diese Daten legen nahe, dass die Impfung aller gesunden Kinder nur dann gerechtfertigt ist, wenn das Risiko von Impfstoffen sehr gering ist.
+Edited/Proofread/Posted by: Stay
 
-Die Position der Whistleblower Revolution war schon immer sehr klar: Sowohl das KPCh-Virus als auch der Impfstoff sind giftig für den Menschen, das KPCh-Virus ist eindeutig heilbar und erfordert keine Impfung gegen das Gift, und wir fordern die Regierungen erneut auf, die Verwendung wirksamer Medikamente unverzüglich zu öffnen und den Menschen die Rückkehr zum normalen Leben zu ermöglichen.
+**More information, follow us **
 
-**Original-Artikel:**
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[英国政府批准为12至15岁的青少年接种冠状病毒疫苗 引起家长愤怒 – GNEWS](https://gnews.org/zh-hans/1531745/)
+[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
+[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*Gepostet von: Xiaolunn*
-
-
-
-**Für weitere Informationen, folgen Sie uns:**
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

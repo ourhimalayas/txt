@@ -2,48 +2,37 @@
 ---
 
 
-## La main noire de voleur de nations s’empare des pensions pour les citoyens à l&#8217;intérieur du pays communiste chinois
-` MOSglobal` [轉載自GNews](https://gnews.org/1535369/)
+## 我们需要良知的唤醒 而非道德的灌输
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535425/)
 
-Traducteur : MOS Groupe de Média – Gtv abeilles
+2021年9月15日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091508.jpg)
+**作者**：此心不变
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+我从来不听别人讲道德，我的道德水平由我自己的觉知来决定；我也从来不对子女强加灌输道德，他们的道德水平由他们的觉知来决定。我只跟我的子女讲“爱”的相互作用律法，你爱自己，就等于爱他人；你爱他人，就等于爱自己；你给自己自由，就等于给他人自由；你给他人自由，就等于给自己自由。我还跟我的子女讲诚信，诚信是做人的根基，诚信能让你获得尊重和信任，诚信能让你获得爱和自由，诚信能让你获得勇气和能量，诚信还可以让你更具备原创力。我不会用灌输概念的方式来讲爱和诚信，我只会用身体力行和分享感受的方式来启发他们对爱和诚信的觉知，然后由他们的觉知来决定他们的道德水平。
 
+郭文贵先生经常讲孝顺，我觉得他的孝顺更多的是“孝”，而非“顺”。他要灭共，便很难做到“顺”。“孝”是爱，“顺”是欲。他爱家人，他爱战友，他爱身边所有的人，这是他的本心，他顺从的是他的本心，不是他人（包括父母）。什么是本心？就是阳明心学中所说的“无善无恶心之本”。“人之初，性本善”是错的，“人之初，性本恶”也是错的。人之初，性本无善无恶。阳明心学说，有善有恶人之欲，善与恶都是人的私欲，那是后天教育带给我们的。我不是因为恨CCP而加入爆料革命，我不希望我的世界充满恨，我是为了包括我和家人在内的所有同类的生存和发展而加入爆料革命的。
 
+我觉得一个人的道德不是表现在其“行为”上，而是在他的“觉知”上。我为什么要加入爆料革命？因为我觉知到只有爆料革命才能灭掉CCP，也就是说，我加入爆料革命的“行为”取决于我对爆料革命的“觉知”。我为什么认为只有爆料革命才能灭掉CCP？因为我觉知到爆料革命的坚定信念、诚信、勇气和智慧，也就是说，我有爆料革命能灭掉CCP的“想法”是基于我对爆料革命的坚定信念、诚信、勇气和智慧的“觉知”。总之，人的道德问题不在人的“行为”上，而在人的“觉知”上，所以阳明心学的核心是“致良知”。良知的“知”就是“觉知”的意思，所以良知的定义就是判断是非的觉知能力，绝不是死板的道德规范。“致良知”就是要求我们每一个人通过在各种事情上的磨练，而最终获得判断是非的觉知能力。
 
+《德教云书院》这名字一看就知道是讲“德”的书院，但是，却罔顾文贵先生的三番警告，依然选择借爆料革命之名行敛财之事，墙内战友甚至因此泄露了个人信息，而被迫处于危险之中。这种泯灭良心的行为，是在行“德”之事吗？
 
+爆料革命之所以有信誉，是因为爆料革命讲真相，唯真不破。被中共统治了70余年的我们，良知早已被中共的洗脑教育冲刷得一干二净。中国人需要的是良知的唤醒，而非道德的灌输；而唤醒良知的良药就是真相，而非道德规范。我相信，当邪恶中共消失在中国大地之日，爆料革命将真相还原给中国人民之时，我们国人在道德上的觉醒便是顺理成章的。
 
-L’agence de presse Xinhua du Parti communiste chinois a annoncé le 15 septembre que les filiales de gestion de patrimoine des banques publiques avaient été autorisées à lancer des produits de gestion de patrimoine pour les retraites, et que 11 nouveaux fonds de pension publics avaient été lancés. Cela montre que le Parti communiste chinois a commencé à mettre sa main noire sur l’argent des retraites des gens grâce à plusieurs années de mise en page.
+（本文仅代表作者个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/974-1.jpeg)
+***编辑：【英国伦敦喜庄园编辑部】***
 
-Des informations publiques montrent que des “fonds multiples” lorgnent déjà sur les fonds d’investissement des retraites à l’intérieur du pays communiste chinois. Les sociétés actuellement impliquées dans l’émission de fonds de pension publics du PCC sont Huaxing Anying , XingZheng Global, Harvest AnKang et Teda HongLi. Le Parti communiste chinois souhaite faire de l’investissement dans les pensions le troisième pilier de l’économie à l’avenir. Comme nous le savons tous, cela fait deux ans que l’épidémie domestique a provoqué la poursuite du déclin de l’économie, et la population des pauvres dans le pays a augmenté, de nombreuses personnes sont depuis longtemps dans l’incapacité de payer les cotisations de sécurité sociale pour leurs retraites, la déclaration de Wang Qishan selon laquelle “le peuple peut manger de l’herbe pendant trois ans” n’est pas une déclaration vide. L’agence de presse Xinhua a rapporté qu’à partir du 1er septembre 2021, les nouveaux retraités devront se requalifier dans l’année qui suit leur départ à la retraite, sans quoi leur pension sera automatiquement suspendue. Ce mouvement signifiera plus de bureaucrates et de corruption, plus de représailles et de pots-de-vin, plus d’affaires et de pétitions injustes, mais face à la disparition imminente du parti communiste et du pays, les voleurs sont déjà téméraires.
+*校对：仙女儿-文善* *| 审核：文明明* *| Page：我是球大哥*
 
-**Lien d’article original de Gnews :**
-
-[盗国贼黑手伸向墙内百姓养老金 – GNEWS](https://gnews.org/zh-hans/1534682/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
-
-*Posté par: Xiaolunn*
-
-
-
-**Pour plus d’information, suivez-nous:**
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-**[Bienvenue sur New York MOS Himalaya | Discorde](https://discord.gg/ChqXAHd)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
