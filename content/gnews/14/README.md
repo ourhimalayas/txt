@@ -2,27 +2,44 @@
 ---
 
 
-## 9.11恐怖袭击20周年
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1526381/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1532267/)
 
-**圆成农场新闻组**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/id13226550-GettyImages-1235178684-600x400-1-edited.jpg)图片来源：网络
-周六（9月11日）是9·11恐袭20周年，全球各地纷纷举行纪念活动，在美国近3000名遇难者的家人将聚集在纽约、宾夕法尼亚和华盛顿特区，参加纪念活动。
-
-周六，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）也在布鲁塞尔举行的9.11事件纪念仪式上发表讲话。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5546e0ef551359b23306ab93319bc764_500x0-1.jpg)
-爆料革命发起人郭文贵先生也在他的GETTR上发文称：我们世界上现在所存在的每个人，都活在因共产党制造的生化灾难的之中，我们每个人事实上都像这张照片中在堕落的那个人一样，我们面对着人类上前所未有的最大的恐怖威胁，那就是中国共产党！悲哀的是，全世界还在黑暗中天真幻想，今天世界上已被共产党病毒杀死的人数超过了911的多少倍？而且没有任何停止的迹象，全球还在疯狂的推广可能杀人的疫苗。新疆．阿富汗．香港．导致的灾难死亡人数都超过911N倍！希望人类早日醒来，新中国联邦肩负着重大的使命，消灭共产党，拯救全人类，彻底铲除恐怖主义的根源。
-
-新闻来源：[MILES GUO on GETTR](https://gettr.com/post/pari94b0a5)
-
-[【更新】9.11恐袭20周年 全球纪念 | 9.11事件 | 恐怖袭击 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/9/11/n13226388.htm)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210911
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+- 编译：土饭团(文团)
 
 
-0
+您若想了解全文报导内容，请点击标题链接
+
+**1.[Trump称阿富汗撤军为中国和俄罗斯逆向工程美国军事装备敞开大门](https://www.foxnews.com/politics/trump-speculates-u-s-military-equipment-left-in-afghanistan-being-reverse-engineered-by-china-russia)**
+
+福克斯新闻9月12日电，前总统Donald Trump抨击Biden政府从阿富汗撤军，并猜测中国和俄罗斯可能已经在对美国留下的军事装备进行逆向工程。在周日播出的“Full Measure”节目中，Trump在接受主持人Sharyl Attkisson的采访时，痛斥撤军是“无能”的，并警告说这可能会危及美国并使其敌人受益。
+
+**2.[Biden下周将在白宫接待澳大利亚、印度和日本的领导人](https://www.reuters.com/world/biden-host-leaders-australia-japan-india-sept-24-white-house-2021-09-13/)**
+
+路透社9月13日电，美国总统Joe Biden将主持“四国”—澳大利亚、印度、日本和美国领导人的首次面对面峰会，这些国家一直在寻求加强合作以反击中国日益增长的强硬态度。白宫新闻秘书Jen Psaki在一份声明中说，峰会将于9月24日在华盛顿白宫举行。
+
+**3.[国会开始对阿富汗事件进行拷问](https://thehill.com/policy/defense/overnights/572065-defense-national-security)**
+
+The Hill 9月13日电，国会关于阿富汗撤军的听证会与国务卿Antony Blinken于周一拉开序幕。与此同时，五角大楼正面临关于其在阿富汗的最后一次无人机袭击的严峻问题。Blinken还将于星期二在参议院外交关系委员会作证，届时他肯定会面临类似的拷问。
+
+**4[.紧张局势加剧，菲律宾承诺无视中国海事法](https://www.aninews.in/news/world/others/philippines-promises-to-ignore-china-maritime-law-as-tension-spikes20210912195535/)**
+
+ANI 9月12日电，在中国日益增长的军事强硬态度下，菲律宾承诺将无视北京修订的海事法。周五早些时候，美国国防部长Lloyd Austin会见了Delfin Lorenzana重申他们致力于支持自由和开放的印太的安全、稳定和繁荣。在中国日益强硬的情况下，两位部长肯定了美菲联盟的持久性，以及他们共同致力于为未来的联盟合作奠定更坚实的基础。
+
+**5.[中国学生在紧张局势下遭美国拒签](https://www.usnews.com/news/politics/articles/2021-09-13/chinese-students-hit-by-us-visa-rejections-amid-tension)**
+
+U.S.News & World Report 9月13日电，至少有500名学生在时任总统Donald Trump颁布的政策下被拒绝，该政策阻止北京获得可能用于军事用途的美国技术。美国官员表示，他们相信数以千计的中国学生和研究人员参与了鼓励他们向中国传输医疗、计算机和其他敏感信息的计划。华盛顿引用了北京的“军民融合”战略，称其将私营公司和大学视为发展中国军事技术的资产。
+
+（文章仅代表作者观点，与**GNEWS**无关）
+
+* * *
+
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+
+
+
++1

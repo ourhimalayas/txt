@@ -2,34 +2,35 @@
 ---
 
 
-## 美国19位州长抵制拜登的强制接种疫苗政策
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1527667/)
+## 预防反封锁集会，周六维州警方关闭公共交通
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1533950/)
 
-**撰稿：日本东京方舟农场 海星**
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-8.png)
+图片来源：The Epoch Times
 
-据《WND新闻》9月10日报道，在美国拜登总统宣布将为1亿美国人强制接种疫苗政策的几小时后，至少有19位州长发表声明，发誓要行使他们的权力，并将使用所有可用的法律工具来进行抵抗，保护每个公民的自由和生活。
-阿肯色州州长表示，联邦政府授权私营公司强制接种疫苗的政策并不是正确的。
-紧接着南卡罗来纳州州长表示，在拜登总统和激进的民主党人的领导下，美国梦已经变成了一场噩梦。他宣布将与拜登政府战斗到死，以保护每个南卡罗莱纳人的自由和生活。
-佐治亚州州长也在推特上写道，他将寻求佐治亚州可用的所有法律工具，以阻止拜登政府这种公然的非法越权行为。
+9月15日媒体报道，澳大利亚维多利亚州警方将采取非同寻常的措施，阻止人们在周末进入墨尔本市中心区域参加反封锁集会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/biden-speech-vaccine-mandates.jpg)图片来自于网络
+周六，前往墨尔本市的公共交通将被关闭，以防止该市发生反封锁集会。
 
-德克萨斯州州长则发布了一项行政命令，保护德克萨斯州人选择是否接种疫苗的权利，并将这一问题添加到即将召开的州立法机构特别会议中。
-除此之外，亚利桑那州、亚拉巴马州、阿拉斯加州、佛罗里达州、爱达荷州、爱荷华州、密苏里州、密西西比州、蒙大拿州、内布拉斯加州、北达科他州、俄克拉荷马州、南达科他州、田纳西州和怀俄明州的州长也宣布反对拜登的强制接种疫苗政策。
-9月9日，拜登总统签署了一项行政命令，要求所有联邦工作人员接种疫苗。在一次电视讲话中，他命令劳工部制定一项规则，规定雇员超过100人的私营公司必须接种疫苗或每周进行病毒测试，8000多万工人受到影响。另有1700万从事医疗保险和医疗补助基金的卫生保健行业的工人将被强制接种疫苗。
+维州警察局首席专员沙恩·巴顿 (Shane Patton) 周三宣布，公共交通网络将在周六上午 8 点至下午 2 点之间暂停。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+巴顿先生说，警方和卫生当局认为，计划中的抗议活动可能是潜在的“超级传播者事件”，使人们面临感染新冠病毒的风险，并敦促人们不要参加。
 
-*参考链接：*
+他说：“我们将尽一切努力阻止人们进入这座城市。”
 
+巴顿先生表示，当局“并没有掉以轻心”，将对进入该市的人处以 5,500澳元的罚款，对5公里以外的人处以1,800澳元的罚款。
 
+“我们正在做最坏的打算，并希望取得最好的结果，”他补充说。
 
-> [‘Fight to the gates of hell’: States resist Biden’s ‘cynical and divisive edicts’](https://www.wnd.com/2021/09/fight-gates-states-resist-bidens-cynical-divisive-edicts/)
+新闻来源：[Public transport to shut down in Melbourne CBD to stop anti-lockdown protest | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/courts-law/police-shut-down-public-transport-in-melbourne-cbd-to-prevent-antilockdown-rally/news-story/783903162f3821a34514b86120934a5f)
+编辑/发布：文泓
 
-
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
