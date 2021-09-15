@@ -2,54 +2,31 @@
 ---
 
 
-## 2021/09/15 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1534918/)
+## The CCP Kleptocracy Reaches Into People’s Pensions
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535011/)
 
-2021年9月15日
+Translated by: MOS Education Group – Winsun
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
+The Xinhua News Agency of the CCP reported on September 15 that the wealth management subsidiary of the state-owned bank of the Communist Party of China has been approved to develop pension wealth management products. Presently, 11 new public pension fund products have entered the issuance period.  It shows that the CCP has begun to extend its stained hands to the people’s pension funds through several years of deployment.
+![senior citizens pension: Pension for senior citizens under BPL likely to go  up - The Economic Times](https://m.economictimes.com/thumb/msid-73649980,width-1200,height-900,resizemode-4,imgsize-129511/senior-citizens.jpg)photo from indiatimes.com
+Public information shows that “multi-channel funds” are already focusing on pension investment funds in the wall. Currently, the companies participating in public pension fund issuance are China Anying, China Industrial Securities Global, Harvest Ankang, TEDA Manulife, etc.  Pension investment is the third pillar of the future economy.  As we all know, it has been two years since the beginning of domestic epidemic that has caused the economy to continue to decline, and the domestic poverty population has continued to expand. Many people have long been unable to pay pension social insurance premiums.  Wang Qishan’s saying that “people eat grass for three years” is no longer groundless. According to the Xinhua News Agency report, it is clearly stated that starting from September 1, 2021, employees need to re-certify their retirement qualifications within one year of retirement, otherwise pension payments will be automatically suspended.  This move means more bureaucracy and corruption, more retaliation and bribery, more unjust cases and petitions, but in the face of the CCP, which is about to perish, the country’s thieves have been desperate.
 
-**嘉宾**：小福利、城堡
+Reference link:
 
-[GTV直播视频链接](https://gtv.org/video/id=6141d3a4751e4f2b0e5335f3)
+[http://www.news.cn/fortune/2021-09/15/c\_1127862902.htm](http://www.news.cn/fortune/2021-09/15/c_1127862902.htm)
 
+[https://new.qq.com/omn/20210807/20210807A07UCT00.html](https://new.qq.com/omn/20210807/20210807A07UCT00.html)
 
+Proofread / Posted by: Brain Sanitizer
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+**For more information, follow us **
 
-**板块1–国际财经**
+[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
 
-1. 中共国在美上市公司因为奥巴马访华期间签署备忘录–允许按照中共国法律可以不披露公司信息也能在美上市。导致中共国企业在美股市大肆圈钱敛财，深度参与美国市场，近期美国证监会主席强调“中共国公司需要打开他们的账本”，表明美国逐步在推进与中共国的经济脱钩。
-2. 华尔街领袖闭门会见中共国官员（巴里克黄金公司-约翰桑顿、黑石-史蒂芬施瓦兹曼、高盛-约翰沃尔德隆、前人民银行行长-周小川、证监会-方星海、人民银行行长-易刚、银保监会-郭树清）。结合美国证监会主席近期表态，推断闭门会议谈判并不顺利。
-3. 回顾G-TV投资事件：“九指妖”VOG平台当时已被大量渗透，让战友签署非法文件，无毛豆豆等人假装成受害者向SEC举报，调查期间SEC为调查此案件已经更换三波人手。但最终还是爆料革命大胜，没有任何违法违规。
-
-
-**板块2–国际政治**
-
-1. 美国联席会议参谋长米勒被爆出2020-1-6限制川普总统动用核武权利，并与中共军方高层李作成秘密通话谈论川普可能动用核武攻击中共国。川普发声明明确并没有计划动用核武，强调如果新闻属实米勒的行为属于叛国。
-2. 在未能完全确定米勒事件真假的情况下，各大媒体争相报道，对于美方的影响在于动摇美军军心、向外传递美国国防安全存漏洞。报道者为“水门事件”记者，各媒体大肆宣传说明背后有政治势力在推动。报道中涉及积极反共人士（班农、纳瓦罗等），目的是冲“爆料革命”而来。
-3. 中共在解放台湾问题上对国际策略–以核威慑作为国际谈判筹码，显示肌肉震撼对手表现收复决心。
-4. 自川普时期2018开始贸易战受损最大的是沿海小制造业和小企业，中共高层利用香港的金融优势在困难时期持续向外转钱。
-5. 英国前段时间大量媒体揭露中共在英国进行企业渗透、恶意收购、窃取数据，中共随意撕毁当年签署的“一国两制”条约，随便更换大使（前任驻英大使刘晓明奉行疯狂叫嚣模式）。现任中共国驻英大使郑泽光被禁止进入英国议会。英国对中共国态度变成不信任、不喜欢甚至是敌对关系。英国政府及时听取接收“爆料革命”关于病毒真相，在疫苗问题上停止推进疫苗护照。
-
-
-**板块3–军事**
-
-中共国违背承诺在南海填海造军事基地，美国为确保其商用船支能自由航行，在南海区域增加海军的存在感，中共国用军舰接近阿拉斯加作为回应，巧妙避开美国军事力量部署更完整的夏威夷地区。根本原因–军事实力不对等。
-
-**板块4–中共病毒**
-
-美国NIH因发现新冠病毒数据莫名被删除，要求审查其基因档案的处理方式，配合布莱克本等议员的持续施压要求中共国研究员解释删除武汉实验室数据的行为，推断美方发现了“蛛丝马迹”。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*听写：call me uncle|校对: 乐禧禧*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+![This image has an empty alt attribute; its file name is Gnews-Logo-39.png](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-39.png)
 
 0

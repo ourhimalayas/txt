@@ -2,22 +2,22 @@
 ---
 
 
-## 台军成功进行37号汉光军演!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534724/)
+## 数千纽约教师游行,反对强制&#8221;毒针&#8221;政令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534744/)
 
-责任编辑：云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-165.png)
-台湾中央社报导，台湾军队启动了年度的汉光37号演习，时间从13日至17日。 目的检视过去一年来，台湾军队在防卫中共攻台上的战略及战术训练成效。
+栏目记者/责任编辑：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-166.png)
+每日邮报消息，周一，数千名抗议强制接种疫苗的教师游行队伍, 穿过布鲁克林大桥抵达纽约市政厅附近, 抗议者们高呼口号谴责拜登总统的疫苗政策, 在曼哈顿 福利广场举行集会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide2-12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-8.jpeg)
 
-15日清晨，在模拟屏东军用机场被炸毁的演习假象下，台湾空军各种战机及预警机，分别在台湾最南端的”佳冬” 备用机场演练了紧急降落、加油、紧急起飞等战术项目。 与此同时,台湾海军船舰也紧急出港，由扫雷舰开辟安全航道，舰队驶向指定地点集结，演练港口遭轰炸而避免丧失作战能力。 16日台军将在屏东地区举行三军联合反登陆演习。 此次汉光37号演习，台军的雄风二型/三型反舰导弹机动发射组也将首度参与实弹演习并验证作战效能。
+该示威是由反对疫苗强制政策的教师团体发起的，因为纽约市长要求公立学校教师在 9 月 27 日之前至少接种一剂 疫苗，否则将被解雇。同时,纽约市周一也开始在酒吧、餐馆和健身房实施疫苗强制政策。
 
-汉光演习本是台湾军队每年的例行军演，但近年来的演习更像是大战前的预演和自卫能力的检验, 毕竟中共大兵压境, 武力侵台随时都可能发生。
+目前世界各地对疫苗强制政策的抗议示威活动此起彼伏，因为这一政策在侵犯人权的同时,已经开始呈现撕裂社会甚至家庭的迹象, 并且随着疫苗的副作用逐渐呈现，必定将对全球政治/经济/社会格局, 产生连锁性的影响。
 
 （本文仅代表作者观点）
 
-参考链接：[漢光演習 F-16V、幻象2000等戰機首度成功降落佳冬戰備道\[影\]](https://www.cna.com.tw/news/firstnews/202109155001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[Furious teachers protesting mandatory vaccinations march across Brooklyn Bridge chanting ‘F\*\*\* Joe Biden’: Businesses reel against new NYC indoor vaccine rule crackdown amid Delta infections flattening](https://www.dailymail.co.uk/news/article-9990027/NYC-teachers-protesting-mandatory-vaccinations-chant-F-Joe-Biden-Brooklyn-Bridge-march.html?ito=push-notification&amp;ci=4X76GW4XYz&amp;cri=6RGj7Q7sux&amp;si=39450485&amp;xi=d249a8b2-b9a9-4ec5-973a-d15d46c8a95e&amp;ai=9990027)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -31,6 +31,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-
-
 0
