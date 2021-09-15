@@ -2,21 +2,22 @@
 ---
 
 
-## 盗国贼黑手伸向墙内百姓养老金
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534682/)
+## 数千纽约教师游行,反对强制&#8221;毒针&#8221;政令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534744/)
 
-栏目记者/责任编辑：捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-164.png)
-中共新华社9月15日消息, 中共国有银行旗下的理财子公司 ,已经获批开展养老理财产品，目前已达11只公募养老基金新品步入发行期。表明中共通过数年布局，开始把黑手伸向百姓的养老钱。
+栏目记者/责任编辑：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-166.png)
+每日邮报消息，周一，数千名抗议强制接种疫苗的教师游行队伍, 穿过布鲁克林大桥抵达纽约市政厅附近, 抗议者们高呼口号谴责拜登总统的疫苗政策, 在曼哈顿 福利广场举行集会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-22.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-8.jpeg)
 
-公开信息显示，已有“多路资金”正紧盯墙内养老投资基金. 目前中共参与公募养老基金发行的公司分别是华夏安盈、兴证全球、嘉实安康、泰达宏利等，而且中共要把养老金投资作为未来经济的第三支柱。众所周知，国内疫情导致经济持续下滑已两年，国内贫困人口不断扩大，很多人早已无力缴纳养老社保费, 王岐山所说 “老百姓吃三年草”已经不是空穴来风。新华社报道中明确告知：自2021 年 9 月 1 日起，职工退休一年内需要重新进行退休资格认证，否则养老金将自动暂停发放。 此举意味着将产生更多的官僚和腐败,更多的打击报复和行贿受贿,更多的冤案和上访, 但面对即将亡党亡国的中共, 盗国贼已经不顾一切。
+该示威是由反对疫苗强制政策的教师团体发起的，因为纽约市长要求公立学校教师在 9 月 27 日之前至少接种一剂 疫苗，否则将被解雇。同时,纽约市周一也开始在酒吧、餐馆和健身房实施疫苗强制政策。
+
+目前世界各地对疫苗强制政策的抗议示威活动此起彼伏，因为这一政策在侵犯人权的同时,已经开始呈现撕裂社会甚至家庭的迹象, 并且随着疫苗的副作用逐渐呈现，必定将对全球政治/经济/社会格局, 产生连锁性的影响。
 
 （本文仅代表作者观点）
 
-参考链接：**[公募养老FOF“七剑齐发” 多路资金聚焦养老理财](http://www.news.cn/fortune/2021-09/15/c_1127862902.htm)**
-[9月份起，在职和退休人员都要注意，你的养老金还将有2个变化](https://new.qq.com/omn/20210807/20210807A07UCT00.html)
+参考链接：[Furious teachers protesting mandatory vaccinations march across Brooklyn Bridge chanting ‘F\*\*\* Joe Biden’: Businesses reel against new NYC indoor vaccine rule crackdown amid Delta infections flattening](https://www.dailymail.co.uk/news/article-9990027/NYC-teachers-protesting-mandatory-vaccinations-chant-F-Joe-Biden-Brooklyn-Bridge-march.html?ito=push-notification&amp;ci=4X76GW4XYz&amp;cri=6RGj7Q7sux&amp;si=39450485&amp;xi=d249a8b2-b9a9-4ec5-973a-d15d46c8a95e&amp;ai=9990027)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

@@ -2,33 +2,60 @@
 ---
 
 
-## 数千纽约教师游行,反对强制&#8221;毒针&#8221;政令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534744/)
+## 给“习一神捎个话”——国际黑暗势力伙同其中共代理人密切掌握习近平的行踪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534867/)
 
-栏目记者/责任编辑：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-166.png)
-每日邮报消息，周一，数千名抗议强制接种疫苗的教师游行队伍, 穿过布鲁克林大桥抵达纽约市政厅附近, 抗议者们高呼口号谴责拜登总统的疫苗政策, 在曼哈顿 福利广场举行集会。
+栏目记者/责任编辑：Zion文恩
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-8.jpeg)
 
-该示威是由反对疫苗强制政策的教师团体发起的，因为纽约市长要求公立学校教师在 9 月 27 日之前至少接种一剂 疫苗，否则将被解雇。同时,纽约市周一也开始在酒吧、餐馆和健身房实施疫苗强制政策。
 
-目前世界各地对疫苗强制政策的抗议示威活动此起彼伏，因为这一政策在侵犯人权的同时,已经开始呈现撕裂社会甚至家庭的迹象, 并且随着疫苗的副作用逐渐呈现，必定将对全球政治/经济/社会格局, 产生连锁性的影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+9月14日，郭文贵先生在其直播中，揭露了国际黑暗组织伙同其中共代理人——王岐山、孟建柱等密切掌握习近平一切行踪的真相。
+
+郭先生说，早在2017年2月份，他已知晓习近平即将访美的情报。习访美期间，未在白宫居住，而是直奔川普总统的海湖庄园。由于安保等因素，习近平也未下榻海湖庄园，而是下榻“水棕榈海滩假日酒店”。中共领导人历来重视其外出的安保事宜，但习近平当局在此问题上可谓登峰造极——波音737、747、767飞机各两架，几架运输机装载他的汽车、直升机。下榻酒店更是在一个月前被清空、排查。然而，习近平和其妻子彭丽媛女士在“水棕榈酒店”的对话和行踪，被全程录音、录像；并引用彭丽媛曾在水棕榈酒店向习近平抱怨“海湖庄园设施落后、饭菜难吃”的一段对话，作为佐证。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-5.jpg)图片来源： 网络
+郭先生呼吁：习近平应质问中央警卫局：这段只有当事二人所知的对话，为何会被录音？怎样录的音？又是怎样流传出来的？为什么中央警卫局敢给中共总书记的下榻之处偷安装秘密摄像头，并将内容整理成文字报送给美国？令人震惊的是，时任美国总统川普对此竟然也毫不知情！
+
+此外，在2017年访英期间，尽管有重重安保，习近平的行踪照样被全程录音、录像。郭先生爆料：有个组织一直都在收集习近平及其家人的行踪和隐私。在中共二十大前，这些录像、录音都会被放出来。是什么组织由此力量部署此事？谁在暗中指挥？中国内部，是否有人比王岐山、孟建柱等人更关注习近平及其家人的行踪？而这种针对习近平及其家人的秘密组织，中共不止一个，他们不会让习近平在二十大连任；王岐山、孟建柱及其背后的国际黑暗势力，习近平招架不住。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-49.jpg)图片来源： 网络
+郭先生表示，中共内部历来相互倾轧、监听监视。在中共穷途末路之际，中共内部的绞杀会加快灭共的进程。但我们不希望中国走向三国、或五代十国那样的动荡年代。我们希望如同定向爆破，将中南坑里的杂碎及其背后的国际邪恶势力一网打尽，还中国人民真正的自由和尊严。
+
+参考链接：
+
+[2021年9月14日郭先生直播速记](https://gnews.org/zh-hans/1532931/)
+
+[2021年9月14日文贵直播：SEC和解协议是我们决胜，终结性的，是SEC史上最大的案例，最大的保护了投资者的利益；老椅子一定要做的三件重要的事；文贵给习主席捎话：有一个组织一直在搜集习的隐私与行踪，20大以前都会被放出来；开启“以苗灭共”新阶段……](https://gtv.org/video/id=614095fb751e4f2b0e5254a0)
 
 （本文仅代表作者观点）
 
-参考链接：[Furious teachers protesting mandatory vaccinations march across Brooklyn Bridge chanting ‘F\*\*\* Joe Biden’: Businesses reel against new NYC indoor vaccine rule crackdown amid Delta infections flattening](https://www.dailymail.co.uk/news/article-9990027/NYC-teachers-protesting-mandatory-vaccinations-chant-F-Joe-Biden-Brooklyn-Bridge-march.html?ito=push-notification&amp;ci=4X76GW4XYz&amp;cri=6RGj7Q7sux&amp;si=39450485&amp;xi=d249a8b2-b9a9-4ec5-973a-d15d46c8a95e&amp;ai=9990027)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龍
-校对/发稿：谐趣园
+终审：  Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
 0
