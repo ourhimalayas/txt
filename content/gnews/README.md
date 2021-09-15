@@ -13,20 +13,20 @@
 
 ---
 
-### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/2/README.md)
- ` HimalayaRussia`
-
-### [Thailand will vaccinate students from 12 to 18 years old with Pfizer vaccine from October](/content/gnews/3/README.md)
+### [After three doses of vaccine, Israeli outbreak peaks again](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/4/README.md)
- ` HimalayaRussia`
+### [U.S. soldiers sued the Department of defense and federal health agencies over mandatory military vaccination orders](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
 
-### [GT Online: The CCP Ambassador Banned from Entering UK Parliament](/content/gnews/5/README.md)
+### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/5/README.md)
+ ` HimalayaRussia`
 
 ### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

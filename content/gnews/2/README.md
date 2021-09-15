@@ -2,35 +2,53 @@
 ---
 
 
-## 联邦法官暂停纽约州强制接种疫苗行政令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1535281/)
+## U.S. soldiers sued the Department of defense and federal health agencies over mandatory military vaccination orders
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535299/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+Translated by: MOS Gourmet Team – Chevalier
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F-1.jpg)publishedreporter.com
-一名纽约州联邦法官于周二（9月14日）暂停了纽约州强迫医务工作者接种疫苗的行政命令。此前一天，17名医务工作者联合起诉纽约州政府，原因是州政府剥夺了人民接种疫苗时的“宗教豁免权”，医务工作者们认为州政府的荒唐行为侵犯了宪法赋予人民的权利。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-联邦法官责令纽约州必须在9月22日之前对乌蒂卡（Utica）联邦法院的法律诉讼案作出回应。若纽约州政府持有异议，联邦法院将于9月28日召开口头听证会。
 
-此事缘起于，纽约州8月28日所颁布的一项“强制接种疫苗”的行政令，规定“所有医院和疗养院的医护人员在9月27日前必须完成首次疫苗接种”。纽约州长凯西·霍楚尔（Kathy Hochul）认为“提高全州疫苗接种率，是保护纽约州人民、抗击Delta变种病毒的最好方法”。根据这个逻辑，全民都应该而且必须接种疫苗。
 
-纽约市长白思豪表示从9月13日纽约市将实行“疫苗通行证”，这就是对美国总统拜登上周四（9月9日）签发“强制接种疫苗”行政令的积极回应。拜登要求从9月20日起所有联邦行政人员强制接种中共病毒疫苗，违反者将面临制裁或处罚。从美国总统拜登、纽约州长霍楚尔直到纽约市长白思豪都一致认为“接种疫苗”是有效的，甚至认为接种中共病毒疫苗是公民的责任。[1]
 
-真相是，中共病毒疫苗对身体会造成不可逆转的危害。幸好，有很多美国百姓和专业医师们清楚知道中共病毒疫苗之危害或者为了捍卫宪法赋予的人权，进入9月份，全美各地掀起了绵延不绝的抵制疫苗抗议活动和愈演愈烈的辞职潮，这令美强推疫苗的行政官员们越来越尴尬。
 
-例如，刘易斯郡综合医院（Lewis County General Hospital）妇产科6名医护果断辞职，7名在职医护表示绝不接种，专业医学人员大量流失，该医院不得不宣布妇产科“停止运转”[2]。当专业人士拒绝接种疫苗时，所带来的示范效应会引起美国人民的思考。他们拥有普通人所不具备的专业素养，就像是在队伍最前面领跑的第一方阵。当第一方阵停下前行的脚步，紧随其后的其他人至少会询问为什么他们停下了脚步？
+According to a report by [uncoverdc.com](https://uncoverdc.com/2021/09/07/staff-sergeants-file-class-action-suit-against-covid-mandate/) on September 7th, US Army Sergeant Daniel Robert and US Marine Corps Sergeant Holly Mulvehill filed a lawsuit against three federal agencies on August 17, questioning the enforcement of the military covid vaccination plan.
 
-又例如，美空军12名F-22 飞行员接到“必须接种疫苗，否则面临军事处罚”的命令后，当日立即决定退役。与此同时，16名B-52轰炸机的机组员也毫不犹豫选择离职。此事在美军内部造成影响，可谓是有着“一石激起千层浪”的效果。这标志着，美军最精锐的飞行员队伍中识得中共病毒疫苗真相的军人，已经不信任美国政府、也不愿意听命于现任美军高级将领的命令。结果是美军的军事实力随着强制疫苗政策的推广而被大幅削弱，不抗命真都接种了疫苗，美军会因疫苗毒害而溃不成军，抗命不接种疫苗退役的长期看倒保护住了一批精锐。
+The lawsuit is directed against: the Ministry of National Defense, the Ministry of Health and Human Services, and the Food and Drug Administration, requesting exemptions for military personnel who have previously been infected with the coronavirus and have been naturally immunized against the covid vaccine.
 
-美国现任白宫政府至少在中共病毒这件危害国家安全的事情上至今未作出有利于国民的正确决定。与之相比，英国政府在9月13日作出取消疫苗护照的决定，可谓是“急刹车猛调头”的政策大逆转。在政策制定上，外界普遍认为美英就是“萧规曹随”的关系。但此次就疫苗美英两国政策已完全背道而驰。毋庸置疑，英国政府选择的是正确的方向，而美国现任政府所为则令整个国家处在持续的撕裂和迷茫中。
+Secretary of Defense Austin issued a memorandum on August 25, ordering all troops to be vaccinated compulsorily from September 15. The Navy became the first service to be enforced with a time limit for vaccination, and the Army and Air Force were given deadlines immediately. According to Army Regulation 40-562 (“AR 40-562”), based on serological tests or evidence of immunity, military personnel who have acquired natural immunity after being infected with the virus have the right to apply for medical exemption. On August 30, the plaintiff immediately asked the judge in the Colorado region to issue an emergency temporary restraining order to prevent the Department of Defense from vaccinating natural immunized soldiers, stating that the vaccine would cause serious harm to their immune bodies. On September 1, the judge rejected the plaintiff’s request.
 
-无论怎样，好消息是至少纽约州联邦法官这次作出了正确的判断和选择，禁止政府强制人民接种疫苗。正邪斗争正酣，希望能挽救一大批不明真相、被虚假主流媒体欺骗的美国人民的生命！
+It is reported that the trial date has not yet been set for the lawsuit. Soldiers are the elite of a country, and their physical health is the fundamental guarantee for national security and national interests. Under the current vaccine injunction situation, American soldiers are fully aware of the dangers of vaccines and have taken up legal weapons to defend their rights. As Mr. Miles Guo stated before, the US government will gradually wake up, only when American soldiers begin to resist.
 
-参考链接：
+(This article represents the views of the author only)
 
-[1] [COVID-19 mandate: New York judge temporarily blocks medical worker directive – FoxNews – 09/15/2021](https://www.foxnews.com/health/judge-blocks-medical-worker-vaccine-mandate-in-ny-state)
+**Original article:**
 
-[2] [美疫苗令致辞职潮 纽约1医院妇产科停摆 – 大纪元 – 09/13/2021](https://www.epochtimes.com/gb/21/9/13/n13230234.htm)
+[美国士兵就军队强制疫苗接种令起诉国防部和联邦卫生机构 – GNEWS](https://gnews.org/zh-hans/1532612/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
+
+*Proofread/Posted by: Xiaolunn*
+
+
+
+**More information, follow us **
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**New York MOS Himalaya ｜Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+**[Free to Join New York MOS Himalaya｜Discord](https://discord.gg/ChqXAHd)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
 0
