@@ -2,35 +2,51 @@
 ---
 
 
-## 谷歌因滥用市场主导地位被韩国罚款1.77亿美元
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1535197/)
+## Thailand will vaccinate students from 12 to 18 years old with Pfizer vaccine from October
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535291/)
 
-**撰稿：日本东京方舟农场 北极**
+Translated by: MOS Gourmet Team – Chevalier
 
-据金融时报9月14日报导，因为谷歌公司(Google)滥用其在移动操作系统市场的主导地位，韩国公平交易委员会(Korea Fair Trade Commission)对其处以2070亿韩元（合1.77亿美元）罚款。这是韩国首次对谷歌的反垄断行为处以罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-监管机构指责谷歌利用其强大的议价能力遏制竞争，重点关注了该互联网集团要求智能手机制造商签署的“反碎片化协议”——这是应用商店许可协议的先决条件——并要求制造商在智能手机开发过程中使用谷歌的最新操作系统。
 
-根据“反碎片化协议”，设备制造商被禁止在手机、智能手表和智能电视上安装修改过的软件，即所谓的“Android分叉”。韩国公平交易委员会表示，这种做法帮助谷歌巩固了其在移动操作系统市场的主导地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ACK20210914002700881_01_i_P4.jpg)图片来自于网络
 
-谷歌为全球约70%的智能手机提供技术支持。韩国公平交易委员会表示，由于谷歌的垄断，韩国设备制造商三星电子(Samsung Electronics)和LG电子(LG Electronics)难以推出基于Android分支的智能手表和音响。
 
-这家韩国反垄断监管机构当天还表示，被称为“反谷歌法”的《电信业务法》修正案已于当天起正式施行，谷歌有可能在韩国遭遇一系列监管处罚。韩国公平贸易委员会目前仍在调查谷歌其他三种涉嫌反竞争的行为，包括限制Play Store应用市场、应用内购买和广告市场的竞争。该法案允许手机用户绕过谷歌和苹果等应用程序商店直接向软件开发商支付应用程序费用。
+Thailand’s Ministry of Education and Ministry of Health have approved and announced the Pfizer vaccination program for students aged 12 to 18 starting from October. The program covers nearly five million students in public and private schools. Based on parental consent and voluntary principles, the program will vaccinate students firstly in the most strictly controlled 29 provinces. The new semester in Thailand in November will be the beginning of more vaccine disasters.
 
-韩国已成为全球首个对谷歌和苹果(Apple)应用商店收取的丰厚佣金发起攻击的国家，该委员会的罚款也是韩国对全球科技公司开出的最大罚单之一，目的是允许本土智能手机制造商定制谷歌的Android移动操作系统。
+At the end of June, Thailand’s CDC and Pfizer signed a preliminary contract with the intention to purchase 20 million doses of Pfizer’s covid vaccine and an additional 10 million doses at the end of July. The CDC cooperates with the school to establish a vaccination center in the school, and the contracted Pfizer vaccine will cover this target group. The Chinese Communist Party’s Kexing vaccine is planned to be used in children over 3 years old. The covid vaccine produced by Oxford AstraZeneca in Thailand will also be shipped to other Southeast Asian countries. In August, the Ministry of Health of Thailand first recommended that children of that age with chronic diseases be vaccinated. Now the vaccine plan is fully rolled out. The Chinese government uses the covid vaccine to solve the problems of the old the weak the sick, and the disabled. So does Thailand.
 
-*注：本文仅代表作者观点，与 Gnews无关*
+According to the Whistleblowers’ Movement intelligence, Thailand is a disaster area corrupted by CCP’s blue-golden program. The Chia Tai Group is backed by the Jiang family and is a shareholder of Kexing and Pfizer. Early Kexing vaccine was questioned due to quality problems, and its promotion in Thailand was frustrated. The Thai government avoided the edge and purchased Pfizer vaccines with CCP background for students and government workers. No matter which covid vaccine, it cannot prevent the virus, and will bring serious side effects to the body, even life-threatening. Hydroxychloroquine, ivermectin, artemisinin, and etc. are the drugs that prevent and treat the covid. We hope that the parents of students in Thailand can learn the truth as soon as possible and refuse to vaccinate their children.
 
-*参考链接：*
+(This article represents the views of the author only)
 
-[谷歌因滥用市场主导地位被韩国罚款1.77亿美元](https://www.ftchinese.com/interactive/48082?exclusive)
+**Original article:**
 
-[韩国“反谷歌法”正式施行](https://cn.yna.co.kr/view/ACK20210914002700881)
+[泰国10月起将为12至18岁学生接种辉瑞疫苗 – GNEWS](https://gnews.org/zh-hans/1532556/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+*Proofread/Posted by: Xiaolunn*
+
+
+
+**More information, follow us **
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**New York MOS Himalaya ｜Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+**[Free to Join New York MOS Himalaya｜Discord](https://discord.gg/ChqXAHd)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
 0

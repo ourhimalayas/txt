@@ -2,29 +2,19 @@
 ---
 
 
-## 香港囚权组织“石墙花”被迫解散
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1535235/)
+## GT Online: The CCP Ambassador Banned from Entering UK Parliament
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1535285/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+Written by: 西枫westca
 
-9月14日，由曾参与占中运动的前议员邵家臻创办的囚权组织“石墙花”，因迫于香港政府的压力，在社交媒体宣布解散。其在香港的办事处也停止运营。
-邵家臻当日在社交媒体上表示，世界上没有无缘无故的结业，苦苦经营了九个月，虽说见步行步，步步为营，但每一步确实十分沉重，过程中获得许多祝福和支持，才能走到今天，真的要多谢上天，多谢香港人，多谢石墙花同仁，多谢自己。
-他在接受采访时说道，我们只是夏天给一杯凉水，冬天给一杯暖水，一个最人道的工作，可惜今天已经走不下去，也不知道在囚人士日后能得到什么支持。
+Proofread by: Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-1.png)Image Source：Getty photo
+According to Global Network on September 15th, Zeguang Zheng, the new Chinese ambassador to the United Kingdom, originally received an invitation from the British Commons to attend a reception and deliver a speech on an open balcony of the house of the Parliament. But the day before the reception began, the Speakers of the House of Lords and House of Commons of the British Parliament made a decision at the same time to prohibit the CCP ambassador from entering the British Parliament.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/thumbnail_d-1427-800x450-1.jpg)图片来自于网络
+China imposed sanctions on nine British politicians, lawyers and an academic in March for spreading “lie and false information” about the treatment of Uighur Muslims in the western part of the country. Seven MPs filed a complaint with the Parliament: “It would have been an insult to Parliament and to the principle of free speech upon which democracies are founded if the official representative of a regime which had just banned Parliamentarians from entering Chinese territory because they had stood up in the House of Commons to call out China’s appalling human rights abuses”.  The Speaker of the House of Commons, Lindsey Hoyle, said that I think that when China imposes sanctions on some of our members, It is inappropriate for the Chinese ambassador to meet at our workplace in the House of Commons . “The Speaker of the House of Lords McFall said in a statement, “The speakers of both houses agreed that, taking into account the current sanctions on members, this China meeting should be held elsewhere. “
 
-日前，香港保安局局长邓炳强不点名指责有组织在狱中散播危害国家安全的信息，垄断监狱物资，有敛财嫌疑，还有在押人士与监狱外人士企图建立势力、通风报信，包括利用议员等身分进行探访以传达讯息。
-邵家臻之后响应称，物资均为免费赠送物资，不存在敛财或垄断物资。“石墙花”会反省和调整工作避免误会，但会继续支持在囚人士。
-据石墙花网页数据显示，石墙花创办人邵家臻在2019年因占中运动入狱，一年后成立石墙花，为所有因社会运动被捕的人士（不论罪名）或有关人士提供各种支持，包括还押物资支持、情绪支持、个案跟进、以及福利申请等。
+Recently, countries around the world have begun to say “no” to the CCP, including the United States recently stated that it is considering changing the name of Taiwan’s representative office in the United States to the “Taiwan Representative Office.” These actions greatly angered the CCP. Regarding the prohibition of the CCP’s ambassador from entering the British Parliament, the spokesperson of the CCP can only say that this decision reflects the narrow mentality of some people in the UK, and we despise and strongly condemn it.
 
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[https://www.facebook.com/wallfarelimited/?ti=as](https://www.facebook.com/wallfarelimited/?ti=as)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**Source： **[补壹刀：英国议会不让中国大使进门，谁撺掇的？ (huanqiu.com)](https://world.huanqiu.com/article/44mU8nE2fcx)
 
 0

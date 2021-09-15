@@ -13,38 +13,38 @@
 
 ---
 
-### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/1/README.md)
- ` 日本东京方舟农场`
+### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [法国：未接种疫苗的医护人员面临停职](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
+### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/2/README.md)
+ ` HimalayaRussia`
 
-### [谷歌因滥用市场主导地位被韩国罚款1.77亿美元](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
+### [Thailand will vaccinate students from 12 to 18 years old with Pfizer vaccine from October](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
 
-### [非洲大草原的厮杀正在人间上演](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
+### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/4/README.md)
+ ` HimalayaRussia`
 
-### [香港囚权组织“石墙花”被迫解散](/content/gnews/5/README.md)
- ` 日本东京方舟农场`
+### [GT Online: The CCP Ambassador Banned from Entering UK Parliament](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [关于疫苗：文贵先生2020.3.23-2021.9.12直播集锦](/content/gnews/6/README.md)
+### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [关于疫苗：文贵先生2020.3.23-2021.9.12直播集锦](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年9月15日 文贵先生盖特 3](/content/gnews/7/README.md)
+### [2021年9月15日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 2](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/9/README.md)
+ ` HimalayaRussia`
 
-### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/9/README.md)
+### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [法国：未接种疫苗的医护人员面临停职](/content/gnews/10/README.md)
+### [法国：未接种疫苗的医护人员面临停职](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
-
-### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
 
 ### [米利秘密电话通共事件继续发酵](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -85,47 +85,47 @@
 ### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [《GTV新闻访谈》重要提醒：YouTube备用账号](/content/gnews/25/README.md)
+### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [《GTV新闻访谈》重要提醒：YouTube备用账号](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [爆料革命开启“以苗灭共”的新纪元](/content/gnews/26/README.md)
+### [爆料革命开启“以苗灭共”的新纪元](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [20万亿美元中共盗国资产——三股势力的角力战场](/content/gnews/27/README.md)
+### [20万亿美元中共盗国资产——三股势力的角力战场](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [给“习一神捎个话”——国际黑暗势力伙同其中共代理人密切掌握习近平的行踪](/content/gnews/28/README.md)
+### [给“习一神捎个话”——国际黑暗势力伙同其中共代理人密切掌握习近平的行踪](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [新冠疫苗损害法案进入二读辩论 已接种疫苗议员忧心忡忡](/content/gnews/29/README.md)
+### [新冠疫苗损害法案进入二读辩论 已接种疫苗议员忧心忡忡](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共为推行疫苗第三针造势](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [中共正在扩大在非洲的影响力](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
 
-### [抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/31/README.md)
+### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [福奇并未停止向中共研究机构提供资金](/content/gnews/32/README.md)
+### [福奇并未停止向中共研究机构提供资金](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国议会决定禁止中共国大使进入议会大厦](/content/gnews/33/README.md)
+### [英国议会决定禁止中共国大使进入议会大厦](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
 
-### [以色列用事实证明新冠疫苗实验是一个重大的失败](/content/gnews/34/README.md)
+### [以色列用事实证明新冠疫苗实验是一个重大的失败](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [研究：青少年男孩因疫苗引起的心脏问题比因病毒而住院的可能性高六倍](/content/gnews/35/README.md)
+### [研究：青少年男孩因疫苗引起的心脏问题比因病毒而住院的可能性高六倍](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0915](/content/gnews/36/README.md)
+### [DC每日热点0915](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [支付宝剥离贷款业务，用户数据将被国企控制](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [福建仙游疫情初判为德尔塔毒株](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -169,18 +169,18 @@
 ### [恒大财富暴雷，投资者抗议还钱](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
 
-### [零对冲对加密货币市场最新变化的更新（FW37）](/content/gnews/53/README.md)
- ` 纽约香草山MOS02`
-
-### [英国知名政评家认为习近平个人崇拜危害中共国](/content/gnews/54/README.md)
+### [支付宝剥离贷款业务，用户数据将被国企控制](/content/gnews/53/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年9月15日 文贵先生盖特 1](/content/gnews/55/README.md)
+### [福建仙游疫情初判为德尔塔毒株](/content/gnews/54/README.md)
+ ` 纽约香草山MOS01`
+
+### [零对冲对加密货币市场最新变化的更新（FW37）](/content/gnews/55/README.md)
+ ` 纽约香草山MOS02`
+
+### [英国知名政评家认为习近平个人崇拜危害中共国](/content/gnews/56/README.md)
+ ` 纽约香草山MOS01`
+
+### [2021年9月15日 文贵先生盖特 2](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [秘翻在线：中共国银行业对贵金属交易的恐惧导致限制相关个人业务](/content/gnews/56/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [亲共社交媒体的行动影响更多国家和平台，将CCP病毒归咎于美国](/content/gnews/57/README.md)
- ` 波士顿五月花农场`
 

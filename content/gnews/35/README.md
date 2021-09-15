@@ -2,32 +2,51 @@
 ---
 
 
-## 研究：青少年男孩因疫苗引起的心脏问题比因病毒而住院的可能性高六倍
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535059/)
+## 英国议会决定禁止中共国大使进入议会大厦
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1535074/)
 
-2021年09月15日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-4.jpg)网络图片
-**评论：**接种疫苗之后的心脏病风险竟高过了病毒感染本身，换句话说，亦即疫苗比病毒还毒。非但如此，这样的高风险竟然是发生在未成年人群体中。强推疫苗背后这股无形的力量，将其黑暗之手不分老幼伸向每一个平民百姓，而多少家长、教师在无知和恐惧之下轻信了疫苗救人的谎言，这也许是人类自有疫苗以来经历的最大荒谬。
+作者：纽约香草山农场 – 四季
 
-**摘要翻译：**加州大学（UC）的研究人员发现，青少年男孩患因新冠病毒疫苗引起的心脏问题的可能性是新冠病毒住院患者的6倍。
-
-加州大学的研究人员发现，在接种了疫苗的12至15岁男孩中，打完疫苗后，每百万人中有162例出现心脏病症状。同时，在感染新冠病毒以及因此住院的同一人群中，每百万人中出现了26.7例这样的病症。随后的风险比较显示，12至15岁的男孩因新冠疫苗出现心脏病病症的可能性是因病毒本身出现该病症的6.1倍。
-
-12至15岁的男孩在高风险及低风险新冠疫情期间仍有很大的心脏炎症和胸痛风险。在诸如2021年1月等高风险期，疫苗对青少年男孩造成心肌炎的风险下降到4.3。另一方面，在低风险期，如2021年6月，这种“心脏不良事件”的风险飙升至高达22.8。
-
-研究作者观察到，每百万人中有162例心肌炎的风险，“是他们研究的所有群体中最高的”。16至17岁的男孩患心脏问题的风险第二高，为每百万人94例。青少年女孩的心肌炎风险最低——16至17岁的女孩为每百万人13.4例，12至14岁的女孩为每百万人13例。
-
-原文链接：[https://pandemic.news/2021-09-14-study-teen-boys-more-likely-suffer-vaccine.html](Teenage%20boys%20six%20times%20more%20likely%20to%20suffer%20from%20heart%20problems%20caused%20by%20coronavirus%20vaccine%20than%20be%20hospitalized%20from%20covid)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[法广](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210914-%E8%8B%B1%E5%9B%BD%E8%AE%AE%E4%BC%9A%E5%86%B3%E5%AE%9A%E7%A6%81%E6%AD%A2%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E9%83%91%E6%B3%BD%E5%85%89%E8%BF%9B%E5%85%A5%E8%AE%AE%E4%BC%9A%E5%A4%A7%E5%8E%A6)9月14日报道，在中共今年3月底对多名英国议员实施制裁后，英国议会上下两院议长决定，反对中共国驻英国大使郑泽光周三访问英国议会。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/blob.jpg)图片来源：REUTERS – JASON LEE
+
+英国议会下院议长林赛在一份声明中说：“我定期与来自世界各国的大使会面，旨在与各国和议员建立持久的联系”。他说，“但我认为，当中共国对我们的一些议员进行制裁，我们仍然在议会等工作场所会见中共国大使是不合适的。”
+
+在英国与美国、加拿大和欧盟一起对四名侵犯维吾尔少数民族人权的中共国高级官员实施制裁几天后，今年3月，中共对批评其迫害新疆人权的9名英国人和4个实体，进行 “制裁”。被制裁者包括外交事务委员会主席汤姆·图根哈特（Tom Tugendhat）和前保守党领袖伊恩·邓肯·史密斯（Iain Duncan Smith）等著名议员。这些议员一直对中共的新疆人权问题提出尖锐批评。
+
+中共妄图在民主国家阻止言论自由，英国议会的这一举措是西方对中共战狼外交的一记有力的回击。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
+
+
 
 0

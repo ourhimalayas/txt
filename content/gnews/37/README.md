@@ -2,51 +2,32 @@
 ---
 
 
-## 支付宝剥离贷款业务，用户数据将被国企控制
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1535032/)
+## 研究：青少年男孩因疫苗引起的心脏问题比因病毒而住院的可能性高六倍
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535059/)
 
-作者：纽约香草山农场 – 七哩香
+2021年09月15日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-4.jpg)网络图片
+**评论：**接种疫苗之后的心脏病风险竟高过了病毒感染本身，换句话说，亦即疫苗比病毒还毒。非但如此，这样的高风险竟然是发生在未成年人群体中。强推疫苗背后这股无形的力量，将其黑暗之手不分老幼伸向每一个平民百姓，而多少家长、教师在无知和恐惧之下轻信了疫苗救人的谎言，这也许是人类自有疫苗以来经历的最大荒谬。
 
+**摘要翻译：**加州大学（UC）的研究人员发现，青少年男孩患因新冠病毒疫苗引起的心脏问题的可能性是新冠病毒住院患者的6倍。
 
+加州大学的研究人员发现，在接种了疫苗的12至15岁男孩中，打完疫苗后，每百万人中有162例出现心脏病症状。同时，在感染新冠病毒以及因此住院的同一人群中，每百万人中出现了26.7例这样的病症。随后的风险比较显示，12至15岁的男孩因新冠疫苗出现心脏病病症的可能性是因病毒本身出现该病症的6.1倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+12至15岁的男孩在高风险及低风险新冠疫情期间仍有很大的心脏炎症和胸痛风险。在诸如2021年1月等高风险期，疫苗对青少年男孩造成心肌炎的风险下降到4.3。另一方面，在低风险期，如2021年6月，这种“心脏不良事件”的风险飙升至高达22.8。
 
+研究作者观察到，每百万人中有162例心肌炎的风险，“是他们研究的所有群体中最高的”。16至17岁的男孩患心脏问题的风险第二高，为每百万人94例。青少年女孩的心肌炎风险最低——16至17岁的女孩为每百万人13.4例，12至14岁的女孩为每百万人13例。
 
+原文链接：[https://pandemic.news/2021-09-14-study-teen-boys-more-likely-suffer-vaccine.html](Teenage%20boys%20six%20times%20more%20likely%20to%20suffer%20from%20heart%20problems%20caused%20by%20coronavirus%20vaccine%20than%20be%20hospitalized%20from%20covid)
 
-据金融时报9月12日报道，中共要求支付宝剥离贷款业务，创建独立APP，同时将相关用户数据交给一个合资企业管理。此消息一经披露，意味着蚂蚁集团被叫停上市后，中共于今年4月对其提出的整改措施已接近落地。
+* * *
 
-![](https://gdb.voanews.com/7E370C4C-C8CC-42FA-B353-DC7A9AC227DA_cx0_cy10_cw0_w1023_r1_s.jpg)图片来源：路透社
-
-背靠超过10亿用户的支付宝APP，蚂蚁集团的贷款业务增长迅速，成为集团的第一大营收支柱，利润几乎占其半壁江山。而今，中共分拆其贷款业务并严加监管，蚂蚁集团的高杠杆率野蛮生长将不复存在。另外，在新成立的征信数据合资企业中，蚂蚁集团与浙江省旅游投资集团有限公司各持有35%的股份，而剩余的股份则由有政府背景的浙江电子口岸有限公司和杭州市金融投资集团等公司持有。这意味着中共通过国企完全控制了支付宝的用户数据。这也可以被看作是中共声势浩大的所谓“反垄断运动”的最新进展。
-
-中共对蚂蚁集团所属的阿里系的整肃，表面是反垄断和维护金融安全，实际是国进民退、保护极权统治的需要，也是中共内斗的角力场，更是盗国贼重新分配利益的“大手笔 ”。这不是结束，只要中共存在一天，所有的商业巨头和民营企业都将成为中共专政的牺牲品。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[中（共）国政府准备对蚂蚁集团动手术 把支付宝剥离出来](https://www.voachinese.com/a/China-will-break-alipay-from-ant-group-20210913/6224553.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
