@@ -2,16 +2,16 @@
 ---
 
 
-## 2021年9月14日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1534095/)
+## 2021年9月14日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1534144/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-9/14/2021 Miles Guo: A certain organization has been survelling Xi and collecting the private information of Xi, his wife Peng Liyuan, and his family, and this is the top secret of the world! This information is what Wang Qishan and Meng Jianzhu need the most.. Some of the video and audio recordings of Xi and Peng will be released before the 20th Party Congress
+9/14/2021 Miles Guo: I urged Hongkongers to quit social media platforms such as Facebook, Instagram, Telegram, Twitter, Google etc. This is because under the infiltration of the CCP, these companies are fully cooperating in providing personal information to the CCP. I promise to protect Hongkongers at all costs.
 
-9/14/2021 文贵直播：这些年来，有某组织在监控习，并收集他和彭丽媛两口子和家人的隐私，这是世界最高机密！王和孟是最需要这些信息的人；习和彭的一些视频和录音将在20大前被放出!
+9/14/2021 文贵直播: 文贵呼吁香港同胞们不要再使用Facebook、Instagram、Telegram、Twitter和Google等社交媒体。因为在共产党的渗透下，这些公司全面配合向中共提供个人信息。文贵先生承诺不惜一切代价保护香港同胞。
 
-[【2021年9月14日】文贵先生盖特原文](https://gettr.com/post/pb22zc80d9)
+[【2021年9月14日】文贵先生盖特原文](https://gettr.com/post/pb3c3xb0d1)
 
 **喜联盟Gnews编辑部**
 

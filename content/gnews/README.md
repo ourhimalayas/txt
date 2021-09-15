@@ -28,23 +28,23 @@
 ### [秘翻在线：香港政府正在罗织更多有关“违反”《国安法》的罪名](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月14日 文贵先生盖特 5](/content/gnews/6/README.md)
+### [2021年9月14日 文贵先生盖特 8](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月14日 文贵先生盖特 4](/content/gnews/7/README.md)
+### [2021年9月14日 文贵先生盖特 7](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月14日 文贵先生盖特 3](/content/gnews/8/README.md)
+### [2021年9月14日 文贵先生盖特 6](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [16岁少女接种辉瑞疫苗后出现神经系统症状](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [预防反封锁集会，周六维州警方关闭公共交通](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联邦法官阻止纽约州卫生工作者接种疫苗的授权](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [拜习第二次通话，讨论双方合作、避免冲突](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -67,65 +67,65 @@
 ### [林郑月娥承诺大力推动前海方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 中国与外界的联系正在被一一切断](/content/gnews/19/README.md)
+### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声| 中共疫情在福建爆发，莆田和厦门封城](/content/gnews/20/README.md)
+### [有声| 新加坡单日新增中共病毒感染人数上升](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声| 以色列卫生部长无意间承认疫苗护照是胁迫性的](/content/gnews/21/README.md)
+### [有声| 中国与外界的联系正在被一一切断](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声| 数字经济猛涨背后的缺陷](/content/gnews/22/README.md)
+### [有声| 中共疫情在福建爆发，莆田和厦门封城](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声| 基督徒如何看待“忠诚”与“背叛”](/content/gnews/23/README.md)
+### [有声| 以色列卫生部长无意间承认疫苗护照是胁迫性的](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [中共计划拆分蚂蚁金服旗下支付宝以分离其贷款业务](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [有声| 数字经济猛涨背后的缺陷](/content/gnews/24/README.md)
+ ` MOSREC`
 
-### [秘翻在线：大阪府知事仍未意识到疫苗的副作用](/content/gnews/25/README.md)
+### [秘翻在线： 不应该让你孩子打疫苗的13个理由](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：对抗拜登疫苗强制令 美国27个州将掀起法律大战](/content/gnews/26/README.md)
+### [秘翻在线：大阪府知事仍未意识到疫苗的副作用](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：参谋长联席会议主席通敌叛国？川普声明斥之为“假新闻”](/content/gnews/27/README.md)
+### [秘翻在线：对抗拜登疫苗强制令 美国27个州将掀起法律大战](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：港共政府以打击罪案为名强推电话卡实名制](/content/gnews/28/README.md)
+### [秘翻在线：参谋长联席会议主席通敌叛国？川普声明斥之为“假新闻”](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国公司5亿美元收购mRNA疫苗技术](/content/gnews/29/README.md)
+### [秘翻在线：港共政府以打击罪案为名强推电话卡实名制](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [三针疫苗过后，以色列疫情再现高峰](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：中共国公司5亿美元收购mRNA疫苗技术](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [瑞士信贷剔出艾未未](/content/gnews/31/README.md)
+### [巧取豪夺港人财富](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [瑞士信贷剔出艾未未](/content/gnews/34/README.md)
  ` Charlie`
 
-### [新书爆料：米利将军曾向中共承诺不会执行川普命令](/content/gnews/32/README.md)
+### [新书爆料：米利将军曾向中共承诺不会执行川普命令](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：美国证券交易委员会主席敦促参议院立法监管虚拟货币](/content/gnews/33/README.md)
+### [秘翻在线：美国证券交易委员会主席敦促参议院立法监管虚拟货币](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [币圈新闻动态：SEC和解后退回的款项不能直接退到喜交所个人账户](/content/gnews/34/README.md)
+### [币圈新闻动态：SEC和解后退回的款项不能直接退到喜交所个人账户](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [银河快讯：新生银行考虑反收购措施；日本被联合国点名农民扶持措施有害](/content/gnews/35/README.md)
+### [银河快讯：新生银行考虑反收购措施；日本被联合国点名农民扶持措施有害](/content/gnews/38/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [DC大中华时事：中共吹嘘自己是有本事的党](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [联邦法官阻止纽约州卫生工作者接种疫苗的授权](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [每日快报：参谋长联席会议主席米利将军与中共的秘密电话丑闻曝光](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -151,36 +151,36 @@
 ### [香港证券官员提议对加密货币交易实施更严格的监管](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [从1200亿美元巨额回扣看中共体制的滔天罪恶](/content/gnews/47/README.md)
+### [教育的目的是激发原创力](/content/gnews/47/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共福建莆田展开首轮全市全员检测](/content/gnews/48/README.md)
+ ` 儒为`
+
+### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/49/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](/content/gnews/50/README.md)
+ ` 英喜-粵語組`
+
+### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/51/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/52/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [墙内要闻汇编](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [意大利十六岁少女接种中共病毒疫苗十六小时后死亡](/content/gnews/54/README.md)
+ ` xiaobaige`
+
+### [从1200亿美元巨额回扣看中共体制的滔天罪恶](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥一周聊：数字人民币配合大湾区计划将埋葬美元？](/content/gnews/48/README.md)
+### [七哥一周聊：数字人民币配合大湾区计划将埋葬美元？](/content/gnews/56/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [16岁少女接种辉瑞疫苗后出现神经系统症状](/content/gnews/49/README.md)
+### [16岁少女接种辉瑞疫苗后出现神经系统症状](/content/gnews/57/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [国际要闻汇编](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [预防反封锁集会，周六维州警方关闭公共交通](/content/gnews/51/README.md)
- ` 墨尔本雅典娜农场`
-
-### [两千亿专项债堵不住中小银行窟窿，中共金融将随时崩溃](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本政府已经宣布，2022年起公共医疗保险将涵盖试管婴儿](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [两针疫苗接种者被感染,仍未引起日本的重视!](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [彩虹6无人机将亮相珠海航展，中共又借机秀肌肉](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲短信事件：病毒战中的堂吉诃德再迎挑战](/content/gnews/56/README.md)
- ` 走进澳洲`
-
-### [医院故事系列：医疗事故](/content/gnews/57/README.md)
- ` 墨尔本雅典娜农场`
 
