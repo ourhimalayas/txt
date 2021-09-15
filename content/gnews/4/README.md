@@ -2,37 +2,35 @@
 ---
 
 
-## DC每日热点0915
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1535037/)
+## The Los Angeles, California police filed a lawsuit against a compulsory vaccination order
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535186/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/09/86861BD5-C833-445F-9618-EFD022534678-scaled.jpeg)
-道琼斯指数 34678.13 ▲0.29%
-纳斯达克指数 15040.87 ▲0.02%
-WTI纽约原油CFD 72.876 ▲3.43%
-布伦特原油CFD 75.973 ▲3.22%
-美元兑人民币 1USD=6.432RMB
-美元兑港币 1USD=7.781HKD
-国际黄金 1796.22 美元/盎司
-全球CCP病毒感染人数 226,815,408 例
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
 
-1、朝鲜15日试射两枚弹道导弹 被指意在对美国施压
-2、为中共专制护航 香港将参与六四集会的民主派精英判刑
-3、美国国会正式就阿富汗撤军行动展开质询 忧虑未来如何应对中共挑战
-4、美军最高司令遭曝密通中共给定心丸 川普吁逮捕法办：这是叛国罪！
-5、美中达成一项协议，阻止缅甸军政府出席联大会议
-6、布林肯：美国不会取消对塔利班的制裁
-7、因制裁英国议员，中共驻英大使被禁进入英议会活动
-8、因涉嫌举报香港编辑，中文维基百科对7位中共国大陆编辑下达禁令
-9、华为疑渗透剑桥大学研究中心 英国政界批评学术界过份依赖中共国资金
-10、美国疫情趋缓，仍有2675完全接种美国人染疫身亡
-11、美特使重申对朝无敌意，希望平壤积极回应谈判提议
-12、抗衡中共施压，台湾经贸投资考察团将访问立陶宛、捷克、斯洛伐克
-13、欧盟或推“通全球”抗衡“一带一路”
-14、恒大评级遭降至“CC” 流动性似已枯竭或面折价出售
-15、接种新冠疫苗义务化：法国新规今天生效
-16、瑞士称不认可所有世卫批准的疫苗，英国阿斯利康、
-中共国科兴、中共国国药、俄罗斯卫星五号均不被认可
-17、佛州州长提警告 重罚强制疫苗接种行为
+**Translated by: MOS Translation Team- LaoSan**
+
+According to a report by the Guardian on September 14, police officers from the Los Angeles Police Department in California filed a lawsuit against the order of compulsory vaccination. The officers claimed that the law violated personal privacy and civil rights. According to the requirements of the Los Angeles government, in addition to approved religious or medical exemptions, other employees in the city must complete the Covid-19 vaccination before October 20. Last weekend, six Los Angeles police officers stated in a federal complaint that police officers used this order and threatened to “dismiss” police officers who refused to be vaccinated.  The mandatory covid-19 vaccination order has not only set off a wave of resistance in the Republican area, but now even the police officers in Los Angeles California, the headquarters of the Democratic Party, have clearly realized that the covid-19policy seriously violates human rights.  They must use legal weapons to defend their rights.
+
+References:
+
+[https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit?utm\_term=AutofeedHYPERLINK “https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit](https://www.theguardian.com/us-news/2021/sep/13/los-angeles-police-covid-vaccine-mandate-lawsuit?utm_term=Autofeed&amp;CMP=twt_gu&amp;utm_medium&amp;utm_source=Twitter)
+
+Edited by: Eglise Bell 圣母院钟声
+
+Posted by: Eglise Bell 圣母院钟声
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+
+**For More information, follow us **
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
 
 0

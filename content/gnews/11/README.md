@@ -2,33 +2,51 @@
 ---
 
 
-## 亲共社交媒体的行动影响更多国家和平台，将CCP病毒归咎于美国
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1534898/)
+## 福建仙游疫情初判为德尔塔毒株
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1535012/)
 
-翻译: 波士顿五月花 冲天一怒
-![](https://assets.gnews.org/wp-content/uploads/2021/09/亲共社交媒体的行动影响更多国家和平台，将CCP病毒归咎于美国.jpg)https://www.wionews.com/world/social-media-misinformation-campaign-in-support-of-china-extends-to-new-languages-countries-report-411799
-据路透旧金山报道：研究人员于周三表示，社交媒体支持中共利益的虚假信息宣传活动已扩展到新的语言和平台，甚至试图让人们在美国上街抗议。
+作者：纽约香草山媒体部 – 文扬四海
 
-安全公司 FireEye和 Alphabet谷歌的专家表示，该行动已于 2019 年被认定。存在数百个英文和中文账户，用于诋毁香港民主运动。虚假信息的宣传不断加强，已从推特，脸书和谷歌扩展至全球数十个网站的数千个用户名。
 
-专家表示，这种扩张表明中共的战略已经为俄罗斯多年惯用的宣传技巧给出了更深入的印证。有些新帐户出现在以前不属于中共重要宣传目标的国家，例如阿根廷。其他账户在世界各地都分布，但在俄罗斯或德国的占比很大。
 
-关于 COVID-19 的虚假信息一直是焦点。例如，社交网站 vKontakte、LiveJournal 和其他地方的俄语、德语、西班牙语和其他语言的帐号声称，CCP病毒最早出现在美国，早于中国，并且病毒由美国军方研发。多个俄语 LiveJournal 帐户使用相同的措辞：美国迪特里克堡是CCP病毒的来源。指向美国马里兰州德特里克堡实验室。除宣传CCP病毒的虚假信息，该组织的首要任务还包括批评中共国的吹哨人郭文贵先生及其盟友、前川普政府战略顾问班农先生，以及利用对反亚裔歧视的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
-“除了被大肆报道的典型的英文和中文虚假宣传外，我们还观察到了在美国和非美国平台上被广泛宣传的俄语、德语、西班牙语、韩语和日语内容，”FireEye在周三发表的一份报告中表示。许多帐户相互关联或使用相同的照片，这帮助了研究人员察觉到它们之间的关联。许多帖子与中共官方媒体的说法相呼应，并与中共政府的其他宣传工作一致。研究人员没有证据表明北京的特定部门或盟友参与其中。中共驻华盛顿大使馆不予置评。
 
-到目前为止，美国主要平台和其他地方的主要网络，如俄罗斯的 vKontakte中，大外宣帐户与真实用户的互动很少。FireEye 情报分析副总裁约翰·霍特奎斯特表示：“这些推文发送的对象都是一堆虚假伪造的账号。”
 
-有一些帖子敦促抗议者以示威的方式反对美国的种族主义。此外，他们还呼吁抗议者于 4 月在亿万富豪郭先生在纽约的家外集会，但几乎没有证据表明有人出现在了那里。
+据消息称，截至9月11日16时，福建莆田此轮疫情已经检测到24例核酸阳性患者，其中确诊病例6例，无症状感染者18例。 莆田市新闻办发布通告称，本次疫情相关病例基因检测的初步判定结果为德尔塔毒株。有相关人员表示，“这次疫情的规模不会太小”。为此，从9月11日起，仙游本地开始实行最严厉的防疫政策。中共卫生健康委也派出相关工作组指导疫情处置工作。
 
-（文章仅代表作者本人观点，与GNews 无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/49-2.jpg)视频截图
 
-新闻来源: [Pro-China social media campaign hits new countries, blames U.S. for COVID](https://www.reuters.com/world/pro-china-social-media-campaign-expands-new-countries-blames-us-covid-2021-09-08/)
+事实上，本次疫情彻底暴露出中共国所谓的“14+7”隔离管控措施已经失效。另外，中共的核酸检测准确性低，对变异病毒的测试结果可能显示假阴性。加之中共一向瞒报数据，可以推测这次突然爆出规模不小的疫情，或是实际疫情已然掩盖不住，或是内部斗争结果。
 
-* * *
+另一方面，报道中也提及，当地大多数人都已经接种过新冠疫苗。但据郭文贵先生爆料，接种过新苗疫苗的人群可能更容易感染变种病毒。目前防范新冠病毒的有效药物仍然是硫酸羟氯喹加锌，至于感染新冠病毒后，患者可以服用伊维菌素或青蒿素等药物进行治疗。希望更多的人能够看清真相，拒绝接种新冠疫苗，正确服用药物预防和治疗病毒。
 
-*素材来源：**Miles Guo*
+（本文仅代表作者观点）
 
-*编辑**&发布：jamie(文胤)*
+参考阅读：
+
+福建仙游疫情初判为德尔塔毒株，专家：“这次疫情规模不会太小”\_https://3g.163.com/dy/article/GJLCVN7T0514BE2Q.html
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
 
 0

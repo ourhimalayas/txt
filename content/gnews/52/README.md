@@ -2,16 +2,18 @@
 ---
 
 
-## CCP百年百罪 第十五集（61 &#8211; 64罪）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1534745/)
+## 西媒头条 — 第68期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1534862/)
 
-全国武斗
-取消高考
-阉割文化
-广西杀人吃人
+- 制作：蚂蚁兄弟
 
-【CCP百年百罪】第十五集（61 – 64罪）
 
-喜马拉雅华盛顿DC农场出品
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
-0
+![](https://assets.gnews.org/wp-content/uploads/2021/09/xm0915.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+
++1

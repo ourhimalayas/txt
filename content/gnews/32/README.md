@@ -2,51 +2,30 @@
 ---
 
 
-## 支付宝剥离贷款业务，用户数据将被国企控制
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1535032/)
+## 福奇并未停止向中共研究机构提供资金
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535076/)
 
-作者：纽约香草山农场 – 七哩香
+2021年09月15日
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/chinavax.jpg)网络图片
 
+《国家脉搏》于2021年9月14日披露，自新冠病毒大流行开始，美国国立卫生研究院 (NIH) 仍然一直在用美国纳税人的数百万美元资助那些和中共国有合作关系的研究项目，其中还包括中共军方所控制的机构。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+总共有超过400万美元的经费资助了各研究项目的首席研究员，他们在2020和2021年期间还在中共国科学机构工作。其中七项研究仍在执行中，处于发表论文阶段。自2020年初以来，在这13笔资助给中共国的项目中，有七笔来自安东尼·福奇（Anthony Fauci）所领导的国家过敏和传染病研究所 (NIAID)。
 
+**简评：**这个由共产党统治的国家阻挠了对新冠病毒起源的调查，同时还展开了一场全球宣传大战，将病毒归咎于美国，而美国相关部门，不但没有反省，仍然要在疫情爆发后不断地向中共国的科研机构提供研究经费，真不知道这个“农夫与蛇”的故事还有持续多久。
 
+阅读原文，请点击：[https://thenationalpulse.com/news/nih-still-sending-millions-to-fund-ccp-research/](https://thenationalpulse.com/news/nih-still-sending-millions-to-fund-ccp-research/)
 
-据金融时报9月12日报道，中共要求支付宝剥离贷款业务，创建独立APP，同时将相关用户数据交给一个合资企业管理。此消息一经披露，意味着蚂蚁集团被叫停上市后，中共于今年4月对其提出的整改措施已接近落地。
+* * *
 
-![](https://gdb.voanews.com/7E370C4C-C8CC-42FA-B353-DC7A9AC227DA_cx0_cy10_cw0_w1023_r1_s.jpg)图片来源：路透社
-
-背靠超过10亿用户的支付宝APP，蚂蚁集团的贷款业务增长迅速，成为集团的第一大营收支柱，利润几乎占其半壁江山。而今，中共分拆其贷款业务并严加监管，蚂蚁集团的高杠杆率野蛮生长将不复存在。另外，在新成立的征信数据合资企业中，蚂蚁集团与浙江省旅游投资集团有限公司各持有35%的股份，而剩余的股份则由有政府背景的浙江电子口岸有限公司和杭州市金融投资集团等公司持有。这意味着中共通过国企完全控制了支付宝的用户数据。这也可以被看作是中共声势浩大的所谓“反垄断运动”的最新进展。
-
-中共对蚂蚁集团所属的阿里系的整肃，表面是反垄断和维护金融安全，实际是国进民退、保护极权统治的需要，也是中共内斗的角力场，更是盗国贼重新分配利益的“大手笔 ”。这不是结束，只要中共存在一天，所有的商业巨头和民营企业都将成为中共专政的牺牲品。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[中（共）国政府准备对蚂蚁集团动手术 把支付宝剥离出来](https://www.voachinese.com/a/China-will-break-alipay-from-ant-group-20210913/6224553.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
