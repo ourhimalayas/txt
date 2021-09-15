@@ -2,38 +2,25 @@
 ---
 
 
-## 教育的目的是激发原创力
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1534261/)
+## 疫苗不是对抗新冠状病毒的唯一方案
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1534286/)
 
-[![](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/E9C56507-D784-4ED8-B6D3-934216F24A20.jpg?asset_id=F68C2A43-1403-4E7A-9401-6A0F9386AD47&amp;size=1024)](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/E9C56507-D784-4ED8-B6D3-934216F24A20.jpg?asset_id=F68C2A43-1403-4E7A-9401-6A0F9386AD47&amp;size=955)
+台湾宝岛农场 Amitofu
 
-作者：此心不變
+美媒报导抗寄生虫药物伊维菌素（Ivermectin）的需求近来大增24倍，根据华盛顿州卫生厅的新闻稿，全美在8月第2个星期，开出8万8000份伊维菌素处方药，远高于新冠状病毒疫情前的24倍。华盛顿毒物中心（Washington Poison Center）从去年起接获3倍多的相关咨询电话，大多数电话询问伊维菌素的安全性，有些人则因服用后产生轻微或中度的中毒现象而住院。目前美国尚无通报使用伊维菌素死亡的案例。
+2008年诺贝尔生理学/医学奖获得者卢克·蒙塔尼教授
+虽然WHO、美国CDC、FDA、NIAID和弗奇等疫苗厂商，声称抗疟疾药物羟氯奎宁（hydroxychloroquine）、抗寄生虫药物伊维菌素可有效治疗或预防新冠状病毒并没有根据、且为错误资讯，但美国前线医师组织America’s Frontline Doctors和Zelenko等多位医师发表HCQ加锌和伊维菌素可治疗新冠病患，伊维菌素也可治疗疫苗后的副作用，疫苗邪恶团体和所有媒体阻止了正确资讯的传播，导致数百万人因疫苗不适和延误用药而造成数十万人重症死亡。
 
-[![](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/D86372EB-358C-456E-B61B-6EBA5546EDF7.jpg?asset_id=12506B7E-696E-4EA2-B684-049FB2727E70&amp;size=2560)](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/D86372EB-358C-456E-B61B-6EBA5546EDF7.jpg?asset_id=12506B7E-696E-4EA2-B684-049FB2727E70&amp;size=450)盘古七星级酒店（图片来源：网络图片）
+**笔者整理新冠状病毒与强迫施打疫苗的迷思**
 
-郭文贵先生的一生拥有无数个原创，地球上唯一的佛手建筑（裕达国贸）和 龙的建筑（盘古七星级酒店）的创建人，是信托地产的创始人……再到GTV、Gnews、Gclub、Gfashion、喜联储、喜币等等的发起人……甚至连爆料的灭共方式都是他的原创。可谓前无古人，后无来者，也许正是他的这些非凡才使他常常处于被怀疑、被否定和被挑战中吧。
+**1.新冠状病毒是来自中共制造的生物超限战，病毒来自武汉实验室以SARS+HIV+COV人工合成，HIV爱滋病至今尚未有疫苗，而新冠状病毒却能在短时间出现疫苗。
+2.各国公共卫生强推疫苗施打率，想要群体免疫，塑造疫苗是唯一对抗病毒方案，而否决预防新冠状病毒的羟氯喹+锌+维生素C+维生素D3，治疗新冠状病毒的青蒿素、伊维菌素、土霉素、阿奇霉素、地塞米松。
+3.因施打疫苗后心肌炎血栓等副作用而住院者，部分医院开始使用伊维菌素治疗而成效显著。
+4.利用人们害怕死亡的心态，制造出不打疫苗就会重症、死亡的新闻，掩盖邪恶团体用施打疫苗，控制人类、大量降低人口的事实。
+5.疫苗施打并没有解决疫情，反而制造出更多问题与风险，将来大众运输交通工具飞机、公车、地铁的驾驶随时可能因脑梗、心梗而造成更大的公共安全危机。**
 
-听文贵先生说，他的家庭成长经历非常普通，他在7月24日的直播中说，他的父母没有文化，而他自己连基础教育也没有读完。他还说当自己10来岁时，还不明白钟表一天24小时转着圈到底是怎样工作的，那么到底是怎样的教育让他的人生变得如此精彩呢？
+资料来源:[文贵先生9月14日直播](https://gtv.org/video/id=614095fb751e4f2b0e5254a0)
+祈祷万佛万神加持文贵先生与新中国联邦战友
+审核:Athena雅典娜 发布:Amitofu
 
-[![](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/B9E34C38-5E12-4D32-8082-6F9E26824AF8.jpg?asset_id=E212B670-AA38-4D2F-963D-6A93BE82F632&amp;size=2560)](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/B9E34C38-5E12-4D32-8082-6F9E26824AF8.jpg?asset_id=E212B670-AA38-4D2F-963D-6A93BE82F632&amp;size=511)爱因斯坦（图片来源：StatusMind）
-
-爱因斯坦说：“Education is what remains after one has forgotten everything he learned in school.”（教育，就是当一个人把在学校所学全部忘光之后剩下的东西。）我想知道那个剩下的东西到底是什么，因为我知道应该是那个剩下的东西才让郭文贵先生的人生变得如此精彩。
-
-我不记得在哪里看过这样一个故事，说有一家中国人移民到美国，父母是高级知识分子，女儿入读美国小学，其功课形式跟大陆完全不同。一个星期只有一样功课，很多都是project（专题），都是关于big idea（创意），都是为了训练research and inquiry（研究和调查）能力，跟我们的大学功课形式差不多。第一次的功课是父母协助女儿去完成的，做得非常完美，父母也对女儿在自己的协助下完成的功课感到非常骄傲，哪知老师最终给的却是零分。父母问老师原因，得到的回答是因为这个功课全是抄袭的，没有自己的东西，而且老师还一一道出每一段抄自哪里，可想而知父母当时是如何的无地自容，因为抄袭等同于偷窃。
-
-[![](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/E6472B78-B5E1-4177-A0D9-F38F962C8B18.jpg?asset_id=471CBBCF-978C-46CB-BD30-5154B000F17E&amp;size=1024)](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/E6472B78-B5E1-4177-A0D9-F38F962C8B18.jpg?asset_id=471CBBCF-978C-46CB-BD30-5154B000F17E&amp;size=1024)网络图片
-
-这位老师不是让学生去做在学校所学的东西，而是希望学生去发挥那个剩下的东西，那个剩下的东西是什么呢？就是原创力，就是教育的真正目的。从某种程度上说，郭先生从小到大因为没有接受中共学校的基础教育反而得益，让原创力成为了他的人生习惯。他的人生就是在不断的research和inquiry（调查研究）中成长，不断地激发其无穷无尽的原创力。
-
-（文章仅代表作者个人观点）
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*校对：仙女儿-文善 | 审核：仙女儿-文善 | Page：彼岸花*
-
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/5E53926C-1430-4947-BC46-9ECD1C4E28D4.jpg?asset_id=835819D1-3577-4DBC-95D1-62C9B48C0A7E&amp;size=1024)](https://spark.adobe.com/page/KMeLZjgDjmcKg/images/5E53926C-1430-4947-BC46-9ECD1C4E28D4.jpg?asset_id=835819D1-3577-4DBC-95D1-62C9B48C0A7E&amp;size=1024)
 0

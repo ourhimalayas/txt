@@ -2,26 +2,25 @@
 ---
 
 
-## 数千纽约教师游行,反对强制&#8221;毒针&#8221;政令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534744/)
+## 中共就台湾代表处更名进行威胁, 美议员称: 虚张声势!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534764/)
 
-栏目记者/责任编辑：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-166.png)
-每日邮报消息，周一，数千名抗议强制接种疫苗的教师游行队伍, 穿过布鲁克林大桥抵达纽约市政厅附近, 抗议者们高呼口号谴责拜登总统的疫苗政策, 在曼哈顿 福利广场举行集会。
+栏目记者/责任编辑：修文
+责任编辑：FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)
+美国政府目前认真考虑台湾驻美代表处更名一事，引发中共强烈不满，扬言召回驻美大使。对此，美国众议院 外委会亚太小组主席贝拉称:“美国不是立陶宛”，他不认为台湾驻美代表处更名会对美方有何危险，中共对此事的威胁是虚张声势，中方扬言召回大使，只是一种过激反应。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide4-21.jpeg)
 
-该示威是由反对疫苗强制政策的教师团体发起的，因为纽约市长要求公立学校教师在 9 月 27 日之前至少接种一剂 疫苗，否则将被解雇。同时,纽约市周一也开始在酒吧、餐馆和健身房实施疫苗强制政策。
-
-目前世界各地对疫苗强制政策的抗议示威活动此起彼伏，因为这一政策在侵犯人权的同时,已经开始呈现撕裂社会甚至家庭的迹象, 并且随着疫苗的副作用逐渐呈现，必定将对全球政治/经济/社会格局, 产生连锁性的影响。
+中共一直以来都将台湾作为在国际关系中用来绑架和较量的棋子，早已遭致世界各国的反感侧目. 如今病毒真相已欲盖弥彰，中共仍在使用台湾问题转移视线，连哭带闹, 很可能用力过猛，最终引发各国借力打力, 其中欧盟各国对此的反应已经初现端倪。
 
 （本文仅代表作者观点）
 
-参考链接：[Furious teachers protesting mandatory vaccinations march across Brooklyn Bridge chanting ‘F\*\*\* Joe Biden’: Businesses reel against new NYC indoor vaccine rule crackdown amid Delta infections flattening](https://www.dailymail.co.uk/news/article-9990027/NYC-teachers-protesting-mandatory-vaccinations-chant-F-Joe-Biden-Brooklyn-Bridge-march.html?ito=push-notification&amp;ci=4X76GW4XYz&amp;cri=6RGj7Q7sux&amp;si=39450485&amp;xi=d249a8b2-b9a9-4ec5-973a-d15d46c8a95e&amp;ai=9990027)
+参考链接：[駐美代表處更名引中國報復？ 美議員霸嗆：美國不是立陶宛](https://news.ltn.com.tw/news/world/breakingnews/3672280)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龍
+终审：FoxRina
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**

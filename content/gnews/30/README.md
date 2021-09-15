@@ -2,26 +2,32 @@
 ---
 
 
-## 秘翻在线：突发！澳洲内阁部长周三匆匆赶往堪培拉参加紧急会议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1534592/)
+## 盗国贼黑手伸向墙内百姓养老金
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534682/)
 
-#### 翻译：罗马骑士
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-66.jpg)图片来源：网络截图
-据《悉尼先驱晨报》9月15日报道，周三上午，几位联邦内阁部长被召集到堪培拉参加一次绝密会议，此前预计美国将于本周四上午发生重大国际事态发展。
+栏目记者/责任编辑：捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-164.png)
+中共新华社9月15日消息, 中共国有银行旗下的理财子公司 ,已经获批开展养老理财产品，目前已达11只公募养老基金新品步入发行期。表明中共通过数年布局，开始把黑手伸向百姓的养老钱。
 
-熟悉事态发展的消息人士称，一些内阁成员获得边境豁免，紧急飞往堪培拉参加仓促安排的会议，消息人士称这将具有国际意义。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-22.jpeg)
 
-国防部长彼得·达顿和外交部长玛丽斯·佩恩将在未来两天在华盛顿举行一系列会议，据说他们是通过安全连接的方式，参加了此次会议。
+公开信息显示，已有“多路资金”正紧盯墙内养老投资基金. 目前中共参与公募养老基金发行的公司分别是华夏安盈、兴证全球、嘉实安康、泰达宏利等，而且中共要把养老金投资作为未来经济的第三支柱。众所周知，国内疫情导致经济持续下滑已两年，国内贫困人口不断扩大，很多人早已无力缴纳养老社保费, 王岐山所说 “老百姓吃三年草”已经不是空穴来风。新华社报道中明确告知：自2021 年 9 月 1 日起，职工退休一年内需要重新进行退休资格认证，否则养老金将自动暂停发放。 此举意味着将产生更多的官僚和腐败,更多的打击报复和行贿受贿,更多的冤案和上访, 但面对即将亡党亡国的中共, 盗国贼已经不顾一切。
 
-澳大利亚和外国外交官也将于周四听取有关事态发展的简报。
+（本文仅代表作者观点）
 
-该公告对美国和英国政府也具有重要意义，将在澳大利亚时间上午 7 点发布。
+参考链接：**[公募养老FOF“七剑齐发” 多路资金聚焦养老理财](http://www.news.cn/fortune/2021-09/15/c_1127862902.htm)**
+[9月份起，在职和退休人员都要注意，你的养老金还将有2个变化](https://new.qq.com/omn/20210807/20210807A07UCT00.html)
 
-白宫周四晚宣布，美国总统乔拜登将发表“关于国家安全新方案的简短讲话”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-澳洲总理斯科特·莫里森下周将前往华盛顿参加包括美国、印度、日本和澳大利亚在内的四国联盟会议。 莫里森先生将在此行期间与拜登先生进行第一次面对面的一对一会谈。
+终审：文龍
+校对/发稿：谐趣园
 
-新闻来源：[Ministers granted border exemptions to attend urgent meeting in Canberra](https://www.smh.com.au/politics/federal/ministers-granted-border-exemptions-to-attend-urgent-meeting-in-canberra-20210915-p58rzn.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
