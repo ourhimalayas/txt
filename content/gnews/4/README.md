@@ -2,19 +2,27 @@
 ---
 
 
-## 秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1535295/)
+## Canadian Health Officials Write An Open Letter To John Joseph Horgan, The Premier Of British Columbia
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/1535332/)
 
-撰稿：西枫westca
+September 15, 2021
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091505.jpg)Image: @eastonspectator.com
+After reading an incredible story in the Easton Spectator on September 12th, 2021, it brings to everyone’s attention the writing of an open letter, and this letter was written by a group of extremely concerned health professionals from British Columbia. The Open Letter was directed to Dr. Bonnie Henry, Adrian Dix and British Columbia Premier John Horgan. The letter states that there are many un-answered critical questions specifically about the current reporting of case numbers, statistics and testing.
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-1.png)图片来源：Gettr
-据环球网9月15日报道，中共国新任驻英国大使郑泽光原本收到英国议会邀请，在议会下院的一个露天阳台参加一个招待会并发表致辞。但就在招待会开始的前一天，英国议会上议院和下议院议长同时做出决定，禁止中共大使进入英国议会大厦。
+The letter continues to say that there is a total lack of transparency regarding the effectiveness and safety of the experimental vaccines, and this lack of transparency has led to a far more divisive society, with even families and friends finding themselves on the opposite side of the argument.
 
-中国在 3 月份对 9 名英国政客、律师和一名学者实施制裁，原因是他们散布了关于该国西部维吾尔族穆斯林所受待遇的“谎言和虚假信息”。有7名议员向议会提出投诉：“如果一个政权的官方代表刚刚禁止议员进入中国领土，因为他们在下议院站出来大声疾呼，那将是对议会和民主赖以建立的言论自由原则的侮辱。” 下议院议长林赛霍伊尔说，我认为，当中国对我们的一些成员实施制裁时，中国大使在下议院和我们的工作地点会面是不合适的。” 上院议长麦克法尔的声明则表示，“两院议长一致认为，考虑到目前对成员的制裁，这次中国会议应该在其他地方举行。”
+[For a more comprehensive and detailed look at this story, please click here](https://www.eastonspectator.com/2021/09/12/open-letter-to-dr-bonnie-henry-adrian-dix-and-premier-john-horgan/)
 
-近来世界各国开始对中共国开始说“不”， 包括美国近日表示考虑要把台湾驻美机构更名为“台湾代表处”。 这些举动都大大激怒了中共。对这次禁止中共大使进入英国议会，中共的发言人只能说，这一决定反映了英方一些人的狭隘心理，我们予以鄙视和强烈谴责。
+***Edited by：【Himalaya London Club UK】***
 
-**新闻来源：**[补壹刀：英国议会不让中国大使进门，谁撺掇的？ (huanqiu.com)](https://world.huanqiu.com/article/44mU8nE2fcx)
+*Editor: Mr. Cow|PR: Marialu*
+
+- [Click here to read more articles in G-News](https://gnews.org/author/himalaya_hawk/)
+- [Click to watch the exciting video on G-TV](https://gtv.org/user/5ee680a45bd6f123dd104807)
+
+
+Edited by：【Himalaya London Club UK】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

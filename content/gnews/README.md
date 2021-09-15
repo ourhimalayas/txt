@@ -13,20 +13,20 @@
 
 ---
 
-### [After three doses of vaccine, Israeli outbreak peaks again](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [樱花灭共段子之关公搬家、两面三刀、医疗产业化](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [U.S. soldiers sued the Department of defense and federal health agencies over mandatory military vaccination orders](/content/gnews/2/README.md)
- ` GTV新闻访谈`
+### [La main noire de voleur de nations s’empare des pensions pour les citoyens à l&#8217;intérieur du pays communiste chinois](/content/gnews/2/README.md)
+ ` MOSglobal`
 
-### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
+### [Die Britische Regierung Genehmigt die Coronavirus-Impfung für 12- bis 15-Jährige und Sorgt damit für Empörung Bei den Eltern](/content/gnews/3/README.md)
+ ` MOSglobal`
 
-### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
+### [Canadian Health Officials Write An Open Letter To John Joseph Horgan, The Premier Of British Columbia](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/5/README.md)
- ` HimalayaRussia`
+### [Die wahren Farben des Kriegswolfs! Nachricht aus US-Medien, dass Qin Gang die US-Seite Während Seiner Rede Ausrief, &#8220;den Mund zu Halten&#8221;！](/content/gnews/5/README.md)
+ ` MOSglobal`
 
 ### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -37,13 +37,13 @@
 ### [2021年9月15日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/9/README.md)
+### [反对强制疫苗，亚利桑那州将拜登告上法庭！](/content/gnews/9/README.md)
+ ` 丁过`
+
+### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [法国：未接种疫苗的医护人员面临停职](/content/gnews/11/README.md)
+### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
 ### [米利秘密电话通共事件继续发酵](/content/gnews/12/README.md)
@@ -151,36 +151,36 @@
 ### [9/13/2021 国际财经快讯：美元随国债收益率上扬；曼钦称不会在9月27日前通过预算法案](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [非洲大草原的厮杀正在人间上演](/content/gnews/47/README.md)
+### [樱花灭共段子之关公搬家、两面三刀、医疗产业化](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [非洲大草原的厮杀正在人间上演](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [香港囚权组织“石墙花”被迫解散](/content/gnews/48/README.md)
+### [香港囚权组织“石墙花”被迫解散](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [德国保守党派AfD领袖Alice Weidel采取行动反对任何对未接种疫苗者的歧视](/content/gnews/49/README.md)
+### [德国保守党派AfD领袖Alice Weidel采取行动反对任何对未接种疫苗者的歧视](/content/gnews/50/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [谷歌因滥用市场主导地位被韩国罚款1.77亿美元](/content/gnews/50/README.md)
+### [法国：未接种疫苗的医护人员面临停职](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [澳洲为啥禁用伊维菌素：因为它太有效了！](/content/gnews/51/README.md)
+### [谷歌因滥用市场主导地位被韩国罚款1.77亿美元](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
+
+### [澳洲为啥禁用伊维菌素：因为它太有效了！](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恒大财富暴雷，投资者抗议还钱](/content/gnews/52/README.md)
+### [恒大财富暴雷，投资者抗议还钱](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
 
-### [支付宝剥离贷款业务，用户数据将被国企控制](/content/gnews/53/README.md)
+### [支付宝剥离贷款业务，用户数据将被国企控制](/content/gnews/55/README.md)
  ` 纽约香草山MOS01`
 
-### [福建仙游疫情初判为德尔塔毒株](/content/gnews/54/README.md)
+### [福建仙游疫情初判为德尔塔毒株](/content/gnews/56/README.md)
  ` 纽约香草山MOS01`
 
-### [零对冲对加密货币市场最新变化的更新（FW37）](/content/gnews/55/README.md)
+### [零对冲对加密货币市场最新变化的更新（FW37）](/content/gnews/57/README.md)
  ` 纽约香草山MOS02`
-
-### [英国知名政评家认为习近平个人崇拜危害中共国](/content/gnews/56/README.md)
- ` 纽约香草山MOS01`
-
-### [2021年9月15日 文贵先生盖特 2](/content/gnews/57/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

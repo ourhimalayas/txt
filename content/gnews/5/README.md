@@ -2,35 +2,57 @@
 ---
 
 
-## 联邦法官暂停纽约州强制接种疫苗行政令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1535281/)
+## Die wahren Farben des Kriegswolfs! Nachricht aus US-Medien, dass Qin Gang die US-Seite Während Seiner Rede Ausrief, &#8220;den Mund zu Halten&#8221;！
+` MOSglobal` [轉載自GNews](https://gnews.org/1535344/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+Umschreiben:  MOS Buddhism Group  –  Nancy
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F-1.jpg)publishedreporter.com
-一名纽约州联邦法官于周二（9月14日）暂停了纽约州强迫医务工作者接种疫苗的行政命令。此前一天，17名医务工作者联合起诉纽约州政府，原因是州政府剥夺了人民接种疫苗时的“宗教豁免权”，医务工作者们认为州政府的荒唐行为侵犯了宪法赋予人民的权利。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-联邦法官责令纽约州必须在9月22日之前对乌蒂卡（Utica）联邦法院的法律诉讼案作出回应。若纽约州政府持有异议，联邦法院将于9月28日召开口头听证会。
 
-此事缘起于，纽约州8月28日所颁布的一项“强制接种疫苗”的行政令，规定“所有医院和疗养院的医护人员在9月27日前必须完成首次疫苗接种”。纽约州长凯西·霍楚尔（Kathy Hochul）认为“提高全州疫苗接种率，是保护纽约州人民、抗击Delta变种病毒的最好方法”。根据这个逻辑，全民都应该而且必须接种疫苗。
 
-纽约市长白思豪表示从9月13日纽约市将实行“疫苗通行证”，这就是对美国总统拜登上周四（9月9日）签发“强制接种疫苗”行政令的积极回应。拜登要求从9月20日起所有联邦行政人员强制接种中共病毒疫苗，违反者将面临制裁或处罚。从美国总统拜登、纽约州长霍楚尔直到纽约市长白思豪都一致认为“接种疫苗”是有效的，甚至认为接种中共病毒疫苗是公民的责任。[1]
 
-真相是，中共病毒疫苗对身体会造成不可逆转的危害。幸好，有很多美国百姓和专业医师们清楚知道中共病毒疫苗之危害或者为了捍卫宪法赋予的人权，进入9月份，全美各地掀起了绵延不绝的抵制疫苗抗议活动和愈演愈烈的辞职潮，这令美强推疫苗的行政官员们越来越尴尬。
 
-例如，刘易斯郡综合医院（Lewis County General Hospital）妇产科6名医护果断辞职，7名在职医护表示绝不接种，专业医学人员大量流失，该医院不得不宣布妇产科“停止运转”[2]。当专业人士拒绝接种疫苗时，所带来的示范效应会引起美国人民的思考。他们拥有普通人所不具备的专业素养，就像是在队伍最前面领跑的第一方阵。当第一方阵停下前行的脚步，紧随其后的其他人至少会询问为什么他们停下了脚步？
+**Interviews mit der GTV Presse       13.09.2021**
 
-又例如，美空军12名F-22 飞行员接到“必须接种疫苗，否则面临军事处罚”的命令后，当日立即决定退役。与此同时，16名B-52轰炸机的机组员也毫不犹豫选择离职。此事在美军内部造成影响，可谓是有着“一石激起千层浪”的效果。这标志着，美军最精锐的飞行员队伍中识得中共病毒疫苗真相的军人，已经不信任美国政府、也不愿意听命于现任美军高级将领的命令。结果是美军的军事实力随着强制疫苗政策的推广而被大幅削弱，不抗命真都接种了疫苗，美军会因疫苗毒害而溃不成军，抗命不接种疫苗退役的长期看倒保护住了一批精锐。
+Der neue chinesische Botschafter in den USA, Qin Gang, hielt am 31. August seine erste öffentliche Rede seit seinem Amtsantritt Ende Juli. Er setzte die übliche Härte und Brutalität der Xi Jinping-Regierung fort und zeigte die wahre Natur eines Kriegswolfs, die im großen Gegensatz zu den Erwartungen der Außenwelt steht.
 
-美国现任白宫政府至少在中共病毒这件危害国家安全的事情上至今未作出有利于国民的正确决定。与之相比，英国政府在9月13日作出取消疫苗护照的决定，可谓是“急刹车猛调头”的政策大逆转。在政策制定上，外界普遍认为美英就是“萧规曹随”的关系。但此次就疫苗美英两国政策已完全背道而驰。毋庸置疑，英国政府选择的是正确的方向，而美国现任政府所为则令整个国家处在持续的撕裂和迷茫中。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/972-1-1.jpeg)
 
-无论怎样，好消息是至少纽约州联邦法官这次作出了正确的判断和选择，禁止政府强制人民接种疫苗。正邪斗争正酣，希望能挽救一大批不明真相、被虚假主流媒体欺骗的美国人民的生命！
+Die [National Review](https://www.nationalreview.com/corner/new-chinese-ambassador-snaps-at-u-s-please-shut-up/) berichtete am 10. September, dass auf die Präsentation am 31. August eine Live-Fragestunde folgte,  Qin Gangs Auftritt war sogar noch augenöffnender!
 
-参考链接：
+Qin Gang scherte sich nicht um diplomatische Etikette und Diplomatie und befahl der amerikanischen Seite direkt, “den Mund zu halten”.
 
-[1] [COVID-19 mandate: New York judge temporarily blocks medical worker directive – FoxNews – 09/15/2021](https://www.foxnews.com/health/judge-blocks-medical-worker-vaccine-mandate-in-ny-state)
+Damals fragte McEwen, leitender Direktor des Asienbüros des Nationalen Sicherheitsrats unter der Obama-Regierung, Qin Gang an Ort und Stelle: “Welche Schritte müssen die USA und China jeweils unternehmen, um die bilateralen Beziehungen zu verbessern”.  In seiner Antwort beschuldigte Qin zunächst die US-Regierung, die Situation zu verschlimmern, und rief dann: “Wenn wir unsere Differenzen nicht lösen können, halten Sie den Mund”.
 
-[2] [美疫苗令致辞职潮 纽约1医院妇产科停摆 – 大纪元 – 09/13/2021](https://www.epochtimes.com/gb/21/9/13/n13230234.htm)
+Es ist erwähnenswert, dass die meisten Teilnehmer der Veranstaltung prokommunistische Mitglieder der amerikanischen Elite waren, “alte Freunde” in den Augen der Kommunistischen Partei Chinas, wie der ehemalige Außenminister Kissinger und der ehemalige Finanzminister Jacob Lew.
+
+**Original-Artikel:**
+
+[战狼本色!美媒爆料秦刚演讲叫嚣美方“闭嘴”! – GNEWS](https://gnews.org/zh-hans/1530272/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
+
+*Gepostet von: Xiaolunn*
+
+
+
+**Für weitere Informationen, folgen Sie uns:**
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
 0

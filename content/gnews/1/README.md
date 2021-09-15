@@ -2,31 +2,53 @@
 ---
 
 
-## After three doses of vaccine, Israeli outbreak peaks again
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535300/)
+## 樱花灭共段子之关公搬家、两面三刀、医疗产业化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1535373/)
 
-Translated by: MOS Translation Team – mi迷hu糊
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-172.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-23.jpeg)
+#### 作者：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9d77d5f1f659f0b17150f1efe7c47754.jpg)
+【关公搬家】
 
-Health Ministry Director-General Nachman Ash said on Tuesday that the current wave of coronavirus infections is surpassing anything seen in previous outbreaks and that he is disappointed at the rebound in the pandemic. After bringing daily infections down in June, the trend ended last week, and the outbreak began to rebound. There is a high rate of vaccination in Israel, with more than 60 percent of the population fully vaccinated. Last month, more than one million people in Israel received their third dose of the vaccine, which made it the most vaccinated country in the world for the third dose. However, the widespread rollout of the vaccine has not stopped the rebound of the outbreak, which has made the fourth wave of infections Israel has experienced.
+樱花君：团子！你知道关公要“搬家”的事吗？
+樱团子：啊！我知道你在说人话！可是没听懂！
+樱花君：滚！当然是人话了！我说的是湖北荆州花1.7亿打造的，那个号称世界最大的关公雕像，要搬移到旅游新景点去的事。
+樱团子：干嘛要搬家？这搬运起来，花费不小吧？
+樱花君：说是现在放雕塑的地方地基下沉，怕毁坏了关公雕塑，与其每年花30万检查地基，不如花1.5亿给关公“搬家”！
+樱团子：这帮把屎吃到脑子里的，光想着给“党”消费GDP，把自己腰包撑圆了！也不给老百姓一点活路。那么多看不起病的老人孩子呢，有那个钱至少让ta们口中的“花朵”们免费看病。 CCP早点绝绝子吧！
+樱花君：哎，能在地狱里还能过的好的只能是魔鬼了！
+[盖特链接](https://gettr.com/post/papoerca1f)
 
-Reference: [Health Ministry chief says coronavirus spread reaching record heights](https://www.timesofisrael.com/health-ministry-chief-says-coronavirus-spread-reaching-record-heights)
+【两面三刀】
+樱团子：哎呀呀！笑的我鼻涕泡都出来了！
+樱花君：怎么了这是？什么事这么搞笑？
+樱团子：塔利班发现新的巨大的金属锂矿，转手就将采矿权交给了韩国！
+樱花君：那中共不是傻眼了！
+樱团子：所以我才笑的直不起腰来！中共这边自作多情想着帮塔利班占领了阿富汗；在“裆校”帮忙培养“人才”；然后又是给钱又是给粮的，想着肯定能拿到采矿权，结果人家学会了“两面三刀”！
+樱花君：那中共那边不表态？
+樱团子：那哪能不表态吗？借着媒体大骂“白眼狼”。
+樱花君：活该啊！ 能从“裆校”毕业，能不知道中共本性！？这是借着韩国想和美国搭线拉近些关系，给自己留条退路呢！
+樱团子：这回CCP是“陪了夫人又折兵”啊！
+[盖特链接](https://gettr.com/post/papyim086a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27.png)
+【医疗产业化】
 
-Proofread: Xiequyuan
-Edited: Xiequyuan
-Posted by: Xiequyuan
+樱团子：医疗产业化了知道么。
+网友：知道，就是医院变成菜市场，买菜变成必需品，最好天天来人买菜，不对，看病。
+樱团子：菜市场需要有长期稳定客户，才算产业化。你觉得客户从哪来呢。
+网友：对医院来说，要是急病就像做大餐买一桌子菜，可谁家也不能天天开宴席。只有慢病才算长期客户。可是哪有那么巧，都是慢性病。
+樱团子：听过一个口号么，有条件要上，没有条件创造条件也要上。
+网友：这种客户也能创造？还有这技术专门让人得慢性病？
+樱团子：上一段不是说了，超碘盐，陈米饭，漂白粉自来水，地沟油，僵尸肉，农药菜，毒雾霾。这都是啊。
+网友：这些东西天天吃，不生病才怪。
+樱团子：对啊，你得天天去市场买菜，也该天天去医院看病。所以医疗要产业化吧，不然跟不上你看病的需求。
+网友：左手下毒，右手治病，他们是毒手药王转世吧。
+[盖特链接](https://gettr.com/post/panvvrc05b)
 
-**More information, follow us **
+（文章仅代表作者个人观点，与GNEWS无关）
 
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
