@@ -28,13 +28,13 @@
 ### [秘翻在线：香港政府正在罗织更多有关“违反”《国安法》的罪名](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月14日 文贵先生盖特 8](/content/gnews/6/README.md)
+### [郭文贵先生点名白手套——沈南鹏](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2021年9月14日 文贵先生盖特 8](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月14日 文贵先生盖特 7](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月14日 文贵先生盖特 6](/content/gnews/8/README.md)
+### [2021年9月14日 文贵先生盖特 7](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [秘翻在线：AZ疫苗和辉瑞疫苗交叉接种后鼻血不止…](/content/gnews/9/README.md)
@@ -103,29 +103,29 @@
 ### [秘翻在线： 不应该让你孩子打疫苗的13个理由](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：AZ疫苗和辉瑞疫苗交叉接种后鼻血不止…](/content/gnews/31/README.md)
+### [秘翻在线：朝韩先后测试弹道导弹 半岛紧张局势加剧](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [盖茨基金会对中共国有企业投资数百万美元](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国与北京的新冲突](/content/gnews/33/README.md)
- ` Charlie`
-
-### [中（共）国在阿富汗的长期阴影](/content/gnews/34/README.md)
- ` Charlie`
-
-### [巧取豪夺港人财富](/content/gnews/35/README.md)
+### [共产养老金，老百姓退休需认证](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：香港九人因悼念“六四”受难者被判刑入狱](/content/gnews/37/README.md)
+### [秘翻在线：AZ疫苗和辉瑞疫苗交叉接种后鼻血不止…](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [瑞士信贷剔出艾未未](/content/gnews/38/README.md)
+### [盖茨基金会对中共国有企业投资数百万美元](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英国与北京的新冲突](/content/gnews/35/README.md)
  ` Charlie`
+
+### [中（共）国在阿富汗的长期阴影](/content/gnews/36/README.md)
+ ` Charlie`
+
+### [巧取豪夺港人财富](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [福奇资助的武汉研究使用中共国军方提供的人血样本](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -139,48 +139,48 @@
 ### [澳大利亚与韩国达成加强军事合作协议](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/13/2021 国际财经快讯：美元随国债收益率上扬；曼钦称不会在9月27日前通过预算法案](/content/gnews/43/README.md)
+### [09/15/2021 国际财经快讯：全球债务正快速接近创纪录的300万亿美元；美国证券交易委员会将发布GameStop报告](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/11/21国内经济财经周报：SOHO中国被黑石抛弃；恒大违约风险陡增](/content/gnews/44/README.md)
+### [9/13/2021 国际财经快讯：美元随国债收益率上扬；曼钦称不会在9月27日前通过预算法案](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/45/README.md)
+### [9/11/21国内经济财经周报：SOHO中国被黑石抛弃；恒大违约风险陡增](/content/gnews/45/README.md)
+ ` 秘密翻译组金融团队`
+
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/46/README.md)
  ` wenwu`
 
-### [香港证券官员提议对加密货币交易实施更严格的监管](/content/gnews/46/README.md)
+### [老司机平安集团马明哲发家史——平安集团不平安连载01](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/47/README.md)
+### [疫苗不是对抗新冠状病毒的唯一方案](/content/gnews/48/README.md)
  ` G-NEWS TAIWAN`
 
-### [教育的目的是激发原创力](/content/gnews/48/README.md)
+### [教育的目的是激发原创力](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共福建莆田展开首轮全市全员检测](/content/gnews/49/README.md)
+### [中共福建莆田展开首轮全市全员检测](/content/gnews/50/README.md)
  ` 儒为`
 
-### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/50/README.md)
+### [为什么非洲COVID-19重症感染率和死亡率如此之低?](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](/content/gnews/51/README.md)
+### [中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/52/README.md)
+### [美国士兵就军方强制疫苗接种令起诉联邦机构](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/53/README.md)
+### [没有疫苗护照：英国首相制定冬季 COVID-19 计划](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [墙内要闻汇编](/content/gnews/54/README.md)
+### [墙内要闻汇编](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利十六岁少女接种中共病毒疫苗十六小时后死亡](/content/gnews/55/README.md)
+### [意大利十六岁少女接种中共病毒疫苗十六小时后死亡](/content/gnews/56/README.md)
  ` xiaobaige`
 
-### [从1200亿美元巨额回扣看中共体制的滔天罪恶](/content/gnews/56/README.md)
+### [从1200亿美元巨额回扣看中共体制的滔天罪恶](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
-
-### [七哥一周聊：数字人民币配合大湾区计划将埋葬美元？](/content/gnews/57/README.md)
- ` 日本银河系农场-阿尔法星球`
 

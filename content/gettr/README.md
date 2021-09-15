@@ -15,6 +15,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/15/2021 1:51 PM (UTC)`
+
+9月15号，亲爱的兄弟姐妹们，大好消息！大好消息！大好消息！🎉🎉🎉🎉🎉🎉🎉👏👏👏👏👏👏👏 纽约检察长终止了对GTV和Saraca两家公司所有的刑事调查，证明这两家公司没有涉及任何刑事犯罪，这说明了共产党对这两家公司的折腾一年多的虚假报案，和所谓的经济、法律超限战，已彻底失败！赔了夫人折了兵！并且在美国浪费大量的资源！而我们大赢！💪💪💪让美国人看清楚了他们的假控诉，假告诉，假投资，法律超限战已经警醒了美国，感谢纽约检察院，秉公执法，依法办案，给了公司真相！🙏🙏🙏🙏🙏🙏🙏我们相信，给这两家公司带来巨大损失灾难的假控诉，这些中共的间谍，假控诉人，假报案人，假投资人，一定会受到美国的刑事调查，最终这些人会按照美国的法律，被依法严惩！共产党你完蛋啦……超限战失败了……彻底失败啦……！！！没毛的豆豆报假案白报啦！！！纽约检察长的终止调查保证中没有包括VOG，正如七哥说的，对VOG的刑事调查不会停止，九指妖你完蛋啦！！！看看七哥过去怎么说的……！！！💪💪💪✊✊✊<br/><br/>纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书<br/><br/>https://gnews.org/zh-hans/1534601/<br/><br/>ASSURANCE OF DISCONTINUANCE by LETITIA JAMES, Attorney General of the State of New York RE GTV Media Group, Inc., and Saraca Media Group, Inc.<br/><br/>https://gnews.org/1534522/
+
+---
+
 `@miles 9/15/2021 1:13 PM (UTC)`
 
 9月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒C C P疫苗灾难的解药的真相了吗？
@@ -285,13 +291,6 @@ President Trump, from last night’s fight:<br/><br/>“And I love the President
 
 考察G| Fashion米兰办公室的选址. 在这个时尚之都我们的意大利团队将会设计出很多惊艳的产品，将给我们带来视觉和精神上对美的冲击❤️❤️❤️🔥🔥🔥🦅🦅🦅🦅@DDNYC # GFashion 
 ![img](https://media.gettr.com/group43/getter/2021/09/11/18/1e4dd4fc-e124-4b18-8750-1f0e9c3e21bd/out.jpg)
-
----
-
-`@miles 9/11/2021 6:11 PM (UTC)`
-
-9月11号：<br/><br/>新中国联邦人的帅哥，美女．健康的身体．将是无尽的财富……新人类的未来。<br/><br/><br/>https://oversea.huanqiu.com/article/4434pHNrrW2
-![img](https://media.gettr.com/group25/getter/2021/09/11/18/b45925d3-a981-4fa2-64f5-9800206b42f8/d547826e7473e9f94ff046173dea2790.jpg)
 
 ---
 
