@@ -2,50 +2,43 @@
 ---
 
 
-## 美国将对五岁以上儿童强制使用新冠疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1535077/)
+## 中共驻英大使被禁止进入英国国会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535359/)
 
-作者：纽约香草山农场 – 捆绑CCP一千年
+2021年9月15日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/144927754537919639.jpeg.jpg)郑泽光. 图片：来自网络
+**摘要编辑：**
+
+据《德国之声》中文网报道，9月15日，中共国新任驻英国大使郑泽光原本应邀在英国议会下院参加由“跨党派中国小组”组织的招待会，但被告知，英国议会将不欢迎他前往议会大厦访问。
+
+该决定是由多名议员提议，英国议会下议院议长霍伊尔（Sir Lindsay Hoyle）和上院议长麦克法尔（Lord McFall）共同做出，旨在抗议中共政府对多名英国议员的制裁。霍伊尔指出，中共大使郑泽光进入议会是 “不恰当的”。对此，被中共制裁的英国议员们纷纷对议长的禁令表示欢迎，并称允许郑泽光进入议会大楼是“一种侮辱”。
+
+保守党前党魁邓肯史密斯（Iain Duncan Smith）表示感谢两名议长的决定，指英国国会是保护言论自由和人民自由的地方，让受制裁的议员容忍中共国大使进入国会，是不能接受的事。
+
+据悉今年3月，英国宣布制裁中共在新疆侵犯人权，犯下反人类罪的官员，随后，中共即对5名英国议员实施制裁，并指控他们“恶意传播谎言和虚假讯息”。
+
+中共外交部对此做出回应，要求英国议会“立即撤销错误决定”。外交部发言人赵立坚在当天的例行记者会上称，中方对英国个别反华议员实施制裁，是针对英方有关人员“恶意散播谎言和虚假信息、英方单方面制裁作出的必要反应，完全正当合理”。“我们奉劝英国议会一些人收起这套政治把戏，否则只能是搬起石头砸自己的脚”。
+
+“赵战狼”一贯喜欢使用“搬起石头砸自己的脚”这个词，希望他这次不是搬起石头砸他自己的脚。
+
+[阅读全文，请点击](https://www.dw.com/zh/反击北京制裁-中国驻英大使禁入英国国会/a-59185418)
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*编辑：文明明|校对：仙女儿-文善*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
-
-
-
-据印度新闻消息称，辉瑞（Pfizer）公司预计将于10月底前推出可用于5至11岁儿童注射的新冠疫苗。经辉瑞的董事会成员证实，该疫苗最快可于9月底之前被批准使用，并将“非常迅速”地在FDA获得“紧急授权”。早先，美国FDA已经授权疫苗公司对12至15岁的青少年进行新冠疫苗接种。FDA表示，这是基于很多当地学区民众和州长的建议所作出的决定。
-
-![](https://img.republicworld.com/republic-prod/stories/promolarge/xhdpi/5tm505vrxtftbddc_1631517640.jpeg)图片来源：AP
-
-事实上，世界各国政府目前针对新冠疫情都采取了一种舍本逐末的态度——他们在病毒溯源问题上迟疑，却在疫苗推广上表现得非常积极。可悲的是，政府对新冠疫苗导致的死亡和伤残事实视若不见，而今甚至任由其波及儿童。对此，德克萨斯州总检察长肯帕克斯顿于周五提出抗议，表示对私人企业的新冠疫苗授权可能是最违宪、最非法的事情。
-
-此前，郭文贵先生在直播中也对辉瑞公司发出过警告，同时，郭先生也再次预警世界称，今年年底将爆发疫苗政治的大危机。郭先生及其带领的新中国联邦人及爆料革命战友正在努力向世界传播新冠病毒及疫苗真相，正在尽全力阻止辉瑞等疫苗科技公司在全球肆无忌惮地用疫苗杀人，尤其是将黑手伸向儿童。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[US Likely To Authorize Pfizer COVID Vaccine For Kids Age 5-11 By October: Former FDA Chief](https://www.republicworld.com/world-news/us-news/us-likely-to-authorize-pfizer-covid-vaccine-for-kids-age-5-11-by-october-former-fda-chief.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
 
 
 
