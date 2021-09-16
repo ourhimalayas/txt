@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 7:04 PM (UTC)`
+
+好消息！ G｜Fashion 和Scabal 签约成功！郭先生过去的30年几乎90%的西装选料都来自于这个厂家，同时也是英国皇室成员们的最爱，并且这个面料在中国文化的服装领域从未被使用过，也是这个厂家第一次和中国人合作。 G｜Fashion 只和世界上顶尖的品牌合作，只为战友打造最优质的产品； G｜Fashion 只创造唯一性的产品，追求终极品质。不量产。<br/><br/>SCABAL被裁缝界称为“金钱能买到的最好面料”。是公认的全球最好的布料。<br/><br/>自1938年创立至今，SCABAL仅采购最好的原料，超细羊毛的舒适、羊绒的柔软、真丝的优雅，精纺细织，加上最后一道独有的“Paper Press”技术，确保任何布料对得起“面料之王”的美誉。<br/><br/>1974年它们研发出16.5微米羊毛技术，使面料支数第一次超越了100支；<br/><br/>1991年，推出创纪录的super150支面料，随后是180支，200支；<br/><br/>除了在面料纱支支数上领先业界，Scabal还推出了面料中加入黄金线、白金线、蓝宝石粉、钻石粉末以制成具有特殊光泽的面料，如加黄金、白金线的 gold treasure150支面料，加钻石粉末的diamond chip系列等
+![img](https://media.gettr.com/group3/getter/2021/09/16/19/1e655819-3ebf-5174-9c64-aaa2506e3681/out.jpg)
+
+---
+
 `@miles 9/16/2021 5:37 PM (UTC)`
 
 9月16号：爆料革命从2017年开始就已经警告了，所有的同胞……共产党所有经济权力利益范围内的所有的产业，都将因为中国的房地产和银行和金融体系……的崩塌，所有中国人的财富将90%的缩水，特殊领域，将是负-300%的负债！没有一个人能拯救中共的经济，中国的经济倒了……中共的政治必然是房倒屋塌．一切结束。
@@ -289,13 +296,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/12/2021  Miles Guo: The CCP is assisting a certain country to build 3 major biochemical labs! The so-called “common prosperity” pushed by the CCP in Hong Kong is taking away your properties and wife! The HK traitors wrote a report to the CCP, saying that the HK population should be lowered to about 4 million; The CCP will implement in Hong Kong the region-based governance, which effectively means Nazi concentration camps, and the CCP’s Party Secretaries will be assigned to HK financial institutions in the name of the International Financial Risk Control Committee<br/><br/>9/12/2021 文贵直播：中共正在帮某大国建设3个大型生化实验室！中共在香港推行的所谓“共同富裕“就是共产共妻！卖港贼向中共报告称要将香港人口降到400万；中共将对香港实施纳粹集中营式的区域化管理，并将以国际金融风险控制委员会的名义向香港金融机构派驻党委书记<br/>
 ![img](https://media.gettr.com/group36/getter/2021/09/13/07/c3b00a53-c76f-edfb-ad0b-725d8568a1b9/out.jpg)
-
----
-
-`@miles 9/13/2021 6:59 AM (UTC)`
-
-9月13号：这些人都是很可怜🥺……
-![img](https://media.gettr.com/group8/getter/2021/09/13/06/78dc8767-c35d-00ae-c7e7-51f5ef33c05b/f9cf86739fab394dac3ba9582f9ae77b.jpg)
 
 ---
 

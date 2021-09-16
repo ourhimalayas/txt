@@ -2,15 +2,11 @@
 ---
 
 
-## 2021年9月16日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536981/)
+## Miles Guo: über den Illuminatenorden und die chinesische kommunistische Partei
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/1537007/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+Die Philosophie des Illuminatenordens“wir sind Brüder, wir sind eine Familie, wir beachten nicht was andere sagen“ ist großartig, aber es gibt eine Begierde und eine strikte Hierarchie darin, die einer modernen Demokratie und dem Internet komplett entgegenstehen. Im Ergebnis sind die Chinesen unterdrückt von einer kommunistischen Partei, die von dunklen Kräften unterstützt wird. Die Mitglieder der neuen Bundesstaat Chinas haben komplett andere Bestrebungen. Wir bilden der Menschheit eine neue Zukunft.
 
-恒大财富暴雷，受害者聚集讨要说法 Evergrande Wealth P2P product defaults whilst victims gather to demand justice
-
-[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pb9nn17fd6)
-
-**喜联盟Gnews编辑部**
+Originales Video: https://mega.nz/file/tSoRkYJb#yX6Wg6Nkn6DFB0yfAvOqrWk61Yln4lIqpUYlyXHm23M
 
 0

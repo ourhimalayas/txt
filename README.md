@@ -13,38 +13,38 @@
 
 ---
 
-### [虚假新闻：谣传沃尔玛欲采用莱特币，使后者价格大涨35%](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [A “Lancet” Article that is Obviously Standing for the CCP &#8211; 26 Out of 27 Authors are Founded to Be In Collusion With the CCP](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
 
-### [2021年9月16日 文贵先生盖特 2](/content/gnews/2/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [【战友观点】盖特盖特，盖过推特——Gettr is the twitter killer](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
 
-### [2021年9月16日 文贵先生盖特 2](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [因新冠导致医生面诊减少，婴儿死亡率提高80%](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [Dr. Sean Brooks：Personen, die die mRNA-Impfstoffe eingenommen haben, sterben in sechs Monaten bis zu drei bis fünf Jahren.](/content/gnews/5/README.md)
+### [Miles Guo: über den Illuminatenorden und die chinesische kommunistische Partei](/content/gnews/3/README.md)
  ` MG 澳喜农场多语组`
 
-### [2021年9月16日 文贵先生盖特 2](/content/gnews/6/README.md)
+### [2021年9月16日 文贵先生盖特 3](/content/gnews/4/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 1](/content/gnews/7/README.md)
+### [2021年9月16日 文贵先生盖特 3](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 11](/content/gnews/8/README.md)
+### [2021年9月16日 文贵先生盖特 3](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [爱达荷州医生报告：接种人群癌症发病率增加了 20 倍](/content/gnews/9/README.md)
+### [2021年9月16日 文贵先生盖特 2](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月16日 文贵先生盖特 1](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2020年12月21日，中共病毒疫苗Biontech公司老闆撒辛教授及其员工还没接种疫苗](/content/gnews/9/README.md)
+ ` MG 澳喜农场多语组`
+
+### [爱达荷州医生报告：接种人群癌症发病率增加了 20 倍](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：教育部“承认”疫苗免疫屏障完败？](/content/gnews/10/README.md)
+### [秘翻在线：教育部“承认”疫苗免疫屏障完败？](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
- ` wenwu`
 
 ### [虚假新闻：谣传沃尔玛欲采用莱特币，使后者价格大涨35%](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -151,36 +151,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [巨额石油合同中天价回扣的惊人背后](/content/gnews/47/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [如何看待郭文贵先生开出的百亿赌局](/content/gnews/48/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【文炬专栏】“德教”是帝道邪教](/content/gnews/49/README.md)
+### [【战友观点】盖特盖特，盖过推特——Gettr is the twitter killer](/content/gnews/47/README.md)
  ` 温哥华扬帆农场`
 
-### [全球主义者让人类主动用“疫苗”武器消灭自己](/content/gnews/50/README.md)
+### [巨额石油合同中天价回扣的惊人背后](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [如何看待郭文贵先生开出的百亿赌局](/content/gnews/49/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【文炬专栏】“德教”是帝道邪教](/content/gnews/50/README.md)
+ ` 温哥华扬帆农场`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/51/README.md)
+ ` wenwu`
+
+### [读《道德经》第五章](/content/gnews/52/README.md)
+ ` 纽约香草山MOS03`
+
+### [全球主义者让人类主动用“疫苗”武器消灭自己](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [9/16/21 香港快讯 支联会宣布应警方要求移除电子信息平台 成立新专页](/content/gnews/51/README.md)
+### [9/16/21 香港快讯 支联会宣布应警方要求移除电子信息平台 成立新专页](/content/gnews/54/README.md)
  ` 英喜-粵語組`
 
-### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/52/README.md)
+### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [纽约法官阻止了针对医疗工作者的强制接种令](/content/gnews/53/README.md)
+### [纽约法官阻止了针对医疗工作者的强制接种令](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [病理学家通过尸检告诉你，接种疫苗后身体里发生了什么?](/content/gnews/54/README.md)
+### [病理学家通过尸检告诉你，接种疫苗后身体里发生了什么?](/content/gnews/57/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [灭活版科兴站稳海外 转推mRNA研发销售](/content/gnews/55/README.md)
- ` GTV新闻访谈`
-
-### [德骗云书院就是低配版缺德社](/content/gnews/56/README.md)
- ` 波士顿五月花农场`
-
-### [美国国务卿与立陶宛举行外交会谈 国会山表态共同对抗中共胁迫](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 

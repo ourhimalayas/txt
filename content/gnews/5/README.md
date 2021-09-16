@@ -2,11 +2,15 @@
 ---
 
 
-## Dr. Sean Brooks：Personen, die die mRNA-Impfstoffe eingenommen haben, sterben in sechs Monaten bis zu drei bis fünf Jahren.
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/1536975/)
+## 2021年9月16日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536995/)
 
-Erstens wird ihr Immunsystem um 35 % geschwächt. Zweitens wird die antikörperabhängige Verstärkung zu einem Zytokinsturm führen und Organversagen verursachen. Und die letzte Folge ist die Blutgerinnung. Geimpfte Kinder werden dauerhaft sterilisiert.
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-Originales Video:https://gettr.com/post/paqygwd5b6
+An brief introduction on the settlement between GTV and the SEC GTV与SEC的和解简介
+
+[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pb90vn6a38)
+
+**喜联盟Gnews编辑部**
 
 0
