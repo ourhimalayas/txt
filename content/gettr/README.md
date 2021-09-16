@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 11:17 PM (UTC)`
+
+任何一款鞋子的研发都是几年之久，鞋子是服装里面最重要的一个元素，它必须要符合人体工学，而且鞋子的安全和对身体的维护，它可不是很简单就能复制的，所以我们要跟世界大牌的厂家合作才能确保鞋子穿在脚上的舒适感，安全，更不会因为化学材料诞生的一系列问题。 以下这两双鞋子都是来自给爱马仕等大牌的鞋厂。 <br/><br/>包几乎就是女人第二个情人，而鞋子是女人最贴心的情人。 所以包，鞋子，丝巾都是女人身上最私密的最安全的东西，内衣是女人的里子，包和鞋子是女人的面子 <br/><br/>每一款包都至少需要6个工人直接或间接地参与，花费10小时左右，经过整整180道工序才能完成。而在正式开工生产前，还需要一周时间制出标准样品<br/><br/>大牌做包都会选用比较完整的头层牛皮，这样就可以避免过多的修补，也保证了皮革的柔软和光泽。虽然都是牛皮，但根据产地、鞣制方法和处理工艺不同，还是会呈现出不同的质感的。有些做皮具非常专业的品牌，还会有专属于自己的特殊处理过的皮质 @DDNYC #GFashion 
+![img](https://media.gettr.com/group32/getter/2021/09/16/23/c15091c6-31a2-146e-daec-a6daaa6377f2/ae89f14e18fe7c54fa9fe4eef2705ea4.jpg)
+
+---
+
 `@miles 9/16/2021 10:40 PM (UTC)`
 
 9/16/2021 Miles Guo’s GETTR: Only the Whistleblowers’ Movement has told everyone that the evil essence of the CCP lies in the Zhongnan Pit. That’s why we shall eliminate only a handful of devils in charge of this evil machinery! We are going to set up in the world the New Federal State of China that belongs to the Chinese people and is represented by the government derived from a one-person-one-vote election.<br/><br/>9/16/2021 文贵盖特：只有爆料革命告诉了大家中共的邪恶本质在中南坑，所以我们要消灭的是这几个掌握着邪恶机器的恶魔！我们要在国际上建立属于中国人的、一人一票选出的政府来代表的新中国联邦！<br/>
@@ -291,13 +298,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 `@miles 9/14/2021 4:09 AM (UTC)`
 
 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.<br/><br/>根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令<br/><br/>https://gnews.org/zh-hans/1531510/?_thumbnail_id=1531515<br/><br/><br/>SEC ADMINISTRATIVE PROCEEDING： In the Matter of GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.,<br/><br/>ORDER INSTITUTING CEASE-AND- DESIST PROCEEDINGS PURSUANT TO SECTION 8A OF THE SECURITIES ACT OF 1933, MAKING FINDINGS, AND IMPOSING A CEASE-AND-DESIST ORDER<br/><br/>https://gnews.org/1530384/
-
----
-
-`@miles 9/13/2021 11:17 PM (UTC)`
-
-9/13/2021 Miles Guo’s GETTR: In America, Pan Shiyi and Zhang Xin keep being pretentious and serving as the CCP’s “white gloves” in the same way as how they did in the Communist China. They never stop being rumor-mongers, liars, and opportunists!<br/><br/>9/13/2021文贵盖特：潘石屹、张欣把在国内当白手套、演戏的那一套搬到了美国，照样造谣、行骗，永远都是投机<br/>9
-![img](https://media.gettr.com/group30/getter/2021/09/13/23/303c38e2-2361-f323-58d0-d4f23f4217ab/out.jpg)
 
 ---
 
