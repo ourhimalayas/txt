@@ -2,23 +2,20 @@
 ---
 
 
-## 劲爆：美国纽约南区检察院终止对G-TV的所有调查
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1535518/)
+## 雅典娜时报-第053期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535638/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/HW0WE67xtMo_LKt9zVkSeYn2ksjGHOSYiDF3NiA4jxKEVyVKZpxNI1kYBQjh91EgZbAuwIglpuKso287Q-gqdZTxxdETcUlBSMK6gwh9AxQWyV4QC4r4wufYwiKNXgbrS4dx3ikw=s0)
-*图片来源*
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-快讯：G-TV媒体集团公司创始人郭文贵先生美国当地时间9月14日一大早，传来喜讯，纽约投资者保护局总检察长Letitia James根据马丁法和纽约一般商业法做出终止对GTV媒体集团公司及其旗下三家公司的调查的决定，并且是南区检察院第一检察官Letitia James主动要求和我们G-TV签署和解协议。但不包括VOG“九指妖”的刑事调查。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/42113cd4ac892187.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-20.png)
+***发布：小红帽***
 
-这一消息表明共产党企图对GTV的法律超限战的阴谋彻底破产。按共产党计划，如他们赢了官司，意味着GTV将无法在美国和这整个西方国家进行任何投资，那也意味着新中国联邦在西方的发展将举步艰难。反过来说，这无形中使GTV在美国的信用度得到更大的认可。且CCP免费给G-TV做了一个世界级媒体广告。这一无形效应将会持续释放无限利好，对所有战友尤其是新老投资者，都将是受益者。
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**文贵先生继续说道：这说明三家公司不涉及任何刑事犯罪**。说明了共产党对G-TV所有法律超限战的失败。赔了夫人折了兵。并且让费美国大量政府资源。文贵先生说的这件事，最好的的结果就是我们想要的，共产党主动送上门来的，即“让美国人看清楚了，中共对美国公司的假控诉、假告诉、假投资的法律超限战已经警醒了美国人。”文贵先生并特别在此要“感谢南区检察院秉公执法。我们相信这些来自中共间谍的假控诉会得到美国刑事调查，最终他们会得到美国法律的严惩。”
-
-南区检察院主动提出与GTV和解，这在美国商界大佬们眼里是一件不可能的事。当时文贵先生为了追回九指妖骗取战友们的投资，主动使GTV接受调查，这让律师团队所有律师感到恐惧。但文贵先生坚持自己的信念，相信美国的法律。这再次表明，共产党聪明反被聪明误，以为可以玩转美国。结果，共产党在美国自证其罪，主动送证据。这件事将持续发酵。用郭先生的话说：共产党，你完了！
-
-（本文只代表作者观点，与GNews网站无关）
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-12.jpg)
 0

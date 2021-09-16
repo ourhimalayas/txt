@@ -13,20 +13,20 @@
 
 ---
 
-### [性に由来する人類の文化を正しく理解](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [ABC News 弄巧成拙三万九千条留言让民众发现了死亡疫苗的真相](/content/gnews/1/README.md)
+ ` AUJenny`
 
-### [グローバル化された金融の利害](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳门启动《博彩法》咨询 将引入政府代表](/content/gnews/3/README.md)
- ` 纽约香草山MOS01`
-
-### [ワクチン問題解決の鍵](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [电视台的 Facebook 帖子意外地揭示了死于疫苗的人多于媒体报道](/content/gnews/5/README.md)
+### [【 #G叻睇真D 】粵語新聞電視臺 : 香港的社交媒體要配合共產黨提供個人資料和電子地圖](/content/gnews/2/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [银河快讯：日本央行对日本公司持乐观态度；日本陆上自卫队开始全国性演习](/content/gnews/3/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [1200億，大部分錢藏到了比特幣，最少送給江家200億](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新州最新周报隐瞒死亡病例的疫苗接种情况](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -37,23 +37,23 @@
 ### [2021年9月15日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/9/README.md)
+### [ABC News 弄巧成拙三万九千条留言让民众发现了死亡疫苗的真相](/content/gnews/9/README.md)
+ ` AUJenny`
+
+### [新州最新周报隐瞒死亡病例的疫苗接种情况](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/11/README.md)
  ` HimalayaRussia`
-
-### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [法国：未接种疫苗的医护人员面临停职](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
 
 ### [黑石终止Soho要约收购, 导致Soho中国股价暴跌40%](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [米利秘密电话通共事件继续发酵](/content/gnews/13/README.md)
- ` HimalayaRussia`
+### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
 
-### [老套路！福奇曾推艾滋病毒疫苗并大赚](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [米利秘密电话通共事件继续发酵](/content/gnews/14/README.md)
+ ` HimalayaRussia`
 
 ### [恒大陷入流动性危机，员工集体追讨投资本金](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -67,23 +67,23 @@
 ### [林郑月娥承诺大力推动前海方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 信仰与人权，拣选与文明——人类的第三文明：G文明的到来](/content/gnews/19/README.md)
+### [1200亿，大部分钱藏到了比特币，最少送给江家200亿](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【 #G时新闻 】🔥 &#8211; 纽约检察长终止对GTV和Saraca两家公司所有刑事调查](/content/gnews/20/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [有声| 信仰与人权，拣选与文明——人类的第三文明：G文明的到来](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [视频| 灭共七剑客](/content/gnews/20/README.md)
+### [视频| 灭共七剑客](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/21/README.md)
+### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021/09/15 大卫作战室直播精要](/content/gnews/22/README.md)
+### [2021/09/15 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国军队为中共疫苗接种设定最后期限](/content/gnews/23/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [澳门启动《博彩法》咨询 将引入政府代表](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
@@ -103,29 +103,29 @@
 ### [20万亿美元中共盗国资产——三股势力的角力战场](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [电视台的 Facebook 帖子意外地揭示了死于疫苗的人多于媒体报道](/content/gnews/31/README.md)
+### [银河快讯：日本央行对日本公司持乐观态度；日本陆上自卫队开始全国性演习](/content/gnews/31/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [澳美英军事联盟AUKUS不包含新西兰](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [雅典娜时报-第053期](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [电视台的 Facebook 帖子意外地揭示了死于疫苗的人多于媒体报道](/content/gnews/34/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [拜登将宣布美英澳先进科技分享协议剑指中共](/content/gnews/32/README.md)
+### [拜登将宣布美英澳先进科技分享协议剑指中共](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [劲爆：美国纽约南区检察院终止对G-TV的所有调查](/content/gnews/33/README.md)
+### [劲爆：美国纽约南区检察院终止对G-TV的所有调查](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中](/content/gnews/34/README.md)
+### [众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中](/content/gnews/37/README.md)
  ` 美国政要直译推`
 
-### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/35/README.md)
+### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共驻英大使被禁止进入英国国会](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共正在扩大在非洲的影响力](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -175,12 +175,12 @@
 ### [樱花灭共段子之腚缸手术记、致敬、促“吸”长“痰”](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之由小见大、吸血鬼、新兵役法](/content/gnews/55/README.md)
+### [中共驻英大使被禁止进入英国国会](/content/gnews/55/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花灭共段子之由小见大、吸血鬼、新兵役法](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之关公搬家、两面三刀、医疗产业化](/content/gnews/56/README.md)
+### [樱花灭共段子之关公搬家、两面三刀、医疗产业化](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [非洲大草原的厮杀正在人间上演](/content/gnews/57/README.md)
- ` 日本东京方舟农场`
 

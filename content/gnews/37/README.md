@@ -2,52 +2,70 @@
 ---
 
 
-## 中共正在扩大在非洲的影响力
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1535214/)
+## 众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1535508/)
 
-作者：纽约香草山农场 – 新世界的一员
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+众议员麦迪逊·考索恩： 大型科技公司正在讨好 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，并将国家安全置于危险之中。 大型科技巨头正在伤害美国的公司。 拆分大科技公司。 【转axios 报道：(12名) 前情报官员声称反垄断可能损害美国在中共国的科技竞赛】
 
 
 
-据美国之音9月14日报道，中共一直试图在国际版图上侵蚀、扩张，而相较于其他国家，中共在非洲的影响力实际不容小觑。
-
-![](https://gdb.voanews.com/A3C6611C-6EF7-48B5-8584-53D185FF1F2C_w1023_r1_s.jpg)图片来源：美联社
-
-事实上，中共近期与其他西方国家处于一种相对紧张的态势，为此，中共企图通过在亚非拉地区投资并建立基础设施来与美国争夺在整个非洲，乃至世界的影响力。
-
-去年年底，传统基金会发布了一份由莫塞维撰写的报告，当中详细列举了中方在非洲40个国家构筑的186个重要的政府大楼及设施，其中包括政府内部通讯网络等。虽然美国每年在非洲的投资也达250亿到300亿美元，然而美国的投资项目则多注重于公共卫生、人道救援和拨款等资助。
-
-而今，中共通过其惯用的蓝金黄及大撒币政策，正在逐步对非洲政府进行渗透和控制。而中共这一系列举动的目的在于，非洲有54个国家，基于联合国“一票一国”的机制，非洲在其中可以起到重要的导向作用。倘若中共能掌控非洲，中共就能以此来争夺联合国的话语权，从而挑战西方的民主文明，蚕食美国的地位及影响力，最终达到其控制世界的邪恶意图。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[逐鹿撒哈拉 非洲大陆已被中共彻底“降伏”？](https://www.voachinese.com/a/china-africa-20210914/6225573.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+> Big Tech is cozying up to China and putting national security at risk.
+> 
+> Big Tech is hurting American companies.
+> 
+> Break up Big Tech.[https://t.co/EiTUXkh1LW](https://t.co/EiTUXkh1LW)
+> — Rep. Madison Cawthorn (@RepCawthorn) [September 15, 2021](https://twitter.com/RepCawthorn/status/1438141541487452164?ref_src=twsrc%5Etfw)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+众议员迈克·沃尔兹 米利将军与一名 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 将军交谈并告诉他，他会在美军发动任何攻击之前给中共通风报信的指控很令人担忧。 该谈话的上下文和内容至关重要。美国人民应该得到米利将军书面的并宣誓后的答复。
+
+
+
+> The allegations that Gen. Milley spoke with a [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) general & told him he would warn them before any attack from the US military is beyond concerning.
+> 
+> The context & content of that call are critical. The American people deserve answers from Gen. Milley in writing and under oath. [pic.twitter.com/jylnkMfqUx](https://t.co/jylnkMfqUx)
+> — Rep. Mike Waltz (@michaelgwaltz) [September 16, 2021](https://twitter.com/michaelgwaltz/status/1438295359369859073?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 国会应该通过我的具常识性的修正案，呼吁美国大学关闭中共的宣传机器。附：大纪元报报道 [@EpochTimes](https://twitter.com/EpochTimes)
+
+
+
+> Congress should pass my common sense amendment which calls on U.S. universities to shutdown CCP propaganda machines. Via ⁦[@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw)⁩ [https://t.co/sY7mSL9InM](https://t.co/sY7mSL9InM)
+> — Rep. Ken Buck (@RepKenBuck) [September 15, 2021](https://twitter.com/RepKenBuck/status/1438265563604783108?ref_src=twsrc%5Etfw)
+
+
+
+国务卿布林肯： 我今天会见了外交部长[@GLandsbergis](https://twitter.com/GLandsbergis)，以表达美国对立陶宛的坚定声援，因为它面临着前所未有的地区挑战。美国政府将永远支持我们的北约盟友和欧盟合作伙伴。
+
+
+
+> I met with Foreign Minister [@GLandsbergis](https://twitter.com/GLandsbergis?ref_src=twsrc%5Etfw) today to express ironclad U.S. solidarity with Lithuania as it faces unprecedented regional challenges. The U.S. government will always be there to support our [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies and EU partners. [pic.twitter.com/JM31fTFnrG](https://t.co/JM31fTFnrG)
+> — Secretary Antony Blinken (@SecBlinken) [September 15, 2021](https://twitter.com/SecBlinken/status/1438267734308134913?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 我不能将这种“报道”当成福音。没人应该如此……但我们需要米利将军的答案。 参谋长联席会议主席积极削弱总统的作用是难以想象的。米利将军需要立即解决这些指控并尽快向国会作证。 【转福克斯新闻：书中称，米利秘密打电话给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 官员，因为担心川普会在最后几天发动“攻击”】
+
+
+
+> I don't take this "reporting" as gospel. No one should…but we need answers from Gen. Milley. 
+> 
+> The Chairman of the Joint Chiefs actively undermining the president is unimaginable. Gen. Milley needs to immediately address these accusations & testify to Congress ASAP. [https://t.co/FHgmzL73Jo](https://t.co/FHgmzL73Jo)
+> — Rick Scott (@SenRickScott) [September 15, 2021](https://twitter.com/SenRickScott/status/1438232399763189763?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯： “57%的民主党选民认为川普总统的支持者是‘对国家的严重威胁’。相比之下,视 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 为严重威胁的只有44%…” 发生这种情况是因为拜登、佩洛西等告诉其选民，他们不认同的人是“国内恐怖分子” 【转dailycaller：民调：57% 的民主党人认为川普支持者比塔利班、中共国和俄罗斯更危险】
+
+
+
+> “57% of Dem voters believe supporters of President Trump are a ‘serious threat to the nation.’ That compares to just 44% for China…”
+> 
+> This happened because Biden, Pelosi and co told their voters the people they disagree with are “domestic terrorists” [https://t.co/wdjqgmxcZW](https://t.co/wdjqgmxcZW)
+> — Jim Banks (@RepJimBanks) [September 15, 2021](https://twitter.com/RepJimBanks/status/1438206832959500289?ref_src=twsrc%5Etfw)
 
 
 

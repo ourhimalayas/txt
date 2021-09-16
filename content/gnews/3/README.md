@@ -2,33 +2,36 @@
 ---
 
 
-## 澳门启动《博彩法》咨询 将引入政府代表
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1535620/)
+## 银河快讯：日本央行对日本公司持乐观态度；日本陆上自卫队开始全国性演习
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1535666/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-50.png)[图片来源](https://news.ifeng.com/)
+**1.****日本央行对日本公司持乐观态度**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-15-PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+[据路透社  9月15日报道，日本央行行长黑田东彦周三表示，尽管东南亚工厂停工导致供应链中断，产量受到打击，但强劲的利润将有助于企业加大资本支出。黑田在一个在线研讨会上说：“由于在疫苗接种方面取得了进一步的进展，随着中共病毒影响的减弱，日本的经济将会复苏，”他补充说，随着消费从大流行病的伤痕中恢复，经济的良性循环将会加强。虽然日本的通货膨胀压力比美国和欧洲要弱，但公司并没有像日本在20世纪90年代末的20年通货紧缩时期那样广泛采用降价手段来吸引需求。尽管如此，2023年的消费者通胀率仍将远低于2%，约为“1%或略高于1%”，部分原因是削减手机费用等临时因素。他补充说，“如果有必要，我们将进一步放宽货币政策，比如降息。”](https://cn.reuters.com/article/japan-economy-boj/bojs-kuroda-upbeat-on-japan-inc-despite-supply-disruptions-idUSKBN2GB1CB)
 
-视频参看： 2021.09.15晚GTV新闻访谈
+**2.****日本陆上自卫队开始全国性演习**
 
-[https://www.youtube.com/watch?v=Ula6ZIhgYKE](https://www.youtube.com/watch?v=Ula6ZIhgYKE)
+[据共同社  9月16日报道，日本陆上自卫队周三开始了约30年来首次涉及所有部队的全国性演习，试图提高威慑力并加强其能力。GDSF的演习，包括运输必要的物资和测试通信系统，将在全国范围内进行，直到11月底，目的是加强保卫偏远岛屿的能力。陆上自卫队上次进行如此规模的演习是在冷战结束后的1993年。大约10万名人员、2万辆汽车和120架飞机将参加演习，日本的海上自卫队和航空自卫队以及美军的一艘登陆舰也将参加。](https://english.kyodonews.net/news/2021/09/fb0d69ab3fff-japan-ground-troops-begin-nationwide-drills-for-1st-time-in-30-years.html)
 
-[https://gtv.org/broadcast/watch/61429380751e4f2b0e53b6c9](https://gtv.org/broadcast/watch/61429380751e4f2b0e53b6c9)
+**3.****朝鲜的导弹对日本构成的威胁越来越大**
 
-编辑/校对/发稿：香草山翻译部 – Lakers
+[据产经新闻 9月15日报道，日本政府被迫对朝鲜15日发射的弹道导弹作出回应。 起初，政府宣布这两枚弹道导弹落在日本专属经济区（EEZ）之外，但后来发现这两枚导弹是一种“新型”导弹，弹道不规则，防卫大臣岸信夫修改了他的声明，说：据推测，导弹落在日本的专属经济区内。这是两年以来，朝鲜弹道导弹首次落入日本的专属经济区内。 岸先生表示，这枚导弹的射程约为750公里，最大高度约为50公里，并强调：“我们将与美国、韩国和其他有关国家密切合作，坚决保护国民的生命与和平生活方式。”](https://news.yahoo.co.jp/articles/f77a273dc2f67a801a792bf272b608b9f07a8331)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-2.png)
+**4.****日本和东盟将加强对疫情后恢复的努力**
 
-**更多资讯，更多关注**
+[据共同社9月16日报道，日本和东南亚国家联盟周三同意，在中共病毒疫情影响工业产出后，加强其经济复苏的努力。双方的经济部长在视频会议后发布的一份联合声明中说，双方将扩大去年通过的一项计划，包括加强供应链的复原力，保证贸易程序的顺畅和促进数字技术。根据声明，2020年日本与东盟10个成员国之间的贸易总额为2040亿美元，比前一年下降了9.7%，而日本在该集团的直接投资下降了64.4%，至85亿美元。会议期间，部长们还同意确保《区域全面经济伙伴关系》自由贸易协定在1月初生效。](https://english.kyodonews.net/news/2021/09/6faaaf083efd-japan-asean-to-enhance-efforts-toward-post-pandemic-recovery.html)
 
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**5.****日本在同一批次的更多辉瑞疫苗中发现异物**
 
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[据共同社 9月16日，地方政府周三表示，在东京及周边地区的更多未使用的辉瑞疫苗的小瓶中发现了白色物质，所有这些小瓶都来自前一天报告的同一批次。这些含有白色漂浮物的小瓶属于FF5357批次，是在东京西部的日野和埼玉县的川越的疫苗接种点发现的。在这些报告之前，神奈川县的相模原市和镰仓市以及大阪府的堺市也于周二作出报告。](https://english.kyodonews.net/news/2021/09/84d0b236f714-matter-found-in-more-pfizer-covid-vaccine-from-same-lot-in-japan.html)
 
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+**6.****日银将继续购买企业债券与绿色债券**
 
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[据彭博社 9月15日报道，黑田在美洲国际经济论坛（IEFA）主办的一次会议上发表在线演讲时说，日本银行正在根据其职责采取措施应对气候变化。 日银将继续购买企业债券，包括绿色债券。他指出，日本的通货膨胀与西方不同，他说，如果不考虑临时因素，日本的物价增长是略微积极的。央行致力于尽快实现2%的通胀目标，必要时加大宽松措施的力度。](https://news.yahoo.co.jp/articles/779c8e18ec9941f6598dea50f808934c77035faf)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Curiousity
 
 0

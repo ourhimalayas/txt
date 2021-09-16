@@ -2,35 +2,19 @@
 ---
 
 
-## 视频| 灭共七剑客
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1535498/)
+## 【 #G时新闻 】🔥 &#8211; 纽约检察长终止对GTV和Saraca两家公司所有刑事调查
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1535655/)
 
-制作：香草山视频部
+纽约检察长终止对GTV和Saraca两家公司所有刑事调查。从而证明两家公司没有涉及刑事犯罪，同时也说明了共产党的虚假报案！这是爆料革命的巨大胜利！
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+播报： 小苹果lily 制做：北美小哥
 
+[参考链接](https://gnews.org/zh-hans/1534601/) [文贵先生盖特链接](https://gettr.com/post/pb4d562b94)
 
+[【G时新闻】盖特链接](https://gettr.com/post/pb49xp8dd3)
 
+* * *
 
-
-
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+编辑/上传 云起时
 
 0
