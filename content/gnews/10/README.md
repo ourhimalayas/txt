@@ -2,47 +2,56 @@
 ---
 
 
-## 接种中共病毒疫苗，致全球脱发病人激增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535722/)
+## 调查记者正在编制一份Covid 疫苗所有副作用的清单
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1535773/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/莫德纳-1.jpg)
-图片来源：ayapipipiii IG、Ameba
+**【简评】***随着新冠疫苗副作用的逐渐暴露和爆发，所谓“疫苗”的真相和逐渐被更多人所了解。调查记者Attkisson将这些副作用都记录起来，让更多的人们了解新冠疫苗的有害反应。爆料革命新中国联邦早就警告全世界， 不要接种问题多多的新冠疫苗。*
 
-**【雅典娜快讯】，紧贴时事脉搏**
+据《DR. EDDY BETTERMANN MD》记者Ethan Huff 2021年9月14日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/09/CCD4A58C-85B3-421B-9FF8-DCD2B51ED40E.jpeg)
+调查记者 Sharyl Attkisson 正在将所有已知的中共冠状病毒 (Covid-19)“疫苗”（造成的）伤害和死亡病例，记录到她网站上的一个运行列表中。
 
-据报道，到目前为止，已有近1,700人因为接种中共病毒 (Covid-19)疫苗后脱发。
+一些最新的更新包括中枢神经系统脱髓鞘、功能性神经系统疾病、免疫力下降、贝尔麻痹、抗体依赖性增强 (ADE)、心脏病、格林-巴利自身免疫性麻痹、格雷夫斯病和血凝块，所有这些都源于疫苗注射。
 
-根据世界卫生组织(WHO)的数据显示，自身免疫性脱发问题在接种疫苗的人中快速蔓延。
+尽管美国疾病控制与预防中心 (CDC) 声称所有中共病毒疫苗注射都是“安全有效的”，但 Attkisson 的运行清单表明情况并非如此。
 
-一名年轻的日本女孩在社交媒体上曝光了她因打疫苗引起的脱发问题（如上图）。这个名字为”Ayapipipiii “的女孩展示了她的光头照片。据悉，Ayapipipiii在接种第一剂莫德纳（Moderna）实验性疫苗后开始脱发。
+事实上，VAERS（疫苗不良事件报告系统）中记录的福奇流感疫苗伤害和死亡人数似乎比所有其他疫苗的总和还要多 ，这使得“曲速行动（Operation Warp Speed）”注射成为有史以来最危险的注射之一。
 
-另外，美国的疫苗不良事件报告系统(VAERS)包含大约846起类似的，由中共病毒疫苗引起的自身免疫性脱发的报告。
+在 Attkisson 的网站上，您可以根据安全问题、接种的疫苗类型和国家/地区对伤害和死亡案例进行分类和审查。您还可以查看有关疫苗接种的其他阅读材料和研究。
 
-例如，来自美国加利福尼亚的一名54岁男子在接种第一剂辉瑞疫苗后，报告了与Ayapipipiii类似的经历。
+有很多关于中共病毒疫苗注射有害反应的报道，以至于一些人现在呼吁英国药品和保健品监管局完全停止使用它们，因为它们“对人类使用不安全”。
 
-“我全身脱发，”该男子在他的VAERS报告中写道。 “包括头部/头皮、眉毛、睫毛、鼻毛、小胡子、腋毛、胸毛、阴毛/腹股沟毛、手臂/腿。我的身体发生了巨大变化。我变成秃头。家人和朋友以为我得了癌症。”
+许多接受疫苗注射的人正在经历出血和血液凝固、慢性疼痛、免疫系统损伤、神经系统问题以及视力、听力、嗅觉和言语丧失。还有关于孕妇是否应该被接种疫苗的问题。
 
-一名来自马里兰州的25岁年轻女性，在接种强生(J&J)疫苗后四天，同样出现了“完全脱发”和“头皮灼热感的问题”。
+**药学教授呼吁“不批准”所有新冠病毒疫苗**
 
-来自新泽西州的一个更年轻的14 岁女孩，在接种第一剂辉瑞疫苗后大约十天，她的头发开始全部脱落。最初，这女孩的母亲将其归咎于“压力过大”，但最终家人将这种情况归咎于疫苗。([阅读更多此类报告](https://www.lifesitenews.com/news/1600-reports-of-hair-loss-following-covid-19-shots/))
+马里兰大学药学院药物健康服务研究系教授琳达·瓦斯蒂拉 (Linda Wastila)  最近发起了一份请愿书，呼吁“疫苗之父”唐纳德·川普的“曲速行动” 立即停止注射疫苗。
 
-“在多项研究中，脱发症与疫苗接种有关，”LifeSiteNews报道。
+共有来自 17 个不同国家的 57 位作者签署了瓦斯蒂拉的请愿书，敦促最终停止对有问题的注射剂的所有进一步管理，至少在新的“安全机制”到位以保护公众健康之前是这样。
 
-“2015 年的医学教科书《疫苗与自身免疫》用一章专门介绍该主题，并引用了一项研究，60人在接种疫苗后出现了这种情况，其中48人接种了乙型肝炎疫苗。”
+Peter McCullough 博士是请愿书的签署人之一， 他说疫苗注射“没有临床益处”，而且存在很多安全问题。McCullough 是一名心脏病专家，目前在德克萨斯 A&M 大学健康科学中心教授内科 。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+请花一些时间浏览 Attkisson 的 Covid 疫苗不良反应清单，并确保与他人分享这些信息。如果真相让一些人意识到注射中共细菌是一个非常糟糕的主意，那么您可能会挽救一些生命。
 
-**参考新闻：**[Want to go bald? Get a covid “vaccine!” (newstarget.com)](https://www.newstarget.com/2021-09-15-want-to-go-bald-get-covid-vaccine.html)
+“这确实是《纽伦堡法典》和《赫尔辛基公约》明确定义的危害人类罪。”一位在 Attkisson 网站上关于中共冠状病毒 (Covid-19) 疫苗的评论者写道。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+“法律要求私营公司在广告中以口头和书面形式公布其药物的副作用，”另一位写道。“推动疫苗注射的公共机构没有遵循这些规则。他们对副作用保持沉默。感谢您反驳他们的疏忽。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+其他人则讲述了他们自己、朋友或家人如何因福奇流感接种疫苗而病重或更糟的故事。许多人证实了 Attkisson 概述的案例，这些案例似乎比主流媒体报道的要普遍得多。
 
-0
+“疫苗相关的死亡人数比 VAERS 报告的高 5 倍。”另一位评论说 VAERS 如何仅记录疫苗造成的实际伤害和死亡的一小部分。
+
+要了解有关疫苗造成的伤害和死亡的最新消息，请务必查看 ChemicalViolence.com。
+
+文章来源：[https://dreddymd.com/2021/09/14/sharyl-attkisson-is-compiling-a-running-list-of-all-covid-vaccine-injuries-harmful-reactions/](https://dreddymd.com/2021/09/14/sharyl-attkisson-is-compiling-a-running-list-of-all-covid-vaccine-injuries-harmful-reactions/)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – 柯镇恶
+评论：洛杉矶盘古农场– Raul
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1

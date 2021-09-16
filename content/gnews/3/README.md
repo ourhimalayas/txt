@@ -2,28 +2,43 @@
 ---
 
 
-## 澳大利亞、美國和英國將發表聯合國家安全聲明
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hant/1535758/)
+## 维基百科为预防中共渗透和用户信息泄密风险而对中共国编辑下禁令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hant/1535669/)
 
-【簡評：】*雖然被稱為**“**AUUKUS**”**的美澳英三方協議中沒有明確提到中（共）國，但他們都指出，宣佈的潛臺詞是，這是西方盟友在軍事和技術領域應對中國崛起的又一舉措。美國官員稱，向澳大利亞轉移核潛艇這一絕對敏感技術的操作打破了美國政策的常規，是**“**例外**”**。該官員同時聲稱，美國的行動十分必要，其目的是向亞洲國家釋放資訊，讓他們安心。黨媒《環球網》用**“**露出獠牙**!**”**和**“**小集團**”**來形容**“**AUUKUS**”**。不知**“**AUUKUS**”**與拜習剛剛的通話有沒有關聯。*
+栏目记者/责任编辑：AsG諾雅
 
-據《天空新聞臺》2021年9月15日報道：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-56.jpg)圖片來源：天空新聞臺
-澳大利亞國防部長彼得·達頓 (Peter Dutton) 與美國國防部長勞埃德·奧斯汀 (Lloyd Austin) 在五角大樓進行高層會談。今天上午，澳大利亞、美國和英國將宣佈一項具有里程碑意義的國家安全聲明。
 
-澳大利亞正尋求加入與美國和英國的新聯盟，這將向中（共）國發出一個強有力的資訊，即表明澳大利亞在南中國海、東南亞和印度太平洋地區的存在。
 
-喬·拜登將於澳大利亞東部標準時間今天上午 7 點發表講話，宣佈美國和澳大利亞在潛艇計畫和核能等先進國防技術共用達成聯合協議。此舉將對澳大利亞與法國海軍集團的900億美元合同（該合同包含至多12艘核動力潛艇）產生影響。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-173.png)
 
-原文連接：[https://www.skynews.com.au/world-news/united-states/australia-us-and-uk-to-make-joint-national-security-statement/video/cd910d9a7bf77491a44640c4fc1a6cf6](https://www.skynews.com.au/world-news/united-states/australia-us-and-uk-to-make-joint-national-security-statement/video/cd910d9a7bf77491a44640c4fc1a6cf6)
 
-翻譯：洛杉磯盤古農場 – 鋼蛋兒
-校對：洛杉磯盤古農場–Mike Li
-評論：洛杉磯盤古農場 – 鋼蛋兒
-編輯：洛杉磯盤古農場 – 柯鎮惡
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【德国之声】9月15日援引《香港自由新闻》14日消息，维基媒体基金会因为部分中共国用户运用职权，威胁要向港警国安处举报维基百科的香港编辑或管理员，而对多名中共国用户下达禁令，撤销了7名中共国用户的登录权与另外12名用户的管理与编辑权。消息一出，就引起中共国大陆维基人（WMC）用户组的战狼式攻击。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/维基百科为预防中共渗透和用户信息泄密风险而对中共国编辑下禁令.jpg)
+维基媒体基金会副总裁丹尼斯周二发布的声明中表示，维基百科对一个由近300名维基百科用户组成的、未被官方认可的中共国大陆维基人（WMC）群体展开了调查，并认定该组织存有中共渗透维基媒体系统的安全风险，包括透过职位接触个人身份信息以及对选举机制施加影响力。她还透露，部分维基百科用户“由于中共国用户社群的渗透而受到了身体上的伤害”。
+
+中共政府自2019年就封锁了维基百科网站，但部分相关用户在维基社群中仍相当活跃。2019年香港“反送中”运动以来，香港与中共国的维基百科编辑便对事实认定与如何描述事件出现了政治分歧。据报，2019年起，6名新当选的新中文维基管理员中，有两名香港人，其中一人曾公开支持中共政府。中文版的用户曾为选举违规进行拉票，试图确保中共国管理员当选。
+
+通过爆料革命和文贵先生等词条在维基解密平台上的不实内容，证明了中共势力已经渗透进入该平台。中共一边禁止维基解密，一边派人渗透捣乱的行经，充分暴露其虚伪和邪恶的本质。
+
+（本文仅代表作者观点）
+
+信息链接：
+1. [维基百科为预防中共渗透和用户信息泄密风险而对中共国编辑下禁令](https://www.dw.com/zh/%E5%BF%A7%E6%B8%97%E9%80%8F%E4%B8%8E%E8%B5%B7%E5%BA%95%E9%A3%8E%E9%99%A9-%E7%BB%B4%E5%9F%BA%E7%99%BE%E7%A7%91%E5%AF%B9%E4%B8%AD%E5%9B%BD%E7%BC%96%E8%BE%91%E4%B8%8B%E7%A6%81%E4%BB%A4/a-59185673)
+2. [维基百科为预防中共渗透和用户信息泄密风险而对中共国编辑下禁令](https://zh.m.wikipedia.org/zh/%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-148.png)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-173.png)
 
 0

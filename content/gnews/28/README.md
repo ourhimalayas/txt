@@ -2,50 +2,19 @@
 ---
 
 
-## 《GTV新闻访谈》重要提醒：YouTube备用账号
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534906/)
+## 秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1535295/)
 
-栏目记者/责任编辑：Zion文恩
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-1.png)图片来源：Gettr
+据环球网9月15日报道，中共国新任驻英国大使郑泽光原本收到英国议会邀请，在议会下院的一个露天阳台参加一个招待会并发表致辞。但就在招待会开始的前一天，英国议会上议院和下议院议长同时做出决定，禁止中共大使进入英国议会大厦。
 
+中国在 3 月份对 9 名英国政客、律师和一名学者实施制裁，原因是他们散布了关于该国西部维吾尔族穆斯林所受待遇的“谎言和虚假信息”。有7名议员向议会提出投诉：“如果一个政权的官方代表刚刚禁止议员进入中国领土，因为他们在下议院站出来大声疾呼，那将是对议会和民主赖以建立的言论自由原则的侮辱。” 下议院议长林赛霍伊尔说，我认为，当中国对我们的一些成员实施制裁时，中国大使在下议院和我们的工作地点会面是不合适的。” 上院议长麦克法尔的声明则表示，“两院议长一致认为，考虑到目前对成员的制裁，这次中国会议应该在其他地方举行。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+近来世界各国开始对中共国开始说“不”， 包括美国近日表示考虑要把台湾驻美机构更名为“台湾代表处”。 这些举动都大大激怒了中共。对这次禁止中共大使进入英国议会，中共的发言人只能说，这一决定反映了英方一些人的狭隘心理，我们予以鄙视和强烈谴责。
 
+**新闻来源：**[补壹刀：英国议会不让中国大使进门，谁撺掇的？ (huanqiu.com)](https://world.huanqiu.com/article/44mU8nE2fcx)
 
-
-
-
-因本节目的YouTube频道后台近期频繁收到所谓“虚假医疗信息“的社区准册警告，随时可能被永久封号，请大家同时关注本节目的备用频道，链接将放在本期节目视频上传之后的简介里。
-
-《GTV新闻访谈》YouTube备用账号链接：
-
-[喜马拉雅农场联盟二号台](https://www.youtube.com/channel/UCL3xNG1Od0xMW2ERyq9Pg2g/featured)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-22.jpg)
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Q大哥，Ryan，暗黑
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
-+1
+0

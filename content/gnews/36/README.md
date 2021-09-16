@@ -2,31 +2,27 @@
 ---
 
 
-## 拜登将宣布美英澳先进科技分享协议剑指中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535532/)
+## 新州最新周报隐瞒死亡病例的疫苗接种情况
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535622/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/article-5f7bd64888e13-e1631757631770.jpg)
-编辑摘要：
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：The Conversation
+**整理报道：**翼族
 
-据路透社9月15日报道，美国政治新闻机构Politico称，美国总统拜登将在当天针对国家安全发表演说，宣布成立一个新工作组，意在与英国及澳洲西方联盟分享先进科技，对抗中共国在军事及科技领域的崛起。
+自六月份以来，澳大利亚新南威尔士州深陷德尔塔病毒的疫情之中。数周以来，新州每日新增病例都在一千人以上。截止到8月28日的每周监测报告显示，自六月份以来新州死亡病例总数为91人，已远远超过此前的总和56人。
 
-美、英、澳3国工作组缩写为AUUKUS，让彼此在人工智慧、网路、水下系统及长距离打击能力等领域分享资讯。协议包括核子元素，美国及英国将分享如何维护核防御基础设施。
+新州政府面对民众不满的巨大压力，采取回避政策，暂停了每日召开的媒体发布会。与此同时，新州政府还停止公布每日死亡病例的疫苗接种情况。新州政府的不透明操作给该州民众带来更大的恐慌，近期疫苗接种率节节攀升。
 
-中共对全世界每一个国家的安全都是威胁，就算强大如美国也要联合西方力量共同来对抗，否则早晚会遭受致命的打击。
+[新州卫生部官网](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)自7月24日起，每周监测报告都详细描述了死者的疫苗接种情况。在持续公布五周之后，最近一期截止到8月28日的每周监测报告没有公布死者的疫苗接种情况，只显示“8月22日至8月28日这一周共死亡16人”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/covid-surveillance-report-20210913-1.jpg)图片来源：https://www.health.nsw.gov.au/
+（文章内容仅代表作者个人观点，与GNEW无关）
 
-新闻参考链接：[剑指中国-传拜登将宣布美英澳先进科技分享协议](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210915-%E5%89%91%E6%8C%87%E4%B8%AD%E5%9B%BD-%E4%BC%A0%E6%8B%9C%E7%99%BB%E5%B0%86%E5%AE%A3%E5%B8%83%E7%BE%8E%E8%8B%B1%E6%BE%B3%E5%85%88%E8%BF%9B%E7%A7%91%E6%8A%80%E5%88%86%E4%BA%AB%E5%8D%8F%E8%AE%AE)
+*编辑/发布：翼族*
 
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
