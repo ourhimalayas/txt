@@ -2,23 +2,23 @@
 ---
 
 
-## 秘翻在线：爱尔兰调查TikTok侵犯儿童隐私和非法数据转移
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536064/)
+## 美、英、澳之间的安全协议
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1536272/)
 
-#### 撰稿：彩虹
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09162.jpg)
+美国和英国将帮助澳大利亚装备核动力潜艇，这是以AUkUs命名的历史性三边安全伙伴关系的一部分。这被认为是一项重要的战略协议，它将把美国、英国与澳大利亚的未来安全联系起来。也是对中（共）国的明确警告。尤其是在拜登与四国领导人会晤后立即宣布结盟：由日本、印度、美国和澳大利亚组成的印太民主四边形，目前被美国人定义为真正的遏制中（共）国在太平洋、中（共）国海和西太平洋地区的扩张。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-2-3.jpg)图片来源：美联社
-9月15日，《国会山报》（TheHill）记者奥拉菲米汉·奥辛（Olafimihan Oshin）撰文，指DPC（爱尔兰数据保护委员会）将对TikTok发起调查，主要针对该社交平台处理儿童个人数据和向中共国转移数据的行为。
+该协议标志着合作迈向绝对重要的一步。 现在新的三方联盟将建立新的信息共享渠道并共同努力开发先进技术，包括网络安全、人工智能、量子计算以及海底能力等领域。
 
-DPC在周三的一份声明中说：“第一次调查将审查TikTok是否符合GDPR（通用数据保护条例）的数据保护设计和默认要求，因为它们与18岁以下用户的平台设置和13岁以下人员的年龄验证措施有关。”GDPR是2016年欧盟通过的一项隐私法。
+莫里森表示，这三个州的专家将在未来 18 个月内共同努力让澳大利亚建造核潜艇。同时拜登也强调说：“这是三个国家之间的另一个历史性的加深和合作方式。因为这来自大家都承认的迫切需要，以确保在印太地区的和平与稳定。我们需要能够解决该地区当前的战略形势及其可能演变的方式，我们的国家以及整个世界的未来取决于未来几十年自由开放、持久和繁荣的印太地区。”
 
-DPC的第二次调查将关注TikTok将个人数据转移到中共国，调查其是否符合GDPR关于数据转移的要求。
+此举显然激怒了中（共）国，中（共）国通过驻美大使刘鹏宇呼吁美、英、澳摆脱冷战思维和意识形态偏见，并表示这三个国家不应建立针对或损害第三方利益的障碍。
 
-值得注意的是，中共控制的TikTok发表了一份声明，说“TikTok …… 并依靠经过批准的方法从欧洲传输数据（到中共国）。”
+免责申明：本文只代表译者观点，与Gnews无关
 
-编者以为，如果TikTok声明所说为实，那么，欧盟在保护自身和儿童隐私数据和安全方面就需要进行全面的立法限制，否则，将进一步葬送自己和后代，万劫不覆。
+原文链接：[https://www.repubblica.it/esteri/2021/09/16/news/biden\_partnership\_con\_gb\_e\_australia\_sulla\_sicurezza\_nell\_accordo\_si\_parla\_anche\_di\_sottomarini\_a\_propulsione\_nucleare-317995166/?ref=RHTP-VS-I270681069-P18-S1-T1](https://www.repubblica.it/esteri/2021/09/16/news/biden_partnership_con_gb_e_australia_sulla_sicurezza_nell_accordo_si_parla_anche_di_sottomarini_a_propulsione_nucleare-317995166/?ref=RHTP-VS-I270681069-P18-S1-T1)
 
-新闻来源：[Ireland to investigate Tik Tok over child, China data concerns](https://thehill.com/policy/technology/572489-ireland-to-investigate-tik-tok-over-over-child-china-data-concerns?rl=1)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
 
 0

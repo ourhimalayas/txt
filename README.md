@@ -13,20 +13,20 @@
 
 ---
 
-### [以色列報告有1/10的兒童在感染急性期過後仍有症狀](/content/gnews/1/README.md)
- ` 纽约香草山MOS03`
+### [9/16/2021 Financial News: China Books Costly Oct/Nov Soybean Shipments from Brazil; Eastern Airlines Passenger Turnover in August Fell 55.7%](/content/gnews/1/README.md)
+ ` 秘密翻译组金融团队`
 
-### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [DC大中华时事：斯洛文尼亚总理致函欧盟27国领导人力挺立陶宛与台湾对抗中共](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [DC大中华时事：斯洛文尼亚总理致函欧盟27国领导人力挺立陶宛与台湾对抗中共](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚将建造八艘核动力潜艇](/content/gnews/4/README.md)
- ` Shuizhuyu`
+### [拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共会公布泸州地震遇难人数的真实数据么？](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
+### [法军杀死萨赫勒圣战组织领导人](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [2021年9月15日 文贵先生盖特 11](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -37,14 +37,14 @@
 ### [2021年9月15日 文贵先生盖特 9](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [心梗，脑梗成常态，疫苗引起的肛梗也不稀奇](/content/gnews/9/README.md)
+### [英国在完全解封后能否安全度过今年冬天](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [心梗，脑梗成常态，疫苗引起的肛梗也不稀奇](/content/gnews/10/README.md)
+ ` 澳喜农场`
 
-### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [美英澳组印太安全联盟 中共外交部斥“不负责任、搞小圈子”](/content/gnews/12/README.md)
  ` G&#124;News TAIWAN`
@@ -103,40 +103,40 @@
 ### [秘翻在线：澳门博彩巨头股票集体跳水 受中共监管风暴冲击](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚将建造八艘核动力潜艇](/content/gnews/31/README.md)
- ` Shuizhuyu`
-
-### [断网前奏傀儡之都](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚将从美国购买远程战斧导弹](/content/gnews/33/README.md)
- ` Charlie`
-
-### [美、英、澳之间的安全协议](/content/gnews/34/README.md)
- ` Charlie`
-
-### [Facebook创建了一份特权人士名单](/content/gnews/35/README.md)
- ` Charlie`
-
-### [SpaceX公司发射4名业余爱好者进行私人绕地球旅行](/content/gnews/36/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：爱尔兰调查TikTok侵犯儿童隐私和非法数据转移](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [币圈新闻动态：印度国家银行已禁止加密货币交易所使用其平台收款](/content/gnews/38/README.md)
+### [DC大中华时事：斯洛文尼亚总理致函欧盟27国领导人力挺立陶宛与台湾对抗中共](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
+### [拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法军杀死萨赫勒圣战组织领导人](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳大利亚将建造八艘核动力潜艇](/content/gnews/34/README.md)
+ ` Shuizhuyu`
+
+### [断网前奏傀儡之都](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳大利亚将从美国购买远程战斧导弹](/content/gnews/36/README.md)
+ ` Charlie`
+
+### [美、英、澳之间的安全协议](/content/gnews/37/README.md)
+ ` Charlie`
+
+### [Facebook创建了一份特权人士名单](/content/gnews/38/README.md)
+ ` Charlie`
+
+### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大雷爆CCP的末日还会远吗](/content/gnews/40/README.md)
  ` 银河勇气之星`
 
-### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/40/README.md)
+### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/41/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [拜登政府希望印度继续成为中共国的附庸国](/content/gnews/41/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [言论自由并非唾手可得，除非挺身而出勇敢发声](/content/gnews/42/README.md)
+### [拜登政府希望印度继续成为中共国的附庸国](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [09/15/2021 国际财经快讯：全球债务正快速接近创纪录的300万亿美元；美国证券交易委员会将发布GameStop报告](/content/gnews/43/README.md)
@@ -175,12 +175,12 @@
 ### [日本民众对新版iPhone没有指纹认证功能感到失望](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [己所不欲勿施于人](/content/gnews/55/README.md)
+### [SpaceX公司发射4名业余爱好者进行私人绕地球旅行](/content/gnews/55/README.md)
+ ` 澳喜农场`
+
+### [己所不欲勿施于人](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/56/README.md)
+### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [教育“双减”政策，减了谁的负担？](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
