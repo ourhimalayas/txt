@@ -15,6 +15,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 12:54 PM (UTC)`
+
+An brief introduction on the settlement between GTV and the SEC<br/>GTV与SEC的和解简介
+![img](https://media.gettr.com/group25/getter/2021/09/16/12/80cf56a7-04b5-d77d-634b-2b087630f439/out.jpg)
+
+---
+
+`@miles 9/16/2021 12:51 PM (UTC)`
+
+恒大财富暴雷，受害者聚集讨要说法<br/>Evergrande Wealth P2P product defaults whilst victims gather to demand justice
+![img](https://media.gettr.com/group36/getter/2021/09/16/12/365ed043-74bb-a61b-a8b2-ffd5916a9041/out.jpg)
+
+---
+
+`@miles 9/16/2021 12:46 PM (UTC)`
+
+SOHO China Plummets 40% After Blackstone Takeover Falls Apart<br/><br/>黑石放弃收购后，SOHO中国股价暴跌40%
+![img](https://media.gettr.com/group41/getter/2021/09/16/12/8749e4b0-0182-86d7-b205-a867c4aa5010/out.jpg)
+
+---
+
 `@miles 9/16/2021 6:27 AM (UTC)`
 
 9/15/2021 班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家进行战争的不归路，结果将导致无数人丧生，这也就是为什么摧毁这些邪恶势力是我们的使命！<br/>9/15/2021 Steve Bannon: The West is heading to war with the CCP and other evil countries due to our failure to stand up to evil! As a result, countless lives will be thrown away. That is why our mission is to destroy these evil forces!
@@ -271,27 +292,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/12/2021 Miles Guo: Bitcoin is the tool for a few people to launder money! The essence of the deal between the CCP and Saudi Aramco is the CCP’s attempt to internationalize the RMB, which is a global financial power-wrestling! <br/><br/>9/12/2021 文贵直播：比特币就是少数人用来洗钱的工具！中共和沙特阿美的协议的本质是共产党将人民币国际化的企图，这是一场全球金融的较量！
 ![img](https://media.gettr.com/group42/getter/2021/09/13/00/14240dc9-2d12-26f9-22de-9ae054d83222/out.jpg)
-
----
-
-`@miles 9/13/2021 12:24 AM (UTC)`
-
-<br/>9/12/2021 Miles Guo: Zhang Hongwei, whose boss is Chen Yuan, got the biggest commission ever paid in the history of mankind - $120 billion! Most of the money went to Bitcoin and will change the political situation in the Communist China!<br/><br/>9/12/2021 文贵直播：陈元手下的张宏伟拿到了人类有史以来最大的一笔中介费 - 1200亿美元！这笔钱大部分都流向了比特币，并将改变中共国的政局！<br/>
-![img](https://media.gettr.com/group1/getter/2021/09/13/00/3838a6ac-08e0-1578-4342-c3843c798236/out.jpg)
-
----
-
-`@miles 9/12/2021 10:36 PM (UTC)`
-
-9月12号：尊敬的战友们好，明天星期一．没有直播，我们星期二上午9:00．继续开始我们的大直播，一切都已经开始……共产党你完蛋了！
-![img](https://media.gettr.com/group26/getter/2021/09/12/22/dace6924-c029-d5fd-3125-6f3c0c466376/d19806403b3802c7be799baf4d9283c5.jpg)
-
----
-
-`@miles 9/12/2021 10:30 PM (UTC)`
-
-WOW <br/><br/>【郭先生说要做死辉瑞，本id随便看看走势。这是一波毫无节操的通过强制疫苗，强制拉升股价的走势，其上升阶段犹如投胎转世，方块中枢后离开段走势完美，直上51.86最高价,离开段级别甚小，毫无中枢可言。相应的，现在已经macd回0轴以下，下面40块以上空空如也，随便跌。不用文贵开堵，跌到40元也不是问题】
-![img](https://media.gettr.com/group22/getter/2021/09/12/22/5170208a-b909-1818-fad5-5c434b6937f4/d78928f7fa883ac8eabdeefce67dd0ca.jpg)
 
 ---
 
