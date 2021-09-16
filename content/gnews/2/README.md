@@ -2,35 +2,40 @@
 ---
 
 
-## Huawei Infiltrates into UK University Cambridge
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/1535460/)
+## 黑石终止Soho要约收购, 导致Soho中国股价暴跌40%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1535494/)
 
-September 15th，2021
-![](https://assets.gnews.org/wp-content/uploads/2021/09/db2ef0f4888c4d7185f04a2ef04e633b.jpeg.jpg)
-In an article published by the Daily Mail.com on September 13th, 2021, Chinese tech firm Huawei has ‘infiltrated’ a university research centre in the UK– the Cambridge Centre for Chinese Management (CCCM). It was revealed that three out of four directors at this centre have ties to Huawei, the Chinese tech giant.
+【简评：】*潘石屹和张欣这两个孙子永远是演员，他在国内是演员，是白手套，刚刚被虐待完，跑到美国来了。写了保证书，且有担保人。潘石屹在美国也照样是白手套，照样是犯罪，照样是洗钱**，**照样是偷税漏税，这种人渣到了哪里都是人渣。*
 
-Critics in the UK call for an ‘urgent inquiry’ into the country’s dependency on China, not only in Cambridge but across a range of institutions and companies in the UK that had grown ‘far too dependent on Chinese money’ in recent years.
+据《彭博社》2021年9月13日报道：
 
-Cambridge University has been described as ‘one of the worst offenders’ when it came to relying on money from China and becoming a ‘mouthpiece for the Chinese Communist Party.
+黑石集团(BlackStone Group, BX)终止30.4亿美元的SOHO中国的要约收购后，SOHO中国在香港证券交易所的股价遭遇重挫。
 
-Huawei, which has been banned from joining Britain’s 5G network over national security concerns, has denied any impropriety of its doing aforementioned.
+在黑石集团决定不进行收购后，这家总部位于北京的公司周一股价下跌了 40%，这是SOHO第二次尝试寻求出售并遭遇失败。Soho周五在给香港证券交易所的一份声明中表示，在满足要约收购的先决条件方面进展不足。
 
-[To read about the story in length, please click here](https://www.dailymail.co.uk/news/article-9984599/Calls-inquiry-Huaweis-links-three-four-directors-Cambridge-research-centre.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
+自 2020 年初以来，Soho一直被视为收购目标。因为其缺乏新资产注入，而且中国主要城市的写字楼租金下降对其利润施加了越来越大的压力。在监管机构的打击下，中国的商业地产空间正面临压力，开发商正面临资金流动性短缺。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-54.jpg)
+6 月，黑石提出以高达237亿港元（30亿美元）的价格收购Soho，尚待监管部门批准。上个月，中国反垄断监管机构表示已正式接受该交易审查。
 
-**Edited by：【Himalaya London Club UK】**
+这家中国开发商在2020年3月表示，它正在与海外金融投资者就一项可能导致竞购该公司的潜在交易进行谈判。当年8月，该公司表示，之前与潜在投资者的所有谈判都已终止。
 
-*Editor: Johnston-Zhang/PR: LaBelle*
+黑石于6月宣布每股5港元的报价，溢价为 31.6%。 根据声明，双方得出的结论是，在要约最后截止日之前无法满足先决条件，也不会推迟最后截止日。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-26.jpg)北京望京SOHO项目。图片来源: Qilai Shen/Bloomberg
+黑石在宣布收购要约时表示，自 2008 年以来，黑石一直在中国投资办公、零售和物流资产，在中国拥有约 600 万平方米的物业。 知情人士去年表示，该公司正在亚洲加倍投资，希望为一只专注于该地区的基金筹集至少50亿美元。
 
+SOHO中国由董事长潘石屹和首席执行官张欣于1995年创立。公司的主要资产包括其标志性的上海外滩SOHO和北京地标性的望京SOHO，望京SOHO由扎哈·哈迪德(Zaha Hadid)设计，她是首位获得普利兹克建筑奖(Pritzker Architecture Prize)的女性。
 
+原文连接：[https://www.bloomberg.com/news/articles/2021-09-13/soho-china-plummets-40-after-blackstone-takeover-falls-apart](https://www.bloomberg.com/news/articles/2021-09-13/soho-china-plummets-40-after-blackstone-takeover-falls-apart)
 
-- [Click here to read more articles in G-News](https://gnews.org/author/himalaya_hawk/)
-- [Click to watch the exciting video on G-TV](https://gtv.org/user/5ee680a45bd6f123dd104807)
+（本文评论仅代表个人观点）
 
+翻译：洛杉矶盘古农场–钢蛋儿
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–钢蛋儿
+编辑：洛杉矶盘古农场–明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Edited by：【Himalaya London Club UK】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

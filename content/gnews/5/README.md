@@ -2,33 +2,42 @@
 ---
 
 
-## 突发重磅：美英澳新协议“AUUKUS”将帮助澳洲获得第一艘核动力潜艇
-` AUJenny` [轉載自GNews](https://gnews.org/zh-hans/1535416/)
+## CCP’s Unrestricted Economic and Legal War Against GTV Has Cost It Dearly
+` JoJo_TorMapleLeafs` [轉載自GNews](https://gnews.org/1535468/)
 
-翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1282.jpg)网络截图
-美东时间9月15日（周三）下午5:00，澳大利亚悉尼时间早九点。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9.15-4-1.jpg)[https://gettr.com/post/pb3fgn3ea7](https://gettr.com/post/pb3fgn3ea7)
+**This time, the unrestricted economic and legal war launched by the Chinese Communist Party (CCP) against GTV ended in failure. Intellectuals, academics, and legal professionals in Communist China now must realize that the Whistleblower Movement (WM) and the New Federal State of China (NFSC) are the best in the world.**
 
-九号台突发新闻报道：澳大利亚总理斯科特-莫里森在与美国总统乔-拜登和英国首相鲍里斯-约翰逊的联合虚拟媒体会议上确认，”下一代 “伙伴关系的首要任务将是提供一支核动力潜艇舰队。未来18月将推动澳洲打造自己的核动力潜艇，澳洲的第一个核潜艇基地将建在阿德莱德市。
+**Nine-finger Goblin (Sara Wei), Liar Lude, and their gang are on their way to prison.**
 
-美国和英国已经宣布了一项历史性的新防务条约，这项协议名为“AUUKUS”，是以三个国家的首字母命名。据报导，它将促进三国分享在人工智能、网络、水下系统及远程打击能力等关键技术领域的知识。以应对日益 “复杂 “的印度-太平洋地区的战略形势。
+- After the U.S. Securities and Exchange Commission (SEC) made its announcement, Sara Wei and Liar Lude thought they could finally be relieved. However, the SEC only signed the settlement agreement for GTV and Saraka. Sara Wei’s VOG was not part of it.
+- Sara Wei has confirmed on her YouTube Show that Liar Lude is a key management member of her Phoenix Farm.  The criminal investigation of them will not be finished.
+- Those few people who sued us, including that CCP spy, Baldy Doudou, will also be investigated for filing false reports.
 
-极具讽刺的是当拜登发言时，显然他忘记了澳洲总理莫里森的名字，他指着电视屏幕说：“谢谢下边的那个家伙”。
 
-莫里森先生说，AUKUS是对日益 “复杂 “的印度-太平洋的回应。
-“这影响到我们所有人，”他说。
-“印度-太平洋的未来将影响到我们所有人的未来。
-“为了应对这些挑战，为了帮助实现我们地区所需要的安全和稳定，我们现在必须将我们的伙伴关系提升到一个新的水平。”
-莫里森先生在他的评论中没有直接提到中国政府。
-“这将是世界上最复杂和技术要求最高的项目之一，”约翰逊先生说。
-“持续几十年，需要最先进的技术。”
 
-（本文纯属个人观点，与Gnews 无关）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9.15-5-1.jpg)
 
-[文章来源：](http://Jenny,%20[16%20Sep%202021%20at%208:38:22%20am]:%209News%20-%20Latest%20news...%20%20Jenny,%20[16%20Sep%202021%20at%208:38:22%20am]:%20https://www.9news.com...)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/8.2-5.jpg)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AUSTRALIA-1.jpeg)
+**Miles thanks the outstanding prosecutors from the Southern District of New York who has worked on this case. He especially expresses great appreciation to AG Letitia James for upholding the dignity of American law and not following the CCP’s lead. And Miles called her the pride of our minority.**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9.15-1.jpg)
+**The old GTV original shareholders did not lose their investments due to this lawsuit. And even with the interference of the ****CCP****, GTV’s stock has now appreciated 30 times in value.  Plus,** **WM has never stopped exposing the CCP’s evil deeds.**
+
+- Many original shareholders suggested paying the fine to the SEC for GTV. Mile is very impressed (but he has repeatedly said that GTV will never take a penny out of WM warriors’ pockets).  And he would do anything for such fellow warriors.
+- The Chinese people have never been so selfless and united, with such a global vision. We, the new Chinese, will collectively defend our reputation, our interests and earn legitimate money.
+- This lawsuit has made us stronger and taught us how to use Western law to defend and protect our rights and interests.
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9.11-6-1.png)
+**GTV’s case also gives us a clearer picture of the mainstream media’s ugly face.  Miles has nothing to do with GTV, but they use his name to headline their stories.**
+
+- However, thanks to their “free commercials”, GETTR and GTV have recently gained a large number of subscribers.
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9.15-3.jpg)
+**WM is now exterminating the CCP by revealing the dark secrets of vaccines. Some warriors are worried that**** speculators ****may feed on the fruits of our labor later.  Miles reminds everyone that we don’t even plant any fruits on the vaccine issue.**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/8.22-5-1.jpg)
+**Miles will be live on GTV with Steve Bannon today starting at 2 p.m. ET.**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9.15-2.jpg)
 
 
 0

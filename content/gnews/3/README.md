@@ -2,40 +2,40 @@
 ---
 
 
-## 美英澳成立AUKUS联盟，澳大利亚将购买核动力潜艇
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1535437/)
+## 黑石終止Soho要約收購, 導致Soho中國股價暴跌40%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hant/1535484/)
 
-#### 编译报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-9.png)
-图片来源：ABCNews
+【簡評：】*潘石屹和張欣這兩個孫子永遠是演員，他在國內是演員，是白手套，剛剛被虐待完，跑到美國來了。寫了保證書，且有擔保人。潘石屹在美國也照樣是白手套，照樣是犯罪，照樣是洗錢**，**照樣是偷稅漏稅，這種人渣到了哪里都是人渣。*
 
-9月16日，澳美英首脑宣布了一项具有历史意义的新国防协定，三国成立AUKUS联盟，以应对日益“复杂”的印太地区。该协议的签署将使澳大利亚获得其第一批核动力潜艇。
+據《彭博社》2021年9月13日報道：
 
-澳洲总理斯科特·莫里森在与美国总统乔·拜登和英国首相鲍里斯·约翰逊举行的联合虚拟媒体会议上证实，**“****下一代****”联盟****伙伴关系的首要任务将为澳洲是提供一支核动力潜艇舰队。**
+黑石集團(BlackStone Group, BX)終止30.4億美元的SOHO中國的要約收購後，SOHO中國在香港證券交易所的股價遭遇重挫。
 
-舰队将在阿德莱德建造，新的AUKUS联盟合作伙伴关系将在未来18个月确定目标方向。虽然澳大利亚的新潜艇舰队将采用核动力，但它们不会配备核武器。
+在黑石集團決定不進行收購後，這家總部位於北京的公司週一股價下跌了 40%，這是SOHO第二次嘗試尋求出售並遭遇失敗。Soho週五在給香港證券交易所的一份聲明中表示，在滿足要約收購的先決條件方面進展不足。
 
-此举预计将使澳大利亚取消与法国潜艇制造商海军集团在2016年达成的900亿美元的交易。
+自 2020 年初以來，Soho一直被視為收購目標。因為其缺乏新資產注入，而且中國主要城市的寫字樓租金下降對其利潤施加了越來越大的壓力。在監管機構的打擊下，中國的商業地產空間正面臨壓力，開發商正面臨資金流動性短缺。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-54.jpg)
+6 月，黑石提出以高達237億港元（30億美元）的價格收購Soho，尚待監管部門批准。上個月，中國反壟斷監管機構表示已正式接受該交易審查。
 
-莫里森先生表示，澳大利亚并不寻求获得核武器或发展民用核能力，新的AUKUS联盟是对日益“复杂”的印太地区的回应。他在评论中没有直接提到中共国政府。
+這家中國開發商在2020年3月表示，它正在與海外金融投資者就一項可能導致競購該公司的潛在交易進行談判。當年8月，該公司表示，之前與潛在投資者的所有談判都已終止。
 
-三位领导人都对新的澳美英联盟的力量表示赞赏。
+黑石於6月宣佈每股5港元的報價，溢價為 31.6%。 根據聲明，雙方得出的結論是，在要約最後截止日之前無法滿足先決條件，也不會推遲最後截止日。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-26.jpg)北京望京SOHO專案。圖片來源: Qilai Shen/Bloomberg
+黑石在宣佈收購要約時表示，自 2008 年以來，黑石一直在中國投資辦公、零售和物流資產，在中國擁有約 600 萬平方米的物業。 知情人士去年表示，該公司正在亞洲加倍投資，希望為一只專注於該地區的基金籌集至少50億美元。
 
-约翰逊先生说AUKUS联盟是两国友谊的“新篇章”，两国都是“同类国家”，澳洲购买只有世界上少数国家拥有的核潜艇，是一项“重大决定”。
+SOHO中國由董事長潘石屹和首席執行官張欣於1995年創立。公司的主要資產包括其標誌性的上海外灘SOHO和北京地標性的望京SOHO，望京SOHO由紮哈·哈迪德(Zaha Hadid)設計，她是首位獲得普利茲克建築獎(Pritzker Architecture Prize)的女性。
 
-拜登先生说，我们三个国家已共同战斗了“一个多世纪”。
+原文連接：[https://www.bloomberg.com/news/articles/2021-09-13/soho-china-plummets-40-after-blackstone-takeover-falls-apart](https://www.bloomberg.com/news/articles/2021-09-13/soho-china-plummets-40-after-blackstone-takeover-falls-apart)
 
-“这是关于投资于我们最大的力量来源——我们的联盟，并不断更新，以更好地应对今天和明天的威胁。”
+（本文評論僅代表個人觀點）
 
-原文链接：[AUKUS: Australia to acquire nuclear-powered submarines in historic security pact with US ​and UK (9news.com.au)](https://www.9news.com.au/national/auukus-australia-us-and-uk-reportedly-join-to-share-advanced-tech-including-nuclear-submarines/c015a5ce-b1d4-40b9-a582-0bb4097f547c)
+翻譯：洛杉磯盤古農場–鋼蛋兒
+校對：洛杉磯盤古農場–Mike Li
+評論：洛杉磯盤古農場–鋼蛋兒
+編輯：洛杉磯盤古農場–明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
 
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

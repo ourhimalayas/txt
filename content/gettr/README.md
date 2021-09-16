@@ -15,6 +15,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 1:09 AM (UTC)`
+
+七哥早就说过：千万不要打疫苗！🙏🙏🙏🙏🙏🙏🙏<br/><br/>【看看时间日期，俺七哥早就告诉你们了，你们非得信那猪瘤媒体，非要作死那有啥办法捏？！】
+![img](https://media.gettr.com/group47/getter/2021/09/16/01/52f71b74-b8a6-c522-98fe-9472732e3d89/out.jpg)
+
+---
+
+`@miles 9/16/2021 1:00 AM (UTC)`
+
+9/15/2021 班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意这么干。如果中共不灭，没有人会是自由的。因此，帮助中国人灭共符合全世界所有人的自身利益。<br/>9/15/2021 Steve Bannon: The reason the Firewall is not taken down is that those who are colluding with the CCP in the West don’t want to do so. No one is free until the CCP is gone. So, it is in the self-interest of everyone on Earth to help the Chinese people take down the CCP
+![img](https://media.gettr.com/group19/getter/2021/09/16/01/04488b52-f74e-ff68-8764-6e6d7e1f0bf6/out.jpg)
+
+---
+
+`@miles 9/16/2021 12:58 AM (UTC)`
+
+9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！<br/>9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
+![img](https://media.gettr.com/group8/getter/2021/09/16/00/8463a4a7-d2e1-ec46-463d-f5bca5c49e5d/out.jpg)
+
+---
+
 `@miles 9/16/2021 12:43 AM (UTC)`
 
 9月15号：真正的战友，有共同信仰的人，无论在任何情况下，都会共同的战斗！非常荣幸让共产党最恨的最害怕的．川普政府最重要的内阁官员，彼特，那瓦罗先生！今天正式的．官方宣布，成为盖特的形象大使，和新中国联邦的国家代表大使！这是新中国联邦人的荣幸，我们也要永远的珍惜，像他和班农先生这样的永远的兄弟和永远的朋友，我们还是最紧密的战友，我们将一起战斗．消灭邪恶的中国共产党！
@@ -272,27 +293,6 @@ WOW <br/><br/>【郭先生说要做死辉瑞，本id随便看看走势。这是�
 
 President Trump, from last night’s fight:<br/><br/>“And I love the President of Brazil…he works so hard at helping the people!” 🇺🇸🇧🇷
 ![img](https://media.gettr.com/group24/getter/2021/09/12/16/954b64db-d1fc-81c6-1e56-d864d3b285fa/out.jpg)
-
----
-
-`@miles 9/12/2021 4:37 PM (UTC)`
-
-9月12号：没有新中国联邦……英国不会觉醒，这就是过去三天七哥干的事儿，我们将唤醒更多的冷静的，有理智的人们！<br/>已经很晚很晚了，再不停止来不及了，将有灭族灭国风险……<br/><br/>英国Boris Johnson要取消疫苗护照了：https://www.thetimes.co.uk/article/covid-vaccine-passports-scrapped-for-winter-by-boris-johnson-5g2fdb2zn
-![img](https://media.gettr.com/group2/getter/2021/09/12/16/52f88815-0aff-bb90-c946-ea60267d7f89/a5d02ef262cdf5126de93f8499032601.jpg)
-
----
-
-`@miles 9/12/2021 1:32 AM (UTC)`
-
-9/11/2021 Miles Guo’s GETTR: Ping An Group and Peter Ma threatened to sue our fellow fighters of the Whistleblowers’ Movement; if Peter Ma really has his balls, come to sue Miles Guo<br/><br/>9/11/2021文贵盖特：平安集团、马明哲威胁起诉爆料革命战友，马明哲你要有种就来起诉郭文贵
-![img](https://media.gettr.com/group34/getter/2021/09/12/01/1eb8ef5b-c0cf-3073-a396-3a9a954e1218/out.jpg)
-
----
-
-`@miles 9/12/2021 12:42 AM (UTC)`
-
-9月11号：尊敬的战友们好，明天上午9:00．继续和战友们一起的大直播，继续谈谈共产党病毒和共产党疫苗灾难！恒大的经济危机，将引发的共产党的经济大崩溃……等一系列的世界灭共大事件……共产党你完蛋了……
-![img](https://media.gettr.com/group24/getter/2021/09/12/00/75c7f2a3-a3fb-54b5-2344-1ac94c38d331/out.jpg)
 
 ---
 

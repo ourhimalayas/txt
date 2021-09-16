@@ -13,20 +13,20 @@
 
 ---
 
-### [台湾感谢瑞士国会下议院通过改善与台湾关系议案](/content/gnews/1/README.md)
+### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Huawei Infiltrates into UK University Cambridge](/content/gnews/2/README.md)
+### [黑石终止Soho要约收购, 导致Soho中国股价暴跌40%](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [黑石終止Soho要約收購, 導致Soho中國股價暴跌40%](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美英澳成立AUKUS联盟，澳大利亚将购买核动力潜艇](/content/gnews/3/README.md)
- ` 走进澳洲`
-
-### [台湾感谢瑞士国会下议院通过改善与台湾关系议案](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [突发重磅：美英澳新协议“AUUKUS”将帮助澳洲获得第一艘核动力潜艇](/content/gnews/5/README.md)
- ` AUJenny`
+### [CCP’s Unrestricted Economic and Legal War Against GTV Has Cost It Dearly](/content/gnews/5/README.md)
+ ` JoJo_TorMapleLeafs`
 
 ### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -37,17 +37,17 @@
 ### [2021年9月15日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [反对强制疫苗，亚利桑那州将拜登告上法庭！](/content/gnews/9/README.md)
- ` 丁过`
-
-### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/10/README.md)
+### [联邦法官暂停纽约州强制接种疫苗行政令](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/11/README.md)
+### [美国企业家正在联合 准备对拜登强制接种发起诉讼](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [突发重磅：美英澳新协议“AUUKUS”将帮助澳洲获得第一艘核动力潜艇](/content/gnews/12/README.md)
- ` AUJenny`
+### [法国：未接种疫苗的医护人员面临停职](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [黑石终止Soho要约收购, 导致Soho中国股价暴跌40%](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [米利秘密电话通共事件继续发酵](/content/gnews/13/README.md)
  ` HimalayaRussia`
@@ -103,7 +103,7 @@
 ### [新冠疫苗损害法案进入二读辩论 已接种疫苗议员忧心忡忡](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [台湾感谢瑞士国会下议院通过改善与台湾关系议案](/content/gnews/31/README.md)
+### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [中共驻英大使被禁止进入英国国会](/content/gnews/32/README.md)
