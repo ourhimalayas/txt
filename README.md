@@ -13,20 +13,20 @@
 
 ---
 
-### [Le Mouvement des lanceurs d’alerte ouvre une nouvelle ère d'&#8221;utilisation des vaccin pour détruire le PCC&#8221;](/content/gnews/1/README.md)
- ` MOSglobal`
-
-### [【郭先生直播摘要】2021.7.29 G系列每分每秒都升值](/content/gnews/2/README.md)
+### [【郭先生蓋特摘要】2021.7.30 CCP把病毒甩鍋給美國](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/3/README.md)
- ` 秘密翻译组-原创组`
+### [Australia Curtin University demands retraction of unethical study on Uyghur facial recognition](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
 
-### [2021年9月16日 文贵先生盖特 9](/content/gnews/4/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [【郭先生直播摘要】2021.8.1世界各國的政局未來的發展走向, 共產獨裁必然滅亡](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年9月16日 文贵先生盖特 9](/content/gnews/5/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [Miles Perspective: Mr. Peter Navarro Becomes GETTR Ambassador And Representative Of The New Federal State Of China](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [Le Capitole affirme une lutte commune contre la coercition communiste chinoise](/content/gnews/5/README.md)
+ ` MOSglobal`
 
 ### [2021年9月16日 文贵先生盖特 9](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -37,14 +37,14 @@
 ### [2021年9月16日 文贵先生盖特 7](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [福奇批：Nicki Minaj的疫苗说法是“错误”信息](/content/gnews/9/README.md)
+### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/9/README.md)
+ ` HimalayaRussia`
+
+### [福奇批：Nicki Minaj的疫苗说法是“错误”信息](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2020年12月21日，中共病毒疫苗Biontech公司老闆撒辛教授及其员工还没接种疫苗](/content/gnews/10/README.md)
+### [2020年12月21日，中共病毒疫苗Biontech公司老闆撒辛教授及其员工还没接种疫苗](/content/gnews/11/README.md)
  ` MG 澳喜农场多语组`
-
-### [爱达荷州医生报告：接种人群癌症发病率增加了 20 倍](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [川普呼吁以叛国罪审判“蠢货”马克·米利将军](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -67,22 +67,22 @@
 ### [福建新增59病例 厦门封闭小区全员核酸检测](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务](/content/gnews/19/README.md)
+### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/19/README.md)
+ ` 秘密翻译组-原创组`
+
+### [比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/20/README.md)
+### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [视频|环球时报：更名台湾代表处将触碰中共红线](/content/gnews/21/README.md)
+### [视频|环球时报：更名台湾代表处将触碰中共红线](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频|以色列卫生部长承认疫苗护照是胁迫](/content/gnews/22/README.md)
+### [视频|以色列卫生部长承认疫苗护照是胁迫](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [视频|英国政府批准为12至15岁青少年接种疫苗 引起家长愤怒](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [视频|电动平衡车产业鱼龙混杂、标准参差](/content/gnews/24/README.md)
+### [视频|英国政府批准为12至15岁青少年接种疫苗 引起家长愤怒](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求](/content/gnews/25/README.md)
@@ -127,17 +127,17 @@
 ### [重磅：印度北方邦证实伊维菌素的有效性](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/39/README.md)
- ` 秘密翻译组-原创组`
-
-### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/40/README.md)
+### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大雷爆CCP的末日还会远吗](/content/gnews/41/README.md)
+### [恒大雷爆CCP的末日还会远吗](/content/gnews/40/README.md)
  ` 银河勇气之星`
 
-### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/42/README.md)
+### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/41/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
+
+### [拜登政府希望印度继续成为中共国的附庸国](/content/gnews/42/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`

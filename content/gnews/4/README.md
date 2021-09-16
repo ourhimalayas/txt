@@ -2,15 +2,25 @@
 ---
 
 
-## 2021年9月16日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1537198/)
+## Miles Perspective: Mr. Peter Navarro Becomes GETTR Ambassador And Representative Of The New Federal State Of China
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1537249/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+Author：Skagen【㊙️ G-Translators/Authentic Writing Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图像-1-3.jpg)
+Image Source: Miles Guo Gettr
 
-好消息！ G｜Fashion 和Scabal 签约成功！郭先生过去的30年几乎90%的西装选料都来自于这个厂家，同时也是英国皇室成员们的最爱，并且这个面料在中国文化的服装领域从未被使用过，也是这个厂家第一次和中国人合作。 G｜Fashion 只和世界上顶尖的品牌合作，只为战友打造最优质的产品； G｜Fashion 只创造唯一性的产品，追求终极品质。不量产。 SCABAL被裁缝界称为“金钱能买到的最好面料”。是公认的全球最好的布料。 自1938年创立至今，SCABAL仅采购最好的原料，超细羊毛的舒适、羊绒的柔软、真丝的优雅，精纺细织，加上最后一道独有的“Paper Press”技术，确保任何布料对得起“面料之王”的美誉。 1974年它们研发出16.5微米羊毛技术，使面料支数第一次超越了100支； 1991年，推出创纪录的super150支面料，随后是180支，200支； 除了在面料纱支支数上领先业界，Scabal还推出了面料中加入黄金线、白金线、蓝宝石粉、钻石粉末以制成具有特殊光泽的面料，如加黄金、白金线的 gold treasure150支面料，加钻石粉末的diamond chip系列等
+Mr. Miles Guo announced through GTV and GETTR that Mr. Peter Navarro, The most important cabinet officials in the Trump administration, who is also the Communist Party hates and fears the most, has become the ambassador of GETTR and the country representative of The New Federal State Of China(NFSC). Mr. Guo also stated that it was an honor for NFSC and that we should cherish Mr. Navarro and Mr. Bannon as our brothers and friends forever. We are the closest comrades in arms and will fight together to take down the evil CCP.
 
-[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pb8z7g6e87)
+Peter Kent Navarro (born July 15, 1949) is an American economist and author. He served in the Trump administration as the Assistant of the President, Director of Trade and Manufacturing Policy, and the national Defense Production Act policy coordinator. He is also a professor emeritus of economics and public policy at the Paul Merage School of Business, University of California, Irvine, and the author of Death by China, among other publications. The book has profoundly influenced the U.S. government’s policy toward China. Navarro’s views on trade are significantly outside the scope of mainstream economic thought and are widely considered fringe by other economists. He publicly clashed with Anthony Fauci, the director of the National Institute of Allergy and Infectious Diseases, as Navarro touted hydroxychloroquine as a treatment of COVID-19 and condemned various public health measures to stop the spread of the virus.
 
-**喜联盟Gnews编辑部**
+In addition to pointing out the economic, ideological and military threats of the CCP, Mr. Navarro has strongly criticized the CCP on issues such as the New Coronavirus and the epidemic, and Hong Kong. He was placed on the Chinese Communist Party’s sanctions list in January this year because of his hardline stance against the CCP.
+
+Mr. Navarro’s faith in justice and his remarkable insight made him one of the first Americans to support our Whistleblowers’ Movement. He has been in GETTR since the very beginning. He initiates a famous slogan “GETTR is Twitter’s Killer”. His GETTR account already has nearly 360,000 followers in just two months, compared to less than 180,000 on Twitter.
+
+The people of NFSC are very grateful to Mr. Peter Navarro because he always stands firmly with us. Just as Mr. Miles Guo states “True comrades in arms, people who share a common faith, will fight together in any situation”. Mr. Navarro said firmly that Trump Administration must take the White House back before 2024! Peter Navarro’s new book ” In Trump Time” set to release in November.
+
+Source:[GTV live broadcast 16-09-2021](https://gtv.org/video/id=6142a526751e4f2b0e53c474)
+
+(The article only represents the author’s opinion)
 
 0

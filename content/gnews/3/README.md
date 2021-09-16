@@ -2,67 +2,22 @@
 ---
 
 
-## Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1537199/)
+## 【郭先生直播摘要】2021.8.1世界各國的政局未來的發展走向, 共產獨裁必然滅亡
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hant/1537269/)
 
-制作：秘翻原创组-秘翻盖视
-责编：Shifter
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-09-16-at-3.43.33-PM.png](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-16-at-3.43.33-PM.png)图片来源：视频截图
-Tucker Carlson：在集中的技术监控与广泛的社会服从
+視頻剪輯：北方信使 聽寫：雨山溪橋客 翻譯：Arthur 校對：煙波浩渺
+字幕＋視頻製作：小騰騰說
 
-In a moment of centralized tech surveillance combined with mass social conformity
 
-这正是身处我们现在生活的国度所面对的现实……
-and that’s exactly the country we’re living in right now……
 
-并且由于强制疫苗规定
+郭先生：
 
-and thanks to vaccine mandates
+在歐洲，德國一定會是我們的好朋友。極右派，都加入蓋特了。一定會重新把德國帶回來。
 
-我们已经认可了你不能掌控你自己的身体
+英國一定是保守派帶回來。法國一定是馬克龍輸，一定是勒龐贏。意大利一定在掙紮中回到他的右派。西班牙，一定是回到右派。然後比利時，然後東歐這些國家，最後俄羅斯一定會突然間嘎嘣一下子，回到了一個世界的家園，一定不會和老共一起。北朝鮮會脆斷，伊朗一定會脆斷，然後在這之前中間可能發生古巴的整個共產黨消失。古巴完了委內瑞拉就完了。委內瑞拉古巴完了，共產主義就開始走向滅亡。但是在滅亡前到底是一場像法國大革命死幾十萬人，帶走皇上砍頭，還是說和平的革命呢？沒有人知道。
 
-we’ve established that you are not in control of your own body.
+可能這一次走在前面的一定是中國，中國人由於他打臺灣。還有香港人最後的700萬人的生死的安全的安危的挑戰和威脅下，可能做出的你想象不到的一場運動。進而影響了新加坡、韓國、臺灣、日本，包括現在的越南。整個社會的製度的改革。最後世界上共產主義一定是人人喊打的過街老鼠。人類走向新的一個文明的對抗時代最後是邪惡接近控製世界的時候，還被世界有信仰的宗教的海洋文明國家的科技文明力量，給消滅在世界的地球上，否則地球全人類都被消滅。
 
-你凭什么掌控你孩子的身体？
 
-what gives you the right to control your child’s body?
-
-这是个好问题
-
-That’s a good question
-
-正如乔·拜登本人周四向全国所说的
-
-As Joe Biden himself told the country on Thursday
-
-这（强制疫苗）与自由无关
-
-this is not about freedom
-
-这是真的。这与自由无关……
-
-And that’s true. It’s not about freedom…….
-
-我国当局
-
-that authorities in this country,
-
-违背美国公民的意愿对他们进行了强制绝育和脑叶切除
-
-forcibly sterilized and lobotomized American citizens against their will.
-
-为什么？以公共健康的名义
-
-Why? In the name of public health.
-
-顺便说一下 可不仅仅是少数几个人
-
-And it wasn’t just a few people by the way,
-
-而是很多人
-
-it was a lot of people
-
-(秘翻盖视仅为传播之用不拥有原视频版权）
 
 0

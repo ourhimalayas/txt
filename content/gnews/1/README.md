@@ -2,57 +2,24 @@
 ---
 
 
-## Le Mouvement des lanceurs d’alerte ouvre une nouvelle ère d'&#8221;utilisation des vaccin pour détruire le PCC&#8221;
-` MOSglobal` [轉載自GNews](https://gnews.org/1537201/)
+## 【郭先生蓋特摘要】2021.7.30 CCP把病毒甩鍋給美國
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hant/1537280/)
 
-Traducteur: MOS  Groupe  Educatif – Petite abeille
+這個路大腦、蛇妖閆和這一幫人的出現，就是一個目的，把爆料革命，在世界上唯一一個講真話，真心滅共的聲音，把你掩蓋住。然後甩鍋給美國，這是一次共產黨的有組織有計劃行動。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
-Récemment, de plus en plus d’effets indésirables des vaccins ont été rapportés dans la presse du monde entier et, plus inquiétant encore, de nombreux cas de “AVC” et de “thromboses cardiaques” dues à la vaccination ont fait leur apparition dans nos vies. Dans de nombreux pays, les gens sont descendus dans la rue pour protester contre la vaccination obligatoire par les gouvernements.
-
-Lors d’une émission en direct le 14 septembre, M. Guo Wengui a déclaré que le plan visant à “tuer le Parti communiste avec des virus” a été achevé en mai de cette année. A partir d’aujourd’hui, nous allons commencer la campagne d'”extermination du parti communiste par les vaccins”. Dans le monde d’aujourd’hui, les vaccins constituent une menace bien plus grande pour l’humanité que le COVID-19. Notre stratégie est claire, c’est une règle claire, nous voulons éradiquer la menace des vaccins pour le monde en utilisant les vaccins pour éradiquer le communisme.
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/979-1-4.1-4-1275x720-1.jpg)
-
-Auparavant, M. Guo avait choqué le monde entier avec une série d’émissions en direct exposant la nature maléfique de la politique et de l’économie des vaccins, et soulignant que le Parti communiste chinois possédait l’antidote au virus et aux vaccins.
-
-M. Guo a déclaré : “À chaque instant de la semaine dernière, je pouvais sentir la terre trembler. Toutes les élites et tous les dignitaires du monde que j’ai rencontrés ont des craintes et des préoccupations profondes au sujet des vaccins. Il y a même un dirigeant de haut niveau d’un pays qui a déclaré que si son propre enfant mourait à cause d’une vaccination, il devrait exercer des représailles.” La peur et la haine des vaccins dans la société sont évidentes.
-
-M. Guo a révélé que c’est la vaccination contre le virus communiste chinois qui a fait de nombreuses victimes. Un membre du cabinet du gouvernement Johnson a même dit à M. Guo d’une voix émue qu’il mourrait avec Johnson si le gouvernement britannique n’annonçait pas l’arrêt des vaccinations.
-
-Le ministre de la Santé, Sajid Javid, a déclaré le 12 que le programme du Passeport vaccinal serait supprimé en Angleterre.
-
-** Lien vers l’article original :**
-
-[爆料革命开启“以苗灭共”的新纪元 – GNEWS](https://gnews.org/zh-hans/1534899/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
-
-*Posté par: Xiaolunn*
+視頻剪輯：北方信使 翻譯：Arthur 聽寫校對：煙波浩渺
+字幕＋視頻製作：小騰騰說
 
 
 
-**Pour plus d’information, suivez-nous:**
+郭先生：
 
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+所以說兄弟姐妹們，你看看這個計劃，東京奧運會，病毒大幅上升，可能日本要出大問題的這個奧運會。然後南京所謂感染，來自感染源，是一個去俄羅斯的飛機降落在上海沒有成，降落到了南京。這個消息7哥4天前就發出去了，而且內部的決定就是要封城。7哥掌握的信息準確吧，對吧? 你們看一下我頭兩天的蓋特就發了。
 
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-**[Bienvenue sur New York MOS Himalaya | Discorde](https://discord.gg/ChqXAHd)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+然後趙立堅出來甩鍋美國。在這之前出來個蛇妖閆、路大腦袋，還有一幫他們的洋爹塞林，美國人，還有這些所謂找爹博，是正常嗎？正常嗎？這些事兒出現的時候，突然這個路大腦、蛇妖閆，還有被那個九指妖，所謂的祈禱上帝面前，祈禱了她妹妹的。這一幫人的出現，就是一個目的，把爆料革命，在世界上唯一一個講真話，真心滅共的聲音，把你掩蓋住。然後甩鍋給美國，這是一次共產黨的有組織有計劃（行動）。
 
 
 
-
+編輯：黎明的光芒
 
 0

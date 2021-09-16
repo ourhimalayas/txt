@@ -2,25 +2,30 @@
 ---
 
 
-## 【郭先生直播摘要】2021.7.29 G系列每分每秒都升值
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hant/1537200/)
+## Australia Curtin University demands retraction of unethical study on Uyghur facial recognition
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/1537257/)
 
-視頻剪輯：北方信使
+Translated by: MOS Education Team – Maverick
+![This image has an empty alt attribute; its file name is image-146.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-146.png)
+Curtin University has urged publisher Wiley to retract a research paper written by Wanquan Liu, a former Associate Professor of the university. His research, published in 2018, helped the CCP better identify Uyghurs using facial recognition technology. Curtin University found he breached several ethical codes, including a failure to obtain informed consent and approval.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Facial.jpg)Facial Recognition
+Facial Recognition Technology is widely utilized in Communist China, and it has penetrated the daily life of ordinary people. People’s lives have become completely “transparent” because they do not have any privacy. The CCP monitors every move of everyone through facial recognition and surveillance devices everywhere at all times. Although the CCP issued a draft of the Personal Information Protection Act, it is a total lie. Instead, they want to turn China into a digital totalitarian state as described in the novel *1984* –– the big brother is watching you at all times and knows everything.
 
-翻譯：Arthur
+Liu’s paper, which the Curtin University demands Wiley to withdraw, was only a tip of the iceberg involving the CCP’s infringement of the human right of the Uyghurs and other ethnic minorities in Xinjiang. The CCP is well-known for imprisoning, surveillance, and mass-murdering the Uyghurs in Xinjiang in the name of fighting terrorism. They have committed the crime of genocide against humanity. Facial recognition technology is only a tool they use to conduct their crime.
 
-校對：煙波浩渺
+Source: [https://www.voachinese.com/a/Australian-university-says-Chinese-Uyghur-study-breached-ethics-code-20210915/6229666.html](https://www.voachinese.com/a/Australian-university-says-Chinese-Uyghur-study-breached-ethics-code-20210915/6229666.html)
 
-字幕＋視頻製作：小騰騰說
+Proofread and Edited by: canyonsky
+Posted by: canyonsky
+![This image has an empty alt attribute; its file name is image-90.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-90.png)![This image has an empty alt attribute; its file name is image-146.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-146.png)
+**For More information, follow us on **
 
+[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-郭先生：
-這75天，我們就是要肅清我們爆料革命，新中國聯邦裏所有的病毒。離開了不到70人，我們這幾天加進來的不說一個億，不說一千萬，幾百萬有吧，這要做買賣，咱核算嗎？兄弟姐妹們。走了70個垃圾，換來了幾百萬新的血液，幾百萬裏邊，10%，5% 留下，也幾十萬了吧。我們坐這兒直播說話的時候，G系列每分每秒都升值，每分每秒都升值。全世界最牛的企業，最牛的未來，就是數字貨幣，我在洛杉磯，我們見面這個世界大佬，說了其中幾句話，文貴，我和你相識多年，兄弟，是你在世界上點燃了一個很小的滅共的火苗，現在全世界是最大的事情。
-他跟習近平本人見面最起碼20次，跟我說話這個人，非常好他倆，但是他跟我們站在了一起。第二，他說我是現在世界上最有錢的組織，最有錢的，他說，但是世界的未來，世界的未來，石油不會再超過 30塊錢一桶，在未來石油不會超過30塊錢一桶，說包括沒有美元，包括人民幣，包括所有的貨幣都會大幅貶值。世界經濟未來10年是個大的災難的調整，印刷貨幣太多，只有一個是真正的黃金時代，數字貨幣。第三條，他說，文貴，人類走向何方，兄弟？未來就10年，取決於共產黨是滅亡，還是開展了血腥的綁架了中國人民的大戰，就這麽簡單。
+[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-
-
-編輯：黎明的光芒
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
