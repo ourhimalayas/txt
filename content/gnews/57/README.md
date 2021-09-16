@@ -2,14 +2,14 @@
 ---
 
 
-## 2021年9月16日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536995/)
+## 2021年9月16日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1537009/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-An brief introduction on the settlement between GTV and the SEC GTV与SEC的和解简介
+第一段： 9月16号：尊敬的战友们好，昨天的直播，在国际政治和金融领域和有智慧的战友眼里是完全不同的一个直播的意义的结果。新中国联盟的国际大使……那瓦罗先生的加入！对我爆料革命和新中国联邦意味着什么？
 
-[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pb90vn6a38)
+[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pbaa95cedd)
 
 **喜联盟Gnews编辑部**
 

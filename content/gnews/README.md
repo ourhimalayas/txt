@@ -13,28 +13,28 @@
 
 ---
 
-### [我眼中的完美人生](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [GT Online: CCP Ministry of Education Indirectly Admits Failure of Vaccine Immunity Barrier](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
+### [Japan Claims Suspected Communist Chinese Submarine Seen Near Territorial Waters](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
 
-### [Peter Navarro and Two Others Join the New Federal State of China](/content/gnews/3/README.md)
- ` JoJo_TorMapleLeafs`
+### [2021/09/16文贵先生盖特精要](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
+### [福建疫区的孩子们展现的不是骄傲而是悲剧](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/5/README.md)
- ` 日本东京方舟农场`
+### [福建疫区的孩子们展现的不是骄傲而是悲剧](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [2021年9月16日 文贵先生盖特 9](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021年9月16日 文贵先生盖特 8](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [2021/09/16文贵先生盖特精要](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年9月16日 文贵先生盖特 7](/content/gnews/8/README.md)
+### [2021年9月16日 文贵先生盖特 9](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/9/README.md)
@@ -55,17 +55,17 @@
 ### [随物价攀升，美国人对通货膨胀的担忧在8月份达到新高](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/15/README.md)
+### [福建疫区的孩子们展现的不是骄傲而是悲剧](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [恒大违约，崩溃在即！](/content/gnews/16/README.md)
+### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [恒大违约，崩溃在即！](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/17/README.md)
+### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
-
-### [恒大陷入流动性危机，员工集体追讨投资本金](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
@@ -163,24 +163,24 @@
 ### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/51/README.md)
+### [2021年9月16日 文贵先生盖特 8](/content/gnews/51/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/52/README.md)
  ` 澳喜农场`
 
-### [2021年9月16日 文贵先生盖特 6](/content/gnews/52/README.md)
+### [2021年9月16日 文贵先生盖特 7](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 5](/content/gnews/53/README.md)
+### [2021年9月16日 文贵先生盖特 6](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [CCP必灭之科技篇](/content/gnews/54/README.md)
+### [2021年9月16日 文贵先生盖特 5](/content/gnews/55/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [CCP必灭之科技篇](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年9月16日 文贵先生盖特 4](/content/gnews/55/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [【战友观点】盖特盖特，盖过推特——Gettr is the twitter killer](/content/gnews/56/README.md)
- ` 温哥华扬帆农场`
-
-### [2021年9月16日 文贵先生盖特 3](/content/gnews/57/README.md)
+### [2021年9月16日 文贵先生盖特 4](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
