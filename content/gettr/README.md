@@ -15,6 +15,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mengtian 9/16/2021 3:06 AM (UTC)`
+
+上天安排的最大，以身相许爆料革命——《大话西游》剪辑版🌹
+![img](https://media.gettr.com/group47/default/20210916/03/06/ebc6b9b9-2e8d-d9c0-63d0-2b6de26c0fb6/out.jpg)
+
+---
+
 `@miles 9/16/2021 2:57 PM (UTC)`
 
 第二段：<br/>🆘🆘🆘<br/>共产党正在海外穷凶极恶的派遣他那些垃圾兵团……脑残兵团……伺机报复我们的爆料革命。继他们在美国的法律超限战巨大失败后，已经导致很多平爆小组的人被免职。我们的战友们要做好准备，共产党的新的一波的媒体超限战针对我们已经开始。🙏🙏🙏🙏🙏🙏🙏🙏<br/>9月16号：尊敬的战友们好，昨天的直播，在国际政治和金融领域和有智慧的战友眼里是完全不同的一个直播的意义的结果。新中国联盟的国际大使……那瓦罗先生的加入！对我爆料革命和新中国联邦意味着什么？
@@ -285,13 +294,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/12/2021 Miles Guo: The three evil goals of the CCP’s expansion of the Qianhai economic zone: 1) To loot the wealth of Hong Kong; 2) To abolish HKD via mandatory use of RMB; 3) To internationalize RMB by taking advantage of Hong Kong, and to launch a global energy war to bring all the Asian countries to their knees<br/><br/>9/12/2021 文贵直播：中共前海开发区扩大的三大邪恶目的：一、洗劫香港财富；二、强行使用人民币以废掉港币；三、利用香港将数字人民币国际化，打响国际能源大战，从而让亚洲国家都跪下<br/>
 ![img](https://media.gettr.com/group30/getter/2021/09/13/02/eeed8b6b-7ba1-b50b-61df-3b7aa2380512/out.jpg)
-
----
-
-`@miles 9/13/2021 1:15 AM (UTC)`
-
-❤️❤️❤️❤️❤️❤️<br/>给小郑州兄弟签名．送给他的空雪茄盒子的视频！<br/><br/><br/><br/>9月12号：一年前直播中答应送给小郑州兄弟的雪茄空盒子的事情，今天终于尘埃落定．很多老雪茄盒子都被管家给扔了！到处找才找到这几个难得的具有雪茄奇迹般的历史的记忆的盒子，大家能看得懂吗？言而无信者，永远不可能获得别人的尊重！彼此的人际关系最重要的，就是信守承诺．唯真不破！
-![img](https://media.gettr.com/group39/getter/2021/09/13/01/b86fa424-03b1-bd3d-a846-50707dfe813a/out.jpg)
 
 ---
 
