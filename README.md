@@ -13,20 +13,20 @@
 
 ---
 
-### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中](/content/gnews/1/README.md)
+ ` 美国政要直译推`
 
-### [黑石终止Soho要约收购, 导致Soho中国股价暴跌40%](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [The Top 7 CCP Exterminators of the World](/content/gnews/2/README.md)
+ ` MOSREC`
 
-### [黑石終止Soho要約收購, 導致Soho中國股價暴跌40%](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [视频| 灭共七剑客](/content/gnews/3/README.md)
+ ` MOSREC`
 
 ### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CCP’s Unrestricted Economic and Legal War Against GTV Has Cost It Dearly](/content/gnews/5/README.md)
- ` JoJo_TorMapleLeafs`
+### [黑石终止Soho要约收购, 导致Soho中国股价暴跌40%](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -67,23 +67,23 @@
 ### [林郑月娥承诺大力推动前海方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/19/README.md)
+### [视频| 灭共七剑客](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/20/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021/09/15 大卫作战室直播精要](/content/gnews/20/README.md)
+### [2021/09/15 大卫作战室直播精要](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国军队为中共疫苗接种设定最后期限](/content/gnews/21/README.md)
+### [美国军队为中共疫苗接种设定最后期限](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/22/README.md)
+### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [接种疫苗需谨慎](/content/gnews/23/README.md)
+### [接种疫苗需谨慎](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [有声| 2021年9月13日文贵先生直播同步精要文字版](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -103,29 +103,29 @@
 ### [新冠疫苗损害法案进入二读辩论 已接种疫苗议员忧心忡忡](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/31/README.md)
+### [众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中](/content/gnews/31/README.md)
+ ` 美国政要直译推`
+
+### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共驻英大使被禁止进入英国国会](/content/gnews/32/README.md)
+### [中共驻英大使被禁止进入英国国会](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共正在扩大在非洲的影响力](/content/gnews/33/README.md)
+### [中共正在扩大在非洲的影响力](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/34/README.md)
+### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/35/README.md)
+### [抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
 
-### [福奇并未停止向中共研究机构提供资金](/content/gnews/36/README.md)
+### [福奇并未停止向中共研究机构提供资金](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国议会决定禁止中共国大使进入议会大厦](/content/gnews/37/README.md)
+### [英国议会决定禁止中共国大使进入议会大厦](/content/gnews/38/README.md)
  ` 纽约香草山MOS02`
-
-### [以色列用事实证明新冠疫苗实验是一个重大的失败](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
