@@ -2,44 +2,35 @@
 ---
 
 
-## 澳大利亚将建造八艘核动力潜艇
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1536344/)
+## 法军杀死萨赫勒圣战组织领导人
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1536363/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ISIS-leader-killed-in-Greater-Sahara.jpg)图片来源：X99News
+**整理报道：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0529.jpg)
+大撒哈拉伊斯兰国领导人阿德南·阿布·瓦利德·萨拉维（Adnan Abu Walid al-Sahrawi）在近日法国军队的一次行动中丧生。
 
+法国总统马克龙周四早些时候在推特上写道，阿布·瓦利德被“法国军队消灭”。
 
-图片来源：视频截图
+马克龙写道：“这是我们在萨赫勒地区打击恐怖组织的又一重大成功”，但他没有透露行动的具体地点或细节。
 
-据路透社悉尼9 月 16 日报道， 澳大利亚与美国和英国达成联盟， 在亚太建造 8 艘核动力潜艇，分析人士称这可能会激怒中共国，中共国谴责此举动意图是伤害其他国家。
+法国国防部长弗洛伦斯·帕利（Florence Parly）说，阿布·瓦利德在法国巴尔赫内行动部队发动袭击后死亡，该部队是法国在萨赫勒地区与圣战分子的作战部队。
 
+“这是对这个恐怖组织决定性的打击，”帕利在推特上写道，“我们的战斗还在继续。”
 
+阿布·瓦利德是圣战组织大撒哈拉伊斯兰国的领导人，因在2017年对尼日尔的美军发动致命袭击而被美国通缉，也是2020年杀害法国援助工作者的幕后黑手。
 
-> The U.S., Britain and Australia said they would establish a security partnership for the Indo-Pacific that will involve helping Canberra acquire nuclear-powered submarines, as Chinese influence over the region grows [https://t.co/lZpdirHiU2](https://t.co/lZpdirHiU2) [pic.twitter.com/npByPRHfNH](https://t.co/npByPRHfNH)
-> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438437502923247619?ref_src=twsrc%5Etfw)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考链接：**[French forces have killed IS Sahel jihadist leader wanted by US, Emmanuel Macron announces](https://www.abc.net.au/news/2021-09-16/islamic-state-leader-greater-sahara-killed-french-troops-macron/100468842)
 
+*编辑/发表：翼族*
 
-澳大利亚将成为继 1958 年英国之后第二个获准拥有核技术， 建造核动力潜艇。
-
-澳大利亚总理斯科特·莫里森说： 我们的世界正变得越来越复杂，尤其是在我们所在的印度太平洋地区，为了应对这些挑战，帮助实现我们地区所需的安全与稳定，我们现在必须将我们和美国英国的伙伴关系提升到一个新的水平。
-
-
-
-> Australia's new US-UK security pact risks China trade [https://t.co/urlLMEoTWC](https://t.co/urlLMEoTWC) [pic.twitter.com/jVPAE2SOEZ](https://t.co/jVPAE2SOEZ)
-> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438418705554280451?ref_src=twsrc%5Etfw)
-
-
-
-美国、澳大利亚和英国的领导人在周三宣布新的安全小组时没有提到中共国，但华盛顿及其盟友正在寻求反击其日益增长的力量和影响力，特别是其军事集结、对台湾和台湾的压力。在有争议的南中国海部署。
-
-中共国驻的美国大使表示，各国“不应建立针对或损害第三方利益的排他性集团”。
-
-[https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/](https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关。
-
-*编辑/ 校对/ 发布： Shuizhuyu*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

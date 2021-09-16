@@ -2,34 +2,29 @@
 ---
 
 
-## 美英澳成立新联盟，将助澳建立核动力潜艇舰队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536385/)
+## 秘翻在线：欧盟调查TikTok收集未成年用户数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536523/)
 
-栏目记者/责任编辑：云豹
+#### 文章撰写：寶寶
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 校对发布：文柯Miles
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Three-girls-wasadtching-TikTok-videos-640x480-1.jpg)
 
+据布赖特巴特新闻网（Breitbart News）报道，爱尔兰数据保护委员会已对中共的视频平台TikTok启动了两项调查，主要针对该平台收集未成年人个人数据和向中共国传输用户数据。该机构是许多科技巨头在欧盟的主要监管机构。
 
-9月15日美英澳元首在三方视讯会议后宣布，美国将协助澳洲建立核动立潜艇舰队。 其目的在强化印太地区的海军力量，以维护此地区的和平稳定。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.003.jpeg)
-美国总统拜登表示，协助澳洲打造核动力潜舰，是在确保澳洲能拥有「为对抗快速发展的威胁，所必需具备的调度及防御能力。」 三位元首在宣布建立这项被称为「AUKUS」的伙伴关系时，并未指出是针对中共，但意图不言自明。 在后续的18个月内，美英澳三国的专家将共同研讨决定，如何协助澳洲建造核动力潜舰。 除此之外，AUKUS将在「网路安全、人工智慧AI的运用、量子科技、及深海探研能力」等层面上深入合作。 此次的三方联盟行动传达出一个讯息：美国 再度保证及显示出决心，美国将继续保持强大威摄力量的立场 没有改变。 
-(本文仅代表作者观点)
+许多公司的区域总部设在爱尔兰，因此爱尔兰数据保护委员会对欧盟内的许多世界顶级科技巨头进行监管。 如果发现公司违反欧盟法规，数据保护委员会可以处以最高为公司全球收入4%的罚款。
 
-参考链接：[美英澳新戰略聯盟反制中國 將助澳洲建造核動力潛艦隊](https://www.cna.com.tw/news/firstnews/202109160010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+8月，TikTok宣布将对其青少年用户实施更严格的隐私控制，以解决有关其未能保护儿童免受隐晦广告和不当内容侵害的指控。 《华尔街日报》最近的一份报告，概述了TikTok的算法如何继续向未成年用户宣传色情内容和使用毒品。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+爱尔兰数据保护委员会发起的第一项调查，涉及“针对18岁以下用户的平台设置和个人数据处理，以及针对13岁以下用户的年龄验证措施”。
 
-终审：文龙
-校正/发稿：我不在这里
+第二项调查将重点关注TikTok向中共国传输用户个人数据，以及该公司是否遵守欧盟数据法。 TikTok发言人表示，该公司制定了广泛的政策和控制措施，以防止任何滥用用户数据的行为，并使用欧盟批准的数据传输方式。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+该发言人表示：“TikTok社区的的隐私和安全，尤其是最年轻用户，是我们的首要任务。”
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考文章：[**Ireland’s Data Protection Commission, which is the lead EU regulator for many tech giants, has reportedly launched two investigations into the Chinese-owned video platform TikTok. The two investigations center on the platform’s collection of the personal data of minors and the transfer of user data to China.**](https://www.breitbart.com/tech/2021/09/15/irish-data-protection-regulator-launches-probe-of-communist-chinas-tiktok-collecting-info-of-children/)
+
+本文仅代表作者本人观点，不代表Gnews平台
 
 0

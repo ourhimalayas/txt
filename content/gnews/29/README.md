@@ -2,22 +2,27 @@
 ---
 
 
-## 中共国健康码、行程码“二码合一”加大管制国人力度
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536378/)
+## 纽约法官阻止了针对医疗工作者的强制接种令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536579/)
 
-栏目记者/责任编辑：在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共打着 “为助力群众安全出行”的旗号，通过国家政务服务平台“防疫健康码”整合“通信大数据行程卡”，意味着健康码和行程码在中共国全面实现“二码合一”，进一步加大了对人民的控制力度。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.001.jpeg)
-所谓行程码是由中国信息通信研究院通过中国电信、中国移动、中国联通得到用户手机所处的基站位置，从而掌握每个公民前14天到过的所有地市信息。 此次中共国二码合一，看似是为了让公民减少操作步骤、方便通行检验，实则让防疫标准更加严格与复杂。干坏事看起来像做好事,是中共一贯的套路手法, 下一步随着数字人民币的全面推广，加之中共国无处不在的摄像监控设施，中国人将无时无刻不生活在由共产党打造的电子集中营中，人权将进一步被践踏，自由将进一步被剥夺。 
-(本文仅代表作者观点)
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-184.png)
+据Gateway Pundit网站9月14日报导，17名纽约医护人员于周一向法院提起诉讼，称政府颁布的新冠疫苗强制接种令违宪。第二天，纽约北区法院的法官大卫·赫德发布了一项临时限制令，阻止纽约州强制医疗工作者接种新冠疫苗。
 
-参考链接：[全国健康码行程码实现“一页通行”](https://3g.163.com/news/article/GK0UE4HJ041599RS.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-14.jpeg)
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+赫德称，当人们寻求或者已经获得新冠疫苗强制令的宗教豁免时，禁止卫生部对这些人的执照、证书、居留权、录用特权或其他专业地位或资格采取任何行动。
 
-终审：文龙
-校正/发稿：我不在这里
+据悉，前纽约州州长安德鲁·科莫曾于8月宣布，医护人员必须接种新冠疫苗才能保住工作，不允许宗教豁免。这严重侵犯了宪法赋予人民的权力。纽约医护人员的这起诉状，和法官的迅速响应，将会使美国人民更加清醒地意识到，政府实施的疫苗强制令已经对美国人民的生活和工作造成了事实上的压力和影响，只有奋起反抗，才能捍卫自己的合法权力。
+
+（本文仅代表作者观点）
+
+参考链接：[Clinton-Appointed Judge Blocks New York’s Vaccine Mandate for Healthcare Workers](https://www.thegatewaypundit.com/2021/09/clinton-appointed-judge-blocks-new-yorks-vaccine-mandate-healthcare-workers/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,5 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-+1
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
+0

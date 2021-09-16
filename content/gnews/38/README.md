@@ -2,25 +2,44 @@
 ---
 
 
-## 断网前奏傀儡之都
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1536327/)
+## 澳大利亚将建造八艘核动力潜艇
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1536344/)
 
-#### 作者：东京樱花团｜阿恩
+翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916aen.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0529.jpg)
 
-在网络未普及的年代，电子游戏已经风靡全球，尤其以日本的产品最为用户青睐，在八十年代末九十年代初期，电子游戏成为中国年轻人热卖的玩意。随着网络的普及，线上游戏很快替代了电子游戏，并因品种繁多兼具国际交流渠道而大受欢迎。中共病毒肆虐，许多国家的城市被迫封城，大人居家办公，孩子在家线上学习，一切几乎都需要依赖网络，一时间电子产品的销量急升，这场中共病毒带动科技公司赚得盆满钵满。
 
-孩子的天性是活泼好动，如今如困兽般圈禁在家，网络游戏就成了他们唯一与外界联络的出口，家长眼见如此也如巧妇难为无米之炊，因一切困境的源头均来自邪恶的中共政权。在人们被囚禁的忍耐达到极限的时候，中共伙同全球黑暗势力强推毒疫苗，以此为重获自由的凭证，从老人到孩子，所有人都被纳入毒针计划中。在全球人类处于灭绝的边缘，爆料革命郭文贵先生无惧压力通过爆料革命自家的社交平台GTV、Gnews和Getter向全球公布了新冠毒疫苗和中共病毒的解药，揭露中共和黑暗势力谋杀全球人类的诡计，引发各国人民反疫苗的抗争。
+图片来源：视频截图
 
-网络的威力势不可挡，中共一贯惧怕人民求知的渴望，一直都以防御外国势力危害国家安全的名义建立越来愈高的防火墙阻止人民与世界接触，这些年因为使用VPN翻墙被处罚的人屡见不鲜，今日中共又以拯救孩子于网络水火中为由，明令限制未成年人网络游戏的时间。今日香港的建制派议员也附议中共的决定，向港府提议参照内地限制香港孩子网络游戏的时间。
+据路透社悉尼9 月 16 日报道， 澳大利亚与美国和英国达成联盟， 在亚太建造 8 艘核动力潜艇，分析人士称这可能会激怒中共国，中共国谴责此举动意图是伤害其他国家。
 
-中共国偌大的土地上，只有弹丸之地的香港还留有一丝网络自由的余地，但这点自由的缺口也将很快被中共的防火墙彻底笼罩。据郭文贵先生爆料，中共已与数家知名社交平台成功勾兑，包括：Facebook，Telegram，Instagram等。中共阻止孩子们玩网络游戏只是开端，其最终目的就是全国断网，彻底切断人民与外界的联系，阻挡民主自由公义的讯息对人民的反洗脑，中共国的同胞们恐全部成为中共政权的傀儡。
 
-资料来源：[近2成青少年每日打机5小时课金风盛民建联促规管防沉迷](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/677472/%E8%AA%BF%E6%9F%A5-%E8%BF%912%E6%88%90%E9%9D%92%E5%B0%91%E5%B9%B4%E6%AF%8F%E6%97%A5%E6%89%93%E6%A9%9F5%E5%B0%8F%E6%99%82-%E8%AA%B2%E9%87%91%E9%A2%A8%E7%9B%9B-%E6%B0%91%E5%BB%BA%E8%81%AF%E4%BF%83%E8%A6%8F%E7%AE%A1%E9%98%B2%E6%B2%89%E8%BF%B7)
 
-（免责申明：本文只代表作者观点，与GNews网站无关）
+> The U.S., Britain and Australia said they would establish a security partnership for the Indo-Pacific that will involve helping Canberra acquire nuclear-powered submarines, as Chinese influence over the region grows [https://t.co/lZpdirHiU2](https://t.co/lZpdirHiU2) [pic.twitter.com/npByPRHfNH](https://t.co/npByPRHfNH)
+> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438437502923247619?ref_src=twsrc%5Etfw)
 
-*校对、发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
-+1
+
+
+澳大利亚将成为继 1958 年英国之后第二个获准拥有核技术， 建造核动力潜艇。
+
+澳大利亚总理斯科特·莫里森说： 我们的世界正变得越来越复杂，尤其是在我们所在的印度太平洋地区，为了应对这些挑战，帮助实现我们地区所需的安全与稳定，我们现在必须将我们和美国英国的伙伴关系提升到一个新的水平。
+
+
+
+> Australia's new US-UK security pact risks China trade [https://t.co/urlLMEoTWC](https://t.co/urlLMEoTWC) [pic.twitter.com/jVPAE2SOEZ](https://t.co/jVPAE2SOEZ)
+> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438418705554280451?ref_src=twsrc%5Etfw)
+
+
+
+美国、澳大利亚和英国的领导人在周三宣布新的安全小组时没有提到中共国，但华盛顿及其盟友正在寻求反击其日益增长的力量和影响力，特别是其军事集结、对台湾和台湾的压力。在有争议的南中国海部署。
+
+中共国驻的美国大使表示，各国“不应建立针对或损害第三方利益的排他性集团”。
+
+[https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/](https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/)
+
+免责声明：本文观点只代表作者， 与Gnews平台无关。
+
+*编辑/ 校对/ 发布： Shuizhuyu*
+
+0
