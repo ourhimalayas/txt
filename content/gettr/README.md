@@ -15,6 +15,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 10:37 PM (UTC)`
+
+9/16/2021 Miles Guo’s GETTR: Peter Navarro’s joining the New Federal State of China has shocked the world’s political arena! What I told you about the biggest things to happen in 90 days is that Navarro and the other two prominent figures in the world will join the New Federal State of China！<br/><br/>9/16/2021 文贵盖特：昨天，纳瓦罗加入新中国联邦的事震撼了世界政坛！七哥告诉你们90天内会发生最大的事就是纳瓦罗先生和另外两位世界级人物加入新中国联邦！
+![img](https://media.gettr.com/group10/getter/2021/09/16/22/d090af9f-8b3e-7d9a-2c22-06923874b35f/out.jpg)
+
+---
+
+`@miles 9/16/2021 10:30 PM (UTC)`
+
+9/15/2021 郭文贵先生：我不是中国的华盛顿，我只想灭共！我不图钱，我只在乎传递真相；但华尔街的人为了钱却出卖了美国；纳瓦罗先生、班农先生和蓬佩奥先生不仅拯救了美国，而且还拯救了全世界，他们是14亿中国人乃至全地球的英雄！<br/>9/15/2021 Miles Guo: I am not China’s George Washington, and I just want to take down the CCP! I don’t work for money, and I only care about spreading the truth; Yet the Wall Street guys have sold out America for money. Mr. Peter Navarro, Mr. Steve Bannon, and Mr. Mike Pompeo have not only saved America, but also the entire world. They are the heroes of the 1.4 billion Chinese people and the whole world!
+![img](https://media.gettr.com/group42/getter/2021/09/16/22/85a60a94-afc8-ca50-a934-06f6a5a03da1/out.jpg)
+
+---
+
+`@miles 9/16/2021 10:26 PM (UTC)`
+
+9月16号：尊敬的战友美好明天9月17号上午9:00．与战友们一起大直播……GTV见！
+![img](https://media.gettr.com/group13/getter/2021/09/16/22/39f86fac-548b-81f2-9023-40297bd4fd68/9cc8f33683a891c5bd37400bea379baa.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@biowenet 9/14/2021 7:08 AM (UTC)`
@@ -277,27 +298,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 正在去那不勒斯看工厂的路上 ，G｜Fashion 将与多家意大利工厂签合作协议 @DDNYC #GFashion
 ![img](https://media.gettr.com/group4/getter/2021/09/13/18/4834029e-57d9-f318-8b51-4cd50902770a/out.jpg)
-
----
-
-`@miles 9/13/2021 6:15 PM (UTC)`
-
-9月13号：今天的华尔街报道是一个夸大的虚假的不诚实的报导，我们与SEC的和解的罚款，应该总共是3千5百万美元，还包含了九只要5百万美元！所以从这些虚伪的夸张的报道当中，更应让我们看到西方所谓严肃媒体的虚伪和流氓的嘴脸……这些媒体的堕落和邪恶的力量和共产党的勾兑，这才是人类现在饱受共产党病毒和疫苗灾难的重要因素之一。
-![img](https://media.gettr.com/group39/getter/2021/09/13/18/1255bd4e-c8ec-bd60-7bbd-03b9cf635551/out.jpg)
-
----
-
-`@miles 9/13/2021 3:23 PM (UTC)`
-
-9月13号：今天真是个大日子，只要能释放所有战友们投资的钱．付出多少代价，我们都愿意所有的战友，原来投资GTV的老椅子的人，从今天起都可以从SEC 证券监管委员会．监管帐号拿回自己的投资的钱。这就是美国的伟大．法律社会的伟大，也是我们GTV爆料革命的伟大，不会让投资者损失一分钱。再想想今天的恒大和中国的e租宝 P2P的投资者，这是完全不同的结果，虽然GTV的投资完全是合法的，99.9%的投资者都接受和愿意继续投资，和那些经济诈骗完全不同，一切原因都是因为我们是要推翻共产党一个讲真话的平台，我们触怒了共产党和美国很多黑暗的利益所得者他们的利益。所以我们遭受了共产党及美国黑暗力量的国际化的．对美国和我们的G-TV 经济超限战．才导致了这个S E C的错误的调查和灾难的发生，至于已经给所有的投资者造成的损失，我们将会和投资者一起寻找合法的途径！继续采取法律行动，维护我们的利益保护我们的权利。这就是法律社会文明社会有契约精神社会的伟大之处，我们也学习了很多东西。我们接受SEC的罚款。我们和SEC的合作是成功的！我们会从这次的和解和过程当中所学到的东西，用于未来的爆料革命和新中国联邦的各种经济活动上，他只会让我们更强大．走得更安全．更稳定，感谢一路陪伴坚持下来兄弟姐妹们！做为一个唯一的共产党最恐惧的平台……这个结果是完美的，我们完全的接受．继续我们的战斗吧兄弟姐妹们。【与中国流亡者郭文贵有关的公司支付 5.39 亿美元以和解美国证券交易委员会的诉讼】
-![img](https://media.gettr.com/group47/getter/2021/09/13/15/f21b2d4a-7f87-8c4c-b1f8-52d1a76f1b85/34fface1b50693df4811f49d7cfb67f2.jpg)
-
----
-
-`@miles 9/13/2021 2:23 PM (UTC)`
-
-9月13号：给小郑州兄弟雪茄盒好像不过瘾！不到位，决定再送几个好雪茄给他！幸福就到位！高兴就要达到愉悦的境界，双休就必须也有五次以上的高潮，🙈🙈🙈这是我们所追求的极致的满满的人生形式！
-![img](https://media.gettr.com/group41/getter/2021/09/13/14/2b2837b0-c73e-0ff3-b6b1-f25f8be57587/out.jpg)
 
 ---
 
