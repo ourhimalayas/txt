@@ -15,6 +15,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@biowenet 9/14/2021 7:08 AM (UTC)`
+
+👮‍♂️一位美国警察👮‍♂️仗义执言：疫苗强制违反自由裁量权，我服务的是人民不是州长！👍<br/><br/>👍OREGON STATE TROOPER👍 - I WILL NOT ENFORCE USELESS MASK MANDATES, OR UNLAWFUL VAXX💉INE ORDERS<br/><br/>#CCPVirus #TakeDownCCP #中南坑老杂毛死全家
+![img](https://media.gettr.com/group11/default/20210914/07/08/05d6cb1b-5c81-e322-2c33-730697365d2a/out.jpg)
+
+---
+
 `@miles 9/16/2021 8:57 PM (UTC)`
 
 9月16号：看了这个房子的花园和曾经相比简直是无法形容的恼怒，这是清理了一个多月以后的情况！很多车的垃圾已经清理出去了，太烂了路大脑骗！
@@ -289,13 +298,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9月13号：给小郑州兄弟雪茄盒好像不过瘾！不到位，决定再送几个好雪茄给他！幸福就到位！高兴就要达到愉悦的境界，双休就必须也有五次以上的高潮，🙈🙈🙈这是我们所追求的极致的满满的人生形式！
 ![img](https://media.gettr.com/group41/getter/2021/09/13/14/2b2837b0-c73e-0ff3-b6b1-f25f8be57587/out.jpg)
-
----
-
-`@miles 9/13/2021 2:15 PM (UTC)`
-
-9月13日：中国人在近代史上得到解放了一个里程碑的日子，也是中国人走向耻辱的日子，从潘石屹两口子的离不开表演的这种行为！和他一直充当白手套…傲慢无知，愚蠢的行为，看中国的企业家……其实都是一群投机侥幸无法无天的经济政治的暴徒．商业骗子而已！
-![img](https://media.gettr.com/group29/getter/2021/09/13/14/2a60b85e-01db-54bb-1285-40701bf8adba/out.jpg)
 
 ---
 

@@ -13,19 +13,19 @@
 
 ---
 
-### [世界非常規戰爭中新中國聯邦的策略和目標](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
 
-### [爆料革命战友的信任 家仇国恨是灭共最大动力](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [【 #G叻睇真D 】粵語新聞電視臺: 反對強製疫苗，亞利桑那州將拜登告上法庭！](/content/gnews/3/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [CCP在香港對爆料革命的滲透](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [Merkel Pushes for EU-China Trade Deal in Call With Xi Jinping](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
 
-### [【郭先生直播摘要】2021.8.1病毒這場戰鬥西方政客的無能給了共產黨更大的野心](/content/gnews/5/README.md)
+### [世界非常規戰爭中新中國聯邦的策略和目標](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [2021年9月16日 文贵先生盖特 9](/content/gnews/6/README.md)
@@ -55,17 +55,17 @@
 ### [随物价攀升，美国人对通货膨胀的担忧在8月份达到新高](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [恒大违约，崩溃在即！](/content/gnews/15/README.md)
+### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [恒大违约，崩溃在即！](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/16/README.md)
+### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [恒大陷入流动性危机，员工集体追讨投资本金](/content/gnews/17/README.md)
+### [恒大陷入流动性危机，员工集体追讨投资本金](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [福建新增59病例 厦门封闭小区全员核酸检测](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
@@ -151,36 +151,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/47/README.md)
+### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/47/README.md)
+ ` 日本东京方舟农场`
+
+### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/48/README.md)
  ` 澳喜农场`
 
-### [2021年9月16日 文贵先生盖特 6](/content/gnews/48/README.md)
+### [2021年9月16日 文贵先生盖特 6](/content/gnews/49/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 5](/content/gnews/49/README.md)
+### [2021年9月16日 文贵先生盖特 5](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [CCP必灭之科技篇](/content/gnews/50/README.md)
+### [CCP必灭之科技篇](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年9月16日 文贵先生盖特 4](/content/gnews/51/README.md)
+### [2021年9月16日 文贵先生盖特 4](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [【战友观点】盖特盖特，盖过推特——Gettr is the twitter killer](/content/gnews/52/README.md)
+### [【战友观点】盖特盖特，盖过推特——Gettr is the twitter killer](/content/gnews/53/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年9月16日 文贵先生盖特 3](/content/gnews/53/README.md)
+### [2021年9月16日 文贵先生盖特 3](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 2](/content/gnews/54/README.md)
+### [2021年9月16日 文贵先生盖特 2](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 1](/content/gnews/55/README.md)
+### [2021年9月16日 文贵先生盖特 1](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [阿肯色州州长：拜登的 COVID-19 疫苗强制令“适得其反”](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [巨额石油合同中天价回扣的惊人背后](/content/gnews/57/README.md)
+### [阿肯色州州长：拜登的 COVID-19 疫苗强制令“适得其反”](/content/gnews/57/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
