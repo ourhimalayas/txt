@@ -2,29 +2,29 @@
 ---
 
 
-## 人类首次没有专业宇航员的太空旅行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536415/)
+## 欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536467/)
 
-栏目记者/责任编辑：飞虹
+栏目记者/责任编辑：七哩香
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-9月15日，美国东部时间晚上8点02分，佛罗里达州卡纳维拉尔角的肯尼迪航天中心，SpaceX第一次在没有任何专业宇航员的情况下将四名普通公民送入地球轨道，这是人类航天史上前所未有的壮举。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.007.jpeg)
-这四名业余宇航员乘坐名为“灵感4号”的经过特殊改装的“龙”号太空舱，将在比国际空间站更高的轨道绕地球运行三天，与竞争对手“维珍银河”和“蓝色起源”最近的类似活动相比，飞行高度更高，持续时间更长。 这次飞行的发起者是现年38岁、高中辍学的美国亿万富翁贾里德·艾萨克曼，他同时用这次飞行为他的圣裘德儿童研究医院筹集善款。 艾萨克曼有商用飞机和战斗机资格驾驶，他的另外三名“机组人员”也是经过精心挑选的，包括一名圣裘德的医生助理、一位西雅图的航空航天数据工程师和一位前NASA宇航员候选人。团队在出发前经过了5个月的严格训练， 这次飞行标志着伊隆·马斯克的地球轨道太空旅游业务正式启动。 
+路透社9月15日报道称，欧盟监管机构已针对抖音TikTok启动两项调查，涉及儿童个人数据的处理和向中国转移个人数据。
+
+位于爱尔兰的数据保护委员会，作为世界顶级互联网公司在欧盟的主要监管机构，已获准可对抖音开出最高达其全球营收4%的巨额罚金。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.009.jpeg)
+TikTok曾遭批评未能妥善保护儿童，使得他们能够看到隐藏广告与不当内容。数据保护委员会的调查中，第一项涉及“18岁以下用户的个人数据处理，以及13岁以下用户的年龄验证措施”；第二项将侧重TikTok向中国转移个人数据，以及在向欧盟外国家转移个人数据时是否违反了欧盟《通用数据保护条例》。
+
+TikTok的中共军方背景注定了它是中共窃取个人隐私数据、和监视用户行为的间谍软件，是中共对西方文化渗透的社交媒体武器。欧盟的此次调查，是反击中共窃取西方隐私信息，拒绝中共洗脑渗透的又一重要节点。
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [SpaceX launches first all-civilian crew into orbit without professional astronauts](https://www.newsbreak.com/news/2371525956007/spacex-launches-first-all-civilian-crew-into-orbit-without-professional-astronauts)
-2. [First all-civilian crew launched to orbit aboard SpaceX rocket ship](https://www.newsbreak.com/news/2372061151183/first-all-civilian-crew-launched-to-orbit-aboard-spacex-rocket-ship)
-
+参考链接：[抖音涉嫌密送西方个资 欧盟监管祭查](https://www.rfi.fr/cn/中国/20210915-抖音涉嫌密送西方个资-欧盟监管祭查)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龙
+终审：FoxRina
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -33,5 +33,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 0

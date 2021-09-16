@@ -2,30 +2,30 @@
 ---
 
 
-## 欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536467/)
+## 美国国务卿与立陶宛举行外交会谈 国会山表态共同对抗中共胁迫
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536536/)
 
-栏目记者/责任编辑：七哩香
+栏目记者/责任编辑：飞虹     
+责任编辑：FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-182.png)
+立陶宛外交部长 兰斯伯吉斯 目前正率团访问华盛顿，并于周三与美国国务卿布林肯 举行了会谈。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-24.jpeg)
 
+布林肯在会谈中强调了立陶宛和美国都是北约的坚实伙伴，支持立陶宛对抗中共的经济打压，表示双方将会持续在防御和安全领域共同合作。
 
+布林肯高度赞扬了兰斯伯吉斯在全世界 大力倡导民主和人权的努力，美国国会两党多名议员，在与兰斯伯吉斯及其代表团会面后，也纷纷表达了对立陶宛不畏中共威胁，捍卫主权、认可台湾的支持。
 
-路透社9月15日报道称，欧盟监管机构已针对抖音TikTok启动两项调查，涉及儿童个人数据的处理和向中国转移个人数据。
+参议院外交关系委员会主席 梅嫩德斯在国会山接受媒体采访时表示：”我们坚决支持那些拥有绝对主权、以任何形式承认台湾的国家。我们非常明确地向立陶宛人民表示，我们支持他们。”
 
-位于爱尔兰的数据保护委员会，作为世界顶级互联网公司在欧盟的主要监管机构，已获准可对抖音开出最高达其全球营收4%的巨额罚金。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.009.jpeg)
-TikTok曾遭批评未能妥善保护儿童，使得他们能够看到隐藏广告与不当内容。数据保护委员会的调查中，第一项涉及“18岁以下用户的个人数据处理，以及13岁以下用户的年龄验证措施”；第二项将侧重TikTok向中国转移个人数据，以及在向欧盟外国家转移个人数据时是否违反了欧盟《通用数据保护条例》。
+（本文仅代表作者观点）
 
-TikTok的中共军方背景注定了它是中共窃取个人隐私数据、和监视用户行为的间谍软件，是中共对西方文化渗透的社交媒体武器。欧盟的此次调查，是反击中共窃取西方隐私信息，拒绝中共洗脑渗透的又一重要节点。
-(本文仅代表作者观点)
+参考链接：[设台湾代表处遭打压 布林肯力挺立陶宛：共同对抗中国胁迫](https://www.voachinese.com/a/us-congress-lithuania-taiwan-20210915/6230714.html)
 
-参考链接：[抖音涉嫌密送西方个资 欧盟监管祭查](https://www.rfi.fr/cn/中国/20210915-抖音涉嫌密送西方个资-欧盟监管祭查)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
 终审：FoxRina
-校正/发稿：我不在这里
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +33,5 @@ TikTok的中共军方背景注定了它是中共窃取个人隐私数据、和�
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

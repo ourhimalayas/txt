@@ -2,44 +2,35 @@
 ---
 
 
-## 澳大利亚将建造八艘核动力潜艇
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1536344/)
+## 拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1536367/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+#### 作者：东京樱花团｜捆绑CCP一千年
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0529.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0916三国.png)[*图片来源*](https://thehill.com/sites/default/files/styles/thumb_small_article/public/article_images/nuclearsubmarine_ukvigilant_042919getty.jpg?itok=NPzJDqQw)
 
+美国[国会9月15日消息](https://thehill.com/homenews/administration/572415-us-to-help-australia-acquire-nuclear-powered-submarines)：拜登总统于周三与英国和澳大利亚的领导人宣布了一项“新的三边安全伙伴关系”，重点是在印-太地区对抗中共国。拜登已将解决来自中共国的“竞争”和“侵略”作为其外交政策的中心焦点。尽管拜登寻求与北京建立一种较少对抗的关系，但他还是公开宣称中共国采取美国不可接受的行为。两国之间因冠状病毒、人权和经济等问题的紧张局势在各个方面蔓延。
 
-图片来源：视频截图
+拜登政府的一位高级官员强调了这种“新的三边安全伙伴关系”接触的罕见性，并指出，“作为 1958年协议的一部分，美国只与一个国家——英国——共享核推进能力。这一历史性的公告反映了拜登政府建立更强大的伙伴关系以维持整个印太地区的和平与稳定的决心，”不过，关于美国在印太地区维护稳定的承诺。三位领导人在概述新伙伴关系的讲话中都没有明确提到中国。
 
-据路透社悉尼9 月 16 日报道， 澳大利亚与美国和英国达成联盟， 在亚太建造 8 艘核动力潜艇，分析人士称这可能会激怒中共国，中共国谴责此举动意图是伤害其他国家。
-
-
-
-> The U.S., Britain and Australia said they would establish a security partnership for the Indo-Pacific that will involve helping Canberra acquire nuclear-powered submarines, as Chinese influence over the region grows [https://t.co/lZpdirHiU2](https://t.co/lZpdirHiU2) [pic.twitter.com/npByPRHfNH](https://t.co/npByPRHfNH)
-> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438437502923247619?ref_src=twsrc%5Etfw)
+- ***延展阅读：***[***美国之音、***](https://www.voachinese.com/a/yang-jiechi-us-china-political-parties-dialogue-20210915/6230674.html)[***杨洁篪会见美国民主、共和两党代表***](http://www.china-embassy.org/chn/zmgx/zxxx/t1907158.htm)
+- ***延展阅读：***[***美国和中国总统之间的电话强调了危险的紧张局势***](https://www.wsws.org/en/articles/2021/09/13/bixi-s13.html)
 
 
+拜登与英国首相鲍里斯约翰逊和澳大利亚总理斯科特莫里森在周三下午的讲话中详细介绍了新的伙伴关系。拜登在准备好的讲话中说：“这是关于投资于我们最大的力量来源——我们的联盟，并更新它们以更好地应对今天和明天的威胁。”拜登继续说，“这项计划旨在确保我们都能拥有现代军事能力和关键技术方面的优势。”
 
-澳大利亚将成为继 1958 年英国之后第二个获准拥有核技术， 建造核动力潜艇。
-
-澳大利亚总理斯科特·莫里森说： 我们的世界正变得越来越复杂，尤其是在我们所在的印度太平洋地区，为了应对这些挑战，帮助实现我们地区所需的安全与稳定，我们现在必须将我们和美国英国的伙伴关系提升到一个新的水平。
-
+- ***延展阅读：***[***北京最高外交官敦促民主党人和共和党人帮助修复美中关系***](https://news.abs-cbn.com/overseas/09/16/21/beijings-top-diplomat-to-us-politicians-help-heal-us-china-ties)
 
 
-> Australia's new US-UK security pact risks China trade [https://t.co/urlLMEoTWC](https://t.co/urlLMEoTWC) [pic.twitter.com/jVPAE2SOEZ](https://t.co/jVPAE2SOEZ)
-> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438418705554280451?ref_src=twsrc%5Etfw)
+官员们表示，美国、英国和澳大利亚的新的伙伴关系的合作领域将在网络、人工智能、量子技术和海底能力等新兴安全领域深化合作。这三个国家将努力改善信息和技术共享。目前尚不清楚澳大利亚需要多长时间才能发展出这种能力。
 
+该消息引起中共国反应，据[路透社](https://www.reuters.com/article/chinese-embassy-usa-comments-0916-thur-idCNKBS2GC01L)报道称：“中国驻华盛顿大使馆对协议的消息作出反应，称有关国家应“摆脱冷战思维和意识形态偏见”。尽管拜登总统对中共态度诡异，但郭文贵先生对此表示：“[当中共和美国突然好的时候，就是中共立马死亡的时候，所有的9300万党员，你已经没有任何能力决定你的命运，包括习](https://www.gettr.com/post/paqcnn319b)”。
 
+2021年9月16日
 
-美国、澳大利亚和英国的领导人在周三宣布新的安全小组时没有提到中共国，但华盛顿及其盟友正在寻求反击其日益增长的力量和影响力，特别是其军事集结、对台湾和台湾的压力。在有争议的南中国海部署。
+（本文只代表作者观点，与GNews网站无关）
 
-中共国驻的美国大使表示，各国“不应建立针对或损害第三方利益的排他性集团”。
-
-[https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/](https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关。
-
-*编辑/ 校对/ 发布： Shuizhuyu*
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
 0

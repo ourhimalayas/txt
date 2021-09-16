@@ -2,23 +2,17 @@
 ---
 
 
-## 澳方指中共人脸识别技术违反道德准则
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536397/)
+## 中共国健康码、行程码“二码合一”加大管制国人力度
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536378/)
 
 栏目记者/责任编辑：在远方
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-澳大利亚 科廷大学表示要求期刊出版商《威立在线图书馆》撤销该校前教职员工刘万泉提交的一份研究论文，该研究帮助中共人脸识别软件更好地识别维吾尔族人。科廷大学表示这篇于2018年发表的论文并未知会校方，而且违背了学校的道德守则。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.006.jpeg)
-人脸识别技术在中共国被广泛使用，而且已经深入到普通人的日常生活，人们成为没有任何隐私的“透明人”。共产党通过人脸识别技术和各种监控随时掌握百姓的一切动态。虽然中共出台了所谓《个人信息保护法草案》，但是这些法律无法触及事情的本质 : 中共是想通过这种技术把中共国打造成一个数字极权主义国家——就如小说《1984》中所描述的那样——老大哥随时在看着你，他无所不知、无所不晓。
-
-科廷大学要求威立在线图书馆撤销刘万泉论文，只是一系列有关中共侵犯新疆维族及其他少数民族人权事件中的一起。中共被控在新疆以反恐为名，大肆囚禁、严密监控和杀害维吾尔族人，犯下反人类种族灭绝罪。而人脸识别技术则是监控和打压维族人暴行的帮凶。 
+中共打着 “为助力群众安全出行”的旗号，通过国家政务服务平台“防疫健康码”整合“通信大数据行程卡”，意味着健康码和行程码在中共国全面实现“二码合一”，进一步加大了对人民的控制力度。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.001.jpeg)
+所谓行程码是由中国信息通信研究院通过中国电信、中国移动、中国联通得到用户手机所处的基站位置，从而掌握每个公民前14天到过的所有地市信息。 此次中共国二码合一，看似是为了让公民减少操作步骤、方便通行检验，实则让防疫标准更加严格与复杂。干坏事看起来像做好事,是中共一贯的套路手法, 下一步随着数字人民币的全面推广，加之中共国无处不在的摄像监控设施，中国人将无时无刻不生活在由共产党打造的电子集中营中，人权将进一步被践踏，自由将进一步被剥夺。 
 (本文仅代表作者观点)
 
-参考链接：[澳大利亚科廷大学称中国学者人脸识别技术研究违反道德准则](https://www.voachinese.com/a/Australian-university-says-Chinese-Uyghur-study-breached-ethics-code-20210915/6229666.html)
+参考链接：[全国健康码行程码实现“一页通行”](https://3g.163.com/news/article/GK0UE4HJ041599RS.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -32,4 +26,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-0
++1

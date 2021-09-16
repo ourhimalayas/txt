@@ -2,36 +2,33 @@
 ---
 
 
-## BionTech首席执行官没有接种疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536448/)
+## 视频|电动平衡车产业鱼龙混杂、标准参差
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536518/)
 
-**简评：**
-
-BionTech辉瑞疫苗公司的首席执行官没有接种疫苗，而辉瑞公司在未来的12 个月内还要生产超过13亿剂的疫苗。自己生产的疫苗自己不接种，输送到整个世界去接种。作为疫苗的开发者，自己开发的产品只是为别人，自己不接种。为什么？
-
-GTV视频链接：[BionTech首席执行官还没有接种疫苗](https://gtv.org/video/id=6140b9b7784c5a258356402c)
+制作：香草山健身部 – 书记己嗝屁！
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
 
+环球网9月14日转载新京报消息，电动平衡车作为新兴的代步工具近年来增速迅猛，但市场“普及”的背后依旧是野蛮生长和标准低下。
 
-**视频字幕：**
+根据《中国电动平衡车行业发展白皮书（2021年）》，2020年全球电动平衡车出货量1032万台（同比涨幅23.7%），其中国内产量占比达90%（超928万台），中共所产的电动平衡车中约60%用于出口。虽然产量可观，但国内的电动平衡车行业标准不全，更没有监管，行业发展野蛮生长，虽然参与企业众多，但集中度极差，核心技术（如“动态稳定”技术）自主研发能力弱，国内技术标准较高的企业匮乏，小众品牌居多，行业龙头纳恩博市场份额占比仅为8.6%。
 
-**记者：**我听说，你自己还没有接种疫苗。最后一个问题，这会是一个很强烈的信号。对那些仍犹豫不决、未完全准备好的人来说。如果你愿意为自己接种疫苗，根据公司格言，这事儿上。我作为疫苗开发者是准备给自己打的。这样你们大家就可以看到，我对自己的开发的产品有多信任。
+**文字版原文：**[电动平衡车产业鱼龙混杂、标准参差](https://gnews.org/zh-hans/1531308/)
 
-**Ugur Sahin教授，BionTech首席执行官：**是的，我很想接种疫苗。我们只需看到，在这个过程中，所有的法律规定都得到了遵守。在未来的12个月内，我们得生产超过13亿剂的疫苗。重要的是，我们不能失去任何一位员工。因此我在考虑，我们找到法律上允许，保护员工的可能性。但这目前仍在进一步澄清中。
+*发稿：童谣*
 
-**记者：**萨欣教授，非常感谢您抽出时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-*编辑：【英国伦敦喜庄园编辑部】*
+**更多资讯，更多关注**
 
-*字幕：free20200604| 简评/文字整理/编辑：胖丁| Page：小六月*
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[![](https://spark.adobe.com/page/4RxMBQ8umqX3P/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/4RxMBQ8umqX3P/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
