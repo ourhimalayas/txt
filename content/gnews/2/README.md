@@ -2,40 +2,39 @@
 ---
 
 
-## 从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1537311/)
+## GT Online: CCP Ministry of Education Indirectly Admits Failure of Vaccine Immunity Barrier
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1537367/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获_副本-11.png)
-历史是有轮回的，在1959年10月至1960年4月在信阳发生过饿死上百万人的信阳事件，对于这一起事件笔者在1987年中共的内参上看到过详细说明，据[维基百科——信阳事件：](https://zh.wikipedia.org/zh-cn/%E4%BF%A1%E9%98%B3%E4%BA%8B%E4%BB%B6)
+Written by: Julia
 
-［**信阳事件**是指从[1959年10月到1960年4月](https://zh.wikipedia.org/wiki/%E4%B8%89%E5%B9%B4%E5%9B%B0%E9%9A%BE%E6%97%B6%E6%9C%9F)发生在当时的[河南省](https://zh.wikipedia.org/wiki/%E6%B2%B3%E5%8D%97%E7%9C%81)[信阳专区](https://zh.wikipedia.org/wiki/%E4%BF%A1%E9%98%B3%E4%B8%93%E5%8C%BA)（包括今天的[信阳市](https://zh.wikipedia.org/wiki/%E4%BF%A1%E9%98%B3%E5%B8%82)、[驻马店市](https://zh.wikipedia.org/wiki/%E9%A9%BB%E9%A9%AC%E5%BA%97%E5%B8%82)）出现大面积[饥荒](https://zh.wikipedia.org/wiki/%E9%A5%91%E8%8D%92)，大批农民饿死的事件。
+Translated by: billwilliam
 
-1950年代[大跃进运动](https://zh.wikipedia.org/wiki/%E5%A4%A7%E8%B7%83%E8%BF%9B)开展后，信阳地区[浮夸](https://zh.wikipedia.org/wiki/%E6%B5%AE%E5%A4%B8%E9%A3%8E)盛行，伴随[人民公社](https://zh.wikipedia.org/wiki/%E4%BA%BA%E6%B0%91%E5%85%AC%E7%A4%BE)运动，频现的“[卫星运动](https://zh.wikipedia.org/wiki/%E6%94%BE%E5%8D%AB%E6%98%9F)”掩盖了浮夸风下[粮食](https://zh.wikipedia.org/wiki/%E7%B2%AE%E9%A3%9F)产量严重的虚报现象。[庐山会议](https://zh.wikipedia.org/wiki/%E5%BA%90%E5%B1%B1%E4%BC%9A%E8%AE%AE_%281959%E5%B9%B4%29)后在河南省[反右倾](https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%8F%B3%E8%BF%90%E5%8A%A8)风潮下，各级官员因担心被打成右倾，强行按虚报产量制定的粮食征购标准向农民征粮。即使如此，粮食征购目标仍难以完成，整个事件最终成为大饥荒时期典型的地方饥荒事例。据河南信阳地方1961年呈报中共中央报告显示，该事件至少造成100万人[非正常死亡](https://zh.wikipedia.org/wiki/%E9%9D%9E%E6%AD%A3%E5%B8%B8%E6%AD%BB%E4%BA%A1)[\[1\]](https://zh.wikipedia.org/zh-cn/%E4%BF%A1%E9%98%B3%E4%BA%8B%E4%BB%B6#cite_note-%E5%BE%9E%E5%A4%A7%E8%BA%8D%E9%80%B2%E5%88%B0%E5%A4%A7%E9%A5%91%E8%8D%92-1)。］
+Proofread by: Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-005155.jpg)Image Source: Gnews
+On September 15, China Daily cited news by CCTV that Communist China’s Ministry of Education issued a dire warning titled “Notice on further efforts to contain the (Covid) epidemic during the fall semester and mid-autumn festival/National Day holidays.” All local education departments and schools are required to strictly prevent epidemic outbreaks on campus. The notice also encourages routine or irregular PCR virus tests for all or some of the employees in border areas and inland areas with high influx of visitors from abroad.
 
-信阳事件能上共产党的内参文件，可以从另一方面佐证信阳因饥饿致死的人员数量创下了记录，在62年后，在中国人又一次面临粮食危机的时候，又是河南，这一次的首发地选择在了新密市刘寨镇李岗村——
+Wang Dengfeng, director of the Education Ministry’s task force office to contain Covid pneumonia, stated that currently in Communist China’s education system, “the ratio of teachers, students and employees over 18 years old who have received two doses of vaccination exceeds 95%, and the same is true for the age group 12-17. The current nationwide vaccination rate is about 91%.”
 
-据[**郑州大民生**](https://weibo.com/u/2034225772) [2021年9月16日 17:00](https://weibo.com/2034225772/KyrLAcYwX?from=page_1002062034225772_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+In terms of its function, inoculation is to build an immunity barrier. Communist China’s “hero to contain the epidemic” Zhong Nanshan (an expert in disease control) previously announced to the media in June this year, “If the protection rate of vaccine is estimated to be around 70%, a vaccination rate of 80% of the population or more is necessary for our country before an immunity barrier is established.” Judging by Zhong Nanshan’s hypothesis, the current ratio of two-dose vaccination in the education system has far exceeded the 80% that is required to build an immunity barrier. By this reasoning, the immunity barrier in the education system has been solidly built and should have been more than enough to deal with the Covid epidemic. This remark reveals the Chinese Communist Party’s hypocrisy on vaccines: given such a high vaccination rate in China, why are they panicking over potential infection clusters on school campuses if their vaccines are effective?
 
-【丰收节里感党恩  节约粮食记在心】此次双节之前开展的“庆祝丰收 弘扬文化 振兴乡村 文明实践”活动，目的是开展节粮减损宣传、普及科学储粮知识、杜绝食品浪费、弘扬文明之风、养成文明健康绿色生活方式。活动结束后，大家一同走进葡萄园，采摘丰收的喜悦。保障粮食安全是每一个粮食人的职责。在李岗村，壹粒粮志愿服务队不仅带来了科学储粮的方法，也给大家带来了党史知识、文明新风的猜谜活动，让大家高高兴兴的庆祝丰收节。 [L郑州大民生的微博视频](http://t.cn/A6M7TkKS)
+In addition, according to news the from finance section of china.com on September 16, Huang Zhenglong, deputy director of the Disease Control Bureau in Communist China’s National Health Commission, made an announcement at a press conference hosted on the same day by the Joint Disease Prevention and Control Mechanism of the State Council. “As of September 15, the entire China has reported a total of more than 2.16 billion doses of Covid vaccine injections, and more than 1 billion people have completed full vaccination,” Huang said. Communist China’s official data indicate China currently has a population of 1.41 billion. According to the figures above, 71% of China’s population are fully vaccinated currently, and 82% of the population have received at least one jab.
 
-在1959年10月的河南信阳，种粮食的不是共产党、产粮食的不是共产党、收粮食的不是共产党，但是最终抢夺和控制粮食的是中国共产党，最终饿死的是那些终生与土地为伴、视粮食为生命的农民，而且饿死的是数以百万计的农民。
+As shown by the data above, the immunity barrier outside the education system is also close to completion. Communist China has always touted their success in containing Covid domestically—they claimed new infections are caused by imports from overseas. By inference, as long as the customs office controls the flow of visitors from abroad, the education system does not need to be “battle-ready” to deal with the epidemic. Even if the virus is occasionally brought on school campuses, will the “immunity barrier” of 90% vaccination be ineffective?
 
-在2021年9月的河南省郑州市新密刘寨镇李家岗村，种粮食的不是共产党、产粮食的不是共产党、收粮食的不是共产党，但是出来庆祝丰收的是共产党的干部，共产党的干部们要宣传的是“丰收节里感党恩，节约粮食记在心”。
+As the mid-autumn festival and National Day are around the corner, Wang Dengfeng also indicated that the Education Ministry encourages teachers and students to celebrate the festivals at their local areas and not to travel into other areas unless necessary. This is reminiscent of this year’s Spring Festival when the CCP government took various measures to keep migrant workers from traveling during the holidays to prevent large-scale outbreaks of the epidemic.
 
-在1959年10月的河南信阳饿死百万人肇始于信阳干部的浮夸，在那个全中国都在吹嘘粮食如何高产的时代里，信阳走在了全国的前列，在2021年9月全国各地在吹嘘粮食如何丰收的时候，河南省郑州市新密刘寨镇李家岗村不甘人后。
+So, is the warning notice from the Education Ministry “unnecessary,” or is it an indirect admission that the vaccine immunity barrier touted by the CCP government has completely failed?
 
-在1959年10月的河南信阳地区，因为浮夸最终饿死了数以百万计的农民，在2021年9月不甘为人后的河南省郑州市以及其他争先恐后为共产党涂脂抹粉的地区来说，这一次又将造成什么数量级的人员死亡呢？丰收了到底要感谁的恩呢？这个问题不需要回答，但是如果我们辜负了脚下的土地会怎样呢？这个问题早就有了答案——人误地一季，地误人一年。
+Reference:
 
-可是到今天已经不是误地一季那么简单了。
+[http://cnews.chinadaily.com.cn/a/202109/15/WS6141c0f1a310f4935fbedeb2.html](http://cnews.chinadaily.com.cn/a/202109/15/WS6141c0f1a310f4935fbedeb2.html)
 
-撰稿：喜马拉雅的肉夹馍
+[https://baijiahao.baidu.com/s?id=1703640388849648308&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1703640388849648308&amp;wfr=spider&amp;for=pc)
 
-审核：喜马拉雅的馍夹肉
+[https://www.163.com/dy/article/GK1MPHQU05507W1Q.html](https://www.163.com/dy/article/GK1MPHQU05507W1Q.html)
 
-校对：Maarago
+[http://www.stats.gov.cn/ztjc/zdtjgz/zgrkpc/dqcrkpc/ggl/202105/t20210519\_1817702.html](http://www.stats.gov.cn/ztjc/zdtjgz/zgrkpc/dqcrkpc/ggl/202105/t20210519_1817702.html)
 
-（文章内容仅代表作者个人观点）
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://gnews.org/zh-hans/1536861](https://gnews.org/zh-hans/1536861)
 
 0

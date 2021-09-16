@@ -13,20 +13,20 @@
 
 ---
 
-### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/1/README.md)
+### [我眼中的完美人生](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [GT Online: CCP Ministry of Education Indirectly Admits Failure of Vaccine Immunity Barrier](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [Peter Navarro and Two Others Join the New Federal State of China](/content/gnews/3/README.md)
+ ` JoJo_TorMapleLeafs`
+
+### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [Merkel Pushes for EU-China Trade Deal in Call With Xi Jinping](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [世界非常規戰爭中新中國聯邦的策略和目標](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
 
 ### [2021年9月16日 文贵先生盖特 9](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -85,23 +85,23 @@
 ### [视频|英国政府批准为12至15岁青少年接种疫苗 引起家长愤怒](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共正在快速发展核力量和先进武器 美国必须严肃对待](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [城管，中国特色社会主义下的怪胎](/content/gnews/29/README.md)
+### [FDA高级官员辞职与毒苗计划崩溃前夕的关系](/content/gnews/25/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [彼得•纳瓦罗先生担任GETTR形象大使和新中国联邦国家代表大使](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/27/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：中共正在快速发展核力量和先进武器 美国必须严肃对待](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [城管，中国特色社会主义下的怪胎](/content/gnews/30/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
 ### [中共监管风暴冲击澳门，博彩巨头股票暴跌](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
@@ -151,36 +151,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/47/README.md)
+### [我眼中的完美人生](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/48/README.md)
+### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/49/README.md)
+ ` 日本东京方舟农场`
+
+### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/50/README.md)
+ ` 日本东京方舟农场`
+
+### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/51/README.md)
  ` 澳喜农场`
 
-### [2021年9月16日 文贵先生盖特 6](/content/gnews/49/README.md)
+### [2021年9月16日 文贵先生盖特 6](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 5](/content/gnews/50/README.md)
+### [2021年9月16日 文贵先生盖特 5](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [CCP必灭之科技篇](/content/gnews/51/README.md)
+### [CCP必灭之科技篇](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年9月16日 文贵先生盖特 4](/content/gnews/52/README.md)
+### [2021年9月16日 文贵先生盖特 4](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [【战友观点】盖特盖特，盖过推特——Gettr is the twitter killer](/content/gnews/53/README.md)
+### [【战友观点】盖特盖特，盖过推特——Gettr is the twitter killer](/content/gnews/56/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年9月16日 文贵先生盖特 3](/content/gnews/54/README.md)
+### [2021年9月16日 文贵先生盖特 3](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 2](/content/gnews/55/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 1](/content/gnews/56/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [阿肯色州州长：拜登的 COVID-19 疫苗强制令“适得其反”](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
