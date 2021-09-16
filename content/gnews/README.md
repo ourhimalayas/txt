@@ -13,29 +13,29 @@
 
 ---
 
-### [秘翻在线：澳门博彩巨头股票集体跳水 受中共监管风暴冲击](/content/gnews/1/README.md)
+### [己所不欲勿施于人](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：美多地政府和企业威胁规避中共病毒疫苗的宗教豁免申请者](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [心梗，脑梗成常态，疫苗引起的肛梗也不稀奇](/content/gnews/2/README.md)
- ` 澳喜农场`
+### [秘翻在线：冈山大学提醒：接种疫苗前请参考此调查结果!](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [习近平、彭丽媛等拉屎看病都被江绵恒监控](/content/gnews/3/README.md)
+### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [教育“双减”政策，减了谁的负担？](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [郭文貴直播摘要和音頻 2021.9.14 ：GTV與SEC和解](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [习近平、彭丽媛等拉屎看病都被江绵恒监控](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [习近平、彭丽媛等拉屎看病都被江绵恒监控](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [串珠385：冠状病毒包含了艾滋病、SARS等基因](/content/gnews/5/README.md)
+### [串珠385：冠状病毒包含了艾滋病、SARS等基因](/content/gnews/8/README.md)
  ` 郭爆料串珠`
-
-### [习近平、彭丽媛等拉屎看病都被江绵恒监控](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [串珠385：冠状病毒包含了艾滋病、SARS等基因](/content/gnews/7/README.md)
- ` 郭爆料串珠`
-
-### [郭文贵先生GTV直播2021年9月14日文字精简版分享](/content/gnews/8/README.md)
- ` TS2020相聚盘古`
 
 ### [心梗，脑梗成常态，疫苗引起的肛梗也不稀奇](/content/gnews/9/README.md)
  ` 澳喜农场`
@@ -85,47 +85,47 @@
 ### [2021/09/15 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：澳门博彩巨头股票集体跳水 受中共监管风暴冲击](/content/gnews/25/README.md)
+### [秘翻在线：美多地政府和企业威胁规避中共病毒疫苗的宗教豁免申请者](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：爱尔兰调查TikTok侵犯儿童隐私和非法数据转移](/content/gnews/26/README.md)
+### [秘翻在线：冈山大学提醒：接种疫苗前请参考此调查结果!](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：恒大员工爆料许家印妻子及高管提前兑付恒大理财产品](/content/gnews/27/README.md)
+### [秘翻在线：对华立场强硬的特拉斯出任英国新外相](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纽约南区法院判SEC诉讼案和解结束，但和解文件内容不包含VOG](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：美英澳三国宣布建立新的科技和军事合作协议](/content/gnews/29/README.md)
+### [秘翻在线：澳门博彩巨头股票集体跳水 受中共监管风暴冲击](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国医院因强制接种新冠毒针的政策而纷纷面临关闭](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：爱尔兰调查TikTok侵犯儿童隐私和非法数据转移](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：恒大员工爆料许家印妻子及高管提前兑付恒大理财产品](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [币圈新闻动态：印度国家银行已禁止加密货币交易所使用其平台收款](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/32/README.md)
+### [秘翻在线：美英澳三国宣布建立新的科技和军事合作协议](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/33/README.md)
+### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [印度北方邦证实伊维菌素是治疗和预防中共病毒的有效方式](/content/gnews/34/README.md)
+### [印度北方邦证实伊维菌素是治疗和预防中共病毒的有效方式](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [横滨市矶子邮局发生29名投递人员群聚感染中共病毒](/content/gnews/35/README.md)
+### [横滨市矶子邮局发生29名投递人员群聚感染中共病毒](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [四川泸州市泸县16日发生6.0级地震，已造成2人死亡](/content/gnews/36/README.md)
+### [四川泸州市泸县16日发生6.0级地震，已造成2人死亡](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [反制中共：美英澳首脑宣布国防技术共享协议](/content/gnews/37/README.md)
+### [反制中共：美英澳首脑宣布国防技术共享协议](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [接种中共病毒疫苗，致全球脱发病人激增](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [9/13/2021 国际财经快讯：美元随国债收益率上扬；曼钦称不会在9月27日前通过预算法案](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [约翰逊改组内阁 对华强硬派继任 英国史上第二位女外相诞生](/content/gnews/47/README.md)
- ` G&#124;News TAIWAN`
-
-### [美国超过一半的州誓言反对拜登的疫苗强制接种政策](/content/gnews/48/README.md)
- ` GTV新闻访谈`
-
-### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/49/README.md)
- ` GTV新闻访谈`
-
-### [瑞士称不认可部分世卫批准的疫苗](/content/gnews/50/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：又一家中共国房企危矣 标普下调“花样年”评级至负面](/content/gnews/51/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：谷歌强迫智能设备制造商使用指定系统 韩国政府对此开出1.77亿美元罚单](/content/gnews/52/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：富士康与拜顿合作的电动车项目暂停](/content/gnews/53/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [医院正在通过夸大新冠感染人数来恐吓民众打疫苗](/content/gnews/54/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：小泉进次郎力挺河野太郎执掌自民党](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [国际要闻汇编](/content/gnews/56/README.md)
+### [己所不欲勿施于人](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [反驳病毒源自中共实验室的27人中有26人与武毒所有关](/content/gnews/57/README.md)
+### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [教育“双减”政策，减了谁的负担？](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共债券市场“南向通”将于9月24日上线](/content/gnews/50/README.md)
+ ` 儒为`
+
+### [约翰逊改组内阁 对华强硬派继任 英国史上第二位女外相诞生](/content/gnews/51/README.md)
+ ` G&#124;News TAIWAN`
+
+### [纽约南区法院判SEC诉讼案和解结束，但和解文件内容不包含VOG](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
+
+### [美国医院因强制接种新冠毒针的政策而纷纷面临关闭](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
+
+### [美国超过一半的州誓言反对拜登的疫苗强制接种政策](/content/gnews/54/README.md)
+ ` GTV新闻访谈`
+
+### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/55/README.md)
+ ` GTV新闻访谈`
+
+### [瑞士称不认可部分世卫批准的疫苗](/content/gnews/56/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：又一家中共国房企危矣 标普下调“花样年”评级至负面](/content/gnews/57/README.md)
+ ` 秘密翻譯組G-Translators`
 
