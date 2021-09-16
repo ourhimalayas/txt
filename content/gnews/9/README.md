@@ -2,43 +2,29 @@
 ---
 
 
-## 新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535957/)
+## 心梗，脑梗成常态，疫苗引起的肛梗也不稀奇
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1536110/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/https___d1e00ek4ebabms.cloudfront.net_production_eb2be356-c50b-4069-af99-60b43ed3bb6a.jpg)
-图片来源：ft.com；Getty Images
+视频*&*文章：澳洲天好蓝
+![](https://assets.gnews.org/wp-content/uploads/2021/09/AB03DD06-4B17-4B03-9584-4F37649080E9.jpeg)
+（网络图片）
 
-**【雅典娜快讯】，紧贴时事脉搏**
+疫苗引起的脑梗，心梗近日不但在中共国，也在世界各国大量爆发，清一色的特点就是大部分人都是年轻人，显然这里面绝大部分都是CCP病毒疫苗副作用引起的。郭先生之前直播的爆料所说的已经成了不争的事实。
 
-**根据最新数据显示，在处于封锁状态的新西兰，打“疫苗”的死亡人数比感染中共病毒（本身）的死亡人数多。**
+现在CCP病毒疫苗所带的副作用和死亡，已经远超CCP病毒本身所带来的伤害。脑梗，心梗死亡已经成了常态，这还算是比较体面，不算太痛苦的死法，更恐怖的是，因为“肛梗”，也就是因为疫苗副作用引起的血栓导致肛门大出血，所受到的痛苦和恐怖不是一般人能想象的。
 
-**新西兰的跟踪系统显示，有40人死于（辉瑞）中共病毒疫苗，而27人死于中共病毒本身。**
+其实“肛梗”早在4月就出现了，台湾一名30岁的女子接种了AZ（阿斯利康）疫苗2天后开始出现，头皮出血，大腿血肿，牙龈和肛门出血的症状，不过台湾政府和媒体极力否认是因为疫苗引起的。
 
-记者以利亚·沙弗（Elijah Schaffer）在推特上分享了这些数字。最近对“反疫苗”统计和评论的打击可能迫使沙弗使用“可能相关”和“理论上”这样的措辞。许多没有使用这类措辞而发表类似言论的人，已被大型科技公司网站迅速禁言。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-72.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2-51.jpg)
-图片来源：[推特](https://twitter.com/ElijahSchaffer/status/1438216982608896006?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438216982608896006%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Ffreedomfirstnetwork.com%2F2021%2F09%2Fin-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
+最近打疫苗引以起的“肛梗”病例开始增多，显然这不可能是巧合，肯定是疫苗引起的。
 
-与其他规模相似的国家相比，死于疫苗和中共病毒本身的两个数字都相对较低。但问题是，**大多数国家的中共病毒的死亡人数总是被夸大，而疫苗的死亡人数总是被低估。目前尚不清楚新西兰是否在夸大其中共病毒死亡人数，因为根本没有太多数据可供研究，但可以肯定的是，打疫苗的死亡人数要高得多。**
+7月28日韩国一名24岁的国小老师接种辉瑞BNT疫苗第1剂，于1周后，先出现消化不良，后来因为血栓赌塞肝门静脉，导致小肠坏死，肛门大出血死亡。此案例医生也认为是疫苗导致的。
 
-首先，疫苗不良反应普遍被低估。医生会为他们的病人寻找其他死亡原因，因为他们中的绝大多数人都在努力地推动疫苗。
+一名护理的父亲因为在8月23日接种第2剂AZ疫苗后，在8月31日突然出现严重腹痛，便血和腹泻。9月8日经过诊断发现患上了缺血性大肠炎，大肠已经出现严重的坏死，为了保住性命，手术截去了20公分的大肠，还不得不装上了“人工肛门”。虽然暂时保住了性命，但是人已经废了。
 
-其次，大多数悲伤的家庭不会向数据库报告死亡情况。据估计，在实际死亡人数中，1%-10%的人都归因于疫苗。
+疫苗的可怕之处就是，不但悄无声息的屠杀着人类，而且各种症状让接种疫苗的人受到尽度痛苦的折磨。政府当权者现在也视而不见，掩盖真相，仍然要强制接种，现在已经把目标瞄向了儿童，这简直就是灭绝人类，如果连儿童都接种了，那么真的未来人类真的可能像光明会建的“乔治亚引导石”所写的，地球只能剩下5亿人。其他人都被当成垃圾清除掉了。不过所幸，有爆料革命新中国联邦存在，这件事绝不可能发生，新中国联邦一定会尽最大努力拯救世界，消灭黑暗势力，为世界带来美好的未来！
 
-换句话说，即使新西兰报告的某些死亡人数被证明是错误的或不准确的，但可以肯定的是，更多的人死于疫苗，但从未被报告。
+（本文只代表个人观点）
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[In New Zealand, There Have Been More People Killed by the ‘Vaccines’ Than by Covid-19 – Freedom First Network](https://freedomfirstnetwork.com/2021/09/in-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
 0

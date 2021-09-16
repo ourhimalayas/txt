@@ -2,45 +2,32 @@
 ---
 
 
-## United Kingdom: COVID-19 Deaths 58 Times Higher than 2020, Plus Most Were Vaccinated
-` HimalayaNewZealand` [轉載自GNews](https://gnews.org/1536072/)
+## 习近平、彭丽媛等拉屎看病都被江绵恒监控
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1536108/)
 
-Writer: Lois
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20141219-044216_m36434_6d67-1613912032618_副本.jpg)
+据2017年9月1日孟建柱与孙力军是如何盗国又淫乱的!|郭文贵爆料第二季第1集——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091601.png)Image Source: Activist Post
+这一系列的安排事实大家可看到，为什么习主席他真的就是个傀儡！！他不过是江家有条件安排的国家主席！在执行了杀完令谷计划之后，所有的这些人只不过都是一个靶子而已。
 
-According to data from Public Health England, 70 per cent of COVID-19, or Chinese Communist Party (CCP) deaths from February 2021 to the end of August this year were from the nation’s vaccinated population.
+另外一个计划就是控制习主席的计划。我在这里今天不讲，习主席的家人特别彭丽媛女士的弟弟彭磊，你可以去了解一下，是谁在控制着你整个的所有行踪，你所有去的地方，是谁在北京交管局和公安部的交管局上，暗设了你们所有人的行踪的电子地图，他们销不毁的证据的！只要彭磊你去查查公安部交管局查一查北京市交管局特殊的设备上谁给你和你姐姐留下了电子地图的后门，你就知道了！
 
-According to the British alternative media outlet The Exposé, Britain’s mainstream media, public health sources, and government include deaths from January 2021 (when barely anyone in the UK had been vaccinated) in their recent COVID-19 death reports.
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091602.png)Data source: Public Health England
-Meanwhile, official data from Scotland shows 179 deaths were recorded across the country from 5th August 2021 to 2nd September 2021. However, in the same period last year, three COVID-19 deaths were recorded across the entire population.
+习主席到协和医院，西边儿叫特区，也就是中央常委看病的地方，每次去看病都有什么特殊的安排？习总书记你让栗战书先生、丁薛祥去查查你就明白了。所有的习总书记的病情、行踪家人核心人员的电子地图，100%即时传给上海！由江绵恒先生所以收存。可以去查一查就知道了。不要听文贵说。看一看查一查，这都是由孟建柱书记和孙力军执行的。
 
-“This means COVID-19 deaths across Scotland are currently 5,866.66% / 58.6 times higher than they were this time last year, despite the majority of the population of being vaccinated and summer being on their side,” notes The Exposé.
+所有的习总书记重大决策，以及你的想法和你想抓谁，或你不想抓谁，都由孟和上海沟通后再和王岐山沟通，进行协调。特别是协调完以后得到绵恒的批准，才可能去执行！
 
-Furthermore, COVD-19 statistics from Public Health Scotland reveal that around 15,000 more positive cases were discovered among the vaccinated in Scotland compared to the unvaccinated population.
+而且所有的办这些大案要案当中，一系列专案组的证据、口录、笔录、证据都会一次多份，从上海国外存放起来。而且所有涉及到习总书记家人和朋友的过去的，全部被他们多处备份。为的是什么？
 
-“Public Health Scotland are trying to hide the fact the majority of deaths are among the vaccinated due to the date parameters they have used to publish deaths by vaccination status. The deaths stretch back as far as the 29th December,” stated The Exposé.
+江家一定会要控制习主席的！！江家一定要控制所有的十九大常委的，十九大常委的黑马是怎么出来的？只有习主席知道！
 
-Furthermore, COVD-19 statistics from Public Health Scotland reveal that around 15,000 more positive cases were discovered among the vaccinated in Scotland compared to the unvaccinated population.
+任何一个人都会知道，政治局和常委，下个常委的政法委书记、公安部长、军委副主席，人民银行行长，管金融的副总理，哪一个习主席控制不住，习主席都有巨大的危险。习主席是他们所有人尝试着必须控制的人物！
 
-“Public Health Scotland are trying to hide the fact the majority of deaths are among the vaccinated due to the date parameters they have used to publish deaths by vaccination status. The deaths stretch back as far as the 29th December,” stated The Exposé.
+撰稿：喜马拉雅的肉夹馍；
 
-“This means they are including deaths from the [height of the alleged second wave of Covid-19](https://www.google.com/search?q=covid-19+deaths+scotland&amp;rlz=1C1CHBF_en-GBGB812GB812&amp;oq=covid-19+deaths+scotland)where [just 9% of the population had received a single dose, and just 0.1% of the entire population were fully vaccinate](https://ourworldindata.org/covid-vaccinations?country=GBR)d.”
+审核：喜马拉雅的馍夹肉；
 
-A  comparison between table 17 of Public Health Scotland’s COVID-19 death reports shows that unvaccinated deaths account for 21.7 per cent of all Scotland’s COVID-19 deaths since 5th August 2021, while the vaccinated population accounted for 78.3 per cent of COVID-19 deaths since the same date.
+校对：Maarago
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091603-2.png)Data source: Public Health Scotland
-
-According to this table, the majority of COVID-19 deaths, dated from December 2020 to August 2021, appear to be from the unvaccinated population.
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091604.png)Data source: Public Health Scotland
-
-However, according to this table dating from December 2020 to September 2021, most deaths from August 2021 to September 2021 were among the vaccinated, especially those with two doses.
-
-[The Exposé. (September 15, 2021). EXCLUSIVE – Covid-19 deaths are 58 times higher than this time last year and 78% of those dying had the Covid-19 vaccine according to Public Health data.](https://theexpose.uk/2021/09/15/exclusive-covid-19-deaths-are-58-times-higher-than-this-time-last-year-and-78-of-those-dying-had-the-covid-19-vaccine-according-to-public-health-data/)
-
-Upload Layout: Candy
-
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
 0
