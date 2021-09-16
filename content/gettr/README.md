@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 3:43 AM (UTC)`
+
+9/15/2021 杰森·米勒先生宣布盖特即将发布翻译和直播的功能，并表示盖特将永远不会因政见而审查言论或将用户移除平台！纳瓦罗先生：盖特是推特杀手，它的意义就在于言论自由！<br/>9/15/2021 Jason Miller: GETTR will soon release new features including translation and live streaming, and that users will never be censored or deplatformed due to political opinions! Peter Navarro: GETTR is the killer of Twitter, and it is all about freedom of speech!
+![img](https://media.gettr.com/group4/getter/2021/09/16/03/feea682d-0917-448d-02b2-3374dc65cc47/out.jpg)
+
+---
+
 `@miles 9/16/2021 1:09 AM (UTC)`
 
 七哥早就说过：千万不要打疫苗！🙏🙏🙏🙏🙏🙏🙏<br/><br/>【看看时间日期，俺七哥早就告诉你们了，你们非得信那猪瘤媒体，非要作死那有啥办法捏？！】
@@ -284,15 +291,6 @@ WOW <br/><br/>【郭先生说要做死辉瑞，本id随便看看走势。这是�
 
 9月12号：灭共同也能赚大钱的时代已悄悄地开启。<br/>跟着共产党走进火葬场的时代即将结束🔚<br/><br/>共产党你玩蛋了……【将近3亿美元票房，没有在墙内上演。】
 ![img](https://media.gettr.com/group22/getter/2021/09/12/20/7d4ad4c8-8947-b0ec-2daf-970384eca586/47620251bcec9475155450bf59e49fc8.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 9/12/2021 4:20 PM (UTC)`
-
-President Trump, from last night’s fight:<br/><br/>“And I love the President of Brazil…he works so hard at helping the people!” 🇺🇸🇧🇷
-![img](https://media.gettr.com/group24/getter/2021/09/12/16/954b64db-d1fc-81c6-1e56-d864d3b285fa/out.jpg)
 
 ---
 
