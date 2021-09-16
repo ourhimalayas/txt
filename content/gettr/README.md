@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 10:40 PM (UTC)`
+
+9/16/2021 Miles Guo’s GETTR: Only the Whistleblowers’ Movement has told everyone that the evil essence of the CCP lies in the Zhongnan Pit. That’s why we shall eliminate only a handful of devils in charge of this evil machinery! We are going to set up in the world the New Federal State of China that belongs to the Chinese people and is represented by the government derived from a one-person-one-vote election.<br/><br/>9/16/2021 文贵盖特：只有爆料革命告诉了大家中共的邪恶本质在中南坑，所以我们要消灭的是这几个掌握着邪恶机器的恶魔！我们要在国际上建立属于中国人的、一人一票选出的政府来代表的新中国联邦！<br/>
+![img](https://media.gettr.com/group36/getter/2021/09/16/22/7c3911b0-1650-2460-eafe-7090005d9983/out.jpg)
+
+---
+
 `@miles 9/16/2021 10:37 PM (UTC)`
 
 9/16/2021 Miles Guo’s GETTR: Peter Navarro’s joining the New Federal State of China has shocked the world’s political arena! What I told you about the biggest things to happen in 90 days is that Navarro and the other two prominent figures in the world will join the New Federal State of China！<br/><br/>9/16/2021 文贵盖特：昨天，纳瓦罗加入新中国联邦的事震撼了世界政坛！七哥告诉你们90天内会发生最大的事就是纳瓦罗先生和另外两位世界级人物加入新中国联邦！
@@ -291,13 +298,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/13/2021 Miles Guo’s GETTR: In America, Pan Shiyi and Zhang Xin keep being pretentious and serving as the CCP’s “white gloves” in the same way as how they did in the Communist China. They never stop being rumor-mongers, liars, and opportunists!<br/><br/>9/13/2021文贵盖特：潘石屹、张欣把在国内当白手套、演戏的那一套搬到了美国，照样造谣、行骗，永远都是投机<br/>9
 ![img](https://media.gettr.com/group30/getter/2021/09/13/23/303c38e2-2361-f323-58d0-d4f23f4217ab/out.jpg)
-
----
-
-`@miles 9/13/2021 6:21 PM (UTC)`
-
-正在去那不勒斯看工厂的路上 ，G｜Fashion 将与多家意大利工厂签合作协议 @DDNYC #GFashion
-![img](https://media.gettr.com/group4/getter/2021/09/13/18/4834029e-57d9-f318-8b51-4cd50902770a/out.jpg)
 
 ---
 
