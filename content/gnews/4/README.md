@@ -2,21 +2,44 @@
 ---
 
 
-## 秘翻在线：中共会公布泸州地震遇难人数的真实数据么？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536323/)
+## 澳大利亚将建造八艘核动力潜艇
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1536344/)
 
-撰稿：Ping
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-182555.jpg)
-据环球时报报道，截至9月16日8时30分，泸县“9·16”地震已导致死亡3人，重伤3人，轻伤57人，转移6904人，县城紧急避难场所（含玉街）安置10281人。全县居民房屋倒塌737处、严重损坏72间、一般受损7290间。此外，还有3处交通受损。
+翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
 
-我们从有限的网络视频中可以看到建筑物倒塌，满地瓦砾，砖块。你相信死亡人数只有3人吗？在中共国普通民众似乎永远也不会知道任何灾难的确切遇难人数，因为每一次灾难背后都藏着政治腐败和官商肮脏的交易。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0529.jpg)
 
-我们不妨看看日本类似震级的视频。2021年2月13日晚，福岛县东部海域发生7.3级地震，造成至少1人死亡、约190人受伤；3月20日晚，宫城县发生6.9级地震；5月1日，宫城县附近海域发生6.6级地震。人们没有看到震后的满目疮痍！似乎远远比不上中共国6级的地震强度。
 
-几乎中共国人们都知道房地产开发商与政府勾结，腐败贪污。致使开发商对建筑工程偷工减料，到处都有豆腐渣工程，质量根本不能达到减震防震的标准。住在这样的房子里，别说6级地震，即使三级地震都可能会有倒塌的房屋。基于这种状况，政府官员会如实报告真实的死亡数字吗？或许连真正的受灾人数都不敢报吧！如实上报，要如何解释中共国的房地产质量如此脆弱呢？这要牵连多少人呢？
+图片来源：视频截图
 
-所以中共地方官员会不遗余力的掩盖事实！作为中共国的普通民众，永远不可能知道任何灾难中的真实遇难人数。回顾一下河南郑州的大洪水，据郭文贵先生爆料死亡超过数十万，但是河南官方公布水灾死亡人数至少有302人，50人失踪，包括郑州死亡292人，失踪47人。
+据路透社悉尼9 月 16 日报道， 澳大利亚与美国和英国达成联盟， 在亚太建造 8 艘核动力潜艇，分析人士称这可能会激怒中共国，中共国谴责此举动意图是伤害其他国家。
 
-生在中共国的普通老百姓，活得不如猪狗。生死都由共产党决定，财产由共产党控制，子女也是共产党的财产。如果你还想要堂堂正正地做人，做一个自由的，有尊严的人，那么就必须站起来推翻共产党的邪恶统治。新中国联邦是中国人唯一的希望！
+
+
+> The U.S., Britain and Australia said they would establish a security partnership for the Indo-Pacific that will involve helping Canberra acquire nuclear-powered submarines, as Chinese influence over the region grows [https://t.co/lZpdirHiU2](https://t.co/lZpdirHiU2) [pic.twitter.com/npByPRHfNH](https://t.co/npByPRHfNH)
+> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438437502923247619?ref_src=twsrc%5Etfw)
+
+
+
+澳大利亚将成为继 1958 年英国之后第二个获准拥有核技术， 建造核动力潜艇。
+
+澳大利亚总理斯科特·莫里森说： 我们的世界正变得越来越复杂，尤其是在我们所在的印度太平洋地区，为了应对这些挑战，帮助实现我们地区所需的安全与稳定，我们现在必须将我们和美国英国的伙伴关系提升到一个新的水平。
+
+
+
+> Australia's new US-UK security pact risks China trade [https://t.co/urlLMEoTWC](https://t.co/urlLMEoTWC) [pic.twitter.com/jVPAE2SOEZ](https://t.co/jVPAE2SOEZ)
+> — Reuters (@Reuters) [September 16, 2021](https://twitter.com/Reuters/status/1438418705554280451?ref_src=twsrc%5Etfw)
+
+
+
+美国、澳大利亚和英国的领导人在周三宣布新的安全小组时没有提到中共国，但华盛顿及其盟友正在寻求反击其日益增长的力量和影响力，特别是其军事集结、对台湾和台湾的压力。在有争议的南中国海部署。
+
+中共国驻的美国大使表示，各国“不应建立针对或损害第三方利益的排他性集团”。
+
+[https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/](https://www.reuters.com/world/asia-pacific/australia-build-eight-nuclear-powered-submarines-under-new-indo-pacific-security-2021-09-16/)
+
+免责声明：本文观点只代表作者， 与Gnews平台无关。
+
+*编辑/ 校对/ 发布： Shuizhuyu*
 
 0

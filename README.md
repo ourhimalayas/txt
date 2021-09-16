@@ -13,20 +13,20 @@
 
 ---
 
-### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [以色列報告有1/10的兒童在感染急性期過後仍有症狀](/content/gnews/1/README.md)
+ ` 纽约香草山MOS03`
 
 ### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚将建造八艘核动力潜艇](/content/gnews/3/README.md)
+### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳大利亚将建造八艘核动力潜艇](/content/gnews/4/README.md)
  ` Shuizhuyu`
 
-### [秘翻在线：中共会公布泸州地震遇难人数的真实数据么？](/content/gnews/4/README.md)
+### [秘翻在线：中共会公布泸州地震遇难人数的真实数据么？](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [断网前奏傀儡之都](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [2021年9月15日 文贵先生盖特 11](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
