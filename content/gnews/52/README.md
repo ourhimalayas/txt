@@ -2,23 +2,31 @@
 ---
 
 
-## ABC News 弄巧成拙三万九千条留言让民众发现了死亡疫苗的真相
-` AUJenny` [轉載自GNews](https://gnews.org/zh-hans/1535665/)
+## 德州一医院CEO称，医院因强制疫苗而面临关闭
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1535769/)
 
-翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1283.jpg)网络截图
-美国广播公司新闻附属机构意外发现了COVID疫苗的真相。
+据《零对冲》作者泰勒·杜登（Tyler Durden）转《贝克尔医院评论》2021年月14日的报道
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-175.png)图片来自网络
+由于乔·拜登总统的政府正在采取措施，要求数百万美国工人，包括某些医护人员，接种中共病毒（COVID-19）疫苗。该计划要求那些接受医疗保险和医疗补助资金的医院和其他类型医疗机构的工作人员接种中共病毒疫苗。
 
-《世界论坛报》讲述了一个令人震惊的故事：为了在舆论上支持和推广拜登政府的“强制接种疫苗的政策”，针对未接种疫苗的人，美国广播公司下属的底特律WXYZ电视台策划了一档节目，要求观众分享他们的亲人在拒绝或推迟接种疫苗后死于COVID的故事。但这一要求产生了一个意想不到的真相炸弹，ABC News可谓弄巧成拙，非但没起到宣传疫苗作用，反倒让民众意识到这个疫苗确实是可怕的“死亡疫苗”。
+得克萨斯州布朗菲尔德的地区医疗中心是一家乡村医院，首席执行官杰里·贾斯帕（Jerry Jasper）告诉KCBD，如果强制打疫苗，它将失去多达25%的员工。
 
-截至周一中午，该帖子已收到超过39,000条愤怒的、又令人心碎的回复。几乎每一个字串都包含一个第一手的报告，这些人的家庭成员正在为失去各种年龄的亲人而悲伤。
+报道称，失去这些员工可能要关闭医院，因为一些护士已经辞职，去提供更高薪酬的护理机构工作了。
 
-这样的留言讲述的是一个个逝去的生命：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1284.jpg)网络留言
+对于布朗菲尔德地区医疗中心来说，不遵守疫苗规定而失去医疗保险和医疗补助资金是不可能的。贾斯帕先生告诉KCBD，该医院大约80%的资金来自医疗保险和医疗补助。
 
+由于德州长格雷格·阿博特 (Greg Abbott) 发布了一项行政命令，禁止公立医院颁布强制打疫苗规定，因此使德州医院的领导者处于复杂的境地。
 
-[原文链接：](https://www.thegatewaypundit.com/2021/09/abc-news-accidentally-discovers-truth-covid-vaccines/)
+贾斯帕先生告诉KCBD： “阿博特州长要如何看待这件事？他到目前为止还没有遵守任何联邦法律。因此，至少在德克萨斯州，我们将不得不等待，看看接下来如何发展。”
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AUSTRALIA-1.jpeg)
-0
+贾斯帕先生并不是德克萨斯州唯一在努力解决如何应对强制打疫苗的医院院长。
+
+总部设在克利夫顿的Goodall-Witcher医疗保健公司的首席执行官亚当·威尔曼(Adam Willman) 9月10日对《得克萨斯论坛报》说：“拜登总统告诉我他要强制执行，但艾伯特州长说我不能强制执行。”
+
+【本文仅代表作者个人观点，与Gnews 无关】
+
+原文链接：[https://www.zerohedge.com/political/texas-hospital-faces-closure-over-vaccine-mandate-ceo-says](https://www.zerohedge.com/political/texas-hospital-faces-closure-over-vaccine-mandate-ceo-says)
+
+翻译：烟波浩淼 |校对：雨山溪桥客|编辑&发布：V
+
++1

@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 5:27 AM (UTC)`
+
+9/15/2021 纳瓦拉先生：我们必须切断为中共房地产泡沫输血的美国资本! 班农先生：中国人是中共与华尔街精英勾兑的最大受害者！这些华尔街精英有责任赔偿那些因投资中共房地产诈骗公司而受害的老百姓！<br/>9/15/2021 Peter Navarro: We must stop the flow of the American capital to fuel the CCP’s real estate bubbles! Bannon: The Chinese people are the BIGGEST victims of the collusion between the CCP and the Wall Street elites, who are obliged to compensate the Chinese victims who invested in the CCP’s fraudulent real estate companies
+![img](https://media.gettr.com/group7/getter/2021/09/16/05/1562eb36-93a0-ba0d-440b-64eb27144c77/out.jpg)
+
+---
+
 `@miles 9/16/2021 3:43 AM (UTC)`
 
 9/15/2021 杰森·米勒先生宣布盖特即将发布翻译和直播的功能，并表示盖特将永远不会因政见而审查言论或将用户移除平台！纳瓦罗先生：盖特是推特杀手，它的意义就在于言论自由！<br/>9/15/2021 Jason Miller: GETTR will soon release new features including translation and live streaming, and that users will never be censored or deplatformed due to political opinions! Peter Navarro: GETTR is the killer of Twitter, and it is all about freedom of speech!
@@ -284,13 +291,6 @@ WOW <br/><br/>【郭先生说要做死辉瑞，本id随便看看走势。这是�
 `@miles 9/12/2021 10:24 PM (UTC)`
 
 9.12<br/>这个100%是假的！迪拜七星酒店等乱凑的……我们要唯真不破……兄弟姐妹们！ <br/><br/>https://twitter.com/g_defense777/status/1436894371513872385?s=12
-
----
-
-`@miles 9/12/2021 8:54 PM (UTC)`
-
-9月12号：灭共同也能赚大钱的时代已悄悄地开启。<br/>跟着共产党走进火葬场的时代即将结束🔚<br/><br/>共产党你玩蛋了……【将近3亿美元票房，没有在墙内上演。】
-![img](https://media.gettr.com/group22/getter/2021/09/12/20/7d4ad4c8-8947-b0ec-2daf-970384eca586/47620251bcec9475155450bf59e49fc8.jpg)
 
 ---
 
