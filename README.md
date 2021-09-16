@@ -13,20 +13,20 @@
 
 ---
 
-### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/1/README.md)
- ` 纽约香草山MOS01`
+### [Bill Gates sa vid TED-konferensen 2010 att det nya vaccinet kan minska befolkningen med 10-15%, det vill säga minska 1 miljard människor världen över!](/content/gnews/1/README.md)
+ ` MG 澳喜农场多语组`
 
-### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [Thousands of New York Educators Marched against the mandatory Vaccinations](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
 
-### [존 케리의 방中 나쁜 영향만~~~](/content/gnews/3/README.md)
- ` STHK`
-
-### [秘翻在線 :加州大學教授以人體自然免疫為由，拒絕接種疫苗並起訴學校](/content/gnews/4/README.md)
+### [GT ONLINE： 13 Grunde Til, At Du Ikke Bør Tillade Dit Barn At Få Covid-19-Vaccinen](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [9/16/21 香港快讯 支联会宣布应警方要求移除电子信息平台 成立新专页](/content/gnews/4/README.md)
+ ` 英喜-粵語組`
+
+### [9/16/21 香港快讯 支联会宣布应警方要求移除电子信息平台 成立新专页](/content/gnews/5/README.md)
+ ` 英喜-粵語組`
 
 ### [2021年9月15日 文贵先生盖特 11](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -151,36 +151,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/47/README.md)
+### [9/16/21 香港快讯 支联会宣布应警方要求移除电子信息平台 成立新专页](/content/gnews/47/README.md)
+ ` 英喜-粵語組`
+
+### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [纽约法官阻止了针对医疗工作者的强制接种令](/content/gnews/48/README.md)
+### [纽约法官阻止了针对医疗工作者的强制接种令](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [灭活版科兴站稳海外 转推mRNA研发销售](/content/gnews/49/README.md)
+### [灭活版科兴站稳海外 转推mRNA研发销售](/content/gnews/50/README.md)
  ` GTV新闻访谈`
 
-### [德骗云书院就是低配版缺德社](/content/gnews/50/README.md)
+### [德骗云书院就是低配版缺德社](/content/gnews/51/README.md)
  ` 波士顿五月花农场`
 
-### [美国国务卿与立陶宛举行外交会谈 国会山表态共同对抗中共胁迫](/content/gnews/51/README.md)
+### [美国国务卿与立陶宛举行外交会谈 国会山表态共同对抗中共胁迫](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [视频| 弗罗里达州长宣布强制接种违法](/content/gnews/52/README.md)
+### [视频| 弗罗里达州长宣布强制接种违法](/content/gnews/53/README.md)
  ` MOSREC`
 
-### [视频| 德国首席病理学家对新冠病毒疫苗的致命伤害发出警告](/content/gnews/53/README.md)
+### [视频| 德国首席病理学家对新冠病毒疫苗的致命伤害发出警告](/content/gnews/54/README.md)
  ` MOSREC`
 
-### [视频| 大学增加国安法课程, 香港新闻业前路艰难](/content/gnews/54/README.md)
+### [视频| 大学增加国安法课程, 香港新闻业前路艰难](/content/gnews/55/README.md)
  ` MOSREC`
 
-### [视频| 韩澳“2+2”会谈 致力建立全面战略合作伙伴关系](/content/gnews/55/README.md)
+### [视频| 韩澳“2+2”会谈 致力建立全面战略合作伙伴关系](/content/gnews/56/README.md)
  ` MOSREC`
 
-### [视频| 泰国10月起将为12至18岁学生接种辉瑞疫苗](/content/gnews/56/README.md)
+### [视频| 泰国10月起将为12至18岁学生接种辉瑞疫苗](/content/gnews/57/README.md)
  ` MOSREC`
-
-### [拜登强制推行疫苗政策是反人类罪](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
