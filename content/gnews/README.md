@@ -13,20 +13,20 @@
 
 ---
 
-### [美国超过一半的州誓言反对拜登的疫苗强制接种政策](/content/gnews/1/README.md)
+### [Alarm! Why Do They Prepare to Inject the mRNA “Vaccine” into Infants and Young Children?](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [每日快报:拜登否认提议美中峰会遭习近平拒绝](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [每日快报:拜登否认提议美中峰会遭习近平拒绝](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [纽约南区法院判SEC诉讼案和解结束，但和解文件内容不包含VOG](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/5/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：美英澳三国宣布建立新的科技和军事合作协议](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [郭文贵先生GTV直播2021年9月14日文字精简版分享](/content/gnews/6/README.md)
  ` TS2020相聚盘古`
@@ -46,13 +46,13 @@
 ### [印度北方邦证实伊维菌素是治疗和预防中共病毒的有效方式](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚、美国和英国将发表联合国家安全声明](/content/gnews/12/README.md)
+### [每日快报:拜登否认提议美中峰会遭习近平拒绝](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [澳大利亚、美国和英国将发表联合国家安全声明](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [辉瑞表示，5岁以下儿童的新冠疫苗数据或在10月底公布](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [黑石终止Soho要约收购, 导致Soho中国股价暴跌40%](/content/gnews/14/README.md)
+### [辉瑞表示，5岁以下儿童的新冠疫苗数据或在10月底公布](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [恒大陷入流动性危机，员工集体追讨投资本金](/content/gnews/15/README.md)
@@ -85,23 +85,23 @@
 ### [2021/09/15 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国超过一半的州誓言反对拜登的疫苗强制接种政策](/content/gnews/25/README.md)
+### [纽约南区法院判SEC诉讼案和解结束，但和解文件内容不包含VOG](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/26/README.md)
+### [秘翻在线：美英澳三国宣布建立新的科技和军事合作协议](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国医院因强制接种新冠毒针的政策而纷纷面临关闭](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/27/README.md)
+### [美国超过一半的州誓言反对拜登的疫苗强制接种政策](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：又一家中共国房企危矣 标普下调“花样年”评级至负面](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
+### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：谷歌强迫智能设备制造商使用指定系统 韩国政府对此开出1.77亿美元罚单](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：富士康与拜顿合作的电动车项目暂停](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
+### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
 
 ### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
@@ -154,33 +154,33 @@
 ### [瑞士称不认可部分世卫批准的疫苗](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：小泉进次郎力挺河野太郎执掌自民党](/content/gnews/48/README.md)
+### [秘翻在线：又一家中共国房企危矣 标普下调“花样年”评级至负面](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国际要闻汇编](/content/gnews/49/README.md)
+### [秘翻在线：谷歌强迫智能设备制造商使用指定系统 韩国政府对此开出1.77亿美元罚单](/content/gnews/49/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：富士康与拜顿合作的电动车项目暂停](/content/gnews/50/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：小泉进次郎力挺河野太郎执掌自民党](/content/gnews/51/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国际要闻汇编](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [反驳病毒源自中共实验室的27人中有26人与武毒所有关](/content/gnews/50/README.md)
+### [反驳病毒源自中共实验室的27人中有26人与武毒所有关](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [墙内要闻汇编](/content/gnews/51/README.md)
+### [墙内要闻汇编](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [受全球经济恶化影响，半导体代工厂4季度订单将被削减](/content/gnews/52/README.md)
+### [受全球经济恶化影响，半导体代工厂4季度订单将被削减](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [调查记者正在编制一份Covid 疫苗所有副作用的清单](/content/gnews/53/README.md)
+### [调查记者正在编制一份Covid 疫苗所有副作用的清单](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP将在香港掀起新一轮财富掠夺](/content/gnews/54/README.md)
+### [CCP将在香港掀起新一轮财富掠夺](/content/gnews/57/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [德州一医院CEO称，医院因强制疫苗而面临关闭](/content/gnews/55/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [新加坡疫苗接种率达到80%后爆发中共病毒大规模感染](/content/gnews/56/README.md)
- ` 澳喜农场`
-
-### [文雍漫谈：你的身体谁做主](/content/gnews/57/README.md)
- ` 文雍`
 
