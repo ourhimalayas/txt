@@ -2,50 +2,17 @@
 ---
 
 
-## 《GTV新闻访谈》重要提醒：YouTube备用账号
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1534906/)
+## 彼得•纳瓦罗官方宣布担任盖特大使和新中国联邦的国家代表大使
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1535539/)
 
-栏目记者/责任编辑：Zion文恩
+韩国首尔天池农场—-追着曙光跑
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
-因本节目的YouTube频道后台近期频繁收到所谓“虚假医疗信息“的社区准册警告，随时可能被永久封号，请大家同时关注本节目的备用频道，链接将放在本期节目视频上传之后的简介里。
-
-《GTV新闻访谈》YouTube备用账号链接：
-
-[喜马拉雅农场联盟二号台](https://www.youtube.com/channel/UCL3xNG1Od0xMW2ERyq9Pg2g/featured)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-22.jpg)
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Q大哥，Ryan，暗黑
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+根据郭文贵先生9月15日的盖文，川普政府最重要的内阁官员彼得•纳瓦罗（Peter Navarro），今天官方宣布成为盖特的形象大使，和新中国联邦的国家代表大使！（彼得•纳瓦罗盖特账号为@RealPNavarro）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/916彼得盖.jpeg)
+文贵先生说“这是新中国联邦人的荣幸，我们也要永远珍惜，像他和班农先生这样的永远的兄弟和永远的朋友，我们还是最紧密的战友，我们将一起战斗，消灭邪恶的中国共产党”！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/916插图.jpeg)
+彼得 •纳瓦罗是一名经济学家，前任美国总统川普助理、白宫贸易与制造业政策办公室主任，同时是《国防生产法》政策协调员。他也是加利福尼亚大学尔湾分校保罗梅拉吉商学院经济学和公共政策退休教授。他出版了数十部书籍，包括《致命中国》。他最近新出版的《在川普时期》（作者自己翻译的中文名字，中文版还没有翻译出版），英文书名为《IN TRUMP TIME》，从昨天开始在亚马逊预订。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/916书.jpeg)
+（本文仅代表作者观点，与Gnews平台无关）
 
 +1

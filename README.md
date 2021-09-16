@@ -13,20 +13,20 @@
 
 ---
 
-### [拜登将宣布美英澳先进科技分享协议剑指中共](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [SEC Case Has Ended; Breaking News That The Whistleblower Movement has Triumphed Over the CCP](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [拜登将宣布美英澳先进科技分享协议剑指中共](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年09月15日澳喜要闻（每日更新）](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [劲爆：美国纽约南区检察院终止对G-TV的所有调查](/content/gnews/5/README.md)
+### [性に由来する人類の文化を正しく理解](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [グローバル化された金融の利害](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳门启动《博彩法》咨询 将引入政府代表](/content/gnews/3/README.md)
+ ` 纽约香草山MOS01`
+
+### [ワクチン問題解決の鍵](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [电视台的 Facebook 帖子意外地揭示了死于疫苗的人多于媒体报道](/content/gnews/5/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
 ### [2021/09/15 文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -67,65 +67,65 @@
 ### [林郑月娥承诺大力推动前海方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频| 灭共七剑客](/content/gnews/19/README.md)
+### [有声| 信仰与人权，拣选与文明——人类的第三文明：G文明的到来](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/20/README.md)
+### [视频| 灭共七剑客](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/21/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021/09/15 大卫作战室直播精要](/content/gnews/21/README.md)
+### [2021/09/15 大卫作战室直播精要](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国军队为中共疫苗接种设定最后期限](/content/gnews/22/README.md)
+### [美国军队为中共疫苗接种设定最后期限](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/23/README.md)
+### [是父母的错吗？希特勒、列宁、斯大林的童年](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [接种疫苗需谨慎](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [澳门启动《博彩法》咨询 将引入政府代表](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
 
-### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/25/README.md)
+### [彼得•纳瓦罗官方宣布担任盖特大使和新中国联邦的国家代表大使](/content/gnews/26/README.md)
+ ` 首尔天池农场`
+
+### [秘翻在线: 反制裁，英国禁止中共大使进入英国议会大厦](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《GTV新闻访谈》重要提醒：YouTube备用账号](/content/gnews/26/README.md)
+### [《GTV新闻访谈》重要提醒：YouTube备用账号](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [爆料革命开启“以苗灭共”的新纪元](/content/gnews/27/README.md)
+### [爆料革命开启“以苗灭共”的新纪元](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [20万亿美元中共盗国资产——三股势力的角力战场](/content/gnews/28/README.md)
+### [20万亿美元中共盗国资产——三股势力的角力战场](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [给“习一神捎个话”——国际黑暗势力伙同其中共代理人密切掌握习近平的行踪](/content/gnews/29/README.md)
- ` GTV新闻访谈`
+### [电视台的 Facebook 帖子意外地揭示了死于疫苗的人多于媒体报道](/content/gnews/31/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [新冠疫苗损害法案进入二读辩论 已接种疫苗议员忧心忡忡](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [拜登将宣布美英澳先进科技分享协议剑指中共](/content/gnews/31/README.md)
+### [拜登将宣布美英澳先进科技分享协议剑指中共](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [劲爆：美国纽约南区检察院终止对G-TV的所有调查](/content/gnews/32/README.md)
+### [劲爆：美国纽约南区检察院终止对G-TV的所有调查](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中](/content/gnews/33/README.md)
+### [众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中](/content/gnews/34/README.md)
  ` 美国政要直译推`
 
-### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/34/README.md)
+### [中共学者人脸识别技术被澳方指责违反道德准则](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共驻英大使被禁止进入英国国会](/content/gnews/35/README.md)
+### [中共驻英大使被禁止进入英国国会](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共正在扩大在非洲的影响力](/content/gnews/36/README.md)
+### [中共正在扩大在非洲的影响力](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/37/README.md)
+### [美国将对五岁以上儿童强制使用新冠疫苗](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
