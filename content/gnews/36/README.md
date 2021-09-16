@@ -2,28 +2,29 @@
 ---
 
 
-## 支联会应警方要求删网站等 内有大量六四屠城相片
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536537/)
+## 秘翻在线 :加州大学教授以人体自然免疫抗体为由，拒绝接种疫苗并起诉学校
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536529/)
 
-2021年09月16日
+撰稿：William
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-89015108-640x431-3.jpg)网络图片
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/p.jpg.png)
+图片来源：MEDPAGETODAY
 
-**编辑摘要：**据立场新闻9月16日报道，支联会早前收到警方信件，引用国安法第 43 条《实施细则》，要求移除指定的电子平台讯息。支联会指，将在今晚（16日） 移除支联会网站、Facebook 专页、YouTube 频道、Twitter 以及 IG 等所有内容，同时由即日起，透过新 Facebook 专页发布讯息。
+根据零对冲(Zero Hedge) 的报导,之前一位乔治梅森大学(George Mason University)教授以感染中共病毒后获得天然免疫抗体为由，拒绝接种中共病毒疫苗，并对乔治梅森大学提起告诉。后来乔治梅森大学让步，允许该教授不打疫苗。现在，加州大学(University of California)的欧文分校(Irvine)精神病学和人类行为学教授亚伦·赫里亚蒂 (Aaron Kheriaty)一位教授也以”天然抗体足以抵御中共病毒为由，起诉学校董事会和大学校长。
 
-翻查支联会的网站、YouTube频道，内有大量六四相关资料，包括 1989 年中国民主运动、屠城相片、受难者家属亲身口述证辞、历年香港烛光晚会影片等，记录六四历史。
+他告诉辛克莱广播集团( Sinclair Broadcast Group,SBG) ，事实上他的免疫能力效果很好，绝对超越疫苗所提供的免疫能力，因此没有任何理由拒绝他本身所拥有的自然免疫，而强制要求他借由疫苗获得较差的免疫能力。
 
-新闻参考链接：[https://www.thestandnews.com/politics/a-支聯會應警方要求刪網站youtube-等-大量六四屠城相片難屬口述證辭影片料被刪](https://www.thestandnews.com/politics/a-支聯會應警方要求刪網站youtube-等-大量六四屠城相片難屬口述證辭影片料被刪)
+赫里亚蒂引用研究表明，中共病毒确诊的病人，复原后会产生相当大的保护作用。拉霍亚免疫学研究所(La Jolla Institute for Immunology )研究人员发现，从中共病毒疾病恢复的人所获得的免疫系统 , 在感染后长达八个月内对病毒有持久的记忆。
 
-* * *
+他详细介绍了此类研究，这不是针对疫苗的某种说法，而是基于科学的挑战。赫里亚蒂正面临挑战，法院可能会认定，让具有天然抗体的人打疫苗并不被认为是危险或有害的。因此，它可能会得出一个违心之论:人们很难建立天然抗体及其特定的保护水平。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+接种疫苗的个体问题重重 , 随着时间的推移，打过疫苗的人会因为刺突蛋白的广泛发炎反应造成心包炎、心肌炎、脑中风、不孕等后遗症。疾病预防控制中心和拜登政府显然回避甚至反对人们拥有自然抗体的看法，大多数的主流媒体也持相同观点。关于人们自然抗体可以对抗中共病毒的看法处处被屏蔽及压抑。
+
+然而, 愈来愈多的人已开始觉醒:”人类拥有造物者所给予的自然抗体，根本不需施打毒疫苗。”
+
+新闻来源：California Medical Ethics Prof With Natural Immunity Sues University Over Vaxx Mandate
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

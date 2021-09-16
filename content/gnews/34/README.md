@@ -2,29 +2,41 @@
 ---
 
 
-## 秘翻在线：欧盟调查TikTok收集未成年用户数据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536523/)
+## 韩国金融服务委员会监管改革,本国大部分加密货币交易所将停业
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536821/)
 
-#### 文章撰写：寶寶
+作者：香草山教育部-浪迹天涯
 
-#### 校对发布：文柯Miles
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Three-girls-wasadtching-TikTok-videos-640x480-1.jpg)
 
-据布赖特巴特新闻网（Breitbart News）报道，爱尔兰数据保护委员会已对中共的视频平台TikTok启动了两项调查，主要针对该平台收集未成年人个人数据和向中共国传输用户数据。该机构是许多科技巨头在欧盟的主要监管机构。
 
-许多公司的区域总部设在爱尔兰，因此爱尔兰数据保护委员会对欧盟内的许多世界顶级科技巨头进行监管。 如果发现公司违反欧盟法规，数据保护委员会可以处以最高为公司全球收入4%的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/韩国金融服务委员会监管改革预计将关闭本国大部分加密货币交易所.png)
 
-8月，TikTok宣布将对其青少年用户实施更严格的隐私控制，以解决有关其未能保护儿童免受隐晦广告和不当内容侵害的指控。 《华尔街日报》最近的一份报告，概述了TikTok的算法如何继续向未成年用户宣传色情内容和使用毒品。
+据Bitcoin.com网站9月14日报道，韩国金融服务委员会(FSC)即将针对数字货币的监管进行改革。由于无法遵守金融服务委员会发布的新监管框架，韩国60家交易所中的40家将被关闭。
 
-爱尔兰数据保护委员会发起的第一项调查，涉及“针对18岁以下用户的平台设置和个人数据处理，以及针对13岁以下用户的年龄验证措施”。
+据悉，此项改革规定所有交易所都需要在FSC注册，才能获得在韩国的运营资格。该规定的截止日期为明年9月24日。法律规定，加密交易所必须与银行机构合作，为客户开设实名账户。然而，为避免洗钱的嫌疑，银行拒绝这种做法。这项规定不仅波及韩国本土的交易所，国际交易所也将受到影响。
 
-第二项调查将重点关注TikTok向中共国传输用户个人数据，以及该公司是否遵守欧盟数据法。 TikTok发言人表示，该公司制定了广泛的政策和控制措施，以防止任何滥用用户数据的行为，并使用欧盟批准的数据传输方式。
+这项规则将使韩国客户流向有资质的加密货币交易所，而我们喜马拉雅交易所既有资质，也符合这些规则。相信喜马拉雅交易所在韩国上市后，将会受到更多韩国客户的青睐。
 
-该发言人表示：“TikTok社区的的隐私和安全，尤其是最年轻用户，是我们的首要任务。”
+（文章仅代表作者个人观点）
 
-参考文章：[**Ireland’s Data Protection Commission, which is the lead EU regulator for many tech giants, has reportedly launched two investigations into the Chinese-owned video platform TikTok. The two investigations center on the platform’s collection of the personal data of minors and the transfer of user data to China.**](https://www.breitbart.com/tech/2021/09/15/irish-data-protection-regulator-launches-probe-of-communist-chinas-tiktok-collecting-info-of-children/)
+参考链接：[FSC Regulatory Overhaul Expected to Shut Down 40 Crypto Exchanges in South Korea](https://news.bitcoin.com/fsc-regulatory-overhaul-expected-to-shut-down-40-crypto-exchanges-in-south-korea/)
 
-本文仅代表作者本人观点，不代表Gnews平台
+编辑/校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

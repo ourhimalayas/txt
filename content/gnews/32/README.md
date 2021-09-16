@@ -2,41 +2,82 @@
 ---
 
 
-## 韩国金融服务委员会监管改革,本国大部分加密货币交易所将停业
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536821/)
+## 西喜时事新闻简报 — 中共国国际时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1536860/)
 
-作者：香草山教育部-浪迹天涯
+#### 您若想了解全文报导内容，请点击标题链接
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- **编译：wenwu–西班牙喜悦农场**
 
 
+1**.  [俄称全球出口奶粉近四分之一被中国买走](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210915-%E4%BF%84%E7%A7%B0%E5%85%A8%E7%90%83%E5%87%BA%E5%8F%A3%E5%A5%B6%E7%B2%89%E8%BF%91%E5%9B%9B%E5%88%86%E4%B9%8B%E4%B8%80%E8%A2%AB%E4%B8%AD%E5%9B%BD%E4%B9%B0%E8%B5%B0)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/韩国金融服务委员会监管改革预计将关闭本国大部分加密货币交易所.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-16T184816.173.png)
 
-据Bitcoin.com网站9月14日报道，韩国金融服务委员会(FSC)即将针对数字货币的监管进行改革。由于无法遵守金融服务委员会发布的新监管框架，韩国60家交易所中的40家将被关闭。
+据《法广网》2021年9月15日电，俄罗斯农业部农产品出口发展中心报告显示，2020年全球全脂奶粉出口总量274万5900公吨，23%被中国买走，而今年1月至7月，中国在全脂奶粉进口总量较去年同期的45.5万公吨提升34%，达到60.9万公吨，而此段期间，向中国提供奶粉的主要国家为新西兰，共向中国出口56.1万公吨。
 
-据悉，此项改革规定所有交易所都需要在FSC注册，才能获得在韩国的运营资格。该规定的截止日期为明年9月24日。法律规定，加密交易所必须与银行机构合作，为客户开设实名账户。然而，为避免洗钱的嫌疑，银行拒绝这种做法。这项规定不仅波及韩国本土的交易所，国际交易所也将受到影响。
+此外，俄国报告还提到，2020年全球出口的脱脂奶粉、牛油与奶酪，分别有13%、9%、4%被中国买走，俄国政府目前正在针对奶粉供应问题，与中国政府展开谈判，双方最近1次在8月7日召开会谈，中国政府派出海关总署与俄方接洽相关事宜，目前双方尚未达成共识。
 
-这项规则将使韩国客户流向有资质的加密货币交易所，而我们喜马拉雅交易所既有资质，也符合这些规则。相信喜马拉雅交易所在韩国上市后，将会受到更多韩国客户的青睐。
+**2. [中共国国营媒体负责人预测对美国的另一次“致命攻击”](https://thenationalpulse.com/news/ccp-media-chief-predicts-deadly-terrorist-attack/)**
 
-（文章仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-16T184948.484.png)
 
-参考链接：[FSC Regulatory Overhaul Expected to Shut Down 40 Crypto Exchanges in South Korea](https://news.bitcoin.com/fsc-regulatory-overhaul-expected-to-shut-down-40-crypto-exchanges-in-south-korea/)
+据《国家脉动》2021年9月15日电，《环球时报》的负责人胡锡进在911成立20周年的推文中做出了这一[预测](https://twitter.com/HuXijin_GT/status/1436674746523947011?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Etweet)：“9月11日的袭击是19名恐怖分子的自杀式袭击，但不是恐怖主义的‘自杀式袭击’。恐怖主义将积累发动下一次致命袭击的力量。时间将证明，美国将中共国视为最大对手是错误的。”
 
-编辑/校对/发稿：雪梨
+在[《环球时报》的一篇专栏的文章中](https://www.globaltimes.cn/page/202109/1233960.shtml)，胡鼓励美国人“醒醒”并接受中国共产党的崛起：“美国精英从 9/11 事件中吸取的教训也是错误的——反恐战争消耗了美国的资源和注意力，并为中共国的崛起提供了机会。直到今天，他们仍然没有完全理解。他们傲慢地认为中共国的崛起是由于美国的心不在焉。他们固执地认为，美国的力量足以决定这个人口是美国四倍的最古老文明之一的命运，美国可以将中共国人民永远关在贫困的牢笼中。醒目点啦。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+以上评论的同一周，美国参谋长联席会议主席马克·米利将军[与中国共产党同行勾结，](https://thenationalpulse.com/news/coup-general-milley-secretly-pledged-to-warn-chinese-communist-party-if-trump-planned-a-strike/)以篡夺美国川普时代的文职控制权（通共门）。
 
-**更多资讯，更多关注**
+**3. [习近平拒绝与拜登面对面会谈](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210914-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%8B%92%E7%BB%9D%E4%B8%8E%E6%8B%9C%E7%99%BB%E9%9D%A2%E5%AF%B9%E9%9D%A2%E4%BC%9A%E8%B0%88)**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-16T185239.362.png)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+据《法广网》2021年9月15日电，美中领导人上周四举行七个月以来首次通话，中方报道特意强调电话是拜登主动打去的，其后拜登提议举行二人峰会，与习近平面对面会晤，但遭到习近平拒绝。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+白宫一名官员对法新社表示，“美中外交僵局已到了难以支撑，潜在危险很大的地步。我们支持激烈的竞争，但我们不希望这一竞争蜕变为冲突。”习近平在与拜登通话时表示： “中美分别是最大的发展中国家和最大的发达国家，中美能否处理好彼此关系，攸关世界前途命运，是两国必须回答好的世纪之问；中美关系不是一道是否搞好的选择题，而是一道如何搞好的必答题”。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**4. [中共国突破CPTPP困局 王毅访新加坡不虚此行](https://news.creaders.net/china/2021/09/15/2398196.html)**
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-16T185348.253.png)
+
+据《万维网》2021年9月5日电，中新两国之间眼花缭乱的各种合作，一个字眼的突然出现让外界眼前一亮。新加坡外交部于周一（13日）称，新方对中国加入“全面与进步跨太平洋伙伴关係协定（CPTPP）表示兴趣”。这一表态意味着自北京宣布加入CPTPP意向10个月后，新加坡方面已经在CPTPP签约的11国中最先表示了对北京的接纳。
+
+无论是由美国为主导的跨太平洋伙伴关係协定（TPP），还是美国选择退出的CPTPP，它们都有着排斥中国的内核，这源于中共国的国企补贴、政府采购以及服务业准入水平与西方标准的差异（没有契约精神），以及日、澳、加的地缘政治；中共国或有可能已对马来西亚甚至文莱、智利、秘鲁展开游说，并把“中国加入CPTPP”与“签署协议”形成捆绑。
+
+**5. [英国议会：禁止中共大使踏入议会大厦](https://www.epochtimes.com/gb/21/9/14/n13234175.htm)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-16T185502.044.png)
+
+据《大纪元》2021年9月15日电，中共驻英国大使[郑泽光](https://www.epochtimes.com/gb/tag/%E9%83%91%E6%B3%BD%E5%85%89.html)本计划周三（15日）访问英国议会，但前一天英国上下两院议长联合决定，不允许郑泽光踏入英国议会，原因是中共迫害（新疆）人权、并制裁敢言的英国议员；下议院议长林赛·霍伊尔（Lindsay Hoyle）爵士和议长麦克福尔男爵（McFall of Alcluith）在周二（14日）最后一刻介入，阻止[郑泽光](https://www.epochtimes.com/gb/tag/%E9%83%91%E6%B3%BD%E5%85%89.html)踏入威斯敏斯特议会大厅。
+
+今年夏天，英国“跨党派中国小组”（APPG）主席格雷厄姆（Richard Graham）议员向郑泽光发出了邀请，请他到议会来参加会议，但这份邀请事先没有征得两院的许可；下议院议长林赛爵士告诉《每日电讯报》：“我定期与来自世界各地的大使举行会议，为的是跟其它国家和议员建立持久的联系。但我认为当我们议员被实施制裁时，我们还跟中国（中共）大使在下议院和工作场所会面，是不合适的。”
+
+被中共制裁的对象中，包括前保守党党魁[伊恩·邓肯·史密斯](https://www.epochtimes.com/gb/tag/%E4%BC%8A%E6%81%A9%C2%B7%E9%82%93%E8%82%AF%C2%B7%E5%8F%B2%E5%AF%86%E6%96%AF.html)（Sir Iain Duncan Smith）等人，他们联名写信给议长表示，邀请中共大使的行为是“具有威胁性的，试图让我们和同事保持沉默，并破坏我们所有人的安全”；被中共制裁的保守党前党魁史密斯感谢两位议长的“迅速”行动，他说：“这次会晤不应该在[议会大厦](https://www.epochtimes.com/gb/tag/%E8%AE%AE%E4%BC%9A%E5%A4%A7%E5%8E%A6.html)举行，这是保护言论自由和自由人民的自由地方，让受制裁的议员容忍中共国大使来到国会大厦，是完全不可接受的。”
+
+**6.[一半的美国人说 1 月 6 日的抗议者是“受迫害的政治犯”](https://thenationalpulse.com/news/half-of-america-says-jan-6-protesters-are-persecuted-political-prisoners/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip72.png)
+
+据《国家脉动》2021年9月14日电，多名美国选民表示，在 1 月 6 日美国国会大厦骚乱中陷入漩涡的和平抗议者被当作“政治犯”关押，并受到执法部门的迫害；来自拉斯穆森[一项](https://www.rasmussenreports.com/register/platinum_service_description)新[民意调查](https://www.rasmussenreports.com/register/platinum_service_description)的数据显示，有49% 的美国“可能选民”强烈或有点同意美国政府关押政治犯的概念；另外，有42% 的人不同意，有9% 的人“不确定”。
+
+最近的报告表明，一些 1 月 6 日的抗议者中仍有等待审判的人受到虐待、营养不良，并被毫无理由地单独监禁。当国会议员访问华盛顿特区的惩教部时，他们[被锁在大楼外](https://thehill.com/homenews/house/565562-gop-reps-gaetz-green-and-gohmert-turned-away-from-jail-to-visit-jan-6)，无法检查拘留设施。
+
+此外，拉斯穆森透露，48% 的美国人认为司法部和联邦调查局“针对、监禁和迫害非暴力的美国爱国者”，而 46% 的人不同意这一前提；只有 52% 的人表示乔·拜登“公平地”赢得了 2020 年总统大选，40% 的人表示相反，还有 8% 的人仍然不确定。
+
+7.**[台空军拟斥资10亿美元兴建基地、导弹](https://www.taiwannews.com.tw/en/news/4288046)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip71.png)
+
+据《台湾英文新闻》2021年9月15日电，周三（115日）的一年一度第 37 届汉光实弹演习的特点是喷气式飞机在省道上起降，以表明空军已准备好迎接来自中国的挑战。在过去的一年里，中国人民解放军空军（PLAAF）的[飞机](https://www.taiwannews.com.tw/en/news/4287547)几乎每天都在侵入台湾的[防空识别区](https://www.taiwannews.com.tw/en/news/4287547)（ADIZ）。
+
+在飞机采购和升级计划之后，空军现在将注意力转向帮助飞机起降所需的机场。预算包括新台币 184 亿元，用于加强全岛多个基地的跑道和升级机场设施；从2020年到2031年，预算153亿元，用于更换384枚爱国者PAC-3导弹的零件。除了从美国采购武器外，军方还将从台湾国立中山科技学院（NCSIST，中科院）购买天弓III导弹。空军已预算 330 亿新台币（11.9亿美元）
+
+（文章仅代表作者本人观点，与Gnews无关）
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-92.png)
 
 0
