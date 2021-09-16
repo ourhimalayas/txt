@@ -15,6 +15,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ilpresidento 9/11/2021 9:46 PM (UTC)`
+
+REAL LOVE!!!
+![img](https://media.gettr.com/group23/origin/2021/09/11/21/6842c0fa-bcc8-c6a1-ef43-cec8400387b4/b94ba6daa917cf15d93a0f35ca95bae4.jpg)
+
+---
+
+`@miles 9/16/2021 5:00 PM (UTC)`
+
+9月16号：从这个家长群可以看到共产党洗脑的危害，这应该是路大脑骗，亡腚肛亲娘吧！🥵🥵🥵
+![img](https://media.gettr.com/group34/getter/2021/09/16/16/5d6259d5-a6c4-7f19-553c-8d19c98ef0dc/b65886feffbe4ce006c26699797655ab.jpg)
+
+---
+
 `@miles 9/16/2021 4:31 PM (UTC)`
 
 9.16日：七哥今天有两场球赛🏀……一大1⃣️小……
@@ -280,20 +296,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/12/2021 Miles Guo: Exposing the CCP's hooligan-like attitudes towards foreign companies in the Communist China! We are the earliest in this world who can tell you in advance that numerous foreign companies such as Samsung would move out of the Communist China! Toyota has not increased any investment, introduced a single new technology, or signed a single new contract in the Communist China since 2016.<br/><br/>9/12/2021 文贵直播: 揭露中共对待外资企业的流氓态度！全世界我们最早提前告诉大家三星等大量外资企业会撤离中共国！2016年以后丰田再未向中共国增加投资、技术或签新合同！<br/>
 ![img](https://media.gettr.com/group18/getter/2021/09/13/06/fdfbedef-f273-1610-2c5e-2e6a44d48638/out.jpg)
-
----
-
-`@miles 9/13/2021 5:42 AM (UTC)`
-
-8/18/2019 Miles Guo: The essence of the plan of Guangdong–Hong Kong–Macau Greater Bay Area (GBA) is to deceive the West by using Hongkongers as shills so as to challenge the U.S. dollar and take down the U.S.!<br/><br/>8/18/2019 郭文贵：中共粤港澳大湾区计划的本质是利用香港人当托来欺骗西方，从而挑战美元、干掉美国！
-![img](https://media.gettr.com/group20/getter/2021/09/13/05/a68258b7-b6c3-0a23-5252-74cea9905c82/out.jpg)
-
----
-
-`@miles 9/13/2021 5:31 AM (UTC)`
-
-2019年郭文贵先生揭露中共企图吞噬香港的大湾区计划<br/><br/>In 2019, Mr. Miles Guo exposed the Greater Bay Area plan of the Chinese Communist Party to swallow up Hong Kong
-![img](https://media.gettr.com/group28/getter/2021/09/13/05/c20e3f76-9b28-d727-227d-ca2f4bacd15c/out.jpg)
 
 ---
 

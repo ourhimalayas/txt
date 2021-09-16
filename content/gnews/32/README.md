@@ -2,30 +2,41 @@
 ---
 
 
-## 国防预算破纪录后 台湾再通过千亿军备预算
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536561/)
+## 韩国金融服务委员会监管改革,本国大部分加密货币交易所将停业
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536821/)
 
-2021年09月16日
+作者：香草山教育部-浪迹天涯
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-89015108-640x431-4.jpg)网络图片
-
-**编辑摘要：**据德国之声9月16日报道，台湾行政院16日通过2400亿台币的”海空战力提升计划采购特别条例”草案，将在2022年到2027年的五年间，采购台湾自产自制的飞弹和舰艇、提升战斗力。
-
-台湾行政院长苏贞昌指出，中共国军机、军舰扰台的频率、次数日渐增加，因此需要为维护国家主权和人民安全做好准备。面对中共国的各种威胁，美国民主党联邦众议贝拉（Ami Bera）在全球台湾研究中心第5届年会中表示，中共最近的表现迫使全世界重新评估中共国，美国不是立陶宛，如果中共以对待立陶宛的方式对待美国，那将是“过度反应”。
-
-对于立陶宛和台湾发展外交关系一事，美国民主党参议员梅嫩德斯（Bob Menendez）也提到：“我们坚决支持那些拥有绝对主权、以任何形式为台湾发声的国家。我们非常明确地向立陶宛人民表示，我们支持他们。”
-
-新闻参考链接： [https://www.dw.com/zh/国防预算破纪录后-台湾再通过千亿军备预算案/a-59199722?maca=chi-rss-chi-all-1127-rdf](https://www.dw.com/zh/%E5%9B%BD%E9%98%B2%E9%A2%84%E7%AE%97%E7%A0%B4%E7%BA%AA%E5%BD%95%E5%90%8E-%E5%8F%B0%E6%B9%BE%E5%86%8D%E9%80%9A%E8%BF%87%E5%8D%83%E4%BA%BF%E5%86%9B%E5%A4%87%E9%A2%84%E7%AE%97%E6%A1%88/a-59199722?maca=chi-rss-chi-all-1127-rdf)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/韩国金融服务委员会监管改革预计将关闭本国大部分加密货币交易所.png)
+
+据Bitcoin.com网站9月14日报道，韩国金融服务委员会(FSC)即将针对数字货币的监管进行改革。由于无法遵守金融服务委员会发布的新监管框架，韩国60家交易所中的40家将被关闭。
+
+据悉，此项改革规定所有交易所都需要在FSC注册，才能获得在韩国的运营资格。该规定的截止日期为明年9月24日。法律规定，加密交易所必须与银行机构合作，为客户开设实名账户。然而，为避免洗钱的嫌疑，银行拒绝这种做法。这项规定不仅波及韩国本土的交易所，国际交易所也将受到影响。
+
+这项规则将使韩国客户流向有资质的加密货币交易所，而我们喜马拉雅交易所既有资质，也符合这些规则。相信喜马拉雅交易所在韩国上市后，将会受到更多韩国客户的青睐。
+
+（文章仅代表作者个人观点）
+
+参考链接：[FSC Regulatory Overhaul Expected to Shut Down 40 Crypto Exchanges in South Korea](https://news.bitcoin.com/fsc-regulatory-overhaul-expected-to-shut-down-40-crypto-exchanges-in-south-korea/)
+
+编辑/校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

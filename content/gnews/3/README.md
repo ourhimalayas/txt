@@ -2,73 +2,25 @@
 ---
 
 
-## GT ONLINE： 13 Grunde Til, At Du Ikke Bør Tillade Dit Barn At Få Covid-19-Vaccinen
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1536757/)
+## 【文炬专栏】“德教”是帝道邪教
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1536857/)
 
-Oversat og skrevet af: Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获-1.jpg)
-Billedkilde：Dr. Zelenko GETTR
+温哥华扬帆农场 – 文炬
+![](https://assets.gnews.org/wp-content/uploads/2021/08/专栏图-scaled.jpg)
+“德教”是去年悄然兴起的。有战友极力推介，说“德教”是灭共的。因为是网上互动，同时打着中国传统文化招牌，故称“云书院”。“德先生”50多集GTV视频古典音乐背景颇有国学韵味，加之号称弘扬中华传统智慧，于是许多战友放松了警惕。 “德教”53集视频被称为“云书院”的初级课程，听一听都是些网上搜索可见的历史加野史，骂一骂上下五千年的封建政治顺带对比骂一骂共产党，不了解也鲜有考证无从考证的读者观众、听众诸君更加放松了警惕，有战友推荐、农场加持，加入“德教”的人越来越多，他们信奉这便是“中华传统智慧的现代应用研究”。
 
-Dr. Zelenkos GETTR genudgav en artikel fra theexpose.uk den 14. september 2021: 《13 grunde til, at du ikke bør tillade dit barn at få Covid-19-vaccinen》. På et pressemøde mandag den 13. september rådede de fire cheflæger i Det Forenede Kongerige den britiske regering til at tilbyde Pfizer -vaccinen til børn i alderen 12 til 15. Denne artikel skubber tilbage mod disse “medicinske bureaukrater” med kliniske forsøgsdata og igangværende sager i Storbritannien.
+骂共不一定是灭共，也许他比共产党更能包藏祸心！“德教”辱骂先祖政治，同时鼓吹“帝道政治”为中华政治治理典范，提倡愚民开智、鼓吹“德教导正人心”，鼓吹“德教”功效等同于人心归一高度自觉自发，这种理想主义状态与“共产主义”异曲同工。最令人诧异的是“德教”批评西方“普世价值”狗屁不是，骂民主空虚法治无用，说最好的政治治理是“中华传统智慧+德教”，说白了归根结底一句话：七哥灭共，德教治国！企图摘桃甚至在社交平台上直言，让文贵先生带领部分冲在前面的战友灭共“充当炮灰”，而德教学员低调潜伏伺机而出……他的“德教理论”、“中华传统智慧”实质是中华帝王皇权统治+邪恶共产主义！打着灭共旗帜与爆料革命的“正道主义”背道而驰！
 
-**Årsag nr. 1**
+听参加“德教”的核心课程的战友说，没有什么具体内容，都是故弄玄虚故作高深。他们大都是北美时间凌晨开始讨论学习，组织监督严密，长时间占用时间进行强行洗脑，主持人都备有逐字稿，鼓吹诸如“德教开智消孽障，德教正法”，东拼西凑歪理邪说，威胁恐吓学员不从教将“断送法身慧命”，这无非是“德先生”精通“伪儒奴化教育”和源于纳粹的“宣传洗脑”，手法与中共文革和斗争时代的“学习班”、“劳教所”同出一辙。
 
-**86% af børnene fik en bivirkning på Pfizer Covid-19-vaccinen i det kliniske forsøg**
+“供养”一词，“德先生”运用娴熟。他要求学员拜师，拜师后自然交钱，并把“交钱”这事体面地书卷化，成为“供养”二字。至东窗事发，德教核心学员60人左右，每人最低二三百多至数千欧元的供养费。他同时还鼓吹不是任何人都可以成为“德先生”学员的，饥饿营销方式搞得个个学员恍若“得道高僧”。“德先生”玩障眼法，隐身爆料革命捐款法治基金也投资G系列2万元，屈指一算只赚不赔，有爆料革命背书，善良而放弃戒备的战友们将成为“德教”源源不断”的“供养”源泉，再任由其发展下去，“德先生”必然成为“德教云神”，“供养”必然成为“敬奉”！
 
-**Årsag nr. 2**
+“德教”是企图依附于爆料革命、新中国联邦的邪教组织，一开始就借助喜马拉雅农场力量，借助战友名义在Gnews网站上发表其宣传文章，并开办GTV视频节目，不明真相又对所谓“中华传统智慧”充满兴趣的战友纷纷加入，传销的招揽手段无处不在，以“帮助、爱、天道”名义，变战友力量为招募信众的手段，部分被成功洗脑者充当了“德教护法”，为德教在爆料革命中的大量渗透推波助澜，达成了德教只信教、只敛财、只投机、不灭共的分散战友精力的破坏搅局效果……
 
-**1 ud af 9 børn fik en alvorlig bivirkning, der efterlod dem ude af stand til at udføre daglige aktiviteter i Pfizer Clinical Trial**
+我无意于伤害曾经加入德教的战友，更不屑深度探究“德教”，战友有则改之无则加勉。“德教”是强行依附于爆料革命的、复辟“帝道政治”的邪教，是寄生于爆料革命的恶毒肿瘤！文贵先生说，谁将手伸进战友的钱袋子，谁胆敢伸手解战友的裤带子，谁就是与爆料革命作对。这些朴素的比方发人深思，即使在文贵先生的保护干预下“德教”退了“供养”费，但留给我们每位战友的“开智”教训，以及摒弃邪教回归正道的启发和思考依旧长远！
 
-**Årsag nr. 3**
+（本文仅代表作者观点，与GNEWS平台无关）
 
-**Kun 9 dødsfald i forbindelse med Covid-19 er sket hos børn siden marts 2020**
-
-**Årsag nr. 4**
-
-**Risikoen for at børn udvikler alvorlig sygdom på grund af Covid-19 er ekstremt lav**
-
-**Årsag nr. 5**
-
-**Pfizer Covid-19-vaccinen er eksperimentel og er stadig i kliniske forsøg**
-
-**Årsag nr. 6**
-
-**Tre videnskabelige undersøgelser udført af den britiske regering, Oxford University og CDC, som blev offentliggjort i august, har fundet ud af, at Covid-19-vaccinerne ikke virker**
-
-**Årsag nr. 7**
-
-**Public Health England-data viser, at størstedelen af ****​​****Covid-19-d****ø****dsfald er blandt de vaccinerede og tyder p****å****, at vaccinerne forv****æ****rrer sygdommen**
-
-**Årsag nr. 8**
-
-**Der har været mindst 1,18 millioner bivirkninger på Covid-19-vacciner alene i Storbritannien**
-
-**Årsag nr. 9**
-
-**Der har været flere dødsfald på 8 måneder på grund af Covid-19-vaccinerne, end der har været på grund af alle andre tilgængelige vacciner siden år 2001**
-
-**Årsag nr. 10**
-
-**Risikoen for myokarditis (hjerteinflammation) hos børn på grund af Pfizer -vaccinen**
-
-**Årsag nr. 11**
-
-**Børn er døde og dør på grund af Covid-19-vaccinerne**
-
-**Årsag nr. 12**
-
-**Hvem tjener på, at dit barn får Covid-19-vaccinen?**
-
-**Årsag nr. 13**
-
-**Den blandede komité for vaccination og immunisering har nægtet at anbefale Pfizer -vaccinen til børn**
-
-**Beslutningen fra Chris Whitty og hans andre overlæger om at rådgive regeringen om, at Covid-19-vaccinerne skal tilbydes børn, er ikke en beslutning baseret på videnskab, det er i stedet en beslutning baseret på politik.**
-
-**Artikelforfatteren efterlyser: Vi har netop præsenteret 13 faktuelle grunde til, at du ikke bør tillade dit barn at få Covid-19-vaccinen, og hver og en er baseret på videnskaben.**
-
-**Nu er valget dit, eller måske dit barns, vi håber, at du foretager det rigtige.**
-
-**Source：**[**the**](https://theexpose.uk/2021/09/14/13-reasons-why-you-should-not-allow-your-child-to-get-the-covid-19-vaccine/)[**expose.uk **](https://theexpose.uk/2021/09/14/13-reasons-why-you-should-not-allow-your-child-to-get-the-covid-19-vaccine/)
+*编审/发稿： Shuang*
 
 0
