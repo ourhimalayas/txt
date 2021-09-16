@@ -14,6 +14,8 @@
 ---
 ## 頁面 15/34 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [34](/content/README-34.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/content/2019/11/20191106-1023423131938564457.md)
+
 [文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/content/2019/11/20191105-5144727764458030814.md)
 
 [文字版：2019年11月3日文贵进山前报平安](/content/2019/11/20191104-2786002853804232017.md)
@@ -61,8 +63,6 @@
 [文字版：2019年10月9日郭文贵先生报平安直播：港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/2019/10/20191011-7838742343464767600.md)
 
 [文字版：2019年10月1日郭文贵先生在中共国庆日与班农先生同台直播（精简版）](/content/2019/10/20191011-8102906543007438735.md)
-
-[文字版：2019年9月29日郭文贵先生班农先生连线北京姑娘聊天室，颤抖吧中南坑，盘古发力之日就在2020年！（完整版）](/content/2019/10/20191010-834338873791119399.md)
 
 
 ## 頁面 15/34 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [34](/content/README-34.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)

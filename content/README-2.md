@@ -14,6 +14,8 @@
 ---
 ## 頁面 2/34 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [34](/content/README-34.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年8月13日郭文贵先生G-TV直播](/content/2021/08/20210813-1469006.md)
+
 [全文字版2021年8月11日郭文贵先生G-TV直播](/content/2021/08/20210811-1462815.md)
 
 [全文字版2021年8月9日郭文贵先生G-TV直播](/content/2021/08/20210809-1460214.md)
@@ -61,8 +63,6 @@
 [全文字版郭文贵先生2021年6月27日G-TV直播](/content/2021/06/20210627-1356603.md)
 
 [全文字版郭文贵先生2021年6月25日G-TV直播](/content/2021/06/20210625-1351941.md)
-
-[全文字版郭文贵先生2021年6月23日G-TV直播](/content/2021/06/20210623-1346987.md)
 
 
 ## 頁面 2/34 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [34](/content/README-34.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
