@@ -2,27 +2,28 @@
 ---
 
 
-## 新州最新周报隐瞒死亡病例的疫苗接种情况
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535622/)
+## 澳大利亚、美国和英国将发表联合国家安全声明
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1535739/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：The Conversation
-**整理报道：**翼族
+【简评：】*虽然被称为**“**AUUKUS**”**的美澳英三方协议中没有明确提到中（共）国，但他们都指出，宣布的潜台词是，这是西方盟友在军事和技术领域应对中国崛起的又一举措。美国官员称，向澳大利亚转移核潜艇这一绝对敏感技术的操作打破了美国政策的常规，是**“**例外**”**。该官员同时声称，美国的行动十分必要，其目的是向亚洲国家释放信息，让他们安心。党媒《环球网》用**“**露出獠牙**!**”**和**“**小集团**”**来形容**“**AUUKUS**”**。不知**“**AUUKUS**”**与拜习刚刚的通话有没有关联。*
 
-自六月份以来，澳大利亚新南威尔士州深陷德尔塔病毒的疫情之中。数周以来，新州每日新增病例都在一千人以上。截止到8月28日的每周监测报告显示，自六月份以来新州死亡病例总数为91人，已远远超过此前的总和56人。
+据《天空新闻台》2021年9月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-56.jpg)图片来源：天空新闻台
+澳大利亚国防部长彼得·达顿 (Peter Dutton) 与美国国防部长劳埃德·奥斯汀 (Lloyd Austin) 在五角大楼进行高层会谈。今天上午，澳大利亚、美国和英国将宣布一项具有里程碑意义的国家安全声明。
 
-新州政府面对民众不满的巨大压力，采取回避政策，暂停了每日召开的媒体发布会。与此同时，新州政府还停止公布每日死亡病例的疫苗接种情况。新州政府的不透明操作给该州民众带来更大的恐慌，近期疫苗接种率节节攀升。
+澳大利亚正寻求加入与美国和英国的新联盟，这将向中（共）国发出一个强有力的信息，即表明澳大利亚在南中国海、东南亚和印度太平洋地区的存在。
 
-[新州卫生部官网](https://www.health.nsw.gov.au/Infectious/covid-19/Pages/weekly-reports.aspx)自7月24日起，每周监测报告都详细描述了死者的疫苗接种情况。在持续公布五周之后，最近一期截止到8月28日的每周监测报告没有公布死者的疫苗接种情况，只显示“8月22日至8月28日这一周共死亡16人”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/covid-surveillance-report-20210913-1.jpg)图片来源：https://www.health.nsw.gov.au/
-（文章内容仅代表作者个人观点，与GNEW无关）
+乔·拜登将于澳大利亚东部标准时间今天上午 7 点发表讲话，宣布美国和澳大利亚在潜艇计划和核能等先进国防技术共享达成联合协议。此举将对澳大利亚与法国海军集团的900亿美元合同（该合同包含至多12艘核动力潜艇）产生影响。
 
-*编辑/发布：翼族*
+原文连接: [https://www.skynews.com.au/world-news/united-states/australia-us-and-uk-to-make-joint-national-security-statement/video/cd910d9a7bf77491a44640c4fc1a6cf6](https://www.skynews.com.au/world-news/united-states/australia-us-and-uk-to-make-joint-national-security-statement/video/cd910d9a7bf77491a44640c4fc1a6cf6)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -2,20 +2,50 @@
 ---
 
 
-## 雅典娜时报-第053期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535638/)
+## 澳美英军事联盟AUKUS不包含新西兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535657/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 编译报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-10.png)
+图片来源：Republicworld.com
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/42113cd4ac892187.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-20.png)
-***发布：小红帽***
+乔·拜登总统在启动澳大利亚、美国和英国之间的新军事联盟**AUKUS**时告诉世界，“这些缩写听起来很奇怪，但这是一个很好的缩略语。”
 
-**更多****资讯****，****请关****注：**
+然而，值得注意的是，新的三边军事联盟的缩写中缺少一个“NZ”，其原因很可能是核问题。
+
+1986年，新西兰在其水域建立了无核区后，被美国暂停了ANZUS条约的资格，但后来它取消了对美国军舰访问的禁令，紧张局势得到缓和。
+
+周三（美国东部时间周四）新西兰总理杰辛达·阿德恩表示，她已与总理斯科特·莫里森就该联盟进行了交谈。
+
+“澳大利亚与美国和英国的安排主要围绕技术和国防硬件，核心是澳大利亚购买核潜艇”，阿德恩女士说：“新西兰关于禁止在我们水域使用核动力船舶的立场保持不变。”
+
+根据AUKUS联盟，澳大利亚的核心支柱是购买装备核潜艇。这是澳大利亚首次承担核能力，此举向中共国发出了强烈的信号。
+
+AUKUS联盟协议，还在**三国之间建立了从网络到人工智能的其他复杂方面的军事情报共享安排，这些安排现在基本上将新西兰排除在外**。
+
+当然，新西兰的这种缺席也可能为中共国打开了一个可以利用的薄弱环节。
+
+美国传统基金会海军战争和先进技术高级研究员布伦特·萨德勒说，新西兰决定不加入新联盟其实是没有意义，为中共国留了一条缝隙。
+
+“新西兰只是想（保持）独立，但他们将不得承受这样做的后果，”曾在核潜艇上服役20多年的萨德勒先生说。
+
+“它实际上是为新西兰与美国做的事情划清界限。这是（新西兰）一个重大的声明，我不确定它是否有意义。”
+
+“中共国喜欢抓住我们的盟友之间的任何形式的分裂或摩擦，并使他们分开。新西兰不加入其中（联盟），确实提供了一个不必要的缝隙。”
+
+毫无疑问，新的AUKUS联盟的主要目的是加强印度-太平洋地区的军事力量，该地区已经看到了来自中国的被动和主动的侵袭。
+
+**AUKUS的重点是为澳大利亚建立一支配备常规武器的核动力潜艇舰队，这将在印度-太平洋水域形成强大的治安行动力量。**
+
+原文链接：[New Zealand is missing from AUKUS (afr.com)](https://www.afr.com/policy/foreign-affairs/new-zealand-is-missing-from-aukus-20210916-p58s0b)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

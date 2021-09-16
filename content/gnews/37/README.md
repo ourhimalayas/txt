@@ -2,71 +2,23 @@
 ---
 
 
-## 众议员麦迪逊·考索恩： 大型科技公司正在讨好中共国，并将国家安全置于危险之中
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1535508/)
+## 劲爆：美国纽约南区检察院终止对G-TV的所有调查
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1535518/)
 
-众议员麦迪逊·考索恩： 大型科技公司正在讨好 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，并将国家安全置于危险之中。 大型科技巨头正在伤害美国的公司。 拆分大科技公司。 【转axios 报道：(12名) 前情报官员声称反垄断可能损害美国在中共国的科技竞赛】
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/HW0WE67xtMo_LKt9zVkSeYn2ksjGHOSYiDF3NiA4jxKEVyVKZpxNI1kYBQjh91EgZbAuwIglpuKso287Q-gqdZTxxdETcUlBSMK6gwh9AxQWyV4QC4r4wufYwiKNXgbrS4dx3ikw=s0)
+*图片来源*
 
+快讯：G-TV媒体集团公司创始人郭文贵先生美国当地时间9月14日一大早，传来喜讯，纽约投资者保护局总检察长Letitia James根据马丁法和纽约一般商业法做出终止对GTV媒体集团公司及其旗下三家公司的调查的决定，并且是南区检察院第一检察官Letitia James主动要求和我们G-TV签署和解协议。但不包括VOG“九指妖”的刑事调查。
 
+这一消息表明共产党企图对GTV的法律超限战的阴谋彻底破产。按共产党计划，如他们赢了官司，意味着GTV将无法在美国和这整个西方国家进行任何投资，那也意味着新中国联邦在西方的发展将举步艰难。反过来说，这无形中使GTV在美国的信用度得到更大的认可。且CCP免费给G-TV做了一个世界级媒体广告。这一无形效应将会持续释放无限利好，对所有战友尤其是新老投资者，都将是受益者。
 
-> Big Tech is cozying up to China and putting national security at risk.
-> 
-> Big Tech is hurting American companies.
-> 
-> Break up Big Tech.[https://t.co/EiTUXkh1LW](https://t.co/EiTUXkh1LW)
-> — Rep. Madison Cawthorn (@RepCawthorn) [September 15, 2021](https://twitter.com/RepCawthorn/status/1438141541487452164?ref_src=twsrc%5Etfw)
+**文贵先生继续说道：这说明三家公司不涉及任何刑事犯罪**。说明了共产党对G-TV所有法律超限战的失败。赔了夫人折了兵。并且让费美国大量政府资源。文贵先生说的这件事，最好的的结果就是我们想要的，共产党主动送上门来的，即“让美国人看清楚了，中共对美国公司的假控诉、假告诉、假投资的法律超限战已经警醒了美国人。”文贵先生并特别在此要“感谢南区检察院秉公执法。我们相信这些来自中共间谍的假控诉会得到美国刑事调查，最终他们会得到美国法律的严惩。”
 
+南区检察院主动提出与GTV和解，这在美国商界大佬们眼里是一件不可能的事。当时文贵先生为了追回九指妖骗取战友们的投资，主动使GTV接受调查，这让律师团队所有律师感到恐惧。但文贵先生坚持自己的信念，相信美国的法律。这再次表明，共产党聪明反被聪明误，以为可以玩转美国。结果，共产党在美国自证其罪，主动送证据。这件事将持续发酵。用郭先生的话说：共产党，你完了！
 
-
-众议员迈克·沃尔兹 米利将军与一名 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 将军交谈并告诉他，他会在美军发动任何攻击之前给中共通风报信的指控很令人担忧。 该谈话的上下文和内容至关重要。美国人民应该得到米利将军书面的并宣誓后的答复。
-
-
-
-> The allegations that Gen. Milley spoke with a [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) general & told him he would warn them before any attack from the US military is beyond concerning.
-> 
-> The context & content of that call are critical. The American people deserve answers from Gen. Milley in writing and under oath. [pic.twitter.com/jylnkMfqUx](https://t.co/jylnkMfqUx)
-> — Rep. Mike Waltz (@michaelgwaltz) [September 16, 2021](https://twitter.com/michaelgwaltz/status/1438295359369859073?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 国会应该通过我的具常识性的修正案，呼吁美国大学关闭中共的宣传机器。附：大纪元报报道 [@EpochTimes](https://twitter.com/EpochTimes)
-
-
-
-> Congress should pass my common sense amendment which calls on U.S. universities to shutdown CCP propaganda machines. Via ⁦[@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw)⁩ [https://t.co/sY7mSL9InM](https://t.co/sY7mSL9InM)
-> — Rep. Ken Buck (@RepKenBuck) [September 15, 2021](https://twitter.com/RepKenBuck/status/1438265563604783108?ref_src=twsrc%5Etfw)
-
-
-
-国务卿布林肯： 我今天会见了外交部长[@GLandsbergis](https://twitter.com/GLandsbergis)，以表达美国对立陶宛的坚定声援，因为它面临着前所未有的地区挑战。美国政府将永远支持我们的北约盟友和欧盟合作伙伴。
-
-
-
-> I met with Foreign Minister [@GLandsbergis](https://twitter.com/GLandsbergis?ref_src=twsrc%5Etfw) today to express ironclad U.S. solidarity with Lithuania as it faces unprecedented regional challenges. The U.S. government will always be there to support our [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies and EU partners. [pic.twitter.com/JM31fTFnrG](https://t.co/JM31fTFnrG)
-> — Secretary Antony Blinken (@SecBlinken) [September 15, 2021](https://twitter.com/SecBlinken/status/1438267734308134913?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 我不能将这种“报道”当成福音。没人应该如此……但我们需要米利将军的答案。 参谋长联席会议主席积极削弱总统的作用是难以想象的。米利将军需要立即解决这些指控并尽快向国会作证。 【转福克斯新闻：书中称，米利秘密打电话给 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 官员，因为担心川普会在最后几天发动“攻击”】
-
-
-
-> I don't take this "reporting" as gospel. No one should…but we need answers from Gen. Milley. 
-> 
-> The Chairman of the Joint Chiefs actively undermining the president is unimaginable. Gen. Milley needs to immediately address these accusations & testify to Congress ASAP. [https://t.co/FHgmzL73Jo](https://t.co/FHgmzL73Jo)
-> — Rick Scott (@SenRickScott) [September 15, 2021](https://twitter.com/SenRickScott/status/1438232399763189763?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： “57%的民主党选民认为川普总统的支持者是‘对国家的严重威胁’。相比之下,视 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 为严重威胁的只有44%…” 发生这种情况是因为拜登、佩洛西等告诉其选民，他们不认同的人是“国内恐怖分子” 【转dailycaller：民调：57% 的民主党人认为川普支持者比塔利班、中共国和俄罗斯更危险】
-
-
-
-> “57% of Dem voters believe supporters of President Trump are a ‘serious threat to the nation.’ That compares to just 44% for China…”
-> 
-> This happened because Biden, Pelosi and co told their voters the people they disagree with are “domestic terrorists” [https://t.co/wdjqgmxcZW](https://t.co/wdjqgmxcZW)
-> — Jim Banks (@RepJimBanks) [September 15, 2021](https://twitter.com/RepJimBanks/status/1438206832959500289?ref_src=twsrc%5Etfw)
-
-
-
+（本文只代表作者观点，与GNews网站无关）
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-12.jpg)
 0
