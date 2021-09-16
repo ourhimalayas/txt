@@ -2,25 +2,17 @@
 ---
 
 
-## 秘翻在线：冈山大学提醒：接种疫苗前请参考此调查结果!
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536127/)
+## 2021年9月15日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536237/)
 
-#### 撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-41.jpg)图片来源：视频截图
-9月15日OHK冈山播报消息，日本冈山大学对莫德纳公司生产的中共病毒疫苗的不良反应进行的调查结果显示，发烧和疲倦等不良反应在第二剂后更为常见。
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-该调查涵盖了总共7200多人，包括教职员工和学生，作为冈山大学疫苗接种计划的一部分，他们接受了由莫德纳公司生产的中共疫苗的接种。
+9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！
 
-冈山大学医学院的齿科药学综合研究传染病学研究生院和卫生学系教授頼藤貴志说
+9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
 
-我觉得全身性反应（不良反应）明显增加，尤其是发烧。我特别惊讶地看到，发烧至37度5以上的人从第一轮的23.2%增加到第二轮的88%。
+[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb659j1751)
 
-的确，根据调查，与第一次相比，更多的人在第二次接种后出现了疲劳和头痛等全身性不良反应，而发烧在37.5度以上的人从23.2%跃升至88%。其结果，更多的人在第二次接种疫苗后，开始服用解热镇痛药。并且，为了克服这些不良反应，不得不休课或停止工作。另外, 女性的不良反应病例略多于男性。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-54.jpg)图片来源：视频截图
-冈山大学表示，接种疫苗的好处很大，但希望大家在接种疫苗时将此调查结果作为参考!
-
-冈山大学的做法，是非常典型的，在受制环境下对民众的提醒! 先拿出科学依据，再在表明拥护政府决定的前提下，来个提醒。尽己所能，能救一个是一个,剩下的就靠各自的悟性了。
-
-信息源：[https://news.yahoo.co.jp/articles/8350dba4f53ebf47b5d57dbcb78e31b4364ede21](https://news.yahoo.co.jp/articles/8350dba4f53ebf47b5d57dbcb78e31b4364ede21)
+**喜联盟Gnews编辑部**
 
 0

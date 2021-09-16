@@ -2,31 +2,17 @@
 ---
 
 
-## 桥水基金达利欧——比特币终将被监管或消失
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1536155/)
+## 2021年9月15日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536237/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091612.jpg)
-[图片来源](https://ckxpress.com/100-dollar-btc-everyday/)
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-据台湾《经济日报》9月16日消息，全球最大避险基金桥水基金创办人达利欧（Ray Dalio）15日表示，如果比特币大获成功，他相信监管机关最终会出手管控比特币。
+9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！
 
-达利欧补充称，“如果最终它成功了，他们(监管机构)将立即杀死它，或尽力杀死它。我认为，最终他们会杀死比特币，因为他们有这个能力。”达利欧还说，“比特币没有内在价值，这意味着该资产缺乏基本的和客观的价值；这种感知价值忽冷忽热，它可能是荷兰的郁金香。即使比特币在五年内增长10倍，对我来说没有意义。”不过，达利欧称比特币是一个很好的现金替代物。在他的投资组合中，他持有了极少量的数字代币。“相比之下，现金就是垃圾。(Cash Is Trash)”
+9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
 
-长期以来，世界各国政府大量超发货币，推动经济发展和财富增长的同时，也制造了巨大的经济泡沫。自中共病毒爆发以来，美欧为首的各国政府更是以货币超发作为维持和刺激经济的手段，进一步吹打经济泡沫，全球经济濒临崩溃，传统的贵金属、房产、股票和证券等投资领域和渠道都将不可避免地遭受冲击。而发行机制相对透明的数字加密货币就受到追捧，成为全球资产避险和保值的重要选择。由此，也开启了全球数字加密货币的新时代，各国政府都在积极研究加强数字加密货币的监管政策和措施。
+[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb659j1751)
 
-郭文贵先生前期已多次预言比特币结局——要么被监管要么被消失。这是由于比特币为极少数人控制（其中4%的人控制着96%的比特币），特别是中共安全部门是其主要控制者，这使得比特币沦为中共洗钱和洗劫其他投资者财富的工具。
+**喜联盟Gnews编辑部**
 
-比特币作为全球首个数字加密货币，其诞生具有划时代意义，但由于系统设计的先天不足，导致其既无实际价值，又因完全去中心化反被中共控制，这就注定其结局，要么合规被管控，要么继续游走黑白而被消失。反观**喜币（HCN），依托喜联储（Himalaya Reserve），采用双币系统设计，与黄金和法定货币锚定，打造了合规安全透明的数字货币金融系统，并与G系列形成金融生态，其价值之大、前景之广，难以估量**！
-
-信息来源：
-
-[桥水基金达利欧：比特币一旦接近成功监管会毫不犹豫将其扼杀](http://stock.eastmoney.com/a/202109162102219386.html)
-
-[桥水基金达利欧：若比特币大获成功，监管机构将出手管控](https://www.jiemian.com/article/6603507.html)
-
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团/上善若水
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
-+1
+0

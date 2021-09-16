@@ -2,46 +2,17 @@
 ---
 
 
-## 郭文貴直播摘要和音頻 2021.9.14 ：GTV與SEC和解
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1535336/)
+## 2021年9月15日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536237/)
 
-摘要撰稿人： 文俊
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-音頻提供者： 左媛
+9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！
 
+9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-14-at-6.44.59-PM.png)
+[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb659j1751)
 
-
-### 視頻:
-
-[视頻链接：](https://gtv.org/video/id=614095fb751e4f2b0e5254a0)
-
-### 音頻:
-
-### 摘要:
-
-1. 文貴和GTV SARACA 沒有一分股份 為啥寫文貴？
-2. 我們拒絕和解SEC四次和解 我們不同意
-3. GTV已經擁有喜聯儲5%股份 蓋特5%股份 5億算啥錢呢
-4. 最高機密是 領導人行蹤 夫妻之間放屁說話 最後就是領導人家裏人的錢
-5. 彭麗媛：這是啥破地方 吃的飯有多難吃?什麽海湖莊園 多土?
-6. 中央警備局按監控器 交給美國 美國沒有給川普
-7. 某個組織在收集習大神隱私 20大前都會放出來
-8. 習大神20大贏不了，習大神不是這兩個組織的人
-9. 共產黨在海外20萬億 習不完全知道20萬億在哪裏
-10. 鄧家 江家 王岐山家 朱镕基家 知道20萬億在哪裏
-11. 今天正式開始 以苗滅共
-12. 共產黨已經徹底掌握Facebook、Google、twitter、Telegram、instagram社交媒體 香港同胞們（電子地圖），只有Gettr和GTV是安全的
-13. 我們會視任何香港同胞為戰友
-14. 德先生48小時退錢 舊金山金喜農場關掉
-15. 路大腦袋又搬回法拉盛華人圈了
-16. 新中國聯邦以後絕對不只屬於中國人 我們到時候拿錢拿喜幣激勵國際婚姻
-17. G系列投資者/老椅子/Gclub會員 戰友每個人拿5萬美金獲得護照（全家）新中國聯邦
-18. UFO存在是百分之百不爭的事實
-19. 未來人類50-60%財富會到虛擬貨幣
-20. SEC罰款 老GTV關了 SARACA關了 VOG關了 罰誰的錢
-21. 明天下午三四點可能直播，星期五班農父親戰友生日直播
-
+**喜联盟Gnews编辑部**
 
 0
