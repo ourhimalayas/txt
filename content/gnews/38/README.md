@@ -2,22 +2,22 @@
 ---
 
 
-## Facebook创建了一份特权人士名单
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1536263/)
+## 美、英、澳之间的安全协议
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1536272/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09161-1.png)
-马克·扎克伯格 (Mark Zuckerberg) 经常表示，Facebook 允许其所有用户获得相同的待遇，但情况并非如此，华尔街最近发现了一个系统将一小群特别著名的用户置于某些规则之上。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09162.jpg)
+美国和英国将帮助澳大利亚装备核动力潜艇，这是以AUkUs命名的历史性三边安全伙伴关系的一部分。这被认为是一项重要的战略协议，它将把美国、英国与澳大利亚的未来安全联系起来。也是对中（共）国的明确警告。尤其是在拜登与四国领导人会晤后立即宣布结盟：由日本、印度、美国和澳大利亚组成的印太民主四边形，目前被美国人定义为真正的遏制中（共）国在太平洋、中（共）国海和西太平洋地区的扩张。
 
-该程序称为 XCheck，它是一种交叉检查系统，以保护例如记者、政治家和各种名人。这份名单上的人数也在一天天增加，目前大约是 600 万，大概占总订阅户的 0.2%。
+该协议标志着合作迈向绝对重要的一步。 现在新的三方联盟将建立新的信息共享渠道并共同努力开发先进技术，包括网络安全、人工智能、量子计算以及海底能力等领域。
 
-这个保护系统允许了一些特权人士进行可能错误的行动。其中一个案例提到了例如，内马尔在 2019 年发布了一名裸体女孩的照片，因为该女孩指控他强奸，所以她被内马尔暴露在他的数百万他的追随者目光之下。
+莫里森表示，这三个州的专家将在未来 18 个月内共同努力让澳大利亚建造核潜艇。同时拜登也强调说：“这是三个国家之间的另一个历史性的加深和合作方式。因为这来自大家都承认的迫切需要，以确保在印太地区的和平与稳定。我们需要能够解决该地区当前的战略形势及其可能演变的方式，我们的国家以及整个世界的未来取决于未来几十年自由开放、持久和繁荣的印太地区。”
 
-Facebook 发言人安迪·斯通否认 XCheck 代表了一种特权系统，因为越来越多的谣言证实了它的负面影响，该公司称正在尽其所能改进它。
+此举显然激怒了中（共）国，中（共）国通过驻美大使刘鹏宇呼吁美、英、澳摆脱冷战思维和意识形态偏见，并表示这三个国家不应建立针对或损害第三方利益的障碍。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.repubblica.it/tecnologia/2021/09/15/news/facebook\_ha\_creato\_una\_lista\_di\_persone\_privilegiate\_che\_non\_seguono\_le\_regole\_dell\_utenza\_normale-317961111/?ref=RHTP-BG-I294524205-P8-S1-F](https://www.repubblica.it/tecnologia/2021/09/15/news/facebook_ha_creato_una_lista_di_persone_privilegiate_che_non_seguono_le_regole_dell_utenza_normale-317961111/?ref=RHTP-BG-I294524205-P8-S1-F)
+原文链接：[https://www.repubblica.it/esteri/2021/09/16/news/biden\_partnership\_con\_gb\_e\_australia\_sulla\_sicurezza\_nell\_accordo\_si\_parla\_anche\_di\_sottomarini\_a\_propulsione\_nucleare-317995166/?ref=RHTP-VS-I270681069-P18-S1-T1](https://www.repubblica.it/esteri/2021/09/16/news/biden_partnership_con_gb_e_australia_sulla_sicurezza_nell_accordo_si_parla_anche_di_sottomarini_a_propulsione_nucleare-317995166/?ref=RHTP-VS-I270681069-P18-S1-T1)
 
 责任编辑/校对/发布：意大利达芬奇农场   萧亦
 

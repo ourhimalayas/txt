@@ -2,21 +2,34 @@
 ---
 
 
-## 秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536238/)
+## 美英澳成立新联盟，将助澳建立核动力潜艇舰队
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536385/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-172920.jpg)
-根据2021年9月15日 UC网报道， 上海市第一中级人民法院发布一则执行悬赏公告，山西前首富李兆被悬赏高达2100万。
+栏目记者/责任编辑：云豹
 
-公告显示，山西前首富李兆会拖欠2.16亿余元，2013年1月10日，李兆会的海博鑫惠公司与某银行签订《综合授信协议》，该银行提供最高5.2亿元的授信额度，此后李兆会面临逾期贷款的难题，甚至遭遇银行上门讨债，被列为失信人，限制出境。
-
-李兆会也是演员车晓的前夫，俩人婚姻仅维持2年。在中共国做“首富”是高危职业。
-
-**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=345d0773438f4dbda32aebf4ef68750e&amp;wm_cid=444011846293272576&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-##  
+9月15日美英澳元首在三方视讯会议后宣布，美国将协助澳洲建立核动立潜艇舰队。 其目的在强化印太地区的海军力量，以维护此地区的和平稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.003.jpeg)
+美国总统拜登表示，协助澳洲打造核动力潜舰，是在确保澳洲能拥有「为对抗快速发展的威胁，所必需具备的调度及防御能力。」 三位元首在宣布建立这项被称为「AUKUS」的伙伴关系时，并未指出是针对中共，但意图不言自明。 在后续的18个月内，美英澳三国的专家将共同研讨决定，如何协助澳洲建造核动力潜舰。 除此之外，AUKUS将在「网路安全、人工智慧AI的运用、量子科技、及深海探研能力」等层面上深入合作。 此次的三方联盟行动传达出一个讯息：美国 再度保证及显示出决心，美国将继续保持强大威摄力量的立场 没有改变。 
+(本文仅代表作者观点)
+
+参考链接：[美英澳新戰略聯盟反制中國 將助澳洲建造核動力潛艦隊](https://www.cna.com.tw/news/firstnews/202109160010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 0

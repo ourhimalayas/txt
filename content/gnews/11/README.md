@@ -2,43 +2,77 @@
 ---
 
 
-## 新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535957/)
+## 英国在完全解封后能否安全度过今年冬天
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1536352/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/https___d1e00ek4ebabms.cloudfront.net_production_eb2be356-c50b-4069-af99-60b43ed3bb6a.jpg)
-图片来源：ft.com；Getty Images
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3E1CFAF0-83B6-41AF-842E-438A588EDF89-edited.jpeg)图片来自网络
+据澳媒《ABC News》近日报道，英国首相鲍里斯·约翰逊支持为弱势群体和老年人接种中共病毒疫苗加强针，这是他防止医院不堪重负和未来随着英国接近冬季而可能被迫封锁的计划的一部分。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+首相希望避免去年那样的冬天，当时由阿尔法变种催动的第二波疫情在2021年1月中旬的高峰期左右造成5万多人死亡。
 
-**根据最新数据显示，在处于封锁状态的新西兰，打“疫苗”的死亡人数比感染中共病毒（本身）的死亡人数多。**
+周一，政府宣布英格兰的疫苗推广将扩大到12至15岁的人，周二，一份32页的政府计划透露，50岁以上的人、一线卫生工作者和临床上的弱势群体，估计约有3000万人将可以接种加强针。
 
-**新西兰的跟踪系统显示，有40人死于（辉瑞）中共病毒疫苗，而27人死于中共病毒本身。**
+除了接种加强针，政府还准备了一个“B计划”，以应对住院人数急剧增加和国家卫生服务面临不堪重负的风险，这可能涉及强制佩戴口罩、疫苗护照和恢复在家工作。
 
-记者以利亚·沙弗（Elijah Schaffer）在推特上分享了这些数字。最近对“反疫苗”统计和评论的打击可能迫使沙弗使用“可能相关”和“理论上”这样的措辞。许多没有使用这类措辞而发表类似言论的人，已被大型科技公司网站迅速禁言。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-72.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2-51.jpg)
-图片来源：[推特](https://twitter.com/ElijahSchaffer/status/1438216982608896006?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438216982608896006%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Ffreedomfirstnetwork.com%2F2021%2F09%2Fin-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
+9月14日周二，英国又有26628的人在中共病毒测试呈阳性，并且又有185人死亡。约翰逊先生说，从某种程度上说，英国的处境比去年同一时期更具挑战性，当时每天的病例徘徊在3000例左右。
 
-与其他规模相似的国家相比，死于疫苗和中共病毒本身的两个数字都相对较低。但问题是，**大多数国家的中共病毒的死亡人数总是被夸大，而疫苗的死亡人数总是被低估。目前尚不清楚新西兰是否在夸大其中共病毒死亡人数，因为根本没有太多数据可供研究，但可以肯定的是，打疫苗的死亡人数要高得多。**
+他说：“但是在其他许多关键方面，英国人民（我们所有的集体和个人）在对抗这种疾病方面处于无可比拟的有利地位。”
 
-首先，疫苗不良反应普遍被低估。医生会为他们的病人寻找其他死亡原因，因为他们中的绝大多数人都在努力地推动疫苗。
+“我们16岁以上的人有超过80%现在都接种了两剂疫苗，而且我们在大约90%的成年人口中有中共病毒抗体，疫苗正在发挥作用。”
 
-其次，大多数悲伤的家庭不会向数据库报告死亡情况。据估计，在实际死亡人数中，1%-10%的人都归因于疫苗。
+那么，约翰逊的政府究竟如何防止另一个致命的冬天？
 
-换句话说，即使新西兰报告的某些死亡人数被证明是错误的或不准确的，但可以肯定的是，更多的人死于疫苗，但从未被报告。
+加强针和为青少年接种疫苗
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+英国正在指望疫苗在冬季起到重要作用，随着学生回到学校，工人回到工作场所，人们在白天变短和变冷的时候花更多时间在室内，传染率可能会增加。
 
-**参考新闻：**[In New Zealand, There Have Been More People Killed by the ‘Vaccines’ Than by Covid-19 – Freedom First Network](https://freedomfirstnetwork.com/2021/09/in-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
+周二早些时候，英格兰副首席医疗官乔纳森·范塔姆说，自去年年底推广以来，疫苗已经挽救了11.2万人的生命。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+“我们的估计是自从开始推广疫苗以来，它们可能已经在英国避免了2400万人中共病毒感染和11.2万例死亡。我们还没有度过大流行，这个冬天很可能会有反复。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+除了建议12至15岁的儿童接种疫苗外，疫苗和免疫联合委员会还建议在英国所有四个国家部署加强针，这将在人们接种第二剂疫苗后至少六个月后进行。
 
+委员会说，有证据表明，疫苗对老年人住院的有效性略有下降，在5至6个月后从刚刚超过90%下降到刚刚低于90%。
+
+拉夫堡大学的数据分析师邓肯·罗伯逊说，英国有足够的额外疫苗来进行加强针接种。
+
+在接种疫苗的同时，测试和隔离计划将继续进行。
+
+**B**计划是什么？
+
+在去年冬天大流行的高峰期，仅英格兰就有超过3万名感染中共病毒的病人住院。
+
+目前，全英国只有8400多人，政府最担心的仍然是这个数字急剧上升，国家医疗服务系统不堪重负，因中共病毒和其他原因无法治疗的死亡人数将增加。
+
+如果数字确实开始上升，公众将被敦促采取更谨慎的行动，在室内和公共交通工具上戴口罩可能成为法律规定，大型活动和其他室内环境可能会引入强制性疫苗护照。
+
+雷丁大学细胞微生物学专家西蒙·克拉克说，不知道政府将如何高效地引入这些措施。
+
+克拉克博士说，虽然感染率比去年同期高得多，但在疫苗的作用下，感染率能上升得多快还不得而知。
+
+不再封锁？
+
+周一，英国《电讯报》援引一位高级政府消息人士的话说，约翰逊先“坚决反对”再次封锁，因为有传言说政府正在制定10月份的“防火”封锁计划，试图平息感染。
+
+虽然政府的冬季计划中没有关于应急封锁措施的细节，但周一，唐宁街的一位发言人承认，如果事情失去控制，不能排除这一策略。
+
+2020年，约翰逊因在病毒肆虐英国时迟迟不在全国范围内封锁而多次受到批评。
+
+但随着疫苗的成功，首相不愿在冬季再次采取封锁措施。
+
+英国近日取消了疫苗护照，这是一个好的信号，但依赖加强针和高接种率来控制疫情是完全不现实的。以色列和新加坡在全民疫苗接种率达到80%的情况下放开管制均造成了疫情的再次爆发，英国应该吸取这些教训。并学习印度采用以羟氯喹和伊维菌素为主的药物治疗来控制疫情，与此同时还需要立刻停止国民接种疫苗才能彻底结束这场疫情，让国民回到疫情前正常的生活。
+
+文章内容仅代表个人观点
+
+参考链接：
+
+[https://www.abc.net.au/news/2021-09-15/boris-johnson-backs-vaccines-to-prevent-winter-lockdowns/100461406](https://www.abc.net.au/news/2021-09-15/boris-johnson-backs-vaccines-to-prevent-winter-lockdowns/100461406)
+
+[https://www.abc.net.au/news/2021-08-21/israel-shows-what-life-looks-like-at-80-per-cent-vaccinated/100394760](https://www.abc.net.au/news/2021-08-21/israel-shows-what-life-looks-like-at-80-per-cent-vaccinated/100394760)
+
+[https://www.zerohedge.com/covid-19/life-has-not-improved-much-we-hoped-singapore-outbreak-worsens-80-vaccinated](https://www.zerohedge.com/covid-19/life-has-not-improved-much-we-hoped-singapore-outbreak-worsens-80-vaccinated)
+
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
 0

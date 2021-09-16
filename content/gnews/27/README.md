@@ -2,41 +2,28 @@
 ---
 
 
-## 秘翻在线：美多地政府和企业威胁规避中共病毒疫苗的宗教豁免申请者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536171/)
+## 中共国健康码、行程码“二码合一”加大管制国人力度
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536378/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共打着 “为助力群众安全出行”的旗号，通过国家政务服务平台“防疫健康码”整合“通信大数据行程卡”，意味着健康码和行程码在中共国全面实现“二码合一”，进一步加大了对人民的控制力度。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.001.jpeg)
+所谓行程码是由中国信息通信研究院通过中国电信、中国移动、中国联通得到用户手机所处的基站位置，从而掌握每个公民前14天到过的所有地市信息。 此次中共国二码合一，看似是为了让公民减少操作步骤、方便通行检验，实则让防疫标准更加严格与复杂。干坏事看起来像做好事,是中共一贯的套路手法, 下一步随着数字人民币的全面推广，加之中共国无处不在的摄像监控设施，中国人将无时无刻不生活在由共产党打造的电子集中营中，人权将进一步被践踏，自由将进一步被剥夺。 
+(本文仅代表作者观点)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-74.jpg)图片来源：NY1新闻网
-9月15日，《新闻极限》（Newsmax）引述了《美联社》（The Associated Press）报道，指为了针对不接种中共病毒疫苗而申请宗教豁免者，美国多地政府和企业采用各种手段予以阻止和威胁。
+参考链接：[全国健康码行程码实现“一页通行”](https://3g.163.com/news/article/GK0UE4HJ041599RS.html)
 
-1964年联邦《民权法案》规定，雇主必须为那些因“真诚”的宗教信仰而反对工作要求的雇员提供合理的便利。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-根据公平就业机会委员会（Equal Employment Opportunity Commission）制定的规则，宗教信仰不一定要得到一个有组织的宗教的承认，它可以是新的、不寻常的或“对其他人来说似乎不合逻辑或不合理的”。但它不能仅建立在政治诉求或社会思潮上。
+终审：文龙
+校正/发稿：我不在这里
 
-为了免除中共病毒疫苗强制接种，美国民众采取了宗教豁免行动。
-
-在洛杉矶，大约有3000名洛杉矶警察局（LAPD）的员工以宗教信仰为由，尝试免除接种中共病毒（COVID-19）疫苗。在华盛顿州，成千上万的州政府工作人员也正在寻求类似的豁免。而阿肯色州的一家医院也收到了众多员工的此类请求。
-
-在纽约，州立法者曾试图让医务工作者强制接种疫苗，并且没有宗教豁免权。但是，周二，一位联邦法官阻止了该州执行该规定，指这种做法是非法的。
-
-在俄克拉荷马州塔尔萨市（Tulsa），牧师杰克逊·拉梅尔(Jackson Lahmeyer)在他的教会网站上提供了一份 “宗教豁免 “表格供下载，短短三天就有超过35,000人下载了该表格。
-
-报道说，目前还不清楚具体有多少联邦雇员要求获得宗教豁免，但工会官员说会有很多申请宗教豁免的要求。劳工部曾表示，如果便利条件给雇主造成了不适当的负担，则可以拒绝。
-
-于是，一些企业雇主正在采取强硬的威胁态度针对宗教豁免者。联合航空公司上周告诉员工，那些获得宗教豁免的人将被无薪休假，直到新的冠状病毒测试程序到位。
-
-在洛杉矶，警察局长米歇尔·摩尔（Michel Moore）说，他正在等待市人事部门关于豁免的指导。该市规定，除非获得医疗或宗教豁免，否则市政雇员必须在10月5日前接种中共病毒疫苗。一群洛杉矶警察局的雇员正在就该政策提起诉讼。
-
-在华盛顿州，约有6万名州政府雇员受到州长杰伊·英斯利(Jay Inslee)的强制要求，他们必须在10月18日之前完全接种疫苗，否则将失去工作，除非他们获得医疗或宗教豁免并获得允许他们继续工作的便利。
-
-在阿肯色州，私人经营的康威地区卫生系统（Conway Regional Health System）约有5%的员工申请宗教或医疗豁免。于是，医院给员工发了一张表格，列出了许多常见的药物，包括泰诺（Tylenol）、百服宁（Pepto-Bismol）、H制剂（Preparation H）和碳酸钙咀嚼片（Tums），说这些药物是用胎儿细胞系开发或测试的。该表格要求人们在上面签字，并写明“我真诚的宗教信仰是一贯真诚的，我不使用或不会使用”任何列出的这些药物。
-
-在一份声明中，康威地区卫生局主席兼首席执行官马特·特鲁普（Matt Troup）威胁说。“有诚意的员工……应该毫不犹豫地同意（不服用）所列药品清单”。
-
-面对邪恶势力，善良的人们总是退让和回避，这不但纵容了邪恶势力的嚣张气焰，也不断地损害自身和他人。为了自身和他人的利益，美国民众是该站起来反抗了。
-
-新闻来源：[As COVID-19 Vaccine Mandates Rise, Religious Exemptions Grow](https://www.newsmax.com/politics/virus-outbreak/2021/09/15/id/1036599/)
-
-0
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
++1

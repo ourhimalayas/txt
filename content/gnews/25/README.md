@@ -2,21 +2,36 @@
 ---
 
 
-## 秘翻在线：中共会公布泸州地震遇难人数的真实数据么？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536323/)
+## 人类首次没有专业宇航员的太空旅行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536415/)
 
-撰稿：Ping
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-182555.jpg)
-据环球时报报道，截至9月16日8时30分，泸县“9·16”地震已导致死亡3人，重伤3人，轻伤57人，转移6904人，县城紧急避难场所（含玉街）安置10281人。全县居民房屋倒塌737处、严重损坏72间、一般受损7290间。此外，还有3处交通受损。
+栏目记者/责任编辑：飞虹
 
-我们从有限的网络视频中可以看到建筑物倒塌，满地瓦砾，砖块。你相信死亡人数只有3人吗？在中共国普通民众似乎永远也不会知道任何灾难的确切遇难人数，因为每一次灾难背后都藏着政治腐败和官商肮脏的交易。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-我们不妨看看日本类似震级的视频。2021年2月13日晚，福岛县东部海域发生7.3级地震，造成至少1人死亡、约190人受伤；3月20日晚，宫城县发生6.9级地震；5月1日，宫城县附近海域发生6.6级地震。人们没有看到震后的满目疮痍！似乎远远比不上中共国6级的地震强度。
 
-几乎中共国人们都知道房地产开发商与政府勾结，腐败贪污。致使开发商对建筑工程偷工减料，到处都有豆腐渣工程，质量根本不能达到减震防震的标准。住在这样的房子里，别说6级地震，即使三级地震都可能会有倒塌的房屋。基于这种状况，政府官员会如实报告真实的死亡数字吗？或许连真正的受灾人数都不敢报吧！如实上报，要如何解释中共国的房地产质量如此脆弱呢？这要牵连多少人呢？
 
-所以中共地方官员会不遗余力的掩盖事实！作为中共国的普通民众，永远不可能知道任何灾难中的真实遇难人数。回顾一下河南郑州的大洪水，据郭文贵先生爆料死亡超过数十万，但是河南官方公布水灾死亡人数至少有302人，50人失踪，包括郑州死亡292人，失踪47人。
+9月15日，美国东部时间晚上8点02分，佛罗里达州卡纳维拉尔角的肯尼迪航天中心，SpaceX第一次在没有任何专业宇航员的情况下将四名普通公民送入地球轨道，这是人类航天史上前所未有的壮举。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.007.jpeg)
+这四名业余宇航员乘坐名为“灵感4号”的经过特殊改装的“龙”号太空舱，将在比国际空间站更高的轨道绕地球运行三天，与竞争对手“维珍银河”和“蓝色起源”最近的类似活动相比，飞行高度更高，持续时间更长。 这次飞行的发起者是现年38岁、高中辍学的美国亿万富翁贾里德·艾萨克曼，他同时用这次飞行为他的圣裘德儿童研究医院筹集善款。 艾萨克曼有商用飞机和战斗机资格驾驶，他的另外三名“机组人员”也是经过精心挑选的，包括一名圣裘德的医生助理、一位西雅图的航空航天数据工程师和一位前NASA宇航员候选人。团队在出发前经过了5个月的严格训练， 这次飞行标志着伊隆·马斯克的地球轨道太空旅游业务正式启动。 
+(本文仅代表作者观点)
 
-生在中共国的普通老百姓，活得不如猪狗。生死都由共产党决定，财产由共产党控制，子女也是共产党的财产。如果你还想要堂堂正正地做人，做一个自由的，有尊严的人，那么就必须站起来推翻共产党的邪恶统治。新中国联邦是中国人唯一的希望！
+参考链接：
 
+1. [SpaceX launches first all-civilian crew into orbit without professional astronauts](https://www.newsbreak.com/news/2371525956007/spacex-launches-first-all-civilian-crew-into-orbit-without-professional-astronauts)
+2. [First all-civilian crew launched to orbit aboard SpaceX rocket ship](https://www.newsbreak.com/news/2372061151183/first-all-civilian-crew-launched-to-orbit-aboard-spacex-rocket-ship)
+
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0
