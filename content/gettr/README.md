@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 6:27 AM (UTC)`
+
+9/15/2021 班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家进行战争的不归路，结果将导致无数人丧生，这也就是为什么摧毁这些邪恶势力是我们的使命！<br/>9/15/2021 Steve Bannon: The West is heading to war with the CCP and other evil countries due to our failure to stand up to evil! As a result, countless lives will be thrown away. That is why our mission is to destroy these evil forces!
+![img](https://media.gettr.com/group38/getter/2021/09/16/06/40a726cb-9356-3f71-0d2c-ffc340b6aab6/out.jpg)
+
+---
+
 `@miles 9/16/2021 5:27 AM (UTC)`
 
 9/15/2021 纳瓦拉先生：我们必须切断为中共房地产泡沫输血的美国资本! 班农先生：中国人是中共与华尔街精英勾兑的最大受害者！这些华尔街精英有责任赔偿那些因投资中共房地产诈骗公司而受害的老百姓！<br/>9/15/2021 Peter Navarro: We must stop the flow of the American capital to fuel the CCP’s real estate bubbles! Bannon: The Chinese people are the BIGGEST victims of the collusion between the CCP and the Wall Street elites, who are obliged to compensate the Chinese victims who invested in the CCP’s fraudulent real estate companies
@@ -285,12 +292,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 WOW <br/><br/>【郭先生说要做死辉瑞，本id随便看看走势。这是一波毫无节操的通过强制疫苗，强制拉升股价的走势，其上升阶段犹如投胎转世，方块中枢后离开段走势完美，直上51.86最高价,离开段级别甚小，毫无中枢可言。相应的，现在已经macd回0轴以下，下面40块以上空空如也，随便跌。不用文贵开堵，跌到40元也不是问题】
 ![img](https://media.gettr.com/group22/getter/2021/09/12/22/5170208a-b909-1818-fad5-5c434b6937f4/d78928f7fa883ac8eabdeefce67dd0ca.jpg)
-
----
-
-`@miles 9/12/2021 10:24 PM (UTC)`
-
-9.12<br/>这个100%是假的！迪拜七星酒店等乱凑的……我们要唯真不破……兄弟姐妹们！ <br/><br/>https://twitter.com/g_defense777/status/1436894371513872385?s=12
 
 ---
 
