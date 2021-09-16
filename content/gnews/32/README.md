@@ -2,38 +2,31 @@
 ---
 
 
-## 联邦法官否决了强制纽约州医务人员接种疫苗的规定
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1535934/)
+## 澳大利亚采购第一艘核潜艇以应对中共威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535958/)
 
-2021年9月16日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091601-1.jpg)2021 年 9 月 13 日，抗议者聚集在纽约市反对新的 COVID-19 疫苗授权。（图片：Enrico Trigoso/大纪元时报）
-周二，一位联邦法官批准了一项紧急禁令，禁止纽约州对医务人员实施新的强制注射中共新冠病毒疫苗的规定。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/b3a869168a252da5c47a800b556e47b4.jpg)图片来源：News.com.au
+**整理报道：**翼族
 
-诉讼称，包括医生、护士、一名医疗技术人员和一名医生联络员在内的原告，面临着被解雇、失去医院的收治权以及中断职业生涯，除非他们同意接种与其宗教信仰相悖的疫苗。
+作为澳美英军事联盟(AUKUS)三方协议的一部分，澳大利亚将向美国政府购买澳大利亚的第一批核动力潜艇，以对抗中共在印太地区日益增长的影响力。
 
-医务人员认为，疫苗强制令，将使1964年《民权法案》第七章规定的对真诚宗教信仰的保护失效，尽管几天前生效的州卫生令也提供了同样的保护。具体来说，这项命令违反了《美国宪法》第一和第十四修正案、最高条款和平等保护条款。
+澳大利亚东部标准时间早上7点宣布的AUKUS军事联盟，被莫里森描述为“永远的伙伴关系”，这项雄心勃勃的计划被认为是澳大利亚几十年来最重要的战略举措。
 
-新的命令“是在恐惧和非理性的气氛中产生的，在这种气氛中，未接种疫苗的人受到威胁，如果他们不同意被注射，……接种疫苗违背了他们的宗教信仰，他们将有被歧视的威胁。显然疫苗没有承诺的那么有效，并且已知的副作用越来越明显，越严重，甚至危及生命”。
+新的军事联盟将导致澳大利亚特恩布尔政府2016年与法国潜艇制造商海军集团达成的一项有争议的900亿美元的交易搁浅。尽管莫里森总理坚称“法国仍然是太平洋地区非常重要的合作伙伴”，但仍将对澳法两国关系造成相当大的影响。
 
-9月14日上午，由比尔·克林顿任命的美国纽约北区地方法院法官大卫·赫德对此案签发了临时限制令。该诉讼针对的是纽约州州长凯西·[霍赫尔](https://zh.wikipedia.org/wiki/%E5%87%B1%E8%A5%BF%C2%B7%E9%9C%8D%E8%B5%AB%E7%88%BE)(民主党)。
+三个国家承诺在网络防御、人工智能、导弹能力和供应链方面开展合作。一些前政界人士认为，澳大利亚需要更加独立于美国，避免激怒其最大的贸易伙伴中共国。但AUKUS的伙伴关系，在与中共国的新“冷战”中，澳大利亚正在与美国一路同行。
 
-霍赫尔的命令称，“疫苗授权被暂停”，并且纽约卫生部“禁止因对任何原告的执照、证明、居住权、录用特权，或其它专业地位或资格采取任何纪律处分或其它行动，因为他们寻求或已获得强制性新冠病毒疫苗接种的宗教豁免”。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-[原文链接](https://www.theepochtimes.com/mkt_breakingnews/federal-judge-blocks-new-york-state-health-care-worker-vaccination-mandate_3997114.html?utm_source=News&amp;utm_medium=email&amp;utm_campaign=breaking-2021-09-14-2&amp;mktids=90cb01f04acca1c4ef9dc5a63cda8043&amp;est=7Q2RFWdSS0TFD4YAGWUXLEP9sc2tVuXL465XqAkNjDWlIkgJNRi%2FKZwXYZuTYHbNtyYfvJc%3D)
+**参考链接：**[Australia-US nuclear submarine deal to counter China](https://www.smh.com.au/national/australia-news-live-australia-us-and-uk-to-unveil-new-defence-pact-nsw-health-staff-yet-to-get-covid-vaccines-victorian-lockdown-could-ease-20210915-p58rw3.html)
 
-***编辑：【英国伦敦喜庄园编辑部】***
+*编辑/发表：翼族*
 
-*翻译： Johnston-Zhang| 简评/PR: Julia Win*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

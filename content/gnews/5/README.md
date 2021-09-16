@@ -2,23 +2,25 @@
 ---
 
 
-## 秘翻在线：美英澳三国宣布建立新的科技和军事合作协议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536017/)
+## 约翰逊改组内阁 对华强硬派继任 英国史上第二位女外相诞生
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1536073/)
 
-#### 撰稿：极寒将至 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/E-vlEV9WQAMiyKU.png)
+英国首相约翰逊（Boris Johnson）周三（15日）宣布改组内阁，撤换多名官员，备受关注的外相蓝韬文（Dominic Raab）由于早前被质疑在阿富汗问题上处理不当，而被降职为司法大臣，外相一职由国际贸易大臣卓慧思（Liz Truss）接任，成为英国史上第二位女外相。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-73.jpg)图片来源：泰晤士报
-路透社消息，拜登总统，英国首相约翰逊与澳大利亚总理莫里森，周三共同宣布，成立一个结合军事、外交和科技，名为AUKUS的新三方安全合作协议，他们将为印度——太平洋地区建立安全伙伴关系，其中包括帮助澳洲采购核动力潜艇，并将支持澳洲核能潜艇巡航印太地区。另外还包括网络、人工智能、量子科技、深海能力等科技领域合作，加强信息技术的分享。三国将在科学、技术、产业与供应链上，做出更多整合努力。
+卓慧思表示，对出任外相感到高兴，上任后将与盟友合作应对全球挑战，确保英国的外交政策为民众带来实质成果。
 
-这项协议名为“AUKUS”，是以三个国家的首字母命名的。该协议还将涵盖核合作，其中美国和英国将分享他们关于如何维护核防御基础设施的知识。消息人士表示，虽然这项协议中没有明确提到中共，但这是西方盟友在军事及科技领域对抗中共国扩张的又一举措。
+现年46岁的卓慧思毕业于牛津大学，修读哲学、政治和经济。在担任国际贸易大臣的两年期间，她一直提倡调整对印度太平洋地区的经济和外交战略，并力争加入《全面与进步跨太平洋伙伴关系协定》（CPTPP）。
 
-美国官员表示，核动力将使澳洲海军能够在印太地区进行长期任务的能力。但这并不意味着澳大利亚将成为核武国家，该国已经表示无意发展核武，同时也是《不扩散核武器条约》(Nuclear Nonproliferation Treaty)倡议国。
+对华关系方面，她主张强硬应对，她认为世界贸易组织应该拒绝视中国为发展中国家，中共当局的一些行为对全球贸易体制造成极为不利的负面影响。
 
-官员说，美国在亚洲的传统盟友，包括日本、韩国、泰国、菲律宾等，同时加上新盟友如印度跟越南等，还有四方安全对话机制，现在再加上这个新的三方安全倡议，将形成更宽广的战略，应对21世纪最大的挑战。拜登总统曾经多次强调，中共国是21世纪最大的挑战。
+另外，司法大臣白乐彬（Robert Buckland）被撤换；教育大臣韦廉信（Gavin Williamson）由疫苗部长 Nadhim Zahawi 顶上、房屋大臣郑伟祺（Robert Jenrick）由内阁办公室部长戈夫（Michael Gove）继任、文化大臣由卫生大臣杜慧诗（Nadine Dorries）取代，而财相辛伟诚（Rishi Sunak）、内政大臣彭黛玲（Priti Patel）和国防大臣华礼仕（Ben Wallace）获留任。
 
-西方传统盟友在面对中共步步紧逼的超限战攻击和海上威胁的时候，开始结成更加紧密的军事和科技合作的同盟，是迫不得已的明智选择。当前，中共用生化武器已经攻破西方各国防御体系，接下来中共凭借背后邪恶势力的帮助，一手生化武器大棒、一手金元利诱的称霸世界计划也逐渐暴露，西方国家再次面临二战时期的困境，是各自为战然后被各个击破，还是建立盟军共同抵御纳粹的疯狂攻击？答案是显而易见的。
+有评论认为，约翰逊这次改组的主要目的是要改变政府管治团队，将施政方向由“危机处理”转变为专注疫后与脱欧后经济重建。
 
-新闻来源：[Australia to get U.S. nuclear submarine technology as China looms large](https://www.reuters.com/world/asia-pacific/australia-get-us-nuclear-submarine-technology-china-looms-large-2021-09-15/)
+新闻来源：[卫报](https://www.theguardian.com/politics/2021/sep/15/patel-raab-and-williamson-tipped-to-be-moved-in-imminent-cabinet-reshuffle) / [Independent](https://www.independent.co.uk/news/uk/politics/dominic-raab-justice-secretary-reshuffle-b1920719.html)
 
+*撰文｜台湾宝岛农场 天滅中共
+声明：以上观点仅代表作者*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/c9930e2158cc3d3f.jpg)
 0

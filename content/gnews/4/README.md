@@ -2,55 +2,44 @@
 ---
 
 
-## 纽约南区法院判SEC诉讼案和解结束，但和解文件内容不包含VOG
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536030/)
+## United Kingdom: COVID-19 Deaths 58 Times Higher than 2020, Plus Most Were Vaccinated
+` HimalayaNewZealand` [轉載自GNews](https://gnews.org/1536072/)
 
-栏目记者/责任编辑：文龍
+Writer: Lois
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091601.png)Image Source: Activist Post
 
+According to data from Public Health England, 70 per cent of COVID-19, or Chinese Communist Party (CCP) deaths from February 2021 to the end of August this year were from the nation’s vaccinated population.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+According to the British alternative media outlet The Exposé, Britain’s mainstream media, public health sources, and government include deaths from January 2021 (when barely anyone in the UK had been vaccinated) in their recent COVID-19 death reports.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091602.png)Data source: Public Health England
+Meanwhile, official data from Scotland shows 179 deaths were recorded across the country from 5th August 2021 to 2nd September 2021. However, in the same period last year, three COVID-19 deaths were recorded across the entire population.
 
+“This means COVID-19 deaths across Scotland are currently 5,866.66% / 58.6 times higher than they were this time last year, despite the majority of the population of being vaccinated and summer being on their side,” notes The Exposé.
 
+Furthermore, COVD-19 statistics from Public Health Scotland reveal that around 15,000 more positive cases were discovered among the vaccinated in Scotland compared to the unvaccinated population.
 
+“Public Health Scotland are trying to hide the fact the majority of deaths are among the vaccinated due to the date parameters they have used to publish deaths by vaccination status. The deaths stretch back as far as the 29th December,” stated The Exposé.
 
+Furthermore, COVD-19 statistics from Public Health Scotland reveal that around 15,000 more positive cases were discovered among the vaccinated in Scotland compared to the unvaccinated population.
 
-2021年9月13日，纽约南区法院第一检察长詹乐霞女士签署文件，正式终止了对GTV和 萨罗卡（Saraca）两家公司的所有相关刑事调查，被告方与原告SEC达成和解。
+“Public Health Scotland are trying to hide the fact the majority of deaths are among the vaccinated due to the date parameters they have used to publish deaths by vaccination status. The deaths stretch back as far as the 29th December,” stated The Exposé.
 
-该文件宣布GTV和 萨罗卡（Saraca）两家公司没有涉嫌任何刑事犯罪，这标志着中共盗国贼策划并组织实施的又一对爆料革命的攻击阴谋彻底失败！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-23.jpg)
-感谢南区法院詹乐霞检查长，以及所有参与调查此案的检察官，正是他们的秉公执法和公正调查，维护了我们的利益，更维护了美国法律的尊严！同时也让更多人看到，这是一场由中共在美国发动的，针对我们灭共爆料革命的法律超限战，盗国贼这一险恶计划彻底失败，而且赔了夫人又折兵。但也浪费了美国纳税人大量的资源、金钱和时间，相信这一案件的传播和发酵，会警醒越来越多的美国人，包括媒体和政要。
+“This means they are including deaths from the [height of the alleged second wave of Covid-19](https://www.google.com/search?q=covid-19+deaths+scotland&amp;rlz=1C1CHBF_en-GBGB812GB812&amp;oq=covid-19+deaths+scotland)where [just 9% of the population had received a single dose, and just 0.1% of the entire population were fully vaccinate](https://ourworldindata.org/covid-vaccinations?country=GBR)d.”
 
-在该案件的审理过程中，纽约南区法院检察官依法办案，没有被中共盗国贼所利用，最终的这一和解结果，是我们爆料革命巨大的胜利，也验证了美国司法制度的伟大。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-3.jpg)
-最重要的是，该案件与SEC的和解文件以及停止刑事调查，只是对GTV和萨罗卡公司而言，并不包括VOG。九指妖在路德频道的直播中说，这一结果证明了她的清白，完全是无知加无稽之谈，南区法院对她和相关涉案人士的调查才刚刚开始。
+A  comparison between table 17 of Public Health Scotland’s COVID-19 death reports shows that unvaccinated deaths account for 21.7 per cent of all Scotland’s COVID-19 deaths since 5th August 2021, while the vaccinated population accounted for 78.3 per cent of COVID-19 deaths since the same date.
 
-是非自有曲直,善恶终究有报! 文贵先生称：“给我们的公司机构带来巨大伤害和损失的这些假起诉人、假报案人、假投资人，包括九指妖和VOG，都会继续受到刑事调查，最终将按照美国法律受到严惩！”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091603-2.png)Data source: Public Health Scotland
 
-（本文仅代表作者观点）
+According to this table, the majority of COVID-19 deaths, dated from December 2020 to August 2021, appear to be from the unvaccinated population.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091604.png)Data source: Public Health Scotland
 
-终审： Q大哥
-校对/发稿：为真不破20
+However, according to this table dating from December 2020 to September 2021, most deaths from August 2021 to September 2021 were among the vaccinated, especially those with two doses.
 
-**更多资讯，更多关注**
+[The Exposé. (September 15, 2021). EXCLUSIVE – Covid-19 deaths are 58 times higher than this time last year and 78% of those dying had the Covid-19 vaccine according to Public Health data.](https://theexpose.uk/2021/09/15/exclusive-covid-19-deaths-are-58-times-higher-than-this-time-last-year-and-78-of-those-dying-had-the-covid-19-vaccine-according-to-public-health-data/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
+Upload Layout: Candy
 
 
 

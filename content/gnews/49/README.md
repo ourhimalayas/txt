@@ -2,22 +2,53 @@
 ---
 
 
-## 秘翻在线：谷歌强迫智能设备制造商使用指定系统 韩国政府对此开出1.77亿美元罚单
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1535812/)
+## 瑞士称不认可部分世卫批准的疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1535935/)
 
-#### 编译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-70.jpg)图片来源：网络截图
-据日经亚洲9月16日报道，韩国反垄断机构周二宣布，将罚款谷歌2074亿韩元（1.77亿美元），因为谷歌强迫三星电子和其他智能设备制造商仅使用经批准的Android操作系统版本。
+栏目记者/责任编辑：AsG諾雅
 
-联邦贸易委员会表示，谷歌表现得像监管机构，要求三星和其他制造商在推出设备之前获得该公司的批准。谷歌检查了这些设备是否使用分叉的 Android 系统，如果使用，则阻止产品的发布。
 
-韩国公平竞争委员会主席Joh Sung-wook在新闻发布会上说，这一行动是有意义的，因为它恢复了移动操作系统和应用程序市场的竞争势头。“特别是，随着智能设备正在将其版图扩展到智能手表、汽车和机器人，我们为创新设备和服务奠定了基础，这意义重大。”
 
-更重要的是两周前，韩国国会通过了一项法案，禁止应用程序市场参与者向内容提供商强制实施特定交易方法。该立法以谷歌和苹果为目标，它们对交易收取高达30%的费用。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-干得好，文在寅总统。 世界应该支持韩国对大型科技公司的立场。否则，少数庞然大物变得更大，可以肆无忌惮地打击可能阻碍其影响力的初创企业的态势将加剧。
 
-原文链接：[South Korea fines Google $177mn for blocking Samsung, others on OS](https://asia.nikkei.com/Business/Technology/South-Korea-fines-Google-177mn-for-blocking-Samsung-others-on-OS)
 
-+1
+
+
+法广9月15日报道，瑞士联邦公共卫生局终于发表声明称，从9月13日起扩大了新冠疫苗证书的强制使用范围，但是因为该国只认可欧盟区承认的疫苗，而不承认英国阿斯利康、俄罗斯卫星五号或中共国疫苗，导致数千名已接种这些疫苗的外籍居民、游客以及瑞士侨民将必须待在室外，不能进入室内公共空间。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-71.jpg)图片来源： REUTERS
+受影响的瑞士居民称，该国正在建立一个等级公民社会。如果没有被认可的疫苗接种证明又想参与公共生活，人们必须自费进行检测。而餐饮及旅游业也对目前的计划表示强烈反对。旅游从业人员警告称，此举代表海外游客从9月13日起，要么只能在客房内或者单独被隔开的房间内用餐，要么就得没完没了地进行检测，这将严重影响瑞士的旅游业。
+
+疫苗有毒，政府无视民意的强制做法更是导致人们相互割裂的剧毒，奉劝官员们正视病毒和疫苗真相，及早改正错误政策，还人们一个安全的生活环境。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1.1-7.jpg)图片来源： REUTERS
+信息链接：
+[瑞士称不认可所有世卫批准的疫苗](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210915-%E7%91%9E%E5%A3%AB%E7%A7%B0%E4%B8%8D%E8%AE%A4%E5%8F%AF%E6%89%80%E6%9C%89%E4%B8%96%E5%8D%AB%E6%89%B9%E5%87%86%E7%9A%84%E7%96%AB%E8%8B%97)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+0

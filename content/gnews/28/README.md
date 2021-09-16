@@ -2,63 +2,23 @@
 ---
 
 
-## 美国超过一半的州誓言反对拜登的疫苗强制接种政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536008/)
+## 秘翻在线：美英澳三国宣布建立新的科技和军事合作协议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536017/)
 
-栏目记者/责任编辑：圣母院钟声
+#### 撰稿：极寒将至 
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-73.jpg)图片来源：泰晤士报
+路透社消息，拜登总统，英国首相约翰逊与澳大利亚总理莫里森，周三共同宣布，成立一个结合军事、外交和科技，名为AUKUS的新三方安全合作协议，他们将为印度——太平洋地区建立安全伙伴关系，其中包括帮助澳洲采购核动力潜艇，并将支持澳洲核能潜艇巡航印太地区。另外还包括网络、人工智能、量子科技、深海能力等科技领域合作，加强信息技术的分享。三国将在科学、技术、产业与供应链上，做出更多整合努力。
 
+这项协议名为“AUKUS”，是以三个国家的首字母命名的。该协议还将涵盖核合作，其中美国和英国将分享他们关于如何维护核防御基础设施的知识。消息人士表示，虽然这项协议中没有明确提到中共，但这是西方盟友在军事及科技领域对抗中共国扩张的又一举措。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+美国官员表示，核动力将使澳洲海军能够在印太地区进行长期任务的能力。但这并不意味着澳大利亚将成为核武国家，该国已经表示无意发展核武，同时也是《不扩散核武器条约》(Nuclear Nonproliferation Treaty)倡议国。
 
+官员说，美国在亚洲的传统盟友，包括日本、韩国、泰国、菲律宾等，同时加上新盟友如印度跟越南等，还有四方安全对话机制，现在再加上这个新的三方安全倡议，将形成更宽广的战略，应对21世纪最大的挑战。拜登总统曾经多次强调，中共国是21世纪最大的挑战。
 
+西方传统盟友在面对中共步步紧逼的超限战攻击和海上威胁的时候，开始结成更加紧密的军事和科技合作的同盟，是迫不得已的明智选择。当前，中共用生化武器已经攻破西方各国防御体系，接下来中共凭借背后邪恶势力的帮助，一手生化武器大棒、一手金元利诱的称霸世界计划也逐渐暴露，西方国家再次面临二战时期的困境，是各自为战然后被各个击破，还是建立盟军共同抵御纳粹的疯狂攻击？答案是显而易见的。
 
-
-
-27名共和党州长或司法部长发誓要反击拜登总统发布的强制疫苗接种行政命令。表示反对的州长包括来自亚利桑那、阿拉巴马、阿拉斯加、阿肯色、佛罗里达、佐治亚、爱达荷、印第安纳…..田纳西、德克萨斯等州。一些来自民主党州长的共和党司法部长也发誓要告倒拜登政府。
-
-佛罗里达州州长德桑蒂斯说 ：“当你有一个像拜登这样的总统发布违宪的法令来对付美国人民时，我们有责任支持宪法并反击，这一命令可能导致数百万美国人失业。”
-
-德克萨斯州州长艾伯特表示德州已经开始阻止这次夺权，并很快起诉拜登政府。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-39.jpg)图片来源：REUTERS
-南卡罗来纳州州长麦克.马斯特发誓要与拜登抗争，他说：“在拜登总统和激进的民主党人的领导下，美国梦变成了一场噩梦。他们向资本主义宣战，对宪法嗤之以鼻，并赋予境外敌人权力。放心，我们将把他们打到地狱之门，以保护每一个南卡罗来纳州人的自由和生计。”
-
-亚利桑那州州长杜西说：“州长们即不用向乔·拜登报告，又不向联邦政府报告。亚利桑那州居人决定个人的医疗保健。”
-
-共和党全国委员会还宣布，如果该总统行政令生效，它将以“保护美国人及其自由”起诉拜登政府。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-6.jpg)图片来源：网络
-作为对共和党反击的回应，白宫高级顾问里士满告诉CNN： “我们不会让一两个人妨碍总统令的执行，我们将永远站在保护美国人民一边。”
-
-然而问题是拜登政府总是将人民的福祉挂嘴边，却时常站在美国人民对立面的事实。
-
-信息链接：
-[More Than Half of US States Vow to Fight Biden’s Vaccine Mandate](https://www.theepochtimes.com/more-than-half-of-us-states-vow-to-fight-bidens-vaccine-mandate_3995944.html)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+新闻来源：[Australia to get U.S. nuclear submarine technology as China looms large](https://www.reuters.com/world/asia-pacific/australia-get-us-nuclear-submarine-technology-china-looms-large-2021-09-15/)
 
 0
