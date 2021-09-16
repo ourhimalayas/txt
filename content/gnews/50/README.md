@@ -2,22 +2,17 @@
 ---
 
 
-## 樱花灭共诗——珠扑地（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1536204/)
+## 2021年9月15日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536237/)
 
-作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-180.png)
-行商仰贵官，票号运通天。
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-惑欲祈蛇果，假威傲虎山。
+9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！
 
-宾酬高厦起，席撤冷杯残。
+9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
 
-红顶珠扑地，远追沈万三。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-181.png)
-(本文只代表作者观点，与GNews网站无关)
-*插图：东京樱花团/闪闪
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb659j1751)
+
+**喜联盟Gnews编辑部**
+
 0

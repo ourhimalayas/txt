@@ -13,20 +13,20 @@
 
 ---
 
-### [Korea-Australia &#8220;2+2&#8221; talks committed to establishing a comprehensive strategic partnership](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年9月15日 文贵先生盖特 11](/content/gnews/2/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年9月15日 文贵先生盖特 11](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [澳大利亚将建造八艘核动力潜艇](/content/gnews/3/README.md)
+ ` Shuizhuyu`
 
-### [GT Online: CCP Financial Institutions Panicking—Banks Suspend Personal Precious Metal Trading](/content/gnews/4/README.md)
+### [秘翻在线：中共会公布泸州地震遇难人数的真实数据么？](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚将从美国购买远程战斧导弹](/content/gnews/5/README.md)
- ` Charlie`
+### [断网前奏傀儡之都](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [2021年9月15日 文贵先生盖特 11](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -67,65 +67,65 @@
 ### [基本养老保险缺口加大](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [1200亿，大部分钱藏到了比特币，最少送给江家200亿](/content/gnews/19/README.md)
+### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声| 抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|三针疫苗过后，以色列疫情再现高峰](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [有声|SEC案件终结 爆料革命完胜中共](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [1200亿，大部分钱藏到了比特币，最少送给江家200亿](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【 #G时新闻 】🔥 &#8211; 纽约检察长终止对GTV和Saraca两家公司所有刑事调查](/content/gnews/20/README.md)
+### [【 #G时新闻 】🔥 &#8211; 纽约检察长终止对GTV和Saraca两家公司所有刑事调查](/content/gnews/24/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [有声| 信仰与人权，拣选与文明——人类的第三文明：G文明的到来](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [视频| 灭共七剑客](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [2021年9月14日郭文贵先生直播全文字版](/content/gnews/23/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [2021/09/15 大卫作战室直播精要](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万](/content/gnews/25/README.md)
+### [秘翻在线：中共会公布泸州地震遇难人数的真实数据么？](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美多地政府和企业威胁规避中共病毒疫苗的宗教豁免申请者](/content/gnews/26/README.md)
+### [秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：冈山大学提醒：接种疫苗前请参考此调查结果!](/content/gnews/27/README.md)
+### [秘翻在线：美多地政府和企业威胁规避中共病毒疫苗的宗教豁免申请者](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：对华立场强硬的特拉斯出任英国新外相](/content/gnews/28/README.md)
+### [秘翻在线：冈山大学提醒：接种疫苗前请参考此调查结果!](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：澳门博彩巨头股票集体跳水 受中共监管风暴冲击](/content/gnews/29/README.md)
+### [秘翻在线：对华立场强硬的特拉斯出任英国新外相](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：爱尔兰调查TikTok侵犯儿童隐私和非法数据转移](/content/gnews/30/README.md)
+### [秘翻在线：澳门博彩巨头股票集体跳水 受中共监管风暴冲击](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚将从美国购买远程战斧导弹](/content/gnews/31/README.md)
+### [澳大利亚将建造八艘核动力潜艇](/content/gnews/31/README.md)
+ ` Shuizhuyu`
+
+### [断网前奏傀儡之都](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳大利亚将从美国购买远程战斧导弹](/content/gnews/33/README.md)
  ` Charlie`
 
-### [美、英、澳之间的安全协议](/content/gnews/32/README.md)
+### [美、英、澳之间的安全协议](/content/gnews/34/README.md)
  ` Charlie`
 
-### [Facebook创建了一份特权人士名单](/content/gnews/33/README.md)
+### [Facebook创建了一份特权人士名单](/content/gnews/35/README.md)
  ` Charlie`
 
-### [SpaceX公司发射4名业余爱好者进行私人绕地球旅行](/content/gnews/34/README.md)
+### [SpaceX公司发射4名业余爱好者进行私人绕地球旅行](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [币圈新闻动态：印度国家银行已禁止加密货币交易所使用其平台收款](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：美英澳三国宣布建立新的科技和军事合作协议](/content/gnews/36/README.md)
+### [秘翻在线：爱尔兰调查TikTok侵犯儿童隐私和非法数据转移](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [币圈新闻动态：印度国家银行已禁止加密货币交易所使用其平台收款](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [9/13/2021 国际财经快讯：美元随国债收益率上扬；曼钦称不会在9月27日前通过预算法案](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [2021年9月15日 文贵先生盖特 8](/content/gnews/47/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（3）](/content/gnews/47/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年9月15日 文贵先生盖特 8](/content/gnews/48/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 7](/content/gnews/48/README.md)
+### [2021年9月15日 文贵先生盖特 7](/content/gnews/49/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 6](/content/gnews/49/README.md)
+### [2021年9月15日 文贵先生盖特 6](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [樱花灭共诗——珠扑地（新韵）](/content/gnews/50/README.md)
+### [樱花灭共诗——珠扑地（新韵）](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月15日 文贵先生盖特 5](/content/gnews/51/README.md)
+### [2021年9月15日 文贵先生盖特 5](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 4](/content/gnews/52/README.md)
+### [2021年9月15日 文贵先生盖特 4](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [日本民众对新版iPhone没有指纹认证功能感到失望](/content/gnews/53/README.md)
+### [日本民众对新版iPhone没有指纹认证功能感到失望](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [己所不欲勿施于人](/content/gnews/54/README.md)
+### [己所不欲勿施于人](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/55/README.md)
+### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [教育“双减”政策，减了谁的负担？](/content/gnews/56/README.md)
+### [教育“双减”政策，减了谁的负担？](/content/gnews/57/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共债券市场“南向通”将于9月24日上线](/content/gnews/57/README.md)
- ` 儒为`
 

@@ -2,21 +2,21 @@
 ---
 
 
-## GT Online: CCP Financial Institutions Panicking—Banks Suspend Personal Precious Metal Trading
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1536295/)
+## 秘翻在线：中共会公布泸州地震遇难人数的真实数据么？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536323/)
 
-Written by: WENJIE
+撰稿：Ping
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-182555.jpg)
+据环球时报报道，截至9月16日8时30分，泸县“9·16”地震已导致死亡3人，重伤3人，轻伤57人，转移6904人，县城紧急避难场所（含玉街）安置10281人。全县居民房屋倒塌737处、严重损坏72间、一般受损7290间。此外，还有3处交通受损。
 
-Translated by: billwilliam
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-004640.jpg)
-Image source: Sina Finance
+我们从有限的网络视频中可以看到建筑物倒塌，满地瓦砾，砖块。你相信死亡人数只有3人吗？在中共国普通民众似乎永远也不会知道任何灾难的确切遇难人数，因为每一次灾难背后都藏着政治腐败和官商肮脏的交易。
 
-According to Sina Finance, China Construction Bank issued an announcement on September 13 that starting from October 18, precious metal trading accounts and two-way trading services will be closed for customer accounts with no transaction and no position for 12 consecutive months. Commercial banks are tightening the individual trading of precious metals at full throttle.
+我们不妨看看日本类似震级的视频。2021年2月13日晚，福岛县东部海域发生7.3级地震，造成至少1人死亡、约190人受伤；3月20日晚，宫城县发生6.9级地震；5月1日，宫城县附近海域发生6.6级地震。人们没有看到震后的满目疮痍！似乎远远比不上中共国6级的地震强度。
 
-The article cites bank-announced restrictions on the personal trading service of precious metals, including but not limited to the suspension and closing of trading services, the repeal of entrusted brokerage relations, and lowering the size of positions. The reasoning is to protect the rights and interests of consumers and to prevent market risks. Citing the opinions of industry insiders, the article notes several benefits of suspending trading: they believe the banks’ restrictions on related trading will help prevent the risk of fluctuations in the precious metals market; the measure will also remind the investors of risks and implement management for investors; this will reduce potential disputes and the risks of regulatory accountability, and protect the banks’ market reputation.
+几乎中共国人们都知道房地产开发商与政府勾结，腐败贪污。致使开发商对建筑工程偷工减料，到处都有豆腐渣工程，质量根本不能达到减震防震的标准。住在这样的房子里，别说6级地震，即使三级地震都可能会有倒塌的房屋。基于这种状况，政府官员会如实报告真实的死亡数字吗？或许连真正的受灾人数都不敢报吧！如实上报，要如何解释中共国的房地产质量如此脆弱呢？这要牵连多少人呢？
 
-In my opinion, the banks are trying to deflect their own liability as brokerages in the pretext of customer protection. Last year’s disaster in crude oil futures has exposed the unprofessional trading in precious metals and bulk commodities by banks in Communist China. To avoid the high risks they face, the banks in Communist China simply suspend trading or pass on risks to customers, indicating Communist China’s banking industry’s fear of precious metal trading.
+所以中共地方官员会不遗余力的掩盖事实！作为中共国的普通民众，永远不可能知道任何灾难中的真实遇难人数。回顾一下河南郑州的大洪水，据郭文贵先生爆料死亡超过数十万，但是河南官方公布水灾死亡人数至少有302人，50人失踪，包括郑州死亡292人，失踪47人。
 
-[Reference link](https://finance.sina.com.cn/jjxw/2021-09-15/doc-iktzscyx4294682.shtml)
+生在中共国的普通老百姓，活得不如猪狗。生死都由共产党决定，财产由共产党控制，子女也是共产党的财产。如果你还想要堂堂正正地做人，做一个自由的，有尊严的人，那么就必须站起来推翻共产党的邪恶统治。新中国联邦是中国人唯一的希望！
 
-+1
+0
