@@ -13,20 +13,20 @@
 
 ---
 
-### [秘翻在线：教育部“承认”疫苗免疫屏障完败？](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [Switzerland Says It Does not Recognize Some WHO-Approved Vaccines](/content/gnews/2/README.md)
+### [Wikipedia banned editors from China to prevent the risk of the CCP’s infiltration and user information leaks](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [【文炬专栏】“德教”是帝道邪教](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
+### [阿肯色州州长：拜登的 COVID-19 疫苗强制令“适得其反”](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/4/README.md)
- ` wenwu`
+### [Shenzhen Qianhai Cooperation Zone Expands Seven-fold &#8211; CCP&#8217;s Ambition for Internationalizing RMB](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状](/content/gnews/5/README.md)
- ` 纽约香草山MOS01`
+### [巨額石油合同中天價回扣的驚人背後](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [巨额石油合同中天价回扣的惊人背后](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [2021年9月15日 文贵先生盖特 11](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -37,23 +37,23 @@
 ### [2021年9月15日 文贵先生盖特 9](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [秘翻在线：教育部“承认”疫苗免疫屏障完败？](/content/gnews/9/README.md)
+### [爱达荷州医生报告：接种人群癌症发病率增加了 20 倍](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：教育部“承认”疫苗免疫屏障完败？](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/10/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
  ` wenwu`
 
-### [全球主义者让人类主动用“疫苗”武器消灭自己](/content/gnews/11/README.md)
+### [阿肯色州州长：拜登的 COVID-19 疫苗强制令“适得其反”](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/13/README.md)
+ ` wenwu`
+
+### [重磅：印度北方邦证实伊维菌素的有效性](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [重磅：印度北方邦证实伊维菌素的有效性](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美英澳组印太安全联盟 中共外交部斥“不负责任、搞小圈子”](/content/gnews/13/README.md)
- ` G&#124;News TAIWAN`
-
-### [每日快报:拜登否认提议美中峰会遭习近平拒绝](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
@@ -85,23 +85,23 @@
 ### [视频|电动平衡车产业鱼龙混杂、标准参差](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/25/README.md)
+### [秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗](/content/gnews/26/README.md)
+### [秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共正在快速发展核力量和先进武器 美国必须严肃对待](/content/gnews/27/README.md)
+### [秘翻在线：中共正在快速发展核力量和先进武器 美国必须严肃对待](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [城管，中国特色社会主义下的怪胎](/content/gnews/28/README.md)
+### [城管，中国特色社会主义下的怪胎](/content/gnews/29/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [彼得•纳瓦罗先生担任GETTR形象大使和新中国联邦国家代表大使](/content/gnews/29/README.md)
+### [彼得•纳瓦罗先生担任GETTR形象大使和新中国联邦国家代表大使](/content/gnews/30/README.md)
  ` GTV新闻访谈`
-
-### [秘翻在线：欧盟调查TikTok收集未成年用户数据](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
@@ -112,20 +112,20 @@
 ### [秘翻在线 :加州大学教授以人体自然免疫抗体为由，拒绝接种疫苗并起诉学校](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国防预算破纪录后 台湾再通过千亿军备预算](/content/gnews/34/README.md)
+### [秘翻在线：欧盟调查TikTok收集未成年用户数据](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国防预算破纪录后 台湾再通过千亿军备预算](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [支联会应警方要求删网站等 内有大量六四屠城相片](/content/gnews/35/README.md)
+### [支联会应警方要求删网站等 内有大量六四屠城相片](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲大学要求撤回曾帮助中国监视维吾尔人的研究](/content/gnews/36/README.md)
+### [澳洲大学要求撤回曾帮助中国监视维吾尔人的研究](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：斯洛文尼亚总理致函欧盟27国领导人力挺立陶宛与台湾对抗中共](/content/gnews/37/README.md)
+### [DC大中华时事：斯洛文尼亚总理致函欧盟27国领导人力挺立陶宛与台湾对抗中共](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [【文炬专栏】“德教”是帝道邪教](/content/gnews/47/README.md)
+### [巨额石油合同中天价回扣的惊人背后](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [如何看待郭文贵先生开出的百亿赌局](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【文炬专栏】“德教”是帝道邪教](/content/gnews/49/README.md)
  ` 温哥华扬帆农场`
 
-### [9/16/21 香港快讯 支联会宣布应警方要求移除电子信息平台 成立新专页](/content/gnews/48/README.md)
+### [全球主义者让人类主动用“疫苗”武器消灭自己](/content/gnews/50/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [9/16/21 香港快讯 支联会宣布应警方要求移除电子信息平台 成立新专页](/content/gnews/51/README.md)
  ` 英喜-粵語組`
 
-### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/49/README.md)
+### [CCP百年百罪 第十六集（65 &#8211; 69罪）](/content/gnews/52/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [纽约法官阻止了针对医疗工作者的强制接种令](/content/gnews/50/README.md)
+### [纽约法官阻止了针对医疗工作者的强制接种令](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [病理学家通过尸检告诉你，接种疫苗后身体里发生了什么?](/content/gnews/51/README.md)
+### [病理学家通过尸检告诉你，接种疫苗后身体里发生了什么?](/content/gnews/54/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [灭活版科兴站稳海外 转推mRNA研发销售](/content/gnews/52/README.md)
+### [灭活版科兴站稳海外 转推mRNA研发销售](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [德骗云书院就是低配版缺德社](/content/gnews/53/README.md)
+### [德骗云书院就是低配版缺德社](/content/gnews/56/README.md)
  ` 波士顿五月花农场`
 
-### [美国国务卿与立陶宛举行外交会谈 国会山表态共同对抗中共胁迫](/content/gnews/54/README.md)
+### [美国国务卿与立陶宛举行外交会谈 国会山表态共同对抗中共胁迫](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [视频| 弗罗里达州长宣布强制接种违法](/content/gnews/55/README.md)
- ` MOSREC`
-
-### [视频| 德国首席病理学家对新冠病毒疫苗的致命伤害发出警告](/content/gnews/56/README.md)
- ` MOSREC`
-
-### [视频| 大学增加国安法课程, 香港新闻业前路艰难](/content/gnews/57/README.md)
- ` MOSREC`
 

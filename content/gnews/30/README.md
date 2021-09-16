@@ -2,29 +2,37 @@
 ---
 
 
-## 秘翻在线：欧盟调查TikTok收集未成年用户数据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536523/)
+## 彼得•纳瓦罗先生担任GETTR形象大使和新中国联邦国家代表大使
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536604/)
 
-#### 文章撰写：寶寶
+栏目记者/责任编辑：七哩香
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-185.png)
+9月15日，郭文贵先生在GTV直播和GETTR平台宣布：让共产党最恨最害怕的、川普政府最重要的内阁官员，彼得•纳瓦罗先生，成为盖特的形象大使，和新中国联邦的国家代表大使！郭先生同时表示，这是新中国联邦人的荣幸，我们要永远地珍惜像他和班农先生这样的，永远的兄弟和永远的朋友，我们还是最紧密的战友，将一起战斗，消灭邪恶的中国共产党！
 
-#### 校对发布：文柯Miles
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-21.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Three-girls-wasadtching-TikTok-videos-640x480-1.jpg)
+彼得•纳瓦罗先生是哈佛大学经济学博士，美国经济学家，前任美国总统川普助理，白宫贸易与制造业政策办公室主任，同时是《国防生产法》政策协调员。他也是加利福尼亚大学经济学和公共政策退休教授。他出版了数十部书籍，包括《致命中国》，该书深刻影响了美国政府的对华政策。纳瓦罗先生的中美关系理论有别于主流经济学派，获得了众多支持者。经济学家斯蒂芬·摩尔称“他是多年前首先敲响中共国警钟的人之一 ”，另一名经济学家称他是“过去几十年中最多才多艺、最有成效的美国经济学家之一”。纳瓦罗先生除了指出中共的经济、意识形态和军事威胁外，在新冠病毒和疫情、香港等问题上强烈批评中共，由于其对中共的强硬立场，今年1月被中共列入制裁名单。
 
-据布赖特巴特新闻网（Breitbart News）报道，爱尔兰数据保护委员会已对中共的视频平台TikTok启动了两项调查，主要针对该平台收集未成年人个人数据和向中共国传输用户数据。该机构是许多科技巨头在欧盟的主要监管机构。
+纳瓦罗先生对正义的信仰，和卓越的洞察力，使他成为最早支持爆料革命的美国人之一。他已经入驻盖特，并把盖特称为推特杀手，GETTR上线仅两个多月，他的GETTR账号已拥有近36万粉丝，而推特账户不到18万。
 
-许多公司的区域总部设在爱尔兰，因此爱尔兰数据保护委员会对欧盟内的许多世界顶级科技巨头进行监管。 如果发现公司违反欧盟法规，数据保护委员会可以处以最高为公司全球收入4%的罚款。
+新中国联邦人，非常感恩彼得•纳瓦罗先生，他始终坚定地与爆料革命和新中国联邦站在一起。正如郭先生所说，“真正的战友，有共同信仰的人，无论在任何情况下，都会共同地战斗”，他也将继续跟我们一起，消灭中共，建设新中国联邦！
 
-8月，TikTok宣布将对其青少年用户实施更严格的隐私控制，以解决有关其未能保护儿童免受隐晦广告和不当内容侵害的指控。 《华尔街日报》最近的一份报告，概述了TikTok的算法如何继续向未成年用户宣传色情内容和使用毒品。
+（本文仅代表作者观点）
 
-爱尔兰数据保护委员会发起的第一项调查，涉及“针对18岁以下用户的平台设置和个人数据处理，以及针对13岁以下用户的年龄验证措施”。
+参考链接：[https://gettr.com/post/pb5koo5c23](https://gettr.com/post/pb5koo5c23)
+ [文贵先生，纳瓦罗先生，和班农先生9月15日大直播](https://gtv.org/video/id=6142a526751e4f2b0e53c474)
+ [彼得·納瓦羅](https://zh.wikipedia.org/wiki/彼得·納瓦羅)
 
-第二项调查将重点关注TikTok向中共国传输用户个人数据，以及该公司是否遵守欧盟数据法。 TikTok发言人表示，该公司制定了广泛的政策和控制措施，以防止任何滥用用户数据的行为，并使用欧盟批准的数据传输方式。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-该发言人表示：“TikTok社区的的隐私和安全，尤其是最年轻用户，是我们的首要任务。”
+终审：暗黑
+校对/发稿：谐趣园
 
-参考文章：[**Ireland’s Data Protection Commission, which is the lead EU regulator for many tech giants, has reportedly launched two investigations into the Chinese-owned video platform TikTok. The two investigations center on the platform’s collection of the personal data of minors and the transfer of user data to China.**](https://www.breitbart.com/tech/2021/09/15/irish-data-protection-regulator-launches-probe-of-communist-chinas-tiktok-collecting-info-of-children/)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

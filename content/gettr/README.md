@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 5:37 PM (UTC)`
+
+9月16号：爆料革命从2017年开始就已经警告了，所有的同胞……共产党所有经济权力利益范围内的所有的产业，都将因为中国的房地产和银行和金融体系……的崩塌，所有中国人的财富将90%的缩水，特殊领域，将是负-300%的负债！没有一个人能拯救中共的经济，中国的经济倒了……中共的政治必然是房倒屋塌．一切结束。
+![img](https://media.gettr.com/group34/getter/2021/09/16/17/24634c0e-c4e9-c55f-0ae0-4146a6e4e7c3/efeec002150caac0ddc8f9da63f62e24.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ilpresidento 9/11/2021 9:46 PM (UTC)`
@@ -289,13 +296,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9月13号：这些人都是很可怜🥺……
 ![img](https://media.gettr.com/group8/getter/2021/09/13/06/78dc8767-c35d-00ae-c7e7-51f5ef33c05b/f9cf86739fab394dac3ba9582f9ae77b.jpg)
-
----
-
-`@miles 9/13/2021 6:07 AM (UTC)`
-
-9/12/2021 Miles Guo: Exposing the CCP's hooligan-like attitudes towards foreign companies in the Communist China! We are the earliest in this world who can tell you in advance that numerous foreign companies such as Samsung would move out of the Communist China! Toyota has not increased any investment, introduced a single new technology, or signed a single new contract in the Communist China since 2016.<br/><br/>9/12/2021 文贵直播: 揭露中共对待外资企业的流氓态度！全世界我们最早提前告诉大家三星等大量外资企业会撤离中共国！2016年以后丰田再未向中共国增加投资、技术或签新合同！<br/>
-![img](https://media.gettr.com/group18/getter/2021/09/13/06/fdfbedef-f273-1610-2c5e-2e6a44d48638/out.jpg)
 
 ---
 

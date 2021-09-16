@@ -2,37 +2,52 @@
 ---
 
 
-## Switzerland Says It Does not Recognize Some WHO-Approved Vaccines
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1536750/)
+## 阿肯色州州长：拜登的 COVID-19 疫苗强制令“适得其反”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1536931/)
 
-![This image has an empty alt attribute; its file name is Gnews-Logo-39.png](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-39.png)
+**评论：**
 
-Translated by: MOS Media Team – CloudSky
+***全国州长协会主席，阿肯色州长反对拜登的疫苗强制令，希望更多勇敢的美国人尽早站出来，在一切还来得及之前！***
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2197.png)
+据《大纪元》记者Isabel van Brugen 2021年9月13日报道：
 
+阿肯色州州长阿萨·哈钦森（Asa Hutchinson）于 2020 年 7 月 20 日在阿肯色州小石城的州议会大厦。（图片：斯塔西·范达格里夫/阿肯色州民主党公报 via 美联社）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-188.png)
-RFI reported on September 15 that the Swiss Federal Public Health Bureau finally issued a statement saying that it has expanded the mandatory use of the New Crown vaccine certificate since September 13。Switzerland only recognizes vaccines approved by the European Union, but does not recognize British AstraZeneca, Russian satellite 5 and CCP’s vaccine. This will result in thousands of foreign residents, tourists and Swiss nationals who have been vaccinated the not accepted vaccines will have to stay outdoors and cannot enter indoor public spaces.
+阿肯色州州长阿萨·哈钦森（Asa Hutchinson） 9 月 12 日表示，他相信乔·拜登总统上周宣布的 COVID-19疫苗强制令“使一些人可能对接种疫苗产生的抵触情绪更加强烈”。
 
-Affected Swiss residents say the country is building a hierarchical civil society. If people want to participate in public life without a recognized vaccination certificate, they have to be tested at their own expense. The catering and tourism industry also expressed strong opposition to the current plan. The plan means that from September 13, overseas tourists can only eat in their guest rooms or separate rooms, or they have to be tested endlessly. Tourism officials warned that this would seriously affect Switzerland’s tourism industry.
+拜登于 9 月 9 日发布了几项行政命令，要求所有联邦雇员和大多数医护人员接种 COVID-19 疫苗。白宫的一项计划还表示，拜登将指示职业安全与健康管理局强制要求拥有 100 名或更多员工的企业强制接种 COVID-19 疫苗，要求每周进行 COVID-19 测试，否则将被罚款。
 
-The vaccine is poisonous, and Switzerland government’s compulsory practice of ignoring public opinion is even more poisonous, which leads to people’s separation from each other. The officials must face up to the truth about viruses and vaccines, correct wrong policies as soon as possible, and provide people with a safe living environment.
+共和党人哈钦森告诉 NBC 的“与媒体见面”，他认为总统的疫苗接种要求将损害全国范围内为美国人接种疫苗的努力，而不是支持他们。他说，联邦要求“适得其反”。
 
-Source: [https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210915-%E7%91%9E%E5%A3%AB%E7%A7%B0%E4%B8%8D%E8%AE%A4%E5%8F%AF%E6%89%80%E6%9C%89%E4%B8%96%E5%8D%AB%E6%89%B9%E5%87%86%E7%9A%84%E7%96%AB%E8%8B%97](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210915-%E7%91%9E%E5%A3%AB%E7%A7%B0%E4%B8%8D%E8%AE%A4%E5%8F%AF%E6%89%80%E6%9C%89%E4%B8%96%E5%8D%AB%E6%89%B9%E5%87%86%E7%9A%84%E7%96%AB%E8%8B%97)
+“我们谈到了这样一个事实，即我们历来在学校有疫苗接种要求，”州长说，“但那些总是来自州一级，从未在国家一级提出过。”
 
+“因此，这是对联邦授权的前所未有的假设，真正扰乱和分裂了国家。它划分了我们在联邦政府和各州之间的伙伴关系。当我们都应该一起努力增加疫苗接种率时，它会增加疫苗接种方面的分歧。”
 
+该任务预计将影响约 8000 万私营部门员工。
 
-Proofread by: Mr. Z
+哈钦森 9 月 12 日表示，他认为为员工强制接种疫苗的决定应由各个企业决定。
 
-Posted by: Mr. Z
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-149.png)
-**For more information, follow us **
+“我不知道有哪个州的州长说我们要强制企业接种疫苗，”他说，“我支持企业能够要求接种疫苗，但这是他们自己对工作场所的独立选择。”
 
-[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
+COVID-19疫苗已经被几个联邦机构强制要求，包括退伍军人事务部和五角大楼。
 
+在拜登宣布他的疫苗授权一天后，至少有 19 位州长和两名司法部长（包括哈钦森）发表了不同意政府举措的声明，其中一些人发誓要反抗。
 
+全国州长协会主席哈钦森在一份声明中说：“联邦政府对私营企业的强制要求并不是正确解决大流行的方法。”
+
+“我一直在企业方面要求员工自由接种疫苗，我反对政府说企业不能行使这种自由。同样的原则应该保护私营部门免受政府过度干预，要求他们为所有员工接种疫苗。”
+
+大纪元时报已联系白宫征求意见。
+
+文章来源：[https://www.theepochtimes.com/arkansas-gov-bidens-mandate-for-covid-19-vaccine-counterproductive-fuels-division\_3994260.html](https://www.theepochtimes.com/arkansas-gov-bidens-mandate-for-covid-19-vaccine-counterproductive-fuels-division_3994260.html)
+
+翻译：洛杉矶盘古农场 — Raul
+校对：洛杉矶盘古农场 — Mike Li
+评论：洛杉矶盘古农场 — Raul
+编辑：洛杉矶盘古农场 — Wendy
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

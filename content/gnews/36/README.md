@@ -2,24 +2,18 @@
 ---
 
 
-## 澳洲大学要求撤回曾帮助中国监视维吾尔人的研究
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536414/)
+## 支联会应警方要求删网站等 内有大量六四屠城相片
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536537/)
 
 2021年09月16日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-89015108-640x431-1-1.jpg)ww’lw’l’tw’l’t’p网络图片
-澳大利亚科廷大学周三要求撤销2018年的一项研究，该研究部分由中共政府资助，由科廷大学的一名前教员进行，该研究帮助中共完善了其用来监视在新疆受压迫的维吾尔穆斯林人的面部识别软件。
 
-如路透社所总结，这项研究的关键问题是，当维族大学生被加入中国大连民族大学数百名学生的“面部图像数据集”时，他们并没有对此表示同意。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-89015108-640x431-3.jpg)网络图片
 
-藏族和朝鲜族学生也被包括在中共国家资助的研究中，该研究认为面部识别软件“在边境控制、海关检查和公共安全方面具有巨大的应用潜力。”
+**编辑摘要：**据立场新闻9月16日报道，支联会早前收到警方信件，引用国安法第 43 条《实施细则》，要求移除指定的电子平台讯息。支联会指，将在今晚（16日） 移除支联会网站、Facebook 专页、YouTube 频道、Twitter 以及 IG 等所有内容，同时由即日起，透过新 Facebook 专页发布讯息。
 
-自2018年以来，这种潜力的大部分已经实现。2020年12月，中共国电子巨头阿里巴巴承认其参与了开发可以利用脸部图像对维吾尔人进行种族归档的技术。
+翻查支联会的网站、YouTube频道，内有大量六四相关资料，包括 1989 年中国民主运动、屠城相片、受难者家属亲身口述证辞、历年香港烛光晚会影片等，记录六四历史。
 
-另一家主要的中共国公司，华为，开发了一个“维吾尔族报警”系统，只要中共国无数的安全摄像头发现了一个维吾尔族人，就可以通知警方。华为还声称该产品仅处于“测试”阶段，而外部研究人员称至少有十几个中国警察部门已经在使用该系统。
-
-简评：中共利用西方制度的漏洞窃取西方的技术，用于服务于自己的邪恶目的已非一朝一夕，西方有关机构对此则一直保持缄默。在中共借助病毒和疫苗大打超限战的局面下，西方必须正面中共在科研领域“蓝金黄”的巨大威胁。
-
-原文链接： [Australian University Demands Retraction of Study That Helped China Spy on Uyghurs](https://www.breitbart.com/national-security/2021/09/15/australian-university-demands-retraction-of-study-that-helped-china-spy-on-uyghurs/)
+新闻参考链接：[https://www.thestandnews.com/politics/a-支聯會應警方要求刪網站youtube-等-大量六四屠城相片難屬口述證辭影片料被刪](https://www.thestandnews.com/politics/a-支聯會應警方要求刪網站youtube-等-大量六四屠城相片難屬口述證辭影片料被刪)
 
 * * *
 
