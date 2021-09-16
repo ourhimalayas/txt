@@ -13,20 +13,20 @@
 
 ---
 
-### [【郭先生蓋特摘要】2021.7.30 CCP把病毒甩鍋給美國](/content/gnews/1/README.md)
+### [世界非常規戰爭中新中國聯邦的策略和目標](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Australia Curtin University demands retraction of unethical study on Uyghur facial recognition](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [【郭先生直播摘要】2021.8.1世界各國的政局未來的發展走向, 共產獨裁必然滅亡](/content/gnews/3/README.md)
+### [爆料革命战友的信任 家仇国恨是灭共最大动力](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Miles Perspective: Mr. Peter Navarro Becomes GETTR Ambassador And Representative Of The New Federal State Of China](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
+### [【 #G叻睇真D 】粵語新聞電視臺: 反對強製疫苗，亞利桑那州將拜登告上法庭！](/content/gnews/3/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [Le Capitole affirme une lutte commune contre la coercition communiste chinoise](/content/gnews/5/README.md)
- ` MOSglobal`
+### [CCP在香港對爆料革命的滲透](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【郭先生直播摘要】2021.8.1病毒這場戰鬥西方政客的無能給了共產黨更大的野心](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [2021年9月16日 文贵先生盖特 9](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`

@@ -2,30 +2,19 @@
 ---
 
 
-## Australia Curtin University demands retraction of unethical study on Uyghur facial recognition
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1537257/)
+## 爆料革命战友的信任 家仇国恨是灭共最大动力
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hant/1537289/)
 
-Translated by: MOS Education Team – Maverick
-![This image has an empty alt attribute; its file name is image-146.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-146.png)
-Curtin University has urged publisher Wiley to retract a research paper written by Wanquan Liu, a former Associate Professor of the university. His research, published in 2018, helped the CCP better identify Uyghurs using facial recognition technology. Curtin University found he breached several ethical codes, including a failure to obtain informed consent and approval.
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Facial.jpg)Facial Recognition
-Facial Recognition Technology is widely utilized in Communist China, and it has penetrated the daily life of ordinary people. People’s lives have become completely “transparent” because they do not have any privacy. The CCP monitors every move of everyone through facial recognition and surveillance devices everywhere at all times. Although the CCP issued a draft of the Personal Information Protection Act, it is a total lie. Instead, they want to turn China into a digital totalitarian state as described in the novel *1984* –– the big brother is watching you at all times and knows everything.
+視頻剪輯：北方信使 | 聽寫：雨山溪橋客 | 翻譯：Arthur | 校對：絨絨兔 | 字幕+視頻製作：小騰騰說
 
-Liu’s paper, which the Curtin University demands Wiley to withdraw, was only a tip of the iceberg involving the CCP’s infringement of the human right of the Uyghurs and other ethnic minorities in Xinjiang. The CCP is well-known for imprisoning, surveillance, and mass-murdering the Uyghurs in Xinjiang in the name of fighting terrorism. They have committed the crime of genocide against humanity. Facial recognition technology is only a tool they use to conduct their crime.
 
-Source: [https://www.voachinese.com/a/Australian-university-says-Chinese-Uyghur-study-breached-ethics-code-20210915/6229666.html](https://www.voachinese.com/a/Australian-university-says-Chinese-Uyghur-study-breached-ethics-code-20210915/6229666.html)
 
-Proofread and Edited by: canyonsky
-Posted by: canyonsky
-![This image has an empty alt attribute; its file name is image-90.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-90.png)![This image has an empty alt attribute; its file name is image-146.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-146.png)
-**For More information, follow us on **
+郭先生
 
-[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+你看我们刚刚的啊一个战友啊，捐给，这次捐出的共15万的三张银行记录，已经将截图发给您了。依然是按上述的分配，法治基金5万、法治社会10万。本来这3 笔款应该上学期到账，但由于法制社会的此前并未通过信用卡收过大额捐款，所以收款行耽搁了几天。知道您的时间宝贵不愿多打扰，再次感谢。这位战友跟我通话次数最少，发信息最少，捐款排在前100名。没给我提过一次要求。这刚又捐15法制基金、法制社会。这样的战友在我心中重如泰山。就是这样的战友让我甘心穿上蓝领为你们打工。
 
-[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+我也是无数次的问自己我值吗？我为什么要这么做？我凭什么怎么做？很大的原因家仇国恨，几十年的经历。清风看守所，几十个人在我面前的倒下。我的弟弟，我的家人，我的经历我的朋友，还有今天拥有这样的战友。像这样的战友他从来不可能怀疑爆料革命，新中国联邦。 从第1天到现在，发信息没超过过三分之一行过。这是刚发来的。咱们一个战友，是咱们DC的战友，是我们阿丙农场的战友。所以说这样的战友，在没有农场，从2017年到现在从未犹豫过，这样的战友，你比如说我们某个战友，例如，我们有像美国，也是华盛顿里面的战友，把房子卖了投了G系列，让我感动到什么程度，就这种压力和这种信任和这个钱没有任何关系。是他的信任，是他对我的这种信任是最大的动力。
 
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

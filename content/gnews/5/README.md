@@ -2,52 +2,21 @@
 ---
 
 
-## Le Capitole affirme une lutte commune contre la coercition communiste chinoise
-` MOSglobal` [轉載自GNews](https://gnews.org/1537259/)
+## 【郭先生直播摘要】2021.8.1病毒這場戰鬥西方政客的無能給了共產黨更大的野心
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hant/1537286/)
 
-Traducteur : MOS Groupe de Média – Gtv abeilles
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
+視頻剪輯：北方信使 聽寫：雨山溪橋客 翻譯：Arthur 校對：煙波浩渺
+字幕＋視頻製作：小騰騰說
 
 
 
+郭先生
 
-Le ministre lituanien des affaires étrangères, M., Landsbergis conduit actuellement une délégation à Washington et s’est entretenu le mercredi 14 septembre avec le secrétaire d’État américain, M. Blinken.
+就在這次一病毒這場戰鬥當中，由於美國和西方的猶豫和被藍金黃的嚴重和西方政客的無能
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/988-1.jpeg)
+給了共產黨更大的野心，繼續放毒。由於西方沒有勇氣面對尋找病毒真相，就是推遲了找到解藥的機會和時間和時機，同時助長了東京這樣的瘋狂的行動。就為了一個安倍能回來，為了日本的對水的經濟能繼續強大，搞了一場集體大屠殺：東京奧運會。為了向共產黨的經濟和所謂自己各國的政治利益妥協，繼續往自己的金融市場對水。在美國的金融市場還這麽幹，包括美聯儲，實行了綏靖政策和二戰時期的張伯倫和希特勒簽署的和解協議一模一樣。同時我們也可以看到，世界走在了最危險的邊緣。熱戰、經濟戰、科技戰。
 
-Au cours de la réunion, M. Blinken a souligné que la Lituanie et les États-Unis sont des partenaires solides au sein de l’OTAN et soutiennent la Lituanie dans sa lutte contre la répression économique du Parti communiste chinois, et que les deux parties continueront à travailler ensemble dans les domaines de la défense et de la sécurité.
-
-Un certain nombre de membres du Congrès américain, des deux côtés de l’allée, ont également exprimé leur soutien aux efforts de la Lituanie pour défendre sa souveraineté et reconnaître Taiwan, malgré la menace communiste chinoise, après avoir rencontré M. Lansbergis et sa délégation.
-
-Dans une interview accordée aux médias au Capitole, le président de la commission des affaires étrangères du Sénat, M. Menendez, a déclaré : “Nous soutenons fermement les pays qui ont une souveraineté absolue et reconnaissent Taïwan sous quelque forme que ce soit. Nous disons très clairement au peuple lituanien que nous le soutenons.”
-
-**Lien d’article original de Gnews :**
-
-[美国国务卿与立陶宛举行外交会谈 国会山表态共同对抗中共胁迫 – GNEWS](https://gnews.org/zh-hans/1536536/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9-Sep.jpg)
-
-*Posté par: Xiaolunn*
-
-
-
-**Pour plus d’information, suivez-nous:**
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-**[Bienvenue sur New York MOS Himalaya | Discorde](https://discord.gg/ChqXAHd)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+最終是一個意識形態的戰爭和過去的二戰，包括法國大革命之前，大家看到的今天的俄羅斯、中共、北朝鮮、伊朗，這幾個國家形成的完全和西方對抗的這種製度和當年的二戰時候一模一樣。文明國家，工業先進國家和獨裁封建國家一個對抗。海洋國家和大陸國家的對抗。你也可以看到當時的金融、經濟，走向全球化以後，從過去的易貨到貨幣交易到航海文明發展的時候，造成的瘋狂的經濟的通脹，和通縮並存的時候，大量的失業和大量的先進的科技職業的需要，導致的社會矛盾，最後變成了宗教沖突，最後是製度大沖突。不僅如此，我們也看到了人心在物質面前的淪喪，給社會帶來的各種思考，今天一切都具備了，一切都具備了。
 
 
 
