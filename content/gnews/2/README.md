@@ -2,53 +2,31 @@
 ---
 
 
-## 瑞士称不认可部分世卫批准的疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1535935/)
+## 澳大利亚采购第一艘核潜艇以应对中共威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535958/)
 
-栏目记者/责任编辑：AsG諾雅
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/b3a869168a252da5c47a800b556e47b4.jpg)图片来源：News.com.au
+**整理报道：**翼族
 
+作为澳美英军事联盟(AUKUS)三方协议的一部分，澳大利亚将向美国政府购买澳大利亚的第一批核动力潜艇，以对抗中共在印太地区日益增长的影响力。
 
+澳大利亚东部标准时间早上7点宣布的AUKUS军事联盟，被莫里森描述为“永远的伙伴关系”，这项雄心勃勃的计划被认为是澳大利亚几十年来最重要的战略举措。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新的军事联盟将导致澳大利亚特恩布尔政府2016年与法国潜艇制造商海军集团达成的一项有争议的900亿美元的交易搁浅。尽管莫里森总理坚称“法国仍然是太平洋地区非常重要的合作伙伴”，但仍将对澳法两国关系造成相当大的影响。
 
+三个国家承诺在网络防御、人工智能、导弹能力和供应链方面开展合作。一些前政界人士认为，澳大利亚需要更加独立于美国，避免激怒其最大的贸易伙伴中共国。但AUKUS的伙伴关系，在与中共国的新“冷战”中，澳大利亚正在与美国一路同行。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考链接：**[Australia-US nuclear submarine deal to counter China](https://www.smh.com.au/national/australia-news-live-australia-us-and-uk-to-unveil-new-defence-pact-nsw-health-staff-yet-to-get-covid-vaccines-victorian-lockdown-could-ease-20210915-p58rw3.html)
 
+*编辑/发表：翼族*
 
-法广9月15日报道，瑞士联邦公共卫生局终于发表声明称，从9月13日起扩大了新冠疫苗证书的强制使用范围，但是因为该国只认可欧盟区承认的疫苗，而不承认英国阿斯利康、俄罗斯卫星五号或中共国疫苗，导致数千名已接种这些疫苗的外籍居民、游客以及瑞士侨民将必须待在室外，不能进入室内公共空间。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-71.jpg)图片来源： REUTERS
-受影响的瑞士居民称，该国正在建立一个等级公民社会。如果没有被认可的疫苗接种证明又想参与公共生活，人们必须自费进行检测。而餐饮及旅游业也对目前的计划表示强烈反对。旅游从业人员警告称，此举代表海外游客从9月13日起，要么只能在客房内或者单独被隔开的房间内用餐，要么就得没完没了地进行检测，这将严重影响瑞士的旅游业。
-
-疫苗有毒，政府无视民意的强制做法更是导致人们相互割裂的剧毒，奉劝官员们正视病毒和疫苗真相，及早改正错误政策，还人们一个安全的生活环境。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1.1-7.jpg)图片来源： REUTERS
-信息链接：
-[瑞士称不认可所有世卫批准的疫苗](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210915-%E7%91%9E%E5%A3%AB%E7%A7%B0%E4%B8%8D%E8%AE%A4%E5%8F%AF%E6%89%80%E6%9C%89%E4%B8%96%E5%8D%AB%E6%89%B9%E5%87%86%E7%9A%84%E7%96%AB%E8%8B%97)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

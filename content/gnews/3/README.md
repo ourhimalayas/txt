@@ -2,36 +2,43 @@
 ---
 
 
-## 银河快讯：日本央行对日本公司持乐观态度；日本陆上自卫队开始全国性演习
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1535666/)
+## 新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535957/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-50.png)[图片来源](https://news.ifeng.com/)
-**1.****日本央行对日本公司持乐观态度**
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/https___d1e00ek4ebabms.cloudfront.net_production_eb2be356-c50b-4069-af99-60b43ed3bb6a.jpg)
+图片来源：ft.com；Getty Images
 
-[据路透社  9月15日报道，日本央行行长黑田东彦周三表示，尽管东南亚工厂停工导致供应链中断，产量受到打击，但强劲的利润将有助于企业加大资本支出。黑田在一个在线研讨会上说：“由于在疫苗接种方面取得了进一步的进展，随着中共病毒影响的减弱，日本的经济将会复苏，”他补充说，随着消费从大流行病的伤痕中恢复，经济的良性循环将会加强。虽然日本的通货膨胀压力比美国和欧洲要弱，但公司并没有像日本在20世纪90年代末的20年通货紧缩时期那样广泛采用降价手段来吸引需求。尽管如此，2023年的消费者通胀率仍将远低于2%，约为“1%或略高于1%”，部分原因是削减手机费用等临时因素。他补充说，“如果有必要，我们将进一步放宽货币政策，比如降息。”](https://cn.reuters.com/article/japan-economy-boj/bojs-kuroda-upbeat-on-japan-inc-despite-supply-disruptions-idUSKBN2GB1CB)
+**【雅典娜快讯】，紧贴时事脉搏**
 
-**2.****日本陆上自卫队开始全国性演习**
+**根据最新数据显示，在处于封锁状态的新西兰，打“疫苗”的死亡人数比感染中共病毒（本身）的死亡人数多。**
 
-[据共同社  9月16日报道，日本陆上自卫队周三开始了约30年来首次涉及所有部队的全国性演习，试图提高威慑力并加强其能力。GDSF的演习，包括运输必要的物资和测试通信系统，将在全国范围内进行，直到11月底，目的是加强保卫偏远岛屿的能力。陆上自卫队上次进行如此规模的演习是在冷战结束后的1993年。大约10万名人员、2万辆汽车和120架飞机将参加演习，日本的海上自卫队和航空自卫队以及美军的一艘登陆舰也将参加。](https://english.kyodonews.net/news/2021/09/fb0d69ab3fff-japan-ground-troops-begin-nationwide-drills-for-1st-time-in-30-years.html)
+**新西兰的跟踪系统显示，有40人死于（辉瑞）中共病毒疫苗，而27人死于中共病毒本身。**
 
-**3.****朝鲜的导弹对日本构成的威胁越来越大**
+记者以利亚·沙弗（Elijah Schaffer）在推特上分享了这些数字。最近对“反疫苗”统计和评论的打击可能迫使沙弗使用“可能相关”和“理论上”这样的措辞。许多没有使用这类措辞而发表类似言论的人，已被大型科技公司网站迅速禁言。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-72.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2-51.jpg)
+图片来源：[推特](https://twitter.com/ElijahSchaffer/status/1438216982608896006?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438216982608896006%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Ffreedomfirstnetwork.com%2F2021%2F09%2Fin-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
 
-[据产经新闻 9月15日报道，日本政府被迫对朝鲜15日发射的弹道导弹作出回应。 起初，政府宣布这两枚弹道导弹落在日本专属经济区（EEZ）之外，但后来发现这两枚导弹是一种“新型”导弹，弹道不规则，防卫大臣岸信夫修改了他的声明，说：据推测，导弹落在日本的专属经济区内。这是两年以来，朝鲜弹道导弹首次落入日本的专属经济区内。 岸先生表示，这枚导弹的射程约为750公里，最大高度约为50公里，并强调：“我们将与美国、韩国和其他有关国家密切合作，坚决保护国民的生命与和平生活方式。”](https://news.yahoo.co.jp/articles/f77a273dc2f67a801a792bf272b608b9f07a8331)
+与其他规模相似的国家相比，死于疫苗和中共病毒本身的两个数字都相对较低。但问题是，**大多数国家的中共病毒的死亡人数总是被夸大，而疫苗的死亡人数总是被低估。目前尚不清楚新西兰是否在夸大其中共病毒死亡人数，因为根本没有太多数据可供研究，但可以肯定的是，打疫苗的死亡人数要高得多。**
 
-**4.****日本和东盟将加强对疫情后恢复的努力**
+首先，疫苗不良反应普遍被低估。医生会为他们的病人寻找其他死亡原因，因为他们中的绝大多数人都在努力地推动疫苗。
 
-[据共同社9月16日报道，日本和东南亚国家联盟周三同意，在中共病毒疫情影响工业产出后，加强其经济复苏的努力。双方的经济部长在视频会议后发布的一份联合声明中说，双方将扩大去年通过的一项计划，包括加强供应链的复原力，保证贸易程序的顺畅和促进数字技术。根据声明，2020年日本与东盟10个成员国之间的贸易总额为2040亿美元，比前一年下降了9.7%，而日本在该集团的直接投资下降了64.4%，至85亿美元。会议期间，部长们还同意确保《区域全面经济伙伴关系》自由贸易协定在1月初生效。](https://english.kyodonews.net/news/2021/09/6faaaf083efd-japan-asean-to-enhance-efforts-toward-post-pandemic-recovery.html)
+其次，大多数悲伤的家庭不会向数据库报告死亡情况。据估计，在实际死亡人数中，1%-10%的人都归因于疫苗。
 
-**5.****日本在同一批次的更多辉瑞疫苗中发现异物**
+换句话说，即使新西兰报告的某些死亡人数被证明是错误的或不准确的，但可以肯定的是，更多的人死于疫苗，但从未被报告。
 
-[据共同社 9月16日，地方政府周三表示，在东京及周边地区的更多未使用的辉瑞疫苗的小瓶中发现了白色物质，所有这些小瓶都来自前一天报告的同一批次。这些含有白色漂浮物的小瓶属于FF5357批次，是在东京西部的日野和埼玉县的川越的疫苗接种点发现的。在这些报告之前，神奈川县的相模原市和镰仓市以及大阪府的堺市也于周二作出报告。](https://english.kyodonews.net/news/2021/09/84d0b236f714-matter-found-in-more-pfizer-covid-vaccine-from-same-lot-in-japan.html)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**6.****日银将继续购买企业债券与绿色债券**
+**参考新闻：**[In New Zealand, There Have Been More People Killed by the ‘Vaccines’ Than by Covid-19 – Freedom First Network](https://freedomfirstnetwork.com/2021/09/in-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
 
-[据彭博社 9月15日报道，黑田在美洲国际经济论坛（IEFA）主办的一次会议上发表在线演讲时说，日本银行正在根据其职责采取措施应对气候变化。 日银将继续购买企业债券，包括绿色债券。他指出，日本的通货膨胀与西方不同，他说，如果不考虑临时因素，日本的物价增长是略微积极的。央行致力于尽快实现2%的通胀目标，必要时加大宽松措施的力度。](https://news.yahoo.co.jp/articles/779c8e18ec9941f6598dea50f808934c77035faf)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Curiousity
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

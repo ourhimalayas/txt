@@ -2,87 +2,40 @@
 ---
 
 
-## 印度北方邦证实伊维菌素是治疗和预防中共病毒的有效方式
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535885/)
+## 新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1535957/)
 
-翻译报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F6AF5E22-CA7A-460C-B422-D5389FDFF925-MiiZ5J.jpg)图片来源：Survivale Magazine
-9月15 日，新闻媒体《Gateway Pundit》记者吉姆·霍夫特（Jim Hoft）发布关于伊维菌素治疗和预防中共病毒（COVID-19）的重磅文章，全文如下。
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/https___d1e00ek4ebabms.cloudfront.net_production_eb2be356-c50b-4069-af99-60b43ed3bb6a.jpg)
+图片来源：ft.com；Getty Images
 
-新闻媒体《Gateway Pundit》之前曾报道说，由于新规定向大规模人口推广伊维菌素和羟氯喹的使用，印度的中共病毒（COVID）病例正在急剧下降。周五，政府通知说，印度北方邦（Uttar Pradesh）33个地区现已摆脱了中共病毒（COVID-19）疫情，病人康复率已提高到了98.7%，说明伊维菌素（IVERMECTIN）是 “北方邦中共病毒（Covid）控制模式”有效性的一部分。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-2021年，北方邦估计有2.41亿人口，是印度人口最多的州。 这几乎是2021年美国人口的三分之二，但它现在是一个没有中共病毒（COVID-19）肆虐的国家地区了。
+**根据最新数据显示，在处于封锁状态的新西兰，打“疫苗”的死亡人数比感染中共病毒（本身）的死亡人数多。**
 
-那么，美国可能做错了什么？让我们来问问福奇（Fauci）博士。
+**新西兰的跟踪系统显示，有40人死于（辉瑞）中共病毒疫苗，而27人死于中共病毒本身。**
 
-《印度斯坦时报》(Hindustan Times)报道了这一重大进展：
+记者以利亚·沙弗（Elijah Schaffer）在推特上分享了这些数字。最近对“反疫苗”统计和评论的打击可能迫使沙弗使用“可能相关”和“理论上”这样的措辞。许多没有使用这类措辞而发表类似言论的人，已被大型科技公司网站迅速禁言。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-72.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2-51.jpg)
+图片来源：[推特](https://twitter.com/ElijahSchaffer/status/1438216982608896006?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438216982608896006%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Ffreedomfirstnetwork.com%2F2021%2F09%2Fin-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
 
+与其他规模相似的国家相比，死于疫苗和中共病毒本身的两个数字都相对较低。但问题是，**大多数国家的中共病毒的死亡人数总是被夸大，而疫苗的死亡人数总是被低估。目前尚不清楚新西兰是否在夸大其中共病毒死亡人数，因为根本没有太多数据可供研究，但可以肯定的是，打疫苗的死亡人数要高得多。**
 
-> *总体而言，该州（目前）共有199个活动病例，而阳性率下降到了0.01%以下，同时，康复率已提高到98.7%。根据该邦的卫生公报，在过去24小时，北方邦只报告了11个新的中共病毒（Covid-19）病例和零死亡病例。*
+首先，疫苗不良反应普遍被低估。医生会为他们的病人寻找其他死亡原因，因为他们中的绝大多数人都在努力地推动疫苗。
 
+其次，大多数悲伤的家庭不会向数据库报告死亡情况。据估计，在实际死亡人数中，1%-10%的人都归因于疫苗。
 
-《今日印度》（India Today）8月31日也对此进行了报道：
+换句话说，即使新西兰报告的某些死亡人数被证明是错误的或不准确的，但可以肯定的是，更多的人死于疫苗，但从未被报告。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-> *北方邦的活跃病例数降至269例，而活跃病例占总确诊病例的百分比为零。*
-> 
-> *活跃的病例数在4月达到3,10,783的高点，现在已经减少了99%以上。*
-> 
-> *该邦新发中共病毒（Covid-19）病例已连续50天保持在100例以下。*
-> 
-> *在过去24小时内测试的187638个样本中，有21个呈阳性，同时，有17名患者从感染中康复，迄今为止，超过1686182人康复。*
+**参考新闻：**[In New Zealand, There Have Been More People Killed by the ‘Vaccines’ Than by Covid-19 – Freedom First Network](https://freedomfirstnetwork.com/2021/09/in-new-zealand-there-have-been-more-people-killed-by-the-vaccines-than-by-covid-19)
 
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-在所有家庭接触者中使用伊维菌素作为早期治疗和预防方案，北方邦是全印度第一个。而且，尽管该邦的中共病毒疫苗接种率只有5.8%，而全美国却有54%的中共病毒疫苗接种率，但这个邦却是印度所有邦中中共病毒（COVID）病例最少的五个邦之一。
-
-截至9月14日，美国有179,289,983人完全接种中共病毒疫苗，而（印度）北方邦只有15,236,150人接种了第二针（中共病毒疫苗）。如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a1.jpeg)图片来源：Gateway Pundit
-据《印度快报》(Indian Express)报道，有一个关于北方邦使用伊维菌素的小背景：
-
-
-> *北方邦的国家监测官员维克森杜·阿格拉瓦尔（Vikssendu Agrawal）说“北方邦是该国第一个引入使用伊维菌素进行大规模预防和治疗的州。2020年5月至6月，由安舒尔·帕里克（Anshul Pareek）博士领导的阿格拉（市）团队对该地区所有RRT（快速反应小组）团队成员试验性地使用了伊维菌素。根据观察，尽管他们每天都与中共病毒检测呈阳性的病人接触，但却没有一个人患上中共病毒（Covid-19）”。*
-> 
-> *他补充说，根据来自阿格拉（市）的调查结果，邦政府批准将伊维菌素作为预防措施用于所有接触过中共病毒（Covid）患者的人，后来又批准了治疗剂量的管理，以治疗此类患者。*
-> 
-> *他说，尽管该州的人口密度很高，但自第一波（中共病毒）疫情以来，及时引入伊维菌素帮助该州保持了相对较低的（中共病毒）阳性率，“尽管我们是人口基数最大、人口密度高的州，但我们保持了相对较低的（中共病毒）阳性率和每百万人口的病例数”。*
-> 
-> *维克森杜告诉《印度快报》，除了积极地进行接触者追踪和监测，较低的阳性率和死亡率可能归功于该州大规模使用伊维菌素，该药物最近已被引入中共病毒（COVID）和管理的国家协议中。“一旦第二波疫情消退，我们将进行自己的研究，因为从第一波疫情本身来看，已经有一批新的证据证明我们及时使用了伊维菌素。”*
-
-
-《对话报》（The Dialogue）报道说，去年8月，北方邦政府发布通知，允许使用伊维菌素（12毫克）药片：
-
-
-> *政府的通知写道：“医生建议服用伊维菌素12毫克，以控制疫情。这种药对保护免受中共病毒（COVID-19）相当有效。因此，我们呼吁每一位公民都要服用这种药片”。*
-> 
-> *该通知接着解释了剂量：“在家隔离的（中共病毒）阳性患者（每天一片，持续三天；对于主要和次要密切接触者（第一天和第七天各一片）”。*
-
-
-由于及早使用伊维菌素并进行预防，北方邦和新德里（Delhi）的中共病毒（COVID-19）病例都出现了令人难以置信的下降。而喀拉拉邦(Kerala)，一个位于印度南部的小邦，由于过度依赖疫苗而不太依赖伊维菌素（进行治疗和预防），一直在报告中共病毒（COVID-19）病例的大幅增加。值得注意的是，北方邦的人口比喀拉拉邦多八倍。如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a2.jpeg)图片来源：Gateway Pundit
-关于喀拉拉邦中共病毒（COVID-19）病例的更多信息，《沙漠评论》（Desert Review）这样报道：
-
-
-> *“虽然喀拉拉邦在4月份将伊维菌素纳入了该州的指导方针，但他们将其使用限制在B级，亦即严重病例或有相关疾病的病例，从而允许使用的轻度病例少很多。这意味着它被保留作为一种晚期治疗方法。*
-> 
-> *最终，喀拉拉邦在2021年8月5日完全放弃使用伊维菌素。*
-> 
-> *剑桥大学的数据分析师胡安·查米（Juan Chamie）提供了关于中共病毒（COVID）的图形见解，并发表了文章，对喀拉拉邦的中共病毒（COVID）病例为何失控提供了自己的答案。*
-> 
-> *“目前，我的主要观点是缺乏早期治疗。喀拉拉邦从2021年4月开始的治疗中共病毒（COVID）方案包括伊维菌素，但不是作为早期治疗。结果，只有一小部分人符合（使用伊维菌素的）条件，即那些具有高风险因素的B类患者（才能使用）。8月5日的新方案甚至更糟，他们（完全）取消了伊维菌素。”*
-> 
-> *尽管媒体和世卫组织（WHO）广泛地试图通过引用卫生服务总局（DGHS）来说服世界，说印度已经放弃了伊维菌素（的使用），但印度医学研究理事会（ICMR）和全印度医学科学研究所（AIIMS）并没有改变他们的立场，伊维菌素仍然存在于印度国家协议（India National Protocol）中”。*
-
-
-当然，世卫组织、制药公司、假新闻媒体和福奇对这一重大进展不会高兴，而《纽约时报》将因这一消息而崩溃。
-
-**新闻来源**
-
-[HUGE: Uttar Pradesh, India Announces State Is COVID-19 Free Proving the Effectiveness of “Deworming Drug” IVERMECTIN](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)
-
-文章发布：七彩光
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)

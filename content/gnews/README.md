@@ -13,20 +13,20 @@
 
 ---
 
-### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [瑞士称不认可部分世卫批准的疫苗](/content/gnews/2/README.md)
+### [美国超过一半的州誓言反对拜登的疫苗强制接种政策](/content/gnews/1/README.md)
  ` GTV新闻访谈`
 
-### [银河快讯：日本央行对日本公司持乐观态度；日本陆上自卫队开始全国性演习](/content/gnews/3/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [秘翻在线：又一家中共国房企危矣 标普下调“花样年”评级至负面](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
+### [新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [秘翻在线：谷歌强迫智能设备制造商使用指定系统 韩国政府对此开出1.77亿美元罚单](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
+### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
 
 ### [郭文贵先生GTV直播2021年9月14日文字精简版分享](/content/gnews/6/README.md)
  ` TS2020相聚盘古`
@@ -37,14 +37,14 @@
 ### [忠诚的概念和共产党某会所要求的所谓的忠诚](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [印度北方邦证实伊维菌素是治疗和预防中共病毒的有效方式](/content/gnews/9/README.md)
+### [新西兰：被“疫苗”杀死的人比被中共病毒杀死的人要多](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [反驳病毒源自中共实验室的27人中有26人与武毒所有关](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [调查记者正在编制一份Covid 疫苗所有副作用的清单](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [印度北方邦证实伊维菌素是治疗和预防中共病毒的有效方式](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [澳大利亚、美国和英国将发表联合国家安全声明](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -85,46 +85,46 @@
 ### [2021/09/15 大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：又一家中共国房企危矣 标普下调“花样年”评级至负面](/content/gnews/25/README.md)
+### [美国超过一半的州誓言反对拜登的疫苗强制接种政策](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [接种新冠疫苗义务化 法国新规今天生效](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：又一家中共国房企危矣 标普下调“花样年”评级至负面](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：谷歌强迫智能设备制造商使用指定系统 韩国政府对此开出1.77亿美元罚单](/content/gnews/26/README.md)
+### [秘翻在线：谷歌强迫智能设备制造商使用指定系统 韩国政府对此开出1.77亿美元罚单](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：富士康与拜顿合作的电动车项目暂停](/content/gnews/27/README.md)
+### [秘翻在线：富士康与拜顿合作的电动车项目暂停](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：小泉进次郎力挺河野太郎执掌自民党](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
+### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [澳门启动《博彩法》咨询 将引入政府代表](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
-
-### [彼得•纳瓦罗官方宣布担任盖特大使和新中国联邦的国家代表大使](/content/gnews/30/README.md)
- ` 首尔天池农场`
-
-### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/31/README.md)
+### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [横滨市矶子邮局发生29名投递人员群聚感染中共病毒](/content/gnews/32/README.md)
+### [横滨市矶子邮局发生29名投递人员群聚感染中共病毒](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [四川泸州市泸县16日发生6.0级地震，已造成2人死亡](/content/gnews/33/README.md)
+### [四川泸州市泸县16日发生6.0级地震，已造成2人死亡](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [反制中共：美英澳首脑宣布国防技术共享协议](/content/gnews/34/README.md)
+### [反制中共：美英澳首脑宣布国防技术共享协议](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [接种中共病毒疫苗，致全球脱发病人激增](/content/gnews/35/README.md)
+### [接种中共病毒疫苗，致全球脱发病人激增](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [银河快讯：日本央行对日本公司持乐观态度；日本陆上自卫队开始全国性演习](/content/gnews/36/README.md)
+### [银河快讯：日本央行对日本公司持乐观态度；日本陆上自卫队开始全国性演习](/content/gnews/37/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [新州最新周报隐瞒死亡病例的疫苗接种情况](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳美英军事联盟AUKUS不包含新西兰](/content/gnews/38/README.md)
+### [新州最新周报隐瞒死亡病例的疫苗接种情况](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
@@ -154,33 +154,33 @@
 ### [瑞士称不认可部分世卫批准的疫苗](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [国际要闻汇编](/content/gnews/48/README.md)
+### [秘翻在线：小泉进次郎力挺河野太郎执掌自民党](/content/gnews/48/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国际要闻汇编](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/49/README.md)
+### [反驳病毒源自中共实验室的27人中有26人与武毒所有关](/content/gnews/50/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [墙内要闻汇编](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [受全球经济恶化影响，半导体代工厂4季度订单将被削减](/content/gnews/50/README.md)
+### [受全球经济恶化影响，半导体代工厂4季度订单将被削减](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CCP将在香港掀起新一轮财富掠夺](/content/gnews/51/README.md)
+### [调查记者正在编制一份Covid 疫苗所有副作用的清单](/content/gnews/53/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [CCP将在香港掀起新一轮财富掠夺](/content/gnews/54/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德州一医院CEO称，医院因强制疫苗而面临关闭](/content/gnews/52/README.md)
+### [德州一医院CEO称，医院因强制疫苗而面临关闭](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新加坡疫苗接种率达到80%后爆发中共病毒大规模感染](/content/gnews/53/README.md)
+### [新加坡疫苗接种率达到80%后爆发中共病毒大规模感染](/content/gnews/56/README.md)
  ` 澳喜农场`
 
-### [文雍漫谈：你的身体谁做主](/content/gnews/54/README.md)
+### [文雍漫谈：你的身体谁做主](/content/gnews/57/README.md)
  ` 文雍`
-
-### [2021年9月15日郭先生盖特1「9分49秒」](/content/gnews/55/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [ABC News 弄巧成拙三万九千条留言让民众发现了死亡疫苗的真相](/content/gnews/56/README.md)
- ` AUJenny`
-
-### [雅典娜时报-第053期](/content/gnews/57/README.md)
- ` 墨尔本雅典娜农场`
 
