@@ -2,42 +2,36 @@
 ---
 
 
-## 有声|SEC案件终结 爆料革命完胜中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536302/)
+## BionTech首席执行官没有接种疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536448/)
 
-配音：香草山美食部 – 玫瑰圓
+**简评：**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+BionTech辉瑞疫苗公司的首席执行官没有接种疫苗，而辉瑞公司在未来的12 个月内还要生产超过13亿剂的疫苗。自己生产的疫苗自己不接种，输送到整个世界去接种。作为疫苗的开发者，自己开发的产品只是为别人，自己不接种。为什么？
 
-
-
-
-
-文贵先生在9月14日的直播中表示，历时近一年的SEC案已达成终结式的和解：爆料革命不仅以最快的速度，保证了所有个人和机构投资者的利益，成为世界金融领域的标杆；更让世人通过此案看清了中共虚假、欺骗、和蓝金黄的本性。
-
-经过SEC调查确认，此前的报案是中共特务的欺骗行为，GTV一方没有触犯任何法律。仅因为VOG的2700位战友，在人数上，触犯了《证券法》要求的注册豁免条例。为了保障每一名战友的安全和利益，文贵先生一人担负起一切责任，聘请几十人的律师团队，花费大量的时间和近2千万的律师费，在一年内，完成了有利于所有投资人的、历史性的和解。 SEC官僚腐败至极，加之中共操作，在没有通知当事人的情况下，将消息通过其合作单位直供华尔街日报，抢占“头条效应”。
-
-**文字版原文**：[SEC案件终结 爆料革命完胜中共](https://gnews.org/zh-hans/1534329/)
-
-*音频处理：喜山必胜Maverick
-发稿：童谣*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+GTV视频链接：[BionTech首席执行官还没有接种疫苗](https://gtv.org/video/id=6140b9b7784c5a258356402c)
 
 
 
-+1
+**视频字幕：**
+
+**记者：**我听说，你自己还没有接种疫苗。最后一个问题，这会是一个很强烈的信号。对那些仍犹豫不决、未完全准备好的人来说。如果你愿意为自己接种疫苗，根据公司格言，这事儿上。我作为疫苗开发者是准备给自己打的。这样你们大家就可以看到，我对自己的开发的产品有多信任。
+
+**Ugur Sahin教授，BionTech首席执行官：**是的，我很想接种疫苗。我们只需看到，在这个过程中，所有的法律规定都得到了遵守。在未来的12个月内，我们得生产超过13亿剂的疫苗。重要的是，我们不能失去任何一位员工。因此我在考虑，我们找到法律上允许，保护员工的可能性。但这目前仍在进一步澄清中。
+
+**记者：**萨欣教授，非常感谢您抽出时间。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：free20200604| 简评/文字整理/编辑：胖丁| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+[![](https://spark.adobe.com/page/4RxMBQ8umqX3P/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/4RxMBQ8umqX3P/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+
+
+0

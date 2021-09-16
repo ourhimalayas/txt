@@ -2,21 +2,25 @@
 ---
 
 
-## 美英澳成立新联盟，将助澳建立核动力潜艇舰队
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536385/)
+## 人类首次没有专业宇航员的太空旅行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536415/)
 
-栏目记者/责任编辑：云豹
+栏目记者/责任编辑：飞虹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-9月15日美英澳元首在三方视讯会议后宣布，美国将协助澳洲建立核动立潜艇舰队。 其目的在强化印太地区的海军力量，以维护此地区的和平稳定。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.003.jpeg)
-美国总统拜登表示，协助澳洲打造核动力潜舰，是在确保澳洲能拥有「为对抗快速发展的威胁，所必需具备的调度及防御能力。」 三位元首在宣布建立这项被称为「AUKUS」的伙伴关系时，并未指出是针对中共，但意图不言自明。 在后续的18个月内，美英澳三国的专家将共同研讨决定，如何协助澳洲建造核动力潜舰。 除此之外，AUKUS将在「网路安全、人工智慧AI的运用、量子科技、及深海探研能力」等层面上深入合作。 此次的三方联盟行动传达出一个讯息：美国 再度保证及显示出决心，美国将继续保持强大威摄力量的立场 没有改变。 
+9月15日，美国东部时间晚上8点02分，佛罗里达州卡纳维拉尔角的肯尼迪航天中心，SpaceX第一次在没有任何专业宇航员的情况下将四名普通公民送入地球轨道，这是人类航天史上前所未有的壮举。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.007.jpeg)
+这四名业余宇航员乘坐名为“灵感4号”的经过特殊改装的“龙”号太空舱，将在比国际空间站更高的轨道绕地球运行三天，与竞争对手“维珍银河”和“蓝色起源”最近的类似活动相比，飞行高度更高，持续时间更长。 这次飞行的发起者是现年38岁、高中辍学的美国亿万富翁贾里德·艾萨克曼，他同时用这次飞行为他的圣裘德儿童研究医院筹集善款。 艾萨克曼有商用飞机和战斗机资格驾驶，他的另外三名“机组人员”也是经过精心挑选的，包括一名圣裘德的医生助理、一位西雅图的航空航天数据工程师和一位前NASA宇航员候选人。团队在出发前经过了5个月的严格训练， 这次飞行标志着伊隆·马斯克的地球轨道太空旅游业务正式启动。 
 (本文仅代表作者观点)
 
-参考链接：[美英澳新戰略聯盟反制中國 將助澳洲建造核動力潛艦隊](https://www.cna.com.tw/news/firstnews/202109160010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：
+
+1. [SpaceX launches first all-civilian crew into orbit without professional astronauts](https://www.newsbreak.com/news/2371525956007/spacex-launches-first-all-civilian-crew-into-orbit-without-professional-astronauts)
+2. [First all-civilian crew launched to orbit aboard SpaceX rocket ship](https://www.newsbreak.com/news/2372061151183/first-all-civilian-crew-launched-to-orbit-aboard-spacex-rocket-ship)
+
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -29,7 +33,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
 0

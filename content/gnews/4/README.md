@@ -2,36 +2,58 @@
 ---
 
 
-## 人类首次没有专业宇航员的太空旅行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1536415/)
+## 川普：如果米利行为属实，就是叛国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536456/)
 
-栏目记者/责任编辑：飞虹
+2021年9月16日
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**简评：**
 
+在鲍勃.伍德沃德的新书中，提到米利将军曾两次向中共国提供情报，如果情况属实，就是叛国。也许米利是为了摆脱在阿富汗撤军上的无能。这是美国有史以来最尴尬的事，美国士兵被杀，价值850亿美元的最先进的武器装备被丢弃。如果在川普总统任期内，这是绝对不可能发生的。川普干掉了ISIS的哈里发，而且保护了所有的美军士兵。如果撤军，也会以不同的方式离开。
 
-
-9月15日，美国东部时间晚上8点02分，佛罗里达州卡纳维拉尔角的肯尼迪航天中心，SpaceX第一次在没有任何专业宇航员的情况下将四名普通公民送入地球轨道，这是人类航天史上前所未有的壮举。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0916AM（1-5）.007.jpeg)
-这四名业余宇航员乘坐名为“灵感4号”的经过特殊改装的“龙”号太空舱，将在比国际空间站更高的轨道绕地球运行三天，与竞争对手“维珍银河”和“蓝色起源”最近的类似活动相比，飞行高度更高，持续时间更长。 这次飞行的发起者是现年38岁、高中辍学的美国亿万富翁贾里德·艾萨克曼，他同时用这次飞行为他的圣裘德儿童研究医院筹集善款。 艾萨克曼有商用飞机和战斗机资格驾驶，他的另外三名“机组人员”也是经过精心挑选的，包括一名圣裘德的医生助理、一位西雅图的航空航天数据工程师和一位前NASA宇航员候选人。团队在出发前经过了5个月的严格训练， 这次飞行标志着伊隆·马斯克的地球轨道太空旅游业务正式启动。 
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [SpaceX launches first all-civilian crew into orbit without professional astronauts](https://www.newsbreak.com/news/2371525956007/spacex-launches-first-all-civilian-crew-into-orbit-without-professional-astronauts)
-2. [First all-civilian crew launched to orbit aboard SpaceX rocket ship](https://www.newsbreak.com/news/2372061151183/first-all-civilian-crew-launched-to-orbit-aboard-spacex-rocket-ship)
+[GTV视频链接](https://gtv.org/video/id=6142e131784c5a2583571ca3)
 
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龙
-校正/发稿：我不在这里
+**视频字幕：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**NEWSMAX主持人Sean Spicer：**在鲍勃-伍德沃德的新书中，他称米利将军曾两次试图向中共官员保证，他将阻止军事打击，某种程度这牵涉到你。第一，你是否曾考虑过使用军队？第二，你对米利将军的行为有什么看法？
+
+**川普：**首先难以置信。如果这确实是真的，他给中共国打电话做这些事情，并愿意向他们建议攻击或提前攻击，这是叛国。我今天接了很多来电，说这是叛国罪，这是其一。 其二，这太荒谬了。我万万没有想到。
+
+你以前经常来白宫的，你知道很多事情，你有很多朋友。你从来一个字也没有听到有关中共国提到这件事。你听到很多关于中共国在贸易方面的愤怒，我们达成了一个很好的贸易协议。你会听到中共国很多对中共国病毒的愤怒。但是关于他说的，我甚至没想过攻击中共国。
+
+我想他只是想摆脱在阿富汗撤军的无能表现。最糟糕的，任何人看到过的最愚蠢的事。可能是我们国家有史以来最尴尬的事，他们杀害了我们的士兵。我们带着尴尬离开。我们置美国人于不顾。
+
+我们留下了价值850亿美元的世界上最好的装备。这些装备是我买的，因为是我重建了我们的军队，然后拜登把它们拱手相让。
+
+他说的我要攻击中共国是我听到过最荒谬的事情。所有人都知道这件事。我得告诉你，我不知道他们是否有他说这件事的录音。但我发现伍德沃德和他的同伙都是极其不诚实的人。这就是为什么我不接受他们的采访。我们实在太高估他了。这家伙是最被高估的人之一。他很Low。但我从没想过要攻击中共国。
+
+还有一件事。我大约一周前读过一篇报导，说唐纳德-川普是几十年来唯一没有发动过战争的总统。
+
+**主持人Lyndsay Keith：**确实。总统先生，你说米利将军的行为是叛国罪。如果你还是总统的话，会开除他吗？
+
+**川普：**我会想他已经在职了很长时间，他在军队很久了。我认识很多将军。我们有一些伟大的将军。我们击溃了ISIS，如你所知，巴格达迪。我们做了一件没有哪位领导能做的事。你知道，我们说的是所有领导人。我们百分百地干掉了ISIS的哈里发，这比阿富汗要难得多。
+
+我想离开阿富汗。我们曾有个很好的协议。他们必须满足很多条件。他们要是不满足这些条件，我们就把他们炸得屁滚尿流。他们打电话说，好的，我们会满足这些条件。在18个月内，没有一个美国士兵被杀。我与阿卜杜勒交谈，他现在是领导人。
+
+我说，如果你对我们的美国士兵或美国人做任何事情，我们将对你进行比任何国家都更严厉的打击。他说，我明白。自从那个电话后再也没有一个士兵死亡。
+
+如果我们撤军，我会以不同的方式来做，如果选举没有被操纵。选举绝对是被操纵的。
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*字幕：Vekap|听写：致良知|翻译：致良知| PR：Roberts|简评/文字整理/编辑：胖丁| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
 0

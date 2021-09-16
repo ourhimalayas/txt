@@ -2,138 +2,34 @@
 ---
 
 
-## 1200亿，大部分钱藏到了比特币，最少送给江家200亿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1535680/)
+## 自然免疫比疫苗免疫更有效，但却受到广泛歧视
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536345/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-13.jpg)https://gtv.org/video/id=6142ae9f784c5a2583570641
-郭文贵
-Miles Guo
+**简评：**20年前9·11发生的时候，美国人和所有的媒体团结一致。最近几年美国开始分裂，尤其在强制推行接种疫苗方面。有大约8千万到1亿的美国人因为不打疫苗会被歧视，在语言和就业方面，这是不能接受的。已经从科学的角度得到验证，自然获得的免疫力比接种疫苗获得的免疫力更有效。
 
-就是七哥（郭文贵）是唯一告诉世界的
-Miles Guo is the only one who tells the world
+GTV视频链接：[Dr. Hooman Noorchashm: 美國總統針對如此大量的美國人打開歧視的大門，是完全不可以接受的](https://gtv.org/video/id=6142e165784c5a2583571cbc)
 
-我说比特币，4%的人拥有96%的币
-I said about Bitcoin, 4% people own 96% of Bitcoins
 
-它就是洗钱，洗全人类最牛叉的钱
-It is money laundry, laundering the most huge money in all mankind
 
-都不是洗你想的一个亿两个亿
-It’s not what you think about one hundred million or two hundred million dollars
+**视频字幕：**
 
-人家不，那不叫钱
-For them, that’s nothing
+我在上周9·11的纪念活动中反思，我想起2001年的时候，所有媒体是多么团结一致传递相同的信息。我们的国家从过去的几年开始，处在一个非常分裂的状态。实话说，作为约翰·麦凯恩的朋友，我觉得拜登总统有机会使国家团结，依靠科学解决病毒。
 
-拥有比特币的人，除了共产党的二部
-People who owning Bitcoin, except the second division of the Communist Party’s Staff Headquarters
+作为一个免疫学家，直到星期四，根据这一强制疫苗的粗暴和其中的错误，我终于意识到我所想的并没有发生。我不得不说，就目前而言，这一强制措施为歧视那些获得自然免疫的大约8千万至1亿美国人打开大门。我的意思是，其实这些人是受到歧视的。美国总统针对他们，大大地打开了歧视的大门。这不止是语言上的歧视，我们所说的是就业歧视。
 
-二部是最大的，记住共产党的二部是最大参与者
-The 2nd division of the Communist Party’s Staff Headquarters is largest participant
+我无法告诉你，我每天收到多少获得自然免疫的美国人的邮件。我知道你的一些嘉宾已经从科学的角度讲了这个问题，Makary 博士在Tucker和其他主持人的节目上就讲过。自然获得的免疫力与疫苗免疫一样有效，甚至更有效。因此，美国总统针对如此大量的美国人打开歧视的大门，是完全不可以接受的。
 
-记住，最有钱的这几个人
-Remember, these few richest people
+*编辑：【英国伦敦喜庄园编辑部】*
 
-人家是真能驾驭得了上千亿上万亿的财富的
-they can really control hundreds of billions and trillions of wealth
+*字幕：Vekap|听写：云岭|翻译：Roberts| PR：云岭|简评/文字整理/编辑：胖丁| Page：小六月*
 
-那么这个洗钱，中国最高段位
-So this money laundry, the highest rank in China
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-我告诉你，太子党里边像陈元一样会玩的
-Let me tell you, Chen Yuan of the princelings knows how to play money like this
 
-几乎数不出4个人出来
-Hardly count four people can do that
+[![](https://spark.adobe.com/page/cNdotmXwi9ZqM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/cNdotmXwi9ZqM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
-你给我找出跟陈元一个级别的
-Can you find me who is the same level as Chen Yuan?
 
-你给我找出跟陈元一个级别的
-Can you find me who is the same level as Chen Yuan?
-
-张宏伟身边有仨人
-There are three people with Zhang Hongwei
-
-是玩英文玩得溜的
-They are all good at English
-
-那是所谓他说在美国高盛干过
-That’s the so-called he said she worked at Goldman Sachs in the United States
-
-她不是，是在芝加哥期货交易所干过
-She is not, she has worked at the Chicago Mercantile Exchange
-
-就是张宏伟的女朋友，在微信上加“吃货”
-It’s Zhang Hongwei’s girlfriend, nickname “foodie” on WeChat
-
-英文好，在美国呆过那么多年
-Good English, spent so many years in the United States
-
-再一个，张宏伟的儿子和女儿，英文非常好
-And Zhang Hongwei’s son and daughter, are very good at English
-
-你看陈元能把张宏伟当成自己的小拐杖
-Look at Chen Yuan, can use Zhang Hongwei as his little crutch
-
-是吧，不但玩艺术
-Right? Not only participate in Artworks
-
-不但是彻底控制张宏伟
-Not only completely control Zhang Hongwei
-
-而且能通过张宏伟控制民生
-And also control Minsheng through Zhang Hongwei
-
-然后有自己（控制）的国家开发银行
-Then there is its own (controlling) China Development Bank
-
-还有海外的情报系统
-And overseas intelligence systems
-
-还有中东的这么深的关系
-And such a deep relationship in the Middle East
-
-因为他和江家是真正的，他跟江家好
-Because he and Jiang’s family are real good bond
-
-这1200亿（美元）里面，一定有200亿是给江志成的
-In this 120 billion (USD), 20 billion dollars must be given to Jiang Zhicheng (Alvin Jiang)
-
-因为江志成是参与这个谈判的最重要的代表人
-Because Jiang Zhicheng is the most important representative involved in this negotiation
-
-江志成，范一飞是江家的商业行长
-Jiang Zhicheng and Fan Yifei, he is the president of Commercial Bank of the Jiang family
-
-人民银行副行长，还有陈元
-Deputy president of the People’s Bank of China, and Chen Yuan
-
-张宏伟是负责往外搬钱的, 搬钱去向
-Zhang Hongwei is responsible for moving money out, decide where to put that money
-
-刚才莘七女孩说得挺对
-Rachel just said was correct.
-
-去哪儿了
-Where the money went?
-
-只有比特币能藏下这笔钱
-Only Bitcoin can hide this money
-
-这就是大部分钱去了比特币
-This was where most of the money went to Bitcoin
-
-原视频日期：2021/09/12
-原视频链接 https://twitter.com/se1y7cblljselva/status/1437376219603894275?s=24
-视频时间段 : 0:00-2:18
-中听英： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -2,29 +2,15 @@
 ---
 
 
-## 己所不欲勿施于人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1536172/)
+## 2021年9月15日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536205/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-178.png)
-（图片源自本文链接）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-9月15日，日本的早间电视新闻消息：
+9月15号：真正的战友，有共同信仰的人，无论在任何情况下，都会共同的战斗！非常荣幸让共产党最恨的最害怕的．川普政府最重要的内阁官员，彼特，那瓦罗先生！今天正式的．官方宣布，成为盖特的形象大使，和新中国联邦的国家代表大使！这是新中国联邦人的荣幸，我们也要永远的珍惜，像他和班农先生这样的永远的兄弟和永远的朋友，我们还是最紧密的战友，我们将一起战斗．消灭邪恶的中国共产党！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/23a59d210d5f0bb6bfcced0bbdf9092f-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/213a78f2dedf5c48fae494628f04397d.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/897e5bdb31b4f34186297f14b2cb55b8-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/adc75fc8ed459a3ae7ac1cef7806e88f-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/fb4333cb0fd17abf8dcec3fca54e0672-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/df9a5886db696e05997d7cf66bc8630a-scaled.jpg)
+[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb5koo5c23)
 
-中共外交部对在自民党总裁选举中，候选人提及中共国的人权及靖国神社参拜等问题作出回应，说他们应该停止提及中国。
+**喜联盟Gnews编辑部**
 
-在自民党总裁选举中，前政调会长岸田宣布将设立一个新的，负责人权事务的首相助理，以期处理中共国的人权问题。而前总务大臣高市则表示，如果她成为首相，将参拜靖国神社。
-
-中共外交部发言人赵立坚在4月14日的新闻发布会上说，”中国对靖国神社的立场是一贯的、明确的”，以示反对参拜靖国神社。在人权问题上，他抗议说不会容忍外别国势力干涉中国的内部事务。他还说，”日本的政治家应该停止提起中国”，并批评这是一种 “政治表演”。
-
-信息源：
-
-[https://news.yahoo.co.jp/articles/516313850c7703ce510a95b564fd0ec0a62fe0e7](https://news.yahoo.co.jp/articles/516313850c7703ce510a95b564fd0ec0a62fe0e7)
-
-笔者不懂政治，更不懂外交政治。但翻译中不由得想到泼妇骂街时的样子。”你们爱咋咋地，别拿我说事儿”。百思不得其解的是，中共央视的新闻联播节目，哪天不拿其它国家说事儿呢？我们都很熟悉的播报程序里一定有这句话，”下面是一组国际消息”。最后，还是用一句孔圣人的话来作为这篇报道的结尾吧！”己所不欲勿施于人”。
-
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
 0

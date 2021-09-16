@@ -13,20 +13,20 @@
 
 ---
 
-### [Huawei &#8216;infiltrates&#8217; Cambridge University: Calls For An Inquiry Into The Chinese Tech Giant](/content/gnews/1/README.md)
+### [핑안(PING AN)그룹의 최대 투자자 미국과 유럽의 국민 연금](/content/gnews/1/README.md)
+ ` STHK`
+
+### [拜登强制推行疫苗政策是反人类罪](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [本轮厦门疫情特征：接种疫苗的成年人感染率远超未成年人（企业vs学校）](/content/gnews/2/README.md)
- ` 喜马拉雅农场新西兰站`
+### [G時評：如何訓練自己的大腦？](/content/gnews/3/README.md)
+ ` GISELLE`
 
-### [本轮厦门疫情特征：接种疫苗的成年人感染率远超未成年人（企业vs学校）](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
+### [川普：如果米利行为属实，就是叛国](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人类首次没有专业宇航员的太空旅行](/content/gnews/4/README.md)
+### [欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/5/README.md)
  ` GTV新闻访谈`
-
-### [澳洲大学要求撤回曾帮助中国监视维吾尔人的研究](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [2021年9月15日 文贵先生盖特 11](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
@@ -67,40 +67,40 @@
 ### [基本养老保险缺口加大](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/19/README.md)
+### [拜登强制推行疫苗政策是反人类罪](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声| 抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/20/README.md)
+### [川普：如果米利行为属实，就是叛国](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共接管美军在阿富汗陆军基地](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [BionTech首席执行官没有接种疫苗](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [自然免疫比疫苗免疫更有效，但却受到广泛歧视](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声| 抖音涉嫌向中共密送西方个资，遭欧盟监管稽查](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|三针疫苗过后，以色列疫情再现高峰](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声|SEC案件终结 爆料革命完胜中共](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [1200亿，大部分钱藏到了比特币，最少送给江家200亿](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【 #G时新闻 】🔥 &#8211; 纽约检察长终止对GTV和Saraca两家公司所有刑事调查](/content/gnews/24/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [人类首次没有专业宇航员的太空旅行](/content/gnews/25/README.md)
+### [欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [美英澳成立新联盟，将助澳建立核动力潜艇舰队](/content/gnews/26/README.md)
+### [人类首次没有专业宇航员的太空旅行](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [中共国健康码、行程码“二码合一”加大管制国人力度](/content/gnews/27/README.md)
+### [美英澳成立新联盟，将助澳建立核动力潜艇舰队](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [澳方指中共人脸识别技术违反道德准则](/content/gnews/28/README.md)
+### [中共国健康码、行程码“二码合一”加大管制国人力度](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：中共会公布泸州地震遇难人数的真实数据么？](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
+### [澳方指中共人脸识别技术违反道德准则](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万](/content/gnews/30/README.md)
+### [秘翻在线：中共会公布泸州地震遇难人数的真实数据么？](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [澳洲大学要求撤回曾帮助中国监视维吾尔人的研究](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（3）](/content/gnews/47/README.md)
+### [G时评：如何训练自己的大脑？](/content/gnews/47/README.md)
+ ` GISELLE`
+
+### [有声|三针疫苗过后，以色列疫情再现高峰](/content/gnews/48/README.md)
+ ` MOSREC`
+
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（3）](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年9月15日 文贵先生盖特 8](/content/gnews/48/README.md)
+### [有声|SEC案件终结 爆料革命完胜中共](/content/gnews/50/README.md)
+ ` MOSREC`
+
+### [2021年9月15日 文贵先生盖特 8](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [Facebook创建了一份特权人士名单](/content/gnews/49/README.md)
+### [Facebook创建了一份特权人士名单](/content/gnews/52/README.md)
  ` Charlie`
 
-### [2021年9月15日 文贵先生盖特 7](/content/gnews/50/README.md)
+### [2021年9月15日 文贵先生盖特 7](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 6](/content/gnews/51/README.md)
+### [秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万](/content/gnews/54/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021年9月15日 文贵先生盖特 6](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [樱花灭共诗——珠扑地（新韵）](/content/gnews/52/README.md)
+### [樱花灭共诗——珠扑地（新韵）](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月15日 文贵先生盖特 5](/content/gnews/53/README.md)
+### [2021年9月15日 文贵先生盖特 5](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月15日 文贵先生盖特 4](/content/gnews/54/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [日本民众对新版iPhone没有指纹认证功能感到失望](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [SpaceX公司发射4名业余爱好者进行私人绕地球旅行](/content/gnews/56/README.md)
- ` 澳喜农场`
-
-### [己所不欲勿施于人](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 

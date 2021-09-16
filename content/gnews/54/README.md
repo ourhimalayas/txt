@@ -2,15 +2,21 @@
 ---
 
 
-## 2021年9月15日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536193/)
+## 秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536238/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-172920.jpg)
+根据2021年9月15日 UC网报道， 上海市第一中级人民法院发布一则执行悬赏公告，山西前首富李兆被悬赏高达2100万。
 
-G| Fashion 未来将推出郭式西装，纯手工剪裁，最高品质的布料，G｜ Club 会员能以最优惠的价格购买到全世界顶级设计师设计的最高品质的产品 **🔥🔥🔥🔥❤️❤️❤️🥳🥳🥳🥳**
+公告显示，山西前首富李兆会拖欠2.16亿余元，2013年1月10日，李兆会的海博鑫惠公司与某银行签订《综合授信协议》，该银行提供最高5.2亿元的授信额度，此后李兆会面临逾期贷款的难题，甚至遭遇银行上门讨债，被列为失信人，限制出境。
 
-[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb5y6bc73b)
+李兆会也是演员车晓的前夫，俩人婚姻仅维持2年。在中共国做“首富”是高危职业。
 
-**喜联盟Gnews编辑部**
+**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=345d0773438f4dbda32aebf4ef68750e&amp;wm_cid=444011846293272576&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
 
-+1
+
+
+##  
+
+0
