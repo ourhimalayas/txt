@@ -2,37 +2,33 @@
 ---
 
 
-## Trillion Stolen by the CCP from China- the Wrestling Battlefield of Three Forces
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/1535286/)
+## 突发重磅：美英澳新协议“AUUKUS”将帮助澳洲获得第一艘核动力潜艇
+` AUJenny` [轉載自GNews](https://gnews.org/zh-hans/1535416/)
 
-Translated by: MOS Translation Team – Eleutheria
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-167.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/0914pm8-T.jpg)
+翻译：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_1282.jpg)网络截图
+美东时间9月15日（周三）下午5:00，澳大利亚悉尼时间早九点。
 
+九号台突发新闻报道：澳大利亚总理斯科特-莫里森在与美国总统乔-拜登和英国首相鲍里斯-约翰逊的联合虚拟媒体会议上确认，”下一代 “伙伴关系的首要任务将是提供一支核动力潜艇舰队。未来18月将推动澳洲打造自己的核动力潜艇，澳洲的第一个核潜艇基地将建在阿德莱德市。
 
-Faced with the increasingly tightening isolation and confrontation of the international community, the CCP’s finances are also headed for ruin. For four years now, through a series of precise exposures, the CCP has lost its credibility within China and among the international community. The CCP’s  $3 trillion foreign exchange reserves are about to dry up, more than $1 trillion of the #3 trillion foreign exchange is in U.S. Treasury bonds, leaving $2 trillion in foreign exchange reserves, only $1 trillion of which can be used freely. However the minimal annual expenditures require about $700 to $800 BN on imports to sustain the native economy. Hong Kong, which is a treasure trove of foreign exchange for the CCP, has been destructed by the Xi’s administration.
+美国和英国已经宣布了一项历史性的新防务条约，这项协议名为“AUUKUS”，是以三个国家的首字母命名。据报导，它将促进三国分享在人工智能、网络、水下系统及远程打击能力等关键技术领域的知识。以应对日益 “复杂 “的印度-太平洋地区的战略形势。
 
-During a live broadcast on GTV on September 14, Miles Guo said Xi Jinping is aware of the CCP’s $20 trillion worth of stolen “party assets” overseas. This is enough to keep the CCP alive for a few more decades. However, Xi absolutely has no control over these properties. Only a few families, such as Deng Xiaoping, Jiang Zemin, Wang Qishan, and Zhu Rongji, have this information. Xi absolutely has no say in international finance. He has no more than 50 percent control over the CCP’s military.
+极具讽刺的是当拜登发言时，显然他忘记了澳洲总理莫里森的名字，他指着电视屏幕说：“谢谢下边的那个家伙”。
 
-The 20 trillion dollars of assets belonging to the Chinese people will become a wrestling battlefield for the three forces on the New Federal State of China(NFSC), the CCP proxies of the international evil organizations, and the Xi’s administration.
+莫里森先生说，AUKUS是对日益 “复杂 “的印度-太平洋的回应。
+“这影响到我们所有人，”他说。
+“印度-太平洋的未来将影响到我们所有人的未来。
+“为了应对这些挑战，为了帮助实现我们地区所需要的安全和稳定，我们现在必须将我们的伙伴关系提升到一个新的水平。”
+莫里森先生在他的评论中没有直接提到中国政府。
+“这将是世界上最复杂和技术要求最高的项目之一，”约翰逊先生说。
+“持续几十年，需要最先进的技术。”
 
-The coming up exposures from Miles will focus on Wang Qishan’s overseas assets and the overseas layouts of Wang, Zhu Rongji, Jiang Mianheng, and others. It will be including how Wang Qishan used his position to pocket the stolen money of Zhou Yongkang and Xu Caihou, and reported a fraction of it to the Central Commission for Discipline Inspection. The fight between Xi, Wang, and other forces over the $20 trillion is essentially a dogfight between dark forces like Russia. And the NFSC’s “getting back money in the air” actions is a perfect legitimate fight of wealth, dignity, and well-being of the Chinese people.
+（本文纯属个人观点，与Gnews 无关）
 
-(This article represents the views of the author only)
+[文章来源：](http://Jenny,%20[16%20Sep%202021%20at%208:38:22%20am]:%209News%20-%20Latest%20news...%20%20Jenny,%20[16%20Sep%202021%20at%208:38:22%20am]:%20https://www.9news.com...)
 
-Source: [https://gnews.org/zh-hans/1534881/](https://gnews.org/zh-hans/1534881/)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/AUSTRALIA-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
-
-Edited/Proofread/Posted by: Stay
-
-**More information, follow us **
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**New York MOS Himalaya | Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
