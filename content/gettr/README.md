@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/16/2021 4:31 PM (UTC)`
+
+9.16日：七哥今天有两场球赛🏀……一大1⃣️小……
+![img](https://media.gettr.com/group22/getter/2021/09/16/16/89a29d23-ce8f-6c87-d6b0-0d1316fc7f39/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mengtian 9/16/2021 3:06 AM (UTC)`
@@ -287,13 +294,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 2019年郭文贵先生揭露中共企图吞噬香港的大湾区计划<br/><br/>In 2019, Mr. Miles Guo exposed the Greater Bay Area plan of the Chinese Communist Party to swallow up Hong Kong
 ![img](https://media.gettr.com/group28/getter/2021/09/13/05/c20e3f76-9b28-d727-227d-ca2f4bacd15c/out.jpg)
-
----
-
-`@miles 9/13/2021 3:03 AM (UTC)`
-
-9/12/2021 Miles Guo: The three evil goals of the CCP’s expansion of the Qianhai economic zone: 1) To loot the wealth of Hong Kong; 2) To abolish HKD via mandatory use of RMB; 3) To internationalize RMB by taking advantage of Hong Kong, and to launch a global energy war to bring all the Asian countries to their knees<br/><br/>9/12/2021 文贵直播：中共前海开发区扩大的三大邪恶目的：一、洗劫香港财富；二、强行使用人民币以废掉港币；三、利用香港将数字人民币国际化，打响国际能源大战，从而让亚洲国家都跪下<br/>
-![img](https://media.gettr.com/group30/getter/2021/09/13/02/eeed8b6b-7ba1-b50b-61df-3b7aa2380512/out.jpg)
 
 ---
 
