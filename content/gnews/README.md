@@ -13,28 +13,28 @@
 
 ---
 
-### [美英澳組印太安全聯盟 中共外交部斥「不負責任、搞小圈子」](/content/gnews/1/README.md)
- ` G&#124;News TAIWAN`
+### [Korea-Australia &#8220;2+2&#8221; talks committed to establishing a comprehensive strategic partnership](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万](/content/gnews/2/README.md)
+### [2021年9月15日 文贵先生盖特 11](/content/gnews/2/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月15日 文贵先生盖特 11](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [GT Online: CCP Financial Institutions Panicking—Banks Suspend Personal Precious Metal Trading](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月15日 文贵先生盖特 6](/content/gnews/3/README.md)
+### [澳大利亚将从美国购买远程战斧导弹](/content/gnews/5/README.md)
+ ` Charlie`
+
+### [2021年9月15日 文贵先生盖特 11](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月15日 文贵先生盖特 6](/content/gnews/4/README.md)
+### [2021年9月15日 文贵先生盖特 10](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/5/README.md)
- ` 纽约香草山MOS02`
-
-### [2021年9月15日 文贵先生盖特 6](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月15日 文贵先生盖特 5](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月15日 文贵先生盖特 4](/content/gnews/8/README.md)
+### [2021年9月15日 文贵先生盖特 9](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [心梗，脑梗成常态，疫苗引起的肛梗也不稀奇](/content/gnews/9/README.md)
@@ -46,13 +46,13 @@
 ### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报:拜登否认提议美中峰会遭习近平拒绝](/content/gnews/12/README.md)
+### [美英澳组印太安全联盟 中共外交部斥“不负责任、搞小圈子”](/content/gnews/12/README.md)
+ ` G&#124;News TAIWAN`
+
+### [每日快报:拜登否认提议美中峰会遭习近平拒绝](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚、美国和英国将发表联合国家安全声明](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [辉瑞表示，5岁以下儿童的新冠疫苗数据或在10月底公布](/content/gnews/14/README.md)
+### [澳大利亚、美国和英国将发表联合国家安全声明](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/15/README.md)
@@ -103,29 +103,29 @@
 ### [秘翻在线：爱尔兰调查TikTok侵犯儿童隐私和非法数据转移](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [SpaceX公司发射4名业余爱好者进行私人绕地球旅行](/content/gnews/31/README.md)
+### [澳大利亚将从美国购买远程战斧导弹](/content/gnews/31/README.md)
+ ` Charlie`
+
+### [美、英、澳之间的安全协议](/content/gnews/32/README.md)
+ ` Charlie`
+
+### [Facebook创建了一份特权人士名单](/content/gnews/33/README.md)
+ ` Charlie`
+
+### [SpaceX公司发射4名业余爱好者进行私人绕地球旅行](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [币圈新闻动态：印度国家银行已禁止加密货币交易所使用其平台收款](/content/gnews/32/README.md)
+### [币圈新闻动态：印度国家银行已禁止加密货币交易所使用其平台收款](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：美英澳三国宣布建立新的科技和军事合作协议](/content/gnews/33/README.md)
+### [秘翻在线：美英澳三国宣布建立新的科技和军事合作协议](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/34/README.md)
+### [澳大利亚采购第一艘核潜艇以应对中共威胁](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/35/README.md)
+### [联邦法官否决了强制纽约州医务人员接种疫苗的规定](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [印度北方邦证实伊维菌素是治疗和预防中共病毒的有效方式](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [横滨市矶子邮局发生29名投递人员群聚感染中共病毒](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [四川泸州市泸县16日发生6.0级地震，已造成2人死亡](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [9/13/2021 国际财经快讯：美元随国债收益率上扬；曼钦称不会在9月27日前通过预算法案](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [樱花灭共诗——珠扑地（新韵）](/content/gnews/47/README.md)
+### [2021年9月15日 文贵先生盖特 8](/content/gnews/47/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月15日 文贵先生盖特 7](/content/gnews/48/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月15日 文贵先生盖特 6](/content/gnews/49/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [樱花灭共诗——珠扑地（新韵）](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本民众对新版iPhone没有指纹认证功能感到失望](/content/gnews/48/README.md)
+### [2021年9月15日 文贵先生盖特 5](/content/gnews/51/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月15日 文贵先生盖特 4](/content/gnews/52/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [日本民众对新版iPhone没有指纹认证功能感到失望](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [己所不欲勿施于人](/content/gnews/49/README.md)
+### [己所不欲勿施于人](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/50/README.md)
+### [桥水基金达利欧——比特币终将被监管或消失](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [教育“双减”政策，减了谁的负担？](/content/gnews/51/README.md)
+### [教育“双减”政策，减了谁的负担？](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共债券市场“南向通”将于9月24日上线](/content/gnews/52/README.md)
+### [中共债券市场“南向通”将于9月24日上线](/content/gnews/57/README.md)
  ` 儒为`
-
-### [郭文貴直播摘要和音頻 2021.9.14 ：GTV與SEC和解](/content/gnews/53/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [习近平、彭丽媛等拉屎看病都被江绵恒监控](/content/gnews/54/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [串珠385：冠状病毒包含了艾滋病、SARS等基因](/content/gnews/55/README.md)
- ` 郭爆料串珠`
-
-### [约翰逊改组内阁 对华强硬派继任 英国史上第二位女外相诞生](/content/gnews/56/README.md)
- ` G&#124;News TAIWAN`
-
-### [秘翻在线：恒大员工爆料许家印妻子及高管提前兑付恒大理财产品](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
 

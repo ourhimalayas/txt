@@ -2,21 +2,17 @@
 ---
 
 
-## 秘翻在线：山西前首富李兆会失联被法院悬赏高达2100万
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536238/)
+## 2021年9月15日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536296/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-172920.jpg)
-根据2021年9月15日 UC网报道， 上海市第一中级人民法院发布一则执行悬赏公告，山西前首富李兆被悬赏高达2100万。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-公告显示，山西前首富李兆会拖欠2.16亿余元，2013年1月10日，李兆会的海博鑫惠公司与某银行签订《综合授信协议》，该银行提供最高5.2亿元的授信额度，此后李兆会面临逾期贷款的难题，甚至遭遇银行上门讨债，被列为失信人，限制出境。
+9/15/2021 班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家进行战争的不归路，结果将导致无数人丧生，这也就是为什么摧毁这些邪恶势力是我们的使命！
 
-李兆会也是演员车晓的前夫，俩人婚姻仅维持2年。在中共国做“首富”是高危职业。
+9/15/2021 Steve Bannon: The West is heading to war with the CCP and other evil countries due to our failure to stand up to evil! As a result, countless lives will be thrown away. That is why our mission is to destroy these evil forces!
 
-**[新闻来源](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=345d0773438f4dbda32aebf4ef68750e&amp;wm_cid=444011846293272576&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)**
+[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb4wh6dbfe)
 
-
-
-##  
+**喜联盟Gnews编辑部**
 
 0

@@ -2,23 +2,23 @@
 ---
 
 
-## 秘翻在线：美英澳三国宣布建立新的科技和军事合作协议
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536017/)
+## Facebook创建了一份特权人士名单
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1536263/)
 
-#### 撰稿：极寒将至 
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09161-1.png)
+马克·扎克伯格 (Mark Zuckerberg) 经常表示，Facebook 允许其所有用户获得相同的待遇，但情况并非如此，华尔街最近发现了一个系统将一小群特别著名的用户置于某些规则之上。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-73.jpg)图片来源：泰晤士报
-路透社消息，拜登总统，英国首相约翰逊与澳大利亚总理莫里森，周三共同宣布，成立一个结合军事、外交和科技，名为AUKUS的新三方安全合作协议，他们将为印度——太平洋地区建立安全伙伴关系，其中包括帮助澳洲采购核动力潜艇，并将支持澳洲核能潜艇巡航印太地区。另外还包括网络、人工智能、量子科技、深海能力等科技领域合作，加强信息技术的分享。三国将在科学、技术、产业与供应链上，做出更多整合努力。
+该程序称为 XCheck，它是一种交叉检查系统，以保护例如记者、政治家和各种名人。这份名单上的人数也在一天天增加，目前大约是 600 万，大概占总订阅户的 0.2%。
 
-这项协议名为“AUKUS”，是以三个国家的首字母命名的。该协议还将涵盖核合作，其中美国和英国将分享他们关于如何维护核防御基础设施的知识。消息人士表示，虽然这项协议中没有明确提到中共，但这是西方盟友在军事及科技领域对抗中共国扩张的又一举措。
+这个保护系统允许了一些特权人士进行可能错误的行动。其中一个案例提到了例如，内马尔在 2019 年发布了一名裸体女孩的照片，因为该女孩指控他强奸，所以她被内马尔暴露在他的数百万他的追随者目光之下。
 
-美国官员表示，核动力将使澳洲海军能够在印太地区进行长期任务的能力。但这并不意味着澳大利亚将成为核武国家，该国已经表示无意发展核武，同时也是《不扩散核武器条约》(Nuclear Nonproliferation Treaty)倡议国。
+Facebook 发言人安迪·斯通否认 XCheck 代表了一种特权系统，因为越来越多的谣言证实了它的负面影响，该公司称正在尽其所能改进它。
 
-官员说，美国在亚洲的传统盟友，包括日本、韩国、泰国、菲律宾等，同时加上新盟友如印度跟越南等，还有四方安全对话机制，现在再加上这个新的三方安全倡议，将形成更宽广的战略，应对21世纪最大的挑战。拜登总统曾经多次强调，中共国是21世纪最大的挑战。
+免责申明：本文只代表译者观点，与Gnews无关
 
-西方传统盟友在面对中共步步紧逼的超限战攻击和海上威胁的时候，开始结成更加紧密的军事和科技合作的同盟，是迫不得已的明智选择。当前，中共用生化武器已经攻破西方各国防御体系，接下来中共凭借背后邪恶势力的帮助，一手生化武器大棒、一手金元利诱的称霸世界计划也逐渐暴露，西方国家再次面临二战时期的困境，是各自为战然后被各个击破，还是建立盟军共同抵御纳粹的疯狂攻击？答案是显而易见的。
+原文链接：[https://www.repubblica.it/tecnologia/2021/09/15/news/facebook\_ha\_creato\_una\_lista\_di\_persone\_privilegiate\_che\_non\_seguono\_le\_regole\_dell\_utenza\_normale-317961111/?ref=RHTP-BG-I294524205-P8-S1-F](https://www.repubblica.it/tecnologia/2021/09/15/news/facebook_ha_creato_una_lista_di_persone_privilegiate_che_non_seguono_le_regole_dell_utenza_normale-317961111/?ref=RHTP-BG-I294524205-P8-S1-F)
 
-新闻来源：[Australia to get U.S. nuclear submarine technology as China looms large](https://www.reuters.com/world/asia-pacific/australia-get-us-nuclear-submarine-technology-china-looms-large-2021-09-15/)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
 
 0

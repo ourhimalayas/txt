@@ -2,17 +2,21 @@
 ---
 
 
-## 2021年9月15日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536237/)
+## GT Online: CCP Financial Institutions Panicking—Banks Suspend Personal Precious Metal Trading
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/1536295/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+Written by: WENJIE
 
-9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！
+Translated by: billwilliam
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-16-004640.jpg)
+Image source: Sina Finance
 
-9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
+According to Sina Finance, China Construction Bank issued an announcement on September 13 that starting from October 18, precious metal trading accounts and two-way trading services will be closed for customer accounts with no transaction and no position for 12 consecutive months. Commercial banks are tightening the individual trading of precious metals at full throttle.
 
-[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb659j1751)
+The article cites bank-announced restrictions on the personal trading service of precious metals, including but not limited to the suspension and closing of trading services, the repeal of entrusted brokerage relations, and lowering the size of positions. The reasoning is to protect the rights and interests of consumers and to prevent market risks. Citing the opinions of industry insiders, the article notes several benefits of suspending trading: they believe the banks’ restrictions on related trading will help prevent the risk of fluctuations in the precious metals market; the measure will also remind the investors of risks and implement management for investors; this will reduce potential disputes and the risks of regulatory accountability, and protect the banks’ market reputation.
 
-**喜联盟Gnews编辑部**
+In my opinion, the banks are trying to deflect their own liability as brokerages in the pretext of customer protection. Last year’s disaster in crude oil futures has exposed the unprofessional trading in precious metals and bulk commodities by banks in Communist China. To avoid the high risks they face, the banks in Communist China simply suspend trading or pass on risks to customers, indicating Communist China’s banking industry’s fear of precious metal trading.
 
-0
+[Reference link](https://finance.sina.com.cn/jjxw/2021-09-15/doc-iktzscyx4294682.shtml)
+
++1

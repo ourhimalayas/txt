@@ -2,31 +2,17 @@
 ---
 
 
-## 日本民众对新版iPhone没有指纹认证功能感到失望
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1536187/)
+## 2021年9月15日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1536255/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-179.png)
-（图片源自本文链接）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-9月15日朝日新闻发表了记者中岛嘉克的署名文章【日本民众对新版iPhone没有指纹认证功能感到失望】。
+9/15/2021 班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意这么干。如果中共不灭，没有人会是自由的。因此，帮助中国人灭共符合全世界所有人的自身利益。
 
-苹果公司于1月14日发布的”iPhone 13″系列智能手机因其增强的相机和其它功能而备受关注。然而，一些日本用户表达了他们的失望之情。这是因为它只有面部识别功能，没有指纹解锁功能。这可能与戴口罩防中共病毒在日本已是通常事有关。
+9/15/2021 Steve Bannon: The reason the Firewall is not taken down is that those who are colluding with the CCP in the West don’t want to do so. No one is free until the CCP is gone. So, it is in the self-interest of everyone on Earth to help the Chinese people take down the CCP
 
-中共病毒灾难已经两年了。鉴于它已经开发了很长时间，还以为它现在已经可以有指纹识别了……”IT记者石野纯也对苹果的声明感到震惊。他说，在宣布之前就有传言说没有指纹识别功能，所以这也是在预料之内。我认为美国对指纹识别的需求比日本低。
+[【2021年9月15日】文贵先生盖特原文](https://gettr.com/post/pb55yy2705)
 
-2017年，面部识别首次在iPhone X上推出。虽然通过简单地盯着屏幕来解锁手机很方便，但当你戴着口罩时就很难被识别，在这种情况下你必须手动输入密码。在日本，甚至在中共病毒恐慌发生之前，就有许多人因为花粉症而戴口罩，所以有些人说没有指纹认证功能很不方便。
+**喜联盟Gnews编辑部**
 
-一些安卓手机同时拥有指纹和面部识别功能，但iPhone只有其一。石野先生说：如果你同时拥有这两个功能，制造成本会更高。而且，别人要想知道你是用指纹还是用脸来解锁，会更困难一些。我怀疑苹果公司不想这样做。
-
-然而，自今年4月起，苹果公司已使用户即使戴着口罩也能解锁他们的手机，但需要将手机与苹果手表相连接。在日本，人们喜欢戴口罩，对指纹识别有强烈的需求，所以在社交媒体上表达了他们的失望，说：如果iPhone 13有指纹识别，我就会买。
-
-信息源：
-
-[https://www.asahi.com/articles/ASP9H5DWYP9HULFA018.html](https://www.asahi.com/articles/ASP9H5DWYP9HULFA018.html)
-
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
-+1
+0
