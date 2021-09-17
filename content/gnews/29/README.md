@@ -2,22 +2,17 @@
 ---
 
 
-## 佩洛西：中共国压制日甚，对技术数据的控制对西方构成威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1537597/)
+## 防卫相：日本决心保卫钓鱼岛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1537689/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16318464701-e1631846688947.png)
-编辑摘要：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16318481401-e1631848288587.png)
+据美国有线新闻网CNN9月16日报道，由于中共国不断在钓鱼岛附近海域动作，日本防卫大臣岸信夫表示，钓鱼岛是日本的领土，应该予以保卫。这是日本现任高官多年来罕见地在钓鱼岛主权问题上以如此明确的措词和态度表达日本的立场。
 
-据美国之音报道，美国众议院议长佩洛西9月16日在访问英国期间表示，中共国对言论自由和人权的限制越来越严重，对技术数据的控制对西方国家构成了威胁。她还对美国、英国和澳大利亚星新签署的三边安全伙伴关系表示赞赏。
+近几年，日本不断加强和扩大自卫队，配备了最先进的F-35喷气战斗机，并把军舰改造成准航母以方便F-35战机起降。同时，日本海军增添了新的驱逐舰、潜艇和各类导弹。但就军费规模来说，日本与中共国相比有着很大的差距。
 
-在英国出席七国集团议会领导人会议时，佩洛西列举了中共国在南中国海的军事侵略、对维吾尔穆斯林少数民族的种族灭绝、对西藏的限制以及对香港和中共国其他地区民主的压制。佩洛西还称赞了英国在5G网络中逐步淘汰华为设备的做法。
+岸信夫还表示，日本准备在不久的将来在石垣岛部署导弹和军队，表明 捍卫日本领土的坚定意志。中共国的挑衅使得日本不得不加强军事装备，时刻准备应付中共国可能发动的战争。
 
-中共对整个世界都是一个巨大的威胁，中共不灭，人类的灾难不止。
-
-新闻参考链接：[https://www.voachinese.com/amp/Nancy-pelosi-g7-china-tech-data-20210916/6231585.html#click=https://t.co/Hndcc4kspN](https://www.voachinese.com/amp/Nancy-pelosi-g7-china-tech-data-20210916/6231585.html#click=https://t.co/Hndcc4kspN)
-
-编辑：胖丁
-PR：
+新闻参考链接：[https://www.voachinese.com/a/Japan-Draws-Red-Line-Over-Island-Dispute-20210916/6231051.html](https://www.voachinese.com/a/Japan-Draws-Red-Line-Over-Island-Dispute-20210916/6231051.html)
 
 * * *
 

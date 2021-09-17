@@ -2,29 +2,9 @@
 ---
 
 
-## 24州总检察长警告将起诉拜登的疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1537506/)
+## 2021年09月16日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1537631/)
 
-俄罗斯莫斯科喀秋莎农场  银河
-
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/B-4.jpg)patriotrising.com
-9月16日《今日美国》报道，24个州的共和党总检察长发出警告，如果针对多达1亿美国人的中共病毒疫苗强制接种政策生效，他们将对白宫采取法律行动。
-
-“你的计划是灾难性的，适得其反。”以南卡罗来纳州总检察长艾伦·威尔逊(Alan Wilson)为首的检察官们在给乔·拜登(Joe Biden)总统的信中写道，“如果你的政府不改变路线，下面署名的各州总检察长将寻求一切可行的法律手段来追究你们的责任，维护法治。”
-
-这封信是共和党对拜登本月早些时候宣布的针对私营部门雇员、医疗工作者和联邦承包商的全面联邦疫苗强制要求的最新反对声音。
-
-共和党领导人和一些工会领袖表示，拜登在试图强迫私营企业和工人方面做得太过火了。南卡罗来纳州州长亨利·麦克马斯特(Henry McMaster)是第一个站出来说这话的人，他在推特上说，他的州将“誓死捍卫每一个南卡罗来纳州人的自由和生计”。
-
-检察官们的信中警告说，“这项法令不太可能赢得人心——它只会进一步引发人们对疫苗的怀疑”。他们指出，强制疫苗接种政策不仅是对个人自由的威胁，还会引发公共卫生灾难。
-
-检察官们提议，为了代替让他们接种疫苗或每周进行检测的要求，一些公司可以让员工远程工作而不是面对面。
-
-除了南卡罗来纳州的威尔逊，阿拉巴马州、阿拉斯加州、亚利桑那州、阿肯色州、佛罗里达州、乔治亚州、印第安纳州、堪萨斯州、肯塔基州、路易斯安那州、密西西比州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、北达科他州、俄亥俄州、俄克拉荷马州、南达科他州、德克萨斯州、犹他州、西弗吉尼亚州和怀俄明州的总检察长都在这封信上签了名。
-
-参考链接：
-
-[https://www.usatoday.com/story/news/politics/2021/09/16/biden-vaccine-mandate-prompts-lawsuit-threat-gop-prosecutors/8371377002/](https://www.usatoday.com/story/news/politics/2021/09/16/biden-vaccine-mandate-prompts-lawsuit-threat-gop-prosecutors/8371377002/)
-
+撰稿：GTV澳喜影像视频组、新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/09/917image-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/917image1-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
 0
