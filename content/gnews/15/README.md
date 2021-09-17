@@ -2,30 +2,46 @@
 ---
 
 
-## 福建疫区的孩子们展现的不是骄傲而是悲剧
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1537400/)
+## 福奇批：Nicki Minaj的疫苗说法是“错误”信息
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1537079/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2_副本.png)
-据[**环球时报**](https://weibo.com/huanqiushibaoguanwei?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年9月16日 14:10](https://weibo.com/1974576991/KyqEnCZ9r?ref=home&amp;rid=4_0_8_6667930920252609091_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+- 编译：wenwu
 
-【[#福建抗疫的这些场景让人破防#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E6%8A%97%E7%96%AB%E7%9A%84%E8%BF%99%E4%BA%9B%E5%9C%BA%E6%99%AF%E8%AE%A9%E4%BA%BA%E7%A0%B4%E9%98%B2%23&amp;from=default)】幼儿园小朋友深夜11点半做完核酸不哭不闹，7个月大宝宝乖乖配合做核酸，核酸阳性小朋友背着行李独自接受检查……[#福建的孩子懂事得让人心疼#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%9A%84%E5%AD%A9%E5%AD%90%E6%87%82%E4%BA%8B%E5%BE%97%E8%AE%A9%E4%BA%BA%E5%BF%83%E7%96%BC%23&amp;from=default) 给这些勇敢的孩子点赞！福建加油！[L人民日报的微博视频](http://t.cn/A6M7oox2) ​​​​
 
-从七个月大的婴儿到那位独行去接受检测的阳性儿童，他们正在经历的一切都是他们的父辈造成的，幼儿园小朋友一定要等到深夜11点半做完核酸吗？应该哭泣的年纪为什么不哭了呢？孩子的家长能够因为疫情的原因让孩子在幼儿园等到深夜11点半做所谓的核酸检测吗？如果你是这些孩子的父母，你会任由孩子等到凌晨一点还是把孩子领回家呢？
+安东尼·福奇博士驳斥了尼基·米娜（Nicki Minaj）关于中共病毒（COVID-19）疫苗的争议性评论。他是美国在传染病方面最有话语权的医学专家呼吁，可以指责这位嘻哈明星公开言论中，所发现的关于疫苗的“错误信息”。
 
-三个月的宝宝可以翻身，六个月的宝宝可以坐起，九个月的宝宝可以爬行，可是视频里的这个七个月大的宝宝似乎早熟到让人吃惊的程度，这个所谓七个月大的宝宝到底是十七个月大还是二十七个月大还是三十七个月大呢？不管这个宝宝的真实月龄有多大，他表现的不是早熟而是社会的摧熟。
+周一，米娜原名 Onika Tanya Maraj——在宣布她不会参加，有疫苗授权的[2021 年Met Gala](https://www.nydailynews.com/snyde/ny-nicki-minaj-met-gala-coronavirus-vaccine-mandate-20210913-xmcpfelc2zgr3nhzf5cjwsbtvy-story.html)活动，并在同一条推文中透露她没有接种疫苗之后，遭到抨击。
 
-造成孩子们凌晨一点还在班级里等待核酸检测结果的不是孩子们的勇敢，而是这个社会的无情，因为拍摄视频的不是孩子们的父母，拿孩子来制作正能量的也不是孩子们的父母，在这一场全人类有史以来最大规模的反人类的超限生物战面前，无辜的孩子们不仅成了牺牲品，而且在他们付出巨大牺牲的时候，他们还被做成了弘扬主旋律的正能量标本。
+在她的社交媒体上所分享的信息中，这位特立尼达出生的，引人注目的作词家还声称，她表弟的朋友接种了疫苗并遭受生殖器生殖副作用，此后她的表弟便拒绝接种疫苗，疫苗的副作用指的是“[睾丸肿胀](https://www.nydailynews.com/snyde/ny-nicki-minaj-swollen-testicles-tweet-covid-vaccine-20210914-6m3b6ipnzrfxjlyeknrsvs6ccq-story.html)”和“阳痿”。
 
-在这一场以孩子为秀场的反人类暴行中，这个社会是有罪的，他们用最夸张的形式把这些孩子推上了前台，孩子们的父母们不是无辜的，作为受害者的他们在不能保护自己孩子的同时也成了施害者。
+此后，一群人——包括受人尊敬的医学专家和政治评论家——纷纷谴责米娜，污蔑她试图向她的粉丝群（推特关注者2260万）散布毫无根据的说法和神话。
 
-撰稿：喜马拉雅的肉夹馍
+自从去年美国**3**月发生疫情以来，一直[站在](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)抗击[疫情最前线的](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)政客**——**福奇坚决驳斥了**“****Stupid Ho****”****（**侮辱性言语）说唱歌手的说法。
 
-审核：喜马拉雅的馍夹肉
+“没有证据表明疫苗是有这些副作用的，也没有任何机械性的理由去想象它会发生，”他在接受 CNN 的“ [The Lead](https://twitter.com/TheLeadCNN/status/1437907645910949889) ”采访时，坚定地宣称。
 
-校对：Maarago
+这位拥有几十年经验的流行病学家还强调了，在大型社交媒体平台上传播误导信息的危险，称米娜可以通过分享引发恐慌的谣言，从而地说服人们不要接种疫苗，这是错误的。
 
-（文章内容仅代表作者个人观点）
+“有很多错误的信息，主要是在社交媒体上。我们知道对抗错误和虚假信息的唯一方法是提供大量正确的信息，”这位医生说。“这些说法可能是她的随口之言。我没有责怪她什么。但是她应该三思而后行，不要传播那些除了一次性的轶事之外，而实际上没有[科学依据](https://chinese.cdc.gov/coronavirus/2019-ncov/vaccines/planning-for-pregnancy.html)的信息。这不是科学的意义所在。”
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+许多人尽管宣传了自以为是的疫苗阴谋论，这位** 38 **岁的[新妈妈](https://www.nydailynews.com/snyde/ny-nicki-minaj-kenneth-petty-welcome-first-child-20201001-rig4h64zzjebnbghxiiurm4rvu-story.html)并没有明确阻止她的粉丝接种疫苗，并表示她最终可能会接种疫苗，因为她必须继续巡回演出。
 
-0
+美国疾病控制与预防中心在（**CDC**）其最新的疫苗接种[信息页面](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/recommendations/pregnancy.html)上表示，**“**目前没有证据表明任何疫苗，包括中共病毒（**COVID-19**）疫苗，都会导致女性或男性的生育问题。**”**
+
+简评： 福奇在电视采访中把自己与科学化作等号，现在又提到科学两个词，好似一个坑连掉两次，是词穷了还是坏。值得读者思考。据《**Pagesix**》**2021**年**9**月**15**日[报道](https://pagesix.com/2021/09/15/fauci-slams-nicki-minaj-for-false-covid-19-vaccine-tweet/?_ga=2.10881588.1004738065.1631728581-1262262365.1626125565)，嘻哈女星米娜[认为](https://twitter.com/NICKIMINAJ/status/1437526035063443456?s=20)：**“**我有与该死的疫苗完全相同的症状。**”**她暗示自己曾感染过中共病毒，而且所受到的伤害同这该死的疫苗对人体的伤害是一样。当然，值得重视的是，因为疫苗公司隐瞒了临床试验时，对生育能力的影响。导致了**NIH**不得不拨款上百万美金研究这些疫苗，带给人类的生育问题，哪有比这更真实的打脸。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-2-16.png)
+
+（文章仅代表作者个人观点，与**GNEWS**无关）
+
+**新闻来源：**[《每日新闻》](https://www.nydailynews.com/snyde/ny-coronavirus-dr-fauci-nicki-minaj-covid19-vaccine-misinformation-impotence-20210915-m3fs2amqsrckrcgnnomormqt6y-story.html)｜作者：卡鲁·F.丹尼尔斯｜发布时间：2021年9月15日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+
++2

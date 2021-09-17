@@ -2,36 +2,31 @@
 ---
 
 
-## DC每日热点0916
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1537032/)
+## 台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536644/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/09/19450C27-A2D2-49A3-A8B0-352D33448DF2-scaled.jpeg)
-道琼斯指数 34717.24 ▼0.28%
-纳斯达克指数 15084.00 ▼0.51%
-WTI纽约原油CFD 71.877 ▼1.01%
-布伦特原油CFD 74.733 ▼0.96%
-美元兑人民币 1USD=6.455RMB
-美元兑港币 1USD=7.784HKD
-国际黄金 1751.22 美元/盎司
-全球CCP病毒感染人数 227,421,079 例
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-1、中共为美英与澳大利亚分享核潜艇技术而抓狂谩骂
-2、中共当局打压扩展至网络空间 香港支联会被迫删除网站
-3、美国国会正式就阿富汗撤军行动展开质询 忧虑未来如何应对中共挑战
-4、中共阻碍联合国监督朝鲜制裁小组工作
-5、超过三分之二的加州选民在州长罢免公投中投票反对，州长纽森得以完成2022年届满的四年州长任期
-6、中共官方称杨洁篪视频会见美民主共和两党代表 但未提谁是代表
-7、德国：中共国拒绝德国军舰停靠中共国港口
-8、中共国海军舰队进入美国阿拉斯加专属经济区海域
-9、美中外交拔河 王毅出访越柬新韩四国
-10、中共国取消美国订单罕见采购价格昂贵的巴西大豆
-11、马克龙宣布法军击毙大撒哈拉地区伊斯兰国恐怖组织头目
-12、欧盟决意禁止销售涉强迫劳动产品，涵盖维吾尔争议产品
-13、3千名法国医护未打疫苗遭停职
-14、以色列日感染人数创新高 或将接种第四剂疫苗
-15、美国洛杉矶县将强制推行COVID-19疫苗护照
-16、日本28年来最大规模军演登场 10兵力参演
-17、香港青少年接种复必泰改打一针 指打两针令心肌炎机会大增
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-2.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.09.16早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/61433881751e4f2b0e540858](https://gtv.org/broadcast/watch/61433881751e4f2b0e540858)
+
+编辑/校对/发稿：香草山翻译部 – Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

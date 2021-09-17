@@ -2,57 +2,31 @@
 ---
 
 
-## 中共监管风暴冲击澳门，博彩巨头股票暴跌
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1537034/)
+## 秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536897/)
 
-作者：纽约香草山农场 – 四季
+撰稿：nstar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-010723.jpg)**图片来源: F. Hoffmann-La Roche Ltd**
+制药公司罗氏(Roche)现在要求其办公室工作人员拥有病毒疫苗接种证书，更严格的措施将从9月20日开始适用。
 
+罗氏在巴塞尔雇佣的任何人不久将只能接种中共病毒疫苗、恢复或测试以后进入办公室。正如”BaZ”所写，制药公司希望引入疫苗接种证书，该措施将于2021年9月20日星期一生效。但是，它仅适用于不可以在家完成工作的员工。因此，只要您可以继续在家工作，疫苗接种证书的义务要求也可以被规避。
 
+制药公司的一位女发言人说，那些在实验室、生产或基础设施中工作的人不需要承担这项义务。
 
+自本周起，先正达(Syngenta \*2)和隆扎(Lonza \*3)在办公室工作的员工都要接受疫苗接种证书。另一方面，诺华(Novartis \*4)公司还没有要求，甚至连办公室员工也没有要求疫苗接种证书。 诺华的一位女发言人告诉记者，公司正在不断审查事态发展和当局的命令中。
 
+问题是，这在法律上是否可以允许, 尚待核实.
 
-据多家媒体报道，澳门政府从周三开始展开为期45天的“博彩法”，即第16/2001号法律的公开咨询，以便对明年6家赌场牌照到期后如何重新发放的问题征求公众的意见。这引发澳门在香港上市的6家博彩公如永利澳门、金沙中国、美高梅中国和银河娱乐的股票重挫，最高跌幅达到34%。
+*\*1 – Roche罗氏，总部位于瑞士巴塞尔的跨国医药研发生产商。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/985-1-MGM.jpg)*澳门MGM美高梅赌场（AFP via Getty Images）*
+*\*2 – Syngenta先正达 集团是国际领先的农业技术提供商，尤其是种子和作物保护产品，总部设在上海，并在巴塞尔、芝加哥和特拉维夫设有分支机构。 4先正达成立于2000年，2015年被中国化工集团公司收购。 2020年，先正达与姊妹公司阿达玛和中化集团下属的农业活动合并。*
 
-面对中共针对澳门这个准独立赌博中心，进行的新的赌博监督打压，一些分析师，如摩根大通迅速下调了所有澳门赌场的评级，因为它们都必须重新竞标其牌照。
+*\*3 – Lonza隆扎一家总部位于巴塞尔的瑞士化学和制药公司.*
 
-在周二的发布会上，澳门经济财政司司长雷鸣列出了九个需要监督的领域，如牌照数量、更好的监管和员工福利，同时让政府代表监督赌场的日常运营。
+*\*4 – Novartis诺华制药集团，是一间总部位于瑞士巴塞尔的跨国制药及生物技术公司。它的核心业务为各种专利药、消费者保健、非专利药、眼睛护理和动物保健等领域。*
 
-中共的大湾区计划就是将香港和澳门的所有优势窃为己有。而今年以来，北京对中共国许多行业的民营企业进行整顿治理，其中一个重要目标就是对所称的“无序”资本运作进行清理和整顿。这些行动不仅对相关行业造成了巨大的冲击，而且给这些行业的大型企业带来了重大的经济损失，数十万亿元的市值瞬间蒸发。
-
-（本文仅代表作者观点）
-
-**原文阅读：**
-
-1. [Macau Casino Stocks Tumble As Beijing Launches Crackdown On World’s Biggest Gambling Hub | ZeroHedge](https://www.zerohedge.com/markets/macau-casino-stocks-tumble-beijing-launches-crackdown-worlds-biggest-gambling-hub)
-2. [中共监管风暴冲击澳门 博彩巨头股票集体跳水 (voachinese.com)](https://www.voachinese.com/a/Macau-kicks-off-public-gaming-consultation-ahead-of-casino-rebidding-20210915/6229518.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
-
-
+**[信息来源](https://telebasel.ch/2021/09/15/roche-fuehrt-zertifikatspflicht-fuer-mitarbeitende-ein/?channel=105100#comments-exp)**
 
 0

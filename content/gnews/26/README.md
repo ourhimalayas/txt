@@ -2,31 +2,67 @@
 ---
 
 
-## 秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536897/)
+## Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1537199/)
 
-撰稿：nstar
+制作：秘翻原创组-秘翻盖视
+责编：Shifter
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-09-16-at-3.43.33-PM.png](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-16-at-3.43.33-PM.png)图片来源：视频截图
+Tucker Carlson：在集中的技术监控与广泛的社会服从
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-010723.jpg)**图片来源: F. Hoffmann-La Roche Ltd**
-制药公司罗氏(Roche)现在要求其办公室工作人员拥有病毒疫苗接种证书，更严格的措施将从9月20日开始适用。
+In a moment of centralized tech surveillance combined with mass social conformity
 
-罗氏在巴塞尔雇佣的任何人不久将只能接种中共病毒疫苗、恢复或测试以后进入办公室。正如”BaZ”所写，制药公司希望引入疫苗接种证书，该措施将于2021年9月20日星期一生效。但是，它仅适用于不可以在家完成工作的员工。因此，只要您可以继续在家工作，疫苗接种证书的义务要求也可以被规避。
+这正是身处我们现在生活的国度所面对的现实……
+and that’s exactly the country we’re living in right now……
 
-制药公司的一位女发言人说，那些在实验室、生产或基础设施中工作的人不需要承担这项义务。
+并且由于强制疫苗规定
 
-自本周起，先正达(Syngenta \*2)和隆扎(Lonza \*3)在办公室工作的员工都要接受疫苗接种证书。另一方面，诺华(Novartis \*4)公司还没有要求，甚至连办公室员工也没有要求疫苗接种证书。 诺华的一位女发言人告诉记者，公司正在不断审查事态发展和当局的命令中。
+and thanks to vaccine mandates
 
-问题是，这在法律上是否可以允许, 尚待核实.
+我们已经认可了你不能掌控你自己的身体
 
-*\*1 – Roche罗氏，总部位于瑞士巴塞尔的跨国医药研发生产商。*
+we’ve established that you are not in control of your own body.
 
-*\*2 – Syngenta先正达 集团是国际领先的农业技术提供商，尤其是种子和作物保护产品，总部设在上海，并在巴塞尔、芝加哥和特拉维夫设有分支机构。 4先正达成立于2000年，2015年被中国化工集团公司收购。 2020年，先正达与姊妹公司阿达玛和中化集团下属的农业活动合并。*
+你凭什么掌控你孩子的身体？
 
-*\*3 – Lonza隆扎一家总部位于巴塞尔的瑞士化学和制药公司.*
+what gives you the right to control your child’s body?
 
-*\*4 – Novartis诺华制药集团，是一间总部位于瑞士巴塞尔的跨国制药及生物技术公司。它的核心业务为各种专利药、消费者保健、非专利药、眼睛护理和动物保健等领域。*
+这是个好问题
 
-**[信息来源](https://telebasel.ch/2021/09/15/roche-fuehrt-zertifikatspflicht-fuer-mitarbeitende-ein/?channel=105100#comments-exp)**
+That’s a good question
+
+正如乔·拜登本人周四向全国所说的
+
+As Joe Biden himself told the country on Thursday
+
+这（强制疫苗）与自由无关
+
+this is not about freedom
+
+这是真的。这与自由无关……
+
+And that’s true. It’s not about freedom…….
+
+我国当局
+
+that authorities in this country,
+
+违背美国公民的意愿对他们进行了强制绝育和脑叶切除
+
+forcibly sterilized and lobotomized American citizens against their will.
+
+为什么？以公共健康的名义
+
+Why? In the name of public health.
+
+顺便说一下 可不仅仅是少数几个人
+
+And it wasn’t just a few people by the way,
+
+而是很多人
+
+it was a lot of people
+
+(秘翻盖视仅为传播之用不拥有原视频版权）
 
 0

@@ -2,41 +2,36 @@
 ---
 
 
-## 韩国金融服务委员会监管改革,本国大部分加密货币交易所将停业
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536821/)
+## DC每日热点0916
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1537032/)
 
-作者：香草山教育部-浪迹天涯
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/09/19450C27-A2D2-49A3-A8B0-352D33448DF2-scaled.jpeg)
+道琼斯指数 34717.24 ▼0.28%
+纳斯达克指数 15084.00 ▼0.51%
+WTI纽约原油CFD 71.877 ▼1.01%
+布伦特原油CFD 74.733 ▼0.96%
+美元兑人民币 1USD=6.455RMB
+美元兑港币 1USD=7.784HKD
+国际黄金 1751.22 美元/盎司
+全球CCP病毒感染人数 227,421,079 例
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/韩国金融服务委员会监管改革预计将关闭本国大部分加密货币交易所.png)
-
-据Bitcoin.com网站9月14日报道，韩国金融服务委员会(FSC)即将针对数字货币的监管进行改革。由于无法遵守金融服务委员会发布的新监管框架，韩国60家交易所中的40家将被关闭。
-
-据悉，此项改革规定所有交易所都需要在FSC注册，才能获得在韩国的运营资格。该规定的截止日期为明年9月24日。法律规定，加密交易所必须与银行机构合作，为客户开设实名账户。然而，为避免洗钱的嫌疑，银行拒绝这种做法。这项规定不仅波及韩国本土的交易所，国际交易所也将受到影响。
-
-这项规则将使韩国客户流向有资质的加密货币交易所，而我们喜马拉雅交易所既有资质，也符合这些规则。相信喜马拉雅交易所在韩国上市后，将会受到更多韩国客户的青睐。
-
-（文章仅代表作者个人观点）
-
-参考链接：[FSC Regulatory Overhaul Expected to Shut Down 40 Crypto Exchanges in South Korea](https://news.bitcoin.com/fsc-regulatory-overhaul-expected-to-shut-down-40-crypto-exchanges-in-south-korea/)
-
-编辑/校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+1、中共为美英与澳大利亚分享核潜艇技术而抓狂谩骂
+2、中共当局打压扩展至网络空间 香港支联会被迫删除网站
+3、美国国会正式就阿富汗撤军行动展开质询 忧虑未来如何应对中共挑战
+4、中共阻碍联合国监督朝鲜制裁小组工作
+5、超过三分之二的加州选民在州长罢免公投中投票反对，州长纽森得以完成2022年届满的四年州长任期
+6、中共官方称杨洁篪视频会见美民主共和两党代表 但未提谁是代表
+7、德国：中共国拒绝德国军舰停靠中共国港口
+8、中共国海军舰队进入美国阿拉斯加专属经济区海域
+9、美中外交拔河 王毅出访越柬新韩四国
+10、中共国取消美国订单罕见采购价格昂贵的巴西大豆
+11、马克龙宣布法军击毙大撒哈拉地区伊斯兰国恐怖组织头目
+12、欧盟决意禁止销售涉强迫劳动产品，涵盖维吾尔争议产品
+13、3千名法国医护未打疫苗遭停职
+14、以色列日感染人数创新高 或将接种第四剂疫苗
+15、美国洛杉矶县将强制推行COVID-19疫苗护照
+16、日本28年来最大规模军演登场 10兵力参演
+17、香港青少年接种复必泰改打一针 指打两针令心肌炎机会大增
 
 0

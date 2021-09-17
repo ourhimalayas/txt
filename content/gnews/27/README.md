@@ -2,31 +2,41 @@
 ---
 
 
-## 台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536644/)
+## 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1536634/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
+**By:秘翻新闻**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-2.png)
-文章仅代表作者本人观点，与Gnews无关
+***2021-9-16***
 
-视频参看：2021.09.16早GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/61433881751e4f2b0e540858](https://gtv.org/broadcast/watch/61433881751e4f2b0e540858)
 
-编辑/校对/发稿：香草山翻译部 – Lakers
+**新闻摘要:**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
+1、 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
 
-**更多资讯，更多关注**
+2、恒大员工爆料：许家印妻子及高管均提前兑付
 
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+3、中共国育龄夫妇不孕不育率高达12%至18%
 
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+4、教育系统疫苗接种率超90%  面对疫情却如临大敌
 
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+5、最新消息：英格兰有30305人接种中共疫苗后21天内死亡
 
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+6、美英澳首脑宣布技术共享 联合抗共
 
+7、美SEC主席警告：270家中企有摘牌风险
+
+8、未接种疫苗的法国医护人员将面临被停职的处罚
+
+9、印度发现致命尼帕病毒感染病例
+
+**GTV链接：**[https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a](https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
 0

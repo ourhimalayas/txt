@@ -2,49 +2,36 @@
 ---
 
 
-## 科默议员要拜登提供病毒溯源报告的原始情报
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1537206/)
+## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/C-4.jpg)govexec.com
-拜登政府配合中共，利用阿富汗乱局，搭上了13名美军人的命，丢下850亿美元的军事装备，成功地将美国人的注意力从中共病毒溯源、追责上转移开，“病毒源头没定论、不是生物武器有了结论、中共领导不知情”，公布于众的1页零几行的报告摘要，这几条赫赫在目，稍微了解中共邪恶的人就能看出其中用意，拜登还假惺惺地表示，这个报告我不满意，世卫组织一定要进行第二次调查……作足了秀，演足了戏。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
 
-但是，相信有人不会忽略已经造成68.5万（写稿时的数据为685,328人【1】）美国人死亡的中共病毒的溯源问题。
 
-《新闻纵横》（Newsmax）发表文章，题目“国会众议员科默（Comer）要求拜登提供（那份）不确定的中共病毒来源报告中的情报”。【2】
+[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
 
-全文如下：
+[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
 
-众议院监督和改革委员会（the House Committee on Oversight and Reform）的高级成员要求提供用于编制出那份关于中共病毒起源不确定报告的“所有原始情报”。
 
-肯塔基州众议员詹姆斯·科默（James Comer）于周三（9月15日）致函美国国家情报总监艾薇儿·海恩斯（Avril Haines），要求提供情报机构报告所依据的“所有原始情报报告、会议记录和电子邮件”。
 
-8月27日发布的那份报告没有对病毒的起源作出结论性的评估。
-
-《政治》（Politico）杂志称，“不幸的是，对中共病毒起源的报告（评估）只给美国公众提供了一份模糊的、两页未分类的摘要，这会造成更多的混乱。”科默在给海恩斯的信中写道，“这是一种不可接受的作法，会使美国人民对我国为下一次疫情所做的准备信心不足。”
-
-科默告诉海恩斯，要求的文件应在9月29日前提交给委员会。
-
-这份报告是在乔·拜登下令对中共病毒的起源进行评估后完成的，调查结果以“中等置信度”进行评估，认为中共病毒来自武汉病毒研究所，尽管报告中提到的四个未具名的情报机构无法就病毒的起源达成一致。
-
-科默在8月30日的一份声明中说：“拜登政府未能就中共病毒的起源给出明确的结论，这更加表明需要立即由国会来领导进行调查。”共和党人一再呼吁民主党人加入我们的努力，但他们拒绝了。
-
-“中国共产党花了近两年时间误导世界，传播宣传，故意隐瞒中共病毒的严重性，如果不就这一种夺走数十万美国人生命的病毒追责中共，这将是这个机构的污点。该是民主党加入我们的行列，来追究中共为掩盖真相承担责任的时候了。”
-
-科默周三（9月15日）告诉《新闻纵横》，他和共和党同僚、众议员史蒂夫·斯卡利斯（Steve Scalise，R-La.）正在向美国食品和药物管理局（FDA）索取有关拜登推动疫苗加强针接种的文件，以便他们能够确定拜登此要求的动机。
-
-“乔·拜登已经任职八个月了，他从未提名过食品和药物管理局（FDA）官员。”科默在周三（9月15日）的《唤醒美国》（Wake Up America）节目中说。“他身边有一群职业官僚，看来他正试图在这个加速疫苗接种问题上采取强硬手段。”
-
-（全文完）
-
-很高兴能看到美国最高立法者有这样的认知，“中国共产党花了近两年时间误导世界，传播宣传，故意隐瞒中共病毒的严重性，如果不就这一种夺走数十万美国人生命的病毒追责中共……”看上去科默议员也意识到了中共对情报机构的渗透，表示出了对这个遭中共蓝金黄的重灾区的不信任，“拜登政府未能就中共病毒的起源给出明确的结论，这更加表明需要立即由国会领导进行调查。”
-
-有关链接：
-
-【1】[https://www.worldometers.info/coronavirus/](https://www.worldometers.info/coronavirus/)
-
-【2】[https://www.newsmax.com/newsfront/rep-comer-intelligence-covid/2021/09/16/id/1036679/](https://www.newsmax.com/newsfront/rep-comer-intelligence-covid/2021/09/16/id/1036679/)
-
-0
++21

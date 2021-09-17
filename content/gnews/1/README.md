@@ -2,26 +2,59 @@
 ---
 
 
-## 陈元、张宏伟拿到人类史上最大单笔佣金1200亿美元
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1537442/)
+## G Times: How do you train your brain?
+` GISELLE` [轉載自GNews](https://gnews.org/1537463/)
 
-**作者：奥克兰伊甸农场亚伦**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片-1-10.jpg)
-**文贵先生补充道，现在看来，这一单****1200****亿美元的佣金，一定会改变中共政治的格局，而且一定伴随着一场大屠杀。沙特跟中方的这笔交易，第一个字，第一张纸，第一稿，就是文贵先生的基金出的方案。最终通过调查后发现，这****1200****亿美元佣金是让陈元和张宏伟拿走了。**
+**Author/Picture Design: Giselle**
 
-**这个钱的去向是从巴基斯坦的石油公司，新加坡的多方石油公司，到张宏伟的东方石油、东方能源。陈元不仅彻底控制张宏伟，还能通过张控制民生，还能彻底控制国开行才在海外玩这么大。国家开发银行是给共产党的创始人洗劫国家资金的平台，陈元认为他爹陈云是中共的创始人，所以他值得拥有一个国开行，可以在全世界蓝金黄，成为所谓的一带一路的护驾者，和人民币国际化的重要推手。太子党里，拥有像陈元的财富金融驾驭能力的，几乎数不出四个来。**
+**Translation: XiaoYu**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/心灵-梨花-2.png)
+**Why should we train our brains?**
 
-**1200****亿美元有多大？之前号称世界最大的偷盗腐败刘特佐的案子，招摇的刘特左到处玩好莱坞明星、玩歌星，在飞机上、游艇上约炮，最后涉案价值也就才****100****多亿美元。沙特这一单****5000****亿美元现金的投入产生了****1.2****万亿美元的交易，换得沙特未来几十年卖给中共石油全用人民币交易。这么大的零成本一笔佣金永远是合法的，因为是中介费的形式拿到的。**
+Hu Shi talked about this issue when he delivered a speech at the Purdue University graduation ceremony in the United States in 1941.
 
-**这其中的****1200****亿里有****200****亿美元是给江志成的，因为江志成是参与谈判的最重要的代表。张宏伟负责往外搬钱，最后，只有比特币能藏下这笔钱（比特币是****4%****的人手里掌握****96%****的币）。拥有这****1200****亿美元不用纳税，高抛低买，而其他人投入到比特币的钱都会被洗空的。共产党的一带一路，不是中国普通人民的，是共产党几个家族的一带一路，所有这些沿途国家的政治关系，受几个家族控制。**
+He believed that a person with a trained mind will be critical and objective when making observations, based on relevant knowledge and learning.
 
-**联系到大湾区计划，就是要人民币国际化，建立前海经济开发区就是第一炮。中共在前海强令使用数字人民币和人民币，把港币废掉。虚拟货币国际化，就直接走向了一带一路，剑指美元货币流通地位。全世界的能源大战，亚洲所有的国家都会跪下，人民币数字化的全面铺开目的在于去美元化。**
+He will not be swayed by prejudice and personal interest. He remains curious. He will not simply trust authority and experts. And he will not jump  to conclusions. And he will not easily follow the opinions of others. He can think independently, judge objectively, and reason systematically.
 
-**所以这么看，1200亿美金，是洒洒水的小钱了。**
+You might perhaps think that Hu Shi’s view is too academic and unfounded…most people are exhausted and busy with their livelihoods every day. How can there be so much idle time to train their brains? As far as they are concerned, it is not their business to be able to think independently, judge objectively and reason systematically.
 
-【文章仅限作者个人观点 不代表GNEWS平台】
+Say if training the brain can save lives at critical moments, would you still think it is not important? Look at the many suffocated office workers on the Zhengzhou subway, the corpses in the Beijing-Guangzhou tunnel, and the people all over the world lining up to receive the deadly poisonous injection. Do you still think that training your brain doesn’t matter?
 
-审核校对：Barry Jack
-上传排版：F
+The best self-rescue is to try not to let yourself fall into desperation. It is to actively break the window before the subway is flooded, to escape as soon as possible before the tunnel is inundated. When the media, government, and high-tech biological companies are devastatingly propagating poisonous injections. Bravely resist…sniff out danger and avoid risks early.
+
+**So, how do we train our brains?**
+
+1. **Know your own personality and accept your own “uniqueness”.**
+
+——Often, it is not you who have the problem, but the surrounding environment. For example, in “The Emperor’s New Clothes”, when everyone is lying and pandering to power, the sincerity in you will confront the surrounding environment. At this time, can you remain true to yourself?
+
+Keep your own personality, do not follow the crowd, do not follow the trend, keep a clear, rational, and objective analysis at all times. When personality conflicts with practicality, give your personality the space it deserves.
+
+Cherish your personality. It is the foundation of innovation. The mediocrity of a group is composed of a number of mediocre individuals. Maintaining your personality may make you a “heresy”, but this is precisely what distinguishes you from everyone else.
+
+**2. A person should have a career as well as an interest.**
+
+——Interest will make your life more interesting and happier. British philosopher Mill, was the secretary of the East India Company; another philosopher Spencer, was a survey engineer; politician Churchill was accomplished in literature and history…
+
+Interest is the best teacher. It will steer you towards using your brain and enjoying the process while you are at it.
+
+Use your own interests to prepare yourself for those  “odd and gruelling diseases”, and try to find solutions. Constantly build on your ability to solve problems.
+
+**3. Embark routinely on knowledge training and persistently increase your knowledge reserve.**
+
+—— Hu Shi said in a 1926 Chinese public school’s 18th grade graduation speech: “Don’t abandon your knowledge. Read 10 pages of worthy  books every day. In one year you would have read 3650 pages. In 30 years ,110,000 pages.”
+
+A wealth of knowledge reserves puts you on a certain level when looking at problems, and when making judgments and providing feasible solutions which are based on theoretical foundations
+
+Knowledge is a tool for training the brain, and abandoning knowledge destroys the brain.
+
+**4. Preserve your curiosity and desires to explore the unknown world.**
+
+——The demise of the ancient Roman Empire certainly had military, political, and religious reasons. Nonetheless, the imperial nobles were not enterprising, lacked curiosity, and there was a lack of exploration in unknown areas…more key reasons for the empire’s decline —— The upper class at that time wandered around the Colosseum partaking in banquets, engaging in blackmail and profiteering. They had no interest in understanding the international environment of the times, nor did they want to explore the mysteries of the ocean. Even the supplies of medicine and doctors were entrusted to Greek slaves.
+
+They never did understand: innovation is productivity and innovation is competitiveness. To buy talents from others is to trample on your own talents.
+
+**(The content of the article only represents the author’s personal views)**
 
 0

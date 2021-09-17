@@ -2,23 +2,45 @@
 ---
 
 
-## 秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536635/)
+## 视频| “跨国议会联盟”声援立陶宛与台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536581/)
 
-#### 翻译撰稿：zzballack
+制作：香草山健身部-书记己嗝屁！
 
-#### 校对发布：文柯Miles
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/sadft45y65i8o9p4y45y6587oi78k78i.png)图片来源：NBA.com
 
-《零对冲》（Zerohedge）9月14日报道，由于NBA球员工会（NBPA）拒绝在球员是否强制接种中共病毒疫苗的问题上让步，他们认为任何要求接种疫苗的提议都是不可接受的，所以NBA球员不会被要求强制接种疫苗。NBPA和NBA将继续就2021-22赛季的中共病毒相关协议和程序进行谈判。
 
-一位联盟发言人最近表示大约85%的球员都接种了疫苗。ESPN 9月初获得的一份初步备忘录透露，联盟为未接种疫苗的球员制定了一套严格的规定。这些规定包括将其储物柜放置在远离已接种疫苗队友的地方，而且必须在不同的区域吃饭、坐飞机和乘坐大巴车。这些协议不是最终的，仍需与球员工会进行谈判。
 
-纽约尼克斯，布鲁克林篮网和金州勇士这三支球队包括球员在内的所有成员，需要遵从其所在城市纽约和旧金山的政府规定接种疫苗，如果未接种将无法进入他们的主场球馆或者球队的训练馆，除非有批准的医学或者宗教豁免。
 
-联盟上月末还曾发通知说，任何在比赛期间靠近球员或官员15英尺范围内的人，都必须在10月1日前完成疫苗接种。
 
-新闻来源：[**NBA Won’t Impose Vaccine Requirement On Players After Union ‘Refused To Budge’**](https://www.zerohedge.com/covid-19/nba-wont-impose-vaccine-requirement-players-after-union-refused-budge)
+
+
+
+由国际跨党派议员组成的“对华政策跨国议会联盟”周一在推特上贴出视频，表达他们与立陶宛和台湾站在一起，对抗中国胁迫外交的立场。
+
+包括欧洲议会、立陶宛、英、法、丹麦、瑞典等欧洲多国，以及日本、澳大利亚和新西兰的各国国会议员们，在该视频中以接力方式分别发言，呼吁全球民主盟友团结一致，谴责中共政府对立陶宛的威胁恫吓，以及利用经济手段胁迫弱小国家的黑帮式卑劣外交行径。
+
+
+
+**文字版原文：[“跨国议会联盟”声援立陶宛与台湾](https://gnews.org/zh-hans/1532844/)**
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

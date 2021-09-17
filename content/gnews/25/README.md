@@ -2,47 +2,193 @@
 ---
 
 
-## FDA高级官员辞职与毒苗计划崩溃前夕的关系
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1537319/)
+## 共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537414/)
 
-翻译/简评： 加拿大草原三省战友之家 文莱
-![](https://assets.gnews.org/wp-content/uploads/2021/09/shutterstock_1680091963-copy.jpg)图片来源：chinese.aljazeera.net
-根据《零对冲》（ZeroHedge）记者泰勒·杜登（ Tyler Durden ）09月16日报道，两位来自食品和药物管理局（FDA）专职负责中共病毒疫苗研究和管理的高级官员马里恩·格鲁伯（ Marion Gruber ）和菲利普·考斯（ Phillip Kause ）在上周辞职，随后便在《柳叶刀》（ The Lancet）发表了一个论文，文章中强烈警告不要接种中共病毒疫苗。这是一个显著的现象，从中可以分析出政府管理的中共病毒缓解项目正处于崩溃前的最后阶段。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ahi4f-ek3kl-1.jpg)
+[https://gtv.org/video/id=6142083b784c5a258356c66b](https://gtv.org/video/id=6142083b784c5a258356c66b)
 
-来自伦敦帝国理工学院（ Imperial College）的尼尔·弗格森（Neil Ferguson）和美国国家卫生研究院（NIH）的安东尼·福奇（Anthony Fauci）已经开始推广中共病毒疫苗的加强剂，即使公众对其“专家”建议的怀疑情绪日益高涨。而对于两位辞职的FDA高级官员来说，他们公开了对于毒苗加强剂的严重疑问，并且他们的观点得到了以色列目前惨痛状况的验证，同时也否定了负责毒疫苗专家的权威。
+**字幕内容:**
 
-所以问题的关键是什么？这不仅仅是简单的加强剂的问题。它关系到从个人和医疗专业人员手中抢夺公共健康管理的控制权，并将其移交给具有强制力的建模者和政府官员的手中。美国从2020年03月的第一周就着手开始了一场疯狂的中共病毒缓解实验，在此过程中，政府部署了一系列措施，其范围之广是以前从未尝试过的，现代与古代都从来没有发生过。一连串的控制战术是很漫长的，其中许多措施在美国的大部分地区仍然存在。零售领域仍然布置了隔档玻璃、人们仍然需要在进入公共室内时对自己进行消毒、人们仍然需要戴着口罩或者面具、而世界上被洗脑的人们仍在积极羞辱和谴责任何被怀疑不遵守规定的人。
+**郭文贵
+Miles Guo**
 
-疫苗的推广计划极具分裂性，因为拜登总统积极鼓励社会可以对那些没有接种中共病毒疫苗的人表达“愤怒”，即使他拒绝承认感染后产生的自然免疫力的存在。在一些城市，拒绝接种毒疫苗的人被剥夺了积极参与公民生活的权利，一场民粹主义运动正在兴起，其目的是将拒绝接种者作为替罪羊，并将其归为中共病毒继续存在的唯一原因。
+这个我跟大家说一下
+Esto debo decirles
 
-所有这些措施都是在控制浪潮中一步步部署的。这一切都始于活动被迫取消和学校关闭。政府继续实行旅行禁令，并且很多地区仍在实行中。一系列的措施随即被强制执行。强制人类隔离的原则是制约社会互动，室内的人口容量限制是一个常见的特征。而美国“先驱”的例子启发了世界上许多政府采用这些非药物干预（NPIs）手段，并剥夺了人民的自由。
+这个很多问题啊
+Hay muchos problemas
 
-在每个控制阶段中，政府都宣称他们终于找到了最终能减缓和阻止中共病毒传播的关键技术。但是事实证明，这些都没有任何效果，并且根据数据来看，采取这些强制措施的地区都没有减缓的趋势。以色列8月份的感染激增是全面接种疫苗的最好验证之一，英国和苏格兰的情况也是如此，而且这个确切的趋势在9月份开始袭击美国。不过与此同时，以色列科研团队发现自然免疫力的保护远远多于毒苗所赋予的保护措施。
+包括台湾的问题
+Incluyendo el problema de Taiwán
 
-在这19个月中，人们没有看到任何政府官员明确承认失败，反而是这些机构加倍努力、在没有引用任何数据或研究的情况下公然宣称其毒苗的有效性，而社交媒体公司则通过撤下反面帖子并厚颜无耻地删除敢于引用不同科学意见的个人账户来支持这谬论。
+黑天鹅的问题
+El problema del cisne negro
 
-现在，FDA负责疫苗安全和管理的疫苗研究办公室主任兼副主任格鲁伯和考斯原定于10月和11月辞职离开，不过他们没有说明他们辞职的理由。这是一个非常引人注目的情况，因为除非**私营部门有高薪、高声望的工作，否则人们很少辞去轻松的政府工作**，而且对于**任何坚持因科学原则问题而辞职的人来说，这着实非常罕见**。
+我们本来今天还有很多要讲的
+Nosotros ibamos a decir muchas cosas más
 
-对于在官僚机构中工作的实际科学家来说，这是一个深层次的问题，因为他们直到这一切都是一个幌子，政府无法赢得这场针对中共病毒的战争，所以这些科学家在必须逃脱之前投下了一枚炸弹。这个炸弹被称为“**提高中共病毒疫苗免疫反应的考虑因素**”。这篇文章刊登于《柳叶刀》上，而且这两位高管皆是作者。文章强烈反对中共病毒疫苗的加强针。但是拜登政府却听从了福奇的建议，他们认为加强剂是政府挽回面子的一种手段。
+黑天鹅的问题绝对是对习和共产党是一个很大的震撼
+El problema del cisne negro seguramente fue un impacto para Xi y el PCCh
 
-现在的问题是FDA的科学家们认为推动加强针的做法是在招惹麻烦，因为没有足够的证据表明人们需要冒着风险不断地接种加强针。而两位辞职的高级官员明白在FDA下属机构签署这篇文章会导致他们被要求辞职，所以他们两个人在文章发表之前就辞职了。这篇署名的文章进一步警告了毒疫苗的危害：“同时，有可能出现的副作用可能使所有疫苗在很长的时间里失去信誉价值，并且加强针的广泛引入将会引起免疫介导的副作用如心肌炎、吉兰巴雷综合征”。
+他们信邪
+Ellos creen en el mal
 
-从政府强制施行紧闭开始直到今日的加强针，总有一天地狱之灾会显现出来。政府破坏了人民的权利和自由，他们使经济崩溃，使整整一代儿童收到创伤，对宗教自由肆意妄为，并且没有任何证据表明这一切有何改变。人类正在被他们制造的大屠杀所包围。现任政府想把矛头指向不遵守规定的人。这一论点已经失去了公信力，并且他们无法把不可避免的灾难掩盖的太久，这场灾难的责任最终属于那些进行这种政治实验的人。
+不是说他不信邪
+No digo que no cree en el mal
 
-评：
+他信邪
+Él cree en el mal
 
-邪恶的黑暗精英势力与中共的合作正在消灭世界善良的生命，但是有良知的正义人士也在加速觉醒中。笔者认为美国并不是实施强制令的国家，中共国才是首个通过强制措施限制人民自由的国家。2020年初，武汉就是最好的例证。当时的世界面对武汉的封锁是持有怀疑且嘲讽的态度，但是中共通过其超限战的威力向世界“证明了” 强制封锁的“有效性”，随后世界各国的腐败政府纷纷效仿以加强自身的政治控制力与影响力。随后中共病毒疫苗的推广又是世界腐败集团与中共合作的计划，中共国利用其防火墙和信息封锁的”优势“再次欺骗了无知的人民，人民听信于各国政府争先恐后的牺牲自己宝贵的生命。
+但是呢有很多的党内的
+Sin embargo, hay muchos que están en el partido
 
-郭先生开创的爆料革命自2017年不断地唤醒有缘的正义人士，而前几日的解药与疫苗的爆料正在加速缓解这一惨剧，日本、印度与南美一些国家引用了伊维菌素等一系列药物后，中共病毒的肆虐的确得到了有效的控制。笔者希望惨剧结束前的代价可以降到最小化。
+像江, 曾
+Como Jiang, Zeng
 
-（以上观点皆个人观点，与平台无关）
+还有像张德江,李长春
+Y también Zhang Dejiang, Li Changchun
 
-新闻链接：
+宋平
+Song Ping
+听说若干人
+Escuché a algunas personas
 
-[The Meaning Of The Recent FDA Resignations | ZeroHedge](https://www.zerohedge.com/political/meaning-recent-fda-resignations)
+包括江海洋 (似口误,可能是张海阳)
+Incluyendo a Jiang Haiyang (parece ser un error, puede ser Zhang Haiyang)
 
-* * *
+都给习写信
+Escribieron una carta a Xi
 
-编辑、发布 ctt
+建议中共中央
+Sugiriendo al Comité Central del Partido Comunista de China
 
-+2
+由于2022年冬季奥运会
+Por los Juegos Olímpicos de Invierno de 2022
+
+还要想办法要举办成功
+Debe buscar la manera para realizarlo satisfactoriamente
+
+这是解决世界国际形势
+Esto es para resolver la situación internacional del mundo
+
+对我不利的这种环境下
+Bajo la condición desfavorable para mi
+
+要争取召开成功的2022年的冬奥会
+Hay que luchar por el éxito de los Juegos Olímpicos del Invierno de 2022
+
+这个冬奥会呢, 很重要
+Este Juego Olímpico del Invierno es muy importante
+
+这段时间不要对台湾有动作
+En estos tiempos no deben tener ninguna acción hacia Taiwán
+
+建议呢, 还是给台湾施压
+Les recomendo, igual sigan dando presión a Taiwán
+
+让台湾内部乱
+Provocando desorden dentro de Taiwán
+
+然后把它经济上
+Luego causando desorden en la parte económica
+
+民生上, 社会状态上弄乱它
+Sustento de las personas y en su estado social
+
+然后这个一说出来呢
+Después al decir esto
+
+习还是挺听的
+Xi lo escuchará
+
+习还是挺听的
+Xi lo escuchará
+
+哎 就是啊
+Ah, así es!
+
+这个冬季奥运会还是要搞的
+Igual hay que hacer algo con estos Juegos Olímpícos del Invierno
+
+然后再一个就是跟美国
+Luego vienen con EE. UU
+
+还是要想尽办法
+También se busca cualquier manera
+
+就是要跟它谈
+Para hablar con él
+
+还是对付川普的招, 跟你谈
+Hicieron el mismo truco con Trump, conversar contigo
+
+用谈来恢复信心
+Utilizan el diálogo para reestablecer la fe
+
+用谈来争取主动
+Para ganar la iniciativa
+
+然后这个主动权在我方
+Entonces esta iniciativa está de nuestro lado
+
+为什么呢
+¿ Por qué?
+
+因为拜登的民声不行
+Porque la reputación de Biden no es buena
+
+川普2022年中期大选要回来
+Trump regresará a la elección general de la mitad del período 2022
+
+美国内部的钟摆政治效应对我有利
+El efecto político del péndulo en Estados Unidos me beneficia
+
+而且美国经济必将走软
+Y la economía de Estados Unidos está destinada a debilitarse
+
+这对我有利
+Esto me beneficia
+
+国际的邪恶势力
+Fuerzas del mal internacional
+
+不会给你共产党太多机会的
+No le dará mucha oportunidad al PCCh
+
+他一定戳着共产党
+Él seguramente empujará al Partido Comunista
+
+还有这5个国家的邪恶势力
+Y la fuerza maligna de estos cinco países
+
+按照他们既定的计画方针
+De acuerdo con su plan establecido
+
+打台湾, 收香港
+Atacar a Taiwán y recoger a Hong Kong
+
+干美国
+Acabar con EE. UU
+
+他们一定会干美国的
+Ellos seguramente acabarán a EE. UU
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24](https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场发布 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
+0
