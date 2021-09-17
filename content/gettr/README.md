@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/17/2021 10:41 PM (UTC)`
+
+9/17/2021 Miles Guo: Wang Qishan inherited the evil organization’s assets under the name of Yao Yilin, and the international financiers are aware that the evil forces in the Communist China are sucking the Chinese Lao Baixing’s blood through the CCP!<br/><br/>9/17/2021 文贵直播：王岐山继承了邪恶组织在姚依林名下的资产，而国际上的金融家也很清楚，中共国的邪恶势力通过共产党来吸老百姓的血！<br/>
+![img](https://media.gettr.com/group12/getter/2021/09/17/22/a809af03-bf6e-e583-7c08-be9f06571248/out.jpg)
+
+---
+
 `@miles 9/17/2021 10:19 PM (UTC)`
 
 新直播链接：新中国联邦贺马丁.班农先生100岁生日<br/><br/>GTV link: https://gtv.org/broadcast/watch/614501f142a8af3151a07333
@@ -293,13 +300,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/14/2021 Miles Guo: For the first time, I proposed “Taking Down the CCP with the Truth of COVID Vaccines”, so that the people of the world would stand together with the Whistleblowers’ Movement in exposing and eliminating the threat of vaccines. This also means the Whistleblowers’ Movement has begun fighting with the dark forces of the world that are trying to continue to enslave the Chinese people!<br/><br/>9/14/2021 文贵直播: 文贵先生首次提出“以(疫)苗灭共”，让世界人民和爆料革命一起揭露并消灭疫苗对世界的威胁。这也意味着爆料革命已经开始在跟全世界试图继续奴役中国人的黑暗势力作战！
 ![img](https://media.gettr.com/group2/getter/2021/09/15/02/32203f00-ab14-594c-3e77-630557c1d112/out.jpg)
-
----
-
-`@miles 9/15/2021 1:32 AM (UTC)`
-
-9/14/2021 Miles Guo: The CCP has 20 trillion US dollars worth of deposits overseas, which we will transfer to the Chinese people via the NFSC. However, the international evil organization also wants the money, and they will destroy the CCP just because of the money!<br/><br/>9/14/2021 文贵直播：中共在海外存了20万亿美元，我们要将这笔钱通过新中国联邦转回给中国人；然而，国际邪恶组织也要争这笔钱，仅仅因为这些钱，邪恶组织也会把中共给灭了！<br/>
-![img](https://media.gettr.com/group48/getter/2021/09/15/01/6918770c-a01e-dab9-8b0a-8c40fb4475d3/out.jpg)
 
 ---
 
