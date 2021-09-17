@@ -2,26 +2,51 @@
 ---
 
 
-## 秘翻在线：中共国正式申请加入CPTPP贸易条约
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537818/)
+## 意大利针对所有从业者强制执行绿色健康通行证计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1537971/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-42.jpg)图片来源：网络截图
-据日经网9月16日报道，就在美国、英国和澳大利亚宣布新的国防伙伴关系的第二天，中共国商务部周四表示，中共国已正式申请加入涉及日本、澳大利亚、马来西亚和其他区域经济体的太平洋贸易协定。
+栏目记者/责任编辑：火来
 
-中共国还正在推动实现1月1日启动区域全面经济伙伴关系的目标，该伙伴关系是包括东南亚在内的15个成员国的贸易协定。这次其申请加入CPTPP是北京扩大其对全球秩序经济影响力的努力的一部分。
 
-但中共国加入CPTPP的努力面临着与澳大利亚的贸易摩擦以及与另一成员国越南的领土争端。加入需要所有11名成员的同意。
 
-卡特勒目前担任亚洲社会政策研究所副总裁，她说候选人有责任表明他们愿意遵守现有的高标准的CPTPP规则，并准备做出全面的市场准入承诺。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-CPTPP有三项原则，确保数据分发的透明度和公平性，包括禁止强迫公司披露源代码。在中共国，公司被地方政府强迫披露技术以获得许可证和执照。
 
-随着政府在中共国经济中的监管越来越普遍，北京似乎越来越偏离了基于市场的、高标准的CPTPP规则。
 
-CPTPP的成员还包括文莱、加拿大、智利、墨西哥、新西兰、秘鲁和新加坡。英国已经开始谈判成为成员。
 
-原文链接：[China officially applies to join CPTPP trade pact](https://asia.nikkei.com/Economy/Trade/China-officially-applies-to-join-CPTPP-trade-pact)
+
+据路透社9月16日消息，意大利政府周四刚刚公布了将在10月15日开始实施的新防疫政策，政策中包括所有从业者，无论是来自公共事务服务还是私营企业，都必须出示健康通行证后才可以工作，违反的雇员及雇主均无例外地面对大额罚款。
+
+可以获得通行证从业者包括，完全接种过疫苗，或刚从病毒感染中恢复，或当天病毒检测为阴性。这是世界上最严格的新冠病毒防疫政策，将给未接种疫苗的人施加巨大的压力，逼迫更多的人选择接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-7.jpg)图片来源：网络
+参考链接：
+[Italy makes COVID health pass mandatory for all workers](https://www.reuters.com/world/europe/italy-readies-law-make-covid-health-pass-mandatory-all-workers-2021-09-16/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
 
 0

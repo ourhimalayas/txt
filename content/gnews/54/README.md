@@ -2,39 +2,37 @@
 ---
 
 
-## 美电视台脸书征文推打疫苗，瞬间引爆数十万评论控诉疫苗之害
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1537774/)
+## 秘翻在线：中共蓝金黄力量助力加拿大总理特鲁多出版自传《共同点》捞金
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537826/)
 
-栏目记者/责任编辑：一花一世界
+**撰稿：雨季仰光**
 
+**校对：卡拉马佐夫姐姐**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210917-中共蓝金黄力量助力加拿大总理特鲁多出版自传《共同点》捞金.png)
+**图片：网络合成**
 
+据北美希望之声（Sound of Hope）2021年9月17日报道，[加拿大总理](https://www.soundofhope.org/term/27421)[特鲁多](https://www.soundofhope.org/term/3487)（Justin Trudeau）在上台后，一家受[中共宣传部](https://www.soundofhope.org/term/610460)控制的[出版](https://www.soundofhope.org/term/144709)社为他翻译及[出版](https://www.soundofhope.org/term/144709)[自传](https://www.soundofhope.org/term/524624)。此举引起多方的议论。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-183.png)
+报导指，事件疑涉当时一些与中共有联系的华裔加人参加自由党的筹款活动，但[特鲁多](https://www.soundofhope.org/term/3487)的多名时任幕僚表示不知情。
 
+保守党要求联邦操守专员公开[特鲁多](https://www.soundofhope.org/term/3487)有否就此申报利益，[特鲁多](https://www.soundofhope.org/term/3487)回应，他没有从中收取任何个人利益。
 
+据加拿大《环球邮报》(Globe and Mail)报导，受中国江苏省委宣传部控制的译林[出版](https://www.soundofhope.org/term/144709)社，在2016年为杜鲁多[出版](https://www.soundofhope.org/term/144709)[自传](https://www.soundofhope.org/term/524624)《共同点》(Common Ground)的中文版，并把书名改成《传奇再续[特鲁多](https://www.soundofhope.org/term/3487)》，以突显他延续了父亲老[特鲁多](https://www.soundofhope.org/term/3487)(Pierre Trudeau)的总理仕途。
 
-9月10日，美国ABC电视台的底特律地方频道wxyz channel 7为了推打疫苗，在其脸书账户（Facebook）上发布了一条征文启事：“分享你身边未打针亲友的悲惨经历”。出乎他们的预料，评论区翻车了。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/美电视台脸书征文推打疫苗，瞬间引爆数十万评论控诉疫苗之害.jpg)
-短短两日内，就有39000多条分享身边打完疫苗的悲惨经历跃然纸上，截至今日为止，评论数已经突破了17万之多， 众多网友分享了打疫苗之后各类严重后遗症及死亡事件。也有律师和医护人员在评论区呼吁民众维护自己的权益。
+据《希望之声》报道，该书宣传资料称，得到现为中共国际发展合作署署长的「中共驻加大使罗照辉倾力推荐」，并形容老[特鲁多](https://www.soundofhope.org/term/3487)是「中加建交奠基人」，并极力赞美小[特鲁多](https://www.soundofhope.org/term/3487)，更特别提到他在G20期间访华，申请加入中共主导的亚投行。
 
-尽管主流媒体持续打压、掩盖真相，血淋淋的事实依然通过各种渠道逐渐显现。新中国联邦和爆料革命是公开系统地传播疫苗病毒真相，唤醒和挽救世界的中流砥柱！
+《希望之声》还在文中提到，前加拿大安全情报局(CSIS)局长法登(Richard Fadden)曾于2015至16年间担任杜鲁多的国家安全顾问，他表示，近日才从传媒口中得知译林一事，并说，如果总理当时有征询他的意见，必定提出反对。他说，最令他感到不安的是，这事全然由中国宣传部出资赞助。
 
-（本文仅代表作者观点）
+于当年担任加国驻华大使的赵朴(Guy Saint-Jacques)也表示对此事毫不知情，否则会提出反对。他指出，这种交易是中共用以讨好外国政要的惯用伎俩。
 
-参考链接： [美电视台脸书征文推打疫苗，瞬间引爆数十万评论控诉疫苗之害](https://m.facebook.com/wxyzdetroit/photos/a.461583946134/10158207966696135/?type=3&amp;source=48)
+另外，2019年9月出版的《媒体不会告诉你的贾斯汀·特鲁多的腐败一面》（&lt;The Libranos: What the media won’t tell you about Justin Trudeau’s corruption&gt;）畅销书作者埃兹拉黎凡特（Ezra Levant ）在书中描述，贾斯汀·特鲁多的总理任期是一场灾难，但如果您唯一的新闻来源是媒体党，您就不会知道这一点 – 左派倾向的记者和评论员集团宁愿与特鲁多自拍而不是问他棘手的问题。书中进一步说到，加拿大人都知道这一点。2015 年，特鲁多没有得到媒体的适当审查。他靠着自己的姓氏和婴儿潮一代对 1960 年代特鲁多狂热的怀念，懒洋洋地冲过终点线，结果是一个无能的政府损害了加拿大在国内的繁荣和在国外的关系。加拿大人知道事情大错特错——最新民调显示，63% 的选民不赞成特鲁多的领导。书中评论，他带来的腐败和任人唯亲的文化正在腐蚀我们的民主，甚至我们的法治。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+笔者好奇“小土豆”特鲁多自2015年上任至今的财富变化，仅官方可查的数据显示，2015年其遗产继承为120万美元。而在他收入最高的一年，他的演讲费为他带来了超过 45 万美元的收入，年薪加津贴一年为27万美元。而再看2021年他的资产已超过1000万美元。仅这一官方数据的六年间的变化就令人遐想和费解。
 
-终审：Q大哥
-校正/发稿：Hetangyuese
+福布斯也曾报道，类似的政界精英如美国两任总统的司法部长威廉·巴尔（William Barr）以及前副总统彭斯的自传目前未命名，计划于 2023 年出版。 CNN 报道称，这位前副总统的交易价值七位数，介于 300 万美元到 400 万美元之间。看看他们任期内的“作为”，再看看这些非常耐人寻味的数字，坊间报道这些都与中共背后的黑手不无关联。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+与此类似的世界政要们的出书和自传发行，很多都涉及到中共资金的协助。自由世界的精英都被中共蓝金黄的黑暗势力一个个拉进泥潭，再不警醒，再容忍中共这个毒瘤的生长和扩散，世界危矣！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-183.png)
+##### 新闻来源：[加媒体：中共宣传机构为加总理出自传 保守党促解释](https://www.soundofhope.org/post/545624)
 
 0

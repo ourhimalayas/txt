@@ -2,58 +2,29 @@
 ---
 
 
-## 英国未接种护士将被护理行业拒之门外
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538050/)
+## 秘翻在线：中共专制暴政使香港出现教师离职潮
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538120/)
 
-栏目记者/责任编辑：安吉拉
+#### 撰稿：极寒将至 
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-57.jpg)图片来源：香港经济日报
+据路透社（Reuters）报导，自中共于 2020 年 6 月在香港实施严格的国安法以来，这座城市所发生的专制转变，让香港众多教师感到心灰意冷和威胁。几位接受路透社采访的校长表示，今年教师离职的速度大约是正常时的两倍，这让他们中的一些人争先恐后地招聘新员工填补教师空缺。
 
+香港中学校长协会在 7 月警告政府，大量的“人才流失”，将导致该市的教育质量降低。香港约有700,000名学生就读于约1,000所中小学。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+汇基书院（东九龙） (United Christian College (Kowloon East))校长郑建德（CHENG Kin-tak, Samuel）告诉路透社，“教育环境和气氛在过去两年中发生了巨大变化”。在2019年香港民主运动期间被捕的 10,000 多人中，近 20% 处于学龄。据该市教育部长称，大约 100 名学校教师和工作人员也被捕。之后，教育系统就成为中共试图改变具有反抗精神的香港年轻人的重要阵地。
 
+今年 2 月，香港推出了新的课程指南，确保 6 岁以下的儿童更多地了解中共国并接受中共国安法的教育，事实上港版国安法使任何被中共视为分裂国家、颠覆或勾结外国势力的行为，都将被处以最高刑罚甚至被送进监狱。
 
+香港教育局（Education Bureau）已经用一个专注于“爱国主义”的，名为“公民和社会发展”的较小模块取代了原来的通识​​教育（Liberal Studies）内容，通识教育于 2009 年引入以增加社会参与和发展批判性思维。香港行政长官林郑月娥去年表示，需要将“坏”教师从教育系统中移除。教育局告诉路透社，在 2019 年 6 月至 2020 年 12 月期间，教育局收到了 269 起教师不当行为投诉，但是教育局未能向记者提供投诉的任何细节。
 
+在香港政府的压力下，香港教育专业人员协会（Hong Kong Professional Teachers’ Union）本月初正式解散，香港政府已经与拥有 95,000 人的协会断绝关系。中共官方媒体更将香港教育专业人员协会描述为“毒瘤”。香港教育专业人员协会曾是香港最大的协会，它在 5 月份的报告中称，接受调查的教师中有 40% 想离开教育行业。
 
+香港资助小学校长委员会（Hong Kong Aided Primary School Heads Council）副主席陈宝莉（Polly Chan）说，较高的教师流失率是由 “疫情，加上社会动荡，以及政治原因 ”造成的。今年移民将以倍数增长。
 
-英国9月初启动更广泛的保健部门接种强制令咨询，表示将通过修改法规来实施此类要求。
+自由与民主才是香港具备吸引力的根本原因，但是2019年中共大举入侵香港残酷镇压民主运动，直至2020年港版国安法正式实施，香港已经沦为中共专制暴政的重灾区，中共将以警治国的整套恶政搬到香港后，香港已成为最缺乏安全感的城市之一，港人的大量离开自然成为顺理成章的事。而中共对香港教师和学生的镇压尤为严酷和残忍，再加上洗脑教育走进课堂，这些都是具有自由思想的教师所无法忍受的，现在更有了针对教师的强制疫苗，老师们被逼着只能选择用脚投票离开香港。
 
-此前英国政府已明确建议医疗保健和社会保健工作者接种疫苗，但认为接种水平存在差异，此次咨询目的在于扩大范围，以确保所有被部署到接触直接治疗，或个人护理的人员都接种疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4.1-6.jpg)图片来源：网络
-已有护士反映，近期被领导问话讨论不接种疫苗的原因。管理层重申新接种令执行在即，一旦生效，没有接种的卫护人员将不被允许在任何护理院工作，面临职位调动，如果没有其他空缺职位，这些人员将被解雇。
-
-英国官网有一项自我豁免表格，对于有短期医疗状况的人也可以提供有时限的豁免。该临时豁免仅限于在护理院部署中使用，只有审查程序启动后的12周的时间，但如果有人需要，可能有助于为自己争取更多的时间。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4.2-1.jpg)图片来源：网络
-素材来源：
-
-[对于将疫苗接种作为在卫生和更广泛的社会保健部门进行部署的条件进行磋商以征
-求意见](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1016388/VOCD_consultation_chinese.pdf)
-[Medical exemption – vaccination as a condition of deployment](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1017856/20210915__Form__for_medical_exemptions.pdf)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+新闻来源：[Hong Kong teachers exit under shadow of security law, schools scramble to fill gaps](https://www.reuters.com/world/china/hong-kong-teachers-exit-under-shadow-security-law-schools-scramble-fill-gaps-2021-09-16/)
 
 0

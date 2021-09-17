@@ -2,18 +2,24 @@
 ---
 
 
-## 秘翻在线：理智对待疫苗遭白左群起围剿 麻辣鸡获重磅同行力撑
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537692/)
+## 秘翻在线：中共、法国气急败坏 共同抨击《澳美英安全协议》
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537831/)
 
-#### 翻译：坤霆/萌萌的朋克
+#### 翻译：彩虹
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-27.jpg)图片来源：网络截图
-9月15日，据Waynedupree show 网站报道，饶舌天后麻辣鸡（Nicki Minaj）最近在推特上发布的帖子谴责那些霸凌他人接种疫苗的人，这在全美引发了一场巨大的讨论。开始了一个巨大的反疫苗风波。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-55.jpg)图片来源：网络截图
+9月16日，《洛杉矶时报》（Los Angees Times）报道了中共和法国对《澳美英安全协议》（AUKUS）发怒的原因。
 
-此前，任何在社交媒体上对疫苗持负面评论的人都会面临快速惩罚，但有2200万推特粉丝Nicki Minaj逃过了被封杀的命运。
+AUKUS 使得澳大利亚获得了建造核动力潜艇舰队的技术，这种潜艇比常规潜艇更隐蔽，射程更深更远，也更加复杂。该协议被视为美国组建大联盟以遏制中共国在印太地区的经济和军事影响力的重要一步。
 
-9月16日，前《美国偶像》主持人兰迪·杰克逊（Randy Jackson）也加入了抗击强制疫苗的阵营，发推力挺麻辣鸡：“我支持并响应 Nicki 理智的建议，基于祈祷和不受霸凌影响的批判性思考来为自己的身体和个人健康作出如此重大的决定。行使上帝赋予的自由却要被审查、被抹杀、被嘲笑，今日美国，何其悲哀！”
+预料之中，中共国对此提出了激烈抗议，然而，法国也对此表达了愤怒之情。文章分析，法国之所以如此愤怒，原因在于该协议承诺的核潜艇技术，破坏了法国五年前赢得的一项价值660亿美元的交易，该交易允许法国向澳大利亚提供威力小得多的常规潜艇。
 
-原文链接：[‘It’s a Sad Day in America’ – Randy Jackson Joins Nicki Minaj in Condemning Vaccine Bullies](https://www.waynedupree.com/2021/09/randy-jackson-nicki-minaj/)
+但是，有专家认为，政府也会计算衡量利弊，潜艇交易不会对美国和欧盟的关系造成严重的长期损害。正如领导美国马歇尔基金（German Marshall Fund）项目的负责人邦尼·格拉瑟（Bonnie Glaser）所讲，美欧联盟是对抗中共国的重要组成部分，美国和法国目前的不愉快很快会过去。
+
+她说，中共国对拜登政府最大的恐惧，是美国在重建被川普削弱的联盟关系方面取得进展。“拜登知道，澳大利亚人也知道，他们与法国和欧盟的关系非常重要，他们会在这方面加大投入，继续努力修复（损害的）关系。”
+
+法国也是被中共国严重蓝金黄收买腐败的国家，面对中共这个暗黑势力的代表，法国、美国、美国、澳大利亚各自国内的光明力量自然会采取行动一致对抗中共。澳、美、英三国军事合作才刚刚采取了重要的一步而已，相信更多更为重要的合作会后续展开。
+
+新闻来源：[China and France assail U.S.-Australia deal on nuclear-powered submarines](https://www.latimes.com/politics/story/2021-09-16/china-attacks-u-s-australia-deal-on-nuclear-submarines)
 
 0

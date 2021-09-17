@@ -2,10 +2,10 @@
 ---
 
 
-## 疫苗影响女性生理周期，全球启动调查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1537927/)
+## 文贵先生盖特展示被路大脑骗毁坏的房子
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538070/)
 
-栏目记者/责任编辑：火来
+栏目记者/责任编辑：正义的小新
 
 
 
@@ -15,14 +15,15 @@
 
 
 
+9月16日，文贵先生盖特视频，记录下曾赠与路大脑骗的房子被毁坏的惨状。文贵先生在视频中，向战友们展示了被路大脑毁坏了的地下室，砸坏了的空调，被拆掉了的包括床、椅子、桌子等等在内的古董实木家具。厨房的沙发座椅也被路大脑骗撒上各种颜料，泳池已经变成绿色，花园也全被毁了。文贵先生说，很多清洁工和维修工工作一个多月，都不能完成整个房子的维修和清洁。文贵先生指出，赠给路大脑骗的这么好的房子，却被他毁的面目全非，路大脑骗将为此付出一切的经济代价和承担法律责任。
 
-```
-前不久，美国国立卫生院向五家科研院所拨款167万美元，专门研究疫苗对于女性生理周期的影响。这五家科研院所包括哈佛医学院和约翰霍普金斯大学等美国顶级的医疗科研院所。今天，来自伦敦帝国理工学院的研究人员也呼吁英国政府，应该马上启动疫苗对于女性生理周期影响的调查。英国相关部门已经收到了三万多个女性生理周期紊乱的案例，这些案例可能跟疫苗接种有关。目前，疫苗是否影响女性的生育能力尚不清楚。我们将持续关注最新的关于疫苗的研究结果。
-```
+![](https://assets.gnews.org/wp-content/uploads/2021/09/8.1-scaled.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-78.jpg)图片来源： 网络
-参考链接：[Boston researchers to study potential link between COVID vaccine & menstrual changes](https://www.boston25news.com/news/health/boston-researchers-study-potential-link-between-covid-vaccine-menstrual-changes/XRB2TIE5SFD53IEG5D2WE2LNQU/)
-[Call for investigation of menstrual changes after Covid jabs](https://www.bbc.com/news/health-58573593)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/8.2-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/8.3-scaled.jpg)
+参考链接：
+
+[9月16号：七哥在近两年后。来到了这个房子！让我极为的震惊，他们对房子的损坏伤害和这种极度的破坏，实在让我失望透顶！](https://gettr.com/post/pb9esu01ea)
 
 （本文仅代表作者观点）
 

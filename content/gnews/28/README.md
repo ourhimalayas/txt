@@ -2,20 +2,53 @@
 ---
 
 
-## 秘翻在线：NIH仍未肯定维C、维D和锌治疗中共病毒的有效性
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537693/)
+## 疫苗影响女性生理周期，全球启动调查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1537927/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-24.jpg)图片来源：网络截图
-据网管专家网站9月16日报道，经过一年多关于某些维生素和矿物质是否有助于预防和治疗中共病毒的讨论，美国国立卫生研究院（NIH）仍在研究维生素C、维生素和D以及锌对治疗冠状病毒的好处，这简直令人难以置信！
+栏目记者/责任编辑：火来
 
-从美国（NIH）的网站中可以看出他们仍在研究某些补充剂，以确定它们是否确实有助于COVID的治疗。路易.高默特议员一年前就是通过服用HCQ和锌，从中共病毒中恢复过来的，但是主流媒体对此根本没有报道。
 
-在全世界已有数百万人死于这种病毒之后。美国NIH和CDC仍然没有为感染该病毒的老年人制定治疗计划。当它继续努力研究使用维生素C、维生素D和锌的功效时，其他团体已经审查并整合了关于这些项目和更多项目的功效的研究。
 
-根据数以百计的研究和中共病毒早期治疗的所有死亡率结果显示维生素C、维生素D和锌在治疗中共病毒是真正有效的。但美国国立卫生研究院仍未对此表示肯定，而在同时，成千上万的人正在死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-新闻来源：[NIH Still Looking Into Vitamin C, Vitamin D and Zinc as Part of COVID Treatment Plan](https://www.thegatewaypundit.com/2021/09/nih-now-includes-vitamin-c-vitamin-d-zinc-recommended-prevention-treatment-covid/)
+
+
+
+
+
+```
+前不久，美国国立卫生院向五家科研院所拨款167万美元，专门研究疫苗对于女性生理周期的影响。这五家科研院所包括哈佛医学院和约翰霍普金斯大学等美国顶级的医疗科研院所。今天，来自伦敦帝国理工学院的研究人员也呼吁英国政府，应该马上启动疫苗对于女性生理周期影响的调查。英国相关部门已经收到了三万多个女性生理周期紊乱的案例，这些案例可能跟疫苗接种有关。目前，疫苗是否影响女性的生育能力尚不清楚。我们将持续关注最新的关于疫苗的研究结果。
+```
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-78.jpg)图片来源： 网络
+参考链接：[Boston researchers to study potential link between COVID vaccine & menstrual changes](https://www.boston25news.com/news/health/boston-researchers-study-potential-link-between-covid-vaccine-menstrual-changes/XRB2TIE5SFD53IEG5D2WE2LNQU/)
+[Call for investigation of menstrual changes after Covid jabs](https://www.bbc.com/news/health-58573593)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
 
 0
