@@ -2,41 +2,67 @@
 ---
 
 
-## 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1536634/)
+## Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1537199/)
 
-**By:秘翻新闻**
+制作：秘翻原创组-秘翻盖视
+责编：Shifter
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-09-16-at-3.43.33-PM.png](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-16-at-3.43.33-PM.png)图片来源：视频截图
+Tucker Carlson：在集中的技术监控与广泛的社会服从
 
-***2021-9-16***
+In a moment of centralized tech surveillance combined with mass social conformity
 
+这正是身处我们现在生活的国度所面对的现实……
+and that’s exactly the country we’re living in right now……
 
+并且由于强制疫苗规定
 
-**新闻摘要:**
+and thanks to vaccine mandates
 
-1、 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
+我们已经认可了你不能掌控你自己的身体
 
-2、恒大员工爆料：许家印妻子及高管均提前兑付
+we’ve established that you are not in control of your own body.
 
-3、中共国育龄夫妇不孕不育率高达12%至18%
+你凭什么掌控你孩子的身体？
 
-4、教育系统疫苗接种率超90%  面对疫情却如临大敌
+what gives you the right to control your child’s body?
 
-5、最新消息：英格兰有30305人接种中共疫苗后21天内死亡
+这是个好问题
 
-6、美英澳首脑宣布技术共享 联合抗共
+That’s a good question
 
-7、美SEC主席警告：270家中企有摘牌风险
+正如乔·拜登本人周四向全国所说的
 
-8、未接种疫苗的法国医护人员将面临被停职的处罚
+As Joe Biden himself told the country on Thursday
 
-9、印度发现致命尼帕病毒感染病例
+这（强制疫苗）与自由无关
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a](https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a)
+this is not about freedom
 
-发布: 文橙
+这是真的。这与自由无关……
 
-* * *
+And that’s true. It’s not about freedom…….
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+我国当局
+
+that authorities in this country,
+
+违背美国公民的意愿对他们进行了强制绝育和脑叶切除
+
+forcibly sterilized and lobotomized American citizens against their will.
+
+为什么？以公共健康的名义
+
+Why? In the name of public health.
+
+顺便说一下 可不仅仅是少数几个人
+
+And it wasn’t just a few people by the way,
+
+而是很多人
+
+it was a lot of people
+
+(秘翻盖视仅为传播之用不拥有原视频版权）
+
 0

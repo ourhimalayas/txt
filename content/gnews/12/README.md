@@ -2,46 +2,65 @@
 ---
 
 
-## 福奇批：Nicki Minaj的疫苗说法是“错误”信息
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1537079/)
+## 川普呼吁以叛国罪审判“蠢货”马克·米利将军
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1537097/)
 
 - 编译：wenwu
 
 
-安东尼·福奇博士驳斥了尼基·米娜（Nicki Minaj）关于中共病毒（COVID-19）疫苗的争议性评论。他是美国在传染病方面最有话语权的医学专家呼吁，可以指责这位嘻哈明星公开言论中，所发现的关于疫苗的“错误信息”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-4-16.png)
 
-周一，米娜原名 Onika Tanya Maraj——在宣布她不会参加，有疫苗授权的[2021 年Met Gala](https://www.nydailynews.com/snyde/ny-nicki-minaj-met-gala-coronavirus-vaccine-mandate-20210913-xmcpfelc2zgr3nhzf5cjwsbtvy-story.html)活动，并在同一条推文中透露她没有接种疫苗之后，遭到抨击。
+美国前总统川普回应了[今天来自** CNN **的指控](https://www.cnn.com/2021/09/14/politics/woodward-book-trump-nuclear/)，关于《华盛顿邮报》的鲍勃·伍德沃德（Bob Woodward）和罗伯特·科斯塔（Robert Costa）即将出版的新书《危险》(Péril)。
 
-在她的社交媒体上所分享的信息中，这位特立尼达出生的，引人注目的作词家还声称，她表弟的朋友接种了疫苗并遭受生殖器生殖副作用，此后她的表弟便拒绝接种疫苗，疫苗的副作用指的是“[睾丸肿胀](https://www.nydailynews.com/snyde/ny-nicki-minaj-swollen-testicles-tweet-covid-vaccine-20210914-6m3b6ipnzrfxjlyeknrsvs6ccq-story.html)”和“阳痿”。
+他们在书中描述了参谋长联席会议主席马克·米利将军在确保美国核武器基础设施方面是如何[对抗](https://thepostmillennial.com/breaking-milley-undermined-trump-told-china-he-would-warn-them-if-us-would-attack)当时的川普总统。而五角大楼最近试图低调回应[福克斯](https://twitter.com/JenGriffinFNC/status/1437906063546781696?s=20)新闻。
 
-此后，一群人——包括受人尊敬的医学专家和政治评论家——纷纷谴责米娜，污蔑她试图向她的粉丝群（推特关注者2260万）散布毫无根据的说法和神话。
+五角大楼官员说：“米利将军并没有试图将自己陷入关于核武器发射的指挥链中，但他确保每个人都知道他们的角色是什么，不是什么。他们在佩洛西打电话后审查了合法的发射程序。”
 
-自从去年美国**3**月发生疫情以来，一直[站在](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)抗击[疫情最前线的](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)政客**——**福奇坚决驳斥了**“****Stupid Ho****”****（**侮辱性言语）说唱歌手的说法。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-5-14.png)
 
-“没有证据表明疫苗是有这些副作用的，也没有任何机械性的理由去想象它会发生，”他在接受 CNN 的“ [The Lead](https://twitter.com/TheLeadCNN/status/1437907645910949889) ”采访时，坚定地宣称。
+2021 年 1 月 8 日，众议院议长南希·佩洛西 (Nancy Pelosi) 认为，公众此前就已经知道了这一点。 川普的[回应](https://breaking911.com/breaking-trump-says-dumbass-general-mark-milley-should-be-tried-for-treason/)：
 
-这位拥有几十年经验的流行病学家还强调了，在大型社交媒体平台上传播误导信息的危险，称米娜可以通过分享引发恐慌的谣言，从而地说服人们不要接种疫苗，这是错误的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-6-12.png)
 
-“有很多错误的信息，主要是在社交媒体上。我们知道对抗错误和虚假信息的唯一方法是提供大量正确的信息，”这位医生说。“这些说法可能是她的随口之言。我没有责怪她什么。但是她应该三思而后行，不要传播那些除了一次性的轶事之外，而实际上没有[科学依据](https://chinese.cdc.gov/coronavirus/2019-ncov/vaccines/planning-for-pregnancy.html)的信息。这不是科学的意义所在。”
+这位失败的将军策划了美国历史上从阿富汗最严重的撤军，并留下了许多死伤士兵，还有许多美国公民以及价值 850 亿美元的世界上最新、最先进的军事装备，以及我们国家的声誉，**如果****‘****蠢货’马克****·****米利将军****的事****是真的，那么我想他会因叛国罪而受到审判，因为他会在总统背后与他的中共国军方将领打交道，并告诉中共国他会给他们美国的**‘**攻击通知’。他不能那样做！”**
 
-许多人尽管宣传了自以为是的疫苗阴谋论，这位** 38 **岁的[新妈妈](https://www.nydailynews.com/snyde/ny-nicki-minaj-kenneth-petty-welcome-first-child-20201001-rig4h64zzjebnbghxiiurm4rvu-story.html)并没有明确阻止她的粉丝接种疫苗，并表示她最终可能会接种疫苗，因为她必须继续巡回演出。
+这里，前美国总统川普显然指的是[米利参与](https://thepostmillennial.com/flashback-milley-bagram-base)的**阿富汗撤军行动**。
 
-美国疾病控制与预防中心在（**CDC**）其最新的疫苗接种[信息页面](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/recommendations/pregnancy.html)上表示，**“**目前没有证据表明任何疫苗，包括中共病毒（**COVID-19**）疫苗，都会导致女性或男性的生育问题。**”**
+“**好消息是，这本新书《危险》****(P****é****ril)****是假新闻，由一个软弱无能的将军和两位作者编造的，我拒绝接受他们的采访，因为他们写的是虚构，不是事实。**应该立即对米利采取行动，我们军队中更好的将军（我们有很多这样的将军）应该参与进来，像阿富汗一样的灾难就不会重演。请记住，是我干掉了所有的ISIS哈里发（Caliphate）。而米利说这是做不到的！”
 
-简评： 福奇在电视采访中把自己与科学化作等号，现在又提到科学两个词，好似一个坑连掉两次，是词穷了还是坏。值得读者思考。据《**Pagesix**》**2021**年**9**月**15**日[报道](https://pagesix.com/2021/09/15/fauci-slams-nicki-minaj-for-false-covid-19-vaccine-tweet/?_ga=2.10881588.1004738065.1631728581-1262262365.1626125565)，嘻哈女星米娜[认为](https://twitter.com/NICKIMINAJ/status/1437526035063443456?s=20)：**“**我有与该死的疫苗完全相同的症状。**”**她暗示自己曾感染过中共病毒，而且所受到的伤害同这该死的疫苗对人体的伤害是一样。当然，值得重视的是，因为疫苗公司隐瞒了临床试验时，对生育能力的影响。导致了**NIH**不得不拨款上百万美金研究这些疫苗，带给人类的生育问题，哪有比这更真实的打脸。
+**当谈到米利对中方官员说“****如果****美国要进攻，我会提前给中国打电话”时，川普回应道：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-2-16.png)
+“**郑重声明，我甚至从未想过要（军事）攻击中国****——****中国也清楚知道这一点。编造这个故事的人太恶心、精神错乱，宣传虚假新闻的人也一样坏。事实上，我是几十年来唯一没有让美国陷入战争的总统****——****这是众所周知的事实，但很少被报道。”**
 
-（文章仅代表作者个人观点，与**GNEWS**无关）
+**简评：**
 
-**新闻来源：**[《每日新闻》](https://www.nydailynews.com/snyde/ny-coronavirus-dr-fauci-nicki-minaj-covid19-vaccine-misinformation-impotence-20210915-m3fs2amqsrckrcgnnomormqt6y-story.html)｜作者：卡鲁·F.丹尼尔斯｜发布时间：2021年9月15日
+**中共向全世界输出革命，很多冲突热点背后都与中共脱不了干系。现任美国五角大楼的参谋长联席会议主席米利将军与中共交好，甚至告诉中共他会给他们美国的‘攻击通知’，这不能不让人怀疑他是否已被蓝金黄。米利被爆出下令抛弃在阿富汗的美国公民，而后美国国务院阻止在阿富汗的美国公民搭乘的回国航班起飞，理由是没有得到塔利班恐怖分子的允许。这些愚蠢的决定严重地伤害了美国的声誉。本篇报道揭露了五角大楼的米利和两位作者捏造事实攻击川普，为此川普作出了严正声明，有力地回击了这些攻击。我们都知道，川普是几十年来唯一没有让美国陷入战争的总统，川普才是最爱和平的美国总统。**
+
+（文章仅代表作者观点，与**GNEWS**无关）
+
+**新闻来源：**[《后千禧年》](https://thepostmillennial.com/breaking-trump-calls-for-dumbass-general-mark-milley-to-be-tried-for-treason?utm_campaign=64474)｜作者：尼克**·**门罗｜发布时间：**2021**年**9**月**14**日
+
+相关内容文章：
+
+- [中共国：塔利班赶走阿富汗政府就具有合法性](https://gnews.org/zh-hans/1467026/)
+- [麦考尔：拜登因阿富汗撤军**“**手上沾满鲜血”](https://gnews.org/zh-hans/1471720/)
+- [蓬佩奥：拜登“没能履行”在阿富汗灾难性的撤军中保护美国人](https://gnews.org/zh-hans/1471702/)
+- [拜登和习神一样，不听将军的](https://gnews.org/zh-hans/1474594/)
+- [科尔特斯：欢迎来到拜登版美国大屠杀](https://gnews.org/zh-hans/1476374/)
+- [目前中共国、俄罗斯和巴基斯坦仍选择留在阿富汗](https://gnews.org/zh-hans/1482984/)
+- [川普就阿富汗恐怖袭击发表声明](https://gnews.org/zh-hans/1493996/)
+- [国会议员宣布他将提出针对拜登的弹劾条款](https://gnews.org/zh-hans/1497339/)
+- [塔利班在最后一批美军撤离阿富汗时，庆祝胜利](https://gnews.org/zh-hans/1501319/)
+- [潜在的2024年总统候选人为川普的阿富汗战略辩护](https://gnews.org/zh-hans/1507998/)
+- [英国军官：拜登比塔利班更危险](https://gnews.org/zh-hans/1515961/)
+
 
 * * *
 
 *审核：文乐
-校对：信心满满
+校对：阿伯塔
 发布：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
 
-+2
++1

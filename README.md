@@ -31,22 +31,22 @@
 ### [郭文贵先生盖特视频2021年9月16日精简文字版分享](/content/gnews/6/README.md)
  ` TS2020相聚盘古`
 
-### [是时候对亲共的特鲁多大声说不了！](/content/gnews/7/README.md)
+### [美国一高中，八成中共病毒病例都打过疫苗](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [是时候对亲共的特鲁多大声说不了！](/content/gnews/8/README.md)
  ` 军迷wilson`
 
-### [2021年09月16日澳喜要闻（每日更新）](/content/gnews/8/README.md)
+### [2021年09月16日澳喜要闻（每日更新）](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [24州总检察长警告将起诉拜登的疫苗强制令](/content/gnews/9/README.md)
+### [24州总检察长警告将起诉拜登的疫苗强制令](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/10/README.md)
+### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
-### [川普呼吁以叛国罪审判“蠢货”马克·米利将军](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [福奇批：Nicki Minaj的疫苗说法是“错误”信息](/content/gnews/12/README.md)
+### [川普呼吁以叛国罪审判“蠢货”马克·米利将军](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [那个担心活不到宝宝长大的妈妈永远无法证明疫苗的伤害](/content/gnews/13/README.md)
@@ -61,65 +61,65 @@
 ### [恒大违约，崩溃在即！](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [王岐山给习近平提示的未来50年规划](/content/gnews/17/README.md)
+### [政府机构强制将疫苗作为就业条件，将面临 5,000 美元每次的罚款](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/18/README.md)
+### [王岐山给习近平提示的未来50年规划](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/19/README.md)
+### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务](/content/gnews/20/README.md)
+### [比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/21/README.md)
+### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频|环球时报：更名台湾代表处将触碰中共红线](/content/gnews/22/README.md)
- ` MOSREC`
+### [中共国制裁境内的虚拟币挖矿活动](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
 
-### [中共制裁境内虚拟币挖矿活动](/content/gnews/23/README.md)
+### [中共制裁境内虚拟币挖矿活动](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求](/content/gnews/24/README.md)
+### [秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/25/README.md)
+### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗](/content/gnews/26/README.md)
+### [秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共正在快速发展核力量和先进武器 美国必须严肃对待](/content/gnews/27/README.md)
+### [秘翻在线：中共正在快速发展核力量和先进武器 美国必须严肃对待](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [城管，中国特色社会主义下的怪胎](/content/gnews/28/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [欧洲议会压倒性通过《新欧中战略报告》应对中共威胁](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [防卫相：日本决心保卫钓鱼岛](/content/gnews/29/README.md)
+### [日防卫大臣强调钓鱼岛是日本领土，将以武力捍卫主权](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [防卫相：日本决心保卫钓鱼岛](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [佩洛西：中共国压制日甚，对技术数据的控制对西方构成威胁](/content/gnews/30/README.md)
+### [佩洛西：中共国压制日甚，对技术数据的控制对西方构成威胁](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第054期](/content/gnews/31/README.md)
+### [雅典娜时报-第054期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共监管风暴冲击澳门，博彩巨头股票暴跌](/content/gnews/32/README.md)
+### [中共监管风暴冲击澳门，博彩巨头股票暴跌](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [DC每日热点0916](/content/gnews/33/README.md)
+### [福奇批：Nicki Minaj的疫苗说法是“错误”信息](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC每日热点0916](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [因新冠导致医生面诊减少，婴儿死亡率提高80%](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/35/README.md)
- ` wenwu`
-
-### [秘翻在线：教育部“承认”疫苗免疫屏障完败？](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`

@@ -2,37 +2,56 @@
 ---
 
 
-## 因新冠导致医生面诊减少，婴儿死亡率提高80%
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1536953/)
+## 中共监管风暴冲击澳门，博彩巨头股票暴跌
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1537034/)
 
-2021年9月16日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091604-1.jpg)图片：@Shutterstock/Emilia Ungur
-英国的一份报告显示，在新冠病毒大流行期间，婴儿死亡率几乎是正常情况下的两倍，因为孕妇更普遍选择远程问诊。
+作者：纽约香草山农场 – 四季
 
-医疗安全调查处的报告发现，医生面诊的减少“阻碍”了护理工作，因为检查的机会变少。这意味着医生和助产士在发现潜在的致命并发症和监测婴儿成长方面的能力变差。
-
-去年4月至6月，英格兰有45起所谓的“产中死胎”，比2019年同期的24起多出88%。这些死亡是指婴儿在分娩开始时被认为是活着的，但在妊娠超过37周时出生，没有生命迹象。
-
-大多数死胎的死亡是由于胎盘的问题和婴儿的血流受到影响。19名婴儿在分娩期间第一次去医院时没有生命迹象。但其中11名妇女通过电话联系医生征求意见，并被建议留在家中。其中一个案例，产妇因为担心在诊所感染新冠而选择不预约面诊。
-
-**简评：**
-
-英国婴儿死亡率的提高是中共病毒导致的大疫情引发的众多次生灾害之一。
-
-[原文链接](https://www.dailymail.co.uk/news/article-9995459/Maternity-baby-deaths-rose-88-lockdown.html)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译: Ying2064| 校对: clau*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据多家媒体报道，澳门政府从周三开始展开为期45天的“博彩法”，即第16/2001号法律的公开咨询，以便对明年6家赌场牌照到期后如何重新发放的问题征求公众的意见。这引发澳门在香港上市的6家博彩公如永利澳门、金沙中国、美高梅中国和银河娱乐的股票重挫，最高跌幅达到34%。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/985-1-MGM.jpg)*澳门MGM美高梅赌场（AFP via Getty Images）*
+
+面对中共针对澳门这个准独立赌博中心，进行的新的赌博监督打压，一些分析师，如摩根大通迅速下调了所有澳门赌场的评级，因为它们都必须重新竞标其牌照。
+
+在周二的发布会上，澳门经济财政司司长雷鸣列出了九个需要监督的领域，如牌照数量、更好的监管和员工福利，同时让政府代表监督赌场的日常运营。
+
+中共的大湾区计划就是将香港和澳门的所有优势窃为己有。而今年以来，北京对中共国许多行业的民营企业进行整顿治理，其中一个重要目标就是对所称的“无序”资本运作进行清理和整顿。这些行动不仅对相关行业造成了巨大的冲击，而且给这些行业的大型企业带来了重大的经济损失，数十万亿元的市值瞬间蒸发。
+
+（本文仅代表作者观点）
+
+**原文阅读：**
+
+1. [Macau Casino Stocks Tumble As Beijing Launches Crackdown On World’s Biggest Gambling Hub | ZeroHedge](https://www.zerohedge.com/markets/macau-casino-stocks-tumble-beijing-launches-crackdown-worlds-biggest-gambling-hub)
+2. [中共监管风暴冲击澳门 博彩巨头股票集体跳水 (voachinese.com)](https://www.voachinese.com/a/Macau-kicks-off-public-gaming-consultation-ahead-of-casino-rebidding-20210915/6229518.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
 
 
 

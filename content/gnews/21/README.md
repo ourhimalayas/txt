@@ -2,45 +2,41 @@
 ---
 
 
-## 视频| “跨国议会联盟”声援立陶宛与台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536581/)
+## 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1536634/)
 
-制作：香草山健身部-书记己嗝屁！
+**By:秘翻新闻**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+***2021-9-16***
 
 
 
+**新闻摘要:**
 
+1、 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
 
+2、恒大员工爆料：许家印妻子及高管均提前兑付
 
+3、中共国育龄夫妇不孕不育率高达12%至18%
 
-由国际跨党派议员组成的“对华政策跨国议会联盟”周一在推特上贴出视频，表达他们与立陶宛和台湾站在一起，对抗中国胁迫外交的立场。
+4、教育系统疫苗接种率超90%  面对疫情却如临大敌
 
-包括欧洲议会、立陶宛、英、法、丹麦、瑞典等欧洲多国，以及日本、澳大利亚和新西兰的各国国会议员们，在该视频中以接力方式分别发言，呼吁全球民主盟友团结一致，谴责中共政府对立陶宛的威胁恫吓，以及利用经济手段胁迫弱小国家的黑帮式卑劣外交行径。
+5、最新消息：英格兰有30305人接种中共疫苗后21天内死亡
 
+6、美英澳首脑宣布技术共享 联合抗共
 
+7、美SEC主席警告：270家中企有摘牌风险
 
-**文字版原文：[“跨国议会联盟”声援立陶宛与台湾](https://gnews.org/zh-hans/1532844/)**
+8、未接种疫苗的法国医护人员将面临被停职的处罚
 
+9、印度发现致命尼帕病毒感染病例
 
+**GTV链接：**[https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a](https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a)
 
-*发稿：雪梨*
+发布: 文橙
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
 0

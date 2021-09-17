@@ -2,22 +2,32 @@
 ---
 
 
-## 视频|环球时报：更名台湾代表处将触碰中共红线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536515/)
+## 视频| “跨国议会联盟”声援立陶宛与台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536581/)
 
-制作：香草山健身部 – 书记己嗝屁！
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+制作：香草山健身部-书记己嗝屁！
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-中共喉舌《环球时报》周日发表题为“美台敢改名，一定让他们付出沉重代价”的威胁社评，就此前《金融时报》有关台北代表处改名的报导进行战狼式回应。
 
-环球时报声称，以美台之间目前的动向，现在就需要做好全部准备，随时准备出击台海。此次美台如果采取上述更名行动，大陆应对台湾实施包括经济封锁在内的严厉制裁惩罚措施，并要派战机进入台湾领空，如果台军胆敢开火还击，中方应义无反顾给予“台独”势力决定性和毁灭性的打击。
 
-作为中共喉舌的《环球时报》这一表态表明，对于“武统收复台湾”中共蓄谋已久，且将不择手段！台湾及盟国间的任何互动都有可能成为中共“碰瓷”的借口，用来发动入侵台海的战争。
 
-**文字版原文：**[《环球时报》: 更名台湾代表处将触碰中共红线!](https://gnews.org/zh-hans/1530356/)
 
-*发稿：童谣*
+
+
+
+由国际跨党派议员组成的“对华政策跨国议会联盟”周一在推特上贴出视频，表达他们与立陶宛和台湾站在一起，对抗中国胁迫外交的立场。
+
+包括欧洲议会、立陶宛、英、法、丹麦、瑞典等欧洲多国，以及日本、澳大利亚和新西兰的各国国会议员们，在该视频中以接力方式分别发言，呼吁全球民主盟友团结一致，谴责中共政府对立陶宛的威胁恫吓，以及利用经济手段胁迫弱小国家的黑帮式卑劣外交行径。
+
+
+
+**文字版原文：[“跨国议会联盟”声援立陶宛与台湾](https://gnews.org/zh-hans/1532844/)**
+
+
+
+*发稿：雪梨*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
@@ -25,12 +35,12 @@
 
 [**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
 0
