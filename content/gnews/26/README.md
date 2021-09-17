@@ -2,18 +2,20 @@
 ---
 
 
-## 台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536644/)
+## 中共制裁境内虚拟币挖矿活动
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1537535/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-16-PM-text-SC.png)
 文章仅代表作者本人观点，与Gnews无关
 
-视频参看：2021.09.16早GTV新闻访谈
+视频参看： 2021.09.16晚GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/61433881751e4f2b0e540858](https://gtv.org/broadcast/watch/61433881751e4f2b0e540858)
+[https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9](https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9)
+
+[https://www.youtube.com/watch?v=jTQZssN970A](https://www.youtube.com/watch?v=jTQZssN970A)
 
 编辑/校对/发稿：香草山翻译部 – Lakers
 
