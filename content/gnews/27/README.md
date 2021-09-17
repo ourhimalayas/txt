@@ -2,54 +2,43 @@
 ---
 
 
-## 文贵先生盖特展示被路大脑骗毁坏的房子
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538070/)
+## 秘翻在线：意大利政府全面推行强制疫苗护照
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538445/)
 
-栏目记者/责任编辑：正义的小新
+#### 文章撰写：寶寶
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/dasff4y6u87o90p98743ty65j65u45.jpg)
 
+据《零对冲》9月17日报道，意大利政府周四批准了世界上最严格的COVID-19限制规则之一，强制要求所有私营和公共部门员工接种疫苗并出示疫苗接种证明、检测结果阴性证明或最近从病毒感染中康复证明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+该规则将于10月15日生效，任何违反该条例的工人将被停职停薪，但不能被解雇。
 
+据意大利《新闻报》（ILGAZZETTINO）报道，卫生部长罗伯托·斯佩兰萨 (Roberto Speranza) 在政府批准授权后表示，该国部长理事会在周四晚上的会议投票批准了这些规则。
 
+“我们还将扩大药房网络”，使人们“能够进行拭子 [和] 快速抗原检测，”斯佩兰萨说，并补充说政府法令可能会提高意大利的疫苗接种率。
 
+根据规定，不能出示所谓的“绿色通行证”（疫苗护照）而上班的个人将面临600至1,500欧元（约705至 1,175 美元）的罚款。
 
+该规定还说，自规则生效之日起，即10月15日，没有绿色通行证的私营部门员工将无法获得工资。
 
-9月16日，文贵先生盖特视频，记录下曾赠与路大脑骗的房子被毁坏的惨状。文贵先生在视频中，向战友们展示了被路大脑毁坏了的地下室，砸坏了的空调，被拆掉了的包括床、椅子、桌子等等在内的古董实木家具。厨房的沙发座椅也被路大脑骗撒上各种颜料，泳池已经变成绿色，花园也全被毁了。文贵先生说，很多清洁工和维修工工作一个多月，都不能完成整个房子的维修和清洁。文贵先生指出，赠给路大脑骗的这么好的房子，却被他毁的面目全非，路大脑骗将为此付出一切的经济代价和承担法律责任。
+虽然一些欧盟国家已下令其卫生工作者必须接种疫苗，但没有一个国家规定所有员工都必须持有疫苗护照，这使意大利成为欧洲大陆第一个这样做的国家。 法国等其他国家/地区已强制要求使用疫苗护照进入餐厅、健身房、某些形式的旅行和其他场所。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8.1-scaled.jpg)
+上周末，意大利爆发了针对绿色通行证规则的抗议，有报道称约120个城市发生了示威活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8.2-scaled.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8.3-scaled.jpg)
-参考链接：
+意大利在3月已下令卫生工作者接种疫苗或面临停职。
 
-[9月16号：七哥在近两年后。来到了这个房子！让我极为的震惊，他们对房子的损坏伤害和这种极度的破坏，实在让我失望透顶！](https://gettr.com/post/pb9esu01ea)
+医生联合会周四表示，截至今天，已有728名医生被停职。
 
-（本文仅代表作者观点）
+目前尚不清楚有多少护士或护理人员拒绝执行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+法国的一项类似限制措施于周三生效。 卫生部长奥利维尔·维兰 (Olivier Veran) 周四表示，约有3,000名卫生工作者被停职。
 
-终审： 鬼五
-校对/发稿：为真不破20
+与此同时，总统乔·拜登上周宣布，他将指示联邦政府惩罚私营部门的雇员和企业，迫使工人要么每周接受COVID-19检测，要么接种疫苗。 该公告引起了共和党州长和总检察长的严厉批评，他们威胁要对拜登政府提起诉讼。
 
-**更多资讯，更多关注**
+本周早些时候，亚利桑那州总检察长马克·布尔诺维奇（Mark Brnovich）成为第一位起诉拜登政府的州官员，称政府强制要求美国公民接种疫苗而非法移民不必接种，这违反了宪法。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考文章：[**COVID-19 Vaccine Passport Mandatory In Italy For All Private Sector Workers: Officials**](https://www.zerohedge.com/covid-19/covid-19-vaccine-passport-mandatory-italy-all-private-sector-workers-officials)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+本文仅代表作者本人观点，不代表Gnews平台
 
 0

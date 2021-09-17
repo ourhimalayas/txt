@@ -2,43 +2,30 @@
 ---
 
 
-## 秘翻在线：意大利政府全面推行强制疫苗护照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538445/)
+## 香港支联会及核心成员被控煽颠罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538528/)
 
-#### 文章撰写：寶寶
+栏目记者/责任编辑：修文
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+法广9月16日报道，简称支联会的 “香港市民支援爱国民主运动联合会”，16日在推特和脸书等平台上公告，将于晚间10时，删除指定电子平台信息，包括支联会的官方网站、脸书信息等。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-17-at-8.43.12-PM.png)
+公告指，支联会于9月10日接获港府警务处通知，称根据”港区国安法”规定，要求支联会在接获通知7天内，移除相关电子平台信息。且警方在当日正式指控支联会和支联会主席李卓人、副主席何俊仁和邹幸彤等，涉嫌企图煽动颠覆国家政权，案件预定于10月28日审理。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/dasff4y6u87o90p98743ty65j65u45.jpg)
+支联会1989年5月21日于香港成立，目的是支援当时发生在大陆的民主运动八九民运，以争取民主、自由、人权和法治早日在中国大陆实现为诉求。港区国安法落地实施，成为中共借法律名义打击异己的依据。以此蚕食香港各个民主人权群体。恶法当道，港人在法律层面已无退守的可能。香港法治的死亡，代表这座以法治、专业、高效率著称的金融港口彻底沦陷。
+(本文仅代表作者观点)
 
-据《零对冲》9月17日报道，意大利政府周四批准了世界上最严格的COVID-19限制规则之一，强制要求所有私营和公共部门员工接种疫苗并出示疫苗接种证明、检测结果阴性证明或最近从病毒感染中康复证明。
+参考链接：[香港支联会“应警方要求” 16日晚删官网、脸书信息](https://www.rfi.fr/cn/中国/20210916-香港支联会-应警方要求-16日晚删官网-脸书信息)
 
-该规则将于10月15日生效，任何违反该条例的工人将被停职停薪，但不能被解雇。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-据意大利《新闻报》（ILGAZZETTINO）报道，卫生部长罗伯托·斯佩兰萨 (Roberto Speranza) 在政府批准授权后表示，该国部长理事会在周四晚上的会议投票批准了这些规则。
+终审：文龙
+校正/发稿：我不在这里
 
-“我们还将扩大药房网络”，使人们“能够进行拭子 [和] 快速抗原检测，”斯佩兰萨说，并补充说政府法令可能会提高意大利的疫苗接种率。
-
-根据规定，不能出示所谓的“绿色通行证”（疫苗护照）而上班的个人将面临600至1,500欧元（约705至 1,175 美元）的罚款。
-
-该规定还说，自规则生效之日起，即10月15日，没有绿色通行证的私营部门员工将无法获得工资。
-
-虽然一些欧盟国家已下令其卫生工作者必须接种疫苗，但没有一个国家规定所有员工都必须持有疫苗护照，这使意大利成为欧洲大陆第一个这样做的国家。 法国等其他国家/地区已强制要求使用疫苗护照进入餐厅、健身房、某些形式的旅行和其他场所。
-
-上周末，意大利爆发了针对绿色通行证规则的抗议，有报道称约120个城市发生了示威活动。
-
-意大利在3月已下令卫生工作者接种疫苗或面临停职。
-
-医生联合会周四表示，截至今天，已有728名医生被停职。
-
-目前尚不清楚有多少护士或护理人员拒绝执行。
-
-法国的一项类似限制措施于周三生效。 卫生部长奥利维尔·维兰 (Olivier Veran) 周四表示，约有3,000名卫生工作者被停职。
-
-与此同时，总统乔·拜登上周宣布，他将指示联邦政府惩罚私营部门的雇员和企业，迫使工人要么每周接受COVID-19检测，要么接种疫苗。 该公告引起了共和党州长和总检察长的严厉批评，他们威胁要对拜登政府提起诉讼。
-
-本周早些时候，亚利桑那州总检察长马克·布尔诺维奇（Mark Brnovich）成为第一位起诉拜登政府的州官员，称政府强制要求美国公民接种疫苗而非法移民不必接种，这违反了宪法。
-
-参考文章：[**COVID-19 Vaccine Passport Mandatory In Italy For All Private Sector Workers: Officials**](https://www.zerohedge.com/covid-19/covid-19-vaccine-passport-mandatory-italy-all-private-sector-workers-officials)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

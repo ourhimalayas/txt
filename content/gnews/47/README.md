@@ -2,60 +2,60 @@
 ---
 
 
-## 22岁跳马冠军接种莫德纳疫苗后永远无法骑马
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1538357/)
+## 独家：举报人称VAERS数据库严重漏报数据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1538382/)
 
 - **编译： Jenny Ball**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip73.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip75.png)
 
-[莫德纳](https://childrenshealthdefense.org/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/)[COVID-19](https://childrenshealthdefense.org/defender_category/covid/)疫苗的罕见反应使一位冠军跳马运动员的肺部形成了[两个巨大的凝块](https://childrenshealthdefense.org/defender/woman-johnson-johnson-vaccine-blood-clots-scientists-may-know-cause/)，她以后可能再也不能骑马了。
+勇敢的 COVID 举报人莫莉·詹姆斯（ Mollie James ）大夫公开谴责拜登疫苗授权，令人震惊地称，跟踪疫苗并发症和副作用的国家数据库——疫苗不良事件报告系统（ VAERS）**远没有对**** COVID ****疫苗并发症跟踪，实际数量是目前报告的 100 ****多倍。**
 
-22 岁的伊莫金·艾伦（Imogen Allen）被医生告知，在她接种疫苗两周后形成的凝块可能是由疫苗引发的，同时她已经服用了5年复合避孕药 。
+**如果属实，这意味着这个政治决定，迫使公众和所有行业接种疫苗，可能会带来重大的、长期的、严重的健康后果，但人们对这些后果知之甚少，因为政治议程正在扼杀数据的科学收集。**
 
-来自伯克希尔伍德科特的艾伦女士，可能再也无法骑马了，现在卧床不起，让她成为一名警探的梦想也破灭了。
+**“我对不让使用 VAERS ****感到有压力，我的许多同事都肯定地告诉我同样的感觉，”詹姆斯大夫专门对 ****“网关专家”（the Gateway Pundit****）说。“他们害怕政治，害怕被曝光、被羞辱和嘲笑。医生很容易就会失去他们的录取特权，许多人知道，如果他们报告了疫苗副作用，他们可能会失去工作。我简直不敢相信，我一遍又一遍地看到这些事，我决定挺身而出，因为这是一场无声的公共卫生危机，人们必须知道事情有多糟糕，他们需要知道COVID****疫苗的风险的真实情况。”**
 
-美国食品和药物管理局（FDA ）工作人员拒绝就辉瑞的 COVID 疫苗加强注射采取立场，理由是缺乏经过验证的数据。
+詹姆斯大夫指出，同行评议的研究和调查显示， VAERS 系统数据降低了 100 倍，并表示这与她自己的经历相符。
 
-[CNBC报道](https://www.cnbc.com/2021/09/15/covid-booster-shots-fda-staff-declines-to-take-stance-on-pfizers-third-doses-citing-lack-of-verified-data.html)：
+詹姆斯大夫估计，在她位于纽约市的重症监护病房（ICU）中，她看到有 30% 或更多的人，在接种疫苗后明显出现并发症。“**显然，与疫苗相关的中风、心脏病、血栓、自身免疫问题、动脉问题和神经系统问题的风险增加**，但由于政治要求疫苗被认为是完美的，因此没有被追踪。这些**风险逐渐上升，甚至到死亡。**人们正在遭受严重的不良反应，我相信很多人正在死于这些疫苗，但我们不能不担心政治后果而公开讨论这个问题。**我得说出来。”**
 
-FDA的工作人员，周三拒绝就是否支持[辉瑞](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/) COVID-19 疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。
+詹姆斯大夫是众多抗议并拒绝拜登疫苗授权的医生之一，因为他们会要求像她这样的医生和其他医疗专业人员注射疫苗，这可能会导致严重的并发症，包括中风、心脏病发作和死亡。
 
-“有许多潜在的相关研究，但FDA尚未独立审查或验证基础数据或其结论，”他们在该机构网站上发布的一份23页的文件中写道。“其中一些研究，包括来自以色列疫苗接种计划的数据，将在2021年9月17日 VRBPAC 会议期间进行总结。”
+“当我们不知道这些疫苗的副作用有多严重时，您会放心使用吗，还会给您的家人用吗？” 詹姆斯问道。 “如果我们对这种流行病做出理智的反应，我们就会为已证明有需要，且并发症最少的高危人群（主要是老年人）制定授权。年轻人和身体好的人，应该依靠自然免疫力来提供最强大的保护。但是，只要政治压力还是如此之大，我们就不能制定这种有证据支持的政策，就会忽视和压制疫苗并发症的证据。”
 
-**学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗**
+**6 ****月下旬，另一位医生出面称， VAERS 系统被 COVID 疫苗报告“淹没”，但数据却被忽略。**
 
-《[**卫报****》****报道**](https://www.theguardian.com/education/2021/sep/15/covid-teams-can-vaccinate-pupils-against-parents-wishes-schools-told)**：**
+**即使存在漏报情况，目前关于疫苗并发症的统计数据也绝非微不足道。**
 
-根据周三公布的政府指导方针，医护人员可以决定孩子是否违背父母的意愿接种 COVID 疫苗，这让一些校长担心学校门口会发生抗议。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-17T133541.846.png)
 
-该指南称，12 至 15 岁儿童的疫苗接种将由已经在英格兰进行流感和人乳头瘤病毒 (HPV) 疫苗接种的学龄免疫服务 (SAIS) 团队进行。学校的作用将仅限于提供网站并向学生和家长分发信息和同意书。
+根据 VAERS 报告，自 7 月 24 日以来，美国有 3,296 例 COVID 疫苗死亡，平均每天有 70 例死亡。
 
-**当谈到 Delta 变体时，孩子们都很好**
+然而，疾病预防控制中心表示，接受 COVID 疫苗所引起的并发症“极不可能”。而福奇博士正忙于与妮琪·米娜（Nicki Minaj ）争论，阳痿不是 COVID 疫苗可能的副作用。
 
-[**《华盛顿月刊》报道**](https://washingtonmonthly.com/2021/09/15/when-it-comes-to-the-delta-variant-the-kids-are-all-right/)**：**
+CDC 官方报告称，COVID 疫苗的副作用非常有限。
 
-这是父母需要考虑的成本效益 – 这不是一个危险的决定。
+詹姆斯大夫不同意，并说 COVID 疫苗有非常真实的副作用，但没有报告：“我在 ICU 的一些患者，在回顾他们的病史时，我质疑他们并检查他们的风险因素，**他们唯一的风险因素是他们接种的疫苗会导致严重的情况，例如心脏病发作、血栓，在心肌炎中看到的异常心脏并发症，甚至心脏骤停。****”**
 
-几乎没有证据表明 Delta 变体比该病毒的早期版本对儿童更危险。它更容易传播，是的，但与去年流行的病毒版本相比，受感染儿童的死亡率极小。
+詹姆斯大夫说，研究表明， VAERS 最多只能捕获 1-10% 的实际并发症。
 
-**评论： **
+“如果您在接种疫苗后 24 小时内心脏骤停，我们需要将其视为与疫苗有关。现在，这种联系还没有建立，现在它们被严重低估了。有些人没有其他风险因素，我们看到这一点令人担忧。如果它发生在我工作的 ICU 的许多患者身上，我只能假设它存在于其他地方，并且没有报告为疫苗伤害。”
 
-**FDA拒绝就是否支持辉瑞疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。好，那么FDA同样没有疫苗第二期第三期试验数据，为什么就强制大规模让美国人民和世界人民当白老鼠呢？**
+**评论：**
 
-**“****学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗“，那么学校承担一切后果吗？学校有权让学生有权选举吗？学校这个指南是出自哪个法律条文？**
+**疫苗危害触目惊心！**
 
-**这场疫苗战争就是法律的决战！我们一定拿起法律赋予我们的权利保卫我们的孩子和未来！**
+**在自由民主的美国，一个大夫说出真相，竟然要冒着失业羞辱甚至牢狱之灾，这是令我们这些从独裁的中共国逃出来的人们胆寒的消息，如果美国和独裁中共一样，我们将无处可逃。**
 
 （文章仅代表作者个人观点，与**GNEWS**无关）
 
-**素材链接：[childrenshealthdefense](https://childrenshealthdefense.org/defender/covid-nw-champion-show-jumper-22-reaction-moderna-vaccine/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=35c8a332-7285-46e1-8556-8f1f2097e18d)**
+**素材链接：[thegatewaypundit](https://www.thegatewaypundit.com/2021/09/covid-whistleblower-wu-flu-fraud-vaers-reporting-database-tracking-vaccine-complications-wrong-factor-100/)**
 
 * * *
 
 ***审核：文乐
-校对:  阿伯塔
+校对:   阿伯塔
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)

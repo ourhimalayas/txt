@@ -13,40 +13,40 @@
 
 ---
 
-### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/1/README.md)
+### [盖特多语言翻译功能上线，支持69种语言](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
+
+### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/3/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [FDA高级官员辞职与毒苗计划崩溃前夕的关系](/content/gnews/2/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [爆料革命在國內的傳播是共產黨懼怕的](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
-
-### [（日说｜文贵）2021年9月5日](/content/gnews/4/README.md)
+### [（日说｜文贵）2021年9月5日](/content/gnews/5/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年9月16日 文贵先生盖特 19](/content/gnews/5/README.md)
+### [2021年9月16日 文贵先生盖特 19](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 18](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [南达科塔州州长考虑起诉拜登的疫苗强制令](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [专家指责CDC挑选疫苗免疫数据以支持政治叙事](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [以色列卫生部负责人称，冠状病毒传播达到创纪录的高度](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [FEC裁定Twitter无罪 恐使其成为强大宣传机器](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [独家：举报人称VAERS数据库严重漏报数据](/content/gnews/9/README.md)
+### [专家指责CDC挑选疫苗免疫数据以支持政治叙事](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [币安为应对监管审查，拟转变为中心化交易所](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布特林入选《时代》“2021年最具影响力的100人”名单](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [FEC裁定Twitter无罪 恐使其成为强大宣传机器](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [IIF表示二季度全球债务直逼300万亿美元，创历史新高](/content/gnews/12/README.md)
+### [布特林入选《时代》“2021年最具影响力的100人”名单](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [比尔.盖茨用疫苗控制人口的想法2010年就有](/content/gnews/13/README.md)
@@ -79,23 +79,23 @@
 ### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/23/README.md)
+### [台湾回赠日本血氧仪及制氧机](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：意大利政府全面推行强制疫苗护照](/content/gnews/24/README.md)
+### [香港支联会及核心成员被控煽颠罪](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：意大利政府全面推行强制疫苗护照](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共专制暴政使香港出现教师离职潮](/content/gnews/25/README.md)
+### [秘翻在线：中共专制暴政使香港出现教师离职潮](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [盖特多语言翻译功能上线，支持69种语言](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [文贵先生盖特展示被路大脑骗毁坏的房子](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [英国未接种护士将被护理行业拒之门外](/content/gnews/28/README.md)
- ` GTV新闻访谈`
 
 ### [彼得·纳瓦罗GTV直播三次说盖特是推特杀手](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
@@ -121,8 +121,8 @@
 ### [每日快报：公司和商业团体计划对拜登的疫苗任务进行反击](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
+### [原来扒别人家祖坟是持枪砸郭的个人自由](/content/gnews/37/README.md)
+ ` 喜马拉雅日本银河系农场`
 
 ### [列举中共病毒“疫苗”严重伤害病例14例](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
@@ -145,36 +145,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [六月雪狱](/content/gnews/45/README.md)
+### [恒大集团暴的雷到底有多大？](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [六月雪狱](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新加坡疫苗接种率达到 81% 后慢性病爆发](/content/gnews/46/README.md)
+### [独家：举报人称VAERS数据库严重漏报数据](/content/gnews/47/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [22岁跳马冠军接种莫德纳疫苗后永远无法骑马](/content/gnews/47/README.md)
+### [IIF表示二季度全球债务直逼300万亿美元，创历史新高](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新加坡疫苗接种率达到 81% 后慢性病爆发](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年9月16日 文贵先生盖特 17](/content/gnews/48/README.md)
+### [22岁跳马冠军接种莫德纳疫苗后永远无法骑马](/content/gnews/50/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年9月16日 文贵先生盖特 18](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 16](/content/gnews/49/README.md)
+### [2021年9月16日 文贵先生盖特 17](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 15](/content/gnews/50/README.md)
+### [2021年9月16日 文贵先生盖特 16](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 14](/content/gnews/51/README.md)
+### [2021年9月16日 文贵先生盖特 15](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 13](/content/gnews/52/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 12](/content/gnews/53/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [【樱花宅急便】催化教育界举报戾气 毁下一代人性](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年9月16日 文贵先生盖特 11](/content/gnews/55/README.md)
+### [2021年9月16日 文贵先生盖特 14](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

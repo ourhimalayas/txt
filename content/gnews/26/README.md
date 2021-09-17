@@ -2,53 +2,34 @@
 ---
 
 
-## 盖特多语言翻译功能上线，支持69种语言
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538092/)
+## 恒大彻底崩盘, 愤怒的投资者冲进许家印办公室
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538430/)
 
-栏目记者/责任编辑：葛朗台太太
+栏目记者/责任编辑：DM
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+墙内9月14日报道称，恒大的彻底崩溃引发巨大的反响，愤怒的散户投资者及恒大员工更是冲进公司总部抗议，甚至占领了许家印的办公室!
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-17-at-8.15.59-PM.png)
+号称最大房地产商的恒大，其实是世界上负债最多！早已资不抵债，因为恒大本就不是良性企业，只是盗国贼圈钱的白手套而已。其唯一交易的债券价格正在跌向0，旗下未完工的房产项目工程陷入停顿，让超百万的购房者陷入无法收房更无法退款的困境,但房贷还要继续偿还。据统计,恒大在 墙内 223 个城市拥有 700 多个在建项目，并承诺到 6 月底完成约 140 万户房产。但自从上周恒大项目建设停滞消息曝光后，受损的恒大购房者已在广州举行了数次抗议活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+与此同时，恒大金融业务更以 10% 以上的年回报承诺，吸引超过 7万多名散户投资者，其中包括许多恒大员工，延迟支付高达400亿元的理财产品，一旦发生自由落体式的违约将是灾难性的。
 
+中共的房地产庞氏骗局长达数十年，随着恒大等房地产诈骗公司和背后资本的爆雷，普通百姓的财富也将被洗劫一空。
+(本文仅代表作者观点)
 
+参考链接：[Enraged Evergrande Investors Go Full Pitchfork, Hold Management Hostage In Company Offices](https://twitter.com/jackposobiec/status/1438704256882728962?s=21)
 
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-
-有热心的战友发现GETTR已经有翻译功能了。 目前，盖特翻译功能仅在网页版本实现，还未更新到苹果手机或者谷歌手机应用上。 截稿前，盖特网页版可以支持69种语言互相翻译，包括：简体中文，繁体中文，英语，葡萄牙语，巴西葡萄牙语，西班牙语，法语，德语，希腊语，瑞典语，罗马尼亚语，俄罗斯语，丹麦语，亚美尼亚语，阿拉伯语，阿尔巴尼亚语，泰语，荷兰语，意大利语，日语，韩语，越南语，南非荷兰语，克罗地亚语等等。 这些语言涵盖了亚洲主要经济体使用的语言，也覆盖了欧盟主要经济体，当然也覆盖了美洲和非洲和大洋洲的主要语言。
-
-盖特为迎接全世界各国用户又进了一步。多语言翻译，也为跨语言交流提供了便利。盖特将成为全世界热爱和平，热爱自由的人的聚集地。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-25.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9-3.jpg)
-
-参考链接： 
-[#gettr 的翻译功能上线**👏**而且很多种语言**🎉**](https://gettr.com/post/pbabwb42a1)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
+终审：文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

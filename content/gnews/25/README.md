@@ -2,29 +2,32 @@
 ---
 
 
-## 秘翻在线：中共专制暴政使香港出现教师离职潮
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538120/)
+## 聚焦备战, 中共党魁习近平视察陕西火箭军
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538515/)
 
-#### 撰稿：极寒将至 
+栏目记者/责任编辑：文扬四海
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-57.jpg)图片来源：香港经济日报
-据路透社（Reuters）报导，自中共于 2020 年 6 月在香港实施严格的国安法以来，这座城市所发生的专制转变，让香港众多教师感到心灰意冷和威胁。几位接受路透社采访的校长表示，今年教师离职的速度大约是正常时的两倍，这让他们中的一些人争先恐后地招聘新员工填补教师空缺。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-香港中学校长协会在 7 月警告政府，大量的“人才流失”，将导致该市的教育质量降低。香港约有700,000名学生就读于约1,000所中小学。
 
-汇基书院（东九龙） (United Christian College (Kowloon East))校长郑建德（CHENG Kin-tak, Samuel）告诉路透社，“教育环境和气氛在过去两年中发生了巨大变化”。在2019年香港民主运动期间被捕的 10,000 多人中，近 20% 处于学龄。据该市教育部长称，大约 100 名学校教师和工作人员也被捕。之后，教育系统就成为中共试图改变具有反抗精神的香港年轻人的重要阵地。
 
-今年 2 月，香港推出了新的课程指南，确保 6 岁以下的儿童更多地了解中共国并接受中共国安法的教育，事实上港版国安法使任何被中共视为分裂国家、颠覆或勾结外国势力的行为，都将被处以最高刑罚甚至被送进监狱。
+新华网9月16日消息，中共党魁习近平15日视察驻陕西部队某基地，在训话时称，要聚焦备战打仗，全面提升履行使命任务的能力，提高太空危机管控和综合效能，确保测控精准可靠。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-17-at-8.23.03-PM.png)
+文贵先生爆料中共在20大前随时有可能攻打台湾，而且会用各类导弹攻击台湾。新华网这则消息中传递了相应的信息，首先陕西一直都是习近平的势力范围和根据地，而且也是中共火箭军最重要的基地之一，火箭军工程大学就在陕西，还有驻宝鸡的第67火箭军部队等, 很可能就是这次习近平所视察的PLA陕西某部。中共火箭军负责对目标进行常规导弹打击及核打击任务，习视察的目的很可能涉及对台作战部署甚至是战前动员。而习重点提到太空防控，更有可能是针对美国释放威慑信号，因火箭军的洲际弹道导弹是在大气层外的太空飞行的。是用以打击跨洋远程目标，包括欧洲和美国。这些导弹可以用于携带核弹，成为战略核武器。
+(本文仅代表作者观点)
 
-香港教育局（Education Bureau）已经用一个专注于“爱国主义”的，名为“公民和社会发展”的较小模块取代了原来的通识​​教育（Liberal Studies）内容，通识教育于 2009 年引入以增加社会参与和发展批判性思维。香港行政长官林郑月娥去年表示，需要将“坏”教师从教育系统中移除。教育局告诉路透社，在 2019 年 6 月至 2020 年 12 月期间，教育局收到了 269 起教师不当行为投诉，但是教育局未能向记者提供投诉的任何细节。
+参考链接: [习近平视察驻陕西部队某基地](http://www.news.cn/politics/leaders/2021-09/16/c_1127870182.htm)
 
-在香港政府的压力下，香港教育专业人员协会（Hong Kong Professional Teachers’ Union）本月初正式解散，香港政府已经与拥有 95,000 人的协会断绝关系。中共官方媒体更将香港教育专业人员协会描述为“毒瘤”。香港教育专业人员协会曾是香港最大的协会，它在 5 月份的报告中称，接受调查的教师中有 40% 想离开教育行业。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-香港资助小学校长委员会（Hong Kong Aided Primary School Heads Council）副主席陈宝莉（Polly Chan）说，较高的教师流失率是由 “疫情，加上社会动荡，以及政治原因 ”造成的。今年移民将以倍数增长。
+终审：文龙
+校正/发稿：我不在这里
 
-自由与民主才是香港具备吸引力的根本原因，但是2019年中共大举入侵香港残酷镇压民主运动，直至2020年港版国安法正式实施，香港已经沦为中共专制暴政的重灾区，中共将以警治国的整套恶政搬到香港后，香港已成为最缺乏安全感的城市之一，港人的大量离开自然成为顺理成章的事。而中共对香港教师和学生的镇压尤为严酷和残忍，再加上洗脑教育走进课堂，这些都是具有自由思想的教师所无法忍受的，现在更有了针对教师的强制疫苗，老师们被逼着只能选择用脚投票离开香港。
-
-新闻来源：[Hong Kong teachers exit under shadow of security law, schools scramble to fill gaps](https://www.reuters.com/world/china/hong-kong-teachers-exit-under-shadow-security-law-schools-scramble-fill-gaps-2021-09-16/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

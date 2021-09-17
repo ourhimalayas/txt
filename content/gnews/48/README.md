@@ -2,17 +2,58 @@
 ---
 
 
-## 2021年9月16日 文贵先生盖特 17
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1538331/)
+## IIF表示二季度全球债务直逼300万亿美元，创历史新高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1538370/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+简评：
 
-9/16/2021 Miles Guo’s GETTR: Only the Whistleblowers’ Movement has told everyone that the evil essence of the CCP lies in the Zhongnan Pit. That’s why we shall eliminate only a handful of devils in charge of this evil machinery! We are going to set up in the world the New Federal State of China that belongs to the Chinese people and is represented by the government derived from a one-person-one-vote election.
+*疫情过后，全球债务扩张已经到了难以为继的地步，成为全球经济的“定时炸弹”。我们经历了海航和恒大暴雷事件，未来还会有平安、陆金所、马化腾、银行等更多的金融暴雷。*
 
-9/16/2021 文贵盖特：只有爆料革命告诉了大家中共的邪恶本质在中南坑，所以我们要消灭的是这几个掌握着邪恶机器的恶魔！我们要在国际上建立属于中国人的、一人一票选出的政府来代表的新中国联邦！
+*这些要暴的时候，会把CCP炸得魂飞魄散，整个中共国的CCP会有一半死在这些事件中，中国老百姓和所有人的房、车，一切都结束。我们唯一希望的是，这些企业倒塌的时候不要带走太多同胞。*
 
-[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pbadgeaa8c)
+据《路透社》记者：Dhara Ranasinghe ，2021年9月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2217.png)欧元、港元、美元、日元、英镑和中国 100 元纸币，2016 年 1 月 21 日。图片来源：路透社/Jason Lee
+《路透社》伦敦 9月14日 —— 国际金融协会（IIF）周二表示，第二季度全球债务升至近 300 万亿美元的历史新高，但随着经济增长反弹，债务与国内生产总值(GDP) 的比率自中共病毒疫情开始以来首次下降。
 
-**喜联盟Gnews编辑部**
+在第一季度略有下降后，包括政府、家庭、企业和银行债务在内的总债务水平在 6 月底增加了 4.8 万亿美元至 296 万亿美元，比疫情前高出 36 万亿美元。
+
+国际金融协会可持续发展研究主管Emre Tiftik表示：“如果债务继续以这种速度增长，我们预计全球债务将超过300万亿美元。”
+
+在新兴市场中，债务水平增幅最大，第二季总债务较前三个月增加3.5万亿美元，达到近92万亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2217..png)全球债务迅速逼近300万亿美元
+IIF 报告称，自冠状病毒危机爆发以来，全球债务与 GDP 的比率首次下降，这对债务前景来说是一个积极的迹象。
+
+第二季度，债务与GDP之比从今年第一季度创纪录高位的362%降至约353%。
+
+IIF 表示，在其监测的 61 个国家中，有 51 个国家的债务与 GDP 之比出现下降，主要是由于经济活动强劲反弹。
+
+但该机构补充称，许多国家的复苏还不够强劲，不足以推动债务与GDP之比降至大流行前水平之下。
+
+根据IIF的数据，只有五个国家的总债务/ GDP比率(不包括金融业)低于疫情前的水平：墨西哥、阿根廷、丹麦、爱尔兰和黎巴嫩。
+
+与其他国家相比，中国的债务水平上升幅度更大，而在政府借款增加的推动下，中国以外的新兴市场债务在第二季度升至 36 万亿美元的历史新高。
+
+IIF指出，继第一季度小幅下降后，发达经济体 —— 尤其是欧元区 —— 的债务水平在第二季度再次上升。
+
+美国第二季债务增幅约为 4900 亿美元，是疫情开始以来的最低水平，但该国家庭债务仍以创纪录的速度增长。
+
+今年前六个月，全球家庭债务增加了 1.5 万亿美元，达到 55 万亿美元。 IIF 指出，在其研究中，近三分之一的国家上半年家庭债务有所增加。
+
+IIF的Tiftik表示：“在世界上几乎所有主要经济体，家庭债务的增长都与房价的上涨保持一致。”
+
+此外，IIF表示，今年可持续债务发行总额迄今已超过8000亿美元，IIF预计2021年全球发行量将达到1.2万亿美元。
+
+原文连接：[https://www.reuters.com/business/global-debt-is-fast-approaching-record-300-trillion-iif-2021-09-14/](https://www.reuters.com/business/global-debt-is-fast-approaching-record-300-trillion-iif-2021-09-14/)
+
+（本文评论仅代表个人观点）
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
