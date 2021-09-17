@@ -142,36 +142,36 @@
 ### [09/15/2021 国际财经快讯：全球债务正快速接近创纪录的300万亿美元；美国证券交易委员会将发布GameStop报告](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [樱花灭共诗——万亿夺宝（新韵）](/content/gnews/44/README.md)
+### [皮特纳瓦罗成为新中国联邦大使和盖特形象大使](/content/gnews/44/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [樱花灭共诗——万亿夺宝（新韵）](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——九州记事](/content/gnews/45/README.md)
+### [樱花灭共诗——九州记事](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——民族主义精神](/content/gnews/46/README.md)
+### [樱花灭共诗——民族主义精神](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（4）](/content/gnews/47/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（4）](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [米利称通共电话不是秘密的](/content/gnews/48/README.md)
+### [米利称通共电话不是秘密的](/content/gnews/49/README.md)
  ` HimalayaRussia`
 
-### [9/17/21 香港快讯 职工盟将进入解散筹备过程 星期日开记者会交代](/content/gnews/49/README.md)
+### [9/17/21 香港快讯 职工盟将进入解散筹备过程 星期日开记者会交代](/content/gnews/50/README.md)
  ` 英喜-粵語組`
 
-### [新西兰女士的呐喊，新西兰！醒醒吧！中共病毒疫苗是毒药！](/content/gnews/50/README.md)
+### [新西兰女士的呐喊，新西兰！醒醒吧！中共病毒疫苗是毒药！](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟出台最新印太战略](/content/gnews/51/README.md)
+### [欧盟出台最新印太战略](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [有声|中共正在扩大在非洲的影响力](/content/gnews/52/README.md)
+### [有声|中共正在扩大在非洲的影响力](/content/gnews/53/README.md)
  ` MOSREC`
 
-### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/53/README.md)
+### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/54/README.md)
  ` 纽约香草山MOS01`
-
-### [灭共进入“以苗灭共”新阶段](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
 
