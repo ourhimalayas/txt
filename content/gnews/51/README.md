@@ -2,49 +2,44 @@
 ---
 
 
-## 有声|中共正在扩大在非洲的影响力
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1538745/)
+## 欧盟出台最新印太战略
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538763/)
 
-配音：纽约香草山美食部 – 玫瑰园
+栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-203.png)
+9月16日，欧盟委员会和欧盟外交高级代表推出了一份关于欧盟在印度-太平洋地区合作战略的联合公报。根据欧盟的官方文件，新战略将具体实施如下内容：
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-25.jpeg)
 
+1.完成、恢复或开始欧盟与印度等印太相关国家的贸易谈判、投资谈判。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+2. 与马来西亚等国缔结伙伴关系和合作协议或开始相关谈判。与其他有意愿的国家缔结绿色联盟和伙伴关系，应对气候变化和环境退化。
 
+3. 加强欧盟对印太地区的海洋治理，增加对相关国家渔业管理和控制系统的支持；加强海军部署，帮助保护该地区的海上交通线和航行自由。
 
+4. 在 “欧洲地平线 “计划下加强欧盟与印太地区的研究和创新方面的合作。
 
+其他还包括扩大与印太伙伴的数字关系网络、加快实施与日本和印度的互联互通伙伴关系、加强对该地区最不发达国家的医疗保健系统和大流行病准备的支持等。
 
+该文件出台在《新欧中战略报告》一天之后，在美英澳宣布重塑三国与印太地区关系新安全合作机制几小时之后。尽管欧盟称此举并非对抗中共，但西方主要国家同时宣示与中共周边国家加强关系，围剿中共的意图显而易见。
 
+（本文仅代表作者观点）
 
+参考链接：[美英澳签署新安全联盟之际，欧盟出台新的印太战略](https://www.voachinese.com/a/eu-indo-pacific-strategy-china-20210916/6231772.html)
+[欧盟推出印太合作战略纲要](https://www.rfi.fr/cn/欧洲/20210916-欧盟推出印太合作战略纲要)
 
-据美国之音9月14日报道，中共一直试图在国际版图上侵蚀、扩张，而相较于其他国家，中共在非洲的影响力实际不容小觑。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-事实上，中共近期与其他西方国家处于一种相对紧张的态势，为此，中共企图通过在亚非拉地区投资并建立基础设施来与美国争夺在整个非洲，乃至世界的影响力。
-
-去年年底，传统基金会发布了一份由莫塞维撰写的报告，当中详细列举了中方在非洲40个国家构筑的186个重要的政府大楼及设施，其中包括政府内部通讯网络等。虽然美国每年在非洲的投资也达250亿到300亿美元，然而美国的投资项目则多注重于公共卫生、人道救援和拨款等资助。
-
-而今，中共通过其惯用的蓝金黄及大撒币政策，正在逐步对非洲政府进行渗透和控制。而中共这一系列举动的目的在于，非洲有54个国家，基于联合国“一票一国”的机制，非洲在其中可以起到重要的导向作用。倘若中共能掌控非洲，中共就能以此来争夺联合国的话语权，从而挑战西方的民主文明，蚕食美国的地位及影响力，最终达到其控制世界的邪恶意图。
-
-
-
-[文字版原文：中共正在扩大在非洲的影响力](https://gnews.org/zh-hans/1535214/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 0

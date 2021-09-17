@@ -58,23 +58,23 @@
 ### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [平安集团的董事段伟红，消失了整整四年，两周前出狱了](/content/gnews/16/README.md)
+### [中共正在帮助某大国建立三个生化实验室](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“掩盖或隐藏与强制疫苗相关的风险”，“我们需要面对数据”](/content/gnews/17/README.md)
+### [平安集团的董事段伟红，消失了整整四年，两周前出狱了](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/09/16 大卫作战室直播精要](/content/gnews/18/README.md)
+### [“掩盖或隐藏与强制疫苗相关的风险”，“我们需要面对数据”](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021/09/16 大卫作战室直播精要](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [世界上有史以来最大的一单回扣中介费](/content/gnews/19/README.md)
+### [世界上有史以来最大的一单回扣中介费](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [病理学博士表示疫苗将增加20倍癌症发病率](/content/gnews/20/README.md)
+### [病理学博士表示疫苗将增加20倍癌症发病率](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [新西兰女士的呐喊，新西兰！醒醒吧！中共病毒疫苗是毒药！](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [秘翻在线: 中共将军曾从加拿大顶级病毒实验室获取病毒样本](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
@@ -94,28 +94,28 @@
 ### [欧洲议会压倒性通过报告, 呼吁制定针对中共新战略](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [布莱克本暗示拜登的阿富汗撤退是为了援助中共国而故意搞砸的](/content/gnews/28/README.md)
+### [拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/28/README.md)
+ ` 纽约香草山MOS01`
+
+### [布莱克本暗示拜登的阿富汗撤退是为了援助中共国而故意搞砸的](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [发布：CPDC（当危会）欢迎乔治•索罗斯反对美国投资中共的态度，并要求美国证券交易委员会加以限制](/content/gnews/29/README.md)
+### [发布：CPDC（当危会）欢迎乔治•索罗斯反对美国投资中共的态度，并要求美国证券交易委员会加以限制](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大5至11岁儿童疫苗接种将在年底前获得批准](/content/gnews/30/README.md)
+### [加拿大5至11岁儿童疫苗接种将在年底前获得批准](/content/gnews/31/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [DC每日热点0917](/content/gnews/31/README.md)
+### [DC每日热点0917](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/32/README.md)
+### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/33/README.md)
  ` wenwu`
 
-### [“喵喵”议程优先：澳大利亚承认正在禁止伊维菌素](/content/gnews/33/README.md)
+### [“喵喵”议程优先：澳大利亚承认正在禁止伊维菌素](/content/gnews/34/README.md)
  ` wenwu`
 
-### [共和党人担心阿富汗援金是“人质赎金”](/content/gnews/34/README.md)
- ` wenwu`
-
-### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/35/README.md)
+### [共和党人担心阿富汗援金是“人质赎金”](/content/gnews/35/README.md)
  ` wenwu`
 
 ### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/36/README.md)
@@ -130,17 +130,17 @@
 ### [列举中共病毒“疫苗”严重伤害病例14例](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9/17/2021国际财经快讯：摩根下周在英国将推出数字银行Chase；美联储“缩减”时间表](/content/gnews/40/README.md)
+### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/40/README.md)
+ ` wenwu`
+
+### [9/17/2021国际财经快讯：摩根下周在英国将推出数字银行Chase；美联储“缩减”时间表](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/41/README.md)
+### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [09/15/2021 国际财经快讯：全球债务正快速接近创纪录的300万亿美元；美国证券交易委员会将发布GameStop报告](/content/gnews/42/README.md)
+### [09/15/2021 国际财经快讯：全球债务正快速接近创纪录的300万亿美元；美国证券交易委员会将发布GameStop报告](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
-
-### [中国会是下一只黑天鹅吗？](/content/gnews/43/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [樱花灭共诗——万亿夺宝（新韵）](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -160,18 +160,18 @@
 ### [9/17/21 香港快讯 职工盟将进入解散筹备过程 星期日开记者会交代](/content/gnews/49/README.md)
  ` 英喜-粵語組`
 
-### [欧盟出台最新印太战略](/content/gnews/50/README.md)
+### [新西兰女士的呐喊，新西兰！醒醒吧！中共病毒疫苗是毒药！](/content/gnews/50/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [欧盟出台最新印太战略](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [有声|中共正在扩大在非洲的影响力](/content/gnews/51/README.md)
+### [有声|中共正在扩大在非洲的影响力](/content/gnews/52/README.md)
  ` MOSREC`
 
-### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/52/README.md)
+### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/53/README.md)
  ` 纽约香草山MOS01`
 
-### [灭共进入“以苗灭共”新阶段](/content/gnews/53/README.md)
+### [灭共进入“以苗灭共”新阶段](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
-
-### [秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
 

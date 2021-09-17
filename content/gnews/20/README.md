@@ -2,41 +2,108 @@
 ---
 
 
-## 病理学博士表示疫苗将增加20倍癌症发病率
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1538796/)
+## 世界上有史以来最大的一单回扣中介费
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539038/)
 
-**By:秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0.jpg)
+[https://gtv.org/video/id=61436922784c5a2583574de9](https://gtv.org/video/id=61436922784c5a2583574de9)
 
-***2021-9-17***
+**字幕内容:**
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/917-2.jpg)](https://gtv.org/broadcast/watch/61445df5751e4f2b0e546a08)点击图片观看视频
+**郭文贵**
+**Miles Guo**
 
-**新闻摘要:**
+人类有史以来最大的白手套
+The biggest ‘white glove’(middleman) in human history
 
-1、四川泸州6级地震 不是天灾是人祸
+大家你们知道是多少钱吗？
+Do you know how much it is?
 
-2、江苏有人企图“对领导人不轨”
+我告诉你们，你们要认真数这个事
+I tell you, you have to count this matter seriously
 
-3、香港教师在安全法的阴影下离职，学校争相填补空缺
+记住我郭文贵今天说这话
+Mark my words today
 
-4、恒大集团二股东刘銮雄夫妇减持套现
+我承担法律责任
+I take legal responsibility for what I say
 
-5、中共国接种总剂次和覆盖人数均居全球首位
+希望被点到名的人来告我
+I hope someone I named will sue me
 
-6、普京称，他的核心圈子中有数十人的核酸检测呈阳性
+一个人类有史以来拿到1200亿美元中介费的一单交易
+A single transaction that has received 120 billion US dollars in intermediary fees in the history of mankind
 
-7、美国国会大厦外安装面部识别的监控器
+中国的政府官员，他的白手套拿了1200亿
+Chinese government officials, his middleman (White Glove) took 120 billion dol-lars
 
-8、病理学博士表示疫苗将增加20倍癌症发病率
+这1200亿是纯现金
+This 120 billion dollars are pure cash
 
-9、Zoom泄露视频揭露医疗中心讨论如何散播恐惧来让人们接种疫苗
+人家的1200亿是pure cash
+Its 120 billion dollars and are all pure cash
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61445df5751e4f2b0e546a08](https://gtv.org/broadcast/watch/61445df5751e4f2b0e546a08)
+一单就1200亿，人家是合法拿到1200亿美元
+they took 120 billion dollars in one transaction legally
 
-发布: 文橙
+就一笔拿走，牛到这程度
+Just in one transaction, it is unbelievable
 
-* * *
+张宏伟不仅有《酒浴》之图
+Zhang Hongwei not only has that “Wine Bath” picture
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
-+1
+张宏伟的大老板叫陈元
+Zhang Hongwei’s big boss is Chen Yuan
+
+陈元是唯一促成沙特和中国共产党签署了阿美石油协议的5000亿美元现金投入
+Chen Yuan is the only one that led to the signing US$500 billion cash input of the Aramco Oil Agreement between Saudi Arabia and the Communist Party of China
+
+拥有20%沙特阿美股份的
+Owns 20% of Saudi Aramco’s shares
+
+按照这个合同25%的佣金现金，一笔支付
+According to this contract, 25% of the commission, paid in cash
+
+支付的所有的安排对象都是张宏伟
+All the payment arrangements are made by Zhang Hongwei
+
+我可以告诉大家
+I can tell everybody
+
+我说今天爆这个料全地球，全星空也不会有几个人知道
+I broke this information today that only a few people know in the earth and whole universe
+
+但记住今天我报这个料，今天我说的
+But remember today what I said about this information
+
+世界上最大的一单的回扣中介费单笔的地球有人类有史以来
+The largest single commission intermediary fee in the world
+
+我就觉得就这一单了
+I think this is it
+
+最重要的事情，张宏伟能玩1200亿
+The most important thing is Zhang Hongwei can handle this 120 billion dollars
+
+现在看来就是这一单1200亿
+Now just look at this 120 billion dollars kickback
+
+一定会改变中国政治的格局
+It will definitely change the landscape of Chinese politics
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24](https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24)
+
+中听英: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场– 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

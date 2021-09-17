@@ -2,60 +2,117 @@
 ---
 
 
-## 2021/09/16 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1539108/)
+## “掩盖或隐藏与强制疫苗相关的风险”，“我们需要面对数据”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539095/)
 
-**主播**：大卫
+![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0-1.jpg)
+[https://gtv.org/video/id=61429170784c5a258356f723](https://gtv.org/video/id=61429170784c5a258356f723)
 
-[GTV视频链接](https://gtv.org/video/id=6143293a751e4f2b0e53ff1b)
+**字幕内容:**
 
+Dr. Robert Malone （mRNA Vaccine Technology Inventor)
+罗伯特·马龙博士（mRNA疫苗技术发明者）
 
+I don’t know what it says about journalism,
+我不知道它对新闻业说了什么
 
-**板块1–国际政治**
+or what it says about our culture that we always assume
+或者它对我们一直假设的我们的文化的看法
 
-1. 即拜登上次主动跟习通话后，习这次明确冷落拜登面对面峰会建议。峰会见面没有谈判基础（台海、病毒、贸易等话题），不可能有谈判成果。习在明面上得了“面子”，美在行动上联合日、印、澳、台应对台海和南海危机，美英澳宣布一项亚太地区安全条约，对抗中共国。中共国经济出现类似恒大爆雷等危机，第一阶段贸易协议已不可能完成。
+that someone must have an ulterior motive,
+一定有人别有用心
 
-**板块2–国际财经**
+that it’s not sufficient to just be addressing an issue because it matters
+仅仅解决一个问题是不够的，因为它很重要
 
-1. 中共擅长利用大外宣大数据控制14亿人的需求和消费方向，把经济政治化。在整体经济下滑的时候，买材料成本增加，生产者提高物价，通货膨胀已到来，经济数据暴跌，“经济硬着陆”迫在眉睫，中共国经济迎来“敦刻尔克时刻”
+it because it is the ethically correct thing to do it,
+因为这样做在道德上是正确的
 
-2. 中共国释放780万桶战略储备原油，欲引发油价下跌，缓解物价持续增加，说明中共国内的经济压力大于对台作战的需求。
+there seems to be this assumption that everybody’s got an angle.
+似乎有这样的假设：每个人都有自己的角度
 
-3. 美国证券交易委员会主席Gary Gensler告诉立法者，中共国的公司应面临更快的退市规则。中共企业利用监管存在漏洞大肆圈钱，美国开始改善股市存在的监管漏洞，实际是与中共国经济脱钩的信号。
+I think it says more about the author than it says about me.
+我认为它对作者的描述多于对我的描述
 
-**板块3–香港台湾**
+And so this kind of casting shade and aspersions on me personally,
+所以这种对我个人的质疑和诽谤，
 
-1. 中共国同意投资者通过香港购买离岸债券，开通债券通南向通道。经历“香港运动”后，香港房价、香港整体经济均未下跌，通过债券把大陆洗的资金打包继续向外输出，本质–盗国贼向外走钱提供通道。
+as a way to avoid addressing the underlying issues.
+是一种避免解决根本问题方式
 
-2. 中共军队可能已掌握台湾军事机密，台湾军事部署应积极求变，应对中共国对台动手策略（第一波断通讯登岛，第二波颠覆岛内政治、民意急速转向）。
+I just see it as kind of noise and a little bit sad,
+我只是把它看作是一种噪音并且有点伤感
 
-**板块4–新疆西藏**
+and it’s almost an affirmation.
+这几乎是一种肯定
 
-1. 维吾尔法庭第二次在英国伦敦开庭，继续发酵对中共国种族灭绝的定性。目的在于使听证程序合法合理、保证证据有效、让民众普遍认同，最终影响至整个欧洲。
+If the strongest, they can come up with is to try to attack and cast shade on
+如果他们能想出的最有力的办法是，试图质疑
 
-**板块5–国内政治**
+whether or not I made a significant contribution that led to over nine patents.
+我是否做出了导致超过 9 项专利的重大贡献
 
-1. 中共想干“大坏事”前，制造政治噱头、政治理论。《人民日报》近期呼应习近平讲话贬低“人权、自由、民主”等价值观，高举“马克思、列宁主义”（引发人类大屠杀和种族灭绝，垃圾主义，精神鸦片）。习在准备接班人保证其政治势力的安全。
+During the late 1980s.
+在 1980 年代后期。
 
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+If that’s the worst they can throw at me.
+如果那是最糟糕的，他们可以诋毁我
 
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+I think I’m doing pretty good. So that’s how I see it
+我觉得我做得很好。所以我是这么看的
 
+Jen Jekielek (Newsmax host)
+杰 凯莱克（Newsmax 主持人）
 
-[![](https://spark.adobe.com/page/8Kja2tK5z0qMe/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/8Kja2tK5z0qMe/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+well. So sure, so you’re not trying,
+好, 所以肯定的你不去尝试
 
-*编辑：【英国伦敦喜庄园编辑部】*
+“ so hard to undermine the use of this vaccine technology”
+“很难破坏这种疫苗技术的使用”
 
-*听写：call me uncle | 校对：乐禧禧* *| Page：我是球大哥*
+Dr. Robert Malone
+罗伯特·马龙博士
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+No, it’s that my concerns here.
+不，这是我的顾虑
 
+As I said, I think in our probe interview,
+正如我所说，我认为在我们的调查采访中，
 
-[![](https://spark.adobe.com/page/8Kja2tK5z0qMe/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/8Kja2tK5z0qMe/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+is that there’s been a series of actions taken policies
+是采取了一系列行动政策
 
+taken or regulatory actions
+采取或监管行动
 
+taken that are at odds with how I’ve been trained with with the norms
+这与我接受规范的训练方式不一致
+
+as I’ve always understood them to be
+正如我一直理解的那样
+
+the regulatory norms，the scientific norms.
+监管规范，科学规范
+
+These things have been waived.
+这些东西都被放弃了
+
+And I think for a lot of people it doesn’t make sense.
+我认为对很多人来说这没有意义
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[https://twitter.com/janjekielek/status/1436786615695855617?s=24](https://twitter.com/janjekielek/status/1436786615695855617?s=24)
+
+英听中: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场– 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
