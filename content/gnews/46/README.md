@@ -2,25 +2,15 @@
 ---
 
 
-## 中（共）国在澳潜艇将航行的海域做了什么
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1538191/)
+## 2021年9月16日 文贵先生盖特 15
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1538320/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09171.jpg)
-美国、英国和澳大利亚之间的一项协议旨在遏制中（共）国在印太地区的发展，中（共）国驻华盛顿大使馆发言表示这是“冷战思维”，同时其外交部发言人称这是一项“极其不负责任”的协议。
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-在习近平掌控的现在，其影响力正试图扩大势力范围。在东海有争议的岛屿：这七平方公里的钓鱼岛，一边是中（共）国海军，另一边是日本海警。因为中（共）国的蠢蠢欲动而遭到日本的谴责。
+9/15/2021 郭文贵先生：我不是中国的华盛顿，我只想灭共！我不图钱，我只在乎传递真相；但华尔街的人为了钱却出卖了美国；纳瓦罗先生、班农先生和蓬佩奥先生不仅拯救了美国，而且还拯救了全世界，他们是14亿中国人乃至全地球的英雄！ 9/15/2021 Miles Guo: I am not China’s George Washington, and I just want to take down the CCP! I don’t work for money, and I only care about spreading the truth; Yet the Wall Street guys have sold out America for money. Mr. Peter Navarro, Mr. Steve Bannon, and Mr. Mike Pompeo have not only saved America, but also the entire world. They are the heroes of the 1.4 billion Chinese people and the whole world!
 
-南海诸岛“九段线”：中（共）国声称控制了这片富含鱼类、油田海域的80%，现在它是中（共）国的海上贸易的重要枢纽：世界贸易的五分之一需要经过这里。因此，当局继续支持其在从南沙群岛到帕拉塞尔苏斯的所谓九点线内的主张，与菲律宾、马来西亚、文莱、越南和台湾争夺中国海的这一部分。近十年来，他一直在无中生有地建造人工岛屿，主要用于军事目的，完全藐视五年前海牙的裁决书。
+[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pb97q35547)
 
-台湾第一岛链及突破口：为什么台湾对共产党领导层如此重要？ 因为重新征服台湾岛将使北京有机会打破这一链条，并从那里将其所有海军力量通过海洋导向美国。
-
-与澳大利亚的关系和贸易战：除了美国，北京与之抗争多年的另一个大国是澳大利亚。堪培拉决定加强其军事武库，这很有可能会使中澳两国关系更加紧张。 2020 年 4 月以来，澳大利亚政府坚持对冠状（中共）病毒起源展开国际调查以来，因此中(共)国对于来自澳大利亚的煤炭、葡萄酒、龙虾、糖、大麦和肉类的进口征收了高额的关税来作为回击。
-
-免责申明：本文只代表译者观点，与Gnews无关
-
-原文链接：[https://www.repubblica.it/esteri/2021/09/16/news/cina\_sottomarini\_britannici\_all\_australia-318062598/](https://www.repubblica.it/esteri/2021/09/16/news/cina_sottomarini_britannici_all_australia-318062598/)
-
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+**喜联盟Gnews编辑部**
 
 0

@@ -2,22 +2,15 @@
 ---
 
 
-## 【樱花宅急便】催化教育界举报戾气 毁下一代人性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1538235/)
+## 2021年9月16日 文贵先生盖特 16
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1538325/)
 
-#### 作者：喜马拉雅东京樱花团  阿恩
-![](https://assets.gnews.org/wp-content/uploads/2021/09/28CHINAPLANKERS-web1-articleLarge.jpg)
-中国有尊师重教的传统，体罚在教育机构司空见惯，但中共独裁七十年进一步强化了中国社会的各种暴力，人民要忍受中共政府残暴的血腥统治，员工要忍受企业主没人性的压榨，商贩要忍受税吏的横征暴敛，小贩要忍受城管如狼似虎的抢夺，而学生们则要忍受来自校园和家庭的暴力。在中共国，人人都是暴力的受害者，人民没有发声的渠道，也没有公义可以寻求，因此滋生了更多的罪孽，许多人将自己所受的痛苦转嫁给其他人，这种彼此相害的社会现象比比皆是。即使在香港这个曾经的法制之都，人们对自己和家人们所遭受的不公义，大部分都是抱以能忍则忍的态度。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-今日香港的媒体纷纷报道培幼会的一份研究报告，严正指出香港的儿童正在面临教育机构的各种伤害，呼吁港府完善举报机制保护儿童。这份义正言辞的报告在中共暴政香港下出现，势必掀起香港教育界的文革潮。当年的文化大革命，中共蛊惑人民之间互相举报，霎时间亲情、爱情、友情悉数泯灭，那些教育界的师长们纷纷被学生们五花大绑押送审判台，每个参与文革的人都背负了沉重的血债而无法解脱，据爆料革命郭文贵先生透露，如今那些攀上中共权力巅峰的领导人，不乏被文革扭曲了心灵者，他们异于常人的暴政和变态的人生均源自文革的毒害。
+9/16/2021 Miles Guo’s GETTR: Peter Navarro’s joining the New Federal State of China has shocked the world’s political arena! What I told you about the biggest things to happen in 90 days is that Navarro and the other two prominent figures in the world will join the New Federal State of China！ 9/16/2021 文贵盖特：昨天，纳瓦罗加入新中国联邦的事震撼了世界政坛！七哥告诉你们90天内会发生最大的事就是纳瓦罗先生和另外两位世界级人物加入新中国联邦！
 
-由此可见，中共爪牙抛出的教育机构伤害港童的报告就是投石问路，港府则“顺应民意”推出强化版的举报机制，届时香港教育机构的教师们将如履薄冰，教师辞职潮将又现新高，剩下的教师为免触及红线，定会迎合中共的要求，导致教育水准直线下滑，曾经是培养自由民主摇篮的香港校园，将蜕变为中共傀儡和小粉红的温床。
+[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pbafbfa170)
 
-[资料来源](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/677879/%E5%9F%B9%E5%B9%BC%E6%9C%83%E8%AA%BF%E6%9F%A5%E6%8F%AD%E9%80%BE%E5%85%A9%E6%88%90%E5%AD%B8%E7%AB%A5%E5%8D%8A%E5%B9%B4%E5%85%A7%E6%9B%BE%E5%8F%97%E5%82%B7%E5%AE%B3-%E6%9C%89%E8%80%81%E5%B8%AB%E7%94%A8%E9%9B%B7%E5%B0%84%E7%AD%86%E7%85%A7%E7%9C%BC)
+**喜联盟Gnews编辑部**
 
-（本文只代表个人观点，与Gnews网站无关）
-
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 0

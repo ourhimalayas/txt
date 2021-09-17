@@ -2,27 +2,15 @@
 ---
 
 
-## 平民韭菜不够，私人银行客户来顶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1538097/)
+## 2021年9月16日 文贵先生盖特 12
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1538245/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-199.png)
-[图片来源](https://www.uxxsn.com/93509.html)
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-当前，中共经济已开始崩溃，失业率和通胀不断加剧，老百姓负债率不断增加，导致银行普通零售业务明显下滑。众多银行的零售业务战略重心开始由面向大多数转变为主攻极少数，即以瞄准私人银行客户为重点。
+916：路大脑骗这个孙子，把这房子给毁了！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6a123aa685fe123f8d83807df4b1afb5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/609a354310ce8b55f3d328ef954f1828-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/0689c8635ee8af63a382eec478b93558-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/bd6b75c63b35608c98509df681f45cc3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/c42c97889c870d03d865a30852067a28-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/f1dd96d93c260e86de70d831cb2f1e14-scaled.jpg)
+[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pbafrtdb09)
 
-据9月15日中国电子银行网消息，随着银行半年报的发布，多家银行在财富管理领域做出重要布局，财富管理市场已成为头部银行的“兵家必争之地”。招商、建行、中信等多家银行已将“大财富战略”作为业务发展主线。由于私人银行处于零售业务生态链的最顶端，也被称作“皇冠上的明珠”，其业务可以横跨银行个人金融和企业金融两端，能串联起财富管理、资产管理和投资银行的服务链条，因此私人银行就成了各银行“大财富战略”布局的重中之重。
+**喜联盟Gnews编辑部**
 
-根据郭文贵先生爆料，中共国银行资产早已被盗国贼及各级官商所掏空，银行售卖的各种理财产品实质都是在变相的骗取或者抢劫普通老百姓的血汗钱，就连所谓面向高净值人士的各种投行、信托等服务都是金融骗局。近期的公开案例就有，8月15日号称“零售之王”的招商银行被媒体爆出其代销的大业信托·君睿15号（九通基业）项目集合资金信托计划2021年二季度利息兑付实质违约，波及私行自然人客户。
-
-由此可见，对于中共而言，是不是韭菜在于血统和生殖器，与资产净值无关，如果广大的平民韭菜割不着，自然就得让高净值私银客户顶上了。
-
-信息来源：
-
-[被誉为银行零售“皇冠上的明珠”，会是银行业角逐的下一个“C位”吗？\_服务](https://www.sohu.com/a/490010156_115643)
-
-（本文只代表作者观点，与GNews网站无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
-+1
+0

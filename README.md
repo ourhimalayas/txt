@@ -22,23 +22,23 @@
 ### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [2021年9月16日 文贵先生盖特 13](/content/gnews/4/README.md)
+### [2021年9月16日 文贵先生盖特 19](/content/gnews/4/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 12](/content/gnews/5/README.md)
+### [2021年9月16日 文贵先生盖特 18](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 11](/content/gnews/6/README.md)
+### [2021年9月16日 文贵先生盖特 17](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [在接种疫苗52天后龙劭华昏倒抢救不治](/content/gnews/7/README.md)
- ` G-NEWS TAIWAN`
-
-### [亚利桑那州首次对拜登的疫苗授权提起诉讼](/content/gnews/8/README.md)
+### [22岁跳马冠军接种莫德纳疫苗后永远无法骑马](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
+### [在接种疫苗52天后龙劭华昏倒抢救不治](/content/gnews/8/README.md)
+ ` G-NEWS TAIWAN`
+
+### [亚利桑那州首次对拜登的疫苗授权提起诉讼](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [每日快报：公司和商业团体计划对拜登的疫苗任务进行反击](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -121,17 +121,17 @@
 ### [以美国为首的联盟向澳大利亚提供核潜艇来对抗中共国](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [列举中共病毒“疫苗”严重伤害病例14例](/content/gnews/37/README.md)
+### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/38/README.md)
+### [列举中共病毒“疫苗”严重伤害病例14例](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
+### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大雷爆CCP的末日还会远吗](/content/gnews/40/README.md)
  ` 银河勇气之星`
-
-### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/40/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
 
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
@@ -145,36 +145,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [【樱花宅急便】催化教育界举报戾气 毁下一代人性](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中（共）国在澳潜艇将航行的海域做了什么](/content/gnews/46/README.md)
- ` Charlie`
-
-### [2021年9月16日 文贵先生盖特 10](/content/gnews/47/README.md)
+### [2021年9月16日 文贵先生盖特 16](/content/gnews/45/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共网控升级，全面清理“僵尸号”“空壳号”](/content/gnews/48/README.md)
+### [2021年9月16日 文贵先生盖特 15](/content/gnews/46/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月16日 文贵先生盖特 14](/content/gnews/47/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月16日 文贵先生盖特 13](/content/gnews/48/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月16日 文贵先生盖特 12](/content/gnews/49/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [【樱花宅急便】催化教育界举报戾气 毁下一代人性](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年9月16日 文贵先生盖特 11](/content/gnews/51/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中（共）国在澳潜艇将航行的海域做了什么](/content/gnews/52/README.md)
+ ` Charlie`
+
+### [2021年9月16日 文贵先生盖特 10](/content/gnews/53/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中共网控升级，全面清理“僵尸号”“空壳号”](/content/gnews/54/README.md)
  ` 儒为`
 
-### [平民韭菜不够，私人银行客户来顶](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共申请加入跨太平洋伙伴协定 轮席主席国日本﹕须观察能否守规](/content/gnews/50/README.md)
- ` G&#124;News TAIWAN`
-
-### [长崎大学被中共选中，对日本人民意味着什么？](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021/09/14 文贵先生直播精要](/content/gnews/52/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [国际要闻汇编](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [意大利针对所有从业者强制执行绿色健康通行证计划](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [墙内要闻汇编](/content/gnews/55/README.md)
+### [平民韭菜不够，私人银行客户来顶](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 

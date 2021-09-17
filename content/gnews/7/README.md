@@ -2,41 +2,62 @@
 ---
 
 
-## 在接种疫苗52天后龙劭华昏倒抢救不治
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1538206/)
+## 22岁跳马冠军接种莫德纳疫苗后永远无法骑马
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1538357/)
 
-作者 台湾宝岛农场 Y.M.O
-![](https://assets.gnews.org/wp-content/uploads/2021/09/My-Post.jpg)
-9月14日台湾影视界传来一则让人震惊的消息，著名演员龙劭华于晚间8时许去世，享年68岁。据报道，龙哥最近是在高雄拍台视八点档电视剧《美丽人生》，由于这几天没什么拍摄行程所以并没有带自己的助理。14日晚上本来有饭局他一直没现身，于是片场的助理去他住的高雄85大楼敲门却无人应答，拿钥匙开门后才发现他坐在沙发上已经没有了意识，送医宣告不治。
+- **编译： Jenny Ball**
 
-根据龙劭华大哥的脸书，7月24日已经完成了第一剂AZ疫苗的接种。而经纪人透露龙劭华大哥原本更早之前就要接种疫苗，但随后因为出现晕眩症状推迟了日期，在医师确认身体状况没问题之后才接种了疫苗。这里有两点可以确认，一是龙劭华大哥身体原先就有隐疾，二是逝世的时间离接种疫苗相隔52天。虽然很多人都不愿意这么想，但带走龙劭华大哥的凶手是疫苗的可能性非常之高。
 
-这条新闻被刊出之后其实很多人是非常震惊的，关心疫苗危害的人自然会注意到施打疫苗的细节，而了解台湾影视界的人则会想到诸多优秀作品就这样失去了一位好演员，看过的角色越多，心痛的感觉也越强烈。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip73.png)
 
-2011年龙劭华在林育贤导演的电影《翻滚吧！阿信》中扮演称霸一方的宜兰黑帮老大黑松，让人印象深刻。
+[莫德纳](https://childrenshealthdefense.org/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/)[COVID-19](https://childrenshealthdefense.org/defender_category/covid/)疫苗的罕见反应使一位冠军跳马运动员的肺部形成了[两个巨大的凝块](https://childrenshealthdefense.org/defender/woman-johnson-johnson-vaccine-blood-clots-scientists-may-know-cause/)，她以后可能再也不能骑马了。
 
-2017年在非常卖座的恐怖电影《红衣小女孩2》中龙哥扮演吴念轩（虎爷）的爷爷阿龙师，一度被魔仔附身。第二年的《人面鱼：红衣小女孩外传》中龙哥也继续扮演这个角色。
+22 岁的伊莫金·艾伦（Imogen Allen）被医生告知，在她接种疫苗两周后形成的凝块可能是由疫苗引发的，同时她已经服用了5年复合避孕药 。
 
-2018年在萧雅全导演的《范保德》中龙哥扮演了男主角范保德的好友阿猴。
+来自伯克希尔伍德科特的艾伦女士，可能再也无法骑马了，现在卧床不起，让她成为一名警探的梦想也破灭了。
 
-同样是这一年，在热门剧集《花甲男孩转大人》的衍生大电影《花甲大人转男孩》中龙哥继续扮演了爱面子的二叔郑广煌。
+美国食品和药物管理局（FDA ）工作人员拒绝就辉瑞的 COVID 疫苗加强注射采取立场，理由是缺乏经过验证的数据。
 
-2019年龙劭华大哥在钟孟宏执导的金马最佳剧情片，入围奥斯卡国际影片十五强的《阳光普照》中扮演了男主角驾驶学校的老板。而在驾校被泼粪的戏也是片中少见的带有喜剧色彩的场面。
+[CNBC报道](https://www.cnbc.com/2021/09/15/covid-booster-shots-fda-staff-declines-to-take-stance-on-pfizers-third-doses-citing-lack-of-verified-data.html)：
 
-2020年龙哥在台湾票房最高的同志电影《刻在你心底的名字》中饰演王柏德的父亲，而在《孤味》中扮演抛弃了四个女儿的父亲陈伯昌的老年角色。值得一提的是，在《孤味》之前的短片中，龙哥并没有现身，但短片中父亲的声音是由他配的。
+FDA的工作人员，周三拒绝就是否支持[辉瑞](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/) COVID-19 疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。
 
-以上还仅仅是我熟悉的一些电影，在电视剧上龙劭华大哥也演过诸多作品，并且拿到过金钟奖。另外我印象深刻的一点是目前描写台北大稻埕的影视作品有近十部，龙哥出演了其中的一半。可以说如此出色的演员以这种方式去世实在是让人无法接受，并且只要疫苗接种一天不停止，这样的事情就会接二连三地发生。汽车厂商因为疫苗的危害生产陷入停滞，影视界也会因为从业人员的消失无法产出优秀作品，再美好的地方都会因此灰飞烟灭。
+“有许多潜在的相关研究，但FDA尚未独立审查或验证基础数据或其结论，”他们在该机构网站上发布的一份23页的文件中写道。“其中一些研究，包括来自以色列疫苗接种计划的数据，将在2021年9月17日 VRBPAC 会议期间进行总结。”
 
-新闻链接
+**学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗**
 
-[龍劭華過世！7月曾出現暈眩症狀確認身體狀況才打疫苗| 娛樂星聞](https://www.setn.com/News.aspx?NewsID=998051)
+《[**卫报****》****报道**](https://www.theguardian.com/education/2021/sep/15/covid-teams-can-vaccinate-pupils-against-parents-wishes-schools-told)**：**
+
+根据周三公布的政府指导方针，医护人员可以决定孩子是否违背父母的意愿接种 COVID 疫苗，这让一些校长担心学校门口会发生抗议。
+
+该指南称，12 至 15 岁儿童的疫苗接种将由已经在英格兰进行流感和人乳头瘤病毒 (HPV) 疫苗接种的学龄免疫服务 (SAIS) 团队进行。学校的作用将仅限于提供网站并向学生和家长分发信息和同意书。
+
+**当谈到 Delta 变体时，孩子们都很好**
+
+[**《华盛顿月刊》报道**](https://washingtonmonthly.com/2021/09/15/when-it-comes-to-the-delta-variant-the-kids-are-all-right/)**：**
+
+这是父母需要考虑的成本效益 – 这不是一个危险的决定。
+
+几乎没有证据表明 Delta 变体比该病毒的早期版本对儿童更危险。它更容易传播，是的，但与去年流行的病毒版本相比，受感染儿童的死亡率极小。
+
+**评论： **
+
+**FDA拒绝就是否支持辉瑞疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。好，那么FDA同样没有疫苗第二期第三期试验数据，为什么就强制大规模让美国人民和世界人民当白老鼠呢？**
+
+**“****学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗“，那么学校承担一切后果吗？学校有权让学生有权选举吗？学校这个指南是出自哪个法律条文？**
+
+**这场疫苗战争就是法律的决战！我们一定拿起法律赋予我们的权利保卫我们的孩子和未来！**
+
+（文章仅代表作者个人观点，与**GNEWS**无关）
+
+**素材链接：[childrenshealthdefense](https://childrenshealthdefense.org/defender/covid-nw-champion-show-jumper-22-reaction-moderna-vaccine/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=35c8a332-7285-46e1-8556-8f1f2097e18d)**
 
 * * *
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+***审核：文乐
+校对:  阿伯塔
+发布：信心满满***
 
-+1
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+
+0
