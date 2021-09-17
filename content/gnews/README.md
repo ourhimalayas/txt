@@ -22,23 +22,23 @@
 ### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [2021/09/14 文贵先生直播精要](/content/gnews/4/README.md)
+### [2021年9月16日 文贵先生盖特 10](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021/09/14 文贵先生直播精要](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/5/README.md)
+### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [串珠387： 德教社事件显示了一些我们战友的愚笨](/content/gnews/6/README.md)
- ` 郭爆料串珠`
+### [亚利桑那州首次对拜登的疫苗授权提起诉讼](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：接种疫苗后的恐惧，或将成为人类又一灾难！](/content/gnews/7/README.md)
+### [秘翻在线：接种疫苗后的恐惧，或将成为人类又一灾难！](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [菲律宾要求法院批准用伊维菌素治疗中共病毒](/content/gnews/8/README.md)
+### [菲律宾要求法院批准用伊维菌素治疗中共病毒](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
-
-### [列举中共病毒“疫苗”严重伤害病例14例](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [每日快报：公司和商业团体计划对拜登的疫苗任务进行反击](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -97,41 +97,41 @@
 ### [疫苗影响女性生理周期，全球启动调查](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [澳大利亚与美英“共命运”对抗中共国](/content/gnews/29/README.md)
+### [法国因错过了大订单而愤怒](/content/gnews/29/README.md)
+ ` Charlie`
+
+### [银河快讯： 河野希望刺激措施集中在能源和5G；谷歌在日本推出新闻展示](/content/gnews/30/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [澳大利亚与美英“共命运”对抗中共国](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：习近平在视察驻陕西部队某基地时强调聚焦备战打仗](/content/gnews/30/README.md)
+### [DC大中华时事：习近平在视察驻陕西部队某基地时强调聚焦备战打仗](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：摩根大通将在英国开设数字零售银行](/content/gnews/31/README.md)
+### [币圈新闻动态：摩根大通将在英国开设数字零售银行](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [以美国为首的联盟向澳大利亚提供核潜艇来对抗中共国](/content/gnews/32/README.md)
+### [以美国为首的联盟向澳大利亚提供核潜艇来对抗中共国](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [AUKUS联盟建立，美军在澳大利亚大幅加强军事存在](/content/gnews/33/README.md)
+### [AUKUS联盟建立，美军在澳大利亚大幅加强军事存在](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/34/README.md)
+### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共大使被禁止进入英国议会](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全球61个人权组织呼吁港府撤销对支联会领导人的指控](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/37/README.md)
+### [列举中共病毒“疫苗”严重伤害病例14例](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大雷爆CCP的末日还会远吗](/content/gnews/38/README.md)
+### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大雷爆CCP的末日还会远吗](/content/gnews/39/README.md)
  ` 银河勇气之星`
 
-### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/39/README.md)
+### [东南亚一周新闻回顾（2021年9月3日-10日）](/content/gnews/40/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
-
-### [拜登政府希望印度继续成为中共国的附庸国](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
@@ -145,36 +145,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共网控升级，全面清理“僵尸号”“空壳号”](/content/gnews/45/README.md)
+### [中（共）国在澳潜艇将航行的海域做了什么](/content/gnews/45/README.md)
+ ` Charlie`
+
+### [中共网控升级，全面清理“僵尸号”“空壳号”](/content/gnews/46/README.md)
  ` 儒为`
 
-### [平民韭菜不够，私人银行客户来顶](/content/gnews/46/README.md)
+### [平民韭菜不够，私人银行客户来顶](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共申请加入跨太平洋伙伴协定 轮席主席国日本﹕须观察能否守规](/content/gnews/47/README.md)
+### [中共申请加入跨太平洋伙伴协定 轮席主席国日本﹕须观察能否守规](/content/gnews/48/README.md)
  ` G&#124;News TAIWAN`
 
-### [长崎大学被中共选中，对日本人民意味着什么？](/content/gnews/48/README.md)
+### [长崎大学被中共选中，对日本人民意味着什么？](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编](/content/gnews/49/README.md)
+### [国际要闻汇编](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利针对所有从业者强制执行绿色健康通行证计划](/content/gnews/50/README.md)
+### [意大利针对所有从业者强制执行绿色健康通行证计划](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [墙内要闻汇编](/content/gnews/51/README.md)
+### [墙内要闻汇编](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共、法国气急败坏 共同抨击《澳美英安全协议》](/content/gnews/52/README.md)
+### [串珠387： 德教社事件显示了一些我们战友的愚笨](/content/gnews/53/README.md)
+ ` 郭爆料串珠`
+
+### [秘翻在线：中共、法国气急败坏 共同抨击《澳美英安全协议》](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [作恶不停，中共推出全球首款吸入式病毒疫苗](/content/gnews/53/README.md)
+### [作恶不停，中共推出全球首款吸入式病毒疫苗](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：NIH仍未肯定维C、维D和锌治疗中共病毒的有效性](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共蓝金黄力量助力加拿大总理特鲁多出版自传《共同点》捞金](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
 
