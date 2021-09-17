@@ -15,14 +15,6 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 9/17/2021 9:05 PM (UTC)`
-
-新中国联邦贺马丁.班农先生100岁生日New Federal State Wish Martin Bannon a happy 100th Birthday.
-> `@gettrlive 9/17/2021 8:55 PM (UTC)`<br/>Wish Martin Bannon a happy 100th Birthday.<br/><br/>https://gettr.com/streaming/rrm14096
-![img](https://media.gettr.com/group2/origin/2021/09/17/20/bae0929b-45d5-215c-cfa2-f7e1e67f960a/5867e0564914d8684c17f181491a541d.jpeg)
-
----
-
 `@miles 9/17/2021 6:32 PM (UTC)`
 
 G Fashion 意大利考察结束了，带着满载而归的协议合同，样板布料等样品回到纽约. 在不久的未来我们将会推出唯一性的，最高级的，适合我们战友的时尚产品奉献给大家✌️✌️🔥🔥🔥🙏🙏🙏😘😘😘😘@DDNYC # GFashion 
@@ -300,6 +292,13 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/14/2021 Miles Guo: The CCP has 20 trillion US dollars worth of deposits overseas, which we will transfer to the Chinese people via the NFSC. However, the international evil organization also wants the money, and they will destroy the CCP just because of the money!<br/><br/>9/14/2021 文贵直播：中共在海外存了20万亿美元，我们要将这笔钱通过新中国联邦转回给中国人；然而，国际邪恶组织也要争这笔钱，仅仅因为这些钱，邪恶组织也会把中共给灭了！<br/>
 ![img](https://media.gettr.com/group48/getter/2021/09/15/01/6918770c-a01e-dab9-8b0a-8c40fb4475d3/out.jpg)
+
+---
+
+`@miles 9/14/2021 11:40 PM (UTC)`
+
+9/14/2021 Miles Guo: A certain organization has been survelling Xi and collecting the private information of Xi, his wife Peng Liyuan, and his family, and this is the top secret of the world! This information is what Wang Qishan and Meng Jianzhu need the most.. Some of the video and audio recordings of Xi and Peng will be released before the 20th Party Congress<br/><br/>9/14/2021 文贵直播：这些年来，有某组织在监控习，并收集他和彭丽媛两口子和家人的隐私，这是世界最高机密！王和孟是最需要这些信息的人；习和彭的一些视频和录音将在20大前被放出!<br/>
+![img](https://media.gettr.com/group5/getter/2021/09/14/23/809c2d31-87f7-36f5-a6f7-95f47fe785f1/out.jpg)
 
 ---
 
