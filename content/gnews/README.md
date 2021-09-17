@@ -37,23 +37,23 @@
 ### [有声| 辉瑞前总裁发出警告，称新冠疫苗是为减少人口而进行的大屠杀](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [郭先生谈男女平等](/content/gnews/9/README.md)
+### [郭文贵先生盖特视频2021年9月16日精简文字版分享](/content/gnews/9/README.md)
+ ` TS2020相聚盘古`
+
+### [郭先生谈男女平等](/content/gnews/10/README.md)
  ` MG 澳喜农场多语组`
 
-### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/10/README.md)
+### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/11/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021/09/16文贵先生盖特精要](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/12/README.md)
+### [24州总检察长警告将起诉拜登的疫苗强制令](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [福奇批：Nicki Minaj的疫苗说法是“错误”信息](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/13/README.md)
+ ` HimalayaRussia`
 
-### [2020年12月21日，中共病毒疫苗Biontech公司老闆撒辛教授及其员工还没接种疫苗](/content/gnews/14/README.md)
- ` MG 澳喜农场多语组`
+### [福奇批：Nicki Minaj的疫苗说法是“错误”信息](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [川普呼吁以叛国罪审判“蠢货”马克·米利将军](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -163,33 +163,33 @@
 ### [陈元、张宏伟拿到人类史上最大单笔佣金1200亿美元](/content/gnews/50/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [我眼中的完美人生](/content/gnews/51/README.md)
+### [2021/09/16文贵先生盖特精要](/content/gnews/51/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [我眼中的完美人生](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/52/README.md)
+### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/53/README.md)
+### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
 
-### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/54/README.md)
+### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [2021年9月16日 文贵先生盖特 9](/content/gnews/55/README.md)
+### [2021年9月16日 文贵先生盖特 9](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 8](/content/gnews/56/README.md)
+### [2021年9月16日 文贵先生盖特 8](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/57/README.md)
+### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/58/README.md)
  ` 澳喜农场`
 
-### [2021年9月16日 文贵先生盖特 7](/content/gnews/58/README.md)
+### [2021年9月16日 文贵先生盖特 7](/content/gnews/59/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 6](/content/gnews/59/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 5](/content/gnews/60/README.md)
+### [2021年9月16日 文贵先生盖特 6](/content/gnews/60/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

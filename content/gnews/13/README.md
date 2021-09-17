@@ -2,46 +2,49 @@
 ---
 
 
-## 福奇批：Nicki Minaj的疫苗说法是“错误”信息
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1537079/)
+## 科默议员要拜登提供病毒溯源报告的原始情报
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1537206/)
 
-- 编译：wenwu
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/C-4.jpg)govexec.com
+拜登政府配合中共，利用阿富汗乱局，搭上了13名美军人的命，丢下850亿美元的军事装备，成功地将美国人的注意力从中共病毒溯源、追责上转移开，“病毒源头没定论、不是生物武器有了结论、中共领导不知情”，公布于众的1页零几行的报告摘要，这几条赫赫在目，稍微了解中共邪恶的人就能看出其中用意，拜登还假惺惺地表示，这个报告我不满意，世卫组织一定要进行第二次调查……作足了秀，演足了戏。
 
-安东尼·福奇博士驳斥了尼基·米娜（Nicki Minaj）关于中共病毒（COVID-19）疫苗的争议性评论。他是美国在传染病方面最有话语权的医学专家呼吁，可以指责这位嘻哈明星公开言论中，所发现的关于疫苗的“错误信息”。
+但是，相信有人不会忽略已经造成68.5万（写稿时的数据为685,328人【1】）美国人死亡的中共病毒的溯源问题。
 
-周一，米娜原名 Onika Tanya Maraj——在宣布她不会参加，有疫苗授权的[2021 年Met Gala](https://www.nydailynews.com/snyde/ny-nicki-minaj-met-gala-coronavirus-vaccine-mandate-20210913-xmcpfelc2zgr3nhzf5cjwsbtvy-story.html)活动，并在同一条推文中透露她没有接种疫苗之后，遭到抨击。
+《新闻纵横》（Newsmax）发表文章，题目“国会众议员科默（Comer）要求拜登提供（那份）不确定的中共病毒来源报告中的情报”。【2】
 
-在她的社交媒体上所分享的信息中，这位特立尼达出生的，引人注目的作词家还声称，她表弟的朋友接种了疫苗并遭受生殖器生殖副作用，此后她的表弟便拒绝接种疫苗，疫苗的副作用指的是“[睾丸肿胀](https://www.nydailynews.com/snyde/ny-nicki-minaj-swollen-testicles-tweet-covid-vaccine-20210914-6m3b6ipnzrfxjlyeknrsvs6ccq-story.html)”和“阳痿”。
+全文如下：
 
-此后，一群人——包括受人尊敬的医学专家和政治评论家——纷纷谴责米娜，污蔑她试图向她的粉丝群（推特关注者2260万）散布毫无根据的说法和神话。
+众议院监督和改革委员会（the House Committee on Oversight and Reform）的高级成员要求提供用于编制出那份关于中共病毒起源不确定报告的“所有原始情报”。
 
-自从去年美国**3**月发生疫情以来，一直[站在](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)抗击[疫情最前线的](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)政客**——**福奇坚决驳斥了**“****Stupid Ho****”****（**侮辱性言语）说唱歌手的说法。
+肯塔基州众议员詹姆斯·科默（James Comer）于周三（9月15日）致函美国国家情报总监艾薇儿·海恩斯（Avril Haines），要求提供情报机构报告所依据的“所有原始情报报告、会议记录和电子邮件”。
 
-“没有证据表明疫苗是有这些副作用的，也没有任何机械性的理由去想象它会发生，”他在接受 CNN 的“ [The Lead](https://twitter.com/TheLeadCNN/status/1437907645910949889) ”采访时，坚定地宣称。
+8月27日发布的那份报告没有对病毒的起源作出结论性的评估。
 
-这位拥有几十年经验的流行病学家还强调了，在大型社交媒体平台上传播误导信息的危险，称米娜可以通过分享引发恐慌的谣言，从而地说服人们不要接种疫苗，这是错误的。
+《政治》（Politico）杂志称，“不幸的是，对中共病毒起源的报告（评估）只给美国公众提供了一份模糊的、两页未分类的摘要，这会造成更多的混乱。”科默在给海恩斯的信中写道，“这是一种不可接受的作法，会使美国人民对我国为下一次疫情所做的准备信心不足。”
 
-“有很多错误的信息，主要是在社交媒体上。我们知道对抗错误和虚假信息的唯一方法是提供大量正确的信息，”这位医生说。“这些说法可能是她的随口之言。我没有责怪她什么。但是她应该三思而后行，不要传播那些除了一次性的轶事之外，而实际上没有[科学依据](https://chinese.cdc.gov/coronavirus/2019-ncov/vaccines/planning-for-pregnancy.html)的信息。这不是科学的意义所在。”
+科默告诉海恩斯，要求的文件应在9月29日前提交给委员会。
 
-许多人尽管宣传了自以为是的疫苗阴谋论，这位** 38 **岁的[新妈妈](https://www.nydailynews.com/snyde/ny-nicki-minaj-kenneth-petty-welcome-first-child-20201001-rig4h64zzjebnbghxiiurm4rvu-story.html)并没有明确阻止她的粉丝接种疫苗，并表示她最终可能会接种疫苗，因为她必须继续巡回演出。
+这份报告是在乔·拜登下令对中共病毒的起源进行评估后完成的，调查结果以“中等置信度”进行评估，认为中共病毒来自武汉病毒研究所，尽管报告中提到的四个未具名的情报机构无法就病毒的起源达成一致。
 
-美国疾病控制与预防中心在（**CDC**）其最新的疫苗接种[信息页面](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/recommendations/pregnancy.html)上表示，**“**目前没有证据表明任何疫苗，包括中共病毒（**COVID-19**）疫苗，都会导致女性或男性的生育问题。**”**
+科默在8月30日的一份声明中说：“拜登政府未能就中共病毒的起源给出明确的结论，这更加表明需要立即由国会来领导进行调查。”共和党人一再呼吁民主党人加入我们的努力，但他们拒绝了。
 
-简评： 福奇在电视采访中把自己与科学化作等号，现在又提到科学两个词，好似一个坑连掉两次，是词穷了还是坏。值得读者思考。据《**Pagesix**》**2021**年**9**月**15**日[报道](https://pagesix.com/2021/09/15/fauci-slams-nicki-minaj-for-false-covid-19-vaccine-tweet/?_ga=2.10881588.1004738065.1631728581-1262262365.1626125565)，嘻哈女星米娜[认为](https://twitter.com/NICKIMINAJ/status/1437526035063443456?s=20)：**“**我有与该死的疫苗完全相同的症状。**”**她暗示自己曾感染过中共病毒，而且所受到的伤害同这该死的疫苗对人体的伤害是一样。当然，值得重视的是，因为疫苗公司隐瞒了临床试验时，对生育能力的影响。导致了**NIH**不得不拨款上百万美金研究这些疫苗，带给人类的生育问题，哪有比这更真实的打脸。
+“中国共产党花了近两年时间误导世界，传播宣传，故意隐瞒中共病毒的严重性，如果不就这一种夺走数十万美国人生命的病毒追责中共，这将是这个机构的污点。该是民主党加入我们的行列，来追究中共为掩盖真相承担责任的时候了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-2-16.png)
+科默周三（9月15日）告诉《新闻纵横》，他和共和党同僚、众议员史蒂夫·斯卡利斯（Steve Scalise，R-La.）正在向美国食品和药物管理局（FDA）索取有关拜登推动疫苗加强针接种的文件，以便他们能够确定拜登此要求的动机。
 
-（文章仅代表作者个人观点，与**GNEWS**无关）
+“乔·拜登已经任职八个月了，他从未提名过食品和药物管理局（FDA）官员。”科默在周三（9月15日）的《唤醒美国》（Wake Up America）节目中说。“他身边有一群职业官僚，看来他正试图在这个加速疫苗接种问题上采取强硬手段。”
 
-**新闻来源：**[《每日新闻》](https://www.nydailynews.com/snyde/ny-coronavirus-dr-fauci-nicki-minaj-covid19-vaccine-misinformation-impotence-20210915-m3fs2amqsrckrcgnnomormqt6y-story.html)｜作者：卡鲁·F.丹尼尔斯｜发布时间：2021年9月15日
+（全文完）
 
-* * *
+很高兴能看到美国最高立法者有这样的认知，“中国共产党花了近两年时间误导世界，传播宣传，故意隐瞒中共病毒的严重性，如果不就这一种夺走数十万美国人生命的病毒追责中共……”看上去科默议员也意识到了中共对情报机构的渗透，表示出了对这个遭中共蓝金黄的重灾区的不信任，“拜登政府未能就中共病毒的起源给出明确的结论，这更加表明需要立即由国会领导进行调查。”
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+有关链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+【1】[https://www.worldometers.info/coronavirus/](https://www.worldometers.info/coronavirus/)
 
-+2
+【2】[https://www.newsmax.com/newsfront/rep-comer-intelligence-covid/2021/09/16/id/1036679/](https://www.newsmax.com/newsfront/rep-comer-intelligence-covid/2021/09/16/id/1036679/)
+
+0
