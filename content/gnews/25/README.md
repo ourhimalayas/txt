@@ -2,54 +2,29 @@
 ---
 
 
-## 文贵先生盖特展示被路大脑骗毁坏的房子
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538070/)
+## 秘翻在线：中共专制暴政使香港出现教师离职潮
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538120/)
 
-栏目记者/责任编辑：正义的小新
+#### 撰稿：极寒将至 
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-57.jpg)图片来源：香港经济日报
+据路透社（Reuters）报导，自中共于 2020 年 6 月在香港实施严格的国安法以来，这座城市所发生的专制转变，让香港众多教师感到心灰意冷和威胁。几位接受路透社采访的校长表示，今年教师离职的速度大约是正常时的两倍，这让他们中的一些人争先恐后地招聘新员工填补教师空缺。
 
+香港中学校长协会在 7 月警告政府，大量的“人才流失”，将导致该市的教育质量降低。香港约有700,000名学生就读于约1,000所中小学。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+汇基书院（东九龙） (United Christian College (Kowloon East))校长郑建德（CHENG Kin-tak, Samuel）告诉路透社，“教育环境和气氛在过去两年中发生了巨大变化”。在2019年香港民主运动期间被捕的 10,000 多人中，近 20% 处于学龄。据该市教育部长称，大约 100 名学校教师和工作人员也被捕。之后，教育系统就成为中共试图改变具有反抗精神的香港年轻人的重要阵地。
 
+今年 2 月，香港推出了新的课程指南，确保 6 岁以下的儿童更多地了解中共国并接受中共国安法的教育，事实上港版国安法使任何被中共视为分裂国家、颠覆或勾结外国势力的行为，都将被处以最高刑罚甚至被送进监狱。
 
+香港教育局（Education Bureau）已经用一个专注于“爱国主义”的，名为“公民和社会发展”的较小模块取代了原来的通识​​教育（Liberal Studies）内容，通识教育于 2009 年引入以增加社会参与和发展批判性思维。香港行政长官林郑月娥去年表示，需要将“坏”教师从教育系统中移除。教育局告诉路透社，在 2019 年 6 月至 2020 年 12 月期间，教育局收到了 269 起教师不当行为投诉，但是教育局未能向记者提供投诉的任何细节。
 
+在香港政府的压力下，香港教育专业人员协会（Hong Kong Professional Teachers’ Union）本月初正式解散，香港政府已经与拥有 95,000 人的协会断绝关系。中共官方媒体更将香港教育专业人员协会描述为“毒瘤”。香港教育专业人员协会曾是香港最大的协会，它在 5 月份的报告中称，接受调查的教师中有 40% 想离开教育行业。
 
+香港资助小学校长委员会（Hong Kong Aided Primary School Heads Council）副主席陈宝莉（Polly Chan）说，较高的教师流失率是由 “疫情，加上社会动荡，以及政治原因 ”造成的。今年移民将以倍数增长。
 
-9月16日，文贵先生盖特视频，记录下曾赠与路大脑骗的房子被毁坏的惨状。文贵先生在视频中，向战友们展示了被路大脑毁坏了的地下室，砸坏了的空调，被拆掉了的包括床、椅子、桌子等等在内的古董实木家具。厨房的沙发座椅也被路大脑骗撒上各种颜料，泳池已经变成绿色，花园也全被毁了。文贵先生说，很多清洁工和维修工工作一个多月，都不能完成整个房子的维修和清洁。文贵先生指出，赠给路大脑骗的这么好的房子，却被他毁的面目全非，路大脑骗将为此付出一切的经济代价和承担法律责任。
+自由与民主才是香港具备吸引力的根本原因，但是2019年中共大举入侵香港残酷镇压民主运动，直至2020年港版国安法正式实施，香港已经沦为中共专制暴政的重灾区，中共将以警治国的整套恶政搬到香港后，香港已成为最缺乏安全感的城市之一，港人的大量离开自然成为顺理成章的事。而中共对香港教师和学生的镇压尤为严酷和残忍，再加上洗脑教育走进课堂，这些都是具有自由思想的教师所无法忍受的，现在更有了针对教师的强制疫苗，老师们被逼着只能选择用脚投票离开香港。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8.1-scaled.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8.2-scaled.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8.3-scaled.jpg)
-参考链接：
-
-[9月16号：七哥在近两年后。来到了这个房子！让我极为的震惊，他们对房子的损坏伤害和这种极度的破坏，实在让我失望透顶！](https://gettr.com/post/pb9esu01ea)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+新闻来源：[Hong Kong teachers exit under shadow of security law, schools scramble to fill gaps](https://www.reuters.com/world/china/hong-kong-teachers-exit-under-shadow-security-law-schools-scramble-fill-gaps-2021-09-16/)
 
 0

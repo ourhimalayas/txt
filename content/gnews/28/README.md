@@ -2,10 +2,10 @@
 ---
 
 
-## 疫苗影响女性生理周期，全球启动调查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1537927/)
+## 英国未接种护士将被护理行业拒之门外
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538050/)
 
-栏目记者/责任编辑：火来
+栏目记者/责任编辑：安吉拉
 
 
 
@@ -15,14 +15,19 @@
 
 
 
+英国9月初启动更广泛的保健部门接种强制令咨询，表示将通过修改法规来实施此类要求。
 
-```
-前不久，美国国立卫生院向五家科研院所拨款167万美元，专门研究疫苗对于女性生理周期的影响。这五家科研院所包括哈佛医学院和约翰霍普金斯大学等美国顶级的医疗科研院所。今天，来自伦敦帝国理工学院的研究人员也呼吁英国政府，应该马上启动疫苗对于女性生理周期影响的调查。英国相关部门已经收到了三万多个女性生理周期紊乱的案例，这些案例可能跟疫苗接种有关。目前，疫苗是否影响女性的生育能力尚不清楚。我们将持续关注最新的关于疫苗的研究结果。
-```
+此前英国政府已明确建议医疗保健和社会保健工作者接种疫苗，但认为接种水平存在差异，此次咨询目的在于扩大范围，以确保所有被部署到接触直接治疗，或个人护理的人员都接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4.1-6.jpg)图片来源：网络
+已有护士反映，近期被领导问话讨论不接种疫苗的原因。管理层重申新接种令执行在即，一旦生效，没有接种的卫护人员将不被允许在任何护理院工作，面临职位调动，如果没有其他空缺职位，这些人员将被解雇。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-78.jpg)图片来源： 网络
-参考链接：[Boston researchers to study potential link between COVID vaccine & menstrual changes](https://www.boston25news.com/news/health/boston-researchers-study-potential-link-between-covid-vaccine-menstrual-changes/XRB2TIE5SFD53IEG5D2WE2LNQU/)
-[Call for investigation of menstrual changes after Covid jabs](https://www.bbc.com/news/health-58573593)
+英国官网有一项自我豁免表格，对于有短期医疗状况的人也可以提供有时限的豁免。该临时豁免仅限于在护理院部署中使用，只有审查程序启动后的12周的时间，但如果有人需要，可能有助于为自己争取更多的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4.2-1.jpg)图片来源：网络
+素材来源：
+
+[对于将疫苗接种作为在卫生和更广泛的社会保健部门进行部署的条件进行磋商以征
+求意见](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1016388/VOCD_consultation_chinese.pdf)
+[Medical exemption – vaccination as a condition of deployment](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1017856/20210915__Form__for_medical_exemptions.pdf)
 
 （本文仅代表作者观点）
 

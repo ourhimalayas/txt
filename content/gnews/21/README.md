@@ -2,193 +2,133 @@
 ---
 
 
-## 共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537414/)
+## 王岐山给习近平提示的未来50年规划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537440/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ahi4f-ek3kl-1.jpg)
-[https://gtv.org/video/id=6142083b784c5a258356c66b](https://gtv.org/video/id=6142083b784c5a258356c66b)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/aaigd-gn765-4.jpg)
+[https://gtv.org/video/id=61436d6a784c5a2583574f4a](https://gtv.org/video/id=61436d6a784c5a2583574f4a)
 
 **字幕内容:**
 
-**郭文贵
-Miles Guo**
+**郭文贵**
+**Miles Guo**
 
-这个我跟大家说一下
-Esto debo decirles
+王岐山给习认认真真地汇报了
+Wang Qishan le informó seriamente a Xi
 
-这个很多问题啊
-Hay muchos problemas
+一个他对未来50年世界局势的变化
+Un cambio en cuanto a la situación mundial que se verá en los próximos 50 años
 
-包括台湾的问题
-Incluyendo el problema de Taiwán
+世界上变化的在乎什么
+En qué importa el cambio mundial
 
-黑天鹅的问题
-El problema del cisne negro
+地缘政治
+La Geopolítica
 
-我们本来今天还有很多要讲的
-Nosotros ibamos a decir muchas cosas más
+第一个(就是)地缘政治
+El primero es la geopolítica
 
-黑天鹅的问题绝对是对习和共产党是一个很大的震撼
-El problema del cisne negro seguramente fue un impacto para Xi y el PCCh
+到时不管川普赢不赢
+En ese momento no importará si Trump ganará o no
 
-他们信邪
-Ellos creen en el mal
+川普能不能上
+Si Trump quedará electo
 
-不是说他不信邪
-No digo que no cree en el mal
+还是说谁上(总统)
+O hablar de quién sería el presidente
 
-他信邪
-Él cree en el mal
+中美之间必将有一场剧烈的较量
+Entre China y EE. UU seguramente habrá una fuerte competencia
 
-但是呢有很多的党内的
-Sin embargo, hay muchos que están en el partido
+较量在哪儿
+La competencia en dónde
 
-像江, 曾
-Como Jiang, Zeng
+已经从过去的赛黑, 东欧
+Ya desde el pasado de Serbia y Montenegro, Europa del Este
 
-还有像张德江,李长春
-Y también Zhang Dejiang, Li Changchun
+欧洲东扩
+Expansión hacia el Este de Europa
 
-宋平
-Song Ping
-听说若干人
-Escuché a algunas personas
+转为现在的中东之争
+Hasta pasar al conflicto actual en Medio Oriente
+必须拿下中东
+Debe derribar a Medio Oriente
 
-包括江海洋 (似口误,可能是张海阳)
-Incluyendo a Jiang Haiyang (parece ser un error, puede ser Zhang Haiyang)
+第二, 必须拿下非洲
+El segundo, derribar a África
 
-都给习写信
-Escribieron una carta a Xi
+为什么? 我们需要市场
+¿Por qué? Porque necesitamos el mercado
 
-建议中共中央
-Sugiriendo al Comité Central del Partido Comunista de China
+必须压制日本, 韩国
+Debemos reprimir a Japón y Corea del Sur
 
-由于2022年冬季奥运会
-Por los Juegos Olímpicos de Invierno de 2022
+香港必须100%控制
+Hong Kong debe ser 100% controlado
 
-还要想办法要举办成功
-Debe buscar la manera para realizarlo satisfactoriamente
+然后开始说
+Después empieza a decir
 
-这是解决世界国际形势
-Esto es para resolver la situación internacional del mundo
+美国各个领域怎么拿下
+Cómo tomar a cada ámbito de EE. UU
 
-对我不利的这种环境下
-Bajo la condición desfavorable para mi
+然后加拿大
+Luego Canadá
 
-要争取召开成功的2022年的冬奥会
-Hay que luchar por el éxito de los Juegos Olímpicos del Invierno de 2022
+然后在第2个5年要拿下巴西南美粮仓
+Después en los segundos 5 años, tomaremos el silo de Brasil Sudamericano
 
-这个冬奥会呢, 很重要
-Este Juego Olímpico del Invierno es muy importante
+现在你去听
+Ahora escucha
 
-这段时间不要对台湾有动作
-En estos tiempos no deben tener ninguna acción hacia Taiwán
+如果当年我跟你说这话
+Si en aquel tiempo te digo esto
 
-建议呢, 还是给台湾施压
-Les recomendo, igual sigan dando presión a Taiwán
+你们听我直播的话
+Ustedes escucharan mi transmisión en vivo
 
-让台湾内部乱
-Provocando desorden dentro de Taiwán
+你们都睡着了估计
+Capaz todos ustedes se quedarían dormidos
+但今天你听了你就害怕了吧
+Pero hoy lo escuchas y te da miedo, ¿cierto?
 
-然后把它经济上
-Luego causando desorden en la parte económica
+意味着什么?
+¿Qué significa esto?
 
-民生上, 社会状态上弄乱它
-Sustento de las personas y en su estado social
+这个世界真正的, 所谓的你看得着的
+Quiere decir que realmente este mundo, lo que aparentemente puedes ver
 
-然后这个一说出来呢
-Después al decir esto
+邪恶的力量
+La fuerza maligna
 
-习还是挺听的
-Xi lo escuchará
+让王岐山
+Hace que Wang Qishan
 
-习还是挺听的
-Xi lo escuchará
+100%按照他的路子来走
+100% siga por su camino
 
-哎 就是啊
-Ah, así es!
+王岐山绝不打嗝儿的
+Wang Qishan no hipa en lo absoluto
 
-这个冬季奥运会还是要搞的
-Igual hay que hacer algo con estos Juegos Olímpícos del Invierno
+执行了这个组织上的命令
+Al ejecutar el orden de esta organización
 
-然后再一个就是跟美国
-Luego vienen con EE. UU
+你告诉我以上有任何一件事情对中国人有利吗
+Dime tú ¿hay algun asunto de lo que mencioné anteriormente sea beneficiosa para los chinos?
 
-还是要想尽办法
-También se busca cualquier manera
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-就是要跟它谈
-Para hablar con él
-
-还是对付川普的招, 跟你谈
-Hicieron el mismo truco con Trump, conversar contigo
-
-用谈来恢复信心
-Utilizan el diálogo para reestablecer la fe
-
-用谈来争取主动
-Para ganar la iniciativa
-
-然后这个主动权在我方
-Entonces esta iniciativa está de nuestro lado
-
-为什么呢
-¿ Por qué?
-
-因为拜登的民声不行
-Porque la reputación de Biden no es buena
-
-川普2022年中期大选要回来
-Trump regresará a la elección general de la mitad del período 2022
-
-美国内部的钟摆政治效应对我有利
-El efecto político del péndulo en Estados Unidos me beneficia
-
-而且美国经济必将走软
-Y la economía de Estados Unidos está destinada a debilitarse
-
-这对我有利
-Esto me beneficia
-
-国际的邪恶势力
-Fuerzas del mal internacional
-
-不会给你共产党太多机会的
-No le dará mucha oportunidad al PCCh
-
-他一定戳着共产党
-Él seguramente empujará al Partido Comunista
-
-还有这5个国家的邪恶势力
-Y la fuerza maligna de estos cinco países
-
-按照他们既定的计画方针
-De acuerdo con su plan establecido
-
-打台湾, 收香港
-Atacar a Taiwán y recoger a Hong Kong
-
-干美国
-Acabar con EE. UU
-
-他们一定会干美国的
-Ellos seguramente acabarán a EE. UU
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24](https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24)
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1437197185385336836?s=24](https://twitter.com/se1y7cblljselva/status/1437197185385336836?s=24)
 
 西听校：洛杉矶盘古农场 – 霙霙（文霙）
 翻译：洛杉矶盘古农场 – 小文萱
 翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场发布 – 银龙
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
 
 0

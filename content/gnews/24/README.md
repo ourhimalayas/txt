@@ -2,53 +2,43 @@
 ---
 
 
-## 盖特多语言翻译功能上线，支持69种语言
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538092/)
+## 秘翻在线：意大利政府全面推行强制疫苗护照
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538445/)
 
-栏目记者/责任编辑：葛朗台太太
+#### 文章撰写：寶寶
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/dasff4y6u87o90p98743ty65j65u45.jpg)
 
+据《零对冲》9月17日报道，意大利政府周四批准了世界上最严格的COVID-19限制规则之一，强制要求所有私营和公共部门员工接种疫苗并出示疫苗接种证明、检测结果阴性证明或最近从病毒感染中康复证明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+该规则将于10月15日生效，任何违反该条例的工人将被停职停薪，但不能被解雇。
 
+据意大利《新闻报》（ILGAZZETTINO）报道，卫生部长罗伯托·斯佩兰萨 (Roberto Speranza) 在政府批准授权后表示，该国部长理事会在周四晚上的会议投票批准了这些规则。
 
+“我们还将扩大药房网络”，使人们“能够进行拭子 [和] 快速抗原检测，”斯佩兰萨说，并补充说政府法令可能会提高意大利的疫苗接种率。
 
+根据规定，不能出示所谓的“绿色通行证”（疫苗护照）而上班的个人将面临600至1,500欧元（约705至 1,175 美元）的罚款。
 
+该规定还说，自规则生效之日起，即10月15日，没有绿色通行证的私营部门员工将无法获得工资。
 
-有热心的战友发现GETTR已经有翻译功能了。 目前，盖特翻译功能仅在网页版本实现，还未更新到苹果手机或者谷歌手机应用上。 截稿前，盖特网页版可以支持69种语言互相翻译，包括：简体中文，繁体中文，英语，葡萄牙语，巴西葡萄牙语，西班牙语，法语，德语，希腊语，瑞典语，罗马尼亚语，俄罗斯语，丹麦语，亚美尼亚语，阿拉伯语，阿尔巴尼亚语，泰语，荷兰语，意大利语，日语，韩语，越南语，南非荷兰语，克罗地亚语等等。 这些语言涵盖了亚洲主要经济体使用的语言，也覆盖了欧盟主要经济体，当然也覆盖了美洲和非洲和大洋洲的主要语言。
+虽然一些欧盟国家已下令其卫生工作者必须接种疫苗，但没有一个国家规定所有员工都必须持有疫苗护照，这使意大利成为欧洲大陆第一个这样做的国家。 法国等其他国家/地区已强制要求使用疫苗护照进入餐厅、健身房、某些形式的旅行和其他场所。
 
-盖特为迎接全世界各国用户又进了一步。多语言翻译，也为跨语言交流提供了便利。盖特将成为全世界热爱和平，热爱自由的人的聚集地。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-25.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9-3.jpg)
+上周末，意大利爆发了针对绿色通行证规则的抗议，有报道称约120个城市发生了示威活动。
 
-参考链接： 
-[#gettr 的翻译功能上线**👏**而且很多种语言**🎉**](https://gettr.com/post/pbabwb42a1)
+意大利在3月已下令卫生工作者接种疫苗或面临停职。
 
-（本文仅代表作者观点）
+医生联合会周四表示，截至今天，已有728名医生被停职。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+目前尚不清楚有多少护士或护理人员拒绝执行。
 
-终审： 鬼五
-校对/发稿：为真不破20
+法国的一项类似限制措施于周三生效。 卫生部长奥利维尔·维兰 (Olivier Veran) 周四表示，约有3,000名卫生工作者被停职。
 
-**更多资讯，更多关注**
+与此同时，总统乔·拜登上周宣布，他将指示联邦政府惩罚私营部门的雇员和企业，迫使工人要么每周接受COVID-19检测，要么接种疫苗。 该公告引起了共和党州长和总检察长的严厉批评，他们威胁要对拜登政府提起诉讼。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+本周早些时候，亚利桑那州总检察长马克·布尔诺维奇（Mark Brnovich）成为第一位起诉拜登政府的州官员，称政府强制要求美国公民接种疫苗而非法移民不必接种，这违反了宪法。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+参考文章：[**COVID-19 Vaccine Passport Mandatory In Italy For All Private Sector Workers: Officials**](https://www.zerohedge.com/covid-19/covid-19-vaccine-passport-mandatory-italy-all-private-sector-workers-officials)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+本文仅代表作者本人观点，不代表Gnews平台
 
 0
