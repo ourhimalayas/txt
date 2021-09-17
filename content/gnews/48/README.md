@@ -2,44 +2,19 @@
 ---
 
 
-## 欧盟出台最新印太战略
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538763/)
+## 秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538641/)
 
-栏目记者/责任编辑：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-203.png)
-9月16日，欧盟委员会和欧盟外交高级代表推出了一份关于欧盟在印度-太平洋地区合作战略的联合公报。根据欧盟的官方文件，新战略将具体实施如下内容：
+撰稿：nstar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-25.jpeg)
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-221008.jpg)**图片来源: **20 minuten
+苏黎世前国民议会议员赫尔佐格 (Andreas Herczog) 接种疫苗后仍死于中共病毒，享年74岁。
 
-1.完成、恢复或开始欧盟与印度等印太相关国家的贸易谈判、投资谈判。
+正如死者的亲属在讣告中所写的那样，他“尽管接种了疫苗，但他还是从人生的中途被撕裂了”。瑞士通讯社SDA首先对此进行了报道。
 
-2. 与马来西亚等国缔结伙伴关系和合作协议或开始相关谈判。与其他有意愿的国家缔结绿色联盟和伙伴关系，应对气候变化和环境退化。
+赫尔佐格于 1956 年作为难民从匈牙利来到瑞士。他在苏黎世联邦理工学院学习建筑。 赫尔佐格的政治生涯始于一名 政治家，但随后加入了瑞士的进步组织.
 
-3. 加强欧盟对印太地区的海洋治理，增加对相关国家渔业管理和控制系统的支持；加强海军部署，帮助保护该地区的海上交通线和航行自由。
-
-4. 在 “欧洲地平线 “计划下加强欧盟与印太地区的研究和创新方面的合作。
-
-其他还包括扩大与印太伙伴的数字关系网络、加快实施与日本和印度的互联互通伙伴关系、加强对该地区最不发达国家的医疗保健系统和大流行病准备的支持等。
-
-该文件出台在《新欧中战略报告》一天之后，在美英澳宣布重塑三国与印太地区关系新安全合作机制几小时之后。尽管欧盟称此举并非对抗中共，但西方主要国家同时宣示与中共周边国家加强关系，围剿中共的意图显而易见。
-
-（本文仅代表作者观点）
-
-参考链接：[美英澳签署新安全联盟之际，欧盟出台新的印太战略](https://www.voachinese.com/a/eu-indo-pacific-strategy-china-20210916/6231772.html)
-[欧盟推出印太合作战略纲要](https://www.rfi.fr/cn/欧洲/20210916-欧盟推出印太合作战略纲要)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龍
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-
+**[信息来源](https://www.20min.ch/story/zuercher-alt-nationalrat-stirbt-trotz-impfung-an-corona-198575565049)**
 
 0

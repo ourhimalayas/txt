@@ -2,40 +2,108 @@
 ---
 
 
-## 从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1537311/)
+## 世界上有史以来最大的一单回扣中介费
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539038/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获_副本-11.png)
-历史是有轮回的，在1959年10月至1960年4月在信阳发生过饿死上百万人的信阳事件，对于这一起事件笔者在1987年中共的内参上看到过详细说明，据[维基百科——信阳事件：](https://zh.wikipedia.org/zh-cn/%E4%BF%A1%E9%98%B3%E4%BA%8B%E4%BB%B6)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0.jpg)
+[https://gtv.org/video/id=61436922784c5a2583574de9](https://gtv.org/video/id=61436922784c5a2583574de9)
 
-［**信阳事件**是指从[1959年10月到1960年4月](https://zh.wikipedia.org/wiki/%E4%B8%89%E5%B9%B4%E5%9B%B0%E9%9A%BE%E6%97%B6%E6%9C%9F)发生在当时的[河南省](https://zh.wikipedia.org/wiki/%E6%B2%B3%E5%8D%97%E7%9C%81)[信阳专区](https://zh.wikipedia.org/wiki/%E4%BF%A1%E9%98%B3%E4%B8%93%E5%8C%BA)（包括今天的[信阳市](https://zh.wikipedia.org/wiki/%E4%BF%A1%E9%98%B3%E5%B8%82)、[驻马店市](https://zh.wikipedia.org/wiki/%E9%A9%BB%E9%A9%AC%E5%BA%97%E5%B8%82)）出现大面积[饥荒](https://zh.wikipedia.org/wiki/%E9%A5%91%E8%8D%92)，大批农民饿死的事件。
+**字幕内容:**
 
-1950年代[大跃进运动](https://zh.wikipedia.org/wiki/%E5%A4%A7%E8%B7%83%E8%BF%9B)开展后，信阳地区[浮夸](https://zh.wikipedia.org/wiki/%E6%B5%AE%E5%A4%B8%E9%A3%8E)盛行，伴随[人民公社](https://zh.wikipedia.org/wiki/%E4%BA%BA%E6%B0%91%E5%85%AC%E7%A4%BE)运动，频现的“[卫星运动](https://zh.wikipedia.org/wiki/%E6%94%BE%E5%8D%AB%E6%98%9F)”掩盖了浮夸风下[粮食](https://zh.wikipedia.org/wiki/%E7%B2%AE%E9%A3%9F)产量严重的虚报现象。[庐山会议](https://zh.wikipedia.org/wiki/%E5%BA%90%E5%B1%B1%E4%BC%9A%E8%AE%AE_%281959%E5%B9%B4%29)后在河南省[反右倾](https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%8F%B3%E8%BF%90%E5%8A%A8)风潮下，各级官员因担心被打成右倾，强行按虚报产量制定的粮食征购标准向农民征粮。即使如此，粮食征购目标仍难以完成，整个事件最终成为大饥荒时期典型的地方饥荒事例。据河南信阳地方1961年呈报中共中央报告显示，该事件至少造成100万人[非正常死亡](https://zh.wikipedia.org/wiki/%E9%9D%9E%E6%AD%A3%E5%B8%B8%E6%AD%BB%E4%BA%A1)[\[1\]](https://zh.wikipedia.org/zh-cn/%E4%BF%A1%E9%98%B3%E4%BA%8B%E4%BB%B6#cite_note-%E5%BE%9E%E5%A4%A7%E8%BA%8D%E9%80%B2%E5%88%B0%E5%A4%A7%E9%A5%91%E8%8D%92-1)。］
+**郭文贵**
+**Miles Guo**
 
-信阳事件能上共产党的内参文件，可以从另一方面佐证信阳因饥饿致死的人员数量创下了记录，在62年后，在中国人又一次面临粮食危机的时候，又是河南，这一次的首发地选择在了新密市刘寨镇李岗村——
+人类有史以来最大的白手套
+The biggest ‘white glove’(middleman) in human history
 
-据[**郑州大民生**](https://weibo.com/u/2034225772) [2021年9月16日 17:00](https://weibo.com/2034225772/KyrLAcYwX?from=page_1002062034225772_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+大家你们知道是多少钱吗？
+Do you know how much it is?
 
-【丰收节里感党恩  节约粮食记在心】此次双节之前开展的“庆祝丰收 弘扬文化 振兴乡村 文明实践”活动，目的是开展节粮减损宣传、普及科学储粮知识、杜绝食品浪费、弘扬文明之风、养成文明健康绿色生活方式。活动结束后，大家一同走进葡萄园，采摘丰收的喜悦。保障粮食安全是每一个粮食人的职责。在李岗村，壹粒粮志愿服务队不仅带来了科学储粮的方法，也给大家带来了党史知识、文明新风的猜谜活动，让大家高高兴兴的庆祝丰收节。 [L郑州大民生的微博视频](http://t.cn/A6M7TkKS)
+我告诉你们，你们要认真数这个事
+I tell you, you have to count this matter seriously
 
-在1959年10月的河南信阳，种粮食的不是共产党、产粮食的不是共产党、收粮食的不是共产党，但是最终抢夺和控制粮食的是中国共产党，最终饿死的是那些终生与土地为伴、视粮食为生命的农民，而且饿死的是数以百万计的农民。
+记住我郭文贵今天说这话
+Mark my words today
 
-在2021年9月的河南省郑州市新密刘寨镇李家岗村，种粮食的不是共产党、产粮食的不是共产党、收粮食的不是共产党，但是出来庆祝丰收的是共产党的干部，共产党的干部们要宣传的是“丰收节里感党恩，节约粮食记在心”。
+我承担法律责任
+I take legal responsibility for what I say
 
-在1959年10月的河南信阳饿死百万人肇始于信阳干部的浮夸，在那个全中国都在吹嘘粮食如何高产的时代里，信阳走在了全国的前列，在2021年9月全国各地在吹嘘粮食如何丰收的时候，河南省郑州市新密刘寨镇李家岗村不甘人后。
+希望被点到名的人来告我
+I hope someone I named will sue me
 
-在1959年10月的河南信阳地区，因为浮夸最终饿死了数以百万计的农民，在2021年9月不甘为人后的河南省郑州市以及其他争先恐后为共产党涂脂抹粉的地区来说，这一次又将造成什么数量级的人员死亡呢？丰收了到底要感谁的恩呢？这个问题不需要回答，但是如果我们辜负了脚下的土地会怎样呢？这个问题早就有了答案——人误地一季，地误人一年。
+一个人类有史以来拿到1200亿美元中介费的一单交易
+A single transaction that has received 120 billion US dollars in intermediary fees in the history of mankind
 
-可是到今天已经不是误地一季那么简单了。
+中国的政府官员，他的白手套拿了1200亿
+Chinese government officials, his middleman (White Glove) took 120 billion dol-lars
 
-撰稿：喜马拉雅的肉夹馍
+这1200亿是纯现金
+This 120 billion dollars are pure cash
 
-审核：喜马拉雅的馍夹肉
+人家的1200亿是pure cash
+Its 120 billion dollars and are all pure cash
 
-校对：Maarago
+一单就1200亿，人家是合法拿到1200亿美元
+they took 120 billion dollars in one transaction legally
 
-（文章内容仅代表作者个人观点）
+就一笔拿走，牛到这程度
+Just in one transaction, it is unbelievable
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+张宏伟不仅有《酒浴》之图
+Zhang Hongwei not only has that “Wine Bath” picture
+
+张宏伟的大老板叫陈元
+Zhang Hongwei’s big boss is Chen Yuan
+
+陈元是唯一促成沙特和中国共产党签署了阿美石油协议的5000亿美元现金投入
+Chen Yuan is the only one that led to the signing US$500 billion cash input of the Aramco Oil Agreement between Saudi Arabia and the Communist Party of China
+
+拥有20%沙特阿美股份的
+Owns 20% of Saudi Aramco’s shares
+
+按照这个合同25%的佣金现金，一笔支付
+According to this contract, 25% of the commission, paid in cash
+
+支付的所有的安排对象都是张宏伟
+All the payment arrangements are made by Zhang Hongwei
+
+我可以告诉大家
+I can tell everybody
+
+我说今天爆这个料全地球，全星空也不会有几个人知道
+I broke this information today that only a few people know in the earth and whole universe
+
+但记住今天我报这个料，今天我说的
+But remember today what I said about this information
+
+世界上最大的一单的回扣中介费单笔的地球有人类有史以来
+The largest single commission intermediary fee in the world
+
+我就觉得就这一单了
+I think this is it
+
+最重要的事情，张宏伟能玩1200亿
+The most important thing is Zhang Hongwei can handle this 120 billion dollars
+
+现在看来就是这一单1200亿
+Now just look at this 120 billion dollars kickback
+
+一定会改变中国政治的格局
+It will definitely change the landscape of Chinese politics
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24](https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24)
+
+中听英: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场– 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
