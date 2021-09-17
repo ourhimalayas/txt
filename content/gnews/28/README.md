@@ -2,31 +2,18 @@
 ---
 
 
-## 台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536644/)
+## 秘翻在线：理智对待疫苗遭白左群起围剿 麻辣鸡获重磅同行力撑
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537692/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
+#### 翻译：坤霆/萌萌的朋克
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-27.jpg)图片来源：网络截图
+9月15日，据Waynedupree show 网站报道，饶舌天后麻辣鸡（Nicki Minaj）最近在推特上发布的帖子谴责那些霸凌他人接种疫苗的人，这在全美引发了一场巨大的讨论。开始了一个巨大的反疫苗风波。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-2.png)
-文章仅代表作者本人观点，与Gnews无关
+此前，任何在社交媒体上对疫苗持负面评论的人都会面临快速惩罚，但有2200万推特粉丝Nicki Minaj逃过了被封杀的命运。
 
-视频参看：2021.09.16早GTV新闻访谈
+9月16日，前《美国偶像》主持人兰迪·杰克逊（Randy Jackson）也加入了抗击强制疫苗的阵营，发推力挺麻辣鸡：“我支持并响应 Nicki 理智的建议，基于祈祷和不受霸凌影响的批判性思考来为自己的身体和个人健康作出如此重大的决定。行使上帝赋予的自由却要被审查、被抹杀、被嘲笑，今日美国，何其悲哀！”
 
-[https://gtv.org/broadcast/watch/61433881751e4f2b0e540858](https://gtv.org/broadcast/watch/61433881751e4f2b0e540858)
-
-编辑/校对/发稿：香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[‘It’s a Sad Day in America’ – Randy Jackson Joins Nicki Minaj in Condemning Vaccine Bullies](https://www.waynedupree.com/2021/09/randy-jackson-nicki-minaj/)
 
 0

@@ -40,14 +40,14 @@
 ### [2021年09月16日澳喜要闻（每日更新）](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [24州总检察长警告将起诉拜登的疫苗强制令](/content/gnews/10/README.md)
+### [中共驻英大使郑泽光被禁止进入英国议会](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [24州总检察长警告将起诉拜登的疫苗强制令](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
-### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/11/README.md)
+### [科默议员要拜登提供病毒溯源报告的原始情报](/content/gnews/12/README.md)
  ` HimalayaRussia`
-
-### [川普呼吁以叛国罪审判“蠢货”马克·米利将军](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [那个担心活不到宝宝长大的妈妈永远无法证明疫苗的伤害](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -79,47 +79,47 @@
 ### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [中国官媒称香港是SPAC上市制度极好的试验田](/content/gnews/23/README.md)
- ` GTV新闻访谈`
-
-### [美电视台脸书征文推打疫苗，瞬间引爆数十万评论控诉疫苗之害](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [中共国制裁境内的虚拟币挖矿活动](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [中共制裁境内虚拟币挖矿活动](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求](/content/gnews/27/README.md)
+### [秘翻在线：NIH仍未肯定维C、维D和锌治疗中共病毒的有效性](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾影星接种疫苗后心脏病突发离世 美中校拒绝强制疫苗离开服务19年的军队](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
+### [秘翻在线：中共蓝金黄力量助力加拿大总理特鲁多出版自传《共同点》捞金](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [白宫国安会：美国不加入TPP 应对中共国强制贸易](/content/gnews/29/README.md)
+### [秘翻在线：中共国正式申请加入CPTPP贸易条约](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：亲中共的澳洲前总理挑拨离间澳美英三国军事合作](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：数千名法国医务人员因拒打中共疫苗而被停工](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：理智对待疫苗遭白左群起围剿 麻辣鸡获重磅同行力撑](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共大使被禁止进入英国议会](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧洲议会压倒性通过《新欧中战略报告》应对中共威胁](/content/gnews/30/README.md)
+### [全球61个人权组织呼吁港府撤销对支联会领导人的指控](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [白宫国安会：美国不加入TPP 应对中共国强制贸易](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [欧洲议会压倒性通过《新欧中战略报告》应对中共威胁](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日防卫大臣强调钓鱼岛是日本领土，将以武力捍卫主权](/content/gnews/31/README.md)
+### [日防卫大臣强调钓鱼岛是日本领土，将以武力捍卫主权](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [防卫相：日本决心保卫钓鱼岛](/content/gnews/32/README.md)
+### [防卫相：日本决心保卫钓鱼岛](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [佩洛西：中共国压制日甚，对技术数据的控制对西方构成威胁](/content/gnews/33/README.md)
+### [佩洛西：中共国压制日甚，对技术数据的控制对西方构成威胁](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第054期](/content/gnews/34/README.md)
+### [雅典娜时报-第054期](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
-
-### [中共监管风暴冲击澳门，博彩巨头股票暴跌](/content/gnews/35/README.md)
- ` 纽约香草山MOS02`
-
-### [福奇批：Nicki Minaj的疫苗说法是“错误”信息](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [警惕：他们筹划给婴幼儿和低龄儿童施打mRNA“疫苗”意欲何为？](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
@@ -145,36 +145,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [文雍漫谈：我能想到最无奈的事](/content/gnews/45/README.md)
+### [秘翻在线：欧盟推出健康危机体系以应对将来的全球疫情](/content/gnews/45/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中国官媒称香港是SPAC上市制度极好的试验田](/content/gnews/46/README.md)
+ ` GTV新闻访谈`
+
+### [美电视台脸书征文推打疫苗，瞬间引爆数十万评论控诉疫苗之害](/content/gnews/47/README.md)
+ ` GTV新闻访谈`
+
+### [中共国制裁境内的虚拟币挖矿活动](/content/gnews/48/README.md)
+ ` GTV新闻访谈`
+
+### [文雍漫谈：我能想到最无奈的事](/content/gnews/49/README.md)
  ` 文雍`
 
-### [与美国英雄朋友的直播](/content/gnews/46/README.md)
+### [与美国英雄朋友的直播](/content/gnews/50/README.md)
  ` 澳喜农场`
 
-### [郭先生谈男女平等](/content/gnews/47/README.md)
+### [中共制裁境内虚拟币挖矿活动](/content/gnews/51/README.md)
+ ` 纽约香草山MOS01`
+
+### [郭先生谈男女平等](/content/gnews/52/README.md)
  ` MG 澳喜农场多语组`
 
-### [陈元、张宏伟拿到人类史上最大单笔佣金1200亿美元](/content/gnews/48/README.md)
+### [陈元、张宏伟拿到人类史上最大单笔佣金1200亿美元](/content/gnews/53/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021/09/16文贵先生盖特精要](/content/gnews/49/README.md)
+### [2021/09/16文贵先生盖特精要](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我眼中的完美人生](/content/gnews/50/README.md)
+### [我眼中的完美人生](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
-
-### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/52/README.md)
- ` 日本东京方舟农场`
-
-### [2021年9月16日 文贵先生盖特 9](/content/gnews/53/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 8](/content/gnews/54/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/55/README.md)
- ` 澳喜农场`
 

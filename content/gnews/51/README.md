@@ -2,30 +2,33 @@
 ---
 
 
-## 中共国四川泸州发生地震，伤亡成谜
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1537323/)
+## 中共制裁境内虚拟币挖矿活动
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1537535/)
 
-**撰稿：日本东京方舟农场 子辰**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-9月16日，中共国四川省泸州市发生6.0级地震，中共喉舌数据不一，伤亡成谜。
-地震于凌晨 4 点 33 分在泸州市泸县发生，震源深度10千米，震中位于省会成都东南约二百公里（120英里）处。
-中共喉舌央视称，3人死亡，3人重伤，至少88人受伤， 35间房屋倒塌。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-16-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/download-5.jpg)图片来自于网络
+视频参看： 2021.09.16晚GTV新闻访谈
 
-但据时代周刊网易号当日12时称，泸县全县共737处居民房屋倒塌、72间严重损坏、一般受损7290间；泸县高铁站9时50分前的3班次高铁已停运。37个通讯基站受损，17家企业受损。
-仅泸县倒塌的房屋数便相差704间，具体伤亡程度更是成谜。
+[https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9](https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+[https://www.youtube.com/watch?v=jTQZssN970A](https://www.youtube.com/watch?v=jTQZssN970A)
 
-*参考链接：*
+编辑/校对/发稿：香草山翻译部 – Lakers
 
-[四川泸县地震致3死60伤，上万人转移6万户停电，居民：房子成片倒塌](https://www.163.com/dy/article/GK11PA6J0519APGA.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
 
-[Southwest China earthquake collapses homes, kills at least 3](https://apnews.com/article/china-earthquakes-science--8596862605530e1bfab0f4de6c46c428)
+**更多资讯，更多关注**
 
-* * *
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
