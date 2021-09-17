@@ -19,8 +19,8 @@
 ### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/3/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [爆料革命在國內的傳播是共產黨懼怕的](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -61,65 +61,65 @@
 ### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [短视频：福奇资助危险虐狗实验，谷歌言论审查给与保护](/content/gnews/17/README.md)
+### [有声|中共就台湾代表处更名进行威胁, 美议员称: 虚张声势](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [短视频：福奇资助危险虐狗实验，谷歌言论审查给与保护](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Alex Jones 怒喊 人们再不觉醒，还去打毒针将会付出惨痛代价](/content/gnews/18/README.md)
+### [Alex Jones 怒喊 人们再不觉醒，还去打毒针将会付出惨痛代价](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟议会成员呼吁成立调查组调查中共病毒起源](/content/gnews/19/README.md)
+### [欧盟议会成员呼吁成立调查组调查中共病毒起源](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [政府机构强制将疫苗作为就业条件，将面临 5,000 美元每次的罚款](/content/gnews/20/README.md)
+### [政府机构强制将疫苗作为就业条件，将面临 5,000 美元每次的罚款](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [王岐山给习近平提示的未来50年规划](/content/gnews/21/README.md)
+### [王岐山给习近平提示的未来50年规划](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [台湾回赠日本血氧仪及制氧机](/content/gnews/23/README.md)
+### [共和党检察官将就接种令起诉拜登政府](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [香港支联会及核心成员被控煽颠罪](/content/gnews/24/README.md)
+### [欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/25/README.md)
+### [巴西政府官方表态 希望停止为青少年接种](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：意大利政府全面推行强制疫苗护照](/content/gnews/27/README.md)
+### [秘翻在线：习近平表示上海合作组织将增加伊朗为成员国 走“人间正道”](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共专制暴政使香港出现教师离职潮](/content/gnews/28/README.md)
+### [秘翻在线：中共国大量申请6G技术专利，与控制全人类的联系](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [彼得·纳瓦罗GTV直播三次说盖特是推特杀手](/content/gnews/29/README.md)
- ` 纽约香草山MOS02`
+### [台湾回赠日本血氧仪及制氧机](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：民主党参议员力主监管加密货币犯罪，国会山紧锣密鼓推立法](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [法国因错过了大订单而愤怒](/content/gnews/31/README.md)
- ` Charlie`
-
-### [银河快讯： 河野希望刺激措施集中在能源和5G；谷歌在日本推出新闻展示](/content/gnews/32/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [澳大利亚与美英“共命运”对抗中共国](/content/gnews/33/README.md)
+### [美国24 个州威胁将对拜登的强制疫苗政策采取法律行动](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：习近平在视察驻陕西部队某基地时强调聚焦备战打仗](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [四十多个NGO人权组织致信习近平 呼吁释放张展](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：摩根大通将在英国开设数字零售银行](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [佩洛西：中共国对各方面的打压越来越严重，数据控制是威胁](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [每日快报：公司和商业团体计划对拜登的疫苗任务进行反击](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [共军大谈“电子迷魂阵”威力剑指台湾？](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国资助流亡维吾尔人在日内瓦联合国大楼外开办图片展](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [彼得·纳瓦罗GTV直播三次说盖特是推特杀手](/content/gnews/34/README.md)
+ ` 纽约香草山MOS02`
+
+### [秘翻在线：意大利政府全面推行强制疫苗护照](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：民主党参议员力主监管加密货币犯罪，国会山紧锣密鼓推立法](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [原来扒别人家祖坟是持枪砸郭的个人自由](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -145,36 +145,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [恒大集团暴的雷到底有多大？](/content/gnews/45/README.md)
+### [官宣：彼特·那瓦罗先生成为新中国联邦国家代表大使](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [六月雪狱](/content/gnews/46/README.md)
+### [香港支联会及核心成员被控煽颠罪](/content/gnews/46/README.md)
+ ` GTV新闻访谈`
+
+### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/47/README.md)
+ ` GTV新闻访谈`
+
+### [恒大集团暴的雷到底有多大？](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/49/README.md)
+ ` GTV新闻访谈`
+
+### [六月雪狱](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [独家：举报人称VAERS数据库严重漏报数据](/content/gnews/47/README.md)
+### [独家：举报人称VAERS数据库严重漏报数据](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [IIF表示二季度全球债务直逼300万亿美元，创历史新高](/content/gnews/48/README.md)
+### [IIF表示二季度全球债务直逼300万亿美元，创历史新高](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新加坡疫苗接种率达到 81% 后慢性病爆发](/content/gnews/49/README.md)
+### [新加坡疫苗接种率达到 81% 后慢性病爆发](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [22岁跳马冠军接种莫德纳疫苗后永远无法骑马](/content/gnews/50/README.md)
+### [22岁跳马冠军接种莫德纳疫苗后永远无法骑马](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年9月16日 文贵先生盖特 18](/content/gnews/51/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 17](/content/gnews/52/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 16](/content/gnews/53/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 15](/content/gnews/54/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月16日 文贵先生盖特 14](/content/gnews/55/README.md)
+### [2021年9月16日 文贵先生盖特 18](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

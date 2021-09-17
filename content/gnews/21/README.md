@@ -2,128 +2,51 @@
 ---
 
 
-## 王岐山给习近平提示的未来50年规划
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537440/)
+## 政府机构强制将疫苗作为就业条件，将面临 5,000 美元每次的罚款
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537709/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/aaigd-gn765-4.jpg)
-[https://gtv.org/video/id=61436d6a784c5a2583574f4a](https://gtv.org/video/id=61436d6a784c5a2583574f4a)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ab9fv-o6whu.jpg)
+[https://gtv.org/video/id=6142afb6784c5a25835706cc](https://gtv.org/video/id=6142afb6784c5a25835706cc)
 
 **字幕内容:**
 
-**郭文贵**
-**Miles Guo**
+**DESANTIS :**
 
-王岐山给习认认真真地汇报了
-Wang Qishan le informó seriamente a Xi
+XXXX session SB 2006 that did a lot of different things,
+session SB 2006 做了很多不同的事情
 
-一个他对未来50年世界局势的变化
-Un cambio en cuanto a la situación mundial que se verá en los próximos 50 años
+it prevented private businesses from requiring proof of vaccination to just do normal things,
+它阻止了私营企业为了做正常的事情而要求提供疫苗接种证明
 
-世界上变化的在乎什么
-En qué importa el cambio mundial
+like go to a movie or go to a restaurant, vaccine passport,
+比如去看电影或去餐馆，疫苗护照，
 
-地缘政治
-La Geopolítica
+but that also applied to government agencies,
+但这也适用于政府机构，
 
-第一个(就是)地缘政治
-El primero es la geopolítica
+and so if a government agency in the state of Florida forces a vaccine as a condition to employment that violates Florida law,
+因此，如果佛罗里达州的政府机构强制接种疫苗作为违反佛罗里达州法律的就业条件，
 
-到时不管川普赢不赢
-En ese momento no importará si Trump ganará o no
+you will face … and you will face a 5,000 dollar fine for every single violation.
+您将面临……每一次违规，您都将面临 5,000 美元的罚款。
 
-川普能不能上
-Si Trump quedará electo
+And so if you look at places here, middle Alachua County like the Gainesville,
+所以如果你看看这里的地方，像Gainesville这样的Alachua中部，
 
-还是说谁上(总统)
-O hablar de quién sería el presidente
+I mean, that’s millions and millions dollars of penalties in fines,
+我的意思是，那是数百万美元的罚款，
 
-中美之间必将有一场剧烈的较量
-Entre China y EE. UU seguramente habrá una fuerte competencia
+Orange County, many many more than that, at the end of the day, you know, look, we did a lot in Florida.
+橙县，远不止这些，归根结底，你知道，看，我们在佛罗里达做了很多
 
-较量在哪儿
-La competencia en dónde
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-已经从过去的赛黑, 东欧
-Ya desde el pasado de Serbia y Montenegro, Europa del Este
+**原视频链接: **[https://twitter.com/dailycaller/status/1437456597043879940?s=24](https://twitter.com/dailycaller/status/1437456597043879940?s=24)
 
-欧洲东扩
-Expansión hacia el Este de Europa
-
-转为现在的中东之争
-Hasta pasar al conflicto actual en Medio Oriente
-必须拿下中东
-Debe derribar a Medio Oriente
-
-第二, 必须拿下非洲
-El segundo, derribar a África
-
-为什么? 我们需要市场
-¿Por qué? Porque necesitamos el mercado
-
-必须压制日本, 韩国
-Debemos reprimir a Japón y Corea del Sur
-
-香港必须100%控制
-Hong Kong debe ser 100% controlado
-
-然后开始说
-Después empieza a decir
-
-美国各个领域怎么拿下
-Cómo tomar a cada ámbito de EE. UU
-
-然后加拿大
-Luego Canadá
-
-然后在第2个5年要拿下巴西南美粮仓
-Después en los segundos 5 años, tomaremos el silo de Brasil Sudamericano
-
-现在你去听
-Ahora escucha
-
-如果当年我跟你说这话
-Si en aquel tiempo te digo esto
-
-你们听我直播的话
-Ustedes escucharan mi transmisión en vivo
-
-你们都睡着了估计
-Capaz todos ustedes se quedarían dormidos
-但今天你听了你就害怕了吧
-Pero hoy lo escuchas y te da miedo, ¿cierto?
-
-意味着什么?
-¿Qué significa esto?
-
-这个世界真正的, 所谓的你看得着的
-Quiere decir que realmente este mundo, lo que aparentemente puedes ver
-
-邪恶的力量
-La fuerza maligna
-
-让王岐山
-Hace que Wang Qishan
-
-100%按照他的路子来走
-100% siga por su camino
-
-王岐山绝不打嗝儿的
-Wang Qishan no hipa en lo absoluto
-
-执行了这个组织上的命令
-Al ejecutar el orden de esta organización
-
-你告诉我以上有任何一件事情对中国人有利吗
-Dime tú ¿hay algun asunto de lo que mencioné anteriormente sea beneficiosa para los chinos?
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1437197185385336836?s=24](https://twitter.com/se1y7cblljselva/status/1437197185385336836?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+英听校: 洛杉矶盘古农场 – Raul
+翻译: 洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

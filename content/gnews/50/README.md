@@ -2,62 +2,68 @@
 ---
 
 
-## 22岁跳马冠军接种莫德纳疫苗后永远无法骑马
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1538357/)
+## 六月雪狱
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1538413/)
 
-- **编译： Jenny Ball**
+#### **作者：**冰山角**
+****编辑：**MSGZ/翼族
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5f4de0edcff40.jpg)
+图片来源：玩游戏网
 
+**【编者按：**源于中共的极权体制，金字塔型的权力秩序，致使中国没有真正的法律体系和检察机制，冤假错案层出不穷。特别在历史的动荡时期，任何人都可能沦为政治构建和政治斗争的牺牲品。本文中的人名和地名都是虚构的，但情节却真实发生在现实中。】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip73.png)
+刚领了新案子，当事人是谢雪誉。没错，他就是最当红的流量名星。因为他原籍在误县，所以我们县级事务所承办了他的法律援助。他所有的财产被冻结，已经无力支付律师费。作为一个资深竽粉我差点晕过去，竽竽在牢里？不是应该在看守所吗？案件过程很简单，我迫不及待带着材料和证件去了误县的监狱。
 
-[莫德纳](https://childrenshealthdefense.org/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/)[COVID-19](https://childrenshealthdefense.org/defender_category/covid/)疫苗的罕见反应使一位冠军跳马运动员的肺部形成了[两个巨大的凝块](https://childrenshealthdefense.org/defender/woman-johnson-johnson-vaccine-blood-clots-scientists-may-know-cause/)，她以后可能再也不能骑马了。
+在会见室里我见到了竽竽，他低头闷坐着。我和狱警特别要求延长会面时间，为防监听， 我先递了个纸条，竽竽这才抬起头，他头发蓬乱，清瘦的面颊线、高鼻梁和那双“双性浓眉眼”依然美得象道光，冷得象把剑，胡茬盖住了那佐罗般的下巴。我心里莫名地颤动起来。
 
-22 岁的伊莫金·艾伦（Imogen Allen）被医生告知，在她接种疫苗两周后形成的凝块可能是由疫苗引发的，同时她已经服用了5年复合避孕药 。
+他用磁性而平静的男低音滚着喉结讲述了简单的过程：“那天在酒店包厢里朋友们聚会，大家喝嗨后，一个年轻女孩子醉在我肩上，助理过来催我回去，女孩子一把抱住我吐。我好心让助理开了个房，还给她手机里的家人打了电话，发了定位，然后就坐车离开了酒店。我没去过她的房间，当时有监控可查。后来才知道她不满16岁，居然诬陷我迷奸她并索要100万，当时助理没理她，她去警局报了案，无验伤报告。半年前的事，事发后因证据不足法院也不予立案，最近她在网上发了个举报贴，上了热搜，我就莫名其妙地被公安逮捕，押入大牢。”
 
-来自伯克希尔伍德科特的艾伦女士，可能再也无法骑马了，现在卧床不起，让她成为一名警探的梦想也破灭了。
+又一个男人的典型冤案！这样的案子我经手了不少于30例，有很多没有任何实质性证据的案件被判了刑，只有一个老干部的儿子被捞了出来，其它的都败诉。
 
-美国食品和药物管理局（FDA ）工作人员拒绝就辉瑞的 COVID 疫苗加强注射采取立场，理由是缺乏经过验证的数据。
+我小声问：“聚会上有跳跳糖吗（毒品）” ？
 
-[CNBC报道](https://www.cnbc.com/2021/09/15/covid-booster-shots-fda-staff-declines-to-take-stance-on-pfizers-third-doses-citing-lack-of-verified-data.html)：
+竽竽困惑：“这我哪儿知道，一大帮熟人开心，又不是第一次，再说我也不可能去他们兜里摸糖对吧。”
 
-FDA的工作人员，周三拒绝就是否支持[辉瑞](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/) COVID-19 疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。
+“你手机里有不该发的信息吗？”我又问。
 
-“有许多潜在的相关研究，但FDA尚未独立审查或验证基础数据或其结论，”他们在该机构网站上发布的一份23页的文件中写道。“其中一些研究，包括来自以色列疫苗接种计划的数据，将在2021年9月17日 VRBPAC 会议期间进行总结。”
+竽竽叹一口气，“几个兄弟说荤段子是常有的事，谁手机里没几个段子。A片也有，但我真的什么都没做。”
 
-**学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗**
+“有反动的吗？”
 
-《[**卫报****》****报道**](https://www.theguardian.com/education/2021/sep/15/covid-teams-can-vaccinate-pupils-against-parents-wishes-schools-told)**：**
+“哪敢啊，助理就管我这个，每次都拿我的手机发习思想学习链接。”
 
-根据周三公布的政府指导方针，医护人员可以决定孩子是否违背父母的意愿接种 COVID 疫苗，这让一些校长担心学校门口会发生抗议。
+“性需求怎么处理？”
 
-该指南称，12 至 15 岁儿童的疫苗接种将由已经在英格兰进行流感和人乳头瘤病毒 (HPV) 疫苗接种的学龄免疫服务 (SAIS) 团队进行。学校的作用将仅限于提供网站并向学生和家长分发信息和同意书。
+“不怕你笑话，全靠右手。公司规定女友不能找，男友也不行，绯闻要付违约金。拍拖了6年的女友都分了。参加个Party都不曾想会闹乌龙。”
 
-**当谈到 Delta 变体时，孩子们都很好**
+苍天啊！我的竽竽怎么不找我呢？我心里默念，一时竟失了神。待回过神来，会见结束的时间到了。
 
-[**《华盛顿月刊》报道**](https://washingtonmonthly.com/2021/09/15/when-it-comes-to-the-delta-variant-the-kids-are-all-right/)**：**
+“我去办取保候审，另外你现在需要什么？有什么特殊要求？”
 
-这是父母需要考虑的成本效益 – 这不是一个危险的决定。
+“能帮我买点烟吗？还有外伤药、抗生素和套。” 竽竽眼里竟然有泪光。
 
-几乎没有证据表明 Delta 变体比该病毒的早期版本对儿童更危险。它更容易传播，是的，但与去年流行的病毒版本相比，受感染儿童的死亡率极小。
+“烟可以，药医务室里没有吗？什么套？”我困惑了。
 
-**评论： **
+竽竽躲闪我的注视，幽幽地说：“我不好意思，那个地方不想让人再看了。”
 
-**FDA拒绝就是否支持辉瑞疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。好，那么FDA同样没有疫苗第二期第三期试验数据，为什么就强制大规模让美国人民和世界人民当白老鼠呢？**
+我立刻急了：“你受虐待了？”
 
-**“****学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗“，那么学校承担一切后果吗？学校有权让学生有权选举吗？学校这个指南是出自哪个法律条文？**
+竽竽委屈道：“嗯，他们捅了几回。”
 
-**这场疫苗战争就是法律的决战！我们一定拿起法律赋予我们的权利保卫我们的孩子和未来！**
+“他们？”
 
-（文章仅代表作者个人观点，与**GNEWS**无关）
+“黑皮狗。”
 
-**素材链接：[childrenshealthdefense](https://childrenshealthdefense.org/defender/covid-nw-champion-show-jumper-22-reaction-moderna-vaccine/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=35c8a332-7285-46e1-8556-8f1f2097e18d)**
+我吓出一身冷汗，明白这个案子摊上大事了。果然，取保候审因案情重大被拒。
 
-* * *
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-***审核：文乐
-校对:  阿伯塔
-发布：信心满满***
+***发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
