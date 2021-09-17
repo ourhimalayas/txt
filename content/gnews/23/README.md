@@ -2,24 +2,51 @@
 ---
 
 
-## 秘翻在线：中共、法国气急败坏 共同抨击《澳美英安全协议》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537831/)
+## 意大利针对所有从业者强制执行绿色健康通行证计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1537971/)
 
-#### 翻译：彩虹
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-55.jpg)图片来源：网络截图
-9月16日，《洛杉矶时报》（Los Angees Times）报道了中共和法国对《澳美英安全协议》（AUKUS）发怒的原因。
+栏目记者/责任编辑：火来
 
-AUKUS 使得澳大利亚获得了建造核动力潜艇舰队的技术，这种潜艇比常规潜艇更隐蔽，射程更深更远，也更加复杂。该协议被视为美国组建大联盟以遏制中共国在印太地区的经济和军事影响力的重要一步。
 
-预料之中，中共国对此提出了激烈抗议，然而，法国也对此表达了愤怒之情。文章分析，法国之所以如此愤怒，原因在于该协议承诺的核潜艇技术，破坏了法国五年前赢得的一项价值660亿美元的交易，该交易允许法国向澳大利亚提供威力小得多的常规潜艇。
 
-但是，有专家认为，政府也会计算衡量利弊，潜艇交易不会对美国和欧盟的关系造成严重的长期损害。正如领导美国马歇尔基金（German Marshall Fund）项目的负责人邦尼·格拉瑟（Bonnie Glaser）所讲，美欧联盟是对抗中共国的重要组成部分，美国和法国目前的不愉快很快会过去。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-她说，中共国对拜登政府最大的恐惧，是美国在重建被川普削弱的联盟关系方面取得进展。“拜登知道，澳大利亚人也知道，他们与法国和欧盟的关系非常重要，他们会在这方面加大投入，继续努力修复（损害的）关系。”
 
-法国也是被中共国严重蓝金黄收买腐败的国家，面对中共这个暗黑势力的代表，法国、美国、美国、澳大利亚各自国内的光明力量自然会采取行动一致对抗中共。澳、美、英三国军事合作才刚刚采取了重要的一步而已，相信更多更为重要的合作会后续展开。
 
-新闻来源：[China and France assail U.S.-Australia deal on nuclear-powered submarines](https://www.latimes.com/politics/story/2021-09-16/china-attacks-u-s-australia-deal-on-nuclear-submarines)
+
+
+据路透社9月16日消息，意大利政府周四刚刚公布了将在10月15日开始实施的新防疫政策，政策中包括所有从业者，无论是来自公共事务服务还是私营企业，都必须出示健康通行证后才可以工作，违反的雇员及雇主均无例外地面对大额罚款。
+
+可以获得通行证从业者包括，完全接种过疫苗，或刚从病毒感染中恢复，或当天病毒检测为阴性。这是世界上最严格的新冠病毒防疫政策，将给未接种疫苗的人施加巨大的压力，逼迫更多的人选择接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-7.jpg)图片来源：网络
+参考链接：
+[Italy makes COVID health pass mandatory for all workers](https://www.reuters.com/world/europe/italy-readies-law-make-covid-health-pass-mandatory-all-workers-2021-09-16/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
 
 0
