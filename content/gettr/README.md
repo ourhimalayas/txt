@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/17/2021 6:08 PM (UTC)`
+
+9月17号：恒大欠钱和骗钱是事实，应该由法院来解决，无论走到天涯海角，他们都应该还钱。追究骗钱者的刑事责任，但是共产党的以黑治国，却选择了以警执法，这就是共产党所谓的依法治国，中国人没有任何维权的机会，也没有要回属于自己钱的权利，中国人却深爱着中国共产党，中国人真的是太可怜了。
+![img](https://media.gettr.com/group9/getter/2021/09/17/18/c1025286-13df-b6f8-faac-dbfb380d1112/out.jpg)
+
+---
+
 `@miles 9/17/2021 2:33 AM (UTC)`
 
 9/15/2021 郭先生正式宣布皮特·纳瓦罗成为新中国联邦的大使；班农先生：2024年川普总统重返白宫后，美国将承认新中国联邦！让我们在2024年前先灭掉中国共产党！<br/>9/15/2021 Miles Guo officially announces Peter Navarro as the ambassador of the New Federal State of China (NFSC); Steve Bannon: When President Trump takes the White House back, the U.S. will officially recognize the NFSC! Let’s take down the CCP before 2024!
@@ -292,13 +299,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9月14号：多少这样的悲剧，不应该发生！多少这样的善良和天真被邪恶势力所利用！痛失亲人甚至全家遭受灭顶之灾。这就是这个世界上需要一个新的正义的力量的诞生，让人们在黑暗中能看到一束希望的灯塔之光！让有智慧的好人免受黑暗势力的侵害。【手足，戰友，這位父親以他兒子的生命告誡大家，不能打疫苗啊，朋友們❗❗❗❗❗】
 ![img](https://media.gettr.com/group10/getter/2021/09/14/19/7386b476-b0a7-71a3-870b-d36222d14e7e/155efc7f7e262d1abd8c7e074d1002a5.jpg)
-
----
-
-`@miles 9/14/2021 9:20 AM (UTC)`
-
-9.14日：今天的直播队伍好强大呀……
-![img](https://media.gettr.com/group20/getter/2021/09/14/09/0acf8c8c-1728-ad18-b6fc-c4385d019a53/8e5f576654f815113fac3fa2f6a7cfdd.jpg)
 
 ---
 

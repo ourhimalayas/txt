@@ -2,81 +2,71 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1538864/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1538884/)
 
 - 编译：wenwu–西班牙喜悦农场
 
 
 您若想了解全文报导内容，请点击标题链接
 
-**1. [济南战役打响 拉开全国解放战争战略决战序幕](https://www.163.com/news/article/GK20TC4A000189FH.html?clickfrom=w_yw)**
+（珍爱生命 远离疫苗）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-4-18.png)
+**1. [中共国过10亿人打了两针疫苗](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210916-%E4%B8%AD%E5%9B%BD%E8%BF%8710%E4%BA%BF%E4%BA%BA%E6%89%93%E4%BA%86%E4%B8%A4%E9%92%88%E7%96%AB%E8%8B%97)**
 
-据《网易新闻》援引《央广网》2021年9月16日电，【党史上的今天】1948年9月16日至24日凌晨，人民解放军攻克了有10万国民党重兵防守的山东省省会济南，开创了人民解放军攻占大城市的先例，拉开了全国解放战争战略决战的序幕。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-11-8.png)
 
-据[《网易新闻》](https://www.163.com/news/article/GK20P4JC000189FH.html?clickfrom=w_yw)援引《央广网》2021年9月16日电，习近平强调，完成好基地担负的各项任务，必须以党的政治建设为统领，全面推进党的各方面建设，深化党的创新理论武装，抓好党史学习教育，发扬好“两弹一星”精神、航天测控精神，打牢官兵听党指挥、履行使命的思想政治根基，保持部队纯洁巩固和高度集中统一；许其亮等参加活动。
+据《法广网》2021年9月16日电，中国政府今天表示，当局已经为超过10亿人全面接种了新冠疫苗，超过了其人口的70%；中国在2019年底出现了冠状病毒，截至9月15日，中国共分发了21.6亿支疫苗。
 
-据[《阿波罗新闻》2](https://www.aboluowang.com/2021/0916/1647655.html)021年9月16日电，9日零时10分，环球时报在官微发表微博，暗香涌动！火龙果花惊艳绽放瞬间。吃过美味的火龙果，你见过火龙果开花吗？它一般晚上绽放，到第二天早上7点左右凋谢，也是“昙花一现”的美物。有网友评论，环球时报的这条微博是掐着秒表发的吗？9月9日零点10分是毛泽东去世的时刻。
+第一个受到新冠肺炎病毒大流行病袭击的国家也是第一个在2020年春天就摆脱新冠肺炎病毒大流行病的国家，此前它采取了激进的措施，包括广泛的检测和实际关闭边界。但中国仍然面临着零星的有限爆发，比如最近几天在东部省份福建，每天发现约50个病例（可能是投毒）。
 
-阿波罗网评论员王笃若点评，习近平上台至今，并没有清洗宣传系统。宣传系统其实还都是原来江系的人马。环球时报江系政治色彩很重，总编[胡锡进](https://www.aboluowang.com/tag/%E8%83%A1%E9%94%A1%E8%BF%9B-1.html)一直是站在江系的立场上的，所以这个讽刺很可能并不是为了讽刺毛泽东，毛泽东盘踞中共政坛几十年，也没有昙花一现的问题。反而非常可能是在讽刺习近平。
+据[《网易新闻》](https://www.163.com/dy/article/GJPAGQN1054777M8.html)2021年9月13日电，由原长安汽车战略规划部总经理、党支部书记升任成为副总裁的余成龙，在上任不足两个月便因突发疾病，医治无效不幸去世，年仅48岁。重庆新闻哥于14日在微博表示，他是因为喵喵引发的急性白血病发作，导致高烧脑死亡。
 
-据[《阿波罗新闻》](https://www.aboluowang.com/2021/0916/1647517.html)2021年9月16日电，阿波罗网记者秦瑞报道，9月16日，中共喉舌《求是》杂志官网，刊登文章《建军之本强军之魂——坚持党对军队绝对领导的历史回顾与启示》，作者是中共军事科学院军队政治工作研究院。文章中列举了[张国焘](https://www.aboluowang.com/tag/%E5%BC%A0%E5%9B%BD%E7%84%98-1.html)、王明、[林彪](https://www.aboluowang.com/tag/%E6%9E%97%E5%BD%AA-1.html)作为反面典型。特别令人关注的是再提“林彪策划武装政变”，在军方近日发表的文章中，这似乎是第一次出现。
+**2. [世界领导人在联合国会议上面临新规则：疫苗接种](https://wjla.com/news/coronavirus-vaccine/world-leaders-face-new-rule-at-un-meeting-vaccination)**
 
-阿波罗网评论员李玉锵分析认为，近来中共军方不断强调“党指挥枪”，并反复以”张国焘“、”王明“、”[郭伯雄](https://www.aboluowang.com/tag/%E9%83%AD%E4%BC%AF%E9%9B%84-1.html)、[徐才厚](https://www.aboluowang.com/tag/%E5%BE%90%E6%89%8D%E5%8E%9A-1.html)、 [房峰辉](https://www.aboluowang.com/tag/%E6%88%BF%E5%B3%B0%E8%BE%89-1.html)、 张阳“等人作为反面典型，已经令外界极为关注。然而，以林彪作为反面典型，似乎这是第一次出现，更关键的是称其”策划武装政变**“**，令人怀疑中共军中究竟出了什么事。（郭文贵先生在直播中点出了习神参加川普的庄园时候，被自己的警卫安放了监听设备。）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-13-6.png)
 
-**2. [拜登的进出口银行提名人就“接触美国政府”向中国共产党人提供建议](https://thenationalpulse.com/exclusive/export-import-bank-president-is-ccp-consultant/)**
+据《华盛顿特区报》援引《美联社》2021年9月15日电，世界领导人必须接种中共病毒疫苗，才能在[下周的](https://wjla.com/news/nation-world/biden-to-speak-in-person-to-united-nations-general-assembly)联合国大会[大型会议上](https://wjla.com/news/nation-world/biden-to-speak-in-person-to-united-nations-general-assembly)发言，大会领导人和纽约市官员表示，这引起了至少一个国家的迅速反对；俄罗斯大使瓦西里·内本齐亚（Vassily Nebenzia）抨击疫苗需求是“明显歧视性”侵犯各国在联合国权利的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-5-15.png)
+白思豪发言人米奇·施瓦茨 (Mitch Schwartz)表示，他还指出接种了未经[世界卫生组织](https://www.who.int/)批准的疫苗（俄罗斯的人造卫星 V 疫苗）的人——这是该市可接受接种的标准；联合国秘书长安东尼奥·古特雷斯 (Antonio Guterres) 的发言人斯蒂芬·杜加里克 (Stephane Dujarric) 指出，大会有权做出影响代表的决定，但表示该组织将努力帮助实施这些决定。
 
-据《国家脉动》2021年9月15日电，美国进出口银行行长候选人雷塔·乔·刘易斯 (Reta Jo Lewis) 与美国政府标记的各种中国共产党资助的影响团体合作，试图胁迫美国官员采取“北京偏爱的政策” 。
+这一次，每位亲自到场的领导人只能带六个人到联合国总部，四个人只能带进大会堂。与此同时，这个世界性组织要求大楼内的所有员工在一周内接种疫苗。
 
-刘易斯在大华盛顿中国投资中心（[GWCIC](http://www.greaterwashingtoncic.com/about-gwcic/)）的董事会任职，该中心将自己描述为”公私合营，旨在帮助寻求走向全球的中小型中国公司在指导下进入美国市场。”GWCIC主席比尔·布莱克（Bill Black）的简历吹嘘他在被列入黑名单的电信公司华为担任顾问；GWCIC主席比尔·布莱克（Bill Black）的简历吹嘘，他曾在被列入黑名单的电信公司华为担任顾问；GWCIC承诺为其中共国客户建立“关键联系”，以“与两国对外国投资具有影响力的关键参与者建立关系”；GWCIC承诺提供”与美国和中国的城市、州和联邦领导人的联系和介绍”，该网站上一个现已被删除的承诺是，GWCIC还将提供”[进入美国工业和政府数据库的机会](https://web.archive.org/web/20141025164525/http:/www.greaterwashingtoncic.com/products-services/)“
+**3. [最近 FDA 辞职的意义](https://www.zerohedge.com/political/meaning-recent-fda-resignations)**
 
-GWCIC的[博客](http://www.greaterwashingtoncic.com/china-daily-covers-gwcic-ccpit-sponsored-business-dialogue/)甚至包含一篇题为”对中国强硬的后果”的文章，其中称赞国营媒体中国中央电视台（CCTV）的广播是”有见地的”，并对”GWCIC的朋友”马克·罗斯进行了采访；刘易斯还帮助中共扩大其在中西部的影响力：GWCIC与中国国际贸易促进委员会（CCPIT）和中国国际商会（CCOIC）[合作](http://www.greaterwashingtoncic.com/gwcic-hosts-symposium-chinese-investment-u-s-baker-mckenzie/)，还有她在[担任](https://usheartlandchina.org/about-ushca/strategic-advisors/)美国心脏地带中国协会（USHCA）的战略顾问，该组织与中共的首要外国影响团体之一中美交流基金会（CUSEF）有着[深厚](https://thenationalpulse.com/exclusive/cusef-sponsoring-events-travel-for-ag-officials/)的联系。USHCA”[自豪地与](https://usheartlandchina.org/)“CUSEF合作，促进中国共产党和美国农民之间的合作，针对地方官员提供免费的中国之旅。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-12-6.png)
 
-刘易斯最近在2020年7月与中共官员一起在USHCA[活动中](https://usheartlandchina.org/webinars/the-importance-of-developing-future-leaders/)发言，并出席和[赞扬](https://www.fmprc.gov.cn/ce/cgny/eng/zt/14you/t841319.htm)了[有争议](https://www.brookings.edu/wp-content/uploads/2019/08/fp_20190729_china_cities_transcript.pdf)的中美省长论坛，该论坛被美国国务院标记为努力影响美国官员倡导与中共的全球野心相一致的政策；在2011年的一次新闻[发布会](https://www.youtube.com/watch?v=XRuZmCALZ7w)上，在奥巴马政府任职期间，刘易斯对CPAFFC的赞助表示感谢；就在最近的2019年，刘易斯还赞扬了该活动及其使命，中国国营媒体新华社对此进行了[披露](http://www.xinhuanet.com/english/2019-08/17/c_138314963.htm)：美国德国马歇尔基金会高级研究员兼国会事务主任雷塔·乔·刘易斯说，对国家以下各级领导人来说，”最重要的事情”是关于围绕就业推动本州发展，围绕繁荣推动本州发展，确保每个公民有机会参与经济，这就是他们不懈努力寻求与中共国合作的”动力”。
+据《零对冲》2021年9月16日电，负责疫苗研究的两名 FDA 高级官员上周辞职，本周在《柳叶刀》上签署了一封强烈警告疫苗助推器的信，这有多重要？这是一个显着的迹象，表明政府管理的病毒缓解项目已进入最后阶段，即将分崩离析：这两位 FDA 官员带着严重怀疑帝国理工学院的 Neil Ferguson 和 NIH 的 Anthony Fauci 的顶级封锁，并且[已经](https://www.politicshome.com/news/article/early-data-shows-booster-jab-is-very-effective-in-driving-down-covid)倡导和[推动](https://nypost.com/2021/08/29/fauci-certain-americans-will-need-covid-19-booster-shots/)了“再来一针”。
 
-**3. [维基百科在史无前例的打压中禁止7名中国大陆超级用户“渗透和剥削”](https://hongkongfp.com/2021/09/14/exclusive-wikipedia-bans-7-mainland-chinese-power-users-over-infiltration-and-exploitation-in-unprecedented-clampdown/)**
+所有这些疫苗措施都是在控制（疫苗应对措施）浪潮中部署的。在控制的每个阶段，都有新的说法称我们终于找到了答案，即最终减缓和阻止 SARS-CoV-2 传播的关键技术，（但由于压制伊维菌素和羟氯喹）导致世界上以疫苗为主的地方都没有明显的差异。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-6-13.png)
+在这** 19 **个月中，我们从未看到政府官员明确承认失败。事实上，情况大多相反，因为这些机构加倍努力，声称有效而没有引用数据或研究，而社交媒体公司通过删除异议者的帖子和厚颜无耻地删除敢于引用“反”科学（福奇）的人的账户来，支持政府的疫苗措施。 正如美国CDC所发生的有关疫苗的所有事情。
 
-据《香港自由报》2021年9月14日电，维基媒体基金会调查发现，一群中国大陆维基人 ( [WMC](https://meta.wikimedia.org/wiki/Wikimedians_of_Mainland_China/Members) )要向香港的国家安全警察举报香港用户组 ( [WMHKG](https://meta.wikimedia.org/wiki/Wikimedia_Community_User_Group_Hong_Kong) ) ，而后负责监管维基百科的基金会采取了前所未有的行动，在全球范围内禁止 7 名中国大陆用户访问其网站，并撤销其他 12 名用户的管理员访问权限和其他权限。
+现在是 FDA 负责疫苗安全和管理的两名高级官员的醍醐灌顶的辞职。他们可是是疫苗研究办公室的主任和副主任 Marion Gruber 和 Phillip Kause。拜登总统说：“如果接种了疫苗，就不会感染中共病毒。”但美国人真实面对的是无休止的“再来一针”，这是基于中共病毒是生物武器，还有不准谈论疫苗的副作用，有脑子的人该醒了。
 
-维基百科为希望成为管理员的用户举办选举，他们享有更多的用户访问权限和更大的编辑文章的权力。过去有报道称，中文版的用户在维基百科之外进行选举拉票，以确保大陆管理员的选举。
+**4 .[德州医院执行官：若疫苗强制令通过，医院将面临关闭](https://www.ntdtv.com/b5/2021/09/15/a103217291.html)**
 
-维基百科的基金会副总裁玛吉·丹尼斯周二（14日）在[一份在线声明中](https://lists.wikimedia.org/hyperkitty/list/wikimedia-l@lists.wikimedia.org/message/6ANVSSZWOGH27OXAIN2XMJ2X7NWRVURF/)表示，由于2019年中共政府阻止其公民访问维基百科，将导致近 300[名维基](https://meta.wikimedia.org/wiki/Wikimedia_Community_User_Group_Hong_Kong)百科用户不被基金会认可；中国用户团体（WMC）批评该基金会的行为，称对其用户的指控是“不必要的”，并且没有证据支持：该基金会关于选举拉票的主张与上次美国总统选举期间的投票操纵阴谋相当。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-14-6.png)
 
-**4. [加速中国公司从美国交易所退市：美国最高监管机构](https://www.taiwannews.com.tw/en/news/4289451)**
+据《新唐人电视台》2021年9月16日电，布朗菲尔德地区医疗中心（Brownfield Regional Medical Center）首席执行官杰里·贾斯帕（Jerry Jasper）说，如果拜登的全面强制接种令通过，“我的20%，可能是20%到25%的员工，将不得不离开。“他说，失去这些工人，失去医疗保险和医疗补助金，很可能导致他的医院被迫关闭。德州塞米诺尔地区综合医院（Seminole Hospital District）的首席执行官莱瑞·格雷（Larry Gray）也表达了与贾斯帕同样的观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-7-13.png)
+一家位于纽约州北部的地区医院负责人说，由于前州长安德鲁‧库默（Andrew Cuomo）几周前下达的行政命令，该医院将不得不暂时关闭其产科。据当地媒体报导，刘易斯县（Lewis County）卫生系统首席执行官杰拉尔德‧凯耶（Gerald Cayer）说，由於拒绝接种疫苗，6名受雇于该部门的员工辞职了，导致该医院产科失去了接生婴儿的能力。
 
-据《台湾英文新闻》2021年9月16日电，美国证券交易委员会 (SEC) 主席加里·詹斯勒 (Gary Gensler) 周二（14日）告诉参议院银行、住房和城市事务委员会，支持一项名为《加速追究外国公司责任法》的法案，该法案将缩短在美国上市的中国公司提交给美国监管机构进行全面核算的时间。
+除了对医护人员的强制令外，拜登还宣布，他将指示联邦职业安全与健康管理局（Occupational Safety and Health Administration）对拥有100名或更多员工的公司执行一项指令，即要求员工要么接种疫苗，要么每周接受中共病毒的检测。他还强调，联邦工作人员和承包商也将必须接种疫苗。
 
-美国国会去年通过了《追究外国公司责任法》，该法要求所有非美国公司在三年时间内符合美国证券交易委员会的要求，否则将离开美国资本市场。新法案已在参议院获得通过，但据说正在努力争取在众议院获得投票，该法案将把时间缩短至两年。大约有270家与中国有关的公司将受到该法案的影响，包括在开曼群岛和其他地方注册的空壳实体。
+**5. [传广东爆疫情期间 书记李希被习禁止进京](https://www.aboluowang.com/2021/0915/1647142.html)**
 
-自从2002年《萨班斯-奥克斯利法案》通过以来，一直要求寻求在美国交易所发行公开股票的公司对其审计进行检查。唯一允许公司在不遵守规定的情况下在美国上市的地方是中国和香港，这两个地方继续以国家安全为由，禁止外国对其国内审计进行检查。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-15-4.png)
 
-**5. [恒大引爆房股香港暴跌](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210916-%E6%81%92%E5%A4%A7%E5%BC%95%E7%88%86%E6%88%BF%E8%82%A1%E9%A6%99%E6%B8%AF%E6%9A%B4%E8%B7%8C)**
+据《阿波罗新闻网》2021年9月15日电，知情网友披露当局在厦门机场紧急建设大规模方舱隔离病房。另有网友反映，为保[中南海](https://www.aboluowang.com/tag/%E4%B8%AD%E5%8D%97%E6%B5%B7-1.html)，厦门已经取消了所有飞至[北京](https://www.aboluowang.com/tag/%E5%8C%97%E4%BA%AC-1.html)的航班。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-9-13.png)
+9月14日下午，厦门市、莆田市宣布进行全员核酸检测。报导称，福建疫情已形成莆田、厦门双传播中心。厦门当局发布通告，要求所有的居民小区（村）实行闭环管理。市民非必要不离厦门。当局并宣布，全市大中小学、中职学校从线下教学调整为线上教学，幼儿园暂停入园。
 
-据《法广网》2021年9月16日电，香港股市再度上演黑色星期四，新一轮监管冲击波下本已十分颓弱的港股跌势加剧收于十个月低位，恒大风波一跃成为市场最新的风险关切焦点，内房股惨遭“血洗”狂泻不止，科技股也尚未有见底迹象，阿里巴巴再创新低，澳门博彩股遭洗仓蒸发逾千亿港元市值后跌势不歇。
+据[《阿波罗新闻网》](https://www.aboluowang.com/2021/0915/1647142.html)2021年9月15日电，5月底6月初的广东疫情，官方应对失当，小区封控措施未能落实到位，造成社区传播，引发中央不满。[习近平](https://www.aboluowang.com/tag/%E4%B9%A0%E8%BF%91%E5%B9%B3-1.html)不准广东省委书记李希进京参加建党百周年庆典，理由是让他亲自坐镇，以防疫情死灰复燃。广东上月处分了包括广州市副市长在内的数十名官员。
 
-香港股市今天报告恒生指数.HSI收跌1.5%，至24,667.85点，为去年11月2日以来最低收盘价；恒生国企指数.HSCE亦收挫1.5%；融创中国1918.HK跌超11%，碧桂园、世茂集团和龙光集团跌幅介于7.2-10.5%；中国恒大一度跳水超10%，摸至近十年新低，后收跌6.4%；恒大汽车0708.HK盘中崩跌18.6%后收挫11.3%，恒大物业6666.HK及恒腾网络分别收低3.5%和3%；A股方面，新城控股、金地集团、保利地产和万科A股Z跌幅介于2.7-7.9%，沪深300地产指数挫3.2%；不到一周时间，融创中国跌幅已经超过26%，如果没有意外，这将成为融创上市以来表现最黯淡的一周；碧桂园本周跌幅也超过了20%，而富力地产则已跌至2008年金融危机以来的最低水位。
+6月25日央视播出的视频中，无论是习近平带领与会者集体参观北大红楼及中南海丰泽园毛泽东居所时的场景、还是政治局成员集体学习时的画面，都没有出现中央政治局李希的身影；中共政治局在[北京](https://www.aboluowang.com/tag/%E5%8C%97%E4%BA%AC-1.html)进行集体学习的当日，分别在新疆、重庆、上海的[陈全国](https://www.aboluowang.com/tag/%E9%99%88%E5%85%A8%E5%9B%BD-1.html)、[陈敏尔](https://www.aboluowang.com/tag/%E9%99%88%E6%95%8F%E5%B0%94-1.html)、李强都赴北京参加；6月22日，李希在广东出席该省疫情防控工作视像会议。
 
-高盛周三在一份报告中表示，中国恒大集团债务危机可能对更广泛的中国房地产行业构成外溢风险。摩根大通在一份报告中表示，随着最近的事件加速向下行方向发展，政府需要采取更多行动，以防止潜在的溢出效应。惠誉评级在中国全资拥有的在岸信用评级公司—惠誉博华周四发表报告称，内地监管层对债务规模的强管控，以及销售降温，削弱了房地产企业的现金流和流动性，预计这一局面仍将持续。
-
-**6. [欧洲议会压倒性通过报告呼吁欧盟制定对中国新战略](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210916-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E5%8E%8B%E5%80%92%E6%80%A7%E9%80%9A%E8%BF%87%E6%8A%A5%E5%91%8A%E5%91%BC%E5%90%81%E6%AC%A7%E7%9B%9F%E5%88%B6%E5%AE%9A%E5%AF%B9%E4%B8%AD%E5%9B%BD%E6%96%B0%E6%88%98%E7%95%A5)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-10-12.png)
-
-据《法广网》2021年9月16日电，欧洲议会周四（16日）公布全体会议表决结果，压倒性通过呼吁欧盟制定对中国新战略报告案，除敦促解决侵犯人权行为并确保欧盟有效禁止涉及侵害人权行为的中国企业在欧盟推展业务等外，还支持欧盟与台湾谈判双边投资协定。
-
-欧洲议会的这份报告提出欧盟与中国接触的6大支柱，包括合作应对全球挑战、重视人权及国际规范、辨识风险和脆弱性、与理念相近伙伴深化关係、促进战略自主和捍卫欧洲的利益和价值；报告谴责中国系统性侵犯人权的行为，呼吁欧、中定期进行人权对话，解决针对新疆、内蒙古、西藏和香港的人权侵犯问题，并确保欧盟有效禁止涉及侵害人权行为的中国企业在欧盟推展业务；报告同意欧盟和中国应继续在全球性挑战上继续合作，例如气候变迁、多边组织改革及应对全球卫生危机等，并对可能演变为流行病或大流行病的传染病透过风险和预警系统加强应对，且要求中国允许对COVID-19（2019冠状病毒疾病）的起源与如何传播进行独立调查。
-
-在中国取消对欧洲议会议员和欧盟机构的制裁之前，将继续冻结“欧中全面投资协定”（CAI）的批准程序，并促欧盟与美国、加拿大、英国、日本、印度及台湾等民主盟友深化合作，还敦促欧盟推进与台湾的双边投资协定（BIA），并尽快展开协定评估及范畴界定工作。针对中共国的报告最后呼吁欧盟提出具体行动，促进台湾以观察员身分参与世界卫生组织（WHO）、国际民航组织（ICAO）和「联合国气候变化纲要公约」（UNFCCC）的会议、机制和活动。
+福建是习近平长期任职的地方，亦是其亲信、中组部长陈希的家乡（是否出于打台湾而故意投毒，仍未可知）；福建省卫健委15日通报称，自9月10日以来，福建省累计报告本土确诊病例152例，目前住院152例（厦门市45例、泉州市16例、莆田市91例）。
 
 （文章仅代表作者本人观点，与Gnews无关）
 
@@ -85,7 +75,5 @@ GWCIC的[博客](http://www.greaterwashingtoncic.com/china-daily-covers-gwcic-cc
 *发稿：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEWS_CH.-2.jpeg)
-
-
 
 +1

@@ -79,22 +79,22 @@
 ### [短视频：福奇资助危险虐狗实验，谷歌言论审查给与保护](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/23/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/23/README.md)
  ` wenwu`
 
-### [印度北方邦战胜新冠病毒，证实伊维菌素的有效性](/content/gnews/24/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/24/README.md)
+ ` wenwu`
+
+### [印度北方邦战胜新冠病毒，证实伊维菌素的有效性](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [佩洛西访英期间严厉抨击中共压制与技术数据威胁](/content/gnews/25/README.md)
+### [佩洛西访英期间严厉抨击中共压制与技术数据威胁](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [日本将针锋相对回应中共对尖阁诸岛威胁](/content/gnews/26/README.md)
+### [日本将针锋相对回应中共对尖阁诸岛威胁](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [欧洲议会压倒性通过报告, 呼吁制定针对中共新战略](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [欧盟出台最新印太战略](/content/gnews/28/README.md)
+### [欧洲议会压倒性通过报告, 呼吁制定针对中共新战略](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
 ### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/29/README.md)
@@ -148,33 +148,33 @@
 ### [9/17/21 香港快讯 职工盟将进入解散筹备过程 星期日开记者会交代](/content/gnews/45/README.md)
  ` 英喜-粵語組`
 
-### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/46/README.md)
+### [欧盟出台最新印太战略](/content/gnews/46/README.md)
+ ` GTV新闻访谈`
+
+### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/47/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒](/content/gnews/47/README.md)
+### [秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;](/content/gnews/48/README.md)
+### [欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：习近平表示上海合作组织将增加伊朗为成员国 走“人间正道”](/content/gnews/49/README.md)
+### [秘翻在线：习近平表示上海合作组织将增加伊朗为成员国 走“人间正道”](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [官宣：彼特·那瓦罗先生成为新中国联邦国家代表大使](/content/gnews/50/README.md)
+### [官宣：彼特·那瓦罗先生成为新中国联邦国家代表大使](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：中共国大量申请6G技术专利，与控制全人类的联系](/content/gnews/51/README.md)
+### [秘翻在线：中共国大量申请6G技术专利，与控制全人类的联系](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾回赠日本血氧仪及制氧机](/content/gnews/52/README.md)
+### [台湾回赠日本血氧仪及制氧机](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [香港支联会及核心成员被控煽颠罪](/content/gnews/53/README.md)
+### [香港支联会及核心成员被控煽颠罪](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/54/README.md)
+### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/55/README.md)
  ` GTV新闻访谈`
-
-### [恒大集团暴的雷到底有多大？](/content/gnews/55/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
