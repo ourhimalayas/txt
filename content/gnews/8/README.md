@@ -2,41 +2,54 @@
 ---
 
 
-## 在接种疫苗52天后龙劭华昏倒抢救不治
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1538206/)
+## FEC裁定Twitter无罪 恐使其成为强大宣传机器
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1538398/)
 
-作者 台湾宝岛农场 Y.M.O
-![](https://assets.gnews.org/wp-content/uploads/2021/09/My-Post.jpg)
-9月14日台湾影视界传来一则让人震惊的消息，著名演员龙劭华于晚间8时许去世，享年68岁。据报道，龙哥最近是在高雄拍台视八点档电视剧《美丽人生》，由于这几天没什么拍摄行程所以并没有带自己的助理。14日晚上本来有饭局他一直没现身，于是片场的助理去他住的高雄85大楼敲门却无人应答，拿钥匙开门后才发现他坐在沙发上已经没有了意识，送医宣告不治。
+- **编译：wenwu**
 
-根据龙劭华大哥的脸书，7月24日已经完成了第一剂AZ疫苗的接种。而经纪人透露龙劭华大哥原本更早之前就要接种疫苗，但随后因为出现晕眩症状推迟了日期，在医师确认身体状况没问题之后才接种了疫苗。这里有两点可以确认，一是龙劭华大哥身体原先就有隐疾，二是逝世的时间离接种疫苗相隔52天。虽然很多人都不愿意这么想，但带走龙劭华大哥的凶手是疫苗的可能性非常之高。
 
-这条新闻被刊出之后其实很多人是非常震惊的，关心疫苗危害的人自然会注意到施打疫苗的细节，而了解台湾影视界的人则会想到诸多优秀作品就这样失去了一位好演员，看过的角色越多，心痛的感觉也越强烈。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip76.png)
 
-2011年龙劭华在林育贤导演的电影《翻滚吧！阿信》中扮演称霸一方的宜兰黑帮老大黑松，让人印象深刻。
+这是[联邦选举委员会](https://nypost.com/2021/09/13/fec-backs-twitter-over-hunter-biden-censorship/)(FEC)的一致裁决，该[委员会](https://nypost.com/2021/09/13/fec-backs-twitter-over-hunter-biden-censorship/)认定 Twitter 审查[《华盛顿邮报》](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)关于亨特·拜登笔记本电脑内容[的事实报告，](https://nypost.com/2020/10/14/email-reveals-how-hunter-biden-introduced-ukrainian-biz-man-to-dad/)并没有违反任何法律。
 
-2017年在非常卖座的恐怖电影《红衣小女孩2》中龙哥扮演吴念轩（虎爷）的爷爷阿龙师，一度被魔仔附身。第二年的《人面鱼：红衣小女孩外传》中龙哥也继续扮演这个角色。
+FEC 表示，在其看来，“Twitter 可能是一个记者的实体”，该社交媒体网络的“活动属于我们的新闻豁免范围。”这对 Twitter 和 Facebook 来说将是从未接触过的，它们享有《通信规范法》第 230条的[好处](https://nypost.com/article/what-is-section-230-and-why-was-it-created/)。[该法律规定](https://nypost.com/2020/10/15/fcc-moves-to-clarify-section-230-law-after-censoring-of-post-story/)“任何交互式计算机服务的提供者或用户均不得被视为，另一信息内容的提供者所提供任何信息的发布者或演讲者。”
 
-2018年在萧雅全导演的《范保德》中龙哥扮演了男主角范保德的好友阿猴。
+换句话说：当《纽约邮报》发表某些内容时，我们可能会因诽谤而被起诉。我们努力对出现在我们故事中的声明进行事实核查、编辑和律师辩护，如果我们未能这样做并且文章是虚假的，我们[将承担责任。](https://nypost.com/2021/09/06/breaking-down-a-week-of-media-disinformation/)
 
-同样是这一年，在热门剧集《花甲男孩转大人》的衍生大电影《花甲大人转男孩》中龙哥继续扮演了爱面子的二叔郑广煌。
+但是Twitter则不然，多亏了[第 230 条，](https://nypost.com/2020/12/03/twitter-other-tech-giants-acting-like-censorious-publishers/)社交媒体才能举手说：不是我们的问题！那是@hottake123（某人）说的。起诉他们——如果你能弄清楚他们的真实姓名。
 
-2019年龙劭华大哥在钟孟宏执导的金马最佳剧情片，入围奥斯卡国际影片十五强的《阳光普照》中扮演了男主角驾驶学校的老板。而在驾校被泼粪的戏也是片中少见的带有喜剧色彩的场面。
+当我们还注意到 Twitter 固有的政治偏见，肖恩·库克西（Sean Cooksey）专员在 FEC 的判决中明确表示：“根据委员会的说法，所涉及的行为都不是为了影响 2020 年总统大选。我不确定。在我看来，该记录并不能确定 Twitter 是否一直在执行政治[中立的商业政策，](https://nypost.com/2020/10/27/twitters-continued-ban-on-the-post-has-no-rhyme-or-reason-only-bias/)或者利用其平台来支持一位[候选人而不是另](https://nypost.com/2021/01/08/why-ban-of-realdonaldtrump-proves-twitter-not-just-a-platform/)一位。
 
-2020年龙哥在台湾票房最高的同志电影《刻在你心底的名字》中饰演王柏德的父亲，而在《孤味》中扮演抛弃了四个女儿的父亲陈伯昌的老年角色。值得一提的是，在《孤味》之前的短片中，龙哥并没有现身，但短片中父亲的声音是由他配的。
+想想政府授予这些平台的权力。按照 FEC 的标准，Facebook 或 Twitter 可以根据公司的商业价值[或政治信仰](https://nypost.com/2020/10/14/facebook-limits-spread-of-the-posts-hunter-biden-expose/)来[审查、宣传或禁止](https://nypost.com/2021/08/17/twitter-says-taliban-can-stay-on-platform-if-they-obey-rules/)它想要的任何内容。但是如果发布了虚假或诽谤的东西，那么它也不用为此负责。
 
-以上还仅仅是我熟悉的一些电影，在电视剧上龙劭华大哥也演过诸多作品，并且拿到过金钟奖。另外我印象深刻的一点是目前描写台北大稻埕的影视作品有近十部，龙哥出演了其中的一半。可以说如此出色的演员以这种方式去世实在是让人无法接受，并且只要疫苗接种一天不停止，这样的事情就会接二连三地发生。汽车厂商因为疫苗的危害生产陷入停滞，影视界也会因为从业人员的消失无法产出优秀作品，再美好的地方都会因此灰飞烟灭。
+白宫官僚们因此将硅谷公司变成了无所不能的[媒体独裁者](https://nypost.com/2021/08/26/new-york-magazines-shocking-revelation-the-liberal-media-are-biased/)，不对任何人负责。有趣的是，推特这么做似乎对民主党最有利。
 
-新闻链接
+然而，有理由认为推特CEO[杰克·多尔西的胡子](https://nypost.com/2020/11/17/jack-dorsey-admits-lockout-of-the-post-was-a-mistake/)今天在抽搐。通过宣布 Twitter 为新闻出版社，FEC 黑白分明地指出了这些规定的内在矛盾。国会立法者可以而且应该[废除第 230 条，](https://nypost.com/2020/12/02/trump-threatens-to-veto-defense-bill-if-section-230-stands/)并迫使社交媒体公司遵循与其他出版商相同的规则。没有什么比这更让他们害怕的了。
 
-[龍劭華過世！7月曾出現暈眩症狀確認身體狀況才打疫苗| 娛樂星聞](https://www.setn.com/News.aspx?NewsID=998051)
+**简评：**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip77.png)
+
+**推特不得民心是好消息，而且推特和脸书搭上了中共伪政府的末日列车，这是一个更好的消息！推特正行驶在疯狂的道路上，其尽头是悬崖在等着他，当然还包括了脸书、IG、Telegram。**
+
+**因为郭文贵先生爆料，这4个APP绝对会出卖在香港的前线同胞的网络地图给中共。中共是犯有种族灭绝罪的跨国犯罪组织，这些东西到了这些恐怖分子手中，无疑影响了香港同胞的生命安全。**
+
+** 另一方面，GETTR的CEO杰森·米勒先生宣布盖特即将发布翻译和直播的功能，并表示盖特将永远不会因政见而审查言论或将用户移出平台！**
+
+**纳瓦罗先生于9月15日同郭文贵和班农先生，以及米勒先生共同聚集在一起，并[表示](https://gettr.com/post/pb664j9a90)：盖特是“推特杀手”，它的意义就在于捍卫言论自由！**
+
+**与此同时，纳瓦罗先生于15日正式签署官方文件，并宣布成为盖特的形象大使，和新中国联邦的国家代表大使！这是新中国联邦人的荣耀。**
+
+（文章仅代表作者个人观点，与GNEWS无关）
+
+**新闻来源：[《纽约邮报》](https://nypost.com/2021/09/15/fec-just-turned-twitter-into-all-powerful-propaganda-machine/)｜作者：后编委会｜发布时间：2021年9月15日**
 
 * * *
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-+1
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+
+0
