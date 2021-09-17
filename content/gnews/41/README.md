@@ -2,88 +2,61 @@
 ---
 
 
-## 重磅：印度北方邦证实伊维菌素的有效性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1536728/)
+## 09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1536393/)
 
-- 编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210916-2.jpg)[图片来源](https://cn.nikkei.com/industry/agriculture/46079-2021-09-15-16-16-26.html)
+**1.加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议**
+
+[加拿大太平洋铁路(Canadian Pacific Railway Ltd.)达成了收购堪萨斯城南方铁路（Kansas City Southern）的协议，这笔交易价值270亿美元，若如完成，将是美国铁路行业约20年来的首个重大合并案，将打造出第一个连接起加拿大、美国和墨西哥的货运铁路网络。](https://cn.wsj.com/articles/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%A4%AA%E5%B9%B3%E6%B4%8B%E9%93%81%E8%B7%AF%E8%BE%BE%E6%88%90%E4%BB%A5270%E4%BA%BF%E7%BE%8E%E5%85%83%E6%94%B6%E8%B4%AD%E5%A0%AA%E8%90%A8%E6%96%AF%E5%9F%8E%E5%8D%97%E6%96%B9%E9%93%81%E8%B7%AF%E7%9A%84%E5%8D%8F%E8%AE%AE-11631755506)
+
+[加拿大太平洋铁路和堪萨斯城南方铁路在今年3月曾达成价值250亿美元的并购协议，但之后加拿大国家铁路公司(Canadian National Railway Co.)横刀杀入，提出了约300亿美元的更高收购报价。这促使堪萨斯城南方铁路改变主意，转向新的并购合作伙伴，在那之后，一个专门负责批准铁路资产合并交易的监管小组否决了加拿大国家铁路公司提出的使用临时投票信托的计划，而这是加拿大国家铁路公司收购要约的关键组成部分。](https://cn.wsj.com/articles/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%A4%AA%E5%B9%B3%E6%B4%8B%E9%93%81%E8%B7%AF%E8%BE%BE%E6%88%90%E4%BB%A5270%E4%BA%BF%E7%BE%8E%E5%85%83%E6%94%B6%E8%B4%AD%E5%A0%AA%E8%90%A8%E6%96%AF%E5%9F%8E%E5%8D%97%E6%96%B9%E9%93%81%E8%B7%AF%E7%9A%84%E5%8D%8F%E8%AE%AE-11631755506)
 
 
-《网关专家》[此前报告称](https://www.thegatewaypundit.com/2021/05/elites-worried-covid-cases-india-plummet-government-promotes-ivermectin-hydroxychloroquine-use/)，印度由于向广大人群推广，伊维菌素（Ivermectin）和羟氯喹的新规则，当地的中共病毒病例正在急剧下降。印度北方邦的33个地区周五（10日）已[通过政府的宣告战胜了中共病毒](https://www.hindustantimes.com/cities/lucknow-news/33-districts-in-uttar-pradesh-are-now-covid-free-state-govt-101631267966925.html)。印度这些地区的恢复率已升至98.7%，证明了伊维菌素作为“北方邦控制中共病毒模式”的成功。
 
-据估计，印度北方邦（Uttar Pradesh）2021年人口为**2.41**亿，是印度人口最多的州。这几乎占2021年美国人口的三分之二，但现在它是一个即将消灭中共病毒的地区。
+**2.铀价上涨让对冲基金赚得盆满钵满**
 
-那么，在这场大疫情中，美国做错了什么呢？我们必须先问问福奇博士。
+[根据价格追踪机构UXC LLC的数据，本周铀价触及每磅44美元的八年高位。铀价上涨正让一些对冲基金赚得盆满钵满。这些基金一直押宝于10年前因一场核灾难而陷入低迷的市场将会反弹。交易员称，在这波上涨之前，Sprott Asset Management LP最近成立了一只交易所交易信托基金；其在向股东筹资后购买了大量铀库存，本身也成为了一个受到青睐的交易工具。](https://cn.wsj.com/articles/%E9%93%80%E4%BB%B7%E4%B8%8A%E6%B6%A8%E8%AE%A9%E5%AF%B9%E5%86%B2%E5%9F%BA%E9%87%91%E8%B5%9A%E5%BE%97%E7%9B%86%E6%BB%A1%E9%92%B5%E6%BB%A1-11631750705)
 
-[《印度斯坦时报》报道](https://www.hindustantimes.com/cities/lucknow-news/33-districts-in-uttar-pradesh-are-now-covid-free-state-govt-101631267966925.html)了这一重大进展：
+[这种核燃料走势的好转提振了相关矿商股价，包括加拿大的Cameco Corp. (CCJ)和Denison Mines Corp. (DNN)以及总部位于得州的Uranium Energy Corp. (UEC)，进而令Segra Capital Management和Sachem Cove Partners等对冲基金受益，这些对冲基金一直押注铀价会反弹。2011年日本福岛核泄漏事件后，该核燃料价格曾大幅跳水。](https://cn.wsj.com/articles/%E9%93%80%E4%BB%B7%E4%B8%8A%E6%B6%A8%E8%AE%A9%E5%AF%B9%E5%86%B2%E5%9F%BA%E9%87%91%E8%B5%9A%E5%BE%97%E7%9B%86%E6%BB%A1%E9%92%B5%E6%BB%A1-11631750705)
 
-总体而言，该州共有199例活跃病例，而阳性率降至0.01%以下。与此同时，恢复率已提高到98.7%。根据该州的卫生公报，北方邦在过去24小时内只报告了11例新冠肺炎病例，0人死亡。
 
-[《今日印度》](https://www.indiatoday.in/coronavirus-outbreak/story/uttar-pradesh-districts-covid-free-cases-deaths-1847365-2021-08-31)还于去年8月31日报道了这一点：
 
-北方邦的活跃病例数量降至269例，而活跃病例占确诊病例总数的百分比为0%。
+**3.日铁借助虚拟试验研发更轻更硬的EV钢板**
 
-4月份活跃的病例量高达3,10,783人，现已减少99%以上。该州新爆发的中共病毒病例曾连续50天，保持在100例以下；在过去24小时内测试的187,638个样本中，21个检测呈阳性。在同一时期，又有17名患者从感染中康复，到目前为止，已有超过1686,182人康复。
+[在纯电动汽车（EV）的钢板研发方面，日本制铁正在虚拟空间内实施汽车碰撞试验。在每辆车上标记1000万处，详细计算变形情况，分析断裂风险等。在追求车体轻量化的纯电动汽车上，钢板与铝等原材料之间的竞争日趋激化。日本制铁将推动轻薄且强度高的钢板研发，改善作为经营最优课题的汽车钢板业务。在日本制铁的钢铁研究所内，利用虚拟空间，研究人员正在重复纯电动汽车和插电式混合动力车（PHV）等新一代汽车等的碰撞试验。](https://cn.nikkei.com/industry/manufacturing/46058-2021-09-16-04-59-01.html)
 
-北方邦是印度率先在所有家庭接触者中，使用伊维菌素作为早期预防的州。而且这个邦，是印度所有邦中，中共病毒病例最少的五个邦之一。尽管它的疫苗接种率很低，其与美国[**54%**](https://www.beckershospitalreview.com/public-health/states-ranked-by-percentage-of-population-vaccinated-march-15.html)的[完全](https://www.beckershospitalreview.com/public-health/states-ranked-by-percentage-of-population-vaccinated-march-15.html)[接种](https://timesofindia.indiatimes.com/city/lucknow/65-of-record-27-lakh-vaccines-given-to-uttar-pradesh-rural-population/articleshow/85058420.cms)[疫苗](https://www.beckershospitalreview.com/public-health/states-ranked-by-percentage-of-population-vaccinated-march-15.html)相比，北方邦才只有[**5.8%**的](https://timesofindia.indiatimes.com/city/lucknow/65-of-record-27-lakh-vaccines-given-to-uttar-pradesh-rural-population/articleshow/85058420.cms)疫苗接种率很低。
 
-截至9月14日(如图），美国有[**179,289,983**人完全接种了疫苗](https://covid.cdc.gov/covid-data-tracker/#vaccinations_vacc-total-admin-rate-total)，而北方邦有[**15,236,150**人接种了第二剂疫苗。](https://www.mohfw.gov.in/pdf/CummulativeCovidVaccinationReport14september2021.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-191.png)
+**4.半导体前工序设备投资额2022年预创新高**
 
-据《[印度快报](https://indianexpress.com/article/cities/lucknow/uttar-pradesh-government-says-ivermectin-helped-to-keep-deaths-low-7311786/)》报道，这里有一些关于伊维菌素在**北方邦**的使用背景。
+[国际半导体产业协会（SEMI）9月15日发布预测数据称，2022年半导体前工序使用的制造设备投资额将扩大至984亿美元。将3月时的预测数据上调了约2成，连续3年刷新历史最高。由于通信速度提高和数据量增加，半导体需求不断扩大。中美摩擦导致供应链多元化，或将促进设备投资。高速通信标准“5G”的普及，以及处理大量数据的数据中心用途领域的投资对半导体需求起到了拉动作用。形成电路的前工序制造设备的投资额在2020年创下635亿美元的纪录，预计2021年将同比增长44％，达到914亿美元，2022年将同比增长8％。](https://cn.nikkei.com/industry/itelectric-appliance/46078-2021-09-16-04-59-53.html)
 
-“北方邦是该国第一个，引入大规模预防和治疗，使用伊维菌素的州。2020年5月至6月，由Anshul Pareek博士领导的Agra团队，对该地区的所有RRT团队成员，试验性地使用了伊维菌素。据观察，尽管他们每天都与病毒检测呈阳性的病人接触，但没有一个人患上中共病毒（Covid-19），”北方邦的国家监测官员Vikssendu Agrawal说。
 
-他补充说，根据Agra的调查结果，邦政府批准将伊维菌素作为预防措施，用于所有接触过中共病毒患者的人。后来又批准了治疗剂量的管理，以治疗感染中共病毒的患者。
 
-他声称，尽管该州的人口密度很高，但自第一波浪潮以来，及时引入伊维菌素帮助该州保持了相对较低的阳性率。“尽管我们是人口基数最大、人口密度高的州，但我们保持了相对较低的阳性率和每百万人口中所出现的病例数（计算方式）。”
+**5.日本首款基因编辑番茄上市约合人民币89元/斤**
 
-他说，除了积极的忙于追踪和监测接触者外，较低的阳性率和死亡率可能归因于该州大规模使用伊维菌素。并补充说，该药物最近已被引入《国家新冠病毒治疗和管理议定书》。Vikasendu告诉《印度快报》：“一旦第二波消退，我们将进行自己的研究，因为有越来越多的证据可以证实我们的胜利是，由于第一波主动及时使用伊维菌素。”
+[源自筑波大学的初创企业Sanatech Seed在9月15日推出了利用基因编辑技术开发的、含有大量功能性成分“GABA”的番茄。这是日本国内首次销售利用基因编辑进行品种改良的食品，将满足追求健康的消费者的需求。GABA是一种氨基酸，具有抑制血压上升、缓解压力的作用。基因编辑番茄的GABA含量是普通番茄的5～6倍。一个番茄（约15g）含有15毫克GABA，“作为一天的摄入量足够了”（Sanatech Seed公司）。Sanatech Seed正通过自身的网站“青空番茄学园”销售基因编辑番茄“Sicilian Rouge High GABA”。包括运费在内，价格为6048日元/2kg（约合人民币355.58元，约89元/500g），7506日元/3kg（约合人民币441.31元，约74元/500g）。](https://cn.nikkei.com/industry/agriculture/46079-2021-09-15-16-16-26.html)
 
-去年8月，北方邦政府发布了，服用伊维菌素（12毫克）片的通知。[对话报道](https://thedialogue.co.in/article/xUzw6XHHop9nYzFt8Crf/as-cases-spike-up-govt-prescribes-ivermectin-to-general-public-for-protection-from-corona-)：
 
-“政府通知写道：医生建议服用（12毫克）伊维菌素来遏制疫情的影响。这种药在预防中共病毒方面非常有效。因此，我们呼吁每个公民拥有这种药片。”
 
-然后通知接着解释了剂量：对于在家隔离的阳性患者（三天每天服用一片），初级和二级接触者（每七天服用一片）。”
+**6.新兴市场决策者争相抑制食品通胀飙升，因为动荡不断**
 
-北方邦和德里（Delhi）的中共病毒病例都出现了令人难以置信的下降，因为它们早期预防性地使用了伊维菌素。而喀拉拉邦（Whereas Kerala）是一个位于印度南部的小邦，对疫苗过度依赖，对伊维菌素的依赖较少，结果显示一直报告中共病毒病例大幅增加。请记住，北方邦的人口是喀拉拉邦的八倍。（如下图）
+[饥饿正在席卷全球，8月份全球食品价格较上年同期上涨33%。根据联合国粮食及农业组织的数据，植物油、谷物和肉类价格正在飙升。极端天气、创纪录的运输成本、飞涨的化肥成本、劳动力短缺和港口拥堵也导致价格上涨。新兴市场更容易受到粮食不安全的影响，因为工作穷人在粮食上所占份额远远大于发达国家。这使得价格大幅波动更容易对民选官员施加政治压力，以抑制通货膨胀。如果食品通胀持续，而不是”暂时性”，抑制通胀的措施可能会用尽，随之而来的可能会引发动荡。也许，在古巴和南非发生的事情是对未来情况的品味。](https://www.zerohedge.com/markets/emerging-markets-panic-tame-soaring-food-inflation-unrest-could-be-next)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-189.png)
 
-有关喀拉拉邦中共病毒病例的更多信息[，](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-iii-the-lesson-of-kerala/article_ccecb97e-044e-11ec-9112-2b31ae87887a.html)请访问[《沙漠评论》](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-iii-the-lesson-of-kerala/article_ccecb97e-044e-11ec-9112-2b31ae87887a.html)。
 
-虽然喀拉拉邦在4月份将伊维菌素纳入了该州的指导方针，但伊维菌素仅仅限制在B类——重症病例或相关疾病病例，使其使用量远远低于允许轻度病例的情况。这意味着，只有在晚期治疗中才可以使用伊维菌素。
+**7.未来十年中增长最快的20个就业岗位**
 
-最后，喀拉拉邦于2021年8月5日完全放弃了伊维菌素的使用。
+[美国劳工统计局（BLS）预计，从2020年至2030年，美国将新增1190万个就业岗位，总体增长率为7.7%。然而，有些工作的增长率远远超过这一水平。风力涡轮机服务技术人员的增长速度最快，太阳能光伏（太阳能电池板）安装人员占据第三位。快速增长是由对可再生能源的需求推动的。但职业相对较少，职位数量有限。增长最快的20个工作岗位中有9个在医疗保健或相关领域。家庭保健和个人护理助理，谁协助日常的医疗保健任务，如洗澡和喂养，将在未来十年占超过100万个新的就业机会。这几乎占2020年至2030年间创造的所有新增就业岗位的10%。但是这些工人的工资是名单上最低的。计算机和数学相关工作也有望获得高增长。](https://www.zerohedge.com/personal-finance/these-will-be-20-fastest-growing-jobs-next-decade)
 
-总部位于剑桥的数据分析师Juan Chamie提供了图形见解，并发表了关于中共病毒的文章，他回答了喀拉拉邦中共病毒病例失控的原因。
 
-“我目前的主要解释是缺乏早期治疗。喀拉拉邦自2021年4月起的中共病毒协议包括伊维菌素，但不是早期治疗。因此，只有一小部分人合格，也就是有高风险因素的B类患者。8月5日的新协议甚至更糟。他们（完全）移除了伊维菌素。”
 
-尽管媒体和世卫组织广泛试图通过引用DGHS（卫生服务总局）让世界相信，印度已经放弃了伊维菌素，但ICMR（印度医学研究理事会）和AIIMS（全印度医学科学研究所）并没有改变其立场，伊维菌素仍保留在印度国家议定书中。
+**8.戈润的清洁技术水处理业务在疫情期间实现强劲增长**
 
-**简评：**
+[端到端清洁技术水处理解决方案提供商戈润(Gradiant)宣布，从2021年年初至今，其已在亚太地区获得26个新项目。其中四个项目将以“设计-建造-拥有-经营-管理”(DBOOM)合同形式交付，合约的长期特许权期限长达20年。业务增长表明，在新冠疫情持续肆虐期间，对水和废水的先进处理需求出现了上升。从2021年年初至今，戈润签订的新合同涵盖工业、市政和政府部门的众多知名客户，包括跨国品牌所有者。从2021年年初至今获得的26个新项目中，18个来自于新客户，这是他们第一次选择戈润来帮助解决自身面临的复杂的水处理问题。今年，戈润技术的新应用领域包括锂矿开采、半导体制造和高度复杂的工业废水再利用。](http://www.businesswirechina.com/zh/news/48039.html)
 
-**主流媒体和WHO以及各政府的医疗机构，打击伊维菌素的行为应该让人警惕。它们让人们相信疫苗和开放，就像现在的疫苗应对政策一样疯狂，这些机构手上都沾满鲜血。疫苗是共产中国的投毒方式，它是被福奇误导后才有人“愿意”接种的。**
+By 【秘密翻译组-金融组】
+作者：和理非
 
-**另外，我们也可以从辉瑞疫苗的政策中看出中共的邪恶。**
-
-**据2021年9月14日《美广商业频道》[报道](https://www.cnbc.com/2021/09/14/pfizers-covid-vaccine-data-for-kids-under-age-5-may-come-in-late-october-ceo-says-.html)，辉瑞公司首席执行官阿尔伯特·布尔拉周二（14日）表示，辉瑞公司预计最早将于 10 月底发布，关于其中共病毒疫苗在 6 个月至 5 岁儿童中的相关效果的临床试验数据。适用于 5 至 11 岁儿童的 Covid 疫苗数据将更快发布，可能会在本月底之前准备好提交给 FDA。毫无疑问，我们知道所谓的动物试验的效果是全部动物死亡，但是FDA还是批准了这个毒疫苗。**
-
-**如今，由于欧盟的FDA所刻意隐瞒的，疫苗对女性生育能力造成无法挽回的损害后，美国NIH更是烧掉美国纳税人的百万资金，用于研究此项副作用。**
-
-**福奇和CDC仍然拒绝承认疫苗的副作用，因为他们就是科学，而“科学”没有看到任何的副作用，就算有，这些“科学”还在“娘胎”里等待分娩。不久后，未分娩的“科学”将“吃掉大量打疫苗的儿童”。**
-
-（文章仅代表作者个人观点，与**GNEWS**无关）
-
-新闻来源：[《网关专家》](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)｜作者：吉姆·霍夫特｜发布时间：2021年9月15日
-
-* * *
-
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
-
-+2
+0

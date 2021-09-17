@@ -2,35 +2,23 @@
 ---
 
 
-## 视频|环球时报：更名台湾代表处将触碰中共红线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536515/)
+## 秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536635/)
 
-制作：香草山健身部 – 书记己嗝屁！
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+#### 翻译撰稿：zzballack
 
+#### 校对发布：文柯Miles
 
-中共喉舌《环球时报》周日发表题为“美台敢改名，一定让他们付出沉重代价”的威胁社评，就此前《金融时报》有关台北代表处改名的报导进行战狼式回应。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/sadft45y65i8o9p4y45y6587oi78k78i.png)图片来源：NBA.com
 
-环球时报声称，以美台之间目前的动向，现在就需要做好全部准备，随时准备出击台海。此次美台如果采取上述更名行动，大陆应对台湾实施包括经济封锁在内的严厉制裁惩罚措施，并要派战机进入台湾领空，如果台军胆敢开火还击，中方应义无反顾给予“台独”势力决定性和毁灭性的打击。
+《零对冲》（Zerohedge）9月14日报道，由于NBA球员工会（NBPA）拒绝在球员是否强制接种中共病毒疫苗的问题上让步，他们认为任何要求接种疫苗的提议都是不可接受的，所以NBA球员不会被要求强制接种疫苗。NBPA和NBA将继续就2021-22赛季的中共病毒相关协议和程序进行谈判。
 
-作为中共喉舌的《环球时报》这一表态表明，对于“武统收复台湾”中共蓄谋已久，且将不择手段！台湾及盟国间的任何互动都有可能成为中共“碰瓷”的借口，用来发动入侵台海的战争。
+一位联盟发言人最近表示大约85%的球员都接种了疫苗。ESPN 9月初获得的一份初步备忘录透露，联盟为未接种疫苗的球员制定了一套严格的规定。这些规定包括将其储物柜放置在远离已接种疫苗队友的地方，而且必须在不同的区域吃饭、坐飞机和乘坐大巴车。这些协议不是最终的，仍需与球员工会进行谈判。
 
-**文字版原文：**[《环球时报》: 更名台湾代表处将触碰中共红线!](https://gnews.org/zh-hans/1530356/)
+纽约尼克斯，布鲁克林篮网和金州勇士这三支球队包括球员在内的所有成员，需要遵从其所在城市纽约和旧金山的政府规定接种疫苗，如果未接种将无法进入他们的主场球馆或者球队的训练馆，除非有批准的医学或者宗教豁免。
 
-*发稿：童谣*
+联盟上月末还曾发通知说，任何在比赛期间靠近球员或官员15英尺范围内的人，都必须在10月1日前完成疫苗接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+新闻来源：[**NBA Won’t Impose Vaccine Requirement On Players After Union ‘Refused To Budge’**](https://www.zerohedge.com/covid-19/nba-wont-impose-vaccine-requirement-players-after-union-refused-budge)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

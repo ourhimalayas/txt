@@ -2,46 +2,40 @@
 ---
 
 
-## 福奇批：Nicki Minaj的疫苗说法是“错误”信息
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1537079/)
+## 从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1537311/)
 
-- 编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获_副本-11.png)
+历史是有轮回的，在1959年10月至1960年4月在信阳发生过饿死上百万人的信阳事件，对于这一起事件笔者在1987年中共的内参上看到过详细说明，据[维基百科——信阳事件：](https://zh.wikipedia.org/zh-cn/%E4%BF%A1%E9%98%B3%E4%BA%8B%E4%BB%B6)
 
+［**信阳事件**是指从[1959年10月到1960年4月](https://zh.wikipedia.org/wiki/%E4%B8%89%E5%B9%B4%E5%9B%B0%E9%9A%BE%E6%97%B6%E6%9C%9F)发生在当时的[河南省](https://zh.wikipedia.org/wiki/%E6%B2%B3%E5%8D%97%E7%9C%81)[信阳专区](https://zh.wikipedia.org/wiki/%E4%BF%A1%E9%98%B3%E4%B8%93%E5%8C%BA)（包括今天的[信阳市](https://zh.wikipedia.org/wiki/%E4%BF%A1%E9%98%B3%E5%B8%82)、[驻马店市](https://zh.wikipedia.org/wiki/%E9%A9%BB%E9%A9%AC%E5%BA%97%E5%B8%82)）出现大面积[饥荒](https://zh.wikipedia.org/wiki/%E9%A5%91%E8%8D%92)，大批农民饿死的事件。
 
-安东尼·福奇博士驳斥了尼基·米娜（Nicki Minaj）关于中共病毒（COVID-19）疫苗的争议性评论。他是美国在传染病方面最有话语权的医学专家呼吁，可以指责这位嘻哈明星公开言论中，所发现的关于疫苗的“错误信息”。
+1950年代[大跃进运动](https://zh.wikipedia.org/wiki/%E5%A4%A7%E8%B7%83%E8%BF%9B)开展后，信阳地区[浮夸](https://zh.wikipedia.org/wiki/%E6%B5%AE%E5%A4%B8%E9%A3%8E)盛行，伴随[人民公社](https://zh.wikipedia.org/wiki/%E4%BA%BA%E6%B0%91%E5%85%AC%E7%A4%BE)运动，频现的“[卫星运动](https://zh.wikipedia.org/wiki/%E6%94%BE%E5%8D%AB%E6%98%9F)”掩盖了浮夸风下[粮食](https://zh.wikipedia.org/wiki/%E7%B2%AE%E9%A3%9F)产量严重的虚报现象。[庐山会议](https://zh.wikipedia.org/wiki/%E5%BA%90%E5%B1%B1%E4%BC%9A%E8%AE%AE_%281959%E5%B9%B4%29)后在河南省[反右倾](https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%8F%B3%E8%BF%90%E5%8A%A8)风潮下，各级官员因担心被打成右倾，强行按虚报产量制定的粮食征购标准向农民征粮。即使如此，粮食征购目标仍难以完成，整个事件最终成为大饥荒时期典型的地方饥荒事例。据河南信阳地方1961年呈报中共中央报告显示，该事件至少造成100万人[非正常死亡](https://zh.wikipedia.org/wiki/%E9%9D%9E%E6%AD%A3%E5%B8%B8%E6%AD%BB%E4%BA%A1)[\[1\]](https://zh.wikipedia.org/zh-cn/%E4%BF%A1%E9%98%B3%E4%BA%8B%E4%BB%B6#cite_note-%E5%BE%9E%E5%A4%A7%E8%BA%8D%E9%80%B2%E5%88%B0%E5%A4%A7%E9%A5%91%E8%8D%92-1)。］
 
-周一，米娜原名 Onika Tanya Maraj——在宣布她不会参加，有疫苗授权的[2021 年Met Gala](https://www.nydailynews.com/snyde/ny-nicki-minaj-met-gala-coronavirus-vaccine-mandate-20210913-xmcpfelc2zgr3nhzf5cjwsbtvy-story.html)活动，并在同一条推文中透露她没有接种疫苗之后，遭到抨击。
+信阳事件能上共产党的内参文件，可以从另一方面佐证信阳因饥饿致死的人员数量创下了记录，在62年后，在中国人又一次面临粮食危机的时候，又是河南，这一次的首发地选择在了新密市刘寨镇李岗村——
 
-在她的社交媒体上所分享的信息中，这位特立尼达出生的，引人注目的作词家还声称，她表弟的朋友接种了疫苗并遭受生殖器生殖副作用，此后她的表弟便拒绝接种疫苗，疫苗的副作用指的是“[睾丸肿胀](https://www.nydailynews.com/snyde/ny-nicki-minaj-swollen-testicles-tweet-covid-vaccine-20210914-6m3b6ipnzrfxjlyeknrsvs6ccq-story.html)”和“阳痿”。
+据[**郑州大民生**](https://weibo.com/u/2034225772) [2021年9月16日 17:00](https://weibo.com/2034225772/KyrLAcYwX?from=page_1002062034225772_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-此后，一群人——包括受人尊敬的医学专家和政治评论家——纷纷谴责米娜，污蔑她试图向她的粉丝群（推特关注者2260万）散布毫无根据的说法和神话。
+【丰收节里感党恩  节约粮食记在心】此次双节之前开展的“庆祝丰收 弘扬文化 振兴乡村 文明实践”活动，目的是开展节粮减损宣传、普及科学储粮知识、杜绝食品浪费、弘扬文明之风、养成文明健康绿色生活方式。活动结束后，大家一同走进葡萄园，采摘丰收的喜悦。保障粮食安全是每一个粮食人的职责。在李岗村，壹粒粮志愿服务队不仅带来了科学储粮的方法，也给大家带来了党史知识、文明新风的猜谜活动，让大家高高兴兴的庆祝丰收节。 [L郑州大民生的微博视频](http://t.cn/A6M7TkKS)
 
-自从去年美国**3**月发生疫情以来，一直[站在](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)抗击[疫情最前线的](https://www.nydailynews.com/coronavirus/ny-coronavirus-dr-fauci-bobblehead-20200404-nugcjpzthrckplzz4x7v4as3de-story.html)政客**——**福奇坚决驳斥了**“****Stupid Ho****”****（**侮辱性言语）说唱歌手的说法。
+在1959年10月的河南信阳，种粮食的不是共产党、产粮食的不是共产党、收粮食的不是共产党，但是最终抢夺和控制粮食的是中国共产党，最终饿死的是那些终生与土地为伴、视粮食为生命的农民，而且饿死的是数以百万计的农民。
 
-“没有证据表明疫苗是有这些副作用的，也没有任何机械性的理由去想象它会发生，”他在接受 CNN 的“ [The Lead](https://twitter.com/TheLeadCNN/status/1437907645910949889) ”采访时，坚定地宣称。
+在2021年9月的河南省郑州市新密刘寨镇李家岗村，种粮食的不是共产党、产粮食的不是共产党、收粮食的不是共产党，但是出来庆祝丰收的是共产党的干部，共产党的干部们要宣传的是“丰收节里感党恩，节约粮食记在心”。
 
-这位拥有几十年经验的流行病学家还强调了，在大型社交媒体平台上传播误导信息的危险，称米娜可以通过分享引发恐慌的谣言，从而地说服人们不要接种疫苗，这是错误的。
+在1959年10月的河南信阳饿死百万人肇始于信阳干部的浮夸，在那个全中国都在吹嘘粮食如何高产的时代里，信阳走在了全国的前列，在2021年9月全国各地在吹嘘粮食如何丰收的时候，河南省郑州市新密刘寨镇李家岗村不甘人后。
 
-“有很多错误的信息，主要是在社交媒体上。我们知道对抗错误和虚假信息的唯一方法是提供大量正确的信息，”这位医生说。“这些说法可能是她的随口之言。我没有责怪她什么。但是她应该三思而后行，不要传播那些除了一次性的轶事之外，而实际上没有[科学依据](https://chinese.cdc.gov/coronavirus/2019-ncov/vaccines/planning-for-pregnancy.html)的信息。这不是科学的意义所在。”
+在1959年10月的河南信阳地区，因为浮夸最终饿死了数以百万计的农民，在2021年9月不甘为人后的河南省郑州市以及其他争先恐后为共产党涂脂抹粉的地区来说，这一次又将造成什么数量级的人员死亡呢？丰收了到底要感谁的恩呢？这个问题不需要回答，但是如果我们辜负了脚下的土地会怎样呢？这个问题早就有了答案——人误地一季，地误人一年。
 
-许多人尽管宣传了自以为是的疫苗阴谋论，这位** 38 **岁的[新妈妈](https://www.nydailynews.com/snyde/ny-nicki-minaj-kenneth-petty-welcome-first-child-20201001-rig4h64zzjebnbghxiiurm4rvu-story.html)并没有明确阻止她的粉丝接种疫苗，并表示她最终可能会接种疫苗，因为她必须继续巡回演出。
+可是到今天已经不是误地一季那么简单了。
 
-美国疾病控制与预防中心在（**CDC**）其最新的疫苗接种[信息页面](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/recommendations/pregnancy.html)上表示，**“**目前没有证据表明任何疫苗，包括中共病毒（**COVID-19**）疫苗，都会导致女性或男性的生育问题。**”**
+撰稿：喜马拉雅的肉夹馍
 
-简评： 福奇在电视采访中把自己与科学化作等号，现在又提到科学两个词，好似一个坑连掉两次，是词穷了还是坏。值得读者思考。据《**Pagesix**》**2021**年**9**月**15**日[报道](https://pagesix.com/2021/09/15/fauci-slams-nicki-minaj-for-false-covid-19-vaccine-tweet/?_ga=2.10881588.1004738065.1631728581-1262262365.1626125565)，嘻哈女星米娜[认为](https://twitter.com/NICKIMINAJ/status/1437526035063443456?s=20)：**“**我有与该死的疫苗完全相同的症状。**”**她暗示自己曾感染过中共病毒，而且所受到的伤害同这该死的疫苗对人体的伤害是一样。当然，值得重视的是，因为疫苗公司隐瞒了临床试验时，对生育能力的影响。导致了**NIH**不得不拨款上百万美金研究这些疫苗，带给人类的生育问题，哪有比这更真实的打脸。
+审核：喜马拉雅的馍夹肉
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-2-16.png)
+校对：Maarago
 
-（文章仅代表作者个人观点，与**GNEWS**无关）
+（文章内容仅代表作者个人观点）
 
-**新闻来源：**[《每日新闻》](https://www.nydailynews.com/snyde/ny-coronavirus-dr-fauci-nicki-minaj-covid19-vaccine-misinformation-impotence-20210915-m3fs2amqsrckrcgnnomormqt6y-story.html)｜作者：卡鲁·F.丹尼尔斯｜发布时间：2021年9月15日
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
-
-+2
+0

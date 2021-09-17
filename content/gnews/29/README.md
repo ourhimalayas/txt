@@ -2,31 +2,32 @@
 ---
 
 
-## 秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536897/)
+## 佩洛西：中共国压制日甚，对技术数据的控制对西方构成威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1537597/)
 
-撰稿：nstar
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16318464701-e1631846688947.png)
+编辑摘要：
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-010723.jpg)**图片来源: F. Hoffmann-La Roche Ltd**
-制药公司罗氏(Roche)现在要求其办公室工作人员拥有病毒疫苗接种证书，更严格的措施将从9月20日开始适用。
+据美国之音报道，美国众议院议长佩洛西9月16日在访问英国期间表示，中共国对言论自由和人权的限制越来越严重，对技术数据的控制对西方国家构成了威胁。她还对美国、英国和澳大利亚星新签署的三边安全伙伴关系表示赞赏。
 
-罗氏在巴塞尔雇佣的任何人不久将只能接种中共病毒疫苗、恢复或测试以后进入办公室。正如”BaZ”所写，制药公司希望引入疫苗接种证书，该措施将于2021年9月20日星期一生效。但是，它仅适用于不可以在家完成工作的员工。因此，只要您可以继续在家工作，疫苗接种证书的义务要求也可以被规避。
+在英国出席七国集团议会领导人会议时，佩洛西列举了中共国在南中国海的军事侵略、对维吾尔穆斯林少数民族的种族灭绝、对西藏的限制以及对香港和中共国其他地区民主的压制。佩洛西还称赞了英国在5G网络中逐步淘汰华为设备的做法。
 
-制药公司的一位女发言人说，那些在实验室、生产或基础设施中工作的人不需要承担这项义务。
+中共对整个世界都是一个巨大的威胁，中共不灭，人类的灾难不止。
 
-自本周起，先正达(Syngenta \*2)和隆扎(Lonza \*3)在办公室工作的员工都要接受疫苗接种证书。另一方面，诺华(Novartis \*4)公司还没有要求，甚至连办公室员工也没有要求疫苗接种证书。 诺华的一位女发言人告诉记者，公司正在不断审查事态发展和当局的命令中。
+新闻参考链接：[https://www.voachinese.com/amp/Nancy-pelosi-g7-china-tech-data-20210916/6231585.html#click=https://t.co/Hndcc4kspN](https://www.voachinese.com/amp/Nancy-pelosi-g7-china-tech-data-20210916/6231585.html#click=https://t.co/Hndcc4kspN)
 
-问题是，这在法律上是否可以允许, 尚待核实.
+编辑：胖丁
+PR：
 
-*\*1 – Roche罗氏，总部位于瑞士巴塞尔的跨国医药研发生产商。*
+* * *
 
-*\*2 – Syngenta先正达 集团是国际领先的农业技术提供商，尤其是种子和作物保护产品，总部设在上海，并在巴塞尔、芝加哥和特拉维夫设有分支机构。 4先正达成立于2000年，2015年被中国化工集团公司收购。 2020年，先正达与姊妹公司阿达玛和中化集团下属的农业活动合并。*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*\*3 – Lonza隆扎一家总部位于巴塞尔的瑞士化学和制药公司.*
 
-*\*4 – Novartis诺华制药集团，是一间总部位于瑞士巴塞尔的跨国制药及生物技术公司。它的核心业务为各种专利药、消费者保健、非专利药、眼睛护理和动物保健等领域。*
+编辑：【英国伦敦喜庄园编辑部】
 
-**[信息来源](https://telebasel.ch/2021/09/15/roche-fuehrt-zertifikatspflicht-fuer-mitarbeitende-ein/?channel=105100#comments-exp)**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

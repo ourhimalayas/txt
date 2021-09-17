@@ -2,23 +2,57 @@
 ---
 
 
-## 秘翻在线：球员工会拒绝让步 NBA球员不会被要求强制接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536635/)
+## 中共监管风暴冲击澳门，博彩巨头股票暴跌
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1537034/)
 
-#### 翻译撰稿：zzballack
+作者：纽约香草山农场 – 四季
 
-#### 校对发布：文柯Miles
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/sadft45y65i8o9p4y45y6587oi78k78i.png)图片来源：NBA.com
 
-《零对冲》（Zerohedge）9月14日报道，由于NBA球员工会（NBPA）拒绝在球员是否强制接种中共病毒疫苗的问题上让步，他们认为任何要求接种疫苗的提议都是不可接受的，所以NBA球员不会被要求强制接种疫苗。NBPA和NBA将继续就2021-22赛季的中共病毒相关协议和程序进行谈判。
 
-一位联盟发言人最近表示大约85%的球员都接种了疫苗。ESPN 9月初获得的一份初步备忘录透露，联盟为未接种疫苗的球员制定了一套严格的规定。这些规定包括将其储物柜放置在远离已接种疫苗队友的地方，而且必须在不同的区域吃饭、坐飞机和乘坐大巴车。这些协议不是最终的，仍需与球员工会进行谈判。
 
-纽约尼克斯，布鲁克林篮网和金州勇士这三支球队包括球员在内的所有成员，需要遵从其所在城市纽约和旧金山的政府规定接种疫苗，如果未接种将无法进入他们的主场球馆或者球队的训练馆，除非有批准的医学或者宗教豁免。
 
-联盟上月末还曾发通知说，任何在比赛期间靠近球员或官员15英尺范围内的人，都必须在10月1日前完成疫苗接种。
+据多家媒体报道，澳门政府从周三开始展开为期45天的“博彩法”，即第16/2001号法律的公开咨询，以便对明年6家赌场牌照到期后如何重新发放的问题征求公众的意见。这引发澳门在香港上市的6家博彩公如永利澳门、金沙中国、美高梅中国和银河娱乐的股票重挫，最高跌幅达到34%。
 
-新闻来源：[**NBA Won’t Impose Vaccine Requirement On Players After Union ‘Refused To Budge’**](https://www.zerohedge.com/covid-19/nba-wont-impose-vaccine-requirement-players-after-union-refused-budge)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/985-1-MGM.jpg)*澳门MGM美高梅赌场（AFP via Getty Images）*
+
+面对中共针对澳门这个准独立赌博中心，进行的新的赌博监督打压，一些分析师，如摩根大通迅速下调了所有澳门赌场的评级，因为它们都必须重新竞标其牌照。
+
+在周二的发布会上，澳门经济财政司司长雷鸣列出了九个需要监督的领域，如牌照数量、更好的监管和员工福利，同时让政府代表监督赌场的日常运营。
+
+中共的大湾区计划就是将香港和澳门的所有优势窃为己有。而今年以来，北京对中共国许多行业的民营企业进行整顿治理，其中一个重要目标就是对所称的“无序”资本运作进行清理和整顿。这些行动不仅对相关行业造成了巨大的冲击，而且给这些行业的大型企业带来了重大的经济损失，数十万亿元的市值瞬间蒸发。
+
+（本文仅代表作者观点）
+
+**原文阅读：**
+
+1. [Macau Casino Stocks Tumble As Beijing Launches Crackdown On World’s Biggest Gambling Hub | ZeroHedge](https://www.zerohedge.com/markets/macau-casino-stocks-tumble-beijing-launches-crackdown-worlds-biggest-gambling-hub)
+2. [中共监管风暴冲击澳门 博彩巨头股票集体跳水 (voachinese.com)](https://www.voachinese.com/a/Macau-kicks-off-public-gaming-consultation-ahead-of-casino-rebidding-20210915/6229518.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
+
+
 
 0

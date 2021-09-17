@@ -2,45 +2,130 @@
 ---
 
 
-## 随物价攀升，美国人对通货膨胀的担忧在8月份达到新高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1536967/)
+## 王岐山给习近平提示的未来50年规划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537440/)
 
-简评：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/aaigd-gn765-4.jpg)
+[https://gtv.org/video/id=61436d6a784c5a2583574f4a](https://gtv.org/video/id=61436d6a784c5a2583574f4a)
 
-***爆料革命战友都知道，郭文贵先生已经明确指出美国的经济和世界的经济都将出现大问题。这墙内同胞深有体会，伴随着国内P2P、恒大暴雷，几百万受害者一哭二闹三上吊，还打出相信党、相信政府的标语…，但是可以肯定的是游行是没用的、上诉是没用的、跳楼更是没用的。你用跳楼来达到让恒大还钱的目的，殊不知这样是贬低了自己的生命，但即使你如此作践自己，当今社会最在乎你的或许也就只有你自己了。你看中的是利息，别人看中的是你的本金。唯有爆料革命保命、保财、保未来。***
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2194.png)图片来源：福克斯新闻网
-据《福克斯新闻》记者Megan Henney，2021年9月13日报道：
+**字幕内容:**
 
-纽约联邦储备银行(Federal Reserve Bank of New York)周一公布的一项调查显示，随着消费品价格继续飙升，美国人对通胀的担忧在8月份再创新高。
+**郭文贵**
+**Miles Guo**
 
-据纽约联邦储备银行发布的2021年8月《消费者预期调查》，美国消费者对未来一年的通胀预期中值升至5.2%，连续第 10 个月上升。对未来三年的通胀预期中值涨至4%，达到2013年8月以来的历史新高。
+王岐山给习认认真真地汇报了
+Wang Qishan le informó seriamente a Xi
 
-调查称：“通胀不确定性 —— 或对未来通胀结果表达的不确定性 —— 在短期和中期均上升至新的系列高点。这两项指标都远高于 COVID-19 大流行之前观察到的水平。”
+一个他对未来50年世界局势的变化
+Un cambio en cuanto a la situación mundial que se verá en los próximos 50 años
 
-消费者还表示，他们预计未来一年的食品、汽油、医疗和租金等价格将上涨，而大学学费的预期将小幅降至7%。
+世界上变化的在乎什么
+En qué importa el cambio mundial
 
-与此同时，美国人预计房价增长将小幅下跌，8 月份的一年期增长预期小幅下降至 5.9%，连续第三个月下降。尽管有所下降，但仍远高于一年前3.7% 的年平均增长水平。
+地缘政治
+La Geopolítica
 
-该调查是在劳工部上周发布的一份新报告的基础上进行的，该报告显示，美国批发物价指数升至2010年8月以来的最高水平。 生产价格指数(PPI)上月攀升0.7%，至8.3%。
+第一个(就是)地缘政治
+El primero es la geopolítica
 
-剔除波动较大的食品和能源价格后，7月份所谓的核心通胀率同比跃升5.4%。不过，7月份消费者价格指数环比上涨0.3%，远低于6月份0.9%的涨幅，这表明通胀可能趋于平稳。
+到时不管川普赢不赢
+En ese momento no importará si Trump ganará o no
 
-随着经济从去年短暂但极其严重的衰退中复苏，通胀已经加速。
+川普能不能上
+Si Trump quedará electo
 
-美联储主席杰罗姆·鲍威尔(Jerome Powell)在很大程度上将消费品价格上涨归因于疫情导致的供应链中断、工人短缺推高了工资水平，以及被压抑的消费者（大量刺激性消费）。尽管如此，他仍然认为通胀的上升可能是“暂时的”，并警告美联储，其采取过度措施以降低基准联邦基金利率是十分危险的。
+还是说谁上(总统)
+O hablar de quién sería el presidente
 
-纽约联储的调查基于约 1,300 个家庭的受访者。
+中美之间必将有一场剧烈的较量
+Entre China y EE. UU seguramente habrá una fuerte competencia
 
-美国劳工部(Labor Department)定于周二公布8月份消费者价格指数(CPI)，预计较上月上涨0.4%。
+较量在哪儿
+La competencia en dónde
 
-原文连接：[https://www.foxbusiness.com/economy/american-inflation-fears-august-new-york-federal-reserve](https://www.foxbusiness.com/economy/american-inflation-fears-august-new-york-federal-reserve)
+已经从过去的赛黑, 东欧
+Ya desde el pasado de Serbia y Montenegro, Europa del Este
 
-（本文评论仅代表个人观点）
+欧洲东扩
+Expansión hacia el Este de Europa
 
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–钢蛋儿
-编辑：洛杉矶盘古农场–明子
+转为现在的中东之争
+Hasta pasar al conflicto actual en Medio Oriente
+必须拿下中东
+Debe derribar a Medio Oriente
+
+第二, 必须拿下非洲
+El segundo, derribar a África
+
+为什么? 我们需要市场
+¿Por qué? Porque necesitamos el mercado
+
+必须压制日本, 韩国
+Debemos reprimir a Japón y Corea del Sur
+
+香港必须100%控制
+Hong Kong debe ser 100% controlado
+
+然后开始说
+Después empieza a decir
+
+美国各个领域怎么拿下
+Cómo tomar a cada ámbito de EE. UU
+
+然后加拿大
+Luego Canadá
+
+然后在第2个5年要拿下巴西南美粮仓
+Después en los segundos 5 años, tomaremos el silo de Brasil Sudamericano
+
+现在你去听
+Ahora escucha
+
+如果当年我跟你说这话
+Si en aquel tiempo te digo esto
+
+你们听我直播的话
+Ustedes escucharan mi transmisión en vivo
+
+你们都睡着了估计
+Capaz todos ustedes se quedarían dormidos
+但今天你听了你就害怕了吧
+Pero hoy lo escuchas y te da miedo, ¿cierto?
+
+意味着什么?
+¿Qué significa esto?
+
+这个世界真正的, 所谓的你看得着的
+Quiere decir que realmente este mundo, lo que aparentemente puedes ver
+
+邪恶的力量
+La fuerza maligna
+
+让王岐山
+Hace que Wang Qishan
+
+100%按照他的路子来走
+100% siga por su camino
+
+王岐山绝不打嗝儿的
+Wang Qishan no hipa en lo absoluto
+
+执行了这个组织上的命令
+Al ejecutar el orden de esta organización
+
+你告诉我以上有任何一件事情对中国人有利吗
+Dime tú ¿hay algun asunto de lo que mencioné anteriormente sea beneficiosa para los chinos?
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1437197185385336836?s=24](https://twitter.com/se1y7cblljselva/status/1437197185385336836?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
