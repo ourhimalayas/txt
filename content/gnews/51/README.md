@@ -2,38 +2,49 @@
 ---
 
 
-## 巴西政府官方表态 希望停止为青少年接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538594/)
+## 有声|中共正在扩大在非洲的影响力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1538745/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-184.png)
-栏目记者：葛朗台太太
-
-责任编辑：晓仙女
-
-9月16日，国际多媒体机构“汤森路透基金会”报道，因一起新冠疫苗接种致死案的调查，以及约三百五十万青少年的不良反应，巴西联邦政府官方正式表态，希望停止为大多数青少年接种该疫苗。在新闻发布会上，卫生部长批评各州和城市抢先为12至17岁的健康人群接种疫苗，使这些青少年面临感染新冠的严重风险中；但仍有几个州政府和医疗官员，以“没有证据改变接种计划”为由，执意要将疫苗接种进行下去。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-201.png)
-由于接种新冠病毒疫苗，导致高概率不良反应及死亡病例。多个国家政府就此引发争议，医疗界和民间不断有人站出来讲述自己的经历，揭露毒针实质。GTV新闻坚持传播病毒、疫苗真相：根本没有有效的新冠疫苗，为了生命安全，千万不要接种！
-
-补充链接：
-
-[https://news.trust.org/item/20210916223655-e6fv3/](https://news.trust.org/item/20210916223655-e6fv3/)
-
-参考链接：
-
-[https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html](https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html)
+配音：纽约香草山美食部 – 玫瑰园
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-终审:  暗黑
-校正/发稿：浪迹天涯
+
+
+
+
+
+
+据美国之音9月14日报道，中共一直试图在国际版图上侵蚀、扩张，而相较于其他国家，中共在非洲的影响力实际不容小觑。
+
+事实上，中共近期与其他西方国家处于一种相对紧张的态势，为此，中共企图通过在亚非拉地区投资并建立基础设施来与美国争夺在整个非洲，乃至世界的影响力。
+
+去年年底，传统基金会发布了一份由莫塞维撰写的报告，当中详细列举了中方在非洲40个国家构筑的186个重要的政府大楼及设施，其中包括政府内部通讯网络等。虽然美国每年在非洲的投资也达250亿到300亿美元，然而美国的投资项目则多注重于公共卫生、人道救援和拨款等资助。
+
+而今，中共通过其惯用的蓝金黄及大撒币政策，正在逐步对非洲政府进行渗透和控制。而中共这一系列举动的目的在于，非洲有54个国家，基于联合国“一票一国”的机制，非洲在其中可以起到重要的导向作用。倘若中共能掌控非洲，中共就能以此来争夺联合国的话语权，从而挑战西方的民主文明，蚕食美国的地位及影响力，最终达到其控制世界的邪恶意图。
+
+
+
+[文字版原文：中共正在扩大在非洲的影响力](https://gnews.org/zh-hans/1535214/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-185.png)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 0

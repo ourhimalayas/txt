@@ -2,42 +2,31 @@
 ---
 
 
-## 佩洛西：中共国对各方面的打压越来越严重，数据控制是威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1538602/)
+## IMF总裁被点名曾为中共造假 提高排名
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1538694/)
 
-2021年9月17日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091705.jpg)图片：来自路透社/Jonathan Ernst
-**摘要翻译：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-路透社华盛顿9月16日消息，美国众议院议长南希·佩洛西周四在访问英国期间表示，中共国对言论自由和人权的压制越来越严重，它对科技大数据的控制正在对西方构成威胁。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-4.png)
+文章仅代表作者本人观点，与Gnews无关
 
-长期以来一直批评中共国的佩洛西在剑桥大学联盟的一次主持讨论中说：“中共国正在收紧，在民主改革、言论自由或多元化方面，或者仅仅是在发表个人意见方面越来越糟”。
+视频参看：2021.09.17早GTV新闻访谈
 
-在英国参加七国集团议会领导人会议时，佩洛西提到了中共国在南海的军事侵略、对维吾尔族穆斯林少数民族的种族灭绝、对西藏的限制，以及在香港和中共国其它地区对民主的压制。
+[https://www.youtube.com/watch?v=cg5DspBLbF0](https://www.youtube.com/watch?v=cg5DspBLbF0)
 
-作为美国总统第三继承顺位的佩洛西还赞扬了英国方面将中共国科技巨头华为的设备从其5G网络中逐步淘汰。
+编辑/校对/发稿：香草山翻译部 – Lakers
 
-佩洛西在被问及华为时说：“这是一个很大的威胁”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
 
-“我们必须开发自己的5G，并在众多技术上做到领先。”这样我们就不会说：“嗯，他们是最好的，也是最便宜的，所以我们都必须在数据控制方面被中国人奴役。”
+**更多资讯，更多关注**
 
-**简评：**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-虽然佩洛西在英国访问期间，提到了中共国在人权、言论自由和新疆种族灭绝等问题，也提到了中共国在数据控制方面的潜在威胁，但是这些都停留在口头上，并不能对中共有任何实质性的影响。政客们更关心的是他们的权力，在必要的时候批评一下中共，作秀站队。 原文链接
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-***编辑：【英国伦敦喜庄园编辑部】***
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
 
-*翻译：文明明|校对：clau*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

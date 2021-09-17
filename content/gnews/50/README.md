@@ -2,31 +2,36 @@
 ---
 
 
-## 欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538581/)
+## 欧盟出台最新印太战略
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538763/)
 
-栏目记者/责任编辑：七哩香
+栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-203.png)
+9月16日，欧盟委员会和欧盟外交高级代表推出了一份关于欧盟在印度-太平洋地区合作战略的联合公报。根据欧盟的官方文件，新战略将具体实施如下内容：
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-25.jpeg)
 
+1.完成、恢复或开始欧盟与印度等印太相关国家的贸易谈判、投资谈判。
 
+2. 与马来西亚等国缔结伙伴关系和合作协议或开始相关谈判。与其他有意愿的国家缔结绿色联盟和伙伴关系，应对气候变化和环境退化。
 
-法广消息，欧盟将推出 “全球通道 “计划，以对抗中共的 “一带一路”。
+3. 加强欧盟对印太地区的海洋治理，增加对相关国家渔业管理和控制系统的支持；加强海军部署，帮助保护该地区的海上交通线和航行自由。
 
-9月15日，欧盟委员会主席乌尔苏拉·冯德莱恩在欧盟年度国情咨文中说：”我们希望将‘全球通道’变成一个值得信赖的品牌，我们将与世界各国建立全球通道式伙伴关系。我们希望对基础设施进行高质量投资，将世界各地的货物、人员和服务连接起来。”
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0917AM（5）.002.jpeg)
-一直以来，中共 的”一带一路”计划都受到西方批评, 一带一路同样号称是向沿途各国投资或者借贷 ,帮助其改善基础设施和运输网络，促进区域贸易,实则是中共推行共产专制/腐败意识形态的殖民入侵，并造成贷款接受国的债务依赖，继而向中共出卖国家利益。冯德莱恩毫不避讳欧盟”全球通道” 计划就是针对中共的意图，不同的是, “我们希望建立的是相互联系而不是依赖关系。”
+4. 在 “欧洲地平线 “计划下加强欧盟与印太地区的研究和创新方面的合作。
 
-参考链接：
+其他还包括扩大与印太伙伴的数字关系网络、加快实施与日本和印度的互联互通伙伴关系、加强对该地区最不发达国家的医疗保健系统和大流行病准备的支持等。
 
-1. [欧盟启动”全球通道”对抗”一带一路” 英国国会禁止中国大使进入](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-09152021121350.html)
-2. [抗衡中共“一带一路” 欧盟推出一新计划](https://www.66.ca/portal.php?mod=view&amp;aid=398969)
+该文件出台在《新欧中战略报告》一天之后，在美英澳宣布重塑三国与印太地区关系新安全合作机制几小时之后。尽管欧盟称此举并非对抗中共，但西方主要国家同时宣示与中共周边国家加强关系，围剿中共的意图显而易见。
 
+（本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+参考链接：[美英澳签署新安全联盟之际，欧盟出台新的印太战略](https://www.voachinese.com/a/eu-indo-pacific-strategy-china-20210916/6231772.html)
+[欧盟推出印太合作战略纲要](https://www.rfi.fr/cn/欧洲/20210916-欧盟推出印太合作战略纲要)
 
-终审：文龙
-校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,5 +39,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
 0
