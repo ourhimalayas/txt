@@ -2,37 +2,38 @@
 ---
 
 
-## 共军大谈“电子迷魂阵”威力剑指台湾？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1538560/)
+## 巴西政府官方表态 希望停止为青少年接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538594/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh5.googleusercontent.com/W5dgq1BzzauAGb_MvAlxuQ4jlphiWrJJOdpUMV--eutA1RqTyKKxDfw355nccPrdCza8oQQesNYgtlTz7dyFuZOBzj-o-EjGLZDoMCRROehqpF_yGjzWSgbNv_wWDsx0hw=s0)
-[*图片来源*](https://inews.gtimg.com/newsapp_bt/0/13976969948/1000.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-184.png)
+栏目记者：葛朗台太太
 
-据[新华社9月17日](http://www.news.cn/mil/2021-09/17/c_1211372723.htm)援引中共解放军报《[布设电磁“迷魂阵”：电子干扰机的本领到底有多大？](http://www.taihainet.com/news/military/zgjq/2021-09-17/2553985.html)》的评论文章透漏：现代战争中早已从制空权、制海权到“制信息权”汇集，并已经成为赢得战争胜利的关键。
+责任编辑：晓仙女
 
-- ***延展阅读：***[***补一刀：台军演练生物战，想幹啥***](https://www.chinahot.org/military/119829/%E8%A3%9C%E5%A3%B9%E5%88%80%EF%BC%9A%E5%8F%B0%E8%BB%8D%E6%BC%94%E7%B7%B4%E7%94%9F%E7%89%A9%E6%88%B0%EF%BC%8C%E6%83%B3%E5%B9%B9%E5%95%A5%EF%BC%9F.html)***？***
+9月16日，国际多媒体机构“汤森路透基金会”报道，因一起新冠疫苗接种致死案的调查，以及约三百五十万青少年的不良反应，巴西联邦政府官方正式表态，希望停止为大多数青少年接种该疫苗。在新闻发布会上，卫生部长批评各州和城市抢先为12至17岁的健康人群接种疫苗，使这些青少年面临感染新冠的严重风险中；但仍有几个州政府和医疗官员，以“没有证据改变接种计划”为由，执意要将疫苗接种进行下去。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-201.png)
+由于接种新冠病毒疫苗，导致高概率不良反应及死亡病例。多个国家政府就此引发争议，医疗界和民间不断有人站出来讲述自己的经历，揭露毒针实质。GTV新闻坚持传播病毒、疫苗真相：根本没有有效的新冠疫苗，为了生命安全，千万不要接种！
+
+补充链接：
+
+[https://news.trust.org/item/20210916223655-e6fv3/](https://news.trust.org/item/20210916223655-e6fv3/)
+
+参考链接：
+
+[https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html](https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html)
 
 
-共军究竟如何实施“电子迷魂阵”？该文章认为：电子干扰机的“角色”较多，它可以“蒙上敌方的[感知之眼](http://www.xinhuanet.com/science/2020-12/10/c_139577355.htm)”的同时还可以给对手制造一些假象，阻断对方的通信联络渠道后，还可以直接上阵搏击；或顺着辐射源顺藤摸瓜、精准打击，以其人之道还治其人之身。布迷魂阵，打迷踪拳，在实战中充当“效能倍增器”。还可以实施远距支援干扰，一般为电子干扰机编队，在距敌防空武器100～200千米甚至更远的安全阵位上实施多方位、大纵深、宽正面、大功率电子干扰。电子干扰机可以伴随攻击机群掩护其实施突击的全过程，或者飞临敌目标区附近，实施干扰欺骗、压制敌防空火力网的雷达系统。这叫软硬兼施打击。
 
-这一评论文章实际上回应了郭文贵先生获悉的共军情报——使用无人电子干扰机对台饱和式打击。文贵先生还指出，习近平本来要在9月3日宣布对台作战计划二。结果。[黑天鹅来到天安门了](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210906-%E5%8C%97%E4%BA%AC%E5%A4%A9%E5%AE%89%E9%97%A8%E5%B9%BF%E5%9C%BA%E6%98%A8%E9%A3%9E%E6%9D%A5%E9%BB%91%E5%A4%A9%E9%B9%85-%E7%BD%91%E7%BB%9C%E8%AE%AE%E8%AE%BA%E6%9C%89%E5%BC%95%E7%94%B3)。根据习近平的计划，利用几十年来蓝金黄台湾卖台贼，制造台湾“[内部出现动乱。我们要过去。记住这一点。](https://gtv.org/video/id=61375c1e637d1e60db2fe8ad)”文贵先生说。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
 
-上述爆料绝非危言耸听，根据郭文贵先生掌握的消息，共军不仅有较高的电子战能力，而且还能以军事行动和各种政治欺骗手段作战，迫使国际社会默认台湾投降了。在这一点上，共产党绝对不会放弃拜登执政的空窗期机会。
+终审:  暗黑
+校正/发稿：浪迹天涯
 
-- ***延展阅读：***[***台军汉光演习背景曝光 模拟解放军4波导弹夜间攻台***](https://mil.sina.cn/zgjq/2021-09-17/detail-iktzqtyt6570107.d.html?from=wap)
-
-
-在电子战方面，共产党即将中国的孙子兵法融入到现代战争中去，还利用以色列提供的技术大量开发了电子作战能力。比如上述提到的“电子迷魂阵”战法，即《[隐真示假，空射诱饵弹这样布设天空“迷魂阵](http://www.81.cn/bq/2021-05/14/content_10035279.htm)”》该文透漏共军电子战技术来自于以色列从圣经人物“参孙”的灵感设计的，并引用了以色列在贝卡谷地之战中，“参孙”空射诱饵弹的成功使用一度让世人瞠目。
-
-该信息还透漏，空射诱饵蛋不仅能实施欺骗式被动防御，充当吸引活力的“高调保镖”，还能主动实施干扰压制、侦察监视和毁伤打击，演变为攻防兼备、以攻助防的战场“多面手”。然而，该文也强调这种技术在现代信息战下，各国都具有这种打击能力，就看谁比谁更快反应。
-
-尽管如此，郭文贵先生再度表明，“[共产党打台湾，但占不了台湾](https://gtv.org/video/id=611e5204ce352b4048cae323%0a%0a)。最终新中国联邦说了算。
-
-2021年9月17日
-
-（本文只代表作者观点，与GNews网站无关）
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 /*平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-185.png)
 0

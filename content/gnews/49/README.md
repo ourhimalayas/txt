@@ -2,30 +2,70 @@
 ---
 
 
-## 香港支联会及核心成员被控煽颠罪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538528/)
+## 官宣：彼特·那瓦罗先生成为新中国联邦国家代表大使
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1538580/)
 
-栏目记者/责任编辑：修文
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-法广9月16日报道，简称支联会的 “香港市民支援爱国民主运动联合会”，16日在推特和脸书等平台上公告，将于晚间10时，删除指定电子平台信息，包括支联会的官方网站、脸书信息等。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-17-at-8.43.12-PM.png)
-公告指，支联会于9月10日接获港府警务处通知，称根据”港区国安法”规定，要求支联会在接获通知7天内，移除相关电子平台信息。且警方在当日正式指控支联会和支联会主席李卓人、副主席何俊仁和邹幸彤等，涉嫌企图煽动颠覆国家政权，案件预定于10月28日审理。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/199.png)史蒂夫·班农（Steve Bannon）先生、彼特·那瓦罗（Peter Navarro）先生和郭文贵（Miles Guo）先生![](https://assets.gnews.org/wp-content/uploads/2021/09/199..png)(盖文链接：[https://gettr.com/post/pb5koo5c23](https://gettr.com/post/pb5koo5c23))
+一、**他是谁?**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/199...png)
+彼特.那瓦罗（Peter Navarro）先生是美国共和党人，一名美国经济学家。是坚定的反共灭共斗士。
 
-支联会1989年5月21日于香港成立，目的是支援当时发生在大陆的民主运动八九民运，以争取民主、自由、人权和法治早日在中国大陆实现为诉求。港区国安法落地实施，成为中共借法律名义打击异己的依据。以此蚕食香港各个民主人权群体。恶法当道，港人在法律层面已无退守的可能。香港法治的死亡，代表这座以法治、专业、高效率著称的金融港口彻底沦陷。
-(本文仅代表作者观点)
+**早年生平**
 
-参考链接：[香港支联会“应警方要求” 16日晚删官网、脸书信息](https://www.rfi.fr/cn/中国/20210916-香港支联会-应警方要求-16日晚删官网-脸书信息)
+纳瓦罗于1949年7月15日出生在美国马萨诸塞州的剑桥市。父亲Alfred Navarro是一名萨克斯手和单簧管演奏家，母亲Evelyn Littlejohn在一家百货公司担任秘书。在他9岁时，父母离异，他与哥哥跟随母亲先后在佛罗里达州棕榈滩、马里兰州贝塞斯达生活长大。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+**教育背景**
 
-终审：文龙
-校正/发稿：我不在这里
+纳瓦罗在塔夫茨大学取得学士和硕士学位，并在哈佛大学取得博士学位。在开始教学工作前，曾任和平工作团的成员和在华盛顿特区担任能源和公共政策顾问。后来担任尔湾加利福尼亚大学保罗·梅拉吉商学院的教授。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**政治生涯**
+
+2016年，纳瓦罗担任唐纳德·特朗普选举团队的政策顾问。2016年12月21日，他被候任总统唐纳德·特朗普提名为整合现有美国国家安全委员会（NSC）、国家经济会议（NEC）及国内政策会议（Domestic Policy Council）而新设立的白宫国家贸易委员会（National Trade Council）主任。
+
+2018年6月28日，纳瓦罗在华盛顿智库哈德逊研究所（Hudson Institute）发表演讲，主要是介绍OTMP办公室发布的一份有关中国对美国经济与国家安全造成损害的六大策略及50多种行为、政策与作法的图表。
+
+二、**坚定的反共斗士**
+
+彼特.那瓦罗是最早公开喊出：CCP LIE,AMERICAN DIE（中国共产党撒谎，美国人死亡）的人之一。纳瓦罗先生是特朗普团队中支持动用关税手段对中共国施压的坚定派，并撰写了一系列关于揭露中共贸易倾销和军事威胁真相的书籍，如《致命中国：对抗赤龙——一个对全球行动的呼吁》等。
+
+2021年1月21日，中华人民共和国外交部宣布对28名美国人及其亲属实施制裁，纳瓦罗是其中之一。正如班农先生所说，他把这当作一枚勋章。
+
+三、**新中国联邦的好战友**
+
+彼特.那瓦罗先生在华盛顿川普酒店接受班农的“War Room战斗室”现场采访时，公开承认新中国联邦，并表示是中共故意向世界投放CCP病毒。2021年6月4日，在新中国联邦一周年庆典活动上，他通过视频喊出：TAKE DOWN CCP（消灭中国共产党）。
+
+此外，他还在2021年9月15日GTV直播中表示：如果共和党赢得2022年美国中期大选，将会第一时间承认新中国联邦。
+
+四、**他出任新中国联邦国家代表大使的意义**
+
+为新中国联邦在国际政治舞台上合法化进行背书。这意味着以彼特.那瓦罗先生为代表的美国内部反共群体对新中国联邦和过去四年爆料革命反共行动的认可。
+
+作为一名美国核心经济政策制定者和知名经济学者，他是新中国联邦的G系列投资项目的最佳代言人，也从侧面证明G系列未来的发展前景。
+
+他良好的个人信用、专业能力和政坛影响，可以帮助新中国联邦和更多国家建立外交关系。
+
+只要坚定反共，就是新中国联邦的朋友。他的加入，会鼓励更多人士加入到反共灭共的行动中来。
+
+新中国联邦不仅仅只有华人，还会有更多不同肤色、不同国家和种族的人们加入。
+
+未来代表新中国联邦绝对是世界级的人才，新中国联邦才能代表中国人民。
+
+所有新中国联邦人，请记住这个伟大日子，2021年9月15日。
+
+感谢您的加入，彼特.那瓦罗先生！
+
+参考资料：
+2021年9月15日GTV直播：[https://gtv.org/video/id=6142a526751e4f2b0e53c474](https://gtv.org/video/id=6142a526751e4f2b0e53c474)
+
+彼特.那瓦罗介绍：[https://www.wikiwand.com/zh-cn/%E5%BD%BC%E5%BE%97%C2%B7%E7%B4%8D%E7%93%A6%E7%BE%85#/%E6%B1%BA%E7%AD%96%E5%AF%A6%E8%B8%90](https://www.wikiwand.com/zh-cn/%E5%BD%BC%E5%BE%97%C2%B7%E7%B4%8D%E7%93%A6%E7%BE%85#/%E6%B1%BA%E7%AD%96%E5%AF%A6%E8%B8%90)
+
+【本文仅代表作者个人观点，与gnews平台无关】
+
+作者：洛杉矶盘古农场–文如
+编辑：洛杉矶盘古农场–柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 0

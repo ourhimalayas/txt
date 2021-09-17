@@ -22,14 +22,14 @@
 ### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [爆料革命在國內的傳播是共產黨懼怕的](/content/gnews/4/README.md)
+### [2021年9月17日郭先生直播速记](/content/gnews/4/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [爆料革命在國內的傳播是共產黨懼怕的](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [（日说｜文贵）2021年9月5日](/content/gnews/5/README.md)
+### [（日说｜文贵）2021年9月5日](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
-
-### [2021年9月16日 文贵先生盖特 19](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [灭共进入“以苗灭共”新阶段](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
@@ -61,65 +61,65 @@
 ### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|中共正在扩大在非洲的影响力](/content/gnews/17/README.md)
- ` MOSREC`
+### [病理学博士表示疫苗将增加20倍癌症发病率](/content/gnews/17/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|中共就台湾代表处更名进行威胁, 美议员称: 虚张声势](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [短视频：福奇资助危险虐狗实验，谷歌言论审查给与保护](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Alex Jones 怒喊 人们再不觉醒，还去打毒针将会付出惨痛代价](/content/gnews/21/README.md)
+### [新西兰女士的呐喊，新西兰！醒醒吧！中共病毒疫苗是毒药！](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟议会成员呼吁成立调查组调查中共病毒起源](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [有声|中共正在扩大在非洲的影响力](/content/gnews/19/README.md)
+ ` MOSREC`
 
-### [欧盟出台最新印太战略](/content/gnews/23/README.md)
+### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|中共就台湾代表处更名进行威胁, 美议员称: 虚张声势](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [短视频：福奇资助危险虐狗实验，谷歌言论审查给与保护](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [印度北方邦战胜新冠病毒，证实伊维菌素的有效性](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/24/README.md)
+### [佩洛西访英期间严厉抨击中共压制与技术数据威胁](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [日本将针锋相对回应中共对尖阁诸岛威胁](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [欧洲议会压倒性通过报告, 呼吁制定针对中共新战略](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [欧盟出台最新印太战略](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [共和党检察官将就接种令起诉拜登政府](/content/gnews/26/README.md)
+### [共和党检察官将就接种令起诉拜登政府](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;](/content/gnews/27/README.md)
+### [美国24 个州威胁将对拜登的强制疫苗政策采取法律行动](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [四十多个NGO人权组织致信习近平 呼吁释放张展](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [巴西政府官方表态 希望停止为青少年接种](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [巴西政府官方表态 希望停止为青少年接种](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [美国24 个州威胁将对拜登的强制疫苗政策采取法律行动](/content/gnews/29/README.md)
+### [佩洛西：中共国对各方面的打压越来越严重，数据控制是威胁](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [四十多个NGO人权组织致信习近平 呼吁释放张展](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [佩洛西：中共国对各方面的打压越来越严重，数据控制是威胁](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [共军大谈“电子迷魂阵”威力剑指台湾？](/content/gnews/32/README.md)
+### [共军大谈“电子迷魂阵”威力剑指台湾？](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国资助流亡维吾尔人在日内瓦联合国大楼外开办图片展](/content/gnews/33/README.md)
+### [美国资助流亡维吾尔人在日内瓦联合国大楼外开办图片展](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [彼得·纳瓦罗GTV直播三次说盖特是推特杀手](/content/gnews/34/README.md)
+### [彼得·纳瓦罗GTV直播三次说盖特是推特杀手](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
-
-### [秘翻在线：意大利政府全面推行强制疫苗护照](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：民主党参议员力主监管加密货币犯罪，国会山紧锣密鼓推立法](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [原来扒别人家祖坟是持枪砸郭的个人自由](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -145,36 +145,36 @@
 ### [中国会是下一只黑天鹅吗？](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：习近平表示上海合作组织将增加伊朗为成员国 走“人间正道”](/content/gnews/45/README.md)
+### [9/17/21 香港快讯 职工盟将进入解散筹备过程 星期日开记者会交代](/content/gnews/45/README.md)
+ ` 英喜-粵語組`
+
+### [秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [官宣：彼特·那瓦罗先生成为新中国联邦国家代表大使](/content/gnews/46/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;](/content/gnews/47/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：中共国大量申请6G技术专利，与控制全人类的联系](/content/gnews/47/README.md)
+### [秘翻在线：习近平表示上海合作组织将增加伊朗为成员国 走“人间正道”](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾回赠日本血氧仪及制氧机](/content/gnews/48/README.md)
- ` GTV新闻访谈`
-
-### [香港支联会及核心成员被控煽颠罪](/content/gnews/49/README.md)
- ` GTV新闻访谈`
-
-### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/50/README.md)
- ` GTV新闻访谈`
-
-### [恒大集团暴的雷到底有多大？](/content/gnews/51/README.md)
+### [官宣：彼特·那瓦罗先生成为新中国联邦国家代表大使](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/52/README.md)
+### [秘翻在线：中共国大量申请6G技术专利，与控制全人类的联系](/content/gnews/50/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾回赠日本血氧仪及制氧机](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [专家指责CDC挑选疫苗免疫数据以支持政治叙事](/content/gnews/53/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [香港支联会及核心成员被控煽颠罪](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
 
-### [六月雪狱](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
+### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
 
-### [独家：举报人称VAERS数据库严重漏报数据](/content/gnews/55/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [恒大集团暴的雷到底有多大？](/content/gnews/54/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/55/README.md)
+ ` GTV新闻访谈`
 
