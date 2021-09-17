@@ -2,25 +2,26 @@
 ---
 
 
-## 长崎大学被中共选中，对日本人民意味着什么？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1538061/)
+## 中共申请加入跨太平洋伙伴协定 轮席主席国日本﹕须观察能否守规
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1538119/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091710-1.png)
-9月5日,NIB长崎国际电视发表视频消息称：长崎大学为遏制病毒扩散正在开发一种 “国产疫苗”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/https3A2F2Fs3-ap-northeast-1.amazonaws.com2Fpsh-ex-ftnikkei-3937bb42Fimages2F02F82F42F32F36453480-1-eng-GB2FRTS2I1PN.jpeg)图源：Nikkei
 
-“国产疫苗 “的开发是长崎大学先进药物发现和创新中心与中共国四川大学的一个联合研究项目。该疫苗是在四川大学开发的疫苗的基础上，对疫苗的生产方法等方面进行了改进，以期在日本使用。
+[中国商务部昨深夜宣布](http://www.mofcom.gov.cn/article/news/202109/20210903199707.shtml)，正式申请加入《全面与进步跨太平洋伙伴关系协定 (Comprehensive and Progressive Agreement for Trans-Pacific Partnership, CPTPP)》。CPTPP 是一个自由贸易协定，涉及 11 个国家近 5 亿人口。不过，中共能否成功申请仍属未知。据日媒报导，**轮席主席国日本认为，须观察中共能否遵守 CPTPP 的各项严格规则 **。
 
-目前，正在开发的疫苗是”重组蛋白疫苗”。由辉瑞公司和莫德纳公司生产的mRNA疫苗已成为第一个商业化的技术，而”重组蛋白疫苗”是已经被用于流感等疾病的疫苗。由于该疫苗很少引起发烧等不良反应，被证明是安全的，可以给婴儿和其他目前不符合接种条件的儿童接种。
+中国商务部部长王文涛昨天（16 日）向 CPTPP 保存方纽西兰贸易与出口增长部长奥康纳 (Damien O’Connor) 提交申请，要求正式加入 CPTPP ，两国部长就该申请举行电话会议。
 
-在中共国，已经有数万人接受了测试。在日本，上个月底开始，在大阪对240人进行了试验，这是中共国开发的疫苗首次在日本进行测试。长崎大学的目标是通过利用试验中获得的数据进一步提高其安全性，并计划在今年年底前完成这项试验。
+去年11月，中共党魁习近平就表示有意加入 CPTPP，今年 CPTPP 的轮席主席国是日本，日本首相菅义伟于今年 1 月回应指，以中国现行的政经体制，很难加入 CPTPP。
 
-信息源：[https://news.yahoo.co.jp/articles/555b61e6ebc4ddea96ccc3fed6fbc9c7f8cf0b94](https://news.yahoo.co.jp/articles/555b61e6ebc4ddea96ccc3fed6fbc9c7f8cf0b94)
+CPTPP 前身是《跨太平洋伙伴关系协定 (The Trans-Pacific Partnership, TPP)》，参与国家包括美国、日本、澳洲、纽西兰、加拿大、墨西哥、秘鲁、智利、越南、新加坡、汶莱及马来西亚 12 个环太平洋国家。中国曾获邀参与，惟中共当局无法接受部份协议的重点内容，包括进一步开放金融市场等，因此一直无加入。
 
-这份报道，令笔者看得毛骨悚然。记得在东京奥运会前，中共就极力向奥委会推荐中共国生产的疫苗。结果，被日本奥运担当大臣桥本圣子女士以不符合日本相关规定为由婉拒。于是，中共不得不又另择其径，选中了长崎大学。报道说得很清楚，正在研制的疫苗是以四川大学的疫苗为基础进行研制。而且，已经将240名大阪人当作试验对象进行了试验。无论是日本人还是其它国家的人们，很难有人会想象得出中共的邪恶之甚。不敢去想，长崎大学与四川大学的这项合作，将带给日本人民怎样的命运！
+2017 年美国总统特朗普上台后，认为 TPP 条件不利美国，签署行政命令退出。同年 11 月，其余 11 国就 TPP 达成框架协议，亦正式改名为 CPTPP，即“全面与进步跨太平洋伙伴关系协定”。CPTPP 在 2018 年 12 月底正式生效，11 个国家共涵盖 4.98 亿人口，国内生产总值之和占全球经济总量 13%。
 
-（本文只代表作者观点，与GNews网站无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+新闻来源：[Nikkei](https://asia.nikkei.com/Economy/Trade/China-officially-applies-to-join-CPTPP-trade-pact)
+
+* * *
+
+*撰文｜台湾宝岛农场 天滅中共
+声明：以上观点仅代表作者*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/c9930e2158cc3d3f.jpg)
 0
