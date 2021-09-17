@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/17/2021 2:33 AM (UTC)`
+
+9/15/2021 郭先生正式宣布皮特·纳瓦罗成为新中国联邦的大使；班农先生：2024年川普总统重返白宫后，美国将承认新中国联邦！让我们在2024年前先灭掉中国共产党！<br/>9/15/2021 Miles Guo officially announces Peter Navarro as the ambassador of the New Federal State of China (NFSC); Steve Bannon: When President Trump takes the White House back, the U.S. will officially recognize the NFSC! Let’s take down the CCP before 2024!
+![img](https://media.gettr.com/group14/getter/2021/09/17/02/7bb52ca1-32c6-ce59-c6eb-a14dde14561a/out.jpg)
+
+---
+
 `@miles 9/16/2021 11:17 PM (UTC)`
 
 任何一款鞋子的研发都是几年之久，鞋子是服装里面最重要的一个元素，它必须要符合人体工学，而且鞋子的安全和对身体的维护，它可不是很简单就能复制的，所以我们要跟世界大牌的厂家合作才能确保鞋子穿在脚上的舒适感，安全，更不会因为化学材料诞生的一系列问题。 以下这两双鞋子都是来自给爱马仕等大牌的鞋厂。 <br/><br/>包几乎就是女人第二个情人，而鞋子是女人最贴心的情人。 所以包，鞋子，丝巾都是女人身上最私密的最安全的东西，内衣是女人的里子，包和鞋子是女人的面子 <br/><br/>每一款包都至少需要6个工人直接或间接地参与，花费10小时左右，经过整整180道工序才能完成。而在正式开工生产前，还需要一周时间制出标准样品<br/><br/>大牌做包都会选用比较完整的头层牛皮，这样就可以避免过多的修补，也保证了皮革的柔软和光泽。虽然都是牛皮，但根据产地、鞣制方法和处理工艺不同，还是会呈现出不同的质感的。有些做皮具非常专业的品牌，还会有专属于自己的特殊处理过的皮质 @DDNYC #GFashion 
@@ -292,12 +299,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9.14日：今天的直播队伍好强大呀……
 ![img](https://media.gettr.com/group20/getter/2021/09/14/09/0acf8c8c-1728-ad18-b6fc-c4385d019a53/8e5f576654f815113fac3fa2f6a7cfdd.jpg)
-
----
-
-`@miles 9/14/2021 4:09 AM (UTC)`
-
-美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.<br/><br/>根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令<br/><br/>https://gnews.org/zh-hans/1531510/?_thumbnail_id=1531515<br/><br/><br/>SEC ADMINISTRATIVE PROCEEDING： In the Matter of GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.,<br/><br/>ORDER INSTITUTING CEASE-AND- DESIST PROCEEDINGS PURSUANT TO SECTION 8A OF THE SECURITIES ACT OF 1933, MAKING FINDINGS, AND IMPOSING A CEASE-AND-DESIST ORDER<br/><br/>https://gnews.org/1530384/
 
 ---
 
