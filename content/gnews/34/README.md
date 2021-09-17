@@ -2,42 +2,38 @@
 ---
 
 
-## 佩洛西：中共国对各方面的打压越来越严重，数据控制是威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1538602/)
+## 巴西政府官方表态 希望停止为青少年接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538594/)
 
-2021年9月17日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091705.jpg)图片：来自路透社/Jonathan Ernst
-**摘要翻译：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-184.png)
+栏目记者：葛朗台太太
 
-路透社华盛顿9月16日消息，美国众议院议长南希·佩洛西周四在访问英国期间表示，中共国对言论自由和人权的压制越来越严重，它对科技大数据的控制正在对西方构成威胁。
+责任编辑：晓仙女
 
-长期以来一直批评中共国的佩洛西在剑桥大学联盟的一次主持讨论中说：“中共国正在收紧，在民主改革、言论自由或多元化方面，或者仅仅是在发表个人意见方面越来越糟”。
+9月16日，国际多媒体机构“汤森路透基金会”报道，因一起新冠疫苗接种致死案的调查，以及约三百五十万青少年的不良反应，巴西联邦政府官方正式表态，希望停止为大多数青少年接种该疫苗。在新闻发布会上，卫生部长批评各州和城市抢先为12至17岁的健康人群接种疫苗，使这些青少年面临感染新冠的严重风险中；但仍有几个州政府和医疗官员，以“没有证据改变接种计划”为由，执意要将疫苗接种进行下去。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-201.png)
+由于接种新冠病毒疫苗，导致高概率不良反应及死亡病例。多个国家政府就此引发争议，医疗界和民间不断有人站出来讲述自己的经历，揭露毒针实质。GTV新闻坚持传播病毒、疫苗真相：根本没有有效的新冠疫苗，为了生命安全，千万不要接种！
 
-在英国参加七国集团议会领导人会议时，佩洛西提到了中共国在南海的军事侵略、对维吾尔族穆斯林少数民族的种族灭绝、对西藏的限制，以及在香港和中共国其它地区对民主的压制。
+补充链接：
 
-作为美国总统第三继承顺位的佩洛西还赞扬了英国方面将中共国科技巨头华为的设备从其5G网络中逐步淘汰。
+[https://news.trust.org/item/20210916223655-e6fv3/](https://news.trust.org/item/20210916223655-e6fv3/)
 
-佩洛西在被问及华为时说：“这是一个很大的威胁”。
+参考链接：
 
-“我们必须开发自己的5G，并在众多技术上做到领先。”这样我们就不会说：“嗯，他们是最好的，也是最便宜的，所以我们都必须在数据控制方面被中国人奴役。”
-
-**简评：**
-
-虽然佩洛西在英国访问期间，提到了中共国在人权、言论自由和新疆种族灭绝等问题，也提到了中共国在数据控制方面的潜在威胁，但是这些都停留在口头上，并不能对中共有任何实质性的影响。政客们更关心的是他们的权力，在必要的时候批评一下中共，作秀站队。 原文链接
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译：文明明|校对：clau*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html](https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html)
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+
+终审:  暗黑
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-185.png)
 0

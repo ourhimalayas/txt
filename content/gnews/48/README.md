@@ -2,19 +2,31 @@
 ---
 
 
-## 秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1538641/)
+## IMF总裁被点名曾为中共造假 提高排名
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1538694/)
 
-撰稿：nstar
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-221008.jpg)**图片来源: **20 minuten
-苏黎世前国民议会议员赫尔佐格 (Andreas Herczog) 接种疫苗后仍死于中共病毒，享年74岁。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-4.png)
+文章仅代表作者本人观点，与Gnews无关
 
-正如死者的亲属在讣告中所写的那样，他“尽管接种了疫苗，但他还是从人生的中途被撕裂了”。瑞士通讯社SDA首先对此进行了报道。
+视频参看：2021.09.17早GTV新闻访谈
 
-赫尔佐格于 1956 年作为难民从匈牙利来到瑞士。他在苏黎世联邦理工学院学习建筑。 赫尔佐格的政治生涯始于一名 政治家，但随后加入了瑞士的进步组织.
+[https://www.youtube.com/watch?v=cg5DspBLbF0](https://www.youtube.com/watch?v=cg5DspBLbF0)
 
-**[信息来源](https://www.20min.ch/story/zuercher-alt-nationalrat-stirbt-trotz-impfung-an-corona-198575565049)**
+编辑/校对/发稿：香草山翻译部 – Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
