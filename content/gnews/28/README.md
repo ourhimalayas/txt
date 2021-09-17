@@ -2,18 +2,18 @@
 ---
 
 
-## 秘翻在线：理智对待疫苗遭白左群起围剿 麻辣鸡获重磅同行力撑
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537692/)
+## 秘翻在线：数千名法国医务人员因拒打中共疫苗而被停工
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537694/)
 
-#### 翻译：坤霆/萌萌的朋克
+#### 翻译：Evalu
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-27.jpg)图片来源：网络截图
-9月15日，据Waynedupree show 网站报道，饶舌天后麻辣鸡（Nicki Minaj）最近在推特上发布的帖子谴责那些霸凌他人接种疫苗的人，这在全美引发了一场巨大的讨论。开始了一个巨大的反疫苗风波。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-75.jpg)图片来源：Epochtimes
+美国合众国际社9月16日报道，法国官员周四称整个法国已有数千名医务人员因未能接种中共病毒疫苗而暂停工作，所有法国医疗医务人员全疫苗接种的截止日期是10月16日，除非符合豁免或已从中共病毒感染中的恢复者。
 
-此前，任何在社交媒体上对疫苗持负面评论的人都会面临快速惩罚，但有2200万推特粉丝Nicki Minaj逃过了被封杀的命运。
+七月份，法国总统马克龙说所有医务人员都必须接受强制性疫苗接种。法国卫生部长说，已经有数十人选择辞职而不接受疫苗注射。法国法律规定他们不能被辞退，但可以处以无薪暂停工作的处罚。
 
-9月16日，前《美国偶像》主持人兰迪·杰克逊（Randy Jackson）也加入了抗击强制疫苗的阵营，发推力挺麻辣鸡：“我支持并响应 Nicki 理智的建议，基于祈祷和不受霸凌影响的批判性思考来为自己的身体和个人健康作出如此重大的决定。行使上帝赋予的自由却要被审查、被抹杀、被嘲笑，今日美国，何其悲哀！”
+本周初，未接种的健康工作人员对强制疫苗政策进行了抗议。
 
-原文链接：[‘It’s a Sad Day in America’ – Randy Jackson Joins Nicki Minaj in Condemning Vaccine Bullies](https://www.waynedupree.com/2021/09/randy-jackson-nicki-minaj/)
+##### 新闻来源： [Thousands of French health workers suspended for refusing COVID-19 vaccine](https://www.upi.com/Top_News/World-News/2021/09/16/france-health-workers-covid-vaccine/4051631813677/)
 
 0

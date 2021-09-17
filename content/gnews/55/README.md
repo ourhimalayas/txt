@@ -2,36 +2,33 @@
 ---
 
 
-## 我眼中的完美人生
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1537369/)
+## 中共制裁境内虚拟币挖矿活动
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1537535/)
 
-#### 撰稿：东京樱花团/ThreeColors
-![](https://assets.gnews.org/wp-content/uploads/2021/09/56c651c663871a04.png)
-每个人都有不同的生活方式和价值观。有些习惯了用口水淹死美国，有些喜欢为塔利班辩护；有的怒斥来中共国办厂的外企们，口口声声让他们滚出中国；有的因为外企撤离而伤心欲绝，一家老小还得靠他们养活。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-我生来乐观，是个快乐之神。可是，我一直认为人生没有意义。虽然从小到大都不合群，我却被同学们推选做班里的各种委员。我很少与人交谈，为什么？因为谈着谈着就吵起来了。那么，我眼中的完美人生是什么样子的呢？
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-16-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-第一，与父母是好朋友，甚至是精神伴侣。能够得到父母的理解对于我来说很重要，因为家人最重要。
+视频参看： 2021.09.16晚GTV新闻访谈
 
-第二，即使出生在非人道的中共国，价值观与周边的绝大多数人都不同，可是还能得到他们的关照。
+[https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9](https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9)
 
-第三，通过努力还有亲人的理解和支持，有机会实现心中对梦想的追求。
+[https://www.youtube.com/watch?v=jTQZssN970A](https://www.youtube.com/watch?v=jTQZssN970A)
 
-第四，即使生来不是农民，可是能够在有空闲的时候可以做一个养花护草的使者。
+编辑/校对/发稿：香草山翻译部 – Lakers
 
-第五，有人陪着，被太阳晒着。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
 
-第六，对食物和时尚都有自己的品味，能够在日常生活中愉悦自己。
+**更多资讯，更多关注**
 
-第七，拥有属于自己的房子和土地，拥有周边人的尊敬和爱护。第八，父母长寿。第九，空气甜美，食物新鲜。
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-第十，平平安安健健康康。
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-你心中的完美人生是什么？虽然我不知道，但是我肯定只要灭了中国共产党，我们都会有机会实现的，你说是不是？
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
 
-（文章仅代表作者个人观点，与GNEWS无关）
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 0

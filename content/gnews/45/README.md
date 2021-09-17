@@ -2,22 +2,18 @@
 ---
 
 
-## 秘翻在线：欧盟推出健康危机体系以应对将来的全球疫情
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537691/)
+## 秘翻在线：理智对待疫苗遭白左群起围剿 麻辣鸡获重磅同行力撑
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537692/)
 
-#### 翻译：Evalu
+#### 翻译：坤霆/萌萌的朋克
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/6-10.jpg)图片来源：网络截图
-新加坡亚太新闻网9月16日报道，欧洲委员会周四推出一项耗资达300亿欧元的健康危机体系以应对将来发生的全球疫情。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-27.jpg)图片来源：网络截图
+9月15日，据Waynedupree show 网站报道，饶舌天后麻辣鸡（Nicki Minaj）最近在推特上发布的帖子谴责那些霸凌他人接种疫苗的人，这在全美引发了一场巨大的讨论。开始了一个巨大的反疫苗风波。
 
-这个新的紧急健康准备和应对机构（HERA）将评估危险，加强研究，确保重要物品的供应和库存。一旦健康危机发生，它将激活紧急资金以协调监测，医疗设备或治疗的采购和购买。
+此前，任何在社交媒体上对疫苗持负面评论的人都会面临快速惩罚，但有2200万推特粉丝Nicki Minaj逃过了被封杀的命运。
 
-这个机构部分被设计为避免欧盟各国各自进行的活动，就像中共病毒刚开始出现那样，有些是无效的，有些则化费过多。
+9月16日，前《美国偶像》主持人兰迪·杰克逊（Randy Jackson）也加入了抗击强制疫苗的阵营，发推力挺麻辣鸡：“我支持并响应 Nicki 理智的建议，基于祈祷和不受霸凌影响的批判性思考来为自己的身体和个人健康作出如此重大的决定。行使上帝赋予的自由却要被审查、被抹杀、被嘲笑，今日美国，何其悲哀！”
 
-这个新的体系将是其他欧盟健康机构如欧洲医学机构和欧洲疾病预防控制中心的备用体系，欧盟委员会副主席马格瑞特·席纳斯说两套系统会比一套系统更强有力。
-
-HERA系统将于2022年正式启动，其中60亿来自2022-2027年的预算，以及其他的款项将筹得近300亿，欧盟各成员国的项目和商业合在一起将化费近500亿欧元。
-
-新闻来源： [EU launches health crisis body to prepare for future pandemic](https://www.channelnewsasia.com/world/eu-launches-health-crisis-body-prepare-future-pandemic-2183561)
+原文链接：[‘It’s a Sad Day in America’ – Randy Jackson Joins Nicki Minaj in Condemning Vaccine Bullies](https://www.waynedupree.com/2021/09/randy-jackson-nicki-minaj/)
 
 0

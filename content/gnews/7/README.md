@@ -2,32 +2,32 @@
 ---
 
 
-## 美国一高中，八成中共病毒病例都打过疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1537744/)
+## 菲律宾要求法院批准用伊维菌素治疗中共病毒
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1537875/)
 
 #### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/OPRF_HighSchool_Facebook.jpg)
-
-
-图片来源：OPRF / Facebook
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ivermectin-philippines.png)
+图片来源：Reuters
 
 **【雅典娜快讯】，紧贴时事脉搏**
 
-在美国伊利诺伊州一所公立高中的中共病毒 (COVID-19)病例中，有82%来自该校完全接种疫苗的人群。
+在菲律宾，两名众议院议员和一名参议员签署了一份请愿书，要求最高法院强制监管机构批准使用伊维菌素治疗中共病毒（COVID-19）。
 
-最新数据显示，随着美国越来越多的学校要求他们的学生接种致命的实验性中共病毒疫苗，中共病毒在疫苗接种率高的学校中传播得更快。
+根据菲律宾CNN发布的消息，参议员弗朗西斯·托伦蒂诺（Francis Tolentino）、众议员迈克尔·德芬索(Michael Defensor) （ANAKALUSUGAN 政党）和罗丹特·马尔科莱塔（Rodante Marcoleta）（SAGIP 政党）签署了请愿书。该请愿书将卫生部长弗朗西斯科·杜克三世（Francisco Duque III）和食品和药物管理局局长埃里克·多明戈（Eric Domingo）列为答辩人。
 
-芝加哥郊区橡树园的一所公立高中–橡树园和河林高中 (OPRF) 就出现这种情况。截至9月9日，学校已确诊17例中共病毒病例。其中4例来自员工，其余来自学生。
+与立法者一起作为请愿人的还有荷马·林博士（Drs. Homer Lim）、玛丽亚·昆图（Maria Quinto）和拉斐尔·卡斯蒂略医生（Rafael Castillo）。
 
-根据橡树园和河林高中的数据显示，79%的学生和88%的教师和工作人员已全面接种疫苗。
+请愿者正在寻求一份强制令，以命令政府机构“立即颁发”伊维菌素产品注册证书，并向生产和销售该药物的公司颁发许可证。他们还希望最高法院命令卫生部门批准“使用伊维菌素治疗中共病毒”。
 
-学校在一份声明中说：“在大流行初期，实现群体免疫的总体目标是70% 的人完全接种疫苗。” “然而，德尔塔变种的出现改变了一切。根据我们最新的指导方针，我们将把疫苗接种率的目标提高到90%或以上。”
+众议院议员马尔科莱塔和德芬索于4月组织过一次活动，他们向医生和菲律宾公民分发伊维菌素。
 
-伊利诺伊州民主党州长J.B.普利兹克（J.B. Pritzker）规定，所有学校教师和工作人员都要接种疫苗，作为就业的一个条件。同样的规定也适用于大学生。K-12学生不包括在这项规定中，但他们被强烈鼓励接种疫苗。
+尽管菲律宾已安排使用伊维菌素治疗中共病毒的临床试验，但在结果出来之前，卫生部不会批准该药物。
+
+总统罗德里戈·杜特尔特(Rodrigo Duterte)不顾卫生部门的建议，拒绝劝阻使用伊维菌素。“如果我阻止使用伊维菌素，但结果证明它是有效的，我将受到指责，”杜特尔特上周说。
 
 （文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[82% of COVID-19 cases in an Illinois school caused by fully vaccinated students and staff (newstarget.com)](https://www.newstarget.com/2021-09-16-covid-cases-illinois-school-caused-by-vaccinated.html)
+**参考新闻：**[Lawmakers ask court to compel health officials to approve ivermectin vs COVID-19 | Philstar.com](https://www.philstar.com/headlines/2021/09/16/2127559/lawmakers-ask-court-compel-health-officials-approve-ivermectin-vs-covid-19)
 
 ***编辑：小红帽******/******翼族*****
 *****发布：小红帽***

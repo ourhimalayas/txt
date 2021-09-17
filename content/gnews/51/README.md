@@ -2,33 +2,21 @@
 ---
 
 
-## 中共制裁境内虚拟币挖矿活动
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1537535/)
+## 与美国英雄朋友的直播
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1537653/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
+撰稿：文雨
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-16-PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+今天看了郭先生，纳瓦罗，班农和米勒先生的共同直播，激动感动之心溢于言表，这是一场英雄们的聚会，是一场对恶势力的宣战！这是一个划时代的日子，是一个值得纪念的日子。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-2-17-scaled.jpg)来自郭先生盖特
+节目中郭先生正式宣布了纳瓦罗先生是新中国联邦大使和盖特的形象大使，他在随后的盖特视频中特别点出了这件事的特别意义，作为前美国总统川普内阁的重要成员，纳瓦罗先生将至此代表新中国联邦向世界各国开展外交战略，让新中国联邦这一唯一代表中国人的合法政权能登上这一历史性的世界舞台。
 
-视频参看： 2021.09.16晚GTV新闻访谈
+班农先生作为新中国联邦宣言的共同签署人，在节目中指出：因为西方所谓的精英们没能对抗邪恶，他们懦弱，他们害怕，他们贪婪，目前西方正在走向与中共及其他邪恶国家进行战争的不归路，结果将导致无数人丧生，这也就是为什么摧毁这些邪恶势力，是这些美国英雄们和新中国联邦人的使命！同时在节目里班农先生和纳瓦罗先生同时首次在G-TV平台公开指出，武汉实验室是生物武器实验室，这对当前如何彻底解决全世界的中共病毒大流行具有划时代的意义，我知道，离揭面纱的日子不远的，人类最终将有办法彻底解决这场瘟疫。
 
-[https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9](https://gtv.org/broadcast/watch/6143e1cf751e4f2b0e543cc9)
+米勒先生是盖特的CEO，在节目中他披露盖特即将推出很多新功能，包括翻译功能，其在短时间内增长的活跃用户数是目前所有其他社交媒体平台所无法想象的。盖特给人们灵感和兴奋感，每天早晨醒来后的感觉是要去看看盖特，关心着在上面发生了什么，人们希望是不同思想的自由交流和互动，盖特给人的感受是美好和向上，这些特征是其他平台所无法比拟的，盖特必将成为推特的杀手！
 
-[https://www.youtube.com/watch?v=jTQZssN970A](https://www.youtube.com/watch?v=jTQZssN970A)
+中国有句话叫：星星之火可以燎原，文贵先生是那开始的星星之火，是他将这点点星星逐渐地凝聚，如今在世界各地的农场，已成为每天不灭的火种，在燃烧着；同时，他将这星星点点也照亮这些美国朋友们和英雄们，让他们团结在我们周围，共同传播真相，采取行动，在全世界各地以点亮更多的火种，最后这些火种必将形成世界性的灭共大火，将这奴役中国老百姓，危害全世界的中共帝国付之一炬！
 
-编辑/校对/发稿：香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+(文章内容仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
 0
