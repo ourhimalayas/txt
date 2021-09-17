@@ -2,38 +2,36 @@
 ---
 
 
-## 巴西政府官方表态 希望停止为青少年接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538594/)
+## 四十多个NGO人权组织致信习近平 呼吁释放张展
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1538623/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-184.png)
-栏目记者：葛朗台太太
+2021年09月17日
 
-责任编辑：晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/09/nyc-protest-700x420-3.jpg)
 
-9月16日，国际多媒体机构“汤森路透基金会”报道，因一起新冠疫苗接种致死案的调查，以及约三百五十万青少年的不良反应，巴西联邦政府官方正式表态，希望停止为大多数青少年接种该疫苗。在新闻发布会上，卫生部长批评各州和城市抢先为12至17岁的健康人群接种疫苗，使这些青少年面临感染新冠的严重风险中；但仍有几个州政府和医疗官员，以“没有证据改变接种计划”为由，执意要将疫苗接种进行下去。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-201.png)
-由于接种新冠病毒疫苗，导致高概率不良反应及死亡病例。多个国家政府就此引发争议，医疗界和民间不断有人站出来讲述自己的经历，揭露毒针实质。GTV新闻坚持传播病毒、疫苗真相：根本没有有效的新冠疫苗，为了生命安全，千万不要接种！
+**摘要编辑：**据德国之声中文网报道，9月17日，《无国界记者组织》（Reporters Without Borders）和其它44个NGO人权组织联合发表声明，呼吁中共领导人习近平释放公民记者张展。
 
-补充链接：
+现年38岁的张展在新冠疫情爆发初期来到武汉进行实地调查，在社交媒体上发布自己的所见所闻。2020年5月她在上海被拘捕，后被指控编造丶散布虚假讯息。 去年12月28日，经过3小时的闭门审理，上海浦东新区法院以“寻衅滋事”的罪名判处张展4年徒刑。
 
-[https://news.trust.org/item/20210916223655-e6fv3/](https://news.trust.org/item/20210916223655-e6fv3/)
+据纽约时报8月底报道，张展在被捕和判刑后持续在监狱中进行半绝食抗议，导致体重下降，不到40公斤，当局曾用插管给她鼻饲喂食。 今年7月31日，张展一度被送进医院治疗，于8月11日又被送回监狱。
 
-参考链接：
+《无国界记者组织》的东亚办公室负责人埃维亚尼（ Cédric Alviani ）表示，张展没有犯下任何刑事罪行，而是勇敢地冒着生命危险向公众提供有关公共卫生危机的信息，她根本不应该被拘捕，更不应该被判刑监禁。他向习近平呼吁，尽快释放张展。
 
-[https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html](https://www.yahoo.com/entertainment/brazil-seeks-halt-teen-vaccines-210922140.html)
+参与联署声明的非政府组织还包括国际特赦组织、国际笔会、自由之家（Freedom House）、台湾外国记者俱乐部等。
+
+《无国界记者组织》称，除张展外，中共国还有至少10名新闻自由捍卫者被关押在狱中，面临生命危险，其中包括《无国界记者组织》世界新闻自由奖得主、“六四天网”创办人黄琦，萨哈罗夫奖获得者、维吾尔族学者伊利哈木·土赫提（Ilham Tohti）和瑞典籍出版商桂敏海。 据该组织统计，中共国至少有122名记者目前被关押，是全球关押记者人数最多的国家。
+
+阅读全文，请点击：[记者无疆界等NGO致信习近平 呼吁释放张展](https://t.co/wockAU2Ruk?amp=1)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-终审:  暗黑
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-185.png)
 0

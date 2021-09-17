@@ -2,42 +2,32 @@
 ---
 
 
-## 美国24 个州威胁将对拜登的强制疫苗政策采取法律行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1538614/)
+## 共和党检察官将就接种令起诉拜登政府
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538616/)
 
-2021年9月17日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091706-1.jpg)2021 年 9 月 13 日，人们在纽约市参加集会和游行，反对 COVID-19 规定。 （SPENCER PLATT/盖蒂图片社）
-**摘要翻译：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-184.png)
+栏目记者/责任编辑：雪梨
 
-周四，美国有24个州声称，如果拜登政府不改变乔·拜登最近提出的疫苗政策的话，他们将对此采取法律行动。
+据“今日美国”9月16日报导，以南卡罗来纳州总检察长艾伦·威尔逊为首，二十四位共和党检察官，联名致信拜登总统，称新冠疫苗接种令违法；并表示，如果该行政命令生效，他们将寻求一切法律途径，追究拜登政府的责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-202.png)
+信中写道，疫苗接种令不仅侵犯人身自由，也是一场公共卫生灾难。它将导致处于弱势的雇员流离失所，加剧全国医护人员的职业危机，给美国人民的生活带来严重的后果。
 
-在一封致拜登总统的信中，24位共和党州检察长敦促总统重新考虑他要求雇员超过100人的公司强制为员工接种疫苗，并且给员工定期进行新冠病毒测试的决定，称其为“灾难性的、适得其反”的计划。
+自拜登政府颁布疫苗接种令以来，美国共和党官员已明确表示该行政命令违宪。政府职员和民间组织纷纷质疑政府强制要求接种新冠疫苗的真实目的。而这封由各州司法官员签署的联名信，势必将对拜登政府施加更大的压力。
 
-信中写道：“总统先生，您的疫苗接种授权不仅是对个人自由的威胁，而且是一场公共卫生的灾难，将导致弱势的员工流离失所，加剧全国范围内的医护人员短缺，给所有的美国人带来严重后果”。
+参考链接：
 
-德克萨斯州州长格雷格·阿伯特(Greg Abbott)称这一要求（雇员超过100人的公司要确保工人接种新冠疫苗，或面临每周的病毒测试）是“对私营企业的严重打击”。而内布拉斯加州（Nebraska）州长皮特·里基茨(Pete Ricketts)称这是“对个人自由的极大的侵犯和对联邦政府权力的滥用”。南达科他州（South Dakota）州长克里斯蒂·诺姆(Kristi Noem)在推特上说，她的州将“站出来捍卫自由”，并告诉拜登：“法庭上见”。共和党全国委员会主席罗娜·麦克丹尼尔说，该组织将起诉拜登政府，“以保护美国人，以及他们的自由”。
+[https://www.usatoday.com/story/news/politics/2021/09/16/biden-vaccine-mandate-prompts-lawsuit-threat-gop-prosecutors/8371377002/](https://www.usatoday.com/story/news/politics/2021/09/16/biden-vaccine-mandate-prompts-lawsuit-threat-gop-prosecutors/8371377002/)
 
-拜登上周就可能采取的法律行动回应了记者，告诉那些反对者“请便”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-149.png)
 
-**简评：**
+终审:  暗黑
+校正/发稿：浪迹天涯
 
-针对拜登政府的强制疫苗政策，美国的保守势力反应激烈，近一半的州反对强制疫苗，并出现了许多自发的抵制活动。但是，美国的大多数反对派和民众反对疫苗的理由多出于维护个人自由的考量，并没有真正意识到疫苗本身带给人们的危害和潜在的国家危机。同时，拜登政府对此一意孤行的态度，着实令人对美国国家和人民的前途担忧。
-
-[原文链接](https://www.usnews.com/news/health-news/articles/2021-09-16/24-states-threaten-legal-action-against-bidens-vaccine-mandate)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译：文明明| 校对：clau*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-184.png)
 0
