@@ -2,60 +2,70 @@
 ---
 
 
-## 22岁跳马冠军接种莫德纳疫苗后永远无法骑马
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1538357/)
+## 新加坡疫苗接种率达到 81% 后慢性病爆发
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1538369/)
 
 - **编译： Jenny Ball**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip73.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip74.png)
 
-[莫德纳](https://childrenshealthdefense.org/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/)[COVID-19](https://childrenshealthdefense.org/defender_category/covid/)疫苗的罕见反应使一位冠军跳马运动员的肺部形成了[两个巨大的凝块](https://childrenshealthdefense.org/defender/woman-johnson-johnson-vaccine-blood-clots-scientists-may-know-cause/)，她以后可能再也不能骑马了。
+最新数据显示，武汉冠状病毒新“病例”[激增](https://news.trust.org/item/20210913112754-w5k94) ，新加坡是地球上“疫苗接种最充分”的国家之一，全面接种率约为 81%。
 
-22 岁的伊莫金·艾伦（Imogen Allen）被医生告知，在她接种疫苗两周后形成的凝块可能是由疫苗引发的，同时她已经服用了5年复合避孕药 。
+大规模接种导致的感染激增，阻碍了该国“完全接种疫苗”后重新开放的努力。急需氧气和其他治疗的居民涌入医院。上周末，新加坡需要吸氧的患者人数翻了一番，这表明，他们称之为“疫苗”的注射剂，未能提供承诺的针对中共病毒的保护。
 
-来自伯克希尔伍德科特的艾伦女士，可能再也无法骑马了，现在卧床不起，让她成为一名警探的梦想也破灭了。
+与大多数其他国家相比，新加坡接受疫苗的速度异常快，居民排队等着接种，现在却面临抗体依赖性增强（ADE）和其他刺突蛋白损伤的后果。
 
-美国食品和药物管理局（FDA ）工作人员拒绝就辉瑞的 COVID 疫苗加强注射采取立场，理由是缺乏经过验证的数据。
+报告显示，注射率已经趋于稳定，因为新加坡绝大多数地区已经采取了政府推动的所有现有措施。现在看到新感染和住院人数激增，人们质疑，为什么会发生这种情况。
 
-[CNBC报道](https://www.cnbc.com/2021/09/15/covid-booster-shots-fda-staff-declines-to-take-stance-on-pfizers-third-doses-citing-lack-of-verified-data.html)：
+路透社报道说：“周末的感染总数超过 1,000 例，比一个月前增加了十倍。”
 
-FDA的工作人员，周三拒绝就是否支持[辉瑞](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/) COVID-19 疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。
+“不过，由于重症病例数少，且新加坡的疫苗接种率高，许多专家并不过分担心感染人数的增加。”
 
-“有许多潜在的相关研究，但FDA尚未独立审查或验证基础数据或其结论，”他们在该机构网站上发布的一份23页的文件中写道。“其中一些研究，包括来自以色列疫苗接种计划的数据，将在2021年9月17日 VRBPAC 会议期间进行总结。”
+**接种疫苗的人****“****脱落****”****的刺突蛋白正在杀死其他人**
 
-**学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗**
+在大流行初期，新加坡是[最早报告](https://www.naturalnews.com/2020-02-03-new-coronavirus-cases-emerge-vancouver-australia-singapore.html)感染武汉冠状病毒 (Covid-19) 的国家之一。
 
-《[**卫报****》****报道**](https://www.theguardian.com/education/2021/sep/15/covid-teams-can-vaccinate-pupils-against-parents-wishes-schools-told)**：**
+新加坡与澳大利亚一起向世界宣布，在他们那里发现了中共病毒，这让全球媒体陷入了混乱。
 
-根据周三公布的政府指导方针，医护人员可以决定孩子是否违背父母的意愿接种 COVID 疫苗，这让一些校长担心学校门口会发生抗议。
+快进到现在，新加坡全面疫苗接种，加速传播的武汉流感，同时在感染许多“变种”病毒处领先地位——在许多情况下，这被归咎于“未接种疫苗”。
 
-该指南称，12 至 15 岁儿童的疫苗接种将由已经在英格兰进行流感和人乳头瘤病毒 (HPV) 疫苗接种的学龄免疫服务 (SAIS) 团队进行。学校的作用将仅限于提供网站并向学生和家长分发信息和同意书。
+没有证据表明，健康未接种疫苗的人，未受病毒感染在传播其他任何东西，但主流媒体希望你相信，他们是疾病的传播者，而不是完全接种疫苗的人。
 
-**当谈到 Delta 变体时，孩子们都很好**
+具有讽刺意味的是，**如果每个人都对疫苗接种说不，那么这场大流行早就结束了**。就是因为接种疫苗，现在才有了一个又一个的变种不受约束地传播，随之而来的是灾难、痛苦和死亡。
 
-[**《华盛顿月刊》报道**](https://washingtonmonthly.com/2021/09/15/when-it-comes-to-the-delta-variant-the-kids-are-all-right/)**：**
+随着第一轮“加强剂量”的分发，事情将变得更糟。我们被告知，这些二次疫苗可以治愈一切，而现实是：**世界即将因为它们而经历另一场****“****地狱浪潮****”**。
 
-这是父母需要考虑的成本效益 – 这不是一个危险的决定。
+“如果通过向人们提供加强注射，包括年轻人，新加坡能够更快地放松其限制，尤其是在重新开放新加坡边界方面，那么，这可能是政府被迫做出的一个关乎生存的决定，” 新加坡国立大学苏瑞福公共卫生学院院长张益英宣布。
 
-几乎没有证据表明 Delta 变体比该病毒的早期版本对儿童更危险。它更容易传播，是的，但与去年流行的病毒版本相比，受感染儿童的死亡率极小。
+**换句话说，新加坡仍然坚持科维迪安的学说（Branch Covidian doctrine），即更多的注射等于更好的健康结果****——****尽管数据显示的事实恰恰相反。**
 
-**评论： **
+显然，世界为之付出了惨痛的教训，似乎没有迹象表明大流行很快就会缓解。这将是一次又一次的强化注射，直到结束——或者直到人们认为受够了。
 
-**FDA拒绝就是否支持辉瑞疫苗的加强注射采取立场，称美国监管机构尚未核实所有可用数据。好，那么FDA同样没有疫苗第二期第三期试验数据，为什么就强制大规模让美国人民和世界人民当白老鼠呢？**
+随着人们因疫苗持续遭受痛苦和死亡，我们将在此链接随时通知您详情：[ChemicalViolence.com](https://chemicalviolence.com/)
 
-**“****学校告诉 COVID 团队可以违背父母的意愿为学生接种疫苗“，那么学校承担一切后果吗？学校有权让学生有权选举吗？学校这个指南是出自哪个法律条文？**
+**评论：**
 
-**这场疫苗战争就是法律的决战！我们一定拿起法律赋予我们的权利保卫我们的孩子和未来！**
+**因为但主流媒体希望你相信，不是完全接种疫苗的人由于“脱落”的刺突蛋白正在杀死其他人，所以，世界即将因为疫苗而经历另一场“地狱浪潮”**。
+
+**这场疫苗阴谋是中国共产党操纵，世界暗黑势力全面推动的灭绝人类计划，主流媒体是这场阴谋的宣传工具。**
+
+**但正是媒体对真相的掩盖，让许多无辜的人们争相去注射将会杀死他们自己的疫苗。我的一位美国老护士笔友，是位一生为病人服务的善良的专业护理人士，当我今天告知他疫苗的危害不要打疫苗时，他非常义愤填膺地痛斥说：我当然要打疫苗，任何不打疫苗的人，都是对他人和社会不负责任的人！**
+
+**所以，文贵先生说，媒体在充当极权邪恶势力的宣传工具时，它的危害比核武器更厉害，它现在还在用谎言把更多善良无辜的人，送往死亡之路！**
+
+**没有了言论自由，我们的就成了任人宰割的羔羊，与实验室白老鼠的命运没有了区别**。
 
 （文章仅代表作者个人观点，与**GNEWS**无关）
 
-**素材链接：[childrenshealthdefense](https://childrenshealthdefense.org/defender/covid-nw-champion-show-jumper-22-reaction-moderna-vaccine/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=35c8a332-7285-46e1-8556-8f1f2097e18d)**
+**文章内容来源:**[Trust.org](https://news.trust.org/item/20210913112754-w5k94)
+
+[NaturalNews.com](https://www.naturalnews.com/2020-02-03-new-coronavirus-cases-emerge-vancouver-australia-singapore.html)
 
 * * *
 
 ***审核：文乐
-校对:  阿伯塔
+校对:   阿伯塔
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
