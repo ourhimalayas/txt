@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/17/2021 6:32 PM (UTC)`
+
+G Fashion 意大利考察结束了，带着满载而归的协议合同，样板布料等样品回到纽约. 在不久的未来我们将会推出唯一性的，最高级的，适合我们战友的时尚产品奉献给大家✌️✌️🔥🔥🔥🙏🙏🙏😘😘😘😘@DDNYC # GFashion 
+![img](https://media.gettr.com/group30/getter/2021/09/17/18/2721aab9-49bf-dab5-d78b-b72cb78c324d/out.jpg)
+
+---
+
 `@miles 9/17/2021 6:08 PM (UTC)`
 
 9月17号：恒大欠钱和骗钱是事实，应该由法院来解决，无论走到天涯海角，他们都应该还钱。追究骗钱者的刑事责任，但是共产党的以黑治国，却选择了以警执法，这就是共产党所谓的依法治国，中国人没有任何维权的机会，也没有要回属于自己钱的权利，中国人却深爱着中国共产党，中国人真的是太可怜了。
@@ -292,13 +299,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/14/2021 Miles Guo: A certain organization has been survelling Xi and collecting the private information of Xi, his wife Peng Liyuan, and his family, and this is the top secret of the world! This information is what Wang Qishan and Meng Jianzhu need the most.. Some of the video and audio recordings of Xi and Peng will be released before the 20th Party Congress<br/><br/>9/14/2021 文贵直播：这些年来，有某组织在监控习，并收集他和彭丽媛两口子和家人的隐私，这是世界最高机密！王和孟是最需要这些信息的人；习和彭的一些视频和录音将在20大前被放出!<br/>
 ![img](https://media.gettr.com/group5/getter/2021/09/14/23/809c2d31-87f7-36f5-a6f7-95f47fe785f1/out.jpg)
-
----
-
-`@miles 9/14/2021 7:35 PM (UTC)`
-
-9月14号：多少这样的悲剧，不应该发生！多少这样的善良和天真被邪恶势力所利用！痛失亲人甚至全家遭受灭顶之灾。这就是这个世界上需要一个新的正义的力量的诞生，让人们在黑暗中能看到一束希望的灯塔之光！让有智慧的好人免受黑暗势力的侵害。【手足，戰友，這位父親以他兒子的生命告誡大家，不能打疫苗啊，朋友們❗❗❗❗❗】
-![img](https://media.gettr.com/group10/getter/2021/09/14/19/7386b476-b0a7-71a3-870b-d36222d14e7e/155efc7f7e262d1abd8c7e074d1002a5.jpg)
 
 ---
 
