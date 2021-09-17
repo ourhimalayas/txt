@@ -2,57 +2,193 @@
 ---
 
 
-## 自媒体“黑嘴”易堵，经济黑洞难填
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1536192/)
+## 共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537414/)
 
-作者：香草山农场-鹰(文言)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ahi4f-ek3kl-1.jpg)
+[https://gtv.org/video/id=6142083b784c5a258356c66b](https://gtv.org/video/id=6142083b784c5a258356c66b)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**字幕内容:**
+
+**郭文贵
+Miles Guo**
+
+这个我跟大家说一下
+Esto debo decirles
+
+这个很多问题啊
+Hay muchos problemas
+
+包括台湾的问题
+Incluyendo el problema de Taiwán
+
+黑天鹅的问题
+El problema del cisne negro
+
+我们本来今天还有很多要讲的
+Nosotros ibamos a decir muchas cosas más
+
+黑天鹅的问题绝对是对习和共产党是一个很大的震撼
+El problema del cisne negro seguramente fue un impacto para Xi y el PCCh
+
+他们信邪
+Ellos creen en el mal
+
+不是说他不信邪
+No digo que no cree en el mal
+
+他信邪
+Él cree en el mal
+
+但是呢有很多的党内的
+Sin embargo, hay muchos que están en el partido
+
+像江, 曾
+Como Jiang, Zeng
+
+还有像张德江,李长春
+Y también Zhang Dejiang, Li Changchun
+
+宋平
+Song Ping
+听说若干人
+Escuché a algunas personas
+
+包括江海洋 (似口误,可能是张海阳)
+Incluyendo a Jiang Haiyang (parece ser un error, puede ser Zhang Haiyang)
+
+都给习写信
+Escribieron una carta a Xi
+
+建议中共中央
+Sugiriendo al Comité Central del Partido Comunista de China
+
+由于2022年冬季奥运会
+Por los Juegos Olímpicos de Invierno de 2022
+
+还要想办法要举办成功
+Debe buscar la manera para realizarlo satisfactoriamente
+
+这是解决世界国际形势
+Esto es para resolver la situación internacional del mundo
+
+对我不利的这种环境下
+Bajo la condición desfavorable para mi
+
+要争取召开成功的2022年的冬奥会
+Hay que luchar por el éxito de los Juegos Olímpicos del Invierno de 2022
+
+这个冬奥会呢, 很重要
+Este Juego Olímpico del Invierno es muy importante
+
+这段时间不要对台湾有动作
+En estos tiempos no deben tener ninguna acción hacia Taiwán
+
+建议呢, 还是给台湾施压
+Les recomendo, igual sigan dando presión a Taiwán
+
+让台湾内部乱
+Provocando desorden dentro de Taiwán
+
+然后把它经济上
+Luego causando desorden en la parte económica
+
+民生上, 社会状态上弄乱它
+Sustento de las personas y en su estado social
+
+然后这个一说出来呢
+Después al decir esto
+
+习还是挺听的
+Xi lo escuchará
+
+习还是挺听的
+Xi lo escuchará
+
+哎 就是啊
+Ah, así es!
+
+这个冬季奥运会还是要搞的
+Igual hay que hacer algo con estos Juegos Olímpícos del Invierno
+
+然后再一个就是跟美国
+Luego vienen con EE. UU
+
+还是要想尽办法
+También se busca cualquier manera
+
+就是要跟它谈
+Para hablar con él
+
+还是对付川普的招, 跟你谈
+Hicieron el mismo truco con Trump, conversar contigo
+
+用谈来恢复信心
+Utilizan el diálogo para reestablecer la fe
+
+用谈来争取主动
+Para ganar la iniciativa
+
+然后这个主动权在我方
+Entonces esta iniciativa está de nuestro lado
+
+为什么呢
+¿ Por qué?
+
+因为拜登的民声不行
+Porque la reputación de Biden no es buena
+
+川普2022年中期大选要回来
+Trump regresará a la elección general de la mitad del período 2022
+
+美国内部的钟摆政治效应对我有利
+El efecto político del péndulo en Estados Unidos me beneficia
+
+而且美国经济必将走软
+Y la economía de Estados Unidos está destinada a debilitarse
+
+这对我有利
+Esto me beneficia
+
+国际的邪恶势力
+Fuerzas del mal internacional
+
+不会给你共产党太多机会的
+No le dará mucha oportunidad al PCCh
+
+他一定戳着共产党
+Él seguramente empujará al Partido Comunista
+
+还有这5个国家的邪恶势力
+Y la fuerza maligna de estos cinco países
+
+按照他们既定的计画方针
+De acuerdo con su plan establecido
+
+打台湾, 收香港
+Atacar a Taiwán y recoger a Hong Kong
+
+干美国
+Acabar con EE. UU
+
+他们一定会干美国的
+Ellos seguramente acabarán a EE. UU
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24](https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场发布 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-
-新浪网9月16日转载北京日报客户端消息，腾讯公司发布财经类信息专项整治通告，9月10日至16日，已清理违规内容29160条，处置账号2320个。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-19.png)
-
-2021年8月27日中共网信办以造谣宣传、敲诈勒索等乱象丛生为由对网络上的财经类自媒体进行封堵式整顿，尤其清理网上涉及讨论国内财经方针政策、经济数据，搬运境外评述国内财经领域的观点以及炒作负面信息，唱衰经济的相关内容或报道。
-
-2020年CCP病毒大爆发，国内实体经济严重衰退，企业破产，失业人数激增。在此前提下，房价物价大涨，中共经济甚至“扭负为正”。但在经济如此“窘迫”的境况下，中共并未对财经自媒体进行“查封”，而今中共鼓吹经济大兴，却反常地管控舆论，这一行径侧面反映出中共经济数据的虚假。“整治行动”适逢恒大集团的爆雷，而恒大地产又与国内经济“休戚与共”，可见财经整治的目的在于遮掩各种爆雷后的经济黑洞，通过封堵言论以弱化经济崩溃的影响。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-4.png)
-
-在中共网信办定下基调后，各大网站和平台纷纷开启打击行动，如微信、微博、抖音纷纷响应对各种违规发布的财经新闻、歪解经济政策等行为进行清查。新浪网9月9至15日删除违法违规信息880条，腾讯处置2320个账号。根据中共网信办的时间安排，10月26日前各媒体平台自行清理，之后将进行整治情况评估和下一阶段的专项整治，即言论封堵的时间跨度较长。
-
-虽然官方“封口”行动愈演愈烈，但一方面大量外企撤离，国内人口红利下降，国外技术封锁造成核心技术和工艺缺口难填，中共经济缺乏驱动力，而大搞基建和扩大消费虽然营造了资本快速流通的假象，但空账运营以及债务压力都导致地方政府财政更加吃紧，资金链断裂风险激增；另一方面虽然网络封堵，但如同恒大破产造成国内多地民众兑付风波，而接下来的民生、招行以及各大国企央企的爆雷仍将不可避免地掀起民众的“讨资潮”，经济假象再难维系。
-
-再结合郭先生爆料中提及绿色资本企业的陆续爆雷，以及美国经济崩溃导致中共经济在缺乏“外援”下最终瓦解，从时间节点上可见，中共的此次整治财经自媒体实际上是为了接下来的经济崩溃做铺垫。与2020年初的抗疫行动如出一辙，都是先通过查处造谣的名义将话语权集中于“官宣”口径，以此形成信息断层，进而继续蒙骗底层民众，甚至将经济崩溃归结于美国和西方国家的制裁或经济危机，进而煽动民族情结。
-
-新闻来源：
-
-[严打财经“黑嘴”！招财大牛猫公众号被永久禁言](https://news.sina.com.cn/c/2021-09-16/doc-iktzscyx4531475.shtml)
-
-[新浪网关于落实商业网站与自媒体违规发布财经类信息整治行动的公告](https://news.sina.com.cn/2021-09-16/doc-iktzqtyt6271089.shtml)
-
-[国家网信办启动清朗·商业网站平台和“自媒体”违规采编发布财经类信息专项整治](http://politics.people.com.cn/n1/2021/0827/c1001-32210888.html)
-
-[微信、抖音、微博等整治平台违规财经内容](http://finance.people.com.cn/n1/2021/0829/c1004-32211277.html)
-
-[微博开展财经违规内容专项整治，重点打击这8类问题！](https://www.163.com/dy/article/GIG8LT6I0519C6T9.html)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

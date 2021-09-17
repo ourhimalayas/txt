@@ -2,41 +2,35 @@
 ---
 
 
-## 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1536634/)
+## 视频|环球时报：更名台湾代表处将触碰中共红线
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536515/)
 
-**By:秘翻新闻**
-
-***2021-9-16***
-
+制作：香草山健身部 – 书记己嗝屁！
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
 
-**新闻摘要:**
+中共喉舌《环球时报》周日发表题为“美台敢改名，一定让他们付出沉重代价”的威胁社评，就此前《金融时报》有关台北代表处改名的报导进行战狼式回应。
 
-1、 比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务
+环球时报声称，以美台之间目前的动向，现在就需要做好全部准备，随时准备出击台海。此次美台如果采取上述更名行动，大陆应对台湾实施包括经济封锁在内的严厉制裁惩罚措施，并要派战机进入台湾领空，如果台军胆敢开火还击，中方应义无反顾给予“台独”势力决定性和毁灭性的打击。
 
-2、恒大员工爆料：许家印妻子及高管均提前兑付
+作为中共喉舌的《环球时报》这一表态表明，对于“武统收复台湾”中共蓄谋已久，且将不择手段！台湾及盟国间的任何互动都有可能成为中共“碰瓷”的借口，用来发动入侵台海的战争。
 
-3、中共国育龄夫妇不孕不育率高达12%至18%
+**文字版原文：**[《环球时报》: 更名台湾代表处将触碰中共红线!](https://gnews.org/zh-hans/1530356/)
 
-4、教育系统疫苗接种率超90%  面对疫情却如临大敌
+*发稿：童谣*
 
-5、最新消息：英格兰有30305人接种中共疫苗后21天内死亡
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-6、美英澳首脑宣布技术共享 联合抗共
+**更多资讯，更多关注**
 
-7、美SEC主席警告：270家中企有摘牌风险
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-8、未接种疫苗的法国医护人员将面临被停职的处罚
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-9、印度发现致命尼帕病毒感染病例
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a](https://gtv.org/broadcast/watch/61430772751e4f2b0e53f25a)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

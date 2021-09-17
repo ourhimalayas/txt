@@ -2,67 +2,45 @@
 ---
 
 
-## Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1537199/)
+## 视频| “跨国议会联盟”声援立陶宛与台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536581/)
 
-制作：秘翻原创组-秘翻盖视
-责编：Shifter
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-09-16-at-3.43.33-PM.png](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-16-at-3.43.33-PM.png)图片来源：视频截图
-Tucker Carlson：在集中的技术监控与广泛的社会服从
+制作：香草山健身部-书记己嗝屁！
 
-In a moment of centralized tech surveillance combined with mass social conformity
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-这正是身处我们现在生活的国度所面对的现实……
-and that’s exactly the country we’re living in right now……
 
-并且由于强制疫苗规定
 
-and thanks to vaccine mandates
 
-我们已经认可了你不能掌控你自己的身体
 
-we’ve established that you are not in control of your own body.
 
-你凭什么掌控你孩子的身体？
 
-what gives you the right to control your child’s body?
 
-这是个好问题
 
-That’s a good question
+由国际跨党派议员组成的“对华政策跨国议会联盟”周一在推特上贴出视频，表达他们与立陶宛和台湾站在一起，对抗中国胁迫外交的立场。
 
-正如乔·拜登本人周四向全国所说的
+包括欧洲议会、立陶宛、英、法、丹麦、瑞典等欧洲多国，以及日本、澳大利亚和新西兰的各国国会议员们，在该视频中以接力方式分别发言，呼吁全球民主盟友团结一致，谴责中共政府对立陶宛的威胁恫吓，以及利用经济手段胁迫弱小国家的黑帮式卑劣外交行径。
 
-As Joe Biden himself told the country on Thursday
 
-这（强制疫苗）与自由无关
 
-this is not about freedom
+**文字版原文：[“跨国议会联盟”声援立陶宛与台湾](https://gnews.org/zh-hans/1532844/)**
 
-这是真的。这与自由无关……
 
-And that’s true. It’s not about freedom…….
 
-我国当局
+*发稿：雪梨*
 
-that authorities in this country,
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-违背美国公民的意愿对他们进行了强制绝育和脑叶切除
+**更多资讯，更多关注**
 
-forcibly sterilized and lobotomized American citizens against their will.
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-为什么？以公共健康的名义
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Why? In the name of public health.
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-顺便说一下 可不仅仅是少数几个人
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-And it wasn’t just a few people by the way,
-
-而是很多人
-
-it was a lot of people
-
-(秘翻盖视仅为传播之用不拥有原视频版权）
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

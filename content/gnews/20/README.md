@@ -2,30 +2,45 @@
 ---
 
 
-## 福建疫区的孩子们展现的不是骄傲而是悲剧
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1537400/)
+## 恒大违约，崩溃在即！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1537059/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2_副本.png)
-据[**环球时报**](https://weibo.com/huanqiushibaoguanwei?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年9月16日 14:10](https://weibo.com/1974576991/KyqEnCZ9r?ref=home&amp;rid=4_0_8_6667930920252609091_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+作者：香草山商业部-往后余生Jane
 
-【[#福建抗疫的这些场景让人破防#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E6%8A%97%E7%96%AB%E7%9A%84%E8%BF%99%E4%BA%9B%E5%9C%BA%E6%99%AF%E8%AE%A9%E4%BA%BA%E7%A0%B4%E9%98%B2%23&amp;from=default)】幼儿园小朋友深夜11点半做完核酸不哭不闹，7个月大宝宝乖乖配合做核酸，核酸阳性小朋友背着行李独自接受检查……[#福建的孩子懂事得让人心疼#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%9A%84%E5%AD%A9%E5%AD%90%E6%87%82%E4%BA%8B%E5%BE%97%E8%AE%A9%E4%BA%BA%E5%BF%83%E7%96%BC%23&amp;from=default) 给这些勇敢的孩子点赞！福建加油！[L人民日报的微博视频](http://t.cn/A6M7oox2) ​​​​
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-从七个月大的婴儿到那位独行去接受检测的阳性儿童，他们正在经历的一切都是他们的父辈造成的，幼儿园小朋友一定要等到深夜11点半做完核酸吗？应该哭泣的年纪为什么不哭了呢？孩子的家长能够因为疫情的原因让孩子在幼儿园等到深夜11点半做所谓的核酸检测吗？如果你是这些孩子的父母，你会任由孩子等到凌晨一点还是把孩子领回家呢？
 
-三个月的宝宝可以翻身，六个月的宝宝可以坐起，九个月的宝宝可以爬行，可是视频里的这个七个月大的宝宝似乎早熟到让人吃惊的程度，这个所谓七个月大的宝宝到底是十七个月大还是二十七个月大还是三十七个月大呢？不管这个宝宝的真实月龄有多大，他表现的不是早熟而是社会的摧熟。
 
-造成孩子们凌晨一点还在班级里等待核酸检测结果的不是孩子们的勇敢，而是这个社会的无情，因为拍摄视频的不是孩子们的父母，拿孩子来制作正能量的也不是孩子们的父母，在这一场全人类有史以来最大规模的反人类的超限生物战面前，无辜的孩子们不仅成了牺牲品，而且在他们付出巨大牺牲的时候，他们还被做成了弘扬主旋律的正能量标本。
+中共国最大、系统性最强的房地产开发商恒大，在下周将面临无法支付债务利息及本金的窘境。公司现有3000多亿美元债务，已经资不抵债，实际上是违约即将到来。
 
-在这一场以孩子为秀场的反人类暴行中，这个社会是有罪的，他们用最夸张的形式把这些孩子推上了前台，孩子们的父母们不是无辜的，作为受害者的他们在不能保护自己孩子的同时也成了施害者。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3333-2021-09-15_22-05-42.jpg)
 
-撰稿：喜马拉雅的肉夹馍
+截至周四，恒大唯一交易的债券是2011 年 10 月以来的最低价格，正在跌至 0。与此同时，中共国房地产市场突然崩溃，8 月份的土地销售价值暴跌了 90%……。按销售额计算，碧桂园在过去两天内暴跌 16%，金地股价下跌 12%，跟着，广州富力地产下跌 10.8% 至 2008 年 12 月以来的最低水平，而绿城中国则下跌10.1%。 开发商及债权人前景无望，风险也将冲击银行。
 
-审核：喜马拉雅的馍夹肉
+花旗集团表示，对恒大的担忧使其他开发商更难以再融资。中共高收益美元的收益率已飙升至 13.7%，为去年 3 月市场崩盘以来的最高水平，在海外发行债券更加棘手。
 
-校对：Maarago
+评级机构惠誉表示，如果恒大或其他开发商发生违约，小型银行可能会面临增加的不良贷款。而标准普尔则将恒大评级下调得更深，变成垃圾。
 
-（文章内容仅代表作者个人观点）
+恒大等房地产诈骗公司以及背后的资本，是中共这场房地产骗局的无耻帮凶，多米诺骨牌崩盘效应将现。中共用高房价绑架了中国普通家庭几代人，将人民的财富洗劫一空。天灭中共！
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+参考链接：
+
+[https://www.zerohedge.com/markets/evergrande-suspends-trading-all-bonds](https://www.zerohedge.com/markets/evergrande-suspends-trading-all-bonds)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0

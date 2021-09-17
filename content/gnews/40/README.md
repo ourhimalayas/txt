@@ -2,25 +2,41 @@
 ---
 
 
-## 秘翻在线：教育部“承认”疫苗免疫屏障完败？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536861/)
+## 韩国金融服务委员会监管改革,本国大部分加密货币交易所将停业
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1536821/)
 
-撰稿：Julia
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-005155.jpg)
-中国日报网9月15日转央视新闻称，日前，中共教育部印发《关于进一步做好秋季学期和中秋国庆假期疫情防空工作的通知》，要求各地教育部门和学校要严防校园疫情的发生，并鼓励边境地区和内地境外输入人员流动比较频繁的地区，进行定期或不定期对全员或是按比例的核酸检测。
+作者：香草山教育部-浪迹天涯
 
-教育部应对（中共）新冠肺炎疫情工作领导小组办公室主任王等峰表示，目前中共国教育系统“18岁以上的师生员工疫苗两针的接种率已经超过了95%，12到17岁也是这样一个情况，目前在全国范围内的接种率大概是91%”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-从疫苗的功能来说，接种疫苗是为了建立免疫屏障。此前，中共国的“抗疫英雄”钟南山在今年6月曾对媒体宣称，“如果估计疫苗的保护率在70%左右，我们国家需要有80%或者以上的人接种疫苗，才有可能建立免疫屏障。”按照钟南山的假设，目前教育系统两针接种率已经远超建立免疫屏障所需的80%。照此，教育系统这个“免疫屏障”已经建立起来并且非常“牢固”，对付那“兴风作浪”的冠状病毒已经绰绰有余了。
 
-另据中国网财经9月16日消息，中共国家卫健委疾控局副局长黄正龙在国务院联防联控机制于当天举行的新闻发布会上宣称，“截止9月15日全国累计报告接种(中共)新冠疫苗超过21.6亿剂次，完成全程接种超过10亿人”。中共官方统计数据显示，中共国目前有14.1亿人口。根据以上数据，目前全国完成全程接种率约71%，至少接种一针的人口已达约82%。
 
-照这样的数据，教育系统之外的免疫屏障也即将进入“闭环”阶段。加之中共政府一直宣称国内疫情控制得非常好，即便有新的疫情出现，基本都是由境外输入导致。那么，只要出入境部门控制好了境外输入，教育系统根本无需“严阵以待”来应对疫情。即便偶有病毒被带入校园，90%接种率的“免疫屏障”难道形同虚设吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/09/韩国金融服务委员会监管改革预计将关闭本国大部分加密货币交易所.png)
 
-王等峰还表示，中秋、国庆假期即将到来，教育部门鼓励广大师生就地过节，非必要不离开当地。这让人回忆起今年春节，中共政府采取各种手段留住农民工就地过年，以防止疫情大面积爆发的情形。
+据Bitcoin.com网站9月14日报道，韩国金融服务委员会(FSC)即将针对数字货币的监管进行改革。由于无法遵守金融服务委员会发布的新监管框架，韩国60家交易所中的40家将被关闭。
 
-那么，教育部发的这个通知，到底是“多此一举”，还是间接承认中共政府宣称的疫苗免疫屏障已经完败？
+据悉，此项改革规定所有交易所都需要在FSC注册，才能获得在韩国的运营资格。该规定的截止日期为明年9月24日。法律规定，加密交易所必须与银行机构合作，为客户开设实名账户。然而，为避免洗钱的嫌疑，银行拒绝这种做法。这项规定不仅波及韩国本土的交易所，国际交易所也将受到影响。
 
-新闻来源 【[1](http://cnews.chinadaily.com.cn/a/202109/15/WS6141c0f1a310f4935fbedeb2.html)】【[2](https://baijiahao.baidu.com/s?id=1703640388849648308&amp;wfr=spider&amp;for=pc)】【[3](https://www.163.com/dy/article/GK1MPHQU05507W1Q.html)】【[4](http://www.stats.gov.cn/ztjc/zdtjgz/zgrkpc/dqcrkpc/ggl/202105/t20210519_1817702.html)】
+这项规则将使韩国客户流向有资质的加密货币交易所，而我们喜马拉雅交易所既有资质，也符合这些规则。相信喜马拉雅交易所在韩国上市后，将会受到更多韩国客户的青睐。
+
+（文章仅代表作者个人观点）
+
+参考链接：[FSC Regulatory Overhaul Expected to Shut Down 40 Crypto Exchanges in South Korea](https://news.bitcoin.com/fsc-regulatory-overhaul-expected-to-shut-down-40-crypto-exchanges-in-south-korea/)
+
+编辑/校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

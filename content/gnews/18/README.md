@@ -2,35 +2,30 @@
 ---
 
 
-## 虚假新闻：谣传沃尔玛欲采用莱特币，使后者价格大涨35%
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1536986/)
+## 福建疫区的孩子们展现的不是骄傲而是悲剧
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1537400/)
 
-评论:
-***一方面，监管不断加码，币圈波诡云谲；另一方面，币圈的暗黑操作被不断曝光，尤其是4%的持有者控制着96%的比特币，其它被控制的代币还打算趁被监管前再兴风作浪一把。总之，事出反常必有妖。小心！***
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2_副本.png)
+据[**环球时报**](https://weibo.com/huanqiushibaoguanwei?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年9月16日 14:10](https://weibo.com/1974576991/KyqEnCZ9r?ref=home&amp;rid=4_0_8_6667930920252609091_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-***此外，我们看到SEC今日公布了关于GTV私募的新闻稿后，CNBC、WSJ以及众多五毛水军继续肆无忌惮地抹黑造谣，甚至亡腚缸和九指妖又沆瀣一气地汇合了。它们现在全体出动，说明大决战地时刻到了。***
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2208.png)图片来源：Cointelegraph
-据Cointelegraph，作者：特纳·赖特（Turner Wright），2021年9月13日报道：
-“莱特币基金会尚未与沃尔玛达成合作”，杰伊·米拉说。
-周一早些时候，莱特币（LTC）的价格上涨至237美元以上，此前主要新闻机构错误地报道美国零售商沃尔玛将在其所有电子商务网站上推出加密货币的支付选项。
+【[#福建抗疫的这些场景让人破防#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E6%8A%97%E7%96%AB%E7%9A%84%E8%BF%99%E4%BA%9B%E5%9C%BA%E6%99%AF%E8%AE%A9%E4%BA%BA%E7%A0%B4%E9%98%B2%23&amp;from=default)】幼儿园小朋友深夜11点半做完核酸不哭不闹，7个月大宝宝乖乖配合做核酸，核酸阳性小朋友背着行李独自接受检查……[#福建的孩子懂事得让人心疼#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%9A%84%E5%AD%A9%E5%AD%90%E6%87%82%E4%BA%8B%E5%BE%97%E8%AE%A9%E4%BA%BA%E5%BF%83%E7%96%BC%23&amp;from=default) 给这些勇敢的孩子点赞！福建加油！[L人民日报的微博视频](http://t.cn/A6M7oox2) ​​​​
 
-CNBC、路透社、Decrypt和其它媒体周一报道称，沃尔玛计划从10月1日起在其零售网站上推出 “莱特币支付选项”。作为与莱特币基金会合作的一部分，该组织将资助并促进莱特币生态系统的采用。这些报道似乎来自于新闻分发机构GlobeNewsWire发布的一份新闻稿。该新闻稿声称，沃尔玛选择采用LTC进行支付是基于其 “更便宜和更快”的特点，而且该代币 “没有中央机构”。
+从七个月大的婴儿到那位独行去接受检测的阳性儿童，他们正在经历的一切都是他们的父辈造成的，幼儿园小朋友一定要等到深夜11点半做完核酸吗？应该哭泣的年纪为什么不哭了呢？孩子的家长能够因为疫情的原因让孩子在幼儿园等到深夜11点半做所谓的核酸检测吗？如果你是这些孩子的父母，你会任由孩子等到凌晨一点还是把孩子领回家呢？
 
-然而，根据CNBC的报道，沃尔玛的一位发言人在最初报道发出约一小时后证实了该新闻稿是“不真实的”。莱特币基金会的营销总监杰伊·米拉也告诉Cointelegraph，该公告并非来自该基金会。
+三个月的宝宝可以翻身，六个月的宝宝可以坐起，九个月的宝宝可以爬行，可是视频里的这个七个月大的宝宝似乎早熟到让人吃惊的程度，这个所谓七个月大的宝宝到底是十七个月大还是二十七个月大还是三十七个月大呢？不管这个宝宝的真实月龄有多大，他表现的不是早熟而是社会的摧熟。
 
-“莱特币基金会尚未与沃尔玛达成合作”，米拉说。
+造成孩子们凌晨一点还在班级里等待核酸检测结果的不是孩子们的勇敢，而是这个社会的无情，因为拍摄视频的不是孩子们的父母，拿孩子来制作正能量的也不是孩子们的父母，在这一场全人类有史以来最大规模的反人类的超限生物战面前，无辜的孩子们不仅成了牺牲品，而且在他们付出巨大牺牲的时候，他们还被做成了弘扬主旋律的正能量标本。
 
-来自Cointelegraph Markets Pro的数据显示，LTC的价格在假新闻传播后立即飙升超过35%，从175美元升至月度高点，超过237美元，然后急剧下降。截至发稿时，莱特币的价格为180美元。
+在这一场以孩子为秀场的反人类暴行中，这个社会是有罪的，他们用最夸张的形式把这些孩子推上了前台，孩子们的父母们不是无辜的，作为受害者的他们在不能保护自己孩子的同时也成了施害者。
 
-新闻来源：[https://cointelegraph.com/news/fake-news-litecoin-price-surges-35-following-walmart-adoption-hoax?utm\_source=Telegram&utm\_medium=social](https://cointelegraph.com/news/fake-news-litecoin-price-surges-35-following-walmart-adoption-hoax?utm_source=Telegram&amp;utm_medium=social)
+撰稿：喜马拉雅的肉夹馍
 
-翻译：洛杉矶盘古农场–U
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–U
-编辑：洛杉矶盘古农场–心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+审核：喜马拉雅的馍夹肉
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
 0

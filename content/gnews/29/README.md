@@ -2,35 +2,31 @@
 ---
 
 
-## 视频|环球时报：更名台湾代表处将触碰中共红线
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1536515/)
+## 秘翻在线：罗氏制药公司为办公室员工引入疫苗接种证书要求
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1536897/)
 
-制作：香草山健身部 – 书记己嗝屁！
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+撰稿：nstar
 
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-17-010723.jpg)**图片来源: F. Hoffmann-La Roche Ltd**
+制药公司罗氏(Roche)现在要求其办公室工作人员拥有病毒疫苗接种证书，更严格的措施将从9月20日开始适用。
 
-中共喉舌《环球时报》周日发表题为“美台敢改名，一定让他们付出沉重代价”的威胁社评，就此前《金融时报》有关台北代表处改名的报导进行战狼式回应。
+罗氏在巴塞尔雇佣的任何人不久将只能接种中共病毒疫苗、恢复或测试以后进入办公室。正如”BaZ”所写，制药公司希望引入疫苗接种证书，该措施将于2021年9月20日星期一生效。但是，它仅适用于不可以在家完成工作的员工。因此，只要您可以继续在家工作，疫苗接种证书的义务要求也可以被规避。
 
-环球时报声称，以美台之间目前的动向，现在就需要做好全部准备，随时准备出击台海。此次美台如果采取上述更名行动，大陆应对台湾实施包括经济封锁在内的严厉制裁惩罚措施，并要派战机进入台湾领空，如果台军胆敢开火还击，中方应义无反顾给予“台独”势力决定性和毁灭性的打击。
+制药公司的一位女发言人说，那些在实验室、生产或基础设施中工作的人不需要承担这项义务。
 
-作为中共喉舌的《环球时报》这一表态表明，对于“武统收复台湾”中共蓄谋已久，且将不择手段！台湾及盟国间的任何互动都有可能成为中共“碰瓷”的借口，用来发动入侵台海的战争。
+自本周起，先正达(Syngenta \*2)和隆扎(Lonza \*3)在办公室工作的员工都要接受疫苗接种证书。另一方面，诺华(Novartis \*4)公司还没有要求，甚至连办公室员工也没有要求疫苗接种证书。 诺华的一位女发言人告诉记者，公司正在不断审查事态发展和当局的命令中。
 
-**文字版原文：**[《环球时报》: 更名台湾代表处将触碰中共红线!](https://gnews.org/zh-hans/1530356/)
+问题是，这在法律上是否可以允许, 尚待核实.
 
-*发稿：童谣*
+*\*1 – Roche罗氏，总部位于瑞士巴塞尔的跨国医药研发生产商。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+*\*2 – Syngenta先正达 集团是国际领先的农业技术提供商，尤其是种子和作物保护产品，总部设在上海，并在巴塞尔、芝加哥和特拉维夫设有分支机构。 4先正达成立于2000年，2015年被中国化工集团公司收购。 2020年，先正达与姊妹公司阿达玛和中化集团下属的农业活动合并。*
 
-**更多资讯，更多关注**
+*\*3 – Lonza隆扎一家总部位于巴塞尔的瑞士化学和制药公司.*
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*\*4 – Novartis诺华制药集团，是一间总部位于瑞士巴塞尔的跨国制药及生物技术公司。它的核心业务为各种专利药、消费者保健、非专利药、眼睛护理和动物保健等领域。*
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**[信息来源](https://telebasel.ch/2021/09/15/roche-fuehrt-zertifikatspflicht-fuer-mitarbeitende-ein/?channel=105100#comments-exp)**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
