@@ -2,58 +2,51 @@
 ---
 
 
-## AUKUS联盟建立，美军在澳大利亚大幅加强军事存在
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1537888/)
+## 意大利针对所有从业者强制执行绿色健康通行证计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1537971/)
 
-#### 翻译：Lish
-校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-12.png)
-图片来源：One News Page
+栏目记者/责任编辑：火来
 
-在澳美合作的新时代，美国的舰艇、轰炸机、卫星和军事基地人员都将在澳大利亚各地大幅增加，旨在确保与澳洲在印太地区重要地位相匹配。
 
-在澳美英三国新近宣布的AUKUS联盟之后，美国国防部长劳埃德·奥斯汀和澳大利亚国防部长彼得·达顿宣布，由于中共国威胁性不断上升致使印度-太平洋局势恶化，美国将在澳大利亚大幅加强军事存在。
 
-“我很自豪地宣布，澳大利亚和美国将大大加强我们的强势合作，提高互操作性，并深化在印度-太平洋地区的联盟活动”，达顿先生说：“这将包括加强空中合作，通过轮流向澳大利亚部署所有类型的美国军用飞机。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-未来将有更多的“双边军事演习”，以及“与该地区的合作伙伴进行更多的联合演习”。双方领导人还签署了一份关于战略能力、合作和实施国防制造技术的“机密”意向声明，他们将建立新的后勤和维护基地，以支持所有加强的军事活动。
 
-该协议是经过数月讨论的产物，是第31次澳美部长级磋商会的一部分，达顿先生和奥斯汀先生与外交部长马里斯·佩恩和美国国务卿安东尼·布林肯一起参加了会谈。所有人都提到了中共国在印度-太平洋地区的崛起。
 
-两位领导人还同意加强与美国在太空和卫星方面的存在和合作。
 
-“我们也在展望那些将形成我们未来活动的领域，这些活动将扩大澳大利亚的太空知识和能力。我很高兴地宣布，澳大利亚国防部和美国国家侦察局也已承诺开展广泛的卫星活动，”达顿先生说。
 
-奥斯汀部长确认了美国在澳大利亚的存在的扩大，虽然他说新的安排“不针对任何事情或任何人”，但他说各国需要对中共国在该地区的企图保持清醒的认识。
+据路透社9月16日消息，意大利政府周四刚刚公布了将在10月15日开始实施的新防疫政策，政策中包括所有从业者，无论是来自公共事务服务还是私营企业，都必须出示健康通行证后才可以工作，违反的雇员及雇主均无例外地面对大额罚款。
 
-“今天，我们批准了主要的部队态势倡议，这将扩大我们在澳大利亚的准入和存在”，奥斯汀先生说：“我们同意立即采取措施，通过更深入的整合来提高互操作性。”
+可以获得通行证从业者包括，完全接种过疫苗，或刚从病毒感染中恢复，或当天病毒检测为阴性。这是世界上最严格的新冠病毒防疫政策，将给未接种疫苗的人施加巨大的压力，逼迫更多的人选择接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-7.jpg)图片来源：网络
+参考链接：
+[Italy makes COVID health pass mandatory for all workers](https://www.reuters.com/world/europe/italy-readies-law-make-covid-health-pass-mandatory-all-workers-2021-09-16/)
 
-“我们详细谈到了中共国的破坏（地区）稳定活动，以及北京违背既定规则和规范胁迫和恫吓其他国家的行为。”
+（本文仅代表作者观点）
 
-“在我们寻求与中共国建立建设性的、以结果为导向的关系的同时，我们将对北京破坏既定国际秩序的行为保持清醒的认识。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-所有四位领导人都对中共国发表了具体评论，表明中共国是澳美部长级磋商会议讨论的一个主要部分。
+终审： 鬼五
+校对/发稿：为真不破20
 
-达顿先生说，中共国对澳洲加强与美国的军事关系作出的消极反应，他并不感到意外，新（军事）安排的现实是在中共国的压力下确保该地区的安全。
+**更多资讯，更多关注**
 
-“这不是我们第一次看到中共国对澳大利亚所持立场反面的爆发。我们在本地区是一个自豪的民主国家。澳美合作使它成为一个更安全的地区，这就是现实，任何宣传都不能否定事实。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“**印太地区令人难以置信的不确定性**，构成了我们进行讨论的大部分基础。这是一个非常重大的不确定性，**比二战以来的任何时候都要严重。**”
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-布林肯先生重申了美国对澳大利亚的新支持，而澳大利亚正受到中共国的不公正对待。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-“在过去的几个月里，北京已经看到，澳大利亚不会退缩，经济报复的威胁和压力根本不起作用”，布林肯先生说：**“美国不会让澳大利亚在军事上孤军奋战，或者更好的说法是在球场上。”**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-“美国已经明确表示，像这些针对我们盟友的行动，将阻碍美国与中共国政府关系的改善。我们欢迎澳大利亚带头站出来维护我们的普遍价值。”
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-原文链接：[AUKUS: US military ramp-up in Australia to ensure ‘match fitness’ (afr.com)](https://www.afr.com/policy/foreign-affairs/us-military-ramp-up-in-australia-to-ensure-match-fitness-20210917-p58sfx)
 
-*发布：小红帽*
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
 
 0

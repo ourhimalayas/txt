@@ -22,14 +22,14 @@
 ### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [2021年9月16日 文贵先生盖特 11](/content/gnews/4/README.md)
+### [2021年9月16日 文贵先生盖特 13](/content/gnews/4/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 10](/content/gnews/5/README.md)
+### [2021年9月16日 文贵先生盖特 12](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021/09/14 文贵先生直播精要](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [2021年9月16日 文贵先生盖特 11](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [在接种疫苗52天后龙劭华昏倒抢救不治](/content/gnews/7/README.md)
  ` G-NEWS TAIWAN`
@@ -61,23 +61,23 @@
 ### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [政府机构强制将疫苗作为就业条件，将面临 5,000 美元每次的罚款](/content/gnews/17/README.md)
+### [Alex Jones 怒喊 人们再不觉醒，还去打毒针将会付出惨痛代价](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [欧盟议会成员呼吁成立调查组调查中共病毒起源](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [政府机构强制将疫苗作为就业条件，将面临 5,000 美元每次的罚款](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [王岐山给习近平提示的未来50年规划](/content/gnews/18/README.md)
+### [王岐山给习近平提示的未来50年规划](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/19/README.md)
+### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/20/README.md)
+### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
-
-### [比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/22/README.md)
- ` MOSREC`
 
 ### [秘翻在线：中共专制暴政使香港出现教师离职潮](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,30 +151,30 @@
 ### [中（共）国在澳潜艇将航行的海域做了什么](/content/gnews/46/README.md)
  ` Charlie`
 
-### [中共网控升级，全面清理“僵尸号”“空壳号”](/content/gnews/47/README.md)
+### [2021年9月16日 文贵先生盖特 10](/content/gnews/47/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中共网控升级，全面清理“僵尸号”“空壳号”](/content/gnews/48/README.md)
  ` 儒为`
 
-### [平民韭菜不够，私人银行客户来顶](/content/gnews/48/README.md)
+### [平民韭菜不够，私人银行客户来顶](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共申请加入跨太平洋伙伴协定 轮席主席国日本﹕须观察能否守规](/content/gnews/49/README.md)
+### [中共申请加入跨太平洋伙伴协定 轮席主席国日本﹕须观察能否守规](/content/gnews/50/README.md)
  ` G&#124;News TAIWAN`
 
-### [长崎大学被中共选中，对日本人民意味着什么？](/content/gnews/50/README.md)
+### [长崎大学被中共选中，对日本人民意味着什么？](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编](/content/gnews/51/README.md)
+### [2021/09/14 文贵先生直播精要](/content/gnews/52/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [国际要闻汇编](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利针对所有从业者强制执行绿色健康通行证计划](/content/gnews/52/README.md)
+### [意大利针对所有从业者强制执行绿色健康通行证计划](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [墙内要闻汇编](/content/gnews/53/README.md)
+### [墙内要闻汇编](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [AUKUS联盟建立，美军在澳大利亚大幅加强军事存在](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
-
-### [菲律宾要求法院批准用伊维菌素治疗中共病毒](/content/gnews/55/README.md)
- ` 墨尔本雅典娜农场`
 

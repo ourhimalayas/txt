@@ -2,14 +2,14 @@
 ---
 
 
-## 2021年9月16日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1538183/)
+## 2021年9月16日 文贵先生盖特 12
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1538245/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-G| Fashion 合作的都是给世界顶级大牌制作的工厂,有着悠久的历史，用同样的材料，独特的设计，但是我们 G|Club 会员可以享受到用最优惠的价格买到最顶级的产品。 郭先生打造的G｜Fashion 是想让中国人有尊严，有品位，享受着中西文化融合下对美和艺术，哲学的感悟，让我们中国的文化真正的能跟世界融为一体，打造出属于我们新中国联邦独特的设计和精神风尚，引领着世界@DDNYC#GFashion
-
-[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pb90dr2224)
+916：路大脑骗这个孙子，把这房子给毁了！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6a123aa685fe123f8d83807df4b1afb5-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/609a354310ce8b55f3d328ef954f1828-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/0689c8635ee8af63a382eec478b93558-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/bd6b75c63b35608c98509df681f45cc3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/c42c97889c870d03d865a30852067a28-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/f1dd96d93c260e86de70d831cb2f1e14-scaled.jpg)
+[【2021年9月16日】文贵先生盖特原文](https://gettr.com/post/pbafrtdb09)
 
 **喜联盟Gnews编辑部**
 
