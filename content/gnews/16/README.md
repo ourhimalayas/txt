@@ -2,103 +2,112 @@
 ---
 
 
-## 世界上有史以来最大的一单回扣中介费
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539038/)
+## “掩盖或隐藏与强制疫苗相关的风险”，“我们需要面对数据”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539095/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0.jpg)
-[https://gtv.org/video/id=61436922784c5a2583574de9](https://gtv.org/video/id=61436922784c5a2583574de9)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0-1.jpg)
+[https://gtv.org/video/id=61429170784c5a258356f723](https://gtv.org/video/id=61429170784c5a258356f723)
 
 **字幕内容:**
 
-**郭文贵**
-**Miles Guo**
+Dr. Robert Malone （mRNA Vaccine Technology Inventor)
+罗伯特·马龙博士（mRNA疫苗技术发明者）
 
-人类有史以来最大的白手套
-The biggest ‘white glove’(middleman) in human history
+I don’t know what it says about journalism,
+我不知道它对新闻业说了什么
 
-大家你们知道是多少钱吗？
-Do you know how much it is?
+or what it says about our culture that we always assume
+或者它对我们一直假设的我们的文化的看法
 
-我告诉你们，你们要认真数这个事
-I tell you, you have to count this matter seriously
+that someone must have an ulterior motive,
+一定有人别有用心
 
-记住我郭文贵今天说这话
-Mark my words today
+that it’s not sufficient to just be addressing an issue because it matters
+仅仅解决一个问题是不够的，因为它很重要
 
-我承担法律责任
-I take legal responsibility for what I say
+it because it is the ethically correct thing to do it,
+因为这样做在道德上是正确的
 
-希望被点到名的人来告我
-I hope someone I named will sue me
+there seems to be this assumption that everybody’s got an angle.
+似乎有这样的假设：每个人都有自己的角度
 
-一个人类有史以来拿到1200亿美元中介费的一单交易
-A single transaction that has received 120 billion US dollars in intermediary fees in the history of mankind
+I think it says more about the author than it says about me.
+我认为它对作者的描述多于对我的描述
 
-中国的政府官员，他的白手套拿了1200亿
-Chinese government officials, his middleman (White Glove) took 120 billion dol-lars
+And so this kind of casting shade and aspersions on me personally,
+所以这种对我个人的质疑和诽谤，
 
-这1200亿是纯现金
-This 120 billion dollars are pure cash
+as a way to avoid addressing the underlying issues.
+是一种避免解决根本问题方式
 
-人家的1200亿是pure cash
-Its 120 billion dollars and are all pure cash
+I just see it as kind of noise and a little bit sad,
+我只是把它看作是一种噪音并且有点伤感
 
-一单就1200亿，人家是合法拿到1200亿美元
-they took 120 billion dollars in one transaction legally
+and it’s almost an affirmation.
+这几乎是一种肯定
 
-就一笔拿走，牛到这程度
-Just in one transaction, it is unbelievable
+If the strongest, they can come up with is to try to attack and cast shade on
+如果他们能想出的最有力的办法是，试图质疑
 
-张宏伟不仅有《酒浴》之图
-Zhang Hongwei not only has that “Wine Bath” picture
+whether or not I made a significant contribution that led to over nine patents.
+我是否做出了导致超过 9 项专利的重大贡献
 
-张宏伟的大老板叫陈元
-Zhang Hongwei’s big boss is Chen Yuan
+During the late 1980s.
+在 1980 年代后期。
 
-陈元是唯一促成沙特和中国共产党签署了阿美石油协议的5000亿美元现金投入
-Chen Yuan is the only one that led to the signing US$500 billion cash input of the Aramco Oil Agreement between Saudi Arabia and the Communist Party of China
+If that’s the worst they can throw at me.
+如果那是最糟糕的，他们可以诋毁我
 
-拥有20%沙特阿美股份的
-Owns 20% of Saudi Aramco’s shares
+I think I’m doing pretty good. So that’s how I see it
+我觉得我做得很好。所以我是这么看的
 
-按照这个合同25%的佣金现金，一笔支付
-According to this contract, 25% of the commission, paid in cash
+Jen Jekielek (Newsmax host)
+杰 凯莱克（Newsmax 主持人）
 
-支付的所有的安排对象都是张宏伟
-All the payment arrangements are made by Zhang Hongwei
+well. So sure, so you’re not trying,
+好, 所以肯定的你不去尝试
 
-我可以告诉大家
-I can tell everybody
+“ so hard to undermine the use of this vaccine technology”
+“很难破坏这种疫苗技术的使用”
 
-我说今天爆这个料全地球，全星空也不会有几个人知道
-I broke this information today that only a few people know in the earth and whole universe
+Dr. Robert Malone
+罗伯特·马龙博士
 
-但记住今天我报这个料，今天我说的
-But remember today what I said about this information
+No, it’s that my concerns here.
+不，这是我的顾虑
 
-世界上最大的一单的回扣中介费单笔的地球有人类有史以来
-The largest single commission intermediary fee in the world
+As I said, I think in our probe interview,
+正如我所说，我认为在我们的调查采访中，
 
-我就觉得就这一单了
-I think this is it
+is that there’s been a series of actions taken policies
+是采取了一系列行动政策
 
-最重要的事情，张宏伟能玩1200亿
-The most important thing is Zhang Hongwei can handle this 120 billion dollars
+taken or regulatory actions
+采取或监管行动
 
-现在看来就是这一单1200亿
-Now just look at this 120 billion dollars kickback
+taken that are at odds with how I’ve been trained with with the norms
+这与我接受规范的训练方式不一致
 
-一定会改变中国政治的格局
-It will definitely change the landscape of Chinese politics
+as I’ve always understood them to be
+正如我一直理解的那样
+
+the regulatory norms，the scientific norms.
+监管规范，科学规范
+
+These things have been waived.
+这些东西都被放弃了
+
+And I think for a lot of people it doesn’t make sense.
+我认为对很多人来说这没有意义
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24](https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24)
+**原视频链接:**[https://twitter.com/janjekielek/status/1436786615695855617?s=24](https://twitter.com/janjekielek/status/1436786615695855617?s=24)
 
-中听英: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶古农场 – Layka
+英听中: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场– 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
