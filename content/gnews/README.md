@@ -13,20 +13,20 @@
 
 ---
 
-### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/1/README.md)
+### [陈元、张宏伟拿到人类史上最大单笔佣金1200亿美元](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [陈元、张宏伟拿到人类史上最大单笔佣金1200亿美元](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [Text Version of Mr. Guo Wengui, Mr. Bannon, Mr. Navarro and Mr. Miller live broadcast on September 15th, 2021](/content/gnews/3/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [Japan Claims Suspected Communist Chinese Submarine Seen Near Territorial Waters](/content/gnews/2/README.md)
- ` GTV新闻访谈`
+### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/09/16文贵先生盖特精要](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [福建疫区的孩子们展现的不是骄傲而是悲剧](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [福建疫区的孩子们展现的不是骄傲而是悲剧](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
+### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [2021年9月15日郭文贵先生、班农先生、纳瓦罗先生和米勒先生直播全文字（中英文）版](/content/gnews/6/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
@@ -67,22 +67,22 @@
 ### [自媒体“黑嘴”易堵，经济黑洞难填](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/19/README.md)
+### [共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Tucker Carlson: 强制疫苗是政府以公共健康之名对公民人身的专制](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务](/content/gnews/20/README.md)
+### [比雷曼兄弟还要大5倍的恒大无法偿还3000亿巨额债务](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/21/README.md)
+### [视频| “跨国议会联盟”声援立陶宛与台湾](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频|环球时报：更名台湾代表处将触碰中共红线](/content/gnews/22/README.md)
+### [视频|环球时报：更名台湾代表处将触碰中共红线](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [视频|以色列卫生部长承认疫苗护照是胁迫](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [视频|英国政府批准为12至15岁青少年接种疫苗 引起家长愤怒](/content/gnews/24/README.md)
+### [视频|以色列卫生部长承认疫苗护照是胁迫](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [FDA高级官员辞职与毒苗计划崩溃前夕的关系](/content/gnews/25/README.md)
@@ -151,36 +151,36 @@
 ### [9/14/2021 国际财经快讯：阿波罗提出收购Tronox；前富国银行高管就虚假账户丑闻受审](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [我眼中的完美人生](/content/gnews/47/README.md)
+### [陈元、张宏伟拿到人类史上最大单笔佣金1200亿美元](/content/gnews/47/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [我眼中的完美人生](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/48/README.md)
+### [中共国四川泸州发生地震，伤亡成谜](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/49/README.md)
+### [欧盟推出“全球通道”战略 抗衡“一带一路”](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/50/README.md)
+### [香港警方勒令支联会移除网站及社交平台内容](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [2021年9月16日 文贵先生盖特 8](/content/gnews/51/README.md)
+### [2021年9月16日 文贵先生盖特 8](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/52/README.md)
+### [“一人犯过，罪及家人”&#8212;中共再掀“连坐制”](/content/gnews/53/README.md)
  ` 澳喜农场`
 
-### [2021年9月16日 文贵先生盖特 7](/content/gnews/53/README.md)
+### [2021年9月16日 文贵先生盖特 7](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 6](/content/gnews/54/README.md)
+### [2021年9月16日 文贵先生盖特 6](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月16日 文贵先生盖特 5](/content/gnews/55/README.md)
+### [2021年9月16日 文贵先生盖特 5](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [CCP必灭之科技篇](/content/gnews/56/README.md)
+### [CCP必灭之科技篇](/content/gnews/57/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年9月16日 文贵先生盖特 4](/content/gnews/57/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

@@ -2,30 +2,193 @@
 ---
 
 
-## 福建疫区的孩子们展现的不是骄傲而是悲剧
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1537400/)
+## 共产党只是暂缓攻打台湾，习以及国际暗势力一定会打台湾，干美国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1537414/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2_副本.png)
-据[**环球时报**](https://weibo.com/huanqiushibaoguanwei?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年9月16日 14:10](https://weibo.com/1974576991/KyqEnCZ9r?ref=home&amp;rid=4_0_8_6667930920252609091_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ahi4f-ek3kl-1.jpg)
+[https://gtv.org/video/id=6142083b784c5a258356c66b](https://gtv.org/video/id=6142083b784c5a258356c66b)
 
-【[#福建抗疫的这些场景让人破防#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E6%8A%97%E7%96%AB%E7%9A%84%E8%BF%99%E4%BA%9B%E5%9C%BA%E6%99%AF%E8%AE%A9%E4%BA%BA%E7%A0%B4%E9%98%B2%23&amp;from=default)】幼儿园小朋友深夜11点半做完核酸不哭不闹，7个月大宝宝乖乖配合做核酸，核酸阳性小朋友背着行李独自接受检查……[#福建的孩子懂事得让人心疼#](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%9A%84%E5%AD%A9%E5%AD%90%E6%87%82%E4%BA%8B%E5%BE%97%E8%AE%A9%E4%BA%BA%E5%BF%83%E7%96%BC%23&amp;from=default) 给这些勇敢的孩子点赞！福建加油！[L人民日报的微博视频](http://t.cn/A6M7oox2) ​​​​
+**字幕内容:**
 
-从七个月大的婴儿到那位独行去接受检测的阳性儿童，他们正在经历的一切都是他们的父辈造成的，幼儿园小朋友一定要等到深夜11点半做完核酸吗？应该哭泣的年纪为什么不哭了呢？孩子的家长能够因为疫情的原因让孩子在幼儿园等到深夜11点半做所谓的核酸检测吗？如果你是这些孩子的父母，你会任由孩子等到凌晨一点还是把孩子领回家呢？
+**郭文贵
+Miles Guo**
 
-三个月的宝宝可以翻身，六个月的宝宝可以坐起，九个月的宝宝可以爬行，可是视频里的这个七个月大的宝宝似乎早熟到让人吃惊的程度，这个所谓七个月大的宝宝到底是十七个月大还是二十七个月大还是三十七个月大呢？不管这个宝宝的真实月龄有多大，他表现的不是早熟而是社会的摧熟。
+这个我跟大家说一下
+Esto debo decirles
 
-造成孩子们凌晨一点还在班级里等待核酸检测结果的不是孩子们的勇敢，而是这个社会的无情，因为拍摄视频的不是孩子们的父母，拿孩子来制作正能量的也不是孩子们的父母，在这一场全人类有史以来最大规模的反人类的超限生物战面前，无辜的孩子们不仅成了牺牲品，而且在他们付出巨大牺牲的时候，他们还被做成了弘扬主旋律的正能量标本。
+这个很多问题啊
+Hay muchos problemas
 
-在这一场以孩子为秀场的反人类暴行中，这个社会是有罪的，他们用最夸张的形式把这些孩子推上了前台，孩子们的父母们不是无辜的，作为受害者的他们在不能保护自己孩子的同时也成了施害者。
+包括台湾的问题
+Incluyendo el problema de Taiwán
 
-撰稿：喜马拉雅的肉夹馍
+黑天鹅的问题
+El problema del cisne negro
 
-审核：喜马拉雅的馍夹肉
+我们本来今天还有很多要讲的
+Nosotros ibamos a decir muchas cosas más
 
-校对：Maarago
+黑天鹅的问题绝对是对习和共产党是一个很大的震撼
+El problema del cisne negro seguramente fue un impacto para Xi y el PCCh
 
-（文章内容仅代表作者个人观点）
+他们信邪
+Ellos creen en el mal
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+不是说他不信邪
+No digo que no cree en el mal
+
+他信邪
+Él cree en el mal
+
+但是呢有很多的党内的
+Sin embargo, hay muchos que están en el partido
+
+像江, 曾
+Como Jiang, Zeng
+
+还有像张德江,李长春
+Y también Zhang Dejiang, Li Changchun
+
+宋平
+Song Ping
+听说若干人
+Escuché a algunas personas
+
+包括江海洋 (似口误,可能是张海阳)
+Incluyendo a Jiang Haiyang (parece ser un error, puede ser Zhang Haiyang)
+
+都给习写信
+Escribieron una carta a Xi
+
+建议中共中央
+Sugiriendo al Comité Central del Partido Comunista de China
+
+由于2022年冬季奥运会
+Por los Juegos Olímpicos de Invierno de 2022
+
+还要想办法要举办成功
+Debe buscar la manera para realizarlo satisfactoriamente
+
+这是解决世界国际形势
+Esto es para resolver la situación internacional del mundo
+
+对我不利的这种环境下
+Bajo la condición desfavorable para mi
+
+要争取召开成功的2022年的冬奥会
+Hay que luchar por el éxito de los Juegos Olímpicos del Invierno de 2022
+
+这个冬奥会呢, 很重要
+Este Juego Olímpico del Invierno es muy importante
+
+这段时间不要对台湾有动作
+En estos tiempos no deben tener ninguna acción hacia Taiwán
+
+建议呢, 还是给台湾施压
+Les recomendo, igual sigan dando presión a Taiwán
+
+让台湾内部乱
+Provocando desorden dentro de Taiwán
+
+然后把它经济上
+Luego causando desorden en la parte económica
+
+民生上, 社会状态上弄乱它
+Sustento de las personas y en su estado social
+
+然后这个一说出来呢
+Después al decir esto
+
+习还是挺听的
+Xi lo escuchará
+
+习还是挺听的
+Xi lo escuchará
+
+哎 就是啊
+Ah, así es!
+
+这个冬季奥运会还是要搞的
+Igual hay que hacer algo con estos Juegos Olímpícos del Invierno
+
+然后再一个就是跟美国
+Luego vienen con EE. UU
+
+还是要想尽办法
+También se busca cualquier manera
+
+就是要跟它谈
+Para hablar con él
+
+还是对付川普的招, 跟你谈
+Hicieron el mismo truco con Trump, conversar contigo
+
+用谈来恢复信心
+Utilizan el diálogo para reestablecer la fe
+
+用谈来争取主动
+Para ganar la iniciativa
+
+然后这个主动权在我方
+Entonces esta iniciativa está de nuestro lado
+
+为什么呢
+¿ Por qué?
+
+因为拜登的民声不行
+Porque la reputación de Biden no es buena
+
+川普2022年中期大选要回来
+Trump regresará a la elección general de la mitad del período 2022
+
+美国内部的钟摆政治效应对我有利
+El efecto político del péndulo en Estados Unidos me beneficia
+
+而且美国经济必将走软
+Y la economía de Estados Unidos está destinada a debilitarse
+
+这对我有利
+Esto me beneficia
+
+国际的邪恶势力
+Fuerzas del mal internacional
+
+不会给你共产党太多机会的
+No le dará mucha oportunidad al PCCh
+
+他一定戳着共产党
+Él seguramente empujará al Partido Comunista
+
+还有这5个国家的邪恶势力
+Y la fuerza maligna de estos cinco países
+
+按照他们既定的计画方针
+De acuerdo con su plan establecido
+
+打台湾, 收香港
+Atacar a Taiwán y recoger a Hong Kong
+
+干美国
+Acabar con EE. UU
+
+他们一定会干美国的
+Ellos seguramente acabarán a EE. UU
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24](https://twitter.com/se1y7cblljselva/status/1436935586665746434?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场发布 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
 0
