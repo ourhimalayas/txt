@@ -2,25 +2,41 @@
 ---
 
 
-## 作恶不停，中共推出全球首款吸入式病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1537842/)
+## 菲律宾要求法院批准用伊维菌素治疗中共病毒
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1537875/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09177.png)
-当前，在经历全球性的强制接种后，中共病毒疫苗灾难已在逐渐爆发，疫苗真相及危害已为越来越多人所了解。
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ivermectin-philippines.png)
+图片来源：Reuters
 
-中共央广网9月16讯，据9月15日召开的“2021第五届海南国际健康产业博览会”新闻发布会介绍，全球首款可吸入式新冠疫苗11月12-14日即将在展馆亮相，观众可现场体验吸入式新冠疫苗的使用方法。该款疫苗由由中共军事医学研究院陈薇团队与康希诺生物股份公司合作研发。截至2021年上半年，据WHO和ClinicalTrials.gov统计，全球已进入临床阶段的在研新冠疫苗共102个，通过非注射途径（包括口服、鼻喷、雾化吸入等）接种的新冠疫苗共14个。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-自2020年初中共病毒开始肆虐全球，郭文贵先生就一直警告世界，不要相信中共病毒疫苗，千万不要打疫苗，还十分形象的把中共病毒和疫苗比作“子母弹”。在2021年8月30日的直播中，郭文贵先生还代表爆料革命揭秘了中共病毒的解药、疫苗的真相及其背后隐藏的巨大阴谋，爆料革命正式进入“以苗灭共”的新征程。
+在菲律宾，两名众议院议员和一名参议员签署了一份请愿书，要求最高法院强制监管机构批准使用伊维菌素治疗中共病毒（COVID-19）。
 
-**在爆料革命将中共病毒及疫苗真相大白天下之后，世界各地反疫苗运动已不断兴起，在这种情况下，中共仍不收手还变着花样搞新疫苗，其傲慢和疯狂必将加速其灭亡**！
+根据菲律宾CNN发布的消息，参议员弗朗西斯·托伦蒂诺（Francis Tolentino）、众议员迈克尔·德芬索(Michael Defensor) （ANAKALUSUGAN 政党）和罗丹特·马尔科莱塔（Rodante Marcoleta）（SAGIP 政党）签署了请愿书。该请愿书将卫生部长弗朗西斯科·杜克三世（Francisco Duque III）和食品和药物管理局局长埃里克·多明戈（Eric Domingo）列为答辩人。
 
-信息来源：
+与立法者一起作为请愿人的还有荷马·林博士（Drs. Homer Lim）、玛丽亚·昆图（Maria Quinto）和拉斐尔·卡斯蒂略医生（Rafael Castillo）。
 
-[全球首款吸入式新冠疫苗亮相海南 不良反应发生率显著低于肌肉注射](https://www.163.com/news/article/GK0UDUUD000189FH.html?clickfrom=w_yw)
+请愿者正在寻求一份强制令，以命令政府机构“立即颁发”伊维菌素产品注册证书，并向生产和销售该药物的公司颁发许可证。他们还希望最高法院命令卫生部门批准“使用伊维菌素治疗中共病毒”。
 
-（本文只代表作者观点，与GNews网站无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
-+1
+众议院议员马尔科莱塔和德芬索于4月组织过一次活动，他们向医生和菲律宾公民分发伊维菌素。
+
+尽管菲律宾已安排使用伊维菌素治疗中共病毒的临床试验，但在结果出来之前，卫生部不会批准该药物。
+
+总统罗德里戈·杜特尔特(Rodrigo Duterte)不顾卫生部门的建议，拒绝劝阻使用伊维菌素。“如果我阻止使用伊维菌素，但结果证明它是有效的，我将受到指责，”杜特尔特上周说。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Lawmakers ask court to compel health officials to approve ivermectin vs COVID-19 | Philstar.com](https://www.philstar.com/headlines/2021/09/16/2127559/lawmakers-ask-court-compel-health-officials-approve-ivermectin-vs-covid-19)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+0
