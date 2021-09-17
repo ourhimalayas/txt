@@ -31,14 +31,14 @@
 ### [2021年9月16日 文贵先生盖特 19](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [南达科塔州州长考虑起诉拜登的疫苗强制令](/content/gnews/7/README.md)
+### [灭共进入“以苗灭共”新阶段](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [南达科塔州州长考虑起诉拜登的疫苗强制令](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [以色列卫生部负责人称，冠状病毒传播达到创纪录的高度](/content/gnews/8/README.md)
+### [以色列卫生部负责人称，冠状病毒传播达到创纪录的高度](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [专家指责CDC挑选疫苗免疫数据以支持政治叙事](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [币安为应对监管审查，拟转变为中心化交易所](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -79,22 +79,22 @@
 ### [政府机构强制将疫苗作为就业条件，将面临 5,000 美元每次的罚款](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒](/content/gnews/23/README.md)
+### [IMF总裁被点名曾为中共造假 提高排名](/content/gnews/23/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线： 苏黎世前国民议会议员接种疫苗后仍死于中共病毒](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共和党检察官将就接种令起诉拜登政府](/content/gnews/24/README.md)
+### [共和党检察官将就接种令起诉拜登政府](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;](/content/gnews/25/README.md)
+### [欧盟将推 &#8220;全球通道 &#8220;反制中共 &#8220;一带一路 &#8220;](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [巴西政府官方表态 希望停止为青少年接种](/content/gnews/26/README.md)
+### [巴西政府官方表态 希望停止为青少年接种](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：习近平表示上海合作组织将增加伊朗为成员国 走“人间正道”](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共国大量申请6G技术专利，与控制全人类的联系](/content/gnews/28/README.md)
+### [秘翻在线：习近平表示上海合作组织将增加伊朗为成员国 走“人间正道”](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [美国24 个州威胁将对拜登的强制疫苗政策采取法律行动](/content/gnews/29/README.md)
@@ -148,33 +148,33 @@
 ### [官宣：彼特·那瓦罗先生成为新中国联邦国家代表大使](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾回赠日本血氧仪及制氧机](/content/gnews/46/README.md)
+### [秘翻在线：中共国大量申请6G技术专利，与控制全人类的联系](/content/gnews/46/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾回赠日本血氧仪及制氧机](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [香港支联会及核心成员被控煽颠罪](/content/gnews/47/README.md)
+### [香港支联会及核心成员被控煽颠罪](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/48/README.md)
+### [聚焦备战, 中共党魁习近平视察陕西火箭军](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [恒大集团暴的雷到底有多大？](/content/gnews/49/README.md)
+### [恒大集团暴的雷到底有多大？](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/50/README.md)
+### [恒大彻底崩盘, 愤怒的投资者冲进许家印办公室](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [六月雪狱](/content/gnews/51/README.md)
+### [专家指责CDC挑选疫苗免疫数据以支持政治叙事](/content/gnews/52/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [六月雪狱](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [独家：举报人称VAERS数据库严重漏报数据](/content/gnews/52/README.md)
+### [独家：举报人称VAERS数据库严重漏报数据](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [IIF表示二季度全球债务直逼300万亿美元，创历史新高](/content/gnews/53/README.md)
+### [IIF表示二季度全球债务直逼300万亿美元，创历史新高](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新加坡疫苗接种率达到 81% 后慢性病爆发](/content/gnews/54/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [22岁跳马冠军接种莫德纳疫苗后永远无法骑马](/content/gnews/55/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
