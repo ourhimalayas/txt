@@ -94,40 +94,40 @@
 ### [秘翻在线：FDA顾委会全票通过为65岁以上老年人注射中共病毒疫苗加强针](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国召回驻美和澳大使](/content/gnews/28/README.md)
+### [中共官媒称澳大利亚或成核打击目标](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线 :恒大倒闭危机导致铁矿期货价格暴跌](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国召回驻美和澳大使](/content/gnews/30/README.md)
  ` Charlie`
 
-### [世行调查发现现任IMF总裁推动工作人员提升中国排名](/content/gnews/29/README.md)
+### [世行调查发现现任IMF总裁推动工作人员提升中国排名](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [墨尔本反封锁抗议引发暴力冲突](/content/gnews/30/README.md)
+### [墨尔本反封锁抗议引发暴力冲突](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [IMF总裁被指控提升中国在世界银行报告中的排名](/content/gnews/31/README.md)
+### [IMF总裁被指控提升中国在世界银行报告中的排名](/content/gnews/33/README.md)
  ` wenwu`
 
-### [从五眼到三边，美国重塑抗中盟友圈？](/content/gnews/32/README.md)
+### [从五眼到三边，美国重塑抗中盟友圈？](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [银河快讯：丰田下月暂停日本14家工厂；日本质疑中共国是否有资格加入TPP](/content/gnews/33/README.md)
+### [银河快讯：丰田下月暂停日本14家工厂；日本质疑中共国是否有资格加入TPP](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/34/README.md)
+### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：英国最新病毒防御政策仍在依赖疫苗](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/36/README.md)
+### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [原来扒别人家祖坟是持枪砸郭的个人自由](/content/gnews/37/README.md)
+### [原来扒别人家祖坟是持枪砸郭的个人自由](/content/gnews/38/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [列举中共病毒“疫苗”严重伤害病例14例](/content/gnews/39/README.md)
+### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/40/README.md)
@@ -142,36 +142,36 @@
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [另一个超限战:数字人民币会踢走美元?](/content/gnews/44/README.md)
+### [墙内要闻汇编](/content/gnews/44/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [另一个超限战:数字人民币会踢走美元?](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平视频出席阿富汗问题联合峰会](/content/gnews/45/README.md)
+### [习近平视频出席阿富汗问题联合峰会](/content/gnews/46/README.md)
  ` 儒为`
 
-### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/46/README.md)
+### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/47/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [灭共小童谣](/content/gnews/47/README.md)
+### [灭共小童谣](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/48/README.md)
+### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [媒体的核力量](/content/gnews/49/README.md)
+### [媒体的核力量](/content/gnews/50/README.md)
  ` 澳喜农场`
 
-### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/50/README.md)
+### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：向善而生，向光明而生](/content/gnews/51/README.md)
+### [G时评：向善而生，向光明而生](/content/gnews/52/README.md)
  ` GISELLE`
 
-### [勿忘国耻，9.18窃国者的谎言](/content/gnews/52/README.md)
+### [勿忘国耻，9.18窃国者的谎言](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|欧盟出台最新印太战略](/content/gnews/53/README.md)
- ` MOSREC`
-
-### [有声|以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状](/content/gnews/54/README.md)
+### [有声|欧盟出台最新印太战略](/content/gnews/54/README.md)
  ` MOSREC`
 

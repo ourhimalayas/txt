@@ -2,35 +2,19 @@
 ---
 
 
-## 墨尔本反封锁抗议引发暴力冲突
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1540174/)
+## 法国召回驻美和澳大使
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1540234/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5568.jpg)图片来源：The Guardian
-**整理报道：**翼族
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09181-1.jpg)
+两天前，美国总统乔•拜登、澳大利亚总统斯科特•莫里森和英国首相鲍里斯•约翰逊通过视频会议宣布了在太平洋合作、应对中（共）国扩张主义的“Aukus”战略联盟的诞生。澳大利亚先前已经通过了以 560 亿欧元的价格购买 12 艘法国潜艇的“世纪合同”，当时澳大利亚郑重重申了与法国关系的重要性。现在法国宣布召回其驻华盛顿和堪培拉的大使回巴黎，Quai d’Orsay 公报称澳大利亚和美国于9月15日宣布的声明非常严肃。”
 
-周六，墨尔本因反封锁示威活动引发严重暴力冲突，维多利亚州警方逮捕了235名抗议者，十名警察受伤。
+堪培拉决定将从美国购买潜艇，而不是从法国。美、英、澳这三个国家现在联合在了一个新联盟中。法国方面的第一反应在外交上，这已经非常严厉和不寻常：外交部长让-伊夫·勒德里安谈到称澳大利亚是在“背后捅刀子”。同时法国政府立即取消了在菲利普·艾蒂安大使驻华盛顿官邸举行的晚会。发表评论十二小时后，Quai d’Orsay 在晚上宣布，它已将法国驻华盛顿和堪培拉大使召集到巴黎。法国称该协议的放弃和另一个联盟的诞生是盟友和合作伙伴之间不可接受的行为，这对我们的联盟概念和欧洲在印太地区的重要性产生了影响。
 
-周六维州政府公布该州记录了535例新增病例和1例死亡，约1000名抗议者起初聚集在里士满(Richmond)和霍桑(Howthron)的东北方向，随后在墨尔本中央商务区2000多名警察的包围压迫下，抗议者们试图转移抗议地点，最后引发了冲突。
+免责申明：本文只代表译者观点，与Gnews无关
 
-维多利亚州警察指挥官马克·加利奥特(Mark Galliott)告诉记者，共有235名抗议者被捕，其中有193人将会因违反了公共卫生令而被罚款。加利奥特说，抗议者因各种罪行而被捕，包括袭击警察、暴乱行为、武器和毒品犯罪等。
+原文链接：[https://www.corriere.it/esteri/21\_settembre\_17/francia-richiama-ambasciatori-stati-uniti-australia-il-patto-aukus-anti-cina-61915db8-17f1-11ec-b2b6-639c253d3354.shtml](https://www.corriere.it/esteri/21_settembre_17/francia-richiama-ambasciatori-stati-uniti-australia-il-patto-aukus-anti-cina-61915db8-17f1-11ec-b2b6-639c253d3354.shtml)
 
-在冲突中，有10名警官受伤入院，目前仍有3名警察留在医院接受治疗，伤势包括肌肉撕裂、骨折和瘀伤等。警方表示，他们在抗议活动中遭到抗议者向他们投掷石块、瓶子和其它物品，而其他一些受伤的警察则在冲突中被示威者践踏。
-
-周六，警方从上午8点至下午2点之间，关闭了往返该市的公共交通，同时警方在墨尔本市区周围设立了道路检查站、路障和巡回巡逻，以挫败抗议活动。警察最初设法用路障将抗议者限制在里士满，但是一些抗议者打开了某一座公寓大楼的大门，并逃出了当局的包围。
-
-地面录像显示，抗议者多次与警察发生冲突。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考链接：**[Melbourne and Sydney anti-lockdown protests: violent clashes as police arrest demonstrators](https://www.theguardian.com/australia-news/2021/sep/18/victoria-and-nsw-lockdown-protests-violent-clashes-as-police-arrest-demonstrators)
-
-*编辑/发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
 
 0
