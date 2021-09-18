@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/18/2021 2:46 AM (UTC)`
+
+九月十七号：我得乖乖呀！
+![img](https://media.gettr.com/group1/getter/2021/09/18/02/5e0dd79c-824c-842c-c331-780d10ef70dc/610e0062aae99d36f4f75733f06d3d51.jpg)
+
+---
+
 `@miles 9/18/2021 2:38 AM (UTC)`
 
 9/17/2021 Miles Guo: The settlement between the SEC and us assures that the fellow fighters‘ funds will be returned. More importantly, this settlement has made it clear we are not involved in any frauds or criminal offences and that we are not prohibited from entering the U.S. financial market in the future!<br/><br/>9/17/2021 文贵直播：我们和SEC的和解确保了战友能把钱拿回来，为此七哥也愿意接受调查；更重要的是，这次和解认定了我们不涉及任何诈骗或刑事犯罪，且没有禁止我们未来进入美国金融市场！<br/>
@@ -294,12 +301,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9月15号：感谢纽约州伟大的詹乐霞总检查长，和所有的调查此案的检察官，公正办案，维护美国法律的尊严，看明白了共产党在美国发动的，针对我们爆料革命的法律超限战，不被他们利用。他们的阴谋彻底失败，纽约州检察机构的有关GTV的刑事和解．彻底打脸，路大脑骗和海外的欺民远．这是我们爆料革命巨大的胜利✌️更加证明了美国的司法的伟大，一切都已经开始。(和解并不包括VOG，她们等着进监狱吧)
 ![img](https://media.gettr.com/group3/getter/2021/09/15/14/319f7a64-c810-f0bd-512c-2bb3be4549c5/out.jpg)
-
----
-
-`@miles 9/15/2021 1:51 PM (UTC)`
-
-9月15号，亲爱的兄弟姐妹们，大好消息！大好消息！大好消息！🎉🎉🎉🎉🎉🎉🎉👏👏👏👏👏👏👏 纽约检察长终止了对GTV和Saraca两家公司所有的刑事调查，证明这两家公司没有涉及任何刑事犯罪，这说明了共产党对这两家公司的折腾一年多的虚假报案，和所谓的经济、法律超限战，已彻底失败！赔了夫人折了兵！并且在美国浪费大量的资源！而我们大赢！💪💪💪让美国人看清楚了他们的假控诉，假告诉，假投资，法律超限战已经警醒了美国，感谢纽约检察院，秉公执法，依法办案，给了公司真相！🙏🙏🙏🙏🙏🙏🙏我们相信，给这两家公司带来巨大损失灾难的假控诉，这些中共的间谍，假控诉人，假报案人，假投资人，一定会受到美国的刑事调查，最终这些人会按照美国的法律，被依法严惩！共产党你完蛋啦……超限战失败了……彻底失败啦……！！！没毛的豆豆报假案白报啦！！！纽约检察长的终止调查保证中没有包括VOG，正如七哥说的，对VOG的刑事调查不会停止，九指妖你完蛋啦！！！看看七哥过去怎么说的……！！！💪💪💪✊✊✊<br/><br/>纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书<br/><br/>https://gnews.org/zh-hans/1534601/<br/><br/>ASSURANCE OF DISCONTINUANCE by LETITIA JAMES, Attorney General of the State of New York RE GTV Media Group, Inc., and Saraca Media Group, Inc.<br/><br/>https://gnews.org/1534522/
 
 ---
 
