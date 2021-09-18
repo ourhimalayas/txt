@@ -2,35 +2,35 @@
 ---
 
 
-## 从五眼到三边，美国重塑抗中盟友圈？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1539975/)
+## 墨尔本反封锁抗议引发暴力冲突
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1540174/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/7C142663-D7E4-4A45-9B50-37C23619A318_w1200_r1.jpg)从五眼到三边，美国重塑抗中盟友圈？ 网络图片
-据美国之音中文网报道，美国、英国和澳大利亚本周宣布在印度太平洋地区结成新的“澳英美三边伙伴关系”(AUKUS)。这个新合作机制能让美英澳三国在人工智能、网络技术、水下系统和远程打击能力等高科技领域分享信息和技术。尤其是美英两国将向澳大利亚提供核潜艇技术，助其建立一支核潜艇舰队。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5568.jpg)图片来源：The Guardian
+**整理报道：**翼族
 
-中共国拥有舰艇和潜艇约350艘，包括12艘核潜艇，有能力在西太平洋，包括台湾周边及南中国海海域挑战美国的海上优势。根据协议，美英两国将帮助澳大利亚建造至少八艘核潜艇。但是这些核潜艇不会装备核武器，三国会履行核不扩散国际义务。
+周六，墨尔本因反封锁示威活动引发严重暴力冲突，维多利亚州警方逮捕了235名抗议者，十名警察受伤。
 
-虽然三国官员都称美英澳三方合作“不针对任何国家”，但新的合作无疑会加强美国在南中国海和印太地区的威慑力，遏制中共国的科技野心。华盛顿智库哈德逊研究所政治-军事分析中心主任理查德· 魏茨（Richard Weitz）称，新的三边合作机制表明在阿富汗撤军后，拜登政府将重点放在亚洲。
+周六维州政府公布该州记录了535例新增病例和1例死亡，约1000名抗议者起初聚集在里士满(Richmond)和霍桑(Howthron)的东北方向，随后在墨尔本中央商务区2000多名警察的包围压迫下，抗议者们试图转移抗议地点，最后引发了冲突。
 
-美国在亚洲的盟友普遍乐见澳英美三边伙伴关系。美日印澳四国的“四方安全对话机制”（Quad）最早始于2004年，之后几乎沉寂，后在美国的牵头下于2017年重启。美国、澳大利亚和英国还是情报共享的“五眼联盟”成员，最早由美国和英国发起，加拿大、澳大利亚和新西兰后来加入。全球从“五眼”到“三边”，在不同维度应对中共国挑战。三边合作专注的是情报，五眼联盟则涉及的是防务和科技研究与投入。
+维多利亚州警察指挥官马克·加利奥特(Mark Galliott)告诉记者，共有235名抗议者被捕，其中有193人将会因违反了公共卫生令而被罚款。加利奥特说，抗议者因各种罪行而被捕，包括袭击警察、暴乱行为、武器和毒品犯罪等。
 
-欧洲地区的法国对AUKUS表示不满，尤其是澳大利亚与美英合作建造核潜艇，意味着澳大利亚与法国之间签订建造12艘常规潜艇、价值400多亿美元的合同告吹。法国宣布立即召回驻美国和澳大利亚大使，以抗议美澳核潜艇协议。
+在冲突中，有10名警官受伤入院，目前仍有3名警察留在医院接受治疗，伤势包括肌肉撕裂、骨折和瘀伤等。警方表示，他们在抗议活动中遭到抗议者向他们投掷石块、瓶子和其它物品，而其他一些受伤的警察则在冲突中被示威者践踏。
 
-美英澳新三边合作很可能会让一些欧洲国家感到失望，担心美国会对欧洲失去兴趣。但对美国来说，中共国是比俄罗斯更大的担忧，因此美国需要优先在亚太地区建立更强有力的伙伴关系。不过美国与北约仍然关系紧密。
+周六，警方从上午8点至下午2点之间，关闭了往返该市的公共交通，同时警方在墨尔本市区周围设立了道路检查站、路障和巡回巡逻，以挫败抗议活动。警察最初设法用路障将抗议者限制在里士满，但是一些抗议者打开了某一座公寓大楼的大门，并逃出了当局的包围。
 
-中共对全球的威胁日益严峻，全球将时刻调整策略来维护自身和全球安全。
+地面录像显示，抗议者多次与警察发生冲突。
 
-新闻参考链接：[https://www.voachinese.com/a/is-us-reshaping-its-counter-china-alliance-with-aukus-20210917/6233224.html](https://www.voachinese.com/a/is-us-reshaping-its-counter-china-alliance-with-aukus-20210917/6233224.html)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**参考链接：**[Melbourne and Sydney anti-lockdown protests: violent clashes as police arrest demonstrators](https://www.theguardian.com/australia-news/2021/sep/18/victoria-and-nsw-lockdown-protests-violent-clashes-as-police-arrest-demonstrators)
 
+*编辑/发布：翼族*
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

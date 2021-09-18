@@ -2,24 +2,38 @@
 ---
 
 
-## 青蒿素、伊维菌素对抗新冠状病毒完胜COVID19疫苗
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1539831/)
+## 有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1539914/)
 
-台湾宝岛农场 Amitofu
+配音：香草山美食部 – 玫瑰圓
 
-印度全国的疫情在过去三个月大幅舒缓，**印度人口约14亿有29个邦，其中印度北方邦UP的人口数高达2亿人，在今年4月24日新增病例37944人**，5月24日新增病例3894人，到了6月24日新增病例减少为224人。 8月开始7天平均新确诊病例小于50人，最新的9月16日新确诊病例23人，7天平均值18人。由于印度北方邦政府接受了专家小组的建议使用Ivermectin，在2020年8月6日，北方邦政府正式批准在全邦使用Ivermectin这个药物。**他们利用Ivermectin 与Doxycycline加上锌与维生素C与维生素D等辅助成分的组合，成功地击退了印度的第一波疫情，即使是在2021年4月到6月也在再度击退第二波delta变种病毒。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Covid19-Vaccine-fraud-400x225.jpg)
-**以色列人口900万人，全民接种辉瑞/BNT疫苗，目前确诊总数121万人，以色列政府强推疫苗，**最新的9月16日新确诊病例6191人，7天平均值8924人。**突破性感染的案例也越来越多，占所有新增病例一半以上。**现在面对每天确诊动辄7、8千人甚至破万人第4波疫情，唯一的方法就是不断打疫苗，目前已要求12岁以上民众施打第3剂疫苗，第3针同样锁定辉瑞/BNT疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/COVID-19-mRNA-Vaccination1.jpg)
-**马达加斯加人口2800万人，**目前确诊总数4.3万人，958人死亡，最新的9月16日新确诊病例0人，7天平均值2人。**由于2006年以来马达加斯加，使用青蒿素的联合疗法ACT来治疗单纯性疟疾，包括非恶性疟原虫疟疾。青蒿琥酯-氨二喹ASAQ和青蒿琥酯-卢美特宁分别是单纯性恶性疟疾的一线和二线治疗。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
 
-**使用伊维菌素、土霉素的印度北方邦UP的2亿人口数，**目前确诊总数171万人，2.3万人死亡，新确诊病例7天平均值18人，**每百人0.85人染疫。打疫苗的以色列人口900万人，目前确诊总数121万人，7465人死亡，新确诊病例7天平均值8924人，每百人14人染疫。使用青蒿素的马达加斯加人口2800万人，**目前确诊总数4.3万人，958人死亡，最新的9月16日新确诊病例0人，7天平均值2人，**每百人0.15人染疫。打疫苗的以色列染疫人数是印度北方邦的16.5倍，马达加斯加的93.3倍， 那么为什么各国要强迫施打疫苗呢?**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/COVID-19-mRNA-Vaccination2.jpg)
-印度北方邦，不但死亡人数远低于其他G7国家，每百万人口的死亡人数只是英、德、法、义这些国家的十分之一，**每百万人口的死亡人数更低到只有美国的20分之1。疫苗施打率最高的以色列，足以证明疫苗不是对抗新冠状病毒的最佳方案，反而是提高疫苗施打率，正快速增加新的确诊病例，让人不禁而寒的联想到文贵先生爆料中共与邪恶组织的灭白计画。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/G7-Covid19-Vaccine-fraud.jpeg)
-[印度用Ivermectin与微封城对抗疫情 近日单日死亡数仅1人](https://www.cmmedia.com.tw/home/articles/29771)
+路透社9月15日报道称，欧盟监管机构已针对抖音TikTok启动两项调查，涉及儿童个人数据的处理和向中国转移个人数据。
 
-祈祷万佛万神加持文贵先生与新中国联邦战友
-审核:Athena雅典娜 发布:Amitofu
+位于爱尔兰的数据保护委员会，作为世界顶级互联网公司在欧盟的主要监管机构，已获准可对抖音开出最高达其全球营收4%的巨额罚金。
+
+**文字版原文**：[欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](https://gnews.org/zh-hans/1536467/)
+
+*音频处理：喜山必胜Maverick
+发稿：童谣*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is image-159.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
+
+
 
 0

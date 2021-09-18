@@ -2,38 +2,30 @@
 ---
 
 
-## 有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1539914/)
+## 媒体的核力量
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1540179/)
 
-配音：香草山美食部 – 玫瑰圓
+撰稿：文雨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/媒体.png)
+图片来自https://en.m.wikipedia.org/wiki/St\_Vincent
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
+今天从澳洲的一则新闻报道说起。新闻说的是：二位未接种疫苗的护士导致悉尼一家医院的心脏手术停止无法进行。
+报道称：上周，在达令赫斯特的圣文森特医院的两名未接种疫苗的轮班护士工作后，被证实病毒，导致该州十几名顶级心脏病专家被迫隔离，并取消了多项紧急心脏手术。一位无法透露姓名的高级心脏病介入专家透露，心脏手术陷入停顿，几十个患者面临长达数周的延误。通常每天运行四个心脏导管实验室，由于成为暴露点和工作人员减少，现在只能维持一个手术室半天的运营。
 
-路透社9月15日报道称，欧盟监管机构已针对抖音TikTok启动两项调查，涉及儿童个人数据的处理和向中国转移个人数据。
+媒体借用这些糟糕的情形，还引用一部分人的报怨说：有人非常担心医院里的一小群护士不想接种疫苗。
 
-位于爱尔兰的数据保护委员会，作为世界顶级互联网公司在欧盟的主要监管机构，已获准可对抖音开出最高达其全球营收4%的巨额罚金。
+上述的媒体报道完全是个伪命题，而且是偷换了概念，严重误导了公众的视野，这篇报道无疑是对当前病毒大流行投下的另一枚核弹，危害无穷！让我们来分析一下：
 
-**文字版原文**：[欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](https://gnews.org/zh-hans/1536467/)
+其一，所有的有权威的卫生医疗机构和官方，包括媒体都认可，打了疫苗，并不能阻止你不被感染病毒，那也意味着即使二位护士打了疫苗，也可能被感染，媒体又怎能将上述糟糕的情形，归罪于不打疫苗？而且媒体并没有报道，是否对所有人员进行核酸检测，你能保证在这些接种疫苗的人中是否有无症状感染着？这些没有彻底调查和检测的情行下，媒体有何资格妄下结论？而且还在引导大众？
 
-*音频处理：喜山必胜Maverick
-发稿：童谣*
+其二，用这些媒体的逻辑，既然媒体认为打了疫苗的人是安全的，为什么要停止科室的各项工作？打了疫苗的工作人员完全可以继续工作，应该不会影响到医院的正常运作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+其三，这篇媒体报道似在宣扬疫苗的保护作用，那这里还要提出一个很明显基本的问题，如果疫苗有保护作用，为什么打过疫苗的人还需要保护呢？现在的媒体是在到处发表这些自相矛盾的混乱信息，以混淆视听，误导人们的判断。
 
-**更多资讯，更多关注**
+这次病毒大流行和疫苗运动中，充分向我们证实了媒体超核弹的力量，传播真相，撑握话语权是如此重要，所幸的是今天我们有G系列媒体平台，Gnews，Gtv和Gettre！
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考資料：https://www.smh.com.au/national/nsw/unvaccinated-nurses-bring-heart-procedures-to-standstill-in-sydney-hospital-20210916-p58s7v.html
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is image-159.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
-
-
-
-0
+(文章内容仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
++1

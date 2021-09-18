@@ -76,47 +76,47 @@
 ### [有声|彼得•纳瓦罗先生担任GETTR形象大使和新中国联邦国家代表大使](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [秘翻在线：新西兰对澳美英安全协议的反应表现了其战略上的愚蠢](/content/gnews/22/README.md)
+### [秘翻在线：澳大利亚前总理阿博特：澳英美安全协议为澳大利亚做了三件事](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美军在阿富汗的军事基地将成为中共国的资产](/content/gnews/23/README.md)
+### [秘翻在线：中共国加入CPTPP的目的是要重塑世界贸易规则](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：朝鲜再度加码核武计划被卫星抓包](/content/gnews/24/README.md)
+### [秘翻在线：新西兰对澳美英安全协议的反应表现了其战略上的愚蠢](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：FDA顾委会全票通过为65岁以上老年人注射中共病毒疫苗加强针](/content/gnews/25/README.md)
+### [秘翻在线：美军在阿富汗的军事基地将成为中共国的资产](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：维基百科发现被中共国团体渗透 相关人士、权限已被封锁](/content/gnews/26/README.md)
+### [秘翻在线：朝鲜再度加码核武计划被卫星抓包](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：爱荷华州医生：中共病毒疫苗接种者患癌风险增20倍](/content/gnews/27/README.md)
+### [秘翻在线：FDA顾委会全票通过为65岁以上老年人注射中共病毒疫苗加强针](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [IMF总裁被指控提升中国在世界银行报告中的排名](/content/gnews/28/README.md)
+### [世行调查发现现任IMF总裁推动工作人员提升中国排名](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [墨尔本反封锁抗议引发暴力冲突](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [IMF总裁被指控提升中国在世界银行报告中的排名](/content/gnews/30/README.md)
  ` wenwu`
 
-### [从五眼到三边，美国重塑抗中盟友圈？](/content/gnews/29/README.md)
+### [从五眼到三边，美国重塑抗中盟友圈？](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [银河快讯：丰田下月暂停日本14家工厂；日本质疑中共国是否有资格加入TPP](/content/gnews/30/README.md)
+### [银河快讯：丰田下月暂停日本14家工厂；日本质疑中共国是否有资格加入TPP](/content/gnews/32/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/31/README.md)
+### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：英国最新病毒防御政策仍在依赖疫苗](/content/gnews/32/README.md)
+### [秘翻在线：英国最新病毒防御政策仍在依赖疫苗](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线:美国司法部起诉大流行期间的医疗欺诈](/content/gnews/33/README.md)
+### [秘翻在线:美国司法部起诉大流行期间的医疗欺诈](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [推特将“台湾”和“中国”进行配对搜索](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [币圈新闻动态：喜交所上市后，可以通过HDO捐款法治基金](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
@@ -142,36 +142,36 @@
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/44/README.md)
+### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/44/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [灭共小童谣](/content/gnews/45/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/46/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [媒体的核力量](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：向善而生，向光明而生](/content/gnews/45/README.md)
+### [G时评：向善而生，向光明而生](/content/gnews/49/README.md)
  ` GISELLE`
 
-### [勿忘国耻，9.18窃国者的谎言](/content/gnews/46/README.md)
+### [勿忘国耻，9.18窃国者的谎言](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/47/README.md)
+### [有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/51/README.md)
  ` MOSREC`
 
-### [中共超限战灭港行动（七十四）中共组织爪牙 争夺「道德光环」话语权](/content/gnews/48/README.md)
+### [中共超限战灭港行动（七十四）中共组织爪牙 争夺「道德光环」话语权](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [GTV與SEC的和解對新中国联邦的意义](/content/gnews/49/README.md)
+### [GTV與SEC的和解對新中国联邦的意义](/content/gnews/53/README.md)
  ` 左媛专栏`
 
-### [对海外民运人士与组织的分析](/content/gnews/50/README.md)
+### [对海外民运人士与组织的分析](/content/gnews/54/README.md)
  ` 首尔天池农场`
-
-### [青蒿素、伊维菌素对抗新冠状病毒完胜COVID19疫苗](/content/gnews/51/README.md)
- ` G-NEWS TAIWAN`
-
-### [视频集锦：科学家、医生和各界人士谈疫苗背后的暗黑势力](/content/gnews/52/README.md)
- ` 墨尔本雅典娜农场`
-
-### [DC大中华时事：央视快评，构建更加紧密的上海合作组织命运共同体](/content/gnews/53/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
 

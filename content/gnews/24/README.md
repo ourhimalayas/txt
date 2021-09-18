@@ -2,22 +2,27 @@
 ---
 
 
-## 秘翻在线：朝鲜再度加码核武计划被卫星抓包
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1539737/)
+## 秘翻在线：新西兰对澳美英安全协议的反应表现了其战略上的愚蠢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540161/)
 
-#### 撰稿：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-80.jpg)图片来源：网络截图
-据福克斯新闻9月18日报道，根据新的卫星图像显示，朝鲜正在宁边核研究中心加强其核武器计划，扩大一个铀浓缩工厂，这可能会推进其生产武器级材料的能力。根据新工厂的规模，分析家们说这有可能使朝鲜增加1000台新的离心机。
+#### 撰稿：彩虹
 
-自2019年6月川普总统上次与金正恩会面以来，朝鲜一直相对平静。拜登政府执政8个月后，金正恩似乎又开始升级他的武器库，展示新技术并试探拜登，再次对地区和全球安全构成严重威胁。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-2-4.jpg)图片来源：Raw Story
+综合9月16日新加坡《海峡时报》（StraitsTimes）和澳大利亚《天空新闻台》（Sky News）9月17日的报道，针对新西兰总理杰辛达·阿德恩（Jacinda Ardern）表示不会取消长达数十年的核动力船只进入其水域的禁令，《天空新闻台》主持人克里斯·肯尼（Chris Kenny）对此发表了评论。
 
-两周前，国际原子能机构（IAEA）根据冷却水的排放，得出了朝鲜已经重新启动了其核反应堆的报告，这些发现“令人深感不安”。附近的放射化学实验室也有活动的迹象，那里的燃料棒被重新加工成钚。所有这些都很清楚地表明，朝鲜已经重新启动了其核武器开发计划。
+报道说，1985年，新西兰发布核动力船舶禁令，该禁令是法国在太平洋地区进行核试验后出台的，导致美国海军军舰在30多年内被禁止进入新西兰港口。
 
-试验后，国务院发言人普莱斯敦促采取外交方法解决问题，称拜登政府希望与金正恩对话，以实现朝鲜半岛无核化。然而，金正恩已经回绝了任何外展活动。
+对于AUKUS（澳美英安全协议），阿德恩在周四的一份声明中将其中核动力潜艇的交易描述为“主要围绕技术和国防硬件”。称“这一安排绝不会改变我们与这三个国家以及加拿大的安全和情报关系。”
 
-这个新的挑衅性的朝鲜使拜登的外交政策雪上加霜。混乱的阿富汗撤军的后果，重启伊朗核协议的尝试停滞不前，以及中共国作为一个独断的竞争者的崛起。随着朝鲜再次施展拳脚，拜登总统的身边又多了一根刺。
+对此，克里斯·肯尼说，新西兰对澳大利亚的核潜艇交易反应暴露了该国在国防和安全方面是“多么的可笑”。
 
-新闻来源：[North Korea may be ramping up nuclear weapons program again, satellite images show](https://www.foxnews.com/world/north-korea-nuclear-weapons-program-again-satellite-images)
+他认为，新西兰只是想“躲在那里，希望没有人打扰。但我告诉你，如果中共国在该地区出现了，那么澳大利亚和美国就帮不上忙了，因为我们的船只会被禁止进入新西兰的水域。这是战略上的愚蠢。”
+
+新闻来源
+
+[Australian nuclear subs will be banned from New Zealand waters:](https://www.straitstimes.com/asia/australianz/australian-nuclear-subs-will-be-banned-from-new-zealand-waters-ardern)
+
+[Ardern](https://www.straitstimes.com/asia/australianz/australian-nuclear-subs-will-be-banned-from-new-zealand-waters-ardern)[New Zealand ‘a joke’ when it comes to defence and security](https://www.skynews.com.au/opinion/chris-kenny/new-zealand-a-joke-when-it-comes-to-defence-and-security/video/589b6b25e8cc8e588d1fcc6ac95867eb)
 
 0
