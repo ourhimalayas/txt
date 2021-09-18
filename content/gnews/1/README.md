@@ -2,33 +2,36 @@
 ---
 
 
-## 中共商务部:拜登政府即将发起301调查
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1539607/)
+## 美SEC主席：再不接受审计，2024年前可能强制下市270家中概股
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1539002/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1000x-1.jpg)图片来源：Bloomberg
+－ SEC主席加里-詹斯勒在一篇专栏文章中写道，美国证券交易委员会可能在2024年前限制数百家中国公司的交易。
+－ 立法要求外国公司如果想在美国上市，必须允许其审计师接受检查。
+－ 詹斯乐回应了之前关于在美国上市的中国股票所有权结构相关风险的评论。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-17-PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+詹斯乐本周在《华尔街日报》的一篇专栏文章中警告说，美国证券交易委员会可能会在2024年前打击大约270家与中国有联系的公司的股票交易，除非这些公司允许其审计师接受美国监管机构的检查。
 
-视频参看： 2021.09.17晚GTV新闻访谈
+这位美国证券交易委员会主席正在处理越来越多的市场问题，从股市结构到加密货币银行业务，引用了针对2002年《萨班斯-奥克斯利法案》中的漏洞的立法，该法案规定，如果一个外国实体限制其审计师连续三年接受检查，则禁止公司交易其股票。
 
-[https://gtv.org/broadcast/watch/6145329942a8af3151a09577](https://gtv.org/broadcast/watch/6145329942a8af3151a09577)
+然而，在6月，参议院通过了加快这一期限的立法，将公司必须遵守的时间缩减到两年，詹斯乐表示，如果众议院接下来讨论这一问题，他将支持这一举措。
 
-[https://www.youtube.com/watch?v=V-E44QAoO\_4](https://www.youtube.com/watch?v=V-E44QAoO_4)
+“我不相信与中国有关的公司目前会提供关于他们所面临的风险的信息，因此使这些企业的美国投资者所面临风险”，Gensler说，他指出今年夏天来自中国政府的监管浪潮迫使一系列新的规则适用于中国公司。
 
-编辑/校对/发稿：香草山翻译部 – Lakers
+他还重申了对在美国上市的中国公司不透明的所有权结构的担忧。由于中国政府不允许外国公司拥有国内公司的所有权，希望在海外上市的中国公司必须建立在开曼群岛等地注册的壳公司。这些实体在美国上市，但它们在运营公司中没有任何真正的所有权。”我担心一些投资者没有意识到他们把钱投入到开曼群岛的壳中，而不是在中国运营的公司。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
+詹斯乐处理与中国有关的风险的举动只是他为该国最高金融监管机构制定的长长的待办事项清单中的一项。在周二对国会的讲话中，他指出了他关注的五个市场–国债、非国债固定收益、股票、掉期和加密货币。这些都是在企业信息披露、ESG和零售投资者保护等问题之上的。
 
-**更多资讯，更多关注**
+“无论在加利福尼亚、开曼群岛还是中国，所有寻求在深度和流动性的美国资本市场上筹集资金的公司都应该遵守美国的规则”，美国证券交易委员会负责人写道。
 
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：
+9[https://markets.businessinsider.com/news/stocks/sec-chinese-stock-regulation-outlook-restrictions-financial-auditing-gary-gensler-2021-9](https://markets.businessinsider.com/news/stocks/sec-chinese-stock-regulation-outlook-restrictions-financial-auditing-gary-gensler-2021-9)
 
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+发稿 Spirit
 
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+
++1

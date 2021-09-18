@@ -2,21 +2,23 @@
 ---
 
 
-## 皮特纳瓦罗成为新中国联邦大使和盖特形象大使
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1539249/)
+## 樱花灭共诗——民族主义精神
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1539164/)
 
-加拿大多伦多枫叶农场 播报：小苹果lily 制作：北美小哥
+#### 作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+商女不知亡国恨 ，隔江犹唱后庭花。
 
-皮特纳瓦罗成为新中国联邦大使和盖特形象大使！
+匹夫紧记当年耻， 党父灌输华夏邪。
 
-- 西方的精英们没能对抗邪恶，因为懦弱、害怕、贪婪正在走向不归路。
-- 盖特CEO米乐先生表示盖特会很快推出很多新功能。
+虽远必诛腾杀气， 比邻算斗披层纱。
 
+边疆失守何须齿， 世界独吞我一家。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-79.jpg)
+(本文只代表作者观点，与GNews网站无关)
 
-[参考链接](https://gnews.org/zh-hans/1537653/)
-
-* * *
-
-发布：夏星湖
-
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
 0

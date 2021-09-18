@@ -2,25 +2,39 @@
 ---
 
 
-## ABC Affiliate’s Pro-Vaccine Post Flooded With Vaccination Horror Stories
-` HimalayaNewZealand` [轉載自GNews](https://gnews.org/1539559/)
+## 郭文贵直播摘要和音频2021.9.17 ： SEC和解的意义
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1539294/)
 
-Writer: Lois
+摘要撰稿人：文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/091801.jpg)Source: WXYZ-TV Channel 7 Facebook Page
+音频提供者：左媛
 
-On Friday last week, American Broadcasting Corporation (ABC) affiliate WXYZ-TV in Detroit was [overwhelmed with vaccination horror stories on their Facebook page](https://www.facebook.com/80221381134/posts/10158207967261135/?d=n) after posting a request for followers to share stories of unvaccinated loved ones dying from COVID-19.
 
-Over 39,000 followers gave angry and devastated responses, detailing the deaths and adverse reactions they had witnessed amongst the vaccinated.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-17-at-7.43.54-PM.png)
 
-“I know people who died painfully from the vaccine. Want those stories?” commented country musician Adam Lee Marcus.
 
-Below are some screenshots of the responses:
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-211.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-212.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-213.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-214.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-215.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-216.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-217.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-218.png)
-[According to the Gateway Pundit](https://www.thegatewaypundit.com/2021/09/us-averaging-70-deaths-per-day-due-covid-vaccine-since-july-24th-3296-covid-total-vaccine-deaths-recorded-vaers-website/), by July, 11,405 vaccination deaths were reported to the United States Vaccine Adverse Event Reporting System (VAERS). Now the total has climbed to 14,701 reported deaths.
+## 视频：
 
-[World Tribune. (September 13, 2021). Unexpected and heartbreaking: Thousands flood ABC affiliate’s Facebook page with vaccination horror stories](https://www.worldtribune.com/unexpected-and-heartbreaking-thousands-flood-abc-affiliates-facebook-page-with-vaccination-horror-stories/).
+[视频链接：](https://gtv.org/video/id=61448b09751e4f2b0e547cad)
 
-Upload Layout: Candy
+## 音频：
+
+## 摘要：
+
+1. 精子歧视、卵子歧视
+2. 一定备青蒿素
+3. 安倍CPTTP跨太平洋合作组织，共产党捣乱，被习近平的一带一路取代
+4. 恒大实际债务远比2万亿多 最大的灾难 “金融票据”
+5. 绿地1万亿、富力5-8千亿、万达0.5-1万亿、保利2千亿、融创5千亿、合生创展朱孟依0.5万亿、房地产要救至少5万亿现金
+6. 中国房地产比美国 日本 德国 法国总和还多，95万亿
+7. 中国疫苗2024年前，可能会有1-2亿人突然死亡
+8. 今年年底前全世界的疫苗基本上就结束了，但中共国可能不会结束
+9. 火浴酒浴等推出照片大家会很惊讶 高清相机拍的照片 还有在现场的人 大家会惊讶于这些人竟然在现场
+10. 雷曼兄弟倒闭前所有的资料被某组织提前精细掌握，某组织提前精准预测各种金融灾难发生
+11. 路大脑骗和蛇妖闫现在缺席审判就意味着政治庇护彻底做不了了！
+12. 纽约总检察长最最后一刻拿掉对老GTV的罚款，而且同意将GTV和VOG分开，非常感谢她
+13. 郝海东大哥抱孙子了-郝润泽喜得贵子
+14. 七哥曾经被挂着牌子游街，骂人是权力，但要承担后果。
+
 
 0

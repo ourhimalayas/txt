@@ -2,55 +2,45 @@
 ---
 
 
-## 列举中共病毒“疫苗”严重伤害病例14例
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537848/)
+## 9/17/2021国际财经快讯：摩根下周在英国将推出数字银行Chase；美联储“缩减”时间表
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1538653/)
 
-**撰稿**：柯亭（㊙️翻原创组）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-56.png)[图片来源](https://dzm0ugdauank9.cloudfront.net/)
+**1.美联储的“缩减”时间表与不稳定的就业数据相关联**
 
-**校对**：卡拉马佐夫姐姐
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210917-中共病毒疫苗严重伤害病例14例.jpg)
-**图片来源：**** **[**Ernest Ramirez****推特**](https://twitter.com/rgvrunner01/status/1438352089852399619/photo/2)
+[华盛顿（路透社）–美联储面对可能停滞不前或处于激增边缘的劳动力市场，预计下周将打开减少其每月债券购买量的大门，同时将任何实际变化与9月及以后的美国就业增长挂钩。包括主席鲍威尔在内的美联储官员曾表示，美国央行每月1200亿美元的债券购买规模可能在今年晚些时候缩减，作为结束2020年春季冠状病毒大流行时实施的危机时期政策的第一步。但在8月份意外地增加了23.5万个就业岗位后，官员们将希望保持他们的选择，准备在11月2-3日的政策会议上尽快减少债券购买，如果就业增长反弹和中共病毒风险消退，但也能够在病毒阻碍复苏的情况下推迟任何“缩减”。](https://www.oann.com/november-december-feds-taper-timeline-tied-to-volatile-jobs-data/)
 
-自中共病毒“疫苗”进入临床施打以来，经常看到主流媒体假新闻报道感染中共病毒重症和死亡的案例，其中一个必不可少的“结论”，是重症患者本人或死者家属都建议世人尽快接种“疫苗”。
+**2.****更严格的欧盟机场限时规定引发亚洲报复威胁**
 
-笔者记得有一个报道，一个据称曾有心脏病的60多岁的人在接种“疫苗”后死亡，该报道依然以死者家属的口吻建议世人尽快接种疫苗；其混账逻辑是：该死者如果没有接种“疫苗”，可能会因感染中共病毒而死亡，并且死得更惨（与接种“疫苗”死亡相比）。
+[(路透社）–新加坡和香港等亚洲枢纽的监管机构威胁要对欧盟的计划进行报复，迫使航空公司开始使用在冠状病毒大流行期间冻结的起飞和降落机位，此举可能迫使欧洲的航空公司亏损地飞行数千英里的空位。控制亚洲主要机场机位的当局准备对飞往亚洲城市的欧洲航空公司提出类似的 “不使用就失去 “的条件–这提高了因中共病毒的不均衡影响而发生行业贸易战的前景。在大流行期间，当承运人被救助或试图维持生计时，行业领导人表示，在全球进入多速复苏阶段时，这场争端重新点燃了分散的行业的基本分歧。“这是一场贸易战吗？当然是一个萌芽，”总部设在悉尼的CAPA航空咨询中心名誉主席、前澳大利亚航空谈判代表彼得-哈比森说。“而且，随着更多的航空公司倒闭，国际市场仍然关闭，或者充其量是不确定，它将会更加突出。”](https://www.oann.com/exclusive-tougher-eu-airport-slot-rules-trigger-asia-retaliation-threat-risk-industry-trade-war/)
 
-这些主流媒体假新闻报道的病例的另一个特点，是很多病例的家庭成员或朋友会在gofundme.com网站筹款：[例一](https://www.gofundme.com/f/help-evans-family-with-funeral-cost?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=p_cp+share-sheet&amp;fbclid=IwAR010GNL6SuzbX2oHFEyck8TGsCJVLifx_gnLNsO8mK-T8fdwGxERhWW324)、[例二](https://www.gofundme.com/f/danny-bakers-covid-recovery-fund?qid=7a7d543ea68a8dcf3341b5405758fa4b)、[例三](https://www.gofundme.com/f/help-erin-with-her-struggle-with-covid19?qid=7a7d543ea68a8dcf3341b5405758fa4b)。但是，它们从不报道接种“疫苗”受伤害者的任何消息，就好像根本不存在一样。
+**3.****特斯拉将与全球监管机构在数据安全方面进行合作**
 
-9月16日，在gofundme.com用“covid vaccine”搜索，看到了如下14个因接种“疫苗”受伤害而筹款的病例。其中所列发生时间，是指该筹款网页在gofundme.com建立的时间。
+[（路透社）–特斯拉公司首席执行官埃隆-马斯克周五在中国的一个行业活动中表示，特斯拉将与全球监管机构合作，确保数据安全。特斯拉在上海为中国市场组装汽车，今年在中国受到了有关其存储和处理客户数据的审查。汽车正在安装越来越多的传感器和摄像头，以协助司机，但这种设备产生的数据也引起了关于隐私和安全的问题。”马斯克在中国南部海南岛举行的世界新能源汽车大会上通过视频链接说：”随着自动驾驶技术的迅速发展，车辆的数据安全问题比以往任何时候都更引起公众关注。5月，路透社报道说，由于对车辆摄像头的安全担忧，一些中国政府办公室的工作人员被告知不要将他们的特斯拉汽车停在政府大院内。](https://www.oann.com/tesla-to-work-with-global-regulators-to-ensure-data-security-musk/)
 
-[病例1](https://www.gofundme.com/f/pqd2v-help-with-living-expenses?qid=cc1e243658079d53b45a658d8f35b276)，9月15日，Crystal，女。伤害表现是心包炎和贝尔氏面瘫（Bells Palsy）。
+**4.****外来****竞争者****正在****改变传统银行业的游戏规则**
 
-[病例2](https://www.gofundme.com/f/help-liz-recover-from-covid-vaccine-symptoms?qid=e340a1205f635556802ff118adc4adac)，9月10日，Liz，36岁，女。3月22日接种Moderna疫苗，第二天（接种后24小时内）出现胸部疼痛。4月3日在家出现心率过速，达173次/分钟（BPM）；随后有左臂麻木（dumb）、左手刺痛（tingling）、呼吸困难；打911电话后被送入急诊室。4天后，出现脸部麻木和刺痛。医院检查未发现明显异常，给服降心率药物。之后出现焦虑（anxiety），对多种环境因素特别敏感；然后有卵巢疼痛；然后有颤抖、抽搐、肌肉无力、肌肉痉挛、烧灼感、剧烈的射痛、头晕、气短、胸闷、心率加快、失眠、行走困难（右侧身体更糟糕）；然后有偏头痛、口齿不清、记忆问题、严重的脑雾、极度疲劳、视力问题、耳鸣、右耳痛、脱发、遣词造句困难、无法集中注意力。再次去医院检查，依然没有发现检测指标异常。后来，一位神经肌肉（neuromuscular）专家确认她不是第一例，“12月-1月”那批“疫苗”接种者中也有其他人发生类似症状。之后，出现脸部、喉咙、以及整个右侧身体水肿（swelling）。再之后，有心脏专家诊断为体位性心动过速综合征（POTS）。直到5个月后的9月，依然有症状，看医生成为她的“全职工作”。
+[（路透社）–如今，任何人都可以成为银行家，你只需要正确的代码。从梅赛德斯和亚马逊到宜家和沃尔玛的全球品牌正在砍掉传统的金融中间商，并插入科技初创公司的软件，为客户提供从银行和信贷到保险的一切服务。对于成熟的金融机构来说，警告信号正在闪烁。所谓的嵌入式金融–这是一个花哨的术语，指的是公司整合软件以提供金融服务–意味着亚马逊可以让客户在结账时“现买现付”，奔驰司机可以让他们的汽车为他们的燃料付费。可以肯定的是，银行仍然是大部分交易的幕后推手，但投资者和分析师表示，传统贷款机构的风险在于，他们将被进一步推离融资链的前端。这意味着他们将进一步远离其他人正在收集的关于客户偏好和行为的大量数据–这些数据可能是他们在金融服务领域比银行更有优势的关键。](https://www.oann.com/banks-beware-outsiders-are-cracking-the-code-for-finance/)
 
-[病例3](https://www.gofundme.com/f/severe-heart-condition-from-covid-vaccine-dose-1?qid=e340a1205f635556802ff118adc4adac)，9月6日，Car，19岁，男。接种mRNA疫苗，8月27日由救护车送入医院。诊断为心包炎（pericarditis）。
+**5.福特公司停止在印度生产汽车
+**
+[新德里（路透社）–20世纪90年代中期，当福特汽车公司在印度建立其第一家工厂时，美国汽车制造商认为他们正在购买一个繁荣的市场–下一个中国。印度在1991年实现了经济自由化，政府欢迎投资者，中产阶级有望掀起消费热潮。预测者说，不断增长的可支配收入将帮助外国汽车制造商获得高达10%的市场份额。这一切都没有发生。上周，福特公司遭受了20亿美元的打击，停止在印度生产汽车，跟随通用汽车公司和哈雷戴维森公司关闭在该国的工厂。在留下来的外国人中，日本的日产汽车有限公司，甚至德国的大众汽车公司–按销售额计算是世界上最大的汽车制造商–在曾经预测到2020年成为第三大汽车市场（仅次于中国和美国）的汽车市场中各自占有不到1%的份额，年销售额达500万。](https://www.oann.com/ford-wakes-up-badly-burnt-from-its-india-dream/)
 
-[病例4](https://www.gofundme.com/f/9e9h3-kelseys-road-to-recovery?qid=e340a1205f635556802ff118adc4adac)，9月2日，Kelsey，女。过去3个月一直有症状，不能站立行走，血压低，血循环障碍。提及如下诊断：体位性心动过速综合征（POTS）、自主神经功能障碍、高肾上腺素功能状态。
+**6.****阿联酋今年可能在英国****增加****投资****14****亿美元**
 
-[病例5](https://www.gofundme.com/f/need-help-recovering-from-meningitis?qid=e340a1205f635556802ff118adc4adac)，8月26日，女。接种疫苗8天后，发生无菌化学脑膜炎（aseptic chemical meningitis）。
+[迪拜（路透社）–在本周承诺为其与英国政府的投资伙伴关系提供100亿英镑后，阿拉伯联合酋长国今年可能在英国再投资至少10亿英镑（14亿美元）。英国驻中东贸易专员西蒙-彭尼周五告诉路透社，从现在到年底，至少有10亿英镑的交易是“看得见的”。彭尼在一次在线采访中谈到阿联酋的投资时说：“人们对今年达到20亿（英镑）水平的期望很高。”](https://www.oann.com/uae-could-invest-further-1-4-billion-in-britain-this-year-uk-trade-official-says/)
 
-[病例6](https://www.gofundme.com/f/please-consider-helping-brittany?qid=e340a1205f635556802ff118adc4adac)，8月19日，Brittany，23岁，女。8月9日6:30pm接种“疫苗”，随后开车回家的路上有轻微晕眩。回家后出现头痛、晕眩、四肢麻木和刺痛；第二天5:30am起床后依然没有好转，且左眼后部疼痛；由兄弟送去医院；医院未作处理，回家几小时后，在洗手间昏迷倒地，由911急救送人医院；之后出现说话困难；做过很多检查，仅脑电图（EEG）发现异常，怀疑癫痫（seizure）。8月20日再次入急诊室，依然有症状，新出现右侧背下部疼痛、右腿麻木/放射痛、膀胱失禁。8月21日又再入急诊室。
+[负责监督阿联酋投资合作的阿布扎比主权财富基金穆巴达拉(Mubadala)没有立即回复电子邮件中的评论请求。这个石油资源丰富的海湾国家周四承诺在英国清洁能源、基础设施、技术和生命科学领域投资100亿英镑，扩大其与英国政府在3月份宣布的“主权投资伙伴关系”。](https://www.oann.com/uae-could-invest-further-1-4-billion-in-britain-this-year-uk-trade-official-says/)
 
-[病例7](https://www.gofundme.com/f/help-rosy-be-with-her-much-love-dad?qid=078b2e69597825205e08e0d3b670dc2d)，8月8日，男。伤害表现是中枢神经系统血管炎（vasculitis of the CNS）。
+**7.****超过****60****家韩国加密货币交易所将于下周暂停服务**
 
-[病例8](https://www.gofundme.com/f/baby-benjamins-education-expenses?qid=e340a1205f635556802ff118adc4adac)，8月6日，Matt，34岁，男。接种JNJ疫苗，伤害表现为脑静脉窦血栓形成 (CVST)。
+[首尔，9月17日（路透社）–韩国的60多家加密货币交易所必须在周五午夜前通知客户部分或全部暂停交易，这是一项新法规将在一周后生效。为了继续运营，交易所必须在9月24日之前向金融情报部门注册，提供互联网安全机构的安全证书。他们还必须与银行合作，确保实名制账户。没有注册的交易所必须在9月24日之后关闭服务，而那些已经注册但未能确保与银行合作的交易所将被禁止进行韩元交易。”金融服务委员会本周早些时候说：”如果部分或全部服务需要关闭，（交易所）应在关闭前至少7天通知客户预期的关闭日期和取款程序。它说这应该不迟于9月17日完成。](https://www.reuters.com/technology/over-60-skorean-crypto-exchanges-set-suspend-services-next-week-2021-09-17/)
 
-[病例9](https://www.gofundme.com/f/covid-vaccine-disaster?qid=e340a1205f635556802ff118adc4adac)，7月23日，Holly，男。伤害表现是肝、肾、甲状腺和胰腺多器官炎症。
+**8.****摩根大通将于下周在英国推出数字银行****Chase**
 
-[病例10](https://www.gofundme.com/f/please-help-my-my-sister-andrea-husband-kevin?qid=cc1e243658079d53b45a658d8f35b276)，7月9日，Kevin，男。9周前接种AZ“疫苗”。伤害表现是走路困难、癫痫发作、无法控制地颤抖、说话/表达困难。
+[伦敦，9月17日（路透社）–摩根大通（JPM.N）将从下周开始向英国高街银行和在线贷款机构发起大举进攻，推出其筹划已久的数字零售银行Chase。摩根大通发言人证实，摩根大通的第一家海外零售银行–大通银行将于周二推出其智能手机应用程序，最初提供活期账户。该在线企业的负责人Sanoke Viswanathan周五告诉《泰晤士报》和《金融时报》，该银行计划扩展到贷款和投资领域，如果成功的话还将扩展到其他国家，首先是欧洲大陆。摩根大通发言人证实了这些采访内容。摩根大通是继美国竞争对手高盛之后进入该市场的，该公司自2018年起向英国的消费者提供储蓄账户。](https://www.reuters.com/business/finance/jpmorgan-launch-digital-bank-chase-britain-next-week-2021-09-17/)
 
-[病例11](https://www.gofundme.com/f/help-brandon-during-his-battle-with-heart-failure?qid=e340a1205f635556802ff118adc4adac)，6月29日，Brandon，男。5月13日接种JNJ“疫苗”，2天后出现症状。双肺肺炎，心力衰竭仅有10%的功能，心下部血凝块，血压下降，水肿。
-
-[病例12](https://www.gofundme.com/f/5cyp3-help-rajesh-battle-covishield-vaccine-side-effects?qid=e340a1205f635556802ff118adc4adac)，6月27日，Rajesh，39岁，男。6月20日接种“疫苗”。伤害表现是格林巴雷综合征（Guillain Barre Sydrome），手脚瘫痪（paralyzed），需要用呼吸机。
-
-[病例13](https://www.gofundme.com/f/sandys-story?qid=078b2e69597825205e08e0d3b670dc2d)，6月23日，Sandy，男。接种JNJ“疫苗”，约2周后（5月份）的一个晚上醒来时发现瘫痪，送急诊室。诊断为格林巴雷综合征（Guillain Barre Sydrome）。
-
-[病例14](https://www.gofundme.com/f/kens-covid-recovery?qid=078b2e69597825205e08e0d3b670dc2d)，6月21日，Ken，男。接种第一针后出现问题，伤害表现是不能正常呼吸。
-
-另据[9月15日lifesitenews.com报道](https://www.lifesitenews.com/news/gofundme-de-platforms-dad-whose-only-son-died-after-pfizer-jab/)，拉米雷斯(Ernest Ramirez)因唯一的儿子死于注射辉瑞（Pfizer）mRNA，在gofundme.com筹款用于提醒世人实验性mRNA注射有危险。但是，gofundme.com以“禁止行为”为由，删除了拉米雷斯的筹款账号。他只好转移到lifefunder.com继续筹款，[这是链接](https://www.lifefunder.com/pfizervictim)。
-
-希望gofundme.com继续支持上述“疫苗”受害者的筹款和求助。呼吁世人不要接受注射这些实验性的“疫苗”。
-
-（文章仅代表作者本人观点）
+By【秘密翻译组-金融组】
+作者：千年等一回
 
 0

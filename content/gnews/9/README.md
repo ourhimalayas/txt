@@ -2,36 +2,31 @@
 ---
 
 
-## 前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1539544/)
+## 美国资助流亡维吾尔人开办“失踪者之墙”图片展
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1539141/)
 
-前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。 对美国人的大屠杀！！！！ 所有这些都将在我现在在亚马逊上的新书《在川普时代》中曝光。 【转门户专家网：重大新闻：印度北方邦宣布该州已无新冠肺炎COVID-19 ，证明“驱虫药”伊维菌素的有效性 门户专家(Gateway Pundit) 此前曾报道说，由于新规定将伊维菌素和羟氯喹推广到其庞大的人口中，因此印度的新冠 COVID 病例正在急剧下降。 周五，印度北方邦的 33个地区现已变为无新冠 COVID地区。 恢复率提高到98.7%，证明伊维菌素作为“北方邦 Covid 控制模型”的一部分的有效性。 当然，媒体不会提及伊维菌素被用于治疗COVID-19。】
+**撰稿：日本东京方舟农场 幽蘭自得**
 
+9月16日，一项展示数十名维吾尔被捕或失踪人士的图片展在日内瓦联合国大楼外举办，美国为这次展览提供了财政资助。
 
+据VOA报道，“失踪者之墙”(Wall of the Disappeared)竖立在联合国大楼的外面。联合国人权理事会为期一个月的会议于本周在这里开幕。展览还包括对营地幸存者有关强制绝育指称的采访。
 
-> Fauci killing Americans by suppressing therapeutics like hydroxy/ivermectin. Mass Murder of Americans!!!! All will be exposed in my new book In Trump Time on Amazon now.[https://t.co/OqW8jVBsaP](https://t.co/OqW8jVBsaP)
-> — Peter Navarro (@RealPNavarro) [September 17, 2021](https://twitter.com/RealPNavarro/status/1438851347265343490?ref_src=twsrc%5Etfw)
+“让面孔来代表统计数据对我们来说很重要，”自己的叔叔在展览中展出的祖姆雷泰·阿金(Zumretay Arkin)说。“忘记数字比较容易，但如果人们看到面孔，我们希望他们能领会形势的紧迫性。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/微信图片_20210917232951.png)图片来自于网络
+据悉，世界维吾尔代表大会(World Uyghur Congress)告诉路透社，美国为这次展览提供了资助。展览晚些时候将在布鲁塞尔和柏林展出。也有知情人士透露，本周早些时候，美国驻日内瓦使团在一次外交招待会上展示了它。
 
+美国常驻日内瓦代表团的一位发言人说，“我们致力于把人权置于我们的中（共）国政策的核心，而且我们将继续突出我们看到的中华人民共和国在中国各地，在新疆、西藏、香港和其他地方犯下的严重侵犯人权行为。”
 
+人权组织估计，有100万维吾尔人和其他少数民族被关押在中（共）国称为打击宗教极端主义的职业培训中心的营地。
 
-众议院外交委员会共和党： 领袖麦考尔：“长期以来，我一直在呼吁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在世界银行等跨国组织中构成的风险。我们必须确保中共在所有这些机构中遵守国际规则和规范。这就是我引入 HR 4774 的原因、HR 2329 和 HR 1934。”【附路透社报道：国际货币基金组织总裁被指在世界银行期间施压以有利中国。文章大意：一项独立调查发现世界银行领导人向员工施压以提高中国在《2018年营商环境报告》中的排名】
+*注：本文仅代表作者观点，与 Gnews无关*
 
+*参考链接：*
 
+[美国资助流亡维吾尔人在日内瓦联合国大楼外开办图片展](https://www.voachinese.com/a/us-china-xinjiang-uyghur-exhibit-20210916/6232287.html)
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "I have long been calling out the risks posed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) at multinational organizations such as the World Bank. We must ensure the CCP adheres to international rules and norms at all of these institutions. That's why I introduced HR 4774, HR 2329, and HR 1934." ⬇️
-> — House Foreign Affairs GOP (@HouseForeignGOP) [September 17, 2021](https://twitter.com/HouseForeignGOP/status/1438952182687150084?ref_src=twsrc%5Etfw)
+* * *
 
-
-
-众议员莫·布鲁克斯： 我和众议院自由核心小组[@freedomcaucus](https://twitter.com/freedomcaucus) 的同事们一起要求调查米利将军，他与共产主义的、敌对和实施种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 密谋在此过程中破坏了总司令的作用。 他的行为简直就是懦夫（充其量）和叛国。 【附布鲁克斯议员及其同事写给美国防部长奥斯汀的信函】
-
-
-
-> I joined my [@freedomcaucus](https://twitter.com/freedomcaucus?ref_src=twsrc%5Etfw) colleagues in demanding an investigation into Gen. Milley who conspired with a communist, hostile, and genocidal CCP undermining the Command-In-Chief in the process. His actions are nothing short of craven (at best) and treasonous. [pic.twitter.com/EEI0zgftl5](https://t.co/EEI0zgftl5)
-> — Mo Brooks (@RepMoBrooks) [September 17, 2021](https://twitter.com/RepMoBrooks/status/1438896024924327940?ref_src=twsrc%5Etfw)
-
-
-
-
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
 0

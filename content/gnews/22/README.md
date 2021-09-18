@@ -2,65 +2,33 @@
 ---
 
 
-## 中共正在帮助某大国建立三个生化实验室
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539182/)
+## 中共商务部:拜登政府即将发起301调查
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1539607/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/aoeg9-ehe2q.jpg)
-[https://gtv.org/video/id=61413380784c5a2583566dcb](https://gtv.org/video/id=61413380784c5a2583566dcb)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-**字幕内容:**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-17-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-**郭文贵
-Miles Guo**
+视频参看： 2021.09.17晚GTV新闻访谈
 
-此时此刻共产党
-At this moment, the Communist Party
+[https://gtv.org/broadcast/watch/6145329942a8af3151a09577](https://gtv.org/broadcast/watch/6145329942a8af3151a09577)
 
-正在帮助某大国正在建立三个重大的生化实验室
-is helping a country to establish three major biochemical laboratories
+[https://www.youtube.com/watch?v=V-E44QAoO\_4](https://www.youtube.com/watch?v=V-E44QAoO_4)
 
-正在建立中，建完干啥
-they are under construction right now, What will the lab be used for after it is built?
-你觉得生化实验室都是研究生化的吗？
-Do you think biochemical laboratories are all doing biochemical research?
+编辑/校对/发稿：香草山翻译部 – Lakers
 
-都是为人类服务的吗？
-Are they all serves for humanity?
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
 
-生化战争，这一次的冠状病毒
-It is for Biochemical Warfare, the coronavirus at this time
+**更多资讯，更多关注**
 
-让共产党和邪恶的这些国家尝到了好处
-makes the Communist Party and these evil countries to get the benefits
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-完全是不对称的战争
-It’s completely asymmetrical war
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-超限战的最成功的案例
-The most successful case of unrestricted warfare
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
 
-人类的金融战，数字话的货币和能源的彻底垄断
-The financial war of mankind, the complete monopoly of digital currency and en-ergy
-
-以及进入人类的生化战的时刻
-and also the moment to enter the biochemical warfare of mankind
-
-就在我们生命中已经开始了
-It’s already started in our life time
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1437376481454223366?s=24](https://twitter.com/se1y7cblljselva/status/1437376481454223366?s=24)
-
-中听英: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -2,191 +2,63 @@
 ---
 
 
-## 平安集团的董事段伟红，消失了整整四年，两周前出狱了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539131/)
+## 中共商务部表态拜登政府即将发起的301调查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1539400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/axltu-sfn8a.jpg)
-[https://gtv.org/video/id=6141326a784c5a2583566d28](https://gtv.org/video/id=6141326a784c5a2583566d28)
-
-**字幕内容:**
-
-**郭文贵**
-**Miles Guo**
-
-是平安的董事
-Es el director de Ping An
-
-温家宝家的代言人
-El portavoz de la familia de Wen Jiabao
-
-被抓去了四年消失
-Fue arrestado y desaparecido durante cuatro años
-
-我告诉大家
-Déjame decirles
-
-两周前, 段伟红出狱了
-Hace dos semanas, Whitney Duan salió de la prisión
-
-我可以告诉你们
-Puedo decirles
-
-几乎是除了中纪委, 中南坑
-Casi a excepción de la Comisión Central de Inspección Disciplinaria y la cueva del PCCh
-
-你们是最早知道了
-Ustedes son los primeros en enterarse
-
-就在今天, 此时此刻
-Sólo hoy, ahora mismo
-
-今天上午十点钟
-Hoy a las diez de la mañana
-
-段伟红的先生在英国伦敦
-El esposo de Whitney Duan en Londres de Reino Unido
-
-写了一本
-Escribió un
-
-他太太, 他太太已经离婚了啊
-Su esposa está divorciada
-
-写了一本中国腐败的书, 今天出版
-Escribió un libro sobre la corrupción en China donde hoy fue publicado
-
-今天纽约时报或华尔街日报可能会采访
-Hoy, el New York Times o el Wall Street Journal a lo mejor lo van a entrevistar
-
-此时此刻
-En este momento
-
-七哥不是爆料
-No estoy dando noticias
-
-不仅掌握情报, 还知道人下一步要往那儿走
-No sólo tengo las informaciones sino sé cuál es el siguiente paso de estas personas
-
-这就叫爆料革命
-A esto se le llama Movimiento de Denunciantes
-
-你知道段伟红是什么人啊
-¿ Sabes quién es Whitney Duan?
-
-平安的董事, 温家宝的代言人
-Es el director de Ping An y el portavoz de Wen Jiabao
-
-当年董事, 三个最牛的
-Los directores de aquel tiempo, los tres mejores
-
-段伟红代表温家
-Whitney Duan representa a la familia Wen
-
-车峰我哥儿们代表戴家
-Chefeng, mi compadre que representa a la familia Dai
-
-都是董事吧
-Todos son directores
-
-第三个独立董事, 大家猜是谁
-El tercer director independiente, adivinen quién es
-
-马明哲!
-¡ Ma Mingzhe!
-
-马明哲把段伟红送到监狱去
-Él fue quien envió a Whitney Duan a la prisión
-
-以为温家完了
-Creía que la familia Wen se acabará
-
-温家老妈后来都出来当股东了
-La madre de la familia Wen luego se convirtió en accionista
-
-实在没人出面了, 是吧
-Realmente ya no tienen a otra persona que pueda representar, ¿ cierto?
-
-温家宝娘都出来了
-Hasta la mamá de Wen Jiabao salió
-
-现在段伟红出来了
-Ahora que Whitney Duan salió de la prisión
-
-她老公还出书了
-Su esposo hasta publicó un libro
-
-别忘了, 没有温家宝, 没有习近平
-No olviden, sin Wen Jiabao, no existe Xi Jinping
-
-谁当时说假话, 陷害段伟红进的监狱
-Quien en aquel momento mintió e incriminó a Whitney Duan entrar a la prisión
-
-段伟红绝对是个好人啊
-Whitney Duan es una buena persona
-
-我告诉你, 段伟红绝对是个好人
-Déjame decirte, Whitney Duan es una buena persona
-
-谁陷害的段伟红? 马明哲
-¿ Quién incriminó a Whitney Duan? Ma Mingzhe
-
-为什么现在段伟红出来了
-Por qué ahora Whitney Duan sale de la prisión
-
-马明哲要出事了
-Ma Mingzhe entrará en problemas
-
-七哥现在跟你讲艺术呢
-Ahora te estoy hablando del arte
-
-讲艺术市场呢
-Del mercado de arte
-
-段伟红是帮助了
-Whitney Duan realmente ayudó
-
-知道马明哲底细
-Conoce los detalles de Ma Mingzhe
-
-可以说是中国最多的人
-Se puede decir que es la persona que sabe más
-
-知道平安秘密最多的人
-Acerca de los secretos de Ping An en China
-
-买古董, 押古董, 买画最多的人
-Quien compró más antigüedades, cuadros y apostó por antigüedades
-
-“火浴” 这个画
-Este cuadro “baño de fuego”
-
-最早接触者可能就是段伟红
-La primera persona quien contactó con él puede ser Whitney Duan
-
-原来有个亚洲卫视的人被枪毙
-Resulta que había un tipo asiático de la televisión que recibió un disparo
-
-叫啥名, 战友们记得吗
-Cómo se llama, compañeros luchadores, ¿ se acuerdan?
-
-就因为说英妹妹和江主席有一腿的人枪毙了
-Sólo porque el hombre dijo que la hermana Ying y el presidente Jiang tenían una relación rara y por eso recibió un disparo
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**：[https://gettr.com/post/pafgel2079](https://gettr.com/post/pafgel2079)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+栏目记者：andy5，葛朗台太太
+责任编辑：葛朗台太太
 
 
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-208.png)
+
+
+
+9月16日，中共商务部举行的例行发布会上，有媒体问及美国拜登政府正在就是否启动新一轮对华征税的301条款调查进行讨论。商务部新闻发言人束珏婷回应称，单边贸易保护主义不利于中共国，不利于美国，不利于世界经济恢复。
+
+据本栏目调查记者调查发现，拜登政府将讨论301条款调查的消息是由彭博社（Bloomberg）首先公开的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/中共商务部表态拜登政府即将发起的301调查.jpg)
+彭博社在9月10日的文章中提到知情人士透露，本周五下午，也就是刚刚过去的今天下午，拜登的高级经济顾问，包括美国贸易代表凯瑟琳·泰和商务部长吉娜·雷蒙多将讨论是否发起对中共贸易补贴，及其对美国经济的损害的新的调查。
+
+他们还将讨论川普总统在 2020 年 1 月达成的贸易协议和执行手段，以及对大约 3,000 亿美元的中共国进口商品征收关税的走向。
+
+这两名知情人还透露说：美国贸易代表办公室已经要求外部顾问帮助量化中共国补贴造成的损害，以便评估调查启动后，应采取的适当应对措施。
+
+两个知情人士为何能够提早知道这些消息，并且通过彭博社透露出去，非常引人深思。
+
+“301调查”源于美国《1974年贸易法》第301条。301条款授权美国贸易代表办公室就不公平贸易行为进行调查并采取相应行动。该调查由美国自身发起、调查、裁决、执行，根据该条款，美国可以对被认定有不公平行为的国家采取提高关税、限制进口等措施。
+
+301条款规定了三种可能会被采取行动的外国政府行为、政策或实践（APPs）：（1）违反贸易协议；（2）不正当的（被定义为与美国国际法律权利不一致的）且对美国商业造成负担或限制的行为、政策或实践；和（3）不合理的或歧视性的并且对美国商业造成负担或限制的行为、政策或实践。
+
+2017年8月，川普政府时期的美国贸易代表办公室正式启动针对中国知识产权政策的调查。
+
+除了2017年川普总统发起的调查，美国历史上曾对中共国动用五次301条款。在1990年美国就将中共国升级列为”重点观察国家名单”，并分别在1991年4月、1994年6月以及1996年4月三次对中共国知识产权实施”301调查”，最终通过谈判分别达成了三个知识产权协议。1991年10月还对中共国发起了市场准入的”301调查”，主要针对中共国对美国商品进入中国市场设置不公平壁垒问题，在1992年谈判达成协议。2010年10月，美国针对中共国清洁能源政策措施启动”301调查”。
+
+（本文仅代表作者观点）
+
+信息链接：
+1. [https://news.sina.cn/2021-09-16/detail-iktzqtyt6394309.d.html?from=wap](https://news.sina.cn/2021-09-16/detail-iktzqtyt6394309.d.html?from=wap)
+2. [https://www.bloomberg.com/news/articles/2021-09-10/biden-team-weighs-china-trade-probe-in-bid-to-pressure-beijing](https://www.bloomberg.com/news/articles/2021-09-10/biden-team-weighs-china-trade-probe-in-bid-to-pressure-beijing)
+3. [https://www.bbc.com/zhongwen/simp/business-40971778](https://www.bbc.com/zhongwen/simp/business-40971778)
+4. [https://wiki.mbalib.com/wiki/301%E6%9D%A1%E6%AC%BE](https://wiki.mbalib.com/wiki/301%E6%9D%A1%E6%AC%BE)
+5. [https://chinese.pillsburylaw.com/US-section-101-investigation-report](https://chinese.pillsburylaw.com/US-section-101-investigation-report)
+6.[https://zh.m.wikipedia.org/wiki/1974%E5%B9%B4%E8%B2%BF%E6%98%93%E6%B3%95%E7%AC%AC301%E6%A2%9D](https://zh.m.wikipedia.org/wiki/1974%E5%B9%B4%E8%B2%BF%E6%98%93%E6%B3%95%E7%AC%AC301%E6%A2%9D)
+7. [https://cacs.mofcom.gov.cn/article/flfwpt/stld/ysdt/202008/165857.html](https://cacs.mofcom.gov.cn/article/flfwpt/stld/ysdt/202008/165857.html)
+8. [http://www.ccpithn.org/index.php?m=content&c=index&a=show&catid=54&id=1982](http://www.ccpithn.org/index.php?m=content&amp;c=index&amp;a=show&amp;catid=54&amp;id=1982)
+9. [https://www.reuters.com/article/glance-china-us-trade-war-0115-idCNKBS1ZE30G](https://www.reuters.com/article/glance-china-us-trade-war-0115-idCNKBS1ZE30G)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-208.png)
 
 0

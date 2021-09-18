@@ -2,108 +2,53 @@
 ---
 
 
-## 世界上有史以来最大的一单回扣中介费
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539038/)
+## 美国歌星呼唤民众觉醒，遭主流媒体打压噤声
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1539404/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0.jpg)
-[https://gtv.org/video/id=61436922784c5a2583574de9](https://gtv.org/video/id=61436922784c5a2583574de9)
+作者：香草山医疗部 – 圣母院钟声
 
-**字幕内容:**
 
-**郭文贵**
-**Miles Guo**
 
-人类有史以来最大的白手套
-The biggest ‘white glove’(middleman) in human history
 
-大家你们知道是多少钱吗？
-Do you know how much it is?
 
-我告诉你们，你们要认真数这个事
-I tell you, you have to count this matter seriously
 
-记住我郭文贵今天说这话
-Mark my words today
 
-我承担法律责任
-I take legal responsibility for what I say
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-希望被点到名的人来告我
-I hope someone I named will sue me
 
-一个人类有史以来拿到1200亿美元中介费的一单交易
-A single transaction that has received 120 billion US dollars in intermediary fees in the history of mankind
 
-中国的政府官员，他的白手套拿了1200亿
-Chinese government officials, his middleman (White Glove) took 120 billion dol-lars
 
-这1200亿是纯现金
-This 120 billion dollars are pure cash
 
-人家的1200亿是pure cash
-Its 120 billion dollars and are all pure cash
 
-一单就1200亿，人家是合法拿到1200亿美元
-they took 120 billion dollars in one transaction legally
 
-就一笔拿走，牛到这程度
-Just in one transaction, it is unbelievable
+本周四，流行歌星尼基·米纳伊（Nicki Minaj）因质疑新冠疫苗安全性而被推特冻结账号，这种待遇对于新中国联邦的战友并不陌生，但对于一个世界级当红娱乐明星却非常罕见。尼基鼓励美国人对目前发生的舆论审查制度”睁开眼睛”，还补充说推特的禁令让她觉得”还有更大的事情”正在发生。
 
-张宏伟不仅有《酒浴》之图
-Zhang Hongwei not only has that “Wine Bath” picture
+出生于特立尼达.多巴哥的流行歌星米纳伊最近几天因发推说她认识的人在接种了新冠疫苗后变得”睾丸肿胀，性无能，被迫取消婚事”，然后敦促她的追随者祈祷，并权衡接种疫苗的利弊再做决定。作为回应，全球主义媒体对这位明星疯狂打压，只有福克斯新闻的塔克·卡尔森和少数自由媒体为她辩护。周三晚上，米纳伊在推特上发布了卡尔森新闻评论的片段，引起了更大的反响。不久，米纳伊的推特账号被冻结。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-25.png)
+随即，她决定在Instagram在线演说，她说：当我准备在推特上发布一个民意调查时，发现自己被关进了”推特监狱”，因为他们不喜欢我说的真话。我只是问了一个关于新冠 疫苗的简单问题就遭关停账号。你不能因为害怕暴徒攻击而不话，这种噤声还不应该让人脊背发凉吗？这与世界各地基督徒和其他独裁政权的压迫有什么不同？我去过中国，他们事先关照我们，不能反对那里的当权者。我记得我们都在想，“ 哦， 好吧， 我们理解， 得尊重他们的法律。”比较现在的美国，仅仅为一个简单推特信息，人们就会背弃和孤立你。“寻问注射进你身体里的东西是什么”应该是人的基本权利。其实许多娱乐业的音乐艺术家都和我有同样的感觉，因为害怕被噤声打压，大多不敢直言。我本人再也不会使用推特了，但通过这件对新冠疫苗的舆论审查事件，我感觉背后肯定有更大的事情在发生。 请我的歌迷粉丝们睁大眼睛！
 
-张宏伟的大老板叫陈元
-Zhang Hongwei’s big boss is Chen Yuan
+拥有2300万油管订阅户和1.57亿Instagram追随者的流行歌星，尼基. 米纳伊的简单推特言论的确触动了全球主义集团的痛处，他们最不想看到的就是民众的觉醒。特别对于青少年，没有谁比一个当红娱乐明星更有影响和号召力了。现在，我们不得不对这位娱乐明星肃然起敬，向米娜伊致敬！
 
-陈元是唯一促成沙特和中国共产党签署了阿美石油协议的5000亿美元现金投入
-Chen Yuan is the only one that led to the signing US$500 billion cash input of the Aramco Oil Agreement between Saudi Arabia and the Communist Party of China
+参考链接：
 
-拥有20%沙特阿美股份的
-Owns 20% of Saudi Aramco’s shares
+[https://twitter.com/NICKIMINAJ/status/1438248319650656256?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438248319650656256%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fnationalfile.com%2Fnicki-minaj-open-your-fking-eyes-to-covid-censorship-twitter-ban-is-making-me-think-that-theres-something-bigger-going-on%2F](https://twitter.com/NICKIMINAJ/status/1438248319650656256?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438248319650656256%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fnationalfile.com%2Fnicki-minaj-open-your-fking-eyes-to-covid-censorship-twitter-ban-is-making-me-think-that-theres-something-bigger-going-on%2F)
 
-按照这个合同25%的佣金现金，一笔支付
-According to this contract, 25% of the commission, paid in cash
+[https://www.foxnews.com/us/nikki-minaj-tweets-spark-protest-outside-cdc-headquarters](https://www.foxnews.com/us/nikki-minaj-tweets-spark-protest-outside-cdc-headquarters)
 
-支付的所有的安排对象都是张宏伟
-All the payment arrangements are made by Zhang Hongwei
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
 
-我可以告诉大家
-I can tell everybody
+***编辑/校对/发稿：正义的小新***
 
-我说今天爆这个料全地球，全星空也不会有几个人知道
-I broke this information today that only a few people know in the earth and whole universe
+**更多资讯，更多关注**
 
-但记住今天我报这个料，今天我说的
-But remember today what I said about this information
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-世界上最大的一单的回扣中介费单笔的地球有人类有史以来
-The largest single commission intermediary fee in the world
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-我就觉得就这一单了
-I think this is it
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-最重要的事情，张宏伟能玩1200亿
-The most important thing is Zhang Hongwei can handle this 120 billion dollars
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-现在看来就是这一单1200亿
-Now just look at this 120 billion dollars kickback
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-一定会改变中国政治的格局
-It will definitely change the landscape of Chinese politics
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24](https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24)
-
-中听英: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场– 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

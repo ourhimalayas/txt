@@ -2,12 +2,41 @@
 ---
 
 
-## 日本感染中共病毒死亡人数，累计突破17000人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1539560/)
+## G|FASHION成功签约世界顶尖品牌SCABAL
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1539154/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09181-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
-+1
+**撰稿：日本东京方舟农场 海星**
+
+9月16日，G|FASHION创始人郭文贵先生在盖特上表示，G|FASHION已经和全球品质最佳的面料品牌SCABAL公司签约成功。
+
+郭文贵先生表示，他过去30年几乎90%的西装面料都来自于SCABAL品牌，同时该品牌也是英国皇室成员们的最爱，并且在中国文化的服装领域从未被使用过，是第一次和中国人合作。
+
+郭文贵先生补充说，G|FASHION只和世界上顶尖的品牌合作，打造最优质的产品，并且只创造唯一性产品。他强调，G|FASHION追求的是终极品质，而不是量产。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/heritage-brand-dali-scabal3-e1472480937444.jpg)图片来自于网络
+
+据了解，SCABAL公司成立于1938年，至今已有83年历史，在世界各地拥有众多顾客。该公司使用来自历史悠久的家族经营牧场的超细羊毛，并将独创的现代技术融入到传统技巧和材料中。1974年他们研发出16.5微米羊毛技术，使面料支数第一次超越了100支。1991年，推出创纪录的超细精纺150支面料，随后是180支，200支，开创了精细面料。
+
+SCABAL公司不仅致力于面料创新，在剪裁定制方面也颇具盛名。他们曾与好莱坞和百老汇的制片人合作，为某些最重要的人物角色定制服装，Robert DeNiro 在《赌城风云》中穿着的 70 套西服，均由其协助制成。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+
+
+> [Heritage – ZH](https://www.scabal.com/zh/heritage/)
+
+
+
+
+
+> [2021年9月16日 文贵先生盖特 9](https://gnews.org/zh-hans/1537198/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
+
+0
