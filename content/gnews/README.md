@@ -37,14 +37,14 @@
 ### [CCP 病毒灾难：智力下降](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/9/README.md)
+### [中共延长对美国81种产品的关税豁免](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/10/README.md)
+### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [五角大楼承认喀布尔无人机袭击造成平民伤亡](/content/gnews/11/README.md)
- ` Shuizhuyu`
+### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -76,22 +76,22 @@
 ### [有声|拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [英美澳签署协议对抗中共 北京称英美澳联盟“不负责任”](/content/gnews/22/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/22/README.md)
+ ` wenwu`
+
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英美澳签署协议对抗中共 北京称英美澳联盟“不负责任”](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：德国医生协会呼吁取消所有州的疫情戒严措施！](/content/gnews/23/README.md)
+### [秘翻在线：德国医生协会呼吁取消所有州的疫情戒严措施！](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞为疫苗加强针辩解，强制接种势在必行](/content/gnews/24/README.md)
+### [辉瑞为疫苗加强针辩解，强制接种势在必行](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/27/README.md)
+### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
 ### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/28/README.md)
@@ -151,27 +151,27 @@
 ### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/46/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/47/README.md)
- ` GTV新闻访谈`
-
-### [没头脑和不高兴](/content/gnews/48/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/49/README.md)
+### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [巴西总统因抵制疫苗而保住国民生命](/content/gnews/50/README.md)
+### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/48/README.md)
+ ` GTV新闻访谈`
+
+### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/49/README.md)
+ ` GTV新闻访谈`
+
+### [没头脑和不高兴](/content/gnews/50/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/51/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [巴西总统因抵制疫苗而保住国民生命](/content/gnews/52/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/51/README.md)
+### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/52/README.md)
+### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/53/README.md)
- ` wenwu`
-
-### [&#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;](/content/gnews/54/README.md)
- ` GTV新闻访谈`
 

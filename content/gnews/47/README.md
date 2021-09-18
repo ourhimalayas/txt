@@ -2,61 +2,27 @@
 ---
 
 
-## 中共国正式申请加入太平洋贸易协定欲提高其经济影响力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540589/)
+## 秘翻在线：接种中共病毒疫苗的人到底能活多久？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540628/)
 
-栏目记者/责任编辑：一花一世界
+撰稿：nstar
 
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-001243.jpg)
+关于“如果接种了中共病毒疫苗的人还能活多久？”这个问题，迈洛·坎德里安（Mylo Canderian） 博士有他自己的观点。这个在网络上很难查到具体信息的迈洛·坎德里安博士1938 年出生于希腊科孚岛的 Milos Iskanderianos，他于 2015 年开发了用作血液学(Hematological) 的生物武器的氧化石墨烯专利。
 
+坎德里安博士是世界卫生组织的医学贡献者，也非常支持克劳斯·施瓦布（Klaus Schwab ）和“大重置”很多说法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+坎德里安博士认为，世界上 95% 的人口都是“无用食者”（中午可以理解为酒囊饭袋），需要尽快实施安乐死。“看看芝加哥市中心、巴尔的摩或洛杉矶，”他说，“你会清楚地明白为什么无用的食者必须像疯狗一样被镇压。” 他对宣扬批判种族理论的“传染病教育者”表示不屑，并相信“疫苗”将终结“地球上的人类癌症”。
 
+坎德里安博士介绍了一个信息，称为 “周期结束公式”。他说这是“简约的力量”并解释从注射到周期结束的时间最长为十年。 换句话说，“接种者”如果他们的血液中有20%的氧化石墨烯变质，将只活8年，以此类推，氧化石墨烯劣化 70% 的人，寿命不会超过 3 年。
 
+简·鲁比（Jane Ruby） 博士最近在他的播客中接受了 Stew Peters 的采访，并展示了暴露于氧化石墨烯时变质的血液是什么样子的。
 
+科普一下，氧化石墨烯是 Messenger RNA 刺突蛋白和朊病毒的组成部分，它与心脏、肺、大脑和血液争夺氧气。氧化石墨烯是一种吸氧海绵，它会剥夺身体所需的氧气并导致许多并发症，包括但不限于过敏性休克、毒性血液凝固、致命的肺麻痹、线粒体癌和内皮癌。”
 
+关于 第二次和第三次疫苗加强针的效果如何，麦洛说：“这一切都可以通过血液学测试来衡量。低能者得到的注射和疫苗加强针越多，他们的血液在显微镜下的表现就越差，他们也就越快变成肥料。”
 
-据路透社9月17日报道：中共国商务部在本周四晚些时候的一份声明中说，商务部部长王文涛在给新西兰贸易部长达米安-奥康纳的信中正式提交了中共国加入全面与进步跨太平洋伙伴关系协定(CPTPP)的申请。
+**[信息来源](https://m.beforeitsnews.com/alternative/2021/09/how-long-do-the-vaccinated-have-to-live-dr-mylo-canderian-is-of-the-opinion-that-95-of-the-worlds-population-are-useless-eaters-who-need-to-be-euthanized-as-quickly-as-po-3-3758265.html)**
 
-CPTPP是由澳大利亚、加拿大、智利、日本和新西兰等11个国家在2018年签署的自由贸易协定。其前身是跨太平洋伙伴关系协定（TPP），并被视为对中共国区域影响力的重要经济制衡。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-83.jpg)
-今年担任CPTPP主席的日本表示将与成员国协商，以回应中共国的要求，但未给出具体工作时间表。
-
-日本经济部长西村康稔周五告诉记者：有必要确定提交加入TPP-11国请求的中共国是否符合其极高的加入标准。
-
-台湾也一直希望加入该贸易协定，并对中共国的申请决定表示关切。
-
-日本副财长周五发推文指出中共国对国有企业的补贴和任意修改法律的做法，可能会使该国难以加入该贸易协定。
-
-他认为：中共国与自由、公平和高度透明的TPP世界相去甚远，它能够加入的机会几乎为零。
-
-新闻链接：
-[China applies to join Pacific trade pact to boost economic clout](https://www.reuters.com/world/china/china-officially-applies-join-cptpp-trade-pact-2021-09-16/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
-
-+1
+0

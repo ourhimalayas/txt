@@ -2,62 +2,44 @@
 ---
 
 
-## 巴西总统因抵制疫苗而保住国民生命
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1540517/)
+## 没头脑和不高兴
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1540583/)
 
-作者：香草山写作组 – 我爱正义
+作者：范海辛
+[![](https://spark.adobe.com/page/LJjbHrrf09Erp/images/c686384e-34d4-4c8c-b7f6-e880ff8a6db4.png?asset_id=62e342e2-cac6-4de3-8806-22cb0d7cac0c&amp;img_etag=%22470eef13bb04aba579cc4e10346336d5%22&amp;size=2560)](https://spark.adobe.com/page/LJjbHrrf09Erp/images/c686384e-34d4-4c8c-b7f6-e880ff8a6db4.png?asset_id=62e342e2-cac6-4de3-8806-22cb0d7cac0c&amp;img_etag=%22470eef13bb04aba579cc4e10346336d5%22&amp;size=1024)
+《没头脑和不高兴》是1980年代我女儿5-6岁时，我给她讲的一个故事，该故事当然非我原创，而是从幼儿读物上看来的。说的是一个小朋友没头脑，长大做了建筑设计师，造了一栋百层高的大楼，但忘记造电梯了；另一个小朋友脾气倔强，长大做了京剧演员，扮演武松打虎里的老虎，可是他不高兴扮老虎挨打，反过来打武松，把戏演砸了。
+
+后来，我在工作中发现，一个企业里的问题员工大致可分为两类：“没头脑”和“不高兴”。如何对待、调教这类问题员工，也是企业管理的一项重要任务。再仔细观察，实际上每个员工身上或多或少都有“没头脑”和“不高兴”的影子。
+
+人非圣贤孰能无过？但如果一个人一身兼具“没头脑”和“不高兴”这两个毛病，而且还当了你的领导，这就是你的灾难了。
+
+一般来说，“没头脑”的人往往比较随和，不太会横，更不会豪横。而“不高兴”一般性格倔强，通常脑子也不大好使，容易冲动。具有这些心理毛病的人，如果手中没权，对社会也不会有很大影响。但这些人一旦手握大权，往往会两种毛病一肩挑，既“没头脑”，又“不高兴”，从而给社会带来巨大灾难。
+
+“没头脑加不高兴”的人，比较接近自恋人格障碍综合症，权力会使其病情更趋严重。但是这些人在获得权力前，由于不合群，常会被同学、同事孤立，故而很少朋友。因为周围的人会觉得这人脾气怪，难交往。由于被孤立，所以，这种人在病情较轻时会懂得掩饰，按捺自己的暴躁脾气，尽量表现自己没头脑、傻乎乎的一面，给人无心机、脾气随和的“老好人”的印象。
+
+因缘际会，一旦这样的“老好人”被互相对立的两派看中，并委以重任时，“没头脑”和“不高兴”这两种看似不挨边的脾性就会在这人身上同时体现、爆发。
+
+“没头脑”的由来，首先是低智商；其次是读书少，文化水平低；再次是缺乏同理心（又称移情能力，empathy）。如果再加上不受制约的大权在握，那么“没头脑”这种毛病会更严重。缺乏同理心会使人不懂换位思考，不懂“己所不欲，勿施于人”，更严重的是不会看人、识人，手下往往是奸臣、佞臣毕至，庸人、懒人咸集。
+
+“没头脑”的领导被一帮马屁精所包围，他的决策，他的定音一锤敲下去，那就是灾难。再加上“不高兴”，朝廷那个本已微弱的“君臣佐使”的纠错机制就会全然失效。
+
+看看历史上的那些亡国之君，大多都是“没头脑加不高兴”这种人格。实际上，问题不在于这些有着精神变态的病人，而在于那个制度。好的制度是多数人从多数人里选少数人，坏的制度是少数人从少数人里挑个别人。好制度是如何做到这点的？那就是言论自由、新闻自由。由于有这些自由，个别人的优缺点就会在自由的环境下被媒体用放大镜推送到多数人面前；而坏的制度有利于那些“没头脑加不高兴”能在少数人面前掩饰自己的短处和劣迹。
+
+虽然，我们这里的民主国家每隔5年老百姓有一次投票机会，如果没有自由、没有知情权，那也只能是被误导的投票。譬如你到家电城买电视机，卖家不许你开箱通电，要买只能打闷包。试问，在没有知情权的的情况下，你如何行使自己的选择权？
+
+所以，会有这种“没头脑加不高兴”的人上位，全在于这个制度的设计者是“有心机、无头脑加不高兴”，是他们的问题造成了今日的窘境。
+
+（本文仅代表作者个人观点）
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：文明明 | 审核：神奇四侠* *| Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/LJjbHrrf09Erp/images/9fcdf068-b071-4e8d-8c98-97d60b0ff2a9.jpg?asset_id=36bf72e4-a8e9-4c8f-b11e-7b97467df994&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/LJjbHrrf09Erp/images/9fcdf068-b071-4e8d-8c98-97d60b0ff2a9.jpg?asset_id=36bf72e4-a8e9-4c8f-b11e-7b97467df994&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
-
-
-
-巴西总统因抵制疫苗而保住国民的生命，死亡率和感染率于9月达到新低。美联社消息，巴西总统公开表示拒绝接种新冠疫苗，遭到联合国打压，联合国纽约总部指，外国人进入纽约必须出示疫苗接种记录。另据法新社报道，巴西总统依然会赴联合国总部参加联大会议。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.28.png)
-
-巴西从2021年6月24日开始感染率和死亡率都出现大幅下降的趋势。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.34.png)
-
-巴西总统从去年11月开始公开拒绝疫苗，6月8日，巴西总统Bolsonaro拒绝以半价购买辉瑞疫苗。6月22日，巴西爆出疫苗丑闻，媒体大幅报道疫苗牵涉大额腐败。在巴西总统的坚决态度之下，民众接种疫苗的情况大幅减少，全国感染率也直接下降。目前应接近新冠病毒爆发初期的水平。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.40.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.46.png)
-
-疫苗腐败、官员因分发疫苗而收受贿赂一事于6月22日爆出。巴西的感染率随即下降。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.51.png)
-
-事件在7月一直发酵，病毒感染率一直呈下降趋势。9月，巴西总统在国际的压力下，再次公开拒绝疫苗，全国的病毒感染率和死亡率都将至新低。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.56.png)
-
-值得注意的是，巴西的死亡率在今年的4月12日达到顶峰，从此一直处于下降趋势，从6月18日之后更是直线下降，说明疫苗推进越困难，死亡率就越低。反证疫苗才是公共安全的最大威胁。讽刺的是，BBC居然在4月报道巴西因疫苗推进困难而死亡率飙升，主流媒体的谎言和无耻由此可见一斑。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.28.04.png)
-
-参考新闻：
-
-[https://www.bbc.com/news/world-latin-america-56913943](https://www.bbc.com/news/world-latin-america-56913943)
-
-[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
-
-[https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries](https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries)
-
-[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

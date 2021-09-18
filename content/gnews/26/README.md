@@ -2,27 +2,51 @@
 ---
 
 
-## 秘翻在线：接种中共病毒疫苗的人到底能活多久？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540628/)
+## 辉瑞为疫苗加强针辩解，强制接种势在必行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540675/)
 
-撰稿：nstar
+栏目记者/责任编辑：圣母院钟声
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-001243.jpg)
-关于“如果接种了中共病毒疫苗的人还能活多久？”这个问题，迈洛·坎德里安（Mylo Canderian） 博士有他自己的观点。这个在网络上很难查到具体信息的迈洛·坎德里安博士1938 年出生于希腊科孚岛的 Milos Iskanderianos，他于 2015 年开发了用作血液学(Hematological) 的生物武器的氧化石墨烯专利。
 
-坎德里安博士是世界卫生组织的医学贡献者，也非常支持克劳斯·施瓦布（Klaus Schwab ）和“大重置”很多说法。
 
-坎德里安博士认为，世界上 95% 的人口都是“无用食者”（中午可以理解为酒囊饭袋），需要尽快实施安乐死。“看看芝加哥市中心、巴尔的摩或洛杉矶，”他说，“你会清楚地明白为什么无用的食者必须像疯狗一样被镇压。” 他对宣扬批判种族理论的“传染病教育者”表示不屑，并相信“疫苗”将终结“地球上的人类癌症”。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-坎德里安博士介绍了一个信息，称为 “周期结束公式”。他说这是“简约的力量”并解释从注射到周期结束的时间最长为十年。 换句话说，“接种者”如果他们的血液中有20%的氧化石墨烯变质，将只活8年，以此类推，氧化石墨烯劣化 70% 的人，寿命不会超过 3 年。
 
-简·鲁比（Jane Ruby） 博士最近在他的播客中接受了 Stew Peters 的采访，并展示了暴露于氧化石墨烯时变质的血液是什么样子的。
 
-科普一下，氧化石墨烯是 Messenger RNA 刺突蛋白和朊病毒的组成部分，它与心脏、肺、大脑和血液争夺氧气。氧化石墨烯是一种吸氧海绵，它会剥夺身体所需的氧气并导致许多并发症，包括但不限于过敏性休克、毒性血液凝固、致命的肺麻痹、线粒体癌和内皮癌。”
 
-关于 第二次和第三次疫苗加强针的效果如何，麦洛说：“这一切都可以通过血液学测试来衡量。低能者得到的注射和疫苗加强针越多，他们的血液在显微镜下的表现就越差，他们也就越快变成肥料。”
 
-**[信息来源](https://m.beforeitsnews.com/alternative/2021/09/how-long-do-the-vaccinated-have-to-live-dr-mylo-canderian-is-of-the-opinion-that-95-of-the-worlds-population-are-useless-eaters-who-need-to-be-euthanized-as-quickly-as-po-3-3758265.html)**
+2021年9月17日，美国食品和药物管理局（FDA）的疫苗和相关生物制品评估咨询委员会举行例会， 其会议结果将用于明天的一个讨论，就是FDA咨询委员会就辉瑞公司提出的所谓“监管机构应立即批准第三剂疫苗加强针”的讨论。虽然两位即将离任的FDA疫苗负责人最近对批准加强针提出了不同意见，但辉瑞公司仍坚持第3 剂疫苗的注射。
 
-0
+世界上疫苗接种人口比例最高的国家之一，以色列，却继续以新病例数量的攀升不断打破记录。9月份每周新发病例平均数是8632例，日均死亡人数27人。为什么以色列在广泛接种疫苗后发病率和死亡率会升高？美国卫生当局现在避免谈论以色列，原因很简单，以色列的今天就是美国的明天。由大药商驱使疫情政策制定的各国政府，无视疫苗对人体近期及远期的有害性，一意孤行，连2岁幼儿也不放过。其险恶用心已经激起各国民众的愤怒，旷日持久的街头游行示威越演越烈。美国，一个拥有目前西方国家中最高抗拒疫苗接种人口的国家，警醒民众将不会坐以待毙。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-27.jpg)
+参考链接：
+[Pfizer’s Argument for A Booster—Vaccine Wanes in Effectiveness](https://trialsitenews.com/pfizers-argument-for-a-booster-vaccine-wanes-in-effectiveness/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
++1

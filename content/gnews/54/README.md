@@ -2,37 +2,32 @@
 ---
 
 
-## &#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540346/)
+## 美SEC主席：再不让美国查帐 270家中概股将遭强制退市
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1540475/)
 
-栏目记者/责任编辑：文龍
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-文贵先生是在17号与战友的连线直播中说这句话的，他同时说：“医生护士本是救命的，消防员本是救火的，警察是维护治安的，各国政府是执行人民意志的，现在完全与人民为敌，执行少数人的意志！人类互联网都到5G了，你突然发现没有说话的地方了！”
+2021年09月18日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide6-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-2.jpg)华尔街股市照片 © 路透社照片
 
-在揭示当下世界面临的荒唐和危险之余，文贵先生也预测，由于接下来的数月间，疫苗后遗症并发症会集中出现，世界各国政府迫于压力和民众的激烈反抗，强制疫苗政策或许将在年底前后终止。但墙内仍将持续推行，因为盗国贼不会顾及百姓死活，他们只有一个目的，就是用病毒和假疫苗控制百姓，进而要挟全世界，最终维护自己的统治！
+**编辑摘要：**9月18日，据法广引述自由时报报道，美国证券交易委员会（SEC）主席詹斯勒（Gary Gensler）以“中共国公司必须打开帐本”为标题投书华尔街日报，说如果在美上市的中共国企业拒绝依据美国国会去年通过的“外国公司问责法”，遵守美国审计规则，SEC将在2024年初强制270家中概股下市。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-2.jpg)
+詹斯勒说，现在由北京决定是否让“上市公司会计监督委员会”（PCAOB）赴中，让美方确定相关审计是否符合美国标准。明年初预料SEC将宣布哪些公司的审计单位没有对美国监管人员打开帐本，如果这些企业连续两年雇用不合规的审计公司，其股票将从2024年起禁止在美国资本市场交易。
 
-本文仅代表作者观点
+据该投文指出，今年6月美国参议院通过“加速外国公司问责法”，一旦颁布，3年期限将缩减至2年。除了确保PCAOB能稽核审计公司，SEC也希望美国投资人完全了解投资中概股的风险。SEC近期暂停处理中共国公司的IPO申请，以期与相关公司合作，确保他们明确揭露相关风险。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+针对许多中共国公司运用“可变利益实体”（VIE）架构，用空壳公司在美国交易所筹资的行为。詹斯勒强调，不管注册地是加州、开曼群岛或中共国，所有寻求在美国资本市场筹资的企业就应该遵行美国规则，而美国国会、SEC与PCAOB采取保护投资人的措施就是希望达此目标。
 
-**终审：文龍**
+新闻参考链接：[美SEC主席：再不让美国查帐 270家中概股将遭强制下市](https://www.rfi.fr/cn/国际/20210918-美sec主席-再不让美国查帐-270家中概股将遭强制下市)
 
-**校对/发稿：童谣**
+* * *
 
-**更多资讯，更多关注**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

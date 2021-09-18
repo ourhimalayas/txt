@@ -2,28 +2,39 @@
 ---
 
 
-## 欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540639/)
+## 坚持不打疫苗的巴西总统表示将出席纽约的联合国大会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540659/)
 
-栏目记者：andy5，葛朗台太太
-责任编辑：葛朗台太太
+栏目记者/责任编辑：AsG諾雅
 
-欧洲议会官方网站9月16日消息，欧洲议会在当地时间周四以570票赞成、61票反对、40票弃权的压倒性结果通过一项“新欧中战略报告”，要求欧盟制定新对中共国战略。
 
-该报告要求中共国允许对 COVID-19 的起源和传播进行独立调查。呼吁欧盟委员会和理事会就欧盟与台湾的投资协议取得进展。谴责中共系统性侵犯人权的行为，呼吁中欧定期就人权问题进行对话，并制定衡量进展的基准。讨论应包括新疆、内蒙古、西藏和香港的侵犯人权行为。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-48.jpg)图片来源：网络
-欧洲议会议员强调需要与志同道合的合作伙伴为下一代技术（例如 5G 和 6G 网络）制定全球标准。他们说，不符合安全标准的公司必须被排除在外。该报告最终要求授权欧洲对外行动署和必要的资源，以解决中共的虚假信息行动，包括成立一个专门的远东战略通信工作组。 报告员Hilde Vautmans（比利时复兴欧洲）在投票后表示：“在与中共国打交道时，我们不能天真。中共国是对我们的生活方式和自由世界秩序构成挑战的系统性竞争对手。经济收益不应让我们对中共野心勃勃的政治议程、日益强硬的外交政策以及对新疆和香港的镇压视而不见。我们必须通过在贸易、数字、安全和国防等领域获得欧洲战略自主权来捍卫我们的价值观和利益”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-63.jpg)
-参考链接：
-[欧洲议会压倒性通过报告呼吁欧盟制定对中国新战略](https://rfi.my/7kXl)
-[欧洲议会压倒性通过报告要求制定对华新战略，中方回应：不能认同](https://www.sohu.com/a/490400532_115479)
-[Parliament sets out its vision for a new EU strategy on China](https://www.europarl.europa.eu/news/en/press-room/20210910IPR11917/parliament-sets-out-its-vision-for-a-new-eu-strategy-on-china)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+9月16日，坚决拒绝接种中共病毒疫苗的巴西总统波索纳洛宣布，将出席下周二在纽约举行的年度联合国大会，并就巴西的疫情对策、农业经济与能源对策发表开幕演讲。这一违背纽约市疫苗护照政策的宣布，引发当地市民的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-11.jpg)
+纽约市长办公室当天致函联合国大会说明当地防疫方针，指出各国代表团进入会场前，必须出示疫苗接种证明。数小时后，联合国秘书长古特瑞斯表示，他无法强迫各国元首遵照纽约市府的要求，以此回绝了纽约市的要求。
+
+波索纳洛是平民主义的倡导者之一，他曾表示自己会是巴西最后一个打疫苗的人。2020年，他从中共国和法国的早期抗疫报告中发现了硫酸羟氯喹等药物对中共病毒的疗效，因而在巴西推动该药物的扩大生产和早期治疗，即使在美国食品和药物管理局去年6月撤销了羟氯喹和氯喹的紧急使用授权，并大力打压的时候，仍然没有停止努力。波索纳洛本人去年也曾经感染中共病毒，并通过服用硫酸羟氯喹和抗生素阿奇霉素等药物得以迅速康复，且获得了天然免疫。
+
+正是因为波索纳洛的平民主义做法使他长期被主流媒体抹黑，但是巴西人多次举行大规模游行集会支持他，显示了人们对这位亲民总统的巨大支持。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-31.jpg)
+信息链接：
+[巴西总统波索纳洛坚持不打疫苗 硬是要出席联合国大会](https://www.rfi.fr/cn/%E5%B7%B4%E8%A5%BF%E6%80%BB%E7%BB%9F%E6%B3%A2%E7%B4%A2%E7%BA%B3%E6%B4%9B%E5%9D%9A%E6%8C%81%E4%B8%8D%E6%89%93%E7%96%AB%E8%8B%97-%E7%A1%AC%E6%98%AF%E8%A6%81%E5%87%BA%E5%B8%AD%E8%81%94%E5%90%88%E5%9B%BD%E5%A4%A7%E4%BC%9A)
+[Special Report: Bolsonaro bets ‘miraculous cure’ for COVID-19 can save Brazil – and his life](https://www.reuters.com/article/us-health-coronavirus-brazil-hydroxychlo-idUSKBN249396)
+[Brazil’s Bolsonaro going to UN meet despite being unvaccinated](https://www.breitbart.com/news/brazils-bolsonaro-going-to-un-meet-despite-being-unvaccinated/)
+[巴西总统承认：我可能已经感染了](https://news.sina.com.cn/w/2020-06-26/doc-iircuyvk0498424.shtml)
+[巴西总统称自己似乎又感染新冠，但服用伊维菌素第二天就好了](https://3g.163.com/dy/article/G9DKCV8S05504DLJ.html)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-终审： Ryan
+终审： 鬼五
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
