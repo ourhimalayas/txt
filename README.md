@@ -142,36 +142,36 @@
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [读《道德经》第七章](/content/gnews/44/README.md)
+### [对海外民运人士与组织的分析](/content/gnews/44/README.md)
+ ` 首尔天池农场`
+
+### [读《道德经》第七章](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`
 
-### [FDA专家小组压倒性反对广泛为民众接种疫苗加强剂](/content/gnews/45/README.md)
+### [FDA专家小组压倒性反对广泛为民众接种疫苗加强剂](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`
 
-### [读《道德经》第六章](/content/gnews/46/README.md)
+### [读《道德经》第六章](/content/gnews/47/README.md)
  ` 纽约香草山MOS03`
 
-### [乐天董事长三木谷浩史：日本移民政策应放开](/content/gnews/47/README.md)
+### [乐天董事长三木谷浩史：日本移民政策应放开](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [[ 聚焦港澳 ] 香港的民风与民格](/content/gnews/48/README.md)
+### [[ 聚焦港澳 ] 香港的民风与民格](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [读《道德经》第四章](/content/gnews/49/README.md)
+### [读《道德经》第四章](/content/gnews/50/README.md)
  ` 纽约香草山MOS03`
 
-### [全力堵截反封锁抗议者，周六墨尔本警力出动](/content/gnews/50/README.md)
+### [全力堵截反封锁抗议者，周六墨尔本警力出动](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本感染中共病毒死亡人数，累计突破17000人](/content/gnews/51/README.md)
+### [日本感染中共病毒死亡人数，累计突破17000人](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。](/content/gnews/52/README.md)
+### [前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。](/content/gnews/53/README.md)
  ` 美国政要直译推`
 
-### [中共政府向香港地产大亨发出敲打信号：要守规矩 更要回馈社会](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [国安法影响下 香港教师现离职潮](/content/gnews/54/README.md)
+### [中共政府向香港地产大亨发出敲打信号：要守规矩 更要回馈社会](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
