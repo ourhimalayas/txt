@@ -2,36 +2,39 @@
 ---
 
 
-## 前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1539544/)
+## 美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1539721/)
 
-前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。 对美国人的大屠杀！！！！ 所有这些都将在我现在在亚马逊上的新书《在川普时代》中曝光。 【转门户专家网：重大新闻：印度北方邦宣布该州已无新冠肺炎COVID-19 ，证明“驱虫药”伊维菌素的有效性 门户专家(Gateway Pundit) 此前曾报道说，由于新规定将伊维菌素和羟氯喹推广到其庞大的人口中，因此印度的新冠 COVID 病例正在急剧下降。 周五，印度北方邦的 33个地区现已变为无新冠 COVID地区。 恢复率提高到98.7%，证明伊维菌素作为“北方邦 Covid 控制模型”的一部分的有效性。 当然，媒体不会提及伊维菌素被用于治疗COVID-19。】
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/AstraZen-jab1.jpg)
+图片来源：miltonkeynes.co.uk
 
+**【雅典娜快讯】，紧贴时事脉搏**
 
+美国底特律当地的ABC新闻机构最近试图证明，那些拒绝接种中共病毒 (Covid-19) 疫苗的人正在生病和死亡。结果发现，正在死亡的是“完全接种疫苗”的人。
 
-> Fauci killing Americans by suppressing therapeutics like hydroxy/ivermectin. Mass Murder of Americans!!!! All will be exposed in my new book In Trump Time on Amazon now.[https://t.co/OqW8jVBsaP](https://t.co/OqW8jVBsaP)
-> — Peter Navarro (@RealPNavarro) [September 17, 2021](https://twitter.com/RealPNavarro/status/1438851347265343490?ref_src=twsrc%5Etfw)
+WXYZ电视台（WXYZ-TV）在脸书的一项民意调查中，要求粉丝们分享他们身边“未接种疫苗”的人，如何因中共病毒生病而不得不住院的故事。相反，民意调查结果却充斥着关于接种疫苗的人病重或死亡的故事。
 
+“我的邻居死于疫苗，下周是他的葬礼，”一位调查受访者写道。
 
+“我妈妈的胳膊和腿没有感觉了。我的闺蜜曾多次因头痛得厉害进了急诊室。我妈妈和闺蜜的医生没有将他们的病情和疫苗联系起来，但时间上令人怀疑。我丈夫的医生拒绝让他检测中共病毒抗体。这些医生是同谋。”
 
-众议院外交委员会共和党： 领袖麦考尔：“长期以来，我一直在呼吁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在世界银行等跨国组织中构成的风险。我们必须确保中共在所有这些机构中遵守国际规则和规范。这就是我引入 HR 4774 的原因、HR 2329 和 HR 1934。”【附路透社报道：国际货币基金组织总裁被指在世界银行期间施压以有利中国。文章大意：一项独立调查发现世界银行领导人向员工施压以提高中国在《2018年营商环境报告》中的排名】
+令人惊讶的是，还有大约12.5万人提交了类似的故事，讲述了疫苗如何伤害或杀死他们认识的人。事实证明，没有像WXYZ电视台预期的那样，那些没有接种疫苗的人并没有出现大的健康问题。
 
+正如美国疾病控制和预防中心（CDC）的罗谢尔·瓦伦斯基 (Rochelle Walensky)医生所承认的一样，许多医院的病人都“完全接种了疫苗”。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "I have long been calling out the risks posed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) at multinational organizations such as the World Bank. We must ensure the CCP adheres to international rules and norms at all of these institutions. That's why I introduced HR 4774, HR 2329, and HR 1934." ⬇️
-> — House Foreign Affairs GOP (@HouseForeignGOP) [September 17, 2021](https://twitter.com/HouseForeignGOP/status/1438952182687150084?ref_src=twsrc%5Etfw)
+**参考新闻：**[Backfire: Detroit TV station asks for stories of unvaccinated covid fatalities, gets bombarded with vaccinated deaths and injuries instead (newstarget.com)](https://www.newstarget.com/2021-09-17-station-stories-unvaccinated-covid-jab-fatalities-vaccinated.html)
 
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-
-众议员莫·布鲁克斯： 我和众议院自由核心小组[@freedomcaucus](https://twitter.com/freedomcaucus) 的同事们一起要求调查米利将军，他与共产主义的、敌对和实施种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 密谋在此过程中破坏了总司令的作用。 他的行为简直就是懦夫（充其量）和叛国。 【附布鲁克斯议员及其同事写给美国防部长奥斯汀的信函】
-
-
-
-> I joined my [@freedomcaucus](https://twitter.com/freedomcaucus?ref_src=twsrc%5Etfw) colleagues in demanding an investigation into Gen. Milley who conspired with a communist, hostile, and genocidal CCP undermining the Command-In-Chief in the process. His actions are nothing short of craven (at best) and treasonous. [pic.twitter.com/EEI0zgftl5](https://t.co/EEI0zgftl5)
-> — Mo Brooks (@RepMoBrooks) [September 17, 2021](https://twitter.com/RepMoBrooks/status/1438896024924327940?ref_src=twsrc%5Etfw)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

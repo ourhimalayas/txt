@@ -2,29 +2,27 @@
 ---
 
 
-## 台湾宣布增加军费一天后10架中国军机侵入台湾防空识别区
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1539663/)
+## 秘翻在线: 中共将军曾从加拿大顶级病毒实验室获取病毒样本
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1539024/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16319349581-e1631935156129.png)
-台湾空军9月17日发布通报，10架解放军军机侵扰台湾西南防空识别区，台湾空军紧急升空战机监控并广播驱离，防空导弹部队也实施追踪监控。
+撰稿：西枫westca
 
-从9月13日到17日，是台湾年度最大规模的汉光37号实兵实弹军事演习。演习落幕当天，10架解放军军机扰台。而在演习的每一天，都有解放军军机侵入台湾领空。在前一天，台湾行政院刚刚向立法院提出一项2,400亿元新台币（约合87亿美元）的特别军事预算。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-9.jpg)图片来源：Post Milennial
+来自加拿大 Post Milennial 9月16日的一篇报道揭示了被解雇的加拿大P4实验室的研究员与中共将军合作这一事件的真相。
 
-北京一直声称拥有对台湾的主权，甚至不惜一战也要实现所谓的两岸统一。中共为此投入巨资全面扩充军力。中共不断侵扰台湾，不仅引起台湾的重视，而且也引起美国、日本、澳大利亚等国的高度关切。
+邱果香曾在加拿大温尼伯的P4实验室工作。 而因中共病毒而知名的中共将军陈薇曾与之密切合作。并在2016年和2020年合作撰写了两篇关于埃博拉的科学论文。但论文并未标注她是中共国一流的流行病学家的军方身份。邱香果在2019年曾向中共病毒起源地武汉病毒所发送过30瓶15种不同的埃博拉病毒和亨尼帕病毒样本。之后邱香果和她的先生在国家微生物实验室（NML）的安全许可于2019年7月被撤销，并于2020年1月被NML解雇。
 
-新闻参考链接：[https://www.voachinese.com/amp/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html](https://www.voachinese.com/amp/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html)
+当被问及加拿大公共卫生署（PHAC）是否认为其工作人员与中国高级军事人员一起工作是标准做法时，PHAC发言人说，”虽然NML与中国军方没有机构协议，但加拿大的科学家已经与中国科学家合作，为全球公共卫生对抗致命疾病（如埃博拉）做出贡献。”对陈薇曾到访过加拿大温尼伯P4实验室之事，PHAC称不会因隐私法为由公布访客记录。然而，所有访客，包括与加拿大公共卫生署（PHAC）合作的研究人员，都必须遵守加拿大政府和PHAC的安全协议、程序和政策，并且在任何时候都必须由拥有秘密权限的雇员陪同。PHAC的发言人Mark Johnson补充说道。
 
+加拿大保守党领袖奥图尔今年早些时候曾经评论此事件：“特鲁多政府一定在温尼伯实验室的事情上隐瞒了什么”， 他在8月时表示“我们从公共记录，比如专利文件中了解到，这些科学家所做的工作具体是针对病毒的”功能性获得“， 实际上是在试图提高病毒功效、它的传播能力，以及在某些情况下，在生物武器研究中，它的致命性。”  他质疑是是谁授权这两位科学家转移危险的、致命的病毒， 谁授权与中国军方进行如此高水平的合作与协作？
 
+在2020年2月，中共病毒大爆发数周后，温尼伯的P4 实验室主任Frank Plummer 突然因心脏病死亡。此事件是否与病毒有关，还待时间来解密。
 
-* * *
+关于邱香果和其先生被解雇之事已由加拿大皇家骑警进行调查。而加拿大的安全专家曾表示此事件可能指向间谍活动。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+中共的罪恶之手伸向全世界，在世界各地的间谍活动也不断地被曝光。 而各国的科学家在这场席卷全球的中共病毒中究竟起了什么样的作用？ 随着时间，真相一定会呈现在世人面前。
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**新闻来源：**[Chinese general collaborated with fired scientist at Canada’s top virus lab | The Post Millennial](https://thepostmillennial.com/general-collaborated-fired-scientist-canadas-top-lab/)
 
 0

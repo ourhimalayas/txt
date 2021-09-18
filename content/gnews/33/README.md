@@ -2,64 +2,36 @@
 ---
 
 
-## 德国首席病理学家对致命的科威德疫苗伤害敲响警钟
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1539151/)
+## 前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1539544/)
 
-- 编译：七叶之芒
+前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。 对美国人的大屠杀！！！！ 所有这些都将在我现在在亚马逊上的新书《在川普时代》中曝光。 【转门户专家网：重大新闻：印度北方邦宣布该州已无新冠肺炎COVID-19 ，证明“驱虫药”伊维菌素的有效性 门户专家(Gateway Pundit) 此前曾报道说，由于新规定将伊维菌素和羟氯喹推广到其庞大的人口中，因此印度的新冠 COVID 病例正在急剧下降。 周五，印度北方邦的 33个地区现已变为无新冠 COVID地区。 恢复率提高到98.7%，证明伊维菌素作为“北方邦 Covid 控制模型”的一部分的有效性。 当然，媒体不会提及伊维菌素被用于治疗COVID-19。】
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/dr_schimacher_-740x431-1.png)
 
-## 在对最近接种疫苗的人的尸检中，死亡原因的30-40%是疫苗引起的
+> Fauci killing Americans by suppressing therapeutics like hydroxy/ivermectin. Mass Murder of Americans!!!! All will be exposed in my new book In Trump Time on Amazon now.[https://t.co/OqW8jVBsaP](https://t.co/OqW8jVBsaP)
+> — Peter Navarro (@RealPNavarro) [September 17, 2021](https://twitter.com/RealPNavarro/status/1438851347265343490?ref_src=twsrc%5Etfw)
 
-由Skydric.
 
-海德堡大学病理学研究所所长Peter Schirmacher（希尔马赫）对接受Covid-19疫苗后两周内死亡的人进行了四十多次尸检，并对他的发现表示担忧。
 
-希尔马赫说，他所检查的人中有30%到40%死于疫苗，在他看来，接种疫苗的致命后果的频率被”低估了”。
+众议院外交委员会共和党： 领袖麦考尔：“长期以来，我一直在呼吁 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在世界银行等跨国组织中构成的风险。我们必须确保中共在所有这些机构中遵守国际规则和规范。这就是我引入 HR 4774 的原因、HR 2329 和 HR 1934。”【附路透社报道：国际货币基金组织总裁被指在世界银行期间施压以有利中国。文章大意：一项独立调查发现世界银行领导人向员工施压以提高中国在《2018年营商环境报告》中的排名】
 
-在他的发现之后，希尔马赫呼吁对接种疫苗的人进行更多的尸检，以进一步确定疫苗是否与死亡有关。他警告说，大量未报告的疫苗死亡事件是由于”病理学家没有注意到大多数在接种疫苗后和可能因接种疫苗而死亡的病人的情况”。
 
-尽管对疫苗敲响了警钟，但许多人对希尔马赫的结论表示不满，保罗-埃利希研究所称这位主任的言论”不可理喻”。大臣的走狗，德国高级免疫学家托马斯-默滕斯立即否定了这些结论：”我不知道有什么数据可以在这里做出合理的声明，我也不认为有未申报的数字。”
 
-埃朗根大学医院的免疫学家Christian Bogdan是免疫问题常设委员会（STIKO）的成员，他也反驳了希尔马赫关于”大量未报告的疫苗接种并发症甚至是死亡”的假设。
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "I have long been calling out the risks posed by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) at multinational organizations such as the World Bank. We must ensure the CCP adheres to international rules and norms at all of these institutions. That's why I introduced HR 4774, HR 2329, and HR 1934." ⬇️
+> — House Foreign Affairs GOP (@HouseForeignGOP) [September 17, 2021](https://twitter.com/HouseForeignGOP/status/1438952182687150084?ref_src=twsrc%5Etfw)
 
-尽管受到了批评，希尔马赫还是得到了自己内部的支持，德国联邦病理学家协会表示，应该对接种疫苗后一定时间内死亡的接种者进行更多的尸检。
 
-该协会的 “尸检工作组 “负责人要考虑到全科医生和卫生当局。基本上，在接种疫苗后几天或几周内死亡的病人的医生应要求进行尸检，以备怀疑，或者卫生当局应采取行动。
 
-联邦病理学家协会已经在3月份给卫生部长Jens Spahn的信中提出了这个要求，但仍然没有得到答复。
+众议员莫·布鲁克斯： 我和众议院自由核心小组[@freedomcaucus](https://twitter.com/freedomcaucus) 的同事们一起要求调查米利将军，他与共产主义的、敌对和实施种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 密谋在此过程中破坏了总司令的作用。 他的行为简直就是懦夫（充其量）和叛国。 【附布鲁克斯议员及其同事写给美国防部长奥斯汀的信函】
 
-当然，应该指出的是，希尔马赫的警告可能会使各种制药公司损失数十亿美元的长期业务，这就是为什么他的研究结果受到支持疫苗议程的审查和玷污。
 
-然而，希尔马赫的声誉和严肃性是不容忽视的。
 
-希尔马赫本人已经在经营一个由国家赞助的关于Covid-19死者的尸检项目。随后，他扩大了关注范围，开始对40多名死亡的疫苗接种者进行尸检。虽然他的结果代表了一个小的样本量，但这个结果将在更大的范围内引起不安：30%到40%的人死于疫苗接种本身。病理学家列举了”接种疫苗的罕见而严重的副作用–如静脉血栓或自身免疫性疾病”。
+> I joined my [@freedomcaucus](https://twitter.com/freedomcaucus?ref_src=twsrc%5Etfw) colleagues in demanding an investigation into Gen. Milley who conspired with a communist, hostile, and genocidal CCP undermining the Command-In-Chief in the process. His actions are nothing short of craven (at best) and treasonous. [pic.twitter.com/EEI0zgftl5](https://t.co/EEI0zgftl5)
+> — Mo Brooks (@RepMoBrooks) [September 17, 2021](https://twitter.com/RepMoBrooks/status/1438896024924327940?ref_src=twsrc%5Etfw)
 
-在回应批评时，希尔马赫否认缺乏能力，他说：”同事们肯定是错的，因为他们不能胜任评估这个具体问题。”此外，该负责人表示，他并不是要散布恐惧，他并不反对接种疫苗，因为他自己也接种过疫苗。
 
-在未来几周内，我们或许将要看到希尔马赫的声誉在媒体、网络以及科学和医学界被彻底撕毁，然而这并不令人惊讶。
 
-**简评：**
 
-**随着时间的推移，接种疫苗后的灾难将逐步显现。目前，世界各国已经有很多科学家对疫苗的安全性提出了质疑。很多科学家们通过严谨的科学实验结果，对疫苗提出了严重的怀疑。**
 
-**也许这些单纯的科学家们还联想不到疫苗背后的黑暗势力。但是，全世界的疫苗都是出自有限的几个大医药公司，其中的利润是巨大的。其背后的资本，注定也是强大的。**
-
-**郭先生在疫苗刚刚上市之时，便已经向全世界发出了严重警告。然而，邪恶的势力及为了自身权力的政客们，最终还是将有毒的疫苗推向了全世界。**
-
-**我们希望有更多的，像希尔马赫一样的科学家发现并揭露真相，这样全世界的灾难将会早日结束。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：**[reseauinternational.net](https://reseauinternational.net/le-pathologiste-en-chef-allemand-sonne-lalarme-sur-les-blessures-mortelles-causees-par-le-vaccin-covid-le-vaccin-est-la-cause-de-la-mort-dans-30-a-40-des-autopsies-de-personnes-rece/)
-
-* * *
-
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
-
-+1
+0

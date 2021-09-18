@@ -2,27 +2,39 @@
 ---
 
 
-## 秘翻在线: 中共将军曾从加拿大顶级病毒实验室获取病毒样本
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1539024/)
+## 中共政府向香港地产大亨发出敲打信号：要守规矩 更要回馈社会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1539401/)
 
-撰稿：西枫westca
+栏目记者/责任编辑：AsG諾雅
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-9.jpg)图片来源：Post Milennial
-来自加拿大 Post Milennial 9月16日的一篇报道揭示了被解雇的加拿大P4实验室的研究员与中共将军合作这一事件的真相。
 
-邱果香曾在加拿大温尼伯的P4实验室工作。 而因中共病毒而知名的中共将军陈薇曾与之密切合作。并在2016年和2020年合作撰写了两篇关于埃博拉的科学论文。但论文并未标注她是中共国一流的流行病学家的军方身份。邱香果在2019年曾向中共病毒起源地武汉病毒所发送过30瓶15种不同的埃博拉病毒和亨尼帕病毒样本。之后邱香果和她的先生在国家微生物实验室（NML）的安全许可于2019年7月被撤销，并于2020年1月被NML解雇。
 
-当被问及加拿大公共卫生署（PHAC）是否认为其工作人员与中国高级军事人员一起工作是标准做法时，PHAC发言人说，”虽然NML与中国军方没有机构协议，但加拿大的科学家已经与中国科学家合作，为全球公共卫生对抗致命疾病（如埃博拉）做出贡献。”对陈薇曾到访过加拿大温尼伯P4实验室之事，PHAC称不会因隐私法为由公布访客记录。然而，所有访客，包括与加拿大公共卫生署（PHAC）合作的研究人员，都必须遵守加拿大政府和PHAC的安全协议、程序和政策，并且在任何时候都必须由拥有秘密权限的雇员陪同。PHAC的发言人Mark Johnson补充说道。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-204.png)
 
-加拿大保守党领袖奥图尔今年早些时候曾经评论此事件：“特鲁多政府一定在温尼伯实验室的事情上隐瞒了什么”， 他在8月时表示“我们从公共记录，比如专利文件中了解到，这些科学家所做的工作具体是针对病毒的”功能性获得“， 实际上是在试图提高病毒功效、它的传播能力，以及在某些情况下，在生物武器研究中，它的致命性。”  他质疑是是谁授权这两位科学家转移危险的、致命的病毒， 谁授权与中国军方进行如此高水平的合作与协作？
 
-在2020年2月，中共病毒大爆发数周后，温尼伯的P4 实验室主任Frank Plummer 突然因心脏病死亡。此事件是否与病毒有关，还待时间来解密。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/中共政府向香港地产大亨发出敲打信号要守规矩-更要回馈社会.jpg)
+路透社9月17日消息，据三位主要开发商新鸿基地产、恒基地产、新世界发展和一位熟悉相关会谈的香港政府顾问及消息人士称，在今年的闭门会议上，中共官员对香港的地产大亨们传达了“游戏规则已经改变”、垄断行为不再得到容忍的信息，要求大地产商们将资源和影响力用于支持北京的利益，帮助解决可能破坏稳定的住房短缺问题，以强化中共对香港的控制。
 
-关于邱香果和其先生被解雇之事已由加拿大皇家骑警进行调查。而加拿大的安全专家曾表示此事件可能指向间谍活动。
+该指令标志着中共政府与香港地产大亨们之间权力博弈的转折点，这些大地产商通过经济实力影响政治人物的选择和游说政府采取利于他们的土地政策的时代已经一去不复返。在中共国经济全面溃败、中共政权摇摇欲坠的背景下，中共政府对卖港商人的要求更多的是服从、贡献和回馈，也就是一切要听党的话，走向所谓“共同富裕”的不归路。
 
-中共的罪恶之手伸向全世界，在世界各地的间谍活动也不断地被曝光。 而各国的科学家在这场席卷全球的中共病毒中究竟起了什么样的作用？ 随着时间，真相一定会呈现在世人面前。
+（本文仅代表作者观点）
 
-**新闻来源：**[Chinese general collaborated with fired scientist at Canada’s top virus lab | The Post Millennial](https://thepostmillennial.com/general-collaborated-fired-scientist-canadas-top-lab/)
+信息链接：[中共政府向香港地产大亨发出敲打信号：要守规矩 更要回馈社会](https://cn.reuters.com/article/china-hk-rea-developers-0917-idCNKBS2GD0LN?il=0)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-208.png)
+
+
 
 0
