@@ -94,28 +94,28 @@
 ### [秘翻在线：FDA顾委会全票通过为65岁以上老年人注射中共病毒疫苗加强针](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世行调查发现现任IMF总裁推动工作人员提升中国排名](/content/gnews/28/README.md)
+### [法国召回驻美和澳大使](/content/gnews/28/README.md)
+ ` Charlie`
+
+### [世行调查发现现任IMF总裁推动工作人员提升中国排名](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [墨尔本反封锁抗议引发暴力冲突](/content/gnews/29/README.md)
+### [墨尔本反封锁抗议引发暴力冲突](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [IMF总裁被指控提升中国在世界银行报告中的排名](/content/gnews/30/README.md)
+### [IMF总裁被指控提升中国在世界银行报告中的排名](/content/gnews/31/README.md)
  ` wenwu`
 
-### [从五眼到三边，美国重塑抗中盟友圈？](/content/gnews/31/README.md)
+### [从五眼到三边，美国重塑抗中盟友圈？](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [银河快讯：丰田下月暂停日本14家工厂；日本质疑中共国是否有资格加入TPP](/content/gnews/32/README.md)
+### [银河快讯：丰田下月暂停日本14家工厂；日本质疑中共国是否有资格加入TPP](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/33/README.md)
+### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：英国最新病毒防御政策仍在依赖疫苗](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线:美国司法部起诉大流行期间的医疗欺诈](/content/gnews/35/README.md)
+### [秘翻在线：英国最新病毒防御政策仍在依赖疫苗](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/36/README.md)

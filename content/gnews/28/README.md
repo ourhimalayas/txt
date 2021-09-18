@@ -2,40 +2,19 @@
 ---
 
 
-## 世行调查发现现任IMF总裁推动工作人员提升中国排名
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1540203/)
+## 法国召回驻美和澳大使
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1540234/)
 
-2021年09月18日
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09181-1.jpg)
+两天前，美国总统乔•拜登、澳大利亚总统斯科特•莫里森和英国首相鲍里斯•约翰逊通过视频会议宣布了在太平洋合作、应对中（共）国扩张主义的“Aukus”战略联盟的诞生。澳大利亚先前已经通过了以 560 亿欧元的价格购买 12 艘法国潜艇的“世纪合同”，当时澳大利亚郑重重申了与法国关系的重要性。现在法国宣布召回其驻华盛顿和堪培拉的大使回巴黎，Quai d’Orsay 公报称澳大利亚和美国于9月15日宣布的声明非常严肃。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/WH.jpg)世界银行前首席执行官克里斯塔利娜-格奥尔基耶娃表示，她不同意对该组织有影响力的 “营商环境 “报告的调查结果。 © 路透社
+堪培拉决定将从美国购买潜艇，而不是从法国。美、英、澳这三个国家现在联合在了一个新联盟中。法国方面的第一反应在外交上，这已经非常严厉和不寻常：外交部长让-伊夫·勒德里安谈到称澳大利亚是在“背后捅刀子”。同时法国政府立即取消了在菲利普·艾蒂安大使驻华盛顿官邸举行的晚会。发表评论十二小时后，Quai d’Orsay 在晚上宣布，它已将法国驻华盛顿和堪培拉大使召集到巴黎。法国称该协议的放弃和另一个联盟的诞生是盟友和合作伙伴之间不可接受的行为，这对我们的联盟概念和欧洲在印太地区的重要性产生了影响。
 
-华盛顿（路透社）据周四发布的一项独立调查显示，包括时任首席执行官克里斯塔利娜·格奥尔基耶娃在内的世界银行领导人向工作人员施加了“不当压力”，以提高中共在世界银行《2018年营商环境报告》中的排名。
+免责申明：本文只代表译者观点，与Gnews无关
 
-这份由律师事务所WilmerHale应世行道德委员会要求编写的报告引发了对中共国在世界银行影响力以及现任国际货币基金组织总裁格奥尔基耶娃和时任世界银行行长金墉的判断的担忧。
+原文链接：[https://www.corriere.it/esteri/21\_settembre\_17/francia-richiama-ambasciatori-stati-uniti-australia-il-patto-aukus-anti-cina-61915db8-17f1-11ec-b2b6-639c253d3354.shtml](https://www.corriere.it/esteri/21_settembre_17/francia-richiama-ambasciatori-stati-uniti-australia-il-patto-aukus-anti-cina-61915db8-17f1-11ec-b2b6-639c253d3354.shtml)
 
-格奥尔基耶娃表示，她“从根本上不同意报告的调查结果和解释”，并已向国际货币基金组织的执行董事会通报了情况。
-
-世界银行集团周四取消了关于商业环境的整个“营商环境”报告，称内部审计和WilmerHale的调查提出了“道德问题，包括前董事会官员以及现任和前任世界银行工作人员的行为”。
-
-WilmerHale的报告指出，金墉办公室的高级职员 “直接和间接施压”，要求改变报告的评分方法以提高中共国的得分，并说这可能是在他的指示下发生的。
-
-负责管理美国在国际货币基金组织和世界银行的主要股份的美国财政部说，它正在分析它所谓的 “严重发现”。
-
-前世界银行首席经济学家保罗·罗默 (Paul Romer) 在2018年首次对《营商环境报告》的完整性表示担忧，称智利的排名可能对社会主义时任总统米歇尔·巴切莱特 (Michelle Bachelet) 存在偏见。罗默发表评论后不久离开了世界银行。
-
-简介：中共对于国际上各种组织和NGO的渗透早就开始，国际货币基金组织和世界银行只是一个例子而已。中共的“蓝金黄”手段已经有效的把各种组织收入囊中，打着“世界”、“全球”的旗号，推动自己的邪恶计划。文贵先生的爆料，已经把中共及背后的黑暗势力的套路，暴露在了阳光之下，等待他们的会是最终的审判，一个都不能少，一个都跑不了。
-
-原文链接： [World Bank probe finds now-IMF chief pushed staff to lift China ranking](https://asia.nikkei.com/Economy/World-Bank-probe-finds-now-IMF-chief-pushed-staff-to-lift-China-ranking)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
 
 0
