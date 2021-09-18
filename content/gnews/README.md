@@ -19,14 +19,14 @@
 ### [日本将针锋相对回应中共对尖阁诸岛威胁](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [G|FASHION成功签约世界顶尖品牌SCABAL](/content/gnews/3/README.md)
+### [郭文贵直播摘要和音频2021.9.17 ： SEC和解的意义](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [G|FASHION成功签约世界顶尖品牌SCABAL](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [2021年9月17日郭先生直播速记](/content/gnews/4/README.md)
+### [2021年9月17日郭先生直播速记](/content/gnews/5/README.md)
  ` Mr. Miles Guo's News Briefing`
-
-### [爆料革命在國內的傳播是共產黨懼怕的](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [德国首席病理学家对致命的科威德疫苗伤害敲响警钟](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
