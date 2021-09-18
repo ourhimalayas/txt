@@ -28,14 +28,14 @@
 ### [共产党跪求加入CPTPP跨太平洋合作关系](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [CCP 病毒灾难：智力下降](/content/gnews/6/README.md)
+### [中东国家使用国药疫苗后的惊人发现](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国疫情：截至9月16日24时新型冠状病毒肺炎疫情最新情况](/content/gnews/7/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [CCP 病毒灾难：智力下降](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
-
-### [巴西总统因抵制疫苗而保住国民生命](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [亚利桑那州起诉拜登政府，抨击疫苗强制令“完全虚伪”](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -142,36 +142,36 @@
 ### [9/17/2021国际财经快讯：摩根下周在英国将推出数字银行Chase；美联储“缩减”时间表](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/44/README.md)
+### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [《大鱼海棠》之人物解析](/content/gnews/45/README.md)
+ ` 纽约香草山MOS03`
+
+### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/46/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/45/README.md)
+### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [没头脑和不高兴](/content/gnews/46/README.md)
+### [没头脑和不高兴](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/47/README.md)
+### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/48/README.md)
+### [巴西总统因抵制疫苗而保住国民生命](/content/gnews/50/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/49/README.md)
+### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/50/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/53/README.md)
  ` wenwu`
 
-### [&#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;](/content/gnews/51/README.md)
+### [&#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;](/content/gnews/54/README.md)
  ` GTV新闻访谈`
-
-### [《我是音雄》第二季第四期首场复赛 节目预告](/content/gnews/52/README.md)
- ` 我是音雄`
-
-### [美国FDA拒绝为16-65岁的人接种辉瑞加强针](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [9/18/21 香港快讯 职工盟启动解散程序　周日召开记者会交代](/content/gnews/54/README.md)
- ` 英喜-粵語組`
 

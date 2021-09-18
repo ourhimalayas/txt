@@ -2,62 +2,18 @@
 ---
 
 
-## 巴西总统因抵制疫苗而保住国民生命
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1540517/)
+## 中共国疫情：截至9月16日24时新型冠状病毒肺炎疫情最新情况
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1540819/)
 
-作者：香草山写作组 – 我爱正义
+作者：沉默老哥
+![](https://assets.gnews.org/wp-content/uploads/2021/09/id13230570-GettyImages-1235228433-600x400-1-edited.jpg)
+发布时间： 2021-09-17 来源: 卫生应急办公室
 
+9月16日0—24时，31个省（自治区、直辖市）和新疆生产建设兵团报告新增确诊病例84例。其中境外输入病例22例（云南16例，河南2例，广东2例，上海1例，浙江1例），含2例由无症状感染者转为确诊病例（浙江1例，河南1例）；本土病例62例（福建61例，其中厦门市31例、莆田市28例、泉州市1例、漳州市1例；云南1例，在德宏傣族景颇族自治州），含1例由无症状感染者转为确诊病例（在福建）。无新增死亡病例。新增疑似病例2例，均为境外输入病例（均在上海）。
+当日新增治愈出院病例45例，解除医学观察的密切接触者661人，重症病例较前一日增加1例。
 
+境外输入现有确诊病例587例（其中重症病例3例），现有疑似病例2例。累计确诊病例8754例，累计治愈出院病例8167例，无死亡病例。
+截至9月16日24时，据31个省（自治区、直辖市）和新疆生产建设兵团报告，现有确诊病例916例（其中重症病例5例），累计治愈出院病例90025例，累计死亡病例4636例，累计报告确诊病例95577例，现有疑似病例2例。累计追踪到密切接触者1177935人，尚在医学观察的密切接触者15875人。
+31个省（自治区、直辖市）和新疆生产建设兵团报告新增无症状感染者20例，其中境外输入14例，本土6例（均在福建莆田市）；当日转为确诊病例3例（境外输入2例）；当日解除医学观察12例（境外输入11例）；尚在医学观察的无症状感染者378例（境外输入359例）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
-
-
-
-巴西总统因抵制疫苗而保住国民的生命，死亡率和感染率于9月达到新低。美联社消息，巴西总统公开表示拒绝接种新冠疫苗，遭到联合国打压，联合国纽约总部指，外国人进入纽约必须出示疫苗接种记录。另据法新社报道，巴西总统依然会赴联合国总部参加联大会议。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.28.png)
-
-巴西从2021年6月24日开始感染率和死亡率都出现大幅下降的趋势。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.34.png)
-
-巴西总统从去年11月开始公开拒绝疫苗，6月8日，巴西总统Bolsonaro拒绝以半价购买辉瑞疫苗。6月22日，巴西爆出疫苗丑闻，媒体大幅报道疫苗牵涉大额腐败。在巴西总统的坚决态度之下，民众接种疫苗的情况大幅减少，全国感染率也直接下降。目前应接近新冠病毒爆发初期的水平。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.40.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.46.png)
-
-疫苗腐败、官员因分发疫苗而收受贿赂一事于6月22日爆出。巴西的感染率随即下降。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.51.png)
-
-事件在7月一直发酵，病毒感染率一直呈下降趋势。9月，巴西总统在国际的压力下，再次公开拒绝疫苗，全国的病毒感染率和死亡率都将至新低。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.56.png)
-
-值得注意的是，巴西的死亡率在今年的4月12日达到顶峰，从此一直处于下降趋势，从6月18日之后更是直线下降，说明疫苗推进越困难，死亡率就越低。反证疫苗才是公共安全的最大威胁。讽刺的是，BBC居然在4月报道巴西因疫苗推进困难而死亡率飙升，主流媒体的谎言和无耻由此可见一斑。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.28.04.png)
-
-参考新闻：
-
-[https://www.bbc.com/news/world-latin-america-56913943](https://www.bbc.com/news/world-latin-america-56913943)
-
-[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
-
-[https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries](https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries)
-
-[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

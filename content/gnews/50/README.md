@@ -2,73 +2,62 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1540001/)
+## 巴西总统因抵制疫苗而保住国民生命
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1540517/)
 
-您若想了解全文报导内容，请点击标题链接
-
-- **编译：wenwu–西班牙喜悦农场**
+作者：香草山写作组 – 我爱正义
 
 
-**1. [北京向香港富豪下旨：把钱交出来](https://www.aboluowang.com/2021/0918/1648236.html)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-18T101244.174.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-据《阿波罗新闻网》2021年9月18日电，[北京](https://www.aboluowang.com/tag/%E5%8C%97%E4%BA%AC-1.html)正逐步加强对香港的控制，北京官员最近接见香港主要地产商时，向他们提出了新任务，要求他们将资源和影响力用于支持北京的利益，并帮助解决可能破坏社会稳定的房屋短缺问题；一位接近大陆官员的消息人士指，地产商被告知“游戏规则已经改变”。
 
-[路透](https://www.aboluowang.com/tag/%E8%B7%AF%E9%80%8F-1.html)社引述三名主要地产商及一位熟悉相关会谈的香港政府顾问，在那次的闭门会议上，中共国官员传达了有关信息，指北京正在采取更广泛的努力，使香港遵守国家安全法，而且更加“爱国”。
 
-**2. [北京突插手CPTPP 美国对华经贸战略所逼？](https://www.voachinese.com/a/china-applies-cptpp-membership-counter-us-20210917/6232912.html)**
+巴西总统因抵制疫苗而保住国民的生命，死亡率和感染率于9月达到新低。美联社消息，巴西总统公开表示拒绝接种新冠疫苗，遭到联合国打压，联合国纽约总部指，外国人进入纽约必须出示疫苗接种记录。另据法新社报道，巴西总统依然会赴联合国总部参加联大会议。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-18T101507.545.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.28.png)
 
-据《美国之音》2021年9月18日电，中国商务部长王文涛9月16日向《全面与进步跨太平洋伙伴关系协定》保存方新西兰贸易与出口增长部长奥康纳(Damien O’Connor)提交了中国正式申请加入CPTPP的书面信函；去年11月20日，中共国国家主席习近平在APEC峰会上曾表示，中共国将积极考虑加入CPTPP；由于美国不是CPTPP成员国，中共国正式申请加入CPTPP给美国拜登政府在印太地区的经贸战略提出了挑战。
+巴西从2021年6月24日开始感染率和死亡率都出现大幅下降的趋势。
 
-根据CPTPP有关规定，中国如果想加入该协定，需要得到全部11个成员国批准。曾在克林顿政府时期担任美国贸易代表的巴尔舍夫斯基(Charlene Barsehfsky)最近在美国智库亚洲协会(Asia Society)主办的一场有关美中关系的报告发布会上表示，美国应加入CPTPP以应对中共国在该地区不断增长的影响力，但拜登总统表示不会按照TPP最初的架构重返该协定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.34.png)
 
-彭博社星期四（9月17日）[报道](https://www.bloomberg.com/news/articles/2021-09-17/china-wall-street-meeting-focused-on-transparency-stability)，中国金融监管机构和美国华尔街高管星期四召开了一场高层线上会议，在市场动荡和美中之间政治紧张升级之际，这场三小时的会谈聚焦讨论了透明度问题和如何保持长期稳定；出席这场美中金融圆桌会议的包括中国人民银行行长，美国高盛集团、Citadel和其他华尔街巨头的高管。双边同意继续进行双向对话，增加相互联系，同时讨论了制定持续规则的重要性。然而，彼得森国际经济研究所(Peterson Institute for International Economics)高级研究员加里·哈夫鲍尔(Gary Hufbauer)认为，启动301条款调查可能是迫使北京重回谈判桌前的唯一有效手段。
+巴西总统从去年11月开始公开拒绝疫苗，6月8日，巴西总统Bolsonaro拒绝以半价购买辉瑞疫苗。6月22日，巴西爆出疫苗丑闻，媒体大幅报道疫苗牵涉大额腐败。在巴西总统的坚决态度之下，民众接种疫苗的情况大幅减少，全国感染率也直接下降。目前应接近新冠病毒爆发初期的水平。
 
-**3. [韩光演习最后一天 台战机击退模拟敌人](https://www.taiwannews.com.tw/en/news/4290164)**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.40.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-18T101635.197.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.46.png)
 
-据《台湾英文新闻》2021年9月17日电，美国空军于周五（9 月 17 日）进行了反击演习，这是汉光军演的最后一天，其中涉及本土防御战斗机（IDF）驾驶模拟敌机，以色列国防军负责保卫台湾海峡周围的领空。
+疫苗腐败、官员因分发疫苗而收受贿赂一事于6月22日爆出。巴西的感染率随即下降。
 
-周五早上，以色列国防军从台中国际机场起飞执行反击任务。战斗机在飞行前完成了各种起飞，旨在测试飞行员和地勤人员的训练。5天的演习，军队开展了战斗力保全演练、反登陆火炮打靶演练、公路起降演练、医疗应急演练、沙滩反击模拟演练、淡水河保护演练等。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.51.png)
 
-**4. [美国因伊朗制裁数家香港中国实体](https://www.taiwannews.com.tw/en/news/4290534)**
+事件在7月一直发酵，病毒感染率一直呈下降趋势。9月，巴西总统在国际的压力下，再次公开拒绝疫苗，全国的病毒感染率和死亡率都将至新低。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip80.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.56.png)
 
-据《台湾英文新闻》2021年9月17日电，根据周五美国财政部网站上发布的通知，美国对数家设在香港的中国实体实施了与伊朗有关的制裁。
-该部门表示，列出的实体包括 Black Drop Intl Co Ltd、China 49 Group Co Ltd、Damineh Optic Ltd、PCA Xiang Gang Ltd、台湾 Be Charm Trading Co Ltd、Victory Somo Group HK Ltd、Yummy Be Charm Trading HK Ltd。
+值得注意的是，巴西的死亡率在今年的4月12日达到顶峰，从此一直处于下降趋势，从6月18日之后更是直线下降，说明疫苗推进越困难，死亡率就越低。反证疫苗才是公共安全的最大威胁。讽刺的是，BBC居然在4月报道巴西因疫苗推进困难而死亡率飙升，主流媒体的谎言和无耻由此可见一斑。
 
-**5. [全球人权组织疾呼撤销对香港支联会领导人指控](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210917-%E5%85%A8%E7%90%83%E4%BA%BA%E6%9D%83%E7%BB%84%E7%BB%87%E7%96%BE%E5%91%BC%E6%92%A4%E9%94%80%E5%AF%B9%E9%A6%99%E6%B8%AF%E6%94%AF%E8%81%94%E4%BC%9A%E9%A2%86%E5%AF%BC%E4%BA%BA%E6%8C%87%E6%8E%A7)**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.28.04.png)
 
-据《法广网》2021年9月17日电，全球61个人权团体联合声明呼吁，各国政府应采取协调行动，对包括特首在内的香港高层官员实施旅行禁令和资产冻结等制裁；总部位于纽约的人权观察中国分部主任李察逊（Sophie Richardson）表示，北京及港府应结束政治迫害，立即撤销对支联会烛光活动组织者的指控并放人。
+参考新闻：
 
-香港警方去年6月4日以防控新冠肺炎病毒疫情为由，首次拒绝批准支联会在维多利亚公园举办自1990年以来的年度“六四”烛光悼念集会，但是多名支联会成员和民主派人士不顾禁令，当晚仍自发前往举行悼念活动。事后共有26名民主派人士先后被控“参与或煽惑他人参与未经批准的集结”等罪名，而支联会前副主席何俊仁、前民阵召集人陈皓恒等12名被告日前承认控罪并被判刑，其中3人缓刑，其余9人判刑6至10个月。
+[https://www.bbc.com/news/world-latin-america-56913943](https://www.bbc.com/news/world-latin-america-56913943)
 
-支联会是香港著名的非政府泛民主派政治组织，1989年5月21日在香港支持中国八九学运的高潮中成立。支联会多年来支持中国大陆的民主运动，五大诉求是“释放民运人士、平反八九民运、追究屠城责任、结束一党专政、建设民主中国”；支联会每年6月4日都在香港组织中国大陆之外规模最大的悼念集会，纪念“六四”事件；但是去年开始，警方以防控疫情为由，已连续两年拒绝批准集会申请；在香港实施国安法的政治气氛下，支联会7名常委今年7月宣布辞职，常务委员会也于日前作出解散的决议；但就在支联会常委会通过解散决议的消息曝光后不久，警方就以支联会涉嫌“外国代理人”为由，要求提供支联会成员和与境外组织关系的资料；港警国安处9日突袭搜查原由支联会设立的六四博物馆，并于10日冻结了支联会港币220万元的资产。
+[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
 
-**6. [台湾宣布增加军费一天后 10架中国军机侵入台湾防空识别区](https://www.voachinese.com/a/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html)**
+[https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries](https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-18T103233.879.png)
+[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
 
-据《美国之音》2021年9月17日电，台湾空军星期五（17日）再次紧急升空战机监控并广播驱离侵入台湾防空识别区的10架解放军战机，台湾的防空导弹部队也持续对侵入台湾空域的中共国军机实施[追踪监控](https://twitter.com/MoNDefense/status/1438799831049244681?s=20)，包括1架运8反潜机、一家运8技术侦察机、2架歼11战机、6架歼16战机。其中运8反潜机和运8技侦机侵扰的是台湾东南空域。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-10架解放军军机扰台发生在国军汉光37号实兵实弹演习落幕的当天；10架解放军军机侵入台湾防空识别区也发生在台湾行政院向立法院提出一项2,400亿元新台币（约合87亿美元）特别军事预算后的一天之后；中国外交部发言人赵立坚星期四曾针对台湾这一特别军事预算表示，中国统一“这一历史大势是任何人任何势力都无法阻挡的”，台湾当局“以武谋独”、“以武拒统”的图谋都是自不量力，必将失败。
+编辑/校对/发稿：正义的小新
 
-台湾国防部9月1日发表“2021年中共军力报告书”，强调解放军现阶段已经具备对第一岛链以西区域的“软硬杀伤电子攻击、通信阻绝与遮没能力”，可以结合网军启动对台有线与无线全球网络攻击，瘫痪台湾的防空、制海及反制作战能力，因此对台湾“威胁甚巨”。
-
-解放军军机侵入台湾防空识别区于今年6月15日创造了记录，当天共有28架次的中国军机扰台；解放军多架次军机扰台还发生在4月12日，当天共有25架次军机侵入台湾防空识别区；9月5日则有19架次的中国军机扰台。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
-
-+1
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+0
