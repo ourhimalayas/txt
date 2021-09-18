@@ -2,41 +2,23 @@
 ---
 
 
-## 美共和党“叛徒”议员宣布不再竞选连任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1539125/)
+## 樱花灭共诗——万亿夺宝（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1539177/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 作者：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+海外惊闻浮宝藏，二十万亿堪琢磨。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/G.jpg)breitbart.com
-37岁的俄亥俄州众议员安东尼·冈萨雷斯（Anthony Gonzalez）【1】宣布不会竞选连任，他是1.6国会山暴乱投票赞成弹劾川普总统的共和党众议员“叛徒”之一。
+美人出浴怨乡窘，力士沉声避耳聒。
 
-《门道专家》发表文章，题目是“投票支持弹劾川普的俄亥俄州、令人讨厌的建制派人物决定不竞选连任”。【2】
+缚困手足非智浅，变生肘腋更舌拙。
 
-全文如下：
+未查环伺多强寇，犹妄一吞党产锅。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/D95FD0C0-063D-4234-A2CF-BB6F72565CA4.jpeg)
+(本文只代表作者观点，与GNews网站无关)
 
-又一个讨厌的建制派人物完了。
-
-据《每日邮报》（The Daily Mail）报道，俄亥俄州众议员安东尼·冈萨雷斯将不会竞选连任。
-
-投票弹劾唐纳德·川普并面临残酷初选的俄亥俄州众议员安东尼·冈萨雷斯宣布，他不会在2022年寻求连任。
-
-冈萨雷斯曾是众议院共和党的头号新兵，他宣布退出时再次谴责曾试图提拔他的总统，称他是“国家的癌症”。
-
-冈萨雷斯是1月6日国会大厦暴乱后投票弹劾川普的10名众议院共和党人之一，川普在参议院被判“煽动叛乱”罪名不成立，连任两届的众议员冈萨雷斯最终受到了自己所在州的谴责。
-
-冈萨雷斯曾是俄亥俄州重量级的议员，在政治上有着光明的前景。但不幸的是，他因不诚实而成为一个失败者。川普总统为这个国家做了一切之后任何真正的保守派都不可能与他对抗，当冈萨雷斯投票支持弹劾时，表明他是与大多数投票支持川普总统的美国人作对。
-
-冈萨雷斯走好。下次诚实一点，以仇恨美国的民主党人身份参选吧。
-
-（原文完）
-
-是的，人们都在期待中期选举的2022，以及2024年大选，但需要解决两个问题。第一，共和党内部的建制派，要最大限度地缩小他们的影响，最好能替换掉，众议院10个叛徒、参议员7个共和党异己，必须清除，还有一些暗藏的墙头草等需要清除掉；第二，最关键的是，解决选举舞弊问题，就是“倡导选举诚信”。9月中旬过了，似乎这方面的进展不大，当然了，中共支持的塔利班搅合了“中共病毒溯源”的进程，也影响了这方面的进度。除了亚利桑那州，其他州也处在了重重阻力之下。选举诚信解决不了，2022、2024还将是镜中花、水中月。届时民意能真正决定大选吗？希望正义战胜邪恶。
-
-参考链接：
-
-【1】[https://en.wikipedia.org/wiki/Anthony\_Gonzalez\_(politician)](https://en.wikipedia.org/wiki/Anthony_Gonzalez_%28politician%29)
-
-【2】[https://www.thegatewaypundit.com/2021/09/nasty-ohio-rino-voted-trump-impeachment-decides-not-run-reelection/](https://www.thegatewaypundit.com/2021/09/nasty-ohio-rino-voted-trump-impeachment-decides-not-run-reelection/)
-
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
 0

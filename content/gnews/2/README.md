@@ -2,33 +2,39 @@
 ---
 
 
-## 日本将针锋相对回应中共对尖阁诸岛威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1538785/)
+## 郭文贵直播摘要和音频2021.9.17 ： SEC和解的意义
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1539294/)
 
-栏目记者/责任编辑：七哩香
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-205.png)
-针对中共近年在尖阁诸岛，即钓鱼岛附近海域的强势动作， CNN9月16日报导，日本防卫大臣岸信夫接受专访时表示，尖阁诸岛是日本领土，日本将针锋相对，回应中共对尖阁诸岛的威胁，以舰对舰，并根据需要采取其它行动。
+摘要撰稿人：文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-15.jpeg)
+音频提供者：左媛
 
-这是日本现任高级官员多年来非常罕见地在尖阁诸岛主权问题上，如此明确措词表达日本立场。
 
-近几年，日本为应对中共日益增长的军事扩张和威胁，不断加强和扩大军备，为海军增添了新的驱逐舰、潜艇和各类导弹。岸信夫称，为反击中方海警船在这一地区的持续活动，日本会投入比中方更多的海警船。谈及台湾问题，岸信夫表示，台海决定着日本90%能源的运输，台湾发生的事情都与日本直接相关，如中共攻台，日本必采取必要回应。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-17-at-7.43.54-PM.png)
 
-（本文仅代表作者观点）
 
-参考链接：[日本给中国划红线，防卫相：日本决心像保卫领土一样保卫尖阁诸岛](https://www.voachinese.com/a/Japan-Draws-Red-Line-Over-Island-Dispute-20210916/6231051.html)
+## 视频：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+[视频链接：](https://gtv.org/video/id=61448b09751e4f2b0e547cad)
 
-终审：FoxRina
-校对/发稿：谐趣园
+## 音频：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+## 摘要：
+
+1. 精子歧视、卵子歧视
+2. 一定备青蒿素
+3. 安倍CPTTP跨太平洋合作组织，共产党捣乱，被习近平的一带一路取代
+4. 恒大实际债务远比2万亿多 最大的灾难 “金融票据”
+5. 绿地1万亿、富力5-8千亿、万达0.5-1万亿、保利2千亿、融创5千亿、合生创展朱孟依0.5万亿、房地产要救至少5万亿现金
+6. 中国房地产比美国 日本 德国 法国总和还多，95万亿
+7. 中国疫苗2024年前，可能会有1-2亿人突然死亡
+8. 今年年底前全世界的疫苗基本上就结束了，但中共国可能不会结束
+9. 火浴酒浴等推出照片大家会很惊讶 高清相机拍的照片 还有在现场的人 大家会惊讶于这些人竟然在现场
+10. 雷曼兄弟倒闭前所有的资料被某组织提前精细掌握，某组织提前精准预测各种金融灾难发生
+11. 路大脑骗和蛇妖闫现在缺席审判就意味着政治庇护彻底做不了了！
+12. 纽约总检察长最最后一刻拿掉对老GTV的罚款，而且同意将GTV和VOG分开，非常感谢她
+13. 郝海东大哥抱孙子了-郝润泽喜得贵子
+14. 七哥曾经被挂着牌子游街，骂人是权力，但要承担后果。
+
+
 0
