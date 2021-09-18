@@ -2,31 +2,43 @@
 ---
 
 
-## IMF总裁被点名曾为中共造假 提高排名
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1538694/)
+## 米利称通共电话不是秘密的
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1538843/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-4.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M-2.jpg)e-today.us
+9月15日笔者跟踪着参谋长联席会议主席米利通共电话事件，参议员断定这是一个叛国、泄密行为，应该逮捕法办；川普总统的声明接着用“蠢货”来冠名米利，米利应该被判叛国罪。【1】蓬佩奥国务卿、川普总统的国家安全顾问罗伯特·奥布莱恩（Robert O’Brien）表示对米利的行为不知情。
 
-视频参看：2021.09.17早GTV新闻访谈
+《福克斯新闻》（Fox News）发表文章，题目“消息人士称，蓬佩奥、川普总统的国家安全顾问对米利与中共通话的情报和越位活动一无所知”。副标题透露，前官员蓬佩奥、罗伯特·奥布莱恩说不知道任何导致米利通话的情报。【2】
 
-[https://www.youtube.com/watch?v=cg5DspBLbF0](https://www.youtube.com/watch?v=cg5DspBLbF0)
+全文如下：
 
-编辑/校对/发稿：香草山翻译部 – Lakers
+前国务卿迈克·蓬佩奥和前国家安全顾问罗伯特·奥布莱恩在其任期内都不知道有任何情报表明，中共官员认为美国计划在2020年选举前后袭击中共国，这两位前政府官员周五（9月17日）告诉《福克斯新闻》称。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
+据《华盛顿邮报》（Washington Post）记者鲍勃·伍德沃德（Bob Woodward）和罗伯特·科斯塔（Robert Costa）合著的《危险》（Peril）一书中描述，所谓的情报是参谋长联席会议主席马克·米利联系中共军方参谋长李作成的理由。
 
-**更多资讯，更多关注**
+此外，前官员告诉《福克斯新闻》，蓬佩奥和奥布莱恩都没有与米利谈论过有关情报，或者米利打给中共的两个电话——一个是在11月大选前，另一个是在2021年1月8日，国会暴乱后的两天。
 
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+伍德沃德和科斯塔的这本书声称，在李作成评估了有关中共人担心美国在南中国海军事演习中可能发动袭击的情报后，米利与李作成进行了接触。据报道，在第二次通话中，米利向中共保证，美国不会攻击他们。
 
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+米利在周五（9月17日）就这一争议发表了首次公开评论，他告诉美联社（The Associated Press），这些电话“完全在他的职责范围内”，他还将这些对话描述为“例行”对话，并称之为“在这种情况下，为了确保战略稳定安抚盟友和对手。”
 
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+前代理国防部长克里斯托弗·米勒（Christopher Miller）在2020年大选后至（拜登）就职日期间任职，他说他“没有，也永远不会授权”米利打这样的电话，并将书中的指控描述为“可耻和前所未有的不服从行为”。
 
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+然而，美国官员告诉《福克斯新闻》，这些电话“不是秘密的”，并与国防部长办公室协调过。
+
+《福克斯新闻》获悉，15名官员出席了通过视频会议进行的通话，熟悉这些电话的消息人士说，有人在现场记录了这些电话，这些电话是米勒和他的前任、前国防部长马克·埃斯珀（Mark Esper）知道的。
+
+（原文完）
+
+报道至此，米利通共电话事件存在，川普、蓬佩奥、前国家安全顾问罗伯特·奥布莱恩不知情，代理国防部长米勒也称不知情（但有人否认），前国防部长马克·埃斯珀（Mark Esper）知情，有15名官员出席了通过视频会议进行的通话。米利自称这些电话“完全在他的职责范围内”，是“例行”的对话。
+
+有关链接：
+
+【1】[https://gnews.org/zh-hans/1534933/](https://gnews.org/zh-hans/1534933/)
+
+【2】[https://www.foxnews.com/politics/pompeo-trump-national-security-adviser-milley-china-intel-outreach](https://www.foxnews.com/politics/pompeo-trump-national-security-adviser-milley-china-intel-outreach)
 
 0

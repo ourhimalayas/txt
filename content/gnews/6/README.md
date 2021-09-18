@@ -2,64 +2,53 @@
 ---
 
 
-## 德国首席病理学家对致命的科威德疫苗伤害敲响警钟
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1539151/)
+## 美国歌星呼唤民众觉醒，遭主流媒体打压噤声
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1539404/)
 
-- 编译：七叶之芒
+作者：香草山医疗部 – 圣母院钟声
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/dr_schimacher_-740x431-1.png)
 
-## 在对最近接种疫苗的人的尸检中，死亡原因的30-40%是疫苗引起的
 
-由Skydric.
 
-海德堡大学病理学研究所所长Peter Schirmacher（希尔马赫）对接受Covid-19疫苗后两周内死亡的人进行了四十多次尸检，并对他的发现表示担忧。
 
-希尔马赫说，他所检查的人中有30%到40%死于疫苗，在他看来，接种疫苗的致命后果的频率被”低估了”。
 
-在他的发现之后，希尔马赫呼吁对接种疫苗的人进行更多的尸检，以进一步确定疫苗是否与死亡有关。他警告说，大量未报告的疫苗死亡事件是由于”病理学家没有注意到大多数在接种疫苗后和可能因接种疫苗而死亡的病人的情况”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-尽管对疫苗敲响了警钟，但许多人对希尔马赫的结论表示不满，保罗-埃利希研究所称这位主任的言论”不可理喻”。大臣的走狗，德国高级免疫学家托马斯-默滕斯立即否定了这些结论：”我不知道有什么数据可以在这里做出合理的声明，我也不认为有未申报的数字。”
 
-埃朗根大学医院的免疫学家Christian Bogdan是免疫问题常设委员会（STIKO）的成员，他也反驳了希尔马赫关于”大量未报告的疫苗接种并发症甚至是死亡”的假设。
 
-尽管受到了批评，希尔马赫还是得到了自己内部的支持，德国联邦病理学家协会表示，应该对接种疫苗后一定时间内死亡的接种者进行更多的尸检。
 
-该协会的 “尸检工作组 “负责人要考虑到全科医生和卫生当局。基本上，在接种疫苗后几天或几周内死亡的病人的医生应要求进行尸检，以备怀疑，或者卫生当局应采取行动。
 
-联邦病理学家协会已经在3月份给卫生部长Jens Spahn的信中提出了这个要求，但仍然没有得到答复。
 
-当然，应该指出的是，希尔马赫的警告可能会使各种制药公司损失数十亿美元的长期业务，这就是为什么他的研究结果受到支持疫苗议程的审查和玷污。
 
-然而，希尔马赫的声誉和严肃性是不容忽视的。
+本周四，流行歌星尼基·米纳伊（Nicki Minaj）因质疑新冠疫苗安全性而被推特冻结账号，这种待遇对于新中国联邦的战友并不陌生，但对于一个世界级当红娱乐明星却非常罕见。尼基鼓励美国人对目前发生的舆论审查制度”睁开眼睛”，还补充说推特的禁令让她觉得”还有更大的事情”正在发生。
 
-希尔马赫本人已经在经营一个由国家赞助的关于Covid-19死者的尸检项目。随后，他扩大了关注范围，开始对40多名死亡的疫苗接种者进行尸检。虽然他的结果代表了一个小的样本量，但这个结果将在更大的范围内引起不安：30%到40%的人死于疫苗接种本身。病理学家列举了”接种疫苗的罕见而严重的副作用–如静脉血栓或自身免疫性疾病”。
+出生于特立尼达.多巴哥的流行歌星米纳伊最近几天因发推说她认识的人在接种了新冠疫苗后变得”睾丸肿胀，性无能，被迫取消婚事”，然后敦促她的追随者祈祷，并权衡接种疫苗的利弊再做决定。作为回应，全球主义媒体对这位明星疯狂打压，只有福克斯新闻的塔克·卡尔森和少数自由媒体为她辩护。周三晚上，米纳伊在推特上发布了卡尔森新闻评论的片段，引起了更大的反响。不久，米纳伊的推特账号被冻结。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-25.png)
+随即，她决定在Instagram在线演说，她说：当我准备在推特上发布一个民意调查时，发现自己被关进了”推特监狱”，因为他们不喜欢我说的真话。我只是问了一个关于新冠 疫苗的简单问题就遭关停账号。你不能因为害怕暴徒攻击而不话，这种噤声还不应该让人脊背发凉吗？这与世界各地基督徒和其他独裁政权的压迫有什么不同？我去过中国，他们事先关照我们，不能反对那里的当权者。我记得我们都在想，“ 哦， 好吧， 我们理解， 得尊重他们的法律。”比较现在的美国，仅仅为一个简单推特信息，人们就会背弃和孤立你。“寻问注射进你身体里的东西是什么”应该是人的基本权利。其实许多娱乐业的音乐艺术家都和我有同样的感觉，因为害怕被噤声打压，大多不敢直言。我本人再也不会使用推特了，但通过这件对新冠疫苗的舆论审查事件，我感觉背后肯定有更大的事情在发生。 请我的歌迷粉丝们睁大眼睛！
 
-在回应批评时，希尔马赫否认缺乏能力，他说：”同事们肯定是错的，因为他们不能胜任评估这个具体问题。”此外，该负责人表示，他并不是要散布恐惧，他并不反对接种疫苗，因为他自己也接种过疫苗。
+拥有2300万油管订阅户和1.57亿Instagram追随者的流行歌星，尼基. 米纳伊的简单推特言论的确触动了全球主义集团的痛处，他们最不想看到的就是民众的觉醒。特别对于青少年，没有谁比一个当红娱乐明星更有影响和号召力了。现在，我们不得不对这位娱乐明星肃然起敬，向米娜伊致敬！
 
-在未来几周内，我们或许将要看到希尔马赫的声誉在媒体、网络以及科学和医学界被彻底撕毁，然而这并不令人惊讶。
+参考链接：
 
-**简评：**
+[https://twitter.com/NICKIMINAJ/status/1438248319650656256?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438248319650656256%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fnationalfile.com%2Fnicki-minaj-open-your-fking-eyes-to-covid-censorship-twitter-ban-is-making-me-think-that-theres-something-bigger-going-on%2F](https://twitter.com/NICKIMINAJ/status/1438248319650656256?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438248319650656256%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fnationalfile.com%2Fnicki-minaj-open-your-fking-eyes-to-covid-censorship-twitter-ban-is-making-me-think-that-theres-something-bigger-going-on%2F)
 
-**随着时间的推移，接种疫苗后的灾难将逐步显现。目前，世界各国已经有很多科学家对疫苗的安全性提出了质疑。很多科学家们通过严谨的科学实验结果，对疫苗提出了严重的怀疑。**
+[https://www.foxnews.com/us/nikki-minaj-tweets-spark-protest-outside-cdc-headquarters](https://www.foxnews.com/us/nikki-minaj-tweets-spark-protest-outside-cdc-headquarters)
 
-**也许这些单纯的科学家们还联想不到疫苗背后的黑暗势力。但是，全世界的疫苗都是出自有限的几个大医药公司，其中的利润是巨大的。其背后的资本，注定也是强大的。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
 
-**郭先生在疫苗刚刚上市之时，便已经向全世界发出了严重警告。然而，邪恶的势力及为了自身权力的政客们，最终还是将有毒的疫苗推向了全世界。**
+***编辑/校对/发稿：正义的小新***
 
-**我们希望有更多的，像希尔马赫一样的科学家发现并揭露真相，这样全世界的灾难将会早日结束。**
+**更多资讯，更多关注**
 
-（文章仅代表作者观点，与GNEWS无关）
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**新闻来源：**[reseauinternational.net](https://reseauinternational.net/le-pathologiste-en-chef-allemand-sonne-lalarme-sur-les-blessures-mortelles-causees-par-le-vaccin-covid-le-vaccin-est-la-cause-de-la-mort-dans-30-a-40-des-autopsies-de-personnes-rece/)
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-* * *
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 +1

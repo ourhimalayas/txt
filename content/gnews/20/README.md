@@ -2,108 +2,191 @@
 ---
 
 
-## 世界上有史以来最大的一单回扣中介费
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539038/)
+## 平安集团的董事段伟红，消失了整整四年，两周前出狱了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539131/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0.jpg)
-[https://gtv.org/video/id=61436922784c5a2583574de9](https://gtv.org/video/id=61436922784c5a2583574de9)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/axltu-sfn8a.jpg)
+[https://gtv.org/video/id=6141326a784c5a2583566d28](https://gtv.org/video/id=6141326a784c5a2583566d28)
 
 **字幕内容:**
 
 **郭文贵**
 **Miles Guo**
 
-人类有史以来最大的白手套
-The biggest ‘white glove’(middleman) in human history
+是平安的董事
+Es el director de Ping An
 
-大家你们知道是多少钱吗？
-Do you know how much it is?
+温家宝家的代言人
+El portavoz de la familia de Wen Jiabao
 
-我告诉你们，你们要认真数这个事
-I tell you, you have to count this matter seriously
+被抓去了四年消失
+Fue arrestado y desaparecido durante cuatro años
 
-记住我郭文贵今天说这话
-Mark my words today
+我告诉大家
+Déjame decirles
 
-我承担法律责任
-I take legal responsibility for what I say
+两周前, 段伟红出狱了
+Hace dos semanas, Whitney Duan salió de la prisión
 
-希望被点到名的人来告我
-I hope someone I named will sue me
+我可以告诉你们
+Puedo decirles
 
-一个人类有史以来拿到1200亿美元中介费的一单交易
-A single transaction that has received 120 billion US dollars in intermediary fees in the history of mankind
+几乎是除了中纪委, 中南坑
+Casi a excepción de la Comisión Central de Inspección Disciplinaria y la cueva del PCCh
 
-中国的政府官员，他的白手套拿了1200亿
-Chinese government officials, his middleman (White Glove) took 120 billion dol-lars
+你们是最早知道了
+Ustedes son los primeros en enterarse
 
-这1200亿是纯现金
-This 120 billion dollars are pure cash
+就在今天, 此时此刻
+Sólo hoy, ahora mismo
 
-人家的1200亿是pure cash
-Its 120 billion dollars and are all pure cash
+今天上午十点钟
+Hoy a las diez de la mañana
 
-一单就1200亿，人家是合法拿到1200亿美元
-they took 120 billion dollars in one transaction legally
+段伟红的先生在英国伦敦
+El esposo de Whitney Duan en Londres de Reino Unido
 
-就一笔拿走，牛到这程度
-Just in one transaction, it is unbelievable
+写了一本
+Escribió un
 
-张宏伟不仅有《酒浴》之图
-Zhang Hongwei not only has that “Wine Bath” picture
+他太太, 他太太已经离婚了啊
+Su esposa está divorciada
 
-张宏伟的大老板叫陈元
-Zhang Hongwei’s big boss is Chen Yuan
+写了一本中国腐败的书, 今天出版
+Escribió un libro sobre la corrupción en China donde hoy fue publicado
 
-陈元是唯一促成沙特和中国共产党签署了阿美石油协议的5000亿美元现金投入
-Chen Yuan is the only one that led to the signing US$500 billion cash input of the Aramco Oil Agreement between Saudi Arabia and the Communist Party of China
+今天纽约时报或华尔街日报可能会采访
+Hoy, el New York Times o el Wall Street Journal a lo mejor lo van a entrevistar
 
-拥有20%沙特阿美股份的
-Owns 20% of Saudi Aramco’s shares
+此时此刻
+En este momento
 
-按照这个合同25%的佣金现金，一笔支付
-According to this contract, 25% of the commission, paid in cash
+七哥不是爆料
+No estoy dando noticias
 
-支付的所有的安排对象都是张宏伟
-All the payment arrangements are made by Zhang Hongwei
+不仅掌握情报, 还知道人下一步要往那儿走
+No sólo tengo las informaciones sino sé cuál es el siguiente paso de estas personas
 
-我可以告诉大家
-I can tell everybody
+这就叫爆料革命
+A esto se le llama Movimiento de Denunciantes
 
-我说今天爆这个料全地球，全星空也不会有几个人知道
-I broke this information today that only a few people know in the earth and whole universe
+你知道段伟红是什么人啊
+¿ Sabes quién es Whitney Duan?
 
-但记住今天我报这个料，今天我说的
-But remember today what I said about this information
+平安的董事, 温家宝的代言人
+Es el director de Ping An y el portavoz de Wen Jiabao
 
-世界上最大的一单的回扣中介费单笔的地球有人类有史以来
-The largest single commission intermediary fee in the world
+当年董事, 三个最牛的
+Los directores de aquel tiempo, los tres mejores
 
-我就觉得就这一单了
-I think this is it
+段伟红代表温家
+Whitney Duan representa a la familia Wen
 
-最重要的事情，张宏伟能玩1200亿
-The most important thing is Zhang Hongwei can handle this 120 billion dollars
+车峰我哥儿们代表戴家
+Chefeng, mi compadre que representa a la familia Dai
 
-现在看来就是这一单1200亿
-Now just look at this 120 billion dollars kickback
+都是董事吧
+Todos son directores
 
-一定会改变中国政治的格局
-It will definitely change the landscape of Chinese politics
+第三个独立董事, 大家猜是谁
+El tercer director independiente, adivinen quién es
+
+马明哲!
+¡ Ma Mingzhe!
+
+马明哲把段伟红送到监狱去
+Él fue quien envió a Whitney Duan a la prisión
+
+以为温家完了
+Creía que la familia Wen se acabará
+
+温家老妈后来都出来当股东了
+La madre de la familia Wen luego se convirtió en accionista
+
+实在没人出面了, 是吧
+Realmente ya no tienen a otra persona que pueda representar, ¿ cierto?
+
+温家宝娘都出来了
+Hasta la mamá de Wen Jiabao salió
+
+现在段伟红出来了
+Ahora que Whitney Duan salió de la prisión
+
+她老公还出书了
+Su esposo hasta publicó un libro
+
+别忘了, 没有温家宝, 没有习近平
+No olviden, sin Wen Jiabao, no existe Xi Jinping
+
+谁当时说假话, 陷害段伟红进的监狱
+Quien en aquel momento mintió e incriminó a Whitney Duan entrar a la prisión
+
+段伟红绝对是个好人啊
+Whitney Duan es una buena persona
+
+我告诉你, 段伟红绝对是个好人
+Déjame decirte, Whitney Duan es una buena persona
+
+谁陷害的段伟红? 马明哲
+¿ Quién incriminó a Whitney Duan? Ma Mingzhe
+
+为什么现在段伟红出来了
+Por qué ahora Whitney Duan sale de la prisión
+
+马明哲要出事了
+Ma Mingzhe entrará en problemas
+
+七哥现在跟你讲艺术呢
+Ahora te estoy hablando del arte
+
+讲艺术市场呢
+Del mercado de arte
+
+段伟红是帮助了
+Whitney Duan realmente ayudó
+
+知道马明哲底细
+Conoce los detalles de Ma Mingzhe
+
+可以说是中国最多的人
+Se puede decir que es la persona que sabe más
+
+知道平安秘密最多的人
+Acerca de los secretos de Ping An en China
+
+买古董, 押古董, 买画最多的人
+Quien compró más antigüedades, cuadros y apostó por antigüedades
+
+“火浴” 这个画
+Este cuadro “baño de fuego”
+
+最早接触者可能就是段伟红
+La primera persona quien contactó con él puede ser Whitney Duan
+
+原来有个亚洲卫视的人被枪毙
+Resulta que había un tipo asiático de la televisión que recibió un disparo
+
+叫啥名, 战友们记得吗
+Cómo se llama, compañeros luchadores, ¿ se acuerdan?
+
+就因为说英妹妹和江主席有一腿的人枪毙了
+Sólo porque el hombre dijo que la hermana Ying y el presidente Jiang tenían una relación rara y por eso recibió un disparo
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24](https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24)
+**原视频网址**：[https://gettr.com/post/pafgel2079](https://gettr.com/post/pafgel2079)
 
-中听英: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场– 彩虹Rainbow
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
 0
