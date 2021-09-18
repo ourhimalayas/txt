@@ -2,30 +2,44 @@
 ---
 
 
-## 媒体的核力量
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1540179/)
+## 【修罗短评】灭共三巨头公开聚集，打开作战新局面
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1540216/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/媒体.png)
-图片来自https://en.m.wikipedia.org/wiki/St\_Vincent
+作者：修罗闻道
 
-今天从澳洲的一则新闻报道说起。新闻说的是：二位未接种疫苗的护士导致悉尼一家医院的心脏手术停止无法进行。
-报道称：上周，在达令赫斯特的圣文森特医院的两名未接种疫苗的轮班护士工作后，被证实病毒，导致该州十几名顶级心脏病专家被迫隔离，并取消了多项紧急心脏手术。一位无法透露姓名的高级心脏病介入专家透露，心脏手术陷入停顿，几十个患者面临长达数周的延误。通常每天运行四个心脏导管实验室，由于成为暴露点和工作人员减少，现在只能维持一个手术室半天的运营。
+[![](https://spark.adobe.com/page/va25AKOnPodPv/images/2f5263d4-e998-45fe-afc2-2b6c699dc714.png?asset_id=f2c293f6-ee8e-4327-bddd-db4e8fbe41ce&amp;img_etag=%22af70466f2a36fb6671eadaa9537ec002%22&amp;size=2560)](https://spark.adobe.com/page/va25AKOnPodPv/images/2f5263d4-e998-45fe-afc2-2b6c699dc714.png?asset_id=f2c293f6-ee8e-4327-bddd-db4e8fbe41ce&amp;img_etag=%22af70466f2a36fb6671eadaa9537ec002%22&amp;size=1024)
 
-媒体借用这些糟糕的情形，还引用一部分人的报怨说：有人非常担心医院里的一小群护士不想接种疫苗。
+2021年9月15日，绝对是激动人心的日子，当看到三位灭共斗士同框的时候，相信任何战友都无法掩饰内心的欣喜与感动。中式的房间、中式的餐具、中式的菜肴、轻松的氛围，一切都是那么的和谐自然。
 
-上述的媒体报道完全是个伪命题，而且是偷换了概念，严重误导了公众的视野，这篇报道无疑是对当前病毒大流行投下的另一枚核弹，危害无穷！让我们来分析一下：
+[![](https://spark.adobe.com/page/va25AKOnPodPv/images/3f1ad0d4-7b4a-47e0-9b7f-a06d6d830784.jpg?asset_id=9c45cdec-9673-43d3-9500-99ec155f85c1&amp;img_etag=%22a8018f7321766623d6a9a2ea2d12aaf9%22&amp;size=1024)](https://spark.adobe.com/page/va25AKOnPodPv/images/3f1ad0d4-7b4a-47e0-9b7f-a06d6d830784.jpg?asset_id=9c45cdec-9673-43d3-9500-99ec155f85c1&amp;img_etag=%22a8018f7321766623d6a9a2ea2d12aaf9%22&amp;size=1024)
 
-其一，所有的有权威的卫生医疗机构和官方，包括媒体都认可，打了疫苗，并不能阻止你不被感染病毒，那也意味着即使二位护士打了疫苗，也可能被感染，媒体又怎能将上述糟糕的情形，归罪于不打疫苗？而且媒体并没有报道，是否对所有人员进行核酸检测，你能保证在这些接种疫苗的人中是否有无症状感染着？这些没有彻底调查和检测的情行下，媒体有何资格妄下结论？而且还在引导大众？
+文贵先生多次说“爆料革命不依靠任何人，靠的就是战友”。今天，一直因为各种原因不能公开站在一起的老战友终于同文贵先生和班农先生公开相聚，并向全世界公布了自己的新身份。
 
-其二，用这些媒体的逻辑，既然媒体认为打了疫苗的人是安全的，为什么要停止科室的各项工作？打了疫苗的工作人员完全可以继续工作，应该不会影响到医院的正常运作。
+皮特·纳瓦罗先生，常被川普总统称之为“我的皮特”，一位渊博的学者、坚毅的战士。喜欢穿着老皮鞋，骑着自行车的简朴老人，曾在大陆游历考察许久，写出了震动西方世界的名作《致命中国》。他是名副其实的“中国人民的老朋友”，绝非中共政权的老朋友。纳瓦罗先生这次的公开亮相，对于全球政坛，无疑是一次大震动；对于我们，却是无比的欣喜；而对于中共，那就是无比的恐惧。
 
-其三，这篇媒体报道似在宣扬疫苗的保护作用，那这里还要提出一个很明显基本的问题，如果疫苗有保护作用，为什么打过疫苗的人还需要保护呢？现在的媒体是在到处发表这些自相矛盾的混乱信息，以混淆视听，误导人们的判断。
+所有新中国联邦人都熟悉的班农先生，在2016年大选局势不利的情况下，力挽狂澜，将川普送进了白宫，这位全球“平民主义”的发起人，有着勇敢不屈的爱尔兰血统。更是一位媒体界的天才，曾经被称为华盛顿三位最有权势的人物之一。自2017年以来，与文贵先生联手灭共，由中共老杂毛极力想拉拢的权力人物变成了爆料革命的坚定战友，并于2020年6月4日，在纽约和文贵先生一起向世界宣告了新中国联邦的成立。
 
-这次病毒大流行和疫苗运动中，充分向我们证实了媒体超核弹的力量，传播真相，撑握话语权是如此重要，所幸的是今天我们有G系列媒体平台，Gnews，Gtv和Gettre！
+追随爆料革命的战友，一直在见证英雄的登场和奇迹的诞生。当文贵先生公开站在世人面前，战神般的姿态所向披靡，凭实力验证什么是：一人抵一国，一人剿一党，一人聚豪雄，一人铸正道。
 
-参考資料：https://www.smh.com.au/national/nsw/unvaccinated-nurses-bring-heart-procedures-to-standstill-in-sydney-hospital-20210916-p58s7v.html
+[![](https://spark.adobe.com/page/va25AKOnPodPv/images/60b1baf3-7c28-4cfc-a06c-d85c7ce1fa9d.jpg?asset_id=7fe6de29-9a7a-4186-ba96-11ae99980615&amp;img_etag=%22709e689764225cdaacf4b59d23b49eb9%22&amp;size=1024)](https://spark.adobe.com/page/va25AKOnPodPv/images/60b1baf3-7c28-4cfc-a06c-d85c7ce1fa9d.jpg?asset_id=7fe6de29-9a7a-4186-ba96-11ae99980615&amp;img_etag=%22709e689764225cdaacf4b59d23b49eb9%22&amp;size=1024)
 
-(文章内容仅代表作者观点)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
-+1
+英雄所聚，便是正途。灭共之路将势不可挡，全球的灭共队伍正在迅速壮大，所有正义的灭共人士都会在新中国联邦获得应有的尊重和地位。如同纳瓦罗先生一样，他接受了新中国联邦的诚意和热爱，成为新中国联邦的国家代表大使和全球媒体新星盖特的形象大使。
+
+继米勒先生担任盖特总裁后，美国政府的前高层幕僚再次公开加入灭共队伍，值得期待的作战局面已经开启。
+
+（本文仅代表作者个人观点）
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：文明明 | 审核：仙女儿-文善 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+[![](https://spark.adobe.com/page/va25AKOnPodPv/images/9fcdf068-b071-4e8d-8c98-97d60b0ff2a9.jpg?asset_id=36bf72e4-a8e9-4c8f-b11e-7b97467df994&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/va25AKOnPodPv/images/9fcdf068-b071-4e8d-8c98-97d60b0ff2a9.jpg?asset_id=36bf72e4-a8e9-4c8f-b11e-7b97467df994&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+
+
+0

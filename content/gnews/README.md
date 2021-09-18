@@ -19,14 +19,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年9月16日郭先生盖特3「9分31秒」](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月17日郭文贵先生G-TV直播小飞象速记版](/content/gnews/4/README.md)
+### [共产党跪求加入CPTPP跨太平洋合作关系](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [郭文贵直播摘要和音频2021.9.17 ： SEC和解的意义](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [2021年9月16日郭先生盖特3「9分31秒」](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月17日郭文贵先生G-TV直播小飞象速记版](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
 
 ### [新研究揭示 COVID 疫苗有效性迅速下降](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -142,36 +142,36 @@
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/44/README.md)
+### [习近平视频出席阿富汗问题联合峰会](/content/gnews/44/README.md)
+ ` 儒为`
+
+### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [灭共小童谣](/content/gnews/45/README.md)
+### [灭共小童谣](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/46/README.md)
+### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/47/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [媒体的核力量](/content/gnews/47/README.md)
+### [媒体的核力量](/content/gnews/48/README.md)
  ` 澳喜农场`
 
-### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/48/README.md)
+### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：向善而生，向光明而生](/content/gnews/49/README.md)
+### [G时评：向善而生，向光明而生](/content/gnews/50/README.md)
  ` GISELLE`
 
-### [勿忘国耻，9.18窃国者的谎言](/content/gnews/50/README.md)
+### [勿忘国耻，9.18窃国者的谎言](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/51/README.md)
+### [有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/52/README.md)
  ` MOSREC`
 
-### [中共超限战灭港行动（七十四）中共组织爪牙 争夺「道德光环」话语权](/content/gnews/52/README.md)
+### [中共超限战灭港行动（七十四）中共组织爪牙 争夺「道德光环」话语权](/content/gnews/53/README.md)
  ` 英喜-粵語組`
 
-### [GTV與SEC的和解對新中国联邦的意义](/content/gnews/53/README.md)
+### [GTV與SEC的和解對新中国联邦的意义](/content/gnews/54/README.md)
  ` 左媛专栏`
-
-### [对海外民运人士与组织的分析](/content/gnews/54/README.md)
- ` 首尔天池农场`
 
