@@ -28,14 +28,14 @@
 ### [郭文贵直播摘要和音频2021.9.17 ： SEC和解的意义](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线：英国最新病毒防御政策仍在依赖疫苗](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [FDA专家小组压倒性反对广泛为民众接种疫苗加强剂](/content/gnews/7/README.md)
- ` G&#124;News TAIWAN`
+### [青蒿素、伊维菌素对抗新冠状病毒完胜COVID19疫苗](/content/gnews/7/README.md)
+ ` G-NEWS TAIWAN`
 
-### [全力堵截反封锁抗议者，周六墨尔本警力出动](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线:美国司法部起诉大流行期间的医疗欺诈](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [每日快报：中共国在《奥库斯条约》签署后仅一天就将包括战斗机在内的十架飞机飞入台湾领空](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -58,8 +58,8 @@
 ### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [祝贺马丁·班农先生百岁生日快乐！](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [视频集锦：科学家、医生和各界人士谈疫苗背后的暗黑势力](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [祝贺马丁·班农先生百岁生日快乐！](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -67,13 +67,13 @@
 ### [祝贺马丁·班农先生百岁生日快乐！](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共正在帮助某大国建立三个生化实验室](/content/gnews/19/README.md)
+### [祝贺马丁·班农先生百岁生日快乐！](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共正在帮助某大国建立三个生化实验室](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [平安集团的董事段伟红，消失了整整四年，两周前出狱了](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [“掩盖或隐藏与强制疫苗相关的风险”，“我们需要面对数据”](/content/gnews/21/README.md)
+### [平安集团的董事段伟红，消失了整整四年，两周前出狱了](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [秘翻在线：朝鲜再度加码核武计划被卫星抓包](/content/gnews/22/README.md)
@@ -103,19 +103,19 @@
 ### [DC大中华时事：央视快评，构建更加紧密的上海合作组织命运共同体](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [台湾宣布增加军费一天后10架中国军机侵入台湾防空识别区](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [雅典娜时报-第055期](/content/gnews/32/README.md)
+### [美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [来者不善，中共提交加入CPTPP申请](/content/gnews/33/README.md)
+### [台湾宣布增加军费一天后10架中国军机侵入台湾防空识别区](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [雅典娜时报-第055期](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [来者不善，中共提交加入CPTPP申请](/content/gnews/34/README.md)
  ` 军迷wilson`
 
-### [接种中共病毒疫苗，损害妇女生育能力](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本感染中共病毒死亡人数，累计突破17000人](/content/gnews/35/README.md)
+### [接种中共病毒疫苗，损害妇女生育能力](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/36/README.md)
@@ -145,33 +145,33 @@
 ### [读《道德经》第七章](/content/gnews/44/README.md)
  ` 纽约香草山MOS03`
 
-### [读《道德经》第六章](/content/gnews/45/README.md)
+### [FDA专家小组压倒性反对广泛为民众接种疫苗加强剂](/content/gnews/45/README.md)
+ ` G&#124;News TAIWAN`
+
+### [读《道德经》第六章](/content/gnews/46/README.md)
  ` 纽约香草山MOS03`
 
-### [乐天董事长三木谷浩史：日本移民政策应放开](/content/gnews/46/README.md)
+### [乐天董事长三木谷浩史：日本移民政策应放开](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [[ 聚焦港澳 ] 香港的民风与民格](/content/gnews/47/README.md)
+### [[ 聚焦港澳 ] 香港的民风与民格](/content/gnews/48/README.md)
  ` 澳喜农场`
 
-### [读《道德经》第四章](/content/gnews/48/README.md)
+### [读《道德经》第四章](/content/gnews/49/README.md)
  ` 纽约香草山MOS03`
 
-### [前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。](/content/gnews/49/README.md)
+### [全力堵截反封锁抗议者，周六墨尔本警力出动](/content/gnews/50/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本感染中共病毒死亡人数，累计突破17000人](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [前白宫经济顾问彼得·纳瓦罗: 福奇通过压制羟基/伊维菌素等疗法来杀害美国人。](/content/gnews/52/README.md)
  ` 美国政要直译推`
 
-### [中共政府向香港地产大亨发出敲打信号：要守规矩 更要回馈社会](/content/gnews/50/README.md)
+### [中共政府向香港地产大亨发出敲打信号：要守规矩 更要回馈社会](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [国安法影响下 香港教师现离职潮](/content/gnews/51/README.md)
+### [国安法影响下 香港教师现离职潮](/content/gnews/54/README.md)
  ` GTV新闻访谈`
-
-### [软弱、胆怯的欧洲-评欧盟对华战略报告（一）](/content/gnews/52/README.md)
- ` 澳喜农场`
-
-### [美国歌星呼唤民众觉醒，遭主流媒体打压噤声](/content/gnews/53/README.md)
- ` 纽约香草山MOS01`
-
-### [2021年09月17日澳喜要闻（每日更新）](/content/gnews/54/README.md)
- ` 澳喜农场`
 
