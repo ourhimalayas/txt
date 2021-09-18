@@ -2,31 +2,40 @@
 ---
 
 
-## 台湾&#8221;汉光军演&#8221;落幕, 中共军机侵扰创单日新最
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540331/)
+## 美国FDA拒绝为16-65岁的人接种辉瑞加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540345/)
 
-栏目记者/责任编辑: 文不破
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
-9月17日，台湾年度最大军演 “汉光37号” 实弹演习正式结束。当天共有10架中共军机侵扰台湾防空识别区，其中8架侵扰西南空域，2架侵扰东南空域。台空军于当日紧急调谴 战机 趋近进行广播驱离，台防空导弹部队亦对中共军机实施持续追踪监控。
+栏目记者/责任编辑：雪梨
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+因临床试验数据不足，以及潜在的心脏炎症风险，美国食品和药物管理局FDA咨询小组 于周五以16比2的投票结果，拒绝为16-65岁的人接种辉瑞公司的加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-30.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-47.jpg)
 
-此次台军汉光37号演习从13日开始, 期间中共军机的侵扰和挑衅从未停止，17日更是创国防部单日数量统计新最。文贵先生在17日的直播中再次警告，中共为转移国内经济及疫苗危机，随时都可能入侵台湾，且极可能使用人类历史上比核战争还要残酷的极限战争形式。而爆料革命/新中国联邦正在酝酿推进的雷霆行动，是解台湾于倒悬的唯一希望。
+该咨询小组由18名有影响力的专家，包括FDA“疫苗和相关生物制品咨询委员会”（VRBPAC）的成员，和来自疾病控制和预防中心（CDC）、以色列卫生部的官员、疫苗专家和辉瑞公司的代表。该小组成员认为加强针在针对年轻群体，尤其是16-17岁的男性群体方面的数据不足，而且存在潜在的、增加心脏炎症的风险。
 
-（本文仅代表作者观点）
+新冠疫苗已经在世界上造成了巨大的伤害。由于主流媒体，以及各地政府机构的压制，包括辉瑞在内，新冠疫苗仍盛行全球。但随着爆料革命对疫苗真相的持续传播，各种医学真相见诸报端。越来越多的医学专家和官员会更加清楚地认识到疫苗的危害。
 
-参考链接:[台湾宣布增加军费一天后 10架中国军机侵入台湾防空识别区](https://www.voachinese.com/a/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html)
+参考链接：
+[FDA panel endorses Pfizer’s COVID-19 vaccine booster for people 65 and older, high-risk patients](https://www.foxnews.com/health/fda-panel-pfizer-covid-19-vaccine-booster)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+本文仅代表作者观点
 
-终审：文龍
-校对/发稿：谐趣园
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+
+**终审：暗黑**
+
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

@@ -2,22 +2,30 @@
 ---
 
 
-## 秘翻在线 :恒大倒闭危机导致铁矿期货价格暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540305/)
+## 澳大利亚警告北京：先撤报复性关税再谈入CPTPP事
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1540515/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/p.jpg-2.png)
-图片来源：ModularPhonesForum
+2021年09月18日
 
-根据零对冲(Zero Hedge) 的报导,由于负债 3000 亿美元的中共国房地产公司恒大即将面临倒闭，铁矿价格已跌至每吨 100 美元以下，创下有史以来最低，对基本金属价格造成巨大压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-3.jpg)网络图片
 
-根据报导，本周在新加坡交易所的铁矿期货暴跌 21%，原因是恒大的倒闭危机损害了中共国的住宅房地产市场前景以及信心。恒大的 2023 年债券叠加在铁矿期货上，金属交易商担心这家大型房地产公司倒闭，未来新建住宅会受到严重的冲击。
+**编辑摘要：**据自由时报9月18日报道称，对于中共国争取加入“跨太平洋伙伴全面进步协定”（CPTPP），澳大利亚贸易部长特汉（Dan Tehan）放话：除非北京撤销对澳洲产品的报复性关税，否则澳洲不会与中共国就加入CPTPP展开谈判。
 
-人们怀疑中共政府是否会运用紧急救助来确保房地产市场不受到冲击，这将有助于稳定金属市场。中共国人民银行的新数据显示中共已经开始行动。9月17日，中共国央行增加了 140 亿美元的流动性注入，这是自 2 月以来最重要的资金注入，预估此次行动与避免经济全面崩溃有关。
+特汉表示，澳大利亚在考虑让中共国入会前，必须对中共国遵守自由贸易的纪录有信心，CPTPP现有成员国希望确定中共国兑现其在世界贸易组织（WTO）与现有贸易协议下，做出的自由贸易承诺。
 
-由于中共信贷脉冲已见底，中共势必不乐见经济陷入萧条。可以预见，中共新一轮的骗贷戏码即将登场。
+该报道说，澳大利亚去年4月倡议对新冠肺炎病毒疫情的起源展开独立调查后，中共并对澳洲产品实施报复性关税。澳中两国就陷入外交僵局，两国部长级互动也中断迄今。尽管如此，上周中共致函澳大利亚国会，游说其支持中共国加入CPTPP。
 
-新闻来源： [Iron Ore Futures Stumble In Worst Week Ever Amid Evergrande Meltdown](http://Iron%20Ore%20Futures%20Stumble%20In%20Worst%20Week%20Ever%20Amid%20Evergrande%20Meltdown)
+新闻参考链接：[澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](https://www.rfi.fr/cn/中国/20210918-澳大利亚警告北京-先撤报复性关税再谈入cptpp事)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

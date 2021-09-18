@@ -2,25 +2,38 @@
 ---
 
 
-## 秘翻在线：澳大利亚前总理阿博特：澳英美安全协议为澳大利亚做了三件事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540211/)
+## 数万名示威者聚集纽约时代广场，抗议接种证明计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540344/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：雪梨
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+纽约自由集会的组织者埃里克·格拉西（Eric Grassi）日前向gateway pundit表示，预计将有数万人参与周六下午在纽约时代广场举行的游行活动，抗议疫苗护照。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-46.jpg)
+格拉西说道，新冠病毒是对人类的生物战和心理战，而疫苗护照严重侵犯人民的基本权利，是邪恶政客们密谋的一场世界性的政变，这一邪恶计划导致纽约数以千计的企业倒闭，数十万个工作岗位消失，纽约人民的生活陷入极大的困境。疫苗及其带来的次生危险，正在对全世界人民造成巨大的伤害。消防员、教师、军人、医护人员都不愿意接种疫苗。为儿童接种疫苗更是一种不可饶恕的犯罪行为。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-82.jpg)图片来源：网络图片
-据9月18日澳洲《天空新闻台》（SkyNews）报道，澳大利亚前总理托尼·阿博特（Tony Abbott）指AUKUS（澳英美安全协议）给澳大利亚带来三大好处。
+据悉，此次游行活动将于下午1点从曼哈顿的哥伦布广场开始，抗议者将在下午1:30游行到时代广场。拜登将于下周二在联合国大会进行首次演讲，此次大规模的抗议，则是对其举行的“欢迎仪式“，表达民众坚定一致，不屈服于政府强制令，联合起来阻止专制和暴政的决心。
 
-托尼·阿博特1994年当选为联邦众议院议员，2009年出任自由党领袖及国会反对党领袖，2013年9月至2015年9月任澳大利亚总理及自由党领袖。卸任总理及党魁后，继续担任议员至2019年5月卸任。
+参考链接：
+[Thousands Of Outraged New Yorkers To Protest Vaccine Passport Mandate In Times Square on Sept. 18](https://www.thegatewaypundit.com/2021/09/thousands-outraged-new-yorkers-protest-vaccine-passport-mandate-times-square-sept-18/)
 
-9月18日，在接受《天空新闻台》主持人凯瑟琳·麦格雷戈（Catherine McGregor）采访时，阿博特说：
+本文仅代表作者观点
 
-首先，澳大利亚、英国和美国建立了一个战略联盟，澳大利亚将获得一支核动力潜艇舰队。它为我们提供了更加可靠的战略威慑力，因为核潜艇的效果威力不可估量。
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
 
-其次，它代表着英国回归到了我们这个地区，很高兴再次看到苏伊士以东的英国。
+**终审：暗黑**
 
-第三，而且是非常重要的，通过加入核动力潜艇俱乐部，澳大利亚将成为西方联盟中比以往更为重要的成员。
+**校对/发稿：童谣**
 
-新闻来源：[AUKUS alliance does ‘three things’: Tony Abbott](https://www.skynews.com.au/opinion/aukus-alliance-does-three-things-tony-abbott/video/2005e98b25f858e5ca4890d67e5badfe)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
