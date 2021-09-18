@@ -2,49 +2,27 @@
 ---
 
 
-## 拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1539107/)
+## 秘翻在线: 中共将军曾从加拿大顶级病毒实验室获取病毒样本
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1539024/)
 
-作者：纽约香草山农场 – 捆绑CCP一千年
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-9.jpg)图片来源：Post Milennial
+来自加拿大 Post Milennial 9月16日的一篇报道揭示了被解雇的加拿大P4实验室的研究员与中共将军合作这一事件的真相。
 
+邱果香曾在加拿大温尼伯的P4实验室工作。 而因中共病毒而知名的中共将军陈薇曾与之密切合作。并在2016年和2020年合作撰写了两篇关于埃博拉的科学论文。但论文并未标注她是中共国一流的流行病学家的军方身份。邱香果在2019年曾向中共病毒起源地武汉病毒所发送过30瓶15种不同的埃博拉病毒和亨尼帕病毒样本。之后邱香果和她的先生在国家微生物实验室（NML）的安全许可于2019年7月被撤销，并于2020年1月被NML解雇。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+当被问及加拿大公共卫生署（PHAC）是否认为其工作人员与中国高级军事人员一起工作是标准做法时，PHAC发言人说，”虽然NML与中国军方没有机构协议，但加拿大的科学家已经与中国科学家合作，为全球公共卫生对抗致命疾病（如埃博拉）做出贡献。”对陈薇曾到访过加拿大温尼伯P4实验室之事，PHAC称不会因隐私法为由公布访客记录。然而，所有访客，包括与加拿大公共卫生署（PHAC）合作的研究人员，都必须遵守加拿大政府和PHAC的安全协议、程序和政策，并且在任何时候都必须由拥有秘密权限的雇员陪同。PHAC的发言人Mark Johnson补充说道。
 
+加拿大保守党领袖奥图尔今年早些时候曾经评论此事件：“特鲁多政府一定在温尼伯实验室的事情上隐瞒了什么”， 他在8月时表示“我们从公共记录，比如专利文件中了解到，这些科学家所做的工作具体是针对病毒的”功能性获得“， 实际上是在试图提高病毒功效、它的传播能力，以及在某些情况下，在生物武器研究中，它的致命性。”  他质疑是是谁授权这两位科学家转移危险的、致命的病毒， 谁授权与中国军方进行如此高水平的合作与协作？
 
+在2020年2月，中共病毒大爆发数周后，温尼伯的P4 实验室主任Frank Plummer 突然因心脏病死亡。此事件是否与病毒有关，还待时间来解密。
 
-9月15日，美国国会消息称，拜登总统于周三与英国和澳大利亚的领导人宣布了一项“新的三边安全伙伴关系”，其中重点强调了在印太地区与中共国的对抗。事实上，拜登已经将解决来自中共国的“竞争”和“侵略”作为其外交政策的中心焦点。继五天前拜登总统主动与习近平通话之后，这是他首次明确指出中共国对美国实施了“侵略”。
+关于邱香果和其先生被解雇之事已由加拿大皇家骑警进行调查。而加拿大的安全专家曾表示此事件可能指向间谍活动。
 
-![](https://thehill.com/sites/default/files/styles/thumb_small_article/public/article_images/nuclearsubmarine_ukvigilant_042919getty.jpg?itok=NPzJDqQw)图片来源：Getty Images
+中共的罪恶之手伸向全世界，在世界各地的间谍活动也不断地被曝光。 而各国的科学家在这场席卷全球的中共病毒中究竟起了什么样的作用？ 随着时间，真相一定会呈现在世人面前。
 
-拜登政府的一位高级官员强调，这种“新的三边安全伙伴关系”于美国来说实属罕见。同时，这位官员还指出，作为1958年协议的一部分，美国只与一个国家——英国——共享核推进能力。但拜登表示，这是对美国最大力量来源的一众投资，能使美国更好地应对今天和明天的威胁。拜登补充，这项计划旨在确保美国的现代军事能力和关键技术方面的优势。值得注意的是，美、英、澳三位领导人在阐述新伙伴关系的时没有明确地提到中共国，但拜登公开表示，中共国的态度不可接受。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[US to help Australia acquire nuclear-powered submarines in counter to China](https://thehill.com/homenews/administration/572415-us-to-help-australia-acquire-nuclear-powered-submarines)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
-
-
+**新闻来源：**[Chinese general collaborated with fired scientist at Canada’s top virus lab | The Post Millennial](https://thepostmillennial.com/general-collaborated-fired-scientist-canadas-top-lab/)
 
 0

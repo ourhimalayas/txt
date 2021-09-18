@@ -2,31 +2,108 @@
 ---
 
 
-## 美国歌星妮姬·米娜：注射疫苗导致性无能
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1539134/)
+## 世界上有史以来最大的一单回扣中介费
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539038/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0.jpg)
+[https://gtv.org/video/id=61436922784c5a2583574de9](https://gtv.org/video/id=61436922784c5a2583574de9)
 
-9月14日，拥有2260万粉丝的美国嘻哈歌星妮姬·米娜（Nicki Minaj）在推特上发文表示，自己表弟的朋友在接种后出现性无能，并且睪丸肿大。
-妮姬·米娜当日在推特上写道，她位于Trinidad的表弟不会接种疫苗，因为他的朋友接种后出现阳痿，并且睪丸肿大。在距离婚礼还有几个星期的情况下，那女孩取消了婚礼。并提醒大家注意自己的决定，不要被欺负了。
-此前，妮姬·米娜在推特上发表声明称，自己不能出席在纽约大都会博物馆举行的慈善晚宴，因为该活动规定参与嘉宾必须接种疫苗，她说只有在做足了研究之后才会考虑打疫苗。
+**字幕内容:**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1080x360.jpg)图片来自于网络
+**郭文贵**
+**Miles Guo**
 
-妮姬·米娜的推特显示其拥有2260万追随者。
-妮姬·米娜是一名美国饶舌、词曲作家、歌手、演员及模特儿，2020年在两个月内短时间获得两首告示牌百大单曲榜第一名的冠军单曲佳绩，同时成为本世纪第一位空降冠军单曲的女饶舌歌手。
-日前，推特上另一位ID为Ernest.Ramirez的父亲表示，其儿子在注射完辉瑞疫苗后死亡，呼吁大家引起大家的重视。
+人类有史以来最大的白手套
+The biggest ‘white glove’(middleman) in human history
 
-*注：本文仅代表作者观点，与 Gnews无关*
+大家你们知道是多少钱吗？
+Do you know how much it is?
 
-*参考链接：*
+我告诉你们，你们要认真数这个事
+I tell you, you have to count this matter seriously
 
-[妮琪·米娜](https://zh.m.wikipedia.org/wiki/%E5%A6%AE%E7%90%AA%C2%B7%E7%B1%B3%E5%A8%9C)
+记住我郭文贵今天说这话
+Mark my words today
 
-[Tweets by NICKIMINAJ](https://twitter.com/NICKIMINAJ?ref_src=twsrc%5Etfw)
+我承担法律责任
+I take legal responsibility for what I say
 
-* * *
+希望被点到名的人来告我
+I hope someone I named will sue me
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+一个人类有史以来拿到1200亿美元中介费的一单交易
+A single transaction that has received 120 billion US dollars in intermediary fees in the history of mankind
+
+中国的政府官员，他的白手套拿了1200亿
+Chinese government officials, his middleman (White Glove) took 120 billion dol-lars
+
+这1200亿是纯现金
+This 120 billion dollars are pure cash
+
+人家的1200亿是pure cash
+Its 120 billion dollars and are all pure cash
+
+一单就1200亿，人家是合法拿到1200亿美元
+they took 120 billion dollars in one transaction legally
+
+就一笔拿走，牛到这程度
+Just in one transaction, it is unbelievable
+
+张宏伟不仅有《酒浴》之图
+Zhang Hongwei not only has that “Wine Bath” picture
+
+张宏伟的大老板叫陈元
+Zhang Hongwei’s big boss is Chen Yuan
+
+陈元是唯一促成沙特和中国共产党签署了阿美石油协议的5000亿美元现金投入
+Chen Yuan is the only one that led to the signing US$500 billion cash input of the Aramco Oil Agreement between Saudi Arabia and the Communist Party of China
+
+拥有20%沙特阿美股份的
+Owns 20% of Saudi Aramco’s shares
+
+按照这个合同25%的佣金现金，一笔支付
+According to this contract, 25% of the commission, paid in cash
+
+支付的所有的安排对象都是张宏伟
+All the payment arrangements are made by Zhang Hongwei
+
+我可以告诉大家
+I can tell everybody
+
+我说今天爆这个料全地球，全星空也不会有几个人知道
+I broke this information today that only a few people know in the earth and whole universe
+
+但记住今天我报这个料，今天我说的
+But remember today what I said about this information
+
+世界上最大的一单的回扣中介费单笔的地球有人类有史以来
+The largest single commission intermediary fee in the world
+
+我就觉得就这一单了
+I think this is it
+
+最重要的事情，张宏伟能玩1200亿
+The most important thing is Zhang Hongwei can handle this 120 billion dollars
+
+现在看来就是这一单1200亿
+Now just look at this 120 billion dollars kickback
+
+一定会改变中国政治的格局
+It will definitely change the landscape of Chinese politics
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24](https://twitter.com/se1y7cblljselva/status/1437377018396430337?s=24)
+
+中听英: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场– 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

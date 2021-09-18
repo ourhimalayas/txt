@@ -15,6 +15,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/18/2021 2:38 AM (UTC)`
+
+9/17/2021 Miles Guo: The settlement between the SEC and us assures that the fellow fighters‘ funds will be returned. More importantly, this settlement has made it clear we are not involved in any frauds or criminal offences and that we are not prohibited from entering the U.S. financial market in the future!<br/><br/>9/17/2021 文贵直播：我们和SEC的和解确保了战友能把钱拿回来，为此七哥也愿意接受调查；更重要的是，这次和解认定了我们不涉及任何诈骗或刑事犯罪，且没有禁止我们未来进入美国金融市场！<br/>
+![img](https://media.gettr.com/group31/default/20210918/02/38/bc0f67a6-fc98-30b1-c2c9-691245c999aa/out.jpg)
+
+---
+
+`@miles 9/18/2021 2:27 AM (UTC)`
+
+9月17号：尊敬的战友们好！盖特已经有了翻译功能，请大家尽快到苹果商店去更新升级！
+![img](https://media.gettr.com/group46/getter/2021/09/18/02/f3d4c44c-ddd7-dab4-750f-8a813454cc14/309114a43beb5b272cc9c5be2ac24e14.jpg)
+
+---
+
 `@miles 9/18/2021 1:32 AM (UTC)`
 
 9/17/2021 Miles Guo: I was the first to reveal that Evergrande has two trillion yuan of debts, and it is in essence running a Ponzi scheme. The CCP’s fraudulent financial notes will bring about an enormous financial catastrophe; The CCP will surely be over if it tries to save Evergrande!<br/><br/>9/17/2021 文贵直播：七哥最早说出恒大有2万亿人民币的负债，恒大的本质就是庞氏骗局；共产党的虚假金融票据将带来巨大的金融灾难；如果中共试图去救恒大，那么它必将完蛋！<br/>
@@ -286,20 +300,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 `@miles 9/15/2021 1:51 PM (UTC)`
 
 9月15号，亲爱的兄弟姐妹们，大好消息！大好消息！大好消息！🎉🎉🎉🎉🎉🎉🎉👏👏👏👏👏👏👏 纽约检察长终止了对GTV和Saraca两家公司所有的刑事调查，证明这两家公司没有涉及任何刑事犯罪，这说明了共产党对这两家公司的折腾一年多的虚假报案，和所谓的经济、法律超限战，已彻底失败！赔了夫人折了兵！并且在美国浪费大量的资源！而我们大赢！💪💪💪让美国人看清楚了他们的假控诉，假告诉，假投资，法律超限战已经警醒了美国，感谢纽约检察院，秉公执法，依法办案，给了公司真相！🙏🙏🙏🙏🙏🙏🙏我们相信，给这两家公司带来巨大损失灾难的假控诉，这些中共的间谍，假控诉人，假报案人，假投资人，一定会受到美国的刑事调查，最终这些人会按照美国的法律，被依法严惩！共产党你完蛋啦……超限战失败了……彻底失败啦……！！！没毛的豆豆报假案白报啦！！！纽约检察长的终止调查保证中没有包括VOG，正如七哥说的，对VOG的刑事调查不会停止，九指妖你完蛋啦！！！看看七哥过去怎么说的……！！！💪💪💪✊✊✊<br/><br/>纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书<br/><br/>https://gnews.org/zh-hans/1534601/<br/><br/>ASSURANCE OF DISCONTINUANCE by LETITIA JAMES, Attorney General of the State of New York RE GTV Media Group, Inc., and Saraca Media Group, Inc.<br/><br/>https://gnews.org/1534522/
-
----
-
-`@miles 9/15/2021 1:13 PM (UTC)`
-
-9月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒C C P疫苗灾难的解药的真相了吗？
-![img](https://media.gettr.com/group17/getter/2021/09/15/13/2b27df3c-c686-364a-074a-51a9ccf04605/out.jpg)
-
----
-
-`@miles 9/15/2021 4:03 AM (UTC)`
-
-9/14/2021 Miles Guo: I urged Hongkongers to quit social media platforms such as Facebook, Instagram, Telegram, Twitter, Google etc. This is because under the infiltration of the CCP, these companies are fully cooperating in providing personal information to the CCP. I promise to protect Hongkongers at all costs.<br/><br/>9/14/2021 文贵直播: 文贵呼吁香港同胞们不要再使用Facebook、Instagram、Telegram、Twitter和Google等社交媒体。因为在共产党的渗透下，这些公司全面配合向中共提供个人信息。文贵先生承诺不惜一切代价保护香港同胞。
-![img](https://media.gettr.com/group4/getter/2021/09/15/04/70ebc846-3362-d322-b2d8-60f64c9eab25/out.jpg)
 
 ---
 

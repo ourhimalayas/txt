@@ -2,61 +2,55 @@
 ---
 
 
-## 09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1536393/)
+## 列举中共病毒“疫苗”严重伤害病例14例
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537848/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210916-2.jpg)[图片来源](https://cn.nikkei.com/industry/agriculture/46079-2021-09-15-16-16-26.html)
-**1.加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议**
+**撰稿**：柯亭（㊙️翻原创组）
 
-[加拿大太平洋铁路(Canadian Pacific Railway Ltd.)达成了收购堪萨斯城南方铁路（Kansas City Southern）的协议，这笔交易价值270亿美元，若如完成，将是美国铁路行业约20年来的首个重大合并案，将打造出第一个连接起加拿大、美国和墨西哥的货运铁路网络。](https://cn.wsj.com/articles/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%A4%AA%E5%B9%B3%E6%B4%8B%E9%93%81%E8%B7%AF%E8%BE%BE%E6%88%90%E4%BB%A5270%E4%BA%BF%E7%BE%8E%E5%85%83%E6%94%B6%E8%B4%AD%E5%A0%AA%E8%90%A8%E6%96%AF%E5%9F%8E%E5%8D%97%E6%96%B9%E9%93%81%E8%B7%AF%E7%9A%84%E5%8D%8F%E8%AE%AE-11631755506)
+**校对**：卡拉马佐夫姐姐
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210917-中共病毒疫苗严重伤害病例14例.jpg)
+**图片来源：**** **[**Ernest Ramirez****推特**](https://twitter.com/rgvrunner01/status/1438352089852399619/photo/2)
 
-[加拿大太平洋铁路和堪萨斯城南方铁路在今年3月曾达成价值250亿美元的并购协议，但之后加拿大国家铁路公司(Canadian National Railway Co.)横刀杀入，提出了约300亿美元的更高收购报价。这促使堪萨斯城南方铁路改变主意，转向新的并购合作伙伴，在那之后，一个专门负责批准铁路资产合并交易的监管小组否决了加拿大国家铁路公司提出的使用临时投票信托的计划，而这是加拿大国家铁路公司收购要约的关键组成部分。](https://cn.wsj.com/articles/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%A4%AA%E5%B9%B3%E6%B4%8B%E9%93%81%E8%B7%AF%E8%BE%BE%E6%88%90%E4%BB%A5270%E4%BA%BF%E7%BE%8E%E5%85%83%E6%94%B6%E8%B4%AD%E5%A0%AA%E8%90%A8%E6%96%AF%E5%9F%8E%E5%8D%97%E6%96%B9%E9%93%81%E8%B7%AF%E7%9A%84%E5%8D%8F%E8%AE%AE-11631755506)
+自中共病毒“疫苗”进入临床施打以来，经常看到主流媒体假新闻报道感染中共病毒重症和死亡的案例，其中一个必不可少的“结论”，是重症患者本人或死者家属都建议世人尽快接种“疫苗”。
 
+笔者记得有一个报道，一个据称曾有心脏病的60多岁的人在接种“疫苗”后死亡，该报道依然以死者家属的口吻建议世人尽快接种疫苗；其混账逻辑是：该死者如果没有接种“疫苗”，可能会因感染中共病毒而死亡，并且死得更惨（与接种“疫苗”死亡相比）。
 
+这些主流媒体假新闻报道的病例的另一个特点，是很多病例的家庭成员或朋友会在gofundme.com网站筹款：[例一](https://www.gofundme.com/f/help-evans-family-with-funeral-cost?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=p_cp+share-sheet&amp;fbclid=IwAR010GNL6SuzbX2oHFEyck8TGsCJVLifx_gnLNsO8mK-T8fdwGxERhWW324)、[例二](https://www.gofundme.com/f/danny-bakers-covid-recovery-fund?qid=7a7d543ea68a8dcf3341b5405758fa4b)、[例三](https://www.gofundme.com/f/help-erin-with-her-struggle-with-covid19?qid=7a7d543ea68a8dcf3341b5405758fa4b)。但是，它们从不报道接种“疫苗”受伤害者的任何消息，就好像根本不存在一样。
 
-**2.铀价上涨让对冲基金赚得盆满钵满**
+9月16日，在gofundme.com用“covid vaccine”搜索，看到了如下14个因接种“疫苗”受伤害而筹款的病例。其中所列发生时间，是指该筹款网页在gofundme.com建立的时间。
 
-[根据价格追踪机构UXC LLC的数据，本周铀价触及每磅44美元的八年高位。铀价上涨正让一些对冲基金赚得盆满钵满。这些基金一直押宝于10年前因一场核灾难而陷入低迷的市场将会反弹。交易员称，在这波上涨之前，Sprott Asset Management LP最近成立了一只交易所交易信托基金；其在向股东筹资后购买了大量铀库存，本身也成为了一个受到青睐的交易工具。](https://cn.wsj.com/articles/%E9%93%80%E4%BB%B7%E4%B8%8A%E6%B6%A8%E8%AE%A9%E5%AF%B9%E5%86%B2%E5%9F%BA%E9%87%91%E8%B5%9A%E5%BE%97%E7%9B%86%E6%BB%A1%E9%92%B5%E6%BB%A1-11631750705)
+[病例1](https://www.gofundme.com/f/pqd2v-help-with-living-expenses?qid=cc1e243658079d53b45a658d8f35b276)，9月15日，Crystal，女。伤害表现是心包炎和贝尔氏面瘫（Bells Palsy）。
 
-[这种核燃料走势的好转提振了相关矿商股价，包括加拿大的Cameco Corp. (CCJ)和Denison Mines Corp. (DNN)以及总部位于得州的Uranium Energy Corp. (UEC)，进而令Segra Capital Management和Sachem Cove Partners等对冲基金受益，这些对冲基金一直押注铀价会反弹。2011年日本福岛核泄漏事件后，该核燃料价格曾大幅跳水。](https://cn.wsj.com/articles/%E9%93%80%E4%BB%B7%E4%B8%8A%E6%B6%A8%E8%AE%A9%E5%AF%B9%E5%86%B2%E5%9F%BA%E9%87%91%E8%B5%9A%E5%BE%97%E7%9B%86%E6%BB%A1%E9%92%B5%E6%BB%A1-11631750705)
+[病例2](https://www.gofundme.com/f/help-liz-recover-from-covid-vaccine-symptoms?qid=e340a1205f635556802ff118adc4adac)，9月10日，Liz，36岁，女。3月22日接种Moderna疫苗，第二天（接种后24小时内）出现胸部疼痛。4月3日在家出现心率过速，达173次/分钟（BPM）；随后有左臂麻木（dumb）、左手刺痛（tingling）、呼吸困难；打911电话后被送入急诊室。4天后，出现脸部麻木和刺痛。医院检查未发现明显异常，给服降心率药物。之后出现焦虑（anxiety），对多种环境因素特别敏感；然后有卵巢疼痛；然后有颤抖、抽搐、肌肉无力、肌肉痉挛、烧灼感、剧烈的射痛、头晕、气短、胸闷、心率加快、失眠、行走困难（右侧身体更糟糕）；然后有偏头痛、口齿不清、记忆问题、严重的脑雾、极度疲劳、视力问题、耳鸣、右耳痛、脱发、遣词造句困难、无法集中注意力。再次去医院检查，依然没有发现检测指标异常。后来，一位神经肌肉（neuromuscular）专家确认她不是第一例，“12月-1月”那批“疫苗”接种者中也有其他人发生类似症状。之后，出现脸部、喉咙、以及整个右侧身体水肿（swelling）。再之后，有心脏专家诊断为体位性心动过速综合征（POTS）。直到5个月后的9月，依然有症状，看医生成为她的“全职工作”。
 
+[病例3](https://www.gofundme.com/f/severe-heart-condition-from-covid-vaccine-dose-1?qid=e340a1205f635556802ff118adc4adac)，9月6日，Car，19岁，男。接种mRNA疫苗，8月27日由救护车送入医院。诊断为心包炎（pericarditis）。
 
+[病例4](https://www.gofundme.com/f/9e9h3-kelseys-road-to-recovery?qid=e340a1205f635556802ff118adc4adac)，9月2日，Kelsey，女。过去3个月一直有症状，不能站立行走，血压低，血循环障碍。提及如下诊断：体位性心动过速综合征（POTS）、自主神经功能障碍、高肾上腺素功能状态。
 
-**3.日铁借助虚拟试验研发更轻更硬的EV钢板**
+[病例5](https://www.gofundme.com/f/need-help-recovering-from-meningitis?qid=e340a1205f635556802ff118adc4adac)，8月26日，女。接种疫苗8天后，发生无菌化学脑膜炎（aseptic chemical meningitis）。
 
-[在纯电动汽车（EV）的钢板研发方面，日本制铁正在虚拟空间内实施汽车碰撞试验。在每辆车上标记1000万处，详细计算变形情况，分析断裂风险等。在追求车体轻量化的纯电动汽车上，钢板与铝等原材料之间的竞争日趋激化。日本制铁将推动轻薄且强度高的钢板研发，改善作为经营最优课题的汽车钢板业务。在日本制铁的钢铁研究所内，利用虚拟空间，研究人员正在重复纯电动汽车和插电式混合动力车（PHV）等新一代汽车等的碰撞试验。](https://cn.nikkei.com/industry/manufacturing/46058-2021-09-16-04-59-01.html)
+[病例6](https://www.gofundme.com/f/please-consider-helping-brittany?qid=e340a1205f635556802ff118adc4adac)，8月19日，Brittany，23岁，女。8月9日6:30pm接种“疫苗”，随后开车回家的路上有轻微晕眩。回家后出现头痛、晕眩、四肢麻木和刺痛；第二天5:30am起床后依然没有好转，且左眼后部疼痛；由兄弟送去医院；医院未作处理，回家几小时后，在洗手间昏迷倒地，由911急救送人医院；之后出现说话困难；做过很多检查，仅脑电图（EEG）发现异常，怀疑癫痫（seizure）。8月20日再次入急诊室，依然有症状，新出现右侧背下部疼痛、右腿麻木/放射痛、膀胱失禁。8月21日又再入急诊室。
 
+[病例7](https://www.gofundme.com/f/help-rosy-be-with-her-much-love-dad?qid=078b2e69597825205e08e0d3b670dc2d)，8月8日，男。伤害表现是中枢神经系统血管炎（vasculitis of the CNS）。
 
+[病例8](https://www.gofundme.com/f/baby-benjamins-education-expenses?qid=e340a1205f635556802ff118adc4adac)，8月6日，Matt，34岁，男。接种JNJ疫苗，伤害表现为脑静脉窦血栓形成 (CVST)。
 
-**4.半导体前工序设备投资额2022年预创新高**
+[病例9](https://www.gofundme.com/f/covid-vaccine-disaster?qid=e340a1205f635556802ff118adc4adac)，7月23日，Holly，男。伤害表现是肝、肾、甲状腺和胰腺多器官炎症。
 
-[国际半导体产业协会（SEMI）9月15日发布预测数据称，2022年半导体前工序使用的制造设备投资额将扩大至984亿美元。将3月时的预测数据上调了约2成，连续3年刷新历史最高。由于通信速度提高和数据量增加，半导体需求不断扩大。中美摩擦导致供应链多元化，或将促进设备投资。高速通信标准“5G”的普及，以及处理大量数据的数据中心用途领域的投资对半导体需求起到了拉动作用。形成电路的前工序制造设备的投资额在2020年创下635亿美元的纪录，预计2021年将同比增长44％，达到914亿美元，2022年将同比增长8％。](https://cn.nikkei.com/industry/itelectric-appliance/46078-2021-09-16-04-59-53.html)
+[病例10](https://www.gofundme.com/f/please-help-my-my-sister-andrea-husband-kevin?qid=cc1e243658079d53b45a658d8f35b276)，7月9日，Kevin，男。9周前接种AZ“疫苗”。伤害表现是走路困难、癫痫发作、无法控制地颤抖、说话/表达困难。
 
+[病例11](https://www.gofundme.com/f/help-brandon-during-his-battle-with-heart-failure?qid=e340a1205f635556802ff118adc4adac)，6月29日，Brandon，男。5月13日接种JNJ“疫苗”，2天后出现症状。双肺肺炎，心力衰竭仅有10%的功能，心下部血凝块，血压下降，水肿。
 
+[病例12](https://www.gofundme.com/f/5cyp3-help-rajesh-battle-covishield-vaccine-side-effects?qid=e340a1205f635556802ff118adc4adac)，6月27日，Rajesh，39岁，男。6月20日接种“疫苗”。伤害表现是格林巴雷综合征（Guillain Barre Sydrome），手脚瘫痪（paralyzed），需要用呼吸机。
 
-**5.日本首款基因编辑番茄上市约合人民币89元/斤**
+[病例13](https://www.gofundme.com/f/sandys-story?qid=078b2e69597825205e08e0d3b670dc2d)，6月23日，Sandy，男。接种JNJ“疫苗”，约2周后（5月份）的一个晚上醒来时发现瘫痪，送急诊室。诊断为格林巴雷综合征（Guillain Barre Sydrome）。
 
-[源自筑波大学的初创企业Sanatech Seed在9月15日推出了利用基因编辑技术开发的、含有大量功能性成分“GABA”的番茄。这是日本国内首次销售利用基因编辑进行品种改良的食品，将满足追求健康的消费者的需求。GABA是一种氨基酸，具有抑制血压上升、缓解压力的作用。基因编辑番茄的GABA含量是普通番茄的5～6倍。一个番茄（约15g）含有15毫克GABA，“作为一天的摄入量足够了”（Sanatech Seed公司）。Sanatech Seed正通过自身的网站“青空番茄学园”销售基因编辑番茄“Sicilian Rouge High GABA”。包括运费在内，价格为6048日元/2kg（约合人民币355.58元，约89元/500g），7506日元/3kg（约合人民币441.31元，约74元/500g）。](https://cn.nikkei.com/industry/agriculture/46079-2021-09-15-16-16-26.html)
+[病例14](https://www.gofundme.com/f/kens-covid-recovery?qid=078b2e69597825205e08e0d3b670dc2d)，6月21日，Ken，男。接种第一针后出现问题，伤害表现是不能正常呼吸。
 
+另据[9月15日lifesitenews.com报道](https://www.lifesitenews.com/news/gofundme-de-platforms-dad-whose-only-son-died-after-pfizer-jab/)，拉米雷斯(Ernest Ramirez)因唯一的儿子死于注射辉瑞（Pfizer）mRNA，在gofundme.com筹款用于提醒世人实验性mRNA注射有危险。但是，gofundme.com以“禁止行为”为由，删除了拉米雷斯的筹款账号。他只好转移到lifefunder.com继续筹款，[这是链接](https://www.lifefunder.com/pfizervictim)。
 
+希望gofundme.com继续支持上述“疫苗”受害者的筹款和求助。呼吁世人不要接受注射这些实验性的“疫苗”。
 
-**6.新兴市场决策者争相抑制食品通胀飙升，因为动荡不断**
-
-[饥饿正在席卷全球，8月份全球食品价格较上年同期上涨33%。根据联合国粮食及农业组织的数据，植物油、谷物和肉类价格正在飙升。极端天气、创纪录的运输成本、飞涨的化肥成本、劳动力短缺和港口拥堵也导致价格上涨。新兴市场更容易受到粮食不安全的影响，因为工作穷人在粮食上所占份额远远大于发达国家。这使得价格大幅波动更容易对民选官员施加政治压力，以抑制通货膨胀。如果食品通胀持续，而不是”暂时性”，抑制通胀的措施可能会用尽，随之而来的可能会引发动荡。也许，在古巴和南非发生的事情是对未来情况的品味。](https://www.zerohedge.com/markets/emerging-markets-panic-tame-soaring-food-inflation-unrest-could-be-next)
-
-
-
-**7.未来十年中增长最快的20个就业岗位**
-
-[美国劳工统计局（BLS）预计，从2020年至2030年，美国将新增1190万个就业岗位，总体增长率为7.7%。然而，有些工作的增长率远远超过这一水平。风力涡轮机服务技术人员的增长速度最快，太阳能光伏（太阳能电池板）安装人员占据第三位。快速增长是由对可再生能源的需求推动的。但职业相对较少，职位数量有限。增长最快的20个工作岗位中有9个在医疗保健或相关领域。家庭保健和个人护理助理，谁协助日常的医疗保健任务，如洗澡和喂养，将在未来十年占超过100万个新的就业机会。这几乎占2020年至2030年间创造的所有新增就业岗位的10%。但是这些工人的工资是名单上最低的。计算机和数学相关工作也有望获得高增长。](https://www.zerohedge.com/personal-finance/these-will-be-20-fastest-growing-jobs-next-decade)
-
-
-
-**8.戈润的清洁技术水处理业务在疫情期间实现强劲增长**
-
-[端到端清洁技术水处理解决方案提供商戈润(Gradiant)宣布，从2021年年初至今，其已在亚太地区获得26个新项目。其中四个项目将以“设计-建造-拥有-经营-管理”(DBOOM)合同形式交付，合约的长期特许权期限长达20年。业务增长表明，在新冠疫情持续肆虐期间，对水和废水的先进处理需求出现了上升。从2021年年初至今，戈润签订的新合同涵盖工业、市政和政府部门的众多知名客户，包括跨国品牌所有者。从2021年年初至今获得的26个新项目中，18个来自于新客户，这是他们第一次选择戈润来帮助解决自身面临的复杂的水处理问题。今年，戈润技术的新应用领域包括锂矿开采、半导体制造和高度复杂的工业废水再利用。](http://www.businesswirechina.com/zh/news/48039.html)
-
-By 【秘密翻译组-金融组】
-作者：和理非
+（文章仅代表作者本人观点）
 
 0

@@ -2,27 +2,191 @@
 ---
 
 
-## 秘翻在线: 中共将军曾从加拿大顶级病毒实验室获取病毒样本
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1539024/)
+## 平安集团的董事段伟红，消失了整整四年，两周前出狱了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539131/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2021/09/axltu-sfn8a.jpg)
+[https://gtv.org/video/id=6141326a784c5a2583566d28](https://gtv.org/video/id=6141326a784c5a2583566d28)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-9.jpg)图片来源：Post Milennial
-来自加拿大 Post Milennial 9月16日的一篇报道揭示了被解雇的加拿大P4实验室的研究员与中共将军合作这一事件的真相。
+**字幕内容:**
 
-邱果香曾在加拿大温尼伯的P4实验室工作。 而因中共病毒而知名的中共将军陈薇曾与之密切合作。并在2016年和2020年合作撰写了两篇关于埃博拉的科学论文。但论文并未标注她是中共国一流的流行病学家的军方身份。邱香果在2019年曾向中共病毒起源地武汉病毒所发送过30瓶15种不同的埃博拉病毒和亨尼帕病毒样本。之后邱香果和她的先生在国家微生物实验室（NML）的安全许可于2019年7月被撤销，并于2020年1月被NML解雇。
+**郭文贵**
+**Miles Guo**
 
-当被问及加拿大公共卫生署（PHAC）是否认为其工作人员与中国高级军事人员一起工作是标准做法时，PHAC发言人说，”虽然NML与中国军方没有机构协议，但加拿大的科学家已经与中国科学家合作，为全球公共卫生对抗致命疾病（如埃博拉）做出贡献。”对陈薇曾到访过加拿大温尼伯P4实验室之事，PHAC称不会因隐私法为由公布访客记录。然而，所有访客，包括与加拿大公共卫生署（PHAC）合作的研究人员，都必须遵守加拿大政府和PHAC的安全协议、程序和政策，并且在任何时候都必须由拥有秘密权限的雇员陪同。PHAC的发言人Mark Johnson补充说道。
+是平安的董事
+Es el director de Ping An
 
-加拿大保守党领袖奥图尔今年早些时候曾经评论此事件：“特鲁多政府一定在温尼伯实验室的事情上隐瞒了什么”， 他在8月时表示“我们从公共记录，比如专利文件中了解到，这些科学家所做的工作具体是针对病毒的”功能性获得“， 实际上是在试图提高病毒功效、它的传播能力，以及在某些情况下，在生物武器研究中，它的致命性。”  他质疑是是谁授权这两位科学家转移危险的、致命的病毒， 谁授权与中国军方进行如此高水平的合作与协作？
+温家宝家的代言人
+El portavoz de la familia de Wen Jiabao
 
-在2020年2月，中共病毒大爆发数周后，温尼伯的P4 实验室主任Frank Plummer 突然因心脏病死亡。此事件是否与病毒有关，还待时间来解密。
+被抓去了四年消失
+Fue arrestado y desaparecido durante cuatro años
 
-关于邱香果和其先生被解雇之事已由加拿大皇家骑警进行调查。而加拿大的安全专家曾表示此事件可能指向间谍活动。
+我告诉大家
+Déjame decirles
 
-中共的罪恶之手伸向全世界，在世界各地的间谍活动也不断地被曝光。 而各国的科学家在这场席卷全球的中共病毒中究竟起了什么样的作用？ 随着时间，真相一定会呈现在世人面前。
+两周前, 段伟红出狱了
+Hace dos semanas, Whitney Duan salió de la prisión
 
-**新闻来源：**[Chinese general collaborated with fired scientist at Canada’s top virus lab | The Post Millennial](https://thepostmillennial.com/general-collaborated-fired-scientist-canadas-top-lab/)
+我可以告诉你们
+Puedo decirles
+
+几乎是除了中纪委, 中南坑
+Casi a excepción de la Comisión Central de Inspección Disciplinaria y la cueva del PCCh
+
+你们是最早知道了
+Ustedes son los primeros en enterarse
+
+就在今天, 此时此刻
+Sólo hoy, ahora mismo
+
+今天上午十点钟
+Hoy a las diez de la mañana
+
+段伟红的先生在英国伦敦
+El esposo de Whitney Duan en Londres de Reino Unido
+
+写了一本
+Escribió un
+
+他太太, 他太太已经离婚了啊
+Su esposa está divorciada
+
+写了一本中国腐败的书, 今天出版
+Escribió un libro sobre la corrupción en China donde hoy fue publicado
+
+今天纽约时报或华尔街日报可能会采访
+Hoy, el New York Times o el Wall Street Journal a lo mejor lo van a entrevistar
+
+此时此刻
+En este momento
+
+七哥不是爆料
+No estoy dando noticias
+
+不仅掌握情报, 还知道人下一步要往那儿走
+No sólo tengo las informaciones sino sé cuál es el siguiente paso de estas personas
+
+这就叫爆料革命
+A esto se le llama Movimiento de Denunciantes
+
+你知道段伟红是什么人啊
+¿ Sabes quién es Whitney Duan?
+
+平安的董事, 温家宝的代言人
+Es el director de Ping An y el portavoz de Wen Jiabao
+
+当年董事, 三个最牛的
+Los directores de aquel tiempo, los tres mejores
+
+段伟红代表温家
+Whitney Duan representa a la familia Wen
+
+车峰我哥儿们代表戴家
+Chefeng, mi compadre que representa a la familia Dai
+
+都是董事吧
+Todos son directores
+
+第三个独立董事, 大家猜是谁
+El tercer director independiente, adivinen quién es
+
+马明哲!
+¡ Ma Mingzhe!
+
+马明哲把段伟红送到监狱去
+Él fue quien envió a Whitney Duan a la prisión
+
+以为温家完了
+Creía que la familia Wen se acabará
+
+温家老妈后来都出来当股东了
+La madre de la familia Wen luego se convirtió en accionista
+
+实在没人出面了, 是吧
+Realmente ya no tienen a otra persona que pueda representar, ¿ cierto?
+
+温家宝娘都出来了
+Hasta la mamá de Wen Jiabao salió
+
+现在段伟红出来了
+Ahora que Whitney Duan salió de la prisión
+
+她老公还出书了
+Su esposo hasta publicó un libro
+
+别忘了, 没有温家宝, 没有习近平
+No olviden, sin Wen Jiabao, no existe Xi Jinping
+
+谁当时说假话, 陷害段伟红进的监狱
+Quien en aquel momento mintió e incriminó a Whitney Duan entrar a la prisión
+
+段伟红绝对是个好人啊
+Whitney Duan es una buena persona
+
+我告诉你, 段伟红绝对是个好人
+Déjame decirte, Whitney Duan es una buena persona
+
+谁陷害的段伟红? 马明哲
+¿ Quién incriminó a Whitney Duan? Ma Mingzhe
+
+为什么现在段伟红出来了
+Por qué ahora Whitney Duan sale de la prisión
+
+马明哲要出事了
+Ma Mingzhe entrará en problemas
+
+七哥现在跟你讲艺术呢
+Ahora te estoy hablando del arte
+
+讲艺术市场呢
+Del mercado de arte
+
+段伟红是帮助了
+Whitney Duan realmente ayudó
+
+知道马明哲底细
+Conoce los detalles de Ma Mingzhe
+
+可以说是中国最多的人
+Se puede decir que es la persona que sabe más
+
+知道平安秘密最多的人
+Acerca de los secretos de Ping An en China
+
+买古董, 押古董, 买画最多的人
+Quien compró más antigüedades, cuadros y apostó por antigüedades
+
+“火浴” 这个画
+Este cuadro “baño de fuego”
+
+最早接触者可能就是段伟红
+La primera persona quien contactó con él puede ser Whitney Duan
+
+原来有个亚洲卫视的人被枪毙
+Resulta que había un tipo asiático de la televisión que recibió un disparo
+
+叫啥名, 战友们记得吗
+Cómo se llama, compañeros luchadores, ¿ se acuerdan?
+
+就因为说英妹妹和江主席有一腿的人枪毙了
+Sólo porque el hombre dijo que la hermana Ying y el presidente Jiang tenían una relación rara y por eso recibió un disparo
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址**：[https://gettr.com/post/pafgel2079](https://gettr.com/post/pafgel2079)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
 0

@@ -2,43 +2,48 @@
 ---
 
 
-## 发布：CPDC（当危会）欢迎乔治•索罗斯反对美国投资中共的态度，并要求美国证券交易委员会加以限制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1539025/)
+## 拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1539107/)
 
-2021年9月17日
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Default_Featured_PressRelease_1024-1.jpg)图片：@presentdangerchina.org
-**摘要：**
-
-C.P.D.C. 欢迎乔治·索罗斯 (George Soros) 反对美国投资中共的观点，并要求美国证券交易委员会加以限制。白皮书确定了金斯勒（ Gansler ）主席必须加强监管的领域。
-
-应对中国当前危机委员会（CPDC）警告称，华尔街公司将客户的养老金和其他资金投资于共产主义中国的决定不会有好结果。
-
-在CPDC今天发布的题为“中共忘恩负义：习近平的资本市场策略需要 S.E.C.限制美国在那里的投资”的白皮书中，应对中国当前危机委员会评估了美国证券交易委员会主席加里·金斯勒迄今为止所做的应对习近平操纵市场行为的充分性，美国投资者为此付出了巨大的代价。简而言之，评估发现他们所做的严重不足。
-
-白皮书的“重要”建议：*“主席加里·金斯勒（ Gary Gensler）和美国证券交易委员会的其他成员必须立即放弃他们迄今为止的做法，首先是让在我们资本市场（包括被动投资工具在内）交易的所有中共国股票和债券遵守美国证券交易委员会关于完全透明和适当的会计准则的新要求，而不仅仅是那些在美国交易所正式上市的股票和债券。”*
-
-在发布新白皮书时，CPDC主席布赖恩·肯尼迪 (Brian T. Kennedy) 表示：
-
-*“鉴于美国面临的经济不确定性，以及与共产主义中国实际敌对的可能性越来越大，我们国家旨在保护美国投资者的监管机构没有尽其所能揭露和阻止共产主义中国操纵美国资本市场，这几乎是不可想象的。更令人担忧的是，他们不断努力确保共产主义中国的公司在华尔街获得比美国公司更优惠的待遇。国会需要立即采取行动，审查 SEC 和美国财政部针对共产主义中国的行动、他们在美国资本市场的掠夺行为以及首先使这种伤害成为可能的华尔街公司。”*
-
-**简评：**
-
-CPDC的白皮书和乔治·索罗斯对中共态度的转变说明美国不仅要依法打击中共操纵市场的行为，而且要严惩美国证券交易委员会、财政部以及华尔街公司和中共的非法勾兑。
-
-[原文链接](https://presentdangerchina.org/release-cpdc-welcomes-george-soros-to-the-opposition-to-us-investment-in-the-ccp-demand-for-sec-restrictions/)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译：shuibozhuliu|PR：感恩*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 捆绑CCP一千年
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+9月15日，美国国会消息称，拜登总统于周三与英国和澳大利亚的领导人宣布了一项“新的三边安全伙伴关系”，其中重点强调了在印太地区与中共国的对抗。事实上，拜登已经将解决来自中共国的“竞争”和“侵略”作为其外交政策的中心焦点。继五天前拜登总统主动与习近平通话之后，这是他首次明确指出中共国对美国实施了“侵略”。
+
+![](https://thehill.com/sites/default/files/styles/thumb_small_article/public/article_images/nuclearsubmarine_ukvigilant_042919getty.jpg?itok=NPzJDqQw)图片来源：Getty Images
+
+拜登政府的一位高级官员强调，这种“新的三边安全伙伴关系”于美国来说实属罕见。同时，这位官员还指出，作为1958年协议的一部分，美国只与一个国家——英国——共享核推进能力。但拜登表示，这是对美国最大力量来源的一众投资，能使美国更好地应对今天和明天的威胁。拜登补充，这项计划旨在确保美国的现代军事能力和关键技术方面的优势。值得注意的是，美、英、澳三位领导人在阐述新伙伴关系的时没有明确地提到中共国，但拜登公开表示，中共国的态度不可接受。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[US to help Australia acquire nuclear-powered submarines in counter to China](https://thehill.com/homenews/administration/572415-us-to-help-australia-acquire-nuclear-powered-submarines)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
 
