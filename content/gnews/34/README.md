@@ -2,39 +2,32 @@
 ---
 
 
-## 美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1539721/)
+## 推特将“台湾”和“中国”进行配对搜索
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1539774/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AstraZen-jab1.jpg)
-图片来源：miltonkeynes.co.uk
+2021年09月18日
 
-**【雅典娜快讯】，紧贴时事脉搏**
+根据《华盛顿自由灯塔》2021年9月17日的报道，记者杰瑞尔·比尔（Jeryl Bier）注意到在推特上搜索中国一词，就会显示一些带有台湾一词的推文，反之亦然。《华盛顿自由灯塔》证实了这一搜索模式，并估测每一条提及台湾的推文都会出现四到五条带有中国一词的推文。
 
-美国底特律当地的ABC新闻机构最近试图证明，那些拒绝接种中共病毒 (Covid-19) 疫苗的人正在生病和死亡。结果发现，正在死亡的是“完全接种疫苗”的人。
+这种搜索模式表明，推特持续执行着将两个政权联系起来进行搜索的政策，以附和中国共产党。中共政权说台湾是中国的一部分，而且其可能入侵台湾的言论也甚嚣尘上。
 
-WXYZ电视台（WXYZ-TV）在脸书的一项民意调查中，要求粉丝们分享他们身边“未接种疫苗”的人，如何因中共病毒生病而不得不住院的故事。相反，民意调查结果却充斥着关于接种疫苗的人病重或死亡的故事。
+推特对中共国的卑躬屈膝令人震惊，部分原因是中共国用户被禁止使用该社交媒体平台。超过50名中共国公民因违反中共国规定使用该平台而被判入狱。然而，中共国却非常热衷于控制美国社交平台上有关台湾的言论。中共国外交官积极用推特来促进中共所谓的国家利益，并引发误导舆论的攻势，将新冠病毒起源指向美国。
 
-“我的邻居死于疫苗，下周是他的葬礼，”一位调查受访者写道。
+推特并不是唯一一家向中共国屈膝的硅谷公司。苹果允许中共国官员实际监控其在该国的设施和数据中心，而微软公司则积极审查领英（LinkedIn），以删除那些共产党认为敏感的话题。
 
-“我妈妈的胳膊和腿没有感觉了。我的闺蜜曾多次因头痛得厉害进了急诊室。我妈妈和闺蜜的医生没有将他们的病情和疫苗联系起来，但时间上令人怀疑。我丈夫的医生拒绝让他检测中共病毒抗体。这些医生是同谋。”
+简评：这则新闻让人不禁想到2017年郭文贵先生因爆料中国共产党假骗偷的邪恶本质而遭到推特的封杀。当时文贵先生就在直播中明确指出，推特，以及之后脸书、YouTube对他个人的封杀不是一个简单的问题，而是表明了共产党对美国自由民主制度的严重侵蚀。这些社交媒体和大科技公司对自由言论的控制和垄断，到了令人发指的程度。搜索引擎是人们在互联网上寻找信息的第一大门户，然而，它却变成了共产党控制美国舆论的工具。除了新闻所指证的“台湾”和“中国”配对搜索，搜索引擎更是掩盖病毒起源、治疗药物、疫苗真相。无形之中这些科技大佬们，变成了共产党及其背后邪恶组织在全世界实施杀人阴谋的帮凶。
 
-令人惊讶的是，还有大约12.5万人提交了类似的故事，讲述了疫苗如何伤害或杀死他们认识的人。事实证明，没有像WXYZ电视台预期的那样，那些没有接种疫苗的人并没有出现大的健康问题。
+[新闻链接](https://freebeacon.com/national-security/twitter-cedes-taiwan-to-china/)
 
-正如美国疾病控制和预防中心（CDC）的罗谢尔·瓦伦斯基 (Rochelle Walensky)医生所承认的一样，许多医院的病人都“完全接种了疫苗”。
+* * *
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**参考新闻：**[Backfire: Detroit TV station asks for stories of unvaccinated covid fatalities, gets bombarded with vaccinated deaths and injuries instead (newstarget.com)](https://www.newstarget.com/2021-09-17-station-stories-unvaccinated-covid-jab-fatalities-vaccinated.html)
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0
