@@ -94,28 +94,28 @@
 ### [数万名示威者聚集纽约时代广场，抗议接种证明计划](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美国停止第三剂辉瑞疫苗接种](/content/gnews/28/README.md)
+### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/28/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [美国停止第三剂辉瑞疫苗接种](/content/gnews/29/README.md)
  ` Charlie`
 
-### [货币基金董事操纵数据以偏袒中（共）国](/content/gnews/29/README.md)
+### [货币基金董事操纵数据以偏袒中（共）国](/content/gnews/30/README.md)
  ` Charlie`
 
-### [澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](/content/gnews/30/README.md)
+### [澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/31/README.md)
+### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0918](/content/gnews/32/README.md)
+### [DC每日热点0918](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [阿尔及利亚前总统布特弗利卡去世](/content/gnews/33/README.md)
+### [阿尔及利亚前总统布特弗利卡去世](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
-### [悉尼西郊就像“朝鲜”式的警察国家](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共官媒称澳大利亚或成核打击目标](/content/gnews/35/README.md)
+### [悉尼西郊就像“朝鲜”式的警察国家](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
@@ -142,36 +142,36 @@
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/18/21 香港快讯 职工盟启动解散程序　周日召开记者会交代](/content/gnews/44/README.md)
+### [没头脑和不高兴](/content/gnews/44/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [9/18/21 香港快讯 职工盟启动解散程序　周日召开记者会交代](/content/gnews/45/README.md)
  ` 英喜-粵語組`
 
-### [加拿大媒体：美司法部就可让孟晚舟返回中共国的认罪协议与华为谈判](/content/gnews/45/README.md)
+### [加拿大媒体：美司法部就可让孟晚舟返回中共国的认罪协议与华为谈判](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
-### [美英澳三方合作 盟国关系出现裂痕](/content/gnews/46/README.md)
+### [美英澳三方合作 盟国关系出现裂痕](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [解药已经解密,各国政府依然在讨论如何应对病毒](/content/gnews/47/README.md)
+### [解药已经解密,各国政府依然在讨论如何应对病毒](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [民间反感中共人权暴政, 日益影响日本政坛](/content/gnews/48/README.md)
+### [民间反感中共人权暴政, 日益影响日本政坛](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [台湾&#8221;汉光军演&#8221;落幕, 中共军机侵扰创单日新最](/content/gnews/49/README.md)
+### [台湾&#8221;汉光军演&#8221;落幕, 中共军机侵扰创单日新最](/content/gnews/50/README.md)
  ` GTV新闻访谈`
 
-### [CCP百年百罪 第十七集（70 – 73罪）](/content/gnews/50/README.md)
+### [CCP百年百罪 第十七集（70 – 73罪）](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线 :恒大倒闭危机导致铁矿期货价格暴跌](/content/gnews/51/README.md)
+### [中共官媒称澳大利亚或成核打击目标](/content/gnews/52/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线 :恒大倒闭危机导致铁矿期货价格暴跌](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墙内要闻汇编](/content/gnews/52/README.md)
+### [墙内要闻汇编](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [另一个超限战:数字人民币会踢走美元?](/content/gnews/53/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [习近平视频出席阿富汗问题联合峰会](/content/gnews/54/README.md)
- ` 儒为`
 

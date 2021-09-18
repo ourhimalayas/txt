@@ -2,35 +2,42 @@
 ---
 
 
-## 解药已经解密,各国政府依然在讨论如何应对病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540406/)
+## 美英澳三方合作 盟国关系出现裂痕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540343/)
 
-栏目记者/责任编辑：文小白
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-231.png)
-华盛顿时事17日消息，白宫宣布将于22日召开有关国家和组织的首脑峰会，讨论应对新冠病毒的措施，包括如何加强官方和民间的协作以消灭病毒。
+栏目记者/责任编辑：DM
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+美国、英国和澳大利亚本周宣布，在印度太平洋地区结成新的安全伙伴关系，开展防务和高科技合作，帮助澳大利亚发展核潜艇。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-16.jpeg)
+此合作机制着力于人工智能、网络技术、水下系统和远程打击能力等高科技领域，让美英澳三国更容易分享信息和技术。合作将包括帮助澳大利亚建立一支核潜艇舰队。美国除在1958年与英国签订协议分享过核潜艇技术之外，从未向其他任何盟友输出过这一敏感技术。
 
-此次峰会与会国家包括G7和G20 成员国, 拜登总统发出的峰会邀请函称：“呼吁各国元首、政府首脑、国际组织，以及商界、慈善事业和非政府机构 共同讨论如何 彻底结束 新冠病毒的全球疫情。”总统发言人萨基则称，峰会讨论内容包括 与会国家和机构“平等获得疫苗”，促进医用氧气和治疗药物的普及等合作等。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-6.jpg)
 
-爆料革命和新中国联邦不遗余力的向世界传播真相,  克制新冠病毒的解药青蒿素/伊维菌素等已经存在,而世界彻底消灭病毒的方法就是灭共.  但美国在内的各国政府依然在我行我素的推行疫苗政策, 还要召开首脑峰会讨论如何应对病毒,浑然不知疫苗潜在的巨大危险!  虽然令人扼腕,但也验证 爆料革命拯救人类使命之艰难,佐证着一切真相大白后, 新中国联邦 在未来世界上的影响力。
+法国官方星期五宣布，立即召回驻美国和澳大利亚大使，抗议美澳的这项核潜艇协议，澳大利亚与法国合作的潜艇，价值达四百多亿美元合同告吹。欧盟高级外长安全政策高级代表博雷利说，欧盟没有被告知这一安全联盟；法国外交部长则表示，这种背后一刀的行为，破坏了法国和澳大利亚之间的信任关系。
 
-（本文仅代表作者观点）
+中共霸权日益嚣张，武力攻打台湾已箭在弦上。川普政府国际合作对抗中共策略中，包含“五眼联盟”、欧洲盟国，以及日本等东南亚国家。面对中共对澳大利亚的经济施压，拜登政府一改政策，且澳洲是中共蓝金黄的大本营，这一决定不免引发各界忧虑。
 
-参考链接： [コロナ対策で２２日に首脳会議　ワクチン普及など協議―米政府](https://www.jiji.com/sp/article?k=2021091800219&amp;g=int)
+补充链接：
+[France, still mad about that submarine deal, just recalled its ambassadors to the United States and Australia](https://www.cnbc.com/amp/2021/09/17/france-recalls-ambassadors-to-us-australia-to-protest-submarine-deal.html?__twitter_impression=true)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+本文仅代表作者观点
 
-终审：文龍
-校对/发稿：谐趣园
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+
+**终审：暗黑**
+
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-
-
 0

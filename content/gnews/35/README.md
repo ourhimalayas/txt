@@ -2,35 +2,44 @@
 ---
 
 
-## 中共官媒称澳大利亚或成核打击目标
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1540295/)
+## 悉尼西郊就像“朝鲜”式的警察国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1540313/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2a25010a92f082b53202327ed2f58cb8a578c7b5.jpg)图片来源：7NEWS
-**整理报道：**翼族
+#### ** 编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-19.png)
+图片来源：The Australia
 
-在澳大利亚政府宣布从美国购买核动力潜艇的同时，中共领导人习近平再次发出了“做好战斗准备”的言论。同时，中共外交官将澳大利亚称为“对地区稳定的威胁”。
+澳大利亚悉尼西郊民众说，他们现在活在“朝鲜”式的警察国家中，并将封锁比作“塔利班统治”。一位居民说，他们感觉自己就像在一个“动物园”里，西郊的人被关在“笼子里”，南部邦迪的富人们过得很轻松。
 
-中共外交部发言人赵立坚说：“美、英、澳三国AUKUS的核潜艇项目，严重破坏了地区的和平与稳定。愈演愈烈的军备竞赛破坏了国际核不扩散的努力。”但他没有明确说明，为什么AUKUS需要进行核动力潜艇的交易。
+一位在所谓的“疫情关注热点地区”的人士表示，新南威尔士州州长实际将悉尼分为两个地区，一个是自由生活在沿海郊区的人，另一个是“被监禁”在悉尼西部的人。
 
-赵立坚指责澳大利亚“作为《核不扩散条约》和《南太平洋无核区条约》的签署国，正在寻求具有战略军事价值的核技术。”
+9月18日，悉尼西郊坎特伯雷-班克斯敦地区的居民向媒体发泄了他们对政府封锁政策的愤怒。
 
-澳大利亚的核动力潜艇不会配备核武器，但为潜艇提供动力的小型核反应堆确实会产生武器级的铀废料。
+此次疫情爆发的“零号病人”是南部邦迪的一名居民——将这种高度传染性的变种病毒传播到了西部郊区。该地区在过去四个星期记录了新南威尔士州最多的中共病毒病例，感染人数超过5000。
 
-《环球时报》称：“中（共）国军事专家警告说，如果爆发核战争，这样的举动可能会使澳大利亚成为核打击的目标。因为当澳大利亚拥有核动力潜艇时，美国很容易为澳大利亚配备核武器和潜射弹道导弹。”
+悉尼西郊被认为是“受关注的热点地区”，现在受到了更严格的封锁限制，包括对工人进行严格的中共病毒测试规则，以及截至上周晚上9点至凌晨5点的宵禁。然而，现在南部邦迪的人们沐浴在春天的阳光下。
 
-习近平本周参观了一个新的军事弹道发射场，目前已接近完工。他强调“（军队）需要适应新的太空发射任务的频率和要求都越来越高的现实”，敦促该设施“加大力度优化”其功能，以“确保准确性、可靠性和完全成功”。他命令太空基地“更好地保护”其战略资产，“全面加强国防力量建设”。
+29岁的乔本周在班克斯敦打理一位朋友的电子烟店，当时他已经二次失业，他告诉媒体，他们都感觉自己像“二等公民”。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+“这里就像一个动物园，我们都是动物，（南部）邦迪的都是人类，他们可以在笼子里看到我们。”
 
-**参考链接**：[China calls for ‘combat readiness’ after AUKUS submarine purchase](https://www.news.com.au/technology/innovation/military/china-calls-for-combat-readiness-after-aukus-submarine-purchase/news-story/c53bfe2bef6b24c8352247232343ccb4)
+“当我们晚上被锁在里面时，你可以听到外面有直升机和警察的声音。
 
-*编辑/发布：翼族*
+“这里是坎大哈，被塔利班控制着，除了他们都会说英语。”
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+52岁的玛丽亚来自马其顿，她说，在看到悉尼东区人们“尽情享受”阳光的照片后，她“非常非常生气”。
+
+“我觉得我生活在一个不同的国家，那些郊区的人有不同的规定，我们在这里受到歧视，”她告诉媒体。
+
+新闻链接：[Canterbury Bankstown: Angry locals say they’re living like it’s a North Korean police state | news.com.au — Australia’s leading news site](https://www.news.com.au/national/nsw-act/sydneys-west-is-like-north-korea-say-angry-locals-who-claim-gladys-has-divided-the-city/news-story/cf1ad229304fee8d91015de087058e34)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

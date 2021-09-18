@@ -2,22 +2,22 @@
 ---
 
 
-## 民间反感中共人权暴政, 日益影响日本政坛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540350/)
+## 解药已经解密,各国政府依然在讨论如何应对病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540406/)
 
-栏目记者/责任编辑：在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-230.png)
-日本自民党总裁候选人岸田文雄 9月13日表示，若其出任首相, 将特别设立首相辅佐官来处理香港、新疆等“人权问题”,此举映射出日本民间对中共相关暴政的态度。
+栏目记者/责任编辑：文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-231.png)
+华盛顿时事17日消息，白宫宣布将于22日召开有关国家和组织的首脑峰会，讨论应对新冠病毒的措施，包括如何加强官方和民间的协作以消灭病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-13.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-16.jpeg)
 
-岸田文雄称, 中共的威权主义正在世界蔓延，围绕台湾稳定与香港、新疆之人权问题，日本将维护民主主义、法制、人权等普世价值。
+此次峰会与会国家包括G7和G20 成员国, 拜登总统发出的峰会邀请函称：“呼吁各国元首、政府首脑、国际组织，以及商界、慈善事业和非政府机构 共同讨论如何 彻底结束 新冠病毒的全球疫情。”总统发言人萨基则称，峰会讨论内容包括 与会国家和机构“平等获得疫苗”，促进医用氧气和治疗药物的普及等合作等。
 
-日本政界人士近年日益关注国内舆论对中共国的变化，而冠状病毒的起源，香港、新疆的人权被践踏，恶名昭彰的战狼外交等言行，已经使得中共国形象一再恶化，与中共保持友好的政策已不受民众支持, 日本社会已经普遍开始对中共反感,  这一变化必定左右参选人的政见和态度，这应该是原本相对温和的岸田文雄 转向“鹰派”立场的根本原因。
+爆料革命和新中国联邦不遗余力的向世界传播真相,  克制新冠病毒的解药青蒿素/伊维菌素等已经存在,而世界彻底消灭病毒的方法就是灭共.  但美国在内的各国政府依然在我行我素的推行疫苗政策, 还要召开首脑峰会讨论如何应对病毒,浑然不知疫苗潜在的巨大危险!  虽然令人扼腕,但也验证 爆料革命拯救人类使命之艰难,佐证着一切真相大白后, 新中国联邦 在未来世界上的影响力。
 
 （本文仅代表作者观点）
 
-参考链接: [鸽派转向剑指中国 日本将人权问题搬上选举舞台](https://www.voachinese.com/a/Chinese-Human-Rights-Became-An-Issue-in-Japan-Election202100917/6230933.html)
+参考链接： [コロナ対策で２２日に首脳会議　ワクチン普及など協議―米政府](https://www.jiji.com/sp/article?k=2021091800219&amp;g=int)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -31,4 +31,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
 0
