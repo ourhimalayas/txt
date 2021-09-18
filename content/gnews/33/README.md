@@ -2,62 +2,74 @@
 ---
 
 
-## IMF总裁被指控提升中国在世界银行报告中的排名
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1540061/)
+## 三大疫苗公司突然要给疫苗换名字
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1540123/)
 
 - 编译：wenwu–西班牙喜悦农场
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-222.png)
+所有三个主要的中共病毒（Covid-19）”疫苗”制造商都为其”完全授权”的疫苗，公布了新的名称，甚至在两家制药公司等待FDA批准其产品的时候。 继辉瑞/生物技术公司将其”完全授权”（奇怪的是，FDA不承认）的疫苗改名为”Comirnaty”之后，欧洲、加拿大的第二和第三大疫苗制造商，也就是Moderna和阿斯利康也在为其中共病毒疫苗重新换标签。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-220.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-224.png)
 
-国际货币基金组织(IMF)现任总裁克里斯塔利娜·格奥尔基耶娃（Kristalina Georgieva）周四在[一份官方报告](https://thedocs.worldbank.org/en/doc/84a922cc9273b7b120d49ad3b9e9d3f9-0090012021/original/DB-Investigation-Findings-and-Report-to-the-Board-of-Executive-Directors-September-15-2021.pdf)中，她被指控向世界银行工作人员施加“不当压力”，以提高中共国在其旗舰《营商环境报告》中的排名。
+“辉瑞-生物技术公司的疫苗是 Comirnaty，Moderna 疫苗将被命名为 SpikeVax，而阿斯利康疫苗将被命名为 Vaxzevria，”加拿大卫生部[周四](https://twitter.com/GovCanHealth/status/1438521534029582352)在[一条推文中](https://twitter.com/GovCanHealth/status/1438521534029582352)(如图）说。“这些只是名称的变化。疫苗本身没有变化，”加拿大卫生部补充说，为的是试图平息人们的困惑。但是，即使是疫苗的支持者也对这些名称的变化感到[困惑](https://twitter.com/ehmjayraf/status/1438536757763612674?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1438536757763612674%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://beckernews.com/all-3-major-vaccine-companies-suddenly-have-name-changes-for-their-covid-shots-and-people-are-already-confused-41507/)。然而，这并不是唯一引起质疑的事情。尽管辉瑞拥有“完全授权”的疫苗，但该疫苗制造商承认，它仍在以最初根据美国紧急使用授权（EUA）和加拿大临时订单授权生产的标签，生产中共病毒“疫苗”的标签。周四，辉瑞公司在加拿大获得了“完全授权”，正如它在一份新闻稿中所说：
 
-保加利亚国民、前欧盟专员格奥尔基耶娃于 2018 年担任世界银行首席执行官，并负责监督国际机构的增资，其中包括向中共国政府筹集资金。
+“辉瑞加拿大 ULC 和 BioNTech SE 今天宣布，加拿大卫生部已完全批准（合规通知或 NOC）用于 COMIRNATY ®，以预防 12 岁及以上个人的 COVID-19，”[辉瑞](https://www.163.com/dy/article/GI5KHHPA0552CSHY.html)说。
 
-世界银行在报告[发布后](https://www.worldbank.org/en/news/statement/2021/09/16/world-bank-group-to-discontinue-doing-business-report)表示，它将“停止”发布其年度《营商环境报告》的排名，因为调查“提出了道德问题，包括前董事会官员的行为”。
+“该疫苗最初于 2020 年 12 月 9 日根据临时订单授权在加拿大使用，并被称为辉瑞-生物技术公司的中共病毒疫苗，”新闻稿说。“根据临床前和临床数据，包括 3 期临床试验的初始数据，该授权允许在加拿大范围内基本推出疫苗剂量，以帮助在中共病毒大流行期间提供保护。”
 
-格奥尔基耶娃[在一份新闻稿中](https://www.imf.org/en/News/Articles/2021/09/16/pr21268-statement-imf-md-kristalina-georgieva-report-data-irregularities-doing-business-2018-2020)表示，她“从根本上不同意调查结果和解释”，但没有进一步详细说明。
+“尽管在获得批准后，疫苗的品牌名称将是 COMIRNATY，但加拿大将继续收到标有辉瑞-生物技术公司中共病毒疫苗的小瓶，”辉瑞继续说道。“辉瑞-生物技术公司中共病毒疫苗的配方与 COMIRNATY 的配方相同，加拿大卫生部认为它们可以互换，以提供中共病毒疫苗接种系列。鉴于当前持续的大流行，稍后将逐步过渡到使用 COMIRNATY 品牌名称的新标签。”
 
-报告发现，在“中共国政府高级官员”的干预下，她的干预避免了，中共国在《营商环境报告》的排名中从第78位降至第85位。
+这三个疫苗制造商的名称变更，均已获准在欧盟分销。
 
-过去几年，《营商环境报告》的可信度越来越受到质疑，时任世界银行首席经济学家的诺贝尔经济学奖获得者保罗·罗默早在 2018 年 1 月就已经，谴责其缺乏诚信。
+“Spikevax就是 Moderna ，并已获得欧洲医学协会对其中共病毒疫苗品牌名称的批准，即使它仍在等待 FDA 的决定，” Fierce Pharma[指出](https://www.fiercepharma.com/marketing/moderna-secures-spikevax-name-europe-joins-pfizer-s-comirnaty-awaiting-official-name-and)。
 
-在周四接受法新社采访时，于2018 年 1 月辞去工作的罗默表示，他曾“有些怀疑这样的事情可能会发生”。
+“随着上周在欧盟的正式批准，Spikevax（Moderna）加入了 Comirnaty（辉瑞）以及Vaxzevria（阿斯利康）改名项目，并获得了欧洲品牌批准，”报告继续说道。“不过，这些名称都没有在美国获得批准，因为这些疫苗仍处于紧急使用授权之下，而不是获得 FDA 的全面批准。”
 
-当他对报告的完整性提出质疑时，“格奥尔基耶娃策划了一场掩盖与粉饰，”他说：“我向那些缺乏诚信的人报告。这是无法忍受的。”
+报告补充说：“不过，这些公司很可能在向 FDA 提交或即将提交的疫苗申请中，使用相同的品牌名称。”
 
-国际货币基金组织还没有作为一个机构对《营商环境报告》的争议做出反应，但格奥尔基耶娃的反应是通过IMF的官方网站发布的。
+值得注意的是，欧洲药品管理局（EMA）是如何描述这些“疫苗”的。
 
-过去，每当有人对其董事总经理提出指控时，IMF就因其软性治理方法而受到批评。
+“Spikevax 包含一种称为信使 RNA (mRNA) 的分子，它包含 SARS-CoV-2（导致感染中共病毒的刺突蛋白）中产生蛋白质的指令，”EMA  [说](https://www.ema.europa.eu/en/medicines/human/EPAR/spikevax)。“Spikevax 本身不含病毒本身，不会导致感染中共病毒。”
 
-在这位法国前财政部长与一名下属发生婚外情后，IMF清除了2007年至2011年期间担任该基金负责人的多米尼克-斯特劳斯-卡恩的性骚扰指控。
+“Vaxzevria 是由另一种病毒（腺病毒家族）组成的，这种病毒已被修改为包含 SARS-CoV-2 蛋白质的基因，”EMA[还说](https://www.ema.europa.eu/en/medicines/human/EPAR/vaxzevria-previously-covid-19-vaccine-astrazeneca)。“Vaxzevria 本身不包含病毒，也不会导致感染中共病毒。”
 
-施特劳斯·卡恩因性侵犯指控，被纽约警方逮捕，并于 2011 年 5 月辞职。检察官后来撤销了指控，最终斯特劳斯-卡恩以未公开的金额和解。
+仔细研究辉瑞/生物技术公司在FDA批准后所发布的文件，可以了解到疫苗制造商为什么要为他们的”完全授权”疫苗换上新标签。
 
-2016 年，国际货币基金组织再次选举克里斯蒂娜·拉加德 (Christine Lagarde) 为董事总经理，尽管她被指控犯有刑事过失罪，因为她在担任法国财政部长时曾批准向一名有争议的法国商人，支付大量的纳税人资金。
+“2020年12月11日，美国食品和药物管理局（FDA）根据该法第564条发布了辉瑞-生物技术公司中共病毒疫苗的紧急使用授权（EUA），用于16岁及以上个人的中共病毒预防，”FDA 在给辉瑞全球高级总监 Elaine Harkins 女士的[一封信中](https://www.fda.gov/media/150386/download)表示：“FDA于2020年12月23日、2021年2月25日、2021年5月10日、2021年6月25日和2021年8月12日重新签发了授权书。”
 
-拉加德后来被法国高等法院认定有罪，但她保留了IMF的工作，并在2019年成为欧洲央行行长。
+“2021 年 8 月 23 日，FDA 批准了 BioNTech Manufacturing GmbH 提交的用于 COMIRNATY（COVID-19 疫苗，mRNA）的生物制剂许可申请（BLA），用于主动免疫以预防个体 16 年由 SARS-CoV-2 引起的 COVID-19年纪大了。”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-225.png)
+
+生物化学和分子生物学学生 [Kathleen Lee](https://twitter.com/KathMLee1/status/1430596099371327490?s=20) 博士注意到语言上的变化，并决定进一步追问。“我打辉瑞-生物技术公司的电话号码 1-800-666-7248，”她说。“录音清楚地表明它没有得到 FDA 的批准。辉瑞 BNT162B2 仍在 EUA 下。这清除了 Comirnaty 和辉瑞生物技术公司之间凌乱的 FDA 授权。”
+
+“这是欺诈性的，”Lee声称。“如果小瓶上写着 Comirnaty——那就是 FDA 批准的。瓶子上写着 Pfizer BioNtech——它是在 EUA 下，他们不承担责任。有数以百万计的剂辉瑞疫苗要先处理掉。”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-227.png)
+
+然而，如果下一批分发的疫苗是在 Cominarty 标签下生产的，那么这似乎可以调和这个问题。
+
+律师罗伯特·巴恩斯 (Robert Barnes) 也[谈到了](https://twitter.com/barnes_law/status/1430651514972823554?s=20)这个令人困惑的问题。
+
+如果 Pfizer-BioNTech 疫苗是“完全授权”疫苗，则不应再为其提供 EUA 提供的责任保护。其他疫苗也应停止根据 EUA 分发。然而，既然事实并非如此，我们只能假设它仍然是一个巨大的[骗局](https://beckernews.com/44-new-docs-41120/)。
 
 **简评：**
 
-**本篇报道揭发了IMF的腐败精英高管生态圈，是如同“华尔街之狼”的主角一样不择手段，才可以担当大任。另一方面，中共国的外交部发言人赵立坚对此事也发表了[评论](https://www.163.com/money/article/GK4575NE00259DLP.html)：IMF的官网发布了相关声明，建议你向有关部门做进一步了解。该报道也给出了答案：中共政府在《营商环境报告》排名被拔高了13名次，这是出于中共官员的干预！**
+**我们要寻求答案，辉瑞疫苗的三期临床试验的动物全都死亡了，FDA仍然批准毒疫苗直接在人身上试验！政府不敢公开，或者要问他们可以公开吗？单单女性流产发生后，NIH的回答是，哇，花费上百万的美金去证实所谓的“科学”，早干什么去呢？疫苗导致各国的女性流产（这让人想起在中共的“一胎政策”），该国政府有责任保护制药厂不对本国的法律负任何的责任。这条协议敢公开吗…**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-221.png)
+**本篇报道对三大疫苗制药厂更改商品名字产生了疑惑，并一直认同疫苗制造商在此地无银三百两。最核心的目的，疫苗杀死了这么多人，制造商罪关系的就是怎么不用负法律责任了。我们已经看到了他们在这事情上的努力，也包括了更换名字。**
 
-**据2021年9月17日《路透社》[报道](https://www.reuters.com/business/sustainable-business/world-bank-kills-business-climate-report-after-ethics-probe-cites-undue-pressure-2021-09-16/)，《营商环境报告》周围存在“有毒文化”和“对报复的恐惧”，并称IMF成员“认为他们无法在不冒工作风险的情况下，挑战世行总裁或首席执行官的命令。”不仅如此，WilmerHale还报告声称，格奥尔基耶娃去了一位《营商环境报告》经理的家里，取回了一份反映提高中国排名的最终报告的硬拷贝，并感谢这位员工帮助”解决问题”。**
+**中共病毒疫苗包含了刺突蛋白，这是毒疫苗的证据。另外，疫苗包含了中共病毒，FDA是如何证实疫苗不具备感染性的？**
 
-**值得一提的是，法国财政部一位消息人士周五[表示](https://www.reuters.com/business/sustainable-business/world-bank-kills-business-climate-report-after-ethics-probe-cites-undue-pressure-2021-09-16/)，国际货币基金组织的道德委员会和董事会需要调查一份报告，该报告指称国际货币基金组织总裁格奥尔基耶娃在世界银行工作时向员工施压，要求提高中国在一份旗舰报告中的排名。另外，负责管理美国在国际货币基金组织和世界银行的主要股东美国财政部说，它正在分析它所说的报告的”严重发现”。**
+（文章仅代表作者观点 与GNEWS无关）
 
-（文章仅代表作者本人观点，与Gnews无关）
-
-新闻来源：[《BARRONS》](https://www.barrons.com/articles/imf-head-accused-of-boosting-chinas-rankings-in-world-bank-report-51631871794?mod=hp_DAY_1?mod=article_signInButton?mod=article_signInButton?mod=article_signInButton?mod=article_signInButton?mod=article_signInButton?mod=article_signInButton)｜作者：皮埃尔·布理昂松｜发布时间：2021年9月7日
+新闻来源：[《Becker News》](https://beckernews.com/all-3-major-vaccine-companies-suddenly-have-name-changes-for-their-covid-shots-and-people-are-already-confused-41507/)｜作者：凯尔·贝克尔｜发布时间：2021年9月17日
 
 * * *
 
 *发稿：Nuevo唐人*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
-
-
 
 +1

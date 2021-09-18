@@ -2,25 +2,35 @@
 ---
 
 
-## 秘翻在线：澳大利亚前总理阿博特：澳英美安全协议为澳大利亚做了三件事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540211/)
+## 解药已经解密,各国政府依然在讨论如何应对病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540406/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-231.png)
+华盛顿时事17日消息，白宫宣布将于22日召开有关国家和组织的首脑峰会，讨论应对新冠病毒的措施，包括如何加强官方和民间的协作以消灭病毒。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-82.jpg)图片来源：网络图片
-据9月18日澳洲《天空新闻台》（SkyNews）报道，澳大利亚前总理托尼·阿博特（Tony Abbott）指AUKUS（澳英美安全协议）给澳大利亚带来三大好处。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-16.jpeg)
 
-托尼·阿博特1994年当选为联邦众议院议员，2009年出任自由党领袖及国会反对党领袖，2013年9月至2015年9月任澳大利亚总理及自由党领袖。卸任总理及党魁后，继续担任议员至2019年5月卸任。
+此次峰会与会国家包括G7和G20 成员国, 拜登总统发出的峰会邀请函称：“呼吁各国元首、政府首脑、国际组织，以及商界、慈善事业和非政府机构 共同讨论如何 彻底结束 新冠病毒的全球疫情。”总统发言人萨基则称，峰会讨论内容包括 与会国家和机构“平等获得疫苗”，促进医用氧气和治疗药物的普及等合作等。
 
-9月18日，在接受《天空新闻台》主持人凯瑟琳·麦格雷戈（Catherine McGregor）采访时，阿博特说：
+爆料革命和新中国联邦不遗余力的向世界传播真相,  克制新冠病毒的解药青蒿素/伊维菌素等已经存在,而世界彻底消灭病毒的方法就是灭共.  但美国在内的各国政府依然在我行我素的推行疫苗政策, 还要召开首脑峰会讨论如何应对病毒,浑然不知疫苗潜在的巨大危险!  虽然令人扼腕,但也验证 爆料革命拯救人类使命之艰难,佐证着一切真相大白后, 新中国联邦 在未来世界上的影响力。
 
-首先，澳大利亚、英国和美国建立了一个战略联盟，澳大利亚将获得一支核动力潜艇舰队。它为我们提供了更加可靠的战略威慑力，因为核潜艇的效果威力不可估量。
+（本文仅代表作者观点）
 
-其次，它代表着英国回归到了我们这个地区，很高兴再次看到苏伊士以东的英国。
+参考链接： [コロナ対策で２２日に首脳会議　ワクチン普及など協議―米政府](https://www.jiji.com/sp/article?k=2021091800219&amp;g=int)
 
-第三，而且是非常重要的，通过加入核动力潜艇俱乐部，澳大利亚将成为西方联盟中比以往更为重要的成员。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-新闻来源：[AUKUS alliance does ‘three things’: Tony Abbott](https://www.skynews.com.au/opinion/aukus-alliance-does-three-things-tony-abbott/video/2005e98b25f858e5ca4890d67e5badfe)
+终审：文龍
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
 
 0

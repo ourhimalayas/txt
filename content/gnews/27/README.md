@@ -2,28 +2,27 @@
 ---
 
 
-## 秘翻在线：FDA顾委会全票通过为65岁以上老年人注射中共病毒疫苗加强针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1539726/)
+## 秘翻在线：新西兰对澳美英安全协议的反应表现了其战略上的愚蠢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540161/)
 
 #### 撰稿：彩虹
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-60.jpg)图片来源：WFAA
-9月17日，据美联社（AP）报道，FDA 顾问委员会以压倒性票数否决了全面注射辉瑞公司中共病毒疫苗加强针的计划，只支持为65岁以上或有严重疾病风险的人注射中共病毒疫苗加强针。
 
-这项不具约束力的建议来自于一个为美国FDA（食品药品管理局）提供建议的非常有影响力的外部专家委员会，成员包括FDA的疫苗和相关生物制品咨询委员会（Vaccines and Related Biological Products Advisory Committee）的成员、来自美国CDC、以色列卫生部的官员，以及疫苗专家和辉瑞公司代表。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-2-4.jpg)图片来源：Raw Story
+综合9月16日新加坡《海峡时报》（StraitsTimes）和澳大利亚《天空新闻台》（Sky News）9月17日的报道，针对新西兰总理杰辛达·阿德恩（Jacinda Ardern）表示不会取消长达数十年的核动力船只进入其水域的禁令，《天空新闻台》主持人克里斯·肯尼（Chris Kenny）对此发表了评论。
 
-委员会表示，年龄较大和较脆弱的人群可能会从强化剂中受益，对于是否为65岁以上的人和有严重疾病风险的人注射中共病毒疫苗加强针，委员会以18:0全票同意。而年轻男性的心脏炎症风险则可能增加，并且委员会对大规模注射中共病毒疫苗加强针的价值表示怀疑，所以，为16岁以上的年轻人注射加强针的提议被委员会以16：2强势否决。
+报道说，1985年，新西兰发布核动力船舶禁令，该禁令是法国在太平洋地区进行核试验后出台的，导致美国海军军舰在30多年内被禁止进入新西兰港口。
 
-该委员会小组成员还认为，卫生工作者和其他在工作中接触到（中共）病毒的高风险人群应该接受中共病毒疫苗加强针。
+对于AUKUS（澳美英安全协议），阿德恩在周四的一份声明中将其中核动力潜艇的交易描述为“主要围绕技术和国防硬件”。称“这一安排绝不会改变我们与这三个国家以及加拿大的安全和情报关系。”
 
-该建议还不是最终的意见，FDA表示将考虑该意见并作出决定，而美国CDC（疾病控制和预防中心）将在下周进行评估。
+对此，克里斯·肯尼说，新西兰对澳大利亚的核潜艇交易反应暴露了该国在国防和安全方面是“多么的可笑”。
 
-**新闻来源：**
+他认为，新西兰只是想“躲在那里，希望没有人打扰。但我告诉你，如果中共国在该地区出现了，那么澳大利亚和美国就帮不上忙了，因为我们的船只会被禁止进入新西兰的水域。这是战略上的愚蠢。”
 
-1. [US panel backs COVID-19 boosters only for seniors, high-risk](https://apnews.com/article/fda-panel-rejects-widespread-pfizer-booster-shots-1cd1cf6a5c5c02b63f8a7324807a59f1)
-2. [BREAKING: FDA Panel Rejects Pfizer’s COVID-19 Vaccine Booster](https://pjmedia.com/news-and-politics/matt-margolis/2021/09/17/breaking-fda-panel-rejects-pfizers-covid-19-vaccine-booster-n1479603)
+新闻来源
 
+[Australian nuclear subs will be banned from New Zealand waters:](https://www.straitstimes.com/asia/australianz/australian-nuclear-subs-will-be-banned-from-new-zealand-waters-ardern)
 
-
+[Ardern](https://www.straitstimes.com/asia/australianz/australian-nuclear-subs-will-be-banned-from-new-zealand-waters-ardern)[New Zealand ‘a joke’ when it comes to defence and security](https://www.skynews.com.au/opinion/chris-kenny/new-zealand-a-joke-when-it-comes-to-defence-and-security/video/589b6b25e8cc8e588d1fcc6ac95867eb)
 
 0

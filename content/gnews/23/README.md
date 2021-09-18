@@ -2,25 +2,33 @@
 ---
 
 
-## 秘翻在线：中共国加入CPTPP的目的是要重塑世界贸易规则
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540148/)
+## 民间反感中共人权暴政, 日益影响日本政坛
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540350/)
 
-撰稿：WENJIE
+栏目记者/责任编辑：在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-230.png)
+日本自民党总裁候选人岸田文雄 9月13日表示，若其出任首相, 将特别设立首相辅佐官来处理香港、新疆等“人权问题”,此举映射出日本民间对中共相关暴政的态度。
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-18-173838.jpg)
-据9月17日新浪网报道，中共国外交部发言人确认已经向CPTPP成员国正式提交加入CPTPP的申请。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-13.jpeg)
 
-CPTPP的前身是由奥巴马政府提议的TPP自由贸易协议，包括美国在内的12个太平洋地区国家，是有史以来包含国家最多覆盖经济总量最大的自由贸易协议。TPP故意将中共国排出在外，可见当时是对中共的国际贸易地位一个重大的挑战，也是美国希望主导世界贸易制衡中共国的一个计划。但是自从川普上台以后，美国政府立刻退出了TPP的谈判，造成TPP剩余的11个成员国陷入了尴尬的境地。后来由新加坡日本等国提议继续将这个自贸协议签署完毕，虽然少了美国，但仍覆盖人口近5亿，成员国GDP达到11万亿美元，约占全球GDP的13%。
+岸田文雄称, 中共的威权主义正在世界蔓延，围绕台湾稳定与香港、新疆之人权问题，日本将维护民主主义、法制、人权等普世价值。
 
-中共国曾经一直在力推RECP《区域全面经济伙伴关系协定》，想拉拢所有亚太地区的国家，以此来制衡美国的TPP，在2020年11月15日RECP仓促完成最后的签署，实际上是个名存实亡的自贸协定，因为其中一个重要的贸易伙伴印度退出了该协定的签署，显然印度看透了中共，不打算加入中共国的朋友圈，而日本也是在巨大压力和极不情愿的情况下才勉强同意不退出，这大大打了中共的脸。
+日本政界人士近年日益关注国内舆论对中共国的变化，而冠状病毒的起源，香港、新疆的人权被践踏，恶名昭彰的战狼外交等言行，已经使得中共国形象一再恶化，与中共保持友好的政策已不受民众支持, 日本社会已经普遍开始对中共反感,  这一变化必定左右参选人的政见和态度，这应该是原本相对温和的岸田文雄 转向“鹰派”立场的根本原因。
 
-于是协定签署5天后，中共国就在APEC峰会上就表态将考虑加入CPTPP，把曾经美国的谈判成果据为己有，其目的还是希望去更高级的朋友圈当老大。因为CPTPP的标准不仅高于世界贸易组织（WTO），更高于目前大多数的贸易协定，包括RECP。
+（本文仅代表作者观点）
 
-郭文贵先生昨天（9月17日）的直播也表示，当初川普执意要退出TPP是个巨大的错误。这给中共国可趁之机，使中共国可以在国际贸易上处处店大欺客，对贸易规则的公平和对等关系造成了极大的破坏。日本不会在重复RCEP谈判时的懦弱和妥协，这次日本一定会说不！所以说，中共想加入CPTPP，就是要彻底取代美国，颠覆WTO的作用，破坏国际规则，把贸易规则和谈判条件的主动权放在自己手里，进而威胁美国，彻底将全世界和中共绑定在一起，鱼死网破。
+参考链接: [鸽派转向剑指中国 日本将人权问题搬上选举舞台](https://www.voachinese.com/a/Chinese-Human-Rights-Became-An-Issue-in-Japan-Election202100917/6230933.html)
 
-**参考链接：**【[1](https://finance.sina.com.cn/tech/2021-09-17/doc-iktzqtyt6582771.shtml)】【[2](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E8%A6%81%E9%97%BB%E5%88%86%E6%9E%90/20210916-%E4%B8%AD%E5%9B%BD%E6%AD%A3%E5%BC%8F%E7%94%B3%E8%AF%B7%E5%8A%A0%E5%85%A5-cptpp-%E5%BA%94%E5%AF%B9%E7%BE%8E%E5%9B%BD%E5%AF%B9%E5%8D%8E%E7%BB%8F%E6%B5%8E%E8%84%B1%E9%92%A9)】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：文龍
+校对/发稿：谐趣园
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

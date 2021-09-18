@@ -2,27 +2,31 @@
 ---
 
 
-## 秘翻在线：新西兰对澳美英安全协议的反应表现了其战略上的愚蠢
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540161/)
+## 台湾&#8221;汉光军演&#8221;落幕, 中共军机侵扰创单日新最
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540331/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑: 文不破
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
+9月17日，台湾年度最大军演 “汉光37号” 实弹演习正式结束。当天共有10架中共军机侵扰台湾防空识别区，其中8架侵扰西南空域，2架侵扰东南空域。台空军于当日紧急调谴 战机 趋近进行广播驱离，台防空导弹部队亦对中共军机实施持续追踪监控。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-2-4.jpg)图片来源：Raw Story
-综合9月16日新加坡《海峡时报》（StraitsTimes）和澳大利亚《天空新闻台》（Sky News）9月17日的报道，针对新西兰总理杰辛达·阿德恩（Jacinda Ardern）表示不会取消长达数十年的核动力船只进入其水域的禁令，《天空新闻台》主持人克里斯·肯尼（Chris Kenny）对此发表了评论。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-30.jpeg)
 
-报道说，1985年，新西兰发布核动力船舶禁令，该禁令是法国在太平洋地区进行核试验后出台的，导致美国海军军舰在30多年内被禁止进入新西兰港口。
+此次台军汉光37号演习从13日开始, 期间中共军机的侵扰和挑衅从未停止，17日更是创国防部单日数量统计新最。文贵先生在17日的直播中再次警告，中共为转移国内经济及疫苗危机，随时都可能入侵台湾，且极可能使用人类历史上比核战争还要残酷的极限战争形式。而爆料革命/新中国联邦正在酝酿推进的雷霆行动，是解台湾于倒悬的唯一希望。
 
-对于AUKUS（澳美英安全协议），阿德恩在周四的一份声明中将其中核动力潜艇的交易描述为“主要围绕技术和国防硬件”。称“这一安排绝不会改变我们与这三个国家以及加拿大的安全和情报关系。”
+（本文仅代表作者观点）
 
-对此，克里斯·肯尼说，新西兰对澳大利亚的核潜艇交易反应暴露了该国在国防和安全方面是“多么的可笑”。
+参考链接:[台湾宣布增加军费一天后 10架中国军机侵入台湾防空识别区](https://www.voachinese.com/a/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html)
 
-他认为，新西兰只是想“躲在那里，希望没有人打扰。但我告诉你，如果中共国在该地区出现了，那么澳大利亚和美国就帮不上忙了，因为我们的船只会被禁止进入新西兰的水域。这是战略上的愚蠢。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-新闻来源
+终审：文龍
+校对/发稿：谐趣园
 
-[Australian nuclear subs will be banned from New Zealand waters:](https://www.straitstimes.com/asia/australianz/australian-nuclear-subs-will-be-banned-from-new-zealand-waters-ardern)
-
-[Ardern](https://www.straitstimes.com/asia/australianz/australian-nuclear-subs-will-be-banned-from-new-zealand-waters-ardern)[New Zealand ‘a joke’ when it comes to defence and security](https://www.skynews.com.au/opinion/chris-kenny/new-zealand-a-joke-when-it-comes-to-defence-and-security/video/589b6b25e8cc8e588d1fcc6ac95867eb)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
