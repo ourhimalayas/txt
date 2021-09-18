@@ -2,21 +2,61 @@
 ---
 
 
-## 美国停止第三剂辉瑞疫苗接种
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1540571/)
+## 中共国正式申请加入太平洋贸易协定欲提高其经济影响力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540589/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09183.jpeg)
-美国没有第三剂疫苗：美国食品和药物管理局的一个委员会以 16 票对 2 票否决了第三剂接种辉瑞疫苗的提议，而是仅批准用于那些年满 65 岁或以上年龄、或被认为处于高风险中的人，并且这类人至少在六个月前接受了第二剂。
+栏目记者/责任编辑：一花一世界
 
-虽然委员会的指示对 FDA 没有约束力，但通常他们会遵守。拒绝第三剂疫苗对拜登政府的战略造成了重大打击，拜登政府还希望最早在下周为美国大多数接种第二剂疫苗八个月后的成年人提供额外注射。
 
-美联社写道，委员会成员似乎非常确定辉瑞和其他试验提供的数据并未证明第三剂可以阻止感染的传播。与此同时一些专家还批评缺乏关于年轻人额外注射安全性的数据。
 
-免责申明：本文只代表译者观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-原文链接：[https://www.repubblica.it/esteri/2021/09/18/news/usa\_niente\_terza\_dose\_per\_i\_vaccinati\_con\_pfizer-318329836/?ref=RHTP-VS-I270681069-P17-S1-T1](https://www.repubblica.it/esteri/2021/09/18/news/usa_niente_terza_dose_per_i_vaccinati_con_pfizer-318329836/?ref=RHTP-VS-I270681069-P17-S1-T1)
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
 
-0
+
+
+据路透社9月17日报道：中共国商务部在本周四晚些时候的一份声明中说，商务部部长王文涛在给新西兰贸易部长达米安-奥康纳的信中正式提交了中共国加入全面与进步跨太平洋伙伴关系协定(CPTPP)的申请。
+
+CPTPP是由澳大利亚、加拿大、智利、日本和新西兰等11个国家在2018年签署的自由贸易协定。其前身是跨太平洋伙伴关系协定（TPP），并被视为对中共国区域影响力的重要经济制衡。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-83.jpg)
+今年担任CPTPP主席的日本表示将与成员国协商，以回应中共国的要求，但未给出具体工作时间表。
+
+日本经济部长西村康稔周五告诉记者：有必要确定提交加入TPP-11国请求的中共国是否符合其极高的加入标准。
+
+台湾也一直希望加入该贸易协定，并对中共国的申请决定表示关切。
+
+日本副财长周五发推文指出中共国对国有企业的补贴和任意修改法律的做法，可能会使该国难以加入该贸易协定。
+
+他认为：中共国与自由、公平和高度透明的TPP世界相去甚远，它能够加入的机会几乎为零。
+
+新闻链接：
+[China applies to join Pacific trade pact to boost economic clout](https://www.reuters.com/world/china/china-officially-applies-join-cptpp-trade-pact-2021-09-16/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
++1

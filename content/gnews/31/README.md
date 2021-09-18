@@ -2,27 +2,21 @@
 ---
 
 
-## 法国是重要的合作伙伴
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1540946/)
+## 希腊警告土耳其在难民问题上的敲诈企图
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1541025/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/auf-diesem-von-der-u-s-navy.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0832.jpg)
 
 
-资料来源：法新社
+资料来源：视频截图
 
-在法国因对潜艇交易的不满而召回美国和澳大利亚的大使后，华盛顿和堪培拉正试图抑制损失。他们强调与法国双边关系的价值。
+欧盟再次就阿富汗移民问题进行谈判。 在欧洲地中海国家会议上，希腊警告新难民流动的后果。 雅典再次担心土耳其的勒索企图。
 
-美国和澳大利亚正试图安抚愤怒的法国政府，因为它涉及 10 亿美元的军火交易。 “法国是一个重要的合作伙伴和我们最古老的盟友，我们非常重视我们的关系，”在法国召集其驻美国和澳大利亚大使进行磋商后，美国国务院表示。希望能够在未来几天继续就该主题进行讨论。
+希腊担心来自阿富汗的新难民运动的政治影响。希腊总理米佐塔基斯周五警告说，不要“利用移民流动及其工具来实现其他目标”。 这是对土耳其的明确指责和警告。
 
-法国驻澳大利亚大使 Jean-Pierre Thebault 在离开前的星期六非常生气：“我认为这里犯了一个大错误，一种非常非常糟糕的合作方式，”他告诉记者。 “这不是一份合同，而是一种建立在信任、相互理解和开放基础上的伙伴关系。”
-
-澳大利亚外交部发言人也对大使的离开表示遗憾：“澳大利亚重视与法国的关系。我们期待着再次与法国就我们基于共同价值观的许多共同问题和利益进行对话。”
-
-与此同时，马来西亚对武器条约表示担忧，根据该条约，澳大利亚现在将从建造八艘核动力潜艇，而不是常规潜艇。马来西亚总理办公室在谈到中共国​​时说：“这将促使其他大国在该地区采取更积极的行动，尤其是在南海。”中共国还试图通过建立军事基地来扩大其在该地区的影响力。就美国而言，它正试图遏制中共国的影响力，巩固自己的地位。
-
-[https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html](https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html)
+[https://www.welt.de/politik/ausland/plus233876882/EU-Mittelmeerstaaten-Athen-warnt-vor-tuerkischen-Erpressungsversuchen.html](https://www.welt.de/politik/ausland/plus233876882/EU-Mittelmeerstaaten-Athen-warnt-vor-tuerkischen-Erpressungsversuchen.html)
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 

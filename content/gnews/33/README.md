@@ -2,36 +2,30 @@
 ---
 
 
-## 迪士尼乐园员工抗议公司的疫苗规定
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1540769/)
+## 法国是重要的合作伙伴
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1540946/)
 
-2021年09月18日
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-5.jpg)网络图片
-
-迪斯尼乐园的演员们计划在疫苗接种最后期限临近时组织抗议活动，反对公司的强制疫苗政策。许多员工认为他们有“不愿意接种疫苗的合法理由”。
-
-这些不愿接种疫苗的理由包括健康问题、宗教因素，以及不满（政府）对许多人已经拥有自然免疫力的现实视而不见。卡图拉诺说：“许多演员之前都感到很孤立，觉得他们是唯一认为这是错误的人。”他还解释说：“我很庆幸老天让我们能够意识到了这些。我们现在已经联合起来，我们正在反击。”
-
-抗议是在本周拜登总统会见各公司高层管理人员，讨论强制接种疫苗问题之后发生的。参加会议的公司高层包括凯撒医疗集团（Kaiser Permanente）、沃尔格林公司（Walgreens）、哥伦比亚体育用品公司（Columbia Sportswear）、微软公司（Microsoft）和迪士尼公司。
-
-本周四，24位共和党州检察长致信总统，警告说他们将坚决“捍卫法律”，并“将寻求一切可用的合法途径”来追究拜登的责任。
-
-简评：
-
-越来越多的人开始反对强制接种疫苗，有的人是出于信仰原因，有的人是为了捍卫自己的自由和尊严。虽然他们并没有真正意义到疫苗的危害，但是，他们的抗议活动能够带动所有人去重新思考疫苗的问题，对未来人们的自我觉醒是有积极的推动作用。
-
-新闻链接：[Disney World Employees to Protest Company’s Vaccine Mandate](https://political-viewer.com/2021-09-18/disney-world-employees-to-protest-companys-vaccine-mandate)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/auf-diesem-von-der-u-s-navy.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+资料来源：法新社
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在法国因对潜艇交易的不满而召回美国和澳大利亚的大使后，华盛顿和堪培拉正试图抑制损失。他们强调与法国双边关系的价值。
+
+美国和澳大利亚正试图安抚愤怒的法国政府，因为它涉及 10 亿美元的军火交易。 “法国是一个重要的合作伙伴和我们最古老的盟友，我们非常重视我们的关系，”在法国召集其驻美国和澳大利亚大使进行磋商后，美国国务院表示。希望能够在未来几天继续就该主题进行讨论。
+
+法国驻澳大利亚大使 Jean-Pierre Thebault 在离开前的星期六非常生气：“我认为这里犯了一个大错误，一种非常非常糟糕的合作方式，”他告诉记者。 “这不是一份合同，而是一种建立在信任、相互理解和开放基础上的伙伴关系。”
+
+澳大利亚外交部发言人也对大使的离开表示遗憾：“澳大利亚重视与法国的关系。我们期待着再次与法国就我们基于共同价值观的许多共同问题和利益进行对话。”
+
+与此同时，马来西亚对武器条约表示担忧，根据该条约，澳大利亚现在将从建造八艘核动力潜艇，而不是常规潜艇。马来西亚总理办公室在谈到中共国​​时说：“这将促使其他大国在该地区采取更积极的行动，尤其是在南海。”中共国还试图通过建立军事基地来扩大其在该地区的影响力。就美国而言，它正试图遏制中共国的影响力，巩固自己的地位。
+
+[https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html](https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+*责任编辑/校对/发布： Shuizhuyu*
 
 0
