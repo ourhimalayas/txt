@@ -58,23 +58,23 @@
 ### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [短视频：新书《危险》指控米利将军涉嫌叛国](/content/gnews/16/README.md)
+### [有声|以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [有声|韩国金融服务委员会监管改革,本国大部分加密货币交易所将停业](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [有声|彼得•纳瓦罗先生担任GETTR形象大使和新中国联邦国家代表大使](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [短视频：新书《危险》指控米利将军涉嫌叛国](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频集锦：科学家、医生和各界人士谈疫苗背后的暗黑势力](/content/gnews/17/README.md)
+### [视频集锦：科学家、医生和各界人士谈疫苗背后的暗黑势力](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
-
-### [祝贺马丁·班农先生百岁生日快乐！](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [祝贺马丁·班农先生百岁生日快乐！](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [祝贺马丁·班农先生百岁生日快乐！](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共正在帮助某大国建立三个生化实验室](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [秘翻在线：朝鲜再度加码核武计划被卫星抓包](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
@@ -94,29 +94,29 @@
 ### [中共商务部表态拜登政府即将发起的301调查](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线:美国司法部起诉大流行期间的医疗欺诈](/content/gnews/28/README.md)
+### [银河快讯：丰田下月暂停日本14家工厂；日本质疑中共国是否有资格加入TPP](/content/gnews/28/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [秘翻在线:美国司法部起诉大流行期间的医疗欺诈](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [推特将“台湾”和“中国”进行配对搜索](/content/gnews/29/README.md)
+### [推特将“台湾”和“中国”进行配对搜索](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：喜交所上市后，可以通过HDO捐款法治基金](/content/gnews/30/README.md)
+### [币圈新闻动态：喜交所上市后，可以通过HDO捐款法治基金](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：央视快评，构建更加紧密的上海合作组织命运共同体](/content/gnews/31/README.md)
+### [DC大中华时事：央视快评，构建更加紧密的上海合作组织命运共同体](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”](/content/gnews/32/README.md)
+### [美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾宣布增加军费一天后10架中国军机侵入台湾防空识别区](/content/gnews/33/README.md)
+### [台湾宣布增加军费一天后10架中国军机侵入台湾防空识别区](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第055期](/content/gnews/34/README.md)
+### [雅典娜时报-第055期](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
-
-### [来者不善，中共提交加入CPTPP申请](/content/gnews/35/README.md)
- ` 军迷wilson`
 
 ### [短视频：退役将军警告，澳大利亚必须加强防御能力应对台海危机](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
@@ -172,6 +172,6 @@
 ### [全力堵截反封锁抗议者，周六墨尔本警力出动](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [接种中共病毒疫苗，损害妇女生育能力](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [来者不善，中共提交加入CPTPP申请](/content/gnews/54/README.md)
+ ` 军迷wilson`
 

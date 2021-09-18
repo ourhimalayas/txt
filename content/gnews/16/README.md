@@ -2,48 +2,34 @@
 ---
 
 
-## 短视频：新书《危险》指控米利将军涉嫌叛国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1539870/)
+## 有声|以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1539966/)
 
-#### 翻译：Lish
-校对：枳实
-编辑：文泓
-剪辑字幕：蛮吉
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-18.png)
-图片来源：视频截屏
+配音：香草山美食部 – 玫瑰圓
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
+依据以色列卫生部9月13日公布的调查报告显示，约10%的儿童在感染新冠病毒并康复后，仍持续出现相关症状。
 
-畅销书作家伍德沃德与著名调查记者科斯塔最新出版的新书《危险》，指控米利将军（Mark Milley）给中共国官员打了两个秘密电话，说如果美国决定以任何方式进攻，他将预警中共。福克斯新闻对此进行了评论，文字及视频如下：
+今年6月，以色列卫生部电话采访了13,834名家长，询问家中3-18岁的孩童康复过后，是否还有诸如呼吸、精神体力、嗅觉、味觉等方面的症状。统计结果显示，约11.2%的儿童在康复后仍有相关症状。
 
-你知道，鲍勃·伍德沃德和罗伯特·科斯塔的一本新书披露，参谋长联席会议的马克·米利与中共国官员进行了两次秘密通话，原因是担心前总统特朗普会挑起冲突。
+以色列的此项报告显示，儿童在病愈后，新冠病毒的相关症状仍会持续。这与在疫情初发时，认为儿童在感染后症状轻微、容易复原的判断不同。家长更应该保护好孩子，以免感染病毒。
 
-在这些电话中，米利告诉人民解放军的将军，如果美国决定以任何方式进行攻击，他将(提前)预警中共。
+**文字版原文**：[以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状](https://gnews.org/zh-hans/1536834/)
 
-米利还要求高级官员做出保证，如果特朗普发出发射核武器的命令，将确保他也参与其中。议员先生，这是叛国吗？而米利将军也应该辞职吗？
+*音频处理：喜山必胜Maverick
+发稿：童谣*
 
-玛丽亚，如果这是真的，就肯定要有个说法。在我看来，这确实像是叛国活动，
-这看起来与班奈狄克·阿諾德在过去所做的事情一模一样。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-所以你看，这是奥巴马政府主导最后一项美国政策。由当时的参议员乔-拜登，也就是现在的总统乔-拜登向前推进，并做出了最无能的外交事务，外交政策和国家安全决定。
+**更多资讯，更多关注**
 
-这是一个自缚手脚，不能向敌人射击的行动，它不仅破坏了我们与所有盟友的友谊，还将美国公民抛弃在敌人的防线后方。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-必须要对此问责。就像我说的，布林肯绝对应该辞职。实话说米利也应该（辞职），我认为他肯定会面临调查，这可能会导致军事法庭审判，接着是对他们的指控和惩罚。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-我认为，根据这一信息，我们将呼吁这样做。当然，在指控是真实的前提下。因为很多人胡乱指控，毫无理由地把这些指控扔向特朗普总统。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-但是，如果这本书里写的是真的，那么。我认为，调查绝对必须向前推进。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-但是调查就在总司令（指拜登总统）这里止步不前了，那么唯一的补救措施就只能是在未来三年里进行弹劾。这就是我们现在努力的方向。
-
-视频链接：[New book alleges Gen. Milley secretly called China in fear of conflict | Fox Business Video](https://video.foxbusiness.com/v/6272659755001#sp=show-clips)
-
-发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-159.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
 0
