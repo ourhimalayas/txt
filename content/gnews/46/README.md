@@ -2,33 +2,42 @@
 ---
 
 
-## 民间反感中共人权暴政, 日益影响日本政坛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540350/)
+## 美英澳三方合作 盟国关系出现裂痕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540343/)
 
-栏目记者/责任编辑：在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-230.png)
-日本自民党总裁候选人岸田文雄 9月13日表示，若其出任首相, 将特别设立首相辅佐官来处理香港、新疆等“人权问题”,此举映射出日本民间对中共相关暴政的态度。
+栏目记者/责任编辑：DM
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+美国、英国和澳大利亚本周宣布，在印度太平洋地区结成新的安全伙伴关系，开展防务和高科技合作，帮助澳大利亚发展核潜艇。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-13.jpeg)
+此合作机制着力于人工智能、网络技术、水下系统和远程打击能力等高科技领域，让美英澳三国更容易分享信息和技术。合作将包括帮助澳大利亚建立一支核潜艇舰队。美国除在1958年与英国签订协议分享过核潜艇技术之外，从未向其他任何盟友输出过这一敏感技术。
 
-岸田文雄称, 中共的威权主义正在世界蔓延，围绕台湾稳定与香港、新疆之人权问题，日本将维护民主主义、法制、人权等普世价值。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-6.jpg)
 
-日本政界人士近年日益关注国内舆论对中共国的变化，而冠状病毒的起源，香港、新疆的人权被践踏，恶名昭彰的战狼外交等言行，已经使得中共国形象一再恶化，与中共保持友好的政策已不受民众支持, 日本社会已经普遍开始对中共反感,  这一变化必定左右参选人的政见和态度，这应该是原本相对温和的岸田文雄 转向“鹰派”立场的根本原因。
+法国官方星期五宣布，立即召回驻美国和澳大利亚大使，抗议美澳的这项核潜艇协议，澳大利亚与法国合作的潜艇，价值达四百多亿美元合同告吹。欧盟高级外长安全政策高级代表博雷利说，欧盟没有被告知这一安全联盟；法国外交部长则表示，这种背后一刀的行为，破坏了法国和澳大利亚之间的信任关系。
 
-（本文仅代表作者观点）
+中共霸权日益嚣张，武力攻打台湾已箭在弦上。川普政府国际合作对抗中共策略中，包含“五眼联盟”、欧洲盟国，以及日本等东南亚国家。面对中共对澳大利亚的经济施压，拜登政府一改政策，且澳洲是中共蓝金黄的大本营，这一决定不免引发各界忧虑。
 
-参考链接: [鸽派转向剑指中国 日本将人权问题搬上选举舞台](https://www.voachinese.com/a/Chinese-Human-Rights-Became-An-Issue-in-Japan-Election202100917/6230933.html)
+补充链接：
+[France, still mad about that submarine deal, just recalled its ambassadors to the United States and Australia](https://www.cnbc.com/amp/2021/09/17/france-recalls-ambassadors-to-us-australia-to-protest-submarine-deal.html?__twitter_impression=true)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+本文仅代表作者观点
 
-终审：文龍
-校对/发稿：谐趣园
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+
+**终审：暗黑**
+
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

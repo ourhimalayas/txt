@@ -28,14 +28,14 @@
 ### [2021年9月16日郭先生盖特3「9分31秒」](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [亚利桑那州起诉拜登政府，抨击疫苗强制令“完全虚伪”](/content/gnews/6/README.md)
+### [CCP 病毒灾难：智力下降](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [巴西总统因抵制疫苗而保住国民生命](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [亚利桑那州起诉拜登政府，抨击疫苗强制令“完全虚伪”](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [悉尼西郊就像“朝鲜”式的警察国家](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新研究揭示 COVID 疫苗有效性迅速下降](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [五角大楼承认喀布尔无人机袭击造成平民伤亡](/content/gnews/9/README.md)
  ` Shuizhuyu`
@@ -76,47 +76,47 @@
 ### [有声|拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [&#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [《我是音雄》第二季第四期首场复赛 节目预告](/content/gnews/23/README.md)
- ` 我是音雄`
-
-### [美国FDA拒绝为16-65岁的人接种辉瑞加强针](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [数万名示威者聚集纽约时代广场，抗议接种证明计划](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [加拿大媒体：美司法部就可让孟晚舟返回中共国的认罪协议与华为谈判](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [美英澳三方合作 盟国关系出现裂痕](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [恒大 300B 美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/28/README.md)
- ` wenwu`
-
-### [澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC每日热点0918](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [阿尔及利亚前总统布特弗利卡去世](/content/gnews/32/README.md)
- ` Shuizhuyu`
-
-### [中共官媒称澳大利亚或成核打击目标](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线 :恒大倒闭危机导致铁矿期货价格暴跌](/content/gnews/34/README.md)
+### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国召回驻美和澳大使](/content/gnews/35/README.md)
+### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [&#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [《我是音雄》第二季第四期首场复赛 节目预告](/content/gnews/25/README.md)
+ ` 我是音雄`
+
+### [美国FDA拒绝为16-65岁的人接种辉瑞加强针](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [数万名示威者聚集纽约时代广场，抗议接种证明计划](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [美国停止第三剂辉瑞疫苗接种](/content/gnews/28/README.md)
  ` Charlie`
+
+### [货币基金董事操纵数据以偏袒中（共）国](/content/gnews/29/README.md)
+ ` Charlie`
+
+### [澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0918](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [阿尔及利亚前总统布特弗利卡去世](/content/gnews/33/README.md)
+ ` Shuizhuyu`
+
+### [悉尼西郊就像“朝鲜”式的警察国家](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共官媒称澳大利亚或成核打击目标](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -145,33 +145,33 @@
 ### [9/18/21 香港快讯 职工盟启动解散程序　周日召开记者会交代](/content/gnews/44/README.md)
  ` 英喜-粵語組`
 
-### [解药已经解密,各国政府依然在讨论如何应对病毒](/content/gnews/45/README.md)
+### [加拿大媒体：美司法部就可让孟晚舟返回中共国的认罪协议与华为谈判](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
-### [民间反感中共人权暴政, 日益影响日本政坛](/content/gnews/46/README.md)
+### [美英澳三方合作 盟国关系出现裂痕](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
-### [台湾&#8221;汉光军演&#8221;落幕, 中共军机侵扰创单日新最](/content/gnews/47/README.md)
+### [解药已经解密,各国政府依然在讨论如何应对病毒](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [CCP百年百罪 第十七集（70 – 73罪）](/content/gnews/48/README.md)
+### [民间反感中共人权暴政, 日益影响日本政坛](/content/gnews/48/README.md)
+ ` GTV新闻访谈`
+
+### [台湾&#8221;汉光军演&#8221;落幕, 中共军机侵扰创单日新最](/content/gnews/49/README.md)
+ ` GTV新闻访谈`
+
+### [CCP百年百罪 第十七集（70 – 73罪）](/content/gnews/50/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [墙内要闻汇编](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [另一个超限战:数字人民币会踢走美元?](/content/gnews/50/README.md)
+### [秘翻在线 :恒大倒闭危机导致铁矿期货价格暴跌](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平视频出席阿富汗问题联合峰会](/content/gnews/51/README.md)
+### [墙内要闻汇编](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [另一个超限战:数字人民币会踢走美元?](/content/gnews/53/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [习近平视频出席阿富汗问题联合峰会](/content/gnews/54/README.md)
  ` 儒为`
-
-### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/52/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [灭共小童谣](/content/gnews/53/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/54/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 

@@ -2,27 +2,24 @@
 ---
 
 
-## 美国FDA拒绝为16-65岁的人接种辉瑞加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540345/)
+## &#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540346/)
 
-栏目记者/责任编辑：雪梨
+栏目记者/责任编辑：文龍
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-因临床试验数据不足，以及潜在的心脏炎症风险，美国食品和药物管理局FDA咨询小组 于周五以16比2的投票结果，拒绝为16-65岁的人接种辉瑞公司的加强针。
+文贵先生是在17号与战友的连线直播中说这句话的，他同时说：“医生护士本是救命的，消防员本是救火的，警察是维护治安的，各国政府是执行人民意志的，现在完全与人民为敌，执行少数人的意志！人类互联网都到5G了，你突然发现没有说话的地方了！”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-47.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide6-1.jpg)
 
-该咨询小组由18名有影响力的专家，包括FDA“疫苗和相关生物制品咨询委员会”（VRBPAC）的成员，和来自疾病控制和预防中心（CDC）、以色列卫生部的官员、疫苗专家和辉瑞公司的代表。该小组成员认为加强针在针对年轻群体，尤其是16-17岁的男性群体方面的数据不足，而且存在潜在的、增加心脏炎症的风险。
+在揭示当下世界面临的荒唐和危险之余，文贵先生也预测，由于接下来的数月间，疫苗后遗症并发症会集中出现，世界各国政府迫于压力和民众的激烈反抗，强制疫苗政策或许将在年底前后终止。但墙内仍将持续推行，因为盗国贼不会顾及百姓死活，他们只有一个目的，就是用病毒和假疫苗控制百姓，进而要挟全世界，最终维护自己的统治！
 
-新冠疫苗已经在世界上造成了巨大的伤害。由于主流媒体，以及各地政府机构的压制，包括辉瑞在内，新冠疫苗仍盛行全球。但随着爆料革命对疫苗真相的持续传播，各种医学真相见诸报端。越来越多的医学专家和官员会更加清楚地认识到疫苗的危害。
-
-参考链接：
-[FDA panel endorses Pfizer’s COVID-19 vaccine booster for people 65 and older, high-risk patients](https://www.foxnews.com/health/fda-panel-pfizer-covid-19-vaccine-booster)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-2.jpg)
 
 本文仅代表作者观点
 
 ![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
 
-**终审：暗黑**
+**终审：文龍**
 
 **校对/发稿：童谣**
 

@@ -2,20 +2,22 @@
 ---
 
 
-## 台湾&#8221;汉光军演&#8221;落幕, 中共军机侵扰创单日新最
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540331/)
+## 解药已经解密,各国政府依然在讨论如何应对病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540406/)
 
-栏目记者/责任编辑: 文不破
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
-9月17日，台湾年度最大军演 “汉光37号” 实弹演习正式结束。当天共有10架中共军机侵扰台湾防空识别区，其中8架侵扰西南空域，2架侵扰东南空域。台空军于当日紧急调谴 战机 趋近进行广播驱离，台防空导弹部队亦对中共军机实施持续追踪监控。
+栏目记者/责任编辑：文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-231.png)
+华盛顿时事17日消息，白宫宣布将于22日召开有关国家和组织的首脑峰会，讨论应对新冠病毒的措施，包括如何加强官方和民间的协作以消灭病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-30.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-16.jpeg)
 
-此次台军汉光37号演习从13日开始, 期间中共军机的侵扰和挑衅从未停止，17日更是创国防部单日数量统计新最。文贵先生在17日的直播中再次警告，中共为转移国内经济及疫苗危机，随时都可能入侵台湾，且极可能使用人类历史上比核战争还要残酷的极限战争形式。而爆料革命/新中国联邦正在酝酿推进的雷霆行动，是解台湾于倒悬的唯一希望。
+此次峰会与会国家包括G7和G20 成员国, 拜登总统发出的峰会邀请函称：“呼吁各国元首、政府首脑、国际组织，以及商界、慈善事业和非政府机构 共同讨论如何 彻底结束 新冠病毒的全球疫情。”总统发言人萨基则称，峰会讨论内容包括 与会国家和机构“平等获得疫苗”，促进医用氧气和治疗药物的普及等合作等。
+
+爆料革命和新中国联邦不遗余力的向世界传播真相,  克制新冠病毒的解药青蒿素/伊维菌素等已经存在,而世界彻底消灭病毒的方法就是灭共.  但美国在内的各国政府依然在我行我素的推行疫苗政策, 还要召开首脑峰会讨论如何应对病毒,浑然不知疫苗潜在的巨大危险!  虽然令人扼腕,但也验证 爆料革命拯救人类使命之艰难,佐证着一切真相大白后, 新中国联邦 在未来世界上的影响力。
 
 （本文仅代表作者观点）
 
-参考链接:[台湾宣布增加军费一天后 10架中国军机侵入台湾防空识别区](https://www.voachinese.com/a/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html)
+参考链接： [コロナ対策で２２日に首脳会議　ワクチン普及など協議―米政府](https://www.jiji.com/sp/article?k=2021091800219&amp;g=int)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -29,4 +31,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+
 0

@@ -2,22 +2,44 @@
 ---
 
 
-## 秘翻在线 :恒大倒闭危机导致铁矿期货价格暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540305/)
+## 悉尼西郊就像“朝鲜”式的警察国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1540313/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/p.jpg-2.png)
-图片来源：ModularPhonesForum
+#### ** 编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-19.png)
+图片来源：The Australia
 
-根据零对冲(Zero Hedge) 的报导,由于负债 3000 亿美元的中共国房地产公司恒大即将面临倒闭，铁矿价格已跌至每吨 100 美元以下，创下有史以来最低，对基本金属价格造成巨大压力。
+澳大利亚悉尼西郊民众说，他们现在活在“朝鲜”式的警察国家中，并将封锁比作“塔利班统治”。一位居民说，他们感觉自己就像在一个“动物园”里，西郊的人被关在“笼子里”，南部邦迪的富人们过得很轻松。
 
-根据报导，本周在新加坡交易所的铁矿期货暴跌 21%，原因是恒大的倒闭危机损害了中共国的住宅房地产市场前景以及信心。恒大的 2023 年债券叠加在铁矿期货上，金属交易商担心这家大型房地产公司倒闭，未来新建住宅会受到严重的冲击。
+一位在所谓的“疫情关注热点地区”的人士表示，新南威尔士州州长实际将悉尼分为两个地区，一个是自由生活在沿海郊区的人，另一个是“被监禁”在悉尼西部的人。
 
-人们怀疑中共政府是否会运用紧急救助来确保房地产市场不受到冲击，这将有助于稳定金属市场。中共国人民银行的新数据显示中共已经开始行动。9月17日，中共国央行增加了 140 亿美元的流动性注入，这是自 2 月以来最重要的资金注入，预估此次行动与避免经济全面崩溃有关。
+9月18日，悉尼西郊坎特伯雷-班克斯敦地区的居民向媒体发泄了他们对政府封锁政策的愤怒。
 
-由于中共信贷脉冲已见底，中共势必不乐见经济陷入萧条。可以预见，中共新一轮的骗贷戏码即将登场。
+此次疫情爆发的“零号病人”是南部邦迪的一名居民——将这种高度传染性的变种病毒传播到了西部郊区。该地区在过去四个星期记录了新南威尔士州最多的中共病毒病例，感染人数超过5000。
 
-新闻来源： [Iron Ore Futures Stumble In Worst Week Ever Amid Evergrande Meltdown](http://Iron%20Ore%20Futures%20Stumble%20In%20Worst%20Week%20Ever%20Amid%20Evergrande%20Meltdown)
+悉尼西郊被认为是“受关注的热点地区”，现在受到了更严格的封锁限制，包括对工人进行严格的中共病毒测试规则，以及截至上周晚上9点至凌晨5点的宵禁。然而，现在南部邦迪的人们沐浴在春天的阳光下。
+
+29岁的乔本周在班克斯敦打理一位朋友的电子烟店，当时他已经二次失业，他告诉媒体，他们都感觉自己像“二等公民”。
+
+“这里就像一个动物园，我们都是动物，（南部）邦迪的都是人类，他们可以在笼子里看到我们。”
+
+“当我们晚上被锁在里面时，你可以听到外面有直升机和警察的声音。
+
+“这里是坎大哈，被塔利班控制着，除了他们都会说英语。”
+
+52岁的玛丽亚来自马其顿，她说，在看到悉尼东区人们“尽情享受”阳光的照片后，她“非常非常生气”。
+
+“我觉得我生活在一个不同的国家，那些郊区的人有不同的规定，我们在这里受到歧视，”她告诉媒体。
+
+新闻链接：[Canterbury Bankstown: Angry locals say they’re living like it’s a North Korean police state | news.com.au — Australia’s leading news site](https://www.news.com.au/national/nsw-act/sydneys-west-is-like-north-korea-say-angry-locals-who-claim-gladys-has-divided-the-city/news-story/cf1ad229304fee8d91015de087058e34)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

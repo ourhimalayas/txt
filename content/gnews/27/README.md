@@ -2,23 +2,19 @@
 ---
 
 
-## 美英澳三方合作 盟国关系出现裂痕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540343/)
+## 数万名示威者聚集纽约时代广场，抗议接种证明计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540344/)
 
-栏目记者/责任编辑：DM
+栏目记者/责任编辑：雪梨
 ![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-美国、英国和澳大利亚本周宣布，在印度太平洋地区结成新的安全伙伴关系，开展防务和高科技合作，帮助澳大利亚发展核潜艇。
+纽约自由集会的组织者埃里克·格拉西（Eric Grassi）日前向gateway pundit表示，预计将有数万人参与周六下午在纽约时代广场举行的游行活动，抗议疫苗护照。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-46.jpg)
+格拉西说道，新冠病毒是对人类的生物战和心理战，而疫苗护照严重侵犯人民的基本权利，是邪恶政客们密谋的一场世界性的政变，这一邪恶计划导致纽约数以千计的企业倒闭，数十万个工作岗位消失，纽约人民的生活陷入极大的困境。疫苗及其带来的次生危险，正在对全世界人民造成巨大的伤害。消防员、教师、军人、医护人员都不愿意接种疫苗。为儿童接种疫苗更是一种不可饶恕的犯罪行为。
 
-此合作机制着力于人工智能、网络技术、水下系统和远程打击能力等高科技领域，让美英澳三国更容易分享信息和技术。合作将包括帮助澳大利亚建立一支核潜艇舰队。美国除在1958年与英国签订协议分享过核潜艇技术之外，从未向其他任何盟友输出过这一敏感技术。
+据悉，此次游行活动将于下午1点从曼哈顿的哥伦布广场开始，抗议者将在下午1:30游行到时代广场。拜登将于下周二在联合国大会进行首次演讲，此次大规模的抗议，则是对其举行的“欢迎仪式“，表达民众坚定一致，不屈服于政府强制令，联合起来阻止专制和暴政的决心。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-6.jpg)
-
-法国官方星期五宣布，立即召回驻美国和澳大利亚大使，抗议美澳的这项核潜艇协议，澳大利亚与法国合作的潜艇，价值达四百多亿美元合同告吹。欧盟高级外长安全政策高级代表博雷利说，欧盟没有被告知这一安全联盟；法国外交部长则表示，这种背后一刀的行为，破坏了法国和澳大利亚之间的信任关系。
-
-中共霸权日益嚣张，武力攻打台湾已箭在弦上。川普政府国际合作对抗中共策略中，包含“五眼联盟”、欧洲盟国，以及日本等东南亚国家。面对中共对澳大利亚的经济施压，拜登政府一改政策，且澳洲是中共蓝金黄的大本营，这一决定不免引发各界忧虑。
-
-补充链接：
-[France, still mad about that submarine deal, just recalled its ambassadors to the United States and Australia](https://www.cnbc.com/amp/2021/09/17/france-recalls-ambassadors-to-us-australia-to-protest-submarine-deal.html?__twitter_impression=true)
+参考链接：
+[Thousands Of Outraged New Yorkers To Protest Vaccine Passport Mandate In Times Square on Sept. 18](https://www.thegatewaypundit.com/2021/09/thousands-outraged-new-yorkers-protest-vaccine-passport-mandate-times-square-sept-18/)
 
 本文仅代表作者观点
 

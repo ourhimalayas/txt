@@ -2,44 +2,62 @@
 ---
 
 
-## 悉尼西郊就像“朝鲜”式的警察国家
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1540313/)
+## 巴西总统因抵制疫苗而保住国民生命
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1540517/)
 
-#### ** 编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-19.png)
-图片来源：The Australia
+作者：香草山写作组 – 我爱正义
 
-澳大利亚悉尼西郊民众说，他们现在活在“朝鲜”式的警察国家中，并将封锁比作“塔利班统治”。一位居民说，他们感觉自己就像在一个“动物园”里，西郊的人被关在“笼子里”，南部邦迪的富人们过得很轻松。
 
-一位在所谓的“疫情关注热点地区”的人士表示，新南威尔士州州长实际将悉尼分为两个地区，一个是自由生活在沿海郊区的人，另一个是“被监禁”在悉尼西部的人。
 
-9月18日，悉尼西郊坎特伯雷-班克斯敦地区的居民向媒体发泄了他们对政府封锁政策的愤怒。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-此次疫情爆发的“零号病人”是南部邦迪的一名居民——将这种高度传染性的变种病毒传播到了西部郊区。该地区在过去四个星期记录了新南威尔士州最多的中共病毒病例，感染人数超过5000。
 
-悉尼西郊被认为是“受关注的热点地区”，现在受到了更严格的封锁限制，包括对工人进行严格的中共病毒测试规则，以及截至上周晚上9点至凌晨5点的宵禁。然而，现在南部邦迪的人们沐浴在春天的阳光下。
 
-29岁的乔本周在班克斯敦打理一位朋友的电子烟店，当时他已经二次失业，他告诉媒体，他们都感觉自己像“二等公民”。
+巴西总统因抵制疫苗而保住国民的生命，死亡率和感染率于9月达到新低。美联社消息，巴西总统公开表示拒绝接种新冠疫苗，遭到联合国打压，联合国纽约总部指，外国人进入纽约必须出示疫苗接种记录。另据法新社报道，巴西总统依然会赴联合国总部参加联大会议。
 
-“这里就像一个动物园，我们都是动物，（南部）邦迪的都是人类，他们可以在笼子里看到我们。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.28.png)
 
-“当我们晚上被锁在里面时，你可以听到外面有直升机和警察的声音。
+巴西从2021年6月24日开始感染率和死亡率都出现大幅下降的趋势。
 
-“这里是坎大哈，被塔利班控制着，除了他们都会说英语。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.34.png)
 
-52岁的玛丽亚来自马其顿，她说，在看到悉尼东区人们“尽情享受”阳光的照片后，她“非常非常生气”。
+巴西总统从去年11月开始公开拒绝疫苗，6月8日，巴西总统Bolsonaro拒绝以半价购买辉瑞疫苗。6月22日，巴西爆出疫苗丑闻，媒体大幅报道疫苗牵涉大额腐败。在巴西总统的坚决态度之下，民众接种疫苗的情况大幅减少，全国感染率也直接下降。目前应接近新冠病毒爆发初期的水平。
 
-“我觉得我生活在一个不同的国家，那些郊区的人有不同的规定，我们在这里受到歧视，”她告诉媒体。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.40.png)
 
-新闻链接：[Canterbury Bankstown: Angry locals say they’re living like it’s a North Korean police state | news.com.au — Australia’s leading news site](https://www.news.com.au/national/nsw-act/sydneys-west-is-like-north-korea-say-angry-locals-who-claim-gladys-has-divided-the-city/news-story/cf1ad229304fee8d91015de087058e34)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.46.png)
 
-编辑/发布：文泓
+疫苗腐败、官员因分发疫苗而收受贿赂一事于6月22日爆出。巴西的感染率随即下降。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.51.png)
 
+事件在7月一直发酵，病毒感染率一直呈下降趋势。9月，巴西总统在国际的压力下，再次公开拒绝疫苗，全国的病毒感染率和死亡率都将至新低。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.27.56.png)
+
+值得注意的是，巴西的死亡率在今年的4月12日达到顶峰，从此一直处于下降趋势，从6月18日之后更是直线下降，说明疫苗推进越困难，死亡率就越低。反证疫苗才是公共安全的最大威胁。讽刺的是，BBC居然在4月报道巴西因疫苗推进困难而死亡率飙升，主流媒体的谎言和无耻由此可见一斑。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-18-at-10.28.04.png)
+
+参考新闻：
+
+[https://www.bbc.com/news/world-latin-america-56913943](https://www.bbc.com/news/world-latin-america-56913943)
+
+[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
+
+[https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries](https://www.brasildefato.com.br/2021/06/08/bolsonaro-refused-to-buy-pfizer-s-vaccine-at-half-the-price-paid-by-other-countries)
+
+[https://ourworldindata.org/coronavirus/country/brazil](https://ourworldindata.org/coronavirus/country/brazil)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
