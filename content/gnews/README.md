@@ -37,13 +37,13 @@
 ### [CCP 病毒灾难：智力下降](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [中共延长对美国81种产品的关税豁免](/content/gnews/9/README.md)
+### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/9/README.md)
+ ` HimalayaRussia`
+
+### [中共延长对美国81种产品的关税豁免](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/11/README.md)
+### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/12/README.md)
@@ -94,29 +94,29 @@
 ### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [法国是重要的合作伙伴](/content/gnews/28/README.md)
+### [德州格兰德河上的上万移民](/content/gnews/28/README.md)
  ` Shuizhuyu`
 
-### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/29/README.md)
+### [希腊警告土耳其在难民问题上的敲诈企图](/content/gnews/29/README.md)
+ ` Shuizhuyu`
+
+### [因亲中势力渗透，维基百科封禁“中共国维基人用户组”七名编辑](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [法国是重要的合作伙伴](/content/gnews/31/README.md)
+ ` Shuizhuyu`
+
+### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/32/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/30/README.md)
+### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/31/README.md)
+### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [这是世界上最可怕的地图&#8230;，对你意味着什么](/content/gnews/32/README.md)
+### [这是世界上最可怕的地图&#8230;，对你意味着什么](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [特鲁多承诺提供10亿美元支持各省疫苗护照](/content/gnews/33/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [美国停止第三剂辉瑞疫苗接种](/content/gnews/34/README.md)
- ` Charlie`
-
-### [货币基金董事操纵数据以偏袒中（共）国](/content/gnews/35/README.md)
- ` Charlie`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -148,30 +148,30 @@
 ### [《大鱼海棠》之人物解析](/content/gnews/45/README.md)
  ` 纽约香草山MOS03`
 
-### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/46/README.md)
+### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/46/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/47/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/47/README.md)
+### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/48/README.md)
+### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/49/README.md)
+### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/50/README.md)
  ` GTV新闻访谈`
 
-### [没头脑和不高兴](/content/gnews/50/README.md)
+### [特鲁多承诺提供10亿美元支持各省疫苗护照](/content/gnews/51/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [没头脑和不高兴](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/51/README.md)
+### [美国停止第三剂辉瑞疫苗接种](/content/gnews/53/README.md)
+ ` Charlie`
+
+### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [巴西总统因抵制疫苗而保住国民生命](/content/gnews/52/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/53/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](/content/gnews/54/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 

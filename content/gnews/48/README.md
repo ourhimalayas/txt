@@ -2,48 +2,27 @@
 ---
 
 
-## 欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540639/)
+## 秘翻在线：接种中共病毒疫苗的人到底能活多久？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540628/)
 
-栏目记者：andy5，葛朗台太太
-责任编辑：葛朗台太太
+撰稿：nstar
 
-欧洲议会官方网站9月16日消息，欧洲议会在当地时间周四以570票赞成、61票反对、40票弃权的压倒性结果通过一项“新欧中战略报告”，要求欧盟制定新对中共国战略。
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-001243.jpg)
+关于“如果接种了中共病毒疫苗的人还能活多久？”这个问题，迈洛·坎德里安（Mylo Canderian） 博士有他自己的观点。这个在网络上很难查到具体信息的迈洛·坎德里安博士1938 年出生于希腊科孚岛的 Milos Iskanderianos，他于 2015 年开发了用作血液学(Hematological) 的生物武器的氧化石墨烯专利。
 
-该报告要求中共国允许对 COVID-19 的起源和传播进行独立调查。呼吁欧盟委员会和理事会就欧盟与台湾的投资协议取得进展。谴责中共系统性侵犯人权的行为，呼吁中欧定期就人权问题进行对话，并制定衡量进展的基准。讨论应包括新疆、内蒙古、西藏和香港的侵犯人权行为。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-48.jpg)图片来源：网络
-欧洲议会议员强调需要与志同道合的合作伙伴为下一代技术（例如 5G 和 6G 网络）制定全球标准。他们说，不符合安全标准的公司必须被排除在外。该报告最终要求授权欧洲对外行动署和必要的资源，以解决中共的虚假信息行动，包括成立一个专门的远东战略通信工作组。 报告员Hilde Vautmans（比利时复兴欧洲）在投票后表示：“在与中共国打交道时，我们不能天真。中共国是对我们的生活方式和自由世界秩序构成挑战的系统性竞争对手。经济收益不应让我们对中共野心勃勃的政治议程、日益强硬的外交政策以及对新疆和香港的镇压视而不见。我们必须通过在贸易、数字、安全和国防等领域获得欧洲战略自主权来捍卫我们的价值观和利益”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-63.jpg)
-参考链接：
-[欧洲议会压倒性通过报告呼吁欧盟制定对中国新战略](https://rfi.my/7kXl)
-[欧洲议会压倒性通过报告要求制定对华新战略，中方回应：不能认同](https://www.sohu.com/a/490400532_115479)
-[Parliament sets out its vision for a new EU strategy on China](https://www.europarl.europa.eu/news/en/press-room/20210910IPR11917/parliament-sets-out-its-vision-for-a-new-eu-strategy-on-china)
+坎德里安博士是世界卫生组织的医学贡献者，也非常支持克劳斯·施瓦布（Klaus Schwab ）和“大重置”很多说法。
 
-（本文仅代表作者观点）
+坎德里安博士认为，世界上 95% 的人口都是“无用食者”（中午可以理解为酒囊饭袋），需要尽快实施安乐死。“看看芝加哥市中心、巴尔的摩或洛杉矶，”他说，“你会清楚地明白为什么无用的食者必须像疯狗一样被镇压。” 他对宣扬批判种族理论的“传染病教育者”表示不屑，并相信“疫苗”将终结“地球上的人类癌症”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+坎德里安博士介绍了一个信息，称为 “周期结束公式”。他说这是“简约的力量”并解释从注射到周期结束的时间最长为十年。 换句话说，“接种者”如果他们的血液中有20%的氧化石墨烯变质，将只活8年，以此类推，氧化石墨烯劣化 70% 的人，寿命不会超过 3 年。
 
-终审： Ryan
-校对/发稿：为真不破20
+简·鲁比（Jane Ruby） 博士最近在他的播客中接受了 Stew Peters 的采访，并展示了暴露于氧化石墨烯时变质的血液是什么样子的。
 
-**更多资讯，更多关注**
+科普一下，氧化石墨烯是 Messenger RNA 刺突蛋白和朊病毒的组成部分，它与心脏、肺、大脑和血液争夺氧气。氧化石墨烯是一种吸氧海绵，它会剥夺身体所需的氧气并导致许多并发症，包括但不限于过敏性休克、毒性血液凝固、致命的肺麻痹、线粒体癌和内皮癌。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+关于 第二次和第三次疫苗加强针的效果如何，麦洛说：“这一切都可以通过血液学测试来衡量。低能者得到的注射和疫苗加强针越多，他们的血液在显微镜下的表现就越差，他们也就越快变成肥料。”
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+**[信息来源](https://m.beforeitsnews.com/alternative/2021/09/how-long-do-the-vaccinated-have-to-live-dr-mylo-canderian-is-of-the-opinion-that-95-of-the-worlds-population-are-useless-eaters-who-need-to-be-euthanized-as-quickly-as-po-3-3758265.html)**
 
 0
