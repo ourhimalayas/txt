@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/18/2021 1:32 AM (UTC)`
+
+9/17/2021 Miles Guo: I was the first to reveal that Evergrande has two trillion yuan of debts, and it is in essence running a Ponzi scheme. The CCP’s fraudulent financial notes will bring about an enormous financial catastrophe; The CCP will surely be over if it tries to save Evergrande!<br/><br/>9/17/2021 文贵直播：七哥最早说出恒大有2万亿人民币的负债，恒大的本质就是庞氏骗局；共产党的虚假金融票据将带来巨大的金融灾难；如果中共试图去救恒大，那么它必将完蛋！<br/>
+![img](https://media.gettr.com/group6/getter/2021/09/18/01/970027f9-fb65-1924-cfe0-ab8c10012aec/out.jpg)
+
+---
+
 `@miles 9/17/2021 10:41 PM (UTC)`
 
 9/17/2021 Miles Guo: Wang Qishan inherited the evil organization’s assets under the name of Yao Yilin, and the international financiers are aware that the evil forces in the Communist China are sucking the Chinese Lao Baixing’s blood through the CCP!<br/><br/>9/17/2021 文贵直播：王岐山继承了邪恶组织在姚依林名下的资产，而国际上的金融家也很清楚，中共国的邪恶势力通过共产党来吸老百姓的血！<br/>
@@ -293,13 +300,6 @@ The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？�
 
 9/14/2021 Miles Guo: I urged Hongkongers to quit social media platforms such as Facebook, Instagram, Telegram, Twitter, Google etc. This is because under the infiltration of the CCP, these companies are fully cooperating in providing personal information to the CCP. I promise to protect Hongkongers at all costs.<br/><br/>9/14/2021 文贵直播: 文贵呼吁香港同胞们不要再使用Facebook、Instagram、Telegram、Twitter和Google等社交媒体。因为在共产党的渗透下，这些公司全面配合向中共提供个人信息。文贵先生承诺不惜一切代价保护香港同胞。
 ![img](https://media.gettr.com/group4/getter/2021/09/15/04/70ebc846-3362-d322-b2d8-60f64c9eab25/out.jpg)
-
----
-
-`@miles 9/15/2021 2:07 AM (UTC)`
-
-9/14/2021 Miles Guo: For the first time, I proposed “Taking Down the CCP with the Truth of COVID Vaccines”, so that the people of the world would stand together with the Whistleblowers’ Movement in exposing and eliminating the threat of vaccines. This also means the Whistleblowers’ Movement has begun fighting with the dark forces of the world that are trying to continue to enslave the Chinese people!<br/><br/>9/14/2021 文贵直播: 文贵先生首次提出“以(疫)苗灭共”，让世界人民和爆料革命一起揭露并消灭疫苗对世界的威胁。这也意味着爆料革命已经开始在跟全世界试图继续奴役中国人的黑暗势力作战！
-![img](https://media.gettr.com/group2/getter/2021/09/15/02/32203f00-ab14-594c-3e77-630557c1d112/out.jpg)
 
 ---
 
