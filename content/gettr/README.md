@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/18/2021 5:34 PM (UTC)`
+
+9月18号：看着一个自己的同类这样的死去，周围的人却如此的冷漠，幸灾乐祸，这已经不是人道和不人道的这个层面的问题了。人类正在走向一个关键的十字路口，自私贪婪，冷漠无知，愚蠢……会毁掉太多人的生命。
+![img](https://media.gettr.com/group39/default/20210918/17/34/8141c2f6-4c15-b026-140f-3488b2003d8d/out.jpg)
+
+---
+
 `@miles 9/18/2021 5:16 PM (UTC)`
 
 9月18号：这个视频证实了无知有理．欺骗是真理……阶级斗争将从杀富豪从新在大陆开始……这幅德行特别像路大脑骗的亲爹呀……
@@ -292,13 +299,6 @@ SOHO China Plummets 40% After Blackstone Takeover Falls Apart<br/><br/>黑石放
 
 9/15/2021 班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意这么干。如果中共不灭，没有人会是自由的。因此，帮助中国人灭共符合全世界所有人的自身利益。<br/>9/15/2021 Steve Bannon: The reason the Firewall is not taken down is that those who are colluding with the CCP in the West don’t want to do so. No one is free until the CCP is gone. So, it is in the self-interest of everyone on Earth to help the Chinese people take down the CCP
 ![img](https://media.gettr.com/group19/getter/2021/09/16/01/04488b52-f74e-ff68-8764-6e6d7e1f0bf6/out.jpg)
-
----
-
-`@miles 9/16/2021 12:58 AM (UTC)`
-
-9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！<br/>9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
-![img](https://media.gettr.com/group8/getter/2021/09/16/00/8463a4a7-d2e1-ec46-463d-f5bca5c49e5d/out.jpg)
 
 ---
 
