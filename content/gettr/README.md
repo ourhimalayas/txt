@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/18/2021 10:25 PM (UTC)`
+
+9/17/2021 新中国联邦全球战友们为马丁·班农先生庆祝百岁生日；马丁·班农先生全家都是真正的美国人，而且是中国人心目中首屈一指的英雄！<br/>9/17/2021 The New Federal State of China celebrates Mr. Marty Bannon’s 100th birthday with fellow fighters from all over the world. Mr. Marty Bannon’s whole family are true Americans and are the No. 1 heroes in the hearts of the Chinese!
+![img](https://media.gettr.com/group38/getter/2021/09/18/22/4d053c03-b200-c1d5-57df-3c74e2211641/out.jpg)
+
+---
+
 `@miles 9/18/2021 8:50 PM (UTC)`
 
 9.18日：科技创新的真实价值……不可能骗人的……这辆摩托车的市场价值，已经是当时的出场价格3.2倍的价格！
@@ -292,13 +299,6 @@ SOHO China Plummets 40% After Blackstone Takeover Falls Apart<br/><br/>黑石放
 
 9/15/2021 班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家进行战争的不归路，结果将导致无数人丧生，这也就是为什么摧毁这些邪恶势力是我们的使命！<br/>9/15/2021 Steve Bannon: The West is heading to war with the CCP and other evil countries due to our failure to stand up to evil! As a result, countless lives will be thrown away. That is why our mission is to destroy these evil forces!
 ![img](https://media.gettr.com/group38/getter/2021/09/16/06/40a726cb-9356-3f71-0d2c-ffc340b6aab6/out.jpg)
-
----
-
-`@miles 9/16/2021 5:27 AM (UTC)`
-
-9/15/2021 纳瓦拉先生：我们必须切断为中共房地产泡沫输血的美国资本! 班农先生：中国人是中共与华尔街精英勾兑的最大受害者！这些华尔街精英有责任赔偿那些因投资中共房地产诈骗公司而受害的老百姓！<br/>9/15/2021 Peter Navarro: We must stop the flow of the American capital to fuel the CCP’s real estate bubbles! Bannon: The Chinese people are the BIGGEST victims of the collusion between the CCP and the Wall Street elites, who are obliged to compensate the Chinese victims who invested in the CCP’s fraudulent real estate companies
-![img](https://media.gettr.com/group7/getter/2021/09/16/05/1562eb36-93a0-ba0d-440b-64eb27144c77/out.jpg)
 
 ---
 

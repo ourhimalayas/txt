@@ -142,36 +142,36 @@
 ### [9/17/2021国际财经快讯：摩根下周在英国将推出数字银行Chase；美联储“缩减”时间表](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/44/README.md)
+### [中共申请入会CPTPP 轮值主席国日本保持谨慎](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/45/README.md)
+### [维基百科封禁中共七名编辑](/content/gnews/45/README.md)
+ ` 日本东京方舟农场`
+
+### [中共西南海域演练常态化 台海战争一触即发](/content/gnews/46/README.md)
+ ` 日本东京方舟农场`
+
+### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/47/README.md)
+ ` 日本东京方舟农场`
+
+### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《大鱼海棠》之人物解析](/content/gnews/46/README.md)
+### [《大鱼海棠》之人物解析](/content/gnews/49/README.md)
  ` 纽约香草山MOS03`
 
-### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/47/README.md)
+### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/48/README.md)
+### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/51/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/49/README.md)
+### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/50/README.md)
+### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/51/README.md)
+### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [这是世界上最可怕的地图&#8230;，对你意味着什么](/content/gnews/52/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/53/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
 
