@@ -19,14 +19,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [跟胡锦涛天天睡跟江泽民睡50年80年也不能绘出腐败地图](/content/gnews/3/README.md)
+### [新冠病毒Coivd19打疫苗不吃伊维菌素青蒿素的主流在改变](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [共产党跪求加入CPTPP跨太平洋合作关系](/content/gnews/4/README.md)
+### [跟胡锦涛天天睡跟江泽民睡50年80年也不能绘出腐败地图](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年9月16日郭先生盖特3「9分31秒」](/content/gnews/5/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [共产党跪求加入CPTPP跨太平洋合作关系](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
 
 ### [CCP 病毒灾难：智力下降](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
@@ -76,23 +76,23 @@
 ### [有声|拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/22/README.md)
- ` GTV新闻访谈`
+### [英美澳签署协议对抗中共 北京称英美澳联盟“不负责任”](/content/gnews/22/README.md)
+ ` 纽约香草山MOS01`
 
-### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/23/README.md)
+### [秘翻在线：德国医生协会呼吁取消所有州的疫情戒严措施！](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/24/README.md)
+### [辉瑞为疫苗加强针辩解，强制接种势在必行](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/25/README.md)
+### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/26/README.md)
+### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
+### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
 
 ### [特鲁多承诺提供10亿美元支持各省疫苗护照](/content/gnews/28/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
@@ -145,33 +145,33 @@
 ### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/44/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [没头脑和不高兴](/content/gnews/45/README.md)
+### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/45/README.md)
+ ` GTV新闻访谈`
+
+### [没头脑和不高兴](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [&#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;](/content/gnews/46/README.md)
+### [秘翻在线：人权组织呼吁联合国大会采取行动解决新疆人权危机](/content/gnews/47/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/48/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [&#8220;珍惜今天你所拥有的,再去追求明天你想要的!&#8221;](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [《我是音雄》第二季第四期首场复赛 节目预告](/content/gnews/47/README.md)
+### [《我是音雄》第二季第四期首场复赛 节目预告](/content/gnews/50/README.md)
  ` 我是音雄`
 
-### [美国FDA拒绝为16-65岁的人接种辉瑞加强针](/content/gnews/48/README.md)
+### [美国FDA拒绝为16-65岁的人接种辉瑞加强针](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [9/18/21 香港快讯 职工盟启动解散程序　周日召开记者会交代](/content/gnews/49/README.md)
+### [9/18/21 香港快讯 职工盟启动解散程序　周日召开记者会交代](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [数万名示威者聚集纽约时代广场，抗议接种证明计划](/content/gnews/50/README.md)
+### [数万名示威者聚集纽约时代广场，抗议接种证明计划](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [加拿大媒体：美司法部就可让孟晚舟返回中共国的认罪协议与华为谈判](/content/gnews/51/README.md)
- ` GTV新闻访谈`
-
-### [美英澳三方合作 盟国关系出现裂痕](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [解药已经解密,各国政府依然在讨论如何应对病毒](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [民间反感中共人权暴政, 日益影响日本政坛](/content/gnews/54/README.md)
+### [加拿大媒体：美司法部就可让孟晚舟返回中共国的认罪协议与华为谈判](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
