@@ -2,38 +2,35 @@
 ---
 
 
-## 数万名示威者聚集纽约时代广场，抗议接种证明计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540344/)
+## 秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540553/)
 
-栏目记者/责任编辑：雪梨
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-纽约自由集会的组织者埃里克·格拉西（Eric Grassi）日前向gateway pundit表示，预计将有数万人参与周六下午在纽约时代广场举行的游行活动，抗议疫苗护照。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-46.jpg)
-格拉西说道，新冠病毒是对人类的生物战和心理战，而疫苗护照严重侵犯人民的基本权利，是邪恶政客们密谋的一场世界性的政变，这一邪恶计划导致纽约数以千计的企业倒闭，数十万个工作岗位消失，纽约人民的生活陷入极大的困境。疫苗及其带来的次生危险，正在对全世界人民造成巨大的伤害。消防员、教师、军人、医护人员都不愿意接种疫苗。为儿童接种疫苗更是一种不可饶恕的犯罪行为。
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-21.png)
+图片来自网络
 
-据悉，此次游行活动将于下午1点从曼哈顿的哥伦布广场开始，抗议者将在下午1:30游行到时代广场。拜登将于下周二在联合国大会进行首次演讲，此次大规模的抗议，则是对其举行的“欢迎仪式“，表达民众坚定一致，不屈服于政府强制令，联合起来阻止专制和暴政的决心。
+《法国国际广播电台》9月18日消息，有媒体报道称，美国证券交易委员会（SEC）主席詹斯勒在《华尔街日报》发表文章称，如果在美上市的中共国企业拒绝依据美国国会去年通过的《外国公司问责法》，遵守美国审计规则，SEC将在2024年初强制270家中概股下市。SEC预料将在明年初公布相关企业名单。
 
-参考链接：
-[Thousands Of Outraged New Yorkers To Protest Vaccine Passport Mandate In Times Square on Sept. 18](https://www.thegatewaypundit.com/2021/09/thousands-outraged-new-yorkers-protest-vaccine-passport-mandate-times-square-sept-18/)
+据《自由时报》报道，美国SEC主席詹斯勒（Gary Gensler）在他撰写的题为《中国公司必须打开帐本》的文章中指出，2002年美国国会鉴于“安隆”（Enron）与“世界通讯”（WorldCom）的会计丑闻，通过了《萨班斯—奥克斯利法》（Sarbanes-Oxley Act），强制上市企业的审计公司必须受SEC旗下的“上市公司会计监督委员会”（PCAOB）稽核。超过50个国家与地区允许PCAOB稽核审计公司（audit the auditors）
 
-本文仅代表作者观点
+去年，美国国会又无异议地通过了《外国公司问责法案》，弥补《萨班斯—奥克斯利法案》的漏洞。依据新法，若外国政府连续3年禁止PCAOB查核该国企业的审计公司，将禁止相关上市公司在美交易。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+詹斯勒在文章中表示，SEC已采取所有必要行动以执行该法，PCAOB也将在今年底前完成相关规则的制定。此外，3年期限是从2021年起计算。
 
-**终审：暗黑**
+《自由时报》引述詹斯勒的话报道称，现在要由北京（中共国）决定是否允许PCAOB赴中，让美方确定相关审计是否符合美国标准。明年初，预料SEC将宣布哪些公司的审计单位没有对美国监管人员打开帐本。如果稽核发现这些企业连续两年雇用不合规的审计公司，其股票将从2024年起禁止在美国资本市场交易。
 
-**校对/发稿：童谣**
+詹斯勒的文章还指出，今年6月，美国参议院还通过了《加速外国公司问责法》。该法一旦颁布，3年期限将缩减至2年。
 
-**更多资讯，更多关注**
+除了确保PCAOB能稽核审计公司之外，SEC也希望美国投资人完全了解投资中概股的风险。SEC近期暂停了处理中共国公司的IPO申请，以期与相关公司合作，确保他们明确揭露相关风险。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据《自由时报》的报道披露，对于一些产业，中共国政府不允许外资持有，但为了在美国交易所筹资，许多中共国公司运用“可变利益实体”（VIE）架构，与境外——例如开曼群岛的空壳公司建立合约关系，随后由这些空壳公司在美国交易所筹资。然而，相关合约并没有将营运公司的股份所有权给予美国投资人。对此，詹斯勒表示，他担心“一些投资人不知道他们是把钱放在开曼的空壳公司，而非一家在中共国营运的公司”。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+詹斯勒（Gary Gensler）在文章中强调，无论注册地是加州、开曼群岛还是中共国，所有寻求在美国资本市场筹资的企业，都应该遵行美国的规则。美国国会、SEC与PCAOB的目标是采取一切必要措施达到保护投资者的目地。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+在以假治国的中共国，上行下效，各个领域的各行各业都存在做假账的问题，尤其是圈钱上市的公司。可以说，所有在美上市的中概股无一例外，都有披露虚假信息和提供虚假账目的违法行为。只要美国SEC去查，一个都跑不了。只是由于这么多年来，在美国“卖美贼”的帮助下，大批中概股才得以顺利在美国大量圈钱。如今，中概股的“庞氏骗局”即将被揭开，中概股的末日也将到来。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+注：本文仅代表作者观点
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+**新闻链接：**[https://twitter.com/RFI\_Cn/status/1439175909802602499](https://twitter.com/RFI_Cn/status/1439175909802602499)
+
 0

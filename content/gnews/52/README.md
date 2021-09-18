@@ -2,35 +2,42 @@
 ---
 
 
-## 中共官媒称澳大利亚或成核打击目标
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1540295/)
+## 美英澳三方合作 盟国关系出现裂痕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1540343/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2a25010a92f082b53202327ed2f58cb8a578c7b5.jpg)图片来源：7NEWS
-**整理报道：**翼族
+栏目记者/责任编辑：DM
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+美国、英国和澳大利亚本周宣布，在印度太平洋地区结成新的安全伙伴关系，开展防务和高科技合作，帮助澳大利亚发展核潜艇。
 
-在澳大利亚政府宣布从美国购买核动力潜艇的同时，中共领导人习近平再次发出了“做好战斗准备”的言论。同时，中共外交官将澳大利亚称为“对地区稳定的威胁”。
+此合作机制着力于人工智能、网络技术、水下系统和远程打击能力等高科技领域，让美英澳三国更容易分享信息和技术。合作将包括帮助澳大利亚建立一支核潜艇舰队。美国除在1958年与英国签订协议分享过核潜艇技术之外，从未向其他任何盟友输出过这一敏感技术。
 
-中共外交部发言人赵立坚说：“美、英、澳三国AUKUS的核潜艇项目，严重破坏了地区的和平与稳定。愈演愈烈的军备竞赛破坏了国际核不扩散的努力。”但他没有明确说明，为什么AUKUS需要进行核动力潜艇的交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-6.jpg)
 
-赵立坚指责澳大利亚“作为《核不扩散条约》和《南太平洋无核区条约》的签署国，正在寻求具有战略军事价值的核技术。”
+法国官方星期五宣布，立即召回驻美国和澳大利亚大使，抗议美澳的这项核潜艇协议，澳大利亚与法国合作的潜艇，价值达四百多亿美元合同告吹。欧盟高级外长安全政策高级代表博雷利说，欧盟没有被告知这一安全联盟；法国外交部长则表示，这种背后一刀的行为，破坏了法国和澳大利亚之间的信任关系。
 
-澳大利亚的核动力潜艇不会配备核武器，但为潜艇提供动力的小型核反应堆确实会产生武器级的铀废料。
+中共霸权日益嚣张，武力攻打台湾已箭在弦上。川普政府国际合作对抗中共策略中，包含“五眼联盟”、欧洲盟国，以及日本等东南亚国家。面对中共对澳大利亚的经济施压，拜登政府一改政策，且澳洲是中共蓝金黄的大本营，这一决定不免引发各界忧虑。
 
-《环球时报》称：“中（共）国军事专家警告说，如果爆发核战争，这样的举动可能会使澳大利亚成为核打击的目标。因为当澳大利亚拥有核动力潜艇时，美国很容易为澳大利亚配备核武器和潜射弹道导弹。”
+补充链接：
+[France, still mad about that submarine deal, just recalled its ambassadors to the United States and Australia](https://www.cnbc.com/amp/2021/09/17/france-recalls-ambassadors-to-us-australia-to-protest-submarine-deal.html?__twitter_impression=true)
 
-习近平本周参观了一个新的军事弹道发射场，目前已接近完工。他强调“（军队）需要适应新的太空发射任务的频率和要求都越来越高的现实”，敦促该设施“加大力度优化”其功能，以“确保准确性、可靠性和完全成功”。他命令太空基地“更好地保护”其战略资产，“全面加强国防力量建设”。
+本文仅代表作者观点
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
 
-**参考链接**：[China calls for ‘combat readiness’ after AUKUS submarine purchase](https://www.news.com.au/technology/innovation/military/china-calls-for-combat-readiness-after-aukus-submarine-purchase/news-story/c53bfe2bef6b24c8352247232343ccb4)
+**终审：暗黑**
 
-*编辑/发布：翼族*
+**校对/发稿：童谣**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
