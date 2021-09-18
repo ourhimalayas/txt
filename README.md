@@ -94,29 +94,29 @@
 ### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/28/README.md)
+### [法国是重要的合作伙伴](/content/gnews/28/README.md)
+ ` Shuizhuyu`
+
+### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/29/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/29/README.md)
+### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/30/README.md)
+### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [这是世界上最可怕的地图&#8230;，对你意味着什么](/content/gnews/31/README.md)
+### [这是世界上最可怕的地图&#8230;，对你意味着什么](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [特鲁多承诺提供10亿美元支持各省疫苗护照](/content/gnews/32/README.md)
+### [特鲁多承诺提供10亿美元支持各省疫苗护照](/content/gnews/33/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [美国停止第三剂辉瑞疫苗接种](/content/gnews/33/README.md)
+### [美国停止第三剂辉瑞疫苗接种](/content/gnews/34/README.md)
  ` Charlie`
 
-### [货币基金董事操纵数据以偏袒中（共）国](/content/gnews/34/README.md)
+### [货币基金董事操纵数据以偏袒中（共）国](/content/gnews/35/README.md)
  ` Charlie`
-
-### [澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -172,6 +172,6 @@
 ### [秘翻在线：最后通牒：再拒绝审计270家中概股将被强制下市](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美SEC主席：再不让美国查帐 270家中概股将遭强制退市](/content/gnews/54/README.md)
+### [澳大利亚警告北京：先撤报复性关税再谈入CPTPP事](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
