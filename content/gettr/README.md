@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/18/2021 3:18 PM (UTC)`
+
+9月18号：尊敬的战友们好，你们传播共产党病毒，和疫苗的解药的信息了吗？七哥今天和明天都没有直播，七哥要去开非常非常重要的赚钱和灭共里程碑式的会议了……一切都已经开始。
+![img](https://media.gettr.com/group40/default/20210918/15/18/da77b1ef-9a7c-9c1f-4d98-c4599b01aff9/out.jpg)
+
+---
+
 `@miles 9/18/2021 1:57 PM (UTC)`
 
 9月18号：我的手机就没有停止过，<br/>被我们战友舒服的，吃药了，还有得了病的，我们给他们提供药品的，而得以救命的各种信息，新中国联邦人，我们行善不问结果，不图回报，传播救命的解药的真相，一定要有耐心，同样我们也不要有什么结果，什么利益。更不想要回报，我们正在做的事情，是人类着前所未有的最伟大的事业，这是上天给我们的机会，我们要感恩，我们要珍惜，我们要行动。
@@ -292,15 +299,6 @@ SOHO China Plummets 40% After Blackstone Takeover Falls Apart<br/><br/>黑石放
 
 G| Fashion 未来将推出郭式西装，纯手工剪裁，最高品质的布料，G｜ Club 会员能以最优惠的价格购买到全世界顶级设计师设计的最高品质的产品 🔥🔥🔥🔥 ❤️❤️❤️🥳🥳🥳🥳
 ![img](https://media.gettr.com/group12/getter/2021/09/15/23/df725936-cc87-18c5-de96-51874323b29d/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@usalee 9/15/2021 10:15 PM (UTC)`
-
-The Top 7 CCP Exterminators of the World！<br/>这是哪位战友的大作？太震撼了👍
-![img](https://media.gettr.com/group5/getter/2021/09/15/22/3e8f1f8c-7a70-bbd6-cd04-5e9bc3f2da45/out.jpg)
 
 ---
 
