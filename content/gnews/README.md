@@ -19,31 +19,31 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [新冠病毒Coivd19打疫苗不吃伊维菌素青蒿素的主流在改变](/content/gnews/3/README.md)
+### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新冠病毒Coivd19打疫苗不吃伊维菌素青蒿素的主流在改变](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [跟胡锦涛天天睡跟江泽民睡50年80年也不能绘出腐败地图](/content/gnews/4/README.md)
+### [跟胡锦涛天天睡跟江泽民睡50年80年也不能绘出腐败地图](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [共产党跪求加入CPTPP跨太平洋合作关系](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
+### [关于美国疫苗接种赦免而想到的](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
 
-### [中东国家使用国药疫苗后的惊人发现](/content/gnews/6/README.md)
+### [中东国家使用国药疫苗后的惊人发现](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国疫情：截至9月16日24时新型冠状病毒肺炎疫情最新情况](/content/gnews/7/README.md)
+### [中共国疫情：截至9月16日24时新型冠状病毒肺炎疫情最新情况](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [CCP 病毒灾难：智力下降](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
-
-### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/9/README.md)
+### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [中共延长对美国81种产品的关税豁免](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/10/README.md)
+ ` HimalayaRussia`
 
-### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/11/README.md)
+### [中共延长对美国81种产品的关税豁免](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/12/README.md)
@@ -58,23 +58,23 @@
 ### [那个担心活不到宝宝长大的妈妈永远无法证明疫苗的伤害](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [接种疫苗后，免疫系统变弱，癌症发病率提升20倍](/content/gnews/16/README.md)
+### [中共内部还有个邪恶组织在掌控](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年9月17日郭文贵先生直播全文字版](/content/gnews/17/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [郭文贵先生谈为什么要打马明哲的原因](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [接种疫苗后，免疫系统变弱，癌症发病率提升20倍](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖特不会禁言用户，更不会出卖用户信息](/content/gnews/17/README.md)
+### [盖特不会禁言用户，更不会出卖用户信息](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [伊维菌素是得过诺贝尔奖的安全药物](/content/gnews/18/README.md)
+### [伊维菌素是得过诺贝尔奖的安全药物](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国职业安全与健康管理局故意隐瞒疫苗副作用报告](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [莆田市封城背后中共的阴谋](/content/gnews/20/README.md)
- ` 澳喜农场`
-
-### [有声|拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/21/README.md)
- ` MOSREC`
 
 ### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/22/README.md)
  ` wenwu`
@@ -94,29 +94,29 @@
 ### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [默克尔的中共国幻觉终结](/content/gnews/28/README.md)
+### [是否会与中共国开战？澳防长：“这是中共的问题”](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美财政部发布了对支持恐怖主义的国际金融网络的制裁措施](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [默克尔的中共国幻觉终结](/content/gnews/30/README.md)
  ` Shuizhuyu`
 
-### [澳大利亚警告中共，先撤销报复性贸易关税，否则免谈加入CPTTP](/content/gnews/29/README.md)
+### [澳大利亚警告中共，先撤销报复性贸易关税，否则免谈加入CPTTP](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [德州格兰德河上的上万移民](/content/gnews/30/README.md)
+### [德州格兰德河上的上万移民](/content/gnews/32/README.md)
  ` Shuizhuyu`
 
-### [希腊警告土耳其在难民问题上的敲诈企图](/content/gnews/31/README.md)
+### [希腊警告土耳其在难民问题上的敲诈企图](/content/gnews/33/README.md)
  ` Shuizhuyu`
 
-### [因亲中势力渗透，维基百科封禁“中共国维基人用户组”七名编辑](/content/gnews/32/README.md)
+### [因亲中势力渗透，维基百科封禁“中共国维基人用户组”七名编辑](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [法国是重要的合作伙伴](/content/gnews/33/README.md)
+### [法国是重要的合作伙伴](/content/gnews/35/README.md)
  ` Shuizhuyu`
-
-### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/34/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
-
-### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,27 +151,27 @@
 ### [《大鱼海棠》之人物解析](/content/gnews/46/README.md)
  ` 纽约香草山MOS03`
 
-### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/47/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/48/README.md)
+### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/47/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [这是世界上最可怕的地图&#8230;，对你意味着什么](/content/gnews/49/README.md)
+### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/48/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/50/README.md)
+### [如果中共国入侵台湾，日本发誓将采取必要的应对措施](/content/gnews/50/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [不应该让你的孩子接种Covid-19疫苗的13个理由](/content/gnews/51/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [这是世界上最可怕的地图&#8230;，对你意味着什么](/content/gnews/52/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [城管打人 &#8211; 中国社会主义下的特色](/content/gnews/53/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/51/README.md)
+### [秘翻在线：接种中共病毒疫苗的人到底能活多久？](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [欧洲议会压倒性通过报告呼吁欧盟制定对中共国新战略](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [特鲁多承诺提供10亿美元支持各省疫苗护照](/content/gnews/54/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
