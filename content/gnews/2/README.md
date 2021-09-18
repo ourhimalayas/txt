@@ -2,39 +2,36 @@
 ---
 
 
-## 郭文贵直播摘要和音频2021.9.17 ： SEC和解的意义
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1539294/)
+## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
 
-摘要撰稿人：文俊
+根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
 
-音频提供者：左媛
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-17-at-7.43.54-PM.png)
-
-
-## 视频：
-
-[视频链接：](https://gtv.org/video/id=61448b09751e4f2b0e547cad)
-
-## 音频：
-
-## 摘要：
-
-1. 精子歧视、卵子歧视
-2. 一定备青蒿素
-3. 安倍CPTTP跨太平洋合作组织，共产党捣乱，被习近平的一带一路取代
-4. 恒大实际债务远比2万亿多 最大的灾难 “金融票据”
-5. 绿地1万亿、富力5-8千亿、万达0.5-1万亿、保利2千亿、融创5千亿、合生创展朱孟依0.5万亿、房地产要救至少5万亿现金
-6. 中国房地产比美国 日本 德国 法国总和还多，95万亿
-7. 中国疫苗2024年前，可能会有1-2亿人突然死亡
-8. 今年年底前全世界的疫苗基本上就结束了，但中共国可能不会结束
-9. 火浴酒浴等推出照片大家会很惊讶 高清相机拍的照片 还有在现场的人 大家会惊讶于这些人竟然在现场
-10. 雷曼兄弟倒闭前所有的资料被某组织提前精细掌握，某组织提前精准预测各种金融灾难发生
-11. 路大脑骗和蛇妖闫现在缺席审判就意味着政治庇护彻底做不了了！
-12. 纽约总检察长最最后一刻拿掉对老GTV的罚款，而且同意将GTV和VOG分开，非常感谢她
-13. 郝海东大哥抱孙子了-郝润泽喜得贵子
-14. 七哥曾经被挂着牌子游街，骂人是权力，但要承担后果。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
 
 
-0
+[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
+
+[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
+
+
+
++21

@@ -2,39 +2,28 @@
 ---
 
 
-## 美电视台想证明“不打疫苗会死”，调查打脸“打了疫苗才死的快”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1539721/)
+## FDA专家小组压倒性反对广泛为民众接种疫苗加强剂
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1539720/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AstraZen-jab1.jpg)
-图片来源：miltonkeynes.co.uk
+![](https://assets.gnews.org/wp-content/uploads/2021/09/459645CB-68E6-4816-A4FD-9478D31C1773.jpeg)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+美国食品及药物管理局（FDA）辖下一个政府专家顾问小组周五（17日）以16票反对、2票赞成否决广泛为**16**岁或以上民众接种新冠疫苗加强剂，但一致通过支持为**65**岁或以上民众及高危人士提供加强剂。
 
-美国底特律当地的ABC新闻机构最近试图证明，那些拒绝接种中共病毒 (Covid-19) 疫苗的人正在生病和死亡。结果发现，正在死亡的是“完全接种疫苗”的人。
+FDA预计会在未来几日内作最终决定，由于它通常会接纳小组委员会的建议，这意味着，拜登（Joe Biden）政府早前宣布提供大规模辉瑞和莫德纳（Moderna）疫苗加强剂的计划将会受挫。
 
-WXYZ电视台（WXYZ-TV）在脸书的一项民意调查中，要求粉丝们分享他们身边“未接种疫苗”的人，如何因中共病毒生病而不得不住院的故事。相反，民意调查结果却充斥着关于接种疫苗的人病重或死亡的故事。
+辉瑞疫苗研发负责人凯瑟琳·扬森在声明中指出，该公司仍然相信加强剂将成为“控制病毒传播的关键工具。”不过，一名小组委员会成员，塔夫茨大学的科迪·迈斯纳博士向记者表示“我认为加强剂不会对控制大流行做出重大贡献。”
 
-“我的邻居死于疫苗，下周是他的葬礼，”一位调查受访者写道。
+根据疾病控制和预防中心的数据，截至目前，全美已有204 万人接种了新冠疫苗加强剂。
 
-“我妈妈的胳膊和腿没有感觉了。我的闺蜜曾多次因头痛得厉害进了急诊室。我妈妈和闺蜜的医生没有将他们的病情和疫苗联系起来，但时间上令人怀疑。我丈夫的医生拒绝让他检测中共病毒抗体。这些医生是同谋。”
+另据《华盛顿邮报》同日引述两名消息人士指，美国政府计划在下周联合国大会举行前宣布购买数以百万计的辉瑞疫苗，并捐赠全球各地。而拜登亦有意在大会期间安排应对疫情视像峰会。
 
-令人惊讶的是，还有大约12.5万人提交了类似的故事，讲述了疫苗如何伤害或杀死他们认识的人。事实证明，没有像WXYZ电视台预期的那样，那些没有接种疫苗的人并没有出现大的健康问题。
+路透社取得该峰会的起草文件，指拜登将争取各国领袖支持结束疫情的目标，包括在2022年底前，全球70%人口接种疫苗等等。
 
-正如美国疾病控制和预防中心（CDC）的罗谢尔·瓦伦斯基 (Rochelle Walensky)医生所承认的一样，许多医院的病人都“完全接种了疫苗”。
+新闻来源：[AP](https://apnews.com/article/fda-panel-rejects-widespread-pfizer-booster-shots-1cd1cf6a5c5c02b63f8a7324807a59f1) / [路透社](https://www.reuters.com/world/us/us-covid-19-booster-debate-moves-fda-vaccine-advisory-committee-2021-09-17/) / [Independent](https://www.independent.co.uk/news/world/americas/fda-covid-vaccine-booster-shots-b1922410.html)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+* * *
 
-**参考新闻：**[Backfire: Detroit TV station asks for stories of unvaccinated covid fatalities, gets bombarded with vaccinated deaths and injuries instead (newstarget.com)](https://www.newstarget.com/2021-09-17-station-stories-unvaccinated-covid-jab-fatalities-vaccinated.html)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*撰文｜台湾宝岛农场 天滅中共
+声明：以上观点仅代表作者*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/c9930e2158cc3d3f.jpg)
 0

@@ -2,29 +2,75 @@
 ---
 
 
-## 台湾宣布增加军费一天后10架中国军机侵入台湾防空识别区
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1539663/)
+## 币圈新闻动态：喜交所上市后，可以通过HDO捐款法治基金
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1539759/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16319349581-e1631935156129.png)
-台湾空军9月17日发布通报，10架解放军军机侵扰台湾西南防空识别区，台湾空军紧急升空战机监控并广播驱离，防空导弹部队也实施追踪监控。
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-从9月13日到17日，是台湾年度最大规模的汉光37号实兵实弹军事演习。演习落幕当天，10架解放军军机扰台。而在演习的每一天，都有解放军军机侵入台湾领空。在前一天，台湾行政院刚刚向立法院提出一项2,400亿元新台币（约合87亿美元）的特别军事预算。
-
-北京一直声称拥有对台湾的主权，甚至不惜一战也要实现所谓的两岸统一。中共为此投入巨资全面扩充军力。中共不断侵扰台湾，不仅引起台湾的重视，而且也引起美国、日本、澳大利亚等国的高度关切。
-
-新闻参考链接：[https://www.voachinese.com/amp/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html](https://www.voachinese.com/amp/China-enters-Taiwan-air-defense-zone-a-day-after-military-budget-boost-20210917/6232815.html)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+## 每日一问
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
+
+质疑一定带来真相吗？
+
+
+
+
+
+## 喜马拉雅交易所要闻
+
+
+
+
+
+- 联盟9月15日答疑消息，喜交所上市后，可以通过HDO捐款法治基金。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1. 9月17日消息，近日爱尔兰竞争和消费者保护委员会（CCPC）对当地1000名群众进行的一项民意调查显示，11%的受访者将资金投入了一种或多种加密资产。此外，加密货币投资者的比例在25-34岁的人群中增长到了25%。
+2. 官方消息，新加坡UIP基金会近期将发起成立UDAO（Unlimited DAO）基金，BHEX Labs成为第一期参与UDAO基金治理委员会的机构之一。
+3. 9月17日消息，基于区块链的虚拟现实平台Decentraland通过购买对元宇宙游戏开发公司Decentral Games的代币DG对该项目进行了战略投资。
+4. 9月17日消息，自动做市商MonoX协议完成500万美元融资，Krypital Group领投。
+5. 9月17日报道，域名行业巨头Namecheap宣布将接受比特币支付，并且支持闪电网络，这使其成为第一个接受比特币的全球主要域名注册商。
+6. 9月18日消息，Avalanche基金会宣布DeFi流动性中心Kyber Network将加入最近推出的Avalanche Rush挖矿奖励计划。Kyber DMM（动态做市商）是在Avalanche上推出的首个DMM协议。
+7. Globenewswire 报道，加密货币、区块链和数字资产技术公司NSAV于9月18日宣布推出其高级场外加密交易平台OTC Desk。NSAV的OTC Desk为交易大量加密货币的机构和高净值个人提供私人和个性化服务，以及安全、有竞争力和谨慎的执行和结算服务。
+8. Coindesk报道，加密货币交易所Bakkt周五发布公告称与SPAC公司VIH合并的借壳上市计划已得到美国证券委员会（SEC）批准，两家公司股东将于10月14日举行会议以批准合并。
+9. 9月17日，NFT游戏开发商Animoca Brands宣布对NFT平台Bondly进行大量投资。Animoca将在投资后拥有Bondly的多数股权。作为投资的一部分，Bondly的NFT技术，包括发射台和跨链桥，将被纳入Animoca的游戏产品中。
+10. Ambcrypto报道，卡尔达诺的商业部门Emurgo已正式宣布推出卡尔达诺自己的DeFi合资企业Astarter。Emurgo与中国科技公司Block Chain 4A建立了合作伙伴关系，以启动合资企业。它将在Cardano上构建DeFi服务基础设施。
+11. 9月18日消息，以太坊扩容方案Optimism宣布将升级为EVM全兼容，开发者可使用Solidity智能合约直接部署，一键部署功能将于10月推出。
+12. 9月18日消息，Blockchain.com宣布，其钱包产品的加密交易额已超过1万亿美元，仅在过去六个月中就交易了2亿美元的比特币。
+13. 9月18日谢谢，德勤区块链全球首席技术官及德勤EMEA区块链实验室负责人Antonio Senatore加入唯链基金会战略决策委员会。Antonio Senatore在领导德勤欧洲、中东和非洲区块链业务期间，负责德勤区块链的技术路线图与实验室技术架构等。
+14. 9月18日消息，Facebook加密业务主管DavidMarcus近日受访时表示，Facebook旗下稳定币Diem和钱包Novi的数据不会与社交数据混合，用户无需担心安全或隐私问题。
+15. 9月18日消息，Messari研究主管Ryan Watkins在推特上发文称，稳定币供应量本周突破1200亿美元，二季度稳定币链上交易额超1.7万亿美元，是去年全年的14倍。
+16. 9月18日消息，根据LinkedIn的最新消息，Coinbase的通信副总裁Kim Milosevich将于今年年底离开公司。
+17. 9月17日消息，英国经济事务委员会（Economic Affairs Committee）启动了对央行数字货币的调查，并邀请提交书面意见，提交截止日期为2021年10月15日。
+18. 彭博社报道，美国已经扩大针对交易平台币安的调查范围，目前正在调查可能的内幕交易和市场操纵，这是对该加密货币交易所的审查加强的最新迹象。彭博援引知情人士称，美国官员一直在调查币安或其员工是否通过利用客户交易信息而获利。
+19. 9月17日消息，白俄罗斯共和国国家银行正在考虑引入数字白俄罗斯卢布的可能性。白俄罗斯共和国国家银行（NBRB）研究与战略发展办公室副主任Mikhail Demidenko表示，白俄罗斯国家银行尚未决定是否引入数字白俄罗斯卢布，但可以开始研究这种可能性。
+20. 9月18日消息，XRP持有者已对苹果公司提起集体诉讼，他们声称由于网络钓鱼应用程序而失去了资金。据悉，网络安全IT专业人士Hadona Diep于9月16日代表出现类似情况的个人向马里兰州联邦地方法院提起诉讼。
+21. Bitcoin报道，在抗议者抗议总统Nayib Bukele实施新比特币法案并砸毁比特币ATM之后，萨尔瓦多会计法院（Salvadoran Court of Accounts）宣布将启动调查Nayib Bukele的比特币ATM购买和Chivo信息亭建设项目。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
+
+
+ 
 0

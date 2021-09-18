@@ -2,55 +2,68 @@
 ---
 
 
-## 列举中共病毒“疫苗”严重伤害病例14例
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537848/)
+## 恒大300B美元的债务危机是否对加密行业构成系统性风险？
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1538962/)
 
-**撰稿**：柯亭（㊙️翻原创组）
+- 编译：wenwu–西班牙喜悦农场
 
-**校对**：卡拉马佐夫姐姐
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210917-中共病毒疫苗严重伤害病例14例.jpg)
-**图片来源：**** **[**Ernest Ramirez****推特**](https://twitter.com/rgvrunner01/status/1438352089852399619/photo/2)
 
-自中共病毒“疫苗”进入临床施打以来，经常看到主流媒体假新闻报道感染中共病毒重症和死亡的案例，其中一个必不可少的“结论”，是重症患者本人或死者家属都建议世人尽快接种“疫苗”。
+随着旁观者预测中国顶级房地产开发商和商业票据发行商恒大即将违约，一些分析师认为该公司对加密货币会构成系统性风险。
 
-笔者记得有一个报道，一个据称曾有心脏病的60多岁的人在接种“疫苗”后死亡，该报道依然以死者家属的口吻建议世人尽快接种疫苗；其混账逻辑是：该死者如果没有接种“疫苗”，可能会因感染中共病毒而死亡，并且死得更惨（与接种“疫苗”死亡相比）。
+9 月 8 日，惠誉评级[声称](https://www.fitchratings.com/research/corporate-finance/credit-event-at-chinas-evergrande-could-have-broader-effects-14-09-2021)恒大“似乎很可能”会拖欠债务，该公司此后[承认](https://www.aljazeera.com/economy/2021/9/15/what-could-an-evergrande-debt-default-mean-for-china-and-beyond)将无法足够快地出售其拥有的房产或其他资产，来偿还其迅速增加的债务。
 
-这些主流媒体假新闻报道的病例的另一个特点，是很多病例的家庭成员或朋友会在gofundme.com网站筹款：[例一](https://www.gofundme.com/f/help-evans-family-with-funeral-cost?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=p_cp+share-sheet&amp;fbclid=IwAR010GNL6SuzbX2oHFEyck8TGsCJVLifx_gnLNsO8mK-T8fdwGxERhWW324)、[例二](https://www.gofundme.com/f/danny-bakers-covid-recovery-fund?qid=7a7d543ea68a8dcf3341b5405758fa4b)、[例三](https://www.gofundme.com/f/help-erin-with-her-struggle-with-covid19?qid=7a7d543ea68a8dcf3341b5405758fa4b)。但是，它们从不报道接种“疫苗”受伤害者的任何消息，就好像根本不存在一样。
+恒大在周二的一份声明中预测，“9 月份合同销售将继续大幅下降，从而导致集团的现金回收持续恶化”，并对“集团的现金流和流动性构成巨大压力”。该文件补充说：
 
-9月16日，在gofundme.com用“covid vaccine”搜索，看到了如下14个因接种“疫苗”受伤害而筹款的病例。其中所列发生时间，是指该筹款网页在gofundme.com建立的时间。
+**“**鉴于上述改善流动性的困难、挑战和不确定性，无法保证本集团能够履行其财务义务。**” **
 
-[病例1](https://www.gofundme.com/f/pqd2v-help-with-living-expenses?qid=cc1e243658079d53b45a658d8f35b276)，9月15日，Crystal，女。伤害表现是心包炎和贝尔氏面瘫（Bells Palsy）。
+澳大利亚经济学家 David Llewellyn-Smith 最近推测，领先的稳定币发行商 Tether 可能会接触到“3000 亿美元的债务怪物”所发行的商业票据，[警告](https://www.livewiremarkets.com/wires/the-shortest-commodity-supercycle-ever)称比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 可能通过 Tether ( [USDT](https://cointelegraph.com/tether-price-index) ) 作为 BTC 配对的主导地位，构成了 Entergrande 的交易对手之一。不过，Tether 已经否认了这一点。
 
-[病例2](https://www.gofundme.com/f/help-liz-recover-from-covid-vaccine-symptoms?qid=e340a1205f635556802ff118adc4adac)，9月10日，Liz，36岁，女。3月22日接种Moderna疫苗，第二天（接种后24小时内）出现胸部疼痛。4月3日在家出现心率过速，达173次/分钟（BPM）；随后有左臂麻木（dumb）、左手刺痛（tingling）、呼吸困难；打911电话后被送入急诊室。4天后，出现脸部麻木和刺痛。医院检查未发现明显异常，给服降心率药物。之后出现焦虑（anxiety），对多种环境因素特别敏感；然后有卵巢疼痛；然后有颤抖、抽搐、肌肉无力、肌肉痉挛、烧灼感、剧烈的射痛、头晕、气短、胸闷、心率加快、失眠、行走困难（右侧身体更糟糕）；然后有偏头痛、口齿不清、记忆问题、严重的脑雾、极度疲劳、视力问题、耳鸣、右耳痛、脱发、遣词造句困难、无法集中注意力。再次去医院检查，依然没有发现检测指标异常。后来，一位神经肌肉（neuromuscular）专家确认她不是第一例，“12月-1月”那批“疫苗”接种者中也有其他人发生类似症状。之后，出现脸部、喉咙、以及整个右侧身体水肿（swelling）。再之后，有心脏专家诊断为体位性心动过速综合征（POTS）。直到5个月后的9月，依然有症状，看医生成为她的“全职工作”。
+[Tether 的最新证明报告](https://cointelegraph.com/news/tether-claims-to-have-increased-total-assets-by-21b-in-new-accounting-review)显示，在其 628 亿美元的资产中有 308 亿美元以商业票据形式持有，英国《金融时报》[估计](https://www.ft.com/content/342966af-98dc-4b48-b997-38c00804270a)该公司将跻身恒大债卷的全球前 10 名持有人之列。
 
-[病例3](https://www.gofundme.com/f/severe-heart-condition-from-covid-vaccine-dose-1?qid=e340a1205f635556802ff118adc4adac)，9月6日，Car，19岁，男。接种mRNA疫苗，8月27日由救护车送入医院。诊断为心包炎（pericarditis）。
+尽管 Tether 声称其不持有恒大发行的任何商业票据，但 Cinneamhain Ventures 合伙人 Adam Cochran[强调](https://twitter.com/adamscochran/status/1437614371803471873)，恒大违约将“对商业票据市场产生广泛的巨大影响”。
 
-[病例4](https://www.gofundme.com/f/9e9h3-kelseys-road-to-recovery?qid=e340a1205f635556802ff118adc4adac)，9月2日，Kelsey，女。过去3个月一直有症状，不能站立行走，血压低，血循环障碍。提及如下诊断：体位性心动过速综合征（POTS）、自主神经功能障碍、高肾上腺素功能状态。
+旁观者担心恒大的倒闭可能对商业票据市场产生深远的影响，路透社将恒大[描述](https://www.reuters.com/business/china-order-developers-disclose-commercial-paper-debt-every-month-sources-2021-07-16/)为“最大的商业票据发行人”，截至 2020 年底，恒大的资产价值为 320 亿美元。
 
-[病例5](https://www.gofundme.com/f/need-help-recovering-from-meningitis?qid=e340a1205f635556802ff118adc4adac)，8月26日，女。接种疫苗8天后，发生无菌化学脑膜炎（aseptic chemical meningitis）。
+**“**目前** Tether **和** Circle **都持有商业票据，虽然我没有证据去证实这两个公司持有大量恒大债券，但整个市场都会有点震荡。**”**
 
-[病例6](https://www.gofundme.com/f/please-consider-helping-brittany?qid=e340a1205f635556802ff118adc4adac)，8月19日，Brittany，23岁，女。8月9日6:30pm接种“疫苗”，随后开车回家的路上有轻微晕眩。回家后出现头痛、晕眩、四肢麻木和刺痛；第二天5:30am起床后依然没有好转，且左眼后部疼痛；由兄弟送去医院；医院未作处理，回家几小时后，在洗手间昏迷倒地，由911急救送人医院；之后出现说话困难；做过很多检查，仅脑电图（EEG）发现异常，怀疑癫痫（seizure）。8月20日再次入急诊室，依然有症状，新出现右侧背下部疼痛、右腿麻木/放射痛、膀胱失禁。8月21日又再入急诊室。
+他补充说：“我确实认为，这两者仍然有足够的回旋余地来防止任何实际崩溃，但如果我们发现有一个出现崩溃，这就变得非常严重，他们肯定会有点偏离了轨道。”
 
-[病例7](https://www.gofundme.com/f/help-rosy-be-with-her-much-love-dad?qid=078b2e69597825205e08e0d3b670dc2d)，8月8日，男。伤害表现是中枢神经系统血管炎（vasculitis of the CNS）。
+7 月份对 USD Coin ( [USDC](https://cointelegraph.com/usdc-price-index) ) 发行人 Circle 的审计显示，[该公司 9% 的资产](https://cointelegraph.com/news/auditors-reveal-usdc-backing-as-jim-cramer-sounds-alarm-over-tether-s-mad-money)当时是以商业票据形式持有。
 
-[病例8](https://www.gofundme.com/f/baby-benjamins-education-expenses?qid=e340a1205f635556802ff118adc4adac)，8月6日，Matt，34岁，男。接种JNJ疫苗，伤害表现为脑静脉窦血栓形成 (CVST)。
+澳大利亚加密投资公司 Zerocap 的高级交易员 William Fong 预测，恒大的债务危机将导致违约和政府干预达到顶峰（像2008年一样），这表明一些旁观者所预期的大规模经济崩溃，不太可能发生。
 
-[病例9](https://www.gofundme.com/f/covid-vaccine-disaster?qid=e340a1205f635556802ff118adc4adac)，7月23日，Holly，男。伤害表现是肝、肾、甲状腺和胰腺多器官炎症。
+他说：“更有可能的是，恒大进入行政管理阶段，而下跌就由中共来接盘，”他补充说，恒大债券持有人不太可能看到全额偿还。
 
-[病例10](https://www.gofundme.com/f/please-help-my-my-sister-andrea-husband-kevin?qid=cc1e243658079d53b45a658d8f35b276)，7月9日，Kevin，男。9周前接种AZ“疫苗”。伤害表现是走路困难、癫痫发作、无法控制地颤抖、说话/表达困难。
+Fong 认为，如果恒大违约，对加密行业的潜在后果还有待观察，并指出一些投资者“可能会从传统的债券市场配置转向相关性较低的资产类别。”
 
-[病例11](https://www.gofundme.com/f/help-brandon-during-his-battle-with-heart-failure?qid=e340a1205f635556802ff118adc4adac)，6月29日，Brandon，男。5月13日接种JNJ“疫苗”，2天后出现症状。双肺肺炎，心力衰竭仅有10%的功能，心下部血凝块，血压下降，水肿。
+然而，投资者“也可以将资金转移到美国国债等避险资产上，”他补充道。
 
-[病例12](https://www.gofundme.com/f/5cyp3-help-rajesh-battle-covishield-vaccine-side-effects?qid=e340a1205f635556802ff118adc4adac)，6月27日，Rajesh，39岁，男。6月20日接种“疫苗”。伤害表现是格林巴雷综合征（Guillain Barre Sydrome），手脚瘫痪（paralyzed），需要用呼吸机。
+其他分析师认为，恒大已经在国际市场上造成了严重破坏，彭博社的[特雷西·阿洛维](https://twitter.com/tracyalloway/status/1438363843948777474?s=20)指出（如图），[垃圾级债券的](https://cointelegraph.com/news/coinbase-increases-junk-bond-offering-to-2b-after-investors-swarm)的收益率已飙升至 2020 年 3 月以来的最高水平。
 
-[病例13](https://www.gofundme.com/f/sandys-story?qid=078b2e69597825205e08e0d3b670dc2d)，6月23日，Sandy，男。接种JNJ“疫苗”，约2周后（5月份）的一个晚上醒来时发现瘫痪，送急诊室。诊断为格林巴雷综合征（Guillain Barre Sydrome）。
+据彭博社援引当地匿名消息人士称，中国住房和城乡建设部已[通知](https://www.bloomberg.com/news/articles/2021-09-15/china-tells-banks-evergrande-won-t-pay-interest-due-next-week)银行，恒大将不会在下周还款。
 
-[病例14](https://www.gofundme.com/f/kens-covid-recovery?qid=078b2e69597825205e08e0d3b670dc2d)，6月21日，Ken，男。接种第一针后出现问题，伤害表现是不能正常呼吸。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-19-2.png)
 
-另据[9月15日lifesitenews.com报道](https://www.lifesitenews.com/news/gofundme-de-platforms-dad-whose-only-son-died-after-pfizer-jab/)，拉米雷斯(Ernest Ramirez)因唯一的儿子死于注射辉瑞（Pfizer）mRNA，在gofundme.com筹款用于提醒世人实验性mRNA注射有危险。但是，gofundme.com以“禁止行为”为由，删除了拉米雷斯的筹款账号。他只好转移到lifefunder.com继续筹款，[这是链接](https://www.lifefunder.com/pfizervictim)。
+消息人士称，恒大仍在探索是否可以获得延期或展期部分贷款，并补充说广东当局拒绝了该公司创始人许家印的救助请求。
 
-希望gofundme.com继续支持上述“疫苗”受害者的筹款和求助。呼吁世人不要接受注射这些实验性的“疫苗”。
+**简评：**
 
-（文章仅代表作者本人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-20-2.png)
 
-0
+**这个地球上没有人可以救下恒大，就连中共国也不行，所以恒大是无解的。据2021年9月16日《法广网》援引《法新社》[报道](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20210916-%25E6%25B3%2595%25E6%2596%25B0%25E7%25A4%25BE-%25E6%2581%2586%25E5%25A4%25A7%25E5%2580%25BA%25E5%258A%25A1%25E8%25BF%2591%25E4%25B9%258E%25E8%2591%25A1%25E8%2590%2584%25E7%2589%2599%25E5%2585%25A8%25E5%259B%25BD%25E5%2585%25AC%25E5%2585%25B1%25E5%2580%25BA%25E5%258A%25A1%25E6%2580%25BB%25E9%25A2%259D)，面对如此高额的债务除了一个国家，谁都很难撑得起这个摊子。而后北京官员披露恒大的债，“国家还是会管的，国有化是其中一条路”。**
+
+**对于我们老百姓来说，这是2008年美国金融危机的翻版，或者说是“中国版雷曼时刻”。最终的处理方式是不断印美元，印的美元都流入来股票市场，吹起了更大的泡沫。**
+
+**与中共不同的是，我们爆料革命的最终处理方式是，向中共盗国贼们要回本该属于中国老百姓的20万亿美元。而这篇报道好似在警告我们，这笔钱或有一部分藏在了虚拟货币里。**
+
+（文章仅代表作者本人观点，与Gnews无关）
+
+**新闻来源：**[《虚拟货币电报》](https://cointelegraph.com/news/does-evergrande-s-300b-debt-crisis-pose-systemic-risk-to-crypto-industry)｜作者：塞缪尔·黑格｜发布时间：2021年9月16日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEWS_CH.-2.jpeg)
+
++1

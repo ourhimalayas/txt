@@ -2,136 +2,54 @@
 ---
 
 
-## CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537952/)
+## 列举中共病毒“疫苗”严重伤害病例14例
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1537848/)
 
-撰稿：Grace
+**撰稿**：柯亭（㊙️翻原创组）
 
-校对：卡拉马佐夫姐姐
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210917-CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的.jpg)
-图片来源： 盖特
+**校对**：卡拉马佐夫姐姐
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210917-中共病毒疫苗严重伤害病例14例.jpg)
+**图片来源：**** **[**Ernest Ramirez****推特**](https://twitter.com/rgvrunner01/status/1438352089852399619/photo/2)
 
-在过去的两周里，中国新联邦和爆料革命运动的创始人郭文贵先生不断地告诉人们，青蒿素、伊维菌素和羟氯喹是中共病毒的解药。
+自中共病毒“疫苗”进入临床施打以来，经常看到主流媒体假新闻报道感染中共病毒重症和死亡的案例，其中一个必不可少的“结论”，是重症患者本人或死者家属都建议世人尽快接种“疫苗”。
 
-**在郭先生爆料青蒿素对中共病毒患者有效之后，中共在中共国连续几天地切断了青蒿素的供应**，导致了很多墙内的中国同胞无法在网上或商店里买得到青蒿素。而生活在海外的中国同胞在也发现一些青蒿素的营养品涨价了。
+笔者记得有一个报道，一个据称曾有心脏病的60多岁的人在接种“疫苗”后死亡，该报道依然以死者家属的口吻建议世人尽快接种疫苗；其混账逻辑是：该死者如果没有接种“疫苗”，可能会因感染中共病毒而死亡，并且死得更惨（与接种“疫苗”死亡相比）。
 
-在青蒿素价格上涨的几天后，9月7日，中美交流基金会（CUSEF）赞助的 “熟悉之旅 “的受益者之一CNBC，用了一篇罔顾许多事实的文章攻击和污蔑郭先生。
+这些主流媒体假新闻报道的病例的另一个特点，是很多病例的家庭成员或朋友会在gofundme.com网站筹款：[例一](https://www.gofundme.com/f/help-evans-family-with-funeral-cost?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=p_cp+share-sheet&amp;fbclid=IwAR010GNL6SuzbX2oHFEyck8TGsCJVLifx_gnLNsO8mK-T8fdwGxERhWW324)、[例二](https://www.gofundme.com/f/danny-bakers-covid-recovery-fund?qid=7a7d543ea68a8dcf3341b5405758fa4b)、[例三](https://www.gofundme.com/f/help-erin-with-her-struggle-with-covid19?qid=7a7d543ea68a8dcf3341b5405758fa4b)。但是，它们从不报道接种“疫苗”受伤害者的任何消息，就好像根本不存在一样。
 
-CNBC政经记者布莱恩·施瓦茨（Brian Schwartz）为了达到减少郭先生在帮助人们抗击中共病毒方面的影响和做出功劳的这个意图，试图利用CDC和FDA的权威和权力的影响来掩盖真相，而真相是青蒿素、伊维菌素和羟氯喹对治疗Covid患者非常有效。
+9月16日，在gofundme.com用“covid vaccine”搜索，看到了如下14个因接种“疫苗”受伤害而筹款的病例。其中所列发生时间，是指该筹款网页在gofundme.com建立的时间。
 
-在这篇文章中，布莱恩·施瓦茨试图让人们相信因为CDC和FDA还没有批准这些药物用于治疗Covid患者，所以青蒿素、伊维菌素和羟氯喹对中共病毒是无效的。他在发表的这篇文章中，不敢提及任何实验室数据、临床试验报告或这些药物对中共病毒患者的康复已经产生了怎样的巨大影响。
+[病例1](https://www.gofundme.com/f/pqd2v-help-with-living-expenses?qid=cc1e243658079d53b45a658d8f35b276)，9月15日，Crystal，女。伤害表现是心包炎和贝尔氏面瘫（Bells Palsy）。
 
-但是，施瓦茨并没有忘记使用与其他受雇于中共的左派作家一样的策略。施瓦茨可笑地指责郭先生使用 “错误信息”，并且骚扰和羞辱郭先生，因为郭先生说出了中共病毒解药的真相，而施瓦茨把这些真相这称为 “阴谋论”。他还诽谤郭先生是 “中国流亡者 “和 “富商”，与 “极右派人士 “有联系。
+[病例2](https://www.gofundme.com/f/help-liz-recover-from-covid-vaccine-symptoms?qid=e340a1205f635556802ff118adc4adac)，9月10日，Liz，36岁，女。3月22日接种Moderna疫苗，第二天（接种后24小时内）出现胸部疼痛。4月3日在家出现心率过速，达173次/分钟（BPM）；随后有左臂麻木（dumb）、左手刺痛（tingling）、呼吸困难；打911电话后被送入急诊室。4天后，出现脸部麻木和刺痛。医院检查未发现明显异常，给服降心率药物。之后出现焦虑（anxiety），对多种环境因素特别敏感；然后有卵巢疼痛；然后有颤抖、抽搐、肌肉无力、肌肉痉挛、烧灼感、剧烈的射痛、头晕、气短、胸闷、心率加快、失眠、行走困难（右侧身体更糟糕）；然后有偏头痛、口齿不清、记忆问题、严重的脑雾、极度疲劳、视力问题、耳鸣、右耳痛、脱发、遣词造句困难、无法集中注意力。再次去医院检查，依然没有发现检测指标异常。后来，一位神经肌肉（neuromuscular）专家确认她不是第一例，“12月-1月”那批“疫苗”接种者中也有其他人发生类似症状。之后，出现脸部、喉咙、以及整个右侧身体水肿（swelling）。再之后，有心脏专家诊断为体位性心动过速综合征（POTS）。直到5个月后的9月，依然有症状，看医生成为她的“全职工作”。
 
-**伊维菌素**
+[病例3](https://www.gofundme.com/f/severe-heart-condition-from-covid-vaccine-dose-1?qid=e340a1205f635556802ff118adc4adac)，9月6日，Car，19岁，男。接种mRNA疫苗，8月27日由救护车送入医院。诊断为心包炎（pericarditis）。
 
-不管是不是故意的，施瓦茨没有提及**伊维菌素是世卫组织的**** “****基本药物”**。仅在2013年，26个国家就有超过1亿人接受了伊维菌素治疗。世卫组织在一份文件中说，**很多伊维菌素的不良反应**** “****主要是轻微和短暂的”**。
+[病例4](https://www.gofundme.com/f/9e9h3-kelseys-road-to-recovery?qid=e340a1205f635556802ff118adc4adac)，9月2日，Kelsey，女。过去3个月一直有症状，不能站立行走，血压低，血循环障碍。提及如下诊断：体位性心动过速综合征（POTS）、自主神经功能障碍、高肾上腺素功能状态。
 
-施瓦茨以美国食品和药物管理局(FDA)以及世界卫生组织(WHO)不同意使用伊维菌素治疗中共病毒为借口，忽略了**伊维菌素已经**** “****在体外对包括艾滋病毒、登革热、流感和寨卡病毒在内的多种病毒有效** “，而且他也忽略了伊维菌素在治疗和预防中共病毒引起的疾病方面显示出巨大效力的事实。
+[病例5](https://www.gofundme.com/f/need-help-recovering-from-meningitis?qid=e340a1205f635556802ff118adc4adac)，8月26日，女。接种疫苗8天后，发生无菌化学脑膜炎（aseptic chemical meningitis）。
 
-2020年，由莫纳什生物医学发现研究所（BDI）领导的一项合作研究曾表明，**“****伊维菌素可以在细胞培养皿内48****小时内杀死病毒（SARS-CoV-2****）”****，而且 “****单剂量的伊维菌素可以阻止SARS-CoV-2****病毒在细胞培养皿中生长”****。**
+[病例6](https://www.gofundme.com/f/please-consider-helping-brittany?qid=e340a1205f635556802ff118adc4adac)，8月19日，Brittany，23岁，女。8月9日6:30pm接种“疫苗”，随后开车回家的路上有轻微晕眩。回家后出现头痛、晕眩、四肢麻木和刺痛；第二天5:30am起床后依然没有好转，且左眼后部疼痛；由兄弟送去医院；医院未作处理，回家几小时后，在洗手间昏迷倒地，由911急救送人医院；之后出现说话困难；做过很多检查，仅脑电图（EEG）发现异常，怀疑癫痫（seizure）。8月20日再次入急诊室，依然有症状，新出现右侧背下部疼痛、右腿麻木/放射痛、膀胱失禁。8月21日又再入急诊室。
 
-伊维菌素曾在许多临床试验中被测试过，**伊维菌素****“****具有抗病毒和抗炎特性”**。根据《美国治疗学杂志》(American Journal of Therapeutics）发表的一份报告，”**在医护人员和COVID-19****接触者中进行伊维菌素预防可能会使COVID-19****感染的风险平均降低86%****（79%-91%****）。**报告还指出，2020年5月，**秘鲁政府批准伊维菌素用于防治****Covid****。”****实施后，8****个州的死亡率在两个月内降低了64%****至91%”**。
+[病例7](https://www.gofundme.com/f/help-rosy-be-with-her-much-love-dad?qid=078b2e69597825205e08e0d3b670dc2d)，8月8日，男。伤害表现是中枢神经系统血管炎（vasculitis of the CNS）。
 
-还有一份报告显示，在印度，**德里****(Delhi)****人使用伊维菌素防治中共病毒后，在五个星期内，人们可以看到德里的病例下降了97%****，德里的死亡人数从277****人下降到117****人**。相反，印度的泰米尔纳德邦人(Tamil Nadu)没有使用伊维菌素。结果，在这五周内，他们的新病例从10,986例上升到36,184例。
+[病例8](https://www.gofundme.com/f/baby-benjamins-education-expenses?qid=e340a1205f635556802ff118adc4adac)，8月6日，Matt，34岁，男。接种JNJ疫苗，伤害表现为脑静脉窦血栓形成 (CVST)。
 
-除了秘鲁和印度之外，还有许多国家也对中共病毒患者使用了伊维菌素治疗。在一份题为 “伊维菌素是一种经过验证的治疗Covid-19的方法，所以让我们使用它 “（“Ivermectin is a Proven Treatment for Covid-19, So Let’s Use It”）的报告中，作者说：”保加利亚和斯洛伐克已经批准伊维菌素在全国范围内使用……**埃及、秘鲁、津巴布韦和玻利维亚正在分发伊维菌素并记录了死亡人数的快速下降**。在日本、墨西哥、巴西、阿根廷和南非，越来越多的地区卫生当局已经倡导或采用伊维菌素。而且它现在是墨西哥城的护理标准。
+[病例9](https://www.gofundme.com/f/covid-vaccine-disaster?qid=e340a1205f635556802ff118adc4adac)，7月23日，Holly，男。伤害表现是肝、肾、甲状腺和胰腺多器官炎症。
 
-**青蒿素**
+[病例10](https://www.gofundme.com/f/please-help-my-my-sister-andrea-husband-kevin?qid=cc1e243658079d53b45a658d8f35b276)，7月9日，Kevin，男。9周前接种AZ“疫苗”。伤害表现是走路困难、癫痫发作、无法控制地颤抖、说话/表达困难。
 
-**郭先生强调，不仅伊维菌素可以治愈中共病毒患者，青蒿素和羟氯喹也对中共病毒非常有效。**
+[病例11](https://www.gofundme.com/f/help-brandon-during-his-battle-with-heart-failure?qid=e340a1205f635556802ff118adc4adac)，6月29日，Brandon，男。5月13日接种JNJ“疫苗”，2天后出现症状。双肺肺炎，心力衰竭仅有10%的功能，心下部血凝块，血压下降，水肿。
 
-**青蒿素是由屠呦呦女士在1971****年发现的。以青蒿素为基础的药物在人类身上有很好的安全性**，而且它们可以随时以相对较低的成本在全球范围内销售。
+[病例12](https://www.gofundme.com/f/5cyp3-help-rajesh-battle-covishield-vaccine-side-effects?qid=e340a1205f635556802ff118adc4adac)，6月27日，Rajesh，39岁，男。6月20日接种“疫苗”。伤害表现是格林巴雷综合征（Guillain Barre Sydrome），手脚瘫痪（paralyzed），需要用呼吸机。
 
-7月20日，《自然》杂志发表了一篇关于青蒿素的报告，”这项研究首次显示了在包括肺细胞在内的人类细胞系中, 基于青蒿素的治疗对 SARS-CoV-2 的活性。” **在报告中，科学家们强调，”****黄花蒿(A. annua) ****提取物对不同的病毒有活性，包括SARS-CoV**“。科学家们说，”**在我们的研究中，我们证实了基于青蒿素的治疗对来自德国和丹麦的两个欧洲SARS-CoV-2****毒株的疗效，这两个毒株与武汉毒株相较，比世界上流通的大多数SARS-CoV-2****毒株的关系更为密切**。”
+[病例13](https://www.gofundme.com/f/sandys-story?qid=078b2e69597825205e08e0d3b670dc2d)，6月23日，Sandy，男。接种JNJ“疫苗”，约2周后（5月份）的一个晚上醒来时发现瘫痪，送急诊室。诊断为格林巴雷综合征（Guillain Barre Sydrome）。
 
-根据另一份经牡丹江医科大学附属红旗医院伦理委员会批准的试验报告，**“****青蒿素和哌喹（AP****）组在用药期间第7****、10****、14****、21****和28****天达到检测不到SARS-CoV-2****的患者百分比为26.1%****、43.5%****、78.3%****、100%****和100%”****。”AP****可以显著缩短达到检测不到SARS-CoV-2****的时间”****。**
+[病例14](https://www.gofundme.com/f/kens-covid-recovery?qid=078b2e69597825205e08e0d3b670dc2d)，6月21日，Ken，男。接种第一针后出现问题，伤害表现是不能正常呼吸。
 
-**“****这项研究发现，AP****缩短了病毒在体内的停留时间”**。 “建议轻度至中度COVID-19患者使用AP，7天内服用8片。对于缺乏医疗设施的地区，在隔离和检疫期间，如果病人的病情恶化，也建议使用AP。对于疑似COVID-19密切接触者的患者，建议使用AP（7天内8片）作为预防治疗”。
+另据[9月15日lifesitenews.com报道](https://www.lifesitenews.com/news/gofundme-de-platforms-dad-whose-only-son-died-after-pfizer-jab/)，拉米雷斯(Ernest Ramirez)因唯一的儿子死于注射辉瑞（Pfizer）mRNA，在gofundme.com筹款用于提醒世人实验性mRNA注射有危险。但是，gofundme.com以“禁止行为”为由，删除了拉米雷斯的筹款账号。他只好转移到lifefunder.com继续筹款，[这是链接](https://www.lifefunder.com/pfizervictim)。
 
-**硫酸羟氯喹**
-
-在这三种药物中，羟氯喹是郭先生去年年初第一个推荐的治疗中共病毒的药物。此外，在去年3月初美国的一线医生和泽伦科医生(大胡子医生Dr. Zelenko)也透露他们已经用羟氯喹和阿奇霉素治愈了成千上万的中共病毒患者，这些医生也强烈地建议人们使用羟氯喹和阿奇霉素来治疗中共病毒患者。
-
-法国马赛中心（Marseille center）在去年发表的一份试验报告中说，”**羟基氯喹（氯喹的一种类似物）已被证明在体外具有抗SARS-CoV****的活性”****。**
-
-马赛中心的 “初步结果还表明，**羟氯喹和阿奇霉素的组合有协同作用。阿奇霉素已被证明在体外对寨卡和埃博拉病毒有活性，并且在给病毒感染的病人服用时能预防严重的呼吸道感染****“****。**
-
-**该报告称，”****在入院后的第6****天，用羟氯喹和阿奇霉素联合治疗的患者100%****获得了病毒学上的治愈”****。**
-
-** ****马赛中心的医疗小组，”****建议用羟氯喹和阿奇霉素治疗COVID-19****患者，以治愈他们的感染，并限制病毒对其他人的传播，以遏制COVID-19****在世界的传播”****。**
-
-**中共病毒疫苗**
-
-在美国，CDC和FDA仍然没有批准使用伊维菌素和羟氯喹来治疗中共病毒。**“****瑞德西韦（Remdesivir****）是唯一被食品和药物管理局（FDA****）批准直接用于治疗COVID-19****的抗病毒药物，**“然而，”**瑞德西韦看起来并不能为COVID-19****的一般住院病人群提供总体的死亡优势**“。
-
-CDC和FDA不仅批准了瑞德西韦的使用，而且还批准了中共病毒疫苗的使用。郭先生不厌其烦地告诫人们不要接受这种疫苗，**因为它的每一针都含有氧化石墨烯和****40****万亿突刺蛋白，这两种物质一旦被注射入体内就终身无法消除**。郭先生还特别提醒人们注意中共病毒疫苗的各种的严重副作用。
-
-在一次的接受采访中，反对中共病毒疫苗的领导人理查德·弗莱明博士（Dr. Richard Fleming）告诉人们，”**在疫苗中加入氧化石墨烯，防止突刺蛋白附着在细胞上，会使得突刺蛋白可以穿过血脑屏障，引起朊病毒疾病（如疯牛病**）。”
-
-对此，施瓦茨又一次试图用美国的疾控中心（CDC）的话来使得郭先生对疫苗的建议听起来不那么重要。 他说：“疾病预防控制中心建议 12 岁及以上的人接种中共病毒疫苗，该疫苗已被证明在减少住院机会和减少疾病传播方面非常有效。”
-
-然而，很讽刺的是，路透社报道称，**英国的疫苗顾问最近表示，他们不建议为**** 12 ****至 15 ****岁的健康儿童接种 COVID ****疫苗，因为接种疫苗的青少年有可能患上心脏炎症**。
-
-此外，没有任何研究证明中共病毒疫苗“已被证明在减少住院机会和减少疾病传播方面非常有效。” 相反地，**布赖恩的谎言被约翰霍普金斯大学（****Johns Hopkins University****）的数据推翻了**。 根据约翰霍普金斯大学的数据，9 月的前两周，美国的平均每周的中共病毒病例数比 2020 年同期高出近 300%，平均死亡人数超过 86%。
-
-另外，中共病毒疫苗不仅未能抑制中共病毒在美国的传播，而且也未能阻止中共病毒在全球范围内的大规模传播，比如在蒙古和以色列。
-
-马龙博士（Dr. Malone）在班农先生的作战室接受采访时说，“**在美国推动**** Covid-19 ****加强疫苗的努力不仅落入了指责美国占用太多资源的中共手中，还会产生‘逃逸变异病毒’”**。
-
-**CDC 和 FDA 的决定是非常错误的**
-
-中共病毒造成的灾难证明了CDC和FDA的决定是非常错误的，迄今为止，在美国，已有超过66.7万人死于中共病毒。
-
-泽连科医生在接受采访时说，“**美国国立卫生研究院（**NIH）**告诉人们不要用羟氯喹或伊维菌素等药物治疗 COVID****，当你的氧气不足时去医院，然后你才会得到治疗。这是一个杀人的概念。”**
-
-许多人会认为，施瓦茨支持CDC和FDA拒绝使用伊维菌素、羟氯喹和青蒿素来治疗中共病毒的患者，并支持中共病疫苗，这在某种程度上反映了他对CDC和FDA这些人的 “杀人概念 “的支持。
-
-**郭先生是对的**
-
-**许多科学家、医学专家和数以万计的人都已经验证了郭先生对中共病毒疫苗、伊维菌素、羟氯喹和青蒿素的说法是正确的**。为什么郭先生说的所有这些信息都是正确的？根据郭先生的说法，那是因为他得到了许多有良知的科学家、医生和中共病毒患者的告知和教育。
-
-
-
-**新闻来源：**
-
-[Remdesivir](https://www.idsociety.org/covid-19-real-time-learning-network/therapeutics-and-interventions/remdesivir/)
-
-[GETTR](https://gettr.com/post/pan65ge62d)
-
-[GETTR](https://gettr.com/post/pagwtza278)
-
-[Revealed: Full List of Western Media Outlets Participating in Chinese Communist Propaganda Events](https://thenationalpulse.com/exclusive/western-media-chinese-communist-events/)
-
-[Johns Hopkins University &Medicine](https://coronavirus.jhu.edu/map.html)
-
-[Mongolia’s mass jabs fail to suppress COVID spread](https://asia.nikkei.com/Spotlight/Coronavirus/COVID-vaccines/Mongolia-s-mass-jabs-fail-to-suppress-COVID-spread2)
-
-[The Covid spike in highly vaccinated Israel holds grim omens for other economies](https://qz.com/2057565/israels-covid-spike-holds-grim-omens-for-other-economies/)
-
-[100+ Ontario Youth Sent to Hospital for Vaccine-Related Heart Problems, Report Shows](https://childrenshealthdefense.org/defender/public-health-ontario-youth-hospital-vaccine-related-heart-problems/)
-
-[**Safety and efficacy of artemisinin-piperaquine for treatment of COVID-19: an open-label, non-randomised and controlled trial**](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7605811/)
-
-[Antimalarial artemisinin-based combination therapies (ACT) and COVID-19 in Africa: In vitro inhibition of SARS-CoV-2 replication by mefloquine-artesunate](https://pubmed.ncbi.nlm.nih.gov/32805422/)
-
-
-
-> [秘翻在线：青蒿素、伊维菌素和吡喹酮对人类有什么巨大影响？](https://gnews.org/zh-hans/1501796/)
-
-
-
-[**Monash University update on Ivermectin research**](https://www.monash.edu/discovery-institute/news-and-events/news/2021-articles/monash-university-update-on-ivermectin-research)
-
-[Lab experiments show anti-parasitic drug, Ivermectin, eliminates SARS-CoV-2 in cells in 48 hours](https://www.monash.edu/discovery-institute/news-and-events/news/2020-articles/Lab-experiments-show-anti-parasitic-drug,-Ivermectin,-eliminates-SARS-CoV-2-in-cells-in-48-hours)
-
-[The FDA-approved drug ivermectin inhibits the replication of SARS-CoV-2 in vitro](https://www.sciencedirect.com/science/article/pii/S0166354220302011)
-
-[Ivermectin for Prevention and Treatment of COVID-19 Infection: A Systematic Review, Meta-analysis, and Trial Sequential Analysis to Inform Clinical Guidelines](https://journals.lww.com/americantherapeutics/fulltext/2021/08000/ivermectin_for_prevention_and_treatment_of.7.aspx)
-
-[**Hydroxychloroquine and azithromycin as a treatment of COVID-19: results of an open-label non-randomized clinical trial**](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7102549/)
-
-[https://www.cnbc.com/2021/09/07/guo-wengui-pushes-ivermectin-misinformation-network.html](https://www.cnbc.com/2021/09/07/guo-wengui-pushes-ivermectin-misinformation-network.html)
+希望gofundme.com继续支持上述“疫苗”受害者的筹款和求助。呼吁世人不要接受注射这些实验性的“疫苗”。
 
 （文章仅代表作者本人观点）
 

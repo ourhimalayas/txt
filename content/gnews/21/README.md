@@ -2,191 +2,117 @@
 ---
 
 
-## 平安集团的董事段伟红，消失了整整四年，两周前出狱了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539131/)
+## “掩盖或隐藏与强制疫苗相关的风险”，“我们需要面对数据”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539095/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/axltu-sfn8a.jpg)
-[https://gtv.org/video/id=6141326a784c5a2583566d28](https://gtv.org/video/id=6141326a784c5a2583566d28)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0-1.jpg)
+[https://gtv.org/video/id=61429170784c5a258356f723](https://gtv.org/video/id=61429170784c5a258356f723)
 
 **字幕内容:**
 
-**郭文贵**
-**Miles Guo**
+Dr. Robert Malone （mRNA Vaccine Technology Inventor)
+罗伯特·马龙博士（mRNA疫苗技术发明者）
 
-是平安的董事
-Es el director de Ping An
+I don’t know what it says about journalism,
+我不知道它对新闻业说了什么
 
-温家宝家的代言人
-El portavoz de la familia de Wen Jiabao
+or what it says about our culture that we always assume
+或者它对我们一直假设的我们的文化的看法
 
-被抓去了四年消失
-Fue arrestado y desaparecido durante cuatro años
+that someone must have an ulterior motive,
+一定有人别有用心
 
-我告诉大家
-Déjame decirles
+that it’s not sufficient to just be addressing an issue because it matters
+仅仅解决一个问题是不够的，因为它很重要
 
-两周前, 段伟红出狱了
-Hace dos semanas, Whitney Duan salió de la prisión
+it because it is the ethically correct thing to do it,
+因为这样做在道德上是正确的
 
-我可以告诉你们
-Puedo decirles
+there seems to be this assumption that everybody’s got an angle.
+似乎有这样的假设：每个人都有自己的角度
 
-几乎是除了中纪委, 中南坑
-Casi a excepción de la Comisión Central de Inspección Disciplinaria y la cueva del PCCh
+I think it says more about the author than it says about me.
+我认为它对作者的描述多于对我的描述
 
-你们是最早知道了
-Ustedes son los primeros en enterarse
+And so this kind of casting shade and aspersions on me personally,
+所以这种对我个人的质疑和诽谤，
 
-就在今天, 此时此刻
-Sólo hoy, ahora mismo
+as a way to avoid addressing the underlying issues.
+是一种避免解决根本问题方式
 
-今天上午十点钟
-Hoy a las diez de la mañana
+I just see it as kind of noise and a little bit sad,
+我只是把它看作是一种噪音并且有点伤感
 
-段伟红的先生在英国伦敦
-El esposo de Whitney Duan en Londres de Reino Unido
+and it’s almost an affirmation.
+这几乎是一种肯定
 
-写了一本
-Escribió un
+If the strongest, they can come up with is to try to attack and cast shade on
+如果他们能想出的最有力的办法是，试图质疑
 
-他太太, 他太太已经离婚了啊
-Su esposa está divorciada
+whether or not I made a significant contribution that led to over nine patents.
+我是否做出了导致超过 9 项专利的重大贡献
 
-写了一本中国腐败的书, 今天出版
-Escribió un libro sobre la corrupción en China donde hoy fue publicado
+During the late 1980s.
+在 1980 年代后期。
 
-今天纽约时报或华尔街日报可能会采访
-Hoy, el New York Times o el Wall Street Journal a lo mejor lo van a entrevistar
+If that’s the worst they can throw at me.
+如果那是最糟糕的，他们可以诋毁我
 
-此时此刻
-En este momento
+I think I’m doing pretty good. So that’s how I see it
+我觉得我做得很好。所以我是这么看的
 
-七哥不是爆料
-No estoy dando noticias
+Jen Jekielek (Newsmax host)
+杰 凯莱克（Newsmax 主持人）
 
-不仅掌握情报, 还知道人下一步要往那儿走
-No sólo tengo las informaciones sino sé cuál es el siguiente paso de estas personas
+well. So sure, so you’re not trying,
+好, 所以肯定的你不去尝试
 
-这就叫爆料革命
-A esto se le llama Movimiento de Denunciantes
+“ so hard to undermine the use of this vaccine technology”
+“很难破坏这种疫苗技术的使用”
 
-你知道段伟红是什么人啊
-¿ Sabes quién es Whitney Duan?
+Dr. Robert Malone
+罗伯特·马龙博士
 
-平安的董事, 温家宝的代言人
-Es el director de Ping An y el portavoz de Wen Jiabao
+No, it’s that my concerns here.
+不，这是我的顾虑
 
-当年董事, 三个最牛的
-Los directores de aquel tiempo, los tres mejores
+As I said, I think in our probe interview,
+正如我所说，我认为在我们的调查采访中，
 
-段伟红代表温家
-Whitney Duan representa a la familia Wen
+is that there’s been a series of actions taken policies
+是采取了一系列行动政策
 
-车峰我哥儿们代表戴家
-Chefeng, mi compadre que representa a la familia Dai
+taken or regulatory actions
+采取或监管行动
 
-都是董事吧
-Todos son directores
+taken that are at odds with how I’ve been trained with with the norms
+这与我接受规范的训练方式不一致
 
-第三个独立董事, 大家猜是谁
-El tercer director independiente, adivinen quién es
+as I’ve always understood them to be
+正如我一直理解的那样
 
-马明哲!
-¡ Ma Mingzhe!
+the regulatory norms，the scientific norms.
+监管规范，科学规范
 
-马明哲把段伟红送到监狱去
-Él fue quien envió a Whitney Duan a la prisión
+These things have been waived.
+这些东西都被放弃了
 
-以为温家完了
-Creía que la familia Wen se acabará
-
-温家老妈后来都出来当股东了
-La madre de la familia Wen luego se convirtió en accionista
-
-实在没人出面了, 是吧
-Realmente ya no tienen a otra persona que pueda representar, ¿ cierto?
-
-温家宝娘都出来了
-Hasta la mamá de Wen Jiabao salió
-
-现在段伟红出来了
-Ahora que Whitney Duan salió de la prisión
-
-她老公还出书了
-Su esposo hasta publicó un libro
-
-别忘了, 没有温家宝, 没有习近平
-No olviden, sin Wen Jiabao, no existe Xi Jinping
-
-谁当时说假话, 陷害段伟红进的监狱
-Quien en aquel momento mintió e incriminó a Whitney Duan entrar a la prisión
-
-段伟红绝对是个好人啊
-Whitney Duan es una buena persona
-
-我告诉你, 段伟红绝对是个好人
-Déjame decirte, Whitney Duan es una buena persona
-
-谁陷害的段伟红? 马明哲
-¿ Quién incriminó a Whitney Duan? Ma Mingzhe
-
-为什么现在段伟红出来了
-Por qué ahora Whitney Duan sale de la prisión
-
-马明哲要出事了
-Ma Mingzhe entrará en problemas
-
-七哥现在跟你讲艺术呢
-Ahora te estoy hablando del arte
-
-讲艺术市场呢
-Del mercado de arte
-
-段伟红是帮助了
-Whitney Duan realmente ayudó
-
-知道马明哲底细
-Conoce los detalles de Ma Mingzhe
-
-可以说是中国最多的人
-Se puede decir que es la persona que sabe más
-
-知道平安秘密最多的人
-Acerca de los secretos de Ping An en China
-
-买古董, 押古董, 买画最多的人
-Quien compró más antigüedades, cuadros y apostó por antigüedades
-
-“火浴” 这个画
-Este cuadro “baño de fuego”
-
-最早接触者可能就是段伟红
-La primera persona quien contactó con él puede ser Whitney Duan
-
-原来有个亚洲卫视的人被枪毙
-Resulta que había un tipo asiático de la televisión que recibió un disparo
-
-叫啥名, 战友们记得吗
-Cómo se llama, compañeros luchadores, ¿ se acuerdan?
-
-就因为说英妹妹和江主席有一腿的人枪毙了
-Sólo porque el hombre dijo que la hermana Ying y el presidente Jiang tenían una relación rara y por eso recibió un disparo
+And I think for a lot of people it doesn’t make sense.
+我认为对很多人来说这没有意义
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**原视频网址**：[https://gettr.com/post/pafgel2079](https://gettr.com/post/pafgel2079)
+**原视频链接:**[https://twitter.com/janjekielek/status/1436786615695855617?s=24](https://twitter.com/janjekielek/status/1436786615695855617?s=24)
 
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+英听中: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+发布 : 洛杉矶盘古农场– 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
 
 0

@@ -2,117 +2,22 @@
 ---
 
 
-## “掩盖或隐藏与强制疫苗相关的风险”，“我们需要面对数据”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1539095/)
+## 秘翻在线：朝鲜再度加码核武计划被卫星抓包
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1539737/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/abkpk-th8r0-1.jpg)
-[https://gtv.org/video/id=61429170784c5a258356f723](https://gtv.org/video/id=61429170784c5a258356f723)
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-80.jpg)图片来源：网络截图
+据福克斯新闻9月18日报道，根据新的卫星图像显示，朝鲜正在宁边核研究中心加强其核武器计划，扩大一个铀浓缩工厂，这可能会推进其生产武器级材料的能力。根据新工厂的规模，分析家们说这有可能使朝鲜增加1000台新的离心机。
 
-**字幕内容:**
+自2019年6月川普总统上次与金正恩会面以来，朝鲜一直相对平静。拜登政府执政8个月后，金正恩似乎又开始升级他的武器库，展示新技术并试探拜登，再次对地区和全球安全构成严重威胁。
 
-Dr. Robert Malone （mRNA Vaccine Technology Inventor)
-罗伯特·马龙博士（mRNA疫苗技术发明者）
+两周前，国际原子能机构（IAEA）根据冷却水的排放，得出了朝鲜已经重新启动了其核反应堆的报告，这些发现“令人深感不安”。附近的放射化学实验室也有活动的迹象，那里的燃料棒被重新加工成钚。所有这些都很清楚地表明，朝鲜已经重新启动了其核武器开发计划。
 
-I don’t know what it says about journalism,
-我不知道它对新闻业说了什么
+试验后，国务院发言人普莱斯敦促采取外交方法解决问题，称拜登政府希望与金正恩对话，以实现朝鲜半岛无核化。然而，金正恩已经回绝了任何外展活动。
 
-or what it says about our culture that we always assume
-或者它对我们一直假设的我们的文化的看法
+这个新的挑衅性的朝鲜使拜登的外交政策雪上加霜。混乱的阿富汗撤军的后果，重启伊朗核协议的尝试停滞不前，以及中共国作为一个独断的竞争者的崛起。随着朝鲜再次施展拳脚，拜登总统的身边又多了一根刺。
 
-that someone must have an ulterior motive,
-一定有人别有用心
-
-that it’s not sufficient to just be addressing an issue because it matters
-仅仅解决一个问题是不够的，因为它很重要
-
-it because it is the ethically correct thing to do it,
-因为这样做在道德上是正确的
-
-there seems to be this assumption that everybody’s got an angle.
-似乎有这样的假设：每个人都有自己的角度
-
-I think it says more about the author than it says about me.
-我认为它对作者的描述多于对我的描述
-
-And so this kind of casting shade and aspersions on me personally,
-所以这种对我个人的质疑和诽谤，
-
-as a way to avoid addressing the underlying issues.
-是一种避免解决根本问题方式
-
-I just see it as kind of noise and a little bit sad,
-我只是把它看作是一种噪音并且有点伤感
-
-and it’s almost an affirmation.
-这几乎是一种肯定
-
-If the strongest, they can come up with is to try to attack and cast shade on
-如果他们能想出的最有力的办法是，试图质疑
-
-whether or not I made a significant contribution that led to over nine patents.
-我是否做出了导致超过 9 项专利的重大贡献
-
-During the late 1980s.
-在 1980 年代后期。
-
-If that’s the worst they can throw at me.
-如果那是最糟糕的，他们可以诋毁我
-
-I think I’m doing pretty good. So that’s how I see it
-我觉得我做得很好。所以我是这么看的
-
-Jen Jekielek (Newsmax host)
-杰 凯莱克（Newsmax 主持人）
-
-well. So sure, so you’re not trying,
-好, 所以肯定的你不去尝试
-
-“ so hard to undermine the use of this vaccine technology”
-“很难破坏这种疫苗技术的使用”
-
-Dr. Robert Malone
-罗伯特·马龙博士
-
-No, it’s that my concerns here.
-不，这是我的顾虑
-
-As I said, I think in our probe interview,
-正如我所说，我认为在我们的调查采访中，
-
-is that there’s been a series of actions taken policies
-是采取了一系列行动政策
-
-taken or regulatory actions
-采取或监管行动
-
-taken that are at odds with how I’ve been trained with with the norms
-这与我接受规范的训练方式不一致
-
-as I’ve always understood them to be
-正如我一直理解的那样
-
-the regulatory norms，the scientific norms.
-监管规范，科学规范
-
-These things have been waived.
-这些东西都被放弃了
-
-And I think for a lot of people it doesn’t make sense.
-我认为对很多人来说这没有意义
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://twitter.com/janjekielek/status/1436786615695855617?s=24](https://twitter.com/janjekielek/status/1436786615695855617?s=24)
-
-英听中: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场– 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[North Korea may be ramping up nuclear weapons program again, satellite images show](https://www.foxnews.com/world/north-korea-nuclear-weapons-program-again-satellite-images)
 
 0
