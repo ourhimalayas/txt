@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/18/2021 5:16 PM (UTC)`
+
+9月18号：这个视频证实了无知有理．欺骗是真理……阶级斗争将从杀富豪从新在大陆开始……这幅德行特别像路大脑骗的亲爹呀……
+![img](https://media.gettr.com/group41/default/20210918/17/16/dd1ec8b9-a160-b3cc-40bc-9923b3e15557/out.jpg)
+
+---
+
 `@miles 9/18/2021 5:01 PM (UTC)`
 
 9月18号：我们所有的爆料革命的战友们，要珍惜我们奋斗争取来的真相。<br/>和世界上唯一的准确的情报，让我们不打疫苗，让我们能健康的活下去，只要能健康地活下去，就能躲过这场世纪的大灾难。【9月17日美國FDA內部會議上揭露：<br/>疫苗比病毒還要致命數倍疫苗打死2個，才救1個<br/>毒疫苗導致的心髒病發作是其他所有疫苗總和的71倍<br/>以色列老人院數據：打苗苗死亡率50%，未打毒疫苗死亡率0%】
@@ -292,13 +299,6 @@ SOHO China Plummets 40% After Blackstone Takeover Falls Apart<br/><br/>黑石放
 
 9/15/2021 班农先生：郭文贵先生是新中国的乔治·华盛顿，在全世界点燃了灭共的燎原之火；而我们的责任是让世界看到一个崭新的中国和新中国人，我们的使命是阻止中共的合谋者们，全力支持新中国联邦和新中国人，并帮助他们彻底摧毁中国共产党！<br/>9/15/2021 Steve Bannon: Mr. Miles Guo is the George Washington of the New China, setting a prairie fire of taking down the CCP across the globe; Our duty is to let the world see a brand new China and the new Chinese, and our missions are stopping the CCP’s co-conspirators, fully supporting the New Federal State of China and the new Chinese; and helping them completely destroy the CCP!
 ![img](https://media.gettr.com/group8/getter/2021/09/16/00/8463a4a7-d2e1-ec46-463d-f5bca5c49e5d/out.jpg)
-
----
-
-`@miles 9/16/2021 12:43 AM (UTC)`
-
-9月15号：真正的战友，有共同信仰的人，无论在任何情况下，都会共同的战斗！非常荣幸让共产党最恨的最害怕的．川普政府最重要的内阁官员，彼特，那瓦罗先生！今天正式的．官方宣布，成为盖特的形象大使，和新中国联邦的国家代表大使！这是新中国联邦人的荣幸，我们也要永远的珍惜，像他和班农先生这样的永远的兄弟和永远的朋友，我们还是最紧密的战友，我们将一起战斗．消灭邪恶的中国共产党！
-![img](https://media.gettr.com/group9/getter/2021/09/16/00/d29312df-a102-2bb9-a30e-b825d1825e7f/adc75fc8ed459a3ae7ac1cef7806e88f.jpg)
 
 ---
 
