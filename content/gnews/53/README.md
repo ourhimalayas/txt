@@ -2,18 +2,20 @@
 ---
 
 
-## 有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1539914/)
+## 有声|欧盟出台最新印太战略
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1539976/)
 
 配音：香草山美食部 – 玫瑰圓
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
+9月16日，欧盟委员会和欧盟外交高级代表推出了一份关于欧盟在印度-太平洋地区合作战略的联合公报。根据欧盟的官方文件，新战略将具体实施如下内容：
 
-路透社9月15日报道称，欧盟监管机构已针对抖音TikTok启动两项调查，涉及儿童个人数据的处理和向中国转移个人数据。
+1. 完成、恢复或开始欧盟与印度等印太相关国家的贸易谈判、投资谈判。
+2. 与马来西亚等国缔结伙伴关系和合作协议或开始相关谈判。与其他有意愿的国家缔结绿色联盟和伙伴关系，应对气候变化和环境退化。
+3. 加强欧盟对印太地区的海洋治理，增加对相关国家渔业管理和控制系统的支持；加强海军部署，帮助保护该地区的海上交通线和航行自由。
+4. 在 “欧洲地平线 “计划下加强欧盟与印太地区的研究和创新方面的合作。
 
-位于爱尔兰的数据保护委员会，作为世界顶级互联网公司在欧盟的主要监管机构，已获准可对抖音开出最高达其全球营收4%的巨额罚金。
 
-**文字版原文**：[欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](https://gnews.org/zh-hans/1536467/)
+**文字版原文**：[欧盟出台最新印太战略](https://gnews.org/zh-hans/1538763/)
 
 *音频处理：喜山必胜Maverick
 发稿：童谣*
@@ -30,10 +32,6 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-159.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-159.png)
-
-
-
 0

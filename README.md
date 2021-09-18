@@ -58,22 +58,22 @@
 ### [从饿死百万人的信阳到丰收不忘党恩的新密是一个轮回](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国职业安全与健康管理局故意隐瞒疫苗副作用报告](/content/gnews/16/README.md)
+### [接种疫苗后，免疫系统变弱，癌症发病率提升20倍](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [盖特不会禁言用户，更不会出卖用户信息](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [伊维菌素是得过诺贝尔奖的安全药物](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国职业安全与健康管理局故意隐瞒疫苗副作用报告](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [莆田市封城背后中共的阴谋](/content/gnews/17/README.md)
+### [莆田市封城背后中共的阴谋](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [有声|拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [有声|欧盟出台最新印太战略](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声|韩国金融服务委员会监管改革,本国大部分加密货币交易所将停业](/content/gnews/21/README.md)
+### [有声|拜登在“新三边伙伴关系”讲话时首提应对“中共国的侵略”](/content/gnews/21/README.md)
  ` MOSREC`
 
 ### [秘翻在线：澳大利亚前总理阿博特：澳英美安全协议为澳大利亚做了三件事](/content/gnews/22/README.md)
@@ -142,36 +142,36 @@
 ### [09/16/2021 国际财经快讯：加拿大太平洋铁路达成以270亿美元收购堪萨斯城南方铁路的协议; 铀价上涨让对冲基金赚得盆满钵满](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [习近平视频出席阿富汗问题联合峰会](/content/gnews/44/README.md)
+### [另一个超限战:数字人民币会踢走美元?](/content/gnews/44/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [习近平视频出席阿富汗问题联合峰会](/content/gnews/45/README.md)
  ` 儒为`
 
-### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/45/README.md)
+### [恶邻俄罗斯?——灭共后的对俄关系](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [灭共小童谣](/content/gnews/46/README.md)
+### [灭共小童谣](/content/gnews/47/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/47/README.md)
+### [【修罗短评】灭共三巨头公开聚集，打开作战新局面](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [媒体的核力量](/content/gnews/48/README.md)
+### [媒体的核力量](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/49/README.md)
+### [中国银行背景企业不明收购! 日本新闻界处于危险之中!](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：向善而生，向光明而生](/content/gnews/50/README.md)
+### [G时评：向善而生，向光明而生](/content/gnews/51/README.md)
  ` GISELLE`
 
-### [勿忘国耻，9.18窃国者的谎言](/content/gnews/51/README.md)
+### [勿忘国耻，9.18窃国者的谎言](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|彼得•纳瓦罗先生担任GETTR形象大使和新中国联邦国家代表大使](/content/gnews/52/README.md)
+### [有声|欧盟出台最新印太战略](/content/gnews/53/README.md)
  ` MOSREC`
 
-### [有声|欧盟调查抖音 涉嫌儿童隐私及向中国转移个人数据](/content/gnews/53/README.md)
+### [有声|以色列报告表示，1/10的儿童感染新冠病毒康复后仍有症状](/content/gnews/54/README.md)
  ` MOSREC`
-
-### [中共超限战灭港行动（七十四）中共组织爪牙 争夺「道德光环」话语权](/content/gnews/54/README.md)
- ` 英喜-粵語組`
 
