@@ -19,14 +19,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年9月18日郭先生盖特1「9分53秒」](/content/gnews/3/README.md)
+### [州长接受疫苗制造商数千万美元来推动强制疫苗政策](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [2021年9月18日郭先生盖特1「9分53秒」](/content/gnews/4/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [马阿拉歌的摄像头](/content/gnews/4/README.md)
+### [马阿拉歌的摄像头](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [2021/09/18文贵先生盖特精要](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [完全接种疫苗感染Delta死亡率比未接种的高出八倍](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -76,22 +76,22 @@
 ### [9/7郭文贵直播：黑天鹅事件迫使习取消攻台2号计划（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国24个州将对拜登的“异描”强制政策采取法律行动](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [美英澳安全结盟能给美国带来安全吗？](/content/gnews/23/README.md)
+### [秘翻在线：比尔·盖茨疯狂无极限 欲以结束疫情之名给全人类扎疫苗！](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [三大“异描”制药公司纷纷改名，但“异描”成分不变](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：中共战狼为打压大型科技公司狡辩](/content/gnews/26/README.md)
+### [辉瑞疫苗的致死率远高于有效率](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [第二季度全球债务升至近300万亿美元 创历史新高](/content/gnews/27/README.md)
+### [美国24个州将对拜登的“异描”强制政策采取法律行动](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [美英澳安全结盟能给美国带来安全吗？](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [三大“异描”制药公司纷纷改名，但“异描”成分不变](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
 ### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/28/README.md)
@@ -142,36 +142,36 @@
 ### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/43/README.md)
  ` wenwu`
 
-### [媒体误导何时休？](/content/gnews/44/README.md)
+### [媒体真相往往显得隐晦、短暂和渺小](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海合作组织批准伊朗成为其成员国](/content/gnews/45/README.md)
- ` GTV新闻访谈`
+### [媒体误导何时休？](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦人庆贺马丁·班农先生百岁寿辰](/content/gnews/46/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：美国将对数字货币勒索软件进行制裁](/content/gnews/47/README.md)
+### [秘翻在线：中共战狼为打压大型科技公司狡辩](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GFashion管理团队意大利之行满载而归](/content/gnews/48/README.md)
+### [第二季度全球债务升至近300万亿美元 创历史新高](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [伊朗加入上海合作组织 FDA否决辉瑞第三针](/content/gnews/49/README.md)
+### [上海合作组织批准伊朗成为其成员国](/content/gnews/48/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦人庆贺马丁·班农先生百岁寿辰](/content/gnews/49/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：美国将对数字货币勒索软件进行制裁](/content/gnews/50/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [GFashion管理团队意大利之行满载而归](/content/gnews/51/README.md)
+ ` GTV新闻访谈`
+
+### [伊朗加入上海合作组织 FDA否决辉瑞第三针](/content/gnews/52/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：亚利桑那州新增感染病例与死亡人数成反比](/content/gnews/50/README.md)
+### [秘翻在线：亚利桑那州新增感染病例与死亡人数成反比](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大多伦多枫叶农场再次参与全球反疫苗护照示威](/content/gnews/51/README.md)
- ` GTV新闻访谈`
-
-### [9月18日文贵先生盖特摘要](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [联合国秘书长表示无权禁止未接种的国家领导人进入总部](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [印度假“异描”证书制作和销售已成完整产业链](/content/gnews/54/README.md)
+### [加拿大多伦多枫叶农场再次参与全球反疫苗护照示威](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 

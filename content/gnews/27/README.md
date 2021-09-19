@@ -2,36 +2,32 @@
 ---
 
 
-## 第二季度全球债务升至近300万亿美元 创历史新高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541593/)
+## 涉嫌内幕交易和市场操纵 美国扩大对币安的审查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541594/)
 
-栏目记者/责任编辑：文真
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-231.png)
+栏目记者/责任编辑：一花一世界
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
 
 
-国际金融协会周二表示，全球债务在第二季度上升至近300万亿美元的新纪录高点。包括政府、家庭、企业和银行债务在内的总债务水平，自6月底上升了4.8万亿美元，达到296万亿美元，比新冠病毒大流行前高出36万亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/第二季度全球债务升至近300万亿美元-创历史新高.jpg)
-债务与GDP的比例从今年第一季度的362%的历史高点，降至第二季度的353%左右，这主要是由于经济活动的反弹。但该机构补充道，经济复苏的力度不足以将债务比率推回到新冠大流行前的水平以下。
 
-与其他国家相比，中共的债务水平攀升得更快：不包括新兴市场债务，仅政府借款的增加就已经达到天文数字。
+9月17日彭博社报道：美国当局正在扩大对币安的调查，审查可能的内幕交易和市场操纵，该迹象表明针对这一全球最大加密货币交易所的审查正在逐步加强。据悉，美国官员一直在调查币安及其员工，是否乘职务之便利用顾客而获利。调查人员最近几周在接触潜在的证人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/涉嫌内幕交易和市场操纵-美国扩大对币安的审查.jpg)
+币安并不基于任何国家，却运营着庞大的百万笔交易业务，日常客户可在监督之外买卖价值几百亿美元的数字代币。美国当局质疑该公司违规使用相应权限。越来越多的国家要求该公司及其附属机构停止在其境内提供服务，声称他们缺乏适当的许可证：今年7月份，币安在新加坡、泰国和开满群岛也受到当局审查。据彭博社报道，在美国，司法部和国税局已经就币安是否成为洗钱和逃税的渠道展开了刑事调查。
 
-新冠疫情的持续，导致全球债务恶化至难以为继的境地，已经成为全球经济的定时炸弹。早在2014年，中共信托的票据就已经达到了7万亿人民币，如今该数据已超过20万亿，恒大、绿地、融创、保利和富力等这些大企业全会崩塌。恒大倒闭，会引起平安、陆金所、银行等金融机构的连锁反应，会把整个中国、世界经济置入灾难境地无人可挽救，全球金融风暴一触即发。
+美国商品期货交易委员会（CFTC）在芝加哥对币安的调查的内容包括：币安是否让美国居民交易与比特币和其他虚拟代币相关的衍生品。关于币安试图允许美国顾客在其平台注册，委员会成员表明，已经寻求其他联邦机构分享币安的内部数据和通信。币安没有在美国当局注册，这意味着它应该禁止受美国监管的衍生品。
+
+华盛顿对加密货币的快速增长感到震惊，财政部、美联储和证券交易委员会等机构，都越来越担心加密货币市场成为非法活动的温床。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [第二季度全球债务升至近300万亿美元 创历史新高](https://www.reuters.com/business/global-debt-is-fast-approaching-record-300-trillion-iif-2021-09-14/)
-2. [第二季度全球债务升至近300万亿美元 创历史新高](https://gettr.com/post/pbe9iee733)
-3. [第二季度全球债务升至近300万亿美元 创历史新高](https://gnews.org/zh-hans/1538370/)
-4. [第二季度全球债务升至近300万亿美元 创历史新高](https://www.iif.com/Research/Capital-Flows-and-Debt/Global-Debt-Monitor)
+1. [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](https://www.bloomberg.com/news/articles/2021-09-17/u-s-s-binance-probe-expands-to-examine-possible-insider-trading)
+2. [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](https://fortune.com/2021/09/17/binance-probe-examine-possible-insider-trading/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
 
 终审编辑：暗黑
 校正/发稿：Hetangyuese
@@ -43,6 +39,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
 
 0

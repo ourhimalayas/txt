@@ -2,30 +2,28 @@
 ---
 
 
-## 三大“异描”制药公司纷纷改名，但“异描”成分不变
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541595/)
+## 美国24个州将对拜登的“异描”强制政策采取法律行动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541596/)
 
-栏目记者/责任编辑：正义的小新
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
+栏目记者/责任编辑：文真
 
 
 
-据beckernews报道，继辉瑞 / BioNTech 将其“完全授权”的疫苗称为“Comirnaty”之后，欧洲和加拿大的第二和第三大制造商 Moderna 和阿斯利康也正在重新命名他们的新冠疫苗。加拿大卫生部本周四发布一条推文，称“辉瑞-BioNTech 疫苗是 Comirnaty，Moderna 疫苗将被命名为 SpikeVax，而阿斯利康疫苗将被命名为 Vaxzevria，” 加拿大卫生部强调，“这些只是更名。疫苗本身没有变化。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/三大异描制药公司纷纷改名，但异描成分不变.jpg)
 
+美国24位共和党州检察长联合致信拜登称，如果拜登政府不改变其疫苗政策，将对他采取法律行动。这封信是在拜登上周宣布全面的疫苗政策之后发出的，该政令包括劳工部的一项紧急规定，要求拥有100名以上员工的私营部门公司确保雇员接种冠状病毒疫苗，或进行每周一次的病毒测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/美国24个州将对拜登的异描强制政策采取法律行动.jpg)
+信中称，拜登的计划是”灾难性的、适得其反”。疫苗强制接种不仅是对个人自由的威胁，而且是一场公共卫生灾难，将使脆弱的工人流离失所，加剧全国范围内的医务人员危机，给所有美国人带来严重后果。
 
-尽管辉瑞拥有所谓“完全授权”的疫苗，但辉瑞承认，现在市场上的辉瑞疫苗，仍然是最初根据美国紧急使用授权和加拿大临时订单授权生产的疫苗。辉瑞称“BioNTech COVID-19 疫苗的配方与 COMIRNATY 的配方相同，可以互换。鉴于当前持续的疫情，稍后将逐步过渡到使用‘所谓’ COMIRNATY 品牌名称的新标签。”也就是说，辉瑞等疫苗公司，重新命名其疫苗、并取得所谓“完全授权”，但给人们注射的疫苗却仍然是仅有紧急授权、没有被完全授权的疫苗。
-
-挂羊头卖狗肉，换汤不换药，借换名获得“完全授权”，疫苗公司可以逃避所有的责任及法律诉讼，政府也可强制民众注射毒疫苗。更可怕的是，主流媒体只字不提，全世界的政府置若罔闻，所谓医学权威专家也全体失声。世界已经到了前所未有的至暗时刻，尚未觉醒的人们也会为其愚蠢、贪婪、无知付出难以想象的代价。
+多位共和党州长公开发表言论，反击拜登的疫苗计划。共和党全国委员会主席麦克丹尼尔说，将起诉拜登政府，以保护美国人和他们的自由。
 
 （本文仅代表作者观点）
 
-参考消息：[三大“异描”制药公司纷纷改名，但“异描”成分不变](https://beckernews.com/all-3-major-vaccine-companies-suddenly-have-name-changes-for-their-covid-shots-and-people-are-already-confused-41507/)
+参考链接：
+1. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://ago.wv.gov/Documents/AGs%27%20letter%20to%20Pres.%20Biden%20on%20vaccine%20mandate%20%28FINAL%29%20%2802715056xD2C78%29.PDF)
+2. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://www.msn.com/en-us/news/politics/24-states-threaten-legal-action-against-biden-e2-80-99s-vaccine-mandate/ar-AAOwKDx)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
 

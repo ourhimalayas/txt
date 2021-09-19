@@ -2,21 +2,19 @@
 ---
 
 
-## 秘翻在线：亚利桑那州新增感染病例与死亡人数成反比
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541653/)
+## 秘翻在线：美国将对数字货币勒索软件进行制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541666/)
 
 #### 翻译：Evalu
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-73.jpg)图片来源：网络截图
-美联社9月17日报道，亚利桑那州每天死于新冠（中共病毒）感染者超过100例，是自今年2月以来第二高峰。周六亚利桑那报告有2742例新发中共病毒感染和108例死亡。住院病人近三周来首次降至2000例以下，周五显示为1981例住院病人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-101.jpg)图片来源：Wikibit
+《印度教徒报》9月18日报道，根据周五《华尔街日报》的报告，拜登政府正准备作出行动，包括制裁措施，以遏制想要采用数字货币黑客手段的勒索软件获利。
 
-同时，约翰霍普金斯大学的数据显示，过去两周的七天内平均每天病例数和死亡数有所下降，每天病例数从9月2日的3152例降至2832例。每天死亡数从39例降至33例。
+美国财政部计划最早将于下周加强制裁措施，并将针对具有与勒索软件支付系统有关联的风险出台一个新的指导意见，如罚款和其他处罚。
 
-凤凰城官员说，该市的两辆流动性处理中共病毒的厢形车和其他城市检查站将开始用于提供施打疫苗。该市将用联邦疫情缓解资金去支付增加的疫苗和测试项目。
+新的反洗钱规定和恐怖金融法规预计将在今年底出台，目标指向限制数字货币支付勒索软件攻击和其他非法活动。
 
-亚利桑那州自疫情以来已经报告了总共106万累计患者和19487例死亡患者。
-
-##### 新闻来源： [The Latest: Arizona reports more deaths, fewer virus cases](https://apnews.com/article/business-health-alaska-pandemics-public-health-3a1e49748ff2fd6c59297bf4191fcac2)
+##### 新闻来源： [U.S. to target ransomware payments in cryptocurrency with sanctions](https://www.thehindu.com/sci-tech/technology/us-to-target-ransomware-payments-in-cryptocurrency-with-sanctions/article36534996.ece)
 
 
 
