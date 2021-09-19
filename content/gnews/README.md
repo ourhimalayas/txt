@@ -28,14 +28,14 @@
 ### [州长接受疫苗制造商数千万美元来推动强制疫苗政策](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [【农场动态】温哥华战友参加9月18日反强制疫苗全球联动大游行](/content/gnews/6/README.md)
+### [疫苗伤害和杀死的青少年，超过所有其他疫苗的总和](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【农场动态】温哥华战友参加9月18日反强制疫苗全球联动大游行](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [完全接种疫苗感染Delta死亡率比未接种的高出八倍](/content/gnews/7/README.md)
+### [完全接种疫苗感染Delta死亡率比未接种的高出八倍](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [关于美国疫苗接种赦免而想到的](/content/gnews/8/README.md)
- ` 纽约香草山MOS03`
 
 ### [共和党参议员要求NIH提供有关删除COVID-19数据的解答](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -46,16 +46,16 @@
 ### [川普：米利应该以叛国罪受审](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/12/README.md)
- ` 纽约香草山MOS02`
-
-### [补贴、产假难填育养“黑洞”](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
-
-### [比尔.盖茨用疫苗控制人口的想法2010年就有](/content/gnews/14/README.md)
+### [阿里巴巴和兰州晚报用粪汤横流的马路制造正能量](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [那个担心活不到宝宝长大的妈妈永远无法证明疫苗的伤害](/content/gnews/15/README.md)
+### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/13/README.md)
+ ` 纽约香草山MOS02`
+
+### [补贴、产假难填育养“黑洞”](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
+
+### [比尔.盖茨用疫苗控制人口的想法2010年就有](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [有声| 论天国的仇敌：新中国联邦人的末世观](/content/gnews/16/README.md)
