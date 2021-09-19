@@ -2,30 +2,147 @@
 ---
 
 
-## 法国是重要的合作伙伴
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1540946/)
+## 郭文贵先生谈为什么要打马明哲的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1541163/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a9d2h-yr6ll.jpg)
+[https://gtv.org/video/id=6145d839d2e2b817486add6e](https://gtv.org/video/id=6145d839d2e2b817486add6e)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/auf-diesem-von-der-u-s-navy.jpg)
+**字幕内容:**
 
+**郭文贵
+Miles Guo**
 
-资料来源：法新社
+七哥第一个要打马明哲的原因，
+QiGe (My) first reason to expose Ma Mingzhe
 
-在法国因对潜艇交易的不满而召回美国和澳大利亚的大使后，华盛顿和堪培拉正试图抑制损失。他们强调与法国双边关系的价值。
+其中的核心原因就是因为汇丰
+One of the core reasons is HSBC
 
-美国和澳大利亚正试图安抚愤怒的法国政府，因为它涉及 10 亿美元的军火交易。 “法国是一个重要的合作伙伴和我们最古老的盟友，我们非常重视我们的关系，”在法国召集其驻美国和澳大利亚大使进行磋商后，美国国务院表示。希望能够在未来几天继续就该主题进行讨论。
+我恼火的是马明哲
+I’m annoyed with Ma Mingzhe
 
-法国驻澳大利亚大使 Jean-Pierre Thebault 在离开前的星期六非常生气：“我认为这里犯了一个大错误，一种非常非常糟糕的合作方式，”他告诉记者。 “这不是一份合同，而是一种建立在信任、相互理解和开放基础上的伙伴关系。”
+我跟你真的，我在重申，马明哲
+I repeat to you, Ma Mingzhe
 
-澳大利亚外交部发言人也对大使的离开表示遗憾：“澳大利亚重视与法国的关系。我们期待着再次与法国就我们基于共同价值观的许多共同问题和利益进行对话。”
+个人上我欠你的，我不应该这么对你
+I owe you personally, I shouldn’t be have done this to you
 
-与此同时，马来西亚对武器条约表示担忧，根据该条约，澳大利亚现在将从建造八艘核动力潜艇，而不是常规潜艇。马来西亚总理办公室在谈到中共国​​时说：“这将促使其他大国在该地区采取更积极的行动，尤其是在南海。”中共国还试图通过建立军事基地来扩大其在该地区的影响力。就美国而言，它正试图遏制中共国的影响力，巩固自己的地位。
+这是不对的，个人上真的是不对的
+It is not right, it is really not right personally.
 
-[https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html](https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html)
+你还帮过我们，而且咱们俩的对话当中到现在
+You helped us, and also between our conversations till now
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+你还是坚守了原则的
+You’ve stuck to your principles
 
-*责任编辑/校对/发布： Shuizhuyu*
+我还是很佩服你的，在能力上我也是很佩服你
+I still admire you, I also admire your ability
+
+但是你在香港汇丰银行，你害香港的这些孩子
+But for the HSBC in Hong Kong, you have harmed these Hong Kong kids
+
+你帮助共产党作孽
+You helped the Communist Party to commit evil
+
+咱俩必须走在对立面
+We must be on opposite sides
+
+这是一个原因，
+This is one reason
+
+第二个马明哲你和周亮最近干的事情
+The second reason, Ma Mingzhe, what you and Zhou Liang did recently
+
+你和周亮陷害的这些好人
+You and Zhou Liang are framed these good people
+
+让我看不下去
+I cannot stand it anymore
+
+因为你会继续害下去
+Because you will continue to harm
+
+而且马明哲你在西方的这个局
+And Ma Mingzhe, you set up this situation in the west
+
+你帮共产党在害日本人，美国人，英国人，西班牙人，德国人
+You are helping the Communist Party to harm the Japanese, Americans, British, Spanish, Germans
+
+你在害他们，包括加拿大
+You are harming them, including Canadian
+
+你这是帮助希特勒
+you are helping Hitler
+
+你会走的很远的
+You’ll die a horrible death
+
+马明哲我说的话你懂的
+Ma Mingzhe you understand what I’m saying
+
+而且你那么疯狂
+And you are so crazy
+
+而且你在帮助（共产党）骗走那么多美国养老基金，退休基金
+And you are helping (the Communist Party) deceive so many American pension funds, retirement funds
+
+这些美国老人未来会饿死的
+These elder Americans will starve to death in the future
+
+真的，美国政府是不会给这些老人任何饭吃的
+Really, the U.S. government will not give these elder people any free food
+
+你会让这些美国的老人他们没有任何生存的可能
+You will leave these elder Americans without any possibility of survival
+
+你把他们的钱骗走
+You deceived their money away
+
+而且你潜伏了那么多所谓的在基金里的华人和特务
+And you lurked so many so-called Chinese and spies in those funds
+
+你骗他们那么多钱
+You cheated them so much money
+
+像欧洲的老人，英国的老人
+Like elder people in Europe, elder people in Britain
+
+马明哲你也会老的
+Ma Mingzhe, you will be old too
+
+你不能这样对待他们，所以我必须制止你
+You can’t treat them like this, so I must stop you
+
+你必须停止对香港的残害，汇丰
+You must stop harming Hong Kong, HSBC
+
+你必须停止对这些西方这些老人的残害
+You must stop the brutalization of these elder people in the West
+
+还有日本老人的残害
+And the brutalization of Japanese elder people
+
+你在日本布置的局，对日本相当发动一场战争
+The game you set up in Japan is equivalent to waging a war against Japan
+
+我必须制止你
+I must stop you
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437256379731832834?s=24](https://twitter.com/se1y7cblljselva/status/1437256379731832834?s=24)
+
+中听英：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

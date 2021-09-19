@@ -2,75 +2,143 @@
 ---
 
 
-## 文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541190/)
+## 中共内部还有个邪恶组织在掌控
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1541199/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/G918.jpg)
-图片制作：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/09/aor0x-geazv.jpg)
+[https://gtv.org/video/id=6145e16ad2e2b817486ae118](https://gtv.org/video/id=6145e16ad2e2b817486ae118)
 
-恒大2万亿负债，涉130家银行，150家金融信托。2万亿就相当于全国GDP2%，一个房地产企业全拿走了。这2万亿买房子人付了的钱去哪了？ 2021年9月17号郭先生在直播中对恒大的庞氏骗局进行了手术刀式的精彩剖析 。
+**字幕内容:**
 
-**这是个庞氏骗局，猫腻到底在哪？**
+**郭文贵**
+**Miles Guo**
 
-*（注解：庞氏骗局，是对金融领域投资诈骗的称呼，是金字塔骗局（Pyramid scheme）的始祖。简言之就是利用新投资人的钱来向老投资者支付利息和短期回报，以制造赚钱的假象，进而骗取更多的投资）*
+谁想知道习近平行踪的秘密
+Who wants to know the secrets of Xi Jinping’s whereabouts?
 
-原处理美国雷曼兄弟的一个国际机构参与了恒大处理小组，他们光顾问费就要了3000万美元，远超当年处理雷曼兄弟时的200万美元顾问费。他们来请教郭先生恒大的猫腻到底在哪？郭先生告诉他们核心在于，100多家银行金融机构都不会说实话，说实话就等于是自杀。
+谁想知道习近平和他夫人的私人谈话
+Who wants to know the private conversation between Xi Jinping and his wife?
 
-1．恒大汽车、恒大的地产是谁评估的？不值4000亿，负4000亿还差不多。
+谁愿意掌握习近平上台以来所有的行踪和想法
+Who wants to know all the whereabouts and thoughts of Xi Jinping since he came to power?
 
-2．恒大股市价格不能作为参考资产价格，都是一帮骗子抬起来的价格，糊弄旁边的人，那都是托。
+到时候还有效
+Which will still be useful later
 
-3．所有金融机构信托、银行贷款全骗你，绝对多于这个数。
+中国还有比王岐山和孟建柱再需要的吗
+Is there anyone who would need them more than Wang Qishan and Meng Jianzhu?
+王岐山和孟建柱的结盟者
+The ally of Wang Qishan and Meng Jianzhu
 
-4．最大灾难是看不见的东西“金融票据”。
+过去竟然是最大的敌人
+was used to be their worst enemy in the past
 
-**让恒大软着陆、爆破还是救市**
+后来他当了常委
+Later on he became a member of the CCP’s Standing Committee
 
-恒大事实上是负债2万5千亿，需要要拿1万亿救；绿地需1万亿才能救；富力地产需要5000-8000亿救，玩的是国际金融、国际票据；万达还没完，还有3000多亿；融创也是5000-1万亿；保利得2000亿；广东那个姓朱（可能郭先生指的是合生创展）需要4000-5000亿左右，加一起，大概要买单5万亿现金。他（指国际机构那人）说不可能，那就崩塌了。
+他现在唯一能结盟有价值就三个人
+There are only three people that are worth to align with
 
-另一最大问题，金融票据要兑现。所有这些房地产公司还让员工买公司债，债赎回的时候，又需要5万亿，共10万亿付不付？
+韩正，韩正是第一位吧
+Han Zheng, Han Zheng is the first choice
 
-（1）     如果只付2万亿，则所有银行全倒塌；
+第二位大家猜的是谁呀
+Guess who’s the second one
 
-（2）     这些人一旦要兑现，30%利息不给，光还本钱，他说本钱最多给20%，郭先生说那就会造成社会动乱；
+第三位是谁呀
+Who’s the third one
 
-（3）     如一分不给呢？大概预估中国2.5亿人卷入了所谓内部借贷，9300万党员几乎80-90%都参与了，一人带一家，而中国城市人口才4亿。（笔者注：结果就是社会动乱加以共灭共）
+共产党内部的绞杀对我们灭共是好的
+Strangulation within the Communist Party is benefit for us to destroy the Communist Party
 
-**疯狂的票据兑水造假，恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难**
+我们希望，他们都弄死互相才好呢
+We hope it’s better that they will kill each other
 
-2014年郭先生离开北京前，蔡鄂生还牛的时候，民族证券想开牌照，给钱不行还要股份，蔡鄂生是王岐山最相信的人，王岐山把周亮送到了人民银行掌控，蔡鄂生开启了中国信托，才有了影子银行和影子金融。
+但是我们希望中国不要走向汉朝之后的乱象，十国
+But we hope that China will not go to the chaos after the Han Dynasty, the ten countries
 
-蔡鄂生给郭先生看过一个资料，（信托票据）几万亿绝不止，是几十万亿，蔡鄂生原话：“任何一张纸让美国人掌握，共产党就完蛋了。” 郭先生看完这些数据那一刻就知道：太疯狂了，我所有判断都是正确的，共产党完了。当时2014年信托票据已经是7万亿。皮特纳瓦罗是美国经济之父，下一届很可能是美国财政主席和美联储主席。他说如果任何一个票据是真的，不用打，中共也会消失的无影无踪。
+或者南唐时代
+Or like the South Tang Dynasty
 
-而这些信托票据是必须落地的，票据落地是什么概念？金融票据一年利息就按10%算都得要上万亿，今年20万亿就需要支付2-3万亿的利息，谁来支付利息？恒大、绿地、融创、保利、富力、所有大企业全会崩塌，名下资产支付过去的5年10年的庞氏骗局的利息10%-20%根本都不够。你所看到的财富都被恶性利息消化掉了，一切都是假的。恒大不论怎么折腾都拿不出来钱，不论怎么卖都卖不够钱，不管许家印整死多少，外国钱也拿不回了。作为打扫卫生出身的许家印来讲，可以要命，要钱没有，早安排好后事了。肖建华这个疯子，开假票据。虽然肖建华承认拿回去1000多亿美元现金，但是海外还有1000多亿。这1000多亿的代价是大概1万亿美元的代价。肖建华给这些人的利息是10-20%，一直在轮回支付，他拿到1000多亿美元，但他曾经支付给这些人的利息可能是5-10倍。中共金融体系内，还认为是真钱。
+我们不希望中国再回到人吃人,
+We don’t want China to return to cannibalism society
 
-中共承认的房地产总值是65万亿美元，是中共GDP的4-5倍，是美日法英德加一起的总和还多。事实上不是65万亿，是95万亿，而其中30万亿美元一直是恒大那些轮回支付的利息，及重复一次两次三次的资产抵押，只是你不知道而已，这叫真正国家金融灾难，一切都是假的。共产党的开支、预算，金融，GDP，包括M2，所有东西都列进去了，这像一个人血液里打了无数水，不可能活下去的。
+把人给剁成肉当成军粮来对付着
+Chop people into meat as military rations to deal with
 
-恒大事件会把整个中国和世界经济置入灾难境界，没有人可以救。希望共产党去救，因为救了它就得死。由于听信了远平，李伯潭（贾庆林女婿）、温家、张德江等常委，共产党对恒大进行深呼吸施救，但因为恒大是“经济冠状病毒”，只要对恒大、绿地、融创施救，它就会得上病毒。
+我们不希望看到恒大这样的企业
+We don’t want to see Evergrande such enterprise
 
-看看共产党有没有实力救。郭先生就按照共产党说的数据，中国有3万亿美元外储，其中1万亿美国国债，1万多亿美元必须放在银行（非贸易项下的），1万多亿是每年要花的，而每年要买芯片、粮食就不能低于7000亿，郭先生问：告诉我现在共产党是负资产还是正资产？
+把最普通人都给坑了
+to entrap the most ordinary people
 
-**信用票据抵押评估无限放大**
+我们希望你在我们定向爆破中倒下
+We hope you to fall down in our directional blasting
 
-我们的战友帮助肖建华做了800亿金融信托，之前在中国，票据还拿资产作抵押，之后就出现了信用作抵押。猫腻全在抵押资产评估放大十倍甚至更大，最后直接无资产无抵押，全凭信用了。
+中南坑一个也不能留
+No one can survive from Zhongnan Keng
 
-完全没有杠杆，完全假票据。玩这一套肖建华中国第一，后来才是融创和海航，然后才轮到恒大和合生创展（洗出来钱最多之一）。郭先生说：别说中国共产党，习皇党，老天爷来了都救不了这个局。民生银行、中信信托、兴业银行百分百倒闭。当时李友和江绵恒找到当时上海银行行长范一飞，一把贷出50亿。合生创展和恒大，搞一次银行签1000亿不就一张纸吗，最后没有资产抵押全靠信用。
+肯定是新中国联邦人说了算
+It must be the people of the New Federal State of China who have the final words
 
-**可悲还在下跪的看不清真相的老百姓**
+但是我们要告诉你这个消息就希望让你们知道
+But if we want to tell you this information, we want to let you know
 
-那些借给恒大钱的人还叫许家印许大大，这些人是不值得救的。皮特纳瓦罗看那些数据时说，中国人什么时候不下跪，下跪能解决问题吗？中国一个企业对老百姓的剥削超过一个国家对老百姓的剥削。随便一个房地产企业恒大就把一国年GDP的2%拿走了，合生创展拿走了1%，这世界还有这么荒唐的事吗？扫厕所的许家印一把把14亿人2%的GDP抢走了，肖建华也拿走2%GDP，如果这些人没有中南坑老杂毛在背后支持，你们能这样受骗上当吗？王岐山对段伟红说，准备好拿掉中国的国有企业，你知道王岐山是怎么对付国有企业和老百姓了吗？(笔者注：下跪的老百姓就不要指望像中南坑里的王岐山等来救你们了，醒醒吧！）
+有本事你拒绝我们这个信息
+You have the ability to reject this information from us
 
-**房地产倒了后……**
+现在正中国共产党的内部力量绝不是一股
+Right now, the internal strength of the Chinese Communist Party is not only one force
 
-房地产拉动中国就业70%，房地产倒了以后就是建筑公司、装修公司，更重要的是保险业，基石没了，整个经济黑洞出来了。因为保险机制是社会的稳定安定器，把保险丝拔了，发现紧急出口门不管用，社会就乱了。发现一吸氧没氧气，到银行拿钱也没了，这些才叫综合性金融崩塌。房地产整个行业倒下就会造成金融和就业危机，这个时候共产党就会采取极端政策，对所谓食品供应链加以控制，中国人一天消耗量占人类的六分之一，什么事都可能发生。
+也不是两股
+It’s not two forces
 
-（本文仅代表撰稿者个人观点）
+它还有一个邪恶的组织正掌控着
+It also has an evil organization in control
 
-参考连结
+习大神 你不是那个组织的
+Xi, the great god, you don’t belong to that organization
 
-1．[2021年9月17号郭文贵先生](https://gtv.org/video/id=61448b09751e4f2b0e547cad)盖特视频
+我可以基本上断定
+I can basically conclude
 
+习大神明年你20大你不可能成功
+Xi, the great god won’t be able to succeed next year when you reach the Nation-al People’s Congress of 20
 
+没有人会 这两个组织不会让你成功
+Nobody will allow it happen, these two organizations will not let you succeed
+
+王岐山孟建柱你搞不定
+Wang Qishan, Meng Jianzhu, you can’t do anything about them
+
+他两个当年能在北京能当成副总理
+The two of them were able to be vice prime ministers in Beijing
+
+再弄成常委，中纪委
+Then became a member of the Standing Committee, the Central Commission for Discipline Inspection
+
+当时温家宝，胡锦涛 虽然帮了你
+At that time, Wen Jiabao and Hu Jintao helped you
+
+但最后也帮了王岐山
+But in the end also helped Wang Qishan
+
+对吧，今天这个料很大
+Right, today I spill the beans is quite huge
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1438501402163040262?s=24](https://twitter.com/se1y7cblljselva/status/1438501402163040262?s=24)
+
+中听英: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

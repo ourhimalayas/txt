@@ -2,25 +2,36 @@
 ---
 
 
-## 默克尔的中共国幻觉终结
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1541140/)
+## 美财政部发布了对支持恐怖主义的国际金融网络的制裁措施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1541206/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+2021年09月18日
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/DWO-Teaser-AP-Kanzler-China-sk-Kopie.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-8.jpg)网络图片
+
+2021年9月17日，美国财政部外国资产控制办公室（OFAC）发布了一系列针对支持恐怖主义的国际金融网络的制裁措施。此次制裁行动认定了一个以黎巴嫩和科威特为基地、为真主党提供资金的金融渠道网络的成员。OFAC还列出了支持真主党和伊朗伊斯兰革命卫队-圣城旅（IRGC-QF）的国际金融促进者和幌子公司网络的成员。
+
+有几个与中共国有关的个人和实体被列入OFAC的制裁名单。其中，以中共国为基地的商人莫尔特萨·米纳耶·哈什米（Morteza Minaye Hashemi）利用他所能涉及国际金融体系的渠道，为IRGC-QF和真主党洗了大量的钱。哈什米得到了中共国公民颜素炫和宋静的帮助。在哈什米的指示下，他们帮助哈什米开设了银行账户，并为他的公司担任虚假产权人。颜素炫还代表哈什米购买了美国原产的两用产品，然后运往伊朗。
+
+此外，PCA香港有限公司、达明光学有限公司、中国49集团有限公司、台湾Be Charm贸易公司和Black Drop国际有限公司都被认定是由哈什米直接或间接地拥有、控制或指导的。
+
+另外两家公司，香港Victory Somo Group (HK) Limited和Yummy Be Charm Trading (HK) Limited 也被指认为由宋静直接或间接拥有、控制或指导。而哈什米对这两家公司的资金和管理进行了实质性监督。
+
+“由于今天的行动，上述个人和实体的所有财产和财产利益，以及由他们单独或与其他被封锁者直接或间接拥有50%或更多股份的任何实体，在美国或由美国人控制的人员必须被阻止并向OFAC报告。除非获得OFAC颁发的一般或特定许可证的授权，或获得其它方式豁免，否则OFAC的法规通常禁止美国人或在美国境内进行的涉及任何被指定或以其它方式阻止的财产或财产利益的所有交易人（包括过境美国的交易）。”
+
+简评：这份制裁名单是世界正义力量和邪恶势力的生死较量中的一场战斗。正如郭文贵先生在一次次直播中指出的那样，美国在行动，虽然有点慢，但在法律的框架，不制裁则已，一旦制裁就是有实锤证据的。这则公告列举出的深藏在国际金融网络中与中共有瓜葛的个人和实体，更印证了文贵先生所爆出和剖析的，中共操控的那些个人和实体，表面看上去是合规的，但实际是一个骗局套着下一个骗局，完全以虚假的手段做着非法的勾当。他们以为那一套无视国际法律秩序的流氓把戏可以一直欺骗下去，但是“骗得了一时，骗不了一世”。文贵先生引领的爆料革命和新中国联邦发出的正义之声，将中共及其黑暗势力的嘴脸一步一步的昭然于天下，唤醒人心，重归正道。
+
+新闻链接：[Treasury Sanctions International Financial Networks Supporting Terrorism](https://home.treasury.gov/news/press-releases/jy0362)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-资料来源：DPA 和世界报
+编辑：【英国伦敦喜庄园编辑部】
 
-在乔•拜登的压力下，美国的盟友正在走上艰难的反华之路。 只有安格拉•默克尔 (Angela Merkel) 对美国总统置之不理。 默克尔的任期即将结束， 这一切在德国大选后应该走向何方？ 9月26日就是德国的大选。 让我们拭目以待。
-
-关键的问题是：更具对抗性的中国政策的真正代价是什么？ 人们常说，德国在经济上过于依赖北京而无法改变方向。 毕竟，中华人民共和国是德国最重要的贸易伙伴，尤其是在汽车行业。 根据汽车研究中心的一项研究，大众、戴姆勒和宝马在全球销售的汽车中约有 38% 销往中华人民共和国。
-
-鉴于中共国经济形势的不断恶化， 这个销售额是可以持续的吗？ 中共国房地产的多米诺骨牌的第一块已经倒下， 郭先生明确的告诉我们， 恒大就是中共国的雷曼兄弟， 它的倒下将会让中共国的经济土崩瓦解，那么还有如此强大的汽车购买了吗？ 新一届政府当然要考虑这个问题， 各个车企也都有他们的经济预测师， 他们会做出正确的选择的。
-
-[https://www.welt.de/politik/ausland/plus233858656/U-Boot-Deal-mit-Australien-Das-Ende-der-deutschen-China-Illusion.html](https://www.welt.de/politik/ausland/plus233858656/U-Boot-Deal-mit-Australien-Das-Ende-der-deutschen-China-Illusion.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-*责任编辑/校对/发布： Shuizhuyu*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

@@ -2,23 +2,42 @@
 ---
 
 
-## 秘翻在线：德国医生协会呼吁取消所有州的疫情戒严措施！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1540676/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1540831/)
 
-翻译：Nstar
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-003527.jpg)
-根据德国医学报报道, 德国的全国法定医疗保险医生协会(KBV) 董事会呼吁：取消所有州的疫情戒严限制措施！
+- 编译：土饭团(文团)
 
-全国法定医疗保险医生协会向政界人士发出了一个明确的信息：根据代表会议的说法，由于所有公民现在都可以接种疫苗并保护自己免中共病毒的侵害，因此应取消所有限制。
 
-德国的医生们希望走出疫情措施的无尽循环。全国法定医疗保险医生协会董事会副主席斯蒂芬·霍夫迈斯特（Stephan Hofmeister）博士周五在柏林举行的代表会议上表示任何想通过接种疫苗来保护自己的人，现在都可以毫无问题地进行接种。因此，这不再是国家的责任，而是 “每个人的个人责任”。
+您若想了解全文报导内容，请点击标题链接
 
-霍夫迈斯特还说，接种疫苗首先是“对自己健康的决定”。政治家们也必须传达这一点。调查显示，一些人不接种疫苗是出于对政治压力的抗议。因此，”必须结束恐慌性的言论和恐慌性的政治”。
+**1.[Pompeo谈Milley将军对中国的呼吁:关于Trump最后几周的叙述“根本是错误的”](https://www.foxnews.com/media/pompeo-milley-china-calls-trump-false-narrative-attack)**
 
-KBV负责人安德烈亚斯·加森（Andreas Gassen）博士也呼吁在中共病毒辩论中应”多一点理性”。”经过一年半的危机模式，终于需要一个理性的讨论。这不应该在假设和恐惧的基础上进行，而应该以事实为导向。同时，大家都知道，”零病毒战略 “在任何地方都行不通。
+福克斯新闻9月17日电，前国务卿Mike Pompeo周五接受了“Fox & Friends”的采访，并对参谋长联席会议主席Mark Milley将军进行了抨击。他说，如果Milley答应北京在美国可能的攻击之前提醒他们，那将是“悲惨的”。他将不得不交代和解释他向中国共产党所说的话。
 
-KBV 是 17 个法定健康保险医生协会的伞式组织。它在家庭附近组织区域范围的门诊医疗保健，并代表联邦一级的合同医生和合同心理治疗师的利益。
+**2.[Austin向中国保证与英国和澳大利亚的新伙伴关系“不针对任何人”](https://www.foxnews.com/politics/austin-china-us-uk-australia-partnership)**
 
-**[信息来源](https://www.aerztezeitung.de/Politik/KBV-Vorstand-fordert-Alle-staatlichen-Corona-Massnahmen-aufheben-422893.html)**
+福克斯新闻9月16日电，Austin周四试图向中国保证，美国、英国和澳大利亚之间的最新三方协议“不针对任何人”。Austin发表上述言论的前一天，澳大利亚、英国和美国签署了一项名为AUKUS的协议，该协议使2016年法国与澳大利亚之间的潜艇协议无效。AUKUS联盟将向这个印太国家提供高度敏感的核潜艇技术–此举被广泛视为对中国在该地区活动的直接挑战。
 
-0
+**3.[共和党人就中国的数据操纵报告责问IMF总裁](https://www.bloomberg.com/news/articles/2021-09-17/republicans-slam-imf-chief-over-china-data-manipulation-report)**
+
+Bloomberg 9月17日电，共和党议员周五对国际货币基金组织总裁进行了抨击，因为有报道称她在世界银行工作时，曾向该机构的工作人员施压，要求提高中国在全球经济体排名中的地位。田纳西州参议员Bill Hagerty呼吁美国“要求问责”，称Kristalina Georgieva“策划了一个腐败计划”来操纵世界银行的营商环境报告。
+
+**4.[Blinken与英国新任外交大臣交谈，讨论阿富汗和中国问题](https://www.aninews.in/news/world/us/blinken-speaks-with-new-uk-foreign-secy-discusses-afghanistan-china20210918110232/)**
+
+ANI 9月18日电，美国国务卿Antony Blinken周五与新任命的英国外交大臣Elizabeth Truss通话，讨论了包括阿富汗、中国和伊朗等问题。此前，美国总统Joe Biden和另外两个国家的领导人于周三启动了新形成的AUKUS（澳大利亚-英国-美国）防务伙伴关系协定，该协定侧重于印太地区。
+
+**5.[美国和澳大利亚承诺加强与台湾的关系](https://www.aninews.in/news/world/asia/us-australia-pledge-to-strengthen-ties-with-taiwan20210917181620/)**
+
+ANI 9月17日电，美国和澳大利亚已经表明他们打算加强与台湾的关系，并强调支持自治岛有意义地参与国际组织，这是在美国和澳大利亚部长级磋商期间讨论的。根据会谈后的联合声明，两国秘书和部长再次强调了台湾在印太地区的重要作用。这预计会激怒中国，因为中国近来加强了对台湾的军事和外交压力。
+
+（文章仅代表作者本人观点，与Gnews无关）
+
+* * *
+
+*审核：Aries的星*
+*校对：阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+
++1
