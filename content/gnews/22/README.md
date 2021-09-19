@@ -2,22 +2,41 @@
 ---
 
 
-## 秘翻在线：中共战狼为打压大型科技公司狡辩
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541707/)
+## 美国24个州将对拜登的“异描”强制政策采取法律行动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541596/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-103.jpg)图片来源：网络截图
-据彭博社9月19日报道，周四，中共国最高监管机构与华尔街高管举行三个小时的金融圆桌会议，包括中共国人民银行行长，以及高盛集团、堡垒集团和其他华尔街实力雄厚的企业的高管。会议上中共为其扰乱市场、对各行业的打击辩护，并“保证”更严格的规则不是为了扼杀科技公司或私营部门。
+栏目记者/责任编辑：文真
 
-中国证监会副主席方星海在会议上表示，最近的行动是为了加强对拥有面向消费者的平台的公司的监管，并改善数据隐私和国家安全。针对教育和游戏行业的行动的目的是减少社会焦虑。
 
-北京针对其最大的科技公司和其他行业的监管攻势，以及习近平主席推动的“共同繁荣”，让全球投资者感到不安，华尔街面临着数十亿美元的潜在利润损失。
 
-中共政府的监管运动已从其股票市场中抹去了1.5万亿美元。腾讯上周落榜从按市值计算的世界10大公司，致使自2017年以来首次没有中共国股票上榜。阿里巴巴的股票今年已下跌超过30%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
 
-中共国务院在7月表示，将修订海外上市的规则，并对在离岸市场交易的公司进行更多的监管。对中共国科技公司为寻求海外上市而普遍打法律擦边球的行为将进行更严格的审查。所有这些都增加了投资者对世界上两个最大经济体之间更深的金融脱钩的担忧。
 
-新闻来源：[China Defends Tech Crackdown in Meeting With Wall Street Chiefs](https://www.bloomberg.com/news/articles/2021-09-18/china-defends-tech-crackdown-in-meeting-with-wall-street-chiefs)
+
+美国24位共和党州检察长联合致信拜登称，如果拜登政府不改变其疫苗政策，将对他采取法律行动。这封信是在拜登上周宣布全面的疫苗政策之后发出的，该政令包括劳工部的一项紧急规定，要求拥有100名以上员工的私营部门公司确保雇员接种冠状病毒疫苗，或进行每周一次的病毒测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/美国24个州将对拜登的异描强制政策采取法律行动.jpg)
+信中称，拜登的计划是”灾难性的、适得其反”。疫苗强制接种不仅是对个人自由的威胁，而且是一场公共卫生灾难，将使脆弱的工人流离失所，加剧全国范围内的医务人员危机，给所有美国人带来严重后果。
+
+多位共和党州长公开发表言论，反击拜登的疫苗计划。共和党全国委员会主席麦克丹尼尔说，将起诉拜登政府，以保护美国人和他们的自由。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://ago.wv.gov/Documents/AGs%27%20letter%20to%20Pres.%20Biden%20on%20vaccine%20mandate%20%28FINAL%29%20%2802715056xD2C78%29.PDF)
+2. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://www.msn.com/en-us/news/politics/24-states-threaten-legal-action-against-biden-e2-80-99s-vaccine-mandate/ar-AAOwKDx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
 
 0

@@ -2,34 +2,21 @@
 ---
 
 
-## 伊朗加入上海合作组织 FDA否决辉瑞第三针
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1541685/)
+## 媒体误导何时休？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1541801/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09151-e1631666602628.png)
+本来之前女儿说她不打疫苗，而且和妈妈一样反对疫苗，这让我提起的心放了下来。但是周五早上看了日本新闻后，我的心又提到嗓子眼，还上火疼起来了。
 
-作者：香草山翻译部
-![
-](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-18-PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+日本从自愿打疫苗到疫苗护照已经让人很惊讶了。这还是正常的国家吗？近两个月来，听到很多朋友抱怨，不打疫苗会被解雇，最后为了生活被迫去打。而周五早上媒体居然说不打疫苗的，会造成打疫苗人的困扰。我就纳闷了，你们打了疫苗已经“不得了”，还怕我们干什么？！又说“打疫苗的得病会轻”，还鼓励孕妇、未成年人也要抓紧打疫苗。当问到打疫苗也感染是什么原因呢？回答是，“因为病毒种类不一样，疫苗种类也不一样。得了是因为没把每个种类都打到。以后会考虑把这几种疫苗混合在一起在分成适合每个人的份量。”当有人担心的问：“通过动物实验再到人，时间能不能跟得上病毒的变异。”回答则是，不会进行动物实验，直接在健康人里试用，因为打了大半年都证明没有“问题”所以可以减少环节直接使用。而且还考虑半年就可以再打一次不同的疫苗。
 
-视频参看： 2021.09.18晚GTV新闻访谈
+相信了解中共病毒疫苗真相的人们对于发生在身边的真实病例都会冷汗直流。这样下去又有谁能逃过毒疫苗的伤害呢？这种枉顾人权、事实和道德的媒体何时能停止误导大众呢？巍巍可及的百姓又能逃多久呢？
 
-[https://gtv.org/broadcast/watch/6146839b42a8af3151a11a8a](https://gtv.org/broadcast/watch/6146839b42a8af3151a11a8a)
+感谢爆料革命，感谢战友的支持和鼓励才能艰难的走下去。等待早一天宣布疫苗就是毒药，是一种有组织的杀人工具。
 
-[https://www.youtube.com/watch?v=aKpABFqwdxg](https://www.youtube.com/watch?v=aKpABFqwdxg)
-
-编辑/校对/发稿：香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+（本文只代表作者观点，与GNews网站无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
 0

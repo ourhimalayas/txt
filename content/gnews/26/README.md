@@ -2,20 +2,22 @@
 ---
 
 
-## 秘翻在线：美国将对数字货币勒索软件进行制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541666/)
+## 秘翻在线：中共战狼为打压大型科技公司狡辩
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541707/)
 
-#### 翻译：Evalu
+#### 翻译：花岗岩
 校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-101.jpg)图片来源：Wikibit
-《印度教徒报》9月18日报道，根据周五《华尔街日报》的报告，拜登政府正准备作出行动，包括制裁措施，以遏制想要采用数字货币黑客手段的勒索软件获利。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-103.jpg)图片来源：网络截图
+据彭博社9月19日报道，周四，中共国最高监管机构与华尔街高管举行三个小时的金融圆桌会议，包括中共国人民银行行长，以及高盛集团、堡垒集团和其他华尔街实力雄厚的企业的高管。会议上中共为其扰乱市场、对各行业的打击辩护，并“保证”更严格的规则不是为了扼杀科技公司或私营部门。
 
-美国财政部计划最早将于下周加强制裁措施，并将针对具有与勒索软件支付系统有关联的风险出台一个新的指导意见，如罚款和其他处罚。
+中国证监会副主席方星海在会议上表示，最近的行动是为了加强对拥有面向消费者的平台的公司的监管，并改善数据隐私和国家安全。针对教育和游戏行业的行动的目的是减少社会焦虑。
 
-新的反洗钱规定和恐怖金融法规预计将在今年底出台，目标指向限制数字货币支付勒索软件攻击和其他非法活动。
+北京针对其最大的科技公司和其他行业的监管攻势，以及习近平主席推动的“共同繁荣”，让全球投资者感到不安，华尔街面临着数十亿美元的潜在利润损失。
 
-##### 新闻来源： [U.S. to target ransomware payments in cryptocurrency with sanctions](https://www.thehindu.com/sci-tech/technology/us-to-target-ransomware-payments-in-cryptocurrency-with-sanctions/article36534996.ece)
+中共政府的监管运动已从其股票市场中抹去了1.5万亿美元。腾讯上周落榜从按市值计算的世界10大公司，致使自2017年以来首次没有中共国股票上榜。阿里巴巴的股票今年已下跌超过30%。
 
+中共国务院在7月表示，将修订海外上市的规则，并对在离岸市场交易的公司进行更多的监管。对中共国科技公司为寻求海外上市而普遍打法律擦边球的行为将进行更严格的审查。所有这些都增加了投资者对世界上两个最大经济体之间更深的金融脱钩的担忧。
 
+新闻来源：[China Defends Tech Crackdown in Meeting With Wall Street Chiefs](https://www.bloomberg.com/news/articles/2021-09-18/china-defends-tech-crackdown-in-meeting-with-wall-street-chiefs)
 
 0
