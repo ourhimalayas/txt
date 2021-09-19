@@ -2,21 +2,43 @@
 ---
 
 
-## 媒体误导何时休？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1541801/)
+## 三大“异描”制药公司纷纷改名，但“异描”成分不变
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541595/)
 
-撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09151-e1631666602628.png)
-本来之前女儿说她不打疫苗，而且和妈妈一样反对疫苗，这让我提起的心放了下来。但是周五早上看了日本新闻后，我的心又提到嗓子眼，还上火疼起来了。
+栏目记者/责任编辑：正义的小新
 
-日本从自愿打疫苗到疫苗护照已经让人很惊讶了。这还是正常的国家吗？近两个月来，听到很多朋友抱怨，不打疫苗会被解雇，最后为了生活被迫去打。而周五早上媒体居然说不打疫苗的，会造成打疫苗人的困扰。我就纳闷了，你们打了疫苗已经“不得了”，还怕我们干什么？！又说“打疫苗的得病会轻”，还鼓励孕妇、未成年人也要抓紧打疫苗。当问到打疫苗也感染是什么原因呢？回答是，“因为病毒种类不一样，疫苗种类也不一样。得了是因为没把每个种类都打到。以后会考虑把这几种疫苗混合在一起在分成适合每个人的份量。”当有人担心的问：“通过动物实验再到人，时间能不能跟得上病毒的变异。”回答则是，不会进行动物实验，直接在健康人里试用，因为打了大半年都证明没有“问题”所以可以减少环节直接使用。而且还考虑半年就可以再打一次不同的疫苗。
 
-相信了解中共病毒疫苗真相的人们对于发生在身边的真实病例都会冷汗直流。这样下去又有谁能逃过毒疫苗的伤害呢？这种枉顾人权、事实和道德的媒体何时能停止误导大众呢？巍巍可及的百姓又能逃多久呢？
 
-感谢爆料革命，感谢战友的支持和鼓励才能艰难的走下去。等待早一天宣布疫苗就是毒药，是一种有组织的杀人工具。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
 
-（本文只代表作者观点，与GNews网站无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+
+据beckernews报道，继辉瑞 / BioNTech 将其“完全授权”的疫苗称为“Comirnaty”之后，欧洲和加拿大的第二和第三大制造商 Moderna 和阿斯利康也正在重新命名他们的新冠疫苗。加拿大卫生部本周四发布一条推文，称“辉瑞-BioNTech 疫苗是 Comirnaty，Moderna 疫苗将被命名为 SpikeVax，而阿斯利康疫苗将被命名为 Vaxzevria，” 加拿大卫生部强调，“这些只是更名。疫苗本身没有变化。”
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/三大异描制药公司纷纷改名，但异描成分不变.jpg)
+
+
+尽管辉瑞拥有所谓“完全授权”的疫苗，但辉瑞承认，现在市场上的辉瑞疫苗，仍然是最初根据美国紧急使用授权和加拿大临时订单授权生产的疫苗。辉瑞称“BioNTech COVID-19 疫苗的配方与 COMIRNATY 的配方相同，可以互换。鉴于当前持续的疫情，稍后将逐步过渡到使用‘所谓’ COMIRNATY 品牌名称的新标签。”也就是说，辉瑞等疫苗公司，重新命名其疫苗、并取得所谓“完全授权”，但给人们注射的疫苗却仍然是仅有紧急授权、没有被完全授权的疫苗。
+
+挂羊头卖狗肉，换汤不换药，借换名获得“完全授权”，疫苗公司可以逃避所有的责任及法律诉讼，政府也可强制民众注射毒疫苗。更可怕的是，主流媒体只字不提，全世界的政府置若罔闻，所谓医学权威专家也全体失声。世界已经到了前所未有的至暗时刻，尚未觉醒的人们也会为其愚蠢、贪婪、无知付出难以想象的代价。
+
+（本文仅代表作者观点）
+
+参考消息：[三大“异描”制药公司纷纷改名，但“异描”成分不变](https://beckernews.com/all-3-major-vaccine-companies-suddenly-have-name-changes-for-their-covid-shots-and-people-are-already-confused-41507/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
+
 0
