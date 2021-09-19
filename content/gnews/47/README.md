@@ -2,33 +2,74 @@
 ---
 
 
-## 受疫情影响导致经济危机 肯尼亚遭受次生灾害打击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542591/)
+## 论天国的仇敌：神要叫我看见我仇敌遭报
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1542613/)
 
-栏目记者/责任编辑：新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-240.png)
-濒临印度洋的东非国家肯尼亚，自新冠病毒爆发导致社会经济危机后，出现了前所未有的自杀潮。在今年3月至6月间，有近500人自我结束生命。这是2000年全年统计数字的两倍。
+作者：纽约香草山福部 – 捆绑CCP一千年
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-14.jpeg)
 
-疫情打击下，人性中阳光的一面被慢慢的消失殆尽，人们在恐慌情绪、经济压力，缺少社交，没有正常生活秩序带来的负面影响不但在肯尼亚危及人们的心理健康，病毒疫苗的灾难波及全球的每一个角落每一个人，长期得不到健康的状态，缺少良好的社会环境会导致更多的人们严重的心理疾病，自杀现象将会成为人类非正常死亡的另一个灾难。
 
-另外值得注意的是，肯尼亚横跨赤道，被认为是东非地区金融和贸易中心，蒙巴萨城市更拥有东非最大的海港。2017年加入中共“一带一路”合作计划，疫情前以出口茶叶、咖啡、钛矿及精矿，以及服装类产品为主。新冠病毒肆虐以来，包括肯尼亚在内的众多国家进入“低增长、搞债务”的困境。2021年1月，以恢复经济为目标的非洲大陆贸易区启动，除了基础设施、商业服务和旅游业以外，银行和保险正式并入重点开放领域。中非合作论坛4月发文，明确点出“中非金融合作计划”是人民币国际化的一部分，并考虑支持泛非支付平台和结算系统 (PAPSS) 建设，使每一个非洲国家可以避开美元进行跨境支付。中共还考虑中非相互发行人民币和外币债券。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-（本文仅代表作者观点）
 
-参考链接:  [Covid-19:肯尼亞忌諱話題是自殺](https://twitter.com/rfi_tradcn/status/1439340467624169475?s=21)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+- **我的　神要以慈爱迎接我。　神要叫我看见我仇敌遭报（**[**诗**](http://www.godcom.net/e/action/ShowInfo.php?classid=5&amp;id=14801)[**59:10**](http://www.godcom.net/e/action/ShowInfo.php?classid=5&amp;id=14801)**）。**
 
-终审：暗黑
-校对/发稿：谐趣园
+
+- **只搭救了那常为恶人淫行忧伤的义人罗得。（彼得后书 ****2:7****）**
+
+
+基督徒得救的确据不仅是知道自己离世后往永生国度那里去，更知道仇敌的结局就是永死。
+
+加入新中国联邦的基督徒犹如先知，最先知道仇敌CCP偷窃了美国的总统、最先知道CCP释放了病毒、最先知道疫苗的真相等等，因为，爆料革命坚持“唯真不破”。
+
+相信随着恒大集团的倒台、盛京银行、民生银行、平安集团等等都会相继破产。
+
+此时此刻，似乎没有人比新中国联邦人更了解共产党正在走向自我毁灭之路，而且是加速地冲进地狱的火湖。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210919_3.jpg)[图片来源](https://repent-pray-revival.org/2019/04/08/hades-is-the-first-death-for-sinners-lake-of-fire-is-the-second/)
+
+
+
+看呐！“他们上来遍满了全地，围住圣徒的营与蒙爱的城，就有火从天降下，烧灭了他们.。那迷惑他们的魔鬼被扔在硫磺的火湖里，就是兽和假先知所在的地方。他们必昼夜受痛苦，直到永永远远。 （[启](http://www.godcom.net/e/search/result/?searchid=373299)[20:9](http://www.godcom.net/e/search/result/?searchid=373299)[-10](http://www.godcom.net/e/search/result/?searchid=373301)）。
+
+这两句经文用来描CCP的结局再贴切不过了，他们发动全球生物战，改变人的DNA，改变神对人的创造。
+
+他们染指中东圣地，迷惑耶路撒冷——蒙爱的城，惹动上帝的愤怒，共产党的结局是越来越近了。
+
+然而，现今的我们，在参加爆料革命与CCP战斗的日子里，在这一场持续的灾难中，我们好像被围困不得释放，又常常被主的灵唤醒；好像受了逼迫，频频跌倒，又被主慈爱的右手搀扶；好像昏昏欲睡，看不见前面的危险，又常常有主慈爱双手的护佑，叫我们不经历我们力所不能及的患难。因为我们有着神儿女的身份。
+
+神说，“惟有胆怯的、不信的、可憎的、杀人的、淫乱的、行邪术的、拜偶像的和一切说谎话的，他们的分就在烧着硫磺的火湖里，”（参 [启](http://www.godcom.net/e/action/ShowInfo.php?classid=8&amp;id=31062)[21:8](http://www.godcom.net/e/action/ShowInfo.php?classid=8&amp;id=31062)）。这就是共产党永远的灭亡。
+
+但神是怜爱的神，在祂里面满了丰盛的恩典，又有公义又有忍耐。神灭掉中共国那些窃国大盗的同时必要保守祂所眷爱的人，因为，到那日，神只搭救那些“[常为恶人淫行忧伤的义人](http://www.godcom.net/e/search/result/?searchid=250088)，”
+
+义人是谁呢？不就是不愿向CCP屈膝的爆料革命战士吗？不就是一直在为遭受压迫的同胞发声、忧伤的新中国联邦人吗？
+
+同样在为受压迫的中国人忧伤的是谁呢？就是美国战略大师班农先生。他给我们看到的一场未来很可能发生的热战，或将成为第四次世界大战，（正持续的生物基因战是第三次世界大战）
+
+如果西方不吸取二战的教训，不吸取这场生物战的惨痛教训，世界性的热战就必将发生。那就是五大邪恶轴心国要联合起来，在克什米尔、在台湾，在南海与西方作战。但班农先生强调，[我们现在仍然有机会摧毁共产党的帝国机器](https://www.gettr.com/post/pbbrbm5b44)。
+
+2021年9月19日写于香草山
+
+（本文仅代表作者个人观点）
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
+
+
+
+编辑/校对/发稿：武裝的羔羊
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

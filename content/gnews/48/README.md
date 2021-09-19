@@ -2,26 +2,22 @@
 ---
 
 
-## 全球超200个城市联合发起 “为自由” 集会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542573/)
+## 揭露副作用真相后 主流媒体以隐私要挟米娜家人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542606/)
 
-栏目记者: 格格
-责任编辑：文真
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-239.png)
-9月18日，全球40多个国家的200多个城市联合发起 “为自由” 集会，来自世界不同国家、不同信仰的民众集合起来，为基本人权，为受宪法保护的自由，为结束因新冠病毒导致的强制措施，进行示威。
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-241.png)
+著名歌手尼基·米娜，在社交媒体上揭露新冠疫苗对家人的朋友造成伤害，该名受害者出现睾丸肿胀。在受到推特短暂封锁和白宫“思想教育”电话事件后，米娜在instagram上发布私人聊天截图，称因为揭露疫苗真相，家人遭到主流媒体威胁而不得不躲起来；不止她的家人，数以百万计的人们也处于类似的境遇。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-31.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-17.jpeg)
 
-这次世界范围内的联合集会行动，是由当地居民自发组织的、无关党派和政治的和平示威。示威活动将围绕新冠大流行病的主题，如强制接种疫苗、推行疫苗护照、无视医疗选择和健康自由等而进行。
+据该聊天截图显示，来自特立尼达的卫报记者沙琳·兰普萨德通过WhatsApp联系米娜的表弟，威胁他只有完成卫报的采访，才能保证其隐私不被公之于众。
 
-当各国政府正在有目的、有计划地借由新冠疫情，强制实施各种专制措施，一场国际自由运动也在世界各地蓬勃兴起。尽管新冠疫情带来了巨大的威胁，但是政府借此实施的强制措施，是经过包装的专制主义集权，是对人权的剥夺。纵观历史，人类在困难时期屡次经受死亡的考验，但最终，自由总会胜利。
+尼基·米娜事件不仅为她的粉丝打开了一扇了解疫苗真相的窗口，更使严格审查疫苗真相的媒体遭遇空前的危机。人们认识到，揭露疫苗真相，不仅自己的言论被管控，医生和专家的研究被打压，甚至明星家人都会被威胁。尽管如此，米娜仍强势回应道，”威胁我的家人，对你们可不是好兆头“。相信随着尼基·米娜事件的发酵，越来越多的人会探究并了解疫苗真相。我们也诚意邀请米娜女士进驻盖特平台，继续分享和传播疫苗真相。
 
 （本文仅代表作者观点）
 
-参考链接: [World Wide Demonstration](https://worldwidedemonstration.com)
- [今天，成千上萬澳大利亞墨爾本民眾在“自由抗議”中衝破警察防線。](https://gettr.com/post/pbh6sxf5a2)
- [瑞士人民晚上包圍國會，警察出催淚煙驅散抗爭者。 沒有人想到瑞士抗爭，升級比法國還要快！](https://gettr.com/post/pbeja9be60)
- [台灣民眾上街](https://gettr.com/post/pbgv7t3e76)
+参考链接: [Crossing the Line: Nicki Minaj Exposes the Media Mafia; Posts Private Messages From Reporters Threatening Her Family Members](https://www.thegatewaypundit.com/2021/09/crossing-line-nicki-minaj-exposes-media-mafia-posts-private-messages-reporters-threatening-family-members/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

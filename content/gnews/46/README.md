@@ -2,22 +2,23 @@
 ---
 
 
-## 揭露副作用真相后 主流媒体以隐私要挟米娜家人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542606/)
+## 加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542627/)
 
 栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-241.png)
-著名歌手尼基·米娜，在社交媒体上揭露新冠疫苗对家人的朋友造成伤害，该名受害者出现睾丸肿胀。在受到推特短暂封锁和白宫“思想教育”电话事件后，米娜在instagram上发布私人聊天截图，称因为揭露疫苗真相，家人遭到主流媒体威胁而不得不躲起来；不止她的家人，数以百万计的人们也处于类似的境遇。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-242.png)
+关于对5-11岁儿童的疫苗接种，加拿大卫生部官员表示目前正在对相关数据进行审查，预计最快将于今年年底前完成对儿童疫苗的最终审批。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-17.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-26.jpeg)
 
-据该聊天截图显示，来自特立尼达的卫报记者沙琳·兰普萨德通过WhatsApp联系米娜的表弟，威胁他只有完成卫报的采访，才能保证其隐私不被公之于众。
+据悉，辉瑞和莫德纳公司目前正在进行儿童疫苗的试验和评估。辉瑞公司发言人于近日表示，如果疫苗的安全性和免疫原性得到确认，辉瑞计划在今年年底前向加拿大卫生部提交相关数据，争取获得对5至11岁儿童疫苗的潜在授权，而且随后还将申请6个月至5岁儿童疫苗的相关授权。
 
-尼基·米娜事件不仅为她的粉丝打开了一扇了解疫苗真相的窗口，更使严格审查疫苗真相的媒体遭遇空前的危机。人们认识到，揭露疫苗真相，不仅自己的言论被管控，医生和专家的研究被打压，甚至明星家人都会被威胁。尽管如此，米娜仍强势回应道，”威胁我的家人，对你们可不是好兆头“。相信随着尼基·米娜事件的发酵，越来越多的人会探究并了解疫苗真相。我们也诚意邀请米娜女士进驻盖特平台，继续分享和传播疫苗真相。
+疫苗本身非常危险。前辉瑞副总裁耶登博士、疫苗接种和免疫联合委员会（JCVI）和众多医学专家都呼吁不要为16岁以下的儿童接种疫苗。爆料革命坚持传播疫苗真相，当加拿大家长充分意识到疫苗对孩子伤害时，一定会奋起反抗，坚决抵制毒疫苗。
 
 （本文仅代表作者观点）
 
-参考链接: [Crossing the Line: Nicki Minaj Exposes the Media Mafia; Posts Private Messages From Reporters Threatening Her Family Members](https://www.thegatewaypundit.com/2021/09/crossing-line-nicki-minaj-exposes-media-mafia-posts-private-messages-reporters-threatening-family-members/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+参考链接: [Vaccines for children aged 5 to 11 could be approved by end of year](https://thepostmillennial.com/vaccines-for-kids)
+[BioNTech to seek global approval to use its COVID-19 vaccine in 5-11 year olds: report](https://www.cbc.ca/news/health/biontech-to-seek-global-approval-to-use-its-covid-19-vaccine-in-5-11-year-olds-report-1.6171034)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
