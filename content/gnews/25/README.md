@@ -2,24 +2,41 @@
 ---
 
 
-## 美英澳安全结盟能给美国带来安全吗？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541775/)
+## 美国24个州将对拜登的“异描”强制政策采取法律行动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541596/)
 
-#### 翻译：Fluffyrabbit
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-104.jpg)图片来源：WSJ
-据大纪元报道，美国、英国和澳大利亚结成三国军事安全伙伴关系。基于此伙伴关系，美国将向澳大利亚分享其最先进的核潜艇和高科技技术。此举被解读成美国增强亚太地区对抗中共的战略部署。然而却立即激起法国为首的欧盟国家的怒火——欧盟国家的军事利益因此受损。
+栏目记者/责任编辑：文真
 
-以美国的军事实力，无论哪个军种，都是雄霸天下的。然而，当得知米利将军（Gen. Milley）居然私自与中共通电话，泄露美国军事机密，那些花亿万经费培养出来的美国尖端战斗机飞行员因为被拜登政府逼迫着打中共病毒疫苗而选择辞职，笔者的邻居（美国军人）被迫打了一针疫苗后仍然全家感染的时候，笔者认为，美国的结盟举措实属舍本逐末。
 
-中共对美国实施的是超限战。各种阴谋诡计从美国内部瓦解美国的强项、军事力量。拜登政府还没有认识到再好的武器，没有智慧的人去指挥去操作，也只能是废铁一堆。更不要说米利这样的卖国贼居然主动为敌人通风报信！
 
-难道美国最应该做的不是马上停下毒疫苗，保存美国人的有生力量？并且从内部清理像米利这样的内鬼吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
 
-眼见世界灯塔国被中共超限战打得晕头转向。陷入如此困境。居然拿不出“攘外必先安内的决策”。笔者的第二故乡就这么沉沦了吗？
 
-难道拜登政府没有听说过羟氯奎、伊维菌素和青蒿素吗？只有人保住了健康，才能用好先进的武器啊！
 
-参考链接：[https://www.epochtimes.com/gb/21/9/18/n13242980.htm](https://www.epochtimes.com/gb/21/9/18/n13242980.htm)
+美国24位共和党州检察长联合致信拜登称，如果拜登政府不改变其疫苗政策，将对他采取法律行动。这封信是在拜登上周宣布全面的疫苗政策之后发出的，该政令包括劳工部的一项紧急规定，要求拥有100名以上员工的私营部门公司确保雇员接种冠状病毒疫苗，或进行每周一次的病毒测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/美国24个州将对拜登的异描强制政策采取法律行动.jpg)
+信中称，拜登的计划是”灾难性的、适得其反”。疫苗强制接种不仅是对个人自由的威胁，而且是一场公共卫生灾难，将使脆弱的工人流离失所，加剧全国范围内的医务人员危机，给所有美国人带来严重后果。
+
+多位共和党州长公开发表言论，反击拜登的疫苗计划。共和党全国委员会主席麦克丹尼尔说，将起诉拜登政府，以保护美国人和他们的自由。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://ago.wv.gov/Documents/AGs%27%20letter%20to%20Pres.%20Biden%20on%20vaccine%20mandate%20%28FINAL%29%20%2802715056xD2C78%29.PDF)
+2. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://www.msn.com/en-us/news/politics/24-states-threaten-legal-action-against-biden-e2-80-99s-vaccine-mandate/ar-AAOwKDx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
 
 0

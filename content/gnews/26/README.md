@@ -2,43 +2,24 @@
 ---
 
 
-## 三大“异描”制药公司纷纷改名，但“异描”成分不变
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541595/)
+## 美英澳安全结盟能给美国带来安全吗？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541775/)
 
-栏目记者/责任编辑：正义的小新
+#### 翻译：Fluffyrabbit
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-104.jpg)图片来源：WSJ
+据大纪元报道，美国、英国和澳大利亚结成三国军事安全伙伴关系。基于此伙伴关系，美国将向澳大利亚分享其最先进的核潜艇和高科技技术。此举被解读成美国增强亚太地区对抗中共的战略部署。然而却立即激起法国为首的欧盟国家的怒火——欧盟国家的军事利益因此受损。
 
+以美国的军事实力，无论哪个军种，都是雄霸天下的。然而，当得知米利将军（Gen. Milley）居然私自与中共通电话，泄露美国军事机密，那些花亿万经费培养出来的美国尖端战斗机飞行员因为被拜登政府逼迫着打中共病毒疫苗而选择辞职，笔者的邻居（美国军人）被迫打了一针疫苗后仍然全家感染的时候，笔者认为，美国的结盟举措实属舍本逐末。
 
+中共对美国实施的是超限战。各种阴谋诡计从美国内部瓦解美国的强项、军事力量。拜登政府还没有认识到再好的武器，没有智慧的人去指挥去操作，也只能是废铁一堆。更不要说米利这样的卖国贼居然主动为敌人通风报信！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
+难道美国最应该做的不是马上停下毒疫苗，保存美国人的有生力量？并且从内部清理像米利这样的内鬼吗？
 
+眼见世界灯塔国被中共超限战打得晕头转向。陷入如此困境。居然拿不出“攘外必先安内的决策”。笔者的第二故乡就这么沉沦了吗？
 
+难道拜登政府没有听说过羟氯奎、伊维菌素和青蒿素吗？只有人保住了健康，才能用好先进的武器啊！
 
-据beckernews报道，继辉瑞 / BioNTech 将其“完全授权”的疫苗称为“Comirnaty”之后，欧洲和加拿大的第二和第三大制造商 Moderna 和阿斯利康也正在重新命名他们的新冠疫苗。加拿大卫生部本周四发布一条推文，称“辉瑞-BioNTech 疫苗是 Comirnaty，Moderna 疫苗将被命名为 SpikeVax，而阿斯利康疫苗将被命名为 Vaxzevria，” 加拿大卫生部强调，“这些只是更名。疫苗本身没有变化。”
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/三大异描制药公司纷纷改名，但异描成分不变.jpg)
-
-
-尽管辉瑞拥有所谓“完全授权”的疫苗，但辉瑞承认，现在市场上的辉瑞疫苗，仍然是最初根据美国紧急使用授权和加拿大临时订单授权生产的疫苗。辉瑞称“BioNTech COVID-19 疫苗的配方与 COMIRNATY 的配方相同，可以互换。鉴于当前持续的疫情，稍后将逐步过渡到使用‘所谓’ COMIRNATY 品牌名称的新标签。”也就是说，辉瑞等疫苗公司，重新命名其疫苗、并取得所谓“完全授权”，但给人们注射的疫苗却仍然是仅有紧急授权、没有被完全授权的疫苗。
-
-挂羊头卖狗肉，换汤不换药，借换名获得“完全授权”，疫苗公司可以逃避所有的责任及法律诉讼，政府也可强制民众注射毒疫苗。更可怕的是，主流媒体只字不提，全世界的政府置若罔闻，所谓医学权威专家也全体失声。世界已经到了前所未有的至暗时刻，尚未觉醒的人们也会为其愚蠢、贪婪、无知付出难以想象的代价。
-
-（本文仅代表作者观点）
-
-参考消息：[三大“异描”制药公司纷纷改名，但“异描”成分不变](https://beckernews.com/all-3-major-vaccine-companies-suddenly-have-name-changes-for-their-covid-shots-and-people-are-already-confused-41507/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
+参考链接：[https://www.epochtimes.com/gb/21/9/18/n13242980.htm](https://www.epochtimes.com/gb/21/9/18/n13242980.htm)
 
 0

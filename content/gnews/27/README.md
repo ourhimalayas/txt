@@ -2,10 +2,10 @@
 ---
 
 
-## 涉嫌内幕交易和市场操纵 美国扩大对币安的审查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541594/)
+## 三大“异描”制药公司纷纷改名，但“异描”成分不变
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541595/)
 
-栏目记者/责任编辑：一花一世界
+栏目记者/责任编辑：正义的小新
 
 
 
@@ -13,23 +13,23 @@
 
 
 
-9月17日彭博社报道：美国当局正在扩大对币安的调查，审查可能的内幕交易和市场操纵，该迹象表明针对这一全球最大加密货币交易所的审查正在逐步加强。据悉，美国官员一直在调查币安及其员工，是否乘职务之便利用顾客而获利。调查人员最近几周在接触潜在的证人。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/涉嫌内幕交易和市场操纵-美国扩大对币安的审查.jpg)
-币安并不基于任何国家，却运营着庞大的百万笔交易业务，日常客户可在监督之外买卖价值几百亿美元的数字代币。美国当局质疑该公司违规使用相应权限。越来越多的国家要求该公司及其附属机构停止在其境内提供服务，声称他们缺乏适当的许可证：今年7月份，币安在新加坡、泰国和开满群岛也受到当局审查。据彭博社报道，在美国，司法部和国税局已经就币安是否成为洗钱和逃税的渠道展开了刑事调查。
+据beckernews报道，继辉瑞 / BioNTech 将其“完全授权”的疫苗称为“Comirnaty”之后，欧洲和加拿大的第二和第三大制造商 Moderna 和阿斯利康也正在重新命名他们的新冠疫苗。加拿大卫生部本周四发布一条推文，称“辉瑞-BioNTech 疫苗是 Comirnaty，Moderna 疫苗将被命名为 SpikeVax，而阿斯利康疫苗将被命名为 Vaxzevria，” 加拿大卫生部强调，“这些只是更名。疫苗本身没有变化。”
 
-美国商品期货交易委员会（CFTC）在芝加哥对币安的调查的内容包括：币安是否让美国居民交易与比特币和其他虚拟代币相关的衍生品。关于币安试图允许美国顾客在其平台注册，委员会成员表明，已经寻求其他联邦机构分享币安的内部数据和通信。币安没有在美国当局注册，这意味着它应该禁止受美国监管的衍生品。
 
-华盛顿对加密货币的快速增长感到震惊，财政部、美联储和证券交易委员会等机构，都越来越担心加密货币市场成为非法活动的温床。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/三大异描制药公司纷纷改名，但异描成分不变.jpg)
+
+
+尽管辉瑞拥有所谓“完全授权”的疫苗，但辉瑞承认，现在市场上的辉瑞疫苗，仍然是最初根据美国紧急使用授权和加拿大临时订单授权生产的疫苗。辉瑞称“BioNTech COVID-19 疫苗的配方与 COMIRNATY 的配方相同，可以互换。鉴于当前持续的疫情，稍后将逐步过渡到使用‘所谓’ COMIRNATY 品牌名称的新标签。”也就是说，辉瑞等疫苗公司，重新命名其疫苗、并取得所谓“完全授权”，但给人们注射的疫苗却仍然是仅有紧急授权、没有被完全授权的疫苗。
+
+挂羊头卖狗肉，换汤不换药，借换名获得“完全授权”，疫苗公司可以逃避所有的责任及法律诉讼，政府也可强制民众注射毒疫苗。更可怕的是，主流媒体只字不提，全世界的政府置若罔闻，所谓医学权威专家也全体失声。世界已经到了前所未有的至暗时刻，尚未觉醒的人们也会为其愚蠢、贪婪、无知付出难以想象的代价。
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](https://www.bloomberg.com/news/articles/2021-09-17/u-s-s-binance-probe-expands-to-examine-possible-insider-trading)
-2. [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](https://fortune.com/2021/09/17/binance-probe-examine-possible-insider-trading/)
+参考消息：[三大“异描”制药公司纷纷改名，但“异描”成分不变](https://beckernews.com/all-3-major-vaccine-companies-suddenly-have-name-changes-for-their-covid-shots-and-people-are-already-confused-41507/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
 
-终审编辑：暗黑
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -39,6 +39,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
 
 0
