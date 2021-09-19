@@ -103,29 +103,29 @@
 ### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [DC每日热点0919](/content/gnews/31/README.md)
+### [债务问题或引发经济灾难](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
+
+### [DC每日热点0919](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/32/README.md)
+### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/33/README.md)
  ` xiaobaige`
 
-### [打折、实物兑付能拯救恒大吗？](/content/gnews/33/README.md)
+### [打折、实物兑付能拯救恒大吗？](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/34/README.md)
+### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/35/README.md)
+### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [日相候选人纷纷向中共展示强硬态度](/content/gnews/36/README.md)
+### [日相候选人纷纷向中共展示强硬态度](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [三星撤了，中国梦也该断了](/content/gnews/37/README.md)
+### [三星撤了，中国梦也该断了](/content/gnews/38/README.md)
  ` 银河勇气之星`
-
-### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/38/README.md)
- ` wenwu`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
