@@ -14,6 +14,8 @@
 ---
 ## 頁面 8/34 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [34](/content/README-34.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版： 郭先生2020年6月15日直播-跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/content/2020/06/20200619-1125909043318608744.md)
+
 [文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权](/content/2020/06/20200616-5878015194273820578.md)
 
 [文字版:2020年6月13日郭先生连线江财神畅谈喜马拉雅农场和新中国联邦的未来](/content/2020/06/20200616-1167287562234062263.md)
@@ -61,8 +63,6 @@
 [文字版:郭先生5月14日GTV直播](/content/2020/05/20200518-4909626383559328893.md)
 
 [文字版：5月10日郭先生GTV直播连线文欣](/content/2020/05/20200516-5917193876811912006.md)
-
-[文字版：5月11日郭先生GTV直播连线长岛伟哥](/content/2020/05/20200516-6242836971583369231.md)
 
 
 ## 頁面 8/34 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [34](/content/README-34.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

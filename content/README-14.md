@@ -14,6 +14,8 @@
 ---
 ## 頁面 14/34 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [34](/content/README-34.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月1日郭先生报平安直播](/content/2019/12/20191203-2633135332131965317.md)
+
 [文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
 
 [文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/2019/12/20191201-3479974122524096649.md)
@@ -61,8 +63,6 @@
 [文字版：2019年11月6日文贵与路德直播 ](/content/2019/11/20191108-3252264516615100238.md)
 
 [文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/content/2019/11/20191108-5173281267885078042.md)
-
-[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/content/2019/11/20191107-407016786599015158.md)
 
 
 ## 頁面 14/34 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [34](/content/README-34.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
