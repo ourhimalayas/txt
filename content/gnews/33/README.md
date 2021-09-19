@@ -2,25 +2,49 @@
 ---
 
 
-## 最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1542675/)
+## 联合国大会高级别会议召开在即 新疆人权问题引关注
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1542498/)
 
-#### 翻译整理/简评：            意大利罗马达芬奇农场          小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Schermata-2021-09-18-alle-23.38.19.png)
-图片来源：Il Fatto Quotidiano
+作者：香草山教育部-飞虹
 
-卡布列雷•卡查尼， 61岁，9月17日死于中共病毒。作为救护车司机，他早在去年12月27日新冠疫苗接种日便接种了第一剂辉瑞疫苗，自这一天起， 意大利便开启了全民接种新冠疫苗的活动。今年1月中旬， 他接种了第二剂辉瑞疫苗。卡布列雷还常常进行核酸检测。据当地报纸推测，他很有可能是在工作地点染上病毒的。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-与他同时染上新冠病毒的还有卡布列雷的兄弟，他们是同事。卡布列雷是在开始感觉呼吸困难的时候察觉染上病毒的。
 
-刚开始病情似乎很稳定，不久却急剧恶化直至死亡。
 
-这是最早一批接种辉瑞疫苗的意大利医务工作者。卡布列雷的死亡让我们不禁会问：媒体和病毒专家不是说打了疫苗之后不会再感染病毒吗？ 媒体不是告诉百姓即使感染病毒也只是轻症，不会死亡吗？卡布列雷只是众多打了疫苗后仍然被感染的一例，这会使相关专家以疫苗效力减弱为借口，开打第三剂，第四剂疫苗……媒体很有可能是在为加强针做舆论铺垫。文贵先生也说过在第二剂疫苗注射后的六个月以后，疫苗的灾难性会逐渐显现出来。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/联合国大会高级别会议召开在即-新疆人权问题引关注.jpg)图片来源：网络
 
-原文链接：https://www.ilrestodelcarlino.it/ravenna/cronaca/gabriele-gazzani-covid-1.6814036
+9月21日，联合国大会第76届会议高级别会议将在纽约举行，届时，数十个国家的领导人和外长将亲自到场参加会议。
 
-免责声明， 本文只代表作者观点，与Gnews平台无关
+总部设在纽约的非政府组织人权观察9月17日发表声明，要求各国领导人向侵犯人权的政府发出警告，他们必须为自己犯下的“严重侵犯人权”的罪行承担责任。
 
-责任编辑/校对/发布： Xiao  baige
+针对新疆问题，人权观察呼吁世界领导人敦促联合国对中共迫害维吾尔穆斯林和突厥族穆斯林的有关指控展开调查。他们认为，中共在新疆犯下的罪行等同于反人类罪。
+
+9月13日，联合国人权事务高级专员公署的工作人员在联合国人权理事会48届会议开幕式上表示，该机构自2018年以来就要求不受限制地进入新疆，但到目前为止并没有按照公署的要求获得批准。目前，已有多个联合国人权机制对2018年以来新疆人权状况进行评估，人权观察和国际特赦组织等还指控中共任意拘留超过一百万维吾尔人和其他穆斯林少数民族。公署正在完成对有关该地区严重侵犯人权指控的评估，并表示会将结论公之于众。
+
+另外，针对希尔顿在中共国被铲平的清真寺旧址上新建酒店的计划，美国伊斯兰关系委员会等组织于9月16日在华盛顿“首都希尔顿”酒店外面举行新闻发布会，予以抵制。
+
+参考链接：
+
+[人权团体呼吁联合国大会采取行动 解决新疆人权危机](https://www.voachinese.com/a/UN-calls-world-leaders-should-address-rights-crises-20210917/6232971.html)
+
+[联合国即将公开的新疆人权评估为各国政府加强行动提供基础](https://www.voachinese.com/a/un-human-rights-xinjiang-20210917/6233762.html)
+
+[希尔顿拟在中国被拆清真寺旧址兴建酒店，美最大穆斯林民权组织联合40余家团体呼吁全球抵制](https://www.voachinese.com/a/Muslim-boycott-Hilton-china-project-20210917/6233745.html)
+
+校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0
