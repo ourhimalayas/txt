@@ -28,14 +28,14 @@
 ### [CCP百年百罪 第十八集（74 – 76罪）](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [担心CCP绑架中国人成为世界敌人的图谋](/content/gnews/6/README.md)
+### [2021/09/17文贵先生直播精要](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [GTV与SEC和解 纳瓦罗加入新中国联邦](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [担心CCP绑架中国人成为世界敌人的图谋](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [投资1000竟敢张口要50万？](/content/gnews/7/README.md)
- ` 纽约香草山MOS03`
-
-### [文·贵天成——文贵先生谈“恒大许家印”（一）](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [中共在质疑声中启动疫苗加强针接种](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
@@ -85,47 +85,47 @@
 ### [有声|国安法影响下香港教师现离职潮](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [WORLD WIDE RALLY FOR FREEDOM 我的身体，我做主—— 全球联合大集会温哥华站](/content/gnews/25/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：打疫苗者感染Delta变种病毒的风险是自然感染者的13倍](/content/gnews/26/README.md)
+### [秘翻在线: 中共国疫苗完全接种人数逾10亿](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美卫生保健部人士爆料：禁止医生用硫酸羟氯喹和伊维菌素给新冠患者治病](/content/gnews/27/README.md)
+### [WORLD WIDE RALLY FOR FREEDOM 我的身体，我做主—— 全球联合大集会温哥华站](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：中共再次打压台湾 暂停进口台湾水果释迦和莲雾](/content/gnews/28/README.md)
+### [秘翻在线：打疫苗者感染Delta变种病毒的风险是自然感染者的13倍](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纽约时代广场现大量人群抗议强制政策](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [债务问题或引发经济灾难](/content/gnews/31/README.md)
+### [美卫生保健部人士爆料：禁止医生用硫酸羟氯喹和伊维菌素给新冠患者治病](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0919](/content/gnews/32/README.md)
+### [秘翻在线：中共再次打压台湾 暂停进口台湾水果释迦和莲雾](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [纽约时代广场现大量人群抗议强制政策](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [香港职工会联盟宣布解散](/content/gnews/31/README.md)
+ ` 纽约香草山MOS02`
+
+### [债务问题或引发经济灾难](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [DC每日热点0919](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/33/README.md)
+### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/34/README.md)
  ` xiaobaige`
 
-### [打折、实物兑付能拯救恒大吗？](/content/gnews/34/README.md)
+### [打折、实物兑付能拯救恒大吗？](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/35/README.md)
+### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/36/README.md)
+### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [日相候选人纷纷向中共展示强硬态度](/content/gnews/37/README.md)
+### [日相候选人纷纷向中共展示强硬态度](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [三星撤了，中国梦也该断了](/content/gnews/38/README.md)
- ` 银河勇气之星`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -166,21 +166,21 @@
 ### [9/19/21 香港快讯 职工盟成员收讯息 继续营运人身安全或受威胁 下月开会商议解散](/content/gnews/51/README.md)
  ` 英喜-粵語組`
 
-### [论天国的仇敌：神要叫我看见我仇敌遭报](/content/gnews/52/README.md)
+### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
+
+### [论天国的仇敌：神要叫我看见我仇敌遭报](/content/gnews/53/README.md)
  ` 纽约香草山MOS03`
 
-### [揭露副作用真相后 主流媒体以隐私要挟米娜家人](/content/gnews/53/README.md)
+### [揭露副作用真相后 主流媒体以隐私要挟米娜家人](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [受疫情影响导致经济危机 肯尼亚遭受次生灾害打击](/content/gnews/54/README.md)
+### [受疫情影响导致经济危机 肯尼亚遭受次生灾害打击](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/55/README.md)
+### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [高端芯片，21世纪的石油](/content/gnews/56/README.md)
+### [高端芯片，21世纪的石油](/content/gnews/57/README.md)
  ` 纽约香草山MOS03`
-
-### [《爆料革命》](/content/gnews/57/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

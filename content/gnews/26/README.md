@@ -2,49 +2,65 @@
 ---
 
 
-## 秘翻在线：打疫苗者感染Delta变种病毒的风险是自然感染者的13倍
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1542707/)
+## WORLD WIDE RALLY FOR FREEDOM 我的身体，我做主—— 全球联合大集会温哥华站
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1542749/)
 
-撰稿：青衣
+作者：香草山健身部 – 格格
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+2021年9月18日下午，在加拿大西部哥伦比亚省温哥华市中心艺术馆广场前，举行了一场盛大集会，人们为“言论自由，行动自由，选择自由，集会自由”而走上街头。此次活动是全球超过40个国家，超过200个城市的全球联合大集会。
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230836.jpg)
-以色列作为全球中共病毒疫苗接种率最高的国家之一，近期疫情却再度飙升，本周更是创下感染人数新高。近期，以色列的一项研究发现，打疫苗者对Delta变种的突破感染风险，是曾经自然感染中共病毒者的13倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Untitled.001-5.jpeg)
 
-据《大纪元》9月18日报道，今年6月以来，Delta变种已成为以色列主要的病毒株。截止至8月底，以色列78%的12岁及以上的人群都接种了中共病毒疫苗。然而，根据“Our World in Data”的数据显示，截至9月4日这一周，以色列感染率居全球最高，每百万人口病例数达到了1091例；而本周更是创下了该国感染人数纪录。
+我居住在这里，为了维护基本人权，为了自由发声，为了早日结束因CCP病毒，政府强制实施的疫苗护照政策，积极响应集会，身体力行！
 
-以色列马卡比医疗集团（Maccabi Healthcare Services）和特拉维夫大学（Tel Aviv University）的研究人员做了一项研究，探究疫苗保护力和自然感染保护力的强度和持久性。该研究已发表在MedRxiv预印本平台上。
+![](https://cdn.discordapp.com/attachments/799528922562691143/889011822148071454/image0.jpg)
 
-研究团队利用医疗保健服务资料库数据，跟踪观察从今年6月1日到8月14日，80万16岁以上以色列民众的健康状况。他们把人群分为三组：第一组是打了两剂辉瑞疫苗的人；第二组是曾经自然感染过中共病毒没接种疫苗的人；第三组是曾经自然感染过中共病毒但接种了一剂疫苗的人。其中，“自然感染”指的是曾经感染过中共病毒而体内产生了保护性抗体。
+集会的演讲部分，有警察、医生、护士和特别嘉宾发言，演讲者谴责政府违宪，侵犯他们的自由和权利，因为人们开始意识到疫苗护照将如何改变他们的生活，人们需要前所未有的聚集起来，走上街头，反对我们从未有过的授权和护照！期间抗议者次序井然沿着街区游行，然后返回原地，集会演讲继续。
 
-研究人员对三组人群分别评估了感染、有症状感染和重症住院的情况。
+![](https://cdn.discordapp.com/attachments/799528922562691143/889012326672519238/image1.png)
 
-** 1~2****月接种疫苗的人**** vs 1~2****月自然感染中共病毒的人**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230857.jpg)图片来源：MedRxiv
-在这两组人群中，打了2剂疫苗的人发生突破性感染Delta变种的风险，是自然感染者的13.06倍！
+![](https://cdn.discordapp.com/attachments/799528922562691143/889012327033233438/image2.jpg)
 
-而在这其中，出现发烧、咳嗽等症状的，打两剂疫苗的比例更高。数据显示，打了2剂疫苗的人，出现有症状感染的风险是自然感染的27.02倍！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230913.jpg)图片来源：MedRxiv
-** 1****~****2****月接种疫苗的人**** vs ****去年～今年****2****月前感染中共病毒的人**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230935.jpg)图片来源：MedRxiv
-无论是打疫苗还是自然感染，产生的免疫力都会随着时间而减弱。所以，研究人员又做了一组比较。他们比较了今年1～2月接种疫苗的人和更早之前自然感染过中共病毒的人，如2020年就自然感染过中共病毒的人群。
+让我非常自豪的是，现场到处能见到咱们新中国联邦战友的身影，新中国联邦的旗帜无处不在。战友们有的发宣传单张；有的做GTV现场直播；有的向人们传播病毒和疫苗真相，传播新中国联邦人为解救全人类揭秘病毒疫苗解药。爆料革命战友整体精神面貌积极向上，现场气氛热烈感人。
 
-统计数据显示，在更早时间自然感染中共病毒的人，免疫力经过较长时间的消退后，发生感染的风险比打了2剂疫苗的人低5.96倍。
+![](https://cdn.discordapp.com/attachments/799528922562691143/889014725738889266/image0.png)
 
-**重症风险比较**
+最让我感动的是咱们香草山农场的tiger战友，从隔壁省不辞辛苦，长途开车带着一家祖孙三代来参加这次大集会。他们一家人用行动来支持郭先生领导的爆料革命，使我发至内心地尊敬tiger战友，同时也激励自己，努力传播，行动！行动！行动！
 
-研究人员还比较了两组人的重症风险。他们发现，打了2剂疫苗的人出现重症的风险是自然感染者的8.06倍！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230955.jpg)图片来源：MedRxiv
-以色列的研究专家强调，这项研究不是让人们去感染中共病毒以获得免疫，而是显示人体自身免疫力的潜力。目前已有不少医学专家都指出，如果没有推进疫苗接种，在自然免疫下，中共病毒疫情或许已经完全得到控制。
+![](https://cdn.discordapp.com/attachments/799528922562691143/889016270245203968/image0.jpg)
 
-此前，美国国家过敏和传染病研究所所长安东尼‧福奇（Anthony Fauci）博士在演讲中曾经多次提到，疫苗产生的免疫力比人体自然感染产生的免疫力更强。然而，以色列的这份研究报告彻底颠覆了福奇的言论。
+![](https://cdn.discordapp.com/attachments/799528922562691143/889014905288687627/image0.png)
 
-如今，无论是以色列还是世界多国再度升温的疫情都足以证明，疫苗根本不是解决中共病毒疫情的有效手段。反而是，疫苗加速了中共病毒变种出现的速度和强度。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-246.png)
 
-爆料革命已经向全世界揭露了疫苗真相：疫苗就是中共病毒邪恶计划的一部分，疫苗的伤害远超过病毒本身！疫苗就是对人类的一场另类大屠杀，全世界必须立刻停止接种疫苗！
+![](https://cdn.discordapp.com/attachments/799528922562691143/889015145920098425/image0.jpg)
 
-**[新闻链接](https://twitter.com/dajiyuan/status/1439494470530125824)**
+![](https://cdn.discordapp.com/attachments/799528922562691143/889015267521351720/image0.jpg)
 
-* * *
+![](https://cdn.discordapp.com/attachments/799528922562691143/889014922514694144/image0.png)
 
-0
+![](https://cdn.discordapp.com/attachments/799528922562691143/889015456114020382/image0.jpg)![](https://cdn.discordapp.com/attachments/799528922562691143/889015457879826552/image1.jpg)![](https://cdn.discordapp.com/attachments/799528922562691143/889015729763024916/image0.jpg)
+
+![](https://cdn.discordapp.com/attachments/799528922562691143/889016061117231104/image0.jpg)
+
+![](https://cdn.discordapp.com/attachments/799528922562691143/889012326324387851/image0.jpg)
+
+
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
++2

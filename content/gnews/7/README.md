@@ -2,52 +2,32 @@
 ---
 
 
-## 投资1000竟敢张口要50万？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1542505/)
+## GTV与SEC和解 纳瓦罗加入新中国联邦
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1543140/)
 
-纽约香草山福音部 – Jeffery Ocampo
+作者：香草山翻译部
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+![GTV与SEC达成和解。皮特·纳瓦罗   先生正式成为新中共联邦国家大使。9月17日，是马丁·班农先生的百岁生日。新中国联邦的祝贺马丁·班农先生生日快乐！福如东海，寿比南山！](https://assets.gnews.org/wp-content/uploads/2021/09/0918-text-CN.png)
+文章仅代表作者本人观点，与Gnews无关
 
+编辑：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+校对：Stay文苑
 
+发稿：Stay文苑
 
-
-五月花农场战友如水女士在2021年8月18日的GTV真人真事节目中透露，某“战友”捐款法治基金1美金，投资G系列1000美金，却要求农场担保借款给他50万人民币！当农场表示无法提供担保，婉拒其不合理要求后，其竟然不管不顾地对农场横加指责。且不论该“战友”仅仅是因为大头症，还是他本來就是CCP派来捣乱的潜伏者，笔者纳闷的是，究竟是怎样不要脸的人才能提出如此要求？
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210919_1.jpg)（如水战友在GTV真人真事直播节目中）
-
-
-
-如水女士为众多战友熟知，这可能与她对账的认真高效，以及提前准备并向全球农场和众多战友寄送治疗CCP病毒的药物等事分不开。与如水战友及五月花农场救人不图名、救人不图利相比，不知道该大头症的所谓“战友”是否曾经有过那么一点点的羞愧？
-
-郭文贵先生在直播中多次透露，太多战友，尤其是1300把老椅子大额投资者，均多次表示自己支持爆料革命并不是为了得到什么资金上的回报，而是为了正义，为了自己，为了同胞也为了子孙后代能够呼吸自由的空气而消灭CCP这个恶魔。与众多连文贵先生都被多次深深感动的战友相比，不知道这位所谓的大头症“战友”是否有过那么一点点的汗颜？
-
-爆料革命是一场看不见硝烟的战争，与为了爆料CCP将在香港大开杀戒而入狱的大校战友相比，与为了搭救战友而被打掉牙并被强行注射CCP毒疫苗的山西夫妇战友相比，与勇敢爆料CCP病毒真相及解药并留下遗书的科学家战友相比，与众多不知名却默默奉献、甚至为爆料革命牺牲了性命的战友相比，不知道这位大头症的所谓“战友”曾经做了些什么？你如此无理要求并不断指责如水战友，良心是否不安？你是否还有良心？
-
-笔者认为，这个所谓的”战友”是CCP派来搅局的潜伏者的可能性非常大，否则真的无法理解捐款法治基金1美金的做法，也无法理解投资G系列1000美金却要求农场提供50万人民币的行为。这个所谓的“战友”，笔者仅代表笔者个人，不管你身份究竟如何，如果你支持爆料革命和新中国联邦，欢迎你一起共同走向喜马拉雅。但如果你是来捣乱的，请认真地思考一下，你是真的乐意继续生活在CCP的奴役之下，甘愿自己和子孙后代继续被CCP蹂躏吗？
-
-爆料革命欢迎真战友，不问贫富、不问出身、不问过往、不问贡献大小，只需尽自己的一份力量。对于领了CCP狗粮，来爆料革命和新中国联邦搞破坏的五毛们和各种潜伏者们，也衷心地祝福你们能早日认清CCP的邪恶，如果你们不站在正道主义的一边，爆料革命不会强求，你们完全可以优雅地离开。如若不然，这里也只想提醒一句，这几年来，在爆料革命、新中国联邦、郭文贵先生以及所有战友面前， CCP是一路惨败的，当CCP要放弃你们这些棋子中的任何一个时，通常的作法是痛打落水狗！别忘了在CCP的眼中你只是一条狗而已。
-
-（本文仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
+**更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)**
 
 
-
-编辑/校对/发稿：武裝的羔羊
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
