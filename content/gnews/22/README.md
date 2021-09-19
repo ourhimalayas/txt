@@ -2,26 +2,22 @@
 ---
 
 
-## 全球超200个城市联合发起 “为自由” 集会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542573/)
+## 纽约时代广场现大量人群抗议强制政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542651/)
 
-栏目记者: 格格
-责任编辑：文真
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-239.png)
-9月18日，全球40多个国家的200多个城市联合发起 “为自由” 集会，来自世界不同国家、不同信仰的民众集合起来，为基本人权，为受宪法保护的自由，为结束因新冠病毒导致的强制措施，进行示威。
+栏目记者/责任编辑:文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-243.png)
+福克斯新闻报道，周六数百上千名民众走上纽约时代广场，抗议纽约市关于接种冠状病毒疫苗的强制政策。 推特等社交平台上发出了多个现场活动的视频。抗议者挥舞着旗帜和标语，许多人高呼反对强制接种疫苗，可以清楚听到“自由”和“我的身体我的选择”等口号。期间一位女士走上舞台，说自己对于拜登失去了耐心，人群更以强烈的抗议声表示赞同，以及对目前政府的所作所为已忍无可忍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-31.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide9-1.jpeg)
 
-这次世界范围内的联合集会行动，是由当地居民自发组织的、无关党派和政治的和平示威。示威活动将围绕新冠大流行病的主题，如强制接种疫苗、推行疫苗护照、无视医疗选择和健康自由等而进行。
+这次抗议是”全球自由集会”的一部分。组织者声称，将通过制作自己的媒体来抵制主流媒体广泛的宣传，不会屈服于强制疫苗的做法，不会接受科学和医学的猖獗政治化。
 
-当各国政府正在有目的、有计划地借由新冠疫情，强制实施各种专制措施，一场国际自由运动也在世界各地蓬勃兴起。尽管新冠疫情带来了巨大的威胁，但是政府借此实施的强制措施，是经过包装的专制主义集权，是对人权的剥夺。纵观历史，人类在困难时期屡次经受死亡的考验，但最终，自由总会胜利。
+随着爆料革命的推动和疫苗问题的显现，越来越多的民众意识到强制接种疫苗的危害性，毅然走上街头抗议疫苗暴政。
 
 （本文仅代表作者观点）
 
-参考链接: [World Wide Demonstration](https://worldwidedemonstration.com)
- [今天，成千上萬澳大利亞墨爾本民眾在“自由抗議”中衝破警察防線。](https://gettr.com/post/pbh6sxf5a2)
- [瑞士人民晚上包圍國會，警察出催淚煙驅散抗爭者。 沒有人想到瑞士抗爭，升級比法國還要快！](https://gettr.com/post/pbeja9be60)
- [台灣民眾上街](https://gettr.com/post/pbgv7t3e76)
+参考链接: [Times Square swarmed by hundreds protesting COVID vaccine mandate, chanting ‘F— Joe Biden’](https://www.foxnews.com/politics/times-square-swarmed-by-hundreds-protesting-covid-vaccine-mandate.amp?__twitter_impression=true)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

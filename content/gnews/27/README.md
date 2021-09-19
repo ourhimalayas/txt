@@ -2,23 +2,25 @@
 ---
 
 
-## 保卫台湾 反制中共 , 是美国国防战略的重中之重!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542371/)
+## 中共申请加入CPTTP 遭澳洲贸易部长呛声!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542356/)
 
-栏目记者/责任编辑：七哩香
+栏目记者/责任编辑：文小白
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
 
 
-9月15日，美国外交政策智库”卡内基国际和平基金会” 举办了一场研讨会，探讨了美国国防战略应如何改变，以遏制中共日益增长的实力和野心,并最终阻止爆发战争。该研讨会是在数日前中共海军舰艇驶入美国阿拉斯加附近水域的背景下召开的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.003.jpeg)
-研讨会与会者之一, 是美国前助理国防部长科尔比, 他刚刚出版了新书《拒绝的战略：大国冲突时代的美国国防》，科尔比称，当前的美国国防战略应首先针对中共，中共的霸权影响着美国人民的生活，威胁美国的自由价值取向。而重中之重是优先部署军力保卫台湾，台湾是中共的目标，更是美国的盟友，台海安全体现美国的威慑力是否能够持续。
+澳大利亚贸易部长唐 特翰（Dan Tehan）9月17日表示，除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，否则澳大利亚将反对中共国加入全球最大自由贸易区**CPTPP**的申请。
 
-哈德逊研究所前总裁肯尼斯·温斯坦 表示赞同。温斯坦称，中共在意识形态、民族主义、南海、香港、新疆表现出的野心和暴政，是美国面临的最大挑战。哈德逊研究所”量子联盟计划” 主任阿瑟·赫尔曼也认为台湾是不可放弃的盟友，美国应视台湾为战略愿景的一部分，如果放任中共侵略台湾，不仅将破坏亚洲盟友的信任，也将是美国大国地位的终结。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-19-at-8.21.54-PM.png)
+
+《跨太平洋伙伴全面与进步协定》简称**CPTPP**，其前身为《跨太平洋伙伴关系协定》也就是**TPP**，是由亚太经济合作会议成员发起，旨在促进亚太区的贸易自由化。2017年1月美国前总统川普以该协议损害美国制造业为由，退出了 **TPP**。随后在日本等国推动下，TPP同年11月11日改名为**CPTPP**。日本、加拿大、澳大利亚、新西兰、马来西亚、新加坡、越南、汶莱、墨西哥、智利以及秘鲁11个国家，于2018年3月签署该协定。
+
+2021年9月16日,中共商务部长王文涛向**CPTPP**提交申请加入的官方信函。中国要加入该协定，需要所有成员国确信中共能够遵守现有的贸易协议 及兑现对世界贸易组织的承诺。澳大利亚贸易部长唐 特翰的这一表态，表明中共的这一申请企图将很难实现 。
 (本文仅代表作者观点)
 
-参考链接：  [中国军舰驶入挑衅？美前国防高官提“拒绝战略”遏制北京](https://www.voachinese.com/a/Strategy-of-denial-how-to-checkmate-china-ambition-20210915/6230695.html)
+参考连接：[澳大利亚要求中国取消报复性贸易关税 否则免谈加入CPTTP](https://www.voachinese.com/a/Australia-opposes-China-s-bid-to-join-trade-pact-CPTTP-20210918/6234035.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

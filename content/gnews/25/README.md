@@ -2,28 +2,27 @@
 ---
 
 
-## 从25万到7千! 香港登记选民人数下跌97%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542361/)
+## 受疫情影响导致经济危机 肯尼亚遭受次生灾害打击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542591/)
 
-栏目记者/责任编辑：飞虹
+栏目记者/责任编辑：新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-240.png)
+濒临印度洋的东非国家肯尼亚，自新冠病毒爆发导致社会经济危机后，出现了前所未有的自杀潮。在今年3月至6月间，有近500人自我结束生命。这是2000年全年统计数字的两倍。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-14.jpeg)
 
+疫情打击下，人性中阳光的一面被慢慢的消失殆尽，人们在恐慌情绪、经济压力，缺少社交，没有正常生活秩序带来的负面影响不但在肯尼亚危及人们的心理健康，病毒疫苗的灾难波及全球的每一个角落每一个人，长期得不到健康的状态，缺少良好的社会环境会导致更多的人们严重的心理疾病，自杀现象将会成为人类非正常死亡的另一个灾难。
 
+另外值得注意的是，肯尼亚横跨赤道，被认为是东非地区金融和贸易中心，蒙巴萨城市更拥有东非最大的海港。2017年加入中共“一带一路”合作计划，疫情前以出口茶叶、咖啡、钛矿及精矿，以及服装类产品为主。新冠病毒肆虐以来，包括肯尼亚在内的众多国家进入“低增长、搞债务”的困境。2021年1月，以恢复经济为目标的非洲大陆贸易区启动，除了基础设施、商业服务和旅游业以外，银行和保险正式并入重点开放领域。中非合作论坛4月发文，明确点出“中非金融合作计划”是人民币国际化的一部分，并考虑支持泛非支付平台和结算系统 (PAPSS) 建设，使每一个非洲国家可以避开美元进行跨境支付。中共还考虑中非相互发行人民币和外币债券。
 
-9月19日，香港选举委员会界别分组选举 开始投票，这是今年3月底中共全国人大常委会大幅修改香港选举制度之后的第一场选举投票。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.001.jpeg)
-新选举制度下的选举委员会，由过去的工商、金融、基层劳工、宗教、立法会议员、地区组织代表等，增加了“人大、政协委员及全国性团体香港成员代表界”，席位也由上届的1,200席增加至1,500席。成员席位及界别有所增加，但是选民总人数却大幅倒退，港府选委会公布的临时投票登记册显示，全港登记选民仅有近7,900名，较选举制度修改前的近25万名选民，竟然下跌了97%之多!
+（本文仅代表作者观点）
 
-而事实上在修改选举规则及各种操控之下，1500个席位中超过1000个席位已经内定自动当选，最终只有364个席位需要由所谓的选举产生。且民主派人士不惧威胁，不为中共充门面唱赞歌，几乎无人参选。数据和证据都表明，香港已彻底沦为中共治下”内地”城市，而香港人通过议会参与本地政治事务已没有任何可能，甚至已没有任何的兴趣再与虎谋皮。
-(本文仅代表作者观点)
+参考链接:  [Covid-19:肯尼亞忌諱話題是自殺](https://twitter.com/rfi_tradcn/status/1439340467624169475?s=21)
 
-参考链接：[香港民调：市民对未来各项选举关注度低 年轻人对议会路线已没想像](https://www.voachinese.com/a/hong-kong-survey-preview-on-election-committee-subsector-elections-20210917/6233091.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,5 +30,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

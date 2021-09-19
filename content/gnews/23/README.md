@@ -2,30 +2,28 @@
 ---
 
 
-## 中共申请加入CPTTP 遭澳洲贸易部长呛声!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542356/)
+## 加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542627/)
 
-栏目记者/责任编辑：文小白
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-242.png)
+关于对5-11岁儿童的疫苗接种，加拿大卫生部官员表示目前正在对相关数据进行审查，预计最快将于今年年底前完成对儿童疫苗的最终审批。
 
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-26.jpeg)
 
+据悉，辉瑞和莫德纳公司目前正在进行儿童疫苗的试验和评估。辉瑞公司发言人于近日表示，如果疫苗的安全性和免疫原性得到确认，辉瑞计划在今年年底前向加拿大卫生部提交相关数据，争取获得对5至11岁儿童疫苗的潜在授权，而且随后还将申请6个月至5岁儿童疫苗的相关授权。
 
+疫苗本身非常危险。前辉瑞副总裁耶登博士、疫苗接种和免疫联合委员会（JCVI）和众多医学专家都呼吁不要为16岁以下的儿童接种疫苗。爆料革命坚持传播疫苗真相，当加拿大家长充分意识到疫苗对孩子伤害时，一定会奋起反抗，坚决抵制毒疫苗。
 
-澳大利亚贸易部长唐 特翰（Dan Tehan）9月17日表示，除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，否则澳大利亚将反对中共国加入全球最大自由贸易区**CPTPP**的申请。
+（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-19-at-8.21.54-PM.png)
+参考链接: [Vaccines for children aged 5 to 11 could be approved by end of year](https://thepostmillennial.com/vaccines-for-kids)
+[BioNTech to seek global approval to use its COVID-19 vaccine in 5-11 year olds: report](https://www.cbc.ca/news/health/biontech-to-seek-global-approval-to-use-its-covid-19-vaccine-in-5-11-year-olds-report-1.6171034)
 
-《跨太平洋伙伴全面与进步协定》简称**CPTPP**，其前身为《跨太平洋伙伴关系协定》也就是**TPP**，是由亚太经济合作会议成员发起，旨在促进亚太区的贸易自由化。2017年1月美国前总统川普以该协议损害美国制造业为由，退出了 **TPP**。随后在日本等国推动下，TPP同年11月11日改名为**CPTPP**。日本、加拿大、澳大利亚、新西兰、马来西亚、新加坡、越南、汶莱、墨西哥、智利以及秘鲁11个国家，于2018年3月签署该协定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-2021年9月16日,中共商务部长王文涛向**CPTPP**提交申请加入的官方信函。中国要加入该协定，需要所有成员国确信中共能够遵守现有的贸易协议 及兑现对世界贸易组织的承诺。澳大利亚贸易部长唐 特翰的这一表态，表明中共的这一申请企图将很难实现 。
-(本文仅代表作者观点)
-
-参考连接：[澳大利亚要求中国取消报复性贸易关税 否则免谈加入CPTTP](https://www.voachinese.com/a/Australia-opposes-China-s-bid-to-join-trade-pact-CPTTP-20210918/6234035.html)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +31,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
