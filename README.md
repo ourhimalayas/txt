@@ -19,14 +19,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [马阿拉歌的摄像头](/content/gnews/3/README.md)
+### [2021年9月18日郭先生盖特1「9分53秒」](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [马阿拉歌的摄像头](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021/09/18文贵先生盖特精要](/content/gnews/4/README.md)
+### [2021/09/18文贵先生盖特精要](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共内部还有个邪恶组织在掌控](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [完全接种疫苗感染Delta死亡率比未接种的高出八倍](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -76,47 +76,47 @@
 ### [9/7郭文贵直播：黑天鹅事件迫使习取消攻台2号计划（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：亚利桑那州新增感染病例与死亡人数成反比](/content/gnews/22/README.md)
+### [秘翻在线：中共战狼为打压大型科技公司狡辩](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大多伦多枫叶农场再次参与全球反疫苗护照示威](/content/gnews/23/README.md)
+### [第二季度全球债务升至近300万亿美元 创历史新高](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [9月18日文贵先生盖特摘要](/content/gnews/24/README.md)
+### [上海合作组织批准伊朗成为其成员国](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [联合国秘书长表示无权禁止未接种的国家领导人进入总部](/content/gnews/25/README.md)
+### [新中国联邦人庆贺马丁·班农先生百岁寿辰](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [印度假“异描”证书制作和销售已成完整产业链](/content/gnews/26/README.md)
+### [秘翻在线：美国将对数字货币勒索软件进行制裁](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [GFashion管理团队意大利之行满载而归](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [万锦每天超20起罪案，特鲁多上任后犯罪率急升！](/content/gnews/27/README.md)
- ` 丁过`
-
-### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/28/README.md)
+### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新州24小时内死亡病例数再创纪录](/content/gnews/29/README.md)
+### [FDA顾问委员会拒绝为16-65岁人群注射辉瑞疫苗加强针](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港：民主派几乎绝迹的选委会今投票 警力多过选民](/content/gnews/30/README.md)
+### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/30/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新州24小时内死亡病例数再创纪录](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [万锦每天超20起罪案，特鲁多上任后犯罪率急升！](/content/gnews/32/README.md)
+ ` 丁过`
+
+### [香港：民主派几乎绝迹的选委会今投票 警力多过选民](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [是否会与中共国开战？澳防长：“这是中共的问题”](/content/gnews/31/README.md)
+### [是否会与中共国开战？澳防长：“这是中共的问题”](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美财政部发布了对支持恐怖主义的国际金融网络的制裁措施](/content/gnews/32/README.md)
+### [美财政部发布了对支持恐怖主义的国际金融网络的制裁措施](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [默克尔的中共国幻觉终结](/content/gnews/33/README.md)
- ` Shuizhuyu`
-
-### [澳大利亚警告中共，先撤销报复性贸易关税，否则免谈加入CPTTP](/content/gnews/34/README.md)
- ` 纽约香草山MOS02`
-
-### [德州格兰德河上的上万移民](/content/gnews/35/README.md)
- ` Shuizhuyu`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -145,33 +145,33 @@
 ### [伊朗加入上海合作组织 FDA否决辉瑞第三针](/content/gnews/44/README.md)
  ` 纽约香草山MOS01`
 
-### [国际要闻汇编](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共申请入会CPTPP 轮值主席国日本保持谨慎](/content/gnews/46/README.md)
- ` 日本东京方舟农场`
-
-### [维基百科封禁中共七名编辑](/content/gnews/47/README.md)
- ` 日本东京方舟农场`
-
-### [中共西南海域演练常态化 台海战争一触即发](/content/gnews/48/README.md)
- ` 日本东京方舟农场`
-
-### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/49/README.md)
- ` HimalayaRussia`
-
-### [2021年9月17日郭文贵先生直播全文字版](/content/gnews/50/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/51/README.md)
+### [秘翻在线：亚利桑那州新增感染病例与死亡人数成反比](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生谈为什么要打马明哲的原因](/content/gnews/52/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [加拿大多伦多枫叶农场再次参与全球反疫苗护照示威](/content/gnews/46/README.md)
+ ` GTV新闻访谈`
 
-### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/53/README.md)
+### [9月18日文贵先生盖特摘要](/content/gnews/47/README.md)
+ ` GTV新闻访谈`
+
+### [联合国秘书长表示无权禁止未接种的国家领导人进入总部](/content/gnews/48/README.md)
+ ` GTV新闻访谈`
+
+### [印度假“异描”证书制作和销售已成完整产业链](/content/gnews/49/README.md)
+ ` GTV新闻访谈`
+
+### [国际要闻汇编](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共申请入会CPTPP 轮值主席国日本保持谨慎](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/54/README.md)
- ` HimalayaRussia`
+### [维基百科封禁中共七名编辑](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
+
+### [中共西南海域演练常态化 台海战争一触即发](/content/gnews/53/README.md)
+ ` 日本东京方舟农场`
+
+### [中共内部还有个邪恶组织在掌控](/content/gnews/54/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

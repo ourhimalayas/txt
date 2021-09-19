@@ -2,28 +2,36 @@
 ---
 
 
-## 德州格兰德河上的上万移民
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1541100/)
+## 美财政部发布了对支持恐怖主义的国际金融网络的制裁措施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1541206/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+2021年09月18日
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/BESTPIX-Large-Migration-Surge-Crosses-Rio-Grande-Into-Del.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-8.jpg)网络图片
+
+2021年9月17日，美国财政部外国资产控制办公室（OFAC）发布了一系列针对支持恐怖主义的国际金融网络的制裁措施。此次制裁行动认定了一个以黎巴嫩和科威特为基地、为真主党提供资金的金融渠道网络的成员。OFAC还列出了支持真主党和伊朗伊斯兰革命卫队-圣城旅（IRGC-QF）的国际金融促进者和幌子公司网络的成员。
+
+有几个与中共国有关的个人和实体被列入OFAC的制裁名单。其中，以中共国为基地的商人莫尔特萨·米纳耶·哈什米（Morteza Minaye Hashemi）利用他所能涉及国际金融体系的渠道，为IRGC-QF和真主党洗了大量的钱。哈什米得到了中共国公民颜素炫和宋静的帮助。在哈什米的指示下，他们帮助哈什米开设了银行账户，并为他的公司担任虚假产权人。颜素炫还代表哈什米购买了美国原产的两用产品，然后运往伊朗。
+
+此外，PCA香港有限公司、达明光学有限公司、中国49集团有限公司、台湾Be Charm贸易公司和Black Drop国际有限公司都被认定是由哈什米直接或间接地拥有、控制或指导的。
+
+另外两家公司，香港Victory Somo Group (HK) Limited和Yummy Be Charm Trading (HK) Limited 也被指认为由宋静直接或间接拥有、控制或指导。而哈什米对这两家公司的资金和管理进行了实质性监督。
+
+“由于今天的行动，上述个人和实体的所有财产和财产利益，以及由他们单独或与其他被封锁者直接或间接拥有50%或更多股份的任何实体，在美国或由美国人控制的人员必须被阻止并向OFAC报告。除非获得OFAC颁发的一般或特定许可证的授权，或获得其它方式豁免，否则OFAC的法规通常禁止美国人或在美国境内进行的涉及任何被指定或以其它方式阻止的财产或财产利益的所有交易人（包括过境美国的交易）。”
+
+简评：这份制裁名单是世界正义力量和邪恶势力的生死较量中的一场战斗。正如郭文贵先生在一次次直播中指出的那样，美国在行动，虽然有点慢，但在法律的框架，不制裁则已，一旦制裁就是有实锤证据的。这则公告列举出的深藏在国际金融网络中与中共有瓜葛的个人和实体，更印证了文贵先生所爆出和剖析的，中共操控的那些个人和实体，表面看上去是合规的，但实际是一个骗局套着下一个骗局，完全以虚假的手段做着非法的勾当。他们以为那一套无视国际法律秩序的流氓把戏可以一直欺骗下去，但是“骗得了一时，骗不了一世”。文贵先生引领的爆料革命和新中国联邦发出的正义之声，将中共及其黑暗势力的嘴脸一步一步的昭然于天下，唤醒人心，重归正道。
+
+新闻链接：[Treasury Sanctions International Financial Networks Supporting Terrorism](https://home.treasury.gov/news/press-releases/jy0362)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-资料来源：盖蒂图片社/Agencia Press South
+编辑：【英国伦敦喜庄园编辑部】
 
-当格兰德河上一座边境桥上的移民人数激增至一万多人时，德克萨斯州德尔里奥市市长向美国政府求助，边境城镇的情况很糟糕。
-
-据知情人士透露，美国总统乔·拜登政府希望派出飞机将海地的移民送回祖国。一位熟悉该项目的人士周五（当地时间）告诉美联社，9月19日每天可能会有五到八趟航班送移民。 所有移民都将接受冠状病毒检测。
-
-将移民大规模运出是政府对德克萨斯州德尔里奥一座桥附近数千移民的回应。这些移民是从墨西哥边境来到美国的。周五，该市市长布鲁诺·洛萨诺 (Bruno Lozano) 表示，本周初仍有大约 2000 人越过里奥格兰德河与墨西哥的边界。他们中的多数来自海地。
-
-洛萨诺宣布进入紧急状态并关闭了桥梁。一场人道灾难正在逼近。德克萨斯论坛报的市长说：“有些妇女会生孩子，有些人会因为高温而晕倒，她们有点咄咄逼人，在炎热的天气里待了这么多天，出现各种状况是很正常的。”
-
-[https://www.welt.de/politik/ausland/article233876094/Migrationskrise-in-Texas-US-Regierung-will-Haitianer-abschieben.html](https://www.welt.de/politik/ausland/article233876094/Migrationskrise-in-Texas-US-Regierung-will-Haitianer-abschieben.html)
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-*责任编辑/校对/发布： Shuizhuyu*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

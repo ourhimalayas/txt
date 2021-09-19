@@ -2,22 +2,26 @@
 ---
 
 
-## 新州24小时内死亡病例数再创纪录
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1541571/)
+## FDA顾问委员会拒绝为16-65岁人群注射辉瑞疫苗加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1541648/)
 
 **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：THE CONVERSATION
+![](https://assets.gnews.org/wp-content/uploads/2021/08/8.29-1-scaled.jpeg)图片来源：CNBC
 **整理报道：**翼族
 
-周六晚八点之前的24小时内，澳大利亚新南威尔士州记录了1083例新增中共病毒（COVID-19）病例和13例死亡病例。截至目前为止，13例是新南威尔士州24小时内所记录的最高死亡数。
+拜登政府计划于下周开始在全国接种疫苗的加强针，但美国食品药品监督管理局（FDA）顾问委员会以16票对2票反对，否决为16岁以上的人注射辉瑞加强针的提案，尽管一些成员认为第三剂加强针可能有“作用”。
 
-13名死者中，其中9人未接种疫苗，2人接种了一剂疫苗，2人完全接种了疫苗。自2021年6月16日以来，新南威尔士州已有241例与中共病毒相关的死亡病例。
+在第二轮投票中，FDA顾问委员会以18比0一致同意为65岁以上的美国人和易患中共病毒（COVID-19）重症的高危人群注射加强针，但第二剂和第三剂之间必须有至少六个月的间隔。
 
-与此同时，新南威尔士州州长格拉迪斯·贝尔吉格利安（Gladys Berejiklian）宣布从明天起放宽对悉尼一些病毒传播热点地区的限制。她承认澳大利亚医学协会(AMA)等医疗机构的担忧是正确的，更多的自由可能会导致病例再次激增，但州长表示，她相信政府已经取得了正确的平衡。
+后来该小组澄清说，在工作场所接触病毒的风险很高的卫生工作者和其他员工也应包括在该项紧急使用授权之下。
+
+该决定是在FDA对第三剂的功效存在重大分歧之后做出的。委员会认为辉瑞在获得完全批准之前还需要做进一步的研究。顾问委员会一些成员认为辉瑞提交的申请中一些安全数据不够充分，因为该研究仅包括300名年龄在18-55岁之间的成年人。
+
+FDA将对疫苗的批准做出最终决定。通常FDA会遵循咨询小组提出的建议，预计下周将做出决定，并将得到疾病控制中心（CDC）的批准。CDC的一个咨询委员会已定于下周的周三和周四举行会议。
 
 （文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考链接：**[NSW announces eased restrictions for Sydney hotspots; 1,083 COVID-19 cases, 13 deaths](https://www.abc.net.au/news/2021-09-19/nsw-eases-restrictions-as-state-records-1083-cases-13-deaths/100474266)
+**参考链接：**[FDA rejects blanket Pfizer booster shots in major setback for Biden’s vaccine rollout](https://www.skynews.com.au/world-news/fda-rejects-blanket-pfizer-booster-shots-in-major-setback-for-bidens-vaccine-rollout/news-story/0dd49358a003eeb4e73f221c8989c0ee)
 
 *编辑/发布：翼族*
 

@@ -2,63 +2,57 @@
 ---
 
 
-## 亚利桑那州的“国家审计”取得重大进展
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1541169/)
+## 印度假“异描”证书制作和销售已成完整产业链
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541521/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+栏目记者/责任编辑：一花一世界
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/A-2.png)adrenogate.net
-似乎“销声”了一段时间的亚利桑那州“国家审计”昨晚传出消息，期待揭露选举舞弊真相的人们认为“取得了大胜”。笔者高兴不起来，对美国沉沦到如此境地感到沮丧，一个非常简单的问题，拖了一个多月才有眉目，在州总检察长介入的情况下，马里科帕郡监事会同意交出“路由器”和“系统进入权限”等，只有这样，“国家审计”才能得以全面完成。此前郡监事会不理州立法机构参议院的听证会，对提交审计所需的设备、资料等要求置之不理，直到有了司法介入，（如果不提交）马里科帕郡将面临每年7亿美元资金的财政“断供”，这才勉强同意提交。
 
-《门道专家》（The Gateway Pundit）这样报道，“亚利桑那州参议院的巨大胜利：‘网络忍者’（负责审计的机构，Cyber Ninjas）将按要求访问路由器——问题将得到答案”。
 
-全文如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-马里科帕郡已同意与亚利桑那州参议院达成和解，允许他们对郡路由器、Splunk日志和多米尼软件进行联合牵头审计。
 
-这意味着亚利桑那州参议员桑尼·博雷利（Sonny Borrelli）的SB 1487议案申诉起了作用，迫使该郡遵守参议院最初和正在进行的路由器访问请求，这些路由器（安装）在该郡的政府大楼内。
 
-目前尚不清楚和解协议在早些时候宣布时究竟意味着什么，也不清楚这对参议院来说是一场怎样的胜利。
 
-郡发言人肯定会将《门道专家》的乔丹·康拉德森（Jordan Conradson）从新闻界除名，这样他们就可以向建制派媒体提供叙述和回答，看起来这是参议院的损失。
 
-‘网络忍者’仍将被允许指挥路由器的访问，并确保所有问题都得到正确回答。
+9月16日《印度快报》上发表的一篇研究报告显示，现在比以往任何时候都更容易、更方便地获取假的疫苗接种证书和阴性测试报告。
 
-道格·洛根（Doug Logan）几个月前就要求这样做，他告诉郡政府，如果他们对“网络忍者”拿走路由器感到不满意，那么其他人也可以做，“网络忍者”将密切关注。
+Check Point研究公司这份报告表明，伪造疫苗证书现在已经演变成一个完整的产业，包括印度在内的29个不同国家的假疫苗接种证书和假测试报告正在Telegram上出售。在印度，一份假证书的价格为75美元，约为5500卢比。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-100.jpg)
+那么，为什么人们会求助于假疫苗接种证书呢？
 
-亚利桑那州参议员桑尼·博雷利（Sonny Borrelli）告诉我们，由于现在有第三方参与这项调查，而且选举的资料不需要移动，因此将保留日志记录和证据，这将确保审计过程严密可靠。
+直接原因是在当前新冠疫情下，许多国家包括印度都在实行旅行限制作为遏制病毒传播手段。疫苗接种证书和阴性测试报告是绕过这些旅行限制的方法，这些规定导致黑市上那些不愿意接种疫苗的人对假的测试报告和疫苗证书的需求和供应。
 
-亚利桑那州参议院议长凯伦·范恩（Karen Fann）分享了这条推特，声称获得了胜利。
+不想接种疫苗，但仍然希望获得接种疫苗后的自由，如出入场所。这些人正在转向暗网和Telegram购买假证书。报告还表明，制造假疫苗接种证的人数已经 “成倍增长”，仅仅在2021年8月至9月期间，从约1000名卖家猛增至约10000名卖家。这门“生意”的火爆也侧面反映了虽然政府和主流媒体以各种手段推广疫苗，却因为疫苗毒副作用的日益显现，导致越来越多的民众意识到疫苗的危害而选择不打疫苗。
 
-范恩的推特：今天是亚利桑那州参议院的巨大胜利！与马里科帕郡的和解协议为我们提供了路由器和Splunk日志审查所需的所有数据，以进行历史上最全面的选举审计。我们得到了我们需要的一切，还有更多。马里科帕郡的（选举官员）夹着尾巴回家去吧。
+参考链接：
+[Fake vaccine certificates now a full-blown industry in India, 28 other countries: Check Point Research](https://indianexpress.com/article/technology/tech-news-technology/fake-vaccine-certificates-now-a-full-blown-industry-in-india-28-other-countries-check-point-research-7513274/)
 
-范恩议长告诉《门道专家》记者乔丹·康拉德森这一联合进程将如何运作。前亚利桑那州众议员约翰·沙德格（John Shadegg）将担任中间人，提供监督，以确保证据的安全。
+（本文仅代表作者观点）
 
-范恩：沙德格是仲裁人，他将雇佣两名IT专家，他们将实际“动手”，“网络忍者”（CN，Cyber Ninjas）将告诉并询问他们需要知道的一切。
-康拉德森：你相信沙德格会做好这项工作吗？
-范妮：是的。
-康拉德森：是主管挑选了沙德格还是你进行了联合审查？
-范恩：我们共同同意的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-亚利桑那州参议员温迪·罗杰斯（Wendy Rogers）也证实了他们的胜利，并同意协议的条件。罗杰斯：总结一下，我们赢了。他们放弃了280万美元毫无意义的设备更换诉求，我们得到了路由器和Spunk日志，”网络忍者”拥有完全访问的权限，马里科帕郡的官员投降了。
+终审： Ryan
+校对/发稿：为真不破20
 
-该郡将放弃对参议院提出的更换设备和交付选票的要求。
+**更多资讯，更多关注**
 
-亚利桑那州审计报告将于下周五发布，这将引发许多新问题。“网络忍者”将通过路由器访问找到一些答案。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-亚利桑那州参议员温迪·罗杰斯（Wendy Rogers）告诉我们，所有犯罪行为的证据都将提交给州总检察长办公室。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-参议员桑尼·博雷利（Sonny Borrelli）说，总检察长将负责调查马里科帕郡监管人员迄今为止拒绝遵守法律的原因。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-“网络忍者”和亚利桑那州参议院都对该郡的合作感到满意。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-这是历史上第一次全面的司法选举审计的胜利。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-（全文完）
 
-原文链接：
 
-[https://www.thegatewaypundit.com/2021/09/huge-win-arizona-senate-cyberninjas-will-access-routers-requested-questions-will-answered/](https://www.thegatewaypundit.com/2021/09/huge-win-arizona-senate-cyberninjas-will-access-routers-requested-questions-will-answered/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
 
 0

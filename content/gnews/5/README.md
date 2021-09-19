@@ -2,143 +2,46 @@
 ---
 
 
-## 中共内部还有个邪恶组织在掌控
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1541199/)
+## 2021/09/18文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1541388/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/aor0x-geazv.jpg)
-[https://gtv.org/video/id=6145e16ad2e2b817486ae118](https://gtv.org/video/id=6145e16ad2e2b817486ae118)
+2021年9月18日
+![](https://assets.gnews.org/wp-content/uploads/2021/09/091801.png)[盖特链接](https://gettr.com/post/pbgnd87e0d)
+杰西卡Ｇ、在丹麦、非洲(尼日利亚，乌干达，开普敦)、老挝、日本等很多全家染病的战友们在获得并在24小时内服用了青蒿素、羟氯喹加锌后都变阴性了，没有一例发展成严重或危重的。我们现在呼吸着新鲜空气，享受着不打疫苗的幸福和安全。如果不珍惜当下，你就会失去未来。全球战友联合起来救素未谋面的战友，此举是伟大的，人道的。
 
-**字幕内容:**
+昨天国内平暴小组来黑客班农父亲的百岁生日会，但是我们的美女帅哥们的节目都非常好，战友们太牛了！
 
-**郭文贵**
-**Miles Guo**
+看国内经济危机，恒大，合生创展，绿地，富丽，保利等50多家集团全都得完。仅恒大就涉及130多家银行和信托机构。最重大是平安保险，它已经把保险金当成盈利用完了；现在把手伸向了香港的汇丰银行和南阳银行，会弄走香港人民100年的钱，香港会非常惨。
 
-谁想知道习近平行踪的秘密
-Who wants to know the secrets of Xi Jinping’s whereabouts?
+我们做喜欢且能做的事，不要寄希望有回报，夸奖和荣誉。帮别人，要发自本意，不求结果，不要回报。
 
-谁想知道习近平和他夫人的私人谈话
-Who wants to know the private conversation between Xi Jinping and his wife?
+全世界最可怕，最灾难的时候还没有到来。美国FDA最终没有通过给16岁孩子和老人再续打第三针疫苗的决定。欧洲，日本都在要我们整理出来疫苗及解药的资料和信息。
 
-谁愿意掌握习近平上台以来所有的行踪和想法
-Who wants to know all the whereabouts and thoughts of Xi Jinping since he came to power?
+G-News 的下载量和关注量每天都在暴增。GTV阅读量比在线观看升了很多，每次七哥大直播VPN数量3.6万-4万，就是3千万-6千万人在观看。我们的主播没有收入，没有广告，但我们所引用的资料，都是出自专业人士或有可靠出处的。Gettr的下载量也在疯涨。
 
-到时候还有效
-Which will still be useful later
+不要用狭隘的心胸去度量那些成功、伟大的人的想法、信仰和理想。不要像欺民贼一样想着怎么弄钱弄捐款，那样是没有未来，下场会很惨的。
 
-中国还有比王岐山和孟建柱再需要的吗
-Is there anyone who would need them more than Wang Qishan and Meng Jianzhu?
-王岐山和孟建柱的结盟者
-The ally of Wang Qishan and Meng Jianzhu
+我们要有经济实力，还要有绝对的话语权。
 
-过去竟然是最大的敌人
-was used to be their worst enemy in the past
+邪恶的CCP核心力量就三条：1媒体控制 2金融控制 3情报控制。各国军方背叛自己的国家和共产党勾兑，都源于这三条，卑鄙至极。
 
-后来他当了常委
-Later on he became a member of the CCP’s Standing Committee
+周一继续大直播。
 
-他现在唯一能结盟有价值就三个人
-There are only three people that are worth to align with
+***编辑：【英国伦敦喜庄园编辑部】***
 
-韩正，韩正是第一位吧
-Han Zheng, Han Zheng is the first choice
+*听写：文评|校对：小雨*
 
-第二位大家猜的是谁呀
-Guess who’s the second one
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-第三位是谁呀
-Who’s the third one
 
-共产党内部的绞杀对我们灭共是好的
-Strangulation within the Communist Party is benefit for us to destroy the Communist Party
+编辑：【英国伦敦喜庄园编辑部】
 
-我们希望，他们都弄死互相才好呢
-We hope it’s better that they will kill each other
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-但是我们希望中国不要走向汉朝之后的乱象，十国
-But we hope that China will not go to the chaos after the Han Dynasty, the ten countries
 
-或者南唐时代
-Or like the South Tang Dynasty
 
-我们不希望中国再回到人吃人,
-We don’t want China to return to cannibalism society
 
-把人给剁成肉当成军粮来对付着
-Chop people into meat as military rations to deal with
-
-我们不希望看到恒大这样的企业
-We don’t want to see Evergrande such enterprise
-
-把最普通人都给坑了
-to entrap the most ordinary people
-
-我们希望你在我们定向爆破中倒下
-We hope you to fall down in our directional blasting
-
-中南坑一个也不能留
-No one can survive from Zhongnan Keng
-
-肯定是新中国联邦人说了算
-It must be the people of the New Federal State of China who have the final words
-
-但是我们要告诉你这个消息就希望让你们知道
-But if we want to tell you this information, we want to let you know
-
-有本事你拒绝我们这个信息
-You have the ability to reject this information from us
-
-现在正中国共产党的内部力量绝不是一股
-Right now, the internal strength of the Chinese Communist Party is not only one force
-
-也不是两股
-It’s not two forces
-
-它还有一个邪恶的组织正掌控着
-It also has an evil organization in control
-
-习大神 你不是那个组织的
-Xi, the great god, you don’t belong to that organization
-
-我可以基本上断定
-I can basically conclude
-
-习大神明年你20大你不可能成功
-Xi, the great god won’t be able to succeed next year when you reach the Nation-al People’s Congress of 20
-
-没有人会 这两个组织不会让你成功
-Nobody will allow it happen, these two organizations will not let you succeed
-
-王岐山孟建柱你搞不定
-Wang Qishan, Meng Jianzhu, you can’t do anything about them
-
-他两个当年能在北京能当成副总理
-The two of them were able to be vice prime ministers in Beijing
-
-再弄成常委，中纪委
-Then became a member of the Standing Committee, the Central Commission for Discipline Inspection
-
-当时温家宝，胡锦涛 虽然帮了你
-At that time, Wen Jiabao and Hu Jintao helped you
-
-但最后也帮了王岐山
-But in the end also helped Wang Qishan
-
-对吧，今天这个料很大
-Right, today I spill the beans is quite huge
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1438501402163040262?s=24](https://twitter.com/se1y7cblljselva/status/1438501402163040262?s=24)
-
-中听英: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

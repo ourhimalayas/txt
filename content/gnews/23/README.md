@@ -2,58 +2,47 @@
 ---
 
 
-## 加拿大多伦多枫叶农场再次参与全球反疫苗护照示威
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541635/)
+## 第二季度全球债务升至近300万亿美元 创历史新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541593/)
 
-栏目记者：硫酸羟氯喹64
-责任编辑：正义的小新
-
+栏目记者/责任编辑：文真
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-230.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-231.png)
 
 
 
 
-据加拿大枫叶农场多伦多前线报道，9月18日，枫叶农场再次参与多伦多市的游行示威，同加拿大其他九个城市，一同抗议政府强制疫苗、实施疫苗护照。
 
-18日中午12点，枫叶农场战友们集结于多伦多市皇后公园，同当地成千上万渴望自由，反抗恶政的民众一道，并肩走上街头，共同捍卫自由，抵制和反抗特鲁多政府所强制实施的、严重侵犯人权的“疫苗护照”。枫叶农场的战友们，也不遗余力地向当地民众宣传GTV、盖特和Gnews等平台，传播“中共病毒”真相、疫苗危害、及解药的真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-55.jpg)
-此外，除了参加在多伦多市的集会游行活动之外，加拿大枫叶农场身处其他地区的战友们，也一同参加了包括渥太华，卡尔加里，蒙特利尔，温哥华等城市统一举行的“反疫苗护照”示威活动。行动就是力量！战友们辛苦了！
+国际金融协会周二表示，全球债务在第二季度上升至近300万亿美元的新纪录高点。包括政府、家庭、企业和银行债务在内的总债务水平，自6月底上升了4.8万亿美元，达到296万亿美元，比新冠病毒大流行前高出36万亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/第二季度全球债务升至近300万亿美元-创历史新高.jpg)
+债务与GDP的比例从今年第一季度的362%的历史高点，降至第二季度的353%左右，这主要是由于经济活动的反弹。但该机构补充道，经济复苏的力度不足以将债务比率推回到新冠大流行前的水平以下。
 
-截稿时最新消息，加拿大温哥华游行现场有多面新中国联邦国旗在飘扬，在现场直播的有温哥华的扬帆农场及新成立的英里农场，还有圆成农场及秘密翻译组。扬帆农场印发的疫苗真相传单极受欢迎，很快就派发完了。许多全球各农场的战友，只要身在温哥华就都尽力参加了游行。现场战友们说，把战友们聚合在一起的，正是新中国联邦的国旗！
+与其他国家相比，中共的债务水平攀升得更快：不包括新兴市场债务，仅政府借款的增加就已经达到天文数字。
 
-国旗下，各农场战友们相见分外亲切！
-
-参考链接：
-[自由之战–加拿大多伦多枫叶农场全球反疫苗护照示威](https://gnews.org/zh-hans/1539073/)
+新冠疫情的持续，导致全球债务恶化至难以为继的境地，已经成为全球经济的定时炸弹。早在2014年，中共信托的票据就已经达到了7万亿人民币，如今该数据已超过20万亿，恒大、绿地、融创、保利和富力等这些大企业全会崩塌。恒大倒闭，会引起平安、陆金所、银行等金融机构的连锁反应，会把整个中国、世界经济置入灾难境地无人可挽救，全球金融风暴一触即发。
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+参考链接：
+1. [第二季度全球债务升至近300万亿美元 创历史新高](https://www.reuters.com/business/global-debt-is-fast-approaching-record-300-trillion-iif-2021-09-14/)
+2. [第二季度全球债务升至近300万亿美元 创历史新高](https://gettr.com/post/pbe9iee733)
+3. [第二季度全球债务升至近300万亿美元 创历史新高](https://gnews.org/zh-hans/1538370/)
+4. [第二季度全球债务升至近300万亿美元 创历史新高](https://www.iif.com/Research/Capital-Flows-and-Debt/Global-Debt-Monitor)
 
-终审： 鬼五
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-168.png)
+
+终审编辑：暗黑
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
 
 0

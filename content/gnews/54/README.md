@@ -2,41 +2,143 @@
 ---
 
 
-## 联邦咨询小组否决拜登的疫苗全民接种计划
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1541031/)
+## 中共内部还有个邪恶组织在掌控
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1541199/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+![](https://assets.gnews.org/wp-content/uploads/2021/09/aor0x-geazv.jpg)
+[https://gtv.org/video/id=6145e16ad2e2b817486ae118](https://gtv.org/video/id=6145e16ad2e2b817486ae118)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F-2.jpg)biospace.com
-美国总统拜登日前（9月9日）携FDA（食品和药物管理局）和 CDC （美国疾病控制和预防中心）的主管高调宣布拜登政府对付中共病毒的疫情防控计划，即《走出疫情困局——拜登应对中共病毒的行动纲领》（Path out of the Pandemic – PRESIDENT BIDEN’S COVID-19 ACTION PLAN）[1]。
+**字幕内容:**
 
-该计划的核心目的就是，提高美国民众的疫苗接种率，采取方法是，禁止未接种疫苗民众进入工作场所，也就是“接种疫苗有工作，拒绝接种就失业”。美国FDA 和 CDC 的行政机构则负责配合拜登政府，为拜登政府展开“全民接种计划”提供医学支持和专家组意见。
+**郭文贵**
+**Miles Guo**
 
-全美日前完全接种疫苗已达1.75亿人。美国总人口数为3.2亿，除去16岁以下和65岁以上高风险人群，尚有符合接种年龄的接近8000万人未接种疫苗[2]。拜登在一次讲话中强调：“受到一些民选官员支持的少数美国人正在阻碍我们扭转局面。”这意味着，拜登认识到从人们对接种疫苗的态度来说，泾渭分明地区分出了两类选民。接种疫苗的群体自然对执政的左派有好感，而拒绝接种疫苗的群体必定对当前政府强推的疫苗政策有所厌恶。
+谁想知道习近平行踪的秘密
+Who wants to know the secrets of Xi Jinping’s whereabouts?
 
-如果接种疫苗表示民众对政府信任的选票，那么拜登政府从接种疫苗人数的比例大致能推算出本届政府在民众中的支持率。拜登政府清楚，只有获得绝大多数选民的支持，才能在2022年美国中期选举中获得胜利。而接种疫苗人数比率大幅提高，也为大媒体在后期集中力量宣传拜登政府不断上升的支持率提供了有利的间接证据。即便有可能这种间接证据并不能说明真正的民意，但对普通民众来说，自然就将拜登政府与体恤百姓安危联系起来。一旦树立起“正面形象”，更有利于扩大本届拜登政府的选票数量。
+谁想知道习近平和他夫人的私人谈话
+Who wants to know the private conversation between Xi Jinping and his wife?
 
-简而言之，疫苗接种率成为选民民意的外在晴雨表。
+谁愿意掌握习近平上台以来所有的行踪和想法
+Who wants to know all the whereabouts and thoughts of Xi Jinping since he came to power?
 
-拜登政府新店开张就怕冷场，即便通过全民发补助收割民意，但若疫苗接种率一直徘徊不前，拜登政府就会处于特别尴尬的境地。若要迅速提高全民接种率，除了官方推行的加强针（第三针疫苗注射）之外，还可以放宽接种人的年龄限制条件。例如，将65岁以上人群纳入可接种疫苗范畴，亦或是将12-16岁人群也纳入符合接种条件人群。
+到时候还有效
+Which will still be useful later
 
-上述拜登政府接种疫苗的计划是否能顺利展开，在法律和行政流程上，必须获得FDA 和 CDC 的正式授权后方能执行。而作为行政部门的FDA和CDC是不能直接授权给拜登政府的，必须要考虑ACIP（免疫接种实践咨询委员会）和专家组成员的建议才能发布正式行政令。也就是，拜登政府实施新计划时，ACIP和专家组成员是狙击政府不当作为的重要关隘。从行政流程和法律界定的职责权限范围来说，在中共病毒面前，FDA 和 CDC 行政长官其实没有决定性话语权，真正的话语权是在其医学专家组中，他们给出的“建议”能决定未来美国处理中共病毒的政策走向。
+中国还有比王岐山和孟建柱再需要的吗
+Is there anyone who would need them more than Wang Qishan and Meng Jianzhu?
+王岐山和孟建柱的结盟者
+The ally of Wang Qishan and Meng Jianzhu
 
-拜登政府期望9月20日开始对所有16岁以上的美国人注射加强针的计划，但在周五（9月17日）的FDA 邀请的联邦咨询小组投票中居然被专家组以“压倒性”的票数否决。尽管该联邦咨询小组的投票结果对FDA 所作出的任何决策都没有法律约束力，但如果 FDA 完全无视专家组的意见，强行放宽接种疫苗的年龄限制，就有可能被指责为粗暴的“行政干预”，令一众医学专家与政府部门对立起来，引发严重的法律、行政甚至是社会性问题。
+过去竟然是最大的敌人
+was used to be their worst enemy in the past
 
-在此番投票期间，联邦咨询小组只建议FDA 授权拜登政府对65岁以上老人开放第三针的许可，这一结果与拜登政府原先期望的目标人群数量相差巨大，相当于专家组成员拒绝扩大现有接种人群数量，象征性地通过了无关大局、不痛不痒的决议，结果是基本等同于否决了拜登政府的全民疫苗接种计划。
+后来他当了常委
+Later on he became a member of the CCP’s Standing Committee
 
-在专家小组完成投票之后，白宫就举行了新闻发布会，新闻发言人表示拜登政府已准备好于下周末为符合接种条件的美国公民提供接种服务，并表示今日专家小组投票结果是向好的方向迈进了一大步。
+他现在唯一能结盟有价值就三个人
+There are only three people that are worth to align with
 
-当拜登政府执意推行16岁以上人群全民疫苗接种计划时，专家小组的“关键先生”们及时站出破坏了9月20日将开始执行此计划的步骤。但从当前拜登政府官员的反应来看，该议程可能只是暂时延迟，在经过政客的一系列调整和粉饰之后，很可能会以另一种方式开始执行。
+韩正，韩正是第一位吧
+Han Zheng, Han Zheng is the first choice
 
-明明有解药，却掩盖一切与病毒和疫苗有关的真相，只拚命强推疫苗。拜登政府和中共邪教之间的勾兑与政治交易皆以牺牲两国人民的利益为代价。扬汤止沸，不如釜底抽薪。在此岌岌可危时刻，两国正义人士和力量应更广泛联合起来，在最短时间内消灭中共及其背后的黑暗势力才是解决中共病毒问题的不二法门。
+第二位大家猜的是谁呀
+Guess who’s the second one
 
-参考链接：
+第三位是谁呀
+Who’s the third one
 
-[1] [FDA panel endorses COVID-19 booster shots for older Americans, rejects widespread use  – NewsBreak – 09/18/2021](https://www.newsbreak.com/news/2374511351295/fda-panel-endorses-covid-19-booster-shots-for-older-americans-rejects-widespread-use?s=oldSite&amp;ss=i16)
+共产党内部的绞杀对我们灭共是好的
+Strangulation within the Communist Party is benefit for us to destroy the Communist Party
 
-[2] [Path out of the Pandemic – PRESIDENT BIDEN’S COVID-19 ACTION PLAN  – whitehouse](https://www.whitehouse.gov/covidplan/)
+我们希望，他们都弄死互相才好呢
+We hope it’s better that they will kill each other
+
+但是我们希望中国不要走向汉朝之后的乱象，十国
+But we hope that China will not go to the chaos after the Han Dynasty, the ten countries
+
+或者南唐时代
+Or like the South Tang Dynasty
+
+我们不希望中国再回到人吃人,
+We don’t want China to return to cannibalism society
+
+把人给剁成肉当成军粮来对付着
+Chop people into meat as military rations to deal with
+
+我们不希望看到恒大这样的企业
+We don’t want to see Evergrande such enterprise
+
+把最普通人都给坑了
+to entrap the most ordinary people
+
+我们希望你在我们定向爆破中倒下
+We hope you to fall down in our directional blasting
+
+中南坑一个也不能留
+No one can survive from Zhongnan Keng
+
+肯定是新中国联邦人说了算
+It must be the people of the New Federal State of China who have the final words
+
+但是我们要告诉你这个消息就希望让你们知道
+But if we want to tell you this information, we want to let you know
+
+有本事你拒绝我们这个信息
+You have the ability to reject this information from us
+
+现在正中国共产党的内部力量绝不是一股
+Right now, the internal strength of the Chinese Communist Party is not only one force
+
+也不是两股
+It’s not two forces
+
+它还有一个邪恶的组织正掌控着
+It also has an evil organization in control
+
+习大神 你不是那个组织的
+Xi, the great god, you don’t belong to that organization
+
+我可以基本上断定
+I can basically conclude
+
+习大神明年你20大你不可能成功
+Xi, the great god won’t be able to succeed next year when you reach the Nation-al People’s Congress of 20
+
+没有人会 这两个组织不会让你成功
+Nobody will allow it happen, these two organizations will not let you succeed
+
+王岐山孟建柱你搞不定
+Wang Qishan, Meng Jianzhu, you can’t do anything about them
+
+他两个当年能在北京能当成副总理
+The two of them were able to be vice prime ministers in Beijing
+
+再弄成常委，中纪委
+Then became a member of the Standing Committee, the Central Commission for Discipline Inspection
+
+当时温家宝，胡锦涛 虽然帮了你
+At that time, Wen Jiabao and Hu Jintao helped you
+
+但最后也帮了王岐山
+But in the end also helped Wang Qishan
+
+对吧，今天这个料很大
+Right, today I spill the beans is quite huge
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1438501402163040262?s=24](https://twitter.com/se1y7cblljselva/status/1438501402163040262?s=24)
+
+中听英: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
