@@ -2,36 +2,29 @@
 ---
 
 
-## 保卫台湾 反制中共 , 是美国国防战略的重中之重!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542371/)
+## 秘翻在线：伦敦数千人抗议强制接种疫苗护照和青少年接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1542429/)
 
-栏目记者/责任编辑：七哩香
+采集编译：极寒将至
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/11-17.png)图片来源：卫报
+来自英国每日邮报的消息，周六，数千名示威者在英国伦敦举行抗议游行活动，抗议强制接种疫苗护照和青少年接种疫苗。 他们抵达唐宁街，高呼“逮捕鲍里斯·约翰逊（Boris.Johnson)和克里斯·惠蒂 (Chris.Whitty英格兰首席医疗官)”，呼吁政府取消向儿童提供新冠疫苗的计划。
 
+抗议者举着写有“远离我们的孩子”、“我不是实验者”的标语，一个小男孩拿着一张卡片，上面写着“别管我们，我是孩子，我不能同意”。因为在上周，学校为 12 至 15 岁的儿童推出了疫苗接种计划，疫苗接种将于周三开始。
 
+该活动是作为全球自由集会的一部分举行的，这是一项全球范围的努力，旨在“谴责与新冠病毒相关的政策以及对行动自由的限制”，在英国其他城市（包括曼彻斯特等）也举行了抗议游行。
 
-9月15日，美国外交政策智库”卡内基国际和平基金会” 举办了一场研讨会，探讨了美国国防战略应如何改变，以遏制中共日益增长的实力和野心,并最终阻止爆发战争。该研讨会是在数日前中共海军舰艇驶入美国阿拉斯加附近水域的背景下召开的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.003.jpeg)
-研讨会与会者之一, 是美国前助理国防部长科尔比, 他刚刚出版了新书《拒绝的战略：大国冲突时代的美国国防》，科尔比称，当前的美国国防战略应首先针对中共，中共的霸权影响着美国人民的生活，威胁美国的自由价值取向。而重中之重是优先部署军力保卫台湾，台湾是中共的目标，更是美国的盟友，台海安全体现美国的威慑力是否能够持续。
+英国卫生部负责人今天发布了 30,144 例新病例，比上周六记录的 29,547 例增加了 2%。确诊后 28 天内死亡的人数也增加了 5.1%，达到 164 人，高于上周的 156 人。
 
-哈德逊研究所前总裁肯尼斯·温斯坦 表示赞同。温斯坦称，中共在意识形态、民族主义、南海、香港、新疆表现出的野心和暴政，是美国面临的最大挑战。哈德逊研究所”量子联盟计划” 主任阿瑟·赫尔曼也认为台湾是不可放弃的盟友，美国应视台湾为战略愿景的一部分，如果放任中共侵略台湾，不仅将破坏亚洲盟友的信任，也将是美国大国地位的终结。
-(本文仅代表作者观点)
+在疫苗接种方面，NHS（国民保健署）工作人员和志愿者昨天共接种了 19,605 剂第一剂疫苗，使英国国部分接种疫苗的总人数达到 4,850 万人，占成年人口的 89.3%。同时接种了大约 59,032 剂第二剂疫苗，使完全接种的人口达到 4,440 万（81.6%）。
 
-参考链接：  [中国军舰驶入挑衅？美前国防高官提“拒绝战略”遏制北京](https://www.voachinese.com/a/Strategy-of-denial-how-to-checkmate-china-ambition-20210915/6230695.html)
+疫苗接种和免疫联合委员会 (JCVI) 成员亚当.芬恩（Adam Finn）教授表示，科学家们没有“太多奢侈”的时间来研究疫苗对儿童的可能风险，通常会在向青少年推荐使用它们之前收集更多证据。他还呼吁 NHS 阐明疫苗对儿童的潜在长期后果，警告儿童在没有适当讨论潜在风险的情况下接种疫苗可能会破坏未来的接种并加剧反疫苗的怀疑态度。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+因此，父母有理由在让孩子接种疫苗之前等待三到六个月以获得更多关于可能的长期影响的证据，芬恩说，并称推迟决定是“完全合法的”。
 
-终审：文龙
-校正/发稿：我不在这里
+但本周早些时候，英国四位首席医疗官“一致批准”了向青少年提供接种疫苗的决定。 尽管近90%的英国人接种了新冠疫苗，但是感染率和死亡率依旧节节攀升，可见疫苗并未起到实质性的保护作用，然而即便如此，政府官员还是试图推广未成年人接种疫苗，难怪英国人开始发起愤怒的反抗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[新闻来源](https://www.dailymail.co.uk/news/article-10004317/COVID-UK-Anti-vaxxers-march-London-protesting-government-plans-children-Covid-jab.html)
 
 0

@@ -76,47 +76,47 @@
 ### [《爆料革命》](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约时代广场现大量人群抗议强制政策](/content/gnews/22/README.md)
+### [秘翻在线：打疫苗者感染Delta变种病毒的风险是自然感染者的13倍](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美卫生保健部人士爆料：禁止医生用硫酸羟氯喹和伊维菌素给新冠患者治病](/content/gnews/23/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线：中共再次打压台湾 暂停进口台湾水果释迦和莲雾](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [纽约时代广场现大量人群抗议强制政策](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/23/README.md)
+### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [揭露副作用真相后 主流媒体以隐私要挟米娜家人](/content/gnews/24/README.md)
+### [揭露副作用真相后 主流媒体以隐私要挟米娜家人](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [受疫情影响导致经济危机 肯尼亚遭受次生灾害打击](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [中共申请加入CPTTP 遭澳洲贸易部长呛声!](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [打折、实物兑付能拯救恒大吗？](/content/gnews/28/README.md)
+### [“四国联盟”将就安全的微芯片供应链达成协议](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/29/README.md)
+### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/29/README.md)
+ ` xiaobaige`
+
+### [打折、实物兑付能拯救恒大吗？](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/30/README.md)
+### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [日相候选人纷纷向中共展示强硬态度](/content/gnews/31/README.md)
+### [日相候选人纷纷向中共展示强硬态度](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [三星撤了，中国梦也该断了](/content/gnews/32/README.md)
+### [三星撤了，中国梦也该断了](/content/gnews/34/README.md)
  ` 银河勇气之星`
 
-### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/33/README.md)
+### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/35/README.md)
  ` wenwu`
-
-### [意大利受阻于对 TikTok 的制裁](/content/gnews/34/README.md)
- ` Charlie`
-
-### [法国：潜艇事件将影响北约的未来](/content/gnews/35/README.md)
- ` Charlie`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/36/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -145,33 +145,33 @@
 ### [论天国的仇敌：神要叫我看见我仇敌遭报](/content/gnews/44/README.md)
  ` 纽约香草山MOS03`
 
-### [高端芯片，21世纪的石油](/content/gnews/45/README.md)
+### [受疫情影响导致经济危机 肯尼亚遭受次生灾害打击](/content/gnews/45/README.md)
+ ` GTV新闻访谈`
+
+### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/46/README.md)
+ ` GTV新闻访谈`
+
+### [高端芯片，21世纪的石油](/content/gnews/47/README.md)
  ` 纽约香草山MOS03`
 
-### [CCP百年百罪 第十八集（74 – 76罪）](/content/gnews/46/README.md)
+### [CCP百年百罪 第十八集（74 – 76罪）](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [人民币就是中共的“假字画”](/content/gnews/47/README.md)
+### [人民币就是中共的“假字画”](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：伦敦数千人抗议强制接种疫苗护照和青少年接种疫苗](/content/gnews/48/README.md)
+### [中共申请加入CPTTP 遭澳洲贸易部长呛声!](/content/gnews/50/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：伦敦数千人抗议强制接种疫苗护照和青少年接种疫苗](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [从25万到7千! 香港登记选民人数下跌97%](/content/gnews/49/README.md)
+### [从25万到7千! 香港登记选民人数下跌97%](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [“爱国者治澳”下产生新立法会 澳门民主前景黯淡](/content/gnews/50/README.md)
+### [“爱国者治澳”下产生新立法会 澳门民主前景黯淡](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [保卫台湾 反制中共 , 是美国国防战略的重中之重!](/content/gnews/51/README.md)
+### [保卫台湾 反制中共 , 是美国国防战略的重中之重!](/content/gnews/54/README.md)
  ` GTV新闻访谈`
-
-### [四方安全对话机制新议题：确保半导体供应链的安全](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：新能源汽车下乡，是否是2008年家电下乡的重演？](/content/gnews/53/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（5）](/content/gnews/54/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 

@@ -2,30 +2,27 @@
 ---
 
 
-## 中共申请加入CPTTP 遭澳洲贸易部长呛声!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542356/)
+## 揭露副作用真相后 主流媒体以隐私要挟米娜家人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542606/)
 
-栏目记者/责任编辑：文小白
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-241.png)
+著名歌手尼基·米娜，在社交媒体上揭露新冠疫苗对家人的朋友造成伤害，该名受害者出现睾丸肿胀。在受到推特短暂封锁和白宫“思想教育”电话事件后，米娜在instagram上发布私人聊天截图，称因为揭露疫苗真相，家人遭到主流媒体威胁而不得不躲起来；不止她的家人，数以百万计的人们也处于类似的境遇。
 
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-17.jpeg)
 
+据该聊天截图显示，来自特立尼达的卫报记者沙琳·兰普萨德通过WhatsApp联系米娜的表弟，威胁他只有完成卫报的采访，才能保证其隐私不被公之于众。
 
+尼基·米娜事件不仅为她的粉丝打开了一扇了解疫苗真相的窗口，更使严格审查疫苗真相的媒体遭遇空前的危机。人们认识到，揭露疫苗真相，不仅自己的言论被管控，医生和专家的研究被打压，甚至明星家人都会被威胁。尽管如此，米娜仍强势回应道，”威胁我的家人，对你们可不是好兆头“。相信随着尼基·米娜事件的发酵，越来越多的人会探究并了解疫苗真相。我们也诚意邀请米娜女士进驻盖特平台，继续分享和传播疫苗真相。
 
-澳大利亚贸易部长唐 特翰（Dan Tehan）9月17日表示，除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，否则澳大利亚将反对中共国加入全球最大自由贸易区**CPTPP**的申请。
+（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-19-at-8.21.54-PM.png)
+参考链接: [Crossing the Line: Nicki Minaj Exposes the Media Mafia; Posts Private Messages From Reporters Threatening Her Family Members](https://www.thegatewaypundit.com/2021/09/crossing-line-nicki-minaj-exposes-media-mafia-posts-private-messages-reporters-threatening-family-members/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
-《跨太平洋伙伴全面与进步协定》简称**CPTPP**，其前身为《跨太平洋伙伴关系协定》也就是**TPP**，是由亚太经济合作会议成员发起，旨在促进亚太区的贸易自由化。2017年1月美国前总统川普以该协议损害美国制造业为由，退出了 **TPP**。随后在日本等国推动下，TPP同年11月11日改名为**CPTPP**。日本、加拿大、澳大利亚、新西兰、马来西亚、新加坡、越南、汶莱、墨西哥、智利以及秘鲁11个国家，于2018年3月签署该协定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-2021年9月16日,中共商务部长王文涛向**CPTPP**提交申请加入的官方信函。中国要加入该协定，需要所有成员国确信中共能够遵守现有的贸易协议 及兑现对世界贸易组织的承诺。澳大利亚贸易部长唐 特翰的这一表态，表明中共的这一申请企图将很难实现 。
-(本文仅代表作者观点)
-
-参考连接：[澳大利亚要求中国取消报复性贸易关税 否则免谈加入CPTTP](https://www.voachinese.com/a/Australia-opposes-China-s-bid-to-join-trade-pact-CPTTP-20210918/6234035.html)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +30,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
