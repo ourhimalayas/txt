@@ -76,23 +76,23 @@
 ### [抗体依赖性增强会加剧疾病，中共疫苗就是生物武器](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：印度竞争委员会即将定性谷歌滥用其安卓系统的主导地位](/content/gnews/22/README.md)
+### [秘翻在线：新能源汽车下乡，是否是2008年家电下乡的重演？](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：因芯片供应不足汽车被迫减产 顾客排队期限大幅拉长](/content/gnews/23/README.md)
+### [秘翻在线：印度竞争委员会即将定性谷歌滥用其安卓系统的主导地位](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：比尔·盖茨疯狂无极限 欲以结束疫情之名给全人类扎疫苗！](/content/gnews/24/README.md)
+### [秘翻在线：因芯片供应不足汽车被迫减产 顾客排队期限大幅拉长](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞疫苗的致死率远高于有效率](/content/gnews/25/README.md)
+### [秘翻在线：比尔·盖茨疯狂无极限 欲以结束疫情之名给全人类扎疫苗！](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国24个州将对拜登的“异描”强制政策采取法律行动](/content/gnews/26/README.md)
+### [辉瑞疫苗的致死率远高于有效率](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国24个州将对拜登的“异描”强制政策采取法律行动](/content/gnews/27/README.md)
  ` GTV新闻访谈`
-
-### [美英澳安全结盟能给美国带来安全吗？](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/28/README.md)
  ` wenwu`
@@ -142,36 +142,36 @@
 ### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/43/README.md)
  ` wenwu`
 
-### [马克·扎克伯格的“反疫苗”立场违反了他自己平台的新政策](/content/gnews/44/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（5）](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [马克·扎克伯格的“反疫苗”立场违反了他自己平台的新政策](/content/gnews/45/README.md)
  ` 首尔天池农场`
 
-### [2021年9月18日 文贵先生盖特 16](/content/gnews/45/README.md)
+### [2021年9月18日 文贵先生盖特 16](/content/gnews/46/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [墙内疫苗心情日记（十七）](/content/gnews/46/README.md)
+### [墙内疫苗心情日记（十七）](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月18日 文贵先生盖特 15](/content/gnews/47/README.md)
+### [2021年9月18日 文贵先生盖特 15](/content/gnews/48/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [媒体的不作为可能使不明真相的科研人员去做无用功！](/content/gnews/48/README.md)
+### [媒体的不作为可能使不明真相的科研人员去做无用功！](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马斯克SpaceX龙飞船首次商业太空之旅](/content/gnews/49/README.md)
+### [马斯克SpaceX龙飞船首次商业太空之旅](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际要闻汇编](/content/gnews/50/README.md)
+### [国际要闻汇编](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/51/README.md)
+### [墙内要闻汇编](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月18日 文贵先生盖特 14](/content/gnews/52/README.md)
+### [2021年9月18日 文贵先生盖特 14](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月18日 文贵先生盖特 13](/content/gnews/53/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月18日 文贵先生盖特 12](/content/gnews/54/README.md)
+### [2021年9月18日 文贵先生盖特 13](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

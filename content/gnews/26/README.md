@@ -2,41 +2,24 @@
 ---
 
 
-## 美国24个州将对拜登的“异描”强制政策采取法律行动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541596/)
+## 辉瑞疫苗的致死率远高于有效率
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541736/)
 
-栏目记者/责任编辑：文真
+#### 翻译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-74.jpg)图片来源：Youtube 截图
+史蒂夫·基尔希 (Steve Kirsch)，中共病毒早期治疗基金的执行董事，在9月17号的疫苗和相关生物制品咨询委员会里提出被辉瑞（Pfizer）疫苗杀死的人要多于被疫苗救的人。
 
+史蒂夫指出，我们默认疫苗是完全安全的，但是事实根本不是这样的。 他举例说，一个辉瑞的5-6个月的药物试验报告显示，在治疗组里的病人心脏病发作次数增加4倍。他还指出与其他所有疫苗相比，注射过辉瑞疫苗的人，心脏病发的次数多了71倍。
 
+史蒂夫强调，即使疫苗是有100%的保护能力的，但是这仍然意味着打疫苗是“为了救1个人而杀死了2个人”的行为。他告知参加会议的人员，有四位专家使用完全不同的非美国数据做了分析，都得出了大概一样的与疫苗相关的过量死亡数据。他强调，真实数据显示，疫苗杀死的人多于救的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
+史蒂夫还指出，从色列卫生部的关于90岁以上的老人的数据里，比较 94.4%的接种组的数据与82.9%的4 个月内的接种组的数据，会发现50%的接种疫苗的人已经死亡，而未接种疫苗的死亡人数是0。
 
+他在会议上放出的一张图片显示，疫苗在美国造成了150000例超额死亡。另外两张图片则显示，在美国从2015年1月日1至2019年12月31日，年龄为20岁或以上和60岁以下的死于心脏骤停的人数是4人，但是打了辉瑞疫苗后，同年龄段死于心脏骤停的人数是57人。打了辉瑞疫苗后很快地在一段时间内心脏骤停的病例与基线相比升高了71倍。还有一张图片表明，每317个男孩（16-17岁）中就有1个会因接种疫苗而得心肌炎，打了加强针后，比例则飙升至25：1。
 
+史蒂夫强调，接受早期治疗比打疫苗加强针更好。
 
-美国24位共和党州检察长联合致信拜登称，如果拜登政府不改变其疫苗政策，将对他采取法律行动。这封信是在拜登上周宣布全面的疫苗政策之后发出的，该政令包括劳工部的一项紧急规定，要求拥有100名以上员工的私营部门公司确保雇员接种冠状病毒疫苗，或进行每周一次的病毒测试。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/美国24个州将对拜登的异描强制政策采取法律行动.jpg)
-信中称，拜登的计划是”灾难性的、适得其反”。疫苗强制接种不仅是对个人自由的威胁，而且是一场公共卫生灾难，将使脆弱的工人流离失所，加剧全国范围内的医务人员危机，给所有美国人带来严重后果。
-
-多位共和党州长公开发表言论，反击拜登的疫苗计划。共和党全国委员会主席麦克丹尼尔说，将起诉拜登政府，以保护美国人和他们的自由。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://ago.wv.gov/Documents/AGs%27%20letter%20to%20Pres.%20Biden%20on%20vaccine%20mandate%20%28FINAL%29%20%2802715056xD2C78%29.PDF)
-2. [美国24个州将对拜登的“异描”强制政策采取法律行动](https://www.msn.com/en-us/news/politics/24-states-threaten-legal-action-against-biden-e2-80-99s-vaccine-mandate/ar-AAOwKDx)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
+**新闻来源****：**[**Vaccines and Related Biological Products Advisory Committee – 9/17/2021**](https://www.youtube.com/watch?v=WFph7-6t34M&amp;t=15684s)
 
 0

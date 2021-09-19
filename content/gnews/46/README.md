@@ -2,26 +2,17 @@
 ---
 
 
-## 墙内疫苗心情日记（十七）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1542299/)
+## 2021年9月18日 文贵先生盖特 16
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542301/)
 
-#### 撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/09/fb7db9d72ee4ceb5.png)
-虽是初秋，但今日的小雨却让人明显感到了凉意。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-被共产党统治几十年，我本人的中共之毒也不轻，七哥的直播就像生活中的良药，不断清除我身上的余毒，唤回一个清醒的头脑。在世界范围内，疫苗灾难已经不断显现，并在媒体不断传播，全球反疫苗声浪和行动越来越强。七哥讲，病毒疫苗阴谋，不仅是台前的中共，还与背后的世界黑暗组织和势力有关。特别是七哥讲，今年年底前全世界疫苗接种将结束。虽然我不能完全看透和理解这些高层次高维度的事情，但我相信七哥所代表的爆料革命和世界的正义力量，终将取得胜利。
+9/18/2021 Miles Guo’s GETTR: There are countless cases of fellow fighters around the world recovering from COVID after taking the medication offered by the Whistleblowers’ Movement; With the continuation of the Communst China’s economic and financial crises, the CCP attempts to loot the Hongkongers’ wealth by reaching their “black hands” into the pockets of HSBC; The fundamental reason the CCP and other evil forces are so insane is their absolute control of media, finance, and intelligence
 
-对于当前国内的生活，用七哥的话来形容就是，温水煮青蛙。恒大的爆雷和地产引发的金融危机刚开始，而国民仍旧在“岁月静好”，不久恐怕连退休工资都发不下来。最近司机开车猝死的新闻每天都在发生，自己在开车的时候就非常谨慎。在传播疫苗真相的事情上，我没有停，但效果不佳，基本都无动于衷或者在观望。今天七哥又说“青蒿素是上天给人类的礼物”。我准备再买几盒，就连我自己也不清楚再买的目的，但总觉得多备一点不会错。
+9/18/2021 文贵盖特：全球战友服用了爆料革命提供的药物转危为安的案例不胜枚举；伴随着中共国经济、金融危机继续延烧，中共将黑手伸向汇丰等银行，企图抢劫香港人民的财富；中共等邪恶力量疯狂的根本原因不外乎对媒体、金融和情报的绝对控制。
 
-我们所处的行业是第二产业所需部分低端原材料的生产和销售，快到采暖季节了，环保、安监和电力等部门都在折腾，不少生产企业都已准备放假半个月，影响面很大，但不管企业死活的，可气可恨的共产党。
+[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbiqsn2316)
 
-由于跟随和坚信爆料革命，使得自己能够尽最大力去躲避而没有打疫苗，感谢七哥给予的信心和勇气。这几天，河南准备开打第三针疫苗，可见，共产党在一天作恶就不会停。希望有更多的中国人民能够开智，为灭共和建设新中国联邦做好准备!
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-
+**喜联盟Gnews编辑部**
 
 0
