@@ -103,29 +103,29 @@
 ### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/31/README.md)
- ` xiaobaige`
-
-### [打折、实物兑付能拯救恒大吗？](/content/gnews/32/README.md)
+### [澳大利亚的核潜艇交易标志着将与中共国摊牌](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/33/README.md)
+### [香港根据中共的法律 “选择”选举人](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/33/README.md)
+ ` xiaobaige`
+
+### [打折、实物兑付能拯救恒大吗？](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [日相候选人纷纷向中共展示强硬态度](/content/gnews/34/README.md)
+### [日相候选人纷纷向中共展示强硬态度](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [三星撤了，中国梦也该断了](/content/gnews/35/README.md)
+### [三星撤了，中国梦也该断了](/content/gnews/37/README.md)
  ` 银河勇气之星`
 
-### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/36/README.md)
+### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/38/README.md)
  ` wenwu`
-
-### [意大利受阻于对 TikTok 的制裁](/content/gnews/37/README.md)
- ` Charlie`
-
-### [法国：潜艇事件将影响北约的未来](/content/gnews/38/README.md)
- ` Charlie`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`

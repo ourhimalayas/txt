@@ -2,37 +2,25 @@
 ---
 
 
-## 美澳2+2会谈：强化对台关系，对香港和人权问题表示关切
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1542482/)
+## 最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1542675/)
 
-作者：香草山农场-Yousei
+#### 翻译整理/简评：            意大利罗马达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Schermata-2021-09-18-alle-23.38.19.png)
+图片来源：Il Fatto Quotidiano
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+卡布列雷•卡查尼， 61岁，9月17日死于中共病毒。作为救护车司机，他早在去年12月27日新冠疫苗接种日便接种了第一剂辉瑞疫苗，自这一天起， 意大利便开启了全民接种新冠疫苗的活动。今年1月中旬， 他接种了第二剂辉瑞疫苗。卡布列雷还常常进行核酸检测。据当地报纸推测，他很有可能是在工作地点染上病毒的。
 
+与他同时染上新冠病毒的还有卡布列雷的兄弟，他们是同事。卡布列雷是在开始感觉呼吸困难的时候察觉染上病毒的。
 
+刚开始病情似乎很稳定，不久却急剧恶化直至死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/美澳22会谈：强化对台关系，对香港和人权问题表示关切.jpg)图片来源：网络
+这是最早一批接种辉瑞疫苗的意大利医务工作者。卡布列雷的死亡让我们不禁会问：媒体和病毒专家不是说打了疫苗之后不会再感染病毒吗？ 媒体不是告诉百姓即使感染病毒也只是轻症，不会死亡吗？卡布列雷只是众多打了疫苗后仍然被感染的一例，这会使相关专家以疫苗效力减弱为借口，开打第三剂，第四剂疫苗……媒体很有可能是在为加强针做舆论铺垫。文贵先生也说过在第二剂疫苗注射后的六个月以后，疫苗的灾难性会逐渐显现出来。
 
-9月16 日，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀在华盛顿接待了澳大利亚外交部长兼妇女部长玛丽斯·佩恩和国防部长彼得·达顿，一起参加了第三十一届澳美部长级磋商会议。
+原文链接：https://www.ilrestodelcarlino.it/ravenna/cronaca/gabriele-gazzani-covid-1.6814036
 
-美澳两国在联合声明中强调台湾在印太地区的重要作用，并表示未来将强化对台关系，支持台湾参与国际组织。同时，两国重申，将继续支持在不诉诸威胁或胁迫的情况下，和平解决两岸问题。两国还将共同加强与台湾在太平洋地区的援赠，反对胁迫性地使用破坏基于规则的贸易和经济措施。该声明还对中共扩大对南海主权表示关切，强调在遵循“联合国海洋法公约”的条件下，任何国家均有在南海行使包括航行、飞越自由在内的海洋权利及自由。美澳还就香港的自治、民主制度惨遭中共侵蚀，以及中共对新疆维吾尔族和其他少数族裔的打压表示关切。
+免责声明， 本文只代表作者观点，与Gnews平台无关
 
-参考链接：[美澳2+2會談：強化對台關係](https://news.ltn.com.tw/news/world/paper/1473358)
-
-编辑/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+责任编辑/校对/发布： Xiao  baige
 
 0
