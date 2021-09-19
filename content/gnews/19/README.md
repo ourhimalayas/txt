@@ -2,27 +2,101 @@
 ---
 
 
-## 【 #G时新闻 】加拿大多伦多枫叶农场全球反疫苗护照示威大游行！
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1542824/)
+## 塔克-卡尔森：如果他们可以强迫你，注射一种 你不需要的疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1543212/)
 
-播报：小苹果lily 制作:北美小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a9tfs-c6aph-1.jpg)
+[https://gtv.org/video/id=6146c1bdd2e2b817486b2812](https://gtv.org/video/id=6146c1bdd2e2b817486b2812)
 
-“消灭中共是正义的必须”9月18日来自加拿大十多个城市同时举行的反疫苗护照大游行，任何在这拯救人类的关键时刻，还想跟中共勾兑的政客，都必须下台，反对政府独裁，强制专政。战友们一路宣传疫苗病毒真相和传播新中国联邦。
+**字幕内容:**
 
-随着新中国联邦在全球对“中共病毒”及疫苗真相不懈地报道和广泛传播，以及接种该疫苗后持续大量发生的各种次生灾难和由此导致的健康危害，世界各地不断觉醒的人们再难如羔羊般沉默而任由恶政宰割。包括美国，加拿大，澳大利亚，日本，巴西及欧盟等40多个国家勇敢不屈的民众再次振臂而起，云集响应地于同日在各自所居城市举行“反疫苗护照全球自由大游行”的示威活动。
+**Tucker Carlson:**
+**塔克-卡尔森:**
 
-面对本次在加拿大九个城市同天进行的示威集会，盛况空前之下，多伦多枫叶农场依惯当仁不让，再度热血地战斗在此次“反疫苗护照”游行活动的最前沿，以力图让更多人了解新中国联邦拯救人类的天赋使命和爆料革命彻底消灭中共的根本立场。同时，借此全球行动之良机，有效宣传我们用以揭露“中共病毒”真相及疫苗危害和传播解药信息的三大媒体平台：盖特、GTV和Gnews。
+in the moment of centralized tax surveillance, combined with mass social conformity, and that’s exactly the country were living in right now.
+在集中税收监控的同时，再结合大规模
+的社会一致性，这正是我们现在所处的
+国家
 
-为此，农场战友们提前踊跃报名，挺身而出，自发于当日中午12点齐心集结于该市皇后公园，会同当地成千上万渴望自由，反抗恶政的民众一道，并肩走上街头，共同捍卫“言论自由，行动自由，选择自由和集会自由”这些绝对受加拿大宪法保障的基本权利。并以“我的健康, 我做主！” 为根本主张，自觉联合起来抵制和反抗特鲁多自由党政府所强制实施的，严重违反加拿大宪法和侵犯人权的“疫苗护照”!
+there are many limits to where can go?
+社会存在很多限制
 
-此外，因所在地域不同的原因，除了参加在多伦多市的集会游行活动之外，加拿大枫叶农场身处其他地区的战友们，也正积极参加今天于各自所在城市包括：渥太华，卡尔加里，蒙特利尔，温哥华等统一举行的“反疫苗护照”示威活动。
+if they can force you to take a vaccine that you don’t need, what can they do?
+如果他们可以强迫你注射一种你不需要
+的疫苗，那么他们还有什么不能做的？
 
-原文链接：[自由之战–加拿大多伦多枫叶农场全球反疫苗护照示威](https://gnews.org/zh-hans/1539073/)
+why don’t they? I don’t know, make you take psychiatric drugs if you’re persistently disobedient, expressed the wrong view, you get a Thorazine shot.
+他们为什么不会这样做？我不知道，如
+果你持续不听话，就给你吃精神药物
+如果你表达了错误的观点，你就会被镇
+定剂
 
-[盖特链接](https://gettr.com/post/pbkal8cb26)
+why couldn’t they do that? What’s the limiting principle on them?
+为什么他们不能这样做？对他们的主要
+限制是什么？
 
-* * *
+in fact, you can imagine a panel of scene and doctors explain that we’d all be a lot safer if the mentally propaganda on the radical right got the treatment they need and stops writing their dangerous conspiracy theories
+事实上，你可以想象由专家和医生组成
+的小组解释说，如果激进的右派的精神
+宣传得到他们需要的治疗，并停止写他
+们危险的阴谋论，我们都会安全很多
 
-编辑/发稿 云起时
+so giving them psychiatric meds is an urgent matter of public health.
+因此，给右派提供精神药物是公共卫生
+的一个紧急事项
+
+does that sound for a fetched? Hehe
+这话听起来很牵强吗？呵呵
+
+how about the school therapist convince your six year old is which gender is the except chemical castration?
+如果学校治疗师说你六岁的孩子是哪种性别并要接受化学阉割那将如何？
+at this point, why should you be able to stop that from happening? why should you have any say at all? you’re not a doctor, you’re a parent, and you have no power
+在这一点上，你有什么权利阻止它发生？
+你为什么要有任何发言权？你不是医生
+你只是父母，你没有权力
+
+if you’re no longer in control of your own body and thanks to the vaccine mandates we established, you are not in control of your own body.
+如果你不再控制你自己的身体，并且由
+于政府规定的疫苗强制，你确实不能控
+制你自己的身体
+
+what gives you the right to control your child’s body?
+你有什么权利控制你孩子的身体？
+
+it’s a good question
+这是个好问题
+
+As Joe Biden himself told the country on Thursday “this is not about freedom”, and that’s true, it’s not about freedom.
+正如乔-拜登本人在星期四告诉国家的那
+样，”这与自由无关”，这是真的，这确
+实无关自由
+
+keep in mind it wasn’t so longer ago, the authorities in this country forcibly sterilized and lobotomized American citizens against their will.
+请记住，就在不久以前的事，这个国家
+的当局强行对美国公民进行绝育和脑叶切除
+
+why? In the name of public health and wasn’t just a few people by the way, it was a lot of people.
+为什么？以公共卫生的名义，而且不只
+是几个人，顺便说一下，是有很多人
+
+so explain it’s all, we can understand, why that can happen again? tells why some version of that is unfolding right now.
+因此，解释这一切，我们可以理解，为
+什么威权会再次发生？也告诉我们为什
+么现在有这样的一些行动在实施
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/columbiabugle/status/1437775459400495114?s=21](https://twitter.com/columbiabugle/status/1437775459400495114?s=21)
+
+英听校：洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Layka
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

@@ -67,23 +67,23 @@
 ### [补贴、产假难填育养“黑洞”](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [【 #G时新闻 】加拿大多伦多枫叶农场全球反疫苗护照示威大游行！](/content/gnews/19/README.md)
+### [塔克-卡尔森：如果他们可以强迫你，注射一种 你不需要的疫苗](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【 #G时新闻 】加拿大多伦多枫叶农场全球反疫苗护照示威大游行！](/content/gnews/20/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [奥布莱恩主张“豪猪防御策略”阻止中共入侵台湾](/content/gnews/20/README.md)
+### [奥布莱恩主张“豪猪防御策略”阻止中共入侵台湾](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [妮琪·米娜因质疑新冠疫苗的安全性而被推特噤声](/content/gnews/21/README.md)
+### [妮琪·米娜因质疑新冠疫苗的安全性而被推特噤声](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/22/README.md)
+### [有声|中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [宁南时事脱口秀](/content/gnews/23/README.md)
+### [宁南时事脱口秀](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|国安法影响下香港教师现离职潮](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [秘翻在线: 中共国疫苗完全接种人数逾10亿](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [美日印澳“四方安全对话”将推动建立半导体安全供应链](/content/gnews/47/README.md)
+### [出手](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳要求中国取消报复性贸易关税 否则免谈加入CPTPP](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国货币政策会议21日起确定宽松降准开始](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中秋将至：港共当局“卖港者治港”选举后秋后算账](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美日印澳“四方安全对话”将推动建立半导体安全供应链](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [COVID-19疫苗加强针危险，会激起血凝块和血管渗漏](/content/gnews/48/README.md)
+### [COVID-19疫苗加强针危险，会激起血凝块和血管渗漏](/content/gnews/52/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共攻台在即，文贵先生全力护台](/content/gnews/49/README.md)
+### [中共攻台在即，文贵先生全力护台](/content/gnews/53/README.md)
  ` 波士顿五月花农场`
 
-### [美英澳形成新“铁三角”以对抗中共](/content/gnews/50/README.md)
+### [美英澳形成新“铁三角”以对抗中共](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [加拿大生活美谈 2021-09-16第二十二期](/content/gnews/51/README.md)
+### [加拿大生活美谈 2021-09-16第二十二期](/content/gnews/55/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [9/19/21 香港快讯 职工盟成员收讯息 继续营运人身安全或受威胁 下月开会商议解散](/content/gnews/52/README.md)
+### [9/19/21 香港快讯 职工盟成员收讯息 继续营运人身安全或受威胁 下月开会商议解散](/content/gnews/56/README.md)
  ` 英喜-粵語組`
 
-### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [论天国的仇敌：神要叫我看见我仇敌遭报](/content/gnews/54/README.md)
- ` 纽约香草山MOS03`
-
-### [揭露副作用真相后 主流媒体以隐私要挟米娜家人](/content/gnews/55/README.md)
- ` GTV新闻访谈`
-
-### [受疫情影响导致经济危机 肯尼亚遭受次生灾害打击](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/57/README.md)
+### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 
