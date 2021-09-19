@@ -2,24 +2,36 @@
 ---
 
 
-## 辉瑞疫苗的致死率远高于有效率
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541736/)
+## 保卫台湾 反制中共 , 是美国国防战略的重中之重!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542371/)
 
-#### 翻译：Grace
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-74.jpg)图片来源：Youtube 截图
-史蒂夫·基尔希 (Steve Kirsch)，中共病毒早期治疗基金的执行董事，在9月17号的疫苗和相关生物制品咨询委员会里提出被辉瑞（Pfizer）疫苗杀死的人要多于被疫苗救的人。
+栏目记者/责任编辑：七哩香
 
-史蒂夫指出，我们默认疫苗是完全安全的，但是事实根本不是这样的。 他举例说，一个辉瑞的5-6个月的药物试验报告显示，在治疗组里的病人心脏病发作次数增加4倍。他还指出与其他所有疫苗相比，注射过辉瑞疫苗的人，心脏病发的次数多了71倍。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-史蒂夫强调，即使疫苗是有100%的保护能力的，但是这仍然意味着打疫苗是“为了救1个人而杀死了2个人”的行为。他告知参加会议的人员，有四位专家使用完全不同的非美国数据做了分析，都得出了大概一样的与疫苗相关的过量死亡数据。他强调，真实数据显示，疫苗杀死的人多于救的人。
 
-史蒂夫还指出，从色列卫生部的关于90岁以上的老人的数据里，比较 94.4%的接种组的数据与82.9%的4 个月内的接种组的数据，会发现50%的接种疫苗的人已经死亡，而未接种疫苗的死亡人数是0。
 
-他在会议上放出的一张图片显示，疫苗在美国造成了150000例超额死亡。另外两张图片则显示，在美国从2015年1月日1至2019年12月31日，年龄为20岁或以上和60岁以下的死于心脏骤停的人数是4人，但是打了辉瑞疫苗后，同年龄段死于心脏骤停的人数是57人。打了辉瑞疫苗后很快地在一段时间内心脏骤停的病例与基线相比升高了71倍。还有一张图片表明，每317个男孩（16-17岁）中就有1个会因接种疫苗而得心肌炎，打了加强针后，比例则飙升至25：1。
+9月15日，美国外交政策智库”卡内基国际和平基金会” 举办了一场研讨会，探讨了美国国防战略应如何改变，以遏制中共日益增长的实力和野心,并最终阻止爆发战争。该研讨会是在数日前中共海军舰艇驶入美国阿拉斯加附近水域的背景下召开的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.003.jpeg)
+研讨会与会者之一, 是美国前助理国防部长科尔比, 他刚刚出版了新书《拒绝的战略：大国冲突时代的美国国防》，科尔比称，当前的美国国防战略应首先针对中共，中共的霸权影响着美国人民的生活，威胁美国的自由价值取向。而重中之重是优先部署军力保卫台湾，台湾是中共的目标，更是美国的盟友，台海安全体现美国的威慑力是否能够持续。
 
-史蒂夫强调，接受早期治疗比打疫苗加强针更好。
+哈德逊研究所前总裁肯尼斯·温斯坦 表示赞同。温斯坦称，中共在意识形态、民族主义、南海、香港、新疆表现出的野心和暴政，是美国面临的最大挑战。哈德逊研究所”量子联盟计划” 主任阿瑟·赫尔曼也认为台湾是不可放弃的盟友，美国应视台湾为战略愿景的一部分，如果放任中共侵略台湾，不仅将破坏亚洲盟友的信任，也将是美国大国地位的终结。
+(本文仅代表作者观点)
 
-**新闻来源****：**[**Vaccines and Related Biological Products Advisory Committee – 9/17/2021**](https://www.youtube.com/watch?v=WFph7-6t34M&amp;t=15684s)
+参考链接：  [中国军舰驶入挑衅？美前国防高官提“拒绝战略”遏制北京](https://www.voachinese.com/a/Strategy-of-denial-how-to-checkmate-china-ambition-20210915/6230695.html)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 0

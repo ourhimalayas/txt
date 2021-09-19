@@ -2,26 +2,17 @@
 ---
 
 
-## 媒体的不作为可能使不明真相的科研人员去做无用功！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1542295/)
+## 2021年9月18日 文贵先生盖特 16
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542301/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/etre.png)
-（图片源自本文链接）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-据9月19日日刊“工业新闻”题为【疫苗不良反应和基因之间有什么关系？】的报道，**Euglena和GeneQuest（东京港区）与东北大学医院合作，开始了一项关于新冠状病毒疫苗接种的不良反应和遗传背景的研究**。
+9/18/2021 Miles Guo’s GETTR: There are countless cases of fellow fighters around the world recovering from COVID after taking the medication offered by the Whistleblowers’ Movement; With the continuation of the Communst China’s economic and financial crises, the CCP attempts to loot the Hongkongers’ wealth by reaching their “black hands” into the pockets of HSBC; The fundamental reason the CCP and other evil forces are so insane is their absolute control of media, finance, and intelligence
 
-这两家公司向为其提供基因分析服务的个人发出调查问卷。希望通过研究各种不良反应和遗传个体差异之间的关系，能够在如何为不良反应提前做好准备方面提出建议。
+9/18/2021 文贵盖特：全球战友服用了爆料革命提供的药物转危为安的案例不胜枚举；伴随着中共国经济、金融危机继续延烧，中共将黑手伸向汇丰等银行，企图抢劫香港人民的财富；中共等邪恶力量疯狂的根本原因不外乎对媒体、金融和情报的绝对控制。
 
-对于收集的疫苗接种者不良反应的调查结果，将首先由专门研究传染病的东北大学医院普通传染病科进行梳理分类，然后再交由GeneQuest公司进行分析。研究人员将分析接种疫苗后的各种不良反应（如发烧和疲劳）与携带遗传信息的脱氧核糖核酸（DNA）的核苷酸序列在个体之间存在差异这一事实之间的关系。如果能够找到一种关系，就有可能提供一种服务，即对已经做过基因分析的人，在疫苗接种前就能预测其不良反应的结果。
+[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbiqsn2316)
 
-[信息源](https://news.yahoo.co.jp/articles/20433658e87537b4dd4643203b98d7480bf0229c)
+**喜联盟Gnews编辑部**
 
-关于中共病毒及疫苗，媒体的不作为，使得日本的学者们难以想象CCP的邪恶，导致难以找到病毒以及疫苗危害之要点。所以，他们还在不遗余力、千方百计地查原因、找办法。从中共病毒在世界蔓延开始至今，人们看到的是死亡、后遗症，以及经济的衰退等等。其实，像这种科技研究领域的浪费也一定会随着时间的推移，令人扼腕。
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 0

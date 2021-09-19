@@ -2,28 +2,34 @@
 ---
 
 
-## 秘翻在线：因芯片供应不足汽车被迫减产 顾客排队期限大幅拉长
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541813/)
+## 从25万到7千! 香港登记选民人数下跌97%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542361/)
 
-#### 翻译：Xiaojiucaia
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-75.jpg)ttutu’p图片图片来源：网络截图
-据日经亚洲报道，由全球芯片短缺和东南亚肆虐的流行病引发的汽车减产现在已经影响到消费者——丰田和本田汽车的买家被要求等待一年多才能收到他们订购的汽车。
+栏目记者/责任编辑：飞虹
 
-本田宣布其8月和9月的国内产量比之前的计划下降了约 60%。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-Suzuka工厂和Sayama工厂的产量将在10月初减少40%，从而减少N-Box微型车和Stepwgn小型货车的供应。
 
-日本六家汽车制造商的减产规模估计为105万辆。铃木和斯巴鲁面临更多的设施闲置，而在海外，德国汽车制造商大众汽车也在削减海外产量。
 
-本田预计 2021 财年的全球销量将从最初估计的15万辆降至485万辆。但实现这一目标可能是一项艰巨的任务。减产严重打击了领导层。本田告诉经销商，Vezel运动型多功能车从工厂发货可能需要一年多的时间。在某些情况下，N-One 微型车的等待时间超过六个月。
+9月19日，香港选举委员会界别分组选举 开始投票，这是今年3月底中共全国人大常委会大幅修改香港选举制度之后的第一场选举投票。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.001.jpeg)
+新选举制度下的选举委员会，由过去的工商、金融、基层劳工、宗教、立法会议员、地区组织代表等，增加了“人大、政协委员及全国性团体香港成员代表界”，席位也由上届的1,200席增加至1,500席。成员席位及界别有所增加，但是选民总人数却大幅倒退，港府选委会公布的临时投票登记册显示，全港登记选民仅有近7,900名，较选举制度修改前的近25万名选民，竟然下跌了97%之多!
 
-丰田在 7 月份通知其广受欢迎的SUV Land Cruiser的买家，等待时间将超过一年。为了防止汽车在海外转售，该汽车制造商正在确认客户在日本购买汽车是否供个人使用。但从那时起，这款车就受到了减产的影响，现在等了两年多。
+而事实上在修改选举规则及各种操控之下，1500个席位中超过1000个席位已经内定自动当选，最终只有364个席位需要由所谓的选举产生。且民主派人士不惧威胁，不为中共充门面唱赞歌，几乎无人参选。数据和证据都表明，香港已彻底沦为中共治下”内地”城市，而香港人通过议会参与本地政治事务已没有任何可能，甚至已没有任何的兴趣再与虎谋皮。
+(本文仅代表作者观点)
 
-波士顿咨询集团（BCG）估计，今年芯片短缺将导致全球汽车产量减少700万至900万辆。减少1000万辆将使总数达到约7400万辆，与 2020 年汽车制造商受到大流行打击时的水平持平。
+参考链接：[香港民调：市民对未来各项选举关注度低 年轻人对议会路线已没想像](https://www.voachinese.com/a/hong-kong-survey-preview-on-election-committee-subsector-elections-20210917/6233091.html)
 
-BCG表示，汽车半导体供应要到明年下半年才会稳定下来，外国汽车制造商的高管表示，短缺要到2022年或2023年才能解决。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-新闻来源：[Honda, where’s my car? Production cuts lead to yearlong waits](https://asia.nikkei.com/Business/Automobiles/Honda-where-s-my-car-Production-cuts-lead-to-yearlong-waits)
+终审：文龙
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

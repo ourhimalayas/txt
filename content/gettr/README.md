@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/19/2021 1:15 PM (UTC)`
+
+9月19号：看到了很多国内关于恒大如何死法的预测！这都是老百姓最天真的想法，我可以肯定地告诉大家，👉👉👉恒大的司法不在这三个方法之内👇👇👇会出乎大家的意料之外……莘县阳谷县搭县咱走着看……
+![img](https://media.gettr.com/group6/default/20210919/13/15/b561b6f0-c864-a6e0-3d55-21655b111329/9097e352a0ce86dc7b4c4af5594f63e3.jpg)
+
+---
+
 `@miles 9/19/2021 8:57 AM (UTC)`
 
 9月19号：视频中．非故意的谋杀这样的事件只能会越来越多，而且可能多到我们无法想象的程度。我在一年前就说过，疫苗灾难和疫苗次生灾害，将给人类和我们带来的伤害超过C C P病毒。所以说我们的战友们，兄弟姐妹们，一定要调整好自己的生活方式，让自己和家人安全健康的活下去，这才是最重要的。
@@ -292,13 +299,6 @@ REAL LOVE!!!
 
 第一段：<br/>9月16号：尊敬的战友们好，昨天的直播，在国际政治和金融领域和有智慧的战友眼里是完全不同的一个直播的意义的结果。新中国联盟的国际大使……那瓦罗先生的加入！对我爆料革命和新中国联邦意味着什么？
 ![img](https://media.gettr.com/group8/getter/2021/09/16/14/f8ecce4e-efc8-f8df-b3b1-8a07df6e0a92/out.jpg)
-
----
-
-`@miles 9/16/2021 12:54 PM (UTC)`
-
-An brief introduction on the settlement between GTV and the SEC<br/>GTV与SEC的和解简介
-![img](https://media.gettr.com/group25/getter/2021/09/16/12/80cf56a7-04b5-d77d-634b-2b087630f439/out.jpg)
 
 ---
 

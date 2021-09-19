@@ -2,26 +2,36 @@
 ---
 
 
-## 秘翻在线：比尔·盖茨疯狂无极限 欲以结束疫情之名给全人类扎疫苗！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541802/)
+## “爱国者治澳”下产生新立法会 澳门民主前景黯淡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542368/)
 
-#### 翻译：彩虹
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-105.jpg)图片来源：
-9月18日，企业家（Entrepreneur）英文版报道了比尔·盖茨（Bill Gates）针对如何结束中共病毒疫情提出的“唯一解决方案”。
+栏目记者/责任编辑：飞虹
 
-根据西班牙广播公司RAC1的报道，世卫组织（WHO）公共卫生、环境和气候变化部主任玛丽亚·内拉（María Neira）说，只要对疫苗覆盖率低的国家进行免疫接种，中共病毒（Covid-19）疫情就可以得到控制，这可能会在2022年3月实现。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-内拉认为：“两年是我们自己设定的期限，它肯定是一个合理的时间。如果我们以迄今为止的速度开始接种疫苗，我们甚至可以更早地看到摆脱这种巨大困境。”
 
-对此，比尔·盖茨进行了讽刺，他说，（世卫组织）曾说到2021年3月就能控制中共病毒疫情，但显然不是那么回事儿。
 
-上周一，盖茨基金会发表了一份报告，报告中，这位大亨重申“末日还没有到来”，并说，“解决这一问题的唯一解决方案，是在100天内建立能为每个人生产足够剂量疫苗的工厂。这是可行的。”
+澳门第七届立法会选举9月12日如期举行，最终投票产生了“爱国者治澳”主旨下的新一届立法会。
 
-比尔·盖茨呼吁世界各国领导人进行必要的投资，以开发和制造长期疫苗，并改善公共卫生基础设施，特别是在低收入国家。
 
-比尔·盖茨作为世界暗黑势力的代表性人物之一，在暗地进行相关操作的同时，继续用虚假的善良姿态欺骗世界各国有良知的领导人和人民，企图继续掩盖打压中共病毒解药的真相，继续长期用牺牲他人的生命来为自己所在集团谋取利益，他和福奇一样，最终会以“反人类罪”受到应有的惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-19-at-8.32.40-PM.png)
+针对选举前众多民主派参选人及前议员 被澳门选管会裁定为不拥护基本法及不效忠澳门特区政府，遂被取消参选的质疑，澳门特首贺一诚重申了“爱国者治澳”的原则，称澳门不存在反对派或民主派，只应该有”爱国者”。这种荒唐的氛围之下，直选投票率仅为42.38%，为澳门主权归还中共国以来的最低，弃权和空白票也明显增加，不少选票上都有选民写下的抗议字句。
 
-**新闻来源：**[WHO gives date for the end of the Covid pandemic, but Bill Gates says he has the ‘only solution’ to end the crisis](https://www.entrepreneur.com/article/386273)
+澳门媒体人崔子钊认为，鉴于澳门地域狭小、人际关系紧密的现实，对于中共的统治,社会整体不会像香港那样出现明显的抵制甚至反抗行动，但是这次选举之后澳门人明白,没有民主派的生存空间了，澳门已无民主! 
+(本文仅代表作者观点)
 
+参考链接：[“爱国者治澳”下产生新立法会 澳门民主派前景黯淡](https://www.voachinese.com/a/Macau-Legislative-election-flop-after-opposition-barred-from-running-20210917/6232498.html)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0
