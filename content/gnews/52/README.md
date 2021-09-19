@@ -2,14 +2,16 @@
 ---
 
 
-## 2021年9月17日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542100/)
+## 2021年9月18日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542144/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-9月17号：恒大欠钱和骗钱是事实，应该由法院来解决，无论走到天涯海角，他们都应该还钱。追究骗钱者的刑事责任，但是共产党的以黑治国，却选择了以警执法，这就是共产党所谓的依法治国，中国人没有任何维权的机会，也没有要回属于自己钱的权利，中国人却深爱着中国共产党，中国人真的是太可怜了。
+9/17/2021 Miles Guo: I was the first to reveal that Evergrande has two trillion yuan of debts, and it is in essence running a Ponzi scheme. The CCP’s fraudulent financial notes will bring about an enormous financial catastrophe; The CCP will surely be over if it tries to save Evergrande!
 
-[【2021年9月17日】文贵先生盖特原文](https://gettr.com/post/pbdtd0bbcb)
+9/17/2021 文贵直播：七哥最早说出恒大有2万亿人民币的负债，恒大的本质就是庞氏骗局；共产党的虚假金融票据将带来巨大的金融灾难；如果中共试图去救恒大，那么它必将完蛋！
+
+[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbg1wg8375)
 
 **喜联盟Gnews编辑部**
 
