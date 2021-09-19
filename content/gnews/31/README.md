@@ -2,29 +2,81 @@
 ---
 
 
-## 新州24小时内死亡病例数再创纪录
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1541571/)
+## 澳大利亚反封锁抗议者与警察发生冲突
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1541729/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：THE CONVERSATION
-**整理报道：**翼族
+据《零对冲》作者：泰勒·杜登（Tyler Durden）2021年9月18日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture1-12.png)图片来自网络
+在整个大流行病期间，澳大利亚政府选择制定严格的限制措施来抗击中共病毒。在大流行病开始以来的第六次封锁后，墨尔本的反封锁抗议者已经受够了严厉的病毒措施，并在周六的街头表达了他们的反对意见。
 
-周六晚八点之前的24小时内，澳大利亚新南威尔士州记录了1083例新增中共病毒（COVID-19）病例和13例死亡病例。截至目前为止，13例是新南威尔士州24小时内所记录的最高死亡数。
+随着示威者和警察之间爆发大规模斗殴，他们的自由抗议的权利很快被视为非法。据[路透社](https://www.reuters.com/world/asia-pacific/australia-reports-1882-covid-19-cases-police-quell-protests-2021-09-17/) 报道，墨尔本有200多人在非法的反封锁集会中被捕。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture1-13.png) 图片来自网络
+在墨尔本郊区里士满的一次集会中，当警察试图关闭集会时，集会变成了暴力。抗议者以一种史诗般的方式冲破了警察的防线。
 
-13名死者中，其中9人未接种疫苗，2人接种了一剂疫苗，2人完全接种了疫苗。自2021年6月16日以来，新南威尔士州已有241例与中共病毒相关的死亡病例。
 
-与此同时，新南威尔士州州长格拉迪斯·贝尔吉格利安（Gladys Berejiklian）宣布从明天起放宽对悉尼一些病毒传播热点地区的限制。她承认澳大利亚医学协会(AMA)等医疗机构的担忧是正确的，更多的自由可能会导致病例再次激增，但州长表示，她相信政府已经取得了正确的平衡。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+> Protesters break through the police line, an officer gets assaulted and trampled by demonstrators, people are screaming and covered in capsicum spray [@theage](https://twitter.com/theage?ref_src=twsrc%5Etfw) [pic.twitter.com/qXX9lIAZRJ](https://t.co/qXX9lIAZRJ)
+> — David Estcourt (@davidestcourt) [September 18, 2021](https://twitter.com/davidestcourt/status/1439070855418368000?ref_src=twsrc%5Etfw)
 
-**参考链接：**[NSW announces eased restrictions for Sydney hotspots; 1,083 COVID-19 cases, 13 deaths](https://www.abc.net.au/news/2021-09-19/nsw-eases-restrictions-as-state-records-1083-cases-13-deaths/100474266)
 
-*编辑/发布：翼族*
+*大卫·埃斯特考特 @davidestcourt*
+*抗议者冲破警戒线，一名警官被示威者殴打踩踏，人们尖叫着被辣椒喷雾覆盖*
+*@theage*
+*2021年9月17日*
+其他冲突也被拍了下来。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+> Protesters throw water bottles at officers at more pepper spray deployed [@theheraldsun](https://twitter.com/theheraldsun?ref_src=twsrc%5Etfw) [pic.twitter.com/FnTjUAmIaI](https://t.co/FnTjUAmIaI)
+> — Olivia Jenkins (@byoliviajenkins) [September 18, 2021](https://twitter.com/byoliviajenkins/status/1439069797665239045?ref_src=twsrc%5Etfw)
+
+
+*奥利维亚詹金斯 @byoliviajenkins*
+*抗议者向部署更多胡椒喷雾的警察扔瓶装水 。*
+*@theheraldsun*
+ 
+*2021年9月17日*
+从空中俯瞰墨尔本的另一群抗议者抵制警察的命令。
+
+
+
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Anti-lockdown protesters in Melbourne are defying police warnings and are staging demonstrations in the city today.
+> 
+> DETAILS: [https://t.co/TpLfTEeJhH](https://t.co/TpLfTEeJhH) [#9News](https://twitter.com/hashtag/9News?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lpeBvmNtdh](https://t.co/lpeBvmNtdh)
+> — 9News Melbourne (@9NewsMelb) [September 18, 2021](https://twitter.com/9NewsMelb/status/1439061090332078083?ref_src=twsrc%5Etfw)
+
+
+*墨尔本 9新闻@ 9NewsMelb #BREAKING：*
+*墨尔本的反封锁抗议者无视警方警告，今天在该市举行示威。*
+*详情：http://9Soci.al/9zaB30rUlt4*
+*2021年9月17日*
+在地面上，有大量警察在场。[RT新闻](https://www.rt.com/news/535181-australia-lockdown-police-clashes/)说，当地报告显示，大约有2000名警察被到场。
+
+
+
+> Police March towards protesters who refuse to clear the area, some marchers getting pepper sprayed [@theheraldsun](https://twitter.com/theheraldsun?ref_src=twsrc%5Etfw) [pic.twitter.com/DnnBbkw87E](https://t.co/DnnBbkw87E)
+> — Olivia Jenkins (@byoliviajenkins) [September 18, 2021](https://twitter.com/byoliviajenkins/status/1439082898930294790?ref_src=twsrc%5Etfw)
+
+
+*奥利维亚詹金斯 @byoliviajenkins*
+*警察向拒绝清理该地区的抗议者行进，一些游行者被喷胡椒水*
+*@theheraldsun*
+*2021年9月17日*
+非法示威发生时，墨尔本市正经历着自大流行病开始以来的第六次封锁，更广泛的维多利亚州今天报告了500多起感染事件。
+
+维多利亚州警察局长马克·加略特（Mark Galliott）告诉当地媒体，这些抗议者出来 “不是为了抗议自由，而只是为了对付警察并与之发生争执。“
+
+这场大流行病的受害之一是言论自由，因为在阻止传播的幌子下，集会的权利被禁止了。
+
+澳大利亚政府将和平抗议定为刑事犯罪，并强制当局进行干预，使情况变得更糟，它会吸引更多热爱自由的人上街抗议暴政。
+
+【本文仅代表作者个人观点，与Gnews无关】
+
+原文链接：[https://www.zerohedge.com/political/australian-anti-lockdown-protesters-clash-police-illegal-melbourne-rally](https://www.zerohedge.com/political/australian-anti-lockdown-protesters-clash-police-illegal-melbourne-rally)
+
+翻译： 烟波浩淼|校对：雨山溪桥客
+*编辑&校对：黎明的光芒*
+
+
 
 0

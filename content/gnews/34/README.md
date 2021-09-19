@@ -2,32 +2,29 @@
 ---
 
 
-## 是否会与中共国开战？澳防长：“这是中共的问题”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1541213/)
+## 新州24小时内死亡病例数再创纪录
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1541571/)
 
-2021年09月18日
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：THE CONVERSATION
+**整理报道：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-9.jpg)网络图片
+周六晚八点之前的24小时内，澳大利亚新南威尔士州记录了1083例新增中共病毒（COVID-19）病例和13例死亡病例。截至目前为止，13例是新南威尔士州24小时内所记录的最高死亡数。
 
-**编辑摘要：**据德国之声9月18日报道，正在华盛顿进行访问的澳大利亚防长达顿（Peter Dutton）在接受媒体采访时，针对中共官媒对AUKUS美英澳三国联盟的激烈批评做出回应称：“我认为我们从一些为中国共产党喉舌的发言人或媒体那里看到政治宣传，老实说，我认为他们为我们的主张提供了佐证。我认为他们的言论适得其反而且不成熟，坦白说令人尴尬。”
+13名死者中，其中9人未接种疫苗，2人接种了一剂疫苗，2人完全接种了疫苗。自2021年6月16日以来，新南威尔士州已有241例与中共病毒相关的死亡病例。
 
-同时被问及澳大利亚是否会与中共国开战时，达顿回答“这是中共的问题”。他指出，“中国共产党发言人对台湾的企图非常明确，同样的，美国也非常清楚他们对台湾的意图。没有人乐见冲突，但这确实是中共的问题。”
+与此同时，新南威尔士州州长格拉迪斯·贝尔吉格利安（Gladys Berejiklian）宣布从明天起放宽对悉尼一些病毒传播热点地区的限制。她承认澳大利亚医学协会(AMA)等医疗机构的担忧是正确的，更多的自由可能会导致病例再次激增，但州长表示，她相信政府已经取得了正确的平衡。
 
-“中共对澳大利亚、加拿大、英国、地区内伙伴的行动一直持续。中共确实使用了网络技术发动袭击。” 谈到AUKUS联盟时，达顿表示，建立伙伴关系是需要应对“真实”而且日益增高的威胁。“同样的，这也是为了确保我们拥有一个扩展和深化的联盟，过去几十年来它一直是我们国家安全的支柱，我们希望确保印太地区的和平与稳定。”
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-在不久前，澳美双方举行了双部长会议磋商(AUSMIN)，并在会后发表联合声明。声明内容对于中共国“在没有依据的情况下在南中国海扩大海洋主权主张”表达关切。两国在声明中也重申了台湾在印太地区的重要角色，双方都表示有意加强与台湾的关系，并支持台湾参与国际组织。声明还重申“继续支持在不诉诸威胁和胁迫的情况下和平解决两岸问题”。声明还批评中共国在香港实施国安法的行为，同时也对中共国“对维吾尔族的镇压行动”表示严重关切。
+**参考链接：**[NSW announces eased restrictions for Sydney hotspots; 1,083 COVID-19 cases, 13 deaths](https://www.abc.net.au/news/2021-09-19/nsw-eases-restrictions-as-state-records-1083-cases-13-deaths/100474266)
 
-阅读新闻原文：[是否与中国开战？澳防长：“这是中国的问题”](https://amp.dw.com/zh/%25E6%2598%25AF%25E5%2590%25A6%25E4%25B8%258E%25E4%25B8%25AD%25E5%259B%25BD%25E5%25BC%2580%25E6%2588%2598%25E6%25BE%25B3%25E9%2598%25B2%25E9%2595%25BF%25E8%25BF%2599%25E6%2598%25AF%25E4%25B8%25AD%25E5%259B%25BD%25E7%259A%2584%25E9%2597%25AE%25E9%25A2%2598/a-59222799)
+*编辑/发布：翼族*
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
