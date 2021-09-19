@@ -103,29 +103,29 @@
 ### [加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/31/README.md)
+### [DC每日热点0919](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/32/README.md)
  ` xiaobaige`
 
-### [打折、实物兑付能拯救恒大吗？](/content/gnews/32/README.md)
+### [打折、实物兑付能拯救恒大吗？](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/33/README.md)
+### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/34/README.md)
+### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [日相候选人纷纷向中共展示强硬态度](/content/gnews/35/README.md)
+### [日相候选人纷纷向中共展示强硬态度](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [三星撤了，中国梦也该断了](/content/gnews/36/README.md)
+### [三星撤了，中国梦也该断了](/content/gnews/37/README.md)
  ` 银河勇气之星`
 
-### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/37/README.md)
+### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/38/README.md)
  ` wenwu`
-
-### [意大利受阻于对 TikTok 的制裁](/content/gnews/38/README.md)
- ` Charlie`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [中共攻台在即，文贵先生全力护台](/content/gnews/47/README.md)
- ` 波士顿五月花农场`
-
-### [美英澳形成新“铁三角”以对抗中共](/content/gnews/48/README.md)
- ` HimalayaRussia`
-
-### [加拿大生活美谈 2021-09-16第二十二期](/content/gnews/49/README.md)
+### [COVID-19疫苗加强针危险，会激起血凝块和血管渗漏](/content/gnews/47/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [9/19/21 香港快讯 职工盟成员收讯息 继续营运人身安全或受威胁 下月开会商议解散](/content/gnews/50/README.md)
+### [中共攻台在即，文贵先生全力护台](/content/gnews/48/README.md)
+ ` 波士顿五月花农场`
+
+### [美英澳形成新“铁三角”以对抗中共](/content/gnews/49/README.md)
+ ` HimalayaRussia`
+
+### [加拿大生活美谈 2021-09-16第二十二期](/content/gnews/50/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [9/19/21 香港快讯 职工盟成员收讯息 继续营运人身安全或受威胁 下月开会商议解散](/content/gnews/51/README.md)
  ` 英喜-粵語組`
 
-### [论天国的仇敌：神要叫我看见我仇敌遭报](/content/gnews/51/README.md)
+### [论天国的仇敌：神要叫我看见我仇敌遭报](/content/gnews/52/README.md)
  ` 纽约香草山MOS03`
 
-### [揭露副作用真相后 主流媒体以隐私要挟米娜家人](/content/gnews/52/README.md)
+### [揭露副作用真相后 主流媒体以隐私要挟米娜家人](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [受疫情影响导致经济危机 肯尼亚遭受次生灾害打击](/content/gnews/53/README.md)
+### [受疫情影响导致经济危机 肯尼亚遭受次生灾害打击](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/54/README.md)
+### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [高端芯片，21世纪的石油](/content/gnews/55/README.md)
+### [高端芯片，21世纪的石油](/content/gnews/56/README.md)
  ` 纽约香草山MOS03`
 
-### [《爆料革命》](/content/gnews/56/README.md)
+### [《爆料革命》](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [人民币就是中共的“假字画”](/content/gnews/57/README.md)
- ` 墨尔本雅典娜农场`
 

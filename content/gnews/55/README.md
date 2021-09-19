@@ -2,54 +2,37 @@
 ---
 
 
-## 高端芯片，21世纪的石油
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1542558/)
+## 全球超200个城市联合发起 “为自由” 集会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542573/)
 
-作者：纽约香草山福音部 – Jinglechenge
+栏目记者: 格格
+责任编辑：文真
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-239.png)
+9月18日，全球40多个国家的200多个城市联合发起 “为自由” 集会，来自世界不同国家、不同信仰的民众集合起来，为基本人权，为受宪法保护的自由，为结束因新冠病毒导致的强制措施，进行示威。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-31.jpeg)
 
+这次世界范围内的联合集会行动，是由当地居民自发组织的、无关党派和政治的和平示威。示威活动将围绕新冠大流行病的主题，如强制接种疫苗、推行疫苗护照、无视医疗选择和健康自由等而进行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+当各国政府正在有目的、有计划地借由新冠疫情，强制实施各种专制措施，一场国际自由运动也在世界各地蓬勃兴起。尽管新冠疫情带来了巨大的威胁，但是政府借此实施的强制措施，是经过包装的专制主义集权，是对人权的剥夺。纵观历史，人类在困难时期屡次经受死亡的考验，但最终，自由总会胜利。
 
+（本文仅代表作者观点）
 
+参考链接: [World Wide Demonstration](https://worldwidedemonstration.com)
+ [今天，成千上萬澳大利亞墨爾本民眾在“自由抗議”中衝破警察防線。](https://gettr.com/post/pbh6sxf5a2)
+ [瑞士人民晚上包圍國會，警察出催淚煙驅散抗爭者。 沒有人想到瑞士抗爭，升級比法國還要快！](https://gettr.com/post/pbeja9be60)
+ [台灣民眾上街](https://gettr.com/post/pbgv7t3e76)
 
-美国及其盟友宁愿放弃离恶轴心国 CCP 只有 400 MILES，离另一个邪恶轴心伊朗只有 500 MILES 的，最大的、极具战略意义的 Bagram 空中制导基地，从阿富汗撤离，这标志着全球地缘政治的重心，已从中东转移到印太地区，即第一岛链、第二岛链、和印度洋通往太平洋的枢纽马六甲海峡，以应对因世界上最大的恐怖组织 CCP 扩张所带来的，来自印太地区的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-对西方国家来说，虽然香港很重要，但台湾却是生死攸关。这不但因台湾处于第一岛链上的关键地理位置上，遏止着 CCP 在台海、东海、以及南海的扩张，维护着各国的自由航行，更是因为台湾代工了全球 63% 的高端芯片，特别是台积电，其次才是韩国三星的18%市场占有率。台积电代工了全球 54% 的高端芯片，Apple、Qualcomm、和 Nvidia 等主要科技公司都是其客户。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210919_2.jpg)图片来自网络
-
-
-
-现在全球对高端芯片的需求，已经到了无以复加的地步，比当年对石油的需求有过之而无不及。所有的产业无一不是由高端芯片在支撑着，从计算机、到智能手机、再到汽车制动传感器等电子设备，甚至我们每天使用的厨具、孩子的玩具、一张小小的生日卡，我们已经离不开芯片了。没有了高端芯片，就没有 21 世纪的经济；没有了高端芯片，就没有 21 世纪的生活。一切都回不去了。由此可知，生产高端芯片的台湾与南韩自然成了争夺的焦点。台海的重要性，远超当年的石油经济「生命线」霍尔木兹海峡。
-
-不但如此，科技公司要求芯片越小越好。目前，台积电及其韩国竞争对手三星是唯一能够制造最先进的 5 纳米芯片的代工厂。台积电已经在为下一代 3 纳米芯片做准备。据报道，该芯片将于 2022 年投入生产。所以，台积电一直是许多高端芯片的首选生产商，短时间内替代者无法兴起。
-
-假设让 CCP 控制台海地区，甚至是台湾，等同于让 CCP 突破第一岛链，不仅使印太地区的权力平衡被打破，自由航行权被威胁，而且最重要的半导体经济供应链会被切断，所以才有了重心的自然而然的转移。在过去的一年半里，我们已经深切感受到了 CCP 病毒导致的高端芯片供应链的短路，好几家汽车制造商不得不减产或停产；以前很快就可以买到的汽车、手机、电脑，现在都得等待，而且价格飞涨。
-
-CCP 对此自然不会手下留情，在不到一周前， CCP 的喉舌“环球时报”已经公开叫嚣“派战斗机飞越台湾岛，是接下来必须走的一步”了。
-
-20 世纪全球经济对石油的需求，造就了霍尔木兹海峡的重要战略地位；现在对高端芯片的需求，让台海成了 21 世纪的霍尔木兹海峡。
-
-（本文仅代表作者个人观点）
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
