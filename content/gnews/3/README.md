@@ -2,16 +2,14 @@
 ---
 
 
-## 2021年9月18日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542134/)
+## 2021年9月18日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542182/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-9/17/2021 Miles Guo: Wang Qishan inherited the evil organization’s assets under the name of Yao Yilin, and the international financiers are aware that the evil forces in the Communist China are sucking the Chinese Lao Baixing’s blood through the CCP!
-
-9/17/2021 文贵直播：王岐山继承了邪恶组织在姚依林名下的资产，而国际上的金融家也很清楚，中共国的邪恶势力通过共产党来吸老百姓的血！
-
-[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbdi4f2c53)
+9月18号：我的手机就没有停止过， 被我们战友舒服的，吃药了，还有得了病的，我们给他们提供药品的，而得以救命的各种信息，新中国联邦人，我们行善不问结果，不图回报，传播救命的解药的真相，一定要有耐心，同样我们也不要有什么结果，什么利益。更不想要回报，我们正在做的事情，是人类着前所未有的最伟大的事业，这是上天给我们的机会，我们要感恩，我们要珍惜，我们要行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5f6272367bacec640b68f0860a047071.jpg)
+[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbgd6j5fe4)
 
 **喜联盟Gnews编辑部**
 

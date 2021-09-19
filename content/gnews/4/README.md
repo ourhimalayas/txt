@@ -2,21 +2,15 @@
 ---
 
 
-## 七哥说— 第3期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1542105/)
+## 2021年9月18日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542174/)
 
-- **制作：Inzaghi**
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
+九月十七号：我得乖乖呀！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/610e0062aae99d36f4f75733f06d3d51.jpg)
+[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbe9iee733)
 
-天怒人怨即将使中共灭亡！唤醒，会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image01.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image02.png)
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+**喜联盟Gnews编辑部**
 
 0
