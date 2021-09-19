@@ -2,31 +2,34 @@
 ---
 
 
-## 打折、实物兑付能拯救恒大吗？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1542605/)
+## 加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542627/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/hd74.jpg.jpg)打折、实物兑付能拯救恒大吗？ 网络图片
-据法国国际广播电台报，中共国大型地产商恒大集团深陷债务危机，旗下的“恒大财富”9月18日发公告称，已启动实物资产兑付工作。恒大财富执行董事兼总经理杜亮表示，恒大各地区公司要把所有已取证未售的住宅、公寓及商舖等资产拿出来。住宅、公寓、商舖和车位分别按照当期售价打7.2折、5.4折和4.8折。
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-242.png)
+关于对5-11岁儿童的疫苗接种，加拿大卫生部官员表示目前正在对相关数据进行审查，预计最快将于今年年底前完成对儿童疫苗的最终审批。
 
-另据路透社稍早报道，中共国的金融机构正为恒大可能的倒闭做准备，恒大集团的部分主要往来银行已经为恒大相关贷款计提损失准备，另一些银行则计划展延短期贷款。恒大负债近3,050亿美元，包括贷款、债券、所谓的信托产品以及欠承包商和供应商的钱等。仅2020年间恒大向超过128家银行及超过121家非银行机构借贷。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-26.jpeg)
 
-据各方消息人士透露，中国农业银行已经计提部分贷款损失准备，审慎应对对恒大的地产贷款。民生银行则对恒大的贷款余额在过去12个月从400亿元人民币(62.0亿美元)降至300亿元，最近几个月已经停止提供恒大新贷款。
+据悉，辉瑞和莫德纳公司目前正在进行儿童疫苗的试验和评估。辉瑞公司发言人于近日表示，如果疫苗的安全性和免疫原性得到确认，辉瑞计划在今年年底前向加拿大卫生部提交相关数据，争取获得对5至11岁儿童疫苗的潜在授权，而且随后还将申请6个月至5岁儿童疫苗的相关授权。
 
-路透社还透露，欧洲最大资管公司东方汇理减持中国恒大，目前持有中国恒大敞口 （Exposure ）仅剩2,500万美元。东方汇理是欧洲最大的资产管理公司，管理资产规模达2万亿美元。据EMAXX数据显示，东方汇理在3月持有价值约3亿美元的恒大国际市场债券，是当时最大的整体持有者，当时恒大的国际债券总计近200亿美元，每一美元面值的债券交易价接近90美分，但此后由于对其财务状况的担忧加剧，本月交易价已跌至25-30美分。
+疫苗本身非常危险。前辉瑞副总裁耶登博士、疫苗接种和免疫联合委员会（JCVI）和众多医学专家都呼吁不要为16岁以下的儿童接种疫苗。爆料革命坚持传播疫苗真相，当加拿大家长充分意识到疫苗对孩子伤害时，一定会奋起反抗，坚决抵制毒疫苗。
 
-阅读全文，请点击：[https://www.rfi.fr/cn/中国/20210919-恒大打折实物兑付-能救倒闭](https://www.rfi.fr/cn/%2525E4%2525B8%2525AD%2525E5%25259B%2525BD/20210919-%2525E6%252581%252592%2525E5%2525A4%2525A7%2525E6%252589%252593%2525E6%25258A%252598%2525E5%2525AE%25259E%2525E7%252589%2525A9%2525E5%252585%252591%2525E4%2525BB%252598-%2525E8%252583%2525BD%2525E6%252595%252591%2525E5%252580%252592%2525E9%252597%2525AD)
+（本文仅代表作者观点）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接: [Vaccines for children aged 5 to 11 could be approved by end of year](https://thepostmillennial.com/vaccines-for-kids)
+[BioNTech to seek global approval to use its COVID-19 vaccine in 5-11 year olds: report](https://www.cbc.ca/news/health/biontech-to-seek-global-approval-to-use-its-covid-19-vaccine-in-5-11-year-olds-report-1.6171034)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
+终审：暗黑
+校对/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

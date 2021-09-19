@@ -2,25 +2,33 @@
 ---
 
 
-## 最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1542675/)
+## 纽约时代广场现大量人群抗议强制政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542651/)
 
-#### 翻译整理/简评：            意大利罗马达芬奇农场          小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Schermata-2021-09-18-alle-23.38.19.png)
-图片来源：Il Fatto Quotidiano
+栏目记者/责任编辑:文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-243.png)
+福克斯新闻报道，周六数百上千名民众走上纽约时代广场，抗议纽约市关于接种冠状病毒疫苗的强制政策。 推特等社交平台上发出了多个现场活动的视频。抗议者挥舞着旗帜和标语，许多人高呼反对强制接种疫苗，可以清楚听到“自由”和“我的身体我的选择”等口号。期间一位女士走上舞台，说自己对于拜登失去了耐心，人群更以强烈的抗议声表示赞同，以及对目前政府的所作所为已忍无可忍。
 
-卡布列雷•卡查尼， 61岁，9月17日死于中共病毒。作为救护车司机，他早在去年12月27日新冠疫苗接种日便接种了第一剂辉瑞疫苗，自这一天起， 意大利便开启了全民接种新冠疫苗的活动。今年1月中旬， 他接种了第二剂辉瑞疫苗。卡布列雷还常常进行核酸检测。据当地报纸推测，他很有可能是在工作地点染上病毒的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide9-1.jpeg)
 
-与他同时染上新冠病毒的还有卡布列雷的兄弟，他们是同事。卡布列雷是在开始感觉呼吸困难的时候察觉染上病毒的。
+这次抗议是”全球自由集会”的一部分。组织者声称，将通过制作自己的媒体来抵制主流媒体广泛的宣传，不会屈服于强制疫苗的做法，不会接受科学和医学的猖獗政治化。
 
-刚开始病情似乎很稳定，不久却急剧恶化直至死亡。
+随着爆料革命的推动和疫苗问题的显现，越来越多的民众意识到强制接种疫苗的危害性，毅然走上街头抗议疫苗暴政。
 
-这是最早一批接种辉瑞疫苗的意大利医务工作者。卡布列雷的死亡让我们不禁会问：媒体和病毒专家不是说打了疫苗之后不会再感染病毒吗？ 媒体不是告诉百姓即使感染病毒也只是轻症，不会死亡吗？卡布列雷只是众多打了疫苗后仍然被感染的一例，这会使相关专家以疫苗效力减弱为借口，开打第三剂，第四剂疫苗……媒体很有可能是在为加强针做舆论铺垫。文贵先生也说过在第二剂疫苗注射后的六个月以后，疫苗的灾难性会逐渐显现出来。
+（本文仅代表作者观点）
 
-原文链接：https://www.ilrestodelcarlino.it/ravenna/cronaca/gabriele-gazzani-covid-1.6814036
+参考链接: [Times Square swarmed by hundreds protesting COVID vaccine mandate, chanting ‘F— Joe Biden’](https://www.foxnews.com/politics/times-square-swarmed-by-hundreds-protesting-covid-vaccine-mandate.amp?__twitter_impression=true)
 
-免责声明， 本文只代表作者观点，与Gnews平台无关
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-责任编辑/校对/发布： Xiao  baige
+终审：暗黑
+校对/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

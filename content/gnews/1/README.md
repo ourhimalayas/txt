@@ -2,34 +2,21 @@
 ---
 
 
-## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
+## 秘翻在线：中共吹捧“抗美援朝”鼓励年轻人为台海战争做炮灰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1542758/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+撰稿： WENJIE
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-233213.jpg)
+近日环球网发表文章鼓吹1950年的“抗美援朝”战争，教唆国内民众不要害怕即将到来的台海战争，实质是要绑架国内民众特别是年轻人做炮灰。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
+文章作者以抗美援朝纪录片《1950年他们正年轻》亲身参战的老战士讲述和死亡的年轻战士照片来展现当初战争的残酷，并以美国航母战斗群仍在南海自由航行的背景来号召国内民众不要害怕战争，甚至教导子孙后代不要忘记那场战争。
+
+文章作者也坦然承认对于那场战争没有清晰概念，仅凭影像资料和历史文章才了解那场战争。笔者有幸亲身遇到两位参与朝鲜战争的退伍老兵，一位是20多年前开出租车的司机，另一位是笔者的邻居大爷。两位老兵对于那场战争没有说什么，但是对于他们回国退伍后所遭受的生活苦难愤愤不平。文章作者显然以“抗美援朝”战争来激发民粹主义，本质是绑架国内民众去当炮灰。在现代文明发展的今天，中共喉舌媒体鼓吹战争而不是遵从普世价值，其险恶用心与纳粹无异。
+
+**[参考链接](https://world.huanqiu.com/article/44jKaFcUBJB)**
 
 
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
-+4
+0

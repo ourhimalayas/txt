@@ -2,68 +2,43 @@
 ---
 
 
-## 恒大300B美元的债务危机是否对加密行业构成系统性风险？
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1538962/)
+## 9/18/2021国际财经快讯：美银行业反对税务报告法；美财长警告经济面临债务上限
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1542381/)
 
-- 编译：wenwu–西班牙喜悦农场
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-62.png)[图片来源](https://dzm0ugdauank9.cloudfront.net/)
+**1.****美国银行业游说团体反对拟议的税务报告法**
 
+[(路透社）–美国最大的银行业游说团体周五联合起来，再次推动扼杀作为国会和解方案一部分而拟定的银行账户报告法提案。在给美国众议院议长南希-佩洛西和众议院少数党领袖凯文-麦卡锡的一封信中，这些游说团体表示，该提案将给大型金融服务公司带来 “声誉挑战”，增加美国人和小企业的备税成本，并造成严重的“金融隐私问题”。这些团体在信中说：“我们敦促成员们反对任何推进这种不明智的新报告制度的努力。”虽然这一庞大的数据收集的既定目标是揭露富人的避税行为，但这一建议根本不是针对这一目的或这一人群的。在3.5万亿美元的众议院方案中，拟议的国内账户报告要求正在成为银行业的一个重要问题，银行业反对民主党人正在推动的税收报告变化。](https://www.oann.com/u-s-banking-lobby-groups-oppose-proposed-tax-reporting-law/)
 
-随着旁观者预测中国顶级房地产开发商和商业票据发行商恒大即将违约，一些分析师认为该公司对加密货币会构成系统性风险。
+**2.****日本首相竞争者岸田称十年内不会提高销售税**** **
 
-9 月 8 日，惠誉评级[声称](https://www.fitchratings.com/research/corporate-finance/credit-event-at-chinas-evergrande-could-have-broader-effects-14-09-2021)恒大“似乎很可能”会拖欠债务，该公司此后[承认](https://www.aljazeera.com/economy/2021/9/15/what-could-an-evergrande-debt-default-mean-for-china-and-beyond)将无法足够快地出售其拥有的房产或其他资产，来偿还其迅速增加的债务。
+[东京（路透社）–日本执政党领导人竞选中的主要竞争者岸田文雄周六表示，日本将在大约十年内不提高销售税，因为此时对家庭征收更高的税会使受大流行病影响的经济陷入困境。”岸田在与执政的自由民主党（LDP）的其他三位候选人进行的电视辩论中说：”我们在大约十年内不会提高销售税率。”他说，虽然日本必须遵守进行财政改革的承诺，但它必须优先考虑缓冲大流行病带来的打击，并创造一个强劲增长为更广泛的经济部门带来财富的循环。](https://www.oann.com/japans-pm-contender-kishida-says-wont-raise-sales-tax-for-a-decade/)
 
-恒大在周二的一份声明中预测，“9 月份合同销售将继续大幅下降，从而导致集团的现金回收持续恶化”，并对“集团的现金流和流动性构成巨大压力”。该文件补充说：
+**3.****英国食品行业要求政府对二氧化碳短缺采取行动**
 
-**“**鉴于上述改善流动性的困难、挑战和不确定性，无法保证本集团能够履行其财务义务。**” **
+[伦敦，9月18日（路透社）–英国食品行业呼吁政府在天然气价格飙升期间对二氧化碳（CO2）生产进行补贴，否则该国的肉类行业将面临崩溃的风险。天然气价格飙升迫使两家英国化肥厂关闭，使食品生产商失去了二氧化碳副产品，这些副产品被用来在屠宰前击晕动物和真空包装食品以延长其保质期。 二氧化碳也被用来为啤酒、苹果酒和软饮料注入气泡，它的短缺对食品行业来说是一个可怕的时刻，该行业已经面临着卡车司机的严重短缺以及英国脱欧和中共病毒的影响。英国肉类加工商协会的Nick Allen周六说，养猪业还有两周就会遇到缓冲期，而英国家禽理事会说其成员正处于“刀尖上”，因为供应商只能保证提前24小时交货。](https://www.reuters.com/world/uk/british-food-industry-demands-government-action-over-co2-shortage-2021-09-18/)
 
-澳大利亚经济学家 David Llewellyn-Smith 最近推测，领先的稳定币发行商 Tether 可能会接触到“3000 亿美元的债务怪物”所发行的商业票据，[警告](https://www.livewiremarkets.com/wires/the-shortest-commodity-supercycle-ever)称比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 可能通过 Tether ( [USDT](https://cointelegraph.com/tether-price-index) ) 作为 BTC 配对的主导地位，构成了 Entergrande 的交易对手之一。不过，Tether 已经否认了这一点。
+**4.****美国****财长警告经济面临****债务上限僵局**
 
-[Tether 的最新证明报告](https://cointelegraph.com/news/tether-claims-to-have-increased-total-assets-by-21b-in-new-accounting-review)显示，在其 628 亿美元的资产中有 308 亿美元以商业票据形式持有，英国《金融时报》[估计](https://www.ft.com/content/342966af-98dc-4b48-b997-38c00804270a)该公司将跻身恒大债卷的全球前 10 名持有人之列。
+[9月17日（路透社）–财政部长珍妮特-耶伦（Janet Yellen）表示，如果不能提高美国债务上限，可能会导致不可想象的情况：政府支付义务的违约。白宫周五警告说，这一结果可能使经济陷入衰退。 如果国会关于28.5万亿美元债务限额的僵局在10月的最后期限前没有得到解决，作为美国金融市场的最后贷款人，美联储会准备做什么？事实证明，美联储主席杰罗姆-鲍威尔可能已经有了一些游戏计划。该国在2011年和两年后再次面临类似的债务限额危机，在2013年10月的一次不定期会议上，美联储决策者–包括当时担任美联储理事的鲍威尔和担任美联储副主席的耶伦–讨论了可能的应对行动。](https://www.reuters.com/business/finance/debt-ceiling-impasse-feds-loathsome-game-plan-unthinkable-2021-09-17/)
 
-尽管 Tether 声称其不持有恒大发行的任何商业票据，但 Cinneamhain Ventures 合伙人 Adam Cochran[强调](https://twitter.com/adamscochran/status/1437614371803471873)，恒大违约将“对商业票据市场产生广泛的巨大影响”。
+**5.印度反垄断调查发现谷歌滥用了安卓系统的主导地位
+**
+[新德里，9月18日（路透社）–路透社看到的印度反垄断机构在一份为期两年的调查报告中发现，谷歌在印度滥用其安卓操作系统的主导地位，利用其 “巨大的财政力量 “非法伤害竞争对手。印度竞争委员会(CCI)调查部门6月的报告称，Alphabet公司(GOOGL.O)的谷歌降低了 “设备制造商开发和销售使用其他版本安卓系统的设备的能力和积极性”。这家美国科技巨头在一份声明中告诉路透社，它期待着与CCI合作，”证明安卓系统如何导致了更多的竞争和创新，而不是更少。”一位直接了解情况的人士告诉路透社，谷歌还没有收到调查报告。](https://www.reuters.com/technology/india-antitrust-probe-finds-google-abused-android-dominance-report-shows-2021-09-18/)
 
-旁观者担心恒大的倒闭可能对商业票据市场产生深远的影响，路透社将恒大[描述](https://www.reuters.com/business/china-order-developers-disclose-commercial-paper-debt-every-month-sources-2021-07-16/)为“最大的商业票据发行人”，截至 2020 年底，恒大的资产价值为 320 亿美元。
+**6.****美国参议员担心美航和捷蓝航空的合作将提高价格**
 
-**“**目前** Tether **和** Circle **都持有商业票据，虽然我没有证据去证实这两个公司持有大量恒大债券，但整个市场都会有点震荡。**”**
+[路透社华盛顿9月17日电–在反垄断问题上直言不讳的民主党参议员Richard Blumenthal周五向交通部表示，担心美国航空(AAL.O)和捷蓝航空(JBLU.O)之间的合作会导致机票价格上涨。这两家航空公司的“东北联盟”合作关系于2020年7月宣布，6个月后，即特朗普政府结束前不久，得到了交通部的批准。该代码共享协议允许美国航空和捷蓝航空在其纽约地区和波士顿网络中销售对方的航班，并将常旅客计划联系起来，此举旨在让它们在美国东北部地区与美国联合航空(UAL.O)和达美航空(DAL.N)竞争时拥有更多实力。](https://www.reuters.com/business/aerospace-defense/us-senator-concerned-american-jetblue-partnership-will-raise-prices-2021-09-17/)
 
-他补充说：“我确实认为，这两者仍然有足够的回旋余地来防止任何实际崩溃，但如果我们发现有一个出现崩溃，这就变得非常严重，他们肯定会有点偏离了轨道。”
+**7.美国调查Binance可能的内幕交易
+**
+[9月17日（路透社）–据彭博新闻社周五报道，美国官员正在审查Binance可能存在的内幕交易和市场操纵行为，这可能会给这个已经成为许多国家监管审查目标的加密货币交易所带来更多压力。彭博社援引知情人士的话报道，当局正在调查Binance或其员工是否通过利用其客户的利益而获利。世界上最大的加密货币平台在一份声明中说：“在Binance，我们对内幕交易采取零容忍政策，并对可能对我们的客户或行业产生负面影响的任何类型的行为制定了严格的道德规范。”该公司已经面临着从英国、德国到日本的金融监督机构的警告和业务遏制，他们担心加密货币被用于洗钱和对消费者的风险。](https://www.reuters.com/business/us-probes-possible-insider-trading-binance-bloomberg-news-2021-09-17/)
 
-7 月份对 USD Coin ( [USDC](https://cointelegraph.com/usdc-price-index) ) 发行人 Circle 的审计显示，[该公司 9% 的资产](https://cointelegraph.com/news/auditors-reveal-usdc-backing-as-jim-cramer-sounds-alarm-over-tether-s-mad-money)当时是以商业票据形式持有。
+**8.****德国的****Laschet****说相信欧洲央行能控制住通货膨胀**
 
-澳大利亚加密投资公司 Zerocap 的高级交易员 William Fong 预测，恒大的债务危机将导致违约和政府干预达到顶峰（像2008年一样），这表明一些旁观者所预期的大规模经济崩溃，不太可能发生。
+[法兰克福（路透社）–在本月大选中竞逐德国总理安格拉-默克尔的保守派候选人Armin Laschet表示，他对欧洲央行（ECB）实现价格稳定充满信心，因为不断加速的通货膨胀会打击储蓄者。拉谢对《世界报》周刊说：“对我来说，当小额储蓄、养老金、人寿保险和建筑贷款合同失去价值时，这令人震惊。”“我相信欧洲央行将特别履行其稳定货币的核心任务。但这也意味着，当利率再次上升时，债务负担将成为国家的一个更大的问题，”他在周六的报纸上说。拉谢在9月26日大选前一周的讲话与他的财政和经济政策主要专家弗里德里希-梅尔茨的评论形成鲜明对比，后者本周抨击了欧洲央行的宽松货币政策。](https://www.reuters.com/article/germany-election-ecb-laschet/germanys-laschet-says-trusts-ecb-to-keep-inflation-in-check-idUSL8N2QK05Q)
 
-他说：“更有可能的是，恒大进入行政管理阶段，而下跌就由中共来接盘，”他补充说，恒大债券持有人不太可能看到全额偿还。
+By【秘密翻译组-金融组】
+作者：千年等一回
 
-Fong 认为，如果恒大违约，对加密行业的潜在后果还有待观察，并指出一些投资者“可能会从传统的债券市场配置转向相关性较低的资产类别。”
-
-然而，投资者“也可以将资金转移到美国国债等避险资产上，”他补充道。
-
-其他分析师认为，恒大已经在国际市场上造成了严重破坏，彭博社的[特雷西·阿洛维](https://twitter.com/tracyalloway/status/1438363843948777474?s=20)指出（如图），[垃圾级债券的](https://cointelegraph.com/news/coinbase-increases-junk-bond-offering-to-2b-after-investors-swarm)的收益率已飙升至 2020 年 3 月以来的最高水平。
-
-据彭博社援引当地匿名消息人士称，中国住房和城乡建设部已[通知](https://www.bloomberg.com/news/articles/2021-09-15/china-tells-banks-evergrande-won-t-pay-interest-due-next-week)银行，恒大将不会在下周还款。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-19-2.png)
-
-消息人士称，恒大仍在探索是否可以获得延期或展期部分贷款，并补充说广东当局拒绝了该公司创始人许家印的救助请求。
-
-**简评：**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-20-2.png)
-
-**这个地球上没有人可以救下恒大，就连中共国也不行，所以恒大是无解的。据2021年9月16日《法广网》援引《法新社》[报道](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20210916-%25E6%25B3%2595%25E6%2596%25B0%25E7%25A4%25BE-%25E6%2581%2586%25E5%25A4%25A7%25E5%2580%25BA%25E5%258A%25A1%25E8%25BF%2591%25E4%25B9%258E%25E8%2591%25A1%25E8%2590%2584%25E7%2589%2599%25E5%2585%25A8%25E5%259B%25BD%25E5%2585%25AC%25E5%2585%25B1%25E5%2580%25BA%25E5%258A%25A1%25E6%2580%25BB%25E9%25A2%259D)，面对如此高额的债务除了一个国家，谁都很难撑得起这个摊子。而后北京官员披露恒大的债，“国家还是会管的，国有化是其中一条路”。**
-
-**对于我们老百姓来说，这是2008年美国金融危机的翻版，或者说是“中国版雷曼时刻”。最终的处理方式是不断印美元，印的美元都流入来股票市场，吹起了更大的泡沫。**
-
-**与中共不同的是，我们爆料革命的最终处理方式是，向中共盗国贼们要回本该属于中国老百姓的20万亿美元。而这篇报道好似在警告我们，这笔钱或有一部分藏在了虚拟货币里。**
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-**新闻来源：**[《虚拟货币电报》](https://cointelegraph.com/news/does-evergrande-s-300b-debt-crisis-pose-systemic-risk-to-crypto-industry)｜作者：塞缪尔·黑格｜发布时间：2021年9月16日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEWS_CH.-2.jpeg)
-
-+1
+0
