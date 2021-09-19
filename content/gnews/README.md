@@ -19,13 +19,13 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/3/README.md)
+### [2021/09/18文贵先生盖特精要](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新冠病毒Coivd19打疫苗不吃伊维菌素青蒿素的主流在改变](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [跟胡锦涛天天睡跟江泽民睡50年80年也不能绘出腐败地图](/content/gnews/5/README.md)
+### [新冠病毒Coivd19打疫苗不吃伊维菌素青蒿素的主流在改变](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [关于美国疫苗接种赦免而想到的](/content/gnews/6/README.md)
@@ -37,13 +37,13 @@
 ### [中共国疫情：截至9月16日24时新型冠状病毒肺炎疫情最新情况](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [川普：米利应该以叛国罪受审](/content/gnews/9/README.md)
+### [AMC将允许人们用加密货币购买电影票](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [川普：米利应该以叛国罪受审](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/10/README.md)
- ` HimalayaRussia`
-
-### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/11/README.md)
+### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/12/README.md)
@@ -130,17 +130,17 @@
 ### [CNBC对郭先生的诽谤被打脸-许多科学家和医学专家已证实郭先生是对的](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/40/README.md)
+### [陆金所大陆与陆金所BVI股权穿透图](/content/gnews/40/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/41/README.md)
+### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/42/README.md)
  ` wenwu`
 
-### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/42/README.md)
+### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/43/README.md)
  ` wenwu`
-
-### [9/17/2021国际财经快讯：摩根下周在英国将推出数字银行Chase；美联储“缩减”时间表](/content/gnews/43/README.md)
- ` 秘密翻译组金融团队`
 
 ### [国际要闻汇编](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -157,21 +157,21 @@
 ### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [中共延长对美国81种产品的关税豁免](/content/gnews/49/README.md)
+### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/49/README.md)
+ ` HimalayaRussia`
+
+### [中共延长对美国81种产品的关税豁免](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/50/README.md)
+### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《大鱼海棠》之人物解析](/content/gnews/51/README.md)
+### [《大鱼海棠》之人物解析](/content/gnews/52/README.md)
  ` 纽约香草山MOS03`
 
-### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/52/README.md)
+### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/53/README.md)
+### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/54/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
-
-### [迪士尼乐园员工抗议公司的疫苗规定](/content/gnews/54/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
