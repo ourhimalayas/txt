@@ -2,15 +2,14 @@
 ---
 
 
-## 2021年9月18日 文贵先生盖特 15
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542273/)
+## 2021年9月18日 文贵先生盖特 18
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542320/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-9/17/2021 新中国联邦全球战友们为马丁·班农先生庆祝百岁生日；马丁·班农先生全家都是真正的美国人，而且是中国人心目中首屈一指的英雄！
-9/17/2021 The New Federal State of China celebrates Mr. Marty Bannon’s 100th birthday with fellow fighters from all over the world. Mr. Marty Bannon’s whole family are true Americans and are the No. 1 heroes in the hearts of the Chinese!
+9月19号：视频中．非故意的谋杀这样的事件只能会越来越多，而且可能多到我们无法想象的程度。我在一年前就说过，疫苗灾难和疫苗次生灾害，将给人类和我们带来的伤害超过C C P病毒。所以说我们的战友们，兄弟姐妹们，一定要调整好自己的生活方式，让自己和家人安全健康的活下去，这才是最重要的。
 
-[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbik6z403d)
+[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbj0xieb8c)
 
 **喜联盟Gnews编辑部**
 

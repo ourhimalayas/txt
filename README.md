@@ -19,23 +19,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年9月18日 文贵先生盖特 15](/content/gnews/3/README.md)
+### [2021年9月18日 文贵先生盖特 18](/content/gnews/3/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月18日 文贵先生盖特 14](/content/gnews/4/README.md)
+### [2021年9月18日 文贵先生盖特 17](/content/gnews/4/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月18日 文贵先生盖特 13](/content/gnews/5/README.md)
+### [2021年9月18日 文贵先生盖特 16](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [秘翻在线：疲劳和失眠会增加感染中共病毒的风险](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
+### [文化界名人反对给孩子打新冠疫苗](/content/gnews/6/README.md)
+ ` MG 澳喜农场多语组`
 
-### [为什么疫苗接种率高的地区病例率呈爆炸式增长？](/content/gnews/7/README.md)
+### [Christian Perronne：接种疫苗的人很危险，应该被隔离](/content/gnews/7/README.md)
  ` wenwu`
 
-### [秘翻在线：南佛罗里达州将继续推进疫苗注射](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
+### [马克·扎克伯格的“反疫苗”立场违反了他自己平台的新政策](/content/gnews/8/README.md)
+ ` 首尔天池农场`
 
 ### [每日快报：调查发现世界银行为 &#8220;营商环境 &#8220;报告篡改中共国数据](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -106,17 +106,17 @@
 ### [币圈新闻动态：&#8221;喜马拉雅交易所CEO访谈节目&#8221;即将上线](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事： 中共东部战区在台岛西南海空域实施联合警巡和实战化演练](/content/gnews/32/README.md)
+### [秘翻在线：疲劳和失眠会增加感染中共病毒的风险](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [DC大中华时事： 中共东部战区在台岛西南海空域实施联合警巡和实战化演练](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/33/README.md)
+### [为什么疫苗接种率高的地区病例率呈爆炸式增长？](/content/gnews/34/README.md)
  ` wenwu`
 
-### [银河快讯：河野的支持率名列前茅；日本外相向英澳外长表态欢迎AUKUS](/content/gnews/34/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [【农场动态】温哥华战友参加9月18日反强制疫苗全球联动大游行](/content/gnews/35/README.md)
- ` 温哥华扬帆农场`
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/35/README.md)
+ ` wenwu`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -145,33 +145,33 @@
 ### [墙内疫苗心情日记（十七）](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [媒体的不作为可能使不明真相的科研人员去做无用功！](/content/gnews/45/README.md)
+### [2021年9月18日 文贵先生盖特 15](/content/gnews/45/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [媒体的不作为可能使不明真相的科研人员去做无用功！](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马斯克SpaceX龙飞船首次商业太空之旅](/content/gnews/46/README.md)
+### [马斯克SpaceX龙飞船首次商业太空之旅](/content/gnews/47/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际要闻汇编](/content/gnews/47/README.md)
+### [国际要闻汇编](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/48/README.md)
+### [墙内要闻汇编](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月18日 文贵先生盖特 12](/content/gnews/49/README.md)
+### [2021年9月18日 文贵先生盖特 14](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月18日 文贵先生盖特 11](/content/gnews/50/README.md)
+### [2021年9月18日 文贵先生盖特 13](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月18日 文贵先生盖特 10](/content/gnews/51/README.md)
+### [2021年9月18日 文贵先生盖特 12](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [最高检驻中共国证监会检察室揭牌成立](/content/gnews/52/README.md)
- ` 儒为`
-
-### [2021年9月18日 文贵先生盖特 9](/content/gnews/53/README.md)
+### [2021年9月18日 文贵先生盖特 11](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月18日 文贵先生盖特 8](/content/gnews/54/README.md)
+### [2021年9月18日 文贵先生盖特 10](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
