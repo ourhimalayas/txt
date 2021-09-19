@@ -2,33 +2,49 @@
 ---
 
 
-## 美卫生保健部人士爆料：禁止医生用硫酸羟氯喹和伊维菌素给新冠患者治病
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1542695/)
+## 秘翻在线：打疫苗者感染Delta变种病毒的风险是自然感染者的13倍
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1542707/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+撰稿：青衣
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-6.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230836.jpg)
+以色列作为全球中共病毒疫苗接种率最高的国家之一，近期疫情却再度飙升，本周更是创下感染人数新高。近期，以色列的一项研究发现，打疫苗者对Delta变种的突破感染风险，是曾经自然感染中共病毒者的13倍。
 
-视频参看：2021.09.19早GTV新闻访谈
+据《大纪元》9月18日报道，今年6月以来，Delta变种已成为以色列主要的病毒株。截止至8月底，以色列78%的12岁及以上的人群都接种了中共病毒疫苗。然而，根据“Our World in Data”的数据显示，截至9月4日这一周，以色列感染率居全球最高，每百万人口病例数达到了1091例；而本周更是创下了该国感染人数纪录。
 
-[https://gtv.org/broadcast/watch/61472cda42a8af3151a15e62](https://gtv.org/broadcast/watch/61472cda42a8af3151a15e62)
+以色列马卡比医疗集团（Maccabi Healthcare Services）和特拉维夫大学（Tel Aviv University）的研究人员做了一项研究，探究疫苗保护力和自然感染保护力的强度和持久性。该研究已发表在MedRxiv预印本平台上。
 
-[https://www.youtube.com/watch?v=nkAQ5wwO3Ks](https://www.youtube.com/watch?v=nkAQ5wwO3Ks)
+研究团队利用医疗保健服务资料库数据，跟踪观察从今年6月1日到8月14日，80万16岁以上以色列民众的健康状况。他们把人群分为三组：第一组是打了两剂辉瑞疫苗的人；第二组是曾经自然感染过中共病毒没接种疫苗的人；第三组是曾经自然感染过中共病毒但接种了一剂疫苗的人。其中，“自然感染”指的是曾经感染过中共病毒而体内产生了保护性抗体。
 
-编辑/校对/发稿：香草山翻译部 – Lakers
+研究人员对三组人群分别评估了感染、有症状感染和重症住院的情况。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
+** 1~2****月接种疫苗的人**** vs 1~2****月自然感染中共病毒的人**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230857.jpg)图片来源：MedRxiv
+在这两组人群中，打了2剂疫苗的人发生突破性感染Delta变种的风险，是自然感染者的13.06倍！
 
-**更多资讯，更多关注**
+而在这其中，出现发烧、咳嗽等症状的，打两剂疫苗的比例更高。数据显示，打了2剂疫苗的人，出现有症状感染的风险是自然感染的27.02倍！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230913.jpg)图片来源：MedRxiv
+** 1****~****2****月接种疫苗的人**** vs ****去年～今年****2****月前感染中共病毒的人**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230935.jpg)图片来源：MedRxiv
+无论是打疫苗还是自然感染，产生的免疫力都会随着时间而减弱。所以，研究人员又做了一组比较。他们比较了今年1～2月接种疫苗的人和更早之前自然感染过中共病毒的人，如2020年就自然感染过中共病毒的人群。
 
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+统计数据显示，在更早时间自然感染中共病毒的人，免疫力经过较长时间的消退后，发生感染的风险比打了2剂疫苗的人低5.96倍。
 
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**重症风险比较**
 
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+研究人员还比较了两组人的重症风险。他们发现，打了2剂疫苗的人出现重症的风险是自然感染者的8.06倍！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230955.jpg)图片来源：MedRxiv
+以色列的研究专家强调，这项研究不是让人们去感染中共病毒以获得免疫，而是显示人体自身免疫力的潜力。目前已有不少医学专家都指出，如果没有推进疫苗接种，在自然免疫下，中共病毒疫情或许已经完全得到控制。
 
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+此前，美国国家过敏和传染病研究所所长安东尼‧福奇（Anthony Fauci）博士在演讲中曾经多次提到，疫苗产生的免疫力比人体自然感染产生的免疫力更强。然而，以色列的这份研究报告彻底颠覆了福奇的言论。
+
+如今，无论是以色列还是世界多国再度升温的疫情都足以证明，疫苗根本不是解决中共病毒疫情的有效手段。反而是，疫苗加速了中共病毒变种出现的速度和强度。
+
+爆料革命已经向全世界揭露了疫苗真相：疫苗就是中共病毒邪恶计划的一部分，疫苗的伤害远超过病毒本身！疫苗就是对人类的一场另类大屠杀，全世界必须立刻停止接种疫苗！
+
+**[新闻链接](https://twitter.com/dajiyuan/status/1439494470530125824)**
+
+* * *
 
 0

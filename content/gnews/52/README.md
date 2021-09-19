@@ -2,23 +2,25 @@
 ---
 
 
-## 从25万到7千! 香港登记选民人数下跌97%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542361/)
+## 中共申请加入CPTTP 遭澳洲贸易部长呛声!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542356/)
 
-栏目记者/责任编辑：飞虹
+栏目记者/责任编辑：文小白
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
 
 
-9月19日，香港选举委员会界别分组选举 开始投票，这是今年3月底中共全国人大常委会大幅修改香港选举制度之后的第一场选举投票。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.001.jpeg)
-新选举制度下的选举委员会，由过去的工商、金融、基层劳工、宗教、立法会议员、地区组织代表等，增加了“人大、政协委员及全国性团体香港成员代表界”，席位也由上届的1,200席增加至1,500席。成员席位及界别有所增加，但是选民总人数却大幅倒退，港府选委会公布的临时投票登记册显示，全港登记选民仅有近7,900名，较选举制度修改前的近25万名选民，竟然下跌了97%之多!
+澳大利亚贸易部长唐 特翰（Dan Tehan）9月17日表示，除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，否则澳大利亚将反对中共国加入全球最大自由贸易区**CPTPP**的申请。
 
-而事实上在修改选举规则及各种操控之下，1500个席位中超过1000个席位已经内定自动当选，最终只有364个席位需要由所谓的选举产生。且民主派人士不惧威胁，不为中共充门面唱赞歌，几乎无人参选。数据和证据都表明，香港已彻底沦为中共治下”内地”城市，而香港人通过议会参与本地政治事务已没有任何可能，甚至已没有任何的兴趣再与虎谋皮。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-19-at-8.21.54-PM.png)
+
+《跨太平洋伙伴全面与进步协定》简称**CPTPP**，其前身为《跨太平洋伙伴关系协定》也就是**TPP**，是由亚太经济合作会议成员发起，旨在促进亚太区的贸易自由化。2017年1月美国前总统川普以该协议损害美国制造业为由，退出了 **TPP**。随后在日本等国推动下，TPP同年11月11日改名为**CPTPP**。日本、加拿大、澳大利亚、新西兰、马来西亚、新加坡、越南、汶莱、墨西哥、智利以及秘鲁11个国家，于2018年3月签署该协定。
+
+2021年9月16日,中共商务部长王文涛向**CPTPP**提交申请加入的官方信函。中国要加入该协定，需要所有成员国确信中共能够遵守现有的贸易协议 及兑现对世界贸易组织的承诺。澳大利亚贸易部长唐 特翰的这一表态，表明中共的这一申请企图将很难实现 。
 (本文仅代表作者观点)
 
-参考链接：[香港民调：市民对未来各项选举关注度低 年轻人对议会路线已没想像](https://www.voachinese.com/a/hong-kong-survey-preview-on-election-committee-subsector-elections-20210917/6233091.html)
+参考连接：[澳大利亚要求中国取消报复性贸易关税 否则免谈加入CPTTP](https://www.voachinese.com/a/Australia-opposes-China-s-bid-to-join-trade-pact-CPTTP-20210918/6234035.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -31,5 +33,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 0

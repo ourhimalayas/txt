@@ -2,23 +2,23 @@
 ---
 
 
-## 保卫台湾 反制中共 , 是美国国防战略的重中之重!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542371/)
+## 从25万到7千! 香港登记选民人数下跌97%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542361/)
 
-栏目记者/责任编辑：七哩香
+栏目记者/责任编辑：飞虹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-9月15日，美国外交政策智库”卡内基国际和平基金会” 举办了一场研讨会，探讨了美国国防战略应如何改变，以遏制中共日益增长的实力和野心,并最终阻止爆发战争。该研讨会是在数日前中共海军舰艇驶入美国阿拉斯加附近水域的背景下召开的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.003.jpeg)
-研讨会与会者之一, 是美国前助理国防部长科尔比, 他刚刚出版了新书《拒绝的战略：大国冲突时代的美国国防》，科尔比称，当前的美国国防战略应首先针对中共，中共的霸权影响着美国人民的生活，威胁美国的自由价值取向。而重中之重是优先部署军力保卫台湾，台湾是中共的目标，更是美国的盟友，台海安全体现美国的威慑力是否能够持续。
+9月19日，香港选举委员会界别分组选举 开始投票，这是今年3月底中共全国人大常委会大幅修改香港选举制度之后的第一场选举投票。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.001.jpeg)
+新选举制度下的选举委员会，由过去的工商、金融、基层劳工、宗教、立法会议员、地区组织代表等，增加了“人大、政协委员及全国性团体香港成员代表界”，席位也由上届的1,200席增加至1,500席。成员席位及界别有所增加，但是选民总人数却大幅倒退，港府选委会公布的临时投票登记册显示，全港登记选民仅有近7,900名，较选举制度修改前的近25万名选民，竟然下跌了97%之多!
 
-哈德逊研究所前总裁肯尼斯·温斯坦 表示赞同。温斯坦称，中共在意识形态、民族主义、南海、香港、新疆表现出的野心和暴政，是美国面临的最大挑战。哈德逊研究所”量子联盟计划” 主任阿瑟·赫尔曼也认为台湾是不可放弃的盟友，美国应视台湾为战略愿景的一部分，如果放任中共侵略台湾，不仅将破坏亚洲盟友的信任，也将是美国大国地位的终结。
+而事实上在修改选举规则及各种操控之下，1500个席位中超过1000个席位已经内定自动当选，最终只有364个席位需要由所谓的选举产生。且民主派人士不惧威胁，不为中共充门面唱赞歌，几乎无人参选。数据和证据都表明，香港已彻底沦为中共治下”内地”城市，而香港人通过议会参与本地政治事务已没有任何可能，甚至已没有任何的兴趣再与虎谋皮。
 (本文仅代表作者观点)
 
-参考链接：  [中国军舰驶入挑衅？美前国防高官提“拒绝战略”遏制北京](https://www.voachinese.com/a/Strategy-of-denial-how-to-checkmate-china-ambition-20210915/6230695.html)
+参考链接：[香港民调：市民对未来各项选举关注度低 年轻人对议会路线已没想像](https://www.voachinese.com/a/hong-kong-survey-preview-on-election-committee-subsector-elections-20210917/6233091.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -31,7 +31,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
 0
