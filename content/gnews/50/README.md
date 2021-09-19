@@ -2,16 +2,14 @@
 ---
 
 
-## 2021年9月18日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542162/)
+## 2021年9月18日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1542227/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-9/17/2021 Miles Guo: The settlement between the SEC and us assures that the fellow fighters‘ funds will be returned. More importantly, this settlement has made it clear we are not involved in any frauds or criminal offences and that we are not prohibited from entering the U.S. financial market in the future!
+9月18号：看着一个自己的同类这样的死去，周围的人却如此的冷漠，幸灾乐祸，这已经不是人道和不人道的这个层面的问题了。人类正在走向一个关键的十字路口，自私贪婪，冷漠无知，愚蠢……会毁掉太多人的生命。
 
-9/17/2021 文贵直播：我们和SEC的和解确保了战友能把钱拿回来，为此七哥也愿意接受调查；更重要的是，这次和解认定了我们不涉及任何诈骗或刑事犯罪，且没有禁止我们未来进入美国金融市场！
-
-[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbdy61de31)
+[【2021年9月18日】文贵先生盖特原文](https://gettr.com/post/pbimurccb4)
 
 **喜联盟Gnews编辑部**
 
