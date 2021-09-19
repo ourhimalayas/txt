@@ -2,29 +2,33 @@
 ---
 
 
-## 澳要求中国取消报复性贸易关税 否则免谈加入CPTPP
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1543224/)
+## 台湾增加军事预算 应对来自中共的威胁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1543236/)
 
-#### 作者：东京樱花团｜文小白
-![](https://assets.gnews.org/wp-content/uploads/2021/09/pasted-image-0-2-2.png)
-[*图片来源*](https://upload.wikimedia.org/wikipedia/commons/d/dd/Leaders_of_TPP_member_states.jpg)
+**撰稿：日本东京方舟农场 子辰**
 
-澳大利亚贸易部长特汉（Dan Tehan）9月17日表示，[除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，澳大利亚将反对中国加入全球最大的自由贸易区《跨太平洋伙伴全面与进步协定》（CPTPP）](https://www.voachinese.com/a/Australia-opposes-China-s-bid-to-join-trade-pact-CPTTP-20210918/6234035.html)。
+9月16日，台湾提议在未来5年内额外投入2400亿元新台币（约合86.9亿美元）用于国防，包括新导弹，并警告称，面对来自其邻国中共国的”严重威胁”，迫切需要升级武器。
 
-中国商务部长王文涛9月16日向“跨太平洋伙伴全面与进步协定”的保存方新西兰贸易部长奥康纳（Damien O’Connor）提交正式申请加入CPTPP的书面信函。
+据CAN报道，这笔新资金是2022年计划军费支出4717亿元新台币的基础上增加的，需要得到蔡英文执政党占多数的国会的批准，这意味着其通过应该很顺利。
 
-中国要加入该协定，需要所有签署国家的一致同意。澳大利亚贸易部长特汉表示，中国在让所有成员国确信中国遵守现有的贸易协议及对世界贸易组织的承诺前，不会加入CPTPP。
+台湾国防部在每周一次的内阁会议后发表声明说：”中国共产党继续在国防预算上投入巨资，其军事实力迅速增强，并经常派遣飞机和船只入侵和骚扰我们的海洋和领空。”
 
-- ***延展阅读：***[***環太平洋パートナーシップ協定***](https://ja.m.wikipedia.org/wiki/%E7%92%B0%E5%A4%AA%E5%B9%B3%E6%B4%8B%E3%83%91%E3%83%BC%E3%83%88%E3%83%8A%E3%83%BC%E3%82%B7%E3%83%83%E3%83%97%E5%8D%94%E5%AE%9A)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-16t030210z_1_lynxmpeh8f03v_rtroptp_3_taiwan-defence.jpg)图片来自于网络
 
+他补充说：“面对敌人的严重威胁，国家军队积极开展军事建设和准备工作，迫切需要在短时间内实现成熟、快速的大规模生产武器装备。”
 
-《跨太平洋伙伴全面与进步协定》前身为《跨太平洋伙伴关系协定》（TPP），是由亚太经济合作会议成员发起，旨在促进亚太区的贸易自由化。2017年1月美国前总统特朗普以该协议损害美国制造业为由，退出了TPP。随后，在日本等国推动下，TPP同年11月11日改名为《跨太平洋伙伴全面与进步协定（CPTPP）。
+在美国是否会在中共发动袭击时提供援助的问题中。内阁发言人罗平成说：”只有我们确保安全，表现出决心，国际社会才会好好看待我们。”只有我们帮助自己，别人才会帮助我们。
 
-日本、加拿大、澳大利亚、新西兰、马来西亚、新加坡、越南、汶莱、墨西哥、智利以及秘鲁11个国家2018年3月签署该协定，当年12月30日正式生效。新西兰作为CPTPP的保存国，负责处理该公约的各种行政工作，包括加入申请。
+国防部补充说，台湾打算用这笔钱购买的武器包括新型巡航导弹和新型战舰。
 
-（本文只代表个人观点，与Gnews网站无关）
+*注：本文仅代表作者观点，与 Gnews无关*
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+*参考链接：*
+
+[Taiwan plans US$9 billion boost in arms spending, warning of ‘severe threat’](https://www.channelnewsasia.com/asia/taiwan-plans-us9-billion-boost-arms-spending-warning-severe-threat-2181786)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
+
 0
