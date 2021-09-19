@@ -2,37 +2,147 @@
 ---
 
 
-## 45个非政府组织联合呼吁释放公民记者张展
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1541179/)
+## 郭文贵先生谈为什么要打马明哲的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1541163/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a9d2h-yr6ll.jpg)
+[https://gtv.org/video/id=6145d839d2e2b817486add6e](https://gtv.org/video/id=6145d839d2e2b817486add6e)
 
-9月17日，包括无国界记者、国际特赦等组织在内的45个非政府组织发表联合声明，呼吁中共释放因报道武汉疫情被判刑的公民记者张展。
+**字幕内容:**
 
-据VOA报道，现年38岁的张展在新冠疫情爆发初期来到武汉进行实地调查，以视频等方式报道了医院里感染者人满为患及火葬场尸体堆积的场景。2020年5月她在上海被拘捕，后被指控编造、散布虚假讯息。12月因“寻衅滋事”的罪名被判4年徒刑。
+**郭文贵
+Miles Guo**
 
-记者无疆界组织的东亚办公室负责人埃维亚尼（ Cédric Alviani ）在声明中表示，“张展没有犯下任何刑事罪行，而是勇敢地冒着生命危险向公众提供有关公共卫生危机的信息，她根本不应该被拘捕，更不应该被判刑监禁。我们呼吁习近平主席在为时已晚之前释放张展。”
+七哥第一个要打马明哲的原因，
+QiGe (My) first reason to expose Ma Mingzhe
 
-参与联署的非政府组织还包括国际特赦组织、国际笔会、自由之家（Freedom House）、台湾外国记者俱乐部等。
+其中的核心原因就是因为汇丰
+One of the core reasons is HSBC
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/56074752_303.jpg)图片来自于网络
+我恼火的是马明哲
+I’m annoyed with Ma Mingzhe
 
-张展从去年5月被捕开始进行持续的半绝食抗议，现在生命危殆。今年8月初，德国之声曾报道，张展因持续在监狱中进行半绝食抗议，体重已下降至不到40公斤，并因面临严重营养不良的情况，已在7月底被送医。
+我跟你真的，我在重申，马明哲
+I repeat to you, Ma Mingzhe
 
-无国界记者组织还表示，张展在羁押期间一直受到不当对待，她的家属也被禁止探视。
+个人上我欠你的，我不应该这么对你
+I owe you personally, I shouldn’t be have done this to you
 
-此外，记者无疆界（RSF）称，除张展外，中共国还有至少10名在押的新闻自由捍卫者在狱中面临生命危险，包括RSF世界新闻自由奖得主、“六四天网”创办人黄琦，萨哈罗夫奖获得者、维吾尔族学者伊利哈木·土赫提（Ilham Tohti）和瑞典籍出版商桂敏海。据该组织统计，中（共）国至少有122名记者目前被关押，是全球关押记者人数最多的国家。
+这是不对的，个人上真的是不对的
+It is not right, it is really not right personally.
 
-*注：本文仅代表作者观点，与 Gnews无关*
+你还帮过我们，而且咱们俩的对话当中到现在
+You helped us, and also between our conversations till now
 
-*参考链接：*
+你还是坚守了原则的
+You’ve stuck to your principles
 
-[记者无疆界等NGO致信习近平 呼吁释放张展](https://www.dw.com/zh/%E8%AE%B0%E8%80%85%E6%97%A0%E7%96%86%E7%95%8C%E7%AD%89ngo%E8%87%B4%E4%BF%A1%E4%B9%A0%E8%BF%91%E5%B9%B3-%E5%91%BC%E5%90%81%E9%87%8A%E6%94%BE%E5%BC%A0%E5%B1%95/a-59213556)
+我还是很佩服你的，在能力上我也是很佩服你
+I still admire you, I also admire your ability
 
-[45家NGO联名要求中国释放因报道新冠疫情入狱并绝食的记者张展](https://www.voachinese.com/a/ngo-coalition-urges-china-to-release-covid-19-reporter-on-hunger-strike-20210917/6232546.html)
+但是你在香港汇丰银行，你害香港的这些孩子
+But for the HSBC in Hong Kong, you have harmed these Hong Kong kids
 
-* * *
+你帮助共产党作孽
+You helped the Communist Party to commit evil
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+咱俩必须走在对立面
+We must be on opposite sides
+
+这是一个原因，
+This is one reason
+
+第二个马明哲你和周亮最近干的事情
+The second reason, Ma Mingzhe, what you and Zhou Liang did recently
+
+你和周亮陷害的这些好人
+You and Zhou Liang are framed these good people
+
+让我看不下去
+I cannot stand it anymore
+
+因为你会继续害下去
+Because you will continue to harm
+
+而且马明哲你在西方的这个局
+And Ma Mingzhe, you set up this situation in the west
+
+你帮共产党在害日本人，美国人，英国人，西班牙人，德国人
+You are helping the Communist Party to harm the Japanese, Americans, British, Spanish, Germans
+
+你在害他们，包括加拿大
+You are harming them, including Canadian
+
+你这是帮助希特勒
+you are helping Hitler
+
+你会走的很远的
+You’ll die a horrible death
+
+马明哲我说的话你懂的
+Ma Mingzhe you understand what I’m saying
+
+而且你那么疯狂
+And you are so crazy
+
+而且你在帮助（共产党）骗走那么多美国养老基金，退休基金
+And you are helping (the Communist Party) deceive so many American pension funds, retirement funds
+
+这些美国老人未来会饿死的
+These elder Americans will starve to death in the future
+
+真的，美国政府是不会给这些老人任何饭吃的
+Really, the U.S. government will not give these elder people any free food
+
+你会让这些美国的老人他们没有任何生存的可能
+You will leave these elder Americans without any possibility of survival
+
+你把他们的钱骗走
+You deceived their money away
+
+而且你潜伏了那么多所谓的在基金里的华人和特务
+And you lurked so many so-called Chinese and spies in those funds
+
+你骗他们那么多钱
+You cheated them so much money
+
+像欧洲的老人，英国的老人
+Like elder people in Europe, elder people in Britain
+
+马明哲你也会老的
+Ma Mingzhe, you will be old too
+
+你不能这样对待他们，所以我必须制止你
+You can’t treat them like this, so I must stop you
+
+你必须停止对香港的残害，汇丰
+You must stop harming Hong Kong, HSBC
+
+你必须停止对这些西方这些老人的残害
+You must stop the brutalization of these elder people in the West
+
+还有日本老人的残害
+And the brutalization of Japanese elder people
+
+你在日本布置的局，对日本相当发动一场战争
+The game you set up in Japan is equivalent to waging a war against Japan
+
+我必须制止你
+I must stop you
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1437256379731832834?s=24](https://twitter.com/se1y7cblljselva/status/1437256379731832834?s=24)
+
+中听英：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

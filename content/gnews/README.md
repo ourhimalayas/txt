@@ -28,14 +28,14 @@
 ### [中共内部还有个邪恶组织在掌控](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [关于美国疫苗接种赦免而想到的](/content/gnews/6/README.md)
+### [完全接种疫苗感染Delta死亡率比未接种的高出八倍](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [关于美国疫苗接种赦免而想到的](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [中东国家使用国药疫苗后的惊人发现](/content/gnews/7/README.md)
+### [中东国家使用国药疫苗后的惊人发现](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国疫情：截至9月16日24时新型冠状病毒肺炎疫情最新情况](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [共和党参议员要求NIH提供有关删除COVID-19数据的解答](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -76,46 +76,46 @@
 ### [9/7郭文贵直播：黑天鹅事件迫使习取消攻台2号计划（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [印度假“异描”证书制作和销售已成完整产业链](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [万锦每天超20起罪案，特鲁多上任后犯罪率急升！](/content/gnews/23/README.md)
- ` 丁过`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/24/README.md)
- ` wenwu`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [英美澳签署协议对抗中共 北京称英美澳联盟“不负责任”](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：德国医生协会呼吁取消所有州的疫情戒严措施！](/content/gnews/27/README.md)
+### [秘翻在线：亚利桑那州新增感染病例与死亡人数成反比](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新州24小时内死亡病例数再创纪录](/content/gnews/28/README.md)
+### [加拿大多伦多枫叶农场再次参与全球反疫苗护照示威](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [9月18日文贵先生盖特摘要](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [联合国秘书长表示无权禁止未接种的国家领导人进入总部](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [印度假“异描”证书制作和销售已成完整产业链](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [万锦每天超20起罪案，特鲁多上任后犯罪率急升！](/content/gnews/27/README.md)
+ ` 丁过`
+
+### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/28/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新州24小时内死亡病例数再创纪录](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港：民主派几乎绝迹的选委会今投票 警力多过选民](/content/gnews/29/README.md)
+### [香港：民主派几乎绝迹的选委会今投票 警力多过选民](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [是否会与中共国开战？澳防长：“这是中共的问题”](/content/gnews/30/README.md)
+### [是否会与中共国开战？澳防长：“这是中共的问题”](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美财政部发布了对支持恐怖主义的国际金融网络的制裁措施](/content/gnews/31/README.md)
+### [美财政部发布了对支持恐怖主义的国际金融网络的制裁措施](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [默克尔的中共国幻觉终结](/content/gnews/32/README.md)
+### [默克尔的中共国幻觉终结](/content/gnews/33/README.md)
  ` Shuizhuyu`
 
-### [澳大利亚警告中共，先撤销报复性贸易关税，否则免谈加入CPTTP](/content/gnews/33/README.md)
+### [澳大利亚警告中共，先撤销报复性贸易关税，否则免谈加入CPTTP](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [德州格兰德河上的上万移民](/content/gnews/34/README.md)
- ` Shuizhuyu`
-
-### [希腊警告土耳其在难民问题上的敲诈企图](/content/gnews/35/README.md)
+### [德州格兰德河上的上万移民](/content/gnews/35/README.md)
  ` Shuizhuyu`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
@@ -142,36 +142,36 @@
 ### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/43/README.md)
  ` wenwu`
 
-### [国际要闻汇编](/content/gnews/44/README.md)
+### [伊朗加入上海合作组织 FDA否决辉瑞第三针](/content/gnews/44/README.md)
+ ` 纽约香草山MOS01`
+
+### [国际要闻汇编](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共申请入会CPTPP 轮值主席国日本保持谨慎](/content/gnews/45/README.md)
+### [中共申请入会CPTPP 轮值主席国日本保持谨慎](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
 
-### [维基百科封禁中共七名编辑](/content/gnews/46/README.md)
+### [维基百科封禁中共七名编辑](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [中共西南海域演练常态化 台海战争一触即发](/content/gnews/47/README.md)
+### [中共西南海域演练常态化 台海战争一触即发](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/48/README.md)
+### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/49/README.md)
  ` HimalayaRussia`
 
-### [2021年9月17日郭文贵先生直播全文字版](/content/gnews/49/README.md)
+### [2021年9月17日郭文贵先生直播全文字版](/content/gnews/50/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/50/README.md)
+### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生谈为什么要打马明哲的原因](/content/gnews/51/README.md)
+### [郭文贵先生谈为什么要打马明哲的原因](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/52/README.md)
+### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/53/README.md)
+### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/54/README.md)
  ` HimalayaRussia`
-
-### [因亲中势力渗透，维基百科封禁“中共国维基人用户组”七名编辑](/content/gnews/54/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 

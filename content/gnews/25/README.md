@@ -2,42 +2,52 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1540831/)
+## 联合国秘书长表示无权禁止未接种的国家领导人进入总部
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541606/)
 
-- 编译：土饭团(文团)
+栏目记者/责任编辑：文扬四海
 
 
-您若想了解全文报导内容，请点击标题链接
 
-**1.[Pompeo谈Milley将军对中国的呼吁:关于Trump最后几周的叙述“根本是错误的”](https://www.foxnews.com/media/pompeo-milley-china-calls-trump-false-narrative-attack)**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-福克斯新闻9月17日电，前国务卿Mike Pompeo周五接受了“Fox & Friends”的采访，并对参谋长联席会议主席Mark Milley将军进行了抨击。他说，如果Milley答应北京在美国可能的攻击之前提醒他们，那将是“悲惨的”。他将不得不交代和解释他向中国共产党所说的话。
 
-**2.[Austin向中国保证与英国和澳大利亚的新伙伴关系“不针对任何人”](https://www.foxnews.com/politics/austin-china-us-uk-australia-partnership)**
 
-福克斯新闻9月16日电，Austin周四试图向中国保证，美国、英国和澳大利亚之间的最新三方协议“不针对任何人”。Austin发表上述言论的前一天，澳大利亚、英国和美国签署了一项名为AUKUS的协议，该协议使2016年法国与澳大利亚之间的潜艇协议无效。AUKUS联盟将向这个印太国家提供高度敏感的核潜艇技术–此举被广泛视为对中国在该地区活动的直接挑战。
 
-**3.[共和党人就中国的数据操纵报告责问IMF总裁](https://www.bloomberg.com/news/articles/2021-09-17/republicans-slam-imf-chief-over-china-data-manipulation-report)**
 
-Bloomberg 9月17日电，共和党议员周五对国际货币基金组织总裁进行了抨击，因为有报道称她在世界银行工作时，曾向该机构的工作人员施压，要求提高中国在全球经济体排名中的地位。田纳西州参议员Bill Hagerty呼吁美国“要求问责”，称Kristalina Georgieva“策划了一个腐败计划”来操纵世界银行的营商环境报告。
+据俄罗斯卫星通讯社报道，联合国秘书长安东尼奥•古特雷斯9月17日表示，无权禁止未接种新冠疫苗的国家领导人进入联合国总部。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-8.jpg)
+纽约政府此前要求，所有即将于9月21日至27日参加联合国大会高级别会议的代表和工作人员，在进入会议大厅时均需提供已接种新冠疫苗的证明。纽约市长办公室已将相关信函发送给第76届联合国大会主席。俄罗斯常驻代表瓦西里·内本齐亚要求召开联合国大会紧急会议来讨论这一措施。内本齐亚表示对收到支持出示疫苗接种证明的信息感到极度惊讶和失望；对此项措施俄罗斯强烈反对，认为其具有明显的歧视性。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-72.jpg)
+参考链接：
+[联合国秘书长：无法禁止未接种新冠疫苗的国家领导人进入总部](https://sputniknews.cn/covid-2019/202109171034486804/)
+[纽约规定接种疫苗才能参加联合国会议 俄罗斯表示抗议](https://chinese.aljazeera.net/news/2021/9/16/%E7%BA%BD%E7%BA%A6%E8%A7%84%E5%AE%9A%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E6%89%8D%E8%83%BD%E5%8F%82%E5%8A%A0%E8%81%94%E5%90%88%E5%9B%BD%E4%BC%9A%E8%AE%AE%E4%BF%84%E7%BD%97%E6%96%AF%E8%A1%A8%E7%A4%BA)
 
-**4.[Blinken与英国新任外交大臣交谈，讨论阿富汗和中国问题](https://www.aninews.in/news/world/us/blinken-speaks-with-new-uk-foreign-secy-discusses-afghanistan-china20210918110232/)**
+（本文仅代表作者观点）
 
-ANI 9月18日电，美国国务卿Antony Blinken周五与新任命的英国外交大臣Elizabeth Truss通话，讨论了包括阿富汗、中国和伊朗等问题。此前，美国总统Joe Biden和另外两个国家的领导人于周三启动了新形成的AUKUS（澳大利亚-英国-美国）防务伙伴关系协定，该协定侧重于印太地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-**5.[美国和澳大利亚承诺加强与台湾的关系](https://www.aninews.in/news/world/asia/us-australia-pledge-to-strengthen-ties-with-taiwan20210917181620/)**
+终审： 暗黑
+校对/发稿：为真不破20
 
-ANI 9月17日电，美国和澳大利亚已经表明他们打算加强与台湾的关系，并强调支持自治岛有意义地参与国际组织，这是在美国和澳大利亚部长级磋商期间讨论的。根据会谈后的联合声明，两国秘书和部长再次强调了台湾在印太地区的重要作用。这预计会激怒中国，因为中国近来加强了对台湾的军事和外交压力。
+**更多资讯，更多关注**
 
-（文章仅代表作者本人观点，与Gnews无关）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*审核：Aries的星*
-*校对：阿伯塔*
-*发布：信心的选择*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+0

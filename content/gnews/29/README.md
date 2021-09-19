@@ -2,29 +2,29 @@
 ---
 
 
-## 香港：民主派几乎绝迹的选委会今投票 警力多过选民
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1541465/)
+## 新州24小时内死亡病例数再创纪录
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1541571/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16320135411.png)
-编辑摘要：
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/SDN.jpg)图片来源：THE CONVERSATION
+**整理报道：**翼族
 
-9月19日，经北京操控至选民大大缩减的香港选举委员会进行投票，不足五千名选民可前往全港五个票站投票，从412名候选人中选出364名选委。为确保此次官方“爱国者治港”的选举顺利举行，负责港澳事务的国务院副总理韩正南下深圳。警方派出五、六千名警务人员在票站和高危地点巡逻，以致出现警察多于选民的情况。
+周六晚八点之前的24小时内，澳大利亚新南威尔士州记录了1083例新增中共病毒（COVID-19）病例和13例死亡病例。截至目前为止，13例是新南威尔士州24小时内所记录的最高死亡数。
 
-在新制度下扩大至一千五百人的选委会，72%席位已经由自动当选和当然委员出任；四百名候选人几乎全由建制派人士包揽，只有三名候选人接近民主派色彩，但仍被建制派认定选举有“多元声音”。
+13名死者中，其中9人未接种疫苗，2人接种了一剂疫苗，2人完全接种了疫苗。自2021年6月16日以来，新南威尔士州已有241例与中共病毒相关的死亡病例。
 
-香港时间早上9 时起的九小时内，4889名选民可在至少5000至6000警员在岗的秩序下投票。百年香港，从来没有出现过荷枪实弹的警员陪伴选举的情况。港版国安法出台之后，香港一夜之间，警员多过市民，全港草木皆兵。百年香港也没出现过所谓的乱港分子，何以国安法出台之后就出现了呢？到底谁才是乱港分子？贼喊捉贼，是中共常用的手段。信奉枪杆子里出政权，所以中共夺取了政权。香港如今也面临着同样的境况。
+与此同时，新南威尔士州州长格拉迪斯·贝尔吉格利安（Gladys Berejiklian）宣布从明天起放宽对悉尼一些病毒传播热点地区的限制。她承认澳大利亚医学协会(AMA)等医疗机构的担忧是正确的，更多的自由可能会导致病例再次激增，但州长表示，她相信政府已经取得了正确的平衡。
 
-新闻参考链接：[香港：民主派几近绝迹的选委会选举今投票 警力多于选民 「非建制派」顶多剩0.2%](https://amp.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210918-%E9%A6%99%E6%B8%AF-%E6%B0%91%E4%B8%BB%E6%B4%BE%E5%87%A0%E8%BF%91%E7%BB%9D%E8%BF%B9%E7%9A%84%E9%80%89%E5%A7%94%E4%BC%9A%E9%80%89%E4%B8%BE%E4%BB%8A%E6%8A%95%E7%A5%A8-%E8%AD%A6%E5%8A%9B%E5%A4%9A%E4%BA%8E%E9%80%89%E6%B0%91-%E9%9D%9E%E5%BB%BA%E5%88%B6%E6%B4%BE-%E9%A1%B6%E5%A4%9A%E5%89%A90-2)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-* * *
+**参考链接：**[NSW announces eased restrictions for Sydney hotspots; 1,083 COVID-19 cases, 13 deaths](https://www.abc.net.au/news/2021-09-19/nsw-eases-restrictions-as-state-records-1083-cases-13-deaths/100474266)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*编辑/发布：翼族*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0
