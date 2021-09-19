@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/19/2021 1:07 AM (UTC)`
+
+9月18号【毒疫苗和救命药方的信息在微信朋友圈迅速传播，战友们都拼了💪💪💪<br/>七哥，我们家最反对你的老妈现在全力传播关于你讲的疫苗的真相。🤣🤣🙈<br/><br/>今天在广州我们的会议上，大家都在讨论青X素是解药的讨论，视频中你讲的．伊菌X地塞x的信息，我彻底震撼了，我太佩服你了七哥哥😝】
+![img](https://media.gettr.com/group49/getter/2021/09/19/01/0e707d1f-35a1-70d6-ad1f-381f19359b89/f4fe12e713286b1e11678248b5efca8d.jpg)
+
+---
+
 `@miles 9/18/2021 10:53 PM (UTC)`
 
 9/18/2021 Miles Guo’s GETTR: There are countless cases of fellow fighters around the world recovering from COVID after taking the medication offered by the Whistleblowers’ Movement; With the continuation of the Communst China’s economic and financial crises, the CCP attempts to loot the Hongkongers’ wealth by reaching their “black hands” into the pockets of HSBC; The fundamental reason the CCP and other evil forces are so insane is their absolute control of media, finance, and intelligence<br/><br/>9/18/2021 文贵盖特：全球战友服用了爆料革命提供的药物转危为安的案例不胜枚举；伴随着中共国经济、金融危机继续延烧，中共将黑手伸向汇丰等银行，企图抢劫香港人民的财富；中共等邪恶力量疯狂的根本原因不外乎对媒体、金融和情报的绝对控制。<br/>
@@ -292,13 +299,6 @@ An brief introduction on the settlement between GTV and the SEC<br/>GTV与SEC的
 
 恒大财富暴雷，受害者聚集讨要说法<br/>Evergrande Wealth P2P product defaults whilst victims gather to demand justice
 ![img](https://media.gettr.com/group36/getter/2021/09/16/12/365ed043-74bb-a61b-a8b2-ffd5916a9041/out.jpg)
-
----
-
-`@miles 9/16/2021 12:46 PM (UTC)`
-
-SOHO China Plummets 40% After Blackstone Takeover Falls Apart<br/><br/>黑石放弃收购后，SOHO中国股价暴跌40%
-![img](https://media.gettr.com/group41/getter/2021/09/16/12/8749e4b0-0182-86d7-b205-a867c4aa5010/out.jpg)
 
 ---
 

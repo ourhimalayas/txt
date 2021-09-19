@@ -19,14 +19,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021/09/18文贵先生盖特精要](/content/gnews/3/README.md)
+### [马阿拉歌的摄像头](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021/09/18文贵先生盖特精要](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/4/README.md)
+### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [新冠病毒Coivd19打疫苗不吃伊维菌素青蒿素的主流在改变](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [关于美国疫苗接种赦免而想到的](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
@@ -37,14 +37,14 @@
 ### [中共国疫情：截至9月16日24时新型冠状病毒肺炎疫情最新情况](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [AMC将允许人们用加密货币购买电影票](/content/gnews/9/README.md)
+### [共和党参议员要求NIH提供有关删除COVID-19数据的解答](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [川普：米利应该以叛国罪受审](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
+### [AMC将允许人们用加密货币购买电影票](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/11/README.md)
- ` HimalayaRussia`
+### [川普：米利应该以叛国罪受审](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
 
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -154,24 +154,24 @@
 ### [中共西南海域演练常态化 台海战争一触即发](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/48/README.md)
- ` 日本东京方舟农场`
-
-### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/49/README.md)
+### [亚利桑那州的“国家审计”取得重大进展](/content/gnews/48/README.md)
  ` HimalayaRussia`
 
-### [中共延长对美国81种产品的关税豁免](/content/gnews/50/README.md)
+### [45个非政府组织联合呼吁释放公民记者张展](/content/gnews/49/README.md)
+ ` 日本东京方舟农场`
+
+### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/50/README.md)
+ ` HimalayaRussia`
+
+### [中共延长对美国81种产品的关税豁免](/content/gnews/51/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/51/README.md)
+### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《大鱼海棠》之人物解析](/content/gnews/52/README.md)
+### [《大鱼海棠》之人物解析](/content/gnews/53/README.md)
  ` 纽约香草山MOS03`
 
-### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/53/README.md)
+### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [自由之战&#8211;加拿大多伦多枫叶农场全球反疫苗护照示威](/content/gnews/54/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
