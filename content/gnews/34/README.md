@@ -2,34 +2,24 @@
 ---
 
 
-## 因亲中势力渗透，维基百科封禁“中共国维基人用户组”七名编辑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1541033/)
+## 希腊警告土耳其在难民问题上的敲诈企图
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1541025/)
 
-2021年09月18日
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-6.jpg)网络图片
-
-**编辑摘要：**据法国国际广播电台9月18日报道，维基百科（Wikipedia）所属的美国非营利组织表示，这个由公共用户自由编辑的百科全书已经遭到“渗透”，其目的是帮助中共国推进其目标。维基媒体基金会（Wikimedia Foundation）向BBC表示，这种渗透已经威胁“维基百科的根基”。该基金会已经对七名与中共国组织有关的编辑下达禁令。中共国大陆维基人用户组（Wikimedians of Mainland China）指控该基金会的做法是“对一小部分人进行了毫无根据的诽谤”。
-
-维基媒体基金会的副主席玛姬·丹尼斯（Maggie Dennis）表示，“这个案件的范围和性质是前所未有的”， 她说，该基金会对中文维基百科中的渗透已经进行了接近一年的调查。但是在今年夏天，对于志愿编辑安全的“可信威胁”已经“令我们优先采取迅速回应”。 此外还有一些担忧，是掌握大权的管理者角色选举可能被操控，以及编辑过程可能有被压倒性控制的风险。
-
-据该报道，来自两地的志愿编辑曾经在关于香港政治事件的维基百科文章中展开“编辑战”。
-
-《香港自由新闻》的报道指出，中共国大陆编辑越来越多地在维基百科的文章中“鼓励使用中共国官方媒体作为可靠的新闻信息来源”。报道揭露了一些人还在网络聊天群组当中讨论，将香港的编辑举报给香港警务处国家安全处。
-
-《香港自由新闻》记者郑嘉如（Selina Cheng）向BBC表示，香港维基百科社群的一些成员现在都对“评论政治敏感的文章”感到害怕。她说，“香港用户害怕他们可能会因为身份被暴露而成为目标。”他们已经向维基媒体基金会的信用与安全团队求助。
-
-新闻参考链接：[维基百科以亲中势力渗透为由封禁“中国大陆维基人用户组”七名编辑](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210918-%E7%BB%B4%E5%9F%BA%E7%99%BE%E7%A7%91%E4%BB%A5%E4%BA%B2%E4%B8%AD%E5%8A%BF%E5%8A%9B%E6%B8%97%E9%80%8F%E4%B8%BA%E7%94%B1%E5%B0%81%E7%A6%81-%E4%B8%AD%E5%9B%BD%E5%A4%A7%E9%99%86%E7%BB%B4%E5%9F%BA%E4%BA%BA%E7%94%A8%E6%88%B7%E7%BB%84-%E4%B8%83%E5%90%8D%E7%BC%96%E8%BE%91)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0832.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+资料来源：视频截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+欧盟再次就阿富汗移民问题进行谈判。 在欧洲地中海国家会议上，希腊警告新难民流动的后果。 雅典再次担心土耳其的勒索企图。
+
+希腊担心来自阿富汗的新难民运动的政治影响。希腊总理米佐塔基斯周五警告说，不要“利用移民流动及其工具来实现其他目标”。 这是对土耳其的明确指责和警告。
+
+[https://www.welt.de/politik/ausland/plus233876882/EU-Mittelmeerstaaten-Athen-warnt-vor-tuerkischen-Erpressungsversuchen.html](https://www.welt.de/politik/ausland/plus233876882/EU-Mittelmeerstaaten-Athen-warnt-vor-tuerkischen-Erpressungsversuchen.html)
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+*责任编辑/校对/发布： Shuizhuyu*
 
 0

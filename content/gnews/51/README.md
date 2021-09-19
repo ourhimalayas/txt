@@ -2,37 +2,30 @@
 ---
 
 
-## 中共延长对美国81种产品的关税豁免
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1540835/)
+## 法国是重要的合作伙伴
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1540946/)
 
-简评:
-***表面上中共主动释放友善信号，主动延长对美国81种产品的关税豁免，实则是实力不济，无法与美国抗衡。 别看它嘴巴叫的欢，身体还是很老实的。***
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据《路透社》记者 Colin Qian and Tom Daly 2021年9月16日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2226.png)工作人员在 2021 年 9 月 4 日在中国北京举行的 2021 年中国国际服务贸易交易会（CIFTIS）上展示的中美两国国旗后聊天REUTERS/Florence Lo
-路透北京9月16日 – 中（共）国财政部在周四发布的一份声明中表示，中（共）国将从美国进口的81种产品的关税豁免继续延长7个月。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/auf-diesem-von-der-u-s-navy.jpg)
 
-作为结束世界两大经济体之间激烈贸易战的初步协议的一部分，中（共）国经常进行此类延期。
 
-该部表示，这些作为对美国 301 条款行动的反制措施的项目，已获得中（共）国对美国商品征收报复性关税的豁免。
+资料来源：法新社
 
-它补充说，包括一些虾和电动汽车电池在内的物品的豁免原定于本周四到期，但现在已延长至 2022年4月16日。
+在法国因对潜艇交易的不满而召回美国和澳大利亚的大使后，华盛顿和堪培拉正试图抑制损失。他们强调与法国双边关系的价值。
 
-针锋相对的贸易战在美国前总统唐纳德-川普的任期内爆发，价值数十亿美元的商品被征收关税。
+美国和澳大利亚正试图安抚愤怒的法国政府，因为它涉及 10 亿美元的军火交易。 “法国是一个重要的合作伙伴和我们最古老的盟友，我们非常重视我们的关系，”在法国召集其驻美国和澳大利亚大使进行磋商后，美国国务院表示。希望能够在未来几天继续就该主题进行讨论。
 
-2020年1月达成的第一阶段临时贸易协议要求，中（共）国在两年内增加对美国出口商品的购买量达到2000亿美元。它将于年底到期，但北京远远落后于目标，部分原因是COVID-19大流行。
+法国驻澳大利亚大使 Jean-Pierre Thebault 在离开前的星期六非常生气：“我认为这里犯了一个大错误，一种非常非常糟糕的合作方式，”他告诉记者。 “这不是一份合同，而是一种建立在信任、相互理解和开放基础上的伙伴关系。”
 
-中（共）国上一次给予延期是在今年5月，维持对包括金矿石和稀土金属矿石在内的产品的关税豁免。
+澳大利亚外交部发言人也对大使的离开表示遗憾：“澳大利亚重视与法国的关系。我们期待着再次与法国就我们基于共同价值观的许多共同问题和利益进行对话。”
 
-文章来源：[https://www.reuters.com/world/china/china-extends-tariff-exemption-81-products-us-2021-09-16/?taid=614354fae56df4000174bf58&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/china/china-extends-tariff-exemption-81-products-us-2021-09-16/?taid=614354fae56df4000174bf58&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+与此同时，马来西亚对武器条约表示担忧，根据该条约，澳大利亚现在将从建造八艘核动力潜艇，而不是常规潜艇。马来西亚总理办公室在谈到中共国​​时说：“这将促使其他大国在该地区采取更积极的行动，尤其是在南海。”中共国还试图通过建立军事基地来扩大其在该地区的影响力。就美国而言，它正试图遏制中共国的影响力，巩固自己的地位。
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场– Mike Li
-评论：洛杉矶盘古农场 – Raul
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html](https://www.faz.net/aktuell/politik/ausland/konflikt-um-u-boote-usa-und-australien-beschwichtigen-17543915.html)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+
+*责任编辑/校对/发布： Shuizhuyu*
 
 0

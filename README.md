@@ -94,29 +94,29 @@
 ### [坚持不打疫苗的巴西总统表示将出席纽约的联合国大会](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [是否会与中共国开战？澳防长：“这是中共的问题”](/content/gnews/28/README.md)
+### [香港：民主派几乎绝迹的选委会今投票 警力多过选民](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美财政部发布了对支持恐怖主义的国际金融网络的制裁措施](/content/gnews/29/README.md)
+### [是否会与中共国开战？澳防长：“这是中共的问题”](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [默克尔的中共国幻觉终结](/content/gnews/30/README.md)
+### [美财政部发布了对支持恐怖主义的国际金融网络的制裁措施](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [默克尔的中共国幻觉终结](/content/gnews/31/README.md)
  ` Shuizhuyu`
 
-### [澳大利亚警告中共，先撤销报复性贸易关税，否则免谈加入CPTTP](/content/gnews/31/README.md)
+### [澳大利亚警告中共，先撤销报复性贸易关税，否则免谈加入CPTTP](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [德州格兰德河上的上万移民](/content/gnews/32/README.md)
+### [德州格兰德河上的上万移民](/content/gnews/33/README.md)
  ` Shuizhuyu`
 
-### [希腊警告土耳其在难民问题上的敲诈企图](/content/gnews/33/README.md)
+### [希腊警告土耳其在难民问题上的敲诈企图](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
-### [因亲中势力渗透，维基百科封禁“中共国维基人用户组”七名编辑](/content/gnews/34/README.md)
+### [因亲中势力渗透，维基百科封禁“中共国维基人用户组”七名编辑](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [法国是重要的合作伙伴](/content/gnews/35/README.md)
- ` Shuizhuyu`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -163,15 +163,15 @@
 ### [联邦咨询小组否决拜登的疫苗全民接种计划](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [中共延长对美国81种产品的关税豁免](/content/gnews/51/README.md)
+### [法国是重要的合作伙伴](/content/gnews/51/README.md)
+ ` Shuizhuyu`
+
+### [中共延长对美国81种产品的关税豁免](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/52/README.md)
+### [家庭反洗脑序列：第27篇 恶心的医药](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《大鱼海棠》之人物解析](/content/gnews/53/README.md)
+### [《大鱼海棠》之人物解析](/content/gnews/54/README.md)
  ` 纽约香草山MOS03`
-
-### [川普代理国防部长米勒表示，没有授权米利与中共通话](/content/gnews/54/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

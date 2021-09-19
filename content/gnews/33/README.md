@@ -2,21 +2,25 @@
 ---
 
 
-## 希腊警告土耳其在难民问题上的敲诈企图
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1541025/)
+## 德州格兰德河上的上万移民
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1541100/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0832.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/BESTPIX-Large-Migration-Surge-Crosses-Rio-Grande-Into-Del.jpg)
 
 
-资料来源：视频截图
+资料来源：盖蒂图片社/Agencia Press South
 
-欧盟再次就阿富汗移民问题进行谈判。 在欧洲地中海国家会议上，希腊警告新难民流动的后果。 雅典再次担心土耳其的勒索企图。
+当格兰德河上一座边境桥上的移民人数激增至一万多人时，德克萨斯州德尔里奥市市长向美国政府求助，边境城镇的情况很糟糕。
 
-希腊担心来自阿富汗的新难民运动的政治影响。希腊总理米佐塔基斯周五警告说，不要“利用移民流动及其工具来实现其他目标”。 这是对土耳其的明确指责和警告。
+据知情人士透露，美国总统乔·拜登政府希望派出飞机将海地的移民送回祖国。一位熟悉该项目的人士周五（当地时间）告诉美联社，9月19日每天可能会有五到八趟航班送移民。 所有移民都将接受冠状病毒检测。
 
-[https://www.welt.de/politik/ausland/plus233876882/EU-Mittelmeerstaaten-Athen-warnt-vor-tuerkischen-Erpressungsversuchen.html](https://www.welt.de/politik/ausland/plus233876882/EU-Mittelmeerstaaten-Athen-warnt-vor-tuerkischen-Erpressungsversuchen.html)
+将移民大规模运出是政府对德克萨斯州德尔里奥一座桥附近数千移民的回应。这些移民是从墨西哥边境来到美国的。周五，该市市长布鲁诺·洛萨诺 (Bruno Lozano) 表示，本周初仍有大约 2000 人越过里奥格兰德河与墨西哥的边界。他们中的多数来自海地。
+
+洛萨诺宣布进入紧急状态并关闭了桥梁。一场人道灾难正在逼近。德克萨斯论坛报的市长说：“有些妇女会生孩子，有些人会因为高温而晕倒，她们有点咄咄逼人，在炎热的天气里待了这么多天，出现各种状况是很正常的。”
+
+[https://www.welt.de/politik/ausland/article233876094/Migrationskrise-in-Texas-US-Regierung-will-Haitianer-abschieben.html](https://www.welt.de/politik/ausland/article233876094/Migrationskrise-in-Texas-US-Regierung-will-Haitianer-abschieben.html)
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 
