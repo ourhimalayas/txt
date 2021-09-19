@@ -25,8 +25,8 @@
 ### [文·贵天成——文贵先生谈“恒大许家印”（一）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年9月18日 文贵先生盖特 18](/content/gnews/5/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [中国在海外存的20万亿去向何方](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [教授们强迫健康学生接种疫苗（1/2）(第一部分)](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -58,40 +58,40 @@
 ### [比尔.盖茨用疫苗控制人口的想法2010年就有](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|国安法影响下香港教师现离职潮](/content/gnews/16/README.md)
+### [奥布莱恩主张“豪猪防御策略”阻止中共入侵台湾](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [妮琪·米娜因质疑新冠疫苗的安全性而被推特噤声](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [《爆料革命》](/content/gnews/17/README.md)
+### [宁南时事脱口秀](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国在海外存的20万亿去向何方](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [有声|国安法影响下香港教师现离职潮](/content/gnews/20/README.md)
+ ` MOSREC`
 
-### [短视频：抗议强制疫苗接种，建筑工人阻塞街道](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [和中共与虎谋皮赚取的财富终会被其洗劫一空](/content/gnews/20/README.md)
+### [《爆料革命》](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [心、脑梗异常增多，证明疫苗危害远超CCP病毒](/content/gnews/21/README.md)
- ` 澳喜农场`
-
-### [中共申请加入CPTTP 遭澳洲贸易部长呛声!](/content/gnews/22/README.md)
+### [全球超200个城市联合发起 “为自由” 集会](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：伦敦数千人抗议强制接种疫苗护照和青少年接种疫苗](/content/gnews/23/README.md)
+### [中共申请加入CPTTP 遭澳洲贸易部长呛声!](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：伦敦数千人抗议强制接种疫苗护照和青少年接种疫苗](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [从25万到7千! 香港登记选民人数下跌97%](/content/gnews/24/README.md)
+### [从25万到7千! 香港登记选民人数下跌97%](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [“爱国者治澳”下产生新立法会 澳门民主前景黯淡](/content/gnews/25/README.md)
+### [“爱国者治澳”下产生新立法会 澳门民主前景黯淡](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [保卫台湾 反制中共 , 是美国国防战略的重中之重!](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [四方安全对话机制新议题：确保半导体供应链的安全](/content/gnews/27/README.md)
+### [保卫台湾 反制中共 , 是美国国防战略的重中之重!](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
 ### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/28/README.md)
@@ -142,36 +142,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/43/README.md)
  ` wenwu`
 
-### [人民币就是中共的“假字画”](/content/gnews/44/README.md)
+### [高端芯片，21世纪的石油](/content/gnews/44/README.md)
+ ` 纽约香草山MOS03`
+
+### [CCP百年百罪 第十八集（74 – 76罪）](/content/gnews/45/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [人民币就是中共的“假字画”](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：新能源汽车下乡，是否是2008年家电下乡的重演？](/content/gnews/45/README.md)
+### [四方安全对话机制新议题：确保半导体供应链的安全](/content/gnews/47/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：新能源汽车下乡，是否是2008年家电下乡的重演？](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（5）](/content/gnews/46/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（5）](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马克·扎克伯格的“反疫苗”立场违反了他自己平台的新政策](/content/gnews/47/README.md)
+### [2021年9月18日 文贵先生盖特 18](/content/gnews/50/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [马克·扎克伯格的“反疫苗”立场违反了他自己平台的新政策](/content/gnews/51/README.md)
  ` 首尔天池农场`
 
-### [2021年9月18日 文贵先生盖特 17](/content/gnews/48/README.md)
+### [2021年9月18日 文贵先生盖特 17](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月18日 文贵先生盖特 16](/content/gnews/49/README.md)
+### [2021年9月18日 文贵先生盖特 16](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [墙内疫苗心情日记（十七）](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年9月18日 文贵先生盖特 15](/content/gnews/51/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [媒体的不作为可能使不明真相的科研人员去做无用功！](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [马斯克SpaceX龙飞船首次商业太空之旅](/content/gnews/53/README.md)
- ` 墨尔本雅典娜农场`
-
-### [国际要闻汇编](/content/gnews/54/README.md)
+### [墙内疫苗心情日记（十七）](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 

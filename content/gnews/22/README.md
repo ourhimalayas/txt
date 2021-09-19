@@ -2,30 +2,31 @@
 ---
 
 
-## 中共申请加入CPTTP 遭澳洲贸易部长呛声!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542356/)
+## 全球超200个城市联合发起 “为自由” 集会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542573/)
 
-栏目记者/责任编辑：文小白
+栏目记者: 格格
+责任编辑：文真
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-239.png)
+9月18日，全球40多个国家的200多个城市联合发起 “为自由” 集会，来自世界不同国家、不同信仰的民众集合起来，为基本人权，为受宪法保护的自由，为结束因新冠病毒导致的强制措施，进行示威。
 
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-31.jpeg)
 
+这次世界范围内的联合集会行动，是由当地居民自发组织的、无关党派和政治的和平示威。示威活动将围绕新冠大流行病的主题，如强制接种疫苗、推行疫苗护照、无视医疗选择和健康自由等而进行。
 
+当各国政府正在有目的、有计划地借由新冠疫情，强制实施各种专制措施，一场国际自由运动也在世界各地蓬勃兴起。尽管新冠疫情带来了巨大的威胁，但是政府借此实施的强制措施，是经过包装的专制主义集权，是对人权的剥夺。纵观历史，人类在困难时期屡次经受死亡的考验，但最终，自由总会胜利。
 
-澳大利亚贸易部长唐 特翰（Dan Tehan）9月17日表示，除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，否则澳大利亚将反对中共国加入全球最大自由贸易区**CPTPP**的申请。
+（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-19-at-8.21.54-PM.png)
+参考链接: [World Wide Demonstration](https://worldwidedemonstration.com)
+ [今天，成千上萬澳大利亞墨爾本民眾在“自由抗議”中衝破警察防線。](https://gettr.com/post/pbh6sxf5a2)
+ [瑞士人民晚上包圍國會，警察出催淚煙驅散抗爭者。 沒有人想到瑞士抗爭，升級比法國還要快！](https://gettr.com/post/pbeja9be60)
+ [台灣民眾上街](https://gettr.com/post/pbgv7t3e76)
 
-《跨太平洋伙伴全面与进步协定》简称**CPTPP**，其前身为《跨太平洋伙伴关系协定》也就是**TPP**，是由亚太经济合作会议成员发起，旨在促进亚太区的贸易自由化。2017年1月美国前总统川普以该协议损害美国制造业为由，退出了 **TPP**。随后在日本等国推动下，TPP同年11月11日改名为**CPTPP**。日本、加拿大、澳大利亚、新西兰、马来西亚、新加坡、越南、汶莱、墨西哥、智利以及秘鲁11个国家，于2018年3月签署该协定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-2021年9月16日,中共商务部长王文涛向**CPTPP**提交申请加入的官方信函。中国要加入该协定，需要所有成员国确信中共能够遵守现有的贸易协议 及兑现对世界贸易组织的承诺。澳大利亚贸易部长唐 特翰的这一表态，表明中共的这一申请企图将很难实现 。
-(本文仅代表作者观点)
-
-参考连接：[澳大利亚要求中国取消报复性贸易关税 否则免谈加入CPTTP](https://www.voachinese.com/a/Australia-opposes-China-s-bid-to-join-trade-pact-CPTTP-20210918/6234035.html)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,7 +34,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0

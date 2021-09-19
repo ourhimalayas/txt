@@ -2,29 +2,38 @@
 ---
 
 
-## 秘翻在线：伦敦数千人抗议强制接种疫苗护照和青少年接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1542429/)
+## 中共申请加入CPTTP 遭澳洲贸易部长呛声!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542356/)
 
-采集编译：极寒将至
+栏目记者/责任编辑：文小白
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/11-17.png)图片来源：卫报
-来自英国每日邮报的消息，周六，数千名示威者在英国伦敦举行抗议游行活动，抗议强制接种疫苗护照和青少年接种疫苗。 他们抵达唐宁街，高呼“逮捕鲍里斯·约翰逊（Boris.Johnson)和克里斯·惠蒂 (Chris.Whitty英格兰首席医疗官)”，呼吁政府取消向儿童提供新冠疫苗的计划。
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 
-抗议者举着写有“远离我们的孩子”、“我不是实验者”的标语，一个小男孩拿着一张卡片，上面写着“别管我们，我是孩子，我不能同意”。因为在上周，学校为 12 至 15 岁的儿童推出了疫苗接种计划，疫苗接种将于周三开始。
 
-该活动是作为全球自由集会的一部分举行的，这是一项全球范围的努力，旨在“谴责与新冠病毒相关的政策以及对行动自由的限制”，在英国其他城市（包括曼彻斯特等）也举行了抗议游行。
 
-英国卫生部负责人今天发布了 30,144 例新病例，比上周六记录的 29,547 例增加了 2%。确诊后 28 天内死亡的人数也增加了 5.1%，达到 164 人，高于上周的 156 人。
+澳大利亚贸易部长唐 特翰（Dan Tehan）9月17日表示，除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，否则澳大利亚将反对中共国加入全球最大自由贸易区**CPTPP**的申请。
 
-在疫苗接种方面，NHS（国民保健署）工作人员和志愿者昨天共接种了 19,605 剂第一剂疫苗，使英国国部分接种疫苗的总人数达到 4,850 万人，占成年人口的 89.3%。同时接种了大约 59,032 剂第二剂疫苗，使完全接种的人口达到 4,440 万（81.6%）。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-19-at-8.21.54-PM.png)
 
-疫苗接种和免疫联合委员会 (JCVI) 成员亚当.芬恩（Adam Finn）教授表示，科学家们没有“太多奢侈”的时间来研究疫苗对儿童的可能风险，通常会在向青少年推荐使用它们之前收集更多证据。他还呼吁 NHS 阐明疫苗对儿童的潜在长期后果，警告儿童在没有适当讨论潜在风险的情况下接种疫苗可能会破坏未来的接种并加剧反疫苗的怀疑态度。
+《跨太平洋伙伴全面与进步协定》简称**CPTPP**，其前身为《跨太平洋伙伴关系协定》也就是**TPP**，是由亚太经济合作会议成员发起，旨在促进亚太区的贸易自由化。2017年1月美国前总统川普以该协议损害美国制造业为由，退出了 **TPP**。随后在日本等国推动下，TPP同年11月11日改名为**CPTPP**。日本、加拿大、澳大利亚、新西兰、马来西亚、新加坡、越南、汶莱、墨西哥、智利以及秘鲁11个国家，于2018年3月签署该协定。
 
-因此，父母有理由在让孩子接种疫苗之前等待三到六个月以获得更多关于可能的长期影响的证据，芬恩说，并称推迟决定是“完全合法的”。
+2021年9月16日,中共商务部长王文涛向**CPTPP**提交申请加入的官方信函。中国要加入该协定，需要所有成员国确信中共能够遵守现有的贸易协议 及兑现对世界贸易组织的承诺。澳大利亚贸易部长唐 特翰的这一表态，表明中共的这一申请企图将很难实现 。
+(本文仅代表作者观点)
 
-但本周早些时候，英国四位首席医疗官“一致批准”了向青少年提供接种疫苗的决定。 尽管近90%的英国人接种了新冠疫苗，但是感染率和死亡率依旧节节攀升，可见疫苗并未起到实质性的保护作用，然而即便如此，政府官员还是试图推广未成年人接种疫苗，难怪英国人开始发起愤怒的反抗。
+参考连接：[澳大利亚要求中国取消报复性贸易关税 否则免谈加入CPTTP](https://www.voachinese.com/a/Australia-opposes-China-s-bid-to-join-trade-pact-CPTTP-20210918/6234035.html)
 
-[新闻来源](https://www.dailymail.co.uk/news/article-10004317/COVID-UK-Anti-vaxxers-march-London-protesting-government-plans-children-Covid-jab.html)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 0

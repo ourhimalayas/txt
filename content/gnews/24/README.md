@@ -2,34 +2,29 @@
 ---
 
 
-## 从25万到7千! 香港登记选民人数下跌97%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542361/)
+## 秘翻在线：伦敦数千人抗议强制接种疫苗护照和青少年接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1542429/)
 
-栏目记者/责任编辑：飞虹
+采集编译：极寒将至
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/11-17.png)图片来源：卫报
+来自英国每日邮报的消息，周六，数千名示威者在英国伦敦举行抗议游行活动，抗议强制接种疫苗护照和青少年接种疫苗。 他们抵达唐宁街，高呼“逮捕鲍里斯·约翰逊（Boris.Johnson)和克里斯·惠蒂 (Chris.Whitty英格兰首席医疗官)”，呼吁政府取消向儿童提供新冠疫苗的计划。
 
+抗议者举着写有“远离我们的孩子”、“我不是实验者”的标语，一个小男孩拿着一张卡片，上面写着“别管我们，我是孩子，我不能同意”。因为在上周，学校为 12 至 15 岁的儿童推出了疫苗接种计划，疫苗接种将于周三开始。
 
+该活动是作为全球自由集会的一部分举行的，这是一项全球范围的努力，旨在“谴责与新冠病毒相关的政策以及对行动自由的限制”，在英国其他城市（包括曼彻斯特等）也举行了抗议游行。
 
-9月19日，香港选举委员会界别分组选举 开始投票，这是今年3月底中共全国人大常委会大幅修改香港选举制度之后的第一场选举投票。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P2，4.001.jpeg)
-新选举制度下的选举委员会，由过去的工商、金融、基层劳工、宗教、立法会议员、地区组织代表等，增加了“人大、政协委员及全国性团体香港成员代表界”，席位也由上届的1,200席增加至1,500席。成员席位及界别有所增加，但是选民总人数却大幅倒退，港府选委会公布的临时投票登记册显示，全港登记选民仅有近7,900名，较选举制度修改前的近25万名选民，竟然下跌了97%之多!
+英国卫生部负责人今天发布了 30,144 例新病例，比上周六记录的 29,547 例增加了 2%。确诊后 28 天内死亡的人数也增加了 5.1%，达到 164 人，高于上周的 156 人。
 
-而事实上在修改选举规则及各种操控之下，1500个席位中超过1000个席位已经内定自动当选，最终只有364个席位需要由所谓的选举产生。且民主派人士不惧威胁，不为中共充门面唱赞歌，几乎无人参选。数据和证据都表明，香港已彻底沦为中共治下”内地”城市，而香港人通过议会参与本地政治事务已没有任何可能，甚至已没有任何的兴趣再与虎谋皮。
-(本文仅代表作者观点)
+在疫苗接种方面，NHS（国民保健署）工作人员和志愿者昨天共接种了 19,605 剂第一剂疫苗，使英国国部分接种疫苗的总人数达到 4,850 万人，占成年人口的 89.3%。同时接种了大约 59,032 剂第二剂疫苗，使完全接种的人口达到 4,440 万（81.6%）。
 
-参考链接：[香港民调：市民对未来各项选举关注度低 年轻人对议会路线已没想像](https://www.voachinese.com/a/hong-kong-survey-preview-on-election-committee-subsector-elections-20210917/6233091.html)
+疫苗接种和免疫联合委员会 (JCVI) 成员亚当.芬恩（Adam Finn）教授表示，科学家们没有“太多奢侈”的时间来研究疫苗对儿童的可能风险，通常会在向青少年推荐使用它们之前收集更多证据。他还呼吁 NHS 阐明疫苗对儿童的潜在长期后果，警告儿童在没有适当讨论潜在风险的情况下接种疫苗可能会破坏未来的接种并加剧反疫苗的怀疑态度。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+因此，父母有理由在让孩子接种疫苗之前等待三到六个月以获得更多关于可能的长期影响的证据，芬恩说，并称推迟决定是“完全合法的”。
 
-终审：文龙
-校正/发稿：我不在这里
+但本周早些时候，英国四位首席医疗官“一致批准”了向青少年提供接种疫苗的决定。 尽管近90%的英国人接种了新冠疫苗，但是感染率和死亡率依旧节节攀升，可见疫苗并未起到实质性的保护作用，然而即便如此，政府官员还是试图推广未成年人接种疫苗，难怪英国人开始发起愤怒的反抗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[新闻来源](https://www.dailymail.co.uk/news/article-10004317/COVID-UK-Anti-vaxxers-march-London-protesting-government-plans-children-Covid-jab.html)
+
 0
