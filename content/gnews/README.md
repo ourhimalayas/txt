@@ -58,22 +58,22 @@
 ### [比尔.盖茨用疫苗控制人口的想法2010年就有](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声| 论天国的仇敌：新中国联邦人的末世观](/content/gnews/16/README.md)
+### [萨尔瓦多政府给国民提供的新冠病毒医药包](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声| 论天国的仇敌：新中国联邦人的末世观](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [9/12郭文贵直播：比特币就是少数人用来洗钱的工具！（粤语配音）](/content/gnews/17/README.md)
+### [9/12郭文贵直播：比特币就是少数人用来洗钱的工具！（粤语配音）](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/11郭文贵盖特：平安集团、马明哲威胁起诉爆料革命战友（粤语配音）](/content/gnews/18/README.md)
+### [9/11郭文贵盖特：平安集团、马明哲威胁起诉爆料革命战友（粤语配音）](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/11 郭文贵盖特：某国元首全家打了中共疫苗，但他现在真的害怕（粤语配音）](/content/gnews/19/README.md)
+### [9/11 郭文贵盖特：某国元首全家打了中共疫苗，但他现在真的害怕（粤语配音）](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/10郭文贵直播：习被奥巴马羞辱后和俄罗斯普京一拍即合（粤语配音）](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/7郭文贵直播：黑天鹅事件迫使习取消攻台2号计划（粤语配音）](/content/gnews/21/README.md)
+### [9/10郭文贵直播：习被奥巴马羞辱后和俄罗斯普京一拍即合（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线：印度竞争委员会即将定性谷歌滥用其安卓系统的主导地位](/content/gnews/22/README.md)
@@ -94,29 +94,29 @@
 ### [美英澳安全结盟能给美国带来安全吗？](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国推出：川普治疗中共病毒的同款药物](/content/gnews/28/README.md)
+### [银河快讯：河野的支持率名列前茅；日本外相向英澳外长表态欢迎AUKUS](/content/gnews/28/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [英国推出：川普治疗中共病毒的同款药物](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第056期](/content/gnews/29/README.md)
+### [雅典娜时报-第056期](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [东京四年来首次爆发肠道出血性大肠杆菌感染案例](/content/gnews/30/README.md)
+### [东京四年来首次爆发肠道出血性大肠杆菌感染案例](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/31/README.md)
+### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [FDA顾问委员会拒绝为16-65岁人群注射辉瑞疫苗加强针](/content/gnews/32/README.md)
+### [FDA顾问委员会拒绝为16-65岁人群注射辉瑞疫苗加强针](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/33/README.md)
+### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新州24小时内死亡病例数再创纪录](/content/gnews/34/README.md)
+### [新州24小时内死亡病例数再创纪录](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
-
-### [万锦每天超20起罪案，特鲁多上任后犯罪率急升！](/content/gnews/35/README.md)
- ` 丁过`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -142,36 +142,36 @@
 ### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/43/README.md)
  ` wenwu`
 
-### [城管发文“我不打老人”是时代的悲哀-中国城管续篇](/content/gnews/44/README.md)
+### [习近平“共同富裕”论吓走投资者 方星海急晤华尔街游说](/content/gnews/44/README.md)
+ ` G&#124;News TAIWAN`
+
+### [城管发文“我不打老人”是时代的悲哀-中国城管续篇](/content/gnews/45/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【战友观点】聊聊为什么我们不能放弃Youtube的战场](/content/gnews/45/README.md)
+### [【战友观点】聊聊为什么我们不能放弃Youtube的战场](/content/gnews/46/README.md)
  ` 温哥华扬帆农场`
 
-### [【战友观点】盖特，冲破国际黑暗媒体横空出世的社交媒体平台](/content/gnews/46/README.md)
+### [【战友观点】盖特，冲破国际黑暗媒体横空出世的社交媒体平台](/content/gnews/47/README.md)
  ` 温哥华扬帆农场`
 
-### [樱花灭共诗——港共选举表演失败](/content/gnews/47/README.md)
+### [樱花灭共诗——港共选举表演失败](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [嘴脸](/content/gnews/48/README.md)
+### [嘴脸](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [媒体真相往往显得隐晦、短暂和渺小](/content/gnews/49/README.md)
+### [媒体真相往往显得隐晦、短暂和渺小](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三大“异描”制药公司纷纷改名，但“异描”成分不变](/content/gnews/50/README.md)
+### [三大“异描”制药公司纷纷改名，但“异描”成分不变](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [媒体误导何时休？](/content/gnews/51/README.md)
+### [媒体误导何时休？](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](/content/gnews/52/README.md)
+### [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：中共战狼为打压大型科技公司狡辩](/content/gnews/53/README.md)
+### [秘翻在线：中共战狼为打压大型科技公司狡辩](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [第二季度全球债务升至近300万亿美元 创历史新高](/content/gnews/54/README.md)
- ` GTV新闻访谈`
 

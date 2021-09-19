@@ -2,49 +2,42 @@
 ---
 
 
-## 有声| 论天国的仇敌：新中国联邦人的末世观
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1541585/)
+## 萨尔瓦多政府给国民提供的新冠病毒医药包
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1541976/)
 
-配音：香草山福音部-Daxia
+2021年9月19日
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**简评：**
 
+萨尔瓦多政府免费提供给每一个新冠病毒的患者和家属，以及新冠病毒的高发区的居民一个医药包，里面有各种退烧药、维生素补充剂，以及抗病毒药物，还有使用说明书。萨尔瓦多政府没那么官僚，他们给国民提供了很多其他国家都在使用的治疗方案。
 
-
-
-
-
-
-- **我的　神啊，我素来倚靠你。求你不要叫我羞愧，不要叫我的仇敌向我夸胜（诗25:2）。**
-
-
-人类从未发生过像今天这样恍若末世的悲剧——COVID-19生物基因战和疫苗暴政的全球化导致世界上451万人死亡（截止9月1日），并且每时每刻都有人因病毒和疫苗死去。
-
-而这一切的始作俑者就是中国共产党。
-
-这些事的发生将会影响人类未来一千年，甚至世界的末了。
+[GTV视频链接](https://gtv.org/video/id=6144a105784c5a2583579e9c)
 
 
 
-**文字版原文：[论天国的仇敌：新中国联邦人的末世观](https://gnews.org/zh-hans/1503478/)**
+**视频字幕：**
+
+晚上好，我们现在在萨尔瓦多。我想告诉你们，我发现了这个惊人的药物包。这个药物包提供给每一个患有新冠病毒的病人和家属，以及新冠病毒的高发地区，这是由萨尔瓦多政府免费提供的。
+
+让我们来看看这个神奇的袋子里有些什么东西？这是解热镇痛药，对乙酰氨基酚500mg，维生素C500毫克，2000国际单位的维生素D3，锌50毫克，阿斯匹林100 毫克。还有对抗病毒最重要的药物— 伊维菌素 6mg，药物包里有如何使用的说明书。
+
+恭喜萨尔瓦多人！萨尔瓦多政府比美国政府要聪明很多，没那么官僚。因为他们给国民提供了这种，如日本等很多其他国家都在使用的治疗方案。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕/听写：云岭 | 翻译：clau| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
 
 
-*音频处理：喜山必胜Maverick
-发稿：雪梨*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-**更多资讯，更多关注**
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

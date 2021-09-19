@@ -2,22 +2,43 @@
 ---
 
 
-## 秘翻在线：中共战狼为打压大型科技公司狡辩
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1541707/)
+## 涉嫌内幕交易和市场操纵 美国扩大对币安的审查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541594/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-103.jpg)图片来源：网络截图
-据彭博社9月19日报道，周四，中共国最高监管机构与华尔街高管举行三个小时的金融圆桌会议，包括中共国人民银行行长，以及高盛集团、堡垒集团和其他华尔街实力雄厚的企业的高管。会议上中共为其扰乱市场、对各行业的打击辩护，并“保证”更严格的规则不是为了扼杀科技公司或私营部门。
+栏目记者/责任编辑：一花一世界
 
-中国证监会副主席方星海在会议上表示，最近的行动是为了加强对拥有面向消费者的平台的公司的监管，并改善数据隐私和国家安全。针对教育和游戏行业的行动的目的是减少社会焦虑。
 
-北京针对其最大的科技公司和其他行业的监管攻势，以及习近平主席推动的“共同繁荣”，让全球投资者感到不安，华尔街面临着数十亿美元的潜在利润损失。
 
-中共政府的监管运动已从其股票市场中抹去了1.5万亿美元。腾讯上周落榜从按市值计算的世界10大公司，致使自2017年以来首次没有中共国股票上榜。阿里巴巴的股票今年已下跌超过30%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
 
-中共国务院在7月表示，将修订海外上市的规则，并对在离岸市场交易的公司进行更多的监管。对中共国科技公司为寻求海外上市而普遍打法律擦边球的行为将进行更严格的审查。所有这些都增加了投资者对世界上两个最大经济体之间更深的金融脱钩的担忧。
 
-新闻来源：[China Defends Tech Crackdown in Meeting With Wall Street Chiefs](https://www.bloomberg.com/news/articles/2021-09-18/china-defends-tech-crackdown-in-meeting-with-wall-street-chiefs)
+
+9月17日彭博社报道：美国当局正在扩大对币安的调查，审查可能的内幕交易和市场操纵，该迹象表明针对这一全球最大加密货币交易所的审查正在逐步加强。据悉，美国官员一直在调查币安及其员工，是否乘职务之便利用顾客而获利。调查人员最近几周在接触潜在的证人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/涉嫌内幕交易和市场操纵-美国扩大对币安的审查.jpg)
+币安并不基于任何国家，却运营着庞大的百万笔交易业务，日常客户可在监督之外买卖价值几百亿美元的数字代币。美国当局质疑该公司违规使用相应权限。越来越多的国家要求该公司及其附属机构停止在其境内提供服务，声称他们缺乏适当的许可证：今年7月份，币安在新加坡、泰国和开满群岛也受到当局审查。据彭博社报道，在美国，司法部和国税局已经就币安是否成为洗钱和逃税的渠道展开了刑事调查。
+
+美国商品期货交易委员会（CFTC）在芝加哥对币安的调查的内容包括：币安是否让美国居民交易与比特币和其他虚拟代币相关的衍生品。关于币安试图允许美国顾客在其平台注册，委员会成员表明，已经寻求其他联邦机构分享币安的内部数据和通信。币安没有在美国当局注册，这意味着它应该禁止受美国监管的衍生品。
+
+华盛顿对加密货币的快速增长感到震惊，财政部、美联储和证券交易委员会等机构，都越来越担心加密货币市场成为非法活动的温床。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](https://www.bloomberg.com/news/articles/2021-09-17/u-s-s-binance-probe-expands-to-examine-possible-insider-trading)
+2. [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](https://fortune.com/2021/09/17/binance-probe-examine-possible-insider-trading/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
+
+终审编辑：暗黑
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
 
 0

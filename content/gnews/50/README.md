@@ -2,43 +2,15 @@
 ---
 
 
-## 三大“异描”制药公司纷纷改名，但“异描”成分不变
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1541595/)
+## 媒体真相往往显得隐晦、短暂和渺小
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1541820/)
 
-栏目记者/责任编辑：正义的小新
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2021/09/768.png)
+我相信很多人都买过保险类的产品。签约的时候，展现在我们眼前都是写得大大的好处与益处，而关于理赔的条款却是那最不起眼的小字部分，包括注意事项、理赔要领和范围。这些“小字”最关键但却往往是我们最容易忽略的地方。所以你会发现许多商品都是这样，吸引你的都是好处，而弊端藏在最小的字里行间。 这样的手法也同样被用到新闻和报纸上。对于中共病毒疫苗，许多媒体把功效作用夸大其词说得具体，且时间也长，而对同样重要的疫苗危害，却是一带而过，所以普通民众是难以发现暗藏其中的危险与重点的。可见，媒体常把敏感重要的信息隐藏以短暂和渺小的形式淹没在一片虚假之中。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-229.png)
-
-
-
-据beckernews报道，继辉瑞 / BioNTech 将其“完全授权”的疫苗称为“Comirnaty”之后，欧洲和加拿大的第二和第三大制造商 Moderna 和阿斯利康也正在重新命名他们的新冠疫苗。加拿大卫生部本周四发布一条推文，称“辉瑞-BioNTech 疫苗是 Comirnaty，Moderna 疫苗将被命名为 SpikeVax，而阿斯利康疫苗将被命名为 Vaxzevria，” 加拿大卫生部强调，“这些只是更名。疫苗本身没有变化。”
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/三大异描制药公司纷纷改名，但异描成分不变.jpg)
-
-
-尽管辉瑞拥有所谓“完全授权”的疫苗，但辉瑞承认，现在市场上的辉瑞疫苗，仍然是最初根据美国紧急使用授权和加拿大临时订单授权生产的疫苗。辉瑞称“BioNTech COVID-19 疫苗的配方与 COMIRNATY 的配方相同，可以互换。鉴于当前持续的疫情，稍后将逐步过渡到使用‘所谓’ COMIRNATY 品牌名称的新标签。”也就是说，辉瑞等疫苗公司，重新命名其疫苗、并取得所谓“完全授权”，但给人们注射的疫苗却仍然是仅有紧急授权、没有被完全授权的疫苗。
-
-挂羊头卖狗肉，换汤不换药，借换名获得“完全授权”，疫苗公司可以逃避所有的责任及法律诉讼，政府也可强制民众注射毒疫苗。更可怕的是，主流媒体只字不提，全世界的政府置若罔闻，所谓医学权威专家也全体失声。世界已经到了前所未有的至暗时刻，尚未觉醒的人们也会为其愚蠢、贪婪、无知付出难以想象的代价。
-
-（本文仅代表作者观点）
-
-参考消息：[三大“异描”制药公司纷纷改名，但“异描”成分不变](https://beckernews.com/all-3-major-vaccine-companies-suddenly-have-name-changes-for-their-covid-shots-and-people-are-already-confused-41507/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-232.png)
-
+（文章仅代表作者个人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
 0
