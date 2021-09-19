@@ -19,23 +19,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/3/README.md)
+### [2021年9月18日 文贵先生盖特 2](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [七哥说— 第3期](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年9月18日 文贵先生盖特 1](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [为什么疫苗接种率高的地区病例率呈爆炸式增长？](/content/gnews/6/README.md)
+ ` wenwu`
+
+### [秘翻在线：南佛罗里达州将继续推进疫苗注射](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月17日 新中国联邦庆贺马丁·班农先生百岁生日快乐！](/content/gnews/4/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [州长接受疫苗制造商数千万美元来推动强制疫苗政策](/content/gnews/5/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：南佛罗里达州将继续推进疫苗注射](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫苗伤害和杀死的青少年，超过所有其他疫苗的总和](/content/gnews/7/README.md)
+### [疫苗伤害和杀死的青少年，超过所有其他疫苗的总和](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
-
-### [【农场动态】温哥华战友参加9月18日反强制疫苗全球联动大游行](/content/gnews/8/README.md)
- ` 温哥华扬帆农场`
 
 ### [共和党参议员要求NIH提供有关删除COVID-19数据的解答](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -94,28 +94,28 @@
 ### [美英澳安全结盟能给美国带来安全吗？](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/28/README.md)
- ` wenwu`
-
-### [银河快讯：河野的支持率名列前茅；日本外相向英澳外长表态欢迎AUKUS](/content/gnews/29/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [英国推出：川普治疗中共病毒的同款药物](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [雅典娜时报-第056期](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [东京四年来首次爆发肠道出血性大肠杆菌感染案例](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/33/README.md)
+### [DC大中华时事： 中共东部战区在台岛西南海空域实施联合警巡和实战化演练](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [FDA顾问委员会拒绝为16-65岁人群注射辉瑞疫苗加强针](/content/gnews/34/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/29/README.md)
+ ` wenwu`
+
+### [银河快讯：河野的支持率名列前茅；日本外相向英澳外长表态欢迎AUKUS](/content/gnews/30/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [【农场动态】温哥华战友参加9月18日反强制疫苗全球联动大游行](/content/gnews/31/README.md)
+ ` 温哥华扬帆农场`
+
+### [英国推出：川普治疗中共病毒的同款药物](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/35/README.md)
+### [雅典娜时报-第056期](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [东京四年来首次爆发肠道出血性大肠杆菌感染案例](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
@@ -142,36 +142,36 @@
 ### [萨尔瓦多采用比特币可能会掏空其美元储备](/content/gnews/43/README.md)
  ` wenwu`
 
-### [习近平“共同富裕”论吓走投资者 方星海急晤华尔街游说](/content/gnews/44/README.md)
+### [美中可能的战争对新西兰意味着什么](/content/gnews/44/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [2021年9月17日 文贵先生盖特 2](/content/gnews/45/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月17日 文贵先生盖特 1](/content/gnews/46/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [习近平“共同富裕”论吓走投资者 方星海急晤华尔街游说](/content/gnews/47/README.md)
  ` G&#124;News TAIWAN`
 
-### [城管发文“我不打老人”是时代的悲哀-中国城管续篇](/content/gnews/45/README.md)
+### [文贵视角： 恒大事件是经济冠状病毒，会把整个中国和世界经济置入灾难](/content/gnews/48/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [城管发文“我不打老人”是时代的悲哀-中国城管续篇](/content/gnews/49/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【战友观点】聊聊为什么我们不能放弃Youtube的战场](/content/gnews/46/README.md)
+### [2021年9月17日 新中国联邦庆贺马丁·班农先生百岁生日快乐！](/content/gnews/50/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [【战友观点】聊聊为什么我们不能放弃Youtube的战场](/content/gnews/51/README.md)
  ` 温哥华扬帆农场`
 
-### [【战友观点】盖特，冲破国际黑暗媒体横空出世的社交媒体平台](/content/gnews/47/README.md)
+### [【战友观点】盖特，冲破国际黑暗媒体横空出世的社交媒体平台](/content/gnews/52/README.md)
  ` 温哥华扬帆农场`
 
-### [樱花灭共诗——港共选举表演失败](/content/gnews/48/README.md)
+### [樱花灭共诗——港共选举表演失败](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [嘴脸](/content/gnews/49/README.md)
+### [嘴脸](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [媒体真相往往显得隐晦、短暂和渺小](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [三大“异描”制药公司纷纷改名，但“异描”成分不变](/content/gnews/51/README.md)
- ` GTV新闻访谈`
-
-### [媒体误导何时休？](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [涉嫌内幕交易和市场操纵 美国扩大对币安的审查](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：中共战狼为打压大型科技公司狡辩](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
 
