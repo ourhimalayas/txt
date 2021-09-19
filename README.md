@@ -28,14 +28,14 @@
 ### [州长接受疫苗制造商数千万美元来推动强制疫苗政策](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [疫苗伤害和杀死的青少年，超过所有其他疫苗的总和](/content/gnews/6/README.md)
+### [秘翻在线：南佛罗里达州将继续推进疫苗注射](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫苗伤害和杀死的青少年，超过所有其他疫苗的总和](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【农场动态】温哥华战友参加9月18日反强制疫苗全球联动大游行](/content/gnews/7/README.md)
+### [【农场动态】温哥华战友参加9月18日反强制疫苗全球联动大游行](/content/gnews/8/README.md)
  ` 温哥华扬帆农场`
-
-### [完全接种疫苗感染Delta死亡率比未接种的高出八倍](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [共和党参议员要求NIH提供有关删除COVID-19数据的解答](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -58,23 +58,23 @@
 ### [比尔.盖茨用疫苗控制人口的想法2010年就有](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [萨尔瓦多政府给国民提供的新冠病毒医药包](/content/gnews/16/README.md)
+### [和中共与虎谋皮赚取的财富终会被其洗劫一空](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [心、脑梗异常增多，证明疫苗危害远超CCP病毒](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [美国政府的软弱无能助长了中共的嚣张气焰](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [抗体依赖性增强会加剧疾病，中共疫苗就是生物武器](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [德国新冠病毒调查律师怒斥PCR测试假阳性伪造夸大疫情为的是推广疫苗](/content/gnews/20/README.md)
+ ` AUJenny`
+
+### [萨尔瓦多政府给国民提供的新冠病毒医药包](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声| 论天国的仇敌：新中国联邦人的末世观](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [9/12郭文贵直播：比特币就是少数人用来洗钱的工具！（粤语配音）](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/11郭文贵盖特：平安集团、马明哲威胁起诉爆料革命战友（粤语配音）](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/11 郭文贵盖特：某国元首全家打了中共疫苗，但他现在真的害怕（粤语配音）](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/10郭文贵直播：习被奥巴马羞辱后和俄罗斯普京一拍即合（粤语配音）](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线：印度竞争委员会即将定性谷歌滥用其安卓系统的主导地位](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
@@ -94,29 +94,29 @@
 ### [美英澳安全结盟能给美国带来安全吗？](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯：河野的支持率名列前茅；日本外相向英澳外长表态欢迎AUKUS](/content/gnews/28/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/28/README.md)
+ ` wenwu`
+
+### [银河快讯：河野的支持率名列前茅；日本外相向英澳外长表态欢迎AUKUS](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [英国推出：川普治疗中共病毒的同款药物](/content/gnews/29/README.md)
+### [英国推出：川普治疗中共病毒的同款药物](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第056期](/content/gnews/30/README.md)
+### [雅典娜时报-第056期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [东京四年来首次爆发肠道出血性大肠杆菌感染案例](/content/gnews/31/README.md)
+### [东京四年来首次爆发肠道出血性大肠杆菌感染案例](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/32/README.md)
+### [澳大利亚反封锁抗议者与警察发生冲突](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [FDA顾问委员会拒绝为16-65岁人群注射辉瑞疫苗加强针](/content/gnews/33/README.md)
+### [FDA顾问委员会拒绝为16-65岁人群注射辉瑞疫苗加强针](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/34/README.md)
+### [中共威胁加拿大若保守党当选将承担严重后果](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [新州24小时内死亡病例数再创纪录](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [秘翻在线：美国财政部制裁支持伊朗恐怖组织的港企和中共国公民](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
