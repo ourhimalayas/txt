@@ -2,10 +2,10 @@
 ---
 
 
-## 强制疫苗政策导致美国医护人员出现短缺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543745/)
+## 战友染病急需药，八方战友前支援
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543762/)
 
-栏目记者/责任编辑：火来
+栏目记者/责任编辑：正义的小新
 
 
 
@@ -15,10 +15,11 @@
 
 
 
-据美国OAN新闻网报道，目前美国全国各地的强制疫苗政策已经导致医护人员出现短缺。接下来几周内，纽约的医院和养老院员工将面临强制接种疫苗，否则他们将失去工作。汤姆森卫生医疗的CEO表示，强制疫苗政策将直接导致更多医疗岗位空缺，被迫离开的人，有很多都是具有丰富经验，并且服务社区多年的医务工作者，这是非常糟糕的。同时，德州的Brownfield医疗中心也面临同样的问题，如果医务人员继续大量流失，该中心可能将关闭。越来越多的医务工作者开始质疑强制疫苗政策。强制疫苗政策只会引起民众更强有力的反抗。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-56.jpg)
-参考链接： 
-[Hospital Staff Short Amid](https://www.oann.com/hospital-staff-short-amid-forced-vaccinations/)[Forced Vaccinations](https://www.reuters.com/world/asia-pacific/singapore-reports-1012-new-covid-19-cases-highest-since-april-last-year-2021-09-19/?taid=61476332ad296e0001f93a2a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+18日文贵先生在其盖特上写道，有身在希腊的战友，因感染中共病毒，紧急需药品的帮助。在得知此信息后，法国小皮匠、意大利的文科等几位战友迅速出发，开车几个小时后便将药送到了战友手里。文贵先生写道，这就是我们新中国联邦的力量和情怀，新中国联邦永远不会忘记这一切伟大的行动。19日，文贵先生再次强调：防止病毒感染、保护自己和家人的重要性。他说，在这个黑暗的时代，我们必须要具备一个强大的心理状态和一个有准备的心脏才能扛过去。文贵先生叮嘱各位战友，务必注意健康安全，一定要严肃认真的计划和对待，调整好自己的生活方式，让自己和家人安全健康的活下去，这才是最重要的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/444.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/5-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/4.1-8.jpg)
+参考链接：
+[郭先生盖特：9月18号：几个小时前，我们希腊的战友因患病紧急需要药品的帮助，法国小皮匠意大利的文科等……](https://gettr.com/post/pbi85xe923)
+[郭先生盖特：9月19号：七哥每天每时都能收到类似这样的信息，如果没有心理准备谁也受不了，这是黑暗的时代．](https://gettr.com/post/pbmusm6dea)
 
 （本文仅代表作者观点）
 

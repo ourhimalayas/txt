@@ -2,23 +2,28 @@
 ---
 
 
-## 秘翻在线：辉瑞公司被指控在疫苗合同要求上“勒索”巴西
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544073/)
+## 潜艇合同酿成外交危机, 核心源起布防中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544226/)
 
-#### 翻译/撰稿：zzballack
+采集记者/责编: 文龙
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+9月17日，由于澳大利亚政府决定放弃向法国订购数百亿美元的潜艇建造合同，并将改从美国获得核潜艇建造技术，导致法国政府震怒, 马克龙宣布召回驻美及驻澳大使。法国外长勒德里昂更表示，马克龙总统是在美澳做出“盟友与伙伴间不可接受的行为”后做此这决定的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.17.07-PM.png)
+澳大利亚广播公司周日报道，莫里森总理确认，他周三晚曾试图致电法国总统马克龙沟通，但结果未知。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-2-6.jpg)图片来源：U.S.News
-据《英国卫报》（The Guardian）9月10日报道，辉瑞公司被指控“勒索”巴西，因其在与巴西签署的1亿剂中共病毒疫苗合同中要求保护自己免受潜在的疫苗副作用带来的法律诉讼。
+这一迄今为止最为严重的欧美外交事件，其核心起因, 其实是由于美国、英国和澳大利亚在此前的15号，宣布建立一个三边安全合作关系组织AUKUS，按照这一伙伴关系, 主要将由美国提供相关技术，协助澳大利亚建造核动力潜艇。此举旨在针对在南海日益膨胀的中共海军力量。因为美国意识到在这一区域内，需要澳大利亚的介入和影响,而澳洲海军的潜艇，无论是技术还是数量，都远远落后于中共。
 
-巴西政府今年3月与辉瑞公司签署了价值10亿美元的疫苗合同，尽管他们事先对此提出了抱怨，但仍同意“就疫苗可能产生的任何副作用签署一份责任豁免书，这样辉瑞公司不会因疫苗产生的严重副作用而承担任何民事责任，而且是无限期的。”该合同还规定，如果出现与疫苗有关的任何合同纠纷，巴西将让位于美国法院，由后者处理纠纷。自20世纪80年代末以来，许多国家与大型制药公司之间的合同中普遍存在免于赔偿的规定。
+参考链接：[澳总理确认曾致电法总统 美法总统将通电话讨论外交危机](https://www.voachinese.com/a/scott-morrison-says-he-called-emmanuel-macron-before-pulling-out-of-french-submarine-contract20210919/6234779.html)
 
-该合同4月份在巴西卫生部的官方网站上被泄露，之前因与辉瑞公司的保密协议而未被公开。该合同不久后被删除，直到8月份一位法国律师才在推特上公布了该合同的有关信息。合同中写道：“买方在此同意让辉瑞公司、BioNTech公司以及他们的每一个附属机构免于由中共病毒疫苗引起的、产生的、与之相关的或由之产生的任何和所有诉讼、索赔、行动、要求、损失、损害、责任、和解、惩罚、罚款、费用和开支，并为其赔偿、辩护和使其免受伤害。“辉瑞还在合同中要求“任何情况下都不会受到或承担任何延迟交付的处罚”，“巴西同意在未经辉瑞公司事先书面同意的情况下，不在宣传稿、广告或任何其他出版物中使用辉瑞公司的名称、商号、服务标记、商标、商业外观或徽标”。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-英国的非盈利机构新闻调查局 (Bureau of Investigative Journalism)今年2月曾报道说，辉瑞公司要求巴西和阿根廷拿出主权资产作为保证赔偿的抵押品，以及用存入外国银行账户的钱创建一个担保基金。但辉瑞公司却说它没有干预“任何国家的外交、军事或文化方面的重要资产”。英国组织“现在的全球正义”（Global Justice Now）的阿蕾娜·伊万诺娃（Alena Ivanova）说：“辉瑞公司非常乐意看到其由公众资助研发的中共病毒疫苗赚了大钱，却不想承担疫苗带来的任何风险。这是制药公司再熟悉不过的举动，相较于保护公众，他们似乎对保护其利润更感兴趣。我们不能继续相信私有企业提供的救命药物，而且他们借其向主权国家勒索赎金。”
+校正/发稿：我不在这里
 
-辉瑞公司的拉丁美洲总裁卡洛斯·马利洛 (Carlos Murillo)说，赔偿条款在110多个国家都有实施，并拒绝了该公司有剥削行为的说法。辉瑞公司发言人莎朗·卡斯蒂略（Sharon Castillo）说，赔偿条款在公共卫生紧急情况下很常见，“在双边谈判的背景下，辉瑞公司和BioNTech公司无意干涉任何国家的外交、军事或文化上的重要资产，任何与此相反的意见都是误导，与事实不符。辉瑞公司为疫苗研发自筹资金，甚至在不知道该疫苗是否会成功之前就部署了20亿美元的资金。最近我们又为疫苗研发额外支出了6亿美元，这将使我们在2021年的研发总开支超过10亿美元。我们也会认真对待与辉瑞疫苗有关的不良反应报告。”
-
-新闻来源：[Pfizer accused of holding Brazil ‘to ransom’ over vaccine contract demands](https://www.theguardian.com/global-development/2021/sep/10/pfizer-accused-of-holding-brazil-to-ransom-over-vaccine-contract-demands)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

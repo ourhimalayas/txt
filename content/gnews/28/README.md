@@ -2,50 +2,23 @@
 ---
 
 
-## 战友染病急需药，八方战友前支援
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543762/)
+## 秘翻在线：以色列用卫星遥控机枪斩首伊朗顶级核科学家
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543919/)
 
-栏目记者/责任编辑：正义的小新
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-2-5.jpg)图片来源：加沙邮报
+9月19日，《国会山报》记者莫妮克·比尔斯（Monique Beals）引述《纽约时报》文章，报道了以色列斩首法赫里扎德（Fakhrizadeh**）**的消息。
 
+十多年来，伊朗核计划之父、首席核科学家法赫里扎德一直是以色列的首要目标。2018年，以色列前总理本雅明·内塔尼亚胡（Benjamin Netanyahu）在一次新闻发布会上说：“记住这个名字，法赫里扎德”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+2020年11月27日，法赫里扎德坚持要把他的妻子从里海（Caspian Sea）附近的度假屋载到阿布萨德的一个乡村住宅。尽管一路上有安全措施保护法赫里扎德，但一名以色列特工还是在1000英里外通过卫星控制的机枪识别并斩首了他，报道说该机枪每分钟能够发射600发子弹。
 
+报道认为，之所以选择11月27日，是因为以色列方面认为，当时美国大选选举结果已经出现，由于乔·拜登当时承诺要重返2015年的伊朗核协议，从而会反对该斩首行动，于是以色列方面决定先下手为强。
 
+根据报道，自2004年以来，以色列对伊朗相关核设施进行了各种打击，并且，2007年以来，以色列特工已经斩首了法赫里扎德的五名同事。
 
-
-
-18日文贵先生在其盖特上写道，有身在希腊的战友，因感染中共病毒，紧急需药品的帮助。在得知此信息后，法国小皮匠、意大利的文科等几位战友迅速出发，开车几个小时后便将药送到了战友手里。文贵先生写道，这就是我们新中国联邦的力量和情怀，新中国联邦永远不会忘记这一切伟大的行动。19日，文贵先生再次强调：防止病毒感染、保护自己和家人的重要性。他说，在这个黑暗的时代，我们必须要具备一个强大的心理状态和一个有准备的心脏才能扛过去。文贵先生叮嘱各位战友，务必注意健康安全，一定要严肃认真的计划和对待，调整好自己的生活方式，让自己和家人安全健康的活下去，这才是最重要的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/444.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/5-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/4.1-8.jpg)
-参考链接：
-[郭先生盖特：9月18号：几个小时前，我们希腊的战友因患病紧急需要药品的帮助，法国小皮匠意大利的文科等……](https://gettr.com/post/pbi85xe923)
-[郭先生盖特：9月19号：七哥每天每时都能收到类似这样的信息，如果没有心理准备谁也受不了，这是黑暗的时代．](https://gettr.com/post/pbmusm6dea)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+新闻报道：[Israel killed Iran’s top nuclear scientist with remote sniper rifle: report](https://thehill.com/policy/international/middle-east-north-africa/572947-israel-killed-iranian-scientist-with-high-tech?rl=1)
 
 0
