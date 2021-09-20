@@ -2,21 +2,25 @@
 ---
 
 
-## 潜艇合同酿成外交危机, 核心源起布防中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544226/)
+## 支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544237/)
 
-采集记者/责编: 文龙
+栏目记者/责任编辑：有莫举名
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-9月17日，由于澳大利亚政府决定放弃向法国订购数百亿美元的潜艇建造合同，并将改从美国获得核潜艇建造技术，导致法国政府震怒, 马克龙宣布召回驻美及驻澳大使。法国外长勒德里昂更表示，马克龙总统是在美澳做出“盟友与伙伴间不可接受的行为”后做此这决定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.17.07-PM.png)
-澳大利亚广播公司周日报道，莫里森总理确认，他周三晚曾试图致电法国总统马克龙沟通，但结果未知。
+俄罗斯杜马（议会下院）选举于2021年9月17日至9月 19日结束。这是俄罗斯本年度重大政治议程之一，也是2024年总统大选前最重要的一场选举。俄罗斯中央选举委员会9月20日表示，已完成40%选票的统计，结果显示支持普京的统一俄罗斯党获得了国家杜马45%的票数。统一俄罗斯党领袖宣称在新杜马中赢得多数席位。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.36.48-PM.png)
+值得注意的是，俄政府此前宣布与反对派领袖纳瓦尔尼（Alexey Navalny）有联系的组织是极端主义组织，导致与纳瓦尔尼同一阵营的候选人无法参选。因此这场选举几乎没有真正意义上的反对派参与竞选。此外，投票期间有大量关于选举违规行为的报道，如投票点的投票箱事先已被塞满选票，同一批人多次投票等现象，都使这次选举的信誉和真实姓受到严重质疑,目前尚不清楚会对最终结果产生怎样的影响。
+(本文仅代表作者观点)
 
-这一迄今为止最为严重的欧美外交事件，其核心起因, 其实是由于美国、英国和澳大利亚在此前的15号，宣布建立一个三边安全合作关系组织AUKUS，按照这一伙伴关系, 主要将由美国提供相关技术，协助澳大利亚建造核动力潜艇。此举旨在针对在南海日益膨胀的中共海军力量。因为美国意识到在这一区域内，需要澳大利亚的介入和影响,而澳洲海军的潜艇，无论是技术还是数量，都远远落后于中共。
+参考链接：
 
-参考链接：[澳总理确认曾致电法总统 美法总统将通电话讨论外交危机](https://www.voachinese.com/a/scott-morrison-says-he-called-emmanuel-macron-before-pulling-out-of-french-submarine-contract20210919/6234779.html)
+1. [俄罗斯执政党宣称赢得新杜马大选 反对派基本被禁止参选](https://www.voachinese.com/a/kremlin-backed-party-takes-early-lead-in-duma-vote/6235379.html)
+2. [俄议会选举：执政党保持领先但得票率显著减少](https://www.zaobao.com.sg/realtime/world/story20210920-1195387)
+
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：文龙
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

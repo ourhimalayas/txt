@@ -2,27 +2,21 @@
 ---
 
 
-## 投资者失去信心, 恒大股价暴跌至近11年来新低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544170/)
+## 潜艇合同酿成外交危机, 核心源起布防中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544226/)
 
-栏目记者/责任编辑：雪梨
-
+采集记者/责编: 文龙
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+9月17日，由于澳大利亚政府决定放弃向法国订购数百亿美元的潜艇建造合同，并将改从美国获得核潜艇建造技术，导致法国政府震怒, 马克龙宣布召回驻美及驻澳大使。法国外长勒德里昂更表示，马克龙总统是在美澳做出“盟友与伙伴间不可接受的行为”后做此这决定的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.17.07-PM.png)
+澳大利亚广播公司周日报道，莫里森总理确认，他周三晚曾试图致电法国总统马克龙沟通，但结果未知。
 
+这一迄今为止最为严重的欧美外交事件，其核心起因, 其实是由于美国、英国和澳大利亚在此前的15号，宣布建立一个三边安全合作关系组织AUKUS，按照这一伙伴关系, 主要将由美国提供相关技术，协助澳大利亚建造核动力潜艇。此举旨在针对在南海日益膨胀的中共海军力量。因为美国意识到在这一区域内，需要澳大利亚的介入和影响,而澳洲海军的潜艇，无论是技术还是数量，都远远落后于中共。
 
-
-路透社9月20日报导，因债券利息偿还期限的日益临近，投资者对恒大前景表示悲观，导致其股价于周一当天暴跌19%，创11年来新低。恒大名下的物业管理、电动车、电影流媒体公司等板块, 均有不同程度的跌幅。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0920AM（2、5）.001.jpeg)
-据悉，恒大需将在9月23日和9月29日分别为两只债券支付8350万和4750万美元的利息。如果未能在在预定支付日期的30天内结清利息，这两只债券将面临违约的风险。虽然有债权人表示延长利息支付日期，恒大也于周日表示计划用房地产偿还利息，但大多数人认为，政府直接救济的可能性不大。
-
-据文贵先生爆料揭示，恒大负债高达2万亿人民币，占中共国GDP的2%。如果加上绿地、融创、保利等，救市至少需要5万亿人民币!  而对中共来说，如果出手干预救市，银行和金融市场将集体崩塌；如果不救，恒大等巨型企业一旦崩溃，关联基建、装修、耗材、服务等行业也将掀起倒闭潮，因为中共国的房地产行业在拉动中国近70%的就业率，而房地产行业的脆断必将导致社会的不稳定因素加剧，这是中共最担忧的后果。
-(本文仅代表作者观点)
-
-参考链接：[China Evergrande shares dive to 11-year low as default risks grow](https://www.reuters.com/world/china/china-evergrande-shares-plummet-default-risks-2021-09-20/)
+参考链接：[澳总理确认曾致电法总统 美法总统将通电话讨论外交危机](https://www.voachinese.com/a/scott-morrison-says-he-called-emmanuel-macron-before-pulling-out-of-french-submarine-contract20210919/6234779.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龙
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
