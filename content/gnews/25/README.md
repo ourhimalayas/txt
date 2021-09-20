@@ -2,21 +2,29 @@
 ---
 
 
-## 潜艇合同酿成外交危机, 核心源起布防中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544226/)
+## 《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544252/)
 
-采集记者/责编: 文龙
+栏目记者/责任编辑：飞虹
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-9月17日，由于澳大利亚政府决定放弃向法国订购数百亿美元的潜艇建造合同，并将改从美国获得核潜艇建造技术，导致法国政府震怒, 马克龙宣布召回驻美及驻澳大使。法国外长勒德里昂更表示，马克龙总统是在美澳做出“盟友与伙伴间不可接受的行为”后做此这决定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.17.07-PM.png)
-澳大利亚广播公司周日报道，莫里森总理确认，他周三晚曾试图致电法国总统马克龙沟通，但结果未知。
 
-这一迄今为止最为严重的欧美外交事件，其核心起因, 其实是由于美国、英国和澳大利亚在此前的15号，宣布建立一个三边安全合作关系组织AUKUS，按照这一伙伴关系, 主要将由美国提供相关技术，协助澳大利亚建造核动力潜艇。此举旨在针对在南海日益膨胀的中共海军力量。因为美国意识到在这一区域内，需要澳大利亚的介入和影响,而澳洲海军的潜艇，无论是技术还是数量，都远远落后于中共。
 
-参考链接：[澳总理确认曾致电法总统 美法总统将通电话讨论外交危机](https://www.voachinese.com/a/scott-morrison-says-he-called-emmanuel-macron-before-pulling-out-of-french-submarine-contract20210919/6234779.html)
+
+9月17日，《柳叶刀》医学杂志发表文章，呼吁就新冠起源进行客观、公开和透明的科学辩论，文章由16名科学家签名，他们认为比起自然来源，实验室相关事故是“合理的”，认为目前没有令人信服的证据来确定病毒来源于自然或与研究相关。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0920AM（2、5）.003.jpeg)
+该文章还谴责了2020年2月和2020年7月《柳叶刀》发表的两篇打着科学旗号支持病毒自然来源的“声明”。
+
+作者呼吁科学期刊应该打开他们的专栏，对所有假设进行深入分析，而作为科学家，我们需要在理性的基础上研究而不要考虑政治影响。文章最后呼吁对病毒的起源进行“基于证据、独立和无偏见的评估”，并强调这需要“与来自不同学科和国家的，没有利益冲突的高级专家进行国际磋商。 ”
+
+《柳叶刀》此文虽然没有对中共病毒显而易见的起源做出结论，但明确表达了科学家们对科学研究与政治和利益挂钩的强烈不满。
+(本文仅代表作者观点)
+
+参考链接：[Lancet article calls for ‘objective, open and transparent’ debate over COVID-19 origins](https://www.foxnews.com/health/lancet-objective-open-transparent-debate-covid-19-origins)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：FoxRina
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

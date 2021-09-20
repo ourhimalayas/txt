@@ -2,21 +2,21 @@
 ---
 
 
-## 恒大用积压房产冲抵理财款，债主无奈再度被套
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544165/)
+## 支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544237/)
 
-栏目记者/责任编辑：修文
-
+栏目记者/责任编辑：有莫举名
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-自由时报9月20日消息，恒大集团财务问题持续恶化，其子公司恒大财富已爆雷，四百亿理财产品逾期无法兑付。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-7.54.59-PM.png)
-9月18号,恒大财富启动 实物资产兑付的工作，将把所有未售住宅、公寓、商铺等，分别按72折、54折和48折出售给选择实物资产兑付的客户冲抵 所欠理财款。据统计有超过七万民众购买恒大财富的理财产品，包括许多恒大集团的员工，其中有近四百亿人民币的理财产品已经到期。理财客户为减少损失，唯恐血本无归。只能接盘恒大已经卖不动的库存房，并且再出钱补齐尾款，理财客户变成购房客户，虽属无奈但再次被恒大套牢。
+俄罗斯杜马（议会下院）选举于2021年9月17日至9月 19日结束。这是俄罗斯本年度重大政治议程之一，也是2024年总统大选前最重要的一场选举。俄罗斯中央选举委员会9月20日表示，已完成40%选票的统计，结果显示支持普京的统一俄罗斯党获得了国家杜马45%的票数。统一俄罗斯党领袖宣称在新杜马中赢得多数席位。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.36.48-PM.png)
+值得注意的是，俄政府此前宣布与反对派领袖纳瓦尔尼（Alexey Navalny）有联系的组织是极端主义组织，导致与纳瓦尔尼同一阵营的候选人无法参选。因此这场选举几乎没有真正意义上的反对派参与竞选。此外，投票期间有大量关于选举违规行为的报道，如投票点的投票箱事先已被塞满选票，同一批人多次投票等现象，都使这次选举的信誉和真实姓受到严重质疑,目前尚不清楚会对最终结果产生怎样的影响。
 (本文仅代表作者观点)
 
-参考链接：[千億理財商品到期 恆大用「打72折」房產兌付](https://news.ltn.com.tw/news/world/paper/1473886)
+参考链接：
+
+1. [俄罗斯执政党宣称赢得新杜马大选 反对派基本被禁止参选](https://www.voachinese.com/a/kremlin-backed-party-takes-early-lead-in-duma-vote/6235379.html)
+2. [俄议会选举：执政党保持领先但得票率显著减少](https://www.zaobao.com.sg/realtime/world/story20210920-1195387)
+
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

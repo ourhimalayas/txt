@@ -2,23 +2,34 @@
 ---
 
 
-## 秘翻在线：以色列用卫星遥控机枪斩首伊朗顶级核科学家
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543919/)
+## 投资者失去信心, 恒大股价暴跌至近11年来新低
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544170/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：雪梨
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-2-5.jpg)图片来源：加沙邮报
-9月19日，《国会山报》记者莫妮克·比尔斯（Monique Beals）引述《纽约时报》文章，报道了以色列斩首法赫里扎德（Fakhrizadeh**）**的消息。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-十多年来，伊朗核计划之父、首席核科学家法赫里扎德一直是以色列的首要目标。2018年，以色列前总理本雅明·内塔尼亚胡（Benjamin Netanyahu）在一次新闻发布会上说：“记住这个名字，法赫里扎德”。
 
-2020年11月27日，法赫里扎德坚持要把他的妻子从里海（Caspian Sea）附近的度假屋载到阿布萨德的一个乡村住宅。尽管一路上有安全措施保护法赫里扎德，但一名以色列特工还是在1000英里外通过卫星控制的机枪识别并斩首了他，报道说该机枪每分钟能够发射600发子弹。
 
-报道认为，之所以选择11月27日，是因为以色列方面认为，当时美国大选选举结果已经出现，由于乔·拜登当时承诺要重返2015年的伊朗核协议，从而会反对该斩首行动，于是以色列方面决定先下手为强。
+路透社9月20日报导，因债券利息偿还期限的日益临近，投资者对恒大前景表示悲观，导致其股价于周一当天暴跌19%，创11年来新低。恒大名下的物业管理、电动车、电影流媒体公司等板块, 均有不同程度的跌幅。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0920AM（2、5）.001.jpeg)
+据悉，恒大需将在9月23日和9月29日分别为两只债券支付8350万和4750万美元的利息。如果未能在在预定支付日期的30天内结清利息，这两只债券将面临违约的风险。虽然有债权人表示延长利息支付日期，恒大也于周日表示计划用房地产偿还利息，但大多数人认为，政府直接救济的可能性不大。
 
-根据报道，自2004年以来，以色列对伊朗相关核设施进行了各种打击，并且，2007年以来，以色列特工已经斩首了法赫里扎德的五名同事。
+据文贵先生爆料揭示，恒大负债高达2万亿人民币，占中共国GDP的2%。如果加上绿地、融创、保利等，救市至少需要5万亿人民币!  而对中共来说，如果出手干预救市，银行和金融市场将集体崩塌；如果不救，恒大等巨型企业一旦崩溃，关联基建、装修、耗材、服务等行业也将掀起倒闭潮，因为中共国的房地产行业在拉动中国近70%的就业率，而房地产行业的脆断必将导致社会的不稳定因素加剧，这是中共最担忧的后果。
+(本文仅代表作者观点)
 
-新闻报道：[Israel killed Iran’s top nuclear scientist with remote sniper rifle: report](https://thehill.com/policy/international/middle-east-north-africa/572947-israel-killed-iranian-scientist-with-high-tech?rl=1)
+参考链接：[China Evergrande shares dive to 11-year low as default risks grow](https://www.reuters.com/world/china/china-evergrande-shares-plummet-default-risks-2021-09-20/)
 
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0
