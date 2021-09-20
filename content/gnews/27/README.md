@@ -2,27 +2,26 @@
 ---
 
 
-## 中国少数族裔和持不同政见人士 在东京举行抗议游行 呼吁抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543293/)
+## 美国将在澳大利亚部署更多军事力量
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543294/)
 
 栏目记者/责任编辑：文真
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-243.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-240.png)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/中国少数族裔和持不同政见人士-在东京举行抗议游行-呼吁抵制北京冬奥会-1.jpg)
+在美英澳三国宣布建立安全和防务伙伴关系的一天后，澳大利亚国防部长宣布，更多的美国军用飞机和部队将部署到澳大利亚。 澳大利亚国防部长达顿在与美国国防部长奥斯汀会晤后说，美国和澳大利亚同意加强军事合作，包括通过向澳大利亚轮流部署所有类型的美国军用飞机，来加强空中军事力量。以及通过轮换，将更多美军部署到澳大利亚。他表示，澳大利亚可能会接纳美国的中程导弹。
 
-9月18日，40多名中国维吾尔族、藏族、蒙古族、香港人和持不同政见人士在东京市中心游行，抗议北京2020冬季奥运会。他们呼吁国际社会要清醒地认识到，中共对基本人权的侵犯和对少数民族的种族灭绝行为。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/中国少数族裔和持不同政见人士-在东京举行抗议游行-呼吁抵制北京冬奥会.jpg)
-奥林匹克运动精神必须建立在透明、民主、人权和开放的普世价值观基础之上，而中共的独裁和暴政与这些价值观背道而驰。抗议者呼吁所有国家要联合起来，通过抵制北京冬奥会，来对中共施加压力。
-
-代表维吾尔族、藏族、香港居民等中国少数民族的人权组织已经签署一封公开信，提出要求包括美国全国广播公司在内的一些世界最大的广播公司取消报道2022年北京冬奥会的计划。
+中共长期无视国际法，在南海海域扩张领土，部署军事设施和导弹系统，严重威胁周边国家的安全。为了对抗中共的武力扩张，澳大利亚将在美国的太平洋战略中发挥重要作用。澳大利亚总理说，经过近18个月的讨论，最终与美国和英国签署的新防务联盟将是永久性的。从这个新条约中获得的核动力潜艇，将使澳大利亚更有能力胜任在敏感的南海海域进行巡逻。
 
 （本文仅代表作者观点）
 
 参考链接：
-[中国少数族裔和持不同政见人士 在东京举行抗议游行 呼吁抵制北京冬奥会](https://www.republicworld.com/world-news/rest-of-the-world-news/uyghurs-urge-boycott-of-2022-beijing-winter-olympics-at-anti-china-protest-in-tokyo.html)
+1. [美国将在澳大利亚部署更多军事力量](https://www.zerohedge.com/geopolitical/more-us-troops-aircraft-will-deploy-australia-after-new-counter-china-pact-unveiled)
+2. [美国将在澳大利亚部署更多军事力量](https://www.aljazeera.com/news/2021/9/18/chinas-xi-warns-of-interference-as-australia-shrugs-off-anger)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
 
@@ -36,8 +35,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-242.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-243.png)
 
 0
