@@ -2,31 +2,31 @@
 ---
 
 
-## 未接种疫苗并不危险，接种了疫苗的人是危险的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544734/)
+## 疾控中心(CDC)表示，美国接种了383,994,877剂疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544779/)
 
-**【简评】在爆料革命推动下，我们看到越来越多的真相正在浮出水面，越来越多的科学家和民众已经勇敢站出来，抵制中共病毒疫苗。周五FDA疫苗及相关生物制品咨询委员会（VRBPAC）的64名专家的讨论中，有61人投票反对给全民接种加强针，理由是辉瑞提供的以色列数据不适用于美国。而本文的数据说明了辉瑞提供的以色列数据也是假的。此外，郭先生盖特视频已经指出辉瑞临床试验数据可能造假或欺诈。美国、英国、以色列、全球，越打疫苗，人死得越多。这简直就是大屠杀呀……天佑以色列。**
+【**简评**】**根据疫苗不良事件报告系统（VAERS）的资料和数据，在过去20年里，所有的疫苗接种加起来有4182例死亡。而过去的4个月里，就有4178例与新冠疫苗有关的死亡报告。事实上，民众个人很少会自觉上报VAERS，所以公布出来的不良报告远远低于实际情况，医务人员不会汇报所有疫苗的不良反应。**
 
-**据《加拿大时报》2021年9月18日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/aevf4-0w3mk.jpg)图片：加拿大时报
-世界卫生组织欧洲免疫专家咨询小组前副主席克里斯蒂安·佩龙（Christian Perronne）教授昨天说，所有接种过疫苗的人必须在冬季隔离，否则将面临患上严重疾病的风险。
+**FDA于9月17日通过视频方式举办了内部会议，讨论了COVID-19疫苗加强针的可行性，结果参会专家们得到一致的结论是：疫苗比病毒本身更危险，不建议给民众继续接种疫苗和加强针。 COVID-19早期治疗基金的执行董事Steve Kirsch表示，根据他的建模评估，与新冠疫苗有关的死亡不低于150,000人。**
 
-佩龙专门研究热带病理学和新发性传染病。他曾任高级公共卫生理事会传染病专门委员会主席。
+**据《路透社》记者: Juby Babu，2021年9月19日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a9tfs-c6aph-3.jpg)俄亥俄州圣亨利市的俄勒冈州立大学学生 Ashlyn Gerlach 于 2021 年 9 月 15 日在美国俄亥俄州哥伦布市俄亥俄州立大学的一家诊所接种了第二剂辉瑞冠状病毒 (COVID-19) 疫苗。图片来源：路透社/Gaelen Morse
+《路透社》9月18日 —— 美国疾病控制与预防中心（CDC）表示，截至周六上午，美国已发放了384,911,290 剂 COVID-19 疫苗，并分配了466,569,635 剂。
 
-这位传染病专家证实了以色列和英国疫情迅速恶化的局势，他说:“接种疫苗的人应该被隔离，应该与社会隔离。”
+CDC说，截至9月17日，在已交付的464,315,725剂疫苗中，已有高达383,994,877剂疫苗投入了使用（注射）。
 
-他接着说:“未接种疫苗的人并不危险；接种了疫苗的人对其他人是危险的。现在已经在以色列得到了证实 —— 我和以色列的很多医生都有联系 —— 他们的问题很大，严重的病例通常都接种了疫苗；在英国也一样，他们有更大的疫苗接种规划，同样也存在问题。”
+该机构表示，截至美国东部时间周六上午 6 点，已有211,489,242人至少接种了一剂疫苗，而181,035,022人已完全接种疫苗。
 
-据报道，目前法国 COVID-19 疫情工作组在收到这一消息后“非常恐慌”，担心如果遵循专家的指导，会出现混乱。
+CDC的统计包括来自Moderna (MRNA.O)、辉瑞/生物技术公司的(Pfizer/BioNTech) 两剂疫苗，以及强生的单剂疫苗。
 
-以色列医生Kobi Haviv 告诉第13新闻频道：“95% 的重病患者都接种了疫苗。完全接种疫苗的人占住院人数的 85-90%。我们正在开设越来越多的 COVID 分支机构。疫苗的有效性正在下降或消失。”
+自8月13日以来，已有超过211万人接受了辉瑞或Moderna的额外剂量的疫苗，当时美国批准了第三剂疫苗，用于免疫系统受损的人，因为两剂疫苗对他们的保护作用可能较弱。
 
-**原文连接:**[https://canadiantimes.live/health/immunization-expert-unvazzinated-people-are-not-dangerous-vazzinated-people-are-dangerous-for-others/](https://canadiantimes.live/health/immunization-expert-unvazzinated-people-are-not-dangerous-vazzinated-people-are-dangerous-for-others/)
+**原文连接**:[https://www.reuters.com/business/healthcare-pharmaceuticals/us-administers-about-3849-mln-doses-covid-19-vaccines-cdc-2021-09-18/?taid=61468a6ca5c42200013c51d6&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/healthcare-pharmaceuticals/us-administers-about-3849-mln-doses-covid-19-vaccines-cdc-2021-09-18/?taid=61468a6ca5c42200013c51d6&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-**（本文评论仅代表个人观点）**
-
-翻译&评论：洛杉矶盘古农场 – 钢蛋儿
-校对&编辑：洛杉矶盘古农场 – 明子
+翻译：洛杉矶盘古农场–钢蛋儿
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–明子
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
