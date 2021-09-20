@@ -2,20 +2,23 @@
 ---
 
 
-## 雅典娜时报-第057期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1543487/)
+## 秘翻在线：普京的政党在民意调查后将保留议会多数席位
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543618/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-20-115317.jpg)图片来源：莫斯科时报
+据法国24网站9月19日报道，在为期三天的选举中，由于大多数克里姆林宫的批评者被禁止参加投票，俄罗斯总统普京的政党周日将在议会中保持多数。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-13.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image1.png)
-***发布：小红帽***
+这次投票是在今年对反对派进行前所未有的镇压之后进行的，俄罗斯当局监禁了普京最知名的国内敌人阿列克谢·纳瓦尔尼，并将其组织作为 “极端主义”加以禁止。在投票前，他的所有高级盟友都被逮捕或逃离该国，任何与他的团体有关的人都不能参加周日投票。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+在俄罗斯当局的压力下，苹果和谷歌在周五删除了纳瓦尔尼的 “智能投票 “应用程序，在俄罗斯反对派中引起了轩然大波，该应用程序向支持者显示了他们应该支持哪位候选人以推翻克里姆林宫的政治家。
+
+选举也因审查制度和猖獗的假选票行为而受到影响。批评者还指出，网上投票、对独立选举观察员的新限制以及三天的投票都为大规模投票欺诈提供了机会。
+
+国营民调机构VTsIOM最近的调查显示，不到30%的俄罗斯人计划投票给普京的统一俄罗斯党（统俄党）。但人们普遍预计，该执政党将保留其在下议院的三分之二多数席位，使其能够不受阻力地推动立法改革。除了统俄党，还有13个政党参加了选举。然而，他们被广泛认为是为克里姆林宫服务的象征性反对派。
+
+新闻来源：[Putin’s party set to retain parliament majority after polls](https://www.france24.com/en/live-news/20210919-putin-s-party-set-to-retain-parliament-majority-after-polls)
+
+
 
 0

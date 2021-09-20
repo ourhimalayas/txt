@@ -2,85 +2,29 @@
 ---
 
 
-## 新冠病毒预防和治疗方案合辑
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543474/)
+## 美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1543461/)
 
-#### Gnews病毒真相小组 整理
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-本文汇集了Gnews对不同医生和组织防治新冠病毒方案翻译和整理的不同版本，供大家交叉验证和参考。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-19-PM-text-SC-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-大胡子医生关于新冠病毒的网站为：[https://vladimirzelenkomd.com](https://vladimirzelenkomd.com)
+视频参看： 2021.09.19晚GTV新闻访谈
 
-美国前线医生联盟的网站为：[https://covid19criticalcare.com](https://covid19criticalcare.com)
+[https://gtv.org/broadcast/watch/6147d5bc42a8af3151a18c9a](https://gtv.org/broadcast/watch/6147d5bc42a8af3151a18c9a)
 
+[https://www.youtube.com/watch?v=WI7EqaXhbXU](https://www.youtube.com/watch?v=WI7EqaXhbXU)
 
+编辑/校对/发稿： 香草山翻译部 – Lakers
 
-## 纽约香草山医疗部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
 
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/Ivermectin-HCQ-1.jpg)](https://gnews.org/zh-hans/1485849/)
-
-
-### [常用新冠预防及治疗方案](https://gnews.org/zh-hans/1485849/)
-
-[常用新冠预防及治疗方案, 具体用药剂量和方法，包含大胡子医生，以及美国前线医生联盟的翻译版本。](https://gnews.org/zh-hans/1485849/)
-
-
-
-
-
-
-
-## 香草山翻译部
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/预防.jpg)](https://gnews.org/zh-hans/1493316/)
-
-
-### [大胡子泽连科医生针对新冠病毒的预防方案](https://gnews.org/zh-hans/1493316/)
-
-[此方案来自泽连科医生，他是纽约州拥有合法执照的医生。我们不向任何人提供任何医疗上的建议或药方，请您在做任何医药方面的决定前，务必咨询您的医生！](https://gnews.org/zh-hans/1493316/)
-
-
-
-
-
-
-
-## 大废墙整理的版本
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-08-14-07.58.30-1280x720-1.png)](https://gnews.org/zh-hans/1465563/)
-
-
-### [Vladimir Zelenko的防治方案摘抄](https://gnews.org/zh-hans/1465563/)
-
-[此方案来自泽连科医生。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465563/)
-
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/90552.jpg)](https://gnews.org/zh-hans/1465617/)
-
-
-### [美国前线医生联盟的防治方案翻译](https://gnews.org/zh-hans/1465617/)
-
-[此方案来自FLCCC。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465617/)
-
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/178e030207b745602afc082b187873a3.png)](https://gnews.org/zh-hans/1541435/)
-
-
-### [关于青蒿素哌喹片的使用](https://gnews.org/zh-hans/1541435/)
-
-[关于黄花蒿、青蒿素以及青蒿素哌喹片的使用资讯。](https://gnews.org/zh-hans/1541435/)
-
-
-
-
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -2,36 +2,30 @@
 ---
 
 
-## 香港根据中共的法律 “选择”选举人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1542896/)
+## IMF审查其总裁施压员工以提高中共国排名的行为
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1543248/)
 
-2021年09月19日
+**撰稿：日本东京方舟农场 海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Download-31.jpg)选定的香港居民正在投票“选出”选举委员会成员 AP Photo/Vincent Yu
+9月17日，国际货币基金组织(IMF)表示，基金组织执行董事会正在审查一份独立报告，该报告涉及IMF总裁格奥尔基耶娃(Kristalina Georgieva)曾经对员工施压，以提高中共国排名的行为。
+据《路透社》报道，根据16日公布的一份独立报告，世界银行领导人，包括当时任职世界银行首席执行官(CEO)的格奥尔基耶娃，对员工施加不当压力，要求他们改变数据，以提高中共国在该行《2018年营商环境报告》中的排名。
 
-香港（美联社）周日报道，旨在确保候选人对北京忠诚的第一项“改革” (正在进行)。一场警察人数超过选民的选举表演，再次表明自中共新国安法在港实施以来, 香港的自治与民主体制被彻底摧毁，沦陷在中共之手的香港已成死港。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/微信图片_20210920005636.png)图片来自于网络
 
-此选举委员会将在12月的选举中从香港立法会的90名立法者中“选出”40名，并在明年3月的投票中“选出”香港领导人。
+另据《法广》报道，该报告是由律师事务所WilmerHale应世界银行道德委员会的要求编写的。WilmerHale表示，正在编写第二份报告，这份报告将涉及与数据违规有关的工作人员潜在的不当行为。
+格奥尔基耶娃利用此前安排好的与IMF的2,700多名工作人员的会议，对此事失口否认。但IMF发言人赖斯(Gerry Rice)表示，IMF董事会依然在进行审查。他补充道，“作为此类事件常规程序的一部分，道德委员会将向董事会报告。”
+赖斯并未立即就IMF道德委员会何时向执行董事会报告置评。
 
-周日，代表不同职业和行业的近4,900名选民在大量警察在场的情况下参加投票，他们将在1,500名选举委员会的412名候选人中“选出”364个席位。 其他席位没有竞争或由根据他们的头衔选择的人持有。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-今年5月，立法会修改了香港的选举法，以确保只有中共的“爱国者”才能统治这座城市。该委员会的成员也从1,200人扩大到1,500人，委员会席位的直接选民人数从约246,000人减少到不到8,000 人。
+*参考链接：*
 
-改组后的选举程序确保选举委员会的绝大多数人将主要是亲(中共)北京的候选人，他们可能会选择一名特首和近一半与执政的中国共产党结盟的立法者。
+[IMF正在审查涉及其总裁任世行CEO时施压提高中国排名的报告–发言人](https://cn.reuters.com/article/imf-georgieva-probe-china-0918-idCNKBS2GD29B)
 
-周日的投票在被警察包围的五个投票站进行。此前有报道称，将部署6,000名警察来保卫投票站，人数超过选民人数。
-
-新闻链接：[Voters Choose New Hong Kong Electors Under Pro-Beijing Laws](https://www.usnews.com/news/world/articles/2021-09-19/voters-choose-new-hong-kong-electors-under-pro-beijing-laws)
+[格奥尔基耶娃否认任职世行时施压提高中国排名指控 IMF仍对此道德审查](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210918-%E6%A0%BC%E5%A5%A5%E5%B0%94%E5%9F%BA%E8%80%B6%E5%A8%83%E5%90%A6%E8%AE%A4%E4%BB%BB%E8%81%8C%E4%B8%96%E8%A1%8C%E6%97%B6%E6%96%BD%E5%8E%8B%E6%8F%90%E9%AB%98%E4%B8%AD%E5%9B%BD%E6%8E%92%E5%90%8D%E6%8C%87%E6%8E%A7-imf%E4%BB%8D%E5%AF%B9%E6%AD%A4%E9%81%93%E5%BE%B7%E5%AE%A1%E6%9F%A5)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*编辑：文顺 校对：Ranting 发布：Ranting*
 
 0

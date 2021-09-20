@@ -13,20 +13,20 @@
 
 ---
 
-### [澳大利亚的核潜艇交易标志着将与中共国摊牌](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [致邦妮-亨利博士、阿德里安-迪克斯和约翰-霍根BC州长的公开信](/content/gnews/1/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [香港根据中共的法律 “选择”选举人](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [IMF审查其总裁施压员工以提高中共国排名的行为](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
 
-### [秘翻在线：中共吹捧“抗美援朝”鼓励年轻人为台海战争做炮灰](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
+### [美日印澳“四方安全对话”将推动建立半导体安全供应链](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“四国联盟”将就安全的微芯片供应链达成协议](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [CCP百年百罪 第十八集（74 – 76罪）](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [2021/09/17文贵先生直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -37,14 +37,14 @@
 ### [担心CCP绑架中国人成为世界敌人的图谋](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/9/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [康希诺疫苗是基于邱香果和解放军的合作而开发的技术](/content/gnews/10/README.md)
- ` wenwu`
-
-### [秘翻在线: 中共国疫苗完全接种人数逾10亿](/content/gnews/11/README.md)
+### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
 
 ### [克鲁兹称拜登企图以疫苗强制令转移阿富汗灾难](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -103,29 +103,29 @@
 ### [墙国版TikTok限制14岁以下用户使用该程序，加强对青少年的思想管控](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第057期](/content/gnews/31/README.md)
+### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [雅典娜时报-第057期](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/32/README.md)
+### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/33/README.md)
+### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/34/README.md)
+### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抗议不合理薪资，澳洲联邦快递发起24小时罢工](/content/gnews/35/README.md)
+### [康希诺疫苗是基于邱香果和解放军的合作而开发的技术](/content/gnews/36/README.md)
+ ` wenwu`
+
+### [抗议不合理薪资，澳洲联邦快递发起24小时罢工](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港职工会联盟宣布解散](/content/gnews/36/README.md)
+### [香港职工会联盟宣布解散](/content/gnews/38/README.md)
  ` 纽约香草山MOS02`
-
-### [债务问题或引发经济灾难](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [DC每日热点0919](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -151,20 +151,20 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/47/README.md)
- ` 纽约香草山MOS01`
-
-### [新冠病毒预防和治疗方案合辑](/content/gnews/48/README.md)
+### [合法获取抗击病毒药物的合辑](/content/gnews/47/README.md)
  ` 中共病毒真相`
 
-### [恒大的事儿到底有多大？](/content/gnews/49/README.md)
+### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/48/README.md)
+ ` 纽约香草山MOS01`
+
+### [新冠病毒预防和治疗方案合辑](/content/gnews/49/README.md)
+ ` 中共病毒真相`
+
+### [恒大的事儿到底有多大？](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [如日中天的苹果公司，还能延续其辉煌多久？](/content/gnews/50/README.md)
+### [如日中天的苹果公司，还能延续其辉煌多久？](/content/gnews/51/README.md)
  ` 纽约香草山MOS02`
-
-### [IMF审查其总裁施压员工以提高中共国排名的行为](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
 
 ### [台湾增加军事预算 应对来自中共的威胁](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
@@ -181,6 +181,6 @@
 ### [中秋将至：港共当局“卖港者治港”选举后秋后算账](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美日印澳“四方安全对话”将推动建立半导体安全供应链](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [秘翻在线: 中共国疫苗完全接种人数逾10亿](/content/gnews/57/README.md)
+ ` 秘密翻譯組G-Translators`
 
