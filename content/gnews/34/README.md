@@ -2,47 +2,26 @@
 ---
 
 
-## 日本称如果台湾被占领将会对中共采取行动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1544401/)
+## 布鲁塞尔和柏林批评俄罗斯大选
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1544322/)
 
-作者：香草山教育部- Naughty（文行）
+翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/mitglieder-einer.jpg)
 
 
+图片来源：法新社
 
-日本防卫大臣周四表示，一个自由的台湾对于维护该地区的和平与稳定是不可或缺的。
+德国政府和欧盟对俄罗斯的议会选举提出了严厉批评。欧盟外交事务代表何塞普·博雷尔的发言人彼得·斯塔诺指责莫斯科“对所有批评和独立声音的恐吓气氛”。他还批评了选举期间没有国际选举观察员的事实。由于俄罗斯当局施加的限制，欧洲安全与合作组织没有像往常一样向俄罗斯派遣选举观察员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-19.jpg)图片来源：OANN
+斯塔诺说，它已经注意到有关选举期间严重违规行的报告， 以及信誉良好的独立报告都证明， 在竞选过程中，反对派政客、媒体、记者和民间社会组织也越来越多地受到攻击。所有这一切的目的都是为了让批评的反对者沉默，并使真正的竞争变得不可能。德国政府发言人史蒂芬·塞伯特 (Steffen Seibert) 表示，“俄罗斯反对派政客和选举观察员都提出了非常严重的迹象”，称“存在大量违规行为”。要求俄罗斯必须认真对待。
 
-中国和日本之间在尖阁群岛问题上关系的紧张程度正在上升。日前日本方面表示，如果中国共产党试图夺取台湾，日本承诺将保卫其岛屿邻居。根据日本防卫大臣周四的说法，一个自由的台湾对于维护该地区的和平与稳定是不可或缺的。
+在选举前，即使是国家民意调查机构也只看到普京所在政党的支持率约为 30%。被监禁的克里姆林宫评论家阿列克谢·纳瓦尔尼的发言人基拉·贾米施 (Kira Jarmisch) 表示，初步选举结果“确实不可信”。她想起了 2011 年普京“偷走”大选的情景。 “现在正在发生同样的事情。”俄罗斯共产党副总书记德米特里·诺维科夫周一表示：“我们不承认莫斯科电子投票的结果。”电子投票的结果周一下午只在俄罗斯首都公布，在其他地区，投票站周日关闭后仅几个小时就公布了。
 
-日本的大部分能源进口都要绕过台湾，使台湾不受中共的控制符合日本的最大利益。然而，中共不仅对台湾摆出了姿态，对台湾海峡的日本岛链也是如此。
+[https://www.faz.net/aktuell/politik/ausland/russland-bundesregierung-und-eu-kritisieren-parlamentswahl-17546152.html](https://www.faz.net/aktuell/politik/ausland/russland-bundesregierung-und-eu-kritisieren-parlamentswahl-17546152.html)
 
-中共宣称自己拥有这些岛屿，但日本并不承认这些主张，并表示如果这些主张被付诸行动，他们将对中共进行反击。
+免责声明：本文观点只代表作者， 与Gnews平台无关。
 
-“无论是根据国际法还是从历史上看，尖阁群岛都是日本主权领土的一个组成部分”，国防部长岸信夫说，“日本和其他国家之间不存在与尖阁群岛有关的领土争端。”
-
-据岸信夫称，中共海岸警卫队的船只此前曾进入岛链周围的日本水域。同时，他承诺，如果中共试图以武力夺取该地区的任何部分，日本将保持高度警惕并准备参与。
-
-原文链接：
-
-[https://www.oann.com/japan-to-take-action-against-china-if-taiwan-is-taken/](https://www.oann.com/japan-to-take-action-against-china-if-taiwan-is-taken/)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+*编辑/ 校对/ 发布： Shuizhuyu*
 
 0

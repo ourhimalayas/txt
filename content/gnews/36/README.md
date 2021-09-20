@@ -2,29 +2,28 @@
 ---
 
 
-## 再遭港警国安处锁定 港学生组织成员清晨被捕
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1544300/)
+## 朝鲜正在“全速”推进其核计划
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1544282/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/092001.jpg)香港警察逮捕学生组织“贤学思政”的召集人王逸战。图片：来自路透社
-**编辑摘要**：
+翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
 
-据德国之声9月20日引述多家港媒报导，在今年多次遭警方逮捕後，香港学生组织“贤学思政”的召集人王逸战及秘书长陈枳森等三名成员20日清晨再遭港警国安处人员逮捕。据传三人遭逮捕的罪名是煽动颠覆国家政权。“贤学思政”是去年5月在香港成立的学生组织，王逸战曾表示，该组织存在的价值，便是要去试探政权的红线。
-
-[新闻参考链接](https://amp.dw.com/zh/%E5%86%8D%E9%81%AD%E6%B8%AF%E8%AD%A6%E5%9B%BD%E5%AE%89%E5%A4%84%E9%94%81%E5%AE%9A-%E6%B8%AF%E5%AD%A6%E7%94%9F%E7%BB%84%E7%BB%87%E6%88%90%E5%91%98%E6%B8%85%E6%99%A8%E8%A2%AB%E6%8D%95/a-59235024#click=https://t.co/X9t25SAYkd)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*编辑：穆清*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0534.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+图片来源：法新社
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+据国际核监督机构称，朝鲜有争议的核计划正在全面展开。国际原子能机构（IAEA）负责人拉斐尔格罗西周一在维也纳表示，这包括浓缩铀和提取钚。格罗西在国际原子能机构成员国年会开始时说：“在朝鲜民主主义人民共和国，核计划正在全速推进。” 平壤显然违反了几项联合国决议。
 
+原子能机构视察员无法进入这个孤立的国家，该国已经为发展核武器进行了多次核试验爆炸。然而，维也纳原子能管理局使用卫星来观察核设施。
 
+在 IAEA 会议的准备阶段，IAEA 报告了朝鲜在其备受争议的宁边核中心重启核反应堆的迹象。这个小型反应堆可以供应制造原子弹所需的钚。核弹头也可以用浓缩铀制造。
+
+一周前，朝鲜报告了具有重要战略意义的导弹试射成功，并表示导弹也在研制用于核弹头。多年来，平壤一直在推动发展导弹，不仅可以打击韩国和日本，还可以携带核弹头远至美国。根据美国组织军控协会从 2020 年 8 月开始的估计，朝鲜拥有 30 至 40 枚核弹头。
+
+[https://www.faz.net/aktuell/politik/ausland/laut-iaea-treibt-nordkorea-atomprogramm-mit-vollgas-voran-17546098/iaea-chef-rafael-grossi-am-17546115.html](https://www.faz.net/aktuell/politik/ausland/laut-iaea-treibt-nordkorea-atomprogramm-mit-vollgas-voran-17546098/iaea-chef-rafael-grossi-am-17546115.html)
+
+免责声明：本文观点只代表作者， 与Gnews平台无关。
+
+*编辑/ 校对/ 发布： Shuizhuyu*
 
 0
