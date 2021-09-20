@@ -2,8 +2,8 @@
 ---
 
 
-## 新加坡单日新增中共病毒感染人数达到去年四月以来的最高值
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543732/)
+## 强制疫苗政策导致美国医护人员出现短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543745/)
 
 栏目记者/责任编辑：火来
 
@@ -15,10 +15,10 @@
 
 
 
-据路透社消息，9月19日，新加坡卫生部公布了最新的新加坡疫情状况，当天，新加坡中共病毒感染人数新增了1012人，这是去年四月份以来的最高值。新加坡已经有80%的人口接种了两剂疫苗，是全球疫苗接种率名列前茅的国家，但是，疫情依然再次来袭，并且目前丝毫没有减缓的趋势。我们将持续关注新加坡疫情的发展。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-76.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-9.jpg)
+据美国OAN新闻网报道，目前美国全国各地的强制疫苗政策已经导致医护人员出现短缺。接下来几周内，纽约的医院和养老院员工将面临强制接种疫苗，否则他们将失去工作。汤姆森卫生医疗的CEO表示，强制疫苗政策将直接导致更多医疗岗位空缺，被迫离开的人，有很多都是具有丰富经验，并且服务社区多年的医务工作者，这是非常糟糕的。同时，德州的Brownfield医疗中心也面临同样的问题，如果医务人员继续大量流失，该中心可能将关闭。越来越多的医务工作者开始质疑强制疫苗政策。强制疫苗政策只会引起民众更强有力的反抗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-56.jpg)
 参考链接： 
-[Singapore reports 1,012 new COVID-19 cases, highest since April last year](https://www.reuters.com/world/asia-pacific/singapore-reports-1012-new-covid-19-cases-highest-since-april-last-year-2021-09-19/?taid=61476332ad296e0001f93a2a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[Hospital Staff Short Amid](https://www.oann.com/hospital-staff-short-amid-forced-vaccinations/)[Forced Vaccinations](https://www.reuters.com/world/asia-pacific/singapore-reports-1012-new-covid-19-cases-highest-since-april-last-year-2021-09-19/?taid=61476332ad296e0001f93a2a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 （本文仅代表作者观点）
 

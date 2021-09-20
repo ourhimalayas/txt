@@ -28,13 +28,13 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：中共在海外存了20万亿美元（粤语配音）](/content/gnews/6/README.md)
+### [9/14郭文贵直播：郭文贵首次提出“以(疫)苗灭共”（粤语配音）](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/7/README.md)
+### [9/14郭文贵直播：中共在海外存了20万亿美元（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/8/README.md)
+### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/9/README.md)
@@ -67,40 +67,40 @@
 ### [补贴、产假难填育养“黑洞”](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [9/18郭文贵盖特：全球战友服用爆料革命药物转危为安的案例不胜枚举（粤语配音）](/content/gnews/19/README.md)
+### [德国反欺诈律师：政府应该努力让民众保持冷静，而不是制造恐慌](/content/gnews/19/README.md)
+ ` Runaway`
+
+### [9/18郭文贵盖特：全球战友服用爆料革命药物转危为安的案例不胜枚举（粤语配音）](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/20/README.md)
+### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗先生：必须切断为中共房地产泡沫输血的美国资本（粤语配音）](/content/gnews/21/README.md)
+### [纳瓦罗先生：必须切断为中共房地产泡沫输血的美国资本（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意（粤语配音）](/content/gnews/22/README.md)
+### [班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意（粤语配音）](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：呼吁香港同胞们不要使用Facebook等社交媒体（粤语配音）](/content/gnews/23/README.md)
+### [9/14郭文贵直播：呼吁香港同胞们不要使用Facebook等社交媒体（粤语配音）](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：郭文贵首次提出“以(疫)苗灭共”（粤语配音）](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线：以色列用卫星遥控机枪斩首伊朗顶级核科学家](/content/gnews/25/README.md)
+### [秘翻在线：辉瑞公司被指控在疫苗合同要求上“勒索”巴西](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香港少女陈彦霖逝世两周年祭](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [战友染病急需药，八方战友前支援](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线:香港举行首届“只有爱国者”参加的选举委员会](/content/gnews/28/README.md)
+### [秘翻在线：以色列用卫星遥控机枪斩首伊朗顶级核科学家](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [强制疫苗政策导致美国医护人员出现短缺](/content/gnews/29/README.md)
+### [香港少女陈彦霖逝世两周年祭](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [新加坡单日新增中共病毒感染人数达到去年四月以来的最高值](/content/gnews/30/README.md)
+### [战友染病急需药，八方战友前支援](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线:香港举行首届“只有爱国者”参加的选举委员会](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [强制疫苗政策导致美国医护人员出现短缺](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [币圈新闻动态：目前喜交所还有600左右的人因为KYC或者付款等事宜而未完成HCN配额兑换](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [中共拙劣表演香港新选举制度落地](/content/gnews/47/README.md)
+### [魑魅魍魉大重启之——盖茨其人](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [中共下旨香港地产商支持中央利益 地产股应声急泻逾千点](/content/gnews/48/README.md)
+ ` G&#124;News TAIWAN`
+
+### [恒大维权揭穿中共依法治国谎言，再谈法治国家权利救济](/content/gnews/49/README.md)
+ ` 澳喜农场`
+
+### [中共拙劣表演香港新选举制度落地](/content/gnews/50/README.md)
  ` 儒为`
 
-### [澳英美AUKUS联盟背后的战略意图](/content/gnews/48/README.md)
+### [澳英美AUKUS联盟背后的战略意图](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/49/README.md)
+### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/50/README.md)
+### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：张宏伟拿到人类有史以来最大中介费1200亿美元（粤语配音）](/content/gnews/51/README.md)
+### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/10郭文贵直播：共产党会灭得比我们想象得要更干脆、更快（粤语配音）](/content/gnews/52/README.md)
+### [9/12郭文贵直播：张宏伟拿到人类有史以来最大中介费1200亿美元（粤语配音）](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/10郭文贵直播：中共虚假艺术品套走银行亿万真金白银（粤语配音）](/content/gnews/53/README.md)
+### [9/10郭文贵直播：共产党会灭得比我们想象得要更干脆、更快（粤语配音）](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/7郭文贵直播：只有中共国“原始股东”和“董事会成员”才能玩艺术品拍卖（粤语配音）](/content/gnews/54/README.md)
+### [9/10郭文贵直播：中共虚假艺术品套走银行亿万真金白银（粤语配音）](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/6郭文贵盖特：黑天鹅降临天安门对中共造成巨大影响（粤语配音）](/content/gnews/55/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [恒大庞氏骗局爆雷,扫厕所的许家印卖力搅粪中南坑](/content/gnews/56/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 

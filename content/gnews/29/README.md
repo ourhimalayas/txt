@@ -2,49 +2,27 @@
 ---
 
 
-## 强制疫苗政策导致美国医护人员出现短缺
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543745/)
+## 秘翻在线:香港举行首届“只有爱国者”参加的选举委员会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543764/)
 
-栏目记者/责任编辑：火来
+#### 翻译/撰稿: 黃金精神
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-2-5.jpg)图片来源：路透社
+据路透社(Reuters)9月19日报道，不到5000名大多数来自建制派的香港人开始为选举委员会的候选人投票，据调查这些候选人都忠于中共，他们将挑选该市下一个由中共支持的领导人和一些立法机构。改革后立法会的40个席位将在12月由选举委员会选出，并在3月选出行政长官。
 
+香港行政长官林郑月娥在周日上午时说：“改进选举制度的整体目标是确保‘爱国者’管理香港。我非常怀疑另一个政府或国家会允许公开选举，让那些以破坏国家利益或国家安全为使命的人进入他们的地方立法机构。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+据当地媒体报道，警方已经加强了整个城市的安全，预计将部署6000名警察以确保投票的顺利进行，预计届时有4900人参与投票。
 
+支持民主的候选人没有参与香港此次选举，因为中共全面改革了该市的选举制度以确保“只有爱国者”才能治理中共最自由的城市。117名由民主人士主导的委员会的成员资格被取消，同时增加500多个席位给中共商界、政治界和基层团体。
 
+三位地产大亨，93岁长江集团的李嘉诚、同样93岁恒基地产的李兆基和74岁新世界发展的郑家纯退出竞选，不过他们的儿子将保留席位。
 
+路透社根据选举委员会网站显示的结果计算，大约70%的被提名人没有出现在委员会的前两次民意调查中。该委员会将增加300名成员，达到1500名。
 
+中英联合声明的“50年不变”变成了废纸，“一国两制”已经名存实亡，香港名副其实成为了“臭港”。香港的国际金融中心地位已经倾覆。中共治下的香港打着“爱国”旗号，推行审查制度，领导班组重新进行洗牌，打压民主人士，进行财富的重新分配。“消灭中共是正义的需要。”只有灭共才是唯一出路。
 
-据美国OAN新闻网报道，目前美国全国各地的强制疫苗政策已经导致医护人员出现短缺。接下来几周内，纽约的医院和养老院员工将面临强制接种疫苗，否则他们将失去工作。汤姆森卫生医疗的CEO表示，强制疫苗政策将直接导致更多医疗岗位空缺，被迫离开的人，有很多都是具有丰富经验，并且服务社区多年的医务工作者，这是非常糟糕的。同时，德州的Brownfield医疗中心也面临同样的问题，如果医务人员继续大量流失，该中心可能将关闭。越来越多的医务工作者开始质疑强制疫苗政策。强制疫苗政策只会引起民众更强有力的反抗。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-56.jpg)
-参考链接： 
-[Hospital Staff Short Amid](https://www.oann.com/hospital-staff-short-amid-forced-vaccinations/)[Forced Vaccinations](https://www.reuters.com/world/asia-pacific/singapore-reports-1012-new-covid-19-cases-highest-since-april-last-year-2021-09-19/?taid=61476332ad296e0001f93a2a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+[**新闻来源**](https://www.reuters.com/world/asia-pacific/hong-kongs-first-patriots-only-election-kicks-off-2021-09-18/)
 
 0
