@@ -37,14 +37,14 @@
 ### [GTV与SEC和解 纳瓦罗加入新中国联邦](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/9/README.md)
+### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新冠病毒预防和治疗方案合辑](/content/gnews/10/README.md)
+### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新冠病毒预防和治疗方案合辑](/content/gnews/11/README.md)
  ` 中共病毒真相`
-
-### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [克鲁兹称拜登企图以疫苗强制令转移阿富汗灾难](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -85,22 +85,22 @@
 ### [妮琪·米娜因质疑新冠疫苗的安全性而被推特噤声](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英格兰公共卫生局最新报告显示 完全接种疫苗的死亡人数占新冠死亡人数的74%](/content/gnews/25/README.md)
+### [秘翻在线:香港举行首届“只有爱国者”参加的选举委员会](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [强制疫苗政策导致美国医护人员出现短缺](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [彻头彻尾的欺诈：CDC允许医院将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/26/README.md)
+### [新加坡单日新增中共病毒感染人数达到去年四月以来的最高值](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美国将在澳大利亚部署更多军事力量](/content/gnews/27/README.md)
+### [福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [中国少数族裔和持不同政见人士 在东京举行抗议游行 呼吁抵制北京冬奥会](/content/gnews/28/README.md)
+### [英格兰公共卫生局最新报告显示 完全接种疫苗的死亡人数占新冠死亡人数的74%](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [如继续拒绝美国审计，SEC将在2024年初或更早强制270家中概股退市](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [墙国版TikTok限制14岁以下用户使用该程序，加强对青少年的思想管控](/content/gnews/30/README.md)
+### [彻头彻尾的欺诈：CDC允许医院将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [6800亿债务到期，中国华融招募重组投资人](/content/gnews/31/README.md)
@@ -109,23 +109,23 @@
 ### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/33/README.md)
+### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯：日本自民党总裁选举论战全面展开；感染人数降至3500人以下](/content/gnews/34/README.md)
+### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [银河快讯：日本自民党总裁选举论战全面展开；感染人数降至3500人以下](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：CNBC暗讽SpaceX埃隆·马斯克，只因：“乔·拜登睡觉呢”](/content/gnews/35/README.md)
+### [秘翻在线：CNBC暗讽SpaceX埃隆·马斯克，只因：“乔·拜登睡觉呢”](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/36/README.md)
+### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/37/README.md)
+### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -166,21 +166,21 @@
 ### [接种两剂疫苗，奥运金牌得主依然感染住院](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [合法获取抗击病毒药物的合辑](/content/gnews/52/README.md)
- ` 中共病毒真相`
-
-### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/53/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/54/README.md)
- ` 纽约香草山MOS01`
-
-### [雅典娜时报-第057期](/content/gnews/55/README.md)
+### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [合法获取抗击病毒药物的合辑](/content/gnews/53/README.md)
+ ` 中共病毒真相`
 
-### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/57/README.md)
+### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/54/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/55/README.md)
+ ` 纽约香草山MOS01`
+
+### [雅典娜时报-第057期](/content/gnews/56/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 

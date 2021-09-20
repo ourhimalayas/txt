@@ -2,13 +2,13 @@
 ---
 
 
-## 42000名日本公民向政府公开提出停止疫苗接种宣言
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1543432/)
+## 打2剂疫苗感染变种病毒风险，比不打者高出13.06倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1543454/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9._21-1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0920-1.png)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*
 *发布：东京樱花团 / tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-0
++1

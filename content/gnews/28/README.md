@@ -2,41 +2,50 @@
 ---
 
 
-## 中国少数族裔和持不同政见人士 在东京举行抗议游行 呼吁抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543293/)
+## 福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543713/)
 
-栏目记者/责任编辑：文真
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-243.png)
+栏目记者/责任编辑：一花一世界
 
 
 
-9月18日，40多名中国维吾尔族、藏族、蒙古族、香港人和持不同政见人士在东京市中心游行，抗议北京2020冬季奥运会。他们呼吁国际社会要清醒地认识到，中共对基本人权的侵犯和对少数民族的种族灭绝行为。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/中国少数族裔和持不同政见人士-在东京举行抗议游行-呼吁抵制北京冬奥会.jpg)
-奥林匹克运动精神必须建立在透明、民主、人权和开放的普世价值观基础之上，而中共的独裁和暴政与这些价值观背道而驰。抗议者呼吁所有国家要联合起来，通过抵制北京冬奥会，来对中共施加压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-代表维吾尔族、藏族、香港居民等中国少数民族的人权组织已经签署一封公开信，提出要求包括美国全国广播公司在内的一些世界最大的广播公司取消报道2022年北京冬奥会的计划。
+
+
+
+
+本周日，福奇在参加ABC新闻的“这一周 ”节目时说：疫苗将在秋季用于12岁以下儿童。 辉瑞公司的疫苗可能会在Moderna疫苗之前提供给儿童。 儿童最早可以在10月底前接受注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1.1-8.jpg)
+Insider之前报道，辉瑞公司和Moderna公司都在3月份开始招募儿童参加其疫苗试验。Moderna之前说，它预计将在秋末冬初获得有关其疫苗在儿童中的疗效数据，而辉瑞公司计划在9月底前准备好数据。 福奇说，这些数据可能会在“中秋至秋末”的某个时候提供给美国官员，以决定是否授权11至5岁的儿童使用疫苗。 美国食品和药物管理局可能需要几周时间来审查这些数据，然后再就提供紧急使用授权来使用这些疫苗做出最终决定。 前美国食品和药物管理局专员Scott Gottlieb说，他是辉瑞公司董事会成员。在最佳情况下，该疫苗可以在11月底之前被授权用于6个月大到5岁的儿童。 邪恶贪婪的利益集团终于要将魔爪伸向无辜的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-106.jpg)
+参考链接： 
+[Fauci said a COVID-19 vaccine will be available to young children in the fall](https://www.businessinsider.com/covid-19-vaccinechildren-in-the-fall-fauci-said-2021-9)
 
 （本文仅代表作者观点）
 
-参考链接：
-[中国少数族裔和持不同政见人士 在东京举行抗议游行 呼吁抵制北京冬奥会](https://www.republicworld.com/world-news/rest-of-the-world-news/uyghurs-urge-boycott-of-2022-beijing-winter-olympics-at-anti-china-protest-in-tokyo.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-5.png)
-
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-242.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
 
 
 
