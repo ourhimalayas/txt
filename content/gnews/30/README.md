@@ -2,33 +2,31 @@
 ---
 
 
-## 纽约时代广场现大量人群抗议强制政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1542651/)
+## 秘翻在线：中共再次打压台湾 暂停进口台湾水果释迦和莲雾
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1542696/)
 
-栏目记者/责任编辑:文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-243.png)
-福克斯新闻报道，周六数百上千名民众走上纽约时代广场，抗议纽约市关于接种冠状病毒疫苗的强制政策。 推特等社交平台上发出了多个现场活动的视频。抗议者挥舞着旗帜和标语，许多人高呼反对强制接种疫苗，可以清楚听到“自由”和“我的身体我的选择”等口号。期间一位女士走上舞台，说自己对于拜登失去了耐心，人群更以强烈的抗议声表示赞同，以及对目前政府的所作所为已忍无可忍。
+撰稿：青衣
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide9-1.jpeg)
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-19-230326.jpg)
+据中共国海关总署9月19日突然发布的通知，称今年以来多次从台湾出口到中共国大陆的水果释迦和莲雾中，检出检疫性有害生物介壳虫“大洋臀纹粉蚧” （Planococcus minor），因此决定从20日起，暂停台湾释迦和莲雾输入中共国。台湾方面评论称，此事件犹如禁凤梨事件的翻版。
 
-这次抗议是”全球自由集会”的一部分。组织者声称，将通过制作自己的媒体来抵制主流媒体广泛的宣传，不会屈服于强制疫苗的做法，不会接受科学和医学的猖獗政治化。
+《中央社》当日报道称，针对中共国海关今天表示，因多次检出台湾释迦和莲雾中具有害生物，将自明天起暂停输入中共国一事，台湾农委会将举行说明会。
 
-随着爆料革命的推动和疫苗问题的显现，越来越多的民众意识到强制接种疫苗的危害性，毅然走上街头抗议疫苗暴政。
+台湾行政院农业委员会也表示，将针对“中（共）国暂停我国释迦及莲雾输入之因应措施”召开记者会，由主委陈吉仲率相关单位出席说明。
 
-（本文仅代表作者观点）
+根据台湾农委会统计，今年1至8月，台湾莲雾的全球出口量达2335公吨，其中，中共国就占2234公吨；释迦于全球出口量达1万5485公吨，中共国占1万4673公吨。
 
-参考链接: [Times Square swarmed by hundreds protesting COVID vaccine mandate, chanting ‘F— Joe Biden’](https://www.foxnews.com/politics/times-square-swarmed-by-hundreds-protesting-covid-vaccine-mandate.amp?__twitter_impression=true)
+上述数字可以看出，台湾的莲雾和释迦主要是出口到中共国。中共国此举打压意味浓厚，与上次禁止进口台湾凤梨一事异曲同工。这是中共国贸易霸凌行为的又一例证。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+根据农委会官网资料显示，此次中共国所称检出的学名为“Planococcus minor”的有害生物，也称为“番石榴粉介壳虫”，俗称“棉仔苔”或“白龟神”，寄主超过250种植物，主要有番石榴、柑桔、释迦、香蕉、葡萄、芒果、榴莲、咖啡、可可、大豆、玉米、马铃薯、山药、观赏花卉植物等。
 
-终审：暗黑
-校对/发稿：谐趣园
+针对中共国将暂停进口释迦和莲雾一事，台湾方面表达了强烈不满。 台湾高雄市市长陈其迈指出，今天通知，明天就不得输入，对台湾极不友善，也不符合世贸组织规范。本次犹如禁止凤梨输入中共国事件的翻版，是借势打压台湾，更是打击所有勤奋的台湾农民。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+陈其迈还表示，台湾输入中共国的农产品，均品质优良，把关良好。至于个别批次的果品贸易中是否含有害生物，应基于客观事实及证据，并遵循国际与两岸果品贸易规范来解决争端。
+
+据悉，目前有消息称，台湾民间正在酝酿消费释迦和莲雾热潮，以实际行动力挺台湾。
+
+**[新闻链接](https://twitter.com/RFI_Cn/status/1439521662647472128)**：
+
 0

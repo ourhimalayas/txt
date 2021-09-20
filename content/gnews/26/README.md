@@ -2,65 +2,19 @@
 ---
 
 
-## WORLD WIDE RALLY FOR FREEDOM 我的身体，我做主—— 全球联合大集会温哥华站
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1542749/)
+## 秘翻在线: 中共国疫苗完全接种人数逾10亿
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543161/)
 
-作者：香草山健身部 – 格格
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-2021年9月18日下午，在加拿大西部哥伦比亚省温哥华市中心艺术馆广场前，举行了一场盛大集会，人们为“言论自由，行动自由，选择自由，集会自由”而走上街头。此次活动是全球超过40个国家，超过200个城市的全球联合大集会。
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Untitled.001-5.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2.png)图片来源：中国政府网
+9月19日中国政府网报道，从国务院联防联控机制获悉截至9月15日中共国新冠疫苗接种超过21.6亿次，超10亿人完成全程接种。接种总人数占全国总人口的78%。接种总计次和覆盖人数均居全球首位，人群覆盖率位居全球前列。
 
-我居住在这里，为了维护基本人权，为了自由发声，为了早日结束因CCP病毒，政府强制实施的疫苗护照政策，积极响应集会，身体力行！
+国务院联防联控机制是国务院应对新冠病毒感染的肺炎疫情联防联控工作机制，是中共政府为应对2020年初突发的新冠肺炎疫情而启动的中央政府层面的多部委协调工作机制平台。 中共疾控中心专家王华庆说，接种的人越多，疫苗起到的保护作用越大，将为控制新冠肺炎疫情爆发奠定基础。
 
-![](https://cdn.discordapp.com/attachments/799528922562691143/889011822148071454/image0.jpg)
+然而对待近期福建莆田疫情首先在学校发现的情况，教育部副司长万丽君则说，我们要建好“防火墙”，进行台账管理，阻断疫情扩散。颇具讽刺意义的是， “防火墙” 这个词汇不仅用在阻断媒体传播上，现在开始用在了各行各业。疫苗接种后副作用现在已开始涌现，如此大规模的接种会给我们的同胞带来什么严重的后果，实在让我们揪心。
 
-集会的演讲部分，有警察、医生、护士和特别嘉宾发言，演讲者谴责政府违宪，侵犯他们的自由和权利，因为人们开始意识到疫苗护照将如何改变他们的生活，人们需要前所未有的聚集起来，走上街头，反对我们从未有过的授权和护照！期间抗议者次序井然沿着街区游行，然后返回原地，集会演讲继续。
+**新闻来源：**[国务院联防联控机制权威发布（2021年9月16日）\_中国政府网 (www.gov.cn)](http://www.gov.cn/xinwen/gwylflkjz167/index.htm)
 
-![](https://cdn.discordapp.com/attachments/799528922562691143/889012326672519238/image1.png)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889012327033233438/image2.jpg)
-
-让我非常自豪的是，现场到处能见到咱们新中国联邦战友的身影，新中国联邦的旗帜无处不在。战友们有的发宣传单张；有的做GTV现场直播；有的向人们传播病毒和疫苗真相，传播新中国联邦人为解救全人类揭秘病毒疫苗解药。爆料革命战友整体精神面貌积极向上，现场气氛热烈感人。
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889014725738889266/image0.png)
-
-最让我感动的是咱们香草山农场的tiger战友，从隔壁省不辞辛苦，长途开车带着一家祖孙三代来参加这次大集会。他们一家人用行动来支持郭先生领导的爆料革命，使我发至内心地尊敬tiger战友，同时也激励自己，努力传播，行动！行动！行动！
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889016270245203968/image0.jpg)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889014905288687627/image0.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-246.png)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889015145920098425/image0.jpg)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889015267521351720/image0.jpg)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889014922514694144/image0.png)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889015456114020382/image0.jpg)![](https://cdn.discordapp.com/attachments/799528922562691143/889015457879826552/image1.jpg)![](https://cdn.discordapp.com/attachments/799528922562691143/889015729763024916/image0.jpg)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889016061117231104/image0.jpg)
-
-![](https://cdn.discordapp.com/attachments/799528922562691143/889012326324387851/image0.jpg)
-
-
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/882603137469403136/9_Sep_mini2.jpg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-+2
+0
