@@ -31,20 +31,20 @@
 ### [串珠388: 为什么全世界政府都强制人民打疫苗？](/content/gnews/6/README.md)
  ` 郭爆料串珠`
 
-### [9/14郭文贵直播：郭文贵首次提出“以(疫)苗灭共”（粤语配音）](/content/gnews/7/README.md)
+### [9/14郭文贵直播：呼吁香港同胞们不要使用Facebook等社交媒体（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：中共在海外存了20万亿美元（粤语配音）](/content/gnews/8/README.md)
+### [9/14郭文贵直播：郭文贵首次提出“以(疫)苗灭共”（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲记者对福奇的最新揭露](/content/gnews/9/README.md)
+### [本周纽约联合国会议上的全球精英们没有疫苗授权](/content/gnews/9/README.md)
+ ` wenwu`
+
+### [澳洲记者对福奇的最新揭露](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/10/README.md)
+### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/11/README.md)
  ` 澳喜农场`
-
-### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/12/README.md)
  ` wenwu`
@@ -67,22 +67,22 @@
 ### [补贴、产假难填育养“黑洞”](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [德国反欺诈律师：政府应该努力让民众保持冷静，而不是制造恐慌](/content/gnews/19/README.md)
+### [FDA投票反对给16岁以下儿童注射辉瑞疫苗加强针](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [德国反欺诈律师：政府应该努力让民众保持冷静，而不是制造恐慌](/content/gnews/20/README.md)
  ` Runaway`
 
-### [9/18郭文贵盖特：全球战友服用爆料革命药物转危为安的案例不胜枚举（粤语配音）](/content/gnews/20/README.md)
+### [9/18郭文贵盖特：全球战友服用爆料革命药物转危为安的案例不胜枚举（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/21/README.md)
+### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗先生：必须切断为中共房地产泡沫输血的美国资本（粤语配音）](/content/gnews/22/README.md)
+### [纳瓦罗先生：必须切断为中共房地产泡沫输血的美国资本（粤语配音）](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意（粤语配音）](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/14郭文贵直播：呼吁香港同胞们不要使用Facebook等社交媒体（粤语配音）](/content/gnews/24/README.md)
+### [班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意（粤语配音）](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线：辉瑞公司被指控在疫苗合同要求上“勒索”巴西](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [强制疫苗政策导致美国医护人员出现短缺](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [币圈新闻动态：目前喜交所还有600左右的人因为KYC或者付款等事宜而未完成HCN配额兑换](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [秘翻在线：北交所预约开户火爆是中共最后的疯狂](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [西媒头条 — 第69期](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/33/README.md)
+### [苹果威胁要从苹果商店撤下脸书来应对人口贩卖](/content/gnews/32/README.md)
  ` wenwu`
 
-### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/34/README.md)
+### [币圈新闻动态：目前喜交所还有600左右的人因为KYC或者付款等事宜而未完成HCN配额兑换](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西媒头条 — 第69期](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/36/README.md)
+ ` wenwu`
+
+### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/35/README.md)
+### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -169,18 +169,18 @@
 ### [中共拙劣表演香港新选举制度落地](/content/gnews/52/README.md)
  ` 儒为`
 
-### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/53/README.md)
+### [9/14郭文贵直播：中共在海外存了20万亿美元（粤语配音）](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳英美AUKUS联盟背后的战略意图](/content/gnews/54/README.md)
+### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/54/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳英美AUKUS联盟背后的战略意图](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/55/README.md)
+### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/56/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/57/README.md)
+### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
