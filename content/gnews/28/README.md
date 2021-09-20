@@ -2,28 +2,32 @@
 ---
 
 
-## 潜艇合同酿成外交危机, 核心源起布防中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544226/)
+## 秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544303/)
 
-采集记者/责编: 文龙
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-9月17日，由于澳大利亚政府决定放弃向法国订购数百亿美元的潜艇建造合同，并将改从美国获得核潜艇建造技术，导致法国政府震怒, 马克龙宣布召回驻美及驻澳大使。法国外长勒德里昂更表示，马克龙总统是在美澳做出“盟友与伙伴间不可接受的行为”后做此这决定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.17.07-PM.png)
-澳大利亚广播公司周日报道，莫里森总理确认，他周三晚曾试图致电法国总统马克龙沟通，但结果未知。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-7.jpg)
+图片来源：视频截图合成
 
-这一迄今为止最为严重的欧美外交事件，其核心起因, 其实是由于美国、英国和澳大利亚在此前的15号，宣布建立一个三边安全合作关系组织AUKUS，按照这一伙伴关系, 主要将由美国提供相关技术，协助澳大利亚建造核动力潜艇。此举旨在针对在南海日益膨胀的中共海军力量。因为美国意识到在这一区域内，需要澳大利亚的介入和影响,而澳洲海军的潜艇，无论是技术还是数量，都远远落后于中共。
+周一中午丹斯克银行（Danskebank）首席分析师Allan von Mehren在丹麦媒体TV2评价说，中国将不得不拯救恒大，全世界的经济学家都在屏住呼吸，因为中国的房地产开发商 恒大在破产的边缘摇摇欲坠。
 
-参考链接：[澳总理确认曾致电法总统 美法总统将通电话讨论外交危机](https://www.voachinese.com/a/scott-morrison-says-he-called-emmanuel-macron-before-pulling-out-of-french-submarine-contract20210919/6234779.html)
+周一，这家欠下约2万亿克朗的公司必须向一些大银行支付贷款利息。而在周二，大约5亿克朗的债券利息将被支付。然而，恒大是否能支付仍是未知数。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+如果这家营业额在全球排名第122位的公司倒闭回家，将对整个全球经济造成巨大冲击。
 
-校正/发稿：我不在这里
+不过，中国要想在恒大下面放一个救生筏，可能还需要一些时间。Allan 说，对中国政府来讲，不只是出现问题立即介入并拯救整个系统，破产将引发中国金融危机。如果中国政府选择不向恒大伸出救援之手，将在全球范围内掀起冲击波。债务是如此之大，如果恒大关门歇业不还钱，将伤害整个中国经济。而与此同时，该公司多达20万名员工将突然失去工作，同时投资者、购房者和供应商也将空手而归。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+如果恒大倒闭，就不仅仅是中国人的问题。Allan 认为，如果该公司得不到拯救，它可能成为中国金融危机的开始，并可能蔓延到世界其他地区。
+
+– 你会看到与金融危机期间相同的动态 。首先，一个国家或一个公司受到冲击，但随后它就会蔓延，然后 多米诺骨牌 会一个接一个地倒下 。
+
+《环球时报》在周五的一篇社论中写道，恒大并非 “大到不能倒”，因此不应确定救生圈会到来。
+
+Allan认为，允许中国政府袖手旁观的时间是有限的。，干预必须及时出现，很明显，他们必须立即介入，否则就真的开始崩溃了。
+
+来源：
+
+1. [TV2新闻](https://nyheder.tv2.dk/business/2021-09-20-kinesisk-konkurs-kan-starte-ny-finanskrise-og-styret-vil-statuere-et-eksempel)
+
+
 0

@@ -2,23 +2,34 @@
 ---
 
 
-## 秘翻在线：辉瑞公司被指控在疫苗合同要求上“勒索”巴西
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544073/)
+## 投资者失去信心, 恒大股价暴跌至近11年来新低
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544170/)
 
-#### 翻译/撰稿：zzballack
+栏目记者/责任编辑：雪梨
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-2-6.jpg)图片来源：U.S.News
-据《英国卫报》（The Guardian）9月10日报道，辉瑞公司被指控“勒索”巴西，因其在与巴西签署的1亿剂中共病毒疫苗合同中要求保护自己免受潜在的疫苗副作用带来的法律诉讼。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-巴西政府今年3月与辉瑞公司签署了价值10亿美元的疫苗合同，尽管他们事先对此提出了抱怨，但仍同意“就疫苗可能产生的任何副作用签署一份责任豁免书，这样辉瑞公司不会因疫苗产生的严重副作用而承担任何民事责任，而且是无限期的。”该合同还规定，如果出现与疫苗有关的任何合同纠纷，巴西将让位于美国法院，由后者处理纠纷。自20世纪80年代末以来，许多国家与大型制药公司之间的合同中普遍存在免于赔偿的规定。
 
-该合同4月份在巴西卫生部的官方网站上被泄露，之前因与辉瑞公司的保密协议而未被公开。该合同不久后被删除，直到8月份一位法国律师才在推特上公布了该合同的有关信息。合同中写道：“买方在此同意让辉瑞公司、BioNTech公司以及他们的每一个附属机构免于由中共病毒疫苗引起的、产生的、与之相关的或由之产生的任何和所有诉讼、索赔、行动、要求、损失、损害、责任、和解、惩罚、罚款、费用和开支，并为其赔偿、辩护和使其免受伤害。“辉瑞还在合同中要求“任何情况下都不会受到或承担任何延迟交付的处罚”，“巴西同意在未经辉瑞公司事先书面同意的情况下，不在宣传稿、广告或任何其他出版物中使用辉瑞公司的名称、商号、服务标记、商标、商业外观或徽标”。
 
-英国的非盈利机构新闻调查局 (Bureau of Investigative Journalism)今年2月曾报道说，辉瑞公司要求巴西和阿根廷拿出主权资产作为保证赔偿的抵押品，以及用存入外国银行账户的钱创建一个担保基金。但辉瑞公司却说它没有干预“任何国家的外交、军事或文化方面的重要资产”。英国组织“现在的全球正义”（Global Justice Now）的阿蕾娜·伊万诺娃（Alena Ivanova）说：“辉瑞公司非常乐意看到其由公众资助研发的中共病毒疫苗赚了大钱，却不想承担疫苗带来的任何风险。这是制药公司再熟悉不过的举动，相较于保护公众，他们似乎对保护其利润更感兴趣。我们不能继续相信私有企业提供的救命药物，而且他们借其向主权国家勒索赎金。”
+路透社9月20日报导，因债券利息偿还期限的日益临近，投资者对恒大前景表示悲观，导致其股价于周一当天暴跌19%，创11年来新低。恒大名下的物业管理、电动车、电影流媒体公司等板块, 均有不同程度的跌幅。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0920AM（2、5）.001.jpeg)
+据悉，恒大需将在9月23日和9月29日分别为两只债券支付8350万和4750万美元的利息。如果未能在在预定支付日期的30天内结清利息，这两只债券将面临违约的风险。虽然有债权人表示延长利息支付日期，恒大也于周日表示计划用房地产偿还利息，但大多数人认为，政府直接救济的可能性不大。
 
-辉瑞公司的拉丁美洲总裁卡洛斯·马利洛 (Carlos Murillo)说，赔偿条款在110多个国家都有实施，并拒绝了该公司有剥削行为的说法。辉瑞公司发言人莎朗·卡斯蒂略（Sharon Castillo）说，赔偿条款在公共卫生紧急情况下很常见，“在双边谈判的背景下，辉瑞公司和BioNTech公司无意干涉任何国家的外交、军事或文化上的重要资产，任何与此相反的意见都是误导，与事实不符。辉瑞公司为疫苗研发自筹资金，甚至在不知道该疫苗是否会成功之前就部署了20亿美元的资金。最近我们又为疫苗研发额外支出了6亿美元，这将使我们在2021年的研发总开支超过10亿美元。我们也会认真对待与辉瑞疫苗有关的不良反应报告。”
+据文贵先生爆料揭示，恒大负债高达2万亿人民币，占中共国GDP的2%。如果加上绿地、融创、保利等，救市至少需要5万亿人民币!  而对中共来说，如果出手干预救市，银行和金融市场将集体崩塌；如果不救，恒大等巨型企业一旦崩溃，关联基建、装修、耗材、服务等行业也将掀起倒闭潮，因为中共国的房地产行业在拉动中国近70%的就业率，而房地产行业的脆断必将导致社会的不稳定因素加剧，这是中共最担忧的后果。
+(本文仅代表作者观点)
 
-新闻来源：[Pfizer accused of holding Brazil ‘to ransom’ over vaccine contract demands](https://www.theguardian.com/global-development/2021/sep/10/pfizer-accused-of-holding-brazil-to-ransom-over-vaccine-contract-demands)
+参考链接：[China Evergrande shares dive to 11-year low as default risks grow](https://www.reuters.com/world/china/china-evergrande-shares-plummet-default-risks-2021-09-20/)
 
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

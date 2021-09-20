@@ -2,48 +2,28 @@
 ---
 
 
-## 习近平的新衣
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544081/)
+## 潜艇合同酿成外交危机, 核心源起布防中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544226/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-64.jpg)
-2021年9月14日，郭文贵先生再一次爆出猛料：习和彭及其家庭过去这些年的所有隐私有一个组织在秘密收集。没有一个共产党员是安全的，中国共产党总书记习近平也不例外。（视频链接：[https://gtv.org/video/id=614095fb751e4f2b0e5254a0](https://gtv.org/video/id=614095fb751e4f2b0e5254a0) 文字版链接：[https://gnews.org/zh-hans/1538051/](https://gnews.org/zh-hans/1538051/)  ）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-28.jpg)
-一，2017年访美期间，谁负责习近平的安保？
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-11.jpg)
-中央警卫局归中央办公厅直接指挥，下辖中央警卫团，担任习近平的一级安保。王少军2009年升任警卫局副局长，2015年原局长曹清去职，王担任了中央警卫局局长，并于2019年底卸任中央警卫局局长职务。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-4.jpg)(图1：王少军)
-习上台后，丁薛祥从2013年至今一直担任中央办公厅主任并负责习的安保，是习近平的核心幕僚之一。（信息来源：[https://baike.baidu.com/item/%E4%B8%81%E8%96%9B%E7%A5%A5/7585976](https://baike.baidu.com/item/%2525E4%2525B8%252581%2525E8%252596%25259B%2525E7%2525A5%2525A5/7585976) ）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-2.jpg)（图2，丁薛祥）![](https://assets.gnews.org/wp-content/uploads/2021/09/图片6-1.jpg)
-从郭文贵先生的爆料我们得知，入住的宾馆已经提前一个月进行清场。中央警卫局的战友也证实了此个说法。每当中共领导人要出访某地，中央警卫局会提前1个月派遣人员前往被访问地进行安保检查。习的视频和音频被中央警卫局内部人掌握交给了美方，等于直接告诉习有内鬼。中央警卫局由中共中央办公厅直接指挥。2017年4月，习访美期间，丁薛祥和王少军是负责习安保的最关键负责人，也是最大嫌疑人。
+采集记者/责编: 文龙
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+9月17日，由于澳大利亚政府决定放弃向法国订购数百亿美元的潜艇建造合同，并将改从美国获得核潜艇建造技术，导致法国政府震怒, 马克龙宣布召回驻美及驻澳大使。法国外长勒德里昂更表示，马克龙总统是在美澳做出“盟友与伙伴间不可接受的行为”后做此这决定的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-8.17.07-PM.png)
+澳大利亚广播公司周日报道，莫里森总理确认，他周三晚曾试图致电法国总统马克龙沟通，但结果未知。
 
-2015年中共两会前夕，习上台后大规模撤换他身边的禁卫军，近95%的官员先后被撤换或调离、转业，565名处级以上官员只剩35人。新的人马跳过中央警卫局现有建制，全部由中央军委从军中现役特种兵中重新选拔，归中央军委直管，不听命于中央警卫局，而是直接听命于中办主任。现任中共中央警卫局局长周洪许和中央警卫局副局长兼中央警卫团政委福建籍少将陈登铝，两者均来自于野战部队。
+这一迄今为止最为严重的欧美外交事件，其核心起因, 其实是由于美国、英国和澳大利亚在此前的15号，宣布建立一个三边安全合作关系组织AUKUS，按照这一伙伴关系, 主要将由美国提供相关技术，协助澳大利亚建造核动力潜艇。此举旨在针对在南海日益膨胀的中共海军力量。因为美国意识到在这一区域内，需要澳大利亚的介入和影响,而澳洲海军的潜艇，无论是技术还是数量，都远远落后于中共。
 
-王少军长期在中央警卫局工作，他的前任包括由喜贵和曹清，由喜贵长期担任江泽民安保，习近平肯定是不信任的。记得文贵先生有次直播说到，习最相信的一个人背叛了他。那么，丁薛祥是不是就是那个背叛习的人？
+参考链接：[澳总理确认曾致电法总统 美法总统将通电话讨论外交危机](https://www.voachinese.com/a/scott-morrison-says-he-called-emmanuel-macron-before-pulling-out-of-french-submarine-contract20210919/6234779.html)
 
-二，明知彭丽媛说川普的坏话，为什么美方相关人员不拿给川普？
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-据纽约时报当时报道（链接：[https://cn.nytimes.com/china/20170410/china-xi-jinping-president-trump-xinhua/](https://cn.nytimes.com/china/20170410/china-xi-jinping-president-trump-xinhua/)）：在贸易问题上，习近平和特朗普达成了一个“百日计划”（信息链接：[http://www.xinhuanet.com/globe/2017-06/12/c\_136359329.htm](http://www.xinhuanet.com/globe/2017-06/12/c_136359329.htm)）。美国商务部长罗斯在白宫记者会上宣布与中国达成10项共识（主要涉及中方开放金融牌照和美方派人参加“一带一路”。说明美国内部某股势力想让川普和习近平建立良好关系，而中方提供情报的人则不希望川和习达成10项共识。
+校正/发稿：我不在这里
 
-三，为什么文贵先生4年后才爆这个猛料？
-
-1. 说明习近平和他的家人一直被监视和监听，尽管他不断更换身边的安保人员。中央警卫局发出信息的人是谁？
-2. 临近20大，习的隐私会被放出来，使得习近平不能连任。既然随时能监视监听，习很有可能面临生命危险。文贵先生不希望看到共产党四分五裂，内部血腥绞杀。
-3. 这个提供情报给美方的中共内部势力不是文贵先生此次的爆料目的。回看习川会促成的10项共识，这股势力是亲共的，如今进入到灭共的关键期，必须要阻止这股亲共势力继续帮助共产党。
-
-
-四，谁在收集这个隐私？有什么目的？
-
-可以确定，收集隐私的是习的党内敌人。最大嫌疑就是光明会中国分部瓢把子王岐山、孟建柱和江派。因为党内斗争已经到了你死我活的状态，他们不想习20大连任。收集的目的就是为了威胁习、搞臭习和控制习。
-
-没想到拥有9000多万党员的共产党党魁习近平一直在裸奔。共产党的独裁者幻想通过黑材料消灭和威胁党内对手，树立自己的绝对权威，没想到自己也沦为皇帝新衣的主人公。在这个永动绞肉机里，没有一个共产党员是安全的。没有自由民主，没有法制约束，中国只会被共产主义邪恶的乌云继续笼罩。
-
-【文章观点仅代表作者个人，与gnews平台无关】
-
-作者：洛杉矶盘古农场 – 文如
-编辑：洛杉矶盘古农场 – 心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

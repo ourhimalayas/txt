@@ -37,14 +37,14 @@
 ### [9/14郭文贵直播：呼吁香港同胞们不要使用Facebook等社交媒体（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [FDA小组拒绝为16-65岁的人注射辉瑞公司的增效疫苗针剂](/content/gnews/9/README.md)
+### [交通事故](/content/gnews/9/README.md)
+ ` 纽约香草山MOS03`
+
+### [FDA小组拒绝为16-65岁的人注射辉瑞公司的增效疫苗针剂](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：澳洲民众自发集会抗议强制注射疫苗](/content/gnews/10/README.md)
+### [秘翻在线：澳洲民众自发集会抗议强制注射疫苗](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [本周纽约联合国会议上的全球精英们没有疫苗授权](/content/gnews/11/README.md)
- ` wenwu`
 
 ### [议员们因阿富汗问题要求拜登辞职](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -52,7 +52,7 @@
 ### [共和党议员要求知道谁掌管白宫](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/14/README.md)
+### [本周纽约联合国会议上的全球精英们没有疫苗授权](/content/gnews/14/README.md)
  ` wenwu`
 
 ### [墙内疫苗大觉醒](/content/gnews/15/README.md)
@@ -85,22 +85,22 @@
 ### [德国反欺诈律师：政府应该努力让民众保持冷静，而不是制造恐慌](/content/gnews/24/README.md)
  ` Runaway`
 
-### [秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机](/content/gnews/25/README.md)
+### [未经本人同意，加州药房向青年注射新冠生物制剂针](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [白宫考虑空中旅行接种令](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [公民不死 注射不止 福奇表示美国人需要注射加强针](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论](/content/gnews/26/README.md)
+### [《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [潜艇合同酿成外交危机, 核心源起布防中共](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [投资者失去信心, 恒大股价暴跌至近11年来新低](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [恒大用积压房产冲抵理财款，债主无奈再度被套](/content/gnews/30/README.md)
+### [支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [布鲁塞尔和柏林批评俄罗斯大选](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [反诈还是监控——浅析全民强制安装反诈APP](/content/gnews/47/README.md)
+### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/47/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [一句话引发的思考](/content/gnews/48/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [潜艇合同酿成外交危机, 核心源起布防中共](/content/gnews/49/README.md)
+ ` GTV新闻访谈`
+
+### [反诈还是监控——浅析全民强制安装反诈APP](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [印度海军2021马拉巴尔军演盘点及未来展望](/content/gnews/48/README.md)
+### [投资者失去信心, 恒大股价暴跌至近11年来新低](/content/gnews/51/README.md)
+ ` GTV新闻访谈`
+
+### [恒大用积压房产冲抵理财款，债主无奈再度被套](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
+
+### [印度海军2021马拉巴尔军演盘点及未来展望](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习近平的新衣](/content/gnews/49/README.md)
+### [习近平的新衣](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/50/README.md)
+### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [秘翻在线：辉瑞公司被指控在疫苗合同要求上“勒索”巴西](/content/gnews/51/README.md)
+### [秘翻在线：辉瑞公司被指控在疫苗合同要求上“勒索”巴西](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [魑魅魍魉大重启之——盖茨其人](/content/gnews/52/README.md)
+### [魑魅魍魉大重启之——盖茨其人](/content/gnews/57/README.md)
  ` 澳喜农场`
-
-### [中共下旨香港地产商支持中央利益 地产股应声急泻逾千点](/content/gnews/53/README.md)
- ` G&#124;News TAIWAN`
-
-### [恒大维权揭穿中共依法治国谎言，再谈法治国家权利救济](/content/gnews/54/README.md)
- ` 澳喜农场`
-
-### [中共拙劣表演香港新选举制度落地](/content/gnews/55/README.md)
- ` 儒为`
-
-### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/56/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西媒头条 — 第69期](/content/gnews/57/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 

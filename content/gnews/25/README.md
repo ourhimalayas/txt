@@ -2,32 +2,34 @@
 ---
 
 
-## 秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544303/)
+## 未经本人同意，加州药房向青年注射新冠生物制剂针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544364/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-7.jpg)
-图片来源：视频截图合成
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-260.png)
+来自亚利桑那州的萨凡纳（Savannah Courtad），近日在Instagram上分享注射疫苗的经历，称自己在毫不知情的情况下，被加州沃尔格林药房的工作人员接种了一针新冠病毒疫苗。
 
-周一中午丹斯克银行（Danskebank）首席分析师Allan von Mehren在丹麦媒体TV2评价说，中国将不得不拯救恒大，全世界的经济学家都在屏住呼吸，因为中国的房地产开发商 恒大在破产的边缘摇摇欲坠。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-18.jpeg)
 
-周一，这家欠下约2万亿克朗的公司必须向一些大银行支付贷款利息。而在周二，大约5亿克朗的债券利息将被支付。然而，恒大是否能支付仍是未知数。
+萨凡纳写道，几天前，她去沃尔格林药房，申请接种流感疫苗。接种期间，除了询问打在哪只胳膊上外，护士什么也没说。接种完成，当护士告诉她21天后再来打第二针的时候，她惊讶地发现卡片上写的居然是新冠疫苗。当询问相关工作人员时，先被告知拿错了卡片，在详细了解相关情况后，工作人员确认萨凡纳接种的就是新冠疫苗，以忙中出错为由，向她道歉。萨凡纳表示，虽然道歉，但这不是一个小错误，无论对新冠疫苗持任何观点和立场，是否接种疫苗都需要经过本人的同意。
 
-如果这家营业额在全球排名第122位的公司倒闭回家，将对整个全球经济造成巨大冲击。
+药店在未征得本人的同意的情况下，向顾客接种新冠疫苗，不但严重侵犯了个人隐私和人身自由，更对被接种者的安全造成极大的隐患。近期，不断有因接种疫苗突然倒地抽搐和突然死亡的案例发生，人们对疫苗的态度也越来越谨慎。而面对大规模的疫苗次生灾难的即将爆发，人们反抗疫苗的浪潮势必更加强烈。
 
-不过，中国要想在恒大下面放一个救生筏，可能还需要一些时间。Allan 说，对中国政府来讲，不只是出现问题立即介入并拯救整个系统，破产将引发中国金融危机。如果中国政府选择不向恒大伸出救援之手，将在全球范围内掀起冲击波。债务是如此之大，如果恒大关门歇业不还钱，将伤害整个中国经济。而与此同时，该公司多达20万名员工将突然失去工作，同时投资者、购房者和供应商也将空手而归。
+（本文仅代表作者观点）
 
-如果恒大倒闭，就不仅仅是中国人的问题。Allan 认为，如果该公司得不到拯救，它可能成为中国金融危机的开始，并可能蔓延到世界其他地区。
+参考链接: [https://www.instagram.com/p/CT7eN-MJM2K/?utm\_medium=share\_sheet](https://www.instagram.com/p/CT7eN-MJM2K/?utm_medium=share_sheet)
+[https://twitter.com/savvymagee](https://twitter.com/savvymagee)
 
-– 你会看到与金融危机期间相同的动态 。首先，一个国家或一个公司受到冲击，但随后它就会蔓延，然后 多米诺骨牌 会一个接一个地倒下 。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-《环球时报》在周五的一篇社论中写道，恒大并非 “大到不能倒”，因此不应确定救生圈会到来。
+终审：暗黑
+校对/发稿：谐趣园
 
-Allan认为，允许中国政府袖手旁观的时间是有限的。，干预必须及时出现，很明显，他们必须立即介入，否则就真的开始崩溃了。
-
-来源：
-
-1. [TV2新闻](https://nyheder.tv2.dk/business/2021-09-20-kinesisk-konkurs-kan-starte-ny-finanskrise-og-styret-vil-statuere-et-eksempel)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
