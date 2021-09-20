@@ -37,13 +37,13 @@
 ### [GTV与SEC和解 纳瓦罗加入新中国联邦](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [新冠病毒预防和治疗方案合辑](/content/gnews/9/README.md)
- ` 中共病毒真相`
-
-### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/10/README.md)
+### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/11/README.md)
+### [新冠病毒预防和治疗方案合辑](/content/gnews/10/README.md)
+ ` 中共病毒真相`
+
+### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [克鲁兹称拜登企图以疫苗强制令转移阿富汗灾难](/content/gnews/12/README.md)
@@ -121,10 +121,10 @@
 ### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [雅典娜时报-第057期](/content/gnews/38/README.md)
+### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [钱去哪里了？](/content/gnews/47/README.md)
+### [读《道德经》第八章](/content/gnews/47/README.md)
+ ` 纽约香草山MOS03`
+
+### [读《道德经》第九章](/content/gnews/48/README.md)
+ ` 纽约香草山MOS03`
+
+### [钱去哪里了？](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [老师已被“黄” ——牛逼，蓝金黄](/content/gnews/48/README.md)
+### [老师已被“黄” ——牛逼，蓝金黄](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [接种两剂疫苗，奥运金牌得主依然感染住院](/content/gnews/49/README.md)
+### [接种两剂疫苗，奥运金牌得主依然感染住院](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [合法获取抗击病毒药物的合辑](/content/gnews/50/README.md)
+### [合法获取抗击病毒药物的合辑](/content/gnews/52/README.md)
  ` 中共病毒真相`
 
-### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/51/README.md)
+### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/53/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/52/README.md)
+### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/54/README.md)
  ` 纽约香草山MOS01`
 
-### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [恒大的事儿到底有多大？](/content/gnews/55/README.md)
+### [雅典娜时报-第057期](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/56/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/56/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [康希诺疫苗是基于邱香果和解放军的合作而开发的技术](/content/gnews/57/README.md)
- ` wenwu`
+### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
