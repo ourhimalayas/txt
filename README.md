@@ -28,23 +28,23 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：郭文贵首次提出“以(疫)苗灭共”（粤语配音）](/content/gnews/6/README.md)
+### [串珠388: 为什么全世界政府都强制人民打疫苗？](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
+
+### [9/14郭文贵直播：郭文贵首次提出“以(疫)苗灭共”（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：中共在海外存了20万亿美元（粤语配音）](/content/gnews/7/README.md)
+### [9/14郭文贵直播：中共在海外存了20万亿美元（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/10/README.md)
+### [澳洲记者对福奇的最新揭露](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
- ` wenwu`
+### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/12/README.md)
  ` wenwu`
@@ -109,22 +109,22 @@
 ### [西媒头条 — 第69期](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/33/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/33/README.md)
+ ` wenwu`
+
+### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/34/README.md)
+### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/35/README.md)
+### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/36/README.md)
+### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/38/README.md)
+### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
@@ -169,18 +169,18 @@
 ### [中共拙劣表演香港新选举制度落地](/content/gnews/52/README.md)
  ` 儒为`
 
-### [澳英美AUKUS联盟背后的战略意图](/content/gnews/53/README.md)
+### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/53/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳英美AUKUS联盟背后的战略意图](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/54/README.md)
+### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/55/README.md)
+### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/56/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/12郭文贵直播：张宏伟拿到人类有史以来最大中介费1200亿美元（粤语配音）](/content/gnews/57/README.md)
+### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

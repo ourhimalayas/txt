@@ -2,61 +2,83 @@
 ---
 
 
-## 朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1543880/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1543915/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/朝鲜核威胁.jpg)
-图片来源：jiemian.com
-
-**【雅典娜快讯】，紧贴时事脉搏**
-
-日前，朝鲜谴责了澳大利亚、英国和美国(AUKUS)新签署的国防协定。通过该协定，澳大利亚将此美国购买核动力潜艇。同时，朝鲜还表示，如果其安全受到威胁，将进行报复。
-
-上周宣布的AUKUS三边协定加强了（美、英、澳三国）在开发先进国防技术（如人工智能、水下系统和远程监视）方面的合作，并以此来对抗中共国在印太地区增加的军事活动。
-
-朝鲜外交部在国家通讯社朝中社（KCNA）发表的一份声明中说：“这(AUKUS)是极其危险的不可取的行为，它将破坏亚太地区的战略平衡，引发一连串的核军备竞赛。”
-
-- [首页](https://gnews.org/zh-hans/)
-- 朝鲜谴责“三边”国防协定，称“受到威胁将反击”
+- **编译：wenwu–西班牙喜悦农场**
 
 
-# 朝鲜谴责“三边”国防协定，称“受到威胁将反击”
+您若想了解全文报导内容，请点击标题链接
 
-[AUKUS](https://gnews.org/zh-hans/tag/aukus/)[三边协定](https://gnews.org/zh-hans/tag/%e4%b8%89%e8%be%b9%e5%8d%8f%e5%ae%9a/)[朝鲜](https://gnews.org/zh-hans/tag/%e6%9c%9d%e9%b2%9c/)
-[![墨尔本雅典娜农场](https://assets.gnews.org/wp-content/uploads/ultimatemember/13641/profile_photo-190x190.jpg?1632107528)](https://gnews.org/zh-hans/author/athenafarm/)
-[墨尔本雅典娜农场](https://gnews.org/zh-hans/author/athenafarm/) 4分钟前
+（爱惜生命 远离疫苗）
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/%E6%9C%9D%E9%B2%9C%E6%A0%B8%E5%A8%81%E8%83%81.jpg)
-图片来源：jiemian.com
+1. [**港大研12岁以下打科兴**](https://hk.news.yahoo.com/%E6%B8%AF%E5%A4%A7%E7%A0%9412%E6%AD%B2%E4%BB%A5%E4%B8%8B%E6%89%93%E7%A7%91%E8%88%88-214500275.html)
 
-**【雅典娜快讯】，紧贴时事脉搏**
 
-日前，朝鲜当局谴责了澳大利亚、英国和美国(AUKUS)的国防协定。该协定将为澳大利亚配备核动力潜艇。同时，朝鲜表示，如果其安全受到威胁，将进行报复。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip89.png)
 
-上周宣布的AUKUS三边协定加强了美、英、澳三国在开发先进国防技术（如人工智能、水下系统和远程监视）方面的合作，并寻求对抗中共国在印太地区日益增加的军事挑衅活动。
+据《雅虎新闻》2021年9月18日电，香港大学医学院团队计划开展一项新的中共病毒疫苗研究，即研究为12岁以下小童接种由内地研制的科兴疫苗。身兼港府疫苗可预防疾病科学委员会主席的香港大学儿童及青少年学系讲座教授刘宇隆向当局表示，很多家长都向他反映，12岁以下的小童没有疫苗可接种，部分人想选择接种科兴，现时部分国家及内地已开展小童接种的安排，本港也应开展相关的研究及准备。
 
-朝鲜外交部在国家通讯社朝中社（KCNA）发表的一份声明中说：“这(AUKUS)是极其不可取和危险的行为，它将破坏亚太地区的战略平衡，引发一连串的核军备竞赛。”
+目前，本港规定18岁以下人士接种疫苗的规定是，由内地及德国合作的復必泰疫苗最低接种年龄为12岁；而由内地研发的科兴疫苗最低接种年龄是18岁，故现时12至17岁的人士，若要接种疫苗只可选择復必泰。（鸭脷洲接种中心9‧27停运）
 
-朝鲜当局还支持中共国对该条约的谴责，认为这是“不负责任”行为，“破坏地区和平稳定和国际核不扩散体系，并助长军备竞赛”。
+另外，港大医学院负责营运的鸭脷洲体育馆疫苗接种中心，将营运至本月27日止，由10月1日起，便会与同区的港怡医院社区疫苗接种中心合併。鸭脷洲接种中心现时只接受第二针人士预约。
 
-朝鲜外交部还支持法国的投诉。法国对澳大利亚取消与法国的潜艇合同感到愤怒，并指责美国“双重交易”，允许“核技术扩散，因为其符合美国的利益”，同时“推翻了国际核不扩散体系。”
+据[《Theirishsentinel》](https://theirishsentinel.com/2021/09/15/daughter-of-british-royal-dies-with-severe-headache-months-after-covid-vaccine-family-in-denial-over-spike-proteins-building-up-over-time/)2021年9月15日电，已故[达廷](https://www.msn.com/en-gb/news/uknews/hospital-review-launched-after-lord-young-s-daughter-dies-hours-after-complaining-of-headache/ar-AAO5HMV)顿勋爵杨的 25 岁女儿盖亚·杨（Gaia Young）在“接种疫苗”后不久，因严重头痛和急性呕吐被送往伦敦大学学院医院 (UCLH)。仅 16 小时后，她就被宣布脑死亡（[死于“新冠肺炎”](https://www.msn.com/en-gb/news/uknews/hospital-review-launched-after-lord-young-s-daughter-dies-hours-after-complaining-of-headache/ar-AAO5HMV)）；第一次尸检“无定论”后，他的死因“无法解释”，但死者的家人拒绝承认死于疫苗。
 
-平壤当局表示，建立AUKU这样的联盟表明，“为了应对不断变化的国际安全环境，从长远角度来看，（朝鲜）加强国防能力的工作一点也不能松懈，我们正在密切关注美方近期决定的背景及其前景，如果对我国的安全造成哪怕是一点点不利影响，我们一定会采取相应的反击措施。”
+**2. [以色列研究：疫苗接种者比痊愈者更易再度感染](https://www.aboluowang.com/2021/0919/1648747.html)**
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-20T094115.610.png)
 
-**参考新闻：**[‘Undesirable, dangerous’: North Korea blasts AUKUS pact (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/09/20/north-korea-aukus/)
+据《阿波罗新闻》2021年9月19日电，以色列作为全球疫苗接种率最高的国家之一，疫情却再度升温，本周创下感染人数新高。以色列近期的一项研究发现，接种疫苗者对德尔塔变种病毒的突破感染风险，是曾经自然感染新冠者的13倍。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+“Our Wolrd in Data”数据显示，截至9月4日这一周，以色列感染率居全球最高，每百万人口病例数达到了1091例；而本周又创下以色列感染人数纪录；以色列马卡比医疗集团（Maccabi Healthcare Services）和特拉维夫大学（Tel Aviv University）的研究人员做了一项研究，探究疫苗保护力和自然感染保护力的强度和持久性：未接种疫苗的保护力比接种者强13倍，持续性比接种的人强6倍，获得重症的几率比接种疫苗者少8倍。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**3. [柬埔寨开始为 6 岁的孩子接种中共病毒疫苗](https://www.nst.com.my/world/world/2021/09/728192/cambodia-begins-covid-jabs-kids-young-six)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-20T094248.911.png)
+
+据《Straits Times》2021年9月17日电，柬埔寨上周启动了一项关于 Sinovac疫苗对6个月至17岁青少年的有效性的全球研究。该研究将涉及南非、智利、肯尼亚、马来西亚和菲律宾的1.4万名儿童和青少年，但统治柬埔寨三十多年的强人领袖洪森对安全问题不屑一顾。
+
+柬埔寨的大部分注射剂来自中国——Sinovac 和国药——但该国也在使用一些英国开发的阿斯利康和美国强生公司的剂量，该国已为其 1600 万人口中的大约 72% 接种了两剂疫苗，远远领先于更大、更富裕的邻国泰国和越南。游客将免于 14 天的酒店隔离，但必须在特定省份停留至少 7 天。
+
+**4. [迪士尼世界员工抗议公司的疫苗授权](https://political-viewer.com/2021-09-18/disney-world-employees-to-protest-companys-vaccine-mandate)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-20T094437.470.png)
+
+据《政治报》2021年9月17日电，华特迪士尼公司（Walt Disney Company）在7月正式颁布了对员工必须在60天内强制性进行疫苗接种；美国总统乔·拜登于2021年8月23日在华盛顿特区白宫的南苑礼堂口头介绍中共病毒疫苗的情况。
+
+周一上午，美国食品和药物管理局（FDA）颁布了对16岁及以上人群的辉瑞-生物技术公司冠状病毒疫苗的“全面批准”，使辉瑞成为美国第一个超越紧急使用状态的疫苗；”疫苗必要条件是有效的。更多的公司正在制定这些要求，”拜登告诉记者，他称赞商业风向标在疫苗要求方面”引领潮流”。与此同时，拜登正努力从联邦层面强制要求接种疫苗，命令劳工部根据《职业安全与健康法》发布一项紧急临时标准，要求拥有100名以上员工的公司要求接种疫苗或实施每周测试。
+
+周四，24位共和党总检察长致信总统，告诫他们“将寻求一切可用的合法选择”来追究拜登的责任，并 “维护法治”。
+
+**5. [反封锁抗议者在墨尔本内城区发生冲突，悉尼、布里斯班和拜伦湾的集会规模较小](https://www.abc.net.au/news/2021-09-18/melbourne-public-transport-suspended-for-anti-lockdown-protest/100472436)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-20T094624.999.png)
+
+据《澳广网》2021年9月17日电，周六下午 12:00 左右，反封锁示威者在墨尔本市的里士满集会，并无视当局要求他们留在家中的请求。警察包围和逮捕了在里士满Bridge Road的人，余下数百人仍沿着 Burnley Street 移动，警方对这这群和平示威者使用了辣椒喷雾；警方表示，全天有 10 名警察受伤，其中 6 人因抗议者向他们投掷瓶子和石头而受伤，被送往医院。
+
+维多利亚州警察指挥官马克·加利奥特（Mark Galliott）谴责抗议者及其暴力行为：“警察的法规被践踏，他们不是来工作的。他们在这里提供帮助并[以] 确保社区安全。我们来上班不是为了让法规被践踏、殴打，最后带着骨折（伤）回家。”
+
+当局表示，有 235 人在抗议活动中被捕，193 人因违反 CHO 指示而被捕，其他几人因一系列罪行被捕，包括袭击警察、暴乱行为、武器和毒品犯罪。应维多利亚州警察局长的要求，进出 CBD 的公共交通被停止，在上个月警察和抗议者发生暴力冲突后，墨尔本市长支持了这一举措；上午 8:00 至下午 2:00 期间，前往中央商务区的火车、电车和公共汽车被取消，市内增派警察对试图参加集会的人进行罚款和逮捕；进入该市的主要道路被关闭，只有那些持有有效许可证或有医疗或接种疫苗预约证据的授权工作人员才能通过路障进入。
+
+在新南威尔士州远北海岸的拜伦湾也有两三百不戴口罩的人聚集在拜伦湾法院外和平抗议，警方在米德尔顿街的两端排起了长队，以阻止抗议活动进入该镇中央商务区的其他地方。警司戴夫·罗特尔 (Dave Roptell) 表示，根据公共卫生命令，特威德和拜伦地区的户外聚集人数不得超过 20 人，否则将会进行逮捕；昆士兰警方发言人表示，抗议者表现良好，但社交媒体上的报道称已逮捕；数千人聚集在布里斯班的中央商务区和黄金海岸，反对限制、戴口罩和接种疫苗。
+
+**6. [英格兰医院隐瞒近四分之一的中共病毒患者住院率](https://www.zerohedge.com/covid-19/almost-quarter-covid-patients-england-are-being-treated-something-else)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-20T095003.764.png)
+
+据《零对冲》援引《[每日邮报](https://www.dailymail.co.uk/news/article-10000899/A-QUARTER-NHS-beds-taken-Covid-patients-primarily-treated-reasons.html)》2021年9月18日电，英国卫生服务统计数据报告显示，9月14日有6146张NHS床位被中共病毒患者占用，这是现有数据的最新日期。其中有23%（1425人）原先是“健康”的，但由于住院后而被感染；在中部地区，有整整三分之一的病人是住院后踩感染中共病毒的；该报告承认，英国有多达一半的病人都是住院后才被感染中共病毒的。所以如果住院率不断上升，感染病毒的案例也会随之增加。
+
+正如我们之前强调的那样，尽管疫苗本应防止住院，但许多为以前的封锁进行游说的专家都声称，病毒的感染率正处于一个新浪潮中，将强制实施新的封锁限制。英国政府认为，疫苗护照事实上将形成对冬季中共病毒浪潮的“第一道防线”。
+
+（文章仅代表作者本人观点，与Gnews无关）
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
+
+
 
 0
