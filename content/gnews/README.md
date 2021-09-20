@@ -37,14 +37,14 @@
 ### [9/14郭文贵直播：呼吁香港同胞们不要使用Facebook等社交媒体（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [交通事故](/content/gnews/9/README.md)
- ` 纽约香草山MOS03`
+### [未接种疫苗并不危险，接种了疫苗的人是危险的](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [FDA小组拒绝为16-65岁的人注射辉瑞公司的增效疫苗针剂](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [世卫敦促每个人接种疫苗，却拒绝分享员工的疫苗数据](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：澳洲民众自发集会抗议强制注射疫苗](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [一位健康母亲在接种阿斯利康疫苗后死亡](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
 
 ### [每日快报：实验室泄漏、科学家失踪、掩盖真相：拼凑“武汉到底发生了什么”](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -52,7 +52,7 @@
 ### [议员们因阿富汗问题要求拜登辞职](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共和党议员要求知道谁掌管白宫](/content/gnews/14/README.md)
+### [FDA小组拒绝为16-65岁的人注射辉瑞公司的增效疫苗针剂](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [9月17日北京472路公交事故是否与接种疫苗有关](/content/gnews/15/README.md)
@@ -67,23 +67,23 @@
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|纽约时代广场现大量人群抗议强制政策](/content/gnews/19/README.md)
+### [恒大银行贷款利息逾期将引发中共国金融不稳定涟漪效应](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [恒大已无力支付下周到期利息](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [每一美元恒大债券的交易价格现在仅为20美分](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国军方强制接种疫苗，未接种者将被解雇且失去福利](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [疫苗已导致令人瞠目结舌的副作用和死亡事件](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|纽约时代广场现大量人群抗议强制政策](/content/gnews/24/README.md)
  ` MOSREC`
-
-### [有声|加拿大卫生官员表示，5-11岁儿童疫苗或将于年底批准上市](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声| WORLD WIDE RALLY FOR FREEDOM 我的身体，我做主—— 全球联合大集会温哥华站](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声| 联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [FDA投票反对给16岁以下儿童注射辉瑞疫苗加强针](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [德国反欺诈律师：政府应该努力让民众保持冷静，而不是制造恐慌](/content/gnews/24/README.md)
- ` Runaway`
 
 ### [秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [国际要闻汇编](/content/gnews/47/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编](/content/gnews/48/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [香港选委会选举：民主派近乎绝迹](/content/gnews/49/README.md)
+### [中共节前禁台水果](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [联合国大会将启用荣誉系统确任参会者接种疫苗与否](/content/gnews/50/README.md)
+### [暗通款曲投票秀](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [今夜举杯为明天](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本三连休反映出的疫苗歧视等问题](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国环球影城落户北京 将上演超级“娱乐至死”大戏](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国际要闻汇编](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [香港选委会选举：民主派近乎绝迹](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
+
+### [联合国大会将启用荣誉系统确任参会者接种疫苗与否](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [由恒大引发的飓风](/content/gnews/51/README.md)
+### [由恒大引发的飓风](/content/gnews/56/README.md)
  ` Charlie`
 
-### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/52/README.md)
+### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/57/README.md)
  ` 英喜-粵語組`
-
-### [当英国能源成本高涨，如山崩般的通胀将一触即发](/content/gnews/53/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/54/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [一句话引发的思考](/content/gnews/55/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机](/content/gnews/56/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [朝鲜正在“全速”推进其核计划](/content/gnews/57/README.md)
- ` Shuizhuyu`
 
