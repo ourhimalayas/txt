@@ -2,40 +2,29 @@
 ---
 
 
-## 抗议不合理薪资，澳洲联邦快递发起24小时罢工
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1543240/)
+## 为大幅提升法国战机效能 台湾与法国签支援协议
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1543297/)
 
-#### 编译报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-22.png)
-图片来源：Big Rigs
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16320978891.png)
+编辑摘要：
 
-澳洲联邦快递上周四决定将进行24小时罢工，预计将导致包裹递送延误。
+台湾国防部9月17日公告，国防部国防采购室13日与法国幻象战机制造商“达梭公司”签署为期5年、金额达到新台币七亿九千多万元的“技术支援服务”协议，将显著提升幻象2000-5型战机的妥善率。
 
-运输工人工会（TWU）全国秘书迈克尔·凯恩（Michael Kaine）表示，联邦快递97%的工人投票决定采取罢工行动，因为员工一直存在担忧。
+幻象战机在台服役已达24年。台湾空军在2018年起至2022年止，与法方签署多项协议，目标是“物”，针对幻象战机的多项采购案，可将战机妥善率提高到75%。
 
-“所有运输工人都想要一份合理的工作，并有安全承诺，包括对使用外部承包商的限制，承诺在外包之前将工作分配给现有员工，以及员工雇佣同工同酬。”
+新的“技术支援服务”协议已于9月14日生效，到2026年9月13日止，为期5年。这次协议的目标是“人”，属于技术人员的劳务服务。法国达梭公司将派出技术人员直接常驻台湾，协助维持幻象战机的妥善率及高效能战力，达到有效制敌丶捍卫台海安全的目标。履约地点就在新竹空军基地。
 
-此举是在澳洲邮政旗下的星轨物流（StarTrack）上周因大流行和在线购物导致需求激增，而低工资以及未能满足工人需求而进行罢工之后采取的。
+新闻参考链接：[https://www.rfi.fr/cn/法国/20210919-为大幅提升法国战机效能-台湾与法国签支援协议](https://www.rfi.fr/cn/法国/20210919-为大幅提升法国战机效能-台湾与法国签支援协议)
 
-迈克尔·凯恩表示，在员工加班到“饿死”、极端需求和缺乏工作保障情况下，让70%的员工投票决定罢工。
+* * *
 
-他在一份声明中说：“星轨物流故意并一再造成（对员工诉求）不合理的拖延，并没有解决其员工的工作保障问题。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-“几个月来，为了满足市场极端需求而在运输卡车和配送中心大汗淋漓的工人们一直在幕后奋战，以保护他们的工作免受外包给低薪工人。而公司对支持采取行动的工人发出的大量警告置若罔闻，仅仅呼吁进行危机谈判。”
 
-澳大利亚邮政在2021财年的收入增长了10%以上，销售额达到创纪录的83亿澳元。
+编辑：【英国伦敦喜庄园编辑部】
 
-本月早些时候，由于500名员工被迫自我隔离，该公司不得不暂停在新南威尔士州、维多利亚州和首都领地的包裹取件。
-
-新闻来源：[FedEx driver strike could see thousands of parcels, deliveries delayed | Sky News Australia](https://www.skynews.com.au/business/fedex-driver-strike-could-see-thousands-of-parcels-delayed/news-story/b81a6b28bbc9ae0bc1b30c42e76be386)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 0

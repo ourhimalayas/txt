@@ -67,65 +67,65 @@
 ### [补贴、产假难填育养“黑洞”](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [塔克-卡尔森：如果他们可以强迫你，注射一种 你不需要的疫苗](/content/gnews/19/README.md)
+### [9/03 郭文贵直播：华夏幸福是平安马明哲倒下的第一张多米诺骨牌（粤语配音）](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/3郭文贵直播：北京证交所的成立挑战的就是美元和美国金融（粤语配音）](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [塔克-卡尔森：如果他们可以强迫你，注射一种 你不需要的疫苗](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【 #G时新闻 】加拿大多伦多枫叶农场全球反疫苗护照示威大游行！](/content/gnews/20/README.md)
+### [【 #G时新闻 】加拿大多伦多枫叶农场全球反疫苗护照示威大游行！](/content/gnews/22/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [奥布莱恩主张“豪猪防御策略”阻止中共入侵台湾](/content/gnews/21/README.md)
+### [奥布莱恩主张“豪猪防御策略”阻止中共入侵台湾](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [妮琪·米娜因质疑新冠疫苗的安全性而被推特噤声](/content/gnews/22/README.md)
+### [妮琪·米娜因质疑新冠疫苗的安全性而被推特噤声](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|中共国正式申请加入太平洋贸易协定欲提高其经济影响力](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [宁南时事脱口秀](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [墙国版TikTok限制14岁以下用户使用该程序，加强对青少年的思想管控](/content/gnews/25/README.md)
+### [中国少数族裔和持不同政见人士 在东京举行抗议游行 呼吁抵制北京冬奥会](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线: 中共国疫苗完全接种人数逾10亿](/content/gnews/26/README.md)
+### [如继续拒绝美国审计，SEC将在2024年初或更早强制270家中概股退市](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [墙国版TikTok限制14岁以下用户使用该程序，加强对青少年的思想管控](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线: 中共国疫苗完全接种人数逾10亿](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [WORLD WIDE RALLY FOR FREEDOM 我的身体，我做主—— 全球联合大集会温哥华站](/content/gnews/27/README.md)
+### [WORLD WIDE RALLY FOR FREEDOM 我的身体，我做主—— 全球联合大集会温哥华站](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：打疫苗者感染Delta变种病毒的风险是自然感染者的13倍](/content/gnews/28/README.md)
+### [秘翻在线：打疫苗者感染Delta变种病毒的风险是自然感染者的13倍](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美卫生保健部人士爆料：禁止医生用硫酸羟氯喹和伊维菌素给新冠患者治病](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
+### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共再次打压台湾 暂停进口台湾水果释迦和莲雾](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/31/README.md)
+### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抗议不合理薪资，澳洲联邦快递发起24小时罢工](/content/gnews/32/README.md)
+### [抗议不合理薪资，澳洲联邦快递发起24小时罢工](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港职工会联盟宣布解散](/content/gnews/33/README.md)
+### [香港职工会联盟宣布解散](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [债务问题或引发经济灾难](/content/gnews/34/README.md)
+### [债务问题或引发经济灾难](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0919](/content/gnews/35/README.md)
+### [DC每日热点0919](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/36/README.md)
+### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/37/README.md)
  ` xiaobaige`
 
-### [打折、实物兑付能拯救恒大吗？](/content/gnews/37/README.md)
+### [打折、实物兑付能拯救恒大吗？](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
