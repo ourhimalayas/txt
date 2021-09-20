@@ -2,30 +2,85 @@
 ---
 
 
-## IMF审查其总裁施压员工以提高中共国排名的行为
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1543248/)
+## 新冠病毒预防和治疗方案合辑
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543474/)
 
-**撰稿：日本东京方舟农场 海星**
+#### Gnews病毒真相小组 整理
 
-9月17日，国际货币基金组织(IMF)表示，基金组织执行董事会正在审查一份独立报告，该报告涉及IMF总裁格奥尔基耶娃(Kristalina Georgieva)曾经对员工施压，以提高中共国排名的行为。
-据《路透社》报道，根据16日公布的一份独立报告，世界银行领导人，包括当时任职世界银行首席执行官(CEO)的格奥尔基耶娃，对员工施加不当压力，要求他们改变数据，以提高中共国在该行《2018年营商环境报告》中的排名。
+本文汇集了Gnews对不同医生和组织防治新冠病毒方案翻译和整理的不同版本，供大家交叉验证和参考。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/微信图片_20210920005636.png)图片来自于网络
+大胡子医生关于新冠病毒的网站为：[https://vladimirzelenkomd.com](https://vladimirzelenkomd.com)
 
-另据《法广》报道，该报告是由律师事务所WilmerHale应世界银行道德委员会的要求编写的。WilmerHale表示，正在编写第二份报告，这份报告将涉及与数据违规有关的工作人员潜在的不当行为。
-格奥尔基耶娃利用此前安排好的与IMF的2,700多名工作人员的会议，对此事失口否认。但IMF发言人赖斯(Gerry Rice)表示，IMF董事会依然在进行审查。他补充道，“作为此类事件常规程序的一部分，道德委员会将向董事会报告。”
-赖斯并未立即就IMF道德委员会何时向执行董事会报告置评。
+美国前线医生联盟的网站为：[https://covid19criticalcare.com](https://covid19criticalcare.com)
 
-*注：本文仅代表作者观点，与 Gnews无关*
 
-*参考链接：*
 
-[IMF正在审查涉及其总裁任世行CEO时施压提高中国排名的报告–发言人](https://cn.reuters.com/article/imf-georgieva-probe-china-0918-idCNKBS2GD29B)
+## 纽约香草山医疗部
 
-[格奥尔基耶娃否认任职世行时施压提高中国排名指控 IMF仍对此道德审查](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210918-%E6%A0%BC%E5%A5%A5%E5%B0%94%E5%9F%BA%E8%80%B6%E5%A8%83%E5%90%A6%E8%AE%A4%E4%BB%BB%E8%81%8C%E4%B8%96%E8%A1%8C%E6%97%B6%E6%96%BD%E5%8E%8B%E6%8F%90%E9%AB%98%E4%B8%AD%E5%9B%BD%E6%8E%92%E5%90%8D%E6%8C%87%E6%8E%A7-imf%E4%BB%8D%E5%AF%B9%E6%AD%A4%E9%81%93%E5%BE%B7%E5%AE%A1%E6%9F%A5)
 
-* * *
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/Ivermectin-HCQ-1.jpg)](https://gnews.org/zh-hans/1485849/)
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+
+### [常用新冠预防及治疗方案](https://gnews.org/zh-hans/1485849/)
+
+[常用新冠预防及治疗方案, 具体用药剂量和方法，包含大胡子医生，以及美国前线医生联盟的翻译版本。](https://gnews.org/zh-hans/1485849/)
+
+
+
+
+
+
+
+## 香草山翻译部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/预防.jpg)](https://gnews.org/zh-hans/1493316/)
+
+
+### [大胡子泽连科医生针对新冠病毒的预防方案](https://gnews.org/zh-hans/1493316/)
+
+[此方案来自泽连科医生，他是纽约州拥有合法执照的医生。我们不向任何人提供任何医疗上的建议或药方，请您在做任何医药方面的决定前，务必咨询您的医生！](https://gnews.org/zh-hans/1493316/)
+
+
+
+
+
+
+
+## 大废墙整理的版本
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-08-14-07.58.30-1280x720-1.png)](https://gnews.org/zh-hans/1465563/)
+
+
+### [Vladimir Zelenko的防治方案摘抄](https://gnews.org/zh-hans/1465563/)
+
+[此方案来自泽连科医生。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465563/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/90552.jpg)](https://gnews.org/zh-hans/1465617/)
+
+
+### [美国前线医生联盟的防治方案翻译](https://gnews.org/zh-hans/1465617/)
+
+[此方案来自FLCCC。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465617/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/178e030207b745602afc082b187873a3.png)](https://gnews.org/zh-hans/1541435/)
+
+
+### [关于青蒿素哌喹片的使用](https://gnews.org/zh-hans/1541435/)
+
+[关于黄花蒿、青蒿素以及青蒿素哌喹片的使用资讯。](https://gnews.org/zh-hans/1541435/)
+
+
+
+
+
+
 
 0

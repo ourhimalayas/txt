@@ -13,29 +13,29 @@
 
 ---
 
-### [致邦妮-亨利博士、阿德里安-迪克斯和约翰-霍根BC州长的公开信](/content/gnews/1/README.md)
+### [联盟工作汇报文字版2021.9.19](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
+
+### [新冠病毒预防和治疗方案合辑](/content/gnews/2/README.md)
+ ` 中共病毒真相`
+
+### [6800亿债务到期，中国华融招募重组投资人](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [致邦妮-亨利博士、阿德里安-迪克斯和约翰-霍根BC州长的公开信](/content/gnews/4/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [IMF审查其总裁施压员工以提高中共国排名的行为](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [美日印澳“四方安全对话”将推动建立半导体安全供应链](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [9/7郭文贵直播：只有中共国“原始股东”和“董事会成员”才能玩艺术品拍卖（粤语配音）](/content/gnews/6/README.md)
+### [9/14郭文贵直播：中共在海外存了20万亿美元（粤语配音）](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/6郭文贵盖特：黑天鹅降临天安门对中共造成巨大影响（粤语配音）](/content/gnews/7/README.md)
+### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大庞氏骗局爆雷,扫厕所的许家印卖力搅粪中南坑](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
+### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
@@ -67,26 +67,26 @@
 ### [补贴、产假难填育养“黑洞”](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/19/README.md)
+### [9/18郭文贵盖特：全球战友服用爆料革命药物转危为安的案例不胜枚举（粤语配音）](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/20/README.md)
+### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/21/README.md)
+### [纳瓦罗先生：必须切断为中共房地产泡沫输血的美国资本（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：张宏伟拿到人类有史以来最大中介费1200亿美元（粤语配音）](/content/gnews/22/README.md)
+### [班农先生：防火墙没有被推倒是因为西方跟中共勾兑的人不愿意（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/10郭文贵直播：共产党会灭得比我们想象得要更干脆、更快（粤语配音）](/content/gnews/23/README.md)
+### [9/14郭文贵直播：呼吁香港同胞们不要使用Facebook等社交媒体（粤语配音）](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/10郭文贵直播：中共虚假艺术品套走银行亿万真金白银（粤语配音）](/content/gnews/24/README.md)
+### [9/14郭文贵直播：郭文贵首次提出“以(疫)苗灭共”（粤语配音）](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联盟工作汇报文字版2021.9.19](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
+### [秘翻在线：以色列用卫星遥控机枪斩首伊朗顶级核科学家](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [香港少女陈彦霖逝世两周年祭](/content/gnews/26/README.md)
  ` GTV新闻访谈`
@@ -106,25 +106,25 @@
 ### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [6800亿债务到期，中国华融招募重组投资人](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/33/README.md)
+### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/34/README.md)
+### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/35/README.md)
+### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯：日本自民党总裁选举论战全面展开；感染人数降至3500人以下](/content/gnews/36/README.md)
+### [银河快讯：日本自民党总裁选举论战全面展开；感染人数降至3500人以下](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：CNBC暗讽SpaceX埃隆·马斯克，只因：“乔·拜登睡觉呢”](/content/gnews/37/README.md)
+### [秘翻在线：CNBC暗讽SpaceX埃隆·马斯克，只因：“乔·拜登睡觉呢”](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/38/README.md)
+### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗](/content/gnews/47/README.md)
+### [澳英美AUKUS联盟背后的战略意图](/content/gnews/47/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/48/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/49/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/12郭文贵直播：张宏伟拿到人类有史以来最大中介费1200亿美元（粤语配音）](/content/gnews/50/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/10郭文贵直播：共产党会灭得比我们想象得要更干脆、更快（粤语配音）](/content/gnews/51/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/10郭文贵直播：中共虚假艺术品套走银行亿万真金白银（粤语配音）](/content/gnews/52/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/7郭文贵直播：只有中共国“原始股东”和“董事会成员”才能玩艺术品拍卖（粤语配音）](/content/gnews/53/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/6郭文贵盖特：黑天鹅降临天安门对中共造成巨大影响（粤语配音）](/content/gnews/54/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [恒大庞氏骗局爆雷,扫厕所的许家印卖力搅粪中南坑](/content/gnews/55/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [读《道德经》第八章](/content/gnews/48/README.md)
+### [读《道德经》第八章](/content/gnews/57/README.md)
  ` 纽约香草山MOS03`
-
-### [读《道德经》第九章](/content/gnews/49/README.md)
- ` 纽约香草山MOS03`
-
-### [新冠病毒预防和治疗方案合辑](/content/gnews/50/README.md)
- ` 中共病毒真相`
-
-### [钱去哪里了？](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [打击平安陆金所马明哲是良知正义的召唤](/content/gnews/52/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [老师已被“黄” ——牛逼，蓝金黄](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [接种两剂疫苗，奥运金牌得主依然感染住院](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/56/README.md)
- ` 墨尔本雅典娜农场`
-
-### [合法获取抗击病毒药物的合辑](/content/gnews/57/README.md)
- ` 中共病毒真相`
 

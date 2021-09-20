@@ -2,31 +2,51 @@
 ---
 
 
-## 墨尔本建筑工人抗议强制接种疫苗引发暴力冲突
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1543578/)
+## 福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543713/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/112ae778d9631af86a31c91f2b3e81ad.jpg)图片来源：News.com.au
-**整理报道：**翼族
+栏目记者/责任编辑：一花一世界
 
-周一早上，数百名身着反光工作服的建筑工人聚集在CFMEU（建筑/林业/海运/采矿/能源联盟）墨尔本总部大楼外，反对维多利亚州政府强制要求所有建筑工人必须在9月23日之前至少接种一剂中共病毒（Covid-19）疫苗的规定。
 
-抗议者从清晨开始聚集在CFMEU的办公室外，到中午时分抗议团体增加到数百人，示威者们涌上街头并阻塞了交通。一群抗议者后来脱离了主要人群，向议会游行。
 
-CFMEU联盟工会国务秘书约翰·塞特卡（John Setka）试图让人群平静下来，但愤怒的建筑工人对强制性疫苗要求表示强烈不满，一些工人称塞特卡为“蛇”，随后他被迫退入大楼。工会代表在入口外形成了一道人墙，以阻止示威者进入大楼。最后反对强制接种疫苗的示威者与工会官员发生冲突并投掷面包，墨尔本反对建筑限制的抗议活动演变为暴力冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-在周一的新闻发布会上，维州州长丹尼尔·安德鲁斯(Daniel Andrews)表示，抗议活动无助于遏制病毒的蔓延，他说：“（建筑）这个行业的开放率为25%，我们希望达到50%，接种疫苗是其中非常重要的一部分，抗议不起作用，接种疫苗有效，遵守规则有效，这就是你们保持开放的方式。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-参考链接：[Wild melee erupts in Melbourne as hundreds of anti-vax tradies protest against mandatory Covid jabs – with a union boss branded ‘Dan Andrews’ b\*\*\*\*h’ and a BREAD CRATE hurled at security](https://www.dailymail.co.uk/news/article-10007743/Covid-19-Australia-Melbourne-construction-workers-protest-mandatory-jabs.html)
 
-*编辑/发布：翼族*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+本周日，福奇在参加ABC新闻的“这一周 ”节目时说：疫苗将在秋季用于12岁以下儿童。 辉瑞公司的疫苗可能会在Moderna疫苗之前提供给儿童。 儿童最早可以在10月底前接受注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1.1-8.jpg)
+Insider之前报道，辉瑞公司和Moderna公司都在3月份开始招募儿童参加其疫苗试验。Moderna之前说，它预计将在秋末冬初获得有关其疫苗在儿童中的疗效数据，而辉瑞公司计划在9月底前准备好数据。 福奇说，这些数据可能会在“中秋至秋末”的某个时候提供给美国官员，以决定是否授权11至5岁的儿童使用疫苗。 美国食品和药物管理局可能需要几周时间来审查这些数据，然后再就提供紧急使用授权来使用这些疫苗做出最终决定。 前美国食品和药物管理局专员Scott Gottlieb说，他是辉瑞公司董事会成员。在最佳情况下，该疫苗可以在11月底之前被授权用于6个月大到5岁的儿童。 邪恶贪婪的利益集团终于要将魔爪伸向无辜的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-106.jpg)
+参考链接： 
+[Fauci said a COVID-19 vaccine will be available to young children in the fall](https://www.businessinsider.com/covid-19-vaccinechildren-in-the-fall-fauci-said-2021-9)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
 
 0
