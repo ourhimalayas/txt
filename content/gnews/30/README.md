@@ -2,23 +2,32 @@
 ---
 
 
-## 秘翻在线：辉瑞公司被指控在疫苗合同要求上“勒索”巴西
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544073/)
+## 恒大用积压房产冲抵理财款，债主无奈再度被套
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544165/)
 
-#### 翻译/撰稿：zzballack
+栏目记者/责任编辑：修文
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-2-6.jpg)图片来源：U.S.News
-据《英国卫报》（The Guardian）9月10日报道，辉瑞公司被指控“勒索”巴西，因其在与巴西签署的1亿剂中共病毒疫苗合同中要求保护自己免受潜在的疫苗副作用带来的法律诉讼。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-巴西政府今年3月与辉瑞公司签署了价值10亿美元的疫苗合同，尽管他们事先对此提出了抱怨，但仍同意“就疫苗可能产生的任何副作用签署一份责任豁免书，这样辉瑞公司不会因疫苗产生的严重副作用而承担任何民事责任，而且是无限期的。”该合同还规定，如果出现与疫苗有关的任何合同纠纷，巴西将让位于美国法院，由后者处理纠纷。自20世纪80年代末以来，许多国家与大型制药公司之间的合同中普遍存在免于赔偿的规定。
 
-该合同4月份在巴西卫生部的官方网站上被泄露，之前因与辉瑞公司的保密协议而未被公开。该合同不久后被删除，直到8月份一位法国律师才在推特上公布了该合同的有关信息。合同中写道：“买方在此同意让辉瑞公司、BioNTech公司以及他们的每一个附属机构免于由中共病毒疫苗引起的、产生的、与之相关的或由之产生的任何和所有诉讼、索赔、行动、要求、损失、损害、责任、和解、惩罚、罚款、费用和开支，并为其赔偿、辩护和使其免受伤害。“辉瑞还在合同中要求“任何情况下都不会受到或承担任何延迟交付的处罚”，“巴西同意在未经辉瑞公司事先书面同意的情况下，不在宣传稿、广告或任何其他出版物中使用辉瑞公司的名称、商号、服务标记、商标、商业外观或徽标”。
 
-英国的非盈利机构新闻调查局 (Bureau of Investigative Journalism)今年2月曾报道说，辉瑞公司要求巴西和阿根廷拿出主权资产作为保证赔偿的抵押品，以及用存入外国银行账户的钱创建一个担保基金。但辉瑞公司却说它没有干预“任何国家的外交、军事或文化方面的重要资产”。英国组织“现在的全球正义”（Global Justice Now）的阿蕾娜·伊万诺娃（Alena Ivanova）说：“辉瑞公司非常乐意看到其由公众资助研发的中共病毒疫苗赚了大钱，却不想承担疫苗带来的任何风险。这是制药公司再熟悉不过的举动，相较于保护公众，他们似乎对保护其利润更感兴趣。我们不能继续相信私有企业提供的救命药物，而且他们借其向主权国家勒索赎金。”
+自由时报9月20日消息，恒大集团财务问题持续恶化，其子公司恒大财富已爆雷，四百亿理财产品逾期无法兑付。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-20-at-7.54.59-PM.png)
+9月18号,恒大财富启动 实物资产兑付的工作，将把所有未售住宅、公寓、商铺等，分别按72折、54折和48折出售给选择实物资产兑付的客户冲抵 所欠理财款。据统计有超过七万民众购买恒大财富的理财产品，包括许多恒大集团的员工，其中有近四百亿人民币的理财产品已经到期。理财客户为减少损失，唯恐血本无归。只能接盘恒大已经卖不动的库存房，并且再出钱补齐尾款，理财客户变成购房客户，虽属无奈但再次被恒大套牢。
+(本文仅代表作者观点)
 
-辉瑞公司的拉丁美洲总裁卡洛斯·马利洛 (Carlos Murillo)说，赔偿条款在110多个国家都有实施，并拒绝了该公司有剥削行为的说法。辉瑞公司发言人莎朗·卡斯蒂略（Sharon Castillo）说，赔偿条款在公共卫生紧急情况下很常见，“在双边谈判的背景下，辉瑞公司和BioNTech公司无意干涉任何国家的外交、军事或文化上的重要资产，任何与此相反的意见都是误导，与事实不符。辉瑞公司为疫苗研发自筹资金，甚至在不知道该疫苗是否会成功之前就部署了20亿美元的资金。最近我们又为疫苗研发额外支出了6亿美元，这将使我们在2021年的研发总开支超过10亿美元。我们也会认真对待与辉瑞疫苗有关的不良反应报告。”
+参考链接：[千億理財商品到期 恆大用「打72折」房產兌付](https://news.ltn.com.tw/news/world/paper/1473886)
 
-新闻来源：[Pfizer accused of holding Brazil ‘to ransom’ over vaccine contract demands](https://www.theguardian.com/global-development/2021/sep/10/pfizer-accused-of-holding-brazil-to-ransom-over-vaccine-contract-demands)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

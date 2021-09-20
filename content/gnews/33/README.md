@@ -2,21 +2,28 @@
 ---
 
 
-## 秘翻在线：北交所预约开户火爆是中共最后的疯狂
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544172/)
+## 朝鲜正在“全速”推进其核计划
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1544282/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-20-195206.jpg)
-根据2021年9月19日 UC网报道，目前中共国有近20家券商的APP支持北交所预约开户，场面火爆。
+翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
 
-文章谈到成立北交所，券商是最大的受益行业，北交所还把个人投资者的资金门槛降低到 50万元，以吸引更多的投资者加入。新闻称预计开通北交所用户数在332万-789万户之间。
-
-因为北交所上市公司主体是创新型中小企业，它们的经营业绩和股价波动大，多家券商也对参与北交所交易做了风险提示。
-
-正如郭文贵先生曾经直播谈到北交所的本质，该证券交易所的建立是中共国金融国际化、政治化、彻底独裁化的开端，旨在人民币国际化取代美元， 加码金融超限战，但这只会加速中共的灭亡。
-
-**[新闻来源](https://iflow.uc.cn/webview/news?app=uc-iflow&amp;aid=7547418783446246375&amp;cid=88446&amp;zzd_from=uc-iflow&amp;recoid=&amp;rd_type=share&amp;sp_gz=0&amp;pagetype=share&amp;btifl=100&amp;uc_share_depth=1&amp;uc_param_str=dndsfrvesvntnwpfgipc)**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0534.jpg)
 
 
+图片来源：法新社
+
+据国际核监督机构称，朝鲜有争议的核计划正在全面展开。国际原子能机构（IAEA）负责人拉斐尔格罗西周一在维也纳表示，这包括浓缩铀和提取钚。格罗西在国际原子能机构成员国年会开始时说：“在朝鲜民主主义人民共和国，核计划正在全速推进。” 平壤显然违反了几项联合国决议。
+
+原子能机构视察员无法进入这个孤立的国家，该国已经为发展核武器进行了多次核试验爆炸。然而，维也纳原子能管理局使用卫星来观察核设施。
+
+在 IAEA 会议的准备阶段，IAEA 报告了朝鲜在其备受争议的宁边核中心重启核反应堆的迹象。这个小型反应堆可以供应制造原子弹所需的钚。核弹头也可以用浓缩铀制造。
+
+一周前，朝鲜报告了具有重要战略意义的导弹试射成功，并表示导弹也在研制用于核弹头。多年来，平壤一直在推动发展导弹，不仅可以打击韩国和日本，还可以携带核弹头远至美国。根据美国组织军控协会从 2020 年 8 月开始的估计，朝鲜拥有 30 至 40 枚核弹头。
+
+[https://www.faz.net/aktuell/politik/ausland/laut-iaea-treibt-nordkorea-atomprogramm-mit-vollgas-voran-17546098/iaea-chef-rafael-grossi-am-17546115.html](https://www.faz.net/aktuell/politik/ausland/laut-iaea-treibt-nordkorea-atomprogramm-mit-vollgas-voran-17546098/iaea-chef-rafael-grossi-am-17546115.html)
+
+免责声明：本文观点只代表作者， 与Gnews平台无关。
+
+*编辑/ 校对/ 发布： Shuizhuyu*
 
 0

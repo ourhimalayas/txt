@@ -2,43 +2,20 @@
 ---
 
 
-## 澳洲记者对福奇的最新揭露
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1544134/)
+## 秘翻在线：北交所预约开户火爆是中共最后的疯狂
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544172/)
 
-- 编译：Jenny Ball
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-20-195206.jpg)
+根据2021年9月19日 UC网报道，目前中共国有近20家券商的APP支持北交所预约开户，场面火爆。
 
+文章谈到成立北交所，券商是最大的受益行业，北交所还把个人投资者的资金门槛降低到 50万元，以吸引更多的投资者加入。新闻称预计开通北交所用户数在332万-789万户之间。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5BB43648-799C-4093-A534-69AFEE2713CF-scaled-1.jpeg)
+因为北交所上市公司主体是创新型中小企业，它们的经营业绩和股价波动大，多家券商也对参与北交所交易做了风险提示。
 
-我们首先在 2020 年注意到武汉病毒研究所（武毒所），并在 4 月注意到该研究所用活体动物进行了实验。
+正如郭文贵先生曾经直播谈到北交所的本质，该证券交易所的建立是中共国金融国际化、政治化、彻底独裁化的开端，旨在人民币国际化取代美元， 加码金融超限战，但这只会加速中共的灭亡。
 
-我们也知道，中共国的所有病毒学工作都与中共军队有关，因此，中共国在这方面的任何工作都与中共军队有关。
-
-天空新闻的莎莉·马克森 (Sharri Markson) 即将出版一本书，这是她研究安东尼·福奇努力的结晶。几个小时前，她在天空新闻上提请注意以下内容：
-
-*我发现他（福奇）的机构资助了武毒所的 60**个项目。*
-
-*我发现早在 2012**年他就写了一篇论文，他认为功能研究的获得是：通过基因操纵冠状病毒，使它们变得更加危险和更容易传播，福奇说这值得冒大流行的风险。*
-
-*他甚至资助了研究，他的机构与中共国军方合作，资助了武毒所的冠状病毒研究。*
-
-这是《天空新闻》采访链接：[www.youtube.com](https://www.youtube.com/watch?v=nFoAczoHbV0) 在大流行的最初几个月，福奇博士从未与川普总统分享过任何这些内容。
-
-**评论：以福奇为首的科学界和没有道德底线的中共勾结，制造并释放病毒和更加邪恶的疫苗，早已经被看到真相的人们，用事实证据在GTV****，Gnews****，Gettr ****平台上揭露了出来。现在的真相是在唤醒更多的人们，因为主流媒体和社交媒体一直是中共和邪恶势力的宣传工具，他们用当今威力比原子弹更劲爆的媒体力量，几乎翻云覆雨，操纵世界。**
-
-**但真的假不了，福奇的罪恶必将最终将这样的杀人魔鬼送上纽伦堡审判。希望那一天早日到来。这要靠我们广大民众的觉醒和行动！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**素材来源：**[www.thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/breaking-dr-fauci-funded-60-projects-wuhan-institute-virology-conjunction-chinese-military/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+**[新闻来源](https://iflow.uc.cn/webview/news?app=uc-iflow&amp;aid=7547418783446246375&amp;cid=88446&amp;zzd_from=uc-iflow&amp;recoid=&amp;rd_type=share&amp;sp_gz=0&amp;pagetype=share&amp;btifl=100&amp;uc_share_depth=1&amp;uc_param_str=dndsfrvesvntnwpfgipc)**
 
 
 
