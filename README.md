@@ -103,28 +103,28 @@
 ### [纽约时代广场现大量人群抗议强制政策](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [抗议不合理薪资，澳洲联邦快递发起24小时罢工](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [香港职工会联盟宣布解散](/content/gnews/32/README.md)
- ` 纽约香草山MOS02`
-
-### [债务问题或引发经济灾难](/content/gnews/33/README.md)
- ` 纽约香草山MOS01`
-
-### [DC每日热点0919](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/35/README.md)
- ` xiaobaige`
-
-### [打折、实物兑付能拯救恒大吗？](/content/gnews/36/README.md)
+### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/37/README.md)
+### [抗议不合理薪资，澳洲联邦快递发起24小时罢工](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [香港职工会联盟宣布解散](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
+
+### [债务问题或引发经济灾难](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [美澳2+2会谈：强化对台关系，对香港和人权问题表示关切](/content/gnews/38/README.md)
+### [DC每日热点0919](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [最早一批接种辉瑞疫苗的一位意大利急救中心的工作人员染上中共病毒死亡](/content/gnews/36/README.md)
+ ` xiaobaige`
+
+### [打折、实物兑付能拯救恒大吗？](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [联合国大会高级别会议召开在即 新疆人权问题引关注](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [如日中天的苹果公司，还能延续其辉煌多久？](/content/gnews/47/README.md)
+### [恒大的事儿到底有多大？](/content/gnews/47/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [如日中天的苹果公司，还能延续其辉煌多久？](/content/gnews/48/README.md)
  ` 纽约香草山MOS02`
 
-### [IMF审查其总裁施压员工以提高中共国排名的行为](/content/gnews/48/README.md)
+### [IMF审查其总裁施压员工以提高中共国排名的行为](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [台湾增加军事预算 应对来自中共的威胁](/content/gnews/49/README.md)
+### [台湾增加军事预算 应对来自中共的威胁](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [出手](/content/gnews/50/README.md)
+### [出手](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳要求中国取消报复性贸易关税 否则免谈加入CPTPP](/content/gnews/51/README.md)
+### [澳要求中国取消报复性贸易关税 否则免谈加入CPTPP](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国货币政策会议21日起确定宽松降准开始](/content/gnews/52/README.md)
+### [美国货币政策会议21日起确定宽松降准开始](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中秋将至：港共当局“卖港者治港”选举后秋后算账](/content/gnews/53/README.md)
+### [中秋将至：港共当局“卖港者治港”选举后秋后算账](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美日印澳“四方安全对话”将推动建立半导体安全供应链](/content/gnews/54/README.md)
+### [美日印澳“四方安全对话”将推动建立半导体安全供应链](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [COVID-19疫苗加强针危险，会激起血凝块和血管渗漏](/content/gnews/55/README.md)
+### [COVID-19疫苗加强针危险，会激起血凝块和血管渗漏](/content/gnews/56/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共攻台在即，文贵先生全力护台](/content/gnews/56/README.md)
+### [中共攻台在即，文贵先生全力护台](/content/gnews/57/README.md)
  ` 波士顿五月花农场`
-
-### [美英澳形成新“铁三角”以对抗中共](/content/gnews/57/README.md)
- ` HimalayaRussia`
 
