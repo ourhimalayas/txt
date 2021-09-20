@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [由恒大引发的飓风](/content/gnews/47/README.md)
+### [联合国大会将启用荣誉系统确任参会者接种疫苗与否](/content/gnews/47/README.md)
+ ` HimalayaRussia`
+
+### [由恒大引发的飓风](/content/gnews/48/README.md)
  ` Charlie`
 
-### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/48/README.md)
+### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/49/README.md)
  ` 英喜-粵語組`
 
-### [当英国能源成本高涨，如山崩般的通胀将一触即发](/content/gnews/49/README.md)
+### [当英国能源成本高涨，如山崩般的通胀将一触即发](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/50/README.md)
+### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [一句话引发的思考](/content/gnews/51/README.md)
+### [一句话引发的思考](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论](/content/gnews/52/README.md)
+### [《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑](/content/gnews/53/README.md)
+### [支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [潜艇合同酿成外交危机, 核心源起布防中共](/content/gnews/54/README.md)
+### [潜艇合同酿成外交危机, 核心源起布防中共](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [反诈还是监控——浅析全民强制安装反诈APP](/content/gnews/55/README.md)
+### [反诈还是监控——浅析全民强制安装反诈APP](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [投资者失去信心, 恒大股价暴跌至近11年来新低](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [恒大用积压房产冲抵理财款，债主无奈再度被套](/content/gnews/57/README.md)
+### [投资者失去信心, 恒大股价暴跌至近11年来新低](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 
