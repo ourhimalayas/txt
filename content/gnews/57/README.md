@@ -2,38 +2,51 @@
 ---
 
 
-## 读《道德经》第八章
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1543664/)
+## 福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543713/)
 
-作者：香草山健身部 – 书记己嗝屁！
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
-**[原文]**
-上善似水，水善利万物而有静。
-居众人之所恶，故几于道矣。
-居，善地，心，善渊，予，善天，言，善信，政，善治，事，善能，动，善时。
-夫唯不争，故无尤。
-**[译文]**
-最善的人就好比水一样。使水能恰到好处的滋润万物，而保持静态，停留在众人都不喜欢的地方，所以最接近于“道”。最善的人，居处最善于选择地方，心胸善于保持沉静而深不可测，待人善于真诚、友爱和无私，说话善于格守信用，为政善于精简处理，能把国家治理好，处事能够善于发挥所长，行动善于把握时机。最善的人所作所为正因为有不争的美德，所以没有过失，也就没有怨咎。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Presentation1-3.jpg)图片来源：001photo.com
-**谨出作者理解，释如下：**
-在上一章以天地之道推及人道之后，这一章又以自然界的水来喻人、教人。老子首先用水性来比喻有高尚品德者的人格，认为他们的品格像水那样，一是柔，二是停留在卑下的地方，三是滋润万物而又保持宁静。最完善的人格也应该具有这种心态与行为，不但做有利于众人的事情而不与争，而且还愿意去众人不愿去的卑下的地方，愿意做别人不愿做的事情。他可以忍辱负重，任劳任怨，能尽其所能地贡献自己的力量去帮助别人，而不会与别人争功争名争利，这就是老子“善利万物而有静”的著名思想。无论是原始社会、农耕社会、封建社会、资本主义社会、共产社会，还是未来的科技社会，它们的基础都要建立在有足够水资源之上，因为发展服务对象是人，水是必须资源，不可或缺。中国的黄河、长江；印度的恒河；古代巴比伦底格里斯河和幼发拉底河；德国的莱茵河；美国的密西西比河；俄罗斯的伏尔加河；南美洲的亚马逊河流……都深得当地人的尊敬。水是生命之泉不仅可以养活农作物、养活人，还可以托运物资增加贸易等。水对一个民族的发展确实有很显著的意义，一般来说水源丰富的地区利于发展农业。而农业则是古代经济发展的基础，而经济发达的地区自然文化才能发展。所以很多民族都有母亲河的概念，就像古希腊哲学家泰勒斯认为水是世界的本源，水确实从一个方面来说是文明的发端。水，是生命的源泉，维持我们的生活，没有水，万物就会消亡，没有水，人类无法生存，水是所有生物体不可或缺的组成成分。所以老子在自然界万事万物中最赞美水，认为水德是近于道的。
+栏目记者/责任编辑：一花一世界
 
-**本文仅代表作者观点**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-**校对/发稿：童谣**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+本周日，福奇在参加ABC新闻的“这一周 ”节目时说：疫苗将在秋季用于12岁以下儿童。 辉瑞公司的疫苗可能会在Moderna疫苗之前提供给儿童。 儿童最早可以在10月底前接受注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1.1-8.jpg)
+Insider之前报道，辉瑞公司和Moderna公司都在3月份开始招募儿童参加其疫苗试验。Moderna之前说，它预计将在秋末冬初获得有关其疫苗在儿童中的疗效数据，而辉瑞公司计划在9月底前准备好数据。 福奇说，这些数据可能会在“中秋至秋末”的某个时候提供给美国官员，以决定是否授权11至5岁的儿童使用疫苗。 美国食品和药物管理局可能需要几周时间来审查这些数据，然后再就提供紧急使用授权来使用这些疫苗做出最终决定。 前美国食品和药物管理局专员Scott Gottlieb说，他是辉瑞公司董事会成员。在最佳情况下，该疫苗可以在11月底之前被授权用于6个月大到5岁的儿童。 邪恶贪婪的利益集团终于要将魔爪伸向无辜的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-106.jpg)
+参考链接： 
+[Fauci said a COVID-19 vaccine will be available to young children in the fall](https://www.businessinsider.com/covid-19-vaccinechildren-in-the-fall-fauci-said-2021-9)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
 0
