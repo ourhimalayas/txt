@@ -37,23 +37,23 @@
 ### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/9/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/9/README.md)
+ ` wenwu`
+
+### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/10/README.md)
+### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/12/README.md)
+ ` wenwu`
 
-### [克鲁兹称拜登企图以疫苗强制令转移阿富汗灾难](/content/gnews/12/README.md)
+### [克鲁兹称拜登企图以疫苗强制令转移阿富汗灾难](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [马克·米利背地“通共”令中共对美态度转强硬](/content/gnews/13/README.md)
+### [马克·米利背地“通共”令中共对美态度转强硬](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
-
-### [美民主党众议院公开全新税收政策计划](/content/gnews/14/README.md)
- ` 澳喜农场`
 
 ### [墙内疫苗大觉醒](/content/gnews/15/README.md)
  ` 银河勇气之星`
@@ -103,28 +103,28 @@
 ### [新加坡单日新增中共病毒感染人数达到去年四月以来的最高值](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/31/README.md)
+### [西媒头条 — 第69期](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/32/README.md)
+### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/33/README.md)
+### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/34/README.md)
+### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯：日本自民党总裁选举论战全面展开；感染人数降至3500人以下](/content/gnews/35/README.md)
+### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [银河快讯：日本自民党总裁选举论战全面展开；感染人数降至3500人以下](/content/gnews/37/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：CNBC暗讽SpaceX埃隆·马斯克，只因：“乔·拜登睡觉呢”](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/38/README.md)
+### [秘翻在线：CNBC暗讽SpaceX埃隆·马斯克，只因：“乔·拜登睡觉呢”](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
