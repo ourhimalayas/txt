@@ -2,34 +2,85 @@
 ---
 
 
-## 6800亿债务到期，中国华融招募重组投资人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1543655/)
+## 新冠病毒预防和治疗方案合辑
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543474/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16321120971.png)
-据新浪财经9月16日报道，继中信集团等五家国资宣布拟参与中国华融重组后，中共国华融发布增资公告，公开招募重组投资人。公告称，投资者最低认购规模不得低于1亿元人民币，需要以现金方式一次性付款。华融方面拟增发的股份面值为人民币1元/股。意向投资者应当自行了解公司的经营特点、业务规律，自行承担增资过程中产生的全部责任及后果。
+#### Gnews病毒真相小组 整理
 
-本次增资项目发布自2021年9月16日始，至2021年11月16日结束，为期40个工作日，如未产生符合条件的意向投资方，则按照5个工作日为一个周期延长信息发布，直至产生意向投资方。
+本文汇集了Gnews对不同医生和组织防治新冠病毒方案翻译和整理的不同版本，供大家交叉验证和参考。
 
-据2020年报告，华融爆出1029.03亿元的亏损规模。截至2020年末，华融资产总计16414.67亿，负债合计15772.10亿，资产负债率高达96.09%。一年内到期的应付债券余额为1075亿元，一年内到期的借款余额为5779亿元，合计超过6800亿元。
+大胡子医生关于新冠病毒的网站为：[https://vladimirzelenkomd.com](https://vladimirzelenkomd.com)
 
-华融目前可能触发即时偿付条款的借款金额为179亿元。不过，华融表示，目前银行仍然正常提供贷款，未要求提前偿还。除了公开招募投资人，华融在北京金融产权交易所公开转让旗下华融消费金融70%股权。
-
-除了恒大，除了华融，还有多少家排队即将破产或“重组”的地产商甚至银行？无论是重组投资，还是自我意淫运行良好，都是换汤不换药的把戏。中共的经济已经到了崩溃的边缘，不管谁来投资，都是血本无归的结局，因为国家的财富已经被盗国贼集团洗劫一空。现在中共的经济就是几根细麻杆撑着一个空壳，表面涂着亮丽的色彩，其实内部已经完全空虚，经济随时都可能会崩溃。辛勤劳动并创造了世界上最多财富的中共国人民最终成了中共盗国贼集团的背锅侠。中国人民改变自己命运的方式只有起来反抗，推翻中国共产党，追回盗国贼窃取的国家财富。
-
-新闻参考链接：[https://finance.sina.com.cn/jjxw/2021-09-19/doc-iktzscyx5128531.shtml](https://finance.sina.com.cn/jjxw/2021-09-19/doc-iktzscyx5128531.shtml)
-
-编辑：胖丁
-PR：X-Wing
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+美国前线医生联盟的网站为：[https://covid19criticalcare.com](https://covid19criticalcare.com)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+## 纽约香草山医疗部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/Ivermectin-HCQ-1.jpg)](https://gnews.org/zh-hans/1485849/)
+
+
+### [常用新冠预防及治疗方案](https://gnews.org/zh-hans/1485849/)
+
+[常用新冠预防及治疗方案, 具体用药剂量和方法，包含大胡子医生，以及美国前线医生联盟的翻译版本。](https://gnews.org/zh-hans/1485849/)
+
+
+
+
+
+
+
+## 香草山翻译部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/预防.jpg)](https://gnews.org/zh-hans/1493316/)
+
+
+### [大胡子泽连科医生针对新冠病毒的预防方案](https://gnews.org/zh-hans/1493316/)
+
+[此方案来自泽连科医生，他是纽约州拥有合法执照的医生。我们不向任何人提供任何医疗上的建议或药方，请您在做任何医药方面的决定前，务必咨询您的医生！](https://gnews.org/zh-hans/1493316/)
+
+
+
+
+
+
+
+## 大废墙整理的版本
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-08-14-07.58.30-1280x720-1.png)](https://gnews.org/zh-hans/1465563/)
+
+
+### [Vladimir Zelenko的防治方案摘抄](https://gnews.org/zh-hans/1465563/)
+
+[此方案来自泽连科医生。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465563/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/90552.jpg)](https://gnews.org/zh-hans/1465617/)
+
+
+### [美国前线医生联盟的防治方案翻译](https://gnews.org/zh-hans/1465617/)
+
+[此方案来自FLCCC。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465617/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/178e030207b745602afc082b187873a3.png)](https://gnews.org/zh-hans/1541435/)
+
+
+### [关于青蒿素哌喹片的使用](https://gnews.org/zh-hans/1541435/)
+
+[关于黄花蒿、青蒿素以及青蒿素哌喹片的使用资讯。](https://gnews.org/zh-hans/1541435/)
+
+
+
+
+
+
 
 0

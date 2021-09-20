@@ -13,14 +13,14 @@
 
 ---
 
-### [联盟工作汇报文字版2021.9.19](/content/gnews/1/README.md)
+### [是时候对亲共的特鲁多大声说不了！](/content/gnews/1/README.md)
+ ` 军迷wilson`
+
+### [联盟工作汇报文字版2021.9.19](/content/gnews/2/README.md)
  ` 纽约香草山MOS02`
 
-### [新冠病毒预防和治疗方案合辑](/content/gnews/2/README.md)
+### [新冠病毒预防和治疗方案合辑](/content/gnews/3/README.md)
  ` 中共病毒真相`
-
-### [6800亿债务到期，中国华融招募重组投资人](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [致邦妮-亨利博士、阿德里安-迪克斯和约翰-霍根BC州长的公开信](/content/gnews/4/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
@@ -85,47 +85,47 @@
 ### [德国反欺诈律师：政府应该努力让民众保持冷静，而不是制造恐慌](/content/gnews/24/README.md)
  ` Runaway`
 
-### [未经本人同意，加州药房向青年注射新冠生物制剂针](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [白宫考虑空中旅行接种令](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [公民不死 注射不止 福奇表示美国人需要注射加强针](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机](/content/gnews/28/README.md)
+### [秘翻在线：恒大危机和美联储会议透出美股大跌在望](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论](/content/gnews/29/README.md)
+### [恒大事件会把中国和世界经济置入灾难境地](/content/gnews/26/README.md)
+ ` 纽约香草山MOS01`
+
+### [未经本人同意，加州药房向青年注射新冠生物制剂针](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑](/content/gnews/30/README.md)
+### [白宫考虑空中旅行接种令](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [日本称如果台湾被占领将会对中共采取行动](/content/gnews/31/README.md)
+### [公民不死 注射不止 福奇表示美国人需要注射加强针](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [潜艇危机：引发平壤核竞赛](/content/gnews/31/README.md)
+ ` Charlie`
+
+### [日本称如果台湾被占领将会对中共采取行动](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [布鲁塞尔和柏林批评俄罗斯大选](/content/gnews/32/README.md)
+### [布鲁塞尔和柏林批评俄罗斯大选](/content/gnews/33/README.md)
  ` Shuizhuyu`
 
-### [再遭港警国安处锁定 港学生组织成员清晨被捕](/content/gnews/33/README.md)
+### [再遭港警国安处锁定 港学生组织成员清晨被捕](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [朝鲜正在“全速”推进其核计划](/content/gnews/34/README.md)
+### [朝鲜正在“全速”推进其核计划](/content/gnews/35/README.md)
  ` Shuizhuyu`
 
-### [DC大中华时事：厦门全市居民小区实行闭环管理](/content/gnews/35/README.md)
+### [DC大中华时事：厦门全市居民小区实行闭环管理](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：北交所预约开户火爆是中共最后的疯狂](/content/gnews/36/README.md)
+### [秘翻在线：北交所预约开户火爆是中共最后的疯狂](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [苹果威胁要从苹果商店撤下脸书来应对人口贩卖](/content/gnews/37/README.md)
+### [苹果威胁要从苹果商店撤下脸书来应对人口贩卖](/content/gnews/38/README.md)
  ` wenwu`
-
-### [澳洲记者对福奇的最新揭露](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/47/README.md)
+### [由恒大引发的飓风](/content/gnews/47/README.md)
+ ` Charlie`
+
+### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/48/README.md)
  ` 英喜-粵語組`
 
-### [当英国能源成本高涨，如山崩般的通胀将一触即发](/content/gnews/48/README.md)
+### [当英国能源成本高涨，如山崩般的通胀将一触即发](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/49/README.md)
+### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/50/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [一句话引发的思考](/content/gnews/50/README.md)
+### [一句话引发的思考](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [潜艇合同酿成外交危机, 核心源起布防中共](/content/gnews/51/README.md)
+### [《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [反诈还是监控——浅析全民强制安装反诈APP](/content/gnews/52/README.md)
+### [支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
+
+### [潜艇合同酿成外交危机, 核心源起布防中共](/content/gnews/54/README.md)
+ ` GTV新闻访谈`
+
+### [反诈还是监控——浅析全民强制安装反诈APP](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [投资者失去信心, 恒大股价暴跌至近11年来新低](/content/gnews/53/README.md)
+### [投资者失去信心, 恒大股价暴跌至近11年来新低](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [恒大用积压房产冲抵理财款，债主无奈再度被套](/content/gnews/54/README.md)
+### [恒大用积压房产冲抵理财款，债主无奈再度被套](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [印度海军2021马拉巴尔军演盘点及未来展望](/content/gnews/55/README.md)
- ` 墨尔本雅典娜农场`
-
-### [习近平的新衣](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/57/README.md)
- ` 澳喜农场`
 

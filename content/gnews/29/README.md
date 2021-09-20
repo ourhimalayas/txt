@@ -2,30 +2,25 @@
 ---
 
 
-## 《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544252/)
+## 公民不死 注射不止 福奇表示美国人需要注射加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544330/)
 
-栏目记者/责任编辑：飞虹
+栏目记者/责任编辑：在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
+福奇周日竟然公开表示，已经完全接种了新冠病毒疫苗的美国，人最终“需要”注射加强剂疫苗。福奇表示，明年的几个月内的数据表明，可能让人们看到扩大广泛接种加强剂群体的“好处”。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-34.jpeg)
 
+郭文贵先生曾经在爆料中说过，今天政府和全世界上具备绝对垄断性的技术部门，就是医疗界官方人士，在政府里面可以百分百的控制政府和决策者。人们都低估了福奇的威胁性：福奇影响了白宫，而美国影响了欧洲和日本，仅福奇一个人就影响了将近28亿人口的西方世界。郭先生还在爆料中向全世界公布了新冠病毒的解药青蒿素，并且青蒿素还可以清除人体内部的毒疫苗，但是这种正义的救人性命的声音仍然被主流媒体故意忽视和打压。据美国疾病和预防中心称，目前已经有1.81亿美国人完全接种了疫苗，约有7000万12岁及以上的人群没有接种。全世界因为接种新冠疫苗造成各种突发疾病，及死亡的人群正在呈爆发趋势。福奇却仍然罔顾事实，对于病毒溯源和疫苗造成的各种毒副作用极力掩盖，利用自己的职位优势和影响力，煽动民众继续接种新冠疫苗加强剂，这对美国来说无疑又将是一场巨大的人道灾难。
 
+（本文仅代表作者观点）
 
-9月17日，《柳叶刀》医学杂志发表文章，呼吁就新冠起源进行客观、公开和透明的科学辩论，文章由16名科学家签名，他们认为比起自然来源，实验室相关事故是“合理的”，认为目前没有令人信服的证据来确定病毒来源于自然或与研究相关。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0920AM（2、5）.003.jpeg)
-该文章还谴责了2020年2月和2020年7月《柳叶刀》发表的两篇打着科学旗号支持病毒自然来源的“声明”。
+参考链接: [弗契医生：已接种新冠病毒疫苗的美国人可能需要疫苗加强剂](https://www.voachinese.com/a/fauci-amercans-vaccinated-likely-to-need-booster/6234915.html)
 
-作者呼吁科学期刊应该打开他们的专栏，对所有假设进行深入分析，而作为科学家，我们需要在理性的基础上研究而不要考虑政治影响。文章最后呼吁对病毒的起源进行“基于证据、独立和无偏见的评估”，并强调这需要“与来自不同学科和国家的，没有利益冲突的高级专家进行国际磋商。 ”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-《柳叶刀》此文虽然没有对中共病毒显而易见的起源做出结论，但明确表达了科学家们对科学研究与政治和利益挂钩的强烈不满。
-(本文仅代表作者观点)
-
-参考链接：[Lancet article calls for ‘objective, open and transparent’ debate over COVID-19 origins](https://www.foxnews.com/health/lancet-objective-open-transparent-debate-covid-19-origins)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：FoxRina
-校正/发稿：我不在这里
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,5 +28,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
 0
