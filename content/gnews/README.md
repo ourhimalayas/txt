@@ -28,23 +28,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021/09/17文贵先生直播精要](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [GTV与SEC和解 纳瓦罗加入新中国联邦](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [担心CCP绑架中国人成为世界敌人的图谋](/content/gnews/8/README.md)
+### [打击平安陆金所马明哲是良知正义的召唤](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/9/README.md)
+### [2021/09/17文贵先生直播精要](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [GTV与SEC和解 纳瓦罗加入新中国联邦](/content/gnews/8/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/11/README.md)
- ` 喜马拉雅农场新西兰站`
+### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [克鲁兹称拜登企图以疫苗强制令转移阿富汗灾难](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -103,29 +103,29 @@
 ### [墙国版TikTok限制14岁以下用户使用该程序，加强对青少年的思想管控](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [雅典娜时报-第057期](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/35/README.md)
+### [6800亿债务到期，中国华融招募重组投资人](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [康希诺疫苗是基于邱香果和解放军的合作而开发的技术](/content/gnews/36/README.md)
- ` wenwu`
+### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [抗议不合理薪资，澳洲联邦快递发起24小时罢工](/content/gnews/37/README.md)
+### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [银河快讯：日本自民党总裁选举论战全面展开；感染人数降至3500人以下](/content/gnews/34/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [秘翻在线：CNBC暗讽SpaceX埃隆·马斯克，只因：“乔·拜登睡觉呢”](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [雅典娜时报-第057期](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港职工会联盟宣布解散](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
+### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [合法获取抗击病毒药物的合辑](/content/gnews/47/README.md)
- ` 中共病毒真相`
+### [钱去哪里了？](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/48/README.md)
- ` 纽约香草山MOS01`
+### [老师已被“黄” ——牛逼，蓝金黄](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新冠病毒预防和治疗方案合辑](/content/gnews/49/README.md)
- ` 中共病毒真相`
-
-### [恒大的事儿到底有多大？](/content/gnews/50/README.md)
+### [接种两剂疫苗，奥运金牌得主依然感染住院](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [如日中天的苹果公司，还能延续其辉煌多久？](/content/gnews/51/README.md)
- ` 纽约香草山MOS02`
+### [合法获取抗击病毒药物的合辑](/content/gnews/50/README.md)
+ ` 中共病毒真相`
 
-### [台湾增加军事预算 应对来自中共的威胁](/content/gnews/52/README.md)
- ` 日本东京方舟农场`
+### [和解SEC完胜共匪，华尔街头条催生GTV市值！](/content/gnews/51/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [出手](/content/gnews/53/README.md)
+### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/52/README.md)
+ ` 纽约香草山MOS01`
+
+### [新冠病毒预防和治疗方案合辑](/content/gnews/53/README.md)
+ ` 中共病毒真相`
+
+### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳要求中国取消报复性贸易关税 否则免谈加入CPTPP](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [恒大的事儿到底有多大？](/content/gnews/55/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美国货币政策会议21日起确定宽松降准开始](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [为大幅提升法国战机效能 台湾与法国签支援协议](/content/gnews/56/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中秋将至：港共当局“卖港者治港”选举后秋后算账](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线: 中共国疫苗完全接种人数逾10亿](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
+### [康希诺疫苗是基于邱香果和解放军的合作而开发的技术](/content/gnews/57/README.md)
+ ` wenwu`
 

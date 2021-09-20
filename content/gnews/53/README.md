@@ -2,26 +2,85 @@
 ---
 
 
-## 出手
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1543228/)
+## 新冠病毒预防和治疗方案合辑
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543474/)
 
-#### 撰稿、插图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/09/wwe-1.jpg)
-一个不会说话的人，会被人嘲笑；一个不懂说话的人，会被抛弃；一个不会说不的人，会沦为别人的玩物，而一个不懂说不的人，绝不会成为人物。
+#### Gnews病毒真相小组 整理
 
-一个人生而自由，这是上天赋予的权利；然而自由不是免费的，权利是靠争取的。什么叫权利，权利就是可以说不。一个不会说不的人，根本就不会维护自己的权利，一个不懂拒绝的人始终难以自立。
+本文汇集了Gnews对不同医生和组织防治新冠病毒方案翻译和整理的不同版本，供大家交叉验证和参考。
 
-说不首要的是要有勇气，天地间勇气最难得。勇气是一种胆识，是一个人自信的自然流露。是生活的历练以及人生智慧的沉积。
+大胡子医生关于新冠病毒的网站为：[https://vladimirzelenkomd.com](https://vladimirzelenkomd.com)
 
-说不，是一门艺术；说不，并不是一味地拒绝，也不是不讲道理，毫无原则的乱来一气。说不，是有章法的，是在正道主义的基础上有理有据有节有奏，有时有机的，是一门大智慧。
+美国前线医生联盟的网站为：[https://covid19criticalcare.com](https://covid19criticalcare.com)
 
-面对强权的蛮横和霸凌，土共爪牙和走狗们唯一听懂的语言只有拳头；拒绝他们的唯一方式就是奋起反击！
 
-该出手时就出手！
 
-（文章仅代表作者个人观点，与GNEWS无关）
+## 纽约香草山医疗部
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/Ivermectin-HCQ-1.jpg)](https://gnews.org/zh-hans/1485849/)
+
+
+### [常用新冠预防及治疗方案](https://gnews.org/zh-hans/1485849/)
+
+[常用新冠预防及治疗方案, 具体用药剂量和方法，包含大胡子医生，以及美国前线医生联盟的翻译版本。](https://gnews.org/zh-hans/1485849/)
+
+
+
+
+
+
+
+## 香草山翻译部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/预防.jpg)](https://gnews.org/zh-hans/1493316/)
+
+
+### [大胡子泽连科医生针对新冠病毒的预防方案](https://gnews.org/zh-hans/1493316/)
+
+[此方案来自泽连科医生，他是纽约州拥有合法执照的医生。我们不向任何人提供任何医疗上的建议或药方，请您在做任何医药方面的决定前，务必咨询您的医生！](https://gnews.org/zh-hans/1493316/)
+
+
+
+
+
+
+
+## 大废墙整理的版本
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-08-14-07.58.30-1280x720-1.png)](https://gnews.org/zh-hans/1465563/)
+
+
+### [Vladimir Zelenko的防治方案摘抄](https://gnews.org/zh-hans/1465563/)
+
+[此方案来自泽连科医生。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465563/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/90552.jpg)](https://gnews.org/zh-hans/1465617/)
+
+
+### [美国前线医生联盟的防治方案翻译](https://gnews.org/zh-hans/1465617/)
+
+[此方案来自FLCCC。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465617/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/178e030207b745602afc082b187873a3.png)](https://gnews.org/zh-hans/1541435/)
+
+
+### [关于青蒿素哌喹片的使用](https://gnews.org/zh-hans/1541435/)
+
+[关于黄花蒿、青蒿素以及青蒿素哌喹片的使用资讯。](https://gnews.org/zh-hans/1541435/)
+
+
+
+
+
+
+
 0

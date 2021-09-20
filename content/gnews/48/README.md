@@ -2,29 +2,19 @@
 ---
 
 
-## 美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1543461/)
+## 老师已被“黄” ——牛逼，蓝金黄
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1543659/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
+撰稿、插图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-252.png)
+那些年，为梦想，我苦读数十载，虽自认为满腹经纶才高八斗，却难以登上三尺讲台。农村娃，无门无路无金钱，举目无亲独闯江湖，自主创业崭露头角。30余载带出清华无数，长长引以为傲，亦可寥慰我那多年失落的心。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-19-PM-text-SC-1.png)
-文章仅代表作者本人观点，与Gnews无关
+何曾想，代表知识和智慧的表率竟有一日能与流氓挂上钩。荒唐年年有，今年到我家。钱已退，战已统，老师已被“黄”。
 
-视频参看： 2021.09.19晚GTV新闻访谈
+牛逼，蓝金黄！！！
 
-[https://gtv.org/broadcast/watch/6147d5bc42a8af3151a18c9a](https://gtv.org/broadcast/watch/6147d5bc42a8af3151a18c9a)
-
-[https://www.youtube.com/watch?v=WI7EqaXhbXU](https://www.youtube.com/watch?v=WI7EqaXhbXU)
-
-编辑/校对/发稿： 香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+（文章仅代表作者个人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
 0

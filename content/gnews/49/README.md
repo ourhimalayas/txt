@@ -2,85 +2,33 @@
 ---
 
 
-## 新冠病毒预防和治疗方案合辑
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543474/)
+## 接种两剂疫苗，奥运金牌得主依然感染住院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1543640/)
 
-#### Gnews病毒真相小组 整理
+**整理报道：Lish**
+**编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9.20-2.png)
+**图片来源：FoxSports**
 
-本文汇集了Gnews对不同医生和组织防治新冠病毒方案翻译和整理的不同版本，供大家交叉验证和参考。
+9月18日，尽管已经接种了两剂疫苗，澳大利亚奥运游泳冠军麦迪逊·威尔逊因感染中共病毒而住院。此前威尔逊正在意大利那不勒斯与洛杉矶电流队一起参加国际游泳联赛，但阳性诊断结果迫使她离开国际泳联的比赛。
 
-大胡子医生关于新冠病毒的网站为：[https://vladimirzelenkomd.com](https://vladimirzelenkomd.com)
+威尔逊在今年东京奥运会举行的女子4×100米自由泳接力赛中夺得金牌，她在2016年里约热内卢奥运会上夺得同一项目的最高荣誉。
 
-美国前线医生联盟的网站为：[https://covid19criticalcare.com](https://covid19criticalcare.com)
+周日晚上（美国东部时间）威尔逊在社交媒体上发帖：”我非常失望，也很难过，不能和我的队友们一起参加国际泳联的第8场比赛，我的新冠检测呈阳性，昨天被转移到医院进行进一步的护理和观察。”
 
+威尔逊还说，”尽管我接种了两剂疫苗，并通过国际泳联采取了正确的预防措施，但我还是确定无疑地感染了这种病毒。”
 
+威尔逊在表诉自己不幸遭遇的同时，相信自己在休息一段时间后会重回赛场。
 
-## 纽约香草山医疗部
+原文链接：[Australian gold medal winning Olympic swimmer Madison Madi Wilson hospitalised with Covid-19, coronavirus | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/olympics/aussie-gold-medallist-madison-wilson-hospitalised-with-covid19/news-story/de5b9931f1c0af54bb526130741d2186)
 
+发布：文武全才
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/Ivermectin-HCQ-1.jpg)](https://gnews.org/zh-hans/1485849/)
-
-
-### [常用新冠预防及治疗方案](https://gnews.org/zh-hans/1485849/)
-
-[常用新冠预防及治疗方案, 具体用药剂量和方法，包含大胡子医生，以及美国前线医生联盟的翻译版本。](https://gnews.org/zh-hans/1485849/)
-
-
-
-
-
-
-
-## 香草山翻译部
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/预防.jpg)](https://gnews.org/zh-hans/1493316/)
-
-
-### [大胡子泽连科医生针对新冠病毒的预防方案](https://gnews.org/zh-hans/1493316/)
-
-[此方案来自泽连科医生，他是纽约州拥有合法执照的医生。我们不向任何人提供任何医疗上的建议或药方，请您在做任何医药方面的决定前，务必咨询您的医生！](https://gnews.org/zh-hans/1493316/)
-
-
-
-
-
-
-
-## 大废墙整理的版本
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-08-14-07.58.30-1280x720-1.png)](https://gnews.org/zh-hans/1465563/)
-
-
-### [Vladimir Zelenko的防治方案摘抄](https://gnews.org/zh-hans/1465563/)
-
-[此方案来自泽连科医生。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465563/)
-
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/90552.jpg)](https://gnews.org/zh-hans/1465617/)
-
-
-### [美国前线医生联盟的防治方案翻译](https://gnews.org/zh-hans/1465617/)
-
-[此方案来自FLCCC。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465617/)
-
-
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/178e030207b745602afc082b187873a3.png)](https://gnews.org/zh-hans/1541435/)
-
-
-### [关于青蒿素哌喹片的使用](https://gnews.org/zh-hans/1541435/)
-
-[关于黄花蒿、青蒿素以及青蒿素哌喹片的使用资讯。](https://gnews.org/zh-hans/1541435/)
-
-
-
-
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

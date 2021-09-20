@@ -2,31 +2,27 @@
 ---
 
 
-## 墨尔本建筑工人抗议强制接种疫苗引发暴力冲突
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1543578/)
+## 秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543609/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/112ae778d9631af86a31c91f2b3e81ad.jpg)图片来源：News.com.au
-**整理报道：**翼族
+翻译：xiaojiucaia
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-20-114433.jpg)
+有迹象表明，主流媒体在“安全有效的新冠病毒疫苗”问题上开始出现分歧。一些曾经喊得最响亮的疫苗崇拜者开始质疑这种实验性的mRNA疫苗是否真的 “安全并且有效”。
 
-周一早上，数百名身着反光工作服的建筑工人聚集在CFMEU（建筑/林业/海运/采矿/能源联盟）墨尔本总部大楼外，反对维多利亚州政府强制要求所有建筑工人必须在9月23日之前至少接种一剂中共病毒（Covid-19）疫苗的规定。
+在短短八个月内，已有几十万人报告疫苗受伤，接种后数万人死亡，但媒体不敢报道这些数据和疫苗受伤的惨痛证词。同样令人担忧的是，成千上万的不良事件和医疗问题现在被忽略了，因为头痛、发烧、疼痛、皮肤反应和疲劳现在被认为是“有效”疫苗的正常副作用。接种疫苗后依然被感染中共病毒也被认为是正常的，并被宣传为“突破病例”。
 
-抗议者从清晨开始聚集在CFMEU的办公室外，到中午时分抗议团体增加到数百人，示威者们涌上街头并阻塞了交通。一群抗议者后来脱离了主要人群，向议会游行。
+但是，英国、新加坡和以色列等疫苗接种率很高的国家数据显示疫苗很可能已经完全失败。更严重的是很多接种了疫苗的人因严重的呼吸困难、心脏炎症和血栓而死亡；主流媒体不再高调吹嘘疫苗了。
 
-CFMEU联盟工会国务秘书约翰·塞特卡（John Setka）试图让人群平静下来，但愤怒的建筑工人对强制性疫苗要求表示强烈不满，一些工人称塞特卡为“蛇”，随后他被迫退入大楼。工会代表在入口外形成了一道人墙，以阻止示威者进入大楼。最后反对强制接种疫苗的示威者与工会官员发生冲突并投掷面包，墨尔本反对建筑限制的抗议活动演变为暴力冲突。
+**彭博社**最近发表了一篇题为“接种疫苗的人很担忧，科学家们却没有答案”的文章。文章指出，由于大量接种疫苗的国家的病例和死亡继续猛增，而“完全接种疫苗”的国家尤为严重。文章承认，“接种疫苗的人感染冠状病毒的速度似乎高得惊人”。
 
-在周一的新闻发布会上，维州州长丹尼尔·安德鲁斯(Daniel Andrews)表示，抗议活动无助于遏制病毒的蔓延，他说：“（建筑）这个行业的开放率为25%，我们希望达到50%，接种疫苗是其中非常重要的一部分，抗议不起作用，接种疫苗有效，遵守规则有效，这就是你们保持开放的方式。”
+**BBC**发表了一篇文章 “新冠：增强免疫力的最佳方法是什么？”这篇文章认为自然获得的免疫力比从疫苗中获得的更加优越，同时指出疫苗引起的抗体减弱导致疾病和住院率上升。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+**ABC**报道了一篇对 COVID-19 疫苗加强注射持怀疑态度的文章，并给出了“为什么你不应该急于接种COVID-19疫苗加强针的原因”。文章引用了布莱根妇女医院（Brigham and Women’s Hospital）急诊医学医师杰里米·浮士德（ Jeremy Faust ）的话说，他对更广泛人群注射加强针持怀疑态度。 他认为风险未知，收益未知。
 
-参考链接：[Wild melee erupts in Melbourne as hundreds of anti-vax tradies protest against mandatory Covid jabs – with a union boss branded ‘Dan Andrews’ b\*\*\*\*h’ and a BREAD CRATE hurled at security](https://www.dailymail.co.uk/news/article-10007743/Covid-19-Australia-Melbourne-construction-workers-protest-mandatory-jabs.html)
+**The Daily Beast**发表了一篇关于以色列疫苗失败的文章，标题是：“高疫苗接种率的以色列是对美国的可怕警告”。超过80%的12岁以上的以色列人接种了两次疫苗，但接种疫苗的人口中住院和严重感染的人数继续攀升，这让所谓的疫苗有效性备受质疑。可怕的是，以色列并没有改变方向，而是提供第三剂，同时用疫苗护照来阻止未接种疫苗的人进入社会。
 
-*编辑/发布：翼族*
+经过一年多高歌猛进对疫苗的宣传，主流媒体和社交平台现在才开始面对疫苗无用且有害的真相，而这些真相一度被媒体和社交平台标注为“危险的疫苗谣言”。所有谈论疫苗真相的内容之前都被 Facebook、Twitter、谷歌、Youtube 等大型科技公司审查屏蔽。只有爆料革命自始至终都在向人们传播真相，与强大的主流媒体和大型科技公司等黑暗势力作斗争。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[新闻来源](https://www.vaccines.news/2021-08-30-is-mainstream-media-turning-against-failed-covid-vaccines.html#)
 
 0

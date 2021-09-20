@@ -2,20 +2,17 @@
 ---
 
 
-## 雅典娜时报-第057期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1543487/)
+## 秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543663/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-20-122822.jpg)  图片来源： www.voachinese.com
+路透社北京9月18日报道，根据周六中共国消费数据显示，中共国出口朝鲜直线上升，8月份是第三个增加的月份，但仍然只是中共病毒疫情前的零头。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-13.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image1.png)
-***发布：小红帽***
+中共国今年8月份出口朝鲜的货物价值从7月份的1千6百80万美元上升到2千2百50万美元，但是比较2019年8月的出口，当时达2亿1千900万美元。中共国从朝鲜进口货物从7月份的410万美元增加到620万美元。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源： [China’s August exports to North Korea up for third month](https://www.reuters.com/world/china/chinas-august-exports-north-korea-up-third-month-2021-09-18/)
+
+#  
 
 0
