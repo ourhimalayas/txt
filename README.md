@@ -151,36 +151,36 @@
 ### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [联合国大会将启用荣誉系统确任参会者接种疫苗与否](/content/gnews/47/README.md)
+### [国际要闻汇编](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [香港选委会选举：民主派近乎绝迹](/content/gnews/49/README.md)
+ ` 日本东京方舟农场`
+
+### [联合国大会将启用荣誉系统确任参会者接种疫苗与否](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [由恒大引发的飓风](/content/gnews/48/README.md)
+### [由恒大引发的飓风](/content/gnews/51/README.md)
  ` Charlie`
 
-### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/49/README.md)
+### [9/20/21 香港快讯 贤学思政王逸战等人被捕 国安警搜组织葵涌货仓 爆门入好景中心单位](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [当英国能源成本高涨，如山崩般的通胀将一触即发](/content/gnews/50/README.md)
+### [当英国能源成本高涨，如山崩般的通胀将一触即发](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/51/README.md)
+### [CCP百年百罪 第十九集（77 – 80罪）](/content/gnews/54/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [一句话引发的思考](/content/gnews/52/README.md)
+### [一句话引发的思考](/content/gnews/55/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机](/content/gnews/53/README.md)
+### [秘翻在线：丹麦TV2报道恒大破产将引发新的全球金融危机](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [朝鲜正在“全速”推进其核计划](/content/gnews/54/README.md)
+### [朝鲜正在“全速”推进其核计划](/content/gnews/57/README.md)
  ` Shuizhuyu`
-
-### [《柳叶刀》文章呼吁就新冠起源进行“客观、公开和透明”的辩论](/content/gnews/55/README.md)
- ` GTV新闻访谈`
-
-### [支持普京的统一俄罗斯党赢得新杜马选举，但结果饱受质疑](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [DC大中华时事：厦门全市居民小区实行闭环管理](/content/gnews/57/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
