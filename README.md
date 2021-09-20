@@ -37,14 +37,14 @@
 ### [GTV与SEC和解 纳瓦罗加入新中国联邦](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/9/README.md)
+### [新冠病毒预防和治疗方案合辑](/content/gnews/9/README.md)
+ ` 中共病毒真相`
+
+### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/10/README.md)
+### [秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [克鲁兹称拜登企图以疫苗强制令转移阿富汗灾难](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -121,11 +121,11 @@
 ### [秘翻在线：普京的政党在民意调查后将保留议会多数席位](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [雅典娜时报-第057期](/content/gnews/37/README.md)
+### [墨尔本建筑工人抗议强制接种疫苗引发暴力冲突](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [雅典娜时报-第057期](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
@@ -169,8 +169,8 @@
 ### [美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;](/content/gnews/52/README.md)
  ` 纽约香草山MOS01`
 
-### [新冠病毒预防和治疗方案合辑](/content/gnews/53/README.md)
- ` 中共病毒真相`
+### [打2剂疫苗感染变种病毒风险，比不打者高出13.06倍](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [42000名日本公民向政府公开提出停止疫苗接种宣言](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
