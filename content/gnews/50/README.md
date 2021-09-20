@@ -2,19 +2,85 @@
 ---
 
 
-## 老师已被“黄” ——牛逼，蓝金黄
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1543659/)
+## 新冠病毒预防和治疗方案合辑
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543474/)
 
-撰稿、插图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-252.png)
-那些年，为梦想，我苦读数十载，虽自认为满腹经纶才高八斗，却难以登上三尺讲台。农村娃，无门无路无金钱，举目无亲独闯江湖，自主创业崭露头角。30余载带出清华无数，长长引以为傲，亦可寥慰我那多年失落的心。
+#### Gnews病毒真相小组 整理
 
-何曾想，代表知识和智慧的表率竟有一日能与流氓挂上钩。荒唐年年有，今年到我家。钱已退，战已统，老师已被“黄”。
+本文汇集了Gnews对不同医生和组织防治新冠病毒方案翻译和整理的不同版本，供大家交叉验证和参考。
 
-牛逼，蓝金黄！！！
+大胡子医生关于新冠病毒的网站为：[https://vladimirzelenkomd.com](https://vladimirzelenkomd.com)
 
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+美国前线医生联盟的网站为：[https://covid19criticalcare.com](https://covid19criticalcare.com)
+
+
+
+## 纽约香草山医疗部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/Ivermectin-HCQ-1.jpg)](https://gnews.org/zh-hans/1485849/)
+
+
+### [常用新冠预防及治疗方案](https://gnews.org/zh-hans/1485849/)
+
+[常用新冠预防及治疗方案, 具体用药剂量和方法，包含大胡子医生，以及美国前线医生联盟的翻译版本。](https://gnews.org/zh-hans/1485849/)
+
+
+
+
+
+
+
+## 香草山翻译部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/预防.jpg)](https://gnews.org/zh-hans/1493316/)
+
+
+### [大胡子泽连科医生针对新冠病毒的预防方案](https://gnews.org/zh-hans/1493316/)
+
+[此方案来自泽连科医生，他是纽约州拥有合法执照的医生。我们不向任何人提供任何医疗上的建议或药方，请您在做任何医药方面的决定前，务必咨询您的医生！](https://gnews.org/zh-hans/1493316/)
+
+
+
+
+
+
+
+## 大废墙整理的版本
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-08-14-07.58.30-1280x720-1.png)](https://gnews.org/zh-hans/1465563/)
+
+
+### [Vladimir Zelenko的防治方案摘抄](https://gnews.org/zh-hans/1465563/)
+
+[此方案来自泽连科医生。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465563/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/90552.jpg)](https://gnews.org/zh-hans/1465617/)
+
+
+### [美国前线医生联盟的防治方案翻译](https://gnews.org/zh-hans/1465617/)
+
+[此方案来自FLCCC。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465617/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/178e030207b745602afc082b187873a3.png)](https://gnews.org/zh-hans/1541435/)
+
+
+### [关于青蒿素哌喹片的使用](https://gnews.org/zh-hans/1541435/)
+
+[关于黄花蒿、青蒿素以及青蒿素哌喹片的使用资讯。](https://gnews.org/zh-hans/1541435/)
+
+
+
+
+
+
+
 0

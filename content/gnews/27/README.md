@@ -2,10 +2,10 @@
 ---
 
 
-## 新加坡单日新增中共病毒感染人数达到去年四月以来的最高值
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543732/)
+## 战友染病急需药，八方战友前支援
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543762/)
 
-栏目记者/责任编辑：火来
+栏目记者/责任编辑：正义的小新
 
 
 
@@ -15,10 +15,11 @@
 
 
 
-据路透社消息，9月19日，新加坡卫生部公布了最新的新加坡疫情状况，当天，新加坡中共病毒感染人数新增了1012人，这是去年四月份以来的最高值。新加坡已经有80%的人口接种了两剂疫苗，是全球疫苗接种率名列前茅的国家，但是，疫情依然再次来袭，并且目前丝毫没有减缓的趋势。我们将持续关注新加坡疫情的发展。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-76.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-9.jpg)
-参考链接： 
-[Singapore reports 1,012 new COVID-19 cases, highest since April last year](https://www.reuters.com/world/asia-pacific/singapore-reports-1012-new-covid-19-cases-highest-since-april-last-year-2021-09-19/?taid=61476332ad296e0001f93a2a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+18日文贵先生在其盖特上写道，有身在希腊的战友，因感染中共病毒，紧急需药品的帮助。在得知此信息后，法国小皮匠、意大利的文科等几位战友迅速出发，开车几个小时后便将药送到了战友手里。文贵先生写道，这就是我们新中国联邦的力量和情怀，新中国联邦永远不会忘记这一切伟大的行动。19日，文贵先生再次强调：防止病毒感染、保护自己和家人的重要性。他说，在这个黑暗的时代，我们必须要具备一个强大的心理状态和一个有准备的心脏才能扛过去。文贵先生叮嘱各位战友，务必注意健康安全，一定要严肃认真的计划和对待，调整好自己的生活方式，让自己和家人安全健康的活下去，这才是最重要的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/444.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/5-33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/4.1-8.jpg)
+参考链接：
+[郭先生盖特：9月18号：几个小时前，我们希腊的战友因患病紧急需要药品的帮助，法国小皮匠意大利的文科等……](https://gettr.com/post/pbi85xe923)
+[郭先生盖特：9月19号：七哥每天每时都能收到类似这样的信息，如果没有心理准备谁也受不了，这是黑暗的时代．](https://gettr.com/post/pbmusm6dea)
 
 （本文仅代表作者观点）
 

@@ -2,29 +2,27 @@
 ---
 
 
-## 美国CDC允许将已接种疫苗者的死亡归为 &#8220;未接种疫苗者的死亡&#8221;
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1543461/)
+## 秘翻在线：主流媒体是否开始转向，反对已经失败的新冠疫苗？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543609/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2.jpg)
+翻译：xiaojiucaia
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-20-114433.jpg)
+有迹象表明，主流媒体在“安全有效的新冠病毒疫苗”问题上开始出现分歧。一些曾经喊得最响亮的疫苗崇拜者开始质疑这种实验性的mRNA疫苗是否真的 “安全并且有效”。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-19-PM-text-SC-1.png)
-文章仅代表作者本人观点，与Gnews无关
+在短短八个月内，已有几十万人报告疫苗受伤，接种后数万人死亡，但媒体不敢报道这些数据和疫苗受伤的惨痛证词。同样令人担忧的是，成千上万的不良事件和医疗问题现在被忽略了，因为头痛、发烧、疼痛、皮肤反应和疲劳现在被认为是“有效”疫苗的正常副作用。接种疫苗后依然被感染中共病毒也被认为是正常的，并被宣传为“突破病例”。
 
-视频参看： 2021.09.19晚GTV新闻访谈
+但是，英国、新加坡和以色列等疫苗接种率很高的国家数据显示疫苗很可能已经完全失败。更严重的是很多接种了疫苗的人因严重的呼吸困难、心脏炎症和血栓而死亡；主流媒体不再高调吹嘘疫苗了。
 
-[https://gtv.org/broadcast/watch/6147d5bc42a8af3151a18c9a](https://gtv.org/broadcast/watch/6147d5bc42a8af3151a18c9a)
+**彭博社**最近发表了一篇题为“接种疫苗的人很担忧，科学家们却没有答案”的文章。文章指出，由于大量接种疫苗的国家的病例和死亡继续猛增，而“完全接种疫苗”的国家尤为严重。文章承认，“接种疫苗的人感染冠状病毒的速度似乎高得惊人”。
 
-[https://www.youtube.com/watch?v=WI7EqaXhbXU](https://www.youtube.com/watch?v=WI7EqaXhbXU)
+**BBC**发表了一篇文章 “新冠：增强免疫力的最佳方法是什么？”这篇文章认为自然获得的免疫力比从疫苗中获得的更加优越，同时指出疫苗引起的抗体减弱导致疾病和住院率上升。
 
-编辑/校对/发稿： 香草山翻译部 – Lakers
+**ABC**报道了一篇对 COVID-19 疫苗加强注射持怀疑态度的文章，并给出了“为什么你不应该急于接种COVID-19疫苗加强针的原因”。文章引用了布莱根妇女医院（Brigham and Women’s Hospital）急诊医学医师杰里米·浮士德（ Jeremy Faust ）的话说，他对更广泛人群注射加强针持怀疑态度。 他认为风险未知，收益未知。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
+**The Daily Beast**发表了一篇关于以色列疫苗失败的文章，标题是：“高疫苗接种率的以色列是对美国的可怕警告”。超过80%的12岁以上的以色列人接种了两次疫苗，但接种疫苗的人口中住院和严重感染的人数继续攀升，这让所谓的疫苗有效性备受质疑。可怕的是，以色列并没有改变方向，而是提供第三剂，同时用疫苗护照来阻止未接种疫苗的人进入社会。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+经过一年多高歌猛进对疫苗的宣传，主流媒体和社交平台现在才开始面对疫苗无用且有害的真相，而这些真相一度被媒体和社交平台标注为“危险的疫苗谣言”。所有谈论疫苗真相的内容之前都被 Facebook、Twitter、谷歌、Youtube 等大型科技公司审查屏蔽。只有爆料革命自始至终都在向人们传播真相，与强大的主流媒体和大型科技公司等黑暗势力作斗争。
+
+[新闻来源](https://www.vaccines.news/2021-08-30-is-mainstream-media-turning-against-failed-covid-vaccines.html#)
 
 0

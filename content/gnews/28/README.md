@@ -2,51 +2,27 @@
 ---
 
 
-## 福奇称：12岁以下儿童“肯定”会在秋季获得新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1543713/)
+## 秘翻在线:香港举行首届“只有爱国者”参加的选举委员会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1543764/)
 
-栏目记者/责任编辑：一花一世界
+#### 翻译/撰稿: 黃金精神
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-2-5.jpg)图片来源：路透社
+据路透社(Reuters)9月19日报道，不到5000名大多数来自建制派的香港人开始为选举委员会的候选人投票，据调查这些候选人都忠于中共，他们将挑选该市下一个由中共支持的领导人和一些立法机构。改革后立法会的40个席位将在12月由选举委员会选出，并在3月选出行政长官。
 
+香港行政长官林郑月娥在周日上午时说：“改进选举制度的整体目标是确保‘爱国者’管理香港。我非常怀疑另一个政府或国家会允许公开选举，让那些以破坏国家利益或国家安全为使命的人进入他们的地方立法机构。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+据当地媒体报道，警方已经加强了整个城市的安全，预计将部署6000名警察以确保投票的顺利进行，预计届时有4900人参与投票。
 
+支持民主的候选人没有参与香港此次选举，因为中共全面改革了该市的选举制度以确保“只有爱国者”才能治理中共最自由的城市。117名由民主人士主导的委员会的成员资格被取消，同时增加500多个席位给中共商界、政治界和基层团体。
 
+三位地产大亨，93岁长江集团的李嘉诚、同样93岁恒基地产的李兆基和74岁新世界发展的郑家纯退出竞选，不过他们的儿子将保留席位。
 
+路透社根据选举委员会网站显示的结果计算，大约70%的被提名人没有出现在委员会的前两次民意调查中。该委员会将增加300名成员，达到1500名。
 
+中英联合声明的“50年不变”变成了废纸，“一国两制”已经名存实亡，香港名副其实成为了“臭港”。香港的国际金融中心地位已经倾覆。中共治下的香港打着“爱国”旗号，推行审查制度，领导班组重新进行洗牌，打压民主人士，进行财富的重新分配。“消灭中共是正义的需要。”只有灭共才是唯一出路。
 
-本周日，福奇在参加ABC新闻的“这一周 ”节目时说：疫苗将在秋季用于12岁以下儿童。 辉瑞公司的疫苗可能会在Moderna疫苗之前提供给儿童。 儿童最早可以在10月底前接受注射。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1.1-8.jpg)
-Insider之前报道，辉瑞公司和Moderna公司都在3月份开始招募儿童参加其疫苗试验。Moderna之前说，它预计将在秋末冬初获得有关其疫苗在儿童中的疗效数据，而辉瑞公司计划在9月底前准备好数据。 福奇说，这些数据可能会在“中秋至秋末”的某个时候提供给美国官员，以决定是否授权11至5岁的儿童使用疫苗。 美国食品和药物管理局可能需要几周时间来审查这些数据，然后再就提供紧急使用授权来使用这些疫苗做出最终决定。 前美国食品和药物管理局专员Scott Gottlieb说，他是辉瑞公司董事会成员。在最佳情况下，该疫苗可以在11月底之前被授权用于6个月大到5岁的儿童。 邪恶贪婪的利益集团终于要将魔爪伸向无辜的孩子。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-106.jpg)
-参考链接： 
-[Fauci said a COVID-19 vaccine will be available to young children in the fall](https://www.businessinsider.com/covid-19-vaccinechildren-in-the-fall-fauci-said-2021-9)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+[**新闻来源**](https://www.reuters.com/world/asia-pacific/hong-kongs-first-patriots-only-election-kicks-off-2021-09-18/)
 
 0

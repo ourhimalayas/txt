@@ -2,13 +2,37 @@
 ---
 
 
-## 打2剂疫苗感染变种病毒风险，比不打者高出13.06倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1543454/)
+## 合法获取抗击病毒药物的合辑
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543592/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0920-1.png)
-（文章仅代表作者个人观点，与GNEWS无关）
+#### Gnews病毒真相小组 整理
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-+1
+
+
+## 获取槲皮素组合补剂：
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/在线购买大胡子医生泽连科的Z-Stack抗击中共病毒的非处方槲皮素组合补剂网址-logo.jpg)
+
+
+### [在线购买大胡子医生泽连科的Z-Stack抗击中共病毒的非处方槲皮素组合补剂网址](https://gnews.org/zh-hans/1489518/)
+
+
+
+
+
+
+
+## 获取伊维菌素：
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/anhs1p-o837u-1.jpg)](https://gnews.org/zh-hans/1462583/)
+
+
+### [如何在美国快速合法地获得伊维菌素](https://gnews.org/zh-hans/1462583/)
+
+
+
+
+
+0
