@@ -37,14 +37,14 @@
 ### [9/14郭文贵直播：多年来，某组织监控收集习和彭丽媛的隐私（粤语配音）](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/9/README.md)
+### [千万不能给孩子打疫苗的13个科学理由](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [教授们强迫健康学生接种疫苗（2/2）(第二部分)](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/10/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
  ` wenwu`
-
-### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/12/README.md)
  ` wenwu`
@@ -112,19 +112,19 @@
 ### [朝鲜谴责AUKUS“三边”协定，称“受到威胁将反击”](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/34/README.md)
+### [新州：五分之一的12至15岁儿童已接种疫苗](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：美疫苗强制令致使医院人员短缺](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/35/README.md)
+### [秘翻在线：所有冠状疫苗接种人士必须在冬季隔离](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/36/README.md)
+### [秘翻在线：中共国8月份是连续出口朝鲜增加的第三个月份](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共国财富巨头几近违约，政府接盘是否可能？](/content/gnews/38/README.md)
+### [秘翻在线：亚利桑那州一女孩被错误注射中共病毒疫苗](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [恒大300B美元的债务危机是否对加密行业构成系统性风险？](/content/gnews/46/README.md)
  ` wenwu`
 
-### [魑魅魍魉大重启之——盖茨其人](/content/gnews/47/README.md)
- ` 澳喜农场`
-
-### [中共下旨香港地产商支持中央利益 地产股应声急泻逾千点](/content/gnews/48/README.md)
- ` G&#124;News TAIWAN`
-
-### [恒大维权揭穿中共依法治国谎言，再谈法治国家权利救济](/content/gnews/49/README.md)
- ` 澳喜农场`
-
-### [中共拙劣表演香港新选举制度落地](/content/gnews/50/README.md)
- ` 儒为`
-
-### [澳英美AUKUS联盟背后的战略意图](/content/gnews/51/README.md)
+### [印度海军2021马拉巴尔军演盘点及未来展望](/content/gnews/47/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/52/README.md)
+### [习近平的新衣](/content/gnews/48/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [魑魅魍魉大重启之——盖茨其人](/content/gnews/49/README.md)
+ ` 澳喜农场`
+
+### [中共下旨香港地产商支持中央利益 地产股应声急泻逾千点](/content/gnews/50/README.md)
+ ` G&#124;News TAIWAN`
+
+### [恒大维权揭穿中共依法治国谎言，再谈法治国家权利救济](/content/gnews/51/README.md)
+ ` 澳喜农场`
+
+### [中共拙劣表演香港新选举制度落地](/content/gnews/52/README.md)
+ ` 儒为`
+
+### [澳英美AUKUS联盟背后的战略意图](/content/gnews/53/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9/13郭文贵盖特：潘石屹把在国内当白手套那一套搬到美国（粤语配音）](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/53/README.md)
+### [9/12郭文贵直播：中共正在帮某大国建设3个大型生化实验室（粤语配音）](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/54/README.md)
+### [9/12郭文贵直播：中共前海开发区扩大的三大邪恶目的（粤语配音）](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/12郭文贵直播：张宏伟拿到人类有史以来最大中介费1200亿美元（粤语配音）](/content/gnews/55/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/10郭文贵直播：共产党会灭得比我们想象得要更干脆、更快（粤语配音）](/content/gnews/56/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/10郭文贵直播：中共虚假艺术品套走银行亿万真金白银（粤语配音）](/content/gnews/57/README.md)
+### [9/12郭文贵直播：张宏伟拿到人类有史以来最大中介费1200亿美元（粤语配音）](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
