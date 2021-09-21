@@ -2,25 +2,30 @@
 ---
 
 
-## 秘翻在线：推特因提供误导数据被集体诉讼 支付8亿美元和解
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545892/)
+## &#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545996/)
 
-#### 文章撰写：寶寶
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-266.png)
+栏目记者：新世界的一员
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-gty-er-190423_hpMdain_16x9_992.jpg)
+日前美澳英宣布订立共同应对中国的三国盟约组织，由于美国将依照协定向澳大利亚提供核潜艇技术，澳大利亚随后”撕毁” 数年前与法国签订的巨额潜艇购买合同，从而引爆”美法澳三国外交危机” ， 且继续发酵中。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-283.png)
+目前法国在其中蒙受损失的立场得到欧盟委员会支持。法国宣布撤回驻美澳大使, 美国总统拜登试图与法国缓解气氛，已主动提出与马克龙通话。欧盟外长周一起将利用在联合国开会的机会，提前讨论此次的潜艇外交危机“对欧盟与澳大利亚自贸谈判可能带来的冲击”，而该自贸谈判原本定于10月12日才开幕。
 
-据《零对冲》9月21日报道，Twitter因“向投资者提供误导性用户参与度数据”被投资者集体诉讼，已达成8.09亿美元和解费。
+参考链接：
 
-2016年提起的诉讼指控杰克·多尔西 (Jack Dorsey) 和前首席执行官迪克·科斯特洛 (Dick Costolo)，以及董事会成员埃文·威廉姆斯 (Evan Williams)，在出售个人股票时隐瞒了有关该公司用户增长放缓的信息。 据《综艺》(Variety) 报道，诉讼称，这笔股票交易净赚了数亿美元的利润。
+[https://www.rfi.fr](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210920-%E6%A0%B8%E6%BD%9B%E8%89%87%E5%8D%B1%E6%A9%9F-%E6%8B%9C%E7%99%BB-%E6%80%A5%E6%96%BC-%E8%88%87%E9%A6%AC%E5%85%8B%E9%BE%8D%E9%80%9A%E8%A9%B1-%E6%AD%90%E6%BE%B3%E8%87%AA%E8%B2%BF%E5%8D%94%E8%AD%B0%E6%81%90%E8%A7%B8%E7%A4%81)
 
-其中一项指控是，该公司没有向投资者透露其真实数据，数据显示当时推特用户参与度持平或下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-274.png)
 
-虽然Twitter手头资金超过40亿美元，能够轻松支付和解费，但8亿美元的金额并非小数目。
+责任编辑/终审：FoxRina
+校正/发稿：浪迹天涯
 
-与此同时，Twitter开始使用mDAU数据及其2018年第四季度的结果，向投资者解释说它“最能反映其推动货币化使用的目标”。
-
-mDAU被描述为“在任何一天通过twitter.com或Twitter应用登录的个人、组织或其他帐户能够展示广告的平均数。”
-
-参考文章：[**Twitter Pays $800 Million To Settle Lawsuit Alleging Company Provided Misleading User Metrics To Investors**](https://www.zerohedge.com/markets/twitter-pays-over-800-million-settle-class-action-suit-alleging-company-provided-misleading)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-265.png)
 0

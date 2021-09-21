@@ -28,23 +28,23 @@
 ### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月19日 文贵先生盖特 9](/content/gnews/6/README.md)
+### [2021年9月20日 文贵先生盖特 3](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 8](/content/gnews/7/README.md)
+### [2021年9月20日 文贵先生盖特 2](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 7](/content/gnews/8/README.md)
+### [2021年9月20日 文贵先生盖特 1](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [法国顶级疫苗专家：新冠病毒政策“完全愚蠢”且“不道德”（五）](/content/gnews/9/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国医院吹哨人，所有这些中共病毒疫苗都是垃圾！](/content/gnews/10/README.md)
+### [观察：Fauci吹嘘与中共研究人员的私人通话](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲版中秋团圆](/content/gnews/11/README.md)
- ` 澳喜农场`
+### [法国顶级疫苗专家：新冠病毒政策“完全愚蠢”且“不道德”（五）](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国医院吹哨人，所有这些中共病毒疫苗都是垃圾！](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
  ` wenwu`
@@ -85,47 +85,47 @@
 ### [杰森·米勒被左翼巴西联邦警察扣留诱导签署不利文件](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国债务问题可能引发经济危机](/content/gnews/25/README.md)
- ` 纽约香草山MOS01`
-
-### [深山秘密会议决定未来世界走向，接种业大佬被劝服](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [美国证监会警告: 投资中共国可变利益实体存在风险](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [冲突风险增大, 日本促欧洲反对中共军事扩张](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [蔡英文与日本自民党总裁候选人高市早苗视讯通话](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [&#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [苹果公司：曾因人口贩卖问题，威胁要删除脸书应用程序](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西媒头条 — 第70期](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国创新经济体排名跻身世界前12位，归因生物基因战？](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国主要房地产开发商面临违约，将引发金融危机](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲已彻底走向与中共决裂对抗](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：推特因提供误导数据被集体诉讼 支付8亿美元和解](/content/gnews/36/README.md)
+### [秘翻在线：特鲁多再次当选总理，加拿大人选择了灾难](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [南加州促统论坛李毅等人疯狂叫嚣武统台湾](/content/gnews/37/README.md)
- ` 纽约香草山MOS02`
+### [美国债务问题可能引发经济危机](/content/gnews/26/README.md)
+ ` 纽约香草山MOS01`
 
-### [打土豪共产香港经济](/content/gnews/38/README.md)
+### [深山秘密会议决定未来世界走向，接种业大佬被劝服](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [美国证监会警告: 投资中共国可变利益实体存在风险](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [冲突风险增大, 日本促欧洲反对中共军事扩张](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [蔡英文与日本自民党总裁候选人高市早苗视讯通话](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [Twitter 将台湾割让给中共国](/content/gnews/31/README.md)
+ ` wenwu`
+
+### [秘翻在线：如何解读李子柒与“资本”闹翻？](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [苹果公司：曾因人口贩卖问题，威胁要删除脸书应用程序](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西媒头条 — 第70期](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国创新经济体排名跻身世界前12位，归因生物基因战？](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [&#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [中共国主要房地产开发商面临违约，将引发金融危机](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳洲已彻底走向与中共决裂对抗](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月19日 文贵先生盖特 6](/content/gnews/47/README.md)
+### [2021年9月19日 文贵先生盖特 11](/content/gnews/47/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 5](/content/gnews/48/README.md)
+### [2021年9月19日 文贵先生盖特 10](/content/gnews/48/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 4](/content/gnews/49/README.md)
+### [2021年9月19日 文贵先生盖特 9](/content/gnews/49/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 3](/content/gnews/50/README.md)
+### [2021年9月19日 文贵先生盖特 8](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 2](/content/gnews/51/README.md)
+### [2021年9月19日 文贵先生盖特 7](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 1](/content/gnews/52/README.md)
+### [2021年9月19日 文贵先生盖特 6](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [9/21/21 香港快讯 「中国维权律师关注组」宣布解散 上月被国安处要求交资料](/content/gnews/53/README.md)
- ` 英喜-粵語組`
+### [2021年9月19日 文贵先生盖特 5](/content/gnews/53/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [CCP百年百罪 第二十集（81 – 85罪）](/content/gnews/54/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [2021年9月19日 文贵先生盖特 4](/content/gnews/54/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [文贵先生给习主席捎个话，注意安全，20万亿美元不要惦记了](/content/gnews/55/README.md)
- ` 喜马拉雅农场新西兰站`
+### [2021年9月19日 文贵先生盖特 3](/content/gnews/55/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [无视中共施压, 法国参议院拟10月访台](/content/gnews/56/README.md)
- ` GTV新闻访谈`
+### [2021年9月19日 文贵先生盖特 2](/content/gnews/56/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [美两党参议员对中共申请加入太平洋贸易协定做出警告](/content/gnews/57/README.md)
- ` GTV新闻访谈`
+### [2021年9月19日 文贵先生盖特 1](/content/gnews/57/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

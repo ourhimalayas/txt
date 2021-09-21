@@ -2,27 +2,23 @@
 ---
 
 
-## 美国债务问题可能引发经济危机
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1546245/)
+## 秘翻在线：特鲁多再次当选总理，加拿大人选择了灾难
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1546373/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-1235395321.jpg)图片来源：** **english.alaraby.co.uk
+据nbcnews9月21日报道，特鲁多再次当选加拿大总理并组建少数党。他的当选是加拿大人的选择吗？如果是，加拿大人就是选择了灾难。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-2-1.png)
-文章仅代表作者本人观点，与Gnews无关
+- 特鲁多不遗余力地推行疫苗护照，并对拒绝者进行威胁。他说，“除非人们有医疗例外，否则如果他们没有接种疫苗，他们将无法在加拿大登上飞机或火车。”现在加拿大的疫苗接种率已经达到70%多；
+- 2015年10月自由党特鲁多主政以后，枪击、抢劫、吸毒犯罪案件数量不断上升, 加拿大的犯罪率快速上升的一个原因是特鲁多的自由党允许大麻合法化；
+- 他在疫情期间，为收买民心，采用高福利政策，至使债台高筑。特鲁多上台至今，加拿大联邦债务已上升了50%。联邦财政赤字更逼近4000亿加元，政府破产就在眼前；
+- 对于定性中共政权在新疆推行“种族灭绝”的动议，特鲁多和其内阁成员投弃权票。
 
-视频参看：2021.09.21早GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/6149cfba42a8af3151a26d89](https://gtv.org/broadcast/watch/6149cfba42a8af3151a26d89)
+特鲁多自由党的种种行径让我仿佛看到了加拿大未来的前景：大量失业、工厂倒闭、政府破产，因中共病毒和接种疫苗大量人员的死亡和伤残……我不想再想下去了。
 
-[https://www.youtube.com/watch?v=tuWSaZQdbrU](https://www.youtube.com/watch?v=tuWSaZQdbrU)
+Source:
 
-编辑/校对/发稿： 香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [Justin Trudeau’s Liberal Party wins Canada election, but misses majority](https://www.nbcnews.com/news/world/canadians-re-elect-justin-trudeau-s-liberal-party-n1279687)
+- [万锦每天超20起罪案，特鲁多上任后犯罪率急升！](https://gnews.org/zh-hans/1541513/)
+- [加拿大重要大选日，为自己为子孙后代，请您投出正确的一票](https://gnews.org/zh-hans/1544556/)
