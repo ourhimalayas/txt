@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年9月19日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1546374/)
+## 2021年9月20日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1546412/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-9月19号：大家务必看完这个视频，【这是一个真正的完整版的FDA h这是Dr Kirsch FDA会议作证的完整版，比郭先生以前发的那个视频多了几个重要的内容，包括辉瑞临床试验可能造假数据和欺诈。 而且还有一个脑筋急转弯问题，为什么以色列90岁以上老人疫苗接种率在过去四个月不仅不升，反而大幅下降？ 因为接种的老人死了大半！】喜站出品必是精品！
-
-[Himalaya Global(喜站)](https://gettr.com/user/globalhimalaya)@GlobalHimalaya·Sep 20FDA meeting reveals: the vaccine kills more people than it saves! It killed at least 2 people to save 1 life. A must watch! (完整版)FDA会议上披露：疫苗杀死的人远多于救的人！至少杀死2个人，才能救1个人，这还是假设疫苗有效率100%的前提下。辉瑞临床实验中，疫苗实验组死了20人，对照组死了14人。实验组心脏病发病率比对照组高4倍。而且辉瑞临床实验涉嫌欺诈和修改数据！ 以色列养老院90岁以上老人的接种率在过去4个月竟从 94.4% 下降到了 82.9%，为什么呢？因为一半以上打疫苗的老人都死了！
-
-[【2021年9月19日】文贵先生盖特原文](https://gettr.com/post/pbmbsm826d)
+9月20号：这一切一切都证明了新中国联邦对中共的虚假经济纸老虎的本质的了解……和战友们一起对重大情报的掌握，四年来这一个个的重大事件，证明了我们的灭共实力……和上天力量的赐力……这都是上天送给我们的礼物。【黑色星期一！中国恒大闪崩17% 港股全线杀跌 富时中国A50也崩了4%！】在中秋节的前一天，港股突然全线暴跌！香港恒生指数开盘跌1.12%。随后，恒指跌幅扩大至4%，自去年10月以来首次跌至24000点关口下方。在此情况下，美股股指期货走低，道指期货跌幅扩大至1%，标普500指数现跌0.86%，纳指期货跌0.9%。】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2b96e9142a9560ce311833ea5511664a.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/06f14e3fa6752d41ff76633fb21ad7d7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/19d9a62e5d0b88c5b32cffab235c58f4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/98aec1e35ecc3ca005926d49394d52df.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/f852a16f627371bc6f0ad23bd9d984b4.jpg)
+[【2021年9月20日】文贵先生盖特原文](https://gettr.com/post/pbr46wca4f)
 
 **喜联盟Gnews编辑部**

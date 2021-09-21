@@ -28,13 +28,13 @@
 ### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月20日 文贵先生盖特 10](/content/gnews/6/README.md)
+### [2021年9月21日 文贵先生盖特 1](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 9](/content/gnews/7/README.md)
+### [2021年9月21日 文贵先生盖特 2](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 8](/content/gnews/8/README.md)
+### [2021年9月20日 文贵先生盖特 11](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [秘翻在线：一个德国普通前线疫苗接种医生的心声](/content/gnews/9/README.md)
@@ -103,29 +103,29 @@
 ### [蔡英文与日本自民党总裁候选人高市早苗视讯通话](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [Twitter 将台湾割让给中共国](/content/gnews/31/README.md)
+### [能源价格暴涨可能削弱欧洲经济](/content/gnews/31/README.md)
+ ` 纽约香草山MOS02`
+
+### [Twitter 将台湾割让给中共国](/content/gnews/32/README.md)
  ` wenwu`
 
-### [秘翻在线：如何解读李子柒与“资本”闹翻？](/content/gnews/32/README.md)
+### [秘翻在线：如何解读李子柒与“资本”闹翻？](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [苹果公司：曾因人口贩卖问题，威胁要删除脸书应用程序](/content/gnews/33/README.md)
+### [苹果公司：曾因人口贩卖问题，威胁要删除脸书应用程序](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西媒头条 — 第70期](/content/gnews/34/README.md)
+### [西媒头条 — 第70期](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国创新经济体排名跻身世界前12位，归因生物基因战？](/content/gnews/35/README.md)
+### [中共国创新经济体排名跻身世界前12位，归因生物基因战？](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [&#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议](/content/gnews/36/README.md)
+### [&#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [中共国主要房地产开发商面临违约，将引发金融危机](/content/gnews/37/README.md)
+### [中共国主要房地产开发商面临违约，将引发金融危机](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲已彻底走向与中共决裂对抗](/content/gnews/38/README.md)
- ` GTV新闻访谈`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月20日 文贵先生盖特 7](/content/gnews/47/README.md)
+### [2021年9月20日 文贵先生盖特 10](/content/gnews/47/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 6](/content/gnews/48/README.md)
+### [2021年9月20日 文贵先生盖特 9](/content/gnews/48/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 5](/content/gnews/49/README.md)
+### [2021年9月20日 文贵先生盖特 8](/content/gnews/49/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 4](/content/gnews/50/README.md)
+### [2021年9月20日 文贵先生盖特 7](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 3](/content/gnews/51/README.md)
+### [2021年9月20日 文贵先生盖特 6](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 2](/content/gnews/52/README.md)
+### [2021年9月20日 文贵先生盖特 5](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 1](/content/gnews/53/README.md)
+### [2021年9月20日 文贵先生盖特 4](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 11](/content/gnews/54/README.md)
+### [2021年9月20日 文贵先生盖特 3](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 10](/content/gnews/55/README.md)
+### [2021年9月20日 文贵先生盖特 2](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 9](/content/gnews/56/README.md)
+### [2021年9月20日 文贵先生盖特 1](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 8](/content/gnews/57/README.md)
+### [2021年9月19日 文贵先生盖特 11](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

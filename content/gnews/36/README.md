@@ -2,30 +2,32 @@
 ---
 
 
-## &#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545996/)
+## 中共国创新经济体排名跻身世界前12位，归因生物基因战？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1546049/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-266.png)
-栏目记者：新世界的一员
+作者：东京樱花团｜捆绑CCP一千年
 
-日前美澳英宣布订立共同应对中国的三国盟约组织，由于美国将依照协定向澳大利亚提供核潜艇技术，澳大利亚随后”撕毁” 数年前与法国签订的巨额潜艇购买合同，从而引爆”美法澳三国外交危机” ， 且继续发酵中。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-283.png)
-目前法国在其中蒙受损失的立场得到欧盟委员会支持。法国宣布撤回驻美澳大使, 美国总统拜登试图与法国缓解气氛，已主动提出与马克龙通话。欧盟外长周一起将利用在联合国开会的机会，提前讨论此次的潜艇外交危机“对欧盟与澳大利亚自贸谈判可能带来的冲击”，而该自贸谈判原本定于10月12日才开幕。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/中共国创新经济体排名跻身世界前12位.png)[*图片来源*](https://www.reuters.com/resizer/-tsRNLHwvQQlv09qQDvyynGb1U4=/1200x0/filters:quality%2880%29/cloudfront-us-east-2.images.arcpublishing.com/reuters/YPAZXUKGWVNKFIBXVY2LXSCFOI.jpg)
 
-参考链接：
+据[新华社9月21日消息](http://www.news.cn/politics/2021-09/21/c_1127885365.htm)：世界知识产权组织20日发布《2021年全球创新指数》显示，中共国在创新领域的全球排名从去年的第14位上升至今年的第12位，仍是前30名中唯一的中等收入经济体。而“[根据 GII 2021 排名，2021 年全球最具创新力的经济体是瑞士，其次是瑞典、美利坚合众国 (US)、英国 (UK) 和大韩民国](https://www.wipo.int/global_innovation_index/en/2021/)。”中国香港仍然被作为单独政体位列14位。
 
-[https://www.rfi.fr](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210920-%E6%A0%B8%E6%BD%9B%E8%89%87%E5%8D%B1%E6%A9%9F-%E6%8B%9C%E7%99%BB-%E6%80%A5%E6%96%BC-%E8%88%87%E9%A6%AC%E5%85%8B%E9%BE%8D%E9%80%9A%E8%A9%B1-%E6%AD%90%E6%BE%B3%E8%87%AA%E8%B2%BF%E5%8D%94%E8%AD%B0%E6%81%90%E8%A7%B8%E7%A4%81)
+报告称，自2013年以来中国排名持续稳步上升，确立了作为全球创新领先者的地位，且每年都在向前十名靠近，这“凸显了政府政策和激励措施对于促进创新的持续重要性”。据透露，中国单位GDP（国内生产总值）的专利数量高于日本、德国和美国，高等教育入学率等指标上，中国仍落后于德国和美国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-274.png)
+- ***延展阅读：***[***中共苏州艾博生物融资7亿美元和沃尔瓦克斯生物技术共同开发***](https://www.reuters.com/business/healthcare-pharmaceuticals/chinas-mrna-vaccine-technology-firm-abogen-raises-over-700-mln-2021-08-19/)[***mRNA疫苗***](https://gtv.org/video/id=6123954314187a38e0531504)
+- ***延展阅读：***[***中国在联合国的力量正在迅速增长，美国必须加强其游戏***](https://www.foxnews.com/opinion/china-power-un-us-dobriansky-runde)
 
-责任编辑/终审：FoxRina
-校正/发稿：浪迹天涯
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-265.png)
-0
+显而易见的是，中共国上述成绩和邓鸿森这个人离不开。早在4月26日，[中共国CCTV](http://app.cctv.com/special/cportal/detail/arti/index.html?id=ArtiaHea0dAtZXyksu9r9XA8210425&amp;fromapp=cctvnews&amp;version=807)对于运作这一排名专访了邓鸿森：他表示推动经济复苏，发挥中小企业对于经济发展至关重要。中国从战略、全面的角度保护和运用知识产权，而另一个显著事实是，中共国腾讯、阿里巴巴、百度等科技创新经济体即将崩溃。邓鸿森还认为，“新冠肺炎疫情虽然对人们的生活造成了很大的影响，但它也加速了科技创新和数字化的发展趋势。我认为这些趋势告诉我们知识产权更加的重要。”这一点也是显而易见的，中共发送生物战，这一领域催生了生物医药科技和疫苗科技领域的发展。但时至今日，中共发动的生物战正在每天夺去无数世界人民的生命。
+
+即便世界知识产权组织罔顾人命不管。但从中共国创新集群的情况看，只有微小变化。他是除深圳、广州之外加上香港。分别位列全球前100个创新集群的额度第二和第三名，仅次于排名第一的日本东京-横滨集群。尽管如此，北京无法否认的落后在于他承认瑞士、瑞典、美、英的排名继续领先，分别位列一至四位。而世界知识产权组织一直将前十名列入世界创新经济体，往后排名的算是最落伍的。另一个事实是，你还要看到如加拿大、以色列等这些国家科技一直是领先的，而且西方国家之间很多领域是技术共享，不一定每个国家都要超前研发一些不切实际的科技创新经济体如生物科技用来大规模杀人等。这一点，中共可以说舍我其谁。这绝非危言耸听，美国“[FDA会议上披露：疫苗杀死的人远多于救的人！至少杀死2个人，才能救1个人](https://www.gettr.com/post/pblag7a163)。”
+
+2021年9月21日
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/樱花团图标-1.jpg)
+
++1
