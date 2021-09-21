@@ -2,30 +2,32 @@
 ---
 
 
-## 蔡英文与日本自民党总裁候选人高市早苗视讯通话
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546019/)
+## 冲突风险增大, 日本促欧洲反对中共军事扩张
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546115/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-266.png)
-责任编辑：云豹
+栏目记者/责任编辑  Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-285.png)
+日本防卫大臣岸信夫接受英国《卫报》采访称, 敦促欧洲反对中共国的军事扩张。岸信夫警告说，国际社会必须加强对中共在军事和领土扩张趋势的威慑，因为发生局部激烈冲突的风险越来越大。
 
-在中共对台施压增强之际，9月20日，蔡英文以民进党党主席的身分与日本自民党总裁候选人高市早苗进行视讯通话，针对东亚地区的安全保障等课题交换意见。在中共对台施压增强之际，9月20日，蔡英文以民进党党主席的身分与日本自民党总裁候选人高市早苗进行视讯通话，针对东亚地区的安全保障等课题交换意见。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-284.png)
-高市早苗在此前受访时曾表示台湾安危与对日本息息相关，必要时日方需动用集体自卫权应对台湾所受危机。安倍晋三则`对此次通话高调发推，称”守护自由与民主的二人会谈，世界注目。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-37.jpeg)
 
-此次日本自民党总裁竞选，四位候选人竞相表达出自己对中共的强硬立场，近几十年来日本政坛罕见。爆料革命四年来对国际形势的影响有目共睹，日本已明显改变亲共态度，开始转向深思如何面对中共威胁。
+岸信夫称，中共正试图利用其不断装大的军事力量，实行慢慢推远界限/灰色地带等战略，单方面改变东海和南海的现状。东中国海和南中国海问题不仅是区域问题，也是国际社会问题，更是与欧洲相关的事情，对抗中共国还需要欧洲更多国家对此表明态度，对中共形成威慑。
 
-[参考连接]：[https://www.cna.com.tw/news/firstnews/202109200251.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202109200251.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+岸信夫的这一言论也得到了台湾的响应，包括台湾前海军司令和国防部副部长在内的军事专家发出预警,  表示目前在台海已成常态的小规模的对抗或海上事故, 随时可能“迅速升级为与中共的全面冲突”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
+(本文仅代表作者观点）
 
-终审:  FoxRina
-校正/发稿：浪迹天涯
+参考链接：[日本促歐洲反中國軍事擴張：激烈衝突風險越來越大](https://www.rfi.fr/tw/國際/20210920-日本促歐洲反中國軍事擴張-激烈衝突風險越來越大)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-266.png)
-0
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

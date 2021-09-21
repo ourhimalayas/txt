@@ -85,47 +85,47 @@
 ### [杰森·米勒被左翼巴西联邦警察扣留诱导签署不利文件](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：特鲁多再次当选总理，加拿大人选择了灾难](/content/gnews/25/README.md)
+### [秘翻在线: 中国如何应对美国巨额债务](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国债务问题可能引发经济危机](/content/gnews/26/README.md)
+### [秘翻在线：特鲁多再次当选总理，加拿大人选择了灾难](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国债务问题可能引发经济危机](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [深山秘密会议决定未来世界走向，接种业大佬被劝服](/content/gnews/27/README.md)
+### [深山秘密会议决定未来世界走向，接种业大佬被劝服](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [美国证监会警告: 投资中共国可变利益实体存在风险](/content/gnews/28/README.md)
+### [美国证监会警告: 投资中共国可变利益实体存在风险](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [冲突风险增大, 日本促欧洲反对中共军事扩张](/content/gnews/29/README.md)
+### [冲突风险增大, 日本促欧洲反对中共军事扩张](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [蔡英文与日本自民党总裁候选人高市早苗视讯通话](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [DC每日热点0921](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [能源价格暴涨可能削弱欧洲经济](/content/gnews/31/README.md)
+### [能源价格暴涨可能削弱欧洲经济](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [Twitter 将台湾割让给中共国](/content/gnews/32/README.md)
+### [Twitter 将台湾割让给中共国](/content/gnews/33/README.md)
  ` wenwu`
 
-### [秘翻在线：如何解读李子柒与“资本”闹翻？](/content/gnews/33/README.md)
+### [秘翻在线：如何解读李子柒与“资本”闹翻？](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [苹果公司：曾因人口贩卖问题，威胁要删除脸书应用程序](/content/gnews/34/README.md)
+### [苹果公司：曾因人口贩卖问题，威胁要删除脸书应用程序](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西媒头条 — 第70期](/content/gnews/35/README.md)
+### [西媒头条 — 第70期](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国创新经济体排名跻身世界前12位，归因生物基因战？](/content/gnews/36/README.md)
+### [中共国创新经济体排名跻身世界前12位，归因生物基因战？](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [&#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议](/content/gnews/37/README.md)
+### [蔡英文与日本自民党总裁候选人高市早苗视讯通话](/content/gnews/38/README.md)
  ` GTV新闻访谈`
-
-### [中共国主要房地产开发商面临违约，将引发金融危机](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
