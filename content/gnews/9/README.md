@@ -2,30 +2,32 @@
 ---
 
 
-## 福奇资助武汉病毒研究所60个项目，全部与中共军方有关联
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1545356/)
+## 槲皮素和锌-对抗COVID19的作用
+` Runaway` [轉載自GNews](https://gnews.org/zh-hans/1545344/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/zz1.jpg)图片来源：视频截图
-9月19日，新闻网站《门户专家》(TheGatewayPundit)作者乔·霍夫特（*Joe Hoft*）撰文，指2020年首次注意到武汉病毒研究所，并在4月注意到该研究所用活体动物做实验。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/quercetin.jpg)
+研究表明，槲皮素是一种天然的抗组织胺（过敏）和抗炎症植物制剂，可以提高您的免疫系统，也可能控制病毒的复制。槲皮素能够让锌发挥其已经验证的抗病毒特性。在治疗Covid-19时，槲皮素还可能降低炎症、清除粘液、防止呼吸机引起的损伤和增强免疫力。
 
-作者说，中共在病毒学方面的所有工作都与中共国军方有关，因此中共国在这一领域的任何工作都是与中共国军方合作的。
+槲皮素已被证明有助于对抗肥胖、2 型糖尿病、循环功能障碍、慢性炎症和情绪障碍。它甚至被发现有助于降低血压。研究人员发现槲皮素可以触发肿瘤消退并开始细胞凋亡过程。这是一个可控的细胞死亡过程，没有它，细胞可以不间断地生长并发展成癌性生长。
 
-文章说，澳大利亚知名记者、《天空新闻台》(SkyNews)主播莎莉·马克森（*Sharri Markson*）即将出版一本书，指这是她研究安东尼·福奇（Anthony Fauci）努力的成果，几个小时前，《天空新闻台》播报了如下内容：
+槲皮素最初被发现可以提供针对 SARS 冠状病毒的广谱保护，是在2003年26个国家爆发 SARS流行之后。现在一些医生正在倡导用它与维生素C协同使用对抗SARS-COV-2。
 
-（作者）我发现他（福奇）的机构在武汉病毒学研究所资助了60个项目。并且，他在2012年撰写了一篇论文，论文论证了对冠状病毒进行基因操作以便使其变得更加危险和更具传播性，指这种（病毒）功能性增强研究具有大流行病的风险。同时，福奇资助了（此类）研究，他的机构与中共国军方一起资助了武汉病毒研究所的冠状病毒功能增强性研究。
+槲皮素通过充当锌离子载体，（与羟氯喹相同的机制）帮助锌通过细胞壁而阻止病毒复制，槲皮素的这种锌离子载体活性促进锌跨细胞膜的转运，而锌会通过抑制RNA聚合酶来减缓冠状病毒的复制。COVID-19是一种RNA(RiboNucleicAcid)病毒，需要RNA聚合酶进行复制。
 
-**新闻来源**
+虽然因为槲皮素可以作为锌离子载体来改善细胞对锌的吸收，一些医生建议使用它来减少病毒性疾病，但对于锌的转运，它的效果还是远不如 HCQ（羟氯喹），并且它在肺细胞中的浓度不像HCQ那样高。
 
-[BREAKING: Dr. Fauci Funded 60 Projects at the Wuhan Institute of Virology and All Were in Conjunction with the Chinese Military](https://www.thegatewaypundit.com/2021/09/breaking-dr-fauci-funded-60-projects-wuhan-institute-virology-conjunction-chinese-military/)
+如果您基本健康，槲皮素可能有助于降低感染病毒性疾病的风险。但是一旦出现症状，它就不足以代替HCQ治疗COVID，它不能充分地进入肺组织。也就是说，如果您根本无法获得羟氯喹或伊维菌素，槲皮素是一种可行的替代品。槲皮素与维生素C和菠萝蛋白酶一起服用效果最佳，因为维生素C有助于激活它，而菠萝蛋白酶有助于吸收。
 
-发布：七彩光
+Zelenko医生认为数据显示，早期干预和治疗高风险Covid-19患者对减少住院治疗和死亡率至关重要。该治疗方案涉及锌，低剂量羟氯喹和阿奇霉素，也就是“Zelenko治疗方案”。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+最近伊维菌素作为一种在COVID-19的所有三个阶段（预防、早期治疗和晚期治疗）更有效的药物脱颖而出（也是长期存在的、廉价的常用药）。Zelenko 医生更新了他的方案，将伊维菌素作为预防和治疗方案的一种选择，COVID-19是一个高度动态的话题，请参考最新的FLCCC方案。
+
+尽管伊维菌素和羟氯喹是相对安全的药物，但它们仍然是可能产生副作用的合成化学品，而且目前甚至通过医生的处方都难以获得。槲皮素和维生素D、C以及锌则是您的身体保持最佳健康状态所需的营养素，营养素是更安全的替代品，尤其是在您的风险较低的情况下，例如50岁以下、无其它慢性病。目前营养品还可以容易地通过线上和线下获得，但仍需注意与其它药物之间的相互作用，可能会增加不良反应的，与您的医生讨论每种治疗的益处与风险。
+
+（以上观点不代表GNEWS）
+
+参考链接：
+
+[QUERCETIN AND ZINC: ZELENKO TREATMENT PROTOCOL (SEPTEMBER 2021)](https://covid19.onedaymd.com/2021/03/quercetin-and-zinc-zelenko-treatment.html?m=1)
 
 0

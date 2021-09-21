@@ -2,10 +2,10 @@
 ---
 
 
-## 恒大财富暴雷，受害者聚集讨要说法
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545070/)
+## 恒大公司债券停止交易一天
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545365/)
 
-9/11/2021 恒大财富暴雷，受害者聚集深圳市政府前讨要说法。一位受害者拦住领导座驾，情绪失控。
+9/16/2021 恒大地产有限公司发布关于暂停一天交易公司债券的公告。2021年9月17日复牌，且交易方式会被调整。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
