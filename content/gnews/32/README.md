@@ -2,13 +2,13 @@
 ---
 
 
-## 日本65岁以上3640万人，占总人口29.1%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1545334/)
+## 周一香港股市，恒大系股票暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1545345/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-21-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0921.png)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*
 *发布：东京樱花团 / tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-+1
+0

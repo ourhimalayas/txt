@@ -2,69 +2,27 @@
 ---
 
 
-## 美官方数据：新冠疫苗对儿童造成的伤亡远超其它所有疫苗的总和
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545300/)
+## 秘翻在线：中共病毒杀死的美国人已相当于西班牙流感的死亡总数
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545305/)
 
-栏目记者/责任编辑：AsG諾雅
+#### 撰稿：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-34.jpg)图片来源：网络截图
+美联社9月20日报道，中共病毒杀死的美国人已赶上1918-1919年的西班牙流感大流行时死亡的总数，约67万5千人。
 
+美国于一百年前的人口相当于现在的1/3，也就是说当时流感引起的死亡在人口中比例更高，致死率更高，但中共病毒所造成的危机无论如何本身就是一个巨大的悲剧，尤其是现在科技发展如此先进，却无法让疫苗发挥足够有效的作用。
 
+像西班牙流感那样，中共病毒可能在我们中间不能完全消失，相反，科学家们希望它通过疫苗和反复感染来加强人体免疫从而成为轻度的季节性感染，但这需要时间。由德尔塔变种病毒引起的这一波感染可能已经达到高峰，一天死亡达到1900人，是自今年3月份以来的最高点，总共死亡数周一达到67万5千人，这是根据约翰霍普金斯医院的数据，真实数字可能更高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+冬天可能又有一波疫情，据华盛顿大学的流行病模型预测到明年元旦前估计还会有近10万人死亡，到时估计死亡总数会达到77万6千人。
 
+一百年前的西班牙流感造成5000万人死亡，相当于世界总人口的1/4，目前中共病毒在全球已经引起4百60万人死亡。
 
+如果中共病毒毒力变弱，那么更多人会获得免疫力，疫苗或经过感染后恢复是主要的方法，母乳喂养的婴儿可以从妈妈获得免疫保护，学龄儿童感染后症状可能比较较微，成长过程中免疫系统有记忆功能，那么这种感染就不会变得比一般流感病毒更可怕。
 
+在中共病毒大流行之前，西班牙流感被认为是人类历史上最可怕大流行，当时没有疫苗，没有抗菌素治疗继发细菌感染，当然，当时人们的流动性没有现在这么大。目前担心的是新的变种会绕过疫苗所针对的目标，造成疫苗无效。
 
-
-每日揭露网9月20日报道了美国疾病控制和预防中心（CDC）疫苗不良事件报告系统（VAERS）中令人震惊的新数据。截至2021年9月10日，在新冠病毒疫苗获得紧急使用授权后的9个月内，中共病毒感染导致严重疾病的风险几乎为零的17岁以下儿童，因为疫苗接种遭受了巨大的伤害。
-
-对比其它非新冠疫苗造成的伤害数据，可以发现在2020年12月1日至2021年9月20日期间，
-
-新冠病毒疫苗致死人数，是所有其他疫苗的21倍，
-
-致残人数近8倍，
-
-急诊人数40倍，
-
-住院人数36倍，
-
-导致生命威胁事件18倍。
-
-12至20岁青少年中，因新冠病毒疫苗接种导致血栓形成的病例比其他所有疫苗高出23倍。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-7.jpg)
-尽管没有任何孕妇参加这些毒疫苗的临床试验，当局却建议孕妇接种。CDC最新数据显示，已经有1,614例孕妇接种毒疫苗后的胎儿死亡记录。至今，官方仍然维持对孕妇接种该疫苗的建议。
-
-从整体接种人群来看，截至2021年9月10日，VAERS中已经记录了超过310万起因新冠病毒疫苗造成的伤害，同时还有80337次急诊，60565次住院，19210次永久性残疾，15012次生命危险事件，以及14925次死亡。相比之下，从1991年1月1日到2020年11月30日，即截止中共病毒疫苗紧急授权前一个月，所有疫苗导致的死亡记录为6068例。新冠病毒疫苗的致死人数，是过去30年所有其他疫苗的2.46倍。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-59.jpg)
-再结合此前英国官方数据显示的情况，今年头8个月因中共病毒疫苗死亡的人数是过去20年零8个月所有其他疫苗的四倍。各国政府利用中共病毒给人们散播了不安和恐惧，其毒疫苗必将给人类带来的是无法想象的毁灭性灾难。但尽管如此，美国食品和药物管理局和疾病预防控制中心（FDA）即将批准辉瑞疫苗用于5岁以上儿童，福奇甚至表示，在圣诞节前，它可能被批准用于6个月大的儿童。是时候觉醒了。
-
-参考链接：
-[The Covid-19 Vaccines have harmed and killed more children in the USA than all other vaccines combined according to official data](https://theexpose.uk/2021/09/20/covid-19-vaccines-have-killed-more-children-than-all-other-vaccines-combined/)
-[Since 2001 there had been 404 deaths due to all available vaccines, but since the start of 2021 there have been 1,612 deaths due to just the Covid-19 Vaccines](https://theexpose.uk/2021/09/07/foi-covid-vaccines-four-times-more-deadly-than-all-other-vaccines-combined/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
+##### 新闻来源： [COVID has killed about as many Americans as the 1918-19 flu](https://apnews.com/article/science-health-pandemics-united-states-coronavirus-pandemic-c15d5c6dd7ece88d0832993f11279fbb)
 
 
 

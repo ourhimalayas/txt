@@ -2,58 +2,27 @@
 ---
 
 
-## 参议员瑞克·斯科特： 我们正处于与共产主义中国 的新冷战中
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1545093/)
+## 秘翻在线：川普说，故意放毒是战争行为
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545216/)
 
-参议员瑞克·斯科特： 我们正处于与 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的新冷战中。可耻的是，拜登总统软弱的绥靖政策意味着他没有勇气说出这句话并保护美国的利益。 【转Axioms报道：拜登在第一次联合国大会演讲中强调，美国不寻求与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 新的冷战】
+撰稿：彩虹
 
+责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-267.png)图片来源：The Conversation
+9月20日，《新闻极限》（Newsmax）记者西奥多·邦克（Theodore Bunker）报道了澳洲《天空新闻台》采访前总统川普和前国务卿彭佩奥的新闻。
 
+前总统川普在接受采访时说：“一些情报是保密的，我不能谈论，但其可能性是很大的，当我说极有可能时，比如有95%的可能性来自武汉实验室。我不知道他们是因为怀有恶意还是严重的渎职，但无论如何，它来自武汉，来自武汉实验室。我开始听到一些故事……说实验室外面有很多尸袋。我很久以前就听说了。如果他们确实有尸袋，这不就是蛛丝马迹吗？”
 
-> We are in a new Cold War with Communist China. It’s disgraceful that President Biden’s weak appeasement means he can’t find the courage to say that and protect American interests. [https://t.co/97qfkEbgMh](https://t.co/97qfkEbgMh)
-> — Rick Scott (@SenRickScott) [September 20, 2021](https://twitter.com/SenRickScott/status/1440046638790156292?ref_src=twsrc%5Etfw)
+川普特别补充道：“我认为这可能是一个意外，我不认为这是故意的。但如果是故意的，那实质上就是战争行为。”
 
+此外，川普还批评了世卫组织(WHO)及其领导人谭德塞（Tedros Adhanom Ghebreyesus）。“世卫组织是被中共掌控的，我（决定）从世卫组织退出。太荒唐了，他们的工作拖拉，他们这么做是错的，他们就是中共的传声筒。”
 
+《天空新闻台》还采访了前国务卿迈克·彭佩奥（Mike Pompeo），他也认为谭德塞完全受控于“中共政府”。
 
-妮基·海莉（前美驻联合国大使】： 明天在联合国，拜登需要直面我们的挑战：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 释放新冠病毒、朝鲜试射导弹以及伊朗支持恐怖主义。他必须鼓励各国不要承认塔利班为合法政府。 是显示实力的时候了。不要再偏离和分心了
+他说：“谭德塞把他在世卫组织的职位（获得）归功于与中共达成的交易，没有中共的支持，他不可能成为世卫组织领导人。世卫组织不愿意要求中共给予其（调查访问）权限。他们的调查是失败的，而失败的原因在于缺少骨气和决心，世界为此陷入了糟糕境地。这是一场灾难，而灾难的核心就是2019年末和2020年初,（他们）将其变成了政治，而不是科学问题，越来越成为被个人私利而驱使，而非科学数据。”
 
+**新闻来源**
 
-
-> At the UN tomorrow, Biden needs to confront our challenges head-on: China unleashing COVID, North Korea testing missiles & Iran’s support of terror. He must encourage countries not to recognize the Taliban as a legitimate govt.
-> 
-> Time for strength. No more deflection & distraction
-> — Nikki Haley (@NikkiHaley) [September 20, 2021](https://twitter.com/NikkiHaley/status/1439992874792333316?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 据这位举报人称，脸书(Facebook)根本没有采取任何措施来阻止 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 使用他们的服务追踪维吾尔人。
-
-
-
-> According to this whistleblower, Facebook has done nothing to stop the CCP from using their service to track down Uyghurs.[https://t.co/dBu0CCTJP2](https://t.co/dBu0CCTJP2)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [September 21, 2021](https://twitter.com/MarshaBlackburn/status/1440109593959542787?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 随着 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 继续努力渗透并最终控制香港人的政府以及他们的生活方式，我将继续与香港人民站在一起。 【附路透社报道：香港第一次“只有爱国者”选举开始了】
-
-
-
-> I continue to stand with the people of Hong Kong as Communist China continues its efforts to infiltrate and ultimately control their government, as well as their way of life. [https://t.co/CP2lqc6Hxc](https://t.co/CP2lqc6Hxc)
-> — Rep. Ken Buck (@RepKenBuck) [September 20, 2021](https://twitter.com/RepKenBuck/status/1440082048505434114?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： 美国和世界各地的民主盟友有道义责任站出来反对 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) [#Beijing](https://twitter.com/hashtag/Beijing?src=hashtag_click) 对维吾尔人及其他突厥穆斯林的持续种族灭绝。 那些在这种情况下从事道德和文化相对主义的人没有领导自由世界的营生。
-
-【转维吾尔人运动推文：“解决暴行罪，特别是制止 [#对维吾尔人大屠杀](https://twitter.com/hashtag/%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click)[#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hashtag_click)，需要毅力。它需要拒绝道德和文化相对主义的意愿。我们目前所面对的是邪恶，制止它是全人类的当务之急。” [@RushanAbbas](https://twitter.com/RushanAbbas)说】
-
-
-
-> The U.S. and democratic allies worldwide have a moral responsibility to stand up against [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) for the ongoing genocide against Uyghurs and other Turkic Muslims. 
-> 
-> Those who engage in moral and cultural relativism in such situations have no business leading the free world. [https://t.co/qHstoB5fSp](https://t.co/qHstoB5fSp)
-> — Senator Rubio Press (@SenRubioPress) [September 20, 2021](https://twitter.com/SenRubioPress/status/1440023208183336973?ref_src=twsrc%5Etfw)
-
-
+[Trump Insists ‘Gross Incompetence’ Caused Pandemic](https://www.newsmax.com/newsfront/trump-covid-19-china-wuhan/2021/09/20/id/1037146/)
 
 0

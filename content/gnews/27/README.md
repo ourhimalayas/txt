@@ -2,27 +2,52 @@
 ---
 
 
-## 秘翻在线：中共病毒杀死的美国人已相当于西班牙流感的死亡总数
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545305/)
+## 美国已有673,472人死于冠状病毒，超过四场战争军人的死亡人数总和
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545326/)
 
-#### 撰稿：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-34.jpg)图片来源：网络截图
-美联社9月20日报道，中共病毒杀死的美国人已赶上1918-1919年的西班牙流感大流行时死亡的总数，约67万5千人。
+栏目记者/责任编辑：正义的小新
 
-美国于一百年前的人口相当于现在的1/3，也就是说当时流感引起的死亡在人口中比例更高，致死率更高，但中共病毒所造成的危机无论如何本身就是一个巨大的悲剧，尤其是现在科技发展如此先进，却无法让疫苗发挥足够有效的作用。
 
-像西班牙流感那样，中共病毒可能在我们中间不能完全消失，相反，科学家们希望它通过疫苗和反复感染来加强人体免疫从而成为轻度的季节性感染，但这需要时间。由德尔塔变种病毒引起的这一波感染可能已经达到高峰，一天死亡达到1900人，是自今年3月份以来的最高点，总共死亡数周一达到67万5千人，这是根据约翰霍普金斯医院的数据，真实数字可能更高。
 
-冬天可能又有一波疫情，据华盛顿大学的流行病模型预测到明年元旦前估计还会有近10万人死亡，到时估计死亡总数会达到77万6千人。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-一百年前的西班牙流感造成5000万人死亡，相当于世界总人口的1/4，目前中共病毒在全球已经引起4百60万人死亡。
 
-如果中共病毒毒力变弱，那么更多人会获得免疫力，疫苗或经过感染后恢复是主要的方法，母乳喂养的婴儿可以从妈妈获得免疫保护，学龄儿童感染后症状可能比较较微，成长过程中免疫系统有记忆功能，那么这种感染就不会变得比一般流感病毒更可怕。
 
-在中共病毒大流行之前，西班牙流感被认为是人类历史上最可怕大流行，当时没有疫苗，没有抗菌素治疗继发细菌感染，当然，当时人们的流动性没有现在这么大。目前担心的是新的变种会绕过疫苗所针对的目标，造成疫苗无效。
 
-##### 新闻来源： [COVID has killed about as many Americans as the 1918-19 flu](https://apnews.com/article/science-health-pandemics-united-states-coronavirus-pandemic-c15d5c6dd7ece88d0832993f11279fbb)
+
+据布伦巴特新闻网报道，截至目前，美国已有 673,472 人死于中共病毒，超过第一次世界大战、第二次世界大战、朝鲜战争和越南战争中美国军人死亡人数的总和。
+
+据约翰霍普金斯大学统计，截至周日下午，美国已有 4千205万638 人感染中共病毒， 67万3千472 例死亡。据2020年11月美国退伍军人事务部的记录，第一次世界大战中 5万3千402 人死亡，第二次世界大战中有 29万1千557 人死亡，朝鲜战争死亡 3万3千739 人，越南战争死亡 4万7千434 人。四场战争的战斗死亡人数总计为426,132人。美国死于冠状病毒的人数，已超过四场战争的死亡人数总和。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-39.jpg)
+“CCP lied, Americans died.” 中共制造生化武器冠状病毒，向美国发动了生化战争，众多无辜的美国人因此失去生命。现在中共又和邪恶组织沆瀣一气，欲借毒疫苗残杀更多无辜的百姓。中共不灭，全世界都不会安全。
+
+参考链接：
+[More Americans Died from Coronavirus than from Combat in Four Wars](https://www.breitbart.com/health/2021/09/19/more-americans-died-coronavirus-combat-wwi-wwii-korean-and-vietnam-war-combined/amp/?__twitter_impression=true)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
 
 
 
