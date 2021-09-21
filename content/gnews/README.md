@@ -103,29 +103,29 @@
 ### [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [互联网自由度排名中共国连续七年垫底 台湾全球第五](/content/gnews/31/README.md)
+### [黑龙江出现“免费”租用商铺](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共批判美式民主是“钱主”本质，黑美国给国民洗脑](/content/gnews/32/README.md)
+### [互联网自由度排名中共国连续七年垫底 台湾全球第五](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC大中华时事：中共批判美式民主是“钱主”本质，黑美国给国民洗脑](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/33/README.md)
+### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/34/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
  ` wenwu`
 
-### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/35/README.md)
+### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/36/README.md)
+### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/37/README.md)
+### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [周一香港股市，恒大系股票暴跌](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大将是下一个雷曼兄弟？](/content/gnews/47/README.md)
+### [恒大危机致全球股市大震荡｜一文看清 国际政商、金融界反应](/content/gnews/47/README.md)
+ ` G&#124;News TAIWAN`
+
+### [中共疫苗接种覆盖人数达11亿，超10亿人完成全程接种](/content/gnews/48/README.md)
+ ` 儒为`
+
+### [恒大将是下一个雷曼兄弟？](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [槲皮素和锌-对抗COVID19的作用](/content/gnews/48/README.md)
+### [槲皮素和锌-对抗COVID19的作用](/content/gnews/50/README.md)
  ` Runaway`
 
-### [恒大债台高筑，无法支付员工工资](/content/gnews/49/README.md)
+### [恒大债台高筑，无法支付员工工资](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [短视频：福奇和媒体推波助澜，让大型药企完成“谋杀”](/content/gnews/50/README.md)
+### [短视频：福奇和媒体推波助澜，让大型药企完成“谋杀”](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注](/content/gnews/51/README.md)
+### [恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/52/README.md)
+### [周一香港股市，恒大系股票暴跌](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [六月雪狱（二）](/content/gnews/53/README.md)
+### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [六月雪狱（二）](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [续：再列举中共病毒“疫苗”严重伤害病例32例](/content/gnews/54/README.md)
+### [续：再列举中共病毒“疫苗”严重伤害病例32例](/content/gnews/57/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：洛杉矶卫生官员：好莱坞名人不受疫苗强制令约束](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [接种疫苗人群对他人存在危险，并需在冬季自我隔离以防重症](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [再遭港警国安处锁定 港学生组织成员清晨被捕](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 
