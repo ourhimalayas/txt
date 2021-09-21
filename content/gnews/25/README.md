@@ -2,25 +2,30 @@
 ---
 
 
-## 秘翻在线：美国空军正在为 C-130 增加浮筒 它们在与中国的战争中可能有用
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545657/)
+## &#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Snipaste_asdff2021fsdaf-09-21_18-15-52.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-266.png)
+栏目记者：新世界的一员
 
-美国空军特种作战司令部正在为其MC-130J突击队II 运输机设计可拆卸的浮筒。配备上浮筒，以陆地为基地的MC-130就会变成一架水上大飞机，并使它能够在任何平滑水域上起飞和降落。
+日前美澳英宣布订立共同应对中国的三国盟约组织，由于美国将依照协定向澳大利亚提供核潜艇技术，澳大利亚随后”撕毁” 数年前与法国签订的巨额潜艇购买合同，从而引爆”美法澳三国外交危机” ， 且继续发酵中。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-283.png)
+目前法国在其中蒙受损失的立场得到欧盟委员会支持。法国宣布撤回驻美澳大使, 美国总统拜登试图与法国缓解气氛，已主动提出与马克龙通话。欧盟外长周一起将利用在联合国开会的机会，提前讨论此次的潜艇外交危机“对欧盟与澳大利亚自贸谈判可能带来的冲击”，而该自贸谈判原本定于10月12日才开幕。
 
-这个想法是为了将AFSOC的运输机从混凝土跑道和简易的泥土机场中解放出来，这样他们就可以在没有合适陆地的地方部署和接走突击队员，例如岛屿、崎岖的海岸线和河流三角洲。
+参考链接：
 
-但是还有一个听起来不那么“激烈”的应用，在一场重大战争中，但实际上可能比任何突击行动重要得多。带有MAC浮筒的C-130飞机——这是“MC-130J突击队II两栖能力”的缩写——可以对岛屿基地进行补给。
+[https://www.rfi.fr](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210920-%E6%A0%B8%E6%BD%9B%E8%89%87%E5%8D%B1%E6%A9%9F-%E6%8B%9C%E7%99%BB-%E6%80%A5%E6%96%BC-%E8%88%87%E9%A6%AC%E5%85%8B%E9%BE%8D%E9%80%9A%E8%A9%B1-%E6%AD%90%E6%BE%B3%E8%87%AA%E8%B2%BF%E5%8D%94%E8%AD%B0%E6%81%90%E8%A7%B8%E7%A4%81)
 
-美国军方曾经拥有过一大批两栖飞机。在第二次世界大战期间，美国海军的卡塔琳娜（Catalina）号飞艇对敌舰进行巡逻，猎杀潜艇并营救落水的飞行员。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-274.png)
 
-战后，水上飞机在海军中不再受到青睐。美国遍布世界的空军基地网络和直升机的出现，似乎使固定翼两栖飞机过时了。
+责任编辑/终审：FoxRina
+校正/发稿：浪迹天涯
 
-但环境正在发生变化。在美国最有可能发动一场重大战争的地方——西太平洋，五角大楼实际上缺少合适的基地。
-
-与此同时，一种新兴的对华战争理论要求美国海军陆战队，要在海军和美国空军的支持下占领中国导弹射程内的小岛前哨站。
-
-相关链接：**[The U.S. Air Force Is Adding Floats To C-130s. They Could Be Useful In A War With China.](https://www.forbes.com/sites/davidaxe/2021/09/17/the-us-air-force-is-adding-floats-to-its-c-130s-they-could-be-useful-in-a-war-with-china/)**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-265.png)
 0

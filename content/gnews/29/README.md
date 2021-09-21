@@ -2,28 +2,32 @@
 ---
 
 
-## 秘翻在线：中共病毒杀死的美国人已相当于西班牙流感的死亡总数
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545305/)
+## 美英将共同应对中共&#8221;贸易战&#8221;
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545803/)
 
-#### 撰稿：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-34.jpg)图片来源：网络截图
-美联社9月20日报道，中共病毒杀死的美国人已赶上1918-1919年的西班牙流感大流行时死亡的总数，约67万5千人。
+栏目记者/责任编辑：七哩香
 
-美国于一百年前的人口相当于现在的1/3，也就是说当时流感引起的死亡在人口中比例更高，致死率更高，但中共病毒所造成的危机无论如何本身就是一个巨大的悲剧，尤其是现在科技发展如此先进，却无法让疫苗发挥足够有效的作用。
-
-像西班牙流感那样，中共病毒可能在我们中间不能完全消失，相反，科学家们希望它通过疫苗和反复感染来加强人体免疫从而成为轻度的季节性感染，但这需要时间。由德尔塔变种病毒引起的这一波感染可能已经达到高峰，一天死亡达到1900人，是自今年3月份以来的最高点，总共死亡数周一达到67万5千人，这是根据约翰霍普金斯医院的数据，真实数字可能更高。
-
-冬天可能又有一波疫情，据华盛顿大学的流行病模型预测到明年元旦前估计还会有近10万人死亡，到时估计死亡总数会达到77万6千人。
-
-一百年前的西班牙流感造成5000万人死亡，相当于世界总人口的1/4，目前中共病毒在全球已经引起4百60万人死亡。
-
-如果中共病毒毒力变弱，那么更多人会获得免疫力，疫苗或经过感染后恢复是主要的方法，母乳喂养的婴儿可以从妈妈获得免疫保护，学龄儿童感染后症状可能比较较微，成长过程中免疫系统有记忆功能，那么这种感染就不会变得比一般流感病毒更可怕。
-
-在中共病毒大流行之前，西班牙流感被认为是人类历史上最可怕大流行，当时没有疫苗，没有抗菌素治疗继发细菌感染，当然，当时人们的流动性没有现在这么大。目前担心的是新的变种会绕过疫苗所针对的目标，造成疫苗无效。
-
-##### 新闻来源： [COVID has killed about as many Americans as the 1918-19 flu](https://apnews.com/article/science-health-pandemics-united-states-coronavirus-pandemic-c15d5c6dd7ece88d0832993f11279fbb)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
+美国贸易代表戴琪9月20日与新上任的英国贸易大臣安妮玛丽·特里维廉通话，“同意两国继续开展富有成效的对话，以应对中国和其他非市场经济体扭曲市场行为带来的共同挑战”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.33.55-PM.png)
+戴琪强调她致力于深化美国和英国之间的双边贸易和投资关系，并讨论了对美英自由贸易协议谈判进行的审议。拜登政府目前正在酝酿对中共的产业补贴政策启动“301条款”调查。此番表态，意味着美国和英国作为两个传统盟友，继9月15日建立美英澳新安全联盟，在军事和高科技领域加强合作，以威慑中共之后，在贸易领域也将一致行动，遏制和应对中共的扩张。
+(本文仅代表作者观点)
+
+参考链接： [美英贸易主管通话，共同应对中国等“扭曲市场”的做法](https://www.voachinese.com/a/US-uk-china-trade-practices-20210920/6236242.html)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

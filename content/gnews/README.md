@@ -37,14 +37,14 @@
 ### [9月20号郭文贵先生会议休息时间在山上直播全文听写](/content/gnews/8/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [澳洲版中秋团圆](/content/gnews/9/README.md)
+### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国医院吹哨人，所有这些中共病毒疫苗都是垃圾！](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳洲版中秋团圆](/content/gnews/11/README.md)
  ` 澳喜农场`
-
-### [美国一少女被误打Covid疫苗](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [27个州正与拜登的疫苗授权作斗争](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
  ` wenwu`
@@ -67,65 +67,65 @@
 ### [共产国际用巨额拨款、珠宝、鸦片等哺育了中国共产党](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声| 结合圣经看新中国联邦国旗](/content/gnews/19/README.md)
+### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [雇员被要求看脸书视频接受疫苗知识并因拒绝接种遭解雇](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [盖特(GETTR)将推出翻译和直播功能并保证每个人的自由言论](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声| 结合圣经看新中国联邦国旗](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [杰森·米勒被扣留事件与巴西选举以及平民主义紧密相关](/content/gnews/20/README.md)
+### [杰森·米勒被扣留事件与巴西选举以及平民主义紧密相关](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒被左翼巴西联邦警察扣留诱导签署不利文件](/content/gnews/21/README.md)
+### [杰森·米勒被左翼巴西联邦警察扣留诱导签署不利文件](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [迈克·蓬佩奥：美国必须每天、始终同香港人站在一起](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国医院吹哨人，所有这些中共病毒疫苗都是垃圾！](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：美国空军正在为 C-130 增加浮筒 它们在与中国的战争中可能有用](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线:标普称恒大可能违约 恒大进一步下挫](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：亚马逊人工智能摄像头被认为是剥削送货司机的工具](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国已有673,472人死于冠状病毒，超过四场战争军人的死亡人数总和](/content/gnews/28/README.md)
+### [&#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：中共病毒杀死的美国人已相当于西班牙流感的死亡总数](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美官方数据：新冠疫苗对儿童造成的伤亡远超其它所有疫苗的总和](/content/gnews/30/README.md)
+### [澳洲已彻底走向与中共决裂对抗](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [南加州促统论坛李毅等人疯狂叫嚣武统台湾](/content/gnews/31/README.md)
+### [无视中共施压, 法国参议院拟10月访台](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [美两党参议员对中共申请加入太平洋贸易协定做出警告](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [美英将共同应对中共&#8221;贸易战&#8221;](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [滴滴总裁柳青计划辞职，柳传志时代即将终结](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [中共国主要房地产开发商面临违约，将引发金融危机](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：推特因提供误导数据被集体诉讼 支付8亿美元和解](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [南加州促统论坛李毅等人疯狂叫嚣武统台湾](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [打土豪共产香港经济](/content/gnews/32/README.md)
+### [打土豪共产香港经济](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [黑龙江出现“免费”租用商铺](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [互联网自由度排名中共国连续七年垫底 台湾全球第五](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC大中华时事：中共批判美式民主是“钱主”本质，黑美国给国民洗脑](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [CHD诉讼修正动议：美军详述疫苗授权队军队的影响](/content/gnews/36/README.md)
- ` wenwu`
-
-### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/37/README.md)
+### [秘翻在线：美国空军正在为 C-130 增加浮筒 它们在与中国的战争中可能有用](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/38/README.md)
- ` wenwu`
+### [黑龙江出现“免费”租用商铺](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [互联网自由度排名中共国连续七年垫底 台湾全球第五](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC大中华时事：中共批判美式民主是“钱主”本质，黑美国给国民洗脑](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共攻打台湾，与疫苗，5G，氧化石墨乙烯不得不说的秘密](/content/gnews/47/README.md)
+### [恒大效应蔓延，新力控股暴跌9成停牌!](/content/gnews/47/README.md)
+ ` GTV新闻访谈`
+
+### [中共攻打台湾，与疫苗，5G，氧化石墨乙烯不得不说的秘密](/content/gnews/48/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [记忆中的希腊](/content/gnews/48/README.md)
+### [记忆中的希腊](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [中秋话月](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [恒大危机致全球股市大震荡｜一文看清 国际政商、金融界反应](/content/gnews/51/README.md)
- ` G&#124;News TAIWAN`
-
-### [中共疫苗接种覆盖人数达11亿，超10亿人完成全程接种](/content/gnews/52/README.md)
- ` 儒为`
-
-### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/53/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [有声| 香港少女陈彦霖逝世两周年祭](/content/gnews/54/README.md)
- ` MOSREC`
-
-### [推特对自己定位是法官、陪审团和行刑者及真相的仲裁者](/content/gnews/55/README.md)
+### [迈克·蓬佩奥：美国必须每天、始终同香港人站在一起](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/56/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中秋话月](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
+### [墙内要闻汇编](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [恒大危机致全球股市大震荡｜一文看清 国际政商、金融界反应](/content/gnews/53/README.md)
+ ` G&#124;News TAIWAN`
+
+### [中共疫苗接种覆盖人数达11亿，超10亿人完成全程接种](/content/gnews/54/README.md)
+ ` 儒为`
+
+### [美国一少女被误打Covid疫苗](/content/gnews/55/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [27个州正与拜登的疫苗授权作斗争](/content/gnews/56/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [CHD诉讼修正动议：美军详述疫苗授权队军队的影响](/content/gnews/57/README.md)
+ ` wenwu`
 
