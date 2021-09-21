@@ -2,10 +2,10 @@
 ---
 
 
-## 中共试图与越南缓和南海争端
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545447/)
+## 黑石放弃收购后，SOHO中国股价暴跌40%
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545469/)
 
-9/12/2021 在越南开始与美国和日本就抵制中共在有争议水域的霸凌行为开始合作后，中共试图与越南缓和南海争端。
+9月10日，SOHO中国发布公告称黑石放弃收购SOHO中国，第二天，潘石屹夫妇现身美网决赛现场。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
