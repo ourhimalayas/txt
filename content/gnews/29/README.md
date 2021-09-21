@@ -2,29 +2,19 @@
 ---
 
 
-## 恒大事件会把中国和世界经济置入灾难境地
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1544481/)
+## 秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544611/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-7.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-10.jpg)图片来源：ANI
+据雅虎新闻近日报道，9月18日在日本东京举行了抗议北京冬奥会的游行，游行参与者举着呼吁抵制2022年北京冬季奥运会的横幅，要求国际社会关注中共在少数民族地区侵犯人权的行为。
 
-视频参看：2021.09.20早GTV新闻访谈
+本次游行是由“抵制没有人权的北京冬奥会执行委员会“举办。来自维吾尔族、藏族、蒙古族、香港和中国的持不同政见者在日本活动人士的支持下参加了此次游行。他们声称世界其他国家需要警惕中共在少数民族地区和香港侵犯人权的行为，并指出世界将日本和中国放在同一水平上，对那些坚持透明、民主、人权和开放价值观的国家是不公平的。日本外交评论家加濑英明说，通过抵制北京冬奥会会唤醒中国民众对中共政权的警醒。
 
-[https://gtv.org/broadcast/watch/61487e5b42a8af3151a1d462](https://gtv.org/broadcast/watch/61487e5b42a8af3151a1d462)
+今年起始，国际间持续有声音呼吁抵制北京冬奥会，8月4日郭文贵先生代表新中国联邦向国际奥委会提出要求抵制北京冬奥会。继欧盟在7月以压倒性多数通过提案，呼吁各成员国领导人拒绝出席北京冬奥会，英国也在议会下院通过动议，呼吁政府抵制北京冬奥会。人权组织正在要求世界上最大的广播公司，如NBC网络，取消报道北京冬奥会的计划。 虽然单单抵制冬奥会并不能推翻中共的独裁统治，但这会是一系列重要制裁措施的一部分，为我们的灭共大业添加一根稻草。
 
-[https://www.youtube.com/watch?v=Xg\_dSvklHCU](https://www.youtube.com/watch?v=Xg_dSvklHCU)
-
-编辑/校对/发稿： 香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-06-at-22.19.27-4.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[Boycott 2022 Beijing Olympics: Uyghurs, dissidents urge during anti-China protest in Tokyo (yahoo.com)](https://sg.news.yahoo.com/boycott-2022-beijing-olympics-uyghurs-091410947.html)
 
 0

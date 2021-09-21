@@ -37,14 +37,14 @@
 ### [文贵先生给习主席捎个话，注意安全，20万亿美元不要惦记了](/content/gnews/8/README.md)
  ` YALUN 亚伦`
 
-### [维州政府关闭建筑行业，工人抗议愈发升温](/content/gnews/9/README.md)
+### [柳叶刀通讯 ： 呼吁就COVID-19的起源进行客观公开透明的科学辩论](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [维州政府关闭建筑行业，工人抗议愈发升温](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
-
-### [2021年09月20日澳喜要闻（每日更新）](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [澳洲护士：医院只给接种疫苗的中共病毒患者用伊维菌素](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [AUKUS协议公布后，更多美军和飞机将部署到澳大利亚](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -55,17 +55,17 @@
 ### [议员们因阿富汗问题要求拜登辞职](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [恒大财富暴雷，受害者聚集讨要说法](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [各地恒大财富受害者聚集讨要说法](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [恒大各地员工聚集讨薪](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9月17日北京472路公交事故是否与接种疫苗有关](/content/gnews/18/README.md)
+### [共产国际用巨额拨款、珠宝、鸦片等哺育了中国共产党](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
+
+### [恒大财富暴雷，受害者聚集讨要说法](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [各地恒大财富受害者聚集讨要说法](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [恒大各地员工聚集讨薪](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [变种病毒正是来自这些已接种疫苗的人群](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -85,47 +85,47 @@
 ### [全球阴谋集团正在利用疫情破坏司法独立](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [厦门进入“准封城”状态，中共官媒慌忙辟谣意欲何为？](/content/gnews/25/README.md)
+### [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [传厦门“准封城”中共慌忙辟谣](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：恒大危机和美联储会议透出美股大跌在望](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [恒大事件会把中国和世界经济置入灾难境地](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
-
-### [未经本人同意，加州药房向青年注射新冠生物制剂针](/content/gnews/30/README.md)
+### [恒大一家爆雷 全球股市震荡 &#8211; 似乎看到全球经济萧条的来临](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [参议员瑞克·斯科特： 我们正处于与共产主义中国 的新冷战中](/content/gnews/31/README.md)
- ` 美国政要直译推`
+### [厦门进入“准封城”状态，中共官媒慌忙辟谣意欲何为？](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
 
-### [雅典娜时报-第058期](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
+### [传厦门“准封城”中共慌忙辟谣](/content/gnews/28/README.md)
+ ` 纽约香草山MOS01`
 
-### [澳洲总理推脱欧洲贸易谈判风险](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [福奇再次转变说法——称FDA限制疫苗加强针不是“错误”](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [秘翻在线：恒大危机和美联储会议透出美股大跌在望](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [DC每日热点0920](/content/gnews/35/README.md)
+### [新的审查规则生效脸书删除德国的反封锁团体社交账号](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [特鲁多上台后大多枪击案和毒品犯罪直线上升！](/content/gnews/36/README.md)
+### [参议员瑞克·斯科特： 我们正处于与共产主义中国 的新冷战中](/content/gnews/32/README.md)
+ ` 美国政要直译推`
+
+### [雅典娜时报-第058期](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳洲总理推脱欧洲贸易谈判风险](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [福奇再次转变说法——称FDA限制疫苗加强针不是“错误”](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0920](/content/gnews/36/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [特鲁多上台后大多枪击案和毒品犯罪直线上升！](/content/gnews/37/README.md)
  ` 军迷wilson`
 
-### [中国面临恒大倒闭的“雷曼时刻”，风险何在？](/content/gnews/37/README.md)
+### [中国面临恒大倒闭的“雷曼时刻”，风险何在？](/content/gnews/38/README.md)
  ` wenwu`
-
-### [潜艇危机：引发平壤核竞赛](/content/gnews/38/README.md)
- ` Charlie`
 
 ### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -166,21 +166,21 @@
 ### [幻想与中共对话-评欧盟对华战略报告（二）](/content/gnews/51/README.md)
  ` 澳喜农场`
 
-### [我给习大人捎个话](/content/gnews/52/README.md)
+### [2021年09月20日澳喜要闻（每日更新）](/content/gnews/52/README.md)
+ ` 澳喜农场`
+
+### [我给习大人捎个话](/content/gnews/53/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中秋随想](/content/gnews/53/README.md)
+### [中秋随想](/content/gnews/54/README.md)
  ` MOShongkong`
 
-### [中国共产党黄历的九月二十四日](/content/gnews/54/README.md)
+### [中国共产党黄历的九月二十四日](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疾控中心(CDC)表示，美国接种了383,994,877剂疫苗](/content/gnews/55/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [当局用吊销行医执照威胁开具羟氯喹和伊维菌素的医生](/content/gnews/56/README.md)
+### [澳洲护士：医院只给接种疫苗的中共病毒患者用伊维菌素](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文雍漫谈：我们都需要勇气](/content/gnews/57/README.md)
- ` 文雍`
+### [疾控中心(CDC)表示，美国接种了383,994,877剂疫苗](/content/gnews/57/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

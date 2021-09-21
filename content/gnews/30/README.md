@@ -2,34 +2,32 @@
 ---
 
 
-## 未经本人同意，加州药房向青年注射新冠生物制剂针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544364/)
+## 秘翻在线：恒大危机和美联储会议透出美股大跌在望
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544476/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-260.png)
-来自亚利桑那州的萨凡纳（Savannah Courtad），近日在Instagram上分享注射疫苗的经历，称自己在毫不知情的情况下，被加州沃尔格林药房的工作人员接种了一针新冠病毒疫苗。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-57-e1632151860177.jpg)
+图片来源：King world news
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-18.jpeg)
+负债累累、深陷危机的中国房地产开发商恒大即将迎来命运多舛的几周，金融市场担心崩溃的后果，中国房地产巨头在股市中散播恐惧。与世界上大多数国家一样，美国股市看起来也将受到中国恒大的挑战以及本周美联储会议的影响。
 
-萨凡纳写道，几天前，她去沃尔格林药房，申请接种流感疫苗。接种期间，除了询问打在哪只胳膊上外，护士什么也没说。接种完成，当护士告诉她21天后再来打第二针的时候，她惊讶地发现卡片上写的居然是新冠疫苗。当询问相关工作人员时，先被告知拿错了卡片，在详细了解相关情况后，工作人员确认萨凡纳接种的就是新冠疫苗，以忙中出错为由，向她道歉。萨凡纳表示，虽然道歉，但这不是一个小错误，无论对新冠疫苗持任何观点和立场，是否接种疫苗都需要经过本人的同意。
+从美国期货中可以读出股市中具有传染性的不确定性，这些期货在开盘前就显示出下跌迹象。标准普尔500期货指数下跌1.6%，就在开盘前一个小时纳斯达克和道琼斯指数分别下跌1.4%和1.8%。
 
-药店在未征得本人的同意的情况下，向顾客接种新冠疫苗，不但严重侵犯了个人隐私和人身自由，更对被接种者的安全造成极大的隐患。近期，不断有因接种疫苗突然倒地抽搐和突然死亡的案例发生，人们对疫苗的态度也越来越谨慎。而面对大规模的疫苗次生灾难的即将爆发，人们反抗疫苗的浪潮势必更加强烈。
+本月，美国三大股指已经受到了对可能的企业增税担忧的影响，因为这将阻碍企业盈利，而且劳动力市场的复苏也不平衡，市场围绕恒大倒闭的担忧正在加剧。因此，所有的目光都集中在周三美国联邦储备委员会议，即美联储开会讨论可能的缩表。据路透社报道，实际的宣布将被推迟到11月或12月的会议。
 
-（本文仅代表作者观点）
+Bloomberg分析师认为，在美联储会议之前，投资者会很紧张，波动性也会上升，如果美联储出人意料地宣布比预期更鸽派的消息，波动性则会再次下降。
 
-参考链接: [https://www.instagram.com/p/CT7eN-MJM2K/?utm\_medium=share\_sheet](https://www.instagram.com/p/CT7eN-MJM2K/?utm_medium=share_sheet)
-[https://twitter.com/savvymagee](https://twitter.com/savvymagee)
+“红色星期一”也引起了石油市场的关注，油价下跌了约2个百分点，导致雪佛龙和埃克森美孚等石油公司在美股市前市均下跌了约2.3个百分点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+可以说全球大部分市场都受到了恒大危机的影响，不仅在中国和美国，而且在全世界。特别是，在美国上市的中国公司正在感受来自东方的股市震荡。微博、Bilibili、唯品会和拼多多在美国市场的跌幅都在3.4%至5.4%之间，摩根士丹利、摩根大通和美国银行等银行股也在盘前跳水2.9-3.6个百分点之间。
 
-终审：暗黑
-校对/发稿：谐趣园
+金属和矿业板块在周一的美国盘前市场受到重压，铁矿石价格与工业金属价格一起继续下滑，恒大可能倒闭带来的对新的 “雷曼局面 “的担忧以及美元走强等因素打击了工业金属价格。铜生产商Freeport-Mcmoran在盘前下跌7个百分点，钢铁生产商United States Steel在盘前下跌5.9个百分点。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+（文章仅代表作者个人观点）
+
+来源：
+
+1. [Sydinvest](https://www.sydinvest.dk/nyheder/usa/tendens-store-fald-i-sigte-evergrande-og-fed-m%C3%B8de?Action=1&amp;PID=9258)
+
+
 0

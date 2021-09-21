@@ -2,32 +2,41 @@
 ---
 
 
-## 福奇再次转变说法——称FDA限制疫苗加强针不是“错误”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1544614/)
+## 澳洲总理推脱欧洲贸易谈判风险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1545046/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Download-31-2.jpg)网络图片
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳大利亚总理-scaled.jpg)
+图片来源：cnbc
 
-白宫首席医疗顾问安东尼·福奇博士周日在与疫苗有关的问题上再次转变说法，这次是关于疫苗加强针的问题。在接受有线电视新闻网采访时，福奇声称食品和药物管理局限制加强针的建议并不是一个“错误”，这与他几天前就此事发表的评论相悖。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-周五，生物制品咨询委员会投票反对批准为所有16岁及以上的美国人施打加强针，而只批准为65岁及以上的美国人和那些有可能因新冠病毒引起严重疾病的人提供加强针。福奇一直在推动批准加强针，就在本周三他还说：“加强针将是有益的，这一点毋庸置疑”。
+斯科特·莫里森(Scott Morrison)对澳大利亚放弃价值900亿美元的法国潜艇合同，可能会破坏与欧盟的自由贸易谈判的警告不屑一顾。
 
-福奇当时说：“如果他们说，‘我们没有足够的数据来推进加强针，’那就这样吧。说实话，我认为这将是一个错误 。”
+莫里森坚称，澳大利亚必须按照其国家利益行事，并相信在未来几个月内仍可以解决相关问题。
 
-在周日的有线电视新闻网采访中，福奇试图改变说法，主持人杰克·塔珀（Jake Tapper） 很快就此事反驳了他。他指出福奇曾说过“这将是一个错误”，并想知道他现在是否在说他“不认为这是一个错误”。
+“要与欧盟就贸易达成协议，这不是一件容易的事。我想每个人都明白这一点，”莫里森在澳大利亚时间周二早上抵达美国后告诉记者。
 
-福奇回答说，“我对委员会的决定一点儿意见都没有。我要说的是，会继续收集数据，我相信在未来几周到几个月内，你将看到这个过程的演变。”
+澳大利亚上周宣布与美国和英国达成一项新的安全协议(AUKUS)，其中包括一项核动力潜艇协议。同时，澳大利亚还取消了与法国海军集团的合同，从而引发了重大的外交裂痕。
 
-原文链接：[https://www.redvoicemedia.com/2021/09/fauci-flips-on-vaccine-boosters-says-fda-limiting-recommendations-is-not-a-mistake/](https://www.redvoicemedia.com/2021/09/fauci-flips-on-vaccine-boosters-says-fda-limiting-recommendations-is-not-a-mistake/)
+莫里森计划在访问期间会见北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）和欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）。
 
-* * *
+“如果认为这种性质的决定不会让法国人失望，那就太天真了。我们理解这一点，”莫里森说。“当时我们不可能在其他国家的交往中讨论这类安全问题。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+莫里森还谈到了澳大利亚与各欧盟国家的商业关系，包括与德国的国防合同。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-编辑：【英国伦敦喜庄园编辑部】
+**参考新闻：**[PM shrugs off risks to Europe trade talks (msn.com)](https://www.msn.com/en-au/news/australia/pm-shrugs-off-risks-to-europe-trade-talks/ar-AAOEl1o)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 0

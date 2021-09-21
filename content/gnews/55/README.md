@@ -2,32 +2,24 @@
 ---
 
 
-## 疾控中心(CDC)表示，美国接种了383,994,877剂疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544779/)
+## 中国共产党黄历的九月二十四日
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544850/)
 
-【**简评**】**根据疫苗不良事件报告系统（VAERS）的资料和数据，在过去20年里，所有的疫苗接种加起来有4182例死亡。而过去的4个月里，就有4178例与新冠疫苗有关的死亡报告。事实上，民众个人很少会自觉上报VAERS，所以公布出来的不良报告远远低于实际情况，医务人员不会汇报所有疫苗的不良反应。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-65.jpg)图片：汉程网历法截图
+秋分，是二十四节气之第十六个节气，秋季第四个节气，于每年的公历9月22-24日交节。秋分曾是传统的“祭月节”（中秋节），中秋节由秋夕祭月演变而来。对于同一个节气，每年都要比前一年滞后6小时或5小时，遇到闰年则要在此基础上提前24小时。凑巧的是，共产党的几个重大事件都发生在9月24日。
 
-**FDA于9月17日通过视频方式举办了内部会议，讨论了COVID-19疫苗加强针的可行性，结果参会专家们得到一致的结论是：疫苗比病毒本身更危险，不建议给民众继续接种疫苗和加强针。 COVID-19早期治疗基金的执行董事Steve Kirsch表示，根据他的建模评估，与新冠疫苗有关的死亡不低于150,000人。**
+一、1926年9月24日，秋分。中共中央发出第二十号通知，确定军队听党指挥—宜求官。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-29.jpg)图片：汉程网历法截图
+二、1982年9月24日，宜入宅。邓小平同英国首相玛格丽特·撒切尔夫人讨论香港问题。双方同意通过外交途径解决香港回归大陆的事宜。“入宅”：家庭搬入新屋，或机构迁至新址，以祭神仪式为起始点，称作“入厝仪式”。故民间通常是搬家前择取吉日，举办“入厝仪式”。亦有人在搬家后，才择取吉日，举办“入厝仪式”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-12.jpg)图片：汉程网历法截图
+三、2002年9月24日，宜交易，订立各种契约互相买卖之事。香港特别行政区政府落实基本法第二十三条，也就是从法律禁止任何有损该国国家主权、领土完整、统一及国家安全的行为。立法过程在香港引起巨大争议，甚至引发50万人参与七一大游行反对立法。法案表决前夕，代表工商界及自由党的行政会议成员田北俊辞职，之后不少工商界功能组别议员跟随自由党改变立场，特区政府无望在立法会取得足够票数支持，最终终止立法程序。（链接：[https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E7%89%B9%E5%88%A5%E8%A1%8C%E6%94%BF%E5%8D%80%E5%9F%BA%E6%9C%AC%E6%B3%95%E7%AC%AC%E4%BA%8C%E5%8D%81%E4%B8%89%E6%A2%9D](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF%25E7%2589%25B9%25E5%2588%25A5%25E8%25A1%258C%25E6%2594%25BF%25E5%258D%2580%25E5%259F%25BA%25E6%259C%25AC%25E6%25B3%2595%25E7%25AC%25AC%25E4%25BA%258C%25E5%258D%2581%25E4%25B8%2589%25E6%25A2%259D)）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-5.jpg)图片：汉程网历法截图
+这3个重要事件中，2个和香港相关，一个是收回香港，一个是持续干预香港自治。郭文贵先生在2021年9月17日GTV直播中谈到，本月9月24日对于台湾很关键。黄历中，当日宜：祈福，祭祀，结亲，开市，交易。中共会在这一天有什么行动？让我们拭目以待！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-3.jpg)图片：汉程网历法截图
+【本文仅代表作者观点，与 gnews 平台无关】
 
-**据《路透社》记者: Juby Babu，2021年9月19日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a9tfs-c6aph-3.jpg)俄亥俄州圣亨利市的俄勒冈州立大学学生 Ashlyn Gerlach 于 2021 年 9 月 15 日在美国俄亥俄州哥伦布市俄亥俄州立大学的一家诊所接种了第二剂辉瑞冠状病毒 (COVID-19) 疫苗。图片来源：路透社/Gaelen Morse
-《路透社》9月18日 —— 美国疾病控制与预防中心（CDC）表示，截至周六上午，美国已发放了384,911,290 剂 COVID-19 疫苗，并分配了466,569,635 剂。
-
-CDC说，截至9月17日，在已交付的464,315,725剂疫苗中，已有高达383,994,877剂疫苗投入了使用（注射）。
-
-该机构表示，截至美国东部时间周六上午 6 点，已有211,489,242人至少接种了一剂疫苗，而181,035,022人已完全接种疫苗。
-
-CDC的统计包括来自Moderna (MRNA.O)、辉瑞/生物技术公司的(Pfizer/BioNTech) 两剂疫苗，以及强生的单剂疫苗。
-
-自8月13日以来，已有超过211万人接受了辉瑞或Moderna的额外剂量的疫苗，当时美国批准了第三剂疫苗，用于免疫系统受损的人，因为两剂疫苗对他们的保护作用可能较弱。
-
-**原文连接**:[https://www.reuters.com/business/healthcare-pharmaceuticals/us-administers-about-3849-mln-doses-covid-19-vaccines-cdc-2021-09-18/?taid=61468a6ca5c42200013c51d6&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/healthcare-pharmaceuticals/us-administers-about-3849-mln-doses-covid-19-vaccines-cdc-2021-09-18/?taid=61468a6ca5c42200013c51d6&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场–明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+作者：洛杉矶盘古农场—文如
+编审：洛杉矶盘古农场—Wendy
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
