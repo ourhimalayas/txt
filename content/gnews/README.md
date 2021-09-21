@@ -37,14 +37,14 @@
 ### [文·贵天成——文贵先生谈“恒大许家印”（二）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国一少女被误打Covid疫苗](/content/gnews/9/README.md)
+### [澳洲版中秋团圆](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [美国一少女被误打Covid疫苗](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [27个州正与拜登的疫苗授权作斗争](/content/gnews/10/README.md)
+### [27个州正与拜登的疫苗授权作斗争](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [CHD诉讼修正动议：美军详述疫苗授权队军队的影响](/content/gnews/11/README.md)
- ` wenwu`
 
 ### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
  ` wenwu`
@@ -85,47 +85,47 @@
 ### [中共动用战略石油储备表明其正试图缓解上升的通货膨胀](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线:标普称恒大可能违约 恒大进一步下挫](/content/gnews/25/README.md)
+### [秘翻在线：美国空军正在为 C-130 增加浮筒 它们在与中国的战争中可能有用](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：亚马逊人工智能摄像头被认为是剥削送货司机的工具](/content/gnews/26/README.md)
+### [秘翻在线:标普称恒大可能违约 恒大进一步下挫](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国已有673,472人死于冠状病毒，超过四场战争军人的死亡人数总和](/content/gnews/27/README.md)
+### [秘翻在线：亚马逊人工智能摄像头被认为是剥削送货司机的工具](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国已有673,472人死于冠状病毒，超过四场战争军人的死亡人数总和](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：中共病毒杀死的美国人已相当于西班牙流感的死亡总数](/content/gnews/28/README.md)
+### [秘翻在线：中共病毒杀死的美国人已相当于西班牙流感的死亡总数](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美官方数据：新冠疫苗对儿童造成的伤亡远超其它所有疫苗的总和](/content/gnews/29/README.md)
+### [美官方数据：新冠疫苗对儿童造成的伤亡远超其它所有疫苗的总和](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
+### [打土豪共产香港经济](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [黑龙江出现“免费”租用商铺](/content/gnews/31/README.md)
+### [黑龙江出现“免费”租用商铺](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [互联网自由度排名中共国连续七年垫底 台湾全球第五](/content/gnews/32/README.md)
+### [互联网自由度排名中共国连续七年垫底 台湾全球第五](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共批判美式民主是“钱主”本质，黑美国给国民洗脑](/content/gnews/33/README.md)
+### [DC大中华时事：中共批判美式民主是“钱主”本质，黑美国给国民洗脑](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
+### [CHD诉讼修正动议：美军详述疫苗授权队军队的影响](/content/gnews/35/README.md)
  ` wenwu`
 
-### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/36/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/38/README.md)
+### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/37/README.md)
+ ` wenwu`
+
+### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/38/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
 ### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -157,30 +157,30 @@
 ### [中共疫苗接种覆盖人数达11亿，超10亿人完成全程接种](/content/gnews/48/README.md)
  ` 儒为`
 
-### [恒大将是下一个雷曼兄弟？](/content/gnews/49/README.md)
+### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/49/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/50/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大将是下一个雷曼兄弟？](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [槲皮素和锌-对抗COVID19的作用](/content/gnews/50/README.md)
+### [槲皮素和锌-对抗COVID19的作用](/content/gnews/52/README.md)
  ` Runaway`
 
-### [恒大债台高筑，无法支付员工工资](/content/gnews/51/README.md)
+### [恒大债台高筑，无法支付员工工资](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [短视频：福奇和媒体推波助澜，让大型药企完成“谋杀”](/content/gnews/52/README.md)
+### [短视频：福奇和媒体推波助澜，让大型药企完成“谋杀”](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注](/content/gnews/53/README.md)
+### [恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [周一香港股市，恒大系股票暴跌](/content/gnews/54/README.md)
+### [周一香港股市，恒大系股票暴跌](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/55/README.md)
+### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [六月雪狱（二）](/content/gnews/56/README.md)
- ` 墨尔本雅典娜农场`
-
-### [续：再列举中共病毒“疫苗”严重伤害病例32例](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
 

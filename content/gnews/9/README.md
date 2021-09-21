@@ -2,69 +2,28 @@
 ---
 
 
-## 美国一少女被误打Covid疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1545593/)
+## 澳洲版中秋团圆
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1545700/)
 
-- **编译：Jenny Ball**
+撰稿：文雨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/213.jpg)
+**图片来自：**https://amp.9news.com.au/article/10170d1e-2923-47e3-911c-3ccbef6abd23?\_\_twitter\_impression=true
+中秋节是中国的传统佳节，中秋意味着家，意味着思念，意味着团圆。而如今我们不能相聚，不能团圆，不是因为时间，不是因为距离，而是因为疫情⋯⋯
 
+今天看到9news上的一则报道，说的是昆州的一个8岁的小男孩在第二个学期末去悉尼的父亲那度假，然而由于悉尼地区突然爆发疫情，导致昆州和新州的边界关闭，男孩被迫与母亲分离了十二周之久，错过了整个第三学期的课程。母亲在此期间曾向昆州政府寻求特赦，但州政府以各种理由答复没有可能。走投无路的母亲最后只能求助于媒体，经过媒体不断的爆光和给州政府电话施压，最终在这中秋前夕，男孩回到了母亲身边，这是一个澳洲版的中秋团圆的故事，故事的结局似乎给这节日上了点颜色，但是带给我们的思考更深远⋯⋯
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip95.png)
+正如男孩的父亲在采访中提到的，这本不应该由媒体人的介入才能解决这件事，这已经不像是在澳大利亚了！是的，男孩父亲的这段话，让我们想起了在那海隔一方的国度里，曾经的，正在发生的，将要发生的似曾相似的一幕幕，而那里的结局未必如此令人欣慰，甚至你可能根本听不到他们的声音，看不见他们的眼泪⋯这会同样发生在澳大利亚吗？我心里的答案是肯定的，如果你不抗争的话。
 
-几天前，当萨凡娜·考达德（Savannah Courtad） 走进沃尔格林当地的医院，她只是想要打一针通用的流感疫苗。
+报道的结尾还提到：悲伤的分离故事在这疫情期间还在继续，州长们如今传递的信息是，希望人们能在圣诞节团聚，但取决于人们的疫苗接种率，但80%的疫苗接种并不能保证边境的开放。这是一种怎样的逻辑？政客们也许都是健忘的，早已将推广疫苗前的承诺抛之九霄云外，＂80%的接种率会给我们更多的自由，生活会不一样的＂这些声音仍在耳边回响，如今又听到了不一样的旋律，反差如此之大。在此大声的问一句：疫苗到底是什么？疫苗为什么防不了病呢？州长们你们到底在害怕什么？
 
-萨凡娜提早到达，并填写了必要的文件后，一名护士走近她，问她想要打哪个手臂。
+是的，疫苗解决不了问题，疫苗是阻碍你我团聚团圆的罪魁祸首！放弃疫苗，记住羟氯喹加锌，还有治病的伊维菌素和青蒿素，才能让我们重获自由，相聚团圆。祝各位战友，朋友和家人们中秋快乐！
 
-之后，这位护士还小小的评论一下，但立即告诉萨凡娜出了大错误。
+参考资料：https://www.9news.com.au/national/queensland-covid19-mum-reunited-with-son-after-12-weeks-border-separation/10170d1e-2923-47e3-911c-3ccbef6abd23
 
-“她给我打了一针，当我离开时告诉我，要在 21 天内回来注射第二剂，”萨凡娜周五在[Instagram帖子](https://www.instagram.com/p/CT7eN-MJM2K/)中写道 。
+(文章内容仅代表作者观点)
 
-萨凡娜没有接种流感疫苗，而是被打了[COVID-19疫苗](https://www.westernjournal.com/moderna-developing-single-dose-vaccine-combines-covid-19-flu-boosters/?ff_source=Email&amp;ff_medium=CTBreaking&amp;ff_campaign=breaking&amp;ff_content=conservative-tribune)。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-“我迅速冲到前台，”萨凡娜写道。“前台的那位女士向我保证说，我肯定打了流感疫苗，可能只是拿错了卡片。 她与给我打针的护士交谈，她确认卡没有错。”
-
-“就是给了我 COVID-19 疫苗。”
-
-这不是什么一些疯狂的反疫苗者的故事——萨凡娜说，她在沃尔格林接种流感疫苗。 像许多美国人一样，她对接受 COVID-19 疫苗感到不舒服。
-
-现在显然违背她的意愿给她打了疫苗，工作人员只是道个歉而已。
-
-“他们接着说‘对不起，我们太忙了’，‘这样的事情有时会发生’，并不断重复‘人人都会犯错’，”萨凡娜写道。
-
-“我很感激他们至少道歉了，但这不是一个‘小’错误的问题！” “护士不能到处随便注射错误的疫苗。我从未同意将COVID-19疫苗注射到我的体内。 不管一个人对这种疫苗的立场如何，我都希望我们都能同意，**将某些东西注射到你的身体里应该是你的选择。”**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-21T101108.887.png)
-
-萨凡娜的故事引出了一个问题：**有多少美国人陷入了同样的遭遇？**
-
-有多少人因个人原因不愿接种疫苗，却未经他们同意就给他们接种了疫苗？
-
-对于任何不想要 COVID 疫苗的人来说，这很可能是最糟糕的噩梦。如果某人因医疗或宗教原因[无法接受疫苗](https://www.westernjournal.com/cnn-expert-faith-can-kill-biden-admin-needs-guidelines-religious-vaccine-exemptions/?ff_source=Email&amp;ff_medium=CTBreaking&amp;ff_campaign=breaking&amp;ff_content=conservative-tribune)怎么办？
-
-更重要的是：如果强制接种疫苗的左派得逞，萨凡娜的故事将不会是一个不寻常的故事。
-
-事实上，如果左派得逞，无论喜欢与否，每个人都将接种 COVID-19 疫苗。而且那时，与萨凡娜的故事不同的是，那将不会是个意外了。
-
-**评论：**
-
-**文章令人深思的地方都令人细思极恐：**
-
-- **曾经医疗事故都是人命关天的大事，去打流感疫苗的少女填写了表格，而医院的前台工作人员只是轻描淡写地，不加确认地就想打发人走？**
-- **如果不是媒体掩盖，不是政府违宪，更多的人们知道疫苗的可怕后果，那么，在不知情的情况下，把毒药注入人的身体，就一句“对不起”？**
-- **这真的是“人人都会犯错**’**的疏忽“小”错吗？**
-- **我的身体我做主，这是左派在反对堕胎时强调的，那么打病毒疫苗就不再是宪法保护的“我的身体我做主”啦？**
-- **如果左派得逞，无论喜欢与否，每个人都将接种 COVID-19 疫苗，那就不会是意外了。**
-
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**素材链接：[westernjournal.com](https://www.westernjournal.com/teen-says-went-walgreens-flu-shot-walked-sick-surprise/?utm_source=Email&amp;utm_medium=CTBreaking&amp;utm_campaign=breaking&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)**
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
-
-+1
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+0

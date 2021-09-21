@@ -2,76 +2,50 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1545508/)
+## CHD诉讼修正动议：美军详述疫苗授权队军队的影响
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1545571/)
 
-- **编译：wenwu–西班牙喜悦农场**
+- 编译：wenwu–西班牙喜悦农场
 
 
-您若想了解全文报导内容，请点击标题链接
+9 月 17 日，儿童健康保护组织 (CHD) 提交了一份[修正动议，](https://childrenshealthdefense.org/wp-content/uploads/CHD-v.-FDA-Submitted-Complaint-8.31.21.pdf)作为其 8 月 31 日[提交的诉讼](https://childrenshealthdefense.org/wp-content/uploads/CHD-v.-FDA-Submitted-Complaint-8.31.21.pdf)的后续行动，在起诉美国食品和药物管理局 (FDA)同时，FDA也[批准和授权](https://childrenshealthdefense.org/defender/mainstream-media-fda-approval-pfizer-vaccine/)辉瑞 (Pfizer) 的中共病毒（COVID-19）疫苗，这是典型的“[诱饵和开关](https://en.wikipedia.org/wiki/Bait-and-switch)”（以欺骗手段进行零售销售）。
 
-（爱惜生命 远离疫苗）
+FDA 的行动造成了大规模的[混乱、无序，并且欺骗](https://childrenshealthdefense.org/defender/childrens-health-defense-sues-fda-pfizer-comirnaty-covid-vaccine/?itm_term=home)了客户在两种[辉瑞](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/)疫苗之间的差异。据称 FDA 的批准允许美国军方、拜登政府以及其他美国公司劝告人们注射曾“获得FDA批准的”（杀人）疫苗，而实际上它在美国常规可用并正在使用的疫苗，竟然仍是辉瑞-生物科技公司[紧急使用授权](https://www.fda.gov/news-events/press-announcements/coronavirus-covid-19-update-fda-authorizes-pfizer-biontech-covid-19-vaccine-emergency-use)（EUA）疫苗。
 
-**1. [NFL明星Cole Beasley提出要为未接种疫苗的球迷购买水牛城比赛门票](https://www.the-sun.com/sport/3690546/cole-beasley-buffalo-bills-nfl-unvaccinated-fans-tickets/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=sharebarweb)**
+CHD 总裁兼总法律顾问 Mary Holland 说：“FDA 的欺骗性商业计划是欺骗了毫无戒心的美军以及美国大部人，使他们相信他们正在接受一种具有某些法律保护的疫苗，而这些法律保护是EUA疫苗所不具备的； FDA 对辉瑞疫苗的非法批准才帮助美国国防部，证明了严格的中共病毒[疫苗授权的](https://childrenshealthdefense.org/defender/vaccine-mandates-an-erosion-of-civil-rights-chd-e-book-available-now/)合理性，而且这些规定导致美国军人因拒绝接受 EUA-辉瑞疫苗，而面临严重后果的威胁。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip93.png)
+Holland 表示，在9 月 18 日提交的[备忘录中](https://childrenshealthdefense.org/wp-content/uploads/CHD-v.-FDA-Amended-Memo-Filing.pdf)，为了配合修正后的动议，“原告以惊人的清晰度详细说明了FDA的计划对美军的影响。如果没有 FDA 所谓的非法批准（FDA不承认曾批准），这种情况是不会存在的。”
 
-据《美国太阳报》2021年9月19日电，在水牛城比尔（Bills）队发布了规定表示，海马克体育场举行的比赛需要球迷提供疫苗接种证明后，32岁NFL明星和反疫苗主义者科尔·比斯利（Cole Beasley）提出，为未接种疫苗的球迷购买Bills队客场比赛的门票；27岁的比尔队长传手里德·弗格森发表了一份声明，对联盟关于已接种疫苗和未接种疫苗的球员的新政策的透明度表示质疑，也就是说他支持的是My body My Choice,但目前的问题是对球员隐瞒病毒相关数据信息，并以此误导群众。
+备忘录的[16](https://childrenshealthdefense.org/wp-content/uploads/CHD-v.-FDA-Exhibits.pdf)[份证据](https://childrenshealthdefense.org/wp-content/uploads/CHD-v.-FDA-Exhibits.pdf)包括 14 名军人的声明，他们也是 CHD 的成员。据 Holland 说，这些声明说明了不同服务部门的美国军人，所面临的疫苗胁迫。
 
-美国国家过敏和传染病研究所（NIAID）所长、美国总统首席医疗顾问安东尼·福奇博士在7月的一次新闻发布会上说，未接种疫苗的人占美国因感染中共病毒而住院和死亡人数的97%；仅仅三个州，即佛罗里达州、德克萨斯州和密苏里州，就占了全国所有病例的40％；
+Holland 说：“这 14 名男女，从士兵到高级军官，为了提交他们的声明，把他们的职业生涯置于危险之中。”这些声明是从 CHD 在两天内收到的 100 多份提交中选出的。声明详细记录了每位美国军人对未经许可的疫苗的安全性和有效性的担忧。
 
-8月比斯利和以赛亚·麦肯锡因违反大流行病协议而被NFL罚款。他门认为球员不受保护，并对未来有关健康和我们是否有能力作出正确的决定表示担忧。
+该诉讼中的一名律师雷·弗洛雷斯（Ray Flores）说：“美国军人的职业生涯不应该仅仅因为他们行使联邦法律规定的权利而被终止。即使这些美军有合法权利拒绝现有的疫苗，这些疫苗绝大多数是 EUA，但他们的职业生涯、教育、财产和公民自由有可能受到不可挽回的伤害，包括不光彩的退伍、降职、终止他们的退伍军人福利、养老金和医疗保险。由于许多人是家里的顶梁柱，他们的家庭也会因此受到影响。”
 
-**2. [“即使接种了80%”……新加坡连续两天新增感染人数超过“1000”](https://news.yahoo.co.jp/articles/ca140d830fcc4becd261fb2e90d00afb0962a753)**
+值得一提的是，寻求通过宗教、医学和血清学进行疫苗豁免的美国军人报告表示，他们的指挥官已经告诉他们，所有豁免都将被拒绝…
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-21T093528.870-1.png)
+[现有的军事法规](https://armypubs.army.mil/epubs/DR_pubs/DR_a/pdf/web/r40_562.pdf)包括以下内容，可作为自然、获得性免疫豁免的依据：“基于血清学测试、记录在案的感染或类似情况的免疫证据。” [AR 40-562 章节。2-6a。(1)(b)]超过一半以上的声明表明，美军已经获得了对中共病毒的[天然免疫力](https://childrenshealthdefense.org/defender/natural-immunity-cdc-vaccine-political-narrative/)。与面临疫苗授权的其他群体一样，自然免疫力竟然没有被考虑在内。
 
-据日本《雅虎新闻》援引《海峡时报》 2021年9月20日电，新加坡卫生部宣布19日新增[感染](https://search.yahoo.co.jp/search?ei=UTF-8&amp;rkf=1&amp;slfr=1&amp;p=%E6%84%9F%E6%9F%93%E8%80%85&amp;fr=link_kw_nws_direct)1012例。这是自 2020 年 4 月 23 日以来的最高数字，当时该数字为 1037；前一天感染人数为1009人。其中60岁以上感染者321人，两所[养老](https://search.yahoo.co.jp/search?ei=UTF-8&amp;rkf=1&amp;slfr=1&amp;p=%E9%AB%98%E9%BD%A2%E8%80%85&amp;fr=link_kw_nws_direct)机构陆续出现感染病例。此外，在外劳主要居住的宿舍内，确诊感染病例90例。在新加坡，570 万总人口中约有 80% 已接种疫苗。但是，随着上月初以来防疫措施的放宽，传染性强的德尔塔突变体开始蔓延，感染人数急剧增加。
+弗洛雷斯说：“尽管国防部知道将实验性疫苗强加给美国军人是违法的，但它仍无情地欺骗、歧视和胁迫他们参与非法人类实验。
 
-据《新浪新闻》援引[《央视网》](https://news.sina.com.cn/c/2021-09-21/doc-iktzqtyt7148318.shtml)2021年9月20日电，福建省泉州市防控新型冠状病毒感染的肺炎疫情应急指挥部办公室周一（20日）发布通告，经专家研判，自2021年9月20日起，将晋江市陈埭镇苏厝村部分区域（和平北路145-149号、213号、230-232号）列为中风险地区。
+在[Doe #1 诉拉姆斯菲尔德案中，297 F. Supp. 2d 119, 135 (2003)](https://scholar.google.com/scholar_case?case=8724655194004177157&amp;hl=en&amp;as_sdt=6&amp;as_vis=1&amp;oi=scholarr%5D%20Judge%20Sullivan%20concluded)，沙利文法官总结道：“美国武装部队的男女军人每天都冒着生命危险，以维护和捍卫所有美国人珍视和享有的自由。在没有知情同意或总统豁免的情况下，美国不能要求武装部队的成员也充当实验性药物的小白鼠”。这一次，美国FDA 赤裸裸的无法无天为美国五角大楼把我们的美军当作实验性药物的小白鼠，铺平了道路。这导致了美国五角大楼对任何敢于站出来维护自己权利的军人施加了，终结职业生涯的惩罚。
 
-**3. [德国卫生部长施潘：促进生物技术，减少对中国的依赖](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210918-%E5%BE%B7%E5%9B%BD%E5%8D%AB%E7%94%9F%E9%83%A8%E9%95%BF%E6%96%BD%E6%BD%98-%E4%BF%83%E8%BF%9B%E7%94%9F%E7%89%A9%E6%8A%80%E6%9C%AF%EF%BC%8C%E5%87%8F%E5%B0%91%E5%AF%B9%E4%B8%AD%E5%9B%BD%E7%9A%84%E4%BE%9D%E8%B5%96)**
+相关内容：[疫苗授权：美军向美国国防部、](https://gnews.org/zh-hans/1515883/)[FDA](https://gnews.org/zh-hans/1515883/)[、HHS提起诉讼](https://gnews.org/zh-hans/1515883/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-21T093757.620.png)
+简评：
 
-据《法广网》2021年9月18日电，基民盟籍卫生部长施潘向《周日世界报》表示，“对我来说，一个教训是，我们必须在某些技术上变得更有把握，特别是要减少对中国的依赖。”这可以通过“有针对性的集群促进”和“更积极地战略经济政策”来达到。言简意赅来说就是，德国不吃中共国这一套。
+爆料革命曾指出，辉瑞（中共）疫苗的战略部署之一是要让美国军人全部打疫苗。我们看到了该报道中，所描述的五角大楼同FDA在诉讼里曲折离奇、违背法律和常识的事件。那么到底FDA批准了中共疫苗了吗？其中的故事是[扑簌迷离](https://beckernews.com/44-new-docs-41120/)的，我们对此表示怀疑的态度。另外，我们更想听到FDA、五角大楼为什么这么希望美国军人全部打疫苗，当然答案首先就排除了是出于保护军人的健康这一选项，而且真相正在不断地往阴谋论的方向推动。
 
-德国研究部长Karliczek提议建立一个国家疫苗和药物开发机构；社民党籍健康专家劳特巴赫认为，“我们迫切需要一个全国流行病委员会作为预警系统。”人们必须假设未来几年将有更多危险的病毒会传播开来。“可能会出现的病毒数量如此之多，以至于人们都不敢说出来。”大流行研究机构可以监测这些发展，并确定应该采取哪些预防措施。并且他认为德国政府资助的疫苗（辉瑞-生物科技公司）研究非常有用。
+（文章仅代表作者观点 与GNEWS无关）
 
-**4. [美国FDA：中共病毒疫苗每3人注射就有1人死亡…](https://theexpose.uk/2021/09/18/fda-experts-reveal-the-covid-19-vaccines-are-killing-2-people-for-every-1-life-saved/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-21T094136.456.png)
-
-据《Theexpose》2021年9月18日电，美国食品和药物管理局（FDA）疫苗咨询委员会召开会议于周五（17日）以视频直播方式召开。
-
-新奥尔良的急诊医生约瑟夫·弗莱曼（Joseph Fraiman）博士在会议期间，他透露目前竟然没有任何临床证据可以反驳关于中共病毒疫苗伤害的人，多于其疫苗所拯救的人的说法；约瑟夫·弗莱曼博士被中共病毒早期治疗基金的执行董事史蒂夫·基尔希(Steve Kirsch)打断，他透露中共病毒疫苗杀死的人多于拯救的人，而且更槽糕的是，只有VAERS（疫苗不良事件报告系统）具有统计学意义，而其他“科学”数据都是令人担忧的。
-
-11.5万人因为注射疫苗而死亡，这证实了政府推行疫苗的可怕；最乐观情况下，FDA需要向美国人解释：疫苗接种者有一半几率死亡，未接种疫苗者零几率死亡。美国食品和药物管理局的最高疫苗监管者Peter Marks听取了所有证据后，他们以16-2的投票结果坚决反对建议该机构向16岁以上的人推出加强型疫苗。
-
-**5. [罗斯·麦高恩”支持”疫苗怀疑论者尼基·米娜](https://nypost.com/2021/09/18/rose-mcgowan-stands-with-vaccine-skeptic-nicki-minaj/?utm_source=NYPTwitter&amp;utm_medium=SocialFlow&amp;utm_campaign=SocialFlow)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-21T094308.342.png)
-
-据《纽约邮报》2021年9月18日电，在政府和媒体对说唱歌手就怀疑疫苗安全的社交媒体，提出批评后。她发帖表示，她”与[尼基·米娜]和所有看到正在发生什么的人，站在一起”。
-
-米娜周一声称，她在特立尼达的一个表弟在接种疫苗后”变得阳痿”，导致他解除了婚约；当地的特立尼达当局后来表示，她的说法是”假的”；米娜跳过了上周的年度Met Gala，因为其疫苗授权。
-
-48岁的麦高恩在她的帖子中继续说道：“百万富翁变成了亿万富翁，亿万富翁现在是万亿富翁。 想想……问题是，仅仅因为你想相信你的邪教领袖说的话，并不意味着它就是事实。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-21T094533.204.png)
-
-据[《Telegraaf》](https://www.telegraaf.nl/entertainment/1388714678/doutzen-kroes-ik-laat-me-niet-dwingen-om-het-vaccin-te-nemen)2021年9月17日电，在媒体沉默了半年多之后，模特杜岑·克洛斯（Doutzen Kroes）周五在IG上发布一条长信息，内容是公开反对中共病毒疫苗；她呼吁其他人以她为榜样，并“为他们的自由发声。”
-
-用他们自己的话来说，其他人给了杜岑“希望和力量”，让他们勇敢地说出自己的想法。“我不会被迫接种疫苗，”她坚定地[写道](https://www.instagram.com/p/CT7uQ2CsgzS/?utm_source=ig_embed&amp;ig_rid=7bd60a2e-a173-4a0c-8448-cc5320216ace)。“我不会为了参与社会而被迫证明我的健康。我不接受人们因为他们的医疗状况而被排除在外。”
-
-（文章仅代表作者本人观点，与Gnews无关）
+新闻来源：[《捍卫者》](https://childrenshealthdefense.org/defender/14-military-members-vaccine-mandates-chd-lawsuit-fda/)｜作者：儿童健康保护组织(CHD)｜发布时间：2021年9月20日
 
 * * *
 
-***发稿：信心满满***
+*发稿：Nuevo唐人*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
 
 
 
-0
++1

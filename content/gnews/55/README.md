@@ -2,13 +2,11 @@
 ---
 
 
-## 日本65岁以上3640万人，占总人口29.1%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1545334/)
+## 恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545357/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-21-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+9/15/2021 恒大危机：恒大未来几日无法支付到期的贷款利息，其巨额负债让其处于破产边缘，并引发多方关注。
 
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-+1
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+0
