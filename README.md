@@ -37,23 +37,23 @@
 ### [2021年9月20日 文贵先生盖特 8](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [秘翻在线：中共病毒疫苗在美国造成儿童死伤的数量超过其他全部疫苗死伤总和](/content/gnews/9/README.md)
+### [秘翻在线：一个德国普通前线疫苗接种医生的心声](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [观察：Fauci吹嘘与中共研究人员的私人通话](/content/gnews/10/README.md)
+### [秘翻在线：中共病毒疫苗在美国造成儿童死伤的数量超过其他全部疫苗死伤总和](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [观察：Fauci吹嘘与中共研究人员的私人通话](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法国顶级疫苗专家：新冠病毒政策“完全愚蠢”且“不道德”（五）](/content/gnews/11/README.md)
- ` 喜马拉雅农场新西兰站`
+### [川普要求佐治亚州务卿宣布大选真正的获胜者](/content/gnews/12/README.md)
+ ` HimalayaRussia`
 
-### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
+### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/13/README.md)
  ` wenwu`
 
-### [每日快报：高盛对中国的房地产行业发出了可怕的警告](/content/gnews/13/README.md)
+### [每日快报：高盛对中国的房地产行业发出了可怕的警告](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [AUKUS协议公布后，更多美军和飞机将部署到澳大利亚](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [恒大欠我800万，你不抓他你抓我？](/content/gnews/15/README.md)
  ` 银河勇气之星`
