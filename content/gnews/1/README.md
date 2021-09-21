@@ -2,46 +2,33 @@
 ---
 
 
-## 邓小平翻译员：中国共产党对台湾的接管迫在眉睫
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1545597/)
+## 最新研究报告显示，新冠“疫苗”至少造成15万美国人死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546173/)
 
-- 编译：wenwu–西班牙喜悦农场
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-287.png)
+在一篇题为”在美国死于新冠疫苗的人数估算”的论文中，来自以色列理工学院的杰西卡·罗斯博士及其团队，通过对疫苗不良事件报告系统（VAERS）以及多项科学数据的深入分析，估算出，截至2021年8月27日，至少15万美国人死于新冠疫苗。推特禁止罗斯博士发布该论文链接，The Expose网站在9月20日对这篇文章进行了报道，并附加了下载链接。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-19.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-278.png)
+VAERS是FDA和CDC使用的唯一，且向公众开放的，药物警戒数据库。根据该数据库记录，在美国，每百万接种者中大约有2至5人发生过敏性休克。根据FDA要求，过敏性休克是一个众所周知的严重不良反应，一旦发生必须按要求记录下来。根据麻省总医院，于2021年3月8日 发表在《美国医学会杂志》上的一项科学研究显示，与过敏性休克相一致的反应发生率为：每1万名完全接种者中就有约2.47人在接种两小时内发生。这项研究使用了“主动”检测不会一楼任何病例。问及该问题时，FDA和CDC都选择了回避；正如CDC对原始信件的回应中所述，这意味着VAERS少报告了50倍至123倍的过敏性休克；另一个严重事件是心肌炎报告，所有年龄组的发生率为千分之一。
 
-隶属于中国共产党的几个智囊团以及总部设在纽约的亚洲协会（ Asia Society）的高级顾问，向那些反对中国共产党接管台湾的台湾人士发出了“严厉的警告”。他表示，中共政权将“不择手段”推行实施台湾统一政策。
+罗斯博士在过去的一年里，特别是今年3月份以来，对新冠疫苗高接种率，和即将到来的严重人道危机表示了极大的担忧。这篇论文并不是要找到确切的死亡人数，而是要找到最可信的死亡估算。计算显示，即使是最保守的假设，VAERS的漏报率都高达41倍。基于“超额死亡”和“归纳其因果关系”两个独立判断，她的团队参考各种独立的测算方法得出结论：截至8月27日，新冠疫苗至少造成15万美国人死亡。罗斯博士表示，新冠疫苗引起的不良反应已导致很多人死亡，强制接种疫苗没有任何科学依据，应该受到科学界所有成员的反对。虽然CDC等机构极力掩盖疫苗导致的死亡数据，但随着身边死亡事件的逐渐发生和越来越多研究结论的曝光，CDC等机构将面对更多的质疑和挑战。爆料革命不仅要持续传播疫苗真相，让人们尽早意识到疫苗的危害，更要宣传疫苗解药，让更多人获得自救的方法。
 
-在与 LBC[主持人](https://www.lbc.co.uk/radio/presenters/matt-frei/communist-loyalist-taiwan-invasion-destiny-of-chinese-communist-party-aukus/) Matt Frei 交谈时，高志凯（Victor Gao）宣称：“世界上没有任何东西可以阻碍中共国的统一”，并补充说，这一目标将通过“最好是以和平的方式来实现，但如果不能的话， Peaceful 这单词就可以用不择手段来翻译。”
+(本文仅代表作者观点）
 
-“中共国的统一是必须的，”他补充道。
+参考链接：[BREAKING – The Covid-19 Vaccines have killed at least 150,000 people in the USA including 574 children according to new Scientific Study](https://theexpose.uk/2021/09/20/covid-19-vaccines-have-killed-at-least-150000-people-in-the-usa/)
+[Estimating the number of COVID vaccine deaths in America](http://www.skirsch.com/covid/Deaths.pdf)
 
-“这是对在台湾反对统一的所有人的严厉警告，”高志凯坚称，他是与中国共产党有[联系](https://www.aspi.org.au/report/party-speaks-you)的中国与全球化中心的副主席，也是与北京有联系的其他几个影响力的团体[顾问](http://en.ccg.org.cn/archives/57987)，例如北京能源俱乐部和中国能源安全研究院。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-高志凯在美国也有业务，担任亚洲协会全球顾问成员和摩根士丹利亚洲前副总裁。
+终审：暗黑
+校对/发稿：谐趣园
 
-《国家脉动》此前曾[曝光](https://thenationalpulse.com/exclusive/asia-society-ccp-effort-pushing-social-justice/)亚洲协会可影响美国学校的课程内容和职员，使其与“社会主义”和“全球主义”保持一致，影响到多达400万名学生和10万名老师；当被问及美国对中国共产党试图攻占台湾的反应时，高志凯警告说：“醒醒吧，哪有美国领导人会愿意在中共国攻占台湾的侵略战争中，派出美国士兵来流血的。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-277.png)
-
-**简评**：
-
-**[9月20号：如果共产党对台湾开战了……所有的核心战术都是内外夹击．卖台贼是台湾最大的威胁之一……不管，他们（卖台贼）如何折（腾）的最后，台湾人民一定会彻底的胜利……只是代价的问题](https://gettr.com/post/pbq6hd85db)——郭文贵先生盖文**
-
-**中共叫嚣武统台湾几十年至今，看来真打算拿出假擀面杖了。据2021年9月20日《阿波罗新闻》[报道](https://www.aboluowang.com/2021/0920/1649093.html)，在台湾9月13日至17日举行汉光演习期间，中国解放军冒着“灿都”台风的恶劣天气，两架运-8反潜机仍旧加班加点的进入台湾西南空域。另外，中共内部是由外部光明会的邪恶势力所操控的，这造成了习神无法在中共二十大顺利过渡（王岐山或将接替习神），所以这让他无法避免的需要以战争方式赢得政绩（战争为主）**。
-
-**值得一提的是，福建莆田和厦门的疫情与管控，或是出于攻占台湾而下的功夫。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：[《国家脉动》](https://thenationalpulse.com/news/ccp-advisor-issues-stern-warning-to-us/)｜作者：娜塔丽·温特斯｜发布时间：2021年9月20日
-
-* * *
-
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
-
-
-
-+1
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

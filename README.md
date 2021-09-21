@@ -13,59 +13,59 @@
 
 ---
 
-### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/1/README.md)
- ` wenwu`
+### [最新研究报告显示，新冠“疫苗”至少造成15万美国人死亡](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
 
-### [有声| 香港少女陈彦霖逝世两周年祭](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [福奇资助武汉病毒研究所60个项目，全部与中共军方有关联](/content/gnews/3/README.md)
+### [一个疫苗故事——主流媒体永远不会报道的故事](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠病毒预防和治疗方案合辑](/content/gnews/4/README.md)
- ` 中共病毒真相`
-
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
+### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月19日 文贵先生盖特 1](/content/gnews/6/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2021年9月19日 文贵先生盖特 6](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [串珠398：疫苗也分三六九等，有人打的是水](/content/gnews/7/README.md)
- ` 郭爆料串珠`
+### [2021年9月19日 文贵先生盖特 5](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [（日说｜文贵）2021年9月7日](/content/gnews/8/README.md)
- ` 纽约香草山MOS02`
+### [2021年9月19日 文贵先生盖特 4](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [一个疫苗故事——主流媒体永远不会报道的故事](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [法国顶级疫苗专家：新冠病毒政策“完全愚蠢”且“不道德”（五）](/content/gnews/10/README.md)
+### [法国顶级疫苗专家：新冠病毒政策“完全愚蠢”且“不道德”（五）](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [美国医院吹哨人，所有这些中共病毒疫苗都是垃圾！](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [每日快报：高盛对中国的房地产行业发出了可怕的警告](/content/gnews/12/README.md)
+### [澳洲版中秋团圆](/content/gnews/11/README.md)
+ ` 澳喜农场`
+
+### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
+ ` wenwu`
+
+### [每日快报：高盛对中国的房地产行业发出了可怕的警告](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [AUKUS协议公布后，更多美军和飞机将部署到澳大利亚](/content/gnews/13/README.md)
+### [AUKUS协议公布后，更多美军和飞机将部署到澳大利亚](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [每日快报：实验室泄漏、科学家失踪、掩盖真相：拼凑“武汉到底发生了什么”](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [恒大欠我800万，你不抓他你抓我？](/content/gnews/15/README.md)
+ ` 银河勇气之星`
 
-### [被问到恒大时，CCP统计局发言人表示“房地产基本稳定”](/content/gnews/15/README.md)
+### [被问到恒大时，CCP统计局发言人表示“房地产基本稳定”](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大公司债券停止交易一天](/content/gnews/16/README.md)
+### [恒大公司债券停止交易一天](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [保洁公司为恒大干了两年多拿不到工资](/content/gnews/17/README.md)
+### [保洁公司为恒大干了两年多拿不到工资](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [共产国际用巨额拨款、珠宝、鸦片等哺育了中国共产党](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -85,10 +85,10 @@
 ### [杰森·米勒被左翼巴西联邦警察扣留诱导签署不利文件](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [深山秘密会议决定未来世界走向，接种业大佬被劝服](/content/gnews/25/README.md)
- ` GTV新闻访谈`
+### [美国债务问题可能引发经济危机](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
 
-### [最新研究报告显示，新冠“疫苗”至少造成15万美国人死亡](/content/gnews/26/README.md)
+### [深山秘密会议决定未来世界走向，接种业大佬被劝服](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
 ### [美国证监会警告: 投资中共国可变利益实体存在风险](/content/gnews/27/README.md)
@@ -151,36 +151,36 @@
 ### [新力控股集团一日市值暴跌90%！](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [9/21/21 香港快讯 「中国维权律师关注组」宣布解散 上月被国安处要求交资料](/content/gnews/47/README.md)
+### [2021年9月19日 文贵先生盖特 3](/content/gnews/47/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月19日 文贵先生盖特 2](/content/gnews/48/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月19日 文贵先生盖特 1](/content/gnews/49/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [9/21/21 香港快讯 「中国维权律师关注组」宣布解散 上月被国安处要求交资料](/content/gnews/50/README.md)
  ` 英喜-粵語組`
 
-### [CCP百年百罪 第二十集（81 – 85罪）](/content/gnews/48/README.md)
+### [CCP百年百罪 第二十集（81 – 85罪）](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵先生给习主席捎个话，注意安全，20万亿美元不要惦记了](/content/gnews/49/README.md)
+### [文贵先生给习主席捎个话，注意安全，20万亿美元不要惦记了](/content/gnews/52/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [无视中共施压, 法国参议院拟10月访台](/content/gnews/50/README.md)
+### [无视中共施压, 法国参议院拟10月访台](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [美两党参议员对中共申请加入太平洋贸易协定做出警告](/content/gnews/51/README.md)
+### [美两党参议员对中共申请加入太平洋贸易协定做出警告](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [美英将共同应对中共&#8221;贸易战&#8221;](/content/gnews/52/README.md)
+### [美英将共同应对中共&#8221;贸易战&#8221;](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [滴滴总裁柳青计划辞职，柳传志时代即将终结](/content/gnews/53/README.md)
+### [滴滴总裁柳青计划辞职，柳传志时代即将终结](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [恒大效应蔓延，新力控股暴跌9成停牌!](/content/gnews/54/README.md)
+### [恒大效应蔓延，新力控股暴跌9成停牌!](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [中共攻打台湾，与疫苗，5G，氧化石墨乙烯不得不说的秘密](/content/gnews/55/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [记忆中的希腊](/content/gnews/56/README.md)
- ` 澳喜农场`
-
-### [迈克·蓬佩奥：美国必须每天、始终同香港人站在一起](/content/gnews/57/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

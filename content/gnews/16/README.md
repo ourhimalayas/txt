@@ -2,10 +2,10 @@
 ---
 
 
-## 恒大公司债券停止交易一天
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545365/)
+## 被问到恒大时，CCP统计局发言人表示“房地产基本稳定”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545367/)
 
-9/16/2021 恒大地产有限公司发布关于暂停一天交易公司债券的公告。2021年9月17日复牌，且交易方式会被调整。
+9/15/2021 CCP统计局发言人表示，一些大型房地产企业经营过程中面临了一些困难，但“房地产基本稳定”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

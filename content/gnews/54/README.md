@@ -2,23 +2,20 @@
 ---
 
 
-## 恒大效应蔓延，新力控股暴跌9成停牌!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545764/)
+## 美两党参议员对中共申请加入太平洋贸易协定做出警告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545842/)
 
-栏目记者/责任编辑：修文
+栏目记者/责任编辑：飞虹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-自由时报9月20日报道，中国知名开发商新力控股，20日港股暴跌9成，还没到收盘就宣布停牌，投资人普遍震惊，同时还传出新力全体员工减薪，副总裁减薪幅度高达70%，财务困境一触即发。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.24.29-PM.png)
-新力控股自江西起家，仰赖信托基金，以激进的高杠杆财务操作扩张势力，在发展过程中，数次深陷资金链断裂传闻。近期新力出现商票延期及无法兑付问题，资金周转问题浮出水面。新力上半年财报，公司总资产为1120.38亿元，流动负债754.28亿元，负债率达67%，未来1年内将有132.4亿元债务到期。
+针对中共申请加入《全面与进步跨太平洋伙伴关系协定》，美国两党相关领域议员卡珀参议员和科宁参议员做出警告：“任何人都不应对中共正在采取措施加强他们的全球贸易实力感到吃惊。我们过去一段时间以来一直对中方加入《跨太平洋伙伴关系协定》的微妙而又蓄意的举动提出警告。”
 
-随着近期恒大集团金融业务爆雷，引发了一系列股市震荡连锁反应。其他采取同类型高杠杆运行模式的公司亦陆续被媒体扒出资金触礁，债务违约的风潮一旦开启，地产经济的黑天鹅就将一飞冲天，彻底引爆中共经济最大的一颗定时炸弹。
-(本文仅代表作者观点)
+两位参议员指出，该协定组织正是为对抗中共的贸易影响力而成立，美国此前却错误地撤出了这个协定。美国的贸易领导地位对国家经济和国家安全至关重要。美国必须夺回主动权，在贸易议题上与其亚太盟友们重新接触。
 
-参考链接：[恆大效應炸開！中國房企新力暴跌9成 今臨時停牌](https://ec.ltn.com.tw/article/breakingnews/3678113)
+参考链接：[美两党参议员对中国申请加入太平洋贸易协定做出反应](https://www.voachinese.com/a/us-senators-react-to-china-move-20210920/6236377.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -31,5 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 0

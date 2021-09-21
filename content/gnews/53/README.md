@@ -2,21 +2,21 @@
 ---
 
 
-## 滴滴总裁柳青计划辞职，柳传志时代即将终结
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545762/)
+## 无视中共施压, 法国参议院拟10月访台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545829/)
 
-栏目记者/责任编辑：七哩香
+栏目记者/责任编辑: 新世界的一员
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-9月20日，路透社消息，中国网约车巨头滴滴出行联合创始人兼总裁柳青计划辞职。消息称，柳青表示她预计中国政府最终将接管滴滴，并委任新的管理层。滴滴随后立即发声明称路透关于管理层变动的传言不实，但柳青本人没有回复路透社的置评请求。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.21.56-PM.png)
-滴滴由中共绞肉机体制中举足轻重的“红顶”商人柳传志所控制，柳青是他的女儿。6月30日滴滴在纽交所低调上市后，中共7月2日宣布对滴滴进行网络安全审查，后续又命令下架滴滴APP，7月16日中共七部门联合进驻调查。滴滴作为垄断巨头被调查，是中共内斗和收割财富的重要一环，柳青的即将辞职，其实同马云离开阿里巴巴一样，就是被迫”摘下白手套”出局。这意味着中共对滴滴的“手术”措施即将落地，也意味着柳传志时代的真正终结。
+法广9月20日消息，尽管遭到中共驻法大使卢沙野的持续施压反对，但法国参议院最终还是计划将于10月初组成访问团前往台湾，进行商贸考察与交流.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.41.50-PM.png)
+法国国会今年3月开始就已有访台的初步计划，此次参议员访问计划发布，法国成为继美国之后的第二个官方宣布访问台湾，进行国家级访问考察活动的国家，台湾外交部对此表示热烈欢迎，并称将透过台湾驻法国代表处与法国参议院密切协调访台行程各项安排，包括疫情期间的防范措施等细节。
 (本文仅代表作者观点)
 
-参考链接：  [独家：滴滴出行联合创始人柳青向亲信透露她计划辞职–消息](https://cn.reuters.com/article/didi-liuqing-plan-leave-0921-idCNKBS2GH01H)
+参考链接: [法國參議院訪團擬10月訪台 台灣表示”熱烈歡迎”](https://www.rfi.fr/tw/中國/20210920-法國參議院訪團擬10月訪台-台灣表示-熱烈歡迎)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
