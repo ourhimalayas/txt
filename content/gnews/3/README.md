@@ -2,50 +2,82 @@
 ---
 
 
-## 非政府组织主任警告说，中共政权的强摘器官可能会蔓延到其他国家
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1544631/)
+## 新冠病毒预防和治疗方案合辑
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1543474/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/PO_X5367-900x506-1.jpg)2013 年2月27日，反对强制摘取器官的医生组织执行董事托尔斯泰•特雷在台湾台北的一次活动上发言。 (Chen Pochou/大纪元)
-**摘要翻译：**
+#### Gnews病毒真相小组 整理
 
-托尔斯泰.特雷（Torsten Trey）博士警告说：中共政权一旦能够摧毁西方建立的移植行业的道德标准，它就会计划输出其可怕的强制摘取器官的做法。
+本文汇集了Gnews对不同医生和组织防治新冠病毒方案翻译和整理的不同版本，供大家交叉验证和参考。
 
-反对强制器官摘取医生组织( DAFOH ) 的创始人兼执行董事特雷，在最近接受大纪元电视台“十字路口”节目采访时发出了警告。他说，几十年来，中共政权一直在迫害良心犯，以推动其为移植市场提供摘取器官的工业化运作。
+大胡子医生关于新冠病毒的网站为：[https://vladimirzelenkomd.com](https://vladimirzelenkomd.com)
 
-特雷说，鉴于中共国有主宰许多行业的野心，北京也在寻求成为移植领域的领导者。
-
-“在西方国家，我们为了患者的利益而遵循道德标准。它有一个目的：那就是等待时间，”他说。“这是建立在自由自愿同意作为捐赠器官的基础。
-
-换句话说，他说，中共政权认为西方的医疗标准是对其强制摘取器官做法的威胁。
-
-中共国一直是移植旅游的首选目的地之一，因为中共国医院提供提供的器官移植手术的等待时间非常短，同时声称他们的器官来自该国的自愿捐赠系统。北京方面声称，自2015年以来，他们从没有从死刑犯身上获取器官。
-
-然而，总部位于伦敦的一个人民法庭，在2019年的一份报告中驳斥了中共的说法。它的结论是，国家批准的强摘器官行为在中共国“大规模”发生，法轮功修炼者是器官的主要来源。
-
-特雷说，一旦中共国成为移植领域的主导者，它将在移植领域设立“新标准”。他警告说，到那时，北京将在不受国际监督或批评的情况下“不受限制地消灭”良心犯。
-
-特雷说，他还看到有关中共国死亡的被拘留者尸体器官缺失的报告。
-
-国际上一直在支持呼吁中共国停止强摘器官的做法。特雷说，他的机构组织了为期六年的全球请愿活动，截至2018年，收集了超过300万个签名，并呼吁联合国人权事务高级专员帮助结束在中共国的这种做法。
-
-**简评：**
-
-本文通过专业的“反对强制摘取器官的医生组织”机构执行董事托尔斯泰·特雷在台北的讲话为基础，由专业人士从专业角度，揭示出了中共国在人体器官摘取方面通过谎言，无视人权，强制摘取人体器官。也从专业的角度揭示出中共国在人体器官移植领域，逐渐蚕食西方标准，并试图建立以中共国人体强制摘取器官的新标准。大家广为传播这类揭露文章，让中共国的狼子野心更多的曝光在民众眼里，让民众知道并反对中共国的反人类，反人权恶行。
-
-[新闻链接](https://www.theepochtimes.com/chinese-regimes-forced-organ-harvesting-could-spread-to-other-countries-ngo-director-warns_4004703.html)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评：brianchow*｜*校对：Julia Win*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+美国前线医生联盟的网站为：[https://covid19criticalcare.com](https://covid19criticalcare.com)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+## 纽约香草山医疗部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/Ivermectin-HCQ-1.jpg)](https://gnews.org/zh-hans/1485849/)
+
+
+### [常用新冠预防及治疗方案](https://gnews.org/zh-hans/1485849/)
+
+[常用新冠预防及治疗方案, 具体用药剂量和方法，包含大胡子医生，以及美国前线医生联盟的翻译版本。](https://gnews.org/zh-hans/1485849/)
+
+
+
+
+
+
+
+## 香草山翻译部
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/预防.jpg)](https://gnews.org/zh-hans/1493316/)
+
+
+### [大胡子泽连科医生针对新冠病毒的预防方案](https://gnews.org/zh-hans/1493316/)
+
+[此方案来自泽连科医生，他是纽约州拥有合法执照的医生。我们不向任何人提供任何医疗上的建议或药方，请您在做任何医药方面的决定前，务必咨询您的医生！](https://gnews.org/zh-hans/1493316/)
+
+
+
+
+
+
+
+## 大废墙整理的版本
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/截屏2021-08-14-07.58.30-1280x720-1.png)](https://gnews.org/zh-hans/1465563/)
+
+
+### [Vladimir Zelenko的防治方案摘抄](https://gnews.org/zh-hans/1465563/)
+
+[此方案来自泽连科医生。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465563/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/90552.jpg)](https://gnews.org/zh-hans/1465617/)
+
+
+### [美国前线医生联盟的防治方案翻译](https://gnews.org/zh-hans/1465617/)
+
+[此方案来自FLCCC。本文对网络上一些预防和治疗方案进行有限的翻译，供病毒专栏医疗相关的专业人士参考，本文不构成任何用药方案或建议。](https://gnews.org/zh-hans/1465617/)
+
+
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/178e030207b745602afc082b187873a3.png)](https://gnews.org/zh-hans/1541435/)
+
+
+### [关于青蒿素哌喹片的使用](https://gnews.org/zh-hans/1541435/)
+
+[关于黄花蒿、青蒿素以及青蒿素哌喹片的使用资讯。](https://gnews.org/zh-hans/1541435/)
+
+
 
 
 

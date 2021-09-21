@@ -2,10 +2,10 @@
 ---
 
 
-## 恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545357/)
+## 恒大债台高筑，无法支付员工工资
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545359/)
 
-9/15/2021 恒大危机：恒大未来几日无法支付到期的贷款利息，其巨额负债让其处于破产边缘，并引发多方关注。
+9/11/2021 半岛电视台记者卡特里娜·于：恒大债台高筑，无法支付员工工资。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

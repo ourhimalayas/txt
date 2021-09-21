@@ -13,14 +13,14 @@
 
 ---
 
-### [福奇资助武汉病毒研究所60个项目，全部与中共军方有关联](/content/gnews/1/README.md)
+### [盖特飞速发展体现出人们对言论自由的渴望](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [福奇资助武汉病毒研究所60个项目，全部与中共军方有关联](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠病毒预防和治疗方案合辑](/content/gnews/2/README.md)
+### [新冠病毒预防和治疗方案合辑](/content/gnews/3/README.md)
  ` 中共病毒真相`
-
-### [非政府组织主任警告说，中共政权的强摘器官可能会蔓延到其他国家](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -28,32 +28,32 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [串珠386：打了疫苗怎么办？](/content/gnews/6/README.md)
+### [（日说｜文贵）2021年9月7日](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [串珠386：打了疫苗怎么办？](/content/gnews/7/README.md)
  ` 郭爆料串珠`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（二）](/content/gnews/7/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（二）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年9月20日郭先生盖特 — 山中美景「2分50秒」](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [27个州正与拜登的疫苗授权作斗争](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/9/README.md)
+### [CHD诉讼修正动议：美军详述疫苗授权队军队的影响](/content/gnews/10/README.md)
+ ` wenwu`
+
+### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [槲皮素和锌-对抗COVID19的作用](/content/gnews/10/README.md)
- ` Runaway`
+### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
+ ` wenwu`
 
-### [短视频：福奇和媒体推波助澜，让大型药企完成“谋杀”](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [每日快报：高盛对中国的房地产行业发出了可怕的警告](/content/gnews/12/README.md)
+### [每日快报：高盛对中国的房地产行业发出了可怕的警告](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [AUKUS协议公布后，更多美军和飞机将部署到澳大利亚](/content/gnews/13/README.md)
+### [AUKUS协议公布后，更多美军和飞机将部署到澳大利亚](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [每日快报：实验室泄漏、科学家失踪、掩盖真相：拼凑“武汉到底发生了什么”](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [被问到恒大时，CCP统计局发言人表示“房地产基本稳定”](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -67,10 +67,10 @@
 ### [共产国际用巨额拨款、珠宝、鸦片等哺育了中国共产党](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [推特对自己定位是法官、陪审团和行刑者及真相的仲裁者](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [有声| 香港少女陈彦霖逝世两周年祭](/content/gnews/19/README.md)
+ ` MOSREC`
 
-### [盖特飞速发展体现出人们对言论自由的渴望](/content/gnews/20/README.md)
+### [推特对自己定位是法官、陪审团和行刑者及真相的仲裁者](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [9月20号郭文贵先生会议休息时间在山上直播全文听写](/content/gnews/21/README.md)
@@ -103,29 +103,29 @@
 ### [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/31/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/31/README.md)
+ ` wenwu`
+
+### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/32/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [周一香港股市，恒大系股票暴跌](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新的审查规则生效脸书删除德国的反封锁团体社交账号](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/35/README.md)
+### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [参议员瑞克·斯科特： 我们正处于与共产主义中国 的新冷战中](/content/gnews/36/README.md)
- ` 美国政要直译推`
+### [周一香港股市，恒大系股票暴跌](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第058期](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
+### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳洲总理推脱欧洲贸易谈判风险](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
+### [新的审查规则生效脸书删除德国的反封锁团体社交账号](/content/gnews/37/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [纳瓦罗祝班农父亲生日快乐并致敬班农一家](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -154,33 +154,33 @@
 ### [恒大将是下一个雷曼兄弟？](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大债台高筑，无法支付员工工资](/content/gnews/48/README.md)
+### [槲皮素和锌-对抗COVID19的作用](/content/gnews/48/README.md)
+ ` Runaway`
+
+### [恒大债台高筑，无法支付员工工资](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注](/content/gnews/49/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [六月雪狱（二）](/content/gnews/50/README.md)
+### [短视频：福奇和媒体推波助澜，让大型药企完成“谋杀”](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [续：再列举中共病毒“疫苗”严重伤害病例32例](/content/gnews/51/README.md)
+### [恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注](/content/gnews/51/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [六月雪狱（二）](/content/gnews/52/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [续：再列举中共病毒“疫苗”严重伤害病例32例](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：洛杉矶卫生官员：好莱坞名人不受疫苗强制令约束](/content/gnews/52/README.md)
+### [秘翻在线：洛杉矶卫生官员：好莱坞名人不受疫苗强制令约束](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [接种疫苗人群对他人存在危险，并需在冬季自我隔离以防重症](/content/gnews/53/README.md)
+### [接种疫苗人群对他人存在危险，并需在冬季自我隔离以防重症](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [再遭港警国安处锁定 港学生组织成员清晨被捕](/content/gnews/54/README.md)
+### [再遭港警国安处锁定 港学生组织成员清晨被捕](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：福奇资助了武毒所60个与中共军方合作的项目](/content/gnews/55/README.md)
+### [秘翻在线：福奇资助了武毒所60个与中共军方合作的项目](/content/gnews/57/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：强制接种疫苗政策对海豹突击队打击巨大](/content/gnews/56/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 

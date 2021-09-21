@@ -2,61 +2,18 @@
 ---
 
 
-## 上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544883/)
+## 秘翻在线：福奇资助了武毒所60个与中共军方合作的项目
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545214/)
 
-栏目记者：葛朗台太太/Andy5
-责任编辑：葛朗台太太
+#### 撰稿：zzballack
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-78.jpg)图片来源：纽约邮报
+网关专家 9月19消息，美国国家过敏和传染病研究所（NIAID）所长、总统的首席医疗顾问安东尼·福奇（Anthony Fauci）在中共病毒大流行期间撒谎无数，被媒体发现数年来一直在资助中共国武汉病毒研究所的功能增强研究。
 
+除此之外，澳大利亚的调查记者兼主持人夏里·马克森 (Sharri Markson)近日在澳洲天空新闻节目中透露了关于福奇的更多信息：福奇所在的NIAID资助了武毒所的60个研究项目。NIAID甚至还和中共军方一起资助了武毒所的冠状病毒研究。福奇在2012年写的一篇论文中提到，对冠状病毒进行基因操纵的功能增强研究可以使其更加危险和更具传播性，甚至值得冒大流行的风险进行这项研究。
 
+《网关专家》之前曾报道过，武毒所用活体动物做冠状病毒实验。中共国病毒领域的所有工作都与中共军方有关，因此这方面的任何工作都受中共军方的指挥和控制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
-
-
-
-9月17日，上海合作组织成员国元首理事会第二十一次会议、上海合作组织和集体安全条约组织成员国领导人阿富汗问题联合峰会在塔吉克斯坦首都杜尚别召开。
-
-本次峰会吸收沙特阿拉伯、埃及、卡塔尔为新的对话伙伴。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture11.jpg)
-上合组织是于2001年6月15日在上海成立的政府间组织，现有常任理事国：中共国、俄罗斯、乌兹别克斯坦、印度、巴基斯坦、吉尔吉斯斯坦、哈萨克斯坦、塔吉克斯坦和刚被吸收为成员国的伊朗。
-
-值得注意的是：2017年6月，沙特阿拉伯、埃及、巴林、阿拉伯联合酋长国、利比亚、也门以及马尔代夫已经都与卡塔尔断绝外交关系，指责卡塔尔支持包括所谓的“伊斯兰国”（IS）武装在内的恐怖主义团伙，破坏地区稳定局势。
-
-但是，在2021年1月，埃及、沙特、巴林，阿联酋恢复同卡塔尔开放领空和陆海边界，埃及和沙特宣布与卡塔尔恢复外交。
-
-现在，埃及、沙特和卡塔尔又同时成为上合组织的对话伙伴。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture16.jpg)
-上合、一带一路，能源、华为，中国银行，中国铁建，当我们把这些碎片拼凑在一起，能看到中共通过蓝金黄手段控制能源，试图控制世界的野心。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://eng.sectsco.org/about_sco/)
-2. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.163.com/dy/article/GK9MB08V05528X6N.html)
-3. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.china.com.cn/opinion2020/2021-09/19/content_77762917.shtml)
-4. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.sohu.com/a/417583730_353978)
-5. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.bbc.com/zhongwen/simp/world-40155902)
-6. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.xinhuanet.com/world/2021-01/06/c_1126949889.htm)
-7. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.fmprc.gov.cn/web/gjhdq_676201/gj_676203/yz_676205/1206_676596/1206x0_676598/)
-8. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.fmprc.gov.cn/web/gjhdq_676201/gj_676203/yz_676205/1206_676860/1206x0_676862/)
-9. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.mofcom.gov.cn/dl/gbdqzn/upload/kataer.pdf)
-10. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.chinaarabcf.org/chn/zagx/zaggfzyjzx/t1822530.htm)
-11. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://fec.mofcom.gov.cn/article/gbdqzn/)
-12. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://fec.mofcom.gov.cn/article/gbdqzn/)
-13. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.chincold.org.cn/chincold/zt/dsb/zbdw/webinfo/2009/08/1281417027298159.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
-
+新闻来源：[BREAKING: Dr. Fauci Funded 60 Projects at the Wuhan Institute of Virology and All Were in Conjunction with the Chinese Military](https://www.thegatewaypundit.com/2021/09/breaking-dr-fauci-funded-60-projects-wuhan-institute-virology-conjunction-chinese-military/)
 
 0
