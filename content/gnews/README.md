@@ -43,8 +43,8 @@
 ### [疾控中心(CDC)表示，美国接种了383,994,877剂疫苗](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文雍漫谈：我们都需要勇气](/content/gnews/11/README.md)
- ` 文雍`
+### [当局用吊销行医执照威胁开具羟氯喹和伊维菌素的医生](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [AUKUS协议公布后，更多美军和飞机将部署到澳大利亚](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -67,22 +67,22 @@
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [全球阴谋集团正在利用疫情破坏司法独立](/content/gnews/19/README.md)
+### [新中国联邦郝海东伉俪致辞祝班农父亲福如东海寿比南山](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [盖特不会因政见而审查言论或移除用户（粤语配音）](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [班农：郭文贵在全世界点燃灭共的燎原之火（粤语配音）](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [全球阴谋集团正在利用疫情破坏司法独立](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [我给习大人捎个话](/content/gnews/20/README.md)
+### [我给习大人捎个话](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳洲护士：医院只给接种疫苗的中共病毒患者用伊维菌素](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [当局用吊销行医执照威胁开具羟氯喹和伊维菌素的医生](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [恒大银行贷款利息逾期将引发中共国金融不稳定涟漪效应](/content/gnews/24/README.md)
+### [澳洲护士：医院只给接种疫苗的中共病毒患者用伊维菌素](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行](/content/gnews/25/README.md)
@@ -139,17 +139,17 @@
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/42/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [9/20/2021国际财经快讯：美财长耶伦称债务违约将 &#8220;永久 &#8220;削弱美国；世界银行为 中共篡改数据](/content/gnews/43/README.md)
+### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/43/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/20/2021国际财经快讯：美财长耶伦称债务违约将 &#8220;永久 &#8220;削弱美国；世界银行为 中共篡改数据](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/18/2021国际财经快讯：美银行业反对税务报告法；美财长警告经济面临债务上限](/content/gnews/44/README.md)
+### [9/18/2021国际财经快讯：美银行业反对税务报告法；美财长警告经济面临债务上限](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
 
-### [陆金所大陆与陆金所BVI股权穿透图](/content/gnews/45/README.md)
+### [陆金所大陆与陆金所BVI股权穿透图](/content/gnews/46/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/46/README.md)
- ` 秘密翻译组金融团队`
 
 ### [幻想与中共对话-评欧盟对华战略报告（二）](/content/gnews/47/README.md)
  ` 澳喜农场`
@@ -160,27 +160,27 @@
 ### [中国共产党黄历的九月二十四日](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [未接种疫苗并不危险，接种了疫苗的人是危险的](/content/gnews/50/README.md)
+### [文雍漫谈：我们都需要勇气](/content/gnews/50/README.md)
+ ` 文雍`
+
+### [恒大银行贷款利息逾期将引发中共国金融不稳定涟漪效应](/content/gnews/51/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [未接种疫苗并不危险，接种了疫苗的人是危险的](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [恒大已无力支付下周到期利息](/content/gnews/51/README.md)
+### [恒大已无力支付下周到期利息](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [每一美元恒大债券的交易价格现在仅为20美分](/content/gnews/52/README.md)
+### [每一美元恒大债券的交易价格现在仅为20美分](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共节前禁台水果](/content/gnews/53/README.md)
+### [中共节前禁台水果](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [暗通款曲投票秀](/content/gnews/54/README.md)
+### [暗通款曲投票秀](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国军方强制接种疫苗，未接种者将被解雇且失去福利](/content/gnews/55/README.md)
+### [美国军方强制接种疫苗，未接种者将被解雇且失去福利](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [今夜举杯为明天](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本三连休反映出的疫苗歧视等问题](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
