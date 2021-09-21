@@ -2,11 +2,32 @@
 ---
 
 
-## 迈克·蓬佩奥：美国必须每天、始终同香港人站在一起
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545717/)
+## 滴滴总裁柳青计划辞职，柳传志时代即将终结
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545762/)
 
-9/19/2021 迈克·蓬佩奥：美国必须强有力地同香港人站在一起，正如我们同台湾人肩并肩一样。《周日早间期货》节目，蓬佩奥接受玛丽亚采访，谈安东尼·布林肯关于香港发推而后删除、修改、重发，但却去掉了涉及美国支持香港的关键句子。
+栏目记者/责任编辑：七哩香
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+
+
+9月20日，路透社消息，中国网约车巨头滴滴出行联合创始人兼总裁柳青计划辞职。消息称，柳青表示她预计中国政府最终将接管滴滴，并委任新的管理层。滴滴随后立即发声明称路透关于管理层变动的传言不实，但柳青本人没有回复路透社的置评请求。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.21.56-PM.png)
+滴滴由中共绞肉机体制中举足轻重的“红顶”商人柳传志所控制，柳青是他的女儿。6月30日滴滴在纽交所低调上市后，中共7月2日宣布对滴滴进行网络安全审查，后续又命令下架滴滴APP，7月16日中共七部门联合进驻调查。滴滴作为垄断巨头被调查，是中共内斗和收割财富的重要一环，柳青的即将辞职，其实同马云离开阿里巴巴一样，就是被迫”摘下白手套”出局。这意味着中共对滴滴的“手术”措施即将落地，也意味着柳传志时代的真正终结。
+(本文仅代表作者观点)
+
+参考链接：  [独家：滴滴出行联合创始人柳青向亲信透露她计划辞职–消息](https://cn.reuters.com/article/didi-liuqing-plan-leave-0921-idCNKBS2GH01H)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 0

@@ -2,26 +2,27 @@
 ---
 
 
-## 无视中共施压, 法国参议院拟10月访台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545829/)
+## 冲突风险增大, 日本促欧洲反对中共军事扩张
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546115/)
 
-栏目记者/责任编辑: 新世界的一员
+栏目记者/责任编辑  Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-285.png)
+日本防卫大臣岸信夫接受英国《卫报》采访称, 敦促欧洲反对中共国的军事扩张。岸信夫警告说，国际社会必须加强对中共在军事和领土扩张趋势的威慑，因为发生局部激烈冲突的风险越来越大。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-37.jpeg)
 
+岸信夫称，中共正试图利用其不断装大的军事力量，实行慢慢推远界限/灰色地带等战略，单方面改变东海和南海的现状。东中国海和南中国海问题不仅是区域问题，也是国际社会问题，更是与欧洲相关的事情，对抗中共国还需要欧洲更多国家对此表明态度，对中共形成威慑。
 
+岸信夫的这一言论也得到了台湾的响应，包括台湾前海军司令和国防部副部长在内的军事专家发出预警,  表示目前在台海已成常态的小规模的对抗或海上事故, 随时可能“迅速升级为与中共的全面冲突”。
 
-法广9月20日消息，尽管遭到中共驻法大使卢沙野的持续施压反对，但法国参议院最终还是计划将于10月初组成访问团前往台湾，进行商贸考察与交流.
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.41.50-PM.png)
-法国国会今年3月开始就已有访台的初步计划，此次参议员访问计划发布，法国成为继美国之后的第二个官方宣布访问台湾，进行国家级访问考察活动的国家，台湾外交部对此表示热烈欢迎，并称将透过台湾驻法国代表处与法国参议院密切协调访台行程各项安排，包括疫情期间的防范措施等细节。
-(本文仅代表作者观点)
+(本文仅代表作者观点）
 
-参考链接: [法國參議院訪團擬10月訪台 台灣表示”熱烈歡迎”](https://www.rfi.fr/tw/中國/20210920-法國參議院訪團擬10月訪台-台灣表示-熱烈歡迎)
+参考链接：[日本促歐洲反中國軍事擴張：激烈衝突風險越來越大](https://www.rfi.fr/tw/國際/20210920-日本促歐洲反中國軍事擴張-激烈衝突風險越來越大)
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龙
-校正/发稿：我不在这里
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,5 +30,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-0
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
