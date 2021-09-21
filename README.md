@@ -151,36 +151,36 @@
 ### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月20日 文贵先生盖特 10](/content/gnews/47/README.md)
+### [【小雨专栏】在路上（029）——友谊篇](/content/gnews/47/README.md)
+ ` 温哥华扬帆农场`
+
+### [2021年9月20日 文贵先生盖特 10](/content/gnews/48/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 9](/content/gnews/48/README.md)
+### [2021年9月20日 文贵先生盖特 9](/content/gnews/49/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 8](/content/gnews/49/README.md)
+### [2021年9月20日 文贵先生盖特 8](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 7](/content/gnews/50/README.md)
+### [2021年9月20日 文贵先生盖特 7](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 6](/content/gnews/51/README.md)
+### [2021年9月20日 文贵先生盖特 6](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 5](/content/gnews/52/README.md)
+### [2021年9月20日 文贵先生盖特 5](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 4](/content/gnews/53/README.md)
+### [2021年9月20日 文贵先生盖特 4](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 3](/content/gnews/54/README.md)
+### [2021年9月20日 文贵先生盖特 3](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 2](/content/gnews/55/README.md)
+### [2021年9月20日 文贵先生盖特 2](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 1](/content/gnews/56/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月19日 文贵先生盖特 11](/content/gnews/57/README.md)
+### [2021年9月20日 文贵先生盖特 1](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
