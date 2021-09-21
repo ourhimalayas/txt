@@ -2,41 +2,27 @@
 ---
 
 
-## 澳洲总理推脱欧洲贸易谈判风险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1545046/)
+## 秘翻在线：川普说，故意放毒是战争行为
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545216/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳大利亚总理-scaled.jpg)
-图片来源：cnbc
+撰稿：彩虹
 
-**【雅典娜快讯】，紧贴时事脉搏**
+责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-267.png)图片来源：The Conversation
+9月20日，《新闻极限》（Newsmax）记者西奥多·邦克（Theodore Bunker）报道了澳洲《天空新闻台》采访前总统川普和前国务卿彭佩奥的新闻。
 
-斯科特·莫里森(Scott Morrison)对澳大利亚放弃价值900亿美元的法国潜艇合同，可能会破坏与欧盟的自由贸易谈判的警告不屑一顾。
+前总统川普在接受采访时说：“一些情报是保密的，我不能谈论，但其可能性是很大的，当我说极有可能时，比如有95%的可能性来自武汉实验室。我不知道他们是因为怀有恶意还是严重的渎职，但无论如何，它来自武汉，来自武汉实验室。我开始听到一些故事……说实验室外面有很多尸袋。我很久以前就听说了。如果他们确实有尸袋，这不就是蛛丝马迹吗？”
 
-莫里森坚称，澳大利亚必须按照其国家利益行事，并相信在未来几个月内仍可以解决相关问题。
+川普特别补充道：“我认为这可能是一个意外，我不认为这是故意的。但如果是故意的，那实质上就是战争行为。”
 
-“要与欧盟就贸易达成协议，这不是一件容易的事。我想每个人都明白这一点，”莫里森在澳大利亚时间周二早上抵达美国后告诉记者。
+此外，川普还批评了世卫组织(WHO)及其领导人谭德塞（Tedros Adhanom Ghebreyesus）。“世卫组织是被中共掌控的，我（决定）从世卫组织退出。太荒唐了，他们的工作拖拉，他们这么做是错的，他们就是中共的传声筒。”
 
-澳大利亚上周宣布与美国和英国达成一项新的安全协议(AUKUS)，其中包括一项核动力潜艇协议。同时，澳大利亚还取消了与法国海军集团的合同，从而引发了重大的外交裂痕。
+《天空新闻台》还采访了前国务卿迈克·彭佩奥（Mike Pompeo），他也认为谭德塞完全受控于“中共政府”。
 
-莫里森计划在访问期间会见北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）和欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）。
+他说：“谭德塞把他在世卫组织的职位（获得）归功于与中共达成的交易，没有中共的支持，他不可能成为世卫组织领导人。世卫组织不愿意要求中共给予其（调查访问）权限。他们的调查是失败的，而失败的原因在于缺少骨气和决心，世界为此陷入了糟糕境地。这是一场灾难，而灾难的核心就是2019年末和2020年初,（他们）将其变成了政治，而不是科学问题，越来越成为被个人私利而驱使，而非科学数据。”
 
-“如果认为这种性质的决定不会让法国人失望，那就太天真了。我们理解这一点，”莫里森说。“当时我们不可能在其他国家的交往中讨论这类安全问题。”
+**新闻来源**
 
-莫里森还谈到了澳大利亚与各欧盟国家的商业关系，包括与德国的国防合同。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[PM shrugs off risks to Europe trade talks (msn.com)](https://www.msn.com/en-au/news/australia/pm-shrugs-off-risks-to-europe-trade-talks/ar-AAOEl1o)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Trump Insists ‘Gross Incompetence’ Caused Pandemic](https://www.newsmax.com/newsfront/trump-covid-19-china-wuhan/2021/09/20/id/1037146/)
 
 0

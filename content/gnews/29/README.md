@@ -2,56 +2,20 @@
 ---
 
 
-## 接种疫苗人群对他人存在危险，并需在冬季自我隔离以防重症
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545286/)
+## 秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545301/)
 
-栏目记者/责任编辑：文一
+#### 编译：致敬香港！
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-58.jpg)图片来源：网络截图
+英国伦敦帝国理工的生殖免疫学家维多利亚·梅尔（Victoria Male）9月16日在《英国医学杂志》（British Medical Journal）发表文章呼吁，接种新冠疫苗及之后月经发生紊乱之间很可能存在关联，需要尽早进行调查。
 
+英国药监局（MHRA）目前列出的接种新冠疫苗的常见副作用有手臂酸痛、发烧、疲劳和肌痛，而并没有包括经期紊乱和阴道意外出血。但现实中，临床医生和生殖健康领域的工作人员正越来越多地接触到接种疫苗后随即出现这些症状的病例。截至 2021 年 9 月 2 日，英国药监局的黄卡药物不良反应监测系统（yellow card surveillance scheme）已经收到超过30000 份这种情况的报告，涉及到目前所有种类的新冠疫苗，但根据这些数据却很难得出疫苗接种和经期紊乱之间的确切关联。英国药监局表示，相对于接种疫苗总人数、以及普通情况下月经紊乱的普遍性而言，该系统收集到的数据量少，不足以得出结论。相关研究需要更好地收集和比较接种与未接种人群中、各自出现月经紊乱的比例。美国国立卫生研究院已经拨款 167 万美元来鼓励这方面的研究。
 
+据报道，无论是“信使核糖核酸mRNA”类的、还是“腺病毒载体”类的新冠疫苗，接种后都月经紊乱的情况发生，这说明诱因不是疫苗的特定成分、而更可能是体内产生免疫反应的结果，同样的情况在“人乳头瘤病毒（HPV）”疫苗的接种后也有发生。人体免疫在被各种因素（包括病毒感染）激活后，生理学上影响经期的合理机制，一方面是通过荷尔蒙，另一方面是通过子宫内膜的免疫细胞，这两者都跟规律的月经周期有关。有一项相关研究观察了被新冠病毒感染的经期妇女，其中大约四分之一都出现了闭经。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+梅尔博士认为，黄卡系统收集到的疫苗接种后经期变化的情况，虽然一般大多是短期的，但进一步研究这种可能的关联、对于疫苗接种计划至关重要。在得到更多的证据和确切结论之前，临床医生需要积极询问患者这方面的相关信息，并鼓励她们向黄卡系统呈报任何接种后的经期变化，因为一般情况下患者是不太可能主动去做这些的。对于经期紊乱持续几个周期的、或绝经后又重新阴道出血的患者，需要尽早给予她们相应的治疗。
 
-
-
-
-
-据《加拿大时报》报道：世界卫生组织欧洲免疫专家咨询小组前副主席，克里斯蒂安-佩罗内教授近日警告说，所有接种过疫苗的人必须在冬季进行隔离，否则有可能患上严重疾病。
-
-佩罗内专门研究热带病学和新出现的传染病。他曾是公共卫生高级委员会传染病专业委员会的主席。
-
-这位传染病专家确认了以色列和英国疫情迅速恶化的局势，并表示。“接种疫苗的人应该被隔离，与社会隔绝”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-10.jpg)
-他接着说道，“未接种疫苗的人并不危险；接种疫苗的人对其他人来说是危险的。以色列已经证明了这一点–我和以色列的许多医生都有联系-——他们正面临着巨大问题，医院收治的重症病人都是接种疫苗的，英国也是同样情况。疫苗接种施行较多的地方就会出现问题。”
-
-以色列医生科比·哈维夫 （Kobi Haviv）也告诉媒体说：“（以色列）95%的重症患者都接种了疫苗。完全接种疫苗的人占住院病人的85-90%之多。”
-
-参考链接：[Immunization Expert: ‘Unvazzinated People Are Not Dangerous; Vazzinated People Are Dangerous for Others’](https://canadiantimes.live/health/immunization-expert-unvazzinated-people-are-not-dangerous-vazzinated-people-are-dangerous-for-others/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
-
-
-
-
+**新闻来源：**[Menstrual changes after covid-19 vaccination](https://www.bmj.com/content/374/bmj.n2211)
 
 0

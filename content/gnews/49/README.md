@@ -2,61 +2,53 @@
 ---
 
 
-## 上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544883/)
+## 再遭港警国安处锁定 港学生组织成员清晨被捕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545236/)
 
-栏目记者：葛朗台太太/Andy5
-责任编辑：葛朗台太太
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
+栏目记者/责任编辑：AsG諾雅
 
 
 
-9月17日，上海合作组织成员国元首理事会第二十一次会议、上海合作组织和集体安全条约组织成员国领导人阿富汗问题联合峰会在塔吉克斯坦首都杜尚别召开。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-本次峰会吸收沙特阿拉伯、埃及、卡塔尔为新的对话伙伴。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture11.jpg)
-上合组织是于2001年6月15日在上海成立的政府间组织，现有常任理事国：中共国、俄罗斯、乌兹别克斯坦、印度、巴基斯坦、吉尔吉斯斯坦、哈萨克斯坦、塔吉克斯坦和刚被吸收为成员国的伊朗。
 
-值得注意的是：2017年6月，沙特阿拉伯、埃及、巴林、阿拉伯联合酋长国、利比亚、也门以及马尔代夫已经都与卡塔尔断绝外交关系，指责卡塔尔支持包括所谓的“伊斯兰国”（IS）武装在内的恐怖主义团伙，破坏地区稳定局势。
 
-但是，在2021年1月，埃及、沙特、巴林，阿联酋恢复同卡塔尔开放领空和陆海边界，埃及和沙特宣布与卡塔尔恢复外交。
 
-现在，埃及、沙特和卡塔尔又同时成为上合组织的对话伙伴。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture16.jpg)
-上合、一带一路，能源、华为，中国银行，中国铁建，当我们把这些碎片拼凑在一起，能看到中共通过蓝金黄手段控制能源，试图控制世界的野心。
+
+德国之声综合港媒9月20日消息，中共港警国安处的人员当日清晨6点40分再次逮捕了学生组织“贤学思政”的召集人王逸战及秘书长陈枳森等三名成员，并到该组织的葵涌货仓进行搜查，据称逮捕罪名是“煽动颠覆国家政权”。同时，国安处人员也去了“贤学思政”发言人黄沅琳及前发言人朱慧盈等成员的住所要求所谓协助调查。
+
+“贤学思政”是去年5月成立的香港本土派的学生组织，召集人王逸战在接受媒体访问时曾表示，试探政权的红线就是该组织存在的价值。《香港国安法》生效后，该学生组织并没有解散，而王逸战本人也因在旺角摆设街站，宣传与独裁的港共政府抗争而多次被捕。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-108.jpg)
+国安法下，港共警方实行秋后算帐，大肆抓捕特定的民主人士和组织成员，今年以来除了针对民阵、支联会等影响力大的组织采取行动，也相继对香港大学学生会及评议会、“光城者”、“贤学思政”等多个学生组织的成员及前成员实施了逮捕，进一步压制香港人追求自由、民主、法治的空间。
+
+参考链接：
+[再遭港警国安处锁定 港学生组织成员清晨被捕](https://www.dw.com/zh/%E5%86%8D%E9%81%AD%E6%B8%AF%E8%AD%A6%E5%9B%BD%E5%AE%89%E5%A4%84%E9%94%81%E5%AE%9A-%E6%B8%AF%E5%AD%A6%E7%94%9F%E7%BB%84%E7%BB%87%E6%88%90%E5%91%98%E6%B8%85%E6%99%A8%E8%A2%AB%E6%8D%95/a-59235024)
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://eng.sectsco.org/about_sco/)
-2. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.163.com/dy/article/GK9MB08V05528X6N.html)
-3. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.china.com.cn/opinion2020/2021-09/19/content_77762917.shtml)
-4. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.sohu.com/a/417583730_353978)
-5. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.bbc.com/zhongwen/simp/world-40155902)
-6. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.xinhuanet.com/world/2021-01/06/c_1126949889.htm)
-7. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.fmprc.gov.cn/web/gjhdq_676201/gj_676203/yz_676205/1206_676596/1206x0_676598/)
-8. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.fmprc.gov.cn/web/gjhdq_676201/gj_676203/yz_676205/1206_676860/1206x0_676862/)
-9. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.mofcom.gov.cn/dl/gbdqzn/upload/kataer.pdf)
-10. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.chinaarabcf.org/chn/zagx/zaggfzyjzx/t1822530.htm)
-11. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://fec.mofcom.gov.cn/article/gbdqzn/)
-12. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://fec.mofcom.gov.cn/article/gbdqzn/)
-13. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.chincold.org.cn/chincold/zt/dsb/zbdw/webinfo/2009/08/1281417027298159.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
 
 
 0

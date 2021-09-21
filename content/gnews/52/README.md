@@ -2,42 +2,61 @@
 ---
 
 
-## 厦门进入“准封城”状态，中共官媒慌忙辟谣意欲何为？
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544880/)
+## 上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544883/)
 
-栏目记者/责任编辑：Zion文恩
+栏目记者：葛朗台太太/Andy5
+责任编辑：葛朗台太太
 
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-1-1.jpg)
-据中共国内媒体消息，因“厦门疫情防控升级”，从9月20日起，厦门高崎机场取消全部出港国内航班。在铁路方面，从9月20日起，厦门北开往宁波方向动车票已无法购买，但宁波开往厦门北方向动车车票则仍显示可售状态。在国内微博等社交媒体平台，更有消息说“9月20日起厦门封城”但此消息很快被中共官方媒体所“辟谣”，声称20日仍有航班起降宁波机场。
 
-中共自疫情爆发以来，一贯掩盖真相、罔顾事实。目前，尚不得知厦门的疫情真实情况，但从民间自媒体以及中共官媒的宣传来看，厦门的情势不容乐观。值得关注的是，由于中共的强制疫苗接种，越来越多的人出现“随地倒”、“随时梗”等与疫苗相关的严重不良反应。中共此时加大宣传厦门疫情防控，是否为掩盖民间日益激化的“反疫苗强制接种“情绪，尚不得知。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-2-1.jpg)
-另据郭文贵先生爆料，中共在9月24日前后会有涉台重大举措。此前中共坊间一直盛传“9月底攻打台湾“。值此敏感之时，对厦门的管控是否涉及中共的对台作战方略，我们拭目以待。也请广大台湾同胞做好准备，抛弃幻想，以实际行动防止台湾军界、政界，以及商界的”台奸、台贼“成为中共攻台的”带路党“。
+9月17日，上海合作组织成员国元首理事会第二十一次会议、上海合作组织和集体安全条约组织成员国领导人阿富汗问题联合峰会在塔吉克斯坦首都杜尚别召开。
+
+本次峰会吸收沙特阿拉伯、埃及、卡塔尔为新的对话伙伴。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture11.jpg)
+上合组织是于2001年6月15日在上海成立的政府间组织，现有常任理事国：中共国、俄罗斯、乌兹别克斯坦、印度、巴基斯坦、吉尔吉斯斯坦、哈萨克斯坦、塔吉克斯坦和刚被吸收为成员国的伊朗。
+
+值得注意的是：2017年6月，沙特阿拉伯、埃及、巴林、阿拉伯联合酋长国、利比亚、也门以及马尔代夫已经都与卡塔尔断绝外交关系，指责卡塔尔支持包括所谓的“伊斯兰国”（IS）武装在内的恐怖主义团伙，破坏地区稳定局势。
+
+但是，在2021年1月，埃及、沙特、巴林，阿联酋恢复同卡塔尔开放领空和陆海边界，埃及和沙特宣布与卡塔尔恢复外交。
+
+现在，埃及、沙特和卡塔尔又同时成为上合组织的对话伙伴。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture16.jpg)
+上合、一带一路，能源、华为，中国银行，中国铁建，当我们把这些碎片拼凑在一起，能看到中共通过蓝金黄手段控制能源，试图控制世界的野心。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [厦门进入“准封城”状态，中共官媒慌忙辟谣意欲何为？](http://cxnews.cnnb.com.cn/system/2021/09/20/012269413.shtml)
-2. [厦门进入“准封城”状态，中共官媒慌忙辟谣意欲何为？](https://news.sina.com.cn/minsheng/2021-09-20/doc-iktzscyx5262037.shtml)
-3. [厦门进入“准封城”状态，中共官媒慌忙辟谣意欲何为？](https://gettr.com/post/pbnkbx13fa)
+1. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://eng.sectsco.org/about_sco/)
+2. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.163.com/dy/article/GK9MB08V05528X6N.html)
+3. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.china.com.cn/opinion2020/2021-09/19/content_77762917.shtml)
+4. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.sohu.com/a/417583730_353978)
+5. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.bbc.com/zhongwen/simp/world-40155902)
+6. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.xinhuanet.com/world/2021-01/06/c_1126949889.htm)
+7. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.fmprc.gov.cn/web/gjhdq_676201/gj_676203/yz_676205/1206_676596/1206x0_676598/)
+8. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](https://www.fmprc.gov.cn/web/gjhdq_676201/gj_676203/yz_676205/1206_676860/1206x0_676862/)
+9. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.mofcom.gov.cn/dl/gbdqzn/upload/kataer.pdf)
+10. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.chinaarabcf.org/chn/zagx/zaggfzyjzx/t1822530.htm)
+11. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://fec.mofcom.gov.cn/article/gbdqzn/)
+12. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://fec.mofcom.gov.cn/article/gbdqzn/)
+13. [上合组织授予卡塔尔，埃及，阿拉伯对话伙伴地位](http://www.chincold.org.cn/chincold/zt/dsb/zbdw/webinfo/2009/08/1281417027298159.htm)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar.png)
 
-终审编辑：Q大哥
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
+
 
 0

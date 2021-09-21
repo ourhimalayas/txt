@@ -2,64 +2,59 @@
 ---
 
 
-## 维州政府关闭建筑行业，工人抗议愈发升温
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1545144/)
+## 恒大一家爆雷 全球股市震荡 &#8211; 似乎看到全球经济萧条的来临
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1544882/)
 
-#### 编译报道：文泓
+栏目记者/责任编辑：文一
 
-#### 编辑/评论：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-24.png)
-图片来源：Rebel News
 
-**新闻导读：**
 
-近日，澳大利亚墨尔本的建筑工人上了本地热搜。自上周起，维多利亚州政府给建筑业下达疫苗护照最后通牒，要求9月23日前建筑工人至少接种一剂中共病毒疫苗，同时增加了限制条件，即工人不能跨地区工作，工地内茶水间关闭，因为跨地区和人群聚集容易传播病毒。上周，工人们作出了温和的反应——在街道上摆摊休憩，阻塞交通表示抗议。随即建筑业工会发布一份声明，拒绝政府出台的限制和疫苗护照。然而周一上午政府宣布维州建筑业关闭，突如其来的消息，终于点燃了工人们的怒火，随即他们聚集在工会总部门前讨个说法。事关本地30万人生计，关闭建筑业让工人们承受很大的经济损失。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
 
-当然，工会老板也没有给出合理的解释，愤怒的工人于是冲击工会总部大楼导致了小规模冲突。此间主流媒体千篇一律指责工人们是一群暴徒，砸坏工会总部大楼门窗，辱骂工会老板。今天翻译一篇观点较为中立的媒体报道，希望让人们多一个角度了解实情。澳大利亚墨尔本是全世界封锁时间最长的城市，今年起维州政府力推疫苗护照，中共病毒感染人数同步新高。此时此刻，墨尔本的建筑工人正在中央商务区发起第二次抗议。
 
-**译文：**
 
-周一上午根据维州首席卫生官布雷特·萨顿的建议，政府下令关闭建筑业。
+【零对冲】9月19日发文警告恒大违约在即，引发周一港股暴跌，期货全面下挫。恒大股价爆跌13%，将以历史低价收盘并面临清算和破产。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-7-1.jpg)
+其它同类股票均有不同程度下跌，如新世界发展和新公基地产均下跌超过8％，融创中国和长江资产暴跌超过7％，恒生房地产指数已下跌超过6％，是2020年以来的最大跌幅，创下2016年以来的最低水平。而包含更广的恒生指数在早盘也下跌了3.5%，至2020年11月以来的最低水平。
 
-同一天，至少有500名抗议者涌入位于墨尔本城市北部的伊丽莎白街的CFMEU工会总部。人群中大多数人没有戴口罩，穿上了工作服。有一些在周六里士满反封锁集会的抗议者也出现在现场。
+该文指出虽然恒大计划9月底前分别为其离岸债券支付两笔高额利息，如果利息支付计划不能兑现，周二即会出现技术性违约而被清算。据悉中国当局已经告诉主要贷款人不要指望还款，违约几乎不可避免。
 
-工会老板约翰·塞特卡说，这一决定是在政府威胁要关闭工作场所一个多星期后作出的。尽管塞特卡先生恳求工人们”请冷静下来”，但抗议者还是用许多脏话把他淹没了。
+彭博社的Mark Cranfield评论港股崩溃不能归咎于低流动性，因为 “周一恒生指数和H股指数的交易量远远高于10天的平均水平，而两者均下降了约4%。”
 
-对塞特卡先生的辱骂包括”你这个没种的家伙”，”丹-安德鲁斯的混蛋”。
+另据【路透社】9月20日报道：中国房地产集团恒大违约事件引发全球对经济外溢风险的担忧，世界股市周一全线下滑，美元走强。MSCI全球股票指数下跌2.09%，创下2020年10月以来最大单日跌幅。华尔街主要指数下跌超过2%，欧洲股市应声下滑。美国10年期国债收益率下降，黄金上涨，避险资产受到青睐。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture8.jpg)
+监管机构警告说，如果恒大债务不稳定，其3050亿美元的负债可能会引发中国金融系统的更大风险。经济敏感的行业，包括金融和能源，也受到巨大打击。泛欧STOXX 600指数下跌1.67%，矿业股下滑。
 
-政府和（建筑行业）相关方之间原定于晚上7点举行的行业参与电话会议在最后一刻被取消，而他们被告知关闭的消息。
+根据Refinitiv的数据，周一的大跌使世界股票市值从9月6日创下的97万亿美元的历史高点上累计损失了2.2万亿美元的价值。
 
-除了11个关键的基础设施项目和紧急维修外，墨尔本市的建筑业所有工地都将被关闭。
+美联储和其他央行将在本周晚些时候举行会议。美元指数上涨0.061%，欧元持平于1.1725美元。离岸人民币相对于美国货币走弱，达到近一个月来的最低水平。
 
-这个行业雇用了30万名维多利亚人，并且迄今为止一直受到政府的保护，没有被关闭，因为政府已经关闭了许多其他关键行业。
+美国原油下跌2.18%至每桶70.40美元，布伦特原油报73.99美元，当日下跌1.79%。
 
-周一的冲突发生在政府上周四宣布的建筑工人将不再被允许跨越地区工作——墨尔本市区和维多利亚州地区之间工作，理由是病例从墨尔本蔓延到包括其它地区。
+现货黄金上涨0.4%至每盎司1,761.29美元，从一个月的低点有所回升。
 
-而且，从周五开始，所有建筑工地都被要求关闭茶水间，并引入工人的轮班泡制和疫情管理人。所有工人都被要求在本周五（9月23日）午夜前接受或预订至少一剂疫苗。除非他们有医疗豁免。
+同日，高盛的中国分析员许山发文指出即使没有恒大事件，房产交易已在7月大幅下降，并在8月进一步减弱。 同时，市场对“恒大事件”的担忧持续升温，其他开发商也出现融资困难迹象。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture9.jpg)
+高盛还估计了即将到来的房地产市场崩溃对中国经济增长的潜在影响，结论以糟糕和可怕来形容。该行预测GDP受到的打击从略高于1%到高达4.0%不等。 这样的结果对中国乃至世界都是毁灭性的。
 
-维多利亚州中共病毒疫情主管杰伦·魏玛（Jeroen Weimar）说，建筑工地占了该州当时3507个活跃案例中的456个，即13%，与高度流动的建筑部门工人有关。上周初政府就警告说，该行业可能会被关闭。
-
-在工会的联合声明中，建筑工会联盟说，他们已经”向政府最高层强烈表达了以下观点，疫苗接种要求和取消茶水间等便利设施将是”不可行的，而且过于严厉”。
-
-我们已经指出，这些匆忙写成的限制将导致行业内的不满、愤怒和分裂，我们将继续反对这些限制。我们将继续反对它们，”工会说。
-
-工会表示，他们”从未支持过强制性疫苗接种”。
-
-首席卫生官的这一强硬规定，在没有任何通知的情况下实施。在没有通知的情况下实施的这一强硬规定，只会促使许多人走向反疫苗运动。
+（本文仅代表作者观点）
 
 参考链接：
+1. [恒大一家爆雷 全球股市震荡 – 似乎看到全球经济萧条的来临](https://www.zerohedge.com/markets/hong-kong-stocks-crash-futures-slide-markets-finally-freak-out-about-evergrande-contagion)
+2. [恒大一家爆雷 全球股市震荡 – 似乎看到全球经济萧条的来临](https://www.reuters.com/business/global-markets-wrapup-7-2021-09-20/)
 
-1、[Subscribe to The Australian | Newspaper home delivery, website, iPad, iPhone & Android apps](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a_GGL&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fnation%2Fcfmeu-members-turn-on-john-setka-at-jab-protest%2Fnews-story%2F5a3b0b89825ec8803ff431cb6cfd7e42&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=appen)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar.png)
 
-2、[Regional Construction Workers Dodge A Bullet – South Gippsland Sentinel-Times (sgst.com.au)](https://sgst.com.au/2021/09/regional-construction-workers-dodge-a-bullet/)
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
-发布：
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-258.png)
 
 0
