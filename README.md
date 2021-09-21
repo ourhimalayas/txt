@@ -151,36 +151,36 @@
 ### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [中秋随想](/content/gnews/47/README.md)
+### [幻想与中共对话-评欧盟对华战略报告（二）](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [中秋随想](/content/gnews/48/README.md)
  ` MOShongkong`
 
-### [中国共产党黄历的九月二十四日](/content/gnews/48/README.md)
+### [中国共产党黄历的九月二十四日](/content/gnews/49/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [未接种疫苗并不危险，接种了疫苗的人是危险的](/content/gnews/49/README.md)
+### [未接种疫苗并不危险，接种了疫苗的人是危险的](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [恒大已无力支付下周到期利息](/content/gnews/50/README.md)
+### [恒大已无力支付下周到期利息](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [每一美元恒大债券的交易价格现在仅为20美分](/content/gnews/51/README.md)
+### [每一美元恒大债券的交易价格现在仅为20美分](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共节前禁台水果](/content/gnews/52/README.md)
+### [中共节前禁台水果](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [暗通款曲投票秀](/content/gnews/53/README.md)
+### [暗通款曲投票秀](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国军方强制接种疫苗，未接种者将被解雇且失去福利](/content/gnews/54/README.md)
+### [美国军方强制接种疫苗，未接种者将被解雇且失去福利](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [今夜举杯为明天](/content/gnews/55/README.md)
+### [今夜举杯为明天](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本三连休反映出的疫苗歧视等问题](/content/gnews/56/README.md)
+### [日本三连休反映出的疫苗歧视等问题](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [世卫敦促每个人接种疫苗，却拒绝分享员工的疫苗数据](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
