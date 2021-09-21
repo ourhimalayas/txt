@@ -2,36 +2,11 @@
 ---
 
 
-## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
+## 重症监护医生用伊维菌素治疗中共病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545715/)
 
-根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
+9/18/2021 伊维菌素是一种多用途的神奇药物，具有意想不到的抗菌、抗病毒和抗癌潜力。世界各地数百名经验丰富的重症监护医生开了伊维菌素治疗中共病毒。而将人类处方的诺贝尔奖药物描述为马匹使用的驱虫剂就是谎言。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
-
-[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
-
-
-
-+21
++1

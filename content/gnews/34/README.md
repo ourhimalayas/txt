@@ -2,24 +2,26 @@
 ---
 
 
-## 日本对中共国的挑衅表示“强烈关切”并敦促欧洲领导人采取行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1546018/)
+## 中共国主要房地产开发商面临违约，将引发金融危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1545995/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-4.jpg)网络图片
+![](https://assets.gnews.org/wp-content/uploads/2021/09/163211741574226_P13937564.jpg)网络图片
 
-在台湾和南中国海的紧张局势日益加剧之际，日本防卫大臣敦促欧洲国家联合起来，并大声疾呼谴责中共国的侵略行为。
+**摘要：**北京 — 中共国主要房地产开发商恒大集团正面临破产，其负债膨胀至1.97 万亿元人民币（合 3,046 亿美元），引发了人们对其可能造成另一场类似于2008 年的金融危机的担忧。
 
-岸信夫告诉卫报，中国军队变得更加强大，并且“试图利用其力量单方面改变东中国海和南海的现状”。这位国防部长警告说，中共国在政治和经济上变得越来越强大，这引起了东京的“强烈担忧”。
+知情人士称，如果在中国拥有一家知名足球俱乐部的恒大发生违约，其分包公司将陷入财务困境，可能引发中共国当地银行的业务倒闭。
 
-岸信夫告诉卫报“中国正在从数量和质量两方面加强其军事力量，并迅速提高其作战能力。”岸信夫的上述言论是在人们越来越担心中共国对台湾和有争议的南中国海的意图之际发表的。
+随着对美国证券公司雷曼兄弟(Lehman Brothers Holdings Inc.)倒闭导致的2008年全球金融危机可能卷土重来的担忧日益加剧，全球大量投资者倾向于减持股票。
 
-台湾是一个民主国家，但中共国声称对该岛拥有主权，并表示计划将其与大陆强行合并。此前，日本防卫大臣曾表示，台湾的安全与日本直接相关，并强调日本在台湾发生冲突时进行干预的重要性。
+消息人士称，共产党领导的政府担心中国公民日益不满会导致社会混乱，一直在努力消除对恒大可能破产的担忧。
 
-澳大利亚国防部长彼得·达顿 (Peter Dutton) 说：“共产党的中国发言人非常清楚他们在台湾问题上的意图。”
+《环球时报》援引一位银行家的话说：“恒大仍然拥有足以覆盖其负债的庞大资产，因此除了帮助金融机构展期部分贷款外，现阶段政府无需干预。”
 
-同样，美国也很清楚中共国对台湾的意图。
+据执政的共产党小报报道，北京的银行家说：“恒大需要自己解决债务问题，即使出售一些资产可能会遭受一些损失。”
 
-**新闻链接：**[Japan has ‘strong concerns’ over Chinese aggressions – European leaders urged to act](https://www.express.co.uk/news/world/1494123/japan-european-leaders-south-china-sea-tensions-Nobuo-Kishi-taiwan-aukus-ont?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)
+**简评：**恒大的地位如中共国的雷曼兄弟，如果恒大倒闭，它的债务违约不仅将引发国内关联公司的财务危机和民众讨债的抗议活动，也会导致全球大量投资者对中共上市公司失去信心，减持股票，那么中共公司接下来将掀起大面积债务违约潮，很有可能重演2008年的全球金融危机。
+
+原文链接：[Major Chinese property developer faces default, fans financial woes](https://english.kyodonews.net/news/2021/09/42ca9874c0d2-major-chinese-property-developer-faces-default-fans-financial-woes.html)
 
 * * *
 
