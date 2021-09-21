@@ -2,57 +2,62 @@
 ---
 
 
-## 27个州正与拜登的疫苗授权作斗争
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1545573/)
+## 美国一少女被误打Covid疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1545593/)
 
 - **编译：Jenny Ball**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip94.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip95.png)
 
-当拜登总统发布不明智的行政命令，强制要求全国大部分劳动力接种疫苗时，许多地方的直接反应是震惊和愤怒。甚至那些还相信 COVID-19 疫苗优点的人，也开始表示担心此举会严重威胁美国人的健康自由。现在，美国超过一半的州正在反抗。
+几天前，当萨凡娜·考达德（Savannah Courtad） 走进沃尔格林当地的医院，她只是想要打一针通用的流感疫苗。
 
-拜登行政命令规定，拥有超过 100 名员工的私营企业，必须要求其员工接种两剂 COVID-19 疫苗，或接受每周测试，若不遵守规定，将导致每次违规罚款至少 14,000 美元。此举影响了超过 8000 万私人雇员，以及 1700 万接受医疗保险和医疗补助资金的医疗机构工人，**使受影响的美国人总数达到近**** 1 ****亿。**
+萨凡娜提早到达，并填写了必要的文件后，一名护士走近她，问她想要打哪个手臂。
 
-现在，27 名共和党州长和总检察长发誓，要与该命令作斗争。这包括来自佛罗里达州、德克萨斯州、南卡罗来纳州、佐治亚州、亚利桑那州、新罕布什尔州、蒙大拿州、俄亥俄州、犹他州、南达科他州、俄克拉荷马州、田纳西州、怀俄明州、北达科他州、爱达荷州、堪萨斯州、阿拉斯加州、密西西比州、密苏里州、西弗吉尼亚州、印第安纳州的州长 、阿拉巴马州、爱荷华州、内布拉斯加州和阿肯色州。此外，拥有民主党州长的路易斯安那州和肯塔基州的共和党总检察长也加入了这场斗争。
+之后，这位护士还小小的评论一下，但立即告诉萨凡娜出了大错误。
 
-德克萨斯州已经向拜登政府提起了几起诉讼，州长格雷格·阿博特（Greg Abbott）表示，他们将努力阻止“权力攫取”，而德克萨斯州总检察长肯·帕克斯顿（Ken Paxton）宣布，该州将“很快”提起诉讼。
+“她给我打了一针，当我离开时告诉我，要在 21 天内回来注射第二剂，”萨凡娜周五在[Instagram帖子](https://www.instagram.com/p/CT7eN-MJM2K/)中写道 。
 
-与此同时，经常批评拜登的佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）说：“当像拜登这样的总统对美国人民发布违宪法令时，我们有责任捍卫宪法并进行反击，我们正在佛罗里达州这样做。”
+萨凡娜没有接种流感疫苗，而是被打了[COVID-19疫苗](https://www.westernjournal.com/moderna-developing-single-dose-vaccine-combines-covid-19-flu-boosters/?ff_source=Email&amp;ff_medium=CTBreaking&amp;ff_campaign=breaking&amp;ff_content=conservative-tribune)。
 
-他补充说：“这位总统过去曾承认，他无权将这一点强加给任何人，而这一命令可能会导致数百万美国人失去工作。”
+“我迅速冲到前台，”萨凡娜写道。“前台的那位女士向我保证说，我肯定打了流感疫苗，可能只是拿错了卡片。 她与给我打针的护士交谈，她确认卡没有错。”
 
-德桑蒂斯州长也直言不讳地反对疫苗护照和口罩规定。
+“就是给了我 COVID-19 疫苗。”
 
-佐治亚州州长布赖恩·坎普(Brian Kemp)甚至暗示，可能会因这一骇人听闻的举动[引发起义](https://www.ajc.com/politics/politics-blog/happy-warriors-georgia-republicans-ready-to-fight-bidens-vaccine-mandate/VMQCQTDQLRGU5ILGQYZVHM7UPE/)，他说：“人们会反抗。政府只有在人们能承受的范围内才能发挥作用。 如果你试图做更多的事情，就会发生起义或兵变。”
+这不是什么一些疯狂的反疫苗者的故事——萨凡娜说，她在沃尔格林接种流感疫苗。 像许多美国人一样，她对接受 COVID-19 疫苗感到不舒服。
 
-**拜登之前声称他不会强加于人，所以授权是一个不为人知的“变通办法”**
+现在显然违背她的意愿给她打了疫苗，工作人员只是道个歉而已。
 
-这个授权不仅在很大程度上侵犯了美国人的个人自由，它还给在大流行之后已经在努力重新站起来，并正在努力应对全国劳动力短缺的小企业造成了困难——也不考虑接种疫苗毫无意义，因为疫苗不提供消毒免疫力，接种后的人仍然可以将病毒传染给他人。
+“他们接着说‘对不起，我们太忙了’，‘这样的事情有时会发生’，并不断重复‘人人都会犯错’，”萨凡娜写道。
 
-在拜登之前声称他不会强加一项授权之后，此举在很大程度上被视为一种在全国范围内建立授权的**卑鄙方式**——拜登自己的幕僚长罗恩·克莱恩（Ron Klain）似乎在推特上承认了这一点，他在推特上[转发了](https://nypost.com/2021/09/10/ronald-klain-retweets-vaccine-mandate-ultimate-work-around/)MSNBC 主播斯蒂芬妮·鲁勒（ Stephanie Ruhle ）一条帖子：“职业安全与健康管理局（OSHA ）将这项疫苗任务作为紧急工作场所安全规则，是联邦政府要求接种疫苗的最终解法。”
+“我很感激他们至少道歉了，但这不是一个‘小’错误的问题！” “护士不能到处随便注射错误的疫苗。我从未同意将COVID-19疫苗注射到我的体内。 不管一个人对这种疫苗的立场如何，我都希望我们都能同意，**将某些东西注射到你的身体里应该是你的选择。”**
 
-参议员泰德·克鲁兹（Ted Cruz）称克莱的转推是“愚蠢的”，并说：“他大声说出了隐蔽的部分。拜登政府知道这可能是非法的（就像暂停驱逐也是），但他们不在乎。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-21T101108.887.png)
 
-拜登本人已经[预料到会遭到强烈反对](https://joebiden.news/)，他在宣布授权时表示：“如果这些州长不帮助我们战胜大流行，我将利用我作为总统的权力，让他们摆脱困境。”
+萨凡娜的故事引出了一个问题：**有多少美国人陷入了同样的遭遇？**
 
-本文来源包括：
+有多少人因个人原因不愿接种疫苗，却未经他们同意就给他们接种了疫苗？
 
-[TheCenterSquare.com](https://www.thecentersquare.com/national/more-than-half-of-u-s-states-vow-to-fight-biden-s-vaccine-mandate/article_a8f480ec-14c0-11ec-bdd5-f3ed0291c50f.html)
+对于任何不想要 COVID 疫苗的人来说，这很可能是最糟糕的噩梦。如果某人因医疗或宗教原因[无法接受疫苗](https://www.westernjournal.com/cnn-expert-faith-can-kill-biden-admin-needs-guidelines-religious-vaccine-exemptions/?ff_source=Email&amp;ff_medium=CTBreaking&amp;ff_campaign=breaking&amp;ff_content=conservative-tribune)怎么办？
 
-[AJC.com](https://www.ajc.com/politics/politics-blog/happy-warriors-georgia-republicans-ready-to-fight-bidens-vaccine-mandate/VMQCQTDQLRGU5ILGQYZVHM7UPE/)
+更重要的是：如果强制接种疫苗的左派得逞，萨凡娜的故事将不会是一个不寻常的故事。
 
-[NYPost.com](https://nypost.com/2021/09/10/ronald-klain-retweets-vaccine-mandate-ultimate-work-around/)
+事实上，如果左派得逞，无论喜欢与否，每个人都将接种 COVID-19 疫苗。而且那时，与萨凡娜的故事不同的是，那将不会是个意外了。
 
 **评论：**
 
-**中共所有的邪恶都是打着伟光正的名义，而美国政府也是用“我将利用我作为总统的权力，让他们摆脱困境。”在民主法制的灯塔国，“拜登政府知道这可能是非法的，但他们不在乎。”他们不在乎，是因为人们看不到真相，还没有意识到政府不仅在伤害他们的健康，还在剥夺他们的基本权利－自由！然而已经有一多半的州醒悟过来，政府还能无视法律肆意妄为吗？**
+**文章令人深思的地方都令人细思极恐：**
 
-**文贵先生今天从山里开会空隙直播将近半个钟头，让我们看到美丽的大自然的同时，文贵先生说道：世界上最邪恶疫苗的主要推动人，也参加了会议，他承认他自己没有打疫苗，他的家人也没有打疫苗。我们想一想：为人类创造“疫苗”推动“疫苗”的人自己不打，为什么？**
+- **曾经医疗事故都是人命关天的大事，去打流感疫苗的少女填写了表格，而医院的前台工作人员只是轻描淡写地，不加确认地就想打发人走？**
+- **如果不是媒体掩盖，不是政府违宪，更多的人们知道疫苗的可怕后果，那么，在不知情的情况下，把毒药注入人的身体，就一句“对不起”？**
+- **这真的是“人人都会犯错**’**的疏忽“小”错吗？**
+- **我的身体我做主，这是左派在反对堕胎时强调的，那么打病毒疫苗就不再是宪法保护的“我的身体我做主”啦？**
+- **如果左派得逞，无论喜欢与否，每个人都将接种 COVID-19 疫苗，那就不会是意外了。**
+
 
 （文章仅代表作者观点，与GNEWS无关）
 
-**素材链接：[newstarget.com](https://www.newstarget.com/2021-09-19-27-states-fighting-biden-vaccine-mandate.html)**
+**素材链接：[westernjournal.com](https://www.westernjournal.com/teen-says-went-walgreens-flu-shot-walked-sick-surprise/?utm_source=Email&amp;utm_medium=CTBreaking&amp;utm_campaign=breaking&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)**
 
 * * *
 
@@ -62,6 +67,4 @@
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
 
-
-
-0
++1

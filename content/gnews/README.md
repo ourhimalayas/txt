@@ -37,14 +37,14 @@
 ### [文·贵天成——文贵先生谈“恒大许家印”（二）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [27个州正与拜登的疫苗授权作斗争](/content/gnews/9/README.md)
+### [美国一少女被误打Covid疫苗](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [CHD诉讼修正动议：美军详述疫苗授权队军队的影响](/content/gnews/10/README.md)
- ` wenwu`
+### [27个州正与拜登的疫苗授权作斗争](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [CHD诉讼修正动议：美军详述疫苗授权队军队的影响](/content/gnews/11/README.md)
+ ` wenwu`
 
 ### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
  ` wenwu`
@@ -103,40 +103,40 @@
 ### [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/31/README.md)
+### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/32/README.md)
  ` wenwu`
 
-### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/32/README.md)
+### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/33/README.md)
+### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/34/README.md)
+### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [周一香港股市，恒大系股票暴跌](/content/gnews/35/README.md)
+### [周一香港股市，恒大系股票暴跌](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/36/README.md)
+### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新的审查规则生效脸书删除德国的反封锁团体社交账号](/content/gnews/37/README.md)
+### [新的审查规则生效脸书删除德国的反封锁团体社交账号](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/38/README.md)
+### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纳瓦罗祝班农父亲生日快乐并致敬班农一家](/content/gnews/39/README.md)
+### [纳瓦罗祝班农父亲生日快乐并致敬班农一家](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗博士介绍新书《在川普时代》](/content/gnews/40/README.md)
+### [纳瓦罗博士介绍新书《在川普时代》](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：郭文贵在全世界点燃灭共的燎原之火（粤语配音）](/content/gnews/41/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/42/README.md)
+### [班农：郭文贵在全世界点燃灭共的燎原之火（粤语配音）](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [东京股市警惕恒大风险开盘大跌](/content/gnews/43/README.md)
