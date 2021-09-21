@@ -2,30 +2,44 @@
 ---
 
 
-## 福奇资助武汉病毒研究所60个项目，全部与中共军方有关联
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1545356/)
+## 有声| 香港少女陈彦霖逝世两周年祭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1545550/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/zz1.jpg)图片来源：视频截图
-9月19日，新闻网站《门户专家》(TheGatewayPundit)作者乔·霍夫特（*Joe Hoft*）撰文，指2020年首次注意到武汉病毒研究所，并在4月注意到该研究所用活体动物做实验。
+配音：香草山美食部-玫瑰园
 
-作者说，中共在病毒学方面的所有工作都与中共国军方有关，因此中共国在这一领域的任何工作都是与中共国军方合作的。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-文章说，澳大利亚知名记者、《天空新闻台》(SkyNews)主播莎莉·马克森（*Sharri Markson*）即将出版一本书，指这是她研究安东尼·福奇（Anthony Fauci）努力的成果，几个小时前，《天空新闻台》播报了如下内容：
 
-（作者）我发现他（福奇）的机构在武汉病毒学研究所资助了60个项目。并且，他在2012年撰写了一篇论文，论文论证了对冠状病毒进行基因操作以便使其变得更加危险和更具传播性，指这种（病毒）功能性增强研究具有大流行病的风险。同时，福奇资助了（此类）研究，他的机构与中共国军方一起资助了武汉病毒研究所的冠状病毒功能增强性研究。
 
-**新闻来源**
 
-[BREAKING: Dr. Fauci Funded 60 Projects at the Wuhan Institute of Virology and All Were in Conjunction with the Chinese Military](https://www.thegatewaypundit.com/2021/09/breaking-dr-fauci-funded-60-projects-wuhan-institute-virology-conjunction-chinese-military/)
 
-发布：七彩光
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+2019年9月19日，香港“反送中”运动的参与者，年仅15岁的香港少女陈彦霖从地铁站失踪。三天后，陈彦霖被发现赤裸浮尸于海面。陈彦霖失踪前的最后几天，曾多次向朋友描述自己被跟踪，被骚扰。陈彦霖的死亡，震惊海内外，香港民众自发组织悼念，并要求彻查真相。但是，时至今日，官方对于陈彦霖的死因不置可否，香港警方还多次破坏民间对陈彦霖的悼念活动。陈彦霖是香港的勇士，我们不会忘记。
+
+2019年，为了镇压香港“反送中”运动，中共公然撕毁中英联合声明和香港基本法，从广州，深圳等地派遣大量的武警前往香港，换上香港警服，在香港街头横行霸道，充当黑警。中共黑警在香港和在内地一样，对待老百姓手段残忍，心肠毒辣，行为令人发指。正直善良的陈彦霖，看不惯黑警随意伤害百姓，于是参与到游行示威活动中。不幸的是，她成了中共黑警刀下的受害者。除了陈彦霖之外，还有非常多的香港人被虐待，被戕害，死于非命。
+
+
+
+**文字版原文：[香港少女陈彦霖逝世两周年祭](https://gnews.org/zh-hans/1543818/)**
+
+
+
+*音频处理：喜山必胜Maverick
+发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 0

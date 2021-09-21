@@ -2,34 +2,11 @@
 ---
 
 
-## 中秋话月
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1545768/)
+## 迈克·蓬佩奥：美国必须每天、始终同香港人站在一起
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545717/)
 
-#### 撰稿：东京樱花团/待命（文晓）
+9/19/2021 迈克·蓬佩奥：美国必须强有力地同香港人站在一起，正如我们同台湾人肩并肩一样。《周日早间期货》节目，蓬佩奥接受玛丽亚采访，谈安东尼·布林肯关于香港发推而后删除、修改、重发，但却去掉了涉及美国支持香港的关键句子。
 
-- **今日中秋**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/erwe.jpg)
-“中秋快乐”难出口
-
-多少家有人离去
-
-多少子女望乡愁
-
-- **残月**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2534.jpg)
-乱世中秋月半残
-
-万家赏月捧照片
-
-把酒邀月山海誓
-
-灭贼除恶月再圆
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 0
