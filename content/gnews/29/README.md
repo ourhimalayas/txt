@@ -2,19 +2,56 @@
 ---
 
 
-## 秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1544611/)
+## 接种疫苗人群对他人存在危险，并需在冬季自我隔离以防重症
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545286/)
 
-撰稿：西枫westca
+栏目记者/责任编辑：文一
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-10.jpg)图片来源：ANI
-据雅虎新闻近日报道，9月18日在日本东京举行了抗议北京冬奥会的游行，游行参与者举着呼吁抵制2022年北京冬季奥运会的横幅，要求国际社会关注中共在少数民族地区侵犯人权的行为。
 
-本次游行是由“抵制没有人权的北京冬奥会执行委员会“举办。来自维吾尔族、藏族、蒙古族、香港和中国的持不同政见者在日本活动人士的支持下参加了此次游行。他们声称世界其他国家需要警惕中共在少数民族地区和香港侵犯人权的行为，并指出世界将日本和中国放在同一水平上，对那些坚持透明、民主、人权和开放价值观的国家是不公平的。日本外交评论家加濑英明说，通过抵制北京冬奥会会唤醒中国民众对中共政权的警醒。
 
-今年起始，国际间持续有声音呼吁抵制北京冬奥会，8月4日郭文贵先生代表新中国联邦向国际奥委会提出要求抵制北京冬奥会。继欧盟在7月以压倒性多数通过提案，呼吁各成员国领导人拒绝出席北京冬奥会，英国也在议会下院通过动议，呼吁政府抵制北京冬奥会。人权组织正在要求世界上最大的广播公司，如NBC网络，取消报道北京冬奥会的计划。 虽然单单抵制冬奥会并不能推翻中共的独裁统治，但这会是一系列重要制裁措施的一部分，为我们的灭共大业添加一根稻草。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-**新闻来源：**[Boycott 2022 Beijing Olympics: Uyghurs, dissidents urge during anti-China protest in Tokyo (yahoo.com)](https://sg.news.yahoo.com/boycott-2022-beijing-olympics-uyghurs-091410947.html)
+
+
+
+
+据《加拿大时报》报道：世界卫生组织欧洲免疫专家咨询小组前副主席，克里斯蒂安-佩罗内教授近日警告说，所有接种过疫苗的人必须在冬季进行隔离，否则有可能患上严重疾病。
+
+佩罗内专门研究热带病学和新出现的传染病。他曾是公共卫生高级委员会传染病专业委员会的主席。
+
+这位传染病专家确认了以色列和英国疫情迅速恶化的局势，并表示。“接种疫苗的人应该被隔离，与社会隔绝”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-10.jpg)
+他接着说道，“未接种疫苗的人并不危险；接种疫苗的人对其他人来说是危险的。以色列已经证明了这一点–我和以色列的许多医生都有联系-——他们正面临着巨大问题，医院收治的重症病人都是接种疫苗的，英国也是同样情况。疫苗接种施行较多的地方就会出现问题。”
+
+以色列医生科比·哈维夫 （Kobi Haviv）也告诉媒体说：“（以色列）95%的重症患者都接种了疫苗。完全接种疫苗的人占住院病人的85-90%之多。”
+
+参考链接：[Immunization Expert: ‘Unvazzinated People Are Not Dangerous; Vazzinated People Are Dangerous for Others’](https://canadiantimes.live/health/immunization-expert-unvazzinated-people-are-not-dangerous-vazzinated-people-are-dangerous-for-others/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
 
 0

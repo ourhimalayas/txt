@@ -2,36 +2,87 @@
 ---
 
 
-## 柳叶刀通讯 ： 呼吁就COVID-19的起源进行客观公开透明的科学辩论
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1545204/)
+## 续：再列举中共病毒“疫苗”严重伤害病例32例
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1545287/)
 
-据《柳叶刀》作者雅克·范·海尔登（Jacques van Helden ）等人2021 年 9 月 17 日的文章
-![](https://assets.gnews.org/wp-content/uploads/2021/09/lyd_adobespark.png)
-图片来自网络
-2021 年 7 月 5 日，《柳叶刀》发表了一篇名为“科学对确定 SARS-CoV-2 如何传染给人至关重要，而非猜测”的通讯文章。1 这封信重述了相同作者们2早前（于 2020 年 2 月发表）一封信的论点：导致COVID-19大流行的新冠病毒源自野生动物的假设获得了压倒性的支持。他们将任何其他观点都归于阴谋论并声明他们“站在一起强烈谴责暗示 COVID-19 不是自然起源的阴谋论”。该声明压制了对病毒来源的更广泛的科学辩论，包括在科学记者间。3
+**撰稿**：柯亭
 
-在2021年的通讯中，他们虽然没有重复主张科学家们对病毒来源的其他假说持开放态度是阴谋论，但却指出：“我们认为，来自科学文献中新的、可信的、经同行评审的证据提供最有力的线索，说明病毒是自然进化的；而实验室泄漏说仍然没有来自同行评审期刊的直接科学证据。” 这个观点实际上颠倒了黑白。我们将在下面展示：没有直接证据支持 SARS-CoV-2 的自然起源，而实验室事故的说法却是有道理的。
+**校对**：卡拉马佐夫姐姐
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210921-续：再列举中共病毒疫苗严重伤害病例32例.jpg)
+图片来源：路透社
 
-到目前为止，还没有科学验证的证据可以直接支持自然起源。在 Calisher 及其同事的两篇通讯所引用的参考文献中，除一篇外，所有参考文献都简单地表明 1、 2 SARS-CoV-2 在系统发育上与其他 β 冠状病毒相关。 **COVID-19 ****的病原体起源于一种天然病毒这一事实已被广泛接受，但这并不能解释它是如何感染人类的**。 SARS-CoV-2 的近端起源问题——即传播给人类之前的最终病毒和宿主——仅在一篇被高度引用的支持自然起源假说4的观点文章中明确提到，但它存在逻辑谬误：5 它反对实验室工程与人畜共患病这两个假设，错误地暗示没有其他可能的起源。然后，文章提供了反对实验室工程假设的论据，这些评论不是结论性的。原因如下：首先，它假设人类 ACE2 受体结合部位的优化需要事先了解适应性突变，但实际上在细胞培养或动物模型中的选择也可以产生同样的效果。其次，没有逆向工程的痕迹并不排除基因组编辑，这是通过所谓的无缝技术进行的。6, 7最后，没有已知的骨架并不是一个证据，因为研究人员可以在发布完整基因组之前对病毒进行数年的研究（已知的离新冠病毒最近的RaTG13 就是这种情况，该病毒收集于2013年， 公布在2020年）。8 基于这些间接的和有疑问的论述，作者得出了支持自然近端起源的结论。在文章的最后部分，他们简要地提到了传代过程中的选择（即，测试病毒感染细胞培养物或模型动物能力的实验），并承认有记录的 SARS-CoV 实验室逃逸案例，但他们否认了SARS-CoV-2也有这种情况，理由是SARS-CoV-2和穿山甲的受体结合域之间的高度相似性为特定的突变提供了更合理的解释。然而，穿山甲的假说后来被放弃了，9 , 10 , 11 , 12 所以整个推理应该被重新评估。
+继发布14例中共病毒“疫苗”严重伤害事件之后，笔者在gofundme.com平台上继续搜索，发现了更多的因“疫苗”毒针严重伤害的病例。以下继续列举32例，顺着[上次列举报道](https://gnews.org/zh-hans/1537848/)的病例编号，其中所示日期为该筹款网页建立的日期。
 
-尽管大量证据支持其他疫情的自然起源（例如，Nipah、MERS 和 2002-04 年的SARS疫情），但是没有直接证据表明SARS-CoV-2是自然起源的。经过 19个月的调查，仍然没有找到 SARS-CoV-2 的近端祖先。既没有确定从蝙蝠到人类的宿主途径，也没有确定从云南（与 SARS-CoV-2 最密切相关的病毒采样的地方）到武汉（大流行出现的地方）的地理路线。从中国野生动物保护区和动物养殖场采集的 8万多个样本均呈阴性。此外，国际研究病不能去事发地，获得样本或者原始数据。尽管世卫组织-中国联合研究得出结论，实验室来源“极不可能”，13 世卫组织总干事谭德塞还是宣称，所有的假设都在讨论之中，包括实验室泄漏的假设。14
+[病例15](https://www.gofundme.com/f/so-trauma-took-a-jab-at-us?qid=2600701dca67faab207182b190c15c47)，7月22日，Rutanya，37岁，女。6月26日接种“疫苗”，7月13日感觉胸部发紧，7月14日胸部疼痛扩展到右肩部。到医院（San Juan Regional Medical Center）检查，诊断为心脏小血管血凝块引起的心脏病。
 
-新冠病毒来源于病毒研究是合理的。需要解决两个问题：病毒进化和引入人群。自 2020 年 7 月以来，多篇经过同行评审的科学论文讨论了新冠病毒来自病毒研究的可能性。 SARS-CoV-2 基因组序列的一些不寻常的特征表明，它们可能来自基因工程，15, 16这是一些病毒学实验室广泛使用的方法。或者，对人类的适应可能是由于在细胞培养物或实验室动物（包括人源化小鼠）20中连续传代期间无方向的实验室选择。5, 18, 19大流行之前的研究项目，使用了经过基因改造的小鼠来显示SARS-CoV-2（ACE2）进入人体的受体，以测试不同病毒株的传染性。21 实验室研究还包括更有针对性的方法，例如依赖嵌合病毒的功能增强实验来测试它们跨越物种障碍的潜力。 17, 22
+[病例16](https://www.gofundme.com/f/jmxbw-medical-emergency?qid=2600701dca67faab207182b190c15c47)，8月9日，Megan，女。接种“疫苗”后，原有疾病恶化，现被诊断为：II型糖尿病、贫血、脊柱侧弯、双侧骶髂关节炎、神经病变、胸椎退行性椎间盘、肝硬化等。
 
-与研究相关的污染可能源自在野外采集时与天然病毒的接触，从野外运输到实验室，对蝙蝠和蝙蝠病毒进行鉴定，或者来自在实验室中修改非天然病毒。有详尽的记录病原体从实验室逃逸的案例。 24，25，26，27对潜在大流行病原体的现场采集、现场调查和实验室研究，需要高度安全的防护和强大透明的安全文化。然而，对 SARS 相关冠状病毒的实验通常在生物安全 2 级进行，22、 28 这符合对感染非人类动物的病毒的安全保护推荐，但对可能通过选择或定向突变产生适应人类的病毒的实验是不合适的。
+[病例17](https://www.gofundme.com/f/xmyey-please-help-this-amazing-mother?qid=9d7f671eca0d290b921732699693541d)，8月15日，Melissa，女。数月前接种“疫苗”。最初症状是眼睛抽搐（eye twitch），后来扩展到鼻子、双侧脸颊和额头，出现血压升高、心率过速、头晕、偏头痛和面部麻木。去过几次医院，还没有明确病因诊断。
 
-无论是人畜共患病还是与研究有关的起源，都缺乏压倒性的证据：陪审团尚无定论。在现有科学文献的基础上，辅以我们自己对冠状病毒基因组和蛋白质的分析，5，15，16，18，19，30我们认为，目前没有令人信服的证据可以在自然起源（即仅通过与野生或养殖动物接触进化并传染给人类的病毒）和研究相关来源之间做出选择（可能发生在采样点、运输过程中或实验室内，可能涉及自然病毒、选择性病毒或基因工程病毒）。
+[病例18](https://www.gofundme.com/f/help-woo-with-medical-expenses?qid=9d7f671eca0d290b921732699693541d)，6月22日，Sam，男。前一周周四接种了第二针后，出现严重的背下部疼痛；3天后的周一出现不能行走。
 
-以证据为基础、独立且无偏见的评估需要与来自不同学科和国家的，没有利益冲突的高级专家进行国际磋商；任务将是建立不同的情景和相关的假设，然后提出方案、方法和所需的数据，以阐明 SARS-CoV-2 的起源问题。除了这个问题之外，重要的是继续就当前现场和实验室研究实践的风险-收益平衡进行辩论，包括功能增强实验，以及人类活动对动物传染事件的影响。
+[病例19](https://www.gofundme.com/f/jesus-severa-reaccion-despues-de-covid-vacuna?qid=9d7f671eca0d290b921732699693541d)，8月2日，Gregorio，男。接种“疫苗”24小时后就感觉不舒服。三天后去急诊室，诊断为胃肠炎（gastroenteritis）；第二天，病情加重，呼吸困难，再去急诊室，诊断为肺炎。
 
-科学期刊应该开设专栏，对所有假设进行深入分析。作为科学家，我们需要在理性的基础上评估所有假设，并根据事实和证据权衡其可能性，而不是对可能的政治影响进行猜测。与 Calisher 及其同事2在《柳叶刀》上发表的第一封信相反，我们认为科学家不应促进“团结”（“我们支持世卫组织总干事关于促进科学证据和团结，而不是错误信息和猜测的呼吁” ）。如上所示，与研究相关的假设不是错误信息和猜测。更重要的是，科学包含替代假设、相互矛盾的论点、验证、反驳和争论。背离这一原则，就有可能建立教条，背离科学的本质，更可能为阴谋论铺路。相反，科学界应该将这场辩论带到一个属于它的地方：科学期刊的专栏 。31,32
+[病例20](https://www.gofundme.com/f/the-gallagher-family-heart-bypass-x2?qid=9d7f671eca0d290b921732699693541d)，6月22日，Chris，男。接种“疫苗”后出现胸痛而住院治疗。
 
-雅克·范·海尔登（Jacques van Helden）、科林·D·巴特勒（Colin D Butler）、艾蒂安·德克罗利(Etienne Decroly)和何塞·哈洛伊(José Halloy)做出了同等贡献。他们撰写了手稿的第一个版本，整合了其他作者的修改，并管理与编辑的互动。所有其他作者都为手稿的撰写做出了贡献，并认可了最新版本。我们宣布没有相互竞争的利益。
+[病例21](https://www.gofundme.com/f/victoria-vs-cidp-please-help-with-her-recovery?qid=da8d552820268920ed050b5a54445e74)，9月18日，Victoria，高中学生，女。4月接种第一针，5月接种第二针。最初症状是双手双脚麻木、刺痛，后来不断加重直至入ICU治疗，被诊断为慢性炎症性脱髓鞘性多发性神经病（Chronic Inflammatory Demyelinating Polyneuropathy）。
 
-【本文仅代表作者个人观点，与Gnews无关】
+[病例22](https://www.gofundme.com/f/sypr3p-help-amy-get-the-medical-attention-she-needs?qid=da8d552820268920ed050b5a54445e74)，7月22日，Amy，女。接种“疫苗”后，出现严重反应，需要治疗。
 
-原文链接：[https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(21)02019-5/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2821%2902019-5/fulltext)
+[病例23](https://www.gofundme.com/f/for-samuel-mandujano-and-his-daughter-malia?qid=2e5b6dc57dc2d356e879126236bc5c10)，8月1日，Samuel，男。7月21日接种第一针，7月28日晚上10时突发心脏病紧急入医院，7月30日下午5时17分去世。
 
-翻译：烟波浩淼| 校对：V | 编辑&发布：V
+[病例24](https://www.gofundme.com/f/medical-bills-and-supporting-the-family?qid=2e5b6dc57dc2d356e879126236bc5c10)，7月2日，Sandra，女。3月打第一针，4月打第二针。6月2日因呼吸困难被救护车送急诊，之前有咳血。CAT（CT）扫描发现右肺部分塌陷、肝病早期病征、脊椎炎。
+
+[病例25](https://www.gofundme.com/f/help-cate-pay-medical-bills-move?qid=2e5b6dc57dc2d356e879126236bc5c10)，8月18日，Cate，男。接种“疫苗”后，发生周期性呕吐综合征（cyclical vomiting syndrome）。过去3个月里，多次去急诊室。
+
+[病例26](https://www.gofundme.com/f/help-with-coving-medical-expenses-and-stay?qid=2e5b6dc57dc2d356e879126236bc5c10)，7月16日，Mark，男。5月5日接种第二针，当天发生呕吐，第二天出现严重咳嗽。后来症状加重，检查发现双肺和右心室有血凝块，心脏功能只有10-15%。需要做心脏移植。
+
+[病例27](https://www.gofundme.com/f/v3s4zs-needing-help-with-medical-expenses?qid=2e5b6dc57dc2d356e879126236bc5c10)，7月15日，Korey。去年10-11月份，中共病毒检测阳性。决定接种“疫苗前”想过先检测一下是否还有抗体，但没有找到可以做抗体检测的地方；咨询医生得到的意见是可以接种（it would be okay to get the vaccine）。接种第二针后出现皮疹（rashes）。
+
+[病例28](https://www.gofundme.com/f/dads-medical-bills-rehab?qid=66218afaada2a065316dc784cae491ed)，8月14日，Mark，男。4月接种“疫苗”。7月23日凌晨，被发现躺在卧室地面手脚不能动；被送ICU，诊断为格林巴雷综合征（Guillain Barre Syndrome）。3周后，完全失去呼吸功能，施行了气管切开术（tracheotomy）。
+
+[病例29](https://www.gofundme.com/f/even-the-purest-of-hearts-may-become-weak?qid=66218afaada2a065316dc784cae491ed)，8月5日，Monica，34岁，女。伤害表现是心肌炎（myocarditis）。
+
+[病例30](https://www.gofundme.com/f/Help-Dan-Turn-Tragedy-Into-Triumph?qid=66218afaada2a065316dc784cae491ed)，7月5日，Dan，60岁，男。接种“疫苗”当天感觉不舒服，站立困难，被送往急诊室；经检查有I型糖尿病、酮症酸中毒（Ketoacidosis）、坏死性筋膜炎（Necrotizing Fasciitis）。
+
+[病例31](https://www.gofundme.com/f/clint-beardens-medical-assistance?qid=66218afaada2a065316dc784cae491ed)，8月4日，Clint，男。6月12日接种第二针（辉瑞），6月16日感觉有方向迷失，6月22日出现极度精神混乱（精神病）。多次就医，第一次意见认为是因7年前的西尼罗病毒（West Nile Virus）引发的早发性痴呆（Early Onset Dementia）；第二次意见认为与接种“疫苗”有关。
+
+[病例32](https://www.gofundme.com/f/gfee5-helping-a-healthcare-hero?qid=66218afaada2a065316dc784cae491ed)，7月29日，Judi，女。1月11日（周一）接种第二针，当周查出中共病毒阳性，1月19日确诊中共病毒肺炎。分别于1月30日和7月16日因心脏问题入院治疗。遭遇的症状包括：头部压力、视力模糊、头晕、近乎晕厥、气短、胸闷、心悸、心动过缓、心动过速、血压升高、恶心、胃病、脚和腿肿胀、注意力不集中、皮疹、睡眠困难、焦虑、抑郁。
+
+[病例33](https://www.gofundme.com/f/help-bryans-surviving-family-for-future?qid=66218afaada2a065316dc784cae491ed)，7月23日，Bryan，38岁，男。2020年12月接种“疫苗”，7月16日开始发烧102oF，第二天上午被发现躺在家中地板上、没有呼吸。911现场急救，未能挽回生命。
+
+[病例34](https://www.gofundme.com/f/assistance-with-dads-uncovered-medical-expense?qid=66218afaada2a065316dc784cae491ed)，9月1日，Tom，男。接种第一针5天后出现中共病毒感染样症状，8天后因血氧降至50%去看急诊，2天后确诊肺炎、用上了呼吸机，在周一晚上去世。
+
+[病例35](https://www.gofundme.com/f/michael-mick-dyer-medical-expenses?qid=66218afaada2a065316dc784cae491ed)，8月28日，Mick，男。接种第一针后出现严重反应，脑部血凝块致中风，然后有肺部感染。
+
+[病例36](https://www.gofundme.com/f/9s5e2-help-with-rent?qid=66218afaada2a065316dc784cae491ed)，7月2日，男。接种“疫苗”后出现心脏问题，有永久性健康风险。
+
+[病例37](https://www.gofundme.com/f/fiancs-medical-expenses-and-visa?qid=66218afaada2a065316dc784cae491ed)，6月25日，Dalia，女。接种“疫苗”后，脑部血凝块致中风。
+
+[病例38](https://www.gofundme.com/f/help-daves-medical-crisis?qid=5acb662b7bcd1f52e87465cc98eba9ca)，8月7日，男。3月份接种“疫苗”，伤害表现是双肺肺炎。
+
+[病例39](https://www.gofundme.com/f/help-lia-with-vaccinerelated-medical-expenses?qid=5acb662b7bcd1f52e87465cc98eba9ca)，8月9日，Lia，女。4月份接种“疫苗”，随即（Immediately upon receiving it）出现麻木、恶心和颤抖（numbness, nausea, and shakiness），送急诊治疗。后被诊断为格林巴雷综合征。
+
+[病例40](https://www.gofundme.com/f/help-mom-stay-with-daughter-in-hospital?qid=5acb662b7bcd1f52e87465cc98eba9ca)，9月18日，Aryanna，9年级学生，女。7月3日接种“疫苗”。接种第二针后出现副作用，发展为肾病综合征（Nephrotic Syndrome）。有水肿，不能行走。
+
+[病例41](https://www.gofundme.com/f/vaccine-injury-assistance?qid=5acb662b7bcd1f52e87465cc98eba9ca)，8月24日，Naja。4月15日接种“疫苗”，自4月25日起出现症状，包括：胸膜炎、耳鸣、发冷和腿刺痛、脑雾、现实障碍、神经痛和视觉问题。
+
+[病例42](https://www.gofundme.com/f/kris-road-to-recovery?qid=5acb662b7bcd1f52e87465cc98eba9ca)，7月6日，Kris，42岁，男。5月10日接种“疫苗”，5月20日因双侧上下肢体麻木入院治疗。几天后发生瘫痪，入ICU，依赖呼吸机。诊断为格林巴雷综合征。
+
+[病例43](https://www.gofundme.com/f/gary-robinson?qid=5acb662b7bcd1f52e87465cc98eba9ca)，8月13日，Gary，男。接种疫苗后的伤害包括：小血管白细胞碎裂性血管炎（Small Vessel Leukocytoclastic Vasculitis）、肺部血凝块、颈部淋巴结鳞状细胞癌（squamous cell carcinoma）。
+
+[病例44](https://www.gofundme.com/f/very-sick-after-taking-covid-vaccine?qid=281074b3f254c886384f8a018287648a)，9月19日，Danielle，女。3月份接种“疫苗”，4月份开始出现症状，随后越来越严重。4月的一天，她在与母亲谈话时，突然发生大口喘气（gasping for air）和心率过速，由911急救车送人医院。检查发现双肺大量血栓和不规则的心悸。药物治疗无明显效果。
+
+[病例45](https://www.gofundme.com/f/alexs-support-with-brain-cancer?qid=281074b3f254c886384f8a018287648a)，8月30日，Alex，7年级学生，男。8月份接种“疫苗”。8月20开始出现疲乏，晚上有呕吐；8月22日送急诊。后来，核磁共振（MRI）检查发现脑部肿瘤。
+
+[病例46](https://www.gofundme.com/f/steve-wenger-needs-our-help?qid=38eadde7b0dc060e1433e16bd9c9802e)，7月25日，Steve，男。大概2个月前，接种“疫苗”10天后，因双腿双脚麻木和刺痛看急诊；从此就没有离开医院。后来腰部以下全部瘫痪，双上肢部分瘫痪。诊断为慢性炎症性脱髓鞘性多发性神经病（Chronic Inflammatory Demyelinating Polyneuropathy），属于格林巴雷综合征。
+
+查看和抄录这些病例的过程中，心情非常沉重。在受此伤害之前，他们/她们（成年人）几乎都有自己的工作和生活。只因那一针或二针，一切都改变了。不能继续工作，不能继续追求梦想，不能继续享受生活，不能继续支付账单还贷款；甚至陷入家庭债务危机，变得无家可归，或者孩子无所托付，也连累到一家几代人。其中3例（病例23、33、34）已经辞世。他们选择到gofundme筹款和寻求帮助，也说明这些“疫苗”受害者难以找到为他们提供帮助的职能机构或政府部门。
+
+更为令人痛心的是，其中有三个青少年学生（病例21、40、45），两个女生、1个男生。她/他们从天真快乐满怀梦想的状态，瞬间进入基本残疾的状态，给整个家庭带来极大的压力。
+
+再次呼吁不要接种这些所谓的“疫苗”。从这些严重伤害的病例来看，那些根本就不是疫苗，而是毒针。同时，其中一些病例的发病情况也告诉我们，从感觉良好到彻底被伤害击垮，很可能就发生在一瞬间。因此，也再次呼吁已经被施打这些毒针的人，不要盲目自信，要尽早服用解药。
+
+（文章仅代表作者本人观点）
 
 0
