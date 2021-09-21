@@ -2,10 +2,10 @@
 ---
 
 
-## 新中国联邦郝海东伉俪致辞祝班农父亲福如东海寿比南山
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1544993/)
+## 恒大各地员工聚集讨薪
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1545066/)
 
-2021年9月17日《战斗室》节目早间档，新中国联邦郝海东、叶赵颖伉俪致辞祝贺班农父亲一百岁生日快乐。
+9月6日，恒大黄石销售人员讨薪；9月10日，恒大员工聚集讨薪。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

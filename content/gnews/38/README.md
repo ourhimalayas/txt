@@ -2,29 +2,47 @@
 ---
 
 
-## 再遭港警国安处锁定 港学生组织成员清晨被捕
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1544300/)
+## 日本称如果台湾被占领将会对中共采取行动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1544401/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/092001.jpg)香港警察逮捕学生组织“贤学思政”的召集人王逸战。图片：来自路透社
-**编辑摘要**：
+作者：香草山教育部- Naughty（文行）
 
-据德国之声9月20日引述多家港媒报导，在今年多次遭警方逮捕後，香港学生组织“贤学思政”的召集人王逸战及秘书长陈枳森等三名成员20日清晨再遭港警国安处人员逮捕。据传三人遭逮捕的罪名是煽动颠覆国家政权。“贤学思政”是去年5月在香港成立的学生组织，王逸战曾表示，该组织存在的价值，便是要去试探政权的红线。
-
-[新闻参考链接](https://amp.dw.com/zh/%E5%86%8D%E9%81%AD%E6%B8%AF%E8%AD%A6%E5%9B%BD%E5%AE%89%E5%A4%84%E9%94%81%E5%AE%9A-%E6%B8%AF%E5%AD%A6%E7%94%9F%E7%BB%84%E7%BB%87%E6%88%90%E5%91%98%E6%B8%85%E6%99%A8%E8%A2%AB%E6%8D%95/a-59235024#click=https://t.co/X9t25SAYkd)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*编辑：穆清*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+日本防卫大臣周四表示，一个自由的台湾对于维护该地区的和平与稳定是不可或缺的。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-19.jpg)图片来源：OANN
 
+中国和日本之间在尖阁群岛问题上关系的紧张程度正在上升。日前日本方面表示，如果中国共产党试图夺取台湾，日本承诺将保卫其岛屿邻居。根据日本防卫大臣周四的说法，一个自由的台湾对于维护该地区的和平与稳定是不可或缺的。
+
+日本的大部分能源进口都要绕过台湾，使台湾不受中共的控制符合日本的最大利益。然而，中共不仅对台湾摆出了姿态，对台湾海峡的日本岛链也是如此。
+
+中共宣称自己拥有这些岛屿，但日本并不承认这些主张，并表示如果这些主张被付诸行动，他们将对中共进行反击。
+
+“无论是根据国际法还是从历史上看，尖阁群岛都是日本主权领土的一个组成部分”，国防部长岸信夫说，“日本和其他国家之间不存在与尖阁群岛有关的领土争端。”
+
+据岸信夫称，中共海岸警卫队的船只此前曾进入岛链周围的日本水域。同时，他承诺，如果中共试图以武力夺取该地区的任何部分，日本将保持高度警惕并准备参与。
+
+原文链接：
+
+[https://www.oann.com/japan-to-take-action-against-china-if-taiwan-is-taken/](https://www.oann.com/japan-to-take-action-against-china-if-taiwan-is-taken/)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 0
