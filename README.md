@@ -46,14 +46,14 @@
 ### [观察：Fauci吹嘘与中共研究人员的私人通话](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [川普要求佐治亚州务卿宣布大选真正的获胜者](/content/gnews/12/README.md)
+### [马里科帕郡一选举监事的通话录音遭泄露](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/13/README.md)
- ` wenwu`
+### [川普要求佐治亚州务卿宣布大选真正的获胜者](/content/gnews/13/README.md)
+ ` HimalayaRussia`
 
-### [每日快报：高盛对中国的房地产行业发出了可怕的警告](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/14/README.md)
+ ` wenwu`
 
 ### [恒大欠我800万，你不抓他你抓我？](/content/gnews/15/README.md)
  ` 银河勇气之星`
