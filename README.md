@@ -67,22 +67,22 @@
 ### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [澳洲护士：医院只给接种疫苗的中共病毒患者用伊维菌素](/content/gnews/19/README.md)
+### [我给习大人捎个话](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [澳洲护士：医院只给接种疫苗的中共病毒患者用伊维菌素](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [当局用吊销行医执照威胁开具羟氯喹和伊维菌素的医生](/content/gnews/20/README.md)
+### [当局用吊销行医执照威胁开具羟氯喹和伊维菌素的医生](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/21/README.md)
+### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大银行贷款利息逾期将引发中共国金融不稳定涟漪效应](/content/gnews/22/README.md)
+### [恒大银行贷款利息逾期将引发中共国金融不稳定涟漪效应](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大已无力支付下周到期利息](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [每一美元恒大债券的交易价格现在仅为20美分](/content/gnews/24/README.md)
+### [恒大已无力支付下周到期利息](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行](/content/gnews/25/README.md)
@@ -151,36 +151,36 @@
 ### [9/19/21国内经济财经周报：TikTok涉嫌窃取儿童隐私被爱尔兰调查；中共跪求加入CPTPP](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [中国共产党黄历的九月二十四日](/content/gnews/47/README.md)
+### [中秋随想](/content/gnews/47/README.md)
+ ` MOShongkong`
+
+### [中国共产党黄历的九月二十四日](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共节前禁台水果](/content/gnews/48/README.md)
- ` 日本东京方舟农场`
-
-### [暗通款曲投票秀](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国军方强制接种疫苗，未接种者将被解雇且失去福利](/content/gnews/50/README.md)
+### [每一美元恒大债券的交易价格现在仅为20美分](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [今夜举杯为明天](/content/gnews/51/README.md)
+### [中共节前禁台水果](/content/gnews/50/README.md)
+ ` 日本东京方舟农场`
+
+### [暗通款曲投票秀](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本三连休反映出的疫苗歧视等问题](/content/gnews/52/README.md)
+### [美国军方强制接种疫苗，未接种者将被解雇且失去福利](/content/gnews/52/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [今夜举杯为明天](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世卫敦促每个人接种疫苗，却拒绝分享员工的疫苗数据](/content/gnews/53/README.md)
+### [日本三连休反映出的疫苗歧视等问题](/content/gnews/54/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [世卫敦促每个人接种疫苗，却拒绝分享员工的疫苗数据](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗已导致令人瞠目结舌的副作用和死亡事件](/content/gnews/54/README.md)
+### [疫苗已导致令人瞠目结舌的副作用和死亡事件](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国环球影城落户北京 将上演超级“娱乐至死”大戏](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [一位健康母亲在接种阿斯利康疫苗后死亡](/content/gnews/56/README.md)
- ` 日本东京方舟农场`
-
-### [国际要闻汇编](/content/gnews/57/README.md)
+### [美国环球影城落户北京 将上演超级“娱乐至死”大戏](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
