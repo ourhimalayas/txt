@@ -2,24 +2,90 @@
 ---
 
 
-## 中国共产党黄历的九月二十四日
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544850/)
+## 我给习大人捎个话
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544894/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-65.jpg)图片：汉程网历法截图
-秋分，是二十四节气之第十六个节气，秋季第四个节气，于每年的公历9月22-24日交节。秋分曾是传统的“祭月节”（中秋节），中秋节由秋夕祭月演变而来。对于同一个节气，每年都要比前一年滞后6小时或5小时，遇到闰年则要在此基础上提前24小时。凑巧的是，共产党的几个重大事件都发生在9月24日。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a6fvp-bhm9a.jpg)
+[https://gtv.org/video/id=6147d08ed2e2b817486b76e1](https://gtv.org/video/id=6147d08ed2e2b817486b76e1)
 
-一、1926年9月24日，秋分。中共中央发出第二十号通知，确定军队听党指挥—宜求官。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-29.jpg)图片：汉程网历法截图
-二、1982年9月24日，宜入宅。邓小平同英国首相玛格丽特·撒切尔夫人讨论香港问题。双方同意通过外交途径解决香港回归大陆的事宜。“入宅”：家庭搬入新屋，或机构迁至新址，以祭神仪式为起始点，称作“入厝仪式”。故民间通常是搬家前择取吉日，举办“入厝仪式”。亦有人在搬家后，才择取吉日，举办“入厝仪式”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-12.jpg)图片：汉程网历法截图
-三、2002年9月24日，宜交易，订立各种契约互相买卖之事。香港特别行政区政府落实基本法第二十三条，也就是从法律禁止任何有损该国国家主权、领土完整、统一及国家安全的行为。立法过程在香港引起巨大争议，甚至引发50万人参与七一大游行反对立法。法案表决前夕，代表工商界及自由党的行政会议成员田北俊辞职，之后不少工商界功能组别议员跟随自由党改变立场，特区政府无望在立法会取得足够票数支持，最终终止立法程序。（链接：[https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E7%89%B9%E5%88%A5%E8%A1%8C%E6%94%BF%E5%8D%80%E5%9F%BA%E6%9C%AC%E6%B3%95%E7%AC%AC%E4%BA%8C%E5%8D%81%E4%B8%89%E6%A2%9D](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF%25E7%2589%25B9%25E5%2588%25A5%25E8%25A1%258C%25E6%2594%25BF%25E5%258D%2580%25E5%259F%25BA%25E6%259C%25AC%25E6%25B3%2595%25E7%25AC%25AC%25E4%25BA%258C%25E5%258D%2581%25E4%25B8%2589%25E6%25A2%259D)）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-5.jpg)图片：汉程网历法截图
-这3个重要事件中，2个和香港相关，一个是收回香港，一个是持续干预香港自治。郭文贵先生在2021年9月17日GTV直播中谈到，本月9月24日对于台湾很关键。黄历中，当日宜：祈福，祭祀，结亲，开市，交易。中共会在这一天有什么行动？让我们拭目以待！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-3.jpg)图片：汉程网历法截图
-【本文仅代表作者观点，与 gnews 平台无关】
+**字幕内容:**
 
-作者：洛杉矶盘古农场—文如
-编审：洛杉矶盘古农场—Wendy
+**Miles Guo：**
+**郭文贵：**
+
+今天，我给习大人捎个话
+Today, I have a message for Xi, the Great God(Xi jinping)
+
+捎什么话啊？我想让你知道，习大人
+what is the message? I want to let you know, Xi, the Great God
+
+我说的话是真是假的？
+Whether my words are true or false
+
+你不知的话，我知道
+There is something you don’t know it, but I know
+
+就你和你夫人彭丽媛在屋里说的话
+The conversations between you and Peng Liyuan(Xi’s wife) in your room
+
+为什么我知道？习主席，你在访问马拉歌
+Why do I know? President Xi, during your visit to Mar-A-Lago
+
+水棕榈滩酒店，你的安全
+You stayed at Eau Palm Beach Resort & Spa, regarding your security
+
+你的视频怎么会别人有？
+How does someone else have videos about you?
+
+包括你和你夫人彭丽媛洗澡的（视频）
+even including the videos of you and your wife, Peng Liyuan taking showers
+
+怎么会有？
+How could it be?
+
+在英国
+In Britain
+
+在去英女皇家之前
+before arriving the Queen’s residence
+
+两个人拌了两句嘴
+you two had a quarrel
+
+那个房间也被录了
+The video were also recorded in the room
+
+我现在要告诉你，习大神
+I am telling you, Xi, the Great God
+
+绝对的，你身边和你过去这些年
+An organization absolutely around you
+
+你的安全和你夫人的隐私和你家人隐私
+had been collecting your security information
+
+有一个组织在收集
+and your wife’s and your family’s privacy in the past few years
+
+而且二十大以前，你这些录像和录音都会被放出来
+And before the 20th Congress, all these videos and recordings of you will be re-leased
+
+共产党的内部的这种绞杀、较量，二十大是最为血腥的
+The 20th Congress was the bloodiest of such internal strangulation and rivalry of the Communist Party
+
+远远超过十八大
+Far more deadly than the 18th Congress
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1438139056349593602?s=24](https://twitter.com/se1y7cblljselva/status/1438139056349593602?s=24)
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 -Layka
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

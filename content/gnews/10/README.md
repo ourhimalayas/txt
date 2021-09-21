@@ -2,11 +2,13 @@
 ---
 
 
-## 澳洲护士：医院只给接种疫苗的中共病毒患者用伊维菌素
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1544840/)
+## 2021年09月20日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1544940/)
 
-9/18/2021 一名澳洲护士爆料：澳洲医院只给那些接种了疫苗的中共病毒患者使用伊维菌素，而给未接种疫苗的患者使用呼吸机治疗。他们这样做是为了让那些活下来的人认为是疫苗拯救了他们的生命。
+撰稿：GTV澳喜影像视频组、新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/09/211-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/212-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
 0
