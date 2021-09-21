@@ -37,14 +37,14 @@
 ### [2021年9月20日 文贵先生盖特 11](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [秘翻在线：一个德国普通前线疫苗接种医生的心声](/content/gnews/9/README.md)
+### [辉瑞疫苗拟将黑手伸向5至11岁的儿童](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
+
+### [秘翻在线：一个德国普通前线疫苗接种医生的心声](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共病毒疫苗在美国造成儿童死伤的数量超过其他全部疫苗死伤总和](/content/gnews/10/README.md)
+### [秘翻在线：中共病毒疫苗在美国造成儿童死伤的数量超过其他全部疫苗死伤总和](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [观察：Fauci吹嘘与中共研究人员的私人通话](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [马里科帕郡一选举监事的通话录音遭泄露](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -67,23 +67,23 @@
 ### [保洁公司为恒大干了两年多拿不到工资](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [彼得·纳瓦罗：美国应停止美国资本通过美国养老基金流向中国](/content/gnews/19/README.md)
+### [文贵先生、纳瓦罗先生和班农先生9月15日大直播](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/20/README.md)
+### [彼得·纳瓦罗：美国应停止美国资本通过美国养老基金流向中国](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [雇员被要求看脸书视频接受疫苗知识并因拒绝接种遭解雇](/content/gnews/21/README.md)
+### [雇员被要求看脸书视频接受疫苗知识并因拒绝接种遭解雇](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [盖特(GETTR)将推出翻译和直播功能并保证每个人的自由言论](/content/gnews/22/README.md)
+### [盖特(GETTR)将推出翻译和直播功能并保证每个人的自由言论](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| 结合圣经看新中国联邦国旗](/content/gnews/23/README.md)
+### [有声| 结合圣经看新中国联邦国旗](/content/gnews/24/README.md)
  ` MOSREC`
-
-### [杰森·米勒被扣留事件与巴西选举以及平民主义紧密相关](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/25/README.md)
  ` wenwu`
@@ -130,14 +130,14 @@
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
 
-### [杰森·米勒被左翼巴西联邦警察扣留诱导签署不利文件](/content/gnews/40/README.md)
+### [杰森·米勒被扣留事件与巴西选举以及平民主义紧密相关](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/41/README.md)
+### [杰森·米勒被左翼巴西联邦警察扣留诱导签署不利文件](/content/gnews/41/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [纳瓦罗祝班农父亲生日快乐并致敬班农一家](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [东京股市警惕恒大风险开盘大跌](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
