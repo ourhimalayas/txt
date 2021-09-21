@@ -2,20 +2,21 @@
 ---
 
 
-## 美两党参议员对中共申请加入太平洋贸易协定做出警告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545842/)
+## 无视中共施压, 法国参议院拟10月访台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545829/)
 
-栏目记者/责任编辑：飞虹
+栏目记者/责任编辑: 新世界的一员
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-针对中共申请加入《全面与进步跨太平洋伙伴关系协定》，美国两党相关领域议员卡珀参议员和科宁参议员做出警告：“任何人都不应对中共正在采取措施加强他们的全球贸易实力感到吃惊。我们过去一段时间以来一直对中方加入《跨太平洋伙伴关系协定》的微妙而又蓄意的举动提出警告。”
+法广9月20日消息，尽管遭到中共驻法大使卢沙野的持续施压反对，但法国参议院最终还是计划将于10月初组成访问团前往台湾，进行商贸考察与交流.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.41.50-PM.png)
+法国国会今年3月开始就已有访台的初步计划，此次参议员访问计划发布，法国成为继美国之后的第二个官方宣布访问台湾，进行国家级访问考察活动的国家，台湾外交部对此表示热烈欢迎，并称将透过台湾驻法国代表处与法国参议院密切协调访台行程各项安排，包括疫情期间的防范措施等细节。
+(本文仅代表作者观点)
 
-两位参议员指出，该协定组织正是为对抗中共的贸易影响力而成立，美国此前却错误地撤出了这个协定。美国的贸易领导地位对国家经济和国家安全至关重要。美国必须夺回主动权，在贸易议题上与其亚太盟友们重新接触。
-
-参考链接：[美两党参议员对中国申请加入太平洋贸易协定做出反应](https://www.voachinese.com/a/us-senators-react-to-china-move-20210920/6236377.html)
+参考链接: [法國參議院訪團擬10月訪台 台灣表示”熱烈歡迎”](https://www.rfi.fr/tw/中國/20210920-法國參議院訪團擬10月訪台-台灣表示-熱烈歡迎)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -28,7 +29,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
 0

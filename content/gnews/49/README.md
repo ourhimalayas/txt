@@ -2,32 +2,34 @@
 ---
 
 
-## 记忆中的希腊
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1545781/)
+## 恒大效应蔓延，新力控股暴跌9成停牌!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545764/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-1-.png)图片为本人拍摄
-随着最近郭先生直播多次提到希腊的某个岛，对希腊的记忆也一点点的清晰！
+栏目记者/责任编辑：修文
 
-2011年去欧洲出差的机会，回程时顺道去了希腊！正好十年，时间太久远，记忆也很模糊，只记得美轮美奂的风景和一些感受！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-4.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-5.png)
-- 圣托里尼岛上淳朴的岛民，在海边游玩的时候，正好赶上一场当地的婚礼，驻足看了会，一位老者拉着我并给了个自助餐盘，还倒了杯酒，让我随便享用，跟他解释，我是游客，他说这有什么关系，盛情难却，于是厚着脸皮蹭了顿饭。以至于同事们从其他地方游玩回来，打电话才知道我在参加当地婚礼，于是羡慕嫉妒恨的在远处一直等着我把餐用完。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-岛上的人讲希腊语，路标也都是α、β、θ….这样的天文字母，以至于同事开着租来的车，由于看不懂路标，逆行走上了单行线，几乎就和从角落拐过来的越野车迎面相撞，开车小伙非常愤怒，冲下车就要拉开车门揍司机一顿，但是当他拉车门的时候，透过玻璃看到同事的亚洲脸，他一下就笑了，说你们是游客，看不懂路标是吧？于是让我们的车不动，他把车倒走，让我们过去了！在墙国民众皆戾气很重，以至于这件事印象很深刻！
 
-- 圣托里尼到上的动物，岛上猫和狗特别多，而且很多都是没有主人的，但这不意味着它们是流浪猫和狗，狗都有一个项圈，据说政府会给它们定期体检，有的还做了绝育手术，关键的关键，岛民把这些动物们当做朋友一样对待。
+自由时报9月20日报道，中国知名开发商新力控股，20日港股暴跌9成，还没到收盘就宣布停牌，投资人普遍震惊，同时还传出新力全体员工减薪，副总裁减薪幅度高达70%，财务困境一触即发。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-21-at-8.24.29-PM.png)
+新力控股自江西起家，仰赖信托基金，以激进的高杠杆财务操作扩张势力，在发展过程中，数次深陷资金链断裂传闻。近期新力出现商票延期及无法兑付问题，资金周转问题浮出水面。新力上半年财报，公司总资产为1120.38亿元，流动负债754.28亿元，负债率达67%，未来1年内将有132.4亿元债务到期。
 
+随着近期恒大集团金融业务爆雷，引发了一系列股市震荡连锁反应。其他采取同类型高杠杆运行模式的公司亦陆续被媒体扒出资金触礁，债务违约的风潮一旦开启，地产经济的黑天鹅就将一飞冲天，彻底引爆中共经济最大的一颗定时炸弹。
+(本文仅代表作者观点)
 
-见过一个当地人从超市出来，一只狗在他的摩托车边上蹭来蹭去，他从买的东西里拿出食物给狗，然后骑上摩托车，狗也蹦上去跟他走了。正好我们开车在后面，到了一个地方，当地人就把狗放下了，开摩托车走了，当时不理解这是怎么回事，待了几天之后才明白，他不是狗的主人，只是载它一程带它兜兜风。所以在岛上如果你看到路上行驶的车里拉着一只狗，很可能是这只狗在搭顺风车！
+参考链接：[恆大效應炸開！中國房企新力暴跌9成 今臨時停牌](https://ec.ltn.com.tw/article/breakingnews/3678113)
 
-记得在岛上的最后一天，在山顶上同事几个陪一只狗玩了一会，等走的时候，它特别想让我们拉着它走一程，当时租的车很小，车上满员，实在没有放它的地方，只能是开车走了，以为它会留在原地。没想到它一直在车后面追，几公里的山路，才发现它懂得靠右的交通规则，也懂得并线抄近路，大家很不忍，但是下坡的山路又不能随便停车，只能是尽量慢点开，它一直跟着到了住的酒店，一停车大家赶紧把包里吃的都给它了，以缓解负罪感。大概是它在岛上，生命中从未遇到过无情之人，心想大家明明已经是是朋友了，你们怎么可以这么不够意思，不拉上我就绝尘而去，所以一直追到酒店讨个说法吧！由此可见当地人待它们是何等的友善。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-6.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-7.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-8.png)
-- 希腊的景色，这个就不用说了，各种视频图片都有介绍！
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：文龙
+校正/发稿：我不在这里
 
-很可惜，十年前的自己还没有走出CCP思想的牢笼，对希腊的理解非常肤浅，只能说在记忆中希腊有风景、有美食、有历史、有文化、有哲学、有艺术、有建筑、有奥林匹克，更重要的是那里曾是西方文明的发源地。希望CCP倒台的那一天，战友们可以一起登上诺亚方舟，相聚在风景秀美的地中海岛屿之上！
-
-本文内容仅代表个人观点
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
-+1
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+0

@@ -2,23 +2,23 @@
 ---
 
 
-## &#8220;潜艇外交危机&#8221; 引多国骚动 波及欧澳自贸协议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1545996/)
+## 蔡英文与日本自民党总裁候选人高市早苗视讯通话
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546019/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-266.png)
-栏目记者：新世界的一员
+责任编辑：云豹
 
-日前美澳英宣布订立共同应对中国的三国盟约组织，由于美国将依照协定向澳大利亚提供核潜艇技术，澳大利亚随后”撕毁” 数年前与法国签订的巨额潜艇购买合同，从而引爆”美法澳三国外交危机” ， 且继续发酵中。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-283.png)
-目前法国在其中蒙受损失的立场得到欧盟委员会支持。法国宣布撤回驻美澳大使, 美国总统拜登试图与法国缓解气氛，已主动提出与马克龙通话。欧盟外长周一起将利用在联合国开会的机会，提前讨论此次的潜艇外交危机“对欧盟与澳大利亚自贸谈判可能带来的冲击”，而该自贸谈判原本定于10月12日才开幕。
+在中共对台施压增强之际，9月20日，蔡英文以民进党党主席的身分与日本自民党总裁候选人高市早苗进行视讯通话，针对东亚地区的安全保障等课题交换意见。在中共对台施压增强之际，9月20日，蔡英文以民进党党主席的身分与日本自民党总裁候选人高市早苗进行视讯通话，针对东亚地区的安全保障等课题交换意见。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-284.png)
+高市早苗在此前受访时曾表示台湾安危与对日本息息相关，必要时日方需动用集体自卫权应对台湾所受危机。安倍晋三则`对此次通话高调发推，称”守护自由与民主的二人会谈，世界注目。”
 
-参考链接：
+此次日本自民党总裁竞选，四位候选人竞相表达出自己对中共的强硬立场，近几十年来日本政坛罕见。爆料革命四年来对国际形势的影响有目共睹，日本已明显改变亲共态度，开始转向深思如何面对中共威胁。
 
-[https://www.rfi.fr](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210920-%E6%A0%B8%E6%BD%9B%E8%89%87%E5%8D%B1%E6%A9%9F-%E6%8B%9C%E7%99%BB-%E6%80%A5%E6%96%BC-%E8%88%87%E9%A6%AC%E5%85%8B%E9%BE%8D%E9%80%9A%E8%A9%B1-%E6%AD%90%E6%BE%B3%E8%87%AA%E8%B2%BF%E5%8D%94%E8%AD%B0%E6%81%90%E8%A7%B8%E7%A4%81)
+[参考连接]：[https://www.cna.com.tw/news/firstnews/202109200251.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202109200251.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-274.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
 
-责任编辑/终审：FoxRina
+终审:  FoxRina
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
@@ -27,5 +27,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-265.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-266.png)
 0
