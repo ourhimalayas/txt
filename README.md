@@ -103,29 +103,29 @@
 ### [秘翻在线：英国生殖免疫专家呼吁调查疫苗与经期紊乱的关联](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/31/README.md)
+### [互联网自由度排名中共国连续七年垫底 台湾全球第五](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC大中华时事：中共批判美式民主是“钱主”本质，黑美国给国民洗脑](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：中共病毒造成美国死亡人数即将超过西班牙大流行病](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/32/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/34/README.md)
  ` wenwu`
 
-### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/33/README.md)
+### [银河快讯：丰田永旺等保护外籍劳工人权；美中对立，日澳增强安保合作](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/34/README.md)
+### [币圈新闻动态：根据Etherscan数据，至今HDO发行量为200,000,000](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/35/README.md)
+### [秘翻在线：美国议员就中共对北极的入侵发出警告](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [周一香港股市，恒大系股票暴跌](/content/gnews/36/README.md)
+### [周一香港股市，恒大系股票暴跌](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新的审查规则生效脸书删除德国的反封锁团体社交账号](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线：川普说，故意放毒是战争行为](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -166,21 +166,21 @@
 ### [恒大危机：恒大的巨额负债让其处于破产边缘，引发多方关注](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [六月雪狱（二）](/content/gnews/52/README.md)
+### [日本65岁以上3640万人，占总人口29.1%](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [六月雪狱（二）](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [续：再列举中共病毒“疫苗”严重伤害病例32例](/content/gnews/53/README.md)
+### [续：再列举中共病毒“疫苗”严重伤害病例32例](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：洛杉矶卫生官员：好莱坞名人不受疫苗强制令约束](/content/gnews/54/README.md)
+### [秘翻在线：洛杉矶卫生官员：好莱坞名人不受疫苗强制令约束](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [接种疫苗人群对他人存在危险，并需在冬季自我隔离以防重症](/content/gnews/55/README.md)
+### [接种疫苗人群对他人存在危险，并需在冬季自我隔离以防重症](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [再遭港警国安处锁定 港学生组织成员清晨被捕](/content/gnews/56/README.md)
+### [再遭港警国安处锁定 港学生组织成员清晨被捕](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [秘翻在线：福奇资助了武毒所60个与中共军方合作的项目](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
 
