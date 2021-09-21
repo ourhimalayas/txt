@@ -85,22 +85,22 @@
 ### [全球阴谋集团正在利用疫情破坏司法独立](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [传厦门“准封城”中共慌忙辟谣](/content/gnews/25/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：恒大危机和美联储会议透出美股大跌在望](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [恒大事件会把中国和世界经济置入灾难境地](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
-
-### [未经本人同意，加州药房向青年注射新冠生物制剂针](/content/gnews/29/README.md)
+### [厦门进入“准封城”状态，中共官媒慌忙辟谣意欲何为？](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [白宫考虑空中旅行接种令](/content/gnews/30/README.md)
+### [传厦门“准封城”中共慌忙辟谣](/content/gnews/26/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线: 抵制2022年北京冬奥会 日本东京举行抗议游行](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：恒大危机和美联储会议透出美股大跌在望](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大事件会把中国和世界经济置入灾难境地](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [未经本人同意，加州药房向青年注射新冠生物制剂针](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [参议员瑞克·斯科特： 我们正处于与共产主义中国 的新冷战中](/content/gnews/31/README.md)
@@ -139,48 +139,48 @@
 ### [东南亚一周新闻回顾（2021年9月10日-16日）](/content/gnews/42/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [新力控股集团一日市值暴跌90%！](/content/gnews/43/README.md)
+### [东京股市警惕恒大风险开盘大跌](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/44/README.md)
+### [滴滴出行联合创始人柳青向亲信透露她计划辞职的消息](/content/gnews/44/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新力控股集团一日市值暴跌90%！](/content/gnews/45/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/20/2021国际财经快讯：美财长耶伦称债务违约将 &#8220;永久 &#8220;削弱美国；世界银行为 中共篡改数据](/content/gnews/45/README.md)
- ` 秘密翻译组金融团队`
+### [中共国企业是对外渗透的重要工具](/content/gnews/47/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [9/18/2021国际财经快讯：美银行业反对税务报告法；美财长警告经济面临债务上限](/content/gnews/46/README.md)
- ` 秘密翻译组金融团队`
-
-### [G时评：但灵魂却不可复制](/content/gnews/47/README.md)
+### [G时评：但灵魂却不可复制](/content/gnews/48/README.md)
  ` GISELLE`
 
-### [我眼中的完美人生](/content/gnews/48/README.md)
+### [我眼中的完美人生](/content/gnews/49/README.md)
  ` 首尔天池农场`
 
-### [G时评：中秋 . 许苍生 / 牧](/content/gnews/49/README.md)
+### [G时评：中秋 . 许苍生 / 牧](/content/gnews/50/README.md)
  ` GISELLE`
 
-### [幻想与中共对话-评欧盟对华战略报告（二）](/content/gnews/50/README.md)
+### [幻想与中共对话-评欧盟对华战略报告（二）](/content/gnews/51/README.md)
  ` 澳喜农场`
 
-### [我给习大人捎个话](/content/gnews/51/README.md)
+### [我给习大人捎个话](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中秋随想](/content/gnews/52/README.md)
+### [中秋随想](/content/gnews/53/README.md)
  ` MOShongkong`
 
-### [中国共产党黄历的九月二十四日](/content/gnews/53/README.md)
+### [中国共产党黄历的九月二十四日](/content/gnews/54/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疾控中心(CDC)表示，美国接种了383,994,877剂疫苗](/content/gnews/54/README.md)
+### [疾控中心(CDC)表示，美国接种了383,994,877剂疫苗](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [当局用吊销行医执照威胁开具羟氯喹和伊维菌素的医生](/content/gnews/55/README.md)
+### [当局用吊销行医执照威胁开具羟氯喹和伊维菌素的医生](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文雍漫谈：我们都需要勇气](/content/gnews/56/README.md)
+### [文雍漫谈：我们都需要勇气](/content/gnews/57/README.md)
  ` 文雍`
-
-### [恒大银行贷款利息逾期将引发中共国金融不稳定涟漪效应](/content/gnews/57/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

@@ -2,53 +2,93 @@
 ---
 
 
-## 中秋随想
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1544781/)
+## 我给习大人捎个话
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1544894/)
 
-作者：纽约香草山香港部 – Freedom Bird
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a6fvp-bhm9a.jpg)
+[https://gtv.org/video/id=6147d08ed2e2b817486b76e1](https://gtv.org/video/id=6147d08ed2e2b817486b76e1)
 
+**字幕内容:**
 
+**Miles Guo：**
+**郭文贵：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-2.jpg)
+今天，我给习大人捎个话
+Today, I have a message for Xi, the Great God(Xi jinping)
 
+捎什么话啊？我想让你知道，习大人
+what is the message? I want to let you know, Xi, the Great God
 
+我说的话是真是假的？
+Whether my words are true or false
 
-中秋佳节很快又要到了。
+你不知的话，我知道
+There is something you don’t know it, but I know
 
-![](http://image.huahuibk.com/uploads/20200427/17ea34bec450faf2ee58e46db4940c4e.jpg)图源网络
+就你和你夫人彭丽媛在屋里说的话
+The conversations between you and Peng Liyuan(Xi’s wife) in your room
 
-中秋本是个贺月、庆团圆的好日子。然而，在今年这个中秋节，不知会有多少的家庭渴望着真正的一家团聚。
+为什么我知道？习主席，你在访问马拉歌
+Why do I know? President Xi, during your visit to Mar-A-Lago
 
-而今，香港有太多因为抗争而被冤枉入狱的民众，又有太多流亡海外而不得归家的离人，更有太多困于疫情而滞留异乡的游子，还有太多身染新冠却不治而终的冤魂。这些人和他们的家庭是多么渴望着一家团圆啊！
+水棕榈滩酒店，你的安全
+You stayed at Eau Palm Beach Resort & Spa, regarding your security
 
-这个世界究竟怎么了？那些所谓岁月静好的家庭是真的岁月静好吗？难道疫情对你们全无影响吗？难道恒大的房产、地产、理财产品也对你们全无影响吗？看看那些因为购买恒大系列产品而不得不出来维护自己利益的民众，他们被黑警又拉又打，还被恶意执法者随意定罪。至于那些真正犯法的，他们却又逍遥法外。
+你的视频怎么会别人有？
+How does someone else have videos about you?
 
-我们都是同胞啊！大家何不团结一致地加入到爆料革命中来，让我们可以共同对抗黑暗势力。其实，自由的种子早已被埋入进土壤里，只要我们每个人都能细心呵呵，让它生根发芽，总有一天，自由的种子会开花结果。
+包括你和你夫人彭丽媛洗澡的（视频）
+even including the videos of you and your wife, Peng Liyuan taking showers
 
-也许在下一个中秋节，我们所渴望的就能够达成了。到那时，家家户户都可以团团圆圆！
+怎么会有？
+How could it be?
 
-（本文仅代表作者观点）
+在英国
+In Britain
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M9-1.jpg)
+在去英女皇家之前
+before arriving the Queen’s residence
 
-***编辑/校对/发稿：Irene木木***
+两个人拌了两句嘴
+you two had a quarrel
 
-**更多资讯，更多关注**
+那个房间也被录了
+The video were also recorded in the room
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我现在要告诉你，习大神
+I am telling you, Xi, the Great God
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+绝对的，你身边和你过去这些年
+An organization absolutely around you
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+你的安全和你夫人的隐私和你家人隐私
+had been collecting your security information
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+有一个组织在收集
+and your wife’s and your family’s privacy in the past few years
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+而且二十大以前，你这些录像和录音都会被放出来
+And before the 20th Congress, all these videos and recordings of you will be re-leased
 
+共产党的内部的这种绞杀、较量，二十大是最为血腥的
+The 20th Congress was the bloodiest of such internal strangulation and rivalry of the Communist Party
 
+远远超过十八大
+Far more deadly than the 18th Congress
 
-![](https://assets.gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1438139056349593602?s=24](https://twitter.com/se1y7cblljselva/status/1438139056349593602?s=24)
 
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 -Layka
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
