@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年9月19日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1546344/)
+## 2021年9月20日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1546474/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-9月19号：自由的飞翔心怀使命，感觉是如此的美好，新中国联邦人……正在与世界上最有正义的最有力量的人们，一起铲除中共和邪恶的力量……明天的太阳照样从东边升起，邪恶也最终会散去……
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ef4a6953a7466517f8a6f36da6177587.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/ed5eda34198af266ebeb2471d98aa707.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/e3f1fcba880b50060ef7788abc43f71a.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/a30300bc6203fc75e75f1bdc55d4fb02.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/40b2e28edf53287450866c0af3706224.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/23febfc658f11fdfd06028d5fcddc267.jpg)
-[【2021年9月19日】文贵先生盖特原文](https://gettr.com/post/pbluo1b766)
+9月20号：这个视频我看了很多遍，如果人类有哪怕是5%的人像他一样，这样的智慧和勇敢人类不至于面对今天的前所未有的．可能被消灭的这种阴暗的势力的病毒和疫苗灾难。每一个这样的勇敢的人。我相信他们都有的上天的使命，也会得到上天的屁佑【疫苗质疑答辩！不需要法律、医学专业知识，一位移民美国的女士，用常识，把打不打疫苗，谁更危险，质疑得铿锵有力！】
+
+[【2021年9月20日】文贵先生盖特原文](https://gettr.com/post/pbp24k3a0f)
 
 **喜联盟Gnews编辑部**

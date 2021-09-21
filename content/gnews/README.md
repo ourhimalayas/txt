@@ -28,23 +28,23 @@
 ### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月20日 文贵先生盖特 3](/content/gnews/6/README.md)
+### [2021年9月20日 文贵先生盖特 10](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 2](/content/gnews/7/README.md)
+### [2021年9月20日 文贵先生盖特 9](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 1](/content/gnews/8/README.md)
+### [2021年9月20日 文贵先生盖特 8](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [观察：Fauci吹嘘与中共研究人员的私人通话](/content/gnews/9/README.md)
+### [秘翻在线：中共病毒疫苗在美国造成儿童死伤的数量超过其他全部疫苗死伤总和](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [观察：Fauci吹嘘与中共研究人员的私人通话](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法国顶级疫苗专家：新冠病毒政策“完全愚蠢”且“不道德”（五）](/content/gnews/10/README.md)
+### [法国顶级疫苗专家：新冠病毒政策“完全愚蠢”且“不道德”（五）](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [美国医院吹哨人，所有这些中共病毒疫苗都是垃圾！](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/12/README.md)
  ` wenwu`
@@ -151,36 +151,36 @@
 ### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月19日 文贵先生盖特 11](/content/gnews/47/README.md)
+### [2021年9月20日 文贵先生盖特 7](/content/gnews/47/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 10](/content/gnews/48/README.md)
+### [2021年9月20日 文贵先生盖特 6](/content/gnews/48/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 9](/content/gnews/49/README.md)
+### [2021年9月20日 文贵先生盖特 5](/content/gnews/49/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 8](/content/gnews/50/README.md)
+### [2021年9月20日 文贵先生盖特 4](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 7](/content/gnews/51/README.md)
+### [2021年9月20日 文贵先生盖特 3](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 6](/content/gnews/52/README.md)
+### [2021年9月20日 文贵先生盖特 2](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 5](/content/gnews/53/README.md)
+### [2021年9月20日 文贵先生盖特 1](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 4](/content/gnews/54/README.md)
+### [2021年9月19日 文贵先生盖特 11](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 3](/content/gnews/55/README.md)
+### [2021年9月19日 文贵先生盖特 10](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 2](/content/gnews/56/README.md)
+### [2021年9月19日 文贵先生盖特 9](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月19日 文贵先生盖特 1](/content/gnews/57/README.md)
+### [2021年9月19日 文贵先生盖特 8](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
