@@ -16,17 +16,17 @@
 ### [纳瓦罗博士介绍新书《在川普时代》](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [特鲁多上台后大多枪击案和毒品犯罪直线上升！](/content/gnews/2/README.md)
- ` 军迷wilson`
+### [非政府组织主任警告说，中共政权的强摘器官可能会蔓延到其他国家](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [新冠病毒预防和治疗方案合辑](/content/gnews/3/README.md)
  ` 中共病毒真相`
 
-### [是时候对亲共的特鲁多大声说不了！](/content/gnews/4/README.md)
- ` 军迷wilson`
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联盟工作汇报文字版2021.9.19](/content/gnews/5/README.md)
- ` 纽约香草山MOS02`
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [文贵先生给习主席捎个话，注意安全，20万亿美元不要惦记了](/content/gnews/6/README.md)
  ` YALUN 亚伦`
@@ -55,35 +55,35 @@
 ### [议员们因阿富汗问题要求拜登辞职](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [9月17日北京472路公交事故是否与接种疫苗有关](/content/gnews/15/README.md)
+### [恒大财富暴雷，受害者聚集讨要说法](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [各地恒大财富受害者聚集讨要说法](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [恒大各地员工聚集讨薪](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9月17日北京472路公交事故是否与接种疫苗有关](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [墙内疫苗大觉醒](/content/gnews/16/README.md)
- ` 银河勇气之星`
-
-### [阿里巴巴和兰州晚报用粪汤横流的马路制造正能量](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [耕读教育缺陷难补，知青下乡翻版欲出](/content/gnews/18/README.md)
- ` 纽约香草山MOS02`
-
-### [恒大各地员工聚集讨薪](/content/gnews/19/README.md)
+### [变种病毒正是来自这些已接种疫苗的人群](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [变种病毒正是来自这些已接种疫苗的人群](/content/gnews/20/README.md)
+### [纳瓦罗祝班农父亲生日快乐并致敬班农一家](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗祝班农父亲生日快乐并致敬班农一家](/content/gnews/21/README.md)
+### [新中国联邦郝海东伉俪致辞祝班农父亲福如东海寿比南山](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦郝海东伉俪致辞祝班农父亲福如东海寿比南山](/content/gnews/22/README.md)
+### [盖特不会因政见而审查言论或移除用户（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [盖特不会因政见而审查言论或移除用户（粤语配音）](/content/gnews/23/README.md)
+### [班农：郭文贵在全世界点燃灭共的燎原之火（粤语配音）](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：郭文贵在全世界点燃灭共的燎原之火（粤语配音）](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [全球阴谋集团正在利用疫情破坏司法独立](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [传厦门“准封城”中共慌忙辟谣](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
@@ -103,14 +103,14 @@
 ### [白宫考虑空中旅行接种令](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第058期](/content/gnews/31/README.md)
+### [参议员瑞克·斯科特： 我们正处于与共产主义中国 的新冷战中](/content/gnews/31/README.md)
+ ` 美国政要直译推`
+
+### [雅典娜时报-第058期](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲总理推脱欧洲贸易谈判风险](/content/gnews/32/README.md)
+### [澳洲总理推脱欧洲贸易谈判风险](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
-
-### [非政府组织主任警告说，中共政权的强摘器官可能会蔓延到其他国家](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [福奇再次转变说法——称FDA限制疫苗加强针不是“错误”](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -118,14 +118,14 @@
 ### [DC每日热点0920](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中国面临恒大倒闭的“雷曼时刻”，风险何在？](/content/gnews/36/README.md)
+### [特鲁多上台后大多枪击案和毒品犯罪直线上升！](/content/gnews/36/README.md)
+ ` 军迷wilson`
+
+### [中国面临恒大倒闭的“雷曼时刻”，风险何在？](/content/gnews/37/README.md)
  ` wenwu`
 
-### [潜艇危机：引发平壤核竞赛](/content/gnews/37/README.md)
+### [潜艇危机：引发平壤核竞赛](/content/gnews/38/README.md)
  ` Charlie`
-
-### [日本称如果台湾被占领将会对中共采取行动](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [班农先生：因为没能对抗邪恶，西方正在走向与中共及其他邪恶国家战争的不归路（粤语配音）](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,14 +151,14 @@
 ### [陆金所大陆与陆金所BVI股权穿透图](/content/gnews/46/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [G时评：中秋 . 许苍生 / 牧](/content/gnews/47/README.md)
+### [我眼中的完美人生](/content/gnews/47/README.md)
+ ` 首尔天池农场`
+
+### [G时评：中秋 . 许苍生 / 牧](/content/gnews/48/README.md)
  ` GISELLE`
 
-### [幻想与中共对话-评欧盟对华战略报告（二）](/content/gnews/48/README.md)
+### [幻想与中共对话-评欧盟对华战略报告（二）](/content/gnews/49/README.md)
  ` 澳喜农场`
-
-### [全球阴谋集团正在利用疫情破坏司法独立](/content/gnews/49/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [中秋随想](/content/gnews/50/README.md)
  ` MOShongkong`
