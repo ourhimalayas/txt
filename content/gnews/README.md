@@ -85,23 +85,23 @@
 ### [秘密翻译组祝七哥，战友及家人们中秋节快乐！](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运](/content/gnews/25/README.md)
+### [秘翻在线：佛州州长新闻秘书因反驳主流媒体无良报道被推特禁言 杰森·米勒：盖特绝不如此](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：加密交易不是法外之地 美财政部将首次对加密货币交易所进行制裁](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：新书爆料：普京直面拜登称“他是个杀人犯”](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [梵蒂冈从10月1日起只允许持 &#8220;绿色通行证 &#8220;者进入 继续充当邪恶势力的帮凶](/content/gnews/26/README.md)
+### [梵蒂冈从10月1日起只允许持 &#8220;绿色通行证 &#8220;者进入 继续充当邪恶势力的帮凶](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单](/content/gnews/27/README.md)
+### [拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单](/content/gnews/30/README.md)
  ` GTV新闻访谈`
-
-### [Coinbase与国土安全部签署协议为其提供分析软件](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [加拿大议会选举特鲁多险胜 但仍然被迫再次组建少数派政府](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦人共度佳节、共克时艰](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
 
 ### [在港上市内地银行股跌幅扩大](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -139,48 +139,48 @@
 ### [盖特(GETTR)将推出翻译和直播功能并保证每个人的自由言论](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/21/2021国际财经快讯：摩根大通推出数字银行Chase；恒大债务危机冲击日本制造商](/content/gnews/43/README.md)
+### [在港上市内地银行股跌幅扩大](/content/gnews/43/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [9/21/2021国际财经快讯：摩根大通推出数字银行Chase；恒大债务危机冲击日本制造商](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [东京股市警惕恒大风险开盘大跌](/content/gnews/44/README.md)
+### [东京股市警惕恒大风险开盘大跌](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [滴滴出行联合创始人柳青向亲信透露她计划辞职的消息](/content/gnews/45/README.md)
+### [滴滴出行联合创始人柳青向亲信透露她计划辞职的消息](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新力控股集团一日市值暴跌90%！](/content/gnews/46/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [好人](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：为何拜登不强制难民打毒针？](/content/gnews/47/README.md)
+### [G时评：为何拜登不强制难民打毒针？](/content/gnews/48/README.md)
  ` GISELLE`
 
-### [杰作](/content/gnews/48/README.md)
+### [Coinbase与国土安全部签署协议为其提供分析软件](/content/gnews/49/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大议会选举特鲁多险胜 但仍然被迫再次组建少数派政府](/content/gnews/50/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦人共度佳节、共克时艰](/content/gnews/51/README.md)
+ ` 纽约香草山MOS01`
+
+### [杰作](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第059期](/content/gnews/49/README.md)
+### [雅典娜时报-第059期](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [辉瑞疫苗拟将黑手伸向5至11岁的儿童](/content/gnews/50/README.md)
+### [辉瑞疫苗拟将黑手伸向5至11岁的儿童](/content/gnews/54/README.md)
  ` 纽约香草山MOS02`
 
-### [文贵先生、纳瓦罗先生和班农先生9月15日大直播](/content/gnews/51/README.md)
+### [文贵先生、纳瓦罗先生和班农先生9月15日大直播](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [彼得·纳瓦罗：美国应停止美国资本通过美国养老基金流向中国](/content/gnews/52/README.md)
+### [彼得·纳瓦罗：美国应停止美国资本通过美国养老基金流向中国](/content/gnews/56/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国际要闻汇编](/content/gnews/53/README.md)
+### [国际要闻汇编](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/54/README.md)
- ` wenwu`
-
-### [英国知名主持人皮尔斯·摩根的Ofcom裁决是常识的胜利](/content/gnews/55/README.md)
- ` wenwu`
-
-### [自食其果&#8211;加拿大与塔利班称兄道弟的自由党部长落选！](/content/gnews/56/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
-
-### [【小雨专栏】在路上（029）——友谊篇](/content/gnews/57/README.md)
- ` 温哥华扬帆农场`
 
