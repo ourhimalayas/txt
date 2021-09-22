@@ -2,42 +2,29 @@
 ---
 
 
-## 墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547110/)
+## 中共国中秋晚会的前世今生
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1547278/)
 
-#### 整理报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-27.png)
-图片来源：[F to Humanity（Twitter）](https://twitter.com/F2Humanity)
+作者 台湾宝岛农场 Y.M.O
+![](https://assets.gnews.org/wp-content/uploads/2021/09/My-Post-2.jpg)
+9月21日，爆料革命全球各农场一起向所有战友致以中秋节最诚挚的祝福，并且进行了名为“月光托起我们的心愿”的大直播。值此花好月圆之际大家都在表达自己美好的愿望，然而中共也不会错过这个时机，毕竟团圆这个词汇在政治上可以变形成回归，更进一步就是统一。所以各类中秋晚会在各大媒介让人应接不暇，而从晚会设置和出演人员中可以看出中共的统战工作已经深入到什么程度。
 
-9月22日，墨尔本建筑工人的抗议强制接种疫苗已进入第三天，目前维州警方包围了聚集在墨尔本战争纪念馆的数百名抗议者，双方保持对峙。
+今年中秋晚会的大操大办除了统战需要以及巩固自身品牌形象外，其实也正好是央视首次举行中秋晚会30周年。1991年9月22日，CCTV和香港TVB、台湾电视公司一起举行了首届中秋晚会，而第一次中秋晚会中就已经有费玉清和蔡琴两位来自台湾的歌手参加。费玉清在颐和园长廊唱了一首《故乡的女孩》，而蔡琴那次唱的则是《月满西楼》。
 
-周三，抗议者队伍今天一早蜿蜒穿过中心城区，结束以后在战争纪念馆的集会。抗议者已经在墨尔本战争纪念馆停留了一个多小时，大部分时间都坐在台阶上。
+当年可能是因为技术上的考量，中秋晚会采用实况录像的方式呈现。而30年后因为病毒大流行的关系正巧也是采用录播的形式。各类晚会中最扎眼的当然是中共央视电影频道播出的大湾区中秋电影音乐晚会。大湾区这三个字对于不关心时政的人来说也算是第一次呈现在眼前，不得不说一看到电影音乐这四个字我就觉得中共选的角度确实精准，这场晚会绝对能收割一大波靠着当年回忆生活的人们的情怀。香港在整个流行文化当中给人们影响最深的就是电影和音乐，那以电影音乐作为题目当然就能召唤一大波过去年轻的民众为中共所用。
 
-抗议者高呼：“我们是和平的，我们是和平的。”
+整场大湾区晚会首先给人的印象就是廉价。就像文贵先生对于香港房地产的叙述那样，虽然说香港寸土寸金对于普通民众来说是堵高墙，但客观上这也算是对于香港价值的一种衡量方式。大湾区把更多的土地引入就意味着香港的房地产贬值，同样既然是大湾区的晚会那不符合大湾区意志的电影歌曲都不会登场，比如说《赤子》还有《皇后大道东》。在损失了一部分电影歌曲的情况下这些非香港演出人员的加入就像是进一步兑了水，分子减少分母增加最后整体价值就只能是直线下降。
 
-起初现场情况较为平静，警方在数百米外围绕该古迹建立了一个闭环，但现在合拢后以形成一个更紧密的包围圈。
+另外一个印象深刻的点就是林子祥登场唱了一首《敢爱敢做》。正如前文所说这碗迷魂汤确实够狠，因为林子祥绝对是香港乐坛泰斗级的人物，所以很多看上去越资深的听众这次就越容易着了中共的道。先不说别的，只从现场演出的效果来说林子祥的实力绝对让人佩服。而林子祥的实力也恰恰印证了本场晚会的廉价，阿Lam即使是为这种晚会站台起码拿出的是真东西，要知道港圈在中共接手之前是不假唱的，现在也终于开始了假唱。流量和演员不是最主要的原因，这次根本就没有为了真唱调试收音效果，完全只收录人声，意思就是让大家全部假唱最后中共可以统一处理。
 
-警方还没有发射过胡椒喷雾或橡胶子弹，但随着警方与数百名抗议者之间的对峙发展，紧张局势正在加剧。
+大湾区中秋电影音乐晚会视频链接
 
-目前警方正在聚集收紧包围圈，防暴警察冲在一线，准备好防暴盾牌和警棍，身后的警务人员手里拿着胡椒喷雾罐，预备暴力升级。
+[【直播回放FULL】2021大湾区中秋电影音乐晚会：湾区升明月 共享团圆夜 【2021大湾区中秋电影音乐晚会】](https://www.youtube.com/watch?v=3vRGbg3B0jI)
 
-纪念馆的负责人斯蒂芬博沃特说：“纪念馆是神圣的。这不是抗议的地方，在此的任何抗议都是对澳大利亚军人的荣誉记忆的不尊重。”
+* * *
 
-今天的示威活动是建筑工人计划在墨尔本举行抗议活动的第三天，以抗议维州政府将对建筑行业实施的中共病毒疫苗强制接种规定。
-
-州长安德鲁斯周三上午谴责抗议活动是“非法和绝对不可接受的”，警告将在全市部署更多执法人员，并使用“新策略”来驱散集会。
-
-参考链接：
-
-1、[Melbourne protests LIVE: Daniel Andrews condemns CFMEU union demonstrations, Victoria Police brace for more violence, Victoria COVID cases increase (theage.com.au)](https://www.theage.com.au/national/victoria/melbourne-protests-live-police-braced-for-more-violence-as-rioters-set-to-swarm-city-streets-again-20210922-p58tou.html)
-
-2、[Police move in on surrounding protesters gathered at Melbourne’s Shrine of Remembrance | Sky News Australia](https://www.skynews.com.au/australia-news/police-move-in-on-protesters-gathered-at-melbournes-shrine-of-remembrance/news-story/12c423a5f858110b478942d74e161e73)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)

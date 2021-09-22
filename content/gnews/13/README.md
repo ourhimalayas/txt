@@ -2,53 +2,46 @@
 ---
 
 
-## 中巴新核协议可能将世界推向新的军备竞赛和冲突
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1546961/)
+## 联邦吹哨人：白宫故意隐藏疫苗的负面数据
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1547340/)
 
-**【简评：】***中共国倡议的“一带一路”，其目的就是为了**借“一带一路”**向外扩张。**巴基斯坦一直是该项目的旗舰地点。**中共国**通过帮助他们的**国家**基础设施建设，以及各种蓝金黄手段，不断地渗透该国的国家政治，并将中共国的武装力量部署到他们的国家，实现**向外的军事扩张。*
+- 编译：wenwu–西班牙喜悦农场
 
-*巴基斯坦**是当今**世界拥有核武器的9个国家之一**，**帮助**巴基斯坦**的核建设，是帮助**巴基斯坦增加核武器储备**，**继续扩展中共的军事地盘。中共国的野心是，通过**巴基斯坦**可以向南亚、中亚、**西亚（中东）**等国家辐射。**巴基斯坦和中共国签署**的**新的核协议，将把世界推向新的**危险**。*
 
-据《自由新闻》作者：[**Agencies**](https://www.freepressjournal.in/author/agencies)，2021年9月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/parstoday.com_.jpg)巴基斯坦总理：伊姆兰·汗（Imran Khan），图片来源：parstoday.com
-全天候盟友巴基斯坦和中共国签署了一项新的核协议，将把世界推向新的核竞赛和冲突。
+周一，真理项目（[@EricSpracklen](https://twitter.com/EricSpracklen/status/1440103482086756355?s=20))发布了#CovidVaxExposed 系列的第 1 部分
 
-法比安·鲍萨特（Fabien Baussart）在《以色列时报》的一篇博文中说，这是一个危险的新核协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/01-11.jpg)
 
-巴基斯坦原子能委员会（PAEC）和中共国中原工程合作公司于2021年9月8日签署了《深化核能合作框架协议》。
+为卫生与公共服务部门（HHS）工作的联邦政府吹哨人乔迪·奥马利 (Jodi O’Malley) 公开了秘密录音，揭露了有关中共病毒疫苗的真相。
 
-据《以色列时报》报道，该协议是在2021年8月20日的一次高级别会议上敲定的，通过虚拟模式签署，有效期为十年。
+这位为 HHS 工作的急诊医生说：“美国政府不希望被人发现出，中共病毒疫苗就是’狗屎’。他们只想把’狗屎’报告’蹭在垫子下’。”
 
-该协议设想了核技术转让、铀矿开采和加工、核燃料供应和建立研究反应堆，这将有助于巴基斯坦增加其核武器储备。
+在该视频中，一名注册护士被记录下来，她说她见过“很多”接种疫苗的人因副作用而生病，但“没有人写 VAERS 报告，因为写这’狗屎’的东西需要半个小时。”
 
-鲍萨特说，对中共国来说，加强巴基斯坦的核武库为其对抗印度的军事力量的大战略增添了砝码。
+乔·拜登（Joe Biden）在知道很多人对中共病毒疫苗有不良反应的同时，强制要求接种中共病毒疫苗。
 
-据《以色列时报》报道，尽管2021年的协议设想在核能反应堆的建设、维护和废物管理方面进行合作，但如果考虑到巴基斯坦过去的非法核贸易和转移的经验，将技术和材料转移到旨在生产核弹头材料的处理设施中的可能性仍然很高。
+[点击观看真相项目的油管完整视频](https://youtu.be/obdI7tgKLtA)
 
-该协议的广泛范围和内容增加了这些疑虑。
+**简评：**
 
-该协议的主旨是就巴基斯坦未来所有核电项目的建设和维护进行全面合作。
+**这是一个令人震惊的大爆料。本尼·约翰逊是一位知名自媒体主持人，他在自己38.6万粉丝的Twitter上发布了本篇报道，并且众议员乔治亚州议员玛乔丽也[转发了](https://twitter.com/mtgreenee/status/1440313893084033040?s=20)（如图）。我们相信疫苗的真相已经越来越接近曙光。**
 
-四个新的核电站正在酝酿之中 —— 两个位于卡拉奇（K-4/K-5），两个位于穆扎法格尔（M-1/M-2）。这些电厂将采用中共国华龙一号压水反应（HPR）-100技术，以工程采购和施工模式建造。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/02-11.jpg)
 
-据《以色列时报》报道，M-1和M-2厂的厂址已经确定，位于距离旁遮普省穆扎法格尔约32公里的科特阿杜（Tehsil Kot Addu）的塔恩萨-潘杰纳德（Taunsa-Panjnad）连接的运河畔。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/03-7.jpg)
 
-根据协议，除了建造这四座核电站外，中共国将加强参与巴基斯坦所有核电站的运营和维护，包括加油停运、技术升级和备件。补充协议将在不久的将来签署，以加强主要协议的内容。
+**另外，郭文贵先生在上周六（18日）分享一则类似[盖文](https://gettr.com/post/pbha1z3fae)表示：美国FDA于周五（17日）的内部会议上揭露：中共病毒疫苗比病毒还要致命数倍，也就是说每三针就有一个人死亡；以色列老人院的数据显示，打疫苗死亡率高达50%，未打疫苗死亡率为0%。**
 
-据《以色列时报》报道，该协议的五个重要组成部分为巴基斯坦在技术、材料和培训方面获得中共国的核能力提供了前所未有的机会：a) 铀的勘探和开采以及人员培训；b) 终身核燃料供应和初始加注燃料组件及相关核心部件的供应；c) 建立微型中子源反应堆；d) 放射性管理资源和援助，包括核设施退役、放射性废物运输和处置以及辐射防护措施；e) 核技术应用，包括核医学、辐照处理、放射性药物、放射源供应和人力培训。
+**值得一提的是，世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安·佩龙（Christian Perronne）教授于2021年9月8日[表示](https://www.covidglobalnews.live/health/all-vaxxinated-people-must-quarantine-over-the-winter-months-or-risk-serious-illness/)，所有接种中共病毒疫苗的人都必须在冬季隔离，否则可能会患上严重疾病（ADE效应）**
 
-中共国和巴基斯坦的核合作可以追溯到1986年。多年来，中共国利用官方协议向巴基斯坦提供核弹头的技术和材料。
+**以色列医生科比·哈维夫（Kobi Haviv）[告诉](https://canadiantimes.live/health/all-vaxxinated-people-must-quarantine-over-the-winter-months-or-risk-serious-illness/) Channel 13 News：”95%感染中共病毒的重症患者都接种了中共病毒疫苗。完全接种疫苗的人占住院病人的85-90%。我们正在开设越来越多的中共病毒分支机构。（毒）疫苗的有效性正在下降或消失”。**
 
-鲍萨特说，2021年9月的协议大大扩展了这种合作。中共国通过建立更多的工厂、协助铀勘探、核燃料供应、核废料管理和核技术应用，帮助加强巴基斯坦的核产业链。
+（文章仅代表作者观点 与GNEWS无关）
 
-原文连接：[https://www.freepressjournal.in/world/china-pakistan-new-nuclear-deal-may-push-world-towards-renewed-arms-race-conflict](https://www.freepressjournal.in/world/china-pakistan-new-nuclear-deal-may-push-world-towards-renewed-arms-race-conflict)
+新闻来源：[《门户网》](https://www.thegatewaypundit.com/2021/09/breaking-project-veritas-federal-whistleblower-goes-public-government-shoves-adverse-effect-reporting-mat-video/)｜作者：克里斯蒂娜**·**莱拉｜发布时间：**2021**年**9**月**20**日
 
-（本文评论仅代表个人观点）
+* * *
 
-翻译：洛杉矶盘古农场 – TrueSky
-评论：洛杉矶盘古农场 – 明子
-校编：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*发稿：Nuevo唐人*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)

@@ -28,32 +28,32 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [国际形势剧变,疫苗的所有灾难还没有开始](/content/gnews/6/README.md)
+### [当年投资海航的某犹太人现在要跟七哥严肃灭共](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（三）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
+### [打完疫苗的恐惧搁在谁身上都受不了](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [2021年9月15日文贵先生、纳瓦罗先生和班农先生大直播，英文原声全文翻译版](/content/gnews/8/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [西方很多人因为怕死恐惧和相信科学与媒体而打了疫苗](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [定时炸弹：完全接种者感染新变种病毒时会加重病情](/content/gnews/9/README.md)
+### [墨尔本的抗议](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [定时炸弹：完全接种者感染新变种病毒时会加重病情](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [辉瑞儿童疫苗是安全的 VS 没有那么快](/content/gnews/10/README.md)
+### [辉瑞儿童疫苗是安全的 VS 没有那么快](/content/gnews/11/README.md)
  ` wenwu`
 
-### [联邦吹哨人：白宫故意隐藏疫苗的负面数据](/content/gnews/11/README.md)
- ` wenwu`
-
-### [每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中巴新核协议可能将世界推向新的军备竞赛和冲突](/content/gnews/13/README.md)
+### [财政部首次对加密货币交易所实施制裁](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马里科帕郡一选举监事的通话录音遭泄露](/content/gnews/14/README.md)
- ` HimalayaRussia`
+### [联邦吹哨人：白宫故意隐藏疫苗的负面数据](/content/gnews/13/README.md)
+ ` wenwu`
+
+### [每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -67,65 +67,65 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [如果他们可以强迫你接种疫苗，那么还有什么事不能做？](/content/gnews/19/README.md)
+### [青蒿素也许能终结癌症](/content/gnews/19/README.md)
+ ` 澳喜农场`
+
+### [如果他们可以强迫你接种疫苗，那么还有什么事不能做？](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲政府利用伊维菌素来推广疫苗的有效性](/content/gnews/20/README.md)
+### [澳洲政府利用伊维菌素来推广疫苗的有效性](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墨尔本建筑工人走上街头抗议强制接种疫苗](/content/gnews/21/README.md)
+### [墨尔本建筑工人走上街头抗议强制接种疫苗](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/22/README.md)
+### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/23/README.md)
+### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [数百名建筑工人攻击CFMEU总部，抗议强制接种疫苗](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线：美国空军部长警告说 中共在核武器和太空方面对美构成威胁](/content/gnews/25/README.md)
+### [秘翻在线：中共控制的Zoom收购Five9遭司法部审查](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：蚂蚁金服旗下花呗被中共当局接管 纳入央行征信系统](/content/gnews/26/README.md)
+### [秘翻在线：美国空军部长警告说 中共在核武器和太空方面对美构成威胁](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/27/README.md)
+### [秘翻在线：蚂蚁金服旗下花呗被中共当局接管 纳入央行征信系统](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦人共度佳节、共克时艰](/content/gnews/28/README.md)
+### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新中国联邦人共度佳节、共克时艰](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [白宫宣布11月起打完疫苗才能入境美国](/content/gnews/29/README.md)
+### [白宫宣布11月起打完疫苗才能入境美国](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞公司称疫苗对5-11岁儿童安全有效，并向FDA寻求紧急使用授权](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [西媒头条 — 第71期](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/31/README.md)
+### [意学校一工作人员没钱每两天做一次病毒检测，校长叫来宪兵](/content/gnews/32/README.md)
+ ` xiaobaige`
+
+### [“这不是政治！”——上千人聚集在纽约市的“自由集会”反对疫苗护照](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [在新德里再次出现哈瓦那综合症](/content/gnews/32/README.md)
+### [在新德里再次出现哈瓦那综合症](/content/gnews/35/README.md)
  ` Charlie`
 
-### [美国在希腊克里特岛的新基地](/content/gnews/33/README.md)
+### [美国在希腊克里特岛的新基地](/content/gnews/36/README.md)
  ` Charlie`
 
-### [印太地区国家拥抱AUKUS](/content/gnews/34/README.md)
+### [印太地区国家拥抱AUKUS](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [特朗普起诉纽约时报及其侄女](/content/gnews/35/README.md)
+### [特朗普起诉纽约时报及其侄女](/content/gnews/38/README.md)
  ` Charlie`
-
-### [DC大中华时事：中共的数据可信吗](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/38/README.md)
- ` wenwu`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [滴滴出行联合创始人柳青向亲信透露她计划辞职的消息](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国中秋晚会的前世今生](/content/gnews/47/README.md)
+### [国际要闻汇编](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——台海图（新韵）](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——玉楼春•香港首个“完善”后的选举](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共缺粮放风：习近平告诫“不能侥幸、不能折腾”](/content/gnews/51/README.md)
+ ` 儒为`
+
+### [国际形势剧变,疫苗的所有灾难还没有开始](/content/gnews/52/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [DC大中华时事：中共的数据可信吗](/content/gnews/53/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/54/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国中秋晚会的前世今生](/content/gnews/55/README.md)
  ` G-NEWS TAIWAN`
 
-### [银河快讯： 中共收购东京火葬场；恒大危机冲击日本制造商](/content/gnews/48/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/56/README.md)
+ ` wenwu`
+
+### [银河快讯： 中共收购东京火葬场；恒大危机冲击日本制造商](/content/gnews/57/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [北京成为了删减电影的世界中心](/content/gnews/49/README.md)
- ` G-NEWS TAIWAN`
-
-### [亚利桑那州成为第一个对强制疫苗政策提起诉讼的州，多个州将效仿跟进](/content/gnews/50/README.md)
- ` GTV新闻访谈`
-
-### [“民运”和“台独”都被审查 立陶宛建议拒买中共国手机](/content/gnews/51/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [读《道德经》第十一章](/content/gnews/52/README.md)
- ` 纽约香草山MOS03`
-
-### [中共国独立记者黄雪琴、职业病权益倡导者王建兵失联](/content/gnews/53/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
-
-### [墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中](/content/gnews/55/README.md)
- ` 墨尔本雅典娜农场`
-
-### [房子那些事](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [好人](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 

@@ -2,39 +2,17 @@
 ---
 
 
-## 澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547115/)
+## 秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547308/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/地震-澳洲.jpg)
-图片来源：news.abs-cbn.com
+#### 翻译/撰稿：zzballack
 
-**【雅典娜快讯】，紧贴时事脉搏**
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-295.png)        图片来源：Global Trade Magazine
+据《商业内幕》（Business Insider）9月22日报道，在立陶宛的一份政府报告发现中共国的智能手机设备内置文字审查功能后，立陶宛国防部建议其公民避免购买中共国的手机。国防部副部长马吉里斯艾布克维斯（Margiris Abukevicius）说：“我们建议购买新手机时不要买中共国的，并尽快丢掉已经购买的中共国手机。”
 
-9月22日上午，澳大利亚维多利亚州东北部发生6级地震。新南威尔士州各地均有震感，悉尼部分地区的民众感到房屋在摇晃。
+立陶宛国家网络安全机构指出，中共国手机内置文字检测和审查功能，针对的字词包括“解放西藏”、“台独万岁”或“民主运动”等等。尽管该功能在欧洲地区已经关闭，但可以随时被远程开启。报告称，小米手机目前可以审查的关键词有449个，并持续更新中。这并不是小米第一次被发现存在安全问题。去年早些时候，福布斯（Forbes）的一份报告指控小米通过其设备上预装的浏览器记录用户的私人数据。报告进一步指出，小米Mi 10T手机正将加密的手机使用数据传送至一个位于新加坡的服务器。另外，在华为P40手机中也发现了一个安全漏洞。
 
-地震发生在墨尔本东北约180公里的曼斯菲尔德（Mansfield）附近，地震深度为10公里，震级为6.0级，时间在上午9点15分之后。大约15分钟后，又记录到一次较小的震级，地震深度为12公里，震级为 4.0级；上午9点54分，记录到另一次地震，深度为6公里，震级为3.1级。
+立陶宛是世界上少有的对中共强硬的国家之一，尽管面临中共的各种威胁，仍决定与台湾互设代表处。希望其他仍希望与中共继续勾兑的国家看清中共的本质，不要因被其蓝金黄而束手束脚。阵痛是无法避免的，但长痛不如短痛，以免越陷越深而无法挣脱泥潭。
 
-玫瑰湾（Rose Bay）的居民杰克科罗伊（Jack Coroy）当时在浴室里，他发现房间在晃动。这只持续了大约10秒钟，他以为自己“疯了”。
-
-地震发生时，曼利的居民（Manly resident）汉娜·威廉姆斯（Hannah Williams）正在给她刚出生的婴儿喂奶。起初，她以为自己睡眠不足或血压低，但当她看见窗户开始摇晃时，马上从大楼撤离了出来。当时很多曼利的居民也站在街上。
-
-新南威尔士州消防和救援组织表示，在发生地震后，救援人员被派往悉尼的亚历山大、曼利和霍恩斯比，以及该州西部的达博等地。至今没有收到新南威尔士州的重大结构损坏报告。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-
-1、[Victoria earthquake felt across Sydney, ACT, Tasmania and South Australia (smh.com.au)](https://www.smh.com.au/national/nsw/victorian-earthquake-felt-across-sydney-20210922-p58tqh.html)
-
-2、[Magnitude 6.0 quake strikes near Melbourne | ABS-CBN News](https://news.abs-cbn.com/overseas/09/22/21/magnitude-60-quake-strikes-near-melbourne)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Lithuania asks its citizens to get rid of Chinese smartphones over concerns of censoring “Free Tibet”, Taiwan and other keywords](https://www.businessinsider.in/tech/mobile/news/lithuania-asks-its-citizens-to-get-rid-of-chinese-smartphones-over-concerns-of-censoring-free-tibet-taiwan-and-other-keywords/articleshow/86418216.cms)
