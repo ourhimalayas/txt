@@ -2,34 +2,41 @@
 ---
 
 
-## 专家说FDA疫苗有害，但NIH院长相信加强针将获批
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547721/)
+## 震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547750/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/FreedomRally-1200x900-5.jpg)网络图片
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-70.png)
+图片来自网络
 
-在9月17日FDA顾问团会议上，医生们指出数据证实辉瑞的新冠疫苗的风险高于好处。两名FDA官员和一写其他的顶尖科学家最近断言，现有证据还不支持鼓励所有美国人使用新冠加强针。
+9月22日（周三），澳大利亚的墨尔本连续第三天爆发反封锁与反强制接种疫苗示威游行。当日，墨尔本市中心区部署了各种防爆警力。据最新网络信息显示，示威者遭到警方暴力驱离，场面俨如香港抗争运动时的情景。警方不仅使用了催泪弹和胡椒喷雾，并且还发射了橡皮子弹！有示威者中弹，遍身是血，伤势严重，生死不明。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-24.png)
+当天早上，身着防暴装备的维州警察就已在墨尔本市区巡逻，驱散抗议人群。中午时分，抗议者聚集在战争纪念馆（Shrine Of Remembrance）前，与警方形成对峙局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-6.png)
+抗议人群坐在战争纪念馆的台阶上高唱澳洲国歌，还有人用扩音器高喊： “我们在这里是和平的，我们没有武器……我们需要你们，就像你们需要我们一样”， 呼吁警方不要再阻止人们抗议，称抗议和游行是基本人权。
 
-医生告诉FDA说，新冠疫苗伤害的人比拯救的人还多。病毒免疫学家和病毒学家杰西卡·罗斯博士说，“安全性和有效性是开发和管理供人类使用的生物产品的基石。”
+但随后，警方包围了战争纪念馆门前的抗议人群。数小时后，警察开始驱散抗议人群，并且有网络视频显示，警方向人群发射了橡皮子弹！
 
-罗斯说：“FDA、CDC 和政策制定者的公共卫生官员有责任应对这些异常现象，并确认 VAERS 数据中出现的明确风险信号，来应对新冠疫苗产品使用和风险问题。在我看来，这些风险大于与这些产品带来的任何益处，尤其是对儿童而言”。
+澳洲《先驱太阳报》的报道称，警方从周三早晨开始抓捕抗议者。位于伊丽莎白街（Elizabeth St）的建筑业、林业、矿业与能源工会（CFMEU）总部大楼外，每一个经过这栋建筑的行人都会遭到警方盘查。在上午10点前，就已经有3人被捕。
 
-新冠病毒早期治疗基金的创始人史蒂夫·基尔希说，我们被引导相信疫苗是完全安全的，但事实并非如此。例如，在辉瑞6个月的试验报告中，治疗组的心脏病发作次数是（对照组）的四倍。这不是坏运气，VAERS显示，与任何其他疫苗相比，注射这些疫苗之后心脏病发生的频率是其他疫苗的71倍。治疗组共有20人死亡——安慰剂14人死亡。
+有媒体报道称，当日警方共抓捕了200多人。有大量网络信息显示，警方在驱散人群的过程中使用了各种暴力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片6-2.png)
+在前一天的周二，数千人在墨尔本市中心示威游行，同样遭到警方驱离。据维州警方称，当日共逮捕了62人，期间有三名警察受伤。
 
-周四，FDA的科学家在9月15日发布的一份长达23页的报告中对辉瑞新冠疫苗加强针注射的必要性表示怀疑。
+值得注意的是，大多澳洲媒体在报道此事件时，着重强调的是游行示威中所谓的“暴力”行为。然而网络上却不见示威游行者所谓“暴力”行为的图片和视频，反倒全是警方暴力镇压的信息。
 
-美国国家卫生研究院（NIH）院长弗朗西斯·柯林斯博士说，即使在美国食品和药物管理局（FDA）咨询委员会于9月17日以压倒性多数拒绝了向公众发放辉瑞公司和BioNTech公司的新冠疫苗加强针的提议后，如果在未来几周内不向其他美国人推荐新冠疫苗加强针，他将感到 “惊讶”。
+爆料革命骨干“木兰传奇”在盖特上发文一针见血地指出，媒体着力报道游行示威中的暴力行为，在舆论上让警察镇压合理合法化，却忽略报道示威者的真实诉求：开放伊维菌素为处方药；羟氯喹对中共病毒有效；反对强制打疫苗；反对不打疫苗不能上岗。
 
-**简评：**FDA的官员及有正义感的科学家已经用投票和报告表明了自己专业的意见和态度，但是位高权重的柯林斯博士否定了他们的意见，会继续推进加强针的计划，FDA的存在还有意义吗？
+谁曾想过，在民主国家澳大利亚，会上演俨如香港反送中运动时警方暴力驱赶示威者的场面。澳大利亚究竟怎么会变成这样？墨尔本人民追求病毒和疫苗真相究竟打到了谁的痛处？
 
-**原文链接：**[Experts Tell FDA Vaccines ‘Harm More People Than They Save,’ But NIH Director Believes Boosters Will Be Approved in Coming Weeks](https://childrenshealthdefense.org/defender/fda-vaccines-harm-people-nih-boosters-will-be-approved/)
+注：本文仅代表作者观点
 
-* * *
+**新闻链接：**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[https://gettr.com/post/pbxpzodcda](https://gettr.com/post/pbxpzodcda)
 
+[https://www.dailymail.co.uk/news/article-10016021/Police-fire-rubber-bullets-anti-vaxxer-tradies-took-Melbournes-war-memorial.html](https://www.dailymail.co.uk/news/article-10016021/Police-fire-rubber-bullets-anti-vaxxer-tradies-took-Melbournes-war-memorial.html)
 
-编辑：【英国伦敦喜庄园编辑部】
+[https://gettr.com/post/pbx7jzdcbd](https://gettr.com/post/pbx7jzdcbd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://twitter.com/AIbiuld/status/1440604229593300996](https://twitter.com/AIbiuld/status/1440604229593300996)

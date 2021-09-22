@@ -28,31 +28,31 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥说— 第15期](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [因为共产党的整个危机世界的经济大厦随时要崩塌](/content/gnews/7/README.md)
+### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [当年投资海航的某犹太人现在要跟七哥严肃灭共](/content/gnews/8/README.md)
+### [七哥说— 第15期](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [因为共产党的整个危机世界的经济大厦随时要崩塌](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [万般辛苦唯有自赎](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/10/README.md)
+### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [FDA顾问小组反对向美国人接种辉瑞疫苗加强针](/content/gnews/12/README.md)
+### [美国对币安的调查扩大到审查可能的内幕交易](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [诺奖获得者表示拒绝接种疫苗](/content/gnews/13/README.md)
+### [FDA顾问小组反对向美国人接种辉瑞疫苗加强针](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [财政部首次对加密货币交易所实施制裁](/content/gnews/14/README.md)
+### [诺奖获得者表示拒绝接种疫苗](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/15/README.md)
@@ -67,22 +67,22 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|中秋随想](/content/gnews/19/README.md)
+### [有声|交通事故背后的疫苗灾难](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|债务问题或引发经济灾难](/content/gnews/20/README.md)
+### [有声|中秋随想](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|香港职工会联盟宣布解散](/content/gnews/21/README.md)
+### [有声|债务问题或引发经济灾难](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [共产法西斯在澳大利亚的兴风作浪，利用疫苗把人分等级](/content/gnews/22/README.md)
+### [有声|香港职工会联盟宣布解散](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [共产法西斯在澳大利亚的兴风作浪，利用疫苗把人分等级](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/24/README.md)
+### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [“爆料革命将成为拯救人类最重要的声音”](/content/gnews/25/README.md)
@@ -121,11 +121,11 @@
 ### [疯了！中共以为赢了全世界，世界左联共同抵制马克思学院](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [专家说FDA疫苗有害，但NIH院长相信加强针将获批](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [墨尔本血腥的一天——警察暴力镇压抗议活动](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
+### [专家说FDA疫苗有害，但NIH院长相信加强针将获批](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [印太地区国家拥抱AUKUS](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
