@@ -37,14 +37,14 @@
 ### [新疆监狱300多人集体死亡与灭共3.0有啥关联](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/10/README.md)
+### [联邦吹哨人：白宫故意隐藏疫苗的负面数据](/content/gnews/9/README.md)
  ` wenwu`
 
-### [墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
+### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
+ ` wenwu`
 
 ### [每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -67,23 +67,23 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墨尔本建筑工人走上街头抗议强制接种疫苗](/content/gnews/19/README.md)
+### [如果他们可以强迫你接种疫苗，那么还有什么事不能做？](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/20/README.md)
+### [澳洲政府利用伊维菌素来推广疫苗的有效性](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/21/README.md)
+### [墨尔本建筑工人走上街头抗议强制接种疫苗](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [数百名建筑工人攻击CFMEU总部，抗议强制接种疫苗](/content/gnews/22/README.md)
+### [数百名建筑工人攻击CFMEU总部，抗议强制接种疫苗](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视频| GTV新闻访谈节目组祝战友们中秋快乐](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [视频| 新中国联邦战友共度中秋](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -103,29 +103,29 @@
 ### [秘翻在线：佛州州长新闻秘书因反驳主流媒体无良报道被推特禁言 杰森·米勒：盖特绝不如此](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：中共的数据可信吗](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [在新德里再次出现哈瓦那综合症](/content/gnews/31/README.md)
+ ` Charlie`
 
-### [银河快讯： 中共收购东京火葬场；恒大危机冲击日本制造商](/content/gnews/32/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [美国在希腊克里特岛的新基地](/content/gnews/32/README.md)
+ ` Charlie`
 
-### [“民运”和“台独”都被审查 立陶宛建议拒买中共国手机](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国独立记者黄雪琴、职业病权益倡导者王建兵失联](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感](/content/gnews/35/README.md)
+### [印太地区国家拥抱AUKUS](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在港上市内地银行股跌幅扩大](/content/gnews/36/README.md)
+### [特朗普起诉纽约时报及其侄女](/content/gnews/34/README.md)
+ ` Charlie`
+
+### [DC大中华时事：中共的数据可信吗](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [银河快讯： 中共收购东京火葬场；恒大危机冲击日本制造商](/content/gnews/36/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [“民运”和“台独”都被审查 立陶宛建议拒买中共国手机](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国港口积压的货船达到创纪录水平](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [SEC再次对中概股的投资人发出警告](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
+### [中共国独立记者黄雪琴、职业病权益倡导者王建兵失联](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -160,27 +160,27 @@
 ### [读《道德经》第十一章](/content/gnews/49/README.md)
  ` 纽约香草山MOS03`
 
-### [房子那些事](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [好人](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：加密交易不是法外之地 美财政部将首次对加密货币交易所进行制裁](/content/gnews/52/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：新书爆料：普京直面拜登称“他是个杀人犯”](/content/gnews/53/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国陆军利用“撒旦主义”强推疫苗接种](/content/gnews/54/README.md)
+### [澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [读《道德经》第十章](/content/gnews/55/README.md)
- ` 纽约香草山MOS03`
+### [墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中](/content/gnews/51/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运](/content/gnews/56/README.md)
- ` GTV新闻访谈`
+### [房子那些事](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：为何拜登不强制难民打毒针？](/content/gnews/57/README.md)
- ` GISELLE`
+### [好人](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：加密交易不是法外之地 美财政部将首次对加密货币交易所进行制裁](/content/gnews/54/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：新书爆料：普京直面拜登称“他是个杀人犯”](/content/gnews/55/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [在港上市内地银行股跌幅扩大](/content/gnews/56/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国陆军利用“撒旦主义”强推疫苗接种](/content/gnews/57/README.md)
+ ` 墨尔本雅典娜农场`
 

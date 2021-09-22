@@ -2,36 +2,42 @@
 ---
 
 
-## 好人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1547098/)
+## 墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547110/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-292.png)
-[图片来源](https://kknews.cc/society/vkxejkl.html)
+#### 整理报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-27.png)
+图片来源：[F to Humanity（Twitter）](https://twitter.com/F2Humanity)
 
-战友不幸感染中共病毒，农场和战友都积极的给予帮助和支持，最近总能看见这样的信息，一方面为染上病毒的战友感到难过，一方面又感动于积极付出的战友，我们素未谋面，却何其有幸得到他们的帮助。
+9月22日，墨尔本建筑工人的抗议强制接种疫苗已进入第三天，目前维州警方包围了聚集在墨尔本战争纪念馆的数百名抗议者，双方保持对峙。
 
-我相信这个社会好人居多，我曾经遇到过很多很好的人，受到过很多无私的帮助，至今铭记在心，心怀感激，有的时候甚至因为没法回报他人而心生愧疚，惴惴不安。
+周三，抗议者队伍今天一早蜿蜒穿过中心城区，结束以后在战争纪念馆的集会。抗议者已经在墨尔本战争纪念馆停留了一个多小时，大部分时间都坐在台阶上。
 
-那一年，我刚考上驾照，就偷偷开着我爸干活用的小皮卡，送我同学回乡下老家。那是我第一次出远门，刚好下过大雨，路面有点湿滑，一路胆战心惊，却又兴奋无比。
+抗议者高呼：“我们是和平的，我们是和平的。”
 
-果然，经验还是非常重要的，乡下的路一般都比较窄，有比较多的沟渠，去的路上，会车时，不小心轮胎卡路边缝里，在对方的司机合力帮助下，才把车给弄出来，好一通感谢，才又上路。
+起初现场情况较为平静，警方在数百米外围绕该古迹建立了一个闭环，但现在合拢后以形成一个更紧密的包围圈。
 
-同学到家后，我得自己一人回家，心情更加澎湃，有一段路是泥泞的上坡路，下过雨更是难走，果不其然，我把车直接开沟里了，这一次，我根本看不清轮胎状况，心想完了，赶紧拦了路边的车，请人帮忙。
+警方还没有发射过胡椒喷雾或橡胶子弹，但随着警方与数百名抗议者之间的对峙发展，紧张局势正在加剧。
 
-拦下的第一辆车，司机就下车帮忙，车上两个人，一起帮忙弄了好一会，没辙。后来，他打电话给了家里人，对方直接开了辆大卡车，拿了根超大的木头柱子，这架势一下子把我震住了。
+目前警方正在聚集收紧包围圈，防暴警察冲在一线，准备好防暴盾牌和警棍，身后的警务人员手里拿着胡椒喷雾罐，预备暴力升级。
 
-后来，又是拿柱子撬轮胎，又是用大卡车拖车，对方四个人干得热火朝天，从天亮一直到晚上天黑，车都开起了灯，我甚至闻到了饭菜香，最终，车总算是从泥沟里给拉了出来。
+纪念馆的负责人斯蒂芬博沃特说：“纪念馆是神圣的。这不是抗议的地方，在此的任何抗议都是对澳大利亚军人的荣誉记忆的不尊重。”
 
-现在回忆起来，内心仍然百感交集，一方面很感动，一方面又感觉非常非常的遗憾，我应该要人家的联系方式，过后好好感谢人家，当时，只说了一堆谢谢的话，就那样的离开了。那会儿，车损坏的心慌，在同学面前逞强后丢人的难为情，陌生人花费那么多的人力物力帮助我的感谢、感动，愧疚和不安等等，各种情绪交织，占据了大脑，没法好好思考，也丢失了对他人应有的敬意和回报。
+今天的示威活动是建筑工人计划在墨尔本举行抗议活动的第三天，以抗议维州政府将对建筑行业实施的中共病毒疫苗强制接种规定。
 
-生活中还有很多的例子，比如，陌生的阿姨主动载我去站台；火车上，陌生人帮忙放行李；很有活力的奶奶，在下雨天把雨衣让给我；地铁站，带我七拐八拐找路的好心人……更不用说还有来自我们的家人朋友的关怀与帮助。
+州长安德鲁斯周三上午谴责抗议活动是“非法和绝对不可接受的”，警告将在全市部署更多执法人员，并使用“新策略”来驱散集会。
 
-所以，你看，这个社会好人真的很多，平凡而又伟大，有时顺手帮人拾个东西就能感到愉悦，快乐有时就是那么简单而纯粹。我们帮助他人，又受助于他人，这一点就足够让我爱这个世界。
+参考链接：
 
-所以，为着这些好人，为了更多的好人，我们要努力传播真相，灭了那共匪。
+1、[Melbourne protests LIVE: Daniel Andrews condemns CFMEU union demonstrations, Victoria Police brace for more violence, Victoria COVID cases increase (theage.com.au)](https://www.theage.com.au/national/victoria/melbourne-protests-live-police-braced-for-more-violence-as-rioters-set-to-swarm-city-streets-again-20210922-p58tou.html)
 
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+2、[Police move in on surrounding protesters gathered at Melbourne’s Shrine of Remembrance | Sky News Australia](https://www.skynews.com.au/australia-news/police-move-in-on-protesters-gathered-at-melbournes-shrine-of-remembrance/news-story/12c423a5f858110b478942d74e161e73)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

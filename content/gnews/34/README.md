@@ -2,23 +2,19 @@
 ---
 
 
-## 中共国独立记者黄雪琴、职业病权益倡导者王建兵失联
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547138/)
+## 特朗普起诉纽约时报及其侄女
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1547352/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Unknown-5.jpg)中共国独立记者黄雪琴、职业病权益倡导者王建兵失联 网络图片
-关注中共国人权形势的《维权网》21日发布消息，中共国女权工作者、独立记者黄雪琴及职业病权益倡导者王建兵周日起失联。黄雪琴原定20日经香港赴英国进修，王建兵为她送行。他们可能被广州市海珠区警方控制。王建兵有可能被以煽动颠覆国家政权罪调查拘留，主要原因经常与朋友在家里聚会。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09221.jpg)
+美国前总统唐纳德·特朗普已起诉他的侄女玛​​丽·特朗普和《纽约时报》以及该报的三名记者，指责他们参与阴谋以获取机密文件并进行“个人报复”。美国媒体对此进行了报道。
 
-黄雪琴曾任《新快报》、《南都周刊》调查记者，关注性别、平权、官员贪污、企业污染、弱势群体等议题，并发动中共国女记者对性骚扰调查。王建兵则长期关注青少年教育及成长事宜，于 2018 年起关注职业病工人权益。他与黄雪琴均是中共国MeToo运动的重要支持者。
+昨天在纽约达切斯县提起的诉讼中提到了三名记者的姓名 ：苏珊·克雷格、大卫·巴斯托和罗素·布特纳 ， 他们在 2019 年获得普利策奖正是基于特朗普的机密财政和财务文件的那篇报道. 而这些是前总统从未想公开的文件。
 
-这种失联就等于“被秘密抓捕”或监视居住。中共国经常发生这种事件。有一定影响力、还没有闭嘴的社会活动人士，都会被强硬对待，随时消失，甚至被灭口。在中共国，不能有自由的声音。自信的大国哪怕对一点微弱的声音都很敏感，必须全部禁声。
+特朗普的孙女被指控将机密文件交给记者。56岁的玛丽特朗普  是唐纳德特朗普兄弟弗雷德特朗普的女儿 ，她向报纸提供了特朗普的财务信息，同样也包括其大亨父亲弗雷德特朗普的纳税申报表。
 
-新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-09212021055928.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-09212021055928.html)
+免责申明：本文只代表译者观点，与Gnews无关
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/09/22/trump-fa-causa-al-nyt-e-sua-nipote-per-reportage-su-tasse\_ecf059d7-00a7-4a77-97ff-b70d447e275c.html](https://www.ansa.it/sito/notizie/topnews/2021/09/22/trump-fa-causa-al-nyt-e-sua-nipote-per-reportage-su-tasse_ecf059d7-00a7-4a77-97ff-b70d447e275c.html)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

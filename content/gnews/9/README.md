@@ -2,17 +2,46 @@
 ---
 
 
-## 秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547308/)
+## 联邦吹哨人：白宫故意隐藏疫苗的负面数据
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1547340/)
 
-#### 翻译/撰稿：zzballack
+- 编译：wenwu–西班牙喜悦农场
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-295.png)        图片来源：Global Trade Magazine
-据《商业内幕》（Business Insider）9月22日报道，在立陶宛的一份政府报告发现中共国的智能手机设备内置文字审查功能后，立陶宛国防部建议其公民避免购买中共国的手机。国防部副部长马吉里斯艾布克维斯（Margiris Abukevicius）说：“我们建议购买新手机时不要买中共国的，并尽快丢掉已经购买的中共国手机。”
 
-立陶宛国家网络安全机构指出，中共国手机内置文字检测和审查功能，针对的字词包括“解放西藏”、“台独万岁”或“民主运动”等等。尽管该功能在欧洲地区已经关闭，但可以随时被远程开启。报告称，小米手机目前可以审查的关键词有449个，并持续更新中。这并不是小米第一次被发现存在安全问题。去年早些时候，福布斯（Forbes）的一份报告指控小米通过其设备上预装的浏览器记录用户的私人数据。报告进一步指出，小米Mi 10T手机正将加密的手机使用数据传送至一个位于新加坡的服务器。另外，在华为P40手机中也发现了一个安全漏洞。
+周一，真理项目（[@EricSpracklen](https://twitter.com/EricSpracklen/status/1440103482086756355?s=20))发布了#CovidVaxExposed 系列的第 1 部分
 
-立陶宛是世界上少有的对中共强硬的国家之一，尽管面临中共的各种威胁，仍决定与台湾互设代表处。希望其他仍希望与中共继续勾兑的国家看清中共的本质，不要因被其蓝金黄而束手束脚。阵痛是无法避免的，但长痛不如短痛，以免越陷越深而无法挣脱泥潭。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/01-11.jpg)
 
-新闻来源：[Lithuania asks its citizens to get rid of Chinese smartphones over concerns of censoring “Free Tibet”, Taiwan and other keywords](https://www.businessinsider.in/tech/mobile/news/lithuania-asks-its-citizens-to-get-rid-of-chinese-smartphones-over-concerns-of-censoring-free-tibet-taiwan-and-other-keywords/articleshow/86418216.cms)
+为卫生与公共服务部门（HHS）工作的联邦政府吹哨人乔迪·奥马利 (Jodi O’Malley) 公开了秘密录音，揭露了有关中共病毒疫苗的真相。
+
+这位为 HHS 工作的急诊医生说：“美国政府不希望被人发现出，中共病毒疫苗就是’狗屎’。他们只想把’狗屎’报告’蹭在垫子下’。”
+
+在该视频中，一名注册护士被记录下来，她说她见过“很多”接种疫苗的人因副作用而生病，但“没有人写 VAERS 报告，因为写这’狗屎’的东西需要半个小时。”
+
+乔·拜登（Joe Biden）在知道很多人对中共病毒疫苗有不良反应的同时，强制要求接种中共病毒疫苗。
+
+[点击观看真相项目的油管完整视频](https://youtu.be/obdI7tgKLtA)
+
+**简评：**
+
+**这是一个令人震惊的大爆料。本尼·约翰逊是一位知名自媒体主持人，他在自己38.6万粉丝的Twitter上发布了本篇报道，并且众议员乔治亚州议员玛乔丽也[转发了](https://twitter.com/mtgreenee/status/1440313893084033040?s=20)（如图）。我们相信疫苗的真相已经越来越接近曙光。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/02-11.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/03-7.jpg)
+
+**另外，郭文贵先生在上周六（18日）分享一则类似[盖文](https://gettr.com/post/pbha1z3fae)表示：美国FDA于周五（17日）的内部会议上揭露：中共病毒疫苗比病毒还要致命数倍，也就是说每三针就有一个人死亡；以色列老人院的数据显示，打疫苗死亡率高达50%，未打疫苗死亡率为0%。**
+
+**值得一提的是，世界卫生组织欧洲免疫咨询专家组前副总裁克里斯蒂安·佩龙（Christian Perronne）教授于2021年9月8日[表示](https://www.covidglobalnews.live/health/all-vaxxinated-people-must-quarantine-over-the-winter-months-or-risk-serious-illness/)，所有接种中共病毒疫苗的人都必须在冬季隔离，否则可能会患上严重疾病（ADE效应）**
+
+**以色列医生科比·哈维夫（Kobi Haviv）[告诉](https://canadiantimes.live/health/all-vaxxinated-people-must-quarantine-over-the-winter-months-or-risk-serious-illness/) Channel 13 News：”95%感染中共病毒的重症患者都接种了中共病毒疫苗。完全接种疫苗的人占住院病人的85-90%。我们正在开设越来越多的中共病毒分支机构。（毒）疫苗的有效性正在下降或消失”。**
+
+（文章仅代表作者观点 与GNEWS无关）
+
+新闻来源：[《门户网》](https://www.thegatewaypundit.com/2021/09/breaking-project-veritas-federal-whistleblower-goes-public-government-shoves-adverse-effect-reporting-mat-video/)｜作者：克里斯蒂娜**·**莱拉｜发布时间：**2021**年**9**月**20**日
+
+* * *
+
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)

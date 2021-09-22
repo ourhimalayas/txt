@@ -2,9 +2,9 @@
 ---
 
 
-## 数百名建筑工人攻击CFMEU总部，抗议强制接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1546895/)
+## 我与邪恶福奇在白宫战情室的首次摊牌与对决
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1547197/)
 
-9/20/2021 澳大利亚9号新闻报道称，数百名建筑工人攻击位于墨尔本的CFMEU总部，抗议建筑业的强制疫苗政策。
+彼得·纳瓦罗博士新书《在川普时代》：我与邪恶福奇在白宫战情室的首次摊牌与对决。纳瓦罗博士美东9月21日发盖特短视频介绍书中关于福奇和中共病毒大疫情的内容。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
