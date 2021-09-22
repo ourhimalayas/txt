@@ -2,17 +2,17 @@
 ---
 
 
-## 秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547308/)
+## 在新德里再次出现哈瓦那综合症
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1547380/)
 
-#### 翻译/撰稿：zzballack
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09222.png)
+又出现了一个哈瓦那综合症案例，在导演威廉伯恩斯之后，这一次被袭击的是美国中央情报局。这一事件最近发生在新德里的针对阿富汗危机的访问期间。据称，该队的经纪人同时也有许多美国海外官员感到不适，包括迷失方向、头晕目眩。
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-295.png)        图片来源：Global Trade Magazine
-据《商业内幕》（Business Insider）9月22日报道，在立陶宛的一份政府报告发现中共国的智能手机设备内置文字审查功能后，立陶宛国防部建议其公民避免购买中共国的手机。国防部副部长马吉里斯艾布克维斯（Margiris Abukevicius）说：“我们建议购买新手机时不要买中共国的，并尽快丢掉已经购买的中共国手机。”
+关于攻击的起源有很多假设，有些确实很奇怪。最受认可的人认为，这些是由敌方秘密服务部门（尤其是俄罗斯人）使用的监视系统产生的微波。前段时间美国副总统卡马拉哈里斯在去越南旅行期间也出现了这样的综合征而被迫改变特定计划。
 
-立陶宛国家网络安全机构指出，中共国手机内置文字检测和审查功能，针对的字词包括“解放西藏”、“台独万岁”或“民主运动”等等。尽管该功能在欧洲地区已经关闭，但可以随时被远程开启。报告称，小米手机目前可以审查的关键词有449个，并持续更新中。这并不是小米第一次被发现存在安全问题。去年早些时候，福布斯（Forbes）的一份报告指控小米通过其设备上预装的浏览器记录用户的私人数据。报告进一步指出，小米Mi 10T手机正将加密的手机使用数据传送至一个位于新加坡的服务器。另外，在华为P40手机中也发现了一个安全漏洞。
+免责申明：本文只代表译者观点，与Gnews无关
 
-立陶宛是世界上少有的对中共强硬的国家之一，尽管面临中共的各种威胁，仍决定与台湾互设代表处。希望其他仍希望与中共继续勾兑的国家看清中共的本质，不要因被其蓝金黄而束手束脚。阵痛是无法避免的，但长痛不如短痛，以免越陷越深而无法挣脱泥潭。
+原文链接：[https://www.corriere.it/america-cina/2021/09/21/migranti-aborto-texas-bilico-confine-diritti-umani-4b259542-1ab4-11ec-8604-8b77798ec285.shtml](https://www.corriere.it/america-cina/2021/09/21/migranti-aborto-texas-bilico-confine-diritti-umani-4b259542-1ab4-11ec-8604-8b77798ec285.shtml)
 
-新闻来源：[Lithuania asks its citizens to get rid of Chinese smartphones over concerns of censoring “Free Tibet”, Taiwan and other keywords](https://www.businessinsider.in/tech/mobile/news/lithuania-asks-its-citizens-to-get-rid-of-chinese-smartphones-over-concerns-of-censoring-free-tibet-taiwan-and-other-keywords/articleshow/86418216.cms)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

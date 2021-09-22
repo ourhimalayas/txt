@@ -37,14 +37,14 @@
 ### [西方很多人因为怕死恐惧和相信科学与媒体而打了疫苗](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [8万人签请愿书呼吁澳药品监管机构公布疫苗文件](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [密西西比州护士组织反疫苗集会](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [墨尔本的抗议](/content/gnews/11/README.md)
+### [澳洲一名医护人员因为拒绝接种疫苗被停职](/content/gnews/9/README.md)
  ` 澳喜农场`
+
+### [8万人签请愿书呼吁澳药品监管机构公布疫苗文件](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [密西西比州护士组织反疫苗集会](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [财政部首次对加密货币交易所实施制裁](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -103,40 +103,40 @@
 ### [新中国联邦人共度佳节、共克时艰](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [西媒头条 — 第71期](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [意学校一工作人员没钱每两天做一次病毒检测，校长叫来宪兵](/content/gnews/32/README.md)
- ` xiaobaige`
-
-### [“这不是政治！”——上千人聚集在纽约市的“自由集会”反对疫苗护照](/content/gnews/33/README.md)
+### [联合国大会首日 海地重申支持台湾入联](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [定时炸弹：完全接种者感染新变种病毒时会加重病情](/content/gnews/34/README.md)
+### [逃离阿富汗的女运动员选择在澳大利亚定居](/content/gnews/32/README.md)
+ ` 日本东京方舟农场`
+
+### [中共镰刀下的香港财团](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西媒头条 — 第71期](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/35/README.md)
+### [意学校一工作人员没钱每两天做一次病毒检测，校长叫来宪兵](/content/gnews/35/README.md)
+ ` xiaobaige`
+
+### [“这不是政治！”——上千人聚集在纽约市的“自由集会”反对疫苗护照](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [定时炸弹：完全接种者感染新变种病毒时会加重病情](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [在新德里再次出现哈瓦那综合症](/content/gnews/36/README.md)
- ` Charlie`
-
-### [美国在希腊克里特岛的新基地](/content/gnews/37/README.md)
- ` Charlie`
-
-### [印太地区国家拥抱AUKUS](/content/gnews/38/README.md)
+### [印太地区国家拥抱AUKUS](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
+### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/40/README.md)
  ` 银河勇气之星`
 
-### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/40/README.md)
+### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [雇员被要求看脸书视频接受疫苗知识并因拒绝接种遭解雇](/content/gnews/41/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [盖特(GETTR)将推出翻译和直播功能并保证每个人的自由言论](/content/gnews/42/README.md)
+### [雇员被要求看脸书视频接受疫苗知识并因拒绝接种遭解雇](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [在港上市内地银行股跌幅扩大](/content/gnews/43/README.md)
@@ -151,36 +151,36 @@
 ### [滴滴出行联合创始人柳青向亲信透露她计划辞职的消息](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国际要闻汇编](/content/gnews/47/README.md)
+### [中共国网络自由度排名连续7年垫底](/content/gnews/47/README.md)
+ ` 日本东京方舟农场`
+
+### [国际要闻汇编](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/48/README.md)
+### [墙内要闻汇编](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——台海图（新韵）](/content/gnews/49/README.md)
+### [樱花灭共诗——台海图（新韵）](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——玉楼春•香港首个“完善”后的选举](/content/gnews/50/README.md)
+### [墨尔本的抗议](/content/gnews/51/README.md)
+ ` 澳喜农场`
+
+### [樱花灭共诗——玉楼春•香港首个“完善”后的选举](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共缺粮放风：习近平告诫“不能侥幸、不能折腾”](/content/gnews/51/README.md)
+### [中共缺粮放风：习近平告诫“不能侥幸、不能折腾”](/content/gnews/53/README.md)
  ` 儒为`
 
-### [国际形势剧变,疫苗的所有灾难还没有开始](/content/gnews/52/README.md)
+### [国际形势剧变,疫苗的所有灾难还没有开始](/content/gnews/54/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [特朗普起诉纽约时报及其侄女](/content/gnews/53/README.md)
+### [在新德里再次出现哈瓦那综合症](/content/gnews/55/README.md)
  ` Charlie`
 
-### [DC大中华时事：中共的数据可信吗](/content/gnews/54/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [美国在希腊克里特岛的新基地](/content/gnews/56/README.md)
+ ` Charlie`
 
-### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价](/content/gnews/56/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国中秋晚会的前世今生](/content/gnews/57/README.md)
- ` G-NEWS TAIWAN`
+### [特朗普起诉纽约时报及其侄女](/content/gnews/57/README.md)
+ ` Charlie`
 
