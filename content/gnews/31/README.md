@@ -2,28 +2,49 @@
 ---
 
 
-## 北约军事首脑对于中共对欧洲港口的投资感到恐慌
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547786/)
+## 秘翻在线：有报告称武汉科学家计划于2018年用冠状病毒感染蝙蝠
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547851/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/FreedomRally-1200x900-3-1.jpg)网络图片
+#### 文章撰写：寶寶
 
-北约高级指挥官警告，中共的国有企业在两个欧洲港口拥有核心利益。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/sdng-nearby-immune-to-infection.jpg)
 
-有问题的两个欧洲港口是西班牙的瓦伦西亚和意大利的瓦多。这些港口——据报道它们已经在中共的渗透下妥协——对北约来说是关键的战略港湾。北约秘书长说：“中共离我们越来越近。我们在北极地区发现他们的活动。我们看见他们正在欧洲投资关键的基础设施，我们当然也看见中共在网络空间的运作。”
+据《每日镜报》（Daily Mirror）9月22日报道，武汉的科学家曾计划将空气传播的冠状病毒释放到中共国蝙蝠体内，以此为蝙蝠接种以预防可能传染给人类的疾病。
 
-北约制作了一份报告来研究最近中共扩张主义的发展。中共正在把大量的外汇储备投入到国外的港口上发展基础设施。这是中共国家主席习近平的”一带一路”计划的一部分。进军欧洲是北京当局控制全球贸易路线图谋的一部分。中共国的公司——中远海运港口和招商局港口控股，一直在地中海港口进行大量投资。”在其底层，很大程度上有地缘政治在起支撑作用。”
+2018年新披露的文件中显示，有一项拨款提案，将蝙蝠病毒的新型刺突蛋白纳米粒子释放到中国云南蝙蝠洞穴，该纳米级粒子可以穿透皮肤。
 
-**简评：**欧洲在对抗中共渗透方面还有很长的路要走，任重道远。
+这些文件由Drastic组织发布，Drastic是一个由来自世界各地的科学家组成的基于网络的团队，他们致力于调查Covid病毒的起源。
 
-原文链接：[‘Coming closer’ China panics NATO military chiefs with investment in European ports](https://www.express.co.uk/news/world/1494454/china-news-latest-european-ports-valencia-vado-nato-alarm?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%253A+daily-express-world-news+%2528Express+%253A%253A+World+Feed%2529)
+该组织声称这些文件是由一位不愿透露姓名的举报人提供的。
 
-* * *
+他们说，生态健康联盟（EcoHealth Alliance）与武汉病毒研究所 (WIV) 合作，以开展“高级和危险”的人类致病性蝙蝠冠状病毒研究。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+这些文件是2018年提交给国防高级研究计划局 (DARPA) 的一项拨款提案。
 
+据称彼得·达扎克（Peter Daszak）和生态健康联盟 (EHA) 提议将武汉病毒学研究所收集的致命性嵌合蝙蝠冠状病毒注射到人源化和“蝙蝠化”小鼠中。
 
-编辑：【英国伦敦喜庄园编辑部】
+该组织表示，该提案（名为“DEFUSE”）最终被拒绝资助全部资金，但部分资助的大门依然敞开。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+当时拒批的理由是：“很明显，彼得·达扎克（Peter Daszak）领导的项目可能会使当地社区处于危险之中”，并警告该团队没有正确考虑增强病毒或通过空气释放疫苗的危险性。
+
+该组织在一份声明中说：拨款提案包括一些已经通过科学论文公开的或其他从未公开过的研究。
+
+包括使用雾化病毒为野生蝙蝠接种疫苗，以及进一步研究可能直接产生SARS-CoV-2的已发表和未发表的毒株。
+
+“这些提案文件还表明，生态健康联盟在涉及国家利​​益的问题上深度参与武汉病毒研究所的合作。”
+
+世界卫生组织对冠状病毒大爆发起源的调查并未排除任何可能性。
+
+今年2月，一个由世卫组织和中共国专家组成的调查团表示，由武汉病毒研究所实验室泄漏导致该病毒传染人类是“极不可能”的。
+
+但世卫组织随后补充说，“所有假设仍然摆在桌面上”，当时世卫组织信誓旦旦要进行第二阶段的调查。
+
+世卫组织突发卫生事件规划执行主任迈克·瑞安（Mike Ryan）此前表示：“关于病毒的起源，世卫组织认为了解这种导致全球大爆发的病毒起源极为重要。
+
+对于病毒起源有很多假设，谭德塞应世界卫生大会的要求派出的国际团队进行了多项研究和调查。
+
+所有的假设仍然摆在桌面上。
+
+参考文章：[**Wuhan scientists ‘planned to release coronaviruses into bats’ in 2018, claims report**](https://www.mirror.co.uk/news/world-news/wuhan-scientists-planned-release-coronaviruses-25041385)
+
+本文仅代表作者本人观点，不代表Gnews平台

@@ -2,9 +2,17 @@
 ---
 
 
-## 如果他们可以强迫你接种疫苗，那么还有什么事不能做？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1547364/)
+## 【 #G时新闻 】推特支付8.09亿美元和解股东集团诉讼案
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1547681/)
 
-9/14/2021 塔克·卡尔森：我们生活在集中化技术监控与大规模社会整合交织在一起的时代。如果他们可以强迫你接种不需要的疫苗，那么还有什么事他们不能做？
+播报：小苹果lily 制作：北美小哥
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+🔥 – 推特公司 (TWTR.N) 周一表示，将支付 8.095 亿美元来解决股东集体诉讼，该诉讼 指控这家社交媒体公司 在人们使用其平台的 频率方面欺骗投资者。
+
+🔥 – Twitter 股价下跌 3.8%，降至 60.11 美元。推特表示，预计将在今年第四季度 使用手头现金支付 .结算金额，并在第三季度记录相关费用。
+
+原文引用：[https://gettr.com/post/pbvjjmb49b](https://gettr.com/post/pbvjjmb49b)
+
+* * *
+
+编辑/发稿 ctt
