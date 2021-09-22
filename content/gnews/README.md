@@ -103,28 +103,28 @@
 ### [股东集体诉讼案，推特公司以8亿美元寻求和解](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [DC每日热点0922](/content/gnews/31/README.md)
+### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [福奇资助的武汉病毒研究所60个项目，均与中共军方合作](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新冠疫苗已在美国杀死15万人，其中包括574名儿童](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [已证实：武汉科学家在疫情前18个月向蝙蝠洞释放冠状病毒](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0922](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：有报告称武汉科学家计划于2018年用冠状病毒感染蝙蝠](/content/gnews/32/README.md)
+### [秘翻在线：有报告称武汉科学家计划于2018年用冠状病毒感染蝙蝠](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [因言获罪，香港19岁学生组织发言人被捕](/content/gnews/33/README.md)
+### [因言获罪，香港19岁学生组织发言人被捕](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [日英确认将加快下一代战机发动机开发合作](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [疯了！中共以为赢了全世界，世界左联共同抵制马克思学院](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [专家说FDA疫苗有害，但NIH院长相信加强针将获批](/content/gnews/38/README.md)
+### [日英确认将加快下一代战机发动机开发合作](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
@@ -151,11 +151,11 @@
 ### [东京股市警惕恒大风险开盘大跌](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [9/22/21 香港快讯 中秋夜飞鹅山现FAITH字样灯牌](/content/gnews/47/README.md)
- ` 英喜-粵語組`
+### [立陶宛呼吁抵制中共国制造的手机](/content/gnews/47/README.md)
+ ` HimalayaRussia`
 
-### [密码保护：雾化双氧水预防和治疗新冠](/content/gnews/48/README.md)
- ` Mr. Miles Guo's News Briefing`
+### [9/22/21 香港快讯 中秋夜飞鹅山现FAITH字样灯牌](/content/gnews/48/README.md)
+ ` 英喜-粵語組`
 
 ### [秘翻在线 :世界银行窜改数据以帮助中共国吸引更多投资](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
@@ -175,12 +175,12 @@
 ### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/55/README.md)
+### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/55/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/56/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/57/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [疯了！中共以为赢了全世界，世界左联共同抵制马克思学院](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 

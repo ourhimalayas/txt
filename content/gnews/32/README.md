@@ -2,49 +2,39 @@
 ---
 
 
-## 秘翻在线：有报告称武汉科学家计划于2018年用冠状病毒感染蝙蝠
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547851/)
+## 福奇资助的武汉病毒研究所60个项目，均与中共军方合作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1548269/)
 
-#### 文章撰写：寶寶
+![](https://assets.gnews.org/wp-content/uploads/2021/09/092203.jpg)图片来自网络
+有关美国国家过敏和传染病研究所(NIAID)所长、总统首席医疗顾问安东尼·福奇 (Anthony Fauci)（这位疯狂的医生）的最新消息曝光。消息来自澳大利亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/sdng-nearby-immune-to-infection.jpg)
+我们在2020年首次注意到武汉病毒研究所，并在4月注意到该研究所用活体动物进行实验。
 
-据《每日镜报》（Daily Mirror）9月22日报道，武汉的科学家曾计划将空气传播的冠状病毒释放到中共国蝙蝠体内，以此为蝙蝠接种以预防可能传染给人类的疾病。
+我们也知道，中共国的所有病毒学工作都与中共国军方有关，因此中共国在这方面的任何工作都与中共国军方有关。
 
-2018年新披露的文件中显示，有一项拨款提案，将蝙蝠病毒的新型刺突蛋白纳米粒子释放到中国云南蝙蝠洞穴，该纳米级粒子可以穿透皮肤。
+《天空新闻》的莎莉·马克森(Sharri Markson)即将出版一本书，这是她研究安东尼·福奇 (Anthony Fauci) 的成果。几个小时前，她在天空新闻上指出以下内容：
 
-这些文件由Drastic组织发布，Drastic是一个由来自世界各地的科学家组成的基于网络的团队，他们致力于调查Covid病毒的起源。
+*我发现他（福奇）的机构资助了武汉病毒研究所的60个项目。*
 
-该组织声称这些文件是由一位不愿透露姓名的举报人提供的。
+*我发现他早在2012年就写了一篇论文，认为运用基因操纵技术，可以使冠状病毒变得更加危险和更容易传播的功能获得研究，值得冒大流行的风险。*
 
-他们说，生态健康联盟（EcoHealth Alliance）与武汉病毒研究所 (WIV) 合作，以开展“高级和危险”的人类致病性蝙蝠冠状病毒研究。
+*福奇甚至资助了这项研究，他的机构与中共国军方合作资助了武汉病毒研究所的冠状病毒研究。*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/092204.jpg)
+这是来自《天空新闻》的报道。
 
-这些文件是2018年提交给国防高级研究计划局 (DARPA) 的一项拨款提案。
+在大流行的最初几个月，福奇博士从未与川普总统分享过任何这些信息。
 
-据称彼得·达扎克（Peter Daszak）和生态健康联盟 (EHA) 提议将武汉病毒学研究所收集的致命性嵌合蝙蝠冠状病毒注射到人源化和“蝙蝠化”小鼠中。
+[新闻链接](https://www.thegatewaypundit.com/2021/09/breaking-dr-fauci-funded-60-projects-wuhan-institute-virology-conjunction-chinese-military/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
-该组织表示，该提案（名为“DEFUSE”）最终被拒绝资助全部资金，但部分资助的大门依然敞开。
+***编辑：【英国伦敦喜庄园编辑部】***
 
-当时拒批的理由是：“很明显，彼得·达扎克（Peter Daszak）领导的项目可能会使当地社区处于危险之中”，并警告该团队没有正确考虑增强病毒或通过空气释放疫苗的危险性。
+*翻译: 希望|校对:Julia Win*
 
-该组织在一份声明中说：拨款提案包括一些已经通过科学论文公开的或其他从未公开过的研究。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-包括使用雾化病毒为野生蝙蝠接种疫苗，以及进一步研究可能直接产生SARS-CoV-2的已发表和未发表的毒株。
 
-“这些提案文件还表明，生态健康联盟在涉及国家利​​益的问题上深度参与武汉病毒研究所的合作。”
+编辑：【英国伦敦喜庄园编辑部】
 
-世界卫生组织对冠状病毒大爆发起源的调查并未排除任何可能性。
-
-今年2月，一个由世卫组织和中共国专家组成的调查团表示，由武汉病毒研究所实验室泄漏导致该病毒传染人类是“极不可能”的。
-
-但世卫组织随后补充说，“所有假设仍然摆在桌面上”，当时世卫组织信誓旦旦要进行第二阶段的调查。
-
-世卫组织突发卫生事件规划执行主任迈克·瑞安（Mike Ryan）此前表示：“关于病毒的起源，世卫组织认为了解这种导致全球大爆发的病毒起源极为重要。
-
-对于病毒起源有很多假设，谭德塞应世界卫生大会的要求派出的国际团队进行了多项研究和调查。
-
-所有的假设仍然摆在桌面上。
-
-参考文章：[**Wuhan scientists ‘planned to release coronaviruses into bats’ in 2018, claims report**](https://www.mirror.co.uk/news/world-news/wuhan-scientists-planned-release-coronaviruses-25041385)
-
-本文仅代表作者本人观点，不代表Gnews平台
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
