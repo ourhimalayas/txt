@@ -2,24 +2,31 @@
 ---
 
 
-## 联合国大会首日 海地重申支持台湾入联
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547629/)
+## 墨尔本血腥的一天——警察暴力镇压抗议活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547657/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/FreedomRally-1200x900-4-1.jpg)网络图片
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-111.jpg)图片来源：推特
+**整理报道：**翼族
 
-**编辑摘要：**据台湾新头壳（Newtalk） 9月22日报道，第76届联合国大会在21日至27日举办总辩论。开会首日，台湾邦交国帕劳总统惠恕仁（Surangel Whipps Jr.）在演说中声援台湾，并敦促联合国体系接受台湾，让台湾人民有发声机会；此外，海地外长、原代理总理乔瑟夫（Claude Joseph）也重申，“支持台湾重新融入联合国运作。”
+墨尔本，身穿橙色背心的建筑工人们连续第三天进行游行抗议活动，反对维州政府强制性接种疫苗的规定。一段视频显示一名抗议者被警察打碎头骨，流血不止。
 
-对此，台湾外交部响应表示，在促进全球应对共同挑战当中，“台湾能帮忙！”
+维州当局于周一宣布关闭墨尔本的建筑行业两周，以强迫建筑工人接种疫苗。愤怒的建筑工人们举行了连续三天的抗议活动，并与警方发生多次冲突。
 
-新闻参考链接：[聯合國大會首日 海地重申支持台灣入聯](https://newtalk.tw/news/view/2021-09-22/639785%EF%BC%88%E2%9A%A0%EF%B8%8F%E7%B9%81%E4%BD%93%E3%80%8B%E7%AE%80%E4%BD%93%EF%BC%89)
+周三，推特上的大量视频片段显示建筑工人的抗议活动遭到警察的野蛮镇压，警方向示威者发射橡皮子弹。
 
-* * *
+一名男子躺在地上流着血，说他的名字是凯尔·米切尔（Kyle Mitchell）：“我的头骨裂开了。”传言这位伤者不治身亡。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+警方逮捕了一名母亲，只因为她举着抗议标语，而她哭泣的孩子则在旁边紧紧抓住她。
 
+建筑工人们发誓将会持续进行抗议活动，直到维州政府改变其强制接种疫苗的规定。
 
-编辑：【英国伦敦喜庄园编辑部】
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
