@@ -37,23 +37,23 @@
 ### [西方很多人因为怕死恐惧和相信科学与媒体而打了疫苗](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [墨尔本的抗议](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [定时炸弹：完全接种者感染新变种病毒时会加重病情](/content/gnews/10/README.md)
+### [8万人签请愿书呼吁澳药品监管机构公布疫苗文件](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [辉瑞儿童疫苗是安全的 VS 没有那么快](/content/gnews/11/README.md)
- ` wenwu`
+### [密西西比州护士组织反疫苗集会](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [墨尔本的抗议](/content/gnews/11/README.md)
+ ` 澳喜农场`
 
 ### [财政部首次对加密货币交易所实施制裁](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联邦吹哨人：白宫故意隐藏疫苗的负面数据](/content/gnews/13/README.md)
+### [辉瑞儿童疫苗是安全的 VS 没有那么快](/content/gnews/13/README.md)
  ` wenwu`
 
-### [每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [联邦吹哨人：白宫故意隐藏疫苗的负面数据](/content/gnews/14/README.md)
+ ` wenwu`
 
 ### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -85,22 +85,22 @@
 ### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：中共控制的Zoom收购Five9遭司法部审查](/content/gnews/25/README.md)
+### [秘翻在线：中共国连续七年在互联网自由度排名榜上垫底](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国空军部长警告说 中共在核武器和太空方面对美构成威胁](/content/gnews/26/README.md)
+### [秘翻在线：中共控制的Zoom收购Five9遭司法部审查](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：蚂蚁金服旗下花呗被中共当局接管 纳入央行征信系统](/content/gnews/27/README.md)
+### [秘翻在线：美国空军部长警告说 中共在核武器和太空方面对美构成威胁](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/28/README.md)
+### [秘翻在线：蚂蚁金服旗下花呗被中共当局接管 纳入央行征信系统](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦人共度佳节、共克时艰](/content/gnews/29/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [白宫宣布11月起打完疫苗才能入境美国](/content/gnews/30/README.md)
+### [新中国联邦人共度佳节、共克时艰](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [西媒头条 — 第71期](/content/gnews/31/README.md)
@@ -112,20 +112,20 @@
 ### [“这不是政治！”——上千人聚集在纽约市的“自由集会”反对疫苗护照](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/34/README.md)
+### [定时炸弹：完全接种者感染新变种病毒时会加重病情](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [在新德里再次出现哈瓦那综合症](/content/gnews/35/README.md)
+### [在新德里再次出现哈瓦那综合症](/content/gnews/36/README.md)
  ` Charlie`
 
-### [美国在希腊克里特岛的新基地](/content/gnews/36/README.md)
+### [美国在希腊克里特岛的新基地](/content/gnews/37/README.md)
  ` Charlie`
 
-### [印太地区国家拥抱AUKUS](/content/gnews/37/README.md)
+### [印太地区国家拥抱AUKUS](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [特朗普起诉纽约时报及其侄女](/content/gnews/38/README.md)
- ` Charlie`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -169,18 +169,18 @@
 ### [国际形势剧变,疫苗的所有灾难还没有开始](/content/gnews/52/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [DC大中华时事：中共的数据可信吗](/content/gnews/53/README.md)
+### [特朗普起诉纽约时报及其侄女](/content/gnews/53/README.md)
+ ` Charlie`
+
+### [DC大中华时事：中共的数据可信吗](/content/gnews/54/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/54/README.md)
+### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国中秋晚会的前世今生](/content/gnews/55/README.md)
+### [每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价](/content/gnews/56/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国中秋晚会的前世今生](/content/gnews/57/README.md)
  ` G-NEWS TAIWAN`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/56/README.md)
- ` wenwu`
-
-### [银河快讯： 中共收购东京火葬场；恒大危机冲击日本制造商](/content/gnews/57/README.md)
- ` 日本银河系农场-阿尔法星球`
 

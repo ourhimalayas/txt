@@ -2,96 +2,223 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1547193/)
+## 每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1547301/)
 
-- **编译：wenwu–西班牙喜悦农场**
+*作者：GSeries*
 
-
-您若想了解全文报导内容，请点击标题链接
-
-（爱惜生命 远离疫苗）
-
-**1. [Peter Daszak捐助WIV的另一项中共病毒研究](https://thenationalpulse.com/news/fauci-funds-another-ecohealth-alliance-study/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip96.png)
-
-据《国家脉动》2021年9月21日电，由生态健康联盟–与武汉病毒研究所（WIV）合作进行蝙蝠冠状病毒研究的有争议的组织–的几位[科学家](https://www.jstor.org/stable/3842715)（包括Peter Daszak、王林发）撰写的新研究—“[评估东南亚蝙蝠类SARS冠状病毒外溢风险的策略](https://www.medrxiv.org/content/10.1101/2021.09.09.21263359v1)”—是由NIAID的Fauci从国家卫生研究院（NIH）拨款出来，并用于资助Daszak领导的小组与武汉病毒研究所的”长期合作”进行激烈审查之后，进行的。
-
-Daszak和Fauci都对这项由中共WIV[管理](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)的研究撒了谎，因为通过信息自由法案（FOIA）获得的Fauci的大量电子邮件显示，WIV正在进行生物武器（中共病毒）研究，而被删除的文章显示，尽管Daszak知晓后表示不同意，但该实验室并没有因此中断；Daszak与武汉实验室和中国共产党有着广泛关系，所以福奇NIAID才选择资助他所负责的生态健康联盟。
-
-值得一提的是，该研究的摘要认为中共病毒（Covid-19)“很可能”源自蝙蝠，并[总结](https://twitter.com/Quicktake/status/1438831418411524096?s=20)了蝙蝠类SARS的冠状病毒感染发生的频率“比以前认识的更高”（几乎不可能会感染人类的病毒，竟然开始感染人了）：“可能来自蝙蝠的生物武器引起的新疾病（如SARS、MERS、SADS和COVID-19）二十年来扰乱了全球健康和经济。
-
-有证据表明，一些与蝙蝠类SARS的冠状病毒（SARSr-CoVs）可以直接感染人，而且它们的传播迭代能力比以前认识的要频繁。一种新型病毒的每一次感染迭代都代表着进化适应和进一步传播的机会；因此，量化这种”隐性”迭代的程度，可能有助于确定预防计划的目标。”
-
-彭博新闻社就该研究的发现[采访了](https://www.bloomberg.com/news/articles/2021-09-14/thousands-of-covid-like-infections-show-risk-of-next-pandemic)Daszak：”这不是在寻找病毒，并说’这种生物武器是对本国和世界其他国家来说是会带来一个高风险。这是关于在中国打开了地区的感染风险，并试图阻止他们被感染，帮助这些社区的人们减少公共健康威胁。”
-
-**2. [美国将在11月初允许来自中国等33国完成疫苗接种的航空旅客入境](https://cn.reuters.com/article/us-air-travel-restriction-plan-0921-idCNKBS2GH02F)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-22T091532.323.png)
-
-据《路透社》2021年9月20日电，白宫周一（20日）表示，美国将于11月初允许来自中国、印度、英国和许多其他欧洲国家等33个国家的已完成疫苗接种的航空旅客入境，届时将取消从去年初开始的大流行相关严格旅行限制；白宫负责协调新冠响应措施的官员Jeff Zients在宣布上述决定时，并未给出确切的开始日期，只是说“11月初”。
-
-白宫表示，联邦卫生部门将决定哪些疫苗符合条件，包括那些没有得到美国监管机构批准的疫苗是否符合条件。外国公民在旅行前需要出示疫苗接种证明，抵达时不需要隔离；疫苗政策将有一些例外，包括还没有资格接种疫苗的儿童；Zients表示，新系统将包括采集有关前往美国旅客的接触者追踪数据，使疾控中心能够联系到接触过病毒的旅客。
-
-**3. [VAERS 在一年内报告了，近1.5人死亡，超过70万出现副作用](https://childrenshealthdefense.org/defender/vaers-cdc-covid-deaths-vaccine-injuries/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-22T091654.241.png)
-
-据《捍卫者》2021年9月20日电，美国疾病控制与预防中心 (CDC) 9 月 17 日发布的数据显示，在 2020 年 12 月 14 日至 2021 年 9 月 10 日期间，共有[70万1561起](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=CAT&amp;EVENTS=ON&amp;VAX=COVID19)中共病毒疫苗接种后的不良事件报告给疫苗不良事件报告系统（VAERS）。数据共包括有[1万4925 份死亡报告](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)——比前一周增加了419份；有[同期9万1523起重伤报告](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON)，包括死亡报告，比前一周增加了 3352 起；不包括在 VAERS 中提交的“[外国报告](https://wonder.cdc.gov/wonder/help/vaers/VAERS%20Advisory%20Guide.htm)”，那么其中有[55万9462起不良事件](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;STATE=NOTFR)，其中包括有[6756](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;STATE=NOTFR)[起死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR)，2020 年 12 月 14 日至 2021 年 9 月 10 日期间，美国报告了[6亿7564万3073人出现了副作用](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;SERIOUS=ON&amp;STATE=NOTFR)。
-
-截至 9 月 10 日，美国报告的有6756例死亡病例中，[12% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=1)在接种疫苗后 24 小时内，[17% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2DCHECKED=ON&amp;V2DHIGH=2)在接种疫苗后 48 小时内，[31% 发生](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes&amp;STATE=NOTFR&amp;V2OCHECKED=ON&amp;V2OLOW=0&amp;V2OHIGH=2)在接种疫苗后 48 小时内出现症状的人群中；截至 9 月 10 日，美国已接种 3.782 亿剂中共病毒疫苗。其中[包括](https://ourworldindata.org/grapher/covid-vaccine-doses-by-manufacturer?country=~USA)：2.16 亿剂[辉瑞](https://childrenshealthdefense.org/defender/cheryl-cohen-dies-rare-brain-disease-second-dose-pfizer-covid-shot/)、1.48 亿剂[Moderna](https://childrenshealthdefense.org/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/)和 1500 万剂[强生](https://childrenshealthdefense.org/defender/fda-warning-jj-vaccine-serious-rare-autoimmune-disorder/)（J&J）。
-
-本周美国** 12 **至** ****17 **岁儿童的数据显示：
-
-- 总共有[1万9827 起](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)不良事件（VAERS），其中[1169起被评为重症](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;SERIOUS=ON&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，[19 起已报告死亡](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;DIED=Yes&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)。19 人死亡中有两人是自杀。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
 
-最近的死亡报告涉及两名患者 [VAERS ID [1655100](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1655100) ]，他们在服用第二剂辉瑞后死亡，其中包括一名 13 岁的女性。
 
-最近报道的其他死亡事件包括一名 15 岁男孩（VAERS ID [1498080](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1498080)），他之前患有 COVID，于 2021 年 5 月被诊断出患有心肌病，并在 6 月 18 日接受第二剂辉瑞疫苗四天后死亡，当时他倒地不起。足球场并进入室性心动过速；和一名 13 岁的女孩（VAERS ID [1505250](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1505250)），她在接受第一剂辉瑞（Pfizer）后患心脏病而死亡。
+# ***今日摘要***
 
-- 有[2972 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)12 至 17 岁儿童过敏反应的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，其中 99% 的病例
-归因于[辉瑞的疫苗](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXTYPES=COVID-19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)。
-- 有[488 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)心肌炎和心包炎（心脏炎症）[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，其中[481 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)归因于辉瑞的疫苗。
-- 有[106 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)关于凝血障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR&amp;WhichAge=range&amp;LOWAGE=12&amp;HIGHAGE=18)，所有病例均归因于辉瑞。
-
-
-本周美国** ****VAERS **数据（从** 2020 **年** 12 **月** 14 **日到** ****2021 **年** 9 **月** 10 **日）所有年龄段的数据显示：
-
-- 20% 的死亡与心脏疾病有关。
-- 54% 的死者是男性，42% 是女性，其余的死亡报告不包括死者的性别。
-- 在[平均年龄](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;VAX=COVID19&amp;DIED=Yes)死亡的为72.9。
-- 截至 9 月 10 日，有[3650 名孕妇](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=DIS&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Abnormal+labour+%2810000153%29&amp;SYMPTOMS%5B%5D=Abnormal+labour+affecting+foetus+%2810000154%29&amp;SYMPTOMS%5B%5D=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5B%5D=Abortion+%2810000210%29&amp;SYMPTOMS%5B%5D=Abortion+complete+%2810061614%29&amp;SYMPTOMS%5B%5D=Abortion+early+%2810052846%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5B%5D=Exposure+during+pregnancy+%2810073513%29&amp;SYMPTOMS%5B%5D=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5B%5D=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5B%5D=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5B%5D=Foetal+death+%2810055690%29&amp;SYMPTOMS%5B%5D=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5B%5D=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5B%5D=Foetal+exposure+during+pregnancy+%2810071404%29&amp;SYMPTOMS%5B%5D=Foetal+growth+abnormality+%2810077582%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5B%5D=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5B%5D=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5B%5D=Haemorrhage+%2810055798%29&amp;SYMPTOMS%5B%5D=Haemorrhage+in+pregnancy+%2810018981%29&amp;SYMPTOMS%5B%5D=Placental+calcification+%2810082008%29&amp;SYMPTOMS%5B%5D=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5B%5D=Placental+insufficiency+%2810035138%29&amp;SYMPTOMS%5B%5D=Placental+necrosis+%2810035139%29&amp;SYMPTOMS%5B%5D=Placental+transfusion+syndrome+%2810035146%29&amp;SYMPTOMS%5B%5D=Placenta+praevia+%2810035119%29&amp;SYMPTOMS%5B%5D=Placenta+praevia+haemorrhage+%2810035121%29&amp;SYMPTOMS%5B%5D=Pregnancy+test+positive+%2810036575%29&amp;SYMPTOMS%5B%5D=Premature+baby+%2810036590%29&amp;SYMPTOMS%5B%5D=Premature)报告了与中共病毒疫苗相关的不良事件，包括 1076 名[流产或早产](https://www.medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Aborted+pregnancy+%2810000209%29&amp;SYMPTOMS%5B%5D=Abortion+%2810000210%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+%2810000234%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+complete+%2810061616%29&amp;SYMPTOMS%5B%5D=Abortion+spontaneous+incomplete+%2810061617%29&amp;SYMPTOMS%5B%5D=Abortion+threatened+%2810000242%29&amp;SYMPTOMS%5B%5D=Foetal-maternal+haemorrhage+%2810016871%29&amp;SYMPTOMS%5B%5D=Foetal+cardiac+disorder+%2810052088%29&amp;SYMPTOMS%5B%5D=Foetal+damage+%2810016852%29&amp;SYMPTOMS%5B%5D=Foetal+death+%2810055690%29&amp;SYMPTOMS%5B%5D=Foetal+disorder+%2810061157%29&amp;SYMPTOMS%5B%5D=Foetal+distress+syndrome+%2810016855%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+abnormal+%2810051139%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+%2810058322%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+deceleration+abnormality+%2810074636%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+decreased+%2810051136%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+disorder+%2810061158%29&amp;SYMPTOMS%5B%5D=Foetal+heart+rate+increased+%2810051138%29&amp;SYMPTOMS%5B%5D=Foetal+hypokinesia+%2810068461%29&amp;SYMPTOMS%5B%5D=Foetal+malformation+%2810060919%29&amp;SYMPTOMS%5B%5D=Foetal+malpresentation+%2810058013%29&amp;SYMPTOMS%5B%5D=Foetal+monitoring+abnormal+%2810071507%29&amp;SYMPTOMS%5B%5D=Foetal+movement+disorder+%2810077576%29&amp;SYMPTOMS%5B%5D=Foetal+movements+decreased+%2810016866%29&amp;SYMPTOMS%5B%5D=Foetal+non-stress+test+abnormal+%2810071516%29&amp;SYMPTOMS%5B%5D=Placental+disorder+%2810035132%29&amp;SYMPTOMS%5B%5D=Pregnancy+induced+hypertension+%2810036563%29&amp;SYMPTOMS%5B%5D=Premature+baby+%2810036590%29&amp;SYMPTOMS%5B%5D=Premature+baby+death+%2810076700%29&amp;SYMPTOMS%5B%5D=Premature+delivery+%2810036595%29&amp;SYMPTOMS%5B%5D=Premature+labour+%2810036600%29&amp;SYMPTOMS%5B%5D=Premature+rupture+of+membranes+%2810036603%29&amp;SYMPTOMS%5B%5D=Premature+separation+of+placenta+%2810036608%29&amp;SYMPTOMS%5B%5D=Stillbirth+%2810042062%29&amp;SYMPTOMS%5B%5D=Ultrasound+foetal+abnormal+%2810077578%29&amp;VAX=COVID19&amp;STATE=NOTFR)报告。
-- 有[2783案件贝尔氏麻痹的](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;STATE=NOTFR)报告，有50％是由于[辉瑞](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)接种，42％至[Moderna的](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)和8％至[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Bell%27s+palsy+%2810004223%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
-- 有593个[吉兰-巴雷综合征](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;STATE=NOTFR)的报告，有39％[归因于辉瑞](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)，33％至[Moderna的](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)和27％至[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS=Guillain-Barre+syndrome+%2810018767%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
-- [有14万9681份过敏性反应的报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;STATE=NOTFR)，有42%归因于[辉瑞的疫苗](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)，51％归因于[Moderna的](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)和7％归因于[强生公司](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMSSMQ=21&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
-- 有[9260 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)关于凝血障碍的[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;STATE=NOTFR)。其中，辉瑞有[3968 份](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)[报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)，Moderna 有[3376 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)，强生有[1866 份报告](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Cerebral+venous+sinus+thrombosis+%2810083037%29&amp;SYMPTOMS%5B%5D=Cerebral+venous+thrombosis+%2810008138%29&amp;SYMPTOMS%5B%5D=Coagulopathy+%2810009802%29&amp;SYMPTOMS%5B%5D=Deep+vein+thrombosis+%2810051055%29&amp;SYMPTOMS%5B%5D=Disseminated+intravascular+coagulation+%2810013442%29&amp;SYMPTOMS%5B%5D=Embolism+%2810061169%29&amp;SYMPTOMS%5B%5D=Idiopathic+thrombocytopenic+purpura+%2810021245%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenia+%2810083842%29&amp;SYMPTOMS%5B%5D=Immune+thrombocytopenic+purpura+%2810074667%29&amp;SYMPTOMS%5B%5D=Ischaemic+stroke+%2810061256%29&amp;SYMPTOMS%5B%5D=Myocardial+infarction+%2810028596%29&amp;SYMPTOMS%5B%5D=Petechiae+%2810034754%29&amp;SYMPTOMS%5B%5D=Pulmonary+embolism+%2810037377%29&amp;SYMPTOMS%5B%5D=Purpura+%2810037549%29&amp;SYMPTOMS%5B%5D=Thrombocytopenia+%2810043554%29&amp;SYMPTOMS%5B%5D=Thrombosis+%2810043607%29&amp;SYMPTOMS%5B%5D=Vasculitis+%2810047115%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)。
-- 有[2452 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;STATE=NOTFR)心肌炎和心包炎的报告，其中[1545 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于辉瑞，[806](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=MODERNA&amp;STATE=NOTFR)[例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=PFIZER/BIONTECH&amp;STATE=NOTFR)归因于 Moderna，[93 例](https://medalerts.org/vaersdb/findfield.php?TABLE=ON&amp;GROUP1=AGE&amp;EVENTS=ON&amp;SYMPTOMS%5B%5D=Myocarditis+%2810028606%29&amp;SYMPTOMS%5B%5D=Pericarditis+%2810034484%29&amp;VAX=COVID19&amp;VAXMAN=JANSSEN&amp;STATE=NOTFR)归因于强生疫苗。
+1. **[凯尔-巴斯：习近平希望恒大破产帮助降低房价](https://www.zerohedge.com/markets/kyle-bass-warns-president-xi-wants-lower)**
+2. **[前军事官员：米利与中国将军的通话可能危及美国国家安全](https://www.zerohedge.com/geopolitical/milleys-calls-chinese-general-could-have-jeopardized-us-national-security-former)**
+3. **[中共秘密「三战」计划 福州311基地被曝光](https://www.ntdtv.com/gb/2021/09/21/a103223023.html)**
+4. **[武汉科学家在大流行前18个月计划向蝙蝠洞释放冠状病毒](https://www.thegatewaypundit.com/2021/09/confirmed-wuhan-scientists-planned-release-coronaviruses-bat-caves-18-months-pandemic/)**
+5. **[习近平强监管 刘鹤因滴滴出行必须自我批评](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210921-%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%BC%BA%E7%9B%91%E7%AE%A1-%E5%88%98%E9%B9%A4%E5%9B%A0%E6%BB%B4%E6%BB%B4%E5%87%BA%E8%A1%8C%E5%BF%85%E9%A1%BB%E8%87%AA%E6%88%91%E6%89%B9%E8%AF%84)**
 
 
-**4. [专家告诉FDA，疫苗”伤害的人比拯救的人多”，NIH主任认为自己话事](https://childrenshealthdefense.org/defender/fda-vaccines-harm-people-nih-boosters-will-be-approved/)**
+# 重要事件
 
-据《捍卫者》2021年9月20日电，美国食品和药物管理局的疫苗和相关生物制品咨询委员会（VRBPAC）建议FDA批准辉瑞疫苗只为65岁及以上的人和某些高风险人群提供“再来一针”的申请；在与“福克斯新闻周日”的谈话中，NIH主任柯林斯驳斥了FDA的决定，他好似自以为可以代表了中共病毒、疫苗和”科学“，并相信FDA不够“臣服”。
+- **[09. 22：ZeroHedge 凯尔-巴斯：习近平希望恒大爆破产帮助降低房价 Kyle Bass: President Xi Wants Evergrande Blowup To Help Lower Housing Prices](https://www.zerohedge.com/markets/kyle-bass-warns-president-xi-wants-lower)**
 
-尽管美国食品和药物管理局的两位官员和其他一些主要科学家最近断言，现有的证据还不支持鼓励所有美国人“再来一针”。但NIAID所长、拜登总统的首席医学顾问安东尼·福奇博士说，FDA关于“再来一针”的最终决定预计将在本周晚些时候做出。值得注意的是，美国疾病控制和预防中心（CDC）的免疫实践咨询委员会预计将另外对辉瑞疫苗的“再来一针”请求，进行权衡。另外，福奇认为就算辉瑞疫苗没有全面通过，FDA对Moderna或强生公司疫苗的“再来一针”的批准还是有机会批。
 
-在上周五的会议上，VRBPAC出乎意料地投票禁止在低于65岁的普通人群使用疫苗（”狗屎“）。病毒免疫学家和病毒学家杰西卡·罗斯博士表示，她”主动成为VAERS分析员，将数据组织成全面的数据，在出版作品和视频媒体中向公众传达信息”。
+就在两名恒大债权人向彭博社证实（以匿名的名义）该中国开发商巨头错过了周一到期的债券付款前不久，Hayman Capital创始人Kyle Bass周二上午回到CNBC接受采访，与CNBC的Joe Kernen进行了电话讨论，讨论有毒的中国经济及其不可持续的债务堆积。
 
-**5. [美国的 COVID 死亡人数超过了 1918-19 年西班牙流感的死亡人数](https://www.nydailynews.com/coronavirus/ny-covid-deaths-surpass-spanish-flu-pandemic-1918-20210920-7ieq2x4udrgezpumceqqwbmf5i-story.html)**
+巴斯是华尔街最有发言权的中国鹰派人士之一，他表示，了解习主席到底在寻找什么很重要。巴斯认为，在住房价格方面，中国 “正经历着与我们美国类似的问题”。整个夏天，习近平一直在管理对中国经济的广泛镇压。现在，是时候正视这个问题了。现在，中国正在进入这个疲软期，他们系统中的信贷价值超过50万亿美元，他们每年的GDP约为15万亿美元。与中国相比，美国的GDP为17万亿美元，雷曼倒闭时还有12万亿美元的表外资金。中国比其 “雷曼时刻 “领先3.6倍，而美国只有约1.7倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-22T092009.423.png)
+巴斯说，更重要的是，中国仍然是资本市场业务的一个相对新手。中国在2001年加入世贸组织后采用了西方式的金融体系。大约在同一时间，北京的人口控制政策开始真正发挥作用，因为中国的出生率下降了。巴斯说，现在中国每名妇女的生育率为1.3，而你需要达到2.1才能真正维持你的人口。因此，对于许多工作年龄的中国男性来说，人口动态处于一个关键水平，原因是中国男性买不起房子，所以他们都和父母住在一起，而事实上，恒大在信贷方面狂飙突进，建造了所有的住房，中国的房地产起飞了，因为他们的中央银行继续印刷这么多钱。现在，它正试图控制房地产价格，而且他正试图尽快做到这一点，因为中国正走在一条不可持续的降低道路上。
 
-据《每日邮报》2021年9月20日电。美国自周一（20日）起，死于中共病毒的人数为67万5446，共超过了1918-19年的西班牙流感（两者都是生物武器）有446人；1918年，美国的人口刚刚超过1亿，而今天是3.3亿，这使得我们的死亡率是每500个美国人中有一个，而1918年的死亡率是每150人中有一个。
+巴斯说：”现在，”每个认为中国将以每年6%的速度无限增长的人 “都是大错特错的”，但如果我们把自己从对中国的任何价值判断中剥离出来，思考全球计划的未来–如果我们总是考虑到中国的消费者，我们都曾一度想以共生的方式前进，我们向中国卖东西，他们的消费者从我们这里买东西。想到这一点很好，但不幸的是，这并不是中国的运作方式。投资者必须认识到，他们不是在投资 “一个真正的市场”。巴斯补充说：”你仍然有一个封闭的资本账户的经济体，他们有单向的资本流动美元进入。现在，想象一下，如果美元开始向外走。”
 
-美国因感染中共病毒而死亡的人数平均每天超过1900人；华盛顿大学有影响力的模型预测，到1月1日将有另外10万左右的美国人死于中共病毒，这将使美国的总体死亡人数达到77.6万。
+- **[09. 22.： ZeroHedge 前军事官员：米利与中国将军的通话可能危及美国国家安全 Milley’s Calls To Chinese General Could Have Jeopardized US National Security: Former Military Officials](https://www.zerohedge.com/geopolitical/milleys-calls-chinese-general-could-have-jeopardized-us-national-security-former)**
 
-1918-19年的流感大流行在全球范围内造成5000万人死亡，当时世界人口只有现在的四分之一。现在全球死于中共病毒的人数已超过460万。在今年出现所谓的“疫苗”后竟然还出现这么高的死亡数字，只能用“悲剧”来形容。
 
-（文章仅代表作者本人观点，与Gnews无关）
+据前美国军官称，参谋长联席会议主席马克-米利将军在据称与中国人民解放军李作成将军的秘密通话中可能危害了美国的国家安全。他们说，米利在据称与高级军事官员讨论发射核武器时也超越了自己的权限。
 
-* * *
+危害国家安全
+根据一本名为《危险》的新书，米利在2020年10月给李克强打过一次电话，另一次是在1月8日，向他保证美国不会攻击中共，如果中共准备攻击，他将提醒其同行。”李将军，你和我现在已经认识五年了。如果我们要进攻，我将提前给你打电话。这不会是一个惊喜，”据报道，米利说。书中称，米利之所以打这些电话，是因为他担心当时的总统唐纳德-特朗普会在其总统任期的最后几天里采取军事行动。
 
-***发稿：信心满满***
+一些美国立法者将米利的行为描述为叛国行为，称这位将军越权，并呼吁总统乔-拜登解雇米利。拜登作为回应，支持这位将军。退役的美国海军中校柯克-利波德（Kirk Lippold）在2000年美国海军科尔号战舰遭到基地组织恐怖分子袭击时担任指挥官，他说，他对米利据称与李的秘密谈话感到难以置信。这位国家最高军事官员没有否认任何指控，而是为他的谈话进行辩护，这让李波德感到震惊，他告诉《大纪元时报》：”米利可能有意或无意地制造了一个战略漏洞的窗口。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
+- ** [09.22 ：新唐人电视台 中共秘密「三战」计划 福州311基地被曝光](https://www.ntdtv.com/gb/2021/09/21/a103223023.html)**
+
+
+法国一家军事研究所周一（9月20日）发布报告，曝光了中共负责指挥舆论战、心理战和法律战的福州311基地。
+
+总部位于巴黎的法国军事学院战略研究所（IRSEM）周一发表了一份长达646页的报告，罗列中共对外统战和发挥影响力的具体战略。报告披露，在中国福建省福州市有一个311基地，是中共进行“三战”的总部，负责指挥：舆论战、心理战和法律战。
+
+这份报告的作者沙隆（Paul CHARON）和维尔默（Jean-Baptiste JEANGÈNE VILMER）指出，在中国，数十万党政军以及企业人员，参与了中共指挥的“三战”，即“与论战”、阻吓敌人的“心理战”，以及攻击或制裁敌对国家和个人的“法律战”。报告指出，福州的311基地，是目前已知的中共扩张“三战”的基地之一，还有更多类似的“作战指挥中心”仍在建设之中。
+
+- **[09. 21：Gatewy Pundit 证实了：武汉科学家在大流行前18个月计划向蝙蝠洞释放冠状病毒 Confirmed: Wuhan Scientists Planned to Release Coronaviruses Into Bat Caves 18 Months Before Pandemic](https://www.thegatewaypundit.com/2021/09/confirmed-wuhan-scientists-planned-release-coronaviruses-bat-caves-18-months-pandemic/)**
+
+
+我们在2020年4月报道了 “蝙蝠博士 “石正丽利用美国的钱在武汉进行涉及蝙蝠冠状病毒的实验。我们是第一个发现蝙蝠病毒的人，我们在2020年4月发现，石正丽在中国保持着一个蝙蝠病毒的库存，并正在开发疫苗来对抗病毒。《电讯报》通过雅虎报道了中国为感染中国山洞中的蝙蝠而作出的努力，以作为未来对冠状病毒的接种。
+
+泄露的2018年拨款提案显示，武汉的科学家们正计划向中国的蝙蝠种群释放增强型空气传播的冠状病毒，以接种它们，防止可能跳到人类身上的疾病。新文件显示，就在第一例Covid-19病例出现的18个月前，研究人员已经提交了计划，向中国云南的洞穴蝙蝠释放含有蝙蝠冠状病毒 “新型嵌合穗蛋白 “的皮肤穿透性纳米粒子。
+
+他们还计划创造嵌合病毒，通过基因强化使其更容易感染人类，并向美国国防部高级研究计划局（Darpa）申请1400万美元来资助这项工作。[这是一个美国国防机构，从事新兴技术的研发。美国没有必要与中国合作研究蝙蝠病毒。 这些努力与中国军方的合作是一种灾难。
+
+- **[09. 22：RFI 习近平强监管 刘鹤因滴滴出行必须自我批评](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210921-%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%BC%BA%E7%9B%91%E7%AE%A1-%E5%88%98%E9%B9%A4%E5%9B%A0%E6%BB%B4%E6%BB%B4%E5%87%BA%E8%A1%8C%E5%BF%85%E9%A1%BB%E8%87%AA%E6%88%91%E6%89%B9%E8%AF%84)**
+
+
+中国自去年年底以来，以反垄断为名，对包括网络巨头，补教行业，娱乐圈和房地产业在内的多个行业加强监管，规模之大影响之深，引起各界关注。华尔街日报报道称，这一系列的强监管措施是由中共总书记习近平直接主导，而非如往常一样，由国务院副总理刘鹤负责具体细节。据指出，一个直接向习近平报告的中共中央办公室向各部位发出指令，协调政策。
+
+报道说，由于未能阻止滴滴出行在6月赴美首次公开募股，刘鹤必须在党内提出“自我批评”。据报道，其实中央各部委当时对滴滴出行赴美上市意见不一，国家网信办持反对意见，但交通运输等部门则同意。
+
+习近平上台后，在中共中央政治局举行的“民主生活会”上恢复了这一毛泽东时代盛行的“自我批评”。报道认为习近平发起“强监管”风暴的目标不只是为了反垄断，习近平试图调整中国经济发展模式，回到毛泽东的社会主义愿景。
+
+# 每日文贵说
+![](https://media.discordapp.net/attachments/823056109513867304/889456027366490152/image0.jpg?width=1409&amp;height=793)
+# 更多要闻链接
+
+1. [美军在叙利亚击杀基地组织一高级头目](https://www.epochtimes.com/gb/21/9/21/n13249344.htm)
+2. [德国选前最后一场辩论：内容无新意 悬念增加](https://www.epochtimes.com/gb/21/9/20/n13248115.htm)
+3. [中远入股汉堡“福地”码头 工会忧心](https://www.dw.com/zh/%E4%B8%AD%E8%BF%9C%E5%85%A5%E8%82%A1%E6%B1%89%E5%A0%A1%E7%A6%8F%E5%9C%B0%E7%A0%81%E5%A4%B4-%E5%B7%A5%E4%BC%9A%E5%BF%A7%E5%BF%83/a-59252883)
+4. [福奇资助了耻辱的彼得·达扎克的生态健康联盟进行的另一项冠状病毒研究](https://thenationalpulse.com/news/fauci-funds-another-ecohealth-alliance-study/)
+5. [应对中共威胁 日参议员吁日台共享海上情报](https://www.epochtimes.com/gb/21/9/20/n13246909.htm)
+
+
+# 每日推特文摘
+
+
+
+900万人口的以色列，全民接种辉瑞疫苗，新确诊病例7天平均值8924人，每百人14人染疫。目前要求12岁以上民众施打第3剂疫苗。 使用伊维菌素、土霉素的印度北方邦人口2.41亿，新确诊病例7天平均值18人，每百人0.85人染疫。 使用青蒿素的马达加斯加2800万人，新确诊病例0人，每百人0.15人染疫。
+
+
+
+
+
+> 900万人口的以色列，全民接种辉瑞疫苗，新确诊病例7天平均值8924人，每百人14人染疫。目前要求12岁以上民众施打第3剂疫苗。
+> 
+> 使用伊维菌素、土霉素的印度北方邦人口2.41亿，新确诊病例7天平均值18人，每百人0.85人染疫。
+> 
+> 使用青蒿素的马达加斯加2800万人，新确诊病例0人，每百人0.15人染疫。 [pic.twitter.com/ADzmTxufsQ](https://t.co/ADzmTxufsQ)
+> — 坐看云起时#3 (@yunqi1111111) [September 21, 2021](https://twitter.com/yunqi1111111/status/1440191876338835458?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+路透社 9 月 20 日 – 推特公司 (TWTR.N) 周一表示，将支付 8.095 亿美元来解决股东集体诉讼，该诉讼指控这家社交媒体公司在人们使用其平台的频率方面欺骗投资者。 和解解决了一个即将开庭审理的案件。陪审团遴选原定于周一开始，但在 9 月 17 日在加利福尼亚州奥克兰举行…
+
+
+
+
+
+> 路透社 9 月 20 日 – 推特公司 (TWTR.N) 周一表示，将支付 8.095 亿美元来解决股东集体诉讼，该诉讼指控这家社交媒体公司在人们使用其平台的频率方面欺骗投资者。
+> 
+> 和解解决了一个即将开庭审理的案件。陪审团遴选原定于周一开始，但在 9 月 17 日在加利福尼亚州奥克兰举行…[https://t.co/UsqfyiJQ73](https://t.co/UsqfyiJQ73)
+> — 微积分Calculus5 (@kevinher612) [September 22, 2021](https://twitter.com/kevinher612/status/1440539737790431237?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+重点来了！ 
+七哥盖特： 
+9-21日：医生主动曝光打疫苗有抽成……这才是重点！
+
+
+
+
+
+> 重点来了！
+> 
+> 七哥盖特：
+> 9-21日：医生主动曝光打疫苗有抽成……这才是重点！[https://t.co/V5VdVOj126](https://t.co/V5VdVOj126)
+> — 😷 Julia 😷 (@Julia720900) [September 22, 2021](https://twitter.com/Julia720900/status/1440531304584343554?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+21.9.21七哥直播：
+新中国联邦的护照一定是法治基金排在第一位的、七哥知道有些战友捐款后就没钱加入G系列了
+🙏🙏🙏
+📌來自水星戰友
+
+
+
+
+
+> 21.9.21七哥直播：
+> 新中国联邦的护照一定是法治基金排在第一位的、七哥知道有些战友捐款后就没钱加入G系列了
+> 🙏🙏🙏 
+> 📌來自水星戰友 [pic.twitter.com/CmlqGODbTM](https://t.co/CmlqGODbTM)
+> — 穎姐備用號14 (@YingJie22739040) [September 22, 2021](https://twitter.com/YingJie22739040/status/1440551246809628683?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+没接种疫苗的已是人生赢家！ 再过几个月，全球将哭声一片，那时将是最危机时刻！
+
+
+
+
+
+> 没接种疫苗的已是人生赢家！
+> 
+> 再过几个月，全球将哭声一片，那时将是最危机时刻！ [pic.twitter.com/9r7Mak1Py7](https://t.co/9r7Mak1Py7)
+> — 危船愚夫 (@OAtxBKAdTP6KIEz) [September 22, 2021](https://twitter.com/OAtxBKAdTP6KIEz/status/1440472403851689989?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+今天！我们法治基金的捐款者！G系列的投资者！某农场没有打疫苗的战友，全家顺利离开强国，抵达西方某国，且一切安顿妥当！逃离过程中的惊心动魄我们将在未来的《爆料革命故事汇》中为大家精彩呈现！此战友在揭露塞骗、腚肛子、闫妖事件中曾作出重要贡献！由衷的为他们高兴💕💕💕
+
+
+
+
+
+> 今天！我们法治基金的捐款者！G系列的投资者！某农场没有打疫苗的战友，全家顺利离开强国，抵达西方某国，且一切安顿妥当！逃离过程中的惊心动魄我们将在未来的《爆料革命故事汇》中为大家精彩呈现！此战友在揭露塞骗、腚肛子、闫妖事件中曾作出重要贡献！由衷的为他们高兴💕💕💕 [pic.twitter.com/1olc9xCS4y](https://t.co/1olc9xCS4y)
+> — 巴顿将军 (@Patton0604) [September 22, 2021](https://twitter.com/Patton0604/status/1440488064036458505?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*编辑：G Series
+审核发布：文顾*
