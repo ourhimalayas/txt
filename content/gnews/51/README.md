@@ -2,41 +2,314 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1546705/)
+## 文贵先生、纳瓦罗先生和班农先生9月15日大直播
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1546716/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/09/pasted-image-0-14.png)
-[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/0921/20210921072901927.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a9d2h-yr6ll-2.jpg)
+[https://gtv.org/video/id=6149e47cd2e2b817486c0f11](https://gtv.org/video/id=6149e47cd2e2b817486c0f11)
 
-**9月21日汇编**
+**字幕内容:**
+Petter Navarro
+彼得·纳瓦罗：
 
-1、[**美国白宫：准备好应对中国地产市场风险溢出危机**](https://www.aboluowang.com/2021/0921/1649495.html)
+I think it’s already taking down the CCP
+我认为我们正在推翻中国共产党
 
-白宫新闻秘书Jen Psaki周一(20日)在记者会上表示，在有需要时，美国政府已准备好应对中国地产市场危机和当地地产商恒大可能违约的风险。Psaki表示，虽然恒大总部设在中国，其业务绝大多数都集中在中国，但美国财政部仍正持续监控全球市场，包括评估美国经济面临的任何风险。
+You can see the erosion in the financial portion of China and the economy
+你可以看到共产党的金融和经济正在被侵蚀削弱
 
-2、[**美学者曝美司法部与孟晚舟谈判最新进展**](https://www.aboluowang.com/2021/0921/1649554.html)
+And I think in a way
+并且我认为，在某种程度上
 
-美国哈佛大学学者陶瑞9月19日在推特曝光美国司法部正与孟晚舟展开的用认罪换自由的谈判进展。陶瑞说，美国司法部与孟晚舟的和解谈判短期告吹。陶瑞透露，孟晚舟一方原本希望用交付更多罚金来换取plea no contest，也就是不针对有罪无罪进行辩解，交罚金了事，谈判一度进展顺利，但美国政府内部出现分裂，鹰派人物不满对中共持软弱立场的官员，有意向媒体放风，藉舆论向美国司法部施压。陶瑞说，目前施压已经见效，司法部不再向华为提供优厚的和解条件，谈判陷入僵局。
+the authoritarian move of the dictator Xi Jingping now to consolidate power
+独裁者习近平所采取的巩固权力的极权行动
 
-3、[**美病毒死亡人数已超过百年前西班牙流感**](https://www.aboluowang.com/2021/0921/1649806.html)
+is an act of desperation
+是一种绝望的表现
 
-据《美联社》报导，随著Delta变种中共病毒蔓延，美国目前平均每天有超过1900人死亡，创自3月初以来的最高水平。据美国约翰斯·霍普金斯大学大学统计数据，截至周一（9月20日），美国已有67,5885人因感染中共病毒（COVID-19）死亡，超过了103年前（1918至1919年）的西班牙大流感中估计的67.5万的死亡人数。
+As Mils Guo leads this new nation
+因为郭先生领导的这个新的国家
 
-4、[**加总理杜鲁多赢得第3任**](https://www.aboluowang.com/2021/0921/1649698.html)
+offshore from China and within China
+无论是在中国国内还是海外
 
-加拿大国会选举结果出炉，总理杜鲁多(Justin Trudeau)将连任第三任，他领导的自由党赢得最多席次。选举委员会的开票结果显示，在338席的众院，自由党拿下150席，领先保守党的119席，还有3席未开出，自由党需要170席才能阻成多数政府。自由党可组成政府，但仍无法赢得过半席次。对杜鲁多来说，这是历史性的一刻，加拿大史上只有8位总理连赢三次选举，包括他的父亲杜鲁道(Pierre Trudeau)。
+More and more particularly the Lao baixing
+（比如）越来越多的人，特别是老百姓
 
-5、[**互联网自由度排名中国连续七年垫底 台湾全球第五**](https://www.aboluowang.com/2021/0921/1649744.html)
+become totally upset about this whole latest episode with evergrand
+变得非常的不安，关于最近的恒大事件
 
-美国人权活动组织自由之家（Freedom House）星期二（9月21日）公布年度网络自由排名报告，台湾首次参评，跻身网络自由度最高国家前五名。中国连续第七年被列为70多个国家中网络自由情况最差的国家。中国连续第七年被评为最恶劣的互联网自由环境。中共当局对网上异议声音、独立报道和日常通讯判处严厉的监禁，中共病毒疫情仍然是审查最严格的话题之一。报告说，中共政府仍然是世界上最严重的互联网自由侵犯者。新推出的法规将辱骂军人、“英雄”和“烈士”的言论定为刑事犯罪。当局对网上持不同政见者判处严厉的监禁，包括对房地产大亨任志强判处18年徒刑。
+You see people absolutely incendiary angry about whats going on
+你可以看到，人们对发生的事情爆发出的熊熊的怒火
 
-6、[**俄罗斯校园枪击案6死28伤 普京电视讲话**](https://www.aboluowang.com/2021/0921/1649429.html)
+That frightens Xi Jingping
+这吓坏了习近平
 
-据法新社发自莫斯科报道，俄罗斯乌拉尔地区的彼尔姆（Perm）市一所大学9月20日周一发生枪击事件。这起枪案造成6人死亡，至少28人受伤。根据网络上视频，为逃离枪击事件，学生们从学校大楼的一楼窗户跳下。另一段从窗口拍摄的视频显示，一个完全身着黑衣的人开火，并走向一栋大楼的入口。该校新闻办公室称枪手于当地时间上午11点进入校园。俄罗斯总统普京就这起校园枪击事件发表电视讲话。他说，执法机构将采取一切必要措施对这起可怕的犯罪行为进行调查，并弄清楚原因。
+I don’t think you would see that kind of authoritarianism unless he was fearful
+我认为，如果不是因为害怕，你不会看到习采取的那些独裁行动
 
-（本文只代表个人观点，与Gnews网站无关）
+So ,what we need to do here in America
+所以，我们在美国需要做的事情是
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+Steve’s role, my role, Pompeo’s role and others
+包括班农的角色、我的角色、彭培奥的角色等
+
+Is to put the pressure on
+就是继续（对中共）施压
+
+It’s unfortunate that the election was stolen from Donald trump
+不幸的是，川普总统的选举被偷盗了
+
+We’re working on getting that back
+我们正在努力尝试修正这件事
+
+But in the meantime
+但是，与此同时
+
+having the illegitimate Biden regime in bed with Xi Jingping
+非法的拜登政权，正在与习近平勾结
+
+is not helpful
+这对我们没有好处
+
+So we got to keep the pressure on
+所以，我们需要继续（对中共）施压
+
+And that’s what we’re going to do here.
+这就是我们在美国需要做的
+
+Steve Bannon
+史蒂夫·班农
+
+I want to step back and just mention one thing
+我想先退回到先前提到的一件事
+
+about the official recognition of New Federal State of China versus take down the CCP
+关于官方承认新中国联邦和推翻共产党
+
+What the NFSC, the whistleblower movement, the rule of law society foundation, gettr,gfation
+新中国联邦、爆料革命、法治基金、盖特和Gfastion等
+
+all of this
+所有的这些
+
+What the world is seeing is a new China, and the new Chinese
+让全世界看到了新的中国、新的中国人
+
+And they are seeing what the Chinese people can accomplish
+全世界看到了中国人能取得什么成就
+
+When they have freedom of speech,freedom of religion ,freedom of press,freedom of express,freedom of assembly.
+当他们拥有言论自由、信仰自由、新闻自由、表达自由和机会自由的时候
+
+And I think that is come about a lot through the NFSC and others
+我认为这很大程度上是通过新中国联邦来实现的
+
+That is so powerful
+这是如此强大的力量
+
+and I do believe
+而且我坚信
+
+the NFSC if the CCP lasts long enough will be recognized
+即便共产党将会长时间存在，新中国联邦也会得到承认的
+
+And I think it will be recognized in you know after 2024
+我认为，新中国联邦将在2024年之后被承认
+
+But our focus 100% is
+但是，我们现在的重点绝对是
+
+to present the new China and new Chinese,every day
+展现新中国和新中国人，在每一天
+
+The only way the CCP gets taken down is by the Chinese people.
+共产党被推翻的唯一方式是，通过中国人民
+
+You know people in the west can assist
+西方社会可以提供帮助
+
+But the Chinese people, LaoBaixing,have to taken down
+但是必须是中国人民、中国老百姓，去推翻它
+
+We are at a unique time in China’s history of 10000/15000 years
+我们处在中国1万年或1万5千年历史以来的最独特的时刻
+
+You finally have in the diaspora of the Chinese people Hundreds of millions
+数千万计流落在外的中国人民
+
+that have been enormously successful
+终于取得了巨大的成功
+
+enormously successful
+巨大的成功
+
+that show everyday ,the lie of this regime
+这样的成功，每一天都在揭露中共政权的谎言
+
+the lie of the regime is the Chinese people on mainland China
+即中国大陆的人民
+
+the only people on earth
+这些地球上唯一的一群
+
+that come from one of the most ancient and respected civilizations
+来自于最古老、最受尊敬的文明之一的人民
+
+that do not have even a modicum of freedom.
+他们却并不拥有一丁点的自由
+
+And so that is our mission
+所以，这就是我们的使命
+
+I think our mission is to focus on taking down this transnational criminal organ-ization
+我认为，我们的使命就是推翻这个跨国犯罪组织
+
+That has terrorized,victimized and brutalized the Chinese nation and the Chi-nese people.
+这个组织使用恐怖手段、残酷无情地对中国人民实施侵害
+
+If we do that,the NFSC will act as almost like a government in exile
+如果我们能够做的的话，新中国联邦将会作为一个类似流亡政府
+
+to present going forward what the new program is
+来作为将来新的程序的代表
+
+That’s why I have the greatest respect for Miles
+这就是为什么我对郭先生有最高的尊敬
+
+But i continue to say,that’s why I think Miles is the George Washington of the new China
+我一直说，这就是为什么我认为郭先生是新中国的华盛顿
+
+Right, we’re talking about new China and new Chinese
+是吧，（因为）我们现在谈论的是新中国和新中国人
+
+Chinese have finally had freedom after millennia of history
+经历千年历史之后，中国人终于拥有了自由
+
+They finally have freedom on the outside in the west
+他们终于在中国之外的西方世界拥有了自由
+
+And you see how they prosper
+而且你可以看到他们的繁荣
+
+You see how the had to contribute to society
+你看到他们如何为社会做出贡献
+
+You see how the family structure
+你可以看到他们的家庭结构
+
+The traditional values of Chinese people are very powerful,right
+中国人民的传统价值观拥有强大的力量，对吧
+
+And that is why it is so important for us to remain focused on our mission
+这就是为什么专注于我们的使命是如此的重要
+
+Our misison is to take the CCP, take down this transnational criminal organiza-tion.
+我们的使命就是推翻中国共产党，推翻这个跨国犯罪组织
+
+Petter Navarro
+彼得·纳瓦罗：
+
+Steve is absolutely right
+班农说的太对了
+
+Ultimately it has to come from within China to take down the CCP.
+最终，必须是中国内部的力量来推翻共产党
+
+But, as we know the most famous expressions in China:
+但是，正如我们所熟知的中国的一句名言：
+
+“one spark can create a prairie fire”
+“星星之火，可以燎原”
+
+We need that prairie fire .
+我们需要那样的燎原之火
+
+It has to be within China.
+但是它必须来自中国内部
+
+But this gentleman here
+但是，正是这里的这位先生
+
+Is creating a few sparks
+他正在点燃星星之火
+
+And we will keep creating sparks
+而且我们会继续点燃星星之火
+and help that prairie fire along
+从而帮助燎原之火得以形成
+
+Steve Bannon：
+史蒂夫·班农：
+
+Our responsibility ,Peter and I take it very seriously
+关于我们的责任，纳瓦罗先生和我都很严肃对待
+
+And other people is associated trump movement
+包括其他支持川普运动有关的人
+
+We have a tremendous responsibility to the Chinese people
+我们对于中国人民负有巨大的责任
+
+That is to stop the western elites in their partnership with this transnational organization
+那就是阻止西方的精英与这个跨国犯罪组织进行合作
+
+That are making money off the victimization and brutalization of the Chinese people
+他们通过对中国人民进行残酷统治和侵害来挣钱
+
+An to hold them accountable
+必须让他们承担责任
+
+Even to the point of reparations back to the Chinese people
+甚至让他们赔偿中国人民
+
+For the money they have stolen out of China
+因为他们偷走了中国人民的钱财
+
+That is rightly the earnings and the wealth of the Chinese people
+那就是中国人民自己的挣得的钱和财富
+
+We have the responsibility to hammer the elites every day
+我们有责任每天敲打这些精英
+
+Whether steve schwartzman
+包括史蒂夫·施瓦茨曼（黑石集团）
+
+Or Ray dalia
+雷·达里奥（桥水基金）
+
+Or Fink
+以及 Fink
+
+Or all these essential criminal class
+或其他本质上的犯罪团体
+
+That have been in partnership and in bussiness with the criminal organization of the CCP
+所有这些曾经与中共这个犯罪组织合作或交易过的人
+
+And so ,that is our responsibility
+所以，这就是我们的责任
+
+and to assist NFSC and others.
+去帮助新中国联邦和其他人
+
+But our focus should be the complete destruction of the CCP
+但是，我们的焦点应该是，完全的摧毁中国共产党
+
+And our support for the new China and the new Chinese.
+以及，我们对新中国和新中国人的支持
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:** [https://gtv.org/video/id=6142a526751e4f2b0e53c474](https://gtv.org/video/id=6142a526751e4f2b0e53c474)
+
+英听校: 洛杉矶盘古农场 – 柯镇恶
+翻译: 洛杉矶盘古农场 – 柯镇恶
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

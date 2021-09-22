@@ -2,26 +2,30 @@
 ---
 
 
-## 梵蒂冈从10月1日起只允许持 &#8220;绿色通行证 &#8220;者进入 继续充当邪恶势力的帮凶
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546736/)
+## 香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546734/)
 
 栏目记者/责任编辑：文一
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-286.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-287.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/梵蒂冈从10月1日起只允许持-绿色通行证-者进入-继续充当邪恶势力的帮凶.jpg)
-教皇方济各最近在与梵蒂冈市总统贝尔特洛的会谈中要求道：
 
-“有必要在尊重每个成员的尊严、权利和基本自由的前提下，确保工作群体的健康和安康”。
+【华尔街日报】9月21日报道：北京方面最近对“共同富裕”的号召可能很快也会在香港这个自由的金融中心引发回响。香港房地产开发商将也会像中国恒大集团一样成为监管部门的整治对象。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/HK.jpg)
+香港几家最大的房地产开发商股价周一暴跌。李嘉诚麾下的长江实业集团有限公司股价下跌9.3%，恒基兆业地产有限公司股价跌13.2%。
 
-从10月1日起，梵蒂冈将要求所有访客和工作人员出示COVID-19通行证，以证明他们已接种疫苗，或已康复，或病毒检测呈阴性方可入内 。在当今正义和邪恶的征战中，梵蒂冈已经远离上帝，继续充当邪恶势力的帮凶。
+直接的导火索似乎是【路透社】(Reuters)上周五的一篇报道，该报道称中国官员告诉香港的地产大亨们要更加爱国，支持中共在香港的政策，包括解决香港严重的住房短缺问题。
+
+【华尔街日报】3月份报道称，中共正计划对香港的贫富差距和失控的房价采取措施，提出扩大香港税基和增加土地供应等建议。
+
+根据房地产经纪公司中原地产编制的一项指数，香港房价在过去15年上涨了两倍多。根据研究公司Demographia提供的数据，香港的房价中位数是家庭收入中位数的20.7倍，在2020年连续第11年成为世界上最让人负担不起的住房市场。
 
 （本文仅代表作者观点）
 
-参考链接：[梵蒂冈从10月1日起只允许持 “绿色通行证 “者进入 继续充当邪恶势力的帮凶](https://www.disclose.tv/vatican-allows-access-only-with-a-green-pass-from-october-1st/)
+参考链接：[香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运](https://cn.wsj.com/articles/%E9%A6%99%E6%B8%AF%E5%9C%B0%E4%BA%A7%E5%A4%A7%E4%BA%A8%E9%9A%BE%E9%80%83%E4%B8%AD%E5%9B%BD%E7%9A%84%E8%A1%8C%E4%B8%9A%E6%95%B4%E6%B2%BB-11632207307)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
 
@@ -35,4 +39,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-289.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-288.png)

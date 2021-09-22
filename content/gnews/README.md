@@ -37,14 +37,14 @@
 ### [虚拟货币是否受美元长臂管辖](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [参议员玛莎·布莱克本：换掉中共走卒和武汉卫生组织负责人谭德塞](/content/gnews/9/README.md)
- ` 美国政要直译推`
-
-### [维州工会指责抗议工人是“极右翼纳粹分子”](/content/gnews/10/README.md)
+### [美国陆军利用“撒旦主义”强推疫苗接种](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [辉瑞疫苗拟将黑手伸向5至11岁的儿童](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
+### [参议员玛莎·布莱克本：换掉中共走卒和武汉卫生组织负责人谭德塞](/content/gnews/10/README.md)
+ ` 美国政要直译推`
+
+### [维州工会指责抗议工人是“极右翼纳粹分子”](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [中巴新核协议可能将世界推向新的军备竞赛和冲突](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -85,47 +85,47 @@
 ### [秘密翻译组祝七哥，战友及家人们中秋节快乐！](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [梵蒂冈从10月1日起只允许持 &#8220;绿色通行证 &#8220;者进入 继续充当邪恶势力的帮凶](/content/gnews/25/README.md)
+### [香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单](/content/gnews/26/README.md)
+### [梵蒂冈从10月1日起只允许持 &#8220;绿色通行证 &#8220;者进入 继续充当邪恶势力的帮凶](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [Coinbase与国土安全部签署协议为其提供分析软件](/content/gnews/27/README.md)
+### [拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [加拿大议会选举特鲁多险胜 但仍然被迫再次组建少数派政府](/content/gnews/28/README.md)
+### [Coinbase与国土安全部签署协议为其提供分析软件](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦人共度佳节、共克时艰](/content/gnews/29/README.md)
+### [加拿大议会选举特鲁多险胜 但仍然被迫再次组建少数派政府](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦人共度佳节、共克时艰](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/30/README.md)
- ` wenwu`
+### [在港上市内地银行股跌幅扩大](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国港口积压的货船达到创纪录水平](/content/gnews/31/README.md)
+### [读《道德经》第十章](/content/gnews/32/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国港口积压的货船达到创纪录水平](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [SEC再次对中概股的投资人发出警告](/content/gnews/32/README.md)
+### [SEC再次对中概股的投资人发出警告](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [墨尔本建筑工人持续的抗议活动](/content/gnews/33/README.md)
+### [墨尔本建筑工人持续的抗议活动](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恒大债务危机拖累全球股市暴跌](/content/gnews/34/README.md)
+### [恒大债务危机拖累全球股市暴跌](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：HCN首次私募发行的销售金额已达1亿美元](/content/gnews/35/README.md)
+### [币圈新闻动态：HCN首次私募发行的销售金额已达1亿美元](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本政府养老投资基金被曝参与投资恒大](/content/gnews/36/README.md)
+### [日本政府养老投资基金被曝参与投资恒大](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [雅典娜时报-第059期](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [英国知名主持人皮尔斯·摩根的Ofcom裁决是常识的胜利](/content/gnews/38/README.md)
- ` wenwu`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -157,30 +157,30 @@
 ### [杰作](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生、纳瓦罗先生和班农先生9月15日大直播](/content/gnews/49/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [雅典娜时报-第059期](/content/gnews/49/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [彼得·纳瓦罗：美国应停止美国资本通过美国养老基金流向中国](/content/gnews/50/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [国际要闻汇编](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [自食其果&#8211;加拿大与塔利班称兄道弟的自由党部长落选！](/content/gnews/52/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
-
-### [【小雨专栏】在路上（029）——友谊篇](/content/gnews/53/README.md)
- ` 温哥华扬帆农场`
-
-### [秘翻在线: 中国如何应对美国巨额债务](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [DC每日热点0921](/content/gnews/55/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [能源价格暴涨可能削弱欧洲经济](/content/gnews/56/README.md)
+### [辉瑞疫苗拟将黑手伸向5至11岁的儿童](/content/gnews/50/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年9月21日 文贵先生盖特 1](/content/gnews/57/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [文贵先生、纳瓦罗先生和班农先生9月15日大直播](/content/gnews/51/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [彼得·纳瓦罗：美国应停止美国资本通过美国养老基金流向中国](/content/gnews/52/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [国际要闻汇编](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/54/README.md)
+ ` wenwu`
+
+### [英国知名主持人皮尔斯·摩根的Ofcom裁决是常识的胜利](/content/gnews/55/README.md)
+ ` wenwu`
+
+### [自食其果&#8211;加拿大与塔利班称兄道弟的自由党部长落选！](/content/gnews/56/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [【小雨专栏】在路上（029）——友谊篇](/content/gnews/57/README.md)
+ ` 温哥华扬帆农场`
 

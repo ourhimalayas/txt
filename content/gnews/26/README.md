@@ -2,29 +2,26 @@
 ---
 
 
-## 拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546735/)
+## 梵蒂冈从10月1日起只允许持 &#8220;绿色通行证 &#8220;者进入 继续充当邪恶势力的帮凶
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546736/)
 
-栏目记者/责任编辑：AsG諾雅
+栏目记者/责任编辑：文一
 
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-286.png)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/梵蒂冈从10月1日起只允许持-绿色通行证-者进入-继续充当邪恶势力的帮凶.jpg)
+教皇方济各最近在与梵蒂冈市总统贝尔特洛的会谈中要求道：
 
-9月21日，美国总统拜登提名的、监督对华出口政策的候选人艾伦-埃斯特维兹在参议院银行委员会的听证会上表示，他认为华为是国家安全的威胁，该公司应该保留在贸易制裁黑名单上，其供应商仍然需要申请特别许可才能向华为销售产品。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单.jpg)
-这位前五角大楼官员还承诺，如果被任命为负责工业和安全的商务部副部长，他将对去年11月从华为拆分出来的手机品牌- 荣耀公司进行审查，以确定华为是否在利用品牌拆分来减少或规避对自己的制裁。
+“有必要在尊重每个成员的尊严、权利和基本自由的前提下，确保工作群体的健康和安康”。
 
-被提名担任商务部出口管理助理部长的西娅-肯德勒则告诉委员会，她对自己作为美国检察官指控华为作为犯罪企业经营、窃取商业机密和欺骗金融机构的工作感到 “特别自豪”。
-
-在许多国家看来，华为为中共情报机构工作的事实已经无可辩驳，在反共灭共成为政治正确的背景下，不论谁上台都无法改变对相关企业严加管控的趋势。
+从10月1日起，梵蒂冈将要求所有访客和工作人员出示COVID-19通行证，以证明他们已接种疫苗，或已康复，或病毒检测呈阴性方可入内 。在当今正义和邪恶的征战中，梵蒂冈已经远离上帝，继续充当邪恶势力的帮凶。
 
 （本文仅代表作者观点）
 
-信息链接：
-[拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单](https://www.reuters.com/business/media-telecom/biden-nominee-key-china-export-post-expects-huawei-remain-blacklisted-2021-09-21/)
+参考链接：[梵蒂冈从10月1日起只允许持 “绿色通行证 “者进入 继续充当邪恶势力的帮凶](https://www.disclose.tv/vatican-allows-access-only-with-a-green-pass-from-october-1st/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
 
@@ -38,4 +35,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-288.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-289.png)
