@@ -2,31 +2,24 @@
 ---
 
 
-## 逃离阿富汗的女运动员选择在澳大利亚定居
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1547602/)
+## 联合国大会首日 海地重申支持台湾入联
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547629/)
 
-**撰稿：日本东京方舟农场 子辰**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/FreedomRally-1200x900-4-1.jpg)网络图片
 
-9月22日，一名体育协会官员表示，七名逃离阿富汗塔利班控制的女子跆拳道运动员已在墨尔本重新定居。
+**编辑摘要：**据台湾新头壳（Newtalk） 9月22日报道，第76届联合国大会在21日至27日举办总辩论。开会首日，台湾邦交国帕劳总统惠恕仁（Surangel Whipps Jr.）在演说中声援台湾，并敦促联合国体系接受台湾，让台湾人民有发声机会；此外，海地外长、原代理总理乔瑟夫（Claude Joseph）也重申，“支持台湾重新融入联合国运作。”
 
-据美联社报导，澳大利亚跆拳道首席执行官希瑟·加里奥克周三表示，在塔利班重新控制该国后，前澳大利亚国家足球队队长和人道主义倡导者克雷格福斯特与澳大利亚政府、澳大利亚跆拳道和大洋洲跆拳道合作，从阿富汗进行了高风险撤离。具体细节没有透露。
+对此，台湾外交部响应表示，在促进全球应对共同挑战当中，“台湾能帮忙！”
 
-加里奥克说：”我们真的很高兴女士们平安无事，非常感谢澳大利亚政府和大洋洲拳击协会协助她们离开阿富汗。”这些妇女的生命处于危险之中。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/800-3.jpeg)图片来自于网络
-
-“作为一项运动，我们需要齐心协力，做些事情来帮助我们。澳大利亚拳击界非常欢迎，这些女士将受到张开双臂的欢迎。”
-
-其中一名女运动员法蒂玛·艾哈迈迪 (Fatima Ahmadi) 说，她感谢所有支持他们撤离的各方的协助。
-
-“来到澳大利亚让我感觉非常好。我们在这里很安全，没有任何危险，”她说。“澳大利亚跆拳道帮了我们很多，我很感激。我们现在正等着为澳大利亚做一些有益的事情，以回报你们的帮助。”
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[Seven female Afghan taekwondo athletes resettle in Australia](https://apnews.com/article/soccer-sports-australia-international-soccer-evacuations-59096231157549b0c29b56963907c829)
+新闻参考链接：[聯合國大會首日 海地重申支持台灣入聯](https://newtalk.tw/news/view/2021-09-22/639785%EF%BC%88%E2%9A%A0%EF%B8%8F%E7%B9%81%E4%BD%93%E3%80%8B%E7%AE%80%E4%BD%93%EF%BC%89)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

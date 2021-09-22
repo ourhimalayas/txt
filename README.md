@@ -46,13 +46,13 @@
 ### [澳洲一名医护人员因为拒绝接种疫苗被停职](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [财政部首次对加密货币交易所实施制裁](/content/gnews/12/README.md)
+### [诺奖获得者表示拒绝接种疫苗](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [辉瑞儿童疫苗是安全的 VS 没有那么快](/content/gnews/13/README.md)
- ` wenwu`
+### [财政部首次对加密货币交易所实施制裁](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联邦吹哨人：白宫故意隐藏疫苗的负面数据](/content/gnews/14/README.md)
+### [辉瑞儿童疫苗是安全的 VS 没有那么快](/content/gnews/14/README.md)
  ` wenwu`
 
 ### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/15/README.md)
@@ -67,65 +67,65 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [共产法西斯在澳大利亚的兴风作浪，利用疫苗把人分等级](/content/gnews/19/README.md)
+### [有声|债务问题或引发经济灾难](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|香港职工会联盟宣布解散](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [共产法西斯在澳大利亚的兴风作浪，利用疫苗把人分等级](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/20/README.md)
+### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/21/README.md)
+### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/22/README.md)
+### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/23/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [新加坡超80%接种率 单日新增感染人数激增贴近历史峰值](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
 
-### [【 #G时新闻 】推特支付8.09亿美元和解股东集团诉讼案](/content/gnews/24/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
 
-### [震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！](/content/gnews/25/README.md)
+### [震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [立陶宛国防部建议公民避免购买并处理现有中共国手机](/content/gnews/26/README.md)
+### [立陶宛国防部建议公民避免购买并处理现有中共国手机](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [流亡港人罗冠聪赴美游说 促西方盟国对抗中共极权](/content/gnews/27/README.md)
+### [流亡港人罗冠聪赴美游说 促西方盟国对抗中共极权](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [习近平联大视频讲话, 继续欺骗要挟世界](/content/gnews/28/README.md)
+### [习近平联大视频讲话, 继续欺骗要挟世界](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [拜登联合国讲话暗指中共, 却仍不触及&#8221;病毒核心&#8221;](/content/gnews/29/README.md)
- ` GTV新闻访谈`
+### [DC每日热点0922](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：中共国连续七年在互联网自由度排名榜上垫底](/content/gnews/30/README.md)
+### [秘翻在线：有报告称武汉科学家计划于2018年用冠状病毒感染蝙蝠](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：有报告称武汉科学家计划于2018年用冠状病毒感染蝙蝠](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [因言获罪，香港19岁学生组织发言人被捕](/content/gnews/32/README.md)
+### [因言获罪，香港19岁学生组织发言人被捕](/content/gnews/33/README.md)
  ` 日本东京方舟农场`
 
-### [日英确认将加快下一代战机发动机开发合作](/content/gnews/33/README.md)
+### [日英确认将加快下一代战机发动机开发合作](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/34/README.md)
+### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疯了！中共以为赢了全世界，世界左联共同抵制马克思学院](/content/gnews/35/README.md)
+### [疯了！中共以为赢了全世界，世界左联共同抵制马克思学院](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联合国大会首日 海地重申支持台湾入联](/content/gnews/36/README.md)
+### [联合国大会首日 海地重申支持台湾入联](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [逃离阿富汗的女运动员选择在澳大利亚定居](/content/gnews/37/README.md)
+### [逃离阿富汗的女运动员选择在澳大利亚定居](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
-
-### [中共镰刀下的香港财团](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [印太地区国家拥抱AUKUS](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
@@ -151,36 +151,36 @@
 ### [东京股市警惕恒大风险开盘大跌](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线:二氧化碳是欧洲人民生存的关键](/content/gnews/47/README.md)
- ` 秘密翻譯組G-Translators`
+### [CCP百年百罪 第二十一集（86 – 89罪）](/content/gnews/47/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [谈墙内房地产的吃人之道](/content/gnews/48/README.md)
- ` 首尔天池农场`
-
-### [中共国网络自由度排名连续7年垫底](/content/gnews/49/README.md)
- ` 日本东京方舟农场`
-
-### [8万人签请愿书呼吁澳药品监管机构公布疫苗文件](/content/gnews/50/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [密西西比州护士组织反疫苗集会](/content/gnews/51/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西媒头条 — 第71期](/content/gnews/52/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [青蒿素也许能终结癌症](/content/gnews/53/README.md)
- ` 澳喜农场`
-
-### [国际要闻汇编](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [意学校一工作人员没钱每两天做一次病毒检测，校长叫来宪兵](/content/gnews/56/README.md)
+### [与教皇方济各一起举行过弥撒的斯洛伐克大主教感染新冠病毒](/content/gnews/48/README.md)
  ` xiaobaige`
 
-### [樱花灭共诗——台海图（新韵）](/content/gnews/57/README.md)
+### [秘翻在线:二氧化碳是欧洲人民生存的关键](/content/gnews/49/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/50/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [谈墙内房地产的吃人之道](/content/gnews/51/README.md)
+ ` 首尔天池农场`
+
+### [【 #G时新闻 】推特支付8.09亿美元和解股东集团诉讼案](/content/gnews/52/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [拜登联合国讲话暗指中共, 却仍不触及&#8221;病毒核心&#8221;](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
+
+### [中共镰刀下的香港财团](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国网络自由度排名连续7年垫底](/content/gnews/55/README.md)
+ ` 日本东京方舟农场`
+
+### [8万人签请愿书呼吁澳药品监管机构公布疫苗文件](/content/gnews/56/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：中共国连续七年在互联网自由度排名榜上垫底](/content/gnews/57/README.md)
+ ` 秘密翻譯組G-Translators`
 

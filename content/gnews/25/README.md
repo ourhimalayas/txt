@@ -2,41 +2,40 @@
 ---
 
 
-## 震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547750/)
+## 新加坡超80%接种率 单日新增感染人数激增贴近历史峰值
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547796/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-70.png)
-图片来自网络
+栏目记者/责任编辑：云豹
 
-9月22日（周三），澳大利亚的墨尔本连续第三天爆发反封锁与反强制接种疫苗示威游行。当日，墨尔本市中心区部署了各种防爆警力。据最新网络信息显示，示威者遭到警方暴力驱离，场面俨如香港抗争运动时的情景。警方不仅使用了催泪弹和胡椒喷雾，并且还发射了橡皮子弹！有示威者中弹，遍身是血，伤势严重，生死不明。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-24.png)
-当天早上，身着防暴装备的维州警察就已在墨尔本市区巡逻，驱散抗议人群。中午时分，抗议者聚集在战争纪念馆（Shrine Of Remembrance）前，与警方形成对峙局面。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-6.png)
-抗议人群坐在战争纪念馆的台阶上高唱澳洲国歌，还有人用扩音器高喊： “我们在这里是和平的，我们没有武器……我们需要你们，就像你们需要我们一样”， 呼吁警方不要再阻止人们抗议，称抗议和游行是基本人权。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-但随后，警方包围了战争纪念馆门前的抗议人群。数小时后，警察开始驱散抗议人群，并且有网络视频显示，警方向人群发射了橡皮子弹！
 
-澳洲《先驱太阳报》的报道称，警方从周三早晨开始抓捕抗议者。位于伊丽莎白街（Elizabeth St）的建筑业、林业、矿业与能源工会（CFMEU）总部大楼外，每一个经过这栋建筑的行人都会遭到警方盘查。在上午10点前，就已经有3人被捕。
 
-有媒体报道称，当日警方共抓捕了200多人。有大量网络信息显示，警方在驱散人群的过程中使用了各种暴力。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片6-2.png)
-在前一天的周二，数千人在墨尔本市中心示威游行，同样遭到警方驱离。据维州警方称，当日共逮捕了62人，期间有三名警察受伤。
+9月21日，新加坡卫生部报告，新冠病毒本土单日新增感染人数1178人，是从去年疫情开始后的单日次高记录，并且近期已出现连续三天新增感染人数超过1千人次。 新加坡在去年四月爆发高峰后，对人员流动做管控措施，感染人数下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/PP10.001.jpeg)
+今年8月，当疫苗接种率达80%后，新加坡政府开始放开管制。面对近期感染人数飙升， 新加坡政府已暂停进一步的重新开放，希望采用「与病毒共存」的策略，并将防疫的重点放在关注重症病人的人数，及加护病房的住院人数。
 
-值得注意的是，大多澳洲媒体在报道此事件时，着重强调的是游行示威中所谓的“暴力”行为。然而网络上却不见示威游行者所谓“暴力”行为的图片和视频，反倒全是警方暴力镇压的信息。
+以色列、美国和欧洲国家近期医疗报告已经显示，新冠疫苗引起接种者多种严重不良反应，并导致超多死亡案例。新加坡接种专家委员会，在对疫苗安全数据审查时，早已发现mRNA新冠疫苗会导致多类皮肤症状，和对青少年心脏系统的影响，却仅仅给出部分建议，而不对现有副反应及年轻群体与疫苗相关的心肌炎病例进行调研。
 
-爆料革命骨干“木兰传奇”在盖特上发文一针见血地指出，媒体着力报道游行示威中的暴力行为，在舆论上让警察镇压合理合法化，却忽略报道示威者的真实诉求：开放伊维菌素为处方药；羟氯喹对中共病毒有效；反对强制打疫苗；反对不打疫苗不能上岗。
+新加坡政府依然希望透过加强检验、为60岁以上的年长者，及其他高风险族群追打第3剂来应对。政府以“减轻医院的负担”为由，扩大实施「居家康复计画」：对于已接种的人们，建议如确诊感染新冠病毒，则应留在家中观察。 今年下半年，新加坡就已多次爆出护士资源缺乏，一旦复染或疫苗副作用发作，患者将面临无法及时就诊的危险境地。
+(本文仅代表作者观点)
 
-谁曾想过，在民主国家澳大利亚，会上演俨如香港反送中运动时警方暴力驱赶示威者的场面。澳大利亚究竟怎么会变成这样？墨尔本人民追求病毒和疫苗真相究竟打到了谁的痛处？
+参考链接:
 
-注：本文仅代表作者观点
+1. [Singapore reports 1,178 new COVID-19 cases, highest since April last year](https://www.reuters.com/world/asia-pacific/singapore-reports-1178-new-covid-19-cases-highest-since-april-last-year-2021-09-21/)
+2. [EXPERT COMMITTEE ON COVID-19 VACCINATION STATEMENT ON SKIN REACTIONS AFTER VACCINATION AND REFRAINING FROM STRENUOUS PHYSICAL ACTIVITY AFTER VACCINATION](https://www.moh.gov.sg/news-highlights/details/expert-committee-on-covid-19-vaccination-statement-on-skin-reactions-after-vaccination-and-refraining-from-strenuous-physical-activity-after-vaccination)
+3. [S’pore doing its best to scale up Covid-19 operations, make sure all patients well cared for: PM Lee](https://www.straitstimes.com/singapore/health/singapore-is-doing-its-best-to-make-sure-all-covid-19-patients-are-well-cared-for)
 
-**新闻链接：**
 
-[https://gettr.com/post/pbxpzodcda](https://gettr.com/post/pbxpzodcda)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-[https://www.dailymail.co.uk/news/article-10016021/Police-fire-rubber-bullets-anti-vaxxer-tradies-took-Melbournes-war-memorial.html](https://www.dailymail.co.uk/news/article-10016021/Police-fire-rubber-bullets-anti-vaxxer-tradies-took-Melbournes-war-memorial.html)
+终审：暗黑
+校正/发稿：我不在这里
 
-[https://gettr.com/post/pbx7jzdcbd](https://gettr.com/post/pbx7jzdcbd)
-
-[https://twitter.com/AIbiuld/status/1440604229593300996](https://twitter.com/AIbiuld/status/1440604229593300996)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
