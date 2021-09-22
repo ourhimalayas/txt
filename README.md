@@ -103,29 +103,29 @@
 ### [美国证监会警告: 投资中共国可变利益实体存在风险](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [英国知名主持人皮尔斯·摩根的Ofcom裁决是常识的胜利](/content/gnews/31/README.md)
+### [雅典娜时报-第059期](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [英国知名主持人皮尔斯·摩根的Ofcom裁决是常识的胜利](/content/gnews/32/README.md)
  ` wenwu`
 
-### [自食其果&#8211;加拿大与塔利班称兄道弟的自由党部长落选！](/content/gnews/32/README.md)
+### [自食其果&#8211;加拿大与塔利班称兄道弟的自由党部长落选！](/content/gnews/33/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [DC每日热点0921](/content/gnews/33/README.md)
+### [DC每日热点0921](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [能源价格暴涨可能削弱欧洲经济](/content/gnews/34/README.md)
+### [能源价格暴涨可能削弱欧洲经济](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻在线：中共病毒疫苗在美国造成儿童死伤的数量超过其他全部疫苗死伤总和](/content/gnews/35/README.md)
+### [秘翻在线：中共病毒疫苗在美国造成儿童死伤的数量超过其他全部疫苗死伤总和](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Twitter 将台湾割让给中共国](/content/gnews/36/README.md)
+### [Twitter 将台湾割让给中共国](/content/gnews/37/README.md)
  ` wenwu`
 
-### [秘翻在线：如何解读李子柒与“资本”闹翻？](/content/gnews/37/README.md)
+### [秘翻在线：如何解读李子柒与“资本”闹翻？](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [苹果公司：曾因人口贩卖问题，威胁要删除脸书应用程序](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
