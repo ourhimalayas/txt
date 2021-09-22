@@ -19,13 +19,13 @@
 ### [一个疫苗故事——主流媒体永远不会报道的故事](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/21/2021国际财经快讯：摩根大通推出数字银行Chase；恒大债务危机冲击日本制造商](/content/gnews/3/README.md)
- ` 秘密翻译组金融团队`
-
-### [日本对中共国的挑衅表示“强烈关切”并敦促欧洲领导人采取行动](/content/gnews/4/README.md)
+### [日本对中共国的挑衅表示“强烈关切”并敦促欧洲领导人采取行动](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/5/README.md)
+### [重症监护医生用伊维菌素治疗中共病毒](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [新疆监狱300多人集体死亡与灭共3.0有啥关联](/content/gnews/6/README.md)
@@ -52,8 +52,8 @@
 ### [川普要求佐治亚州务卿宣布大选真正的获胜者](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [邓小平翻译员：中国共产党对台湾的接管迫在眉睫](/content/gnews/14/README.md)
- ` wenwu`
+### [9/21/2021国际财经快讯：摩根大通推出数字银行Chase；恒大债务危机冲击日本制造商](/content/gnews/14/README.md)
+ ` 秘密翻译组金融团队`
 
 ### [恒大欠我800万，你不抓他你抓我？](/content/gnews/15/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [因恒大财务危机导致的系统性风险会随着时间推移而加剧](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国际要闻汇编](/content/gnews/47/README.md)
+### [白宫就国内航班的疫苗护照问题进行辩论](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [国际要闻汇编](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【小雨专栏】在路上（029）——友谊篇](/content/gnews/48/README.md)
+### [【小雨专栏】在路上（029）——友谊篇](/content/gnews/49/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年9月20日 文贵先生盖特 11](/content/gnews/49/README.md)
+### [2021年9月20日 文贵先生盖特 11](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 10](/content/gnews/50/README.md)
+### [2021年9月20日 文贵先生盖特 10](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 9](/content/gnews/51/README.md)
+### [2021年9月20日 文贵先生盖特 9](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 8](/content/gnews/52/README.md)
+### [2021年9月20日 文贵先生盖特 8](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 7](/content/gnews/53/README.md)
+### [2021年9月20日 文贵先生盖特 7](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 6](/content/gnews/54/README.md)
+### [2021年9月20日 文贵先生盖特 6](/content/gnews/55/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 5](/content/gnews/55/README.md)
+### [2021年9月20日 文贵先生盖特 5](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月20日 文贵先生盖特 4](/content/gnews/56/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月20日 文贵先生盖特 3](/content/gnews/57/README.md)
+### [2021年9月20日 文贵先生盖特 4](/content/gnews/57/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
