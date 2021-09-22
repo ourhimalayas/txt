@@ -28,13 +28,13 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/6/README.md)
+### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
+### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
 
-### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/8/README.md)
+### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [秘翻在线：处处是瞄准老百姓的针头——北京启动免费流感疫苗接种](/content/gnews/9/README.md)
@@ -154,33 +154,33 @@
 ### [立陶宛呼吁抵制中共国制造的手机](/content/gnews/47/README.md)
  ` HimalayaRussia`
 
-### [9/22/21 香港快讯 中秋夜飞鹅山现FAITH字样灯牌](/content/gnews/48/README.md)
+### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/48/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [9/22/21 香港快讯 中秋夜飞鹅山现FAITH字样灯牌](/content/gnews/49/README.md)
  ` 英喜-粵語組`
 
-### [秘翻在线 :世界银行窜改数据以帮助中共国吸引更多投资](/content/gnews/49/README.md)
+### [秘翻在线 :世界银行窜改数据以帮助中共国吸引更多投资](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP百年百罪 第二十一集（86 – 89罪）](/content/gnews/50/README.md)
+### [CCP百年百罪 第二十一集（86 – 89罪）](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [与教皇方济各一起举行过弥撒的斯洛伐克大主教感染新冠病毒](/content/gnews/51/README.md)
+### [与教皇方济各一起举行过弥撒的斯洛伐克大主教感染新冠病毒](/content/gnews/52/README.md)
  ` xiaobaige`
 
-### [新加坡超80%接种率 单日新增感染人数激增贴近历史峰值](/content/gnews/52/README.md)
+### [新加坡超80%接种率 单日新增感染人数激增贴近历史峰值](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线:二氧化碳是欧洲人民生存的关键](/content/gnews/53/README.md)
+### [秘翻在线:二氧化碳是欧洲人民生存的关键](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥说— 第15期](/content/gnews/54/README.md)
+### [七哥说— 第15期](/content/gnews/55/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/55/README.md)
+### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/56/README.md)
+### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/57/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 

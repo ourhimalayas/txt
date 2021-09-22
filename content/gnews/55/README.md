@@ -2,9 +2,19 @@
 ---
 
 
-## 澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1547790/)
+## 七哥说— 第15期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1547823/)
 
-9/22/2021 澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪。
+- 制作：Inzaghi
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/b29.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/b27.png)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)

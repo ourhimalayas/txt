@@ -2,39 +2,40 @@
 ---
 
 
-## 秘翻在线:二氧化碳是欧洲人民生存的关键
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547940/)
+## 新加坡超80%接种率 单日新增感染人数激增贴近历史峰值
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547796/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/p-10.jpg)
-图片:维基百科
+栏目记者/责任编辑：云豹
 
-根据《零对冲》的报导，由于天然气价格飙升，化肥生产商 CF Industries Holdings Inc 关闭两家英国工厂的营运，以二氧化碳为副产品的化肥厂突然关闭，导致依赖二氧化碳的英国食品冷冻业受到重挫。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**二氧化碳是食物供应链的关键**
 
-二氧化碳可在猪鸡屠宰前用于击晕鸡和猪，同时也是延长食物保鲜期和在运输过程中保持易腐烂物品冷冻的干冰。没有它，食品供应链将会断裂。
 
-由于干冰短缺，迫使在线杂货商 Ocado Group Plc 停止交付所有冷冻产品。英国肉类加工商协会警告称，二氧化碳供应可能会在本月底耗尽，迫使屠宰场关闭并导致大规模屠宰动物。
+9月21日，新加坡卫生部报告，新冠病毒本土单日新增感染人数1178人，是从去年疫情开始后的单日次高记录，并且近期已出现连续三天新增感染人数超过1千人次。 新加坡在去年四月爆发高峰后，对人员流动做管控措施，感染人数下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/PP10.001.jpeg)
+今年8月，当疫苗接种率达80%后，新加坡政府开始放开管制。面对近期感染人数飙升， 新加坡政府已暂停进一步的重新开放，希望采用「与病毒共存」的策略，并将防疫的重点放在关注重症病人的人数，及加护病房的住院人数。
 
-肉类协会负责人尼克艾伦说:“这真的很严重 !”由于英国退出欧盟和中共病毒大流行，英国食品行业承受供应链困境和劳动力短缺的压力，而二氧化碳的欠缺更加深此一压力。
+以色列、美国和欧洲国家近期医疗报告已经显示，新冠疫苗引起接种者多种严重不良反应，并导致超多死亡案例。新加坡接种专家委员会，在对疫苗安全数据审查时，早已发现mRNA新冠疫苗会导致多类皮肤症状，和对青少年心脏系统的影响，却仅仅给出部分建议，而不对现有副反应及年轻群体与疫苗相关的心肌炎病例进行调研。
 
-**二氧化碳匮乏，通膨压力加大**
+新加坡政府依然希望透过加强检验、为60岁以上的年长者，及其他高风险族群追打第3剂来应对。政府以“减轻医院的负担”为由，扩大实施「居家康复计画」：对于已接种的人们，建议如确诊感染新冠病毒，则应留在家中观察。 今年下半年，新加坡就已多次爆出护士资源缺乏，一旦复染或疫苗副作用发作，患者将面临无法及时就诊的危险境地。
+(本文仅代表作者观点)
 
-另外英国软饮料协会正监测二氧化碳的需求情况，该行业可能因此停滞不前，连锁反应正在发酵中。 更广泛的影响可能导致整个英国的食品和能源通胀飙升，威胁中共病毒大流行后的英国经济复甦，并使英国的消费者承受通货膨胀的财务压力。
+参考链接:
 
-**除了英国，还有挪威**
+1. [Singapore reports 1,178 new COVID-19 cases, highest since April last year](https://www.reuters.com/world/asia-pacific/singapore-reports-1178-new-covid-19-cases-highest-since-april-last-year-2021-09-21/)
+2. [EXPERT COMMITTEE ON COVID-19 VACCINATION STATEMENT ON SKIN REACTIONS AFTER VACCINATION AND REFRAINING FROM STRENUOUS PHYSICAL ACTIVITY AFTER VACCINATION](https://www.moh.gov.sg/news-highlights/details/expert-committee-on-covid-19-vaccination-statement-on-skin-reactions-after-vaccination-and-refraining-from-strenuous-physical-activity-after-vaccination)
+3. [S’pore doing its best to scale up Covid-19 operations, make sure all patients well cared for: PM Lee](https://www.straitstimes.com/singapore/health/singapore-is-doing-its-best-to-make-sure-all-covid-19-patients-are-well-cared-for)
 
-除了 CF Industries，挪威化肥制造商 Yara 表示，由于天然气价格创历史新高，它很快将氨产量减少 40%。
 
-**冰岛的大型空气捕碳器让欧洲人民的生存雪上加霜**
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-据《卫报》(the Guardian) 9 月 8 日的报导，世界上最大的空气捕碳器已在冰岛启动，每年可从空气中捕获 4,000 吨二氧化碳。如果二氧化碳从空气中大量被抽取，如同让地球远离太阳，地球会更冷，植物更无法顺利进行光合作用，地球上的农业将彻底崩溃，人类也将大规模的死亡。
+终审：暗黑
+校正/发稿：我不在这里
 
-欧洲的二氧化碳来源除了因为能源价格高昂导致生产二氧化碳的工厂倒闭，冰岛启动的大型二氧化碳捕获器更让欧洲人民进入生存的死胡同！
-
-消息来源
-
-[“Quite Alarming” – UK Energy Crisis Sparks Fresh Chaos For Food Suppliers](http://&quot;Quite%20Alarming&quot;%20-%20UK%20Energy%20Crisis%20Sparks%20Fresh%20Chaos%20For%20Food%20Suppliers)
-
-[World’s biggest machine capturing carbon from air turned on in Iceland](http://World’s%20biggest%20machine%20capturing%20carbon%20from%20air%20turned%20on%20in%20Iceland)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
