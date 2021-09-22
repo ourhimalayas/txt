@@ -2,314 +2,66 @@
 ---
 
 
-## 文贵先生、纳瓦罗先生和班农先生9月15日大直播
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1546716/)
+## 维州工会指责抗议工人是“极右翼纳粹分子”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1546832/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/a9d2h-yr6ll-2.jpg)
-[https://gtv.org/video/id=6149e47cd2e2b817486c0f11](https://gtv.org/video/id=6149e47cd2e2b817486c0f11)
+#### 编译报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-26.png)
+图片来源：9 News
 
-**字幕内容:**
-Petter Navarro
-彼得·纳瓦罗：
+周一在澳大利亚维多利亚州（CFMEU）工会总部大楼外举行的抗议活动，标志着工会和工党的分水岭时刻。
 
-I think it’s already taking down the CCP
-我认为我们正在推翻中国共产党
+数千名建筑工人在CFMEU总部外集会，要求见工会老板约翰·塞特卡，因为工会未能保护其成员免受工党强制接种疫苗的影响。
 
-You can see the erosion in the financial portion of China and the economy
-你可以看到共产党的金融和经济正在被侵蚀削弱
+随即CFMEU发表了一项非同寻常的官方声明，将建筑工人抗议归咎于极右翼纳粹暴徒，而不是承认成千上万工会成员的愤怒。
 
-And I think in a way
-并且我认为，在某种程度上
+CFMEU关闭了评论部分，以防止任何人质疑其媒体发布的指控，即“谴责极右翼极端主义暴力”。
 
-the authoritarian move of the dictator Xi Jingping now to consolidate power
-独裁者习近平所采取的巩固权力的极权行动
+当天的视频片段显示，现场绝大多数是愤怒的工会成员。
 
-is an act of desperation
-是一种绝望的表现
+“这些不是关心他们的同事和建筑业的人的行为，”声明说，但没有提到工会成员要求赛特卡保住他们的工作。
 
-As Mils Guo leads this new nation
-因为郭先生领导的这个新的国家
+从下周开始，任何没有完成强制疫苗接种程序的建筑工人将失去工作。
 
-offshore from China and within China
-无论是在中国国内还是海外
+愤怒的工会成员要求知道，维州执政的工党发布的健康令威胁到他们的生计，他们支付了工会费用，而工会没有保护工人的利益。
 
-More and more particularly the Lao baixing
-（比如）越来越多的人，特别是老百姓
+工会老板赛特卡一再声称他从未支持工会成员强制接种疫苗。
 
-become totally upset about this whole latest episode with evergrand
-变得非常的不安，关于最近的恒大事件
+无论他个人是否支持，在赛特卡的指导下，CFMEU没有采取任何措施来阻止维州工党领袖丹·尼尔安德鲁斯的健康命令将使数千名工会成员的工作面临风险。
 
-You see people absolutely incendiary angry about whats going on
-你可以看到，人们对发生的事情爆发出的熊熊的怒火
+在这场反对强制接种疫苗的街头混战中，人群高呼：“丹·安德鲁斯的混蛋！”声音淹没了赛特卡试图让他们平静下来的努力。
 
-That frightens Xi Jingping
-这吓坏了习近平
+当赛特卡问人群是否希望他关闭整个建筑行业时，紧张局势升级，他们回答说：“关闭它！关掉它！”。
 
-I don’t think you would see that kind of authoritarianism unless he was fearful
-我认为，如果不是因为害怕，你不会看到习采取的那些独裁行动
+然后，工人们将赛特卡称为“出卖者”和“渣滓”，因为它允许其他建筑工人越界抢走他们的工作，而不是为所有工人的权利挺身而出。
 
-So ,what we need to do here in America
-所以，我们在美国需要做的事情是
+无处可去，塞特卡背对着人群，退回到大楼里。这引发了愤怒的工人扔水瓶并试图跟随他进入CFMEU总部。在门关上之前，工会官员在镜头前用扩音器恶毒地殴打人群。
 
-Steve’s role, my role, Pompeo’s role and others
-包括班农的角色、我的角色、彭培奥的角色等
+此后，CFMEU将其保护其成员工作权利的言辞转变为“捍卫成员的安全工作权利”，允许工会支持工党的强制性疫苗接种计划。
 
-Is to put the pressure on
-就是继续（对中共）施压
+上周末，维州警察全副武装出动，恐吓和逮捕反封锁抗议者，而州长丹尼尔安德鲁斯则关闭了墨尔本的公共交通。
 
-It’s unfortunate that the election was stolen from Donald trump
-不幸的是，川普总统的选举被偷盗了
+维多利亚警察用胡椒喷雾袭击记者，并将一名老年妇女推倒在地，一名不戴口罩的警察近距离喷了她的脸，令人震惊的场面出现了。
 
-We’re working on getting that back
-我们正在努力尝试修正这件事
+这一次，尽管有近千人聚集在CFMEU总部外，显然违反了常规卫生命令，但警察仍然退缩了。
 
-But in the meantime
-但是，与此同时
+警察的行为让人们质疑他们为什么对CFMEU工会成员遵守双重标准——这一行动进一步削弱了当晚晚些时候政治评论员关于这些是“极右翼纳粹暴徒”的说法。如果是的话，警察几乎肯定会采取与针对反封锁抗议者相同的严厉执法。
 
-having the illegitimate Biden regime in bed with Xi Jingping
-非法的拜登政权，正在与习近平勾结
+尽管附近建筑工地的工人在午休时穿着高背背心、靴子和安全帽抵达现场，抗议活动不断扩大，但一些评论员仍然坚持认为这是某种纳粹阴谋。
 
-is not helpful
-这对我们没有好处
+对建筑工人是“极右翼纳粹分子”的离奇指控，是尴尬的CFMEU绝望地试图消除其工会成员的不满。
 
-So we got to keep the pressure on
-所以，我们需要继续（对中共）施压
+不出所料，这一指控进一步激怒了建筑工人。他们发誓每天都在CFMEU总部进行抗议，直到赛特卡对州政府卫生命令采取措施。
 
-And that’s what we’re going to do here.
-这就是我们在美国需要做的
+【备注：周二、周三建筑工人在墨尔本中心城区继续举行大规模的抗议活动】
 
-Steve Bannon
-史蒂夫·班农
+新闻链接：[CFMEU accuses its own MEMBERS of being ‘far-right Nazis’ – Rebel News](https://www.rebelnews.com/cfmeu_accuses_its_own_members_of_being_far_right_nazis)
 
-I want to step back and just mention one thing
-我想先退回到先前提到的一件事
+编辑/发布：文泓
 
-about the official recognition of New Federal State of China versus take down the CCP
-关于官方承认新中国联邦和推翻共产党
-
-What the NFSC, the whistleblower movement, the rule of law society foundation, gettr,gfation
-新中国联邦、爆料革命、法治基金、盖特和Gfastion等
-
-all of this
-所有的这些
-
-What the world is seeing is a new China, and the new Chinese
-让全世界看到了新的中国、新的中国人
-
-And they are seeing what the Chinese people can accomplish
-全世界看到了中国人能取得什么成就
-
-When they have freedom of speech,freedom of religion ,freedom of press,freedom of express,freedom of assembly.
-当他们拥有言论自由、信仰自由、新闻自由、表达自由和机会自由的时候
-
-And I think that is come about a lot through the NFSC and others
-我认为这很大程度上是通过新中国联邦来实现的
-
-That is so powerful
-这是如此强大的力量
-
-and I do believe
-而且我坚信
-
-the NFSC if the CCP lasts long enough will be recognized
-即便共产党将会长时间存在，新中国联邦也会得到承认的
-
-And I think it will be recognized in you know after 2024
-我认为，新中国联邦将在2024年之后被承认
-
-But our focus 100% is
-但是，我们现在的重点绝对是
-
-to present the new China and new Chinese,every day
-展现新中国和新中国人，在每一天
-
-The only way the CCP gets taken down is by the Chinese people.
-共产党被推翻的唯一方式是，通过中国人民
-
-You know people in the west can assist
-西方社会可以提供帮助
-
-But the Chinese people, LaoBaixing,have to taken down
-但是必须是中国人民、中国老百姓，去推翻它
-
-We are at a unique time in China’s history of 10000/15000 years
-我们处在中国1万年或1万5千年历史以来的最独特的时刻
-
-You finally have in the diaspora of the Chinese people Hundreds of millions
-数千万计流落在外的中国人民
-
-that have been enormously successful
-终于取得了巨大的成功
-
-enormously successful
-巨大的成功
-
-that show everyday ,the lie of this regime
-这样的成功，每一天都在揭露中共政权的谎言
-
-the lie of the regime is the Chinese people on mainland China
-即中国大陆的人民
-
-the only people on earth
-这些地球上唯一的一群
-
-that come from one of the most ancient and respected civilizations
-来自于最古老、最受尊敬的文明之一的人民
-
-that do not have even a modicum of freedom.
-他们却并不拥有一丁点的自由
-
-And so that is our mission
-所以，这就是我们的使命
-
-I think our mission is to focus on taking down this transnational criminal organ-ization
-我认为，我们的使命就是推翻这个跨国犯罪组织
-
-That has terrorized,victimized and brutalized the Chinese nation and the Chi-nese people.
-这个组织使用恐怖手段、残酷无情地对中国人民实施侵害
-
-If we do that,the NFSC will act as almost like a government in exile
-如果我们能够做的的话，新中国联邦将会作为一个类似流亡政府
-
-to present going forward what the new program is
-来作为将来新的程序的代表
-
-That’s why I have the greatest respect for Miles
-这就是为什么我对郭先生有最高的尊敬
-
-But i continue to say,that’s why I think Miles is the George Washington of the new China
-我一直说，这就是为什么我认为郭先生是新中国的华盛顿
-
-Right, we’re talking about new China and new Chinese
-是吧，（因为）我们现在谈论的是新中国和新中国人
-
-Chinese have finally had freedom after millennia of history
-经历千年历史之后，中国人终于拥有了自由
-
-They finally have freedom on the outside in the west
-他们终于在中国之外的西方世界拥有了自由
-
-And you see how they prosper
-而且你可以看到他们的繁荣
-
-You see how the had to contribute to society
-你看到他们如何为社会做出贡献
-
-You see how the family structure
-你可以看到他们的家庭结构
-
-The traditional values of Chinese people are very powerful,right
-中国人民的传统价值观拥有强大的力量，对吧
-
-And that is why it is so important for us to remain focused on our mission
-这就是为什么专注于我们的使命是如此的重要
-
-Our misison is to take the CCP, take down this transnational criminal organiza-tion.
-我们的使命就是推翻中国共产党，推翻这个跨国犯罪组织
-
-Petter Navarro
-彼得·纳瓦罗：
-
-Steve is absolutely right
-班农说的太对了
-
-Ultimately it has to come from within China to take down the CCP.
-最终，必须是中国内部的力量来推翻共产党
-
-But, as we know the most famous expressions in China:
-但是，正如我们所熟知的中国的一句名言：
-
-“one spark can create a prairie fire”
-“星星之火，可以燎原”
-
-We need that prairie fire .
-我们需要那样的燎原之火
-
-It has to be within China.
-但是它必须来自中国内部
-
-But this gentleman here
-但是，正是这里的这位先生
-
-Is creating a few sparks
-他正在点燃星星之火
-
-And we will keep creating sparks
-而且我们会继续点燃星星之火
-and help that prairie fire along
-从而帮助燎原之火得以形成
-
-Steve Bannon：
-史蒂夫·班农：
-
-Our responsibility ,Peter and I take it very seriously
-关于我们的责任，纳瓦罗先生和我都很严肃对待
-
-And other people is associated trump movement
-包括其他支持川普运动有关的人
-
-We have a tremendous responsibility to the Chinese people
-我们对于中国人民负有巨大的责任
-
-That is to stop the western elites in their partnership with this transnational organization
-那就是阻止西方的精英与这个跨国犯罪组织进行合作
-
-That are making money off the victimization and brutalization of the Chinese people
-他们通过对中国人民进行残酷统治和侵害来挣钱
-
-An to hold them accountable
-必须让他们承担责任
-
-Even to the point of reparations back to the Chinese people
-甚至让他们赔偿中国人民
-
-For the money they have stolen out of China
-因为他们偷走了中国人民的钱财
-
-That is rightly the earnings and the wealth of the Chinese people
-那就是中国人民自己的挣得的钱和财富
-
-We have the responsibility to hammer the elites every day
-我们有责任每天敲打这些精英
-
-Whether steve schwartzman
-包括史蒂夫·施瓦茨曼（黑石集团）
-
-Or Ray dalia
-雷·达里奥（桥水基金）
-
-Or Fink
-以及 Fink
-
-Or all these essential criminal class
-或其他本质上的犯罪团体
-
-That have been in partnership and in bussiness with the criminal organization of the CCP
-所有这些曾经与中共这个犯罪组织合作或交易过的人
-
-And so ,that is our responsibility
-所以，这就是我们的责任
-
-and to assist NFSC and others.
-去帮助新中国联邦和其他人
-
-But our focus should be the complete destruction of the CCP
-但是，我们的焦点应该是，完全的摧毁中国共产党
-
-And our support for the new China and the new Chinese.
-以及，我们对新中国和新中国人的支持
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:** [https://gtv.org/video/id=6142a526751e4f2b0e53c474](https://gtv.org/video/id=6142a526751e4f2b0e53c474)
-
-英听校: 洛杉矶盘古农场 – 柯镇恶
-翻译: 洛杉矶盘古农场 – 柯镇恶
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

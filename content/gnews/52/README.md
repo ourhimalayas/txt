@@ -2,24 +2,27 @@
 ---
 
 
-## 杰作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1546876/)
+## 新中国联邦人共度佳节、共克时艰
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1546894/)
 
-撰稿、插图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09221.png)
-一个七旬老太，一副破扁担，两个破竹筐，伴着血迹散落满地的蔬菜，还有那几十年前过了时的旧杆老称，这是怎样的一幅画面，这是怎样的一个杰作？ 也许只有中共国才能画出这样的杰作！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-这是一副凄美的画面，也是一副令人震惊的画面。一个天朝大国，一个号称世界第二大经济体的国度，一个号称全面实现小康的社会，一个老人为了谋生竟付出了血的代价。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNEWS-2021-09-21-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-我无以言表，我出离愤怒！
+视频参看： 2021.09.21晚GTV新闻访谈
 
-那个发了疯的狂人，那个称诺大一个中国竟无一是男儿的人，那个从雄安到海南再到一带一路干啥啥不成胸怀大志的国君，仅数年就把全体中国人几十年奋斗的结晶砸得稀巴烂。这需要多大的“智慧”，这需要多少的“勇气”。拆了人家的篱笆，砸了人家的猪圈，抓了人家的鸡，封了人家的柴炉；我唯一能想到就是——这不是蠢，就是坏。
+[https://gtv.org/broadcast/watch/614a791a42a8af3151a2ea73](https://gtv.org/broadcast/watch/614a791a42a8af3151a2ea73)
 
-这还能用正常思维来形容吗，这还能用坏来形容吗？这和魔鬼有什么两样？我一直怀疑，鬼啊神的都是传说。现实总会让我惊醒，魔鬼真的存在——地狱空荡荡，魔鬼在人间。从新疆集中营到香港大抓捕再到释放病毒乃至大规模强制接种杀人“疫苗”，哪一个不是杰作？哪一个不是血迹满满？
+[https://www.youtube.com/watch?v=02UTXFInLM8](https://www.youtube.com/watch?v=02UTXFInLM8)
 
-我泪眼已模糊，我哀苦难的民众，更哀愚昧无知装睡不醒的人们。一个站不起来的民族怎样才能屹立世界？那只有跟着共产党走进火葬场了。
+编辑/校对/发稿： Lakers
 
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

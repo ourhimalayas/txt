@@ -2,36 +2,41 @@
 ---
 
 
-## 美国陆军利用“撒旦主义”强推疫苗接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547057/)
+## 墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547110/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/塔克-科尔森.png)
-图片来源：Screenshot/yournews.com
+#### 整理报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-27.png)
+图片来源：[F to Humanity（Twitter）](https://twitter.com/F2Humanity)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+9月22日，墨尔本建筑工人的抗议强制接种疫苗已进入第三天，目前维州警方包围了聚集在墨尔本战争纪念馆的数百名抗议者，双方保持对峙。
 
-福克斯电视台主持人塔克·卡尔森(Tucker Carlson)周一公布了一张奇怪的幻灯片。该幻灯片被用于展示给美国陆军的服务人员，以鼓励他们接受强制接种中共病毒疫苗。
+周三，抗议者队伍今天一早蜿蜒穿过中心城区，结束以后在战争纪念馆的集会。抗议者已经在墨尔本战争纪念馆停留了一个多小时，大部分时间都坐在台阶上。
 
-幻灯片讽刺地问：“有多少孩子因为疫苗而献给了撒旦？”同时声称，只有三个人死于疫苗副作用（根据拜登政府收集的数据表明，这个数字实际上是数千人），并列出了直接从“撒旦教圣殿”网站上获取的“撒旦教的信条”。
+抗议者高呼：“我们是和平的，我们是和平的。”
 
-陆军承认向服役人员展示了这张幻灯片，但声称这没有得到领导层的批准。他将军用疫苗授权称为“对美军军队的接管”。
+起初现场情况较为平静，警方在数百米外围绕该古迹建立了一个闭环，但现在合拢后以形成一个更紧密的包围圈。
 
-卡尔森指出，“我们不相信有一个海豹突击队死于中共病毒。他们是世界上最健康的人，军队的奥林匹克运动员。他们中的许多人感染过病毒并康复了，这意味着他们拥有比疫苗更强大的自然免疫力。”
+警方还没有发射过胡椒喷雾或橡胶子弹，但随着警方与数百名抗议者之间的对峙发展，紧张局势正在加剧。
 
-“然而，截至今晚，我们听说有数百名海豹突击队队员，因拒绝接种疫苗即将面临被解雇的命运。”
+目前警方正在聚集收紧包围圈，防暴警察冲在一线，准备好防暴盾牌和警棍，身后的警务人员手里拿着胡椒喷雾罐，预备暴力升级。
 
-卡尔森强调说：“请记住，现役海豹突击队只有约2,500名，他们每个人的训练费至少为50万美元，由美国政府负责。想象一下这对我们国家的军事准备的影响，这是很可怕的。如果你爱这个国家，你不会这样做。你也不会因为我们的护士不愿意打疫苗而强迫我们的护士辞职，从而使我们的医院瘫痪。”
+纪念馆的负责人斯蒂芬博沃特说：“纪念馆是神圣的。这不是抗议的地方，在此的任何抗议都是对澳大利亚军人的荣誉记忆的不尊重。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+今天的示威活动是建筑工人计划在墨尔本举行抗议活动的第三天，以抗议维州政府将对建筑行业实施的中共病毒疫苗强制接种规定。
 
-**参考新闻：**[WTH Is This? Tucker Carlson Reveals ‘Satanism’ Powerpoint Slide Presented To Army To Promote Vaccination – Summit News](https://summit.news/2021/09/21/wth-is-this-tucker-carlson-reveals-satanism-powerpoint-slide-presented-to-army-to-promote-vaccination/)
+州长安德鲁斯周三上午谴责抗议活动是“非法和绝对不可接受的”，警告将在全市部署更多执法人员，并使用“新策略”来驱散集会。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+参考链接：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+1、[Melbourne protests LIVE: Daniel Andrews condemns CFMEU union demonstrations, Victoria Police brace for more violence, Victoria COVID cases increase (theage.com.au)](https://www.theage.com.au/national/victoria/melbourne-protests-live-police-braced-for-more-violence-as-rioters-set-to-swarm-city-streets-again-20210922-p58tou.html)
+
+2、[Police move in on surrounding protesters gathered at Melbourne’s Shrine of Remembrance | Sky News Australia](https://www.skynews.com.au/australia-news/police-move-in-on-protesters-gathered-at-melbournes-shrine-of-remembrance/news-story/12c423a5f858110b478942d74e161e73)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
