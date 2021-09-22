@@ -40,10 +40,10 @@
 ### [万般辛苦唯有自赎](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/10/README.md)
+### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/11/README.md)
+### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [美国对币安的调查扩大到审查可能的内幕交易](/content/gnews/12/README.md)
@@ -67,23 +67,23 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|交通事故背后的疫苗灾难](/content/gnews/19/README.md)
+### [彼得·纳瓦罗：盖特是推特的杀手](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|交通事故背后的疫苗灾难](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|中秋随想](/content/gnews/20/README.md)
+### [有声|中秋随想](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|债务问题或引发经济灾难](/content/gnews/21/README.md)
+### [有声|债务问题或引发经济灾难](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|香港职工会联盟宣布解散](/content/gnews/22/README.md)
+### [有声|香港职工会联盟宣布解散](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [共产法西斯在澳大利亚的兴风作浪，利用疫苗把人分等级](/content/gnews/23/README.md)
+### [共产法西斯在澳大利亚的兴风作浪，利用疫苗把人分等级](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [“爆料革命将成为拯救人类最重要的声音”](/content/gnews/25/README.md)
  ` GTV新闻访谈`
@@ -175,12 +175,12 @@
 ### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/55/README.md)
+### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/55/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/56/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [谈墙内房地产的吃人之道](/content/gnews/56/README.md)
+### [谈墙内房地产的吃人之道](/content/gnews/57/README.md)
  ` 首尔天池农场`
-
-### [立陶宛国防部建议公民避免购买并处理现有中共国手机](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 

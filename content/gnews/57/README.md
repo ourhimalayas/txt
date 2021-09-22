@@ -2,35 +2,23 @@
 ---
 
 
-## 立陶宛国防部建议公民避免购买并处理现有中共国手机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547716/)
+## 谈墙内房地产的吃人之道
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1547720/)
 
-栏目记者/责任编辑：在远方
+韩国首尔天池农场—-水滴石穿 上传—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/09/922封面.jpeg)
+摘要：今天想跟大家聊聊墙内房地产是怎么一步步地将一个正常的国人慢慢地吃掉。在墙内有一大堆的专家，一大堆的数据，我本人呢，不是专家，也当不了墙内的专家，只求能用通俗的语言把问题说清楚，让大家看得清，理得顺。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+回溯房地产业来到墙国，起初是以房产货币化开端的，当然这是一切疯狂的起点，把本该属于公民的基本居住权，用货币化的这把尺子，硬生生地丈量出天大的泡沫。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/922插图-2.jpeg)
+随着经济的不断发展，这泡沫越吹越大，后来为了维持住房地产经济，又强加了一项全球闻所未闻的个人住房公积金（只能用于住房相关），就这样基本上等于把房地产经济写进了国策，房价越来越高，而老百姓却要不断地付出高昂的代价，得到的却是不值钱的冷冰冰的钢筋水泥，这是一场只属于权贵和官员及相关亲属的盛宴。
 
+这时，吃人正式开始了，当一个年轻人来到城市发展，要安定下来，总要结婚生子，那么买房就成了最大的政治正确了，好吧，买吧。一旦办完墙内银行的贷款，这年轻人的一生也就永远与工作、还款息息相关，这时房价在不断地上涨，年轻人的内心仿佛有了那么的一丝安慰，突然间，他失业了，面对每天要还的贷款，他已经彻底崩溃了！
 
+在吃人的餐桌这一边，银行白手套们躺着赚着房地产贷款的利息，不断地贷给开发商们，收地建房，他们和地方政府官员们的醉生梦死的盛宴一天都不停歇。
 
-9月21日, 基于一份认定中共国所产智能手机具有内置审查功能的政府报告，立陶宛国防部建议消费者避免购买中共国国产手机，并且建议人们扔掉现有的中共国手机。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-8.53.49-PM.png)
-中共治下的中国大陆，人们没有任何隐私可言。2018年，中共国广东、福建、山东等省分别成立了大数据局。共产党打着“智慧城市建设”的幌子，以“方便群众办事”为由，打破各部门之间的数据孤岛，通过各种智能手机软件建立大数据库,全面搜集公民各种信息.
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-9.02.22-PM.png)
-此次立陶宛国营网络安全机构同样称，调查表明中共国所产小米手机在欧洲销售的旗舰款具有检测和审查“Free Tibet(自由西藏)”、“台湾独立万岁(Long live Taiwan independence)”或“民主运动(democracy movement)”等词汇的内置功能，而且该手机会向新加坡的一个服务器发送加密的手机使用数据。虽然小米手机表示其国际版已经为“欧盟地区”关闭该功能，但该功能事实上仍然可以随时远程开启。
+突然有一天，恒大出事了！眼看他们高楼起，眼看他们直接自由落体，就在我写这篇文章的时候，墙内的房产及理财维权的同胞们一波又一波的在抗争着。
 
-中共国通过5G通讯设备设施渗透欧美电信行业,同时收集西方各种信息早已不是秘密, 而小米手机预置 政治审查功能, 收集外国公民信息事件被立陶宛揭露，表明欧洲国家已经意识到这是一种对西方人权及价值观的无视和侵犯。 
-(本文仅代表作者观点)
+醒一醒，同胞们！这场盛宴终将结束！一切回归原点。而这最终吃人的房地产背后的主人就是那自从出现就是鬼魅般存在的共匪CCP!它们才是问题的本质和根源啊！没有它们，同胞们才能得到彻底的解放和自由。
 
-参考链接：[立陶宛建议消费者不买并扔掉现有中国手机 称因内置审查功能](https://cn.reuters.com/article/lithuania-chinese-phones-concerns-0922-idCNKBS2GI06M?il=0)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（本文仅代表作者观点，与Gnews平台无关）
