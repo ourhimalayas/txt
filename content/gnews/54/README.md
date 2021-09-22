@@ -2,22 +2,32 @@
 ---
 
 
-## 中共镰刀下的香港财团
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1547592/)
+## 全球各地爆发反接种示威 墨尔本警方暴力令人震惊
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547777/)
 
-作者：东京樱花团｜阿恩
-![](https://lh5.googleusercontent.com/4-o_UHC5Iz6cfrPsFZFTonuus4vEB6oNMW75CG0VRricq2bRCEYIv1eaG_aFHntRMHzZyNi8QELTKjZcMFVt_4MDe_RITglxC8Ftdzhz1EKmFrAirAznMrRZFhG9Cv5V_n8wfzgN=s0)
-[*图片来源*](https://cdn.hk01.com/di/media/images/5167019/org/7c1a6d8a1a6119c9b8393dccf805e582.jpg/DmaTGKn8xHjskCwG1Nb17AkEGD_ZaaviDpbsUQ6W7FE?v=w1280r16_9)
+栏目记者/责任编辑：FoxRina
 
-昨日媒体翻炒2018年中央要求香港地产商助解楼荒的新闻，习近平表明市場「游戏规则已经改变」，不再容忍「垄断行为」。[今日中原地产创办人施永青抬出《基本法》作为挡箭牌，自我安慰称香港地产商並非「中共党员」，相信中央为了利益不会硬性指示地产商做事。他还否认地产商的垄断地位，将楼价高昂的责任卸膊给港府，称港府審批更改土地用途进度缓慢导致房屋供不应求。](https://www.hk01.com/%E6%94%BF%E6%83%85/679721/%E4%B8%AD%E5%A4%AE%E6%96%BD%E5%A3%93-%E6%96%BD%E6%B0%B8%E9%9D%92-%E5%9C%B0%E7%94%A2%E5%95%86%E5%94%94%E4%BF%82%E9%BB%A8%E5%93%A1-%E9%81%8A%E6%88%B2%E8%A6%8F%E5%89%87%E5%88%97%E5%9F%BA%E6%9C%AC%E6%B3%95-%E7%84%A1%E5%BE%97%E6%94%B9)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在香港对中共仍然存在幻想的商人不在少数，他们曾经在港英政府的管制下与中共私厢授受，是中共口中的“爱国人士”，在97后被中共扶正成为几大家族的钱袋子和洗钱的工具，也催生地产业成为香港的龙头产业，买地、卖楼及其他衍生的产业链为港府带来巨额的税收，加上官商勾结，港府在城市规划的蓝图中就为各地产商设计好了各种基础设施接驳，拟定了政策的扶持，因此地产商可以提前许多年用很低的价格“精准地“囤积土地。财团为延续垄断的地位，总会投靠政治势力成为幕后金主，这些财大气粗、有土地、有政治势力的财团就拥有了与政府抗衡的话语权，因此港府许多民生政策都很难向普通市民倾斜。97后的二十多年里，香港人的居住面积愈见狭窄，费用也水涨船高，高收入的港人在高楼价、高物价的大山下总是捉襟见肘，所以收入水平排名全球18的香港人，其幸福指數却落后在第77位。
 
-如今中共在国际争斗中一败涂地，内忧外患之际急需资金续命，怎会放过任何可以掠夺的机会。中共这个流氓政权从来都不守规则，它可以单方面撕毁中英联合申明，可以修改香港的选举制度，可以制定国安恶法，可以毁掉香港三权分立的机制，中共在香港的所作所为还不足以证明它的无赖和残暴吗？现在居然还有人站出来替中共说话，妄想自己还是当年可以要挟港府的商贾，岂不知下一秒就会被港府后的中共砍下狗头。据悉日前香港某富豪举家宴请国安高官试图洗脱支持反逃犯条例运动的罪名。我们已经看到这些财团在中共镰刀下瑟瑟发抖的凄凉景象，可惜他们仍然选择继续与中共勾兑，期盼下一次镰刀落下不在自己头上。
 
-圣经上说：「爱惜自己生命的，就失丧生命；在这世上恨恶自己生命的，就要保守生命到永生。」（约翰福音 12:25）充满罪恶的生命只能用更多的罪恶来延续，而罪的结果就是死。感恩新中国联邦吸引了恨恶罪恶生命的人，他们许多人选择了与罪恶脱离，舍弃了自己的财富和产业加入爆料革命大家庭，却在这里获得了更多的财富和美好的未来。
+面对政府和主流媒体的刻意打压和隐瞒真相，近日，澳大利亚、瑞士、加拿大、法国、芬兰……世界各地觉醒的人们已不再沉默，千千万万的民众自发走上街头，捍卫自己的自由与权利。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/PP9.001.jpeg)
+澳大利亚第二大城市墨尔在本周二爆发示威活动，抗议政府强制建筑工人必须接种新冠疫苗。1000多名示威者在墨尔本市中心游行，高呼反对接种和封锁限制的口号。防暴警察出动驱散示威群众，至少有40多人被捕。 视频显示数百名警察持续向示威民众发射防暴弹药催泪瓦斯，另有数名警察针对带着幼小孩童和平示威的年轻母亲暴力强行拘捕！一幕幕仿佛香港街头黑警再现，令人震惊。
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+隨着各国疫苗政策的收紧，政府利用政策强权施压，未接种者的正常生活、工作、乃至生存逐渐受到严重影响。疫苗政治已严重撕裂了社会公平，破坏了民主与人权，和平岁月已成往昔！
+(本文仅代表作者观点)
+
+参考链接：[警察向示威民众发射防暴弹药催泪瓦斯](https://twitter.com/aibiuld/status/1440552430303731717?s=21)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,33 +2,35 @@
 ---
 
 
-## 秘翻在线：中共国连续七年在互联网自由度排名榜上垫底
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547580/)
+## 立陶宛国防部建议公民避免购买并处理现有中共国手机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547716/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-69.png)
-图片来自网络
+栏目记者/责任编辑：在远方
 
-论互联网自由度，中共国毫无疑问是最差的国家之一。中共国所谓的互联网事实上只是一个用长城防火墙围起来的“局域网”。中共正是利用这个手段封锁信息、限制言论、管控民众，以达到其愚弄百姓和加强统治的目的。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-据《美国之音》9月21日报道，美国人权活动组织自由之家（Freedom House）星期二（9月21日）公布了年度网络自由度（Freedom on the Net）排名报告，中共国排名垫底，连续第七年被列为70多个国家中网络自由度最差的国家。台湾则首次参评便跻身网络自由度最高国家的前五名。
 
-此次报告涵盖的时间范围是2020年6月1日至2021年5月31日，评比指标包括：上网阻碍（obstacles to access）、内容限制（limits on content）和侵犯用户权利情况（violations of user rights）。排名依据的分数是：满分是100分，表示最自由；0分则表示最不自由。中共国的得分仅有10分，排在古巴、缅甸和伊朗之后，连续第七年垫底。
 
-自由之家的报告在提及中共国的情况时表示，中国共产党（CCP）仍在收紧其对国家机构、媒体、网络言论、宗教团体、大学、商业机构以及民间社会团体的控制。
+9月21日, 基于一份认定中共国所产智能手机具有内置审查功能的政府报告，立陶宛国防部建议消费者避免购买中共国国产手机，并且建议人们扔掉现有的中共国手机。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-8.53.49-PM.png)
+中共治下的中国大陆，人们没有任何隐私可言。2018年，中共国广东、福建、山东等省分别成立了大数据局。共产党打着“智慧城市建设”的幌子，以“方便群众办事”为由，打破各部门之间的数据孤岛，通过各种智能手机软件建立大数据库,全面搜集公民各种信息.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-9.02.22-PM.png)
+此次立陶宛国营网络安全机构同样称，调查表明中共国所产小米手机在欧洲销售的旗舰款具有检测和审查“Free Tibet(自由西藏)”、“台湾独立万岁(Long live Taiwan independence)”或“民主运动(democracy movement)”等词汇的内置功能，而且该手机会向新加坡的一个服务器发送加密的手机使用数据。虽然小米手机表示其国际版已经为“欧盟地区”关闭该功能，但该功能事实上仍然可以随时远程开启。
 
-报告指出，中共国互联网用户持续遭到压制。那些呼吁独立调查中共病毒来源的呼声；针对中共国产疫苗的批评声；甚至普通百姓分享新闻、谈论宗教信仰或与海外亲友交谈的行为，都遭到中共官方的审查。
+中共国通过5G通讯设备设施渗透欧美电信行业,同时收集西方各种信息早已不是秘密, 而小米手机预置 政治审查功能, 收集外国公民信息事件被立陶宛揭露，表明欧洲国家已经意识到这是一种对西方人权及价值观的无视和侵犯。 
+(本文仅代表作者观点)
 
-报告提及，中共审查的内容通常包括批评共产党及其官员、官员的错误行为、外交事务、健康安全等，如“八九六四”天安门屠杀事件、台湾、新疆、西藏等内容，并指出中共国的一些宗教人士和少数族裔还因此被中共扣上“颠覆”和“分裂”的罪名，并被判处重刑。
+参考链接：[立陶宛建议消费者不买并扔掉现有中国手机 称因内置审查功能](https://cn.reuters.com/article/lithuania-chinese-phones-concerns-0922-idCNKBS2GI06M?il=0)
 
-报告还称，中共随意获取用户数据，尤其是微信用户的言论，并将用户的个人言论作为处罚的理由。同时，中共还封杀了更多的手机App，如Signal和Clubhouse等，持续阻止民众突破网络封锁，并限制大陆民众与海外人士进行交流。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-此外，报告还指出，中共当局持续限制大陆民众浏览国外网站的内容，利用“防火墙”进行网络审查；强制网络基础设施运营者接受官方审查，提交包括“关于影响或可能影响国家安全的分析报告”等材料；同时还进一步严管科技企业收集、储存和分享用户数据的行为。
+终审：文龙
+校正/发稿：我不在这里
 
-在本年度网络自由评比中，排名最高的是冰岛，爱沙尼亚、加拿大和哥斯达黎加（并列第三）紧随其后。缅甸、白俄罗斯和乌干达是今年网络自由排名下降幅度最大的国家。
-
-值得一提的是，美国的得分已连续第五年下降。自由之家的报告指出，虚假、误导和被操纵的信息继续在网络上泛滥，甚至影响到了2020年总统选举。
-
-注：本文仅代表作者观点
-
-**新闻链接：**[https://twitter.com/VOAChinese/status/1440166279667601412](https://twitter.com/VOAChinese/status/1440166279667601412)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

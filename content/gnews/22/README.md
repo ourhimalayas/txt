@@ -2,9 +2,12 @@
 ---
 
 
-## 澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1547790/)
+## 共产法西斯在澳大利亚的兴风作浪，利用疫苗把人分等级
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1547833/)
 
-9/22/2021 澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪。
+- 制作：葛大饼
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)

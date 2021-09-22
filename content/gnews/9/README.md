@@ -2,34 +2,163 @@
 ---
 
 
-## 专家说FDA疫苗有害，但NIH院长相信加强针将获批
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547721/)
+## 万般辛苦唯有自赎
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1547848/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/FreedomRally-1200x900-5.jpg)网络图片
+作者: 纽约香草山农场-新世界的一员
 
-在9月17日FDA顾问团会议上，医生们指出数据证实辉瑞的新冠疫苗的风险高于好处。两名FDA官员和一写其他的顶尖科学家最近断言，现有证据还不支持鼓励所有美国人使用新冠加强针。
-
-医生告诉FDA说，新冠疫苗伤害的人比拯救的人还多。病毒免疫学家和病毒学家杰西卡·罗斯博士说，“安全性和有效性是开发和管理供人类使用的生物产品的基石。”
-
-罗斯说：“FDA、CDC 和政策制定者的公共卫生官员有责任应对这些异常现象，并确认 VAERS 数据中出现的明确风险信号，来应对新冠疫苗产品使用和风险问题。在我看来，这些风险大于与这些产品带来的任何益处，尤其是对儿童而言”。
-
-新冠病毒早期治疗基金的创始人史蒂夫·基尔希说，我们被引导相信疫苗是完全安全的，但事实并非如此。例如，在辉瑞6个月的试验报告中，治疗组的心脏病发作次数是（对照组）的四倍。这不是坏运气，VAERS显示，与任何其他疫苗相比，注射这些疫苗之后心脏病发生的频率是其他疫苗的71倍。治疗组共有20人死亡——安慰剂14人死亡。
-
-周四，FDA的科学家在9月15日发布的一份长达23页的报告中对辉瑞新冠疫苗加强针注射的必要性表示怀疑。
-
-美国国家卫生研究院（NIH）院长弗朗西斯·柯林斯博士说，即使在美国食品和药物管理局（FDA）咨询委员会于9月17日以压倒性多数拒绝了向公众发放辉瑞公司和BioNTech公司的新冠疫苗加强针的提议后，如果在未来几周内不向其他美国人推荐新冠疫苗加强针，他将感到 “惊讶”。
-
-**简评：**FDA的官员及有正义感的科学家已经用投票和报告表明了自己专业的意见和态度，但是位高权重的柯林斯博士否定了他们的意见，会继续推进加强针的计划，FDA的存在还有意义吗？
-
-**原文链接：**[Experts Tell FDA Vaccines ‘Harm More People Than They Save,’ But NIH Director Believes Boosters Will Be Approved in Coming Weeks](https://childrenshealthdefense.org/defender/fda-vaccines-harm-people-nih-boosters-will-be-approved/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Untitled-design-18-1.png)
+
+本是可以避免的灾难
+
+却因为党国不分的愚昧
+
+硬让邪恶占了上风
+
+总有人天真地以为
+
+只要远离政事莫谈国事
+
+做老老实实老百姓
+
+就能消灾避祸过太平
+
+跪活的猪狗不如
+
+度过忍辱负重的一生
+
+而事实恰恰证明
+
+你不关心政治
+
+政治就会合法的整治你
+
+每当我传播真相
+
+人们的脸上总是扬起傲慢
+
+灾难就在这样黑和白的争论中降临
+
+那些为你量身定制的红色套路
+
+每一句甜言蜜语下的为你好
+
+却是一把把杀人不见血的刀
+
+你的命不由你也不由天
+
+独裁胜比阎王爷
+
+当残暴的事实呈现
+
+人们才惊慌地发现
+
+不管你谈不谈国事
+
+不管你跪的有多卑微
+
+都没能躲过邪恶的生死劫！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Untitled-design-19.png)
+
+有钱的、没钱的
+
+有权的、无权的
+
+谁不是在高高铁拳下瑟瑟发抖？
+
+那些相信了共产党而为它卖命的人
+
+那些为了利益驱使而助纣为虐的人
+
+在灾难来临的那一刻
+
+必将成为仇恨的牺牲品！
+
+疫苗比病毒还毒的残忍社会
+
+又开启了一个“伟大”的互斗互害时代
+
+何日才能开智？
+
+何时才能醒悟？
+
+挣脱魔力掌控的唯一途径
+
+是勇敢的站起来反抗
+
+否则三年五载后
+
+人类会进入大毁灭
+
+倒不如挺直腰板活出人样
+
+鱼死网破才有生机
+
+不要再伏地跪拜成不成？
+
+不要再助纣为虐行不行？
+
+不要活得猪狗不如
+
+你却还想着听党话跟党走
+
+明天会更好
+
+不要再把他当亲祖宗供着中不中？
+
+能不能抢在灾难前鼓足勇气？
+
+挺直脊梁
+
+高声喊出，消灭共产党吧！
+
+愚昧清除了
+
+灵魂干净了
+
+好运也就降临了
+
+谁能帮助、拯救我们自己？
+
+唯有坚持从善利他的蓝色信念
+
+唯有获知真相的GTV
+
+唯有击破谎言的盖特
+
+才能让邪恶颤抖
+
+阴谋败落
+
+七芒星带来的人性光辉
+
+是护你周全的诺亚方舟！
+
+
+
+校对/编辑/发稿: Amanda艾曼达
+
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M9.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)

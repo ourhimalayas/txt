@@ -2,30 +2,33 @@
 ---
 
 
-## 立陶宛国防部建议公民避免购买并处理现有中共国手机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547716/)
+## 美国银行下调对中共国经济增长预期
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548071/)
 
-栏目记者/责任编辑：在远方
+栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-309.png)
+据多家媒体报道，9月21日，美国银行下调了它对中共国经济增长的预期，将2021年中共实际国内生产总值GDP的增长预期从8.3%下调至8.0%，对2022年的预期则从6.2%下调至5.3%，对2023年的预期从6.0%下调至5.8%。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-20.jpeg)
 
+形成鲜明对比的是中共媒体对国内经济的不实报导，7月15日中共官方披露的上半年数据声称中共国内生产总值同比增长12.7%，无视各行各业艰难维持的现状，在经济、外贸、就业、消费各方面极尽粉饰太平。
 
+恒大地产负债累累，违约风险上升，占中国经济约四分之一的房地产业成为世界经济关注的焦点。同时。由于供应链瓶颈和新冠疫情，近期出台的包括零售和工厂产出在内的疲弱数据也指向中国经济的下滑。
 
-9月21日, 基于一份认定中共国所产智能手机具有内置审查功能的政府报告，立陶宛国防部建议消费者避免购买中共国国产手机，并且建议人们扔掉现有的中共国手机。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-8.53.49-PM.png)
-中共治下的中国大陆，人们没有任何隐私可言。2018年，中共国广东、福建、山东等省分别成立了大数据局。共产党打着“智慧城市建设”的幌子，以“方便群众办事”为由，打破各部门之间的数据孤岛，通过各种智能手机软件建立大数据库,全面搜集公民各种信息.
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-9.02.22-PM.png)
-此次立陶宛国营网络安全机构同样称，调查表明中共国所产小米手机在欧洲销售的旗舰款具有检测和审查“Free Tibet(自由西藏)”、“台湾独立万岁(Long live Taiwan independence)”或“民主运动(democracy movement)”等词汇的内置功能，而且该手机会向新加坡的一个服务器发送加密的手机使用数据。虽然小米手机表示其国际版已经为“欧盟地区”关闭该功能，但该功能事实上仍然可以随时远程开启。
+美银分析师在一份报告中表示:“从2021年第四季度到2022年第一季度，任何政策反应的进一步延迟，或对重大债务人违约的处理不当，都可能增加增长错位的风险。”
 
-中共国通过5G通讯设备设施渗透欧美电信行业,同时收集西方各种信息早已不是秘密, 而小米手机预置 政治审查功能, 收集外国公民信息事件被立陶宛揭露，表明欧洲国家已经意识到这是一种对西方人权及价值观的无视和侵犯。 
-(本文仅代表作者观点)
+在世界与中共加速脱钩的态势下，中共的泡沫经济，随着房地产这第一个多米诺骨牌的倒塌，将难以为继。
 
-参考链接：[立陶宛建议消费者不买并扔掉现有中国手机 称因内置审查功能](https://cn.reuters.com/article/lithuania-chinese-phones-concerns-0922-idCNKBS2GI06M?il=0)
+(本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+参考链接：[美国银行下调对中国经济增长的预期](https://www.voachinese.com/a/Bank-of-america-china-economy-forecast-20210921/6238721.html)
+[不止恒大危机！三大压力下美银下调中国GDP增长预期 2022年中国GDP增长料大幅放缓至5.3%](https://www.fx168.cn/info/top/2109/5361350.shtml)
+[2021年中国经济半年报呈现八大亮点](https://t.ynet.cn/baijia/31113215.html)
 
-终审：文龙
-校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：FoxRina
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,4 +36,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
