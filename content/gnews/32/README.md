@@ -2,60 +2,53 @@
 ---
 
 
-## 英国知名主持人皮尔斯·摩根的Ofcom裁决是常识的胜利
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1546645/)
+## 辉瑞疫苗拟将黑手伸向5至11岁的儿童
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1546714/)
 
-- 编译：wenwu–西班牙喜悦农场
+作者：纽约香草山美食部 – 蓝天大海
 
 
-## GETTR 的杰森·米勒 (Jason Miller) 讲述了左翼自由主义机构是如何让我们保持沉默。
 
-从“有争议”一词的含义变化中可以看出过去 20 年来世界发生了怎样的变化。这个词曾经被积极地用来赞扬那些挑战我们的前沿媒体。却用来谴责和他们不同的政策或立场—我们没有说“不”的权力。自由主义者这个词也是如此。它曾经被用来描述一个愿意尊重或欣赏与他们自己不同的想法和行动的人，现在自由仅代表一个人的思想，这导致了与这个群体不同意的想法是必须被禁止在公共对话中出现的，这让人无法容忍。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-今天，每个人都有可能被贴上不顺服的标签，这些不自由的人伪装成政治进步人士的入侵者。无论你是曾被封锁还是仅仅是不顺服，你自己的观点都不会被批准发表。皮尔斯·摩根也不例外。他是一个真正意义上的自由主义者，他节目的看点在于充满了火药味，而且他毫不畏惧地挑战被认可的说法。在我的家乡美国和他的祖国英国，人们对他既恨又爱。英国监管委员会 Ofcom 在上周的裁决，揭示了公众的表达自由已经被限制到什么程度。
 
-背景故事：由于摩根对苏塞克斯公爵夫人梅根·马克尔（Meghan Markle）的批评意见而被《早安英国》（Good Morning Britain）的观众“打了一巴掌”，Ofcom 裁定这是[在他的](https://news.sky.com/story/piers-morgan-delighted-by-ofcom-verdict-as-he-tells-harry-and-meghan-to-put-up-or-shut-up-12396526)发言权范围内。
 
-Ofcom 的判决书称：“守则允许个人表达强烈的观点和有力的论证，包括那些有潜在危害或高度攻击性的观点，并允许广播公司在其节目中包括这些观点。在我们看来，对此类观点的限制等同于是对广播公司和观众的言论自由的一种毫无根据且令人不寒而栗的限制。”
+9月21日，据NewsMax报道，辉瑞公司20日表示，其将很快寻求美国授权，为5至11岁的儿童接种新冠疫苗。辉瑞公司声称，经过两剂新冠疫苗的注射后，儿童可以在体内产生与青少年和年轻人一样强的抵御冠状病毒的抗体水平。同时，辉瑞也谎称，许多孩子的父母正焦急地等待着为年幼的孩子接种疫苗。然而，倘若仔细看这则消息下面的评论，几乎全部都是民众反对给儿童接种疫苗的声音。
 
-就像此后离开 GMB 的摩根一样，我认为这是一个巨大的胜利，因为这是让言论自由在公共辩论中发挥的一个罕见的例外，这在英国是受到控制的。但我们不能忘记，Ofcom 仍然有权授予思想自由。
+![](https://www.newsmax.com/CMSPages/GetFile.aspx?guid=9e7b49d9-247f-482c-9e44-a4d19b5b9a29&amp;SiteName=Newsmax&amp;maxsidesize=600)图片来源：Getty Images
 
-对被认为是异端的机构监管可以追溯到古代，当时教会要求对印刷机进行监督。今天生活在专制政府下的人对此深有体会。但在这里，在自由的西方，我们也许对我们日益减少的公共辩论空间最视若无睹。
+事实上，新冠疫苗是新冠病毒的次生灾害。也有许多事实证明，新冠疫苗会对人体造成比病毒更严重的伤害。而今，中共以及暗黑势力正控制着全球大部分的主流媒体，并且掌握着话语权。因此，他们不仅隐瞒病毒真相，还大力强推新冠疫苗接种，企图以此对全世界人类造成不可逆转的伤害。
 
-大型科技公司已经赋予了自己现代化操纵公共辩论的角色。Facebook [创建](https://www.nytimes.com/2021/08/25/technology/facebook-election-commission.html)了一个独立的选举机构来“保护民主免受错误信息的影响”，而 Twitter 贬低了那些观点令自由左派精英不满的人，这很容易分辨。自由辩论已经成为一个政治化的战场。
+值得庆幸的是，郭文贵先生和他带领的爆料革命一直在积极地传播着新冠病毒和疫苗的真相，也不断地呼吁人们拒绝新冠疫苗。由于爆料革命战友们坚持不懈地传播，蝴蝶翅膀所造成的效应目前开始慢慢显现——世界各地许多国家的人民逐渐觉醒，开始加入到反新冠疫苗和疫苗护照的抗争和游行示威中。如今，从欧洲的法国、英国、意大利、瑞士、波兰、丹麦、荷兰等国家，到澳大利亚，再到北半球的加拿大以及南美的巴西，甚至美国的纽约市也开始有民众站出来，发出反对的声音。至于今天NewsMax本条新闻后面的留言，也清楚地反映出民众正在觉醒。
 
-它并非总是如此。从 60 年代中期开始，在英国和美国的电视节目中，名人经常取笑建制派的规范和信仰，其中《巨蟒》（Monty Python，超现实主义马戏团）以嘲讽管理国家的人，尤其是王室成员而受到赞誉。
+此前，FDA于上星期以16:3的投票结果否决了为16岁以上的群体接种第三针加强新冠疫苗的提案。据悉，在投票前，FDA召开了一个听证会。会上，新冠病毒早期治疗基金的执行董事史蒂夫·科尔希披露，新冠疫苗杀死的人比其拯救的人要多！科尔希提及，新冠疫苗至少需要杀死两个人，才能救一个人——这还是在假设疫苗有效率100%的前提下。
 
-我们今天讽刺当权者不会受到赞誉；也没有人敢在同性恋、BLM 或骄傲月（双性恋）上说“不”；甚至拿大流行病或整个政治开玩笑都被认为是低级趣味，因为 Ofcom 现在已经授权自己从 Netflix 和 Amazon Prime 中，[删除](https://www.independent.co.uk/arts-entertainment/tv/news/netflix-ofcom-bbc-uk-government-b1869617.html)“传播错误信息”的内容，同时为自己保留了决定哪些内容是合格的权利。
+实际上，在辉瑞临床实验中，新冠疫苗的实验组死亡20人，对照组仅死亡14人。另外，实验组的心脏病发病率比对照组的高4倍。同时，科尔希透露，辉瑞临床实验涉嫌欺诈和修改数据。另有数据表明，以色列养老院中90岁以上老人的新冠疫苗接种率在过去的4个月中从94.4%下降到了82.9%。这是为什么呢？因为一半以上接种过新冠疫苗的老人都死了。更有报道提到，一名12岁的儿童因为参加了辉瑞新冠疫苗的临床试验，导致她终身瘫痪，而这个案例没有出现在辉瑞的疫苗临床试验报告中。
 
-[杰里米·克拉克森](https://www.express.co.uk/celebrity-news/1476809/Jeremy-Clarkson-constantly-editing-fear-woke-army-cancel-culture-Clarksons-Farm-news)( [Jeremy Clarkson)](https://www.express.co.uk/celebrity-news/1476809/Jeremy-Clarkson-constantly-editing-fear-woke-army-cancel-culture-Clarksons-Farm-news)和[约翰·克里斯](https://www.express.co.uk/celebrity-news/1480250/John-Cleese-woke-political-correctness-Fawlty-towers-latest-news-update)( [John Cleese)](https://www.express.co.uk/celebrity-news/1480250/John-Cleese-woke-political-correctness-Fawlty-towers-latest-news-update)等英国文化偶像的声誉受到“醒目”的少数群体的抨击。事实上，现在唯一仅仅可以在讽刺普通人、仍然持有保守信仰的人、老年人、受教育程度较低的人、农村人身上得到赞誉，还有包括那些仍然坚持常识又无权无势的人。
+科尔希的揭露令人震惊！但这就是疫苗的真相。
 
-这种对“醒目而正确”的痴迷，是出于对大科技公司与左派赞助的“超现实”之间的操纵和勾结的危险转移，正如埃德·韦斯特（Ed West）所[言](https://unherd.com/2021/01/the-phoney-war-on-woke/)，”这是一种强制执行政治正确的方式，一种相信某些想法是应该而且可以在足够的社会压力下会变成不可说，甚至可以思考”。
+（本文仅代表作者观点）
 
-今天的社交媒体鼓励顺从主义。但与其让每个人被迫以一种方式思考，不如有一个新的选择。
+参考阅读：
 
-GETTR 是一个捍卫言论自由和打击取消文化的新平台。它于 7 月推出，几乎立即成为历史上增长最快的社交媒体平台，在不到三天的时间内就达到了 100 万注册用户。它现在拥有超过 200 万用户，并在全球范围内继续增长，当然包括在英国。
+[Pfizer Says COVID-19 Vaccine Works in Kids Ages 5 to 11](https://www.newsmax.com/health/health-news/pfizer-vaccine-kids/2021/09/20/id/1037099/)
 
-在 GETTR 上没有人会因为他们的政治观点而被平台贬低或封杀。我们不怕相互竞争的想法，因为我们相信自由、严谨的观点和信息交流只会让公共话语更强大、更有价值。GETTR 是思想的市场，代表着每个人都应该有发表常识性意见的权力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
-虽然皮尔斯·摩根有权说出他的想法，但仍然需要抱着 Ofcom 的大腿来支持他自己的权力。在 GETTR，不论是来自个人持有或者公开发表的此类具有火药味的意见，都将被视为神圣不可侵犯的。
+***编辑/校对/发稿：Irene木木***
 
-**简评：**
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-7-14.png)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**言论自由对于目前的中共国显得格外宝贵，可谓是千金不换。因为这是中共所惧怕的真相传递和现场及时表演方式，而且嘲讽官员、反对谎言的文化刚好动摇了共产主义体制的根基。不仅如此，GETTR、GTV、GNEWS更是保障自身权益的手段。**
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**试着想一想，如果我们在1989年6月4日的天安门大屠杀的时候有了自己的GTV进行现场直播，并且保证了不相信共产党的一个标点符号，那么可以相信结局会是不一样的。**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**近期，网络流传恒大的债主投资800万结果连本金都拿不回来，到恒大要债还被便衣警察上门[威胁](https://youtu.be/AXXPvrGqrRM)，这是幸好有媒体把现场直播出去，不然结果不堪设想。因为首先要搞清楚一件事情，通过恒大骗老百姓钱的不仅仅是表面，其真正内幕是恒大背后的中共伪政权要拿走所谓的800万投资款项，谁有听过骗子能把钱还回去的道理。**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-（文章仅代表作者观点 与GNEWS无关）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**新闻来源：**[《BusinessMatters》](https://bmmagazine.co.uk/opinion/piers-morgans-ofcom-ruling-is-a-victory-for-common-sense/)｜发布时间：2021年9月21日
 
-* * *
 
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEWS_CH.-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
