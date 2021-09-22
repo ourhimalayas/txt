@@ -2,26 +2,18 @@
 ---
 
 
-## 医疗前线护士揭露媒体和政府谎言
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548125/)
+## “爆料革命将成为拯救人类最重要的声音”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548149/)
 
-栏目记者：禹水沃土
-责任编辑：晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-311.png)
-国家新闻网站9 月 21 日报道，越来越多的护士站出来揭露新冠疫苗的谎言。全国和世界各地的医护人员面临接种强制令，被上级以“职位不保”作为威胁，有些已被解雇。他们表示：没有什么可失去的；现在能做的，就是把疫情期间发生在医院、诊所、和疗养院亲眼目睹的谎言及暴行，揭示给民众。
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-312.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide11-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide9-2.jpeg)
-
-据一位注册护士在 Stew Peters Show 接受采访时说，自新冠病毒疫苗推广以来，与接种相关的伤害层出不穷，比如血凝块、心脏及神经学问题、平衡、认知、攻击性行为、脑科疾病等。 很多不良反应并没有被记录入疫苗报告系统。
-
-新冠病毒疫苗的推出是一场噩梦，所有的一切基于利润：这致使保险公司、制药商掩盖包括伊维菌素在内的使用成熟药物。医学已经被政治化，主流媒体充斥着虚假信息；人们对医学、卫生健康系统不再抱有信心。
-
-在整个世界被疫苗政治伤害的当下，GTV和GETTR平台在坚持传播着真相：新冠病毒和新冠疫苗是生化武器，千万不要打疫苗。
+文贵先生在9月21日中秋节大直播中说道，在这场病毒和疫苗的人类大灾难中，爆料革命揭露病毒和疫苗真相，将成为拯救人类最重要的声音。GNEWS、GTV、盖特坚持传播真相，时刻影响着世界上的决策者，是拯救世界的诺亚方舟，是人类的希望。 某位和文贵先生关系密切的医生战友，在谈及与爆料革命的渊源时说道，正是在辉瑞和几个大药厂打压病毒和疫苗真相的时候，开始关注文贵先生和爆料革命，当了解到文贵先生早在2020年2月份就开始向世界预警疫苗灾难、疫苗经济、疫苗政治和次生灾难后，更加相信爆料革命掌握绝密情报。这名战友表示，因为揭露病毒和疫苗真相，新中国联邦、爆料革命造成的影响前所未有，毫不夸张地说，爆料革命将成为当下拯救人类最重要的声音，大概5年后，新中国联邦人坚持传播真相的勇敢事迹，将会如圣经一样为世人传颂。
 
 (本文仅代表作者观点）
 
-参考链接：[Frontline Nurses Expose Media and Government COVID Lies](https://new.finalcall.com/2021/09/21/frontline-nurses-expose-media-and-government-covid-lies/)
-[In the fight against COVID, health workers aren’t immune to vaccine misinformation](https://www.opb.org/article/2021/09/18/health-workers-not-immune-to-vaccine-misinformation/)
+参考链接：[https://gettr.com/post/pbswzha597](https://gettr.com/post/pbswzha597)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

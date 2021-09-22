@@ -2,33 +2,59 @@
 ---
 
 
-## 新冠疫苗已在美国杀死15万人，其中包括574名儿童
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1548265/)
+## 新闻速递|立陶宛国防部长告诉公民，扔掉你的中国手机
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1548505/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/092202-1.jpg)图片：来自网络
-科学家们在对公开的数据进行了深入的科学研究后得出结论，仅在美国就有至少15万人死于新冠疫苗，现在他们呼吁医学界反对强制接种新冠疫苗，因为他们的研究结果证明，这种做法是不合理的。
+翻译：香草山商业部 – 文锤
 
-在一篇题为“美国新冠疫苗死亡人数估算”的论文中，杰西卡•罗斯博士指出，她和她的团队通过过敏性休克，这一应始终被报告的特定严重不良事件，确定了疫苗不良事件报告系统（VAERS）漏报的倍数。
-
-根据CDC关于“新冠疫苗接种后报告的部分不良事件”的报告，新冠疫苗接种后的过敏性休克是罕见的，根据向VAERS报告的事件，在美国每百万接种者中大约有2到5人发生过敏性休克。
-
-然而，2021年3月8日发表在《美国医学会杂志》上的一项在麻省总医院进行的科学研究发现，完全接种疫苗的人群中“与过敏性休克一致的严重反应的发生率为2.47:10,000”。
-
-这意味着VAERS收到的过敏性休克报告比实际发生在接种人群中的情况要少50-123倍，尽管这是一个众所周知的副作用，医生需要报告。
-
-杰西卡•罗斯博士在她的论文中指出，通过使用漏报率，计算为比接种人群中发生事故的实际情况少41倍，截至7月16日，有574名12岁以上的儿童被新冠疫苗杀死。
-
-[新闻链接](https://theexpose.uk/2021/09/20/covid-19-vaccines-have-killed-at-least-150000-people-in-the-usa/)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译: 村民彼得潘 | 校对：Julia Win*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1032-1.png)[图片来源](https://www.politico.eu/article/lithuania-china-phones-cybersecurity-concerns/)
+
+该国国防部副部长说，“我们的建议是不要购买新的中国手机，并尽快摆脱已经购买的中国手机。”
+
+立陶宛国防部[建议](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;nui=1&amp;elem=1&amp;u=https://kam.lt/en/news_1098/current_issues/things_your_smart_phone_does_without_your_awareness_investigation_into_three_china-made_5g_devices.html)不要购买中国手机，并建议人们在政府报告手机已安装审查功能后，丢弃他们现在可能拥有的任何手机。
+
+立陶宛政府的网络安全机构周二表示，中国电子巨头小米在欧洲销售的手机内置了发现和审查汉字短语的功能，包括“西藏自由”、“台湾独立万岁”或“民主运动”。
+
+根据国防部国家网络安全中心的报告，小米10T 5G手机软件的功能已在“欧盟地区”关闭，但可以随时远程开启。
+
+该报告涉及中国智能手机的网络安全问题，尤其是用户活动的收集。报告称，从手机发送到第三国小米服务器的数据没有遵守数据保护规则。
+
+“我们的建议是不要购买新的中国手机，并尽快摆脱已经购买的手机，”国防部副部长 Margiris Abukevičius 告诉包括[路透社](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;nui=1&amp;elem=1&amp;u=https://www.reuters.com/business/media-telecom/lithuania-says-throw-away-chinese-phones-due-censorship-concerns-2021-09-21/)在内的媒体。
+
+小米没有立即回应置评请求。
+
+立陶宛和中国的关系最近出现恶化。在维尔纽斯搬到台湾设立新的外交机构后，中国于 8 月[召回了其驻立陶宛大使](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;nui=1&amp;elem=1&amp;u=https://www.aljazeera.com/news/2021/8/10/china-demands-lithuania-withdraw-envoy-in-row-over-taiwan)。
+
+台湾在欧洲和美国的使团使用台北市的名称，避免提及该岛本身，中国声称台湾岛为自己的领土。
+
+**原文阅读：**
+
+[Throw away your Chinese phones, Lithuania defense minister tells citizens – POLITICO](https://www.politico.eu/article/lithuania-china-phones-cybersecurity-concerns/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

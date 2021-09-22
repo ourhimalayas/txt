@@ -2,40 +2,27 @@
 ---
 
 
-## 新加坡超80%接种率 单日新增感染人数激增贴近历史峰值
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547796/)
+## FDA顾问小组反对向美国人接种辉瑞疫苗加强针
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548017/)
 
-栏目记者/责任编辑：云豹
+【简评】：
+***周五FDA疫苗及相关生物制品咨询委员会（VRBPAC）的64名专家的讨论中，有61人投票反对给全民接种加强针，这直接宣告了拜登总统9月20日开始接种加强针的政策可能终结。专家们表示，对辉瑞提供的加强针的安全性数据表示失望，因为以色列的研究数据并不适合美国。且没有证据表明辉瑞加强剂对16岁及以上的人安全有效。***
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+***另外，关于是否应该接种加强针的问题，科学家也进行了激烈的争论。周一发表的权威医学期刊《柳叶刀》明确表示，“目前的证据似乎没有显示有必要在普通人群中推广加强剂……在疫情的现阶段，广泛分发加强剂不合时宜。”***
 
+据《美联社》2021年9月17日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2241.png)图片来源：AP Photo/Robert F. Bukaty, File
+华盛顿(美联社)—FDA顾问小组断然拒绝了向大多数美国人提供辉瑞COVID-19疫苗加强针计划。
 
+文章点评仅代表个人观点
 
-9月21日，新加坡卫生部报告，新冠病毒本土单日新增感染人数1178人，是从去年疫情开始后的单日次高记录，并且近期已出现连续三天新增感染人数超过1千人次。 新加坡在去年四月爆发高峰后，对人员流动做管控措施，感染人数下降。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/PP10.001.jpeg)
-今年8月，当疫苗接种率达80%后，新加坡政府开始放开管制。面对近期感染人数飙升， 新加坡政府已暂停进一步的重新开放，希望采用「与病毒共存」的策略，并将防疫的重点放在关注重症病人的人数，及加护病房的住院人数。
+原文连接：[https://apnews.com/article/ap-news-alert-business-health-coronavirus-pandemic-b0f6dec670860985e3321dac2af9cce9](https://apnews.com/article/ap-news-alert-business-health-coronavirus-pandemic-b0f6dec670860985e3321dac2af9cce9)
 
-以色列、美国和欧洲国家近期医疗报告已经显示，新冠疫苗引起接种者多种严重不良反应，并导致超多死亡案例。新加坡接种专家委员会，在对疫苗安全数据审查时，早已发现mRNA新冠疫苗会导致多类皮肤症状，和对青少年心脏系统的影响，却仅仅给出部分建议，而不对现有副反应及年轻群体与疫苗相关的心肌炎病例进行调研。
+翻译：洛杉矶盘古农场–钢蛋儿
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–钢蛋儿
+编辑：洛杉矶盘古农场–心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-新加坡政府依然希望透过加强检验、为60岁以上的年长者，及其他高风险族群追打第3剂来应对。政府以“减轻医院的负担”为由，扩大实施「居家康复计画」：对于已接种的人们，建议如确诊感染新冠病毒，则应留在家中观察。 今年下半年，新加坡就已多次爆出护士资源缺乏，一旦复染或疫苗副作用发作，患者将面临无法及时就诊的危险境地。
-(本文仅代表作者观点)
-
-参考链接:
-
-1. [Singapore reports 1,178 new COVID-19 cases, highest since April last year](https://www.reuters.com/world/asia-pacific/singapore-reports-1178-new-covid-19-cases-highest-since-april-last-year-2021-09-21/)
-2. [EXPERT COMMITTEE ON COVID-19 VACCINATION STATEMENT ON SKIN REACTIONS AFTER VACCINATION AND REFRAINING FROM STRENUOUS PHYSICAL ACTIVITY AFTER VACCINATION](https://www.moh.gov.sg/news-highlights/details/expert-committee-on-covid-19-vaccination-statement-on-skin-reactions-after-vaccination-and-refraining-from-strenuous-physical-activity-after-vaccination)
-3. [S’pore doing its best to scale up Covid-19 operations, make sure all patients well cared for: PM Lee](https://www.straitstimes.com/singapore/health/singapore-is-doing-its-best-to-make-sure-all-covid-19-patients-are-well-cared-for)
-
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：暗黑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

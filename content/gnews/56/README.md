@@ -2,9 +2,14 @@
 ---
 
 
-## 澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1547790/)
+## CCP百年百罪 第二十一集（86 – 89罪）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1547996/)
 
-9/22/2021 澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪。
+迫害法轮功
+出卖领土
+欺骗WTO
+病毒预演
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【CCP百年百罪】第二十一集（86 – 89罪）
+
+喜马拉雅华盛顿DC农场出品

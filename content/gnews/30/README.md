@@ -2,23 +2,22 @@
 ---
 
 
-## 股东集体诉讼案，推特公司以8亿美元寻求和解
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548019/)
+## &#8220;中共对美国的威胁超过任何其它国家!&#8221;
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548060/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)
-路透社消息，针对推特股东集体起诉推特在用户使用频率问题上欺骗投资者的案件，推特公司于本周一表示，将支付8.095亿美元寻求和解。
+栏目记者/责任编辑：七哩香
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-308.png)
+9月21日，美国国家安全和执法机构官员在参院作证称，中共对美国构成的严重威胁，超过伊朗等任何其它国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-41.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-19.jpeg)
 
-2016年9月，推特股东集体起诉推特公司，称推特在2014年底停止报告”时间线浏览量”，掩盖停滞或下降的用户参与度，误导股东，人为抬高股价。该集体诉讼涉及2015年2月6日至2015年7月28日期间购买推特公司股票的投资者。
+美国国家反恐中心主任阿比扎德警告说，基地组织和伊斯兰国等恐怖组织，伊朗及其代理人真主党，均有意图对美国发动攻击。联邦调查局局长克里斯托弗·雷和国土安全部长马约卡斯则指出，勒索软件攻击案例中很多涉及俄罗斯。 但对美国的创新、经济和民主所构成的威胁，没有哪个国家能超过中共，涉及中共的经济间谍调查，比大约10年前增加了1300%，中共迫使FBI平均每12小时就开启一个新的反间谍调查。马约卡斯对议员们说，中共“继续从事窃取知识产权，利用脆弱的供应链，使用经济胁迫来威胁我们的经济安全”。
 
-此消息一出，推特股价即在当天下午的早盘交易中下跌3.8%。 历经5年的集体诉讼将以和解的形式了结，推特公司也表示将于今年第四季度支付和解金，下跌的股价显示部分投资者开始对推特失去信心。而在主流媒体已经开始逐步报导疫苗真相的当下，推特肆意打压病毒和疫苗真相的行为将引发更大的质疑。
+在此次作证中, 上述美国官员同时指中共试图利用新冠疫情，“从假冒的个人保护设备和医疗物资的生产中获利”。
 
 (本文仅代表作者观点）
 
-参考链接：[https://gettr.com/post/pbvjjmb49b](https://gettr.com/post/pbvjjmb49b)
-[Twitter seeks to settle 2016 class action lawsuit for $800 mln](https://www.reuters.com/technology/twitter-offers-settle-2016-class-action-lawsuit-800-mln-2021-09-20/)
+参考链接：[联调局：美国国内恐怖主义案例暴增 外国对美威胁以中国居首](https://www.voachinese.com/a/us-domestic-terrorism-soared-20210921/6240612.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
