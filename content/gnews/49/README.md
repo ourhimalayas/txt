@@ -2,41 +2,166 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1546705/)
+## 彼得·纳瓦罗：美国应停止美国资本通过美国养老基金流向中国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1546686/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/09/pasted-image-0-14.png)
-[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/0921/20210921072901927.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a9d2h-yr6ll-1.jpg)
+[https://gtv.org/video/id=6149e40dd2e2b817486c0ee0](https://gtv.org/video/id=6149e40dd2e2b817486c0ee0)
 
-**9月21日汇编**
+**字幕内容:**
 
-1、[**美国白宫：准备好应对中国地产市场风险溢出危机**](https://www.aboluowang.com/2021/0921/1649495.html)
+PeterNavarro
+彼得·纳瓦罗
 
-白宫新闻秘书Jen Psaki周一(20日)在记者会上表示，在有需要时，美国政府已准备好应对中国地产市场危机和当地地产商恒大可能违约的风险。Psaki表示，虽然恒大总部设在中国，其业务绝大多数都集中在中国，但美国财政部仍正持续监控全球市场，包括评估美国经济面临的任何风险。
+You make a very important point
+你提出了一个非常重要的观点
 
-2、[**美学者曝美司法部与孟晚舟谈判最新进展**](https://www.aboluowang.com/2021/0921/1649554.html)
+Right now the Chinese real estate market is the bubble of all bubbles,
+目前中国房地产市场是有史以来最大的泡沫
 
-美国哈佛大学学者陶瑞9月19日在推特曝光美国司法部正与孟晚舟展开的用认罪换自由的谈判进展。陶瑞说，美国司法部与孟晚舟的和解谈判短期告吹。陶瑞透露，孟晚舟一方原本希望用交付更多罚金来换取plea no contest，也就是不针对有罪无罪进行辩解，交罚金了事，谈判一度进展顺利，但美国政府内部出现分裂，鹰派人物不满对中共持软弱立场的官员，有意向媒体放风，藉舆论向美国司法部施压。陶瑞说，目前施压已经见效，司法部不再向华为提供优厚的和解条件，谈判陷入僵局。
+and it threatens the collapse the Chinese economy
+它威胁着中共国经济的崩溃
 
-3、[**美病毒死亡人数已超过百年前西班牙流感**](https://www.aboluowang.com/2021/0921/1649806.html)
+the thing we have to do here in the United States is Stop
+我们在美国必须做的事情是停止
 
-据《美联社》报导，随著Delta变种中共病毒蔓延，美国目前平均每天有超过1900人死亡，创自3月初以来的最高水平。据美国约翰斯·霍普金斯大学大学统计数据，截至周一（9月20日），美国已有67,5885人因感染中共病毒（COVID-19）死亡，超过了103年前（1918至1919年）的西班牙大流感中估计的67.5万的死亡人数。
+stop the flow of American capital to China through our pension funds,
+美国资本通过我们的养老基金投资流向中共国
 
-4、[**加总理杜鲁多赢得第3任**](https://www.aboluowang.com/2021/0921/1649698.html)
+this is something I tried to do in the White House,
+这是我在白宫试图做的事情
 
-加拿大国会选举结果出炉，总理杜鲁多(Justin Trudeau)将连任第三任，他领导的自由党赢得最多席次。选举委员会的开票结果显示，在338席的众院，自由党拿下150席，领先保守党的119席，还有3席未开出，自由党需要170席才能阻成多数政府。自由党可组成政府，但仍无法赢得过半席次。对杜鲁多来说，这是历史性的一刻，加拿大史上只有8位总理连赢三次选举，包括他的父亲杜鲁道(Pierre Trudeau)。
+but I’m sitting here in in New York City.
+但是我在这里纽约市
 
-5、[**互联网自由度排名中国连续七年垫底 台湾全球第五**](https://www.aboluowang.com/2021/0921/1649744.html)
+A few miles from Wall Street and there’s,
+离华尔街几英里的地方
 
-美国人权活动组织自由之家（Freedom House）星期二（9月21日）公布年度网络自由排名报告，台湾首次参评，跻身网络自由度最高国家前五名。中国连续第七年被列为70多个国家中网络自由情况最差的国家。中国连续第七年被评为最恶劣的互联网自由环境。中共当局对网上异议声音、独立报道和日常通讯判处严厉的监禁，中共病毒疫情仍然是审查最严格的话题之一。报告说，中共政府仍然是世界上最严重的互联网自由侵犯者。新推出的法规将辱骂军人、“英雄”和“烈士”的言论定为刑事犯罪。当局对网上持不同政见者判处严厉的监禁，包括对房地产大亨任志强判处18年徒刑。
+there’s, Americans like Steve Schwarzman and Larry Fink, John Thornton and others
+像史蒂夫·施瓦茨曼和拉里·芬克、约翰·桑顿等美国人
 
-6、[**俄罗斯校园枪击案6死28伤 普京电视讲话**](https://www.aboluowang.com/2021/0921/1649429.html)
+Ray Dalio who would embarrass themselves today on on TV.
+雷·达里奥今天会在电视上让他自己难堪
 
-据法新社发自莫斯科报道，俄罗斯乌拉尔地区的彼尔姆（Perm）市一所大学9月20日周一发生枪击事件。这起枪案造成6人死亡，至少28人受伤。根据网络上视频，为逃离枪击事件，学生们从学校大楼的一楼窗户跳下。另一段从窗口拍摄的视频显示，一个完全身着黑衣的人开火，并走向一栋大楼的入口。该校新闻办公室称枪手于当地时间上午11点进入校园。俄罗斯总统普京就这起校园枪击事件发表电视讲话。他说，执法机构将采取一切必要措施对这起可怕的犯罪行为进行调查，并弄清楚原因。
+These are the people who are pressuring Washington DC to keep
+这些人正在向华盛顿特区施加压力，要求他们保持
 
-（本文只代表个人观点，与Gnews网站无关）
+that flow of money from our pension funds to prop up the CCP,
+我们的养老基金资金去支持中共
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+we need to take down the CCP, in order to take down the CCP,
+我们要打倒中共，为了打倒中共
+
+we need to stop the flow of that American capital to fuel these bubbles
+我们需要阻止美国资本的投资，来助长这些泡沫
+
+and the transnational criminal organization,
+和支持跨国犯罪组织
+
+which is buying real estate here with with the deplorables of American
+用可悲的美国老百姓和中国老百姓的钱在这里购买房地产
+
+Laobaixing of China, it’s just has to stop.
+它必须停止
+
+Steve Bannon
+史蒂夫· 班农
+
+I just want to add to that,
+我只是想补充一点
+
+and this equivalent of what Fauci needs to apologize to the Chinese people.
+福奇需要向中国人民道歉
+
+The Wall Street tycoons.
+华尔街的大亨们
+
+And I addressed this to every Laobaixing and every citizen of China,
+而且我对每位老百姓和每个中国的公民说这个问题
+
+that’s getting wiped out now of their savings in these fraudulent real estate companies.
+现在他们在这些欺诈性房地产公司的积蓄正在被抹去
+
+Those companies are propped up not just by the CCP
+支持这些公司的不只是中共
+
+they’re propped up by Wall Street,
+他们得到华尔街的支持
+
+and every penny that Dalio, and Schwartzman and Fink,
+他们得到达里奥、施瓦兹曼和芬克的支持
+
+and these guys have used American pension money
+并且这些人用了美国的养老金
+
+to put in back to these phony real estate companies and sucked in
+投入到这些虚假的房地产公司中，并吸纳了大量的资金
+
+the real victims here are the Chinese people,
+这里真正的受害者是中国人民
+
+the hardworking Chinese people make almost no money and save all their money
+勤劳的中国人几乎挣不到钱并把所有的钱都存起来
+
+and they put it in these companies to this thing,
+他们把钱放在房子上，投资在这些公司里
+
+they’ve been wiped down,
+他们的钱被洗劫一空
+
+they’ve been financially destroyed,
+他们在经济上被摧毁了
+
+and part of the financial destruction is the elites in the United States
+而且部分金融的破坏是由于美国的精英
+
+have supported the criminal organization,
+支持了犯罪组织
+
+and looked at take as much money as possible.
+贪婪的夺取每一分钱
+
+I think that they have they have a fiduciary responsibility to pay back every penny
+我认为他们有受托责任
+
+they’ve taken out of any of these companies,
+把他们从这些公司拿出来的每一分钱都还回去
+
+and to give that in some sort of restitution to the
+并把这些钱以某种方式还给中国的投资者
+
+to the Chinese investors to the little guy in China
+中国的小投资者
+
+the Laobaixingi, the little Chinese investors
+还给中国的老百姓
+
+that are being wiped out, it’s unacceptable.
+老百姓的财富被洗劫一空，这是不可接受的。
+
+That is not what capitalism is about that is that is crony capitalism,
+那不是资本主义的本意， 那是裙带资本主义
+
+it’s basically theft. And until we hold the elites here in America
+这基本上是盗窃，除非我们对把这一切强加给中国人民
+
+that have foisted this onto the Chinese people,
+的美国精英们追责
+
+we’re not going to make any progress.
+我们不会取得任何进展
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[https://gtv.org/video/id=6142a526751e4f2b0e53c474](https://gtv.org/video/id=6142a526751e4f2b0e53c474)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

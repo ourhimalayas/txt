@@ -2,27 +2,18 @@
 ---
 
 
-## 美国债务问题可能引发经济危机
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1546245/)
+## 秘翻在线: 中国如何应对美国巨额债务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1546587/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-2-1.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-11.jpg)图片来源：网络照片
+9月21日今日头条对于美债面临即将到期的债务，而可能引起的经济危机，发表了一篇评论。声称美国媒体发声说中国有能力救美国，而且应该救美国。而评论文章对如何救美国提出两个论点。
 
-视频参看：2021.09.21早GTV新闻访谈
+1. 救：不再购买美元美债，而是对到期的可以不抛售。 但是要求美国再次提高高于通货膨胀率的收益率。同时要求美国取消贸易制裁、取消关税壁垒、取消芯片限制、不再干涉华为业务、不再到南海来“长臂管辖”等。
+2. 不救：继续抛售美元美债，带动全世界一起“抛”，抛得美国倾家荡产，抛得世界金融货币结算体系重构重塑，建立人民币结算体系，结束美元霸权地位。
 
-[https://gtv.org/broadcast/watch/6149cfba42a8af3151a26d89](https://gtv.org/broadcast/watch/6149cfba42a8af3151a26d89)
 
-[https://www.youtube.com/watch?v=tuWSaZQdbrU](https://www.youtube.com/watch?v=tuWSaZQdbrU)
-
-编辑/校对/发稿： 香草山翻译部 – Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+面对中共国多个万亿元企业欠债面临倒闭，如恒大、陆金所，外资债务上千亿元借款、外资大量撤离、失业人口剧增，经济面临崩盘的形势下， 如此评论的出台是否能代表中共的官方的意图呢？还是在中共的洗脑下，被割的韭菜们一厢情愿的希望？
+**新闻来源：**[美债逼近上限，美媒呼吁中国出手相救，中国救与不救？两种方案 (toutiao.com)](https://www.toutiao.com/a7010308311354524200/?log_from=b890c0ce00dec_1632245001346)
