@@ -28,14 +28,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/6/README.md)
+### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/7/README.md)
+### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [七哥说— 第15期](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [秘翻在线：处处是瞄准老百姓的针头——北京启动免费流感疫苗接种](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
@@ -172,15 +172,15 @@
 ### [秘翻在线:二氧化碳是欧洲人民生存的关键](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/54/README.md)
+### [七哥说— 第15期](/content/gnews/54/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/55/README.md)
+### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/56/README.md)
+### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [疯了！中共以为赢了全世界，世界左联共同抵制马克思学院](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
