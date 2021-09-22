@@ -2,34 +2,43 @@
 ---
 
 
-## 日本对中共国的挑衅表示“强烈关切”并敦促欧洲领导人采取行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1546018/)
+## 死于COVID-19的美国人，超过了四场战争死亡人数的总和
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1546773/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/twitter-china-illustration-1-1566243654-4.jpg)网络图片
+**【简评】如此巨大的死亡人数都不能让美国觉醒，只能感叹媒体的力量实在太过强大，它们对病毒来源遮遮掩掩、弄虚作假，而同时大力推广中共病毒疫苗，坑害美国百姓和世界人民。正如郭文贵先生在2020年3月21日所说，“社交媒体是现代社会最伟大的一个力量。它的力量超过核武器、超过冠状病毒。但是你不去好好用它，或者你不好好使用它，你就会被击倒，你就会被利用。”**
 
-在台湾和南中国海的紧张局势日益加剧之际，日本防卫大臣敦促欧洲国家联合起来，并大声疾呼谴责中共国的侵略行为。
+**据《布赖特巴特新闻》记者： AMY FURR，2021年9月19日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a6ls5-hj5c9.jpg)图片来源：布赖特巴特新闻网
+由于中共冠状病毒，美国已有 673,472 人死亡，超过第一次世界大战、第二次世界大战、朝鲜战争和越南战争中美国军人死亡人数的总和。
 
-岸信夫告诉卫报，中国军队变得更加强大，并且“试图利用其力量单方面改变东中国海和南海的现状”。这位国防部长警告说，中共国在政治和经济上变得越来越强大，这引起了东京的“强烈担忧”。
+截至周日下午，约翰霍普金斯大学医学院报告了 42,050,638 例冠状病毒确诊病例和 673,472 例死亡病例。
 
-岸信夫告诉卫报“中国正在从数量和质量两方面加强其军事力量，并迅速提高其作战能力。”岸信夫的上述言论是在人们越来越担心中共国对台湾和有争议的南中国海的意图之际发表的。
+2020 年 11 月，退伍军人事务部记录的美军在第一次世界大战、第二次世界大战、朝鲜战争和越南战争中的死亡人数分别为53,402人、291,557人、33,739人和47,434 人。
 
-台湾是一个民主国家，但中共国声称对该岛拥有主权，并表示计划将其与大陆强行合并。此前，日本防卫大臣曾表示，台湾的安全与日本直接相关，并强调日本在台湾发生冲突时进行干预的重要性。
+四场战争的死亡人数总计为426,132人。
 
-澳大利亚国防部长彼得·达顿 (Peter Dutton) 说：“共产党的中国发言人非常清楚他们在台湾问题上的意图。”
+据《纽约邮报》周五报道，本周，在华盛顿特区国家广场举行了一场名为“在美国：铭记”的展览，展示了66万多面白旗，以悼念在疫情期间失去的生命。
 
-同样，美国也很清楚中共国对台湾的意图。
+报道称：“这个占地20英亩的展览于周五在华盛顿纪念碑附近揭幕，艺术家苏珊娜·布伦南·弗斯滕伯格（Suzanne Brennan Firstenberg）称其为‘第二个令人毛骨悚然的展览’，该展览旨在捕捉惊人死亡人数背后的‘人类尊严’。”
 
-**新闻链接：**[Japan has ‘strong concerns’ over Chinese aggressions – European leaders urged to act](https://www.express.co.uk/news/world/1494123/japan-european-leaders-south-china-sea-tensions-Nobuo-Kishi-taiwan-aukus-ont?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)
+据《布莱特巴特新闻》报道，《南华早报》（SCMP）于 2020 年 3 月从中国政府获得数据，确定了 2019 年 11 月 17 日发生的首例武汉冠状病毒病例：
 
-* * *
+**武汉医学界从去年12月下旬便开始怀疑存在疫情，但被中共官员镇压，他们希望尽可能长时间地隐瞒疫情。**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**《南华早报》指出，中共国政府记录的2019年266例病例中，有些可能是“在卫生当局检测了疑似患者的样本后追溯的”。这一尚未向公众公布的数据，与中共国官方声称的截至1月中旬只有41例确诊病例的说法大相径庭。**
 
+与此同时，据《布莱特巴特新闻》报道，美国政府最近公布的文件显示，安东尼·福奇博士的国家过敏和传染病研究所(NIAID)为武汉病毒学研究所(WIV)进行的功能增强研究提供了资金，该研究制造了具有感染人类能力的新型冠状病毒。
 
-编辑：【英国伦敦喜庄园编辑部】
+文章指出，“据报道，武汉实验室此前未披露的一种与SARS相关的冠状病毒，已被证明比最初构建它的病毒对人类更具致病性。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**原文连接：**[https://www.breitbart.com/health/2021/09/19/more-americans-died-coronavirus-combat-wwi-wwii-korean-and-vietnam-war-combined/amp/?\_\_twitter\_impression=true](https://www.breitbart.com/health/2021/09/19/more-americans-died-coronavirus-combat-wwi-wwii-korean-and-vietnam-war-combined/amp/?__twitter_impression=true)
 
-0
+**（本文评论仅代表个人观点）**
+
+翻译&评论：洛杉矶盘古农场 – 钢蛋儿
+校对&编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
