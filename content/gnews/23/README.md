@@ -2,49 +2,157 @@
 ---
 
 
-## 有声|交通事故背后的疫苗灾难
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1548170/)
+## 王，江，朱等家族是有国际势力背景的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548692/)
 
-配音：香草山香港部-文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/09/100asmvm-ycet4.jpg)
+[https://gtv.org/video/id=614a2006d2e2b817486c1dea](https://gtv.org/video/id=614a2006d2e2b817486c1dea)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+**字幕内容:**
 
+**郭文贵
+Miles Guo**
 
+王岐山的影响力
+La influencia de Wang Qishan
 
+你们没有真正的研究过
+Ustedes no han investigado de verdad
 
+兄弟姐妹你们想过没有啊
+Hermanos y hermanas, ustedes han pensando
 
-9月18日，贵州六枝特区牂牁江发生一起客船侧翻事故。据央视新闻19日15时许消息，事故已致10人遇难，仍有5人失联。涉事船只系六枝特区西陵航运有限公司8015型客运船，该公司股东艾先生称，涉事船只驾驶员杨某某已在事故中死亡。
+为什么江家的人在美国
+Por qué a la familia Jiang no le ha pasado nada
 
-据悉，驾驶员杨某某开船六七年，此前并无交通事故记录，公司每年也会进行年检。女船长40多岁，开了六七年船，之前没有交通事故记录。
+啥事都没有
+Estando en EE. UU
 
-据“微凉都”此前消息，涉事船只核载40人，事故发生时存在超载问题。据公开报道，该公司由西陵村村民筹资创办，公司注册资金600万元。目前有32艘大船，34艘快艇。 艾先生认为，“涉事船只这次出事，主要是因为刮大风。”
+朱镕基家在美国
+La casa de Zhu Rongji está en Estados Unidos
 
-据新京报记者报道，涉事船只在航行途中曾遭遇突发性强对流天气。参与现场救援的蓝天救援队负责人何先生表示，18日16时许，涉事船只沿着北盘江开往牂牁镇鲁戛村方向，刚开没多久就遇到了大风。截至9月19日11时，现场共搜救出40人，其中31人安全，9人救治无效死亡，经排查，仍有6人失联。客船驾驶员杨某某已在事故中死亡。
+就在曼哈顿住啥事都没有
+Está ahí en Manhattan y no tienen ningún problema
 
-七哥直播曾爆料，疫苗灾难的发生将会导致很多脑梗心梗各种梗，这给大家出行带来很多的风险。飞机、动车、轮船、小车等都会因为驾驶员的突发状况而导致交通事故，这就是疫苗带来的次生灾难！
+曾家人没有敢来美国的
+La familia Zeng no se atreve venir a Estados Unidos
 
-此次事故的公司驾驶员不但是经验老到的老驾驶员，而且是长期运行该路线。按常理推算，假如风力过大，驾驶员必定会停航或者转头退回，不至于整个船侧翻还弄出如此大的伤亡事故。而且中共国超载现实一直就存在，都不具备导致此次事故的主要因素，只有驾驶员本身的突发性的行为才会导致如此失控。
+王岐山的所有的钱都在美国搁着
+Todo el dinero de Wang Qishan está guardado en EE. UU
 
-该公司称每年都有体检，说明驾驶员的身体是健康的，唯有疫苗引起的梗塞才会让这样一个老驾驶员无力控制方向操作，任由船只侧翻而没有做出任何应急措施。虽该区称事故正在进一步调查，怕是中(共)国内无真相。随着时间推移，各种交通工具都成了隐形的杀人工具！中共不灭, 灾难不会断！
+你怎么着
+Cómo haces tu
 
-[文字版原文：交通事故背后的疫苗灾难](https://gnews.org/zh-hans/1544326/)
+王岐山女朋友在美国
+La novia de Wang Qishan está en EE. UU
 
-音频处理：喜山必胜Maverick
+为什么布隆伯格要举着
+Por qué Bloomberg se alza
 
-*发稿：*Yuki jiang
+王岐山说是世界最有权力的人
+A decir que Wang Qishan es la persona con más poder en el mundo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+而不是习近平
+Y no Xi Jinping
 
+而报道习近平的家族腐败是华尔街日报
+Y reportaje que hace The Wall Street Journal es sobre el deterioro de la familia Xi Jinping
 
+和当时的布隆伯格
+Y Bloomberg en aquel momento
 
-**更多资讯，更多关注**
+为什么不报王岐山呢
+Por qué el reporte no es de Wang Qishan
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+你们今天再往回想
+Ustedes hagan un recordatorio hoy
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+想爆七哥的第一个人就是
+La primera persona que me quiere reportar es
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+这个胡舒立呀
+Es esta Hu Shuli
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+胡舒立呀，想过没有战友们
+Hu Shuli, han pensado compañeros luchadores
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+胡舒立在哪儿，现在啊
+¿ Dónde está Hu Shuli?, ahorita
+
+那现在SOHO的潘石屹这个傻叉
+Y este tonto de Pan Shiyi en el SoHo
+
+旁边这个楼都是他的啊
+Todos los edificios de al lado son de él
+
+都得给他弄走
+Se lo tienen que quitar
+
+对面的叶选宁的楼
+El edificio del frente de Ye Xuanning
+
+陈锋的楼，你们想过没有
+El edificio de Chen Feng, ustedes han pensado
+
+谁到底和这些邪恶势力有关系
+Quién es el que tiene relación con este poder maligno
+
+人家保谁呀
+A quién están cubriendo
+
+我告诉你
+Yo te digo
+
+这个世界上最惨的就是习近平
+El más triste de este mundo es Xi Jinping
+
+最惨的就会是他
+El más triste será él
+
+普京有东正教
+Putin tiene la iglesia ortodoxa
+
+我不往下说
+No seguiré diciendo
+
+你们知道东正教是干啥的
+Ustedes saben qué hace la iglesia ortodoxa
+
+东正教
+La iglesia ortodoxa
+
+俄罗斯的东正教
+La iglesia ortodoxa de Rusia
+
+现在是跟谁在一起的
+Con quienes están ahora
+
+第二，中国的王岐山
+Segundo, Wang Qishan de China
+
+包括中国的陈元
+Incluyendo a Chen Yuan de China
+
+江家，朱家
+La familia Jiang y Zhu
+
+人家是跟谁的
+Con quienes están ellos
+
+人家有国际势力
+Ellos tienen poder internacional
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1437198393051205634?s=24](https://twitter.com/se1y7cblljselva/status/1437198393051205634?s=24)
+
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场–彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

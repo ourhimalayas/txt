@@ -2,83 +2,179 @@
 ---
 
 
-## 2018年4月21日郭文贵先生直播全文字版
-` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1548545/)
+## 一切源于共产组织
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548717/)
 
-视频链接：[https://www.youtube.com/watch?v=dQuo8XOV2GM](https://www.youtube.com/watch?v=dQuo8XOV2GM)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20180421.png)
-**郭文贵先生：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/7aqguh-nlw49.jpg)
+[https://gtv.org/video/id=614a2142d2e2b817486c1e29](https://gtv.org/video/id=614a2142d2e2b817486c1e29)
 
-尊敬的战友们好！
+王岐山抓的100万个共产党员
+El millón de los miembros del PCCh que arrestó Wang Qishan
 
-我这不问你们健身了吗？这是4月20号的晚上，八点多了。因为我昨天，4月19号接受路德先生的专访，我没有健身。哎啦！但是我觉得像犯罪一样，我这偷懒了，不行。我今天的补上，所以说，我就补上了。今天，我这刚刚健完。这光不好，这光不好，这会好点。
+是为了仅仅是帮习上去吗
+¿Acaso es sólo para ayudar levantar a Xi?
 
-这个昨天录像的这个灯光后来效果太烂了，太烂了，我是太不满意了。我给我昨天的灯光效果表达，这个最后表现，最多40分，最多40分，这个很失败。
+王岐山没有100%把握控制习 他不会这么做的
+Si Wang Qishan no tiene el 100% de control hacia Xi, él no lo haría así
 
-但是呢，重点都做了，昨天一激动，昨天，关键中间叫小夏把我给问激动了，给。这小夏是干记者出身，忒牛。刀刀见血，突然间，你这问的这些话题，路德要学习，这个小夏还是了不得，了不得。一下子昨天，想起一年前的4月19号，太多触景生情，一谈到高辉先生受不了了。
+国开行抓了20几个官员
+El Banco de Desarrollo de China arrestó a mas de 20 oficiales
 
-我可能过去这几年来，为一个人哭最多的不是我家人，就是高辉先生，经常我运动的时候，一想起他，我就泪如雨下。这个作为一个男人来讲，当黑社会，你也得有个忠诚度，忠诚度都是可以的，这个他是连什么样的，哎！不能说，一说又该激动了。对他，老天太不公平了。这个共产党这个国家，还有中国这个政府欠高辉先生一条命。欠他的忠诚，他在上天之灵，他会看到的，我就不多说了，未来我慢慢把他的视频和讲的过程。很多年，我们俩在一起，有时候就无意中录的视频，我偶尔看一下，每次看时，都受不了。
+将近11个官员
+Casi 11 oficiales
 
-这个他给我讲述安全部的事情，对这个国家党的看法，还有他的领导怎么对待他，未来我都要说说，我今天录这个视频，关键的呢，我要说什么呢？这个，唉！这个昨天和今天！这个关于中南坑，还有爆料的问题，我这说了很多话，但有一样，我必须要说。特别是我这个今天下午在看这些绝密文件，涉及到美国政府、孙立军、刘彦平，还有这个其他老领导跟我联系这些记录，还有涉及到美国这些公关公司，还有美国的几个，这个这个大佬们，想把文贵送回去的这些文件的时候。
+是从海南出来的 都是王岐山的人
+Han salido desde Hainan, son gente de Wang Qishan
 
-我必须得说，过去这一年甚至过去的三年吧！一次一次的，如果没有中南坑里边的妖怪，不是绝对的，我想说那里不都是妖怪，也有善良的妖和怪。比如说，在刘彦平到我这个公寓来，前……不到两天吧，也就二三十小时前，我们拿了一张纸，要没人告诉我说，刘彦平来，带着谁来，孙立军同时去了华盛顿。然后呢，同时又有黑社会，怎么对付我。如果没那个信的话，我就可能真的上了刘彦平的当了，都是有可能的。
+王岐山都推荐过了陈元
+Wang Qishan hasta recomendó a Chen Yuan
 
-那么，那次事件来看，让我度过了一场危机。从今天看，从去年的4月份，到这个去年的6月，6月份，到7月份，这简直每一天都无数的风险，在我周围埋藏着，分分钟要我的命。涉及到全世界各种最高最高的，最有钱的国家，最有钱的个人，最有权力的个人和最有权力的集团，最坏的集团和最流氓的集团。就是中南坑的人，都有，都包含了全世界了。黑社会、白社会、军阀、恶棍都上了。
+陈元就是王岐山一条狗
+Chen Yuan es un siervo de Wang Qishan
 
-那么，在过去，2014年，包括我离开香港，如果没有前一天，到今天我都不知道这是谁，给我打电话说，文贵，你马上离开。然后呢，这个如果是2013年那一天，我不知道，不马上离开，我真不知道是谁，我不可能活到今天，包括2015、2016我都躲过了好几次，很重要的这个关键时刻。然后，包括我到美国，2017年的4月份到美国来，这个关键，除了傅政华傅老三提醒之外，还有其他人给了我信息，否则我也活不到今天。
+国开行把钱给谁了
+A quién le dió dinero el Banco de Desarrollo de China
 
-往回看，吓得也是(身体动作表达)，一激灵一激灵，还是挺吓人的。
+好好看看海外的钱
+Vea bien el dinero en el extranjero
 
-但是，我今天想，这个人的身体！还是很厉害的。就是我一想去年，就是这个时间点，跟美国的运作，中东的运作，马来西亚运作，这个孟建柱的私生子Jho Low的运作，还有我这个朋友来，这都，现在让我对上了。我那时候就老是，白天的时候就激灵一下子，我说这怎么回事？就激灵一下子，老有这个症状。
+他就是服务一带一路
+Él es el que hace los servicios de la Franja y la Ruta
 
-过了那个9月7号以后，到现在再也没有，再也没有过，就是这个事情，非常有意思。没有上天的眷顾和帮助，文贵活不到今天。我真是太相信，头顶上面有太多神灵了，没有这个各方神仙罩着，我活不到今天。
+国际上就是各国之间蓝金黄、给钱
+Internacionalmente es el plan ADA (BGY) a cada país, dar el dinero
 
-第二个，没有中南坑里边的很多有正义感的妖和怪，可能也是好人，我在这向你们道歉，表示衷心的感谢。没他们一次次的提醒，我也活不到今天。没有系统内的一个个人的无声的人的帮助，我也活不到今天。更重要的事情，我要跟大家说得事情，如果没有，这个党内真正有良知的人在后面默默地支持文贵，我也根本不可能，不但活不到今天，根本不可能发生今天这样的情况。
+国内扶持中小型科技企业
+Y dentro del país ayudar con las empresas pequeñas y medianas de tecnología
 
-所以说我现在越来越相信有上天的眷顾，越来越坚信党内九千万党员，很多是好人，这个我越想越是这样。所以，我今天必须在这先道个歉，就是很多人，我不是，不能说全部，中南坑里面不都全是妖和怪，这个有些人是好的，表示感谢。
+就是共产党的行贿的工具
+Esta es la herramienta de corrupción del PCCh
 
-再一个我要向所有帮助我的人，我在这要承诺，你们帮助文贵，一定不会错的，你们看到了阿布扎比在这么大压力下没有背叛我，没有出卖我。就在这个、这个王子访问川普总统的时候，一句话都没有提到过。而且我错过，当别人问他的时候，说你怎么看Miles Guo的时候，他说这是我兄弟！这是我的partner，这是原话。大家你可以看看纽约时报的报道和未来我将推出的文件，能证明我得到了人家这样，阿布扎比太牛了，太牛了。
+抓了20几个人
+Arrestaron a más de 20 personas
 
-还有这个中东另外两个国家的这个元首，也是受到中国最高领导人问的时候，你怎么看待郭文贵？他说这是一个非常、非常，就是big bold，就是很胆大的人，很有勇气的人。然后说，这个人是我们认识完全不一样的中国人，我们相信他。
+大多数王岐山的
+La mayoría son de Wang Qishan
 
-所以说，请帮助我的人，看到世界上那么多人帮我，包括欧洲那么多国家，频繁地和我接触。从来都告诉我，Miles，只要你愿意，我们国家给你提供全部的帮助。从2014年到现在，从没改过。这个包括日本，大家也都知道，包括日本。多次给我表达全力以赴，可以支持我，帮助我，给我一切帮助。
+那你说到海外的钱
+Y tú dices el dinero que llegó al extranjero
 
-所以说，帮助我的人要知道在国际上，文贵可以吹，不吹牛地说，绝不像马云那样忽悠，一百万的职务，他说完，旁边人说这小子就是个骗子。后来找个理由下台阶了，中国的企业家在人家心目中，几乎都是骗子，几乎都是妓女。文贵在国际上的能力，绝对不会让你们失望。你看到我这一仗仗，打的。这个纽约时报、华尔街时报，还有更多媒体接下来的报道，绝不是偶然，这一点请大家放心，没支持错。
+你知道张宏伟和国开行到啥程度
+¿Tú sabes qué tan lejos ha llegado Zhang Hongwei con el Banco de Desarrollo de China?
 
-第二个，你们看到了文贵从开始到今天没图谋任何人一分钱，没向任何人伸出手，永远不会把手这样(动作演示)伸出去，永远记住！我不会为了利益而战。
+张宏伟到海外帮助这些国家贷了款以后
+Luego de que Zhang Hongwei ayudó a estos países con el préstamo
 
-另外一个，你们支持了我，你记住，我不会有任何政治图谋，我不会有任何政治图谋，这一点，你们放心！不会让你们失望。
+张宏伟拿了20%的佣金
+Zhang Hongwei agarró el 20% de comisión
 
-还有，任何……文贵不为了名义而战，为了名太容易了，我为名干什么？所以说，你们不会支持错。我只为14亿中国人民的正义、尊严而战；为我受侮辱的家人、员工、朋友、和伙人而战；为上天，支持我的上天而战，绝不妥协！你们支持我，不会错的。
+你查查东方海外
+Investiga a Orient Overseas (International) Limited
 
-我更不会为了钱，大家很清楚，盗国贼所有强奸、缠诉、诉讼、黑社会、抗议、国家利益、国家交换、流氓团伙、军阀、公关、收买，所有招全用。你(指中共)现在就差一张暗杀我了，你来吧，你来，有种你来！记住我今天说的话，你对待我的家人和员工、我的同事，你对待所有的这些手段，我会百倍万倍地还给你。
+这香港的东方能源
+Este Shijiazhuang Dongfang Thermoelectric Co., Ltd. de Hong Kong
 
-中南坑里面人，你们都很清楚，郭文贵有没有料，从2013年、14年，你们就觉得郭文贵就是个，啥也不是，啥也不是，到后来发现有料，想换回去，觉得我也折腾不起来，到后来一次次跟我交手。
+竟然是国开行投的钱
+Resultó ser dinero invertido por el Banco de Desarrollo de China
 
-孟建柱不是牛吗？郭文贵能怎么着？郭文贵能怎么着吧！我们几百万，几百万部队还收拾不了他吗？你收拾了我了吗？不是我不爆你料吗？我爆了你料，你有什么话可说的吗？王岐山，你不也牛吗？牛都那个样了，根本就不值一看了，现在咋，不扳手腕吗？我把手伸到裤裆里边，我拿个小指头扳你王岐山，你信不信？你信不信，王岐山。我把手伸裤裆里的小指头扳你，有本事过来，你已经完了。
+而且投到它的股票呢
+Además, invirtió hasta en sus acciones
 
-傅政华，吹牛呢，NTM就在国内折腾那些烂事，傅政华，你看着，你家傅老三，你看看你家里，还有你那些情人，你私生子女，你看我怎么对付你。你对我家人对我员工，你看我怎么对付你。我哥哥的痛苦，我的员工的痛苦，我的员工的家人失去自由，你看我怎么对付你。孙力军，这回你不吹牛了吧！在那儿，大哥呀！我到美国来，根本不提你，我发誓。
+很多人像刘延东啊
+Muchas personas son como Liu Yandong
 
-所有战友们，你看到共产党员，乌托邦，中国政府官员撒谎，还有刘彦平，“我根本不知道”，他是来搞中美对话来了，刘彦平一颗善良的脸，善良的语言，你是来骗过来了吧！我从昨天之前，刘彦平先生，我给你保留了面子，我不说你。我一直感谢你，我太太、我女儿来了美国。
+像这所有的家人里边的钱
+Como el dinero de todos esos familiares
 
-但是，从昨天开始起，这个，不是昨天，从上个星期开始起。我看到这些文件，刘彦平先生，你好好拍拍你的良心窝子，你为了你的组织，你伤害一个跟你完全没有关系的这些善良的人，到现在，在这一星期前还还保护你的人，接下来我就不保护你了。
+大家去看看去
+Todos vayan a ver
 
-孙力军，你撒谎的这种，这种骗我的，骗我家人，骗我，你撒谎，什么给我姥娘磕头去，代我行孝、觉得我与众不同。我来华盛顿完全没有什么关系，我会把你的E-mail一个个都拉出来，你和Jho Low，孟建柱的私生子，Jho Low。你跟孟建柱老婆在这看病，你跟孟建柱的老婆上床，你是，孟建柱上了你的女情人，上了董卿，你上他老婆。然后，Jho Low又是他私生子，你跟Jho Low共同玩女人，你看你们这帮畜生。
+都跟国开行有关系
+Tienen relación con el Banco de Desarrollo de China
 
-所以说，现在咱走着看，你不是在一局吗？是不是啊！你不是说你有情报吗？你不是有武器吗？咱往下走着看，我没有说过你们的核心秘密，我给你们家人留了足够的尊严。但是，现在在咱往下看，这场仗咱怎么打下去啊！
+他背后的人贷款
+El que hizo préstamos detrás de esto
 
-你看接下来，接下来郭文贵再给你亮招，亮的招还跟以前一样不一样。我再让你们用事实说话，莘县和阳谷县搭县，咱用事实说了算啊！走着看啊！你们不是，你们不是盗了这个国家权力了吗？你看我怎么从上到下，让你们在过去的所有事情，让14亿人、让全世界人都知道，你还能挡得住吗？你能挡得住吗？放马过来。
+贷了国开行的钱再投资他哪儿去
+En dónde invirtió el dinero que pidió como préstamo al Banco de Desarrollo de China
 
-一切都是刚刚开始，尊敬的战友们，谢谢。
+张宏伟
+Zhang Hongwei
 
-\*\*\*\*\*\*END\*\*\*\*\*\*
+他就凭他一个民工出身
+Nació como un Mingong (trabajador migrante)
 
-***温哥华扬帆农场七哥直播听写组***
+他凭啥
+Con qué derecho
 
-***听写：***
+他不就是被选为
+No es solo porque fue electo como
 
-*华盛**顿D**C**农场：湘**江之水*
+这个组织上有使命的人吗
+Una persona con misión en esta organización
 
-***校对/******发布：***
+王岐山、陈元这是有使命的
+Wang Qishan, Chen Yuan estos tienen misión
 
-*温哥华扬帆农场：**S**huang*
+姚家有使命的人呢
+¿Y la misión de las personas de la familia Yao?
+
+这个组织控制了一个国家的钱袋子
+Esta organización controla la bolsa del dinero de un país
+
+控制了一个国家的领导人
+Controla el líder de un país
+
+剩下所有的人都是该死该杀该用的奴隶
+El resto de las personas son unos esclavos que deben ser usados, matados o deben morirse
+
+绝对反对民主
+Absolutamente en contra a la democracia
+
+绝对反对所谓一人一票选出的政策
+Absolutamente en contra a la llamada política de una persona, un voto
+
+在俄罗斯
+En Rusia
+
+你看看今天的普京所有的作为想干啥了，是吧
+Mira lo que quiere hacer Putin hoy en día con sus acciones, cierto
+
+所有做的都是一模一样的
+Todo lo que hace es igualito
+
+我必须干到一辈子
+Yo debo hacerlo de por vida
+
+必须服务这个精英
+Debo servir a esta élite
+
+其他下边人就是当奴才
+Del resto las personas de abajo lo tienen como esclavo
+
+你不当（奴才）弄死你
+Si no quieres serlo (esclavo) te hago morir
+
+习学到了吗？习学到了
+¿Xi logró aprender? Xi aprendió
+
+习想停下，能停下来？
+Xi quiere detener, ¿podrá detenerse?
+
+停不下来了
+Ya no se puede detener
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1437255804550193152?s=24](https://twitter.com/se1y7cblljselva/status/1437255804550193152?s=24)
+
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

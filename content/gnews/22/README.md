@@ -2,202 +2,36 @@
 ---
 
 
-## 彼得·纳瓦罗：盖特是推特的杀手
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548187/)
+## 郭文贵精品视频-深挖戕害中国人民的幕后黑帮之国际团伙
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1548718/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2251.png)
-[https://gtv.org/video/id=614a1b56d2e2b817486c1d15](https://gtv.org/video/id=614a1b56d2e2b817486c1d15)
+撰稿：澳喜cindy
 
-**Jason Miller (Gettr CEO)
-杰森·米勒（盖特首席执行官）**
+郭先生是14亿中国人民的守护神，三十多年时刻铭记在心的使命：寻找真正戕害中国老百姓的一切黑手。他三十年与狼共舞、与中共同床异梦。在错综复杂的国内国际局势中终于找到了真正统治中国的背后国际力量。
 
-Absolutely and Rachel thank you so much for the opportunity
-绝对的，瑞秋，非常感谢有这个机会
+郭先生告诉我们：“共产党能来到中国是有国际势力支持的，就是共产主义联盟即光明会。美国的光明会有大家熟知的克林顿，甘迺迪，布什，老布什，尼克松，里根，林肯等。他们推崇的是希特勒、斯大林。光明会里面有欲望 ，有等级，他们和这个时代的民主以及互联网完全是背道而驰的”。
 
-to speak with you and so many others right now,
-与你和其他许多人交流
+中国共产党执政几十年对国内百姓极其凶残、残酷压榨。并在一次次的生死挣扎之际又都能逃过倒台的命运，当他们腰缠万贯时又要称霸全世界。那么他们的底气及力量到底来自哪里？
 
-I’d split down a couple things and say that at the big level the advantage
-我把几件事拆开来说，在大的层面上，优势是
+“来自于美国华尔街、好莱坞、来自于美国的华盛顿，来自于美国的沼泽地黑暗势力、及少数的中国共产党的几个家族，以及在美国几个利益集团，加在一起可能不超过一百个家族但他们影响着我们14亿人、美国人民、乃至全世界人民的安全”。
+Youtube视频
+“华尔街、硅谷的所谓精英们，他们非常愿意卖东西给中国人民，不仅仅是市场庞大，赚钱容易，最重要的就是他们可以随时想换就有的来自中国年轻人的肝、肾等器官。这些在任何国家都是法律不允许的。所以说他们就是不想改变奴役14亿中国人民的现状”郭先生在2020年11月7日视频中 非常严重的指控。
 
-that we have is something that Twitter will never be able to duplicate and that’s excitement,
-我们拥有的是推特永远无法复制的东西，这很令人兴奋
+“美国的金融机构帮助中共盗取中国人民财富，帮助中共盗国贼洗钱到美国，然后用这些钱来贿赂美国的政客达到自己想要的一切。”
 
-and the most powerful force in the world is an idea
-世界上最强大的力量是一个想法
+“美国资本主义的贪婪者在八九六四错误地评判了共产党，被狡猾的共产党欺骗，最后又是在2001年签了WTO，又给了中国奥运会的机会。华尔街大量投资到中国各金融机构和垄断形的企业，在无法无规的中共体制内轻而易举地赚的盆满钵满。华尔街这帮嗜血贪婪的家伙们帮助共产党的企业在美国的股票市场用虚假信息和不服从美国监管的行为上市拿走几万亿投资者的钱，他们从中获得了丰厚的佣金以及中国百姓无法分享到的稀缺的巨大利润的一级市场的股票。”
 
-once you create an idea within people
-一旦你在人们心中创造了一个想法
+正是中共背后有来自美国的技术帮助中共建网络防火墙、人脸识别系统来控制中国老百姓无法获得真实的世界资讯，备受中共的愚民欺骗，导致大批百姓惨遭利益集团的欺诈，财产损失、家破人亡。美国让中共加入WTO，美国华尔街的精英们，美国和中共勾兑的公司，美国被收买的主流媒体，被收买的政客腰包都鼓起来了。美国的技术养肥了中共。在GDP位居世界第二的中国并没有让老百姓得到相应的实惠，反而中共更加嚣张了，想要全面取代美国了。甚至灭掉白人的计划都出炉了！”
 
-once you give them the ability for self expression and freedom of speech
-一旦你赋予他们自我表达和言论自由的能力
+“同样中共对欧洲的政府官员如法国总统马克龙、英国首相Boris Johnson、德国的默克尔、意大利政要等都如法炮制采取与美国一样的套路即蓝金黄。使得今天的西方不是绥靖主义而是完全的卖国主义，在金钱面前完全跪下。这些位高权重的政客们在出卖着整个人类的几百年来的人类上最伟大的文明。”
+Youtube视频
+目前全世界政府官员在疫苗没有达到安全标准的情况下，都在大力推广疫苗接种，难道他们真的像他们宣传的防病毒感染吗？无数接种疫苗后的死亡已经告诉我们，显然不是。“全世界的幕后统治者们和世界上三大医疗机构和医药公司充分地和共产主义流氓勾兑之后要重写人类的规则、重新改写人类的基因。把过去偷的大家的钱全赖掉，减轻他们的负担，灭掉老弱病残。”“比尔盖茨，还有沃伦·巴菲特，这些超级富豪，沼泽地，以及耶路撒冷圣地那些想统治人类的人，他们要彻底地净化人类七十五亿人口、净化人种、优化人种。用生物武器和纳米疫苗和AI高科技完美结合最后控制人类。这个时代已经到来，谁都无法制止。只是死多少人？谁赢谁输？这个权力是在王岐山 、习大神 、俄罗斯还有美国华尔街这些混蛋们控制还是由真正合法的政府控制。”
 
-that takes hold, and you can’t remove that
-它占据了你的位置，你不能删除它
+郭先生之所以目前把这些内幕揭露出来就是让大家充分看清楚：我们所面对的不仅仅是中共那几个老杂毛那么简单，还有强大的国际黑暗势力。正如班农先生在16/09/2021视频中讲的：“所有这帮人他们要拯救这CCP犯罪的伙伴，就会把我们引向第三次世界大战，还有印度，还有克什米亚、 还有南海、还有台湾、还有美国，所有都会死的。不管什么原因，就是因为我们没有站出来对抗这帮犯罪分子，而是让这帮人在那里赚钱，这个就是他们做的事情，而且历史会审判我们所有人。我们现在所做的这个事情就是来停止这一切”。
 
-there is no excitement with Twitter, quite frankly,
-坦率地说，推特并不令人兴奋
+被郭先生唤醒的西方政府，在已经被应验的无数事实面前但愿别再绥靖了！别再利益为先了！现在立即行动为时还不晚，但愿第三次世界大战在我们的共同努力下而不会爆发。
 
-any of the other social media platforms such as Facebook, or anything else.
-任何其他社交媒体平台，例如脸书或其他的
+（本文观点纯属个人）
 
-And so we believe that our value proposition, our belief in free speech,
-所以我们相信我们的价值主张，我们对言论自由的信仰
-
-but also opposing canceled culture is uniting people all over the world
-但也反对被取消文化正在团结全世界的人们
-
-and so for as much as the globalist elites in the media will try to say that
-因此，尽管媒体中的全球主义精英会试图说
-
-populist in their respective countries, is some kind of bad idea
-他们各自国家的平民主义者，是某种坏主意
-
-that people in the US, shouldn’t be pro US
-在美国的人们，不应该亲美国
-
-or people in Brazil, shouldn’t be pro Brazil,
-或者在巴西的人们，不应该是亲巴西
-
-I’ve actually interacted with people on social media.
-我实际上已经在社交媒体上与人互动
-
-I interact with people from different countries,
-在过去的两个月在盖特社交媒体上
-
-via social media on Gettr More in the past two months
-和我在过去的 12 年里
-
-and I have in the past 12 years.
-与来自不同国家的人沟通互动
-
-For example, very excited to announce a lot of translation feature
-例如，很兴奋地宣布有很多翻译功能
-
-that will be coming very soon.
-那将很快到来
-
-In, probably within the next, say within the next three, four days
-可能在接下来，应该在接下来的三、四天内
-
-which means within the next week or two,
-这意味着在接下来的一两周内
-
-we will have Joe， Joe Wang is our glorious chief technology officers here.
-我们会有乔，乔-王是我们这里优秀的首席技术官
-
-That’s a joke for my friend Joe.
-这是我朋友乔的笑话
-
-But no, the engineers all over the world are working so hard on this
-但其实，全世界的工程师都在为此努力工作着
-
-and I’m really appreciative for their work.
-我真的很感激他们的工作
-
-And part of the reason why I’m excited about this
-我对此感到兴奋的部分原因
-
-Is because then it goes much more beyond say interacting with people from Europe or Brazil,
-是因为那么它不仅仅是说与来自欧洲或巴西的人互动
-
-it was interacting with the free people of China
-它正在与想生活在没有迫害的恐惧中
-
-who wanted to live without fear of persecution and be able to have self expression.
-能够有自我表达中国的自由人民互动
-
-When we talk technical details of what’s different with Gettr than say Twitter Facebook
-当我们谈论盖特与推特，脸书不同之处的技术细节时
-
-longer posts up to 777 characters
-更长的帖子，最多 777 个字符
-
-longer videos up to three minutes for news creators
-为新闻创作者和意见领袖制作长达三分钟的视频
-
-and influencers, upwards of 10 minute videos that we can allow for some
-我们甚至为他们提供一些长至10 分钟的视频
-
-really cool additional features that will be coming addition live streaming,
-非常酷的附加功能，如即将加入实时直播
-
-which will be coming next month.
-该功能将在下个月上线
-
-So we’re excited about the growth and development on that.
-所以我们对它的增长和发展感到兴奋
-
-And I think in a way that Twitter hasn’t had sharper pictures, sharper images.
-而且我认为推特没有更清晰的图片，更清晰的图像
-
-But, again going back to the fact
-但是，再次回到事实
-
-that you will never be deplatformed or censored for your political opinions on Gettr
-永远不会因为你在盖特上的政治观点而被平台取消或被审查
-
-and this is something that I think people can,
-这是我认为人们可以得到的
-
-regardless of what country you’re from,
-不管你来自哪个国家
-
-regardless of what the free speech rights
-不管政府可能告诉你
-
-that the government might tell you that you have on Gettr
-你在Gettr上有什么言论自由权
-
-you’re always gonna be able to express yourself freely and openly.
-你总是能够自由和公开地表达自己
-
-Peter Navarro
-彼得 纳瓦罗
-
-Hey let me let me say this, Gettr is the Twitter killer.
-嘿，让我这么说吧，盖特是推特的杀手
-
-This is what we have to do, gettr is Twitter killer
-这就是我们必须要做的，盖特是推特的杀手
-
-and why do we have to kill Twitter, this is this is the easy sell here,
-为什么我们必须杀死推特，这是好卖点
-
-Twitter wants to silence you. If you think, I mean,
-推特想让你沉默。 如果你认为，我的意思是
-
-look, the Chinese Communist Party, Mao Zedong going back to the communist threat,
-看，中共，回到毛泽东时代共产主义的威胁
-
-you have like all bad thoughts, right,
-那时随意定义人民有不好的想法（黑五类——地、富、反、坏、右），对吧
-
-it’s like, they define what the bad thoughts are
-就像是中共定义的什么是坏想法
-
-no , no no no no no, free speech here in America,
-不，不，不，不，不，在美国的言论自由
-
-Twitter, took that away from the American people， from the international users
-推特把那个（言论自由）从美国人民，从国际用户那里夺走了
-
-use it Gettr is the Twitter killer, full stop.
-使用这个，盖特是推特的杀手，句号
-
-That’s free speech, that’s what it’s all about.
-这就是言论自由，这就是我们所说的
-
-———————–—–—–—–—–—–—–—–—–—
-
-原视频链接: [https://gtv.org/video/id=6142a526751e4f2b0e53c474](https://gtv.org/video/id=6142a526751e4f2b0e53c474)
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 -银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
