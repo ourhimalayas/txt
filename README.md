@@ -28,23 +28,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [相信上天的力量 希望中国人不要陷入苦难的历史轮回](/content/gnews/6/README.md)
+### [2018年4月20日郭文贵先生直播全文字版](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [特鲁多浪费纳税人6.12亿的政治投机大选换来基本没变化](/content/gnews/7/README.md)
+ ` YALUN 亚伦`
+
+### [相信上天的力量 希望中国人不要陷入苦难的历史轮回](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [9/21/2021 七哥直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
+### [武毒所科学家的生物武器计划](/content/gnews/9/README.md)
+ ` wenwu`
 
-### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
+### [接种者如不在冬季隔离将面临重症风险](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：处处是瞄准老百姓的针头——北京启动免费流感疫苗接种](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：可怕！疫苗将突破传统注射方法，未来口服蔬菜也可能达到mRNA疫苗效果](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [万般辛苦唯有自赎](/content/gnews/11/README.md)
- ` 纽约香草山MOS03`
+### [黑客出售电子疫苗护照](/content/gnews/11/README.md)
+ ` 纽约香草山MOS01`
 
 ### [马里科帕郡通话录音遭泄露的监事今宣布辞职](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -154,33 +154,33 @@
 ### [【小雨专栏】在路上（030）——电视篇](/content/gnews/47/README.md)
  ` 温哥华扬帆农场`
 
-### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/48/README.md)
+### [9/21/2021 七哥直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害](/content/gnews/48/README.md)
  ` 秘密翻译组-北美组`
 
-### [立陶宛呼吁抵制中共国制造的手机](/content/gnews/49/README.md)
+### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/49/README.md)
+ ` 秘密翻译组-北美组`
+
+### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/50/README.md)
+ ` 秘密翻译组-北美组`
+
+### [立陶宛呼吁抵制中共国制造的手机](/content/gnews/51/README.md)
  ` HimalayaRussia`
 
-### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/50/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/51/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [9/22/21 香港快讯 中秋夜飞鹅山现FAITH字样灯牌](/content/gnews/52/README.md)
- ` 英喜-粵語組`
-
-### [FDA顾问小组反对向美国人接种辉瑞疫苗加强针](/content/gnews/53/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [股东集体诉讼案，推特公司以8亿美元寻求和解](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线 :世界银行窜改数据以帮助中共国吸引更多投资](/content/gnews/55/README.md)
+### [秘翻在线：处处是瞄准老百姓的针头——北京启动免费流感疫苗接种](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP百年百罪 第二十一集（86 – 89罪）](/content/gnews/56/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/53/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [有声|债务问题或引发经济灾难](/content/gnews/57/README.md)
- ` MOSREC`
+### [秘翻在线：可怕！疫苗将突破传统注射方法，未来口服蔬菜也可能达到mRNA疫苗效果](/content/gnews/54/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/55/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [9/22/21 香港快讯 中秋夜飞鹅山现FAITH字样灯牌](/content/gnews/56/README.md)
+ ` 英喜-粵語組`
+
+### [FDA顾问小组反对向美国人接种辉瑞疫苗加强针](/content/gnews/57/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

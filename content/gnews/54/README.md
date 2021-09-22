@@ -2,33 +2,21 @@
 ---
 
 
-## 股东集体诉讼案，推特公司以8亿美元寻求和解
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548019/)
+## 秘翻在线：可怕！疫苗将突破传统注射方法，未来口服蔬菜也可能达到mRNA疫苗效果
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1548207/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)
-路透社消息，针对推特股东集体起诉推特在用户使用频率问题上欺骗投资者的案件，推特公司于本周一表示，将支付8.095亿美元寻求和解。
+翻译：Nstar
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-23-004556.jpg)
+当一个人想到疫苗时，他们通常会想象一个注射器的长针头，在他们的手臂上被轻微扎伤，然后在他们恢复的过程中出现一天的酸痛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-41.jpeg)
+据《每日邮报》于2021年9月21日报道称加州大学河滨分校 (UCR) 的研究人员正在尝试通过可食用植物提供mRNA 疫苗技术, 他们希望种植可以提供疫苗同等作用的蔬菜，其技术与开发辉瑞-BioNTech 和Moderna COVID-19 疫苗的技术相同。
 
-2016年9月，推特股东集体起诉推特公司，称推特在2014年底停止报告”时间线浏览量”，掩盖停滞或下降的用户参与度，误导股东，人为抬高股价。该集体诉讼涉及2015年2月6日至2015年7月28日期间购买推特公司股票的投资者。
+植物比疫苗更易消化，运输和储存也更容易，因为疫苗需要保存在非常冷的温度下以避免变质。
 
-此消息一出，推特股价即在当天下午的早盘交易中下跌3.8%。 历经5年的集体诉讼将以和解的形式了结，推特公司也表示将于今年第四季度支付和解金，下跌的股价显示部分投资者开始对推特失去信心。而在主流媒体已经开始逐步报导疫苗真相的当下，推特肆意打压病毒和疫苗真相的行为将引发更大的质疑。
+植物的叶绿体将用于携带 mRNA，人们可以通过食用植物来口服疫苗，如果成功，这些工厂将使疫苗更容易远距离分发，到达那些低收入国家。
 
-(本文仅代表作者观点）
+首席研究员胡安·巴勃罗·吉拉尔多 (Juan Pablo Giraldo) 表示，这些植物“可能会对人们的生活产生巨大影响”。
 
-参考链接：[https://gettr.com/post/pbvjjmb49b](https://gettr.com/post/pbvjjmb49b)
-[Twitter seeks to settle 2016 class action lawsuit for $800 mln](https://www.reuters.com/technology/twitter-offers-settle-2016-class-action-lawsuit-800-mln-2021-09-20/)
+mRNA 技术通过为身体提供工具包来构建 Covid 用来感染人的蛋白质，然后教身体如何破坏它。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龍
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+**[信息来源](https://www.dailymail.co.uk/health/article-10013497/Scientists-working-develop-plants-deliver-mRNA-vaccine-technology.html)**

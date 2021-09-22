@@ -2,41 +2,27 @@
 ---
 
 
-## 有声|债务问题或引发经济灾难
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1547980/)
+## FDA顾问小组反对向美国人接种辉瑞疫苗加强针
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548017/)
 
-配音：香草山香港部-文凯琳
+【简评】：
+***周五FDA疫苗及相关生物制品咨询委员会（VRBPAC）的64名专家的讨论中，有61人投票反对给全民接种加强针，这直接宣告了拜登总统9月20日开始接种加强针的政策可能终结。专家们表示，对辉瑞提供的加强针的安全性数据表示失望，因为以色列的研究数据并不适合美国。且没有证据表明辉瑞加强剂对16岁及以上的人安全有效。***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+***另外，关于是否应该接种加强针的问题，科学家也进行了激烈的争论。周一发表的权威医学期刊《柳叶刀》明确表示，“目前的证据似乎没有显示有必要在普通人群中推广加强剂……在疫情的现阶段，广泛分发加强剂不合时宜。”***
 
+据《美联社》2021年9月17日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2241.png)图片来源：AP Photo/Robert F. Bukaty, File
+华盛顿(美联社)—FDA顾问小组断然拒绝了向大多数美国人提供辉瑞COVID-19疫苗加强针计划。
 
+文章点评仅代表个人观点
 
-9月17日，据路透社消息称，拜登总统的高级助手与全美地方官员共同恳请国会议员解决政府债务问题。他们警告说，政府债务问题若不能得以妥善化解，将会在信贷市场引发连锁反应，导致美国医疗与其他公共服务的资金供给断裂。他们提到，目前用于疫情防控、基础设施和教育领域的数十亿美元的公共投入也将停止。
+原文连接：[https://apnews.com/article/ap-news-alert-business-health-coronavirus-pandemic-b0f6dec670860985e3321dac2af9cce9](https://apnews.com/article/ap-news-alert-business-health-coronavirus-pandemic-b0f6dec670860985e3321dac2af9cce9)
 
-为此，民主党官员建议提高债务上限，但共和党议员坚决反对。共和党认为，提高债务上限会扩大美国的债务泡沫，将美国的经济推向更加危险的边缘。
+翻译：洛杉矶盘古农场–钢蛋儿
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–钢蛋儿
+编辑：洛杉矶盘古农场–心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-事实上，雪崩时没有一片雪花是无辜的。今日美国经济的现状，是世界各国政府为提振经济增长和财富积聚而进行货币兑水及大量超发货币的恶果。而今，滥发、超发货币的恶之花制造了巨大经济泡沫恶之果。
-
-自中共病毒爆发以来，各国政府大多以货币超发作为维持和刺激经济的主要手段，导致经济泡沫进一步扩大，恐将全球经济推向未知的深渊。
-
-[文字版原文：债务问题或引发经济灾难](https://gnews.org/zh-hans/1543057/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
