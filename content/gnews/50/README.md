@@ -2,43 +2,60 @@
 ---
 
 
-## Coinbase与国土安全部签署协议为其提供分析软件
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1546737/)
+## 读《道德经》第十章
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1547024/)
 
-栏目记者/责任编辑：文一
+作者：香草山健身部 – 书记己嗝屁！
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[原文]**
+载营魄抱一，能毋离乎？
+抟气至柔，能婴儿乎？
+涤除玄鉴，能毋疵乎？
+爱民治国，能毋以智乎？
+天门启阖，能为雌乎？
+明白四达，能毋以知乎？
+生之畜之，生而弗有，长而弗宰也，是谓玄德。
 
+**[译文] **
+精神与形体相配合，持守住大道，能够不离开吗？聚结精气以追求柔和温顺，能像婴儿一样吗？清除心中杂念而观照灵魂深处，能做到毫无瑕疵吗？爱护民众治理国家，能按照道的规律而不依靠自己的智谋机巧去管理他们吗？天赋的感官在接触外物时，能做到安静保守吗？心地明白通达之后，能做到不用智巧吗？生产万物，养育万物，生养万物而不占为己有，也不自逞其能耐，成为万物之长而不对其加以主宰，这就是奥妙深邃的品德。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0.模版images-1.jpg)图片来源：twoeggz.com
+**谨出作者理解，释如下：**
+载营魄抱一，能毋离乎？一个人的思想和身体本来就是合一而生的，但它们真的能够全部一致，没有相互偏离么？这一句的理解主要从思想和行动是否一致上去理解。
 
+抟气至柔，能婴儿乎？如果把自己的气息抟成极为柔顺温和的状态，就能够返本归真么？道家的观点认为，婴儿的状态是最为纯真的。 
+涤除玄鉴，能毋疵乎？如果把心中的杂念都彻底清除干净，是不是在洞察事物的时候，就能够做到毫无瑕疵。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-286.png)
+爱民治国，能毋以智乎？智，这里理解为巧智诡计。爱护人民而治理国家，就只能够需要凭借巧智诡计么？
 
+天门启阖，能为雌乎？当与外界有了感官上接触过后，好比现在物欲横流的的世界，是不是还能够保持好内心中的守静和守柔。
 
+明白四达，能毋以知乎？当心智通明且对周围的一切都了然于胸之后，还能够对待周围的一切不凭借运用巧智和诡计么？
 
-据CoinDesk报道，”美国国土安全部的移民和海关执法局（ICE）分支机构于9月16日向Coinbase授予了一份为期三年的分析软件合同。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Coinbase与国土安全部签署协议为其提供分析软件.jpg)
-今年8月，Coinbase曾与ICE签署了一份类似但金额较小的合同，价值2.9万美元，为该边境执法机构提供分析软件的使用权。
+生之畜之，生而弗有，长而弗宰也，是谓玄德。孕育万物又畜养万物，让它们生存于世间而又没有去占有它们，使它们得到成长却不去主宰它们，这就是所谓的自然规律所体现出来的，精深而宏大的品德。
 
-该交易所还在2021年4月和2020年5月与美国特勤局签署了合同，为其分析软件提供使用权。这两份合同最初的价值都在5万美元以下，但最高价值超过18万美元。
+这一章着重讲修身的功夫。这里写了六名问话，似乎是把“道”在运用于修身治国方面所做的几条总结，对一般人和统治者提出了概括的要求。本章每句的后半句似乎是疑问，其实疑问本身就是最好的答案。
 
-这份最新的合同最初金额为45万5千美元，但到2024年可以上升到137万美元的总额。
+老子要求人们无论是形体还是精神，无论是主观努力还是客观实际，都不可能是完全一致的。但是人们在现实生活中应该将精神和形体合一而不偏离，即将肉体生活与精神生活和谐。这样就必须做到心境极其静定、洗清杂念、摒除妄见，懂得自然规律，加深自身的道德修养。
 
-这也是其所有政府交易中总体上限最高的。
+这里老子提出一个概念“玄德”，玄德从字面意思上讲是很玄妙很深厚的德，这种“玄德”如何形成呢？老子说要生之畜之，生而弗有，长而不宰。这体现出了老子的教育理念，可以说如同现代的“素质教育”，生育孩子不要把孩子当成自己私有物品，要给孩子充分的发挥空间，不去主宰孩子，不去过多干涉孩子，按照孩子天赋和爱好去自然引导，这与儒家的教育思想完全不同，儒家讲“三纲五常”，道家讲“道法自然”。
 
-由此可见，美国政府部门对虚拟货币的监管力度正逐步加大。
+“玄德”是“有为”的终极境界，几乎接近道的“无为”，如何才能达到“玄德”的境界，就是心中无我，道法自然，灵魂和形魄合为一体，最终同于大道。
 
-（本文仅代表作者观点）
+**本文仅代表作者观点**
 
-信息链接：[Coinbase与国土安全部签署协议为其提供分析软件](https://marketrebellion.com/coinbase-signs-deal-with-homeland-security-to-provide-analytics-software/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-287.png)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

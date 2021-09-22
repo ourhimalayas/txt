@@ -28,14 +28,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年9月15日文贵先生、纳瓦罗先生和班农先生大直播，英文原声全文翻译版](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（三）](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年9月15日文贵先生、纳瓦罗先生和班农先生大直播，英文原声全文翻译版](/content/gnews/7/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [新疆监狱300多人集体死亡与灭共3.0有啥关联](/content/gnews/7/README.md)
+### [新疆监狱300多人集体死亡与灭共3.0有啥关联](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [虚拟货币是否受美元长臂管辖](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
@@ -103,14 +103,14 @@
 ### [拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [在港上市内地银行股跌幅扩大](/content/gnews/32/README.md)
+### [中共国独立记者黄雪琴、职业病权益倡导者王建兵失联](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [读《道德经》第十章](/content/gnews/33/README.md)
- ` 纽约香草山MOS03`
+### [澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [在港上市内地银行股跌幅扩大](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美国港口积压的货船达到创纪录水平](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
@@ -151,36 +151,36 @@
 ### [滴滴出行联合创始人柳青向亲信透露她计划辞职的消息](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [房子那些事](/content/gnews/47/README.md)
+### [读《道德经》第十一章](/content/gnews/47/README.md)
+ ` 纽约香草山MOS03`
+
+### [房子那些事](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [好人](/content/gnews/48/README.md)
+### [好人](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G时评：为何拜登不强制难民打毒针？](/content/gnews/49/README.md)
+### [读《道德经》第十章](/content/gnews/50/README.md)
+ ` 纽约香草山MOS03`
+
+### [G时评：为何拜登不强制难民打毒针？](/content/gnews/51/README.md)
  ` GISELLE`
 
-### [Coinbase与国土安全部签署协议为其提供分析软件](/content/gnews/50/README.md)
+### [Coinbase与国土安全部签署协议为其提供分析软件](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [加拿大议会选举特鲁多险胜 但仍然被迫再次组建少数派政府](/content/gnews/51/README.md)
+### [加拿大议会选举特鲁多险胜 但仍然被迫再次组建少数派政府](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦人共度佳节、共克时艰](/content/gnews/52/README.md)
+### [新中国联邦人共度佳节、共克时艰](/content/gnews/54/README.md)
  ` 纽约香草山MOS01`
 
-### [日本政府养老投资基金被曝参与投资恒大](/content/gnews/53/README.md)
+### [日本政府养老投资基金被曝参与投资恒大](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [杰作](/content/gnews/54/README.md)
+### [杰作](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维州工会指责抗议工人是“极右翼纳粹分子”](/content/gnews/55/README.md)
+### [维州工会指责抗议工人是“极右翼纳粹分子”](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
-
-### [雅典娜时报-第059期](/content/gnews/56/README.md)
- ` 墨尔本雅典娜农场`
-
-### [辉瑞疫苗拟将黑手伸向5至11岁的儿童](/content/gnews/57/README.md)
- ` 纽约香草山MOS02`
 
