@@ -2,32 +2,47 @@
 ---
 
 
-## 共和党人在美国的联合国演讲后称拜登“向中共国低头”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1548559/)
+## 2021年度互联网自由度排名出炉
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1548623/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-2.jpg)图片来源 Elaine Cromie/Getty Images
-
-**摘要翻译：**共和党人在乔·拜登总统作为美国领导人首次在联合国大会发表讲话后指责他对中共国态度软弱。
-
-“乔·拜登今天甚至没有说出我们最大的国家安全威胁的名字：中共国”。前联合国大使尼基.海利（Nikki Haley）在一份声明中告诉每日电讯报新闻基金会。“当他在气候变化问题上向中共国低头时，他们正在对维吾尔人进行种族灭绝，镇压香港，威胁台湾，并掩盖新冠病毒。”
-
-阿肯色州的共和党参议员汤姆.科顿（Tom Cotton）星期二告诉福克斯新闻主持人玛莎·麦卡勒姆（Martha MacCallum）。“他就像《哈利波特》小说中一个害怕的孩子，不会说出伏地魔的名字，因为他害怕可能会发生的事情。”。
-
-当被问及拜登为何在讲话中故意省略中共国这个词时，白宫新闻秘书詹·普萨基（Jen Psaki）表示，这“表明他的目标是制定我们可以共同解决的重大问题的积极议程，包括与中共国的合作。”
-
-共和党人也对拜登没有追究中共国对新冠病毒大流行病的责任表示失望。共和党全国委员会主席罗娜·麦克丹尼尔（Ronna McDaniel）在推特上表示，拜登会在病毒问题上追究美国的责任，但不会追究中共国责任。
-
-海利在推特上说：“中共国向世界释放了新冠病毒，如果不追究他们的责任或进行可信的调查，你只会再次将世界置于危险之中”。
-
-简评：我相信不仅美国共和党人对拜登在联合国的发言失望，但凡有正义的民众对他的发言也失望。美国总统拜登在联合国发言对中共国只字不提，还能指望拜登政府对中共国对世界释放新冠病毒追责？这不仅是拜登政府的软弱，也体现了被中共国蓝金黄后的美国政府的堕落及与中共国的同流合污。所以只有通过不断地传播真相来，唤醒更多民众起来捍卫自身的权益。
-
-原文链接：[Republicans Say Biden ‘Bows To China’ After UN Speech](https://dailycaller.com/2021/09/21/biden-bows-to-china-nikki-haley-tom-cotton/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 有莫举名
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+9月21日，美国人权活动组织——自由之家（Freedom House）公布了年度网络排行榜自由度（Freedom on the Net）排名报告。
+
+![](https://gdb.voanews.com/A8CC0159-DC87-44C0-A1B5-5983FAAE8DE5_w1023_r1_s.png)图片来源：见水印
+
+该项排名主要基于三个方面：上网障碍（obstacles to access）、内容限制（limits on content）和侵犯用户权利情况（violations of user rights）。
+
+依据以上信息统计，2021年度，中共国连续第七年在70多个国家中排名垫底，其网络自由度比古巴、缅甸、伊朗还要差；台湾此次首次参与评选，获得亚太地区排名第一、全球排名第五的好成绩；而由于“虚假、误导和被操纵的信息持续在网上泛滥”，美国的得分连续第五年下降。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[互联网自由度排名中国连续七年垫底 台湾全球第五](https://www.voachinese.com/a/freedom-of-the-net-report-20210921/6236898.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

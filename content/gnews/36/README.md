@@ -2,39 +2,15 @@
 ---
 
 
-## 福奇资助的武汉病毒研究所60个项目，均与中共军方合作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1548269/)
+## 秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1548277/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/092203.jpg)图片来自网络
-有关美国国家过敏和传染病研究所(NIAID)所长、总统首席医疗顾问安东尼·福奇 (Anthony Fauci)（这位疯狂的医生）的最新消息曝光。消息来自澳大利亚。
+撰稿： WENJIE
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-23-014334.jpg)
+21世纪经济报９月22日报道，世界上最大的两个经济体和最大的碳排放国分别宣布了针对气候变化的融资政策。
 
-我们在2020年首次注意到武汉病毒研究所，并在4月注意到该研究所用活体动物进行实验。
+中共国独裁者在北京以视频方式出席第七十六届联合国大会一般性辩论时表示，中共国力争2030年前实现碳达峰，2060年前实现碳中和，并且中共国将大力支持发展中国家能源绿色低碳发展，不再兴建境外煤电项目。而在同一天，美国也宣布了新的气候融资政策。美国总统乔·拜登承诺美国将对较贫穷国家的财政援助增加一倍，以帮助它们转向更清洁的能源并应对气候变化的“无情”影响。文章还说，一个积极合作的中美关系对全球气候治理的贡献更大，而中美关系的继续紧张和对立无疑将增加全球气候治理及实现既定议程目标的困境和不确定性。
 
-我们也知道，中共国的所有病毒学工作都与中共国军方有关，因此中共国在这方面的任何工作都与中共国军方有关。
+我们都知道，世界大国谈所谓气候问题，背后的深层目的是利益的重新分配，涉及到能源市场的蛋糕怎么吃的问题。中共国一向是煤电大国，也是煤电设备的最大输出国，这次的承诺显然是和美国进行了勾兑，让渡了一部分利益，让欧美更擅长的天然气发电设备可以占据市场。作为回报中共，拜登政府及背后的贪婪资本家们大概也迫不及待想借此为契机，甚至不再顾忌是否追责中共病毒对世界造成的灾难，可以堂而皇之的为与中共重叙旧情找到了“理想”的借口。
 
-《天空新闻》的莎莉·马克森(Sharri Markson)即将出版一本书，这是她研究安东尼·福奇 (Anthony Fauci) 的成果。几个小时前，她在天空新闻上指出以下内容：
-
-*我发现他（福奇）的机构资助了武汉病毒研究所的60个项目。*
-
-*我发现他早在2012年就写了一篇论文，认为运用基因操纵技术，可以使冠状病毒变得更加危险和更容易传播的功能获得研究，值得冒大流行的风险。*
-
-*福奇甚至资助了这项研究，他的机构与中共国军方合作资助了武汉病毒研究所的冠状病毒研究。*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/092204.jpg)
-这是来自《天空新闻》的报道。
-
-在大流行的最初几个月，福奇博士从未与川普总统分享过任何这些信息。
-
-[新闻链接](https://www.thegatewaypundit.com/2021/09/breaking-dr-fauci-funded-60-projects-wuhan-institute-virology-conjunction-chinese-military/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译: 希望|校对:Julia Win*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**[参考链接](https://m.21jingji.com/article/20210922/herald/c22e24d04d52a8eca40ced637aa3982c.html)**

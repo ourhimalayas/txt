@@ -13,20 +13,20 @@
 
 ---
 
-### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/1/README.md)
+### [2021年9月21日郭文贵先生中秋直播全文字版](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [空军部长称他的首要任务是“中共国、中共国、中共国”](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/3/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/2/README.md)
+### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/3/README.md)
+### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
 
 ### [2018年4月20日郭文贵先生直播全文字版](/content/gnews/6/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
@@ -67,13 +67,13 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【 #G时新闻 】亚利桑那州，成为第一个对“总统乔-拜登”强制疫苗政策提起诉讼的州](/content/gnews/19/README.md)
+### [王，江，朱等家族是有国际势力背景的](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【 #G时新闻 】亚利桑那州，成为第一个对“总统乔-拜登”强制疫苗政策提起诉讼的州](/content/gnews/20/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [2018年4月21日郭文贵先生直播全文字版](/content/gnews/20/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [2021年9月21日郭文贵先生中秋直播全文字版](/content/gnews/21/README.md)
+### [2018年4月21日郭文贵先生直播全文字版](/content/gnews/21/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [彼得·纳瓦罗：盖特是推特的杀手](/content/gnews/22/README.md)
@@ -103,28 +103,28 @@
 ### [&#8220;中共对美国的威胁超过任何其它国家!&#8221;](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [共和党人在美国的联合国演讲后称拜登“向中共国低头”](/content/gnews/31/README.md)
+### [2021年度互联网自由度排名出炉](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
+
+### [澳大利亚人放弃枪支接近于投票给专制政权](/content/gnews/32/README.md)
+ ` wenwu`
+
+### [共和党人在美国的联合国演讲后称拜登“向中共国低头”](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [空军部长称他的首要任务是“中共国、中共国、中共国”](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新闻速递|立陶宛国防部长告诉公民，扔掉你的中国手机](/content/gnews/33/README.md)
+### [新闻速递|立陶宛国防部长告诉公民，扔掉你的中国手机](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年，美国人从社交媒体获取新闻的比例下降](/content/gnews/34/README.md)
+### [2021年，美国人从社交媒体获取新闻的比例下降](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/35/README.md)
+### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [福奇资助的武汉病毒研究所60个项目，均与中共军方合作](/content/gnews/36/README.md)
+### [福奇资助的武汉病毒研究所60个项目，均与中共军方合作](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新冠疫苗已在美国杀死15万人，其中包括574名儿童](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [已证实：武汉科学家在疫情前18个月向蝙蝠洞释放冠状病毒](/content/gnews/38/README.md)
+### [新冠疫苗已在美国杀死15万人，其中包括574名儿童](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [东京股市警惕恒大风险开盘大跌](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【小雨专栏】在路上（030）——电视篇](/content/gnews/47/README.md)
+### [2021年09月22日澳喜要闻（每日更新）](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [【小雨专栏】在路上（030）——电视篇](/content/gnews/48/README.md)
  ` 温哥华扬帆农场`
 
-### [9/21/2021 七哥直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害](/content/gnews/48/README.md)
+### [9/21/2021 七哥直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害](/content/gnews/49/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/49/README.md)
+### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/50/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/50/README.md)
+### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/51/README.md)
  ` 秘密翻译组-北美组`
 
-### [立陶宛呼吁抵制中共国制造的手机](/content/gnews/51/README.md)
+### [立陶宛呼吁抵制中共国制造的手机](/content/gnews/52/README.md)
  ` HimalayaRussia`
 
-### [秘翻在线：处处是瞄准老百姓的针头——北京启动免费流感疫苗接种](/content/gnews/52/README.md)
+### [已证实：武汉科学家在疫情前18个月向蝙蝠洞释放冠状病毒](/content/gnews/53/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：处处是瞄准老百姓的针头——北京启动免费流感疫苗接种](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/53/README.md)
+### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/55/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：可怕！疫苗将突破传统注射方法，未来口服蔬菜也可能达到mRNA疫苗效果](/content/gnews/54/README.md)
+### [秘翻在线：可怕！疫苗将突破传统注射方法，未来口服蔬菜也可能达到mRNA疫苗效果](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/55/README.md)
+### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/57/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [9/22/21 香港快讯 中秋夜飞鹅山现FAITH字样灯牌](/content/gnews/56/README.md)
- ` 英喜-粵語組`
-
-### [FDA顾问小组反对向美国人接种辉瑞疫苗加强针](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
