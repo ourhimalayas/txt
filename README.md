@@ -67,76 +67,76 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [青蒿素也许能终结癌症](/content/gnews/19/README.md)
+### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/21/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【 #G时新闻 】推特支付8.09亿美元和解股东集团诉讼案](/content/gnews/22/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [青蒿素也许能终结癌症](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [如果他们可以强迫你接种疫苗，那么还有什么事不能做？](/content/gnews/20/README.md)
+### [如果他们可以强迫你接种疫苗，那么还有什么事不能做？](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲政府利用伊维菌素来推广疫苗的有效性](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [墨尔本建筑工人走上街头抗议强制接种疫苗](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [流亡港人罗冠聪赴美游说 促西方盟国对抗中共极权](/content/gnews/25/README.md)
+### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [习近平联大视频讲话, 继续欺骗要挟世界](/content/gnews/26/README.md)
+### [震惊！墨尔本警方橡皮子弹射向反强制疫苗示威者！](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [立陶宛国防部建议公民避免购买并处理现有中共国手机](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [拜登联合国讲话暗指中共, 却仍不触及&#8221;病毒核心&#8221;](/content/gnews/27/README.md)
+### [流亡港人罗冠聪赴美游说 促西方盟国对抗中共极权](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：中共国连续七年在互联网自由度排名榜上垫底](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
+### [习近平联大视频讲话, 继续欺骗要挟世界](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：中共控制的Zoom收购Five9遭司法部审查](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
+### [拜登联合国讲话暗指中共, 却仍不触及&#8221;病毒核心&#8221;](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：美国空军部长警告说 中共在核武器和太空方面对美构成威胁](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [墨尔本血腥的一天——警察暴力镇压抗议活动](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [联合国大会首日 海地重申支持台湾入联](/content/gnews/32/README.md)
+### [北约军事首脑对于中共对欧洲港口的投资感到恐慌](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [逃离阿富汗的女运动员选择在澳大利亚定居](/content/gnews/33/README.md)
- ` 日本东京方舟农场`
-
-### [中共镰刀下的香港财团](/content/gnews/34/README.md)
+### [疯了！中共以为赢了全世界，世界左联共同抵制马克思学院](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西媒头条 — 第71期](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [意学校一工作人员没钱每两天做一次病毒检测，校长叫来宪兵](/content/gnews/36/README.md)
- ` xiaobaige`
-
-### [“这不是政治！”——上千人聚集在纽约市的“自由集会”反对疫苗护照](/content/gnews/37/README.md)
+### [专家说FDA疫苗有害，但NIH院长相信加强针将获批](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [定时炸弹：完全接种者感染新变种病毒时会加重病情](/content/gnews/38/README.md)
+### [墨尔本血腥的一天——警察暴力镇压抗议活动](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [联合国大会首日 海地重申支持台湾入联](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [逃离阿富汗的女运动员选择在澳大利亚定居](/content/gnews/36/README.md)
+ ` 日本东京方舟农场`
+
+### [中共镰刀下的香港财团](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西媒头条 — 第71期](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [印太地区国家拥抱AUKUS](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/40/README.md)
- ` 银河勇气之星`
-
-### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/41/README.md)
+### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [雇员被要求看脸书视频接受疫苗知识并因拒绝接种遭解雇](/content/gnews/42/README.md)
+### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/41/README.md)
+ ` 银河勇气之星`
+
+### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [09/22/2021 财经快讯：德国Ifo研究所将德国2021年GDP增长预期下调至2.5%;恒大将于 9 月 23 日支付 3,590 万美元境内债券票息](/content/gnews/43/README.md)
@@ -151,36 +151,36 @@
 ### [东京股市警惕恒大风险开盘大跌](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国网络自由度排名连续7年垫底](/content/gnews/47/README.md)
+### [谈墙内房地产的吃人之道](/content/gnews/47/README.md)
+ ` 首尔天池农场`
+
+### [中共国网络自由度排名连续7年垫底](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [国际要闻汇编](/content/gnews/48/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共诗——台海图（新韵）](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墨尔本的抗议](/content/gnews/51/README.md)
- ` 澳喜农场`
-
-### [樱花灭共诗——玉楼春•香港首个“完善”后的选举](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共缺粮放风：习近平告诫“不能侥幸、不能折腾”](/content/gnews/53/README.md)
- ` 儒为`
-
-### [西方很多人因为怕死恐惧和相信科学与媒体而打了疫苗](/content/gnews/54/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [国际形势剧变,疫苗的所有灾难还没有开始](/content/gnews/55/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [秘翻在线：蚂蚁金服旗下花呗被中共当局接管 纳入央行征信系统](/content/gnews/56/README.md)
+### [秘翻在线：中共国连续七年在互联网自由度排名榜上垫底](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共党媒“求是网”定调并高唱“两个维护”，为习近平造势](/content/gnews/57/README.md)
- ` 纽约香草山MOS01`
+### [国际要闻汇编](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [意学校一工作人员没钱每两天做一次病毒检测，校长叫来宪兵](/content/gnews/52/README.md)
+ ` xiaobaige`
+
+### [樱花灭共诗——台海图（新韵）](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墨尔本的抗议](/content/gnews/54/README.md)
+ ` 澳喜农场`
+
+### [樱花灭共诗——玉楼春•香港首个“完善”后的选举](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“这不是政治！”——上千人聚集在纽约市的“自由集会”反对疫苗护照](/content/gnews/56/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：中共控制的Zoom收购Five9遭司法部审查](/content/gnews/57/README.md)
+ ` 秘密翻譯組G-Translators`
 

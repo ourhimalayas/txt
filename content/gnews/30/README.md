@@ -2,17 +2,33 @@
 ---
 
 
-## 秘翻在线：美国空军部长警告说 中共在核武器和太空方面对美构成威胁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547412/)
+## 拜登联合国讲话暗指中共, 却仍不触及&#8221;病毒核心&#8221;
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547590/)
 
-#### 翻译/撰稿：zzballack
+栏目记者/责任编辑：在远方
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-2-2.jpg)图片来源：Air Force Magazine
-据《华盛顿自由灯塔》（Washington Free Beacon）9月21日报道，美国空军部长弗兰克·肯德尔 (Frank Kendall) 9月20日在美国空军协会（Air Force Association）的航空、航天和网络会议上指出，中共正在通过核武器和从太空发动攻击的能力获得”第一打击能力”，北京通过高空威胁美国国家安全的能力正在增长。美国需要增加对航空航天防御的投资，空军在反击中共方面一刻也不能耽误。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-肯德尔在会议上说道：“无论有意还是无意，中共正在获得先发制人核打击能力，只有空军和太空部队才有能力控制全球高地。我们的战略竞争对手已经研究了我们的战斗方式，采取了不对称的措施来利用我们的弱点并打败我们。我们必须对此保持紧迫感，但我们也不得不花费必要时间，就我们的未来和投资作出明智选择。”
 
-肯德尔列举了中共正快速建造核导弹发射井的理由，怀疑中共已经放弃了“最小威慑”姿态。他还警告说，中共将其侵略行为延伸到了太空，北京可以阻止美国进入终极高地。因此川普政府在2019年成立了太空军，以对抗中共在该领域日益增长的实力。
 
-新闻来源：[Air Force Chief: China Acquiring Nuclear First Strike, Ability To Attack From Space](https://freebeacon.com/national-security/air-force-chief-china-acquiring-nuclear-first-strike-ability-to-attack-from-space/)
+美国总统拜登星期二在联合国大会发表暗指中共的演说。他表示，美国基于价值观将为盟友挺身而出，并反对任何强国企图通过以武力实现领土变更、经济胁迫、技术掠夺或是虚假信息来控制弱国。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-8.13.35-PM.png)
+拜登称，美国不会寻求新的冷战，美国准备和任何愿意采取行动的国家合作，针对共同挑战寻求和平的解决方案。 截止目前，美国已有超过67万人死于新冠病毒，这一数字超过了103年前的西班牙大流感中的死亡人数。虽然拜登在演说中表示“如果美国及其盟友不能合作应对新冠疫情和气候变化等紧急威胁或是核扩散等持久威胁，他们都将为失败而付出代价”，但是却仍然没有表示要对新冠病毒的来源进行彻底追责。
+
+郭文贵先生在爆料中正告世界，新冠病毒与新冠疫苗是子母弹，是世界黑暗势力试图大规模清除人类的险恶计划。未来全世界即将面对的现实，就是因注射疫苗而导致出现大量民众伤损或死亡。拜登政府固然无意寻求新的冷战，但仍然没有认清中共盗国贼的本质，更没有意识到世界已经陷入比核战争更为危险的疫苗生物超限战之中。
+(本文仅代表作者观点)
+
+参考链接：[剑指中国 美反对恃强凌弱但不求新冷战](https://www.voachinese.com/a/6240293.html)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

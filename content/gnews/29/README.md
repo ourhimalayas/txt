@@ -2,23 +2,31 @@
 ---
 
 
-## 秘翻在线：中共控制的Zoom收购Five9遭司法部审查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1547494/)
+## 习近平联大视频讲话, 继续欺骗要挟世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1547601/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：文扬四海
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-2-3.jpg)图片来源：市场观察
-9月21日，《国会山报》（The Hill）记者莫尼克·比尔斯（Monique Beals）撰文，报道美国司法部（DOJ）已经对Zoom公司150亿美元收购Five9公司的交易展开调查，原因是Zoom与中共有关系。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-根据目前已经公开的报道，远程视频会议领头羊Zoom是由中共国开发的软件。2020年6月11日，Zoom公司公开认错，坦言“应中共要求”曾关闭美国用户帐号，并终止了一场关于六四的Zoom纪念活动。
 
-2020年早些时候，研究人员发现Zoom通过北京的服务器为美国的通话加密，引起了广泛的争议。该公司后来承认，因为中共病毒大流行期间通话量激增，它“错误地”（mistakenly）增加了中共国服务器。
 
-根据文章报道，Five9是一家被授权连接国内和海外网络的运营商，而司法部在一封关于与美国客户服务公司Five9合作的信中提到，“外国关系和所有权”是潜在的国家安全风险。
+9月21日，中共党魁习近平以视频方式出席第七十六界联合国大会，表示要加强国际协作战胜疫情，并反对任何形式的政治朔源。称要把疫苗作为全球公共产品，而中共国将向世界提供20亿剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-22-at-8.25.07-PM.png)
+爆料革命揭示新冠病毒就是中共病毒已逾4年，疫情是中共对世界发动的生物武器超限战，造成全球400多万人死亡。由爆料革命推动的对中共病毒的朔源调查一定会让中共解体灭亡，中共已经感受到了压力和恐惧。习近平借联合国平台隔空喊话，继续欺骗和要挟世界，妄图利用已被中共严重渗透操控的联合国作为挡箭牌，对抗西方的病毒朔源调查，更用心险恶的向世界推销其病毒子母弹”新冠疫苗”。而习近平所谓的”合作共赢”，就是让西方国家不再追查病毒来源，双方关注于共同开发疫苗经济,并通过股市收割财富，否则中共将破釜沉舟，不惜引发世界金融危机，让欧美国家用于投资中共的养老基金血本无归!   
+(本文仅代表作者观点)
 
-截止到今年，Five9 已经有差不多 20 年的历史，其在全球拥有包括 赛富时 (Salesforce)、安德玛（Under Armour） 在内的大约 2000 个客户，每年处理的通话量超过70亿分钟，而Zoom 本身亦是 Five9 的长期客戶。
+参考链接：[中国国家主席习近平：世界完全容得下各国的共同成长和进步](http://www.news.cn/politics/leaders/2021-09/22/c_1127886754.htm)
 
-郭文贵先生在GTV平台的直播视频中多次指出，Zoom是受中共控制，为中共国安服务的一家打着美国旗号的公司。译者认为，虽然美国司法部开始进行调查，但看目前中共邪恶势力渗透美国政府的严重程度，调查结果目前难以预测。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-新闻来源：[Justice Department investigating Zoom’s China ties over Five9 deal](https://thehill.com/policy/technology/573281-justice-department-investigating-zooms-china-ties-over-five9-deal?rl=1)
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,31 +2,34 @@
 ---
 
 
-## 逃离阿富汗的女运动员选择在澳大利亚定居
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1547602/)
+## 专家说FDA疫苗有害，但NIH院长相信加强针将获批
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547721/)
 
-**撰稿：日本东京方舟农场 子辰**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/FreedomRally-1200x900-5.jpg)网络图片
 
-9月22日，一名体育协会官员表示，七名逃离阿富汗塔利班控制的女子跆拳道运动员已在墨尔本重新定居。
+在9月17日FDA顾问团会议上，医生们指出数据证实辉瑞的新冠疫苗的风险高于好处。两名FDA官员和一写其他的顶尖科学家最近断言，现有证据还不支持鼓励所有美国人使用新冠加强针。
 
-据美联社报导，澳大利亚跆拳道首席执行官希瑟·加里奥克周三表示，在塔利班重新控制该国后，前澳大利亚国家足球队队长和人道主义倡导者克雷格福斯特与澳大利亚政府、澳大利亚跆拳道和大洋洲跆拳道合作，从阿富汗进行了高风险撤离。具体细节没有透露。
+医生告诉FDA说，新冠疫苗伤害的人比拯救的人还多。病毒免疫学家和病毒学家杰西卡·罗斯博士说，“安全性和有效性是开发和管理供人类使用的生物产品的基石。”
 
-加里奥克说：”我们真的很高兴女士们平安无事，非常感谢澳大利亚政府和大洋洲拳击协会协助她们离开阿富汗。”这些妇女的生命处于危险之中。
+罗斯说：“FDA、CDC 和政策制定者的公共卫生官员有责任应对这些异常现象，并确认 VAERS 数据中出现的明确风险信号，来应对新冠疫苗产品使用和风险问题。在我看来，这些风险大于与这些产品带来的任何益处，尤其是对儿童而言”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/800-3.jpeg)图片来自于网络
+新冠病毒早期治疗基金的创始人史蒂夫·基尔希说，我们被引导相信疫苗是完全安全的，但事实并非如此。例如，在辉瑞6个月的试验报告中，治疗组的心脏病发作次数是（对照组）的四倍。这不是坏运气，VAERS显示，与任何其他疫苗相比，注射这些疫苗之后心脏病发生的频率是其他疫苗的71倍。治疗组共有20人死亡——安慰剂14人死亡。
 
-“作为一项运动，我们需要齐心协力，做些事情来帮助我们。澳大利亚拳击界非常欢迎，这些女士将受到张开双臂的欢迎。”
+周四，FDA的科学家在9月15日发布的一份长达23页的报告中对辉瑞新冠疫苗加强针注射的必要性表示怀疑。
 
-其中一名女运动员法蒂玛·艾哈迈迪 (Fatima Ahmadi) 说，她感谢所有支持他们撤离的各方的协助。
+美国国家卫生研究院（NIH）院长弗朗西斯·柯林斯博士说，即使在美国食品和药物管理局（FDA）咨询委员会于9月17日以压倒性多数拒绝了向公众发放辉瑞公司和BioNTech公司的新冠疫苗加强针的提议后，如果在未来几周内不向其他美国人推荐新冠疫苗加强针，他将感到 “惊讶”。
 
-“来到澳大利亚让我感觉非常好。我们在这里很安全，没有任何危险，”她说。“澳大利亚跆拳道帮了我们很多，我很感激。我们现在正等着为澳大利亚做一些有益的事情，以回报你们的帮助。”
+**简评：**FDA的官员及有正义感的科学家已经用投票和报告表明了自己专业的意见和态度，但是位高权重的柯林斯博士否定了他们的意见，会继续推进加强针的计划，FDA的存在还有意义吗？
 
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[Seven female Afghan taekwondo athletes resettle in Australia](https://apnews.com/article/soccer-sports-australia-international-soccer-evacuations-59096231157549b0c29b56963907c829)
+**原文链接：**[Experts Tell FDA Vaccines ‘Harm More People Than They Save,’ But NIH Director Believes Boosters Will Be Approved in Coming Weeks](https://childrenshealthdefense.org/defender/fda-vaccines-harm-people-nih-boosters-will-be-approved/)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
