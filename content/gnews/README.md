@@ -28,23 +28,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/6/README.md)
+### [运动员在袁伟民眼里无脑无智,是他养的狗想给谁就给谁](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥说— 第15期](/content/gnews/7/README.md)
+### [袁伟民假日慰问动机是政治上占地盘弄钱玩球玩女人玩性](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七哥说— 第15期](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [因为共产党的整个危机世界的经济大厦随时要崩塌](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
+### [秘翻在线：处处是瞄准老百姓的针头——北京启动免费流感疫苗接种](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [万般辛苦唯有自赎](/content/gnews/9/README.md)
+### [秘翻在线：可怕！疫苗将突破传统注射方法，未来口服蔬菜也可能达到mRNA疫苗效果](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [万般辛苦唯有自赎](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
-
-### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [美国对币安的调查扩大到审查可能的内幕交易](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -127,17 +127,17 @@
 ### [专家说FDA疫苗有害，但NIH院长相信加强针将获批](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [印太地区国家拥抱AUKUS](/content/gnews/39/README.md)
+### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [印太地区国家拥抱AUKUS](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [没有任何科学验证证据可以支持中共病毒的自然起源说](/content/gnews/40/README.md)
+### [没有任何科学验证证据可以支持中共病毒的自然起源说](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/41/README.md)
+### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/42/README.md)
  ` 银河勇气之星`
-
-### [FDA疫苗监管机构反对中共病毒疫苗加强针](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [09/22/2021 财经快讯：德国Ifo研究所将德国2021年GDP增长预期下调至2.5%;恒大将于 9 月 23 日支付 3,590 万美元境内债券票息](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
@@ -172,15 +172,15 @@
 ### [秘翻在线:二氧化碳是欧洲人民生存的关键](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/55/README.md)
+### [澳洲警察向手无寸铁抗议强制疫苗抗议封锁的人群开枪](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/56/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [全球各地爆发反接种示威 墨尔本警方暴力令人震惊](/content/gnews/55/README.md)
+ ` GTV新闻访谈`
 
-### [谈墙内房地产的吃人之道](/content/gnews/57/README.md)
- ` 首尔天池农场`
+### [勇敢的移民女士在听证会上挑战中共病毒疫苗强制接种令](/content/gnews/56/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新疆监狱300多人集体死亡与灭共3.0的关联](/content/gnews/57/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
