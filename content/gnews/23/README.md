@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 中秋祝福 平安喜乐
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1546860/)
+## 视频| 新中国联邦战友共度中秋
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1546906/)
 
 制作：香草山视频部
 

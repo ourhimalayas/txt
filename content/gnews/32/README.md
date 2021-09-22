@@ -2,39 +2,21 @@
 ---
 
 
-## 澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547115/)
+## “民运”和“台独”都被审查 立陶宛建议拒买中共国手机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547171/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/地震-澳洲.jpg)
-图片来源：news.abs-cbn.com
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210922112523732.jpg)“民运”和“台独”都被审查 立陶宛建议拒买中共国手机 网络图片
+9月22日，据德国之声引述路透社报道，立陶宛国防部建议民众避免购买中共国手机，并扔掉他们现在持有的中共国手机，因为一份政府报告认定这些设备具有内置审查功能。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+立陶宛国防部网络安全中心表示，中共国智能手机巨头小米在欧洲销售的旗舰手机具有内置检测和审查“自由西藏”丶“台湾独立万岁”或 “民主运动”等词汇的功能。
 
-9月22日上午，澳大利亚维多利亚州东北部发生6级地震。新南威尔士州各地均有震感，悉尼部分地区的民众感到房屋在摇晃。
+新闻参考链接： [https://www.dw.com/zh/%E6%B0%91%E8%BF%90%E5%92%8C%E5%8F%B0%E7%8B%AC%E9%83%BD%E8%A2%AB%E5%AE%A1%E6%9F%A5-%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%BB%BA%E8%AE%AE%E6%8B%92%E4%B9%B0%E4%B8%AD%E5%9B%BD%E6%89%8B%E6%9C%BA/a-59257124](https://www.dw.com/zh/%E6%B0%91%E8%BF%90%E5%92%8C%E5%8F%B0%E7%8B%AC%E9%83%BD%E8%A2%AB%E5%AE%A1%E6%9F%A5-%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%BB%BA%E8%AE%AE%E6%8B%92%E4%B9%B0%E4%B8%AD%E5%9B%BD%E6%89%8B%E6%9C%BA/a-59257124)
 
-地震发生在墨尔本东北约180公里的曼斯菲尔德（Mansfield）附近，地震深度为10公里，震级为6.0级，时间在上午9点15分之后。大约15分钟后，又记录到一次较小的震级，地震深度为12公里，震级为 4.0级；上午9点54分，记录到另一次地震，深度为6公里，震级为3.1级。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-玫瑰湾（Rose Bay）的居民杰克科罗伊（Jack Coroy）当时在浴室里，他发现房间在晃动。这只持续了大约10秒钟，他以为自己“疯了”。
 
-地震发生时，曼利的居民（Manly resident）汉娜·威廉姆斯（Hannah Williams）正在给她刚出生的婴儿喂奶。起初，她以为自己睡眠不足或血压低，但当她看见窗户开始摇晃时，马上从大楼撤离了出来。当时很多曼利的居民也站在街上。
+编辑：【英国伦敦喜庄园编辑部】
 
-新南威尔士州消防和救援组织表示，在发生地震后，救援人员被派往悉尼的亚历山大、曼利和霍恩斯比，以及该州西部的达博等地。至今没有收到新南威尔士州的重大结构损坏报告。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-
-1、[Victoria earthquake felt across Sydney, ACT, Tasmania and South Australia (smh.com.au)](https://www.smh.com.au/national/nsw/victorian-earthquake-felt-across-sydney-20210922-p58tqh.html)
-
-2、[Magnitude 6.0 quake strikes near Melbourne | ABS-CBN News](https://news.abs-cbn.com/overseas/09/22/21/magnitude-60-quake-strikes-near-melbourne)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
