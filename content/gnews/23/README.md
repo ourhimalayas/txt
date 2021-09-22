@@ -2,156 +2,178 @@
 ---
 
 
-## 王，江，朱等家族是有国际势力背景的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548692/)
+## 一切源于共产组织
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548717/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/100asmvm-ycet4.jpg)
-[https://gtv.org/video/id=614a2006d2e2b817486c1dea](https://gtv.org/video/id=614a2006d2e2b817486c1dea)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/7aqguh-nlw49.jpg)
+[https://gtv.org/video/id=614a2142d2e2b817486c1e29](https://gtv.org/video/id=614a2142d2e2b817486c1e29)
 
-**字幕内容:**
+王岐山抓的100万个共产党员
+El millón de los miembros del PCCh que arrestó Wang Qishan
 
-**郭文贵
-Miles Guo**
+是为了仅仅是帮习上去吗
+¿Acaso es sólo para ayudar levantar a Xi?
 
-王岐山的影响力
-La influencia de Wang Qishan
+王岐山没有100%把握控制习 他不会这么做的
+Si Wang Qishan no tiene el 100% de control hacia Xi, él no lo haría así
 
-你们没有真正的研究过
-Ustedes no han investigado de verdad
+国开行抓了20几个官员
+El Banco de Desarrollo de China arrestó a mas de 20 oficiales
 
-兄弟姐妹你们想过没有啊
-Hermanos y hermanas, ustedes han pensando
+将近11个官员
+Casi 11 oficiales
 
-为什么江家的人在美国
-Por qué a la familia Jiang no le ha pasado nada
+是从海南出来的 都是王岐山的人
+Han salido desde Hainan, son gente de Wang Qishan
 
-啥事都没有
-Estando en EE. UU
+王岐山都推荐过了陈元
+Wang Qishan hasta recomendó a Chen Yuan
 
-朱镕基家在美国
-La casa de Zhu Rongji está en Estados Unidos
+陈元就是王岐山一条狗
+Chen Yuan es un siervo de Wang Qishan
 
-就在曼哈顿住啥事都没有
-Está ahí en Manhattan y no tienen ningún problema
+国开行把钱给谁了
+A quién le dió dinero el Banco de Desarrollo de China
 
-曾家人没有敢来美国的
-La familia Zeng no se atreve venir a Estados Unidos
+好好看看海外的钱
+Vea bien el dinero en el extranjero
 
-王岐山的所有的钱都在美国搁着
-Todo el dinero de Wang Qishan está guardado en EE. UU
+他就是服务一带一路
+Él es el que hace los servicios de la Franja y la Ruta
 
-你怎么着
-Cómo haces tu
+国际上就是各国之间蓝金黄、给钱
+Internacionalmente es el plan ADA (BGY) a cada país, dar el dinero
 
-王岐山女朋友在美国
-La novia de Wang Qishan está en EE. UU
+国内扶持中小型科技企业
+Y dentro del país ayudar con las empresas pequeñas y medianas de tecnología
 
-为什么布隆伯格要举着
-Por qué Bloomberg se alza
+就是共产党的行贿的工具
+Esta es la herramienta de corrupción del PCCh
 
-王岐山说是世界最有权力的人
-A decir que Wang Qishan es la persona con más poder en el mundo
+抓了20几个人
+Arrestaron a más de 20 personas
 
-而不是习近平
-Y no Xi Jinping
+大多数王岐山的
+La mayoría son de Wang Qishan
 
-而报道习近平的家族腐败是华尔街日报
-Y reportaje que hace The Wall Street Journal es sobre el deterioro de la familia Xi Jinping
+那你说到海外的钱
+Y tú dices el dinero que llegó al extranjero
 
-和当时的布隆伯格
-Y Bloomberg en aquel momento
+你知道张宏伟和国开行到啥程度
+¿Tú sabes qué tan lejos ha llegado Zhang Hongwei con el Banco de Desarrollo de China?
 
-为什么不报王岐山呢
-Por qué el reporte no es de Wang Qishan
+张宏伟到海外帮助这些国家贷了款以后
+Luego de que Zhang Hongwei ayudó a estos países con el préstamo
 
-你们今天再往回想
-Ustedes hagan un recordatorio hoy
+张宏伟拿了20%的佣金
+Zhang Hongwei agarró el 20% de comisión
 
-想爆七哥的第一个人就是
-La primera persona que me quiere reportar es
+你查查东方海外
+Investiga a Orient Overseas (International) Limited
 
-这个胡舒立呀
-Es esta Hu Shuli
+这香港的东方能源
+Este Shijiazhuang Dongfang Thermoelectric Co., Ltd. de Hong Kong
 
-胡舒立呀，想过没有战友们
-Hu Shuli, han pensado compañeros luchadores
+竟然是国开行投的钱
+Resultó ser dinero invertido por el Banco de Desarrollo de China
 
-胡舒立在哪儿，现在啊
-¿ Dónde está Hu Shuli?, ahorita
+而且投到它的股票呢
+Además, invirtió hasta en sus acciones
 
-那现在SOHO的潘石屹这个傻叉
-Y este tonto de Pan Shiyi en el SoHo
+很多人像刘延东啊
+Muchas personas son como Liu Yandong
 
-旁边这个楼都是他的啊
-Todos los edificios de al lado son de él
+像这所有的家人里边的钱
+Como el dinero de todos esos familiares
 
-都得给他弄走
-Se lo tienen que quitar
+大家去看看去
+Todos vayan a ver
 
-对面的叶选宁的楼
-El edificio del frente de Ye Xuanning
+都跟国开行有关系
+Tienen relación con el Banco de Desarrollo de China
 
-陈锋的楼，你们想过没有
-El edificio de Chen Feng, ustedes han pensado
+他背后的人贷款
+El que hizo préstamos detrás de esto
 
-谁到底和这些邪恶势力有关系
-Quién es el que tiene relación con este poder maligno
+贷了国开行的钱再投资他哪儿去
+En dónde invirtió el dinero que pidió como préstamo al Banco de Desarrollo de China
 
-人家保谁呀
-A quién están cubriendo
+张宏伟
+Zhang Hongwei
 
-我告诉你
-Yo te digo
+他就凭他一个民工出身
+Nació como un Mingong (trabajador migrante)
 
-这个世界上最惨的就是习近平
-El más triste de este mundo es Xi Jinping
+他凭啥
+Con qué derecho
 
-最惨的就会是他
-El más triste será él
+他不就是被选为
+No es solo porque fue electo como
 
-普京有东正教
-Putin tiene la iglesia ortodoxa
+这个组织上有使命的人吗
+Una persona con misión en esta organización
 
-我不往下说
-No seguiré diciendo
+王岐山、陈元这是有使命的
+Wang Qishan, Chen Yuan estos tienen misión
 
-你们知道东正教是干啥的
-Ustedes saben qué hace la iglesia ortodoxa
+姚家有使命的人呢
+¿Y la misión de las personas de la familia Yao?
 
-东正教
-La iglesia ortodoxa
+这个组织控制了一个国家的钱袋子
+Esta organización controla la bolsa del dinero de un país
 
-俄罗斯的东正教
-La iglesia ortodoxa de Rusia
+控制了一个国家的领导人
+Controla el líder de un país
 
-现在是跟谁在一起的
-Con quienes están ahora
+剩下所有的人都是该死该杀该用的奴隶
+El resto de las personas son unos esclavos que deben ser usados, matados o deben morirse
 
-第二，中国的王岐山
-Segundo, Wang Qishan de China
+绝对反对民主
+Absolutamente en contra a la democracia
 
-包括中国的陈元
-Incluyendo a Chen Yuan de China
+绝对反对所谓一人一票选出的政策
+Absolutamente en contra a la llamada política de una persona, un voto
 
-江家，朱家
-La familia Jiang y Zhu
+在俄罗斯
+En Rusia
 
-人家是跟谁的
-Con quienes están ellos
+你看看今天的普京所有的作为想干啥了，是吧
+Mira lo que quiere hacer Putin hoy en día con sus acciones, cierto
 
-人家有国际势力
-Ellos tienen poder internacional
+所有做的都是一模一样的
+Todo lo que hace es igualito
+
+我必须干到一辈子
+Yo debo hacerlo de por vida
+
+必须服务这个精英
+Debo servir a esta élite
+
+其他下边人就是当奴才
+Del resto las personas de abajo lo tienen como esclavo
+
+你不当（奴才）弄死你
+Si no quieres serlo (esclavo) te hago morir
+
+习学到了吗？习学到了
+¿Xi logró aprender? Xi aprendió
+
+习想停下，能停下来？
+Xi quiere detener, ¿podrá detenerse?
+
+停不下来了
+Ya no se puede detener
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1437198393051205634?s=24](https://twitter.com/se1y7cblljselva/status/1437198393051205634?s=24)
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1437255804550193152?s=24](https://twitter.com/se1y7cblljselva/status/1437255804550193152?s=24)
 
 西听校：洛杉矶盘古农场 – 小文萱
 翻译：洛杉矶盘古农场 – 霙霙（文霙）
 翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+字幕+视频制作：洛杉矶盘古农场-天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场–彩虹Rainbow
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
