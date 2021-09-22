@@ -2,39 +2,23 @@
 ---
 
 
-## 澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1547115/)
+## 中共国独立记者黄雪琴、职业病权益倡导者王建兵失联
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1547138/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/地震-澳洲.jpg)
-图片来源：news.abs-cbn.com
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Unknown-5.jpg)中共国独立记者黄雪琴、职业病权益倡导者王建兵失联 网络图片
+关注中共国人权形势的《维权网》21日发布消息，中共国女权工作者、独立记者黄雪琴及职业病权益倡导者王建兵周日起失联。黄雪琴原定20日经香港赴英国进修，王建兵为她送行。他们可能被广州市海珠区警方控制。王建兵有可能被以煽动颠覆国家政权罪调查拘留，主要原因经常与朋友在家里聚会。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+黄雪琴曾任《新快报》、《南都周刊》调查记者，关注性别、平权、官员贪污、企业污染、弱势群体等议题，并发动中共国女记者对性骚扰调查。王建兵则长期关注青少年教育及成长事宜，于 2018 年起关注职业病工人权益。他与黄雪琴均是中共国MeToo运动的重要支持者。
 
-9月22日上午，澳大利亚维多利亚州东北部发生6级地震。新南威尔士州各地均有震感，悉尼部分地区的民众感到房屋在摇晃。
+这种失联就等于“被秘密抓捕”或监视居住。中共国经常发生这种事件。有一定影响力、还没有闭嘴的社会活动人士，都会被强硬对待，随时消失，甚至被灭口。在中共国，不能有自由的声音。自信的大国哪怕对一点微弱的声音都很敏感，必须全部禁声。
 
-地震发生在墨尔本东北约180公里的曼斯菲尔德（Mansfield）附近，地震深度为10公里，震级为6.0级，时间在上午9点15分之后。大约15分钟后，又记录到一次较小的震级，地震深度为12公里，震级为 4.0级；上午9点54分，记录到另一次地震，深度为6公里，震级为3.1级。
+新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-09212021055928.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-09212021055928.html)
 
-玫瑰湾（Rose Bay）的居民杰克科罗伊（Jack Coroy）当时在浴室里，他发现房间在晃动。这只持续了大约10秒钟，他以为自己“疯了”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-地震发生时，曼利的居民（Manly resident）汉娜·威廉姆斯（Hannah Williams）正在给她刚出生的婴儿喂奶。起初，她以为自己睡眠不足或血压低，但当她看见窗户开始摇晃时，马上从大楼撤离了出来。当时很多曼利的居民也站在街上。
 
-新南威尔士州消防和救援组织表示，在发生地震后，救援人员被派往悉尼的亚历山大、曼利和霍恩斯比，以及该州西部的达博等地。至今没有收到新南威尔士州的重大结构损坏报告。
+编辑：【英国伦敦喜庄园编辑部】
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**
-
-1、[Victoria earthquake felt across Sydney, ACT, Tasmania and South Australia (smh.com.au)](https://www.smh.com.au/national/nsw/victorian-earthquake-felt-across-sydney-20210922-p58tqh.html)
-
-2、[Magnitude 6.0 quake strikes near Melbourne | ABS-CBN News](https://news.abs-cbn.com/overseas/09/22/21/magnitude-60-quake-strikes-near-melbourne)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

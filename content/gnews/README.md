@@ -37,22 +37,22 @@
 ### [新疆监狱300多人集体死亡与灭共3.0有啥关联](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中](/content/gnews/9/README.md)
+### [秘翻在线：中共国手机内置文字审查功能 立陶宛国防部建议不要买或丢掉](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/10/README.md)
+ ` wenwu`
+
+### [墨尔本战争纪念馆外，维州警方与抗议者禁止对峙中](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国陆军利用“撒旦主义”强推疫苗接种](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [每日快报：凯尔-巴斯称，习近平希望恒大破产帮助降低房价](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [参议员玛莎·布莱克本：换掉中共走卒和武汉卫生组织负责人谭德塞](/content/gnews/11/README.md)
- ` 美国政要直译推`
-
-### [中巴新核协议可能将世界推向新的军备竞赛和冲突](/content/gnews/12/README.md)
+### [中巴新核协议可能将世界推向新的军备竞赛和冲突](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马里科帕郡一选举监事的通话录音遭泄露](/content/gnews/13/README.md)
- ` HimalayaRussia`
-
-### [川普要求佐治亚州务卿宣布大选真正的获胜者](/content/gnews/14/README.md)
+### [马里科帕郡一选举监事的通话录音遭泄露](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
 ### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/15/README.md)
@@ -67,65 +67,65 @@
 ### [恒大公司债券停止交易一天](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/19/README.md)
+### [墨尔本建筑工人走上街头抗议强制接种疫苗](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/20/README.md)
+### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [杰森·米勒：我们希望盖特让社交媒体再次变得有趣](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [数百名建筑工人攻击CFMEU总部，抗议强制接种疫苗](/content/gnews/21/README.md)
+### [数百名建筑工人攻击CFMEU总部，抗议强制接种疫苗](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频| GTV新闻访谈节目组祝战友们中秋快乐](/content/gnews/22/README.md)
+### [视频| GTV新闻访谈节目组祝战友们中秋快乐](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [视频| 新中国联邦战友共度中秋](/content/gnews/23/README.md)
+### [视频| 新中国联邦战友共度中秋](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [视频| 中秋祝福 平安喜乐](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [白宫宣布11月起打完疫苗才能入境美国](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [辉瑞公司称疫苗对5-11岁儿童安全有效，并向FDA寻求紧急使用授权](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [亚利桑那州成为第一个对强制疫苗政策提起诉讼的州，多个州将效仿跟进](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：佛州州长新闻秘书因反驳主流媒体无良报道被推特禁言 杰森·米勒：盖特绝不如此](/content/gnews/28/README.md)
+### [秘翻在线：接种疫苗的人可能成为病毒的温床并加剧病毒感染性的突变](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：加密交易不是法外之地 美财政部将首次对加密货币交易所进行制裁](/content/gnews/29/README.md)
+### [新中国联邦人共度佳节、共克时艰](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [白宫宣布11月起打完疫苗才能入境美国](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [辉瑞公司称疫苗对5-11岁儿童安全有效，并向FDA寻求紧急使用授权](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [亚利桑那州成为第一个对强制疫苗政策提起诉讼的州，多个州将效仿跟进](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：佛州州长新闻秘书因反驳主流媒体无良报道被推特禁言 杰森·米勒：盖特绝不如此](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：新书爆料：普京直面拜登称“他是个杀人犯”](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
+### [DC大中华时事：中共的数据可信吗](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [银河快讯： 中共收购东京火葬场；恒大危机冲击日本制造商](/content/gnews/31/README.md)
+### [银河快讯： 中共收购东京火葬场；恒大危机冲击日本制造商](/content/gnews/32/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [“民运”和“台独”都被审查 立陶宛建议拒买中共国手机](/content/gnews/32/README.md)
+### [“民运”和“台独”都被审查 立陶宛建议拒买中共国手机](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国独立记者黄雪琴、职业病权益倡导者王建兵失联](/content/gnews/33/README.md)
+### [中共国独立记者黄雪琴、职业病权益倡导者王建兵失联](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感](/content/gnews/34/README.md)
+### [澳洲突发地震，悉尼、首都和塔斯马尼亚均有震感](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在港上市内地银行股跌幅扩大](/content/gnews/35/README.md)
+### [在港上市内地银行股跌幅扩大](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国港口积压的货船达到创纪录水平](/content/gnews/36/README.md)
+### [美国港口积压的货船达到创纪录水平](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [SEC再次对中概股的投资人发出警告](/content/gnews/37/README.md)
+### [SEC再次对中概股的投资人发出警告](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [墨尔本建筑工人持续的抗议活动](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [在跌跌不休中，我听到了中共崩盘的“力拉”声](/content/gnews/39/README.md)
  ` 银河勇气之星`
@@ -151,36 +151,36 @@
 ### [滴滴出行联合创始人柳青向亲信透露她计划辞职的消息](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [北京成为了删减电影的世界中心](/content/gnews/47/README.md)
+### [中共国中秋晚会的前世今生](/content/gnews/47/README.md)
  ` G-NEWS TAIWAN`
 
-### [读《道德经》第十一章](/content/gnews/48/README.md)
+### [北京成为了删减电影的世界中心](/content/gnews/48/README.md)
+ ` G-NEWS TAIWAN`
+
+### [读《道德经》第十一章](/content/gnews/49/README.md)
  ` 纽约香草山MOS03`
 
-### [房子那些事](/content/gnews/49/README.md)
+### [房子那些事](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [好人](/content/gnews/50/README.md)
+### [好人](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [读《道德经》第十章](/content/gnews/51/README.md)
+### [秘翻在线：加密交易不是法外之地 美财政部将首次对加密货币交易所进行制裁](/content/gnews/52/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：新书爆料：普京直面拜登称“他是个杀人犯”](/content/gnews/53/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国陆军利用“撒旦主义”强推疫苗接种](/content/gnews/54/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [读《道德经》第十章](/content/gnews/55/README.md)
  ` 纽约香草山MOS03`
 
-### [香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运](/content/gnews/52/README.md)
+### [香港地产大亨难逃中国的“行业整治”，也将面临被“共同富裕”的厄运](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [G时评：为何拜登不强制难民打毒针？](/content/gnews/53/README.md)
+### [G时评：为何拜登不强制难民打毒针？](/content/gnews/57/README.md)
  ` GISELLE`
-
-### [梵蒂冈从10月1日起只允许持 &#8220;绿色通行证 &#8220;者进入 继续充当邪恶势力的帮凶](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [拜登提名担任对华出口政策要职的候选人表示华为应继续列入制裁黑名单](/content/gnews/55/README.md)
- ` GTV新闻访谈`
-
-### [Coinbase与国土安全部签署协议为其提供分析软件](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [加拿大议会选举特鲁多险胜 但仍然被迫再次组建少数派政府](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 

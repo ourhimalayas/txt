@@ -2,34 +2,40 @@
 ---
 
 
-## 墨尔本建筑工人持续的抗议活动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1546931/)
+## SEC再次对中概股的投资人发出警告
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1546972/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0b0e9ea1dbe8f187332810e16cc32093.jpg)图片来源：The Australian
-**整理报道：**翼族
+作者：香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+路透华盛顿9月20日 – 美国证券交易委员会(SEC)周一向寻求投资在美国上市中（共）国企业的人士发出最新警告。
 
-周二，墨尔本，建筑工人反抗维多利亚州政府强制接种疫苗的抗议正在升级。抗议者们封锁了交通，当抗议者人数增至约2000人时，警方发射了橡胶子弹、烟雾弹、泡沫弹和胡椒弹。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-291.png)图片来源 ：google 
 
-上个周末，州长丹尼尔·安德鲁斯下令关闭墨尔本的公共交通以阻挠抗议封城和强制接种疫苗的人群。警察用胡椒喷雾袭击记者。一名不戴口罩的警察将一名老年妇女推倒在地，并用胡椒喷雾近距离喷她的脸。
+在对投资者的警告中，SEC详细说明了将资金投入与中（共）国实体有合同，但没有控制权的美国上市企业的潜在风险，这种公司结构被称作可变利益实体(VIE)。这是SEC为消除人们对中（共）国企业绕过规则进入美国市场的担忧而采取的最新举措。SEC警告投资者，他们会面临如下风险，即如果北京方面认定这些上市企业违反了中（共）国法律，在执行任何合同时可能受到中（共）国司法管辖，还可能受到实体所有者和美国股东之间利益冲突的影响。
 
-周一，数千名建筑工人聚集在“澳大利亚建筑/林业/海运/采矿和能源联盟”（CFMEU）墨尔本总部大楼外，抗议工会未能保护其成员免受维州工党政府强制接种疫苗的规定。随后CFMEU发表官方声明，将抗议者归咎为“极右翼纳粹暴徒”。而当天的视频片段显示，绝大多数采取暴力的反而是工会的工作人员。
+早前，SEC主席Gary Gensler 在华尔街日报发表文章，依据美国国会去年通过的《外国公司问责法》，如果在美上市的中共国企业，拒绝遵守美国审计法规，SEC将在2024年开始强制270家中概股下市。SEC预计明年初会公布相关企业名单。
 
-根据维州政府的规定，从这周开始，任何没有开始接种疫苗的建筑工人将失去工作。愤怒的建筑工人们抗议工会没有尽责维护工人的权益，他们支付工会费用的目的是保护自己的利益，但是工党政府的健康强制令正在威胁他们的生计。工会主席约翰·赛特卡（John Setka)辩称，他从未支持工会成员强制接种疫苗。
+去年美国国会通过《外国公司问责法》，以此作为《萨班斯-奥克斯里法案》补充。依据《外国公司问责法》，如果外国政府连续三年禁止PCAOB（上市公司会计监督委员会）查核该国企业的审计公司，将禁止该上市公司在美国市场交易。三年期限是从2021年开始。而今年的6月，美国参议院通过《加速外国公司问责法》，一旦获得正式颁布，3年的期限将会缩短为2年。
 
-抗议的建筑工人们将赛特卡称为“叛徒”和“渣滓”，因为他允许其他人越过纠察线并抢走他们的工作，而不是为所有工人的权利挺身而出。CFMEU对建筑工人是“极右翼纳粹分子”的离奇指控，进一步激怒了建筑工人，他们发誓每天都在CFMEU墨尔本总部进行抗议，直到赛特卡对维州政府的卫生强制令采取措施。
+由此可见，无论是美国的法律制定者，还是华尔街的监督管理机构，对中共政府透过中概股恶意圈钱的本质有了清醒的认识，并且不断加强对中概股的监管，以保护美国资产以及美国投资者的利益，拒绝让华尔街成为中共的韭菜地。将恶意圈钱的中概股赶出美国投资市场，与中共国的金融脱钩，已经开始进入倒计时。
 
-周三，建筑工人们的抗议活动还在持续。航拍画面显示，警察朝抗议者的方向投掷弹丸，并带走了挡在他们路上的两名妇女。
+参考链接：[美国证券交易委员会再次就投资在美上市中国企业发出警告](https://cn.reuters.com/article/us-sec-warning-chinese-firms-0921-idCNKBS2GH02V)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+**本文仅代表作者观点**
 
-参考链接：[CFMEU accuses its own MEMBERS of being ‘far-right Nazis’](https://www.rebelnews.com/cfmeu_accuses_its_own_members_of_being_far_right_nazis)
-[Melbourne protests LIVE: Daniel Andrews condemns demonstrations as police brace for more violence](https://www.theage.com.au/national/victoria/melbourne-protests-live-police-braced-for-more-violence-as-rioters-set-to-swarm-city-streets-again-20210922-p58tou.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-*编辑/发布：翼族*
+**校对/发稿：童谣**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

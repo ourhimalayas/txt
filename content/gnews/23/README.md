@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 新中国联邦战友共度中秋
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1546906/)
+## 视频| GTV新闻访谈节目组祝战友们中秋快乐
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1546910/)
 
 制作：香草山视频部
 
