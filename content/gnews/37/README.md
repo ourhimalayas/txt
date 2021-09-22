@@ -2,22 +2,18 @@
 ---
 
 
-## 自食其果&#8211;加拿大与塔利班称兄道弟的自由党部长落选！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1546222/)
+## 雅典娜时报-第059期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1546819/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/08/meng-edited.jpg)
-图为加拿大自由党内阁部长玛丽安.蒙塞夫
-图片来源:TRUENORTH
+#### **《雅典娜时报》汇聚全球新闻时事**
 
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-6.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/3-12.png)
+***发布：小红帽***
 
-加拿大知名自媒体《Thepostmillennial》9月21日刊登新闻指出，曾在不久前一次媒体新闻发布会上公然与早已被西方盟国定义为恐怖暴力组织的塔利班“称兄道弟”的加拿大自由党内阁部长，阿富汗族裔的玛丽安-蒙塞夫，在本次加拿大全国选举中毫无意外地落选而失去其在彼得堡-卡瓦塔地区的议会议席。
-
-自从8月25日该特鲁多自由党内阁部长在其社交媒体声称入侵阿富汗首都喀布尔，并非法武力夺取该国政权的恐怖组织塔利班为“我们的兄弟”之后，蒙塞夫便遭受到来自加拿大朝野各界的猛烈抨击。本媒主编马尔科姆当时曾愤慨表示，该内阁部长此番令公众“瞠目结舌”的表态是所有加拿大政治家中所说过的最愚蠢言论。其表述不仅是可耻，无知和邪恶的，更是对所有加拿大人，特别是对阿富汗所有被塔利班蹂躏妇女的一记侮辱性耳光。
-
-截至9月20日晚上11点，保守党候选人米歇尔-费雷里已拥有9088张地区选票，而蒙塞夫仅获得了7081张。因此，如果一切正常的情况下，该保守党候选人将难出意料地击败备受公众指责，且始终拒绝为其谬误言论公开道歉的自由党内阁部长玛丽安-蒙塞夫。
-
-（以上内容仅代表原文信息和作者个人观点。）
-
-[原文链接：](https://thepostmillennial.com/breaking-liberal-minister-who-called-taliban-her-brothers-loses-seat-in-kawartha)
-
-[相关链接：](https://gnews.org/zh-hans/1493215/)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,34 +2,54 @@
 ---
 
 
-## 墨尔本建筑工人持续的抗议活动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1546931/)
+## 美国港口积压的货船达到创纪录水平
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1546949/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0b0e9ea1dbe8f187332810e16cc32093.jpg)图片来源：The Australian
-**整理报道：**翼族
+翻译：香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+大量积压的货船被堵在美国两个最大的港口外，这是美国供应链受到破坏的最新迹象。
 
-周二，墨尔本，建筑工人反抗维多利亚州政府强制接种疫苗的抗议正在升级。抗议者们封锁了交通，当抗议者人数增至约2000人时，警方发射了橡胶子弹、烟雾弹、泡沫弹和胡椒弹。
+周一，约有65艘集装箱船在加州洛杉矶港和长滩港外排队，经由这两个港口处理的货柜，几乎占进入美国货柜总量的一半。
 
-上个周末，州长丹尼尔·安德鲁斯下令关闭墨尔本的公共交通以阻挠抗议封城和强制接种疫苗的人群。警察用胡椒喷雾袭击记者。一名不戴口罩的警察将一名老年妇女推倒在地，并用胡椒喷雾近距离喷她的脸。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-290.png)图片来源 : Mario Tama 
 
-周一，数千名建筑工人聚集在“澳大利亚建筑/林业/海运/采矿和能源联盟”（CFMEU）墨尔本总部大楼外，抗议工会未能保护其成员免受维州工党政府强制接种疫苗的规定。随后CFMEU发表官方声明，将抗议者归咎为“极右翼纳粹暴徒”。而当天的视频片段显示，绝大多数采取暴力的反而是工会的工作人员。
+在Covid之前，超过一艘等待泊位的情况并不常见。造成货轮严重堵塞的情况，原因如下：
 
-根据维州政府的规定，从这周开始，任何没有开始接种疫苗的建筑工人将失去工作。愤怒的建筑工人们抗议工会没有尽责维护工人的权益，他们支付工会费用的目的是保护自己的利益，但是工党政府的健康强制令正在威胁他们的生计。工会主席约翰·赛特卡（John Setka)辩称，他从未支持工会成员强制接种疫苗。
+1、这与美国经济重新开放后激增的进口需求有关。
 
-抗议的建筑工人们将赛特卡称为“叛徒”和“渣滓”，因为他允许其他人越过纠察线并抢走他们的工作，而不是为所有工人的权利挺身而出。CFMEU对建筑工人是“极右翼纳粹分子”的离奇指控，进一步激怒了建筑工人，他们发誓每天都在CFMEU墨尔本总部进行抗议，直到赛特卡对维州政府的卫生强制令采取措施。
+2、美国的零售商和制造商急于下订单和补充库存，但全球航运系统却没有跟上步伐。
 
-周三，建筑工人们的抗议活动还在持续。航拍画面显示，警察朝抗议者的方向投掷弹丸，并带走了挡在他们路上的两名妇女。
+3、再加上Covid的中断，造成了从儿童玩具和木材到新衣服和宠物食品的短缺。它也推高了消费者价格。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+洛杉矶和长滩是美国的主要海运门户，特别是对来自中国的进口产品而言。一些货船已经因为积压而改道，但附近的港口如奥克兰没有能力处理贸易量。
 
-参考链接：[CFMEU accuses its own MEMBERS of being ‘far-right Nazis’](https://www.rebelnews.com/cfmeu_accuses_its_own_members_of_being_far_right_nazis)
-[Melbourne protests LIVE: Daniel Andrews condemns demonstrations as police brace for more violence](https://www.theage.com.au/national/victoria/melbourne-protests-live-police-braced-for-more-violence-as-rioters-set-to-swarm-city-streets-again-20210922-p58tou.html)
+航运的堵塞可能持续到圣诞节。洛杉矶港的负责人吉恩-塞罗卡上周警告说，”今年全年和2022年将有大量的“贸易往我们这里走”。他补充说：“我们继续监测一系列的变量，供应链中的每一个环节都在继续中断”。与2020年全年相比，今年到目前为止，洛杉矶港的货运量增长了30%。而在周六，有73艘船被困在港口外，这几乎是上个月的两倍。
 
-*编辑/发布：翼族*
+加利福尼亚州的港口现在已经同意扩大卡车可以提取和归还集装箱的时间，以试图缓解积压的情况。他们还在与白宫供应链中断工作组合作，该工作组于6月成立，试图缓解贸易瓶颈。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美国其他港口也出现了创纪录的航运拥堵，而美国第二大港口，并且也是最繁忙的入境点 — 纽约 — 表示它正面临着港口以外的过境问题。“目前的拥堵与从港口运出的货物有关，如卡车和货运铁路，由于创纪录的高货运量”，女发言人阿曼达-关告诉BBC。
+
+上个月，美国各地的港口老板告诉《华尔街日报》，他们认为瓶颈问题会持续到2022年夏天。
+
+大约70%的美国国际贸易是通过美国的港口水路运输的。可见美国市场供应链短缺将会持续到明年。
+
+参考链接：[Record backlog of cargo ships at California ports](https://www.bbc.com/news/business-58643717)
+
+**本文仅代表作者观点**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

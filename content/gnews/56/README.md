@@ -2,19 +2,49 @@
 ---
 
 
-## 秘翻在线：一个德国普通前线疫苗接种医生的心声
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1546502/)
+## 能源价格暴涨可能削弱欧洲经济
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1546516/)
 
-翻译：Nstar
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-22-015023.jpg)
-吉多·霍夫曼（Guido Hofmann） 是一名德国疫苗接种医生、妇科专家和全科急诊医生，最近在一个采访中他勇敢地发表了自己对病毒的看法：
+作者：纽约香草山农场 – 四季
 
-“ 作为一名医生、一名疫苗接种员以及一个一生都在治疗上呼吸道感染患者的人，我真的可以总结一下：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-我只能一遍又一遍地说，很不幸, 这里发生的一切与病毒无关。这是在世界范围内实行的独裁。…在过去的几个月里，我花了 1,500 个小时在探索与思考，因为我知道这不是医学。我一直不清楚它到底是关于什么的，但这些事情如此相互交织…我们… 所发生的事情太令人难以置信了，他们都在玩命达到(强制性的疫苗接种)目标。如果…如果你仍然不相信我们有独裁统治，那你能用更合适的方式解释它吗? 它当然就像温水煮青蛙，伪装的，  一步一步的计划…
 
-但是人们现在只反对完全不相称的措施，而事实上人们的基本权利 —— 这正是我们的开国元勋们写进法律的内容, 现在正在被剥夺。许多人仍然不会注意到，还说：那能怎么办? 有什么意义？
 
-我只能说：勇气，愤怒和宽容的爱心，这就是我们需要团结的原因。它绝对与病毒没有任何关系。”
 
-[新闻来源](https://freespirit-tv.ch/ein-impf-arzt-spricht-klartext-dr-med-guido-hofmann/)
+
+据[零对冲](https://www.zerohedge.com/economics/skyrocketing-energy-prices-could-cripple-europes-economy)9月20日报道，欧洲的能源价格飙升所伤害的不仅仅是消费者,它已经开始打击工业活动，并有可能对欧洲经济的复苏造成打击，造成消费者购买力下降、工业生产下降和运营成本上升的三重打击。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1016-1-2021-09-17_atbuxf2vsz.jpg)
+
+欧洲大陆的天然气基准价格和最大经济体的电力价格，都达到了历史最高水平。几乎每天，欧洲的天然气和电力价格激增到新的记录，消费者抗议飙升的电费给政府带来了压力。
+
+在创纪录的能源价格中挣扎的不仅仅是消费者。工业界也开始感受到热度。
+
+涉及英国，德国，挪威，法国等经营化学品，采矿业到食品行业的欧洲巨头公司表示，天价的天然气和电力价格正在打击他们的利润率，并迫使其中一些公司削减业务。
+
+欧洲工业面临的所有这些不利因素可能只是一个开始。 特别是如果欧洲和亚洲即将到来的冬季比往年更冷，将推动对天然气和电力的进一步需求。高盛公司本周警告说，欧洲的工业在寒冷的冬天面临着停电的风险。
+
+欧洲的公用事业和工业部门，可能还有政府，都希望将有一个温和多风的冬天，否则，天然气供应紧张可能会持续到2022年第一季度末。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
