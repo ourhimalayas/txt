@@ -67,23 +67,23 @@
 ### [广告禁令，槟榔产业迎“整顿”？](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [皮特·纳瓦罗先生对中国人的支持](/content/gnews/19/README.md)
+### [班农：我们必须要求中共国赔偿](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [打台湾极大可能开启人类现代科技最极限的战争](/content/gnews/20/README.md)
+### [皮特·纳瓦罗先生对中国人的支持](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频| 真相工程 &#8211; 暗访药监局小喽啰](/content/gnews/21/README.md)
+### [打台湾极大可能开启人类现代科技最极限的战争](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [视频| 真相工程 &#8211; 暗访药监局小喽啰](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [雷曼兄弟的所有公司情况被某个组织掌握了几年](/content/gnews/22/README.md)
+### [雷曼兄弟的所有公司情况被某个组织掌握了几年](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [人类进入最黑暗时刻，各国政府与人民为敌](/content/gnews/23/README.md)
+### [人类进入最黑暗时刻，各国政府与人民为敌](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|万般辛苦唯有自赎](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
