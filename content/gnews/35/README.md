@@ -2,27 +2,31 @@
 ---
 
 
-## 一夜暴富梦灭！亚马逊千名中国卖家再遭血洗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1549060/)
+## 墨尔本：护士和教师计划加入抗议活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1549082/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210720_16268036621139.jpg)一夜暴富梦灭！亚马逊千名中国卖家再遭血洗 网络图片
-据电商报9月22日报道，最近在无数个亚马逊卖家交流群里，有大量卖家反映，自己没有收到任何提醒邮件或者是“刷单”的警告邮件，后台直接显示违规信息，然后商品就被强制冻结下架，直接封杀停售了。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/06ee51f28853e491722f0fccc8e5decd.jpg)图片来源：The Australian
+**整理报道：**翼族
 
-面对这种情况，不少卖家立即向平台申诉。然而，这样的“申冤信”并没有奏效，亚马逊官方团队直接告知卖家坐实了大量违规评论的滥用，因而有权将相关商品从店铺中永久移除。
+墨尔本人对昨天警察在神圣的战争纪念神殿的暴力镇压感到厌恶，建筑工会发誓要将抗议进行到底。墨尔本今天将迎来连续第四天的示威活动，社交媒体网站Telegram上的聊天群确认了今天将举行更多的示威活动。尽管警察越来越多，但抗议活动的组织者承诺不会被吓跑。
 
-一般电商平台通过大数据算法实现“货找人”，卖家会请人假扮顾客刷单消费，制造销量高、评价好的假象。为了利益，无数人趋之若鹜。久而久之，“刷单找死，不刷等死”成了电商人默认的潜规则。从前，卖家坦白后能得到解封。但现在，从“夺命邮件”到“申诉必死”，都在宣告：对于恶意竞争，亚马逊绝不放过一个。
+有人在网络聊天中自称是护士和教师，他们表示今天将加入该群组，并称他们在鼓励同事也这样做。其中一位说：“一些护士会穿着工作服出现。”
 
-虚假好评、恶意刷单、商品侵权……伴随着一次又一次大张旗鼓的整治，亚马逊的“封号黑名单”越来越长，从大卖场到小商家，无人幸免于难。营收暴跌，资金链断裂，大面积裁员…… **但事实上，看似惨烈结局的背后，一切都有迹可循：**除了屡见不鲜的刷单、控评等行为，寄生在跨境电商行业中的“蛀虫”还有很多。例如，一些服务商违规倒卖账号。还有一些卖家利用“镜像评论”等黑科技赚快钱。这里所提到的“镜像评论”，指的是通过黑科技把其他店铺中商品页面的评论，原封不动地复制到自己店铺商品的评论区。换言之，真正把卖家逼上绝路的，不是亚马逊的重锤，而是一次又一次的“置若罔闻”。
+该小组注意到，穿着的橙色建筑工作服的抗议者正在被媒体“诋毁”，于是抗议者将身着更“精致”的衣服，一位人士称：“每个人都开始穿着西装、衬衫/领带、正装鞋，这样看起来很智慧，也很老练。”
 
-在一个良性循环的市场中，大家都守规矩，不存在大面积的恶意竞争。卖家自以为依靠耍一点“小聪明”就超过甚至打击竞争对手，不诚信不守规矩的代价就是自己有一天也成为韭菜。
+另一位补充道：“他们会看到，有多少不同的行业站出来。”
 
-新闻参考链接：[https://c.m.163.com/news/a/GKG7CT310514CA4V.html?spss=newsapp](https://c.m.163.com/news/a/GKG7CT310514CA4V.html?spss=newsapp)
+在整个昨天的抗议中，人群自发地高呼“每一天”，以表示他们将继续抗议，直到他们的要求得到满足。其中一个要求是取消维多利亚州政府对建筑业工人强制性接种疫苗的规定，以及取消强行关闭建筑行业两周的命令。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+（文章内容仅代表作者个人观点，与GNEW无关）
 
+**参考链接：**[Australia Covid news live: Victoria records worst day with 766 cases four deaths](https://www.news.com.au/world/coronavirus/australia/australia-covid-news-live-nsws-reopening-day-coming-sooner-than-expected/news-story/24bb4c4dfdfd7b397b076f27fc716881)
 
-编辑：【英国伦敦喜庄园编辑部】
+*编辑/发布：翼族*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,22 +2,28 @@
 ---
 
 
-## 哈佛大学：歧视性疫苗护照是反科学的无稽之谈！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1548842/)
+## 菅义伟：中共国军力提升威胁到日本的和平与繁荣
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1549061/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/passport-edited.png)图片来源：thepostmillennial
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16323644221-1.png)
+据美国之音9月22日报道，日本首相菅义伟9月22日发出警告称，中共国提升军力和单方面改变现状，威胁到日本的和平与繁荣。
+
+菅义伟是在美国、澳大利亚、印度和日本举行“四方峰会”前发出的警告。这4个民主国家走到一起是为了应对中共国在亚太地区的影响力和扩张军力。他认为日本应当强化美日联盟，并提高日本的防御能力。
+
+中共国在亚太地区的动作和咄咄逼人的态势令周边国家都处在紧张中，各国不得不加强自身的防御建设以及与其他国家的联盟。
+
+新闻参考链接：[https://www.voachinese.com/amp/Chinese-Military-Rise-Threatens-Japan-20210922/6241307.html#click=https://t.co/XzsuhXHJbj](https://www.voachinese.com/amp/Chinese-Military-Rise-Threatens-Japan-20210922/6241307.html#click=https://t.co/XzsuhXHJbj)
+
+编辑：胖丁
+PR：
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-加拿大知名自媒体《Thepostmillennial》9月22日刊登文章说，根据《科学》杂志最近有关对COVID19疫苗的研究报道表明：“人体在感染SARS-CoV-2后形成的自身免疫力比接种了两剂辉瑞生物技术公司的疫苗对大流行性冠状病毒三角洲变体所提供的保护力更强。” 此项8月份就在以色列发表的医学研究结果，无疑将极大削弱目前那些必须使用疫苗护照的国家对该疫苗的迫切需求。
+编辑：【英国伦敦喜庄园编辑部】
 
-该杂志还继续指出：“新发布的研究数据显示，曾经感染过SARS-CoV-2的人比那些从未感染过该病毒或接种过该病毒疫苗的人更不可能感染变种的Delta病毒，也更少出现各种患病症状，或更不易因感染该病毒导致重症而必须住院治疗。”
-
-在世界各地要求提供疫苗接种证明以进行日常生活的趋势日益增长之后，哈佛大学医学院教授马丁-库尔多夫说，该研究结果意味着疫苗护照既不科学，也是 “歧视性的”，因为许多人目前还没有接种COVID19疫苗。为此该哈佛大学的生物统计学家和流行病学家在其推特上强调：“先前已感染过COVID19疾病而最后康复的人对该病毒的免疫力比疫苗本身提供的要更强，所以各国政府所实施的疫苗强制规定不仅是科学上的无稽之谈，也是歧视性和不道德的！”
-
-同时，著名的经济教育基金会对此也宣称：“还有，美国疾病控制与预防中心（CDC）的最新研究表明，已经接种过COVID19疫苗的人仍然会感染该病毒，在这些感染者的喉咙和鼻腔中所携带的病毒数量与未接种疫苗的人几乎同样多。”
-
-此外，CDC在罗谢尔地区主任Walensky在科德角爆发了主要是接种疫苗者的疫情后指出：“已接种疫苗者的高病毒载量表明其传播风险的巨大增加，而与其他变种病毒不同的是，感染了德尔塔（Delta）的疫苗接种者仍然可以传播该病毒。”
-
-（以上内容仅代表原文信息和作者个人观点）
-
-[原文链接：](https://thepostmillennial.com/israeli-medical-study-vaccine-passports)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
