@@ -2,31 +2,33 @@
 ---
 
 
-## 两党议员推动立法 解体大科技公司
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549625/)
+## 恐公民数据流向中共，波兰将弃用华大基因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549752/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：修文
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-2-3.png)图片来源：东亚研究中心
-9月22日，《新闻极限》（Newxmax）记者查理·麦卡锡（Charlie McCarthy）报道了两党议员正在推动解体大科技公司，如脸书（Facebook）、苹果（Apple）和谷歌(Google)的立法一事。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-众所周知，上周，面临俄罗斯政府的压力，谷歌和苹果在各自的系统应用商店删除了俄罗斯反对派领导人阿列克谢·纳瓦尔尼（Alexei Navalny）的盟友创建的一个投票应用程序。
 
-面对两党议员正在推动监管和拆分大科技公司的反托拉斯法案，这些大科技公司的领导人说这将对国家安全造成影响。
 
-对此，一名为参议员汤姆·科顿（Tom Cotton）工作的立法工作人员告诉《华盛顿观察家报》(Washington *Examiner*)说，“大科技公司与中共国和俄罗斯同流合污，他们代表中共国进行游说。”他举例说，去年，苹果公司游说反对对中共国维吾尔人进行种族灭绝的制裁，而谷歌为中共国创建了用于审查的搜索引擎。“因此，他们说（监管和拆分这些公司）可能构成国家安全风险，这纯粹是胡说八道。所有这些只不过是他们使用的一个伎俩，试图说服共和党人不要打击他们的垄断行为。”
+自由时报9月23日消息，波兰正在进行一项波兰人基因图谱计划，因外包的第三方采用中共国“华大基因”公司的定序技术。目前波兰政府担心本国公民基因资料被泄露，计划取消该合约。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.50.43-PM.png)
+此前波兰科学院人类基因委员会曾暗指华大基因不遵守基因检测伦理，但约十万份完整的波兰基因组可能已经流入华大基因。美国人工智慧国家安全委员会的报告，也指华大基因扮演中共国政府”全球基因资料库”的收集角色。
 
-报道说，上周，来自多届政府和两党的前情报界高官致信国会领导人，反对众议院的反托拉斯法案（antitrust bills（反垄断法案）），其中就包括前国防部长莱昂·帕内塔（Leon Panetta）和前国家情报总监丹·科茨（Dan Coats）。这些官员在信中写道：“推行的立法有可能破坏美国公司相对于中共国的关键优势及其创新的能力。”
+作为中共采集全球人类基因信息样本的前哨站，华大基因已多次被世界各国发现其采集、窃取基因信息的行为，并质疑其为中共军方背景。中共国军事理论专家曾公开著书立说,鼓吹针对人类基因的生物战争时刻都在准备中。只不过中共不是受害者，反而正是这种基因战争的发起者，新冠病毒和疫苗正是释放他们的基因武器!
+(本文仅代表作者观点)
 
-对此，科顿的工作人员指出，一些前情报官员与这些大科技公司是有（利益）关联的。他说：“我认为，他们不过是花钱请人提出这样的论点，这样就不用自己亲自出面了。这封信是由那些大科技公司资助的人和盟友们写的。所以，我不认为任何国会议员会认真对待这封信。任何倾向于解体大科技公司的人（议员）都不会被莱昂·帕内塔的这个论点说服。”
+参考链接：[防數據流入解放軍 波蘭棄用華大基因](https://news.ltn.com.tw/news/world/paper/1474441)
 
-针对大科技公司反对反托拉斯法案的论点，民主党人也表达了观点，认为这是欺骗性的说法。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-文章说，一位资深的民主党工作人员告诉《华盛顿观察家报》，“这是有记载以来最为古老的技俩之一，将竞争和国家安全问题进行混淆。这些公司多年以来一直在重复同样的话。”
+终审：文龙
+校正/发稿：我不在这里
 
-这位民主党人士反驳说：“如果说我们的市场被垄断了，然后（实行反托拉斯法案）会对创新和国家安全不利。问题是，如果你不能在美国本土竞争，又有何能力与中共国竞争？”。
-
-文章透露，汤姆·科顿议员将是（拆分大科技公司）相关立法的主要提案人。
-
-新闻来源：[Big Tech Appeasing China, Russia Hurts Argument Against Potential Break-Up](https://www.newsmax.com/newsfront/bigtech-break-up-antitrust-china/2021/09/22/id/1037492/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
