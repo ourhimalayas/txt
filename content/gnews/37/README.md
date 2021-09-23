@@ -2,49 +2,31 @@
 ---
 
 
-## 香港新闻自由的最后堡垒被攻击
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1549013/)
+## 墨尔本：护士和教师计划加入抗议活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1549082/)
 
-作者：纽约香草山农场 – 文不破
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/06ee51f28853e491722f0fccc8e5decd.jpg)图片来源：The Australian
+**整理报道：**翼族
 
+墨尔本人对昨天警察在神圣的战争纪念神殿的暴力镇压感到厌恶，建筑工会发誓要将抗议进行到底。墨尔本今天将迎来连续第四天的示威活动，社交媒体网站Telegram上的聊天群确认了今天将举行更多的示威活动。尽管警察越来越多，但抗议活动的组织者承诺不会被吓跑。
 
+有人在网络聊天中自称是护士和教师，他们表示今天将加入该群组，并称他们在鼓励同事也这样做。其中一位说：“一些护士会穿着工作服出现。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+该小组注意到，穿着的橙色建筑工作服的抗议者正在被媒体“诋毁”，于是抗议者将身着更“精致”的衣服，一位人士称：“每个人都开始穿着西装、衬衫/领带、正装鞋，这样看起来很智慧，也很老练。”
 
+另一位补充道：“他们会看到，有多少不同的行业站出来。”
 
+在整个昨天的抗议中，人群自发地高呼“每一天”，以表示他们将继续抗议，直到他们的要求得到满足。其中一个要求是取消维多利亚州政府对建筑业工人强制性接种疫苗的规定，以及取消强行关闭建筑行业两周的命令。
 
-9月18日，港府针对香港记者协会展开了一系列的攻击：警务处处长萧泽颐先是指责香港记协拉拢“学生记者”入会，再者他认为香港记协对持不同意见的新闻“选择性失聪”，最后他声称香港记协以政治凌驾于专业之上，以此三条“罪状”向香港记者协会问责。
+（文章内容仅代表作者个人观点，与GNEW无关）
 
-![](https://gdb.voanews.com/1482DEFF-85D2-4CCD-AE19-716845E206F7_w1023_r1_s.png)图片来源：香港记者协会脸书
+**参考链接：**[Australia Covid news live: Victoria records worst day with 766 cases four deaths](https://www.news.com.au/world/coronavirus/australia/australia-covid-news-live-nsws-reopening-day-coming-sooner-than-expected/news-story/24bb4c4dfdfd7b397b076f27fc716881)
 
-对此，香港记者协会虽然进行了回应与辩白，但仍无济于事。事实上，早在9月15日，港府保安局局长邓炳强就要求记协在“撇除个人资料”下公布其会员名单，以“释除疑虑”——但这不过是警方妄图控制记协的变相要求。
+*编辑/发布：翼族*
 
-此前，自港版国安法推行以来，全港泛民主派社会团体一片哀鸿，纷纷被迫解散或取消。早先，不仅支联会被控“煽颠”罪，连享有盛誉的香港教育专业人员协会也未幸免。而今，在香港，恶法的倒行逆施导致泛民阵营寸草不生，传媒和言论自由的边界不断被压缩，港人早已无退守的可能。
-
-众所周知，言论自由和新闻自由事关人最基本的安全和尊严，是公民最基础的权利。如今，港府对自由的屠刀一旦落下，这座以人权、法治、专业、高效著称的港口将彻底沦陷。我们唯有积极行动，才能挽救香港于水火。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[港府国安法屠刀砍向新闻自由最后堡垒香港记者协会](https://www.voachinese.com/a/HK-police-chief-targeting-journalist-association-20210918/6233985.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

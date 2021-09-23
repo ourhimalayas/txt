@@ -2,27 +2,15 @@
 ---
 
 
-## 关于病毒真相，我在日媒看到了真相的开篇！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1549230/)
+## 2021年9月21日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1549397/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/wer.png)
-（图片源自本文链接）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-9月23日，日本雅虎网站发表了英国媒体的报道。该报道称武汉的科学家们制定了制造冠状病毒的高感染性变异体的计划。
+9/21/2021 文贵直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害！某知名医生说爆料革命、新中国联邦人对世界的贡献将像圣经一样在全世界流传！辉瑞等大药厂对文贵的攻击让这位医生开始真正相信文贵
 
-在中共病毒感染爆发之前，中共国科学家就计划制造一种高传染性的病毒变异体，并向川普执政时的一个机构申请了研究经费。英国《每日电讯报》21日（当地时间）这份报道的内容，援引于调查中共病毒起源的全球科学家团队Drastic发布的一份文件。
+9/21/2021 Miles Guo: The vaccines against the CCP virus will cause the biggest harm in history to humans who produce sexually! A prominent doctor said that the stories about what the Whistleblowers’ Movement and the people of the New Federal State of China have contributed to mankind will be passed on in the world just like the Bible! Pfizer and other Big Pharma’s attacks on me made this doctor start to really trust me.
 
-根据这份报道，武汉实验室的科学家们是在18个月之前，也就是说中共病毒爆发之前，就做了利用蝙蝠冠状病毒新的，含有”嵌合穗蛋白”的，可穿透皮肤的纳米粒子，使云南山洞里的蝙蝠感染的计划。这些科学家们还计划制造一种基因增强的嵌合病毒，使其更容易感染人类。然后，向美国国防部的国防高级研究计划局（DARPA）申请了1400万美元，以支持他们的研究。据报道，这样的提案，是由与武汉实验室关系密切的生态健康联盟负责人彼得-达扎克提交的。据说，该研究小组还包括被称为 “蝙蝠女 “的石正丽博士。
+[【2021年9月21日】文贵先生盖特原文](https://gettr.com/post/pbswzha597)
 
-然而，DARPA拒绝了资助这项研究，理由是 “很明显，这项研究提案将使社会处于危险之中”。
-
-[信息源](https://news.yahoo.co.jp/articles/61266e18bef6555cb1237cfd7d9e4ebcdd973a96)
-
-这份报道的题目，令笔者看到了希望。而这份报道的结尾，又令笔者感到了失望。很简单，就因为笔者有幸很早就跟随爆料革命的脚步，及时的听到、看到很多病毒、疫苗，以及黑暗势力的相关真相。黑暗势力使媒体不作为，媒体不作为导致世界更黑暗。原本理所当然的看真相、听真相，如今变成了奢侈、变成了幸运的事。但是，正义必将战胜邪恶，有了正义的开篇，也必将迎来正义的结尾！请大家记住这篇报道，跟踪其最终结果。
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 知了知了*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**喜联盟Gnews编辑部**

@@ -28,13 +28,13 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年9月21日 文贵先生盖特 5](/content/gnews/6/README.md)
+### [2021年9月22日 文贵先生盖特 3](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月21日 文贵先生盖特 4](/content/gnews/7/README.md)
+### [2021年9月22日 文贵先生盖特 2](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月21日 文贵先生盖特 3](/content/gnews/8/README.md)
+### [2021年9月22日 文贵先生盖特 1](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
 ### [一切都在悄悄变化中](/content/gnews/9/README.md)
@@ -43,46 +43,46 @@
 ### [秘翻在线：东京医师会会长谈伊维菌素可以治疗中共病毒的理由!](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《柳叶刀》转向，开始呼吁对病毒起源进行透明辩论](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [众多女性在接种疫苗后出现月经紊乱](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [每日快报：恒大的模糊备案凸显中国债券市场风险](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [马里科帕郡通话录音遭泄露的监事今宣布辞职](/content/gnews/13/README.md)
+### [《柳叶刀》转向，开始呼吁对病毒起源进行透明辩论](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [马里科帕郡通话录音遭泄露的监事今宣布辞职](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [卡尔森揭美陆军PPT包含“撒旦教七信条”](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [2021/09/23 墙内世界](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疑恒大金服内部会议录音透露了最新兑付方案](/content/gnews/15/README.md)
+### [疑恒大金服内部会议录音透露了最新兑付方案](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [这是疫苗副作用吗？无数起人们昏厥倒地的事故](/content/gnews/16/README.md)
+### [这是疫苗副作用吗？无数起人们昏厥倒地的事故](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/17/README.md)
+### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [恒大欠我800万，你不抓他你抓我？](/content/gnews/18/README.md)
- ` 银河勇气之星`
-
-### [美英澳三国共同宣布在印太地区建立新的三边防务联盟](/content/gnews/19/README.md)
+### [墨尔本反疫苗和反封城抗议游行受到警方镇压](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大孩子们被免费冰淇淋诱骗到临时诊所接种疫苗](/content/gnews/20/README.md)
+### [新南威尔士州郊区原住民社区居民被强迫接种中共疫苗](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [妮琪·米娜：只有我自己做了充分研究后，才会接种疫苗](/content/gnews/21/README.md)
+### [美英澳三国共同宣布在印太地区建立新的三边防务联盟](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [以色列是辉瑞的疫苗实验室](/content/gnews/22/README.md)
+### [加拿大孩子们被免费冰淇淋诱骗到临时诊所接种疫苗](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众多女性在接种疫苗后出现月经紊乱](/content/gnews/23/README.md)
+### [妮琪·米娜：只有我自己做了充分研究后，才会接种疫苗](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [川普从未打算过对中共国发动军事袭击](/content/gnews/24/README.md)
+### [以色列是辉瑞的疫苗实验室](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [职业介绍平台现商铺接种助理招聘启事](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [张嘉译闫妮全运会唱红歌遭批 唱社会主义好却未能讨好](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德语媒体：妄想左右逢源的欧洲咎由自取](/content/gnews/31/README.md)
+### [银河快讯：美日印澳四方峰会考虑5G与生物技术合作；反对改变钓鱼岛现状](/content/gnews/31/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [德语媒体：妄想左右逢源的欧洲咎由自取](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：想通过HDO继续投资的，截止日期是10月10日](/content/gnews/32/README.md)
+### [币圈新闻动态：想通过HDO继续投资的，截止日期是10月10日](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维州高院驳回警方对莫妮卡·斯密特严苛保释条件](/content/gnews/33/README.md)
+### [维州高院驳回警方对莫妮卡·斯密特严苛保释条件](/content/gnews/34/README.md)
  ` 走进澳洲`
 
-### [墨尔本封城时间破记录，反封锁抗议越趋激烈](/content/gnews/34/README.md)
+### [墨尔本封城时间破记录，反封锁抗议越趋激烈](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [菅义伟警告称中共军力的提升威胁到日本的和平与繁荣](/content/gnews/35/README.md)
+### [菅义伟警告称中共军力的提升威胁到日本的和平与繁荣](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墨尔本：护士和教师计划加入抗议活动](/content/gnews/36/README.md)
+### [墨尔本：护士和教师计划加入抗议活动](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港新闻自由的最后堡垒被攻击](/content/gnews/37/README.md)
+### [香港新闻自由的最后堡垒被攻击](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [一夜暴富梦灭！亚马逊千名中国卖家再遭血洗](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [在港上市内地银行股跌幅扩大](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [恒大涨了，大家都很开心的样子](/content/gnews/47/README.md)
+### [亚马逊向接受疫苗接种的仓库和零售工人发汽车和现金](/content/gnews/47/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年9月21日 文贵先生盖特 6](/content/gnews/48/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月21日 文贵先生盖特 5](/content/gnews/49/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月21日 文贵先生盖特 4](/content/gnews/50/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月21日 文贵先生盖特 3](/content/gnews/51/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [恒大涨了，大家都很开心的样子](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印度当局希望阻止中资参与当地最大保险商LIC的IPO](/content/gnews/48/README.md)
+### [印度当局希望阻止中资参与当地最大保险商LIC的IPO](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [港共国安法下 声援大陆维权律师的在港关注组宣部本月解散](/content/gnews/49/README.md)
+### [港共国安法下 声援大陆维权律师的在港关注组宣部本月解散](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [关于病毒真相，我在日媒看到了真相的开篇！](/content/gnews/50/README.md)
+### [关于病毒真相，我在日媒看到了真相的开篇！](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [恒大负债1.97万亿元，是个什么概念？](/content/gnews/51/README.md)
+### [恒大负债1.97万亿元，是个什么概念？](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [继装聋作哑后，媒体和政府开始直接强暴正义](/content/gnews/52/README.md)
+### [继装聋作哑后，媒体和政府开始直接强暴正义](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [蚂蚁金服的小额贷款服务花呗已开始与中共国央行共享数据](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [禁止高校疫苗强制 密西西比敢为全美之先！](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共威胁澳大利亚将成为其核武器攻击目标！](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [受塔利班邀请北京特使正在访问阿富汗](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [姆努钦筹备的私募股权基金获软银支持](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
 
