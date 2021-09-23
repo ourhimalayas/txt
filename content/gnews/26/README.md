@@ -2,25 +2,16 @@
 ---
 
 
-## 韩国新冠疫苗不良反应率为0.42%
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1549146/)
+## 姆努钦筹备的私募股权基金获软银支持
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549102/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+#### 编译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-36.jpg)图片来源：网络截图
+9月22日，据零对冲报道，美国前财政部长史蒂文·姆努钦（Steven Mnuchin）今年早些时候推出的自由战略基金（Liberty Strategic Capital），采用私募股权模式，筹款目标为25亿美元。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-22-PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+参与投资的有沙特阿拉伯公共投资基金，软银愿景基金（version fund），还有阿布扎比的穆巴达拉（Mubadala）巨型主权基金，其因之前涉及马来西亚1MDB而备受争议。
 
-视频参看： 2021.09.22晚GTV新闻访谈
+姆努钦的基金或专注于金融服务和技术。目前还没有关于它是否拥有任何加密货币的消息。
 
-[https://gtv.org/broadcast/watch/614bcaa642a8af3151a36c79](https://gtv.org/broadcast/watch/614bcaa642a8af3151a36c79)
-
-编辑/校对/发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[SoftBank, Middle Eastern Sovereign Wealth Funds Back Mnuchin’s $2.5 Billion Private Equity Fund](https://www.zerohedge.com/markets/softbank-middle-eastern-sovereign-wealth-funds-back-mnuchins-25-billion-private-equity-fund)

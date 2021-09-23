@@ -2,25 +2,16 @@
 ---
 
 
-## 有医师爆料 让病人打疫苗可以有更多报酬
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1548490/)
+## 韩金融服务委员会敦促对恒大潜在违约进行市场监测
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549101/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-19.jpg)图片来源：网络截图
+据韩联社9月22日报道， 韩国最高金融监管机构周三呼吁加强对金融市场的监控，以应对负债累累的房地产开发商中共国恒大集团可能出现的违约。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-9.png)
-文章仅代表作者本人观点，与Gnews无关
+本周，全球金融市场因担心恒大可能违约而受到冲击。饱受债务困扰的恒大周三表示，它已经与中共国本土债券持有人达成协议，解决利息支付问题，这有助于缓解对该集团即将可能违约的担忧。
 
-视频参看：2021.09.22早GTV新闻访谈
+虽然许多专家认为“恒大的债务问题在全球金融市场发展成系统性风险的可能性似乎很有限”，但韩国金融服务委员会（FSC）主席Koh Seung-beom指示官员加强对金融市场的监测，以应对恒大债务问题的发酵。
 
-[https://gtv.org/video/id=614b215742a8af3151a338d3](https://gtv.org/video/id=614b215742a8af3151a338d3)
-
-编辑/校对/发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[Top financial regulator urges market monitoring over Evergrande concerns](https://en.yna.co.kr/view/AEN20210922005600320)

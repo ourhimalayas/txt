@@ -2,28 +2,28 @@
 ---
 
 
-## “爆料革命将成为拯救人类最重要的声音”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548149/)
+## 四方安全对话或强硬反对中共欲破坏东海现状的野心
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549162/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-312.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide11-1.jpeg)
+#### 编译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-61.jpg)图片来源：法广
+9月22日，《共同通讯社》（KYODO News）发文，针对四方峰会本周晚些时候的会面和即将发表的《联合声明》草案做了报道。
 
-文贵先生在9月21日中秋节大直播中说道，在这场病毒和疫苗的人类大灾难中，爆料革命揭露病毒和疫苗真相，将成为拯救人类最重要的声音。GNEWS、GTV、盖特坚持传播真相，时刻影响着世界上的决策者，是拯救世界的诺亚方舟，是人类的希望。 某位和文贵先生关系密切的医生战友，在谈及与爆料革命的渊源时说道，正是在辉瑞和几个大药厂打压病毒和疫苗真相的时候，开始关注文贵先生和爆料革命，当了解到文贵先生早在2020年2月份就开始向世界预警疫苗灾难、疫苗经济、疫苗政治和次生灾难后，更加相信爆料革命掌握绝密情报。这名战友表示，因为揭露病毒和疫苗真相，新中国联邦、爆料革命造成的影响前所未有，毫不夸张地说，爆料革命将成为当下拯救人类最重要的声音，大概5年后，新中国联邦人坚持传播真相的勇敢事迹，将会如圣经一样为世人传颂。
+四方安全对话（Quad – Quadrilateral Security Dialogue）最初是2004年为应对印度洋地震和海啸而成立的。近年来，该对话作为对中共国在该地区日益增长的强硬态度的一种制衡，再次获得关注。
 
-(本文仅代表作者观点）
+在前总统川普执政期间，四方安全对话举行了外交部长级别的会议。在拜登政府执政期间，双方的接触已经上升到了国家领导人级别，今年3月，四方安全对话举行了首次峰会。
 
-参考链接：[https://gettr.com/post/pbswzha597](https://gettr.com/post/pbswzha597)
+周三，有消息人士透露，美国、日本、澳大利亚和印度的领导人在本周五开会时，预计将表明他们反对中共国改变东海和南海现状的企图。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+文章指，美国政府表示，四方安全对话将提供一个深化关系的机会，促进“自由和开放“的印太地区，并在新兴技术和网络空间等问题上建立伙伴关系。
 
-终审：暗黑
-校对/发稿：谐趣园
+消息说，届时将发表的《联合声明》草案，针对东海和南海，四国成员表示“反对对基于规则海洋秩序的挑战”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+同时，在技术合作方面，声明草案将表示，四方将推进安全透明的5G网络合作。
+
+草案文件还将强调四国是促进地区和平、稳定和安全的力量，文章认为这反映了在对抗北京方面，拜登政府对印太主要民主国家联盟的重视。
+
+文章提醒说，由于离峰会还有几天时间，草案中应用的措辞可能会发生变化。
+
+**新闻来源：**[Quad leaders to oppose attempts to change status quo in East China Sea](https://english.kyodonews.net/news/2021/09/0d285cfa500b-quad-leaders-to-oppose-attempts-to-change-status-quo-in-e-china-sea.html)
