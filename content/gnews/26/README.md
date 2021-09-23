@@ -2,22 +2,22 @@
 ---
 
 
-## 美司法部启动计划帮助警察应对大规模暴力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550223/)
+## 不慎感染病毒, 战友送药见真情!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550271/)
 
-栏目记者/责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-323.png)
-美国司法部周三宣布启动”大规模暴力咨询倡议”项目，将对社区执法的警察负责人提供点对点的信息和资源援助。该项目资金由司法部的司法援助局提供，援助小组成员都是有处理大规模暴力经验的执法官员。司法部代理助理总检察长艾米  所罗门称，任何社区都不允许发生大规模暴力事件。​​一旦发生，司法部将全力介入。
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-326.png)
+今天早间唐平战友发推文称,  她负责的我是音雄节目组里,一位执行导演女战友不慎染上了CCP病毒，波士顿五月花的如水战友闻讯后仅用一小时，就亲自开车将救命的伊维菌素和地塞米松送药上门！染病的女战友已经服用药物,大家才都心安!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-42.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-30.jpeg)
 
-但随即引发民众质疑该项目是在浪费公共资源，” 此前乱象丛生的黑命贵游行示威是否算大规模暴力事件，司法部为何没有介入?”   民众的不满,源于司法部对去年黑命贵的打砸抢烧充耳不闻，却对15名参与国会大厦游行的川普支持者提起诉讼，指控他们存在暴力和妨碍治安行为。
+不仅此事,此前英国大卫战友感染后,文贵先生心急如焚, 马上派人送药,使大卫转危为安. 几天前, 在希腊和荷兰的两位欧洲战友染病后在沟通群里求救, 法国的小皮匠战友得知消息, 第一时间联络委托附近战友驱车前往,或快递邮寄,解战友燃眉之需 …. 相信各地都有这种战友间彼此救助的故事, 也都同样令人感动激赏! 感慨各地战友之间的呵护团结,感恩文贵先生和墙内战友提供的解药信息,这些都无形中 时时刻刻在保护着全球爆料革命的战友们.
 
-日前澳大利亚墨尔本警方对反疫苗的游行民众进行了令人震惊的暴力镇压。美国各地近期也陆续出现不同规模的反疫苗游行，根据这一项目细则, 司法部未来很可能会将这些合法游行定性为大规模暴力事件，所谓援助就是培训当地警察如何镇压游行民众，甚至提供武器支援。”今天的香港就是世界的明天!”文贵先生的预言正在被验证!
+正如唐平在推文中的感言: ” 感谢如水战友，感谢爆料革命，让我们在这个冰冷黑暗的世界里成为一家人，像兄弟姐妹一样彼此相爱！这种情义感天动地！”
 
 (本文仅代表作者观点）
 
-参考链接：[Justice Department launches program to help police respond to mass violence](https://www.foxnews.com/politics/department-of-justice-launches-program-to-help-police-respond-to-mass-violence.amp?__twitter_impression=true)
+参考链接：[https://twitter.com/xiaotang2164/status/1440921791241850882](https://twitter.com/xiaotang2164/status/1440921791241850882)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

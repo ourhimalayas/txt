@@ -2,33 +2,39 @@
 ---
 
 
-## 第三剂加强针来啦
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1550202/)
+## 大流行前18个月武汉科学家就计划要向洞穴蝙蝠释放冠状病毒
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1550304/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/第三针.jpg)图片来源于网络
-2021.9.21，农历八月十五，中秋团圆，正当合家团圆之际，哈尔滨却不幸又被疫情袭击了。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-25.png)图片来源于网络![](https://assets.gnews.org/wp-content/uploads/2021/09/2-14.png)图片来源于网络
-中秋节，中国传统节日里合家团圆的日子，哦不，是“大规模聚集”的日子，这样的日子简直为投毒提供了绝佳时机。熟人朋友亲人之间聚会吃个饭，晚上一同赏月，这几乎是每个家庭的必备操作。交流感情，顺便给年轻男女制造婚恋的机会，月圆之夜好事易成。
+据《门户专家》记者乔·霍夫特 2021 年 9 月 21 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/09/wh_adobespark.png)图片来自网络
+我们在 2020 年 4 月曾经报道过，“蝙蝠博士”石，正在使用美国的资金在武汉进行涉及蝙蝠冠状病毒的实验。
 
-文贵先生此前爆料，夏秋季节共产党会再次向世界投放病毒，至于国内，那也要配合着投放，不然别人家有病毒，只有咱家没有，多引人怀疑。自夏末以来，国内多多少少都有一些省市中枪。前几天有为了部署打台湾而必须投放的地点，福建厦门莆田等地，现在又多了一个哈尔滨，以后不知道还有哪些市县。
 
-这里要重点说的有以下几点。
 
-1.一旦发现有几个阳性病例，那么就会启动大范围的核酸检测，又一次大规模聚集，又是投毒的合理时机。
+> [BREAKING: Dr. Fauci and Obama Admin Gave Wuhan Lab $3.7 Million After Its Top Dr. Shi Zhengli Had US Project Shut Down and She Was Sent Back to China](https://www.thegatewaypundit.com/2020/04/breaking-dr-fauci-obama-admin-gave-wuhan-lab-3-7-million-top-dr-shi-zhengli-us-project-shut-sent-back-china/)
 
-2.共产党从不避讳阳性病人都是打过疫苗的，而且写得清清楚楚，己接种过两针疫苗。处在风险区的老百姓内心惶惶，恐惧让人失去理智，这个时候，往往会有类似的“两针不管用，你要接种第三针疫苗了”“新冠疫苗加强针来啦”，这样的消息随处可见。打过疫苗还被感染了，正常思维是你应该怀疑这个疫苗是不是没用？是不是不要去打？但是共产党给你的流氓逻辑是，你应该打第三针/加强针了，打两针不管用，反正都是免费啦，不打白不打。
 
-3.在发现阳性的头几天，疫苗接种中心会停止营业。在这几天里，未接种疫苗的人会受到接种过疫苗的人，尤其是家人的道德呵斥。“你不打疫苗，你知不知道对家人有多危险？”没打疫苗的就两种人，一种坚定相信文贵先生的，一种有某些侥幸的，也听文贵先生，但就是听着玩儿，对疫苗还在思考阶段，还在找伪科学论证的。共产党想给全国人民都打上疫苗，但就是有人不打。强制打疫苗也不是办法。平时我们看到的几个人把一个人压倒在地上，强制给他打疫苗的视频不会传到外面吗？社交媒体这么发达我相信共产党比你我都清楚得多得多。删的话删得完吗？一旦被别人看到，亲共的善良人会在心里怀疑，恨共的更恨共，这些视频又不是只有一两个，相信善良的人都会连着骂共产党畜生。那共产党还怎么在世界上混？毕竟家人情人孩子资产都在人家家里呢。所以不能暴力强制打疫苗，怎么办？宣传机构就起作用了，一切我们能够看到的，都是。一旦投毒成功，共产党每次都会出动穿着白色防护服的队伍以及白色的救护车辆，呜呜泱泱一堆，只是为了过来将阳性病人带去隔离，白色恐怖就这么来的。配套的还有，动不动就封路封楼，娱乐场所（电影院、餐厅、寺庙）暂停营业。有预算还要上个热搜。这一整套实操下来，然后在互联网上轮番播放，尤其路人拍到的把阳性病人接去隔离的视频，摸着良心说，你怕不怕？如果你住在阳性病人的对面那个楼，你怕不怕？极大的恐惧和家人的呵斥，如果没有信念，没有任何选择，只有自愿接种疫苗。共产党这时候就得逞了，你看我没有强制打疫苗，是他自愿接种的。
 
-“他们的恐惧是我们的武器，我们的胜利”，同样的，我们的恐惧也会是他们的武器，他们的胜利。文贵先生给战友说过，真正能够让你远离病毒的，是你的内心，是你的认知。心中有上天，上天都能装到你心里，你会感受到上天的力量，你会无所畏惧。那该恐惧的就是邪恶组织和共产党了。
+我们是第一个发现这位蝙蝠博士的。我们在 2020 年 4 月发现，石博士正在维护中共国蝙蝠病毒的库存，并且正在开发对抗病毒的疫苗。
 
-（文章仅代表作者观点）
 
-作者：骄子wung
 
-审核：兵嫂
+> [BREAKING EXCLUSIVE: In 2017 Dr. Shi from Wuhan Institute of Virology Claimed She Kept a Large Reservoir of Bat Viruses and Related Vaccines](https://www.thegatewaypundit.com/2020/04/breaking-exclusive-2017-dr-shi-wuhan-institute-virology-claimed-kept-large-reservoir-bat-viruses-related-vaccines/)
 
-发布：新宝
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家.jpg)
+
+《每日电讯报》现在报道了中共国努力感染中共国洞穴蝙蝠，以用作未来针对冠状病毒的疫苗。电讯报通过[雅虎报道](https://www.yahoo.com/news/wuhan-scientists-planned-release-skin-145326380.html)。
+
+*泄露的**2018**年申请资助的文件显示，武汉科学家计划向中共国蝙蝠种群释放经过增强的，通过空气传播的冠状病毒来接种他们以预防可能传染给人类的疾病。*
+
+*新文件显示，就在首例**Covid-19**病例出现前**18**个月，研究人员提交了一份计划，将含有蝙蝠冠状病毒“新型嵌合刺突蛋白”的穿透皮肤的纳米颗粒释放到中共国云南的洞穴蝙蝠中。*
+
+*他们还计划创造嵌合病毒，通过基因增强使其更容易感染人类，并要求国防高级研究计划局**(Darpa)**提供**1400**万美元的资金来资助这项工作。**[Darpa**是一家从事新兴技术研发的美国国防机构。**]*
+
+美国与中共国在蝙蝠病毒方面没有商业合作。但是这些与中共国军方合作的努力导致了灾难。
+
+【本文仅代表作者个人观点，与Gnews无关】
+
+原文链接：[https://www.thegatewaypundit.com/2021/09/confirmed-wuhan-scientists-planned-release-coronaviruses-bat-caves-18-months-pandemic/](https://www.thegatewaypundit.com/2021/09/confirmed-wuhan-scientists-planned-release-coronaviruses-bat-caves-18-months-pandemic/)
+
+翻译：烟波浩淼 |校对：雨山溪桥客 |编辑&发布：V

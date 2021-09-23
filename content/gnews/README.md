@@ -37,13 +37,13 @@
 ### [2021年9月22日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [第三剂加强针来啦](/content/gnews/9/README.md)
+### [大流行前18个月武汉科学家就计划要向洞穴蝙蝠释放冠状病毒](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [第三剂加强针来啦](/content/gnews/10/README.md)
  ` 银河勇气之星`
 
-### [吹哨人：同事因注射疫苗而死亡](/content/gnews/10/README.md)
- ` MG 澳喜农场多语组`
-
-### [美国FDA内部会议揭露：疫苗比病毒致命数倍](/content/gnews/11/README.md)
+### [吹哨人：同事因注射疫苗而死亡](/content/gnews/11/README.md)
  ` MG 澳喜农场多语组`
 
 ### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/12/README.md)
@@ -85,47 +85,47 @@
 ### [有声|辉瑞公司称疫苗对5-11岁儿童安全有效，并向FDA寻求紧急使用授权](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [中共军力提升威胁日本安全, 但促进日台关系](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [美众议院将对年度《国防授权法》表决, 要求彻查病毒真相](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [台湾正式申请加入CPTPP!](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [恐公民数据流向中共，波兰将弃用华大基因](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [中共是天价海运的幕后黑手](/content/gnews/31/README.md)
+### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [州警察工会控告州长的疫苗接种令](/content/gnews/32/README.md)
+### [不慎感染病毒, 战友送药见真情!](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [中共军力提升威胁日本安全, 但促进日台关系](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/31/README.md)
+ ` 银河勇气之星`
+
+### [中共是天价海运的幕后黑手](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [州警察工会控告州长的疫苗接种令](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0923](/content/gnews/33/README.md)
+### [DC每日热点0923](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [监察长：五角大楼对中共国药品的依赖造成了国家安全风险](/content/gnews/34/README.md)
+### [监察长：五角大楼对中共国药品的依赖造成了国家安全风险](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/35/README.md)
+### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [自民党总裁选举分析及下一任首相预测](/content/gnews/36/README.md)
+### [自民党总裁选举分析及下一任首相预测](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：英国国会“跨党派国会香港小组”怀疑有英国银行参与香港的政治打压](/content/gnews/37/README.md)
+### [DC大中华时事：英国国会“跨党派国会香港小组”怀疑有英国银行参与香港的政治打压](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：FDA支持辉瑞为老年人和高风险人群提供疫苗加强针](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/47/README.md)
+### [《商君书》驭民五术](/content/gnews/47/README.md)
+ ` 纽约香草山MOS03`
+
+### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/48/README.md)
  ` 首尔天池农场`
 
-### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/48/README.md)
+### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/49/README.md)
  ` 纽约香草山MOS01`
 
-### [中共全运会版《社会主义好》被质疑, 文革2.0政治风向难把握](/content/gnews/49/README.md)
+### [美众议院将对年度《国防授权法》表决, 要求彻查病毒真相](/content/gnews/50/README.md)
  ` GTV新闻访谈`
 
-### [【玫瑰看新闻】第168期](/content/gnews/50/README.md)
+### [台湾正式申请加入CPTPP!](/content/gnews/51/README.md)
+ ` GTV新闻访谈`
+
+### [恐公民数据流向中共，波兰将弃用华大基因](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
+
+### [中共全运会版《社会主义好》被质疑, 文革2.0政治风向难把握](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
+
+### [【玫瑰看新闻】第168期](/content/gnews/54/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【玫瑰看新闻】第167期](/content/gnews/51/README.md)
- ` 喜马拉雅农场新西兰站`
+### [美国FDA内部会议揭露：疫苗比病毒致命数倍](/content/gnews/55/README.md)
+ ` MG 澳喜农场多语组`
 
-### [秘翻在线：中共国通信设备自带言论审查被他国拒用](/content/gnews/52/README.md)
+### [秘翻在线：FDA支持辉瑞为老年人和高风险人群提供疫苗加强针](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Facebook撤下关于HHS吹哨人的真相工程视频](/content/gnews/53/README.md)
- ` wenwu`
-
-### [GETTR CEO：GETTR不会封锁美国州长新闻秘书的账户](/content/gnews/54/README.md)
- ` wenwu`
-
-### [秘翻在线：疫苗护照将带来斯大林及希特勒式的种族隔离灾难](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【玫瑰看新闻】第166期](/content/gnews/56/README.md)
+### [【玫瑰看新闻】第167期](/content/gnews/57/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [民建联唱好大戏配合中共愚弄港人](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 

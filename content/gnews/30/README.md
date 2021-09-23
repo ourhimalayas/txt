@@ -2,23 +2,23 @@
 ---
 
 
-## 恐公民数据流向中共，波兰将弃用华大基因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549752/)
+## 中共军力提升威胁日本安全, 但促进日台关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549820/)
 
-栏目记者/责任编辑：修文
+栏目记者、责任编辑：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-自由时报9月23日消息，波兰正在进行一项波兰人基因图谱计划，因外包的第三方采用中共国“华大基因”公司的定序技术。目前波兰政府担心本国公民基因资料被泄露，计划取消该合约。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.50.43-PM.png)
-此前波兰科学院人类基因委员会曾暗指华大基因不遵守基因检测伦理，但约十万份完整的波兰基因组可能已经流入华大基因。美国人工智慧国家安全委员会的报告，也指华大基因扮演中共国政府”全球基因资料库”的收集角色。
+日本首相菅义伟在美日印澳“四方峰会”举行之际称：“中共国军力的迅速提升，以及对区域内现状的单方面改变，给日本的安全带来了风险。日本应当强化美日联盟增加威慑力并努力提高日本的防御能力”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.15.42-PM.png)
+中共穷兵黩武，连续20多年不断增长国防预算，不仅发展航母/巡航导弹系统和战机更新换代, 也对信息作战及军事指挥系统进行改革，同时通过军方背景的民企及间谍窃取西方军事技术，以提升军力。与此同时不断在台海、南海及东海进行频繁军事活动，试图突破第一岛链，引发周边国家不安。
 
-作为中共采集全球人类基因信息样本的前哨站，华大基因已多次被世界各国发现其采集、窃取基因信息的行为，并质疑其为中共军方背景。中共国军事理论专家曾公开著书立说,鼓吹针对人类基因的生物战争时刻都在准备中。只不过中共不是受害者，反而正是这种基因战争的发起者，新冠病毒和疫苗正是释放他们的基因武器!
+迹象表明，中共对台湾的持续军事压力,也促使日本与台湾关系的进一步加强。日本政府也释放态度，如中共武统台湾，日本不会坐视不管。此次美日印澳四国领导人将于本周五在白宫举行的四方峰会，就是为应对中共在亚太地区日益扩张的军事影响力和威胁。
 (本文仅代表作者观点)
 
-参考链接：[防數據流入解放軍 波蘭棄用華大基因](https://news.ltn.com.tw/news/world/paper/1474441)
+参考链接：[菅义伟：中国军力提升威胁到日本的和平与繁荣](https://www.voachinese.com/a/Chinese-Military-Rise-Threatens-Japan-20210922/6241307.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
@@ -31,4 +31,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

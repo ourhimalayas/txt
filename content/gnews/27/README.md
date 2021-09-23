@@ -2,28 +2,34 @@
 ---
 
 
-## 中共军力提升威胁日本安全, 但促进日台关系
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549820/)
+## 联邦医疗机构员工揭露新冠疫苗真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550260/)
 
-栏目记者、责任编辑：在远方
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-325.png)
+本周一，“真相工程”发布了“揭露新冠疫苗真相”系列节目的第一部分，美国卫生与公众服务部（HHS）雇员、亚利桑那州凤凰城印第安医疗中心的护士乔迪·奥马利，在接受“真相工程”采访时表示，在她工作的医院，越来越多的人因为接种新冠疫苗而生病和死亡，而政府却在掩盖事件的真相。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-21.jpeg)
 
+从吹哨人奥马利公开的秘密录像中得知，该医疗中心已经接收很多因疫苗引发的不良反应的病例，但是政府却从来没有做相关的报告。奥马利一直对疫苗表示质疑和担忧。接种强制令实施后，部分地区“宗教豁免”被废除。当一位在重症监护室工作的同事，被迫接种疫苗，导致罹（lí）患重病，并最终死亡后，她决定勇敢地站出来揭露真相。奥马利表示，FDA、CDC本有义务和责任保护人民，但他们现在做得这一切都很不科学，邪恶至极。
 
+该视频一经推出便引发媒体风暴，短短数日，仅在推特上就有超过210万的浏览量。
 
-日本首相菅义伟在美日印澳“四方峰会”举行之际称：“中共国军力的迅速提升，以及对区域内现状的单方面改变，给日本的安全带来了风险。日本应当强化美日联盟增加威慑力并努力提高日本的防御能力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.15.42-PM.png)
-中共穷兵黩武，连续20多年不断增长国防预算，不仅发展航母/巡航导弹系统和战机更新换代, 也对信息作战及军事指挥系统进行改革，同时通过军方背景的民企及间谍窃取西方军事技术，以提升军力。与此同时不断在台海、南海及东海进行频繁军事活动，试图突破第一岛链，引发周边国家不安。
+数小时前，“真相工程”又发布了更加震撼的第二部分。FDA雇员泰勒·李揭露了可怕的政府预案。在该视频中，李谈到，针对未接种人口，比如持保留态度的非裔或少数民族，政府会先让白人接种以避免种族主义；对于美国人，则可能会制定类似纳粹式的登记册，挨家挨户地强迫人们接种疫苗。
 
-迹象表明，中共对台湾的持续军事压力,也促使日本与台湾关系的进一步加强。日本政府也释放态度，如中共武统台湾，日本不会坐视不管。此次美日印澳四国领导人将于本周五在白宫举行的四方峰会，就是为应对中共在亚太地区日益扩张的军事影响力和威胁。
-(本文仅代表作者观点)
+科学是西方科技和工业文明的基础，西方人民不相信政客，但是相信科学、医疗系统和媒体。而所有的这些，现在已被邪恶组织完全垄断，病毒和疫苗真相遭到打压和掩盖。如今美国爆料人勇敢站出来，揭露疫苗对民众造成的伤害，相信会对美国民众造成更强烈的冲击，看到身边的人因为接种疫苗而患病甚至死亡的时候，更多人会加入反抗的行列。
 
-参考链接：[菅义伟：中国军力提升威胁到日本的和平与繁荣](https://www.voachinese.com/a/Chinese-Military-Rise-Threatens-Japan-20210922/6241307.html)
+(本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+参考链接：[US Government Whistleblower: “The Government are covering up adverse reactions to the Covid-19 Vaccines”](https://theexpose.uk/2021/09/22/us-government-whistleblower-covid-vaccines-are-full-of-s/)
+[BREAKING: Project Veritas: Federal Whistleblower Goes Public with Secret Recordings on Covid Vax: ‘Government Shoves Adverse Effect Reporting Under the Mat’ (VIDEO)](‘Government%20Shoves%20Adverse%20Effect%20Reporting%20Under%20the%20Mat’%20%28VIDEO%29)
+[https://twitter.com/EricSpracklen/status/1440465871424536582](https://twitter.com/EricSpracklen/status/1440465871424536582)
+[https://twitter.com/EricSpracklen/status/1440465871424536582](https://twitter.com/EricSpracklen/status/1440465871424536582)
 
-终审：文龙
-校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,5 +37,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
