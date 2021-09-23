@@ -37,14 +37,14 @@
 ### [2021年9月23日郭先生直播速记](/content/gnews/8/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [澳大利亚维州反对党领袖批评州长安德鲁斯在大流行期间散布恐惧而不是希望](/content/gnews/9/README.md)
+### [《疫苗死亡报告》：世界各地疫苗致死数以万计 制造商却不承担任何责任](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [日本医院群聚感染 25人中24人完成2剂接种](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
+
+### [澳大利亚维州反对党领袖批评州长安德鲁斯在大流行期间散布恐惧而不是希望](/content/gnews/11/README.md)
  ` 澳喜农场`
-
-### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/10/README.md)
- ` wenwu`
-
-### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -103,41 +103,41 @@
 ### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/31/README.md)
- ` 银河勇气之星`
-
-### [第三剂加强针来啦](/content/gnews/32/README.md)
- ` 银河勇气之星`
-
-### [中共是天价海运的幕后黑手](/content/gnews/33/README.md)
- ` 纽约香草山MOS01`
-
-### [州警察工会控告州长的疫苗接种令](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC每日热点0923](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [自民党总裁选举分析及下一任首相预测](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [DC大中华时事：英国国会“跨党派国会香港小组”怀疑有英国银行参与香港的政治打压](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [日本知名医生高桥德入驻盖特](/content/gnews/39/README.md)
+### [台北日本商会呼吁日本政府积极协助台湾加入CPTPP](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/32/README.md)
+ ` wenwu`
 
-### [印太地区国家拥抱AUKUS](/content/gnews/41/README.md)
+### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/34/README.md)
+ ` 银河勇气之星`
+
+### [第三剂加强针来啦](/content/gnews/35/README.md)
+ ` 银河勇气之星`
+
+### [中共是天价海运的幕后黑手](/content/gnews/36/README.md)
+ ` 纽约香草山MOS01`
+
+### [州警察工会控告州长的疫苗接种令](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0923](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [我与邪恶福奇在白宫战情室的首次摊牌与对决](/content/gnews/42/README.md)
+### [日本知名医生高桥德入驻盖特](/content/gnews/40/README.md)
+ ` 日本东京方舟农场`
+
+### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [印太地区国家拥抱AUKUS](/content/gnews/42/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/47/README.md)
- ` 英喜-粵語組`
-
-### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/48/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [串珠392:很多做抗体依赖性增强实验的动物都死了](/content/gnews/49/README.md)
- ` 郭爆料串珠`
-
-### [串珠391:宁将孩儿藏鼠洞，也不让他打疫苗！](/content/gnews/50/README.md)
- ` 郭爆料串珠`
-
-### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/51/README.md)
- ` 郭爆料串珠`
-
-### [国际要闻汇编](/content/gnews/52/README.md)
+### [樱花灭共诗——深谷会盟（新韵）](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [逝者苏春秀](/content/gnews/53/README.md)
- ` 银河勇气之星`
+### [樱花灭共诗——人月圆•中秋之夜](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《商君书》驭民五术](/content/gnews/54/README.md)
- ` 纽约香草山MOS03`
+### [美FDA授权为65岁以上高龄人群接种疫苗加强针](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大流行前18个月武汉科学家就计划要向洞穴蝙蝠释放冠状病毒](/content/gnews/55/README.md)
+### [日外相对台湾加入TPP表示欢迎](/content/gnews/50/README.md)
+ ` 日本东京方舟农场`
+
+### [以灭共为核心的全球正邪之战已到至暗时刻](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共计划经济下的“能耗双控”](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/53/README.md)
+ ` 英喜-粵語組`
+
+### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/54/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/56/README.md)
- ` 首尔天池农场`
+### [串珠392:很多做抗体依赖性增强实验的动物都死了](/content/gnews/55/README.md)
+ ` 郭爆料串珠`
 
-### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/57/README.md)
- ` GTV新闻访谈`
+### [串珠391:宁将孩儿藏鼠洞，也不让他打疫苗！](/content/gnews/56/README.md)
+ ` 郭爆料串珠`
+
+### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/57/README.md)
+ ` 郭爆料串珠`
 
