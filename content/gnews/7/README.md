@@ -2,21 +2,121 @@
 ---
 
 
-## 国际金融的垄断现状及未来的数字货币
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1548754/)
+## 中俄，中美关系决定中共的存亡
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548743/)
 
-美国搞的这个以反恐的名义控制金融，实际上就是减少你的流动，然后掩盖这些国家超发货币，还有一个就是更重要的事情，这就是金融垄断。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/101aqguh-nlw49.jpg)
+[https://gtv.org/video/id=614a20b1d2e2b817486c1e0e](https://gtv.org/video/id=614a20b1d2e2b817486c1e0e)
 
-**【郭先生直播摘要】****2021.9.14 ****国际金融的垄断现状及未来的数字货币**
+你们记住七哥那天说的话
+Ustedes recuerden lo que dije aquel día
 
-**飞飞：**
+消灭共产党
+Derribar al Partido Comunista
 
-说是这个陈元张宏伟他们不是1200亿怎么入账的，然后说现在是不是黑暗势力控制金融系统，所以导致我们这个战友转钱比较困难，然后问此局如何破？我自己觉得此局破就是靠我们的喜币，然后不知道这个答案对不对？然后郭先生。
+一定从北边绕过来
+Debe venir rodeando desde norte
 
-**郭先生：**
+这一圈儿过去, 喀嚓一刀
+Pasa por este círculo y luego un cuchillazo
 
-不对，这个局要破的话需要很长时间，基本上是这样，全世界的金融系统都是因为超量的洗钱，超量的印刷钞票，还有所谓的美国搞的这个以反恐的名义控制金融，实际上就是减少你的流动，然后呢掩盖这些国家超发货币，还有一个就是更重要的事情，这就是金融垄断，这是国家主义走向极权的灾难的开始，你想把这搞定不可能的，永远会伴随着我们，直到有一天新中国联邦强大到也可以制定这个规则的时候。我不受你影响，永远会伴随着我们。除非这个世界在疫苗这个灾难之后，各种主义啊都进行了大的改变，然后我们的正道主义，我们创造的新的生存方式成为世界上最重要的力量时候才能改变，否则是不可能的，事实。
+如果俄罗斯和中共之间不出问题
+Si no aparecen los problemas entre Rusia y el PCCh
 
-再一个张宏伟这个1200亿和陈元把1200亿搞到这个比特币他太容易了。有沙特的配合嘛，沙特在全世界金融机构里面大量的参股，它是用不同的银行，不同的基金，不同的货币注入到买比特币不就解决了嘛，很容易，很容易啊，到了比特币里面几乎就是无人敢查，无人能查，无人能查得到的境界了，这个是因为大家你们没有做过啊，这个我太清楚了。这就是人类已经走到了必须有比特币，就是虚拟货币，加密货币的时代的原因，没有人能挡得住，未来记录人类上的所有的财富，大概超过50到60会在虚拟货币里面存在，一定不是国家主权货币。以后的国家主权货币基本上就是你什么概念呢？在某种范围内某个国家范围能用，虚拟货币是主流，一定是这结局。
+你不会看到共产党的灭亡
+No verás la desaparición del Partido Comunista
 
-视频剪辑：北方信使 | 听写：雨山溪桥客 | 翻译：Arthur | 校对：tonyj |字幕+视频制作：小腾腾说
+你不会看到共产党的灭亡
+No verás la desaparición del Partido Comunista
+
+如果是美国跟共产党
+Si EE. UU y el Partido Comunista
+
+现在要好起来了
+Ahora se vuelven como amigos
+
+他俩现在突然要拥抱
+Ellos de repente se abrazan
+
+又握手, 重新签合同
+Y se dan la mano para volver a firmar el contrato
+
+所有都要合作
+Se cooperan en todo
+
+我告诉战友们
+Déjame decirles, compañeros luchadores
+你们听懂我今天跟你说的话
+Ustedes hoy entienden lo que les estoy diciendo
+
+我不希望再有四年
+No espero que haya otros cuatro años más
+
+你再看我今天直播的时候
+Cuando vuelvas a ver mi transmisión en vivo como el día de hoy
+
+看着我对面有三美女
+Viendo frente de mi están tres chicas hermosas
+
+一个帅哥都是傻傻的
+Un chico guapo y que son tontos
+
+看着七哥在那儿胡掰
+Viendo a mi hablando tonterías
+
+我希望你像看到我当时说
+Yo espero que me veas y me digas como en aquel momento
+
+说这个恒大王健林一样的事情
+Hablar sobre lo mismo que Wang Jianlin de Evergrande Group
+
+他会让你发生
+Él hará que suceda
+
+当中共再有任何机会和美国总统和美国好的时候
+Cuando el PCCh tenga la posibilidad de llevarse bien con el presidente de EE. UU o con el país
+
+就是共产党立马死亡的时候
+Es el momento de la muerte inmediata del Partido Comunista
+
+所有的中国共产党员, 你记住我的话
+Todos los chinos comunistas, recuerden mis palabras
+
+今天的9千3百万党员
+Hoy los 93 millones miembros del partido
+
+你已经没有任何能力
+No tienen ninguna capacidad
+
+任何可能来决定你自己的命运
+Y posibilidad para decidir su propio destino
+
+包括习
+Incluyendo a Xi
+
+自从他到了俄罗斯
+Desde que él llegó a Rusia
+
+几次私谈签订下
+Bajo ciertas veces de firmas y charlas privadas
+
+历史世纪的大合约之后
+Luego de los grandes contratos de siglos históricos
+
+这是一条不归路
+Este es un camino sin retorno
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1437256031524950019?s=24](https://twitter.com/se1y7cblljselva/status/1437256031524950019?s=24)
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

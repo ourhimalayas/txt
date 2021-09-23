@@ -28,23 +28,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [中俄，中美关系决定中共的存亡](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（四）](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中俄，中美关系决定中共的存亡](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国际金融的垄断现状及未来的数字货币](/content/gnews/7/README.md)
+### [国际金融的垄断现状及未来的数字货币](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [一切源于共产组织](/content/gnews/8/README.md)
+### [秘翻在线：东京医师会会长谈伊维菌素可以治疗中共病毒的理由!](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [《柳叶刀》转向，开始呼吁对病毒起源进行透明辩论](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《柳叶刀》转向，开始呼吁对病毒起源进行透明辩论](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [武毒所科学家的生物武器计划](/content/gnews/10/README.md)
+### [武毒所科学家的生物武器计划](/content/gnews/11/README.md)
  ` wenwu`
-
-### [接种者如不在冬季隔离将面临重症风险](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [马里科帕郡通话录音遭泄露的监事今宣布辞职](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -85,22 +85,22 @@
 ### [郭文贵精品视频-新中国联邦人联合世界一切力量共同灭共](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [有医师爆料 让病人打疫苗可以有更多报酬](/content/gnews/25/README.md)
+### [四方安全对话或强硬反对中共欲破坏东海现状的野心](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [韩国新冠疫苗不良反应率为0.42%](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [“爆料革命将成为拯救人类最重要的声音”](/content/gnews/26/README.md)
+### [有医师爆料 让病人打疫苗可以有更多报酬](/content/gnews/27/README.md)
+ ` 纽约香草山MOS01`
+
+### [“爆料革命将成为拯救人类最重要的声音”](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [医疗前线护士揭露媒体和政府谎言](/content/gnews/27/README.md)
+### [医疗前线护士揭露媒体和政府谎言](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美众院辩论新财年国防授权法 注重提升台湾战力和威慑中共](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [美国银行下调对中共国经济增长预期](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [&#8220;中共对美国的威胁超过任何其它国家!&#8221;](/content/gnews/30/README.md)
+### [美众院辩论新财年国防授权法 注重提升台湾战力和威慑中共](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [墨尔本：护士和教师计划加入抗议活动](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [在港上市内地银行股跌幅扩大](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [G时评：如何做到见权贵时不腿软？](/content/gnews/47/README.md)
+### [恒大是中共的缩影](/content/gnews/47/README.md)
+ ` 波士顿五月花农场`
+
+### [G时评：如何做到见权贵时不腿软？](/content/gnews/48/README.md)
  ` GISELLE`
 
-### [内藏乾坤：立陶宛呼吁国民扔掉中共国手机](/content/gnews/48/README.md)
+### [内藏乾坤：立陶宛呼吁国民扔掉中共国手机](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [警察才是抗议活动中暴力的根源](/content/gnews/49/README.md)
+### [警察才是抗议活动中暴力的根源](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本央行22日会议决定，维持大规模货币宽松政策](/content/gnews/50/README.md)
+### [日本央行22日会议决定，维持大规模货币宽松政策](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚各地快递员实行大罢工](/content/gnews/51/README.md)
+### [澳大利亚各地快递员实行大罢工](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共禁止台湾释迦及莲雾进口 台湾拟向WTO寻求仲裁](/content/gnews/52/README.md)
+### [中共禁止台湾释迦及莲雾进口 台湾拟向WTO寻求仲裁](/content/gnews/53/README.md)
  ` 纽约香草山MOS01`
 
-### [雅典娜时报-第060期](/content/gnews/53/README.md)
+### [雅典娜时报-第060期](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [焦点：决定美国兴衰的大选作弊“国家审计”即将揭晓！](/content/gnews/54/README.md)
+### [焦点：决定美国兴衰的大选作弊“国家审计”即将揭晓！](/content/gnews/55/README.md)
  ` 丁过`
 
-### [郭文贵精品视频-内贼外寇勾结难抵新中国联邦人灭共雄心](/content/gnews/55/README.md)
+### [郭文贵精品视频-内贼外寇勾结难抵新中国联邦人灭共雄心](/content/gnews/56/README.md)
  ` 澳喜农场`
 
-### [郭文贵精品视频-深挖戕害中国人民的幕后黑帮之国内团伙](/content/gnews/56/README.md)
+### [郭文贵精品视频-深挖戕害中国人民的幕后黑帮之国内团伙](/content/gnews/57/README.md)
  ` 澳喜农场`
-
-### [76届联合国大会近日于纽约召开](/content/gnews/57/README.md)
- ` 纽约香草山MOS01`
 

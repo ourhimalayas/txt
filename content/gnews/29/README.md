@@ -2,32 +2,30 @@
 ---
 
 
-## 美国银行下调对中共国经济增长预期
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548071/)
+## 医疗前线护士揭露媒体和政府谎言
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548125/)
 
-栏目记者/责任编辑：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-309.png)
-据多家媒体报道，9月21日，美国银行下调了它对中共国经济增长的预期，将2021年中共实际国内生产总值GDP的增长预期从8.3%下调至8.0%，对2022年的预期则从6.2%下调至5.3%，对2023年的预期从6.0%下调至5.8%。
+栏目记者：禹水沃土
+责任编辑：晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-311.png)
+国家新闻网站9 月 21 日报道，越来越多的护士站出来揭露新冠疫苗的谎言。全国和世界各地的医护人员面临接种强制令，被上级以“职位不保”作为威胁，有些已被解雇。他们表示：没有什么可失去的；现在能做的，就是把疫情期间发生在医院、诊所、和疗养院亲眼目睹的谎言及暴行，揭示给民众。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-20.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide9-2.jpeg)
 
-形成鲜明对比的是中共媒体对国内经济的不实报导，7月15日中共官方披露的上半年数据声称中共国内生产总值同比增长12.7%，无视各行各业艰难维持的现状，在经济、外贸、就业、消费各方面极尽粉饰太平。
+据一位注册护士在 Stew Peters Show 接受采访时说，自新冠病毒疫苗推广以来，与接种相关的伤害层出不穷，比如血凝块、心脏及神经学问题、平衡、认知、攻击性行为、脑科疾病等。 很多不良反应并没有被记录入疫苗报告系统。
 
-恒大地产负债累累，违约风险上升，占中国经济约四分之一的房地产业成为世界经济关注的焦点。同时。由于供应链瓶颈和新冠疫情，近期出台的包括零售和工厂产出在内的疲弱数据也指向中国经济的下滑。
+新冠病毒疫苗的推出是一场噩梦，所有的一切基于利润：这致使保险公司、制药商掩盖包括伊维菌素在内的使用成熟药物。医学已经被政治化，主流媒体充斥着虚假信息；人们对医学、卫生健康系统不再抱有信心。
 
-美银分析师在一份报告中表示:“从2021年第四季度到2022年第一季度，任何政策反应的进一步延迟，或对重大债务人违约的处理不当，都可能增加增长错位的风险。”
-
-在世界与中共加速脱钩的态势下，中共的泡沫经济，随着房地产这第一个多米诺骨牌的倒塌，将难以为继。
+在整个世界被疫苗政治伤害的当下，GTV和GETTR平台在坚持传播着真相：新冠病毒和新冠疫苗是生化武器，千万不要打疫苗。
 
 (本文仅代表作者观点）
 
-参考链接：[美国银行下调对中国经济增长的预期](https://www.voachinese.com/a/Bank-of-america-china-economy-forecast-20210921/6238721.html)
-[不止恒大危机！三大压力下美银下调中国GDP增长预期 2022年中国GDP增长料大幅放缓至5.3%](https://www.fx168.cn/info/top/2109/5361350.shtml)
-[2021年中国经济半年报呈现八大亮点](https://t.ynet.cn/baijia/31113215.html)
+参考链接：[Frontline Nurses Expose Media and Government COVID Lies](https://new.finalcall.com/2021/09/21/frontline-nurses-expose-media-and-government-covid-lies/)
+[In the fight against COVID, health workers aren’t immune to vaccine misinformation](https://www.opb.org/article/2021/09/18/health-workers-not-immune-to-vaccine-misinformation/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：FoxRina
+终审：暗黑
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**

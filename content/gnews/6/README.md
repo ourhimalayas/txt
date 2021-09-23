@@ -2,121 +2,51 @@
 ---
 
 
-## 中俄，中美关系决定中共的存亡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548743/)
+## 文·贵天成——文贵先生谈“恒大许家印”（四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1549145/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/101aqguh-nlw49.jpg)
-[https://gtv.org/video/id=614a20b1d2e2b817486c1e0e](https://gtv.org/video/id=614a20b1d2e2b817486c1e0e)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/e301117f-e36a-430a-a38d-8a73e5c66305.jpg)图片来源：雅典娜设计组
+**整理：**翼族/KONG
+**编辑：**翼族
 
-你们记住七哥那天说的话
-Ustedes recuerden lo que dije aquel día
+【**编者按：**《文·贵天成》是雅典娜农场一个新的专栏。2017年1月以来，郭文贵先生通过直播和社交媒体，发起了一场改变世界的爆料革命运动，影响深远。本专栏将把文贵先生数年来关于某一特定话题的精华内容陆续整理成文字，以时间线排序，希望对读者更系统地了解爆料革命有所帮助。】
 
-消灭共产党
-Derribar al Partido Comunista
+**郭文贵先生2019年8月11日直播：**
 
-一定从北边绕过来
-Debe venir rodeando desde norte
+我刚开始爆料的时候，王岐山亲口说的：“你以为十八大以后还有好日子？啊？你以为还想发财？你以为还有和平的日子？啊？那文化大革命挑大筋，白刀子进红刀子出的时代又回来了！你想什么呢？有本事到外国去混去！你真有钱，把钱拿外国去！”王岐山是在2017年二月份我开始爆料的时候就这么说的。我告诉你，马云，什么海航，什么肖建华，安邦，什么许家印，马云，这都是垃圾。他们根本不知道在和魔鬼跳舞，魔鬼早就把他的吸血管子插到你的肝里去了，让你死你就死，让你活你就活，一分钟一秒钟都不会差！
 
-这一圈儿过去, 喀嚓一刀
-Pasa por este círculo y luego un cuchillazo
+**郭文贵先生2019****年8****月20****日直播：**
 
-如果俄罗斯和中共之间不出问题
-Si no aparecen los problemas entre Rusia y el PCCh
+亲爱的兄弟姐妹们，如果有人说的和做的不能达到统一，就会痛苦。咱喊着要灭共，全人类连美国人都吓得不敢说要灭共，只有咱天天在这喊着要灭共。咱会因为他卖咱盘古就不灭共？他把整个盘古拿去，还给了咱50几个亿呢，他不给你又咋啦？那50个亿咱又拿不着，他给500个亿咱也拿不着啊。王岐山昨天拍卖，拍卖价500亿美元，你高兴不？你高兴是吧？你也拿不着。
 
-你不会看到共产党的灭亡
-No verás la desaparición del Partido Comunista
+比比安邦吴小晖，比比明天系的肖建华，比比周永康薄熙来，比比令计划，比比马云，比比许家印，比比我哥儿们车峰，比比所有这些人，我是最幸运的。没有龙头盘古大观给我发力，我咋能活到这。他再拿着，他也不能把盘古大观那龙头给拆了去啊。他有种，王岐山把龙头给拆了，你真拿刀给砍了，你才牛，是不是？你敢不敢？你又不敢！
 
-你不会看到共产党的灭亡
-No verás la desaparición del Partido Comunista
+**郭文贵先生2019年11月10日直播：**
 
-如果是美国跟共产党
-Si EE. UU y el Partido Comunista
+过去一星期，大家看到国内的银行，海口沿海银行，作为海航大股东的挤兑。还有在辽宁的盛京银行，盛京银行那可了不得，表面看是许家印，但许家印是托，戴永革是大老板，海航是大老板。而且盛京银行绝大多数存款全是军队存款，国家财政存款。大家想想，招商银行，南商银行，动不动几亿、几十亿、百亿的金融票据。一百亿的金融票据坏帐了意味着什么？银行现在储备金多少钱？就是银行说，你存我这一百块钱的时候，我有8～10%储备金，就是一旦我破产，我还有8～10%跟你兑现。那一个一百亿的金融票据没了，就是起码一千亿贷款的储备金没了，他一共多少存款？那只报一个一百亿，报二、报三，报十个呢？就是一千亿，一千亿就是一万亿的存款没了，没储备金了。
 
-现在要好起来了
-Ahora se vuelven como amigos
+**郭文贵先生****2019****年****12****月****1****日直播：**
 
-他俩现在突然要拥抱
-Ellos de repente se abrazan
+香港的叶刘淑仪、何君尧、李什么琼，还有梁振英，去了恒大在海南的超级医院。恒大治什么？只治阳痿，什么都不治。什么叫“超级医院”？你见过人类全星球上有超级医院吗？梁振英带着那几个女议员，那帮傻子跑到海南去，恒大超级医院没医生！问恒大：你们这医院这么厉害，你们这咋没医生啊？回答说：我们这医生在全国各地，一打电话预约马上过来。我的天啊，那得了病还要等医生飞过来，这叫恒大超级医院！
 
-又握手, 重新签合同
-Y se dan la mano para volver a firmar el contrato
+恒大医院就是搞地产的嘛，就是圈地嘛，还让一帮香港的官员，梁振英，那个女的叫什么玲啊，全国人大代表，跑到海南去，这些香港官员为的就是钱。恒大所谓的超级医院不就是忽悠当地买房的人么，忽悠银行贷款的么，去的人都私下给钱。
 
-所有都要合作
-Se cooperan en todo
+我在很久以前就说过，中国就仨生意好，监狱生意好，第二火葬场生意好，全国火葬场增加的比例比GDP快多了。现在火葬场到处都是，盖到香港北区，新屋岭，还有文锦渡过关处，监狱加焚烧厂。现在恒大搞超级医院，超级医院里带直接火葬的，直接烧人。恒大超级医院，有病，来吧！最后把你家人精气神都耗干，全耗病，排队进医院，然后把钱全耗干。一个没有医生的医院，一个只有火葬场焚烧炉的一条龙的超级医院，却请来了香港的梁振英。
 
-我告诉战友们
-Déjame decirles, compañeros luchadores
-你们听懂我今天跟你说的话
-Ustedes hoy entienden lo que les estoy diciendo
+我和美国人说，中国人没有土地，他们不懂。我和美国人说，中国人是没有土地的，这土地是被党管的，没有人相信的。中国人的死亡方式也是共产党说了算，死亡以后的处理方式还是共产党说了算。火葬场对外开放吗？你见过私人开火葬场的吗？恒大搞超级医院，是因为不允许开火葬场，恒大才在那个医院里搞了一个死亡以后的所谓的化妆一条龙服务，变相的弄个火葬生意。因为火葬是垄断的，火葬场是垄断的。然后到了墓地，墓地又是垄断的。你能拿到墓地的经营证吗？哪个不是有钱人家？
 
-我不希望再有四年
-No espero que haya otros cuatro años más
+人家当官的吃的是进口的粮食，中国人吃的是上了化肥的粮食，然后中国人进了恒大超级医院，人家背后是有常委支持的。你存在银行的钱，盛京银行，那是人家常委家里面的。
 
-你再看我今天直播的时候
-Cuando vuelvas a ver mi transmisión en vivo como el día de hoy
+[文·贵天成——文贵先生谈“恒大许家印”（一）](https://gnews.org/zh-hans/1542357/)
+[文·贵天成——文贵先生谈“恒大许家印”（二）](https://gnews.org/zh-hans/1545250/)
+[文·贵天成——文贵先生谈“恒大许家印”（三）](https://gnews.org/zh-hans/1545685/)
 
-看着我对面有三美女
-Viendo frente de mi están tres chicas hermosas
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-一个帅哥都是傻傻的
-Un chico guapo y que son tontos
+*发布：翼族*
 
-看着七哥在那儿胡掰
-Viendo a mi hablando tonterías
-
-我希望你像看到我当时说
-Yo espero que me veas y me digas como en aquel momento
-
-说这个恒大王健林一样的事情
-Hablar sobre lo mismo que Wang Jianlin de Evergrande Group
-
-他会让你发生
-Él hará que suceda
-
-当中共再有任何机会和美国总统和美国好的时候
-Cuando el PCCh tenga la posibilidad de llevarse bien con el presidente de EE. UU o con el país
-
-就是共产党立马死亡的时候
-Es el momento de la muerte inmediata del Partido Comunista
-
-所有的中国共产党员, 你记住我的话
-Todos los chinos comunistas, recuerden mis palabras
-
-今天的9千3百万党员
-Hoy los 93 millones miembros del partido
-
-你已经没有任何能力
-No tienen ninguna capacidad
-
-任何可能来决定你自己的命运
-Y posibilidad para decidir su propio destino
-
-包括习
-Incluyendo a Xi
-
-自从他到了俄罗斯
-Desde que él llegó a Rusia
-
-几次私谈签订下
-Bajo ciertas veces de firmas y charlas privadas
-
-历史世纪的大合约之后
-Luego de los grandes contratos de siglos históricos
-
-这是一条不归路
-Este es un camino sin retorno
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1437256031524950019?s=24](https://twitter.com/se1y7cblljselva/status/1437256031524950019?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

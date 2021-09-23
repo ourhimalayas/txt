@@ -2,49 +2,39 @@
 ---
 
 
-## 中共禁止台湾释迦及莲雾进口 台湾拟向WTO寻求仲裁
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1548825/)
+## 澳大利亚各地快递员实行大罢工
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1548904/)
 
-作者：纽约香草山农场 – 云豹
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/startrack-fleet1.jpg)
+图片来源：fleetimaging.com.au
 
+**【雅典娜快讯】，紧贴时事脉搏**
 
+澳大利亚一家大型快递公司的工人正在全国各地罢工，这对澳大利亚不堪重负的邮政系统又造成了一次打击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+周三，在危机谈判和阻止罢工行动的努力失败后，多达2000名StarTrack公司【注：StarTrack是澳大利亚邮政拥有的运输和物流公司】的员工在午夜离开了工作岗位，离开的原因是有关薪酬和工作条件上的争议。
 
+运输工人工会（TWU）表示，StarTrack公司罢工的人数占总劳动力的70%。但StarTrack公司表示，只有三分之一的员工投票罢工。
 
+StarTrack公司周三向公平工作委员会（FWC）请求阻止或推迟罢工，称这会影响疫苗供应，从而危及生命和健康。但运输工人工会表示他们已经承诺会支持任何医疗的运送。周三晚上，公平工作委员会裁定罢工可以继续进行。
 
-9月19日，中共方通知台湾，自20日起，中共将暂时停止从台湾进口释迦及莲雾，其给出的理由是，这两种水果中含有介壳虫。事实上，这是自今年二月底禁止台湾菠萝进入中国后，中共再一次限制台湾水果进入中国的行动。
+工人们希望公司保证，雇佣工将获得与正式员工相同的工资和条件，并限制使用低薪外部工人。他们还希望公司将工作承包出去之前先得到工作机会。
 
-![](https://atvoss.oss-cn-hongkong.aliyuncs.com/wp-content/uploads/2021/09/7203311632043347531026.jpg?x-oss-process=style/imgcompress)图片来源：台湾农委会
+运输工人工会全国秘书迈克尔·凯恩（Michael Kaine）说，现在是快递服务行业奖励工人的时候了。
 
-台湾农委会表示，台湾并没有接到过中共发出的关于释迦及莲雾检验不合格的通知。依据国际规范，即使上述两种输往中国的水果存在介壳虫的问题，也可以在输入地经过溴化甲烷熏蒸处理后再输入，无须暂停贸易；或是经由双方根据科学证据协议强化改进措施；也可要求输出方在规定限期内改善产品质量，而不是由中方片面地宣布暂停输入。
+凯恩表示，联邦快递、Linfox和Bevchain的数千名工人在过去一周也投票支持罢工行动。
 
-早在今年3月初，中共就曾经以台湾的菠萝有介壳虫为理由，突然在菠萝盛产季禁止台湾菠萝输往中国，意图影响台湾果农的收益，借此制造政治问题。所幸，台湾政府积极向外推广销路，台湾民众也合力购买已经盛产的菠萝，同时国际友人也伸出援手，尽力帮忙推广介绍。根据台湾官方发布的数据显示，今年台湾菠萝在失去中国市场后并未遭遇致命性打击——台湾菠萝对日本与香港的出口量增长了数倍。而今，中共再次禁止台湾的释迦及莲雾进入中国。对此，不少日本网友在网上贴文，希望释迦及莲雾能够出口到日本，
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-台湾农委会主委陈吉仲表示，农委会防检局在19日已经回函给中方，要求中共在9月底前提出解决方案，否则，农委会将在10月向WTO提出争端解决申请。
+**参考新闻：**[Parcel delivery workers strike across Australia (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/09/23/star-track-strike-australia/)
 
-（本文仅代表作者观点）
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-参考阅读：
-
-[中國禁台釋迦蓮霧 農委會不排除10月首提WTO爭端解決](https://www.cna.com.tw/news/firstnews/202109200039.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
