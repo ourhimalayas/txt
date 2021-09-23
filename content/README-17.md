@@ -14,6 +14,8 @@
 ---
 ## 頁面 17/34 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [34](/content/README-34.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：9月3號白宮前直播  ](/content/2019/09/20190904-4087259509718924066.md)
+
 [文字版：2019年9月3日郭先生第一次直播](/content/2019/09/20190904-8691813112681761342.md)
 
 [文字版：2019年9月2日郭文贵先生图桑报平安直播](/content/2019/09/20190904-5593137024471595991.md)
@@ -61,8 +63,6 @@
 [文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
 
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/2019/08/20190807-8437960932132112238.md)
-
-[文字版：2019年8月3日关注香港即将发生的大事](/content/2019/08/20190805-62375152236056349.md)
 
 
 ## 頁面 17/34 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [34](/content/README-34.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
