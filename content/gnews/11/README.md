@@ -2,62 +2,58 @@
 ---
 
 
-## GETTR CEO：GETTR不会封锁美国州长新闻秘书的账户
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1549891/)
+## Facebook撤下关于HHS吹哨人的真相工程视频
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1549855/)
 
-- 编译：wenwu–西班牙喜悦农场
+- **编译：wenwu**
 
 
-如果你不认为，大科技公司和其媒体盟友对他们最鄙视的保守派是表现出不屑一顾的态度，那么你在过去一年中没有在关注佛罗里达州。第46任佛州州长罗恩·德桑蒂斯(Ron DeSantis)一直是主流媒体最喜欢的目标，因为他在处理中共病毒大流行的方法是推广疫苗，并承认美国人是天生的自由人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip112.png)
 
-因此，当我们看到硅谷巨头 Twitter 与美联社的勾结，并通过媒体平台攻击德桑蒂斯的州政府，就显得不会震惊的原因是：他们在中共病毒和疫苗的利益上存在共同性。他们都给Cancle Culture增添了新的案例，德桑蒂斯的新闻秘书克里斯蒂娜·普肖（Christina Pushaw）是大科技公司政治言论审查运动的最新受害者。在敢于回击美联社记者对其老板提出的可疑指控后，普肖竟然被暂时锁定了她的推特账户。
+周日，真相工程（Project Veritas）发布了一段重磅的卧底视频，它是关于卫生与公共服务部（HHS）的医生和护士讨论了，他们对疫苗的疑虑以及它可能会造成更多的伤害而不是好处。同样的视频也分享到了 Project Veritas 创始人詹姆斯·奥基夫（James O’Keefe）的账户；不久之后，Facebook 和 Instagram 从 O’Keefe 的帐户中删除了这些视频。（点击：[相关新闻报道](https://gnews.org/zh-hans/1547340/)）
 
-她反对一篇报道，该报道称德桑蒂斯正在兜售再生元（Regeneron）公司生产的中共病毒 mAb 疗法，因为他的一个主要政治捐款人投资了该公司。
+Project Veritas 办公室主任（[@EricSpracklen](https://twitter.com/EricSpracklen/status/1440133533964640257?s=20)）在 Twitter 上发帖（如图）称，从 O’Keefe 帐户中删除视频的原因是，它“可能会造成身体伤害”（大白话：阻挡命运共同体通过“再来一针”而赚钱的道理）。
 
-美联社没有提供任何证据表明，德桑蒂斯推广这种药物的目的不是出于保护佛罗里达人的健康。事实上，在这篇报道中，美联社被迫承认，再生元公司的治疗方法“已被证明可以减少大约70%的住院率和死亡率”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-23T132800.845.png)
 
-美联社试图硬着陆：疫苗是首选。因为它们可以预防中共病毒（covid-19)感染，而再生元药物则用于已经患病的病人。但德桑蒂斯从未提出过任何相反的主张，事实上，他也曾广泛地推动疫苗的使用。
+Facebook 没有详细说明它如何造成身体伤害；更令人困惑的是，虽然 O’Keefe 的帐户被标记，并且视频也从他的页面上被删除，但视频仍然保留在 Project Veritas 的 Facebook 和 Instagram 页面上。Project Veritas 的一名工作人员告诉 RedState，虽然这些视频大约在同一时间发布，但该视频在一小时内就从 O’Keefe 的页面上，被删除了。
 
-进一步破坏他们关系的前提事实是，川普和拜登政府都曾吹捧再生元药物对感染中共病毒患者是有效的。那么这就不存在党派问题了；另一方面，（无耻的）PolitiFact 公司指出，这位州长的捐赠者是再生元公司的小股东；最后，正如德桑蒂斯在给美联社的信中指出的那样，“由于联邦政府早就买断了再生元公司的中共病毒 mAb 治疗的全部股票，这个就明显是一种诽谤了”。
+“我们认为这可能是一种隐蔽的威胁，”他告诉 RedState。“你的一言一行都在被别人监视着。”
 
-美联社的大片报道就这样了。
+他还猜测，他们之所以没有把视频从Project Veritas网页上删除，是因为知道这样做会让该视频的信息产生一种史翠珊效应（Streisand effect，弹簧原理）。由于仅在过去两个月里，Project Veritas的粉丝就在许多不同的平台上出现了快速增长，这很可能是事实。一旦社交媒体巨头试图限制信息的消息传出，人们就会主动去搜索大科技公司试图封杀的内容。
 
-当普肖在推特上为她的老板辩护时，她是在做她的工作，从事的正是那种如果她是自由派民主党人就会在社交媒体上，大肆宣扬并早已允许在推特上流行的事情。
+事实上，这段视频在 Twitter 上引起了轰动，并且 Project Veritas 和 James O’Keefe 的账户都因此被封锁了。今天，Project Veritas、James O’Keefe 和标签“[#CovidVaxExposed](https://twitter.com/EricSpracklen/status/1440219661228933120?s=20)”如今已在社交媒体平台上成为热门话题。
 
-那么，她到底犯了什么严重的错误，要被关进推特监狱？首先，普肖戳穿了美联社的谎言，然后要求她的追随者“拖住他们”，这个词在《城市词典》中的定义是：“狠狠地敲打某人”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-23T132942.609.png)
 
-对于不了解情况的人来说，“拖”（敲打某人）是推特上的一种热身运动，每天发生数千次，最常见的是把保守派作为嘲讽对象。
+与此同时，Project Veritas 强烈澄清视频的真相不存在任何形式的伤害，只有阻止疫苗的真相传播对人才会造成可见的伤害。
 
-她还在推特上发布信息，其中包括“把你拖下水”这一短语，这通常被认为是指突出某人的具体行动或意图。
+“我们正在揭露身体伤害，而不是造成伤害，”项目 Veritas 工作人员告诉 RedState。
 
-当有人以这种方式批评保守派时，推特很少眨眼，但如果事情发展到危及到了主流媒体说谎的权力，大科技公司会毫不犹豫判处普肖12小时的禁闭。
+拍摄卧底视频的凤凰印度医院的首席执行官已经发表一份[声明](https://twitter.com/EricSpracklen/status/1440184512361615363?s=20)（如图）声称，他们知道这段视频，并承认视频内容所包含的“令人不安”的信息。他们说，他们现在正在处理问题和投诉。
 
-普肖则否认曾试图指挥州长的追随者一起敲打法新社记者的谎言，并删除了这些推文以避免他人混淆概念。她坚持自己的主张，即美联社的报道就是故意误导（诽谤）。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-23T133119.497.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-40.png)
+这段视频引起的轰动已经极大地震动了网络社交平台，但据Project Veritas称，一切都是刚刚开始。
 
-但这一事件所凸显的社交媒体平台的不正义性，就是对像 GETTR 这样的新社交媒体平台的需求——一个新的“Cancle Free”的社交媒体平台，它在成立的短短两个月内就吸引了超过200万用户。事实上，GETTR（如图）是历史上发展最快的社交媒体平台，仅用3天时间就获得了100万用户，而 Twitter 用了24个月，Facebook 需要10个月。
-
-在GETTR上，用户参与思想市场，挑战大公司对信息共享和更广泛的公共话语的控制。
-
-在GETTR上，没有人会因为他们的政治观点而被取消，因为我们并不害怕竞争的思想。
-
-而在GETTR上，克里斯蒂娜·普肖会自由地为她的老板辩护而不用担心被关禁闭。
+“这只是视频的第一部分，” Project Veritas 的工作人员告诉 RedState。“视频的全貌肯定更令人震惊。”
 
 **简评：**
 
-**郭文贵先生于周二发[盖文](https://gettr.com/post/pbvjjmb49b)表示推特公司[的不检点](https://www.reuters.com/technology/)由来已久：路透社 9 月 20 日 – 推特公司 (TWTR.N) 周一表示，将支付 8.095 亿美元来解决股东集体诉讼，该诉讼指控这家社交媒体公司在人们使用其平台的频率方面欺骗投资者。这简直和中共国在美国上市一摸一样，单纯来割韭菜的！**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-23T133717.348.png)
 
-**在谎言的开头背后往往都有割韭菜的动机，还往往都会附带着非常LOW的作恶情节。据2021年9月17日《TheJournal》[报道](https://www.thejournal.ie/hse-reports-social-media-misinformation-accounts-5551750-Sep2021/)，爱尔兰 HSE 曾在 Twitter、Facebook 和 Instagram 上报告了1千多条关于中共病毒大流行和疫苗接种计划的错误信息。换句话说，爱尔兰 HSE 在社交媒体上所举报的可能大部分是我们的战友。**
+**感谢小福利（[@xiaofuli](https://gettr.com/post/pbzabh86ba))夫妻的GTV分享，点击[链接观看](https://gtv.org/video/id=614b9d...)《德国新冠病毒委员会记者发布会》。**
 
-**值得一提的是，爱尔兰 HSE 的举报行为是被谁唆使的，他们这群网络水军从中得到了多少好处？这值得思路。**
+**疫情的真相关乎着每个人的生命安全，今日西方世界澳大利亚照搬香港的黑警执法模式，并且连中共国的《国安法》都如同改名为澳大利亚的《封锁法》。这因为给我们所有人敲响警钟，西方警察可以随意向和平、无辜、不顺服的公民开枪，法律只不过是国家国家管理着控制小人物（老百姓）的手段。**
+
+**值得庆幸的是，在知道世界的真相后，我们还有爆料革命的运动和疫苗的解药。**
 
 （文章仅代表作者观点 与GNEWS无关）
 
-**新闻来源：**《[bizpac评论](https://www.bizpacreview.com/2021/09/21/jason-miller-desantis-press-secretarys-twitter-suspension-would-not-have-happened-on-gettr-1137767/)》｜作者：Jason Miller｜发布时间：2021年9月21日
+**新闻来源：[《红洲》](https://redstate.com/brandon_morse/2021/09/21/facebook-takes-down-project-veritas-video-featuring-hhs-staff-denouncing-the-covid-19-vaccine-n446044)｜作者：布兰登·莫尔斯｜发布时间：2021年9月21日｜**
 
 * * *
 
-*发稿：信心的选择*
+***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEWS_CH.-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)

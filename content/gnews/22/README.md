@@ -2,38 +2,43 @@
 ---
 
 
-## 美国联合航空公司员工就公司强制疫苗令提起诉讼
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1549833/)
+## 有声|医疗前线护士揭露媒体和政府谎言
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1549955/)
 
-**By:秘翻新闻**
+配音：纽约香草山美食部 – 玫瑰园
 
-***2021-9-23***
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/923-2.jpg)](https://gtv.org/broadcast/watch/614c41fb42a8af3151a39f27)点击图片观看视频
-**新闻摘要:**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-1、 海航易主 方大集团再次“蛇吞象”
 
-2、王立科被“双开” 孟建柱高危？
 
-3、厦门同安疫区 外地人曝歧视乱象
 
-4、许家印被曝十年从恒大分红获500亿
 
-5、美国联合航空公司员工就公司强制疫苗令提起诉讼
+国家新闻网站9 月 21 日报道，越来越多的护士站出来揭露新冠疫苗的谎言。全国和世界各地的医护人员面临接种强制令，被上级以“职位不保”作为威胁，有些已被解雇。他们表示：没有什么可失去的；现在能做的，就是把疫情期间发生在医院、诊所、和疗养院亲眼目睹的谎言及暴行，揭示给民众。
 
-6、诺贝尔奖得主发出警告：疫苗赋予中共病毒变种能力
+据一位注册护士在 Stew Peters Show 接受采访时说，自新冠病毒疫苗推广以来，与接种相关的伤害层出不穷，比如血凝块、心脏及神经学问题、平衡、认知、攻击性行为、脑科疾病等。 很多不良反应并没有被记录入疫苗报告系统。
 
-7、比特币暴跌12%，或因恒大事件
+新冠病毒疫苗的推出是一场噩梦，所有的一切基于利润：这致使保险公司、制药商掩盖包括伊维菌素在内的使用成熟药物。医学已经被政治化，主流媒体充斥着虚假信息；人们对医学、卫生健康系统不再抱有信心。
 
-8、澳洲重现香港场景 挑衅者伪装为游行人士
+在整个世界被疫苗政治伤害的当下，GTV和GETTR平台在坚持传播着真相：新冠病毒和新冠疫苗是生化武器，千万不要打疫苗
 
-9、中共被指在缅甸暗中进行疫苗外交 欲两边通吃
+[文字版原文：医疗前线护士揭露媒体和政府谎言](https://gnews.org/zh-hans/1548125/)
 
-**GTV链接：**[https://gtv.org/video/id=614c41fb42a8af3151a39f26](https://gtv.org/video/id=614c41fb42a8af3151a39f26)
+音频处理：喜山必胜Maverick
 
-发布: 文橙
+*发稿：*Yuki jiang
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

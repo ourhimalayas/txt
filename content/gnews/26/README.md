@@ -2,19 +2,33 @@
 ---
 
 
-## 国防部监察长呼吁国防部应减少对中共国药品供应链的依赖
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549601/)
+## 恐公民数据流向中共，波兰将弃用华大基因
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549752/)
 
-#### 翻译/撰稿：zzballack
+栏目记者/责任编辑：修文
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-2-4.jpg)图片来源：BioSpace
-据《华盛顿自由灯塔》（Washington Free Beacon）9月22日报道，五角大楼监察长9月22日发布了一份报告警告说，随着美国商业部门在药品供应链上对外国的依赖性增加，该部门也跟着增加。其中国防部对中共国药品供应链的依赖构成了严重的国家安全风险。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-五角大楼不生产自己的药品，因此它依靠美国商业部门为美军采购重要药品。美国食品药品管理局（FDA）2019年的一项研究称，大约72%的商业药品从外国采购，其中13%来自中共国。在中共病毒大流行的早期阶段，中共曾威胁要扣留美国公民的救命药物。监察长的报告总结说：“药品供应中断可能会影响到国防部受益人的护理标准。一旦外国活性药物成分生产商中断对美国的供应，可能会导致药物短缺，影响到美国医疗保健系统的每个层面。”
 
-监察长在报告中呼吁立法者为五角大楼对中共国药品的依赖寻求补救措施，“我们建议负责采购和维持事务的国防部副部长，为包括药品在内的国防部物资的供应链风险管理制定和发布实施指南，并寻求联邦立法，要求药品制造商在药品包装上注明活性药物成分和药品的原产国信息。”
 
-中共将公共卫生武器化的能力并不局限于药品或冠状病毒。一项国家情报评估发现，中共正大规模收集美国公民的DNA，他们可能想利用这些数据来对美国人进行监视或操纵。
+自由时报9月23日消息，波兰正在进行一项波兰人基因图谱计划，因外包的第三方采用中共国“华大基因”公司的定序技术。目前波兰政府担心本国公民基因资料被泄露，计划取消该合约。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.50.43-PM.png)
+此前波兰科学院人类基因委员会曾暗指华大基因不遵守基因检测伦理，但约十万份完整的波兰基因组可能已经流入华大基因。美国人工智慧国家安全委员会的报告，也指华大基因扮演中共国政府”全球基因资料库”的收集角色。
 
-新闻来源：[IG: Pentagon Reliance on Chinese Pharmaceuticals Creates National Security Risk](https://freebeacon.com/national-security/ig-pentagon-reliance-on-chinese-pharmaceuticals-creates-national-security-risk/)
+作为中共采集全球人类基因信息样本的前哨站，华大基因已多次被世界各国发现其采集、窃取基因信息的行为，并质疑其为中共军方背景。中共国军事理论专家曾公开著书立说,鼓吹针对人类基因的生物战争时刻都在准备中。只不过中共不是受害者，反而正是这种基因战争的发起者，新冠病毒和疫苗正是释放他们的基因武器!
+(本文仅代表作者观点)
+
+参考链接：[防數據流入解放軍 波蘭棄用華大基因](https://news.ltn.com.tw/news/world/paper/1474441)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

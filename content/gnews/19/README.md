@@ -2,159 +2,61 @@
 ---
 
 
-## 有声|万般辛苦唯有自赎
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1549994/)
+## 雷曼兄弟的所有公司情况被某个组织掌握了几年
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1550097/)
 
-配音：纽约香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-17.jpg)https://gtv.org/video/id=614c48c1d2e2b817486cca1c
+郭文贵
+Miles Guo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+在华利安诺基就是不良资产国际处理公司处理雷曼兄弟的小组里面
+Houlihan Lokey, Inc. the international processing company for non-performing assets had a team for dealing with Lehman Brothers case
 
+现在拿了几千万美元去处理恒大事情
+Now they took tens of millions of dollars to deal with Evergrande case
 
+其中美国的咱们俩哥们儿，他们都看咱直播
+There are two our brothers in the team, they all watch our live stream
 
-本是可以避免的灾难
+他说郭先生，你这个我百分之百我相信
+He talk to me, Mr. Guo, I 100% believe what you said about this
 
-却因为党国不分的愚昧
+我说为什么呀？他说我处理雷曼兄弟的时候
+I said why? He said when I dealt with Lehman Brothers case
 
-硬让邪恶占了上风
+后来我发现，雷曼兄弟所有的公司的情况被某个组织掌握了几年
+Later I found out, The status of Lehman Brothers-owned companies has been predominated by an organization for several years
 
-总有人天真地以为
+比雷曼自己都掌握，比雷曼自己掌握都清楚
+They know better than Lehman themselves
 
-只要远离政事莫谈国事
+所以这个倒闭，倒塌，
+So this bankruptcy, collapse
 
-做老老实实老百姓
+美国政府出不出手完全在预测之中
+The U.S. government’s decision to step in or not is entirely predictable
 
-就能消灾避祸过太平
+他说你发现有的人赚钱，
+He said you found some people make money of it
 
-跪活得猪狗不如
+有的基金一赚就是几十亿，几百亿，上千亿美元就走了
+Some Fund can make billions, tens of billions, or hundreds of billions of dollars and then leave
 
-度过忍辱负重的一生
+像凯尔 巴斯，那一次一炮就火了
+Just like Kyle Bass, he became well known after that time
 
-而事实恰恰证明
+他说我绝对知道这个邪恶（势力）
+He said I absolutely knew this evil (organization)
 
-你不关心政治
+原视频日期：2021/09/17
+原视频链接: https://twitter.com/se1y7cblljselva/status/1439523790443061251?s=24
+视频时间段 : 0:00-0:56
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 -银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-政治就会合法地整治你
-
-每当我传播真相
-
-人们的脸上总是扬起傲慢
-
-灾难就在这样黑和白的争论中降临
-
-那些为你量身定制的红色套路
-
-每一句甜言蜜语下的为你好
-
-却是一把把杀人不见血的刀
-
-你的命不由你也不由天
-
-独裁胜比阎王爷
-
-当残暴的事实呈现
-
-人们才惊慌地发现
-
-不管你谈不谈国事
-
-不管你跪的有多卑微
-
-都没能躲过邪恶的生死劫！
-
-有钱的、没钱的
-
-有权的、无权的
-
-谁不是在高高铁拳下瑟瑟发抖？
-
-那些相信了共产党而为它卖命的人
-
-那些为了利益驱使而助纣为虐的人
-
-在灾难来临的那一刻
-
-必将成为仇恨的牺牲品！
-
-疫苗比病毒还毒的残忍社会
-
-又开启了一个“伟大”的互斗互害时代
-
-何日才能开智？
-
-何时才能醒悟？
-
-挣脱魔力掌控的唯一途径
-
-是勇敢地站起来反抗
-
-否则三年五载后
-
-人类会进入大毁灭
-
-倒不如挺直腰板活出人样
-
-鱼死网破才有生机
-
-不要再伏地跪拜成不成？
-
-不要再助纣为虐行不行？
-
-不要活得猪狗不如
-
-你却还想着听党话跟党走
-
-明天会更好
-
-不要再把他当亲祖宗供着中不中？
-
-能不能抢在灾难前鼓足勇气？
-
-挺直脊梁
-
-高声喊出，消灭共产党吧！
-
-愚昧清除了
-
-灵魂干净了
-
-好运也就降临了
-
-谁能帮助、拯救我们自己？
-
-唯有坚持从善利他的蓝色信念
-
-唯有获知真相的GTV
-
-唯有击破谎言的盖特
-
-才能让邪恶颤抖
-
-阴谋败落
-
-七芒星带来的人性光辉
-
-是护你周全的诺亚方舟！
-
-[文字版原文：万般辛苦唯有自赎](https://gnews.org/zh-hans/1547848/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,31 +2,33 @@
 ---
 
 
-## 两党议员推动立法 解体大科技公司
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549625/)
+## 台湾正式申请加入CPTPP!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549771/)
 
-#### 撰稿：彩虹
+栏目记者/责任编辑：云豹
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-2-3.png)图片来源：东亚研究中心
-9月22日，《新闻极限》（Newxmax）记者查理·麦卡锡（Charlie McCarthy）报道了两党议员正在推动解体大科技公司，如脸书（Facebook）、苹果（Apple）和谷歌(Google)的立法一事。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-众所周知，上周，面临俄罗斯政府的压力，谷歌和苹果在各自的系统应用商店删除了俄罗斯反对派领导人阿列克谢·纳瓦尔尼（Alexei Navalny）的盟友创建的一个投票应用程序。
 
-面对两党议员正在推动监管和拆分大科技公司的反托拉斯法案，这些大科技公司的领导人说这将对国家安全造成影响。
 
-对此，一名为参议员汤姆·科顿（Tom Cotton）工作的立法工作人员告诉《华盛顿观察家报》(Washington *Examiner*)说，“大科技公司与中共国和俄罗斯同流合污，他们代表中共国进行游说。”他举例说，去年，苹果公司游说反对对中共国维吾尔人进行种族灭绝的制裁，而谷歌为中共国创建了用于审查的搜索引擎。“因此，他们说（监管和拆分这些公司）可能构成国家安全风险，这纯粹是胡说八道。所有这些只不过是他们使用的一个伎俩，试图说服共和党人不要打击他们的垄断行为。”
+9月22日晚间，继中共国之后, 台湾行政院宣布，正式向执行国新西兰递交加入跨太平洋伙伴全面进步协定 即CPTPP 的申请，同时也知会所有CPTPP会员国寻求认可支持。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.54.42-PM.png)
+台湾政府近年来针对加入CPTPP的意向，持续进行与各CPTPP会员国私下咨商的工作，并获得多个会员国的支持, 目前已经与新西兰和新加坡这两个会员国签署了自由贸易协议。 台湾的行政、立法机关也积极配合，完成了大部份的立法准备工作, 正式提出加入CPTPP的申请。对于台湾的申请，日本外务大臣茂木敏充表示欢迎，他强调台湾是日本极为重要的伙伴，且双方具有自由、民主、人权、法治等价值观共识，日本希望与台湾建立更密切的经济关系。
 
-报道说，上周，来自多届政府和两党的前情报界高官致信国会领导人，反对众议院的反托拉斯法案（antitrust bills（反垄断法案）），其中就包括前国防部长莱昂·帕内塔（Leon Panetta）和前国家情报总监丹·科茨（Dan Coats）。这些官员在信中写道：“推行的立法有可能破坏美国公司相对于中共国的关键优势及其创新的能力。”
+一直以来，台湾在与国际社会的各种文化及经贸交流，都面临中共的胁迫及打压。 经贸发展是台湾赖以生存的命脉，这次争取加入CPTPP 对于台湾未来的生存发展都至关重要。我们也预祝台湾能够成功加入CPTPP！
+(本文仅代表作者观点)
 
-对此，科顿的工作人员指出，一些前情报官员与这些大科技公司是有（利益）关联的。他说：“我认为，他们不过是花钱请人提出这样的论点，这样就不用自己亲自出面了。这封信是由那些大科技公司资助的人和盟友们写的。所以，我不认为任何国会议员会认真对待这封信。任何倾向于解体大科技公司的人（议员）都不会被莱昂·帕内塔的这个论点说服。”
+参考链接：[政院：22日申請加入CPTPP 並知會成員國尋求支持](https://www.cna.com.tw/news/firstnews/202109220360.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-针对大科技公司反对反托拉斯法案的论点，民主党人也表达了观点，认为这是欺骗性的说法。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-文章说，一位资深的民主党工作人员告诉《华盛顿观察家报》，“这是有记载以来最为古老的技俩之一，将竞争和国家安全问题进行混淆。这些公司多年以来一直在重复同样的话。”
+终审：文龙
+校正/发稿：我不在这里
 
-这位民主党人士反驳说：“如果说我们的市场被垄断了，然后（实行反托拉斯法案）会对创新和国家安全不利。问题是，如果你不能在美国本土竞争，又有何能力与中共国竞争？”。
-
-文章透露，汤姆·科顿议员将是（拆分大科技公司）相关立法的主要提案人。
-
-新闻来源：[Big Tech Appeasing China, Russia Hurts Argument Against Potential Break-Up](https://www.newsmax.com/newsfront/bigtech-break-up-antitrust-china/2021/09/22/id/1037492/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,46 +2,19 @@
 ---
 
 
-## 克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549347/)
+## 国防部监察长呼吁国防部应减少对中共国药品供应链的依赖
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549601/)
 
-栏目记者/责任编辑：安吉拉
+#### 翻译/撰稿：zzballack
 
-克罗地亚总理普兰·科维奇（Zoran Milanović）在电视讲话中明确表示，在本国的新冠疫苗接种率不会向其他欧盟国家靠拢，目前50%我认为已经足够了，很多人应该心知肚明。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-2-4.jpg)图片来源：BioSpace
+据《华盛顿自由灯塔》（Washington Free Beacon）9月22日报道，五角大楼监察长9月22日发布了一份报告警告说，随着美国商业部门在药品供应链上对外国的依赖性增加，该部门也跟着增加。其中国防部对中共国药品供应链的依赖构成了严重的国家安全风险。
 
-科维奇说：他们不会再把我们用铁丝网围起来进行封锁，我们做的已经足够了。整个世界狂热的目标已经不是根除病毒，而是接种新冠疫苗。很显然，目前发生的一切根本无法解决这个问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-45.jpg)
-在演讲中，科维奇直接对CNN及主流媒体进行抨击：从一开始这些被操控的媒体就在散布恐慌，世界讨论关注新冠病毒已经一年多了，而从今年年初开始，媒体就在一派胡言。
+五角大楼不生产自己的药品，因此它依靠美国商业部门为美军采购重要药品。美国食品药品管理局（FDA）2019年的一项研究称，大约72%的商业药品从外国采购，其中13%来自中共国。在中共病毒大流行的早期阶段，中共曾威胁要扣留美国公民的救命药物。监察长的报告总结说：“药品供应中断可能会影响到国防部受益人的护理标准。一旦外国活性药物成分生产商中断对美国的供应，可能会导致药物短缺，影响到美国医疗保健系统的每个层面。”
 
-在发布该视频片段的推文下面，大家回复对总理的英勇行为表示敬佩，但鉴于之前非洲领导人发表类似声明而意外身亡，现在人们开始担心科维奇的人身安全。
+监察长在报告中呼吁立法者为五角大楼对中共国药品的依赖寻求补救措施，“我们建议负责采购和维持事务的国防部副部长，为包括药品在内的国防部物资的供应链风险管理制定和发布实施指南，并寻求联邦立法，要求药品制造商在药品包装上注明活性药物成分和药品的原产国信息。”
 
-以上新闻来自西班牙巴塞罗那喜悦农场。
+中共将公共卫生武器化的能力并不局限于药品或冠状病毒。一项国家情报评估发现，中共正大规模收集美国公民的DNA，他们可能想利用这些数据来对美国人进行监视或操纵。
 
-参考链接：
-视频：[President of Croatia: The media spread panic and nonsense. We will not be vaccinated anymore.](https://twitter.com/ZNeveri/status/1440070922568798218?s=20)
-视频：[PRESIDENT OF CROATIA: THE MEDIA SPREAD PANIC AND NONSENSE. WE WILL NOT BE VACCINATED ANYMORE.](https://www.bitchute.com/video/8CI2jnXsE08w/)
-[Gnews英文版链接：President of Croatia: The media spreads panic and nonsense. We will not be vaccinated anymore](http://President%20of%20Croatia:%20The%20media%20spreads%20panic%20and%20nonsense.%20We%20will%20not%20be%20vaccinated%20anymore)
-[谁是科维奇： Who is Zoran Milanovic, Croatia’s new president?](https://www.aljazeera.com/news/2020/1/6/who-is-zoran-milanovic-croatias-new-president)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源：[IG: Pentagon Reliance on Chinese Pharmaceuticals Creates National Security Risk](https://freebeacon.com/national-security/ig-pentagon-reliance-on-chinese-pharmaceuticals-creates-national-security-risk/)
