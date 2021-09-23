@@ -2,29 +2,26 @@
 ---
 
 
-## 被政治接管的全球医疗监管部门阻止医生用伊维菌素治疗新冠患者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549214/)
+## 克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549347/)
 
-栏目记者/责任编辑：圣母院钟声
+栏目记者/责任编辑：安吉拉
 
+克罗地亚总理普兰·科维奇（Zoran Milanović）在电视讲话中明确表示，在本国的新冠疫苗接种率不会向其他欧盟国家靠拢，目前50%我认为已经足够了，很多人应该心知肚明。
 
+科维奇说：他们不会再把我们用铁丝网围起来进行封锁，我们做的已经足够了。整个世界狂热的目标已经不是根除病毒，而是接种新冠疫苗。很显然，目前发生的一切根本无法解决这个问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-45.jpg)
+在演讲中，科维奇直接对CNN及主流媒体进行抨击：从一开始这些被操控的媒体就在散布恐慌，世界讨论关注新冠病毒已经一年多了，而从今年年初开始，媒体就在一派胡言。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+在发布该视频片段的推文下面，大家回复对总理的英勇行为表示敬佩，但鉴于之前非洲领导人发表类似声明而意外身亡，现在人们开始担心科维奇的人身安全。
 
-
-
-
-
-据瑞士法语媒体《无名者》（L’Impertinent）9月14日的报道，自2021年1月以来，瑞士莱曼湖，查布莱斯医院的医生已经成功地运用伊维菌素为这里的新冠患者进行了治疗。据医生们反应，已有350至400名患者得到成功治愈，他们的成功引起了高层精英们的关注。 然而，医院的医疗委员会受到来自瑞士国内外有权势的人的施压。院方随即用行政手段禁止在这家医院使用伊维菌素，并宣布“只有来自国内和国际权威机构的建议才能指导新冠治疗” 。随着各国各地更多医生开始用伊维菌素治疗新冠感染者，他们却正面临来自于政府及医生执照管理部门越来越多的审查，压制, 甚至惩罚。最近又有玻利维亚医生因成功应用伊维菌素治愈当地患者，而被当地执法部门刑事拘留的新闻爆出。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-112.jpg)
-这些行动反映了一场自上而下、专家利益驱动、一边倒的信息战，这场战争从国际医疗最高管理机构WHO，一直延伸到当地的具体医学实践。医生对病人几乎没有了发言权。
-
-我们已经清楚地看到，新冠疫情只是个掩护，实际上正在展开的，是一场的国际地缘政治事件，目的就是实现大重启。 在这场由暗黑势力对医学实践的空前接管中，权力、金钱和政治影响力的全球重新配置篡夺了医疗保健，最终控制了每个人的生存权。医学官僚打破了长久以来建立起的医患之间的信任关系。
-
-纵观新冠疫情，全球主流媒体从初始致力夸大疫情，压制有效治疗信息的传播，到后来噤声毒疫苗的副反应的有关报道。事实表明，新中国联邦人一直逆流而上，用真相警醒世界，正在铸就自己的传奇！
+以上新闻来自西班牙巴塞罗那喜悦农场。
 
 参考链接：
-[L’HRC fait marche arrière et interdit l’ivermectine malgré des centaines de bons résultats（尽管取得了数百个良好的结果，但 HRC 放弃了，禁止伊维菌素）](https://www.limpertinentmedia.com/post/l-hrc-fait-marche-arri%C3%A8re-et-interdit-l-ivermectine-malgr%C3%A9-des-centaines-de-bons-r%C3%A9sultats)
+视频：[President of Croatia: The media spread panic and nonsense. We will not be vaccinated anymore.](https://twitter.com/ZNeveri/status/1440070922568798218?s=20)
+视频：[PRESIDENT OF CROATIA: THE MEDIA SPREAD PANIC AND NONSENSE. WE WILL NOT BE VACCINATED ANYMORE.](https://www.bitchute.com/video/8CI2jnXsE08w/)
+[Gnews英文版链接：President of Croatia: The media spreads panic and nonsense. We will not be vaccinated anymore](http://President%20of%20Croatia:%20The%20media%20spreads%20panic%20and%20nonsense.%20We%20will%20not%20be%20vaccinated%20anymore)
+[谁是科维奇： Who is Zoran Milanovic, Croatia’s new president?](https://www.aljazeera.com/news/2020/1/6/who-is-zoran-milanovic-croatias-new-president)
 
 （本文仅代表作者观点）
 
