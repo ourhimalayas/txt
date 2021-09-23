@@ -37,23 +37,23 @@
 ### [2021年9月22日 文贵先生盖特 3](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [Facebook撤下关于HHS吹哨人的真相工程视频](/content/gnews/9/README.md)
+### [美国FDA内部会议揭露：疫苗比病毒致命数倍](/content/gnews/9/README.md)
+ ` MG 澳喜农场多语组`
+
+### [Facebook撤下关于HHS吹哨人的真相工程视频](/content/gnews/10/README.md)
  ` wenwu`
 
-### [GETTR CEO：GETTR不会封锁美国州长新闻秘书的账户](/content/gnews/10/README.md)
+### [GETTR CEO：GETTR不会封锁美国州长新闻秘书的账户](/content/gnews/11/README.md)
  ` wenwu`
 
-### [未满18岁感染新冠状病毒，未经治疗下存活率达99.98%](/content/gnews/11/README.md)
- ` G-NEWS TAIWAN`
+### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/12/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/13/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/13/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/14/README.md)
  ` wenwu`
-
-### [台湾在中共国大陆之后一周申请加入太平洋贸易协定](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [车企“缺芯”困局难解](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
@@ -67,23 +67,23 @@
 ### [疑恒大金服内部会议录音透露了最新兑付方案](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|辉瑞公司称疫苗对5-11岁儿童安全有效，并向FDA寻求紧急使用授权](/content/gnews/19/README.md)
+### [有声|万般辛苦唯有自赎](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [美国联合航空公司员工就公司强制疫苗令提起诉讼](/content/gnews/20/README.md)
+### [有声|医疗前线护士揭露媒体和政府谎言](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|辉瑞公司称疫苗对5-11岁儿童安全有效，并向FDA寻求紧急使用授权](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [美国联合航空公司员工就公司强制疫苗令提起诉讼](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声|白宫宣布11月起打完疫苗才能入境美国](/content/gnews/21/README.md)
+### [有声|白宫宣布11月起打完疫苗才能入境美国](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [拜登联合国大会演讲，表示要为全世界老百姓送去“救命”的中共病毒疫苗](/content/gnews/22/README.md)
+### [拜登联合国大会演讲，表示要为全世界老百姓送去“救命”的中共病毒疫苗](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [克罗地亚总理指责主流媒体散布恐惧，促使人们去打中共病毒疫苗](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [视频| 真相工程 &#8211; 护士揭露医院隐瞒疫苗副作用](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [两党议员推动立法 解体大科技公司](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -103,29 +103,29 @@
 ### [美联航员工对公司强制接种政策提出诉讼](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：疫苗护照将带来斯大林及希特勒式的种族隔离灾难](/content/gnews/31/README.md)
+### [DC大中华时事：英国国会“跨党派国会香港小组”怀疑有英国银行参与香港的政治打压](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：FDA支持辉瑞为老年人和高风险人群提供疫苗加强针](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [民建联唱好大戏配合中共愚弄港人](/content/gnews/32/README.md)
+### [秘翻在线：中共国通信设备自带言论审查被他国拒用](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：疫苗护照将带来斯大林及希特勒式的种族隔离灾难](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [民建联唱好大戏配合中共愚弄港人](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国抢在台湾前申请加入反共的CPTPP](/content/gnews/33/README.md)
+### [中共国抢在台湾前申请加入反共的CPTPP](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华尔街出手相救，恒大回光返照？](/content/gnews/34/README.md)
+### [华尔街出手相救，恒大回光返照？](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [立陶宛：小米手机涉嫌进行电子审查](/content/gnews/35/README.md)
+### [立陶宛：小米手机涉嫌进行电子审查](/content/gnews/38/README.md)
  ` Charlie`
-
-### [“港口危机”会不会偷走我们的圣诞节](/content/gnews/36/README.md)
- ` Charlie`
-
-### [银河快讯：美日印澳四方峰会考虑5G与生物技术合作；反对改变钓鱼岛现状](/content/gnews/37/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [德语媒体：妄想左右逢源的欧洲咎由自取](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [09/22/2021 财经快讯：德国Ifo研究所将德国2021年GDP增长预期下调至2.5%;恒大将于 9 月 23 日支付 3,590 万美元境内债券票息](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [【玫瑰看新闻】第166期](/content/gnews/47/README.md)
+### [【玫瑰看新闻】第167期](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【玫瑰看新闻】第165期](/content/gnews/48/README.md)
+### [【玫瑰看新闻】第166期](/content/gnews/48/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [墙内要闻汇编](/content/gnews/49/README.md)
+### [【玫瑰看新闻】第165期](/content/gnews/49/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [墙内要闻汇编](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】第164期](/content/gnews/50/README.md)
+### [未满18岁感染新冠状病毒，未经治疗下存活率达99.98%](/content/gnews/51/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【玫瑰看新闻】第164期](/content/gnews/52/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [巴西卫生部长注射两剂疫苗后在美确诊](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
-
-### [泽连科医生：美国因注射疫苗死亡的实际人数至少高出5倍](/content/gnews/52/README.md)
- ` 日本东京方舟农场`
-
-### [美国现有27个州正在与拜登激进的新冠疫苗强制令作斗争](/content/gnews/53/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【玫瑰看新闻】第163期](/content/gnews/54/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美法自爆发外交危机后首次通话](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
-
-### [达美航空为何向中共国提供旅客生物识别数据？](/content/gnews/56/README.md)
+### [克罗地亚总理指责主流媒体散布恐惧，促使人们去打中共病毒疫苗](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [银行即将启用二代征信系统，水电缴费信息将入征信报告](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [台湾在中共国大陆之后一周申请加入太平洋贸易协定](/content/gnews/54/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [巴西卫生部长注射两剂疫苗后在美确诊](/content/gnews/55/README.md)
+ ` 日本东京方舟农场`
+
+### [泽连科医生：美国因注射疫苗死亡的实际人数至少高出5倍](/content/gnews/56/README.md)
+ ` 日本东京方舟农场`
+
+### [美国现有27个州正在与拜登激进的新冠疫苗强制令作斗争](/content/gnews/57/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
