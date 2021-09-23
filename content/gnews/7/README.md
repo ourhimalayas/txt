@@ -2,157 +2,21 @@
 ---
 
 
-## 王，江，朱等家族是有国际势力背景的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548692/)
+## 国际金融的垄断现状及未来的数字货币
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1548754/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/100asmvm-ycet4.jpg)
-[https://gtv.org/video/id=614a2006d2e2b817486c1dea](https://gtv.org/video/id=614a2006d2e2b817486c1dea)
+美国搞的这个以反恐的名义控制金融，实际上就是减少你的流动，然后掩盖这些国家超发货币，还有一个就是更重要的事情，这就是金融垄断。
 
-**字幕内容:**
+**【郭先生直播摘要】****2021.9.14 ****国际金融的垄断现状及未来的数字货币**
 
-**郭文贵
-Miles Guo**
+**飞飞：**
 
-王岐山的影响力
-La influencia de Wang Qishan
+说是这个陈元张宏伟他们不是1200亿怎么入账的，然后说现在是不是黑暗势力控制金融系统，所以导致我们这个战友转钱比较困难，然后问此局如何破？我自己觉得此局破就是靠我们的喜币，然后不知道这个答案对不对？然后郭先生。
 
-你们没有真正的研究过
-Ustedes no han investigado de verdad
+**郭先生：**
 
-兄弟姐妹你们想过没有啊
-Hermanos y hermanas, ustedes han pensando
+不对，这个局要破的话需要很长时间，基本上是这样，全世界的金融系统都是因为超量的洗钱，超量的印刷钞票，还有所谓的美国搞的这个以反恐的名义控制金融，实际上就是减少你的流动，然后呢掩盖这些国家超发货币，还有一个就是更重要的事情，这就是金融垄断，这是国家主义走向极权的灾难的开始，你想把这搞定不可能的，永远会伴随着我们，直到有一天新中国联邦强大到也可以制定这个规则的时候。我不受你影响，永远会伴随着我们。除非这个世界在疫苗这个灾难之后，各种主义啊都进行了大的改变，然后我们的正道主义，我们创造的新的生存方式成为世界上最重要的力量时候才能改变，否则是不可能的，事实。
 
-为什么江家的人在美国
-Por qué a la familia Jiang no le ha pasado nada
+再一个张宏伟这个1200亿和陈元把1200亿搞到这个比特币他太容易了。有沙特的配合嘛，沙特在全世界金融机构里面大量的参股，它是用不同的银行，不同的基金，不同的货币注入到买比特币不就解决了嘛，很容易，很容易啊，到了比特币里面几乎就是无人敢查，无人能查，无人能查得到的境界了，这个是因为大家你们没有做过啊，这个我太清楚了。这就是人类已经走到了必须有比特币，就是虚拟货币，加密货币的时代的原因，没有人能挡得住，未来记录人类上的所有的财富，大概超过50到60会在虚拟货币里面存在，一定不是国家主权货币。以后的国家主权货币基本上就是你什么概念呢？在某种范围内某个国家范围能用，虚拟货币是主流，一定是这结局。
 
-啥事都没有
-Estando en EE. UU
-
-朱镕基家在美国
-La casa de Zhu Rongji está en Estados Unidos
-
-就在曼哈顿住啥事都没有
-Está ahí en Manhattan y no tienen ningún problema
-
-曾家人没有敢来美国的
-La familia Zeng no se atreve venir a Estados Unidos
-
-王岐山的所有的钱都在美国搁着
-Todo el dinero de Wang Qishan está guardado en EE. UU
-
-你怎么着
-Cómo haces tu
-
-王岐山女朋友在美国
-La novia de Wang Qishan está en EE. UU
-
-为什么布隆伯格要举着
-Por qué Bloomberg se alza
-
-王岐山说是世界最有权力的人
-A decir que Wang Qishan es la persona con más poder en el mundo
-
-而不是习近平
-Y no Xi Jinping
-
-而报道习近平的家族腐败是华尔街日报
-Y reportaje que hace The Wall Street Journal es sobre el deterioro de la familia Xi Jinping
-
-和当时的布隆伯格
-Y Bloomberg en aquel momento
-
-为什么不报王岐山呢
-Por qué el reporte no es de Wang Qishan
-
-你们今天再往回想
-Ustedes hagan un recordatorio hoy
-
-想爆七哥的第一个人就是
-La primera persona que me quiere reportar es
-
-这个胡舒立呀
-Es esta Hu Shuli
-
-胡舒立呀，想过没有战友们
-Hu Shuli, han pensado compañeros luchadores
-
-胡舒立在哪儿，现在啊
-¿ Dónde está Hu Shuli?, ahorita
-
-那现在SOHO的潘石屹这个傻叉
-Y este tonto de Pan Shiyi en el SoHo
-
-旁边这个楼都是他的啊
-Todos los edificios de al lado son de él
-
-都得给他弄走
-Se lo tienen que quitar
-
-对面的叶选宁的楼
-El edificio del frente de Ye Xuanning
-
-陈锋的楼，你们想过没有
-El edificio de Chen Feng, ustedes han pensado
-
-谁到底和这些邪恶势力有关系
-Quién es el que tiene relación con este poder maligno
-
-人家保谁呀
-A quién están cubriendo
-
-我告诉你
-Yo te digo
-
-这个世界上最惨的就是习近平
-El más triste de este mundo es Xi Jinping
-
-最惨的就会是他
-El más triste será él
-
-普京有东正教
-Putin tiene la iglesia ortodoxa
-
-我不往下说
-No seguiré diciendo
-
-你们知道东正教是干啥的
-Ustedes saben qué hace la iglesia ortodoxa
-
-东正教
-La iglesia ortodoxa
-
-俄罗斯的东正教
-La iglesia ortodoxa de Rusia
-
-现在是跟谁在一起的
-Con quienes están ahora
-
-第二，中国的王岐山
-Segundo, Wang Qishan de China
-
-包括中国的陈元
-Incluyendo a Chen Yuan de China
-
-江家，朱家
-La familia Jiang y Zhu
-
-人家是跟谁的
-Con quienes están ellos
-
-人家有国际势力
-Ellos tienen poder internacional
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1437198393051205634?s=24](https://twitter.com/se1y7cblljselva/status/1437198393051205634?s=24)
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场–彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：北方信使 | 听写：雨山溪桥客 | 翻译：Arthur | 校对：tonyj |字幕+视频制作：小腾腾说

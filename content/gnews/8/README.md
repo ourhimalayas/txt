@@ -2,27 +2,179 @@
 ---
 
 
-## 特鲁多浪费纳税人6.12亿的政治投机大选换来基本没变化
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1548601/)
+## 一切源于共产组织
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1548717/)
 
-**作者：新西兰伊甸农场亚伦**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/7aqguh-nlw49.jpg)
+[https://gtv.org/video/id=614a2142d2e2b817486c1e29](https://gtv.org/video/id=614a2142d2e2b817486c1e29)
 
+王岐山抓的100万个共产党员
+El millón de los miembros del PCCh que arrestó Wang Qishan
 
+是为了仅仅是帮习上去吗
+¿Acaso es sólo para ayudar levantar a Xi?
 
-**可以说，全体加拿大纳税人被迫为特鲁多埋单****6.12****亿加币，仅仅是为自由党“买”多一个议会席位。**
+王岐山没有100%把握控制习 他不会这么做的
+Si Wang Qishan no tiene el 100% de control hacia Xi, él no lo haría así
 
-**9****月****21****日，文贵先生在中秋节大直播中也透露，加拿大的选举结果和一周前得到的情报一样，“小土豆”特鲁多的自由党还是会赢，但是只是少数党的政府，还是想干的事情干不成。并且，他赌这局的赌注代价很大，“小土豆”真正的苦日子要从选举日当晚开始了。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/TRUDEAU_LEADERS_DEBATE_IG-766x431-1.jpg)**2021年9月9日星期四，贾斯汀-特鲁多在魁北克省加蒂诺市参加联邦选举辩论。加拿大新闻社**
+国开行抓了20几个官员
+El Banco de Desarrollo de China arrestó a mas de 20 oficiales
 
+将近11个官员
+Casi 11 oficiales
 
-**这场被特鲁多提前两年举行的毫无效果、完全不达目的大选，自由党预计（目前****99%****选票开票）将获得众议院****338****个席位中的****158****个，仅比****2019****年大选多了一个席位，少于成为多数政府所需的****170****个席位；其最大反对党保守党预计获得****119****个席位，比此前少了两个席位。**
+是从海南出来的 都是王岐山的人
+Han salido desde Hainan, son gente de Wang Qishan
 
-**虽说换来的是加拿大各党派政治版图又基本回到原样，但是政府做事总是要花钱的，这场选举也讽刺的成为史上选举周期最短、耗资最多的大选。即便选举的开销创下了历史记录，但特鲁多的想拿多数席位的投机梦想还是破灭，依然摆脱不了被反对党们严格监督的命运。**
+王岐山都推荐过了陈元
+Wang Qishan hasta recomendó a Chen Yuan
 
-**据文贵先生透露，特鲁多之所以敢于发动这场提前大选，是基于完全的实力和信心，想借助投机疫苗、疫情大撒币、发福利的东风拿下多数议会席位。但是由于得到真相的民众组织起有力的反抗，加拿大全国各地风起云涌的反疫苗、反疫苗护照大游行，才成功戳破了特鲁多拿下多数党的梦想。当下，特鲁多的瞎折腾、骚操作的严重后果也会影响到德国、意大利、比利时、希腊这些国家。这个结果，也会客观上帮助消灭掉这些国家中只为私利的政治投机份子。**
+陈元就是王岐山一条狗
+Chen Yuan es un siervo de Wang Qishan
 
-**特鲁多误以为人心是都要打疫苗，但事实是他被这场跟新冠疫苗相关的政治豪赌赔惨了，其真正的苦日子也将从选举日当晚开始。**
+国开行把钱给谁了
+A quién le dió dinero el Banco de Desarrollo de China
 
-**后附特鲁多总理主要事件：**
+好好看看海外的钱
+Vea bien el dinero en el extranjero
 
-**自上台以来，成为世界第一位参加同性恋大游行国家领导人；****2018****年，把大麻合法化；****2019****年，把大麻食品合法化；兰万灵事件，他要求王州迪为他撒谎；****2020****年，前财长莫诺为他顶罪的****WE Charity ****事件。**
+他就是服务一带一路
+Él es el que hace los servicios de la Franja y la Ruta
+
+国际上就是各国之间蓝金黄、给钱
+Internacionalmente es el plan ADA (BGY) a cada país, dar el dinero
+
+国内扶持中小型科技企业
+Y dentro del país ayudar con las empresas pequeñas y medianas de tecnología
+
+就是共产党的行贿的工具
+Esta es la herramienta de corrupción del PCCh
+
+抓了20几个人
+Arrestaron a más de 20 personas
+
+大多数王岐山的
+La mayoría son de Wang Qishan
+
+那你说到海外的钱
+Y tú dices el dinero que llegó al extranjero
+
+你知道张宏伟和国开行到啥程度
+¿Tú sabes qué tan lejos ha llegado Zhang Hongwei con el Banco de Desarrollo de China?
+
+张宏伟到海外帮助这些国家贷了款以后
+Luego de que Zhang Hongwei ayudó a estos países con el préstamo
+
+张宏伟拿了20%的佣金
+Zhang Hongwei agarró el 20% de comisión
+
+你查查东方海外
+Investiga a Orient Overseas (International) Limited
+
+这香港的东方能源
+Este Shijiazhuang Dongfang Thermoelectric Co., Ltd. de Hong Kong
+
+竟然是国开行投的钱
+Resultó ser dinero invertido por el Banco de Desarrollo de China
+
+而且投到它的股票呢
+Además, invirtió hasta en sus acciones
+
+很多人像刘延东啊
+Muchas personas son como Liu Yandong
+
+像这所有的家人里边的钱
+Como el dinero de todos esos familiares
+
+大家去看看去
+Todos vayan a ver
+
+都跟国开行有关系
+Tienen relación con el Banco de Desarrollo de China
+
+他背后的人贷款
+El que hizo préstamos detrás de esto
+
+贷了国开行的钱再投资他哪儿去
+En dónde invirtió el dinero que pidió como préstamo al Banco de Desarrollo de China
+
+张宏伟
+Zhang Hongwei
+
+他就凭他一个民工出身
+Nació como un Mingong (trabajador migrante)
+
+他凭啥
+Con qué derecho
+
+他不就是被选为
+No es solo porque fue electo como
+
+这个组织上有使命的人吗
+Una persona con misión en esta organización
+
+王岐山、陈元这是有使命的
+Wang Qishan, Chen Yuan estos tienen misión
+
+姚家有使命的人呢
+¿Y la misión de las personas de la familia Yao?
+
+这个组织控制了一个国家的钱袋子
+Esta organización controla la bolsa del dinero de un país
+
+控制了一个国家的领导人
+Controla el líder de un país
+
+剩下所有的人都是该死该杀该用的奴隶
+El resto de las personas son unos esclavos que deben ser usados, matados o deben morirse
+
+绝对反对民主
+Absolutamente en contra a la democracia
+
+绝对反对所谓一人一票选出的政策
+Absolutamente en contra a la llamada política de una persona, un voto
+
+在俄罗斯
+En Rusia
+
+你看看今天的普京所有的作为想干啥了，是吧
+Mira lo que quiere hacer Putin hoy en día con sus acciones, cierto
+
+所有做的都是一模一样的
+Todo lo que hace es igualito
+
+我必须干到一辈子
+Yo debo hacerlo de por vida
+
+必须服务这个精英
+Debo servir a esta élite
+
+其他下边人就是当奴才
+Del resto las personas de abajo lo tienen como esclavo
+
+你不当（奴才）弄死你
+Si no quieres serlo (esclavo) te hago morir
+
+习学到了吗？习学到了
+¿Xi logró aprender? Xi aprendió
+
+习想停下，能停下来？
+Xi quiere detener, ¿podrá detenerse?
+
+停不下来了
+Ya no se puede detener
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1437255804550193152?s=24](https://twitter.com/se1y7cblljselva/status/1437255804550193152?s=24)
+
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,49 +2,22 @@
 ---
 
 
-## 香港首次“爱国者”专场选举正式拉开帷幕
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1548973/)
+## 哈佛大学：歧视性疫苗护照是反科学的无稽之谈！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1548842/)
 
-作者：纽约香草山农场 – 雪梨
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/passport-edited.png)图片来源：thepostmillennial
 
 
+加拿大知名自媒体《Thepostmillennial》9月22日刊登文章说，根据《科学》杂志最近有关对COVID19疫苗的研究报道表明：“人体在感染SARS-CoV-2后形成的自身免疫力比接种了两剂辉瑞生物技术公司的疫苗对大流行性冠状病毒三角洲变体所提供的保护力更强。” 此项8月份就在以色列发表的医学研究结果，无疑将极大削弱目前那些必须使用疫苗护照的国家对该疫苗的迫切需求。
 
-9月19日，据路透社新闻报导，约有5000名建制派香港人将于周日开始投票，以期选出选举委员会的候选人。这些候选人均经过严格地审查，皆忠于中共。相较而言，几乎没有支持民主的候选人参加这次选举。
+该杂志还继续指出：“新发布的研究数据显示，曾经感染过SARS-CoV-2的人比那些从未感染过该病毒或接种过该病毒疫苗的人更不可能感染变种的Delta病毒，也更少出现各种患病症状，或更不易因感染该病毒导致重症而必须住院治疗。”
 
-![](https://ichef.bbci.co.uk/news/640/cpsprodpb/177B8/production/_118048169_9106e6ca-c59b-4911-8b7f-577574bca9cc.jpg)图片来源：EPA
+在世界各地要求提供疫苗接种证明以进行日常生活的趋势日益增长之后，哈佛大学医学院教授马丁-库尔多夫说，该研究结果意味着疫苗护照既不科学，也是 “歧视性的”，因为许多人目前还没有接种COVID19疫苗。为此该哈佛大学的生物统计学家和流行病学家在其推特上强调：“先前已感染过COVID19疾病而最后康复的人对该病毒的免疫力比疫苗本身提供的要更强，所以各国政府所实施的疫苗强制规定不仅是科学上的无稽之谈，也是歧视性和不道德的！”
 
-香港行政长官林郑月娥于周日上午说道，“改进选举制度的目标是确保‘爱国者’管理香港。”
+同时，著名的经济教育基金会对此也宣称：“还有，美国疾病控制与预防中心（CDC）的最新研究表明，已经接种过COVID19疫苗的人仍然会感染该病毒，在这些感染者的喉咙和鼻腔中所携带的病毒数量与未接种疫苗的人几乎同样多。”
 
-据报道，香港政府预计将部署6000名警察，用以确保此次投票顺利进行。此选举委员会将于12月选出改革后的立法会中的40个席位，并在3月选出一位行政长官。
+此外，CDC在罗谢尔地区主任Walensky在科德角爆发了主要是接种疫苗者的疫情后指出：“已接种疫苗者的高病毒载量表明其传播风险的巨大增加，而与其他变种病毒不同的是，感染了德尔塔（Delta）的疫苗接种者仍然可以传播该病毒。”
 
-自《国安法》以来，香港文明和民主已经被中共蚕食殆尽。本次选举制度的改革，预示着香港最后一道防线——法治也惨遭中共的屠戮。
+（以上内容仅代表原文信息和作者个人观点）
 
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Hong Kong’s first ‘patriots-only’ election kicks off](https://www.reuters.com/world/asia-pacific/hong-kongs-first-patriots-only-election-kicks-off-2021-09-18/?taid=6146afefe56df4000174d3f1&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+[原文链接：](https://thepostmillennial.com/israeli-medical-study-vaccine-passports)
