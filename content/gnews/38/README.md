@@ -2,32 +2,47 @@
 ---
 
 
-## 共和党人在美国的联合国演讲后称拜登“向中共国低头”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1548559/)
+## 黑客出售电子疫苗护照
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1548377/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-2.jpg)图片来源 Elaine Cromie/Getty Images
-
-**摘要翻译：**共和党人在乔·拜登总统作为美国领导人首次在联合国大会发表讲话后指责他对中共国态度软弱。
-
-“乔·拜登今天甚至没有说出我们最大的国家安全威胁的名字：中共国”。前联合国大使尼基.海利（Nikki Haley）在一份声明中告诉每日电讯报新闻基金会。“当他在气候变化问题上向中共国低头时，他们正在对维吾尔人进行种族灭绝，镇压香港，威胁台湾，并掩盖新冠病毒。”
-
-阿肯色州的共和党参议员汤姆.科顿（Tom Cotton）星期二告诉福克斯新闻主持人玛莎·麦卡勒姆（Martha MacCallum）。“他就像《哈利波特》小说中一个害怕的孩子，不会说出伏地魔的名字，因为他害怕可能会发生的事情。”。
-
-当被问及拜登为何在讲话中故意省略中共国这个词时，白宫新闻秘书詹·普萨基（Jen Psaki）表示，这“表明他的目标是制定我们可以共同解决的重大问题的积极议程，包括与中共国的合作。”
-
-共和党人也对拜登没有追究中共国对新冠病毒大流行病的责任表示失望。共和党全国委员会主席罗娜·麦克丹尼尔（Ronna McDaniel）在推特上表示，拜登会在病毒问题上追究美国的责任，但不会追究中共国责任。
-
-海利在推特上说：“中共国向世界释放了新冠病毒，如果不追究他们的责任或进行可信的调查，你只会再次将世界置于危险之中”。
-
-简评：我相信不仅美国共和党人对拜登在联合国的发言失望，但凡有正义的民众对他的发言也失望。美国总统拜登在联合国发言对中共国只字不提，还能指望拜登政府对中共国对世界释放新冠病毒追责？这不仅是拜登政府的软弱，也体现了被中共国蓝金黄后的美国政府的堕落及与中共国的同流合污。所以只有通过不断地传播真相来，唤醒更多民众起来捍卫自身的权益。
-
-原文链接：[Republicans Say Biden ‘Bows To China’ After UN Speech](https://dailycaller.com/2021/09/21/biden-bows-to-china-nikki-haley-tom-cotton/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山媒体部 – 文扬四海
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+9月19日，据大纪元消息，一些黑客声称可以进入澳洲卫生部系统，为民众提供医疗记录的修改服务。同时，也有些黑客在电报群等加密软件平台出售数字版新冠疫苗护照。
+
+![](https://i.epochtimes.com/assets/uploads/2021/06/id13010761-GettyImages-1232963191-600x400.jpg)图片来源：Getty Images
+
+事实上，这并不是全球黑客第一次攻击新冠疫苗相关的系统。早在7月31日，因不满政府强制新冠疫苗政策，黑客攻击了意大利拉齐奥大区政府的疫苗预约系统，导致该预约系统陷入瘫痪。另外，很多国家的民众对于政府推出的强制新冠疫苗政策并不买账，这也致使伪造的疫苗卡或疫苗护照在各国接连出现。此前也有消息称，即使在中共国的上海，也有很多人购买150元的假疫苗证应付检查。
+
+而今，不得人心的强制新冠疫苗政策逼迫民众宁愿造假也不愿接种疫苗，希望这项恶政能尽快得以取消。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[黑客兜售数字版疫苗护照 收费1千改医疗记录](https://www.epochtimes.com/gb/21/9/19/n13244541.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

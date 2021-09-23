@@ -103,29 +103,29 @@
 ### [&#8220;中共对美国的威胁超过任何其它国家!&#8221;](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [雅典娜时报-第060期](/content/gnews/31/README.md)
+### [中共禁止台湾释迦及莲雾进口 台湾拟向WTO寻求仲裁](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
+
+### [雅典娜时报-第060期](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [焦点：决定美国兴衰的大选作弊“国家审计”即将揭晓！](/content/gnews/32/README.md)
+### [焦点：决定美国兴衰的大选作弊“国家审计”即将揭晓！](/content/gnews/33/README.md)
  ` 丁过`
 
-### [76届联合国大会近日于纽约召开](/content/gnews/33/README.md)
+### [76届联合国大会近日于纽约召开](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [中共国是否正在接近其雷曼时刻？](/content/gnews/34/README.md)
+### [中共国是否正在接近其雷曼时刻？](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年度互联网自由度排名出炉](/content/gnews/35/README.md)
+### [2021年度互联网自由度排名出炉](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [澳大利亚人放弃枪支接近于投票给专制政权](/content/gnews/36/README.md)
+### [澳大利亚人放弃枪支接近于投票给专制政权](/content/gnews/37/README.md)
  ` wenwu`
 
-### [黑客出售电子疫苗护照](/content/gnews/37/README.md)
+### [黑客出售电子疫苗护照](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [共和党人在美国的联合国演讲后称拜登“向中共国低头”](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [9/21/2021国际财经快讯：摩根大通推出数字银行Chase；恒大债务危机冲击日本制造商](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国的崛起影响到了西方](/content/gnews/47/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021年09月22日澳喜要闻（每日更新）](/content/gnews/48/README.md)
- ` 澳喜农场`
-
-### [【 #G时新闻 】亚利桑那州，成为第一个对“总统乔-拜登”强制疫苗政策提起诉讼的州](/content/gnews/49/README.md)
+### [爆炸新闻! 15万美国人包括600儿童因Covid疫苗死亡](/content/gnews/47/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【小雨专栏】在路上（030）——电视篇](/content/gnews/50/README.md)
+### [中共国的崛起影响到了西方](/content/gnews/48/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年09月22日澳喜要闻（每日更新）](/content/gnews/49/README.md)
+ ` 澳喜农场`
+
+### [【 #G时新闻 】亚利桑那州，成为第一个对“总统乔-拜登”强制疫苗政策提起诉讼的州](/content/gnews/50/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [【小雨专栏】在路上（030）——电视篇](/content/gnews/51/README.md)
  ` 温哥华扬帆农场`
 
-### [2018年4月21日郭文贵先生直播全文字版](/content/gnews/51/README.md)
+### [共和党人在美国的联合国演讲后称拜登“向中共国低头”](/content/gnews/52/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2018年4月21日郭文贵先生直播全文字版](/content/gnews/53/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [相信上天的力量 希望中国人不要陷入苦难的历史轮回](/content/gnews/52/README.md)
+### [相信上天的力量 希望中国人不要陷入苦难的历史轮回](/content/gnews/54/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [9/21/2021 七哥直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害](/content/gnews/53/README.md)
+### [9/21/2021 七哥直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害](/content/gnews/55/README.md)
  ` 秘密翻译组-北美组`
 
-### [新闻速递|立陶宛国防部长告诉公民，扔掉你的中国手机](/content/gnews/54/README.md)
+### [新闻速递|立陶宛国防部长告诉公民，扔掉你的中国手机](/content/gnews/56/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年，美国人从社交媒体获取新闻的比例下降](/content/gnews/55/README.md)
+### [2021年，美国人从社交媒体获取新闻的比例下降](/content/gnews/57/README.md)
  ` 纽约香草山MOS02`
-
-### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/56/README.md)
- ` 秘密翻译组-北美组`
-
-### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/57/README.md)
- ` 秘密翻译组-北美组`
 
