@@ -2,26 +2,29 @@
 ---
 
 
-## 克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549347/)
+## 职业介绍平台现商铺接种助理招聘启事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549396/)
 
 栏目记者/责任编辑：安吉拉
 
-克罗地亚总理普兰·科维奇（Zoran Milanović）在电视讲话中明确表示，在本国的新冠疫苗接种率不会向其他欧盟国家靠拢，目前50%我认为已经足够了，很多人应该心知肚明。
 
-科维奇说：他们不会再把我们用铁丝网围起来进行封锁，我们做的已经足够了。整个世界狂热的目标已经不是根除病毒，而是接种新冠疫苗。很显然，目前发生的一切根本无法解决这个问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-45.jpg)
-在演讲中，科维奇直接对CNN及主流媒体进行抨击：从一开始这些被操控的媒体就在散布恐慌，世界讨论关注新冠病毒已经一年多了，而从今年年初开始，媒体就在一派胡言。
 
-在发布该视频片段的推文下面，大家回复对总理的英勇行为表示敬佩，但鉴于之前非洲领导人发表类似声明而意外身亡，现在人们开始担心科维奇的人身安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-以上新闻来自西班牙巴塞罗那喜悦农场。
+
+
+
+
+英国民众本周发现，各大招聘平台被“新冠疫苗助理”的岗位刷屏。所需岗位地区已不单是卫护机构，更囊括城镇商城和平价药妆店。
+
+对于国家疫苗接种团队的招聘广告，文中用“令人兴奋的机会”来描述这一屠杀帮凶职位。合同制为6个月，职责包括疫苗重新分组、管理和确保接种点有效运转。专业知识并不是必要条件，成功应聘者将享有灵活工作制，并进驻附近的商业活动区。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-37.jpg)
+屈臣氏旗下英国知名药妆店Superdrug从今年2月份开放局部门店接种新冠疫苗，从目前的岗位描述中，可以看出政府将在连锁商铺中设置更多的接种点。Superdrug为此特别设立这一新岗位，虽然是每周只有18小时的兼职工作，作为回报，员工可以获得甚至超出正式全职员工的28天带薪假期。
+
+作为新冠疫苗接种的排头兵之一，截止至9月20日，英国已有四千四百五十万人完成接种，占总人口66.8%。新冠疫苗酿成的无数家庭惨剧，英国政府完全没有放缓接种计划的迹象。究竟还要多久，这次人类历史上最大的毒针计划才能画上句号。
 
 参考链接：
-视频：[President of Croatia: The media spread panic and nonsense. We will not be vaccinated anymore.](https://twitter.com/ZNeveri/status/1440070922568798218?s=20)
-视频：[PRESIDENT OF CROATIA: THE MEDIA SPREAD PANIC AND NONSENSE. WE WILL NOT BE VACCINATED ANYMORE.](https://www.bitchute.com/video/8CI2jnXsE08w/)
-[Gnews英文版链接：President of Croatia: The media spreads panic and nonsense. We will not be vaccinated anymore](http://President%20of%20Croatia:%20The%20media%20spreads%20panic%20and%20nonsense.%20We%20will%20not%20be%20vaccinated%20anymore)
-[谁是科维奇： Who is Zoran Milanovic, Croatia’s new president?](https://www.aljazeera.com/news/2020/1/6/who-is-zoran-milanovic-croatias-new-president)
+[招聘网站indeed：招聘接种助理](https://uk.indeed.com/jobs?q=Vaccination%20%20Assistant)
 
 （本文仅代表作者观点）
 

@@ -2,49 +2,37 @@
 ---
 
 
-## 香港新闻自由的最后堡垒被攻击
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1549013/)
+## 墨尔本封城时间破记录，反封锁抗议越趋激烈
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1549265/)
 
-作者：纽约香草山农场 – 文不破
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/HEALTH-CORONAVIRUS-AUSTRALIA.jpg)
+图片来源：aljazeera.com
 
+**【雅典娜快讯】，紧贴时事脉搏**
 
+在反封锁抗议浪潮的冲击中，澳大利亚第二大城市墨尔本创下了一个严峻的大流行里程碑。据报道，随着感染者激增，墨尔本成为封锁时间最长的城市。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+自大流行开始以来，墨尔本目前已进行第六次封锁，正式成为了封锁冠军。据当地媒体报道，该市总共封锁了235天，超过了阿根廷的布宜诺斯艾利斯设定的基准，后者去年封锁了234天。
 
+自周一以来，示威者每天都走上墨尔本街头，以发泄他们对政府处理大流行病的不满，包括对建筑工人强制接种疫苗的最新举措。
 
+警方使用催泪瓦斯和橡皮子弹试图驱散抗议者。骚乱发生后，约有200人被捕。
 
-9月18日，港府针对香港记者协会展开了一系列的攻击：警务处处长萧泽颐先是指责香港记协拉拢“学生记者”入会，再者他认为香港记协对持不同意见的新闻“选择性失聪”，最后他声称香港记协以政治凌驾于专业之上，以此三条“罪状”向香港记者协会问责。
+**维多利亚警方宣布在反封锁游行上空设立禁飞区后，面临试图掩盖镇压规模的指控。**在这种巧妙的策略引发媒体投诉后，官员们撤回指令并允许媒体直升机在抗议活动上空盘旋。
 
-![](https://gdb.voanews.com/1482DEFF-85D2-4CCD-AE19-716845E206F7_w1023_r1_s.png)图片来源：香港记者协会脸书
+维多利亚州州长丹尼尔·安德鲁斯将骚乱归咎于煽动者，认为抗议活动被想要煽动暴力的挑衅者所劫持。“他们在那里假装抗议，”安德鲁斯周二称，同时谴责：这些事件“令人震惊”。”
 
-对此，香港记者协会虽然进行了回应与辩白，但仍无济于事。事实上，早在9月15日，港府保安局局长邓炳强就要求记协在“撇除个人资料”下公布其会员名单，以“释除疑虑”——但这不过是警方妄图控制记协的变相要求。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-此前，自港版国安法推行以来，全港泛民主派社会团体一片哀鸿，纷纷被迫解散或取消。早先，不仅支联会被控“煽颠”罪，连享有盛誉的香港教育专业人员协会也未幸免。而今，在香港，恶法的倒行逆施导致泛民阵营寸草不生，传媒和言论自由的边界不断被压缩，港人早已无退守的可能。
+**参考新闻：**[Melbourne, reeling from protests against Covid-19 restrictions, sets new world record for longest lockdown — RT World News](https://www.rt.com/news/535588-australia-lockdown-record-protests/)
 
-众所周知，言论自由和新闻自由事关人最基本的安全和尊严，是公民最基础的权利。如今，港府对自由的屠刀一旦落下，这座以人权、法治、专业、高效著称的港口将彻底沦陷。我们唯有积极行动，才能挽救香港于水火。
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-（本文仅代表作者观点）
-
-参考阅读：
-
-[港府国安法屠刀砍向新闻自由最后堡垒香港记者协会](https://www.voachinese.com/a/HK-police-chief-targeting-journalist-association-20210918/6233985.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,29 +2,26 @@
 ---
 
 
-## 美联航员工对公司强制接种政策提出诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549334/)
+## 克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549347/)
 
-栏目记者/责任编辑：文一
+栏目记者/责任编辑：安吉拉
 
+克罗地亚总理普兰·科维奇（Zoran Milanović）在电视讲话中明确表示，在本国的新冠疫苗接种率不会向其他欧盟国家靠拢，目前50%我认为已经足够了，很多人应该心知肚明。
 
+科维奇说：他们不会再把我们用铁丝网围起来进行封锁，我们做的已经足够了。整个世界狂热的目标已经不是根除病毒，而是接种新冠疫苗。很显然，目前发生的一切根本无法解决这个问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-45.jpg)
+在演讲中，科维奇直接对CNN及主流媒体进行抨击：从一开始这些被操控的媒体就在散布恐慌，世界讨论关注新冠病毒已经一年多了，而从今年年初开始，媒体就在一派胡言。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+在发布该视频片段的推文下面，大家回复对总理的英勇行为表示敬佩，但鉴于之前非洲领导人发表类似声明而意外身亡，现在人们开始担心科维奇的人身安全。
 
-
-
-
-
-据福克斯报道，美联航要求6万7千名美国员工在9月27日之前接种疫苗，声称有医疗和宗教原因的人除外。但其六名员工原告说事实并非如此，不接种疫苗的人将需休六年的无薪假期。
-
-原告代表说“我们提起这项诉讼，是为了保护诚实、勤奋的美国联合航空公司员工的权利，他们有宗教或医疗原因不接受新冠疫苗。美联航拒绝提供任何便利，这些员工正遭遇美联航苛刻的规定的高压，要么接种疫苗，要么失去工作。这在美国是不可接受的。”
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-62.jpg)
-据报道，来自华盛顿特区与德克萨斯州共4位律师正在德克萨斯州北区联邦法院发起这项集体诉讼。
-
-另外，一个由美国航空公司员工组成的草根组织，在周二的一份声明中表示支持该诉讼，致力于捍卫成员的宗教自由和医疗自由。
+以上新闻来自西班牙巴塞罗那喜悦农场。
 
 参考链接：
-[United Airlines employees sue company over its ‘draconian’ COVID vaccine mandate](https://www.msn.com/en-us/news/us/united-airlines-employees-sue-company-over-its-draconian-covid-vaccine-mandate/ar-AAOHZsJ)
+视频：[President of Croatia: The media spread panic and nonsense. We will not be vaccinated anymore.](https://twitter.com/ZNeveri/status/1440070922568798218?s=20)
+视频：[PRESIDENT OF CROATIA: THE MEDIA SPREAD PANIC AND NONSENSE. WE WILL NOT BE VACCINATED ANYMORE.](https://www.bitchute.com/video/8CI2jnXsE08w/)
+[Gnews英文版链接：President of Croatia: The media spreads panic and nonsense. We will not be vaccinated anymore](http://President%20of%20Croatia:%20The%20media%20spreads%20panic%20and%20nonsense.%20We%20will%20not%20be%20vaccinated%20anymore)
+[谁是科维奇： Who is Zoran Milanovic, Croatia’s new president?](https://www.aljazeera.com/news/2020/1/6/who-is-zoran-milanovic-croatias-new-president)
 
 （本文仅代表作者观点）
 
