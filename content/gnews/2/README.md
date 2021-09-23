@@ -2,49 +2,34 @@
 ---
 
 
-## 被政治接管的全球医疗监管部门阻止医生用伊维菌素治疗新冠患者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549214/)
+## 监察长：五角大楼对中共国药品的依赖造成了国家安全风险
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1550163/)
 
-栏目记者/责任编辑：圣母院钟声
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-4.jpg)AFP via Getty Images
 
+**报告呼吁将供应链从中共国转移出去**
 
+五角大楼监察长的报告警告称，国防部对中共国药品供应链的依赖严重造成了国家安全的风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+美国军方在全球范围内治疗士兵和人员的能力取决于在国外制造和运输的产品。五角大楼不生产自己的药品，因此它需要依靠美国商业部门为武装部队采购重要药品。周三发布的报告显示，随着商业部门增加对外国的依赖，该部门也随之效仿。
 
+药品供应中断可能会影响美国军人的护理标准，报告总结道。“外国制造[活性药物成分]对国内制造商的供应中断可能导致药物短缺，影响美国医疗保健系统的各个层面。”
 
+根据食品和药物管理局2019年的一项研究，大约72%的商业药品是从外国采购的，13%来自中共国。在新冠病毒大流行的早期阶段，由于华盛顿和北京之间日益扩大的裂痕，中共国甚至威胁要向美国公民扣留救命药物。
 
+中共国将公共卫生武器化的能力并不仅限于药物或新冠病毒。据《华盛顿自由灯塔》二月份报道，一项国家情报评估发现，中国共产党使用美国的医疗数据来收集美国公民的DNA。中共国可能会使用这些数据来针对美国人从而进行监视或操纵。
 
+监察长的报告呼吁立法者为五角大楼对中共国商品的依赖寻求补救措施。
 
-据瑞士法语媒体《无名者》（L’Impertinent）9月14日的报道，自2021年1月以来，瑞士莱曼湖，查布莱斯医院的医生已经成功地运用伊维菌素为这里的新冠患者进行了治疗。据医生们反应，已有350至400名患者得到成功治愈，他们的成功引起了高层精英们的关注。 然而，医院的医疗委员会受到来自瑞士国内外有权势的人的施压。院方随即用行政手段禁止在这家医院使用伊维菌素，并宣布“只有来自国内和国际权威机构的建议才能指导新冠治疗” 。随着各国各地更多医生开始用伊维菌素治疗新冠感染者，他们却正面临来自于政府及医生执照管理部门越来越多的审查，压制, 甚至惩罚。最近又有玻利维亚医生因成功应用伊维菌素治愈当地患者，而被当地执法部门刑事拘留的新闻爆出。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-112.jpg)
-这些行动反映了一场自上而下、专家利益驱动、一边倒的信息战，这场战争从国际医疗最高管理机构WHO，一直延伸到当地的具体医学实践。医生对病人几乎没有了发言权。
+新闻链接：[IG: Pentagon Reliance on Chinese Pharmaceuticals Creates National Security Risk](https://freebeacon.com/national-security/ig-pentagon-reliance-on-chinese-pharmaceuticals-creates-national-security-risk/)
 
-我们已经清楚地看到，新冠疫情只是个掩护，实际上正在展开的，是一场的国际地缘政治事件，目的就是实现大重启。 在这场由暗黑势力对医学实践的空前接管中，权力、金钱和政治影响力的全球重新配置篡夺了医疗保健，最终控制了每个人的生存权。医学官僚打破了长久以来建立起的医患之间的信任关系。
+* * *
 
-纵观新冠疫情，全球主流媒体从初始致力夸大疫情，压制有效治疗信息的传播，到后来噤声毒疫苗的副反应的有关报道。事实表明，新中国联邦人一直逆流而上，用真相警醒世界，正在铸就自己的传奇！
-
-参考链接：
-[L’HRC fait marche arrière et interdit l’ivermectine malgré des centaines de bons résultats（尽管取得了数百个良好的结果，但 HRC 放弃了，禁止伊维菌素）](https://www.limpertinentmedia.com/post/l-hrc-fait-marche-arri%C3%A8re-et-interdit-l-ivermectine-malgr%C3%A9-des-centaines-de-bons-r%C3%A9sultats)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

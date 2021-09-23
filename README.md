@@ -13,20 +13,20 @@
 
 ---
 
-### [未满18岁感染新冠状病毒，未经治疗下存活率达99.98%](/content/gnews/1/README.md)
+### [世界恐惧恒大暴雷](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [监察长：五角大楼对中共国药品的依赖造成了国家安全风险](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [未满18岁感染新冠状病毒，未经治疗下存活率达99.98%](/content/gnews/3/README.md)
  ` G-NEWS TAIWAN`
 
-### [被政治接管的全球医疗监管部门阻止医生用伊维菌素治疗新冠患者](/content/gnews/2/README.md)
+### [被政治接管的全球医疗监管部门阻止医生用伊维菌素治疗新冠患者](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [习近平寻求约束中国式资本主义，坚持毛泽东的社会主义愿景](/content/gnews/3/README.md)
- ` GTV新闻访谈`
-
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
 
 ### [2021年9月23日郭先生直播速记](/content/gnews/6/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
@@ -85,22 +85,22 @@
 ### [人类进入最黑暗时刻，各国政府与人民为敌](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/25/README.md)
+### [秘翻在线: 变异毒株“埃塔”（ETA）遍布世界82 国](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/26/README.md)
+### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [不慎感染病毒, 战友送药见真情!](/content/gnews/27/README.md)
+### [不慎感染病毒, 战友送药见真情!](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/28/README.md)
+### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/30/README.md)
+### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/31/README.md)
@@ -115,17 +115,17 @@
 ### [DC每日热点0923](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [监察长：五角大楼对中共国药品的依赖造成了国家安全风险](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/36/README.md)
+### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [自民党总裁选举分析及下一任首相预测](/content/gnews/37/README.md)
+### [自民党总裁选举分析及下一任首相预测](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：英国国会“跨党派国会香港小组”怀疑有英国银行参与香港的政治打压](/content/gnews/38/README.md)
+### [DC大中华时事：英国国会“跨党派国会香港小组”怀疑有英国银行参与香港的政治打压](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：FDA支持辉瑞为老年人和高风险人群提供疫苗加强针](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [日本知名医生高桥德入驻盖特](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
@@ -151,29 +151,29 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界恐惧恒大暴雷](/content/gnews/47/README.md)
- ` HimalayaRussia`
-
-### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/48/README.md)
+### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/47/README.md)
  ` 英喜-粵語組`
 
-### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/49/README.md)
+### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/50/README.md)
+### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/49/README.md)
  ` 郭爆料串珠`
 
-### [国际要闻汇编](/content/gnews/51/README.md)
+### [国际要闻汇编](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [逝者苏春秀](/content/gnews/52/README.md)
+### [逝者苏春秀](/content/gnews/51/README.md)
  ` 银河勇气之星`
 
-### [《商君书》驭民五术](/content/gnews/53/README.md)
+### [《商君书》驭民五术](/content/gnews/52/README.md)
  ` 纽约香草山MOS03`
 
-### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/54/README.md)
+### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/53/README.md)
  ` 首尔天池农场`
+
+### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/54/README.md)
+ ` GTV新闻访谈`
 
 ### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/55/README.md)
  ` 纽约香草山MOS01`

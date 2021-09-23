@@ -2,26 +2,30 @@
 ---
 
 
-## 美司法部启动计划帮助警察应对大规模暴力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550223/)
+## 川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550240/)
 
-栏目记者/责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-323.png)
-美国司法部周三宣布启动”大规模暴力咨询倡议”项目，将对社区执法的警察负责人提供点对点的信息和资源援助。该项目资金由司法部的司法援助局提供，援助小组成员都是有处理大规模暴力经验的执法官员。司法部代理助理总检察长艾米  所罗门称，任何社区都不允许发生大规模暴力事件。​​一旦发生，司法部将全力介入。
+栏目记者/责任编辑：安吉拉
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-324.png)
+在9月21日的Stew Peters直播采访节目中，这位前美国卫生及公共服务部资深顾问，保罗·亚历山大（Dr. Paul E. Alexander）警示儿童新冠疫苗接种计划恐怖至极、令人惊骇。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-42.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-20.jpeg)
 
-但随即引发民众质疑该项目是在浪费公共资源，” 此前乱象丛生的黑命贵游行示威是否算大规模暴力事件，司法部为何没有介入?”   民众的不满,源于司法部对去年黑命贵的打砸抢烧充耳不闻，却对15名参与国会大厦游行的川普支持者提起诉讼，指控他们存在暴力和妨碍治安行为。
+当权者对于疫苗接种的狂热，远远超出了所有人的想象。他们将无视民众反抗，将人们享受的各项权力一一抹去，以强烈攻势推行新冠病毒疫苗，更多的受害者也无法阻挡这种暴虐的碾压。他们的最终目的：是给每个人都注射一剂毒药。这名前官员继续说，关于新冠病毒，从最开始我们就知道，儿童几乎对它是免疫的，即使发生传播也根本无需任何干预措施。而在疫苗崇拜者的骨子里，他们坚持必须给儿童注射，这无关科学和医学范畴。
 
-日前澳大利亚墨尔本警方对反疫苗的游行民众进行了令人震惊的暴力镇压。美国各地近期也陆续出现不同规模的反疫苗游行，根据这一项目细则, 司法部未来很可能会将这些合法游行定性为大规模暴力事件，所谓援助就是培训当地警察如何镇压游行民众，甚至提供武器支援。”今天的香港就是世界的明天!”文贵先生的预言正在被验证!
+在上周FDA激烈的听证会中，许多令人震惊的真相被揭露出来，包括辉瑞公司操纵报告结果，新冠疫苗导致的严重不良反应和高致死率。但FDA没有听从任何卫生保健人员的意见，依然推进儿童接种计划。保罗警告说，成千上万的儿童，将会因为被强制接种新冠疫苗而受到直接伤害。
+
+处于生长发育阶段的儿童，因自身免疫力发展对环境反应更加敏感。有医学常识的人们愤怒的表示，让孩子们佩戴无效的医疗设备，并且长期使用酒精擦手液、消毒水将消弱其免疫系统功能。恐怖的是，从最开始当权者就在享受这种以虐待为主的变态宗教承诺。
 
 (本文仅代表作者观点）
 
-参考链接：[Justice Department launches program to help police respond to mass violence](https://www.foxnews.com/politics/department-of-justice-launches-program-to-help-police-respond-to-mass-violence.amp?__twitter_impression=true)
+参考链接：[https://gettr.com/post/pbzdql4139](https://gettr.com/post/pbzdql4139)
+[Former HHS Trump COVID Advisor Predicts Mass Child Death](https://www.redvoicemedia.com/2021/09/former-hhs-trump-covid-advisor-predicts-mass-child-death/)
+[FDA Secrets Revealed: BioTech Analyst Issues CHILLING WARNING About Kids – Trump Infiltrated by Commies – Biden Gun Grab Assisted by UN – Milo Yiannopolous LIVE!](https://podtail.com/en/podcast/the-stew-peters-show/fda-secrets-revealed-biotech-analyst-issues-chilli/)
+[EXCLUSIVE! Senior HHS Trump COVID Advisor Says Trump Was Deceived, There’s No “Pandemic”, and Talks ‘Vaccine’ – Plus, Chris Sky Arrested, Cops Weaponized, Kids Suffering](https://podtail.com/en/podcast/the-stew-peters-show/exclusive-senior-hhs-trump-covid-advisor-says-trum/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龍
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**
