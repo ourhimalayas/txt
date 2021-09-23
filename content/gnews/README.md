@@ -37,23 +37,23 @@
 ### [2021年9月22日 文贵先生盖特 1](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [雪城大学的COVID病例中绝大多数都是“完全接种者”](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [巴西卫生部长注射两剂疫苗后在美确诊](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
 
-### [密歇根州取胜！不准强制执行口罩令和疫苗护照](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [泽连科医生：美国因注射疫苗死亡的实际人数至少高出5倍](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
 
-### [加拿大孩子们被免费冰淇淋诱骗到临时诊所接种疫苗](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [每日快报：恒大的模糊备案凸显中国债券市场风险](/content/gnews/12/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [《柳叶刀》转向，开始呼吁对病毒起源进行透明辩论](/content/gnews/13/README.md)
+### [美国现有27个州正在与拜登激进的新冠疫苗强制令作斗争](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马里科帕郡通话录音遭泄露的监事今宣布辞职](/content/gnews/14/README.md)
- ` HimalayaRussia`
+### [台湾在中共国大陆之后一周申请加入太平洋贸易协定](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [达美航空为何向中共国提供旅客生物识别数据？](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [每日快报：恒大的模糊备案凸显中国债券市场风险](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [2021/09/23 墙内世界](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -85,22 +85,22 @@
 ### [美英澳三国共同宣布在印太地区建立新的三边防务联盟](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国防部监察长呼吁国防部应减少对中共国药品供应链的依赖](/content/gnews/25/README.md)
+### [两党议员推动立法 解体大科技公司](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大未来三年需偿付的债务](/content/gnews/26/README.md)
+### [国防部监察长呼吁国防部应减少对中共国药品供应链的依赖](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [职业介绍平台现商铺接种助理招聘启事](/content/gnews/27/README.md)
+### [恒大未来三年需偿付的债务](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [职业介绍平台现商铺接种助理招聘启事](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧](/content/gnews/28/README.md)
+### [克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美联航员工对公司强制接种政策提出诉讼](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [台湾新冠疫苗接种逾1340万剂 覆盖率即将破50% 副作用报告也如韩国一样攀升](/content/gnews/30/README.md)
+### [美联航员工对公司强制接种政策提出诉讼](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [立陶宛：小米手机涉嫌进行电子审查](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [在港上市内地银行股跌幅扩大](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新西兰中文新闻网站遵循中共国言论“审查”规则](/content/gnews/47/README.md)
+### [【玫瑰看新闻】第163期](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [澳洲人放弃拥枪 如今被自己的政府射击](/content/gnews/48/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [美法自爆发外交危机后首次通话](/content/gnews/48/README.md)
+ ` 日本东京方舟农场`
 
-### [中共缺粮放风：习近平用农谚愚民、愚己、愚世界](/content/gnews/49/README.md)
- ` 儒为`
-
-### [亚马逊向接受疫苗接种的仓库和零售工人发汽车和现金](/content/gnews/50/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021年9月21日 文贵先生盖特 6](/content/gnews/51/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月21日 文贵先生盖特 5](/content/gnews/52/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月21日 文贵先生盖特 4](/content/gnews/53/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月21日 文贵先生盖特 3](/content/gnews/54/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [中共通过华为云服务 持续监控美国等四十国政府资讯](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [恒大涨了，大家都很开心的样子](/content/gnews/56/README.md)
+### [银行即将启用二代征信系统，水电缴费信息将入征信报告](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一切都在悄悄变化中](/content/gnews/57/README.md)
+### [日本医生：接种疫苗比治疗中共病毒更赚钱](/content/gnews/50/README.md)
+ ` 日本东京方舟农场`
+
+### [行动才是最好的反击-评欧盟对华战略报告（三）](/content/gnews/51/README.md)
  ` 澳喜农场`
+
+### [中共国手机内置审查功能 立陶宛国防部建议勿购买](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
+
+### [西媒头条 — 第72期](/content/gnews/53/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [CHD总裁等人发声：每个人都必须站起来反对疫苗授权](/content/gnews/54/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [雪城大学的COVID病例中绝大多数都是“完全接种者”](/content/gnews/55/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新西兰中文新闻网站遵循中共国言论“审查”规则](/content/gnews/56/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [澳洲人放弃拥枪 如今被自己的政府射击](/content/gnews/57/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 

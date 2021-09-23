@@ -2,59 +2,64 @@
 ---
 
 
-## 新西兰中文新闻网站遵循中共国言论“审查”规则
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1549597/)
+## 【玫瑰看新闻】第163期
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1549632/)
 
-**SherryOk****水云间**
+2021年9月16日（新西兰时间）
 
-新西兰新闻中心网站9月22日报道，新西兰一家有影响力的中文媒体警告其用户，如果他们违反中共国法律，他们的信息可能会与“相关国家机构”共享。
+墙国新闻：
 
-新闻中心（Newsroom ）透露，一个受欢迎的新闻网站可能会将新西兰人暴露在中国的国家监视之下。
+1.习近平没有挑战者，但这不等于说没有挑战
 
-这一消息引发了人们质疑媒体在涉及外国干涉新西兰的活动中的作用，并促使人们呼吁加强监管。
+2. 恒大危机是否会引发[中国经济](https://www.aboluowang.com/tag/%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E-1.html)的雷曼时刻？
 
-天维网（Skykiwi.com） 将自己宣传为新西兰“最具影响力”的中文媒体，其多平台网站的“日均用户访问量”达到 50 万。除了提供新闻报道外，该网站还运行留言板，讨论各种主题，包括时事。它声称每天有 81,000 名论坛用户。
+3.福奇资助的武汉研究依赖于中国军方提供的人体血液样本
 
-直到 今年7 月，这些论坛[的服务条款都](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;elem=1&amp;u=https://archive.is/QOs7J)包含禁止就一系列话题发表言论的条款，并表示在帖子中违反中共国法律的用户，可以将其信息分享给“相关国家机构”。这表明中共国的情报机构将能够潜在地识别它们。这也意味着对中共国执政的共产党的批评几乎被禁止。
+4. [全球立法者的视频声明：支持立陶宛反对中共国的“欺凌”](https://www.lrt.lt/en/news-in-english/19/1494616/global-legislators-back-lithuania-against-chinese-bullying-in-video-statement)
 
-“根据中共国和新西兰的法律，这个社区 [即Skykiwi] 有义务立即停止传输，保存相关记录，向相关国家机构报告，并删除包含该内容的地址、目录或关闭服务器。”
+5. 俄称全球出口奶粉近四分之一被中国买走
 
-中共国对数字领域的[异议](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;elem=1&amp;u=https://www.chathamhouse.org/sites/default/files/2021-03/2021-03-17-restrictions-online-freedom-expression-china-moynihan-patel.pdf)制定了一些世界上最严格的法律，即使他们在海外发布内容，也可以对其公民强制执行。这意味着在新西兰的中国公民或未来可能希望访问大陆的新西兰华人可能会因在新西兰网站的页面上批评中国共产党而面临法律诉讼的风险。
+（1.习近平没有挑战者，但这不等于说没有挑战）
 
-在该论坛[禁止的行为清单](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;elem=1&amp;u=https://archive.is/QOs7J)上，可以看到，包括“泄露国家机密”，“损害国家荣誉和利益”，“破坏民族团结”，煽动“颠覆国家政权”，“破坏国家政策”，促进“邪教”等名目。这些都在中共国[国家支持的社交媒体平台“微信](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;elem=1&amp;u=https://archive.is/d0S8d)”的服务条款中，和[中共国文化部](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;elem=1&amp;u=https://archive.is/anWLe)列出的“禁止内容”清单，措辞几乎相同。
+据法新社9月16日报道，法国世界报发文，题为：在中国，习近平在为2022年作准备，他没有挑战者，但这不等于说没有挑战。共同富裕其实是习近平的第二级火箭，他的第一级火箭是脱贫，这在2020年已经正式完成。
 
-天维网（Skykiwi）没有回复今年7月，记者有关其论坛服务条款的电子邮件查询。
+世界报还提到了中国的双循环战略，文章说，这是为了提高中国制造的产品品质，旨在不必再到国外去买国家需要的战略物资。法国世界报还提到了中共国与西方保持距离的议题，以及中共执政阶层的连任议题。
 
-但问题发出后，新闻中心（Newsroom） 发现该服务条款页面已更新，删除了有关中共国法律的一行，取而代之的是对“两国”的提及，这表明文本经过了整理，但政策没有改变。
+[新闻链接](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20210915-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%B2%A1%E6%9C%89%E6%8C%91%E6%88%98%E8%80%85%EF%BC%8C%E4%BD%86%E8%BF%99%E4%B8%8D%E7%AD%89%E4%BA%8E%E8%AF%B4%E6%B2%A1%E6%9C%89%E6%8C%91%E6%88%98)
 
-至少有三个条款-泄露国家秘密，颠覆国家政权，破坏国家统一-似乎引用了中共国抑制人权[的法律](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;elem=1&amp;u=https://www.amnesty.org/en/latest/news/2014/05/china-detention-journalist-leaking-state-secrets-smokescreen/)。使用这些限制表明天维网可能希望让中国大陆的用户可以访问其网站，否则，如果允许在其论坛上发表更自由的言论，该网站可能会被阻止。
+（2.恒大危机是否会引发[中国经济](https://www.aboluowang.com/tag/%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E-1.html)的雷曼时刻？）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片-1-12.jpg)
+中共国[恒大](https://www.aboluowang.com/tag/%E6%81%92%E5%A4%A7-1.html)旗下的恒大财富出现违约、延迟兑付，本月13日广东省开了第一枪，要停止发放恒大地产当地项目的贷款。
 
-在澳大利亚国立大学讲授中国外交政策的新西兰学者 纳森（Nathan Attrill） 博士告诉新闻中心， 使用条款中使用的语言“几乎完全反映了对中共国大陆媒体和社交媒体网站施加的法律限制类型” 。
+野村证券分析师指，恒大债务重整几乎无可避免，投资人将损失75%本金。这让投资者着急失望，但更令投资人气愤的是，许家印夫人和恒大高管却早已提前赎回投资。
 
-他说，所使用的术语都是中共经常使用的委婉语，以塑造有关敏感问题的辩论。其中包括与西藏和新疆有关的政策以及在中共国被禁止的法轮功修炼。
+福建莆田号称“中国鞋都”，但在[中美贸易战](https://www.aboluowang.com/tag/%E4%B8%AD%E7%BE%8E%E8%B4%B8%E6%98%93%E6%88%98-1.html)和疫情的双重打击下，多数鞋厂停工，其转型之路充满挑战。
 
-“当分析人士指责中共国试图输出他们的威权治理模式时，他们的意思是：在其他国家创造空间，让公民遵守中国的标准，以保护中国共产党的利益，”他补充说。
+近日大量外贸从业人员抱怨自己的外贸银行账户无故遭冻结，且解冻手续复杂，甚至被要求付“罚金”。有网友直言，这是光天化日之下明抢！目前，恒大事件引发民众思考的问题是：恒大危机是否会引发[中国经济](https://www.aboluowang.com/tag/%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E-1.html)的雷曼时刻？谁又会对遭受惨痛损失的民众负责？
 
-过去曾有人对新西兰的其他中文媒体表示担忧。2019 年，新闻中心报道，根据对其运营结构以及中共国国家互联网和安全许可的调查，专家已将《新西兰先驱报》网站确定为中共国政府的宣传渠道。
+（3.福奇资助的武汉研究依赖于中国军方提供的人体血液样本）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片-2-6.jpg)
+据《国家脉动》2021年9月13日报道，安东尼·福奇的国家卫生研究院机构资助一项中共病毒（covid-19)研究，并且这是与中共军方的一个”部门”合作进行的。这项有争议的数百万美元赠款[支持](https://thenationalpulse.com/breaking/fauci-researcher-describes-gof-collaboration-with-wuhan/)将冠状病毒操纵成“[杀手](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)”。
 
-坎特伯雷大学教授、中国影响力运营专家安妮-玛丽·布雷迪告诉 Newsroom 媒体规定应该更新。
+该研究提及用到的一种缺乏血浆，一种不会凝结的血液是由中国南方医科大学 (SMU) 提供的人血清，并声称：“谢南方医科大学珠江医院X. Che提供人类SARS患者血清。”
 
-“现在我们知道新西兰中文媒体网站正在使用中共国的法律来审查新西兰网站上新西兰公民和居民的讨论，”她说。
+SMU提供的研究材料有助于该研究（从Fauci的NIAID获得”财政支持”），通过”重组分析”对不同的冠状病毒菌株进行操作。他们还讨论了与人类有关的”病毒感染性”研究。武汉病毒研究所的12名研究人员都处在中国人民解放军（PLA）的控制之下。目前，福奇的妻子克里斯汀·格雷迪 (Christine Grady) 是美国国立卫生研究院 (National Institutes of Health) 的生物伦理学主任，她[负责监督](https://www.elle.com/culture/career-politics/a32715031/fauci-christine-grady-nih-covid/)丈夫将现金交给中国共产党研究人员的工作。
 
-“问题是，新西兰政府将对此做些什么？我们的媒体法律和管理机构已经很薄弱，他们完全没有资源，也没有准备好应对外国干涉和外国审查制度。”
+（4. [全球立法者的视频声明：支持立陶宛反对中共国的“欺凌”](https://www.lrt.lt/en/news-in-english/19/1494616/global-legislators-back-lithuania-against-chinese-bullying-in-video-statement)）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片-3-5.jpg)
+据《Lrt》2021年9月13日报道，来自欧洲、澳大利亚、日本和新西兰的十多名立法者呼吁国际社会支持立陶宛与中国的外交争端。如果立陶宛政府受到北京的进一步惩罚措施，立法者呼吁民主国家随时准备向立陶宛政府提供援助。
 
-布雷迪表示，政府应通过法律要求外国代理人登记，并为选举委员会雇用会说中文的工作人员，以更好地监督此类问题。
+[新闻链接](https://www.lrt.lt/en/news-in-english/19/1494616/global-legislators-back-lithuania-against-chinese-bullying-in-video-statement)
 
-新西兰优先党领袖和前外交部长温斯顿彼得斯也同意需要进一步监管，他告诉新闻中心天维网的服务条款“违反了我们的言论自由原则和价值观”。
+（5.俄称全球出口奶粉近四分之一被中共国买走）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片-4-5.jpg)
+据俄罗斯农业部农产品出口发展中心发布报告，**2020**年全球的全脂奶粉出口总量达到**274**万**5900**公吨，当中有近四分之一全被中共国买走，而中共国今年还在持续扩大进口全脂奶粉。
 
-“现实情况是，我们谈论的是一家在新西兰境外运营但不符合我们的标准和言论自由价值观的公用事业公司。”
+该报道称，中共国消费者仍然对国产奶制品缺乏信心。该消息没有提及俄罗斯与中共国谈判奶制品的细节。
 
-在一份声明中，新西兰广播和媒体部长 克里斯（Kris Faafoi） 告诉记者，虽然政府没有干预新西兰媒体的运营决策，但“人们期望他们在准确性、平衡性和公平性方面保持高标准，并遵守相关法律”。
+[新闻链接](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210915-%E4%BF%84%E7%A7%B0%E5%85%A8%E7%90%83%E5%87%BA%E5%8F%A3%E5%A5%B6%E7%B2%89%E8%BF%91%E5%9B%9B%E5%88%86%E4%B9%8B%E4%B8%80%E8%A2%AB%E4%B8%AD%E5%9B%BD%E4%B9%B0%E8%B5%B0)
 
-由于天维网是新西兰媒体委员会的成员，任何未解决的投诉都可以提交给该机构做出决定。
+【文章仅限作者个人观点 不代表GNEWS平台】
 
-克里斯说，政府也正在制定工作计划，以应对提出的更广泛的问题。对媒体内容监管制度的审查正在进行中，同时“我们不断审查我们的保障措施，以确保我们拥有正确的工具来应对潜在的外国干涉问题”。
-
-天维网 没有回应 7 月和本月的多次置评请求。
-
-新闻链接：https://www.newsroom.co.nz/concern-over-censorship-rules-of-nz-chinese-news-site
+审核校对：Barry Jack
+上传排版：F

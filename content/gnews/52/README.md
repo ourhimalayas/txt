@@ -2,15 +2,27 @@
 ---
 
 
-## 2021年9月21日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1549405/)
+## 中共国手机内置审查功能 立陶宛国防部建议勿购买
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1549633/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+**撰稿：日本东京方舟农场 Kevin wang**
 
-9/21/2021 文贵直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离；恒大倒下后，民生银行必将破产；中共地方政府债和保险公司出了大问题，即将发生和西方的长期的债务违约。因此，日本、德国乃至整个世界的经济将随时崩溃！
+9月21日，立陶宛国防部发布报告指中共国手机具有内置审查功能，建议消费者避免购买，如有购买，尽可快速处理。
 
-9/21/2021 Miles Guo: The CCP’s investment in Hong Kong has suffered huge losses in the past year, while many funds are pulling their investment out of HK. The collapse of Evergrande will be followed by the bankruptcy of the Minsheng Bank. The CCP’s local government’s bonds and insurance companies are in deep trouble, and its default on the long-term debts with the West is around the corner. So, Japan, Germany, and even the entire world’s economy are about to crash at any moment!
+据中央社报导，立陶宛国家网络安全机构发布报告指出，在欧洲贩卖的中共国小米手机内置审查功能，以侦测“自由西藏”、“台湾独立万岁”和“民主运动”等用语。目前，可被小米手机系统应用程序审查的用语列表包含449个中文字词，并持续更新中。
 
-[【2021年9月21日】文贵先生盖特原文](https://gettr.com/post/pbt2rp323b)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1200x802_456428775032.jpg)图片来自于网络
 
-**喜联盟Gnews编辑部**
+报告还指出，尽管小米“Mi 10T 5G”手机软件内的审查功能在“欧盟地区”关闭，但随时可远程开启。
+此外，小米手机还会传送加密手机使用数据至位在新加坡的服务器，而华为P40 5G手机也存在安全漏洞。
+报告强调：“这不仅是对立陶宛，而是对所有使用小米装置的国家来说都很重要。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[中國手機審查台獨等用語 立陶宛籲民眾丟棄別買](https://www.cna.com.tw/news/firstnews/202109220345.aspx)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
