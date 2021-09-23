@@ -2,49 +2,39 @@
 ---
 
 
-## 谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1550183/)
+## 大流行前18个月武汉科学家就计划要向洞穴蝙蝠释放冠状病毒
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1550304/)
 
-作者：香草山写作组 -我爱正义
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+据《门户专家》记者乔·霍夫特 2021 年 9 月 21 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/09/wh_adobespark.png)图片来自网络
+我们在 2020 年 4 月曾经报道过，“蝙蝠博士”石，正在使用美国的资金在武汉进行涉及蝙蝠冠状病毒的实验。
 
 
 
-9月19日是“新选制”下的第一场选举，香港媒体不由分说全体起立、拍手叫好。按照港共政府的逻辑，“新选制”第一炮理应以股市上扬以示“民心所向”。讽刺的是，选举结果在早上8:00甫一出台，港股随即在开市一小时内暴跌800点，地产股成为重灾区，一夜蒸发800亿。就连美国股市也受到拖累。难道是资本嗅到了“走向火葬场”的味道？
+> [BREAKING: Dr. Fauci and Obama Admin Gave Wuhan Lab $3.7 Million After Its Top Dr. Shi Zhengli Had US Project Shut Down and She Was Sent Back to China](https://www.thegatewaypundit.com/2020/04/breaking-dr-fauci-obama-admin-gave-wuhan-lab-3-7-million-top-dr-shi-zhengli-us-project-shut-sent-back-china/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.33.27-AM.png)
 
-次日，全球主要媒体都将大跌推锅“恒大”。在香港的中文大外宣《香港01》竟公然炒冷饭，将习近平在2018年的旧账翻出来做成“大新闻”，称习近平曾说“地产商治港的日子一去不復返。”似乎想要影响港人判断，觉得此为“中央决定”，为庞氏骗局面临破产遮遮掩掩。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.33.33-AM.png)
-两日前，路透也故作神秘，称“内部人士”透露北京扬言要地产商“守规矩”，“在闭门会议上‘下了旨意’”。香港媒体随纷纷炒作，地产股暴泻是因为圣旨到、均贫富所致。BBC更将拾牙喙跟着北京批评地产商无良，导致香港楼价高企、社会失衡。从路透社到BBC，再由香港的中文大外宣“引用外媒”，新一轮的媒体超限战就这样颠倒了黑白，翻转了因果。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.33.41-AM.png)
-从文贵先生发来的盖特即可知，本次“黑色星期一”，是山雨欲来风满楼的预告，绝非所谓“北京在整顿香港地产业”的直接结果。即便北京垂涎香港地产商的财富日久，亦无需在媒体轰轰烈烈歌颂“新选举制度英明伟大”的时候，横生枝节，任由股市跌跌不休。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.33.47-AM.png)
-本轮地产股插水的媒体战，可以看到北京惯用的手法——用英文的大外宣路透和BBC带风向，再以本地的中英文大外宣（例如《香港01》、《南华早报》）内呼外应，最终当地中文媒体“纷纷引用”，以形成“公论”，从而烟雾弹变成了民众眼中的“大势”。
 
-至于所谓的“新选制”，显示出共产党在香港已开始裸奔。刚刚“当选”的“选举委员会”一共有1488人，其中，只有一位自称是非亲中阵营的人士，佔比0.06%。据称，所有在港媒体已经通报，对于选委会组成比例一定要避而不谈、对投票率避而不谈，因为投票率也丑陋得可笑——100%。然而，即便是丑陋秃子头上的苍蝇，也要捂着别人的最不许说，更不许笑。这就是今天的香港。
+我们是第一个发现这位蝙蝠博士的。我们在 2020 年 4 月发现，石博士正在维护中共国蝙蝠病毒的库存，并且正在开发对抗病毒的疫苗。
 
-香港如此，世界的沦落亦不遥远。
 
-文章仅代表作者本人观点，与Gnews无关
 
-参考链接：
+> [BREAKING EXCLUSIVE: In 2017 Dr. Shi from Wuhan Institute of Virology Claimed She Kept a Large Reservoir of Bat Viruses and Related Vaccines](https://www.thegatewaypundit.com/2020/04/breaking-exclusive-2017-dr-shi-wuhan-institute-virology-claimed-kept-large-reservoir-bat-viruses-related-vaccines/)
 
-[https://www.hk01.com/%E6%94%BF%E6%83%85/679198/01%E6%B6%88%E6%81%AF-%E7%BF%92%E8%BF%91%E5%B9%B3%E5%85%A7%E9%83%A8%E6%9C%83%E8%AD%B0%E6%98%8E%E8%A8%80-%E5%9C%B0%E7%94%A2%E5%95%86-%E5%B7%A6%E5%8F%B3%E6%B2%BB%E6%B8%AF-%E5%B7%B2%E4%B8%80%E5%8E%BB%E4%B8%8D%E5%BE%A9%E8%BF%94](https://www.hk01.com/%E6%94%BF%E6%83%85/679198/01%E6%B6%88%E6%81%AF-%E7%BF%92%E8%BF%91%E5%B9%B3%E5%85%A7%E9%83%A8%E6%9C%83%E8%AD%B0%E6%98%8E%E8%A8%80-%E5%9C%B0%E7%94%A2%E5%95%86-%E5%B7%A6%E5%8F%B3%E6%B2%BB%E6%B8%AF-%E5%B7%B2%E4%B8%80%E5%8E%BB%E4%B8%8D%E5%BE%A9%E8%BF%94)
 
-[https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/678137/%E8%B7%AF%E9%80%8F-%E4%B8%AD%E5%A4%AE%E5%90%91%E9%A6%99%E6%B8%AF%E5%9C%B0%E7%94%A2%E5%95%86%E6%8F%90%E6%96%B0%E4%BB%BB%E5%8B%99-%E9%9C%80%E6%94%AF%E6%8C%81%E5%8C%97%E4%BA%AC%E5%8F%8A%E8%A7%A3%E6%B1%BA%E4%BD%8F%E6%88%BF%E7%9F%AD%E7%BC%BA%E5%95%8F%E9%A1%8C](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/678137/%E8%B7%AF%E9%80%8F-%E4%B8%AD%E5%A4%AE%E5%90%91%E9%A6%99%E6%B8%AF%E5%9C%B0%E7%94%A2%E5%95%86%E6%8F%90%E6%96%B0%E4%BB%BB%E5%8B%99-%E9%9C%80%E6%94%AF%E6%8C%81%E5%8C%97%E4%BA%AC%E5%8F%8A%E8%A7%A3%E6%B1%BA%E4%BD%8F%E6%88%BF%E7%9F%AD%E7%BC%BA%E5%95%8F%E9%A1%8C)
 
-[https://www.bbc.com/zhongwen/trad/business-58625803](https://www.bbc.com/zhongwen/trad/business-58625803)
+《每日电讯报》现在报道了中共国努力感染中共国洞穴蝙蝠，以用作未来针对冠状病毒的疫苗。电讯报通过[雅虎报道](https://www.yahoo.com/news/wuhan-scientists-planned-release-skin-145326380.html)。
 
-编辑/校对/发稿：正义的小新
+*泄露的**2018**年申请资助的文件显示，武汉科学家计划向中共国蝙蝠种群释放经过增强的，通过空气传播的冠状病毒来接种他们以预防可能传染给人类的疾病。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+*新文件显示，就在首例**Covid-19**病例出现前**18**个月，研究人员提交了一份计划，将含有蝙蝠冠状病毒“新型嵌合刺突蛋白”的穿透皮肤的纳米颗粒释放到中共国云南的洞穴蝙蝠中。*
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*他们还计划创造嵌合病毒，通过基因增强使其更容易感染人类，并要求国防高级研究计划局**(Darpa)**提供**1400**万美元的资金来资助这项工作。**[Darpa**是一家从事新兴技术研发的美国国防机构。**]*
+
+美国与中共国在蝙蝠病毒方面没有商业合作。但是这些与中共国军方合作的努力导致了灾难。
+
+【本文仅代表作者个人观点，与Gnews无关】
+
+原文链接：[https://www.thegatewaypundit.com/2021/09/confirmed-wuhan-scientists-planned-release-coronaviruses-bat-caves-18-months-pandemic/](https://www.thegatewaypundit.com/2021/09/confirmed-wuhan-scientists-planned-release-coronaviruses-bat-caves-18-months-pandemic/)
+
+翻译：烟波浩淼 |校对：雨山溪桥客 |编辑&发布：V

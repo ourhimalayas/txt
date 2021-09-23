@@ -2,32 +2,55 @@
 ---
 
 
-## 美司法部启动计划帮助警察应对大规模暴力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550223/)
+## 《商君书》驭民五术
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1550278/)
 
-栏目记者/责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-323.png)
-美国司法部周三宣布启动”大规模暴力咨询倡议”项目，将对社区执法的警察负责人提供点对点的信息和资源援助。该项目资金由司法部的司法援助局提供，援助小组成员都是有处理大规模暴力经验的执法官员。司法部代理助理总检察长艾米  所罗门称，任何社区都不允许发生大规模暴力事件。​​一旦发生，司法部将全力介入。
+作者：香草山健身部 – 书记己嗝屁！
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《商君书》，被称为中国最“伟大的发明”和“文学巨著”。天下第一禁书。这本书是太子必读的教材，是历代君王和准君王的枕边书，只有少数大臣才有资格读的书。一本薄薄的《商君书》书，不到三万个汉字，居然把封建君主治国手段的细枝末节，阐述得头头是道，深刻到无以复加。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-42.jpeg)
+《商君书》阐述的依法治国，集法家的丑陋和阴损之大成。《商君书》本身，就这么成了空前绝后的“严刑峻法”，读了让人不寒而栗！
 
-但随即引发民众质疑该项目是在浪费公共资源，” 此前乱象丛生的黑命贵游行示威是否算大规模暴力事件，司法部为何没有介入?”   民众的不满,源于司法部对去年黑命贵的打砸抢烧充耳不闻，却对15名参与国会大厦游行的川普支持者提起诉讼，指控他们存在暴力和妨碍治安行为。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.001-1.jpeg)图片来源：zhuanlan.zhihu.com
 
-日前澳大利亚墨尔本警方对反疫苗的游行民众进行了令人震惊的暴力镇压。美国各地近期也陆续出现不同规模的反疫苗游行，根据这一项目细则, 司法部未来很可能会将这些合法游行定性为大规模暴力事件，所谓援助就是培训当地警察如何镇压游行民众，甚至提供武器支援。”今天的香港就是世界的明天!”文贵先生的预言正在被验证!
+《商君书》驭民五术： 
+1. 愚民：统一思想。 
+2. 弱民：国强民弱，治国之道，务在弱民。 
+3. 疲民：为民寻事，疲于奔命，使民无瑕顾及他事。 
+4. 辱民：一是无自尊自信；二是唆之相互检举揭发，终日生活于恐惧氛围中。 
+5. 贫民：除了生活必须，剥夺余银余财（即通货膨胀或狂印钞票）；人穷志短。 五者若不灵，杀之。
 
-(本文仅代表作者观点）
+“辱民”：让百姓们屈辱的生活，没有自尊和思考，没有“体面的工作”和“生活的尊严”，整天生活在恐惧之中。
 
-参考链接：[Justice Department launches program to help police respond to mass violence](https://www.foxnews.com/politics/department-of-justice-launches-program-to-help-police-respond-to-mass-violence.amp?__twitter_impression=true)
+“贫民”：除了生存必须之外，不能让百姓有富余的粮食和财产。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+“弱民”：不能让人民强大。在身体方面，为了耕战，商鞅还是提倡“增强体质、保卫祖国”的。商鞅要让百姓时时感到很没有安全感，才有对君主强烈的依附感。要让人民时常都感到外国敌视和侵犯的威胁，这样，人民觉得君王的伟大和温暖，才会全心全意地为君王效命。
 
-终审：文龍
-校对/发稿：谐趣园
+“以强攻强，弱；以弱攻强，强。强存则弱；弱存则强”。这意思大概是，用强民去消灭另一部分强民，那么剩下来的仍然是强民，那国家就处于弱势。用弱民把强民消灭了，剩下来的是弱民，那就好办了，国家就处于强势了。 强民的存在，国家就弱；只有弱民存在，国家才能强盛。强民，是指那些有思想有主见有本事，还跟国家作对的人；弱民自然是那些被洗脑后惟命是从，没有脑子、没有主见、没有知识、人云亦云的愚民。
+
+除了“以弱制强”的主意以外，一肚子坏水的商鞅，还要君主“以奸驭良”。公然教唆当权者搞流氓政治，小人政治，搞黑社会。他说： “国以善民治奸民者，必乱，至削”；“国以奸民治善民者，必治，至强”。这个好懂，选拔官员不能选那些讲良心道德的，假如用优秀分子来管理奸民，那天下必然大乱。要用厚颜无耻、心狠手辣的流氓来当头领，他们会把恐吓和欺骗手段用好用足，善良的人民只得忍气吞声，兢兢业业夹着尾巴做人，那就天下秩序井然，秦国也就强大了。
+
+“贫民”之术。商鞅讲到，一是要不断折腾，富的把它搞穷，理由可以随便找。贫的要让他们趋富，富起来又把它们搞穷，这样一来，人民就强不起来，也富不起来。反正国家机器在自己手里，要怎么做就怎么做。
+
+照商君的说法，把富的搞穷，穷的让他再富，等富了再搞穷，如此反复折腾，人民心中眼里只牵挂着穷富，不作他想，国家就会稳定。再就是让人民没有恒产。不能让人民有恒心，要让人民整天惶惶不可终日，生活在恐惧之中，没有安全感，只有归属官家，从属官家，才能稍有安定。
+
+谈起中国老百姓为什么总是富不起来，作什么解释的都有，有的说是传统，有的说是命运，有的因为地理，有的归于气候，说到底，就是皇家不想让人富裕罢了。只有贫弱的人民，才有富强的国家，商鞅如此教导，皇上们也心知肚明，照此办理。这样下来，人民能富吗？
+
+**本文仅代表作者观点**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

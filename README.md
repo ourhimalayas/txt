@@ -28,23 +28,23 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月23日郭先生直播速记](/content/gnews/6/README.md)
+### [国际金融的垄断现状及未来的数字货币](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [相信上天的力量 希望中國人不要陷入苦難的歷史輪回](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年9月23日郭先生直播速记](/content/gnews/8/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [串珠392:很多做抗体依赖性增强实验的动物都死了](/content/gnews/7/README.md)
- ` 郭爆料串珠`
+### [澳大利亚维州反对党领袖批评州长安德鲁斯在大流行期间散布恐惧而不是希望](/content/gnews/9/README.md)
+ ` 澳喜农场`
 
-### [串珠391:宁将孩儿藏鼠洞，也不让他打疫苗！](/content/gnews/8/README.md)
- ` 郭爆料串珠`
-
-### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/9/README.md)
+### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/10/README.md)
  ` wenwu`
 
-### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/10/README.md)
+### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [大流行前18个月武汉科学家就计划要向洞穴蝙蝠释放冠状病毒](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -157,30 +157,30 @@
 ### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/49/README.md)
+### [串珠392:很多做抗体依赖性增强实验的动物都死了](/content/gnews/49/README.md)
  ` 郭爆料串珠`
 
-### [国际要闻汇编](/content/gnews/50/README.md)
+### [串珠391:宁将孩儿藏鼠洞，也不让他打疫苗！](/content/gnews/50/README.md)
+ ` 郭爆料串珠`
+
+### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/51/README.md)
+ ` 郭爆料串珠`
+
+### [国际要闻汇编](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [逝者苏春秀](/content/gnews/51/README.md)
+### [逝者苏春秀](/content/gnews/53/README.md)
  ` 银河勇气之星`
 
-### [《商君书》驭民五术](/content/gnews/52/README.md)
+### [《商君书》驭民五术](/content/gnews/54/README.md)
  ` 纽约香草山MOS03`
 
-### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/53/README.md)
+### [大流行前18个月武汉科学家就计划要向洞穴蝙蝠释放冠状病毒](/content/gnews/55/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/56/README.md)
  ` 首尔天池农场`
 
-### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/55/README.md)
- ` 纽约香草山MOS01`
-
-### [中共军力提升威胁日本安全, 但促进日台关系](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [美众议院将对年度《国防授权法》表决, 要求彻查病毒真相](/content/gnews/57/README.md)
+### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 
