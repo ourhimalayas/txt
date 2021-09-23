@@ -2,16 +2,51 @@
 ---
 
 
-## 姆努钦筹备的私募股权基金获软银支持
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549102/)
+## 习近平寻求约束中国式资本主义，坚持毛泽东的社会主义愿景
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548769/)
 
-#### 编译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-36.jpg)图片来源：网络截图
-9月22日，据零对冲报道，美国前财政部长史蒂文·姆努钦（Steven Mnuchin）今年早些时候推出的自由战略基金（Liberty Strategic Capital），采用私募股权模式，筹款目标为25亿美元。
+栏目记者/责任编辑：文一
 
-参与投资的有沙特阿拉伯公共投资基金，软银愿景基金（version fund），还有阿布扎比的穆巴达拉（Mubadala）巨型主权基金，其因之前涉及马来西亚1MDB而备受争议。
 
-姆努钦的基金或专注于金融服务和技术。目前还没有关于它是否拥有任何加密货币的消息。
 
-原文链接：[SoftBank, Middle Eastern Sovereign Wealth Funds Back Mnuchin’s $2.5 Billion Private Equity Fund](https://www.zerohedge.com/markets/softbank-middle-eastern-sovereign-wealth-funds-back-mnuchins-25-billion-private-equity-fund)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)
+
+
+
+《华尔街日报》9月22日发表的研究显示, 习近平正在加强对民营企业的控制, 遏制科技巨头，还希望中共在引导资金流动方面发挥更大作用，为企业家和投资者及其盈利能力设定更严苛的界限, 并对国内经济施加比现在更甚一步的控制。习近平正极力使中国回归毛泽东的社会主义愿景。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-5.jpg)
+据《华尔街日报》统计，去年年底以来，在习近平改革方针的指引下，有关部门已推出100多项监管行动、政府指令以及政策调整，其中包括旨在打破电商巨头阿里巴巴、企业集团腾讯和网约车行业领头羊滴滴等公司市场主导地位的举措。
+
+中国政府最近采取的抑制房价措施正在加剧房地产开发商中国恒大集团的现金紧张状况，这让全球市场感到阵阵寒意。
+
+更甚的是，今年8月的一次领导层会议上，习近平强调要实现“共同富裕”，政府将进一步干预经济以及采取更多措施以均等分配财富。根据其发展理念，政府将拥有控制权，引导国内经济和产业沿着其选择的道路发展，并引导民间资源用于加强国家实力。
+
+此理念对内而言，恐会扼杀大部分创业活力，而正是这种活力促进了中国的繁荣，并激发了多年的创新。
+
+对外企而言，意味着更多限制和要求以及利润流失，包括分享个人用户数据、招聘时录用中共党员，帮助中国政府实现其目标的等。
+
+习近平领导下的政策调整已导致股市市值蒸发了逾1万亿美元。
+
+民营企业及其所有者还被鼓励捐献利润和财富，帮助实现习近平的共同富裕目标。仅阿里巴巴一家公司就承诺要投入相当于155亿美元的资金用于促进社会公平。
+
+据知情人士称，中共国务院国有资产监督管理委员会正筹划建立更多由政府控制的数据存储云服务提供商。
+
+中共政府正在加速开历史的倒车，社会主义的铁拳越攥越紧正在扼杀民生。而《华尔街日报》这篇指名道姓的讨习文章，也证实了国际邪恶势力已同习势同水火。中共与国际邪恶势力不灭，中国人民乃至世界人民都将万劫不复。
+
+（本文仅代表作者观点）
+
+参考链接：[习近平寻求约束中国式资本主义，坚持毛泽东的社会主义愿景](https://cn.wsj.com/articles/%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%AF%BB%E6%B1%82%E5%8E%8B%E5%88%B6%E4%B8%AD%E5%9B%BD%E5%BC%8F%E8%B5%84%E6%9C%AC%E4%B8%BB%E4%B9%89-%E5%9D%9A%E6%8C%81%E6%AF%9B%E6%B3%BD%E4%B8%9C%E7%9A%84%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89%E6%84%BF%E6%99%AF-11632217206)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)

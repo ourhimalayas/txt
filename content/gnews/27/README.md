@@ -2,16 +2,35 @@
 ---
 
 
-## 韩金融服务委员会敦促对恒大潜在违约进行市场监测
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549101/)
+## 蚂蚁金服的小额贷款服务花呗已开始与中共国央行共享数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548768/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/6-19.jpg)图片来源：网络截图
-据韩联社9月22日报道， 韩国最高金融监管机构周三呼吁加强对金融市场的监控，以应对负债累累的房地产开发商中共国恒大集团可能出现的违约。
+栏目记者/责任编辑：文一
 
-本周，全球金融市场因担心恒大可能违约而受到冲击。饱受债务困扰的恒大周三表示，它已经与中共国本土债券持有人达成协议，解决利息支付问题，这有助于缓解对该集团即将可能违约的担忧。
 
-虽然许多专家认为“恒大的债务问题在全球金融市场发展成系统性风险的可能性似乎很有限”，但韩国金融服务委员会（FSC）主席Koh Seung-beom指示官员加强对金融市场的监测，以应对恒大债务问题的发酵。
 
-新闻来源：[Top financial regulator urges market monitoring over Evergrande concerns](https://en.yna.co.kr/view/AEN20210922005600320)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture1-1.jpg)
+因为中共政府正在收紧对金融科技行业的控制权，蚂蚁金服作为电子商务巨头阿里巴巴集团下的金融子公司首当其冲，其虚拟信用卡服务花呗周三在官方微博账户上宣称已被正式纳入中共国央行的信用报告系统，将分享用户账户设立日期、信用额度和使用情况等信息。据悉蚂蚁金服花呗和另一借贷服务借呗共有约5亿用户。
+
+自去年370亿美元的IPO被监管机构否决后，蚂蚁金服一直在中共国政府主导下进行重组。众所周知，数据是公司运营、管理风险和吸引新客户的重要资产，中共国内的大型互联网平台多年来一直倾向于抵制分享数据，但终倒在中共又一轮大力整顿的风暴下。
+
+（本文仅代表作者观点）
+
+参考链接：[蚂蚁金服的小额贷款服务花呗已开始与中共国央行共享数据](https://www.reuters.com/article/china-ant-group-idUSKBN2GI1A9)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)

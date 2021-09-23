@@ -2,39 +2,28 @@
 ---
 
 
-## 澳大利亚各地快递员实行大罢工
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1548904/)
+## 四方安全对话或强硬反对中共欲破坏东海现状的野心
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549162/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/startrack-fleet1.jpg)
-图片来源：fleetimaging.com.au
+#### 编译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-61.jpg)图片来源：法广
+9月22日，《共同通讯社》（KYODO News）发文，针对四方峰会本周晚些时候的会面和即将发表的《联合声明》草案做了报道。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+四方安全对话（Quad – Quadrilateral Security Dialogue）最初是2004年为应对印度洋地震和海啸而成立的。近年来，该对话作为对中共国在该地区日益增长的强硬态度的一种制衡，再次获得关注。
 
-澳大利亚一家大型快递公司的工人正在全国各地罢工，这对澳大利亚不堪重负的邮政系统又造成了一次打击。
+在前总统川普执政期间，四方安全对话举行了外交部长级别的会议。在拜登政府执政期间，双方的接触已经上升到了国家领导人级别，今年3月，四方安全对话举行了首次峰会。
 
-周三，在危机谈判和阻止罢工行动的努力失败后，多达2000名StarTrack公司【注：StarTrack是澳大利亚邮政拥有的运输和物流公司】的员工在午夜离开了工作岗位，离开的原因是有关薪酬和工作条件上的争议。
+周三，有消息人士透露，美国、日本、澳大利亚和印度的领导人在本周五开会时，预计将表明他们反对中共国改变东海和南海现状的企图。
 
-运输工人工会（TWU）表示，StarTrack公司罢工的人数占总劳动力的70%。但StarTrack公司表示，只有三分之一的员工投票罢工。
+文章指，美国政府表示，四方安全对话将提供一个深化关系的机会，促进“自由和开放“的印太地区，并在新兴技术和网络空间等问题上建立伙伴关系。
 
-StarTrack公司周三向公平工作委员会（FWC）请求阻止或推迟罢工，称这会影响疫苗供应，从而危及生命和健康。但运输工人工会表示他们已经承诺会支持任何医疗的运送。周三晚上，公平工作委员会裁定罢工可以继续进行。
+消息说，届时将发表的《联合声明》草案，针对东海和南海，四国成员表示“反对对基于规则海洋秩序的挑战”。
 
-工人们希望公司保证，雇佣工将获得与正式员工相同的工资和条件，并限制使用低薪外部工人。他们还希望公司将工作承包出去之前先得到工作机会。
+同时，在技术合作方面，声明草案将表示，四方将推进安全透明的5G网络合作。
 
-运输工人工会全国秘书迈克尔·凯恩（Michael Kaine）说，现在是快递服务行业奖励工人的时候了。
+草案文件还将强调四国是促进地区和平、稳定和安全的力量，文章认为这反映了在对抗北京方面，拜登政府对印太主要民主国家联盟的重视。
 
-凯恩表示，联邦快递、Linfox和Bevchain的数千名工人在过去一周也投票支持罢工行动。
+文章提醒说，由于离峰会还有几天时间，草案中应用的措辞可能会发生变化。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Parcel delivery workers strike across Australia (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/09/23/star-track-strike-australia/)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：**[Quad leaders to oppose attempts to change status quo in East China Sea](https://english.kyodonews.net/news/2021/09/0d285cfa500b-quad-leaders-to-oppose-attempts-to-change-status-quo-in-e-china-sea.html)
