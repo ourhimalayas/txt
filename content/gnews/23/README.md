@@ -2,9 +2,9 @@
 ---
 
 
-## 川普从未打算过对中共国发动军事袭击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1548987/)
+## GTV、SARACA与SEC和解的意义
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1548985/)
 
-9/14/2021 唐纳德·川普：如果马克·米利将军确实向中共保证，在美国打算对他们发动军事袭击时提前向他们通风报信，那就是叛国罪，更何况川普从未打算军事袭击中国。
+9/14/2021 GTV与SEC和解简介。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

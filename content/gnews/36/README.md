@@ -2,39 +2,22 @@
 ---
 
 
-## 澳大利亚各地快递员实行大罢工
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1548904/)
+## 哈佛大学：歧视性疫苗护照是反科学的无稽之谈！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1548842/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/startrack-fleet1.jpg)
-图片来源：fleetimaging.com.au
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/passport-edited.png)图片来源：thepostmillennial
 
-**【雅典娜快讯】，紧贴时事脉搏**
 
-澳大利亚一家大型快递公司的工人正在全国各地罢工，这对澳大利亚不堪重负的邮政系统又造成了一次打击。
+加拿大知名自媒体《Thepostmillennial》9月22日刊登文章说，根据《科学》杂志最近有关对COVID19疫苗的研究报道表明：“人体在感染SARS-CoV-2后形成的自身免疫力比接种了两剂辉瑞生物技术公司的疫苗对大流行性冠状病毒三角洲变体所提供的保护力更强。” 此项8月份就在以色列发表的医学研究结果，无疑将极大削弱目前那些必须使用疫苗护照的国家对该疫苗的迫切需求。
 
-周三，在危机谈判和阻止罢工行动的努力失败后，多达2000名StarTrack公司【注：StarTrack是澳大利亚邮政拥有的运输和物流公司】的员工在午夜离开了工作岗位，离开的原因是有关薪酬和工作条件上的争议。
+该杂志还继续指出：“新发布的研究数据显示，曾经感染过SARS-CoV-2的人比那些从未感染过该病毒或接种过该病毒疫苗的人更不可能感染变种的Delta病毒，也更少出现各种患病症状，或更不易因感染该病毒导致重症而必须住院治疗。”
 
-运输工人工会（TWU）表示，StarTrack公司罢工的人数占总劳动力的70%。但StarTrack公司表示，只有三分之一的员工投票罢工。
+在世界各地要求提供疫苗接种证明以进行日常生活的趋势日益增长之后，哈佛大学医学院教授马丁-库尔多夫说，该研究结果意味着疫苗护照既不科学，也是 “歧视性的”，因为许多人目前还没有接种COVID19疫苗。为此该哈佛大学的生物统计学家和流行病学家在其推特上强调：“先前已感染过COVID19疾病而最后康复的人对该病毒的免疫力比疫苗本身提供的要更强，所以各国政府所实施的疫苗强制规定不仅是科学上的无稽之谈，也是歧视性和不道德的！”
 
-StarTrack公司周三向公平工作委员会（FWC）请求阻止或推迟罢工，称这会影响疫苗供应，从而危及生命和健康。但运输工人工会表示他们已经承诺会支持任何医疗的运送。周三晚上，公平工作委员会裁定罢工可以继续进行。
+同时，著名的经济教育基金会对此也宣称：“还有，美国疾病控制与预防中心（CDC）的最新研究表明，已经接种过COVID19疫苗的人仍然会感染该病毒，在这些感染者的喉咙和鼻腔中所携带的病毒数量与未接种疫苗的人几乎同样多。”
 
-工人们希望公司保证，雇佣工将获得与正式员工相同的工资和条件，并限制使用低薪外部工人。他们还希望公司将工作承包出去之前先得到工作机会。
+此外，CDC在罗谢尔地区主任Walensky在科德角爆发了主要是接种疫苗者的疫情后指出：“已接种疫苗者的高病毒载量表明其传播风险的巨大增加，而与其他变种病毒不同的是，感染了德尔塔（Delta）的疫苗接种者仍然可以传播该病毒。”
 
-运输工人工会全国秘书迈克尔·凯恩（Michael Kaine）说，现在是快递服务行业奖励工人的时候了。
+（以上内容仅代表原文信息和作者个人观点）
 
-凯恩表示，联邦快递、Linfox和Bevchain的数千名工人在过去一周也投票支持罢工行动。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Parcel delivery workers strike across Australia (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/09/23/star-track-strike-australia/)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://thepostmillennial.com/israeli-medical-study-vaccine-passports)

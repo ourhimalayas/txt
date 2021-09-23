@@ -2,49 +2,27 @@
 ---
 
 
-## 香港首次“爱国者”专场选举正式拉开帷幕
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1548973/)
+## 一夜暴富梦灭！亚马逊千名中国卖家再遭血洗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1549060/)
 
-作者：纽约香草山农场 – 雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210720_16268036621139.jpg)一夜暴富梦灭！亚马逊千名中国卖家再遭血洗 网络图片
+据电商报9月22日报道，最近在无数个亚马逊卖家交流群里，有大量卖家反映，自己没有收到任何提醒邮件或者是“刷单”的警告邮件，后台直接显示违规信息，然后商品就被强制冻结下架，直接封杀停售了。
 
+面对这种情况，不少卖家立即向平台申诉。然而，这样的“申冤信”并没有奏效，亚马逊官方团队直接告知卖家坐实了大量违规评论的滥用，因而有权将相关商品从店铺中永久移除。
 
+一般电商平台通过大数据算法实现“货找人”，卖家会请人假扮顾客刷单消费，制造销量高、评价好的假象。为了利益，无数人趋之若鹜。久而久之，“刷单找死，不刷等死”成了电商人默认的潜规则。从前，卖家坦白后能得到解封。但现在，从“夺命邮件”到“申诉必死”，都在宣告：对于恶意竞争，亚马逊绝不放过一个。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+虚假好评、恶意刷单、商品侵权……伴随着一次又一次大张旗鼓的整治，亚马逊的“封号黑名单”越来越长，从大卖场到小商家，无人幸免于难。营收暴跌，资金链断裂，大面积裁员…… **但事实上，看似惨烈结局的背后，一切都有迹可循：**除了屡见不鲜的刷单、控评等行为，寄生在跨境电商行业中的“蛀虫”还有很多。例如，一些服务商违规倒卖账号。还有一些卖家利用“镜像评论”等黑科技赚快钱。这里所提到的“镜像评论”，指的是通过黑科技把其他店铺中商品页面的评论，原封不动地复制到自己店铺商品的评论区。换言之，真正把卖家逼上绝路的，不是亚马逊的重锤，而是一次又一次的“置若罔闻”。
 
+在一个良性循环的市场中，大家都守规矩，不存在大面积的恶意竞争。卖家自以为依靠耍一点“小聪明”就超过甚至打击竞争对手，不诚信不守规矩的代价就是自己有一天也成为韭菜。
 
+新闻参考链接：[https://c.m.163.com/news/a/GKG7CT310514CA4V.html?spss=newsapp](https://c.m.163.com/news/a/GKG7CT310514CA4V.html?spss=newsapp)
 
-9月19日，据路透社新闻报导，约有5000名建制派香港人将于周日开始投票，以期选出选举委员会的候选人。这些候选人均经过严格地审查，皆忠于中共。相较而言，几乎没有支持民主的候选人参加这次选举。
-
-![](https://ichef.bbci.co.uk/news/640/cpsprodpb/177B8/production/_118048169_9106e6ca-c59b-4911-8b7f-577574bca9cc.jpg)图片来源：EPA
-
-香港行政长官林郑月娥于周日上午说道，“改进选举制度的目标是确保‘爱国者’管理香港。”
-
-据报道，香港政府预计将部署6000名警察，用以确保此次投票顺利进行。此选举委员会将于12月选出改革后的立法会中的40个席位，并在3月选出一位行政长官。
-
-自《国安法》以来，香港文明和民主已经被中共蚕食殆尽。本次选举制度的改革，预示着香港最后一道防线——法治也惨遭中共的屠戮。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[Hong Kong’s first ‘patriots-only’ election kicks off](https://www.reuters.com/world/asia-pacific/hong-kongs-first-patriots-only-election-kicks-off-2021-09-18/?taid=6146afefe56df4000174d3f1&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
