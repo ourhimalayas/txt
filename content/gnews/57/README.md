@@ -2,26 +2,27 @@
 ---
 
 
-## 中共全运会版《社会主义好》被质疑, 文革2.0政治风向难把握
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549748/)
+## 台湾正式申请加入CPTPP!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549771/)
 
-栏目记者/责任编辑：FoxRina
+栏目记者/责任编辑：云豹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-日前中共全运会开幕上，墙内当红演员张嘉译和闫妮合唱红歌《社会主义好》，本想又红又专政治过硬，不料引发非议，其中的歌词“帝国主义夹着尾巴逃跑了”更令众多网民反感批评。据悉19日张嘉译闫妮合唱版《社会主义好》被墙内全网下架。记者在新浪体育官方微博播放该视频，显示“无法播放”，全网搜索几乎只有外网可观看。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.32.37-PM.png)
-时值大量外企纷纷撤离中国，大量的国人面临失业的窘境和痛苦，网友表示，此时重大活动高唱“帝国主义夹着尾巴逃跑了”是欢呼帝国主义企业撤离，还是看失业者的笑话？这句歌词到底算不合时宜，还是与时俱进，在中共与国际关系格外紧张的当下，确实让人难以判断。该演出视频遭下架后，再次引发网友讨论，众说纷纭。
+9月22日晚间，继中共国之后, 台湾行政院宣布，正式向执行国新西兰递交加入跨太平洋伙伴全面进步协定 即CPTPP 的申请，同时也知会所有CPTPP会员国寻求认可支持。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.54.42-PM.png)
+台湾政府近年来针对加入CPTPP的意向，持续进行与各CPTPP会员国私下咨商的工作，并获得多个会员国的支持, 目前已经与新西兰和新加坡这两个会员国签署了自由贸易协议。 台湾的行政、立法机关也积极配合，完成了大部份的立法准备工作, 正式提出加入CPTPP的申请。对于台湾的申请，日本外务大臣茂木敏充表示欢迎，他强调台湾是日本极为重要的伙伴，且双方具有自由、民主、人权、法治等价值观共识，日本希望与台湾建立更密切的经济关系。
 
-中共大搞政治形态愚民，文革2.0已乱象丛生，政治风向难把握，墙内明星、出版、传媒、大型活动个个如履薄冰，文娱产业恐将彻底幻灭。
+一直以来，台湾在与国际社会的各种文化及经贸交流，都面临中共的胁迫及打压。 经贸发展是台湾赖以生存的命脉，这次争取加入CPTPP 对于台湾未来的生存发展都至关重要。我们也预祝台湾能够成功加入CPTPP！
 (本文仅代表作者观点)
 
-参考链接：[影星全运会唱《社会主义好》下架](https://hollandone.com/?p=2189)
+参考链接：[政院：22日申請加入CPTPP 並知會成員國尋求支持](https://www.cna.com.tw/news/firstnews/202109220360.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：文龙
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

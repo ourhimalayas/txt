@@ -85,22 +85,22 @@
 ### [有声|辉瑞公司称疫苗对5-11岁儿童安全有效，并向FDA寻求紧急使用授权](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/25/README.md)
+### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [不慎感染病毒, 战友送药见真情!](/content/gnews/26/README.md)
+### [不慎感染病毒, 战友送药见真情!](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/27/README.md)
+### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/28/README.md)
+### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [中共军力提升威胁日本安全, 但促进日台关系](/content/gnews/30/README.md)
+### [美司法部启动计划帮助警察应对大规模暴力](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/47/README.md)
+### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/47/README.md)
+ ` 英喜-粵語組`
+
+### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/48/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/48/README.md)
+### [串珠390：疫苗对人类的威胁远远大于病毒](/content/gnews/49/README.md)
  ` 郭爆料串珠`
 
-### [国际要闻汇编](/content/gnews/49/README.md)
+### [国际要闻汇编](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [逝者苏春秀](/content/gnews/50/README.md)
+### [逝者苏春秀](/content/gnews/51/README.md)
  ` 银河勇气之星`
 
-### [《商君书》驭民五术](/content/gnews/51/README.md)
+### [《商君书》驭民五术](/content/gnews/52/README.md)
  ` 纽约香草山MOS03`
 
-### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/52/README.md)
+### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/53/README.md)
  ` 首尔天池农场`
 
-### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/53/README.md)
+### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/54/README.md)
  ` 纽约香草山MOS01`
 
-### [美众议院将对年度《国防授权法》表决, 要求彻查病毒真相](/content/gnews/54/README.md)
+### [中共军力提升威胁日本安全, 但促进日台关系](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [台湾正式申请加入CPTPP!](/content/gnews/55/README.md)
+### [美众议院将对年度《国防授权法》表决, 要求彻查病毒真相](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [恐公民数据流向中共，波兰将弃用华大基因](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [中共全运会版《社会主义好》被质疑, 文革2.0政治风向难把握](/content/gnews/57/README.md)
+### [台湾正式申请加入CPTPP!](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 

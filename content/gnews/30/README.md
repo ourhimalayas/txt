@@ -2,28 +2,27 @@
 ---
 
 
-## 中共军力提升威胁日本安全, 但促进日台关系
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549820/)
+## 美司法部启动计划帮助警察应对大规模暴力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550223/)
 
-栏目记者、责任编辑：在远方
+栏目记者/责任编辑：文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-323.png)
+美国司法部周三宣布启动”大规模暴力咨询倡议”项目，将对社区执法的警察负责人提供点对点的信息和资源援助。该项目资金由司法部的司法援助局提供，援助小组成员都是有处理大规模暴力经验的执法官员。司法部代理助理总检察长艾米  所罗门称，任何社区都不允许发生大规模暴力事件。​​一旦发生，司法部将全力介入。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-42.jpeg)
 
+但随即引发民众质疑该项目是在浪费公共资源，” 此前乱象丛生的黑命贵游行示威是否算大规模暴力事件，司法部为何没有介入?”   民众的不满,源于司法部对去年黑命贵的打砸抢烧充耳不闻，却对15名参与国会大厦游行的川普支持者提起诉讼，指控他们存在暴力和妨碍治安行为。
 
+日前澳大利亚墨尔本警方对反疫苗的游行民众进行了令人震惊的暴力镇压。美国各地近期也陆续出现不同规模的反疫苗游行，根据这一项目细则, 司法部未来很可能会将这些合法游行定性为大规模暴力事件，所谓援助就是培训当地警察如何镇压游行民众，甚至提供武器支援。”今天的香港就是世界的明天!”文贵先生的预言正在被验证!
 
-日本首相菅义伟在美日印澳“四方峰会”举行之际称：“中共国军力的迅速提升，以及对区域内现状的单方面改变，给日本的安全带来了风险。日本应当强化美日联盟增加威慑力并努力提高日本的防御能力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.15.42-PM.png)
-中共穷兵黩武，连续20多年不断增长国防预算，不仅发展航母/巡航导弹系统和战机更新换代, 也对信息作战及军事指挥系统进行改革，同时通过军方背景的民企及间谍窃取西方军事技术，以提升军力。与此同时不断在台海、南海及东海进行频繁军事活动，试图突破第一岛链，引发周边国家不安。
+(本文仅代表作者观点）
 
-迹象表明，中共对台湾的持续军事压力,也促使日本与台湾关系的进一步加强。日本政府也释放态度，如中共武统台湾，日本不会坐视不管。此次美日印澳四国领导人将于本周五在白宫举行的四方峰会，就是为应对中共在亚太地区日益扩张的军事影响力和威胁。
-(本文仅代表作者观点)
+参考链接：[Justice Department launches program to help police respond to mass violence](https://www.foxnews.com/politics/department-of-justice-launches-program-to-help-police-respond-to-mass-violence.amp?__twitter_impression=true)
 
-参考链接：[菅义伟：中国军力提升威胁到日本的和平与繁荣](https://www.voachinese.com/a/Chinese-Military-Rise-Threatens-Japan-20210922/6241307.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,5 +30,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
