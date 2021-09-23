@@ -2,43 +2,32 @@
 ---
 
 
-## 2021年，美国人从社交媒体获取新闻的比例下降
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1548421/)
+## 共和党人在美国的联合国演讲后称拜登“向中共国低头”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1548559/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-2.jpg)图片来源 Elaine Cromie/Getty Images
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**摘要翻译：**共和党人在乔·拜登总统作为美国领导人首次在联合国大会发表讲话后指责他对中共国态度软弱。
+
+“乔·拜登今天甚至没有说出我们最大的国家安全威胁的名字：中共国”。前联合国大使尼基.海利（Nikki Haley）在一份声明中告诉每日电讯报新闻基金会。“当他在气候变化问题上向中共国低头时，他们正在对维吾尔人进行种族灭绝，镇压香港，威胁台湾，并掩盖新冠病毒。”
+
+阿肯色州的共和党参议员汤姆.科顿（Tom Cotton）星期二告诉福克斯新闻主持人玛莎·麦卡勒姆（Martha MacCallum）。“他就像《哈利波特》小说中一个害怕的孩子，不会说出伏地魔的名字，因为他害怕可能会发生的事情。”。
+
+当被问及拜登为何在讲话中故意省略中共国这个词时，白宫新闻秘书詹·普萨基（Jen Psaki）表示，这“表明他的目标是制定我们可以共同解决的重大问题的积极议程，包括与中共国的合作。”
+
+共和党人也对拜登没有追究中共国对新冠病毒大流行病的责任表示失望。共和党全国委员会主席罗娜·麦克丹尼尔（Ronna McDaniel）在推特上表示，拜登会在病毒问题上追究美国的责任，但不会追究中共国责任。
+
+海利在推特上说：“中共国向世界释放了新冠病毒，如果不追究他们的责任或进行可信的调查，你只会再次将世界置于危险之中”。
+
+简评：我相信不仅美国共和党人对拜登在联合国的发言失望，但凡有正义的民众对他的发言也失望。美国总统拜登在联合国发言对中共国只字不提，还能指望拜登政府对中共国对世界释放新冠病毒追责？这不仅是拜登政府的软弱，也体现了被中共国蓝金黄后的美国政府的堕落及与中共国的同流合污。所以只有通过不断地传播真相来，唤醒更多民众起来捍卫自身的权益。
+
+原文链接：[Republicans Say Biden ‘Bows To China’ After UN Speech](https://dailycaller.com/2021/09/21/biden-bows-to-china-nikki-haley-tom-cotton/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-据[布赖特巴特](https://www.breitbart.com/tech/2021/09/21/pew-fewer-americans-getting-news-from-social-media-in-2021/)新闻网9月21日报道，美国独立民调机构——皮尤研究公司（Pew Research）的一项新调查显示，2021年依赖社交媒体平台获取新闻的美国人数量在下降，这种下降趋势主要来自Facebook用户。调查发现，表示自己“经常”从Facebook接收新闻的受访者比例从2020年的53%下降到今年的47%——下降了7个百分点——尽管该平台在美国网络新闻消费中仍处于领先地位。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1031-1-Mark-Zuckerberg-at-Georgetown-640x480-1.jpg)Photo: ANDREW CABALLERO-REYNOLDS /Getty
-
-在政治上，调查中的许多网站的大多数经常性新闻消费者是民主党人或倾向于民主党人。在皮尤的调查中，没有一个社交媒体网站有更可能是共和党人或倾向于共和党人的经常性新闻消费者。
-
-今年7月4日，全新的社交媒体平台——盖特（Gettr）的异军突起，短短2个多月的时间已经达到200万用户，为传统的社交媒体打开了一扇窗子。在这里人们可以独立地思考，自由地发声，拓展思想的空间，不会因观点的不同遭到审查。相信明年的社交媒体民调将被盖特所改写。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
