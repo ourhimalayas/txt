@@ -2,20 +2,15 @@
 ---
 
 
-## 恒大涨了，大家都很开心的样子
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1549298/)
+## 2021年9月21日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1549397/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-321.png)
-[图片来源](https://i.pinimg.com/originals/90/d6/ff/90d6ff55aca7f8fc13c77607886ea3a7.jpg)
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-恒大地产集团有限公司于9月22日发布公告称，将为2025年9月到期、票面利率为5.80%的债券支付人民币2.32亿元（3,590万美元）利息。即，今日，9月23日将按时兑付该笔利息，中国恒大（03333.HK）开盘上涨超25个百分点。恒大涨了，大家看起来都很开心的样子。
+9/21/2021 文贵直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害！某知名医生说爆料革命、新中国联邦人对世界的贡献将像圣经一样在全世界流传！辉瑞等大药厂对文贵的攻击让这位医生开始真正相信文贵
 
-9月22日，多家上市银行集体回应与恒大业务往来称，有足额抵押物，整体风险可控。同日，广东省政府发布中国（广东）自由贸易试验区发展“十四五”规划的通知，核心内容是，有针对性开放市场，设立资金进出通道，吸引国际资本，让全球投资者和各类企业广泛参与区内创新型企业融资，随后区内创新企业再赴港澳融资、上市。这是一个完整的、可控的利益分配和输送通道，具有充分的交易价值。
+9/21/2021 Miles Guo: The vaccines against the CCP virus will cause the biggest harm in history to humans who produce sexually! A prominent doctor said that the stories about what the Whistleblowers’ Movement and the people of the New Federal State of China have contributed to mankind will be passed on in the world just like the Bible! Pfizer and other Big Pharma’s attacks on me made this doctor start to really trust me.
 
-有些事看起来总是不合逻辑的，作为死鸭子的恒大现在靠现金活着，为什么它要消耗自己的生命？难道还想骗取融资，显然不是。恒大已经成为中共国手里对内、对国际资本实施胁迫的工具之一。恒大不能死得随便，恒大死，一系列企业随之暴雷，国际资本陷入死局，结果是大家一起死。因此，还得想方设法为恒大续命。文贵先生早就说过恒大就是雷曼，恒大成为中共国手中的打狗指挥棒，恒大指向那，那里就一片哀号。但总要留点活路吧，那就开个口，广州的利益分配和输送通道已经建好，欢迎大家来白嫖，前提是还得加深勾兑。这是一个危险的平衡，基于极权对庞大市场的极端控制，对人民的极限施压才有可能达到的平衡，但是枪响之后呢？全球疫苗灾害、全球债务危机、台海危机、喜币和GTV上市、阿富汗等等，谁能保证不走火，谁能保证不一齐走火？
+[【2021年9月21日】文贵先生盖特原文](https://gettr.com/post/pbswzha597)
 
-（文章仅代表作者个人观点，与GNEWS无关）
-*校对：东京樱花团/ 喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+**喜联盟Gnews编辑部**

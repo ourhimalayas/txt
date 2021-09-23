@@ -37,14 +37,14 @@
 ### [2021年9月22日 文贵先生盖特 1](/content/gnews/8/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [密歇根州取胜！不准强制执行口罩令和疫苗护照](/content/gnews/9/README.md)
+### [雪城大学的COVID病例中绝大多数都是“完全接种者”](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [一切都在悄悄变化中](/content/gnews/10/README.md)
- ` 澳喜农场`
+### [密歇根州取胜！不准强制执行口罩令和疫苗护照](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：东京医师会会长谈伊维菌素可以治疗中共病毒的理由!](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [加拿大孩子们被免费冰淇淋诱骗到临时诊所接种疫苗](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [每日快报：恒大的模糊备案凸显中国债券市场风险](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -67,41 +67,41 @@
 ### [林依然关于疫苗的新浪微博引来无数脑梗心梗受害者留言](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [《1984》不是小说，今日澳洲沦为昨日香港！](/content/gnews/19/README.md)
+### [视频| 真相工程 &#8211; 护士揭露医院隐瞒疫苗副作用](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [《1984》不是小说，今日澳洲沦为昨日香港！](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [Facebook和Instagram已经删除了HHS举报人关于中共疫苗副作用的视频](/content/gnews/20/README.md)
+### [Facebook和Instagram已经删除了HHS举报人关于中共疫苗副作用的视频](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墨尔本反疫苗和反封城抗议游行受到警方镇压](/content/gnews/21/README.md)
+### [墨尔本反疫苗和反封城抗议游行受到警方镇压](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新南威尔士州郊区原住民社区居民被强迫接种中共疫苗](/content/gnews/22/README.md)
+### [新南威尔士州郊区原住民社区居民被强迫接种中共疫苗](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美英澳三国共同宣布在印太地区建立新的三边防务联盟](/content/gnews/23/README.md)
+### [美英澳三国共同宣布在印太地区建立新的三边防务联盟](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大孩子们被免费冰淇淋诱骗到临时诊所接种疫苗](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [恒大未来三年需偿付的债务](/content/gnews/25/README.md)
+### [国防部监察长呼吁国防部应减少对中共国药品供应链的依赖](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [职业介绍平台现商铺接种助理招聘启事](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [美联航员工对公司强制接种政策提出诉讼](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [台湾新冠疫苗接种逾1340万剂 覆盖率即将破50% 副作用报告也如韩国一样攀升](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [中共通过华为云服务 持续监控美国等四十国政府资讯](/content/gnews/30/README.md)
+### [恒大未来三年需偿付的债务](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [职业介绍平台现商铺接种助理招聘启事](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [克罗地亚总理：媒体散布恐慌和谬论，我们不会再继续接种了，适可而止吧](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [美联航员工对公司强制接种政策提出诉讼](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [台湾新冠疫苗接种逾1340万剂 覆盖率即将破50% 副作用报告也如韩国一样攀升](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
 
 ### [立陶宛：小米手机涉嫌进行电子审查](/content/gnews/31/README.md)
  ` Charlie`
@@ -151,36 +151,36 @@
 ### [在港上市内地银行股跌幅扩大](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共缺粮放风：习近平用农谚愚民、愚己、愚世界](/content/gnews/47/README.md)
- ` 儒为`
+### [新西兰中文新闻网站遵循中共国言论“审查”规则](/content/gnews/47/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [亚马逊向接受疫苗接种的仓库和零售工人发汽车和现金](/content/gnews/48/README.md)
+### [澳洲人放弃拥枪 如今被自己的政府射击](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年9月21日 文贵先生盖特 6](/content/gnews/49/README.md)
+### [中共缺粮放风：习近平用农谚愚民、愚己、愚世界](/content/gnews/49/README.md)
+ ` 儒为`
+
+### [亚马逊向接受疫苗接种的仓库和零售工人发汽车和现金](/content/gnews/50/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年9月21日 文贵先生盖特 6](/content/gnews/51/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月21日 文贵先生盖特 5](/content/gnews/50/README.md)
+### [2021年9月21日 文贵先生盖特 5](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月21日 文贵先生盖特 4](/content/gnews/51/README.md)
+### [2021年9月21日 文贵先生盖特 4](/content/gnews/53/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月21日 文贵先生盖特 3](/content/gnews/52/README.md)
+### [2021年9月21日 文贵先生盖特 3](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [恒大涨了，大家都很开心的样子](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [菅义伟警告称中共军力的提升威胁到日本的和平与繁荣](/content/gnews/54/README.md)
+### [中共通过华为云服务 持续监控美国等四十国政府资讯](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [印度当局希望阻止中资参与当地最大保险商LIC的IPO](/content/gnews/55/README.md)
- ` GTV新闻访谈`
-
-### [港共国安法下 声援大陆维权律师的在港关注组宣部本月解散](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [关于病毒真相，我在日媒看到了真相的开篇！](/content/gnews/57/README.md)
+### [恒大涨了，大家都很开心的样子](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [一切都在悄悄变化中](/content/gnews/57/README.md)
+ ` 澳喜农场`
 

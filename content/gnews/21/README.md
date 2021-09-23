@@ -2,9 +2,9 @@
 ---
 
 
-## 墨尔本反疫苗和反封城抗议游行受到警方镇压
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1549412/)
+## Facebook和Instagram已经删除了HHS举报人关于中共疫苗副作用的视频
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1549522/)
 
-9/22/2021 澳洲第七频道记者报道，在墨尔本举行的反疫苗和反封城抗议游行受到维多利亚州警方的镇压，媒体报道也受到限制。
+9/21/2021 Facebook和Instagram已经删除了James O’Keefe和卫生和公共服务部举报人关于中共病毒疫苗副作用的视频。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
