@@ -2,18 +2,35 @@
 ---
 
 
-## 中共威胁澳大利亚将成为其核武器攻击目标！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549151/)
+## 蚂蚁金服的小额贷款服务花呗已开始与中共国央行共享数据
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1548768/)
 
-#### 编译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-44.jpg)图片来源：网络截图
-9月22日，据零对冲报道，在本周的澳大利亚电视黄金时段，中国和全球化中心（Center for China and Globalization）副主席高志凯（Victor Gao，曾担任邓小平翻译），就美国、澳大利亚和英国之间防务条约向他的澳大利亚观众发出了令人毛骨悚然的威胁。
+栏目记者/责任编辑：文一
 
-高直言不讳地警告说，华盛顿将给予堪培拉核潜艇技术的协议现在使整个澳大利亚成为核打击的目标：“分水岭时刻将是，如果澳大利亚拥有在澳大利亚当地生产的核潜艇，澳大利亚将失去不成为其他国家核武器目标的特权。”
 
-主播澄清，澳大利亚将拥有的是核动力潜水艇，而高则威胁对澳洲进行核武器打击，高则重申他的话是“明确的”，”2300万澳大利亚人……你真的想成为可能核战争的目标吗？或者你想摆脱未来的‘核威胁’吗？”
 
-讽刺的是中共国正游说澳大利亚支持其加入CPTPP贸易伙伴关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)
 
-原文链接：[Stunning Interview Sees China Warn “23 Million Australians” That US Pact Now Makes Them “Target” For Nuclear Attack](https://www.zerohedge.com/geopolitical/unbelievable-interview-sees-china-warn-23-million-australians-us-pact-now-makes-them)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture1-1.jpg)
+因为中共政府正在收紧对金融科技行业的控制权，蚂蚁金服作为电子商务巨头阿里巴巴集团下的金融子公司首当其冲，其虚拟信用卡服务花呗周三在官方微博账户上宣称已被正式纳入中共国央行的信用报告系统，将分享用户账户设立日期、信用额度和使用情况等信息。据悉蚂蚁金服花呗和另一借贷服务借呗共有约5亿用户。
+
+自去年370亿美元的IPO被监管机构否决后，蚂蚁金服一直在中共国政府主导下进行重组。众所周知，数据是公司运营、管理风险和吸引新客户的重要资产，中共国内的大型互联网平台多年来一直倾向于抵制分享数据，但终倒在中共又一轮大力整顿的风暴下。
+
+（本文仅代表作者观点）
+
+参考链接：[蚂蚁金服的小额贷款服务花呗已开始与中共国央行共享数据](https://www.reuters.com/article/china-ant-group-idUSKBN2GI1A9)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-271.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-307.png)
