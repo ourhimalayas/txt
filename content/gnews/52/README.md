@@ -2,23 +2,23 @@
 ---
 
 
-## 恐公民数据流向中共，波兰将弃用华大基因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549752/)
+## 台湾正式申请加入CPTPP!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549771/)
 
-栏目记者/责任编辑：修文
+栏目记者/责任编辑：云豹
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-自由时报9月23日消息，波兰正在进行一项波兰人基因图谱计划，因外包的第三方采用中共国“华大基因”公司的定序技术。目前波兰政府担心本国公民基因资料被泄露，计划取消该合约。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.50.43-PM.png)
-此前波兰科学院人类基因委员会曾暗指华大基因不遵守基因检测伦理，但约十万份完整的波兰基因组可能已经流入华大基因。美国人工智慧国家安全委员会的报告，也指华大基因扮演中共国政府”全球基因资料库”的收集角色。
+9月22日晚间，继中共国之后, 台湾行政院宣布，正式向执行国新西兰递交加入跨太平洋伙伴全面进步协定 即CPTPP 的申请，同时也知会所有CPTPP会员国寻求认可支持。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.54.42-PM.png)
+台湾政府近年来针对加入CPTPP的意向，持续进行与各CPTPP会员国私下咨商的工作，并获得多个会员国的支持, 目前已经与新西兰和新加坡这两个会员国签署了自由贸易协议。 台湾的行政、立法机关也积极配合，完成了大部份的立法准备工作, 正式提出加入CPTPP的申请。对于台湾的申请，日本外务大臣茂木敏充表示欢迎，他强调台湾是日本极为重要的伙伴，且双方具有自由、民主、人权、法治等价值观共识，日本希望与台湾建立更密切的经济关系。
 
-作为中共采集全球人类基因信息样本的前哨站，华大基因已多次被世界各国发现其采集、窃取基因信息的行为，并质疑其为中共军方背景。中共国军事理论专家曾公开著书立说,鼓吹针对人类基因的生物战争时刻都在准备中。只不过中共不是受害者，反而正是这种基因战争的发起者，新冠病毒和疫苗正是释放他们的基因武器!
+一直以来，台湾在与国际社会的各种文化及经贸交流，都面临中共的胁迫及打压。 经贸发展是台湾赖以生存的命脉，这次争取加入CPTPP 对于台湾未来的生存发展都至关重要。我们也预祝台湾能够成功加入CPTPP！
 (本文仅代表作者观点)
 
-参考链接：[防數據流入解放軍 波蘭棄用華大基因](https://news.ltn.com.tw/news/world/paper/1474441)
+参考链接：[政院：22日申請加入CPTPP 並知會成員國尋求支持](https://www.cna.com.tw/news/firstnews/202109220360.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

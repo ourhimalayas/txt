@@ -13,14 +13,14 @@
 
 ---
 
-### [被政治接管的全球医疗监管部门阻止医生用伊维菌素治疗新冠患者](/content/gnews/1/README.md)
+### [未满18岁感染新冠状病毒，未经治疗下存活率达99.98%](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [被政治接管的全球医疗监管部门阻止医生用伊维菌素治疗新冠患者](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [习近平寻求约束中国式资本主义，坚持毛泽东的社会主义愿景](/content/gnews/2/README.md)
+### [习近平寻求约束中国式资本主义，坚持毛泽东的社会主义愿景](/content/gnews/3/README.md)
  ` GTV新闻访谈`
-
-### [爆炸新闻! 15万美国人包括600儿童因Covid疫苗死亡](/content/gnews/3/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《商君书》驭民五术](/content/gnews/47/README.md)
+### [逝者苏春秀](/content/gnews/47/README.md)
+ ` 银河勇气之星`
+
+### [《商君书》驭民五术](/content/gnews/48/README.md)
  ` 纽约香草山MOS03`
 
-### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/48/README.md)
+### [邪恶轴心的抱团，普京将参加北京冬奥会](/content/gnews/49/README.md)
  ` 首尔天池农场`
 
-### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/49/README.md)
+### [谁让香港地产一夜蒸发800亿？——香港的媒体操纵案例分析](/content/gnews/50/README.md)
  ` 纽约香草山MOS01`
 
-### [美众议院将对年度《国防授权法》表决, 要求彻查病毒真相](/content/gnews/50/README.md)
+### [美众议院将对年度《国防授权法》表决, 要求彻查病毒真相](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [台湾正式申请加入CPTPP!](/content/gnews/51/README.md)
+### [台湾正式申请加入CPTPP!](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [恐公民数据流向中共，波兰将弃用华大基因](/content/gnews/52/README.md)
+### [恐公民数据流向中共，波兰将弃用华大基因](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [中共全运会版《社会主义好》被质疑, 文革2.0政治风向难把握](/content/gnews/53/README.md)
+### [中共全运会版《社会主义好》被质疑, 文革2.0政治风向难把握](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [【玫瑰看新闻】第168期](/content/gnews/54/README.md)
+### [【玫瑰看新闻】第168期](/content/gnews/55/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国FDA内部会议揭露：疫苗比病毒致命数倍](/content/gnews/55/README.md)
+### [美国FDA内部会议揭露：疫苗比病毒致命数倍](/content/gnews/56/README.md)
  ` MG 澳喜农场多语组`
 
-### [秘翻在线：FDA支持辉瑞为老年人和高风险人群提供疫苗加强针](/content/gnews/56/README.md)
+### [秘翻在线：FDA支持辉瑞为老年人和高风险人群提供疫苗加强针](/content/gnews/57/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [【玫瑰看新闻】第167期](/content/gnews/57/README.md)
- ` 喜马拉雅农场新西兰站`
 

@@ -2,23 +2,23 @@
 ---
 
 
-## 台湾正式申请加入CPTPP!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549771/)
+## 美众议院将对年度《国防授权法》表决, 要求彻查病毒真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549787/)
 
-栏目记者/责任编辑：云豹
+栏目记者/责任编辑：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-9月22日晚间，继中共国之后, 台湾行政院宣布，正式向执行国新西兰递交加入跨太平洋伙伴全面进步协定 即CPTPP 的申请，同时也知会所有CPTPP会员国寻求认可支持。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.54.42-PM.png)
-台湾政府近年来针对加入CPTPP的意向，持续进行与各CPTPP会员国私下咨商的工作，并获得多个会员国的支持, 目前已经与新西兰和新加坡这两个会员国签署了自由贸易协议。 台湾的行政、立法机关也积极配合，完成了大部份的立法准备工作, 正式提出加入CPTPP的申请。对于台湾的申请，日本外务大臣茂木敏充表示欢迎，他强调台湾是日本极为重要的伙伴，且双方具有自由、民主、人权、法治等价值观共识，日本希望与台湾建立更密切的经济关系。
-
-一直以来，台湾在与国际社会的各种文化及经贸交流，都面临中共的胁迫及打压。 经贸发展是台湾赖以生存的命脉，这次争取加入CPTPP 对于台湾未来的生存发展都至关重要。我们也预祝台湾能够成功加入CPTPP！
+美国众议院预计本周四将对《2022财政年度国防授权法》进行表决。本月初，该法案在军事委员会以57票赞成，2票反对的压倒性投票结果获得通过。该法案除针对中共政府在新疆的人权暴政提出反制，包括禁止从新疆采购部分产品外，还限制为美国政府官员参与2022年北京冬季奥运会提供财政支持，法案或将导致美国对北京冬奥会采取外交抵制。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.02.07-PM-1.png)
+同时, 该法案还重点要求在新冠病毒溯源问题上, 国防部应继续采取积极调查行动，特别应针对2019年在武汉参加世界军运会的美国军人是否曾经染疫 进行调查 。而共和党参议员罗杰.马绍尔 曾 讲述过新冠病毒爆发线，表明2019年10月武汉举办世界军运会之后，有运动员出现了类似新冠病毒症状的神秘综合症。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-9.08.53-PM-1.png)
+此次美国众议院要求国防部针对CCP病毒溯源继续调查，将对彻底揭开中共研制并释放新冠病毒的真相起到推动作用。
 (本文仅代表作者观点)
 
-参考链接：[政院：22日申請加入CPTPP 並知會成員國尋求支持](https://www.cna.com.tw/news/firstnews/202109220360.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[美众院将表决《国防授权法》 涉及新冠溯源、外交抵制北京冬奥](https://www.voachinese.com/a/us-house-ndaa-2022-china-20210922/6241724.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
