@@ -103,29 +103,29 @@
 ### [&#8220;中共对美国的威胁超过任何其它国家!&#8221;](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [焦点：决定美国兴衰的大选作弊“国家审计”即将揭晓！](/content/gnews/31/README.md)
+### [雅典娜时报-第060期](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [焦点：决定美国兴衰的大选作弊“国家审计”即将揭晓！](/content/gnews/32/README.md)
  ` 丁过`
 
-### [76届联合国大会近日于纽约召开](/content/gnews/32/README.md)
+### [76届联合国大会近日于纽约召开](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [中共国是否正在接近其雷曼时刻？](/content/gnews/33/README.md)
+### [中共国是否正在接近其雷曼时刻？](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年度互联网自由度排名出炉](/content/gnews/34/README.md)
+### [2021年度互联网自由度排名出炉](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [澳大利亚人放弃枪支接近于投票给专制政权](/content/gnews/35/README.md)
+### [澳大利亚人放弃枪支接近于投票给专制政权](/content/gnews/36/README.md)
  ` wenwu`
 
-### [黑客出售电子疫苗护照](/content/gnews/36/README.md)
+### [黑客出售电子疫苗护照](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [共和党人在美国的联合国演讲后称拜登“向中共国低头”](/content/gnews/37/README.md)
+### [共和党人在美国的联合国演讲后称拜登“向中共国低头”](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新闻速递|立陶宛国防部长告诉公民，扔掉你的中国手机](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -172,15 +172,15 @@
 ### [9/21/2021 七哥直播：中共病毒疫苗对有性繁殖的人类将造成有史以来最大的伤害](/content/gnews/53/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年，美国人从社交媒体获取新闻的比例下降](/content/gnews/54/README.md)
+### [新闻速递|立陶宛国防部长告诉公民，扔掉你的中国手机](/content/gnews/54/README.md)
  ` 纽约香草山MOS02`
 
-### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/55/README.md)
+### [2021年，美国人从社交媒体获取新闻的比例下降](/content/gnews/55/README.md)
+ ` 纽约香草山MOS02`
+
+### [9/21/2021 七哥直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离](/content/gnews/56/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/56/README.md)
+### [9/10/2021 七哥直播:国际邪恶势力定会施压中共以继续推行打台湾、收香港和打美国的计划](/content/gnews/57/README.md)
  ` 秘密翻译组-北美组`
-
-### [立陶宛呼吁抵制中共国制造的手机](/content/gnews/57/README.md)
- ` HimalayaRussia`
 
