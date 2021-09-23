@@ -2,34 +2,44 @@
 ---
 
 
-## 州警察工会控告州长的疫苗接种令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1550197/)
+## 中共是天价海运的幕后黑手
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1550222/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-5.jpg)马萨诸塞州警员中大约20%的人尚未接种疫苗。图片来源：**iStock**
+作者 ：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+BBC9月22日报道，大量积压的货船被堵在美国两个最大的港口外。周六，有73艘货轮拥堵在港口外，周一，约有65艘货轮在加州洛杉矶港和长滩港外排队。洛杉矶和长滩是美国的主要海运门户，特别是对来自中国的进口产品而言，经由这两个港口处理的货柜，几乎占进入美国货柜总量的一半。
 
-**简评：**波士顿作为深蓝地区，发生反对强制接种疫苗的事件实属难得，提诉的该工会如果不是切身体会到了疫苗巨大的潜在危害，绝不会引发这样大的反应。可叹的是，该地区已经接种疫苗的警察已占总数八成。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-8.jpeg)图片来源 ：Google
 
-代表约1800名马萨诸塞州警察的工会周三向法官提出，要求推迟执行州长查理•贝克的州雇员新冠疫苗接种令。
+与此同时，美国其他港口也出现了创纪录的航运拥堵。特别是美国第二大港口，并且也是最繁忙的入境点–纽约–表示它除了要应对货柜的进口问题之外，正面临着港口以外的过境问题。“目前的拥堵与从港口运出的货物有关，如卡车和货运铁路，由于创纪录的高货运量”，女发言人阿曼达-关告诉BBC。
 
-工会上周提起的诉讼要求推迟执行，以便工会能够“就其就业条文和现状进行谈判”。
+一直以来，每年从秋季开始到中国新年之前，都是美国进口货运港口物流的高峰期。不过，在Covid之前，如此严重的堵船，等待泊位的情况极其罕见，可以说绝无仅有。
 
-马萨诸塞州警察协会的一名律师告诉法官，贝克所定的10月17日的最后期限是武断的，使谈判无法进行。他认为，为遵守两针疫苗之间的时间要求规定，未接种疫苗的警员需要在周日之前安排他们的第一针两剂量的辉瑞疫苗。
+造成货轮严重堵车的情况，市场原因如下：1、这与美国经济重新开放后激增的进口需求有关。2、美国的零售商和制造商缺货严重，急于下订单和补充库存，但全球航运系统却没有跟上步伐。
 
-他说，大约有20%的警察还没有接种疫苗。法官没有对此事进行裁决。
+需求剧增的航运物流，造成了货运费用暴涨的现状。从Covid疫情之前的二千左右美金/一个货柜的价格，飙升到现在二万左右美金一个的天价费用，价格暴涨了差不多十倍。而且，从中共国出口的港口，一柜难求。天价的货运费用最终导致了美国市场物价的暴涨，加大了美国通胀的压力与风险，在对美国通胀的忧虑上，压下了一枚沉重的砝码。
 
-工会还要求允许那些选择不接种疫苗或已感染过新冠病毒的警员在工作中戴上口罩，并每周接受新冠病毒检测。
+谁是天价货运费用的受益者？只有海洋货运公司，而几乎所有的亚洲远洋海运公司，背后都有中共白手套的身影。由此可见，中共是这轮海运物流拥堵的幕后操纵者，海运费用飙升的最大受益者。中共借着Covid疫情的扩散，市场对物资短缺的恐惧，拉高海运价格，从而达到疯狂敛财，并且加剧美国通胀危机，进而削弱美国的目的。
 
-工会还要求为那些因新冠病毒或疫苗而患病的警察提供“推定保护”。工会希望任何与新冠病毒有关的伤害或死亡“自动被视为工伤”，这将给工会成员们带来额外的好处。
+中共对自由世界的企图，随着它的经济能力的增长，越来越膨胀。而且中共对世界的危害手段也越来越多，无孔不入。不灭中共，世界将永无宁日。
 
-新闻链接：[State police union sues over governor’s vaccination mandate](https://www.foxnews.com/politics/state-police-union-sues-over-governors-vaccination-mandate)
+参考链接：[Record backlog of cargo ships at California ports](https://www.bbc.com/news/business-58643717)
 
-* * *
+**本文仅代表作者观点**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
+**校对/发稿：童谣**
 
-编辑：【英国伦敦喜庄园编辑部】
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
