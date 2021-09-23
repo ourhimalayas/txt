@@ -2,19 +2,32 @@
 ---
 
 
-## 国防部监察长呼吁国防部应减少对中共国药品供应链的依赖
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1549601/)
+## 中共全运会版《社会主义好》被质疑, 文革2.0政治风向难把握
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1549748/)
 
-#### 翻译/撰稿：zzballack
+栏目记者/责任编辑：FoxRina
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-2-4.jpg)图片来源：BioSpace
-据《华盛顿自由灯塔》（Washington Free Beacon）9月22日报道，五角大楼监察长9月22日发布了一份报告警告说，随着美国商业部门在药品供应链上对外国的依赖性增加，该部门也跟着增加。其中国防部对中共国药品供应链的依赖构成了严重的国家安全风险。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-五角大楼不生产自己的药品，因此它依靠美国商业部门为美军采购重要药品。美国食品药品管理局（FDA）2019年的一项研究称，大约72%的商业药品从外国采购，其中13%来自中共国。在中共病毒大流行的早期阶段，中共曾威胁要扣留美国公民的救命药物。监察长的报告总结说：“药品供应中断可能会影响到国防部受益人的护理标准。一旦外国活性药物成分生产商中断对美国的供应，可能会导致药物短缺，影响到美国医疗保健系统的每个层面。”
 
-监察长在报告中呼吁立法者为五角大楼对中共国药品的依赖寻求补救措施，“我们建议负责采购和维持事务的国防部副部长，为包括药品在内的国防部物资的供应链风险管理制定和发布实施指南，并寻求联邦立法，要求药品制造商在药品包装上注明活性药物成分和药品的原产国信息。”
 
-中共将公共卫生武器化的能力并不局限于药品或冠状病毒。一项国家情报评估发现，中共正大规模收集美国公民的DNA，他们可能想利用这些数据来对美国人进行监视或操纵。
+日前中共全运会开幕上，墙内当红演员张嘉译和闫妮合唱红歌《社会主义好》，本想又红又专政治过硬，不料引发非议，其中的歌词“帝国主义夹着尾巴逃跑了”更令众多网民反感批评。据悉19日张嘉译闫妮合唱版《社会主义好》被墙内全网下架。记者在新浪体育官方微博播放该视频，显示“无法播放”，全网搜索几乎只有外网可观看。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-23-at-8.32.37-PM.png)
+时值大量外企纷纷撤离中国，大量的国人面临失业的窘境和痛苦，网友表示，此时重大活动高唱“帝国主义夹着尾巴逃跑了”是欢呼帝国主义企业撤离，还是看失业者的笑话？这句歌词到底算不合时宜，还是与时俱进，在中共与国际关系格外紧张的当下，确实让人难以判断。该演出视频遭下架后，再次引发网友讨论，众说纷纭。
 
-新闻来源：[IG: Pentagon Reliance on Chinese Pharmaceuticals Creates National Security Risk](https://freebeacon.com/national-security/ig-pentagon-reliance-on-chinese-pharmaceuticals-creates-national-security-risk/)
+中共大搞政治形态愚民，文革2.0已乱象丛生，政治风向难把握，墙内明星、出版、传媒、大型活动个个如履薄冰，文娱产业恐将彻底幻灭。
+(本文仅代表作者观点)
+
+参考链接：[影星全运会唱《社会主义好》下架](https://hollandone.com/?p=2189)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
