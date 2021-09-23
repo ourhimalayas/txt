@@ -2,9 +2,12 @@
 ---
 
 
-## Facebook和Instagram已经删除了HHS举报人关于中共疫苗副作用的视频
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1549522/)
+## 克罗地亚总理指责主流媒体散布恐惧，促使人们去打中共病毒疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1549678/)
 
-9/21/2021 Facebook和Instagram已经删除了James O’Keefe和卫生和公共服务部举报人关于中共病毒疫苗副作用的视频。
+- 制作：葛大饼
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
