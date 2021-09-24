@@ -2,21 +2,42 @@
 ---
 
 
-## 瑞典取消了大部分中共病毒的限制措施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1550519/)
+## 广东男染H5N6禽流感　中共专家称仅是个案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550796/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-63.jpg)
-图片来源：Ritzau Scanpix
+栏目记者/责任编辑：文一
 
-瑞典政府在周四（2021.9.23）的新闻发布会上宣布了瑞典取消大部分新冠病毒的限制措施。鉴于现在瑞典情况要好得多，因此，政府将决定进行第四步。
 
-“第四步 “意味着，除其他事项外，取消剧院、音乐会和体育赛事中的集会上限。到目前为止，大型活动的上限是15000人，但现在将被完全取消。即日起，瑞典人在参加文化活动时也不必出示疫苗护照。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)
 
-自疫情开始以来，瑞典的建议和限制一直是辩论的主题。瑞典国家流行病学家安德斯-泰格内尔（Anders Tegnell）在给政府的建议中选择了与许多其他国家不同的方向，瑞典没有进行广泛的封锁和禁止集会，而是依靠公民遵守保持距离，生病时留在家里，并确保良好的卫生。当其他国家关闭一切时，瑞典选择让学校、酒吧和餐馆继续营业。瑞典也是为数不多的没有引入广泛的戴口罩要求的国家之一。
 
-至2021.9.20号，北欧国家两针疫苗接种率分别为芬兰60%，瑞典62%，挪威67%，丹麦为75%，冰岛77%。
+【东方日报】23日讯 – 中国广东省卫健委周三晚间通报，东莞市出现一例H5N6病例。官方通报称仅是“偶发个案”。此前，广东惠州8月通报一例，广西两例。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-6.jpg)
+【中新网】报导，患者是一名53岁男性，广西柳州人，目前在定点医院治疗。
 
-来源：
+【路透社】报导，今年6至8月，江苏、四川巴中及广东惠州陆续出现人感染禽流感的案例，每次均为一例。
 
-1. **[DN.se](https://www.dn.se/sthlm/stockholm-firar-havda-restriktioner-med-konsert-i-kungsan/)**
+2014年至今，中共国已通报32件人类感染H5N6案例。 H5N6是较新发现的禽流感病毒的一个亚种，但具有较高感染性和致死率。
+
+联想美国之前报道几个州出现大量鸟类不明死亡事件，郭文贵先生今日爆料说中共的”热毒”可能早有端倪。不管目前情況如何，有一点是肯定的，即中共不灭，病毒不止。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [广东男染H5N6禽流感　中共专家称仅是个案](https://www.orientaldaily.com.my/news/international/2021/09/23/439663)
+2. [广东男染H5N6禽流感　中共专家称仅是个案](https://www.gzhe.net/portal/zixun/detail/bbfz/5524.html)
+3. [广东男染H5N6禽流感　中共专家称仅是个案](https://www.livescience.com/bird-dieoff-eastern-united-states.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-274.png)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)

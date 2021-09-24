@@ -2,22 +2,31 @@
 ---
 
 
-## 日本外相表示欢迎台湾加入TPP
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1550990/)
+## 墨尔本：抗议活动继续，数百名警察严防死守
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1551047/)
 
-23日，台湾政府正式宣布申请加入跨太平洋伙伴关系协定（TPP）。正在美国访问的日本外相茂木敏充欢迎台湾申请加入TPP。而对于16日申请加入TPP的中共国，茂木和其他与TPP相关日本政府阁僚充满了警戒，没有表示欢迎。台湾行政院政务委员兼经贸谈判办公室总谈判代表邓振中表示，对于台湾来说，这是自从加入世贸组织（WTO）以来的新的机会。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4798.jpg)图片来源：The Guardian
+**整理报道：**翼族
 
-中共国视台湾为其领土，反对台湾申请加入TPP。预计未来中方将对台湾施加更大的压力。大陆与台湾的关系出现新的火种。
+在周四未能集会后，反对强制疫苗接种的抗议组织者计划再举行一天的抗议活动，与此同时，墨尔本各地都有大量警察驻守。
 
-[新闻参考链接](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210923-%E6%97%A5%E6%9C%AC%E5%A4%96%E7%9B%B8%E8%A1%A8%E7%A4%BA%E6%AC%A2%E8%BF%8E%E5%8F%B0%E6%B9%BE%E5%8A%A0%E5%85%A5tpp?ref=tw_i)
+周五早上，数百名警察和公共秩序响应车辆在墨尔本紧密巡逻，防暴警察和便衣警察出现在维多利亚女王市场和周围街道上。
 
-* * *
+据组织者称，另一场示威活动定于上午10点在伯克街（Bourke Street）和伊丽萨白街（Elizabeth Street）的交汇处开始，抗议者计划在中央商务区聚集之前分散在城市各个郊区。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+天空新闻墨尔本记者朱莉娅·布拉德利报道，至少有一名男子在伯克街被捕。
 
+警方证实，已有92名抗议人士被指控，指控罪行包括违反维州首席卫生官的指示。他们警告说，未来几天将有大量警力出现。
 
-编辑：【英国伦敦喜庄园编辑部】
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**参考链接：**[Hundreds of police officers and public order response vehicles on standby in Melbourne](https://www.skynews.com.au/australia-news/coronavirus/watch-live-hundreds-of-police-officers-and-public-order-response-vehicles-on-standby-across-melbourne-ahead-of-planned-protest/news-story/b14f6670ddfa815ba38be40e6a0906c6)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
