@@ -2,26 +2,26 @@
 ---
 
 
-## 转变亲共立场, 欧盟多国支持谭德塞连任
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552618/)
+## 原材料价格上涨，中共国电力紧张
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552673/)
 
-栏目记者/责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-345.png)
-法广消息，欧盟二十多个成员国于周四提议现任世卫组织秘书长谭德塞连任。谭德塞曾在新冠疫情爆发初期无视中共隐瞒疫情事实，大赞中共抗疫有方，推迟宣布全球进入紧急卫生状态，一度引发国际反感质疑。
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
+近期，中共政府加强能源使用限制，中国多省市地区限电。中共国家发改委官员于北京时间9月24日表示，将寻求解决用电限制和原材料价格上涨所造成的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-44.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-31.jpeg)
 
-但自从中共屡屡阻挠世卫专家前往中国进行新冠溯源调查后，谭德塞的立场开始转变, 首先表示应对武汉病毒研究所重新进行调查 , 随后批评中共未能分享新冠病毒原始数据，并敦促中国配合世卫组织的第二次调查。 这招致中共多家媒体发文猛批谭德塞,称其言行为”背叛”, 引发哗然 。也间接导致了国际社会对谭德赛的看法转变.
+据悉，因为政府的用电限制，包括江苏和云南在内的至少15个省区的上市公司的生产遭到严重的损失，人民的生活也受到一定程度的影响。
 
-欧盟和中共对谭德塞的态度转换对比，也是西方和中共对世卫组织影响力的变化，更是病毒真相逐渐浮出水面 的有力验证。这些都在更大程度上影响了谭德塞，意味着世卫组织很可能会加速推进对新冠病毒的溯源调查日程。
+根据文贵先生直播爆料，中共国内的此次大面积停电和煤炭价格高涨有关。中共因为外汇吃紧，进口原材料供应不上，导致煤炭价格越来越高，收取一块钱电费就要赔0.7，致使目前的电力能源仅能满足40%左右的需求。中共只好欺瞒人民，以环保为由限制用电。
 
 (本文仅代表作者观点）
 
-参考链接：[曾被指屈服北京谭德塞华丽转身 欧盟20国支持连任世卫总干事](https://www.rfi.fr/cn/中国/20210923-曾被指屈服北京谭德塞华丽转身-欧盟20国支持连任世卫总干事)
+参考链接：[China scrambles to fix power crunch, tame runaway raw material markets](https://www.reuters.com/world/china/china-seeking-resolve-issues-caused-by-power-curbs-higher-raw-materials-prices-2021-09-24/?taid=614d7777f45bab000139807d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龍
+终审：暗黑
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**

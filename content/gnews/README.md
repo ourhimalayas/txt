@@ -13,14 +13,14 @@
 
 ---
 
-### [美国科学家在四种CCP病毒“疫苗”中发现氧化石墨烯，聚乙二醇等毒性物质](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
 
-### [全世界在酝酿一场反华运动，这是共产党最愿意看到的](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
+### [9/23/2021 七哥直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒”](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [台湾申请加入CPTPP次日，24架次解放军军机扰台](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [北京反对四方峰会](/content/gnews/3/README.md)
+ ` Charlie`
 
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -28,23 +28,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/23/2021 七哥直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
+### [串珠393：青蒿素是病毒和疫苗最好的解药](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
 
-### [9/23/2021 七哥直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒”](/content/gnews/7/README.md)
+### [9/23/2021 七哥直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
 ### [推特赔八亿,我们就这么干推特和油管,盖特将独步天下](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [爱达荷州医生：注射疫苗的人的癌症发病率提高了20%](/content/gnews/9/README.md)
+### [医院不允许医生给病人使用伊维菌素](/content/gnews/9/README.md)
  ` MG 澳喜农场多语组`
 
-### [《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
+### [革命尚未胜利，战友还需努力](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
+### [爱达荷州医生：注射疫苗的人的癌症发病率提高了20%](/content/gnews/11/README.md)
+ ` MG 澳喜农场多语组`
 
 ### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -85,46 +85,46 @@
 ### [有声| 读《道德经》第五章](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/25/README.md)
+### [黑暗降临 全世界即将掀起反华浪潮](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
+
+### [原材料价格上涨，中共国电力紧张](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [转变亲共立场, 欧盟多国支持谭德塞连任](/content/gnews/26/README.md)
+### [菲律宾官员提议民众随身佩戴接种卡](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [欧盟第三针开打，欧洲药品监管机构尚未批准!](/content/gnews/27/README.md)
+### [北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [美众议院通过《国防授权法》, 再度认定中共种族灭绝罪行!](/content/gnews/28/README.md)
+### [欧盟第三针开打，欧洲药品监管机构尚未批准!](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [法印强调在印太联合行动，直指中共霸权](/content/gnews/29/README.md)
+### [美众议院通过《国防授权法》, 再度认定中共种族灭绝罪行!](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [十四届全运会的奇葩现象](/content/gnews/31/README.md)
- ` 波士顿五月花农场`
-
-### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/32/README.md)
- ` 波士顿五月花农场`
-
-### [解读习近平9月21日联大讲话](/content/gnews/33/README.md)
- ` 波士顿五月花农场`
-
-### [秘翻在线：欧盟暂缓辉瑞疫苗加强针](/content/gnews/34/README.md)
+### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美商务部长称 必要时将对华为采取进一步行动](/content/gnews/35/README.md)
+### [十四届全运会的奇葩现象](/content/gnews/32/README.md)
+ ` 波士顿五月花农场`
+
+### [法印强调在印太联合行动，直指中共霸权](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/35/README.md)
+ ` 波士顿五月花农场`
+
+### [解读习近平9月21日联大讲话](/content/gnews/36/README.md)
+ ` 波士顿五月花农场`
+
+### [秘翻在线：欧盟暂缓辉瑞疫苗加强针](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国奥委会竟强制冬奥运动员全员接种中共病毒疫苗](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [墨尔本第五天抗议强制接种疫苗活动中200多人被捕](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线：美众院通过国防授权法 含中共国人权、冬奥、病毒等内容](/content/gnews/38/README.md)
+### [秘翻在线：美商务部长称 必要时将对华为采取进一步行动](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/39/README.md)
@@ -142,45 +142,45 @@
 ### [9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/44/README.md)
+### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/44/README.md)
+ ` wenwu`
+
+### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
 
-### [华尔街出手相救，恒大回光返照？](/content/gnews/45/README.md)
+### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国是否正在接近其雷曼时刻？](/content/gnews/46/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [“厂里停电”90年代的记忆又回来了](/content/gnews/47/README.md)
+ ` 银河勇气之星`
 
-### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/47/README.md)
+### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/48/README.md)
  ` 纽约香草山MOS03`
 
-### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/48/README.md)
+### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/49/README.md)
+### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/50/README.md)
  ` 英喜-粵語組`
 
-### [醒悟在黑暗中勇往向前](/content/gnews/50/README.md)
+### [《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权](/content/gnews/51/README.md)
+ ` 日本东京方舟农场`
+
+### [醒悟在黑暗中勇往向前](/content/gnews/52/README.md)
  ` 纽约香草山MOS03`
 
-### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/51/README.md)
+### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国](/content/gnews/52/README.md)
+### [英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [海航集团董事长陈峰被依法采取强制措施](/content/gnews/53/README.md)
+### [海航集团董事长陈峰被依法采取强制措施](/content/gnews/55/README.md)
  ` 首尔天池农场`
 
-### [有声|川普前新冠病毒小组高级顾问预言大规模儿童将因接种而死亡](/content/gnews/54/README.md)
+### [有声|川普前新冠病毒小组高级顾问预言大规模儿童将因接种而死亡](/content/gnews/56/README.md)
  ` MOSREC`
 
-### [台湾申请加入CPTTP次日, 中共再派战机袭扰](/content/gnews/55/README.md)
+### [台湾申请加入CPTTP次日, 中共再派战机袭扰](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [中小学生课本里还有多少曹文轩？](/content/gnews/56/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [天赐良机新中国联邦把人的财富和生产价值回归金本位](/content/gnews/57/README.md)
- ` 喜马拉雅日本银河系农场`
 

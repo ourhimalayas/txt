@@ -2,26 +2,31 @@
 ---
 
 
-## 天赐良机新中国联邦把人的财富和生产价值回归金本位
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1552198/)
+## 台湾申请加入CPTTP次日, 中共再派战机袭扰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552144/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/maxresdefault_副本.jpg)
-据[2021年9月23日文贵直播：疫苗，病毒灾难远远还没开始；恒大事件被掩盖的房地产的资金池子，影子银行，保险会爆雷，一旦爆雷国际金融货币市场将崩塌；中共准备放更多病毒以镇压抗议游行，新病毒是热毒；许家印一定会猝死；华人被排挤的灾难即将到来，新中国联邦各农场做好保护海外华人安全的准备](https://gtv.org/video/id=614c897242a8af3151a3c790)时间点1：44：25——
+栏目记者/责任编辑：在远方
 
-所以说这时候大家记住，说实在话虚拟货币G系列可牛大了，绝对牛大了，我不相信未来世界上还有比这么干净这么好的货币。特别是我今天处的环境，我更加觉得我真的是这屋子镜子不多，你知道我亲我自己都不知道往哪儿亲，是不是？我真觉得是天意给了我们新中国联邦伟大的机会。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-你说我们没有负债，铲侠对吧？你这懂吧？草根小哥，咱没负债，咱设计的系统又跟金挂钩，我这几天我在这说，放心，我不会说今天会议的秘密的。我们跟这个金本位挂钩，太牛了！
 
-而且我认为回到布雷森系统是人类的未来，石油美元和没有锚定的货币一定是烟消云散，完全作为炒作不能流通的虚拟货币像比特币必须消失。跟黄金锚定而且未来不但黄金锚定，有跟各国之间各种的喜美元、喜磅、喜日元、喜欧元，这种跟这个财产挂钩的东西它一定是永恒的。
 
-在全人类都在玩太空所谓的5G、AI、生化战争技术的时候，我们把人的财富和生产价值回到了金本位、银本位，不一定有银，金本位是肯定的，这个创意简直是天意！再给我们提前两年玩不起，晚两年结束了！就是最佳机会。
+台湾正式申请加入CPTPP仅一天后，9月23日，中共连续派遣24架战机侵扰台湾防空识别区。台湾军方也依照惯例，对中共战机实施了驱离及监控，中共这种无赖式袭扰几成常态。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.56.07-PM.png)
+CPTPP会员国包括日本、新西兰、加拿大、澳大利亚、文莱等11个国家。中共此前从未表达想要加入的意愿，却突然于9月16日抢在台湾之前， 正式向该阻止提出申请。CPTPP组织采取共识制，任何国家或经济体申请加入，必须获得每一个成员国的认可同意。尚未加入CPTPP的中共，自然无法阻止台湾的申请。只能通过武力袭扰恐吓表达不满，毫无大国姿态和尊严，完全是一副流氓嘴脸。
 
-（以下暂略）
+参考链接：[台湾申请加入CPTPP次日，24架次解放军军机扰台](https://www.voachinese.com/a/China-sends-24-fighter-jets-towards-Taiwan-in-show-of-force-20210923/6242848.html)
 
-撰稿：喜马拉雅的肉夹馍；
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-审核：喜马拉雅的馍夹肉；
+终审：文龙
+校正/发稿：我不在这里
 
-校对：Maarago
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

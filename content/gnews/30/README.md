@@ -2,38 +2,33 @@
 ---
 
 
-## IMF总裁卷入中共世银数据造假丑闻被呼吁辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552455/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-19.png)
-
-
+## 美众议院通过《国防授权法》, 再度认定中共种族灭绝罪行!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552500/)
 
 栏目记者/责任编辑：在远方
 
-世界银行日前调查显示，国际货币基金组织现任总裁格奥尔基耶娃在世界银行担任首席执行长期间，曾施压内部员工，以提高中共国在世界银行经商环境报告的排名。《全球营商环境报告》因此丑闻已停发，世界银行委托执行调查的律师事务所报告中的一项指控说，格奥尔基耶娃曾感谢一位高层银行研究员，称对方在篡改中共国数据方面“为多边主义尽了一份力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-341.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-342.png)
-英国《经济学人》杂志9月23日发表社论，严厉谴责并呼吁格奥尔基耶娃辞职。该社论指出，格奥尔基耶娃的行为损害了国际货币基金组织守护世界经济数据的能力及信用，成为反对多边主义的人用来说明“国际机构无法抵御中国”的证据。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中共以蓝金黄控制海外人士，布局已久，涉及国际各重要机构。IMF的主席为提高中共在世界银行报告中的排名亲自出面采取违法举动，沦为中共的利益代言人，只是滴水映月。
 
-据悉，美国国会众议院金融服务、国家安全和发展小组委员会的三名共和党成员近日已致函美国财政部长耶伦，要求她向国会报告财政部对该案件的审查情况。更多内幕将被揭开，中共内忧外患之际，在吸引世界投资领域将遇到更大阻力。
 
-参考链接：
+美国国会众议院9月23日通过《2022财政年度国防授权法》。这部法案旨为五角大楼提供充足经费，以巩固美国在军事技术上的优势地位，在全球层面与中共国展开抗衡。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/pp5.011.jpeg)
+值得关注的是，众议院通过的国防授权法版本在中共国人权问题方面纳入了两项修正案。编号236修正案提到，众议院根据国际法正式裁定，中华人民共和国在中国共产党的指导和控制之下，对维吾尔人及其他宗教少数群体成员正在进行的暴行，构成种族灭绝罪；另外一项编号240修正案则要求，当奥运会或其他国际运动赛事在共产极权国家举行时，美国将为美国体育代表团提供人权和个人隐私简报。
 
-[https://www.dw.com/zh](https://www.dw.com/zh/imf%E6%80%BB%E8%A3%81%E5%8D%B7%E5%85%A5%E5%81%87%E9%80%A0%E4%B8%AD%E5%9B%BD%E6%95%B0%E6%8D%AE%E4%B8%91%E9%97%BB-%E9%81%AD%E8%8B%B1%E5%AA%92%E6%8A%A8%E5%87%BB%E5%BA%94%E4%B8%8B%E5%8F%B0/a-59291563)
+此外，法案条文还有涉及对北京冬奥会进行外交抵制的内容，同时禁止将《国防授权法》的授权资金用于为美国政府官员以公务身份参加北京冬奥会提供交通服务。该法案再次表明，认定中共在新疆犯有反人类种族灭绝罪行，已成为美国政府参众的共识!
+(本文仅代表作者观点)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+参考链接： [美众院通过《国防授权法》 点明中国人权问题 将加强与台湾防务合作](https://www.voachinese.com/a/us-house-passed-ndaa-fy2022-20210923/6243724.html)
 
-责任编辑/终审：FoxRina
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-校正/发稿：浪迹天涯
+终审：文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-19.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
