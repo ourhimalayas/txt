@@ -67,22 +67,22 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/19/README.md)
+### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/19/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/20/README.md)
+### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/21/README.md)
+### [有声|联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|不慎感染病毒, 战友送药见真情!](/content/gnews/22/README.md)
+### [有声|不慎感染病毒, 战友送药见真情!](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声| 权力的历史与华人的救赎(上）](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声| 读《道德经》第五章](/content/gnews/24/README.md)
+### [有声| 权力的历史与华人的救赎(上）](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [黑暗降临 全世界即将掀起反华浪潮](/content/gnews/25/README.md)
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [你好朋友连线Q May:爆料革命要面对很多东西,首先是灭共](/content/gnews/47/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [苏格兰启蒙运动对英国民族性格的影响](/content/gnews/48/README.md)
+### [苏格兰启蒙运动对现代世界的影响](/content/gnews/47/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“厂里停电”90年代的记忆又回来了](/content/gnews/49/README.md)
+### [你好朋友连线Q May:爆料革命要面对很多东西,首先是灭共](/content/gnews/48/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [苏格兰启蒙运动对英国民族性格的影响](/content/gnews/49/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“厂里停电”90年代的记忆又回来了](/content/gnews/50/README.md)
  ` 银河勇气之星`
 
-### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/50/README.md)
+### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/51/README.md)
  ` 纽约香草山MOS03`
 
-### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/51/README.md)
+### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/52/README.md)
+### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/53/README.md)
  ` 英喜-粵語組`
 
-### [《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权](/content/gnews/53/README.md)
+### [《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
 
-### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/54/README.md)
+### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [醒悟在黑暗中勇往向前](/content/gnews/55/README.md)
+### [醒悟在黑暗中勇往向前](/content/gnews/56/README.md)
  ` 纽约香草山MOS03`
 
-### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/56/README.md)
- ` GTV新闻访谈`
-
-### [英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国](/content/gnews/57/README.md)
+### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 
