@@ -16,11 +16,11 @@
 ### [美国科学家在四种CCP病毒“疫苗”中发现氧化石墨烯，聚乙二醇等毒性物质](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾申请加入CPTPP次日，24架次解放军军机扰台](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [全世界在酝酿一场反华运动，这是共产党最愿意看到的](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
+### [台湾申请加入CPTPP次日，24架次解放军军机扰台](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -37,23 +37,23 @@
 ### [上峰知道台湾军方为自保打了假疫苗后以假当真不再声张](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：英政府告诫中共政权批评人士不要去与中共签有引渡协议的国家](/content/gnews/9/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/9/README.md)
+ ` wenwu`
+
+### [秘翻在线：英政府告诫中共政权批评人士不要去与中共签有引渡协议的国家](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：尾身会长的留言栏显示日本民众对疫苗护照很不理解](/content/gnews/10/README.md)
+### [秘翻在线：尾身会长的留言栏显示日本民众对疫苗护照很不理解](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年09月23日澳喜要闻（每日更新）](/content/gnews/11/README.md)
+### [每日快报：惠誉下调中国今年经济增速预测，中国当局为恒大倒闭做准备](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国股市因担心中共国房地产蔓延而下跌](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年09月23日澳喜要闻（每日更新）](/content/gnews/14/README.md)
  ` 澳喜农场`
-
-### [美国股市因担心中共国房地产蔓延而下跌](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [贾斯汀·特鲁多的自由党在加拿大大选中赢得另一个少数派政府](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/14/README.md)
- ` 纽约香草山MOS02`
 
 ### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -67,23 +67,23 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [昨日香港，今日墨尔本](/content/gnews/19/README.md)
+### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [政府不想让人们知道中共病毒疫苗的真相（精简版）](/content/gnews/20/README.md)
+### [医学人士公开反对FDA和拜登政府的疫苗政策](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [政府不想让人们知道中共病毒疫苗的真相（完整版）](/content/gnews/21/README.md)
+### [昨日香港，今日世界](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [最高级的洗钱是海外贸易、石油、大宗贸易、国际期货](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [昨日香港，今日墨尔本](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [检察长、SEC主动和解意义，GTV没有说一句假话](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [政府不想让人们知道中共病毒疫苗的真相（精简版）](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：我们必须要求中共国赔偿](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [政府不想让人们知道中共病毒疫苗的真相（完整版）](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [推特推出比特币打赏功能](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -103,29 +103,29 @@
 ### [德国政府将取消未接种者的隔离误工补偿，变相强制接种](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共是印尼屠杀华人肇因，未来海外华人处境更凶险！](/content/gnews/31/README.md)
+### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/31/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共是印尼屠杀华人肇因，未来海外华人处境更凶险！](/content/gnews/32/README.md)
  ` 军迷wilson`
 
-### [南澳水务公司（SA Water）工人罢工抗议不公平待遇](/content/gnews/32/README.md)
+### [南澳水务公司（SA Water）工人罢工抗议不公平待遇](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第061期](/content/gnews/33/README.md)
+### [雅典娜时报-第061期](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [波音公司将在澳大利亚制造军用无人机](/content/gnews/34/README.md)
+### [波音公司将在澳大利亚制造军用无人机](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共当局对恒大重组方案将公布，可能一拆三变成国企](/content/gnews/35/README.md)
+### [中共当局对恒大重组方案将公布，可能一拆三变成国企](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本出现一系列“突破性感染”，接疫苗仍感染中共病毒](/content/gnews/36/README.md)
+### [日本出现一系列“突破性感染”，接疫苗仍感染中共病毒](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墨尔本：抗议活动继续，数百名警察严防死守](/content/gnews/37/README.md)
+### [墨尔本：抗议活动继续，数百名警察严防死守](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [NIH主任声称符合条件的学生应接种辉瑞疫苗](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
@@ -166,21 +166,21 @@
 ### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全世界在酝酿一场反华运动，这是共产党最愿意看到的](/content/gnews/52/README.md)
+### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/54/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/53/README.md)
+### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/54/README.md)
+### [樱花灭共段子之嗅觉灵敏、最聪明的人、嫁祸于人](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/55/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共段子之嗅觉灵敏、最聪明的人、嫁祸于人](/content/gnews/57/README.md)
+### [樱花灭共段子之房企P2P、养老金亏空解决办法](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
