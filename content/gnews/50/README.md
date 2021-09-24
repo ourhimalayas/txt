@@ -2,15 +2,19 @@
 ---
 
 
-## 2021年9月23日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1552000/)
+## 秘翻在线：主动投案的王立科“问题”不寻常
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1551984/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+撰稿：葛大饼
 
-9/23/2021 Miles Guo: The Jiang faction gave an advice to tear Evergrande apart only to protect their capital pools such as shadow banks, insurance institutions, and trusts; The West is begging Xi to save Evergrande from collapsing, while Xi couldn’t do it by himself; The collapse of Evergrande will crash the world’s financial market, after which the CCP will release more viruses to stop Lao Baixing from protesting on the street; The New Federal State of China will bring the wealth of humanity back to the gold standard
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-24-190248.jpg)图片来源： 新浪
+根据2021年9月22日新浪网报道，去年主动投案的江苏省委常委、政法委书记王立科，被开除党籍公职。
 
-9/23/2021 文贵直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池；西方各国跪求习捂住恒大这颗雷，而习自己却做不到；恒大爆雷将导致全球的金融市场崩溃，而后中共将加大力度放毒以阻止百姓上街抗议；新中国联邦将让人类财富重新回归金本位
+王立科虽主动投案，但中央纪委国家监委双开通报中并未出现认定其主动投案、如实交代违纪违法问题的表述，通报中严肃指出王立科严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿、行贿犯罪等，且在党的十八大后不收敛不收手，性质特别恶劣，情节特别严重，应予严肃处理。
 
-[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc2qvcb37b)
+新闻表示相对之前主动投案的中共高官纷纷被从轻处理，王立科却例外，问题一定不寻常。
 
-**喜联盟Gnews编辑部**
+郭先生直播也提到王立科是孟建柱三大剑客之一，和孙力军一样是黑手党，他以及孙力军，王立军等对中共国政治的影响深远超过当年的四人帮。王立科和罗文进（前江苏公安厅刑警总队队长）是敢把习给灭了的人。敢灭一尊的人，那绝不是一件寻常的案子了。
+
+**[新闻来源](https://news.sina.cn/sh/2021-09-22/detail-iktzqtyt7383616.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**

@@ -2,23 +2,31 @@
 ---
 
 
-## 中共承认楼市“风光”不再 但仍粉饰“太平”欺骗民众
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1552025/)
+## 台湾申请加入CPTTP次日, 中共再派战机袭扰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552144/)
 
-撰稿：一只蚂蚁
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-115.jpg)
-图片来源：网络截图
+栏目记者/责任编辑：在远方
 
-近日，恒大爆雷的消息在中共国的金融圈和房产圈引起了不小的震动，郭文贵先生对恒大爆雷的分析与爆料更是在国内引起了巨大的反响。9月24日，人民网转发《中国青年报》消息，称在中秋小长假期间，全国大部分城市的楼市交易已经“降温”，越来越多城市的房价开始下降。业内人士预估国庆“黄金周”期间，全国绝大多数城市的楼市交易难以出现上涨行情，中共国的房地产市场已经进入“下行通道”。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-但消息将房市下行的现象归因于近年来不断升级的房地产调控政策，却避而不谈房地产行业的债务问题。
 
-针对国际上曾经发生的房价下滑导致经济衰退的先例，消息否认了这种情况会在中共国发生，其理由是：“一方面，有关部门对于银行向开发商借贷制定了严格的政策限制；另一方面，个人房贷的规模也一直在可控范围之内，没有太大的投机空间”。消息称“这两方面的措施，在房地产市场和经济基本盘之间砌起了一道‘防火墙’，即使房地产市场出现‘黑天鹅’，也不会危及银行系统，蔓延成全局性事件。”
 
-然而，根据郭先生的爆料，中共国房地产市场崩塌的根本原因，就在于中共的盗国贼家族通过房地产行业的白手套，从银行贷出巨额资金，并通过金融操作将之归为己有。且这些借贷关系并不是以看得见的账目存在，而是以中共权力阶层的核心人物的权力背书，将贷款几乎不留痕迹地从银行贷出。普通民众的房贷与这些盗国贼的贷款比起来，基本可以忽略不计。
+台湾正式申请加入CPTPP仅一天后，9月23日，中共连续派遣24架战机侵扰台湾防空识别区。台湾军方也依照惯例，对中共战机实施了驱离及监控，中共这种无赖式袭扰几成常态。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.56.07-PM.png)
+CPTPP会员国包括日本、新西兰、加拿大、澳大利亚、文莱等11个国家。中共此前从未表达想要加入的意愿，却突然于9月16日抢在台湾之前， 正式向该阻止提出申请。CPTPP组织采取共识制，任何国家或经济体申请加入，必须获得每一个成员国的认可同意。尚未加入CPTPP的中共，自然无法阻止台湾的申请。只能通过武力袭扰恐吓表达不满，毫无大国姿态和尊严，完全是一副流氓嘴脸。
 
-因此，中共国的银行系统早已被中共的盗国贼家族在暗地里洗劫一空。换句话说，中共国的基本经济盘早已经被盗国贼家族“啃”得千疮百孔，房地产市场出现的任何一只“黑天鹅”，都会对中共国的经济形成摧枯拉朽之势。更何况，现在爆雷的是恒大这只巨大的“黑天鹅”。
+参考链接：[台湾申请加入CPTPP次日，24架次解放军军机扰台](https://www.voachinese.com/a/China-sends-24-fighter-jets-towards-Taiwan-in-show-of-force-20210923/6242848.html)
 
-这篇消息能出现在中共的党媒上，表明中共面对爆料革命的“大料猛攻”，已经对这样的结局了然于心，但是却不死心。该消息不仅在银行与开发商的真实借贷关系上欺瞒民众，企图稳定人心，同时还提议房地产企业“调整思路”，“在‘居者有其屋’的事业中寻找新的利益增长点”。这句话的潜台词即是：房地产企业下一步很可能会在有住房刚需或是拥有住房的群体里再次插入吸“血”管，为稳定中共政府的“基本经济盘”榨干老百姓最后一滴“血”。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-[http://finance.people.com.cn/n1/2021/0924/c1004-32235191.html](http://finance.people.com.cn/n1/2021/0924/c1004-32235191.html)
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

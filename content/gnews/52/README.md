@@ -2,15 +2,20 @@
 ---
 
 
-## 2021年9月23日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1551995/)
+## 注射体内的毒疫苗，如何召回？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1551991/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-340.png)
+[图片来源](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%86%8D%E6%8F%B4%E5%8F%8B%E5%9B%BD-%E6%97%A5%E6%9C%AC%E6%89%B9%E5%87%86%E9%A6%96%E6%94%AF%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97/a-56569104)
 
-9/23/2021 Miles Guo: Before it ends, the CCP will release a new virus called “fever virus” (literal translation), which is highly toxic with high death rate and no incubation period, and can cause one’s mouth, nose, eyes, and ears to bleed. The CCP is working with a certain country to build 3 biochemical labs and will release new viruses by shifting the blame to the coronavirus. It won’t be a big deal for anyone to release new viruses ever since the CCP unleashed the COVID virus.
+9月24日中共国四大新闻门户网站之一，网易新闻，发布了一篇标题为《快来看看你打的科兴疫苗是否属于被召回的批次》，卫生部门会对接种了被召回批次疫苗的人员进行观察，视情况决定是否需要补打，相关人员如果出现可疑的情况，应及时上报。召回的批次都有哪些? 疫苗接种卡上会注明施打的批次，请注意核对。被召回的批次为：IB：202107101H，202107102H，202107103H，202107104H，202108108H，202108109H，202108110H，202108111H，202108112H，202108113H，……
 
-9/23/2021 文贵直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒“，它将导致人七窍流血；中共正在跟某大国建设3个生化武器实验室，未来会释放新病毒并甩锅给冠状病毒；自从中共释放了冠状病毒，任何人再放毒都不是个事儿了
+几个小时后的晚间，这新闻篇报道已被媒体下架或者删除，中共国为何如此害怕？是因为担心揭露其所谓疫苗才是真正的杀人毒药的真相，疫苗接种已注射到体内，如何召回？后果怎么办？
 
-[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc36ln05b0)
+没有任何人，任何政府机构或单位来为此负责，愿国人都能醒来看清中共掩盖病毒和所谓的疫苗接种的流氓杀人本质。
 
-**喜联盟Gnews编辑部**
+（本文只代表个人观点，与Gnews网站无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-12.jpg)

@@ -2,13 +2,22 @@
 ---
 
 
-## 2021年9月23日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1551955/)
+## 救救孩子！日本政府已决定将疫苗接种对象降至16岁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1551980/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-339.png)
+（图片源自本文链接）
 
-9月23号： 科兴疫苗要收回这是真的吗？ [http://mp.weixin.qq.com/s/YHhfG4E2t-Fk](https://mp.weixin.qq.com/s/YHhfG4E2t-Fk)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/95ed28738bc969287642606d8e94437b.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/4d2349a64f0ed5d2f96191ea293653f1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/8da6d78583e02c022e7ed14848d1e3c3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/2a7a2c9cc77f8adfd4c7141694729afe.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/bb4de6c8d75fb14fddfb355f85681eac.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/24931a5ceb1169927475a7005637f5e9.jpg)
-[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc1a20c810)
+日本TBS新闻9月24日发布的独家消息称，国防部在24日举行的工作队会议上做出决定，东京和大阪的大规模疫苗接种中心的中共病毒疫苗接种年龄限制降至16岁。
 
-**喜联盟Gnews编辑部**
+由自卫队运营的大型疫苗接种中心对18岁及以上的人进行疫苗接种，但一些政府官员说，由于德尔塔菌株及其它感染在儿童中的传播，他们正在将接种年龄限制降低到16岁。这个计划最早将于27日开始受理申请，30日开始接种疫苗。莫德纳公司生产的疫苗，其官方说明可用于12岁以上人群的接种，而16和17岁的人群，不需要父母或监护人陪同也可以接种。
+
+信息源：[https://news.yahoo.co.jp/articles/ed238abe5ba64191f4824c6115a9115a9df24980](https://news.yahoo.co.jp/articles/ed238abe5ba64191f4824c6115a9115a9df24980)
+
+看到这个题目那一瞬，笔者心头一紧，看到最后一句，笔者脊背发凉啊！这是决定了可以不争得家长同意，学校就可以组织给孩子们集体接种疫苗了。万一孩子因接种疫苗当场倒地，可能连父母最后一面都见不上了吧……
+
+（文章仅代表作者个人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-12.jpg)

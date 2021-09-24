@@ -2,20 +2,15 @@
 ---
 
 
-## 注射体内的毒疫苗，如何召回？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1551991/)
+## 2021年9月23日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1552000/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-340.png)
-[图片来源](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%86%8D%E6%8F%B4%E5%8F%8B%E5%9B%BD-%E6%97%A5%E6%9C%AC%E6%89%B9%E5%87%86%E9%A6%96%E6%94%AF%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97/a-56569104)
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-9月24日中共国四大新闻门户网站之一，网易新闻，发布了一篇标题为《快来看看你打的科兴疫苗是否属于被召回的批次》，卫生部门会对接种了被召回批次疫苗的人员进行观察，视情况决定是否需要补打，相关人员如果出现可疑的情况，应及时上报。召回的批次都有哪些? 疫苗接种卡上会注明施打的批次，请注意核对。被召回的批次为：IB：202107101H，202107102H，202107103H，202107104H，202108108H，202108109H，202108110H，202108111H，202108112H，202108113H，……
+9/23/2021 Miles Guo: The Jiang faction gave an advice to tear Evergrande apart only to protect their capital pools such as shadow banks, insurance institutions, and trusts; The West is begging Xi to save Evergrande from collapsing, while Xi couldn’t do it by himself; The collapse of Evergrande will crash the world’s financial market, after which the CCP will release more viruses to stop Lao Baixing from protesting on the street; The New Federal State of China will bring the wealth of humanity back to the gold standard
 
-几个小时后的晚间，这新闻篇报道已被媒体下架或者删除，中共国为何如此害怕？是因为担心揭露其所谓疫苗才是真正的杀人毒药的真相，疫苗接种已注射到体内，如何召回？后果怎么办？
+9/23/2021 文贵直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池；西方各国跪求习捂住恒大这颗雷，而习自己却做不到；恒大爆雷将导致全球的金融市场崩溃，而后中共将加大力度放毒以阻止百姓上街抗议；新中国联邦将让人类财富重新回归金本位
 
-没有任何人，任何政府机构或单位来为此负责，愿国人都能醒来看清中共掩盖病毒和所谓的疫苗接种的流氓杀人本质。
+[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc2qvcb37b)
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-12.jpg)
+**喜联盟Gnews编辑部**

@@ -2,18 +2,38 @@
 ---
 
 
-## 推特推出比特币打赏功能
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1551176/)
+## 中共虚假承诺, 试图拖延恒大暴雷
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552089/)
 
-#### 翻译：坤霆、Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-46.jpg)图片来源：网络截图
-据美国合众国际社9月23日报道，本周四，推特对所有用户推出了比特币打赏功能，该功能五月份就已经开始测试。该功能将用户转发到他们选择的付款平台进行付款，推特公司并不会收取任何费用。
+栏目记者/责任编辑：文扬四海
 
-产品经理埃瑟·克劳复徳说，这个功能先可以用于苹果用户，然后几周后也可用于安卓系统。她在博文中写道：“当你想打赏你喜欢的账户，如喜剧内容创作者，那么就用一些方法表达你的爱，帮助一些小公司度过这个艰难的日子，不管你想支持什么，打赏是你帮助人的办法之一。”
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-推特允许内容创作者使用Cash App、Patreon、Bandcamp、Chiper、Razorpay、Wealthsimple Cash、GoFundMe、PicPay和Venmo接受粉丝的现金付款。现在，添加了使用Strike应用程序使用比特币付款的选项，该应用程序仅适用于美国（夏威夷和纽约除外）和萨尔瓦多的用户。
+9月23日，随时面临崩盘的恒大集团股票出人意料的突然强力反弹，最高涨幅超过30%！最终当天以17%的涨幅收盘。
 
-克罗复徳说：“我们希望每个在推特上的人可以通过这个途径获得打赏。” 数字货币可以鼓励更多的人加入到这个经济活动中，并帮助人们以最便捷的方式互相打赏。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.42.06-PM.png)
 
-##### 新闻来源： [Twitter to allow tipping using bitcoin](https://www.upi.com/Top_News/US/2021/09/23/bitcoin-Twitter-tips/2641632423766/)
+本周三恒大连夜召集集团四千名高管开会，承诺将全力以赴完成各地再建项目, 并保质保量顺利交楼,同时宣布将如期支付两笔到期债务利息 。另有消息称中共当局指示地方政府要尽量减少恒大违约对当地经济的影响，特别要严防失业导致的社会性骚乱，必要时候政府可能出手干预。所以从表面上看起来，此次的股价意外回升或许与恒大及中共将要采取的救市行动有关。但文贵先生在周四直播中揭示了此次恒大回光返照的背后实质!
+
+盗国贼迫于压力，会想尽一切办法不让恒大猝死。具体方式就是想把恒大的烂摊子分解，让各部各省就地解决债务问题,但也因此将恒大顺利变成”国企”。这样就把中国的影子银行，保险，信托等几十万亿的”资金池子”盖住了。但最后恒大一定会倒，而且会倒的非常惨，许家印不会坐牢，但很可能会遭遇意外死亡。恒大事件的结局，将远远超过雷曼兄弟。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [恒大股价反弹能否逆转颓势？北京悄悄要求各地应对“风暴”](https://www.voachinese.com/a/Evergrande-Soared-in-China-20210923/6242506.html)
+2. [2021年9月23日郭先生直播速记](https://gnews.org/zh-hans/1550418/)
+
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
