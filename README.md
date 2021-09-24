@@ -103,41 +103,41 @@
 ### [德国政府将取消未接种者的隔离误工补偿，变相强制接种](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [北京反对四方峰会](/content/gnews/31/README.md)
+### [恒大“雷曼时刻”显现：中共楼市车市各种梗断开始暴露](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [北京反对四方峰会](/content/gnews/32/README.md)
  ` Charlie`
 
-### [四国峰会的话题之一：半导体](/content/gnews/32/README.md)
+### [四国峰会的话题之一：半导体](/content/gnews/33/README.md)
  ` Charlie`
 
-### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/33/README.md)
+### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/34/README.md)
  ` Charlie`
 
-### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/34/README.md)
+### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/35/README.md)
+### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/36/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/36/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/37/README.md)
  ` wenwu`
 
-### [DC大中华时事：新冠疫苗加强针中共多地开打！三省已官宣，重点人群优先](/content/gnews/37/README.md)
+### [DC大中华时事：新冠疫苗加强针中共多地开打！三省已官宣，重点人群优先](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [悉尼开放18个公园，“感谢”疫苗接种者](/content/gnews/38/README.md)
+### [秘翻在线：多地停产限电对中共国民生的影响](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本知名医生高桥德入驻盖特](/content/gnews/40/README.md)
+### [日本知名医生高桥德入驻盖特](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
 
-### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/41/README.md)
+### [当局一直在再生元和伊维菌素治疗中共病毒有效性上说谎](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [印太地区国家拥抱AUKUS](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [IMEC：不会在敏感技术上与中共合作](/content/gnews/47/README.md)
+### [救救孩子！日本政府已决定将疫苗接种对象降至16岁](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年9月23日 文贵先生盖特 4](/content/gnews/48/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [国际要闻汇编](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年9月23日 文贵先生盖特 3](/content/gnews/50/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [墙内要闻汇编](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年9月23日 文贵先生盖特 2](/content/gnews/52/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月23日 文贵先生盖特 1](/content/gnews/53/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [IMEC：不会在敏感技术上与中共合作](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
 
-### [文革笑话 （二）](/content/gnews/48/README.md)
+### [文革笑话 （二）](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [文革笑话 （一）](/content/gnews/49/README.md)
+### [文革笑话 （一）](/content/gnews/56/README.md)
  ` 日本东京方舟农场`
 
-### [动力媒价格狂涨,中共国多省拉闸限电](/content/gnews/50/README.md)
+### [动力媒价格狂涨,中共国多省拉闸限电](/content/gnews/57/README.md)
  ` 澳喜农场`
-
-### [钟南山团队发布文献给世界开疫情管控药方](/content/gnews/51/README.md)
- ` 儒为`
-
-### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/52/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [秘翻在线：英政府告诫中共政权批评人士不要去与中共签有引渡协议的国家](/content/gnews/53/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [上峰知道台湾军方为自保打了假疫苗后以假当真不再声张](/content/gnews/54/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [樱花灭共段子之有一种、报销祖国、不灭共匪人难圆](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共疫苗都有特殊标记对特定区域特定人口实行定向屠杀](/content/gnews/56/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [樱花灭共段子之最浪漫的事、砖家解答、不讲武德](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 

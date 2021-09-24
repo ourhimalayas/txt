@@ -2,78 +2,54 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国国际时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1551523/)
+## Twitter于几周内推出比特币Tip的汇款功能
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1551580/)
 
-- **编译：wenwu–西班牙喜悦农场**
+- 编译：wenwu–西班牙喜悦农场
 
 
-您若想了解全文报导内容，请点击标题链接
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-334.png)
 
-**1. [美气候特使克里将再次访华](https://www.voachinese.com/a/kerry-to-visit-china-20210923/6242981.html)**
+在 Twitter **[TWTR](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)**[，](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)[**+3.80%**](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)上用比特币[打赏](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)将很快普及， 使这个社交媒体平台成为首批提供此类支付功能的主要公司之一（包括了GETTR平台的GETTR PAY也快了）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip115.png)
+在 Twitter 几个月来一直在测试此类汇款功能之后，该公告才发布。Tip 最早将于本周向 Apple iOS 用户提供，并将在未来几周向使用 Android 设备的用户提供。
 
-据《美国之音》2021年9月24日电，美国总统气候特使克里（John Kerry）星期三（23日）对微软国家广播公司（MSNBC）的“早安，乔”（Morning Joe）节目说，“我将在未来几个星期中的某个时候返回中共国。”克里表示，他相信拜登和习近平也会在某个时候会面，但不知道具体时间。
+在 Twitter 使用比特币**[BTCUSD](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)**[，](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)[**-0.57%**](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)作为其平台的一种支付方式后，会有许多加密货币的牛市很快就强调了汇款功能在 Jack Dorsey 运营的 Twitter 平台上的重要性。
 
-就在一天前，中共国领导人习近平说，作为对抗气候变化的全球努力的一部分，北京将不会在海外建造新的燃煤发电厂项目；克里表示这说明了中共国对治理气候变化“的确认真”，让中国成为“一个积极的角色”。
+在美国芝加哥的马勒斯（Mallers)使用推特 Tip 功能（先通过Strick账户关联Twitter)向在萨尔瓦多星巴克的大卫发送比特币，萨尔瓦多刚刚将比特币作为官方法定货币（如果比特币在美国可以使用，就等同于挂钩美元）。
 
-**2. [华尔街日报：中国当局为恒大的倒闭做准备](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210923-%E5%8D%8E%E5%B0%94%E8%A1%97%E6%97%A5%E6%8A%A5-%E4%B8%AD%E5%9B%BD%E5%BD%93%E5%B1%80%E4%B8%BA%E6%81%92%E5%A4%A7%E7%9A%84%E5%80%92%E9%97%AD%E5%81%9A%E5%87%86%E5%A4%87)**
+在通过应用程序汇款相当于 10 美元比特币后，Mallers 说“Boom！我们刚刚通过 Twitter 进行了即时、免费的汇款支付。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-24T094225.095.png)
+“为什么会有人使用西联汇款 [**WU**，**+1.10%**](https://www.marketwatch.com/investing/stock/WU?mod=MW_story_quote) 再次？当你将世界上最大的社交互联网网络之一（人脉）与世界上最好的开放货币网络（资金流通）结合起来时，就等于意外地出现世界上最好的汇款体验”马勒斯说。
 
-据《法广网》2021年9月23日电，中共国当局正要求地方政府为中国恒大集团的潜在倒闭做好准备，这表明中共国当局不愿救助这个债务缠身的房地产开发商，同时为恒大的困境带来的任何经济和社会影响做准备。
+Mallers 支持 Twitter 功能并非巧合，Twitter 正在使用他的 Strike 网络来促进 Tip 功能的使用；Mallers 与其母公司 Zap Technologies 共同创立的芝加哥初创公司 Strike ，也以帮助萨尔瓦多采用比特币而闻名。
 
-地方政府已被命令召集会计师和法律专家小组，审查围绕恒大在他们各自地区的业务的财务状况，与当地国有和私营房地产开发商商谈，准备接管恒大在当地的房地产项目，并成立执法小组，监测公众的愤怒和所谓的“群体事件”；据一份官方通知的副本，贵州省西南部的一个县级政府敦促官员确保受雇于恒大项目的农民工能拿到工资，地方当局应该“敢于行动，密切合作，尽一切努力解决恒大的债务危机”（恒大债务变成政治政绩，或者由省政府的填补窟窿）。
+就 Dorsey 而言，他也是加密货币的坚定支持者，并经营着 Square Inc. [**SQ**](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)[，** **](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)[**+2.16%**](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)， 该平台绑定的是比特币；Twitter 还表示，它的目标是提供一项功能，允许用户在其平台上验证不可伪造的代币或 NFTs（区块链加密货币资产）。
 
-**3. [中共国反对台湾加入CPTPP 台湾谴责“霸凌言论”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210923-%E4%B8%AD%E5%9B%BD%E5%8F%8D%E5%AF%B9%E5%8F%B0%E6%B9%BE%E5%8A%A0%E5%85%A5cptpp-%E5%8F%B0%E6%B9%BE%E8%B0%B4%E8%B4%A3-%E9%9C%B8%E5%87%8C%E8%A8%80%E8%AE%BA)**
+但总的来说，除了汇款外，用比特币支付小费似乎不太可能在 Twitter 上获得太多关注。比特币是全球市值第一的加密货币，已被视为一种价值储存手段，并因其令人痛苦的价格不稳定而遗臭万年（更别谈其他的去中心化加密货币了）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip116.png)
+一个很大恐惧是用比特币进行交易只会看到资产激增（或下跌）。事实上，大约 11 年前的[5 月 22 日，Laszlo Hanyecz](https://www.marketwatch.com/story/bitcoin-pizza-day-laszlo-hanyecz-spent-3-8-billion-on-pizzas-in-the-summer-of-2010-using-the-novel-crypto-11621714395?mod=article_inline)是刚刚被编码存在的[新型](https://www.marketwatch.com/story/bitcoin-pizza-day-laszlo-hanyecz-spent-3-8-billion-on-pizzas-in-the-summer-of-2010-using-the-novel-crypto-11621714395?mod=article_inline)加密货币比特币的早期采用者之一，他用1万比特币购买了“Papa Hohns”披萨饼。这次购买在2010年时大约相当于41美元，但现在的价值为4.48亿美元。
 
-据《法广网》2021年9月23日电，台湾22日正式申请加入跨太平洋伙伴全面进步协定（CPTPP），中国外交部发言人赵立坚周四（23日）说，中方坚决反对”台湾地区”加入任何官方性质的协议和组织；台湾外交部指出，中共领导人才在联合国宣称”我们过去没有，今后也不会侵略、欺负他人，不会称王称霸”；才没过几个小时，中国政府就在台湾申请CPTPP时公开打压台湾，并且以大规模空中兵力威吓台湾人民。
+无论如何，Twitter 的股价在当天上涨了 3.7%，今年迄今上涨了 23%，而道琼斯工业平均指数[DJIA, +1.48%](https://www.marketwatch.com/investing/index/DJIA?mod=MW_story_quote)上涨了 1.7% ， 标普 500 指数**[SPX](https://www.marketwatch.com/investing/index/SPX?mod=MW_story_quote)**[，**+1.21%**](https://www.marketwatch.com/investing/index/SPX?mod=MW_story_quote)当天上涨 1.4% . 道琼斯指数今年迄今已上涨 14%，而标普 500 指数在 2021 年迄今已上涨近19%。
 
-台湾陆委会说，中共当局长期以蛮横手段在国际间操作”一个中国”原则的政治框架，试图矮化台湾，阻挡台湾参与国际经济组织或协议，只是凸显”以强凌弱”，不顾国际组织既有的规则，不仅伤害台湾人民情感，无助两岸关係正向发展，也不会得到国际民主自由国家的普遍支持，中共国政府应深切自省，勿再与台湾人民为敌。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-336.png)
 
-**4. [林郑月娥：香港地产商愿配合政府解决房屋问题](https://3g.163.com/dy/article/GKHH2TGR05129O9M.html)**
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip117.png)
+**我们可以从本篇文章中的货币框架大概推测出，GETTR PAY是在10月份喜联储上市以后与GETTR相联系的基础上运用的网络汇款功能，并且该功能的优越感除了本文提到 Tip 的所有好处（包括挂钩美元）之外更重要的是喜刀的唯一性：绑定黄金。**
 
-据《网易》2021年9月22日电，香港特别行政区行政长官林郑月娥昨日表示，现时很多[地产商](https://news.163.com/news/search?keyword=%E5%9C%B0%E4%BA%A7%E5%95%86)愿意配合特区政府政策，希望未来以公私营合作方式，能共同解决民生问题；发展商持有土地，但政府在有需要时可运用公权力收回有关土地，并发展公营房屋。
+**值得一提的是，新中国联邦的G系列是包括了支持言论自由、反对 Cancle Culture 的社交平台（以及喜联储个人银行）。而 Twitter 是一个专制主义的管控平台，它更愿意向独裁政权和塔利班恐怖分子伸出了橄榄枝，这消息已经广为流传。最重要的是不要忘了，比特币的最大拥有者是中国共产党，也就是说比特币的蔓延是标志着党国重器向各国境内的扩张。**
 
-地产代理集团创办人施永青周三(22日)在一个电台节目上，回应有报道指中央“指示”香港地产商协助解决房屋问题时表示，地产商在香港房屋问题一直扮演重要角色，中央寻求地产商支持和配合，较易落实房屋政策。但他不相信中央会“指示”地产商做任何事情，认为有关报道的内容言过其实；施永青指，香港地产商作为私营机构，营商以获利为主，《基本法》列明港人买卖物业享有保障，即使政府收回私人土地，都要提供合理赔偿，认为游戏规则“无得改”；对于有指中央表明不再容许垄断行为，施永青强调，香港有竞争法，地产商不存在有垄断行为，过去政府审批农地改划进展缓慢，叫价与市场脱节，如果有措施配合，地产商有能力提升每年建屋量。
+**推特和脸书的“完美体验”包括了人脉、流量和资金流的热度。据2021年9月23日《大全》[报道](https://www.newsmax.com/politics/trump-twitter-terms-of-service-ban/2021/09/23/id/1037655/)，前美国总统唐纳德·川普的律师[在佛罗里达州对Twittter提起诉讼，](https://storage.courtlistener.com/recap/gov.uscourts.flsd.595801/gov.uscourts.flsd.595801.58.0.pdf)要求恢复他对自己账户的访问权限，称该账户是作为政府官员而非普通公民的“官方沟通的关键渠道”。也就是说推特已经成为了希特勒时候的太保，凌驾于法律之上。我们小老百姓心里有数，可比不了川普的实力。**
 
-**5. [伊朗进入上海合作组织，对中印关系的影响](https://www.taiwannews.com.tw/en/news/4295126)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-24T095208.034.png)
-
-据《台湾英文新闻》2021年9月23日电，伊朗上周五（17日）加入上海合作组织（SCO）峰会，不仅给伊朗提供了德黑兰、新德里和北京之间创造了新的外交动态；通过正式加入上海合作组织，伊朗成为继中国、印度、哈萨克斯坦、吉尔吉斯斯坦、俄罗斯、巴基斯坦、塔吉克斯坦和乌兹别克斯坦之后该组织的第九个成员国；伊朗的成员资格受到所有其他成员的欢迎，包括中国、俄罗斯和印度。
-
-上海合作组织最初成立于2001年，是由中国、哈萨克斯坦、吉尔吉斯斯坦、俄罗斯和塔吉克斯坦组成的”上海五国集团”的继承者，并试图在北京、俄罗斯和前苏联各共和国之间加强军事领域的信任建设，最主要就是由中共国发起的“一带一路”倡议；在上合组织峰会期间，印度外长苏布拉曼亚姆·杰森卡尔在与中共国外长王毅会晤时，双方同意减少国家间的紧张局势。
-
-上合组织峰会是在华盛顿特区举行的四方领导人当面会晤的前几天举行的。对印度来说，它不仅提供了一个加强与中亚关系的平台，也提供了一个与北京接触的平台。在印度向美国靠拢的时候，加入上合组织表明，虽然新德里的外交政策方向可能已经改变，但它并不喜欢被视为纯粹在华盛顿的轨道上。
-
-**6. [美国企业对中共国商业环境的乐观情绪达到三年高位](https://thehill.com/policy/international/china/573598-us-companies-optimism-about-conditions-in-china-at-three-year-high)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip118.png)
-
-据《国会山》2021年9月23日电，上海美国商会和普华永道中国进行的 2021 年调查发现，超过 75% 的受访者称自己对五年的业务前景“乐观或略微乐观”；[路透社](https://www.reuters.com/world/china/us-business-optimism-china-rebounds-pre-trade-war-levels-survey-2021-09-23/)表示，上海美国商会将乐观的前景归因于收入增加和中共国严格的大流行政策减少了 COVID-19 感染。这都归功于拜登。
-
-**7. [CPTPP投标后24架中共国军机进入台湾防空识别区](https://www.taiwannews.com.tw/en/news/4295423)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip119.png)
-
-据《台湾英文新闻》2021年9月23日电，台湾国防部（MND）于周四下午4点半的报告说，19架中国人民解放军空军（PLAAF）飞机，包括12架沉阳歼16战斗机，两架陕西运8反潜战（Y- 8架反潜战机、两架西安轰6轰炸机、一架陕西运8电子战飞机（Y-8 EW）和两架沉阳歼11战斗机，已经深入防空识别区的西南角。
-
-在同一天罕见的第二份报告中，台湾国防部在晚上 7 点 15 分宣布，另外五架中共国军用飞机进入了台湾防空识别区的西南角。这次发现了两架沉阳歼16战斗机、一架陕西KJ-500空中预警和控制飞机（KJ-500 AEW&C）和两架沉阳歼11战斗机。
-
-周四共发现有 24 架飞机合并，标志着中共国空军飞机进入台湾防空识别区的单日第三大入侵事件。有记录以来，中共国军机对台湾防空识别区的最大入侵发生在6月15日，当时共有[28架军机](https://www.taiwannews.com.tw/en/news/4223636)进入[防空](https://www.taiwannews.com.tw/en/news/4223636)识别区南端，其中陕西运8反潜战机1架，西安轰6轰炸机4架。 ，陕西运8电子战飞机1架，陕西KJ-500机载预警和控制飞机2架，沉阳歼16战斗机14架，沉阳歼11战斗机6架。在这两种情况下，台湾空军的回应都是紧急出动战斗机将飞机赶走，广播无线电警告，并用陆基防空导弹跟踪飞机。
-
-在台湾正式申请加入 CPTPP 的第二天，中国采取了激进的行动。一些分析人士推测，异常数量的军用飞机可能是北京企图恐吓台湾三思而后加入贸易组织或胁迫 CPTTPP 成员拒绝台湾的申请。
+**最后补充，萨尔瓦多的比特币是越看越像是港币了。**
 
 （文章仅代表作者观点 与GNEWS无关）
 
+新闻来源：《[市场观察](https://www.marketwatch.com/story/why-the-debut-of-tipping-bitcoin-on-twitter-isnt-just-about-tipping-11632424386?mod=hp_LATEST&amp;adobe_mc=MCMID=03287061211669659514148137854946098508%7CMCORGID=CB68E4BA55144CAA0A4C98A5%2540AdobeOrg%7CTS=1632448718)》｜作者：《马克·德坎布雷》｜发布时间：2021年9月23日
+
 * * *
 
-***发稿：信心满满***
+*发稿：Nuevo唐人*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
