@@ -2,15 +2,46 @@
 ---
 
 
-## 2021年9月23日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1551995/)
+## 有声| 读《道德经》第四章
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1552079/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+配音：香草山教育部-蒙古鸿雁
 
-9/23/2021 Miles Guo: Before it ends, the CCP will release a new virus called “fever virus” (literal translation), which is highly toxic with high death rate and no incubation period, and can cause one’s mouth, nose, eyes, and ears to bleed. The CCP is working with a certain country to build 3 biochemical labs and will release new viruses by shifting the blame to the coronavirus. It won’t be a big deal for anyone to release new viruses ever since the CCP unleashed the COVID virus.
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-9/23/2021 文贵直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒“，它将导致人七窍流血；中共正在跟某大国建设3个生化武器实验室，未来会释放新病毒并甩锅给冠状病毒；自从中共释放了冠状病毒，任何人再放毒都不是个事儿了
 
-[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc36ln05b0)
 
-**喜联盟Gnews编辑部**
+
+
+
+
+**【原文】**
+道冲，而用之有弗盈也。渊呵！似万物之宗。
+锉其兑，解其纷，和其光，同其尘。湛呵！似或存。
+吾不知其谁之子，象帝之先。
+
+**【译文】**
+大“道”空虚开形，但它的作用又是无穷无尽。深远啊！它好象万物的祖宗。消磨它的锋锐，消除它的纷扰，调和它的光辉，混同于尘垢。隐没不见啊，又好象实际存在。我不知道它是谁的后代，似乎是天帝的祖先。
+
+
+
+**文字版原文：[读《道德经》第四章](https://gnews.org/zh-hans/1539659/)**
+
+
+
+*音频处理：喜山必胜Maverick
+发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

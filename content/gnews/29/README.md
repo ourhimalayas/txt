@@ -2,31 +2,25 @@
 ---
 
 
-## 中共虚假承诺, 试图拖延恒大暴雷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552089/)
+## 美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552417/)
 
-栏目记者/责任编辑：文扬四海
+栏目记者/责任编辑：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-9月23日，随时面临崩盘的恒大集团股票出人意料的突然强力反弹，最高涨幅超过30%！最终当天以17%的涨幅收盘。
+美国共和党籍联邦参议员马可·鲁比奥和众议员阿什利·辛森9月23日提出了《重视准备与竞争能力法案》，旨在把原计划用于阿富汗的政府拨款，转移到与中共国展开的大国竞争抗衡上。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P4.002.jpeg)
+这部法案的简称是PRC，恰好与中共国的英语缩写相同。法案中所述资金款项，原本是用于维持美国在阿富汗的军事存在, 以及对阿富汗政府的援助 。法案提议将这部分资金转投到三个方面：一是国防采购，以支持国内制造业以及国家安全产业供应链；二是国防高级研究计划, 以加强美国的全球优势；三是用于海军舰船制造。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.42.06-PM.png)
-
-本周三恒大连夜召集集团四千名高管开会，承诺将全力以赴完成各地再建项目, 并保质保量顺利交楼,同时宣布将如期支付两笔到期债务利息 。另有消息称中共当局指示地方政府要尽量减少恒大违约对当地经济的影响，特别要严防失业导致的社会性骚乱，必要时候政府可能出手干预。所以从表面上看起来，此次的股价意外回升或许与恒大及中共将要采取的救市行动有关。但文贵先生在周四直播中揭示了此次恒大回光返照的背后实质!
-
-盗国贼迫于压力，会想尽一切办法不让恒大猝死。具体方式就是想把恒大的烂摊子分解，让各部各省就地解决债务问题,但也因此将恒大顺利变成”国企”。这样就把中国的影子银行，保险，信托等几十万亿的”资金池子”盖住了。但最后恒大一定会倒，而且会倒的非常惨，许家印不会坐牢，但很可能会遭遇意外死亡。恒大事件的结局，将远远超过雷曼兄弟。
+该法案内容都与中美贸易战和两国军事竞争息息相关，表明这些国会议员对中共采取强硬立场的态度,  美国不能将川普政府任期内全面对抗中共所取得的进展付诸东流，要持续加强美国在印太地区对抗中共的军事能力。
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [恒大股价反弹能否逆转颓势？北京悄悄要求各地应对“风暴”](https://www.voachinese.com/a/Evergrande-Soared-in-China-20210923/6242506.html)
-2. [2021年9月23日郭先生直播速记](https://gnews.org/zh-hans/1550418/)
-
+参考链接： [美共和党议员提出PRC法案，拟把以前准备用于阿富汗的资金用来对抗中国](https://www.voachinese.com/a/Rubio-hinson-Afghanistan-china-act-20210923/6243665.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龙
+终审: 文龙
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -35,5 +29,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

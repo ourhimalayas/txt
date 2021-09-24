@@ -2,37 +2,157 @@
 ---
 
 
-## 中小学生课本里还有多少曹文轩？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1552155/)
+## 醒悟在黑暗中勇往向前
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1552055/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-74.jpg)
-过去10年，全国的学生都被迫上过曹文轩的贼船。每个学期开学，班主任都会在家长群发一个推荐书单，让家长购买教辅书，因为有些考试的知识点来自于这些教辅书。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-34.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-13.jpg)
-2020年6月8日，郑渊洁一条置顶微博直接“开骂”曹文轩。起因是郑渊洁收到了一条邀请文章授权的短信，编辑短信的工作人员称有一本即将出版的中国儿童文选精品文库，编委会主任是曹文轩，想要收录郑渊洁的作品，只需要郑渊洁同意授权即可。（文章相关链接：[http://blog.sina.com.cn/s/blog\_473abae60102zfwt.html](http://blog.sina.com.cn/s/blog_473abae60102zfwt.html)）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-6.jpg)
-郑老师这一骂还是有效果的，今年班主任针对购买教辅书一事，加了一句：学生家长可根据情况，自愿购买。谢天谢地！
+作者: 纽约香草山农场-新世界的一员
 
-曹文轩来头可不小，中国作家、北京大学教授、中国作家协会全国委员会委员、北京作家协会副主席、儿童文学委员会委员、中国作家协会鲁迅文学院客座教授，还是第一个获得国际安徒生奖的中国作家。据说，这个奖是花400万买的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片6-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片9-1.jpg)
-不过他最为大家所知的头衔是人民教育出版社《语文》主编。 能为全国少年儿童编写语文课程，那他的专业能力一定是过硬的，我们看看广大网友怎么说。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片13.jpg)
-无论是普通网友，还是专业媒体，都对曹的作品非常不感冒，甚至表示很生气。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片14.jpg)
-莫说阅读自由，就连阅读不自由，孩子们都逃不开“曹文轩式”的噩梦。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-一个北大教授，被国家委任为《语文》主编，就可以利用手中的职权，干着贩卖个人书籍的肮脏勾当。可怜中国的孩子们刚进校园，就被这些饿狼盯上了钱袋子。如果，确实编辑的书籍技惊四座，我也认了。可就这样一个书贩子冒充儿童作家，在收钱的同时，还用文化糟粕持续糟蹋我们的孩子们。
 
-这种变相强制售书的行为是赤裸裸的公开腐败行为。中国所谓的作家专家协会到底是印刷品商会还是骗子集散地？
 
-谁给这样的骗子开了绿灯？曹文轩们固然受人唾弃，而真正的根源就是万恶的共产党，集权专制制度衍生的特权阶级，给这些伪作家提供了腐败和作假的土壤。曹文轩不是个案，他后面还躲着一大群的相关利益者，“曹文轩不是一个人在战斗。
 
-我们的孩子还将继续被强制消费下去。曹文轩只是中国教育腐败的冰山一角，还有李文轩在卖笔，赵文轩在卖校服……一个把义务教育当成了一门生意政府，把所有祖国的未来当成韭菜从小收割和荼毒的国家，试问中国的未来在哪里？
 
-【文章观点仅代表作者个人，与Gnews平台无关】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/12-1-1.png)
 
-作者：洛杉矶盘古农场 — 文如
-编审：洛杉矶盘古农场 — 心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+如果我还不知道中共的邪恶
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+我以为做牛做马是我注定的命运
+
+在绝望又希望的纠结中痛苦挣扎求活
+
+卑微在尘埃里
+
+不会醒悟不会觉悟
+
+半死不活地熬着生命力
+
+可上天赐予了我机遇
+
+让我聆听到了七哥的直播
+
+从颠倒整个认知度的震惊
+
+到时信时不敢信之间的摇摆
+
+到武汉人眼泪的痛醒
+
+到14亿人民被几大盗国贼家族愚弄的痛恨
+
+到整个华族被奴役被下套的悲悯
+
+内心充满了痛苦、悲观、愤恨、不服
+
+七哥的直播开启了我的慧根
+
+党国一分
+
+醒悟在黑暗中
+
+真正的爱国情怀勾起我抗争的勇气
+
+在正义的土壤中
+
+我明白自由和人权是天赋！
+
+我明白了我所遭受的挫折都跟恶毒的体制息息相关！
+
+我挺直了渐已弯曲的膝盖
+
+我扬起了脸上真正意义上的自信
+
+紧随灭共的队伍奋战在繁星朗月中
+
+而共产党依然妄图把我沉沦
+
+那数十年的洗脑功力
+
+身边人们的从众效应
+
+让我无力传播邪恶的罪孽
+
+反让孤独寂寞所吞噬！
+
+但你再也没有机会把我再洗成白痴
+
+我冷冷地、静静地看着你的疯狂
+
+狂奔在末路上
+
+为了让你灰飞烟灭
+
+我紧随七哥跟紧战友们
+
+努力地添砖加瓦
+
+新中国联邦人
+
+小小的指头也照样能助力弄死你！
+
+你让我经济困顿
+
+我就躺平了消费
+
+你让我活在高墙下企图强暴我的思想
+
+你妄图垄断了我的信息再次把我赶进猪圈
+
+我趁着黑夜点起心灯
+
+飞越高墙平稳地落在GTV上
+
+自由地翱翔在盖特里
+
+为了传播更多的真相
+
+为了找到更多勇敢正义的好人
+
+至今逗留在打击言论自由、常无辜封号的推特里
+
+只为了唤醒更多被你蒙蔽、受你欺骗的人们！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/12-20.png)
+
+共产党
+
+你再也无法奴役我
+
+再也休想困住我
+
+你丑陋的嘴脸
+
+在我们正义的灵魂面前扭曲变形
+
+纽伦堡审判是你最好的归宿
+
+中共不等于中国人民！
+
+蓝色击破红魔的那一刻
+
+就是世界欢呼呐喊的那一刻
+
+也是光复香港圣城
+
+我们耶路撒冷的那一刻！
+
+
+
+校对/编辑/发稿: Amanda艾曼达
+
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M9.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)

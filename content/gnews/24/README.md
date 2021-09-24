@@ -2,38 +2,41 @@
 ---
 
 
-## 英官方数据显示中共病毒疫苗使死亡风险增加了400%
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1552051/)
+## 有声| 读《道德经》第五章
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1552090/)
 
-**By:秘翻新闻**
+配音：香草山教育部-蒙古鸿雁
 
-***2021-9-24***
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/924-2.jpg)](https://gtv.org/broadcast/watch/614d96ed42a8af3151a4640a)点击图片观看视频
-**新闻摘要:**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-1、中共对香港地产大亨弃如敝屣
 
-2、郭先生谈国内大面积停电的原因、世界金融及国内疫苗真相
 
-3、郭先生爆料中共的新病毒及西方酝酿反华运动
 
-4、前辉瑞公司副总裁：让病毒泄漏的人就是提供疫苗的人
 
-5、美国医学会正在教医生如何操纵信息，以胁迫未接种疫苗的人
 
-6、纽约州未接种疫苗的医护人员将被外国人取代
 
-7、参加北京冬奥委会的所有美国运动员必须接种疫苗
+天地不仁，以万物为刍狗；圣人不仁，以百姓为刍狗。
+天地之间，其犹橐龠乎？虚而不屈，动而俞出。多闻数穷，不若守于中。
 
-8、被变相强制施打疫苗请使用以下内容保护自己与家人
 
-9、英官方数据显示中共病毒疫苗使死亡风险增加了400%
 
-**GTV链接：**[https://gtv.org/broadcast/watch/614d96ed42a8af3151a4640a](https://gtv.org/broadcast/watch/614d96ed42a8af3151a4640a)
+**文字版原文：[读《道德经》第五章](https://gnews.org/zh-hans/1536696/)**
 
-发布: 文橙
 
-* * *
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+*音频处理：喜山必胜Maverick
+发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

@@ -37,14 +37,14 @@
 ### [推特赔八亿,我们就这么干推特和油管,盖特将独步天下](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/9/README.md)
+### [爱达荷州医生：注射疫苗的人的癌症发病率提高了20%](/content/gnews/9/README.md)
+ ` MG 澳喜农场多语组`
+
+### [《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [FDA否决辉瑞疫苗加强针用于16岁以上人群 却赞同用于65岁以上人群](/content/gnews/10/README.md)
+### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
-
-### [取消打疫苗了](/content/gnews/11/README.md)
- ` 澳喜农场`
 
 ### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -67,64 +67,64 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/19/README.md)
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|不慎感染病毒, 战友送药见真情!](/content/gnews/20/README.md)
+### [有声|不慎感染病毒, 战友送药见真情!](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声| 权力的历史与华人的救赎(上）](/content/gnews/21/README.md)
+### [有声| 权力的历史与华人的救赎(上）](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声| 读《道德经》第五章](/content/gnews/22/README.md)
+### [有声| 读《道德经》第五章](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声| 读《道德经》第四章](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [英官方数据显示中共病毒疫苗使死亡风险增加了400%](/content/gnews/24/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/25/README.md)
+### [欧盟第三针开打，欧洲药品监管机构尚未批准!](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国](/content/gnews/26/README.md)
+### [美众议院通过《国防授权法》, 再度认定中共种族灭绝罪行!](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [海航集团董事长陈峰被依法采取强制措施](/content/gnews/27/README.md)
- ` 首尔天池农场`
-
-### [台湾申请加入CPTTP次日, 中共再派战机袭扰](/content/gnews/28/README.md)
+### [法印强调在印太联合行动，直指中共霸权](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [中共虚假承诺, 试图拖延恒大暴雷](/content/gnews/29/README.md)
+### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [中共承认楼市“风光”不再 但仍粉饰“太平”欺骗民众](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
+### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
 
-### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/31/README.md)
+### [英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [十四届全运会的奇葩现象](/content/gnews/31/README.md)
  ` 波士顿五月花农场`
 
-### [解读习近平9月21日联大讲话](/content/gnews/32/README.md)
+### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/32/README.md)
  ` 波士顿五月花农场`
 
-### [秘翻在线：欧盟暂缓辉瑞疫苗加强针](/content/gnews/33/README.md)
+### [解读习近平9月21日联大讲话](/content/gnews/33/README.md)
+ ` 波士顿五月花农场`
+
+### [秘翻在线：欧盟暂缓辉瑞疫苗加强针](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美商务部长称 必要时将对华为采取进一步行动](/content/gnews/34/README.md)
+### [秘翻在线：美商务部长称 必要时将对华为采取进一步行动](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国奥委会竟强制冬奥运动员全员接种中共病毒疫苗](/content/gnews/35/README.md)
+### [秘翻在线：美国奥委会竟强制冬奥运动员全员接种中共病毒疫苗](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墨尔本第五天抗议强制接种疫苗活动中200多人被捕](/content/gnews/36/README.md)
+### [墨尔本第五天抗议强制接种疫苗活动中200多人被捕](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美众院通过国防授权法 含中共国人权、冬奥、病毒等内容](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：英国国会香港小组调查涉嫌压制人权的在港英资银行](/content/gnews/38/README.md)
+### [秘翻在线：美众院通过国防授权法 含中共国人权、冬奥、病毒等内容](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/39/README.md)
@@ -139,48 +139,48 @@
 ### [日本知名医生高桥德入驻盖特](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
 
-### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/43/README.md)
+### [9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [华尔街出手相救，恒大回光返照？](/content/gnews/44/README.md)
+### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/44/README.md)
+ ` 秘密翻译组金融团队`
+
+### [华尔街出手相救，恒大回光返照？](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国是否正在接近其雷曼时刻？](/content/gnews/45/README.md)
+### [中共国是否正在接近其雷曼时刻？](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
- ` 秘密翻譯組G-Translators`
+### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/47/README.md)
+ ` 英喜-粵語組`
 
-### [有声|川普前新冠病毒小组高级顾问预言大规模儿童将因接种而死亡](/content/gnews/47/README.md)
+### [醒悟在黑暗中勇往向前](/content/gnews/48/README.md)
+ ` 纽约香草山MOS03`
+
+### [海航集团董事长陈峰被依法采取强制措施](/content/gnews/49/README.md)
+ ` 首尔天池农场`
+
+### [有声|川普前新冠病毒小组高级顾问预言大规模儿童将因接种而死亡](/content/gnews/50/README.md)
  ` MOSREC`
 
-### [中小学生课本里还有多少曹文轩？](/content/gnews/48/README.md)
+### [台湾申请加入CPTTP次日, 中共再派战机袭扰](/content/gnews/51/README.md)
+ ` GTV新闻访谈`
+
+### [中小学生课本里还有多少曹文轩？](/content/gnews/52/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [天赐良机新中国联邦把人的财富和生产价值回归金本位](/content/gnews/49/README.md)
+### [天赐良机新中国联邦把人的财富和生产价值回归金本位](/content/gnews/53/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（六）](/content/gnews/50/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（六）](/content/gnews/54/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恒大引爆国内金融&amp;影子银行和国际金融,加速中共放毒](/content/gnews/51/README.md)
+### [中共虚假承诺, 试图拖延恒大暴雷](/content/gnews/55/README.md)
+ ` GTV新闻访谈`
+
+### [恒大引爆国内金融&amp;影子银行和国际金融,加速中共放毒](/content/gnews/56/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：日本外相对台湾申请加入CPTPP表示欢迎](/content/gnews/52/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021年9月23日 文贵先生盖特 7](/content/gnews/53/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [秘翻在线：主动投案的王立科“问题”不寻常](/content/gnews/54/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021年9月23日 文贵先生盖特 6](/content/gnews/55/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [注射体内的毒疫苗，如何召回？](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年9月23日 文贵先生盖特 5](/content/gnews/57/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [有声| 读《道德经》第四章](/content/gnews/57/README.md)
+ ` MOSREC`
 
