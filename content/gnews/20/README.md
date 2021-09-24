@@ -2,225 +2,212 @@
 ---
 
 
-## 班农：我们必须要求中共国赔偿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1550553/)
+## 检察长、SEC主动和解意义，GTV没有说一句假话
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1550753/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2272.png)
-[https://gtv.org/video/id=614c2a36d2e2b817486cc3ed](https://gtv.org/video/id=614c2a36d2e2b817486cc3ed)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/07asmvm-ycet4.jpg)
+[https://gtv.org/video/id=614cbc0ed2e2b817486ce80c](https://gtv.org/video/id=614cbc0ed2e2b817486ce80c)
 
-**Steve Bannon
-史蒂夫 班农**
+**字幕内容:**
 
-You’re gotta go to the finances,is right now breaking news
-你必须去看看财务，现在的突发新闻
+**郭文贵
+Miles Guo**
 
-Scalise is whipping the vote for the republicans，finally
-终于斯卡利斯正在为共和党人投票
+所以这个案子大家看到, 我们没有说一句假话
+Entonces vieron que en este caso no dijimos ninguna mentira
 
-whipping the vote against the continuing resolution in the debts
-对债务问题的持续决议投了反对票
+你们一定要懂得这个案子
+Ustedes deben entender esto
 
-remember this audience that you forced this by putting your shirt,
-记住这些观众是你被强迫穿上衬衫
+共产党如果说当时的报案, 我们上万份文件
+Si en aquel momento el PCCh reportó este caso, nuestros millones de documentos
 
-nobody is talking about this all
-根本没有人谈论这个
+你看这个和解书上万份文件
+Mire estas decenas de miles de documentos de este asentamiento
 
-confusion, the fog of war,
-困惑， 战争不确定性
+千万美元的律师
+El abogado de diez millones de dólares
 
-bang, now we get up or down vote of
-砰，现在我们投赞成票或反对票
+几万份
+Decena de miles
 
-whether they’re going to continue with these trillion dollar deficits every year on the CR,
-他们是否会继续每年在信用卡上出现这些万亿美元的赤字
+每个人都是我的个人律师是完全独立的
+Cada uno es mi abogado personal, son totalmente independientes
 
-they have no budget, no plan.
-他们没有预算，没有计划
+GTV, SARACA, VOG, 九指妖, 王雁平
+G-TV, SARACA, VOG, Sara Wei, Wang Yanping
 
-Okay, stop it full, and they want to they want freebie on the debt ceiling
-好的，全部停止，而且他们想要免费的债务上限
+还有总裁, 董事
+También están los presidentes y directores
 
-on the debt ceiling, it’s very simple.
-关于债务上限，这很简单
+都是单独的律师
+Todos tienen su abogado personal
 
-They want to is massive increase
-他们想要的是大规模增加
+你不可能共用的
+Es imposible compartir
 
-going to run trillion dollar deficits for the next 10 years going to congressional budget
-未来 10 年将有数万亿美元的赤字进入国会预算
+每个律师的文件都是几千份, 上万份, 几万份
+Los documentos de cada abogado son decenas de miles y millones
 
-that’s just normal course of business $1 trillion next 10 years.
-这只是未来 10 年(每年) 1 万亿美元的正常业务过程
+你觉得那一张纸来的代价, 那不是开玩笑的
+Tú crees que el precio de ese papel es una broma
+但是这个中间你撒一次谎你就完了
+Sin embargo, dentro de esto si mientes una vez se acabará todo
 
-In addition, we’re talking about the infrastructure bill does not pay for 1.2 frapp
-此外，我们正在谈论的基础设施法案不支付 1.2 万亿
+你比如说大卫投了10万美元, 当时给七哥通话
+Por ejemplo, si David invirtió cien mil dólares y en aquel momento me hace una llamada
 
-In addition, another 3.5 in this radical socialist agenda they got
-此外，他们在这个激进的社会主义议程中又获得了 3.5万亿
+七哥说我保证你10倍回报
+Yo le digo que le prometo un décuplo de retorno
 
-that’s on top of those are goodies on top up.
-最重要的是这些都是好东西
+完了, 就这一句话就完了
+Se acabó con sólo esta frase
 
-Here’s the thing for the debt ceiling, and you’re hearing it here first,
-这是债务上限的问题，你首先在这里听到
+如果问我说, 我从来没说过啊
+Si me viene a preguntar y le respondo que nunca dije esto
 
-Because we thought this through.
-因为我们深思熟虑
+只要举证出来立马你进监狱
+Una vez sale alguna prueba, irás a la cárcel de inmediato
 
-We remember war room, a global pandemic triggers an economic crisis
-记住在战斗室，全球大流行引发经济危机
+而且这种还不准保释
+Además, este tipo de fianza no está permitida
 
-that triggers a capital markets crisis
-引发资本市场危机
+在法庭作证期间的所有的不准保释
+No se permite ninguna fianza durante el testimonio en el tribunal
 
-that triggers a geopolitical crisis, it’s all come about
-引发地缘政治危机，这一切都发生了
+证明咱没有任何造假
+Esto demuestra que no cometimos ningún fraude
 
-as we said back in January 2020.
-正如我们在 2020 年 1 月所说的那样
+没有任何刑事犯罪
+No hay ningún delito penal
 
-The economic crisis was the drop in aggregate demand.
-经济危机是总需求下降。
+不适合任何诈骗, 这个词儿大了去了
+No es apto para ninguna estafa, esta palabra es demasiado grande
 
-We need it in past $5 trillion
-过去 5 万亿美元我们需要它
+懂的法官就知道, 这完全是个冤枉的案子
+Un juez que comprenda sabrá que este es un caso completamente injusto
 
-$5 trillion is in that debt of the 28.34 trillion that we have on the books today
-5 万亿美元在我们今天账面上的 28.34 万亿美元债务中
+这都是9月13号签的
+Todo esto es firmado el 13 de septiembre
 
-$5 trillion is from the COVID bills.
-5 万亿美元来自 COVID 法案
+那天直播的时候我只说SEC
+En la transmisión en vivo de aquel día sólo dije La Comisión de Bolsa y Valores (SEC) de EE. UU
 
-Number one, before we even consider
-第一，在我们甚至考虑之前
+我没有说刑事调查这个
+No hablé de la investigación criminal
 
-or think of increasing the debt ceiling one penny
-或者考虑增加一分钱的债务上限
+实际上那时候已经签了
+En realidad ya en aquel momento ya había firmado
 
-we need reparations from the Chinese Communist Party for their virus,
-我们需要中国共产党为他们的病毒赔偿
+是她先签, 我们后签的
+Ella firmó primero y luego nosotros
 
-every American citizen, independent, Democrat,
-每一个美国公民，独立的，民主党的
+问完我在车上, 你要不要签
+Me preguntó en el carro si iba a firmar o no
 
-progressive, right wing gotta demand us.
-进步的，右翼的要求我们
+所以我说你就签了吧, 因为保护战友的钱
+Entonces le dije firma para proteger el dinero de los compañeros luchadores
 
-Hey, why are we all of a sudden gonna increase the debt ceiling,
-嘿，我们为什么突然要提高债务上限
+我等她公布出来, 检察官
+Esperaré que ella lo anuncie, el fiscal
 
-another $10 trillion, right,
-另一个 10 万亿美元，对吧？
+他们都想抢头条SEC
+Todos ellos quieren acaparar con los titulares de la SEC
 
-because they’ve always playing the three card monte,
-因为他们总是玩三张牌蒙特
+结果SEC把她头条给抢了
+Resulta ser que la SEC acaparó con sus titulares
 
-because now they said hey we already spent the money,
-因为现在他们说，嘿，我们已经花了钱
+所以她就没有公布出来
+Por lo tanto, ella no lo pudo anunciar
 
-but that’s not the way it’s going to work
-但这不是它的工作方式
+所以检察官詹乐霞肯定不开心
+Así que el fiscal Zhan Lexia seguramente debe estar descontenta
 
-your credit card is， your credit card is your credit card
-你的信用卡是，你的信用卡是你的信用卡
+但是她干了一件事, 就没罚咱钱
+Pero ella hizo algo, no nos multó
 
-and Janet Yellen costs it your credit card.
-珍妮特·耶伦花掉你的信用卡
+本来也罚3500万, 一模一样的
+Nos iba a multar 3500 millones
 
-The $5 trillion, from the Transnational criminal organization
-来自跨国有组织犯罪组织的 5 万亿美元
+她百分之百要和SEC一样
+Ella 100% iba a ser como la SEC
 
-that is the Chinese communist party is owed to the American people for COVID.
-那就是中国共产党欠美国人民的冠状病毒
+最后一分钟把罚钱给拿掉了
+Pero en último minuto canceló la multa
 
-All we’re asking for is every penny of the bill
-我们所要求的只是法案的每一分钱
+我们这伟大的检察长太可爱了
+Nuestro gran fiscal general es súper agradable
 
-the bills that were passed and spent.
-这个法案通过和花费了
+所以她选举的时候, 我们要合法的
+Por eso cuando sea el momento de su elección, debemos utilizar de manera legal
 
-Once we get that, we get some headroom.
-一旦我们得到那个，我们才有些富余
+大家一定要去支持她
+Todos tienen que ir a apoyarla
 
-Why do we need to increase the debt ceiling,
-为什么我们需要提高债务上限
+做任何政府官员选举要支持她
+Apoyarla para cualquier elección oficial del gobierno
 
-we’ve got $5 trillion, you can play with.
-我们有 5 万亿美元，你可以随意支配
+还同意了把VOG继续刑事调查和九指妖
+Además, aceptó seguir la investigación crimanl acerca de VOG y Sara Wei
 
-This is why they have to start being tough in Washington DC,
-这就是为什么他们必须在华盛顿特区开始变得强硬
+这检察长太伟大了
+Este fiscal general es muy grandioso
 
-where the debt where the dip lender or the debtor in possession,
-浸出贷款人或债务人占有的债务
+所以这个刑事(不是开玩笑的)
+Por lo tanto, este procedimiento penal (no es una broma)
 
-you’re in this room, ladies and gentlemen,
-你们在这个房间里，女士们，先生们
+打共产党的脸打惨了
+Abofeteó al Partido Comunista en la cara
 
-over the next three, four weeks
-在接下来的三、四个星期
+就是人家没有任何诈骗和刑事犯罪行为
+A pesar que ellos no tuvieron ningún fraude y actos delictivos
 
-the most intense debate in America modern American political history is going to take place,
-美国现代政治史上最激烈的辩论即将发生
+甚至动机都没有
+Ni siquiera una mala intención
 
-because now you’re in the room
-因为现在你在房间里
+所有的(股份)没有登记
+Todas las (acciones) no fueron registradas
 
-you forced this forcing function of this audience
-你强迫了观众的这个强迫功能
+那是因为VOG的九指妖超过了两千
+Eso es porque Sara Wei de VOG superó los dos mil
 
-forced them to combine the credit the CR with the debt ceiling,
-迫使他们将信用卡与债务上限结合起来
+我们只有1300把椅子
+Nosotros solamente tenemos 1300 sillas
 
-they’re going to say, Oh, you’re going to bring down the economy
-他们会说，哦，你会拖垮经济
+我们没有任何问题
+No tenemos ningún problema
 
-three and a half million people going to be at work.
-三百五十万人将会去工作
+做这个私募的律师事务所, 是马丁-路德金的代表律师他儿子
+El bufete de abogados que hizo este capital privado es su hijo el abogado que representa a Martin Luther King
 
-Hey, show me the money. Where’s the five trillion.
-嘿，给我看看钱， 五万亿美元在哪里呢？
+他的律师事务所做的
+Su firma de abogados lo hizo
 
-Why do you need these increases,
-为什么你需要这些增加
+而且他本身就是SEC的调查官之一
+Además, él mismo es uno de los investigadores de la SEC
 
-why do you have structural deficits of $10 trillion over the next 10 years
-为什么未来 10 年会有 10 万亿美元的结构性赤字
+他有时候代表SEC, 有时候代表客户
+Él a veces representa a la SEC, a veces representa a los clientes
 
-before you get to the goodies of the infrastructure bill
-在了解基础设施法案的好处之前
+所以他写的东西绝对没有问题
+Por eso lo que escribe de seguro no habrá ningún problema
 
-which is totally phony and the 3.5.
-这是完全假的和 这个3.5（万亿）
+所以你看他的案子
+Entonces mira sus casos
 
-Marjorie Taylor Green and she’s hated in this town do you know why,
-玛乔丽·泰勒·格林和她在这个镇上被人憎恨，你知道为什么
+你知道成立一个GTV, 你哪想得那么简单, 那么容易
+Sabes para establecer un G-TV, no es tan fácil de lo que piensas
 
-because in the land of the blind, the one eyed man is king,
-因为在盲人之地，独眼的人是王
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-and on this infrastructure bill
-和这个基础设施法案
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1439923684865495040?s=24](https://twitter.com/se1y7cblljselva/status/1439923684865495040?s=24)
 
-she’s gone hey I’m a CEO of a construction company.
-她会，嘿，我是一家建筑公司的首席执行官
-
-This is compliant infrastructure
-这是合规的基础设施
-
-This thing is totally completely phony
-这东西完全是假的
-
-——————————————————
-
-原视频链接: [https://rumble.com/vms9xv-bannon-we-must-demand-reparations-from-china.html](https://rumble.com/vms9xv-bannon-we-must-demand-reparations-from-china.html)
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

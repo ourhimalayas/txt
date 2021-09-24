@@ -2,209 +2,173 @@
 ---
 
 
-## 检察长、SEC主动和解意义，GTV没有说一句假话
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1550753/)
+## 最高级的洗钱是海外贸易、石油、大宗贸易、国际期货
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1550787/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/07asmvm-ycet4.jpg)
-[https://gtv.org/video/id=614cbc0ed2e2b817486ce80c](https://gtv.org/video/id=614cbc0ed2e2b817486ce80c)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/108anks6-n1frw.jpg)
+[https://gtv.org/video/id=614cbc8cd2e2b817486ce843](https://gtv.org/video/id=614cbc8cd2e2b817486ce843)
 
 **字幕内容:**
 
 **郭文贵
 Miles Guo**
 
-所以这个案子大家看到, 我们没有说一句假话
-Entonces vieron que en este caso no dijimos ninguna mentira
+第三条
+Tercero
 
-你们一定要懂得这个案子
-Ustedes deben entender esto
+这都是靠这些赌场洗钱
+Todo esto depende del casino para blanquear el dinero
 
-共产党如果说当时的报案, 我们上万份文件
-Si en aquel momento el PCCh reportó este caso, nuestros millones de documentos
+这都还不是最高级玩法
+Y aún así no es el modo de juego más avanzado
 
-你看这个和解书上万份文件
-Mire estas decenas de miles de documentos de este asentamiento
+最高玩法是啥, 兄弟姐妹们
+Cuál es el modo de juego más avanzado, hermanos y hermanas
 
-千万美元的律师
-El abogado de diez millones de dólares
+钱压根就没进中国
+Que el dinero no entre a China en absoluto
 
-几万份
-Decena de miles
+像海外贸易
+Así como el comercio exterior
 
-每个人都是我的个人律师是完全独立的
-Cada uno es mi abogado personal, son totalmente independientes
+七哥去年帮人换了很多钱
+El año pasado ayudé a alguien a cambiar mucho dinero
 
-GTV, SARACA, VOG, 九指妖, 王雁平
-G-TV, SARACA, VOG, Sara Wei, Wang Yanping
+换钱一换都是十亿百亿美元
+El intercambio de dinero era de mil millones y decenas de miles de millones
 
-还有总裁, 董事
-También están los presidentes y directores
+钱压根就没进大陆
+El dinero nunca entró a China
 
-都是单独的律师
-Todos tienen su abogado personal
+所有的贸易项下的外汇全在境外呢
+Todas las divisas bajo comercio están en el extranjero
 
-你不可能共用的
-Es imposible compartir
+东西卖了
+Vendieron las cosas
 
-每个律师的文件都是几千份, 上万份, 几万份
-Los documentos de cada abogado son decenas de miles y millones
+账给你记了
+Anotaron las cuentas
 
-你觉得那一张纸来的代价, 那不是开玩笑的
-Tú crees que el precio de ese papel es una broma
-但是这个中间你撒一次谎你就完了
-Sin embargo, dentro de esto si mientes una vez se acabará todo
+钱没有进中共国
+Pero el dinero no entró a China
+这是多可怕
+Mira lo terrible que es
 
-你比如说大卫投了10万美元, 当时给七哥通话
-Por ejemplo, si David invirtió cien mil dólares y en aquel momento me hace una llamada
+还有一个石油
+También está el petróleo
 
-七哥说我保证你10倍回报
-Yo le digo que le prometo un décuplo de retorno
+是吧
+Cierto
 
-完了, 就这一句话就完了
-Se acabó con sólo esta frase
+大宗贸易
+El comercio de carga a granel
 
-如果问我说, 我从来没说过啊
-Si me viene a preguntar y le respondo que nunca dije esto
+国际期货
+Futuros internacionales
 
-只要举证出来立马你进监狱
-Una vez sale alguna prueba, irás a la cárcel de inmediato
+哪个不能洗钱
+Cuál no puede blanquear el dinero
 
-而且这种还不准保释
-Además, este tipo de fianza no está permitida
+像上海期货中心
+Así como el Centro de Futuros Shanghai
 
-在法庭作证期间的所有的不准保释
-No se permite ninguna fianza durante el testimonio en el tribunal
+就按一下扣子
+Con tan sólo darle un botón
 
-证明咱没有任何造假
-Esto demuestra que no cometimos ningún fraude
+就输(洗)掉100个亿美元
+Puede perder (blanquear) 100 mil millones de dólares
 
-没有任何刑事犯罪
-No hay ningún delito penal
+就是十秒钟
+Solamente diez segundos
 
-不适合任何诈骗, 这个词儿大了去了
-No es apto para ninguna estafa, esta palabra es demasiado grande
+最快可以1.2秒
+Lo más rápido puede como 1,2 segundos
 
-懂的法官就知道, 这完全是个冤枉的案子
-Un juez que comprenda sabrá que este es un caso completamente injusto
+忒, 今天关上输了
+Huh, hoy se apaga y pierde
 
-这都是9月13号签的
-Todo esto es firmado el 13 de septiembre
+100亿美元
+100 mil millones de dólares
 
-那天直播的时候我只说SEC
-En la transmisión en vivo de aquel día sólo dije La Comisión de Bolsa y Valores (SEC) de EE. UU
+钱拿走了
+Toman el dinero
 
-我没有说刑事调查这个
-No hablé de la investigación criminal
+明天咵咵咵的
+Y al día siguiente
 
-实际上那时候已经签了
-En realidad ya en aquel momento ya había firmado
+数值上给你恢复过来
+Se recuperan los valores numéricos
 
-是她先签, 我们后签的
-Ella firmó primero y luego nosotros
+嗝儿, 就是100亿没了
+Con tan sólo hipas se desaparecerán los 100 mil millones de dólares
 
-问完我在车上, 你要不要签
-Me preguntó en el carro si iba a firmar o no
+这比你那个赌博的高级多了
+Esto es mucho más avanzado que apostar
 
-所以我说你就签了吧, 因为保护战友的钱
-Entonces le dije firma para proteger el dinero de los compañeros luchadores
+这谁能玩啊
+Quién podrá jugar así
 
-我等她公布出来, 检察官
-Esperaré que ella lo anuncie, el fiscal
+只能中共中央常委玩
+Solamente el Comité Permanente del PCCh
 
-他们都想抢头条SEC
-Todos ellos quieren acaparar con los titulares de la SEC
+政治局极少玩
+El Politburó juega muy poco
 
-结果SEC把她头条给抢了
-Resulta ser que la SEC acaparó con sus titulares
+是吧
+Cierto
 
-所以她就没有公布出来
-Por lo tanto, ella no lo pudo anunciar
+你那些傻货
+Esos tontos
 
-所以检察官詹乐霞肯定不开心
-Así que el fiscal Zhan Lexia seguramente debe estar descontenta
+像许家印只能靠赌场
+Como Xu Jiayin que solamente depende del casino
 
-但是她干了一件事, 就没罚咱钱
-Pero ella hizo algo, no nos multó
+是吧
+Verdad
 
-本来也罚3500万, 一模一样的
-Nos iba a multar 3500 millones
+然后咱这老百姓就靠地下钱庄
+Entonces nosotros la gente común confiamos en la economía subterránea
 
-她百分之百要和SEC一样
-Ella 100% iba a ser como la SEC
+对吧
+Cierto
 
-最后一分钟把罚钱给拿掉了
-Pero en último minuto canceló la multa
+你要付高额的钱呢
+Debes pagar una gran cantidad de dinero
 
-我们这伟大的检察长太可爱了
-Nuestro gran fiscal general es súper agradable
+5%至10%啊
+De 5% a 10%
 
-所以她选举的时候, 我们要合法的
-Por eso cuando sea el momento de su elección, debemos utilizar de manera legal
+地下钱庄
+A la economía subterránea
 
-大家一定要去支持她
-Todos tienen que ir a apoyarla
+赌场你要付个1%
+En el casino debes pagar el 1%
 
-做任何政府官员选举要支持她
-Apoyarla para cualquier elección oficial del gobierno
+是不是
+¿ Cierto o no?
 
-还同意了把VOG继续刑事调查和九指妖
-Además, aceptó seguir la investigación crimanl acerca de VOG y Sara Wei
+甚至千分之几
+Incluso unas milésimas
 
-这检察长太伟大了
-Este fiscal general es muy grandioso
+那么人家玩期货的
+Entonces aquella persona que juega futuros
 
-所以这个刑事(不是开玩笑的)
-Por lo tanto, este procedimiento penal (no es una broma)
+人家玩国际贸易的, 大额的
+Ellos juegan lo que es comercio internacional y de gran cantidad
 
-打共产党的脸打惨了
-Abofeteó al Partido Comunista en la cara
+海关的, 人家那些弄的
+La aduana lo que ellos hacen
 
-就是人家没有任何诈骗和刑事犯罪行为
-A pesar que ellos no tuvieron ningún fraude y actos delictivos
+1分钱成本都没
+No cuesta ningún centavo
 
-甚至动机都没有
-Ni siquiera una mala intención
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-所有的(股份)没有登记
-Todas las (acciones) no fueron registradas
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1439525995464196096?s=24](https://twitter.com/se1y7cblljselva/status/1439525995464196096?s=24)
 
-那是因为VOG的九指妖超过了两千
-Eso es porque Sara Wei de VOG superó los dos mil
-
-我们只有1300把椅子
-Nosotros solamente tenemos 1300 sillas
-
-我们没有任何问题
-No tenemos ningún problema
-
-做这个私募的律师事务所, 是马丁-路德金的代表律师他儿子
-El bufete de abogados que hizo este capital privado es su hijo el abogado que representa a Martin Luther King
-
-他的律师事务所做的
-Su firma de abogados lo hizo
-
-而且他本身就是SEC的调查官之一
-Además, él mismo es uno de los investigadores de la SEC
-
-他有时候代表SEC, 有时候代表客户
-Él a veces representa a la SEC, a veces representa a los clientes
-
-所以他写的东西绝对没有问题
-Por eso lo que escribe de seguro no habrá ningún problema
-
-所以你看他的案子
-Entonces mira sus casos
-
-你知道成立一个GTV, 你哪想得那么简单, 那么容易
-Sabes para establecer un G-TV, no es tan fácil de lo que piensas
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1439923684865495040?s=24](https://twitter.com/se1y7cblljselva/status/1439923684865495040?s=24)
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
