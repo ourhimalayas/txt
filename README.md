@@ -103,29 +103,29 @@
 ### [德国政府将取消未接种者的隔离误工补偿，变相强制接种](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/31/README.md)
+### [四国峰会的话题之一：半导体](/content/gnews/31/README.md)
+ ` Charlie`
+
+### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/32/README.md)
+ ` Charlie`
+
+### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/34/README.md)
+ ` wenwu`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/35/README.md)
+ ` wenwu`
+
+### [DC大中华时事：新冠疫苗加强针中共多地开打！三省已官宣，重点人群优先](/content/gnews/36/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [悉尼开放18个公园，“感谢”疫苗接种者](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/38/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [中共是印尼屠杀华人肇因，未来海外华人处境更凶险！](/content/gnews/32/README.md)
- ` 军迷wilson`
-
-### [南澳水务公司（SA Water）工人罢工抗议不公平待遇](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [雅典娜时报-第061期](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [波音公司将在澳大利亚制造军用无人机](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共当局对恒大重组方案将公布，可能一拆三变成国企](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本出现一系列“突破性感染”，接疫苗仍感染中共病毒](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墨尔本：抗议活动继续，数百名警察严防死守](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
