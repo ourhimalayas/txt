@@ -2,15 +2,36 @@
 ---
 
 
-## 2021年9月23日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1552000/)
+## 秘翻在线：美国奥委会竟强制冬奥运动员全员接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1552068/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+#### 撰稿：青衣
 
-9/23/2021 Miles Guo: The Jiang faction gave an advice to tear Evergrande apart only to protect their capital pools such as shadow banks, insurance institutions, and trusts; The West is begging Xi to save Evergrande from collapsing, while Xi couldn’t do it by himself; The collapse of Evergrande will crash the world’s financial market, after which the CCP will release more viruses to stop Lao Baixing from protesting on the street; The New Federal State of China will bring the wealth of humanity back to the gold standard
+#### 校对发布：文柯Miles
 
-9/23/2021 文贵直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池；西方各国跪求习捂住恒大这颗雷，而习自己却做不到；恒大爆雷将导致全球的金融市场崩溃，而后中共将加大力度放毒以阻止百姓上街抗议；新中国联邦将让人类财富重新回归金本位
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4sa6d5f6re5hy465kjuil5io665sdfa6dg.jpg)图片来自网络
 
-[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc2qvcb37b)
+据《希望之声》9月24日报道，美国奥林匹克与帕拉林匹克委员会（简称美国奥委会，USOPC）9月22日宣布一项新政策，要求参加2022年北京冬奥会的美国运动员，必须在11月初之前全面接种中共病毒疫苗。不过，美国奥委会表示，允许工作人员和运动员提交医疗或宗教豁免申请。
 
-**喜联盟Gnews编辑部**
+美国奥委会的要求是：所有美国代表团成员，或有希望参加未来奥运会的人，必须在12月1日前出示疫苗接种证明。
+
+据悉，美国预计将派出约240名运动员参加冬奥会，但包括所有工作人员、运动员和承包商在内的所有人，都必须全面接种中共病毒疫苗。
+
+国际奥林匹克委员会（IOC）也一直在鼓励接种疫苗，但在之前并没有硬性要求参加日本东京夏季奥运会的运动员接种疫苗。虽然有许多国家的奥委会都纷纷效仿，强烈建议接种疫苗，不过都没有硬性要求接种。
+
+国际奥委会的第一本”比赛手册”将于下个月出版。这是一本为冬季奥运会提供与健康相关和其他指导的手册。目前尚不知手册里是否有疫苗接种指引。
+
+美国其他体育组织，包括NFL和NBA，目前都尚未有强制要求接种疫苗的政策。不过，NBA不强制球员接种疫苗，但却强制裁判员和工作人员接种。此外，一些明星运动员则公开表示不打算接种疫苗，如高尔夫球手布德尚博（Bryson DeChambeau）和游泳运动员安德鲁（Michael Andrew），都曾公开表示没有接种疫苗。
+
+自全世界大范围接种疫苗后，很多国家的疫情不但未得到缓解，反而快速攀升，甚至创下感染率和死亡率新高，证明疫苗根本不具备防护病毒及控制疫情的作用。不仅如此，疫苗的巨大副作用也开始快速及大范围地显现，这一切完全验证了爆料革命和新中国联邦创始人郭文贵先生一早向世界发出的警告：疫苗无用，且比病毒危害更大。
+
+在如此背景之下，美国拜登政府近日令人匪夷所思地颁布了疫苗强制令，而美国奥委会竟也率先强制冬奥运动员接种疫苗。美国的确强大，能够战胜美国的只有美国自己，能够毁掉美国的也只有美国或邪恶或昏晕的政客和组织。
+
+注：本文仅代表作者观点
+
+新闻链接：
+
+
+
+> 美奥委会要求美国冬奥队员全面接种疫苗[#美国奥运会](https://twitter.com/hashtag/%E7%BE%8E%E5%9B%BD%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hash&amp;ref_src=twsrc%5Etfw) [#残奥会](https://twitter.com/hashtag/%E6%AE%8B%E5%A5%A5%E4%BC%9A?src=hash&amp;ref_src=twsrc%5Etfw) [#打疫苗](https://twitter.com/hashtag/%E6%89%93%E7%96%AB%E8%8B%97?src=hash&amp;ref_src=twsrc%5Etfw) &gt; 美国奥运会和残奥会（USOPC）9月22日宣布一项新政策，要求参加2022年北京冬奥会的美国运动员，必须在11月初之前，全面接种中共病毒（CCP Virus）疫苗。[https://t.co/fGj6LfxNeX](https://t.co/fGj6LfxNeX) [pic.twitter.com/DcVeFggTMk](https://t.co/DcVeFggTMk)
+> — 希望之聲國際廣播電台 (@SoundofHopeSOH) [September 24, 2021](https://twitter.com/SoundofHopeSOH/status/1441209123823968258?ref_src=twsrc%5Etfw)

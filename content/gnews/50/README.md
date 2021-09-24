@@ -2,15 +2,15 @@
 ---
 
 
-## 2021年9月23日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1551995/)
+## 2021年9月23日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1552000/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-9/23/2021 Miles Guo: Before it ends, the CCP will release a new virus called “fever virus” (literal translation), which is highly toxic with high death rate and no incubation period, and can cause one’s mouth, nose, eyes, and ears to bleed. The CCP is working with a certain country to build 3 biochemical labs and will release new viruses by shifting the blame to the coronavirus. It won’t be a big deal for anyone to release new viruses ever since the CCP unleashed the COVID virus.
+9/23/2021 Miles Guo: The Jiang faction gave an advice to tear Evergrande apart only to protect their capital pools such as shadow banks, insurance institutions, and trusts; The West is begging Xi to save Evergrande from collapsing, while Xi couldn’t do it by himself; The collapse of Evergrande will crash the world’s financial market, after which the CCP will release more viruses to stop Lao Baixing from protesting on the street; The New Federal State of China will bring the wealth of humanity back to the gold standard
 
-9/23/2021 文贵直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒“，它将导致人七窍流血；中共正在跟某大国建设3个生化武器实验室，未来会释放新病毒并甩锅给冠状病毒；自从中共释放了冠状病毒，任何人再放毒都不是个事儿了
+9/23/2021 文贵直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池；西方各国跪求习捂住恒大这颗雷，而习自己却做不到；恒大爆雷将导致全球的金融市场崩溃，而后中共将加大力度放毒以阻止百姓上街抗议；新中国联邦将让人类财富重新回归金本位
 
-[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc36ln05b0)
+[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc2qvcb37b)
 
 **喜联盟Gnews编辑部**

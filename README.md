@@ -43,8 +43,8 @@
 ### [取消打疫苗了](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/11/README.md)
- ` wenwu`
+### [昨日香港，今日世界](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [Facebook files：背后的吹哨人将公开与国会合作](/content/gnews/12/README.md)
  ` wenwu`
@@ -67,22 +67,22 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/19/README.md)
+### [有声| 权力的历史与华人的救赎(上）](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声| 读《道德经》第五章](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声| 读《道德经》第四章](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [英官方数据显示中共病毒疫苗使死亡风险增加了400%](/content/gnews/22/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医学人士公开反对FDA和拜登政府的疫苗政策](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [昨日香港，今日世界](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [昨日香港，今日墨尔本](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [政府不想让人们知道中共病毒疫苗的真相（精简版）](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [政府不想让人们知道中共病毒疫苗的真相（完整版）](/content/gnews/24/README.md)
+### [医学人士公开反对FDA和拜登政府的疫苗政策](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中共承认楼市“风光”不再 但仍粉饰“太平”欺骗民众](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [中共将扩大生化战，释放“热毒”](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：日本外相对台湾申请加入CPTPP表示欢迎](/content/gnews/31/README.md)
+### [秘翻在线：美商务部长称 必要时将对华为采取进一步行动](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GT Online: Wang Like Involved in an &#8221; Unusual&#8221; Case Related to Xi](/content/gnews/32/README.md)
+### [墨尔本第五天抗议强制接种疫苗活动中200多人被捕](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：美众院通过国防授权法 含中共国人权、冬奥、病毒等内容](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：主动投案的王立科“问题”不寻常](/content/gnews/33/README.md)
+### [秘翻在线：英国国会香港小组调查涉嫌压制人权的在港英资银行](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大“雷曼时刻”显现：中共楼市车市各种梗断开始暴露](/content/gnews/34/README.md)
+### [秘翻在线：日本外相对台湾申请加入CPTPP表示欢迎](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [GT Online: Wang Like Involved in an &#8221; Unusual&#8221; Case Related to Xi](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：主动投案的王立科“问题”不寻常](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大“雷曼时刻”显现：中共楼市车市各种梗断开始暴露](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [北京反对四方峰会](/content/gnews/35/README.md)
- ` Charlie`
-
-### [四国峰会的话题之一：半导体](/content/gnews/36/README.md)
- ` Charlie`
-
-### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/37/README.md)
- ` Charlie`
-
-### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线：多地停产限电对中共国民生的影响](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月23日 文贵先生盖特 7](/content/gnews/47/README.md)
+### [秘翻在线：欧盟暂缓辉瑞疫苗加强针](/content/gnews/47/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：美国奥委会竟强制冬奥运动员全员接种中共病毒疫苗](/content/gnews/48/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021年9月23日 文贵先生盖特 7](/content/gnews/49/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月23日 文贵先生盖特 6](/content/gnews/48/README.md)
+### [2021年9月23日 文贵先生盖特 6](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [注射体内的毒疫苗，如何召回？](/content/gnews/49/README.md)
+### [注射体内的毒疫苗，如何召回？](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月23日 文贵先生盖特 5](/content/gnews/50/README.md)
+### [2021年9月23日 文贵先生盖特 5](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [救救孩子！日本政府已决定将疫苗接种对象降至16岁](/content/gnews/51/README.md)
+### [救救孩子！日本政府已决定将疫苗接种对象降至16岁](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月23日 文贵先生盖特 4](/content/gnews/52/README.md)
+### [2021年9月23日 文贵先生盖特 4](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [国际要闻汇编](/content/gnews/53/README.md)
+### [国际要闻汇编](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月23日 文贵先生盖特 3](/content/gnews/54/README.md)
+### [2021年9月23日 文贵先生盖特 3](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [墙内要闻汇编](/content/gnews/55/README.md)
+### [墙内要闻汇编](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年9月23日 文贵先生盖特 2](/content/gnews/56/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月23日 文贵先生盖特 1](/content/gnews/57/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 

@@ -2,15 +2,19 @@
 ---
 
 
-## 拜登承诺与欧盟建立基本伙伴关系
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1551665/)
+## 秘翻在线：主动投案的王立科“问题”不寻常
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1551984/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09241.jpeg)
-美国国家安全顾问杰克·沙利文在周三至周四举行的一些会议上分别向欧盟委员会主席比约恩.塞伯特、欧洲理事会主席的内阁首长雷德里克·伯纳德传达了：乔·拜登总统将致力于美国和欧盟之间的基本伙伴关系。沙利文说：“美国对与欧盟密切合作协调印太地区工作有强烈的兴趣，并赞扬了该地区的新欧洲战略。
+撰稿：葛大饼
 
-免责申明：本文只代表译者观点，与Gnews无关
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-24-190248.jpg)图片来源： 新浪
+根据2021年9月22日新浪网报道，去年主动投案的江苏省委常委、政法委书记王立科，被开除党籍公职。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/09/24/usa-impegno-biden-a-fondamentale-partnership-con-ue\_b2792493-c43b-40e6-ad4a-2f362a2479f5.html](https://www.ansa.it/sito/notizie/topnews/2021/09/24/usa-impegno-biden-a-fondamentale-partnership-con-ue_b2792493-c43b-40e6-ad4a-2f362a2479f5.html)
+王立科虽主动投案，但中央纪委国家监委双开通报中并未出现认定其主动投案、如实交代违纪违法问题的表述，通报中严肃指出王立科严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿、行贿犯罪等，且在党的十八大后不收敛不收手，性质特别恶劣，情节特别严重，应予严肃处理。
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+新闻表示相对之前主动投案的中共高官纷纷被从轻处理，王立科却例外，问题一定不寻常。
+
+郭先生直播也提到王立科是孟建柱三大剑客之一，和孙力军一样是黑手党，他以及孙力军，王立军等对中共国政治的影响深远超过当年的四人帮。王立科和罗文进（前江苏公安厅刑警总队队长）是敢把习给灭了的人。敢灭一尊的人，那绝不是一件寻常的案子了。
+
+**[新闻来源](https://news.sina.cn/sh/2021-09-22/detail-iktzqtyt7383616.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
