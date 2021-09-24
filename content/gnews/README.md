@@ -13,8 +13,8 @@
 
 ---
 
-### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/1/README.md)
- ` 日本东京方舟农场`
+### [中共是印尼屠杀华人肇因，未来海外华人处境更凶险！](/content/gnews/1/README.md)
+ ` 军迷wilson`
 
 ### [9/23/2021 七哥直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒”](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
@@ -103,29 +103,29 @@
 ### [美众议院通过《国防授权法》, 再度认定中共种族灭绝罪行!](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/31/README.md)
+### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [推特将台湾割让给中共](/content/gnews/32/README.md)
+ ` 纽约香草山MOS02`
+
+### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [十四届全运会的奇葩现象](/content/gnews/32/README.md)
+### [十四届全运会的奇葩现象](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [法印强调在印太联合行动，直指中共霸权](/content/gnews/33/README.md)
+### [法印强调在印太联合行动，直指中共霸权](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/34/README.md)
+### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/35/README.md)
+### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/37/README.md)
  ` 波士顿五月花农场`
 
-### [解读习近平9月21日联大讲话](/content/gnews/36/README.md)
+### [解读习近平9月21日联大讲话](/content/gnews/38/README.md)
  ` 波士顿五月花农场`
-
-### [秘翻在线：欧盟暂缓辉瑞疫苗加强针](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：美商务部长称 必要时将对华为采取进一步行动](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“厂里停电”90年代的记忆又回来了](/content/gnews/47/README.md)
+### [你好朋友连线Q May:爆料革命要面对很多东西,首先是灭共](/content/gnews/47/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [苏格兰启蒙运动对英国民族性格的影响](/content/gnews/48/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“厂里停电”90年代的记忆又回来了](/content/gnews/49/README.md)
  ` 银河勇气之星`
 
-### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/48/README.md)
+### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/50/README.md)
  ` 纽约香草山MOS03`
 
-### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/49/README.md)
+### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/50/README.md)
+### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/52/README.md)
  ` 英喜-粵語組`
 
-### [《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权](/content/gnews/51/README.md)
+### [《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [醒悟在黑暗中勇往向前](/content/gnews/52/README.md)
+### [《疫苗死亡报告》：疫苗不良反应事件只有不到1%的报告](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
+
+### [醒悟在黑暗中勇往向前](/content/gnews/55/README.md)
  ` 纽约香草山MOS03`
 
-### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/53/README.md)
+### [美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [海航集团董事长陈峰被依法采取强制措施](/content/gnews/55/README.md)
- ` 首尔天池农场`
-
-### [有声|川普前新冠病毒小组高级顾问预言大规模儿童将因接种而死亡](/content/gnews/56/README.md)
- ` MOSREC`
-
-### [台湾申请加入CPTTP次日, 中共再派战机袭扰](/content/gnews/57/README.md)
+### [英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 

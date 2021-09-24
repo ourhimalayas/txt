@@ -2,24 +2,26 @@
 ---
 
 
-## 台湾申请加入CPTTP次日, 中共再派战机袭扰
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552144/)
+## 英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552303/)
 
-栏目记者/责任编辑：在远方
+栏目记者/责任编辑：文龙
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-台湾正式申请加入CPTPP仅一天后，9月23日，中共连续派遣24架战机侵扰台湾防空识别区。台湾军方也依照惯例，对中共战机实施了驱离及监控，中共这种无赖式袭扰几成常态。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.56.07-PM.png)
-CPTPP会员国包括日本、新西兰、加拿大、澳大利亚、文莱等11个国家。中共此前从未表达想要加入的意愿，却突然于9月16日抢在台湾之前， 正式向该阻止提出申请。CPTPP组织采取共识制，任何国家或经济体申请加入，必须获得每一个成员国的认可同意。尚未加入CPTPP的中共，自然无法阻止台湾的申请。只能通过武力袭扰恐吓表达不满，毫无大国姿态和尊严，完全是一副流氓嘴脸。
+自由时报消息, 英国政府9月份重新更新了对公民赴香港旅游的警示声明，提醒多项关于”港区国安法”的事项，包括国安法的45项控罪，以及涉案最高刑罚是终身监禁。该法例对香港境内或境外进行的违法活动都适用，也就是说无论涉案人是哪国国籍，中共国的执法机构同样可以对其拘留或进行引渡。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-9.19.07-PM.png)
+流亡台湾的港人李宇轩被控”勾结外国势力”案情公布后，英国政府向涉及此案的英国金融家/人权倡议者比尔·布劳德发出警告，提醒他避免前往与中国有引渡协议的国家。此前 布劳德被港府指推动针对香港政要的马格尼茨基人权法案。布劳德对此称： “香港国安法不仅针对香港人，还针对居住在香港司法管辖范围外的人”。据悉英国政府正在联络布劳德之外的其他人士，这些人也同样在港府的所谓”国安法案件”中被提及。
 
-参考链接：[台湾申请加入CPTPP次日，24架次解放军军机扰台](https://www.voachinese.com/a/China-sends-24-fighter-jets-towards-Taiwan-in-show-of-force-20210923/6242848.html)
+除此之外，8月1日生效的入境条例还修订为，香港政府可以禁止指定人士离境。此举导致澳洲、加拿大、德国、英国、美国、新西兰、法国、芬兰、荷兰及爱尔兰先后暂停了与香港的引渡协议。
+(本文仅代表作者观点)
+
+参考链接: [人權金融家曝英政府示警：別去與中國有引渡協議國家！](https://news.ltn.com.tw/news/world/breakingnews/3681770)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龙
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -28,5 +30,4 @@ CPTPP会员国包括日本、新西兰、加拿大、澳大利亚、文莱等11�
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

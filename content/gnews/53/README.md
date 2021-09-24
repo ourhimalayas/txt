@@ -2,31 +2,27 @@
 ---
 
 
-## 美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552417/)
+## 《疫苗死亡报告》：新冠疫苗不仅永久改变人类DNA，被改变者还将失去人权
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1552505/)
 
-栏目记者/责任编辑：在远方
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近期，弗拉基米尔·泽连科医生（Dr. Vladimir Zelenko MD）和戴维·约翰·索伦森（David John Sorensen）在联合出版的《（新冠）疫苗死亡报告》中披露，疫苗注射可能永久性地改变人类的DNA，而被改变的DNA和RNA可以被授予专利，使该基因改造人成为专利持有人的财产而失去人权。
 
-美国共和党籍联邦参议员马可·鲁比奥和众议员阿什利·辛森9月23日提出了《重视准备与竞争能力法案》，旨在把原计划用于阿富汗的政府拨款，转移到与中共国展开的大国竞争抗衡上。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P4.002.jpeg)
-这部法案的简称是PRC，恰好与中共国的英语缩写相同。法案中所述资金款项，原本是用于维持美国在阿富汗的军事存在, 以及对阿富汗政府的援助 。法案提议将这部分资金转投到三个方面：一是国防采购，以支持国内制造业以及国家安全产业供应链；二是国防高级研究计划, 以加强美国的全球优势；三是用于海军舰船制造。
+报告披露，在一名Facebook员工与Facebook首席执行官马克-扎克伯格（Mark Zuckerberg）的内部会议记录中显示，扎克伯格承认人类的DNA和RNA实际上正在被新冠疫苗中的物质修改，而且没有人知道这可能导致什么其他突变。
 
-该法案内容都与中美贸易战和两国军事竞争息息相关，表明这些国会议员对中共采取强硬立场的态度,  美国不能将川普政府任期内全面对抗中共所取得的进展付诸东流，要持续加强美国在印太地区对抗中共的军事能力。
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/الادعاءات-التي-تستهدف-بيل-غيتس-تتهمه-بالاستفادة-من-وباء-كورونا-مثل-شخصية.jpeg)图片来自于网络
 
-参考链接： [美共和党议员提出PRC法案，拟把以前准备用于阿富汗的资金用来对抗中国](https://www.voachinese.com/a/Rubio-hinson-Afghanistan-china-act-20210923/6243665.html)
+更为可怕的是，一位西班牙医生Chinda Brandolino博士表示，被改变的DNA和RNA可以被授予专利，使该基因改造人成为专利持有人的财产。因此，她一直在警告人类拒绝接种新冠疫苗，一旦人类基因组被改变，这个人就不再被认为是一个原本的人，而是成为一个转基因人，失去人权。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+而早前卡莉·马德吉博士在她的纪录片《为人类而战》中也向人类发出警告：这些（新冠疫苗）注射可能永久性地改变人类的DNA，并可能产生灾难性的结果。但这一信息，不但被世界各地的事实核查人员（他们直接或间接地接受疫苗行业支付的报酬）否认，还被其称为假新闻。而且，Facebook也制定相关政策，审查所有警告这种新冠疫苗如何可能改变人类基因组的声音。
 
-终审: 文龙
-校正/发稿：我不在这里
+*注：本文仅代表作者观点，与 Gnews无关*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考报告：*
+
+[疫苗死亡报告](https://assets.gnews.org/wp-content/uploads/2021/09/2009763b209e8808-2.pdf)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

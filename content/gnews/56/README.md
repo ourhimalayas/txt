@@ -2,43 +2,31 @@
 ---
 
 
-## 有声|川普前新冠病毒小组高级顾问预言大规模儿童将因接种而死亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1552244/)
+## 美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552417/)
 
-配音：纽约香草山美食部 – 玫瑰园
+栏目记者/责任编辑：在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+美国共和党籍联邦参议员马可·鲁比奥和众议员阿什利·辛森9月23日提出了《重视准备与竞争能力法案》，旨在把原计划用于阿富汗的政府拨款，转移到与中共国展开的大国竞争抗衡上。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P4.002.jpeg)
+这部法案的简称是PRC，恰好与中共国的英语缩写相同。法案中所述资金款项，原本是用于维持美国在阿富汗的军事存在, 以及对阿富汗政府的援助 。法案提议将这部分资金转投到三个方面：一是国防采购，以支持国内制造业以及国家安全产业供应链；二是国防高级研究计划, 以加强美国的全球优势；三是用于海军舰船制造。
 
+该法案内容都与中美贸易战和两国军事竞争息息相关，表明这些国会议员对中共采取强硬立场的态度,  美国不能将川普政府任期内全面对抗中共所取得的进展付诸东流，要持续加强美国在印太地区对抗中共的军事能力。
+(本文仅代表作者观点)
 
-在9月21日的Stew Peters直播采访节目中，这位前美国卫生及公共服务部资深顾问，保罗·亚历山大（Dr. Paul E. Alexander）警示儿童新冠疫苗接种计划恐怖至极、令人惊骇。
+参考链接： [美共和党议员提出PRC法案，拟把以前准备用于阿富汗的资金用来对抗中国](https://www.voachinese.com/a/Rubio-hinson-Afghanistan-china-act-20210923/6243665.html)
 
-当权者对于疫苗接种的狂热，远远超出了所有人的想象。他们将无视民众反抗，将人们享受的各项权力一一抹去，以强烈攻势推行新冠病毒疫苗，更多的受害者也无法阻挡这种暴虐的碾压。他们的最终目的：是给每个人都注射一剂毒药。这名前官员继续说，关于新冠病毒，从最开始我们就知道，儿童几乎对它是免疫的，即使发生传播也根本无需任何干预措施。而在疫苗崇拜者的骨子里，他们坚持必须给儿童注射，这无关科学和医学范畴。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-在上周FDA激烈的听证会中，许多令人震惊的真相被揭露出来，包括辉瑞公司操纵报告结果，新冠疫苗导致的严重不良反应和高致死率。但FDA没有听从任何卫生保健人员的意见，依然推进儿童接种计划。保罗警告说，成千上万的儿童，将会因为被强制接种新冠疫苗而受到直接伤害。
-
-处于生长发育阶段的儿童，因自身免疫力发展对环境反应更加敏感。有医学常识的人们愤怒的表示，让孩子们佩戴无效的医疗设备，并且长期使用酒精擦手液、消毒水将消弱其免疫系统功能。恐怖的是，从最开始当权者就在享受这种以虐待为主的变态宗教承诺。
-
-[文字版原文：川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](https://gnews.org/zh-hans/1550240/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-
+终审: 文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
