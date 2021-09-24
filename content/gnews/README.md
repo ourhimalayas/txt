@@ -13,28 +13,28 @@
 
 ---
 
-### [世界恐惧恒大暴雷](/content/gnews/1/README.md)
- ` HimalayaRussia`
+### [美国科学家在四种CCP病毒“疫苗”中发现氧化石墨烯，聚乙二醇等毒性物质](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [监察长：五角大楼对中共国药品的依赖造成了国家安全风险](/content/gnews/2/README.md)
+### [台湾申请加入CPTPP次日，24架次解放军军机扰台](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [未满18岁感染新冠状病毒，未经治疗下存活率达99.98%](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
+### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
 
-### [被政治接管的全球医疗监管部门阻止医生用伊维菌素治疗新冠患者](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全世界在酝酿一场反华运动，这是共产党最愿意看到的](/content/gnews/6/README.md)
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [上峰知道台湾军方为自保打了假疫苗后以假当真不再声张](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/7/README.md)
+### [中共疫苗都有特殊标记对特定区域特定人口实行定向屠杀](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年9月23日郭文贵先生G-TV直播小飞象速记版](/content/gnews/8/README.md)
+### [全世界在酝酿一场反华运动，这是共产党最愿意看到的](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [秘翻在线：尾身会长的留言栏显示日本民众对疫苗护照很不理解](/content/gnews/9/README.md)
@@ -55,16 +55,16 @@
 ### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [“供不应求”致中药材价格上涨](/content/gnews/15/README.md)
+### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [“供不应求”致中药材价格上涨](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/16/README.md)
+### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [车企“缺芯”困局难解](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [广告禁令，槟榔产业迎“整顿”？](/content/gnews/18/README.md)
+### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
 ### [最高级的洗钱是海外贸易、石油、大宗贸易、国际期货](/content/gnews/19/README.md)
@@ -85,47 +85,47 @@
 ### [视频| 真相工程 &#8211; 暗访药监局小喽啰](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [中共是印尼屠杀华人肇因，未来海外华人处境更凶险！](/content/gnews/25/README.md)
+### [郭文贵先生透露，西方正在酝酿反华运动](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [中共将扩大生化战，释放“热毒”](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [德国政府将取消未接种者的隔离误工补偿，变相强制接种](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [中共是印尼屠杀华人肇因，未来海外华人处境更凶险！](/content/gnews/28/README.md)
  ` 军迷wilson`
 
-### [彼得·达扎克承认福奇资助了武毒所](/content/gnews/26/README.md)
+### [彼得·达扎克承认福奇资助了武毒所](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [华大基因“火眼”覆盖全球](/content/gnews/27/README.md)
+### [华大基因“火眼”覆盖全球](/content/gnews/30/README.md)
  ` GTV新闻访谈`
-
-### [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [中共国正迎来严重经济危机](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [郭文贵:中共准备扩大生化战争](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
 
 ### [南澳水务公司（SA Water）工人罢工抗议不公平待遇](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾申请加入CPTPP次日，24架次解放军军机扰台](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [雅典娜时报-第061期](/content/gnews/33/README.md)
+### [雅典娜时报-第061期](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [波音公司将在澳大利亚制造军用无人机](/content/gnews/34/README.md)
+### [波音公司将在澳大利亚制造军用无人机](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共当局对恒大重组方案将公布，可能一拆三变成国企](/content/gnews/35/README.md)
+### [中共当局对恒大重组方案将公布，可能一拆三变成国企](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本出现一系列“突破性感染”，接疫苗仍感染中共病毒](/content/gnews/36/README.md)
+### [日本出现一系列“突破性感染”，接疫苗仍感染中共病毒](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墨尔本：抗议活动继续，数百名警察严防死守](/content/gnews/37/README.md)
+### [墨尔本：抗议活动继续，数百名警察严防死守](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [NIH主任声称符合条件的学生应接种辉瑞疫苗](/content/gnews/38/README.md)
+### [NIH主任声称符合条件的学生应接种辉瑞疫苗](/content/gnews/37/README.md)
  ` 纽约香草山MOS02`
+
+### [前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力](/content/gnews/38/README.md)
+ ` 美国政要直译推`
 
 ### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/47/README.md)
+### [樱花灭共段子之有一种、报销祖国、不灭共匪人难圆](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/48/README.md)
+### [樱花灭共段子之最浪漫的事、砖家解答、不讲武德](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/49/README.md)
+### [樱花灭共段子之要房有一套、自己被掏空、他们叫什么](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/50/README.md)
+### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之嗅觉灵敏、最聪明的人、嫁祸于人](/content/gnews/51/README.md)
+### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之房企P2P、养老金亏空解决办法](/content/gnews/52/README.md)
+### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线 :欧洲高电价的恶梦开始?](/content/gnews/53/README.md)
+### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/53/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/54/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共段子之嗅觉灵敏、最聪明的人、嫁祸于人](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共段子之房企P2P、养老金亏空解决办法](/content/gnews/56/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线 :欧洲高电价的恶梦开始?](/content/gnews/57/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [非凡夫妻——贺郭文贵先生梅斯林婚诗六首](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [这是一场中共与黑暗会合谋的超限战](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
-
-### [文·贵天成——文贵先生谈“恒大许家印”（五）](/content/gnews/56/README.md)
- ` 墨尔本雅典娜农场`
-
-### [我们一定要用媒体这个核武器反击了](/content/gnews/57/README.md)
- ` 纽约香草山MOS03`
 
