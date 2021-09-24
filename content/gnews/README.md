@@ -67,22 +67,22 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/19/README.md)
+### [毁掉台湾的主要是卖台贼](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [金融信托的猫腻](/content/gnews/20/README.md)
+### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/21/README.md)
+### [金融信托的猫腻](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/22/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/22/README.md)
+### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/24/README.md)
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/25/README.md)
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（7）](/content/gnews/47/README.md)
+### [2021年9月24日澳喜要闻（每日更新）](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（7）](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/48/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登真“给力” 将释放孟晚舟](/content/gnews/49/README.md)
+### [拜登真“给力” 将释放孟晚舟](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/50/README.md)
+### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/51/README.md)
+### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/52/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/52/README.md)
+### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [中共央行禁止该国的加密货币衍生交易](/content/gnews/53/README.md)
+### [中共央行禁止该国的加密货币衍生交易](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [苏格兰启蒙运动对现代世界的影响](/content/gnews/54/README.md)
+### [苏格兰启蒙运动对现代世界的影响](/content/gnews/55/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [你好朋友连线Q May:爆料革命要面对很多东西,首先是灭共](/content/gnews/55/README.md)
+### [你好朋友连线Q May:爆料革命要面对很多东西,首先是灭共](/content/gnews/56/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [苏格兰启蒙运动对英国民族性格的影响](/content/gnews/56/README.md)
+### [苏格兰启蒙运动对英国民族性格的影响](/content/gnews/57/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [“厂里停电”90年代的记忆又回来了](/content/gnews/57/README.md)
- ` 银河勇气之星`
 
