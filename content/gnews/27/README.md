@@ -2,23 +2,22 @@
 ---
 
 
-## 菲律宾官员提议民众随身佩戴接种卡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552638/)
+## 原材料价格上涨，中共国电力紧张
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552673/)
 
 栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-347.png)
-菲律宾内政部副部长马丁· 迪诺在周三的简报会上，提议民众随身佩戴由政府签发的接种卡，以证明自己已接种新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
+近期，中共政府加强能源使用限制，中国多省市地区限电。中共国家发改委官员于北京时间9月24日表示，将寻求解决用电限制和原材料价格上涨所造成的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-22.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-31.jpeg)
 
-根据目前大马尼拉市的第四级别的警报规定，尚未完成“完全接种”的人将被限制进入部分户外场所。迪诺表示，随身佩戴接种卡，将免受警察和相关工作人员的打扰和询问。
+据悉，因为政府的用电限制，包括江苏和云南在内的至少15个省区的上市公司的生产遭到严重的损失，人民的生活也受到一定程度的影响。
 
-疫苗不能使自己免于病毒感染，反而会对身体造成巨大的伤害。佩戴疫苗接种卡是政府强制措施的手段之一，不仅违宪，还将造成人民内部的分裂以及形成相互歧视。
+根据文贵先生直播爆料，中共国内的此次大面积停电和煤炭价格高涨有关。中共因为外汇吃紧，进口原材料供应不上，导致煤炭价格越来越高，收取一块钱电费就要赔0.7，致使目前的电力能源仅能满足40%左右的需求。中共只好欺瞒人民，以环保为由限制用电。
 
 (本文仅代表作者观点）
 
-参考链接：[DILG exec proposes requiring vaccine cards to be worn like IDs outdoors](https://www.philstar.com/headlines/2021/09/22/2128949/dilg-exec-proposes-requiring-vaccine-cards-be-worn-ids-outdoors)
-[Fauci Effect: Philippine Local Official Proposes Vaccine Cards To Be Worn Like IDs in Public – May Happen in the US](https://www.thegatewaypundit.com/2021/09/fauci-effect-philippine-local-official-proposes-vaccine-cards-worn-like-ids-public-may-happen-us/)
+参考链接：[China scrambles to fix power crunch, tame runaway raw material markets](https://www.reuters.com/world/china/china-seeking-resolve-issues-caused-by-power-curbs-higher-raw-materials-prices-2021-09-24/?taid=614d7777f45bab000139807d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
