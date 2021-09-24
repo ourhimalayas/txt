@@ -2,71 +2,15 @@
 ---
 
 
-## 币圈新闻动态：HCN上市时间会是在10月
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1551651/)
+## 拜登承诺与欧盟建立基本伙伴关系
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1551665/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09241.jpeg)
+美国国家安全顾问杰克·沙利文在周三至周四举行的一些会议上分别向欧盟委员会主席比约恩.塞伯特、欧洲理事会主席的内阁首长雷德里克·伯纳德传达了：乔·拜登总统将致力于美国和欧盟之间的基本伙伴关系。沙利文说：“美国对与欧盟密切合作协调印太地区工作有强烈的兴趣，并赞扬了该地区的新欧洲战略。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+免责申明：本文只代表译者观点，与Gnews无关
 
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/09/24/usa-impegno-biden-a-fondamentale-partnership-con-ue\_b2792493-c43b-40e6-ad4a-2f362a2479f5.html](https://www.ansa.it/sito/notizie/topnews/2021/09/24/usa-impegno-biden-a-fondamentale-partnership-con-ue_b2792493-c43b-40e6-ad4a-2f362a2479f5.html)
 
-
-## 每日一问
-
-
-
-
-
-风险意识，仅仅是预防被团灭的第一步，对吗？
-
-
-
-
-
-## 喜马拉雅交易所要闻
-
-
-
-
-
-- 文贵先生9月23日直播消息，HCN上市时间会是在10月。
-
-
-
-
-
-
-## 新闻动态
-
-
-
-
-
-1. Cointelegraph报道，本周的数据显示，比特币长期持有者将通过积累比特币引发新一轮价格上涨。Glassnode数据显示，比特币供应将进入一个新的老化过程。研究人员强调了其活跃的供应指标，他们指出，一年前或更早前移动的比特币供应百分比正在形成局部底部。过去在这种情况下，持有者刚刚出售旧币就开始积累，使得整体的休眠供应时间延长。
-2. 9月23日消息，在线流媒体平台和制作公司Netflix将制作一部关于已故加密货币交易所Quadriga CX创始人Gerald Cotten的纪录片。根据Netflix 9月23日的一条推文，该平台宣布《无人信任：追捕加密货币之王》将于2022年首映。据报道，Cotten于2018年12月死于克罗恩病的并发症，其是唯一知道该交易所冷钱包私钥的人。
-3. Theblock报道，基于Solana的“DAO基础设施”协议Grape Protocol完成120万美元的种子轮融资，Multicoin Capital领投。据悉，Grape的第一个工具Grape Access允许DAO根据社区成员的钱包余额提供专属访问，通过将他们的社交账户与密钥连接起来来实现这一点。Grape协议目前只专注于服务Solana生态系统。
-4. 9月23日消息，Avalanche生态跨链DEX Hurricane Swap宣布获Huobi Ventures战略投资。HurricaneSwap是部署在Avalanche上的首个采用LP机制的跨链协议，此前已获得雪崩亚洲基金AVATAR Ventures、A&T Capital、了得资本、JRR Crypto、红链资本等多家基金战略投资。
-5. 9月23日，据Cream Finance官方消息，C.R.E.A.M.将AAVE、CRV、CREAM代币添加到跨协议借贷平台Iron Bank中，用户现已可以使用相关的借贷服务。
-6. Coindesk报道，稳定币USDC发行商Circle宣布与金融科技公司Plaid达成合作，为资金进出加密货币市场提供更顺畅的流程。与Plaid合作是Circle与网络更深入集成的另一种方式，允许用户在法定货币和美元支持的加密代币之间更快地移动转换。
-7. 南华早报报道，总部位于香港的全球化加密金融服务商Amber Group正考虑未来两年内在美国直接上市，全球业务发展有助于其抵御有关生息产品的监管不确定性。据悉，Amber已在全球拥有400多名员工，管理着超过15亿美元的加密资产，为机构和散户投资者提供服务。
-8. 9月23日消息，梅赛德斯F1车队宣布与全球领先的加密货币交易所FTX建立了新的长期合作关系，FTX的标志将出现在赛车和车手的显要位置。部分FTX品牌将在即将到来的俄罗斯大奖赛期间揭开面纱，该大奖赛定于9月26日星期日举行，并将在2022赛季开始前继续扩大。
-9. 9月23日消息，私有资产数据预言机协议Lithium Finance宣布与波卡生态去中心化数据云平台Cere Network达成合作，以加强数据隐私保护，并保护所有智慧节点（Wisdom Nodes）的定价数据。据了解，Cere Network是首个基于波卡Polkadot构建的去中心化数据云平台，针对服务数据集成、数据协作进行了优化。
-10. Prnewswire报道，欧洲主题度假村Port Aventura World正在开发软件，以支持客人使用加密货币作为支付手段。在第一阶段，该度假村将在所有酒店接受比特币作为支付方式，这同时也是该公司提升数字化和创新的战略项目的一部分。
-11. 9月23日消息，去中心化永续期权协议Shield宣布主网Beta版本正式上线，用户在提交申请并通过后即可使用Shield，将开放BTC/USDT交易对，每个地址的存款容量为10BTC。另外Shield还将开启流动性挖矿活动，只需要将USDT存入智能合约，可赚取Shield的原生代币SLD。
-12. 9月23日消息，去中心化衍生品协议Deri Protocol在推特表示其永续期权协议的总交易量超过了1亿USDT。Deri Protocol于8月11日发布了永续期权交易协议白皮书，该协议将采用主动做市商（DPMM）机制，在为交易者提供长期期权敞口而无需挪仓的同时，来提高资金利用率和改善滑点等问题，该协议于9月1日正式上线。
-13. Blockworks报道，Gemini通过将Wrapped Filecoin（EFIL）集成到Chainlink的储备证明（PoR）中，将其转化为DeFi级商品。通过Chainlink预言机，DeFi平台将能够审计Gemini铸造并托管的EFIL储备。PoR数据馈送使用Chainlink驱动的预言机网络检查Gemini托管钱包的FIL余额，如果Gemini持有的FIL余额出现偏差超过一定阈值，则发布链上更新。
-14. U.Today报道，面向加密教育和开发的多用途平台News Crypto（NWC）获得了Polygon的一笔捐款，用于创建两个网络之间的互操作性协议。根据一份新闻稿，两种主流智能合约环境Stellar（XLM）和Polygon（MATIC）将在新的跨链桥启动后实现100%互操作。News Crypto将推出一种机制，允许将Wrapped XLM代币集成到Polygon上的DeFi中。
-15. Businesswire报道，区块链分析提供商TRM Labs宣布与Solana集成，通过TRM的风险情报平台，对Solana原生代币SOL和SPL代币资产进行反金融犯罪监控。
-16. Globenewswire报道，瑞士诉讼融资提供商Liti Capital SA推出了新工具Scam Busters，该工具允许用户投票决定公司接下来应该起诉哪些加密诈骗案件。Liti Capital SA是一家利用区块链技术的诉讼融资提供商，承诺将其年度投资预算的5%至10%用于资助影响其社区成员的案件。
-17. U.Today报道，彭博大宗商品策略师Mike McGlone发推表示，在美国股市下跌的同时，他认为比特币、黄金和美国国债将是最大的长期受益者。现在，随着股市下跌，原油价格也在上涨。
-18. U.today报道，黄金支持者、比特币反对人士Peter Schiff表示，加密热潮加剧了消费价格的通胀，因为加密相关公司和NFT领域正在吸收可能流入生产实际消费品行业的投资。
-19. 路透社报道，英国央行副行长Sam Woods周四表示，如果有必要，该行将在全球规范落实前抢先实施关于加密货币的资本规则，以避免英国的银行对于缺乏足够资本支持的加密资产累积过大的敞口。
-20. Finbold报道，英国监管机构FCA计划利用区块链技术来加强其监管报告。据FCA称，基于区块链的数字监管报告计划旨在降低合规检查的成本，目前正在与英国央行合作进行。该机构还将利用区块链技术来监管那些被认为数据量更大的企业。
-21. News.bitcoin报道，乌克兰央行（NBU）表示，与虚拟资产或加密货币相关的创新可以改善乌克兰人获得金融服务的机会，监管机构支持促进新兴数字货币行业的发展，但同时也不会让其取代法定货币。
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

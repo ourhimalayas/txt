@@ -46,14 +46,14 @@
 ### [秘翻在线：尾身会长的留言栏显示日本民众对疫苗护照很不理解](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报：惠誉下调中国今年经济增速预测，中国当局为恒大倒闭做准备](/content/gnews/12/README.md)
+### [Facebook files：背后的吹哨人将公开与国会合作](/content/gnews/12/README.md)
+ ` wenwu`
+
+### [每日快报：惠誉下调中国今年经济增速预测，中国当局为恒大倒闭做准备](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国股市因担心中共国房地产蔓延而下跌](/content/gnews/13/README.md)
+### [美国股市因担心中共国房地产蔓延而下跌](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年09月23日澳喜要闻（每日更新）](/content/gnews/14/README.md)
- ` 澳喜农场`
 
 ### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -103,29 +103,29 @@
 ### [德国政府将取消未接种者的隔离误工补偿，变相强制接种](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [四国峰会的话题之一：半导体](/content/gnews/31/README.md)
+### [北京反对四方峰会](/content/gnews/31/README.md)
  ` Charlie`
 
-### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/32/README.md)
+### [四国峰会的话题之一：半导体](/content/gnews/32/README.md)
  ` Charlie`
 
-### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/33/README.md)
+### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/33/README.md)
+ ` Charlie`
+
+### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/34/README.md)
+### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/35/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/35/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/36/README.md)
  ` wenwu`
 
-### [DC大中华时事：新冠疫苗加强针中共多地开打！三省已官宣，重点人群优先](/content/gnews/36/README.md)
+### [DC大中华时事：新冠疫苗加强针中共多地开打！三省已官宣，重点人群优先](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [悉尼开放18个公园，“感谢”疫苗接种者](/content/gnews/37/README.md)
+### [悉尼开放18个公园，“感谢”疫苗接种者](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/38/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花灭共段子之有一种、报销祖国、不灭共匪人难圆](/content/gnews/47/README.md)
+### [钟南山团队发布文献给世界开疫情管控药方](/content/gnews/47/README.md)
+ ` 儒为`
+
+### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/48/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [樱花灭共段子之有一种、报销祖国、不灭共匪人难圆](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共疫苗都有特殊标记对特定区域特定人口实行定向屠杀](/content/gnews/48/README.md)
+### [中共疫苗都有特殊标记对特定区域特定人口实行定向屠杀](/content/gnews/50/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花灭共段子之最浪漫的事、砖家解答、不讲武德](/content/gnews/49/README.md)
+### [樱花灭共段子之最浪漫的事、砖家解答、不讲武德](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之要房有一套、自己被掏空、他们叫什么](/content/gnews/50/README.md)
+### [樱花灭共段子之要房有一套、自己被掏空、他们叫什么](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/51/README.md)
+### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/52/README.md)
+### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/53/README.md)
+### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/54/README.md)
+### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/56/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共段子之嗅觉灵敏、最聪明的人、嫁祸于人](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共段子之房企P2P、养老金亏空解决办法](/content/gnews/57/README.md)
+### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
