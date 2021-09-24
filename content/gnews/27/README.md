@@ -2,25 +2,21 @@
 ---
 
 
-## 克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1550300/)
+## 瑞典取消了大部分中共病毒的限制措施
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1550519/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-63.jpg)
+图片来源：Ritzau Scanpix
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-10.png)
-文章仅代表作者本人观点，与Gnews无关
+瑞典政府在周四（2021.9.23）的新闻发布会上宣布了瑞典取消大部分新冠病毒的限制措施。鉴于现在瑞典情况要好得多，因此，政府将决定进行第四步。
 
-视频参看：2021.09.23早GTV新闻访谈
+“第四步 “意味着，除其他事项外，取消剧院、音乐会和体育赛事中的集会上限。到目前为止，大型活动的上限是15000人，但现在将被完全取消。即日起，瑞典人在参加文化活动时也不必出示疫苗护照。
 
-[https://gtv.org/broadcast/watch/614c72f042a8af3151a3b166](https://gtv.org/broadcast/watch/614c72f042a8af3151a3b166)
+自疫情开始以来，瑞典的建议和限制一直是辩论的主题。瑞典国家流行病学家安德斯-泰格内尔（Anders Tegnell）在给政府的建议中选择了与许多其他国家不同的方向，瑞典没有进行广泛的封锁和禁止集会，而是依靠公民遵守保持距离，生病时留在家里，并确保良好的卫生。当其他国家关闭一切时，瑞典选择让学校、酒吧和餐馆继续营业。瑞典也是为数不多的没有引入广泛的戴口罩要求的国家之一。
 
-编辑/校对/发稿： Lakers
+至2021.9.20号，北欧国家两针疫苗接种率分别为芬兰60%，瑞典62%，挪威67%，丹麦为75%，冰岛77%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+来源：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+1. **[DN.se](https://www.dn.se/sthlm/stockholm-firar-havda-restriktioner-med-konsert-i-kungsan/)**

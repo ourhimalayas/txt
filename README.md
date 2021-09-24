@@ -28,13 +28,13 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/6/README.md)
+### [9/23/2021 七哥直播：警告所有海外华人，全世界正在酝酿一场反华运动](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵直播摘要和音频2021.9.26: 疫苗此生灾难](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
 
-### [国际金融的垄断现状及未来的数字货币](/content/gnews/8/README.md)
+### [郭文贵直播摘要和音频2021.9.26: 疫苗此生灾难](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [对未接种疫苗的美国人来说，国际旅行将变得更加复杂](/content/gnews/9/README.md)
@@ -85,47 +85,47 @@
 ### [视频| 真相工程 &#8211; 暗访药监局小喽啰](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [秘翻在线: 变异毒株“埃塔”（ETA）遍布世界82 国](/content/gnews/25/README.md)
+### [向SEC索要投资款程序](/content/gnews/25/README.md)
+ ` 纽约香草山MOS02`
+
+### [秘翻在线: 变异毒株“埃塔”（ETA）遍布世界82 国](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/26/README.md)
+### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/27/README.md)
+### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [不慎感染病毒, 战友送药见真情!](/content/gnews/28/README.md)
+### [不慎感染病毒, 战友送药见真情!](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/29/README.md)
+### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [民调显示：川普将在可能的2024年总统大选中获胜！](/content/gnews/31/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [台北日本商会呼吁日本政府积极协助台湾加入CPTPP](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
+### [FDA专家，Covid早期治疗基金的执行董事Steve Kirsch透露COVID疫苗杀人多于救人](/content/gnews/32/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/32/README.md)
- ` wenwu`
-
-### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/34/README.md)
- ` 银河勇气之星`
-
-### [第三剂加强针来啦](/content/gnews/35/README.md)
- ` 银河勇气之星`
-
-### [中共是天价海运的幕后黑手](/content/gnews/36/README.md)
- ` 纽约香草山MOS01`
-
-### [州警察工会控告州长的疫苗接种令](/content/gnews/37/README.md)
+### [民调：大多数欧洲人认为美中冷战已成事实](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0923](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [台北日本商会呼吁日本政府积极协助台湾加入CPTPP](/content/gnews/34/README.md)
+ ` 日本东京方舟农场`
+
+### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/35/README.md)
+ ` wenwu`
+
+### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/37/README.md)
+ ` 银河勇气之星`
+
+### [第三剂加强针来啦](/content/gnews/38/README.md)
+ ` 银河勇气之星`
 
 ### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
@@ -178,9 +178,9 @@
 ### [澳大利亚维州反对党领袖批评州长安德鲁斯在大流行期间散布恐惧而不是希望](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [相信上天的力量 希望中國人不要陷入苦難的歷史輪回](/content/gnews/56/README.md)
+### [国际金融的垄断现状及未来的数字货币](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/57/README.md)
- ` 英喜-粵語組`
+### [相信上天的力量 希望中國人不要陷入苦難的歷史輪回](/content/gnews/57/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
