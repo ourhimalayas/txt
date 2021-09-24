@@ -2,182 +2,176 @@
 ---
 
 
-## 皮特·纳瓦罗先生对中国人的支持
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1550543/)
+## 最高级的洗钱是海外贸易、石油、大宗贸易、国际期货
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1550787/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2273.png)
-[https://gtv.org/video/id=614c2722d2e2b817486cc35f](https://gtv.org/video/id=614c2722d2e2b817486cc35f)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/108anks6-n1frw.jpg)
+[https://gtv.org/video/id=614cbc8cd2e2b817486ce843](https://gtv.org/video/id=614cbc8cd2e2b817486ce843)
 
-这个Peter Navarro作为一个美国常委
-Este Peter Navarro como miembro permanente de la asamblea de EE. UU
+**字幕内容:**
 
-一个世界级的人物
-Un personaje de talla mundial
+**郭文贵
+Miles Guo**
 
-他是发自内心
-Él desde el fondo de su corazón
+第三条
+Tercero
 
-他Peter Navarro
-Él, Peter Navarro
+这都是靠这些赌场洗钱
+Todo esto depende del casino para blanquear el dinero
 
-一句好听的话都不会说
-No sabe decir ninguna palabra bonita
+这都还不是最高级玩法
+Y aún así no es el modo de juego más avanzado
 
-这就是川普信他的原因
-Este es el motivo por el cual Trump confía en él
+最高玩法是啥, 兄弟姐妹们
+Cuál es el modo de juego más avanzado, hermanos y hermanas
 
-为什么, 推出来了
-¿Por qué? Ya salió
+钱压根就没进中国
+Que el dinero no entre a China en absoluto
 
-你看他这个书
-Mire su libro
+像海外贸易
+Así como el comercio exterior
 
-大家一定要去买去
-Todos deben comprarlo
+七哥去年帮人换了很多钱
+El año pasado ayudé a alguien a cambiar mucho dinero
 
-这个一定把它买到
-Deben lograr comprarlo
+换钱一换都是十亿百亿美元
+El intercambio de dinero era de mil millones y decenas de miles de millones
 
-世界排名第一
-Es el número uno del ranking mundial
+钱压根就没进大陆
+El dinero nunca entró a China
 
-这个也没多少钱
-No cuesta mucho
+所有的贸易项下的外汇全在境外呢
+Todas las divisas bajo comercio están en el extranjero
 
-战友们
-Compañeros luchadores
-In Trump Time
-In Trump Time
+东西卖了
+Vendieron las cosas
 
-一定帮他买到第一
-Hay que ayudarlo a que sea el número uno
+账给你记了
+Anotaron las cuentas
 
-现在排名全世界16
-Ahora ocupa el número 16 del ranking mundial
+钱没有进中共国
+Pero el dinero no entró a China
+这是多可怕
+Mira lo terrible que es
 
-这个政治书榜排名第一
-Está en el número uno de la lista de los libros políticos
+还有一个石油
+También está el petróleo
 
-一定能买上去
-De seguro puede llegar a ser el primero
+是吧
+Cierto
 
-这个人对咱们爆料革命
-Esta persona para nuestro Movimiento de Denunciantes
+大宗贸易
+El comercio de carga a granel
 
-中国人的支持
-El apoyo hacia los Chinos
+国际期货
+Futuros internacionales
 
-他对中国人的这种感觉是真的
-Este sentimiento que tiene con los Chinos es verdadero
+哪个不能洗钱
+Cuál no puede blanquear el dinero
 
-是我看到很少的
-Son los pocos estadounidenses reales que he visto
+像上海期货中心
+Así como el Centro de Futuros Shanghai
 
-他是真正的美国人
-Él es un verdadero estadounidense
+就按一下扣子
+Con tan sólo darle un botón
 
-直话直说
-Habla de manera directa
+就输(洗)掉100个亿美元
+Puede perder (blanquear) 100 mil millones de dólares
 
-他给约翰给波波说
-Él le dijo a John Pope
+就是十秒钟
+Solamente diez segundos
 
-你们不知道你们有多幸运, 多幸福在这工作
-Ustedes no saben lo afortunado y feliz que es poder trabajar aquí
+最快可以1.2秒
+Lo más rápido puede como 1,2 segundos
 
-为什么这么说, 你们知道吗
-¿Por qué dijo eso, ustedes lo saben?
+忒, 今天关上输了
+Huh, hoy se apaga y pierde
 
-兄弟姊妹们
-Hermanos y hermanas
+100亿美元
+100 mil millones de dólares
 
-我告诉大家一个最根本的问题
-Déjame decirles un problema más fundamental
+钱拿走了
+Toman el dinero
 
-他了解中国的经济
-Él conoce la economía de China
+明天咵咵咵的
+Y al día siguiente
 
-他了解中国共产党
-Él conoce al PCCh
+数值上给你恢复过来
+Se recuperan los valores numéricos
 
-他深信
-Él confía profundamente
+嗝儿, 就是100亿没了
+Con tan sólo hipas se desaparecerán los 100 mil millones de dólares
 
-我们一定会干倒中国共产党
-De que nosotros podemos derribar al PCCh
+这比你那个赌博的高级多了
+Esto es mucho más avanzado que apostar
 
-而且他相信新中国联邦
-Además, él cree que el Nuevo Estado Federal de China
+这谁能玩啊
+Quién podrá jugar así
 
-下届政府, 一定会承认新中国联邦
-El próximo gobierno seguro reconocerá al Nuevo Estado Federal de China
+只能中共中央常委玩
+Solamente el Comité Permanente del PCCh
 
-然后他跟我聊, 这些经济数据的时候
-Y cuando él estuvo conversando conmigo acerca de estos datos económicos
+政治局极少玩
+El Politburó juega muy poco
 
-他看到中国人的房地产, 这些事儿的时候
-Cuando él vió estos asuntos sobre las propiedades inmobiliarias de China
+是吧
+Cierto
 
-他跟我讲了, 让我特别感动的一句话
-Él me dijo una frase que me conmovió mucho
+你那些傻货
+Esos tontos
 
-他说中国人什么时候能不下跪呀
-Él dijo cuándo los Chinos no necesitarán arrodillarse
+像许家印只能靠赌场
+Como Xu Jiayin que solamente depende del casino
 
-这下跪能解决问题吗
-Será que arrodillarse puede resolver el problema
+是吧
+Verdad
 
-他说中国的一个企业, 对老百姓的剥削
-También comentó que una empresa de China explotaba a los ciudadanos
+然后咱这老百姓就靠地下钱庄
+Entonces nosotros la gente común confiamos en la economía subterránea
 
-都超过一个国家的剥削
-Superando la explotación que debería tener un país
+对吧
+Cierto
 
-这句话说得
-Mira lo que dijo
+你要付高额的钱呢
+Debes pagar una gran cantidad de dinero
 
-兄弟, 你们听一听
-Hermanos, escuchen
+5%至10%啊
+De 5% a 10%
 
-任何一个房地产企业
-Cualquier empresa inmobiliaria
+地下钱庄
+A la economía subterránea
 
-一个恒大
-Un Evergrande Group
+赌场你要付个1%
+En el casino debes pagar el 1%
 
-就把中国人
-Se llevó de los chinos
+是不是
+¿ Cierto o no?
 
-年GDP的2%给拿走了
-El 2% del PBI anual
+甚至千分之几
+Incluso unas milésimas
 
-合生创展拿走了你1%
-Hopson Development te quita el 1%
+那么人家玩期货的
+Entonces aquella persona que juega futuros
 
-这世界还有这么荒唐的事儿吗
-¿Habrá otra cosa más absurda que esto en este mundo?
+人家玩国际贸易的, 大额的
+Ellos juegan lo que es comercio internacional y de gran cantidad
 
-一个扫厕所的
-Un persona que limpia los baños
+海关的, 人家那些弄的
+La aduana lo que ellos hacen
 
-就把一个14亿人的2% GDP给抢走了
-Se lleva el 2% del PIB de 1.400 millones de personas
+1分钱成本都没
+No cuesta ningún centavo
 
-一个肖建华, 当年就弄了两三万亿
-Un Xiao Jianhua ganó de dos a tres billones de yuanes en aquel año
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-也拿你2% GDP
-Y también te quitó el 2% del PIB
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1439525995464196096?s=24](https://twitter.com/se1y7cblljselva/status/1439525995464196096?s=24)
 
-—————————————————————
-
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1439358226949042180?s=24](https://twitter.com/se1y7cblljselva/status/1439358226949042180?s=24)
-
-西听校：洛杉矶盘古农场-霙霙（文霙）
+西听校：洛杉矶盘古农场- 霙霙（文霙）
 翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
