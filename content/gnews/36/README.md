@@ -2,72 +2,74 @@
 ---
 
 
-## 库存远超需求 加拿大暂停COVID-19疫苗进口
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1550586/)
+## Fauci在2017年CUGH的会议上资助了中共国生物武器研究
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1550597/)
 
-- 编译：Lulumi
+- 编译：wenwu–西班牙喜悦农场
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-1-22.png)2021年5月20日，工人在多伦多皮尔逊国际机场的联邦快递中心卸下一批莫德纳COVID-19疫苗。(加拿大新闻社/柯尔·伯斯顿)
+在 2017 年全球健康大学联盟（CUGH）会议上，生态健康联盟主席彼得·达扎克与安东尼·福奇一起在一个小组会议上发表讲话，福奇承认了有争议的“中共国冠状病毒研究”是通过福奇的国立卫生研究院机构（NIH）“资助”进行的。
 
-据加拿大新闻社渥太华报道，向加拿大运送更多COVID-19疫苗的工作暂停了，因为各省拥有的库存已经超过了它们目前能够使用的剂量。
+在这次出土的会议之前，福奇[一再](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)试图将他的机构与有争议的纽约非营利组织保持距离，正如美国国立卫生研究院赠款[登记处](https://reporter.nih.gov/search/xQW6UJmWfUuOV01ntGvLwQ/project-details/9819304)显示的那样，生态健康联盟利用这笔资金与武汉病毒研究所（WIV）合作。
 
-加拿大本应在9月底之前，从辉瑞-生物技术公司和莫德纳公司获得9500万剂疫苗，截至周三还差大约2000万剂。
+《国家脉搏》此前曾曝光达扎克的录像片段，其中他曾把自己“[长期](https://thenationalpulse.com/breaking/wuhan-bat-lady-thanks-nih-and-daszak/)”合作的，也是在中国共产党运营的[实验室](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)中所操纵的病毒，形容为[“杀手”](https://thenationalpulse.com/?p=33442&amp;preview=true)。
 
-但是加拿大已经拥有1870万剂的库存，不需要再为12岁以上符合条件的人全面接种疫苗。这包括运往各省但尚未使用的850万剂，以及各省在需要时可以使用的1020万剂联邦库存。
+2017 年在华盛顿特区举行的会议活动是，由全球健康大学[联盟](https://www.cugh.org/our-work/events/past-conferences/2017-8th-annual-cugh-global-health-conference/)(CUGH)主办的名为“健康的人，健康的生态系统”[会议](https://www.cugh.org/our-work/events/past-conferences/2017-8th-annual-cugh-global-health-conference/research-with-real-outcomes-healthy-people-healthy-ecosystems-implementation-leadership-and-sustainability-in-global-health/)。在对会议的描述中，全球健康大学联盟指出会议支持其“无尽边疆”的愿景：
 
-截至周三，80%符合条件的加拿大人已经完全接种了COVID-19疫苗，另有7%的人已经接种了第一针。加拿大最多需要1100万剂疫苗来完成对12岁以上人口的接种。
+“全球健康大学联盟信仰世界是没有国界，因为人类对健康和幸福的渴望是普遍的，不会因种族、民族、国家、社会经济地位、性别认同或地理位置而改变。” 会议出土的[议程](https://www.dropbox.com/s/gjt5afbg2gfcnqo/CUGH%202017%20Program.pdf?dl=0)（如图）显示，生态健康总裁彼得·达扎克、美国国家过敏症和传染病研究所 (NIAID) 主任安东尼·福奇和美国疾病控制与预防中心 (CDC) 首席副主任安妮·舒查特（Anne Schuchat）出席了会议。这三个人参加了一个小组讨论——“传染病大流行的未来：从埃博拉到寨卡，再到其他——在那里他们讨论了关于大流行的准备。尽管对如何检测和应对现有的感染已有很多了解，但需要更多的研究来预测其出现和传播的可能性，并提高公共卫生反应的准确性和及时性，”在小组讨论的描述中指出。
 
-因此，所有省份在8月底之前都停止了对新剂量的要求，而且加拿大已经告诉供应商暂时不要再发任何疫苗了。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-2-21.png)
 
-加拿大官员目前正在与供应商和其他需要疫苗的国家进行谈判，制定捐赠多余的辉瑞和莫德纳疫苗的计划。
+在达扎克的[演讲中](https://www.youtube.com/watch?v=EkiLuu80Ws4&amp;list=PLWRPbHVTmYFciYrA552jgyFwyi1P1Zcpa&amp;index=12&amp;ab_channel=CUGHTV)，[并附有](https://www.dropbox.com/sh/ltnwcnugf3ykh4u/AADjaaC1-lgsReoYxlGV5srQa?dl=0&amp;preview=PS09_Daszak.pdf)幻灯片，他说他在中国的冠状病毒工作是在福奇的 NIAID 和美国国际开发署 (USAID) 新兴流行病威胁 (EPT) 项目的“资助”下进行的：
 
-加拿大已经承诺捐赠其从阿斯利康、强生和COVAX疫苗共享联盟购买但无法使用的4000万剂疫苗。
+*“与美国国际开发署 EPT PREDICT 项目合作，并通过 NIAID 资助在中共国开展冠状病毒研究，我们能够测试与获得预测到下一种新兴流行疾病可能是什么的想法。就好像我们都听说过SARS（非典，可控的生物武器）。我们知道非典是在果子狸（撒谎）找到的。嗯，实际上，类非典病毒的宿主，非典冠状病毒的来源就是蝙蝠。”*
 
-迄今为止，它只向特立尼达和多巴哥直接运送了8.2万剂牛津-阿斯利康的疫苗。
+*– Peter Daszak*，生态健康联盟，*2017*
 
-由于法律责任和疫苗剂量过期问题，疫苗捐赠比最初听起来更棘手。大多数国家不接受过期时间在8周以下的疫苗，以确保它们能够及时使用。
+“我们在中共国工作，出去对其他蝙蝠物种进行监测，说有多少其他类似非典的病毒。是否有与非典相近的东西？果然，有。”他补充道。
 
-与辉瑞和莫德纳签订的合同也没有具体说明如何捐赠多余的疫苗，而加拿大与阿斯利康和强生签订的合同则有说明。
+“我们现在正在对中国人民进行监视，而且我们曾发现使用的是 NIAID 的资金，实际上有可能蔓延到这些人群中，”他重申，同时概述人畜共患疾病在全球的增长。 “即使是国际资助，在我们向国外发送任何资金之前，这些资金的大部分都要经过像我们这样的美国组织，”达扎克在回答康奈尔医学院的 Oliver Fein 提出的有关联邦资金的问题时回答说，他断言“我们目前感染的最严重的病毒就是川普政府。”
 
-美国总统拜登周三在联合国大会举行的线上疫苗峰会后，呼吁加拿大等国家做更多工作，帮助世界其他国家接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-3-21.png)
 
-拜登说，美国正在将其捐款翻倍，达到10亿以上，并说 “我们需要其他高收入国家兑现他们自己雄心勃勃的疫苗捐款和承诺”。**他说，目标应该是在****12****个月内为世界上****70%****的人口接种疫苗。**
+在专题小组讨论上，CDC 官员 Schuchat 还赞扬了中国共产党对中国第一次非典爆发的反应：
 
-在一份新闻稿中，加拿大总理办公室说，特鲁多总理与其他世界领导人一起承诺实现这一目标。
+*“一个关键的教训是，掩盖真相是不值得的。你可能还记得，在非典疫情期间，卫生部长和北京市市长都被免职，而且还保持信息透明和公开，这真是太棒了。”*
 
-特鲁多还谈到，加拿大承诺支持公平地获得COVID-19疫苗、测试和治疗，包括通过对疫苗的大量财政支持和对各国的捐赠。
+*– CDC 首席副主任 Anne Schuchat*
 
-报告指出，到目前为止，加拿大已经捐助了超过25亿美元，以帮助在全球范围内解决这一危机，包括与世界其他国家分享疫苗。
+“一旦中共政治层面批准他们做出反应，北京在应对方面做得非常好。政府接管了医疗系统，”她补充道。
 
-特鲁多在自由党的竞选纲领中承诺，到明年年底，加拿大将通过COVAX捐赠至少2亿剂疫苗。
+该会议活动中的另一个小组——“全球病毒项目：迈向结束大流行时代的第一步”——达扎克和 Metabiota 公司的首席科学官出席了会议，Metabiota 是一家流行病追踪和应对公司，其[主要财务支持者](https://thenationalpulse.com/exclusive/hunter-biden-invested-in-ecohealth-wuhan-partner/)是亨特·拜登领导的投资集团.
 
-目前，世界上31%的人口已经完全接种了疫苗，但疫苗的推广非常不平衡。富裕国家抢购了绝大部分疫苗，而发展中国家则在等待。
+亨特[曾担任](https://thenationalpulse.com/exclusive/hunter-biden-invested-in-ecohealth-wuhan-partner/)Rosemont Seneca Technology Partners (RSTP) 的常务董事，RSTP 领导了Metabiota 的价值 3000 万美元第一轮融资。
 
-非洲只有4%的人口接种了疫苗，而欧洲的接种率为51%，北美为45%。
+小组讨论总结预测，“在未来的一个世纪里，我们将见证超过100万种’未知’病毒泄漏到人类群体中”： “在人口激增、环境变化以及全球化贸易和旅行的推动下，流行病的频率正在增加。人畜共患疾病爆发表明，我们没有做好减轻新型病毒影响或防止其出现的准备。仅确定了一小部分病毒威胁。在接下来的一个世纪里，我们将目睹超过100万种’未知’病毒（生物武器）泄漏到人类群体中。在未来的十年里，一项识别和公认世界上流通的每一种重要病毒威胁的全球倡议，是可以实现的—这是结束大流行时代的关键和必要步骤。”
 
-至少有13个国家的完全接种率超过70%。加拿大69.5%的人口完全接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-4-23.png)
 
-加拿大还准备开始为5至11岁的儿童接种疫苗，预计辉瑞公司很快就会为这个年龄段的儿童申请授权。该公司本周早些时候说，一项临床试验显示该疫苗是安全的，并在该年龄组产生了强大的抗体反应。
+达扎克和福奇都一再对中国共产党[管理的](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)实验室研究，进行一系列的撒谎，因为通过《信息自由法》（FOIA）[获得](https://theintercept.com/2021/09/06/new-details-emerge-about-coronavirus-research-at-chinese-lab/)的大量 Fauci Emails 显示，武汉实验室正在执行“功能增强” ”研究。而实验室被删除的文章揭示了，尽管达扎克不同意，但武毒所的实验室[仍在使用](https://thenationalpulse.com/breaking/patents-articles-show-wuhan-worked-with-live-bats/)活蝙蝠进行研究。
 
-儿童的剂量是成人的三分之一，目前还不清楚加拿大是否可以简单地从已经发货的每瓶疫苗中抽取较小的剂量作为儿童疫苗来使用。
+达扎克未能披露他与武汉实验室[和](https://thenationalpulse.com/news/whos-peter-daszak-authored-ccp-studies/)中国共产党的[广泛](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)联系 ，他被《柳叶刀》医学杂志的中共病毒（COVID-19）委员会勒令[回避](https://thenationalpulse.com/breaking/scalp-daszak-recused-from-covid-commission-after-repeated-national-pulse-exposes/)， 但其仍出现在主流媒体上。
 
-该公司的一位女发言人周三说，辉瑞公司正在准备 “不同的儿科用药方案”，但不会确认这是否意味着加拿大已经有的剂量都不能再用于儿童。
+与会议相关的[视频链接](https://rumble.com/vmt61x-daszak-2017.html)
 
-**点评：**
+**简评：**
 
-**中共病毒通过三个步骤来实现邪恶势力的计划：****1****．中共释放病毒给世界制造恐惧，恐惧导致政府和老百姓丧失基本判断力都想在最快的时间内抓住更多的救命稻草。****2****．虚伪的左派政客，打压疫苗真相的左媒，邪恶势力控制的医药集团，三方狼狈为奸通过毒疫苗联合，谋杀不明真相的本国老百姓。****3****．以捐赠帮助贫穷国家的名义将毒疫苗推广到接种率低的国家，实现毒疫苗覆盖的最大化，谋杀全世界的老百姓，最终实现人类大重启。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-5-19.png)
 
-**如果没有郭先生领导的新中国联邦爆料革命，全人类一定会掉进这个天罗地网，我们每个人都会感恩戴德地跑去打疫苗。我们作为最早觉醒的一批人，肩负着拯救人类的使命，努力传播病毒疫苗真相，是我们唯一要做的。**
+**大概重新谈了一下北京研制中共病毒的资金（包括技术）来自美国。爆料革命是最早爆料黑暗即将到来，并且告诉西方世界不要染上病毒，不要接种疫苗，因为这是在救命的。最终要的是灭共才是拯救人类的方式。相关视频可以点击郭文贵先生[盖特](https://www.gettr.com/post/pbyrd6a60e)的视频：**
+
+**“历史是现在和未来最好的证明！2020年12月10日，美国所推出的辉瑞疫苗绝对是共产党病毒再次的次生灾难，也是（光明会中的）黑暗势力和共产党勾结的结果。大家看了来自科学和实践的专家站出来对新冠疫苗的看法后就明白了！”**
+
+**今天郭文贵先生在他的周四（23日）GTV[大直播](https://gtv.org/video/id=614c897242a8af3151a3c790)中透露了，西方各国正在酝酿掀起一股反华运动，知道病毒和疫苗真相的人还是少数的，他们分不清中共国和中国人。或许明年就能感受到一股反华的情绪或在各国蔓延，还有就是经济的崩塌和越来越少人愿意上班。这对西方的华人来说，是灾难开始的预警。**
 
 （文章仅代表作者观点 与GNEWS无关）
 
-**新闻来源：**[大纪元时报](https://www.theepochtimes.com/canada-paused-covid-19-vaccine-deliveries-as-supply-far-exceeds-demand_4012177.html) (The Epoch Times) | 发布：加拿大新闻社 米娅·拉布森 发布时间：2021年9月23日
+**新闻来源：**《[国家脉动](https://thenationalpulse.com/exclusive/peter-daszak-admits-china-coronavirus-work-funded-by-nih/)》|作者：娜塔丽·温特斯｜发布时间：2021年9月22日
 
 * * *
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEWS_CH.-2.jpeg)

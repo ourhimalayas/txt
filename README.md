@@ -28,23 +28,23 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/23/2021 七哥直播：警告所有海外华人，全世界正在酝酿一场反华运动](/content/gnews/6/README.md)
+### [国际脱钩、国内上街和大量疫苗死亡中共会放新一轮热毒](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [9/23/2021 七哥直播：警告所有海外华人，全世界正在酝酿一场反华运动](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/7/README.md)
+### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵直播摘要和音频2021.9.26: 疫苗此生灾难](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [对未接种疫苗的美国人来说，国际旅行将变得更加复杂](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（一）](/content/gnews/10/README.md)
+### [NIH主任声称符合条件的学生应接种辉瑞疫苗](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [《疫苗死亡报告》：世界各地疫苗致死数以万计 制造商却不承担任何责任](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
+### [前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力](/content/gnews/10/README.md)
+ ` 美国政要直译推`
+
+### [对未接种疫苗的美国人来说，国际旅行将变得更加复杂](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
@@ -103,28 +103,28 @@
 ### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [民调显示：川普将在可能的2024年总统大选中获胜！](/content/gnews/31/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
-
-### [FDA专家，Covid早期治疗基金的执行董事Steve Kirsch透露COVID疫苗杀人多于救人](/content/gnews/32/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [民调：大多数欧洲人认为美中冷战已成事实](/content/gnews/33/README.md)
+### [日本外相表示欢迎台湾加入TPP](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台北日本商会呼吁日本政府积极协助台湾加入CPTPP](/content/gnews/34/README.md)
+### [民调显示：川普将在可能的2024年总统大选中获胜！](/content/gnews/32/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [FDA专家，Covid早期治疗基金的执行董事Steve Kirsch透露COVID疫苗杀人多于救人](/content/gnews/33/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [民调：大多数欧洲人认为美中冷战已成事实](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [台北日本商会呼吁日本政府积极协助台湾加入CPTPP](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/35/README.md)
+### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/36/README.md)
  ` wenwu`
 
-### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/36/README.md)
+### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/37/README.md)
- ` 银河勇气之星`
-
-### [第三剂加强针来啦](/content/gnews/38/README.md)
+### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/38/README.md)
  ` 银河勇气之星`
 
 ### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G时评：那些被人忽视的超限战](/content/gnews/47/README.md)
- ` GISELLE`
-
-### [樱花灭共诗——深谷会盟（新韵）](/content/gnews/48/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共诗——人月圆•中秋之夜](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美FDA授权为65岁以上高龄人群接种疫苗加强针](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日外相对台湾加入TPP表示欢迎](/content/gnews/51/README.md)
- ` 日本东京方舟农场`
-
-### [以灭共为核心的全球正邪之战已到至暗时刻](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共计划经济下的“能耗双控”](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本医院群聚感染 25人中24人完成2剂接种](/content/gnews/54/README.md)
- ` 日本东京方舟农场`
-
-### [澳大利亚维州反对党领袖批评州长安德鲁斯在大流行期间散布恐惧而不是希望](/content/gnews/55/README.md)
+### [中共国内大面积限电，背后原因是什么？](/content/gnews/47/README.md)
  ` 澳喜农场`
 
-### [国际金融的垄断现状及未来的数字货币](/content/gnews/56/README.md)
+### [G时评：那些被人忽视的超限战](/content/gnews/48/README.md)
+ ` GISELLE`
+
+### [郭文贵直播摘要和音频2021.9.26: 疫苗此生灾难](/content/gnews/49/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [相信上天的力量 希望中國人不要陷入苦難的歷史輪回](/content/gnews/57/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共病毒及其疫苗全球超限战中的典型案例（一）](/content/gnews/50/README.md)
+ ` 纽约香草山MOS02`
+
+### [樱花灭共诗——深谷会盟（新韵）](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——人月圆•中秋之夜](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美FDA授权为65岁以上高龄人群接种疫苗加强针](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日外相对台湾加入TPP表示欢迎](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
+
+### [以灭共为核心的全球正邪之战已到至暗时刻](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [《疫苗死亡报告》：世界各地疫苗致死数以万计 制造商却不承担任何责任](/content/gnews/56/README.md)
+ ` 日本东京方舟农场`
+
+### [中共计划经济下的“能耗双控”](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
