@@ -28,23 +28,23 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年9月23日郭文贵先生G-TV直播小飞象速记版](/content/gnews/6/README.md)
+### [全世界在酝酿一场反华运动，这是共产党最愿意看到的](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（五）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [许家印到底是车祸死心脏病死自杀死猝死现在已经在商量](/content/gnews/8/README.md)
+### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年09月23日澳喜要闻（每日更新）](/content/gnews/9/README.md)
+### [2021年9月23日郭文贵先生G-TV直播小飞象速记版](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：尾身会长的留言栏显示日本民众对疫苗护照很不理解](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021年09月23日澳喜要闻（每日更新）](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [为何中共病毒在非洲的感染后重症率、死亡率如此之低？](/content/gnews/10/README.md)
+### [为何中共病毒在非洲的感染后重症率、死亡率如此之低？](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
-
-### [澳洲监管机构禁止伊维菌素用于治疗中共病毒](/content/gnews/11/README.md)
- ` 澳喜农场`
 
 ### [美国股市因担心中共国房地产蔓延而下跌](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花灭共段子之嗅觉灵敏、最聪明的人、嫁祸于人](/content/gnews/47/README.md)
+### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之房企P2P、养老金亏空解决办法](/content/gnews/48/README.md)
+### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线 :欧洲高电价的恶梦开始?](/content/gnews/49/README.md)
+### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共段子之嗅觉灵敏、最聪明的人、嫁祸于人](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共段子之房企P2P、养老金亏空解决办法](/content/gnews/52/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线 :欧洲高电价的恶梦开始?](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [非凡夫妻——贺郭文贵先生梅斯林婚诗六首](/content/gnews/50/README.md)
+### [非凡夫妻——贺郭文贵先生梅斯林婚诗六首](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [这是一场中共与黑暗会合谋的超限战](/content/gnews/51/README.md)
+### [这是一场中共与黑暗会合谋的超限战](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [我们一定要用媒体这个核武器反击了](/content/gnews/52/README.md)
- ` 纽约香草山MOS03`
-
-### [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [广东男染H5N6禽流感　中共专家称仅是个案](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [维州警方防暴队前负责人呼吁用水泡车对付抗议者](/content/gnews/55/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（五）](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国内大面积限电，背后原因是什么？](/content/gnews/56/README.md)
- ` 澳喜农场`
-
-### [前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力](/content/gnews/57/README.md)
- ` 美国政要直译推`
+### [我们一定要用媒体这个核武器反击了](/content/gnews/57/README.md)
+ ` 纽约香草山MOS03`
 
