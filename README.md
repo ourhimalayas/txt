@@ -37,14 +37,14 @@
 ### [2018年4月22日文贵报平安视频盗国贼新的一波行动。全文听写](/content/gnews/8/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/9/README.md)
+### [文雍漫谈：假科学之名](/content/gnews/9/README.md)
+ ` 文雍`
+
+### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/10/README.md)
+### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/11/README.md)
  ` wenwu`
-
-### [医院不允许医生给病人使用伊维菌素](/content/gnews/11/README.md)
- ` MG 澳喜农场多语组`
 
 ### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -67,23 +67,23 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [金融信托的猫腻](/content/gnews/19/README.md)
+### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/20/README.md)
+### [金融信托的猫腻](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/21/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/21/README.md)
+### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/22/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/22/README.md)
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/23/README.md)
+### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
