@@ -2,50 +2,63 @@
 ---
 
 
-## Fauci为武毒所合作者Peter Daszak撰写的文章
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1552970/)
+## 拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1553047/)
 
-- 编译：wenwu–西班牙喜悦农场
+【**评论】印度的例子再一次证明伊维菌素是十分理想、十分有效的抗击新冠病毒的药物。可是，在这个被邪恶力量控制的世界却不允许人民合法使用伊维菌素，反而推行有问题的新冠疫苗。文中介绍的印度的两个州的情况清楚的展示了两者的对比。新中国联邦正道主义一定会粉碎这个阴谋，把解药带给相信爆料革命的全世界人民。**
 
+**据《DR. EDDY BETTERMANN MD》记者：Ethan Huff，2021年9月23日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/algdz-l88m7.jpg)图片来源：《DR. EDDY BETTERMANN MD》
+一个拥有超过2.4亿居民的印度州是如何战胜中共冠状病毒(Covid-19)的？很简单，它的人民服用了伊维菌素。
 
-尽管安东尼·福奇试图将他的NIAID与生态健康联盟（Peter Daszak 领导的小组与武汉病毒学研究所合作进行冠状病毒研究）保持距离。但《国家脉搏》可以透露，美国国家过敏和传染病研究所（NIAID）所长已发表在有争议的组织的科学期刊上；福奇于[2013](https://link.springer.com/journal/10393/volumes-and-issues/10-1)年 3月为《生态健康杂志》第 10 卷撰写了一篇文章，该杂志的主编是[Daszak](https://ecohealth.net/journal-editors/)。福奇的文章在18篇文章里被评选为“头版文章”。
+位于印度北部的北方邦已正式宣布，由于那里的领导人为每个人提供“马驱虫剂”而做出的仁慈努力，其所有的33个地区现在都“没有新冠病毒”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-1-23.png)
+中共病毒在北方邦的康复率高达 98.7%，这可以直接归因于伊维菌素的大规模预防性使用。
 
-这篇文章（[如图](https://www.scribd.com/document/527104564/Morens2013-Article-DengueTheContinualRe-Emergence#download&amp;from_embed)）—— [《登革热：一种持续重现数百年之久的疾病》](https://link.springer.com/article/10.1007/s10393-013-0825-7) ——另有两名国家过敏和传染病研究所 (NIAID) 的[官员](https://www.niaid.nih.gov/about/director-contacts)列为作者：高级科学顾问大卫·莫伦斯（David Morens）和参谋长[格雷格·](https://www.linkedin.com/in/gregfolkers/)福尔克斯（Greg Folkers）。
+据西方媒体和医疗机构称，“没有证据”表明伊维菌素在对抗中共病毒方面有任何好处。然而，根据印度的现实生活和实地证明，伊维菌素确实是一个奇迹。
 
-这篇文章是在福奇的 NIAID 启动有争议的“了解蝙蝠冠状病毒出现的风险”拨款大约一年前发表的，该拨款最终导致美国纳税人的钱资助了[与](https://thenationalpulse.com/exclusive/wuhan-lab-scrubs-ccp-awards-ties/)武汉病毒研究所（WIV）的合作研究。
+不久前，伊维菌素被《抗生素杂志》吹捧为治疗肠道寄生虫的“神药”。伊维菌素的发明者也因发现该物质而获得诺贝尔奖。
 
-“在考虑现在流行的新兴传染病的决定因素时，回想美国两个世纪前出现的登革热是一个有趣的起点，”文章开始了对这种病毒性疾病的概述。
+然而现在，伊维菌素被媒体和政府诋毁为“危险”和“高危”。我们不断被告知伊维菌素仅适用于牛或马，尽管食品和药物管理局(FDA)早在1996年就批准了它可供人类使用。
 
-文章强调，登革热病毒通过来自加勒比群岛的旅行者携带并传播到整个美国：“早在 18 世纪，登革热就通过人类旅行传播，并通过蚊子和来自加勒比岛屿的受感染船员和乘客，引入美国一些地区（比如费城）。”
+**印度选择“疫苗”而不是伊维菌素的地区新病例激增**
 
-这篇文章重申，在美国出现的流行病根源通常可以追溯到其他国家：
+早在2020年5月和6月，伊维菌素就被广泛应用于在阿格拉北方邦地区工作的所有呼吸护理专业人员。当时，这是一个实验，以了解服用人的表现。
 
-*“*登革热和黄热病通常开始于靠近码头的居民区，仅在夏季发生，多次与加勒比岛屿的同期流行病有互动，而且这种流行病似乎在费城这样的地方最为明显，这些美国地区淡水稀缺且价格昂贵，导致室内饮用水要预先储存，这是由于室内饮用水是伊蚊产卵（产卵）的理想环境。*”*
+据安舒尔·帕里克（Anshul Pareek）博士说，据观察，“尽管每天与病毒检测呈阳性的患者接触，但他们中没有人感染 Covid-19”。
 
-福奇在《生态健康杂志》上发表的专题出版物与他一再声称—— NIAID 没有支持生态健康联盟在武汉病毒研究所的研究。除了武汉实验室的高级人员将达扎克描述为[“长期合作者”](https://thenationalpulse.com/breaking/wuhan-bat-lady-thanks-nih-and-daszak/)之外，《国家脉搏》还发现福奇多次参加省太健康联盟（EcoHealth）[举办](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)的活动，例如“寨卡病毒：正在进行的大流行”。
+在这次成功试验之后，州政府决定正式批准使用伊维菌素作为中共病毒治疗药物，不仅适用于医务人员，也适用于普通大众。
 
-福奇和达扎克[都曾是](https://thenationalpulse.com/exclusive/peter-daszak-admits-china-coronavirus-work-funded-by-nih/)2017年“全球健康大学联盟会议”的讨论小组成员，达扎克承认NIAID资助了他”在中共国的冠状病毒工作”。
+“尽管是人口基数最大、人口密度高的州，但我们一直保持相对较低的阳性率和每百万人口的病例数。”帕里克解释说。
 
-WHO对[登革热](https://baike.baidu.com/item/%E7%99%BB%E9%9D%A9%E7%83%AD/1458421)（DENV）和重度登革热的[介绍](https://www.who.int/en/news-room/fact-sheets/detail/dengue-and-severe-dengue)
+8月，北方邦的官员发布通知，建议那里的医生服用12毫克伊维菌素片“以控制大流行的影响”。事实证明，这一建议取得了重大成功。
 
-**简评：**
+“这种药物在预防COVID-19方面非常有效。”政府承认，“因此，我们呼吁每个公民都拥有这个药片。”
 
-**今天郭文贵先生在GTV上面的个人突然[直播中](https://gtv.org/video/id=614dfbb242a8af3151a4c69c)表示：饮用水会比油（40块美金一桶）还贵。这让人细思极快了…还记得爆料革命曾超过两次提到高致死性的蚊子生物武器。**
+与此同时，在印度南部狭小的喀拉拉邦，福奇流感的新“病例”一直在飙升。原因是喀拉拉邦没有使用伊维菌素，而是选择了传播更多疾病的“疫苗”。
 
-**另外，据郭文贵先生2021年9月24日[盖文](https://gettr.com/post/pc36ln05b0)显示：**
+“喀拉拉邦4月份将伊维菌素纳入该州的 COVID 治疗指南，但将其使用限制在严重病例或患有相关疾病的病例中。这意味着，如果使用话，它被保留为晚期治疗。”WND报道。
 
-**“中共在快蛋的时候将在咖啡释放毒高、无潜伏期、致死的“热毒”，导致人七窍流血；中共跟某某建设3个生化武器实验室，未来会释放新病毒并释放锅给病毒；共释放了病毒病毒，任何人再放毒都不是个事儿了。”**
+“喀拉拉邦于8月5日完全放弃使用伊维菌素。”
 
-**值得一提的是，美国11月初开始解锁旅行禁令，与此次情报是否有关联呢？**
+不过，喀拉拉邦更像是例外而不是常态。在整个印度，疫苗接种率目前约为 5.8%，使其成为世界上注射最少的国家之一。
 
-（文章仅代表作者观点 与GNEWS无关）
+“有人声称伊维菌素对普通流感和许多其他病毒感染也有效。”WND的一位评论者写道，“如果这是真的，难怪大型制药公司想要压制它。”
 
-**新闻来源：**《[国家脉动](https://thenationalpulse.com/exclusive/exc-fauci-authored-article-for-wuhan-lab-collaborator-peter-daszak/)》｜作者：娜塔丽·温特斯｜发布时间：2021年9月23日
+“伊维菌素是完全安全的，但政府不想让你知道这一点。”另一个人指出，“这种药物几乎没有副作用，已经开了数百万次，并且已知可以杀死21种不同的病毒，包括SARS-CoV-2。”
 
-* * *
+伊维菌素已被安全使用多年，并且已经过了专利有效期。
 
-*发稿：信心的选择*
+有关中共冠状病毒(Covid-19)的欺骗和对伊维菌素的讨伐的最新消息可以在Fascism.news上找到。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
+**文章来源：**[https://dreddymd.com/2021/09/23/indian-completely-eradicated-covid-with-ivermectin/](https://dreddymd.com/2021/09/23/indian-completely-eradicated-covid-with-ivermectin/)
+
+**（本文评论仅代表译者个人观点）**
+
+翻译/评论：洛杉矶盘古农场 – Raul
+校对/编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

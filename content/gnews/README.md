@@ -37,14 +37,14 @@
 ### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/9/README.md)
+### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/10/README.md)
  ` wenwu`
 
-### [医院不允许医生给病人使用伊维菌素](/content/gnews/10/README.md)
+### [医院不允许医生给病人使用伊维菌素](/content/gnews/11/README.md)
  ` MG 澳喜农场多语组`
-
-### [革命尚未胜利，战友还需努力](/content/gnews/11/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -103,28 +103,28 @@
 ### [欧盟第三针开打，欧洲药品监管机构尚未批准!](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/31/README.md)
+### [DC每日热点0924](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [推特将台湾割让给中共](/content/gnews/32/README.md)
+### [推特将台湾割让给中共](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/33/README.md)
+### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [十四届全运会的奇葩现象](/content/gnews/34/README.md)
+### [十四届全运会的奇葩现象](/content/gnews/35/README.md)
  ` 波士顿五月花农场`
 
-### [法印强调在印太联合行动，直指中共霸权](/content/gnews/35/README.md)
+### [法印强调在印太联合行动，直指中共霸权](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/36/README.md)
+### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/37/README.md)
- ` 波士顿五月花农场`
-
-### [解读习近平9月21日联大讲话](/content/gnews/38/README.md)
+### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/38/README.md)
  ` 波士顿五月花农场`
 
 ### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/39/README.md)
@@ -178,9 +178,9 @@
 ### [串珠393：青蒿素是病毒和疫苗最好的解药](/content/gnews/55/README.md)
  ` 郭爆料串珠`
 
-### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/56/README.md)
- ` 纽约香草山MOS03`
+### [革命尚未胜利，战友还需努力](/content/gnews/56/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
+### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/57/README.md)
+ ` 纽约香草山MOS03`
 
