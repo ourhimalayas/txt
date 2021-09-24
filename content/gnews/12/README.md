@@ -2,50 +2,43 @@
 ---
 
 
-## Facebook files：背后的吹哨人将公开与国会合作
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1551650/)
+## 维和与镇压：中共带给全世界什么样的“共同命运”？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1552299/)
 
-- 编译：wenwu–西班牙喜悦农场
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-75.jpg)星期三，在中（共）国军队在中国中部河南省驻马店的中国人民解放军战术训练基地举行的“命运共同体-2021”多国实况演习中，士兵们集结。（法新社照片）
+据《泰国邮报》9月15日的[一篇报道](https://www.bangkokpost.com/thailand/general/2182379/thailand-joins-chinas-first-multinational-peacekeeping-exercise)，为期十天的“命运共同体2021”演习于上周三结束。据报道，“来自泰国、蒙古和巴基斯坦的军队与中（共）国武装部队一起，在河南省中部的确山县军事基地，参加了为期10天的‘命运共同体2021’演习。”
 
+报道中描述了 “命运共同体2021”演习的基本情况：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-338.png)
+*蓝盔士兵轮流扮演各种场景：平民和难民卷入斗殴，或武装武装分子袭击联合国部队。*
 
-一位消息人士向 FOX Business 证实，参与《华尔街日报》“[Facebook](https://www.foxbusiness.com/category/facebook)档案”调查的吹哨人将公开其内部身份，作为与[国会](https://www.foxbusiness.com/category/congress)合作协议的一部分。
+*数十辆带有联合国标志的装甲车、推土机、直升机和坦克被动员起来参加此次活动。*
 
-《华尔街日报》的[一项调查](https://www.wsj.com/articles/the-facebook-files-11631713039)详细说明了 Facebook 对其系统漏洞的深入了解——这些漏洞可能造成了伤害。《华尔街日报》审查了文件和研究报告，以及在线员工讨论。
+*联合国数据显示，截至**7**月底，中（共）国是第八大维和部队派遣国，在全球有**2,158**名军事人员参与。中（共）国军队主要在南苏丹、马里、黎巴嫩和刚果民主共和国**开展维和工作**。*
 
-该报告的一个关键部分发现，该公司还知道其产品（最显着的是 Instagram）可能对少女的健康产生有害影响。
+然而，所谓的“维和部队”到底是维护和平还是制造混乱？而中共所谓的“命运共同体”，到底将带给世界什么样的命运？
 
-一位熟悉此事的消息人士向 FOX Business 证实，报告中泄露文件背后的吹哨人已同意与国会合作，并在年底前出席在参议院商务委员会消费者保护小组会议面前。
+最近，在澳大利亚，爆发了卡车司机反对封锁和疫苗护照的示威游行。据媒体报道的照片显示，当局对抗议者的镇压，与香港2019年发生的事情，惊人的相似。
 
-Facebook 还向 FOX Business 证实，该公司将派其全球安全主管安提戈·戴维斯 (Antigone Davis) 出庭作证。
+让人印象深刻的是，警察在袭击抓捕示威者时候的姿势：将示威者扑倒在地，然后用膝盖压住颈部。这是一个危险的动作。我相信这个危险的动作在中国内陆一直是警察标志性的动作，只是没有办法出现在媒体上被众人所知。这个致命的动作，在香港的返送中运动中，多次在镜头中出现，现在它们又出现在澳洲。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-35.jpg)
+当我看到这篇报道的时候，不禁会问：同样的场景是否会很快出现在加拿大、意大利、法国、阿联酋，还有泰国、蒙古所有这些与中共有着亲密关系的国家呢？
 
-Facebook因其各种做法而面临来自立法者的越来越大的压力，但最近的披露引起了政界人士难以置信的审查和批评。
+当平民和难民在“2021命运共同体”的“维和部队”演习中被假象成特定维和对象的时候，毫无疑问，这些军人和警察已经把平民当成了敌人，当成了他们要去镇压的对象。
 
-田纳西州共和党参议员马什·布莱克本的助手告诉《[华盛顿邮报](https://www.washingtonpost.com/politics/2021/09/23/facebook-testify-kids-safety-lawmakers-probe-whistleblowers-revelations/)》，国会至少会部分保护吹哨人免受来自任何公开披露的影响。
+2019年香港群众几百万人上街游行，给世界展示了中共是如何运用暴力手段，镇压民众，以及控制和抢劫财富的全过程。西方民主国家的政客们，却没有站出来对香港施以援手，导致许多香港同胞背井离乡，漂游于海外，西方共产国际势力却然继续与中共勾兑。今天的澳洲就是一个鲜明的例子。
 
-“我们从老师、家长、儿科医生、儿童心理学家和咨询师那里听到，社交媒体应用程序的成瘾性，”布莱克本周三（22日）告诉《华盛顿邮报》。
+在社交媒体上，人们喊出：“昨日香港，今日澳洲”。中共已经开始抢夺香港的土地，新一轮的财富抢劫已经开始。
 
-根据《华尔街日报》的调查，“该公司发现 Instagram 对相当大比例的人是有害的，尤其是少女，比其他社交媒体平台更有害。”
+邪恶的共产主义和共产党，只能带给世界混乱、独裁和杀戮的命运！
 
-该报告补充说：“在公开场合，Facebook 一直淡化该应用程序的负面影响，包括在对国会的评论中，并且没有公开其研究，也没有向要求得到它的学者或立法者汇报。”
+参考资料：[https://www.bangkokpost.com/thailand/general/2182379/thailand-joins-chinas-first-multinational-peacekeeping-exercise](https://www.bangkokpost.com/thailand/general/2182379/thailand-joins-chinas-first-multinational-peacekeeping-exercise)
 
-Facebook 领导层已经多次在国会作证——最近一次是在[今年早些时候](https://www.foxnews.com/opinion/misinformation-hearing-facebook-twitter-google-censorship-joe-pitts)就“错误信息”的听证会，在社交媒体平台（包括谷歌和推特）上的传播作证。
+【文章仅代表作者个人观点，与gnews平台无关】
 
-**简评：**
+作者：洛杉矶盘古农场 – 蓝精灵
+编辑：洛杉矶盘古农场 –柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-41.png)
-
-**Facebook [垄断了](https://www.foxnews.com/opinion/misinformation-hearing-facebook-twitter-google-censorship-joe-pitts)最大的搜索市场，但好像投资者更希望通过反垄断法来拆分它以获得更高的利益。在《华尔街日报》的报告中[显示](https://www.wsj.com/articles/the-facebook-files-11631713039)，Facebook 大力支持推广 Covid-19 疫苗——“公司的首要任务”。其原因正如 Facebook 发言人在一份声明中表示，数据显示美国民众对疫苗接种犹豫不决，导致了其用户无法按照自己的意愿来行动。值得一提的是，根据真相工程近期所显示的视频，小扎自己根本就不相信疫苗，那么他就是出于利益而担忧他所奴役到的用户。**
-
-**新中国联邦通过战友得到了疫苗的危害，出于正义的需要在各大媒体传播疫苗的真相。值得一提的是，郭文贵先生在2021年月15日的[盖文](https://gettr.com/post/pb3c3xb0d1)中表示：“文贵呼吁香港同胞们不要再使用Facebook、Instagram、Telegram、Twitter和Google等社交媒体。因为在共产党的渗透下，这些公司全面配合向中共提供个人信息。文贵先生承诺不惜一切代价保护香港同胞。”**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：《[福克斯商业](https://www.foxbusiness.com/technology/facebook-files-whistleblower-identity-cooperate-congress)》｜作者：彼得·艾特肯｜发布时间：2021年9月23日
-
-* * *
-
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,18 +2,31 @@
 ---
 
 
-## 推特推出比特币打赏功能
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1551176/)
+## 台湾申请加入CPTTP次日, 中共再派战机袭扰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552144/)
 
-#### 翻译：坤霆、Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-46.jpg)图片来源：网络截图
-据美国合众国际社9月23日报道，本周四，推特对所有用户推出了比特币打赏功能，该功能五月份就已经开始测试。该功能将用户转发到他们选择的付款平台进行付款，推特公司并不会收取任何费用。
+栏目记者/责任编辑：在远方
 
-产品经理埃瑟·克劳复徳说，这个功能先可以用于苹果用户，然后几周后也可用于安卓系统。她在博文中写道：“当你想打赏你喜欢的账户，如喜剧内容创作者，那么就用一些方法表达你的爱，帮助一些小公司度过这个艰难的日子，不管你想支持什么，打赏是你帮助人的办法之一。”
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-推特允许内容创作者使用Cash App、Patreon、Bandcamp、Chiper、Razorpay、Wealthsimple Cash、GoFundMe、PicPay和Venmo接受粉丝的现金付款。现在，添加了使用Strike应用程序使用比特币付款的选项，该应用程序仅适用于美国（夏威夷和纽约除外）和萨尔瓦多的用户。
 
-克罗复徳说：“我们希望每个在推特上的人可以通过这个途径获得打赏。” 数字货币可以鼓励更多的人加入到这个经济活动中，并帮助人们以最便捷的方式互相打赏。
 
-##### 新闻来源： [Twitter to allow tipping using bitcoin](https://www.upi.com/Top_News/US/2021/09/23/bitcoin-Twitter-tips/2641632423766/)
+台湾正式申请加入CPTPP仅一天后，9月23日，中共连续派遣24架战机侵扰台湾防空识别区。台湾军方也依照惯例，对中共战机实施了驱离及监控，中共这种无赖式袭扰几成常态。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.56.07-PM.png)
+CPTPP会员国包括日本、新西兰、加拿大、澳大利亚、文莱等11个国家。中共此前从未表达想要加入的意愿，却突然于9月16日抢在台湾之前， 正式向该阻止提出申请。CPTPP组织采取共识制，任何国家或经济体申请加入，必须获得每一个成员国的认可同意。尚未加入CPTPP的中共，自然无法阻止台湾的申请。只能通过武力袭扰恐吓表达不满，毫无大国姿态和尊严，完全是一副流氓嘴脸。
+
+参考链接：[台湾申请加入CPTPP次日，24架次解放军军机扰台](https://www.voachinese.com/a/China-sends-24-fighter-jets-towards-Taiwan-in-show-of-force-20210923/6242848.html)
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

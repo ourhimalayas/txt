@@ -2,37 +2,43 @@
 ---
 
 
-## 中小学生课本里还有多少曹文轩？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1552155/)
+## 有声|川普前新冠病毒小组高级顾问预言大规模儿童将因接种而死亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1552244/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-74.jpg)
-过去10年，全国的学生都被迫上过曹文轩的贼船。每个学期开学，班主任都会在家长群发一个推荐书单，让家长购买教辅书，因为有些考试的知识点来自于这些教辅书。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-34.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-13.jpg)
-2020年6月8日，郑渊洁一条置顶微博直接“开骂”曹文轩。起因是郑渊洁收到了一条邀请文章授权的短信，编辑短信的工作人员称有一本即将出版的中国儿童文选精品文库，编委会主任是曹文轩，想要收录郑渊洁的作品，只需要郑渊洁同意授权即可。（文章相关链接：[http://blog.sina.com.cn/s/blog\_473abae60102zfwt.html](http://blog.sina.com.cn/s/blog_473abae60102zfwt.html)）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-6.jpg)
-郑老师这一骂还是有效果的，今年班主任针对购买教辅书一事，加了一句：学生家长可根据情况，自愿购买。谢天谢地！
+配音：纽约香草山美食部 – 玫瑰园
 
-曹文轩来头可不小，中国作家、北京大学教授、中国作家协会全国委员会委员、北京作家协会副主席、儿童文学委员会委员、中国作家协会鲁迅文学院客座教授，还是第一个获得国际安徒生奖的中国作家。据说，这个奖是花400万买的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片6-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片9-1.jpg)
-不过他最为大家所知的头衔是人民教育出版社《语文》主编。 能为全国少年儿童编写语文课程，那他的专业能力一定是过硬的，我们看看广大网友怎么说。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片13.jpg)
-无论是普通网友，还是专业媒体，都对曹的作品非常不感冒，甚至表示很生气。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片14.jpg)
-莫说阅读自由，就连阅读不自由，孩子们都逃不开“曹文轩式”的噩梦。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-一个北大教授，被国家委任为《语文》主编，就可以利用手中的职权，干着贩卖个人书籍的肮脏勾当。可怜中国的孩子们刚进校园，就被这些饿狼盯上了钱袋子。如果，确实编辑的书籍技惊四座，我也认了。可就这样一个书贩子冒充儿童作家，在收钱的同时，还用文化糟粕持续糟蹋我们的孩子们。
 
-这种变相强制售书的行为是赤裸裸的公开腐败行为。中国所谓的作家专家协会到底是印刷品商会还是骗子集散地？
 
-谁给这样的骗子开了绿灯？曹文轩们固然受人唾弃，而真正的根源就是万恶的共产党，集权专制制度衍生的特权阶级，给这些伪作家提供了腐败和作假的土壤。曹文轩不是个案，他后面还躲着一大群的相关利益者，“曹文轩不是一个人在战斗。
+在9月21日的Stew Peters直播采访节目中，这位前美国卫生及公共服务部资深顾问，保罗·亚历山大（Dr. Paul E. Alexander）警示儿童新冠疫苗接种计划恐怖至极、令人惊骇。
 
-我们的孩子还将继续被强制消费下去。曹文轩只是中国教育腐败的冰山一角，还有李文轩在卖笔，赵文轩在卖校服……一个把义务教育当成了一门生意政府，把所有祖国的未来当成韭菜从小收割和荼毒的国家，试问中国的未来在哪里？
+当权者对于疫苗接种的狂热，远远超出了所有人的想象。他们将无视民众反抗，将人们享受的各项权力一一抹去，以强烈攻势推行新冠病毒疫苗，更多的受害者也无法阻挡这种暴虐的碾压。他们的最终目的：是给每个人都注射一剂毒药。这名前官员继续说，关于新冠病毒，从最开始我们就知道，儿童几乎对它是免疫的，即使发生传播也根本无需任何干预措施。而在疫苗崇拜者的骨子里，他们坚持必须给儿童注射，这无关科学和医学范畴。
 
-【文章观点仅代表作者个人，与Gnews平台无关】
+在上周FDA激烈的听证会中，许多令人震惊的真相被揭露出来，包括辉瑞公司操纵报告结果，新冠疫苗导致的严重不良反应和高致死率。但FDA没有听从任何卫生保健人员的意见，依然推进儿童接种计划。保罗警告说，成千上万的儿童，将会因为被强制接种新冠疫苗而受到直接伤害。
 
-作者：洛杉矶盘古农场 — 文如
-编审：洛杉矶盘古农场 — 心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+处于生长发育阶段的儿童，因自身免疫力发展对环境反应更加敏感。有医学常识的人们愤怒的表示，让孩子们佩戴无效的医疗设备，并且长期使用酒精擦手液、消毒水将消弱其免疫系统功能。恐怖的是，从最开始当权者就在享受这种以虐待为主的变态宗教承诺。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[文字版原文：川普前新冠病毒小组高级顾问 预言大规模儿童将因接种而死亡](https://gnews.org/zh-hans/1550240/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

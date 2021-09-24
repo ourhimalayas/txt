@@ -2,20 +2,38 @@
 ---
 
 
-## 美国会偷偷提出授权美联储发行数字货币的修正案
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1551271/)
+## 中共虚假承诺, 试图拖延恒大暴雷
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552089/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/6-21.jpg)图片来源：网络截图
-9月23日据零对冲报道，于2021年7月28日，美国众议院提出了一项新法案。该法案由国会议员东.拜耳（Don Beyer）提出，旨在监管加密货币，该法案被称为《数字资产市场结构和投资者保护法》（《数字资产法案》）。对大多数人来说，它规定了未来的加密规则。然而，在该法案中，有人提议更改美元的基础。
+栏目记者/责任编辑：文扬四海
 
-与广泛理解的相反，美联储不“印刷货币”。它只能间接管理货币供应。正是随着私人银行的信贷供应，货币供应被夸大了。相反，随着信贷需求的减少，货币供应量会紧缩。美联储对这一进程的直接影响并不像它希望市场相信的那样大。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-但根据上述《数字资产法案》，将修订《联邦储备法》第11条，以赋予美联储备委员会新的权力：“美联储系统理事会有权在当前的美联储纸币实物外，发布美联储纸币的数字版本。此外，美联储系统理事会在与财政部长协商后，有权使用分布式分类账技术创建、分发和记录所有涉及数字联邦储备票据的交易。”
+9月23日，随时面临崩盘的恒大集团股票出人意料的突然强力反弹，最高涨幅超过30%！最终当天以17%的涨幅收盘。
 
-正如我们所看到的，美联储本没有直接创造美元的权力。现在似乎要授予他们这种权力。还有美联储将被授权创建和分发可用于日常交易的“分类账”数字美元，这种可以记录所有交易的监控，是否触犯了隐私权，人们是否安全？
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.42.06-PM.png)
 
-这一切都会由七个非选举产生的官僚组成的委员会控制吗？他们如何控制如此规模的分布式分类账？这项修正案有可能改变美联储的运作方式。它还不是法律，仍然可以改变。这也值得加密货币界以外的经济学家和金融专家进行更广泛的讨论。
+本周三恒大连夜召集集团四千名高管开会，承诺将全力以赴完成各地再建项目, 并保质保量顺利交楼,同时宣布将如期支付两笔到期债务利息 。另有消息称中共当局指示地方政府要尽量减少恒大违约对当地经济的影响，特别要严防失业导致的社会性骚乱，必要时候政府可能出手干预。所以从表面上看起来，此次的股价意外回升或许与恒大及中共将要采取的救市行动有关。但文贵先生在周四直播中揭示了此次恒大回光返照的背后实质!
 
-原文链接：[US Congress Quietly Sneaks In Crypto-Bill Amendment Authorizing Central Bank Digital Currency](https://www.zerohedge.com/political/us-congress-quietly-sneaks-crypto-bill-amendment-authorizing-central-bank-digital)
+盗国贼迫于压力，会想尽一切办法不让恒大猝死。具体方式就是想把恒大的烂摊子分解，让各部各省就地解决债务问题,但也因此将恒大顺利变成”国企”。这样就把中国的影子银行，保险，信托等几十万亿的”资金池子”盖住了。但最后恒大一定会倒，而且会倒的非常惨，许家印不会坐牢，但很可能会遭遇意外死亡。恒大事件的结局，将远远超过雷曼兄弟。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [恒大股价反弹能否逆转颓势？北京悄悄要求各地应对“风暴”](https://www.voachinese.com/a/Evergrande-Soared-in-China-20210923/6242506.html)
+2. [2021年9月23日郭先生直播速记](https://gnews.org/zh-hans/1550418/)
+
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
