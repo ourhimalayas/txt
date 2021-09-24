@@ -37,14 +37,14 @@
 ### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [医院不允许医生给病人使用伊维菌素](/content/gnews/9/README.md)
+### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/9/README.md)
+ ` wenwu`
+
+### [医院不允许医生给病人使用伊维菌素](/content/gnews/10/README.md)
  ` MG 澳喜农场多语组`
 
-### [革命尚未胜利，战友还需努力](/content/gnews/10/README.md)
+### [革命尚未胜利，战友还需努力](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [爱达荷州医生：注射疫苗的人的癌症发病率提高了20%](/content/gnews/11/README.md)
- ` MG 澳喜农场多语组`
 
 ### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -181,6 +181,6 @@
 ### [秘翻在线:中共强力打压虚拟货币交易目的何在?](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9/24/21 香港快讯 保安局拟取消支联会公司注册申述期满 支联会：常委全数入狱无法讨论及回应](/content/gnews/57/README.md)
- ` 英喜-粵語組`
+### [爱达荷州医生：注射疫苗的人的癌症发病率提高了20%](/content/gnews/57/README.md)
+ ` MG 澳喜农场多语组`
 
