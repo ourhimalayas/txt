@@ -2,46 +2,31 @@
 ---
 
 
-## FDA专家，Covid早期治疗基金的执行董事Steve Kirsch透露COVID疫苗杀人多于救人
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1550910/)
+## 墨尔本：抗议活动继续，数百名警察严防死守
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1551047/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1-1.jpg)图片来源：Medical Update Online
-美国食品和药物管理局的专家出人意料地投票反对批准为美国16岁以上的人注射Covid-19疫苗的加强针，理由是缺乏长期数据，并指出风险大于任何好处，因为Covid-19疫苗救一条生命就至少杀死两个人。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4798.jpg)图片来源：The Guardian
+**整理报道：**翼族
 
-在9月17日进行的直播中，食品和药物管理局疫苗咨询委员会召开会议，就辉瑞公司和BioNTech公司向公众提供加强型疫苗的申请进行辩论和投票。会议持续了8个多小时，包含了一些令人震惊的启示。
+在周四未能集会后，反对强制疫苗接种的抗议组织者计划再举行一天的抗议活动，与此同时，墨尔本各地都有大量警察驻守。
 
-新奥尔良的急诊医生约瑟夫-弗莱曼（Joseph Fraiman）博士在会议期间发言数分钟，他透露，没有任何临床证据反驳COVID-19疫苗伤害的人多于拯救的说法。
+周五早上，数百名警察和公共秩序响应车辆在墨尔本紧密巡逻，防暴警察和便衣警察出现在维多利亚女王市场和周围街道上。
 
-“我们需要你们在前线的帮助，阻止疫苗的犹豫不决。要求加强针的规模足以发现住院人数的减少。”没有这些数据，我们医疗机构就不能自信地叫停那些公开宣称疫苗伤害多于拯救的反COVID疫苗活动家，尤其是对年轻和健康的人的伤害。”**我们没有临床证据来说明这些反疫苗活动家是错误的，这一事实应该让我们所有人感到害怕”。**
+据组织者称，另一场示威活动定于上午10点在伯克街（Bourke Street）和伊丽萨白街（Elizabeth Street）的交汇处开始，抗议者计划在中央商务区聚集之前分散在城市各个郊区。
 
-随后是Covid-19早期治疗基金的执行董事史蒂夫-基尔希(Steve Kirsch)发言，他透露Covid-19疫苗杀死的人多于拯救的人。
+天空新闻墨尔本记者朱莉娅·布拉德利报道，至少有一名男子在伯克街被捕。
 
-他坚定的讲道，”我今天的发言将集中在没有人喜欢谈论的“房间里的大象”上，即疫苗杀死的人多于它们拯救的人。
+警方证实，已有92名抗议人士被指控，指控罪行包括违反维州首席卫生官的指示。他们警告说，未来几天将有大量警力出现。
 
-“我们被引导相信疫苗是完全安全的，但这根本不是事实，例如，在辉瑞公司6个月的档案报告中，治疗组的心脏病发作次数是其他组的4倍，这不是运气不好的问题。VAERS显示，与其他任何疫苗相比，这些疫苗后的心脏病发作次数是其他疫苗的71倍。”
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-Steve Kirsch随后继续他的演讲，展示了一张题为’过量死亡：比例是不能接受的’。显示了接种疫苗后需要多少次过量死亡才能挽救一个感染Covid-19的生命。
+**参考链接：**[Hundreds of police officers and public order response vehicles on standby in Melbourne](https://www.skynews.com.au/australia-news/coronavirus/watch-live-hundreds-of-police-officers-and-public-order-response-vehicles-on-standby-across-melbourne-ahead-of-planned-protest/news-story/b14f6670ddfa815ba38be40e6a0906c6)
 
-“只有VAERS（疫苗不良事件报告系统）具有统计学意义，但其他数字令人担忧。” 史蒂夫-基尔希说。
+*编辑/发布：翼族*
 
-“即使疫苗有100%的保护作用，这仍然意味着我们杀死2个人来拯救1条生命。
-
-“四位专家使用完全不同的非美国数据来源做了分析，他们都得出了大致相同的与疫苗有关的过量死亡数字，每百万剂量约有411人死亡。这意味着有11.5万人已经死于Covid-19疫苗”。
-
-这位Covid-19早期治疗基金的执行主任随后指出了对来自以色列的数据的一些严重关切。
-
-“真实的数字证实了我们杀死的人多于我们拯救的人。而且我很想看看以色列卫生部关于90岁以上老人的数据，在过去的4个月里，我们从94.4%的疫苗接种群体变成了82.9%的疫苗接种。
-
-“在最乐观的情况下，这意味着50%的疫苗接种者死亡，0%的未接种疫苗者死亡。除非你能向公众解释这一点，否则你不能批准加强针”。
-
-美国食品和药物管理局的最高疫苗监管者Peter Marks随后要求委员会成员审查 “全部证据，以便为我们提出建议”。
-
-在听取了证据之后，他们以16-2的投票结果坚决反对建议该机构向16岁以上的人推出加强针。
-
-疫苗杀人多于救人，应该叫停疫苗推广，更不能强制疫苗。这里专家们还有没提到疫苗有害成分——氧化石墨烯和数十万亿的mRNA因子对人体的危害。停止有毒疫苗刻不容缓！
-
-原文链接：
-[https://theexpose.uk/2021/09/18/fda-experts-reveal-the-covid-19-vaccines-are-killing-2-people-for-every-1-life-saved/](https://theexpose.uk/2021/09/18/fda-experts-reveal-the-covid-19-vaccines-are-killing-2-people-for-every-1-life-saved/)
-
-发稿 Spirit
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

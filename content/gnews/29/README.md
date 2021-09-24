@@ -2,32 +2,21 @@
 ---
 
 
-## 不慎感染病毒, 战友送药见真情!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550271/)
+## 秘翻在线: 变异毒株“埃塔”（ETA）遍布世界82 国
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1550566/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-326.png)
-今天早间唐平战友发推文称,  她负责的我是音雄节目组里,一位执行导演女战友不慎染上了CCP病毒，波士顿五月花的如水战友闻讯后仅用一小时，就亲自开车将救命的伊维菌素和地塞米松送药上门！染病的女战友已经服用药物,大家才都心安!
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-30.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Untitled-1-1.png)图片来源：NIH
+据人民日报健康时报客户端9月23日报道， 新冠变异毒株“埃塔”已在至少82个国家和地区出现，最近的案例是在哈斯科斯坦境内报出。根据该变异毒株可能具有较高传染力，感染者会出现高烧、咳嗽、丧失嗅觉味觉等症状。
 
-不仅此事,此前英国大卫战友感染后,文贵先生心急如焚, 马上派人送药,使大卫转危为安. 几天前, 在希腊和荷兰的两位欧洲战友染病后在沟通群里求救, 法国的小皮匠战友得知消息, 第一时间联络委托附近战友驱车前往,或快递邮寄,解战友燃眉之需 …. 相信各地都有这种战友间彼此救助的故事, 也都同样令人感动激赏! 感慨各地战友之间的呵护团结,感恩文贵先生和墙内战友提供的解药信息,这些都无形中 时时刻刻在保护着全球爆料革命的战友们.
+埃塔变异毒株最早于去年年底在尼日利亚和英国被发现，与Mu，Lamda列为威胁等级次级行列，目前最常见于加拿大（20%），美国（16%），德国（10%，法国（9%），和丹麦（8%），日本也在8月份发现了18起病例。虽然毒株不如Delta的传染性和毒性那么强，但是随着更多的变异毒株散布到全世界，他们之间相互的作用，是否会使得病毒逃逸疫苗的成功性增强？
 
-正如唐平在推文中的感言: ” 感谢如水战友，感谢爆料革命，让我们在这个冰冷黑暗的世界里成为一家人，像兄弟姐妹一样彼此相爱！这种情义感天动地！”
+郭先生在今天的大直播提到，中共已到了图穷匕首见的阶段，此时如果继续放毒，且  是热毒，也会把它归于冠状病毒上， 因为现在已经有了仅10种的变异毒株， 再多一种也不会引起人们的怀疑。当世界放纵和腐败，加上医疗和科学的腐败,黑暗必将降临。因此希望战友们在灭共路上，一定要保护好自己，保护好家人，
 
-(本文仅代表作者观点）
+**新闻来源：**
 
-参考链接：[https://twitter.com/xiaotang2164/status/1440921791241850882](https://twitter.com/xiaotang2164/status/1440921791241850882)
+[新冠新型变异毒株”埃塔”已在至少82个国家和地区出现|哈萨克斯坦|新冠肺炎\_新浪科技\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/tech/2021-09-23/doc-iktzscyx5926393.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龍
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[https://www.rivm.nl/en/coronavirus-covid-19/virus-sars-cov-2/variants](https://www.rivm.nl/en/coronavirus-covid-19/virus-sars-cov-2/variants)

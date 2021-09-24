@@ -2,39 +2,21 @@
 ---
 
 
-## 联邦医疗机构员工揭露新冠疫苗真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550260/)
+## 瑞典取消了大部分中共病毒的限制措施
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1550519/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-325.png)
-本周一，“真相工程”发布了“揭露新冠疫苗真相”系列节目的第一部分，美国卫生与公众服务部（HHS）雇员、亚利桑那州凤凰城印第安医疗中心的护士乔迪·奥马利，在接受“真相工程”采访时表示，在她工作的医院，越来越多的人因为接种新冠疫苗而生病和死亡，而政府却在掩盖事件的真相。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-63.jpg)
+图片来源：Ritzau Scanpix
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-21.jpeg)
+瑞典政府在周四（2021.9.23）的新闻发布会上宣布了瑞典取消大部分新冠病毒的限制措施。鉴于现在瑞典情况要好得多，因此，政府将决定进行第四步。
 
-从吹哨人奥马利公开的秘密录像中得知，该医疗中心已经接收很多因疫苗引发的不良反应的病例，但是政府却从来没有做相关的报告。奥马利一直对疫苗表示质疑和担忧。接种强制令实施后，部分地区“宗教豁免”被废除。当一位在重症监护室工作的同事，被迫接种疫苗，导致罹（lí）患重病，并最终死亡后，她决定勇敢地站出来揭露真相。奥马利表示，FDA、CDC本有义务和责任保护人民，但他们现在做得这一切都很不科学，邪恶至极。
+“第四步 “意味着，除其他事项外，取消剧院、音乐会和体育赛事中的集会上限。到目前为止，大型活动的上限是15000人，但现在将被完全取消。即日起，瑞典人在参加文化活动时也不必出示疫苗护照。
 
-该视频一经推出便引发媒体风暴，短短数日，仅在推特上就有超过210万的浏览量。
+自疫情开始以来，瑞典的建议和限制一直是辩论的主题。瑞典国家流行病学家安德斯-泰格内尔（Anders Tegnell）在给政府的建议中选择了与许多其他国家不同的方向，瑞典没有进行广泛的封锁和禁止集会，而是依靠公民遵守保持距离，生病时留在家里，并确保良好的卫生。当其他国家关闭一切时，瑞典选择让学校、酒吧和餐馆继续营业。瑞典也是为数不多的没有引入广泛的戴口罩要求的国家之一。
 
-数小时前，“真相工程”又发布了更加震撼的第二部分。FDA雇员泰勒·李揭露了可怕的政府预案。在该视频中，李谈到，针对未接种人口，比如持保留态度的非裔或少数民族，政府会先让白人接种以避免种族主义；对于美国人，则可能会制定类似纳粹式的登记册，挨家挨户地强迫人们接种疫苗。
+至2021.9.20号，北欧国家两针疫苗接种率分别为芬兰60%，瑞典62%，挪威67%，丹麦为75%，冰岛77%。
 
-科学是西方科技和工业文明的基础，西方人民不相信政客，但是相信科学、医疗系统和媒体。而所有的这些，现在已被邪恶组织完全垄断，病毒和疫苗真相遭到打压和掩盖。如今美国爆料人勇敢站出来，揭露疫苗对民众造成的伤害，相信会对美国民众造成更强烈的冲击，看到身边的人因为接种疫苗而患病甚至死亡的时候，更多人会加入反抗的行列。
+来源：
 
-(本文仅代表作者观点）
-
-参考链接：[US Government Whistleblower: “The Government are covering up adverse reactions to the Covid-19 Vaccines”](https://theexpose.uk/2021/09/22/us-government-whistleblower-covid-vaccines-are-full-of-s/)
-[BREAKING: Project Veritas: Federal Whistleblower Goes Public with Secret Recordings on Covid Vax: ‘Government Shoves Adverse Effect Reporting Under the Mat’ (VIDEO)](‘Government%20Shoves%20Adverse%20Effect%20Reporting%20Under%20the%20Mat’%20%28VIDEO%29)
-[https://twitter.com/EricSpracklen/status/1440465871424536582](https://twitter.com/EricSpracklen/status/1440465871424536582)
-[https://twitter.com/EricSpracklen/status/1440465871424536582](https://twitter.com/EricSpracklen/status/1440465871424536582)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：暗黑
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+1. **[DN.se](https://www.dn.se/sthlm/stockholm-firar-havda-restriktioner-med-konsert-i-kungsan/)**

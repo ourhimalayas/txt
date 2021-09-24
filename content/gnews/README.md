@@ -28,31 +28,31 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国际脱钩、国内上街和大量疫苗死亡中共会放新一轮热毒](/content/gnews/6/README.md)
+### [许家印到底是车祸死心脏病死自杀死猝死现在已经在商量](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [9/23/2021 七哥直播：警告所有海外华人，全世界正在酝酿一场反华运动](/content/gnews/7/README.md)
+### [国际脱钩、国内上街和大量疫苗死亡中共会放新一轮热毒](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [9/23/2021 七哥直播：警告所有海外华人，全世界正在酝酿一场反华运动](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
+### [为何中共病毒在非洲的感染后重症率、死亡率如此之低？](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
 
-### [NIH主任声称符合条件的学生应接种辉瑞疫苗](/content/gnews/9/README.md)
+### [澳洲监管机构禁止伊维菌素用于治疗中共病毒](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [NIH主任声称符合条件的学生应接种辉瑞疫苗](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力](/content/gnews/10/README.md)
- ` 美国政要直译推`
-
-### [对未接种疫苗的美国人来说，国际旅行将变得更加复杂](/content/gnews/11/README.md)
+### [贾斯汀·特鲁多的自由党在加拿大大选中赢得另一个少数派政府](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/12/README.md)
+### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/13/README.md)
- ` wenwu`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/14/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/14/README.md)
  ` wenwu`
 
 ### [“供不应求”致中药材价格上涨](/content/gnews/15/README.md)
@@ -85,47 +85,47 @@
 ### [视频| 真相工程 &#8211; 暗访药监局小喽啰](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [向SEC索要投资款程序](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [秘翻在线: 变异毒株“埃塔”（ETA）遍布世界82 国](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [克罗地亚总统Milanovic反对继续打疫苗 并痛斥CNN等媒体](/content/gnews/28/README.md)
+### [郭文贵:中共准备扩大生化战争](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [不慎感染病毒, 战友送药见真情!](/content/gnews/29/README.md)
+### [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/30/README.md)
+### [广东男染H5N6禽流感　中共专家称仅是个案](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [日本外相表示欢迎台湾加入TPP](/content/gnews/31/README.md)
+### [向SEC索要投资款程序](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [秘翻在线: 变异毒株“埃塔”（ETA）遍布世界82 国](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [瑞典取消了大部分中共病毒的限制措施](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共当局对恒大重组方案将公布，可能一拆三变成国企](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本出现一系列“突破性感染”，接疫苗仍感染中共病毒](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墨尔本：抗议活动继续，数百名警察严防死守](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力](/content/gnews/34/README.md)
+ ` 美国政要直译推`
+
+### [日本外相表示欢迎台湾加入TPP](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [民调显示：川普将在可能的2024年总统大选中获胜！](/content/gnews/32/README.md)
+### [民调显示：川普将在可能的2024年总统大选中获胜！](/content/gnews/36/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [FDA专家，Covid早期治疗基金的执行董事Steve Kirsch透露COVID疫苗杀人多于救人](/content/gnews/33/README.md)
+### [FDA专家，Covid早期治疗基金的执行董事Steve Kirsch透露COVID疫苗杀人多于救人](/content/gnews/37/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [民调：大多数欧洲人认为美中冷战已成事实](/content/gnews/34/README.md)
+### [民调：大多数欧洲人认为美中冷战已成事实](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [台北日本商会呼吁日本政府积极协助台湾加入CPTPP](/content/gnews/35/README.md)
- ` 日本东京方舟农场`
-
-### [Fauci在2017年CUGH的会议上资助了中共国生物武器研究](/content/gnews/36/README.md)
- ` wenwu`
-
-### [库存远超需求 加拿大暂停COVID-19疫苗进口](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中秋节，恒大“家书”给人们画了一个好大的饼](/content/gnews/38/README.md)
- ` 银河勇气之星`
 
 ### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国内大面积限电，背后原因是什么？](/content/gnews/47/README.md)
+### [我们一定要用媒体这个核武器反击了](/content/gnews/47/README.md)
+ ` 纽约香草山MOS03`
+
+### [维州警方防暴队前负责人呼吁用水泡车对付抗议者](/content/gnews/48/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国内大面积限电，背后原因是什么？](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [G时评：那些被人忽视的超限战](/content/gnews/48/README.md)
+### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/50/README.md)
+ ` 秘密翻译组-北美组`
+
+### [G时评：那些被人忽视的超限战](/content/gnews/51/README.md)
  ` GISELLE`
 
-### [郭文贵直播摘要和音频2021.9.26: 疫苗此生灾难](/content/gnews/49/README.md)
+### [对未接种疫苗的美国人来说，国际旅行将变得更加复杂](/content/gnews/52/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [郭文贵直播摘要和音频2021.9.26: 疫苗此生灾难](/content/gnews/53/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（一）](/content/gnews/50/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（一）](/content/gnews/54/README.md)
  ` 纽约香草山MOS02`
 
-### [樱花灭共诗——深谷会盟（新韵）](/content/gnews/51/README.md)
+### [樱花灭共诗——深谷会盟（新韵）](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——人月圆•中秋之夜](/content/gnews/52/README.md)
+### [樱花灭共诗——人月圆•中秋之夜](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美FDA授权为65岁以上高龄人群接种疫苗加强针](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日外相对台湾加入TPP表示欢迎](/content/gnews/54/README.md)
+### [台北日本商会呼吁日本政府积极协助台湾加入CPTPP](/content/gnews/57/README.md)
  ` 日本东京方舟农场`
-
-### [以灭共为核心的全球正邪之战已到至暗时刻](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《疫苗死亡报告》：世界各地疫苗致死数以万计 制造商却不承担任何责任](/content/gnews/56/README.md)
- ` 日本东京方舟农场`
-
-### [中共计划经济下的“能耗双控”](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 

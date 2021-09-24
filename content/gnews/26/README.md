@@ -2,21 +2,44 @@
 ---
 
 
-## 秘翻在线: 变异毒株“埃塔”（ETA）遍布世界82 国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1550566/)
+## 英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550797/)
 
-撰稿：西枫westca
+栏目记者/责任编辑：AsG諾雅
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Untitled-1-1.png)图片来源：NIH
-据人民日报健康时报客户端9月23日报道， 新冠变异毒株“埃塔”已在至少82个国家和地区出现，最近的案例是在哈斯科斯坦境内报出。根据该变异毒株可能具有较高传染力，感染者会出现高烧、咳嗽、丧失嗅觉味觉等症状。
 
-埃塔变异毒株最早于去年年底在尼日利亚和英国被发现，与Mu，Lamda列为威胁等级次级行列，目前最常见于加拿大（20%），美国（16%），德国（10%，法国（9%），和丹麦（8%），日本也在8月份发现了18起病例。虽然毒株不如Delta的传染性和毒性那么强，但是随着更多的变异毒株散布到全世界，他们之间相互的作用，是否会使得病毒逃逸疫苗的成功性增强？
 
-郭先生在今天的大直播提到，中共已到了图穷匕首见的阶段，此时如果继续放毒，且  是热毒，也会把它归于冠状病毒上， 因为现在已经有了仅10种的变异毒株， 再多一种也不会引起人们的怀疑。当世界放纵和腐败，加上医疗和科学的腐败,黑暗必将降临。因此希望战友们在灭共路上，一定要保护好自己，保护好家人，
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)
 
-**新闻来源：**
 
-[新冠新型变异毒株”埃塔”已在至少82个国家和地区出现|哈萨克斯坦|新冠肺炎\_新浪科技\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/tech/2021-09-23/doc-iktzscyx5926393.shtml)
 
-[https://www.rivm.nl/en/coronavirus-covid-19/virus-sars-cov-2/variants](https://www.rivm.nl/en/coronavirus-covid-19/virus-sars-cov-2/variants)
+9月23日，人权倡议者、英国富商比尔-布劳德表示，他和其他批评中共镇压香港、主张对中共和香港官员进行马格尼茨基法案制裁的活动人士收到了英国外交及国际协调事务部的警示，让他们避免前往与中共国有引渡协议的国家，否则将有可能被拘留并移送到中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/英国警示批评港共政府的人士-避免前往与中共国有引渡协议的国家.jpg)
+英国外交部官网上已经列出相关旅游警告，提醒英国公民港共国安法的最高刑罚是终身监禁，且适用于在香港境内和境外进行的活动，实际上这可能包括在英国进行的活动。
+
+中共利用国安法大肆打击香港的民主运动和拘捕持异见人士，还声称港区国安法拥有普遍管辖权。截至2019年8月，中共与包含法国、意大利、西班牙、葡萄牙、韩国等民主国家以及伊朗等专制国家大约60国签署了引渡协议，香港则因英国治下建立的良好法治环境得到认可，而更多地与西方法治民主国家有引渡协议。
+
+去年6月港共国安法出台后，美澳加英德法等九个西方国家相继终止了与香港的引渡协议。 英国发出相关警告表示中共在香港的暴行一直在其关注中，且日益让人警觉，香港的民主法治环境已经完全被中共抹杀。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://www.rfi.fr/cn/%E8%8B%B1%E8%AD%A6%E5%91%8A%E6%89%B9%E8%AF%84%E9%A6%99%E6%B8%AF%E4%BA%BA%E5%A3%AB-%E9%81%BF%E5%85%8D%E5%89%8D%E5%BE%80%E4%B8%8E%E4%B8%AD%E5%9B%BD%E6%9C%89%E5%BC%95%E6%B8%A1%E5%8D%8F%E8%AE%AE%E5%9B%BD%E5%AE%B6%20https://www.ntdtv.com/gb/2021/09/23/a103225206.html)
+2. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://www.rfi.fr/cn/%E8%8B%B1%E8%AD%A6%E5%91%8A%E6%89%B9%E8%AF%84%E9%A6%99%E6%B8%AF%E4%BA%BA%E5%A3%AB-%E9%81%BF%E5%85%8D%E5%89%8D%E5%BE%80%E4%B8%8E%E4%B8%AD%E5%9B%BD%E6%9C%89%E5%BC%95%E6%B8%A1%E5%8D%8F%E8%AE%AE%E5%9B%BD%E5%AE%B6%20https://www.ntdtv.com/gb/2021/09/23/a103225206.html)
+3. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://www.gov.uk/foreign-travel-advice/hong-kong)
+4. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://qiaoyi.org/xiaotieshiyindu202007.html)
+5. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://zhuanlan.zhihu.com/p/163236412)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)
