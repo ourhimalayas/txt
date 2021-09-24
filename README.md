@@ -28,22 +28,22 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [西方2019年不救香港,香港的事情将在任何国家发生](/content/gnews/6/README.md)
+### [孙力军咬出孟建柱三剑客中要杀习近平全家的王立科](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [安徽广东江苏大停电与打台湾无关，因煤价高发电赔钱](/content/gnews/7/README.md)
+### [西方2019年不救香港,香港的事情将在任何国家发生](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [上峰知道台湾军方为自保打了假疫苗后以假当真不再声张](/content/gnews/8/README.md)
+### [安徽广东江苏大停电与打台湾无关，因煤价高发电赔钱](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/9/README.md)
+### [取消打疫苗了](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/10/README.md)
  ` wenwu`
 
-### [秘翻在线：英政府告诫中共政权批评人士不要去与中共签有引渡协议的国家](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：尾身会长的留言栏显示日本民众对疫苗护照很不理解](/content/gnews/11/README.md)
+### [秘翻在线：英政府告诫中共政权批评人士不要去与中共签有引渡协议的国家](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [Facebook files：背后的吹哨人将公开与国会合作](/content/gnews/12/README.md)
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [钟南山团队发布文献给世界开疫情管控药方](/content/gnews/47/README.md)
+### [文革笑话 （一）](/content/gnews/47/README.md)
+ ` 日本东京方舟农场`
+
+### [动力媒价格狂涨,中共国多省拉闸限电](/content/gnews/48/README.md)
+ ` 澳喜农场`
+
+### [钟南山团队发布文献给世界开疫情管控药方](/content/gnews/49/README.md)
  ` 儒为`
 
-### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/48/README.md)
+### [银河快讯：日本养老金曾购恒大股债96亿日元；菅义伟莫迪美国会面](/content/gnews/50/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [樱花灭共段子之有一种、报销祖国、不灭共匪人难圆](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共疫苗都有特殊标记对特定区域特定人口实行定向屠杀](/content/gnews/50/README.md)
+### [上峰知道台湾军方为自保打了假疫苗后以假当真不再声张](/content/gnews/51/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花灭共段子之最浪漫的事、砖家解答、不讲武德](/content/gnews/51/README.md)
+### [樱花灭共段子之有一种、报销祖国、不灭共匪人难圆](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子之要房有一套、自己被掏空、他们叫什么](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共段子之窃听风云、医疗保险、我的“朋友”许家印](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共段子之田螺松果系列（17、18）](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生对世界各国摸底评估,海外华人力量几乎是零](/content/gnews/56/README.md)
+### [中共疫苗都有特殊标记对特定区域特定人口实行定向屠杀](/content/gnews/53/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花灭共段子之如何掏恒大系列（1-3）](/content/gnews/57/README.md)
+### [樱花灭共段子之最浪漫的事、砖家解答、不讲武德](/content/gnews/54/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共段子之要房有一套、自己被掏空、他们叫什么](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：尾身会长的留言栏显示日本民众对疫苗护照很不理解](/content/gnews/56/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花灭共段子之成语新学、不是好鸟、正能量、转移资产](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
