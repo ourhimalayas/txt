@@ -2,71 +2,42 @@
 ---
 
 
-## 向SEC索要投资款程序
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1550914/)
+## 广东男染H5N6禽流感　中共专家称仅是个案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550796/)
 
-作者：纽约香草山法务部 – 铲共骑侠
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+栏目记者/责任编辑：文一
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_3.png)
+【东方日报】23日讯 – 中国广东省卫健委周三晚间通报，东莞市出现一例H5N6病例。官方通报称仅是“偶发个案”。此前，广东惠州8月通报一例，广西两例。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-6.jpg)
+【中新网】报导，患者是一名53岁男性，广西柳州人，目前在定点医院治疗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_4.png)
+【路透社】报导，今年6至8月，江苏、四川巴中及广东惠州陆续出现人感染禽流感的案例，每次均为一例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_5.png)
+2014年至今，中共国已通报32件人类感染H5N6案例。 H5N6是较新发现的禽流感病毒的一个亚种，但具有较高感染性和致死率。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_6.png)
+联想美国之前报道几个州出现大量鸟类不明死亡事件，郭文贵先生今日爆料说中共的”热毒”可能早有端倪。不管目前情況如何，有一点是肯定的，即中共不灭，病毒不止。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_01.png)
+（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_02.png)
+参考链接：
+1. [广东男染H5N6禽流感　中共专家称仅是个案](https://www.orientaldaily.com.my/news/international/2021/09/23/439663)
+2. [广东男染H5N6禽流感　中共专家称仅是个案](https://www.gzhe.net/portal/zixun/detail/bbfz/5524.html)
+3. [广东男染H5N6禽流感　中共专家称仅是个案](https://www.livescience.com/bird-dieoff-eastern-united-states.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_03.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-274.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_04.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_05.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_06.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_07.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_08.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_09.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_10.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_11.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_12.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_13.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_14.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_7.png)
-
-***发稿：Irene木木***
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)

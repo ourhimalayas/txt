@@ -2,22 +2,47 @@
 ---
 
 
-## 日本外相表示欢迎台湾加入TPP
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1550990/)
+## NIH主任声称符合条件的学生应接种辉瑞疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1551000/)
 
-23日，台湾政府正式宣布申请加入跨太平洋伙伴关系协定（TPP）。正在美国访问的日本外相茂木敏充欢迎台湾申请加入TPP。而对于16日申请加入TPP的中共国，茂木和其他与TPP相关日本政府阁僚充满了警戒，没有表示欢迎。台湾行政院政务委员兼经贸谈判办公室总谈判代表邓振中表示，对于台湾来说，这是自从加入世贸组织（WTO）以来的新的机会。
-
-中共国视台湾为其领土，反对台湾申请加入TPP。预计未来中方将对台湾施加更大的压力。大陆与台湾的关系出现新的火种。
-
-[新闻参考链接](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210923-%E6%97%A5%E6%9C%AC%E5%A4%96%E7%9B%B8%E8%A1%A8%E7%A4%BA%E6%AC%A2%E8%BF%8E%E5%8F%B0%E6%B9%BE%E5%8A%A0%E5%85%A5tpp?ref=tw_i)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山媒体部 – 文扬四海
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+
+
+
+NIH主任弗朗西斯-柯林斯在周一接受福克斯新闻采访时表示，他支持符合条件的学生接种新冠疫苗，即使目前政策尚未强制要求他们接种。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/73.jpg)图片来源：福克斯新闻
+
+柯林斯声称，辉瑞为5至11岁孩子准备的小剂量疫苗是安全的，即使疫苗存在副作用也很合理。同时，他期待辉瑞向FDA提交相关数据。但柯林斯避而不带孩子在接种疫苗后是否仍需戴口罩的问题，反而只是一味强调让全部的民众接种新冠疫苗。
+
+根据美国疾控中心的数据显示，新冠疫苗对儿童造成的伤亡已超过其他疫苗的总和。事实上，目前已有大量的证据和案例显示，新冠疫苗对人体会造成严重的不良反应。而今，NIH的主任柯林斯竟然无视事实，强行为辉瑞儿童新冠疫苗站台，甚至为此颠倒黑白，以所谓的“科学”为幌子，攻击反对疫苗的人士，何其悲哀！
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+[NIH director calls on eligible students to get vaccinated as Pfizer submits application for kids under 12](https://www.foxnews.com/media/nih-francis-collins-students-vaccines-pfizer)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

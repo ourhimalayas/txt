@@ -2,51 +2,71 @@
 ---
 
 
-## G时评：那些被人忽视的超限战
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1550819/)
+## 向SEC索要投资款程序
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1550914/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/蓝橙喇叭育活动封面.png)
-1，**那些容易被我们忽视的超限战术**
+作者：纽约香草山法务部 – 铲共骑侠
 
-往超市的草莓里塞针；
 
-往超市冷冻柜当众吐痰；
 
-一桶汽油点燃山火连烧几个月；
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-抢厕纸大战；
 
-偷来的电动车卧轨；
 
-无法解释的恐怖死亡个案
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_2.png)
 
-……
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_3.png)
 
-这些都符合低成本、高破坏力的超限战特征。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_4.png)
 
-都能对文明国家的秩序、经济、信用体系，产生巨大的破坏力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_5.png)
 
-这是因为，文明社会的秩序是基于人与人之间互相信任、分工合作的基础上的。当信任缺失的时候，就会由互助互信型社会，走入互害型社会。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_6.png)
 
-当民众失去安全感，陷入内斗厮杀的时候，独裁统治就容易得多了。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_01.png)
 
-2，**2021年9月22日，一位抗议疫苗暴政的澳大利亚示威民众，被警察连开9枪，击中后背！**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_02.png)
 
-——在未来的某一天，你将自豪地说：当时我在现场，我英勇地抗争过。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_03.png)
 
-在未来的某一天，我也将自豪地说：当时我在GTV，我英勇地抗争过。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_04.png)
 
-**不要恐惧，恐惧的应该是它们！**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_05.png)
 
-3，**职业犯罪非法移民在进入德克萨斯州后被发现携带上了膛的手枪。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_06.png)
 
-——要警惕这些职业罪犯，被黑暗势力操控，在美国境内制造大规模的枪击案，为当权者推动禁枪令造势。取消民众持枪权，为之后的强制接种疫苗、推进疫苗护照、独裁奴役控制，排除最后的障碍。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_07.png)
 
-4，**法属波利尼西亚医疗机构抓捕了一位用伊维菌素给新冠患者治病的医生；澳洲药管局明文规定，医生不可以开伊维菌素给新冠病毒感染者；美国药房也接到命令，不允许药剂师按照医生处方出售伊维菌素……**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_08.png)
 
-——这一切看似毫无逻辑、罔顾科学事实的行为，其真正原因是：伊维菌素、HCQ、青蒿素等，能终结这一场病毒、疫苗大屠杀，并且将黑暗势力送上绞刑架。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_09.png)
 
-所以，它们为了活命，还会强制民众接种毒疫苗，并且持续封杀以上药物。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_10.png)
 
-（**文章内容仅代表作者个人观点）**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_11.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_12.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_13.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_14.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_7.png)
+
+***发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)

@@ -2,30 +2,38 @@
 ---
 
 
-## 民调显示：川普将在可能的2024年总统大选中获胜！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1550800/)
+## 维州警方防暴队前负责人呼吁用水泡车对付抗议者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1551061/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/Trump2024RasmussenHeader-edited.jpg)图片来源：thepostmillennial
+#### 编译报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/09/百年-1.png)
+图片来源：BBC News
 
+澳大利亚维多利亚州警察防暴队的一名前负责人建议执法部门购买水炮车来应对墨尔本未来的抗议活动，如果实在不行，就“先用催泪瓦斯来真正严肃地应对”。
 
-加拿大知名自媒体《Thepostmillennial》9月23日刊登文章指出：美国最新的民意调查结果显示，如果现在是举行总统大选的周期（2024年），那么前总统川普将领先于现任总统拜登和副总统哈里斯而获胜。
+“有时你必须在广场之外思考问题。气候会越来越适宜（抗议者）的，所以动作越快越好，”这位前督察杰夫·莫克斯告诉媒体，墨尔本的抗议活动“在相当长的时间内不会消失”。
 
-美国著名调研公司《拉斯穆森报告》于当日公布了其对2024年总统竞选预测的最新民调结果。通过本次来自一千名届时可能的美国选民之共识发现，川普将以10%的领先优势（51%比41%）击败拜登，而且哈里斯也会以十三个百分点（52%比39%）输给该前总统。
+由于没有水炮车，莫克斯先生呼吁警方加强使用其他方法来镇压抗议活动。
 
-虽然川普此前在是否将参与2024年总统竞选的问题上未作最终定论，但他在9月11日的一次媒体公开亮相中告诉人们说，其广大拥趸们将会“非常高兴”。（意即大概率将参选）。此外，本次拉斯穆森的分析报告中其他值得注意的调查结果包括：
+“我的直觉是把催泪瓦斯拿出来给他们用，”他说。
 
-84%的共和党选民会再次支持川普，而74%的民主党人也会再次支持拜登；
-70%的选民认为美国和墨西哥之间的边境局势是一场危机，该比例自2021年5月以来上升了4%；
-54%的受访者将美墨边境问题归咎于目前拜登政府的移民政策，而37%的人则认为是由川普政府所造成的；
-52%的被调查者认为拜登在移民问题上的决策是 “糟糕的”，该比例自4月以来上升了2%；
-52%的受访者在看到拜登的执政方式后，希望川普“积极、对抗 ”的领导精神再回来，但也有超过44%的人仍然讨厌这种风格；
+莫克斯先生说，本周的抗议活动是他在墨尔本目睹的最严重的抗议活动。周二，示威者阻塞了西门大桥上的交通，周三他们接管了纪念澳大利亚退伍军人的纪念神殿（墨尔本战争纪念馆）。
 
-从另一个角度看，人们对是否希望这位前总统再次竞选仍然犹豫不决。该民调显示，48%的受访者表示赞同参选，而44%的人认为这是一个坏主意，包括49%的65岁以上的可能选民。该调查是在9月21日和9月22日进行的，据称误差率为+/-3%。
+这位维多利亚州警察防暴队的前任负责人建议执法部门采取更严厉的措施，让抗议者保持秩序。
 
-这项民调结果反映出现任白宫政府的支持率在持续下降，主要原因应该是此前拜登从阿富汗的撤军行动完全失败。而且在早些时候，当拜登9月9日宣布疫苗授权并要求全美私营公司胁迫员工接种COVID19疫苗后的几周内，其支持率出现了大幅下降。特别是在未接种疫苗的黑人选民中，不支持率的上升尤为明显。
+2007年悉尼先驱晨报曾报道，“六名维州警察面临暴力指控，没有资格被调职或晋升”，其中就有这位莫克斯先生。在2006年G20会议期间，G20代表参观墨尔本博物馆时遇到抗议者，在未警示前提下警察就对现场抗议民众挥动了危险的警棍。
 
-同时，由福克斯新闻进行的另一项类似民意调查结果也显示，越来越多的美国人认为拜登政府治理之下的国家将会变得越来越分裂。
+新闻链接：
 
-（以上内容仅代表原文信息和作者个人观点）
+1、[Melbourne tradie protests: Former riot squad boss calls for police to get tougher | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/melbourne-tradie-protests-lord-mayor-sally-capp-disgusted-by-forced-closure-of-health-clinics/news-story/65ae8ad4d8242ca2c1c1eb6d513df8ab)
 
-[原文链接：](https://thepostmillennial.com/poll-trump-ten-point-lead-biden-harris-2024)
+**2、**[Six Vic police face violence allegations (smh.com.au)](https://www.smh.com.au/national/six-vic-police-face-violence-allegations-20071204-1eoq.html)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

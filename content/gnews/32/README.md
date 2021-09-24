@@ -2,41 +2,32 @@
 ---
 
 
-## 波音公司将在澳大利亚制造军用无人机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1551151/)
+## 台湾申请加入CPTPP次日，24架次解放军军机扰台
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1551185/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/boeing.jpg)
-图片来源：*washingtonpost.com*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16324550241.png)
+出动军机或军舰侵扰台湾并借此传递政治信息是北京的一贯做法。台湾正式申请加入CPTPP一天之后，根据台湾空军公布的消息，24架次解放军战机9月23日分两批侵入台湾西南防空识别区。这也是台湾国防部在官网发布解放军军机动态以来单日扰台解放军军机第三多的记录。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+CPTPP的前身是由美国主导的《跨太平洋伙伴关系协定》，也曾是奥巴马总统任期内推动自由贸易和全球化的一项战略举措。特朗普总统2017年宣布美国退出TPP。日本领衔与其他10个国家又经过几个月的谈判，在2018年达成已经改名的亚太多边自由贸易机制《全面与进步跨太平洋伙伴关系协定（CPTPP）》。
 
-总部位于芝加哥的航空航天巨头波音公司近日宣布，将计划在澳大利亚建造新型军用无人机。
+CPTPP的创始会员包括日本、新西兰等11个国家。任何国家或经济体申请加入，必须获得每一个成员国的赞同。台湾正式申请加入CPTPP之后，解放军战机扰台被视为对台湾的申请表达不满。但北京早于台湾递出加入CPTPP的申请。不过由于北京与日本和澳大利亚这两个成员国关系紧张，日本质疑中共国，欢迎台湾加入。澳大利亚表示，除非北京停止对澳大利亚进口商品加征报复性关税，并恢复双方部长级接触，否则澳大利亚反对中共国加入CPTPP。
 
-波音公司周三表示，已选择昆士兰州的图文巴（Toowoomba）市作为其无人机“忠诚僚机”（ Loyal Wingman）的总组装点。第一批无人机的试飞已于今年初完成。
+蔡英文总统2016年主政以来，北京不仅切断了与台湾官方的所有联系，而且持续增加对台湾的武力威吓与军事压力。北京自从1949年建政以来，一直视台湾为其领土主权的一部分，并誓言即使动用武力，也要实现中国大陆与台湾的统一。
 
-该消息是在美国、英国和澳大利亚宣布建立新的安全联盟后不到一周公布的。该联盟将为澳大利亚提供核动力潜艇。
+总强调被其他国家粗暴干涉内政的中共国，自己何尝不是在干涉拥有民主主权的中华民国台湾呢？中共国自己尚未加入CPTPP，根本无法否决台湾的申请。一贯嚣张跋扈的中共国被CPTPP拒之门外，只能动用军机扰台表达不满。
 
-波音澳大利亚防务公司董事总经理斯科特·卡彭代尔（Scott Carpendale）表示，新飞机的开发正在按计划进行。
+新闻参考链接：[https://www.voachinese.com/a/China-sends-24-fighter-jets-towards-Taiwan-in-show-of-force-20210923/6242848.html](https://www.voachinese.com/a/China-sends-24-fighter-jets-towards-Taiwan-in-show-of-force-20210923/6242848.html)
 
-新飞机将在澳大利亚构思、设计和开发。这是半个世纪以来在澳大利亚设计和制造的第一架军用战斗机。波音澳大利亚公司目前正在与澳大利亚皇家空军合作开发六架这种飞机。
+编辑：胖丁
+PR：X-Wing
 
-卡彭代尔表示，尚未确认任何订单，但澳大利亚政府似乎对“忠诚僚机”的能力充满信心。这架无人机将在瓦格纳集团（Wagner Corp）拥有的康普（Wellcamp）机场的一个设施中建造。
+* * *
 
-该项目预计将在设施建设期间创造300个工作岗位和70个持续的运营和生产岗位。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-昆士兰州州长安娜斯塔西娅·帕拉什丘克（Annastacia Palaszczuk）表示，这是个“好消息”，因为波音公司首次在北美以外地区设立此类工厂。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+编辑：【英国伦敦喜庄园编辑部】
 
-**参考新闻：**[US aerospace giant Boeing says it will build drones in Australia | Aviation News | Al Jazeera](https://www.aljazeera.com/economy/2021/9/23/us-aerospace-giant-boeing-says-it-will-build-drones-in-australia)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

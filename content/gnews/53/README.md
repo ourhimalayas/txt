@@ -2,27 +2,45 @@
 ---
 
 
-## 民调：大多数欧洲人认为美中冷战已成事实
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1550903/)
+## 前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1551017/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16324445831.png)
-虽然拜登表示美国不会寻求冷战，但欧洲对外关系委员会的一项民调显示，大多数受访者认为，一边是美国，一边是中共国与俄罗斯的冷战实已成事实。12个欧盟国家62%的受访者几乎都认为，美国和俄罗斯之间的冷战也是现实。
-
-44%欧洲公民认为，冷战也是欧盟和俄罗斯之间的现实。25%的受访者认为他们的国家与俄罗斯之间存在冷战，波兰和法国分别有44%和35%的人认为本国和俄罗斯处于冷战中 。
-
-中共国31%的受访者认为欧盟和中共国之间的冷战是一个现实，36%的受访者认为，民主国家不一定更有能力应对气候变化或维护世界和平（46%）。37%的受访者认为，民主国家并未能更好地应对处理新冠疫情。
-
-新闻参考链接：[https://www.rfi.fr/cn/国际/20210923-民调-大多数欧洲人认为美中冷战已成事实](https://www.rfi.fr/cn/国际/20210923-民调-大多数欧洲人认为美中冷战已成事实)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> The Biden Administration's vaccine mandate is an abuse of power.
+> — Mike Pompeo (@mikepompeo) [September 23, 2021](https://twitter.com/mikepompeo/status/1441082829593452558?ref_src=twsrc%5Etfw)
+
+
+
+众议院外交委员会共和党领袖： 麦考尔关于总统气候问题特使约翰·克里的声明，他似乎认为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的种族灭绝不如气候变化那么重要，他说：“生活总是充满艰难的选择……但首先，这个星球必须得到保护.”大意：特使约翰克里对种族灭绝的残忍回应与美国的价值观和利益背道而驰，我强烈敦促他立即收回。美国绝不能无视暴行和种族灭绝以换取中共在气候问题上的承诺。我呼吁布林肯国务卿全面报告克里特使代表美国对中国做出的承诺。 【附声明全文】
+
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) on Special Presidential Envoy for Climate [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw)'s statement where he appears to dismiss the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s genocide as not as important as climate change, saying, “life is always full of tough choices…but first and foremost, this planet must be protected.”⬇️ [pic.twitter.com/tk915pUKnB](https://t.co/tk915pUKnB)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [September 23, 2021](https://twitter.com/HouseForeignGOP/status/1441141359394516994?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔新闻办公室： 深入研究小组(Drastic Research) 发布的新文件显示，皮特·达渣客和生态健康联盟已申请了资金，以便允许他们进一步修改冠状病毒刺突蛋白并找到潜在的弗林蛋白酶切位点。 众议员加拉格尔解释了为什么这如此重要。【在所附视频中，加拉格尔议员还讲到了皮特·达渣客和福奇与武汉病毒所及石正丽合作，对病毒进行功能增强性研究】
+
+
+
+> New documents released by Drastic Research show Peter Daszak and the EcoHealth Alliance had applied for funds that would allow them to further modify coronavirus spike proteins and find potential furin cleavage sites.
+> 
+> Rep. Gallagher explains why that's so important. [pic.twitter.com/6aEPyuW7Go](https://t.co/6aEPyuW7Go)
+> — Rep. Gallagher Press Office (@RepGallagher) [September 23, 2021](https://twitter.com/RepGallagher/status/1441088973565091849?ref_src=twsrc%5Etfw)
+
+
+
+众议员玛乔丽·泰勒·格林： 国会功能太失调，我今晚的特殊要求被更改了3次，从1小时缩短到30分钟。 这些人要在现实社会中从事普通工作一定被淘汰并被解雇。 敬请期待绿色新政为何服务于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的第二部分，即将推出。
+
+
+
+> Congress is so dysfunctional that my special order tonight was changed three times today and cut in half from 1 hour to 30 minutes.
+> 
+> These people would fail in the real world and be fired from a normal job.
+> 
+> So expect part 2 of why the Green New Deal serves China, coming soon. [pic.twitter.com/yts6L3xHCt](https://t.co/yts6L3xHCt)
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [September 23, 2021](https://twitter.com/mtgreenee/status/1440852311337701379?ref_src=twsrc%5Etfw)
