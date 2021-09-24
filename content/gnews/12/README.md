@@ -2,43 +2,46 @@
 ---
 
 
-## 维和与镇压：中共带给全世界什么样的“共同命运”？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1552299/)
+## “国家审计”报告发布中揭多米尼数据陷大麻烦
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1553172/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-75.jpg)星期三，在中（共）国军队在中国中部河南省驻马店的中国人民解放军战术训练基地举行的“命运共同体-2021”多国实况演习中，士兵们集结。（法新社照片）
-据《泰国邮报》9月15日的[一篇报道](https://www.bangkokpost.com/thailand/general/2182379/thailand-joins-chinas-first-multinational-peacekeeping-exercise)，为期十天的“命运共同体2021”演习于上周三结束。据报道，“来自泰国、蒙古和巴基斯坦的军队与中（共）国武装部队一起，在河南省中部的确山县军事基地，参加了为期10天的‘命运共同体2021’演习。”
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-报道中描述了 “命运共同体2021”演习的基本情况：
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/download-8.jpg)cybernistes.com
+《门道专家》（the gateway pundit）继续发出听证会现场消息，“亚利桑那州参议院审计：多米尼投票机包含来自南卡罗来纳州和华盛顿州的非马里科帕郡的数据”。【1】
 
-*蓝盔士兵轮流扮演各种场景：平民和难民卷入斗殴，或武装武装分子袭击联合国部队。*
+文章全文：
 
-*数十辆带有联合国标志的装甲车、推土机、直升机和坦克被动员起来参加此次活动。*
+多米尼陷入了深深的麻烦！
 
-*联合国数据显示，截至**7**月底，中（共）国是第八大维和部队派遣国，在全球有**2,158**名军事人员参与。中（共）国军队主要在南苏丹、马里、黎巴嫩和刚果民主共和国**开展维和工作**。*
+周五（9月24日），参议院审计员透露，他们有证据证明马里科帕郡官员从多米尼投票机上删除了数据。这是一个巨大的发布。
 
-然而，所谓的“维和部队”到底是维护和平还是制造混乱？而中共所谓的“命运共同体”，到底将带给世界什么样的命运？
+审计调查员本·科顿（Ben Cotton）还告诉在场的参议员，所分析的多米尼投票机包含的数据并非来自马里科帕郡，他们能够识别出，数据来自南卡罗来纳州和华盛顿州。
 
-最近，在澳大利亚，爆发了卡车司机反对封锁和疫苗护照的示威游行。据媒体报道的照片显示，当局对抗议者的镇压，与香港2019年发生的事情，惊人的相似。
+这到底是什么？？
 
-让人印象深刻的是，警察在袭击抓捕示威者时候的姿势：将示威者扑倒在地，然后用膝盖压住颈部。这是一个危险的动作。我相信这个危险的动作在中国内陆一直是警察标志性的动作，只是没有办法出现在媒体上被众人所知。这个致命的动作，在香港的返送中运动中，多次在镜头中出现，现在它们又出现在澳洲。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-35.jpg)
-当我看到这篇报道的时候，不禁会问：同样的场景是否会很快出现在加拿大、意大利、法国、阿联酋，还有泰国、蒙古所有这些与中共有着亲密关系的国家呢？
+原文附上了现场讲解视频
 
-当平民和难民在“2021命运共同体”的“维和部队”演习中被假象成特定维和对象的时候，毫无疑问，这些军人和警察已经把平民当成了敌人，当成了他们要去镇压的对象。
+（全文完）
 
-2019年香港群众几百万人上街游行，给世界展示了中共是如何运用暴力手段，镇压民众，以及控制和抢劫财富的全过程。西方民主国家的政客们，却没有站出来对香港施以援手，导致许多香港同胞背井离乡，漂游于海外，西方共产国际势力却然继续与中共勾兑。今天的澳洲就是一个鲜明的例子。
+州参议员，战斗机女飞行员温迪·罗杰斯（Wendy Rogers）连续发推：
 
-在社交媒体上，人们喊出：“昨日香港，今日澳洲”。中共已经开始抢夺香港的土地，新一轮的财富抢劫已经开始。
+（他们）删除了机器中的投票数据。【2】
+我们有机器数据被篡改时，机器旁人员的屏幕截图。【3】
 
-邪恶的共产主义和共产党，只能带给世界混乱、独裁和杀戮的命运！
+在回应温迪议员的推文中有人质问，“审计前一天，有人进去删除了选举结果……那个人是谁？”【4】
 
-参考资料：[https://www.bangkokpost.com/thailand/general/2182379/thailand-joins-chinas-first-multinational-peacekeeping-exercise](https://www.bangkokpost.com/thailand/general/2182379/thailand-joins-chinas-first-multinational-peacekeeping-exercise)
+……
 
-【文章仅代表作者个人观点，与gnews平台无关】
+笔者不禁感慨，真是不择手段，真是胆大妄为！美国中共化的具体体现！这种情况应该不只是1个州、几个州吧？
 
-作者：洛杉矶盘古农场 – 蓝精灵
-编辑：洛杉矶盘古农场 –柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+原文链接：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【1】[https://www.thegatewaypundit.com/2021/09/arizona-senate-audit-dominion-machines-contained-non-maricopa-county-data-south-carolina-washington-state-video/](https://www.thegatewaypundit.com/2021/09/arizona-senate-audit-dominion-machines-contained-non-maricopa-county-data-south-carolina-washington-state-video/)
+
+【2】[https://twitter.com/WendyRogersAZ/status/1441523190396641280](https://twitter.com/WendyRogersAZ/status/1441523190396641280)
+
+【3】[https://twitter.com/WendyRogersAZ/status/1441524232492515328](https://twitter.com/WendyRogersAZ/status/1441524232492515328)
+
+【4】[https://twitter.com/KariLake/status/1441525203222228996](https://twitter.com/KariLake/status/1441525203222228996)

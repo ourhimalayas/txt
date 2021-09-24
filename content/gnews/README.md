@@ -46,14 +46,14 @@
 ### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/12/README.md)
+### [“国家审计”报告发布中揭多米尼数据陷大麻烦](/content/gnews/12/README.md)
+ ` HimalayaRussia`
+
+### [“国家审计”报告发布中已现重大选票问题](/content/gnews/13/README.md)
+ ` HimalayaRussia`
+
+### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [Facebook files：背后的吹哨人将公开与国会合作](/content/gnews/13/README.md)
- ` wenwu`
-
-### [每日快报：惠誉下调中国今年经济增速预测，中国当局为恒大倒闭做准备](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -67,23 +67,23 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [毁掉台湾的主要是卖台贼](/content/gnews/19/README.md)
+### [短视频：警察才是抗议活动中暴力的根源](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [毁掉台湾的主要是卖台贼](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/20/README.md)
+### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [金融信托的猫腻](/content/gnews/21/README.md)
+### [金融信托的猫腻](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/22/README.md)
+### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/23/README.md)
+### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/24/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -127,17 +127,17 @@
 ### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/39/README.md)
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医学人士公开反对FDA和拜登政府的疫苗政策](/content/gnews/40/README.md)
+### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/41/README.md)
+### [医学人士公开反对FDA和拜登政府的疫苗政策](/content/gnews/41/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [立陶宛出具关于中国手机的安全调查报告](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
-
-### [日本知名医生高桥德入驻盖特](/content/gnews/42/README.md)
- ` 日本东京方舟农场`
 
 ### [9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共“千人计划”为新港人治港做好准备](/content/gnews/47/README.md)
+### [澳大利亚国会议员提议对澳洲警察在墨尔本的恶意执法进行司法调查](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [中共“千人计划”为新港人治港做好准备](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——台湾加入CPTPP 中共24军机欺压](/content/gnews/48/README.md)
+### [樱花灭共诗——台湾加入CPTPP 中共24军机欺压](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“喜币”上市在即，中共10部门联手围堵虚拟货币交易](/content/gnews/49/README.md)
+### [“喜币”上市在即，中共10部门联手围堵虚拟货币交易](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（7）](/content/gnews/50/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（7）](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/51/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登真“给力” 将释放孟晚舟](/content/gnews/52/README.md)
+### [拜登真“给力” 将释放孟晚舟](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/53/README.md)
+### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
 
-### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/54/README.md)
+### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/55/README.md)
+### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/56/README.md)
  ` 日本东京方舟农场`
 
-### [中共央行禁止该国的加密货币衍生交易](/content/gnews/56/README.md)
+### [中共央行禁止该国的加密货币衍生交易](/content/gnews/57/README.md)
  ` HimalayaRussia`
-
-### [苏格兰启蒙运动对现代世界的影响](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
