@@ -28,14 +28,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [不要用兔子的视野来看整个动物世界](/content/gnews/6/README.md)
+### [郭文贵直播摘要和音频2021.9.24](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2018年4月22日文贵报平安视频盗国贼新的一波行动。全文听写](/content/gnews/7/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [不要用兔子的视野来看整个动物世界](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/8/README.md)
- ` 日本东京方舟农场`
+### [2018年4月22日文贵报平安视频盗国贼新的一波行动。全文听写](/content/gnews/8/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -67,22 +67,22 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/19/README.md)
+### [金融信托的猫腻](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/20/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/20/README.md)
+### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/21/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/21/README.md)
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/22/README.md)
+### [FDA员工认为应挨家挨户上门给每个人接种疫苗](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|不慎感染病毒, 战友送药见真情!](/content/gnews/24/README.md)
+### [有声|联邦医疗机构员工揭露新冠疫苗真相](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [欧盟第三针开打，欧洲药品监管机构尚未批准!](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [DC每日热点0924](/content/gnews/31/README.md)
+### [西媒头条 — 第73期](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC每日热点0924](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/32/README.md)
+### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [推特将台湾割让给中共](/content/gnews/33/README.md)
+### [推特将台湾割让给中共](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/34/README.md)
+### [秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [十四届全运会的奇葩现象](/content/gnews/35/README.md)
+### [十四届全运会的奇葩现象](/content/gnews/36/README.md)
  ` 波士顿五月花农场`
 
-### [法印强调在印太联合行动，直指中共霸权](/content/gnews/36/README.md)
+### [法印强调在印太联合行动，直指中共霸权](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/37/README.md)
+### [IMF总裁卷入中共世银数据造假丑闻被呼吁辞职](/content/gnews/38/README.md)
  ` GTV新闻访谈`
-
-### [反智无逻辑&#8211;再评习二联大讲话](/content/gnews/38/README.md)
- ` 波士顿五月花农场`
 
 ### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登真“给力” 将释放孟晚舟](/content/gnews/47/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（7）](/content/gnews/47/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/48/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [拜登真“给力” 将释放孟晚舟](/content/gnews/49/README.md)
  ` HimalayaRussia`
 
-### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/48/README.md)
+### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/50/README.md)
  ` 日本东京方舟农场`
 
-### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/49/README.md)
+### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共央行禁止该国的加密货币衍生交易](/content/gnews/50/README.md)
+### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/52/README.md)
+ ` 日本东京方舟农场`
+
+### [中共央行禁止该国的加密货币衍生交易](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [苏格兰启蒙运动对现代世界的影响](/content/gnews/51/README.md)
+### [苏格兰启蒙运动对现代世界的影响](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [你好朋友连线Q May:爆料革命要面对很多东西,首先是灭共](/content/gnews/52/README.md)
+### [你好朋友连线Q May:爆料革命要面对很多东西,首先是灭共](/content/gnews/55/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [苏格兰启蒙运动对英国民族性格的影响](/content/gnews/53/README.md)
+### [苏格兰启蒙运动对英国民族性格的影响](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“厂里停电”90年代的记忆又回来了](/content/gnews/54/README.md)
+### [“厂里停电”90年代的记忆又回来了](/content/gnews/57/README.md)
  ` 银河勇气之星`
-
-### [串珠393：青蒿素是病毒和疫苗最好的解药](/content/gnews/55/README.md)
- ` 郭爆料串珠`
-
-### [革命尚未胜利，战友还需努力](/content/gnews/56/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [迫在眉睫的排华，建议速成的防身技术](/content/gnews/57/README.md)
- ` 纽约香草山MOS03`
 

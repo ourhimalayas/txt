@@ -2,38 +2,28 @@
 ---
 
 
-## IMF总裁卷入中共世银数据造假丑闻被呼吁辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552455/)
+## 法印强调在印太联合行动，直指中共霸权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552516/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-19.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-330.png)
+栏目记者/责任编辑：七哩香
 
+法国与美国因澳洲潜艇合约争议产生摩擦后，9月21日，法国总统马克龙与印度总理莫迪举行了电话会谈，两国领导人重申在一个开放和包容的印太地区展开合作的意愿，特别是面对中共，两国将采取“联合行动”。当天爱丽舍宫发表声明强调两国的共同主张：在中美紧张弥漫的印太地区，致力于促进地区稳定和法治，同时排除任何形式的霸权。马克龙表示，法国将持续”致力于加强印度的战略自主权，包括建立工业和科技基础，以确立两国以信任和相互尊重为基础的密切关系”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-343.png)
+印太地区现已成为全球的冲突重心，美国把印太战略作为核心要务，欧盟不甘落后出台新的印太战略。法国此时高调加强与印度的战略合作伙伴关系，是对澳洲订单损失的亡羊补牢，也是在这场遏制中共霸凌与扩张、维护全球安全的“荣誉之战”中的急起直追。
 
-
-栏目记者/责任编辑：在远方
-
-世界银行日前调查显示，国际货币基金组织现任总裁格奥尔基耶娃在世界银行担任首席执行长期间，曾施压内部员工，以提高中共国在世界银行经商环境报告的排名。《全球营商环境报告》因此丑闻已停发，世界银行委托执行调查的律师事务所报告中的一项指控说，格奥尔基耶娃曾感谢一位高层银行研究员，称对方在篡改中共国数据方面“为多边主义尽了一份力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-341.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-342.png)
-英国《经济学人》杂志9月23日发表社论，严厉谴责并呼吁格奥尔基耶娃辞职。该社论指出，格奥尔基耶娃的行为损害了国际货币基金组织守护世界经济数据的能力及信用，成为反对多边主义的人用来说明“国际机构无法抵御中国”的证据。
-
-中共以蓝金黄控制海外人士，布局已久，涉及国际各重要机构。IMF的主席为提高中共在世界银行报告中的排名亲自出面采取违法举动，沦为中共的利益代言人，只是滴水映月。
-
-据悉，美国国会众议院金融服务、国家安全和发展小组委员会的三名共和党成员近日已致函美国财政部长耶伦，要求她向国会报告财政部对该案件的审查情况。更多内幕将被揭开，中共内忧外患之际，在吸引世界投资领域将遇到更大阻力。
-
-参考链接：
-
-[https://www.dw.com/zh](https://www.dw.com/zh/imf%E6%80%BB%E8%A3%81%E5%8D%B7%E5%85%A5%E5%81%87%E9%80%A0%E4%B8%AD%E5%9B%BD%E6%95%B0%E6%8D%AE%E4%B8%91%E9%97%BB-%E9%81%AD%E8%8B%B1%E5%AA%92%E6%8A%A8%E5%87%BB%E5%BA%94%E4%B8%8B%E5%8F%B0/a-59291563)
+参考链接： [https://www.rfi.fr/cn](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210921-%E6%BD%9C%E8%89%87%E5%8D%B1%E6%9C%BA-%E9%A9%AC%E5%85%8B%E9%BE%99%E4%B8%8E%E8%8E%AB%E8%BF%AA%E9%80%9A%E8%AF%9D%E5%BC%BA%E8%B0%83%E6%B3%95%E5%8D%B0%E5%9C%A8%E5%8D%B0%E5%A4%AA%E8%81%94%E5%90%88%E8%A1%8C%E5%8A%A8)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
 
-责任编辑/终审：FoxRina
+终审：FoxRina
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-19.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-330.png)
