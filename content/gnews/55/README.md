@@ -2,27 +2,20 @@
 ---
 
 
-## 中共虚假承诺, 试图拖延恒大暴雷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552089/)
+## 台湾申请加入CPTTP次日, 中共再派战机袭扰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552144/)
 
-栏目记者/责任编辑：文扬四海
+栏目记者/责任编辑：在远方
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-9月23日，随时面临崩盘的恒大集团股票出人意料的突然强力反弹，最高涨幅超过30%！最终当天以17%的涨幅收盘。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.42.06-PM.png)
 
-本周三恒大连夜召集集团四千名高管开会，承诺将全力以赴完成各地再建项目, 并保质保量顺利交楼,同时宣布将如期支付两笔到期债务利息 。另有消息称中共当局指示地方政府要尽量减少恒大违约对当地经济的影响，特别要严防失业导致的社会性骚乱，必要时候政府可能出手干预。所以从表面上看起来，此次的股价意外回升或许与恒大及中共将要采取的救市行动有关。但文贵先生在周四直播中揭示了此次恒大回光返照的背后实质!
+台湾正式申请加入CPTPP仅一天后，9月23日，中共连续派遣24架战机侵扰台湾防空识别区。台湾军方也依照惯例，对中共战机实施了驱离及监控，中共这种无赖式袭扰几成常态。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-8.56.07-PM.png)
+CPTPP会员国包括日本、新西兰、加拿大、澳大利亚、文莱等11个国家。中共此前从未表达想要加入的意愿，却突然于9月16日抢在台湾之前， 正式向该阻止提出申请。CPTPP组织采取共识制，任何国家或经济体申请加入，必须获得每一个成员国的认可同意。尚未加入CPTPP的中共，自然无法阻止台湾的申请。只能通过武力袭扰恐吓表达不满，毫无大国姿态和尊严，完全是一副流氓嘴脸。
 
-盗国贼迫于压力，会想尽一切办法不让恒大猝死。具体方式就是想把恒大的烂摊子分解，让各部各省就地解决债务问题,但也因此将恒大顺利变成”国企”。这样就把中国的影子银行，保险，信托等几十万亿的”资金池子”盖住了。但最后恒大一定会倒，而且会倒的非常惨，许家印不会坐牢，但很可能会遭遇意外死亡。恒大事件的结局，将远远超过雷曼兄弟。
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [恒大股价反弹能否逆转颓势？北京悄悄要求各地应对“风暴”](https://www.voachinese.com/a/Evergrande-Soared-in-China-20210923/6242506.html)
-2. [2021年9月23日郭先生直播速记](https://gnews.org/zh-hans/1550418/)
-
+参考链接：[台湾申请加入CPTPP次日，24架次解放军军机扰台](https://www.voachinese.com/a/China-sends-24-fighter-jets-towards-Taiwan-in-show-of-force-20210923/6242848.html)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

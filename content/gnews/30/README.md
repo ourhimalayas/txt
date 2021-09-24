@@ -2,32 +2,38 @@
 ---
 
 
-## 英国警告涉&#8221;国安法&#8221;者勿前往与中共有引渡协议国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552303/)
+## IMF总裁卷入中共世银数据造假丑闻被呼吁辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552455/)
 
-栏目记者/责任编辑：文龙
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-19.png)
 
 
 
-自由时报消息, 英国政府9月份重新更新了对公民赴香港旅游的警示声明，提醒多项关于”港区国安法”的事项，包括国安法的45项控罪，以及涉案最高刑罚是终身监禁。该法例对香港境内或境外进行的违法活动都适用，也就是说无论涉案人是哪国国籍，中共国的执法机构同样可以对其拘留或进行引渡。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-9.19.07-PM.png)
-流亡台湾的港人李宇轩被控”勾结外国势力”案情公布后，英国政府向涉及此案的英国金融家/人权倡议者比尔·布劳德发出警告，提醒他避免前往与中国有引渡协议的国家。此前 布劳德被港府指推动针对香港政要的马格尼茨基人权法案。布劳德对此称： “香港国安法不仅针对香港人，还针对居住在香港司法管辖范围外的人”。据悉英国政府正在联络布劳德之外的其他人士，这些人也同样在港府的所谓”国安法案件”中被提及。
+栏目记者/责任编辑：在远方
 
-除此之外，8月1日生效的入境条例还修订为，香港政府可以禁止指定人士离境。此举导致澳洲、加拿大、德国、英国、美国、新西兰、法国、芬兰、荷兰及爱尔兰先后暂停了与香港的引渡协议。
-(本文仅代表作者观点)
+世界银行日前调查显示，国际货币基金组织现任总裁格奥尔基耶娃在世界银行担任首席执行长期间，曾施压内部员工，以提高中共国在世界银行经商环境报告的排名。《全球营商环境报告》因此丑闻已停发，世界银行委托执行调查的律师事务所报告中的一项指控说，格奥尔基耶娃曾感谢一位高层银行研究员，称对方在篡改中共国数据方面“为多边主义尽了一份力”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-341.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-342.png)
+英国《经济学人》杂志9月23日发表社论，严厉谴责并呼吁格奥尔基耶娃辞职。该社论指出，格奥尔基耶娃的行为损害了国际货币基金组织守护世界经济数据的能力及信用，成为反对多边主义的人用来说明“国际机构无法抵御中国”的证据。
 
-参考链接: [人權金融家曝英政府示警：別去與中國有引渡協議國家！](https://news.ltn.com.tw/news/world/breakingnews/3681770)
+中共以蓝金黄控制海外人士，布局已久，涉及国际各重要机构。IMF的主席为提高中共在世界银行报告中的排名亲自出面采取违法举动，沦为中共的利益代言人，只是滴水映月。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+据悉，美国国会众议院金融服务、国家安全和发展小组委员会的三名共和党成员近日已致函美国财政部长耶伦，要求她向国会报告财政部对该案件的审查情况。更多内幕将被揭开，中共内忧外患之际，在吸引世界投资领域将遇到更大阻力。
 
-校正/发稿：我不在这里
+参考链接：
+
+[https://www.dw.com/zh](https://www.dw.com/zh/imf%E6%80%BB%E8%A3%81%E5%8D%B7%E5%85%A5%E5%81%87%E9%80%A0%E4%B8%AD%E5%9B%BD%E6%95%B0%E6%8D%AE%E4%B8%91%E9%97%BB-%E9%81%AD%E8%8B%B1%E5%AA%92%E6%8A%A8%E5%87%BB%E5%BA%94%E4%B8%8B%E5%8F%B0/a-59291563)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+
+责任编辑/终审：FoxRina
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-19.png)

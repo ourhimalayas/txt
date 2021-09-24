@@ -2,26 +2,23 @@
 ---
 
 
-## 美议员提交PRC法案，拟将&#8221;阿富汗资金&#8221;用来抗衡中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552417/)
+## 法印强调在印太联合行动，直指中共霸权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552516/)
 
-栏目记者/责任编辑：在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-330.png)
+栏目记者/责任编辑：七哩香
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+法国与美国因澳洲潜艇合约争议产生摩擦后，9月21日，法国总统马克龙与印度总理莫迪举行了电话会谈，两国领导人重申在一个开放和包容的印太地区展开合作的意愿，特别是面对中共，两国将采取“联合行动”。当天爱丽舍宫发表声明强调两国的共同主张：在中美紧张弥漫的印太地区，致力于促进地区稳定和法治，同时排除任何形式的霸权。马克龙表示，法国将持续”致力于加强印度的战略自主权，包括建立工业和科技基础，以确立两国以信任和相互尊重为基础的密切关系”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-343.png)
+印太地区现已成为全球的冲突重心，美国把印太战略作为核心要务，欧盟不甘落后出台新的印太战略。法国此时高调加强与印度的战略合作伙伴关系，是对澳洲订单损失的亡羊补牢，也是在这场遏制中共霸凌与扩张、维护全球安全的“荣誉之战”中的急起直追。
 
-美国共和党籍联邦参议员马可·鲁比奥和众议员阿什利·辛森9月23日提出了《重视准备与竞争能力法案》，旨在把原计划用于阿富汗的政府拨款，转移到与中共国展开的大国竞争抗衡上。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P4.002.jpeg)
-这部法案的简称是PRC，恰好与中共国的英语缩写相同。法案中所述资金款项，原本是用于维持美国在阿富汗的军事存在, 以及对阿富汗政府的援助 。法案提议将这部分资金转投到三个方面：一是国防采购，以支持国内制造业以及国家安全产业供应链；二是国防高级研究计划, 以加强美国的全球优势；三是用于海军舰船制造。
+参考链接： [https://www.rfi.fr/cn](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210921-%E6%BD%9C%E8%89%87%E5%8D%B1%E6%9C%BA-%E9%A9%AC%E5%85%8B%E9%BE%99%E4%B8%8E%E8%8E%AB%E8%BF%AA%E9%80%9A%E8%AF%9D%E5%BC%BA%E8%B0%83%E6%B3%95%E5%8D%B0%E5%9C%A8%E5%8D%B0%E5%A4%AA%E8%81%94%E5%90%88%E8%A1%8C%E5%8A%A8)
 
-该法案内容都与中美贸易战和两国军事竞争息息相关，表明这些国会议员对中共采取强硬立场的态度,  美国不能将川普政府任期内全面对抗中共所取得的进展付诸东流，要持续加强美国在印太地区对抗中共的军事能力。
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
 
-参考链接： [美共和党议员提出PRC法案，拟把以前准备用于阿富汗的资金用来对抗中国](https://www.voachinese.com/a/Rubio-hinson-Afghanistan-china-act-20210923/6243665.html)
+终审：FoxRina
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审: 文龙
-校正/发稿：我不在这里
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,4 +26,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-330.png)
