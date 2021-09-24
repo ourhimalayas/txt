@@ -2,43 +2,33 @@
 ---
 
 
-## 美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550804/)
+## 华大基因“火眼”覆盖全球
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550801/)
 
 栏目记者/责任编辑：文一
 
-
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)
 
+9月22日，华大基因官方微博上发出中秋祝福，并且提到：华大沙特“火眼”项目团队已协助沙方建成6座“火眼”实验室，已有7批华大队伍远赴沙特。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture4-2.jpg)
+华大火眼实验室是由华大基因和易托邦联合设计，华大基因兴建的P2生物实验室，因疫情各国急需新冠病毒核酸检测而获得全球大量兴建的机会。根据火眼官方信息：目前华大已在全球17个国家和地区，部署了58座火眼实验室，覆盖了五大洲。今年五月份华大新闻称，华大基因新冠检测产品已覆盖全球超过180个国家和地区，海外累计运营“火眼”实验室超过80个，分布在全球近30个国家和地区。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture1-2.jpg)
-9月23日Gateway Pundit报道- 美籍非裔团体将在亚特兰大CDC再次进行抗议活动以支持歌手妮琪·米娜和反对福奇强制接种疫苗，并邀请川普支持者加入。 这个被称为”周五福奇日”的抗议活动于本周五下午5点至7点举行，并将每周进行直至11月22日。 歌手米娜因同意塔克-卡尔森的观点，反对强制接种而受到主媒攻击 此抗议团体负责人也因发布疫苗不良反应事件被脸书删帖。他质疑为什么所有社会主义组织在推崇疫苗，为什么自己的身体自己不能做主，为此他呼吁美国民众把政治分歧放一边，共同反对强制疫苗接种。当下疫苗不良反应案例层出不穷，不同民族和利益团体日益被常识和良知唤醒，为自己 为他人 更为孩子们的将来发声反抗。
+爆料革命多次提醒世界，华大基因的中共军方背景，及其长期通过医疗设备收集世界人口基因数据的秘密行动。利用新冠疫情，华大火眼已基本完成中共的全球部署计划，黑暗力量将如何利用中共窃取的全球基因数据？世界各族裔人民都已身处极大的危险之中。
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](https://weibo.com/7548766271/KzohVCN7g)
-2. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](https://www.genomics.cn/huoyan/index.aspx)
-3. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](https://zh.wikipedia.org/wiki/%E7%81%AB%E7%9C%BC%E5%AF%A6%E9%A9%97%E5%AE%A4)
-4. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](http://www.sz.gov.cn/szzt2010/yqfk2020/szzxd/content/post_6761098.html)
-5 [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](https://sz.chinadaily.com.cn/a/202004/02/WS5e85a942a3107bb6b57aa6fb.html)
-6. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](http://hb.cri.cn/n/20200423/b3dce378-ec5e-ae90-5c7f-4e965e961400.html)
-7. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](http://cn.brnn.com/n3/2020/0715/c414912-9710615.html)
-8. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](https://t.cj.sina.com.cn/articles/view/7517400647/1c0126e47059012g48?from=tech&amp;wm=3049_0032)
-9. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](http://www.wehdz.gov.cn/ggxw/qydt/202005/t20200501_1213506.shtml)
-10. [美籍非裔团体支持歌手妮琪·米娜 反对福奇强制接种 并邀请川普支持者加入](http://www.nbd.com.cn/articles/2021-05-10/1739942.html)
+参考链接：[华大基因“火眼”覆盖全球](https://www.thegatewaypundit.com/2021/09/exclusive-group-protested-cdc-support-nicki-minaj-invites-trump-supporters-join-demonstration-friday-cdc-headquarters-says-cdc-employees-threw-things/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
 
-终审编辑：FoxRina
+终审编辑：QMAY
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)

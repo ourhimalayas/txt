@@ -2,45 +2,44 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1551017/)
+## 英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1550797/)
 
-前国务卿迈克·蓬佩奥： 拜登政府的强制疫苗接种是一种滥用权力。
-
-
-
-> The Biden Administration's vaccine mandate is an abuse of power.
-> — Mike Pompeo (@mikepompeo) [September 23, 2021](https://twitter.com/mikepompeo/status/1441082829593452558?ref_src=twsrc%5Etfw)
+栏目记者/责任编辑：AsG諾雅
 
 
 
-众议院外交委员会共和党领袖： 麦考尔关于总统气候问题特使约翰·克里的声明，他似乎认为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的种族灭绝不如气候变化那么重要，他说：“生活总是充满艰难的选择……但首先，这个星球必须得到保护.”大意：特使约翰克里对种族灭绝的残忍回应与美国的价值观和利益背道而驰，我强烈敦促他立即收回。美国绝不能无视暴行和种族灭绝以换取中共在气候问题上的承诺。我呼吁布林肯国务卿全面报告克里特使代表美国对中国做出的承诺。 【附声明全文】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)
 
 
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) on Special Presidential Envoy for Climate [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw)'s statement where he appears to dismiss the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s genocide as not as important as climate change, saying, “life is always full of tough choices…but first and foremost, this planet must be protected.”⬇️ [pic.twitter.com/tk915pUKnB](https://t.co/tk915pUKnB)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [September 23, 2021](https://twitter.com/HouseForeignGOP/status/1441141359394516994?ref_src=twsrc%5Etfw)
+9月23日，人权倡议者、英国富商比尔-布劳德表示，他和其他批评中共镇压香港、主张对中共和香港官员进行马格尼茨基法案制裁的活动人士收到了英国外交及国际协调事务部的警示，让他们避免前往与中共国有引渡协议的国家，否则将有可能被拘留并移送到中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/英国警示批评港共政府的人士-避免前往与中共国有引渡协议的国家.jpg)
+英国外交部官网上已经列出相关旅游警告，提醒英国公民港共国安法的最高刑罚是终身监禁，且适用于在香港境内和境外进行的活动，实际上这可能包括在英国进行的活动。
 
+中共利用国安法大肆打击香港的民主运动和拘捕持异见人士，还声称港区国安法拥有普遍管辖权。截至2019年8月，中共与包含法国、意大利、西班牙、葡萄牙、韩国等民主国家以及伊朗等专制国家大约60国签署了引渡协议，香港则因英国治下建立的良好法治环境得到认可，而更多地与西方法治民主国家有引渡协议。
 
+去年6月港共国安法出台后，美澳加英德法等九个西方国家相继终止了与香港的引渡协议。 英国发出相关警告表示中共在香港的暴行一直在其关注中，且日益让人警觉，香港的民主法治环境已经完全被中共抹杀。
 
-众议员迈克·加拉格尔新闻办公室： 深入研究小组(Drastic Research) 发布的新文件显示，皮特·达渣客和生态健康联盟已申请了资金，以便允许他们进一步修改冠状病毒刺突蛋白并找到潜在的弗林蛋白酶切位点。 众议员加拉格尔解释了为什么这如此重要。【在所附视频中，加拉格尔议员还讲到了皮特·达渣客和福奇与武汉病毒所及石正丽合作，对病毒进行功能增强性研究】
+（本文仅代表作者观点）
 
+参考链接：
+1. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://www.rfi.fr/cn/%E8%8B%B1%E8%AD%A6%E5%91%8A%E6%89%B9%E8%AF%84%E9%A6%99%E6%B8%AF%E4%BA%BA%E5%A3%AB-%E9%81%BF%E5%85%8D%E5%89%8D%E5%BE%80%E4%B8%8E%E4%B8%AD%E5%9B%BD%E6%9C%89%E5%BC%95%E6%B8%A1%E5%8D%8F%E8%AE%AE%E5%9B%BD%E5%AE%B6%20https://www.ntdtv.com/gb/2021/09/23/a103225206.html)
+2. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://www.rfi.fr/cn/%E8%8B%B1%E8%AD%A6%E5%91%8A%E6%89%B9%E8%AF%84%E9%A6%99%E6%B8%AF%E4%BA%BA%E5%A3%AB-%E9%81%BF%E5%85%8D%E5%89%8D%E5%BE%80%E4%B8%8E%E4%B8%AD%E5%9B%BD%E6%9C%89%E5%BC%95%E6%B8%A1%E5%8D%8F%E8%AE%AE%E5%9B%BD%E5%AE%B6%20https://www.ntdtv.com/gb/2021/09/23/a103225206.html)
+3. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://www.gov.uk/foreign-travel-advice/hong-kong)
+4. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://qiaoyi.org/xiaotieshiyindu202007.html)
+5. [英国警示批评港共政府的人士 避免前往与中共国有引渡协议的国家](https://zhuanlan.zhihu.com/p/163236412)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
 
-> New documents released by Drastic Research show Peter Daszak and the EcoHealth Alliance had applied for funds that would allow them to further modify coronavirus spike proteins and find potential furin cleavage sites.
-> 
-> Rep. Gallagher explains why that's so important. [pic.twitter.com/6aEPyuW7Go](https://t.co/6aEPyuW7Go)
-> — Rep. Gallagher Press Office (@RepGallagher) [September 23, 2021](https://twitter.com/RepGallagher/status/1441088973565091849?ref_src=twsrc%5Etfw)
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-众议员玛乔丽·泰勒·格林： 国会功能太失调，我今晚的特殊要求被更改了3次，从1小时缩短到30分钟。 这些人要在现实社会中从事普通工作一定被淘汰并被解雇。 敬请期待绿色新政为何服务于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的第二部分，即将推出。
-
-
-
-> Congress is so dysfunctional that my special order tonight was changed three times today and cut in half from 1 hour to 30 minutes.
-> 
-> These people would fail in the real world and be fired from a normal job.
-> 
-> So expect part 2 of why the Green New Deal serves China, coming soon. [pic.twitter.com/yts6L3xHCt](https://t.co/yts6L3xHCt)
-> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [September 23, 2021](https://twitter.com/mtgreenee/status/1440852311337701379?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-328.png)

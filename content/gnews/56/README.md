@@ -2,71 +2,28 @@
 ---
 
 
-## 向SEC索要投资款程序
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1550914/)
+## 中共国内大面积限电，背后原因是什么？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1550831/)
 
-作者：纽约香草山法务部 – 铲共骑侠
+撰稿：自由战士
+![](https://assets.gnews.org/wp-content/uploads/2021/09/04AD0FA7-092F-4331-B49F-ABC0E771616E.jpeg)
+（图片来自网络）
 
+中国广东、安徽、江苏、浙江及山东，至少五省已经实施限电、停产或减产措施。由本周三（22日）至下个月落实限电措施。广东东莞每周停电一次。其余省份均按高层指令每周停电一至两天，有企业索性提前休假，直至十一长假之后再复产。
 
+邪恶中共的这波神操作，让墙内的好多企业都雪上加霜，因为由于疫情原因订单都在持续减少，现在大部分企业接到的订单基本都是入不敷出的情况，但是每个企业家心里都是感觉熬过这个冬天马上会迎来春天，但是中共的邪恶又有多少人能够看透呢？这波持续限电，就类似彻底拔断了病人的氧气管，让你彻底放弃治疗了。我们可以在如下几方面分析一下：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+首先，我们知道目前来看随着秋天来临，民用电不是最高峰，而且企业的订单数量比起往年同期都是减少的，不存在用电紧张的情况，这样类似一些地区打出用电紧张的借口来限制企业和个人用电肯定另有所图，但是这个理直气壮的撒谎欺骗百姓，确实是中共的一贯做法。
 
+其次，我们知道目前邪恶中共国的外汇储备只有几千亿美金，郭先生在直播中也说到目前的这个外汇储备连他们这些达官贵人和军警特县的吃喝拉撒都满足不了。怎么会有更多的钱去进口煤炭来发电呢。底层百姓和中小企业的死活，不在邪恶中共的考虑范围内。另外前期的限制澳洲煤炭的进口，看似过足了口炮隐，但是随着时间的验证，最后被砸的是自己的脚。
 
+再者，我们可以看到目前被限制的地区最严重的就是珠三角和江浙地区，这些地区的是为中共创造外汇的重要地区，但是现在这个阶段进行拉闸限电，中共有另外的用意，随着圣诞节的临近，大家知道全球的圣诞用品几乎全部是来自中共控制的14亿奴隶的手里。让全球人民在遭受中共病毒长时间的肆虐后，在即圣诞节想缓解一下心里压力的时候，让全世界人都过一个无比凄凉的圣诞，把每个的心里防线彻底摧毁。达到继续袭击全人类的目的。（备注：在中共国内走海运的物流周期一般在40-50天才能达到世界各地）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_2.png)
+最后，中共政府借着节排环保名义，对墙内的所有资源进行一次彻底的统一控制，让一些中小企业主彻底变成底层百姓，随后只有两种阶级，中共邪恶魔鬼派；被奴役的底层民众派。资源可以统一分配。制造人尸丸，让14亿奴隶彻底臣服于邪恶中共，心甘情愿的做他们的炮灰。为后面迎来的全球正义力量的清算准备最后的挣扎。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_3.png)
+综上，我们看到中共的各种邪恶的做法其实都是在维护他们的这个摇摇欲坠的邪恶统治，我们只有紧跟爆料革命和新中国联邦彻底的把这个邪恶组织摧毁，才能解决中国14亿和全世界70亿人民。否则人类只会走向灭亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_4.png)
+（本文只代表个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_5.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_6.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_01.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_02.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_03.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_04.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_05.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_06.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_07.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_08.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_09.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_10.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_11.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_12.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_13.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_How-to-contact-a-lawmaker-for-GTV-investment_铲共骑侠-1_Page_14.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0923_顺序_After-SEC-decision_铲共骑侠_Page_7.png)
-
-***发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+*编辑：Cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
