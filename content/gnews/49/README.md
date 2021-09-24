@@ -2,21 +2,22 @@
 ---
 
 
-## 美FDA授权为65岁以上高龄人群接种疫苗加强针
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1550728/)
+## 樱花灭共诗——人月圆•中秋之夜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1550739/)
 
-#### 撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2021/09/fb7db9d72ee4ceb5.png)
-据《大纪元》9月23日讯，近日，美国FDA疫苗咨询委员会通过投票支持为65岁及以上老人和易受COVID-19感染的人群接种加强疫苗。
+#### 作者：东京樱花团/藤田村野
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+玉盘皎洁东方挂，还是当年画。
 
-美国科学界以及政府内部对当前接种第三剂疫苗是否合适一直存在争议。白宫先前已计划为所有65岁及以上的老人注射辉瑞疫苗和莫德纳（Moderna）疫苗的加强剂，但后来又缩减了计划，暂时仅限于辉瑞疫苗的加强针。上周五，FDA的一个疫苗咨询委员会以16:2的投票结果，建议FDA不要批准为16岁及以上的普通人群注射辉瑞疫苗加强剂。但在另一项投票中，该委员会支持为65岁及以上的老人和易受COVID-19感染的人群接种加强疫苗。
+太平山顶，亲朋好友，同赏佳话。
 
-郭文贵先生警示世界，中共病毒和疫苗就是“子母弹”，疫苗不仅不会防毒解毒，还会导致各种疫苗灾难。毋庸置疑，若该授权得以实施，美国的疫苗灾难必将进一步扩大。
+俱烟消散，天涯浪迹，灵损江下。
 
-[信息来源](https://www.epochtimes.com/gb/21/9/23/n13253976.htm)
+月圆人缺香江泪，梦萦魂牵夜。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-113.jpg)
+(本文只代表作者观点，与GNews网站无关)
 
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)

@@ -28,22 +28,22 @@
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国际金融的垄断现状及未来的数字货币](/content/gnews/6/README.md)
+### [9/23/2021 七哥直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵直播摘要和音频2021.9.26: 疫苗此生灾难](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [相信上天的力量 希望中國人不要陷入苦難的歷史輪回](/content/gnews/7/README.md)
+### [国际金融的垄断现状及未来的数字货币](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年9月23日郭先生直播速记](/content/gnews/8/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [对未接种疫苗的美国人来说，国际旅行将变得更加复杂](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（一）](/content/gnews/9/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（一）](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [《疫苗死亡报告》：世界各地疫苗致死数以万计 制造商却不承担任何责任](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [日本医院群聚感染 25人中24人完成2剂接种](/content/gnews/11/README.md)
+### [《疫苗死亡报告》：世界各地疫苗致死数以万计 制造商却不承担任何责任](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
 ### [FDA授权为65岁及以上人群提供辉瑞新冠疫苗加强针](/content/gnews/12/README.md)
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花灭共诗——深谷会盟（新韵）](/content/gnews/47/README.md)
+### [G时评：那些被人忽视的超限战](/content/gnews/47/README.md)
+ ` GISELLE`
+
+### [樱花灭共诗——深谷会盟（新韵）](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——人月圆•中秋之夜](/content/gnews/48/README.md)
+### [樱花灭共诗——人月圆•中秋之夜](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美FDA授权为65岁以上高龄人群接种疫苗加强针](/content/gnews/49/README.md)
+### [美FDA授权为65岁以上高龄人群接种疫苗加强针](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日外相对台湾加入TPP表示欢迎](/content/gnews/50/README.md)
+### [日外相对台湾加入TPP表示欢迎](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [以灭共为核心的全球正邪之战已到至暗时刻](/content/gnews/51/README.md)
+### [以灭共为核心的全球正邪之战已到至暗时刻](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共计划经济下的“能耗双控”](/content/gnews/52/README.md)
+### [中共计划经济下的“能耗双控”](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚维州反对党领袖批评州长安德鲁斯在大流行期间散布恐惧而不是希望](/content/gnews/53/README.md)
+### [日本医院群聚感染 25人中24人完成2剂接种](/content/gnews/54/README.md)
+ ` 日本东京方舟农场`
+
+### [澳大利亚维州反对党领袖批评州长安德鲁斯在大流行期间散布恐惧而不是希望](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/54/README.md)
- ` 英喜-粵語組`
-
-### [CCP百年百罪 第二十二集（90 – 92罪）](/content/gnews/55/README.md)
+### [相信上天的力量 希望中國人不要陷入苦難的歷史輪回](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [串珠392:很多做抗体依赖性增强实验的动物都死了](/content/gnews/56/README.md)
- ` 郭爆料串珠`
-
-### [串珠391:宁将孩儿藏鼠洞，也不让他打疫苗！](/content/gnews/57/README.md)
- ` 郭爆料串珠`
+### [9/23/21 香港快讯 邓炳强警告勿趁「双十」分裂国家23 条重点规管窃国家机密、间谍活动](/content/gnews/57/README.md)
+ ` 英喜-粵語組`
 
