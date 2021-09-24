@@ -2,19 +2,21 @@
 ---
 
 
-## 北京反对四方峰会
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1551686/)
+## GT Online: Wang Like Involved in an &#8221; Unusual&#8221; Case Related to Xi
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1552023/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09243.jpg)
-中（共）国开始感到被困在了自己的后院：力量开始集结试图遏制它在印太地区越来越积极地扩张。在华盛顿，拜登总统在美国将与澳大利亚、印度和日本聚集在一起举行四边安全对话联盟的第一次峰会，与这些近年来不得不与中（共）国打交道的民主国家共同讨论疫苗、如何确保半导体供应，但最重要的是将讨论新的地缘政治情景和军事平衡。
+Written by: Potato
 
-北京宣称这是冷战思维，是一个注定要失败的反华集团。中（共）国驻联合国大使在人权理事会发言时敦促关注“殖民主义和非法军事干预遗留下来的负面影响”。习近平周二在给联合国的信息中说到：中（共）国从未侵略过其他国家并表示也从未试图强加他们的霸权。
+Proofread by April on Earth
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-24-190248.jpg)      Image Source：Sina
+According to Sina news on September 22 2021, Wang Like,  the former secretary of the Jiangsu Political and Legal Committee, who voluntarily surrendered last year, was expelled from his party membership and public office.
 
-反对任何对海洋秩序的挑战，任何改变现状的企图–这是拜登、莫里森、莫迪和辞职的苏加在正式会议前发表的声明，今天的现状受到中（共）国影响力的威胁，并在世界蔓延。北京已经在准备反击，它要求加入美国放弃的 CPPTP（跨太平洋伙伴关系），并试图阻止台湾加入。
+Although Wang Like voluntarily surrendered to the police, during the Central Commission for Discipline Inspection and State Supervision Committee briefing, it does not indicate the fact that he surrendered voluntarily and gave a truthful testimony of his disciplinary problems.
 
-免责申明：本文只代表译者观点，与Gnews无关
+The briefing pointed out that Wang Like has serious violations of the party’s political discipline, organizational discipline, integrity discipline, and life discipline, constituting a serious job violation and suspected of bribery, and after the 18th Party Congress the violations still did not stop, thus should be dealt with seriously.
 
-原文链接：[https://www.repubblica.it/esteri/2021/09/23/news/pechino\_contro\_il\_summit\_quad\_no\_al\_ritorno\_del\_colonialismo\_-319114461/](https://www.repubblica.it/esteri/2021/09/23/news/pechino_contro_il_summit_quad_no_al_ritorno_del_colonialismo_-319114461/)
+The news mentioned that previous senior CCP officials who voluntarily surrendered were treated in leniency, but Wang Like was an exceptional case, his problems must be very unusual.
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+Mr. Miles Guo previously mentioned that Wang Like is one of Meng Jianzhu’s three swordsmen, just like Sun Lijun, they are “mafia” in China. Wang Like, together with Sun Lijun and Wang Lijun, has a deeper impact on China politics than what “Gang of Four” did during the Culture Revolution. Wang Like and Luo Wenjin (another high-ranking Police officer from Jiangsu) who dared to murder Xi but eventually failed, are definitely treated in an extremely serious way inside the CCP. So this is a very “unusual” case in CCP history for sure.
+
+[**Source**](https://news.sina.cn/sh/2021-09-22/detail-iktzqtyt7383616.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)

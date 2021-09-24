@@ -2,27 +2,15 @@
 ---
 
 
-## 文革笑话 （一）
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1551807/)
+## 2021年9月23日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1551920/)
 
-**摘录：日本东京方舟农场 拾贝汉**
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-十年文革充斥着荒谬与凶残，灾难与无奈，悲哀流不出泪，滑稽笑不出声。人不人，鬼不鬼，有话不能说，有脑不可思，统统咽下肚，灌入茅屎坑。还有点良知的，不愿同流合污的，只能选择冷漠麻木，设法自闭。
-文革出现的荒唐事物，罄竹难书。下面摘录自香港崑崙制作公司出版、刘济昆先生编撰的《文革大笑话》，供读者赏阅。
+9/23/2021 Miles Guo: With fluke mentality, the world’s evil forces are making viruses in an attempt to determine the fate of all mankind; The Evergrande incident will result in the collapse of the financial systems of the Communist China and the world. After that, the CCP will release viruses to the world in large quantities; The COVID vaccine disasters will start in November and December and will last until the next March or April; Xi wants Evergrande to last until after the next year’s 20th Party Congress before it collapses.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/download-7.jpg)图片来自于网络
+9/23/2021 文贵直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运；恒大事件将导致国内和国际金融系统大崩溃，而后中共将在全球大量放毒；疫苗灾难将从今年11、12月持续到明年3、4月；习想让恒大撑到明年二十大以后再崩溃
 
-《牛马改名》
-红卫兵“破四旧”（破除旧思想、旧文化、旧风俗、旧习惯）时期，重庆市第一中学一个出身于“民族资本家”家庭的少女牛艳丽，嫌自己的名字十分资产阶级，就改名为“牛跟党”，以示同旧家族决裂，永远跟党走。她到派出所登记新名字后，又向全班同学宣布这件事。
-第二天，校园出现了一张大字报：“牛艳丽反党罪该万死！”
-大字报说，一向以来，只有无产阶级革命战士跟党走，没听过牛跟党走的。牛是牲畜，怎么可以与伟大的、光荣的、正确的党混为一谈。牛艳丽侮辱革命群众、攻击党的罪行不是昭然若揭吗？
-大字报署名“马革命”。
-第三天，又有一张大字报反对马革命。大字报说：“马光宗同学改名马革命，实际上和牛艳丽改名牛跟党同出一辙。马也是牲畜，也能革命吗？”
-马革命一点也不服，又贴了一张大字报说：“马克思不是姓马吗？如果要论罪，反对我改名的人比牛艳丽更可恶，实际上是反对马克思！”
-马革命贴了大字报后，洋洋得意，昂首挺胸。
+[【2021年9月23日】文贵先生盖特原文](https://gettr.com/post/pc13q34513)
 
-*注：本文仅代表作者观点，与 Gnews无关*
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**喜联盟Gnews编辑部**

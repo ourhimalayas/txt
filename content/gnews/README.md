@@ -85,46 +85,46 @@
 ### [政府不想让人们知道中共病毒疫苗的真相（完整版）](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [推特推出比特币打赏功能](/content/gnews/25/README.md)
+### [中共承认楼市“风光”不再 但仍粉饰“太平”欺骗民众](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国会偷偷提出授权美联储发行数字货币的修正案](/content/gnews/26/README.md)
+### [推特推出比特币打赏功能](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大金融核弹令世界惶恐，中共布局欲延缓恒大灭亡](/content/gnews/27/README.md)
+### [美国会偷偷提出授权美联储发行数字货币的修正案](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大金融核弹令世界惶恐，中共布局欲延缓恒大灭亡](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生透露，西方正在酝酿反华运动](/content/gnews/28/README.md)
+### [郭文贵先生透露，西方正在酝酿反华运动](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [中共将扩大生化战，释放“热毒”](/content/gnews/29/README.md)
+### [中共将扩大生化战，释放“热毒”](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [德国政府将取消未接种者的隔离误工补偿，变相强制接种](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [秘翻在线：日本外相对台湾申请加入CPTPP表示欢迎](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [恒大“雷曼时刻”显现：中共楼市车市各种梗断开始暴露](/content/gnews/31/README.md)
+### [GT Online: Wang Like Involved in an &#8221; Unusual&#8221; Case Related to Xi](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：主动投案的王立科“问题”不寻常](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大“雷曼时刻”显现：中共楼市车市各种梗断开始暴露](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京反对四方峰会](/content/gnews/32/README.md)
+### [北京反对四方峰会](/content/gnews/35/README.md)
  ` Charlie`
 
-### [四国峰会的话题之一：半导体](/content/gnews/33/README.md)
+### [四国峰会的话题之一：半导体](/content/gnews/36/README.md)
  ` Charlie`
 
-### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/34/README.md)
+### [拜登承诺与欧盟建立基本伙伴关系](/content/gnews/37/README.md)
  ` Charlie`
 
-### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/36/README.md)
- ` wenwu`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/37/README.md)
- ` wenwu`
-
-### [DC大中华时事：新冠疫苗加强针中共多地开打！三省已官宣，重点人群优先](/content/gnews/38/README.md)
+### [币圈新闻动态：HCN上市时间会是在10月](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线：多地停产限电对中共国民生的影响](/content/gnews/39/README.md)
@@ -151,36 +151,36 @@
 ### [秘翻在线：中共决定停止海外煤电项目是否示好美方以求和？](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [救救孩子！日本政府已决定将疫苗接种对象降至16岁](/content/gnews/47/README.md)
+### [2021年9月23日 文贵先生盖特 7](/content/gnews/47/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月23日 文贵先生盖特 6](/content/gnews/48/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [注射体内的毒疫苗，如何召回？](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月23日 文贵先生盖特 4](/content/gnews/48/README.md)
+### [2021年9月23日 文贵先生盖特 5](/content/gnews/50/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [国际要闻汇编](/content/gnews/49/README.md)
+### [救救孩子！日本政府已决定将疫苗接种对象降至16岁](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月23日 文贵先生盖特 3](/content/gnews/50/README.md)
+### [2021年9月23日 文贵先生盖特 4](/content/gnews/52/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [墙内要闻汇编](/content/gnews/51/README.md)
+### [国际要闻汇编](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年9月23日 文贵先生盖特 2](/content/gnews/52/README.md)
+### [2021年9月23日 文贵先生盖特 3](/content/gnews/54/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月23日 文贵先生盖特 1](/content/gnews/53/README.md)
+### [墙内要闻汇编](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年9月23日 文贵先生盖特 2](/content/gnews/56/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [IMEC：不会在敏感技术上与中共合作](/content/gnews/54/README.md)
- ` 日本东京方舟农场`
-
-### [文革笑话 （二）](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
-
-### [文革笑话 （一）](/content/gnews/56/README.md)
- ` 日本东京方舟农场`
-
-### [动力媒价格狂涨,中共国多省拉闸限电](/content/gnews/57/README.md)
- ` 澳喜农场`
+### [2021年9月23日 文贵先生盖特 1](/content/gnews/57/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
