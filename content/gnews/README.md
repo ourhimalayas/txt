@@ -46,14 +46,14 @@
 ### [文雍漫谈：假科学之名](/content/gnews/11/README.md)
  ` 文雍`
 
-### [“国家审计”报告发布中揭多米尼数据陷大麻烦](/content/gnews/12/README.md)
+### [主流媒体颠倒黑白报道“国家审计”报告的公布](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [“国家审计”报告发布中已现重大选票问题](/content/gnews/13/README.md)
+### [“国家审计”报告发布中揭多米尼数据陷大麻烦](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [维和与镇压：中共带给全世界什么样的“共同命运”？](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [“国家审计”报告发布中已现重大选票问题](/content/gnews/14/README.md)
+ ` HimalayaRussia`
 
 ### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -85,47 +85,47 @@
 ### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/24/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [《我是音雄》第二季第五期 欧洲专场 节目预告](/content/gnews/25/README.md)
- ` 我是音雄`
+### [郭文贵：共军携带核武扰台 实现三个第一](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
 
-### [《我是音雄》第二季第四期首场复赛花絮·回顾](/content/gnews/26/README.md)
- ` 我是音雄`
-
-### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/27/README.md)
+### [杰森·米勒在英法两国推广盖特](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [黑暗降临 全世界即将掀起反华浪潮](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
+### [以色列将禁止没有绿色通行证的教师进入学校](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [原材料价格上涨，中共国电力紧张](/content/gnews/29/README.md)
- ` GTV新闻访谈`
+### [《我是音雄》第二季第五期 欧洲专场 节目预告](/content/gnews/28/README.md)
+ ` 我是音雄`
 
-### [菲律宾官员提议民众随身佩戴接种卡](/content/gnews/30/README.md)
- ` GTV新闻访谈`
+### [《我是音雄》第二季第四期首场复赛花絮·回顾](/content/gnews/29/README.md)
+ ` 我是音雄`
 
-### [报道：恒大崩盘后会引起中共国社会动荡](/content/gnews/31/README.md)
+### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [雅典娜时报-第062期](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [报道：恒大崩盘后会引起中共国社会动荡](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [布林肯会晤东盟外长拟出台新印太战略](/content/gnews/32/README.md)
+### [布林肯会晤东盟外长拟出台新印太战略](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [美众院通过《国防授权法》 两项修正案剑指中共国人权问题](/content/gnews/33/README.md)
+### [美众院通过《国防授权法》 两项修正案剑指中共国人权问题](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [西媒头条 — 第73期](/content/gnews/34/README.md)
+### [西媒头条 — 第73期](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点0924](/content/gnews/35/README.md)
+### [DC每日热点0924](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/36/README.md)
+### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/37/README.md)
  ` wenwu`
 
-### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/37/README.md)
+### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [推特将台湾割让给中共](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
 
 ### [美国人正在采取行动以应对疫苗强制令](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

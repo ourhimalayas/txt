@@ -2,19 +2,18 @@
 ---
 
 
-## 孟晚舟预计今天在美国法庭认罪,有望被释放
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553016/)
+## 以色列将禁止没有绿色通行证的教师进入学校
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553254/)
 
-撰稿：西枫westca
+#### 撰稿：zzballack
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-22.jpg)图片来源：以色列时报
+据布雷特巴特新闻网（Breitbart News）9月24日报道，以色列卫生部9月23日要求学校校长从10月3日起禁止没有绿色通行证的教师进入学校，也不允许他们进行远程教学，在他们停职期间拒绝给其发放任何薪水。绿色通行证用于证明人们已经从中共病毒中康复、已接种了中共病毒疫苗，或者最近的核酸检测结果为阴性。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/merlin_154565964_a4a7426a-04b6-4d56-bbe9-65404dda4310-master1050.jpg)图片来源：cn.nytimes.com
-据加拿大CTV新闻报道， 孟晚舟有望今天以视频方式在美国纽约联邦法院出庭，在美国对她提起的诉讼中认罪。美国司法部在一份周五记录在案的信中表示 将出庭解决“对此事对被告的指控的决议”。
+中学教师协会主席冉·埃雷兹 (Ran Erez)说，虽然他支持禁止未接种疫苗的教师进入学校的想法，但他反对拒绝给教师发工资。“有许多工作可以交给在家办公的老师，例如为被隔离的学生提供数小时的远程辅导或者Zoom在线课程。教授不应立即受到惩罚，而是给予另一种选择。”据以色列《国土报》(Haaretz)报道，埃雷兹已向高等法院提出申请，要求将同样的规则用于12岁以上未接种疫苗的学生。
 
-孟晚舟自2018年12月在温哥华机场因美国的引渡请求而被捕。作为认罪协议的一部分，孟晚舟可能会承认一些不法行为，如银行欺诈案并被处以罚款。如果纽约法院接受这笔交易，对孟的引渡程序可能会终止。孟晚舟有望最早于今天解除软禁，并使她能够离开加拿大。
+高中校长协会主席梅纳什·勒维（Menashe Levy）说：”拒绝接种疫苗或核酸测试的教师不能从事教育工作。”但他强调，这类教师的数量非常少。
 
-自孟晚舟被禁，中共国则抓捕两名加拿大人，被拘留逾1000天。 中共政府以间谍罪指控他们，其中一人已被判处11年监禁。曾在中共国担任加拿大外交官的Colin Robertson说，“晚些时候我们可能会看到这两个Michael 被驱除回加拿大。这将是一场涉及加拿大的谈判，但主要是美国和中共国之间的谈判。”
+另外，由于以色列12岁以下儿童没有资格接种疫苗，他们需要在家里进行核酸检测，其父母被要求签署一份确认检测结果为阴性的文件。
 
-**新闻来源：**
-
-[https://www.cbc.ca/news/politics/meng-wanzhou-us-court-1.6188093](https://www.cbc.ca/news/politics/meng-wanzhou-us-court-1.6188093)
+新闻来源：[Israel Bars School Entry to Unvaccinated, Untested Teachers, Denies Pay](https://www.breitbart.com/middle-east/2021/09/24/israel-bars-entry-to-unvaccinated-untested-teachers-into-schools-denies-pay/)
