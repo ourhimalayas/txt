@@ -2,111 +2,45 @@
 ---
 
 
-## 短视频：疫苗正在造成损害，人民亟待摆脱控制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1554094/)
+## 爆料革命战友守望相助——英喜在行动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1554276/)
 
-#### 翻译：Ping
-校对：枳实
-字幕剪辑：蛮吉
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-32.png)
-图片来源：Youtube Hans Winand
+作者：英国伦敦喜庄园 仙女儿-文善
 
-劳伦斯·帕列夫斯基博士（Dr Larry Palevsky）是纽约一位资深儿科医生，专门研究儿童健康和疾病。
+2021年9月25日
+[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/a39f0a89-cea2-4416-871e-28f34ea08f87.png?asset_id=b41a65f8-99a3-49d2-8c25-e9aca9d9325d&amp;img_etag=%222a920e99c3becaf7bd8ec095535beb44%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/a39f0a89-cea2-4416-871e-28f34ea08f87.png?asset_id=b41a65f8-99a3-49d2-8c25-e9aca9d9325d&amp;img_etag=%222a920e99c3becaf7bd8ec095535beb44%22&amp;size=1024)
+昨日（24/09/2021），CCP病毒在英国新增病例35623人，死亡人数180人。累计感染人数高达757万人，累计死亡人数逾13.6万人。对于一个总人口约为6600万人的英国，这些与CCP病毒相关的数据未免过于触目惊心了，这些冰冷的数字背后对应的都是一个个鲜活的生命与忍受痛苦的家庭。这些数字意味着每10位常住人口中就有1位遭遇过CCP病毒的侵害，每500位常住人口中就有1位被CCP病毒夺走了生命。病毒仍在继续，然而，更加糟糕的疫苗灾害才刚刚开始。
+[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/8d2a3839-f690-46c3-aeb3-0cecd2d195f2.png?asset_id=7ca732fe-9f8f-488b-bdfa-fbba1cd1e81f&amp;img_etag=%2220b8d3b7da212f7522a85fb0fd956e22%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/8d2a3839-f690-46c3-aeb3-0cecd2d195f2.png?asset_id=7ca732fe-9f8f-488b-bdfa-fbba1cd1e81f&amp;img_etag=%2220b8d3b7da212f7522a85fb0fd956e22%22&amp;size=1024)
+中共病毒面前人人平等，人人都是受害者，人人都不能袖手旁观。在中共倒塌的这个过程中，我们新中国联邦爆料革命的战友作为最先觉醒的那一群人，唯有手拉手、背靠背、互帮互助，继续传播CCP病毒和疫苗真相，让更多人远离病毒、战胜病毒，并使更多的人加入到爆料革命的大家庭当中来，才可以挽救更多的生命。
 
-好，他们告诉我们是这个病毒让人们生病，我们知道它不是，但是他们不听。
+自从郭先生在直播中揭秘CCP病毒解药以来，爆料革命挽救了无数的战友及其家人朋友的生命。下面是一位来自英国伦敦喜庄园的战友与我们一起分享她和家人从感染CCP病毒到康复的过程，希望可以帮助那些正在遭受CCP病毒折磨的人早日康复。
+[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/0ce1283e-18e4-417b-8ea5-5bee34bcf536.png?asset_id=d0b1d1c0-9d48-47c0-8a0b-c080b086a31b&amp;img_etag=%226cef435f88eba1512f7de6c0f1f24174%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/0ce1283e-18e4-417b-8ea5-5bee34bcf536.png?asset_id=d0b1d1c0-9d48-47c0-8a0b-c080b086a31b&amp;img_etag=%226cef435f88eba1512f7de6c0f1f24174%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/22f8b809-31ca-410c-97f7-35178347daa6.png?asset_id=d27a7b6c-5efc-4aab-9792-67c6edcff919&amp;img_etag=%224a6c825b0b4b11e71314f7002893fa62%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/22f8b809-31ca-410c-97f7-35178347daa6.png?asset_id=d27a7b6c-5efc-4aab-9792-67c6edcff919&amp;img_etag=%224a6c825b0b4b11e71314f7002893fa62%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/7165dab4-7c5a-405f-a50c-8ff38af700a7.png?asset_id=26029634-6efe-496d-8017-997aaffbf196&amp;img_etag=%22a2afb7c8a2081b2ecdfcf134f24c1a3d%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/7165dab4-7c5a-405f-a50c-8ff38af700a7.png?asset_id=26029634-6efe-496d-8017-997aaffbf196&amp;img_etag=%22a2afb7c8a2081b2ecdfcf134f24c1a3d%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/44b18a55-6e34-4ecd-b5ed-83344fca6543.png?asset_id=5fe90e52-6f07-4a5d-873e-8482890b27bf&amp;img_etag=%220e95308bbc8ddf1c079efb38a12f7b98%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/44b18a55-6e34-4ecd-b5ed-83344fca6543.png?asset_id=5fe90e52-6f07-4a5d-873e-8482890b27bf&amp;img_etag=%220e95308bbc8ddf1c079efb38a12f7b98%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/9edd9e98-9c52-4273-a802-639c48827bb5.png?asset_id=9e2a3ed4-ceb4-4851-8388-f0ead3d96d72&amp;img_etag=%22ef14a82415a348fb0a2dc63ed23d5516%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/9edd9e98-9c52-4273-a802-639c48827bb5.png?asset_id=9e2a3ed4-ceb4-4851-8388-f0ead3d96d72&amp;img_etag=%22ef14a82415a348fb0a2dc63ed23d5516%22&amp;size=1024)
+英国伦敦喜庄园这位战友关于CCP病毒的历险记，再一次给大家敲响了警钟——预防永远优于治疗。为了每一位关心您和您关心的人，请务必做到防患于未然。
 
-他们告诉我们，新冠病毒测试可以证明他们的鼻子里有这个病毒（感染）。
+下面是英国伦敦喜庄园在其GETTR中向大家发出的温馨提示：
 
-我们知道这个测试是虚假的、无用的、毫无意义的，但是他们不听。
+1. 染病不要慌，及时与农场义工取得联系。英喜战友请加入抗疫战友互助群，分享自己的症状和各项身体指数，互帮互助！提醒家人和朋友提高抗毒意识。
 
-我们知道人们因腿部骨折、摩托车事故而进入急诊室，他们被诊断为新冠，被登记为新冠病例。而我们知道他们并不是新冠病人。
+2. 每个人身体素质和患病情况不同，切勿病急乱吃药！咨询农场战友，及时反馈用药效果，战友互助，尽力帮助战友和家人恢复健康。
 
-我们知道，人们在养老院和临终关怀病房中因为慢性疾病死亡。而他们用错误的测试来诊断新冠，新冠病例数被错误地增加。
+3. 送药救战友刻不容缓，不幸中招的战友要及时联系农场。战友会竭力送药上门，同时也请战友们在能力范围之内，尽自己所能备足预防及早期治疗药物，关键时刻救人救己。
+[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/5a1c9af3-7884-4a50-971f-57ae47c7cf17.png?asset_id=86725603-1485-483c-b447-60477a381e38&amp;img_etag=%22e2b7c26ec0a57e26e9238146f09e6e45%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/5a1c9af3-7884-4a50-971f-57ae47c7cf17.png?asset_id=86725603-1485-483c-b447-60477a381e38&amp;img_etag=%22e2b7c26ec0a57e26e9238146f09e6e45%22&amp;size=1024)
+近期，在郭先生和爆料革命战友们的精彩大直播中，郭先生为我们解密了病毒解药、解读了恒大危机背后的腐败、台海危机背后的勾兑与较量……可谓精彩纷呈，但也让我们清楚地看到了CCP猛踩油门奔向死亡的狰狞模样。所以在振奋之余，我们又不禁为CCP的丧心病狂、为这个世界和人类的未来担心，因为根据郭先生的情报，冠状病毒并非CCP这个魔鬼制造的唯一病毒，也不是杀伤力最强的病毒，后续可能会有更可怕的、让人七窍出血的“热病毒”。这些病毒和疫苗究竟会带走多少无辜的生命？我们又应该或有能力做些什么呢？
 
-他们看着全国和世界各地的医生使用营养补充剂、药物和其他治疗方法让有新冠症状的人康复。人们避免了死亡，也避免了得病。
+面对这一切，我们爆料革命战友首先应该做的就是团结在一起，助己助人。在中共与邪恶势力勾结，祸害全人类的至暗时刻，我们是最先觉醒的那一群人，是那个最幸运的群体，同样也是肩负使命的群体，我们是至暗时刻中的火种，有责任把真相的光传递到世界的各个角落。
 
-但他们不听，他们说这不重要，不存在，不算数，没有发生！他们还说，这不重要。
+爆料革命战友守望相助——英喜在行动。欢迎加入英国伦敦喜庄园！
 
-他们这样做的唯一原因，就是可以将这种“疫苗”注入你们身体。
+英国伦敦喜庄园Discord邀请链接：https://discord.gg/gQcCnsACar
 
-我们知道，如果没有百万人死于这种“疫苗”，也有十几万人。
+（本文仅代表作者个人观点）
 
-他们绝不愿让你知道，（因为注射疫苗）人们正在得自身免疫疾病，孕妇正在失去她们的孩子；男性和女性不再能够生育，因为不孕不育是该针剂的一个次生损害。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-人们因为这个“疫苗”正在发生心梗、中风、自身免疫问题，仅仅是因为打“疫苗”，甚至是只是因为接触到那些打了“疫苗”的人……这一切都被无视。
+*校对：文明明 | 审核：文明明 | Page：青山*
 
-1976年，53人在猪流感实验疫苗中死亡，于是他们停止了这项实验。但现在在这个国家，已经有超过15,000人被报告在注射“疫苗”后死亡，而这可能还不到注射“疫苗”后（真实）死亡总人数的1%。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-我们的政府首脑参与了功能增强研究，以生产这种毒剂，使我们相信它不仅是一种病毒，而且是比这更邪恶的东西。
-
-我们政府中的人已经告诉我们，在特朗普政府期间会有一个出人意料的疫情爆发。
-
-如此神奇的巫术式预言，他们知道这将发生，而且确实发生了。
-
-没打“疫苗”的人被指责为携带某种病毒，而那些打过这些针剂人却不再有可能携带这种病毒。
-
-因为我们都知道，注射后病毒会从他们体内消失，真是这样吗？
-
-完全不是！
-
-我们正看着人们被迫违背自己的意愿去打针。
-
-打完针之后当他们生病时，或当他们死亡时，他们被告知这与打针没有关系。
-
-我们正眼睁睁的看着那些在打完针后不久就死去的人。如果他们在打完第二针后的14天内死亡，则被标记为正在接种疫苗。
-
-世界各地的医生都在大声疾呼，表示这种注射剂没有任何安全性可言，这项技术以前从未在疫苗中使用过，它从来没有被证明可以减少任何感染的发生率，或曾在世界任何地方消除任何感染，从未有过。
-
-然而，我们正在将这种技术注射进我们的孩子，我们的父母的身体，而我们莫名其妙地以为我们可以信任它们。
-
-他们表示永远不会做任何事情来伤害我们，事实恰恰相反。这种注射没有任何安全性可言。这种注射没有预防疾病的作用。我们被注射的mRNA将不停地产生这种有害的刺突蛋白，并造成重大损害。
-
-我们不能接受他们对（疫苗）这些成分是否安全不做科学检测，但是因为人们不能接受疫苗不安全的说法，因为人们不能接受疫苗会伤害你。
-
-我们被告知，人们正死于一些根本不存在的德尔塔变体。
-
-人们正在生病，是**因****为针剂****中的材料就是****为****了****让****他****们****生病**。
-
-人们正在生病，因为**“****疫苗”****针剂****中含有旨在破坏他****们****的免疫系****统****、****遗传****系****统****、生育能力、大****脑****、心****脏****、血液、凝血功能的物****质****，并与我****们****周****围的辐****射相互作用****也就代表可以杀****死我****们****和控制我****们****的。**
-
-如果我今天说的任何话不被公众所欣赏，那么我们应该在这里进行辩论。
-
-号召人们行动的口号不仅仅是：“我拒绝！”，更应该是：“如果你是我们的领导人，就应该听我们的！”
-
-因此，我们需要将这场辩论放到公众面前，使人们能够听到那些因这些针剂而失去亲人的家庭的经历，儿童因为这个疫苗患了心肌炎；正在进行生育治疗的人，他们不再有可行的精子和卵子，因为该针剂使他们不孕不育。
-
-而每当有人说，我有一个关于注射不良反应的经历，医生、护士、律师、政府、媒体、科学家都公开说，你精神不稳定，只是在胡言乱语，你所经历的一切并不重要。
-
-让我说，我们需要夺回我们的经历。
-
-我们需要夺回真实的东西，我们需要夺回活生生呈现在我们面前的东西。
-
-如果我们的官方权威说了一些我们无法从内心、思想和勇气中找到共鸣，无法认同的东西，我们完全有权利挑战他们。
-
-女士们，先生们，孩子们，我们正处在人生的一个十字路口。
-
-我们有太多的人开始发声，他们无法控制我们。
-
-有很多医生表示，你要我在医院里执行这些伤害病人的诊疗方案，导致他们死亡，只是因为来自上头的诊疗方案。
-
-现在是时候了，如果他们不让你进入餐厅，就不要去了；
-
-如果他们不让你进入剧院，就不要去了；
-
-如果他们不让你进入超市，就不要去了；
-
-如果他们不让你进商店买衣服，就不要去。
-
-别指望政府像爹妈一样一样（包办一切）照顾你，他们经坑了你几十年了。
-
-原视频链接：[Dr Larry Palevsky Speech At NYC Medical Freedom Rally: Clotting, Infertility, Death After Shot (bitchute.com)](https://www.bitchute.com/video/jQTvYe8Yx9gp/)
-
-发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

@@ -85,22 +85,22 @@
 ### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [意大利公司拒付薪水给未接种疫苗员工 未接种雇员如果去工作将面临大额罚金](/content/gnews/25/README.md)
+### [被中共拘留近三年的两名加拿大人返回家园](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/26/README.md)
+### [意大利公司拒付薪水给未接种疫苗员工 未接种雇员如果去工作将面临大额罚金](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [主持人完成接种，病毒检测仍呈阳性](/content/gnews/27/README.md)
+### [主持人完成接种，病毒检测仍呈阳性](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [死亡增多、司机短缺 英国新冠次生灾害悄然出现](/content/gnews/28/README.md)
+### [死亡增多、司机短缺 英国新冠次生灾害悄然出现](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/30/README.md)
+### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/31/README.md)
@@ -169,18 +169,18 @@
 ### [香港658名政府工作人员拒签宣誓声明，选择离职](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
 
-### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/53/README.md)
+### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
+
+### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/54/README.md)
  ` 英喜-粵語組`
 
-### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/54/README.md)
+### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/55/README.md)
  ` 纽约香草山MOS01`
 
-### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/55/README.md)
+### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [爆料革命战友守望相助——英喜在行动](/content/gnews/56/README.md)
+### [爆料革命战友守望相助——英喜在行动](/content/gnews/57/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [短视频：疫苗正在造成损害，人民亟待摆脱控制](/content/gnews/57/README.md)
- ` 墨尔本雅典娜农场`
 
