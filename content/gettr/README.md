@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/25/2021 2:31 PM (UTC)`
+
+9月25号：疫苗灭共．我们取得巨大的成就，接下来还有更多的国家需要我们去解救！大家一定不要松懈下来，全力以赴传播解药的真相．疫苗的真相。<br/><br/><br/>【尊敬的七哥，您好！<br/><br/>昨天得到的信息，欧盟已经同意10月20号不再推行疫苗护照，疫苗被归于试验性，基本上停止了毒疫苗。伊维菌素重新被批准使用，10月1日起，欧盟医院正式启动五种药物临床综合治疗方法。<br/>七哥您为了这个事情，基本上是彻夜连续工作，无法用语言来表达所有人对您的感激和感恩。<br/><br/>我的军事群里一位男士前天告诉我，在他家乡XX的地方上，有一位中国商人买通当地市长，做尽坏事。我告诉他在澳洲有许多各种层次的这种人，所以我们有良知的之间要合作，携起手来彻底消灭共产党。 通过传播您的爆料声音，让更多的当地社区知道中国人不等同与CCP。<br/><br/>另外，XXX的这位在椅子群里发表这种言论，有点过了。她曾经还表示自己就是CCP。<br/><br/>再次感恩七哥🙏🙏🙏】
+![img](https://media.gettr.com/group48/getter/2021/09/25/14/29/4810a509-90d7-fb50-ef71-0e90ac3e36f4/2fad3b12a927d059d2d81250cd65ab69.jpg)
+
+---
+
 `@miles 9/25/2021 6:58 AM (UTC)`
 
 9/24/2021 Miles Guo: Chen Feng had been formally arrested months ago and had lost his freedom for two years. Chen Feng’s daydream that Wang Qishan would replace Xi to be the head of the CCP in the 20th Party Congress has been broken! The first overseas investment made by the Chinese people in history was the CIC’s investment in Blackstone. About 40-50% of HNA’s assets are hidden overseas now.<br/><br/>9/24/2021 文贵直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久; 陈峰关于王岐山20大取代习当老大的幻想已破灭！ 中投投资黑石是中国人有史以来第一笔在海外的投资; 海航仍有40%-50%的资产藏在海外<br/>
@@ -285,13 +292,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月20号：这一切一切都证明了新中国联邦对中共的虚假经济纸老虎的本质的了解……和战友们一起对重大情报的掌握，四年来这一个个的重大事件，证明了我们的灭共实力……和上天力量的赐力……这都是上天送给我们的礼物。【黑色星期一！中国恒大闪崩17% 港股全线杀跌 富时中国A50也崩了4%！】在中秋节的前一天，港股突然全线暴跌！香港恒生指数开盘跌1.12%。随后，恒指跌幅扩大至4%，自去年10月以来首次跌至24000点关口下方。在此情况下，美股股指期货走低，道指期货跌幅扩大至1%，标普500指数现跌0.86%，纳指期货跌0.9%。】
 ![img](https://media.gettr.com/group12/getter/2021/09/20/14/9f84b3dc-dfa5-42e6-dc5c-b197b580a9f0/19d9a62e5d0b88c5b32cffab235c58f4.jpg)
-
----
-
-`@miles 9/20/2021 1:31 PM (UTC)`
-
-9月20号：尊敬的战友们好……七哥在这里向所有的全球的兄弟姐妹们请安了。你们觉得未来的新中国联邦的农场总部，这样的山脉和环境怎么样？
-![img](https://media.gettr.com/group36/default/20210920/13/31/37945012-19f0-865e-5a93-9833544756b2/out.jpg)
 
 ---
 
