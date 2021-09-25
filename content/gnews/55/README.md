@@ -2,25 +2,18 @@
 ---
 
 
-## 郭文贵：共军携带核武扰台 实现三个第一
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1553279/)
+## 三星将为特斯拉生产下一代全自动驾驶芯片
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553295/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-23.jpg)图片来源：网络截图
+据《电子杂志》9月23日报道，根据来自韩国的一份最新报告，特斯拉目前正在与三星电子谈判，生产其下一代全自动驾驶芯片。新的芯片预计将在明年率先在特斯拉网络卡车上推出。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-24-PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+为特斯拉最初提供动力的Nvidia电脑没有足够的计算能力来完成通过未来软件更新实现完全自动驾驶的能力，因此最新的迭代的FSD电脑，由特斯拉自己设计的芯片驱动，将由三星生产。特斯拉明确表示这台新电脑将足以在未来的软件更新中提供完全的自动驾驶能力，并且他们会一直开发下一代的芯片。新硬件的目标将是使特斯拉能够增加人类司机和自动驾驶汽车之间的安全差距。
 
-视频参看： 2021.09.24晚GTV新闻访谈
+首席执行官埃隆.马斯克认为其FSD硬件3，或者说完全自驾驶计算机1，将能够完全自驾游，其安全水平远远高于人类。最新的硬件4或自动驾驶计算机2，将会在大约一年左右的时间内与网络卡车一起推出，将是大约4倍的能力。
 
-[https://gtv.org/broadcast/watch/614e6d3142a8af3151a4f865](https://gtv.org/broadcast/watch/614e6d3142a8af3151a4f865)
+《韩国经济日报》的消息称，特斯拉决定将HW 4.0自动驾驶芯片外包给三星，现在正处于与三星谈判生产新芯片的最后阶段，三星计划在其华星工厂使用其7纳米技术生产该芯片。
 
-编辑/校对/发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[Tesla is in talks with Samsung to produce its next-gen Full Self-Driving chip](https://electrek.co/2021/09/23/tesla-in-talks-samsung-produce-next-gen-full-self-driving-chip/)

@@ -2,55 +2,41 @@
 ---
 
 
-## 郭文贵先生揭露更多9月24日共军携带核武扰台的细节
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553518/)
+## 美国司法部延长对孟晚舟的起诉协议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553242/)
 
-栏目记者/责任编辑：Zion文恩
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+栏目记者/责任编辑：AsG諾雅
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-345.png)
 
 
-当地时间9月24日，郭文贵先生在直播中，揭露了9月24日共匪对台军事行动的细节。此前，郭先生已在多次直播中爆料9月24日前后中共将会对台有军事行动。
 
-郭先生说，9月24号共产党向台湾派出了几十架军机，意图震慑台湾。此次行动，中共匪军实现了三个第一——第一次中共军机挂载7枚微型核弹进扰台湾；第一次东海舰队在台湾南部、东南部，东海舰队形成“五角包围”之势；第一次在福建广西广东全面启动导弹发射系统，不惜向美国、日本暴露其导弹部署。
+9月24日路透社消息，旷日持久的华为事件有了突破性进展，美国检察官周五表示，美国已经和华为技术公司首席财务官孟晚舟达成了延期起诉协议，结束对她个人的银行欺诈案。此举将允许她离开加拿大，缓解中美之间的紧张关系，也可能为释放被中共拘捕的两名加拿大人铺平道路。但该协议只涉及孟晚舟，美国对华为公司的指控仍然存在。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-4.jpg)
+孟晚舟于2018年12月在温哥华国际机场因美国的逮捕令被捕，她因涉嫌误导汇丰银关于华为在伊朗的业务往来而被起诉。路透社曾于2012和2013年报道，香港注册的Skycom公司在2010年提出，建议向伊朗最大的移动电话运营商出售价值至少130万欧元的被禁运的惠普电脑设备，建议书中至少有13页标有 “华为机密”，并带有其标志。华为与Skycom之间有许多财务和人事联系，其中包括孟晚舟在2008年2月至2009年4月期间曾担任Skycom的董事会成员。华为利用此举，规避了美国对伊朗的制裁。2019年，华为因窃取商业机密和欺诈金融机构等行为，被列入美国贸易黑名单。
 
-此次军事行动，标志着中共对台全面实行“海陆空”合围作战的开始。此番试探，台军完全无力回击，美日驻军也无任何反应；这使得中共的攻台信心倍增。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-64.jpg)
-历史已经证明，大陆对台历次作战没有任何好处——清朝康熙攻台，沙俄借机掳掠了中国北方近200万平方公里的土地，中共拱手相让于俄罗斯以换取政治利益。共匪打台湾、威胁台湾只符合一个利益，那就是共产党的政治斗争，不符合任何这个国家的民族利益。
-
-郭先生感谢国内的战友们，许多战友在中共内部试图阻止打台湾，包括924的军事行动。他们是真正的爱国者，真正的民族英雄。
-
-由于准确地揭露此次中共对台军事行动，郭文贵先生赢得了世界政商精英的称赞和钦佩。
-
-爆料革命和新中国联邦事业的实力和信誉进一步得到了验证，已逐渐从世界的幕后走向台前。
-
-参考链接：
-[2021年9月24号文贵直播完整版：中共昨天对台演习大涨中共气势，第一次挂核弹以立体全实战模式对台湾实战演习；陈峰被抓的下场七哥第一天爆料海航就已经注定，陈峰早已被监控2年，配合专案组处理海外资产，七哥将帮助找出航海在海外隐藏的更多资产](https://gtv.org/video/id=614debaf42a8af3151a4a1ed)
+美国副国务卿温迪-谢尔曼7月访华期间，中国外交部副部长谢锋坚持要求美国撤销对孟晚舟的引渡案。今天在孟晚舟案的进度上显示了两国勾兑的结果，但是西方民意没有变，对华为等中共情报机关合作方的辖制不可能放松。
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+信息链接：
+1. [美国司法部延长对孟晚舟的起诉协议](https://www.reuters.com/technology/huawei-cfo-meng-appear-court-expected-reach-agreement-with-us-source-2021-09-24/)
+2. [美国司法部延长对孟晚舟的起诉协议](https://www.zerohedge.com/political/major-breakthrough-huawei-cfo-will-appear-virtually-us-court-resolve-charges)
+3. [司法部延长对孟晚舟的起诉协议](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210924-%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%A4%A7%E9%80%89%E8%90%BD%E5%B9%95-%E5%AD%9F%E6%99%9A%E8%88%9F%E6%A1%88%E6%9C%89%E6%96%B0%E8%AE%AE%E8%AE%BA)
+4. [美国司法部延长对孟晚舟的起诉协议](https://www.theglobeandmail.com/politics/article-huaweis-meng-to-resolve-fraud-case-in-plea-deal-that-does-not-include/)
 
-终审： 鬼五
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+
+终审编辑：瑞卡
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-345.png)

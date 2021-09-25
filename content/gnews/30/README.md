@@ -2,28 +2,49 @@
 ---
 
 
-## 多国民众组织抗议全球食品业巨头
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553264/)
+## 没有疫苗护照的工人在意大利不会得到报酬
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553506/)
 
-#### 撰稿：彩虹
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-84.jpg)图片来源：网络截图
-9月24日，儿童健康防护（childrenshealthdefense.org）刊文，在联合国食品系统峰会（UNFSS）开幕之际，报道多国民众组织发起线上线下运动，对“全球食品企业巨头”进行了抗议。
+栏目记者/责任编辑：AsG諾雅
 
-这些民众组织批评联合国粮食保障制度是一个巩固企业对粮食和农业控制的平台，并使新自由主义的粮食制度永久化，这些制度严重摧残了小规模粮食生产商，特别是来自全球南方的小规模粮食生产者，他们供应了世界上80%的粮食。
 
-在纽约联合国总部前，国际人民斗争联盟（ILPS）、国际妇女联盟和国际移民联盟进行了抗议，谴责企业对联合国的占领，以及由农用化学品、食品和农业综合企业跨国公司和亿万富翁比尔·盖茨(Bill Gates)领导的“全球食品企业巨头”。
 
-在雅加达，八名活动家在总统府前举行集会时被逮捕。在人民斗争阵线(FPR)、农业改革运动联盟(AGRA)和国际人民斗争联盟(ILPS)印度尼西亚分部的领导下，来自工人、农民、青年和城市贫民的抗议者抨击了在中共病毒（COVID-19）疫情中导致饥饿加剧的政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-在菲律宾，由菲律宾小渔民组织全国联合会（Pamalakaya）领导的渔业社区在环境和自然资源部前举行了一次死守抗议活动，抗议小渔民在卡维特省的贻贝养殖场即将被拆毁。
 
-9月22日，巴基斯坦、马来西亚、斯里兰卡和印度尼西亚也举行了全国人民粮食系统峰会，会议提出了彻底改造粮食系统的要求和行动计划。
 
-同时，在印度泰米尔纳德邦（Tamil Nadu），泰米尔纳德邦妇女论坛举行了社区动员会和由达利特（Dalit）妇女领导的有机黍稷食品节。在柬埔寨柴桢（Svay Rieng），柬埔寨农民社区联盟在村一级举行了农民动员会。
 
-此外，来自全球各地的数百人参加了全球人民峰会的在线会议活动，他们讨论了人民的粮食主权、人民主导的农业生态学以及作为粮食系统转型支柱的粮食系统本地化。
 
-在闭幕式上，来自非洲、亚洲、拉丁美洲、加勒比地区、西亚以及北非的人民运动代表将提出行动计划，该行动计划将根据今年年初以来举行的专题、区域、部门和国家活动总结制定。
+布莱巴特9月24日报道，根据针对公共和私营企业的新的强制性疫苗法令，意大利政府已经宣布，未接种疫苗的工人将被扣发工资，但他们不会被停职或解雇。该法令估计影响2300万意大利公共和私营部门的工人。
 
-**新闻来源：**[Protesters Around the World Target Global Corporate Food Empire, Demand UN Cut Ties With World Economic Forum](https://childrenshealthdefense.org/defender/protests-global-corporate-food-empire-united-nations-world-economic-forum/)
+意大利工人出示绿色通行证的义务将从10月15日开始，执行到12月31日。据《共和国报》报道，雇员少于15人的公司可以让没有绿色通行证的员工停职10天，停职在执行期间可以延长。绿色通行证的有效期为12个月。已经感染过病毒者的绿色通行证是在注射第一针疫苗时发放的，而其他人则必须等到完成两针疫苗之后才能取得。绿色通行证也可以通过自费PRC测试结果为阴性的证明来验证。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-85.jpg)
+被发现没有绿色通行证而工作的人可能面临高达1500欧元的罚款，这可能同时适用于企业和雇员。绿色通行证还可以追踪一个人去过的地方，这引起人们对个人隐私的担忧。
+
+因为无效且有害的疫苗而对人们采取强制措施并惩罚不遵守者，居然堂而皇之地成了西方民主国家的法规，民主与专制已经只有一线之隔，人们应该觉醒，避免陷入专制中而不自觉。
+
+信息链接：
+[Workers Without Vaccine Passport Won’t be Paid in Italy](https://www.breitbart.com/europe/2021/09/23/italy-workers-without-covid-passport-will-be-withheld-pay-but-not-fired/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

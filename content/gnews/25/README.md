@@ -2,49 +2,37 @@
 ---
 
 
-## 郭文贵先生揭露更多海航、陈峰、王岐山的内幕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553533/)
+## 拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553241/)
 
-栏目记者/责任编辑：Zion文恩
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+栏目记者/责任编辑：文真
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-345.png)
 
 
-海航集团董事长陈峰，首席执行官谭向东被中共当局采取强制措施这一消息的爆出，人们慨叹郭先生4年前对海航的精准爆料，以及2018年一众战友对海航原董事长王健之死事件的调查真相。9月24日，郭先生在直播中揭露了海航集团与共产党盗国家族的更多内幕。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-7.jpg)
+9月24日下午，拜登在白宫与“四方联盟”领导人会晤，讨论基础设施和技术合作，对抗中共病毒疫情。在对中共在印太地区不断扩张的担忧中，白宫举行四方会谈，确保美国在印太事务中，建立与盟友的沟通渠道，加强合作，抵制中共在印太区域的影响力。
 
-郭先生说，陈峰、谭向东两年前就处于监视居住的状态。此二人一个月前就被逮捕。自王健2018年在普罗旺斯“脚疼死”后，海航大约两万多人被监控。陈峰、王健等人在王岐山的授意下，在全国7个省市，囤了大量土地和煤矿投资。几个常委——张德江、李长春、韩正、江泽民、朱镕基、曾庆红等家族牵涉其中。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-48.jpg)
-海航早在2018年负债已达三万亿；而旗下的渤海金控的20万亿资产，是通过虚假金融评估、金融机构参股、认购、再评估的伎俩而计价。中国老百姓的血汗钱早就被这些伎俩给吸走了。海航集团80%的交易，都与黑石集团、以及苏世民有关。由朱镕基、王岐山掌控的中投集团，一直是黑石的投资大户，然而中投鲜有盈利，黑石的年报却一直稳中有升。其间猫腻已不言自明。
+此次会晤将宣布一项供应链倡议，重点是在全球汽车和其他产品的关键部件短缺的情况下，保护和确保半导体的供应。会晤还讨论了5G和教育奖学金等合作。
 
-陈峰被捕后，海航约有40~50%的资产作为王岐山等盗国贼的财产流散在海外。郭先生表示，这些财富，爆料革命和新中国联邦将替海航的苦主们悉数追回，还中国人应有的尊严和财富。
-
-参考链接：
-[2021年9月24号文贵直播完整版：中共昨天对台演习大涨中共气势，第一次挂核弹以立体全实战模式对台湾实战演习；陈峰被抓的下场七哥第一天爆料海航就已经注定，陈峰早已被监控2年，配合专案组处理海外资产，七哥将帮助找出航海在海外隐藏的更多资产](https://gtv.org/video/id=614debaf42a8af3151a4a1ed)
+尽管官方强调，“四方会谈“ 是“非官方”的聚会，四国集团也不是区域性军事联盟，但是经历各国政府更迭，四国联盟的合作正在深化，正说明四国联盟的持久性。
 
 （本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+参考链接：[拜登在白宫主持首次四方峰会，反共盟友巩固 “非官方 “联盟](https://www.zerohedge.com/political/biden-hosts-first-quad-summit-white-house-counter-china-allies-cement-unofficial-alliance)
 
-终审： 鬼五
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-345.png)
