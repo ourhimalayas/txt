@@ -28,22 +28,22 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021/09/23 文贵先生直播精要](/content/gnews/6/README.md)
+### [2021/09/24 文贵先生直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [2021/09/23 文贵先生直播精要](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵先生2018年12月12日讲5000万与江绵恒和杀张志强的关系](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
+### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [维州：即使接种率80%，仍将有口罩及家访限制](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
+### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/11/README.md)
+### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/12/README.md)
@@ -67,23 +67,23 @@
 ### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/19/README.md)
+### [9/24/2021 七哥直播：渤海金控用谎言和虚假评估伪造了20万亿的资产](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [班农专访2: 文贵先生参加秘密会议](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [班農專訪1：感謝新中國聯邦慶祝父親百歲壽誕](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [未来要么被中共领导，要么被西方价值观领导](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [监禁三年后，华为公主孟晚舟于9月24日被释放](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共国能回到资本市场以前的状况吗？](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [纳瓦罗介绍《在川普时代》：川普被彭斯及幕僚长肖特背叛](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [把你们的魔爪从我们的孩子身上挪开！Leave Our Kids Alone !](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [德国对华为小米等中共国手机启动安全调查](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -112,31 +112,31 @@
 ### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/33/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/34/README.md)
+### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/35/README.md)
+### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/36/README.md)
+### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/37/README.md)
+### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/38/README.md)
- ` wenwu`
-
-### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/40/README.md)
+### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/41/README.md)
+### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医学人士公开反对FDA和拜登政府的疫苗政策](/content/gnews/42/README.md)
+### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [9/25/2021国际财经快讯：美国新房销售超预期；恒大不确定性导致美元上涨](/content/gnews/43/README.md)
@@ -151,36 +151,36 @@
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/47/README.md)
+### [爆料革命战友守望相助——英喜在行动](/content/gnews/47/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [短视频：疫苗正在造成损害，人民亟待摆脱控制](/content/gnews/48/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内疫苗心情日记（十八）](/content/gnews/48/README.md)
+### [墙内疫苗心情日记（十八）](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/49/README.md)
+### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/50/README.md)
+### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/51/README.md)
+### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编](/content/gnews/52/README.md)
+### [监禁三年后，华为公主孟晚舟于9月24日被释放](/content/gnews/54/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纳瓦罗介绍《在川普时代》：川普被彭斯及幕僚长肖特背叛](/content/gnews/55/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [国际要闻汇编](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/53/README.md)
+### [墙内要闻汇编](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共公司要求禁售能通过卫星链接互联网的iPhone13](/content/gnews/54/README.md)
- ` 日本东京方舟农场`
-
-### [回忆墨尔本往事一二](/content/gnews/55/README.md)
- ` 澳喜农场`
-
-### [说说预防备药和自救](/content/gnews/56/README.md)
- ` 澳喜农场`
-
-### [有声| 北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/57/README.md)
- ` MOSREC`
 
