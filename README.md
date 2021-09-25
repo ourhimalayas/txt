@@ -67,22 +67,22 @@
 ### [“供不应求”致中药材价格上涨](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [9/24/2021 七哥直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久](/content/gnews/19/README.md)
+### [世界开始憎恨共产党是因为共产党让他们损失惨重](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [9/24/2021 七哥直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [班农专访2: 文贵先生参加秘密会议](/content/gnews/20/README.md)
+### [班农专访2: 文贵先生参加秘密会议](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班農專訪1：感謝新中國聯邦慶祝父親百歲壽誕](/content/gnews/21/README.md)
+### [班農專訪1：感謝新中國聯邦慶祝父親百歲壽誕](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [未来要么被中共领导，要么被西方价值观领导](/content/gnews/22/README.md)
+### [未来要么被中共领导，要么被西方价值观领导](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国能回到资本市场以前的状况吗？](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/24/README.md)
+### [中共国能回到资本市场以前的状况吗？](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [被中共拘留近三年的两名加拿大人返回家园](/content/gnews/25/README.md)
@@ -103,29 +103,29 @@
 ### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [华为首席财务官孟晚舟与美国检方达成协议后在加拿大获释](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共进一步加强文化管制](/content/gnews/32/README.md)
+### [前五角大楼官员警示台湾正处于极度危险之中](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0925](/content/gnews/33/README.md)
+### [华为首席财务官孟晚舟与美国检方达成协议后在加拿大获释](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共进一步加强文化管制](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
+
+### [DC每日热点0925](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/34/README.md)
+### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/35/README.md)
  ` Charlie`
 
-### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/35/README.md)
+### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/36/README.md)
+### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/37/README.md)
+### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
-
-### [这次热点是台湾，不是孟晚舟，也不是陈峰](/content/gnews/38/README.md)
- ` 银河勇气之星`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国新技术将汽车重量大幅减轻](/content/gnews/47/README.md)
+### [英国跨党派国会香港小组发起调查英银行有否打压香港自由](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [比尔∙盖茨的疫苗帝国](/content/gnews/48/README.md)
+ ` 文永`
+
+### [北京既实施贸易制裁打压堪培拉，又高价抢购澳大利亚小麦](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国新技术将汽车重量大幅减轻](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [AUKUS引北京提核打击准备](/content/gnews/48/README.md)
+### [AUKUS引北京提核打击准备](/content/gnews/51/README.md)
  ` HimalayaRussia`
 
-### [《什么是影子银行》](/content/gnews/49/README.md)
+### [《什么是影子银行》](/content/gnews/52/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/50/README.md)
+### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [欧洲煤炭价格达13年高位](/content/gnews/51/README.md)
+### [欧洲煤炭价格达13年高位](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/52/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/55/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国放松制裁允许与塔利班进行部分交易](/content/gnews/53/README.md)
+### [美国放松制裁允许与塔利班进行部分交易](/content/gnews/56/README.md)
  ` HimalayaRussia`
 
-### [美国务院谴责塔利班在阿富汗恢复处决的计划](/content/gnews/54/README.md)
+### [美国务院谴责塔利班在阿富汗恢复处决的计划](/content/gnews/57/README.md)
  ` HimalayaRussia`
-
-### [比电荒还荒的是人心](/content/gnews/55/README.md)
- ` 银河勇气之星`
-
-### [香港658名政府工作人员拒签宣誓声明，选择离职](/content/gnews/56/README.md)
- ` 日本东京方舟农场`
-
-### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/57/README.md)
- ` GTV新闻访谈`
 

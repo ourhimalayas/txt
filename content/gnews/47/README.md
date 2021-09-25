@@ -2,25 +2,29 @@
 ---
 
 
-## 英国新技术将汽车重量大幅减轻
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1554748/)
+## 英国跨党派国会香港小组发起调查英银行有否打压香港自由
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1554921/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+#### 作者：东京樱花团｜文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/09/pasted-image-0-1-7.png)
+[*图片来源*](https://gdb.voanews.com/3359e664-8810-4246-8985-12ca35f5cca6_cx10_cy0_cw82_w1597_n_r1_st.jpg)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/S.jpg)building-tech.org
-美东时间9月25日消息，由迈凯轮F1 （McLaren F1）传奇设计师创立的英国的戈登∙默里设计公司（Gordon Murray Design，GMD）已经披露了iStream汽车的设计和生产过程。使用iStream技术，汽车的整体重量可以减少20%以上。
+英国跨党派国会香港小组(All-Party Parliamentary Group on Hong Kong)调查在香港营运的英国银行，目标是确立那些银行有否协助政权打压香港的自由，他们呼吁公众在10月31日前提供资料。
 
-iStream架构旨在优化未来电动化车型的性能、成本和效率，被描述为“未来电动汽车的理想选择”，iStream减重技术可以应用于更广泛的车辆，使典型的家庭汽车的整体重量减少20%以上。
+小组秘书韦豪斯(Chris Whitehouse)对美国之音说，调查起因是有不少离开香港的人向小组投诉，他们在英国银行的个人账户被冻结，亦无法提取他们的退休金。
 
-该技术还可以应用于其他形式的移动设备，包括电气化航空的某些部分。iStream技术的第一个应用是全电动的Motiv汽车，由GMD公司发布。在英国米尔布鲁克（Millbrook）的LCV Cenex展会上已展示了这款随时可用的全自动车。
+小组指，调查是为了确定在香港营运的英国银行有否帮助香港政府、警察以及司法系统打压香港的言论自由、行动自由、集会结社自由以及拥有财产的自由。
 
-iStream可以应用于任何形式的传动系统的各种车辆，从电动四轮车、中置跑车到大型汽油动力的豪华SUV或轻型商用车，但其尤其适用于电动汽车，因为电池的缘故电动车通常很难将车辆的整体重量降到最低。
+小组亦指，希望收集证据，确定那些银行有没有执行保障人权的责任，以及那些银行的行为有没有为英国造成任何风险。
 
-GMD声称，iStream是开发轻量级汽车的一种具有成本效益的方式，其工艺可将制造车身面板所需的部件数量减少50%，提供了更大的刚性需求，在安全、精致和底盘动力学以及耐用性方面都有好处。此外，再生纤维复合板的使用将有助于进一步减轻重量。
+小组主席卡迈克尔(Alistair Carmichael)和贝内特(Natalie Bennett)指，那些银行受益于英国政府对法治和人权的承诺，因此他们在海外做生意时，应该要捍卫这些原则。
 
-GMD声称，基于该平台的生产型汽车所需的投资要少得多，对环境的影响也比用传统方法设计和制造的类似汽车要低。
+英国国会跨党派香港小组于2019年11月5日成立。
 
-参考链接：
+[**新闻来源**](https://www.voachinese.com/a/british-lawmakers-launch-inquiry-into-whether-uk-banks-in-hong-kong-suppressed-human-rights-20210924/6244733.html)
 
-[https://www.nanonewsnet.ru/news/2021/tekhnologiya-istream-idealno-podkhodit-dlya-elektromobilei-ona-pozvolyaet-snizit-obshchii-](https://www.nanonewsnet.ru/news/2021/tekhnologiya-istream-idealno-podkhodit-dlya-elektromobilei-ona-pozvolyaet-snizit-obshchii-)
+（本文只代表个人观点，与Gnews网站无关）
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
