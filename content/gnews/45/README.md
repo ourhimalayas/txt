@@ -2,54 +2,43 @@
 ---
 
 
-## Twitter于几周内推出比特币Tip的汇款功能
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1551580/)
+## 09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1549646/)
 
-- 编译：wenwu–西班牙喜悦农场
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210923-1.jpg)[图片来源](https://news.sky.com/story/energy-supplier-green-to-cease-trading-as-it-becomes-latest-casualty-of-energy-crisis-12414462)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-334.png)
+**1.美联储发出缩表信号，预计2022年利率将上调**
 
-在 Twitter **[TWTR](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)**[，](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)[**+3.80%**](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)上用比特币[打赏](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)将很快普及， 使这个社交媒体平台成为首批提供此类支付功能的主要公司之一（包括了GETTR平台的GETTR PAY也快了）。
+[美联储（Federal Reserve）在本周为期两天的会议结束时表示，它可能很快开始放慢其激进的债券购买计划，这是政策制定者将迈出的第一步，以收回大流行时期对美国经济的支持。 美联储公布的最新经济预测显示，官员们预计，到2022年，加息一次，至0.5%左右，比5月份预期的要快。当时，中位官员预计要到2023年才会上调利率。现在，出席会议的18名美联储官员中有9人表示，他们预计在2022年某个时候开始加息。除了一位官员之外，所有官员都参与了2023年的加息。政策制定者们还把今年的总体通胀预期上调至3.7%，几乎比5月份的预测高出整整一个百分点，当时美联储官员预计通胀预期将达到3%。](https://www.foxbusiness.com/economy/federal-reserve-september-policy-meeting)
 
-在 Twitter 几个月来一直在测试此类汇款功能之后，该公告才发布。Tip 最早将于本周向 Apple iOS 用户提供，并将在未来几周向使用 Android 设备的用户提供。
+**2.美国审计监管机构将采用新规协助落实新的交易禁令**
 
-在 Twitter 使用比特币**[BTCUSD](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)**[，](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)[**-0.57%**](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)作为其平台的一种支付方式后，会有许多加密货币的牛市很快就强调了汇款功能在 Jack Dorsey 运营的 Twitter 平台上的重要性。
+[美国上市公司会计监管委员会(Public Company Accounting Oversight Board, 简称PCAOB)周三通过了一项新框架，这将有助于该委员会实施一项法律，该法律规定如果外国公司的审计机构没有接受美国监管机构的检查，这些公司将不能在美国的交易所上市。这家监管上市公司审计的美国审计监督机构计划利用这一框架来决定，是否可以对中国或香港等某些司法管辖区的公开审计公司进行调查或审查。监管PCAOB的美国证券交易委员会(Securities and Exchange Commission, 简称SEC)随后可能会要求被这些公司审计的公司披露更多信息，并采取其他措施，包括发布交易禁令。](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%AE%A1%E8%AE%A1%E7%9B%91%E7%AE%A1%E6%9C%BA%E6%9E%84%E5%B0%86%E9%87%87%E7%94%A8%E6%96%B0%E8%A7%84%E5%8D%8F%E5%8A%A9%E8%90%BD%E5%AE%9E%E6%96%B0%E7%9A%84%E4%BA%A4%E6%98%93%E7%A6%81%E4%BB%A4-11632354304)
 
-在美国芝加哥的马勒斯（Mallers)使用推特 Tip 功能（先通过Strick账户关联Twitter)向在萨尔瓦多星巴克的大卫发送比特币，萨尔瓦多刚刚将比特币作为官方法定货币（如果比特币在美国可以使用，就等同于挂钩美元）。
+**3.两家供应商倒闭，超过一百万的客户正受到能源危机的影响**
 
-在通过应用程序汇款相当于 10 美元比特币后，Mallers 说“Boom！我们刚刚通过 Twitter 进行了即时、免费的汇款支付。”
+[阿夫罗能源(Avro Energy)和格林(Green)表示，他们已经停止交易，拥有25.5万名客户和185名员工的格林，在天空新闻披露其已安排顾问监督潜在破产的第二天，证实了其破产。Avro 拥有 580，000 名客户。两家公司供应英国国内能源市场的2.9%。这意味着，由于批发市场能源采购价格飙升，供应商在短短一周内破产，总共有100多万人受到影响。阿夫罗和格林宣布这一消息之际，监管机构 Ofgem 的首席执行官告诉议员们，在天然气和电力批发价格飙升后，未来几个月可能会有更多的供应商破产。](https://news.sky.com/story/energy-supplier-green-to-cease-trading-as-it-becomes-latest-casualty-of-energy-crisis-12414462)
 
-“为什么会有人使用西联汇款 [**WU**，**+1.10%**](https://www.marketwatch.com/investing/stock/WU?mod=MW_story_quote) 再次？当你将世界上最大的社交互联网网络之一（人脉）与世界上最好的开放货币网络（资金流通）结合起来时，就等于意外地出现世界上最好的汇款体验”马勒斯说。
+**4.Iceland超市老板呼吁购物者不要在圣诞节前恐慌性购买**
 
-Mallers 支持 Twitter 功能并非巧合，Twitter 正在使用他的 Strike 网络来促进 Tip 功能的使用；Mallers 与其母公司 Zap Technologies 共同创立的芝加哥初创公司 Strike ，也以帮助萨尔瓦多采用比特币而闻名。
+[Iceland超市老板告诉天空新闻，超市行业面临一系列压力令人担忧，但消费者没有必要在圣诞节前恐慌性购买。这家食品连锁店的董事总经理理查德•沃克（RichardWalker）本月早些时候曾警告称，由于全国卡车司机短缺，美国收银台的购物者面临成本大幅上升的问题。就在他发表讲话几小时后，英国最大的零售商特易购（Tesco）向政府表示，它担心在节日前恐慌性购买。](https://news.sky.com/story/iceland-boss-pleads-for-shoppers-not-to-panic-buy-ahead-of-christmas-12414832)
 
-就 Dorsey 而言，他也是加密货币的坚定支持者，并经营着 Square Inc. [**SQ**](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)[，** **](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)[**+2.16%**](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)， 该平台绑定的是比特币；Twitter 还表示，它的目标是提供一项功能，允许用户在其平台上验证不可伪造的代币或 NFTs（区块链加密货币资产）。
+**5.日本在尖端材料领域发起攻势**
 
-但总的来说，除了汇款外，用比特币支付小费似乎不太可能在 Twitter 上获得太多关注。比特币是全球市值第一的加密货币，已被视为一种价值储存手段，并因其令人痛苦的价格不稳定而遗臭万年（更别谈其他的去中心化加密货币了）。
+[日本企业在纯电动汽车（EV）及半导体等高科技领域使用的尖端材料领域发起攻势。住友金属矿山将涉足可降低耗电量的半导体晶圆。日本制纸将增产车载电池的电极材料。在日本的半导体及家电失去曾经优势的背景下，材料产业保持着全球竞争力。住友矿山将从2021年度开始供应用于控制电力的半导体基板——晶圆。晶圆材料采用碳化硅（SiC）。与原产品相比，可以将电力损耗减少大约1成，并延长EV的续航距离，价格也可以降低1～2成。日本制纸11月将把改良了纸原料的电池用“羧甲基纤维素（CMC）”的产能提高到2020年度的约5倍。](https://cn.nikkei.com/industry/manufacturing/46136-2021-09-23-05-00-54.html)
 
-一个很大恐惧是用比特币进行交易只会看到资产激增（或下跌）。事实上，大约 11 年前的[5 月 22 日，Laszlo Hanyecz](https://www.marketwatch.com/story/bitcoin-pizza-day-laszlo-hanyecz-spent-3-8-billion-on-pizzas-in-the-summer-of-2010-using-the-novel-crypto-11621714395?mod=article_inline)是刚刚被编码存在的[新型](https://www.marketwatch.com/story/bitcoin-pizza-day-laszlo-hanyecz-spent-3-8-billion-on-pizzas-in-the-summer-of-2010-using-the-novel-crypto-11621714395?mod=article_inline)加密货币比特币的早期采用者之一，他用1万比特币购买了“Papa Hohns”披萨饼。这次购买在2010年时大约相当于41美元，但现在的价值为4.48亿美元。
+**6.丰田要将电动车电池成本降至一半**
 
-无论如何，Twitter 的股价在当天上涨了 3.7%，今年迄今上涨了 23%，而道琼斯工业平均指数[DJIA, +1.48%](https://www.marketwatch.com/investing/index/DJIA?mod=MW_story_quote)上涨了 1.7% ， 标普 500 指数**[SPX](https://www.marketwatch.com/investing/index/SPX?mod=MW_story_quote)**[，**+1.21%**](https://www.marketwatch.com/investing/index/SPX?mod=MW_story_quote)当天上涨 1.4% . 道琼斯指数今年迄今已上涨 14%，而标普 500 指数在 2021 年迄今已上涨近19%。
+[丰田汽车日前透露方针称，把到2030年要确保的电池产能比此前计划提高1成，力争达到2亿千瓦时以上。力争将每辆电动车的电池成本降至一半。丰田计划到2030年在全球销售800万辆纯电动汽车（EV）和混合动力车（HV）等电动车，希望通过投资和技术开发赢得竞争。丰田9月上旬举行了有关电池业务的线上说明会。会上表明，将在2030年之前向研发和生产体制投资1.5万亿日元。该公司首席制造官（CPO）冈田政道表示，“这是一项大规模投资，丰田将积极向电动化投资”。](https://cn.nikkei.com/industry/icar/46134-2021-09-23-05-00-10.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-336.png)
+**7.《流媒体行业现状：内容发现》**
 
-**简评：**
+[流媒体情报云公司Conviva今天发布了2021年《流媒体行业现状：内容发现》(State of Streaming: Content Discovery)报告，揭示了消费者如何发现要浏览的新流媒体内容。该报告显示，首次浏览的内容有四种发现方式：口口相传(59%)、广告(52%)、社交媒体(49%)与流媒体服务推荐(43%)。该报告揭示了高社交媒体使用率和高流媒体视频播放量之间存在的直接关联，展示了社交平台对于新内容发现的重要性。普通消费者使用社交媒体平台的平均数为3.4个，而对于那些重度流媒体使用者来说这一数字将跃升至3.9个（对于非流媒体使用者来说会降至2.3个）。此外，重度社交媒体用户每天耗费8小时以上浏览内容的可能性是其他用户的两倍多。](http://www.businesswirechina.com/zh/news/48101.html)
 
-**我们可以从本篇文章中的货币框架大概推测出，GETTR PAY是在10月份喜联储上市以后与GETTR相联系的基础上运用的网络汇款功能，并且该功能的优越感除了本文提到 Tip 的所有好处（包括挂钩美元）之外更重要的是喜刀的唯一性：绑定黄金。**
+**8.德意志银行CFO：我们必须做好银行并购准备**
 
-**值得一提的是，新中国联邦的G系列是包括了支持言论自由、反对 Cancle Culture 的社交平台（以及喜联储个人银行）。而 Twitter 是一个专制主义的管控平台，它更愿意向独裁政权和塔利班恐怖分子伸出了橄榄枝，这消息已经广为流传。最重要的是不要忘了，比特币的最大拥有者是中国共产党，也就是说比特币的蔓延是标志着党国重器向各国境内的扩张。**
+[德意志银行首席财务官詹姆斯·冯·莫尔特克（James von Moltke）周四表示，德意志银行认为，欧洲银行业应该进行整合，目前的任务是为这一结果做好准备。James von Mooltke在美国银行证券（BofA Securities）主办的一次金融会议上表示，该行在考虑重大交易之前，应首先完成战略改革。他在回答一个问题时表示：”我们看到了欧洲银行业应该进行整合的行业逻辑。这是我们公司未来看到的东西, 我们专注于转型，这是我们需要做的，为这种可能性做好准备。”德意志银行曾多次与一家领先的瑞士银行建立合作关系，但首席执行官克里斯蒂安-苏因（ChristianSewing）一直表示，他2019年推出的扭亏计划应首先见效。该行去年公布了自2014年以来的首次全年利润，上月从穆迪（Moody’s）上调评级中获得了提振。](https://finance.yahoo.com/news/deutsche-bank-cfo-banking-m-092120059.html)
 
-**推特和脸书的“完美体验”包括了人脉、流量和资金流的热度。据2021年9月23日《大全》[报道](https://www.newsmax.com/politics/trump-twitter-terms-of-service-ban/2021/09/23/id/1037655/)，前美国总统唐纳德·川普的律师[在佛罗里达州对Twittter提起诉讼，](https://storage.courtlistener.com/recap/gov.uscourts.flsd.595801/gov.uscourts.flsd.595801.58.0.pdf)要求恢复他对自己账户的访问权限，称该账户是作为政府官员而非普通公民的“官方沟通的关键渠道”。也就是说推特已经成为了希特勒时候的太保，凌驾于法律之上。我们小老百姓心里有数，可比不了川普的实力。**
-
-**最后补充，萨尔瓦多的比特币是越看越像是港币了。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：《[市场观察](https://www.marketwatch.com/story/why-the-debut-of-tipping-bitcoin-on-twitter-isnt-just-about-tipping-11632424386?mod=hp_LATEST&amp;adobe_mc=MCMID=03287061211669659514148137854946098508%7CMCORGID=CB68E4BA55144CAA0A4C98A5%2540AdobeOrg%7CTS=1632448718)》｜作者：《马克·德坎布雷》｜发布时间：2021年9月23日
-
-* * *
-
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
+By 【秘密翻译组-金融组】
+作者：和理非

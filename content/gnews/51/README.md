@@ -2,45 +2,31 @@
 ---
 
 
-## 爆料革命战友守望相助——英喜在行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1554276/)
+## 比电荒还荒的是人心
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1554575/)
 
-作者：英国伦敦喜庄园 仙女儿-文善
+![](https://assets.gnews.org/wp-content/uploads/2021/09/人心.jpg)图片来源于网络
+限电的通知还没发送到各个企业，停电的通知就接踵而来，而停电的原因竟然是缺煤。而缺煤的中国，八月份“出口煤炭47万吨，同比增长168.5%”。
 
-2021年9月25日
-[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/a39f0a89-cea2-4416-871e-28f34ea08f87.png?asset_id=b41a65f8-99a3-49d2-8c25-e9aca9d9325d&amp;img_etag=%222a920e99c3becaf7bd8ec095535beb44%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/a39f0a89-cea2-4416-871e-28f34ea08f87.png?asset_id=b41a65f8-99a3-49d2-8c25-e9aca9d9325d&amp;img_etag=%222a920e99c3becaf7bd8ec095535beb44%22&amp;size=1024)
-昨日（24/09/2021），CCP病毒在英国新增病例35623人，死亡人数180人。累计感染人数高达757万人，累计死亡人数逾13.6万人。对于一个总人口约为6600万人的英国，这些与CCP病毒相关的数据未免过于触目惊心了，这些冰冷的数字背后对应的都是一个个鲜活的生命与忍受痛苦的家庭。这些数字意味着每10位常住人口中就有1位遭遇过CCP病毒的侵害，每500位常住人口中就有1位被CCP病毒夺走了生命。病毒仍在继续，然而，更加糟糕的疫苗灾害才刚刚开始。
-[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/8d2a3839-f690-46c3-aeb3-0cecd2d195f2.png?asset_id=7ca732fe-9f8f-488b-bdfa-fbba1cd1e81f&amp;img_etag=%2220b8d3b7da212f7522a85fb0fd956e22%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/8d2a3839-f690-46c3-aeb3-0cecd2d195f2.png?asset_id=7ca732fe-9f8f-488b-bdfa-fbba1cd1e81f&amp;img_etag=%2220b8d3b7da212f7522a85fb0fd956e22%22&amp;size=1024)
-中共病毒面前人人平等，人人都是受害者，人人都不能袖手旁观。在中共倒塌的这个过程中，我们新中国联邦爆料革命的战友作为最先觉醒的那一群人，唯有手拉手、背靠背、互帮互助，继续传播CCP病毒和疫苗真相，让更多人远离病毒、战胜病毒，并使更多的人加入到爆料革命的大家庭当中来，才可以挽救更多的生命。
+这是一个多么荒谬的存在，一边是路有冻死骨，一边却是朱门酒肉臭。这政府要有多么的不要脸，才能把这则新闻肆无忌惮地跟停电的消息同时放出，连遮遮掩掩都不要了？
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-14.png)图片来源于网络
+政府不要脸不可怕，更可怕的是媒体的态度和百姓的脑残。我在今日头条输入“限电原因”，第一条便出现一个叫商业财经谈的视频观点，点开听了一下，跟网易新闻一样，全然无视企业的艰难，全部是给CCP洗地的。甚至有些标题跪舔得让人恶心，譬如网易新闻有一则题为“开一停六，限电、停产席卷多个省份，中国正在下一盘大棋”。真想问候这个作者的祖宗，工厂开不了工，房租谁付？工人工资要不要发？资金周转失灵怎么办？违约了，还有可能再加上赔款。这么多的折腾，几个工厂能熬过去不倒闭？当工厂因为停电而倒闭，这么多的工人吃你们刚刚发明的“西北风馒头”去吗？一个国家民生都保障不了，还有什么棋比保障民生更大的呢？
 
-自从郭先生在直播中揭秘CCP病毒解药以来，爆料革命挽救了无数的战友及其家人朋友的生命。下面是一位来自英国伦敦喜庄园的战友与我们一起分享她和家人从感染CCP病毒到康复的过程，希望可以帮助那些正在遭受CCP病毒折磨的人早日康复。
-[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/0ce1283e-18e4-417b-8ea5-5bee34bcf536.png?asset_id=d0b1d1c0-9d48-47c0-8a0b-c080b086a31b&amp;img_etag=%226cef435f88eba1512f7de6c0f1f24174%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/0ce1283e-18e4-417b-8ea5-5bee34bcf536.png?asset_id=d0b1d1c0-9d48-47c0-8a0b-c080b086a31b&amp;img_etag=%226cef435f88eba1512f7de6c0f1f24174%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/22f8b809-31ca-410c-97f7-35178347daa6.png?asset_id=d27a7b6c-5efc-4aab-9792-67c6edcff919&amp;img_etag=%224a6c825b0b4b11e71314f7002893fa62%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/22f8b809-31ca-410c-97f7-35178347daa6.png?asset_id=d27a7b6c-5efc-4aab-9792-67c6edcff919&amp;img_etag=%224a6c825b0b4b11e71314f7002893fa62%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/7165dab4-7c5a-405f-a50c-8ff38af700a7.png?asset_id=26029634-6efe-496d-8017-997aaffbf196&amp;img_etag=%22a2afb7c8a2081b2ecdfcf134f24c1a3d%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/7165dab4-7c5a-405f-a50c-8ff38af700a7.png?asset_id=26029634-6efe-496d-8017-997aaffbf196&amp;img_etag=%22a2afb7c8a2081b2ecdfcf134f24c1a3d%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/44b18a55-6e34-4ecd-b5ed-83344fca6543.png?asset_id=5fe90e52-6f07-4a5d-873e-8482890b27bf&amp;img_etag=%220e95308bbc8ddf1c079efb38a12f7b98%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/44b18a55-6e34-4ecd-b5ed-83344fca6543.png?asset_id=5fe90e52-6f07-4a5d-873e-8482890b27bf&amp;img_etag=%220e95308bbc8ddf1c079efb38a12f7b98%22&amp;size=1024)[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/9edd9e98-9c52-4273-a802-639c48827bb5.png?asset_id=9e2a3ed4-ceb4-4851-8388-f0ead3d96d72&amp;img_etag=%22ef14a82415a348fb0a2dc63ed23d5516%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/9edd9e98-9c52-4273-a802-639c48827bb5.png?asset_id=9e2a3ed4-ceb4-4851-8388-f0ead3d96d72&amp;img_etag=%22ef14a82415a348fb0a2dc63ed23d5516%22&amp;size=1024)
-英国伦敦喜庄园这位战友关于CCP病毒的历险记，再一次给大家敲响了警钟——预防永远优于治疗。为了每一位关心您和您关心的人，请务必做到防患于未然。
+当然狗奴才就这德性，他们这些狗不这样写，就领不到一点骨头渣啃，也算正常。让人更难过的是下面的有些跟贴的，譬如网易的一则跟贴说，“大家忍一忍，我们不买土澳的煤不出半年，他们就得饿死了”？我们不买土澳的煤都已经快一年了，他们没少了一根毛，你的主子却穷得拿煤去换外汇了，你眼睛瞎了吗?还有那个今日头条里那个有8000多粉线商业财经号里很多人的跟帖，其中有一则说停电是为“让美国的通胀多涨一点，它们就会爆。不懂吗？格局要大”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-49.jpg)图片来源于网络![](https://assets.gnews.org/wp-content/uploads/2021/09/5-7.png)图片来源于网络
+都不知道扯到哪里去了，你自己国家的老百姓都活不下去了，也要让美国的通胀多一点。你的格局要大到自绝于美帝，就是要让他们通胀多一点？再联想到几天前的一个微信家长群里一傻逼的话，一面叫嚣着说“美帝太坏了，让病毒把他搞死了才好”，接下去马上另一副嘴脸，“我家雨欣要是能去美国留学，真是祖上烧高香了”。我相信这些人不是五毛的带风向，而是他们内心的真实想法。他们都有一副“家国大业”的情怀，一方面对美帝等西方国家恨之入骨，巴不得把他们生吞活剥，好像有几代的杀父夺妻之仇，但对奴役自己的共产党逆来顺受奴颜婢膝，天天把毛腊肉加速师当神一样的供着；另一方面，却以自己的子女能到西方国家镀金为荣，如果能搞到一张绿卡，那简直是无尚荣光。其人格之分裂，已经是无法直视。
 
-下面是英国伦敦喜庄园在其GETTR中向大家发出的温馨提示：
+为什么咱中国有那么多的人格分裂认贼作父（爹亲娘亲不如党亲）的脑残？因为这一片土地有毒，这毒是共产党在中国人的脑子里种下的共产主义病毒。从你咿呀学语开始，他们就让你学唱《没有共产党就没有新中国》这些洗脑歌曲，在课堂上，用标准答案的方式从小开始防止有独立思想的“人”的诞生，并篡改历史，不断对自己涂脂抹粉，把自己打扮成救世主，不断变着法向少年儿童灌输。同时，不断把西方国家当成假想敌，成功制造了国人的仇恨。当互联网以势不可挡之势席卷而来时，他们又筑起了高高的防火墙，把国外的所有不利于他们的消息封锁得滴水不进。一旦有人反抗，就用各种手段对其从肉体上或者精神上消亡。特别是八九六四以来，中华民族在有毒的党文化的土壤里，渐渐失去了脊梁骨，连思想也消失了。没有了是非善恶的判断，也没有了“物伤其类”的悲悯，彻底退化成了义和团的模样，沦为了中共的脑残打手。
 
-1. 染病不要慌，及时与农场义工取得联系。英喜战友请加入抗疫战友互助群，分享自己的症状和各项身体指数，互帮互助！提醒家人和朋友提高抗毒意识。
+电荒并不可怕，比电荒更可怕的是共产党制造的“心荒”，那才是新中国联邦取代中共后，治理国家的最大的敌人。
 
-2. 每个人身体素质和患病情况不同，切勿病急乱吃药！咨询农场战友，及时反馈用药效果，战友互助，尽力帮助战友和家人恢复健康。
+（文章仅代表作者观点）
 
-3. 送药救战友刻不容缓，不幸中招的战友要及时联系农场。战友会竭力送药上门，同时也请战友们在能力范围之内，尽自己所能备足预防及早期治疗药物，关键时刻救人救己。
-[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/5a1c9af3-7884-4a50-971f-57ae47c7cf17.png?asset_id=86725603-1485-483c-b447-60477a381e38&amp;img_etag=%22e2b7c26ec0a57e26e9238146f09e6e45%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/5a1c9af3-7884-4a50-971f-57ae47c7cf17.png?asset_id=86725603-1485-483c-b447-60477a381e38&amp;img_etag=%22e2b7c26ec0a57e26e9238146f09e6e45%22&amp;size=1024)
-近期，在郭先生和爆料革命战友们的精彩大直播中，郭先生为我们解密了病毒解药、解读了恒大危机背后的腐败、台海危机背后的勾兑与较量……可谓精彩纷呈，但也让我们清楚地看到了CCP猛踩油门奔向死亡的狰狞模样。所以在振奋之余，我们又不禁为CCP的丧心病狂、为这个世界和人类的未来担心，因为根据郭先生的情报，冠状病毒并非CCP这个魔鬼制造的唯一病毒，也不是杀伤力最强的病毒，后续可能会有更可怕的、让人七窍出血的“热病毒”。这些病毒和疫苗究竟会带走多少无辜的生命？我们又应该或有能力做些什么呢？
+作者：天雷滚滚
 
-面对这一切，我们爆料革命战友首先应该做的就是团结在一起，助己助人。在中共与邪恶势力勾结，祸害全人类的至暗时刻，我们是最先觉醒的那一群人，是那个最幸运的群体，同样也是肩负使命的群体，我们是至暗时刻中的火种，有责任把真相的光传递到世界的各个角落。
+审核：兵嫂
 
-爆料革命战友守望相助——英喜在行动。欢迎加入英国伦敦喜庄园！
+发布：新宝
 
-英国伦敦喜庄园Discord邀请链接：https://discord.gg/gQcCnsACar
-
-（本文仅代表作者个人观点）
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对：文明明 | 审核：文明明 | Page：青山*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/E5taNbNcIPlxG/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/E5taNbNcIPlxG/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家.jpg)
