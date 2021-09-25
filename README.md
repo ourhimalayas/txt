@@ -103,29 +103,29 @@
 ### [台湾，你正处于极度危险中！](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/31/README.md)
+### [秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/32/README.md)
+### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/33/README.md)
+### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/34/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/35/README.md)
  ` wenwu`
 
-### [币圈新闻动态：中国人民银行发布进一步防范和处置虚拟货币交易炒作风险的通知](/content/gnews/35/README.md)
+### [币圈新闻动态：中国人民银行发布进一步防范和处置虚拟货币交易炒作风险的通知](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：中国驻日使馆称，日方应慎重妥善处理CPTPP涉台问题](/content/gnews/36/README.md)
+### [DC大中华时事：中国驻日使馆称，日方应慎重妥善处理CPTPP涉台问题](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/37/README.md)
+### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [回忆墨尔本往事一二](/content/gnews/47/README.md)
+### [国际要闻汇编](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共公司要求禁售能通过卫星链接互联网的iPhone13](/content/gnews/49/README.md)
+ ` 日本东京方舟农场`
+
+### [回忆墨尔本往事一二](/content/gnews/50/README.md)
  ` 澳喜农场`
 
-### [说说预防备药和自救](/content/gnews/48/README.md)
+### [说说预防备药和自救](/content/gnews/51/README.md)
  ` 澳喜农场`
 
-### [中共各部门协同、央地联动，坚决遏制“炒币”风](/content/gnews/49/README.md)
+### [中共各部门协同、央地联动，坚决遏制“炒币”风](/content/gnews/52/README.md)
  ` 儒为`
 
-### [孟晚舟获释回中共国，真是她的幸运？](/content/gnews/50/README.md)
+### [孟晚舟获释回中共国，真是她的幸运？](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/51/README.md)
+### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/54/README.md)
  ` 澳喜农场`
 
-### [中国人亟需重拾最基本的常识](/content/gnews/52/README.md)
+### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/53/README.md)
+### [中国人亟需重拾最基本的常识](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [短视频：接种了辉瑞疫苗，你就进入了临床试验](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线：纽约州采取各种手段强迫医护人员接种疫苗](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [“杨改兰”是谁](/content/gnews/56/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [达扎克承认福奇资助了中共国冠状病毒研究](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
