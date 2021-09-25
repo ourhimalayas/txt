@@ -28,23 +28,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（七）](/content/gnews/6/README.md)
+### [2018年12月9日郭文贵先生谈量震床上功夫、G20中美峰会真相及孟晚舟和张首晟被自杀](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文·贵天成——文贵先生谈“恒大许家印”（七）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/24/2021 七哥直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习](/content/gnews/7/README.md)
+### [9/24/2021 七哥直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵直播摘要和音频2021.9.24](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [Peter Daszak发起了一场秘密运动来反驳实验室泄漏理论](/content/gnews/9/README.md)
+ ` wenwu`
 
-### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/9/README.md)
+### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/10/README.md)
+### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/11/README.md)
  ` 澳喜农场`
-
-### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/12/README.md)
  ` wenwu`
@@ -85,23 +85,23 @@
 ### [金融信托的猫腻](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共整肃演艺圈行动升级 横店剧组建立临时党支部](/content/gnews/25/README.md)
+### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国为恒大倒闭做准备](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [美国司法部延长对孟晚舟的起诉协议](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [台湾，你正处于极度危险中！](/content/gnews/29/README.md)
+### [中共整肃演艺圈行动升级 横店剧组建立临时党支部](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/30/README.md)
+### [中国为恒大倒闭做准备](/content/gnews/27/README.md)
  ` GTV新闻访谈`
+
+### [拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [美国司法部延长对孟晚舟的起诉协议](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [台湾，你正处于极度危险中！](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [币圈新闻动态：中国人民银行发布进一步防范和处置虚拟货币交易炒作风险的通知](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国人亟需重拾最基本的常识](/content/gnews/47/README.md)
+### [孟晚舟获释回中共国，真是她的幸运？](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“杨改兰”是谁](/content/gnews/48/README.md)
+### [中国人亟需重拾最基本的常识](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“杨改兰”是谁](/content/gnews/50/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [诗歌：鲜花与水炮](/content/gnews/49/README.md)
+### [诗歌：鲜花与水炮](/content/gnews/51/README.md)
  ` GISELLE`
 
-### [零对冲对加密货币市场最新变化的更新（FW38）](/content/gnews/50/README.md)
+### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
+
+### [零对冲对加密货币市场最新变化的更新（FW38）](/content/gnews/53/README.md)
  ` 纽约香草山MOS02`
 
-### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/51/README.md)
+### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [没有疫苗护照的工人在意大利不会得到报酬](/content/gnews/52/README.md)
+### [没有疫苗护照的工人在意大利不会得到报酬](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：什么是让人七窍出血的热病毒？](/content/gnews/53/README.md)
+### [秘翻在线：什么是让人七窍出血的热病毒？](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/54/README.md)
+### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [以色列疫苗受害者的证词（1/6）](/content/gnews/55/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [劳斯莱斯将为B-52轰炸机机队重新打造新喷气发动机](/content/gnews/56/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共可能用“超级MERS”对美国发动新一轮致命生物武器攻击](/content/gnews/57/README.md)
- ` 秘密翻譯組G-Translators`
 
