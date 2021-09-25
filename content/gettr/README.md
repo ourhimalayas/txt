@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/25/2021 5:59 AM (UTC)`
+
+9/24/2021 Miles Guo: Bohai Capital Holding fabricated its 20 trillion yuan worth of assets with lies and fraudulent appraisals; HNA managed to grow 20,000 times a day by swindling the Lao Baixing’s money and fraudulent accounting. Evergrande and HNA employ the same scam - taking away 1,000 yuan from every 10,000 yuan defrauded out of the Lao Baixing; The state-owned real estate companies profit by taking kickbacks, while the private enterprises rely upon laundering money to the overseas<br/><br/>9/24/2021 文贵直播：渤海金控用谎言和虚假评估伪造了20万亿的资产，海航通过骗老百姓的钱和做假帐达到了所谓每天2万倍的成长；恒大和海航都用同一套路骗钱，骗老百姓一万块拿走一千；国有房地产全靠吃回扣，私营企业全靠洗钱到海外去
+![img](https://media.gettr.com/group18/getter/2021/09/25/05/59/d58a47d3-094c-9d66-8be2-6592108a6c46/out.jpg)
+
+---
+
 `@miles 9/25/2021 4:43 AM (UTC)`
 
 9/24/2021 Miles Guo: It is HNA that is going to bring about China’s economic collapse! HNA has more debts than Evergrande! Chen Feng, Wang Jian have transferred large amounts of money overseas.<br/><br/>9/24/2021 文贵直播：真正要导致中国经济崩溃的是海航！其债务比恒大还多！陈峰、王健早已把大量金钱转移到海外。<br/>
@@ -285,14 +292,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月19号：尊敬的战友们好，明天9月20号没有大直播，七哥要全力以赴开好当下的会．直播时间是另行通告，一切都已经开始！
 ![img](https://media.gettr.com/group8/getter/2021/09/20/03/9a73c5af-dd1b-c5e5-979b-6c888c7df1a4/32f646594db909f84005dfc2c7c0af6b.jpg)
-
----
-
-`@miles 9/20/2021 3:41 AM (UTC)`
-
-9月19号：大家务必看完这个视频，【这是一个真正的完整版的FDA h这是Dr Kirsch FDA会议作证的完整版，比郭先生以前发的那个视频多了几个重要的内容，包括辉瑞临床试验可能造假数据和欺诈。 而且还有一个脑筋急转弯问题，为什么以色列90岁以上老人疫苗接种率在过去四个月不仅不升，反而大幅下降？ 因为接种的老人死了大半！】喜站出品必是精品！
-> `@globalhimalaya 9/20/2021 3:28 AM (UTC)`<br/>FDA meeting reveals: the vaccine kills more people than it saves! It killed at least 2 people to save 1 life.  A must watch!<br/>(完整版)FDA会议上披露：疫苗杀死的人远多于救的人！至少杀死2个人，才能救1个人，这还是假设疫苗有效率100%的前提下。辉瑞临床实验中，疫苗实验组死了20人，对照组死了14人。实验组心脏病发病率比对照组高4倍。而且辉瑞临床实验涉嫌欺诈和修改数据！<br/>以色列养老院90岁以上老人的接种率在过去4个月竟从 94.4% 下降到了 82.9%，为什么呢？因为一半以上打疫苗的老人都死了！
-![img](https://media.gettr.com/group20/default/20210920/03/28/a24c7d24-ad17-bfa3-fb2c-9d694d95865d/out.jpg)
 
 ---
 
