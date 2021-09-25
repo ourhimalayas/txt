@@ -2,25 +2,30 @@
 ---
 
 
-## 郭文贵：共军携带核武扰台 实现三个第一
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1553279/)
+## 民族之性还是制度之恶
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553308/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/odmyz6uw18151.jpg)图片来源：Reddit
+**作者：**晨夕
+**编辑：**翼族
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-24-PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
+彼特·纳瓦罗先生是川普政府时代的白宫国家贸易委员会主任，也是一名经济学家。他的新书《川普时代：美国瘟疫年日志》将于11月2日在亚马逊上发售，同时电子版也将上线，目前预售阶段就已经排名政治类书籍销售榜的第一名，引起了全世界巨大的关注。
 
-视频参看： 2021.09.24晚GTV新闻访谈
+彼特·纳瓦罗先生是新中国联邦的形象大使和坚定支持者，他了解中共的邪恶，深信新中国联邦一定能灭共，更相信美国政府一定会承认新中国联邦。纳瓦罗先生是典型的美国人，相信的事情才会说，没有虚伪客气掩饰，纳瓦罗先生的支持是发自内心的，所以他的信任非常珍贵，代表着美国精英对新中国联邦的认识和态度。
 
-[https://gtv.org/broadcast/watch/614e6d3142a8af3151a4f865](https://gtv.org/broadcast/watch/614e6d3142a8af3151a4f865)
+而最发人深省的是纳瓦罗先生的一句话——中国人什么时候能不下跪啊，下跪能解决问题吗——这既是批评也是建议，值得每一个中国人反省和深思。而可悲的是，这却是中华民族历史上遭受不公时一贯的解决方法，比如当街下跪告御状。今天发生在墙国的这一幕是告御状的延续？还是被中共奴役七十年，被一个又一个运动将脊梁骨打断，不知如何反抗和表达自己意愿？这是一个非常沉重的话题。
 
-编辑/校对/发稿： Lakers
+这个问题要看结果——谁最喜欢——当然是统治者！中华民族不缺敢言者，但是都被物理消灭了，比如林昭，张志新，只因为说了真话惨遭割喉枪杀——下跪是中共希望看到的情景也是他们制造的。比如香港，2019年百万人一次又一次走上街头，而现在说真话的媒体被封杀、社会组织被解散，个人被追责、被失踪、被自杀、被拘捕、被流亡……按照中共打压的力度和速度，有朝一日香港街头也会出现下跪鸣冤者，这正是共产党一手制造的结果——并不能说香港人没有反抗精神。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+认清中共的本质，看清中共对世界的伤害和危害！共产党不灭，世界再无自由与和平！
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

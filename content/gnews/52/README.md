@@ -2,27 +2,18 @@
 ---
 
 
-## 嘴皮斗不过肚皮，中共国抢购澳大利亚小麦
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1553297/)
+## 三星将为特斯拉生产下一代全自动驾驶芯片
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553295/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16325369551.png)
-据路透社9月25日报道，北半球多个小麦生产国因遭遇恶劣天气而减产，导致全球粮食不足，粮食价格上涨。处于南半球的澳大利亚则连续第二年获得小麦大丰收。澳大利亚也是世界上主要的小麦出口国之一。
+#### 撰稿：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-23.jpg)图片来源：网络截图
+据《电子杂志》9月23日报道，根据来自韩国的一份最新报告，特斯拉目前正在与三星电子谈判，生产其下一代全自动驾驶芯片。新的芯片预计将在明年率先在特斯拉网络卡车上推出。
 
-中共国作为世界上最大的小麦生产和消费国，其小麦产量和质量满足不了需求，所以中共国也成为国际粮食市场上最大的小麦买家。尽管中共国与澳大利亚的关系持续恶化，北京对澳大利亚发动的贸易战也不见缓解，但并不影响中共国高价抢购澳大利亚小麦。中共国已经成为澳大利亚将收割的小麦的主要买家。
+为特斯拉最初提供动力的Nvidia电脑没有足够的计算能力来完成通过未来软件更新实现完全自动驾驶的能力，因此最新的迭代的FSD电脑，由特斯拉自己设计的芯片驱动，将由三星生产。特斯拉明确表示这台新电脑将足以在未来的软件更新中提供完全的自动驾驶能力，并且他们会一直开发下一代的芯片。新硬件的目标将是使特斯拉能够增加人类司机和自动驾驶汽车之间的安全差距。
 
-中共国大肆采购澳大利亚小麦，一是为了补足国内的缺乏，二是补充已经消耗的库存，三是满足在非洲猪瘟过后大力发展养猪业的饲料需要。中共目前仍然对澳大利亚葡萄酒和大麦征收反倾销税，同时减少澳大利亚煤炭和牛肉的进口，但是小麦采购没有受到政治关系恶化或贸易战的影响。
+首席执行官埃隆.马斯克认为其FSD硬件3，或者说完全自驾驶计算机1，将能够完全自驾游，其安全水平远远高于人类。最新的硬件4或自动驾驶计算机2，将会在大约一年左右的时间内与网络卡车一起推出，将是大约4倍的能力。
 
-新闻参考链接：[https://www.voachinese.com/a/China-spends-big-on-Australian-wheat-despite-trade-war-20210924/6244365.html](https://www.voachinese.com/a/China-spends-big-on-Australian-wheat-despite-trade-war-20210924/6244365.html)
+《韩国经济日报》的消息称，特斯拉决定将HW 4.0自动驾驶芯片外包给三星，现在正处于与三星谈判生产新芯片的最后阶段，三星计划在其华星工厂使用其7纳米技术生产该芯片。
 
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻来源：[Tesla is in talks with Samsung to produce its next-gen Full Self-Driving chip](https://electrek.co/2021/09/23/tesla-in-talks-samsung-produce-next-gen-full-self-driving-chip/)
