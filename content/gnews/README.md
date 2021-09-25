@@ -13,14 +13,14 @@
 
 ---
 
-### [中共是印尼屠杀华人肇因，未来海外华人处境更凶险！](/content/gnews/1/README.md)
- ` 军迷wilson`
+### [喜币上市在即，中共国宣布虚拟币交易和宣传皆违法](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
 
-### [9/23/2021 七哥直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒”](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
+### [孟晚舟在布鲁克林法院听证上签下延期起诉协议](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
 
-### [北京反对四方峰会](/content/gnews/3/README.md)
- ` Charlie`
+### [恒大危机之外，中共国经济还有更大的麻烦](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -28,13 +28,13 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/24/2021 七哥直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（七）](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9/24/2021 七哥直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵直播摘要和音频2021.9.24](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [不要用兔子的视野来看整个动物世界](/content/gnews/8/README.md)
+### [郭文贵直播摘要和音频2021.9.24](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [以色列疫苗受害者的证词（1/6）](/content/gnews/9/README.md)
@@ -85,38 +85,38 @@
 ### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/24/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/25/README.md)
+### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [喜币上市在即，中共国宣布虚拟币交易和宣传皆违法](/content/gnews/26/README.md)
+### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [劳斯莱斯将为B-52轰炸机机队重新打造新喷气发动机](/content/gnews/27/README.md)
+### [没有疫苗护照的工人在意大利不会得到报酬](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [劳斯莱斯将为B-52轰炸机机队重新打造新喷气发动机](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多国民众组织抗议全球食品业巨头](/content/gnews/28/README.md)
+### [多国民众组织抗议全球食品业巨头](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [三星将为特斯拉生产下一代全自动驾驶芯片](/content/gnews/29/README.md)
+### [银河快讯：菅义伟呼吁减轻半导体矿物资源对华依赖；松下千名员工提前退休](/content/gnews/31/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [秘翻在线：什么是让人七窍出血的热病毒？](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵：共军携带核武扰台 实现三个第一](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
-
-### [孟晚舟在布鲁克林法院听证上签下延期起诉协议](/content/gnews/31/README.md)
- ` 纽约香草山MOS02`
-
-### [秘翻在线：中共可能用“超级MERS”对美国发动新一轮致命生物武器攻击](/content/gnews/32/README.md)
+### [秘翻在线：中共可能用“超级MERS”对美国发动新一轮致命生物武器攻击](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [陈峰被抓，孟晚舟回家，加密货币被封杀！](/content/gnews/33/README.md)
+### [陈峰被抓，孟晚舟回家，加密货币被封杀！](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本汽车业受中共病毒影响，今年预计损失超万亿日元](/content/gnews/34/README.md)
+### [日本汽车业受中共病毒影响，今年预计损失超万亿日元](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [恒大危机之外，中共国经济还有更大的麻烦](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [众议员安迪·巴尔：国防授权法案中获得通过，美国必须监视和反击中共破坏 台湾自由的任何企图。](/content/gnews/36/README.md)
  ` 美国政要直译推`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墨尔本警方限制空中直播抗议活动，引媒体抨击](/content/gnews/47/README.md)
+### [零对冲对加密货币市场最新变化的更新（FW38）](/content/gnews/47/README.md)
+ ` 纽约香草山MOS02`
+
+### [墨尔本警方限制空中直播抗议活动，引媒体抨击](/content/gnews/48/README.md)
  ` 墨尔本雅典娜农场`
 
-### [多重压力下高耗能民企停产 浙印染产能“全军覆没”](/content/gnews/48/README.md)
+### [多重压力下高耗能民企停产 浙印染产能“全军覆没”](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [民族之性还是制度之恶](/content/gnews/49/README.md)
+### [三星将为特斯拉生产下一代全自动驾驶芯片](/content/gnews/50/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [民族之性还是制度之恶](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [嘴皮斗不过肚皮，中共国抢购澳大利亚小麦](/content/gnews/50/README.md)
+### [嘴皮斗不过肚皮，中共国抢购澳大利亚小麦](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [杰森·米勒在英法两国推广盖特](/content/gnews/51/README.md)
+### [郭文贵：共军携带核武扰台 实现三个第一](/content/gnews/53/README.md)
+ ` 纽约香草山MOS01`
+
+### [杰森·米勒在英法两国推广盖特](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [以色列将禁止没有绿色通行证的教师进入学校](/content/gnews/52/README.md)
+### [以色列将禁止没有绿色通行证的教师进入学校](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《我是音雄》第二季第五期 欧洲专场 节目预告](/content/gnews/53/README.md)
+### [《我是音雄》第二季第五期 欧洲专场 节目预告](/content/gnews/56/README.md)
  ` 我是音雄`
 
-### [报道：恒大崩盘后会引起中共国社会动荡](/content/gnews/54/README.md)
+### [报道：恒大崩盘后会引起中共国社会动荡](/content/gnews/57/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [《我是音雄》第二季第四期首场复赛花絮·回顾](/content/gnews/55/README.md)
- ` 我是音雄`
-
-### [澳大利亚国会议员提议对澳洲警察在墨尔本的恶意执法进行司法调查](/content/gnews/56/README.md)
- ` 澳喜农场`
-
-### [中共“千人计划”为新港人治港做好准备](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
