@@ -28,14 +28,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021/09/24 文贵先生直播精要](/content/gnews/6/README.md)
+### [《什么是影子银行》](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021/09/24 文贵先生直播精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/23 文贵先生直播精要](/content/gnews/7/README.md)
+### [2021/09/23 文贵先生直播精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [台湾两人因注射阿斯利康疫苗死亡](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧洲煤炭价格达13年高位](/content/gnews/47/README.md)
+### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/47/README.md)
  ` HimalayaRussia`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/48/README.md)
+### [欧洲煤炭价格达13年高位](/content/gnews/48/README.md)
+ ` HimalayaRussia`
+
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国放松制裁允许与塔利班进行部分交易](/content/gnews/49/README.md)
+### [美国放松制裁允许与塔利班进行部分交易](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [美国务院谴责塔利班在阿富汗恢复处决的计划](/content/gnews/50/README.md)
+### [美国务院谴责塔利班在阿富汗恢复处决的计划](/content/gnews/51/README.md)
  ` HimalayaRussia`
 
-### [比电荒还荒的是人心](/content/gnews/51/README.md)
+### [比电荒还荒的是人心](/content/gnews/52/README.md)
  ` 银河勇气之星`
 
-### [香港658名政府工作人员拒签宣誓声明，选择离职](/content/gnews/52/README.md)
+### [香港658名政府工作人员拒签宣誓声明，选择离职](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/53/README.md)
+### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/54/README.md)
+### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/55/README.md)
  ` 英喜-粵語組`
 
-### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/55/README.md)
+### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/56/README.md)
  ` 纽约香草山MOS01`
 
-### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/56/README.md)
+### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/57/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [爆料革命战友守望相助——英喜在行动](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
