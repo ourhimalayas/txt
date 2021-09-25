@@ -2,49 +2,30 @@
 ---
 
 
-## 郭文贵先生揭露更多海航、陈峰、王岐山的内幕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553533/)
+## 达扎克承认福奇资助了中共国冠状病毒研究
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1553567/)
 
-栏目记者/责任编辑：Zion文恩
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-6.jpg)网络图片
 
+生态健康联盟主席彼得·达扎克（Peter Daszak）在2017年全球卫生大学联盟会议上与安东尼·福西（Anthony Fauci）共同出席一个小组会议上发言时承认，他备受争议的“中共国冠状病毒研究”是在福奇的美国国家卫生研究院（NIH）“资助”下进行的。
 
+此次被揭发的会议之前，Fauci曾多次试图将他的机构，与这家总部位于纽约的、有争议的非营利机构划清界限，正如NIH的拨款登记表所显示的那样，该机构利用这笔资金与武汉病毒研究所合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+彼得·达扎克在回答康奈尔医学院的奥利弗·费恩（Oliver Fein）提出的联邦资金问题时回答说：”即使是国际赠款，这些资金大部分也通过像我们这样的美国组织，然后再向国外拨款。他断言：“我们目前最糟糕的病毒是川普政府。”
 
+达扎克和福奇都一再在中共管理的实验室的研究类型上撒谎，，因为 通过《信息自由法》（FOIA）获得的福奇的大量电子邮件显示，该实验室正在开展”功能增强”研究，被删除的文章显示，尽管达扎克否认，但该实验室仍然使用了活体蝙蝠。
 
+达扎克没有透露他与武汉实验室和中共的广泛联系，他被《柳叶刀》医学杂志COVID-19委员会回避，但他仍出现在主流新闻网络上。
 
+**原文链接：**[https://thenationalpulse.com/exclusive/peter-daszak-admits-china-coronavirus-work-funded-by-nih/](https://thenationalpulse.com/exclusive/peter-daszak-admits-china-coronavirus-work-funded-by-nih/)
 
+* * *
 
-海航集团董事长陈峰，首席执行官谭向东被中共当局采取强制措施这一消息的爆出，人们慨叹郭先生4年前对海航的精准爆料，以及2018年一众战友对海航原董事长王健之死事件的调查真相。9月24日，郭先生在直播中揭露了海航集团与共产党盗国家族的更多内幕。
-
-郭先生说，陈峰、谭向东两年前就处于监视居住的状态。此二人一个月前就被逮捕。自王健2018年在普罗旺斯“脚疼死”后，海航大约两万多人被监控。陈峰、王健等人在王岐山的授意下，在全国7个省市，囤了大量土地和煤矿投资。几个常委——张德江、李长春、韩正、江泽民、朱镕基、曾庆红等家族牵涉其中。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-48.jpg)
-海航早在2018年负债已达三万亿；而旗下的渤海金控的20万亿资产，是通过虚假金融评估、金融机构参股、认购、再评估的伎俩而计价。中国老百姓的血汗钱早就被这些伎俩给吸走了。海航集团80%的交易，都与黑石集团、以及苏世民有关。由朱镕基、王岐山掌控的中投集团，一直是黑石的投资大户，然而中投鲜有盈利，黑石的年报却一直稳中有升。其间猫腻已不言自明。
-
-陈峰被捕后，海航约有40~50%的资产作为王岐山等盗国贼的财产流散在海外。郭先生表示，这些财富，爆料革命和新中国联邦将替海航的苦主们悉数追回，还中国人应有的尊严和财富。
-
-参考链接：
-[2021年9月24号文贵直播完整版：中共昨天对台演习大涨中共气势，第一次挂核弹以立体全实战模式对台湾实战演习；陈峰被抓的下场七哥第一天爆料海航就已经注定，陈峰早已被监控2年，配合专案组处理海外资产，七哥将帮助找出航海在海外隐藏的更多资产](https://gtv.org/video/id=614debaf42a8af3151a4a1ed)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
