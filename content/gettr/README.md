@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/25/2021 6:58 AM (UTC)`
+
+9/24/2021 Miles Guo: Chen Feng had been formally arrested months ago and had lost his freedom for two years. Chen Feng’s daydream that Wang Qishan would replace Xi to be the head of the CCP in the 20th Party Congress has been broken! The first overseas investment made by the Chinese people in history was the CIC’s investment in Blackstone. About 40-50% of HNA’s assets are hidden overseas now.<br/><br/>9/24/2021 文贵直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久; 陈峰关于王岐山20大取代习当老大的幻想已破灭！ 中投投资黑石是中国人有史以来第一笔在海外的投资; 海航仍有40%-50%的资产藏在海外<br/>
+![img](https://media.gettr.com/group21/getter/2021/09/25/06/58/6f3f2d0f-b587-f0dc-b3e3-cfd6ba77511c/out.jpg)
+
+---
+
 `@miles 9/25/2021 5:59 AM (UTC)`
 
 9/24/2021 Miles Guo: Bohai Capital Holding fabricated its 20 trillion yuan worth of assets with lies and fraudulent appraisals; HNA managed to grow 20,000 times a day by swindling the Lao Baixing’s money and fraudulent accounting. Evergrande and HNA employ the same scam - taking away 1,000 yuan from every 10,000 yuan defrauded out of the Lao Baixing; The state-owned real estate companies profit by taking kickbacks, while the private enterprises rely upon laundering money to the overseas<br/><br/>9/24/2021 文贵直播：渤海金控用谎言和虚假评估伪造了20万亿的资产，海航通过骗老百姓的钱和做假帐达到了所谓每天2万倍的成长；恒大和海航都用同一套路骗钱，骗老百姓一万块拿走一千；国有房地产全靠吃回扣，私营企业全靠洗钱到海外去
@@ -285,13 +292,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月20号：尊敬的战友们好……七哥在这里向所有的全球的兄弟姐妹们请安了。你们觉得未来的新中国联邦的农场总部，这样的山脉和环境怎么样？
 ![img](https://media.gettr.com/group36/default/20210920/13/31/37945012-19f0-865e-5a93-9833544756b2/out.jpg)
-
----
-
-`@miles 9/20/2021 3:45 AM (UTC)`
-
-9月19号：尊敬的战友们好，明天9月20号没有大直播，七哥要全力以赴开好当下的会．直播时间是另行通告，一切都已经开始！
-![img](https://media.gettr.com/group8/getter/2021/09/20/03/9a73c5af-dd1b-c5e5-979b-6c888c7df1a4/32f646594db909f84005dfc2c7c0af6b.jpg)
 
 ---
 

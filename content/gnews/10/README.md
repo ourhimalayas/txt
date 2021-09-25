@@ -2,29 +2,25 @@
 ---
 
 
-## 维多利亚州新确诊病例再创记录
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553317/)
+## 秘翻在线：纽约州采取各种手段强迫医护人员接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553651/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/eb8364110b34d755d58b64ad5c799fd9.jpg)图片来源：Herald Sun
-**整理报道：**翼族
+#### 翻译/撰稿：zzballack
 
-周六，维多利亚州报告了847例新增中共病毒（Covid-19）本地病例，1例死亡病例。这是该州自大流行开始以来记录的最高的每日感染人数，超过了去年单日725例的峰值，新增病例数正在慢慢接近新南威尔士州的数据。
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-351.png)    图片来源：syracuse.com
+《新闻极限》（Newsmax）9月24日报道称，面向纽约州所有医护人员的中共病毒疫苗强制令将在9月27日（下周一）生效。在距离最后期限仅剩几天的时候，许多人仍未接种疫苗，这使得下周可能有数千名医护人员被迫离职。医院和养老院正在对可能出现的人员短缺做准备。
 
-周六新增病例使维州的活跃感染总数达到7611，维州卫生部长马丁·弗雷（Martin Foley）警告说，今天的病例数可能并不是维州疫情的高峰值。
+由于没有迹象表明纽约州新任州长凯西·霍楚 (Kathy Hochul)会在疫苗接种一事上退缩或妥协，医院和疗养院正在准备应急计划，包括削减选择性手术，一家医院停止了产科服务。疗养院正在限制入院人数。
 
-弗雷称：“今天的病例数创下历史新高，我怀疑在未来几天和几周内它会继续增长，因为上周我们从伯内特研究所发布的模型上，可以看到病例数将继续增加，直到10月中下旬左右达到顶峰。”
+截至9月23日，纽约州最大的医疗保健提供商北岸－长岛犹太裔医疗系统(Northwell Health)的7万4千名在职人员中约有90%接种了疫苗。系统人事主管马可兴·卡灵顿（Maxine Carrington）说：“由于医院的预约越来越多，我和公司正试图说服未接种的员工接种疫苗，包括与他们进行单独会面。并告知他们如果拒绝接种将不再有资格被雇佣。”医院系统承认，它并不期望未接种者会遵守规定接种疫苗，因此已经让3000多名退休人员、志愿者和医护人员学生处于待命状态，以应付下周一开始可能出现的人手不足情况。
 
-同时，维州目前有321人住院，比一周前增加了55%，比两周前增加了124%。
+伊利县医疗中心（Erie County Medical Center Corporation）的首席执行官汤姆·夸特罗切（Tom Quatroche）说：“我们希望有更多的时间来执行疫苗强制令，因为我们非常担心我们照顾病人的能力会因此受影响。”该医院预计到下周一，大约有10%的员工，即400名员工可能仍未接种疫苗。他们的应急计划是，暂停选择性住院手术，停止接收从其他机构转入的重症监护（ICU）病人，并减少门诊部的工作时间。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+纽约州的罗切斯特大学医学中心（The University of Rochester Medical Center）宣布，从下周一开始，暂停在其斯特朗纪念医院（Strong Memorial Hospital）安排新的选择性手术，为期两周。它还将在本周暂时关闭两个紧急护理中心。
 
-*编辑/发布：翼族*
+霍楚9月23日在一个新闻发布会上坚定支持疫苗强制令，说医护人员“没有任何借口”拒绝接种。纽约州并不是唯一要求医护人员接种疫苗的州。但它在推动更广泛的疫苗接种方面表现得更为激进。
 
-**参考链接：**[Australia Covid news live: Victoria records 847 new local cases, one death](https://www.news.com.au/world/coronavirus/australia/australia-covid-news-live-melbourne-set-to-miss-key-vaccine-target/news-story/d8cb014c9eb010d21da5b92267e13cc4)
+纽约市还要求公立学校系统的所有教职工必须在9月27日之前至少接种一剂疫苗。随着最后期限逐步临近，人们也开始担心下周一可能有数千名教师和学校工作人员被停职。纽约市教师工会（United Federation of Teachers）主席迈克尔·马尔格鲁(Michael Mulgrew)9月23日要求市政府推迟这一规定，说“我们的学校还没有准备好”。纽约市长比尔·白思豪 (Bill de Blasio)却回应说“成千上万的有经验的并接种了疫苗的代课教师已准备好了接替职务。”
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[NY Hospitals Fear Staff Shortage as Vaccine Deadline Looms](https://www.newsmax.com/newsfront/covid-vaccine-hospitals/2021/09/24/id/1037744/)

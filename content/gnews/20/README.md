@@ -2,68 +2,48 @@
 ---
 
 
-## 毁掉台湾的主要是卖台贼
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1553110/)
+## 短视频：接种了辉瑞疫苗，你就进入了临床试验
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553569/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=614dc7f3d2e2b817486d42b4](https://gtv.org/video/id=614dc7f3d2e2b817486d42b4)
+#### 翻译：Lish
+校对：枳实
+字幕剪辑：蛮吉
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-31.png)
+图片来源：视频截屏
 
-**郭文贵
-Miles Guo**
+简·鲁比（Dr.Jane Ruby）博士是华盛顿特区的卫生经济学家和新右派政治评论家
 
-这些卖台贼就天天给共产党发信息
-These Taiwan traitors send messages to the Communist Party every day
+鲁比博士，为什么有些人在打针后会有可怕的副作用？而有些人似乎很好？
 
-对他们来说，我们不想去打呀
-For Taiwan traitors, they don’t want to fight for Taiwan
+这是一个非常重要的问题。的确，我经常被问到这个问题。我认为知道这一点很重要，我以前曾指导过人们（如何挖掘真相），我想鼓励人们去访问clinicalTrials.gov这个网站
 
-某舰队的这个政委跟我说，他说兄弟，我啥都（听你的）
-The political commissar of a certain fleet told me, he said, brother, I do every-thing (to listen to you)
+以辉瑞公司的试验数据为例，因为他们现在确实占据了大部分的注射量，在他们向联邦政府提交的方案中，你会看到有许多不同的**剂量组**。
 
-关于台湾，你站位不够高
-But about Taiwan, you are not far-sighted enough
+【备注：剂量组是一个术语，指一个实验小组。那些在剂量组的人将实际测试正在研究的新药物、设备或治疗，而其他人可能接受安慰剂。】
 
-从历史上看，你看什么时候台湾归大陆啊
-From a historical point of view, when Taiwan belongs to the mainland at all the time？
+换句话说，临床试验的所有三个阶段，一、二、三期现在都在同时进行，之前我们已经说过，**如果你接种了****这****些****疫苗****，你就****进入了临床试验****，但你不会知道你在****试验****的哪个****阶****段，因****为****他****们****在****同****时进****行三个****阶****段。**
 
-都是盛世时候归大陆，还有一个什么时候打台湾啊
-They all return to the mainland in the heyday, another one is when China fought Taiwan in history?
+而根据美国食品药物管理局的规定，这实际上是非法的。而且这是很危险的，因为一期临床（数据）应该为二期临床试验的设计提供支持。随后的每个临床实验阶段都应使用前一个阶段的信息来设计的。
 
-都是从弱势打台湾变成强势
-It’s all about when China is weak and becomes strong after fighting Taiwan
+但回到这个方案和ClinicalTrials.gov的网站。如果你深入了解，你会发现有不同剂量的（疫苗）组，而且，没错，也有安慰剂组。我们不知道被接种疫苗的人有多大的百分比或几率会施打到这些组别。
 
-他说一个小小的2700万人牺牲了又能如何
-He said: what can be done when a small 27 million people are sacrificed？
+这有点像不同剂量的接种途径，如果你愿意可以说成是不同的人走了这几条不同的道（不同的人接种了不同剂量的疫苗）。我们把这称之为实验组别研究。因此，有一组研究针对5微克10微克20微克的和30微克的mRNA剂量。
 
-让我们现在从弱势微势变成强势
-Fighting Taiwan now makes us go from weak to strong
+还有我想提醒人们，在即将到来的这个加强针，有两组研究也将包括100微克的mRNA。
 
-所以说你去看一看兄弟姐妹们
-So take a look our brothers and sisters
+在该公司最近发布的文件中披露的所有信息据说是被修改的。我们已经和凯伦·金斯顿（前辉瑞员工）谈过，也有250微克的mRNA实验剂量。
 
-这是多么疯狂的想法
-What a crazy idea
+所以疫苗剂量高低相差很大。这些公司不诚实，他们这是欺诈，他们没有披露他们应该披露的东西。所以我们没法知道谁接种了哪种剂量，在哪里，什么时候接种的。
 
-第二个，他们都说什么
-Second, what did they say
+所以很明显，**不同的人接种后也有不同的反****应**。
 
-说台湾绝大多数人希望我们解放台湾的呐
-“That most Taiwanese want China to liberate Taiwan
+视频链接: [https://www.bitchute.com/video/eHOTKtj0ZEQ7/](https://www.bitchute.com/video/eHOTKtj0ZEQ7/)
 
-文贵呀，你想多可怕
-Miles think about it, how scary that is
+发布：文泓
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1439525543196577795?s=24](https://twitter.com/se1y7cblljselva/status/1439525543196577795?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 -Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

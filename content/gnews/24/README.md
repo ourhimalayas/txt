@@ -2,68 +2,132 @@
 ---
 
 
-## 2018年4月22日文贵要射向明镜的10个问彈！全文听写
-` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1552818/)
+## 金融信托的猫腻
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1553080/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-24-at-9.49.57-AM.png)
-**视频链接**： [https://www.youtube.com/watch?v=gpAmsZgyd4I](https://www.youtube.com/watch?v=gpAmsZgyd4I)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/10-aqguh-nlw49.jpg)
+[https://gtv.org/video/id=614d75a2d2e2b817486d2aed](https://gtv.org/video/id=614d75a2d2e2b817486d2aed)
 
-**郭文贵先生：**尊敬的战友们好！你们健身了吗？我还得蹦两下，很多战友们（问）最近怎么不蹦了，我蹦蹦蹦蹦蹦。
+**郭文贵：
+Miles Guo**
 
-我看明镜的何频先生这两天蠢蠢欲动要出来说话了，好好好好好！这个明镜，本来我不想跟你扯什么，只是4·19那天路德先生采访顺便这么一说，结果何频先生就开始又找人站队了，和陈军先生一样，马上拉人站队跟我站队，杨建利先生出来说话了，然后（何频）特得意。别太得意，是你教我的：让子弹飞一会儿。
+你看一看
+Check it out
 
-何频先生，我要重申，我绝没有和你斗争，什么打啊、整你的意思，绝对没有，是在四一九之前，没意义，我也不会上你的当，因为这盗国贼想尽办法让你和我斗，上陈军的当。
+这是我们的战友，就是帮助肖建华
+This is our fellow fighters, the one who helped Xiao Jianhua
 
-过去我和那些假伪类斗争，我放过很多次话，我说你们要能团结，像（过去）几十年没团结，十几个人团结在一起对付文贵，我佩服。团结了吗？一个也没团结！
+做了800亿的金融信托的（战友）
+made the RMB80 billion financial trust
 
-何频先生，如果你能和陈军团结了对付我郭文贵，我也佩服，你们真的是这一辈子配当个中国人，有这个中国脸。你们是这人吗？——不是，都是为了个钱字，连命都不要的，甭说道德了。
+可以说当初在他做之前
+It can be said that before him
 
-四一九之后，何频先生你的表现让我很失望，拉帮结伙，你瞪眼说瞎话。何频先生你去想想，我现在有几个问题我要问你：
+中国的信托就票据这一块，还得拿资产做抵押
+China’s trust has to use assets as collateral for the sector of bills.
+后来他（和肖建华）就说服了银行
+Later, he and Xiao convinced the bank
 
-第一，你在香港出《郭文贵爆料》这本书是不是你出的？你从没跟我商量过。我说过吗？这本书你赚了多少钱？咱们这件事得说清楚；
+让银行不再用地产做抵押，也就是信用抵押
+Getting banks to stop using real estate as collateral, which means credit collateral
 
-第二个，所有跟我的联系还有每次采访，几乎你都在场，你发推都说你不在场、你不知道，那么多人，小平同志可以作证，是吧？你撒谎！同时你应该把所有采访中间咱俩的WhatsApp联系，你亮出来，你不亮，我亮；
+信用抵押就是说，大卫，你信七哥，是吧？
+Credit collateral means, David, you believe in me, don’t you?
 
-第三个，有一次你发那个银行账号你发错了，发到我的WhatsApp去了，这个账号是干嘛的？这个账号有多少钱？你自己亮出来，你不亮，我亮；
+那就是，我开个条，就是100亿，1000亿
+That is, I write a receipt, it means 10 billion, 100 billion
 
-第四个，你不是说和陈军没合作吗？说没合作有合作公司，合作公司没合资，合资没合作，合作然后又说不等于全面管理……何频先生，你亮不亮？你不亮，我亮；
+加个零1000亿，你看看
+Add a zero to 100 billion, see？
 
-第五个，你不是找人家杨建利先生站台吗？再找几个，你多找几个！杨建利先生不够，他也没说啥，是不是？他没说你有没有跟他打电话，他也没说你有没有谈我郭文贵，有种你让杨建利出来说说？他要能说出来这话“从来没打电从来没收到过郭文贵电话”，那好，那是我跟杨建利先生的事了，你再找几个出来？把你那胡平，还有什么陈军，还有谁呀？还有那个女的叫什么莲都找出来，既然说了，就让咱们老百姓都知道知道；
+你看看这个，钱是怎么来的
+Look at this, where the money comes from
 
-第六个，何频先生，很重要，你和吴征，是你最早谁介绍咱俩认识的？你怎么介绍吴征和陈军的？陈军他俩俱乐部，他不是说没有合作吗？那俱乐部合作了你得到了什么？还有吴征跟你其他有没有交易？
+你们一定要学一学，一定要学一学
+You should must learn from it, you must learn from it
 
-第七个问题，就是多维的事情，于品海的事情，还有那什么露的事情，既然社会上一直在说，咱就说清楚。陈军有没有参与你多维的事情？这事你也可以问问杨建利先生，可能杨建利先生也知道，是吧？这是第七个问题；
+中信信托，信托贷款，融资企业，抵押资产——股权、土地等有价物
+CITIC Trust, trust loans, financing companies, collateralized assets – equity, land and other valuables
 
-第八个问题，何频先生，在我爆料到现在，你有没有给中国的官方勾兑过谈过什么报什么不报，你说不说？你没有证据，我说；
+民生银行，业务到期后的资金流向
+Minsheng Bank, the flow of funds after the maturity of the business
 
-第九，何频先生，咱们现在非常关键，你所有的员工都经历了我们所有的爆料，包括上船上，我的船你用的是最多的。上船上，你也从来没说过，在船上所有发生的事情，还有那天给阿里巴巴马云发信息的事情，还有和陈军的事情，你都经历的事情，你也站出来说，你要不说，那我说！这第九，哎哟太多了吧？
+最终出资银行——民生银行
+Final Funding Bank – Minsheng Bank
 
-第十，何频先生，咱俩要聊一聊、谈一谈明镜到底现在投资人是谁，中不中？这就弄明白了，是吧？
+兴业银行，中信信托，就这么玩，就这么转
+Industrial Bank, CITIC Trust, this is how to play with the money
 
-就这十个问题，我等着你消息。你放心，何频先生，还有战友们，千万不要让盗国贼利用明镜转移视线，我现在要开始新一波的爆料了，大家不要光关注明镜的事，我们就十个问题解决了，十个问题就解决了嘛，对不对呀？很简单嘛。
+中信信托，你看到没有，业务到期后的资金流向
+CITIC Trust, have you seen the flow of funds after the business expires
 
-我知道的创维的（信息）比你何频先生一点都不少，你有没有和陈军先生出现在泰国同时谈创维的事情？大家说一说，好吧？大家别被转移了视线，我今天就谈何频这事情。你放心，你绝对转移不了我的眼睛（不）去对付盗国贼去，那是不可能的。
+信托受益权转让
+Assignment of trust beneficiary rights
 
-你这事，说老实话，就你海外这点民运的、这些人的事，还有你何频的事，对我来讲——“噗”吹灰之力。
+你说民生银行、兴业银行、中信信托、融资企业能好吗？
+Do you think Minsheng Bank, Industrial Bank, CITIC Trust and financing companies can be good?
 
-文贵就坚持三个原则：郭文贵不说谎不造假；第二，不图钱不图名不图利；第三个，谁都不怕，就这么简单。就你们这号人……战友们别上当啊。今天好天气，好心情！
+最终是什么？
+What is the end result?
 
-\*\*\*\*\*\*END\*\*\*\*\*\*\*
+下一张，把下一张的字打出来
+Next slide
 
-温哥华扬帆农场七哥直播全文听写组：
+大家记住，最终大家要看到发生了什么？
+Remember, in the end, people are going to realize what happened
 
-听写整理——
+大家好好看一看
+Take a closer look
 
-纽约香草山农场：酸酸乳(文少)
+猫腻全部在抵押资产的评估，放大了10倍和更大
+The trick is in the evaluation of the mortgaged assets, magnified by 10 times and more
 
-全文总校——
+就是评估，是吧？
+The assessment, right?
+我拿资产去抵押，大卫的内裤花了两英镑买的
+I took the asset as collateral. It’s like, David’s underwear cost him £2.
 
-纽约香草山农场：月野兔
+我给他一评估200英镑
+I offered him an assessment of £200 for that underwear
 
-审核发布——
+是不是？你一抵押200英镑，是吧
+Isn’t that right? You’ve got a £200 mortgage, right?
 
-温哥华扬帆农场：Peter哥
+我这个内裤就给你了，我也不要了，是不是？
+David’d say “I’ll give you this underwear, and I don’t want it, do I?”
 
-全文发布稿总审核——
+我现在还穿着呢
+“I’m still wearing it.”
 
-温哥华扬帆农场：文敏
+就是杠杆放大
+The trick is to enlarge the leverage
+
+还有一个完全没有杠杆，完全假票据
+There is also a completely unleveraged, completely fake financial instrument
+
+猫腻在哪呢？来自泰山
+What is the trick again? This is from our friend Tarzan
+
+猫腻全在抵押资产评估放大10倍，甚至更大
+The trick is to enlarge the appraisal of the mortgaged assets by 10 times or even more
+
+最后直接无资产，无抵押，全凭信用了
+Finally, no assets, no collateral, all on credit
+
+明白了吗？兄弟姐妹们，谢谢泰山兄弟
+Got it? Brothers and sisters, thank you brother Tarzan
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1439222883742412807?s=24](https://twitter.com/se1y7cblljselva/status/1439222883742412807?s=24)
+
+英听校 : 洛杉矶盘古农场 – Mike Li
+翻译 : 洛杉矶盘古农场 – Mike Li
+翻译终校 : 洛杉矶盘古农场 – Raul
+字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
+审片 : 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

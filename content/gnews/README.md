@@ -37,14 +37,14 @@
 ### [郭文贵直播摘要和音频2021.9.24](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [以色列疫苗受害者的证词（1/6）](/content/gnews/9/README.md)
+### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：纽约州采取各种手段强迫医护人员接种疫苗](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [以色列疫苗受害者的证词（1/6）](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [维多利亚州新确诊病例再创记录](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳洲应吸取教训：新加坡接种率超过80%，人们仍失去自由](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [主流媒体颠倒黑白报道“国家审计”报告的公布](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -67,40 +67,40 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [短视频：警察才是抗议活动中暴力的根源](/content/gnews/19/README.md)
+### [2021年9月24日郭文贵先生直播全文字版](/content/gnews/19/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [短视频：接种了辉瑞疫苗，你就进入了临床试验](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [毁掉台湾的主要是卖台贼](/content/gnews/20/README.md)
+### [短视频：警察才是抗议活动中暴力的根源](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [毁掉台湾的主要是卖台贼](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/21/README.md)
+### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [金融信托的猫腻](/content/gnews/22/README.md)
+### [金融信托的猫腻](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年9月23日郭文贵先生直播全文字版](/content/gnews/23/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/24/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟](/content/gnews/25/README.md)
+### [中国为恒大倒闭做准备](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [美国司法部延长对孟晚舟的起诉协议](/content/gnews/26/README.md)
+### [拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [台湾，你正处于极度危险中！](/content/gnews/27/README.md)
+### [美国司法部延长对孟晚舟的起诉协议](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [台湾，你正处于极度危险中！](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/28/README.md)
+### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [没有疫苗护照的工人在意大利不会得到报酬](/content/gnews/30/README.md)
+### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [达扎克承认福奇资助了中共国冠状病毒研究](/content/gnews/31/README.md)
@@ -124,8 +124,8 @@
 ### [日本汽车业受中共病毒影响，今年预计损失超万亿日元](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议员安迪·巴尔：国防授权法案中获得通过，美国必须监视和反击中共破坏 台湾自由的任何企图。](/content/gnews/38/README.md)
- ` 美国政要直译推`
+### [维多利亚州新确诊病例再创记录](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [美国人正在采取行动以应对疫苗强制令](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“杨改兰”是谁](/content/gnews/47/README.md)
+### [中国人亟需重拾最基本的常识](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“杨改兰”是谁](/content/gnews/48/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [诗歌：鲜花与水炮](/content/gnews/48/README.md)
+### [诗歌：鲜花与水炮](/content/gnews/49/README.md)
  ` GISELLE`
 
-### [零对冲对加密货币市场最新变化的更新（FW38）](/content/gnews/49/README.md)
+### [零对冲对加密货币市场最新变化的更新（FW38）](/content/gnews/50/README.md)
  ` 纽约香草山MOS02`
 
-### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/50/README.md)
+### [没有疫苗护照的工人在意大利不会得到报酬](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [劳斯莱斯将为B-52轰炸机机队重新打造新喷气发动机](/content/gnews/51/README.md)
+### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
+
+### [劳斯莱斯将为B-52轰炸机机队重新打造新喷气发动机](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多国民众组织抗议全球食品业巨头](/content/gnews/52/README.md)
+### [多国民众组织抗议全球食品业巨头](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墨尔本警方限制空中直播抗议活动，引媒体抨击](/content/gnews/53/README.md)
+### [墨尔本警方限制空中直播抗议活动，引媒体抨击](/content/gnews/55/README.md)
  ` 墨尔本雅典娜农场`
 
-### [多重压力下高耗能民企停产 浙印染产能“全军覆没”](/content/gnews/54/README.md)
+### [多重压力下高耗能民企停产 浙印染产能“全军覆没”](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [三星将为特斯拉生产下一代全自动驾驶芯片](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [民族之性还是制度之恶](/content/gnews/56/README.md)
+### [澳洲应吸取教训：新加坡接种率超过80%，人们仍失去自由](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
-
-### [嘴皮斗不过肚皮，中共国抢购澳大利亚小麦](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 

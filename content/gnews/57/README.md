@@ -2,27 +2,33 @@
 ---
 
 
-## 嘴皮斗不过肚皮，中共国抢购澳大利亚小麦
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1553297/)
+## 澳洲应吸取教训：新加坡接种率超过80%，人们仍失去自由
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553331/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16325369551.png)
-据路透社9月25日报道，北半球多个小麦生产国因遭遇恶劣天气而减产，导致全球粮食不足，粮食价格上涨。处于南半球的澳大利亚则连续第二年获得小麦大丰收。澳大利亚也是世界上主要的小麦出口国之一。
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/10094251duyd.jpg)图片来源：xhdaz.com
+**【雅典娜快讯】，紧贴时事脉搏**
 
-中共国作为世界上最大的小麦生产和消费国，其小麦产量和质量满足不了需求，所以中共国也成为国际粮食市场上最大的小麦买家。尽管中共国与澳大利亚的关系持续恶化，北京对澳大利亚发动的贸易战也不见缓解，但并不影响中共国高价抢购澳大利亚小麦。中共国已经成为澳大利亚将收割的小麦的主要买家。
+尽管两针疫苗接种的覆盖率高于80%，新加坡仍将缩减人们的自由，以阻止感染率的持续增加，减轻医疗系统的压力，避免更长时间的封锁。
 
-中共国大肆采购澳大利亚小麦，一是为了补足国内的缺乏，二是补充已经消耗的库存，三是满足在非洲猪瘟过后大力发展养猪业的饲料需要。中共目前仍然对澳大利亚葡萄酒和大麦征收反倾销税，同时减少澳大利亚煤炭和牛肉的进口，但是小麦采购没有受到政治关系恶化或贸易战的影响。
+随着澳大利亚逐步接受未来与德尔塔病毒共存的现实，新加坡政府也将重新开始为期一个月的限制措施，包括将社交聚会限制为两个人以内，并将在家办公作为默认情况。
 
-新闻参考链接：[https://www.voachinese.com/a/China-spends-big-on-Australian-wheat-despite-trade-war-20210924/6244365.html](https://www.voachinese.com/a/China-spends-big-on-Australian-wheat-despite-trade-war-20210924/6244365.html)
+澳大利亚新南威尔士州州长格拉迪斯·贝雷吉克利安 (Gladys Berejiklian) 敦促人们，不要将该州预计在10月11日左右实现的70%的两针接种目标视为“自由日”，并表示公民仍必须以负责任的方式行事。
 
-编辑：胖丁
+首都领地堪培拉有望成为第一个达到16岁以上居民60%完全接种的辖区。与此同时，维州距离80%首剂疫苗接种覆盖率还差3.7%，当局鼓励更多的维多利亚州人本周末外出接种疫苗。
 
-* * *
+据称，一旦维州达到80%的单次疫苗接种率，将获得的额外自由，包括多达5名完全接种疫苗的成年人恢复非接触式运动，以及外出范围从10公里变成15公里。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[Singapore winds back freedoms at 80 per cent full coverage (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/09/25/victoria-misses-covid-deadline/)
 
-编辑：【英国伦敦喜庄园编辑部】
+***编辑：小红帽******/翼族*****
+*****发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
