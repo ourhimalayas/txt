@@ -2,130 +2,123 @@
 ---
 
 
-## 金融信托的猫腻
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1553080/)
+## 青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1553103/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/10-aqguh-nlw49.jpg)
-[https://gtv.org/video/id=614d75a2d2e2b817486d2aed](https://gtv.org/video/id=614d75a2d2e2b817486d2aed)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/g-a7g78-gxith.jpg)
+[https://gtv.org/video/id=614db5d4d2e2b817486d3d37](https://gtv.org/video/id=614db5d4d2e2b817486d3d37)
 
 **郭文贵：
 Miles Guo**
 
-你看一看
-Check it out
+结果日本联系，很多人说郭先生，我们就因为你没打疫苗
+Many Japanese people said Mr. Guo, we did not vaccinate just because we listened to your advice
 
-这是我们的战友，就是帮助肖建华
-This is our fellow fighters, the one who helped Xiao Jianhua
+这政府官员不打疫苗，还得悄悄的说：没打疫苗
+This government officials do not vaccinate, but he has to say it quietly: “I‘m not vac-cinated”
 
-做了800亿的金融信托的（战友）
-made the RMB80 billion financial trust
+结果是不但没打疫苗，这两天发生啥事儿
+Not only is he not vaccinated, but what happened in the past two days
 
-可以说当初在他做之前
-It can be said that before him
+你说我觉得真的羞愧
+I feel really ashamed
 
-中国的信托就票据这一块，还得拿资产做抵押
-China’s trust has to use assets as collateral for the sector of bills.
-后来他（和肖建华）就说服了银行
-Later, he and Xiao convinced the bank
+这么重要的日本官员，磨磨唧唧，日本人不好意思
+Such important Japanese officials, wheedling, the Japanese are embarrassed
 
-让银行不再用地产做抵押，也就是信用抵押
-Getting banks to stop using real estate as collateral, which means credit collateral
+哎，郭先生，能不能给我弄点地塞米松和青蒿素啊？
+Hey, Mr. Guo, can you get me some dexamethasone and artemisinin?
 
-信用抵押就是说，大卫，你信七哥，是吧？
-Credit collateral means, David, you believe in me, don’t you?
+哇塞，我说你在日本这么大个人物，你都不能弄
+Wow, I said you are such a big figure in Japan, can’t you get it？
 
-那就是，我开个条，就是100亿，1000亿
-That is, I write a receipt, it means 10 billion, 100 billion
+他说我也弄不着啊
+He said: I can not get it
 
-加个零1000亿，你看看
-Add a zero to 100 billion, see？
+他说我还怕别人给弄着了，逮着我去搞这东西
+He said: I was afraid of others to know, caught me to get these drugs
 
-你看看这个，钱是怎么来的
-Look at this, where the money comes from
+他弄这个东西偷偷摸摸的
+He wants this medicine but still has to sneak around
 
-你们一定要学一学，一定要学一学
-You should must learn from it, you must learn from it
+他好像是偷东西，偷情一样
+It’s like he’s stealing and cheating
 
-中信信托，信托贷款，融资企业，抵押资产——股权、土地等有价物
-CITIC Trust, trust loans, financing companies, collateralized assets – equity, land and other valuables
+而且还弄不着
+And he can’t get it
 
-民生银行，业务到期后的资金流向
-Minsheng Bank, the flow of funds after the maturity of the business
+然后头两天你知道，我见了很多美国这些大佬们
+And a couple days ago, you know, I met with a lot of these big guys in the United States
 
-最终出资银行——民生银行
-Final Funding Bank – Minsheng Bank
+这个很多事你们没有看到直播的
+Many things you don’t know
 
-兴业银行，中信信托，就这么玩，就这么转
-Industrial Bank, CITIC Trust, this is how to play with the money
+然后完了以后（他们）都在旁边
+They all came up to me and asked
 
-中信信托，你看到没有，业务到期后的资金流向
-CITIC Trust, have you seen the flow of funds after the business expires
+哎，郭先生，有没有羟氯喹，还有这个伊维菌素给我点儿，还有青蒿素
+Hey, Mr. Guo, do you have hydroxychloroquine and ivermectin for me, and arte-misinin
 
-信托受益权转让
-Assignment of trust beneficiary rights
+你想想兄弟姐妹们，什么概念？
+Think about it, brothers and sisters, what does it mean ?
 
-你说民生银行、兴业银行、中信信托、融资企业能好吗？
-Do you think Minsheng Bank, Industrial Bank, CITIC Trust and financing companies can be good?
+我办公室的人全都发完了
+I gave out all the medicines to the people in my office.
 
-最终是什么？
-What is the end result?
+前天晚上马上打电话，给咱们法治基金
+The night before yesterday, we immediately called our rule of law fund
 
-下一张，把下一张的字打出来
-Next slide
+赶快弄几盒给这边送去，是吧
+to get a few boxes to send over here, right?
 
-大家记住，最终大家要看到发生了什么？
-Remember, in the end, people are going to realize what happened
+太多了，我想告诉你们什么，兄弟们
+There are a lot of people, and what I want to tell you is, brothers
 
-大家好好看一看
-Take a closer look
+青蒿素，你们不知道青蒿素有多重要
+Artemisinin, you don’t know how important it is
 
-猫腻全部在抵押资产的评估，放大了10倍和更大
-The trick is in the evaluation of the mortgaged assets, magnified by 10 times and more
+伊维菌素和地塞米松、青蒿素比什么都重要
+Ivermectin and dexamethasone and artemisinin are more important than anything else
 
-就是评估，是吧？
-The assessment, right?
-我拿资产去抵押，大卫的内裤花了两英镑买的
-I took the asset as collateral. It’s like, David’s underwear cost him £2.
+你们没有意识到青蒿素是解药这个大事儿
+You don’t realize that artemisinin is the antidote
 
-我给他一评估200英镑
-I offered him an assessment of £200 for that underwear
+一定要备青蒿素
+Be sure to have artemisinin
 
-是不是？你一抵押200英镑，是吧
-Isn’t that right? You’ve got a £200 mortgage, right?
+我有些话今天技术上我不告诉你们
+I would like to say something technically but I will not tell you today
 
-我这个内裤就给你了，我也不要了，是不是？
-David’d say “I’ll give you this underwear, and I don’t want it, do I?”
+但是你们一定要听七哥的
+But you must listen to the Miles
 
-我现在还穿着呢
-“I’m still wearing it.”
+一定要备青蒿素
+Be sure to have artemisinin
 
-就是杠杆放大
-The trick is to enlarge the leverage
+青蒿素是所有的这些药的总和
+Artemisinin is the combination of all these drugs
 
-还有一个完全没有杠杆，完全假票据
-There is also a completely unleveraged, completely fake financial instrument
+但永远记住，羟氯喹是把青蒿素、伊维菌素、地塞米松、和锌, 送到你身体里的一个平台
+But always remember, hydroxychloroquine is a tool to get artemisinin, ivermectin, dexamethasone and zinc into your body
 
-猫腻在哪呢？来自泰山
-What is the trick again? This is from our friend Tarzan
+锌非常重要，锌和青蒿素放在一起更加重要
+Zinc is very important, and zinc and artemisinin are even more important when put together
 
-猫腻全在抵押资产评估放大10倍，甚至更大
-The trick is to enlarge the appraisal of the mortgaged assets by 10 times or even more
+无数证明还有更惊天的新闻，你会看到
+Countless proof that there is even more amazing news about artemisinin that you will see
 
-最后直接无资产，无抵押，全凭信用了
-Finally, no assets, no collateral, all on credit
-
-明白了吗？兄弟姐妹们，谢谢泰山兄弟
-Got it? Brothers and sisters, thank you brother Tarzan
+青蒿素将是人类上多么神奇，几乎来自上天的这种感觉
+Artemisinin will be a miracle on human beings, almost a gift from the heavens
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1439222883742412807?s=24](https://twitter.com/se1y7cblljselva/status/1439222883742412807?s=24)
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1439164622565568513?s=24](https://twitter.com/se1y7cblljselva/status/1439164622565568513?s=24)
 
-英听校 : 洛杉矶盘古农场 – Mike Li
-翻译 : 洛杉矶盘古农场 – Mike Li
-翻译终校 : 洛杉矶盘古农场 – Raul
-字幕+视频制作 : 洛杉矶盘古农场 – 青梅煮酒
-审片 : 洛杉矶盘古农场 – 银龙
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Raul
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

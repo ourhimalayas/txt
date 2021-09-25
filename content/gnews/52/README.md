@@ -2,49 +2,50 @@
 ---
 
 
-## 郭文贵先生揭露更多海航、陈峰、王岐山的内幕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553533/)
+## 华为孟晚舟获释回国：中共朝着死亡谷迈进
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1553558/)
 
-栏目记者/责任编辑：Zion文恩
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09254-1.png)
+▲[美国对华为首席财务官的诉讼和解](https://www.berchtesgadener-anzeiger.de/startseite_artikel,-usverfahren-gegen-huaweifinanzchefin-beigelegt-_arid,655937.html)
 
+据[路透渥太华当地时间9月24日消息](https://cn.reuters.com/article/canada-trudeaucitizens-china-0925-idCNKBS2GL02L)称 ：加拿大总理特鲁多透漏两名被习近平拘押的加拿大人已离开中国，正在回家途中，将于周六早上抵达加拿大。
 
+作为中共发起的人质外交交换条件，特鲁多表示，“加拿大法官周五签署了华为首席财务官孟晚舟的释放令，取消保释条件，近三年一直软禁在温哥华家中的孟晚舟终于重获自由。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+*· 延展阅读：*[*华为首席财务官与美国检察官达成协议后北京释放加拿大人*](https://www.ft.com/content/8d6cabf1-2683-45e1-a67f-19dd531b305d)*。*
 
+对此，BBC也报道了此事，称《[华为孟晚舟在与美国达成协议后飞回中国](https://www.bbc.com/news/world-us-canada-58682998)》。
 
+该消息称：“美国指控孟女士在华为与一家名为 Skycom 的公司关系的真实性质上误导汇丰银行，使该银行面临违反美国对伊朗制裁的风险。
 
+周五，美国司法部 (DOJ) 表示已达成延期起诉协议。
 
+这意味着司法部将推迟对孟女士的起诉，直到 2022 年 12 月。如果她遵守法院规定的条件，该案最终将被撤销。”
 
-海航集团董事长陈峰，首席执行官谭向东被中共当局采取强制措施这一消息的爆出，人们慨叹郭先生4年前对海航的精准爆料，以及2018年一众战友对海航原董事长王健之死事件的调查真相。9月24日，郭先生在直播中揭露了海航集团与共产党盗国家族的更多内幕。
+出庭时，目击者称，孟晚舟是在中国领事官员的陪同下进入大楼。“法官随后下令释放她。”
 
-郭先生说，陈峰、谭向东两年前就处于监视居住的状态。此二人一个月前就被逮捕。自王健2018年在普罗旺斯“脚疼死”后，海航大约两万多人被监控。陈峰、王健等人在王岐山的授意下，在全国7个省市，囤了大量土地和煤矿投资。几个常委——张德江、李长春、韩正、江泽民、朱镕基、曾庆红等家族牵涉其中。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-48.jpg)
-海航早在2018年负债已达三万亿；而旗下的渤海金控的20万亿资产，是通过虚假金融评估、金融机构参股、认购、再评估的伎俩而计价。中国老百姓的血汗钱早就被这些伎俩给吸走了。海航集团80%的交易，都与黑石集团、以及苏世民有关。由朱镕基、王岐山掌控的中投集团，一直是黑石的投资大户，然而中投鲜有盈利，黑石的年报却一直稳中有升。其间猫腻已不言自明。
+随即，孟晚舟表示： “每一朵乌云都有一线希望，”“我永远不会忘记我从世界各地的人们那里收到的所有美好祝愿。”
 
-陈峰被捕后，海航约有40~50%的资产作为王岐山等盗国贼的财产流散在海外。郭先生表示，这些财富，爆料革命和新中国联邦将替海航的苦主们悉数追回，还中国人应有的尊严和财富。
+*· 延展阅读：*[*美国检方撤回了针对孟晚舟的引渡请求，为其返回中国扫清了道路*](https://www.berchtesgadener-anzeiger.de/startseite_artikel,-usverfahren-gegen-huaweifinanzchefin-beigelegt-_arid,655937.html)*。*
 
-参考链接：
-[2021年9月24号文贵直播完整版：中共昨天对台演习大涨中共气势，第一次挂核弹以立体全实战模式对台湾实战演习；陈峰被抓的下场七哥第一天爆料海航就已经注定，陈峰早已被监控2年，配合专案组处理海外资产，七哥将帮助找出航海在海外隐藏的更多资产](https://gtv.org/video/id=614debaf42a8af3151a4a1ed)
+作为交易的一部分，孟女士同意“事实陈述”，承认她故意向汇丰银行做出虚假陈述。
 
-（本文仅代表作者观点）
+这起复杂的人质外交事件背后暗藏中共国与美国深层复杂的外交关系交易网。在特朗普时期，孟晚舟作为被美制裁的华为集团关键人物，她必须得到美国司法的审判。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+但这一释放，表明拜登政府在持续解冻中共与美国的关系。孟的获释释放一种令人不安的政治信号。
 
-终审： 鬼五
-校对/发稿：为真不破20
+*· 延展阅读：*[*美国同意释放华为高管以防与中国关系紧张*](https://www.nytimes.com/2021/09/24/us/politics/huawei-meng-wanzhou.html)*。*
 
-**更多资讯，更多关注**
+就在此时此刻，中共国新华社25日特发快讯表示：“经中国政府不懈努力，”“孟晚舟女士已经乘坐中国政府包机离开加拿大，即将回到祖国，并与家人团聚。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+随即，[华为官网发布消息称](https://www.finanzen.net/nachricht/aktien/huawei-bringt-11-szenariobasierte-loesungen-auf-den-markt-10565427)：华为今年活动的主题是“沉浸在数字世界中。”“将深入探讨云、AI、5G等技术在各行各业的实际应用。”
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+这表明中共外交上的胜利，在习看来，新任驻美国“披羊皮大使”颇有蓝金黄能力。但郭文贵先生表示：[如果中共和美国突然好的时候，就是中共立马死亡的时候,](https://gtv.org/video/id=613b4bb7be28c76ac9450bcb%EF%BC%8C) 所有的9300万党员已经没有任何能力决定你的命运，包括习。自从习几次去俄罗斯，签订下历史性大合同的时候，这是一条不归路。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+2021年9月25日
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+（本文只代表个人观点，与Gnews网站无关）
+*编辑：东京樱花团 / 平安卿卿*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
