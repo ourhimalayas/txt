@@ -2,21 +2,42 @@
 ---
 
 
-## 无辜的进口果蔬，如何携带新冠病毒？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1554113/)
+## 英国中学校园接种开展 家长致信郡医院
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554112/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ae19a0f473049c5c7bcaa472861799e3.jpeg)
-南通市通报 9月23日、24日，江苏三地发布通告，“外省一批自新西兰进口的猕猴桃涂抹样标本检测新型冠状病毒核酸阳性”，进行紧急协查。 9月22日下午，江苏省南通市海门区接到南通市新冠疫情防控指挥部协查函称：“外省一批自新西兰进口的猕猴桃涂抹样标本检测新型冠状病毒核酸阳性”，部分同批次货物销往海门区永辉超市龙信广场店。经查，该批次猕猴桃已通过该超市售出。目前，排查出的相关人员已落实管控措施。已完成接触该批次猕猴桃的工作人员及环境样本核酸采样14份，检测结果均为阴性。
+栏目记者/责任编辑：安吉拉
 
-关于冷链食品病毒检测阳性，单单2020年11月份已有28起。猕猴桃是继冷冻鱼虾、牛肉、猪肉、车厘子、鸡翅、奶枣……等之后的又一食品种类。其中有俄罗斯进口冷冻鳕鱼，厄瓜多尔进口青虾，冷冻牛肉，北美进口猪头，阿根廷进口鸡翅，巴西进口牛肉，印度冷冻鲳鱼，沙特进口南美冻虾，还有马拉西亚进口刀鱼……等等均呈现新冠核酸阳性。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-猕猴桃怎会感染新冠病毒？病毒真的如此“嚣张”吗？反正全世界只有中共国独一家在各种进口食品上发现病毒。在当前的内忧外患时期，中共要搞经济内循环，控制舆论排斥进口果蔬，同时又制造虚假宣传把中共病毒的来源推给无辜的进口食品，又是这个流氓体制的一贯操作。
+英国本周启动针对12至15岁少年第一剂新冠疫苗接种计划。政府无视新冠疫苗给人们带来的各种伤害和民众持续的抗议，反而持续加压，要求学校必须协助国家接种团队入驻校园，按时完成注射任务。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/pp-9.002.jpeg)
+各地区民众自发团结，利用现有法律保护自己的权利和儿童健康与生命安全。家长们向郡医疗机构和当地学校发出信函，要求对方就学童接种新冠疫苗一事做出回应。
 
-[信息来源](https://mq.mbd.baidu.com/r/tFaUWtlbVu?f=cp&amp;rs=3768095&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=bf675e7466e75ca7)
+信中强调：知情同意权、医疗自由和身体自主权必须得到尊重、维护和保护；作为医疗机构和学校方，必须明晰以下几点：
 
-（文章仅代表作者个人观点，与GNEWS无关）
+- 新冠疫苗是否具有安全性和有效性
+- 公民知情同意权和吉利克能力，即16岁以下儿童医学决定权的考量
+- 解释疫苗生产制造使用的的材料
+- 如产生法律责任校方和医疗机构将面对诉讼并公开经过和结论
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [Covid vaccination begins for UK 12 to 15 year olds](https://www.bbc.com/news/health-58623058)
+2. [吉利克的能力 – Gillick competence百科全书 site:zh.wikiqube.net](https://zh.wikiqube.net/wiki/Gillick_competence)
+
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

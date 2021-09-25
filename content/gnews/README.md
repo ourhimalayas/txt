@@ -37,22 +37,22 @@
 ### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [哪是什么疫情，一切都是CCP的政治阴谋](/content/gnews/9/README.md)
+### [美联航员工要求法院阻止疫苗接种要求](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [哪是什么疫情，一切都是CCP的政治阴谋](/content/gnews/10/README.md)
  ` 银河勇气之星`
 
-### [维州：即使接种率80%，仍将有口罩及家访限制](/content/gnews/10/README.md)
+### [维州：即使接种率80%，仍将有口罩及家访限制](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [美国与欧盟拟联手限制大型科技公司](/content/gnews/12/README.md)
+ ` 日本东京方舟农场`
 
-### [因为喜币要上市了所以中共宣布虚拟货币交易为非法](/content/gnews/12/README.md)
+### [因为喜币要上市了所以中共宣布虚拟货币交易为非法](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [日本外相：日本欢迎台湾申请加入TPP](/content/gnews/14/README.md)
+### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/15/README.md)
@@ -103,29 +103,29 @@
 ### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [這次熱點是臺灣，不是孟晚舟，也不是陳峰](/content/gnews/31/README.md)
+### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳大利亚、印度、日本和美国领导人强调需要“稳定”的太平洋](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/33/README.md)
+ ` 日本东京方舟农场`
+
+### [這次熱點是臺灣，不是孟晚舟，也不是陳峰](/content/gnews/34/README.md)
  ` 银河勇气之星`
 
-### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/32/README.md)
+### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国：汽油配给](/content/gnews/33/README.md)
+### [英国：汽油配给](/content/gnews/36/README.md)
  ` Charlie`
 
-### [德国对华为小米等中共国手机启动安全调查](/content/gnews/34/README.md)
+### [德国对华为小米等中共国手机启动安全调查](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/35/README.md)
+### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/38/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/47/README.md)
+### [比电荒还荒的是人心](/content/gnews/47/README.md)
+ ` 银河勇气之星`
+
+### [香港658名政府工作人员拒签宣誓声明，选择离职](/content/gnews/48/README.md)
+ ` 日本东京方舟农场`
+
+### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/49/README.md)
  ` 英喜-粵語組`
 
-### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/48/README.md)
+### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/50/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [爆料革命战友守望相助——英喜在行动](/content/gnews/49/README.md)
+### [爆料革命战友守望相助——英喜在行动](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [短视频：疫苗正在造成损害，人民亟待摆脱控制](/content/gnews/50/README.md)
+### [短视频：疫苗正在造成损害，人民亟待摆脱控制](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/51/README.md)
+### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/52/README.md)
+### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内疫苗心情日记（十八）](/content/gnews/53/README.md)
+### [墙内疫苗心情日记（十八）](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国中学校园接种开展 家长致信郡医院](/content/gnews/54/README.md)
+### [英国中学校园接种开展 家长致信郡医院](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/57/README.md)
+### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
