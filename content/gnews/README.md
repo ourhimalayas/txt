@@ -37,14 +37,14 @@
 ### [文·贵天成——文贵先生谈“恒大许家印”（七）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Peter Daszak发起了一场秘密运动来反驳实验室泄漏理论](/content/gnews/9/README.md)
- ` wenwu`
-
-### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/10/README.md)
+### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/11/README.md)
- ` 澳喜农场`
+### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [Peter Daszak发起了一场秘密运动来反驳实验室泄漏理论](/content/gnews/11/README.md)
+ ` wenwu`
 
 ### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -67,23 +67,23 @@
 ### [车企“缺芯”困局难解](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/19/README.md)
+### [有声| 北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声| 布林肯会晤东盟外长拟出台新印太战略](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声| 权力的历史与华人的救赎(中）](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年9月24日郭文贵先生直播全文字版](/content/gnews/20/README.md)
+### [2021年9月24日郭文贵先生直播全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [短视频：接种了辉瑞疫苗，你就进入了临床试验](/content/gnews/21/README.md)
+### [短视频：接种了辉瑞疫苗，你就进入了临床试验](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
-
-### [短视频：警察才是抗议活动中暴力的根源](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [毁掉台湾的主要是卖台贼](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [青蒿素绝对救命，滑稽的是很多日本、美国大佬连羟氯喹都没有](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -103,29 +103,29 @@
 ### [台湾，你正处于极度危险中！](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/31/README.md)
+### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/31/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [币圈新闻动态：中国人民银行发布进一步防范和处置虚拟货币交易炒作风险的通知](/content/gnews/32/README.md)
+### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [币圈新闻动态：中国人民银行发布进一步防范和处置虚拟货币交易炒作风险的通知](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：中国驻日使馆称，日方应慎重妥善处理CPTPP涉台问题](/content/gnews/33/README.md)
+### [DC大中华时事：中国驻日使馆称，日方应慎重妥善处理CPTPP涉台问题](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/34/README.md)
+### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/35/README.md)
+### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/36/README.md)
+### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：纽约州采取各种手段强迫医护人员接种疫苗](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [达扎克承认福奇资助了中共国冠状病毒研究](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美国人正在采取行动以应对疫苗强制令](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -157,30 +157,30 @@
 ### [孟晚舟获释回中共国，真是她的幸运？](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国人亟需重拾最基本的常识](/content/gnews/49/README.md)
+### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/49/README.md)
+ ` 澳喜农场`
+
+### [中国人亟需重拾最基本的常识](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/50/README.md)
+### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“杨改兰”是谁](/content/gnews/51/README.md)
+### [秘翻在线：纽约州采取各种手段强迫医护人员接种疫苗](/content/gnews/52/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [“杨改兰”是谁](/content/gnews/53/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [华为孟晚舟获释回国：中共朝着死亡谷迈进](/content/gnews/52/README.md)
+### [达扎克承认福奇资助了中共国冠状病毒研究](/content/gnews/54/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [华为孟晚舟获释回国：中共朝着死亡谷迈进](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [诗歌：鲜花与水炮](/content/gnews/53/README.md)
+### [诗歌：鲜花与水炮](/content/gnews/56/README.md)
  ` GISELLE`
 
-### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [银河快讯：菅义伟呼吁减轻半导体矿物资源对华依赖；松下千名员工提前退休](/content/gnews/55/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [零对冲对加密货币市场最新变化的更新（FW38）](/content/gnews/56/README.md)
- ` 纽约香草山MOS02`
-
-### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/57/README.md)
+### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/57/README.md)
  ` GTV新闻访谈`
 

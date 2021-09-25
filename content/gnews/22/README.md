@@ -2,36 +2,43 @@
 ---
 
 
-## 短视频：警察才是抗议活动中暴力的根源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553152/)
+## 在中国有一个邪恶的势力是绝对的存在的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1553887/)
 
-#### 翻译编辑：文泓
-听写核对：Lish
-字幕剪辑：尕鱼儿
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-28.png)
-图片来源：Ponderingpot
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-18.jpg)https://gtv.org/video/id=614dc871d2e2b817486d42f8
+郭文贵
+Miles Guo
 
-我的休庭事项是针对警察部长的。在过去的几周，维州警察用马匹追赶示威者，并用油性辣椒泡沫来辣眼睛以制服他们，警察用步枪和防弹衣武装自己。他们还用不太致命的子弹向示威者开火，并对支持自由的示威者进行人身攻击。任何情况下，警察都是来逮捕示威者和制服政治反对派。警察包围了示威者，暴力攻击试图逃跑的人。使用这种策略是因为它让人觉得是示威者发起的暴力，实际上警察才是这些抗议活动的暴力根源。
+不要乱爆，那么从这一点上能说明什么
+Don’t explode indiscriminately, so what can be shown from this point
 
-现场更令人痛心的是，孩子们因警察向他们发射胡椒喷雾而被呛得哭了起来。我知道整个事件的发展脉络，因为我有这些抗议活动的现场录音。这些录音不是单纯的被选上来描述某个特定片段，而是记录了大量关于事件是如何发展的。警方的攻击是故意的，并且得到了政府的纵容。
+国际上金融家知道在中国有一个邪恶的势力绝对是存在的
+International financiers know that there is definitely an evil force in China
 
-州长怂恿警察并呼吁他们使用任何必要的手段来攻击人群。政府成员试图抹黑抗议者，把政府下令封锁的责任推给他们。尽管（民众）有要求停止封锁的明确诉求，（维州）政府官员想假装把抗议者视为种族主义者，进而借口他们的诉求不明确。
+而且在共产党内是最高的权力和政治的设计者
+And that is the designer of the highest power and politics in the Communist Party
 
-几周前，（安德鲁斯）州长在新闻发布会上说，他不知道抗议者想要什么，也不知道他们为什么要抗议。从我所看到的一切来看，（他们的）信息是非常明确的：1000多人聚集在中央商务区，喊出了“要自由”的口号；他们呼吁结束封锁，结束这个政府。
+就是奴役，通过共产党就是咱看到共产党这个恶魔
+It’s enslavement, through the Communist Party-the demon of the Communist Party
 
-澳大利亚是一个自由的国家，维多利亚是一个自由的州。如果这个政府想剥夺人们的自由，这将会是一场恶战。以前我们看到抗议活动的原因都得到政府的支持，警察会为和平安全的抗议活动提供便利。
+还有后面一个人
+And also there is one person behind it
 
-自由民主党支持和平抗议，民众抗争和抵抗暴政。我们反对这些封锁，（警察）部长，我所呼吁的行动是明确承诺，警察将不再被用来攻击行使权利的维多利亚州的人民。
+通过这个恶魔插到我们每个人肝上一个吸血器
+Through this demon to insert a blood sucker into the liver of each of us
 
-停止对抗议者使用潜在的致命武器。相反，警方应尽可能确保抗议活动的安全与和平。如果警察继续升级暴力，就会有流血事件发生，而这些流血事件将发生在你的手上。
+那就是王岐山
+That is Wang Qishan
 
-原文链接：[Tim Quilty Speaks out in Vic Parliament – Reignite Democracy Australia](https://www.reignitedemocracyaustralia.com.au/mp-stop-voilence/)
+原视频日期：2021/09/17
+原视频链接: https://twitter.com/se1y7cblljselva/status/1439525263709114369?s=24
+视频时间段 : 0:00-0:33
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
