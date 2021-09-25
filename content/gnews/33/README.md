@@ -2,92 +2,27 @@
 ---
 
 
-## 正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1553891/)
+## 郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1553946/)
 
-- 编译：Jenny Ball
+郭文贵先生在[2021中秋特别节目：月亮托起我们的心愿](https://www.gtv.org/video/id=6149e63b42a8af3151a28330)下方时间戳纽约当地时间13：07：54时间点换上了一幅画作为直播背景，我们把郭先生不在镜头前的一幅截图放上来——
+![](https://assets.gnews.org/wp-content/uploads/2021/09/003-1.jpg)
+然后把中间的背景抠下来——
+![](https://assets.gnews.org/wp-content/uploads/2021/09/003_副本-1.jpg)
+然后我们用谷歌搜索进行照片匹配以后，我们找到了[绘画｜生活 是一首首平凡的诗](http://www.ifuun.com/a201712197864573/) Goddess / 1997 /Oil on Linen /140 x 212
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0-8.jpg)
+根据[绘画｜生活 是一首首平凡的诗](http://www.ifuun.com/a201712197864573/)介绍，这幅画的作者是［美国现实主义画家 Bo Bartlett 生于1955年，日常生活中的美丽，像是一首首平凡的诗，被他发现。］
 
+另据[维基百科——Bo Bartlett](https://en.wikipedia.org/wiki/Bo_Bartlett)：［博·巴特利特原名詹姆斯·威廉·巴特利特三世，1955 年 12 月 29 日出生于乔治亚州哥伦布市。[\[1\]](https://en-m-wikipedia-org.translate.goog/wiki/Bo_Bartlett?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem#cite_note-1) Bartlett 的父母 Opal 和 Bill Bartlett (James William Bartlett Jr.) 来自哥伦布。他的父亲是一名[木工](https://en-m-wikipedia-org.translate.goog/wiki/Woodworking?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)和家具设计师，他的母亲是一名医学图书管理员。[\[2\]](https://en-m-wikipedia-org.translate.goog/wiki/Bo_Bartlett?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem#cite_note-2) 18岁时，他前往[意大利佛罗伦萨，](https://en-m-wikipedia-org.translate.goog/wiki/Florence?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)师从美国侨民[本龙](https://en-m-wikipedia-org.translate.goog/wiki/Ben_Long?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)，学习壁画。[\[3\]](https://en-m-wikipedia-org.translate.goog/wiki/Bo_Bartlett?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem#cite_note-3)  1974年他回到美国并结婚。他于 1975 年搬到[费城](https://en-m-wikipedia-org.translate.goog/wiki/Philadelphia?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)。 2004 年，巴特利特周游世界，然后于 2005 年搬到[华盛顿州西雅图](https://en-m-wikipedia-org.translate.goog/wiki/Seattle?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)。］
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-355.png)
+关于这幅画的来源我们找出来了，那么这幅画的背后还有哪些故事呢？让我们拭目以待。
 
-斯密特在拒绝本月早些时候墨尔本地方法官提出的“不民主的保释条件”后获释。
+撰稿：喜马拉雅的肉夹馍
 
-《生活新闻》([LifeSiteNews](https://www.lifesitenews.com/))报道——在监狱三周后，“煽动者”反封锁活动家和传统的天主教徒莫妮卡·斯密特（Monica Smit）于周三在修订后的条件下获得保释。
+审核：喜马拉雅的馍夹肉
 
-**斯密特**一直是澳大利亚反对政府对 COVID-19 的严厉专制回应的主要声音之一，支持自由事业，反对自 2020 年 3 月以来对数百万澳大利亚人实施的严厉措施。
+校对：Maarago
 
-周三，澳大利亚联合党议员克雷格·凯利（Craig Kelley）在回应这一消息时写道：“祝贺莫妮卡·斯密特赢得了维多利亚州最高法院历史性的胜利。”
+（文章内容仅代表作者个人观点）
 
-“维克警方试图强加不合理和不民主的保释条件，让莫妮卡成为政治犯，这是令人发指的，”凯利补充说，称斯密特的获释是“正义的胜利”。
-
-**斯密特**于 8 月 31 日因“煽动”罪被拘留，此前，在“重燃民主澳大利亚”（[Reignite Democracy Australia](https://www.reignitedemocracyaustralia.com.au/) – RDA）组织的反封锁抗议活动中，警察和抗议者
-
-之间爆发了暴力事件，该组织由斯密特成立，旨在团结澳大利亚人抵制极权主义的 COVID 政策。
-
-法院无法将斯密特对“自由”的倡导与抗议活动与孤立的暴力行为联系起来。
-
-斯密特在监狱服刑 22 天，周三获准保释。这位开创性的活动家拒绝了早先的保释提议，该提议包含她的律师称为“繁重”的条件，并说会损害她的使命和澳大利亚人的普遍权利。
-
-正如凯西·克拉布（Kathy Clubb）与雷姆南特（Remnant）[报道的那样](https://www.lifesitenews.com/news/the-only-political-prisoner-on-australian-soil-woman-jailed-over-vaccine-mandates/?utm_source=featured&amp;utm_campaign=usa)，“墨尔本地方法官于 9 月 1 日制定的保释条件包括，莫妮卡不得分享‘任何煽动反对首席医疗官指示的材料……’；不透露涉案警员的身份； 并且所有与 RDA 相关的团体和社交媒体账户，都将‘删除任何煽动反对首席卫生官指示的材料。’”
-
-在拒绝最初的保释条件后，斯密特最终向维多利亚州最高法院提出了“变更”申请。
-
-她的请求最终被接受，法院于 9 月 22 日批准了保释，即她被捕后仅三个多星期。
-
-在周三与最高法院举行的[保释听证会](https://www.streaming.scvwebcast1.com/bail-variation-application-monica-marie-smit-wednesday-22nd-september-2021-1000am/)上，伊丽莎白·霍林沃思法官指出，对斯密特煽动和不服从首席卫生官指示的指控的最高刑罚通常包括罚款，而不是监禁。
-
-尽管如此，霍林沃思拒绝提供无条件保释，“在目前的情况下，[斯密特]再次犯罪的风险无疑是真实存在的。”
-
-“但是，我感到满意的是，通过施加一些行为条件，她进一步冒犯和危害他人安全和福利的风险，可以降低到可接受的风险，”法官说，并补充说，“这些条件，将比那些被警察追查或被裁判官强加的人受到更多限制。”
-
-在新条件下，斯密特不得违反《公共卫生与福利法》第 203(1) 条，也不得“煽动”任何其他人违反该法案。
-
-法官引用的部分指出，“[a] 在根据第 199 条授予的授权行使权力时，不得拒绝或不遵守给予该人的指示或对该人提出的要求。 ”
-
-第199条授予首席卫生官广泛的权力，可以采取全面措施应对已宣布的公共卫生威胁。
-
-斯密特也被禁止公开指认涉案警察的身份，但允许在与她的律师的私下交流中说出他们的姓名。
-
-正如墨尔本地方法官和维多利亚州警方此前所建议的那样，新条件并不要求 斯密特删除她的社交媒体账户中鼓励反对 COVID 措施的内容。
-
-“很好，我很好，”斯密特在周三获释后发布到社交媒体的一段视频中，向她的追随者保证。“我们拥有一支非常强大的法律团队，法律之战还没有结束。”
-
-“我只是想让你们所有人都知道，今天实际上是一场胜利，”这位支持自由的活动人士说。“我没有被沉默，在我看来，这就是他们想做的事情。”
-
-斯密特说她“或多或少会继续保持不变”，笑着补充说，“也许会有所不同。”
-
-这位 33 岁的传统天主教徒一直强烈反对严格和残酷的封锁措施，自去年 3 月以来，这些封锁措施已经摧毁了澳大利亚人的公民自由。
-
-斯密特领导、组织并发表了数十场集会，敦促取消戴口罩、宵禁和居家令，同时鼓励她的澳大利亚同胞参与政治进程，并驱逐腐败的政客。
-
-斯密特的组织 RDA，还为澳大利亚人提供了一个言论自由的平台，可以在召集参与者采取政治行动的同时相互交流。
-
-在斯密特被捕后，代表斯密特在[RDA](https://www.reignitedemocracyaustralia.com.au/monicas-defence-support/)[网站上设立的筹款活动](https://www.reignitedemocracyaustralia.com.au/monicas-defence-support/)筹集了超过 300,000 美元，以支持她正在进行的法律斗争。
-
-在她刚从拘留所获释后发布到社交媒体的视频中，斯密特向她的追随者和其他参与在澳大利亚摆脱 COVID 封锁和任务的自由运动的人分享了鼓励的话。
-
-“我认为，每个人内心的力量都比他们想象的要多一点，有时只需要一点点鼓励就能深入了解自己，找到你可能不知道自己拥有的力量，”她说。
-
-“我们会坚持下去，”斯密特说。“坚强点。”
-
-斯密特将于 2021 年 11 月 10 日在墨尔本地方法院出庭。
-
-**评论：**
-
-**2019****年****6****月开始，香港青年开始勇敢的抗议中共独裁对香港自由的侵犯，全世界被中共淫威所震慑，不敢为正义的香港保卫自己自由权利的年轻人发声。爆料革命却向世界呼喊：今日香港，明日世界！没料到这个明日，已经在中共和邪恶势力发起的生物超限战中，使全世界都在极权暴政之下！暴政之下，伸张正义等同犯罪！为自由而行动的****斯密特，用她的勇敢行动，向澳大利亚和西方演示着什么是极权暴政和独裁！**
-
-**致敬****莫妮卡****·****斯密特****，****“****我没有被沉默，在我看来，这就是他们想做的事情。****”**
-
-**祝贺莫妮卡·斯密特赢得了维多利亚州最高法院历史性的胜利。这个胜利，是对追求正义自由人们的鼓舞。让我们坚强些，行动起来，法律之战还才刚刚开始。让我们用手中的法律武器，驱逐腐败的政客用“广泛的权力”实施暴政，保护我们的健康。为了我们的未来，行动起来。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-素材链接：[lifesitenews.com](https://www.lifesitenews.com/news/a-win-for-justice-aussie-anti-lockdown-heroine-monica-smit-released-from-jail/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

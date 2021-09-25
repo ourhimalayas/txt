@@ -2,9 +2,9 @@
 ---
 
 
-## 警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1554025/)
+## 纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1554081/)
 
-9/25/2021 警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者。
+9/20/2021 纳瓦罗和班农：继中共病毒后，中共再次向世界传播金融病毒。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

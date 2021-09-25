@@ -2,54 +2,45 @@
 ---
 
 
-## Twitter于几周内推出比特币Tip的汇款功能
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1551580/)
+## 9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1552473/)
 
-- 编译：wenwu–西班牙喜悦农场
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-75.png)[图片来源](https://www.reuters.com/)
+**1.****恒大****未能在****截止日期前支付****离岸债券利息**
 
+[新加坡/香港，9月24日（路透社）–两位熟悉此事的人士表示，中国恒大集团（3333.HK）的一些离岸债券持有人在美国时间周四的最后期限前没有收到利息付款，因为人们对这家房地产开发商的命运越来越担忧。支付8,350万美元债券利息的最后期限在周四结束，恒大没有发表任何意见，其庞大的债务已经吓坏了世界市场。该公司现在进入了30天的宽限期，如果过了宽限期没有付款，它将违约。由于未获授权对媒体发言，这些消息来源不能透露姓名。恒大集团的发言人没有立即回应置评请求。路透社无法确定恒大是否已经告诉债券持有人它打算如何处理周四到期的票据付款。](https://www.reuters.com/world/china/some-evergrande-offshore-bondholders-not-paid-by-thursday-deadline-us-time-2021-09-24/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-334.png)
+**2.****中****共当局****对加密货币施压比特币跌跌不休**
 
-在 Twitter **[TWTR](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)**[，](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)[**+3.80%**](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)上用比特币[打赏](https://www.marketwatch.com/investing/stock/TWTR?mod=MW_story_quote)将很快普及， 使这个社交媒体平台成为首批提供此类支付功能的主要公司之一（包括了GETTR平台的GETTR PAY也快了）。
+[上海，9月24日（路透社）–中国周五加大了对加密货币交易的打击力度，发誓要根除 “非法 “活动，并在全国范围内禁止加密货币开采，打击了比特币和其他主要币种，并对加密货币和区块链相关股票造成压力。十个中国政府机构，包括中央银行以及银行、证券和外汇监管机构，在一份联合声明中表示，他们将密切合作，保持对加密货币交易的 “高压 “打击。中国人民银行（PBOC）表示，加密货币不得作为传统货币在市场上流通，海外交易所被禁止通过互联网向大陆投资者提供服务。中国人民银行还禁止金融机构、支付公司和互联网公司促进加密货币交易。](https://www.reuters.com/world/china/china-central-bank-vows-crackdown-cryptocurrency-trading-2021-09-24/)
 
-在 Twitter 几个月来一直在测试此类汇款功能之后，该公告才发布。Tip 最早将于本周向 Apple iOS 用户提供，并将在未来几周向使用 Android 设备的用户提供。
+**3.****华尔街认为鲍威尔在美联储的任期将延长****4****年**
 
-在 Twitter 使用比特币**[BTCUSD](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)**[，](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)[**-0.57%**](https://www.marketwatch.com/investing/cryptocurrency/BTCUSD?mod=MW_story_quote)作为其平台的一种支付方式后，会有许多加密货币的牛市很快就强调了汇款功能在 Jack Dorsey 运营的 Twitter 平台上的重要性。
+[(路透社)–美联储主席杰罗姆-鲍威尔(Jerome Powell)仍被白宫看好，如果最近的历史重演，决定可能会在11月初央行再次开会之前的任何时候作出。华尔街预计，2017年由美国总统特朗普提名并经参议院确认的鲍威尔，将由总统乔-拜登重新提名，再干四年。“我认为市场会喜欢这样，因为这是连续性的，他们已经对他感到满意，他是一个已知的数量，”Truist Advisory Services的联合首席投资官Keith Lerner说。“总的来说，我认为街道的看法是积极的。”政治博彩网站Predictit显示，鲍威尔被参议院重新确认的可能性约为84%，低于9月12日的90%，但与他7月时的可能性基本持平。该网站显示，美联储理事Lael Brainard的机会约为15%。鲍威尔于2018年2月接替珍妮特-耶伦(Janet Yellen)担任美联储理事会主席，他不得不操纵经济度过自第二次世界大战以来最严重的危机，受到去年年初开始的COVID-19大流行病的打击。](https://www.oann.com/wall-street-eyes-four-more-years-for-powell-at-fed/)
 
-在美国芝加哥的马勒斯（Mallers)使用推特 Tip 功能（先通过Strick账户关联Twitter)向在萨尔瓦多星巴克的大卫发送比特币，萨尔瓦多刚刚将比特币作为官方法定货币（如果比特币在美国可以使用，就等同于挂钩美元）。
+**4.****白宫就芯片信息要求向各公司提出质询**
 
-在通过应用程序汇款相当于 10 美元比特币后，Mallers 说“Boom！我们刚刚通过 Twitter 进行了即时、免费的汇款支付。”
+[华盛顿（路透社）–白宫周四向汽车制造商、芯片公司和其他公司施加压力，要求他们提供有关正在进行的半导体危机的信息，该危机已迫使美国汽车生产削减，并带头帮助解决。商务部长吉娜-雷蒙多（Gina Raimondo）与国家经济委员会主任布莱恩-迪斯（Brian Deese）周四与半导体行业参与者会面，她告诉路透社，需要采取强有力的行动。“是时候采取更积极的行动了，”她说。“情况没有变好；在某些方面，情况正在变坏。”在4月和5月的会议之后，周四会议的参与者包括底特律的三大汽车制造商，以及苹果、戴姆勒、宝马、GlobalFoundries、美光、微软、三星、台积电、英特尔和安培计算。白宫表示，政府“重申工业界需要在解决因全球芯片短缺而出现的供应链瓶颈方面发挥主导作用。”](https://www.oann.com/white-house-seeks-to-address-semiconductor-chips-crisis-harming-automakers/)
 
-“为什么会有人使用西联汇款 [**WU**，**+1.10%**](https://www.marketwatch.com/investing/stock/WU?mod=MW_story_quote) 再次？当你将世界上最大的社交互联网网络之一（人脉）与世界上最好的开放货币网络（资金流通）结合起来时，就等于意外地出现世界上最好的汇款体验”马勒斯说。
+**5.****纽约和伦敦保持全球金融中心指数榜首位置**
 
-Mallers 支持 Twitter 功能并非巧合，Twitter 正在使用他的 Strike 网络来促进 Tip 功能的使用；Mallers 与其母公司 Zap Technologies 共同创立的芝加哥初创公司 Strike ，也以帮助萨尔瓦多采用比特币而闻名。
+[伦敦（路透社）–根据周五公布的排名，纽约轻松保住了最新全球金融中心指数（GFCI）的榜首位置，而伦敦则因中国城市的下滑而稳居第二。该指数由Z/Yen集团与智囊团中国发展研究院合作发布，在去年12月英国完成脱离欧盟轨道的过程中，伦敦失去了进入欧盟金融市场的机会，这对伦敦来说尤其是一种安慰。GFCI在一份声明中说：“纽约和伦敦相对强劲的表现表明，尽管在过去18个月中工作方式发生了根本性的变化，但这些城市的金融服务部门还是设法维持了它们的业绩。排名第三和第四的香港和新加坡在评级中都下降了25分。”](https://www.oann.com/new-york-london-keep-top-spots-in-global-financial-centres-index/)
 
-就 Dorsey 而言，他也是加密货币的坚定支持者，并经营着 Square Inc. [**SQ**](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)[，** **](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)[**+2.16%**](https://www.marketwatch.com/investing/stock/SQ?mod=MW_story_quote)， 该平台绑定的是比特币；Twitter 还表示，它的目标是提供一项功能，允许用户在其平台上验证不可伪造的代币或 NFTs（区块链加密货币资产）。
+**6.****百度****被认为不太可能被中共当局批准****收购****YY****直播****的交易**
 
-但总的来说，除了汇款外，用比特币支付小费似乎不太可能在 Twitter 上获得太多关注。比特币是全球市值第一的加密货币，已被视为一种价值储存手段，并因其令人痛苦的价格不稳定而遗臭万年（更别谈其他的去中心化加密货币了）。
+[香港（路透社）-两位直接了解此事的消息人士告诉路透社，中国的反垄断监管机构不太可能批准百度以36亿美元收购JOYY Inc的基于视频的国内直播业务YY Live。他们说，这是在中国政府通过交易控制游戏相关业务和企业扩张的举措之后。百度和YY的交易将是在中国广泛打击私营企业，特别是互联网行业的私营企业的背景下，最新的数十亿美元的交易，因为中国政府寻求控制大数据和打破垄断做法。上述消息人士和另外两名熟悉此事的消息人士表示，百度交易的失败可能会给另一项计划中的纳斯达克上市公司JOYY的私有化交易投下阴影，该交易的估值将达到80亿美元。中国搜索引擎巨头百度在11月宣布，它将从社交媒体公司JOYY收购YY Live，支付现金以帮助实现收入来源多样化。](https://www.oann.com/exclusive-china-is-unlikely-to-approve-baidus-3-6-billion-purchase-of-joyys-yy-live-sources/)
 
-一个很大恐惧是用比特币进行交易只会看到资产激增（或下跌）。事实上，大约 11 年前的[5 月 22 日，Laszlo Hanyecz](https://www.marketwatch.com/story/bitcoin-pizza-day-laszlo-hanyecz-spent-3-8-billion-on-pizzas-in-the-summer-of-2010-using-the-novel-crypto-11621714395?mod=article_inline)是刚刚被编码存在的[新型](https://www.marketwatch.com/story/bitcoin-pizza-day-laszlo-hanyecz-spent-3-8-billion-on-pizzas-in-the-summer-of-2010-using-the-novel-crypto-11621714395?mod=article_inline)加密货币比特币的早期采用者之一，他用1万比特币购买了“Papa Hohns”披萨饼。这次购买在2010年时大约相当于41美元，但现在的价值为4.48亿美元。
+**7.****德国富翁在选举前将资产****转向****瑞士**
 
-无论如何，Twitter 的股价在当天上涨了 3.7%，今年迄今上涨了 23%，而道琼斯工业平均指数[DJIA, +1.48%](https://www.marketwatch.com/investing/index/DJIA?mod=MW_story_quote)上涨了 1.7% ， 标普 500 指数**[SPX](https://www.marketwatch.com/investing/index/SPX?mod=MW_story_quote)**[，**+1.21%**](https://www.marketwatch.com/investing/index/SPX?mod=MW_story_quote)当天上涨 1.4% . 道琼斯指数今年迄今已上涨 14%，而标普 500 指数在 2021 年迄今已上涨近19%。
+[苏黎世，9月24日（路透社）–银行家和税务律师说，德国周日的选举可能向左倾斜，这吓得百万富翁把资产转移到瑞士。如果中左翼的社会民主党（SPD）、硬左翼的林克党（Linke）和环保主义者绿党上台，重新引入财富税和收紧遗产税可能会被列入政治议程。“对于超级富豪来说，这是很红火的，”一位在德国有广泛瑞士业务的税务律师说。“企业家家庭高度震惊。”](https://www.reuters.com/world/europe/german-millionaires-rush-assets-switzerland-ahead-election-2021-09-24/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-336.png)
+[此举表明，尽管瑞士努力废除其作为亿万富翁避风港的形象，但许多富人仍将瑞士视为一个有吸引力的财富停放地。没有哪个国家的离岸资产比瑞士多，2020年资金流入加速，瑞银(UBSG.S)、瑞士信贷(CSGN.S)和瑞士宝盛(BAER.S)等大银行受益。地缘政治的紧张和对COVID-19大流行病的经济影响的担忧使瑞士的政治稳定具有吸引力。](https://www.reuters.com/world/europe/german-millionaires-rush-assets-switzerland-ahead-election-2021-09-24/)
 
-**简评：**
+**8.美国的 “粉单”交易市场出现动荡，证券监管机构希望杜绝欺诈行为
+**
+[华盛顿/纽约，9月23日（路透社）–当一项旨在杜绝美国股票市场这块臭名昭著的欺诈行为的新规则在下周生效时，多达2000家公司可能会从长期受到散户投资者喜爱的场外交易“粉单”中消失。美国证券交易委员会（SEC）的规则要求交易所外发行人（通常是不符合主要交易所上市标准的股票公司）公开提供准确的、最新的财务信息，从而促进投资者的信息披露。](https://www.reuters.com/business/finance/us-pink-sheets-shakeup-securities-regulator-looks-stamp-out-fraud-2021-09-23/)
 
-**我们可以从本篇文章中的货币框架大概推测出，GETTR PAY是在10月份喜联储上市以后与GETTR相联系的基础上运用的网络汇款功能，并且该功能的优越感除了本文提到 Tip 的所有好处（包括挂钩美元）之外更重要的是喜刀的唯一性：绑定黄金。**
+[由于现行规则中的一个漏洞，在纽约OTC市场集团（OTCM.PK）经营的粉红市场上报价的大约11000家公司中，约有2000家没有公开提供此类信息。OTC Markets一直在努力宣传并鼓励公司将其文件工作做好，但目前还不清楚有多少公司会在9月28日的最后期限前及时完成这一工作，如果有的话，该公司的总法律顾问Daniel Zinn说。](https://www.reuters.com/business/finance/us-pink-sheets-shakeup-securities-regulator-looks-stamp-out-fraud-2021-09-23/)
 
-**值得一提的是，新中国联邦的G系列是包括了支持言论自由、反对 Cancle Culture 的社交平台（以及喜联储个人银行）。而 Twitter 是一个专制主义的管控平台，它更愿意向独裁政权和塔利班恐怖分子伸出了橄榄枝，这消息已经广为流传。最重要的是不要忘了，比特币的最大拥有者是中国共产党，也就是说比特币的蔓延是标志着党国重器向各国境内的扩张。**
-
-**推特和脸书的“完美体验”包括了人脉、流量和资金流的热度。据2021年9月23日《大全》[报道](https://www.newsmax.com/politics/trump-twitter-terms-of-service-ban/2021/09/23/id/1037655/)，前美国总统唐纳德·川普的律师[在佛罗里达州对Twittter提起诉讼，](https://storage.courtlistener.com/recap/gov.uscourts.flsd.595801/gov.uscourts.flsd.595801.58.0.pdf)要求恢复他对自己账户的访问权限，称该账户是作为政府官员而非普通公民的“官方沟通的关键渠道”。也就是说推特已经成为了希特勒时候的太保，凌驾于法律之上。我们小老百姓心里有数，可比不了川普的实力。**
-
-**最后补充，萨尔瓦多的比特币是越看越像是港币了。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：《[市场观察](https://www.marketwatch.com/story/why-the-debut-of-tipping-bitcoin-on-twitter-isnt-just-about-tipping-11632424386?mod=hp_LATEST&amp;adobe_mc=MCMID=03287061211669659514148137854946098508%7CMCORGID=CB68E4BA55144CAA0A4C98A5%2540AdobeOrg%7CTS=1632448718)》｜作者：《马克·德坎布雷》｜发布时间：2021年9月23日
-
-* * *
-
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1.jpeg)
+By 【秘密翻译组-金融组】
+作者：千年等一回
