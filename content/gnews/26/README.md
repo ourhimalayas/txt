@@ -2,42 +2,31 @@
 ---
 
 
-## 英国中学校园接种开展 家长致信郡医院
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554112/)
+## 德国对华为小米等中共国手机启动安全调查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1554243/)
 
-栏目记者/责任编辑：安吉拉
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-81.png)
+图片来自网络
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据《德国之声》中文网9月25日报道，在立陶宛政府对中共国产的智能手机内置的信息审查功能发出警告之后，德国方面也采取了措施。据《德新社》消息，德国内政部下属的联邦信息安全办公室（BSI）已就相关安全警告启动了调查，该机构的一名发言人证实了这一消息。
 
-英国本周启动针对12至15岁少年第一剂新冠疫苗接种计划。政府无视新冠疫苗给人们带来的各种伤害和民众持续的抗议，反而持续加压，要求学校必须协助国家接种团队入驻校园，按时完成注射任务。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/pp-9.002.jpeg)
-各地区民众自发团结，利用现有法律保护自己的权利和儿童健康与生命安全。家长们向郡医疗机构和当地学校发出信函，要求对方就学童接种新冠疫苗一事做出回应。
+此前，立陶宛国家数字安全中心对小米的一款智能手机，做出了持批评态度的评估，认为厂家理论上存在对手机自带的浏览器实施特定内容屏蔽的可能性。虽然相关的审查功能并未启用，但理论上仍可通过远程操控进行激活。
 
-信中强调：知情同意权、医疗自由和身体自主权必须得到尊重、维护和保护；作为医疗机构和学校方，必须明晰以下几点：
+立陶宛方面表示，小米在欧洲销售的手机可以识别”自由西藏”、”台湾独立万岁”、”民主运动”等关键词，并屏蔽相关内容。在同为中共国制造的华为手机上也发现了类似的安全漏洞。
 
-- 新冠疫苗是否具有安全性和有效性
-- 公民知情同意权和吉利克能力，即16岁以下儿童医学决定权的考量
-- 解释疫苗生产制造使用的的材料
-- 如产生法律责任校方和医疗机构将面对诉讼并公开经过和结论
+另据德国《每日新闻》网页报道，此次调查具体涉及的手机型号包括：华为的P40 5G机型、小米的Mi 10T 5G机型和一加的OnePlus 8T 5G机型。
 
+德国联邦信息安全办公室的发言人表示，在政府机构的公务手机采购清单上，既没有小米，也没有任何一个来自中共国的品牌，但却不能排除公务员利用私人购买的小米手机处理公务的可能性。
 
-(本文仅代表作者观点)
+针对立陶宛方面提出的质疑，小米公司的一名发言人表示，“小米从来没有、也不会限制或阻止智能手机用户的任何个人行为，如搜索、通话、网络浏览或使用第三方通信软件”，强调小米充分尊重和保护所有用户的合法权利。小米公司发言人的讲话很具中共外交部特色，假话说得连自己都信了。
 
-参考链接：
+芬兰信息安全公司F-Secure德国分部安全专家特罗斯特（Rüdiger Trost）对《德新社》表示，应该对立陶宛政府提出的指控予以重视。他认为，中（共）国很有可能具备对本国产智能手机直接进行数据操纵的能力。同时，他也毫不怀疑中（共）国政府利用技术手段实施信息审查的意愿。
 
-1. [Covid vaccination begins for UK 12 to 15 year olds](https://www.bbc.com/news/health-58623058)
-2. [吉利克的能力 – Gillick competence百科全书 site:zh.wikiqube.net](https://zh.wikiqube.net/wiki/Gillick_competence)
+事实上，中共国产的智能手机无一例外，全都具有上述所说的安全隐患。更准确地说，对于国外客户来说，目前只是安全隐患；而对于中共国国内用户来说，这是一个已经被迫接受的事实。不仅如此，在中共国国内使用的国产智能手机还会自动收集用户数据，并按要求提供给中共当局，成为中共加强对国民控制的帮凶工具。
 
+笔者就曾用过一个华为手机，这部手机不仅会自动过滤许多国外网站，还禁止下载如WhatsApp、YouTube等app。任何一个国家，只要展开调查，只要没有勾兑，应该都会得出跟立陶宛一样的结论。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+注：本文仅代表作者观点
 
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻链接：**[https://twitter.com/dw\_chinese/status/1441710569967407116](https://twitter.com/dw_chinese/status/1441710569967407116)

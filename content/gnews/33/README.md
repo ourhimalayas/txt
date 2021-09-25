@@ -2,27 +2,23 @@
 ---
 
 
-## 郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1553946/)
+## 英国：汽油配给
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1554353/)
 
-郭文贵先生在[2021中秋特别节目：月亮托起我们的心愿](https://www.gtv.org/video/id=6149e63b42a8af3151a28330)下方时间戳纽约当地时间13：07：54时间点换上了一幅画作为直播背景，我们把郭先生不在镜头前的一幅截图放上来——
-![](https://assets.gnews.org/wp-content/uploads/2021/09/003-1.jpg)
-然后把中间的背景抠下来——
-![](https://assets.gnews.org/wp-content/uploads/2021/09/003_副本-1.jpg)
-然后我们用谷歌搜索进行照片匹配以后，我们找到了[绘画｜生活 是一首首平凡的诗](http://www.ifuun.com/a201712197864573/) Goddess / 1997 /Oil on Linen /140 x 212
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0-8.jpg)
-根据[绘画｜生活 是一首首平凡的诗](http://www.ifuun.com/a201712197864573/)介绍，这幅画的作者是［美国现实主义画家 Bo Bartlett 生于1955年，日常生活中的美丽，像是一首首平凡的诗，被他发现。］
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09251.jpg)
+英国即将因退欧和大流行的双重打击而屈服：现在已经到了汽油配给，BP 被迫关闭了几个分销商并限制对所有其他分销商的供应。同样的事情也在 Esso 发生。这是一场危机，再加上超市的危机：现在超市的新鲜产品货架经常是空的。所有这一切都是由于卡车司机短缺导致供应网络陷入混乱：60万人中有 10万人减少，其中许多司机来自欧洲，由于病毒和伦敦离开欧盟后引入的限制而离开。
 
-另据[维基百科——Bo Bartlett](https://en.wikipedia.org/wiki/Bo_Bartlett)：［博·巴特利特原名詹姆斯·威廉·巴特利特三世，1955 年 12 月 29 日出生于乔治亚州哥伦布市。[\[1\]](https://en-m-wikipedia-org.translate.goog/wiki/Bo_Bartlett?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem#cite_note-1) Bartlett 的父母 Opal 和 Bill Bartlett (James William Bartlett Jr.) 来自哥伦布。他的父亲是一名[木工](https://en-m-wikipedia-org.translate.goog/wiki/Woodworking?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)和家具设计师，他的母亲是一名医学图书管理员。[\[2\]](https://en-m-wikipedia-org.translate.goog/wiki/Bo_Bartlett?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem#cite_note-2) 18岁时，他前往[意大利佛罗伦萨，](https://en-m-wikipedia-org.translate.goog/wiki/Florence?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)师从美国侨民[本龙](https://en-m-wikipedia-org.translate.goog/wiki/Ben_Long?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)，学习壁画。[\[3\]](https://en-m-wikipedia-org.translate.goog/wiki/Bo_Bartlett?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem#cite_note-3)  1974年他回到美国并结婚。他于 1975 年搬到[费城](https://en-m-wikipedia-org.translate.goog/wiki/Philadelphia?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)。 2004 年，巴特利特周游世界，然后于 2005 年搬到[华盛顿州西雅图](https://en-m-wikipedia-org.translate.goog/wiki/Seattle?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc,elem)。］
+加油站协会建议驾车者始终带着四分之一的油箱行驶，以避免步行。与此同时，政府正在研究让军队介入并让士兵掌舵油轮的设想。但同时也呼吁公众不要恐慌，不要攻击经销商，以免恶化局势。
 
-关于这幅画的来源我们找出来了，那么这幅画的背后还有哪些故事呢？让我们拭目以待。
+但对囤积狂潮的恐惧也影响到超市，根据行业协会的说法，在伦敦，你会遇到空货架，尤其是牛奶、面包和蔬菜等新鲜产品。现在的担忧是危机可能将持续到圣诞节破坏英国人的假期。
 
-撰稿：喜马拉雅的肉夹馍
+许多人要求政府为卡车司机和其他关键部门引入加速签证程序，以便能够重新招聘与英国脱欧中断的欧洲工人，约翰逊政府却在坚持雇用英国本土劳动力而不是求助于来自欧洲的廉价劳动力。
 
-审核：喜马拉雅的馍夹肉
+一场完美的风暴正在英国上空：报纸大声宣布“不满的冬天”即将来临。然而鲍里斯·约翰逊 在设法将大流行病抛于身后，正准备通过雄心勃勃的改革计划重新启动，免于让他的政府有可能陷入危机的漩涡及提高他本人岌岌可危的人气。
 
-校对：Maarago
+免责申明：本文只代表译者观点，与Gnews无关
 
-（文章内容仅代表作者个人观点）
+原文链接：[https://www.corriere.it/esteri/21\_settembre\_24/gran-bretagna-razionamento-benzina-londra-sta-arrivare-l-inverno-scontento-23413552-1d13-11ec-a854-dd0bdfda3385.shtml](https://www.corriere.it/esteri/21_settembre_24/gran-bretagna-razionamento-benzina-londra-sta-arrivare-l-inverno-scontento-23413552-1d13-11ec-a854-dd0bdfda3385.shtml)
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

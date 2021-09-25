@@ -46,14 +46,14 @@
 ### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/12/README.md)
+### [因为喜币要上市了所以中共宣布虚拟货币交易为非法](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本外相：日本欢迎台湾申请加入TPP](/content/gnews/13/README.md)
+### [日本外相：日本欢迎台湾申请加入TPP](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [Peter Daszak发起了一场秘密运动来反驳实验室泄漏理论](/content/gnews/14/README.md)
- ` wenwu`
 
 ### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -67,65 +67,65 @@
 ### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [9/24/2021 七哥直播：渤海金控用谎言和虚假评估伪造了20万亿的资产](/content/gnews/19/README.md)
+### [9/24/2021 七哥直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [班农专访2: 文贵先生参加秘密会议](/content/gnews/20/README.md)
+### [9/24/2021 七哥直播：渤海金控用谎言和虚假评估伪造了20万亿的资产](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [班农专访2: 文贵先生参加秘密会议](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班農專訪1：感謝新中國聯邦慶祝父親百歲壽誕](/content/gnews/21/README.md)
+### [班農專訪1：感謝新中國聯邦慶祝父親百歲壽誕](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [未来要么被中共领导，要么被西方价值观领导](/content/gnews/22/README.md)
+### [未来要么被中共领导，要么被西方价值观领导](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国能回到资本市场以前的状况吗？](/content/gnews/23/README.md)
+### [中共国能回到资本市场以前的状况吗？](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [德国对华为小米等中共国手机启动安全调查](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国中学校园接种开展 家长致信郡医院](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [中共贸易制裁报复堪培拉，但高价抢购澳洲小麦](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [孟晚舟认罪有条件结束引渡, 两名加拿大人获释](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [英国议会调查在港银行是否参与打压香港自由](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [中共前联合国大使向美国发出核威胁](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/31/README.md)
+### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？](/content/gnews/32/README.md)
+### [德国对华为小米等中共国手机启动安全调查](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/33/README.md)
+### [英国中学校园接种开展 家长致信郡医院](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [中共贸易制裁报复堪培拉，但高价抢购澳洲小麦](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [孟晚舟认罪有条件结束引渡, 两名加拿大人获释](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [英国议会调查在港银行是否参与打压香港自由](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [這次熱點是臺灣，不是孟晚舟，也不是陳峰](/content/gnews/31/README.md)
+ ` 银河勇气之星`
+
+### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国：汽油配给](/content/gnews/33/README.md)
+ ` Charlie`
+
+### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/34/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/34/README.md)
+### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/35/README.md)
+### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [爆料革命战友守望相助——英喜在行动](/content/gnews/47/README.md)
+### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/47/README.md)
+ ` 英喜-粵語組`
+
+### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/48/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [爆料革命战友守望相助——英喜在行动](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [短视频：疫苗正在造成损害，人民亟待摆脱控制](/content/gnews/48/README.md)
+### [短视频：疫苗正在造成损害，人民亟待摆脱控制](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/49/README.md)
+### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/51/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内疫苗心情日记（十八）](/content/gnews/50/README.md)
+### [墙内疫苗心情日记（十八）](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/51/README.md)
+### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/52/README.md)
+### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/53/README.md)
+### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [监禁三年后，华为公主孟晚舟于9月24日被释放](/content/gnews/54/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [纳瓦罗介绍《在川普时代》：川普被彭斯及幕僚长肖特背叛](/content/gnews/55/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [国际要闻汇编](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [中共前联合国大使向美国发出核威胁](/content/gnews/57/README.md)
+ ` GTV新闻访谈`
 
