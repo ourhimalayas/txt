@@ -2,18 +2,31 @@
 ---
 
 
-## 雅典娜时报-第062期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553243/)
+## 恒大危机之外，中共国经济还有更大的麻烦
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1553321/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-350.png)位于太仓的恒大文化旅游城已于上周停建。GETTY IMAGES
+据纽约时报中文网9月23日报道，全球各地的股市一直在关注中共国大型房地产公司——恒大集团的违约危险，担心其崩溃会波及国际金融体系。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-14.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image1-2.png)
-***发布：小红帽***
+恒大可能成为中共国的“雷曼时刻”。雷曼时刻指的是引发全球金融危机的雷曼兄弟投资银行在2008年倒闭。尽管中共国经济学家不赞成恒大可能触发金融危机，但同时也指出了中共国房地产市场普遍疲软。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共政府可能会出面拯救恒大，但这与他们试图给房地产市场降温的努力背道而驰。中共国大公司的账簿上通常有大量抵押品，银行可能不会因公司破产而遭受重创。如果恒大迅速崩溃，可能导致房价全面下跌，会给金融体系带来无法预见的冲击。房地产一直是中共国的经济支柱。中共央行向信贷市场临时注入1200亿元人民币来缓解风险。
+
+世界各地的建筑公司和制造商预测到未来艰难时，往往会停止购买大型卡车。汽车行业是中共国最大的行业之一，经济占比仅次于建筑和政府支出。中共国汽车工业协会披露，8月份的重型卡车产量和销量与去年同期相比下降了近一半。
+
+中共国货运卡车的生产能力达到每年160万辆，而市场的长期销售远低于每年100万辆。中共国各地的卡车经销商手中存有大量待售卡车，而计算机芯片的严重短缺也影响了汽车的生产和销售。
+
+尽管中共国面临广泛的产能过剩，许多经济学家仍然相信中共国能够度过难关，因为中共国政府设定利率、控制大笔资金跨境流动的能力更大。羊毛出在羊身上，挣钱没有老百姓的份，但赔钱肯定是从百姓身上出。禁止资金外流，对私有企业主施行“共同富裕”，把老百姓口袋里的钱彻底搜刮干净，就暂时度过难关了，不过最终也是难逃一死。
+
+[新闻参考链接](https://cn.nytimes.com/business/20210923/china-economy-evergrande/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,51 +2,44 @@
 ---
 
 
-## 美众院通过《国防授权法》 两项修正案剑指中共国人权问题
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1553124/)
+## 新州医务工作者对强制性疫苗接种发起法律挑战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553224/)
 
-作者：纽约香草山农场 – 飞虹
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-30.png)
+**图片来源：****Gofundme**
 
+澳大利亚新南威尔士州一名资深护理人员筹集了超过127000澳元，对强制新南威尔士州政府要求全部卫生工作者在11月30日之前全面接种疫苗的规定提出法律挑战。
 
+9月10日，约翰·拉特（John Larter）在众筹平台GoFundMe上发起了筹款活动，目标是筹集150000澳元，目前已经吸引了近2000名支持者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+拉特先生表示，他已在新南威尔士州最高法院提出起行政诉讼，以寻求对新南威尔士州公共卫生令要求卫生工作者强制接种疫苗的宣告性救济，“这一行动吸引了澳大利亚一些最资深的法律人士”。
 
+他在筹款页面上写道：“我将为此而奋斗，因为我坚信任何人都不应该因为他们的医疗状况而受到歧视，并且在任何情况下都不应该因为他们的医疗状况而将他们排除在工作场所之外。”
 
+“我致力于选择自由，我坚信所有人都应该有选择和能力来决定他们接受什么医疗程序。”
 
-9月23日，美国众议院完成476项修正案的辩论后，以316票支持、113票反对的表决结果通过了新财政年度的国防开支法案。其中，共有38位民主党人和75位共和党人投下了反对票。
+新南威尔士州卫生部长布拉德·哈扎德(Brad Hazzard)和新南威尔士州卫生部也在联邦和最高法院的其他一些诉讼中进行抗争。
 
-![](https://gdb.voanews.com/B6D8D0C0-F975-4543-8D85-DEB97AD8688C_w1023_r1_s.png)图片来源：VOA
+三周前，联邦法院驳回了一群宗教领袖提出的寻求豁免限制的申请。
 
-该法案将在新财年内授权为五角大楼提供超过7780亿美元的预算，较拜登行政当局提出的预算请求增加了250亿美元。整体而言，该法案将着重强化美国的网络安全、创新技术和资讯系统的发展，并大幅增加对关键研发领域的投资，包括生物技术、定向能源和电磁频谱等项目。
+但本月晚些时候还有其他三件事将进入听证会。
 
-这法案从多个方面涉及与中共相关的问题，包括科研发展、人权问题、新冠溯源及国际影响力等。
+其中两个由卡萨姆（Al-Munir Kassam）和亨利（Natasha Henry）带来，他们正在寻求挑战政府健康规则，这些规则要求普通工人如果他们要离开他们工作的地区，必须在9月19日之前接受第一次疫苗接种。
 
-值得关注的是，众议院通过的国防授权法在中国人权问题方面纳入了两项修正案。其中一项修正案为，众议院将根据国际法，正式裁定中华人民共和国在中国共产党的指导和控制之下对维吾尔人及其他少数民族和其他宗教少数群体成员正在进行的暴行构成种族族灭绝；另一项修正案则要求，当奥运会或其他国际运动竞赛在共产、威权或侵犯人权的国家举行时，美国将为美国体育代表团提供有关人权和个人隐私的简报。
+截至发稿日，约翰·拉特已经募集资金超过133449澳元。
 
-另外，该法案还表达了美国国会对台湾安全防卫的支持。
+参考链接：
 
-（本文仅代表作者观点）
+1、[Legal challenge to mandatory vaccinations crowdfunds $127,000 | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/business/legal-challenge-to-mandatory-vaccinations-crowdfunds-127000/news-story/0e08adf92c31f68a2442145e330a5bc4)
 
-参考阅读：
+2、[Fundraiser by John Larter : John Larter v NSW Health (gofundme.com)](https://www.gofundme.com/f/john-larter-v-nsw-health?qid=f73da8e18a8f898184d3cec746e88e6f)
 
-[美众院通过《国防授权法》 点明中（共）国人权问题 将加强与台湾防务合作](https://www.voachinese.com/a/us-house-passed-ndaa-fy2022-20210923/6243724.html)
+编辑/发布：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

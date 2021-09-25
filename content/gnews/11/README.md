@@ -2,43 +2,32 @@
 ---
 
 
-## 新州医务工作者对强制性疫苗接种发起法律挑战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553224/)
+## 澳洲应吸取教训：新加坡接种率超过80%，人们仍失去自由
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1553331/)
 
-#### **编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-30.png)
-**图片来源：****Gofundme**
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/10094251duyd.jpg)图片来源：xhdaz.com
+**【雅典娜快讯】，紧贴时事脉搏**
 
-澳大利亚新南威尔士州一名资深护理人员筹集了超过127000澳元，对强制新南威尔士州政府要求全部卫生工作者在11月30日之前全面接种疫苗的规定提出法律挑战。
+尽管两针疫苗接种的覆盖率高于80%，新加坡仍将缩减人们的自由，以阻止感染率的持续增加，减轻医疗系统的压力，避免更长时间的封锁。
 
-9月10日，约翰·拉特（John Larter）在众筹平台GoFundMe上发起了筹款活动，目标是筹集150000澳元，目前已经吸引了近2000名支持者。
+随着澳大利亚逐步接受未来与德尔塔病毒共存的现实，新加坡政府也将重新开始为期一个月的限制措施，包括将社交聚会限制为两个人以内，并将在家办公作为默认情况。
 
-拉特先生表示，他已在新南威尔士州最高法院提出起行政诉讼，以寻求对新南威尔士州公共卫生令要求卫生工作者强制接种疫苗的宣告性救济，“这一行动吸引了澳大利亚一些最资深的法律人士”。
+澳大利亚新南威尔士州州长格拉迪斯·贝雷吉克利安 (Gladys Berejiklian) 敦促人们，不要将该州预计在10月11日左右实现的70%的两针接种目标视为“自由日”，并表示公民仍必须以负责任的方式行事。
 
-他在筹款页面上写道：“我将为此而奋斗，因为我坚信任何人都不应该因为他们的医疗状况而受到歧视，并且在任何情况下都不应该因为他们的医疗状况而将他们排除在工作场所之外。”
+首都领地堪培拉有望成为第一个达到16岁以上居民60%完全接种的辖区。与此同时，维州距离80%首剂疫苗接种覆盖率还差3.7%，当局鼓励更多的维多利亚州人本周末外出接种疫苗。
 
-“我致力于选择自由，我坚信所有人都应该有选择和能力来决定他们接受什么医疗程序。”
+据称，一旦维州达到80%的单次疫苗接种率，将获得的额外自由，包括多达5名完全接种疫苗的成年人恢复非接触式运动，以及外出范围从10公里变成15公里。
 
-新南威尔士州卫生部长布拉德·哈扎德(Brad Hazzard)和新南威尔士州卫生部也在联邦和最高法院的其他一些诉讼中进行抗争。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-三周前，联邦法院驳回了一群宗教领袖提出的寻求豁免限制的申请。
+**参考新闻：**[Singapore winds back freedoms at 80 per cent full coverage (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/09/25/victoria-misses-covid-deadline/)
 
-但本月晚些时候还有其他三件事将进入听证会。
+***编辑：小红帽******/翼族*****
+*****发布：小红帽***
 
-其中两个由卡萨姆（Al-Munir Kassam）和亨利（Natasha Henry）带来，他们正在寻求挑战政府健康规则，这些规则要求普通工人如果他们要离开他们工作的地区，必须在9月19日之前接受第一次疫苗接种。
-
-截至发稿日，约翰·拉特已经募集资金超过133449澳元。
-
-参考链接：
-
-1、[Legal challenge to mandatory vaccinations crowdfunds $127,000 | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/business/legal-challenge-to-mandatory-vaccinations-crowdfunds-127000/news-story/0e08adf92c31f68a2442145e330a5bc4)
-
-2、[Fundraiser by John Larter : John Larter v NSW Health (gofundme.com)](https://www.gofundme.com/f/john-larter-v-nsw-health?qid=f73da8e18a8f898184d3cec746e88e6f)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
