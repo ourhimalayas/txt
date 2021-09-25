@@ -37,22 +37,22 @@
 ### [郭文贵直播摘要和音频2021.9.24](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/9/README.md)
+### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：纽约州采取各种手段强迫医护人员接种疫苗](/content/gnews/10/README.md)
+### [秘翻在线：纽约州采取各种手段强迫医护人员接种疫苗](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [以色列疫苗受害者的证词（1/6）](/content/gnews/11/README.md)
+### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [主流媒体颠倒黑白报道“国家审计”报告的公布](/content/gnews/12/README.md)
+### [主流媒体颠倒黑白报道“国家审计”报告的公布](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [“国家审计”报告发布中揭多米尼数据陷大麻烦](/content/gnews/13/README.md)
- ` HimalayaRussia`
-
-### [“国家审计”报告发布中已现重大选票问题](/content/gnews/14/README.md)
+### [“国家审计”报告发布中揭多米尼数据陷大麻烦](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
 ### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/15/README.md)
@@ -85,47 +85,47 @@
 ### [金融信托的猫腻](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国为恒大倒闭做准备](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [美国司法部延长对孟晚舟的起诉协议](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [台湾，你正处于极度危险中！](/content/gnews/28/README.md)
+### [中共整肃演艺圈行动升级 横店剧组建立临时党支部](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/29/README.md)
+### [中国为恒大倒闭做准备](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/30/README.md)
+### [拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [达扎克承认福奇资助了中共国冠状病毒研究](/content/gnews/31/README.md)
+### [美国司法部延长对孟晚舟的起诉协议](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [台湾，你正处于极度危险中！](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生揭露更多海航、陈峰、王岐山的内幕](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [DC大中华时事：中国驻日使馆称，日方应慎重妥善处理CPTPP涉台问题](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [达扎克承认福奇资助了中共国冠状病毒研究](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华为孟晚舟获释回国：中共朝着死亡谷迈进](/content/gnews/32/README.md)
+### [华为孟晚舟获释回国：中共朝着死亡谷迈进](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：菅义伟呼吁减轻半导体矿物资源对华依赖；松下千名员工提前退休](/content/gnews/33/README.md)
+### [银河快讯：菅义伟呼吁减轻半导体矿物资源对华依赖；松下千名员工提前退休](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：什么是让人七窍出血的热病毒？](/content/gnews/34/README.md)
+### [秘翻在线：什么是让人七窍出血的热病毒？](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共可能用“超级MERS”对美国发动新一轮致命生物武器攻击](/content/gnews/35/README.md)
+### [秘翻在线：中共可能用“超级MERS”对美国发动新一轮致命生物武器攻击](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [陈峰被抓，孟晚舟回家，加密货币被封杀！](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本汽车业受中共病毒影响，今年预计损失超万亿日元](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [维多利亚州新确诊病例再创记录](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [美国人正在采取行动以应对疫苗强制令](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -163,24 +163,24 @@
 ### [零对冲对加密货币市场最新变化的更新（FW38）](/content/gnews/50/README.md)
  ` 纽约香草山MOS02`
 
-### [没有疫苗护照的工人在意大利不会得到报酬](/content/gnews/51/README.md)
+### [郭文贵先生揭露更多9月24日共军携带核武扰台的细节](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/52/README.md)
+### [没有疫苗护照的工人在意大利不会得到报酬](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [劳斯莱斯将为B-52轰炸机机队重新打造新喷气发动机](/content/gnews/53/README.md)
+### [佛罗里达州法官中止了该州的强制疫苗接种令](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
+
+### [以色列疫苗受害者的证词（1/6）](/content/gnews/54/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [劳斯莱斯将为B-52轰炸机机队重新打造新喷气发动机](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多国民众组织抗议全球食品业巨头](/content/gnews/54/README.md)
+### [多国民众组织抗议全球食品业巨头](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墨尔本警方限制空中直播抗议活动，引媒体抨击](/content/gnews/55/README.md)
- ` 墨尔本雅典娜农场`
-
-### [多重压力下高耗能民企停产 浙印染产能“全军覆没”](/content/gnews/56/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲应吸取教训：新加坡接种率超过80%，人们仍失去自由](/content/gnews/57/README.md)
- ` 墨尔本雅典娜农场`
+### [陈峰被抓，孟晚舟回家，加密货币被封杀！](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
