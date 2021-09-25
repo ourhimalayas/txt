@@ -2,42 +2,23 @@
 ---
 
 
-## 英国中学校园接种开展 家长致信郡医院
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554112/)
+## 墙内疫苗心情日记（十八）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1554172/)
 
-栏目记者/责任编辑：安吉拉
+#### 撰稿：东京樱花团/天道天路
+![](https://assets.gnews.org/wp-content/uploads/2021/09/7aa3da813b82f793.png)
+中秋节，在居住的城市里陪孩子度过三天时间，每天负责照顾饮食起居、接送补课和做饭洗碗，但是倍感惬意。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这次中秋节没有回老家，给父亲打了个电话，告知十一假期回去，叮嘱他们在新冠预防上不能停药——青蒿素已吃了七天，但没有配锌一起吃，原因是之前获取的信息不完整。在问及父亲吃完后没有不适之后，更感放心了。目前老家在打第三针，有赠送一包口罩的活动。侄子不上学了，准备去外地打工，自己去打了第二针，在吃青蒿素方面也没有按时吃药，毕竟十五六岁的孩子，既不太相信我的话，也架不住别人议论。
 
-英国本周启动针对12至15岁少年第一剂新冠疫苗接种计划。政府无视新冠疫苗给人们带来的各种伤害和民众持续的抗议，反而持续加压，要求学校必须协助国家接种团队入驻校园，按时完成注射任务。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/pp-9.002.jpeg)
-各地区民众自发团结，利用现有法律保护自己的权利和儿童健康与生命安全。家长们向郡医疗机构和当地学校发出信函，要求对方就学童接种新冠疫苗一事做出回应。
+每天持续关注爆料革命的信息，看七哥直播总盼望着有什么好消息，或者大事发生。但自己也知道这种想法不正确，毕竟在灭共的事上，虽有定数，但灭共前各种的准备是我要考虑的。坚持继续传播中共病毒和疫苗的解药，但在与人沟通方面，已不像以前鲁莽。与陌生的客户沟通后，有感觉的加微信，发一些预防新冠的链接，有意识的去启发他的思维，来看待问题。这样的感觉特别好，这样的事我不是做给人看的，因为我知道上帝在看就好了，不去讨人的喜欢，只求祂欢喜。
 
-信中强调：知情同意权、医疗自由和身体自主权必须得到尊重、维护和保护；作为医疗机构和学校方，必须明晰以下几点：
+七哥在讲G系列的未来，很是替战友们高兴，不远的将来他们会成为新中国联邦的中流砥柱，成为建设新中国联邦的开拓者，想想七哥为战友们做的事真是感恩，回看七哥以前的视频，对照现在的现实，都应验了。他的智慧和勇气只是没有人可比！
 
-- 新冠疫苗是否具有安全性和有效性
-- 公民知情同意权和吉利克能力，即16岁以下儿童医学决定权的考量
-- 解释疫苗生产制造使用的的材料
-- 如产生法律责任校方和医疗机构将面对诉讼并公开经过和结论
+在参与G系列投资上，由于个人资金有限，也时有对未能把握机遇的遗憾。但转念一想，人也得知足！七哥说，当前活着、健康的活着，就是幸福。能有幸参与爆料革命、新中国联邦，更有幸得到七哥对战友的开智和教诲，这已是人生的宝贵财富。在墙内我，有时思维和心眼就是这样狭小，看着别人的，没有看我自己所有的。必须转变思维，一天的难处一天当就好了，不要为明天而忧虑。
 
+（文章仅代表作者个人观点，与GNEWS无关）
 
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [Covid vaccination begins for UK 12 to 15 year olds](https://www.bbc.com/news/health-58623058)
-2. [吉利克的能力 – Gillick competence百科全书 site:zh.wikiqube.net](https://zh.wikiqube.net/wiki/Gillick_competence)
-
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

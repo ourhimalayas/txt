@@ -37,14 +37,14 @@
 ### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美联航员工要求法院阻止疫苗接种要求](/content/gnews/9/README.md)
+### [台湾两人因注射阿斯利康疫苗死亡](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [哪是什么疫情，一切都是CCP的政治阴谋](/content/gnews/10/README.md)
- ` 银河勇气之星`
+### [美联航员工要求法院阻止疫苗接种要求](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
 
-### [维州：即使接种率80%，仍将有口罩及家访限制](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
+### [哪是什么疫情，一切都是CCP的政治阴谋](/content/gnews/11/README.md)
+ ` 银河勇气之星`
 
 ### [美国与欧盟拟联手限制大型科技公司](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
@@ -55,16 +55,16 @@
 ### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/15/README.md)
+### [因接种新冠疫苗导致白血病的健身爱好者宫东升都经历了啥](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/16/README.md)
+### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [“供不应求”致中药材价格上涨](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/18/README.md)
+### [“供不应求”致中药材价格上涨](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
 ### [9/24/2021 七哥直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久](/content/gnews/19/README.md)
@@ -103,29 +103,29 @@
 ### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/31/README.md)
+### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚、印度、日本和美国领导人强调需要“稳定”的太平洋](/content/gnews/32/README.md)
+### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/33/README.md)
+### [澳大利亚、印度、日本和美国领导人强调需要“稳定”的太平洋](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [這次熱點是臺灣，不是孟晚舟，也不是陳峰](/content/gnews/34/README.md)
+### [这次热点是台湾，不是孟晚舟，也不是陈峰](/content/gnews/35/README.md)
  ` 银河勇气之星`
 
-### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/35/README.md)
+### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国：汽油配给](/content/gnews/36/README.md)
+### [英国：汽油配给](/content/gnews/37/README.md)
  ` Charlie`
 
-### [德国对华为小米等中共国手机启动安全调查](/content/gnews/37/README.md)
+### [德国对华为小米等中共国手机启动安全调查](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -172,15 +172,15 @@
 ### [盖特CEO：言论自由在全世界受到攻击](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/54/README.md)
+### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/54/README.md)
+ ` 纽约香草山MOS01`
+
+### [《奥特曼》全面下架，中共思想控制从娃娃抓起](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内疫苗心情日记（十八）](/content/gnews/55/README.md)
+### [墙内疫苗心情日记（十八）](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国中学校园接种开展 家长致信郡医院](/content/gnews/56/README.md)
+### [英国中学校园接种开展 家长致信郡医院](/content/gnews/57/README.md)
  ` GTV新闻访谈`
-
-### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
