@@ -2,22 +2,25 @@
 ---
 
 
-## 杰森·米勒在英法两国推广盖特
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553238/)
+## 郭文贵：共军携带核武扰台 实现三个第一
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1553279/)
 
-#### 撰稿：zzballack
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/11-14.jpg)图片来源：视频截图
-据网关专家（The Gateway Pundit）9月24日报道，盖特（Gettr）首席执行官杰森·米勒（Jason Miller）本周在欧洲为盖特做宣传，以争取更多的国际支持。在其欧洲之旅中，他拜访了法国总统候选人埃里克·泽穆尔 (Éric Zemmour)和玛丽昂·马雷夏尔-勒庞（Marion Maréchal-Le Pen），在伦敦会晤了前脱欧党党魁奈杰尔·法拉奇 (Nigel Farage)、调查美国安提法（Antifa）组织的专家安迪·恩戈 (Andy Ngo)等人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-包含多种语言版本的盖特于9月18日登录所有平台，包括苹果和安卓。米勒说：“我们很多优秀的技术人员都是中国人。对我们来说，提供多语言版本非常重要。我们的用户中大约有百分之十说中文。”中共政权的异议人士、史蒂夫·班农的盟友郭文贵先生是盖特的主要投资者之一。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-24-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-盖特除了在中共国和美国拥有很多用户外，其在巴西也有很多粉丝。米勒谈到了他最近在巴西的经历。在巴西参加完保守政治行动会议（CPAC）并与巴西总统雅伊尔·博索纳罗（Jair Bolsonaro）会面后，在准备离开巴西时他在机场被执法人员拘留，并被审问了四个小时。“你也许认为在巴西掌权的是博索纳罗，但实际情况并非如此。有一个由前社会主义政府任命的左翼法官组成的深层政府，他们有自己的警察部队，而且不对任何人负责。”
+视频参看： 2021.09.24晚GTV新闻访谈
 
-米勒被质疑打算像今年1月6日在国会大厦所发生的那样煽动“叛乱”。“这很荒谬，因为盖特在1月6日还没有问世，当时大多数人是通过脸书和推特组织起来的。”米勒回忆说，当司法警察开始要求提供他在巴西会见的每个人的姓名和联系方式时，他知道他们已经越界了。“那时候我就不再回答任何问题。”最后，联邦警察不得不让他离开，因为他没有犯罪。“毕竟，大家都知道我正在拜访巴西，当我们被拘留的消息传遍世界后，他们开始感受到压力，所以不得不放我们走。”
+[https://gtv.org/broadcast/watch/614e6d3142a8af3151a4f865](https://gtv.org/broadcast/watch/614e6d3142a8af3151a4f865)
 
-在米勒被拘留的那一天，约3000万巴西人在巴西独立日这天走上街头，抗议言论自由被侵犯。此后，越来越多巴西人涌入了盖特，他们现在成了该平台上的第三大目标受众。“无论民调和媒体怎么说，巴西仍有大量的人支持博索纳罗。但不幸的是，巴西媒体和美国媒体一样都是左派，所以这就是我们需要盖特的原因。”
+编辑/校对/发稿： Lakers
 
-现今，米勒正在全球推广盖特，并在欧洲招揽保守派的声音。英国著名的伊斯兰教批评家汤米·罗宾逊(Tommy Robinson)在盖特上已经有2.56万粉丝。除了Telegram之外，他几乎在其他所有平台上都被禁止。英国反女权主义者和政论家卡尔·本杰明(Carl Benjamin)周二会见米勒时承诺将让其同事加入盖特。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-新闻来源：[GETTR Goes Global: Jason Miller on Whirlwind Tour of France and UK](https://www.thegatewaypundit.com/2021/09/gettr-goes-global-jason-miller-whirlwind-tour-france-uk/)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

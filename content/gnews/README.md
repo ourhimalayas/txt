@@ -28,14 +28,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵直播摘要和音频2021.9.24](/content/gnews/6/README.md)
+### [9/24/2021 七哥直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵直播摘要和音频2021.9.24](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [不要用兔子的视野来看整个动物世界](/content/gnews/7/README.md)
+### [不要用兔子的视野来看整个动物世界](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [2018年4月22日文贵报平安视频盗国贼新的一波行动。全文听写](/content/gnews/8/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [新州医务工作者对强制性疫苗接种发起法律挑战](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
@@ -85,47 +85,47 @@
 ### [2018年4月22日文贵要射向明镜的10个问彈！全文听写](/content/gnews/24/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [郭文贵：共军携带核武扰台 实现三个第一](/content/gnews/25/README.md)
+### [三星将为特斯拉生产下一代全自动驾驶芯片](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵：共军携带核武扰台 实现三个第一](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [杰森·米勒在英法两国推广盖特](/content/gnews/26/README.md)
+### [杰森·米勒在英法两国推广盖特](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [以色列将禁止没有绿色通行证的教师进入学校](/content/gnews/27/README.md)
+### [以色列将禁止没有绿色通行证的教师进入学校](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《我是音雄》第二季第五期 欧洲专场 节目预告](/content/gnews/28/README.md)
+### [《我是音雄》第二季第五期 欧洲专场 节目预告](/content/gnews/29/README.md)
  ` 我是音雄`
 
-### [《我是音雄》第二季第四期首场复赛花絮·回顾](/content/gnews/29/README.md)
+### [《我是音雄》第二季第四期首场复赛花絮·回顾](/content/gnews/30/README.md)
  ` 我是音雄`
 
-### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
+### [恒大危机之外，中共国经济还有更大的麻烦](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第062期](/content/gnews/31/README.md)
+### [众议员安迪·巴尔：国防授权法案中获得通过，美国必须监视和反击中共破坏 台湾自由的任何企图。](/content/gnews/32/README.md)
+ ` 美国政要直译推`
+
+### [雅典娜时报-第062期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [报道：恒大崩盘后会引起中共国社会动荡](/content/gnews/32/README.md)
+### [报道：恒大崩盘后会引起中共国社会动荡](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [布林肯会晤东盟外长拟出台新印太战略](/content/gnews/33/README.md)
+### [布林肯会晤东盟外长拟出台新印太战略](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [美众院通过《国防授权法》 两项修正案剑指中共国人权问题](/content/gnews/34/README.md)
+### [美众院通过《国防授权法》 两项修正案剑指中共国人权问题](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [西媒头条 — 第73期](/content/gnews/35/README.md)
+### [西媒头条 — 第73期](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点0924](/content/gnews/36/README.md)
+### [DC每日热点0924](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [Fauci为武毒所合作者Peter Daszak撰写的文章](/content/gnews/37/README.md)
- ` wenwu`
-
-### [波兰基因项目因担心数据问题放弃了中共国技术](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美国人正在采取行动以应对疫苗强制令](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚国会议员提议对澳洲警察在墨尔本的恶意执法进行司法调查](/content/gnews/47/README.md)
+### [民族之性还是制度之恶](/content/gnews/47/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [嘴皮斗不过肚皮，中共国抢购澳大利亚小麦](/content/gnews/48/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳大利亚国会议员提议对澳洲警察在墨尔本的恶意执法进行司法调查](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [中共“千人计划”为新港人治港做好准备](/content/gnews/48/README.md)
+### [中共“千人计划”为新港人治港做好准备](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——台湾加入CPTPP 中共24军机欺压](/content/gnews/49/README.md)
+### [樱花灭共诗——台湾加入CPTPP 中共24军机欺压](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“喜币”上市在即，中共10部门联手围堵虚拟货币交易](/content/gnews/50/README.md)
+### [“喜币”上市在即，中共10部门联手围堵虚拟货币交易](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（7）](/content/gnews/51/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（7）](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/52/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/53/README.md)
+### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登真“给力” 将释放孟晚舟](/content/gnews/54/README.md)
+### [孟晚舟预计今天在美国法庭认罪,有望被释放](/content/gnews/56/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜登真“给力” 将释放孟晚舟](/content/gnews/57/README.md)
  ` HimalayaRussia`
-
-### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/55/README.md)
- ` 日本东京方舟农场`
-
-### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/56/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/57/README.md)
- ` 日本东京方舟农场`
 
