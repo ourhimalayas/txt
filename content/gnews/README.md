@@ -37,14 +37,14 @@
 ### [2018年4月22日文贵报平安视频盗国贼新的一波行动。全文听写](/content/gnews/8/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021年9月24日澳喜要闻（每日更新）](/content/gnews/9/README.md)
+### [新州医务工作者对强制性疫苗接种发起法律挑战](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年9月24日澳喜要闻（每日更新）](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [文雍漫谈：假科学之名](/content/gnews/10/README.md)
+### [文雍漫谈：假科学之名](/content/gnews/11/README.md)
  ` 文雍`
-
-### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [“国家审计”报告发布中揭多米尼数据陷大麻烦](/content/gnews/12/README.md)
  ` HimalayaRussia`
@@ -169,18 +169,18 @@
 ### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（6）](/content/gnews/52/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登真“给力” 将释放孟晚舟](/content/gnews/53/README.md)
+### [拥有2.4亿人口的印度州用伊维菌素彻底根除新冠病毒](/content/gnews/53/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [拜登真“给力” 将释放孟晚舟](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/54/README.md)
+### [分析：中共为封锁资金流入Gcoin定性虚拟币非法](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/55/README.md)
+### [CCP百年百罪 第二十三集（93 – 96罪）](/content/gnews/56/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/56/README.md)
+### [杰森·米勒为盖特的美国获奖者送奖品](/content/gnews/57/README.md)
  ` 日本东京方舟农场`
-
-### [中共央行禁止该国的加密货币衍生交易](/content/gnews/57/README.md)
- ` HimalayaRussia`
 
