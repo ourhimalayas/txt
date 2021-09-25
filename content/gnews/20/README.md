@@ -2,118 +2,61 @@
 ---
 
 
-## 世界开始憎恨共产党是因为共产党让他们损失惨重
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1554944/)
+## 短视频：澳大利亚人团结起来揭示真相，为了自由而战
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1554925/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/o3-a6vq7-l5u5t.jpg)
-[https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7](https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7)
+#### 翻译：Lish
+校对：枳实
+字幕剪辑：蛮吉
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-33.png)
+图片来源：AustraliaOne官网
 
-**郭文贵
-Miles Guo**
+澳大利亚维州警察残酷镇压抗议者，疫苗和封锁已经成了各地政府的信仰，前陆军特种部队中校、澳大利亚如一党（Australia one）领袖里卡多·波西呼吁澳大利亚的人团结起来，揭示真相为自由而战。
 
-但是最近这帮人说，哎哟，Miles
-But recently these guys said, hey, Miles
+澳大利亚的女士们,先生们，我的名字是里卡多·波西。我是澳大利亚如一党的全国领导人。在未来的几天、几周和几个月里，有关我们治理国家的不安的谣言将开始流传。
 
-我们恨死共产党，
-We hate the communist party
+这些谣言看起来是如此令人难以置信，如此不可能，甚至如此可笑，以至于唯一明智的反应便是断然否定它们。某些谣言在一定时间内肯定会被证明是假的。
 
-他们没有中秋节，他们有啥节？你们知道
-They don’t have Mid-Autumn Festival, what festival do they have? you know
+不幸的是，有些（所谓的谣言）却是真的，他们会面对叛国和叛乱这些卑劣罪行的证据。而有些掌握澳大利亚最高层权力的人犯下的罪行甚至在道德上更恶劣。
 
-犹太人有犹太的节日，
-Jews have Jewish holidays
+在这段时间里，你的当务之急是密切关注和应对那些构成政体、司法、官僚、军队、警察、公司、媒体、学术和宗教组织或机构。
 
-大家这几天知道头两天是犹太新年
-Everyone knows that few days ago was Rosh Hashanah
+案件已经可以启动，这些人中的许多人已经构成叛国罪。但是，如果有人在澳大利亚主权受到明显攻击的情况下保持沉默，他们将签署自己的死刑令。
 
-犹太新年把他们弄傻了，犹太人是要聚会的
-Jews were stunned at Rosh Hashanah because the Jews need gather together
+记住他们。从总督和州长，议会，所有法院，包括高等法院，公共服务，国防军，警察部队，董事会，工会，慈善机构，主流媒体，学校和大学，最后，甚至教堂，犹太教堂，清真寺，寺庙和俱乐部。
 
-然后犹太人有几个节日，前前后后他们受不了了
-Then there are several holidays for Jews, they can’t bear it
+记住他们的名字和他们是谁？记住他们说了什么，以及他们没说什么。记得他们做了什么？以及他们没做什么。为什么怎么会走到这一步？简单地说，几十年来，我们一直被我们所信任的人所欺骗。
 
-再一个美国最近，所有人这时候都想过假期
-Another one in America recently, everyone thinks about vacation at this time
+慢慢地，在少数人的不懈努力下，真相在被揭示出来。而这一直是最困难的任务。你们中的一些人可能听说过这样一句话：有时你不能说服别人，你必须给他们看。用澳大利亚的土话说，就是有些人要自己对着电篱笆上撒尿（才能被电醒）。
 
-这假期完了以后，还有自己的事儿，都活动不了
-After the holiday, they still have their own things, so can’t do anything
+值得庆幸的是，我们现在有足够多的人对谎言保持清醒。而且我们的人数每天都在快速增长。那么，我们应该怎么做？
 
-然后大家感觉到股票不行了
-Then everyone felt that the stock market was not doing well
+首先，要冷静，要知道我们能够并将赢得这场战争。
 
-所以兄弟姐妹们，现在遇到这个经济
-So brothers and sisters, now encountering this economy
+第二，要团结，无论他们对我们犯了多少罪，他们都不能打败团结一致的两千五百万澳大利亚人。用简单清晰、有力和不可征服的声音说出，我不同意！我不同意！我不同意！
 
-还有中共国整个的危机，恒大，平安这些地产
-and there is also the entire crisis in the CCP, Evergrande and Ping An’s real estate
+第三，要勇敢。我们中的一些人可能会受伤，可能会死亡。但如果我们真正寻求自由，我们必须为自己赢得自由。凡是值得去赢取的东西都不是轻而易举能得到的。
 
-你记得七哥曾经在爆料中说过什么
-Do you remember what I said during the Whistleblowing in the past
+**自由不会从天而降  **
 
-我曾经给大家去年就说过，大家没有注意
-I told you last year that everyone didn’t pay attention
+第四，要理性。我们人民必须以非暴力不合作的方式赢得这场战争，因为我们的胜利方式对澳大利亚作为一个民族国家的未来具有基础性的重要意义。我们必须以我们的道德权威赢得这场战争，这样我们才能赢得接下来的和平。
 
-我说你们一定要小心国内的，特别是中概股的几个大型企业
-I said that you must be careful about domestic companies, especially several large companies in China Concept Stocks
+最后，当赢得胜利后，有罪的人将受到惩罚。我们将以合法的方式处理这些叛徒，在他们统一无耻邪恶的面孔下对我们做的暴行后，他们应得的惩罚会比这更多
 
-平安，你看陆金所现在什么样
-Ping An and Lufax, what are they looking like now?
+我们会成功，因为我们，澳大利亚的普通人一直都比精英们强得多，我们比他们强。我们没有也不会像他们那样为了赢得这场战争而牺牲我们的体面和人性。
 
-民生是恒大倒下必死的银行，招商
-Minsheng bank will die when Evergrande falls, also China Merchants Bank
+女士们，先生们，我们即将进入一个史无前例的时期，为了这个世界而战。而我们，你和我正站在前线。同仇敌忾，勇敢良善。
 
-现在共产党的政府地方债也出了大问题了
-Now also there is a big problem with the local government debt of the Communist Party
+最后，请记住，G·K·切斯特顿 (英国全才作家1874-1936)所写的那样，我们奋起抗争并非因为憎恨我们面对的敌人，而是因为深爱那些站在（身后被我们保护）的人们。感谢你们。
 
-那么这些问题的背后是什么
-So what’s behind these problems
+视频链接：[A WAR FOR THE WORLD (bitchute.com)](https://www.bitchute.com/video/T3bHxJsm3RfI/)
 
-共产党所谓的股票市场金融市场
-The so-called stock market and financial market of the Communist Party
+发布：文泓
 
-然后带动的是香港擀面杖子股票市场
-Then it drives the Hong Kong’s fake Stock Market
-
-接下来马上是跟西方的所有长期的债务违约
-Next it will come all the long-term debt defaults with the West
-
-我觉得日本要出大事儿，还有德国要出大事儿
-I think something big will happen in Japan, and something big will happen in Germany
-
-德国的养老金，德国所谓的国防基金（等）这些基金
-German pensions, German so-called defense funds (etc.) these funds
-
-我以为就是将近七八十亿呢
-I thought it was nearly seven or eight billion
-
-结果也是几百亿投进去，德国要出大事儿
-It turned out to be hundreds of billions of dollars invested, and something big is going to happen in Germany
-
-兄弟姐妹你们能感受吗
-Brothers and sisters, can you feel it?
-
-这个世界的经济的大厦随时就要崩塌呀
-The world’s economic edifice is about to collapse at any time
-
-就是因为共产党
-All because of the Communist Party
-
-那你去想想，现在世界有多少人恐怕害怕
-Then think about it, how many people are afraid right now in the world?
-憎恨这个共产党流氓集团
-They hate this communist rogue group
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24](https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

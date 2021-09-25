@@ -2,39 +2,45 @@
 ---
 
 
-## 华为首席财务官孟晚舟与美国检方达成协议后在加拿大获释
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1554828/)
+## 中共进一步加强文化管制
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1554741/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/092501.jpg)图片：*Jennifer Gauthier* 路透社
-温哥华消息：中共国电信高管孟晚舟在加拿大软禁三年后于周五（9 月 24 日）获释，此前她与美国司法部达成协议，暂停对她的欺诈指控。
-
-美国指控她欺诈汇丰银行和电汇欺诈，称她试图隐瞒华为子公司 Skycom 违反美国对伊朗制裁。
-
-美方表示，通过美国银行系统中华为子公司 Skycom 相关的付款路由，发现华为违反制裁行为，并确认孟曾在 Skycom 董事会任职。
-
-作为交换，美方同意将这些指控推迟到 2022 年 12 月 1 日，如果孟接受这些指控，她可能会面临长达 30 年的监禁。
-
-代理美国检察官妮可·博克曼在一份声明中说：“在签订暂缓起诉协议时，孟承认了她在实施一系列全球金融欺诈计划中所扮演主要角色。”
-
-联邦调查局助理局长艾伦科勒说：“孟的认罪是符合违反美国法律的一贯欺骗模式的证据。”
-
-周五晚间，加拿大总理贾斯汀·特鲁多宣布，两名被关押在中共国的加拿大人被释放后回国。
-
-**评论：**
-
-这篇文章揭示孟晚舟的回国并不简单，也验证了郭先生之前的情报，“孟会回国，孟不会被引渡，会被释放”。在CCP的宣传下孟成了伟光正的代表，这种假大空只是忽悠普通民众。在郭先生领导的爆料革命的新闻平台GNEW，GTV一直传播真实的声音，让世界听到我们！
-
-[原文链接](https://www.channelnewsasia.com/world/canadian-extradition-judge-frees-%20huawei-exec-meng-wanzhou-2200616)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译: Johnston2021 | 简评/校对: Beicy-数学老师*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 雪梨
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+继出台限制青少年网络游戏时间的相关政策后，中共国家广播电视总局于9月24日周五晚间再度发布通知表示，儿童和青少年是动画片的主要受众群体，中共要求各单位引进、播出“内容健康向上、弘扬真善美”的优秀动画片，办好儿童频道及青少专区。
+
+![](https://p1.ssl.qhimg.com/dmsmty/1080_720_/t01d8dcc67ae857f803.jpg)图源网络
+
+此前，中共大批调查、揭露、抓捕中共国内演艺界人士，其后，又对国内文娱产业进行了全面“清网”行动，而今，中共进一步清理不符合中共价值观的内容。动画片作为本可帮助青少年拓展思维和想象力的文化产品，如今在中共治下，其已沦为愚民和洗脑的工具——中共正借此引导和管控青少年的思想。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+广电总局网络视听节目管理负责同志表示：大力支持播出优秀动画片\_http://www.nrta.gov.cn/art/2021/9/24/art\_113\_58016.html
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
