@@ -12,7 +12,11 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-## 頁面 5/34 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [34](/content/README-34.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+## 頁面 5/35 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [35](/content/README-35.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
+
+[文字版：2020年11月22日文贵先生第二次直播视频](/content/2020/12/20201209-6591987473740035252.md)
 
 [文字版：2020年11月22日文贵先生第一次直播](/content/2020/12/20201209-4936946080142689553.md)
 
@@ -60,9 +64,5 @@
 
 [文字版:2020年10月5日郭先生GTV直播 ](/content/2020/10/20201018-5793496232664041877.md)
 
-[文字版:2020年9月27日郭先生GTV直播](/content/2020/10/20201005-7844353111973949021.md)
 
-[文字版:2020年9月26日郭先生GTV直播](/content/2020/10/20201003-1014274309500025995.md)
-
-
-## 頁面 5/34 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [34](/content/README-34.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
+## 頁面 5/35 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [35](/content/README-35.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)

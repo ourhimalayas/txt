@@ -12,7 +12,11 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-## 頁面 16/34 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [34](/content/README-34.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+## 頁面 16/35 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [35](/content/README-35.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！](/content/2019/10/20191014-3517209154004585431.md)
+
+[文字版：2019年10月10日报平安直播：台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/2019/10/20191011-1512379949091228539.md)
 
 [文字版：2019年10月9日郭文贵先生报平安直播：港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/2019/10/20191011-7838742343464767600.md)
 
@@ -60,9 +64,5 @@
 
 [文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！](/content/2019/09/20190909-1380855058008823233.md)
 
-[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/content/2019/09/20190908-7629841718868230274.md)
 
-[文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/2019/09/20190906-2846090461215125304.md)
-
-
-## 頁面 16/34 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [34](/content/README-34.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+## 頁面 16/35 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [35](/content/README-35.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

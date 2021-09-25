@@ -12,7 +12,11 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-## 頁面 20/34 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [34](/content/README-34.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
+## 頁面 20/35 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [35](/content/README-35.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
+
+[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/2019/05/20190526-2377635576100864352.md)
 
 [文字版：2019年5月20日凌晨4点 直播](/content/2019/05/20190520-5140210759327330200.md)
 
@@ -60,9 +64,5 @@
 
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/2019/04/20190422-2917569343036844190.md)
 
-[文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/2019/04/20190421-3663457252526137440.md)
 
-[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/2019/04/20190419-6305900525322511967.md)
-
-
-## 頁面 20/34 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [34](/content/README-34.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
+## 頁面 20/35 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [35](/content/README-35.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)

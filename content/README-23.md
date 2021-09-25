@@ -12,7 +12,11 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-## 頁面 23/34 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [34](/content/README-34.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
+## 頁面 23/35 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [35](/content/README-35.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190111-7236434520356507605.md)
+
+[文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
 
 [文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/content/2019/01/20190111-7038821530851525661.md)
 
@@ -60,9 +64,5 @@
 
 [翻译：1120发布会来宾提问，班农和郭先生回答](/content/2018/11/20181123-8581162821359950469.md)
 
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/content/2018/11/20181123-7564165555128970884.md)
 
-[文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/content/2018/11/20181122-149600174493022230.md)
-
-
-## 頁面 23/34 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [34](/content/README-34.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
+## 頁面 23/35 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [35](/content/README-35.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

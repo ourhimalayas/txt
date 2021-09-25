@@ -12,7 +12,11 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-## 頁面 4/34 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [34](/content/README-34.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/35 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [35](/content/README-35.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+
+[全文字版2021年4月23日郭文贵先生G-TV直播](/content/2021/04/20210423-1136241.md)
+
+[全文字版2021年4月19日419断播四周年郭文贵先生G-TV直播](/content/2021/04/20210419-1125087.md)
 
 [全文字版2021年4月18日郭文贵先生G-TV直播](/content/2021/04/20210418-1118207.md)
 
@@ -60,9 +64,5 @@
 
 [文字版2020年12月11日郭先生GTV直播](/content/2020/12/20201211-672238.md)
 
-[文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
 
-[文字版：2020年11月22日文贵先生第二次直播视频](/content/2020/12/20201209-6591987473740035252.md)
-
-
-## 頁面 4/34 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [34](/content/README-34.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/35 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [35](/content/README-35.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

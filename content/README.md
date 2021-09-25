@@ -12,7 +12,11 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-## 頁面 1/34 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [34](/content/README-34.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+## 頁面 1/35 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [35](/content/README-35.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+
+[2021年9月24日郭文贵先生直播全文字版](/content/2021/09/20210924-1553659.md)
+
+[2021年9月23日郭文贵先生直播全文字版](/content/2021/09/20210923-1552854.md)
 
 [2021年9月21日郭文贵先生中秋直播全文字版](/content/2021/09/20210921-1548507.md)
 
@@ -60,9 +64,5 @@
 
 [全文字版2021年8月19日郭文贵先生G-TV直播](/content/2021/08/20210819-1480251.md)
 
-[全文字版2021年8月18日郭文贵先生G-TV直播](/content/2021/08/20210818-1477935.md)
 
-[全文字版2021年8月17日郭文贵先生G-TV直播](/content/2021/08/20210817-1475351.md)
-
-
-## 頁面 1/34 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [34](/content/README-34.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+## 頁面 1/35 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [35](/content/README-35.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

@@ -12,7 +12,11 @@
 :new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
 
 ---
-## 頁面 10/34 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [34](/content/README-34.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+## 頁面 10/35 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [35](/content/README-35.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/content/2020/04/20200413-4060291104151405554.md)
+
+[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/2020/04/20200413-3302995427300860720.md)
 
 [文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/content/2020/04/20200410-8094198208001085988.md)
 
@@ -60,9 +64,5 @@
 
 [文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/2020/03/20200311-4043567072040877942.md)
 
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
 
-[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
-
-
-## 頁面 10/34 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [34](/content/README-34.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+## 頁面 10/35 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [35](/content/README-35.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
