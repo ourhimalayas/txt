@@ -28,13 +28,13 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [海航董事长陈峰如期被抓捕，还曾妄想王岐山“咔嚓”掉习可以保身](/content/gnews/6/README.md)
- ` YALUN 亚伦`
-
-### [2021/09/24 文贵先生直播精要](/content/gnews/7/README.md)
+### [2021/09/24文贵先生直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/23 文贵先生直播精要](/content/gnews/8/README.md)
+### [海航董事长陈峰如期被抓捕，还曾妄想王岐山“咔嚓”掉习可以保身](/content/gnews/7/README.md)
+ ` YALUN 亚伦`
+
+### [2021/09/24 文贵先生直播精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [台湾两人因注射阿斯利康疫苗死亡](/content/gnews/9/README.md)
@@ -103,29 +103,29 @@
 ### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共进一步加强文化管制](/content/gnews/31/README.md)
+### [华为首席财务官孟晚舟与美国检方达成协议后在加拿大获释](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共进一步加强文化管制](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0925](/content/gnews/32/README.md)
+### [DC每日热点0925](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/33/README.md)
+### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/34/README.md)
  ` Charlie`
 
-### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/34/README.md)
+### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/35/README.md)
+### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/36/README.md)
+### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [这次热点是台湾，不是孟晚舟，也不是陈峰](/content/gnews/37/README.md)
+### [这次热点是台湾，不是孟晚舟，也不是陈峰](/content/gnews/38/README.md)
  ` 银河勇气之星`
-
-### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

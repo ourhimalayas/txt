@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/25/2021 9:34 PM (UTC)`
+
+以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/<br/><br/>以色列COVID-19 疫苗受害者证词(一）
+![img](https://media.gettr.com/group45/getter/2021/09/25/21/34/a875f9fa-bd2b-f692-3971-c0cbba550614/out.jpg)
+
+---
+
 `@miles 9/25/2021 6:13 PM (UTC)`
 
 【郭先生，这个视频是以色列中共病毒疫苗受害者证词。 原视频共1小时6分，DC农场翻译组将之翻译成6个成品视频。这个受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/ https://www.vaxtestimonies.org/en/】
@@ -284,13 +291,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月20号：这个视频我看了很多遍，如果人类有哪怕是5%的人像他一样，这样的智慧和勇敢人类不至于面对今天的前所未有的．可能被消灭的这种阴暗的势力的病毒和疫苗灾难。每一个这样的勇敢的人。我相信他们都有的上天的使命，也会得到上天的屁佑【疫苗质疑答辩！不需要法律、医学专业知识，一位移民美国的女士，用常识，把打不打疫苗，谁更危险，质疑得铿锵有力！】
 ![img](https://media.gettr.com/group40/default/20210920/15/34/16a7186f-5118-5c1c-8ffa-e89a1a3a6e02/out.jpg)
-
----
-
-`@miles 9/20/2021 3:29 PM (UTC)`
-
-9月20号：平安集团的陆金所还有大量的资金在背后在护盘，也就是非法的操纵股市和市场……否则他下跌得比这还要厉害，但是最终他是撑不住的，因为他们是犯罪集团……所有的投资者最后都会看清他们的本来面目……
-![img](https://media.gettr.com/group24/getter/2021/09/20/15/51ead06b-875e-37b8-5bfc-aaf573711f2c/dc7e3a4238cf1feade8dcc4955ab0453.jpg)
 
 ---
 
