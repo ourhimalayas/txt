@@ -2,30 +2,27 @@
 ---
 
 
-## 孟晚舟认罪有条件结束引渡, 两名加拿大人获释
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554052/)
+## 中共驻瑞典大使突离任, 战狼外交恶名远播!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554390/)
 
-栏目记者/责任编辑：在远方
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-358.png)
+瑞典广播电台Radio Sweden消息，中共驻瑞典大使桂从友于24日正式离任并将立即返回中国，新任大使预计今年底上任。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-45.jpeg)
 
+桂从友于2017年上任后争议不断，曾多次恐吓瑞典记者及政治人物，被瑞典媒体视为”对民主与言论自由的威胁”, 瑞典外交部长林德曾表示，虽已多次召见桂从友，告知他言论自由在瑞典受宪法保护，威胁个人的行为的言论也是不被接受的,但并无效果。瑞典在野党为此曾联名要求瑞典政府将他驱逐, 其中瑞典民主党在2019年提出将桂从友列为“不受欢迎人物”,并表示桂大使 已经严重影响两国外交关系，也让中国人在瑞典的地位越来越恶劣, 其战狼外交丑态可谓恶名远播!
 
+此次记者是从桂从友给瑞典商界的告别信件中得知他将离任的消息，随后得到中共大使馆确认,但中领馆并未就此发布消息。瑞典当地媒体对桂从友突然离任的评价是:“这是一位罕见的没有外交手段的外交官, 而瑞典也不需要对桂从友的继任者抱太大希望。”至于桂从友是提前辞职还是被迫离任, 目前还没有进一步消息。
 
-加拿大总理特鲁多宣布，自 2018 年以来即被中共监禁的两名加拿大人迈克尔·康明凯和迈克尔·斯帕弗已获释，正在返家途中。两人的获释是 在美国法庭批准了司法部与孟晚舟达成的认罪并暂缓起诉协议，结束引渡程序并允许孟晚舟返回中国后被公开的。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-25-at-8.10.31-PM.png)
-孟晚舟于2018年12月1日在温哥华国际机场被加拿大警方拘捕，当月加拿大商人斯帕弗和驻中共国前加拿大外交官康明凯分别被中共安全部门抓捕。中共称斯帕弗多次拍摄中国军事装备，并向康明凯提供情报。2021年3月22日，北京市第二中级人民法院对康明凯闭门庭审，至今仍未宣判。2021年8月11日，斯帕弗被中共以“为境外刺探、非法提供国家秘密罪”为由，判处有期徒刑十一年。
+(本文仅代表作者观点）
 
-外界普遍认为，两名加拿大人的被捕与孟晚舟被加方逮捕有直接关系，是中共典型的报复行为。而中共在确信孟晚舟将获释之后随即释放斯帕弗和康明凯之举，说明这是一场人质的交换交易，而不是依法而为。已经判刑的罪犯岂能随便开释？因为中共国根本没有法治可言，法律只是为了维护盗国贼的统治需要。
+参考链接：[桂从友今天离任 瑞典媒体称不想念也说对继任者不抱希望](https://www.rfi.fr/cn/中国/20210924-桂从友今天离任-瑞典媒体称不想念也说对继任者不抱希望)
 
-关于孟晚舟事件的后续报道，本台将继续关注.
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-参考链接：[北京确信孟晚舟将获释后释放两位加拿大人](https://www.voachinese.com/a/beijing-frees--two-jailed--canadians-20210924/6245170.html)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -33,4 +30,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

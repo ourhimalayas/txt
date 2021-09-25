@@ -2,31 +2,33 @@
 ---
 
 
-## 德国对华为小米等中共国手机启动安全调查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1554243/)
+## 主持人完成接种，病毒检测仍呈阳性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554440/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-81.png)
-图片来自网络
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-361.png)
+本周五，ABC政治电视脱口秀《观点》（The View）的两名主持人桑尼·霍斯廷和安娜·纳瓦罗，因为病毒检测呈阳性被要求离开节目现场，节目一度陷入混乱。
 
-据《德国之声》中文网9月25日报道，在立陶宛政府对中共国产的智能手机内置的信息审查功能发出警告之后，德国方面也采取了措施。据《德新社》消息，德国内政部下属的联邦信息安全办公室（BSI）已就相关安全警告启动了调查，该机构的一名发言人证实了这一消息。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-32.jpeg)
 
-此前，立陶宛国家数字安全中心对小米的一款智能手机，做出了持批评态度的评估，认为厂家理论上存在对手机自带的浏览器实施特定内容屏蔽的可能性。虽然相关的审查功能并未启用，但理论上仍可通过远程操控进行激活。
+据悉，主持人桑尼·霍斯廷和安娜·纳瓦罗此前已经完成了新冠疫苗接种。更讽刺的是，就在这两位主持人被要求离开之前，节目小组在开场时还在谈论和抱怨未接种疫苗的人，并标注“接种疫苗不可能传播新冠病毒”的所谓提示语。
 
-立陶宛方面表示，小米在欧洲销售的手机可以识别”自由西藏”、”台湾独立万岁”、”民主运动”等关键词，并屏蔽相关内容。在同为中共国制造的华为手机上也发现了类似的安全漏洞。
+疫苗不能预防病毒的感染，反而会使促使病毒更具传染性，延长潜伏期。《观点》是美国一档日间高收视率的新闻脱口秀节目，原预案是引导分化民众，却直播证明了接种疫苗根本无效，后续效应将继续影响观众去思考曾经信任的媒体、政府和医疗机构在当下混乱中的角色。
 
-另据德国《每日新闻》网页报道，此次调查具体涉及的手机型号包括：华为的P40 5G机型、小米的Mi 10T 5G机型和一加的OnePlus 8T 5G机型。
+(本文仅代表作者观点）
 
-德国联邦信息安全办公室的发言人表示，在政府机构的公务手机采购清单上，既没有小米，也没有任何一个来自中共国的品牌，但却不能排除公务员利用私人购买的小米手机处理公务的可能性。
+参考链接：[‘The View’ Sent Into Chaos After Two Hosts Test Positive For COVID Mid-Show; Kamala Interview Upended](https://www.zerohedge.com/covid-19/view-sent-chaos-after-two-hosts-test-positive-covid-mid-show-kamala-interview-upended)
+[Two Fully Vaccinated Hosts from “The View” Asked to Leave Studio After Testing Positive for Covid Shortly Before Kamala Harris Interview (VIDEO)](https://www.thegatewaypundit.com/2021/09/two-fully-vaccinated-hosts-view-asked-leave-studio-testing-positive-covid-shortly-kamala-harris-interview-video/)
 
-针对立陶宛方面提出的质疑，小米公司的一名发言人表示，“小米从来没有、也不会限制或阻止智能手机用户的任何个人行为，如搜索、通话、网络浏览或使用第三方通信软件”，强调小米充分尊重和保护所有用户的合法权利。小米公司发言人的讲话很具中共外交部特色，假话说得连自己都信了。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-芬兰信息安全公司F-Secure德国分部安全专家特罗斯特（Rüdiger Trost）对《德新社》表示，应该对立陶宛政府提出的指控予以重视。他认为，中（共）国很有可能具备对本国产智能手机直接进行数据操纵的能力。同时，他也毫不怀疑中（共）国政府利用技术手段实施信息审查的意愿。
+终审：暗黑
+校对/发稿：谐趣园
 
-事实上，中共国产的智能手机无一例外，全都具有上述所说的安全隐患。更准确地说，对于国外客户来说，目前只是安全隐患；而对于中共国国内用户来说，这是一个已经被迫接受的事实。不仅如此，在中共国国内使用的国产智能手机还会自动收集用户数据，并按要求提供给中共当局，成为中共加强对国民控制的帮凶工具。
-
-笔者就曾用过一个华为手机，这部手机不仅会自动过滤许多国外网站，还禁止下载如WhatsApp、YouTube等app。任何一个国家，只要展开调查，只要没有勾兑，应该都会得出跟立陶宛一样的结论。
-
-注：本文仅代表作者观点
-
-**新闻链接：**[https://twitter.com/dw\_chinese/status/1441710569967407116](https://twitter.com/dw_chinese/status/1441710569967407116)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

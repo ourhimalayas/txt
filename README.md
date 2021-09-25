@@ -37,14 +37,14 @@
 ### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [维州：即使接种率80%，仍将有口罩及家访限制](/content/gnews/9/README.md)
+### [哪是什么疫情，一切都是CCP的政治阴谋](/content/gnews/9/README.md)
+ ` 银河勇气之星`
+
+### [维州：即使接种率80%，仍将有口罩及家访限制](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/10/README.md)
+### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [因为喜币要上市了所以中共宣布虚拟货币交易为非法](/content/gnews/12/README.md)
  ` 澳喜农场`
@@ -85,23 +85,23 @@
 ### [中共国能回到资本市场以前的状况吗？](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/25/README.md)
+### [灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [主持人完成接种，病毒检测仍呈阳性](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [死亡增多、司机短缺 英国新冠次生灾害悄然出现](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
-
-### [德国对华为小米等中共国手机启动安全调查](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国中学校园接种开展 家长致信郡医院](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [中共贸易制裁报复堪培拉，但高价抢购澳洲小麦](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [孟晚舟认罪有条件结束引渡, 两名加拿大人获释](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [英国议会调查在港银行是否参与打压香港自由](/content/gnews/30/README.md)
- ` GTV新闻访谈`
 
 ### [這次熱點是臺灣，不是孟晚舟，也不是陳峰](/content/gnews/31/README.md)
  ` 银河勇气之星`
@@ -112,20 +112,20 @@
 ### [英国：汽油配给](/content/gnews/33/README.md)
  ` Charlie`
 
-### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/34/README.md)
+### [德国对华为小米等中共国手机启动安全调查](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？](/content/gnews/35/README.md)
+### [秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/36/README.md)
+### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/38/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -172,15 +172,15 @@
 ### [墙内疫苗心情日记（十八）](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共前联合国大使向美国发出核威胁](/content/gnews/57/README.md)
+### [英国中学校园接种开展 家长致信郡医院](/content/gnews/54/README.md)
  ` GTV新闻访谈`
+
+### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/56/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 

@@ -2,21 +2,37 @@
 ---
 
 
-## 秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1554009/)
+## 海航集团董事长陈峰、首席执行官谭向东被采取强制措施
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1554205/)
 
-撰稿：William
+作者：香草山写作组 – 文真
 
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/p.jpg-3.png)
-图片来源：moneyfortherestofus
 
-根据《零对冲》(Zero Hedge) 的报导,美国民主党人正在推动 3.5 万亿美元的社会基础设施刺激计划，佩洛西议长甚至暗示可能完全取消美国的债务上限。一旦债务上限取消，美国政府将肆无忌惮地大量发行货币，进一步推高美国主权风险，最后导致恶性通货膨胀。
 
-美国债务早已爆炸式增长，美联储的资产负债表也已经爆棚。尽管美国央行官员们不断保证美国经济没有什么可担心的。然而瑞银集团 (UBS Group AG) 担心大规模的刺激措施引发恶性通货膨胀。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
 
-根据彭博社指出，央行继续提供超宽松政策导致问题重重，例如大宗商品价格飙升，商品供应严重受限，进而引发欧美的通胀率。知名黄金多头、贵金属贸易商SchiffGold董事长彼得·希夫(Peter Schiff)警告说，即使美联储开始缩减印发货币规模，最终也会逆转并扩大量化宽松。
 
-中共病毒带来封锁隔离，导致各国生产力骤降，终将戳破各国大量印钞票的泡沫。在这个金融灾难既将来临之刻，房地产、股票、政府经济将不堪一击。金钱只有逃往安全、稳定的地方，中心化的加密货币自然是重要的选项。其中，又以有20%黄金储备的喜币(Himalaya Coin)是最安全、最便利、最高技术的虚拟货币诺亚方舟。
 
-新闻来源：[“Hyperinflation” Tops List Of Fears For UBS Clients](http://&quot;Hyperinflation&quot;%20Tops%20List%20Of%20Fears%20For%20UBS%20Clients)
+9月24日，海航集团公告，海航集团有限公司董事长陈峰、首席执行官谭向东因涉嫌违法犯罪，被采取强制措施。
+
+海航今年一月宣布破产。三月进行合并重组。9月12日，由辽宁方大集团和国资背景的海南省发展控股正式入主，成为海航集团航空和机场业务的战略投资者。24日的公告同时强调，海航集团破产重整工作依法顺利推进，生产经营不受任何影响。
+
+郭文贵先生最早在2017年，揭露海航集团天价债务背后是王岐山家族操控的中共盗国犯罪集团。王岐山是黑暗组织在中国的代理人，和中共这个杀人不眨眼的犯罪集团，一起在中国以合法的名义，法治的幌子，实行独裁腐败，坑害中国老百姓的财富。
+
+中共现在公布陈峰等被拘捕的信息，目的是，利用抓人作为借口，转移责任，不去偿还被骗者的债务。而王岐山，作为海航犯罪集团的最大股东，最大的靠山，才是真正的犯罪人。这就是共产党犯罪集团的真实嘴脸。
+
+参考链接：[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210924-%E6%B5%B7%E8%88%AA%E9%99%88%E5%B3%B0%E4%B8%8E%E8%B0%AD%E5%90%91%E4%B8%9C%E9%97%AE%E9%A2%98%E9%97%B9%E5%A4%A7-%E6%8C%87%E6%B6%89%E8%BF%9D%E6%B3%95%E7%8A%AF%E7%BD%AA](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210924-%E6%B5%B7%E8%88%AA%E9%99%88%E5%B3%B0%E4%B8%8E%E8%B0%AD%E5%90%91%E4%B8%9C%E9%97%AE%E9%A2%98%E9%97%B9%E5%A4%A7-%E6%8C%87%E6%B6%89%E8%BF%9D%E6%B3%95%E7%8A%AF%E7%BD%AA)
+
+[https://gettr.com/post/pc6g9r930e](https://gettr.com/post/pc6g9r930e)
+
+[https://www.yicai.com/news/101182809.html](https://www.yicai.com/news/101182809.html)
+
+编辑/校对/发稿：正义的小新
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

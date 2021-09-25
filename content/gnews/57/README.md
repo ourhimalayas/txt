@@ -2,35 +2,23 @@
 ---
 
 
-## 中共前联合国大使向美国发出核威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554053/)
+## 国进民退加剧，中共又一千亿级新央企官宣成立
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1554105/)
 
-栏目记者：禹水沃土
-责任编辑：文扬四海
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/09/212-1.jpg)
+[图片链接](https://www.sohu.com/a/492031687_120721870)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在8月召开的中共国资委党委扩大会议指出，要积极推进国有资本布局优化和结构调整，聚焦战略性新兴产业，适时组建新的中央企业集团。这已经为下半年国企重组进一步提速定调。
 
+据“第一财经资讯”9月25日讯，酝酿已久的输配电装备制造领域的央企重组落地，由中国西电集团、许继集团、平高集团等重组而成的千亿级电力装备新央企——中国电气装备集团有限公司正式官宣。9月25日，中共国资委官网发布公告称，经国务院批准，组建中国电气装备集团有限公司，由国务院国有资产监督管理委员会代表国务院履行出资人职责，列入国务院国有资产监督管理委员会履行出资人职责的企业名单；国家电网有限公司所属相关企业、中国西电集团有限公司整体划入中国电气装备集团有限公司；中国西电集团有限公司不再作为国务院国有资产监督管理委员会履行出资人职责的企业。天眼查信息显示，中国电气装备集团有限公司注册资本为1亿元，注册地址位于上海市静安区万荣路。国务院国资委持股66.6667%、中国国新控股有限责任公司持股16.6667%、中国诚通控股集团有限公司持股16.6667%。公开资料显示，平高集团、许继集团、山东电工电气集团和中国西电集团资产总额近1200亿元，涉及许继电气、平高电气、中国西电、宝光股份4家上市平台。
 
+当前，中共正在大力推进的国企重组整合，是以服务中共权贵家族的政治和经济利益为根本目的的，除加大垄断、浪费、腐败和折腾之外，必将进一步加剧国进民退，损害全体老百姓的利益。
 
-9 月 24 日英国太阳报消息，正值美日印澳四方会议前夕，中共驻联合国前大使沙祖康在中共”军控与裁军”会议上叫嚣，如果拜登继续为台湾提供保护，中共将先发制人对美国进行核打击。这名中共前外交官还称，未来一段时间内，美国都会是中共主要竞争对手甚至是敌人。美国新建立的军事联盟及军事基地，将对中共造成极大的战略压力，因此无条件不首先使用核武器的承诺也将不再适用。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2021.9.25AM-PICTURES-1-10.001.jpeg)
-9 月 24 日英国太阳报消息，正值美日印澳四方会议前夕，中共驻联合国前大使沙祖康在中共”军控与裁军”会议上叫嚣，如果拜登继续为台湾提供保护，中共将先发制人对美国进行核打击。这名中共前外交官还称，未来一段时间内，美国都会是中共主要竞争对手甚至是敌人。美国新建立的军事联盟及军事基地，将对中共造成极大的战略压力，因此无条件不首先使用核武器的承诺也将不再适用。
+[信息来源](https://www.163.com/dy/article/GKO656350519DDQ2.html)
 
-日前郭文贵先生透露，9月24日中共战机携带 7枚核弹进入台湾防空识别区，同时东海舰队也携带了轻型核弹发射装置对台湾进行了实弹核威慑。可见中共的核威胁叫嚣已经不是空穴来风，而是进入战备状态。从核弹到病毒，中共对台湾以及世界的威胁都已经迫在眉睫。
-(本文仅代表作者观点)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-参考链接：[CHINA must make the first nuclear strike against the US if Joe Biden continues to defend Taiwan, a top Chinese diplomat says.](https://www.the-sun.com/news/3726293/china-nuclear-strike-biden-defends-taiwan-diplomat/)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 知了知了*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
