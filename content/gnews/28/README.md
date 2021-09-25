@@ -2,37 +2,31 @@
 ---
 
 
-## 拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1553241/)
+## 英国议会调查在港银行是否参与打压香港自由
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554057/)
 
-栏目记者/责任编辑：文真
+栏目记者/责任编辑：文小白
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-345.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-7.jpg)
-9月24日下午，拜登在白宫与“四方联盟”领导人会晤，讨论基础设施和技术合作，对抗中共病毒疫情。在对中共在印太地区不断扩张的担忧中，白宫举行四方会谈，确保美国在印太事务中，建立与盟友的沟通渠道，加强合作，抵制中共在印太区域的影响力。
 
-此次会晤将宣布一项供应链倡议，重点是在全球汽车和其他产品的关键部件短缺的情况下，保护和确保半导体的供应。会晤还讨论了5G和教育奖学金等合作。
+英国议会香港小组正对在香港营运的英国银行进行调查，目标是确立这些银行中是否有协助本地政权打压香港自由的言行，同时呼吁公众在10月31日前向调查小组提供相关证据资料。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021.9.25AM-PICTURES-1-10.002.jpeg)
+英国议会跨党派香港小组成立于2019年11月5日。香港小组 秘书韦豪斯(Chris Whitehouse)称，议会发起此次调查的起因是, 他们接获离港人士投诉，在英国银行的个人账户被冻结，亦无法提取他们的退休金。在港英国银行是否有帮助香港政府、警察以及司法系统打压香港的言论自由、行动自由、集会结社自由以及拥有财产的自由.将是本次调查的重点范围。
 
-尽管官方强调，“四方会谈“ 是“非官方”的聚会，四国集团也不是区域性军事联盟，但是经历各国政府更迭，四国联盟的合作正在深化，正说明四国联盟的持久性。
+小组主席卡迈克尔 和贝内特 指，这些银行受益于英国政府对法治和人权的承诺，因此他们在海外的经营中也应该捍卫这些原则, 以保障人权，且不能为英国的声誉带来受损风险。
+(本文仅代表作者观点)
 
-（本文仅代表作者观点）
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-参考链接：[拜登在白宫主持首次四方峰会，反共盟友巩固 “非官方 “联盟](https://www.zerohedge.com/political/biden-hosts-first-quad-summit-white-house-counter-china-allies-cement-unofficial-alliance)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
+终审：文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-345.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

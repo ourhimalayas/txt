@@ -2,38 +2,42 @@
 ---
 
 
-## 印度军队为对抗中共正进行自独立以来的最大重组
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553867/)
+## 英国中学校园接种开展 家长致信郡医院
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554112/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-79.png)
-图片来自网络
+栏目记者/责任编辑：安吉拉
 
-据《希望之声》9月25日报道，印度官员24日透露，印度将于近期逐步将原本各自为政且欠缺协调的陆海空三军，整合成统一的指挥机制，并可望在2024年成形，以回应及配合美国联合印度—太平洋盟邦围堵中共的政策。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-伴随着印度总理莫迪（Narendra Modi）政府与美国及其盟国关系的进一步加深，印度拖延已久的军队整合计划终于开始付诸行动。莫迪目前正在采取措施，对印度军队进行自1947年独立以来的最大重组。
+英国本周启动针对12至15岁少年第一剂新冠疫苗接种计划。政府无视新冠疫苗给人们带来的各种伤害和民众持续的抗议，反而持续加压，要求学校必须协助国家接种团队入驻校园，按时完成注射任务。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/pp-9.002.jpeg)
+各地区民众自发团结，利用现有法律保护自己的权利和儿童健康与生命安全。家长们向郡医疗机构和当地学校发出信函，要求对方就学童接种新冠疫苗一事做出回应。
 
-据外媒引述印度官员的话报道称，上个月，一个新成立的“军队事务部”下令负责监控巴基斯坦边界的印度陆军部队，制定一个与海军和空军整合的计划。据悉，这一模式将在印度全国范围内推广，以便到2024年时整个军队都处在一个新的运作结构之下。
+信中强调：知情同意权、医疗自由和身体自主权必须得到尊重、维护和保护；作为医疗机构和学校方，必须明晰以下几点：
 
-报道指出，一个更加统一的印度武装部队将使该国在面对冲突时，更容易与美国及其盟国的军队联系起来。美国、澳洲和英国上周宣布成立的“澳英美三方安全伙伴”（AUKUS）联盟，其中一个关键涉及一系列防御领域的互操作性，而这正是印度部队目前所缺乏的。
-
-澳洲国立大学国家安全学院资深研究员布鲁斯特（David Brewster）指出，“四方安全对话”（Quad）成员之前就发现，他们一次只能和印度的一个军种进行演习，如，有海军，但没有空军；或有空军，但没有海军。他表示，这严重阻碍了合作，因为大多数行动都将是联合行动。
-
-印度在上世纪九十年代时，便已经有了军队统一指挥机制的提案，但却一直遭到各挟一方的陆、海、空各军区的抗拒。不过，由于在现行架构下缺乏抗衡力逐渐显现，于是，自2016年起，印度正式开始进行军队改革。
-
-印度官员表示，经过整合的印军将创建至少4个战区司令部：一个在西部针对巴基斯坦；一个在东部针对中共；一个是负责印度洋地区的海上司令部；还有一个则是防空指挥部。而北部的查摩与克什米尔地区则暂时不做调整。
-
-印度官员称，此举旨在使印度的军队能够在陆地、海洋和空中无缝运作。战区指挥部将汇集战舰、巡逻艇、士兵和战斗机，并与拥有地面雷达网络的其他导弹和枪炮团合作，以便更好地处理与中共和巴基斯坦有争议边界沿线的威胁。
-
-中共拥有世界上最大规模的常备军，部队人数超过210万（官方数据，实际人数更多）。印度则排名第二，拥有120万正规军和96万预备役士兵的地面部队。部队的工资和养老金占据了印度大部分的国防预算。印度陆军估计，划分不同战区有助于减少约三分之一的支出。此外，此次军队重组，将权力集中在一个办公室，有利于提高军队的整体战斗力。
-
-从此次印度军队重大整合的目的和具体实施方案来看，不难看出，重点针对的就是中共国的威胁。中共在印太地区乃至全球，已成为众矢之的。
-
-注：本文仅代表作者观点
-
-**新闻链接：**
+- 新冠疫苗是否具有安全性和有效性
+- 公民知情同意权和吉利克能力，即16岁以下儿童医学决定权的考量
+- 解释疫苗生产制造使用的的材料
+- 如产生法律责任校方和医疗机构将面对诉讼并公开经过和结论
 
 
+(本文仅代表作者观点)
 
-> 印度军队进行1947年独立以来最大重组 以对抗中共 [#印度](https://twitter.com/hashtag/%E5%8D%B0%E5%BA%A6?src=hash&amp;ref_src=twsrc%5Etfw) [#陆海空三军整合](https://twitter.com/hashtag/%E9%99%86%E6%B5%B7%E7%A9%BA%E4%B8%89%E5%86%9B%E6%95%B4%E5%90%88?src=hash&amp;ref_src=twsrc%5Etfw) [#对抗中共](https://twitter.com/hashtag/%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) &gt; [https://t.co/0Xp71iqOSH](https://t.co/0Xp71iqOSH) [pic.twitter.com/8KTJ0SepKP](https://t.co/8KTJ0SepKP)
-> — 希望之聲國際廣播電台 (@SoundofHopeSOH) [September 25, 2021](https://twitter.com/SoundofHopeSOH/status/1441658151623970818?ref_src=twsrc%5Etfw)
+参考链接：
+
+1. [Covid vaccination begins for UK 12 to 15 year olds](https://www.bbc.com/news/health-58623058)
+2. [吉利克的能力 – Gillick competence百科全书 site:zh.wikiqube.net](https://zh.wikiqube.net/wiki/Gillick_competence)
+
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -67,40 +67,40 @@
 ### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/19/README.md)
+### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [监禁三年后，华为公主孟晚舟于9月24日被释放](/content/gnews/20/README.md)
+### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗介绍《在川普时代》：川普被彭斯及幕僚长肖特背叛](/content/gnews/21/README.md)
+### [监禁三年后，华为公主孟晚舟于9月24日被释放](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [把你们的魔爪从我们的孩子身上挪开！Leave Our Kids Alone !](/content/gnews/22/README.md)
+### [纳瓦罗介绍《在川普时代》：川普被彭斯及幕僚长肖特背叛](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [把你们的魔爪从我们的孩子身上挪开！Leave Our Kids Alone !](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声| 北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/23/README.md)
+### [有声| 北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声| 布林肯会晤东盟外长拟出台新印太战略](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共整肃演艺圈行动升级 横店剧组建立临时党支部](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中国为恒大倒闭做准备](/content/gnews/27/README.md)
+### [英国中学校园接种开展 家长致信郡医院](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [拜登在白宫主持首次四方峰会，反共盟友巩固 &#8220;非官方 &#8220;联盟](/content/gnews/28/README.md)
+### [中共贸易制裁报复堪培拉，但高价抢购澳洲小麦](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [美国司法部延长对孟晚舟的起诉协议](/content/gnews/29/README.md)
+### [孟晚舟认罪有条件结束引渡, 两名加拿大人获释](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [台湾，你正处于极度危险中！](/content/gnews/30/README.md)
+### [英国议会调查在港银行是否参与打压香港自由](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [中共前联合国大使向美国发出核威胁](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [秘翻在线 :美国的恶性通货膨胀大洪水要来了吗？](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际要闻汇编](/content/gnews/47/README.md)
+### [9月底松下公司将以提前退休形式进行千人大减员](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/48/README.md)
+### [无辜的进口果蔬，如何携带新冠病毒？](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共公司要求禁售能通过卫星链接互联网的iPhone13](/content/gnews/49/README.md)
+### [国进民退加剧，中共又一千亿级新央企官宣成立](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国际要闻汇编](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共公司要求禁售能通过卫星链接互联网的iPhone13](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
 
-### [回忆墨尔本往事一二](/content/gnews/50/README.md)
+### [回忆墨尔本往事一二](/content/gnews/53/README.md)
  ` 澳喜农场`
 
-### [说说预防备药和自救](/content/gnews/51/README.md)
+### [说说预防备药和自救](/content/gnews/54/README.md)
  ` 澳喜农场`
 
-### [有声| 权力的历史与华人的救赎(中）](/content/gnews/52/README.md)
+### [有声| 布林肯会晤东盟外长拟出台新印太战略](/content/gnews/55/README.md)
  ` MOSREC`
 
-### [中共各部门协同、央地联动，坚决遏制“炒币”风](/content/gnews/53/README.md)
+### [有声| 权力的历史与华人的救赎(中）](/content/gnews/56/README.md)
+ ` MOSREC`
+
+### [中共各部门协同、央地联动，坚决遏制“炒币”风](/content/gnews/57/README.md)
  ` 儒为`
-
-### [孟晚舟获释回中共国，真是她的幸运？](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/55/README.md)
- ` 澳喜农场`
-
-### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/56/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 

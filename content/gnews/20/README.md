@@ -2,9 +2,9 @@
 ---
 
 
-## 监禁三年后，华为公主孟晚舟于9月24日被释放
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1554023/)
+## 警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1554025/)
 
-监禁三年后，华为公主孟晚舟于9月24日被释放。
+9/25/2021 警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
