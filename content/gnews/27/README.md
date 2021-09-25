@@ -2,32 +2,19 @@
 ---
 
 
-## 原材料价格上涨，中共国电力紧张
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552673/)
+## 孟晚舟预计今天在美国法庭认罪,有望被释放
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553016/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
-近期，中共政府加强能源使用限制，中国多省市地区限电。中共国家发改委官员于北京时间9月24日表示，将寻求解决用电限制和原材料价格上涨所造成的问题。
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-31.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/merlin_154565964_a4a7426a-04b6-4d56-bbe9-65404dda4310-master1050.jpg)图片来源：cn.nytimes.com
+据加拿大CTV新闻报道， 孟晚舟有望今天以视频方式在美国纽约联邦法院出庭，在美国对她提起的诉讼中认罪。美国司法部在一份周五记录在案的信中表示 将出庭解决“对此事对被告的指控的决议”。
 
-据悉，因为政府的用电限制，包括江苏和云南在内的至少15个省区的上市公司的生产遭到严重的损失，人民的生活也受到一定程度的影响。
+孟晚舟自2018年12月在温哥华机场因美国的引渡请求而被捕。作为认罪协议的一部分，孟晚舟可能会承认一些不法行为，如银行欺诈案并被处以罚款。如果纽约法院接受这笔交易，对孟的引渡程序可能会终止。孟晚舟有望最早于今天解除软禁，并使她能够离开加拿大。
 
-根据文贵先生直播爆料，中共国内的此次大面积停电和煤炭价格高涨有关。中共因为外汇吃紧，进口原材料供应不上，导致煤炭价格越来越高，收取一块钱电费就要赔0.7，致使目前的电力能源仅能满足40%左右的需求。中共只好欺瞒人民，以环保为由限制用电。
+自孟晚舟被禁，中共国则抓捕两名加拿大人，被拘留逾1000天。 中共政府以间谍罪指控他们，其中一人已被判处11年监禁。曾在中共国担任加拿大外交官的Colin Robertson说，“晚些时候我们可能会看到这两个Michael 被驱除回加拿大。这将是一场涉及加拿大的谈判，但主要是美国和中共国之间的谈判。”
 
-(本文仅代表作者观点）
+**新闻来源：**
 
-参考链接：[China scrambles to fix power crunch, tame runaway raw material markets](https://www.reuters.com/world/china/china-seeking-resolve-issues-caused-by-power-curbs-higher-raw-materials-prices-2021-09-24/?taid=614d7777f45bab000139807d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：暗黑
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[https://www.cbc.ca/news/politics/meng-wanzhou-us-court-1.6188093](https://www.cbc.ca/news/politics/meng-wanzhou-us-court-1.6188093)

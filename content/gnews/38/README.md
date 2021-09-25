@@ -2,25 +2,45 @@
 ---
 
 
-## 秘翻在线：重磅！海航陈峰谭向东被采取强制措施是否比王健“拍照死”幸运？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1552640/)
+## 推特将台湾割让给中共
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1552719/)
 
-撰稿： WENJIE
+作者：纽约香草山农场 – 四季
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-24-231316.jpg)图片来源：凤凰财经
-据9月24日晚间多家媒体报道，海航集团有限公司董事长陈峰、首席执行官谭向东因涉嫌违法犯罪，被依法采取强制措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-9月24日晚海航集团官方微信发布公告：“今接到海南公安机关通知，海航集团有限公司董事长陈峰、首席执行官谭向东因涉嫌违法犯罪，被依法采取强制措施。海航集团及其成员企业运转稳定有序，破产重整工作依法顺利推进，生产经营不受任何影响。”
 
-爆料革命的发起人郭文贵先生就曾爆料说，海航是典型的中共盗国模式，内保外贷，“钱留海外，债留中国”的宗旨，短短20年间增长3万多倍的企业，在世界上也是绝无仅有。海航前董事长王健应郭先生的爆料而意外身亡。现在到了海航破产重组尾声，海航关键人物陈峰谭向东因涉嫌违法而被采取强制措施，正应了郭先生爆料所说，充当中共盗国集团白手套的人绝对没有好下场。笔者认为相对于海航前董事长王健“拍照死”，陈峰谭向东的正式昭告天下被采取强制措施以及未来的“合法”审判，看起来好像更幸运，但是也不排除被抓灭口的命运，不论他们的命运如何，盗走中国人民的财富是一定要追究到底的，按郭文贵先生的话说：“这事没完！”。
 
-**参考链接：**
 
-[http://news.china.com.cn/2021-09/24/content\_77773025.htm](http://news.china.com.cn/2021-09/24/content_77773025.htm)
 
-[https://finance.ifeng.com/c/89nup4XyTBQ](https://finance.ifeng.com/c/89nup4XyTBQ)
+据[华盛顿自由灯塔](https://freebeacon.com/national-security/twitter-cedes-taiwan-to-china/)报道，社交网络巨头推特（Twitter）称，它将一些对“台湾”一词搜索的结果转移到“中共国”一词。华盛顿自由灯塔报证实了这一模式，并估计每一条提到台湾的推文附近都会出现四到五条带有中共国字样的推文。就这样，中共国终于控制了台湾。
 
-**关键词：海航集团，违法犯罪，强制措施**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1044-1-China-flag-2-e1631134349439.jpg)图片来源：[freebeacon.com](https://freebeacon.com/national-security/twitter-cedes-taiwan-to-china/)
 
-**摘要：海航陈峰谭向东被采取强制措施远比王健要“幸福”得多**
+推特发言人说，该公司正在“研究”这一模式，并指出，该模式在两个方向都有效，即对中共国的搜索显示了一些带有台湾字样的推文。这种模式表明了推特坚持在搜索中把这两个国家联系起来的政策。推特对中共国的屈服令人惊讶。
+
+中共国用户被禁止使用该社交媒体平台。超过50名中共国公民因违反其法规使用该平台而被监禁。但中共对控制美国平台上有关台湾的言论非常关心。中共外交官积极利用推特来促进其国家利益，并已经发起各种运动，如谎称COVID-19源自美国。中共利用庞大的推特机器人大军，并使用StopAsianHate（停止亚裔仇恨）标签来鼓励美国人参加抗议活动。许多账户有很少的粉丝或者根本没有，他们只是被用来增加带有特定标签的推文数量而已。
+
+西方对中共的软弱，和为了经济利益向中共的屈服，正在摧毁西方赖以生存的自由民主的根基。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

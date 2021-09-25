@@ -2,49 +2,37 @@
 ---
 
 
-## 布林肯会晤东盟外长拟出台新印太战略
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1553132/)
+## 报道：恒大崩盘后会引起中共国社会动荡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1553205/)
 
-作者：纽约香草山农场 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210923_16324410046058-1.jpg)
+据《华尔街日报》报道，如果全球负债最重的房地产开发商恒大集团在未来几周内破产，中共正要求地方政府为可能出现的“经济和社会影响”做好准备。
 
+但北京方面没有表现出将帮助恒大摆脱其 3000 亿美元负债的迹象。 据《华尔街日报》周四报道，这让美国和世界第二大经济体为官方所说的“可能的风暴”做好了准备。
 
+上周，恒大通知投资者将无法履行其财务义务。 该报称，如果该集团违约并申请破产，“北京已指示地方政府机构和国有企业介入处理善后事宜”。《华尔街日报》补充说，地方官员的任务是“防止动乱并减轻对购房者和整体经济的连锁反应”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+“责令地方政府召集会计师和法律专家组，检查恒大在各自地区经营的财务状况，与当地国有和私营房地产开发商交谈，准备接管当地房地产项目并制定法律 – 执法团队监测公众的愤怒和所谓的‘群体性事件’，这是抗议活动的委婉说法，”该报称。
 
+由于过度借贷和现金流问题，恒大一直受到金融困境和长达数月的股票抛售的困扰。
 
+金融分析师正在讨论恒大可能的崩盘是否可能是中共国的“雷曼时刻”，引发一场可能严重影响美国和全球经济的金融危机。布鲁金学会高级研究员大卫·杜尔表示，恒大善后管理不善，也可能给中共国执政党带来麻烦。
 
-9月23日，在纽约联合国大会的间隙，美国国务卿布林肯与东盟十国的外长分别举行了面对面或视频会晤。
+**评论：**
 
-![](https://gdb.voanews.com/F08E5F18-130A-4AAD-B764-66D6DBCEFFD7_w1023_r1_s.jpg)图片来源：VOA
+这篇文章揭示恒大其实是绝不是第一个，也不是最坏的那个，陆续会有更多的房地产，理财，暴雷，这些再次验证郭文贵先生的判断，房地产一定会崩盘，带来更大的经济灾难，经济的寒冬才远没有开始，CCP的大厦发出越来越多倾倒的声音。
 
-会议开始时，布林肯表示，美国对更广泛的印太地区的新战略部署将在“今年秋天”出台。
+[原文链接](https://www.newsweek.com/china-braces-social-unrest-after-evergrande-collapse-report-developer-debt-bankruptcy-1631952)
 
-美国国务院发言人普赖斯在会晤后发布声明称，布林肯“重申了美国对东盟中心地位的承诺”以及美国对2019年6月达成的“东盟印太展望”的支持——这份文件是东盟国家对印太地区的一个统一的愿景和战略。
+***编辑：【英国伦敦喜庄园编辑部】***
 
-声明还表示，布林肯与东盟外长“讨论了紧迫的地区和国际挑战，包括新冠大流行病、气候危机、敦促军方结束缅甸暴力并遵守东盟五点共识的迫切需要，同时还强调了加强自由和开放的印度-太平洋地区的必要性”。
+*翻译/简评: Johnston2021 | 校对: Beicy-数学老师*
 
-（本文仅代表作者观点）
-
-参考阅读：
-
-[布林肯会晤东盟外长，称很快会出台新的印太战略](https://www.voachinese.com/a/us-asean-foreign-ministers-indo-pacific-20210923/6243046.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

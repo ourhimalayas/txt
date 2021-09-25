@@ -2,23 +2,22 @@
 ---
 
 
-## 北卡罗莱纳州医护人员因拒绝接种被停职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552625/)
+## 原材料价格上涨，中共国电力紧张
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1552673/)
 
 栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-346.png)
-诺文特健康医疗系统于9月21日发表声明称，约375名员工因拒绝接种新冠疫苗将被无薪停职5天，如果停职期后仍拒绝接种疫苗，将被解雇。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
+近期，中共政府加强能源使用限制，中国多省市地区限电。中共国家发改委官员于北京时间9月24日表示，将寻求解决用电限制和原材料价格上涨所造成的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-22.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-31.jpeg)
 
-诺文特健康医疗系统涵盖了北卡罗莱纳州数十家医院、数百家诊所和门诊机构，共有3万5千多名员工。该医疗系统规定，除申请并获得医疗和宗教豁免的员工外，其他人被强制要求接种一剂强生或辉瑞疫苗，并在10月15日前完成第二针剂的注射。而获得豁免的员工每周必须接受新冠检测，并佩戴N95口罩、护眼镜等个人防护措施。
+据悉，因为政府的用电限制，包括江苏和云南在内的至少15个省区的上市公司的生产遭到严重的损失，人民的生活也受到一定程度的影响。
 
-虽然很多医护工作者为了工作被迫接种疫苗，但越来越多的一线医生，或见证疫苗受害者的悲惨经历，或质疑和反对政府的疫苗强制令，纷纷站出来向媒体和民众揭露疫苗真相。医护人员因拒绝接种疫苗相继离职，民众走进医院得不到及时救护，疫苗强制令侵犯人权的同时，更破坏了稳定的社会秩序。
+根据文贵先生直播爆料，中共国内的此次大面积停电和煤炭价格高涨有关。中共因为外汇吃紧，进口原材料供应不上，导致煤炭价格越来越高，收取一块钱电费就要赔0.7，致使目前的电力能源仅能满足40%左右的需求。中共只好欺瞒人民，以环保为由限制用电。
 
 (本文仅代表作者观点）
 
-参考链接：[North Carolina Hospital System Suspends Hundreds Of Employees After COVID-19 Vaccine Mandate](https://www.zerohedge.com/covid-19/north-carolina-hospital-system-suspends-hundreds-employees-after-covid-19-vaccine-mandate)
-[Novant Health update on mandatory COVID-19 vaccination program for employees](https://www.novanthealth.org/home/about-us/newsroom/press-releases/newsid33987/2576/novant-health-update-on-mandatory-covid-19-vaccination-program-for-employees.aspx)
+参考链接：[China scrambles to fix power crunch, tame runaway raw material markets](https://www.reuters.com/world/china/china-seeking-resolve-issues-caused-by-power-curbs-higher-raw-materials-prices-2021-09-24/?taid=614d7777f45bab000139807d&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 

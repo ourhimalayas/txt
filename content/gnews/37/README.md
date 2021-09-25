@@ -2,45 +2,37 @@
 ---
 
 
-## 推特将台湾割让给中共
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1552719/)
+## 波兰基因项目因担心数据问题放弃了中共国技术
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1552741/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/09/092401.jpg)2021 年 4 月 2 日，在波兰华沙街头，戴着防护口罩的人们。路透社/Kacper Pempel/文件照片
+路透社华沙9月22日，一个由欧盟资助的波兰基因组图谱的构建项目计划，放弃了中共国华大基因集团（ BGI Group）的基因测序技术，该项目的一位负责人对路透社表示，这是出于对数据安全的担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+波兰科学院生物有机化学研究所教授菲格莱罗维奇是该项目的负责人，他表示对波兰基因组图项目的担忧，这源于有关如何使用与国家安全相关的波兰基因组数据的问题。
+
+菲格莱罗维奇表示，这些担忧最初是由美国国家人工智能安全委员会 (NSCAI) 今年早些时候的一份报告引起的，该报告称华大基因集团可能正在充当“中共国政府基因数据库的全球收集机构”。
+
+华大基因集团回应路透社称，美国的报告是“虚假信息，没有事实依据”；中共国外交部称其为“无端指责和抹黑”。
+
+NSCAI的一位发言人表示，他们坚持自己的报告，并建议美国和盟国在技术上加倍努力，以更好地保护患者隐私。自2015年以来，中共政府一直限制外国研究人员获取中共国人的基因数据。
+
+8月，波兰科学院的一个人类遗传学委员会表示，所谓的“远东公司”“不遵守”基因检测伦理原则引发了严重质疑。该委员会没有指明任何公司或国家，但敦促在国外对遗传物质进行排序的实验室和科学机构停止使用那里的生物技术公司。
+
+路透社7月报道称，华大基因集团与中国人民解放军医院合作，开发并改进了一种产前筛查测试，该产品至少在52个国家销售。
+
+该测试网站上的隐私政策称，在中共国当收集的数据“直接关系到国家安全或国防安全”的情况下，可以共享这些数据，不过华大基因集团表示尚未被要求这样做。华大基因集团利用孕妇的基因数据对人群特征进行研究。它还在其它研究领域与中国人民解放军合作。
+
+[新闻来源链接](https://www.reuters.com/world/europe/exclusive-polish-gene-project-moves-drop-chinese-tech-data-concerns-2021-09-22/)
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*编辑: 希望/校对: Julia Win*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-据[华盛顿自由灯塔](https://freebeacon.com/national-security/twitter-cedes-taiwan-to-china/)报道，社交网络巨头推特（Twitter）称，它将一些对“台湾”一词搜索的结果转移到“中共国”一词。华盛顿自由灯塔报证实了这一模式，并估计每一条提到台湾的推文附近都会出现四到五条带有中共国字样的推文。就这样，中共国终于控制了台湾。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1044-1-China-flag-2-e1631134349439.jpg)图片来源：[freebeacon.com](https://freebeacon.com/national-security/twitter-cedes-taiwan-to-china/)
-
-推特发言人说，该公司正在“研究”这一模式，并指出，该模式在两个方向都有效，即对中共国的搜索显示了一些带有台湾字样的推文。这种模式表明了推特坚持在搜索中把这两个国家联系起来的政策。推特对中共国的屈服令人惊讶。
-
-中共国用户被禁止使用该社交媒体平台。超过50名中共国公民因违反其法规使用该平台而被监禁。但中共对控制美国平台上有关台湾的言论非常关心。中共外交官积极利用推特来促进其国家利益，并已经发起各种运动，如谎称COVID-19源自美国。中共利用庞大的推特机器人大军，并使用StopAsianHate（停止亚裔仇恨）标签来鼓励美国人参加抗议活动。许多账户有很少的粉丝或者根本没有，他们只是被用来增加带有特定标签的推文数量而已。
-
-西方对中共的软弱，和为了经济利益向中共的屈服，正在摧毁西方赖以生存的自由民主的根基。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
