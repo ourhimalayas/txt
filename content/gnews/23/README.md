@@ -2,43 +2,42 @@
 ---
 
 
-## 在中国有一个邪恶的势力是绝对的存在的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1553887/)
+## 有声| 北卡罗莱纳州医护人员因拒绝接种被停职
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1553940/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-18.jpg)https://gtv.org/video/id=614dc871d2e2b817486d42f8
-郭文贵
-Miles Guo
+配音：香草山美食部-玫瑰园
 
-不要乱爆，那么从这一点上能说明什么
-Don’t explode indiscriminately, so what can be shown from this point
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-国际上金融家知道在中国有一个邪恶的势力绝对是存在的
-International financiers know that there is definitely an evil force in China
 
-而且在共产党内是最高的权力和政治的设计者
-And that is the designer of the highest power and politics in the Communist Party
 
-就是奴役，通过共产党就是咱看到共产党这个恶魔
-It’s enslavement, through the Communist Party-the demon of the Communist Party
 
-还有后面一个人
-And also there is one person behind it
 
-通过这个恶魔插到我们每个人肝上一个吸血器
-Through this demon to insert a blood sucker into the liver of each of us
 
-那就是王岐山
-That is Wang Qishan
 
-原视频日期：2021/09/17
-原视频链接: https://twitter.com/se1y7cblljselva/status/1439525263709114369?s=24
-视频时间段 : 0:00-0:33
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+诺文特健康医疗系统于9月21日发表声明称，约375名员工因拒绝接种新冠疫苗将被无薪停职5天，如果停职期后仍拒绝接种疫苗，将被解雇。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+诺文特健康医疗系统涵盖了北卡罗莱纳州数十家医院、数百家诊所和门诊机构，共有3万5千多名员工。该医疗系统规定，除申请并获得医疗和宗教豁免的员工外，其他人被强制要求接种一剂强生或辉瑞疫苗，并在10月15日前完成第二针剂的注射。而获得豁免的员工每周必须接受新冠检测，并佩戴N95口罩、护眼镜等个人防护措施。
+
+
+
+**文字版原文：[北卡罗莱纳州医护人员因拒绝接种被停职](https://gnews.org/zh-hans/1552625/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

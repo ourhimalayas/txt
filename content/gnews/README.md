@@ -28,23 +28,23 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵先生2018年12月12日讲5000万与江绵恒和杀张志强的关系](/content/gnews/6/README.md)
+### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [郭文贵先生2018年12月12日讲5000万与江绵恒和杀张志强的关系](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2018年12月9日郭文贵先生谈量震床上功夫、G20中美峰会真相及孟晚舟和张首晟被自杀](/content/gnews/7/README.md)
+### [2018年12月9日郭文贵先生谈量震床上功夫、G20中美峰会真相及孟晚舟和张首晟被自杀](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（七）](/content/gnews/8/README.md)
+### [维州：即使接种率80%，仍将有口罩及家访限制](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/9/README.md)
+### [秘翻在线： 科学如何在中共病毒危机中被政治化](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/10/README.md)
+### [秘翻在线：英国最新数据显示80%的新冠死亡病例接种过疫苗](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [纽约市长抱怨巴西总统公然无视联合国的疫苗“强制令”](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -55,35 +55,35 @@
 ### [Peter Daszak发起了一场秘密运动来反驳实验室泄漏理论](/content/gnews/14/README.md)
  ` wenwu`
 
-### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/15/README.md)
+### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [“供不应求”致中药材价格上涨](/content/gnews/16/README.md)
+### [“供不应求”致中药材价格上涨](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/17/README.md)
+### [防沉迷新规 VS. 电竞用户低龄化](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [车企“缺芯”困局难解](/content/gnews/18/README.md)
- ` 纽约香草山MOS02`
+### [警察在圣基尔达海滩镇压反对强制疫苗和封锁的抗议者](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [把你们的魔爪从我们的孩子身上挪开！Leave Our Kids Alone !](/content/gnews/19/README.md)
+### [监禁三年后，华为公主孟晚舟于9月24日被释放](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纳瓦罗介绍《在川普时代》：川普被彭斯及幕僚长肖特背叛](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [把你们的魔爪从我们的孩子身上挪开！Leave Our Kids Alone !](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声| 北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/20/README.md)
+### [有声| 北卡罗莱纳州医护人员因拒绝接种被停职](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声| 布林肯会晤东盟外长拟出台新印太战略](/content/gnews/21/README.md)
+### [有声| 布林肯会晤东盟外长拟出台新印太战略](/content/gnews/24/README.md)
  ` MOSREC`
-
-### [有声| 权力的历史与华人的救赎(中）](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年9月24日郭文贵先生直播全文字版](/content/gnews/24/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [印度军队为对抗中共正进行自独立以来的最大重组](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
@@ -109,22 +109,22 @@
 ### [郭文贵先生在2021中秋直播中用来做背景的那幅画有何来头](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/33/README.md)
+### [正义的胜利：澳反封锁女主角莫妮卡·斯密特出狱](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/34/README.md)
+### [秘翻在线：东北大学等三研究机构成功检测到空气中的中共病毒](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/35/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/36/README.md)
  ` wenwu`
 
-### [币圈新闻动态：中国人民银行发布进一步防范和处置虚拟货币交易炒作风险的通知](/content/gnews/36/README.md)
+### [币圈新闻动态：中国人民银行发布进一步防范和处置虚拟货币交易炒作风险的通知](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：中国驻日使馆称，日方应慎重妥善处理CPTPP涉台问题](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/38/README.md)
+### [DC大中华时事：中国驻日使馆称，日方应慎重妥善处理CPTPP涉台问题](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/39/README.md)
@@ -166,21 +166,21 @@
 ### [说说预防备药和自救](/content/gnews/51/README.md)
  ` 澳喜农场`
 
-### [中共各部门协同、央地联动，坚决遏制“炒币”风](/content/gnews/52/README.md)
+### [有声| 权力的历史与华人的救赎(中）](/content/gnews/52/README.md)
+ ` MOSREC`
+
+### [中共各部门协同、央地联动，坚决遏制“炒币”风](/content/gnews/53/README.md)
  ` 儒为`
 
-### [孟晚舟获释回中共国，真是她的幸运？](/content/gnews/53/README.md)
+### [孟晚舟获释回中共国，真是她的幸运？](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/54/README.md)
+### [CCP即将放出的神秘&#8221;热毒&#8221;，可能就是它！](/content/gnews/55/README.md)
  ` 澳喜农场`
 
-### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/55/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [每日快报：孟晚舟预定通过视讯在美国法庭“认罪”， 为获释回国解套](/content/gnews/56/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [中国人亟需重拾最基本的常识](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [揭密推广疫苗帮凶——美国医学会 （AMA）](/content/gnews/57/README.md)
+### [惊爆： 共匪军海陆空首次载核弹飞越台湾，爆料革命警告9.24事件发生](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
