@@ -28,14 +28,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [《什么是影子银行》](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021/09/24 文贵先生直播精要](/content/gnews/7/README.md)
+### [2021/09/24 文贵先生直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/09/23 文贵先生直播精要](/content/gnews/8/README.md)
+### [2021/09/23 文贵先生直播精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [在中国有一个邪恶的势力是绝对的存在的](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [台湾两人因注射阿斯利康疫苗死亡](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
@@ -103,29 +103,29 @@
 ### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [中共进一步加强文化管制](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
 
-### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [DC每日热点0925](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/33/README.md)
- ` 日本东京方舟农场`
-
-### [这次热点是台湾，不是孟晚舟，也不是陈峰](/content/gnews/34/README.md)
- ` 银河勇气之星`
-
-### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国：汽油配给](/content/gnews/36/README.md)
+### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/33/README.md)
  ` Charlie`
 
-### [德国对华为小米等中共国手机启动安全调查](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
+### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [海航集团董事长陈峰、首席执行官谭向东被采取强制措施](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
+### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/36/README.md)
+ ` 日本东京方舟农场`
+
+### [这次热点是台湾，不是孟晚舟，也不是陈峰](/content/gnews/37/README.md)
+ ` 银河勇气之星`
+
+### [秘翻在线:Gettr 首席执行官杰森·米勒飞往欧洲宣扬言论自由](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [华尔街出手相救，恒大回光返照？](/content/gnews/46/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/47/README.md)
+### [AUKUS引北京提核打击准备](/content/gnews/47/README.md)
  ` HimalayaRussia`
 
-### [欧洲煤炭价格达13年高位](/content/gnews/48/README.md)
+### [《什么是影子银行》](/content/gnews/48/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/49/README.md)
  ` HimalayaRussia`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/49/README.md)
+### [欧洲煤炭价格达13年高位](/content/gnews/50/README.md)
+ ` HimalayaRussia`
+
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国放松制裁允许与塔利班进行部分交易](/content/gnews/50/README.md)
+### [美国放松制裁允许与塔利班进行部分交易](/content/gnews/52/README.md)
  ` HimalayaRussia`
 
-### [美国务院谴责塔利班在阿富汗恢复处决的计划](/content/gnews/51/README.md)
+### [美国务院谴责塔利班在阿富汗恢复处决的计划](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [比电荒还荒的是人心](/content/gnews/52/README.md)
+### [比电荒还荒的是人心](/content/gnews/54/README.md)
  ` 银河勇气之星`
 
-### [香港658名政府工作人员拒签宣誓声明，选择离职](/content/gnews/53/README.md)
+### [香港658名政府工作人员拒签宣誓声明，选择离职](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
 
-### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/54/README.md)
+### [中共驻瑞典大使突离任, 战狼外交恶名远播!](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
-### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/55/README.md)
+### [9/25/21 香港快讯 邓炳强：目前为立 23 条最佳时机 支联会解散亦难免刑责](/content/gnews/57/README.md)
  ` 英喜-粵語組`
-
-### [中共为何不惜一切代价一定要孟晚舟回国](/content/gnews/56/README.md)
- ` 纽约香草山MOS01`
-
-### [CCP百年百罪 第二十四集（97 – 99罪）](/content/gnews/57/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
