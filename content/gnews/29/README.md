@@ -2,178 +2,68 @@
 ---
 
 
-## 墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556052/)
+## 9/25/21国内经济财经周报：海航陈峰股权清零后被采取强制措施；中共进一步整治虚拟币
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1556066/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-19.jpg)https://gtv.org/video/id=615044f3d2e2b817486e3df1
-Rukshan Fernando (Australian Independent Journalist)
-鲁克山 费尔南多（澳大利亚独立记者）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-84.png)图片来源：RFA
+**1.****海航陈峰，谭向东涉嫌刑事犯罪，被采取强制措施**
 
-That’s right, Laura, I mean look,
-没错，劳拉，我的意思是, 看
+[海航集团9月24日发布公告指出，海南省公安机关通知，集团董事长陈峰、首席执行官谭向东“因涉嫌违法犯罪，被依法采取强制措施。”海南省海航集团联合工作组组长、党委书记顾刚在24日傍晚开会强调，破产重整工作已进入最后冲刺阶段，“各单位要深入反思海航28年发展中的惨痛教训，要深刻认识到海航得以重生是党和国家给予的机会，要感党恩、听党话、跟党走。”由于无法偿清债务，海航集团于今年1月宣告破产。3月13日，海南省高院裁定对海航等321家公司进行实质合并重整，债权登记后暴露出资不抵债近四千亿元。9月18日，顾刚宣布，重整后海航将被拆分为航空、机场、金融、商业及其他板块，由新的实控人股东领导，老股东团队及慈航基金会在海航集团及成员企业权益将全部清零。创始人陈峰的股权也被清零。](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/xx1-09242021112459.html)
 
-these are just everyday Australians everyday Victorians.
-这些只是澳大利亚人的日常，维多利亚人的日常
+**2.****证监会会同公安以警治市，号称查获多起操纵市场案件**
 
-They’re protesting right now, the government said,
-他们现在正在抗议，而政府说
+[证监会新闻发言人高莉在周四举行的例行新闻发布会上，介绍了近期证监会会同公安机关查获多起操纵市场重大案件的情况。相关人员涉嫌操纵南岭民爆、今创集团、昊志机电等上市公司的股票价格，案件已取得重大进展。据介绍，在操纵“南岭民爆”股价案中，“叶某”在明知刘某烨等人实施操纵的情况下，积极提供相关帮助及建议，为操纵市场创造有利条件，并牟取非法利益。上海证券报记者从相关渠道获悉，涉案“叶某”正是前期爆料“某上市公司与盘方合谋进行市值管理、坐庄赖账”等情况的叶飞。近期，证监会与公安机关依托线索联合研判机制，结合交易所监控发现的情况，依法启动了对一批恶性操纵市场案件的联合调查工作，并将其作为2021年证监会专项执法行动的重点案件，集中调配力量，强化执法协作，加快案件突破。相关人员涉嫌操纵南岭民爆、今创集团、昊志机电股票价格案已取得重大进展。经证监会查明，2020年8月至12月，刘某烨团伙以股票配资、委托理财等方式控制数十个证券账户，涉嫌通过集中资金优势、持股优势连续买卖等手段操纵南岭民爆股票，非法获利数千万元。叶某在明知刘某烨等人操纵南岭民爆股票价格的情况下，积极提供相关帮助及建议，为操纵市场创造有利条件，并牟取非法利益。](https://news.cnstock.com/news,yw-202109-4760308.htm)
 
-you know, protesting is illegal.
-你知道，抗议是非法的
+[2019年以来，刘某龙团伙、颜某团伙涉嫌通过连续交易、对倒等方式，分别操纵今创集团、昊志机电股票价格，涉案金额巨大。调查还发现，个别机构从业人员存在利用职务便利与操纵团伙进行利益输送的嫌疑。](https://news.cnstock.com/news,yw-202109-4760308.htm)
 
-You can’t be on the street, so the police using all sorts of tactics
-你不能在街上，所以警察使用各种策略
+评：改革不力，便掠之于商，中共对此也算是轻车熟路了
 
-and measures against just ordinary working class Australians,
-和战术来针对普通澳大利亚工人阶级
+**3.****中共进一步整治虚拟币，定性为非法金融活动**** “****挖矿”成淘汰类产业**
 
-so that that actual visual that you talked about the lady being pushed over.
-所以你谈到的那个女士被推倒的那个实际的视觉
+[9月24日，人民银行等10部门发布《关于进一步防范和处置虚拟货币交易炒作风险的通知》。通知称，近期，虚拟货币交易炒作活动抬头，扰乱经济金融秩序，滋生赌博、非法集资、诈骗、传销、洗钱等违法犯罪活动，严重危害人民群众财产安全。人民银行有关负责人表示，为建立常态化工作机制，始终保持对虚拟货币交易炒作活动的高压打击态势，人民银行等部门结合新的风险形势，在总结前期工作经验的基础上，起草了通知。“我国对虚拟货币的监管政策是明确的、一贯的。”上述负责人表示，通知再次强调具有非货币当局发行、使用加密技术、分布式账户或类似技术、以数字化形式存在等特点的虚拟货币，如比特币、以太币等所谓稳定币，均不具有与法定货币等同的法律地位，不能作为货币在市场上流通。通知提出，金融机构和非银行支付机构不得为虚拟货币相关业务活动提供账户开立、资金划转和清算结算等服务；互联网企业不得为虚拟货币相关业务活动提供网络经营场所、商业展示、营销宣传、付费导流等服务。](https://news.cnstock.com/news,yw-202109-4760312.htm)
 
-You know that was during a police want to clear clear road up there with
-你知道那是在警察想要清理那里的道路时
+[与此同时，为有效防范处置虚拟货币“挖矿”活动盲目无序发展带来的风险隐患，深入推进节能减排，助力如期实现碳达峰、碳中和目标，国家发展改革委等部门发布《关于整治虚拟货币“挖矿”活动的通知》。该通知显示，按照“严密监测、严防风险、严禁增量、妥处存量”的总体思路，加强虚拟货币“挖矿”活动上下游全产业链监管，严禁新增虚拟货币“挖矿”项目，加快存量项目有序退出。](https://news.cnstock.com/news,yw-202109-4760312.htm)
 
-where there was protesters and even after she was pushed over
-有抗议者的地方，甚至在她被推倒之后
+评：又是稳定币，又是交易币。同志，平时没少翻墙上GTV吧
 
-that particular police officer sprayed her in the face with OC spray.
-那位警察用辣椒油树脂喷雾剂喷她的脸
+**4.****证监会规范中介机构廉洁从业**** ****不得“围猎”监管审核人员**
 
-I mean these are tactics that are being used against everyday Australians,
-我的意思是，这些是针对普通澳大利亚人的战术
+[证监会起草了《关于加强注册制下中介机构投资银行业务廉洁从业监管的意见（征求意见稿）》并于9月24日向社会公开征求意见，为注册改革保驾护航。意见反馈截止时间为2021年10月24日。《意见》共17条，对廉洁从业风险防范工作的组织领导、内部控制、财务管理、激励制度等提出了全面要求。《意见》强调，中介机构及其从业人员在从事投资银行业务过程中，不得以不正当方式教唆、指使、协助他人干预影响审核，不得在项目申报、审核、注册过程中通过利益输送、行贿等方式“围猎”监管审核人员，不得利用证监会系统在职人员或离职人员及其近亲属等关系或身份谋取不正当利益。](https://news.cnstock.com/news,yw-202109-4760310.htm)
 
-and it’s like, he said it’s like it’s from a communist China,
-就像，他说这就像来自共产主义中国
+[对于不当入股，《意见》要求相关中介机构在投行项目股东穿透等事项核查中，重点对证监会系统离职人员不当入股行为进行严格审查，严格禁止突击入股、“影子股东”、违规代持等违法违规“造富”行为。同时，《意见》要求中介机构加强内幕信息、未公开信息管理，建立健全信息知情人登记管理制度，完善信息隔离墙机制，切实防范利用内幕信息和未公开信息从事各类违法违规行为。](https://news.cnstock.com/news,yw-202109-4760310.htm)
 
-Laura Ingraham (Fox News host)
-劳拉·英格拉汉姆（福克斯新闻主持人）
+评：这么一看监管人员真是辛苦，天天被猎，啥时候这等苦差事下放给老百姓啊
 
-and you were yourself harassed by a security official the police over the summer,
-而且你自己在夏天就被警察的安全官员骚扰过
+**5.****9****月上旬**** ****上海市猪粮比价再次进入一级预警区域**
 
-I guess we’re attending one of those anti lockdown rallies
-我想我们正在参加其中一场反封锁集会
+[9月上旬，全市“菜篮子”价格总指数134.9点，环比上涨0.2%。猪粮比价再次进入一级预警区域。9月上旬，全市肉禽蛋和鱼虾大类价格指数130.7点和144.9点，环比分别上涨0.1%和下跌0.1%，同比分别下跌25.1%和上涨13.4%。猪肉：本旬生猪出场价、猪肉批发价为7.47元和8.63元，环比下跌4.8%和3.1%，同比下跌60.7%和60.3%，同比跌幅再创新高。旬末，全市猪粮比价跌至4.9:1，再次进入一级预警区域（今年6月下旬曾短时运行于该区域）。今年6月以来，生猪养殖持续亏损，头均亏损始终在200-500元之间。猪肉零售价相对稳定，本旬为20.76元，环比持平，同比下跌40.1%，继续维持在两年以来低位。目前来看，尽管生猪养殖企业普遍亏损，但全国存栏量已超过2017年的相对高位，生猪出栏始终维持高水平，市场供过于求局面短期较难改变，猪肉价格将继续震荡下跌。](http://www.chinaprice.cn/jgdt/42173.jhtml)
 
-and you caught the incident on tape, Watch.
-你的这件事被记录在了录像带上，请看
+**6.****煤价暴涨，十多个省份被迫限电**
 
-Rukshan Fernando
-鲁克山 费尔南多
+[中共发改委星期五（9月24日）表示要解决自6月以来愈演愈烈并给多地多行业造成严重冲击的电力紧缺问题，但是在煤炭价格暴涨、电厂发电越多越亏本以及年度减排目标难以达成的现实面前，发改委如何着手解决电力紧缺这一难题令人关注。发改委特别提到作为燃气大用户的中国化肥产业受到限电措施的冲击非常大，并下令中国的主要能源公司要完全履行与化肥生产厂家签署的供电合同。但是受到限电措施冲击的绝对不止一个化肥行业。至少有15个生产铝制品、化工原料以及家具等原材料或生活用品的上市公司发布通告说，它们的生产受到限电措施的冲击。多家A股上市公司近日起密集发布了关于限电停产的公告。](https://www.voachinese.com/a/China-scrambles-to-fix-power-crunch-tame-runaway-raw-material-market-20210924/6244085.html)
 
-I’ve Just got a letter here about tomorrow’s action,
-我刚收到一封关于明天行动的信
+[来自21世纪经济报道的消息称，限电停产风暴正在席卷包括江苏、浙江、山东、广东、广西、云南在内的至少10多个省份。生产功能性遮阳材料的西大门公司发布的公告称，由于电力供应紧张，浙江省近日对辖区内重点用能企业实行用电降负荷，该公司因此也被迫临时停产。南京化纤在其发布的公告中表示，由于受到江苏省电力供应紧张的影响，全资子公司江苏金羚纤维素纤维有限公司9月22日起临时停产，预计10月上旬恢复生产。](https://www.voachinese.com/a/China-scrambles-to-fix-power-crunch-tame-runaway-raw-material-market-20210924/6244085.html)
 
-What’s tomorrow’s action?
-明天的行动是什么？
+评：中共死撑不进口澳煤，我觉得一方面是面子问题，但更有可能是中共外汇已经拙荆见肘，或者外汇需要派另外用途。结合7哥爆料对台海的战争压力加剧，中共缺煤或许并不那么简单
 
-This is the second time that you guys come here
-这是你们第二次来这里
+**7.****恒大错过美元债付息期限**** ****恐慌心理升温**
 
-Why do you have my address?
-为什么你们有我的地址？
+[恒大集团周五离投资者担心的潜在违约更近了一步，这家房地产商付息期限已届，却未发布任何公告，其巨额债务令市场感到恐慌。恒大身负3,050亿美元债务，现金短缺，投资者担心该公司崩溃可能给中国金融系统构成系统性风险，并将波及全球市场。路透社援引两名知情人士的话说，恒大已经错过了8,350万美元债券利息的支付期限，但却没有发布公告，债券持有人既没有收到付款，也没有收到该公司的消息。该公司目前进入30天的付息宽限期，处境难料。如果到期未能付款，将构成债务违约。路透社援引新加坡信安环球投资公司亚洲固定收益主管 Howe Chung Wan的话说：“这个时间点的沉默令人恐惧，因为在这个阶段没有人愿意承担巨大风险。”中国央行周五再次向银行系统注入现金，被视为支持市场的信号。但当局一直对恒大的困境保持沉默，中国官方媒体也没有提供救助方案的任何线索。](https://www.voachinese.com/a/fears-grow-for-China-Evergrande-after-interest-deadline-missed-20210924/6243885.html)
 
-Policeman
-警察
+**8.****加拿大法官终结引渡程序**** ****释放华为财务长孟晚舟**
 
-We are the police.
-我们是警察
+[加拿大法官今天终结针对华为财务长孟晚舟的引渡程序，下令将她保释条件解除并释放她，结束近3年的法律攻防。法新社报导，加拿大卑诗省最高法院副首席大法官福尔摩斯（Heather Holmes）做出这项裁判前，孟晚舟已与美国检方达成缓起诉协议，避免诈欺重罪指控。](https://www.google.com/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwiV6ZTJo5nzAhVDo54KHffgAhAQxfQBKAB6BAgEEAI&amp;url=https%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E5%258A%25A0%25E6%258B%25BF%25E5%25A4%25A7%25E6%25B3%2595%25E5%25AE%2598%25E7%25BB%2588%25E7%25BB%2593%25E5%25BC%2595%25E6%25B8%25A1%25E7%25A8%258B%25E5%25BA%258F-%25E9%2587%258A%25E6%2594%25BE%25E5%258D%258E%25E4%25B8%25BA%25E8%25B4%25A2%25E5%258A%25A1%25E9%2595%25BF%25E5%25AD%259F%25E6%2599%259A%25E8%2588%259F&amp;usg=AOvVaw0s7LsThxSKIUPjyEto9-d-)
 
-Rukshan Fernando
-鲁克山 费尔南多
+评：又被7哥蒙对了
 
-I know you’re the police
-我知道你们是警察
+**9.****云顶新耀与加拿大****Providence****达成协议**** ****在亚洲新兴市场推进****mRNA****疫苗研发**
 
-Why are you looking up journalists?
-你为什么要找记者的麻烦？
+[中国生物制药公司–云顶新耀周一宣布，与加拿大疫苗开发商Providence Therapeutics达成全面协议，在亚洲新兴市场推进包括新冠疫苗在内的mRNA疫苗及药品研发。第一项协议是关于云顶新耀将在大中华区、东南亚、巴基斯坦等亚洲新兴市场获得Providence的mRNA新冠候选疫苗的授权许可；第二项协议是关于双方建立广泛的战略合作伙伴关系，利用Providence的mRNA技术平台在全球开发mRNA产品。](https://cn.reuters.com/article/everest-med-providence-0913-mon-idCNKBS2G90Q5)
 
-Why are you looking up people?
-你为什么要找人民的麻烦？
+[公告称，新冠疫苗授权许可协议的初始预付款为5,000万美元，将由云顶新耀以现金形式支付。在大中华区和新加坡，新冠疫苗的利润分红最高可达1亿美元，一旦利润分配总额达到1亿美元，云顶新耀将支付新冠疫苗销售的中高个位数比例的特许权费用，在大中华区和新加坡以外的云顶新耀权益区域，最高可达中等十分位数比例的特许权费用。在合作产品协议方面，初始预付款就为5,000万美元，根据特定的技术转让、制造、临床前、开发以及商业化里程碑的实现，未来将支付最高3亿美元的阶段性里程碑付款，将由云顶新耀以发行新股支付。](https://cn.reuters.com/article/everest-med-providence-0913-mon-idCNKBS2G90Q5)
 
-Who work in the media?
-谁在媒体工作？
+**10.****A****股周五无预警狂泻**
 
-I’m reporter, man
-我是记者，老兄
+[9月24日，A股市场发生了一个非常显著的变化：在指数并未暴跌的情况之下，跌停个股达到了63只，而涨停个股数仅51只，这是近期以来少见的格局。在化工板块暴跌刷屏之后，如今煤炭、水泥、钢铁等强周期板块也加入到杀跌行列。在消息面上，除了双限双控政策之外，又有一个传闻有坊间流传：某游资活跃地区的资金恶炒商品被查。在这一传闻的影响之下，前期暴涨的商品期货全线杀跌，这也加剧了相关股票的跌势。](https://www.163.com/money/article/GKNS4KQG00259DLP.html?clickfrom=w_stock)
 
-Policeman
-警察
-
-I don’t know why you were there
-我不知道你为什么在那里
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Rukshan that is also absolutely chilling for anyone
-鲁克山，对于任何相信自由表达和报道的人来说
-
-who believes in free expression and reporting.
-这绝对是令人心寒的
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-Well this is the thing, Laura
-劳拉，嗯，事情就是这样，
-
-they have no problem with the mainstream media
-他们对主流媒体没有意见
-
-but you know, for us independent reporters that don’t,
-但你知道，对于我们这些独立记者来说就不行
-
-You know, follow that same narrative that the government is putting out there
-你知道，遵循政府在那里发布的相同叙述
-
-and, you know, we’re on the ground,
-而且你知道，我们是在现场
-
-you know, showing the people, interviewing the people
-你知道，向人们展示，采访人们
-
-and just letting their voices be heard.
-而且只是让他们的声音被听到
-
-They don’t like that type of coverage
-他们不喜欢那种类型的报道
-
-so, you know, they want to classify people in independent media,
-所以，你知道，他们想对独立媒体中人进行分类
-
-as you know, protested as well
-如你所知，抗议也同样
-
-and that’s why they’re using this type of tactic
-这就是为什么他们使用这种策略
-
-to silence these these voice and the stories being told
-来压制维多利亚州和澳大利亚人民
-
-by the people of Victoria and Australia,
-的声音和故事
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Australia’s making China proud,
-澳大利亚让中共国骄傲
-
-and those that footage just, I can’t stop watching
-而那些片段，我不能停止观看
-
-Rukshan, Thank you.
-鲁克山，谢谢
-
-原视频日期：2021/09/22
-原视频链接: https://twitter.com/miminguyenly/status/1440876691388198913?s=24
-视频时间段 : 0:00-1:58
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+By 【秘密翻译组 – 金融组】

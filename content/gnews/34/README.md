@@ -2,34 +2,35 @@
 ---
 
 
-## 银河快讯：菅义伟：美国重返TPP很重要；日本审查医疗系统
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1556030/)
+## 联邦法院暂停纽约市教职工接种强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556042/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-83.png)[图片来源](https://english.kyodonews.net/)
-**1.****日本总理候选人以旅游和农业为重点以争取支持**
+栏目记者/责任编辑：雪梨
 
-[据共同社  9月25日报道，在一次在线全体会议上，所有四位候选人–河野太郎、前外交部长岸田文雄、前内政部长高市早苗和前性别平等部长野田圣子–都承认旅游业和农业的重要性，这些问题对振兴地区经济至关重要。河野说，日本需要促进对区域经济有“良好影响”的入境旅游，而该国面临的一个挑战是如何吸引富裕的游客。岸田说，旅游业对地区经济有 “很大的潜力”。高市和长野有志于成为日本第一位女首相的人–都寄希望于日本的流行文化形式，如动漫和电影在吸引游客方面的力量。](https://english.kyodonews.net/news/2021/09/2e7fa3fc1e4f-pm-hopefuls-rally-local-support-with-focus-on-tourism-agriculture.html)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**2.菅义伟：“美国重返TPP很重要**”
+纽约市执行针对全市教职员工的强制接种令，原定于从9月27日开始执行。就在本周五，美国第二巡回上诉法院的法官将其暂时阻止，并将此案快速移交给由三名法官组成的小组进行审查。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P1-8.007.jpeg)
+今年8月，纽约市市长比尔·德布拉西奥，宣布要求该市的教职人员全面接种新冠疫苗，且除宗教与医疗豁免外，没有其他代替选项。法官在周四先是拒绝了该项禁令请求，原告律师随即向第二巡回上诉法院提出上诉，周五，临时禁令得到批准。
 
-[据产经新闻 9月26日报道，正在美国访问的日本首相菅义伟周二上午表示，他认为美国重返跨太平洋伙伴关系（TPP）是重要的，但没有透露周三的日美峰会或日美澳印TPP峰会的细节。 他还说，他不会加入下一届内阁，新总理将在本月29日的自民党总裁选举中当选。当被问及他是否会因中共病毒感染情况的改善而取消本月底向19个县发布的紧急声明时，他说：“情况肯定在改善。我们将在听取专家的意见后做出决定。”](https://news.yahoo.co.jp/articles/7abec5a49f44bf0ea31f12a30a95476d2ec45701)
+强制接种令将导致许多教职人员被迫停职，不仅侵犯员工的人身自由，更严重扰乱教学秩序。据悉该强制令可能导致纽约市的学校失去多达1万多名教职人员，届时纽约市的教育系统将受到严重的打击，原属于学生的教育资源也将受到影响。
+(本文仅代表作者观点)
 
-**3.****日本在可能的第六波疫情前审查医疗系统**
+参考链接：
 
-[据共同社  9月25日报道，官员称，除了要求现有的医疗机构保证足够的病床外，厚生劳动省还计划增加健身房等临时医疗设施的数量，并加强人员的协调。在上一次疫情复发期间，全国范围内的日感染量在8月20日达到峰值，约为25800人。虽然各县计划将数字提高到第三波的两倍，但一些地区的数字超过了三倍。即使在比日本更早推出疫苗接种计划的国家，感染也一直在增加，因此应该预计今后会出现复发。](https://english.kyodonews.net/news/2021/09/3e3930cb1639-japan-reviews-medical-system-ahead-of-possible-6th-covid-wave.html)
+1. [Federal court temporarily blocks Covid-19 vaccine mandate for New York City teachers](https://edition.cnn.com/2021/09/25/us/new-york-city-teacher-vaccine-mandate-injunction/index.html)
+2. [Federal judge delays vaccine mandate for NYC teachers](https://apnews.com/article/coronavirus-pandemic-health-new-york-courts-education-c5dd62f249ff600cf034924be734d8f8)
 
-**4.****旅游业希望放宽限制**
 
-[据每日新闻 9月25日报道，一直面对无法外出的严重压力都旅游业正寄希望于政府放松活动限制的计划上。 背景是疫苗接种的进展，并开始准备向那些在已经接种疫苗的人开放业务。 另一方面，人们非常担心由于“宽松”而导致的感染死灰复燃的可能性，如何平衡这一点和预防感染的措施是一个挑战。“我们已经收到了许多客户的询问，反响强烈。”为了响应政府的宽松政策，大阪市的一家大型旅行社于9月15日开设了一个申请页面，为接种疫苗的人提供特别旅游。 该公司表示，在秋季红叶季节前往京都和奈良的旅游特别受欢迎。 该公司的一位发言人说：“我们希望已经接种疫苗的顾客在享受旅游的同时，采取更彻底的措施防止感染。”](https://news.yahoo.co.jp/articles/a1783dd16573efd6332a287a8f1f58fe3a84661d)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-**5.****四国领导人会晤，通过半导体供应合作加强经济安全**
+终审：文龙
+校正/发稿：我不在这里
 
-[据产经新闻9月26日报道，在四方领导人会议上，四国确认他们合作创建先进半导体的供应链。 这不仅是为了对抗中共国快速增长的半导体市场，而且还因为半导体的严重短缺和不稳定的供应链威胁着每个国家的经济安全。这份联合文件确认，四国将把重点放在半导体和其他材料的“强大、多样化和安全”的供应链上。 该成果文件还明确提出了一项“联合倡议”，以加强半导体供应链的安全。 这四个国家将支持半导体和关键部件的安全和有竞争力的生产和供应。](https://news.yahoo.co.jp/articles/795a11107bce83aad0e6091be5ced46923f834bc)
-
-**6.****四国领导人将定期会晤，但日本总理的更换使得重建信任变得至关重要**
-
-[据产经新闻9月26日报道，日本、美国、澳大利亚、印度和日本的四方经济合作理事会的领导人同意按照日本的要求使他们的会议更加定期，还确认扩大在基础设施和其他领域的合作。 下一任首相实际上将在29日自民党总裁选举后决定，他的任务是重建与其他国家领导人的信任并将合作付诸实践。一位政府高级官员在会后强调。 与具有前瞻性的日本和美国不同，印度和澳大利亚凭借其全方位的外交，并不总是积极主动。 然而，由于与中共国的冲突和谨慎的态度，他们已经逐渐转移了重点。](https://news.yahoo.co.jp/articles/9971af4fb1865e603e52314d0421ee96b7934049)
-
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
