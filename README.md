@@ -15,167 +15,167 @@
 
 ---
 
-### [2018年4月23日之二 郭文贵与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/gnews/1/README.md)
+### [保命、保财、报仇](/content/gnews/1/README.md)
+ ` 银河勇气之星`
+
+### [2018年4月23日之二 郭文贵与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/gnews/2/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [以色列COVID-19 疫苗受害者证词(二）](/content/gnews/2/README.md)
+### [以色列COVID-19 疫苗受害者证词(二）](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共病毒加强针将为制药商带来数十亿美元利润](/content/gnews/3/README.md)
+### [中共病毒加强针将为制药商带来数十亿美元利润](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（八）](/content/gnews/4/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（八）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国新政府或实现三党联合](/content/gnews/5/README.md)
+### [德国新政府或实现三党联合](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [布鲁斯9名老年护理工检测呈阳性](/content/gnews/6/README.md)
+### [布鲁斯9名老年护理工检测呈阳性](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [菅义伟推新基建对抗中共债务式基建陷阱](/content/gnews/7/README.md)
+### [菅义伟推新基建对抗中共债务式基建陷阱](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9/25/2021七哥盖特：文贵先生建议远离现代化城市，搬到越农村越好](/content/gnews/8/README.md)
+### [9/25/2021七哥盖特：文贵先生建议远离现代化城市，搬到越农村越好](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年9月25日郭先生盖特 — 视频盖特1「9分48秒」](/content/gnews/9/README.md)
+### [2021年9月25日郭先生盖特 — 视频盖特1「9分48秒」](/content/gnews/10/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [法官暂时阻止纽约强制教师打中共病毒疫苗](/content/gnews/10/README.md)
+### [法官暂时阻止纽约强制教师打中共病毒疫苗](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [韩国病毒感染人数连续82天维持在4位数](/content/gnews/11/README.md)
+### [韩国病毒感染人数连续82天维持在4位数](/content/gnews/12/README.md)
  ` 首尔天池农场`
 
-### [郭文贵：10月20日起欧盟不再推行疫苗护照](/content/gnews/12/README.md)
+### [郭文贵：10月20日起欧盟不再推行疫苗护照](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [新州将限制未接种疫苗者的自由](/content/gnews/13/README.md)
+### [新州将限制未接种疫苗者的自由](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [川普针对主流媒体虚假宣传连续发声明](/content/gnews/14/README.md)
+### [川普针对主流媒体虚假宣传连续发声明](/content/gnews/15/README.md)
  ` HimalayaRussia`
 
-### [9/25/2021七哥盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点](/content/gnews/15/README.md)
+### [9/25/2021七哥盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共已经控制了世界2/3的芯片制造产业](/content/gnews/16/README.md)
+### [中共已经控制了世界2/3的芯片制造产业](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/25/2021七哥盖特：孟晚舟回国又被七哥说中了](/content/gnews/17/README.md)
+### [9/25/2021七哥盖特：孟晚舟回国又被七哥说中了](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [愿赐勇敢的神救赎我们脱离危险](/content/gnews/18/README.md)
+### [愿赐勇敢的神救赎我们脱离危险](/content/gnews/19/README.md)
  ` 纽约香草山MOS03`
 
-### [《秘翻吐槽大剧场》“我行我秀”台词征集](/content/gnews/19/README.md)
+### [《秘翻吐槽大剧场》“我行我秀”台词征集](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美媒：前五角大楼官员警告台湾正处于极度危险中！](/content/gnews/20/README.md)
+### [美媒：前五角大楼官员警告台湾正处于极度危险中！](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|中共是天价海运的幕后黑手](/content/gnews/21/README.md)
+### [有声|中共是天价海运的幕后黑手](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|我们一定要用媒体这个核武器反击了](/content/gnews/22/README.md)
+### [有声|我们一定要用媒体这个核武器反击了](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|华大基因“火眼”覆盖全球](/content/gnews/23/README.md)
+### [有声|华大基因“火眼”覆盖全球](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|广东男染H5N6禽流感　中共专家称仅是个案](/content/gnews/24/README.md)
+### [有声|广东男染H5N6禽流感　中共专家称仅是个案](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [台海风高夜](/content/gnews/25/README.md)
+### [台海风高夜](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [雅典娜时报-第063期](/content/gnews/26/README.md)
+### [雅典娜时报-第063期](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共同富裕谎言](/content/gnews/27/README.md)
+### [共同富裕谎言](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [中共计划用 ”超级MERS“ 病毒对美国发动新一轮致命生物武器攻击](/content/gnews/28/README.md)
+### [中共计划用 ”超级MERS“ 病毒对美国发动新一轮致命生物武器攻击](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美国推打疫苗加强针，疫苗制造商利润将增加数十亿](/content/gnews/29/README.md)
+### [美国推打疫苗加强针，疫苗制造商利润将增加数十亿](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [以色列无绿色通行证的教师被停薪并禁止进入学校](/content/gnews/30/README.md)
+### [以色列无绿色通行证的教师被停薪并禁止进入学校](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [强制接种令周一生效恐造成人员严重短缺及次生灾害加剧](/content/gnews/31/README.md)
+### [强制接种令周一生效恐造成人员严重短缺及次生灾害加剧](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [茅台原董事长被判无期 背后是权力与利益的交换](/content/gnews/32/README.md)
+### [茅台原董事长被判无期 背后是权力与利益的交换](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [唯真不破反洗脑—我什么都不信了之一：多变的口罩](/content/gnews/33/README.md)
+### [唯真不破反洗脑—我什么都不信了之一：多变的口罩](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/09/24文贵先生直播精要](/content/gnews/34/README.md)
+### [2021/09/24文贵先生直播精要](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [比尔∙盖茨的疫苗帝国](/content/gnews/35/README.md)
+### [比尔∙盖茨的疫苗帝国](/content/gnews/36/README.md)
  ` 文永`
 
-### [微生物燃料电池性能提高创下新纪录](/content/gnews/36/README.md)
+### [微生物燃料电池性能提高创下新纪录](/content/gnews/37/README.md)
  ` HimalayaRussia`
 
-### [前五角大楼官员警示台湾正处于极度危险之中](/content/gnews/37/README.md)
+### [前五角大楼官员警示台湾正处于极度危险之中](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/38/README.md)
+### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/39/README.md)
  ` Charlie`
 
-### [中共进一步加强文化管制](/content/gnews/39/README.md)
+### [中共进一步加强文化管制](/content/gnews/40/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0925](/content/gnews/40/README.md)
+### [DC每日热点0925](/content/gnews/41/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [被中共拘留近三年的两名加拿大人返回家园](/content/gnews/41/README.md)
+### [被中共拘留近三年的两名加拿大人返回家园](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [因接种新冠疫苗导致白血病的健身爱好者宫东升都经历了啥](/content/gnews/42/README.md)
+### [因接种新冠疫苗导致白血病的健身爱好者宫东升都经历了啥](/content/gnews/43/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国与欧盟拟联手限制大型科技公司](/content/gnews/43/README.md)
+### [美国与欧盟拟联手限制大型科技公司](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [9/25/2021国际财经快讯：美国新房销售超预期；恒大不确定性导致美元上涨](/content/gnews/44/README.md)
+### [9/25/2021国际财经快讯：美国新房销售超预期；恒大不确定性导致美元上涨](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
 
-### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/45/README.md)
+### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/46/README.md)
+### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/47/README.md)
+### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [为什么总有理由给贪官轻判](/content/gnews/48/README.md)
+### [为什么总有理由给贪官轻判](/content/gnews/49/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/49/README.md)
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压](/content/gnews/50/README.md)
+### [9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压](/content/gnews/51/README.md)
  ` 秘密翻译组金融团队`
 
-### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/51/README.md)
+### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/52/README.md)
  ` wenwu`
 
-### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/52/README.md)
+### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/53/README.md)
+### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/54/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [“供不应求”致中药材价格上涨](/content/gnews/54/README.md)
- ` 纽约香草山MOS02`
 
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`

@@ -2,32 +2,32 @@
 ---
 
 
-## 以色列无绿色通行证的教师被停薪并禁止进入学校
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555029/)
+## 美国推打疫苗加强针，疫苗制造商利润将增加数十亿
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555030/)
 
-栏目记者/责任编辑：文真
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-359.png)
+栏目记者/责任编辑：文一
 
 
 
-据雷特巴特新闻网报道，以色列卫生部下令给各学校校长，要求自10月3日起禁止没有绿色通行证的教师进入学校，也不允许他们进行远程教学。而且，在被迫禁课期间，这些教师不会得到任何薪资。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-5.jpg)
-”绿色通行证“ 是以色列新冠病毒期间限制令之一，用来证明持证人近期病毒测试结果为阴性，也可以表示已从新冠病情中康复、或已完成疫苗接种。“绿色通行证”只是借“保护” 为幌子，实质为限制人权和自由，变相强迫民众接种新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-358.png)
 
-中学教师协会主席埃雷兹反对卫生部的作法：他认为，政府剥夺了人们的自由选择权，更不应该对反抗集权的教师进行惩罚。
+
+
+自拜登总统8月中旬提出助推计划，华尔街对Moderna 2022年收入预测已经跃升了35%。辉瑞公司和德国的BioNTech公司合作，加上Moderna公司已经分别为大约9900万和6800万人接种了疫苗。强生公司，1400万人，位列第三位。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture4-4.jpg)
+晨星公司预计，如果所有美国人都打加强针，那么仅这一项明年就为辉瑞和BioNTech带来约260亿美元的全球销售额，Moderna公司为约140亿美元。辉瑞公司在7月份预计，如果加强针能推广至小学生的话，今年其疫苗的收入将达到335亿美元。
+
+这个数字有多大？世界上最赚钱的疫苗就是辉瑞公司的Prevnar13（预防肺炎球菌疾病的疫苗），也就是58亿美元的收入，而其新冠疫苗比这高五倍还多。制药商还表示人们可能需要每年注射一次新冠疫苗，就像流感疫苗一样。欲将其成为他们主要的经常性收入来源。加强针推打还可为连锁药店CVS 和Walgreens可以分别带来超过8亿美元的意外收入。这些连锁店正积极收集信息，以便邀请客户回来接受加强针。
+
+很难想象这些未曾完成动物实验，只能算作紧急使用的药物，甚至各类致残致死的案例不断见诸报端的情形下还一轮轮强制推打。从这些血淋淋的数字中不难看出黑暗势力的贪婪与险恶用心。
 
 （本文仅代表作者观点）
 
-参考链接：
-[以色列无绿色通行证的教师被停薪并禁止进入学校](https://www.breitbart.com/middle-east/2021/09/24/israel-bars-entry-to-unvaccinated-untested-teachers-into-schools-denies-pay/)
-[以色列无绿色通行证的教师被停薪并禁止进入学校](https://gnews.org/zh-hans/1553254/)
+参考链接：[美国推打疫苗加强针，疫苗制造商利润将增加数十亿](https://www.chicagotribune.com/coronavirus/ct-aud-nw-covid-19-vaccine-boosters-drugmakers-20210925-rbp45rha2rbazjhq4zudayr2ea-story.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
 
-终审编辑：暗黑
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -37,4 +37,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-359.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-358.png)
