@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/26/2021 2:29 AM (UTC)`
+
+9/25/2021 Miles Guo’s GETTR: Before the Covid vaccine and virus catastrophe arrives, <br/>our fellow fighters shall focus on the following key issues: 1) stay away from the CCP virus, 2) not get vaccinated, 3) prepare for necessary medicines and antidotes, and 4) until the threat is disarmed, you must ensure you have food to eat, dwelling to live and money to spend<br/><br/>9/25/2021 文贵盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点：1）防范中共病毒、2）不打疫苗、3）备好解药、4）在威胁解除前保证有饭吃、有房住、有钱花<br/>
+![img](https://media.gettr.com/group4/getter/2021/09/26/02/29/67198591-5c17-db43-0c65-d100ab5aa844/out.jpg)
+
+---
+
 `@miles 9/26/2021 2:16 AM (UTC)`
 
 WOW 
@@ -286,12 +293,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 `@miles 9/20/2021 6:16 PM (UTC)`
 
 😜😜😜 <br/><br/>https://twitter.com/fengsaobahuang/status/1439824553476169730?s=12
-
----
-
-`@miles 9/20/2021 6:13 PM (UTC)`
-
-😡😡😡🥵🥵🥵 <br/><br/>https://twitter.com/realliangnaduo/status/1440013093120221190?s=12
 
 ---
 
