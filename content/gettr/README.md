@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/26/2021 7:59 PM (UTC)`
+
+以色列COVID-19 疫苗受害者证词(二）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
+![img](https://media.gettr.com/group37/getter/2021/09/26/19/59/7bb96f14-58d9-a747-0d68-852878e27155/out.jpg)
+
+---
+
 `@miles 9/26/2021 7:07 PM (UTC)`
 
 9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！
@@ -290,13 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 路透社 9 月 20 日 - 推特公司 (TWTR.N) 周一表示，将支付 8.095 亿美元来解决股东集体诉讼，该诉讼指控这家社交媒体公司在人们使用其平台的频率方面欺骗投资者。<br/><br/>和解解决了一个即将开庭审理的案件。陪审团遴选原定于周一开始，但在 9 月 17 日在加利福尼亚州奥克兰举行的美国地方法官 Jon Tigar 听证会上将其推迟到 11 月下旬。<br/><br/>Twitter、前首席执行官理查德科斯特洛和前首席财务官安东尼诺托否认同意和解有不当行为，这需要蒂格的批准。<br/><br/>代表股东的 Robbins Geller Rudman & Dowd 合伙人 Tor Gronborg 表示：“陪审团审判是一个很好的平衡器，即使对于地球上一些最强大的实体也是如此。”<br/><br/>在下午早些时候的交易中，Twitter 股价下跌 3.8%，至 60.11 美元。推特表示，预计将在今年第四季度使用手头现金支付结算金额，并在第三季度记录相关费用。<br/><br/>股东于 2016 年 9 月起诉 Twitter，称其通过在用户参与度方面误导他们人为地抬高了股价。<br/><br/>根据投诉，Twitter 在 2014 年底停止报告“时间轴视图”，并通过报告用户指标的模糊描述来掩盖停滞或下降的用户参与度。<br/>股东表示，2015 年 6 月 Costolo 离开公司后，Twitter 承认了真相，其股价下跌了 20%。<br/><br/>集体诉讼涵盖从 2015 年 2 月 6 日至 2015 年 7 月 28 日期间购买该股票的投资者。<br/><br/>证券集体诉讼清算所表示，自 1996 年以来，在由股票投资者提起的 5,000 多起美国证券集体诉讼案件中，只有 9 起经过审判并作出判决。<br/><br/>略多于一半的诉讼被驳回，其余大部分和解。🙏🙏🙏🙏 https://www.reuters.com/technology/
 ![img](https://media.gettr.com/group2/getter/2021/09/21/22/9a44599c-602d-f064-86f6-aac874fb77d4/71a13a2cf37eee14855086df6bf3dcf6.jpg)
-
----
-
-`@miles 9/21/2021 6:08 PM (UTC)`
-
-9/21/2021 文贵直播：新疆集中营前天突然有300多人因所谓“感染”死亡，这是屠杀吗？<br/><br/>9/21/2021 Miles Guo: Over 300 people suddenly died in a concentration camp in Xinjiang due to the so-called “infections” the day before yesterday. Was that a massacre?
-![img](https://media.gettr.com/group40/default/20210921/18/07/f5d7f29a-939d-2ef5-e2c2-f601d6e18eb3/out.jpg)
 
 ---
 
