@@ -2,25 +2,23 @@
 ---
 
 
-## 挪威取消了大部分针对中共病毒疫情的限制
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1556442/)
+## 中共军机挂核弹绕台 中共国沿海导弹系统启动
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556536/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/N-scaled.jpg)wegoinfaith.org
-9月26日来自euronews.的消息，挪威于当地时间周六（9月25日）下午4点取消了大部分针对中共病毒疫情的限制。居民不必再保持社交距离，体育场和文化活动大厅可以达到百分之百的饱和度，夜总会也重新开放。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/text-CN.png)
+文章仅代表作者本人观点，与Gnews无关
 
-挪威首相埃尔纳∙苏尔贝格表示，“我们现在几乎可以像疫情发生前那样生活，但我不认为会像以前那样。中共病毒将影响我们一生的生活，无论好坏。我们已经意识到我们是多么脆弱，以及我们可以共同取得多大的成就。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-荷兰也在前一天废除了保持社交距离的规定，但随之而来的是，进入酒吧、餐馆、剧院和电影院的人必须出示健康通行证。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-海牙一家酒吧的一名员工说：“我们担心会有一些人不愿意出示通行证，会不高兴而离开。这很可能发生，但到目前为止还没有。一切都很顺利。”
-
-在荷兰的博物馆、图书馆和餐厅露台，仍然不需要健康通行证。中共病毒的快速检测仍然是免费的。
-
-尽管如此，数百名荷兰人在周六走上街头抗议健康通行证制度。他们认为这种新规则是具有歧视性的。
-
-参考链接：
-
-[https://ru.euronews.com/2021/09/26/norway-no-corona-restrictions](https://ru.euronews.com/2021/09/26/norway-no-corona-restrictions)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

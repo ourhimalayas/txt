@@ -2,21 +2,37 @@
 ---
 
 
-## 秘翻在线：柳叶刀的中共病毒溯源小组因与生态健康联盟有关联被解散
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556181/)
+## 北欧：瑞典深化与挪威丹麦的军事合作
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556214/)
 
-#### 翻译撰稿：zzballack
+撰稿：Skagen【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图像-1-4.jpg)
+图片来源：SVT.se
 
-#### 校对发布：
+据路透社德哥尔摩报道，瑞典、丹麦和挪威这三个斯堪的纳维亚国家于2021年 9 月 24 日星期五签署一项军事行动合作协议，以应对波罗的海地区不断恶化的安全局势。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/asdf8954sda6f489h46fg65df65sd.jpg)图片来源：The Sunday Times
+三国表示，厄勒松海峡和北海地区的安全局势已经恶化。因此，这三个国家认为，需要提高共同应对威胁和违规行为的能力。
 
-据英国《每日邮报》（Daily Mail）9月25日报道，哥伦比亚大学教授杰弗理·萨克斯 (Jeffrey Sachs)博士9月25日宣布解散隶属于《柳叶刀》（Lancet）医学杂志的一个中共病毒起源调查小组，原因是该小组与资助了武汉病毒研究所功能增强研究的生态健康联盟（EcoHealth Alliance）及其主席彼得·达萨克 (Peter Daszak)有关联。
+瑞典不是北约成员国，但与波罗的海各国有着密切的关系，由于与俄罗斯在波罗的海地区的紧张局势日益加剧，经过几十年来的疏忽之后，瑞典正在重建其自己的军队。
 
-萨克斯博士告诉《华尔街日报》说，一个由12名成员组成的中共病毒起源调查小组在9月中旬被解散。此前很长一段时间里达萨克一直在领导着这个小组，直到今年6月他才退出该职位。此外，该小组的部分成员也与达萨克或生态健康联盟有密切往来。2020 年 2 月，五名小组成员与达萨克在《柳叶刀》上发布了一封联署信，谴责中共病毒来自实验室的说法是阴谋论。这些参与溯源调查的成员也在 2021 年 7 月宣称，他们有更多证据支持中共病毒来自自然。
+为了应对与俄罗斯日益紧张的关系，瑞典近年来提高了军费开支，并加深了与北约和芬兰等邻国的军事合作，包括同意从美国购买爱国者导弹。
 
-萨克斯表示，在旧的起源调查小组解散后，一个新的柳叶刀中共病毒委员会将继续调查研究，并准备在 2022 年中期发布调查报告。但会扩大调查范围，纳入其他专家对生物安全问题的意见，包括有风险的实验室研究。
+挪威国防部长弗兰克·巴克-詹森 (Frank Bakke-Jensen) 表示，该协议使安全画面“更安全”，并将该合作协议称为对北约的补充。它既具有对敌的劝阻性，又具有显着的安全效果。
 
-就在数天前，一份让人震惊的文件显示达萨克在2018年向美国国防高等研究计划署（DARPA）提出1420万美元的资金申请，以资助武毒所的蝙蝠冠状病毒功能增强研究。他提议在SARS样蝙蝠冠状病毒中插入福林裂解位点，增强其传染性和致命性。
+丹麦国防部长特琳·布拉姆森（Trine Bramsen）则表示，该协议不会显着改变该国的安全局势。如果我们突然受到攻击，北约才是我们的保证。但这并不改变一个事实，即当一个邻国来救援时，总是好的。来自邻国的援助在军事方面也是一件非常重要的事情。同时布拉姆森告诉丹麦电视二台，并提到网络领域是一个可能的合作领域。与其他两国一起拥有更大的分析能力，这真的很有意义。当我们汇集我们的资源时，我们也会得到更多的情报。
 
-新闻来源：[**Lancet taskforce investigating origins of Covid is DISBANDED over ties to discredited Peter Daszak – just days after bombshell documents revealed his 2018 proposal to help Wuhan lab engineer more deadly bat coronaviruses**](https://www.dailymail.co.uk/news/article-10028443/Lancets-COVID-origins-panel-disbands-ties-Peter-Daszaks-EcoHealth-Alliance.html)
+瑞典国防部长彼得·胡尔克维斯特（Peter Hultqvist）强调了扩大与其他国家的军事合作的总体重要性，并列举了国际恐怖主义的风险和一个更加混乱的世界。胡尔克维斯特特别提到了俄罗斯，他向瑞典国家广播公司SVT大胆表示，俄罗斯 “准备使用军事力量来实现政治目的和目标”。同时，胡尔克维斯特强调了瑞典周边地区的 “军事集结的增加”，尽管瑞典本身最近提出了国家军队的新扩张，在目前阶段包括五个新团和一个新的空中舰队。
+
+此外，来自 13 个不同国家的代表将在斯德哥尔摩会面，讨论如何共同应对若干持续存在的安全威胁。
+
+在中共释放病毒后，我们生活在一个不可预测的时代。共产中国和俄罗斯的军事合作让西方国家感到现在的地缘政治挑战比冷战以来的任何时候都更大、更复杂，诸如空间、网络、海洋和天空都面对着前所未有的威胁。瑞典、丹麦和挪威这三个斯堪的纳维亚国家的这项军事行动合作协议，只是西方国家未来合作的一个开始。
+
+(文章只代表作者个人观点)
+
+来源：
+
+[路透社](https://www.reuters.com/world/europe/sweden-deepen-military-ties-with-norway-denmark-swedish-tv-reports-2021-09-23/)
+
+[Sputniknews](https://sputniknews.com/20210924/sweden-denmark-and-norway-embark-on-new-military-cooperation-against-big-neighbour-in-the-east-1089358527.html)
+
+[Svt.se](https://www.svt.se/nyheter/sverige-skriver-under-militarsamarbete-med-norge-och-danmark)

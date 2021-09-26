@@ -2,23 +2,21 @@
 ---
 
 
-## 中共军机挂核弹绕台 中共国沿海导弹系统启动
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556536/)
+## 【路大脑袋逃窜记】路大脑袋疯狂逃窜，文贵先生赠住豪宅一片狼藉！
+` 新西兰新联邦新闻摘要` [轉載自GNews](https://gnews.org/zh-hans/1556638/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+新西兰奥克兰伊甸农场-玫瑰新闻组
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/text-CN.png)
-文章仅代表作者本人观点，与Gnews无关
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+🌟🌟🌟🙏🙏🙏
+【玫瑰新闻】刚刚设立各平台账号
+欢迎战友们关注节目，提出宝贵意见！感谢大家点赞订阅推广的支持和鼓励！谢谢！
+
+1.[油管频道链接](https://youtube.com/channel/UCflJNlhnkOnqrdhSjfUJ0iw)
+
+2.[盖特频道链接](https://www.gettr.com/user/rosenews)
+
+3.[GTV频道链接](https://gtv.org/user/5e971565c9e0f16aefbd8046)

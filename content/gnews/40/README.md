@@ -2,34 +2,133 @@
 ---
 
 
-## 银河快讯：菅义伟：美国重返TPP很重要；日本审查医疗系统
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1556030/)
+## 为何打疫苗和知道真相以后的恐惧
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556060/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-83.png)[图片来源](https://english.kyodonews.net/)
-**1.****日本总理候选人以旅游和农业为重点以争取支持**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-20.jpg)https://gtv.org/video/id=615042bed2e2b817486e3d8f
+郭文贵
+Miles Guo
 
-[据共同社  9月25日报道，在一次在线全体会议上，所有四位候选人–河野太郎、前外交部长岸田文雄、前内政部长高市早苗和前性别平等部长野田圣子–都承认旅游业和农业的重要性，这些问题对振兴地区经济至关重要。河野说，日本需要促进对区域经济有“良好影响”的入境旅游，而该国面临的一个挑战是如何吸引富裕的游客。岸田说，旅游业对地区经济有 “很大的潜力”。高市和长野有志于成为日本第一位女首相的人–都寄希望于日本的流行文化形式，如动漫和电影在吸引游客方面的力量。](https://english.kyodonews.net/news/2021/09/2e7fa3fc1e4f-pm-hopefuls-rally-local-support-with-focus-on-tourism-agriculture.html)
+战友们一定你们要有一个（认识）
+Comrades in arms, you must have one knowledge
 
-**2.菅义伟：“美国重返TPP很重要**”
+世界上造成这次冠状病毒、疫苗最大的瞒天过海
+Creating the biggest scam of the COVID-19, vaccines in the world,
 
-[据产经新闻 9月26日报道，正在美国访问的日本首相菅义伟周二上午表示，他认为美国重返跨太平洋伙伴关系（TPP）是重要的，但没有透露周三的日美峰会或日美澳印TPP峰会的细节。 他还说，他不会加入下一届内阁，新总理将在本月29日的自民党总裁选举中当选。当被问及他是否会因中共病毒感染情况的改善而取消本月底向19个县发布的紧急声明时，他说：“情况肯定在改善。我们将在听取专家的意见后做出决定。”](https://news.yahoo.co.jp/articles/7abec5a49f44bf0ea31f12a30a95476d2ec45701)
+能让很多人打疫苗的原因就是因为
+and enabling a lot of people vaccinated, the reasons are
 
-**3.****日本在可能的第六波疫情前审查医疗系统**
+所有西方人是相信医疗系统的，是相信科学的
+all Westerners trust the medical system and trust the science
 
-[据共同社  9月25日报道，官员称，除了要求现有的医疗机构保证足够的病床外，厚生劳动省还计划增加健身房等临时医疗设施的数量，并加强人员的协调。在上一次疫情复发期间，全国范围内的日感染量在8月20日达到峰值，约为25800人。虽然各县计划将数字提高到第三波的两倍，但一些地区的数字超过了三倍。即使在比日本更早推出疫苗接种计划的国家，感染也一直在增加，因此应该预计今后会出现复发。](https://english.kyodonews.net/news/2021/09/3e3930cb1639-japan-reviews-medical-system-ahead-of-possible-6th-covid-wave.html)
+而就是一定要记住西方的文明和法治社会，和民主社会，是跟科技和
+and (you) must remember that the Western civilization and society under the rule of law, and the democratic society
 
-**4.****旅游业希望放宽限制**
+工业文明开始的
+have started with technology and industrial civilization
 
-[据每日新闻 9月25日报道，一直面对无法外出的严重压力都旅游业正寄希望于政府放松活动限制的计划上。 背景是疫苗接种的进展，并开始准备向那些在已经接种疫苗的人开放业务。 另一方面，人们非常担心由于“宽松”而导致的感染死灰复燃的可能性，如何平衡这一点和预防感染的措施是一个挑战。“我们已经收到了许多客户的询问，反响强烈。”为了响应政府的宽松政策，大阪市的一家大型旅行社于9月15日开设了一个申请页面，为接种疫苗的人提供特别旅游。 该公司表示，在秋季红叶季节前往京都和奈良的旅游特别受欢迎。 该公司的一位发言人说：“我们希望已经接种疫苗的顾客在享受旅游的同时，采取更彻底的措施防止感染。”](https://news.yahoo.co.jp/articles/a1783dd16573efd6332a287a8f1f58fe3a84661d)
+在西方建立社会的基础是科学作为基础的
+building a foundation of society in the West is based on science as the foundation
 
-**5.****四国领导人会晤，通过半导体供应合作加强经济安全**
+大家都不相信政府，也不相信政客
+No one trusts the government neither the politicians
 
-[据产经新闻9月26日报道，在四方领导人会议上，四国确认他们合作创建先进半导体的供应链。 这不仅是为了对抗中共国快速增长的半导体市场，而且还因为半导体的严重短缺和不稳定的供应链威胁着每个国家的经济安全。这份联合文件确认，四国将把重点放在半导体和其他材料的“强大、多样化和安全”的供应链上。 该成果文件还明确提出了一项“联合倡议”，以加强半导体供应链的安全。 这四个国家将支持半导体和关键部件的安全和有竞争力的生产和供应。](https://news.yahoo.co.jp/articles/795a11107bce83aad0e6091be5ced46923f834bc)
+多少年，我到哪儿去，对政客都是骂的
+For years, everywhere I went, all I heard was cursing of politicians
 
-**6.****四国领导人将定期会晤，但日本总理的更换使得重建信任变得至关重要**
+都是不相信的
+People do not trust politicians
 
-[据产经新闻9月26日报道，日本、美国、澳大利亚、印度和日本的四方经济合作理事会的领导人同意按照日本的要求使他们的会议更加定期，还确认扩大在基础设施和其他领域的合作。 下一任首相实际上将在29日自民党总裁选举后决定，他的任务是重建与其他国家领导人的信任并将合作付诸实践。一位政府高级官员在会后强调。 与具有前瞻性的日本和美国不同，印度和澳大利亚凭借其全方位的外交，并不总是积极主动。 然而，由于与中共国的冲突和谨慎的态度，他们已经逐渐转移了重点。](https://news.yahoo.co.jp/articles/9971af4fb1865e603e52314d0421ee96b7934049)
+但是对科学大家都相信的，还有就是对媒体
+But people believe in science and also the media
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+过去认为媒体都是有两三家，说媒体是可以相信的。完了
+In the past, (everyone) believed that there were two or three media could be trusted. It’s over.
+
+这回邪恶的势力和中国共产党玩的就是玩得把科学全部垄断
+What the evil forces and the Chinese Communist Party are playing this time is to monopolize science
+
+它把媒体全部垄断
+It monopolizes the media
+
+这个情况下，很多人打疫苗
+In this case, a lot of people get vaccinated
+
+绝大多数人都是因为一个
+most of the people are because of one (reason)
+
+本身就害怕死，恐惧
+fear of death
+
+还有一个原因，他相信科学
+another reason is that they believe in science
+
+还有更重要的事情 ，它（相信）媒体
+and the more important thing is that they trust media
+
+所以说现在当你跟任何人说，很多人就马上就（产生）那种恐惧感
+So when you talk to anyone now, many people immediately (have) that sense of fear
+
+哇现在一个和平的美食美酒，点着火炉
+Wow, currently there is a peaceful meal with nice food and wine, a warming stove
+
+是不是，天高云淡
+Isn’t it? The sky is high and the clouds are pale
+
+后面还有美山美水
+There are beautiful mountains and crystal clear water behind
+
+面对着自己
+facing one’s own
+
+千万财富亿万财富
+tens of millions of wealth, billions of wealth
+
+突然说他可能要死了
+and suddenly said he might be dying
+
+兄弟姐妹们，你想过这感觉了吗
+Brothers and sisters, have you thought about how it feels?
+
+这个很吓人你知道吗，那人的那种恐惧真的瞳孔就要扩散的感觉呀
+This is very scary. Do you know? That kind of human fear really feel like the pupils are about to diffuse
+
+你谁也受不了，搁在谁身上谁也受不了
+None of you can stand that, no one can stand it
+
+说这有可能要完蛋
+Saying that it might be the end
+
+问疫苗， 马上说哎有解药没有，有解药没有
+(They) asked about the vaccine, and immediately asked whether there is any antidote
+
+全要解药，那药是什么名字，跟我说叫什么名字
+(They) all demand the antidote, what’s the name of that medicine, tell me what’s the name of it
+
+谁都怕死
+Everyone is afraid of death
+
+这个时候你知道，你会发现
+At this time you know, you would find out that
+
+不是每个人都有解药的
+not everyone has an antidote
+
+真的不是每个人都能觉得扛过去这个恐怖的
+really not everyone can overcome this fear
+
+很多人你知道， 他回去一夜一夜睡不着觉
+Many people, you know, they couldn’t sleep nights after nights when he went home
+
+原视频日期：2021/09/21
+原视频链接: https://twitter.com/se1y7cblljselva/status/1440864540116197384?s=24
+视频时间段 : 0:00-2:12
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,177 +2,60 @@
 ---
 
 
-## 墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556052/)
+## 尽管有更多反对意见，CDC仍批准新冠疫苗加强针
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556139/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-19.jpg)https://gtv.org/video/id=615044f3d2e2b817486e3df1
-Rukshan Fernando (Australian Independent Journalist)
-鲁克山 费尔南多（澳大利亚独立记者）
+据《零对冲》作者：TYLER DURDEN，2021年9月23日报道：
 
-That’s right, Laura, I mean look,
-没错，劳拉，我的意思是, 看
+更新（1622ET），ACIP还批准了为18-49岁有潜在问题的人提供疫苗加强针，这次投票是9比6。
 
-these are just everyday Australians everyday Victorians.
-这些只是澳大利亚人的日常，维多利亚人的日常
+下一次投票应该定义“高危”职业。
 
-They’re protesting right now, the government said,
-他们现在正在抗议，而政府说
+更新（1600ET），尽管对加强针的必要性存在一些分歧（我们在上周末的FDA小组会议上也看到了这一点），CDC的咨询小组以15比0和13比2的投票结果，批准了对65岁以上的人和50至64岁的免疫力低下的成年人进行加强针的授权。
 
-you know, protesting is illegal.
-你知道，抗议是非法的
+当CDC的咨询小组准备就他们对辉瑞公司疫苗加强针的最后一套指导方针进行投票时，该小组的一些成员对授权疫苗加强针提出了更多的反对意见，尽管这些反对意见与FDA咨询小组成员的反对意见不一样。成员们担心，无论如何，由于疫苗的搁置，大流行病可能会被延长。事实上，有这么多美国人拒绝接种疫苗，使用加强针就相当于在猪身上涂抹口红。
 
-You can’t be on the street, so the police using all sorts of tactics
-你不能在街上，所以警察使用各种策略
+来自明尼苏达州卫生部的CDC免疫接种实践咨询委员会成员Lynn Bahta说：“我担心的是，随着不同变种的出现，我们将不断给接种者注射加强针，而我们将无法在真正缓解大流行病方面取得进展。”
 
-and measures against just ordinary working class Australians,
-和战术来针对普通澳大利亚工人阶级
+在早些时候开始的会议上，ACIP小组成员中没有一个人反对向老年人推荐加强针，辩论的焦点是，是否有必要为处于严重COVID高风险的年轻人注射第三针，如果有必要，如何针对他们。
 
-so that that actual visual that you talked about the lady being pushed over.
-所以你谈到的那个女士被推倒的那个实际的视觉
+范德比尔特大学的海伦·塔尔博特（Helen Talbot）说，由于超过30%的人口拒绝注射疫苗，“这感觉就像我们在给猪涂抹口红。这不会解决这个大流行病。”
 
-You know that was during a police want to clear clear road up there with
-你知道那是在警察想要清理那里的道路时
+一位与会者指出，支持加强针的数据，包括来自以色列的真实世界的证据，都依赖于较短的随访，这意味着数据不是很可信。但至少，以色列的一项研究表明，自然免疫比人工接种有13倍以上的复原力。
 
-where there was protesters and even after she was pushed over
-有抗议者的地方，甚至在她被推倒之后
+按照CNBC的说法，这次投票仍然是“总统乔·拜登的胜利，他的政府已经表示，它希望最早在本周为所有符合条件的16岁及以上的美国人注射疫苗加强针。虽然CDC小组的建议并没有给拜登政府带来它想要的一切，但加强针仍将为数百万美国人带来好处”。
 
-that particular police officer sprayed her in the face with OC spray.
-那位警察用辣椒油树脂喷雾剂喷她的脸
+虽然CNBC可能真的报道了这一点，但在我们的印象中，拜登总统最初推动为整个成年人提供加强针，这引起了科学界的反弹，他们认为没有足够的证据来批准加强针。
 
-I mean these are tactics that are being used against everyday Australians,
-我的意思是，这些是针对普通澳大利亚人的战术
+该小组——正式名称为免疫实践咨询委员会，或ACIP——还有一些投票需要通过，包括是否将加强针扩大到其他群体，包括高危工人。
 
-and it’s like, he said it’s like it’s from a communist China,
-就像，他说这就像来自共产主义中国
+罗谢尔·瓦伦斯基博士早些时候访问了该小组，并承认虽然数据并不“完美”，但她说，“它们确实提供了关于是否做出决定的指导”。
 
-Laura Ingraham (Fox News host)
-劳拉·英格拉汉姆（福克斯新闻主持人）
+\*  \*  \*
 
-and you were yourself harassed by a security official the police over the summer,
-而且你自己在夏天就被警察的安全官员骚扰过
+昨晚，美国食品和药物管理局——正如预期的那样——授权65岁以上的病人、免疫力低下的人和职业弱势群体，紧急使用辉瑞生物技术公司的mRNA疫苗的加强针。
 
-I guess we’re attending one of those anti lockdown rallies
-我想我们正在参加其中一场反封锁集会
+现在，轮到CDC了。该小组正准备在周三结束为期两天的会议，它正在审议一套更具体的关于疫苗加强针的指导方针，以及哪些人最初有资格，以及什么时候开始。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-78.jpg)图片来源：《零对冲》
+在我们讨论具体细节之前，值得注意的是，在第一天的讨论之后，一些顾问对加强针的理由感到非常困惑，他们建议将CDC的决定推迟一个月，以等待更多证据。这样的决定可能会让拜登政府发疯。
 
-and you caught the incident on tape, Watch.
-你的这件事被记录在了录像带上，请看
+据美联社报道，“这些不确定性再次提醒我们，围绕加强针的科学，比拜登政府上个月在白宫推出他们的计划时更为复杂。”
 
-Rukshan Fernando
-鲁克山 费尔南多
+周三，“CDC小组成员听取了一系列介绍，概述了关于加强针的科学状况的症结。一方面，COVID-19疫苗继续为防止严重疾病、住院和死亡提供强有力的保护。另一方面，有迹象表明，随着免疫力的减弱，接种者中出现了更多的低级感染。”
 
-I’ve Just got a letter here about tomorrow’s action,
-我刚收到一封关于明天行动的信
+归根结底，CDC小组的职能是像《Politico》所说的那样，“细化到到底谁将有资格”。对于加强型疫苗，重点将是界定谁处于“高风险”。讨论预计将在周四下午结束。
 
-What’s tomorrow’s action?
-明天的行动是什么？
+疗养院居民面临特殊风险，即使有加强针也是如此。
 
-This is the second time that you guys come here
-这是你们第二次来这里
+根据美国公共卫生局的雷切尔·斯莱顿（Rachel Slayton）提供的模型数据，加强针可能不足以完全保护疗养院的居民。她说，虽然加强针可能有助于减少长期护理设施中的病例数量，但这取决于其固有的功效和疗养院內工作人员的疫苗接种覆盖率。
 
-Why do you have my address?
-为什么你们有我的地址？
+斯莱顿说，社区的高传播率可能会导致疗养院的更多感染，因为工作人员更容易输入病毒。目前还不清楚加加强针是否能帮助遏制病毒在接种者中的传播。
 
-Policeman
-警察
+原文连接：[https://www.zerohedge.com/covid-19/cdc-panel-considers-delaying-booster-jabs-decision-1-month-wait-more-evidence](https://www.zerohedge.com/covid-19/cdc-panel-considers-delaying-booster-jabs-decision-1-month-wait-more-evidence)
 
-We are the police.
-我们是警察
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-I know you’re the police
-我知道你们是警察
-
-Why are you looking up journalists?
-你为什么要找记者的麻烦？
-
-Why are you looking up people?
-你为什么要找人民的麻烦？
-
-Who work in the media?
-谁在媒体工作？
-
-I’m reporter, man
-我是记者，老兄
-
-Policeman
-警察
-
-I don’t know why you were there
-我不知道你为什么在那里
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Rukshan that is also absolutely chilling for anyone
-鲁克山，对于任何相信自由表达和报道的人来说
-
-who believes in free expression and reporting.
-这绝对是令人心寒的
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-Well this is the thing, Laura
-劳拉，嗯，事情就是这样，
-
-they have no problem with the mainstream media
-他们对主流媒体没有意见
-
-but you know, for us independent reporters that don’t,
-但你知道，对于我们这些独立记者来说就不行
-
-You know, follow that same narrative that the government is putting out there
-你知道，遵循政府在那里发布的相同叙述
-
-and, you know, we’re on the ground,
-而且你知道，我们是在现场
-
-you know, showing the people, interviewing the people
-你知道，向人们展示，采访人们
-
-and just letting their voices be heard.
-而且只是让他们的声音被听到
-
-They don’t like that type of coverage
-他们不喜欢那种类型的报道
-
-so, you know, they want to classify people in independent media,
-所以，你知道，他们想对独立媒体中人进行分类
-
-as you know, protested as well
-如你所知，抗议也同样
-
-and that’s why they’re using this type of tactic
-这就是为什么他们使用这种策略
-
-to silence these these voice and the stories being told
-来压制维多利亚州和澳大利亚人民
-
-by the people of Victoria and Australia,
-的声音和故事
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Australia’s making China proud,
-澳大利亚让中共国骄傲
-
-and those that footage just, I can’t stop watching
-而那些片段，我不能停止观看
-
-Rukshan, Thank you.
-鲁克山，谢谢
-
-原视频日期：2021/09/22
-原视频链接: https://twitter.com/miminguyenly/status/1440876691388198913?s=24
-视频时间段 : 0:00-1:58
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
