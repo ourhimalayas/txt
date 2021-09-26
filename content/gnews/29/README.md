@@ -2,24 +2,28 @@
 ---
 
 
-## 强制接种令周一生效恐造成人员严重短缺及次生灾害加剧
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555028/)
+## 以色列无绿色通行证的教师被停薪并禁止进入学校
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555029/)
 
-栏目记者/责任编辑：文一
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-358.png)
+栏目记者/责任编辑：文真
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-12.jpg)
-针对医护人员的新冠疫苗强制接种令，从下周一起，将在美国纽约州全境范围内实施。改行政令规定医疗保健系统内所有员工，包括食品服务员工和清洁工等辅助人员，必须在9月27日之前接种第一剂疫苗，这是迄今为止在美推打疫苗最激进的措施之一。
 
-目前政策下，预计将有数以千计医护人员被迫离职，而相关机构则会面临更加严重的人员短缺情况。州长凯西·霍赫尔态度坚决，医疗机构不得已执行应急计划来维系运营，包括削减非必要手术，停止产科服务，限制入院人数，停止接受转院的紧急病人，并减少门诊时间等。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-359.png)
+
+
+
+据雷特巴特新闻网报道，以色列卫生部下令给各学校校长，要求自10月3日起禁止没有绿色通行证的教师进入学校，也不允许他们进行远程教学。而且，在被迫禁课期间，这些教师不会得到任何薪资。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-5.jpg)
+”绿色通行证“ 是以色列新冠病毒期间限制令之一，用来证明持证人近期病毒测试结果为阴性，也可以表示已从新冠病情中康复、或已完成疫苗接种。“绿色通行证”只是借“保护” 为幌子，实质为限制人权和自由，变相强迫民众接种新冠疫苗。
+
+中学教师协会主席埃雷兹反对卫生部的作法：他认为，政府剥夺了人们的自由选择权，更不应该对反抗集权的教师进行惩罚。
 
 （本文仅代表作者观点）
 
-参考链接：[强制接种令周一生效恐造成人员严重短缺及次生灾害加剧](https://www.msn.com/en-us/news/us/new-york-hospitals-forgoing-surgeries-amid-fears-of-worker-shortage-due-to-vaccine-mandate/ar-AAOMAsU)
+参考链接：
+[以色列无绿色通行证的教师被停薪并禁止进入学校](https://www.breitbart.com/middle-east/2021/09/24/israel-bars-entry-to-unvaccinated-untested-teachers-into-schools-denies-pay/)
+[以色列无绿色通行证的教师被停薪并禁止进入学校](https://gnews.org/zh-hans/1553254/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
 

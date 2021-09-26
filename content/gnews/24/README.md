@@ -2,18 +2,18 @@
 ---
 
 
-## 雅典娜时报-第063期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555112/)
+## 台海风高夜
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1555127/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+韩国首尔天池农场—–水滴石穿 上传—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/09/926台封-1.jpeg)
+摘要：作者的一首诗把中共势必要收回台湾，用各种邪恶方案使台海局势紧张，尽显中共的邪恶之本质。希望台湾坚守你们的民主制度，打败邪恶的中共，正道主义一定会赢！
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/261.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/262.png)
-***发布：小红帽***
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+幽灵降世入华夏，文明尽毁乱天下。
+国府正统战红魔，妖言惑众偷权柄。
+文革血洗丧人伦，台湾隔海兴发展。
+邪魔附体放病毒，疫苗杀人悄无声。
+经济崩塌寻活路，穷兵黩武攻台湾。
+台海翻浪吞生灵，恶鬼尽灭显正道。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/926台插.jpeg)
+（本文仅代表作者观点，与Gnews平台无关）

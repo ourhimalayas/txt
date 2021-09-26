@@ -2,90 +2,41 @@
 ---
 
 
-## 因接种新冠疫苗导致白血病的健身爱好者宫东升都经历了啥
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1554629/)
+## 被中共拘留近三年的两名加拿大人返回家园
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1554689/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/018_副本.jpg)
-宫东升于2021年5月8日14：42：24在中国人民解放军联勤保障部队九六O医院临时接种点接种了一针新冠疫苗（腺病毒载体），打完疫苗后出现恶心，问现场人员，现场人员的答复是到了半小时可以离开，随后宫东升于2021年5月20日、5月21日、5月22日出现恶心加重、头胀、身上没劲等症状，于2021年6月9日出现“头疼和头发胀分开”症状（原文如此），于2021年7月20日晚呕吐晕倒。自接种新冠疫苗起就一直存在恶心症状。
+撰稿：西枫westca
 
-“7月21号来医院确诊白血病，7月22日再次确诊为（急性髓细胞白血病）！医生说90%可以治愈，但资金是个缺口！这是在电视里才听到的病，怎么能发生在我的身上，一时半会我真的缓不过来！接着做了所有的检查：激素，抽骨髓，做腰穿，输血小板…医生说移植可以治愈，前期费用需要50万，甚至准备更多！前期的费用已经花费了十五万左右！”（摘自宫东升发起的轻松筹[生命以痛吻我，我仍报之以歌！含泪求助！](https://m2.qschou.com/fund/detail?projuuid=984497cb-2430-49f5-8eea-9773e568297f&amp;projuuid=984497cb-2430-49f5-8eea-9773e568297f&amp;share_no=e406bdc39f66d3-b8c50d9b06f742-5e8b5cc1-5A900-15416f5e551837&amp;level=1&amp;shareto=0&amp;sharecount=1&amp;platform=qsc_ios&amp;timestamp=1631950305&amp;from_uuid=89c5590e-f5b9-11eb-b002-0242ac103d0a&amp;uuid=89c5590e-f5b9-11eb-b002-0242ac103d0a&amp;sharecc=10002.v5_1_4&amp;bi_cf=share.link.weiai.10002.v5_1_4&amp;shareuuid=89c5590e-f5b9-11eb-b002-0242ac103d0a)）
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2-1.jpg)图片来源：Canadian Press
+据多家媒体报道，在孟晚舟的引渡案被撤销几小时后，加拿大总理特鲁多宣布，被中共拘留的两名加拿大人被释放，将返回加拿大。在监狱里度过近三年牢房生活后的Michael Kovrig，Michael Spavao 于周六清晨在卡加里机场降落，回到了加拿大。
 
-而在接种新冠疫苗前的宫东升是一位健身爱好者，在确诊白血病之后他都经历了什么呢？他经历了针对他本人的调查诊断书的作假，据[**gds666666**](https://weibo.com/u/7330358710?refer_flag=1005055013_) [2021年9月8日 18:11](https://weibo.com/7330358710/KxeOAvwTx?from=page_1005057330358710_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone XS Max](https://app.weibo.com/t/feed/52oJDc) 已编辑
+曾任外交官的Kovrig，和企业家Spavao于2018年12月在孟晚舟因加拿大与美国的引渡条约在温哥华机场被拘留后，被中共当局以间谍罪拘留，至今已逾1000多天。在押期间，两人最初被单独监禁而牢房里的灯也日夜开着，这被人权组织认为是一种酷刑手段。Spavo在今年8月被判处11年徒刑。
 
-可笑至极的调查诊断书！没有担当！和我说的对不起来！太可笑！
+他们的拘留被广泛认为是对孟晚舟事件的报复行动，虽然中共一再否定这一拘留与孟有任何联系。前加拿大外交官Colin Robertson说，“中共国到目前为止，一直说两者之间没有联系，但通过在夜晚把他们送上飞机，已经清楚的承认这是劫持人质”，“这让人想起冷战时期的互换”。
 
-诊断现场本人录音说的是2021年5月8日打完疫苗出现恶心，问现场的工作人员说到半小时了就可以离开！本人于2021年5月20日，21日，22日恶心加重，头胀，身上没劲！于2021年6月7日，8日头胀恶心连在一起！于2021年6月9日头疼和头发胀分开！于2021年7月20日晚呕吐晕倒！本人从打疫苗一直都恶心！并且胳膊疼！
+曾任加拿大驻华大使的Guy Saint-Jacques 表示，鉴于中共国在世界上的实力和重要性，不可能忽视中共国，但这种做法应该是“战略性的和克制的”， “向中共国传达的信息很简单，我们对于你成为超级大国没有意见，但只要你尊重国家条约、国际义务，并且不采取欺凌策略”。 他相信加拿大与中共国的关系已经永久受损，加拿大的公众舆论已经果断地转向反对中共国，恢复正常将“非常难以”执行。
 
-患者姓名：宫东升371425198503198611
+从网上我们已经可以看到一边倒的评论：
 
-电话：15508678678
+Young ： 这是习近平和拜登达成的交易：同时交换囚犯。这解释了确切的时间。
 
-想听录音的可以进微博群！也可以v加我的电话发给大家！ [2济南·济南军区总医院](http://t.cn/z8AI5Q7)
+Playerson：他们当然回来了。 这就是美国和加拿大在面对中共国压力时所称的独立正义。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/020.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/021.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/022.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/023.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/024.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/025.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/026.jpg)
+Bate：在这种劫持人质事件发生后，加拿大人如何在中共国感到安全？
 
+Russ：与此同时，孔子学院和其他中共宣传机构还在加拿大蓬勃发展。
 
-他经历了被逼迫删除微博，据[**gds666666**](https://weibo.com/u/7330358710?refer_flag=1005055013_) [2021年9月23日 08:42](https://weibo.com/7330358710/KzsuVqlIL?from=page_1005057330358710_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone XS Max](https://app.weibo.com/t/feed/52oJDc)
+Mclachalan: 任何中共国公司都是中共官员的直接分支机构，不应被允许在任何外国领土上经营。大多数中国技术只是被盗，并且通过强迫劳动来廉价出售。他们没有提供任何创新。
 
-这就是老百姓的命运！惨！！！ 患者姓名：宫东升371425198503198611 电话 15508678678 ​​​
+Drummond：如果我是 Spavor 或 Korvig，我会扇特鲁多一巴掌。 多亏了他，他们在特鲁多迎合中国的过程中被折磨了三年。 他雇佣了他们的间谍（病毒学实验室），与他们进行秘密疫苗交易，并允许他们的代理人威胁和胁迫在加拿大的加拿大人。 特鲁多仍在恭维共产主义，这种令人作呕的迎合是自由党的 DNA ……难怪我们现在被我们最亲密的盟友拒之门外。
 
-我呼吁所有人！！！：还没有注射新冠疫苗的！注射新冠疫苗前一定要做个全面的血常规！以免身体出现问题作为证据！！避免注射后不负责任逃避责任！
-为什么连个马上离开世界的我都不放过！用各种手段如此对待我？逼我删除微博！
+Donald： 中共国将推动加拿大加入美英澳军事联盟。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/003-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/004-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/005.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/006.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/007.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/008.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/009.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/010.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/011.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/012.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/013.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/014.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/015.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/016.jpg)
+Seveny: 加拿大需要减少与中共国的交往。 他们现在已经表明他们将使用人质外交来达到目的。 这告诉我们，没有人可以安全地前往中共国。 现在应该将其放入旅行建议中。 我们作为加拿大公民可以而且应该通过确保不购买中共国制造的东西来表示我们的蔑视。 我们可以很容易地以相同的成本从越南和印度以及许多其他地方获得产品，甚至可能质量更好。 可以办到。 世界还需要开始让中共国为 COVID119 以及他们负责的许多其他事情买单。 与中共国相比，我们人口微乎其微，但在国际问题上，我们确实有许多其他人会倾听的声音。
 
+**新闻来源：**
 
-他现在的状态是怎样的呢？据[**gds666666**](https://weibo.com/u/7330358710?refer_flag=1005055013_) [2021年9月20日 10:21](https://weibo.com/7330358710/Kz0RyyTiS?from=page_1005057330358710_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone XS Max](https://app.weibo.com/t/feed/52oJDc) 已编辑
+[Michael Kovrig and Michael Spavor arrive in Canada after nearly 3-year detention in China | CBC News](https://www.cbc.ca/news/politics/spavor-kovrig-in-canada-1.6189640)
 
-没生病之前是一位健身爱好者！
-
-现在的我却在病床上，用最廉价的治疗方案再续命！没有钱做异体造血干细胞移植，不久的时间我就是草木皆灰。大家有愿意伸出援助之手的可以帮帮我。
-
-打上针从胳膊疼恶心开始！到呕吐晕倒，到查出白血病两个多月的时间！毁了我的一生！把命给搭上了！
-
-患者本人：宫东升371425198503198611 ​​​
-
-电话15508678678
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/017.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/018.jpg)
-
-
-宫东升在新浪微博的存在也算是一个意外，因为在此前新浪微博上基本是没有这样的疫苗受害者的存在空间的，也就是说在此前宫东升不需要有关部门逼他删除微博，他这样的微博本身就不会在新浪微博上长期存在，但是现在却要相关部门逼迫他删除，如果他不同意，这条微博还可以继续存在，但是为避免不测，本文依然全文全图片转载他的相关微博，以作存底。
-
-无论宫东升如何出示证据，济南市预防接种异常反应调查诊断专家组出具的《山东省预防接种异常反应调查诊断书》做出的结论是——“目前没有文献资料显示腺病毒载体疫苗与急性髓细胞白血病发病有关联”，并由此得出最终结论是——“宫东升所患急性髓细胞白血病不属于预防接种异常反应”。
-
-专家总是能用貌似专业的语言做出最扯淡的结果，因为中共病毒疫苗施打才不到一年时间，用不到一年的文献空白来得出“目前没有文献资料显示腺病毒载体疫苗与急性髓细胞白血病发病有关联”的结论，同样也可以得出**“目前没有文献资料显示腺病毒载体疫苗与急性髓细胞白血病发病无关联”**的相反结论。
-
-但是中共的砖家可以用文字游戏终结任何关于施打疫苗的争议，并且进一步用这样的文字游戏变相终结宫东升的生命，因为只要不是预防接种异常反应引起的急性髓性细胞白血病，宫东升就不会得到任何国家层面的医疗援助，不管他在此前多么地爱这个国家。
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Michael Kovrig and Michael Spavor back in Canada after detention in China | Toronto Sun](https://torontosun.com/news/national/michael-kovrig-and-michael-spavor-back-in-canada-after-detention-in-china)

@@ -2,33 +2,27 @@
 ---
 
 
-## 川普针对主流媒体虚假宣传连续发声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1555292/)
+## 新州将限制未接种疫苗者的自由
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555317/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**[雅典娜快讯],紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/238d50f180679f60306558e83d419a13.jpg)图片来源：The Advertiser
+**整理报道：翼族**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/T-4.jpg)nytimes.com
-在昨天（9月24日）笔者怒斥主流媒体“睁眼说瞎话”的文章发表后【1】，怀有同样感受的川普总统连续发表了4个声明，谴责这些媒体的倒行逆施、制假售假、误导民众的行径。
+新南威尔士州政府定于本周敲定80%疫苗接种的路线图，目前正在辩论何时重新向未接种疫苗的人开放社区活动。
 
-4个声明分别如下：
+即使新南威尔士州达到其80%的两针接种率的目标，新州危机内阁部长依然准备无限期限制未接种疫苗者的自由。体育赛事、区域旅行、酒吧、餐馆和其它活动可能仍然禁止未接种疫苗的人进入，直到新南威尔士州多达90%的成年人接受两剂疫苗的注射。
 
-1）CNN、《纽约时报》、《华盛顿邮报》和其他媒体正在向公众提供有关亚利桑那州审计的大规模错误信息。审计是民主的一大胜利，也是我们的一大胜利，这表明选举是多么腐败，亚利桑那州参议院的听证会现在正在进行，关于所发生事情的信息是可怕的——一个比预期还要大的骗局！【2】
+新州财政部长多米尼克·佩罗特(Dominic Perrottet)上周表示，一旦所有成年人都有机会接种疫苗，就应该“向所有人开放”。然而，其他部长表示，内阁已经下定决心，反对在80%的门槛上给未接种疫苗的人提供自由。
 
-2）在亚利桑那州的审计结果上，虚假新闻媒体的报道是不诚实，甚至是不可信的，这表明在选举不断变化的层面上存在着难以理解的欺诈行为，比需要的选票多出许多倍。假新闻媒体拒绝报道事实，因此他们是在与本世纪的犯罪同谋，他们是如此的不诚实，但爱国者要知道真相！亚利桑那州必须立即取消2020年总统选举结果的认证。【3】
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-3）在亚利桑那州的司法审计中发现了大规模的舞弊，有时被称为“欺诈”，数字正在变化！【4】
+**参考链接：**[Limits on unvaccinated to remain in NSW](https://www.skynews.com.au/australia-news/coronavirus/limits-on-unvaccinated-to-remain-in-nsw/video/6317308b8e81d6e293a117bb83c8ff89)
 
-4）我将在明天的佐治亚州大集会上讨论亚利桑那州司法审计的获胜结果，会展示44,000张令人吃惊的非法选票，届时将座无虚席！【5】
+*编辑/发布：翼族*
 
-参考链接：
-
-【1】[https://gnews.org/zh-hans/1553250/](https://gnews.org/zh-hans/1553250/)
-
-【2】[https://www.donaldjtrump.com/news/news-dynbvqud4p764](https://www.donaldjtrump.com/news/news-dynbvqud4p764)
-
-【3】[https://www.donaldjtrump.com/news/news-mnkyduz7w5767](https://www.donaldjtrump.com/news/news-mnkyduz7w5767)
-
-【4】[https://www.donaldjtrump.com/news/news-sajbyaupvn766](https://www.donaldjtrump.com/news/news-sajbyaupvn766)
-
-【5】[https://www.donaldjtrump.com/news/news-dtcrhqktzu765](https://www.donaldjtrump.com/news/news-dtcrhqktzu765)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
