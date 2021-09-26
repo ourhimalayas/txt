@@ -2,18 +2,20 @@
 ---
 
 
-## 雅典娜时报-第063期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555112/)
+## 法官暂时阻止纽约强制教师打中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555368/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-119.jpg)图片来源：Politico
+据美国合众社9月25日报道，纽约第二巡回上诉法院法官约瑟夫·比安可周五站在纽约市教师这一边，挑战纽约市中共病毒疫苗强制政策。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/261.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/262.png)
-***发布：小红帽***
+这群教师本月早些时候针对纽约市的这个强行规定提出反对，认为违反了程序正义的权利，将他们置于失去工作无法生活的危险境地，因而提出法律诉讼，在诉状中说，这个规定与联邦强制措施不同，联邦的措施给予工作人员不同选项，或者做常规测试，或者打疫苗。而纽约市则没有相似的选项。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+比安可法官命令暂时不用实施纽约市的规定，并由三位法官组成小组共同决定这件事的快速进一步处理。
+
+纽约市市长比尔·白思豪今年8月要求该市公立学校15万名工作人员于9月27日前至少要注射一剂疫苗。
+
+纽约市教育部门媒体秘书丹尼拉·费尔森说，目前已有82%的工作人员注射了疫苗，教师工会已经警告教师人员短缺，而白思豪曾称将准备让代课老师代替。
+
+##### 新闻来源： [Judge temporarily blocks New York City’s COVID-19 vaccine mandate for teachers](https://www.upi.com/Top_News/US/2021/09/25/judge-temporarily-block-new-york-city-coivd-19-vaccine-mandate-teacher/8631632611297/)

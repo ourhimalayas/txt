@@ -2,26 +2,44 @@
 ---
 
 
-## 塔利班挂尸示众，往日残酷统治复活
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1555606/)
+## 有声| NIH主任声称符合条件的学生应接种辉瑞疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1555651/)
 
-作者：东京樱花团 文小白
-![](https://lh6.googleusercontent.com/KV3E0Oo7fInnCh3mQO2gKGjdOa4I7UpYqAY4no6od033beebtK8NKooTbSSCtqSfTVPUnF1v1bIlZjTOHs6mMCkCnfOLISgVPlgLGQU6q6KQ5HYZy0-zbAgjq2A4qn1zwjFAyIjC=s0)
-[图片来源](https://www.voachinese.com/a/taliban-hang-body-in-public-20210925/6245597.html)
+配音：香草山香港部-文凯琳
 
-塔利班在一个城市的广场悬挂尸体示众，显示出过去残忍的统治手段复活。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-塔利班周六（25日）在阿富汗西部城市赫拉特（Heart）的广场用吊车吊挂一个死尸。在广场边上经营药店的赛迪奇（Wazir Ahmad Seddiqi）对美联社说，塔利班官员带来了4具尸体，称这4人周六早些时候参加一起绑架活动被警察击毙。随后将其中3具带到这个城市的其它地方公开展示。一名塔利班匿名官员在广场上接受美联社采访时说，“此次行动的目的是警告所有罪犯，他们并不安全。”
 
-塔利班8月15日夺取阿富汗政权以来，阿富汗人和全世界一直在关注塔利班是否会延续过去的残酷统治。
 
-塔利班创始人毛拉图拉比（Mullah Nooruddin Turabi）这个星期对美联社说，塔利班将再次实行处决和截去双手。图拉比对美联社说，“没人会告诉我们说我们的法律应该是什么。我们将遵守伊斯兰，我们将根据《古兰经》制定我们的法律。”
 
-·延伸阅读：[https://search.yahoo.co.jp/amp/s/amp.rfi.fr/cn/政治/20210910-联合国官员谴责塔利班对示威者及记者施暴-要求立即停止有关的暴力行为%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D](https://search.yahoo.co.jp/amp/s/amp.rfi.fr/cn/政治/20210910-联合国官员谴责塔利班对示威者及记者施暴-要求立即停止有关的暴力行为%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
 
-美国国务院表示，此类行为“构成对人权明显和公然的侵犯。”国务院发言人普赖斯25日对记者说，美国将“坚定地与国际社会站在一起，追究任何此类侵权行为肇事者的责任。”
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+NIH主任弗朗西斯-柯林斯在周一接受福克斯新闻采访时表示，他支持符合条件的学生接种新冠疫苗，即使目前政策尚未强制要求他们接种。
+
+柯林斯声称，辉瑞为5至11岁孩子准备的小剂量疫苗是安全的，即使疫苗存在副作用也很合理。同时，他期待辉瑞向FDA提交相关数据。但柯林斯避而不答孩子在接种疫苗后是否仍需戴口罩的问题，反而只是一味强调让全部的民众接种新冠疫苗。
+
+
+
+**文字版原文：[NIH主任声称符合条件的学生应接种辉瑞疫苗](https://gnews.org/zh-hans/1551000/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
