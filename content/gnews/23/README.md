@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|灭共进程暗含反华危机,爆料革命须未雨绸缪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1556020/)
+## 台湾在野党国民党主席选举由朱立伦当选
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556034/)
 
-配音：纽约香草山美食部 – 玫瑰园
+栏目记者/责任编辑：云豹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-在昨天的最新直播中, 文贵先生不止一次提到他所获知的情报, 显示在新冠病毒及疫苗对全世界造成巨大破坏伤亡的同时, 各国政府甚至民众间也酝酿着一股反华的暗流。
+9 月25日，国民党进行党主席选举，朱立伦以8万余票当选。次高票者 为候选人张亚中。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P1-8.005.jpeg)
+新任党主席朱立伦于25日晚间发表当选讲话，称国民党会寻求重新恢复两岸沟通交流管道，透过互动累积善意，成为推动区域和平的中道力量。中共党魁习近平则于26日发电文祝贺朱立伦当选，强调在坚持“九二共识”、反对“台独”基础上良性互动，加强合作，谋求国家统一。
 
-文贵先生提及令他始终悲愤难平的98年印尼排华事件, 惨剧历历在目。他曾在海外遇见印尼总统苏哈托家族成员,并向对方公开表示, 作为华人, 他有朝一日必报此仇!令对方瞠目结舌。文贵先生说: “印尼当年死亡37万人! 今天共产党制造这场全球性病毒灾难, 最终会算到每一个中国人头上!”
+国民党内部不论是本土派还是激进急统派，都抱持与中共恢复交流和谈的态度，试图以求和方式来解决”统独”问题。但面对咄咄逼人、磨刀霍霍的中共，仍在与虎谋皮的国民党乃至台湾，都很可能会重演当年”国共内战” 的悲剧。
+(本文仅代表作者观点)
 
-虽然文贵先生和万千爆料革命战友, 4年来不遗余力的向全世界传播中共的邪恶和病毒真相, 但共产党70年绑架中国人的恶果很难在短时间消弭, 无论出于什么原因, 未来一旦真相揭示,很可能会有很多国家政府包括民众, 将怒气宣泄到全球的华人群体,这就是灭共历程中潜在的危机。我们相信大智慧的文贵先生一定有应对的策略，但需要每一位战友都鼓起勇气面对, 更加努力地传播病毒疫苗真相, 向世界宣告, 我们是华人, 更是拯救世界的新中国联邦人!
+参考链接：
 
-[文字版原文：灭共进程暗含反华危机,爆料革命须未雨绸缪](https://gnews.org/zh-hans/1554450/)
+1. [朱立倫逾8萬票當選國民黨主席 得票率未過半創新低](https://www.cna.com.tw/news/firstnews/202109250266.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2. [快新聞／習近平賀電來了！ 賀朱立倫當選黨主席　盼「兩黨為國家謀和平統一」](https://www.ftvnews.com.tw/news/detail/2021926W0029)
 
-音频处理：喜山必胜Maverick
 
-*发稿：*Yuki jiang
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+终审：文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
