@@ -2,21 +2,35 @@
 ---
 
 
-## 秘翻在线：狂热的疫苗接种支持者第三次注射后死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556274/)
+## 荷兰民众抗议通行证措施 官员质疑政府决策遭解雇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556288/)
 
-翻译：Nstar
+栏目记者：禹水沃土
+责任编辑：文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
+9 月 25荷兰首都海牙，数百名民众反对疫苗护照政策。抗议人群手持横幅和标语穿过政府所在街道，抗议者把新冠限制措施视为专制政府的暴政，将其比作“医疗种族隔离”，并要求“停止疫苗护照”。
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-26-222808.jpg)**图片来源: report2**4
-据网络媒体Report24于2021年9月25日报道称, 美国伊利诺伊州的圣母大学著名名誉教授凯伦·克罗克·海斯勒 (Karen Croake Heisler) ，在她接受了 Biontec / Pfizer的第三个疫苗“加强针”后 12 天去世了，享年67岁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-47.jpeg)
 
-凯伦·克罗克·海斯勒教授是中共冠状病毒疫苗运动最热情、最狂热的支持者和疫苗接种运动的倡导者之一, 她在其他中共病毒疫苗问题上也是“模范”，喜欢在户外戴口罩拍照（甚至带着她的狗带着特殊的 FFP 面具散步）。然而讽刺的是， 9 月 7 日，她注射了第三剂“加强针”后，这个一直健康的女性其健康状况迅速恶化，不到两周后她就去世了。越来越多的人报告称，他们在接种新冠疫苗后患上了癌症，或者现有的癌症突然发生了“爆炸性”扩散。
+此前荷兰政府要求进入酒吧、餐馆、剧院和其他场所时必须出示新冠疫苗接种证明。该政策刚生效数小时后就遭到内阁部长莫娜·凯泽（Mona Keijzer）的公开质疑，被总理马克·鲁特（Mark Rutte）粗暴解雇。
 
-根据她自己推特账户上的信息，这位前教授曾忙于更新她的“疫苗接种进度”。她于 1 月 13 日接种了第一剂 mRNA 疫苗，第二剂在4月初打的，因为4月9日，她说她和她的丈夫有轻微的疫苗接种反应。
+相当比例的酒吧和餐馆老板表示，他们不会向顾客索要疫苗证书。荷兰酒店业协会发出声明，指责该通行证变相成为提高疫苗接种率的“政治工具”，并警告说这种做法将损害酒店行业恢复时期已做出的所有努力。
 
-海斯勒于 1993 年至 2018 年在伊利诺伊州的圣母大学的电影、电视和戏剧学院 (FTT) 任教，这位狂热的疫苗接种宣传员甚至公开“诅咒”未接种疫苗的人, 她坚定地捍卫疫苗接种直到她的最后一口气 。她曾经说：“ 未接种疫苗的人是‘自私的’，他们应该待在家里直到他们‘清醒’，否则拒绝接种疫苗的人要为自己的疾病负责…”
+近期，西方各国民众对疫苗护照的抗议接连不断，愈发觉醒的民意终将迫使政府考虑停止强制接种疫苗。
 
-最终的结果是**，**她自己为她对中共病毒疫苗的狂热和对清醒人们的诅咒付出了代价。
+（本文仅代表作者观点）
 
-**信息来源: **[**https://report24.news/fanatische-impfanhaengerin-us-professorin-stirbt-nach-dritter-spritze/?feed\_id=5690**](https://report24.news/fanatische-impfanhaengerin-us-professorin-stirbt-nach-dritter-spritze/?feed_id=5690)
+参考链接: [Dutch protest against COVID-19 vaccine pass to enter bars, restaurants](https://www.reuters.com/world/europe/dutch-marchers-protest-new-covid-19-pass-enter-bars-restaurants-2021-09-25/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

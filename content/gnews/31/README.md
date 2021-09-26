@@ -2,34 +2,133 @@
 ---
 
 
-## 中共带给人类的是“共同灾难”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1556059/)
+## 为何打疫苗和知道真相以后的恐惧
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556060/)
 
-**【雅典娜观察】与您一起洞察世界**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/253-1.jpg)图片来源：雅典娜设计组（姐夫说说）
-**作者：**李易通
-**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-20.jpg)https://gtv.org/video/id=615042bed2e2b817486e3d8f
+郭文贵
+Miles Guo
 
-1991年，前苏共总书记戈尔巴乔夫在《苏联解体宣言中》说到：“在世界的各个角落，只要出现共产党就会出现内战、饥荒和恐怖，就把烧杀、掠夺、暴乱、篡国夺权、血流成河带到哪里。”中国共产党正是继承了马克思列宁的共产主义荒谬邪说，制造了一个又一个的灾难，并把灾难引向全世界。
+战友们一定你们要有一个（认识）
+Comrades in arms, you must have one knowledge
 
-1998年，中共妄图支持印尼的亲共势力，篡夺印尼的政权，结果引发了印尼的排华事件，导致几十万华人被残忍杀害，华人成了无辜的受害者，中共才是那场灾难的罪魁祸首；2020年，中共支持缅甸军政府，颠覆了缅甸的民主政权，带给当地缅甸人民的又是无尽的灾难和血腥镇压；2021年，中共故技重演，支持塔利班恐怖组织，篡夺了阿富汗政权，让阿富汗再次变成人间地狱，无数阿富汗百姓流离失所，以难民身份远走他乡。以上例子只是中共制造的灾难的冰山一角，而中共给中国百姓带来的灾难是最严重的。
+世界上造成这次冠状病毒、疫苗最大的瞒天过海
+Creating the biggest scam of the COVID-19, vaccines in the world,
 
-自从1949年中共以非法手段篡夺国民党的政权，成为中国的“合法政府”以来，它的执政历史就是中国人民的灾难史。大跃进导致的饥荒饿死中国百姓几千万人；以阶级斗争为纲的文化大革命，最终演变为一场中国百姓共同参与的犯罪，直接和间接导致几百万人死亡；“八九六四”中共用军队血腥镇压手无寸铁的学生，甚至不惜用坦克车碾压参与游行示威活动的学生；计划生育强制堕胎，导致中国几亿婴孩胎死腹中。由于被中共洗脑的中国百姓的愚昧和软弱，以及西方国家的纵容，让中共这个魔鬼组织肆无忌惮地犯罪和作恶，直至演变成彻底的反人类罪行——新疆集中营关押200万新疆维族人，血腥镇压香港的游行示威活动，并放出生化病毒，最终导致武汉疫情爆发，因为害怕追责和逃避责任，中共选择了欺骗和隐瞒疫情，故意将病毒灾难引向全世界，导致流行病全球大爆发。宣称“人类命运共同体”的中共组织，让全人类陷入了共同的疫情灾难。
+能让很多人打疫苗的原因就是因为
+and enabling a lot of people vaccinated, the reasons are
 
-然而，西方国家对中共发动的生物武器病毒袭击战，采取视而不见的绥靖政策，不敢面对中共发动生化战争的事实，继续允许中共犯罪组织存在于这个世界，结果导致中共把各国引入了一场更大的疫苗灾难。中共对外输出腐败，对西方国家进行蓝金黄手段，每年花费超过千亿美元在统战工作上，正是在中共蓝金黄力量的影响下，各国政府采纳了中共邪恶组织的疫苗护照政策以及强制接种疫苗的政策，从西方国家政府采取的疫苗接种政策，我们看到了中共独裁政府的影子，也看到了各国政府受到中共邪恶政府的影响，采取了类似于中共之前使用过的强制堕胎的措施，强迫百姓接种对人体伤害极大的疫苗。值得庆幸的是，世界还有新中国联邦这个智慧和正义的群体的存在，他们不断揭露病毒和疫苗的真相，让各国政府意识到病毒和疫苗都是生物基因武器，越来越多的国家决定终止疫苗的接种。
+所有西方人是相信医疗系统的，是相信科学的
+all Westerners trust the medical system and trust the science
 
-中共除了用病毒和疫苗生物基因武器伤害人类，它还在酝酿一场新的经济和金融灾难。随着恒大地产的暴雷，中共经济正在崩塌的事实已经愈加明显。中共搞的经济模式就是一场庞氏骗局，现在到了泡沫破灭的时候，任何力量都无法阻止中共国经济和金融的倒塌。相信到了那个时刻，邪恶的中共组织会像应对武汉疫情一样，把经济和金融灾难顺势引向全世界，将西方国家的经济和金融系统击溃，因为中共相信的是“多难兴邦”，善于用更大的灾难来掩盖之前的灾难，因此中共带给世界的必然是无穷无尽的灾难。
+而就是一定要记住西方的文明和法治社会，和民主社会，是跟科技和
+and (you) must remember that the Western civilization and society under the rule of law, and the democratic society
 
-中共为了应对即将发生的经济和金融危机，已经在准备再次向世界释放实验室的生物武器病毒，以掩盖它制造的经济灾难。同时还帮助一些邪恶国家建造生物武器实验室，让更多邪恶国家掌握生物武器，威胁人类的安全。
+工业文明开始的
+have started with technology and industrial civilization
 
-当中共制造的灾难不断累积，如果各国政府不正确引导自己的百姓，区分中共和中国人，可能会导致更大的种族矛盾和仇视，爆发类似于印尼排华的灾难事件。甚至会引发世界的种族战争，导致世界彻底失控。因此，把中共和中国分开，把中共和中国人分开，追责中共这个反人类罪组织，是每个中国人最急迫的任务。只有尽快消灭中共，世界的灾难才会结束，因为中共是当下一切灾难的源头。
+在西方建立社会的基础是科学作为基础的
+building a foundation of society in the West is based on science as the foundation
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+大家都不相信政府，也不相信政客
+No one trusts the government neither the politicians
 
-*发布：翼族*
+多少年，我到哪儿去，对政客都是骂的
+For years, everywhere I went, all I heard was cursing of politicians
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+都是不相信的
+People do not trust politicians
+
+但是对科学大家都相信的，还有就是对媒体
+But people believe in science and also the media
+
+过去认为媒体都是有两三家，说媒体是可以相信的。完了
+In the past, (everyone) believed that there were two or three media could be trusted. It’s over.
+
+这回邪恶的势力和中国共产党玩的就是玩得把科学全部垄断
+What the evil forces and the Chinese Communist Party are playing this time is to monopolize science
+
+它把媒体全部垄断
+It monopolizes the media
+
+这个情况下，很多人打疫苗
+In this case, a lot of people get vaccinated
+
+绝大多数人都是因为一个
+most of the people are because of one (reason)
+
+本身就害怕死，恐惧
+fear of death
+
+还有一个原因，他相信科学
+another reason is that they believe in science
+
+还有更重要的事情 ，它（相信）媒体
+and the more important thing is that they trust media
+
+所以说现在当你跟任何人说，很多人就马上就（产生）那种恐惧感
+So when you talk to anyone now, many people immediately (have) that sense of fear
+
+哇现在一个和平的美食美酒，点着火炉
+Wow, currently there is a peaceful meal with nice food and wine, a warming stove
+
+是不是，天高云淡
+Isn’t it? The sky is high and the clouds are pale
+
+后面还有美山美水
+There are beautiful mountains and crystal clear water behind
+
+面对着自己
+facing one’s own
+
+千万财富亿万财富
+tens of millions of wealth, billions of wealth
+
+突然说他可能要死了
+and suddenly said he might be dying
+
+兄弟姐妹们，你想过这感觉了吗
+Brothers and sisters, have you thought about how it feels?
+
+这个很吓人你知道吗，那人的那种恐惧真的瞳孔就要扩散的感觉呀
+This is very scary. Do you know? That kind of human fear really feel like the pupils are about to diffuse
+
+你谁也受不了，搁在谁身上谁也受不了
+None of you can stand that, no one can stand it
+
+说这有可能要完蛋
+Saying that it might be the end
+
+问疫苗， 马上说哎有解药没有，有解药没有
+(They) asked about the vaccine, and immediately asked whether there is any antidote
+
+全要解药，那药是什么名字，跟我说叫什么名字
+(They) all demand the antidote, what’s the name of that medicine, tell me what’s the name of it
+
+谁都怕死
+Everyone is afraid of death
+
+这个时候你知道，你会发现
+At this time you know, you would find out that
+
+不是每个人都有解药的
+not everyone has an antidote
+
+真的不是每个人都能觉得扛过去这个恐怖的
+really not everyone can overcome this fear
+
+很多人你知道， 他回去一夜一夜睡不着觉
+Many people, you know, they couldn’t sleep nights after nights when he went home
+
+原视频日期：2021/09/21
+原视频链接: https://twitter.com/se1y7cblljselva/status/1440864540116197384?s=24
+视频时间段 : 0:00-2:12
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
