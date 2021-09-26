@@ -2,37 +2,19 @@
 ---
 
 
-## 有声|灭共进程暗含反华危机,爆料革命须未雨绸缪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1556020/)
+## 冰岛选举：执政的左右联盟虽然民调支持率下降，但依然获胜
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556026/)
 
-配音：纽约香草山美食部 – 玫瑰园
+翻译/撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/09/rk_iceland-election_260921-e1632657155481.jpg)
+图片来源：newseurope.fr
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+据路透社2021.9.25号报道：冰岛在周六（9 月 25 日）结束投票，创纪录的有 9 个政党可能进入议会。
 
+冰岛从 2007 年到 2017 年期间，一直由总理卡特琳·雅各布斯多蒂尔（Katrín Jakobsdóttir）领导的左翼绿党担任政府，左翼绿党自称为“激进左翼政党”的。2017 年，左翼绿党与支持商业的独立党和中右翼进步党担任联合政府。虽然雅各布斯多蒂尔仍然受欢迎，但民意调查显示她的政党将失去支持，标志着她的联盟结束。
 
+冰岛最大政党独立党的支持率也在下降，但选举结果可能仍会授权前总理比亚尼·贝内迪克松（Bjarni Benediktsson）组建新政府。雅各布斯多蒂尔可能会寻求与其他左翼政党结盟。
 
-在昨天的最新直播中, 文贵先生不止一次提到他所获知的情报, 显示在新冠病毒及疫苗对全世界造成巨大破坏伤亡的同时, 各国政府甚至民众间也酝酿着一股反华的暗流。
+但周日公布的最终结果显示，冰岛执政的左右联盟在全国大选后仍然巩固了其多数席位，首次出现女性多于男性进入议会的情况。
 
-文贵先生提及令他始终悲愤难平的98年印尼排华事件, 惨剧历历在目。他曾在海外遇见印尼总统苏哈托家族成员,并向对方公开表示, 作为华人, 他有朝一日必报此仇!令对方瞠目结舌。文贵先生说: “印尼当年死亡37万人! 今天共产党制造这场全球性病毒灾难, 最终会算到每一个中国人头上!”
-
-虽然文贵先生和万千爆料革命战友, 4年来不遗余力的向全世界传播中共的邪恶和病毒真相, 但共产党70年绑架中国人的恶果很难在短时间消弭, 无论出于什么原因, 未来一旦真相揭示,很可能会有很多国家政府包括民众, 将怒气宣泄到全球的华人群体,这就是灭共历程中潜在的危机。我们相信大智慧的文贵先生一定有应对的策略，但需要每一位战友都鼓起勇气面对, 更加努力地传播病毒疫苗真相, 向世界宣告, 我们是华人, 更是拯救世界的新中国联邦人!
-
-[文字版原文：灭共进程暗含反华危机,爆料革命须未雨绸缪](https://gnews.org/zh-hans/1554450/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+来源[：路透社](https://www.reuters.com/world/europe/icelands-ruling-coalition-boosts-majority-preliminary-election-results-show-2021-09-26/)

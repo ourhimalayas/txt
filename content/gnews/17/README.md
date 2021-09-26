@@ -2,21 +2,37 @@
 ---
 
 
-## 秘翻在线：柳叶刀的中共病毒溯源小组因与生态健康联盟有关联被解散
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556181/)
+## 中共国禁止所有加密货币交易
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1556192/)
 
-#### 翻译撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-12.jpg)网络图片
+中共国央行宣布所有加密货币交易为非法，有效禁止比特币、狗币、以太币等数字货币。中共国的人民银行今日发布通知如下：“虚拟货币交易、代币发行融资、虚拟货币衍生品交易等都是非法的金融活动，被严格禁止。依法坚决取缔”。
 
-#### 校对发布：
+9月15日，中国人民银行表示：“与虚拟货币相关的商业活动是非法的金融活动。开展法币和虚拟货币兑换业务，虚拟货币之间的兑换业务，作为中央对手方买卖虚拟货币，为虚拟货币交易、代币发行融资、虚拟货币衍生品交易等虚拟货币提供信息中介和定价服务—— 严禁涉嫌非法销售代币和门票、擅自公开发行证券、非法经营期货业务、非法集资等非法金融活动的经营活动，依法坚决取缔。进行相关非法金融活动，构成犯罪的，依法追究刑事责任。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/asdf8954sda6f489h46fg65df65sd.jpg)图片来源：The Sunday Times
+中共国日益增加的监管压力已经使加密货币的价格呈螺旋式下降。最重要的两个比特币和以太币今天的价格已经下跌。
 
-据英国《每日邮报》（Daily Mail）9月25日报道，哥伦比亚大学教授杰弗理·萨克斯 (Jeffrey Sachs)博士9月25日宣布解散隶属于《柳叶刀》（Lancet）医学杂志的一个中共病毒起源调查小组，原因是该小组与资助了武汉病毒研究所功能增强研究的生态健康联盟（EcoHealth Alliance）及其主席彼得·达萨克 (Peter Daszak)有关联。
+加密货币行业以及与比特币、区块链技术提供商和交易所打交道的公司的价值也受到了影响。
 
-萨克斯博士告诉《华尔街日报》说，一个由12名成员组成的中共病毒起源调查小组在9月中旬被解散。此前很长一段时间里达萨克一直在领导着这个小组，直到今年6月他才退出该职位。此外，该小组的部分成员也与达萨克或生态健康联盟有密切往来。2020 年 2 月，五名小组成员与达萨克在《柳叶刀》上发布了一封联署信，谴责中共病毒来自实验室的说法是阴谋论。这些参与溯源调查的成员也在 2021 年 7 月宣称，他们有更多证据支持中共病毒来自自然。
+交易所、软银的股票在上市前美国业务中下跌了7%。 已向比特币投资数十亿美元的软件公司 MicroStrategy 的股价下跌了近6%。
 
-萨克斯表示，在旧的起源调查小组解散后，一个新的柳叶刀中共病毒委员会将继续调查研究，并准备在 2022 年中期发布调查报告。但会扩大调查范围，纳入其他专家对生物安全问题的意见，包括有风险的实验室研究。
+**简评：**希望中共国禁止所有加密货币交易其目的是阻止新中国联邦的喜币10月上市
 
-就在数天前，一份让人震惊的文件显示达萨克在2018年向美国国防高等研究计划署（DARPA）提出1420万美元的资金申请，以资助武毒所的蝙蝠冠状病毒功能增强研究。他提议在SARS样蝙蝠冠状病毒中插入福林裂解位点，增强其传染性和致命性。
+新闻链接：
 
-新闻来源：[**Lancet taskforce investigating origins of Covid is DISBANDED over ties to discredited Peter Daszak – just days after bombshell documents revealed his 2018 proposal to help Wuhan lab engineer more deadly bat coronaviruses**](https://www.dailymail.co.uk/news/article-10028443/Lancets-COVID-origins-panel-disbands-ties-Peter-Daszaks-EcoHealth-Alliance.html)
+
+
+> [China bans all crypto currency transactions](https://www.disclose.tv/china-bans-all-crypto-currency-transactions/)
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

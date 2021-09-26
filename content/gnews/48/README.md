@@ -2,9 +2,9 @@
 ---
 
 
-## 纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1554081/)
+## 恒大的普通投资者最终可能无法收回任何资金
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1554019/)
 
-9/20/2021 纳瓦罗和班农：继中共病毒后，中共再次向世界传播金融病毒。
+9/17/2021 爆料人：在所有其他债权人全额支付后还有剩余资金时才会支付一般债权人，所以恒大的普通投资者最终可能无法收回任何资金。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
