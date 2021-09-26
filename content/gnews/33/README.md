@@ -2,18 +2,25 @@
 ---
 
 
-## 雅典娜时报-第063期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555112/)
+## 郭文贵：10月20日起欧盟不再推行疫苗护照
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1555324/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/261.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/262.png)
-***发布：小红帽***
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-25-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频参看： 2021.09.25晚GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d](https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d)
+
+编辑/校对/发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

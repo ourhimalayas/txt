@@ -2,22 +2,42 @@
 ---
 
 
-## 川普盟友推出盖特以对抗推特
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555470/)
+## 有声| 台湾申请加入CPTTP，美国国务院表示台湾拥抱民主价值将是评估中的影响因素
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1555635/)
 
-#### 翻译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-39.jpg)图片来源：网络截图
-据英国快报9月25日报道，美国前总统川普的前选举通信主管杰森·米勒（Jason Miller） 推出了盖特，与推特直接竞争，川普曾经几乎每天使用推特来向世界传递他的观点。米勒先生在接受《星期日快报》采访时，指责社交媒体巨头通过压制有关拜登之子亨特的爆炸性报道干预上届美国大选，并且，推特和脸书在大选后永久性封杀了川普。
+配音：香草山美食部-玫瑰园
 
-杰森·米勒表示，”六分之一的拜登选民表示，如果他们知道亨特.拜登的故事，他们会改变投票，或考虑这样做。”他还指出，对美国大型科技公司的担忧意味着加入盖特的人中有三分之二希望与社交媒体巨头竞争，而三分之一的人希望支持川普总统。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-“我们在7月4日独立日推出（盖特），以便人们可以宣布独立于大科技公司，到目前为止，我们是有史以来最快达到100万用户和200万用户的社交媒体平台。就市场空间而言，推特和脸书是盖特最有可能的两个竞争对手 ”，米勒称其竞争对手表面上是社交媒体，但实际上他们是数据公司。
 
-与推特不同的是，盖特将不会有哈马斯或塔利班等恐怖组织的空间；想表达政治观点的人不会被取消；它不会收集和出售人们的数据；在盖特上没有色情或种族虐待的空间，违反这些规则的用户将被禁止。盖特正站在取消文化和西方历史上前所未有的审查制度的时代，米勒说，盖特将 “让社交媒体再次变得有趣”。
 
-这位传播学大师认为去年是美国历史上审查制度最糟糕的一年，人们因为说病毒来自中共国的实验室这样的事情而受到大科技公司审查和关闭，这对美国的言论自由来说是个悲剧。
 
-米勒正在与南美著名足球运动员、两位粉丝众多的歌手和其他名人洽谈加入该网站。在英国，开垦党领导人和演员劳伦斯.福克斯已经加入了该网站，福克斯先生本周宣布将在一部关于所谓金融丑闻的电影中扮演亨特.拜登。
 
-新闻来源：[Trump allies launch social media platform to take on Twitter](https://www.express.co.uk/news/politics/1496458/donald-trump-presidency-new-social-media-platform-rival-twitter)
+
+
+台湾与中共在近日相继提出申请加入CPTPP，美国国务院发言人普莱斯（Ned Price）24日在受访时对此议题发言表示：「我们预期，中国的非市场化贸易行为、以经济方式胁迫其他国家，此种行为会在CPTPP会员国评估新会员申请时产生影响。同样地，我们预期，台湾一向是世界贸易组织（WTO）中负责任的成员、坚定拥抱民主价值，此事实也会在CPTPP会员国评估是否纳入台湾时产生影响。」这是美国政府首次对此议题表示态度。
+
+
+
+**文字版原文：[臺灣申請加入CPTPP美國國務院表示臺灣擁抱民主價值將是評估中的影響因素](https://gnews.org/zh-hant/1554720/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

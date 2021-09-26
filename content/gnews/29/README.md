@@ -2,13 +2,12 @@
 ---
 
 
-## 《秘翻吐槽大剧场》“我行我秀”台词征集
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555238/)
+## 菅义伟推新基建对抗中共债务式基建陷阱
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1555409/)
 
-《得加钱》——你就是主角
-本栏目征集：
-配音、台词、段子、剧本、视频
-请关注盖特直接投稿：https://gettr.com/user/daduduvideo
-加入我们的米粉团：https://discord.gg/WP95djzG
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9._26-1-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

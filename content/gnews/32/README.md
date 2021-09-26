@@ -2,39 +2,20 @@
 ---
 
 
-## 有声|我们一定要用媒体这个核武器反击了
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1555176/)
+## 法官暂时阻止纽约强制教师打中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555368/)
 
-配音：纽约香草山香港部 – 文凯琳
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-119.jpg)图片来源：Politico
+据美国合众社9月25日报道，纽约第二巡回上诉法院法官约瑟夫·比安可周五站在纽约市教师这一边，挑战纽约市中共病毒疫苗强制政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+这群教师本月早些时候针对纽约市的这个强行规定提出反对，认为违反了程序正义的权利，将他们置于失去工作无法生活的危险境地，因而提出法律诉讼，在诉状中说，这个规定与联邦强制措施不同，联邦的措施给予工作人员不同选项，或者做常规测试，或者打疫苗。而纽约市则没有相似的选项。
 
+比安可法官命令暂时不用实施纽约市的规定，并由三位法官组成小组共同决定这件事的快速进一步处理。
 
+纽约市市长比尔·白思豪今年8月要求该市公立学校15万名工作人员于9月27日前至少要注射一剂疫苗。
 
-我深深感到整个人类到了该深刻反思的时候了。大部分的人不关心政治，只喜欢自己的现实的小圈子，最喜欢的口头禅就是“那些国家大事关我什么事”。殊不知这样就掉入了陷阱，按照统治者想要的模式运行——自私且现实。
+纽约市教育部门媒体秘书丹尼拉·费尔森说，目前已有82%的工作人员注射了疫苗，教师工会已经警告教师人员短缺，而白思豪曾称将准备让代课老师代替。
 
-关心政治就是要知道宏观的运作模式，运用**常识**和逻辑击粹谎言和欺骗。如果懦弱和缺乏判断分辨而随便相信公众媒体，最终将导致金字塔顶端的人可以毫无底线地公开凌辱整个人类。媒体就是核武器啊！
-
-我们也必须用我们的核武器，就是盖特、GTV、GNews，来反击！把这个病毒和疫苗背后的大怪物都曝光在世人的面前，请留意这些 hashtag 标签：#医药界 #医学界 #福奇 #辉瑞 #科兴 #世卫组织 #谭德赛 #钟南山 #盖茨 #盖茨基金 #谷歌 #公众媒体 #推特 #facebook #世界共产联盟 #CCP #盗国贼 #光明会 ……。一定要干掉这些魔鬼的黑暗势力，人类才会有希望。
-
-我祈祷神帮助我们，尽快消灭邪恶的黑暗势力，让世界恢复安宁，阿门。
-
-[文字版原文：我们一定要用媒体这个核武器反击了](https://gnews.org/zh-hans/1551032/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+##### 新闻来源： [Judge temporarily blocks New York City’s COVID-19 vaccine mandate for teachers](https://www.upi.com/Top_News/US/2021/09/25/judge-temporarily-block-new-york-city-coivd-19-vaccine-mandate-teacher/8631632611297/)
