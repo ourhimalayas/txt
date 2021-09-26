@@ -2,9 +2,25 @@
 ---
 
 
-## 中共已经控制了世界2/3的芯片制造产业
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555276/)
+## 郭文贵：10月20日起欧盟不再推行疫苗护照
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1555324/)
 
-9/24/2021 汽车行业分析师劳伦·菲克斯在接受福克斯采访时表示，美国汽车行业正面临严重的芯片短缺危机，但与此同时中共已经控制了世界2/3的芯片制造产业，而这将对一切造成影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-25-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看： 2021.09.25晚GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d](https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d)
+
+编辑/校对/发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

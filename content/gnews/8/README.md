@@ -2,33 +2,20 @@
 ---
 
 
-## 川普针对主流媒体虚假宣传连续发声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1555292/)
+## 法官暂时阻止纽约强制教师打中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555368/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-119.jpg)图片来源：Politico
+据美国合众社9月25日报道，纽约第二巡回上诉法院法官约瑟夫·比安可周五站在纽约市教师这一边，挑战纽约市中共病毒疫苗强制政策。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/T-4.jpg)nytimes.com
-在昨天（9月24日）笔者怒斥主流媒体“睁眼说瞎话”的文章发表后【1】，怀有同样感受的川普总统连续发表了4个声明，谴责这些媒体的倒行逆施、制假售假、误导民众的行径。
+这群教师本月早些时候针对纽约市的这个强行规定提出反对，认为违反了程序正义的权利，将他们置于失去工作无法生活的危险境地，因而提出法律诉讼，在诉状中说，这个规定与联邦强制措施不同，联邦的措施给予工作人员不同选项，或者做常规测试，或者打疫苗。而纽约市则没有相似的选项。
 
-4个声明分别如下：
+比安可法官命令暂时不用实施纽约市的规定，并由三位法官组成小组共同决定这件事的快速进一步处理。
 
-1）CNN、《纽约时报》、《华盛顿邮报》和其他媒体正在向公众提供有关亚利桑那州审计的大规模错误信息。审计是民主的一大胜利，也是我们的一大胜利，这表明选举是多么腐败，亚利桑那州参议院的听证会现在正在进行，关于所发生事情的信息是可怕的——一个比预期还要大的骗局！【2】
+纽约市市长比尔·白思豪今年8月要求该市公立学校15万名工作人员于9月27日前至少要注射一剂疫苗。
 
-2）在亚利桑那州的审计结果上，虚假新闻媒体的报道是不诚实，甚至是不可信的，这表明在选举不断变化的层面上存在着难以理解的欺诈行为，比需要的选票多出许多倍。假新闻媒体拒绝报道事实，因此他们是在与本世纪的犯罪同谋，他们是如此的不诚实，但爱国者要知道真相！亚利桑那州必须立即取消2020年总统选举结果的认证。【3】
+纽约市教育部门媒体秘书丹尼拉·费尔森说，目前已有82%的工作人员注射了疫苗，教师工会已经警告教师人员短缺，而白思豪曾称将准备让代课老师代替。
 
-3）在亚利桑那州的司法审计中发现了大规模的舞弊，有时被称为“欺诈”，数字正在变化！【4】
-
-4）我将在明天的佐治亚州大集会上讨论亚利桑那州司法审计的获胜结果，会展示44,000张令人吃惊的非法选票，届时将座无虚席！【5】
-
-参考链接：
-
-【1】[https://gnews.org/zh-hans/1553250/](https://gnews.org/zh-hans/1553250/)
-
-【2】[https://www.donaldjtrump.com/news/news-dynbvqud4p764](https://www.donaldjtrump.com/news/news-dynbvqud4p764)
-
-【3】[https://www.donaldjtrump.com/news/news-mnkyduz7w5767](https://www.donaldjtrump.com/news/news-mnkyduz7w5767)
-
-【4】[https://www.donaldjtrump.com/news/news-sajbyaupvn766](https://www.donaldjtrump.com/news/news-sajbyaupvn766)
-
-【5】[https://www.donaldjtrump.com/news/news-dtcrhqktzu765](https://www.donaldjtrump.com/news/news-dtcrhqktzu765)
+##### 新闻来源： [Judge temporarily blocks New York City’s COVID-19 vaccine mandate for teachers](https://www.upi.com/Top_News/US/2021/09/25/judge-temporarily-block-new-york-city-coivd-19-vaccine-mandate-teacher/8631632611297/)

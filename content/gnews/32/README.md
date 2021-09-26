@@ -2,116 +2,53 @@
 ---
 
 
-## 世界开始憎恨共产党是因为共产党让他们损失惨重
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1554944/)
+## 唯真不破反洗脑—我什么都不信了之一：多变的口罩
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1554955/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/o3-a6vq7-l5u5t.jpg)
-[https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7](https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/aa2zg-s5e2l.jpg)
+不是夸口，和他们相比，我觉得自己有资格当加拿大的卫生官！
 
-**郭文贵
-Miles Guo**
+**解除戴口罩强制令**
 
-但是最近这帮人说，哎哟，Miles
-But recently these guys said, hey, Miles
+2021年7月1日刚放暑假的时候，加拿大BC省的感染数字再一次降了下来。卫生官宣布解除戴口罩强制令。可大街上照样还有不少人像往常一样蒙着脸。孩子的牙医也说，结束强制令有点太早了。我也是这么想的，结果真说准了。
 
-我们恨死共产党，
-We hate the communist party
+不是医生，我没法像专业人士一样批评，但疫情大流行至今一年多，这位卫生官在我心中的权威一点一点消失。到现在，我不但不相信她，也不相信联邦卫生官的话了。
 
-他们没有中秋节，他们有啥节？你们知道
-They don’t have Mid-Autumn Festival, what festival do they have? you know
+**戴口罩反而可能增加被传染的机会**
 
-犹太人有犹太的节日，
-Jews have Jewish holidays
+记得2020年春天，新冠状病毒刚传到加拿大，联邦政府的首席卫生官谭咏诗（Theresa Tam）在电视上说，戴口罩反而可能增加被传染的机会。因为普通人会不习惯，用手摸脸，病毒就会顺势进入体内。不单她，我们BC省的卫生官Bonnie Henry也这么说。
 
-大家这几天知道头两天是犹太新年
-Everyone knows that few days ago was Rosh Hashanah
+这两位是加拿大和BC省位阶最高的医护专业人士，说出来的话应该是权威。我不敢质疑，但还是偷偷跑去买口罩。去了才发现，市面上的口罩都给人抢光了！连防尘口罩也找不到。当时我想：是不是其他人也像我一样没听话？
 
-犹太新年把他们弄傻了，犹太人是要聚会的
-Jews were stunned at Rosh Hashanah because the Jews need gather together
+**必须戴口罩**
 
-然后犹太人有几个节日，前前后后他们受不了了
-Then there are several holidays for Jews, they can’t bear it
+过一阵子，谭医生又在电视上说，病毒可以通过唾液传播，除了保持社交距离，还必须戴口罩。那时候，口罩在加拿大仍然紧俏，很多人自己动手做布口罩戴上，网上也有各种花纹的口罩卖，生意都挺不错。
 
-再一个美国最近，所有人这时候都想过假期
-Another one in America recently, everyone thinks about vacation at this time
+我看着想尽办法买来的两盒成人和儿童口罩，心里觉得踏实了点。
 
-这假期完了以后，还有自己的事儿，都活动不了
-After the holiday, they still have their own things, so can’t do anything
+**最好戴三层口罩**
 
-然后大家感觉到股票不行了
-Then everyone felt that the stock market was not doing well
+到了2020年11月，谭医生的说法又变了，叫大家最好戴三层口罩，就是在两层布口罩之间放夹层过滤，而且口鼻和下巴要严丝合缝，不留空隙。她的解释是，冬天加拿大人会更多地留在室内，而在对口罩、飞沫、气溶胶有更全面的了解后，认为这样做最好。
 
-所以兄弟姐妹们，现在遇到这个经济
-So brothers and sisters, now encountering this economy
+不知道别人的反应如何，反正我听到这个就呵呵了。
 
-还有中共国整个的危机，恒大，平安这些地产
-and there is also the entire crisis in the CCP, Evergrande and Ping An’s real estate
+**取消口罩强制令**
 
-你记得七哥曾经在爆料中说过什么
-Do you remember what I said during the Whistleblowing in the past
+今年6月，BC省的新增数字下降到了两位数，但同时Delta变种也杀过来了。不过，省政府、卫生官都很乐观，从7月1日起取消口罩强制令，还说预备9月开学就全面放开。我理都没理，出门照样戴口罩，而大多数商店、诊所，连售楼处的人也都带口罩——谁也不是傻子，前车之鉴摆在那里：以色列牛不牛？ 6月15日取消口罩强制令，6月25日再重新实行。还不能说明问题？
 
-我曾经给大家去年就说过，大家没有注意
-I told you last year that everyone didn’t pay attention
+**恢复口罩强制令**
 
-我说你们一定要小心国内的，特别是中概股的几个大型企业
-I said that you must be careful about domestic companies, especially several large companies in China Concept Stocks
+果然，BC内陆爆发感染，个案数一个劲往上蹿。不得已，省卫生官宣布暂缓9月全面开放的事，从8月25日恢复口罩强制令，凡12岁及以上省民必须在室内戴口罩。
+哈哈哈，我觉得自己可以去做卫生官了。
 
-平安，你看陆金所现在什么样
-Ping An and Lufax, what are they looking like now?
+**小结**
 
-民生是恒大倒下必死的银行，招商
-Minsheng bank will die when Evergrande falls, also China Merchants Bank
+小小口罩让专家变成了砖家。之前奉其言如金科玉律的普通人也开始有疑问，尝试用朴素的逻辑推论结果。在真相面前，所谓权威不值一晒。
 
-现在共产党的政府地方债也出了大问题了
-Now also there is a big problem with the local government debt of the Communist Party
+**【文章观点仅代表作者个人，与Gnews平台无关】**
 
-那么这些问题的背后是什么
-So what’s behind these problems
-
-共产党所谓的股票市场金融市场
-The so-called stock market and financial market of the Communist Party
-
-然后带动的是香港擀面杖子股票市场
-Then it drives the Hong Kong’s fake Stock Market
-
-接下来马上是跟西方的所有长期的债务违约
-Next it will come all the long-term debt defaults with the West
-
-我觉得日本要出大事儿，还有德国要出大事儿
-I think something big will happen in Japan, and something big will happen in Germany
-
-德国的养老金，德国所谓的国防基金（等）这些基金
-German pensions, German so-called defense funds (etc.) these funds
-
-我以为就是将近七八十亿呢
-I thought it was nearly seven or eight billion
-
-结果也是几百亿投进去，德国要出大事儿
-It turned out to be hundreds of billions of dollars invested, and something big is going to happen in Germany
-
-兄弟姐妹你们能感受吗
-Brothers and sisters, can you feel it?
-
-这个世界的经济的大厦随时就要崩塌呀
-The world’s economic edifice is about to collapse at any time
-
-就是因为共产党
-All because of the Communist Party
-
-那你去想想，现在世界有多少人恐怕害怕
-Then think about it, how many people are afraid right now in the world?
-憎恨这个共产党流氓集团
-They hate this communist rogue group
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24](https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+作者：洛杉矶盘古农场 — 十月
+编审：洛杉矶盘古农场 — 心照
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

@@ -2,15 +2,12 @@
 ---
 
 
-## 韩国病毒感染人数连续82天维持在4位数
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1555353/)
+## 菅义伟推新基建对抗中共债务式基建陷阱
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1555409/)
 
-韩国天池农场
-翻译：鱼子酱CAVIAR
-上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9._26-1-scaled.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-据首尔=新闻1的报道，疾病管理厅中央防疫对策本部表示，截至26日0时，中共病毒感染人数新增2771人。 前一天确诊病例为3273例，创历史新高，但仅隔一天就创下了第二例规模。 连续82天保持4位数，累计感染人数超过30万人。
-
-据分析，这是因为中秋节长假导致大量人口接触以及传播力高的德尔塔变异的扩散导致这一结果。
-
-[新闻来源](http://naver.me/5WcFpUZM)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
