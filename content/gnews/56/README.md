@@ -2,29 +2,34 @@
 ---
 
 
-## 北京既实施贸易制裁打压堪培拉，又高价抢购澳大利亚小麦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1554903/)
+## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
 
-#### 作者：东京樱花团｜文小白
-![](https://assets.gnews.org/wp-content/uploads/2021/09/pasted-image-0-16.png)
-[*图片来源*](https://gdb.voanews.com/CEDF00CF-9509-41B5-ABEC-311F7020EBDF_w1597_n_r1_st.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-在澳大利亚坚持对中共病毒溯源调查以来，中共对澳大利亚实施了一系列贸易制裁，两国关系持续恶化。但这一切并不影响中共高价抢购澳大利亚生产的小麦。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-根据路透社的报道，由于北半球多个小麦生产国因为遭遇恶劣天气和干旱，从而导致全球粮食产量不足，小麦供应量下滑。而作为世界上主要的小麦出口国之一的澳大利亚则可望获得小麦大丰收。北京便耗费巨资在澳大利亚抢购小麦。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
 
-中国作为世界上最大的小麦生产和消费国，其小麦产量和质量常常满足不了需求，所以中国也常常成为国际粮食市场上最大的小麦买家。尽管中国与澳大利亚近年来政治和经贸关系恶化，中国对澳大利亚实施的贸易制裁仍在持续，但北京进口澳大利亚小麦几乎从未停止。今年由于其他小麦出口国产量或质量下降，北京便耗费巨资在澳大利亚抢购小麦。
 
-路透社说，中共国已经成为澳大利亚即将收割的小麦的主要买家。在澳大利亚迄今已经售出的2021/2022农作物年度大约500万吨小麦当中，中共买家买下将近200万吨。
+[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
 
-来自中共海关的数据也显示，今年1月至8月，中共国粮食进口量约为11,500万吨，其中小麦进口量为696万吨，同比增长39.7%。
+[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
 
-北京目前仍然对澳大利亚产的葡萄酒和大麦征收反倾销税，同时减少澳大利亚煤炭和牛肉的进口，但是小麦采购却一直没有受到政治关系恶化或贸易战的影响。由此可见中共国内经济的衰退。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-[**消息来源**](https://www.voachinese.com/a/China-spends-big-on-Australian-wheat-despite-trade-war-20210924/6244365.html)
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
++4

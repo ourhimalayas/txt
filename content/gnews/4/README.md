@@ -2,34 +2,25 @@
 ---
 
 
-## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
+## 郭文贵：10月20日起欧盟不再推行疫苗护照
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1555324/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-25-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
+视频参看： 2021.09.25晚GTV新闻访谈
 
+[https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d](https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d)
 
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+编辑/校对/发稿： Lakers
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
-+4
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
