@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/26/2021 7:07 PM (UTC)`
+
+9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！
+![img](https://media.gettr.com/group32/getter/2021/09/26/19/8ddc83c9-665a-5312-646f-83aaff511b7e/cf512637cba83658d93c0b4ffaecfc16.jpg)
+
+---
+
 `@miles 9/26/2021 6:04 PM (UTC)`
 
 这段视频清楚地展示了郭文贵先生对中共病毒 Covid疫苗早期的反复预警。 这些疫苗产品是国际“黑暗势力”与中共勾结的结果。Covid 疫苗将在 COVID-19 大流行中造成严重的副作用和次生灾难。 太多人遭受Covid疫苗副作用的折磨，很多人甚至失去了生命。<br/><br/>一系列事件充分验证了郭文贵的警告。 历史是现在和未来最好的证明！ 拒绝有毒疫苗就是在拯救人类。 传播真相，永不放弃！
@@ -290,13 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9/21/2021 文贵直播：新疆集中营前天突然有300多人因所谓“感染”死亡，这是屠杀吗？<br/><br/>9/21/2021 Miles Guo: Over 300 people suddenly died in a concentration camp in Xinjiang due to the so-called “infections” the day before yesterday. Was that a massacre?
 ![img](https://media.gettr.com/group40/default/20210921/18/07/f5d7f29a-939d-2ef5-e2c2-f601d6e18eb3/out.jpg)
-
----
-
-`@miles 9/21/2021 2:18 PM (UTC)`
-
-2021年9月21日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝所有捐款战友及家人们中秋节快乐！<br/><br/>September 21, 2021 Rule of Law Foundation and Society donors messages collection<br/>Rule of Law Foundation and Society appreciate all of our supporters and donors! Happy Mid-Autumn Festival to all our donors and their families!
-![img](https://media.gettr.com/group10/default/20210921/14/18/f10d8a25-6535-b910-478f-c9374cc621a3/out.jpg)
 
 ---
 
