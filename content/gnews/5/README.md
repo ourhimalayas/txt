@@ -2,43 +2,20 @@
 ---
 
 
-## 布鲁斯9名老年护理工检测呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555417/)
+## 德国新政府或实现三党联合
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555421/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AstraZen-jab1.jpg)
-图片来源：miltonkeynes.co.uk
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-65.jpg)图片来源： eaglevisiontimes.nz
+美国全国公共广播电台柏林新闻9月25日报道，数以百万计的徳国人本周日将涌向投票站决定谁将成为继安吉拉·默克尔之后的德国总理。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+根据最近的民意调查，德国中间偏左的社会民主党比默克尔所在的中间偏右的天主教民主联盟和它的巴伐利亚合作者天主教社会联盟获得更多支持，紧接着是绿党、德国极右派和自由民主党。均超过百分之十的支持。
 
-近日，在布鲁斯（Bruce）的海登（Haydon）退休社区发现的9例中共病毒病例，使澳大利亚首都地区周六单日创下最高的每日病例总数。
+一位德国国会负责外交关系的高级助理约瑟夫·捷宁说两个传统的大党已经不能吸收人们广泛支持，选民们更多样化已经不再以阶层和宗教来区分选项了。
 
-首都领地卫生部（ACT Health）周六在沃森（Watson）启动了一个临时中共病毒检测诊所，因为堪培拉北部郊区出现一系列无关联的阳性病例。
+他们不愿意让他们自己的社会阶层受到进一步伤害，他们更喜欢选择符合自己利益的和志同道合者。捷宁说：“各党派的支持率将会更分散，可能各获得20%以上的选票。”
 
-自疫情爆发以来，沃森已有30例中共病毒病例，其中一半以上是在过去两周内记录的。
+天主教民主联盟和社会民主党已经表达了愿意与绿党组成联合政府，有一点很清楚，不管谁上台，德国的下任政府很可能是三党联合组成的政府，这在德国历史上很罕见。
 
-到目前为止，周六的32个新病例中没有一个与沃森有关，因为新的临时诊所的所有结果要到周日才会被整理和评估。
-
-在加略山（Calvarycare）经营的海登（Haydon）老年护理机构中，对中共病毒感染源的调查仍在进行中，尽管早些时候有报道称感染可能是由一名工作人员引入的。
-
-首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，“目前还不知道感染的顺序或时间线是什么。
-
-然而，她说92%的居民已完全接种疫苗，97%的居民已接种了一剂疫苗。
-
-在9名感染者中，大多数人都接种了疫苗，但有3人仅部分接种或未接种疫苗。
-
-她还证实，该设施的所有员工都选择成为单一地点的工作人员，因此“不会对其他设施产生影响”。 在澳大利亚首都地区，所有老年护理人员都必须接种疫苗。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Nine aged care residents in Bruce have tested positive for COVID | The Canberra Times | Canberra, ACT](https://www.canberratimes.com.au/story/7445013/scramble-to-support-aged-care-outbreak-as-nsw-cases-start-to-fill-act-wards/)
-
-***编辑：小红帽******/文泓*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### 新闻来源： [Germans Will Choose A New Government As Angela Merkel Steps Down As Chancellor](https://www.npr.org/2021/09/25/1040421916/germany-election-chancellor-merkel-parties-vote?ft=nprml&amp;f=1004)
