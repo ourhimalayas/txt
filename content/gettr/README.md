@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/26/2021 6:04 PM (UTC)`
+
+这段视频清楚地展示了郭文贵先生对中共病毒 Covid疫苗早期的反复预警。 这些疫苗产品是国际“黑暗势力”与中共勾结的结果。Covid 疫苗将在 COVID-19 大流行中造成严重的副作用和次生灾难。 太多人遭受Covid疫苗副作用的折磨，很多人甚至失去了生命。<br/><br/>一系列事件充分验证了郭文贵的警告。 历史是现在和未来最好的证明！ 拒绝有毒疫苗就是在拯救人类。 传播真相，永不放弃！
+![img](https://media.gettr.com/group18/getter/2021/09/26/18/04/0dbe7abb-2c8b-c654-128c-08462e0ac55c/out.jpg)
+
+---
+
+`@miles 9/26/2021 6:02 PM (UTC)`
+
+This clip clearly displays Mr. Miles Guo’s repeated early warnings about the Covid Vaccines for the CCP Virus. This vaccine product is the result of collusion between the international "Dark Forces" and the CCP. The Covid Vaccines would cause serious adverse effects and a secondary disaster in the COVID-19 pandemic. Too many people are suffering from the Covid Vaccines and lots of people have even lost their lives.<br/>A series of events have fully validated Miles Guo's warnings. History is the best proof of present and future! Rejecting toxic vaccine is saving humanity. Spread the truth and never give up!
+![img](https://media.gettr.com/group19/getter/2021/09/26/18/02/4dd57d16-5b15-1094-4b6e-c059522bd205/out.jpg)
+
+---
+
 `@miles 9/26/2021 5:40 PM (UTC)`
 
 The end result of Huawei Meng Wanzhou case is no different from Mr Miles Guo’s prediction in 2018<br/><br/>华为孟晚舟案的结局与郭文贵先生2018年预测的分毫不差
@@ -283,20 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 2021年9月21日 法治基金,法治社会捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！祝所有捐款战友及家人们中秋节快乐！<br/><br/>September 21, 2021 Rule of Law Foundation and Society donors messages collection<br/>Rule of Law Foundation and Society appreciate all of our supporters and donors! Happy Mid-Autumn Festival to all our donors and their families!
 ![img](https://media.gettr.com/group10/default/20210921/14/18/f10d8a25-6535-b910-478f-c9374cc621a3/out.jpg)
-
----
-
-`@miles 9/20/2021 11:38 PM (UTC)`
-
-9月20号：大自然给予我们的魅力和美丽，是人类永远无法复制的！
-![img](https://media.gettr.com/group9/default/20210920/23/38/eca71d49-e9db-4028-7716-b8a9fe92e919/e70b732a5e97458d59befb4abeab6f82.jpg)
-
----
-
-`@miles 9/20/2021 11:34 PM (UTC)`
-
-9月20号：与战友们分享会后将进行美好的晚餐前的时刻……
-![img](https://media.gettr.com/group25/default/20210920/23/34/06320af0-b926-f5b1-d060-699877884837/out.jpg)
 
 ---
 
