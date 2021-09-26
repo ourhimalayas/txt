@@ -2,26 +2,24 @@
 ---
 
 
-## 台湾在野党国民党主席选举由朱立伦当选
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556034/)
+## 联邦法院暂停纽约市教职工接种强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556042/)
 
-栏目记者/责任编辑：云豹
+栏目记者/责任编辑：雪梨
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+纽约市执行针对全市教职员工的强制接种令，原定于从9月27日开始执行。就在本周五，美国第二巡回上诉法院的法官将其暂时阻止，并将此案快速移交给由三名法官组成的小组进行审查。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P1-8.007.jpeg)
+今年8月，纽约市市长比尔·德布拉西奥，宣布要求该市的教职人员全面接种新冠疫苗，且除宗教与医疗豁免外，没有其他代替选项。法官在周四先是拒绝了该项禁令请求，原告律师随即向第二巡回上诉法院提出上诉，周五，临时禁令得到批准。
 
-
-9 月25日，国民党进行党主席选举，朱立伦以8万余票当选。次高票者 为候选人张亚中。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/P1-8.005.jpeg)
-新任党主席朱立伦于25日晚间发表当选讲话，称国民党会寻求重新恢复两岸沟通交流管道，透过互动累积善意，成为推动区域和平的中道力量。中共党魁习近平则于26日发电文祝贺朱立伦当选，强调在坚持“九二共识”、反对“台独”基础上良性互动，加强合作，谋求国家统一。
-
-国民党内部不论是本土派还是激进急统派，都抱持与中共恢复交流和谈的态度，试图以求和方式来解决”统独”问题。但面对咄咄逼人、磨刀霍霍的中共，仍在与虎谋皮的国民党乃至台湾，都很可能会重演当年”国共内战” 的悲剧。
+强制接种令将导致许多教职人员被迫停职，不仅侵犯员工的人身自由，更严重扰乱教学秩序。据悉该强制令可能导致纽约市的学校失去多达1万多名教职人员，届时纽约市的教育系统将受到严重的打击，原属于学生的教育资源也将受到影响。
 (本文仅代表作者观点)
 
 参考链接：
 
-1. [朱立倫逾8萬票當選國民黨主席 得票率未過半創新低](https://www.cna.com.tw/news/firstnews/202109250266.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2. [快新聞／習近平賀電來了！ 賀朱立倫當選黨主席　盼「兩黨為國家謀和平統一」](https://www.ftvnews.com.tw/news/detail/2021926W0029)
+1. [Federal court temporarily blocks Covid-19 vaccine mandate for New York City teachers](https://edition.cnn.com/2021/09/25/us/new-york-city-teacher-vaccine-mandate-injunction/index.html)
+2. [Federal judge delays vaccine mandate for NYC teachers](https://apnews.com/article/coronavirus-pandemic-health-new-york-courts-education-c5dd62f249ff600cf034924be734d8f8)
 
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
@@ -35,5 +33,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

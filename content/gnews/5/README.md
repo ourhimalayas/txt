@@ -2,480 +2,105 @@
 ---
 
 
-## 以色列COVID-19 疫苗受害者证词(3/6）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1556258/)
+## 9/26/21 香港快讯 20岁以下登记选民跌幅近3成
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1556330/)
 
-以色列COVID-19疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0926fenmian.jpg)
+封面素材：立场新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.19.07-AM.png)
+**1. 20****岁以下登记选民跌幅近****3****成**
 
-证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/)
+[据【香港电台】9月26日讯，选举事务处发表今年立法会选举临时选民登记册，地区直选有约447万名选民，较去年净增加约400人，亦较2016年增加约18%。](https://news.rthk.hk/rthk/ch/component/k2/1612333-20210926.htm)
 
-The following days, I started feeling severe pain and was bleeding for two weeks.
+[今次选举的地区直选选区由5个增至10个，其中新界西南的选民人数最多，接近有51万人，其次为新界东北、九龙东及新界东南，分别都有超过47万名登记选民，最少是香港岛西，只有约37万名选民。](https://news.rthk.hk/rthk/ch/component/k2/1612333-20210926.htm)
 
-接下来的几天，我开始感到剧烈疼痛，并且出血两个星期。
+[与去年相比，20岁以下的年轻组别，登记选民不升反跌，由去年超过12万人跌至9万几，跌幅近3成。而今次选举的18至35岁选民，亦按年下跌约4%，但66岁或以上选民就按年增加5%。](https://news.rthk.hk/rthk/ch/component/k2/1612333-20210926.htm)
 
-I have a Hormonal device, had it for 3 years.
+[至于功能组别选民，今年大约有近22万名选民，当中超过21万为个人票选民，教育界登记选民最多，有8.5万人。由于在新选举制度下，部分界别改为团体票，选民因而大跌，包括经改动后的「科技创新界」，只有73张团体票，较去年1.3万名团体及个人登记选民大跌9成9。](https://news.rthk.hk/rthk/ch/component/k2/1612333-20210926.htm)
 
-我有一个荷尔蒙装置，已经用了 3 年。
+[今年立法会换届选举将于12月19日举行，提名期下月30日展开。](https://news.rthk.hk/rthk/ch/component/k2/1612333-20210926.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.19.17-AM.png)
+**2. ****中联办：支联会解散是必然下场****乱港行为不能一笔勾销**
 
-Normally I don’t have a normal period, but I was bleeding heavily for 2 weeks.
+[据【立场新闻】9月26日讯，成立 32 年、争取平反六四的支联会，被港府指控颠覆国家政权，昨日（25日）开会通过解散。中联办及港澳办均表示，这是是「反中乱港组织的必然下场」。中联办又说，支联会骨干分子的「乱港行为」绝不能一笔勾销，「搞乱香港的人绝不能逍遥法外」；警方正调查组织涉违法行为，认为这是法治社会的必然要求，坚决支持政府依法追究到底。](https://www.thestandnews.com/politics/中聯辦支聯會解散是必然下場-亂港行為不能一筆勾銷)
 
-通常我没有正常的经期，但（这次）我严重出血两周。
+[港澳办则指出，支联会从成立开始就提出颠覆国家政权的纲领；一直以来，其不断通过造谣、诽谤和组织非法游行集会，「攻击抹黑中国共产党的领导，攻击抹黑宪法所确立的国家根本制度」，以此煽动民众对共产党和中央政府的敌视甚至仇恨，进而达到推翻中国共产党的领导和社会主义制度的目的。](https://www.thestandnews.com/politics/中聯辦支聯會解散是必然下場-亂港行為不能一筆勾銷)
 
-Bleeding like a young girl during her period.
+[港澳办又说，支联会及其骨干分子在香港国安法颁布实施后仍然「负隅顽抗」，「他们顽固奉行违法政纲，对抗警方调查，并继续以违法达义、公民抗命等歪理邪说煽惑市民」。港澳办又批评支联会副主席邹幸彤，「直到组织行将覆灭的最后一刻还大放厥词，妄言抗争到底。对如此嚣张的反中乱港组织和反中乱港分子，必须依法严惩、以儆效尤！」；「只有全面消除反中乱港组织及其遗毒，香港当前来之不易的良好局面才能巩固发展，香港的未来才能更加安全、更加美好、更加光明」。](https://www.thestandnews.com/politics/中聯辦支聯會解散是必然下場-亂港行為不能一筆勾銷)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.19.25-AM.png)
+**3. ****民主党交中委会制定甄选程序****如有党员参选再会员大会接受质询**
 
-像一个少女在经期一样出血。
+[据【立场新闻】9月26日讯，继选委会选举，「完善」选举制度后的第二场选举立法会选举将在年底举行，民主党今日（26 日）就会否派员参选召开特别会员大会，然而会后依然未有定案。](https://www.thestandnews.com/politics/a-未得民主黨特別會員大會-主選派鄺俊宇)
 
-After these two weeks, I was not bleeding for 2 months.
+[党内面临重大分歧，据了解，中委会会就参选与否作最后决定，若决定参选会再召开会员大会。现时中委会成员包括主席罗健熙、副主席梁翊婷、李永达等合共 21人，当中有被视为「弃选派」的冼卓岚。冼曾公开表明不认同李华明主选的做法，认为民主党在参选以外依然有社区事务可做。另外，中委会亦有被外界视为「主选派」的梁翊婷、苏逸恒及曾自鸣。](https://www.thestandnews.com/politics/a-未得民主黨特別會員大會-主選派鄺俊宇)
 
-这两周后，我有两个月没有出血。
+[副主席梁翊婷、中委苏逸恒、曾自鸣及党员黎宝桂 4 人， 5 月底联同依然留任元朗区区议员、尚未宣誓的邝俊宇，另辟 YouTube 频道「新青年事务所」。频道在仅仅 3 个月期间发布 29 条影片，被视为是「另起炉灶」参选的迹象。](https://www.thestandnews.com/politics/a-未得民主黨特別會員大會-主選派鄺俊宇)
 
-Then the disruptions began in.
+[而主张民主党参选的元老李华明，在会前则形容自己为少数支持参选者，表示尽管政治空间狭窄，民主党作为参政的政党，应以参选为目的，才能达致监察政府。](https://www.thestandnews.com/politics/a-未得民主黨特別會員大會-主選派鄺俊宇)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.19.36-AM.png)
+**4. ****汤家骅：立法会是否清一色****民主党有责任****不要赖制度**
 
-然后中断后又开始。
+[据【立场新闻】9月26日讯，民主党下午会举行会员大会决定是否参选，新当选的法律界选委兼行政会议成员汤家骅指，民主党有责任令议会不是「清一色」。他又表示，不认为今届选委选举比去年差，至少社会回归理性，是「大跃进」。](https://www.thestandnews.com/politics/湯家驊立法會是否清一色-民主黨有責任-不要賴制度)
 
-Besides that, a week after the vaccine, I was feeling pain
+[汤家骅认为，若果有政党审时度势，认为政治环境不利于党参选，或者需时装备自己以应付新制度，他表示理解，但若果有政党由始至终不接纳新制度，决定不参与，他认为这不是广大社会的政党，他指，若果民主党认为今届不适合参选，能提出令人信服的理据，他会尊重，但提醒民主党有责任令议会不是「清一色」，「你不参选，就有机会是清一色，那就不要赖制度。」](https://www.thestandnews.com/politics/湯家驊立法會是否清一色-民主黨有責任-不要賴制度)
 
-除此之外，接种疫苗一周后，我感到疼痛。
+[对于今届的选委选举被质疑代表性，他表示不认为今届选举比上届差，「最低限度我们回归理性」，他指上届选举他只能与数间律师行见面，但今届能与 14 个团体会面，并能和大律师公会执委辩论，是一种进步。](https://www.thestandnews.com/politics/湯家驊立法會是否清一色-民主黨有責任-不要賴制度)
 
-in the left shoulder blade, the side of the injection.
+[支联会启动清盘程序，汤家骅表示婉惜，但他指不理解为何民间团体解散要归咎国安法，质疑若果有民间团体犯法，解散不能作出弥补或因而避过法律制裁，相反如果没有犯法，又为何需要解散。](https://www.thestandnews.com/politics/湯家驊立法會是否清一色-民主黨有責任-不要賴制度)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.19.44-AM.png)
+**5. ****邓炳强：****23 ****条立法须应对间谍行为****「黑暴」时派头盔、地铁车票属「国家级组织」**
 
-在左肩胛骨，注射疫苗的一侧。
+[据【立场新闻】9月26日讯，保安局局长邓炳强接受《无线新闻》专访时指，正研究修改《社团条例》，认为现时条文相对简洁，会考虑会否加入类似《港区国安法》的实施细则。当局正研究为《基本法》23 条立法，邓炳强认为法例要有效应对过去两年的社会情况，特别是间谍行为，他举例反送中运动期间有人派头盔、地铁车票，属「国家级组织」。](https://www.thestandnews.com/politics/鄧炳強23-條立法須應對間諜行為-黑暴時派頭盔地鐵車票屬國家級組織)
 
-I realized it’s related to the vaccine. The pain radiated to the neck, head.
+[他特别提到今次立法要应对间谍行为，认为过去两年在香港发生的黑暴事件，是外国势力有组织的干预。](https://www.thestandnews.com/politics/鄧炳強23-條立法須應對間諜行為-黑暴時派頭盔地鐵車票屬國家級組織)
 
-我意识到这与疫苗有关。疼痛放射到颈部、头部。
+[邓炳强又认为目前的《社团条例》相对简洁，研究参考《港区国安法》加入实施细则，或者类似外国法例，要求社团提供更多资料。](https://www.thestandnews.com/politics/鄧炳強23-條立法須應對間諜行為-黑暴時派頭盔地鐵車票屬國家級組織)
 
-After receiving the first shot.
+[被问到市民日后可否参与其他组织的「六四晚会」，邓炳强指不能简单判断，要视乎相关人士当时的目的、角色、意图和言论。](https://www.thestandnews.com/politics/鄧炳強23-條立法須應對間諜行為-黑暴時派頭盔地鐵車票屬國家級組織)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.19.53-AM.png)
+**6. ****民建联倡预售新界北居屋****吁发展商配合政府解决深层次矛盾**
 
-打了第一针后。
+[据【立场新闻】9月26日讯，中央和建制派多次将社会怨气归咎房屋问题，民建联今日（26 日）就屋房问题提出多个建议。](https://www.thestandnews.com/politics/民建聯倡預售新界北居屋-籲發展商配合政府解決深層次矛盾)
 
-I was bleeding again, heavily, I had blood clots.
+[民建联建议政府应推出新居屋计划，针对年轻家庭和边缘中产，提早预售 5 年期在新界北、郊野公园边陲位置竹的居屋楼花。](https://www.thestandnews.com/politics/民建聯倡預售新界北居屋-籲發展商配合政府解決深層次矛盾)
 
-我又出血了，很严重，有血块。
+[他们同时要求增加已规划土地的地积比，并增加新田、落马洲等新发展区的住宅用地比率，积极运用《收回土地条例》等。](https://www.thestandnews.com/politics/民建聯倡預售新界北居屋-籲發展商配合政府解決深層次矛盾)
 
-I had severe stomach aches, which lasted for hours.
+[中长远土地供应方面，民建联建议改善新界祖堂地出售安排，检视绿化地带用途和重启郊野公园边陲地带改划作公共用途等研究，搬迁葵青货柜码头等。](https://www.thestandnews.com/politics/民建聯倡預售新界北居屋-籲發展商配合政府解決深層次矛盾)
 
-我胃痛严重，持续了几个小时。
+[而早前报道中央要求本港地产商帮助解决房屋短缺问题，民建联主席李慧琼表示，土地和政策权力均在政府，政府有最大责任让市民安居， 希望发展商可更积极、主动就解决香港深层次矛盾提出意见，期望发展商愿意提供多些土地，配合政府以至协助市民解决问题。](https://www.thestandnews.com/politics/民建聯倡預售新界北居屋-籲發展商配合政府解決深層次矛盾)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.20.02-AM.png)
+**7. ****社协建议政府拨**** 100 ****亿建过渡屋****倡向深圳借地予港人居住**
 
-We got to a hospital at Ashdod,
+[据【立场新闻】9月26日讯，行政长官林郑月娥将于 10 月发表新一份施政报告，社区组织协会认为林郑过往在民生问题上的表现不合格，包括增建公屋及规划扶贫上，建议政府尽快处理笼屋板房问题、过渡性房屋恒常化，及因应疫情、设立短期失业及就业不足援助金等。](https://www.thestandnews.com/society/社協建議政府撥-100-億建過渡屋-倡向深圳借地予港人居住)
 
-我们去了阿什杜德的一家医院，
+[在基层住屋问题上，社协认为政府应该将过渡性房屋，改为恒常化、投放多于 100 亿推动过渡性房屋发展及增土地供应等。](https://www.thestandnews.com/society/社協建議政府撥-100-億建過渡屋-倡向深圳借地予港人居住)
 
-I was already in a wheelchair, I couldn’t function or walk,
+[为增加土地供应及善用大湾区优势，社协建议特区政府应与中央政府争取在深圳或珠海划出部分地区，引入港式社会制度，让香向居民及持深圳或珠海户籍居民在该处生活。](https://www.thestandnews.com/society/社協建議政府撥-100-億建過渡屋-倡向深圳借地予港人居住)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.20.12-AM.png)
+**8. HKDC****周永康罗冠聪等晤佩洛西****推动《香港避风港法案》**
 
-我已经坐在轮椅上了，无法活动或行走，
+[据【大纪元时报】9月26日讯，香港民主委员会（HKDC）日前重组，多名流亡港人加入担任要职。](https://hk.epochtimes.com/news/2021-09-26/50354732)
 
-I was so weak. They did all sorts of tests, invasive vaginal tests.
+[HKDC在周三（22日）发声明，指HKDC将迎来新一页，由香港学联前秘书长周永康出任董事会主席，港大《学苑》前总编梁继平担任新执行总监，另有多名流亡港人加入成为委员或顾问，包括前立法会议员许智峰、前香港大专学界代表团发言人张昆阳。](https://hk.epochtimes.com/news/2021-09-26/50354732)
 
-我太虚弱了。他们做了各种测试，包括侵入式阴道测试。
+[罗冠聪昨日在Facebook上传他、周永康、梁继平及张昆阳与美国多名议员的合照，指他们已与美国参众两院议员会面，倡议推动通过《香港避风港法案》，今次是HKDC重组后的首次行程。](https://hk.epochtimes.com/news/2021-09-26/50354732)
 
-It wasn’t easy.
+[他们会见了民主党的众议院议长佩洛西、众议员麦高文（James McGovern）、参议员默克利（Jeff Merkley），以及共和党参议员布莱克本（Marshall Blackburn）、参议员霍利（Josh Hawley）。](https://hk.epochtimes.com/news/2021-09-26/50354732)
 
-这并非易事。
+[罗冠聪又说，重组后的HKDC会更恒常地与美国国会，及政府部门安排会议，并加深HKDC与香港社群的联系，成为港人在华盛顿最具代表性的声音。](https://hk.epochtimes.com/news/2021-09-26/50354732)
 
-I’m still bleeding, for almost 3 weeks, still have blood clots,
+[HKDC在2019年9月17日成立，是位于美国华盛顿的关注香港民主的组织，曾协助推动《香港人权与民主法案》。](https://hk.epochtimes.com/news/2021-09-26/50354732)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-11.20.22-AM.png)
+**9. ****新冠疫苗外展队首次到私人屋苑为居民打针**
 
-我还在出血，差不多 3 周了，还有血块，
+[据【香港电台】9月26日讯，公务员事务局局长聂德权表示，新冠疫苗接种外展队今日到马鞍山一个私人屋苑为大约100名住客打针，是外展队首次到私人屋苑服务。](https://news.rthk.hk/rthk/ch/component/k2/1612342-20210926.htm)
 
-Like I’m after giving birth. I’m 47, I didn’t just give birth.
+[聂德权在社交网页说，他与恒基地产执行董事孙国林亦有到场，聂德权引述对方表示，还有9个屋苑可以外展接种。聂德权又引述有住客表示，外展接种方便。](https://news.rthk.hk/rthk/ch/component/k2/1612342-20210926.htm)
 
-就像刚生完孩子一样。我 47 岁了，我不是刚刚生过孩子。
+[他表示，目前六成六12岁或以上人士已打了最少一针，约410万名市民完成接种两剂疫苗。公务员团队、医管局员工和学校教职员已有超过九成接种至少一针，而安老和残疾人士院舍职员则有八成。](https://news.rthk.hk/rthk/ch/component/k2/1612342-20210926.htm)
 
-And I’m still in great pain.
+【以上观点仅代表笔者本人 并不代表GNEWS立场】
 
-而且我仍然剧烈疼痛。
-
-They gave me pills for blood clots.
-
-他们给了我治疗血栓的药片。
-
-Why am I supposed to take pills for blood clots?
-
-为什么我应该服用治血栓的药？
-
-I never needed pills, I don’t have chronic disease or blood issues..
-
-我从不需要吃药，我没有慢性病或血液问题。
-
-I received the first and second shot.
-
-我打了第一针和第二针。
-
-After the second shot… I had a miscarriage.
-
-第二针后… 我流产了。
-
-One day I got home and went to sleep. My husband woke me up saying:
-
-一天我回到家睡着了。丈夫叫醒我说：
-
-“Meital, wake up”. I asked what’s wrong. He said “ you’re bleeding.”
-
-“梅塔尔，醒醒”。我问怎么了。他说：“你在流血。”
-
-I said “let me sleep. I had a rough night, I was in pain.”
-
-我说：“让我睡吧。 这一夜太难受了，我很疼。”
-
-“Meital, wake up, you’re bleeding.” I got up, and thought I was dreaming.
-
-“梅塔尔，醒醒，你在流血。” 我起身了，还以为是在做梦。
-
-The entire bed was full of blood. A huge puddle of blood.
-
-整张床都是血。一大滩血。
-
-I showered and cleaned everything.
-
-我淋浴后清理了一切。
-
-I wanted to go downstairs to drink and my husband said he’ll get it for me.
-
-我想下楼喝点水，我丈夫说他会帮我拿。
-
-I barely got to the 3rd step, and blood was everywhere, walls, stairs.
-
-我勉强走到了第三步，结果到处都是血，墙壁啊，楼梯啊。
-
-I went to my doctor and asked to do a blood clot test.
-
-我去看医生并要求做一项血栓测试。
-
-To test the blood clotting… however you call it.
-
-测试血液凝固…不管你怎么称呼它。
-
-He refused. I asked why.
-
-他拒绝了。我问为什么呀。
-
-He said he’s not supposed to refer me to do this test.
-
-他说他不应该让我做这个测试。
-
-I asked him “so who should refer me if not you?! Who?”
-
-我问他“那么如果不是你，谁应该介绍我做？！谁？”
-
-I got into a state where the strong immune system I had…
-
-我进入了一种状态，我拥有强大的免疫系统…
-
-I never needed pills, I was never sick, never had a flu, fever, anything…
-
-我从不需要吃药，我从来不生病，从未感冒、发烧，任何病…
-
-My immune system just collapsed in a way…
-
-我的免疫系统以某种方式崩溃了…
-
-that can’t be explained. I turned from healthy to sick.
-
-这无法解释。我从健康变成了病态。
-
-I had severe tiredness… I can’t even describe it. I was no longer myself.
-
-我严重疲倦… 甚至无法形容。我不再是我自己。
-
-I was bleeding for a month, it’s not an easy thing to go through.
-
-我流了一个月的血，这不是一件容易的事。
-
-It’s a disaster!
-
-这是一场灾难！
-
-I have one daughter, and I won’t let her receive the vaccine.
-
-我有个女儿，我不会让她接种疫苗。
-
-I won’t let her go through what I’ve been through.
-
-我不会让她经历我所经历的。
-
-She’s my only hope for a grandchild. I’m not gonna mess up her uterus.
-
-她是我有孙辈的唯一希望。我不想让她的子宫坏掉。
-
-There’s no chance in hell. No chance. No one will convince me otherwise.
-
-地狱里没有机会。没有机会。没人会说服我。
-
-It’s a disaster! It has to be stopped once and for all.
-
-这是一场灾难！它必须彻底停止。
-
-I spoke to many, many women I know,
-
-我和很多很多我认识的妇女谈过，
-
-Many women had the same issues I was having, many women had a “quiet birth”.
-
-许多女性和我有同样的问题，很多女性都“静静地分娩”。
-
-It’s… just horrible. Horrible. It has to be stopped once and for all.
-
-这…太可怕了。太可怕了。它（打疫苗）必须完全停止。
-
-**Disease Outbreak**
-
-**疾病爆发**
-
-My name is Smadar.
-
-我叫斯马达尔。
-
-I received the first shot only
-
-我只打了一针
-
-because I had a severe and immediate adverse reaction
-
-因为我对疫苗有严重、立即的不良反应
-
-to the vaccine, Anaphylactic shock.
-
-过敏性休克。
-
-My heart was pounding, I felt like it’s coming out of my chest.
-
-我的心怦怦直跳，感觉要从胸膛里跳出来。
-
-I felt like my face and neck are burning, everything turned red.
-
-我觉得我的脸和脖子都在燃烧，一切都变红了。
-
-I felt like I was about to faint. I felt really bad.
-
-我感觉自己要晕过去了。那种感觉真的很糟糕。
-
-They rushed me to the ER.
-
-他们赶紧送我到急诊室。
-
-Then they diagnosed the Anaphylactic shock.
-
-然后他们确诊是过敏性休克。
-
-I was injected with adrenaline, steroids intravenously…
-
-他们给我静脉注射了肾上腺素、类固醇…
-
-I was admitted for 5 days, and every morning I had another bout of Anaphylactic shock.
-
-我住院 5 天，每天早上休克一次。
-
-It totally destroyed me. I felt very very weak.
-
-我被彻底击垮。我感到非常非常虚弱。
-
-I had numbness in my palms,
-
-我手掌麻木，
-
-a metallic taste in the mouth… All sorts of weird symptoms.
-
-嘴里有一种金属味道…各种奇怪的症状。
-
-I was released in a wheelchair. I couldn’t stand on my feet.
-
-我出院时坐着轮椅，法站起来。
-
-It took about two months for me to be able to walk around.
-
-我花了大约两个月的时间才可以走动。
-
-The progress was very slow. Extreme fatigue.
-
-进展非常缓慢。极度疲劳。
-
-Severe weakness. And the symptoms were piling up.
-
-极度虚弱。而且症状越来越多。
-
-Suddenly I was having pain in my jaw, from mouth to ear.
-
-突然，我的下巴从嘴到耳朵都痛了。
-
-A family doctor diagnosed an inflammation of the nerve, so I was given antibiotics.
-
-一位家庭医生诊断出是神经发炎，所以给我开了抗生素。
-
-Suddenly I was having shortness of breath, difficulty to breathe.
-
-突然间，我呼吸急促，呼吸困难。
-
-Every small effort, to this day, I’m panting like I ran a marathon.
-
-直到今天，每一次小小的尝试，我都像跑马拉松一样气喘吁吁。
-
-I’m having difficulty in functioning. I used to love traveling, and..
-
-我活动有困难。我曾经喜欢旅行，还有…
-
-walking. Today I’m very disabled.
-
-步行。现在我严重残疾了。
-
-A Rheumatologist and an Orthopedist diagnosed that it’s Fibromyalgia
-
-一位风湿病学家和一位骨科医生诊断出这是纤维肌痛
-
-that suddenly burst into my life.
-
-它突然闯进了我的生活。
-
-The Rheumatologist said that Fibromyalgia can burst due to trauma.
-
-风湿病学家说，纤维肌痛会因创伤而爆发。
-
-He said it’s no wonder, because my body went through severe trauma.
-
-他说这并不奇怪，因为我的身体经历了严重创伤。
-
-I feel, like many people in my situation, hopeless. Don’t know what to do.
-
-我，和我处境相同的许多人一样，觉得没有希望。不知道该怎么办。
-
-My name is Oscat. I got the vaccine,
-
-我叫奥斯卡特。我打了疫苗，
-
-because I wanted to keep my job.
-
-因为我想保住我的工作。
-
-Since I got vaccinated, on the following day or two,
-
-打完疫苗后的一两天，
-
-I felt off. My body wasn’t… Wasn’t alright.
-
-我感觉不对劲。 我的身体…不对劲。
-
-I have Endometriosis.
-
-我得了子宫内膜异位症。
-
-I felt like I was having my period, giving birth and ovulating,
-
-感觉我正在同时经历月经、分娩和排卵，
-
-all in the same time. My whole body contracted.
-
-都在同一时间。我整个身体萎缩了。
-
-I couldn’t stand touching my own skin, or having someone go near me.
-
-我无法忍受触摸自己的皮肤，或者让别人靠近我。
-
-It’s been like that for 3 weeks.
-
-就这样持续了 3 周。
-
-I changed my diet completely to avoid the chronic pain from the Endometriosis.
-
-我完全改变了我的饮食以避免子宫内膜异位症引起的慢性疼痛。
-
-I got the second shot. The nurse asked “how was it?”
-
-我打了第二针。护士问：“怎么样？”
-
-“I’m not sure. I’m feeling this and that…”
-
-“我不确定。我感觉忐忑不安…”
-
-He says “oh, it’s an adverse effect.”
-
-他说：“哦，这是一种不良反应。”
-
-I got my period two days after the second shot,
-
-第二次注射两天后我来了月经，
-
-from then on it was the Seventh Hell.
-
-从此就是第七层地狱。（从此情况及其糟糕。）
-
-I was feeling severe pain that I haven’t felt for at least 4 years.
-
-我感到了至少 4 年没有感受过的剧烈疼痛。
-
-I couldn’t feel my legs. This whole area felt like concrete.
-
-我双腿无感觉。整个区域感觉像混凝土。
-
-This whole experience was very distressing and shaky.
-
-这整个经历非常令人痛苦，摇摇欲坠。
-
-Like, where did this come from? Why?
-
-比如，咋得的呢？为什么？
-
-My Endometriosis got worse. Like I haven’t changed my diet
-
-我的子宫内膜异位症恶化了。就像我没有改变过我的饮食
-
-like I haven’t done anything in the past 4 years, keeping a healthy lifestyle.
-
-就像我过去 4 年保持健康的生活方式却没有做任何事情一样。
-
-I was left with nothing but the pain, in each period.
-
-每次经期，只剩下痛苦。
-
-I suffered for 16 years from Endometriosis.
-
-我患有子宫内膜异位症 16 年了。
-
-In the past 4 years I was in complete control over it.
-
-在过去的 4 年里，我完全控制了它。
-
-It was dormant. I had no issues or difficulties during my period.
-
-它处于休眠状态。我在月经期间没有任何问题或困难。
-
-Suddenly, shortly after the first vaccine, I lost control over my body.
-
-突然，在第一针疫苗后不久，我失去了对自己身体的控制。
-
-I don’t know what lies ahead. I don’t know how to handle it.
-
-我不知道以后会发生什么。我不知道如何处理。
-
-In terms of work, I can’t schedule anything because I don’t know what will happen.
-
-至于在工作方面，我不能安排任何事情，因为我不知道会发生什么。
-
-I feel like I got screwed.
-
-我觉得我被坑了。
-
-I wanted to be well and eventually harmed my health.
-
-我想要活得好，最终却损害了我的健康。
-
-I would like to ask the Endo community to think twice and hear testimonies
-
-我希望患有子宫内膜异位症的人们三思而行，听听证词
-
-because there are many women with Endo who suffered from aggravation.
-
-因为有很多患有子宫内膜异位症的女性（接种疫苗后）病情加重了。
-
-Take that into consideration. There are many scary things in the world.
-
-考虑考虑这个问题。世界上有很多可怕的事情。
-
-I’m scared of the Endometriosis pain more than of COVID.
-
-与COVID相比，我更害怕子宫内膜异位症带来的疼痛。
-
-翻译：JS709|校对：Nick|视频制作+字幕：小腾腾说
-***编辑&发布：黎明的光芒***
-
-**[以色列COVID-19 疫苗受害者证词 (1/6)](https://gnews.org/zh-hans/1553403/)**
-
-[以色列COVID-19 疫苗受害者证词（2/6）](https://gnews.org/zh-hans/1555478/)
+校对 / 封面合成：文粤 / 发布：流光飞舞

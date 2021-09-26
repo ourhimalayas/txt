@@ -2,21 +2,34 @@
 ---
 
 
-## 秘翻在线：狂热的疫苗接种支持者第三次注射后死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556274/)
+## 《证词项目》：以色列毒针受害者亲述惨痛经历
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556331/)
 
-翻译：Nstar
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-381.png)
+昨天，文贵先生在盖特发布纪录片《证词项目》的节选片段。这部由以色列人民委员会制作的纪录片，讲述了新冠疫苗受害者所遭受的痛苦。该纪录片旨在提供一个平台，确保受害者的声音被听到，并鼓励越来越多的人讲述自己的故事。
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-26-222808.jpg)**图片来源: report2**4
-据网络媒体Report24于2021年9月25日报道称, 美国伊利诺伊州的圣母大学著名名誉教授凯伦·克罗克·海斯勒 (Karen Croake Heisler) ，在她接受了 Biontec / Pfizer的第三个疫苗“加强针”后 12 天去世了，享年67岁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-24.jpeg)
 
-凯伦·克罗克·海斯勒教授是中共冠状病毒疫苗运动最热情、最狂热的支持者和疫苗接种运动的倡导者之一, 她在其他中共病毒疫苗问题上也是“模范”，喜欢在户外戴口罩拍照（甚至带着她的狗带着特殊的 FFP 面具散步）。然而讽刺的是， 9 月 7 日，她注射了第三剂“加强针”后，这个一直健康的女性其健康状况迅速恶化，不到两周后她就去世了。越来越多的人报告称，他们在接种新冠疫苗后患上了癌症，或者现有的癌症突然发生了“爆炸性”扩散。
+在过去几个月，采访人阿维塔发现，身边的人因为接种新冠疫苗相继出现了严重的不良反应，却没有任何一家新闻媒体或记者对疫苗进行调查，也没有公布相关数据。而当她得知以色列政府计划给青少年注射疫苗的时候，身为两个孩子的母亲，阿维塔决定参与这部记录片的制作。
 
-根据她自己推特账户上的信息，这位前教授曾忙于更新她的“疫苗接种进度”。她于 1 月 13 日接种了第一剂 mRNA 疫苗，第二剂在4月初打的，因为4月9日，她说她和她的丈夫有轻微的疫苗接种反应。
+该片中，数十位受访者接种新冠疫苗后，或患上心肌炎、心包炎等心脏疾病，或受皮肤疾病的困扰，还有些人发生出血，或产生严重的神精系统疾病。他们勇敢地在镜头前讲述自己的惨痛经历，希望给疫苗接种者以警示，更希望用自己的亲身经历，向以色列政府部门揭示疫苗造成的伤害，以阻止政府对青少年接种疫苗的计划。
 
-海斯勒于 1993 年至 2018 年在伊利诺伊州的圣母大学的电影、电视和戏剧学院 (FTT) 任教，这位狂热的疫苗接种宣传员甚至公开“诅咒”未接种疫苗的人, 她坚定地捍卫疫苗接种直到她的最后一口气 。她曾经说：“ 未接种疫苗的人是‘自私的’，他们应该待在家里直到他们‘清醒’，否则拒绝接种疫苗的人要为自己的疾病负责…”
+爆料革命文贵先生向世界警示，疫苗和病毒造成的伤害将是切尔诺贝利事故的数万倍。我们要坚持继续传播病毒和疫苗真相。在觉醒的人民和事实面前，各国政府逐渐转变意识。欧盟将于10月取消疫苗护照的消息，为全世界迎来了一丝曙光。
 
-最终的结果是**，**她自己为她对中共病毒疫苗的狂热和对清醒人们的诅咒付出了代价。
+（本文仅代表作者观点）
 
-**信息来源: **[**https://report24.news/fanatische-impfanhaengerin-us-professorin-stirbt-nach-dritter-spritze/?feed\_id=5690**](https://report24.news/fanatische-impfanhaengerin-us-professorin-stirbt-nach-dritter-spritze/?feed_id=5690)
+参考链接: [https://gettr.com/post/pc9b02895d](https://gettr.com/post/pc9b02895d)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
