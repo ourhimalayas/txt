@@ -2,133 +2,55 @@
 ---
 
 
-## 为何打疫苗和知道真相以后的恐惧
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556060/)
+## G时评：消极避世，不如积极入世
+` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1556126/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-20.jpg)https://gtv.org/video/id=615042bed2e2b817486e3d8f
-郭文贵
-Miles Guo
+**作者/图片设计：Giselle**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/甲虫-1.png)
+民国最有名望的高僧弘一法师李叔同，在39岁盛年之时突然出家。关于这位书法、诗画、艺术、音乐、话剧无一不精通的大才子的出家理由，众说纷纭。
 
-战友们一定你们要有一个（认识）
-Comrades in arms, you must have one knowledge
+有人认为，李叔同是受父亲的影响，李父乐善好施礼佛，对他影响很大。还有人认为，李叔同天性孝顺，与母亲关系亲近，李母的去世对他打击很大，为他以后的出家埋下了伏笔。
 
-世界上造成这次冠状病毒、疫苗最大的瞒天过海
-Creating the biggest scam of the COVID-19, vaccines in the world,
+李叔同的弟子丰子恺则认为，人生的追求分物质、精神和灵魂三个层次。李叔同少年时享受过丰厚的物质生活；青年时留学日本研习绘画，学贯中西，享受了丰厚的精神生活；他之后出家、皈依宗教，是为了追求灵魂上的生活。
 
-能让很多人打疫苗的原因就是因为
-and enabling a lot of people vaccinated, the reasons are
+可是，破除物质世界中的“我执”，追求灵魂上的安宁，真的需要出家吗？只有出家才能做到灵魂上的宁静吗？避世与入世，究竟哪个更适合灵魂层面的修行？
 
-所有西方人是相信医疗系统的，是相信科学的
-all Westerners trust the medical system and trust the science
+传说李叔同为了坚定修行信念，自遁入空门之后，不与家人通信，也不接待来访亲友，甚至他的妻子带着孩子来寺庙哭求，也不出来相见……
 
-而就是一定要记住西方的文明和法治社会，和民主社会，是跟科技和
-and (you) must remember that the Western civilization and society under the rule of law, and the democratic society
+李叔同急于突破感情的桎梏，所以选择了这种不近人情的了断方式，然而，他真的放下了吗？
 
-工业文明开始的
-have started with technology and industrial civilization
+1942年，出家23年的弘一法师，临死之前留下“悲欣交集”四个字，让人心生感慨：他若真的放下了，又何来“悲欣交集”？他若根本没有放下，那出家又有什么意义？
 
-在西方建立社会的基础是科学作为基础的
-building a foundation of society in the West is based on science as the foundation
+其实，从李叔同决定出家，与妻儿断情绝爱的那一天开始，他已经走入了执念当中。
 
-大家都不相信政府，也不相信政客
-No one trusts the government neither the politicians
+修行不是要消灭所有的人性，而是战胜自身的贪嗔痴慢疑，获得智慧、勇气、慈悲、正义、节制等美德。
 
-多少年，我到哪儿去，对政客都是骂的
-For years, everywhere I went, all I heard was cursing of politicians
+造物主让我们通过爱自己，学会了爱家人；通过爱家人，学会了爱众生。此时，在你的眼里，自己、家人、众生，又有什么区别呢？断情绝爱又有什么意义呢？
 
-都是不相信的
-People do not trust politicians
+遁入空门，这种行为本身就是一种“着色相思维”。
 
-但是对科学大家都相信的，还有就是对媒体
-But people believe in science and also the media
+若你心里没有“家”的桎梏，何来“出家”一说？
 
-过去认为媒体都是有两三家，说媒体是可以相信的。完了
-In the past, (everyone) believed that there were two or three media could be trusted. It’s over.
+若你能看透世间万象，明白“红颜”“枯骨”的意义，又何须遁入空门、消极回避？
 
-这回邪恶的势力和中国共产党玩的就是玩得把科学全部垄断
-What the evil forces and the Chinese Communist Party are playing this time is to monopolize science
+我们修行，不是要扼杀我们所有的人性，而是战胜肉身中的贪嗔痴慢疑，学会爱与被爱等“神性”。
 
-它把媒体全部垄断
-It monopolizes the media
+当你明白了这一点之后，在你眼里，家人即众生，众生即家人。这个时候，家人和众生，又有什么区别呢？爱家人，就是爱众生；当你抛弃家人，又如何关爱众生呢？
 
-这个情况下，很多人打疫苗
-In this case, a lot of people get vaccinated
+五祖弟子神秀偈语：身是菩提树，心如明镜台，时时勤拂拭，勿使惹尘埃。
 
-绝大多数人都是因为一个
-most of the people are because of one (reason)
+神秀虽然勤勉，可是慧根有限，他眼里有菩提树，心里有明镜台，虽然时时勤拂拭，仍然逃脱不了三维世界的局限。
 
-本身就害怕死，恐惧
-fear of death
+六祖惠能偈语：菩提本无树，明镜亦非台，本来无一物，何处惹尘埃。只有理解了这种“不着色相思维”，才能真的达到：无我、无色、无相的化境。
 
-还有一个原因，他相信科学
-another reason is that they believe in science
+由此可见，李叔同虽然出家23年，还是被牢牢地桎梏在三维物质世界里，停留在“看山是山”的表象思维当中，“有我，有色，有相”。他离世时留下“悲欣交集”四个字，大概就是这个意思吧。
 
-还有更重要的事情 ，它（相信）媒体
-and the more important thing is that they trust media
+“长亭外，古道边，芳草碧连天。晚风拂柳笛声残，夕阳山外山。天之涯，地之角，知交半零落。一瓢浊酒尽余欢，今宵别梦寒……”
 
-所以说现在当你跟任何人说，很多人就马上就（产生）那种恐惧感
-So when you talk to anyone now, many people immediately (have) that sense of fear
+弘一法师李叔同重情重性，极富才情。他留下的作品不多，诗歌《送别》就是其中最脍炙人口的传世之作。他壮年之时决绝出家，人世间便少了一位风流才子，实在是令人扼腕叹息。
 
-哇现在一个和平的美食美酒，点着火炉
-Wow, currently there is a peaceful meal with nice food and wine, a warming stove
+遁入空门，不如栖身红尘；消极避世，不如积极入世。
 
-是不是，天高云淡
-Isn’t it? The sky is high and the clouds are pale
+世间所有的大智慧，都是为了解决现实世界中的大问题而产生的。遁入空门求智慧，无异于缘木求鱼，难免落入纸上谈兵俗套，对于提升修炼者的灵魂，并不会有大益处。
 
-后面还有美山美水
-There are beautiful mountains and crystal clear water behind
-
-面对着自己
-facing one’s own
-
-千万财富亿万财富
-tens of millions of wealth, billions of wealth
-
-突然说他可能要死了
-and suddenly said he might be dying
-
-兄弟姐妹们，你想过这感觉了吗
-Brothers and sisters, have you thought about how it feels?
-
-这个很吓人你知道吗，那人的那种恐惧真的瞳孔就要扩散的感觉呀
-This is very scary. Do you know? That kind of human fear really feel like the pupils are about to diffuse
-
-你谁也受不了，搁在谁身上谁也受不了
-None of you can stand that, no one can stand it
-
-说这有可能要完蛋
-Saying that it might be the end
-
-问疫苗， 马上说哎有解药没有，有解药没有
-(They) asked about the vaccine, and immediately asked whether there is any antidote
-
-全要解药，那药是什么名字，跟我说叫什么名字
-(They) all demand the antidote, what’s the name of that medicine, tell me what’s the name of it
-
-谁都怕死
-Everyone is afraid of death
-
-这个时候你知道，你会发现
-At this time you know, you would find out that
-
-不是每个人都有解药的
-not everyone has an antidote
-
-真的不是每个人都能觉得扛过去这个恐怖的
-really not everyone can overcome this fear
-
-很多人你知道， 他回去一夜一夜睡不着觉
-Many people, you know, they couldn’t sleep nights after nights when he went home
-
-原视频日期：2021/09/21
-原视频链接: https://twitter.com/se1y7cblljselva/status/1440864540116197384?s=24
-视频时间段 : 0:00-2:12
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（**文章内容仅代表作者个人观点）**

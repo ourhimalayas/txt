@@ -2,37 +2,178 @@
 ---
 
 
-## 日本31所大学加强对留学生审查 主要针对中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556035/)
+## 墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556052/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-82.png)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-19.jpg)https://gtv.org/video/id=615044f3d2e2b817486e3df1
+Rukshan Fernando (Australian Independent Journalist)
+鲁克山 费尔南多（澳大利亚独立记者）
 
-《法国国际广播电台》9月25日消息，日本的一些大学已经开始实施或正在考虑更严格实施对研究尖端技术的留学生进行相关身份审查。
+That’s right, Laura, I mean look,
+没错，劳拉，我的意思是, 看
 
-鉴于中共国奉行民间技术应用于军事的“军民融合”政策，有观点认为，可转用于军事的尖端技术可能会通过留学生外流。随着日本政府开始对此加强管理，大学方面也将不得不做出应对。
+these are just everyday Australians everyday Victorians.
+这些只是澳大利亚人的日常，维多利亚人的日常
 
-据《共同社》报道，日本目前已有31所大学开始对留学生加强审查，以防止尖端技术外流。
+They’re protesting right now, the government said,
+他们现在正在抗议，而政府说
 
-该媒体23日获悉，一项针对被指与参与中国人民解放军武器研发的中共国大学签订学术协议，及外国留学生较多的日本公立和私立大学的调查结果显示，在作答的56所大学中，有31所已经实施或正在考虑更严格实施对有关研究尖端技术的留学生，进行与出身和组织相关的身份审查。
+you know, protesting is illegal.
+你知道，抗议是非法的
 
-许多日本大学过去仅仅只让留学生申报其最终学历。而本次调查显示，有过半数的31所大学已经或正在考虑加强对过去学历、工作履历等身份审查；有10所大学会询问留学生是否有意入职军事相关组织；有14所大学会确认外国机构的资金支援内容。
+You can’t be on the street, so the police using all sorts of tactics
+你不能在街上，所以警察使用各种策略
 
-本次调查共涉及67所日本大学，包括与被称为“国防七子”的中共国7所开展军事相关技术研究的大学签订交流协议；设有汉语教育机构“孔子学院”；以及截至去年5月留学生人数排名前30的大学。最终，有56所大学参与作答，而该调查是在原则上不公开各大学回答内容的条件下进行的。
+and measures against just ordinary working class Australians,
+和战术来针对普通澳大利亚工人阶级
 
-《共同社》的报道称，在美中关系对立激化的背景下，日本政府于6月宣布加强对尖端技术的出口管理。对大学向接受外国政府研究资金或受特定国家影响的留学生提供技术的情况，采取经济产业许可制。
+so that that actual visual that you talked about the lady being pushed over.
+所以你谈到的那个女士被推倒的那个实际的视觉
 
-不过，根据此次调查结果，对于要求留学生签署“回国时不将受管制技术带出日本”的保证书等确认工作，只有24所大学表示实施或考虑实施，仅占四成；而对于确认是否有外国资金支援，响应的大学则更少，凸显出日本对技术外流风险缺乏有效对策的现状。
+You know that was during a police want to clear clear road up there with
+你知道那是在警察想要清理那里的道路时
 
-此外，针对参加中共国人才引进“千人计划”的学者，日本政府也在加强掌握日本学者参与海外联合研究的状况。调查显示，仅有不到3成的16所大学就联合研究建立详细申报制度。而对于为中共国进行政治宣传，被美国加强监视的孔子学院，日本共有14所大学开设，目前仅有1所大学表示考虑调整运营体制。
+where there was protesters and even after she was pushed over
+有抗议者的地方，甚至在她被推倒之后
 
-根据《共同社》提供的数据，截至去年5月，日本国内留学生人数约为28万人。从国籍来看，中共国的留学生最多，占到总数的4成以上。
+that particular police officer sprayed her in the face with OC spray.
+那位警察用辣椒油树脂喷雾剂喷她的脸
 
-中共国多年来派往先进国家的留学生，尤其是公派留学生，很多都“肩负”着为国偷窃技术的“重任”；即便有些人最初留学的初衷并非如此，但也会逐渐被中共在当地的领事馆或华人协会等中共统战组织收编，有些甚至是因家人遭胁迫被迫就范。
+I mean these are tactics that are being used against everyday Australians,
+我的意思是，这些是针对普通澳大利亚人的战术
 
-对于中共在全世界范围内利用留学生偷盗技术并屡屡得手，西方文明国家要么是对中共的邪恶认识不足；要么是为了一些短浅的经济利益；要么是某些相关人士被中共拉拢腐蚀，不顾国家安全，出卖国家利益，否则怎么会这么多年来，对中共借留学生偷盗尖端技术，尤其是涉及国家安全的先进军事技术，毫无防备或视而不见。
+and it’s like, he said it’s like it’s from a communist China,
+就像，他说这就像来自共产主义中国
 
-注：本文仅代表作者观点
+Laura Ingraham (Fox News host)
+劳拉·英格拉汉姆（福克斯新闻主持人）
 
-**新闻链接：**[https://twitter.com/RFI\_Cn/status/1441712852377608197](https://twitter.com/RFI_Cn/status/1441712852377608197)
+and you were yourself harassed by a security official the police over the summer,
+而且你自己在夏天就被警察的安全官员骚扰过
+
+I guess we’re attending one of those anti lockdown rallies
+我想我们正在参加其中一场反封锁集会
+
+and you caught the incident on tape, Watch.
+你的这件事被记录在了录像带上，请看
+
+Rukshan Fernando
+鲁克山 费尔南多
+
+I’ve Just got a letter here about tomorrow’s action,
+我刚收到一封关于明天行动的信
+
+What’s tomorrow’s action?
+明天的行动是什么？
+
+This is the second time that you guys come here
+这是你们第二次来这里
+
+Why do you have my address?
+为什么你们有我的地址？
+
+Policeman
+警察
+
+We are the police.
+我们是警察
+
+Rukshan Fernando
+鲁克山 费尔南多
+
+I know you’re the police
+我知道你们是警察
+
+Why are you looking up journalists?
+你为什么要找记者的麻烦？
+
+Why are you looking up people?
+你为什么要找人民的麻烦？
+
+Who work in the media?
+谁在媒体工作？
+
+I’m reporter, man
+我是记者，老兄
+
+Policeman
+警察
+
+I don’t know why you were there
+我不知道你为什么在那里
+
+Laura Ingraham
+劳拉·英格拉汉姆
+
+Rukshan that is also absolutely chilling for anyone
+鲁克山，对于任何相信自由表达和报道的人来说
+
+who believes in free expression and reporting.
+这绝对是令人心寒的
+
+Rukshan Fernando
+鲁克山 费尔南多
+
+Well this is the thing, Laura
+劳拉，嗯，事情就是这样，
+
+they have no problem with the mainstream media
+他们对主流媒体没有意见
+
+but you know, for us independent reporters that don’t,
+但你知道，对于我们这些独立记者来说就不行
+
+You know, follow that same narrative that the government is putting out there
+你知道，遵循政府在那里发布的相同叙述
+
+and, you know, we’re on the ground,
+而且你知道，我们是在现场
+
+you know, showing the people, interviewing the people
+你知道，向人们展示，采访人们
+
+and just letting their voices be heard.
+而且只是让他们的声音被听到
+
+They don’t like that type of coverage
+他们不喜欢那种类型的报道
+
+so, you know, they want to classify people in independent media,
+所以，你知道，他们想对独立媒体中人进行分类
+
+as you know, protested as well
+如你所知，抗议也同样
+
+and that’s why they’re using this type of tactic
+这就是为什么他们使用这种策略
+
+to silence these these voice and the stories being told
+来压制维多利亚州和澳大利亚人民
+
+by the people of Victoria and Australia,
+的声音和故事
+
+Laura Ingraham
+劳拉·英格拉汉姆
+
+Australia’s making China proud,
+澳大利亚让中共国骄傲
+
+and those that footage just, I can’t stop watching
+而那些片段，我不能停止观看
+
+Rukshan, Thank you.
+鲁克山，谢谢
+
+原视频日期：2021/09/22
+原视频链接: https://twitter.com/miminguyenly/status/1440876691388198913?s=24
+视频时间段 : 0:00-1:58
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
