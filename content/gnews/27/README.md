@@ -2,26 +2,45 @@
 ---
 
 
-## 塔利班挂尸示众，往日残酷统治复活
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1555606/)
+## 克罗地亚总统称：克罗地亚不再允许接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555703/)
 
-作者：东京樱花团 文小白
-![](https://lh6.googleusercontent.com/KV3E0Oo7fInnCh3mQO2gKGjdOa4I7UpYqAY4no6od033beebtK8NKooTbSSCtqSfTVPUnF1v1bIlZjTOHs6mMCkCnfOLISgVPlgLGQU6q6KQ5HYZy0-zbAgjq2A4qn1zwjFAyIjC=s0)
-[图片来源](https://www.voachinese.com/a/taliban-hang-body-in-public-20210925/6245597.html)
+栏目记者/责任编辑：正义的小新
 
-塔利班在一个城市的广场悬挂尸体示众，显示出过去残忍的统治手段复活。
 
-塔利班周六（25日）在阿富汗西部城市赫拉特（Heart）的广场用吊车吊挂一个死尸。在广场边上经营药店的赛迪奇（Wazir Ahmad Seddiqi）对美联社说，塔利班官员带来了4具尸体，称这4人周六早些时候参加一起绑架活动被警察击毙。随后将其中3具带到这个城市的其它地方公开展示。一名塔利班匿名官员在广场上接受美联社采访时说，“此次行动的目的是警告所有罪犯，他们并不安全。”
 
-塔利班8月15日夺取阿富汗政权以来，阿富汗人和全世界一直在关注塔利班是否会延续过去的残酷统治。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-塔利班创始人毛拉图拉比（Mullah Nooruddin Turabi）这个星期对美联社说，塔利班将再次实行处决和截去双手。图拉比对美联社说，“没人会告诉我们说我们的法律应该是什么。我们将遵守伊斯兰，我们将根据《古兰经》制定我们的法律。”
 
-·延伸阅读：[https://search.yahoo.co.jp/amp/s/amp.rfi.fr/cn/政治/20210910-联合国官员谴责塔利班对示威者及记者施暴-要求立即停止有关的暴力行为%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D](https://search.yahoo.co.jp/amp/s/amp.rfi.fr/cn/政治/20210910-联合国官员谴责塔利班对示威者及记者施暴-要求立即停止有关的暴力行为%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
 
-美国国务院表示，此类行为“构成对人权明显和公然的侵犯。”国务院发言人普赖斯25日对记者说，美国将“坚定地与国际社会站在一起，追究任何此类侵权行为肇事者的责任。”
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+据natural news报道，克罗地亚总统米兰诺维称，克罗地亚人已“接种了足够多的疫苗”，“将不再在继续接种疫苗”。目前，克罗地亚约有一半的成年人接种了疫苗。总统米兰诺维19日向媒体郑重声明，“克罗地亚的疫苗接种率不会超过 50%。”米兰诺维表示，绝大多数人不需要用注射所谓的疫苗来保护自己。他说，“我每天都看 CNN 等几个频道，我不知道是我是正常的、还是他们疯了。这些媒体从一开始就在撒谎、传播恐慌。”众多网友在此新闻下方纷纷留言。一位克罗地亚人评论道，她爱她的总统，并以身为克罗地亚人而自豪。另一位网友写道：“历史上，克罗地亚就从共产主义中幸存下来。我们需要更多像这样优秀的人担任领导人。”
+
+美国等世界大国被黑暗势力所控制、纷纷扎进医疗法西斯主义的深渊。然而，正义绝不会缺席，未来会有越来越多像克罗地亚这样的国家站出来，对毒针说不，对极权说不。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-88.jpg)
+参考链接：
+[President of Croatia exposes media for LYING and spreading panic about covid, says NO MORE vaccination allowed in his country](https://www.naturalnews.com/2021-09-25-president-croatia-exposes-media-lying-covid-vaccines.html)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

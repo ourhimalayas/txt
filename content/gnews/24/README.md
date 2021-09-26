@@ -2,10 +2,10 @@
 ---
 
 
-## 11月起，未接种疫苗的德国人将被剥夺隔离期间的政府补偿金
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555636/)
+## 盖特CEO杰森-米勒在英法两国推广盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555737/)
 
-栏目记者/责任编辑：正义的小新
+栏目记者/责任编辑：文真
 
 
 
@@ -15,18 +15,24 @@
 
 
 
-据natural news报道，自11 月起，未完全接种新冠疫苗的德国人被强制隔离时，将无法获得政府给予的补偿金。
+盖特CEO杰森-米勒本周在欧洲进行了旋风式的宣传之旅，为盖特走向国际市场争取支持。
 
-9月22日，德国卫生部长宣布，11月起，未接种疫苗的人被强制隔离后，将不会再收到政府提供的补偿金。此外，未接种疫苗的德国人将不再被允许免费接受中共病毒的检测，而是需要自掏腰包。无耻的政府，处处为难未接种疫苗的民众，迫使他们去打毒针。然而，德国卫生部长却仍称，“接种疫苗仍是‘个人决定’。他称此举是一个所谓“公平问题”，“那些通过接种疫苗来所谓‘保护自己和他人的人’，不应该给那些被隔离的人掏钱。”
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-121.jpg)
+米勒首先在法国拜访了法国总统候选人泽穆尔和马雷夏尔-勒庞。然后飞往伦敦会唔了前脱欧党党魁法拉奇，美国安提法组织调查专家恩戈，以及保守派Youtuber本杰明。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-66.jpg)
+多语言版本的盖特已于9月18日，在苹果和安卓等所有平台推出。米勒说，多语言版本非常重要，目前盖特约百分之十的用户使用中文。米勒还透露，盖特很多优秀的技术人员是中国人。
+
+目前，社交网络上保守派的声音，正在世界范围内遭受大科技公司的言论审查，打压和禁言。盖特向社会提供了一个公平发声的社交媒体平台，不会将政治立场列入要审查的范围。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-9.jpg)
 参考链接：
-[After throwing them in covid quarantine camps, German government also STRIPS prisoners of compensation payments to bankrupt them](https://www.naturalnews.com/2021-09-25-covid-quarantine-camps-germany-strips-prisoners-compensation.html)
+[GETTR Goes Global: Jason Miller on Whirlwind Tour of France and UK](https://www.thegatewaypundit.com/2021/09/gettr-goes-global-jason-miller-whirlwind-tour-france-uk/)
+
+[杰森·米勒在英法两国推广盖特](https://gnews.org/zh-hans/1553238/)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-终审： Ryan
+终审： 鬼五
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
