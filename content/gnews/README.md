@@ -103,29 +103,29 @@
 ### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [前五角大楼官员警示台湾正处于极度危险之中](/content/gnews/31/README.md)
+### [雅典娜时报-第063期](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [前五角大楼官员警示台湾正处于极度危险之中](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [中共进一步加强文化管制](/content/gnews/32/README.md)
+### [中共进一步加强文化管制](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [DC每日热点0925](/content/gnews/33/README.md)
+### [DC每日热点0925](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/34/README.md)
+### [“四方”峰会在印太向中（共）国发起挑战](/content/gnews/35/README.md)
  ` Charlie`
 
-### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/35/README.md)
+### [纽约市向公立学校工作人员批准530名学校工作人员对周一生效的新冠病毒疫苗的医疗和宗教豁免](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/36/README.md)
+### [台湾部署 “防空导弹”应对中共解放军的入侵](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚、印度、日本和美国领导人强调需要“稳定”的太平洋](/content/gnews/37/README.md)
+### [澳大利亚、印度、日本和美国领导人强调需要“稳定”的太平洋](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英属银行涉助北京压迫香港民主派 国会启动调查](/content/gnews/38/README.md)
- ` 日本东京方舟农场`
 
 ### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -151,36 +151,36 @@
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [为什么总有理由给贪官轻判](/content/gnews/47/README.md)
+### [共同富裕谎言](/content/gnews/47/README.md)
+ ` 首尔天池农场`
+
+### [为什么总有理由给贪官轻判](/content/gnews/48/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [四方伙伴签署供应链协议，莫里森敦促世界调查病毒来源](/content/gnews/48/README.md)
+### [四方伙伴签署供应链协议，莫里森敦促世界调查病毒来源](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国跨党派国会香港小组发起调查英银行有否打压香港自由](/content/gnews/49/README.md)
+### [英国跨党派国会香港小组发起调查英银行有否打压香港自由](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京既实施贸易制裁打压堪培拉，又高价抢购澳大利亚小麦](/content/gnews/50/README.md)
+### [北京既实施贸易制裁打压堪培拉，又高价抢购澳大利亚小麦](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国新技术将汽车重量大幅减轻](/content/gnews/51/README.md)
+### [英国新技术将汽车重量大幅减轻](/content/gnews/52/README.md)
  ` HimalayaRussia`
 
-### [AUKUS引北京提核打击准备](/content/gnews/52/README.md)
+### [AUKUS引北京提核打击准备](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [《什么是影子银行》](/content/gnews/53/README.md)
+### [《什么是影子银行》](/content/gnews/54/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/54/README.md)
+### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [欧洲煤炭价格达13年高位](/content/gnews/55/README.md)
+### [欧洲煤炭价格达13年高位](/content/gnews/56/README.md)
  ` HimalayaRussia`
 
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/56/README.md)
+### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/57/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [美国放松制裁允许与塔利班进行部分交易](/content/gnews/57/README.md)
- ` HimalayaRussia`
 
