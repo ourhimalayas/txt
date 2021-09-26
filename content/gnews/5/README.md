@@ -2,47 +2,629 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“恒大许家印”（八）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555457/)
+## 以色列COVID-19 疫苗受害者证词(二）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1555478/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/e301117f-e36a-430a-a38d-8a73e5c66305.jpg)图片来源：雅典娜设计组
-**整理：**KONG
-**编辑：**翼族
+以色列COVID-19疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到，希望这个项目能鼓励越来越多的人讲述他们的故事。
 
-【**编者按：**《文·贵天成》是雅典娜农场一个新的专栏。2017年1月以来，郭文贵先生通过直播和社交媒体，发起了一场改变世界的爆料革命运动，影响深远。本专栏将把文贵先生数年来关于某一特定话题的精华内容陆续整理成文字，以时间线排序，希望对读者更系统地了解爆料革命有所帮助。】
+证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/)
 
-[文·贵天成——文贵先生谈“恒大许家印”（一）](https://gnews.org/zh-hans/1542357/)
-[文·贵天成——文贵先生谈“恒大许家印”（二）](https://gnews.org/zh-hans/1545250/)
-[文·贵天成——文贵先生谈“恒大许家印”（三）](https://gnews.org/zh-hans/1545685/)
-[文·贵天成——文贵先生谈“恒大许家印”（四）](https://gnews.org/zh-hans/1549145/)
-[文·贵天成——文贵先生谈“恒大许家印”（五）](https://gnews.org/zh-hans/1551125/)
-[文·贵天成——文贵先生谈“恒大许家印”（六）](https://gnews.org/zh-hans/1552112/)
-[文·贵天成——文贵先生谈“恒大许家印”（七）](https://gnews.org/zh-hans/1553507/)
+My name is Marina. I didn’t want to get vaccinated.
 
-**郭文贵先生2021年9月14日直播**：
+我叫玛瑞娜，我不想打疫苗
 
-共产党封掉你，就像把一个男人给你割了，给你切了，你永远没有双修的能力。女的就整个把你阉了，真的是这样子。它想（对GTV）干这个，你们没搞明白，但它一样儿也没达到。第二个刑事起诉，诈骗，这些人告状说“我真的被骗了”，没毛的豆豆说“我拿了600万”，然后虚假陈述，说(GTV）给我各种承诺，跟恒大似的。
+I really didn’t want to, because I saw it wasn’t needed.
 
-我一会儿说恒大，刚才几个韩国投资者和日本投资者也投了恒大。我刚才给他说了句话，你见过全人类有一家好公司让员工投资的吗？我郭文贵创业三十几年，上千亿，去看我裕达，我们缺过钱，多次经济危机，有人说能不能内部员工把工资变股票，晚发工资，把裕达的什么发债券呀？我说我这一辈子，只要我不能发工资那天，我立马给员工跪下来，我立马让他们走人。我没有一天不发工资。
+我真的不想打，因为我觉得不需要打。
 
-大家要记住，接下来这个钱你往哪去投资，我在直播中不能说。你们要投哪？我再告诉你兄弟姐妹们，千万想明白了，哪怕有0.001的犹豫你都不要投（GTV），你去投恒大，恒大给你30%的回报，去投恒大，还投路大脑袋，蛇妖闫，你不要投下一个投资，不要被误导。如果你认为是可以投的，兄弟姐妹们搞明白，把文件一定签好，不要出第一个问题的错误。因为我告诉你们，你现在一个错误，你未来可能就像我2017年直播说的，最好的飞行员驾驶着最好的飞机，由于方向错误最快的时间走向灾难。
+I had to get it, because everyone at work got vaccinated and…
 
-所以现在大家记住，共产党内部的绞杀对我们灭共是好的。我们希望他们都互相弄死对方，那就太好了。但是我们希望中国不要走向汉朝之后的乱象——十国，或者是南唐时代，我们不希望中国再回到人吃人、把人给剁成肉当成这个军粮的时代，我们不希望看到恒大这样的企业，把最普通的人都坑了。我们希望坏人在我们的定向爆破中倒下，中南坑一个也不能留，肯定是新中国联邦人说了算。但是我们要告诉你这个消息，就希望让你能知道，你有本事你拒绝我们这个信息。现在，在中国共产党的内部的力量绝不是一股也不是两股，它还有一个邪恶的组织在掌控着。习大神，你不是那个组织的，我可以基本上断定，习大神明年你二十大你不可能成功，没有人能成功。这两个组织没有人会让你成功。王岐山孟建柱你搞不定你就不会成功。他两个当年能在北京，当成副总理，再弄成常委、中纪委，当时温家宝和胡锦涛虽然帮了你，但最后也帮了王岐山，对吧？
+但我不得不打，因为我工作的地方大家都打了。
 
-再一个就是恒大，你看恒大事件有多恐怖，里边竟然喊恒大叫许大大，许家印叫许大大。中国人见了习，喊习近平习大大，见了许家印叫许大大，我的祖宗，我真是丢死人了。哪有这样的民族？见谁都喊爹的？中国人有点常识好不好？全世界凡是让员工集资的公司，一定是骗子。GTV所有的投资，G系列，H-Coin，是在市场流通的，GTV是在法律保护下的。你每分钱，就是说，没有这个SEC调查，（如果）我把钱拿到我手里边了，我拿着GTV的投资者的钱，比如说我去买了个车，我去双修，在美国是一定会进监狱的。你一点都不用怀疑，一定会进监狱的，因为这是公司的钱，不是你的钱。在中国，只要拿到钱了想干啥干啥，为什么？因为它没有法治，没有监督，没有媒体，永远都是权力说了算。事实上恒大最大的敌人，不是许家印，是许家印的保护者和许家印保护者的体制，共产党这个体制。
+I was pressured and I didn’t want to get tested every 2days.
 
-就像四年前我爆料的时候，我最痛苦的是什么？我知道我说的是真是假，而且这件事情就会影响到你的财富和安全，就像恒大一样。我不希望他们投资进去，我很多同学朋友加入恒大以后给我发信息：七哥,我到南方工作了，我到湖南……大湖南、恒大上海……哎呀，我头都大了。我说你那点钱，从东北旮旯出来的上了个大学，能不能别把钱投进去呀？哎呀，不理我了，不理我了！后来竟然给我说：“我知道七哥你是最成功的人，你是我的偶像，但我们也有致富的权利呀！”那言外之意是我嫉妒他致富，这是没辙了。
+我有压力，不想每两天就测试一次。
 
-你知道，还有一个当时跟我有过一夜情的女孩，长春的……就这个女孩我有过一夜情，以前我挺感谢她的，那一夜让我也挺难忘的，因为喝多酒了，“稀里哗啦”的，醒来以后把我照顾那么好，一直保持联系。这个人加入恒大以后给我发信息：“我现在是恒大东北副总经理”。我说：“你们要干啥？”她说：“我们已经搞定领导了，如何如何……什么什么钱……”我说：“你能不能别把你家全家押到许家印身上？他是垃圾，一定是个骗子，会毁掉你一切的！”然后她再也不理我了。跟你七哥有过肌肤之交的女人，就这一句话不搭理我了——人听不进去真话！听真话好像挖她家祖坟一样。
+So…I had to do it and since then the problem began, since March.
 
-六个月前，许家印没出事以前，你知道她怎么着？她被警察给抓走，她伪造假数据伪造假票据。所以我知道恒大的一切，你知道吗？我知道恒大已经开始玩这个的时候，本来就是诈骗、庞氏骗局，这就走上最大的险路了。兄弟姐妹们，这就是为什么我要告诉你们的，你们要学会辨别真假，海外的华人比你想象的危险得多的多得多，这是我真的担心，你们千万不要侥幸，没有人能知道你们就是郭文贵信任的人，如何让西方人辨别我们是新中国联邦，和共产党不一样，是我们现在最重要的任务，在这之前你要注意一切安全、一切防范。
+我不得不打，三月份以来问题就开始来了。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+Blood pressure…heart issues…asthma…
 
-*发布：翼族*
+血压。。。心脏问题。。。哮喘。。。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2 years ago， I had an ablation done. It fixed my heart problem.
+
+2年以前，我做了一个消融手术，解决了我的心脏问题。
+
+In the past, once every few months,
+
+过去，每过几个月，
+
+Due to effort, due to stress… I had high pulse.
+
+由于努力，由于压力…我血压很高。
+
+And thanks to the operation,
+
+多亏了这次手术，
+
+I no longer needed pills for blood pressure. For 2 years I was fine!
+
+我不再需要降压药了。两年来我一直很好！
+
+I was so happy and I went back to exercising and going to the beach and everything…
+
+我很高兴，我又去锻炼了，去了海滩，哪都去。。。
+
+And now? That’s it! It brought back all of the problems.
+
+而现在呢？就这样了! 它把所有的问题都带回来了。
+
+I walk in the morning and sometimes I stop because it’s too difficult for me.
+
+我在早上散步，有时会停下来，因为这对我来说太难了。
+
+It’s difficult for my heart, it’s hard to breathe.
+
+我的心藏很难受，很难呼吸。
+
+I wake up at night because of my asthma.
+
+我因为哮喘而在晚上醒来。
+
+My name is Miriam. I’ll be 71 soon.
+
+我的名字是米莉亚。我马上就要71岁了。
+
+I had the first shot. Afterwards,
+
+我打了第一针，而后,
+
+I felt very very weak.
+
+我感到非常非常虚弱。
+
+After 3 weeks I got the second shot.
+
+3周后，我打了第二针。
+
+I went home. 2 weeks passed.
+
+我回家了。2个星期过去了。
+
+I went down to my car, I wanted to drive.
+
+我走到我的车，我想开车。
+
+I got to the car and almost fainted,
+
+我到了车上，差点晕倒。
+
+I felt something isn’t right, dizziness and all.
+
+我觉得有些不对劲，头晕目眩。
+
+After 2 days I was ok, so I went down again.
+
+两天后，我觉得还行，于是我又下楼了。
+
+I wanted to see a doctor in Nes-Ziyona, so I drove there.
+
+我想在奈斯齐约纳看医生，所以我开车去了。
+
+The moment I got to the doctor, I… They said it was kind of a cardiac arrest.
+
+我去看医生的时候，我……他们说这是一种心脏骤停。
+
+They immediately called an ER ambulance.
+
+他们立即叫了一辆急诊室救护车。
+
+Immediately they determined I need a pacemaker.
+
+他们立即确定我需要一个起搏器。
+
+Then they did an MRI and an ultra-sound
+
+然后他们做了一个核磁共振和超声波
+
+And they diagnosed me with Myocardidtis, lung infection, breast infection.
+
+他们诊断我患有心肌炎、肺部感染、乳房感染。
+
+In a nutshell… one big party.
+
+简而言之……一个大派对。
+
+My name is Meir Jacob. I’m 66 years old.
+
+我的名字是梅尔-雅各布。我今年66岁。
+
+My son had Tuberous Sclerosis
+
+我的儿子患有结节性硬化症
+
+Which causes tumours,
+
+导致肿瘤。
+
+But after the age of 16 it doesn’t deteriorate,
+
+但是16岁以后就不会再恶化了。
+
+It remains the same.
+
+肿瘤保持不变。
+
+Additionally, he had Epilepsy but his condition was very stable.
+
+此外，他还患有癫痫，但他的病情非常稳定。
+
+He also had this device that once he’s having a seizure,
+
+他也有这个装置，一旦他有癫痫发作。
+
+The device sends pulses and balances the Epilepsy.
+
+该设备发送脉冲并平衡癫痫。
+
+He used to do sports, street workouts and such…
+
+他过去常做运动，在街上锻炼之类的…
+
+He never had any issues with sport.
+
+他在运动方面从未遇到过任何问题。
+
+Two months ago, my son received the second Pfizer shot.
+
+两个月前，我儿子接受了辉瑞公司的第二针疫苗。
+
+And two months after receiving the vaccine,
+
+而在接受疫苗的两个月后，
+
+He went to sleep around…
+
+他进入了梦乡，大约是…
+
+It was around 5 am, after a night out with his friends.
+
+那是在早上5点左右，在和他的朋友们出去玩了一晚之后。
+
+And around 11:30 am, my ex-wife found him…
+
+上午11:30左右，我的前妻发现他…
+
+Dead, next to his bed.
+
+死了，就在他的床边。
+
+In the ambulance report, it was written that he died of a Cardiac Arrest.
+
+在救护车的报告中，写着他死于心脏骤停。
+
+My name is Nimrod. Father, may he rest in peace, was 76 years old.
+
+我的名字是尼姆罗德。父亲，愿他安息，已经76岁了。
+
+He was an active, vivid person. Wakes up, goes to the grocery store.
+
+他是一个活跃、生动的人。一觉醒来，就去杂货店买东西。
+
+He used to volunteer at several charities.
+
+他曾经在几个慈善机构做志愿者。
+
+A week after receiving the vaccines, he had a cardiac arrest.
+
+接种疫苗一周后，他的心脏骤停。
+
+He wasn’t feeling well so we took him to the medical center.
+
+他感觉不舒服，所以我们把他带到医疗中心。
+
+He had the cardiac arrest right at the entrance.
+
+他在入口处就发生了心脏骤停。
+
+The IC team immediately started CPR, for 40 minutes, and they revived him.
+
+IC小组立即开始心肺复苏，持续了40分钟，他们使他苏醒了
+
+When he was admitted to the IC unit, they decided he was a covid patient.
+
+当他被送入IC病房时，他们确定他是一个新冠病人。
+
+After a month of rehabilitation, he was released from hospital.
+
+经过一个月的康复治疗，他出院了。
+
+And then had another cardiac arrest, from which he never recovered.
+
+然后又发生了一次心脏骤停，他再也没有恢复过来。
+
+My husband works at a government office.
+
+我丈夫在一个政府办公室工作。
+
+98% of the people at his office are vaccinated.
+
+他办公室里98%的人都接种了疫苗。
+
+Two of his best friends had a cardiac arrest… and died.
+
+他的两个最好的朋友发生了心脏骤停……并且死亡。
+
+One of them had the cardiac arrest overseas. He was 45 years old.
+
+其中一个是在国外发生的心脏骤停。他当时45岁。
+
+It happened 3-4 months after getting the vaccine.
+
+它发生在接种疫苗后的3-4个月。
+
+The other one was 50 years old. No background illness.
+
+另一个人是50岁。没有基础疾病。
+
+Both of them were healthy.
+
+他们两人都很健康。
+
+It’s just… shocking. The family is shocked.
+
+这只是……令人震惊。家人都很震惊。
+
+I had other adverse effects.
+
+我还有其他不良反应。
+
+I felt like the entire left side was paralyzed.
+
+我感觉整个左侧都瘫痪了。
+
+I couldn’t feel my hand or my leg.
+
+我的手和腿都没有感觉。
+
+My jaw was always… It always got locked.
+
+我的下巴总是……总是被锁住。
+
+And I can’t speak. Last time it happened was two days ago.
+
+而且我不能说话。最后一次发生是两天前。
+
+That’s the reason for my second hospitalization.
+
+这就是我第二次住院的原因。
+
+I’ve been hospitalized twice. Yeah, it’s not great.
+
+我已经住了两次院了。是的，这不是很好。
+
+My left arm is still not back to normal.
+
+我的左臂仍未恢复正常。
+
+There’s numbness in my arm and my fingers.
+
+我的手臂和手指都有麻木感
+
+I do not feel them sometimes. I usually wear an elastic bandage.
+
+我有时感觉不到它们。我通常戴着弹性绷带。
+
+I felt pain in my arm and chest.
+
+我感觉到手臂和胸部的疼痛。
+
+I take pills for the heart.
+
+我服用治疗心脏的药丸。
+
+The main issue is that I have no strength. I can’t get up…
+
+主要问题是我没有力气。我不能站起来…
+
+To get up here, a few stairs, to this floor?
+
+要从这里上去，几个楼梯，到这个楼层？
+
+After getting up hear, my heart is beating like crazy， and I have to rest
+
+起床后，我的心脏疯狂地跳动，我必须休息。
+
+For about… I don’t know, half an hour, at least!
+
+大概……我不知道，至少半个小时吧！我不能走路。
+
+I can’t walk. My legs are constantly shaking.
+
+我走不动了。我的腿一直在颤抖。
+
+I want to go straight, the legs take me to the side…
+
+我想走直线，腿却把我带到了一边……。
+
+I always fall over, I need to grab the walls.
+
+我总是摔倒，我需要抓住墙壁。
+
+I became dependant.
+
+我变得依赖性强
+
+I need help with every little or big thing. I can’t do anything by myself.
+
+每件小事或大事我都需要帮助。我不能自己做任何事。
+
+I was never sick. I was the healthiest person.
+
+我从来没有生病过。我是最健康的人。
+
+I used to work from dawn to dusk, until this vaccine.
+
+我曾经从黎明工作到黄昏，直到这个疫苗。
+
+I still have headaches, fatigue.
+
+我仍然有头疼，疲劳。
+
+I’m still weak. I’m not the person I was before.
+
+我还是很虚弱。我已经不是以前的那个我了。
+
+I’m fighting for my health.
+
+我在为我的健康而战
+
+I can’t do whatever I want. I can’t plan anything.
+
+我不能做我想做的事。我不能计划任何事情。
+
+I used to be strong like an ox. Now I’m half the person I was.
+
+我曾经像牛一样强壮。现在我只有以前的一半。
+
+What can I say? I came to them a healthy person.
+
+我还能说什么呢？我来到他们这里是一个健康的人。
+
+I lost 14-15 kg.
+
+我瘦了14-15公斤。
+
+Sometimes I pee on myself. I can’t make it on time…
+
+有时我会尿在自己身上。我不能及时赶到…。
+
+It’s hard for me to tie my shoelaces.
+
+我很难系鞋带。
+
+Now I have a heart disease.
+
+现在我有心脏疾病。
+
+I used to do physical work, in construction with my brother.
+
+我曾经做过体力活，和我哥哥一起做建筑。
+
+And suddenly, I won’t be able to do that anymore.
+
+突然间，我就不能再做这个了。
+
+They need to check their medicine, what they’re giving to people.
+
+他们需要检查他们的药品，他们给人们的东西。
+
+Not just jab, jab, jab people.
+
+不仅仅是打针，打针，打针的人。
+
+It’s very hard for me to see that it’s still going on.
+
+我很难看到这种情况还在继续。
+
+They want to vaccinate the kids. They want absurd things.
+
+他们想给孩子们接种疫苗。他们想要荒谬的东西。
+
+The media is not talking about it.
+
+媒体没有谈论这个问题。
+
+And I’m sure I’m not the only one.
+
+而且我相信我不是唯一的一个。
+
+Instead of stopping to think this through and see what’s going on,
+
+而不是停下来想一想，看看到底发生了什么。
+
+What do they say? “Go, get the vaccine! Go!”
+
+他们说什么？”走，去打疫苗！”去吧！”
+
+What is this? Stop for a second. See what’s going on in the world.
+
+这算什么？停一下吧。看看这个世界上发生了什么。
+
+What can I say? Your son goes to sleep
+
+我能说什么呢？你的儿子去睡觉了
+
+And in the morning， you find him dead. It’s horrible.
+
+到了早上，你发现他死了，这很可怕。
+
+The kids… I think about my nephews and it’s a sensitive matter to me.
+
+孩子们……我想到了我的侄子，这对我来说是个敏感问题。
+
+I wouldn’t want them to get this vaccine.
+
+我不想让他们接种这种疫苗。
+
+I won’t get the third dose. Nor will my relatives.
+
+我不会接种第三针。我的亲戚们也不会。
+
+I had one moment of fear and I got the vaccine,
+
+我有过一次恐惧，我就接种了疫苗。
+
+It was the dumbest thing I ever did.
+
+这是我做过的最愚蠢的事情
+
+And I’ve done some dumb things in my life. That was at the top and won’t happen again.
+
+而我这辈子也做过一些蠢事。那次是最愚蠢的，而且不会再发生了。
+
+It will not happen again, even if I won’t see my kids,
+
+它不会再发生了，即使我见不到我的孩子。
+
+And won’t see my parents or anyone, it will not happen again.
+
+也见不到我的父母或任何人，都不会再发生了。
+
+I made a mistake, yeah.
+
+我犯了一个错误，是的。
+
+I don’t know how to overcome it, but…
+
+我不知道如何克服它，但…
+
+I hope that thanks to this video
+
+我希望，由于这个视频
+
+People will realize that it’s not a game.
+
+人们会意识到，这不是一场游戏。
+
+It’s not just getting a vaccine
+
+它不只是打一个疫苗
+
+And you move on like nothing happened.
+
+你就像什么都没发生一样继续前进。
+
+You need to think this twice, even three or four times.
+
+你需要考虑两次，甚至三次或四次。
+
+Personally, I don’t… I can’t recommend a thing I’m…
+
+就个人而言，我不……我不能推荐一个东西，我……
+
+I made a huge mistake.
+
+我犯了一个巨大的错误。
+
+BLEEDINGS AND MISCARRIAGES
+
+“出血和流产”
+
+My name is Inesa. I’m 39 years old.
+
+我的名字是伊内萨。我今年39岁。
+
+Unfortunately, I received the vaccine due to an argument with my husband…
+
+不幸的是，由于与丈夫的争吵，我接种了疫苗…
+
+And the result was… constraints.
+
+而结果是……受到了限制。
+
+And that was it. The following day it happened, and since then it all went wrong.
+
+就这样了。第二天就发生了，从那时起，一切都错了。
+
+Hello, my name is Meital.
+
+你好，我叫梅塔尔。
+
+I decided to take the vaccine
+
+我决定接种疫苗
+
+Because my husband was pressuring me to do it.
+
+因为我丈夫给我施压，让我去做
+
+Of course it’s not his fault, he was pressured as well
+
+当然这不是他的错，他也受到了压力
+
+To convince me. He was afraid that I’d leave him with 3 kids.
+
+来说服我。他害怕我丢下他和三个孩子。
+
+My name is Tovit. I live in Sderot.
+
+我叫Tovit。我住在斯德洛特。
+
+I work at a family business, owned by three brothers.
+
+我在一家家族企业工作，老板是三兄弟。
+
+I’ve been working there for 17 years.
+
+我已经在那里工作了17年。
+
+They fear because I work close to them, they’re almost in their 70’s.
+
+他们害怕，因为我在他们身边工作，他们几乎都是70多岁了。
+
+Some in their 70’s, one is 68 years old.
+
+有的70多岁了，有一个已经68岁了。
+
+And they worried. Because of them, I took the vaccine.
+
+而他们担心。因为他们，我接种了疫苗。
+
+My name is Moriya. 37 years old.
+
+我的名字叫莫里亚。今年37岁。
+
+I’m a teacher. The Ministry of Education sent an SMS to all teachers…
+
+我是一名教师。教育部向所有教师发送了一条短信…
+
+I think it was on the national level. They sent a text
+
+我想这是在全国范围内的。他们发了一条短信
+
+Saying that I have an appointment to get the vaccine
+
+说我要预约接种疫苗
+
+And it specified the time and place
+
+并指明了时间和地点
+
+After the first shot I was bleeding for two weeks, after my period
+
+第一次注射后，我在月经结束后出血两个星期
+
+I had my period, and 4 days later I started bleeding for two weeks
+
+我月经过后4天，我开始出血，持续了两周
+
+with all the side effects of a period
+
+并伴有经期的所有副作用
+
+翻译：tonyj | 校对: 烟波浩淼 | 视频制作+字幕：小腾腾说
+
+**[以色列COVID-19 疫苗受害者证词 (1/6)](https://gnews.org/zh-hans/1553403/)**

@@ -2,43 +2,22 @@
 ---
 
 
-## 布鲁斯9名老年护理工检测呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555417/)
+## 中共病毒加强针将为制药商带来数十亿美元利润
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555469/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/AstraZen-jab1.jpg)
-图片来源：miltonkeynes.co.uk
+#### 翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-86.jpg)图片来源：网络截图
+据美联社9月25日报道，美国卫生官员周四晚些时候批准为所有65岁以上的美国人，以及数千万因健康状况或工作而面临冠状病毒高风险的年轻人注射辉瑞公司的加强针。随着美国开始发放中共病毒加强针，一些疫苗制造商的利润将增加数十亿。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+迄今为止，美国的大部分疫苗接种来自辉瑞公司（与德国BioNTech公司合作开发的疫苗）和Moderna公司。它们分别为大约9900万和6800万人接种了疫苗。强生公司排在第三位，大约有1400万人。
 
-近日，在布鲁斯（Bruce）的海登（Haydon）退休社区发现的9例中共病毒病例，使澳大利亚首都地区周六单日创下最高的每日病例总数。
+晨星公司分析师安德森预计，如果几乎所有的美国人都认加强针，仅此一项就能为辉瑞和BioNTech明年带来约260亿美元的全球销售额，为Moderna带来约140亿美元。对于辉瑞公司和Moderna公司来说，加强针可能比原始针剂更有利可图，因为它们不会产生这些公司为使疫苗上市的研究和开发成本。
 
-首都领地卫生部（ACT Health）周六在沃森（Watson）启动了一个临时中共病毒检测诊所，因为堪培拉北部郊区出现一系列无关联的阳性病例。
+制药商并不是唯一可以从提供加强针中获得意外收获的企业，连锁药店CVS Health和Walgreens可以分别带来超过8亿美元的收入。
 
-自疫情爆发以来，沃森已有30例中共病毒病例，其中一半以上是在过去两周内记录的。
+制药商还在开发针对某些病毒变体的中共病毒疫苗，并说人们可能需要每年注射一次，就像他们接受流感疫苗那样。所有这些都可能使疫苗成为一个主要的经常性收入来源。
 
-到目前为止，周六的32个新病例中没有一个与沃森有关，因为新的临时诊所的所有结果要到周日才会被整理和评估。
+辉瑞公司在7月份说，它预计今年中共病毒疫苗的收入将达到335亿美元，这一估计可能会改变，这取决于加强针的影响或可能扩大到小学生的注射。这将是世界上最赚钱的疫苗，这也将使艾伯维公司的类风湿关节炎治疗药物Humira去年带来的198亿美元的收入相形见绌，该药物被广泛认为是世界上最畅销的药物。
 
-在加略山（Calvarycare）经营的海登（Haydon）老年护理机构中，对中共病毒感染源的调查仍在进行中，尽管早些时候有报道称感染可能是由一名工作人员引入的。
-
-首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，“目前还不知道感染的顺序或时间线是什么。
-
-然而，她说92%的居民已完全接种疫苗，97%的居民已接种了一剂疫苗。
-
-在9名感染者中，大多数人都接种了疫苗，但有3人仅部分接种或未接种疫苗。
-
-她还证实，该设施的所有员工都选择成为单一地点的工作人员，因此“不会对其他设施产生影响”。 在澳大利亚首都地区，所有老年护理人员都必须接种疫苗。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Nine aged care residents in Bruce have tested positive for COVID | The Canberra Times | Canberra, ACT](https://www.canberratimes.com.au/story/7445013/scramble-to-support-aged-care-outbreak-as-nsw-cases-start-to-fill-act-wards/)
-
-***编辑：小红帽******/文泓*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[COVID-19 vaccine boosters could mean billions for drugmakers](https://apnews.com/article/coronavirus-pandemic-business-science-health-coronavirus-vaccine-5305defac283ac5f352bc47fcb74c82b)

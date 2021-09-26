@@ -2,13 +2,9 @@
 ---
 
 
-## 《秘翻吐槽大剧场》“我行我秀”台词征集
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555238/)
+## 中共已经控制了世界2/3的芯片制造产业
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555276/)
 
-《得加钱》——你就是主角
-本栏目征集：
-配音、台词、段子、剧本、视频
-请关注盖特直接投稿：https://gettr.com/user/daduduvideo
-加入我们的米粉团：https://discord.gg/WP95djzG
+9/24/2021 汽车行业分析师劳伦·菲克斯在接受福克斯采访时表示，美国汽车行业正面临严重的芯片短缺危机，但与此同时中共已经控制了世界2/3的芯片制造产业，而这将对一切造成影响。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

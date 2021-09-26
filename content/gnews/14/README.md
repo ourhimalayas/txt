@@ -2,27 +2,20 @@
 ---
 
 
-## 新州将限制未接种疫苗者的自由
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1555317/)
+## 法官暂时阻止纽约强制教师打中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555368/)
 
-**[雅典娜快讯],紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/238d50f180679f60306558e83d419a13.jpg)图片来源：The Advertiser
-**整理报道：翼族**
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-119.jpg)图片来源：Politico
+据美国合众社9月25日报道，纽约第二巡回上诉法院法官约瑟夫·比安可周五站在纽约市教师这一边，挑战纽约市中共病毒疫苗强制政策。
 
-新南威尔士州政府定于本周敲定80%疫苗接种的路线图，目前正在辩论何时重新向未接种疫苗的人开放社区活动。
+这群教师本月早些时候针对纽约市的这个强行规定提出反对，认为违反了程序正义的权利，将他们置于失去工作无法生活的危险境地，因而提出法律诉讼，在诉状中说，这个规定与联邦强制措施不同，联邦的措施给予工作人员不同选项，或者做常规测试，或者打疫苗。而纽约市则没有相似的选项。
 
-即使新南威尔士州达到其80%的两针接种率的目标，新州危机内阁部长依然准备无限期限制未接种疫苗者的自由。体育赛事、区域旅行、酒吧、餐馆和其它活动可能仍然禁止未接种疫苗的人进入，直到新南威尔士州多达90%的成年人接受两剂疫苗的注射。
+比安可法官命令暂时不用实施纽约市的规定，并由三位法官组成小组共同决定这件事的快速进一步处理。
 
-新州财政部长多米尼克·佩罗特(Dominic Perrottet)上周表示，一旦所有成年人都有机会接种疫苗，就应该“向所有人开放”。然而，其他部长表示，内阁已经下定决心，反对在80%的门槛上给未接种疫苗的人提供自由。
+纽约市市长比尔·白思豪今年8月要求该市公立学校15万名工作人员于9月27日前至少要注射一剂疫苗。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+纽约市教育部门媒体秘书丹尼拉·费尔森说，目前已有82%的工作人员注射了疫苗，教师工会已经警告教师人员短缺，而白思豪曾称将准备让代课老师代替。
 
-**参考链接：**[Limits on unvaccinated to remain in NSW](https://www.skynews.com.au/australia-news/coronavirus/limits-on-unvaccinated-to-remain-in-nsw/video/6317308b8e81d6e293a117bb83c8ff89)
-
-*编辑/发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### 新闻来源： [Judge temporarily blocks New York City’s COVID-19 vaccine mandate for teachers](https://www.upi.com/Top_News/US/2021/09/25/judge-temporarily-block-new-york-city-coivd-19-vaccine-mandate-teacher/8631632611297/)
