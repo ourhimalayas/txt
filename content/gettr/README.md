@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+﻿###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/main/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/main/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/main/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/main/about)
 ---
 
 推薦文章:point_down:
@@ -9,11 +9,20 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
-:new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+[視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+
+:new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
+
+`@miles 9/26/2021 5:40 PM (UTC)`
+
+The end result of Huawei Meng Wanzhou case is no different from Mr Miles Guo’s prediction in 2018<br/><br/>华为孟晚舟案的结局与郭文贵先生2018年预测的分毫不差
+![img](https://media.gettr.com/group42/getter/2021/09/26/17/40/f35f7fb4-2005-2bcf-5c45-db997ea9c51c/out.jpg)
+
+---
 
 `@miles 9/26/2021 3:05 AM (UTC)`
 
@@ -288,12 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月20号：与战友们分享会后将进行美好的晚餐前的时刻……
 ![img](https://media.gettr.com/group25/default/20210920/23/34/06320af0-b926-f5b1-d060-699877884837/out.jpg)
-
----
-
-`@miles 9/20/2021 6:18 PM (UTC)`
-
-😠😠😠😡😡😡 <br/><br/>https://twitter.com/7vt9o94gxoflm3w/status/1440008012609953793?s=12
 
 ---
 
