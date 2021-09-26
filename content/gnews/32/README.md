@@ -2,132 +2,60 @@
 ---
 
 
-## 为何打疫苗和知道真相以后的恐惧
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556060/)
+## 尽管有更多反对意见，CDC仍批准新冠疫苗加强针
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556139/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-20.jpg)https://gtv.org/video/id=615042bed2e2b817486e3d8f
-郭文贵
-Miles Guo
+据《零对冲》作者：TYLER DURDEN，2021年9月23日报道：
 
-战友们一定你们要有一个（认识）
-Comrades in arms, you must have one knowledge
+更新（1622ET），ACIP还批准了为18-49岁有潜在问题的人提供疫苗加强针，这次投票是9比6。
 
-世界上造成这次冠状病毒、疫苗最大的瞒天过海
-Creating the biggest scam of the COVID-19, vaccines in the world,
+下一次投票应该定义“高危”职业。
 
-能让很多人打疫苗的原因就是因为
-and enabling a lot of people vaccinated, the reasons are
+更新（1600ET），尽管对加强针的必要性存在一些分歧（我们在上周末的FDA小组会议上也看到了这一点），CDC的咨询小组以15比0和13比2的投票结果，批准了对65岁以上的人和50至64岁的免疫力低下的成年人进行加强针的授权。
 
-所有西方人是相信医疗系统的，是相信科学的
-all Westerners trust the medical system and trust the science
+当CDC的咨询小组准备就他们对辉瑞公司疫苗加强针的最后一套指导方针进行投票时，该小组的一些成员对授权疫苗加强针提出了更多的反对意见，尽管这些反对意见与FDA咨询小组成员的反对意见不一样。成员们担心，无论如何，由于疫苗的搁置，大流行病可能会被延长。事实上，有这么多美国人拒绝接种疫苗，使用加强针就相当于在猪身上涂抹口红。
 
-而就是一定要记住西方的文明和法治社会，和民主社会，是跟科技和
-and (you) must remember that the Western civilization and society under the rule of law, and the democratic society
+来自明尼苏达州卫生部的CDC免疫接种实践咨询委员会成员Lynn Bahta说：“我担心的是，随着不同变种的出现，我们将不断给接种者注射加强针，而我们将无法在真正缓解大流行病方面取得进展。”
 
-工业文明开始的
-have started with technology and industrial civilization
+在早些时候开始的会议上，ACIP小组成员中没有一个人反对向老年人推荐加强针，辩论的焦点是，是否有必要为处于严重COVID高风险的年轻人注射第三针，如果有必要，如何针对他们。
 
-在西方建立社会的基础是科学作为基础的
-building a foundation of society in the West is based on science as the foundation
+范德比尔特大学的海伦·塔尔博特（Helen Talbot）说，由于超过30%的人口拒绝注射疫苗，“这感觉就像我们在给猪涂抹口红。这不会解决这个大流行病。”
 
-大家都不相信政府，也不相信政客
-No one trusts the government neither the politicians
+一位与会者指出，支持加强针的数据，包括来自以色列的真实世界的证据，都依赖于较短的随访，这意味着数据不是很可信。但至少，以色列的一项研究表明，自然免疫比人工接种有13倍以上的复原力。
 
-多少年，我到哪儿去，对政客都是骂的
-For years, everywhere I went, all I heard was cursing of politicians
+按照CNBC的说法，这次投票仍然是“总统乔·拜登的胜利，他的政府已经表示，它希望最早在本周为所有符合条件的16岁及以上的美国人注射疫苗加强针。虽然CDC小组的建议并没有给拜登政府带来它想要的一切，但加强针仍将为数百万美国人带来好处”。
 
-都是不相信的
-People do not trust politicians
+虽然CNBC可能真的报道了这一点，但在我们的印象中，拜登总统最初推动为整个成年人提供加强针，这引起了科学界的反弹，他们认为没有足够的证据来批准加强针。
 
-但是对科学大家都相信的，还有就是对媒体
-But people believe in science and also the media
+该小组——正式名称为免疫实践咨询委员会，或ACIP——还有一些投票需要通过，包括是否将加强针扩大到其他群体，包括高危工人。
 
-过去认为媒体都是有两三家，说媒体是可以相信的。完了
-In the past, (everyone) believed that there were two or three media could be trusted. It’s over.
+罗谢尔·瓦伦斯基博士早些时候访问了该小组，并承认虽然数据并不“完美”，但她说，“它们确实提供了关于是否做出决定的指导”。
 
-这回邪恶的势力和中国共产党玩的就是玩得把科学全部垄断
-What the evil forces and the Chinese Communist Party are playing this time is to monopolize science
+\*  \*  \*
 
-它把媒体全部垄断
-It monopolizes the media
+昨晚，美国食品和药物管理局——正如预期的那样——授权65岁以上的病人、免疫力低下的人和职业弱势群体，紧急使用辉瑞生物技术公司的mRNA疫苗的加强针。
 
-这个情况下，很多人打疫苗
-In this case, a lot of people get vaccinated
+现在，轮到CDC了。该小组正准备在周三结束为期两天的会议，它正在审议一套更具体的关于疫苗加强针的指导方针，以及哪些人最初有资格，以及什么时候开始。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-78.jpg)图片来源：《零对冲》
+在我们讨论具体细节之前，值得注意的是，在第一天的讨论之后，一些顾问对加强针的理由感到非常困惑，他们建议将CDC的决定推迟一个月，以等待更多证据。这样的决定可能会让拜登政府发疯。
 
-绝大多数人都是因为一个
-most of the people are because of one (reason)
+据美联社报道，“这些不确定性再次提醒我们，围绕加强针的科学，比拜登政府上个月在白宫推出他们的计划时更为复杂。”
 
-本身就害怕死，恐惧
-fear of death
+周三，“CDC小组成员听取了一系列介绍，概述了关于加强针的科学状况的症结。一方面，COVID-19疫苗继续为防止严重疾病、住院和死亡提供强有力的保护。另一方面，有迹象表明，随着免疫力的减弱，接种者中出现了更多的低级感染。”
 
-还有一个原因，他相信科学
-another reason is that they believe in science
+归根结底，CDC小组的职能是像《Politico》所说的那样，“细化到到底谁将有资格”。对于加强型疫苗，重点将是界定谁处于“高风险”。讨论预计将在周四下午结束。
 
-还有更重要的事情 ，它（相信）媒体
-and the more important thing is that they trust media
+疗养院居民面临特殊风险，即使有加强针也是如此。
 
-所以说现在当你跟任何人说，很多人就马上就（产生）那种恐惧感
-So when you talk to anyone now, many people immediately (have) that sense of fear
+根据美国公共卫生局的雷切尔·斯莱顿（Rachel Slayton）提供的模型数据，加强针可能不足以完全保护疗养院的居民。她说，虽然加强针可能有助于减少长期护理设施中的病例数量，但这取决于其固有的功效和疗养院內工作人员的疫苗接种覆盖率。
 
-哇现在一个和平的美食美酒，点着火炉
-Wow, currently there is a peaceful meal with nice food and wine, a warming stove
+斯莱顿说，社区的高传播率可能会导致疗养院的更多感染，因为工作人员更容易输入病毒。目前还不清楚加加强针是否能帮助遏制病毒在接种者中的传播。
 
-是不是，天高云淡
-Isn’t it? The sky is high and the clouds are pale
+原文连接：[https://www.zerohedge.com/covid-19/cdc-panel-considers-delaying-booster-jabs-decision-1-month-wait-more-evidence](https://www.zerohedge.com/covid-19/cdc-panel-considers-delaying-booster-jabs-decision-1-month-wait-more-evidence)
 
-后面还有美山美水
-There are beautiful mountains and crystal clear water behind
-
-面对着自己
-facing one’s own
-
-千万财富亿万财富
-tens of millions of wealth, billions of wealth
-
-突然说他可能要死了
-and suddenly said he might be dying
-
-兄弟姐妹们，你想过这感觉了吗
-Brothers and sisters, have you thought about how it feels?
-
-这个很吓人你知道吗，那人的那种恐惧真的瞳孔就要扩散的感觉呀
-This is very scary. Do you know? That kind of human fear really feel like the pupils are about to diffuse
-
-你谁也受不了，搁在谁身上谁也受不了
-None of you can stand that, no one can stand it
-
-说这有可能要完蛋
-Saying that it might be the end
-
-问疫苗， 马上说哎有解药没有，有解药没有
-(They) asked about the vaccine, and immediately asked whether there is any antidote
-
-全要解药，那药是什么名字，跟我说叫什么名字
-(They) all demand the antidote, what’s the name of that medicine, tell me what’s the name of it
-
-谁都怕死
-Everyone is afraid of death
-
-这个时候你知道，你会发现
-At this time you know, you would find out that
-
-不是每个人都有解药的
-not everyone has an antidote
-
-真的不是每个人都能觉得扛过去这个恐怖的
-really not everyone can overcome this fear
-
-很多人你知道， 他回去一夜一夜睡不着觉
-Many people, you know, they couldn’t sleep nights after nights when he went home
-
-原视频日期：2021/09/21
-原视频链接: https://twitter.com/se1y7cblljselva/status/1440864540116197384?s=24
-视频时间段 : 0:00-2:12
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

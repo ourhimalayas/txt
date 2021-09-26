@@ -15,167 +15,167 @@
 
 ---
 
-### [挪威取消了大部分针对中共病毒疫情的限制](/content/gnews/1/README.md)
+### [DC每日热点0926](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [孟晚舟封神 福兮？祸兮？](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [挪威取消了大部分针对中共病毒疫情的限制](/content/gnews/3/README.md)
  ` HimalayaRussia`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/2/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/4/README.md)
  ` wenwu`
 
-### [家庭反洗脑序列：第28篇 氧化石墨烯](/content/gnews/3/README.md)
+### [家庭反洗脑序列：第28篇 氧化石墨烯](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说— 第16期](/content/gnews/4/README.md)
+### [七哥说— 第16期](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年9月26日郭先生直播速记](/content/gnews/5/README.md)
+### [2021年9月26日郭先生直播速记](/content/gnews/7/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [罗马民众再次走上街头抗议疫苗护照](/content/gnews/6/README.md)
+### [罗马民众再次走上街头抗议疫苗护照](/content/gnews/8/README.md)
  ` HimalayaRussia`
 
-### [2018年4月23日之视频一，央视新闻：郭文贵海外爆料“绝密文件”真相](/content/gnews/7/README.md)
+### [2018年4月23日之视频一，央视新闻：郭文贵海外爆料“绝密文件”真相](/content/gnews/9/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [【G乐部漫谈 3】恒大——中共国房地产倒下的第一张多米诺骨牌](/content/gnews/8/README.md)
+### [【G乐部漫谈 3】恒大——中共国房地产倒下的第一张多米诺骨牌](/content/gnews/10/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [美特别检察官调查正式确认川普通俄门是骗局](/content/gnews/9/README.md)
+### [美特别检察官调查正式确认川普通俄门是骗局](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
-### [反思印尼排华，如何才能证明中共不等于中国人？](/content/gnews/10/README.md)
+### [反思印尼排华，如何才能证明中共不等于中国人？](/content/gnews/12/README.md)
  ` 波士顿五月花农场`
 
-### [盖特答谢用户大抽奖, 新泽西一家赢得福特卡车](/content/gnews/11/README.md)
+### [盖特答谢用户大抽奖, 新泽西一家赢得福特卡车](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [《证词项目》：以色列毒针受害者亲述惨痛经历](/content/gnews/12/README.md)
+### [《证词项目》：以色列毒针受害者亲述惨痛经历](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [9/26/21 香港快讯 20岁以下登记选民跌幅近3成](/content/gnews/13/README.md)
+### [9/26/21 香港快讯 20岁以下登记选民跌幅近3成](/content/gnews/15/README.md)
  ` 英喜-粵語組`
 
-### [荷兰民众抗议通行证措施 官员质疑政府决策遭解雇](/content/gnews/14/README.md)
+### [荷兰民众抗议通行证措施 官员质疑政府决策遭解雇](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [勿让印尼排华惨剧再次上演](/content/gnews/15/README.md)
+### [勿让印尼排华惨剧再次上演](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [秘翻在线：狂热的疫苗接种支持者第三次注射后死亡](/content/gnews/16/README.md)
+### [秘翻在线：狂热的疫苗接种支持者第三次注射后死亡](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [以色列COVID-19 疫苗受害者证词(3/6）](/content/gnews/17/README.md)
+### [以色列COVID-19 疫苗受害者证词(3/6）](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：粮食短缺问题解决了？中共科学家称二氧化碳可合成为淀粉](/content/gnews/18/README.md)
+### [秘翻在线：粮食短缺问题解决了？中共科学家称二氧化碳可合成为淀粉](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021/09/25 文贵先生盖特精要](/content/gnews/19/README.md)
+### [2021/09/25 文贵先生盖特精要](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [北欧：瑞典深化与挪威丹麦的军事合作](/content/gnews/20/README.md)
+### [北欧：瑞典深化与挪威丹麦的军事合作](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [丰收节、大饥荒与大瘟疫](/content/gnews/21/README.md)
+### [丰收节、大饥荒与大瘟疫](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
 
-### [疫苗灾难，宫东升只是一个开始](/content/gnews/22/README.md)
+### [疫苗灾难，宫东升只是一个开始](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [CCP百年百罪 第二十五集（100 –101罪）](/content/gnews/23/README.md)
+### [CCP百年百罪 第二十五集（100 –101罪）](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国禁止所有加密货币交易](/content/gnews/24/README.md)
+### [中共国禁止所有加密货币交易](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：柳叶刀的中共病毒溯源小组因与生态健康联盟有关联被解散](/content/gnews/25/README.md)
+### [秘翻在线：柳叶刀的中共病毒溯源小组因与生态健康联盟有关联被解散](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：联邦法官暂停纽约学校强制疫苗](/content/gnews/26/README.md)
+### [秘翻在线：联邦法官暂停纽约学校强制疫苗](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [马来西亚卫生部伊维菌素研究疗效分析即将完成](/content/gnews/27/README.md)
+### [马来西亚卫生部伊维菌素研究疗效分析即将完成](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [每日快报：中共国 “准备好一次性核打击&#8221;对付美国和新太平洋联盟战略伙伴关系](/content/gnews/28/README.md)
+### [每日快报：中共国 “准备好一次性核打击&#8221;对付美国和新太平洋联盟战略伙伴关系](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [灭共后方正股东将发大财,政泉18亿股票将成重大经济事件](/content/gnews/29/README.md)
+### [灭共后方正股东将发大财,政泉18亿股票将成重大经济事件](/content/gnews/31/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [尽管有更多反对意见，CDC仍批准新冠疫苗加强针](/content/gnews/30/README.md)
+### [尽管有更多反对意见，CDC仍批准新冠疫苗加强针](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [9/25/21国内经济财经周报：海航陈峰股权清零后被采取强制措施；中共进一步整治虚拟币](/content/gnews/31/README.md)
+### [9/25/21国内经济财经周报：海航陈峰股权清零后被采取强制措施；中共进一步整治虚拟币](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [为何打疫苗和知道真相以后的恐惧](/content/gnews/32/README.md)
+### [为何打疫苗和知道真相以后的恐惧](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共带给人类的是“共同灾难”](/content/gnews/33/README.md)
+### [中共带给人类的是“共同灾难”](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分](/content/gnews/34/README.md)
+### [墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [维多利亚州进行“疫苗接种经济”试验](/content/gnews/35/README.md)
+### [维多利亚州进行“疫苗接种经济”试验](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [联邦法院暂停纽约市教职工接种强制令](/content/gnews/36/README.md)
+### [联邦法院暂停纽约市教职工接种强制令](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [日本31所大学加强对留学生审查 主要针对中共国](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [银河快讯：菅义伟：美国重返TPP很重要；日本审查医疗系统](/content/gnews/38/README.md)
+### [银河快讯：菅义伟：美国重返TPP很重要；日本审查医疗系统](/content/gnews/39/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [【G乐部漫谈 2】中共为何拉闸限电？](/content/gnews/39/README.md)
+### [【G乐部漫谈 2】中共为何拉闸限电？](/content/gnews/40/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声|灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/40/README.md)
+### [有声|灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [有声|中共进一步加强文化管制](/content/gnews/41/README.md)
+### [有声|中共进一步加强文化管制](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [有声|美国司法部延长对孟晚舟的起诉协议](/content/gnews/42/README.md)
+### [有声|美国司法部延长对孟晚舟的起诉协议](/content/gnews/43/README.md)
  ` MOSREC`
 
-### [秘翻在线：美国亚利桑那州大选审计出大问题](/content/gnews/43/README.md)
+### [秘翻在线：美国亚利桑那州大选审计出大问题](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [保命、保财、报仇](/content/gnews/44/README.md)
+### [保命、保财、报仇](/content/gnews/45/README.md)
  ` 银河勇气之星`
 
-### [因接种新冠疫苗导致白血病的健身爱好者宫东升都经历了啥](/content/gnews/45/README.md)
+### [因接种新冠疫苗导致白血病的健身爱好者宫东升都经历了啥](/content/gnews/46/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [9/25/2021国际财经快讯：美国新房销售超预期；恒大不确定性导致美元上涨](/content/gnews/46/README.md)
+### [9/25/2021国际财经快讯：美国新房销售超预期；恒大不确定性导致美元上涨](/content/gnews/47/README.md)
  ` 秘密翻译组金融团队`
 
-### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/47/README.md)
+### [纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/48/README.md)
+### [恒大的普通投资者最终可能无法收回任何资金](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/49/README.md)
+### [秘翻在线：中共表示将对可能爆发的战争动用核自卫反击](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国人正在采取行动以应对疫苗强制令](/content/gnews/50/README.md)
+### [美国人正在采取行动以应对疫苗强制令](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压](/content/gnews/51/README.md)
+### [9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压](/content/gnews/52/README.md)
  ` 秘密翻译组金融团队`
 
-### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/52/README.md)
+### [Twitter于几周内推出比特币Tip的汇款功能](/content/gnews/53/README.md)
  ` wenwu`
 
-### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/53/README.md)
+### [马龙博士在罗马峰会上号召大家行动起来](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [用自由的声音 突破信息封锁 还世界真相](/content/gnews/54/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
