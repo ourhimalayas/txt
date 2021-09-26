@@ -15,6 +15,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/26/2021 3:05 AM (UTC)`
+
+9/25/2021 Miles Guo’s GETTR: The real darkness is yet to come! In response to the question of the fellow fighters, my opinion is that it is better to stay in the countryside. The farther away from the crowd, the modern consumption and supply chain environment, the better!<br/><br/>9/25/2021 文贵盖特: 真正黑暗的时刻还没有到来！对于战友的提问，文贵先生的意见是待在远离人群，现代化消费和供应链环境的农村更好！<br/>
+![img](https://media.gettr.com/group47/getter/2021/09/26/03/05/656eae01-b137-b27c-da57-6dfa5b643ccc/out.jpg)
+
+---
+
 `@miles 9/26/2021 2:29 AM (UTC)`
 
 9/25/2021 Miles Guo’s GETTR: Before the Covid vaccine and virus catastrophe arrives, <br/>our fellow fighters shall focus on the following key issues: 1) stay away from the CCP virus, 2) not get vaccinated, 3) prepare for necessary medicines and antidotes, and 4) until the threat is disarmed, you must ensure you have food to eat, dwelling to live and money to spend<br/><br/>9/25/2021 文贵盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点：1）防范中共病毒、2）不打疫苗、3）备好解药、4）在威胁解除前保证有饭吃、有房住、有钱花<br/>
@@ -287,12 +294,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 `@miles 9/20/2021 6:18 PM (UTC)`
 
 😠😠😠😡😡😡 <br/><br/>https://twitter.com/7vt9o94gxoflm3w/status/1440008012609953793?s=12
-
----
-
-`@miles 9/20/2021 6:16 PM (UTC)`
-
-😜😜😜 <br/><br/>https://twitter.com/fengsaobahuang/status/1439824553476169730?s=12
 
 ---
 
