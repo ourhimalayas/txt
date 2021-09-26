@@ -2,28 +2,39 @@
 ---
 
 
-## 灭共进程暗含反华危机,爆料革命须未雨绸缪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1554450/)
+## 意大利公司拒付薪水给未接种疫苗员工 未接种雇员如果去工作将面临大额罚金
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1554981/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-362.png)
-在昨天的最新直播中, 文贵先生不止一次提到他所获知的情报, 显示在新冠病毒及疫苗对全世界造成巨大破坏伤亡的同时, 各国政府甚至民众间也酝酿着一股反华的暗流。
+撰稿：雨季仰光
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-3.png)图片来源：NEWS WEEK
+据峰会新闻（Summit News）9月24日刊发记者报道，意大利政府颁布法令，明令私营企业以及公共部门，公司须扣留拒绝接种新冠疫苗员工的工资。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide9-3.jpeg)
+法令指示所有雇员须获取疫苗“绿色通行证”，这对于上百万未接种的意大利人是一个巨大的问题。
 
-文贵先生提及令他始终悲愤难平的98年印尼排华事件, 惨剧历历在目。他曾在海外遇见印尼总统苏哈托家族成员,并向对方公开表示, 作为华人, 他有朝一日必报此仇!令对方瞠目结舌。文贵先生说: “印尼当年死亡37万人! 今天共产党制造这场全球性病毒灾难, 最终会算到每一个中国人头上!”
+政府没有让公司解雇这些未接种的雇员以避免法律诉讼，只是让他们通知雇员，来上班将面临罚金。
 
-虽然文贵先生和万千爆料革命战友, 4年来不遗余力的向全世界传播中共的邪恶和病毒真相, 但共产党70年绑架中国人的恶果很难在短时间消弭, 无论出于什么原因, 未来一旦真相揭示,很可能会有很多国家政府包括民众, 将怒气宣泄到全球的华人群体,这就是灭共历程中潜在的危机。我们相信大智慧的文贵先生一定有应对的策略，但需要每一位战友都鼓起勇气面对, 更加努力地传播病毒疫苗真相, 向世界宣告, 我们是华人, 更是拯救世界的新中国联邦人!
+“由此，雇员们将被视为因不公平的缺勤而被扣留工资或薪水，”记者肯.马孔（Ken Macon）这样报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+“那些被发现未获疫苗护照而继续工作的将会被罚高达1500欧元的罚金。另外，政府表示不会为不愿接种的人员承担检测费用。”
 
-终审：文龍
-校对/发稿：谐趣园
+即使那些被病毒感染，然后恢复之后获得抗体的人士也仍需接种至少一剂疫苗，推测估计仅仅是一种对法令遵从的作秀。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+意大利在9月1号开始延伸疫苗护照计划至中小学和大学。
+
+教师们被告知，如不接种疫苗将被解雇，学生不接种将不得上课。
+
+未接种疫苗人士也被禁止使用长途交通工具，这意味着很多人的假期，出差和探亲访友变为不可行。
+
+在诸如博物馆，体育场，影院及健身房，还有室内酒吧餐馆等场所都需要出示疫苗证明，商业活动不执行此法令会被罚款数千欧元。
+
+“绿色通行证”也将追踪个人行踪，再次强调，这是多么激进的一种数字身份证。
+
+评:
+西方某些政府在愚昧及黑暗势力的操纵下变得与天朝何其相似，宪法赋予的人身自由及迁徙自由都因邪恶的中共病毒疫苗的出现而暴露出统治者一贯试图管制和控制民众的邪恶本性。
+
+此时不禁又想起美国一代领袖罗纳德.里根（Ronald Reagan）总统说过的名言：政府的首要职责是保护人民，而不是管理他们的生活(Government’s first duty is to protect the people, not run their lives)。同时他还说过：我们不能帮助每个人，但每个人都能帮助某些人(We can’t help everyone, but everyone can help someone)。
+
+让我们觉醒的爆料革命战友勇敢站出来，尽每一份力量来帮助我们可以帮助到的人们。
+
+新闻来源：[Italy Orders Companies Not to Pay Unvaccinated Workers](https://summit.news/2021/09/24/italy-orders-companies-not-to-pay-unvaccinated-workers/)

@@ -2,29 +2,118 @@
 ---
 
 
-## 海航董事长陈峰如期被抓捕，还曾妄想王岐山“咔嚓”掉习可以保身
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1554803/)
+## 世界开始憎恨共产党是因为共产党让他们损失惨重
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1554944/)
 
-**作者：新西兰伊甸农场   亚伦**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/o3-a6vq7-l5u5t.jpg)
+[https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7](https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7)
 
+**郭文贵
+Miles Guo**
 
+但是最近这帮人说，哎哟，Miles
+But recently these guys said, hey, Miles
 
-**北京时间9月24日，中国海航集团发布公告指出，接到海南公安机关通知，集团董事长陈峰、首席执行官谭向东因涉嫌违法犯罪，被依法采取强制措施。**
+我们恨死共产党，
+We hate the communist party
 
-**文贵先生也在24日直播中透露，陈峰事实上并不是昨天抓的，早在一个月以前就已经被正式抓捕，而且其在过去两年是属于监视居住状态，为的是配合所谓专案组在全球处理海航海外资产。他的儿子陈晓峰，谭向东的家人，已故王健的家人，总共约两万多人和海航相关人员被监控。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/撒大苏打.jpg)**图片来源视觉中国**
+他们没有中秋节，他们有啥节？你们知道
+They don’t have Mid-Autumn Festival, what festival do they have? you know
 
+犹太人有犹太的节日，
+Jews have Jewish holidays
 
-**真正大家不知道的，海航在山西、陕西、河南、天津、大连、广东、珠海等地，囤积了大量土地也包括煤矿。当时海航陈峰、王健能做到在国内大量囤地依靠的是王岐山，因为王岐山试图把习家人拉下水，还有张德江家、李长春家、韩正家、江家、曾家、朱镕基家等。几大家族绑定共同开发，垄断了整个中国的火葬场、养老产业。出乎中共高层意料的，陈峰、王健可以布局那么早把大量钱转移到海外，最重要的是海航的债务问题比恒大严重很多。早在****2017****年，海航负债已达三万亿人民币，所谓资产达****20****万亿人民币。**
+大家这几天知道头两天是犹太新年
+Everyone knows that few days ago was Rosh Hashanah
 
-**关于这所谓的20万亿也都是虚假评估吹起来的，海航利用自己的评估机构把市场价值1块钱的地评估100块钱，然后和上市公司掺股、认股，通过评估机构再评估渤海信托、渤海开发、渤海金控，最后造就账面上的20万亿。令人气愤的是，这20万亿泡沫资产是完全的假账，但是足够可以把老百姓通过辛苦劳动存在银行的真钱用借贷融资的方式拿走，最后转移到外国。整个中国房地产商全都是骗子，包括恒大、富力、保利、碧桂园、万科，都是经过做假、做高评估价值把资产金融票据化、信托化、造成虚幻经济泡沫化，最后牺牲的只有中国老百姓。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/恶法士大夫.jpg)**图片来源Gnews**
+犹太新年把他们弄傻了，犹太人是要聚会的
+Jews were stunned at Rosh Hashanah because the Jews need gather together
 
+然后犹太人有几个节日，前前后后他们受不了了
+Then there are several holidays for Jews, they can’t bear it
 
-**也正因为来钱太容易，海航有上百家私人飞机，其中有一架全人类唯一一架的波音****787****，****1****小时仅烧油成本****6****万美元。**** ****王岐山老婆姚明珊，私生子贯君、养女孙瑶可以驾着****787****满世界飞，那可都是烧的老百姓的血汗钱。除了挥霍老百姓的钱之外，陈峰还淫乱，喜欢变态双修掏小女孩子宫，到西藏、新疆找处女，甚至到南亚、全球找处女。（和邪教组织的王岐山一样）**
+再一个美国最近，所有人这时候都想过假期
+Another one in America recently, everyone thinks about vacation at this time
 
-**直到中纪委在陈峰一个情人的亚龙湾别墅里，翻出很多关于陈峰的录像视频，竟是让“久经沙场”中南海老高层们傻了眼。**
+这假期完了以后，还有自己的事儿，都活动不了
+After the holiday, they still have their own things, so can’t do anything
 
-**从陈峰处理海航资产中手法看出，他还心存侥幸，一直拖着瞒着不予配合。原因是陈峰、陈晓峰抱着心里习近平有朝一日被“咔嚓”掉，他们以为靠山王岐山（中国光明会的扛把子）能把习干掉。但是到头来，王岐山想要在二十大中当老大的梦想彻底破灭了，以至于一个月以前手下陈峰被正式抓捕。就在这个抓捕以后，他儿子陈晓峰和一些家人全被抓，持有的资产也被追回****40% – 50%****。原因是目前在全国各地很多来自中纪委、政法委的办案专员都还是王岐山的人，所以大量资产还在藏着掖着。**
+然后大家感觉到股票不行了
+Then everyone felt that the stock market was not doing well
 
-**这些已经追回的或者还未被追回的资产都是赃款，都是属于中国人民的血汗钱，是一定要被依法归还的。**
+所以兄弟姐妹们，现在遇到这个经济
+So brothers and sisters, now encountering this economy
+
+还有中共国整个的危机，恒大，平安这些地产
+and there is also the entire crisis in the CCP, Evergrande and Ping An’s real estate
+
+你记得七哥曾经在爆料中说过什么
+Do you remember what I said during the Whistleblowing in the past
+
+我曾经给大家去年就说过，大家没有注意
+I told you last year that everyone didn’t pay attention
+
+我说你们一定要小心国内的，特别是中概股的几个大型企业
+I said that you must be careful about domestic companies, especially several large companies in China Concept Stocks
+
+平安，你看陆金所现在什么样
+Ping An and Lufax, what are they looking like now?
+
+民生是恒大倒下必死的银行，招商
+Minsheng bank will die when Evergrande falls, also China Merchants Bank
+
+现在共产党的政府地方债也出了大问题了
+Now also there is a big problem with the local government debt of the Communist Party
+
+那么这些问题的背后是什么
+So what’s behind these problems
+
+共产党所谓的股票市场金融市场
+The so-called stock market and financial market of the Communist Party
+
+然后带动的是香港擀面杖子股票市场
+Then it drives the Hong Kong’s fake Stock Market
+
+接下来马上是跟西方的所有长期的债务违约
+Next it will come all the long-term debt defaults with the West
+
+我觉得日本要出大事儿，还有德国要出大事儿
+I think something big will happen in Japan, and something big will happen in Germany
+
+德国的养老金，德国所谓的国防基金（等）这些基金
+German pensions, German so-called defense funds (etc.) these funds
+
+我以为就是将近七八十亿呢
+I thought it was nearly seven or eight billion
+
+结果也是几百亿投进去，德国要出大事儿
+It turned out to be hundreds of billions of dollars invested, and something big is going to happen in Germany
+
+兄弟姐妹你们能感受吗
+Brothers and sisters, can you feel it?
+
+这个世界的经济的大厦随时就要崩塌呀
+The world’s economic edifice is about to collapse at any time
+
+就是因为共产党
+All because of the Communist Party
+
+那你去想想，现在世界有多少人恐怕害怕
+Then think about it, how many people are afraid right now in the world?
+憎恨这个共产党流氓集团
+They hate this communist rogue group
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24](https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 -Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

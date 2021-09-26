@@ -28,14 +28,14 @@
 ### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [海航董事长陈峰如期被抓捕，还曾妄想王岐山“咔嚓”掉习可以保身](/content/gnews/6/README.md)
+### [世界开始憎恨共产党是因为共产党让他们损失惨重](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [海航董事长陈峰如期被抓捕，还曾妄想王岐山“咔嚓”掉习可以保身](/content/gnews/7/README.md)
  ` YALUN 亚伦`
 
-### [2021/09/24 文贵先生直播精要](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/09/23 文贵先生直播精要](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [9/24/2021 七哥直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [唯真不破反洗脑—我什么都不信了之一：多变的口罩](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -67,40 +67,40 @@
 ### [“供不应求”致中药材价格上涨](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|《商君书》驭民五术](/content/gnews/19/README.md)
+### [有声|中共是天价海运的幕后黑手](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [短视频：澳大利亚人团结起来揭示真相，为了自由而战](/content/gnews/20/README.md)
+### [有声|我们一定要用媒体这个核武器反击了](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|华大基因“火眼”覆盖全球](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [有声|广东男染H5N6禽流感　中共专家称仅是个案](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|《商君书》驭民五术](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [短视频：澳大利亚人团结起来揭示真相，为了自由而战](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [世界开始憎恨共产党是因为共产党让他们损失惨重](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [茅台原董事长被判无期 背后是权力与利益的交换](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
 
-### [9/24/2021 七哥直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [9/24/2021 七哥直播：渤海金控用谎言和虚假评估伪造了20万亿的资产](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [班农专访2: 文贵先生参加秘密会议](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [孟晚舟已回到中共国！](/content/gnews/25/README.md)
+### [孟晚舟已回到中共国！](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [意大利公司拒付薪水给未接种疫苗员工 未接种雇员如果去工作将面临大额罚金](/content/gnews/26/README.md)
+### [意大利公司拒付薪水给未接种疫苗员工 未接种雇员如果去工作将面临大额罚金](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/27/README.md)
+### [灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [主持人完成接种，病毒检测仍呈阳性](/content/gnews/28/README.md)
+### [主持人完成接种，病毒检测仍呈阳性](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [死亡增多、司机短缺 英国新冠次生灾害悄然出现](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [美国政府仍然在鼓励民众继续接种并施打加强针](/content/gnews/30/README.md)
+### [死亡增多、司机短缺 英国新冠次生灾害悄然出现](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [雅典娜时报-第063期](/content/gnews/31/README.md)
@@ -151,36 +151,36 @@
 ### [09/23/2021 国际财经快讯：美联储发出缩表信号，预计2022年利率将上调; 美国审计监管机构将采用新规协助落实新的交易禁令](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [共同富裕谎言](/content/gnews/47/README.md)
+### [台海风高夜](/content/gnews/47/README.md)
  ` 首尔天池农场`
 
-### [为什么总有理由给贪官轻判](/content/gnews/48/README.md)
+### [共同富裕谎言](/content/gnews/48/README.md)
+ ` 首尔天池农场`
+
+### [为什么总有理由给贪官轻判](/content/gnews/49/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [四方伙伴签署供应链协议，莫里森敦促世界调查病毒来源](/content/gnews/49/README.md)
+### [四方伙伴签署供应链协议，莫里森敦促世界调查病毒来源](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国跨党派国会香港小组发起调查英银行有否打压香港自由](/content/gnews/50/README.md)
+### [英国跨党派国会香港小组发起调查英银行有否打压香港自由](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京既实施贸易制裁打压堪培拉，又高价抢购澳大利亚小麦](/content/gnews/51/README.md)
+### [北京既实施贸易制裁打压堪培拉，又高价抢购澳大利亚小麦](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国新技术将汽车重量大幅减轻](/content/gnews/52/README.md)
+### [英国新技术将汽车重量大幅减轻](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [AUKUS引北京提核打击准备](/content/gnews/53/README.md)
+### [AUKUS引北京提核打击准备](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [《什么是影子银行》](/content/gnews/54/README.md)
+### [《什么是影子银行》](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/55/README.md)
+### [德国大选 俄罗斯和世界对其候选人有何期望？](/content/gnews/56/README.md)
  ` HimalayaRussia`
 
-### [欧洲煤炭价格达13年高位](/content/gnews/56/README.md)
+### [欧洲煤炭价格达13年高位](/content/gnews/57/README.md)
  ` HimalayaRussia`
-
-### [简说历史：世纪骗局之：1976~1980（“文革”后的大乱斗）（8）](/content/gnews/57/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
