@@ -2,18 +2,13 @@
 ---
 
 
-## 台海风高夜
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1555127/)
+## 《秘翻吐槽大剧场》“我行我秀”台词征集
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555238/)
 
-韩国首尔天池农场—–水滴石穿 上传—–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/09/926台封-1.jpeg)
-摘要：作者的一首诗把中共势必要收回台湾，用各种邪恶方案使台海局势紧张，尽显中共的邪恶之本质。希望台湾坚守你们的民主制度，打败邪恶的中共，正道主义一定会赢！
+《得加钱》——你就是主角
+本栏目征集：
+配音、台词、段子、剧本、视频
+请关注盖特直接投稿：https://gettr.com/user/daduduvideo
+加入我们的米粉团：https://discord.gg/WP95djzG
 
-幽灵降世入华夏，文明尽毁乱天下。
-国府正统战红魔，妖言惑众偷权柄。
-文革血洗丧人伦，台湾隔海兴发展。
-邪魔附体放病毒，疫苗杀人悄无声。
-经济崩塌寻活路，穷兵黩武攻台湾。
-台海翻浪吞生灵，恶鬼尽灭显正道。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/926台插.jpeg)
-（本文仅代表作者观点，与Gnews平台无关）
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

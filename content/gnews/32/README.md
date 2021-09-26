@@ -2,40 +2,39 @@
 ---
 
 
-## 中共计划用 ”超级MERS“ 病毒对美国发动新一轮致命生物武器攻击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555031/)
+## 有声|我们一定要用媒体这个核武器反击了
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1555176/)
 
-栏目记者/责任编辑：文真
+配音：纽约香草山香港部 – 文凯琳
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-358.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
 
 
-据一个去中心化的网络匿名病毒调查小组证实，达扎克和福奇通过武汉病毒研究所制造出了180种冠状病毒生物武器，并置于中共控制之下。据悉，中共控制的生物武器部署小组已经越过美国边境，携带增强MERS 生物武器，计划在美国主要城市释放。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5-4.jpg)
-调查记者劳拉-洛根已通过她的信息源证实了这一消息，因此她现在警告说，德克萨斯州边境的移民危机是美国的敌人把危险生物武器带入美国境内的“完美掩护”。
+我深深感到整个人类到了该深刻反思的时候了。大部分的人不关心政治，只喜欢自己的现实的小圈子，最喜欢的口头禅就是“那些国家大事关我什么事”。殊不知这样就掉入了陷阱，按照统治者想要的模式运行——自私且现实。
 
-这种超级 MERS 病毒会杀死至少 30% 的感染者。但由于中共病毒疫苗破坏了接种者的免疫系统，接种者的死亡率很可能高达50%以上。超级 MERS 毒株实际上是二元武器系统的后半部分，前半部分就是疫苗。
+关心政治就是要知道宏观的运作模式，运用**常识**和逻辑击粹谎言和欺骗。如果懦弱和缺乏判断分辨而随便相信公众媒体，最终将导致金字塔顶端的人可以毫无底线地公开凌辱整个人类。媒体就是核武器啊！
 
-中共特工可能会使用无人机来散布雾化的、穿透皮肤的有毒纳米粒子。而这场有预谋、有计划的生物战，会以”新冠病毒的一个新变种“的方式掩盖。
+我们也必须用我们的核武器，就是盖特、GTV、GNews，来反击！把这个病毒和疫苗背后的大怪物都曝光在世人的面前，请留意这些 hashtag 标签：#医药界 #医学界 #福奇 #辉瑞 #科兴 #世卫组织 #谭德赛 #钟南山 #盖茨 #盖茨基金 #谷歌 #公众媒体 #推特 #facebook #世界共产联盟 #CCP #盗国贼 #光明会 ……。一定要干掉这些魔鬼的黑暗势力，人类才会有希望。
 
-（本文仅代表作者观点）
+我祈祷神帮助我们，尽快消灭邪恶的黑暗势力，让世界恢复安宁，阿门。
 
-参考链接：
-1. [中共计划用 ”超级MERS“ 病毒对美国发动新一轮致命生物武器攻击](https://vaccines.news/2021-09-23-leaked-darpa-document-confirms-attack-on-humanity-using-aerosolized-skin-penetrating-nanoparticle-spike-proteins.html#)
-2. [中共计划用 ”超级MERS“ 病毒对美国发动新一轮致命生物武器攻击](https://www.naturalnews.com/2021-09-23-leaked-darpa-document-confirms-attack-on-humanity-using-aerosolized-skin-penetrating-nanoparticle-spike-proteins.html#)
-3. [中共计划用 ”超级MERS“ 病毒对美国发动新一轮致命生物武器攻击](https://gnews.org/zh-hans/1553356/)
+[文字版原文：我们一定要用媒体这个核武器反击了](https://gnews.org/zh-hans/1551032/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
+音频处理：喜山必胜Maverick
 
-终审编辑：Ryan
-校正/发稿：Hetangyuese
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
