@@ -2,28 +2,24 @@
 ---
 
 
-## 《证词项目》：以色列毒针受害者亲述惨痛经历
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556331/)
+## 盖特答谢用户大抽奖, 新泽西一家赢得福特卡车
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556341/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-381.png)
-昨天，文贵先生在盖特发布纪录片《证词项目》的节选片段。这部由以色列人民委员会制作的纪录片，讲述了新冠疫苗受害者所遭受的痛苦。该纪录片旨在提供一个平台，确保受害者的声音被听到，并鼓励越来越多的人讲述自己的故事。
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-382.png)
+由川普总统的前高级顾问和战略家杰森米勒担任CEO的全新社交媒体盖特, 虽然刚成立不到3个月, 但已经成为推特最有力的竞争对手,众多保守派人士及媒体/自媒体都选择离开推特来到盖特, 因为这里不会有政治正确和对言论自由的打压,更不会有封杀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-24.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-24.jpeg)
 
-在过去几个月，采访人阿维塔发现，身边的人因为接种新冠疫苗相继出现了严重的不良反应，却没有任何一家新闻媒体或记者对疫苗进行调查，也没有公布相关数据。而当她得知以色列政府计划给青少年注射疫苗的时候，身为两个孩子的母亲，阿维塔决定参与这部记录片的制作。
-
-该片中，数十位受访者接种新冠疫苗后，或患上心肌炎、心包炎等心脏疾病，或受皮肤疾病的困扰，还有些人发生出血，或产生严重的神精系统疾病。他们勇敢地在镜头前讲述自己的惨痛经历，希望给疫苗接种者以警示，更希望用自己的亲身经历，向以色列政府部门揭示疫苗造成的伤害，以阻止政府对青少年接种疫苗的计划。
-
-爆料革命文贵先生向世界警示，疫苗和病毒造成的伤害将是切尔诺贝利事故的数万倍。我们要坚持继续传播病毒和疫苗真相。在觉醒的人民和事实面前，各国政府逐渐转变意识。欧盟将于10月取消疫苗护照的消息，为全世界迎来了一丝曙光。
+目前盖特注册用户已超过200万! 为鼓励和欢迎注册用户, 盖特举行了一次名为”Get Truckin”的抽奖答谢活动, 最终来自新泽西州杰克逊市的莱克伍德赢得了一辆全新福特F-150卡车, 杰森米勒亲自驾车送到他的家门口。 一位向获奖者表示祝贺的用户称: ” 感谢盖特和米勒,他们在为言论自由而战!”
 
 （本文仅代表作者观点）
 
-参考链接: [https://gettr.com/post/pc9b02895d](https://gettr.com/post/pc9b02895d)
+参考链接: [https://lnnnews.com/2021/09/23/congrats-lakewood-resident-wins-pickup-truck-from-gettr-delivered-by-jason-miller-himself-exclusive/](https://lnnnews.com/2021/09/23/congrats-lakewood-resident-wins-pickup-truck-from-gettr-delivered-by-jason-miller-himself-exclusive/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：暗黑
+终审：文龍
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**

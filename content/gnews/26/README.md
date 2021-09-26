@@ -2,52 +2,43 @@
 ---
 
 
-## 马来西亚卫生部伊维菌素研究疗效分析即将完成
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1556166/)
+## 秘翻在线：联邦法官暂停纽约学校强制疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556176/)
 
-#### 编译报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-35.png)
-图片来源：FLY FM
+#### 文章撰写：寶寶
 
-吉隆坡消息：9月24日马来西亚卫生部长凯里·贾玛鲁丁（Khairy Jamaluddin）说，关于争议药物伊维菌素（Ivermectin）在预防中共病毒严重感染方面的功效研究将很快完成。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ny-healthcare-worker-120d0x757.jpg)
 
-他指的是”伊维菌素对中共病毒高危患者的治疗效果”研究，即所谓的I-TECH研究。今年6月，该研究由卫生局局长丹斯里·努尔·希沙姆·阿卜杜拉博士宣布。
+据大纪元9月25日报道，周五晚些时候，根据联邦法官要求，纽约市对教师和其他教育部工作人员的COVID-19疫苗强制暂停。
 
-【备注：I-THCH是一项多中心研究，旨在调查伊维菌素药物对高危 COVID-19 患者的疗效，本研究将比较伊维菌素的治疗效果与单独的护理标准。】
+原告是一群教师，在等待美国第二巡回上诉法院三名法官小组的审查期间要求临时禁令。
 
-在9月22日的议会书面答复中，凯利部长说I-TECH将继续进行，到9月底要招募500名对象。
+美国上诉法院法官约瑟夫·比安科 (Joseph Bianco) 是乔治·W·布什 (George W. Bush) 提名的法官，他在一份长达一页的命令中批准了该请求。
 
-在回答诗巫地区国会议员林财耀（Oscar Ling Chai Yew）的相关问题时，他补充说：“接下来，研究结果预计将在10月提交给卫生部的利益相关者。”
+三名法官专家组现在将决定是在上诉期间强制执行禁令还是允许疫苗强制令生效。
 
-【备注：相关利益者指患者、医生、雇主、保险公司、制药公司和政府。】
+原告雷切尔·马尼斯卡科（Rachel Maniscalco）和其他三名纽约市教育局工作人员就这项原定于9月27日开始的强制措施提起诉讼。
 
-凯利说，截至8月，已有超过350名中共病毒感染者参与了伊维菌素治疗新冠（I-TECH）研究，该研究的主要目的是评估伊维菌素在防止新冠病毒患者从第四类恶化到第五类的治疗功效。
+他们说，疫苗强制令要求所有员工证明他们至少接种了一剂COVID-19疫苗，这是政府的过度干预，违反了美国宪法的正当程序条款。 该条款部分规定，任何国家都不得“未经正当法律程序剥夺任何人的生命、自由或财产”。
 
-他说，根据该研究的方案，在招募了30%的病人后，对（伊维菌素）安全性进行了中期分析。
+诉讼称，从事职业的权利是一种自由的权利，而强制疫苗可能会导致不接种疫苗的员工付出代价，干扰了公民自由权。
 
-凯利说，迄今为止，**数据安全监测委员会出具了没有重大副作用的报告**。
+本周早些时候，另一位乔治·W·布什提名的法官、美国地区法官布赖恩·科根（Brian Cogan）拒绝阻止强制疫苗，裁决原告未能表明他们可能会胜诉。
 
-他补充说：**“****委员会已经敦促继续研究疗效分析，直到它（****I-TECH****）完成。”**
+之后引发了上诉，之后才有了比安科法官的裁决。
 
-第四类病人是那些患有（新冠）肺炎并需要补充氧气的病人，而第五类病人是危重病人，需要插管或使用呼吸机。
+目前尚不清楚三名法官小组何时会做出决定。
 
-伊维菌素已被用于治疗人类的头虱和河盲症（盘尾丝虫病），以及动物的心虫病，已有几十年治疗的历史。
+该市教育部 (DOE) 在向新闻媒体发表的一份声明中表示，相信“一旦所有事实都陈述清楚，强制疫苗将会实施，因为这是我们所有学生和教职员工应得的保护。”
 
-伊维菌素是一种抗寄生虫药物，尚未注册用于治疗新冠病毒，马来西亚只允许在全国12家医院的临床试验中使用。
+“我们目前的接种疫苗授权仍然有效，我们希望下周巡回法院迅速裁决。 超过82%的教育部员工已接种疫苗，我们继续敦促所有员工在9月27日之前接种疫苗，”该机构补充道。
 
-那些被发现出售伊维菌素用于治疗和预防中共病毒的人可以被罚款25,000至50,000马币。
+工会敦促该市推迟或修改强制命令，声称这将导致教师短缺。
 
-参考链接：
+周五早些时候，代表该市校长的工会“学校监督与管理委员会”主席马克·坎尼扎罗 (Mark Cannizzaro) 告诉记者，一些学校有几十名未接种疫苗的工作人员。
 
-1、[Study on Ivermectin efficacy for Covid-19 to be completed soon, says Khairy | The Star](https://www.thestar.com.my/news/nation/2021/09/24/study-on-ivermectin-efficacy-for-covid-19-to-be-completed-soon-says-khairy)
+但民主党市长比尔·德·布拉西奥（Bill de Blasio）持反对意见。周五他在一个广播节目中说： “我们一直在计划。 我们准备了很多替代老师，但我认为这里绝大多数教师和工作人员都将接种疫苗回到学校。”
 
-2、[Ivermectin Treatment Efficacy in Covid-19 High Risk Patients – Full Text View – ClinicalTrials.gov](https://clinicaltrials.gov/ct2/show/NCT04920942)
+参考文章：[**Federal Judge Blocks New York City’s School COVID-19 Vaccine Mandate**](https://m.theepochtimes.com/federal-judge-blocks-new-york-citys-school-covid-19-vaccine-mandate_4016844.html?welcomeuser=1)
 
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+本文仅代表作者本人观点，不代表Gnews平台

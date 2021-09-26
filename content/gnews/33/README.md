@@ -2,178 +2,34 @@
 ---
 
 
-## 墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556052/)
+## 中共带给人类的是“共同灾难”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1556059/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-19.jpg)https://gtv.org/video/id=615044f3d2e2b817486e3df1
-Rukshan Fernando (Australian Independent Journalist)
-鲁克山 费尔南多（澳大利亚独立记者）
+**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/253-1.jpg)图片来源：雅典娜设计组（姐夫说说）
+**作者：**李易通
+**编辑：**翼族
 
-That’s right, Laura, I mean look,
-没错，劳拉，我的意思是, 看
+1991年，前苏共总书记戈尔巴乔夫在《苏联解体宣言中》说到：“在世界的各个角落，只要出现共产党就会出现内战、饥荒和恐怖，就把烧杀、掠夺、暴乱、篡国夺权、血流成河带到哪里。”中国共产党正是继承了马克思列宁的共产主义荒谬邪说，制造了一个又一个的灾难，并把灾难引向全世界。
 
-these are just everyday Australians everyday Victorians.
-这些只是澳大利亚人的日常，维多利亚人的日常
+1998年，中共妄图支持印尼的亲共势力，篡夺印尼的政权，结果引发了印尼的排华事件，导致几十万华人被残忍杀害，华人成了无辜的受害者，中共才是那场灾难的罪魁祸首；2020年，中共支持缅甸军政府，颠覆了缅甸的民主政权，带给当地缅甸人民的又是无尽的灾难和血腥镇压；2021年，中共故技重演，支持塔利班恐怖组织，篡夺了阿富汗政权，让阿富汗再次变成人间地狱，无数阿富汗百姓流离失所，以难民身份远走他乡。以上例子只是中共制造的灾难的冰山一角，而中共给中国百姓带来的灾难是最严重的。
 
-They’re protesting right now, the government said,
-他们现在正在抗议，而政府说
+自从1949年中共以非法手段篡夺国民党的政权，成为中国的“合法政府”以来，它的执政历史就是中国人民的灾难史。大跃进导致的饥荒饿死中国百姓几千万人；以阶级斗争为纲的文化大革命，最终演变为一场中国百姓共同参与的犯罪，直接和间接导致几百万人死亡；“八九六四”中共用军队血腥镇压手无寸铁的学生，甚至不惜用坦克车碾压参与游行示威活动的学生；计划生育强制堕胎，导致中国几亿婴孩胎死腹中。由于被中共洗脑的中国百姓的愚昧和软弱，以及西方国家的纵容，让中共这个魔鬼组织肆无忌惮地犯罪和作恶，直至演变成彻底的反人类罪行——新疆集中营关押200万新疆维族人，血腥镇压香港的游行示威活动，并放出生化病毒，最终导致武汉疫情爆发，因为害怕追责和逃避责任，中共选择了欺骗和隐瞒疫情，故意将病毒灾难引向全世界，导致流行病全球大爆发。宣称“人类命运共同体”的中共组织，让全人类陷入了共同的疫情灾难。
 
-you know, protesting is illegal.
-你知道，抗议是非法的
+然而，西方国家对中共发动的生物武器病毒袭击战，采取视而不见的绥靖政策，不敢面对中共发动生化战争的事实，继续允许中共犯罪组织存在于这个世界，结果导致中共把各国引入了一场更大的疫苗灾难。中共对外输出腐败，对西方国家进行蓝金黄手段，每年花费超过千亿美元在统战工作上，正是在中共蓝金黄力量的影响下，各国政府采纳了中共邪恶组织的疫苗护照政策以及强制接种疫苗的政策，从西方国家政府采取的疫苗接种政策，我们看到了中共独裁政府的影子，也看到了各国政府受到中共邪恶政府的影响，采取了类似于中共之前使用过的强制堕胎的措施，强迫百姓接种对人体伤害极大的疫苗。值得庆幸的是，世界还有新中国联邦这个智慧和正义的群体的存在，他们不断揭露病毒和疫苗的真相，让各国政府意识到病毒和疫苗都是生物基因武器，越来越多的国家决定终止疫苗的接种。
 
-You can’t be on the street, so the police using all sorts of tactics
-你不能在街上，所以警察使用各种策略
+中共除了用病毒和疫苗生物基因武器伤害人类，它还在酝酿一场新的经济和金融灾难。随着恒大地产的暴雷，中共经济正在崩塌的事实已经愈加明显。中共搞的经济模式就是一场庞氏骗局，现在到了泡沫破灭的时候，任何力量都无法阻止中共国经济和金融的倒塌。相信到了那个时刻，邪恶的中共组织会像应对武汉疫情一样，把经济和金融灾难顺势引向全世界，将西方国家的经济和金融系统击溃，因为中共相信的是“多难兴邦”，善于用更大的灾难来掩盖之前的灾难，因此中共带给世界的必然是无穷无尽的灾难。
 
-and measures against just ordinary working class Australians,
-和战术来针对普通澳大利亚工人阶级
+中共为了应对即将发生的经济和金融危机，已经在准备再次向世界释放实验室的生物武器病毒，以掩盖它制造的经济灾难。同时还帮助一些邪恶国家建造生物武器实验室，让更多邪恶国家掌握生物武器，威胁人类的安全。
 
-so that that actual visual that you talked about the lady being pushed over.
-所以你谈到的那个女士被推倒的那个实际的视觉
+当中共制造的灾难不断累积，如果各国政府不正确引导自己的百姓，区分中共和中国人，可能会导致更大的种族矛盾和仇视，爆发类似于印尼排华的灾难事件。甚至会引发世界的种族战争，导致世界彻底失控。因此，把中共和中国分开，把中共和中国人分开，追责中共这个反人类罪组织，是每个中国人最急迫的任务。只有尽快消灭中共，世界的灾难才会结束，因为中共是当下一切灾难的源头。
 
-You know that was during a police want to clear clear road up there with
-你知道那是在警察想要清理那里的道路时
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-where there was protesters and even after she was pushed over
-有抗议者的地方，甚至在她被推倒之后
+*发布：翼族*
 
-that particular police officer sprayed her in the face with OC spray.
-那位警察用辣椒油树脂喷雾剂喷她的脸
-
-I mean these are tactics that are being used against everyday Australians,
-我的意思是，这些是针对普通澳大利亚人的战术
-
-and it’s like, he said it’s like it’s from a communist China,
-就像，他说这就像来自共产主义中国
-
-Laura Ingraham (Fox News host)
-劳拉·英格拉汉姆（福克斯新闻主持人）
-
-and you were yourself harassed by a security official the police over the summer,
-而且你自己在夏天就被警察的安全官员骚扰过
-
-I guess we’re attending one of those anti lockdown rallies
-我想我们正在参加其中一场反封锁集会
-
-and you caught the incident on tape, Watch.
-你的这件事被记录在了录像带上，请看
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-I’ve Just got a letter here about tomorrow’s action,
-我刚收到一封关于明天行动的信
-
-What’s tomorrow’s action?
-明天的行动是什么？
-
-This is the second time that you guys come here
-这是你们第二次来这里
-
-Why do you have my address?
-为什么你们有我的地址？
-
-Policeman
-警察
-
-We are the police.
-我们是警察
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-I know you’re the police
-我知道你们是警察
-
-Why are you looking up journalists?
-你为什么要找记者的麻烦？
-
-Why are you looking up people?
-你为什么要找人民的麻烦？
-
-Who work in the media?
-谁在媒体工作？
-
-I’m reporter, man
-我是记者，老兄
-
-Policeman
-警察
-
-I don’t know why you were there
-我不知道你为什么在那里
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Rukshan that is also absolutely chilling for anyone
-鲁克山，对于任何相信自由表达和报道的人来说
-
-who believes in free expression and reporting.
-这绝对是令人心寒的
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-Well this is the thing, Laura
-劳拉，嗯，事情就是这样，
-
-they have no problem with the mainstream media
-他们对主流媒体没有意见
-
-but you know, for us independent reporters that don’t,
-但你知道，对于我们这些独立记者来说就不行
-
-You know, follow that same narrative that the government is putting out there
-你知道，遵循政府在那里发布的相同叙述
-
-and, you know, we’re on the ground,
-而且你知道，我们是在现场
-
-you know, showing the people, interviewing the people
-你知道，向人们展示，采访人们
-
-and just letting their voices be heard.
-而且只是让他们的声音被听到
-
-They don’t like that type of coverage
-他们不喜欢那种类型的报道
-
-so, you know, they want to classify people in independent media,
-所以，你知道，他们想对独立媒体中人进行分类
-
-as you know, protested as well
-如你所知，抗议也同样
-
-and that’s why they’re using this type of tactic
-这就是为什么他们使用这种策略
-
-to silence these these voice and the stories being told
-来压制维多利亚州和澳大利亚人民
-
-by the people of Victoria and Australia,
-的声音和故事
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Australia’s making China proud,
-澳大利亚让中共国骄傲
-
-and those that footage just, I can’t stop watching
-而那些片段，我不能停止观看
-
-Rukshan, Thank you.
-鲁克山，谢谢
-
-原视频日期：2021/09/22
-原视频链接: https://twitter.com/miminguyenly/status/1440876691388198913?s=24
-视频时间段 : 0:00-1:58
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
