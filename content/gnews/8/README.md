@@ -2,49 +2,178 @@
 ---
 
 
-## 毒疫苗寿终正寝
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1555970/)
+## 墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556052/)
 
-作者：sherryok (水云间)
-![](https://assets.gnews.org/wp-content/uploads/2021/01/1210943025_16086835420341n-4.jpg)
-9月25日，郭文贵先生在当红社交媒体盖特上爆料，欧盟已经同意10月20日不再推行疫苗护照，疫苗被归于实验性，基本停止了毒疫苗。10月1日起，欧盟医院正式启动五种药物临床综合治疗方法。推特网友迅速找到了欧盟5种疗法的信息出处，以下是来自欧盟委员会网站[Press corner | European Commission (europa.eu)](https://ec.europa.eu/commission/presscorner/detail/en/ip_21_3299)6月29日的新闻发布。当时五种药物都在滚动审查中，但都已预料今年10月将获得授权。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-19.jpg)https://gtv.org/video/id=615044f3d2e2b817486e3df1
+Rukshan Fernando (Australian Independent Journalist)
+鲁克山 费尔南多（澳大利亚独立记者）
 
-新闻发布信息显示： 欧盟 COVID-19 疗法战略今天（6月29日）公布了第一个成果，宣布了首个五种疗法组合，这些疗法很快可用于治疗整个欧盟的患者。其中四种疗法是单克隆抗体，正在接受欧洲药品管理局的滚动审查。另一种是免疫抑制剂，它具有营销授权，可以扩展到包括 COVID-19 患者的治疗。
+That’s right, Laura, I mean look,
+没错，劳拉，我的意思是, 看
 
-健康与食品安全专员 Stella Kyriakides说：“今天，我们正朝着治疗 COVID-19 的广泛疗法迈出第一步。虽然疫苗接种正在以越来越快的速度进行，但病毒不会消失，患者将需要安全有效的治疗来减轻 COVID-19 的负担。我们的目标很明确，我们的目标是确定更多正在开发的领先候选药物，并在年底前批准至少三种新疗法。这是欧洲卫生联盟在行动。”
+these are just everyday Australians everyday Victorians.
+这些只是澳大利亚人的日常，维多利亚人的日常
 
-这五种产品处于开发的后期阶段，很有可能成为到 2021 年 10 月获得授权的三种新型 COVID-19 疗法之一，这是该战略设定的目标，前提是最终数据证明其安全性、质量和有效性. 产品有：
+They’re protesting right now, the government said,
+他们现在正在抗议，而政府说
 
-现有药物的新 COVID-19 适应症：
+you know, protesting is illegal.
+你知道，抗议是非法的
 
-- 礼来股份有限公司 (Eli Lilly) 的巴瑞替尼（baricitinib ）免疫抑制剂（一种降低免疫系统活性的药物）：其延伸治疗 COVID-19 适应症的上市许可申请正在评估。
+You can’t be on the street, so the police using all sorts of tactics
+你不能在街上，所以警察使用各种策略
 
+and measures against just ordinary working class Australians,
+和战术来针对普通澳大利亚工人阶级
 
-新开发的单克隆抗体正在滚动审查中 –这是在公共卫生紧急情况下加速评估有前途药物的监管方式：
+so that that actual visual that you talked about the lady being pushed over.
+所以你谈到的那个女士被推倒的那个实际的视觉
 
-- 礼来的巴马尼单抗（bamlanivimab） 和依替维单抗（etesevimab） 的组合：正在滚动审查
-- 再生元制药（Regeneron Pharmaceuticals, Inc.） 和 罗氏制药（F. Hoffman-La Roche, Ltd.） 的卡西瑞单抗（casirivimab）和伊德单抗（imdevimab）的组合：正在滚动审查
-- 塞尔群制药（Celltrion ）的瑞丹维单抗（regdanvimab）：正在滚动审查
-- 葛兰素史克和 Vir Biotechnology, Inc. 的索曲韦单抗（sotrovimab）：正在滚动审查
+You know that was during a police want to clear clear road up there with
+你知道那是在警察想要清理那里的道路时
 
+where there was protesters and even after she was pushed over
+有抗议者的地方，甚至在她被推倒之后
 
-下一步，委员会将在新成立的 COVID-19 变种专家组的工作基础上，在 10 月之前制定至少 10 种潜在COVID-19 疗法的组合。遴选过程将是客观和科学的，遴选标准与会员国达成一致。由于不同的患者群体和疾病的不同阶段和严重程度需要不同类型的产品，专家组将根据基于科学的标准确定产品类别并为每个类别选择最有前途的候选疗法。
+that particular police officer sprayed her in the face with OC spray.
+那位警察用辣椒油树脂喷雾剂喷她的脸
 
-该产品组合将有助于实现在 10 月之前获得至少三种新疗法的批准，并可能在年底之前获得两种新疗法的批准。到 2021 年底，欧洲药品管理局将根据研发成果对有前景的疗法进行更多滚动审查。
+I mean these are tactics that are being used against everyday Australians,
+我的意思是，这些是针对普通澳大利亚人的战术
 
-委员会最近完成了单克隆抗体卡西瑞单抗（casirivimab） 和伊德单抗（imdevimab）的联合采购，并可能在年底前推出更多。
+and it’s like, he said it’s like it’s from a communist China,
+就像，他说这就像来自共产主义中国
 
-7月12-13日将举办首届治疗药物行业对接活动，以确保一旦获得批准的治疗药物尽快足量生产。
+Laura Ingraham (Fox News host)
+劳拉·英格拉汉姆（福克斯新闻主持人）
 
-**背景**
+and you were yourself harassed by a security official the police over the summer,
+而且你自己在夏天就被警察的安全官员骚扰过
 
-[COVID-19治疗欧盟战略](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/commission/presscorner/detail/en/ip_21_2201)旨在打造COVID-19疗法的广泛的产品组合，实现在2021年十月前推出三个新的可用的治疗方案，今年年底前实现另外两个方案的目标。它涵盖了药物的整个生命周期，从研究、开发、选择有希望的候选药物、快速监管批准、制造和部署到最终使用。
+I guess we’re attending one of those anti lockdown rallies
+我想我们正在参加其中一场反封锁集会
 
-该战略是强大的[欧洲卫生联盟的一部分](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/info/strategy/priorities-2019-2024/promoting-our-european-way-life/european-health-union_en)，采用协调一致的欧盟方法来更好地保护我们公民的健康，使欧盟及其成员国能够更好地预防和应对未来的流行病，并提高欧洲卫生系统的弹性。 该战略侧重于 COVID-19 患者的治疗，与成功的[欧盟疫苗战略](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/info/live-work-travel-eu/coronavirus-response/public-health/eu-vaccines-strategy_en)一起工作，通过该[战略](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/info/live-work-travel-eu/coronavirus-response/public-health/eu-vaccines-strategy_en)，针对 COVID-19 的安全有效疫苗已被授权在欧盟使用，以预防和减少病例传播，如以及因该病导致的住院率和死亡人数。
+and you caught the incident on tape, Watch.
+你的这件事被记录在了录像带上，请看
 
-[新闻链接](https://gettr.com/post/pc6yta2afd)
+Rukshan Fernando
+鲁克山 费尔南多
 
-【文章仅限作者个人观点 不代表GNEWS平台】
+I’ve Just got a letter here about tomorrow’s action,
+我刚收到一封关于明天行动的信
 
-审核校对：Barry Jack
-上传排版：F
+What’s tomorrow’s action?
+明天的行动是什么？
+
+This is the second time that you guys come here
+这是你们第二次来这里
+
+Why do you have my address?
+为什么你们有我的地址？
+
+Policeman
+警察
+
+We are the police.
+我们是警察
+
+Rukshan Fernando
+鲁克山 费尔南多
+
+I know you’re the police
+我知道你们是警察
+
+Why are you looking up journalists?
+你为什么要找记者的麻烦？
+
+Why are you looking up people?
+你为什么要找人民的麻烦？
+
+Who work in the media?
+谁在媒体工作？
+
+I’m reporter, man
+我是记者，老兄
+
+Policeman
+警察
+
+I don’t know why you were there
+我不知道你为什么在那里
+
+Laura Ingraham
+劳拉·英格拉汉姆
+
+Rukshan that is also absolutely chilling for anyone
+鲁克山，对于任何相信自由表达和报道的人来说
+
+who believes in free expression and reporting.
+这绝对是令人心寒的
+
+Rukshan Fernando
+鲁克山 费尔南多
+
+Well this is the thing, Laura
+劳拉，嗯，事情就是这样，
+
+they have no problem with the mainstream media
+他们对主流媒体没有意见
+
+but you know, for us independent reporters that don’t,
+但你知道，对于我们这些独立记者来说就不行
+
+You know, follow that same narrative that the government is putting out there
+你知道，遵循政府在那里发布的相同叙述
+
+and, you know, we’re on the ground,
+而且你知道，我们是在现场
+
+you know, showing the people, interviewing the people
+你知道，向人们展示，采访人们
+
+and just letting their voices be heard.
+而且只是让他们的声音被听到
+
+They don’t like that type of coverage
+他们不喜欢那种类型的报道
+
+so, you know, they want to classify people in independent media,
+所以，你知道，他们想对独立媒体中人进行分类
+
+as you know, protested as well
+如你所知，抗议也同样
+
+and that’s why they’re using this type of tactic
+这就是为什么他们使用这种策略
+
+to silence these these voice and the stories being told
+来压制维多利亚州和澳大利亚人民
+
+by the people of Victoria and Australia,
+的声音和故事
+
+Laura Ingraham
+劳拉·英格拉汉姆
+
+Australia’s making China proud,
+澳大利亚让中共国骄傲
+
+and those that footage just, I can’t stop watching
+而那些片段，我不能停止观看
+
+Rukshan, Thank you.
+鲁克山，谢谢
+
+原视频日期：2021/09/22
+原视频链接: https://twitter.com/miminguyenly/status/1440876691388198913?s=24
+视频时间段 : 0:00-1:58
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

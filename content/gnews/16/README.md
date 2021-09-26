@@ -2,51 +2,37 @@
 ---
 
 
-## 澳警暴力强制实施COVID禁令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1555890/)
+## 有声|灭共进程暗含反华危机,爆料革命须未雨绸缪
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1556020/)
 
-- 编译：Lulumi
+配音：纽约香草山美食部 – 玫瑰园
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot_20210925-045510_Twitter-913x479-1.jpg)**澳警袭击民众的可怕场景**。（图片来源：本篇新闻）
 
-据网关专家(The Gateway Pundit)报道，在最近全国各地因重新实施Covid强制令而发生骚乱之后，澳大利亚当局对其公民采取了残酷的武力手段，以逼迫民众遵守。
+在昨天的最新直播中, 文贵先生不止一次提到他所获知的情报, 显示在新冠病毒及疫苗对全世界造成巨大破坏伤亡的同时, 各国政府甚至民众间也酝酿着一股反华的暗流。
 
-本周早些时候，官员们在网上公布了他们最新的人群控制策略——伏击手无寸铁的抗议者，并在他们逃跑时用橡皮子弹和毒气弹等 “非致命性武器”开火，这正是他们被形容为现代纳粹的原因。
+文贵先生提及令他始终悲愤难平的98年印尼排华事件, 惨剧历历在目。他曾在海外遇见印尼总统苏哈托家族成员,并向对方公开表示, 作为华人, 他有朝一日必报此仇!令对方瞠目结舌。文贵先生说: “印尼当年死亡37万人! 今天共产党制造这场全球性病毒灾难, 最终会算到每一个中国人头上!”
 
-本周三我们分享了第一集：
+虽然文贵先生和万千爆料革命战友, 4年来不遗余力的向全世界传播中共的邪恶和病毒真相, 但共产党70年绑架中国人的恶果很难在短时间消弭, 无论出于什么原因, 未来一旦真相揭示,很可能会有很多国家政府包括民众, 将怒气宣泄到全球的华人群体,这就是灭共历程中潜在的危机。我们相信大智慧的文贵先生一定有应对的策略，但需要每一位战友都鼓起勇气面对, 更加努力地传播病毒疫苗真相, 向世界宣告, 我们是华人, 更是拯救世界的新中国联邦人!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/australian-authorities-913x479-1.jpg)**一名抗议者在试图逃跑时被击中背部。 然后警察在这个人倒地后蜂拥而上。**
+[文字版原文：灭共进程暗含反华危机,爆料革命须未雨绸缪](https://gnews.org/zh-hans/1554450/)
 
-抗议者并不是唯一需要担心的人。
+音频处理：喜山必胜Maverick
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-1-24.png)一名男子在购物时被拦下，并被无情地打倒在地，然后被逮捕，因为根据该市的封锁政策，他离自己的房子太远。然而警察却”打错人”。
+*发稿：*Yuki jiang
 
-另一个令人震惊的视频显示，人们在海滩上试图享受阳光。突然，他们被一大群警察埋伏起来，开始暴力逮捕他们能接触到的人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-2-23.png)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-3-23.png)**旁观者惊恐地尖叫，警察尽职尽责地 “做他们的工作”。**
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-去年，一名妇女被一名警官恶狠狠地掐住脖子并扔到地上，原因是她没有戴口罩这一”令人发指”的”罪行”。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-4-25.png)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unknown-5-20.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-就在最近，实施袭击的警官被认定没有任何罪行，并被允许恢复正常工作。他不仅没有被起诉，而且被他攻击的妇女被指控攻击和拒捕。
-
-**点评：**
-
-**文贵先生在2019年“反送中运动”中就警告过世界，如果对中共在香港的恶行视而不见继续纵容，香港的今天就是西方的明天，果然现在就发生了。中共的邪恶和渗透力只有我们想不到没有他们做不到。西方民主制度被邪恶势力破坏，被中共钻空子腐蚀得岌岌可危，只有新中国联邦的正道主义才能在这场人类文明大危机中拯救人类。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-**新闻来源：**[GP](https://www.thegatewaypundit.com/2021/09/remember-health-australias-covid-gestapo-grabbing-people-seemingly-random-beating-submission-hauling-away-outside-homes-video/) (The Gateway Pundit) | 发布：朱利安·康拉德森 发布时间：2021年9月25日
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

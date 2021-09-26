@@ -2,24 +2,31 @@
 ---
 
 
-## 《迪迦奥特曼》不见了
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1555929/)
+## 德国内政部对中共国产智能手机启动安全调查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556027/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/262.jpg)图片来自:https://m.yicai.com/news/100956010.html
-突然注意到朋友圈里的人在抱怨央视频、腾讯、爱奇艺、优酷以及B站等视频平台都无法搜索到《迪迦奥特曼》的正片了，赶紧去网上搜了一下，真的，伴随着家里孩子成长的动漫片《迪迦奥特曼》突然在墙内不见了！
+栏目记者/责任编辑：在远方
 
-《迪迦奥特曼》是1996年在日本上映的一部科幻片，后来引进中国，还记得孩子小的时候拿着碟片可以反反复复地看上几十遍，奥特曼的玩具和贴纸也是孩子的最爱。如今的孩子已经长大，不再痴迷于以往的动漫，他爱生活，爱音乐，爱独立思考有思想，是个阳光帅气的小伙子。网上说“奥特曼”下架的原因是因为有暴力内容，我很好奇地问了下儿子当年看奥特曼动漫给他印象最深的是什么？他说：片中总有妖怪的存在，但是“奥特曼”总是很厉害，他的那份斗志总能战胜妖怪，战胜困难。还有片中的勇士经常是孤独的，勇士必须连续作战，保持胜利的战果。儿子还说他记得当时片中有句话是：人类并没有那么脆弱⋯⋯相信人类一定能够迎接崭新的时代。儿子的回答与下架的原因大相径庭，我无言以对⋯⋯
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-近来在墙内的奇葩事儿确实还真不少，郝海东先生的进球榜和足球先生都会莫名其妙地从网络上神秘地找不到了，一部在墙内播放了近二十年动漫的命运也是如此。当时当下，我们可以看到历史的记忆可以在墙内一夜之间被抹去，但是深埋在人们心中的记忆是永远也无法抹去的，因为那是真，是美好，是令人感动的。
 
-参考消息来源：
 
-[https://www.voachinese.com/a/china-urges-cartoon-producers-to-resist-unhealthy-content-20210925/6245542.html](https://www.voachinese.com/a/china-urges-cartoon-producers-to-resist-unhealthy-content-20210925/6245542.html)
+继立陶宛政府对中共国智能手机产品内置的信息审查功能发出警告后，德国内政部下属的联邦信息安全办公室（BSI）也就此启动了调查。具体涉及的中共国产手机品牌包括华为、小米和一加OnePlus。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/P1-8.003.jpeg)
+此前立陶宛政府称小米/华为手机在欧洲销售的手机可以识别”自由西藏”、”台湾独立万岁”、”民主运动”等关键词并屏蔽相关内容。而德国内政部也启动对中共国国产手机的安全调查，表明欧洲社会已经开始对中共远程数据操纵和信息审查保持高度警惕。中共试图把对中国人的那一套监控打压方法在欧洲如法炮制，并非法窃取各种信息，这对西方社会和公民来说都是一种侵犯和巨大的安全隐患。
+(本文仅代表作者观点)
 
-(文章内容仅代表作者观点)
+参考链接：[回应警告 德国对小米等中国手机启动安全调查](https://www.dw.com/zh/回应警告-德国对小米等中国手机启动安全调查/a-59305952)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

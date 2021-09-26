@@ -2,35 +2,133 @@
 ---
 
 
-## DC大中华时事：港媒关注孟晚舟回国
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1555989/)
+## 为何打疫苗和知道真相以后的恐惧
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556060/)
 
-*编辑：西北风 / 作图：*信正
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-20.jpg)https://gtv.org/video/id=615042bed2e2b817486e3d8f
+郭文贵
+Miles Guo
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+战友们一定你们要有一个（认识）
+Comrades in arms, you must have one knowledge
 
-#   墙国妄语每日驳
+世界上造成这次冠状病毒、疫苗最大的瞒天过海
+Creating the biggest scam of the COVID-19, vaccines in the world,
 
-### **0**9.26.2021
+能让很多人打疫苗的原因就是因为
+and enabling a lot of people vaccinated, the reasons are
 
-[香港各界：美国是破坏香港最大黑手，必遭可耻失败 (huanqiu.com)](https://m.huanqiu.com/article/44vHGC7j87O)
+所有西方人是相信医疗系统的，是相信科学的
+all Westerners trust the medical system and trust the science
 
-***简评：***贼喊捉贼这是中共拿手的技量，所谓的美帝亡我之心不死，日本军国主义幽灵阴魂不散，每个中国人从生到死每天看到的都是这类似的文章，都能倒背如流了。我在美国生活多年我也从没有看到过美国的媒体新闻整天报道中共亡我美国之心未死这类宣传。可美国人科技创新仍然层出不群，全世界人们最向往移民去的国家，可中共囯到现在连个简单的圆珠笔芯技术都不过关，更不要想更高科比如芯片之后类技术，中共国知识精英，富裕阶层能逃到国外的尽可能逃离中共国。因为中共体制就是极权专制政体，极权体制的天敌就是民主自由。所以中共只能选择攻击美国日本等发达民主国家。习神为了确立自己党内党外一尊一极的绝对权力，以牺牲香港台湾同胞利益为代价去实现自己所谓大一统的“秦始皇再世”梦想。破坏香港真不是美国是幕后黑手，黑手就是贼喊抓贼的中共。
+而就是一定要记住西方的文明和法治社会，和民主社会，是跟科技和
+and (you) must remember that the Western civilization and society under the rule of law, and the democratic society
 
-### 09.26.2021
+工业文明开始的
+have started with technology and industrial civilization
 
-[港媒关注孟晚舟回国：将对中美加三边关系产生积极影响\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20210926/2455030.shtml)
+在西方建立社会的基础是科学作为基础的
+building a foundation of society in the West is based on science as the foundation
 
-***简评：***华为表面是一民企，实质是中共的军企，只不过以民企为幌子在国际上更加便利。在共产中国不存在真正意义上的私有财产。古有普天之下 莫非王土，今天中共做的同样的事以人民的名义普天之下莫非共产，私有财产私有经济只不过是中共便于国际运作一个变脸手法而己。今天看看中共国阿里京东等企业说国产就国产，你看有人反抗有舆论争论合法不合法吗？莫非王土总有个具体归属吧，当然不归属所谓的人民，普天之下都归属于这些红色家族，这就是中共囯政治经济的思维逻辑。这也可以理解为什么一个孟晚舟牵动这么多人神经。她牵扯到太多中共权贵家族利益和密秘，她也牵扯到太多中共的利益和密秘，华为是要引领末来5GAI时代的，华为代表未来时代，华为更是中共倾力打造的一把利剑。明白了华为也就明白了中共和中共的政治经济如何运做。孟晚舟知道太多了，这样一个关键人物中共做足了国际国内與论，但对孟晚舟个人结局早己注定，只有死亡才符合各方利益。
+大家都不相信政府，也不相信政客
+No one trusts the government neither the politicians
 
-### 09.26.2021
+多少年，我到哪儿去，对政客都是骂的
+For years, everywhere I went, all I heard was cursing of politicians
 
-[朱立伦胜选后放言：民进党该担心了！\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/tw/20210926/2454989.shtml)
+都是不相信的
+People do not trust politicians
 
-***简评：***我们向往民主法制自由的社会生活。但我们也要意识到维护这种人人向往生活的成本和代价。强大如美国，如此完善的民主体制面对邪恶的共产中共渗透蓝金黄甚至可以影响美国总统大选结果。一如华夏古时遇到的蛮族匈奴，鲜卑，突厥的长时间威胁，一如古罗马遇到日耳曼蛮族的入侵。文明的进步是需要付出代价的。今日的中共打个比方一如过去那些蛮族，但中共更加狡滑和邪恶，一如美国一时都束手无策。台湾的境遇更可想而知，操纵台湾党派大选对中共那是轻车熟路。共产中共从理论到体制毫无疑问是民主世界的的最大敌人。为什么说信仰如此重要，没有强大的信仰支撑，民主体制也容易被攻破。文明的提升终归是社会发展的需要和总的趋势，在民主已成世界潮流下消灭中共只是时间的问题。
+但是对科学大家都相信的，还有就是对媒体
+But people believe in science and also the media
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/891501515129372702/image0.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/891501515435569203/image1.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/891501515708203058/image2.jpg?width=1040&amp;height=586)
-*编辑：*西北风
-*作图：信正
-发布：文顾*
+过去认为媒体都是有两三家，说媒体是可以相信的。完了
+In the past, (everyone) believed that there were two or three media could be trusted. It’s over.
+
+这回邪恶的势力和中国共产党玩的就是玩得把科学全部垄断
+What the evil forces and the Chinese Communist Party are playing this time is to monopolize science
+
+它把媒体全部垄断
+It monopolizes the media
+
+这个情况下，很多人打疫苗
+In this case, a lot of people get vaccinated
+
+绝大多数人都是因为一个
+most of the people are because of one (reason)
+
+本身就害怕死，恐惧
+fear of death
+
+还有一个原因，他相信科学
+another reason is that they believe in science
+
+还有更重要的事情 ，它（相信）媒体
+and the more important thing is that they trust media
+
+所以说现在当你跟任何人说，很多人就马上就（产生）那种恐惧感
+So when you talk to anyone now, many people immediately (have) that sense of fear
+
+哇现在一个和平的美食美酒，点着火炉
+Wow, currently there is a peaceful meal with nice food and wine, a warming stove
+
+是不是，天高云淡
+Isn’t it? The sky is high and the clouds are pale
+
+后面还有美山美水
+There are beautiful mountains and crystal clear water behind
+
+面对着自己
+facing one’s own
+
+千万财富亿万财富
+tens of millions of wealth, billions of wealth
+
+突然说他可能要死了
+and suddenly said he might be dying
+
+兄弟姐妹们，你想过这感觉了吗
+Brothers and sisters, have you thought about how it feels?
+
+这个很吓人你知道吗，那人的那种恐惧真的瞳孔就要扩散的感觉呀
+This is very scary. Do you know? That kind of human fear really feel like the pupils are about to diffuse
+
+你谁也受不了，搁在谁身上谁也受不了
+None of you can stand that, no one can stand it
+
+说这有可能要完蛋
+Saying that it might be the end
+
+问疫苗， 马上说哎有解药没有，有解药没有
+(They) asked about the vaccine, and immediately asked whether there is any antidote
+
+全要解药，那药是什么名字，跟我说叫什么名字
+(They) all demand the antidote, what’s the name of that medicine, tell me what’s the name of it
+
+谁都怕死
+Everyone is afraid of death
+
+这个时候你知道，你会发现
+At this time you know, you would find out that
+
+不是每个人都有解药的
+not everyone has an antidote
+
+真的不是每个人都能觉得扛过去这个恐怖的
+really not everyone can overcome this fear
+
+很多人你知道， 他回去一夜一夜睡不着觉
+Many people, you know, they couldn’t sleep nights after nights when he went home
+
+原视频日期：2021/09/21
+原视频链接: https://twitter.com/se1y7cblljselva/status/1440864540116197384?s=24
+视频时间段 : 0:00-2:12
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
