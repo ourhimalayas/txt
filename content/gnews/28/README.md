@@ -2,70 +2,51 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国国际时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1555684/)
+## 盖特CEO杰森-米勒在英法两国推广盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555737/)
 
-- **编译：wenwu–西班牙喜悦农场**
+栏目记者/责任编辑：文真
 
 
-您若想了解全文报导内容，请点击标题链接
 
-**1. [塔利班在阿富汗城市主广场吊死一具尸体](https://descargitas.com/%E5%A1%94%E5%88%A9%E7%8F%AD%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%97%E5%9F%8E%E5%B8%82%E4%B8%BB%E5%B9%BF%E5%9C%BA%E5%90%8A%E6%AD%BB%E4%B8%80%E5%85%B7%E5%B0%B8%E4%BD%93/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip133.png)
 
-据《Descargitas》2021年9月26日电，一位目击者周六（25日）表示，塔利班恐怖分子在阿富汗西部城市赫拉特的主要广场上用起重机吊起了一具尸体，这令人痛心的展示表明塔利班恐怖分子已经不装了；在广场一侧经营一家药房的瓦齐尔·艾哈迈德·塞迪奇告诉美联社，四具尸体被带到主广场，三具尸体被带到城市的其他地方公开展示。
 
-塔利班的创始人之一、塔利班统治阿富汗时严格解释伊斯兰教法的主要执行者努尔丁·图拉比（Mullah Nur al-Din al-Turabi）本周告诉美联社，激进运动将再次执行死刑和截肢。 . ，虽然不公开；同样在周六，一名塔利班官员说，一枚路边炸弹在东部楠格哈尔省首府的一辆塔利班汽车中爆炸，造成至少一人受伤；总部设在阿富汗东部的伊斯兰国家组织表示，它是上周在贾拉拉巴德发生的造成 12 人死亡的类似袭击的幕后黑手。
 
-自从塔利班于 8 月 15 日占领喀布尔并控制了阿富汗以来，阿富汗人和世界一直在关注他们是否会如同 1990 年代后期一样，重新建立残酷的政权。 塔利班的领导人仍然根植于极端保守和强硬的世界观，他们接受了视频和手机等技术变革，更是羽翼丰满。
 
-**2. [中共国继续采取强硬行动，逮捕海航高管](https://descargitas.com/%E4%B8%AD%E5%9B%BD%E7%BB%A7%E7%BB%AD%E9%87%87%E5%8F%96%E5%BC%BA%E7%A1%AC%E8%A1%8C%E5%8A%A8%EF%BC%8C%E9%80%AE%E6%8D%95%E8%81%94%E5%90%88%E4%BC%9A%E9%AB%98%E7%AE%A1%EF%BC%9A%E6%8A%A5%E5%91%8A/) **
+盖特CEO杰森-米勒本周在欧洲进行了旋风式的宣传之旅，为盖特走向国际市场争取支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-26T102810.433.png)
+米勒首先在法国拜访了法国总统候选人泽穆尔和马雷夏尔-勒庞。然后飞往伦敦会唔了前脱欧党党魁法拉奇，美国安提法组织调查专家恩戈，以及保守派Youtuber本杰明。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-66.jpg)
+多语言版本的盖特已于9月18日，在苹果和安卓等所有平台推出。米勒说，多语言版本非常重要，目前盖特约百分之十的用户使用中文。米勒还透露，盖特很多优秀的技术人员是中国人。
 
-据《Descargitas》2021年9月26日电，中共国当局于2021年1月对海航公司启动了破产程序，几天之内，海航子公司就涉嫌挪用数十亿美元的资金。海航集团与海南航空开展业务，并于2010年代迅速扩张。海航购买了希尔顿连锁酒店、荷兰交通集团DIP Trailer Services 和德意志银行等跨国公司的大量股份。
+目前，社交网络上保守派的声音，正在世界范围内遭受大科技公司的言论审查，打压和禁言。盖特向社会提供了一个公平发声的社交媒体平台，不会将政治立场列入要审查的范围。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-9.jpg)
+参考链接：
+[GETTR Goes Global: Jason Miller on Whirlwind Tour of France and UK](https://www.thegatewaypundit.com/2021/09/gettr-goes-global-jason-miller-whirlwind-tour-france-uk/)
 
-海航集团——一个破产的财团——在负债近900 亿美元后于今年早些时候倒闭；海航高管被捕之际，房地产开发商恒大集团正试图在不让北京信贷市场恐慌的情况下解决他们的本土公司问题。
+[杰森·米勒在英法两国推广盖特](https://gnews.org/zh-hans/1553238/)
 
-**3. [海航案遭拘CEO谭向东曝是美国公民 麻烦了？](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210925-%E6%B5%B7%E8%88%AA%E6%A1%88%E9%81%AD%E6%8B%98ceo%E8%B0%AD%E5%90%91%E4%B8%9C%E6%9B%9D%E6%98%AF%E7%BE%8E%E5%9B%BD%E5%85%AC%E6%B0%91-%E9%BA%BB%E7%83%A6%E4%BA%86)**
+（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-26T103057.963.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-据《法广网》2021年9月25日电，负债负债1.2兆人民币的中国海航正进行破产重整，创办人陈峰等原始股东股权已遭“清零”，陈峰及CEO谭向东双双被拘捕；根据美国证券交易委员会资料，谭向东是美国公民。此事件是否会让习近平整肃的资本家的行动，演变成外交事件，亟待观察。
+终审： 鬼五
+校对/发稿：为真不破20
 
-据自由时报引述《彭博》消息，根据2017年3月15日提交美国证券交易委员会文件中，谭向东被列为美国公民；《纽约时报》也曾报导，谭于 2019 年向香港监管机构提交的另一份文件显示，谭向东持有美国护照，目前美国驻北京大使馆未对此事置评；正处于破产重整的中国海航于周五（24日）晚间声明，董事长陈峰和首席执行长谭向东因涉嫌犯罪在海南省被警方拘留，但没有提供涉嫌犯罪的细节。
+**更多资讯，更多关注**
 
-今日中媒只点出，“意外”在法国坠崖身亡的海航前董座王健与现任董座陈峰等高管，透过裙带关系，在海航大捞特捞。陈峰的弟弟在美国做航材生意，后来王健的弟弟王伟也进来。海航的航材可能贵30%左右，甚至到50%，飞机大概贵10%，价格越贵这些高管亲友团经手的手续费就越高。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-陈峰等高管及其家族是否在海航进行不当关联交易，尚待厘清。不过，中共国海航长期被认为是中共国国家副主席王岐山家族的金库，董事长陈峰又是王岐山人马，如今不仅股权遭清零，人也因违法犯罪依法强制，连带谭向东遭拖下水，外界认为这场斗争“水很深”。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**4. [广电总局整顿锋芒指向儿童最爱 动漫剧全网下架](https://www.voachinese.com/a/china-urges-cartoon-producers-to-resist-unhealthy-content-20210925/6245542.html)**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-26T103358.185.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-据《美国之音》2021年9月26日电，中国国家广电总局周五（24日）晚间发出通知，动漫内容应该“健康向上”，抵制“含有暴力血腥、低俗色情等不良情节和画面”；中国许多网站已经陆续下架了在中国儿童中最受欢迎的特摄动画片《迪迦奥特曼》的相关视频，涉及网站包括腾讯视频、爱奇艺、优酷等。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-《迪迦奥特曼》是日本出产的一部科幻片，1996年在日本上映，后来引进中国，受到中国少年儿童的追捧，中国许多电视台，包括中央电视台都陆续播放。据称，这部特摄剧的下架跟此前一些家长举报该剧含有暴力犯罪的镜头有关。广电总局在通知中说，该局网络视听节目管理负责人表示，支持符合条件的互联网视听节目服务机构依法依规制作、引进、播出内容健康向上、弘扬真善美的优秀动画片，坚决抵制含有暴力血腥、低俗色情等不良情节和画面的动画片上网播出。
 
-江苏省消费者权益保护委员会（消保委）在今年4月发布了一个题为《动画领域侵害未成年人成长安全消费调查报告》，对21部未成年人动画片进行了审查，提出了1465个涉及暴力犯罪、危险动作、广告营销方面的问题；不过，目前尚不知道，江苏省的这份报告是否与国家广电总局的通知有关。中共国媒体《现代快报》说，江苏消保委称，全网下架《迪迦奥特曼》不是消保委下达的命令，可能是相关平台的自主行为。不过，熟悉中国整治运作的人士都知道，各媒体平台一致行动，如果没有主管当局的命令，是根本不可能的。
 
-**5. [拜登政府、特勤局、联邦调查局从符合中共国政府数据要求的公司购买无人机](https://thenationalpulse.com/news/biden-buys-dji-drones/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-26T103603.527.png)
-
-据《国家脉动》2021年9月24日电，尽管川普政府将大疆（一家[有争议的](https://thenationalpulse.com/news/police-chinese-drones-ccp/)中国科技公司）列入黑名单，但联邦政府的几个分支机构已经从乔·拜登总统领导下的公司购买了无人机；大疆创新——前身为大疆创新科技——目前[引领](https://www.forbes.com/sites/rebeccafannin/2019/06/26/chinese-drone-maker-dji-rules-the-market-and-flies-too-high-for-u-s/#1a58d9a61147)着全球无人机市场，2015年首次引起美国情报官员的注意[。](https://www.nytimes.com/2015/01/28/us/white-house-drone.html)该组织承认遵守了北京的数据要求，导致美国陆军在 2017 年以网络漏洞为由[禁止](https://www.cnbc.com/2017/08/04/us-army-bans-chinese-made-drone-citing-cyber-vulnerabilities.html)使用它们；位于洛杉矶的美国移民和海关执法局 (ICE) 办公室发送了[一份备忘录，](https://info.publicintelligence.net/ICE-DJI-China.pdf) 称官员们“适度相信”大疆的商用无人机和软件“正在向中共国政府提供美国的关键基础设施和执法数据”。
-
-现在，美国再次购买这些无人机，让中国共产党再次进入美国联邦基础设施。此次收购是在[任命](https://thenationalpulse.com/politics/biden-staffers-dji-drones/)了两位备受瞩目的拜登竞选官员之后进行的，他们之前曾在一家为 DJI 游说的咨询公司工作：拜登就职委员会的高级发言人马特·希尔和国家通讯主任梅拉·伯恩斯坦。在全球战略小组任职后，希尔开始担任高级副传播总监，伯恩斯坦现在是国土安全部 (DHS) 负责媒体运营的副助理部长。从 Global Strategy Group 网站上删除的客户[名单](https://web.archive.org/web/20190520125805/https:/globalstrategygroup.com/clients/)显示该公司代表 DJI 工作。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-26T103758.830.png)
-
-正如 Axios[指出的那样](https://www.axios.com/federal-law-enforcement-china-drone-4b33aca2-b6f5-43d0-8d36-be1d447af1a0.html)，特勤局在 7 月 26 日购买了 8 架 DJI 无人机，几天前联邦调查局 (FBI) 购买了 19 架无人机；相比之下，在川普政府的领导下，美国国土安全部——特勤局的上级机构——声称大疆“正在向中共国政府提供美国的关键基础设施和执法数据”；《 纽约时报》 [报道](https://www.nytimes.com/2016/04/21/world/asia/dji-drones-china.html) 了 2016 年 DJI 在中国举行的新闻发布会，公司发言人张凡喜描述了 DJI 如何“遵守中国政府要求交出数据的要求”。
-
-（文章仅代表作者观点 与GNEWS无关）
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

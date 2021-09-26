@@ -15,116 +15,116 @@
 
 ---
 
-### [DC大中华时事：港媒关注孟晚舟回国](/content/gnews/1/README.md)
+### [日本31所大学加强对留学生审查 主要针对中共国](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [冰岛选举：执政的左右联盟虽然民调支持率下降，但依然获胜](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|灭共进程暗含反华危机,爆料革命须未雨绸缪](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|中共进一步加强文化管制](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [DC大中华时事：港媒关注孟晚舟回国](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|美国司法部延长对孟晚舟的起诉协议](/content/gnews/2/README.md)
+### [有声|美国司法部延长对孟晚舟的起诉协议](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [英国上万例不必要的癌症死亡与疫情和封锁有关](/content/gnews/3/README.md)
+### [英国上万例不必要的癌症死亡与疫情和封锁有关](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [毒疫苗寿终正寝](/content/gnews/4/README.md)
+### [毒疫苗寿终正寝](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [团结灭共是唯一选择-评欧盟对华战略报告（四）](/content/gnews/5/README.md)
+### [团结灭共是唯一选择-评欧盟对华战略报告（四）](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [新西兰 13 岁学生在接受疫苗后不久死亡](/content/gnews/6/README.md)
+### [新西兰 13 岁学生在接受疫苗后不久死亡](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [FDA经济学家呼吁对未接种美国人进行“纳粹”式“登记”](/content/gnews/7/README.md)
+### [FDA经济学家呼吁对未接种美国人进行“纳粹”式“登记”](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英立法者表示应取消一万英镑的COVID罚款](/content/gnews/8/README.md)
+### [英立法者表示应取消一万英镑的COVID罚款](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：与中共勾结，司法部特勤局监控美国历届总统？](/content/gnews/9/README.md)
+### [秘翻在线：与中共勾结，司法部特勤局监控美国历届总统？](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《迪迦奥特曼》不见了](/content/gnews/10/README.md)
+### [《迪迦奥特曼》不见了](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [想留却不能留的孟晚舟](/content/gnews/11/README.md)
+### [想留却不能留的孟晚舟](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [澳警暴力强制实施COVID禁令](/content/gnews/12/README.md)
+### [澳警暴力强制实施COVID禁令](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内要闻汇编](/content/gnews/13/README.md)
+### [墙内要闻汇编](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国正在让Telegram变成中共国的微信](/content/gnews/14/README.md)
+### [德国正在让Telegram变成中共国的微信](/content/gnews/18/README.md)
  ` wenwu`
 
-### [澳洲大叔悲伤控诉毒疫苗夺走了他十五岁侄子和侄子朋友的生命！](/content/gnews/15/README.md)
+### [澳洲大叔悲伤控诉毒疫苗夺走了他十五岁侄子和侄子朋友的生命！](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共大力支持播出洗脑动画片](/content/gnews/16/README.md)
+### [中共大力支持播出洗脑动画片](/content/gnews/20/README.md)
  ` 儒为`
 
-### [《大鱼海棠》的人间故事](/content/gnews/17/README.md)
+### [《大鱼海棠》的人间故事](/content/gnews/21/README.md)
  ` 纽约香草山MOS03`
 
-### [梦完之舟](/content/gnews/18/README.md)
+### [梦完之舟](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9月25日文贵先生盖特摘要](/content/gnews/19/README.md)
+### [9月25日文贵先生盖特摘要](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [非裔美国人正在醒悟并意识到强制疫苗是个骗局](/content/gnews/20/README.md)
+### [非裔美国人正在醒悟并意识到强制疫苗是个骗局](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森•米勒对于防止大选舞弊的两点看法](/content/gnews/21/README.md)
+### [杰森•米勒对于防止大选舞弊的两点看法](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [被加拿大释放的华为女继承人孟晚舟返回中共国](/content/gnews/22/README.md)
+### [被加拿大释放的华为女继承人孟晚舟返回中共国](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [殡仪馆馆长：死亡数激增与大规模疫苗接种几乎同时发生](/content/gnews/23/README.md)
+### [殡仪馆馆长：死亡数激增与大规模疫苗接种几乎同时发生](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [盖特CEO杰森-米勒在英法两国推广盖特](/content/gnews/24/README.md)
+### [盖特CEO杰森-米勒在英法两国推广盖特](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [为什么一些疫苗接种者出现严重副作用，而一些人却没事](/content/gnews/25/README.md)
+### [为什么一些疫苗接种者出现严重副作用，而一些人却没事](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年疫苗不良事件报告的总数增长了1000%](/content/gnews/26/README.md)
+### [2021年疫苗不良事件报告的总数增长了1000%](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [克罗地亚总统称：克罗地亚不再允许接种疫苗](/content/gnews/27/README.md)
+### [克罗地亚总统称：克罗地亚不再允许接种疫苗](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/28/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/32/README.md)
  ` wenwu`
 
-### [疫苗灾难真的没有开始，因为全被印钞票掩盖了](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声| 权力的历史与华人的救赎(下）](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/31/README.md)
- ` wenwu`
-
-### [11月起，未接种疫苗的德国人将被剥夺隔离期间的政府补偿金](/content/gnews/32/README.md)
+### [11月起，未接种疫苗的德国人将被剥夺隔离期间的政府补偿金](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：美国亚利桑那州大选审计出大问题](/content/gnews/33/README.md)
+### [秘翻在线：美国亚利桑那州大选审计出大问题](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌干达发现了对青蒿素产生抗性的疟疾](/content/gnews/34/README.md)
+### [乌干达发现了对青蒿素产生抗性的疟疾](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [保命、保财、报仇](/content/gnews/35/README.md)
+### [保命、保财、报仇](/content/gnews/36/README.md)
  ` 银河勇气之星`
 
-### [2018年4月23日之二 郭文贵与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/gnews/36/README.md)
+### [2018年4月23日之二 郭文贵与陈志煜讨论某机密文件之真伪的通话录音以及另两个短视频全文听写](/content/gnews/37/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [美司法部：华为首席财务官孟晚舟承认误导了全球金融机构](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [文·贵天成——文贵先生谈“恒大许家印”（八）](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`

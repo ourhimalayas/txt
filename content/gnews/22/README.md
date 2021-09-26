@@ -2,9 +2,38 @@
 ---
 
 
-## 被加拿大释放的华为女继承人孟晚舟返回中共国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555758/)
+## 梦完之舟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1555801/)
 
-9/25/2021 应美国要求于2018年在加拿大被捕的华为女继承人孟晚舟已被允许返回中国。在孟晚舟的飞机启程飞往中国约一小时后，加拿大总理宣布了两名加拿大公民──迈克尔•斯帕尔和迈克尔•科夫里奇被中方同时释放的消息。这两名加拿大公民是在孟晚舟被捕后不久因间谍罪在中共国逮捕的。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-379.png)
+[图片来源](https://n.eastday.com/pnews/163262711777014510)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+心中没有
+
+频频垂首
+
+且看仔细
+
+梦完之舟
+
+不谐深奥
+
+丹娘辱口
+
+刻舟求贱
+
+评不知羞
+
+活出自己
+
+站直双膝
+
+惜言感动
+
+泪勿轻流
+
+(文章仅代表作者本人观点，与GNEWS无关)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

@@ -2,29 +2,45 @@
 ---
 
 
-## 秘翻在线：美国亚利桑那州大选审计出大问题
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555611/)
+## 11月起，未接种疫苗的德国人将被剥夺隔离期间的政府补偿金
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555636/)
 
-##### 撰稿：极寒将至 
+栏目记者/责任编辑：正义的小新
 
-##### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-377.png)图片来源：美国新闻网
-据加拿大生活新闻网（LifeSiteNews）报导，美国东部时间2021年9月25日星期六晚上 10:24，亚利桑那州参议院公布了2020年大选最终审计报告，报告显示大约有50,000张有问题的选票，其中包括使用以前地址的选民投出的 23,344 张邮寄选票，另有 5,295 张选票来自可能在多个县投票的人，而超过 9,000 张退回的选票未显示为已退回，还发现在 2020年大选前搬出县或州的选民所投的数千张选票。而当初公布的选举结果，拜登在亚利桑那州仅赢得330万张选票中的10,457票。
 
-“亚利桑那州必须立即作废其2020年总统选举结果的认证，”唐纳德.川普总统在昨天的一份声明中表示，亚利桑那州共和党主席凯利.沃德博士（ Dr. Kelli Ward）和全国数十名州议员对此表示赞同。
 
-“在民主国家的历史上，从古代雅典到今天，我们的这次选举审计是有史以来进行的最详细、最苛刻、最不妥协的选举审计”，参议院主席凯伦.范恩（Karen Fann）说。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-对马里科帕县（Maricopa County）拒绝提供监管链文件和删除大量选举数据而阻碍更完整的调查的行为，参议员范恩和审计员也给以谴责。范恩周五在参议院就审计结果举行的听证会上说：“他们不但不配合，还起诉我们。”
 
-佛罗里达州名为网络忍者（Cyber​​ Ninjas）的IT公司领导了为期四个月的审计工作，监督投票机的法医调查、法医检查和马里科帕县210万张选票的重新计票，以及对选民名册和选举文件的分析。
 
-Cyber​​ Ninjas公司的一份报告草案称：“由于县政府扣留传票项目，他们不愿意回答审计员和受审计方之间的正常问题，并且在某些情况下积极干扰审计研究，县政府阻止了完整的审计。”
 
-另一家参与审计的名为CyFIR的公司的一份报告，强调了在调查开始前有人从马里科帕县选举设备中清除了超过100万份与选举相关的文件。一些硬盘中还莫名其妙地存有明显来自其他州的选举数据，包括南卡罗来纳州和华盛顿。
 
-马里科帕县统计了 2020 年选举中仅有 17,126 名个人选民投出的超过34,000 个重复的选票信封，有数千张带有空白签名或“涂鸦”的邮寄选票不应该通过签名验证。与此同时，德克萨斯州、宾夕法尼亚州、乔治亚州和威斯康星州的2020年大选审计工作也正在进行中。
+据natural news报道，自11 月起，未完全接种新冠疫苗的德国人被强制隔离时，将无法获得政府给予的补偿金。
 
-尽管大选审计工作遇到的阻力巨大，但是真相正在一点点被揭开，2020年美国大选的真实结果必将呈现在世人面前。
+9月22日，德国卫生部长宣布，11月起，未接种疫苗的人被强制隔离后，将不会再收到政府提供的补偿金。此外，未接种疫苗的德国人将不再被允许免费接受中共病毒的检测，而是需要自掏腰包。无耻的政府，处处为难未接种疫苗的民众，迫使他们去打毒针。然而，德国卫生部长却仍称，“接种疫苗仍是‘个人决定’。他称此举是一个所谓“公平问题”，“那些通过接种疫苗来所谓‘保护自己和他人的人’，不应该给那些被隔离的人掏钱。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-121.jpg)
+参考链接：
+[After throwing them in covid quarantine camps, German government also STRIPS prisoners of compensation payments to bankrupt them](https://www.naturalnews.com/2021-09-25-covid-quarantine-camps-germany-strips-prisoners-compensation.html)
 
-[新闻来源](https://www.lifesitenews.com/news/arizona-election-audit-reveals-more-than-50000-problematic-ballots-election-files-deleted/)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
