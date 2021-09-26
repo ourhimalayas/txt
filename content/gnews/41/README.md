@@ -2,178 +2,43 @@
 ---
 
 
-## 墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556052/)
+## 秘翻在线：联邦法官暂停纽约学校强制疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556176/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-19.jpg)https://gtv.org/video/id=615044f3d2e2b817486e3df1
-Rukshan Fernando (Australian Independent Journalist)
-鲁克山 费尔南多（澳大利亚独立记者）
+#### 文章撰写：寶寶
 
-That’s right, Laura, I mean look,
-没错，劳拉，我的意思是, 看
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ny-healthcare-worker-120d0x757.jpg)
 
-these are just everyday Australians everyday Victorians.
-这些只是澳大利亚人的日常，维多利亚人的日常
+据大纪元9月25日报道，周五晚些时候，根据联邦法官要求，纽约市对教师和其他教育部工作人员的COVID-19疫苗强制暂停。
 
-They’re protesting right now, the government said,
-他们现在正在抗议，而政府说
+原告是一群教师，在等待美国第二巡回上诉法院三名法官小组的审查期间要求临时禁令。
 
-you know, protesting is illegal.
-你知道，抗议是非法的
+美国上诉法院法官约瑟夫·比安科 (Joseph Bianco) 是乔治·W·布什 (George W. Bush) 提名的法官，他在一份长达一页的命令中批准了该请求。
 
-You can’t be on the street, so the police using all sorts of tactics
-你不能在街上，所以警察使用各种策略
+三名法官专家组现在将决定是在上诉期间强制执行禁令还是允许疫苗强制令生效。
 
-and measures against just ordinary working class Australians,
-和战术来针对普通澳大利亚工人阶级
+原告雷切尔·马尼斯卡科（Rachel Maniscalco）和其他三名纽约市教育局工作人员就这项原定于9月27日开始的强制措施提起诉讼。
 
-so that that actual visual that you talked about the lady being pushed over.
-所以你谈到的那个女士被推倒的那个实际的视觉
+他们说，疫苗强制令要求所有员工证明他们至少接种了一剂COVID-19疫苗，这是政府的过度干预，违反了美国宪法的正当程序条款。 该条款部分规定，任何国家都不得“未经正当法律程序剥夺任何人的生命、自由或财产”。
 
-You know that was during a police want to clear clear road up there with
-你知道那是在警察想要清理那里的道路时
+诉讼称，从事职业的权利是一种自由的权利，而强制疫苗可能会导致不接种疫苗的员工付出代价，干扰了公民自由权。
 
-where there was protesters and even after she was pushed over
-有抗议者的地方，甚至在她被推倒之后
+本周早些时候，另一位乔治·W·布什提名的法官、美国地区法官布赖恩·科根（Brian Cogan）拒绝阻止强制疫苗，裁决原告未能表明他们可能会胜诉。
 
-that particular police officer sprayed her in the face with OC spray.
-那位警察用辣椒油树脂喷雾剂喷她的脸
+之后引发了上诉，之后才有了比安科法官的裁决。
 
-I mean these are tactics that are being used against everyday Australians,
-我的意思是，这些是针对普通澳大利亚人的战术
+目前尚不清楚三名法官小组何时会做出决定。
 
-and it’s like, he said it’s like it’s from a communist China,
-就像，他说这就像来自共产主义中国
+该市教育部 (DOE) 在向新闻媒体发表的一份声明中表示，相信“一旦所有事实都陈述清楚，强制疫苗将会实施，因为这是我们所有学生和教职员工应得的保护。”
 
-Laura Ingraham (Fox News host)
-劳拉·英格拉汉姆（福克斯新闻主持人）
+“我们目前的接种疫苗授权仍然有效，我们希望下周巡回法院迅速裁决。 超过82%的教育部员工已接种疫苗，我们继续敦促所有员工在9月27日之前接种疫苗，”该机构补充道。
 
-and you were yourself harassed by a security official the police over the summer,
-而且你自己在夏天就被警察的安全官员骚扰过
+工会敦促该市推迟或修改强制命令，声称这将导致教师短缺。
 
-I guess we’re attending one of those anti lockdown rallies
-我想我们正在参加其中一场反封锁集会
+周五早些时候，代表该市校长的工会“学校监督与管理委员会”主席马克·坎尼扎罗 (Mark Cannizzaro) 告诉记者，一些学校有几十名未接种疫苗的工作人员。
 
-and you caught the incident on tape, Watch.
-你的这件事被记录在了录像带上，请看
+但民主党市长比尔·德·布拉西奥（Bill de Blasio）持反对意见。周五他在一个广播节目中说： “我们一直在计划。 我们准备了很多替代老师，但我认为这里绝大多数教师和工作人员都将接种疫苗回到学校。”
 
-Rukshan Fernando
-鲁克山 费尔南多
+参考文章：[**Federal Judge Blocks New York City’s School COVID-19 Vaccine Mandate**](https://m.theepochtimes.com/federal-judge-blocks-new-york-citys-school-covid-19-vaccine-mandate_4016844.html?welcomeuser=1)
 
-I’ve Just got a letter here about tomorrow’s action,
-我刚收到一封关于明天行动的信
-
-What’s tomorrow’s action?
-明天的行动是什么？
-
-This is the second time that you guys come here
-这是你们第二次来这里
-
-Why do you have my address?
-为什么你们有我的地址？
-
-Policeman
-警察
-
-We are the police.
-我们是警察
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-I know you’re the police
-我知道你们是警察
-
-Why are you looking up journalists?
-你为什么要找记者的麻烦？
-
-Why are you looking up people?
-你为什么要找人民的麻烦？
-
-Who work in the media?
-谁在媒体工作？
-
-I’m reporter, man
-我是记者，老兄
-
-Policeman
-警察
-
-I don’t know why you were there
-我不知道你为什么在那里
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Rukshan that is also absolutely chilling for anyone
-鲁克山，对于任何相信自由表达和报道的人来说
-
-who believes in free expression and reporting.
-这绝对是令人心寒的
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-Well this is the thing, Laura
-劳拉，嗯，事情就是这样，
-
-they have no problem with the mainstream media
-他们对主流媒体没有意见
-
-but you know, for us independent reporters that don’t,
-但你知道，对于我们这些独立记者来说就不行
-
-You know, follow that same narrative that the government is putting out there
-你知道，遵循政府在那里发布的相同叙述
-
-and, you know, we’re on the ground,
-而且你知道，我们是在现场
-
-you know, showing the people, interviewing the people
-你知道，向人们展示，采访人们
-
-and just letting their voices be heard.
-而且只是让他们的声音被听到
-
-They don’t like that type of coverage
-他们不喜欢那种类型的报道
-
-so, you know, they want to classify people in independent media,
-所以，你知道，他们想对独立媒体中人进行分类
-
-as you know, protested as well
-如你所知，抗议也同样
-
-and that’s why they’re using this type of tactic
-这就是为什么他们使用这种策略
-
-to silence these these voice and the stories being told
-来压制维多利亚州和澳大利亚人民
-
-by the people of Victoria and Australia,
-的声音和故事
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Australia’s making China proud,
-澳大利亚让中共国骄傲
-
-and those that footage just, I can’t stop watching
-而那些片段，我不能停止观看
-
-Rukshan, Thank you.
-鲁克山，谢谢
-
-原视频日期：2021/09/22
-原视频链接: https://twitter.com/miminguyenly/status/1440876691388198913?s=24
-视频时间段 : 0:00-1:58
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+本文仅代表作者本人观点，不代表Gnews平台

@@ -2,23 +2,22 @@
 ---
 
 
-## 【路大脑袋逃窜记】路大脑袋的残羹剩饭，豪宅被住成狗窝！
-` 新西兰新联邦新闻摘要` [轉載自GNews](https://gnews.org/zh-hans/1556688/)
+## 樱花灭共诗——杞忧（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1556713/)
 
-新西兰奥克兰伊甸农场-玫瑰新闻组
+#### 作者：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+国乱疫纷秋复冷，杞忧心病不曾医。
 
+学诗未作惊人语，爆料频观旷世奇。
 
+胜负凭天功自勉，穷通有命信何移。
 
+字斟句斧磨锋久，难具生民困苦饥。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-90.jpg)
+(本文只代表作者观点，与GNews网站无关)
 
-
-🌟🌟🌟🙏🙏🙏
-
-【玫瑰新闻】刚刚设立各平台账号
-
-欢迎战友们关注节目，提出宝贵意见！感谢大家点赞订阅推广的支持和鼓励！谢谢！
-
-1.[油管频道链结](https://youtube.com/channel/UCflJNlhnkOnqrdhSjfUJ0iw)
-
-2.[盖特频道链结](https://www.gettr.com/user/rosenews)
-
-3.[GTV频道链结](https://gtv.org/user/5e971565c9e0f16aefbd8046)
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)

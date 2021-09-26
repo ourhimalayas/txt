@@ -2,37 +2,34 @@
 ---
 
 
-## 北欧：瑞典深化与挪威丹麦的军事合作
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556214/)
+## 《证词项目》：以色列毒针受害者亲述惨痛经历
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556331/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图像-1-4.jpg)
-图片来源：SVT.se
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-381.png)
+昨天，文贵先生在盖特发布纪录片《证词项目》的节选片段。这部由以色列人民委员会制作的纪录片，讲述了新冠疫苗受害者所遭受的痛苦。该纪录片旨在提供一个平台，确保受害者的声音被听到，并鼓励越来越多的人讲述自己的故事。
 
-据路透社德哥尔摩报道，瑞典、丹麦和挪威这三个斯堪的纳维亚国家于2021年 9 月 24 日星期五签署一项军事行动合作协议，以应对波罗的海地区不断恶化的安全局势。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-24.jpeg)
 
-三国表示，厄勒松海峡和北海地区的安全局势已经恶化。因此，这三个国家认为，需要提高共同应对威胁和违规行为的能力。
+在过去几个月，采访人阿维塔发现，身边的人因为接种新冠疫苗相继出现了严重的不良反应，却没有任何一家新闻媒体或记者对疫苗进行调查，也没有公布相关数据。而当她得知以色列政府计划给青少年注射疫苗的时候，身为两个孩子的母亲，阿维塔决定参与这部记录片的制作。
 
-瑞典不是北约成员国，但与波罗的海各国有着密切的关系，由于与俄罗斯在波罗的海地区的紧张局势日益加剧，经过几十年来的疏忽之后，瑞典正在重建其自己的军队。
+该片中，数十位受访者接种新冠疫苗后，或患上心肌炎、心包炎等心脏疾病，或受皮肤疾病的困扰，还有些人发生出血，或产生严重的神精系统疾病。他们勇敢地在镜头前讲述自己的惨痛经历，希望给疫苗接种者以警示，更希望用自己的亲身经历，向以色列政府部门揭示疫苗造成的伤害，以阻止政府对青少年接种疫苗的计划。
 
-为了应对与俄罗斯日益紧张的关系，瑞典近年来提高了军费开支，并加深了与北约和芬兰等邻国的军事合作，包括同意从美国购买爱国者导弹。
+爆料革命文贵先生向世界警示，疫苗和病毒造成的伤害将是切尔诺贝利事故的数万倍。我们要坚持继续传播病毒和疫苗真相。在觉醒的人民和事实面前，各国政府逐渐转变意识。欧盟将于10月取消疫苗护照的消息，为全世界迎来了一丝曙光。
 
-挪威国防部长弗兰克·巴克-詹森 (Frank Bakke-Jensen) 表示，该协议使安全画面“更安全”，并将该合作协议称为对北约的补充。它既具有对敌的劝阻性，又具有显着的安全效果。
+（本文仅代表作者观点）
 
-丹麦国防部长特琳·布拉姆森（Trine Bramsen）则表示，该协议不会显着改变该国的安全局势。如果我们突然受到攻击，北约才是我们的保证。但这并不改变一个事实，即当一个邻国来救援时，总是好的。来自邻国的援助在军事方面也是一件非常重要的事情。同时布拉姆森告诉丹麦电视二台，并提到网络领域是一个可能的合作领域。与其他两国一起拥有更大的分析能力，这真的很有意义。当我们汇集我们的资源时，我们也会得到更多的情报。
+参考链接: [https://gettr.com/post/pc9b02895d](https://gettr.com/post/pc9b02895d)
 
-瑞典国防部长彼得·胡尔克维斯特（Peter Hultqvist）强调了扩大与其他国家的军事合作的总体重要性，并列举了国际恐怖主义的风险和一个更加混乱的世界。胡尔克维斯特特别提到了俄罗斯，他向瑞典国家广播公司SVT大胆表示，俄罗斯 “准备使用军事力量来实现政治目的和目标”。同时，胡尔克维斯特强调了瑞典周边地区的 “军事集结的增加”，尽管瑞典本身最近提出了国家军队的新扩张，在目前阶段包括五个新团和一个新的空中舰队。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-此外，来自 13 个不同国家的代表将在斯德哥尔摩会面，讨论如何共同应对若干持续存在的安全威胁。
+终审：暗黑
+校对/发稿：谐趣园
 
-在中共释放病毒后，我们生活在一个不可预测的时代。共产中国和俄罗斯的军事合作让西方国家感到现在的地缘政治挑战比冷战以来的任何时候都更大、更复杂，诸如空间、网络、海洋和天空都面对着前所未有的威胁。瑞典、丹麦和挪威这三个斯堪的纳维亚国家的这项军事行动合作协议，只是西方国家未来合作的一个开始。
-
-(文章只代表作者个人观点)
-
-来源：
-
-[路透社](https://www.reuters.com/world/europe/sweden-deepen-military-ties-with-norway-denmark-swedish-tv-reports-2021-09-23/)
-
-[Sputniknews](https://sputniknews.com/20210924/sweden-denmark-and-norway-embark-on-new-military-cooperation-against-big-neighbour-in-the-east-1089358527.html)
-
-[Svt.se](https://www.svt.se/nyheter/sverige-skriver-under-militarsamarbete-med-norge-och-danmark)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
