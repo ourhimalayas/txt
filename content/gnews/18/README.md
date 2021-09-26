@@ -2,29 +2,24 @@
 ---
 
 
-## 荷兰民众抗议通行证措施 官员质疑政府决策遭解雇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556288/)
+## 盖特答谢用户大抽奖, 新泽西一家赢得福特卡车
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556341/)
 
-栏目记者：禹水沃土
-责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
-9 月 25荷兰首都海牙，数百名民众反对疫苗护照政策。抗议人群手持横幅和标语穿过政府所在街道，抗议者把新冠限制措施视为专制政府的暴政，将其比作“医疗种族隔离”，并要求“停止疫苗护照”。
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-382.png)
+由川普总统的前高级顾问和战略家杰森米勒担任CEO的全新社交媒体盖特, 虽然刚成立不到3个月, 但已经成为推特最有力的竞争对手,众多保守派人士及媒体/自媒体都选择离开推特来到盖特, 因为这里不会有政治正确和对言论自由的打压,更不会有封杀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-47.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-24.jpeg)
 
-此前荷兰政府要求进入酒吧、餐馆、剧院和其他场所时必须出示新冠疫苗接种证明。该政策刚生效数小时后就遭到内阁部长莫娜·凯泽（Mona Keijzer）的公开质疑，被总理马克·鲁特（Mark Rutte）粗暴解雇。
-
-相当比例的酒吧和餐馆老板表示，他们不会向顾客索要疫苗证书。荷兰酒店业协会发出声明，指责该通行证变相成为提高疫苗接种率的“政治工具”，并警告说这种做法将损害酒店行业恢复时期已做出的所有努力。
-
-近期，西方各国民众对疫苗护照的抗议接连不断，愈发觉醒的民意终将迫使政府考虑停止强制接种疫苗。
+目前盖特注册用户已超过200万! 为鼓励和欢迎注册用户, 盖特举行了一次名为”Get Truckin”的抽奖答谢活动, 最终来自新泽西州杰克逊市的莱克伍德赢得了一辆全新福特F-150卡车, 杰森米勒亲自驾车送到他的家门口。 一位向获奖者表示祝贺的用户称: ” 感谢盖特和米勒,他们在为言论自由而战!”
 
 （本文仅代表作者观点）
 
-参考链接: [Dutch protest against COVID-19 vaccine pass to enter bars, restaurants](https://www.reuters.com/world/europe/dutch-marchers-protest-new-covid-19-pass-enter-bars-restaurants-2021-09-25/)
+参考链接: [https://lnnnews.com/2021/09/23/congrats-lakewood-resident-wins-pickup-truck-from-gettr-delivered-by-jason-miller-himself-exclusive/](https://lnnnews.com/2021/09/23/congrats-lakewood-resident-wins-pickup-truck-from-gettr-delivered-by-jason-miller-himself-exclusive/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：暗黑
+终审：文龍
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**

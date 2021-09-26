@@ -2,23 +2,17 @@
 ---
 
 
-## 中共军机挂核弹绕台 中共国沿海导弹系统启动
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556536/)
+## 意大利卫生部准备给老年人施打新冠疫苗第三剂加强针和流感疫苗
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1556603/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+翻译/整理：      意大利罗马达芬奇农场       小白鸽
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/text-CN.png)
-文章仅代表作者本人观点，与Gnews无关
+意大利新冠疫苗第三剂加强针将面向一千一百万人： 包括 “脆弱” 群体（等待器官移植者，化疗者或做透析者）、免疫抑制患者、八十岁以上及高风险工作者。所有准备工作就绪，不久会进入实施阶段。在给八十岁以上老人注射后， 将对医务工作者和养老院工作人员注射疫苗。对于流感疫苗，是两种疫苗一起打还是间隔15天，这将在几天后做出决定。 但是在其他欧洲国家还没有采取行动, 而美国已经做出决定。根据CDC的指示，将同时施打流感病毒疫苗和新冠疫苗 ，目前意大利很有可能也是采取同样的方式。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/意大利加强针.png)
+负责施打疫苗的菲利耀罗相信意大利将在10月中旬达到82%的疫苗接种率。他继续呼吁那些还没有打疫苗的人： “ 要问问他们的家庭医生，询问在医院工作的医务人员， 问问那些看到患了冠状病毒后痛苦的人们，我要对这些仍未注射疫苗的人说我们已经有十三万人死于新冠病毒，还有很多人病愈后仍有长期的后遗症。你们要做出正确的选择，没有人强制你们。但是我要说你们要保护你们周围的人，我们的年轻人正大量地涌向接种中心，他们给我们做出了很好的榜样。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+文贵先生反复告诫人们病毒和疫苗的真正灾难还远远没有开始。现在政客、媒体还在不断地催促民众去接种疫苗，主流媒体和社交媒体在不断地封杀人们对疫苗安全性的质疑。这是光明与黑暗的较量，其惨烈程度我们无法想象，不久的将来一定都会公开的，正义一定会战胜邪恶。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+免责声明：本文只代表个人观点， 与Gnews 平台无关
+[原文链接](https://www.ilmeteo.it/notizie/vaccino-terza-dose-anticovid-e-influenza-svelato-il-piano-del-ministero-per-gli-anziani-i-dettagli-082247)
+上传：意大利达芬奇农场场 老中医
