@@ -2,177 +2,44 @@
 ---
 
 
-## 墨尔本的镇压 &#8211; 疫苗强制授权在下面创建深度的划分
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556052/)
+## 屋漏偏逢连夜雨，广东制造业艰难求生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556118/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-19.jpg)https://gtv.org/video/id=615044f3d2e2b817486e3df1
-Rukshan Fernando (Australian Independent Journalist)
-鲁克山 费尔南多（澳大利亚独立记者）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-77.jpg)新冠疫情、拉闸限电、原材料价格上涨、环保督查敲诈，重重压力下，广东制造业损失惨重，举步维艰。
+**疫情影响**
 
-That’s right, Laura, I mean look,
-没错，劳拉，我的意思是, 看
+从2020年初开始，广东的新冠肺炎疫情频发，实体经济损失惨重。6月7日，广州荔湾区发现7个病例，广州四个下辖地区南沙区、增城区、从化区、花都区已经开始对所有居民进行核酸检测。从6月21日起，广州周边城市东莞市、中山市、佛山市全员核酸检测。
 
-these are just everyday Australians everyday Victorians.
-这些只是澳大利亚人的日常，维多利亚人的日常
+疫情下，很多制造企业举步维艰。辖内银行业累计为受疫情影响的20.66万家中小微企业总计4342亿贷款实施延期还本付息；各项贷款余额达13.29万亿元，今年以来新增信贷投放8846.21亿元，同比增长近16%；其中制造业贷款1.52万亿元，同比增长18.50%。
 
-They’re protesting right now, the government said,
-他们现在正在抗议，而政府说
+**拉闸限电**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-37.jpg)
+从今年5月开始，广州，佛山、汕头、东莞、惠州、珠海、中山、潮州等地也开始执行错峰停工，许多工厂从开五停二，到如今的“开三停四”，也就是一周开工三天停休四天。有些地方如佛山丹灶某居委会竟然要求“开一停六”，当地企业叫苦连天：这样的限电政策还不如直接叫我们直接倒闭算了。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片4-7.jpg)
+拉闸限电导致许多企业产能急剧下降，面临交不出货的巨额经济损失和信誉损失。限电的根本原因就是进口煤短缺和煤炭价格快速上涨。而造成煤炭短缺的主要原因，就是对澳大利亚的制裁。中共这是典型的“搬起石头砸了自己的脚”。
 
-you know, protesting is illegal.
-你知道，抗议是非法的
+**原材料价格上涨**
 
-You can’t be on the street, so the police using all sorts of tactics
-你不能在街上，所以警察使用各种策略
+铜涨38%、塑胶涨35%、铝涨37%、铁涨30%、玻璃涨30%、锌合金涨48%，不锈钢也暴涨45%！铜、铝、螺纹钢等工业原材料价格延续2020年4月以来的涨势，且不断打破新纪录。各制造企业的利润被飞速上涨的原材料价格耗尽。
 
-and measures against just ordinary working class Australians,
-和战术来针对普通澳大利亚工人阶级
+有企业表示只要能保证工人工资，只保住1%的利润也可以，就是怕客户跑了，希望他后面继续在这里做。
 
-so that that actual visual that you talked about the lady being pushed over.
-所以你谈到的那个女士被推倒的那个实际的视觉
+究其原因，房地产垮了，钱又出不去，造成国内货币通胀。社会上的游资大量涌入原材料供应链条，从而造成各个行业价格大涨。（数据来源：[https://www.epochtimes.com/gb/21/3/1/n12781518.htm](https://www.epochtimes.com/gb/21/3/1/n12781518.htm)）
 
-You know that was during a police want to clear clear road up there with
-你知道那是在警察想要清理那里的道路时
+**环保督查敲诈**
 
-where there was protesters and even after she was pushed over
-有抗议者的地方，甚至在她被推倒之后
+中共中央向广东派出环保督察组，严打企业环保违法，一旦查到，罚款起步就是25万。一般塑胶企业做环评需要10几万费用。尤其在电镀、五金、印染、塑胶制品高污染制造企业，为了逃避检查，节省费用，很多工厂在环评期间放假。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片5-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片6-3.jpg)
+新冠疫情、拉闸限电、原材料价格上涨和环保督查这四座大山，压得广东的制造业喘不过气来，很多企业都濒临倒闭或者勉强维持。随着中共金融市场的崩溃，广东制造业会被推入万劫不复的境地。
 
-that particular police officer sprayed her in the face with OC spray.
-那位警察用辣椒油树脂喷雾剂喷她的脸
+广东制造业就是中共制造业的缩影，不单要面对内忧：疫情、限电、环评，还要面对外患：原材料上涨。在众多企业如此苦难的时候，共产党非但不出台更多的优惠政策，反而只是让银行放贷款，结果是让更多企业背上更沉重的债务。同时以查环保为名，对企业吃拿卡要！
 
-I mean these are tactics that are being used against everyday Australians,
-我的意思是，这些是针对普通澳大利亚人的战术
+这些成百上千万的企业后面是数以亿计的工人，不敢想象即将到来的世界范围经济危机，会给中国经济和中国社会带来多么严重的灾难！
 
-and it’s like, he said it’s like it’s from a communist China,
-就像，他说这就像来自共产主义中国
+【文章观点仅代表作者个人，与gnews平台无关】
 
-Laura Ingraham (Fox News host)
-劳拉·英格拉汉姆（福克斯新闻主持人）
-
-and you were yourself harassed by a security official the police over the summer,
-而且你自己在夏天就被警察的安全官员骚扰过
-
-I guess we’re attending one of those anti lockdown rallies
-我想我们正在参加其中一场反封锁集会
-
-and you caught the incident on tape, Watch.
-你的这件事被记录在了录像带上，请看
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-I’ve Just got a letter here about tomorrow’s action,
-我刚收到一封关于明天行动的信
-
-What’s tomorrow’s action?
-明天的行动是什么？
-
-This is the second time that you guys come here
-这是你们第二次来这里
-
-Why do you have my address?
-为什么你们有我的地址？
-
-Policeman
-警察
-
-We are the police.
-我们是警察
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-I know you’re the police
-我知道你们是警察
-
-Why are you looking up journalists?
-你为什么要找记者的麻烦？
-
-Why are you looking up people?
-你为什么要找人民的麻烦？
-
-Who work in the media?
-谁在媒体工作？
-
-I’m reporter, man
-我是记者，老兄
-
-Policeman
-警察
-
-I don’t know why you were there
-我不知道你为什么在那里
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Rukshan that is also absolutely chilling for anyone
-鲁克山，对于任何相信自由表达和报道的人来说
-
-who believes in free expression and reporting.
-这绝对是令人心寒的
-
-Rukshan Fernando
-鲁克山 费尔南多
-
-Well this is the thing, Laura
-劳拉，嗯，事情就是这样，
-
-they have no problem with the mainstream media
-他们对主流媒体没有意见
-
-but you know, for us independent reporters that don’t,
-但你知道，对于我们这些独立记者来说就不行
-
-You know, follow that same narrative that the government is putting out there
-你知道，遵循政府在那里发布的相同叙述
-
-and, you know, we’re on the ground,
-而且你知道，我们是在现场
-
-you know, showing the people, interviewing the people
-你知道，向人们展示，采访人们
-
-and just letting their voices be heard.
-而且只是让他们的声音被听到
-
-They don’t like that type of coverage
-他们不喜欢那种类型的报道
-
-so, you know, they want to classify people in independent media,
-所以，你知道，他们想对独立媒体中人进行分类
-
-as you know, protested as well
-如你所知，抗议也同样
-
-and that’s why they’re using this type of tactic
-这就是为什么他们使用这种策略
-
-to silence these these voice and the stories being told
-来压制维多利亚州和澳大利亚人民
-
-by the people of Victoria and Australia,
-的声音和故事
-
-Laura Ingraham
-劳拉·英格拉汉姆
-
-Australia’s making China proud,
-澳大利亚让中共国骄傲
-
-and those that footage just, I can’t stop watching
-而那些片段，我不能停止观看
-
-Rukshan, Thank you.
-鲁克山，谢谢
-
-原视频日期：2021/09/22
-原视频链接: https://twitter.com/miminguyenly/status/1440876691388198913?s=24
-视频时间段 : 0:00-1:58
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+作者：洛杉矶盘古农场-文如
+作者：洛杉矶盘古农场-柯镇恶
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

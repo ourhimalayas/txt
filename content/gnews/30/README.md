@@ -2,22 +2,49 @@
 ---
 
 
-## 想留却不能留的孟晚舟
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1555896/)
+## 毒疫苗寿终正寝
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1555970/)
 
-撰稿人：东南
-![](https://assets.gnews.org/wp-content/uploads/2021/09/261.jpg)图片来自网络
-当地时间2021年9月24日周五，在加拿大温哥华，在与美国司法部达成协议后，华为首席财务官孟晚舟在当地时间周五被释放，随后孟晚舟在法院外宣读被释放声明，并据孟晚舟案的代理律师之一威廉·泰勒发表的声明称：孟晚舟不会在美国受到进一步起诉。并期待14个月后相关指控被撤销。现在，她已经可以自由地回家和家人团聚了。也不知道是不是担心法院反悔，就在被释放的当天晚些时候，孟女士就急忙乘坐中国国际航空公司CA552航班，包机直飞深圳返回中国。有消息称根据华为与美国司法部达成的协议，孟晚舟声称自己是没有认罪。正当墙内为“没有认罪”4个字高歌欢呼的同时，根本就不去想一想，如果是一个普通的人，你会有和孟晚舟一样的待遇吗？加拿大是把孟晚舟放了但美国把华为放了吗？战狼五毛在红旗下嘶吼时的智商基本为零，思考什么的根本不存在。说到这里，加拿大这边的另一条消息更值得一提，这就是加拿大刚刚险胜连任的总统特鲁多发表讲话说：两名被中共国拘留的加拿大公民已离开中国领空，正在返回加拿大的途中。
+作者：sherryok (水云间)
+![](https://assets.gnews.org/wp-content/uploads/2021/01/1210943025_16086835420341n-4.jpg)
+9月25日，郭文贵先生在当红社交媒体盖特上爆料，欧盟已经同意10月20日不再推行疫苗护照，疫苗被归于实验性，基本停止了毒疫苗。10月1日起，欧盟医院正式启动五种药物临床综合治疗方法。推特网友迅速找到了欧盟5种疗法的信息出处，以下是来自欧盟委员会网站[Press corner | European Commission (europa.eu)](https://ec.europa.eu/commission/presscorner/detail/en/ip_21_3299)6月29日的新闻发布。当时五种药物都在滚动审查中，但都已预料今年10月将获得授权。
 
-由此孟晚舟释放事件清晰可见在国际政治舞台，绝对的法律和公正在独裁政府面前一切都只是表象，此种赤裸裸的人质外交根本已经到了不加掩饰的地步，但无论如何当孟晚舟被宣判无罪的那一刻起，证明她的“情报价值”在美加双方眼里都已经被榨干用尽。毕竟这1000多天为了保命该交代的都已经言无不尽的交代了，当下只是可惜了这位孟女士，原本以为全部坦白就能善终的她，在最后还又被卖了一回，加拿大用她换取另二位中共绑架的加拿大人，事由至此我们不难面对一个事实，文明到底还是输给了野蛮！相信还未平复下来心情的孟女士自知即将踏上的是一个根本没有法制的国度，迎接她的只能是黑暗，不知道她是否曾经想过假如她在加拿大或者美国的监狱中，真的都比中共国内有那么一点希望。
+新闻发布信息显示： 欧盟 COVID-19 疗法战略今天（6月29日）公布了第一个成果，宣布了首个五种疗法组合，这些疗法很快可用于治疗整个欧盟的患者。其中四种疗法是单克隆抗体，正在接受欧洲药品管理局的滚动审查。另一种是免疫抑制剂，它具有营销授权，可以扩展到包括 COVID-19 患者的治疗。
 
-（文章纯属个人观点）
+健康与食品安全专员 Stella Kyriakides说：“今天，我们正朝着治疗 COVID-19 的广泛疗法迈出第一步。虽然疫苗接种正在以越来越快的速度进行，但病毒不会消失，患者将需要安全有效的治疗来减轻 COVID-19 的负担。我们的目标很明确，我们的目标是确定更多正在开发的领先候选药物，并在年底前批准至少三种新疗法。这是欧洲卫生联盟在行动。”
 
-文章参考：
+这五种产品处于开发的后期阶段，很有可能成为到 2021 年 10 月获得授权的三种新型 COVID-19 疗法之一，这是该战略设定的目标，前提是最终数据证明其安全性、质量和有效性. 产品有：
 
-[https://news.ifeng.com/c/89pW9c4ojFT](https://news.ifeng.com/c/89pW9c4ojFT)
+现有药物的新 COVID-19 适应症：
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+- 礼来股份有限公司 (Eli Lilly) 的巴瑞替尼（baricitinib ）免疫抑制剂（一种降低免疫系统活性的药物）：其延伸治疗 COVID-19 适应症的上市许可申请正在评估。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+
+新开发的单克隆抗体正在滚动审查中 –这是在公共卫生紧急情况下加速评估有前途药物的监管方式：
+
+- 礼来的巴马尼单抗（bamlanivimab） 和依替维单抗（etesevimab） 的组合：正在滚动审查
+- 再生元制药（Regeneron Pharmaceuticals, Inc.） 和 罗氏制药（F. Hoffman-La Roche, Ltd.） 的卡西瑞单抗（casirivimab）和伊德单抗（imdevimab）的组合：正在滚动审查
+- 塞尔群制药（Celltrion ）的瑞丹维单抗（regdanvimab）：正在滚动审查
+- 葛兰素史克和 Vir Biotechnology, Inc. 的索曲韦单抗（sotrovimab）：正在滚动审查
+
+
+下一步，委员会将在新成立的 COVID-19 变种专家组的工作基础上，在 10 月之前制定至少 10 种潜在COVID-19 疗法的组合。遴选过程将是客观和科学的，遴选标准与会员国达成一致。由于不同的患者群体和疾病的不同阶段和严重程度需要不同类型的产品，专家组将根据基于科学的标准确定产品类别并为每个类别选择最有前途的候选疗法。
+
+该产品组合将有助于实现在 10 月之前获得至少三种新疗法的批准，并可能在年底之前获得两种新疗法的批准。到 2021 年底，欧洲药品管理局将根据研发成果对有前景的疗法进行更多滚动审查。
+
+委员会最近完成了单克隆抗体卡西瑞单抗（casirivimab） 和伊德单抗（imdevimab）的联合采购，并可能在年底前推出更多。
+
+7月12-13日将举办首届治疗药物行业对接活动，以确保一旦获得批准的治疗药物尽快足量生产。
+
+**背景**
+
+[COVID-19治疗欧盟战略](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/commission/presscorner/detail/en/ip_21_2201)旨在打造COVID-19疗法的广泛的产品组合，实现在2021年十月前推出三个新的可用的治疗方案，今年年底前实现另外两个方案的目标。它涵盖了药物的整个生命周期，从研究、开发、选择有希望的候选药物、快速监管批准、制造和部署到最终使用。
+
+该战略是强大的[欧洲卫生联盟的一部分](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/info/strategy/priorities-2019-2024/promoting-our-european-way-life/european-health-union_en)，采用协调一致的欧盟方法来更好地保护我们公民的健康，使欧盟及其成员国能够更好地预防和应对未来的流行病，并提高欧洲卫生系统的弹性。 该战略侧重于 COVID-19 患者的治疗，与成功的[欧盟疫苗战略](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/info/live-work-travel-eu/coronavirus-response/public-health/eu-vaccines-strategy_en)一起工作，通过该[战略](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://ec.europa.eu/info/live-work-travel-eu/coronavirus-response/public-health/eu-vaccines-strategy_en)，针对 COVID-19 的安全有效疫苗已被授权在欧盟使用，以预防和减少病例传播，如以及因该病导致的住院率和死亡人数。
+
+[新闻链接](https://gettr.com/post/pc6yta2afd)
+
+【文章仅限作者个人观点 不代表GNEWS平台】
+
+审核校对：Barry Jack
+上传排版：F

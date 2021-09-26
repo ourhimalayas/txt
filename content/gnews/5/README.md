@@ -2,133 +2,29 @@
 ---
 
 
-## 为何打疫苗和知道真相以后的恐惧
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556060/)
+## 灭共后方正股东将发大财,政泉18亿股票将成重大经济事件
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1556143/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-20.jpg)https://gtv.org/video/id=615042bed2e2b817486e3d8f
-郭文贵
-Miles Guo
+视频来源——2019年6月17日上午郭文贵先生直播，郭文贵先生在视频中提到：
 
-战友们一定你们要有一个（认识）
-Comrades in arms, you must have one knowledge
+你们再往回看看，4年前我们关于北大的这个官司，所有说的话，今天已经全都摆在那了。然后我告诉李友，你会死的非常惨，一毛钱都没有，你换一万个肝你都没未来，包括你和胡舒立那个私生子，你也好不了，终被弄出来的。现在已经证明了吧。
 
-世界上造成这次冠状病毒、疫苗最大的瞒天过海
-Creating the biggest scam of the COVID-19, vaccines in the world,
+当年泰阳证券从武汉被李友给买走，实际上李友付了几十万块钱，承诺给了大概几千万。然后跟北大合作，改成了北大方正，然后开始跟北大的所有的王选吶，北大的校长吶联合起来，利用北大的资源签了一个代持的协议。当时，李友上市以北京大学为大股东，叫改制，把北大资源，北京大学的北大资源，在全国拥有上万亩地的这个公司和北大的医疗等一切放在一起，全造的假的东西，直接上市。一上市，李友就干走100多亿，最后最高的时候值1000多亿，中间洗来洗去。
 
-能让很多人打疫苗的原因就是因为
-and enabling a lot of people vaccinated, the reasons are
+贺国强的儿子贺锦涛、贺锦雷全面参与，刘延东的女婿和女儿全面参与，朱善璐、王恩哥后来全面参与。王恩哥就所谓的一个在香港的专利，李友付1亿5的现金。然后王恩哥就介绍李友和江绵恒成了兄弟姐妹，好了，然后那时候又跟江志成认识。
 
-所有西方人是相信医疗系统的，是相信科学的
-all Westerners trust the medical system and trust the science
+江绵恒就马上介绍他认识了上海银行行长叫范一飞，范一飞是王岐山的哥们。范一飞最后是到了中央，多年前，王岐山说，我上去以后，你到人民银行、中央银行当副行长。大家知道，范一飞当了中央银行行长。范一飞在李友的行贿下和王恩哥和江绵恒，给当时的我们的并购贷了45亿人民币，我们多次要还钱，最起码超过20次发文要还钱，不让还。最后就是范一飞要把所有股票给吞掉，这是我们跟方正斗争的一个开始，结果这哥们到了人民银行当行长，江绵恒也在里边想把方正的我的18亿股拿走，不是我的，是我们家族的。
 
-而就是一定要记住西方的文明和法治社会，和民主社会，是跟科技和
-and (you) must remember that the Western civilization and society under the rule of law, and the democratic society
+然后李友就想把我吞掉，把盘古、政泉全吞掉，我开始了反击，反击那个最后，王岐山全面介入，立死誓，姚庆全面介入，姚庆的叫中泰证券，中泰现在已经刚上市，在英国。第一家在英国伦敦上市——中泰证券，听说拿了十几亿美元现金。所以共产党的黑到啥程度啊，不是黑吃黑，是啥也不给你剩吶。然后你看到李友多惨啊，现在是被这些人给灭了，换肝也不中，叫这些人给灭了。
 
-工业文明开始的
-have started with technology and industrial civilization
+北大诉他当年重组无效，要全部把他归零。但是小股东的诉讼和股东的诉讼这将是永远没完没了。所有的拥有方正股票的人都可以告北大，北大资源和北大的方正集团和包括北大医院资产最起码过万亿，这是一点不用怀疑的。这些钱如果没有文贵就被李友和贺国强和王岐山和刘延东和姚刚和所有的这些朱善璐、王恩哥都分走了。现在他分不成了。但是这钱应该是谁的，应该100%还不够，应该还给方正过去五六年所有小股东，推翻共产党以后，所有方正的股东都将发大财。现在方正的股票还在7块多钱，这一个月没看了，最高的时候18块钱，我那时候换过来6块多钱。
 
-在西方建立社会的基础是科学作为基础的
-building a foundation of society in the West is based on science as the foundation
+他们说，你赚了300多亿，我说你放屁，不可能赚300多亿，一分钱我都不会拿。现在回到7块多钱。四五年前我投进去了130亿，现在还是130亿，利息增加了140多亿，所以我现在总共是赔两百六七十亿吧，就赔进去了现金。但是未来的18亿股的政泉股票，一定会成为重大经济事件。而且方正过去这些股东们，50亿股的小股东和那些隐藏的股东，只要参与诉讼，将会发大财。
 
-大家都不相信政府，也不相信政客
-No one trusts the government neither the politicians
+撰稿：喜马拉雅的肉夹馍
 
-多少年，我到哪儿去，对政客都是骂的
-For years, everywhere I went, all I heard was cursing of politicians
+审核：喜马拉雅的馍夹肉
 
-都是不相信的
-People do not trust politicians
+校对：Maarago
 
-但是对科学大家都相信的，还有就是对媒体
-But people believe in science and also the media
-
-过去认为媒体都是有两三家，说媒体是可以相信的。完了
-In the past, (everyone) believed that there were two or three media could be trusted. It’s over.
-
-这回邪恶的势力和中国共产党玩的就是玩得把科学全部垄断
-What the evil forces and the Chinese Communist Party are playing this time is to monopolize science
-
-它把媒体全部垄断
-It monopolizes the media
-
-这个情况下，很多人打疫苗
-In this case, a lot of people get vaccinated
-
-绝大多数人都是因为一个
-most of the people are because of one (reason)
-
-本身就害怕死，恐惧
-fear of death
-
-还有一个原因，他相信科学
-another reason is that they believe in science
-
-还有更重要的事情 ，它（相信）媒体
-and the more important thing is that they trust media
-
-所以说现在当你跟任何人说，很多人就马上就（产生）那种恐惧感
-So when you talk to anyone now, many people immediately (have) that sense of fear
-
-哇现在一个和平的美食美酒，点着火炉
-Wow, currently there is a peaceful meal with nice food and wine, a warming stove
-
-是不是，天高云淡
-Isn’t it? The sky is high and the clouds are pale
-
-后面还有美山美水
-There are beautiful mountains and crystal clear water behind
-
-面对着自己
-facing one’s own
-
-千万财富亿万财富
-tens of millions of wealth, billions of wealth
-
-突然说他可能要死了
-and suddenly said he might be dying
-
-兄弟姐妹们，你想过这感觉了吗
-Brothers and sisters, have you thought about how it feels?
-
-这个很吓人你知道吗，那人的那种恐惧真的瞳孔就要扩散的感觉呀
-This is very scary. Do you know? That kind of human fear really feel like the pupils are about to diffuse
-
-你谁也受不了，搁在谁身上谁也受不了
-None of you can stand that, no one can stand it
-
-说这有可能要完蛋
-Saying that it might be the end
-
-问疫苗， 马上说哎有解药没有，有解药没有
-(They) asked about the vaccine, and immediately asked whether there is any antidote
-
-全要解药，那药是什么名字，跟我说叫什么名字
-(They) all demand the antidote, what’s the name of that medicine, tell me what’s the name of it
-
-谁都怕死
-Everyone is afraid of death
-
-这个时候你知道，你会发现
-At this time you know, you would find out that
-
-不是每个人都有解药的
-not everyone has an antidote
-
-真的不是每个人都能觉得扛过去这个恐怖的
-really not everyone can overcome this fear
-
-很多人你知道， 他回去一夜一夜睡不着觉
-Many people, you know, they couldn’t sleep nights after nights when he went home
-
-原视频日期：2021/09/21
-原视频链接: https://twitter.com/se1y7cblljselva/status/1440864540116197384?s=24
-视频时间段 : 0:00-2:12
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

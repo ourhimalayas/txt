@@ -2,37 +2,133 @@
 ---
 
 
-## 日本31所大学加强对留学生审查 主要针对中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556035/)
+## 为何打疫苗和知道真相以后的恐惧
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556060/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-82.png)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-20.jpg)https://gtv.org/video/id=615042bed2e2b817486e3d8f
+郭文贵
+Miles Guo
 
-《法国国际广播电台》9月25日消息，日本的一些大学已经开始实施或正在考虑更严格实施对研究尖端技术的留学生进行相关身份审查。
+战友们一定你们要有一个（认识）
+Comrades in arms, you must have one knowledge
 
-鉴于中共国奉行民间技术应用于军事的“军民融合”政策，有观点认为，可转用于军事的尖端技术可能会通过留学生外流。随着日本政府开始对此加强管理，大学方面也将不得不做出应对。
+世界上造成这次冠状病毒、疫苗最大的瞒天过海
+Creating the biggest scam of the COVID-19, vaccines in the world,
 
-据《共同社》报道，日本目前已有31所大学开始对留学生加强审查，以防止尖端技术外流。
+能让很多人打疫苗的原因就是因为
+and enabling a lot of people vaccinated, the reasons are
 
-该媒体23日获悉，一项针对被指与参与中国人民解放军武器研发的中共国大学签订学术协议，及外国留学生较多的日本公立和私立大学的调查结果显示，在作答的56所大学中，有31所已经实施或正在考虑更严格实施对有关研究尖端技术的留学生，进行与出身和组织相关的身份审查。
+所有西方人是相信医疗系统的，是相信科学的
+all Westerners trust the medical system and trust the science
 
-许多日本大学过去仅仅只让留学生申报其最终学历。而本次调查显示，有过半数的31所大学已经或正在考虑加强对过去学历、工作履历等身份审查；有10所大学会询问留学生是否有意入职军事相关组织；有14所大学会确认外国机构的资金支援内容。
+而就是一定要记住西方的文明和法治社会，和民主社会，是跟科技和
+and (you) must remember that the Western civilization and society under the rule of law, and the democratic society
 
-本次调查共涉及67所日本大学，包括与被称为“国防七子”的中共国7所开展军事相关技术研究的大学签订交流协议；设有汉语教育机构“孔子学院”；以及截至去年5月留学生人数排名前30的大学。最终，有56所大学参与作答，而该调查是在原则上不公开各大学回答内容的条件下进行的。
+工业文明开始的
+have started with technology and industrial civilization
 
-《共同社》的报道称，在美中关系对立激化的背景下，日本政府于6月宣布加强对尖端技术的出口管理。对大学向接受外国政府研究资金或受特定国家影响的留学生提供技术的情况，采取经济产业许可制。
+在西方建立社会的基础是科学作为基础的
+building a foundation of society in the West is based on science as the foundation
 
-不过，根据此次调查结果，对于要求留学生签署“回国时不将受管制技术带出日本”的保证书等确认工作，只有24所大学表示实施或考虑实施，仅占四成；而对于确认是否有外国资金支援，响应的大学则更少，凸显出日本对技术外流风险缺乏有效对策的现状。
+大家都不相信政府，也不相信政客
+No one trusts the government neither the politicians
 
-此外，针对参加中共国人才引进“千人计划”的学者，日本政府也在加强掌握日本学者参与海外联合研究的状况。调查显示，仅有不到3成的16所大学就联合研究建立详细申报制度。而对于为中共国进行政治宣传，被美国加强监视的孔子学院，日本共有14所大学开设，目前仅有1所大学表示考虑调整运营体制。
+多少年，我到哪儿去，对政客都是骂的
+For years, everywhere I went, all I heard was cursing of politicians
 
-根据《共同社》提供的数据，截至去年5月，日本国内留学生人数约为28万人。从国籍来看，中共国的留学生最多，占到总数的4成以上。
+都是不相信的
+People do not trust politicians
 
-中共国多年来派往先进国家的留学生，尤其是公派留学生，很多都“肩负”着为国偷窃技术的“重任”；即便有些人最初留学的初衷并非如此，但也会逐渐被中共在当地的领事馆或华人协会等中共统战组织收编，有些甚至是因家人遭胁迫被迫就范。
+但是对科学大家都相信的，还有就是对媒体
+But people believe in science and also the media
 
-对于中共在全世界范围内利用留学生偷盗技术并屡屡得手，西方文明国家要么是对中共的邪恶认识不足；要么是为了一些短浅的经济利益；要么是某些相关人士被中共拉拢腐蚀，不顾国家安全，出卖国家利益，否则怎么会这么多年来，对中共借留学生偷盗尖端技术，尤其是涉及国家安全的先进军事技术，毫无防备或视而不见。
+过去认为媒体都是有两三家，说媒体是可以相信的。完了
+In the past, (everyone) believed that there were two or three media could be trusted. It’s over.
 
-注：本文仅代表作者观点
+这回邪恶的势力和中国共产党玩的就是玩得把科学全部垄断
+What the evil forces and the Chinese Communist Party are playing this time is to monopolize science
 
-**新闻链接：**[https://twitter.com/RFI\_Cn/status/1441712852377608197](https://twitter.com/RFI_Cn/status/1441712852377608197)
+它把媒体全部垄断
+It monopolizes the media
+
+这个情况下，很多人打疫苗
+In this case, a lot of people get vaccinated
+
+绝大多数人都是因为一个
+most of the people are because of one (reason)
+
+本身就害怕死，恐惧
+fear of death
+
+还有一个原因，他相信科学
+another reason is that they believe in science
+
+还有更重要的事情 ，它（相信）媒体
+and the more important thing is that they trust media
+
+所以说现在当你跟任何人说，很多人就马上就（产生）那种恐惧感
+So when you talk to anyone now, many people immediately (have) that sense of fear
+
+哇现在一个和平的美食美酒，点着火炉
+Wow, currently there is a peaceful meal with nice food and wine, a warming stove
+
+是不是，天高云淡
+Isn’t it? The sky is high and the clouds are pale
+
+后面还有美山美水
+There are beautiful mountains and crystal clear water behind
+
+面对着自己
+facing one’s own
+
+千万财富亿万财富
+tens of millions of wealth, billions of wealth
+
+突然说他可能要死了
+and suddenly said he might be dying
+
+兄弟姐妹们，你想过这感觉了吗
+Brothers and sisters, have you thought about how it feels?
+
+这个很吓人你知道吗，那人的那种恐惧真的瞳孔就要扩散的感觉呀
+This is very scary. Do you know? That kind of human fear really feel like the pupils are about to diffuse
+
+你谁也受不了，搁在谁身上谁也受不了
+None of you can stand that, no one can stand it
+
+说这有可能要完蛋
+Saying that it might be the end
+
+问疫苗， 马上说哎有解药没有，有解药没有
+(They) asked about the vaccine, and immediately asked whether there is any antidote
+
+全要解药，那药是什么名字，跟我说叫什么名字
+(They) all demand the antidote, what’s the name of that medicine, tell me what’s the name of it
+
+谁都怕死
+Everyone is afraid of death
+
+这个时候你知道，你会发现
+At this time you know, you would find out that
+
+不是每个人都有解药的
+not everyone has an antidote
+
+真的不是每个人都能觉得扛过去这个恐怖的
+really not everyone can overcome this fear
+
+很多人你知道， 他回去一夜一夜睡不着觉
+Many people, you know, they couldn’t sleep nights after nights when he went home
+
+原视频日期：2021/09/21
+原视频链接: https://twitter.com/se1y7cblljselva/status/1440864540116197384?s=24
+视频时间段 : 0:00-2:12
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
