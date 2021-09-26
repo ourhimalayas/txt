@@ -2,42 +2,21 @@
 ---
 
 
-## 有声| 台湾申请加入CPTTP，美国国务院表示台湾拥抱民主价值将是评估中的影响因素
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1555635/)
+## 秘翻在线：马萨诸塞州的数十名警员因拒绝接种疫苗而主动辞职
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1555659/)
 
-配音：香草山美食部-玫瑰园
+##### 翻译/撰稿：zzballack
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+##### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-378.png)    图片来源：Boston.com
+《网关专家》（The Gateway Pundit）9月25日报道称，马萨诸塞州高级法院的一名法官本周拒绝延迟该州定于10月17日开始的疫苗强制令，这一决定导致了数十名州警递交了辞职申请，预计会有更多的人将在强制令生效前辞职。
 
+马萨诸塞州的警察工会（Police Union）老板迈克尔·切文（Michael Cherven）说：“我们对法官的裁决感到失望，但是我们尊重他的决定。迄今为止，已经有数十名警察提交了他们的辞职文件。”既然法官已经拒绝延迟或改变疫苗强制令，那些打算留下但尚未接种中共病毒疫苗的部队人员只剩数天时间来选择要接种哪种实验性疫苗。任何在截止日期前没有接种第一剂的警察都将失去工作，现在大约有20%的警察仍未接种疫苗。
 
+疫苗强制令是在8月19日制定的，适用于所有行政部门的雇员，包括州警察。唯一可以豁免接种疫苗的人是那些有医疗或宗教理由的人，但很少被批准。
 
+切文解释说，该州警察只想与其他地方市政当局的同僚一样可以自行选择。拥有1800名成员的工会一直愿意进行谈判，事实上，这是他们的“首选路线”。但州长办公室拒绝让步。“不幸的是，州长和他的团队仍选择执行全美最严之一的疫苗强制令，也没有提供合理的替代方案。我们所要求的基本便利与其他无数部门为其第一响应者提供的一样，并将与中共病毒有关的疾病作为工伤处理。”
 
+这么多警察的离开将给已经资源耗尽的州警察部队带来巨大负担。调查凶杀案、恐怖主义、计算机犯罪和人口贩运等特殊单位将受到最严重的影响。
 
-
-
-台湾与中共在近日相继提出申请加入CPTPP，美国国务院发言人普莱斯（Ned Price）24日在受访时对此议题发言表示：「我们预期，中国的非市场化贸易行为、以经济方式胁迫其他国家，此种行为会在CPTPP会员国评估新会员申请时产生影响。同样地，我们预期，台湾一向是世界贸易组织（WTO）中负责任的成员、坚定拥抱民主价值，此事实也会在CPTPP会员国评估是否纳入台湾时产生影响。」这是美国政府首次对此议题表示态度。
-
-
-
-**文字版原文：[臺灣申請加入CPTPP美國國務院表示臺灣擁抱民主價值將是評估中的影響因素](https://gnews.org/zh-hant/1554720/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[Dozens of Massachusetts State Troopers Resign Ahead of Deadline for State’s Mandatory Vaccine Mandate](https://www.thegatewaypundit.com/2021/09/dozens-massachusetts-state-troopers-resign-ahead-deadline-states-mandatory-vaccine-mandate/)

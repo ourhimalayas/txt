@@ -2,9 +2,38 @@
 ---
 
 
-## 殡仪馆馆长：死亡数激增与大规模疫苗接种几乎同时发生
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555738/)
+## 梦完之舟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1555801/)
 
-09/23/2021 英国殡仪馆馆长约翰·欧鲁尼说去年曾多次目睹死于自然原因，比如癌症晚期、甚至车祸死亡者，都被挂上死于中共病毒的标签，并确认在英国死亡人数激增与开始大规模疫苗接种几乎是同时发生的。他预测由于当局正在推行未来三到五年定期注射加强针的计划，会有更多人死于中共病毒疫苗。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-379.png)
+[图片来源](https://n.eastday.com/pnews/163262711777014510)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+心中没有
+
+频频垂首
+
+且看仔细
+
+梦完之舟
+
+不谐深奥
+
+丹娘辱口
+
+刻舟求贱
+
+评不知羞
+
+活出自己
+
+站直双膝
+
+惜言感动
+
+泪勿轻流
+
+(文章仅代表作者本人观点，与GNEWS无关)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
