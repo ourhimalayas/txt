@@ -2,17 +2,39 @@
 ---
 
 
-## 孟晚舟已回到中共国！
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1554996/)
+## 以色列无绿色通行证的教师被停薪并禁止进入学校
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1555029/)
 
-韩国天池农场—-追着曙光跑
-![图片来源：网络](https://assets.gnews.org/wp-content/uploads/2021/09/926插图.jpeg)图片来源：网络
-最新消息：北京时间9月25日晚，搭载孟晚舟一行的中国政府包机已进入深圳空域，抵达深圳宝安国际机场。孟晚舟回到深圳后，将按照目前的“14+7”入境隔离政策，集中隔离14天后，再加7天不限制外出的小区管理。
+栏目记者/责任编辑：文真
 
-孟晚舟在朋友圈发布题为《月是故乡明，心安是归途》的长文称“没有强大的祖国，就没有我今天的自由。”
 
-点评：在中共国的普通人能看到的信息真的是认为孟晚舟是无罪释放，殊不知这也是中共做事的一贯伎俩，报喜不报忧，让中共国的民众又感觉祖国是强大的，中共国又赢了西方一回。变得更加热爱中共国，以中共国为荣。但是，真相只有一个，有罪就是有罪，不是中共国你单发面发文就可以证明孟晚舟无罪。不要以为有防火墙就可以把真相阻拦在中共国之外，真相总会有被人发现的时候。
 
-在中共这个魔鬼体制下，回到中共国的孟晚舟将会如何？我们后续继续关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-359.png)
 
-（本文仅代表作者观点，与Gnews平台无关）
+
+
+据雷特巴特新闻网报道，以色列卫生部下令给各学校校长，要求自10月3日起禁止没有绿色通行证的教师进入学校，也不允许他们进行远程教学。而且，在被迫禁课期间，这些教师不会得到任何薪资。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-5.jpg)
+”绿色通行证“ 是以色列新冠病毒期间限制令之一，用来证明持证人近期病毒测试结果为阴性，也可以表示已从新冠病情中康复、或已完成疫苗接种。“绿色通行证”只是借“保护” 为幌子，实质为限制人权和自由，变相强迫民众接种新冠疫苗。
+
+中学教师协会主席埃雷兹反对卫生部的作法：他认为，政府剥夺了人们的自由选择权，更不应该对反抗集权的教师进行惩罚。
+
+（本文仅代表作者观点）
+
+参考链接：
+[以色列无绿色通行证的教师被停薪并禁止进入学校](https://www.breitbart.com/middle-east/2021/09/24/israel-bars-entry-to-unvaccinated-untested-teachers-into-schools-denies-pay/)
+[以色列无绿色通行证的教师被停薪并禁止进入学校](https://gnews.org/zh-hans/1553254/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
+
+终审编辑：暗黑
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-359.png)

@@ -2,13 +2,7 @@
 ---
 
 
-## 《秘翻吐槽大剧场》“我行我秀”台词征集
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1555238/)
+## 9/25/2021七哥盖特：孟晚舟回国又被七哥说中了
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1555270/)
 
-《得加钱》——你就是主角
-本栏目征集：
-配音、台词、段子、剧本、视频
-请关注盖特直接投稿：https://gettr.com/user/daduduvideo
-加入我们的米粉团：https://discord.gg/WP95djzG
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组

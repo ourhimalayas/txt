@@ -2,33 +2,25 @@
 ---
 
 
-## 川普针对主流媒体虚假宣传连续发声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1555292/)
+## 郭文贵：10月20日起欧盟不再推行疫苗护照
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1555324/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/T-4.jpg)nytimes.com
-在昨天（9月24日）笔者怒斥主流媒体“睁眼说瞎话”的文章发表后【1】，怀有同样感受的川普总统连续发表了4个声明，谴责这些媒体的倒行逆施、制假售假、误导民众的行径。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTVNews-2021-09-25-PM-text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-4个声明分别如下：
+视频参看： 2021.09.25晚GTV新闻访谈
 
-1）CNN、《纽约时报》、《华盛顿邮报》和其他媒体正在向公众提供有关亚利桑那州审计的大规模错误信息。审计是民主的一大胜利，也是我们的一大胜利，这表明选举是多么腐败，亚利桑那州参议院的听证会现在正在进行，关于所发生事情的信息是可怕的——一个比预期还要大的骗局！【2】
+[https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d](https://gtv.org/broadcast/watch/614fbeb842a8af3151a5704d)
 
-2）在亚利桑那州的审计结果上，虚假新闻媒体的报道是不诚实，甚至是不可信的，这表明在选举不断变化的层面上存在着难以理解的欺诈行为，比需要的选票多出许多倍。假新闻媒体拒绝报道事实，因此他们是在与本世纪的犯罪同谋，他们是如此的不诚实，但爱国者要知道真相！亚利桑那州必须立即取消2020年总统选举结果的认证。【3】
+编辑/校对/发稿： Lakers
 
-3）在亚利桑那州的司法审计中发现了大规模的舞弊，有时被称为“欺诈”，数字正在变化！【4】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-4）我将在明天的佐治亚州大集会上讨论亚利桑那州司法审计的获胜结果，会展示44,000张令人吃惊的非法选票，届时将座无虚席！【5】
-
-参考链接：
-
-【1】[https://gnews.org/zh-hans/1553250/](https://gnews.org/zh-hans/1553250/)
-
-【2】[https://www.donaldjtrump.com/news/news-dynbvqud4p764](https://www.donaldjtrump.com/news/news-dynbvqud4p764)
-
-【3】[https://www.donaldjtrump.com/news/news-mnkyduz7w5767](https://www.donaldjtrump.com/news/news-mnkyduz7w5767)
-
-【4】[https://www.donaldjtrump.com/news/news-sajbyaupvn766](https://www.donaldjtrump.com/news/news-sajbyaupvn766)
-
-【5】[https://www.donaldjtrump.com/news/news-dtcrhqktzu765](https://www.donaldjtrump.com/news/news-dtcrhqktzu765)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

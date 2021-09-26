@@ -2,118 +2,65 @@
 ---
 
 
-## 世界开始憎恨共产党是因为共产党让他们损失惨重
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1554944/)
+## 四方伙伴签署供应链协议，莫里森敦促世界调查病毒来源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1554982/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/o3-a6vq7-l5u5t.jpg)
-[https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7](https://gtv.org/video/id=614ef6b7d2e2b817486ddfe7)
+#### 翻译：Lish
+校对：枳实
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-34.png)
+图片来源：World Geostrategic Insights
 
-**郭文贵
-Miles Guo**
+澳大利亚总理斯科特·莫里森将在联合国敦促世界各国领导人抵制中共国，并将与四方对话伙伴敲定一项协议，以尽快确保其认为对抗中共国所需的关键矿物的供应。澳大利亚将与四方合作伙伴印度、日本和美国同意该协议，以确保其能够开发对抗中共国在印太地区崛起所需的武器和技术。
 
-但是最近这帮人说，哎哟，Miles
-But recently these guys said, hey, Miles
+莫里森将发表演讲，在没有使用”中国”一词的情况下，**明确指出共产主义政权对世界的经济和军事胁迫，并大声呼吁****“加速”调查中共病毒(COVID-19)的来源。**
 
-我们恨死共产党，
-We hate the communist party
+莫里森将告诉联合国：”全球战略环境已经迅速改变，实际上在许多方面已经恶化，尤其是在澳大利亚所处的印太地区。”
 
-他们没有中秋节，他们有啥节？你们知道
-They don’t have Mid-Autumn Festival, what festival do they have? you know
+“我们面临的变化很多，无论是领土主张造成的紧张局势、快速的军事现代化、外国干涉、网络威胁、虚假信息，以及事实上的经济胁迫，”他说。
 
-犹太人有犹太的节日，
-Jews have Jewish holidays
+“我们必须加强一个可持续的基于规则的秩序，同时确保它也能适应我们这个时代的大国现实。“
 
-大家这几天知道头两天是犹太新年
-Everyone knows that few days ago was Rosh Hashanah
+他还希望世界卫生组织提升其对中共病毒的控制。“我们还需要加快努力，以确定新冠病毒最初是如何出现的，”莫里森说。
 
-犹太新年把他们弄傻了，犹太人是要聚会的
-Jews were stunned at Rosh Hashanah because the Jews need gather together
+“澳大利亚支持呼吁建立一个更强大、更独立的世界卫生组织，拥有强化监测和大流行病权力。加强（病毒）监测和应对大流行权力，这应该是世卫组织每一个成员的责任，共同建立一个能够在这些情况下保护我们所有人的世卫组织。”
 
-然后犹太人有几个节日，前前后后他们受不了了
-Then there are several holidays for Jews, they can’t bear it
+分享这一雄心壮志，建立一个能够在这些情况下寻求保护我们所有人的世卫组织。”
 
-再一个美国最近，所有人这时候都想过假期
-Another one in America recently, everyone thinks about vacation at this time
+四国首脑将进行首次四方安全对话，他们将**正式同意绘制关键产品和关键矿物的供应链图**，并制定新的法规，使项目得到快速跟踪，并使承购协议具有更大的确定性。
 
-这假期完了以后，还有自己的事儿，都活动不了
-After the holiday, they still have their own things, so can’t do anything
+世界上约有50%的锂来自澳大利亚，锂是电池动力的一个关键组成部分，金属锂被用于特殊的军事用途。然而，澳大利亚约90%的产量被送往中共国进行提炼，澳大利亚的许多项目都是由中共国投资者资助的。
 
-然后大家感觉到股票不行了
-Then everyone felt that the stock market was not doing well
+澳大利亚有几十个尚未获得批准或融资的关键矿产项目可以受益于快速的审批程序或四方协议规定的政府补贴和激励措施。
 
-所以兄弟姐妹们，现在遇到这个经济
-So brothers and sisters, now encountering this economy
+其中一些项目有中共国的资助，据了解，新的四方协议将寻求扩大承购协议，使其对印度、日本和美国的投资者更具吸引力。
 
-还有中共国整个的危机，恒大，平安这些地产
-and there is also the entire crisis in the CCP, Evergrande and Ping An’s real estate
+有几十个关键矿产项目的例子可以从政府利用”国家利益”来加快审批和畅通供应链中受益。
 
-你记得七哥曾经在爆料中说过什么
-Do you remember what I said during the Whistleblowing in the past
+莫里森总理在两年多的时间里一直在推动大幅改善关键矿产的供应链法规，新的AUKUS军事情报共享协议促进快速建立信任供应链。
 
-我曾经给大家去年就说过，大家没有注意
-I told you last year that everyone didn’t pay attention
+四国协议还将加速分析各国所依赖的技术方面的最大漏洞，并扩大各国在空间研究和技术方面的合作。所有四个国家都在这个舞台上参与其中，并且是让其机构更密切合作的天然合作伙伴。
 
-我说你们一定要小心国内的，特别是中概股的几个大型企业
-I said that you must be careful about domestic companies, especially several large companies in China Concept Stocks
+莫里森在宣布建立澳大利亚70年来最重要的军事联盟后，与七位以上的世界领导人进行了会晤，四方协议和讲话是这一周的高潮。他说印太地区的局势已明显恶化，现在到了直面地区威胁现实的时候了。
 
-平安，你看陆金所现在什么样
-Ping An and Lufax, what are they looking like now?
+拜登总统赞扬了莫里森的领导能力，称澳大利亚是其”最亲密的盟友”，并表示美国将与澳大利亚在捍卫民主方面”步调一致”。
 
-民生是恒大倒下必死的银行，招商
-Minsheng bank will die when Evergrande falls, also China Merchants Bank
+莫里森将在周五（美国东部时间周六）告诉联合国，”各国必须以相互尊重和支持稳定与安全的方式追求利益”。
 
-现在共产党的政府地方债也出了大问题了
-Now also there is a big problem with the local government debt of the Communist Party
+他说，他希望看到”有一个全球秩序，在这个秩序中，主权国家可以在没有胁迫的情况下，因为合作和有目的的行动而繁荣发展”。
 
-那么这些问题的背后是什么
-So what’s behind these problems
+拜登对联合国说：”我们将为我们的盟友和朋友站出来，反对强国支配弱国的企图，无论是通过武力改变领土、经济胁迫、技术剥削还是虚假信息。”
 
-共产党所谓的股票市场金融市场
-The so-called stock market and financial market of the Communist Party
+几天前，拜登的国务卿安东尼·布林肯更清楚地说明了中国的作用，以及在印太地区对中共国的紧张局势日益加剧的情况下，AUKUS联盟是多么重要。
 
-然后带动的是香港擀面杖子股票市场
-Then it drives the Hong Kong’s fake Stock Market
+“我们欢迎澳大利亚发挥领导作用，站出来维护我们所寻求的普世价值，并帮助塑造一个印度-太平洋地区，在这个地区，各国的行为方式能够加强稳定。”
 
-接下来马上是跟西方的所有长期的债务违约
-Next it will come all the long-term debt defaults with the West
+原文链接：[Scott Morrison’s UN speech will urge world leaders to stand up to China (afr.com)](https://www.afr.com/policy/foreign-affairs/pm-urges-world-leaders-to-stand-up-to-china-20210924-p58ujj)
 
-我觉得日本要出大事儿，还有德国要出大事儿
-I think something big will happen in Japan, and something big will happen in Germany
+发布：文泓
 
-德国的养老金，德国所谓的国防基金（等）这些基金
-German pensions, German so-called defense funds (etc.) these funds
-
-我以为就是将近七八十亿呢
-I thought it was nearly seven or eight billion
-
-结果也是几百亿投进去，德国要出大事儿
-It turned out to be hundreds of billions of dollars invested, and something big is going to happen in Germany
-
-兄弟姐妹你们能感受吗
-Brothers and sisters, can you feel it?
-
-这个世界的经济的大厦随时就要崩塌呀
-The world’s economic edifice is about to collapse at any time
-
-就是因为共产党
-All because of the Communist Party
-
-那你去想想，现在世界有多少人恐怕害怕
-Then think about it, how many people are afraid right now in the world?
-憎恨这个共产党流氓集团
-They hate this communist rogue group
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24](https://twitter.com/se1y7cblljselva/status/1440865125750038533?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
