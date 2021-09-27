@@ -2,13 +2,41 @@
 ---
 
 
-## 2021年9月26日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558049/)
+## 福奇称除非大规模接种新冠疫苗，否则美国将面临一个“黑暗的冬天”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558159/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+作者：香草山写作组-文一
 
-9/26/2021 Miles Guo: You will gradually see that COVID vaccine mandate will be ended in Europe, Canada, the US, Japan, Singapore, Australia, New Zealand, etc. Medications such as ivermectin, artemisinin, dexamethasone, hydroxychloroquine will be allowed to treat COVID; Due to our fellow fighters’ tireless efforts, the bosses of the Big Pharma companies have realized that keeping pushing the COVID vaccines will lead to bankruptcy. 9/26/2021 文贵直播：10月1号后大家会逐渐看到，欧洲、加拿大、美国、日本、新加坡、澳大利亚、新西兰等国将停止强制注射疫苗，并将开放使用伊维菌素，青蒿素，地塞米松，羟氯喹等药物治疗；战友们的不懈努力让各大药厂的老板们意识到继续推疫苗将导致其破产
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-[【2021年9月26日】文贵先生盖特原文](https://gettr.com/post/pcaqq27399)
 
-**喜联盟Gnews编辑部**
+
+Gateway Pundit 报道，福奇近日表示，除非美国民众停止将新冠病毒疫苗作为政治问题，在未来几个月大规模接种新冠疫苗，否则美国将面临一个“黑暗的冬天”。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-3.jpeg)
+
+去年的这个时候，乔·拜登也说过同样的话，以吓唬美国民众戴上口罩，保持六英尺社交距离，并接受疫苗接种。
+
+乔·拜登说我们正在走向一个 “黑暗的冬天 “的时候，还没有人接种疫苗。 一年后的今天，1.83亿美国人已经完全接种了疫苗，但新冠病例比去年这个时候成倍增加了。 却没有人向福奇询问此事。
+
+评论：有科学教疫苗党的冬天一定会是黑暗的。郭先生警告过，最黑暗的时刻还没有到来，所有清醒的人们要做好准备过冬！
+
+参考链接：
+
+[https://www.thegatewaypundit.com/2021/09/fauci-says-us-will-face-dark-winter-unless-americans-get-vaccinated-high-degree-audio/](https://www.thegatewaypundit.com/2021/09/fauci-says-us-will-face-dark-winter-unless-americans-get-vaccinated-high-degree-audio/)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

@@ -2,41 +2,46 @@
 ---
 
 
-## 福奇称除非大规模接种新冠疫苗，否则美国将面临一个“黑暗的冬天”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558159/)
+## 康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1558271/)
 
-作者：香草山写作组-文一
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210921001211_副本-1.jpg)
+据[**赵延壮mm**](https://weibo.com/u/7306095702?refer_flag=1005055014_) [2021年9月27日 16:47](https://weibo.com/7306095702/KA7nWb8vc?from=page_1005057306095702_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI Mate 30](https://app.weibo.com/t/feed/67dir4) 已编辑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+求政府救命，国家重视 性别：男  姓名：赵延壮 年龄：18岁 联系电话：13111343899 地址：河北省邯郸市馆陶县寿山寺乡韩范庄村 于6.23日接种康希诺新冠疫苗
+
+在上海奉贤区八维学校上学，上学期间学校组织我们成年学生接种新冠疫苗，接种后疫苗开始反复发烧、牙龈出血之后，浑身乏力开始严重贫血，身体开始有淤青和出血点。疫苗之前身体很健康，从未生过大病，也没有家族史。后来贫血严重在学校请假去奉贤区医院检查做了血常规，发现结果异常。
+
+老师带我来到三甲瑞金医院检查，当天就进行了各种检查包括血常规，CT一类，由于医院没有床位就在急诊住了几天，之后腾出床位后进行了骨穿检查，结果显示为急性髓系白血病m2。 住院期间发生了 面部出血、眼底出血包括吐血一类的反应。
+
+现在已经过去两个月了，病情也暂时得到了控制，现在我已知的和我一样情况的已有200多人，其中包括很多和我一个医院的治疗的，相信还有很多不知道的案例在内。
+
+半个月前去奉贤区疾控中心上报疫苗异常反应，今天给了答复是跟疫苗没有关系，但是诊断书上连一个权威专家的签名都没有，让我们如何相信这份报告的权威性。更可气的是疾控中心的工作人员告诉我们，没有一个人会对这份报告负责，只是一个政府行为，那么既然没人对这份报告负责我，我们是不是可以怀疑这份报告的真实性和权威性。至此我们是否可以怀疑根本没有专家做鉴定这份报告只是一份敷衍。
+
+难道都不需要问一下我的情况进行判断吗，就只是几个专家坐在一起喝着茶水聊一聊我的病情就可以诊断为与疫苗没有关系吗？马上要进行三疗了，这些期间已经费用高达数十万，家里只有爸爸妈妈和姐姐，爸妈年纪大了跑不动流程了，只能让我姐姐来办手续，所以家庭已经没有了任何收入来源，之后还有干细胞移植的费用高达几十万元，之后发生严重排异的费用更是想也不敢想。
+
+就算疫苗的严重不良反应是接种剂次的十万分之一那也是对几千个家庭的灭顶之灾，让这些家庭支离破碎。所以求政府救命，求国家重视此类问题。麻烦网友帮忙转发让国家看到。🆘 [2上海](http://t.cn/RVJk9aF) [2上海](http://t.cn/RVJk9aF)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/003-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/004-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/005-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/006-2.jpg)
 
 
+那么赵延壮发出的疫苗诊断报告是怎么写的呢？——急性白血病的发生可能与外界环境、遗传因素有关，接种疫苗不会诱发白血病；疫苗和接种过程均符合接种工作规范要求；受种者接种的康希诺疫苗与所患急性髓系白血病不存在因果关系，不属于预防接种异常反应。
 
-Gateway Pundit 报道，福奇近日表示，除非美国民众停止将新冠病毒疫苗作为政治问题，在未来几个月大规模接种新冠疫苗，否则美国将面临一个“黑暗的冬天”。
+互联网和防火墙分明制造了一个阴阳相隔的奈何桥，在桥的那边是响应政府号召打疫苗，和打了疫苗致病以后的求助无门，18岁的河北青年赵延壮和与他同样因为疫苗导致白血病的200例病友只是冰山一角，200+赵延壮的这些人在徒呼奈何时，这一切与疫苗接种机关的任何个人无关。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/fauci-3.jpeg)
+这一切只是一个政府行为，可是难道这些疫苗接种机构不是政府的一部分么？所有的扯皮都永远会陷入这样一个怪圈，所有的扯皮都会最终耗尽200+赵延壮这些人的精力，也最终在徒呼奈何中走向生命的终结。
 
-去年的这个时候，乔·拜登也说过同样的话，以吓唬美国民众戴上口罩，保持六英尺社交距离，并接受疫苗接种。
+撰稿：喜马拉雅的肉夹馍
 
-乔·拜登说我们正在走向一个 “黑暗的冬天 “的时候，还没有人接种疫苗。 一年后的今天，1.83亿美国人已经完全接种了疫苗，但新冠病例比去年这个时候成倍增加了。 却没有人向福奇询问此事。
+审核：喜马拉雅的馍夹肉
 
-评论：有科学教疫苗党的冬天一定会是黑暗的。郭先生警告过，最黑暗的时刻还没有到来，所有清醒的人们要做好准备过冬！
+校对：Maarago
 
-参考链接：
+（文章内容仅代表作者个人观点）
 
-[https://www.thegatewaypundit.com/2021/09/fauci-says-us-will-face-dark-winter-unless-americans-get-vaccinated-high-degree-audio/](https://www.thegatewaypundit.com/2021/09/fauci-says-us-will-face-dark-winter-unless-americans-get-vaccinated-high-degree-audio/)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

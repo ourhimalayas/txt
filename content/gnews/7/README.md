@@ -2,44 +2,41 @@
 ---
 
 
-## 德国大选变天, 社民党胜出墨克尔的基民党
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558160/)
+## 孟晚舟签订暂缓起诉协议是福是祸？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558280/)
 
-栏目记者/责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-79.jpg)图片来自RFI
+2018年12月1日，华为财务总监孟晚舟在温哥华机场被加拿大警方逮捕。此后，中、加、美三方，围绕此事件展开了充分的博弈。经历近3年时间之后，据报道，2021年9月24日，美司法部与孟晚舟达成协议，允许其返回中共国。25日，孟乘坐中共转机，降落深圳。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+孟晚舟签的是一份暂缓起诉的和解书。因为案件还没到最后庭审的阶段，所以也不存在孟晚舟是不是要当庭认罪。根据这份和解书，美国政府暂时选择不起诉孟晚舟，孟晚舟可以立即获得自由，但孟晚舟在和解书里承认了几乎所有美国司法部的事实指控，而且不得反悔或改口。
 
+那么孟晚舟具体承认了什么呢？
 
+\* Skycom是华为在伊朗的长期附属公司，华为精心策划了2007年的交易，看起来是两个无关方之间的公平交易，但实际上华为实际控制了购买Skycom的公司；
 
-德国大选在激烈竞争后，由社会民主党以 28.5％的得票率赢得多数选票，击败原总理默克尔所领导的基督教民主联盟。另外两个小党的得票率，绿党 14.6%，为有史以来最佳，自民党为11.5%。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/视频备用1、3、5.003.jpeg)
-社民党候选人舒兹曾任汉堡市长，目前是德国现任财政部长兼副总理，他的政治经历完整又胜选，有机会成为下任总理。
+\* 华为通过Skycom向伊朗销售了包含美国芯片的设备，违反了美国对伊朗的制裁和出口管制法；
 
-社民党以及基民党皆是与中共较亲密的政党，倾向与中共合作发展经贸关系。
+\* 孟晚舟和华为在与香港银行开展金融业务的事实，隐瞒了华为与Skycom的真实关系；
 
-得票率第三高的绿党，主张严肃看待对中共的关系，不能因为经贸利益而忽视香港的问题，认为新疆的强迫劳动产品不应进入欧洲市场，也提到过台湾地位的问题。
+\* 孟晚舟和她律师对于和解书以及事实部分的签名。
 
-得票率第四高的自民党，反共意识明显，曾多次强调台湾、香港及新疆问题，并在其今年的党代表大会竞选政见中删除中共绑架国际关系的“一个中国政策”。自民党支持台湾自由民主，其所属的诺曼基金会目前正在台湾筹设办事处。
+就在孟晚舟签署这份和解书的同时，被中共扣押当作人质的两位加拿大人已经在中国获释并已经在返回加拿大的途中。如此巧合的时机，说明孟晚舟的和解书和中共放人互为交换条件。也就是说，孟晚舟签这份和解书提前获得了中共的批准。
 
-德国开始进入政党的三国时代，德国选举的民意转变势必影响欧洲，欧盟完全倾向中共的政治路线正在慢慢转变。
-(本文仅代表作者观点)
+孟晚舟为什么要承认这么些事实？她请的是顶级律师团，在加拿大法院打了三年官司，这说明她的律师认为最终获胜的可能性比较小，才会接受这个方案。当然美国盗国贼家族的利益必不可少。
 
-参考链接：
+美国司法部为什么要这么选择？惩罚孟晚舟个人不是最终目的，华为才是它要调查的对象。美国司法部今天发的声明就明确说了：“孟晚舟已经承认了华为非法销售受限产品到伊朗和欺骗金融机构的事实。我们将继续针对华为的案子，我们期待在法院证明我们的案子。”有了孟晚舟的这个事实承认，华为在美国将无法翻案，只会遭受更严厉的惩罚。
 
-1. [【專家之眼】德國大選變天 台灣可能受惠？](https://www.ettoday.net/news/20210927/2088123.htm)
-2. [快訊／德國變天！　左翼社民黨「1.6%險勝」擊敗梅克爾政黨](https://www.ettoday.net/news/20210927/2088123.htm#ixzz77fTHRDGC)
+加拿大为什么要这么选择？孟的案子对于加拿大来说是一个烫手山芋，夹在中美之间的冲突十分难受。小土豆因为那两个加拿大人的事屡遭民众质疑，现在终于可以松一口气了。
 
+所以综合看来，华为是这场勾兑的最大输家。舍弃华为也要将孟弄回国，一是共产党爱“面子”，宣传“爱国主义”教育；二是习近平看中的是自己通过华为在海外藏的三五千亿美元的“党产”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-38.jpg)图片来自新浪新闻
+孟晚舟手里拿着党国的秘密和“党产”，享受着西方国家的法制和自由制度，本来她一人留在美国可保证任正非一家平安。华为本来是个被共产党隐藏起来的大鳄鱼，结果现在，其隶属解放军总参二部的身份已暴露。大鳄鱼露了头，甚至被拉上岸，无法继续潜行，不堪重用。这逻辑也适用于孟晚舟女士，希望她能一切平安，还能有在与身在加拿大的家人团聚的一刻。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+素材来源：[https://www.justice.gov/opa/pr/chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial](https://www.justice.gov/opa/pr/chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial)
 
-终审：FoxRina
-校正/发稿：我不在这里
+作者：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

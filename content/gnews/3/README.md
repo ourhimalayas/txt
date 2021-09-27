@@ -2,30 +2,177 @@
 ---
 
 
-## 美国共和党参议员痛批释放孟晚舟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558215/)
+## 世界各国每分每秒都在变化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558349/)
 
-栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-23.jpg)https://gtv.org/video/id=61514f36d2e2b817486e9457
+人类每分每秒都在变化
+Los seres humanos están cambiando en cada minuto y segundo
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我这一堆的信息来自加拿大的
+Todas estas noticias provienen de Canadá
 
+小土豆这个党还会赢
+El partido de Justin Trudeau seguirá ganando
 
+但是微弱
+Pero muy leve y débil
 
-9月26日，针对中共华为财务主管孟晚舟的获释，美国参议员马可·卢比奥呼吁拜登政府就这个问题紧急向国会通报情况，并表示，孟的获释引发了人们对拜登总统应对华为和中共威胁的能力和意愿的严重质疑。孟晚舟获释只是拜登政府对北京采取危险的软弱态度的另一个例证。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/视频备用1、3、5.005.jpeg)
-共和党参议员比尔·哈格蒂也对此提出了批评和担忧，称此举看起来可能是拜登政府更多的绥靖政策和更多的投降。他直言：“华为是一家咄咄逼人的掠夺性公司,它得到了中国共产党的支持。美国今天已经放弃了影响力。”
-(本文仅代表作者观点)
+而且还是少数党执政
+Además, sigue siendo un partido minoritario en el poder
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+他想干的事干不成
+Lo que él quiere hacer no lo logrará
 
-终审：FoxRina
-校正/发稿：我不在这里
+而且会更惨
+Y será peor
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+日本就在我们昨天的时间
+El día de ayer, en Japón a misma hora de nosotros
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本内部
+Dentro de Japón
+
+日本内部可有很多机密机构啊
+Hay muchas organizaciones secretas
+
+是你们不知道的
+Que ustedes no saben
+
+日本专门有个战后安置委员会
+Japón tiene un Comité Especial de Reasentamiento de Posguerra
+
+从来很少启动, 跟美国的当下危机委员会有点像
+Rara vez lo activan, es parecido al Comité de Crisis Actual en EE. UU
+昨天召开会议
+Ayer se hizo una reunión
+
+正式面对
+Para enfrentar oficialmente
+
+如果共产党打台湾
+Si el PCCh llega a atacar a Taiwán
+
+我们该怎么办
+Qué haremos
+
+刚刚启动的安置委员会认为
+El Comité de Reasentamiento que acaban de activar cree que
+
+日本前所未有的, 比二战核武和导弹扔下来
+Japón nunca ha lanzado armas nucleares y misiles como en la Segunda Guerra Mundial
+
+还要面临最大的共产党的威胁
+Y debe enfrentar a la amenaza más grande del Partido Comunista
+
+因为打台湾
+Porque atacan a Taiwán
+
+下一个病毒还有疫苗
+El próximo virus y vacuna
+
+日本觉得疫苗, 这可能是比什么都严重了
+Japón piensa que la vacuna, esto puede ser más grave que cualquier cosa
+
+那么在昨天
+Y en el día de ayer
+
+也就是我们的24小时以前
+Significa hace 24 horas atrás
+
+大家看到欧洲发生了什么事情
+Todos vieron qué sucedió en Europa
+
+两派对垒
+Dos enfrentamientos
+
+一个是坚决不打疫苗的
+Uno que está en contra de la vacunación
+
+一个是坚决打疫苗的
+El otro es querer vacunarse con determinación
+
+没有中间派了, 欧洲
+En Europa no hay centristas
+
+他就是多党政治, 多数派政治
+Allá es política multipartidista y política mayoritaria
+
+甚至几十个人都有派别
+Hasta con docenas de personas se establece un partido
+
+他没了
+Ya esto no existe
+
+欧洲消灭了中间派, 对澳大利亚什么影响
+Europa eliminó los centristas, qué impacto tendrá en Australia
+
+对新西兰什么影响
+Y Nueva Zelanda
+
+大家想想那个太大了
+Todos piensan, el impacto es muy grande
+
+现在澳大利亚是绝对派
+Ahora en Australia es un Partido absoluto
+
+坚决打疫苗的, 少数派基本就没用
+Aquellos que deciden vacunarse y la minoría es básicamente inútil
+
+然后你在横看美国
+Ahora mira a través de los EE. UU
+
+美国是每分每秒都在变化着
+En EE. UU está cambiando de cada minuto y segundo
+
+每个州反打疫苗和对整个中共的威胁
+La antivacunación en todos los estados y la amenaza para el PCCh en su conjunto
+
+现在认识, 主流媒体
+Sepa ahora, los principales medios de comunicación
+
+现在开始说, 为什么我不可以报导疫苗问题
+Ahora empiezan a decir por qué no puedo informar acerca de los problemas que se presentan en las vacunas
+
+为什么不可以报导, 这个疫苗对我们的伤害
+Por qué no se puede anunciar el daño que puede causar en nosotros
+
+为什么不能报导医院的真相
+Por qué no se puede anunciar la verdad de los hospitales
+
+看这变化, 德国、意大利
+Vean este cambio, Alemania, Italia
+
+比利时、希腊这些国家现在内部已经在土豆这件事情
+Bélgica, Grecia, dentro de todos estos países ya están con el asunto de Justin Trudeau
+
+他会看到深刻的影响
+Él verá el impacto profundo
+
+这些投机分子完全给消灭掉
+Estos especuladores fueron completamente eliminados
+
+没有任何希望, 法国
+Sin ninguna esperanza, Francia
+
+我认为是变天的时候
+Yo pienso que ya es hora del cambio
+
+而且法国这次整个潜艇事件, 彻彻底底地把他所谓的极左派
+Además, todo el incidente del submarino en Francia ha puesto por completo a su llamada ultraizquierda
+
+而且亲共派几乎在法国这次彻底消失
+Y la facción procomunista ha desaparecido casi por completo en Francia esta vez
+
+原视频日期：09/23/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1440969765061726216?s=24
+视频时间段：0:00-2:10
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

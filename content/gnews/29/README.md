@@ -2,35 +2,39 @@
 ---
 
 
-## 有声|韭菜不足放开三胎, 仍然应者寥寥
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1557949/)
+## 麻州民众反对强制疫苗 但对疫苗危害认知有限
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558013/)
 
-配音：纽约香草山美食部 – 玫瑰园
+作者：香草山农场-葛朗台太太
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
 
-中共治下的中国生存环境日益恶化，年轻人不堪重负,生育率急剧下降，为应对迫在眉睫的人口老龄化危机，中共先是取消二胎惩罚措施,后来又变成允许生三胎，但仍然无法改变生育率的持续下滑。最近各地方政府为完成生育指标，已经开始提供奖励以鼓励生育。
+联邦法院推迟了纽约市对教师的疫苗强制接种授权的新闻受到广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/merlin_194458599_630804d2-f61f-4574-8500-9a24aae74ec4-superJumbo.jpeg)
+Boston 25 News在其脸书账号转发相关新闻，并且提问：你认为雇主应该不应该实施强制疫苗？ 截稿前，这个帖子收到了507个评论，评论几乎全是反对强制疫苗的。评论中不乏已经打了疫苗的民众。
 
-如广东廉江，甘肃临泽等地，由于当地人口密度低下，政府开始向本地居民的新生婴儿家庭发放每月数千元补贴奖励不等，这在中共治下闻所未闻！这些款项有的来自政府拨款，有的来自当地商人捐赠。但仍然应者寥寥，毕竟影响夫妇生育愿望的不仅是经济压力， 在国内住房、教育、育儿、城乡差距、阶级固化等多重压力下，不生育，少生育甚至不结婚的观念，已经根深蒂固。中共想要保持韭菜数量以备收割，看来为时已晚，难以为继。
+反对的原因主要出于两点：政府强制疫苗是违法行为，每个人拥有选择医疗手段的权力。
 
-[文字版原文：韭菜不足放开三胎, 仍然应者寥寥](https://gnews.org/zh-hans/1556019/)
+虽然目前，麻州已经有超过四百六十六万人，占人口比例的67.6%接种过两针疫苗，但是强制疫苗因为触及到了自由民主的底线遭到民众反对。
 
-音频处理：喜山必胜Maverick
+很可惜的是：评论里没有人指出新冠疫苗的危害。疫苗危害的真相还需要爆料革命战友更大力度的传播。
 
-*发稿：*Yuki jiang
+参考链接： [https://www.facebook.com/168744703121/posts/10159030164478122/?d=n](https://www.facebook.com/168744703121/posts/10159030164478122/?d=n) [https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/](https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
