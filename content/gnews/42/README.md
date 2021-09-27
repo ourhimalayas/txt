@@ -2,111 +2,37 @@
 ---
 
 
-## 恒大的钱去哪了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556734/)
+## 中共对恒大采取措施是继续欺骗，并为恒大破产做准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556758/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/777-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=61500ffad2e2b817486e322f](https://gtv.org/video/id=61500ffad2e2b817486e322f)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/azb4z-io9zi-1.jpg)图片来源：《零对冲》视频
+**《零对冲》引述了一篇《彭博社》关于恒大违约的观点的文章，其中心内容指中共政府已经采取了措施，确保恒大完成住房项目。言下之意，恒大公司宁愿违约支付债权人，也要确保在建的房产项目完成。政府出手了，购房者的利益可以得到保证。**
 
-**郭文贵：
-Miles Guo：**
+**据《零对冲》记者泰勒·杜登（TYLER DURDEN）在2021 年 9 月 24 日报道：恒大的外国债券持有人表示，他们尚未收到密切关注的 8350 万美元利息，该利息支付将于纽约时间周四午夜或香港时间周五中午到期，这实际上触发了硬违约之前的30 天的宽限期。 《彭博社》报道称，中国住房监管机构已“加强对中国恒大集团银行账户的监管，以确保资金用于完成住房项目，而不是转用于支付债权人。”**
 
-恒大
-Evergrande
+**报道称，住房和城乡建设部上个月指示全国各地部门对恒大房地产项目资金专项托管账户进行监管……一些城市已经开始实施这些措施。本月早些时候，买家包围了当地房管局，要求恒大重启建设，（广州）南沙区房管局本月以自己的名义设立了一个托管账户，接收恒大购房者的购房款。**
 
-大家都弄不清楚的这两万亿
-Everyone can’t figure out where the two trillion dollars went
+据国内新闻报道：中共中央就恒大债务出台处理措施，由各地政府自行解决。财经真相报道说，截止9月24日，除了上述报道中的广州南沙区房管局表示将接手恒大阳光半岛项目之外，尚未有任何一个地方政府部门出来表态，他们都采取了拖延和观望的态度。
 
-买房子付钱了，是吧？都付钱了
-People paid for the house, didn’t they? All paid
+资金短缺已经导致一些未完工的房屋停工，引发购房者的社会动荡。北京的首要任务更简单：维护社会秩序。心怀不满的投资者本月至少连续三天聚集在该公司的深圳总部抗议，中国其他地区抗议该开发商的视频也在网上广泛传播。
 
-然后呢？它还（负债）两万亿
-And then? It also has two trillion debt
+恒大的债务及后续事件由地方政府处理，意味着中央默许地方政府暴力镇压民众，否则，地方政府就必须想办法。地方筹资接盘恒大的项目，除了还债之外，还需要有更多的后续完成项目的资金。由于项目的估价非常虚高，大大超出地方政府的财税收入，地方政府基本是没有办法接盘的。投资人、施工队、承包商和材料供应商引发的社会动乱和抗议活动，地方政府大概率会动用警察和安保实行严厉的打击镇压。
 
-这钱去哪儿了？这个问题问得好
-Where did the money go? That’s a good one.
+财经真相的节目中指出了针对房产措施的实质，并对楼宇买家给出建议：恒大全国800个楼盘，能否交楼取决权在业主，许家印的保交楼令根本没有用，纯粹就是忽悠和拖延。这些再建楼盘里已经封顶的，只要业主们积极维权尚有一丝希望能够交楼，没有封顶的铁定烂尾。而且随着时间流逝，恒大楼盘烂尾概率在增加，一旦过了中共二十大，基本再无任何希望。
 
-那还钱不就完了嘛？你还有利润
-Then paid back your debt, right? Evergrande has profit
+郭文贵先生在2021年9月23日的直播中指出了恒大事件处理的实质：这是江派出谋划策来肢解恒大集团，实质上是掩饰和保护背后的影子银行、保险机构、信托等资金池。恒大爆雷将导致全球的金融市场崩溃。
 
-关键是，兄弟姐妹们，这是个旁氏骗局
-The point is, brothers and sisters, it’s a ponzi’s scheme
+在9月24日的直播中，郭先生进一步指出：恒大就是庞氏骗局，恒大与平安以及许家印的结局会很悲惨。共产党会想出一堆办法让恒大不倒，但恒大最终一定会倒，而且会非常惨。而且许家印一定是车祸死、心脏病死、自杀、猝死这些结局。
 
-你们让它还钱，指望它还钱，我说我告诉你
-You expect Evergrande to pay back, I said: I tell you
+**参考文章：**
+[https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors](https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors)
 
-你得做到以下四件事儿:
-You have to do the following four things:
+**参考视频：2021年9月23/24日，GTV-郭文贵先生直播**
 
-第一条，所谓的恒大汽车和恒大抵押，恒大的地，所谓价值4000亿
-The first one, the so-called Evergrande automobile and Evergrande mortgage, the so-called value of 400 billion land
+**（本文章仅代表作者个人观点）**
 
-那是谁评估的？
-Who evaluated all that?
-
-那是恒大花钱评估的，它不值4000个亿
-That’s what Evergrande paid to evaluate, so it’s not worth 400 billion
-
-这是假的，负4000个亿还差不多
-This is phony, a negative 400 billion assets is more like it
-
-第二，恒大在股市上造的那的股市的价格不能作为你参考它资产的价格
-Second, the price of the stock market that Evergrande made in the stock market cannot be used as a reference for you to refer to the price of its assets
-
-因为它全是一帮骗子抬起来的价格
-Because it’s all a bunch of scammers jacking up the price
-
-第三个，我说所有的金融机构、信托、银行贷款，全是骗局，都不是真的
-Third, I said all financial institutions, trusts, bank loans, all scams, are not real
-
-绝对多于这个数
-Definitely more than this number
-
-最后第四个，我说它最大的灾难不是你能看得见的这些东西
-And finally the fourth one, I’d say its biggest disaster is not these things that you can see
-
-我在2017年就说过，他说七哥我懂了，我说是金融票据
-I said it was a financial instruments in 2017, he said he understand
-
-没有人告诉你实话，都想活着
-No one tells you the truth, they all want to live
-
-金融票据的兑现，所有这些房地产全让员工买它的债
-The cashing in of financial instruments, all these real estate debt bought by its employees
-
-这些债大家赎回的时候，又大概在5万亿
-when everyone redeemed the bond are about another 5 trillion
-
-说你这10万亿你付不付？
-I asked: will you pay off this 10 trillion?
-
-你付了，不要说10万亿，你付2万亿，你所有的银行全倒闭
-You pay, not to say 10 trillion, you pay 2 trillion, all your banks collapse
-
-对吧？大卫兄弟，很简单，你全倒塌
-Right? Brother David, it’s simple, you’re all falling down
-
-你让不让大家赎债？
-Will you let people redeem their debts?
-
-赎债的时候，现在你拿官方示例说
-When foreclosing on a debt, now you take the official example and say
-
-这些人一旦要兑现的时候，我说你就让他30%的利息不给，你给他本
-Once these people want to cash in, I said you don’t pay 30% of the interest, you just give back the principal
-
-他说估计给本最多20%，我说那就是社会动乱
-He said he estimated that he could pay up to 20% of the principal, and I said that would be social unrest
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24](https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24)
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Raul
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+作者: 洛杉矶盘古农场 – 蓝精灵
+校对/编辑：洛杉矶盘古农场 – 明子
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

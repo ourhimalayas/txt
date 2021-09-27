@@ -2,36 +2,33 @@
 ---
 
 
-## 意大利爆发大规模反疫苗护照示威游行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556807/)
+## 美国俄勒冈州参议员起诉美国食品药物管理局和疾病控防中心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556889/)
 
-作者：香草山写作组 – 文一
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+栏目记者/责任编辑：文真
 
 
 
-近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
 
-意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
 
-评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5-5.jpg)
+美国俄勒冈州两位参议员，撒切尔和林西科姆，联合提交一份正式请愿书，要求联邦大陪审团调查美国食品药物管理局和疾病控防中心。证据表明这两个机构在中共病毒疫情处理方式和死亡人数上撒谎。 在科学、法律和公共政策专家的帮助下，撒切尔和林西科姆在过去九个月里一直在准备他们的证据和请愿书。他们的目标是纠正所有以抗击疫情的名义，向民众施行的暴政。他们提交的公函包括8份展示资料和20份证据参考。例如，在《科学、公共卫生政策和法律》杂志上发表的一项研究，全面概述了早在2020年3月，CDC突然改变死亡证明的记录方式，将任何原因的死亡都标记为”新冠死亡“。 只有民众联合抵制，才能终结食品药物管理局和疾病控防中心的医疗暴政。截至目前，俄勒冈州各地已经收集了大约62,200个签名。随着越来越多的俄勒冈人了解到这封请愿书的意图，预计这个数字将大幅上升。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5a.jpg)
+（本文仅代表作者观点）
 
-参考链接： [https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21) [https://youtu.be/UxIREubRjh4](https://youtu.be/UxIREubRjh4) [https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world) [https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
+参考链接：[美国俄勒冈州参议员起诉美国食品药物管理局和疾病控防中心](https://www.survivethenews.com/oregon-senators-sue-cdc-fda-for-lying-about-covid-deaths/)
 
-（本文仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
-
-编辑/校对/发稿：正义的小新
+终审编辑：Ryan
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
