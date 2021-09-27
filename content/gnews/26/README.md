@@ -2,33 +2,32 @@
 ---
 
 
-## 美国俄勒冈州参议员起诉美国食品药物管理局和疾病控防中心
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556889/)
+## 朱立伦和国民党舔共卖台能得到继续尸位素餐的机会么
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1556989/)
 
-栏目记者/责任编辑：文真
+![](https://assets.gnews.org/wp-content/uploads/2021/09/83c8b77244type_jpeg_size_1050_149_end_副本.jpg)
+据郭文贵先生于[Posted on 3:07 AM · Sep. 27., 2021](https://gettr.com/post/pcb3w6da92)发布的盖特——
+
+9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001_副本.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002_副本.jpg)
 
 
+很多网友质疑朱立伦与共产党舔腚的这份文件中没有出现中华民国的字样，并质疑朱立伦及它背后的中国国民党把中华民国给卖了，其实这种质疑既对也不对，为什么这么说呢？因为只有借国民党的尸身才能还卖台的魂，否则不担任公职的朱立伦何以卖台呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
+既不担任公职而又一心卖台的朱立伦借国民党的尸身批评民进党所谓去中、反中政策，并进一步以所谓国共两党的九二共识及反对台独的基础上向中共递降书纳顺表，继当年不争气的国民党丢掉大陆龟缩台湾之余，国民党的宵小之辈朱立伦继续借国民党的尸身再卖台湾并乐此不疲，由此可见一斑矣！
 
+卖台贼朱立伦的可耻与可恨之处在哪里呢？他的可耻和可恨在其空手套白狼以一纸文书绑架台湾两千三百万人民，在这份卖台舔共的文件中，朱立伦想当然地把他脚下的那片台湾土地和那片土地上生存的两千三百万台湾同胞想当然地划归了国民党和民进党，在把台湾这片土地和人民窃据囊中之后再用这一纸文书来舔共，并试图以卖台湾来为自己和那个尸身犹存的所谓中国国民党谋得一个尸位。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5-5.jpg)
-美国俄勒冈州两位参议员，撒切尔和林西科姆，联合提交一份正式请愿书，要求联邦大陪审团调查美国食品药物管理局和疾病控防中心。证据表明这两个机构在中共病毒疫情处理方式和死亡人数上撒谎。 在科学、法律和公共政策专家的帮助下，撒切尔和林西科姆在过去九个月里一直在准备他们的证据和请愿书。他们的目标是纠正所有以抗击疫情的名义，向民众施行的暴政。他们提交的公函包括8份展示资料和20份证据参考。例如，在《科学、公共卫生政策和法律》杂志上发表的一项研究，全面概述了早在2020年3月，CDC突然改变死亡证明的记录方式，将任何原因的死亡都标记为”新冠死亡“。 只有民众联合抵制，才能终结食品药物管理局和疾病控防中心的医疗暴政。截至目前，俄勒冈州各地已经收集了大约62,200个签名。随着越来越多的俄勒冈人了解到这封请愿书的意图，预计这个数字将大幅上升。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5a.jpg)
-（本文仅代表作者观点）
+如果成功卖台，卖台贼朱立伦和他身后的这个国民党或许可以能得到尸位素餐的机会吗？殷鉴不远 在夏后之世，中国共产党的所谓政治协商制度里的八个民主党派已经是国民党最好的前车之鉴，中国十亿同胞现在的水深火热也是台湾两千三百万同胞最好的前车之鉴，台湾同胞们和台湾的有种的政治家们如果能容忍国民党和朱立伦这样的公开通敌卖国，那就只有死路一条了，因为朱立伦至少还能借国民党的尸身还卖台湾的魂，剩下的民进党和两千三百万台湾同胞就只有被卖的份儿了。
 
-参考链接：[美国俄勒冈州参议员起诉美国食品药物管理局和疾病控防中心](https://www.survivethenews.com/oregon-senators-sue-cdc-fda-for-lying-about-covid-deaths/)
+（文章内容仅代表作者个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+撰稿：喜马拉雅的肉夹馍
 
-终审编辑：Ryan
-校正/发稿：Hetangyuese
+审核：喜马拉雅的馍夹肉
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+校对：Maarago
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

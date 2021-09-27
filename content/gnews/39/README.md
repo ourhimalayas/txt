@@ -2,48 +2,37 @@
 ---
 
 
-## 美国对中国所有制定的政策，处处都打到中共的七寸
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556712/)
+## 中共对恒大采取措施是继续欺骗，并为恒大破产做准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556758/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/100-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=614fb309d2e2b817486e173e](https://gtv.org/video/id=614fb309d2e2b817486e173e)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/azb4z-io9zi-1.jpg)图片来源：《零对冲》视频
+**《零对冲》引述了一篇《彭博社》关于恒大违约的观点的文章，其中心内容指中共政府已经采取了措施，确保恒大完成住房项目。言下之意，恒大公司宁愿违约支付债权人，也要确保在建的房产项目完成。政府出手了，购房者的利益可以得到保证。**
 
-**郭文贵：**
-**Miles Guo：**
+**据《零对冲》记者泰勒·杜登（TYLER DURDEN）在2021 年 9 月 24 日报道：恒大的外国债券持有人表示，他们尚未收到密切关注的 8350 万美元利息，该利息支付将于纽约时间周四午夜或香港时间周五中午到期，这实际上触发了硬违约之前的30 天的宽限期。 《彭博社》报道称，中国住房监管机构已“加强对中国恒大集团银行账户的监管，以确保资金用于完成住房项目，而不是转用于支付债权人。”**
 
-为什么呢？
-Why？
+**报道称，住房和城乡建设部上个月指示全国各地部门对恒大房地产项目资金专项托管账户进行监管……一些城市已经开始实施这些措施。本月早些时候，买家包围了当地房管局，要求恒大重启建设，（广州）南沙区房管局本月以自己的名义设立了一个托管账户，接收恒大购房者的购房款。**
 
-从两样事能看得出来，就美国对中国所有制定的政策
-It is clear from two things, one is that all the policies set by the United States against China
+据国内新闻报道：中共中央就恒大债务出台处理措施，由各地政府自行解决。财经真相报道说，截止9月24日，除了上述报道中的广州南沙区房管局表示将接手恒大阳光半岛项目之外，尚未有任何一个地方政府部门出来表态，他们都采取了拖延和观望的态度。
 
-几乎都是处处能打到中共的7寸
-can hit the Chinese Communist Party in almost every way
+资金短缺已经导致一些未完工的房屋停工，引发购房者的社会动荡。北京的首要任务更简单：维护社会秩序。心怀不满的投资者本月至少连续三天聚集在该公司的深圳总部抗议，中国其他地区抗议该开发商的视频也在网上广泛传播。
 
-对中国所有出售给中国的粮食价格和科技产品的把握
-Control over the price of all food and technology products sold to China
+恒大的债务及后续事件由地方政府处理，意味着中央默许地方政府暴力镇压民众，否则，地方政府就必须想办法。地方筹资接盘恒大的项目，除了还债之外，还需要有更多的后续完成项目的资金。由于项目的估价非常虚高，大大超出地方政府的财税收入，地方政府基本是没有办法接盘的。投资人、施工队、承包商和材料供应商引发的社会动乱和抗议活动，地方政府大概率会动用警察和安保实行严厉的打击镇压。
 
-每次制裁都是招招致命，而且美国从来没有损失
-Every sanction is a deadly move, and the U.S. never loses
+财经真相的节目中指出了针对房产措施的实质，并对楼宇买家给出建议：恒大全国800个楼盘，能否交楼取决权在业主，许家印的保交楼令根本没有用，纯粹就是忽悠和拖延。这些再建楼盘里已经封顶的，只要业主们积极维权尚有一丝希望能够交楼，没有封顶的铁定烂尾。而且随着时间流逝，恒大楼盘烂尾概率在增加，一旦过了中共二十大，基本再无任何希望。
 
-所有共产党在国际上篮金黄这些国家，所有的达到的目的和所有的钱，花完以后
-all the countries that the communists colluded with internationally, in order to achieve their goals and spent the money
+郭文贵先生在2021年9月23日的直播中指出了恒大事件处理的实质：这是江派出谋划策来肢解恒大集团，实质上是掩饰和保护背后的影子银行、保险机构、信托等资金池。恒大爆雷将导致全球的金融市场崩溃。
 
-美国人都能顺势到那儿去，把最好的东西捡走
-After the money is spent, the Americans are able to go to that country along the way and take away the best benefit
+在9月24日的直播中，郭先生进一步指出：恒大就是庞氏骗局，恒大与平安以及许家印的结局会很悲惨。共产党会想出一堆办法让恒大不倒，但恒大最终一定会倒，而且会非常惨。而且许家印一定是车祸死、心脏病死、自杀、猝死这些结局。
 
-你到那去打，战争完，战场的果实都被美国收走
-The Communists go to some countries and fight for benefit, the war ends, the United States always collects the fruits of the war
+**参考文章：**
+[https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors](https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+**参考视频：2021年9月23/24日，GTV-郭文贵先生直播**
 
-**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24](https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24)
+**（本文章仅代表作者个人观点）**
 
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Raul
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+作者: 洛杉矶盘古农场 – 蓝精灵
+校对/编辑：洛杉矶盘古农场 – 明子
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

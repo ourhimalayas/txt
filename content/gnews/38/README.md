@@ -2,113 +2,36 @@
 ---
 
 
-## 恒大的钱去哪了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556734/)
+## 意大利爆发大规模反疫苗护照示威游行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556807/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/777-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=61500ffad2e2b817486e322f](https://gtv.org/video/id=61500ffad2e2b817486e322f)
+作者：香草山写作组 – 文一
 
-**郭文贵：
-Miles Guo：**
 
-恒大
-Evergrande
 
-大家都弄不清楚的这两万亿
-Everyone can’t figure out where the two trillion dollars went
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-买房子付钱了，是吧？都付钱了
-People paid for the house, didn’t they? All paid
 
-然后呢？它还（负债）两万亿
-And then? It also has two trillion debt
 
-这钱去哪儿了？这个问题问得好
-Where did the money go? That’s a good one.
+近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
 
-那还钱不就完了嘛？你还有利润
-Then paid back your debt, right? Evergrande has profit
+意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
 
-关键是，兄弟姐妹们，这是个旁氏骗局
-The point is, brothers and sisters, it’s a ponzi’s scheme
+评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
 
-你们让它还钱，指望它还钱，我说我告诉你
-You expect Evergrande to pay back, I said: I tell you
+参考链接： [https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21) [https://youtu.be/UxIREubRjh4](https://youtu.be/UxIREubRjh4) [https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world) [https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
 
-你得做到以下四件事儿:
-You have to do the following four things:
+（本文仅代表作者个人观点）
 
-第一条，所谓的恒大汽车和恒大抵押，恒大的地，所谓价值4000亿
-The first one, the so-called Evergrande automobile and Evergrande mortgage, the so-called value of 400 billion land
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
 
-那是谁评估的？
-Who evaluated all that?
+编辑/校对/发稿：正义的小新
 
-那是恒大花钱评估的，它不值4000个亿
-That’s what Evergrande paid to evaluate, so it’s not worth 400 billion
+**更多资讯，更多关注**
 
-这是假的，负4000个亿还差不多
-This is phony, a negative 400 billion assets is more like it
-
-第二，恒大在股市上造的那的股市的价格不能作为你参考它资产的价格
-Second, the price of the stock market that Evergrande made in the stock market cannot be used as a reference for you to refer to the price of its assets
-
-因为它全是一帮骗子抬起来的价格
-Because it’s all a bunch of scammers jacking up the price
-
-第三个，我说所有的金融机构、信托、银行贷款，全是骗局，都不是真的
-Third, I said all financial institutions, trusts, bank loans, all scams, are not real
-
-绝对多于这个数
-Definitely more than this number
-
-最后第四个，我说它最大的灾难不是你能看得见的这些东西
-And finally the fourth one, I’d say its biggest disaster is not these things that you can see
-
-我在2017年就说过，他说七哥我懂了，我说是金融票据
-I said it was a financial instruments in 2017, he said he understand
-
-没有人告诉你实话，都想活着
-No one tells you the truth, they all want to live
-
-金融票据的兑现，所有这些房地产全让员工买它的债
-The cashing in of financial instruments, all these real estate debt bought by its employees
-
-这些债大家赎回的时候，又大概在5万亿
-when everyone redeemed the bond are about another 5 trillion
-
-说你这10万亿你付不付？
-I asked: will you pay off this 10 trillion?
-
-你付了，不要说10万亿，你付2万亿，你所有的银行全倒闭
-You pay, not to say 10 trillion, you pay 2 trillion, all your banks collapse
-
-对吧？大卫兄弟，很简单，你全倒塌
-Right? Brother David, it’s simple, you’re all falling down
-
-你让不让大家赎债？
-Will you let people redeem their debts?
-
-赎债的时候，现在你拿官方示例说
-When foreclosing on a debt, now you take the official example and say
-
-这些人一旦要兑现的时候，我说你就让他30%的利息不给，你给他本
-Once these people want to cash in, I said you don’t pay 30% of the interest, you just give back the principal
-
-他说估计给本最多20%，我说那就是社会动乱
-He said he estimated that he could pay up to 20% of the principal, and I said that would be social unrest
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24](https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24)
-
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Raul
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
