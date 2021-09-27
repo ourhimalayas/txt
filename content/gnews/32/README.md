@@ -2,20 +2,18 @@
 ---
 
 
-## 河南再遭暴雨 中共媒体只关注孟晚舟回国
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556527/)
+## 中共军机挂核弹绕台 中共国沿海导弹系统启动
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556536/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-13.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/text-CN.png)
 文章仅代表作者本人观点，与Gnews无关
 
-视频参看：202109.26早GTV新闻访谈
-
-[https://gtv.org/broadcast/watch/6150675d42a8af3151a5a4c4](https://gtv.org/broadcast/watch/6150675d42a8af3151a5a4c4)
-
-编辑/校对/发稿： Lakers
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 

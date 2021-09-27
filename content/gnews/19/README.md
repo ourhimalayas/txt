@@ -2,192 +2,67 @@
 ---
 
 
-## 世界上各种力量和黑暗组织正在较量
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556745/)
+## 《南华早报》称桑顿访中是基辛格秘密之行的重演
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1556751/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1777-a41t4-juabx.jpg)
-[https://gtv.org/video/id=615010d8d2e2b817486e3271](https://gtv.org/video/id=615010d8d2e2b817486e3271)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/T-6.jpg)theglobeandmail.com
+笔者曾发文这样描述过拜登，“……真为拜登政府的不争气感到蒙羞，目前虽然没有拿到坐实的证据，但是与中共的勾兑肯定存在，在那些关键问题上的所作所为，拜登主观客观、明里暗里都在帮中共。一上台叫停了唯一的美国官方病毒溯源调查、对种族灭绝只是叫喊，出台一些不痛不痒的制裁措施、对抵制北京冬奥会的呼声不闻不问、积极配合中共在阿富汗的撤军、留人质留武器给塔利班和中共、90天病毒溯源报告内容为中共解围，民众关注点被阿富汗混乱分散。一切都在中共的布局之下，不知克里这次的汇报工作是表功呢，还是继续请领新的任务？”【1】。
 
-**Miles Guo**
+还真让笔者猜中了，孟晚舟的回国，是拜登向习神20大的献礼【2】。
 
-这些重大的国际形势背后
-Detrás de estas grandes situaciones internacionales
+还有后续的“节目”吗？在中共助力下，窃位总统拜登不会就此止步，背后的中共等恶势力也不会收手，这不，《南华早报》已经开始放风，“基辛格‘秘密’中共国之行的重演，华尔街老兵会见了中共主要领导人，并访问了新疆”【3】。文章摘要指出，中美金融圆桌会议联席主席、高盛（Goldman Sachs）前老板约翰·桑顿（John Thornton）在为期六周的访问中获得了在中共病毒时代前所未有的机会；
 
-大家想到的经济
-Todos piensan en la economía
+知情人士表示，（桑顿）与中共副总理讨论了包括气候挑战、新疆以及美中官方会谈的前景。
 
-香港的林郑月娥
-Carrie Lam de Hong Kong
+文章说，《邮报》（the Post）获悉，在中美官方交流因紧张局势加剧而放缓之际，一位华尔街资深人士访问北京，与一位高级领导人进行了会谈，这对中美两国来说是一个强大的后方通道。
 
-一个安全法
-Una ley de seguridad
+据知情人士透露，巴里克黄金公司（Barrick Gold Corp.）执行董事长、高盛前总裁约翰·桑顿（John Thornton）8月底在北京会见了中共国务院副总理韩正。
 
-一个中央领导的讲话
-Un líder central habla
+讨论的关键问题包括气候变化、新疆和恢复双边会谈的条件。
 
-是香港稳定的基石
-Y es la piedra angular de la estabilidad de Hong Kong
+桑顿也是中美金融圆桌会议（the China-US Financial Roundtable）的联席主席，他在为期六周的访问中充当了美中交流的非官方渠道，其中包括8月底与中共高级官员的北京会晤之前在上海停留了三周。
 
-啪, 股票下来了, 860亿啊
-Pas, la capital social bajó, 86 mil millones
+随后，他对遥远的西部地区新疆进行了为期一周的访问。在新疆，美国指责中共对少数民族的维吾尔人实施了种族灭绝政策。
 
-呱唧就下来了
-Así de una bajó
+自中共病毒疫情首次爆发以来，在中共国对大多数外国人基本上仍不开放的时候，桑顿获得了前所未有的准入。在乔·拜登（Joe Biden）就任总统八个月以来，随着官方关系持续恶化，他是极少数能够在北京与中共官员举行会晤的外国人之一，因此能够在美国和中共高层领导人之间传递信息和政策立场。
 
-几个点啊
-Cuántos puntos
+知情人士要求匿名表示，“桑顿的访问性质类似于（1971年）基辛格的秘密中国之行。”
 
-香港这个市场是真钱
-El mercado de Hong Kong es dinero de verdad
+白宫最近几个月试图在拜登和中共习近平主席之间安排一次亲自会晤，希望能解决一些最棘手的问题，北京官员表示，今年年底前不太可能实现这一目标，但已对重启对话持开放态度。
 
-全部走人
-Todos se fueron
+他们还坚持认为，华盛顿应该首先调整其强硬方针，解决中共国的一些最关心的问题，正如美国副国务卿温迪·谢尔曼（Wendy Sherman）7月底在天津会见中共高级外交官时所阐述的那样。
 
-然后国内的恒大
-Luego el Evergrande Group de China
+其中一个关注的问题是，要求美国撤回对﻿2018年12月在加拿大被拘留的华为首席财务官孟婉舟的引渡要求。令人惊讶的是，孟在与美国检察官达成协议后于周六（9月25日）返回了中共国，该协议有效地解决了一宗美国欺诈案，该案使她在温哥华处于法律边缘近三年。
 
-然后国内的所谓的
-Lo que supuestamente es
+这位知情人士说：“韩告诉桑顿，中共不寻求挑战或取代美国，两国应该恢复合作，但前提是相互尊重，这意味着美国应该将中共视为平等的伙伴。”
 
-这力那力、新力、富力
-Este Sinic Holdings, Guangzhou R&F Properties Co., Ltd.
+担任七人全能政治局常委之一的韩正也拒绝了拜登政府对中共国的双管齐下方针——即继承川普在各方面与北京竞争的剧本，同时寻求在包括气候问题在内的有限领域开辟合作渠道，他告诉桑顿，继续前总统的强硬路线是行不通的。
 
-所有的这兵那兵
-Todos esos soldados
+在前往中共国之前，桑顿与一位深入参与美中关系的白宫官员讨论了此次访问，这位官员至少两次要求桑顿不要访问新疆，因为担心这会被视为对华盛顿所说的中共在维吾尔自治区的镇压政策的认可。
 
-共产党一系列的决策
-La serie de decisiones del PCCh
+但桑顿的新疆之行显然受到了韩正的欢迎，知情人士说：“韩正告诉桑顿，他应该告诉美国议员他在新疆的观察结果，美国应该重新考虑其双重标准——将9/11后的战争视为反恐行动，但批评中共的反恐行动侵犯人权。”
 
-然后在福建沿海严阵以待
-Luego es la preparación de antemano para esperar al infractor en la costa de Fujian
+在北京期间，桑顿还在美国气候特使约翰·克里（John Kerry）正式访问之前会见了中共首席气候谈判代表解振华，并于8月31日至9月3日在天津与多名中共高级官员进行了虚拟会谈。
 
-随时要出马
-En cualquier momento sale
+桑顿告诉韩正，他相信克里不仅是气候问题谈判的关键人物，而且是整个美中关系的关键人物。
 
-打台湾这一系列的现象
-Una serie de fenómenos para atacar a Taiwán
+……
 
-经济、政治、地域、文化
-En la economía, política, zona, cultura
+略去扯淡的气候话题。
 
-在中东, 大家看到了没有
-En Medio Oriente, todos vieron o no
+（完）
 
-大家看一看
-Todos vean
+笔者认为《华南早报》的这篇文章传达了很重要的信息，拜登政府与中共有一条“强大的后方通道”，该从幕后转为前台了。韩正被抬得很高，有没有画外音？韩正要桑顿告诉美国议员在新疆的观察结果，试图淡化西方对新疆的制裁、指责？为继续举办冬奥会铺垫？
 
-在2017年到现在爆料当中
-Durante las noticias desde el 2017 hasta ahora
+且看拜登政府亲共、通共的继续表演！
 
-我多次说到过
-Yo en varias ocasiones mencioné
+参考链接：
 
-姆努钦, 美国财长
-Steven Mnuchin, exadministrador de fondos estadounidense
+【1】[https://gnews.org/zh-hans/1504769/](https://gnews.org/zh-hans/1504769/)
 
-我跟美国好多朋友打过赌
-Aposté varias veces con muchos amigos estadounidenses
+【2】[https://gnews.org/zh-hans/1553000/](https://gnews.org/zh-hans/1553000/)
 
-我说我告诉你姆努钦最近会干啥
-Les dije que le decía qué haría últimamente Mnuchin
-
-大家现在注意到了吗
-¿ Ahora todos pusieron atención?
-
-看到一个姆努钦的报导
-Se vió un reporte de Mnuchin
-
-现在筹建了一个基金
-Ahorita está estableciendo un fondo
-
-筹资25亿美元
-Recaudando 2.5 mil millones de dólares
-
-公告出来了吧
-Ya salió el anuncio
-
-所有人全傻眼了
-Todos se quedaron boquiabiertos
-
-因为这个基金界的
-Porque en la industria de fondos
-
-我说姆努钦下一步会筹立基金
-Yo dije que el próximo paso de Mnuchin es establecer un fondo
-
-这个基金的钱来自于沙特
-El dinero de este fondo proviene de Arabia Saudita
-
-或者UAE
-O de los Emiratos Árabes Unidos
-
-但绝大多数是沙特
-Pero la mayoría es de Arabia Saudita
-
-而且沙特一定在这个交易
-Además, Arabia Saudita seguro hará y terminará esta transacción financiera
-
-5000亿美元跟中共做完
-Con el PCCh de 500 mil millones de dólares
-
-交易以后
-Luego de la transacción
-
-七哥是4年前和3年前告诉的国际基金组织
-Yo hace 3 y 4 años atrás le dije al Fondo Monetario Internacional
-
-所有的大咖们, 就这么准
-Todos estos grandes personajes, así de preciso
-
-这是不可能的事情
-Esto es imposible
-
-但是我就做到了
-Pero yo lo logré
-
-兄弟姐妹们什么意思
-Entienden qué significa esto hermanos y hermanas
-
-知道吗
-¿ Lo saben?
-
-世界的黑暗组织, 世界上的各种力量
-La organización oscura y todo tipo de fuerza de este mundo
-
-都在较量中
-Están en una competencia
-
-都在较量
-Están compitiendo
-
-就在这方圆不超过十个Miles
-En este diámetro no sobrepasa de 10 Miles
-
-那么这些人现在也意识到一个最大的问题
-Entonces estas personas ahora se dieron cuenta de un gran problema
-
-所有的人只要有一天
-Algún día todas las personas
-
-共产党强大了
-Será aniquilada
-
-这些人都会被消灭
-Cuando el PCCh logre ponerse poderoso
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24](https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24)
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【3】[https://www.scmp.com/news/china/diplomacy/article/3150003/kissingers-secret-china-trip-recalled-wall-street-veteran?module=perpetual\_scroll&pgtype=article&campaign=3150003](https://www.scmp.com/news/china/diplomacy/article/3150003/kissingers-secret-china-trip-recalled-wall-street-veteran?module=perpetual_scroll&amp;pgtype=article&amp;campaign=3150003)

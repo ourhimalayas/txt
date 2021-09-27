@@ -2,39 +2,36 @@
 ---
 
 
-## 中共对恒大采取措施是继续欺骗，并为恒大破产做准备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556758/)
+## 意大利爆发大规模反疫苗护照示威游行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556807/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/azb4z-io9zi-1.jpg)图片来源：《零对冲》视频
-**《零对冲》引述了一篇《彭博社》关于恒大违约的观点的文章，其中心内容指中共政府已经采取了措施，确保恒大完成住房项目。言下之意，恒大公司宁愿违约支付债权人，也要确保在建的房产项目完成。政府出手了，购房者的利益可以得到保证。**
+作者：香草山写作组 – 文一
 
-**据《零对冲》记者泰勒·杜登（TYLER DURDEN）在2021 年 9 月 24 日报道：恒大的外国债券持有人表示，他们尚未收到密切关注的 8350 万美元利息，该利息支付将于纽约时间周四午夜或香港时间周五中午到期，这实际上触发了硬违约之前的30 天的宽限期。 《彭博社》报道称，中国住房监管机构已“加强对中国恒大集团银行账户的监管，以确保资金用于完成住房项目，而不是转用于支付债权人。”**
 
-**报道称，住房和城乡建设部上个月指示全国各地部门对恒大房地产项目资金专项托管账户进行监管……一些城市已经开始实施这些措施。本月早些时候，买家包围了当地房管局，要求恒大重启建设，（广州）南沙区房管局本月以自己的名义设立了一个托管账户，接收恒大购房者的购房款。**
 
-据国内新闻报道：中共中央就恒大债务出台处理措施，由各地政府自行解决。财经真相报道说，截止9月24日，除了上述报道中的广州南沙区房管局表示将接手恒大阳光半岛项目之外，尚未有任何一个地方政府部门出来表态，他们都采取了拖延和观望的态度。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-资金短缺已经导致一些未完工的房屋停工，引发购房者的社会动荡。北京的首要任务更简单：维护社会秩序。心怀不满的投资者本月至少连续三天聚集在该公司的深圳总部抗议，中国其他地区抗议该开发商的视频也在网上广泛传播。
 
-恒大的债务及后续事件由地方政府处理，意味着中央默许地方政府暴力镇压民众，否则，地方政府就必须想办法。地方筹资接盘恒大的项目，除了还债之外，还需要有更多的后续完成项目的资金。由于项目的估价非常虚高，大大超出地方政府的财税收入，地方政府基本是没有办法接盘的。投资人、施工队、承包商和材料供应商引发的社会动乱和抗议活动，地方政府大概率会动用警察和安保实行严厉的打击镇压。
 
-财经真相的节目中指出了针对房产措施的实质，并对楼宇买家给出建议：恒大全国800个楼盘，能否交楼取决权在业主，许家印的保交楼令根本没有用，纯粹就是忽悠和拖延。这些再建楼盘里已经封顶的，只要业主们积极维权尚有一丝希望能够交楼，没有封顶的铁定烂尾。而且随着时间流逝，恒大楼盘烂尾概率在增加，一旦过了中共二十大，基本再无任何希望。
+近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
 
-郭文贵先生在2021年9月23日的直播中指出了恒大事件处理的实质：这是江派出谋划策来肢解恒大集团，实质上是掩饰和保护背后的影子银行、保险机构、信托等资金池。恒大爆雷将导致全球的金融市场崩溃。
+意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
 
-在9月24日的直播中，郭先生进一步指出：恒大就是庞氏骗局，恒大与平安以及许家印的结局会很悲惨。共产党会想出一堆办法让恒大不倒，但恒大最终一定会倒，而且会非常惨。而且许家印一定是车祸死、心脏病死、自杀、猝死这些结局。
+评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
 
-**参考文章：**
-[https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors](https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors)
+参考链接： [https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21) [https://youtu.be/UxIREubRjh4](https://youtu.be/UxIREubRjh4) [https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world) [https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
 
-**参考视频：2021年9月23/24日，GTV-郭文贵先生直播**
+（本文仅代表作者个人观点）
 
-**（本文章仅代表作者个人观点）**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
 
-作者: 洛杉矶盘古农场 – 蓝精灵
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+编辑/校对/发稿：正义的小新
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
