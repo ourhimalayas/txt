@@ -2,35 +2,29 @@
 ---
 
 
-## 数字人民币取代美元的机率是零 !
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1557245/)
+## 维多利亚州：未接种疫苗者将不会获得同样的自由
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1557368/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/amazon-1.jpg)
-图片:网路
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：Herald Sun
+**整理报道：**翼族
 
-**中共以政治力量期待数字人民币脱颖而出**
+维多利亚州州长丹尼尔·安德鲁斯（Daniel Andrews）表示，未接种疫苗的维州人在圣诞节前不会获得与接种者一样平等的自由。
 
-对冲基金首席信息官埃里克·彼得斯(Eric Peters)提到中共打击加密货币的目的，是为了确保成功地推出数字人民币。“当你我长大时，共产主义的邪恶势力早已复盖全世界的一半。社会过度金融化，导致政治腐败、脆弱、不稳定。市场和经济不再是世界问题的答案，政治才是主角! 这并不代表共产主义是解决方案。它从来不是!”
+维多利亚州周一记录了705例新的本地感染病例，1例死亡。安德鲁斯在新闻发布会上表示，他不会复制新南威尔士州新公布的路线图。新州政府计划于12月1日左右，在16岁以上人口中达到90%的完全疫苗接种率。
 
-**中共抢夺人民数字货币所有权**
+安德鲁斯称，这只会降低人们接种疫苗的动力，他说：“我不会对人们说，等五个星期你就会拥有所有的自由。不！这根本不能保证。我们甚至还没有讨论过‘疫苗接种经济’何时会发生变化……接种疫苗者与未接种疫苗者对医院系统构成的风险的差异是如此的不同和明显。”
 
-中共官方宣称:“与虚拟货币相关的商业活动是非法的金融活动，”但并未宣布数字货币的所有权是非法的。中共更想要的是抢夺人民数字货币所有权，让人民缓慢的被窒息。
+安德鲁斯重申，他的目标并不是实现100%的疫苗接种，但是，他将“尽可能努力地推动（多接种疫苗）。”
 
-然而剥夺虚拟货币的所有权会让失去所有权的公民永远怨恨，大规模的将公民变成罪犯的国家将步入极大的危险。中共国央行的数字人民币为中共提供强大的交易洞察力和金融控制力。中共甚至打算将数字人民币取代美元，通过新的国际支付系统在中共国开展业务。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**缺乏区块链及自由的数字人民币是个笑话**
+**参考链接：**[Victoria Covid update: unvaccinated residents will not be granted same freedom, Daniel Andrews says](https://www.theguardian.com/australia-news/2021/sep/27/victoria-covid-update-unvaccinated-residents-will-not-be-granted-same-freedom-daniel-andrews-says)
 
-庆幸的是，虚拟货币的自由市场早已创造了与中共数字人民币不同的体系，比特币是其中之一，以太坊成为另一个系统，当然还有稳定币。这个自由的系统是在满足市场对现有法定货币（例如美元）数字版本的需求。
+*编辑/发布：翼族*
 
-全球 1280 亿美元的稳定币中有 98% 以上与美元挂钩。令人印象深刻的是，美元稳定币的年交易额超过 100兆美元，这是私人部门大规模运用区块链技术的惊人成果。
-
-数字人民币完全没有这样的需求，最大的私人人民币稳定币的交易额不到5美元!
-
-**金钱会自由地选择自己的出路**
-
-因此，中美面临着截然不同的下场。中共国运用政治法令的绝对控制力在数字人民币，美国的成功取决于监管机构将美元稳定币纳入主流。国家将通过市场自由选择的货币而获得利益。毫无疑问，这个国家会是美国，而不是中共国!
-
-消息来源:[:Hedge Fund CIO On China’s Crypto Crackdown: Beijing Is Desperate To Ensure Successful Rollout Of Their Digital Yuan](http://Hedge%20Fund%20CIO%20On%20China's%20Crypto%20Crackdown:%20Beijing%20Is%20Desperate%20To%20Ensure%20Successful%20Rollout%20Of%20Their%20Digital%20Yuan)
-
-https://www.zerohedge.com/markets/hedge-fund-cio-chinas-crypto-crackdown-beijing-desperate-ensure-successful-rollout-their
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
