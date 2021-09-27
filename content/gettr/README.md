@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 6:55 PM (UTC)`
+
+对新冠疫苗说“不”!<br/>在为时已晚之前，对强制要求接种新冠疫苗说“不”!<br/>传播真相，阻止一切灾难!<br/><br/>这种臭名昭著的疫苗不仅剥夺了我们的权利还杀害了我们的亲人。有多少人被迫违背自己的意愿注射疫苗!有多少人因为这种疫苗而死!有多少人面临着未来可能发生的副作用的问题?例如自身免疫性神经疾病，包括四肢和肌肉的无力和瘫痪，血栓性血小板减少综合征(TTS)，导致血凝块和低血小板水平，持续性头痛，视觉改变，腹痛，胸痛，腿痛，四肢寒冷和急性瘀伤或出血。<br/><br/><br/>如果你想保护你的家人，请让他们远离新冠疫苗，传播真相，向有需要的人伸出援助之手。<br/><br/>对于已经接种疫苗的人，请避免第二和第三次接种;如果你开始出现症状，请寻求帮助，不要犹豫，请医生给你开伊维菌素加强力霉素和青蒿素治疗Covid-19感染
+![img](https://media.gettr.com/group39/getter/2021/09/27/18/55/178be96a-3913-f107-8da7-ef24ac79d2d9/out.jpg)
+
+---
+
 `@miles 9/27/2021 6:52 PM (UTC)`
 
 If you want to protect your family, please keep them away from the Covid vaccine, spread out the truth, and reach out a helping hand to those in need.  <br/><br/>For those already vaccinated, please avoid the 2nd and 3rd doses; If you start having the symptoms, please seek help and don’t hesitate to ask your doctor to give you Ivermectin plus Doxycycline and Artemisinin for the Treatment of Covid-19 Infection.
@@ -291,13 +298,6 @@ WOW
 `@miles 9/24/2021 11:08 PM (UTC)`
 
 9月24号：尊敬的兄弟姐妹们，你们还记得我曾经多次说过孟晚舟的最终的结局吗？https://gwins.org/cn/milesguo/240.html
-
----
-
-`@miles 9/24/2021 2:23 PM (UTC)`
-
-9月24号：尊敬的战友们好．受到了很多战友的要求，希望七哥能直播一下．七哥在30分钟左右，开始乱聊直播。
-![img](https://media.gettr.com/group38/getter/2021/09/24/14/23/ce27097f-243f-e813-20bc-ab4620a07d0a/70eed6a958c7cea59ee6e5c4abceb56c.jpg)
 
 ---
 
