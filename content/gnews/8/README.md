@@ -2,23 +2,50 @@
 ---
 
 
-## 东北限制居民生活用电为哪般
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1556689/)
+## 美国对中国所有制定的政策，处处都打到中共的七寸
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556712/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210926230327932.png)
-9月26“新京报”讯，由于煤价高位运行、电煤紧缺，东北地区出现用电供需紧张局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/100-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=614fb309d2e2b817486e173e](https://gtv.org/video/id=614fb309d2e2b817486e173e)
 
-9月23日以来，东北多地发布限电通知，甚至多地没有通知突然停电，已经影响到居民生活。有些地方一天停几次电，有些地方停电超过12小时，停电区域多集中在地市级城市和农村地区。国网吉林供电公司、国网通化供电公司分别于9月23日晚10时左右发布通知，为保证电网安全稳定运行，按东北电网指令，吉林（省）电网于当天16时37分采取限电措施，全省9个市区均执行了限电。部分用户停电，恢复供电时间待东北电网通知。供电公司给出的通知中提出此次限电的原因：受电煤紧缺、火电机组停机容量大、新能源发电电力偏小和电力负荷增长等因素综合影响，东北电网电力供应持续紧张。
+**郭文贵：**
+**Miles Guo：**
 
-坐拥丰富资源的东北，在临近冬季的时候居然开始限制居民生活用电，甚至连医院、学校、办公室、工厂以及街头的红绿灯也不例外，电煤紧缺固然是一方面。
+为什么呢？
+Why？
 
-**随着中共日益见底的外汇以及经济和社会的崩溃，限电只是一个开头，中共打着资源短缺的旗号，有计划的调节民生需求和测试民众抗压能力，也是为下一步的各种限制和重回计划经济做铺垫**。中共不灭，一切的灾难都是刚刚开始！
+从两样事能看得出来，就美国对中国所有制定的政策
+It is clear from two things, one is that all the policies set by the United States against China
 
-[信息来源](https://mr.baidu.com/r/tLsbvycwww?f=cp&amp;rs=1336753922&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=8f09484fc2aa60e9)
+几乎都是处处能打到中共的7寸
+can hit the Chinese Communist Party in almost every way
 
-（文章仅代表作者个人观点，与GNEWS无关）
+对中国所有出售给中国的粮食价格和科技产品的把握
+Control over the price of all food and technology products sold to China
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+每次制裁都是招招致命，而且美国从来没有损失
+Every sanction is a deadly move, and the U.S. never loses
+
+所有共产党在国际上篮金黄这些国家，所有的达到的目的和所有的钱，花完以后
+all the countries that the communists colluded with internationally, in order to achieve their goals and spent the money
+
+美国人都能顺势到那儿去，把最好的东西捡走
+After the money is spent, the Americans are able to go to that country along the way and take away the best benefit
+
+你到那去打，战争完，战场的果实都被美国收走
+The Communists go to some countries and fight for benefit, the war ends, the United States always collects the fruits of the war
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24](https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24)
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Raul
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

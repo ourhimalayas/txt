@@ -2,38 +2,21 @@
 ---
 
 
-## 2021/09/25 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1556239/)
+## 秘翻在线：狂热的疫苗接种支持者第三次注射后死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556274/)
 
-[![](https://spark.adobe.com/page/btYZvNvIEv9YE/images/c41124a4-ac9b-432a-93ac-5019e84cde19.png?asset_id=08fb7da1-27aa-47d7-b1da-6fede437630e&amp;img_etag=%2259018687432e9c8199a07a5ea69dbb00%22&amp;size=2560)](https://spark.adobe.com/page/btYZvNvIEv9YE/images/c41124a4-ac9b-432a-93ac-5019e84cde19.png?asset_id=08fb7da1-27aa-47d7-b1da-6fede437630e&amp;img_etag=%2259018687432e9c8199a07a5ea69dbb00%22&amp;size=1024)
-2021年9月25日
-[![](https://spark.adobe.com/page/btYZvNvIEv9YE/images/3104563f-3d93-47eb-95f6-4506568e98f9.png?asset_id=b647d55e-9572-4438-bc43-fae6b679e63f&amp;img_etag=%220ae43e4719515a2be7190df6a5fe82be%22&amp;size=2616)](https://spark.adobe.com/page/btYZvNvIEv9YE/images/3104563f-3d93-47eb-95f6-4506568e98f9.png?asset_id=b647d55e-9572-4438-bc43-fae6b679e63f&amp;img_etag=%220ae43e4719515a2be7190df6a5fe82be%22&amp;size=1024)
-[**文贵先生盖特链接**](https://gettr.com/post/pc75jfe75d)
+翻译：Nstar
 
-孟晚舟回国一片欢腾，但网络评论却关了，咱们好好聊聊，孟晚舟事件及她背后的交易的故事。
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-26-222808.jpg)**图片来源: report2**4
+据网络媒体Report24于2021年9月25日报道称, 美国伊利诺伊州的圣母大学著名名誉教授凯伦·克罗克·海斯勒 (Karen Croake Heisler) ，在她接受了 Biontec / Pfizer的第三个疫苗“加强针”后 12 天去世了，享年67岁。
 
-人的认知将会决定你的行为结果发生什么，信息媒体非常重要，他最终导致行为结果和对事物认知的质量。情报的重要决定一个国家的命运，决定一场战争的输赢，也会影响人心的善恶。
+凯伦·克罗克·海斯勒教授是中共冠状病毒疫苗运动最热情、最狂热的支持者和疫苗接种运动的倡导者之一, 她在其他中共病毒疫苗问题上也是“模范”，喜欢在户外戴口罩拍照（甚至带着她的狗带着特殊的 FFP 面具散步）。然而讽刺的是， 9 月 7 日，她注射了第三剂“加强针”后，这个一直健康的女性其健康状况迅速恶化，不到两周后她就去世了。越来越多的人报告称，他们在接种新冠疫苗后患上了癌症，或者现有的癌症突然发生了“爆炸性”扩散。
 
-粮食问题，虽然战友发来的信息很专业，但是在政治、战争面前就会变了味道，战友们觉得国内明年后年会饿死人，我觉得比这还糟糕得多。
+根据她自己推特账户上的信息，这位前教授曾忙于更新她的“疫苗接种进度”。她于 1 月 13 日接种了第一剂 mRNA 疫苗，第二剂在4月初打的，因为4月9日，她说她和她的丈夫有轻微的疫苗接种反应。
 
-真正的黑暗还没有到来，战友们要去越农村越好，越远离人群越好，越远离现代化消费和供应链越好，尽可能深山老林里，但也要有农贸市场。即使没有大城市的供应，也能独立生存。
+海斯勒于 1993 年至 2018 年在伊利诺伊州的圣母大学的电影、电视和戏剧学院 (FTT) 任教，这位狂热的疫苗接种宣传员甚至公开“诅咒”未接种疫苗的人, 她坚定地捍卫疫苗接种直到她的最后一口气 。她曾经说：“ 未接种疫苗的人是‘自私的’，他们应该待在家里直到他们‘清醒’，否则拒绝接种疫苗的人要为自己的疾病负责…”
 
-伊维菌素，青蒿素，地塞米松救了很多国内战友的命，青蒿素绝对是神药。国内战友要想救命，弄到这些药并不难。联盟委员会和各农场及其所能的救助战友，但国内战友你得靠自己，不想因为给你药，带给你风险。
+最终的结果是**，**她自己为她对中共病毒疫苗的狂热和对清醒人们的诅咒付出了代价。
 
-药让我们看出了很多事情，联盟委员会和各农场做的特别棒，很多农场主救助战友速度之快，这么高效率的力量从来没有过。这就是新中国联邦存在的价值。
-
-疫苗和病毒对人类的威胁还早着呢，在生死面前，啥事都不重要，咱一定要防范病毒且不打疫苗，如果发生了咱们还有解药。还有在这个过程中有饭吃，有钱花，有房子住。当这个事情过后，咱们都能健康的活着，才是大赢家。
-
-Ｇ系列是天赐给我们的，要没有Ｇ系列、法制基金、法制社会、G-clubs、Gnews、GTV任何一样东西，咱活得都不一样，你都是从腰包里掏钱，咋能活得更好。新中国联邦是以国家形式的给了我们希望，让大家有希望有动力的凝聚在一起，还能好好活下去。
-
-我们别关心和我们没关系的，多关心我们的Ｇ系列如何更快更稳定的成功，让大家都能看并分享这成功的喜悦和结果，这才是最重要的。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*听写：* *文评* *| 校对：乐禧禧 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-[![](https://spark.adobe.com/page/btYZvNvIEv9YE/images/434c787b-b56c-4c75-b03a-756701760c1e.jpg?asset_id=cd84937d-f070-483b-be2e-b4cec1db01fa&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/btYZvNvIEv9YE/images/434c787b-b56c-4c75-b03a-756701760c1e.jpg?asset_id=cd84937d-f070-483b-be2e-b4cec1db01fa&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+**信息来源: **[**https://report24.news/fanatische-impfanhaengerin-us-professorin-stirbt-nach-dritter-spritze/?feed\_id=5690**](https://report24.news/fanatische-impfanhaengerin-us-professorin-stirbt-nach-dritter-spritze/?feed_id=5690)
