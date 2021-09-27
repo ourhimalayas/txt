@@ -2,37 +2,66 @@
 ---
 
 
-## 亚利桑那州司法部长表态“是时候进行战斗了”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1558648/)
+## 《疫苗死亡报告》：世界各国的疫苗死亡人数
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1558689/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+如果我们把世界上每个国家的数据都列出来，那就太夸张了，但我们描述的美国的详细情况充分说明了这些注射造成的破坏，以及腐败的卫生机构和疫苗制造商如何向公众隐瞒了绝大多数不良事件。但是，我们将简要地谈谈其他一些国家，以证明美国的情况并非独一无二。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/B-5.jpg)wiredailynews.com
-一直对亚利桑那州“国家审计”态度含混，有见风使舵嫌疑的亚利桑那州司法部长（Attorney General）马克·布尔诺维奇（Mark Brnovich），在“国家审计”报告听证会举行前表态，“如果我们现在不站起来保护宪法和法治，我们将永远无法恢复。”
+**欧盟**
 
-《门道专家》（The Gateway Pundit）9月26日发表文章称，亚利桑那州司法部长马克·布诺维奇强调，是时候进行斗争了。
+在欧盟（仅包括50个欧洲国家中的27个），截至2021年8月18日，EudraVigilance数据库的官方报告正式承认，大约有22,000人死亡，200万人出现副作用，其中50%是严重的。
 
-布诺维奇部长说，我们国家最宝贵的文献受到越来越多的威胁，亚利桑那州“现在正是中午”（笔者注：他借用了1952年美国的影片《正午西部》“High Noon Western”来形容当下）。
+“如果它对应的医疗事故导致死亡，威胁到生命，需要住院治疗，导致另一种重大的医疗状况，或延长现有的住院治疗，导致持续或严重的残疾或丧失能力，或属于先天性异常/出生缺陷，则被列为’严重’。”
 
-《门道专家》报告说，布诺维奇在审计报告提交之前发表声明说，他将采取有证据支持的必要行动。
+在欧盟最小的国家之一，荷兰，一个议会外研究委员会为公民建立了一个报告疫苗不良事件的平台。这不是政府的倡议，也没有得到媒体的任何关注。因此，绝大多数的荷兰人都不知道它的存在。然而，尽管其影响范围很窄，这一隐秘的倡议已经收到了1600例死亡和1200例多为永久性残疾的健康损害报告。如果所有接种疫苗的人都知道这个平台并提交报告呢？如果在比荷兰大得多的其他欧盟国家也有这个平台呢？
 
-文章附上了布诺维奇司法部长的推特，“这是一个容易错过的机会，是历史的关键时刻，如果我们现在不站出来保护宪法和法治，我们将永远无法恢复。”
+参考资料：
+1: https://healthimpactnews.com/2021/21766-dead-over-2-million-injured-50-serious-reported-in-european-unionsdatabase-of-adverse-drug-reactions-for-covid-19-shots/
+2: https://www.adrreports.eu/en/index.html
+3: https://meldpuntvaccinatie.nl
 
-《华盛顿观察者》报道，布尔诺维奇说：“我觉得这是一个稍纵即逝的机会，是历史的一个关键时刻，如果我们现在不站起来保护宪法和法治，我们就再也回不来了。”他将自己比作加里·库珀（Gary Cooper）在经典影片《正午西部》（High Noon Western）中扮演的警长。
+**英国**
 
-他特别担心华盛顿民主党人将在大选前成功推动拜登的自由主义进程，而共和党人正全力争取国会的多数席位。
+在全国疫苗接种运动开始前不久，药品和保健品管理局（MHRA）发布了以下要求：
 
-他说：“我们这个国家正面临着两大疾病：一个是在中共国实验室制造的（病毒），另一个则是来自华盛顿特区。如果我们现在没有这场斗争，我不想在25年或50年后回首往事，人们会问，‘当美国成为社会主义或马克思主义国家时，你做了什么？’我想能够说，‘我阻止了它。’”
+MHRA 紧急寻求一种人工智能（AI）软件工具，以处理预期的大量中共病毒疫苗不良药物反应（ADRs），并确保不遗漏 ADRs 反应文本中的任何细节。
 
-该是停止这个不正当政权的时候了。
+英国政府公布了第一批不良事件的报告，包括失明、中风、流产、心力衰竭、瘫痪、自身免疫疾病等等。在第一波免疫接种后不久，就有超过10万起不良事件的报告，包括1260起视力丧失（包括完全失明）。报告的第一部分赞扬了疫苗是保护人们免受中共病毒影响的最佳方式，然后继续展示这些疫苗造成的令人难以置信的破坏。这种虚伪让人匪夷所思。
 
-（全文完）
+此外，在英国，接种疫苗的母亲在短短六周内流产的数量增加了366%。英国国家统计局无意中透露，在2021年前6个月，有30,305人在注射疫苗后的21天内死亡。而一位拥有35年经验的英国科学家对英国的黄卡报告系统进行了深入分析，发现它并不可靠。
 
-看到这里，必须为布诺维奇部长点赞！“我们这个国家正面临着两大疾病：一个是在中共国实验室制造的（病毒），另一个则是来自华盛顿特区。”相信这段时间以来受文贵先生、新中国联邦引领的爆料革命的影响，布诺维奇部长对邪共有了充分的认知，对中共病毒的阴谋有所了解。也意识到了民主党人正在走马克思主义的道路，所以他要采取行动进行阻止。
+“我们可以得出结论，黄卡报告计划可以提供一些有限的信息，可能有助于提醒英国公众注意中共病毒疫苗可能带来的不良影响。然而，最初该计划的设想理念是一个纯粹的描述性的而不是实验性的工作，意味着它不能应对英国公众至关重要的真正问题。”
 
-大觉醒时代的进程已经开启，唤醒人们的时刻已经到来。邪恶势力会疯狂地掩盖和阻止，越是这样，越能帮助大众认清邪恶，中共你死期已到！
+这些问题是，接种辉瑞和阿斯利康疫苗与死亡等严重不良反应之间是否存在因果关系，如果存在，这些影响有多大？
 
-原文链接：
+参考资料：
+1:https://ted.europa.eu/udl?uri=TED:NOTICE:506291-2020:TEXT:EN:HTML&src=0
+2: https://www.gov.uk/government/publications/coronavirus-covid-19-vaccine-adverse-reactions/coronavirusvaccine-summary-of-yellow-card-reporting
+3: https://dailyexpose.co.uk/2021/02/08/official-data-on-adverse-reactions-to-vaccines
+4: https://www.gov.uk/government/publications/coronavirus-covid-19-vaccine-adverse-reactions/coronavirusvaccine-summary-of-yellow-card-reporting#annex-1-vaccine-analysis-print
+5: https://theexpose.uk/2021/09/15/30k-people-died-within-21-days-of-having-a-covid-19-vaccine-in-england/
+6: https://dailysceptic.org/is-the-mhras-yellow-card-reporting-system-safeguarding-the-uk-public
 
-[https://www.thegatewaypundit.com/2021/09/high-noon-arizona-attorney-general-mark-brnovich-dont-stand-now-protect-constitution-rule-law-never-get-back/](https://www.thegatewaypundit.com/2021/09/high-noon-arizona-attorney-general-mark-brnovich-dont-stand-now-protect-constitution-rule-law-never-get-back/)
+**以色列**
+
+以色列人民委员会（The Israeli Peoples Committee/IPC）是一个由医生、律师、犯罪学家、流行病学家和学术研究人员组成的团队，决心为公众的利益进行调查、询问和曝光。虽然他们是一个相对不知名的团体，但截至2021年8月5日，他们仍然收到3754份报告，包括480多例死亡。IPC指出，这些数字只代表人口中真实流行率的1-3%，这意味着，根据这一数据，以色列的死亡人数约为48000人，不良反应约为375400人。同样在以色列，来自 Worldometers.info 的统计数据显示，当疫苗接种开始时，死亡人数大幅飙升。在免疫接种运动开始之前，以色列几乎没有任何中共病毒日度死亡数据。疫苗接种项目启动后，每天的死亡人数从1-3人上升到75-100人！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-126.jpg)
+另一个报告疫苗伤害的以色列网站是 Seethetruth.club/covid-19-vaccine-victims，在那里可以看到无数因注射疫苗而遭受巨大痛苦的人的证词。在美国，一个名为 1000covidstories.com 的类似网站显示了越来越多因注射中共病毒疫苗而死亡或产生严重反应的人的视频。还有一个名为 TheCovidWorld.com 的网站显示了大量死于注射的人的个人故事。我们必须明白，历史上从来没有发生过这样的事情，成千上万的人站出来分享他们在接种后的痛苦。人们现在这样做的原因是，他们的不良反应根本不是像犯罪的 “健康 “机构所说的 “头痛、头晕和类似流感的症状”。这些反应极其严重，往往使人终生残疾。事实上，这些伤害是如此严重，以至于全世界的人们都在站出来警告人类。
+
+**巴西**
+
+在巴西，官方的疫苗死亡人数在5个月内为3.2万人。该报告发表在uol.com.br上，据报道，根据SimilarWeb的数据，该网站的页面浏览量与CNN.com差不多。尽管接种疫苗后的死亡人数如此之高，但该报告指出。“接种疫苗仍然是控制疾病的最佳方式。”
+
+参考资料：Source: https://humansarefree.com/2021/08/32k-people-dead-in-brazil-following-covid-19-vaccines.html
+
+**世界性的种族灭绝**
+
+**当我们再次提醒自己，一般来说，只有不到 1% 的疫苗不良事件被报告，而其中大部分（在美国是500%）被官员隐藏起来，我们清楚地看到，世界性的种族灭绝是一个现实。这一可证实的侵犯被所谓的“事实核查者”、社交媒体巨头、新闻媒体、政府官员和卫生机构所否认和压制，这表明这一前所未有的世界性犯罪行动的严重性。**
+
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
+
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injections](https://www.stopworldcontrol.com/report/)

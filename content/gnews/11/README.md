@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558847/)
+## 2021年9月27日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1559015/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-Say “NO” to covid vaccine! Say “No” to mandate covid vaccine before it is too late! Spread out the truth to stop all the disasters! This notorious vaccine not only taking away our rights but also murdering our loved ones. How many people were forced to take the vaccine against their will?! How many people were killed because of this vaccine?! How many people are facing the problem of side effects that may occur in the future? Such as autoimmune neurologic disorder that includes weakness and paralysis in the limbs and muscles, and thrombosis with thrombocytopenia syndrome (TTS), which causes blood clots and low platelet levels, persistent headaches, visual changes, abdominal pain, chest pain, leg pain, coldness in limbs and acute bruising or bleeding.
+对新冠疫苗说“不”! 在为时已晚之前，对强制要求接种新冠疫苗说“不”! 传播真相，阻止一切灾难! 这种臭名昭著的疫苗不仅剥夺了我们的权利还杀害了我们的亲人。有多少人被迫违背自己的意愿注射疫苗!有多少人因为这种疫苗而死!有多少人面临着未来可能发生的副作用的问题?例如自身免疫性神经疾病，包括四肢和肌肉的无力和瘫痪，血栓性血小板减少综合征(TTS)，导致血凝块和低血小板水平，持续性头痛，视觉改变，腹痛，胸痛，腿痛，四肢寒冷和急性瘀伤或出血。 如果你想保护你的家人，请让他们远离新冠疫苗，传播真相，向有需要的人伸出援助之手。 对于已经接种疫苗的人，请避免第二和第三次接种;如果你开始出现症状，请寻求帮助，不要犹豫，请医生给你开伊维菌素加强力霉素和青蒿素治疗Covid-19感染
 
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcdp8wc1a8)
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pce5215064)
 
 **喜联盟Gnews编辑部**

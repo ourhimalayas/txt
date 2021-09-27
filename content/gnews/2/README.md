@@ -2,50 +2,101 @@
 ---
 
 
-## 孟晚舟包机回国引发脑残粉“爱国”狂欢
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1559092/)
+## 煤价太贵，污染严重是中共国停电的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559119/)
 
-**【修罗短评】**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8ac7040f04d291ed28201b71d1235b0fu5-1.jpg)
-作者：修罗闻道
+![](https://assets.gnews.org/wp-content/uploads/2021/09/123-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=6151d1ead2e2b817486ebb99](https://gtv.org/video/id=6151d1ead2e2b817486ebb99)
 
-三年多的司法、外交和舆论大战，期间中共连绑架人质的下三滥招数都用上了。9月24日，孟晚舟案算是告一段落。文贵先生提前爆出的很多信息，再一次得到验证。
+**郭文贵
+Miles**
 
-尽管如此，中共国依然要将这次事件好好包装运作一番，搞一次现实版的爱国主义教育。
+刚才很多战友说这个安徽啊，广东啊，江苏大范围停电
+Just now, many comrades in arms said that Anhui, Guangdong, and Jiangsu had a large-scale power outage.
 
-毫无疑问的，这种信息必须要新华社首发，“经过中国政府的不懈努力，当地时间9月24日，孟晚舟女士已经乘坐中国政府的包机离开加拿大，即将回到祖国，并与家人团聚。”
+为啥，跟打台湾没有任何关系，
+Why？ It has nothing to do with attacking Taiwan
 
-他们强调的是“中国政府的努力”，而不是事实如何，更不是依照法律。乘坐的是中共国政府的包机，人民又获得了一次光荣的买单机会。航线避开了所有的美国领空，可见中共国仍然是心里不踏实。
+它停电是因为煤价越来越高
+It’s power outages because coal prices are getting higher and higher
 
-这和逃跑有什么区别？
+煤价越来越高，发出来的电赔钱
+The price of coal is getting higher and higher, and the generated electricity lose money
 
-焦点回到国内，那里简直成了一片沸土。网上网下，锣鼓喧天、鞭炮齐鸣。新华社的深水炸弹一投放，无论是吃狗粮的宣传机器还是自干五的野媒体，纷纷进入癫狂状态。满屏都是欢迎回家、祖国伟大之类的神经错乱主题。被激动到难以控制的脑残粉，恨不得通过在线裸奔的方式，秀出自己智商的上限。
+现在国内呢，是收你1块的电费，赔大概7分钱，赔7分钱
+Now in China, it charges you 1 yuan for the electricity bill, and loses about 7 cents
 
-接机大厅人满为患，喧嚣与吵闹仿佛都忘记了这个世界还有病毒的存在；仿佛江浙、东北不再限电了；仿佛中原的大水消失了。
+它不愿意发电，再一个呢，现在更夸张的事情
+It doesn’t want to generate electricity now, and one more thing now is even more exaggerated
 
-“孟晚舟回来了，你就不用坐台了吗？”
+这个污染啊，这个污染的越来越厉害
+This pollution, this pollution is getting worse and worse
 
-这是一个多么深刻的问题。孟晚舟回来了，你不仅需要继续做台，而且很有可能被亢奋的粉红嫖客揍一顿。
+因为大家都是乱整嘛，所以说现在是很大的问题
+Because everyone is messy, so it’s a big problem now
 
-希望有脑子的人多想想，全网都是欢迎回家，这里是她的家吗？这里不是。她的家在加拿大，那里有她的大别墅、她的老公、她的孩子，还有花不完的金钱，穿用不完的奢侈品和享受不完的奢靡生活。时至今日，为什么只有她自己回来了？陪伴了她三年的家人呢？
+缺电，缺到啥程度呢，你都很难想象
+It’s hard to imagine the lack of electricity to what extent
 
-在法庭签完字，没有任何逗留，直接坐飞机回国。他们在害怕什么？
+只有中共国能做得到，过去需要1度电
+Only the Communist Party of China can do it. In the past, 1 kWh of electricity was needed
 
-真正应该被欢迎回家的，是那两位倒霉又幸运的加拿大人。两位在异国被判了死刑的人，回到了属于自己的国家，被总理在机场拥抱欢迎。我想，那一刻，这两位加国人才真正体会到什么是重获新生吧；相比之下，不知道孟晚舟女士在面对深圳机场的欢迎场面时又是何种感受，毕竟在她被加拿大警方禁足的将近三年的时间里，中共国内被撂倒的私企大佬不计其数，仍在努力坚挺的“白手套”们无一不是如履薄冰、剑悬在顶。
+现在呢，能满足你0.4度电
+but now, only provide your 0.4 kilowatt of electricity
 
-（文章仅代表作者个人观点）
+没有一个真正的工业文明国家说突然缺电能缺10%以上
+There is no real industrial civilization country that sudden power shortage is more than 10%
 
-***编辑：【英国伦敦喜庄园编辑部】***
+铲侠你当律师，你懂这道理
+ChanXia, you are a lawyer, you know the reason
 
-*校对/审核：仙女儿-文善*
+没有一个国家说你家里吃饭吃了一年了
+There is no country like China, where people have been eating at home for a year
 
+突然缺粮，缺50%
+and then suddenly there is a shortage of food, a 50% shortage
 
+现在这个当家的有问题了，是吧
+Now this person in charge has a problem, right?
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+那怎么可能啊，说明这个中共国它就一切都是假的
+How is that possible? It means that everything is fake in this Chinese Communist country
 
+当进口的所有的东西满足不了的时候
+When all the imported things are not enough
 
-编辑：【英国伦敦喜庄园编辑部】
+全都傻了啊，物价上去，工资上不去
+The people are all stunned, prices go up, wages can’t go up
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+物价这个价格很高，然后呢，原材料供应又接不了
+Prices are high, but raw materials are not available
+
+还跟澳大利亚又打又闹的
+They’re still fighting the raw materials with Australia
+
+那你不是欠揍嘛，是不是
+So you’re brainless, are you?
+
+所以它必须缺电，它没有一个真正的国家领导的能力和组织
+So it must be short of electricity, it does not have the ability and organization of a true national leadership
+
+原因，就是煤太贵，发电成本太贵，而且污染很高
+The reason is that coal is too expensive, the cost of power generation is too expen-sive, and the pollution is so severe
+
+最后结局，停电
+It will only end in a power outage
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
