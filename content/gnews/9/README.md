@@ -2,11 +2,15 @@
 ---
 
 
-## 中共国疫苗注射超22亿！
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1557556/)
+## 2021年9月24日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557683/)
 
-韩国首尔天池农场——追着曙光跑
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-据中共新华社今天9月27日的报道，截至2021年9月26日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗超22亿剂次。
+9月24号：尊敬的兄弟姐妹们，你们还记得我曾经多次说过孟晚舟的最终的结局吗？
 
-[新闻来源](https://mp.weixin.qq.com/s/PTXc4ah_ktzqg-I2RS-5Kg)
+[https://gwins.org/cn/milesguo/240.html](https://gwins.org/cn/milesguo/240.html)
+
+[【2021年9月24日】文贵先生盖特原文](https://gettr.com/post/pc5pml6922)
+
+**喜联盟Gnews编辑部**

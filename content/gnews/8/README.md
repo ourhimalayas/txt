@@ -2,9 +2,15 @@
 ---
 
 
-## 彭博社：中共国2020年和2021年的小麦和玉米进口量剧增
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1557584/)
+## 2021年9月24日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557685/)
 
-9/25/2021 彭博社：中共国2020年和2021年小麦和玉米进口量剧增。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+9月24号：兄弟姐妹们，还记得七哥的这个报平安视频吗？
+
+
+
+[【2021年9月24日】文贵先生盖特原文](https://gettr.com/post/pc62cmd6db)
+
+**喜联盟Gnews编辑部**

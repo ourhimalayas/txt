@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 9:45 AM (UTC)`
+
+9/26/2021 Miles Guo: Xi Yuanping is the biggest boss of Xu Jiayin, and the Xi family wants to keep Evergrande alive until after the 20th National Congress; Evergrande owes about US$100 billion to foreign creditors, while only reported to the CCP US$20 billion worth of debt; If Evergrande defaulted on the interests or the principal payment, the US stock market would be down by 600 points, with its impact being 10 times that of Lehman Brothers<br/><br/>9/26/2021 文贵直播：习远平是许家印最大的老板，习家想要恒大活过20大；恒大欠了1000亿美元外债，却给中共报告说只欠200亿；恒大若无法兑付这1000亿外债，美股将被打下600点，其影响将超过10个雷曼兄弟爆雷！<br/>
+![img](https://media.gettr.com/group46/getter/2021/09/27/09/45/d414c8ba-5589-cf5e-0322-a1d907db6894/out.jpg)
+
+---
+
 `@miles 9/27/2021 8:25 AM (UTC)`
 
 2021年9月27日 法治基金,法治社会每周捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>27 September 2021, Rule of Law Foundation and Society donors messages collection.Rule of Law Foundation and Society appreciate all of our supporters and donors!
@@ -50,13 +57,6 @@
 
 <br/>10月26日：共产党的这一切都是假的，爱国都得造假，他们为什么要造假呢？就是诱骗更多傻爱国的人！
 ![img](https://media.gettr.com/group19/getter/2021/09/27/02/1d802191-d54d-abb1-dd98-a1878cebe000/c55d6e522fe43a199f11764eef28fc7f.jpg)
-
----
-
-`@miles 9/27/2021 2:29 AM (UTC)`
-
-9/26/2021 Miles Guo: Xi Yuanping is the biggest boss of Xu Jiayin, and the Xi family wants to keep Evergrande alive until after the 20th National Congress; Evergrande owes about US$100 billion to foreign creditors, while only reported to the CCP US$20 billion worth of debt; If Evergrande defaulted on the interests or the principal payment, the US stock market would be down by 600 points, with its impact being 10 times that of Lehman Brothers<br/><br/>9/26/2021 文贵直播：习远平是许家印最大的老板，习家想要恒大活过20大；恒大欠了1000万美元外债，却给中共报告说只欠200亿；恒大若无法兑付这1000亿外债，美股将被打下600点，其影响将超过10个雷曼兄弟爆雷！<br/>
-![img](https://media.gettr.com/group12/getter/2021/09/27/02/29/9e9eba44-7fac-ad35-253c-cfac73ccabc9/out.jpg)
 
 ---
 

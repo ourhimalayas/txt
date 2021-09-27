@@ -2,9 +2,9 @@
 ---
 
 
-## 政府不想让人知道中共病毒疫苗的真相（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1557491/)
+## 彭博社：中共国2020年和2021年的小麦和玉米进口量剧增
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1557584/)
 
-9/20/2021 政府不想让人知道中共病毒疫苗的真相。
+9/25/2021 彭博社：中共国2020年和2021年小麦和玉米进口量剧增。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
