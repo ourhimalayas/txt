@@ -15,139 +15,139 @@
 
 ---
 
-### [【路大脑袋逃窜记】 路大脑袋匆忙跑路🚮杂乱满屋！](/content/gnews/1/README.md)
- ` 新西兰新联邦新闻摘要`
+### [9/27/2021 七哥盖特: 请认真地思考未来两三年的生活方式和整个世界政治、社会的大变革](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [澳漫画家把反中共病毒疫苗运动与天安门大屠杀相提并论](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [9/27/2021 七哥盖特:大家要对疫苗灾难带来的脑梗、心梗做好必要的防护](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [黑色星期一！中共股市超3800家个股下跌，近两百股跌停](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【路大脑袋逃窜记】路大脑袋疯狂潜逃😱掏空保险柜！](/content/gnews/4/README.md)
- ` 新西兰新联邦新闻摘要`
-
-### [华尔街投资者对中国市场意见分歧](/content/gnews/5/README.md)
- ` 纽约香草山MOS01`
-
-### [重磅！即将上市的喜币才是你财富的避风港](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登政府考虑对中国的工业补贴进行调查](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [【路大脑袋逃窜记】路大脑袋出逃慌不择路，儿童房来不及打理！](/content/gnews/8/README.md)
- ` 新西兰新联邦新闻摘要`
-
-### [煤价太贵，污染严重是中共国停电的原因](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/09/26文贵先生直播精要](/content/gnews/10/README.md)
+### [因人口忧虑 中共国或要限制堕胎](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [今日香港明日西方，中共早已渗透西方](/content/gnews/11/README.md)
+### [【路大脑袋逃窜记】 路大脑袋匆忙跑路🚮杂乱满屋！](/content/gnews/4/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [澳漫画家把反中共病毒疫苗运动与天安门大屠杀相提并论](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [黑色星期一！中共股市超3800家个股下跌，近两百股跌停](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【路大脑袋逃窜记】路大脑袋疯狂潜逃😱掏空保险柜！](/content/gnews/7/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [【 G时新闻 】世卫组织组建新团队调查中共病毒起源](/content/gnews/8/README.md)
+ ` 北美小哥`
+
+### [华尔街投资者对中国市场意见分歧](/content/gnews/9/README.md)
+ ` 纽约香草山MOS01`
+
+### [文雍漫谈：破茧而出](/content/gnews/10/README.md)
+ ` 文雍`
+
+### [重磅！即将上市的喜币才是你财富的避风港](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登政府考虑对中国的工业补贴进行调查](/content/gnews/12/README.md)
+ ` 纽约香草山MOS01`
+
+### [【路大脑袋逃窜记】路大脑袋出逃慌不择路，儿童房来不及打理！](/content/gnews/13/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [煤价太贵，污染严重是中共国停电的原因](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [9月25日意大利声势浩大的反绿色通行证抗议，但是媒体报道“人数很少”](/content/gnews/12/README.md)
+### [2021/09/26文贵先生直播精要](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [今日香港明日西方，中共早已渗透西方](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [9月25日意大利声势浩大的反绿色通行证抗议，但是媒体报道“人数很少”](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [孟晚舟包机回国引发脑残粉“爱国”狂欢](/content/gnews/13/README.md)
+### [孟晚舟包机回国引发脑残粉“爱国”狂欢](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CCP正在和某大国建造三个生物实验室](/content/gnews/14/README.md)
+### [CCP正在和某大国建造三个生物实验室](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [世卫将启用新的专家团队对新冠病毒是否来自武汉实验室进行调查](/content/gnews/15/README.md)
+### [世卫将启用新的专家团队对新冠病毒是否来自武汉实验室进行调查](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国最新的PHE报告显示，接种疫苗的人占Covid-19死亡人数的70%](/content/gnews/16/README.md)
+### [英国最新的PHE报告显示，接种疫苗的人占Covid-19死亡人数的70%](/content/gnews/21/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [势同水火&#8211;接种疫苗让加拿大人之间的对立越来越深！](/content/gnews/17/README.md)
+### [势同水火&#8211;接种疫苗让加拿大人之间的对立越来越深！](/content/gnews/22/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [2021年9月27日 文贵先生盖特 11](/content/gnews/18/README.md)
+### [2021年9月27日 文贵先生盖特 11](/content/gnews/23/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [森林深处的33万元捐款感动了无数战友](/content/gnews/19/README.md)
+### [森林深处的33万元捐款感动了无数战友](/content/gnews/24/README.md)
  ` 文名`
 
-### [2021年9月27日 文贵先生盖特 10](/content/gnews/20/README.md)
+### [2021年9月27日 文贵先生盖特 10](/content/gnews/25/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月26日郭文贵先生直播全文字版](/content/gnews/21/README.md)
+### [2021年9月26日郭文贵先生直播全文字版](/content/gnews/26/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021年9月27日 文贵先生盖特 9](/content/gnews/22/README.md)
+### [2021年9月27日 文贵先生盖特 9](/content/gnews/27/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [DC每日热点0927](/content/gnews/23/README.md)
+### [DC每日热点0927](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [以色列数千人抗议疫苗护照新规定——接种加强型疫苗](/content/gnews/24/README.md)
+### [以色列数千人抗议疫苗护照新规定——接种加强型疫苗](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年9月27日 文贵先生盖特 8](/content/gnews/25/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月27日 文贵先生盖特 7](/content/gnews/26/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [《疫苗死亡报告》：疫苗制造商不承担任何责任](/content/gnews/27/README.md)
+### [《疫苗死亡报告》：疫苗制造商不承担任何责任](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月27日 文贵先生盖特 6](/content/gnews/28/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [让我们在最黑暗的时刻里都活在人间天堂里](/content/gnews/29/README.md)
- ` 纽约香草山MOS03`
-
-### [《疫苗死亡报告》：世界各国的疫苗死亡人数](/content/gnews/30/README.md)
+### [《疫苗死亡报告》：世界各国的疫苗死亡人数](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联邦法官批准暂停纽约学校COVID疫苗强制令](/content/gnews/31/README.md)
+### [联邦法官批准暂停纽约学校COVID疫苗强制令](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [9/27/21 香港快讯 10名民主派区议员宣誓未确认　胡穗珊、朱江玮被质疑曾贴「光时」口号](/content/gnews/32/README.md)
+### [9/27/21 香港快讯 10名民主派区议员宣誓未确认　胡穗珊、朱江玮被质疑曾贴「光时」口号](/content/gnews/33/README.md)
  ` 英喜-粵語組`
 
-### [亚利桑那州司法部长表态“是时候进行战斗了”](/content/gnews/33/README.md)
+### [亚利桑那州司法部长表态“是时候进行战斗了”](/content/gnews/34/README.md)
  ` HimalayaRussia`
 
-### [秘翻在线:全球科技和汽车供应链因中共国电力吃紧而遭受重击](/content/gnews/34/README.md)
+### [秘翻在线:全球科技和汽车供应链因中共国电力吃紧而遭受重击](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纽约人周六示威抗议疫苗护照](/content/gnews/35/README.md)
+### [纽约人周六示威抗议疫苗护照](/content/gnews/36/README.md)
  ` HimalayaRussia`
 
-### [全球金融危机即将到来 华为厄运刚刚开始](/content/gnews/36/README.md)
+### [全球金融危机即将到来 华为厄运刚刚开始](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [郭文贵先生深度解密“孟晚舟为什么能回家”](/content/gnews/37/README.md)
+### [郭文贵先生深度解密“孟晚舟为什么能回家”](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [沼泽地抛售资产 世界金融危机将至](/content/gnews/38/README.md)
+### [沼泽地抛售资产 世界金融危机将至](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [《疫苗死亡报告》：漏报疫苗不良反应的原因](/content/gnews/39/README.md)
+### [《疫苗死亡报告》：漏报疫苗不良反应的原因](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国海军参谋长称，中共海军崛起令人担忧](/content/gnews/40/README.md)
+### [法国海军参谋长称，中共海军崛起令人担忧](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [CCP百年百罪 合集（1-25 罪）](/content/gnews/41/README.md)
+### [CCP百年百罪 合集（1-25 罪）](/content/gnews/42/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [纪念天安门事件公民团体被迫解散，香港失去民主活动支柱](/content/gnews/42/README.md)
+### [纪念天安门事件公民团体被迫解散，香港失去民主活动支柱](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`
 
-### [西媒头条 — 第74期](/content/gnews/43/README.md)
+### [西媒头条 — 第74期](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共在全球范围镇压和扼杀侨民的意志](/content/gnews/44/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国习近平在致台湾反对党的信中警告台湾局势“严峻”](/content/gnews/45/README.md)
+### [中共在全球范围镇压和扼杀侨民的意志](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角](/content/gnews/46/README.md)
