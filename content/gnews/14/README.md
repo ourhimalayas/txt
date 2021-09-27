@@ -2,45 +2,45 @@
 ---
 
 
-## 法官驳回警察工会推迟麻省疫苗强制令的请求
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1557979/)
+## 口罩凶杀案后，德国当局着手打击电报平台上反对疫苗和封锁的声音
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558088/)
 
-- **编译：Lulumi**
+栏目记者/责任编辑：AsG諾雅
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip143.png)
-2021年1月15日，马萨诸塞州福克斯堡，一名警察接受COVID-19疫苗接种。(Scott Eisen/Getty Images)
 
-据《大纪元时报》报道，马萨诸塞州的一名法官拒绝了州警察工会提出的推迟对所有州雇员进行强制性疫苗接种的请求。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-马萨诸塞州警察协会是一个代表约1800名州警察的工会，上周提起诉讼，要求法官暂缓执行该强制令，以便让工会有时间在10月17日的最后期限前 “就其就业条款和条件进行谈判”。
 
-据美联社报道，杰基·考文法官在裁决中说：”毫无疑问，阻止病毒的传播最符合公共利益，以便保护人们不生病，确保医疗服务的充足供应，并遏制新的、更致命的病毒变种的出现。”
 
-马萨诸塞州州长查理·贝克是共和党人，他在上个月发布了一项行政命令，要求所有行政部门雇员在10月17日前提供COVID-19疫苗接种证明。
 
-“行政部门的员工如果在2021年10月17日之前没有接种疫苗或没有被批准豁免，将受到纪律处分，直至并包括解雇……管理部门的员工如果在2021年10月17日之前没有遵守规定，也将受到纪律处分，直至并包括解雇。” 贝克办公室在一份声明中说。
 
-州长办公室还表示：”政府将继续与工会伙伴就这一政策进行合作，由工会代表的工作人员不遵守规定的具体后果将在10月17日之前与每个雇员工会讨论。”
+国家脉动9月25日报道，德国政府开始向社交媒体平台施压，要求对发布被称为 “新冠误导信息”的团体进行审查，起因据称是9月18日一名加油站收银员因戴口罩问题，与顾客发生争执而被杀害。 图林根州的内政部长乔治-梅尔特别要求，紧急监管并将电报（Telegram）归类为社交网络，而不是信息传递平台，以便将新规则强加给该平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-11.jpg)
+目前，德国的网络执行法要求，社交媒体平台应删除任何政府认为的“犯罪”内容，甚至向联邦刑事政策局报告。尽管有大量事实证明主流政客、卫生官员、主流媒体在口罩、疫苗、疫情等主题上传播了错误信息，却没有任何社交平台删除他们的账号。 爆料革命一直旗帜鲜明地向世界传播中共病毒和疫苗都是中共超限生物战的武器，政府不能利用民众的信任，实施专制政策和迫使人们接种疫苗。只有GTV、GNews和盖特是我们发声和宣传真相的唯一可信任的平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-94.jpg)
+参考链接：
+[After a Murder Over Mask-Wearing, Authorities Are Cracking Down on COVID Skeptics on Telegram.](https://thenationalpulse.com/news/after-a-murder-over-mask-wearing-authorities-are-cracking-down-on-covid-skeptics-on-telegram/)
 
-作为替代方案，工会曾要求允许不接种疫苗的警察戴上口罩，并接受每周一次的COVID-19测试。
+（本文仅代表作者观点）
 
-“我们对法官的裁决感到失望；但是，我们尊重她的决定，”工会主席迈克尔·切尔文在一份声明中说。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-“不幸的是，州长和他的团队选择了在没有合理替代方案的情况下，强制执行该国最严格的疫苗强制令之一。”
+终审： Ryan
+校对/发稿：为真不破20
 
-“在整个疫情期间，我们一直站在保护马萨诸塞州及其他地区公民的第一线。简单地说，我们所要求的是与其他无数部门为他们的第一反应者提供的相同的基本便利，并将与中共病毒有关的疾病视为因公受伤。
+**更多资讯，更多关注**
 
-“到目前为止，已经有数十名警察提交了他们的辞职文件，其中一些人计划回到其他部门，提供合理的替代方案，如戴面具和定期测试，”他补充说：”国家警察已经严重缺乏人手，通过史无前例的人员调动可以确认这一点，这些调动包括从调查凶杀案、恐怖主义、计算机犯罪、纵火、帮派、毒品和人口贩运的专业单位中抽调警员，将他们派到穿制服的巡逻队。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-（文章仅代表作者观点 与GNEWS无关）
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**新闻来源：[大纪元时报](https://www.theepochtimes.com/judge-denies-police-unions-effort-to-delay-vaccine-mandate-in-massachusetts_4016204.html?utm_source=partner&amp;utm_campaign=ZeroHedge) (The Epoch Times) | 作者：Mimi Nguyen Ly**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

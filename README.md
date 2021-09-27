@@ -15,116 +15,116 @@
 
 ---
 
-### [9/27/2021国际财经快讯：美民主党同意3.5万亿美元法案；美国为加密货币规则奠定基础](/content/gnews/1/README.md)
- ` 秘密翻译组金融团队`
+### [澳总理：澳大利亚对话中共的大门始终是敞开的](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美国科学家正在研究含有mRNA新冠疫苗成分的可食用植物](/content/gnews/2/README.md)
+### [强迫中共病毒疫苗接种是一场大规模的第 3 阶段人体试验](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国共和党参议员痛批释放孟晚舟](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [美国务院拟成立“中国小组”监控中共海外活动](/content/gnews/3/README.md)
+### [英国军舰罕见高调穿越台湾海峡](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [口罩凶杀案后，德国当局着手打击电报平台上反对疫苗和封锁的声音](/content/gnews/4/README.md)
+### [朕被算计了](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [台湾卖台贼与共产党公开勾兑](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [中共国恒大旗下电动汽车公司在发出警告后股价暴跌26%](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [企业限电, 辽宁发生煤气泄漏多人中毒](/content/gnews/6/README.md)
+### [德国大选变天, 社民党胜出墨克尔的基民党](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [2021年9月26日 文贵先生盖特 3](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [9/26/2021 七哥直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [两位顶级病理学揭示了从未出现过的十起疫苗死亡](/content/gnews/9/README.md)
- ` wenwu`
-
-### [麻州民众反对强制疫苗 但对疫苗危害认知有限](/content/gnews/10/README.md)
+### [福奇称除非大规模接种新冠疫苗，否则美国将面临一个“黑暗的冬天”](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [9/26/2021 七哥直播：生物芯片将取代现有的半导体芯片，华为也在研究中](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
+### [墨尔本反强制接种疫苗活动的组织者被捕](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [2021年9月26日 文贵先生盖特 2](/content/gnews/12/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [有声|意大利爆发大规模反疫苗护照示威游行](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [法官驳回警察工会推迟麻省疫苗强制令的请求](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [促生育！中共再废止部分计划生育行政法规](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年9月26日 文贵先生盖特 1](/content/gnews/16/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [香港支联会周六投票解散](/content/gnews/17/README.md)
+### [郭文贵先生直播分享重要信息](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [9/26/2021 七哥直播：习远平是许家印最大的老板，习家想要恒大活过20大](/content/gnews/18/README.md)
+### [9/27/2021国际财经快讯：美民主党同意3.5万亿美元法案；美国为加密货币规则奠定基础](/content/gnews/11/README.md)
+ ` 秘密翻译组金融团队`
+
+### [美国科学家正在研究含有mRNA新冠疫苗成分的可食用植物](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [美国务院拟成立“中国小组”监控中共海外活动](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [口罩凶杀案后，德国当局着手打击电报平台上反对疫苗和封锁的声音](/content/gnews/14/README.md)
+ ` GTV新闻访谈`
+
+### [中共国恒大旗下电动汽车公司在发出警告后股价暴跌26%](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [企业限电, 辽宁发生煤气泄漏多人中毒](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [2021年9月26日 文贵先生盖特 3](/content/gnews/17/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [9/26/2021 七哥直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年9月25日 文贵先生盖特 11](/content/gnews/19/README.md)
+### [两位顶级病理学揭示了从未出现过的十起疫苗死亡](/content/gnews/19/README.md)
+ ` wenwu`
+
+### [麻州民众反对强制疫苗 但对疫苗危害认知有限](/content/gnews/20/README.md)
+ ` 纽约香草山MOS01`
+
+### [9/26/2021 七哥直播：生物芯片将取代现有的半导体芯片，华为也在研究中](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2021年9月26日 文贵先生盖特 2](/content/gnews/22/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [同意续命！中美勾兑之下，华为部分芯片获美许可](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [恒大欠的1000亿美元外债会把美国股市打下五六百个点](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|韭菜不足放开三胎, 仍然应者寥寥](/content/gnews/22/README.md)
+### [有声|意大利爆发大规模反疫苗护照示威游行](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“恒大许家印”（九）](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年9月25日 文贵先生盖特 10](/content/gnews/24/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [默克尔的大失败：她如何让中共国比德国拥有更大经济增长的战略](/content/gnews/25/README.md)
+### [法官驳回警察工会推迟麻省疫苗强制令的请求](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共病毒疫苗让某些类型的癌症（例如子宫内膜癌）的显着增加](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021年9月25日 文贵先生盖特 9](/content/gnews/27/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [Covid疫苗和癌症](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|盖特答谢用户大抽奖, 新泽西一家赢得福特卡车](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [什么是为孩子好，保护孩子，那就是消灭共产党！停止接种中共病毒疫苗！](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [加密货币交易所巨头因禁令加宽而缩减中共国用户数](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [问题不仅仅是习近平；这是共产主义](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共拿下朱立伦，为夺台积电全面侵占台湾埋下伏笔](/content/gnews/33/README.md)
+### [促生育！中共再废止部分计划生育行政法规](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [捷克大亨：希望欧洲更多的反对中、俄的腐败和干涉](/content/gnews/34/README.md)
- ` Charlie`
+### [2021年9月26日 文贵先生盖特 1](/content/gnews/26/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [莫里森强调，核潜艇编队满足“战略需要”](/content/gnews/35/README.md)
+### [香港支联会周六投票解散](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [9/26/2021 七哥直播：习远平是许家印最大的老板，习家想要恒大活过20大](/content/gnews/28/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|韭菜不足放开三胎, 仍然应者寥寥](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [文·贵天成——文贵先生谈“恒大许家印”（九）](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在纪律处分下的意大利女警](/content/gnews/36/README.md)
+### [默克尔的大失败：她如何让中共国比德国拥有更大经济增长的战略](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [Covid疫苗和癌症](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [加密货币交易所巨头因禁令加宽而缩减中共国用户数](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [问题不仅仅是习近平；这是共产主义](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共拿下朱立伦，为夺台积电全面侵占台湾埋下伏笔](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [捷克大亨：希望欧洲更多的反对中、俄的腐败和干涉](/content/gnews/36/README.md)
  ` Charlie`
 
-### [卡车司机对绿色通行证的罢工](/content/gnews/37/README.md)
- ` Charlie`
+### [莫里森强调，核潜艇编队满足“战略需要”](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/38/README.md)
  ` wenwu`

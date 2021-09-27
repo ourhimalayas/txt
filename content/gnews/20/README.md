@@ -2,26 +2,39 @@
 ---
 
 
-## 同意续命！中美勾兑之下，华为部分芯片获美许可
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1557963/)
+## 麻州民众反对强制疫苗 但对疫苗危害认知有限
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558013/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-399.png)
-[图片来源](https://www.cfr.org/backgrounder/huawei-chinas-controversial-tech-giant)
+作者：香草山农场-葛朗台太太
 
-近年来，随着华为公司作为中共军民融合企业的本质被不断揭露，美国严控对华为芯片的出售，导致华为的生存发展面临重大压力和危机。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-9月24日晚间，华为轮值董事长[徐直军](https://news.163.com/news/search?keyword=%E5%BE%90%E7%9B%B4%E5%86%9B)在全联接大会上媒体交流中透露，汽车[芯片](https://news.163.com/news/search?keyword=%E8%8A%AF%E7%89%87)低端芯片获得了[美国](https://news.163.com/news/search?keyword=%E7%BE%8E%E5%9B%BD)许可，主要是供应车业务的芯片。
 
-9月26日，郭文贵先生在GTV直播中谈及孟晚舟和华为时爆料，近期中共与美国勾兑，并就释放孟晚舟和暂时续命华为达成共识。
 
-华为是中共在科技领域“假骗偷”的典型，所谓的高科技和自主创新，不外乎是中共对外实施“蓝金黄”和渗透的工具，也是对内煽动民粹和“爱国主义”的工具，一旦撕掉伪装就是一个假“擀面杖”！
+联邦法院推迟了纽约市对教师的疫苗强制接种授权的新闻受到广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/merlin_194458599_630804d2-f61f-4574-8500-9a24aae74ec4-superJumbo.jpeg)
+Boston 25 News在其脸书账号转发相关新闻，并且提问：你认为雇主应该不应该实施强制疫苗？ 截稿前，这个帖子收到了507个评论，评论几乎全是反对强制疫苗的。评论中不乏已经打了疫苗的民众。
 
-信息来源：
-1、[华为方面确认：部分芯片已获得美国许可](https://www.163.com/digi/article/GKN249LD001697V8.html)
-2、[2021年9月26日文贵大直播:孟晚舟回国会生不如死，她是习派拿钱的密码，内部斗争的结果，华为的灾难在她回去那天刚刚开始，但对爆料革命是最大的礼物；华为的5G加芯片技术对西方的威胁巨大，新一代的芯片的较量是生物芯片；恒大世纪欠外债高达1千亿美元；美三大家族抛售美国资产](https://gtv.org/video/id=6150769942a8af3151a5b28f)
+反对的原因主要出于两点：政府强制疫苗是违法行为，每个人拥有选择医疗手段的权力。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+虽然目前，麻州已经有超过四百六十六万人，占人口比例的67.6%接种过两针疫苗，但是强制疫苗因为触及到了自由民主的底线遭到民众反对。
+
+很可惜的是：评论里没有人指出新冠疫苗的危害。疫苗危害的真相还需要爆料革命战友更大力度的传播。
+
+参考链接： [https://www.facebook.com/168744703121/posts/10159030164478122/?d=n](https://www.facebook.com/168744703121/posts/10159030164478122/?d=n) [https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/](https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

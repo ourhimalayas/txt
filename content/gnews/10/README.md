@@ -2,39 +2,43 @@
 ---
 
 
-## 麻州民众反对强制疫苗 但对疫苗危害认知有限
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558013/)
+## 郭文贵先生直播分享重要信息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558156/)
 
-作者：香草山农场-葛朗台太太
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+栏目记者/责任编辑：火来
 
 
 
-联邦法院推迟了纽约市对教师的疫苗强制接种授权的新闻受到广泛关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/merlin_194458599_630804d2-f61f-4574-8500-9a24aae74ec4-superJumbo.jpeg)
-Boston 25 News在其脸书账号转发相关新闻，并且提问：你认为雇主应该不应该实施强制疫苗？ 截稿前，这个帖子收到了507个评论，评论几乎全是反对强制疫苗的。评论中不乏已经打了疫苗的民众。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-反对的原因主要出于两点：政府强制疫苗是违法行为，每个人拥有选择医疗手段的权力。
 
-虽然目前，麻州已经有超过四百六十六万人，占人口比例的67.6%接种过两针疫苗，但是强制疫苗因为触及到了自由民主的底线遭到民众反对。
 
-很可惜的是：评论里没有人指出新冠疫苗的危害。疫苗危害的真相还需要爆料革命战友更大力度的传播。
 
-参考链接： [https://www.facebook.com/168744703121/posts/10159030164478122/?d=n](https://www.facebook.com/168744703121/posts/10159030164478122/?d=n) [https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/](https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/)
 
-校对/发稿：飞虹
+郭文贵先生在9月26日直播中透露，欧洲将在一个月内停止强制疫苗政策，随后美国和日本也将跟进，停止强制疫苗。此外，世界性的经济危机一定会到来，富人们已经开始行动，避险。美元和人民币之战一定会发生，2022年底将是大决战。虚拟货币势不可挡，将迎来大发展。郭文贵先生还再次发出警报，那就是，排华事件一定会发生。印尼历史上出现数次屠杀华人事件，不能让这样的人间浩劫再次上演，所以战友们一定要团结应对。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-51.jpg)
+参考链接：
+[2021年9月26日文贵大直播:孟晚舟回国会生不如死，她是习派拿钱的密码，内部斗争的结果，华为的灾难在她回去那天刚刚开始，但对爆料革命是最大的礼物；华为的5G加芯片技术对西方的威胁巨大，新一代的芯片的较量是生物芯片；恒大世纪欠外债高达1千亿美元；美三大家族抛售美国资产](https://gtv.org/video/id=6150769942a8af3151a5b28f)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

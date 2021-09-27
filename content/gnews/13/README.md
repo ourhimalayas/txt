@@ -2,37 +2,33 @@
 ---
 
 
-## 有声|意大利爆发大规模反疫苗护照示威游行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1558000/)
+## 美国务院拟成立“中国小组”监控中共海外活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558089/)
 
-配音：纽约香草山美食部 – 玫瑰园
+栏目记者/责任编辑：在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
+继今年年初美国国防部成立了中国工作组之后，美国务院也准备建立一个“中国小组”应对中共挑战。另外还计划专项增加20到30名熟悉中共国事务的官员，除在华盛顿外，这些官员还将派驻到美国驻他国大使馆，以密切关注和监控中共在世界主要国家的各种活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/PP2，4.001.jpeg)
+设置这些关注和监测中共海外活动的“中国观察”官员始于川普政府时期，这些官员分属国务院的各地区事务局。上周拜登在联大演讲中也暗指要对中共国开展“激烈的竞争”， 以价值观和实力领先，同时支持美国的盟友和伙伴，该发言表明拜登政府同样将与中共竞争作为美国外交政策的主轴。
 
-意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
+目前中共的统战网络已经深入渗透到多个国家，甚至干扰了2020年美国总统大选。美国务院成立中国小组的计划旨在整合联邦各部门处理中国事务的官员，类似美国在反恐问题上的跨部门协作。此举能让美国在应对日益猖獗的中共海外影响力活动时，可以拥有更多元的应对策略。
+(本文仅代表作者观点)
 
-评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
+参考链接：[美中较量继续，美政府扩充人手、监测中国](https://gnews.org/wp-admin/post.php?post=1558089&amp;action=edit)
 
-[文字版原文：意大利爆发大规模反疫苗护照示威游行](https://gnews.org/zh-hans/1556807/)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+终审：文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
