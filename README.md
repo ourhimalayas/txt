@@ -15,119 +15,119 @@
 
 ---
 
-### [2021年9月24日 文贵先生盖特 9](/content/gnews/1/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [谈谈藏富于民](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [2021年9月24日 文贵先生盖特 8](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月24日 文贵先生盖特 7](/content/gnews/4/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [卡车司机对绿色通行证的罢工](/content/gnews/5/README.md)
- ` Charlie`
-
-### [2021年9月24日 文贵先生盖特 6](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月24日 文贵先生盖特 5](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月24日 文贵先生盖特 4](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月24日 文贵先生盖特 3](/content/gnews/9/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月24日 文贵先生盖特 2](/content/gnews/10/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年9月24日 文贵先生盖特 1](/content/gnews/11/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [中共上海9月27日至10月3日要大面积停电](/content/gnews/12/README.md)
- ` 儒为`
-
-### [德国选举：德国社民党获胜，寻找盟友以取代默克尔领导的联盟](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：世卫组织组建新团队调查中共病毒起源](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国军舰首次公开穿越台湾海峡](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [罗马警官参加“反绿色通行证”示威，触发纪律处分](/content/gnews/16/README.md)
- ` Itana`
-
-### [彭博社：中共国2020年和2021年的小麦和玉米进口量剧增](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国疫苗注射超22亿！](/content/gnews/18/README.md)
- ` 首尔天池农场`
-
-### [国际要闻汇编](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [人们应当觉醒并采取行动以战胜“消减地球人口”的计划](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [是否选择接种疫苗与受教育程度无关](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [辉瑞疫苗加强针既不能降低传染率，也无益于预防重症](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [短视频：重新关注病毒起源是为了转移疫苗的灾难](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [9/23郭文贵直播：中共在毁灭之前将在全世界释放“热毒”（粤语配音）](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/23郭文贵直播：世界邪恶势力制造病毒，妄图决定全人类的命运（粤语配音）](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [政府不想让人知道中共病毒疫苗的真相（粤语配音）](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/27/README.md)
- ` wenwu`
-
-### [韩国从10月开始给高危人群接种疫苗](/content/gnews/28/README.md)
- ` 首尔天池农场`
-
-### [币圈新闻动态：财富偏爱勇敢者（FORTUNE FAVOURS THE BRAVE）](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [DC大中华时事：中共时评称，国际机构继续投下中国经济信任票](/content/gnews/30/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [维多利亚州：未接种疫苗者将不会获得同样的自由](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共利用新手段对抗知识产权盗窃指控](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [银河快讯：烟草、小麦和黄油价格持续上涨；台湾对日本出口突破1万吨菠萝](/content/gnews/33/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [澳洲总理联大演讲再次呼吁查清中共病毒疫情源头](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [数字人民币取代美元的机率是零 !](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [强制疫苗会停止,经济危机一定爆发新虚拟货币系统将诞生](/content/gnews/36/README.md)
+### [许家印恒大和平安陆金所越多砸钱多撑爆料革命赢面越大](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国杂志《舰船知识》刊登模拟解放军攻台情景](/content/gnews/37/README.md)
+### [捷克大亨：希望欧洲更多的反对中、俄的腐败和干涉](/content/gnews/2/README.md)
+ ` Charlie`
+
+### [日本喜剧演员接种两针疫苗后感染中共病毒](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [鉴于疫情数据好转，日本政府欲结束紧急事态宣言](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2021年9月25日 文贵先生盖特 4](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [世界重磅炸弹｜新冠病毒、疫苗、“超级MERS”生化攻击 — 一场惊天阴谋正在进行中](/content/gnews/5/README.md)
+ ` G&#124;News TAIWAN`
+
+### [2021年9月25日 文贵先生盖特 3](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [莫里森强调，核潜艇编队满足“战略需要”](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年9月25日 文贵先生盖特 2](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月25日 文贵先生盖特 1](/content/gnews/9/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [[ 聚焦港澳 ] 四问萧若元](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [在纪律处分下的意大利女警](/content/gnews/11/README.md)
+ ` Charlie`
+
+### [2021年9月24日 文贵先生盖特 9](/content/gnews/12/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [谈谈藏富于民](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [2021年9月24日 文贵先生盖特 8](/content/gnews/14/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月24日 文贵先生盖特 7](/content/gnews/15/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [卡车司机对绿色通行证的罢工](/content/gnews/16/README.md)
+ ` Charlie`
+
+### [2021年9月24日 文贵先生盖特 6](/content/gnews/17/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月24日 文贵先生盖特 5](/content/gnews/18/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月24日 文贵先生盖特 4](/content/gnews/19/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [德国选举：德国社民党获胜，寻找盟友以取代默克尔领导的联盟](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：世卫组织组建新团队调查中共病毒起源](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国军舰首次公开穿越台湾海峡](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [彭博社：中共国2020年和2021年的小麦和玉米进口量剧增](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国疫苗注射超22亿！](/content/gnews/24/README.md)
+ ` 首尔天池农场`
+
+### [人们应当觉醒并采取行动以战胜“消减地球人口”的计划](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [是否选择接种疫苗与受教育程度无关](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [辉瑞疫苗加强针既不能降低传染率，也无益于预防重症](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [短视频：重新关注病毒起源是为了转移疫苗的灾难](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9/23郭文贵直播：中共在毁灭之前将在全世界释放“热毒”（粤语配音）](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/30/README.md)
+ ` wenwu`
+
+### [韩国从10月开始给高危人群接种疫苗](/content/gnews/31/README.md)
+ ` 首尔天池农场`
+
+### [币圈新闻动态：财富偏爱勇敢者（FORTUNE FAVOURS THE BRAVE）](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [DC大中华时事：中共时评称，国际机构继续投下中国经济信任票](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [维多利亚州：未接种疫苗者将不会获得同样的自由](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共利用新手段对抗知识产权盗窃指控](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [银河快讯：烟草、小麦和黄油价格持续上涨；台湾对日本出口突破1万吨菠萝](/content/gnews/36/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [澳洲总理联大演讲再次呼吁查清中共病毒疫情源头](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [强制疫苗会停止,经济危机一定爆发新虚拟货币系统将诞生](/content/gnews/38/README.md)
+ ` 喜马拉雅日本银河系农场`
 
 ### [哈佛教授Charles Lieber是中共获得生物芯片技术的关键人吗？](/content/gnews/39/README.md)
  ` 文永`

@@ -2,15 +2,24 @@
 ---
 
 
-## 2021年9月24日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557716/)
+## 日本喜剧演员接种两针疫苗后感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1557795/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-398.png)
+(图片源自本文链接)
 
-9/24/2021 Miles Guo: Bohai Capital Holding fabricated its 20 trillion yuan worth of assets with lies and fraudulent appraisals; HNA managed to grow 20,000 times a day by swindling the Lao Baixing’s money and fraudulent accounting. Evergrande and HNA employ the same scam – taking away 1,000 yuan from every 10,000 yuan defrauded out of the Lao Baixing; The state-owned real estate companies profit by taking kickbacks, while the private enterprises rely upon laundering money to the overseas
+日本雅虎网站9月27日消息：
 
-9/24/2021 文贵直播：渤海金控用谎言和虚假评估伪造了20万亿的资产，海航通过骗老百姓的钱和做假帐达到了所谓每天2万倍的成长；恒大和海航都用同一套路骗钱，骗老百姓一万块拿走一千；国有房地产全靠吃回扣，私营企业全靠洗钱到海外去
+由其签约经纪公司官方网站27日宣布，喜剧二人组Anjash的儿嶋一哉（49岁）已感染中共病毒。
 
-[【2021年9月24日】文贵先生盖特原文](https://gettr.com/post/pc4cepcfdd)
+他的办公室说：为了上节目，他在9月24日(星期五)进行了PCR测试，9月26日(星期日)收到了阳性测试结果。本人表示目前没有任何症状，但我们正在遵循卫生当局的指示，谨慎对待。从现在起，在公共卫生部门的指导下，我们将采取适当的措施，包括识别与他有密切接触的人。
 
-**喜联盟Gnews编辑部**
+经纪公司宣布后，儿嶋也发推写道：我对由中共病毒检测呈阳性给大家带来的麻烦和担忧，深表歉意! 我已经接种了两次疫苗，没有任何症状，情况良好。我将遵循公共卫生中心的指示，好好治病。
+
+[信息源](https://news.yahoo.co.jp/articles/826dc88612912a99b182dc905077b2792d353425)
+
+（文章仅代表作者个人观点，与GMEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
