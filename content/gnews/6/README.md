@@ -2,33 +2,37 @@
 ---
 
 
-## 意大利爆发大规模反接种护照示威游行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558429/)
+## 中共封堵资金出逃，火币年底前清退中共国用户
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1558517/)
 
-栏目记者：正义的小新
- 责任编辑：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-402.png)
-连日来，数以万计的民众在意大利 里雅斯特市 举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。
+**撰稿：日本东京方舟农场 海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-48.jpeg)
+9月26日，中共最大的虚拟货币比特币交易平台火币网公告表示，已于24日停止中共国地区新用户注册，并计划于今年年底前清退存量用户。
+据《路透社》报导，火币网已停止让交易者使用中共国地区的移动电话号码注册新账户，香港用户仍然可以注册新账户，但创建新账户时不能再选择中共国地区。
+另据《区块链日报》报导，除火币之外，以太坊矿池星火矿池、显卡矿机管理软件NBMINER、BiONE、富途牛牛App、TokenPocket、BHEX、路印科技、币安、ZKSWAP、HyperDAO、QKL123、AEX安银交易所12家虚拟货币交易所、机构也对外宣布了将退出中共国市场。
 
-美国全国公共广播电台报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求所有公共或私人雇员都要出示疫苗接种证明, 否则将失去工作。 意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或乘坐 公共交通工具均要出示该证。 但自从意大利计划推出疫苗护照以来， 该国民众就通过社交媒体在80个城镇组织进行了示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次活动是对10月新规又一次集中而大规模的示威行动。民众不接受疫苗护照，是因为它会为政府走向专制和暴政打开闸门，政府将从决定你必须注射某种疫苗开始, 逐渐开始任意影响和干涉民众的生活。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210927012651398.jpg)图片来自于网络
 
-（本文仅代表作者观点）
 
-参考链接:[https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21)
-[Italy’s New COVID Vaccine Mandate Is One Of The Strictest In The World](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world)
-[Italy faces wave of Green Pass protests](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
+24日，中共央行等多部门发文明确，虚拟货币相关业务活动属于非法金融活动，境外虚拟货币交易所通过互联网向境内居民提供服务同样属于非法金融活动；将加强虚拟货币交易炒作风险监测预警，并要求金融机构和非银行支付机构不得为虚拟货币相关业务活动提供服务。有分析人士指出，这是中共为封锁资金流入即将上市的Gcoin出台的有针对性的政策。
+他说：“老百姓手里没什么钱，现在出逃的都是中共基层党员的资金。这些资金能去哪呢？海外比特币等虚拟货币市场是一个选项，但不是最佳的，因为比特币被中共控制，其它币种的锚定又决定了其稳定性极差。剩下的就只有以黄金为锚的新中国联邦喜联储推出的Gcoin了。”他还强调：“Gcoin上市在即，作为全球最大、最有力的灭共组织的金融系统，中共势必要全力封锁。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+*注：本文仅代表作者观点，与 Gnews无关*
 
-终审：文龍
-校对/发稿：谐趣园
+*参考链接：*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[比特币交易平台火币：已停止中国大陆新用户注册 年底前逐步清退存量用户](https://cn.reuters.com/article/huobi-crypto-0926-sun-idCNKBS2GM0NM)
+
+[MEDIA-火币已经暂停国内新用户注册，此前中国扩大打击加密货币–彭博](https://cn.reuters.com/article/idCNL4S2QR05U)
+
+[比特币再次去中国化：火币、币核等13家机构宣布退出大陆](http://finance.ce.cn/stock/gsgdbd/202109/27/t20210927_36951823.shtml)
+
+
+
+> [分析：中共为封锁资金流入Gcoin定性虚拟币非法](https://gnews.org/zh-hans/1552931/)
+
+
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -17,6 +17,38 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 3:39 PM (UTC)`
+
+10月27号：七哥又蒙对了．德国的社会结构，政治结构将彻底改变。
+> `@2mmbpkm00ijwiuv 9/27/2021 3:34 PM (UTC)`<br/>德国新总理产生，来自社民党的奥拉夫·舒尔茨担任德国总理。
+![img](https://media.gettr.com/group20/getter/2021/09/27/15/18813d22-b842-0ae2-6406-72151dd261de/out.jpg)
+
+---
+
+`@miles 9/27/2021 3:36 PM (UTC)`
+
+9月27号：哇塞，已经排第一了，太不可思议了，这就是行动和信仰的力量。
+> `@jasonmillerindc 9/27/2021 2:47 PM (UTC)`<br/>#1 today!!! <br/><br/>
+![img](https://media.gettr.com/group36/getter/2021/09/27/14/47/d0b1c8b8-a2c3-919c-68f1-128125068f2a/638f4e83ee4da1a790217fce9a895eea.jpg)
+
+---
+
+`@miles 9/27/2021 3:35 PM (UTC)`
+
+10月27日：所有智慧的聪明的人，一定从现在开始改变自己的生活方式。
+> `@kin20200604 9/27/2021 3:25 PM (UTC)`<br/>#疫苗災難⚠️<br/><br/>2021年9月26日，又一例司機疫苗梗死後猛烈撞擊路人！<br/>開車出行從此不再安全！<br/><br/>#喵駕
+![img](https://media.gettr.com/group37/getter/2021/09/27/15/25/64541c30-798c-142e-f12d-33fb9e285c47/out.jpg)
+
+---
+
+`@miles 9/27/2021 3:34 PM (UTC)`
+
+4月27号：就是这本书！
+> `@jessicag 9/27/2021 3:23 PM (UTC)`<br/>七哥提到的书，新西兰战友提供，有需要可以下载<br/>https://mega.nz/file/1BBlTCrR#Xio4NrtzoKO7--DilfucEBBsM56y-VJgNEdPQqak9UI
+![img](https://media.gettr.com/group36/getter/2021/09/27/15/23/8fbaa5c0-6d85-d32d-e639-938114243cfa/d8bfdfb945db7e24f26510082799b266.jpg)
+
+---
+
 `@miles 9/27/2021 9:45 AM (UTC)`
 
 9/26/2021 Miles Guo: Xi Yuanping is the biggest boss of Xu Jiayin, and the Xi family wants to keep Evergrande alive until after the 20th National Congress; Evergrande owes about US$100 billion to foreign creditors, while only reported to the CCP US$20 billion worth of debt; If Evergrande defaulted on the interests or the principal payment, the US stock market would be down by 600 points, with its impact being 10 times that of Lehman Brothers<br/><br/>9/26/2021 文贵直播：习远平是许家印最大的老板，习家想要恒大活过20大；恒大欠了1000亿美元外债，却给中共报告说只欠200亿；恒大若无法兑付这1000亿外债，美股将被打下600点，其影响将超过10个雷曼兄弟爆雷！<br/>
@@ -265,38 +297,6 @@ WOW
 
 9/23/2021 Miles Guo gives an alert to all the overseas Chinese that an anti-Chinese movement is brewing around the world. The hatred against the Chinese people is escalating due to the disasters caused by the coronavirus and its vaccines. Racist actions targeting the overseas Chinese are expected to take place around the world the next year<br/><br/>9/23/2021 文贵直播：警告所有海外华人，全世界正在酝酿一场反华运动！由于冠状病毒及其疫苗的灾难，国际上对中国人的仇恨愈演愈烈，预计明年在海外会出现排华的灾难！
 ![img](https://media.gettr.com/group42/default/20210924/00/10/10459adc-5433-329c-4d67-afe211d91ab4/out.jpg)
-
----
-
-`@miles 9/24/2021 12:07 AM (UTC)`
-
-9/23/2021 Miles Guo: With fluke mentality, the world’s evil forces are making viruses in an attempt to determine the fate of all mankind; The Evergrande incident will result in the collapse of the financial systems of the Communist China and the world. After that, the CCP will release viruses to the world in large quantities; The COVID vaccine disasters will start in November and December and will last until the next March or April; Xi wants Evergrande to last until after the next year’s 20th Party Congress before it collapses.<br/><br/>9/23/2021 文贵直播：世界邪恶势力正抱着侥幸心理制造病毒，妄图决定全人类的命运；恒大事件将导致国内和国际金融系统大崩溃，而后中共将在全球大量放毒；疫苗灾难将从今年11、12月持续到明年3、4月；习想让恒大撑到明年二十大以后再崩溃<br/>
-![img](https://media.gettr.com/group11/getter/2021/09/24/00/56335430-8dbb-5c61-aff3-148409b5aa06/out.jpg)
-
----
-
-`@miles 9/23/2021 6:38 PM (UTC)`
-
-MARIA❤️❤️❤️
-> `@mariabartiromo 9/23/2021 2:13 PM (UTC)`<br/>Auto shows going electric, looking to future car industry https://video.foxbusiness.com/v/6273864831001/?playlist_id=3166411554001
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 9/23/2021 4:02 PM (UTC)`
-
-It’s happening!!! #GETTRGiveaway #GetTruckin <br/><br/>
-![img](https://media.gettr.com/group3/default/20210923/16/02/c2c22b94-2214-b2eb-84f4-cf1dee9a1e88/4a4fe2e8542e4ddb94cf81226926b0d6.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 9/23/2021 4:06 PM (UTC)`
-
-Someone getting lucky at 12:30pm ET!!! <br/><br/>
-![img](https://media.gettr.com/group14/default/20210923/16/06/272c9de9-a8df-1096-0e67-5e907ba26b2c/24bb56bcedf19a5f4c7a03468e6433ff.jpg)
 
 ---
 

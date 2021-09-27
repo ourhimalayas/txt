@@ -2,30 +2,34 @@
 ---
 
 
-## 美国共和党参议员痛批释放孟晚舟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558215/)
+## 中共国习近平在致台湾反对党的信中警告台湾局势“严峻”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1558350/)
 
-栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-4.jpg)网络图片
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台北：中共国家主席习近平周日（9月26日）在给新当选的台湾最大反对党领袖的贺信中写道，台湾海峡局势“复杂且严峻”，他承诺将重启跟北京当局的会谈。
+
+周六，台湾国民党选举曾任新台北市市长的朱立伦（Eric Chu）为国民党主席。朱立伦说他将重启跟中共执政党高层的联系。
+
+中共声称台湾是自己的领土，并且加大了军事和政治上的压力来迫使台湾岛接受中共主权，尽管大部分台湾人对北京当局的统治毫无兴趣。
+
+朱立伦在2016年总统选举中惨败给现任总统蔡英文，他回应习近平说，海峡两岸的人民都是“炎黄子孙”—换句话说，都是汉人。
+
+朱立伦指责蔡英文的民进党，说他们推行的反中共政策造成了和北京当局之间的紧张关系。
+
+除了2016年在民意调查中失利之外，国民党在去年的总统大选中未能动摇民进党对他们的指责—说他们是北京的走狗，从而遭到痛击。
+
+中共拒绝跟蔡英文对话，说她是台独分子。蔡英文说台湾已经是一个独立的国家，叫中华民国—台湾岛的正式名称；而且只有台湾人有权力决定自己的未来。
+
+**新闻链接：**[China’s Xi warns of ‘grim’ Taiwan situation in letter to opposition](https://www.channelnewsasia.com/asia/taiwan-kuomintang-eric-chu-xi-jinping-china-2202881)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-9月26日，针对中共华为财务主管孟晚舟的获释，美国参议员马可·卢比奥呼吁拜登政府就这个问题紧急向国会通报情况，并表示，孟的获释引发了人们对拜登总统应对华为和中共威胁的能力和意愿的严重质疑。孟晚舟获释只是拜登政府对北京采取危险的软弱态度的另一个例证。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/视频备用1、3、5.005.jpeg)
-共和党参议员比尔·哈格蒂也对此提出了批评和担忧，称此举看起来可能是拜登政府更多的绥靖政策和更多的投降。他直言：“华为是一家咄咄逼人的掠夺性公司,它得到了中国共产党的支持。美国今天已经放弃了影响力。”
-(本文仅代表作者观点)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：FoxRina
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

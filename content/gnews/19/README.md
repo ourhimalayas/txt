@@ -2,177 +2,26 @@
 ---
 
 
-## 世界各国每分每秒都在变化
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558349/)
+## 日本大学加强留学生身份审查以防止技术外流
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1558426/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-23.jpg)https://gtv.org/video/id=61514f36d2e2b817486e9457
-人类每分每秒都在变化
-Los seres humanos están cambiando en cada minuto y segundo
+**撰稿：日本东京方舟农场 海星**
 
-我这一堆的信息来自加拿大的
-Todas estas noticias provienen de Canadá
+9月23日，一项调查结果显示，日本回复调查的56所大学中，有31所已经实施或正在考虑更严格的关于研究尖端技术的留学生出身组织相关的身份审查。
+据《法广》报导，这项调查的对象为日本的67所大学，包括与被称为“国防七子”的中共7所开展军事相关技术研究的大学签订交流协议和设有汉语教育机构“孔子学院”的大学，以及截至去年5月留学生人数排名前30的大学。调查在原则上不公开各大学回答内容的条件下实施，其中有56所大学作答。
+据报道，日本政府6月宣布加强对尖端技术的出口管理，对大学向接受外国政府研究资金等受特定国家影响的留学生等提供技术的情况，将采取经济产业许可制。
 
-小土豆这个党还会赢
-El partido de Justin Trudeau seguirá ganando
+![](https://assets.gnews.org/wp-content/uploads/2021/09/微信图片_20210927163635.png)图片来自于网络
 
-但是微弱
-Pero muy leve y débil
+随着日本政府加强管理，大学方面也将做出应对。许多大学过去仅仅让留学生申报其最终学历，但这次调查显示，有过半数的31所大学已经或考虑加强对过去学历、工作履历等身份审查。有10所大学会询问留学生是否有意入职军事相关组织，14所会确认外国机构的资金支援内容。
+中共奉行民间技术应用于军事的“军民融合”政策，引起各方对可转用于军事的尖端技术可能会通过留学生外流到中共的担忧，各国正在通过加强对留学生的身份审查，以防止尖端技术被中共窃取。
 
-而且还是少数党执政
-Además, sigue siendo un partido minoritario en el poder
+*注：本文仅代表作者观点，与 Gnews无关*
 
-他想干的事干不成
-Lo que él quiere hacer no lo logrará
+*参考链接：*
 
-而且会更惨
-Y será peor
+[日本31所大学对留学生加强审查以防止技术外流](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210925-%E6%97%A5%E6%9C%AC31%E6%89%80%E5%A4%A7%E5%AD%A6%E5%AF%B9%E7%95%99%E5%AD%A6%E7%94%9F%E5%8A%A0%E5%BC%BA%E5%AE%A1%E6%9F%A5%E4%BB%A5%E9%98%B2%E6%AD%A2%E6%8A%80%E6%9C%AF%E5%A4%96%E6%B5%81)
 
-日本就在我们昨天的时间
-El día de ayer, en Japón a misma hora de nosotros
+* * *
 
-日本内部
-Dentro de Japón
-
-日本内部可有很多机密机构啊
-Hay muchas organizaciones secretas
-
-是你们不知道的
-Que ustedes no saben
-
-日本专门有个战后安置委员会
-Japón tiene un Comité Especial de Reasentamiento de Posguerra
-
-从来很少启动, 跟美国的当下危机委员会有点像
-Rara vez lo activan, es parecido al Comité de Crisis Actual en EE. UU
-昨天召开会议
-Ayer se hizo una reunión
-
-正式面对
-Para enfrentar oficialmente
-
-如果共产党打台湾
-Si el PCCh llega a atacar a Taiwán
-
-我们该怎么办
-Qué haremos
-
-刚刚启动的安置委员会认为
-El Comité de Reasentamiento que acaban de activar cree que
-
-日本前所未有的, 比二战核武和导弹扔下来
-Japón nunca ha lanzado armas nucleares y misiles como en la Segunda Guerra Mundial
-
-还要面临最大的共产党的威胁
-Y debe enfrentar a la amenaza más grande del Partido Comunista
-
-因为打台湾
-Porque atacan a Taiwán
-
-下一个病毒还有疫苗
-El próximo virus y vacuna
-
-日本觉得疫苗, 这可能是比什么都严重了
-Japón piensa que la vacuna, esto puede ser más grave que cualquier cosa
-
-那么在昨天
-Y en el día de ayer
-
-也就是我们的24小时以前
-Significa hace 24 horas atrás
-
-大家看到欧洲发生了什么事情
-Todos vieron qué sucedió en Europa
-
-两派对垒
-Dos enfrentamientos
-
-一个是坚决不打疫苗的
-Uno que está en contra de la vacunación
-
-一个是坚决打疫苗的
-El otro es querer vacunarse con determinación
-
-没有中间派了, 欧洲
-En Europa no hay centristas
-
-他就是多党政治, 多数派政治
-Allá es política multipartidista y política mayoritaria
-
-甚至几十个人都有派别
-Hasta con docenas de personas se establece un partido
-
-他没了
-Ya esto no existe
-
-欧洲消灭了中间派, 对澳大利亚什么影响
-Europa eliminó los centristas, qué impacto tendrá en Australia
-
-对新西兰什么影响
-Y Nueva Zelanda
-
-大家想想那个太大了
-Todos piensan, el impacto es muy grande
-
-现在澳大利亚是绝对派
-Ahora en Australia es un Partido absoluto
-
-坚决打疫苗的, 少数派基本就没用
-Aquellos que deciden vacunarse y la minoría es básicamente inútil
-
-然后你在横看美国
-Ahora mira a través de los EE. UU
-
-美国是每分每秒都在变化着
-En EE. UU está cambiando de cada minuto y segundo
-
-每个州反打疫苗和对整个中共的威胁
-La antivacunación en todos los estados y la amenaza para el PCCh en su conjunto
-
-现在认识, 主流媒体
-Sepa ahora, los principales medios de comunicación
-
-现在开始说, 为什么我不可以报导疫苗问题
-Ahora empiezan a decir por qué no puedo informar acerca de los problemas que se presentan en las vacunas
-
-为什么不可以报导, 这个疫苗对我们的伤害
-Por qué no se puede anunciar el daño que puede causar en nosotros
-
-为什么不能报导医院的真相
-Por qué no se puede anunciar la verdad de los hospitales
-
-看这变化, 德国、意大利
-Vean este cambio, Alemania, Italia
-
-比利时、希腊这些国家现在内部已经在土豆这件事情
-Bélgica, Grecia, dentro de todos estos países ya están con el asunto de Justin Trudeau
-
-他会看到深刻的影响
-Él verá el impacto profundo
-
-这些投机分子完全给消灭掉
-Estos especuladores fueron completamente eliminados
-
-没有任何希望, 法国
-Sin ninguna esperanza, Francia
-
-我认为是变天的时候
-Yo pienso que ya es hora del cambio
-
-而且法国这次整个潜艇事件, 彻彻底底地把他所谓的极左派
-Además, todo el incidente del submarino en Francia ha puesto por completo a su llamada ultraizquierda
-
-而且亲共派几乎在法国这次彻底消失
-Y la facción procomunista ha desaparecido casi por completo en Francia esta vez
-
-原视频日期：09/23/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1440969765061726216?s=24
-视频时间段：0:00-2:10
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：文顺 校对：Ranting 发布：Ranting*
