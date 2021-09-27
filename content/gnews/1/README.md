@@ -2,47 +2,13 @@
 ---
 
 
-## 以色列数千人抗议疫苗护照新规定——接种加强型疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1558805/)
+## 2021年9月27日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1559015/)
 
-作者：纽约香草山农场 – 四季
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+对新冠疫苗说“不”! 在为时已晚之前，对强制要求接种新冠疫苗说“不”! 传播真相，阻止一切灾难! 这种臭名昭著的疫苗不仅剥夺了我们的权利还杀害了我们的亲人。有多少人被迫违背自己的意愿注射疫苗!有多少人因为这种疫苗而死!有多少人面临着未来可能发生的副作用的问题?例如自身免疫性神经疾病，包括四肢和肌肉的无力和瘫痪，血栓性血小板减少综合征(TTS)，导致血凝块和低血小板水平，持续性头痛，视觉改变，腹痛，胸痛，腿痛，四肢寒冷和急性瘀伤或出血。 如果你想保护你的家人，请让他们远离新冠疫苗，传播真相，向有需要的人伸出援助之手。 对于已经接种疫苗的人，请避免第二和第三次接种;如果你开始出现症状，请寻求帮助，不要犹豫，请医生给你开伊维菌素加强力霉素和青蒿素治疗Covid-19感染
 
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pce5215064)
 
-
-
-
-据[门道专家](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)9月26日报道，以色列数以千计的人在特拉维夫抗议疫苗护照，该护照现在要求公民打加强针才能被视为 “完全接种”。不接种加强疫苗的人将回到原点，不再有机会参加日常活动，就像那些一开始就没有接种过疫苗的人一样。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1064-1-Screenshot_20210926-134129_Twitter-913x479-1.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)
-
-上月底，以色列卫生官员宣布，根据该国的疫苗护照制度，任何在第二次接种后6个月内没有接受第三次接种的人将不再被视为 “完全接种”。
-
-到目前为止，几乎三分之二的以色列人已经配合政府的限制，完全接种了疫苗，但现在第三针强制接种已被授权，人们正聚集在一起，集体抗议限制性的疫苗护照。
-
-自从疫苗仓促上市以来，以色列公民一直是第一批接种的人。现在他们的政府想把他们作为实验的小白鼠，来注射更加仓促开发的加强型疫苗。强行注射这些加强针证明疫苗没有提供免疫力，难怪以色列的医院85-90%的新病例都来自于已接种疫苗的个人。
-
-事实上，以色列特拉维夫大学的一个研究小组最近对80万人进行了广泛的研究，研究结果表明，接种疫苗的人感染新的病毒变种的可能性比拥有自然免疫力的人高13倍，完全接种疫苗的人 “住院的风险更大”。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**喜联盟Gnews编辑部**

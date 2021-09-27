@@ -2,61 +2,42 @@
 ---
 
 
-## 联邦法官批准暂停纽约学校COVID疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1558675/)
+## 《疫苗死亡报告》：疫苗制造商不承担任何责任
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1558735/)
 
-- **编译：Lulumi**
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+**科学证明了疫苗的伤害**
 
+旧金山大学（University of San Francisco），或索尔克研究所（Salk Institute）的一项研究表明，疫苗将人体变成一个刺突蛋白工厂，制造出数万亿个导致血栓的刺突，从而引起中风和心脏病发作。另一项研究证实了疫苗如何导致致命的血栓，进而导致心脏病发作和中风。《新英格兰医学杂志》（The New England Journal of Medicine）显示了针剂如何导致心脏发炎，同一杂志还发表了一项关于流产急剧增加的研究。一些研究证明了抗体依赖性增强的现实。另外，不孕症和精子数量减少的发生也得到了证实。最后一项研究表明，注射会导致癌症。而这些只是几个例子……
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip144.png)
-2021年5月12日，在纽约市曼哈顿，一名医护人员正在准备一剂强生公司的COVID-19疫苗。(Carlo Allegri/Reuters)
+参考资料：
+1: https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/
+2: https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902
+3: https://www.nature.com/articles/s41586-021-03744-4
+4: https://www.nejm.org/doi/full/10.1056/NEJMc2109975
+5: https://deeprootsathome.com/a-foreshadowing-buried-82-miscarriage-data-in-new-nejm-study/
+6: https://papers.ssrn.com/sol3/papers.cfm?abstract\_id=3897733
+7: https://pubmed.ncbi.nlm.nih.gov/32908214/
+8: https://citizenfreepress.com/breaking/whoa-fauci-finally-mentions-vaccine-risk-for-ade/
+9: https://canadianmale.wordpress.com/2021/04/19/thousands-of-reports-of-menstrual-irregularities-reproductivedysfunction-following-covid-vaccines/
+10: https://www.lifesitenews.com/wp-content/uploads/2021/06/Pfizer-bio-distribution-confidential-documenttranslated-to-english.pdf
+11: https://www.nature.com/articles/s41586-018-0465-8
 
-据《大纪元时报》报道，纽约市暂停了对教师和其他教育部工作人员的COVID-19疫苗强制令，因为周五晚些时候一名联邦法官批准了临时阻止该强制令的请求。
+**疫苗制造商不承担任何责任**
 
-原告是一群教师，他们要求在美国第二巡回上诉法院，一个由三名法官组成的小组审查，一项之前发布的临时禁令。
+在过去的几十年里，世界各国签署了若干官方政府协议，为每一个疫苗制造商提供 100% 的保护，使其免于承担任何和所有责任。不管他们的产品会造成多大的破坏，造成多少人的死亡和永久性残疾，都没有人可以追索。
 
-美国上诉法院法官约瑟夫·比安科（Joseph Bianco）是乔治·W·布什(小布什)提名的人选，他在一份一页的命令中批准了这项请求。
+**世界各国政府确保没有一家疫苗公司可以为他们对全世界人民所做的事情负责。**
 
-该小组现在将决定是否在上诉期间，实施强制令或允许强制令生效。
+没有任何健康保险会支付因疫苗损害产生的费用，当接种疫苗的人遇到麻烦时，他们根本不会为其报销。完全要靠自己，没有人会来救你。然而……那些拒绝保护你的健康、生命和心爱的人免遭可能的破坏的政府，却强制要求进行这些致命的注射，并要求你在购物、旅行、聚会甚至银行服务时出示注射证明。
 
-瑞秋·马尼斯卡尔科（Rachel Maniscalco）和其他三名纽约市教育局的工作人员，就这项本应于9月27日开始的强制令提起诉讼。
+**注射正在继续**
 
-他们说，该命令要求所有工作人员证明，他们至少接种过一剂COVID-19疫苗。这是政府的过度行为，违反了美国宪法的正当程序条款。该条款部分规定，任何国家都不能 “未经适当的法律程序而剥夺任何人的生命、自由或财产”。
+**那些组织这一犯罪行动的人，想确保世界上没有人能够在没有持续注射的情况下生活……代价是惊人的死亡和破坏。没有任何保险公司会赔偿任何受害者，而疫苗公司则被100%的保护起来。**
 
-诉讼中说，追求职业的权利是一种自由利益，而这项强制令威胁，要让不遵守禁令的工作人员付出代价。
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
 
-美国地区法官布莱恩·科根（Brian Cogan）是小布什的另一位提名人，他本周早些时候拒绝阻止这项强制令，裁定原告未能证明他们的诉讼可能会成功。
-
-这引发了上诉，并导致了比安科的裁决。
-
-目前还不清楚这个由三名法官组成的小组将在何时作出决定。
-
-在给新闻机构的一份声明中，该市的教育部（DOE）说，它相信，”一旦所有的事实都被提出来，这项强制令最终将得到支持，因为这是我们的学生和工作人员应得的保护。”
-
-“我们目前要么打疫苗，要么做测试的强制令仍然有效，我们正在寻求下周巡回法院，给出快速解决方案。”该机构补充说：”超过82%的能源部员工已经接种了疫苗，我们继续敦促所有员工在9月27日前接种疫苗。”
-
-工会已敦促市政府推迟或调整这一强制令，声称这将导致教师短缺，却被民主党人比尔·德布拉西奥市长拒绝了。
-
-周五早些时候，代表该市校长的工会——学校主管和行政人员委员会主席马克·坎尼扎罗（Mark Cannizzaro）告诉记者，一些学校有几十个未接种疫苗的工作人员。
-
-纽约市长在周五的一个广播节目中说：”我们一直都在计划。我们已经准备好了很多替补人员。但我认为这里的大事是，绝大多数的教师和工作人员将在下周接种疫苗，以便为我们的孩子服务。”
-
-**点评：**
-
-**目前各团体对疫苗强制令的反抗，在美国不同州及世界不同国家得到不同的结果。因为疫苗真相还没有被大多数人看到并接受。在传播疫苗真相的过程中，一定会遇到来自邪恶势力的巨大阻力，同时更大数量的被蒙蔽的民众，接受颠覆常识的真相也需要时间。**
-
-**疫苗对人类的伤害是掩盖不住的，随着时间的推移，真相会逐渐浮现。为什么疫苗接种率越高疫情越严重？为什么政府和医疗部门明知疫苗有毒，还要强制民众接种？这些问题都需要答案。**
-
-**最终，世界会形成巨大的民意浪潮，那时候就是正义力量和中共及邪恶势力大决战的时刻。而我们作为正义的一方，必定会战胜邪恶。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-**新闻来源：[大纪元时报](https://www.theepochtimes.com/federal-judge-blocks-new-york-citys-school-covid-19-vaccine-mandate_4016844.html) (The Epoch Times) | 作者：M Zachary Stieber**
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injections](https://www.stopworldcontrol.com/report/)

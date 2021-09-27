@@ -2,177 +2,46 @@
 ---
 
 
-## 世界各国每分每秒都在变化
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558349/)
+## 中共在全球范围镇压和扼杀侨民的意志
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1558377/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-23.jpg)https://gtv.org/video/id=61514f36d2e2b817486e9457
-人类每分每秒都在变化
-Los seres humanos están cambiando en cada minuto y segundo
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-5.jpg)网络图片
 
-我这一堆的信息来自加拿大的
-Todas estas noticias provienen de Canadá
+根据最近的一份报告，中共国发动了“世界上最大规模的跨国镇压”，以确保全球华人社区遵守中国共产党的路线。
 
-小土豆这个党还会赢
-El partido de Justin Trudeau seguirá ganando
+这场广泛的运动针对逃离中共国的持不同政见者和与政治不同观点的人。根据隶属于法国的独立机构军事学校战略研究所(IRSEM)近650页的报告，北京的策略包括间谍、恐吓、威胁、骚扰、人身攻击以及对留在中共国的亲属施加压力。全面了解掌握中国人在全球的行动及影响力。
 
-但是微弱
-Pero muy leve y débil
+该政权还直接向至少九个国家施加压力，要求逮捕那些被中共国当局通缉的人。
 
-而且还是少数党执政
-Además, sigue siendo un partido minoritario en el poder
+根据中共国国务院下属的一个与海外华人联络的行政机构，侨务办公室的数据显示，约有6000万华人居住在中共国境外，其中美国的华人居多。
 
-他想干的事干不成
-Lo que él quiere hacer no lo logrará
+报告称，对中共政权来说，这些人是首要的“优先目标”，因为他们更容易接触到批评中共的未经审查的观点，并且很可能将这些信息传播给他们在中共国的亲属。
 
-而且会更惨
-Y será peor
+尽管他们中的绝大多数人已是外国公民，不能被视为中国公民，但北京方面坚持认为所有海外华人都是一个血脉相连的“中国大家庭”的成员，同时将那些越轨的人称为“叛徒”。
 
-日本就在我们昨天的时间
-El día de ayer, en Japón a misma hora de nosotros
+2019年8月23日，中共国驻立陶宛大使和中共国大使馆官员参加了反抗议活动，以破坏支持该市民主运动的亲香港集会。在警方介入并逮捕了两名中国公民后，几名中国外交官带着他们的使馆徽章接近警方，要求释放被拘留者。立陶宛随后召见中国特使提出抗议，称中共国大使馆工作人员“参与并组织非法行动”。
 
-日本内部
-Dentro de Japón
+在瑞典，两名代表中共国政府的商人试图让维权人士安吉拉·桂闭嘴，她是在中国出生的瑞典书商桂民海的女儿，北京于2020年被判入狱10年。在2019年 2月在斯德哥尔摩举行的会议上，该商人称，如果她停止与媒体交谈，她的父亲就会获释。其中一个男人告诉她，如果她不信任他们，她可能再也见不到父亲了。
 
-日本内部可有很多机密机构啊
-Hay muchas organizaciones secretas
+会议由瑞典驻华大使安娜·林斯泰特发起。在瑞典引起公众强烈抗议后，该国从北京召回了林斯泰特，并对她进行了调查。
 
-是你们不知道的
-Que ustedes no saben
+安吉拉·桂远不是唯一一个受到中共特工威胁的海外华人。
 
-日本专门有个战后安置委员会
-Japón tiene un Comité Especial de Reasentamiento de Posguerra
+加拿大女演员阿纳斯塔西娅·林(Anastasia Lin)因是法轮功的修炼者以及她在人权问题上的直言不讳而引起北京的愤怒。她发现自己被北京宣布为“不受欢迎的人”，并拒绝了中国签证。在她于2015年加冕加拿大世界小姐后，她接到了在中共国湖南省经营一家大企业的父亲的电话，告诉她中国安全部曾拜访过他。在当局的压力下，林的父亲恳求她停止行动。
 
-从来很少启动, 跟美国的当下危机委员会有点像
-Rara vez lo activan, es parecido al Comité de Crisis Actual en EE. UU
-昨天召开会议
-Ayer se hizo una reunión
+这些都有可能发生在任何人身上
 
-正式面对
-Para enfrentar oficialmente
+简评：中共把“虽远必诛”的手段淋漓精致的用在了海外华人和持不同政见者身上，一个流氓政权的丑恶嘴脸暴露无遗。
 
-如果共产党打台湾
-Si el PCCh llega a atacar a Taiwán
+原文链接： [https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds\_681176.html](https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds_681176.html)
 
-我们该怎么办
-Qué haremos
+* * *
 
-刚刚启动的安置委员会认为
-El Comité de Reasentamiento que acaban de activar cree que
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-日本前所未有的, 比二战核武和导弹扔下来
-Japón nunca ha lanzado armas nucleares y misiles como en la Segunda Guerra Mundial
 
-还要面临最大的共产党的威胁
-Y debe enfrentar a la amenaza más grande del Partido Comunista
+编辑：【英国伦敦喜庄园编辑部】
 
-因为打台湾
-Porque atacan a Taiwán
-
-下一个病毒还有疫苗
-El próximo virus y vacuna
-
-日本觉得疫苗, 这可能是比什么都严重了
-Japón piensa que la vacuna, esto puede ser más grave que cualquier cosa
-
-那么在昨天
-Y en el día de ayer
-
-也就是我们的24小时以前
-Significa hace 24 horas atrás
-
-大家看到欧洲发生了什么事情
-Todos vieron qué sucedió en Europa
-
-两派对垒
-Dos enfrentamientos
-
-一个是坚决不打疫苗的
-Uno que está en contra de la vacunación
-
-一个是坚决打疫苗的
-El otro es querer vacunarse con determinación
-
-没有中间派了, 欧洲
-En Europa no hay centristas
-
-他就是多党政治, 多数派政治
-Allá es política multipartidista y política mayoritaria
-
-甚至几十个人都有派别
-Hasta con docenas de personas se establece un partido
-
-他没了
-Ya esto no existe
-
-欧洲消灭了中间派, 对澳大利亚什么影响
-Europa eliminó los centristas, qué impacto tendrá en Australia
-
-对新西兰什么影响
-Y Nueva Zelanda
-
-大家想想那个太大了
-Todos piensan, el impacto es muy grande
-
-现在澳大利亚是绝对派
-Ahora en Australia es un Partido absoluto
-
-坚决打疫苗的, 少数派基本就没用
-Aquellos que deciden vacunarse y la minoría es básicamente inútil
-
-然后你在横看美国
-Ahora mira a través de los EE. UU
-
-美国是每分每秒都在变化着
-En EE. UU está cambiando de cada minuto y segundo
-
-每个州反打疫苗和对整个中共的威胁
-La antivacunación en todos los estados y la amenaza para el PCCh en su conjunto
-
-现在认识, 主流媒体
-Sepa ahora, los principales medios de comunicación
-
-现在开始说, 为什么我不可以报导疫苗问题
-Ahora empiezan a decir por qué no puedo informar acerca de los problemas que se presentan en las vacunas
-
-为什么不可以报导, 这个疫苗对我们的伤害
-Por qué no se puede anunciar el daño que puede causar en nosotros
-
-为什么不能报导医院的真相
-Por qué no se puede anunciar la verdad de los hospitales
-
-看这变化, 德国、意大利
-Vean este cambio, Alemania, Italia
-
-比利时、希腊这些国家现在内部已经在土豆这件事情
-Bélgica, Grecia, dentro de todos estos países ya están con el asunto de Justin Trudeau
-
-他会看到深刻的影响
-Él verá el impacto profundo
-
-这些投机分子完全给消灭掉
-Estos especuladores fueron completamente eliminados
-
-没有任何希望, 法国
-Sin ninguna esperanza, Francia
-
-我认为是变天的时候
-Yo pienso que ya es hora del cambio
-
-而且法国这次整个潜艇事件, 彻彻底底地把他所谓的极左派
-Además, todo el incidente del submarino en Francia ha puesto por completo a su llamada ultraizquierda
-
-而且亲共派几乎在法国这次彻底消失
-Y la facción procomunista ha desaparecido casi por completo en Francia esta vez
-
-原视频日期：09/23/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1440969765061726216?s=24
-视频时间段：0:00-2:10
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

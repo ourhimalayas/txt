@@ -2,23 +2,27 @@
 ---
 
 
-## 日本首次将中俄朝确定为网络安全的威胁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1558489/)
+## 全球金融危机即将到来 华为厄运刚刚开始
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558546/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/J.jpg)finshorts.com
-美东时间9月27日俄罗斯媒体报道，日本政府已经批准了一项为期三年的网络安全战略草案，首次将俄罗斯、中共国和朝鲜列为黑客攻击的潜在来源。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-该文件指出，这三个国家被怀疑参与了敌对的网络活动。它还指出，日本将”利用所有可用的有效手段和能力采取强有力的反制措施”，包括针对网络威胁的外交措施和刑事起诉。
+视频参看：2021.09.27早GTV新闻访谈
 
-根据日本方面专家的评估，正如草案中所述，网络空间的威胁只是在最近出现猛增。
+[https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4](https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4)
 
-日本还打算加强与QUAD联盟中的伙伴进行网络安全合作，包括与美国、澳大利亚和印度，以及东南亚国家联盟进行网络安全合作，以实现自由和开放的印度洋-太平洋地区协同发展。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在应对经济活动的风险方面，该战略草案指出需要确保对关键基础设施的可靠保护，如海底电缆，并为信息技术设备建立新的安全和可靠性标准。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-此前，QUAD领导人已同意在网络安全方面进行合作。美国白宫新闻办公室指出，“今天，我们在网络空间启动了一项新的合作，并承诺共同努力打击网络威胁，增强复原力，并确保我们的关键基础设施。”
-
-参考链接：[https://www.rbc.ru/politics/27/09/2021/61515fbb9a79470ab04e510e?from=from\_main\_5](https://www.rbc.ru/politics/27/09/2021/61515fbb9a79470ab04e510e?from=from_main_5)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
