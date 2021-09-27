@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 2:29 AM (UTC)`
+
+9/26/2021 Miles Guo: Xi Yuanping is the biggest boss of Xu Jiayin, and the Xi family wants to keep Evergrande alive until after the 20th National Congress; Evergrande owes about US$100 billion to foreign creditors, while only reported to the CCP US$20 billion worth of debt; If Evergrande defaulted on the interests or the principal payment, the US stock market would be down by 600 points, with its impact being 10 times that of Lehman Brothers<br/><br/>9/26/2021 文贵直播：习远平是许家印最大的老板，习家想要恒大活过20大；恒大欠了1000万美元外债，却给中共报告说只欠200亿；恒大若无法兑付这1000亿外债，美股将被打下600点，其影响将超过10个雷曼兄弟爆雷！<br/>
+![img](https://media.gettr.com/group12/getter/2021/09/27/02/29/9e9eba44-7fac-ad35-253c-cfac73ccabc9/out.jpg)
+
+---
+
 `@miles 9/27/2021 12:15 AM (UTC)`
 
 《Make A Killing 暴富有术》
@@ -290,13 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月22号：这是真的吗？【Vaccine Side Effects Cover-up at a Hospital<br/>真相工程 - 护士揭露医院隐瞒疫苗副作用】
 ![img](https://media.gettr.com/group18/default/20210922/16/43/fc7ae543-e3a2-82f8-a433-d6d3786ef53b/out.jpg)
-
----
-
-`@miles 9/22/2021 2:03 AM (UTC)`
-
-9-21日：医生主动曝光打疫苗有抽成……这才是重点！
-![img](https://media.gettr.com/group5/getter/2021/09/22/02/73b8f085-670f-de5c-ec63-bfe0ac14ad04/f393ab565bc9819f7bb9dcdbaa4cac92.jpg)
 
 ---
 
