@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 8:13 AM (UTC)`
+
+9/26/2021 Miles Guo: Meng Wanzhou’s return to China is the beginning of her personal tragedy! Her ending must be very miserable! Huawei, as the core of the CCP’s battle with the whole world will eventually be sacrificed! This deal for Meng Wanzhou’s return to China is actually a surrender of the US to the CCP. However, this is a great help to our Whistleblowers’ Movement!<br/><br/>9/26/2021 文贵直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨。华为作为中共与世界较量的核心定会被牺牲掉。这次孟晚舟交易事件等于美国向中共投降。这对我们爆料革命是巨大的帮助。<br/>
+![img](https://media.gettr.com/group8/getter/2021/09/27/08/13/3a8d9cc0-441e-b643-99ab-1c3843e3bc7a/out.jpg)
+
+---
+
 `@miles 9/27/2021 3:16 AM (UTC)`
 
 🌹🌹🌹🌹🌹👉🌹
@@ -290,13 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月23号：真正的疫苗灾难……还真的没有开始！
 ![img](https://media.gettr.com/group15/default/20210923/13/58/440948fe-7a4b-5058-2369-fc327239691e/out.jpg)
-
----
-
-`@miles 9/23/2021 2:44 AM (UTC)`
-
-9月22号：尊敬的战友们好，明天上午纽约时间．上午10:30文贵和很多战友一起开始我们的大直播，一切都已经开始！
-![img](https://media.gettr.com/group49/default/20210923/02/44/2a043207-9786-7e5b-bf99-9dbe8f626ee9/2fb164669d3bda4d61c752b49831975f.jpg)
 
 ---
 
