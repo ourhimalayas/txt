@@ -2,36 +2,38 @@
 ---
 
 
-## 意大利爆发大规模反疫苗护照示威游行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556807/)
+## 孟晚舟回中共国事件，成中共墙内愚民的新工具
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556886/)
 
-作者：香草山写作组 – 文一
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+栏目记者：andy5
+责任编辑：葛朗台太太
 
 
 
-近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
 
-意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
 
-评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-13.jpg)
+事实上，孟晚舟拥有超过7本护照，孟晚舟所代表的华为公司，是由江家培养的九大国家军队企业之一。另外八家分别是：北方工业集团，中国兵器，保利集团，平安集团，阿里巴巴，腾讯科技，振兴石油。
 
-参考链接： [https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21) [https://youtu.be/UxIREubRjh4](https://youtu.be/UxIREubRjh4) [https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world) [https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
+以上九家公司，都是盗国贼集团洗劫普通中国人民、转移财富到海外、对西方国家进行蓝金黄的工具。 这些公司的代表人物，也都被授予中共军队和安全部编号，他们也是中共金融界重点保护对象，同时享受外交特权。
 
-（本文仅代表作者个人观点）
+他们是中共盗国贼集团的一部分，是中国人民及全世界人民真正的敌人，是中共企图控制全世界的重要工具。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
+（本文仅代表作者观点）
 
-编辑/校对/发稿：正义的小新
+参考链接：[孟晚舟回中共国事件，成中共墙内愚民的新工具](https://gwins.org/cn/milesguo/238.html%20https://news.sina.com.cn/c/2021-09-25/doc-iktzscyx6312206.shtml)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
