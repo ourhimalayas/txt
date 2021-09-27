@@ -2,13 +2,21 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558847/)
+## 势同水火&#8211;接种疫苗让加拿大人之间的对立越来越深！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1559032/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/05/土豆打疫苗-6-edited-5.jpg)正在接种COVID19疫苗的加拿大总理特鲁多
+图片来源：thepostmillennial
 
-Say “NO” to covid vaccine! Say “No” to mandate covid vaccine before it is too late! Spread out the truth to stop all the disasters! This notorious vaccine not only taking away our rights but also murdering our loved ones. How many people were forced to take the vaccine against their will?! How many people were killed because of this vaccine?! How many people are facing the problem of side effects that may occur in the future? Such as autoimmune neurologic disorder that includes weakness and paralysis in the limbs and muscles, and thrombosis with thrombocytopenia syndrome (TTS), which causes blood clots and low platelet levels, persistent headaches, visual changes, abdominal pain, chest pain, leg pain, coldness in limbs and acute bruising or bleeding.
 
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcdp8wc1a8)
+加拿大知名自媒体《Thepostmillennial》9月27日刊登文章指出，莱格（Leger）公司为【加拿大研究协会】（Association of Canadian Studies）进行的一项最新民意调查结果显示：超过四分之三的受访加拿大人对未接种疫苗者持有负面看法。
 
-**喜联盟Gnews编辑部**
+据《渥太华公民报》（ *Ottawa Citizen*）于同日新闻报道，在9月10日至9月12日期间，有1,549名加拿大人对这项民意调查作出了回应，调查结果显示，参与者倾向于认为那些未接种疫苗的加拿大人是 “不负责任和自私的”。其中，约三分之二的受访者表示，已接种疫苗者和未接种疫苗者作为截然不同的群体，彼此之间存在着愈来愈严重的对立关系。而有大约25%的未接种疫苗者对其他未接种疫苗的人有负面看法，他们在个人层面上提出了不接种疫苗的理由，但认为自己的理由不一定能证明其他未接种者的选择是正确的。
+
+【加拿大研究协会】主席杰克-杰德瓦布（Jack Jedwab）对该调查结果发表了自己的看法：“目前大多数公众对某些群体很多负面的情绪正被其对那些未接种疫苗者的反感所取代，似乎整个社会都对未接种疫苗者有一种高度的憎恶或敌意。为此，人们所看到的是家庭成员和朋友以及同事之间日趋紧张的人际关系，即已接种疫苗者和未接种疫苗者之间逐渐水火难容的势态。”
+
+此外，该项民调结果还发现，大多数加拿大非洲裔人口对COVID19疫苗的不信任程度相较其他族群更高。同时，有大约20%对是否接种该疫苗犹豫不决的受访加拿大人会为了顺利出外旅行而谎报其COVID19疫苗的接种情况。
+
+以上内容仅代表原文信息和作者本人观点。
+
+[原文链接：](https://thepostmillennial.com/new-poll-shows-deepening-divide-between-vaccinated-canadians-and-the-unvaccinated)

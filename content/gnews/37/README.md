@@ -2,46 +2,37 @@
 ---
 
 
-## 中共在全球范围镇压和扼杀侨民的意志
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1558377/)
+## 法国海军参谋长称，中共海军崛起令人担忧
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558467/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-5.jpg)网络图片
+作者：在远方
 
-根据最近的一份报告，中共国发动了“世界上最大规模的跨国镇压”，以确保全球华人社区遵守中国共产党的路线。
-
-这场广泛的运动针对逃离中共国的持不同政见者和与政治不同观点的人。根据隶属于法国的独立机构军事学校战略研究所(IRSEM)近650页的报告，北京的策略包括间谍、恐吓、威胁、骚扰、人身攻击以及对留在中共国的亲属施加压力。全面了解掌握中国人在全球的行动及影响力。
-
-该政权还直接向至少九个国家施加压力，要求逮捕那些被中共国当局通缉的人。
-
-根据中共国国务院下属的一个与海外华人联络的行政机构，侨务办公室的数据显示，约有6000万华人居住在中共国境外，其中美国的华人居多。
-
-报告称，对中共政权来说，这些人是首要的“优先目标”，因为他们更容易接触到批评中共的未经审查的观点，并且很可能将这些信息传播给他们在中共国的亲属。
-
-尽管他们中的绝大多数人已是外国公民，不能被视为中国公民，但北京方面坚持认为所有海外华人都是一个血脉相连的“中国大家庭”的成员，同时将那些越轨的人称为“叛徒”。
-
-2019年8月23日，中共国驻立陶宛大使和中共国大使馆官员参加了反抗议活动，以破坏支持该市民主运动的亲香港集会。在警方介入并逮捕了两名中国公民后，几名中国外交官带着他们的使馆徽章接近警方，要求释放被拘留者。立陶宛随后召见中国特使提出抗议，称中共国大使馆工作人员“参与并组织非法行动”。
-
-在瑞典，两名代表中共国政府的商人试图让维权人士安吉拉·桂闭嘴，她是在中国出生的瑞典书商桂民海的女儿，北京于2020年被判入狱10年。在2019年 2月在斯德哥尔摩举行的会议上，该商人称，如果她停止与媒体交谈，她的父亲就会获释。其中一个男人告诉她，如果她不信任他们，她可能再也见不到父亲了。
-
-会议由瑞典驻华大使安娜·林斯泰特发起。在瑞典引起公众强烈抗议后，该国从北京召回了林斯泰特，并对她进行了调查。
-
-安吉拉·桂远不是唯一一个受到中共特工威胁的海外华人。
-
-加拿大女演员阿纳斯塔西娅·林(Anastasia Lin)因是法轮功的修炼者以及她在人权问题上的直言不讳而引起北京的愤怒。她发现自己被北京宣布为“不受欢迎的人”，并拒绝了中国签证。在她于2015年加冕加拿大世界小姐后，她接到了在中共国湖南省经营一家大企业的父亲的电话，告诉她中国安全部曾拜访过他。在当局的压力下，林的父亲恳求她停止行动。
-
-这些都有可能发生在任何人身上
-
-简评：中共把“虽远必诛”的手段淋漓精致的用在了海外华人和持不同政见者身上，一个流氓政权的丑恶嘴脸暴露无遗。
-
-原文链接： [https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds\_681176.html](https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds_681176.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/法国海军参谋长称，中共海军的崛起令人担忧.jpg)图片来源：法新社
+
+法国海军参谋长皮埃尔∙范迪埃上周六在接受电台采访时称，对于中共在南海进行的人工岛礁建设和军事化问题，美国和包括法国在内的盟国海军将通过举行诸如“环太平洋军演”等大型规模演习，对中共进行武力威慑。
+
+范迪埃认为，目前中共所面临的挑战，是如何在不引发战争的情况下部署军事力量。在中共海军势力不断壮大，逐步向美国盟友施加压力，这些国家慢慢地放弃了美国，倒向中共，这令所有人感到担忧。
+
+从法国海军参谋长的谈话可以看出，西方社会已经清楚地认识到中共海军的崛起给西方民主国家带来了现实而紧迫的威胁。美国和盟军需要加强对中共的无力震慑，牢牢掌握住太平洋及南中国海海域的自由航行权，才能将中共称霸印太地区的野心扼杀在摇篮里。
+
+参考链接：[法国海军参谋长：中国海上力量崛起令所有人都感到担忧](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210926-%E6%B3%95%E5%9B%BD%E6%B5%B7%E5%86%9B%E5%8F%82%E8%B0%8B%E9%95%BF-%E4%B8%AD%E5%9B%BD%E6%B5%B7%E4%B8%8A%E5%8A%9B%E9%87%8F%E5%B4%9B%E8%B5%B7%E4%BB%A4%E6%89%80%E6%9C%89%E4%BA%BA%E9%83%BD%E6%84%9F%E5%88%B0%E6%8B%85%E5%BF%A7)
+
+编辑/校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

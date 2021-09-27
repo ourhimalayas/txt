@@ -2,51 +2,149 @@
 ---
 
 
-## 森林深处的33万元捐款感动了无数战友
-` 文名` [轉載自GNews](https://gnews.org/zh-hans/1558884/)
+## CCP正在和某大国建造三个生物实验室
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559090/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snap_screen_20210927074242.png)
-**作者：英国伦敦喜庄园 文名**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/121-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=6151ceedd2e2b817486eba66](https://gtv.org/video/id=6151ceedd2e2b817486eba66)
 
-2021年9月26日，满怀期待地打开GTV收看七哥大直播，首先看到森林深处战友向七哥索要三个礼物。我心中首先咯噔一下，这怎么上来就要这要那，求求你让七哥专心灭共吧！
+**郭文贵
+Miles Guo**
 
-没想到，森林深处战友要的三个礼物，一个比一个令人折服令人敬佩。她这哪里是索要礼物，她这是在赠送给爆料革命和战友们礼物。
+共产党正在和某大国正在制造两到三个新的生化武器实验室
+CCP is building up two or three new biological weapon laboratories with a major power
 
-第一个礼物，想要知道七哥归隐山林之后的空房间是什么样的。这也是在帮助我们探索七哥的精神世界，让我们提升一些认知和境界。嗯，很特别的战友。
+在东欧一个
+One in Eastern Europe
 
-第二个礼物，请七哥推荐三本书。这可太好了，面对灭共和重建新世界这样的世纪大变革，精神食粮是我们很多战友急需的。七哥的建议也相当有用，弗洛伊德的书让我们认识自己的内心，结社文化的书让我们认识人与人的关系，斯大林的传记让我们了解人的恶，让我们知道在跟什么样的邪恶势力做斗争。嗯，这个问题很有水平，好礼物！
+在中东两个都在建造中
+two in Middle East. They are all under construction
 
-第三个礼物，竟然是捐款33万元！以及它对应的G系列所有投资收益！我当时怀疑自己没听清楚。哪里有索要礼物竟然是向外送钱的？听到这里，我当即就被森林深处战友折服了。这种精神境界，这种文化修养，实在太值得末学学习了。森林深处战友绝对理解施与受的哲学思想，她是在做財布施、法布施、无畏布施。从森林深处战友的背景家装和服装打扮来看，不像是末学一样的苦哈哈穷人，但捐款33万元对于绝大多数人来说，一定是像割大腿一样心疼肝疼。
+7哥掌握一切情况
+I (Miles) have all the information
 
-七哥当即表示感谢，心领了。但是现在绝不接受任何战友的大额捐款，包括股份、Hcoin等投资收益。七哥要等战友们赚钱啦，10倍、100倍的时候，赚的钱花不完的时候再来捐。七哥太懂战友们啦。咱们真战友，哪个不是脑袋别在裤腰带上跟七哥干革命，真的是砸锅卖铁倾家荡产投资爆料革命。很多战友已经一分钱都拿不出来了，所以七哥不要战友们的血汗钱。
+而且到现在，美国只是警告对方
+Up to now, U.S. has only warned those parties
 
-被拒绝后，森林深处战友表示遗憾。她表示后面的节目她不在行，不能参与讨论，所以就自行下线，不浪费大家时间。这让我对她更加钦佩。
-要知道，能跟郭先生一起直播，尤其是现在的大直播，每一分钟都是世界瞩目的历史性关键时刻。也许会是扬名立万的大好时机，多少人挤破头想要与七哥同框。然而森林深处战友竟然能做到从容退出，这是她有自知之明，不争名夺利，一心奉献。
-我对她的敬仰已如滔滔江水延绵不绝。
+你们不要干什么
+saying “You are not allowed to do these”
 
-短短的几句话，森林深处战友表现出了自己的无我、知性、谦逊、感恩和奉献。恰如七哥对她的评价：有品位，有教养，有文化，有牺牲精神。
-她高尚的行为，同时也感动了七哥和各位直播嘉宾和各位观众。战友们被她感动的留言已经刷屏了。
-感恩爆料革命，感恩七哥，感恩像森林深处这样默默无闻的战友。
-今天的直播，让我非常欣慰自己正跟这样高尚情操的人一起干一件了不起的事情。七哥说是这样的战友让他每天能快乐地灭共，今天我也终于感同身受地体会到了这种情感。
-我压上一切做出的选择，值了！
-啥也不说了，敬天敬地敬战友！
+完全没有措施
+No countermeasures at all
 
+你别把世界想得多么伟大
+Don’t think the world is great
 
+所以说兄弟姐妹们很吓人
+So, brothers and sisters, it is very frightening
 
-【文章仅代表作者观点】
+就在日本周边
+It is close to Japan
 
-【参考资料】：
-[➥2021年9月26日文贵大直播](https://gtv.org/video/id=6150769942a8af3151a5b28f)
+现在建的那个地方
+A laboratory is being built
 
-[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
-[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
-[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
-[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
-[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
-[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
-[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
-[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
-[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
-[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
-[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
-[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
+我相信
+I believe
+
+在日本周边建的那个新的毒实验室
+the new poison-making laboratory is being built close to Japan
+
+一旦放的时候，
+Once poisons (viruses) are released
+
+整个日本国一半都会没了
+half of the whole Japan will be gone
+
+一半都会干掉
+50% of Japanese will be killed
+
+而且他们一定敢放
+Furthermore, they dare to release (poisons)
+
+因为现在有借口了
+because they have excuses now
+
+放了以后
+After poisons are released
+
+他全给你归类到这个冠状病毒上去
+He classified it all as a coronavirus
+
+记住大家
+Remember
+
+当这个共产党的冠状病毒放出以后
+after CCP released the coronavirus
+
+已经没有任何人可以停止
+nobody can stop
+
+谁敢不敢使用生化武器的问题了
+It is no longer a question of who dares to use biochemical weapons
+
+而且谁使用生化武器
+And whoever uses biological weapons
+
+都说这是冠状病毒的什么并发症
+They all say this is a complication of the coronavirus
+
+他都找到借口和平台了
+They now have excuses and platforms
+
+这是最危险的
+This is most dangerous
+
+这种世界的放纵和腐败
+This kind of indulgence and corruption in the world
+
+和媒体上整个的垄断
+And monopoly in media
+
+加上医疗的科学的垄断，完了
+Plus monopoly in medical science, it is over
+
+就是大家觉得我干坏事儿，你查不着我
+It is like, I do bad things, but you cannot catch me
+
+你弄不着我
+You cannot get me
+
+这种侥幸心理
+This kind of luck-playing mentality is the reason for
+
+就是现在正在制造的几个大的毒实验室
+the big poison-making laboratories are being built
+
+某国正在制造的
+A country is building them
+
+大概两周前
+Roughly two weeks ago
+
+我听说这个项目的这个制造病毒的人
+I heard that the person in charge of this virus-making project
+
+说出了惊人的话，说从现在起
+Said something astonishing, “from now on
+
+我们可以决定这个地球的命运了
+We can decide the destiny of the earth”
+
+你想这有多可怕兄弟姐妹们
+Think about how scary this can be, brothers and sisters
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24](https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24)
+
+英听校: 洛杉矶盘古农场 – WH
+翻译: 洛杉矶盘古农场 – WH
+翻译终校: 洛杉矶盘古农场 -Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,34 +2,46 @@
 ---
 
 
-## 墨尔本反强制接种疫苗活动的组织者被捕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558158/)
+## 康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1558271/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/33588676fe4ccc0d44e1d82cd4303c93bc6be0d8.jpg)图片来源：The Age
-**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210921001211_副本-1.jpg)
+据[**赵延壮mm**](https://weibo.com/u/7306095702?refer_flag=1005055014_) [2021年9月27日 16:47](https://weibo.com/7306095702/KA7nWb8vc?from=page_1005057306095702_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI Mate 30](https://app.weibo.com/t/feed/67dir4) 已编辑
 
-**整理报道：**翼族
+求政府救命，国家重视 性别：男  姓名：赵延壮 年龄：18岁 联系电话：13111343899 地址：河北省邯郸市馆陶县寿山寺乡韩范庄村 于6.23日接种康希诺新冠疫苗
 
-25岁的哈里森·麦克莱恩(Harrison Mclean)于周六早上在家中被捕，被控“煽动罪”。麦克莱恩一直以“Dominic D”的名称在Telegram（电报群）上宣传和组织反封锁和反强制接种疫苗的集会。
+在上海奉贤区八维学校上学，上学期间学校组织我们成年学生接种新冠疫苗，接种后疫苗开始反复发烧、牙龈出血之后，浑身乏力开始严重贫血，身体开始有淤青和出血点。疫苗之前身体很健康，从未生过大病，也没有家族史。后来贫血严重在学校请假去奉贤区医院检查做了血常规，发现结果异常。
 
-麦克莱恩毕业于莫纳什大学IT专业，几个月来，反强制接种疫苗者和反封锁的人士将他誉为英雄，但在他宣布被捕并签署保释协议后，许多人在周日开始转向反对他。
+老师带我来到三甲瑞金医院检查，当天就进行了各种检查包括血常规，CT一类，由于医院没有床位就在急诊住了几天，之后腾出床位后进行了骨穿检查，结果显示为急性髓系白血病m2。 住院期间发生了 面部出血、眼底出血包括吐血一类的反应。
 
-麦克莱恩称：“我已接受保释条件，包括遵循首席卫生官的指示，不再宣传违反维多利亚州卫生部门规定的自由活动。”
+现在已经过去两个月了，病情也暂时得到了控制，现在我已知的和我一样情况的已有200多人，其中包括很多和我一个医院的治疗的，相信还有很多不知道的案例在内。
 
-坚持反封锁和反对强制接种疫苗的人士则认为，麦克莱恩应该选择监狱，而不是同意保释条件，因此举阻止他们继续推动抗议活动。
+半个月前去奉贤区疾控中心上报疫苗异常反应，今天给了答复是跟疫苗没有关系，但是诊断书上连一个权威专家的签名都没有，让我们如何相信这份报告的权威性。更可气的是疾控中心的工作人员告诉我们，没有一个人会对这份报告负责，只是一个政府行为，那么既然没人对这份报告负责我，我们是不是可以怀疑这份报告的真实性和权威性。至此我们是否可以怀疑根本没有专家做鉴定这份报告只是一份敷衍。
 
-受保释条件的限制，直到明年的4月11日在墨尔本地方法院开庭，麦克莱恩将不得继续组织和参加任何抗议活动。他的抗议活动Telegram电报群和推特描述现在已改为：“安德鲁斯政权是澳大利亚历史上最无情、最专制和最残暴的组织”。【注：安德鲁斯是维多利亚州现任州长】
+难道都不需要问一下我的情况进行判断吗，就只是几个专家坐在一起喝着茶水聊一聊我的病情就可以诊断为与疫苗没有关系吗？马上要进行三疗了，这些期间已经费用高达数十万，家里只有爸爸妈妈和姐姐，爸妈年纪大了跑不动流程了，只能让我姐姐来办手续，所以家庭已经没有了任何收入来源，之后还有干细胞移植的费用高达几十万元，之后发生严重排异的费用更是想也不敢想。
 
-麦克莱恩坚称他“没有鼓励暴动，只有和平抗议”。
+就算疫苗的严重不良反应是接种剂次的十万分之一那也是对几千个家庭的灭顶之灾，让这些家庭支离破碎。所以求政府救命，求国家重视此类问题。麻烦网友帮忙转发让国家看到。🆘 [2上海](http://t.cn/RVJk9aF) [2上海](http://t.cn/RVJk9aF)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/003-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/004-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/005-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/006-2.jpg)
 
-**参考链接：**[Anti-vaxxer protesters turn on IT nerd who organised Melbourne’s chaotic demonstrations – slamming the man they once hailed as a hero as SELLOUT for quitting rallies to avoid jail](https://www.dailymail.co.uk/news/article-10031205/Melbourne-anti-vaccine-protesters-turn-organiser-Harrison-Mclean-quits-avoid-jail.html)
 
-*编辑/发布：翼族*
+那么赵延壮发出的疫苗诊断报告是怎么写的呢？——急性白血病的发生可能与外界环境、遗传因素有关，接种疫苗不会诱发白血病；疫苗和接种过程均符合接种工作规范要求；受种者接种的康希诺疫苗与所患急性髓系白血病不存在因果关系，不属于预防接种异常反应。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+互联网和防火墙分明制造了一个阴阳相隔的奈何桥，在桥的那边是响应政府号召打疫苗，和打了疫苗致病以后的求助无门，18岁的河北青年赵延壮和与他同样因为疫苗导致白血病的200例病友只是冰山一角，200+赵延壮的这些人在徒呼奈何时，这一切与疫苗接种机关的任何个人无关。
+
+这一切只是一个政府行为，可是难道这些疫苗接种机构不是政府的一部分么？所有的扯皮都永远会陷入这样一个怪圈，所有的扯皮都会最终耗尽200+赵延壮这些人的精力，也最终在徒呼奈何中走向生命的终结。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
