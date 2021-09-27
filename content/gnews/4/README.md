@@ -2,192 +2,51 @@
 ---
 
 
-## 世界上各种力量和黑暗组织正在较量
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556745/)
+## 《红色赌盘》之三：段伟红夫妇与王岐山，周亮，习近平和李伯潭等人的交往
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1556757/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1777-a41t4-juabx.jpg)
-[https://gtv.org/video/id=615010d8d2e2b817486e3271](https://gtv.org/video/id=615010d8d2e2b817486e3271)
+加拿大多伦多枫叶农场 – lulu18
 
-**郭文贵**
+![](https://lh4.googleusercontent.com/zl6JfbdWshJSaJiMgtsvv6L4gIUwQKdl-tI7Bykd5mH5r3SAeJW4isL0ugo153qrt-A-Lg_n0g_SWeYHU2xlpOSllGMU5fkTJJDEGS4d6Z3VREIxCy9v2-nnI3K0ytYA14CJ_RdC=s0)
 
-**Miles Guo**
+**引言**: 本篇梳理《红色赌盘》中提到的段伟红夫妇作为张蓓莉最亲近的人和白手套，与**王岐山**，**周亮**，**习近平**和**李伯潭**等人的交往。段夫妇提及王岐山的语气是相当正面的（可能是没有见过郭先生提到的恶魔的一面），相反对习近平的能力很轻视。两人与李伯潭有深交，但是看不惯李伯潭之类富二代的怪癖，也觉得许家印之类富商没有品位。对比郭先生的爆料，请参见郭先生爆料对比《红色赌盘》之三：关于贾庆林的女婿李伯潭。
 
-这些重大的国际形势背后
-Detrás de estas grandes situaciones internacionales
+2001年7月1日，江泽民的‘三个代表’的讲话让段夫妇很鼓舞，认为大环境对私人企业家会更友好。台湾总统陈水扁的当选也让党内敲起了警钟。邓小平的女儿邓琳（靠把平庸的画作卖给港商而获得财富）在席间谈起台湾国民党的党产时，提到国有企业应该变成党有企业以防以后民主选举时共产党没有足够资金。沈认为这说明党内高层有人在思考民主后分享权力的可能性。
 
-大家想到的经济
-Todos piensan en la economía
+另一个显得开明的领导是王岐山。王岐山曾在1996年和高盛的主席（后美国财政部部长）Henry Paulson共同推动了中国电信在纽交所的上市。不久在任广东省省长期间，他又让高盛参与了广东企业破产重组的管理，而使高盛获得丰厚报酬。2006年段在张蓓莉的一场饭局上认识了时任北京市长的王岐山。王岐山希望通过与张的走往来稳固他迁升国务院副总理的机会。之后段经常访问王岐山的市长办公室，以及王后来的中南海办公室，一起喝茶讨论政治。王岐山希望从段口中得知关于温家宝和温家的更多情况，也像一个和蔼的叔叔一样关心段。**王预测中国国企总有一天会被抛售，并建议段留出资金，准备好子弹，以便时机到了时候可以扣动扳机，进行投资。**他认为中国经济体系是一场巨大的椅子游戏，到了某个时候，音乐会停止，中国共产党将被迫接受大规模的私有化。他很欣赏2007年出版的宋鸿兵的书《货币战争》。段也与王的秘书周亮走往甚密。段在电话里告诉周亮关于王岐山的事以帮助周更好的为其工作。反过来，周亮协助段让机场项目更顺利进行。之后段协助周亮在中纪委获得职务。段也与温家宝的秘书宋哲关系很好。宋哲之前是驻英使馆的参赞，在张的帮助下调回北京在温的办公室工作并于2008年出任驻欧盟大使。之后他成为外交部驻港首席代表。段伟红也帮他了解温对他的看法。这些与政府官员的交往让段夫妇认为可以通过在体制内的努力以塑造中国的未来。
 
-香港的林郑月娥
-Carrie Lam de Hong Kong
+2008年在张蓓莉的安排下，段伟红见到了习近平和彭丽媛夫妇，席间主要是彭丽媛在说话。**习近平**刚刚在2007年由于上海市委书记**陈良宇**的落马而获得晋升。陈良宇因涉嫌滥用上海市公共养老基金数亿美元的腐败调查而被免职。而实际上这只是因为陈属于江泽民的上海帮，拒绝宣誓效忠当时的中共中央总书记胡锦涛而被清算。陈良宇2006年被免职后，由**韩正**继任。然而数月后，韩正被发现他的家人在澳洲藏有$20m。在习近平被提拔为上海市委书记时，韩正又回去当了上海市长。之后习近平与江泽民走得更近，并在江泽民的支持和胡锦涛的同意下，于2007年底成为政治局常委，与李克强竞争2012年中国政府最高的两个职务。段伟红利用她的人脉了解到，习近平是个很平庸的官员，没有什么才能。毛泽东生前的秘书李锐见过习，认为习没什么文化。然而之后习近平的作为证明了他是一个精明而冷血的政治人物，并成为中国最有权势的党总书记。
 
-一个安全法
-Una ley de seguridad
+其他几位段夫妇交往的高官和红二代包括贾庆林的女婿**李伯潭**(David Li)。1990年代初期，贾庆林深度参与福建军方的海上走私活动，其妻子林幼芳在1999年走私活动败露后，担心害怕而多年住院。贾庆林夫妇与江泽民1960 年代在机械工业部工作时就熟识，所以江不但保护了贾一家人，还将他晋升政治局常委九名成员之一。2007年江从常委退休后，贾仍然连任一届常委以确保江家的利益，直到2012年退休。贾庆林从不介意出席女婿的饭局并未女婿争取生意机会。江泽民也同样派自己的下属帮助他的儿子和孙子施加影响。2009年李伯潭以昭德投资公司的名义，在故宫附近北京市政府的地上建立了一个‘茅台俱乐部’。由于贾庆林在统战部多年，对贵州等少数民族聚居的省很有影响力，李伯潭号称能够拿到贵州茅台酒厂出场的三分之一的10年以上茅台酒。李通过贾庆林的关系帮助释放位于建国门外的友谊大厦的原主人后拥有了这座大厦。李的公司还垄断了北京公交车上的广告投放系统。茅台俱乐部有高昂的会员费，会员里包括的名人有凤凰卫视的刘长乐，中信集团主席孔丹，阿里巴巴创始人马云，以及江泽民的孙子（之后他成功建立了几十亿美金的私募基金）。李伯潭想和段夫妇共同办红酒俱乐部，于是在2011年秋天，包括许家印夫妻，李伯潭和贾蔷夫妇，段伟红夫妇以及宁波地产商郁国祥一行人乘坐三架私人飞机去欧洲考察红酒。段夫妇发现贾庆林的女儿贾蔷惊人的平易近人。之前的2009年11月，李伯潭和贾蔷夫妇的女儿李紫丹在巴黎参加第19届年度巴黎成人礼而被媒体关注。之后她就读于加州斯坦福大学。2016年4月3日，巴拿马文件泄漏事件中显示，李紫丹在斯坦福读书期间即成为两家离岸公司的唯一股东。许家印是于1992年进入房地产领域，喜欢大手笔的买礼物结交政商。而郁国祥则因为贿赂官员以获得杭州环城高速路的建设项目而官司缠身。其他报道也显示郁曾在2003年用上海社保基金购买了$150m的上海静安希尔顿饭店。
 
-一个中央领导的讲话
-Un líder central habla
+沈对李的印象是虽然李不是天生的红色贵族，但他因为与红色贵族联姻而接受了红二代的一些怪癖。他留着剪成平头的浓密的头发，象征着对党的军事根源的回归。当你进入他的办公室时，他会为你提供茶和雪茄。雪茄必须是古巴雪茄，这是对世界革命的一种愤世嫉俗的表示。茶总是来自云南省的陈年普洱茶，以反映他渴望的文化真实性。在室内，大卫穿着黑色棉拖鞋，白色鞋底和白色袜子，反映了老北京胡同里男人的传统。仿佛在说，“我们的祖先在中国古代就穿着这些鞋子，你呢？”
 
-是香港稳定的基石
-Y es la piedra angular de la estabilidad de Hong Kong
+注：本文仅代表作者观点，与 Gnews无关
 
-啪, 股票下来了, 860亿啊
-Pas, la capital social bajó, 86 mil millones
+**沈栋的《红色赌盘》: 与郭先生爆料的对比**
 
-呱唧就下来了
-Así de una bajó
+[前言](https://gnews.org/zh-hans/1556432/)
 
-几个点啊
-Cuántos puntos
+[《红色赌盘》之一: 段伟红和沈栋](https://gnews.org/zh-hans/1556432/)
 
-香港这个市场是真钱
-El mercado de Hong Kong es dinero de verdad
+[《红色赌盘》之二：温家宝及亲属（夫人张蓓莉，儿子温如松和女儿温如春）](https://gnews.org/zh-hans/1556755/)
 
-全部走人
-Todos se fueron
+[《红色赌盘》之三：段伟红夫妇与王岐山，周亮，习近平和李伯潭等人的交往](https://gnews.org/zh-hans/1556757/)
 
-然后国内的恒大
-Luego el Evergrande Group de China
+《红色赌盘》之四：2002－2018年党内斗争和政治局势变化
 
-然后国内的所谓的
-Lo que supuestamente es
+《红色赌盘》之五: 段伟红夫妇的慈善和艺术品收藏事业
 
-这力那力、新力、富力
-Este Sinic Holdings, Guangzhou R&F Properties Co., Ltd.
+郭先生爆料对比《红色赌盘》之一：关于段伟红的部分
 
-所有的这兵那兵
-Todos esos soldados
+郭先生爆料对比《红色赌盘》之二：关于温家宝及家人部分 （含部分关于薄熙来，令计划，贾庆林，王歧山的内容）
 
-共产党一系列的决策
-La serie de decisiones del PCCh
+郭先生爆料对比《红色赌盘》之三：关于贾庆林的女婿李伯潭
 
-然后在福建沿海严阵以待
-Luego es la preparación de antemano para esperar al infractor en la costa de Fujian
+郭先生爆料对比《红色赌盘》之四：关于孙政才
 
-随时要出马
-En cualquier momento sale
+郭先生爆料对比《红色赌盘》之五：关于令计划和十八大前后党内斗争
 
-打台湾这一系列的现象
-Una serie de fenómenos para atacar a Taiwán
+* * *
 
-经济、政治、地域、文化
-En la economía, política, zona, cultura
-
-在中东, 大家看到了没有
-En Medio Oriente, todos vieron o no
-
-大家看一看
-Todos vean
-
-在2017年到现在爆料当中
-Durante las noticias desde el 2017 hasta ahora
-
-我多次说到过
-Yo en varias ocasiones mencioné
-
-姆努钦, 美国财长
-Steven Mnuchin, exadministrador de fondos estadounidense
-
-我跟美国好多朋友打过赌
-Aposté varias veces con muchos amigos estadounidenses
-
-我说我告诉你姆努钦最近会干啥
-Les dije que le decía qué haría últimamente Mnuchin
-
-大家现在注意到了吗
-¿ Ahora todos pusieron atención?
-
-看到一个姆努钦的报导
-Se vió un reporte de Mnuchin
-
-现在筹建了一个基金
-Ahorita está estableciendo un fondo
-
-筹资25亿美元
-Recaudando 2.5 mil millones de dólares
-
-公告出来了吧
-Ya salió el anuncio
-
-所有人全傻眼了
-Todos se quedaron boquiabiertos
-
-因为这个基金界的
-Porque en la industria de fondos
-
-我说姆努钦下一步会筹立基金
-Yo dije que el próximo paso de Mnuchin es establecer un fondo
-
-这个基金的钱来自于沙特
-El dinero de este fondo proviene de Arabia Saudita
-
-或者UAE
-O de los Emiratos Árabes Unidos
-
-但绝大多数是沙特
-Pero la mayoría es de Arabia Saudita
-
-而且沙特一定在这个交易
-Además, Arabia Saudita seguro hará y terminará esta transacción financiera
-
-5000亿美元跟中共做完
-Con el PCCh de 500 mil millones de dólares
-
-交易以后
-Luego de la transacción
-
-七哥是4年前和3年前告诉的国际基金组织
-Yo hace 3 y 4 años atrás le dije al Fondo Monetario Internacional
-
-所有的大咖们, 就这么准
-Todos estos grandes personajes, así de preciso
-
-这是不可能的事情
-Esto es imposible
-
-但是我就做到了
-Pero yo lo logré
-
-兄弟姐妹们什么意思
-Entienden qué significa esto hermanos y hermanas
-
-知道吗
-¿ Lo saben?
-
-世界的黑暗组织, 世界上的各种力量
-La organización oscura y todo tipo de fuerza de este mundo
-
-都在较量中
-Están en una competencia
-
-都在较量
-Están compitiendo
-
-就在这方圆不超过十个Miles
-En este diámetro no sobrepasa de 10 Miles
-
-那么这些人现在也意识到一个最大的问题
-Entonces estas personas ahora se dieron cuenta de un gran problema
-
-所有的人只要有一天
-Algún día todas las personas
-
-共产党强大了
-Será aniquilada
-
-这些人都会被消灭
-Cuando el PCCh logre ponerse poderoso
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24](https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24)
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/发稿 云起时

@@ -2,30 +2,27 @@
 ---
 
 
-## 盖特答谢用户大抽奖, 新泽西一家赢得福特卡车
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556341/)
+## 罗马民众再次走上街头抗议疫苗护照
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1556380/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-382.png)
-由川普总统的前高级顾问和战略家杰森米勒担任CEO的全新社交媒体盖特, 虽然刚成立不到3个月, 但已经成为推特最有力的竞争对手,众多保守派人士及媒体/自媒体都选择离开推特来到盖特, 因为这里不会有政治正确和对言论自由的打压,更不会有封杀。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-24.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/o.jpg)ria.ru
+美东时间9月25日消息，另一场反对疫苗护照（亦称“绿色通行证”）的示威活动正在拉特兰诺的乔凡尼广场举行。
 
-目前盖特注册用户已超过200万! 为鼓励和欢迎注册用户, 盖特举行了一次名为”Get Truckin”的抽奖答谢活动, 最终来自新泽西州杰克逊市的莱克伍德赢得了一辆全新福特F-150卡车, 杰森米勒亲自驾车送到他的家门口。 一位向获奖者表示祝贺的用户称: ” 感谢盖特和米勒,他们在为言论自由而战!”
+在广场上满是密集的抗议者人群，有一千多人参加了这次行动。示威活动的组织者在拉特兰诺大教堂前的搭建了一个舞台，上面挂着写有No paura day（没有恐惧的一天）的大横幅。
 
-（本文仅代表作者观点）
+一位发言的活动家将绿色通行证的情况与法西斯政权时期相比，”有12位科学家反对”。
 
-参考链接: [https://lnnnews.com/2021/09/23/congrats-lakewood-resident-wins-pickup-truck-from-gettr-delivered-by-jason-miller-himself-exclusive/](https://lnnnews.com/2021/09/23/congrats-lakewood-resident-wins-pickup-truck-from-gettr-delivered-by-jason-miller-himself-exclusive/)
+“这不是一场新冠病毒与Novavax公司之争。有奴隶，也有自由人，你是哪一边的？”发言人表示，他呼吁志同道合的人们为废除绿色通行证的公投收集签名。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+抗议者在台上表示，“我们来到这里是为了自由和工作。这个独裁政权正在利用医疗保健作为掩护。”
 
-终审：文龍
-校对/发稿：谐趣园
+抗议者按惯例带来了写有口号的标语牌和带有意大利主要政治家图像的拼贴画。“我们只是实验室的小白鼠，”一张这样的自制海报上画着一只啮齿动物。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+自8月初，意大利民众不断走上街头，反对政府强制实行疫苗护照制度。意大利的防疫措施规定，民众必须持有绿色通行证才能参加室内活动，这激起了民众的强烈反对，反对疫苗护照的游行人数一度曾多达7000人。
+
+参考链接：
+
+[https://ria.ru/20210925/protest-1751809964.html](https://ria.ru/20210925/protest-1751809964.html)
