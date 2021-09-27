@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 4:49 PM (UTC)`
+
+9月27号：骗子多的地方就说明了傻人更多……骗子傻人多的地方就说明社会没有法律没有信仰，当然也没有真正的公平的成功。
+> `@taishan 9/27/2021 4:27 PM (UTC)`<br/>我十几年前的“借壳融资”模式也让恒大集团发扬光大了！<br/>恒大集团真是无所不用其极！
+![img](https://media.gettr.com/group29/getter/2021/09/27/16/26/467c9f28-b76d-c2ab-2f96-c8b35443c0d4/1a8b9fb95ebf8e8b58bcfeb2578fd8e8.jpg)
+
+---
+
+`@miles 9/27/2021 4:41 PM (UTC)`
+
+以色列COVID-19 疫苗受害者证词(三）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
+![img](https://media.gettr.com/group25/getter/2021/09/27/16/41/b6586bb8-4619-f7f4-aa25-4d7901df33fe/out.jpg)
+
+---
+
 `@miles 9/27/2021 4:37 PM (UTC)`
 
 👏👏👏
@@ -283,20 +298,6 @@ WOW
 
 9/23/2021 Miles Guo: The Jiang faction gave an advice to tear Evergrande apart only to protect their capital pools such as shadow banks, insurance institutions, and trusts; The West is begging Xi to save Evergrande from collapsing, while Xi couldn’t do it by himself; The collapse of Evergrande will crash the world’s financial market, after which the CCP will release more viruses to stop Lao Baixing from protesting on the street; The New Federal State of China will bring the wealth of humanity back to the gold standard<br/><br/>9/23/2021 文贵直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池；西方各国跪求习捂住恒大这颗雷，而习自己却做不到；恒大爆雷将导致全球的金融市场崩溃，而后中共将加大力度放毒以阻止百姓上街抗议；新中国联邦将让人类财富重新回归金本位<br/>
 ![img](https://media.gettr.com/group18/getter/2021/09/24/09/59/fdf5ac7b-7d92-268e-5d66-eed54d453b60/out.jpg)
-
----
-
-`@miles 9/24/2021 5:05 AM (UTC)`
-
-9/23/2021 Miles Guo: Before it ends, the CCP will release a new virus called “fever virus” (literal translation), which is highly toxic with high death rate and no incubation period, and can cause one’s mouth, nose, eyes, and ears to bleed. The CCP is working with a certain country to build 3 biochemical labs and will release new viruses by shifting the blame to the coronavirus. It won’t be a big deal for anyone to release new viruses ever since the CCP unleashed the COVID virus.<br/><br/>9/23/2021 文贵直播：中共在快完蛋的时候将在全世界释放毒性强、无潜伏期、高致死的“热毒“，它将导致人七窍流血；中共正在跟某大国建设3个生化武器实验室，未来会释放新病毒并甩锅给冠状病毒；自从中共释放了冠状病毒，任何人再放毒都不是个事儿了<br/>
-![img](https://media.gettr.com/group28/default/20210924/05/05/a193377a-95b0-c6ba-c7f0-6429af696330/out.jpg)
-
----
-
-`@miles 9/24/2021 2:51 AM (UTC)`
-
-9月23号：<br/>科兴疫苗要收回这是真的吗？<br/><br/><br/>http://mp.weixin.qq.com/s/YHhfG4E2t-Fk
-![img](https://media.gettr.com/group44/default/20210924/02/51/8f270eaa-5583-18be-b466-2d2729d49e26/24931a5ceb1169927475a7005637f5e9.jpg)
 
 ---
 
