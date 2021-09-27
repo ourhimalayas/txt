@@ -2,43 +2,106 @@
 ---
 
 
-## 台湾卖台贼与共产党公开勾兑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558175/)
+## 疫苗灾难真的没有开始，是因为印钞票全掩盖了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558326/)
 
-栏目记者/责任编辑：火来
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-22.jpg)https://gtv.org/video/id=61514fadd2e2b817486e947d
+现在他们所有人都意识到
+Ahora todos ellos se dieron cuenta de algo
 
+疫苗的灾难真的没有开始
+El desastre de la vacuna no ha empezado de verdad
 
+这是七哥在3月4月5月说过的
+Esto lo dije en marzo, abril y mayo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+我说美国的经济（崩溃）是5月到9月开始显露
+Yo dije que la economía de EE. UU empezará a revelar (el colapso) desde mayo hasta septiembre
 
+到年底会开始
+Hasta finales de este año empezará
 
+大家看看美国的股市
+Todos vean la bolsa de valores de EE. UU
 
+嘎叽就下来了
+Así de una bajará
 
+刚刚在这儿做的决定
+Hace rato hicieron una decisión aquí
 
-9月25日，时隔5年 ，朱立伦再次当选台湾国民党主席。9月26日，习近平给朱立伦发去贺电，强调“九二共识”，反对“台独”。而作为台湾新当选的国民党主席朱立伦回信，极尽阿谀跪舔之能事，表示将全面彻底的与共产党合作，将台湾的核心利益拱手相让，将台湾百姓的安全抛之脑后，成了不折不扣的卖台贼。台湾的未来由台湾百姓做主，由不得像朱立伦这样的卖台贼左右。中共在香港的所作所为已经充分证明了，台湾一旦落入中共之手，将会被更加残酷的蹂躏和践踏，中华文明的最后一篇净土也将化为乌有。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-40.jpg)
-参考链接：
-[郭先生盖特： 9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！](https://gettr.com/post/pcb3w6da92)
+美联储到底要不要把美国的国债的上限提高
+¿Debería la Reserva Federal elevar el límite superior de la deuda pública de EE. UU.?
 
-（本文仅代表作者观点）
+每年两三万亿
+Dos o tres billones al año
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+他不提高做什么
+Por qué no lo eleva
 
-终审： 鬼五
-校对/发稿：为真不破20
+他什么提高
+Para qué lo eleva
 
-**更多资讯，更多关注**
+提高就能印钞票
+Si lo eleva puede imprimir más billetes
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+你能印多长时间
+Y ¿por cuánto tiempo puede imprimir?
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+美国这次股市的下滑可不是操作性、技术性的
+Esta vez, la caída en el mercado de valores de EE. UU. no fue operativa, técnica
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+或者因为某个突发事件
+o debido a un suceso inesperado
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他是一个本质性的经济上的认可
+Eso es un reconocimiento económico esencial
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+一个基本面的经济的反应
+Una reacción económica fundamental
 
+他不是一个所谓的
+Eso no es un supuesto
 
+发现哪个公司、哪个丑闻或者政策或哪个疯狂的总统
+El descubrimiento de una empresa, un escándalo, una política o un presidente perturbado
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+想炒一把
+Queriendo impactar
+
+哐叽, 给你输一下利益砸起来
+Y así darte unos beneficios
+
+他不是
+Eso no es así
+
+是一个美联储
+Es una Reserva Federal
+
+美国货币基金组织
+El Fondo Monetario de EE. UU
+
+和美国经济面的基础面的反应
+Y la reacción de la base fundamental de la economía estadounidense
+
+严格讲这次疫苗所有的灾难完全没有反映出来呢
+Estrictamente se dice que todo el desastre de la vacuna no se reflejó por completo
+
+一点都没有
+Ni un poquito
+
+因为印钞票全掩盖了
+Porque la impresión de billete lo cubrió por completo
+
+原视频日期：09/23/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1440865571747233798?s=24
+视频时间段：0:00-1:19
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
