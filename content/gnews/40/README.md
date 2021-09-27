@@ -2,31 +2,25 @@
 ---
 
 
-## 墨尔本反强制接种疫苗活动的组织者被捕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558158/)
+## 澳总理：澳大利亚对话中共的大门始终是敞开的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558239/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/33588676fe4ccc0d44e1d82cd4303c93bc6be0d8.jpg)图片来源：The Age
-**【雅典娜快讯】，紧贴时事脉搏**
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/09/australia-scott-morrison-ap-19085176633304.jpg)CBS新闻
+9月27日，《天空新闻台》记者杰克·马赫尼（Jack Mahony）撰文，报道总理斯科特·莫里森（Scott Morrison）在接受采访时，驳斥了有关澳大利亚最近与中共国缺乏外交沟通的问题。
 
-**整理报道：**翼族
+在接受CBS新闻《面对国家》节目采访时，主持人玛格丽特·布伦南（*Margaret Brennan*）向莫里森提问，为什么没有与中共国国家主席习近平进行沟通。
 
-25岁的哈里森·麦克莱恩(Harrison Mclean)于周六早上在家中被捕，被控“煽动罪”。麦克莱恩一直以“Dominic D”的名称在Telegram（电报群）上宣传和组织反封锁和反强制接种疫苗的集会。
+莫里森驳斥道：“我们的电话始终是在线状态，我们对话的大门始终是敞开的。澳中两国在政治层面的直接对话不存在澳大利亚方面的任何障碍。但中（共）国方面没有对话的兴趣，但他们希望抓住这样的对话机会时，我们始终是欢迎的。并且，这些（对话）的机会多年来一直存在，但他们不感兴趣，那是他们的选择。”
 
-麦克莱恩毕业于莫纳什大学IT专业，几个月来，反强制接种疫苗者和反封锁的人士将他誉为英雄，但在他宣布被捕并签署保释协议后，许多人在周日开始转向反对他。
+布伦南问莫里森，面对澳大利亚和中共国之间军事关系的紧张，是否存在“热战”的威胁。莫里森总理对此予以了否认。他说：“我当然不认为这是不可避免的，我认为这一切是完全可以避免的。不过，这些问题主要是（需要）在美中两国之间解决。”
 
-麦克莱恩称：“我已接受保释条件，包括遵循首席卫生官的指示，不再宣传违反维多利亚州卫生部门规定的自由活动。”
+**新闻来源**
 
-坚持反封锁和反对强制接种疫苗的人士则认为，麦克莱恩应该选择监狱，而不是同意保释条件，因此举阻止他们继续推动抗议活动。
+[Scott Morrison rejects suggestions a lack of political communication with China could lead to a ‘hot war’](https://www.skynews.com.au/australia-news/politics/scott-morrison-rejects-suggestions-a-lack-of-political-communication-with-china-could-lead-to-a-hot-war/news-story/887fbf8ceb9304d4fa811d5dbfcdb39a)
 
-受保释条件的限制，直到明年的4月11日在墨尔本地方法院开庭，麦克莱恩将不得继续组织和参加任何抗议活动。他的抗议活动Telegram电报群和推特描述现在已改为：“安德鲁斯政权是澳大利亚历史上最无情、最专制和最残暴的组织”。【注：安德鲁斯是维多利亚州现任州长】
-
-麦克莱恩坚称他“没有鼓励暴动，只有和平抗议”。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考链接：**[Anti-vaxxer protesters turn on IT nerd who organised Melbourne’s chaotic demonstrations – slamming the man they once hailed as a hero as SELLOUT for quitting rallies to avoid jail](https://www.dailymail.co.uk/news/article-10031205/Melbourne-anti-vaccine-protesters-turn-organiser-Harrison-Mclean-quits-avoid-jail.html)
-
-*编辑/发布：翼族*
+校对编辑：文泓
+发布：七彩光
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

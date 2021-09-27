@@ -2,28 +2,106 @@
 ---
 
 
-## 澳总理：澳大利亚对话中共的大门始终是敞开的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558239/)
+## 疫苗灾难真的没有开始，是因为印钞票全掩盖了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558326/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/australia-scott-morrison-ap-19085176633304.jpg)CBS新闻
-9月27日，《天空新闻台》记者杰克·马赫尼（Jack Mahony）撰文，报道总理斯科特·莫里森（Scott Morrison）在接受采访时，驳斥了有关澳大利亚最近与中共国缺乏外交沟通的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-22.jpg)https://gtv.org/video/id=61514fadd2e2b817486e947d
+现在他们所有人都意识到
+Ahora todos ellos se dieron cuenta de algo
 
-在接受CBS新闻《面对国家》节目采访时，主持人玛格丽特·布伦南（*Margaret Brennan*）向莫里森提问，为什么没有与中共国国家主席习近平进行沟通。
+疫苗的灾难真的没有开始
+El desastre de la vacuna no ha empezado de verdad
 
-莫里森驳斥道：“我们的电话始终是在线状态，我们对话的大门始终是敞开的。澳中两国在政治层面的直接对话不存在澳大利亚方面的任何障碍。但中（共）国方面没有对话的兴趣，但他们希望抓住这样的对话机会时，我们始终是欢迎的。并且，这些（对话）的机会多年来一直存在，但他们不感兴趣，那是他们的选择。”
+这是七哥在3月4月5月说过的
+Esto lo dije en marzo, abril y mayo
 
-布伦南问莫里森，面对澳大利亚和中共国之间军事关系的紧张，是否存在“热战”的威胁。莫里森总理对此予以了否认。他说：“我当然不认为这是不可避免的，我认为这一切是完全可以避免的。不过，这些问题主要是（需要）在美中两国之间解决。”
+我说美国的经济（崩溃）是5月到9月开始显露
+Yo dije que la economía de EE. UU empezará a revelar (el colapso) desde mayo hasta septiembre
 
-**新闻来源**
+到年底会开始
+Hasta finales de este año empezará
 
-[Scott Morrison rejects suggestions a lack of political communication with China could lead to a ‘hot war’](https://www.skynews.com.au/australia-news/politics/scott-morrison-rejects-suggestions-a-lack-of-political-communication-with-china-could-lead-to-a-hot-war/news-story/887fbf8ceb9304d4fa811d5dbfcdb39a)
+大家看看美国的股市
+Todos vean la bolsa de valores de EE. UU
 
-校对编辑：文泓
-发布：七彩光
+嘎叽就下来了
+Así de una bajará
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+刚刚在这儿做的决定
+Hace rato hicieron una decisión aquí
+
+美联储到底要不要把美国的国债的上限提高
+¿Debería la Reserva Federal elevar el límite superior de la deuda pública de EE. UU.?
+
+每年两三万亿
+Dos o tres billones al año
+
+他不提高做什么
+Por qué no lo eleva
+
+他什么提高
+Para qué lo eleva
+
+提高就能印钞票
+Si lo eleva puede imprimir más billetes
+
+你能印多长时间
+Y ¿por cuánto tiempo puede imprimir?
+
+美国这次股市的下滑可不是操作性、技术性的
+Esta vez, la caída en el mercado de valores de EE. UU. no fue operativa, técnica
+
+或者因为某个突发事件
+o debido a un suceso inesperado
+
+他是一个本质性的经济上的认可
+Eso es un reconocimiento económico esencial
+
+一个基本面的经济的反应
+Una reacción económica fundamental
+
+他不是一个所谓的
+Eso no es un supuesto
+
+发现哪个公司、哪个丑闻或者政策或哪个疯狂的总统
+El descubrimiento de una empresa, un escándalo, una política o un presidente perturbado
+
+想炒一把
+Queriendo impactar
+
+哐叽, 给你输一下利益砸起来
+Y así darte unos beneficios
+
+他不是
+Eso no es así
+
+是一个美联储
+Es una Reserva Federal
+
+美国货币基金组织
+El Fondo Monetario de EE. UU
+
+和美国经济面的基础面的反应
+Y la reacción de la base fundamental de la economía estadounidense
+
+严格讲这次疫苗所有的灾难完全没有反映出来呢
+Estrictamente se dice que todo el desastre de la vacuna no se reflejó por completo
+
+一点都没有
+Ni un poquito
+
+因为印钞票全掩盖了
+Porque la impresión de billete lo cubrió por completo
+
+原视频日期：09/23/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1440865571747233798?s=24
+视频时间段：0:00-1:19
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

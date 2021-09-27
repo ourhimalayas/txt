@@ -2,27 +2,44 @@
 ---
 
 
-## 全球金融危机即将到来 华为厄运刚刚开始
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558546/)
+## 班农专访6：联盟西方、推翻中共的必是新中国联邦
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1558589/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+[![](https://spark.adobe.com/page/oRiMVpmaMVUd6/images/8042c54c-b6d2-4c11-a6f3-ff3b619cab6a.png?asset_id=2f9a10fd-8a0e-4c93-b737-093886c6f072&amp;img_etag=%22ca8714434924b62b8cd8bb73e9c357b7%22&amp;size=2560)](https://spark.adobe.com/page/oRiMVpmaMVUd6/images/8042c54c-b6d2-4c11-a6f3-ff3b619cab6a.png?asset_id=2f9a10fd-8a0e-4c93-b737-093886c6f072&amp;img_etag=%22ca8714434924b62b8cd8bb73e9c357b7%22&amp;size=1024)
+**简评：**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-14.png)
-文章仅代表作者本人观点，与Gnews无关
+美国与澳大利亚和英国建立印太联盟Aukus，出售核动力潜艇到澳大利亚。未来这些国家在与中共的对抗中会并肩作战，但最重要的盟友是在西方的中国华侨，拥有自由和法治的新中国联邦人。一旦中国人获得自由，就会在全世界蓬勃发展。
 
-视频参看：2021.09.27早GTV新闻访谈
+拜登政府误判形势，忽视了法国。法国是美国最老的盟友，美国在第一次、第二次世界大战和冷战中支持法国、解放了法国，不应该这样对待长期的盟友。随着北京与几个邪恶轴心国建立帮派组织，试图巩固亚洲大陆，西方联盟也开始形成。
 
-[https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4](https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4)
+GTV视频链接：[英喜每周采访班农先生0922-Q6：摆在西方面前的，能拿下中共的最大的缘政治优势是中国华侨](https://gtv.org/video/id=61501e4ad2e2b817486e3561)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**视频字幕：**
+
+**主持人**：所以现任美国政府宣布与澳大利亚和英国建立印太联盟，称为Aukus，该联盟协议包括出售核动力潜艇到澳大利亚。
+
+这是否意味着在与中共的潜在动能战争中 ，这些国家将并肩作战，以收回中共欠他们的钱？班农先生。
+
+**班农先生**：摆在西方面前的，能拿下中共的最大的缘政治优势是中国华侨。在西方的中国华侨，他们拥有思想自由、言论自由、人权自由、拥有评论政府的自由。信仰自由、私有财产拥有权、拥有法治，而西方已经拥有这些上千年。一旦中国人有了这些，他们就会在全世界蓬勃发展，澳大利亚、新西兰、加拿大、美国、您所在的英国。
+
+为什么？因为在那里让他们获得这些自由。所以他们是西方联盟的最大、最重要、最关键的部分。现在显然（局势的）重点在印太地区和南中国海，问题是拜登政府不重视。我们在川普政府时努力建立的与自由人民的联盟，特别是华人人口众多的国家，因为他们了解自由的价值。
+
+这些自由力量才是灭共的主要力量。我认为现任（美国）政府完全错误地处理了当前局面。是的，澳大利亞是先锋。这很重要。我们那里有很先进的潜艇队。
+
+法国是我们最老的盟友，尽管是全球主义者的马克龙在执政法国，但有大量法国人民支持民族主义和平民主义运动。法国是我们最老的盟友。请记住，除非法国挺身而出，否则我们，包括澳大利亚，不会获得自由。我们在第一次世界大战、第二次世界大战和冷战中支持了法国、解放了法国。他们是最老的盟友。不应该这样对待老盟友。
+
+但也有好消息，对中国人民的好消息。你可以看到，尽管不是首要议程，甚至有些妥协，随着北京政府在与朝鲜、巴基斯坦、伊朗合作，与恐怖分子国家阿富汗、土耳其的埃尔多万，和俄罗斯的普京建立帮派组织，试图巩固亚洲大陆。
+
+我们未来几年将有很多很多很多困难，但是你也看到了（西方）联盟的开始。不幸的是，拜登头脑不清处，没有照顾好所有的盟友。请记住，这其中最重要的盟友是中国华侨、新中国联邦的中国人民。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：雨中漫步*| *听写/翻译：Boxinglady* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/oRiMVpmaMVUd6/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/oRiMVpmaMVUd6/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

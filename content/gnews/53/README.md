@@ -2,34 +2,29 @@
 ---
 
 
-## 纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1534601/)
+## 秘翻在线：中共表示将对可能爆发的战争动用核自卫反击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1553714/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-CN.jpg)
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+**撰稿：黄金精神**
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-001-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-002-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-003-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-004-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-005-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-006-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-007-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-008-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-009-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-010-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-011-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-012-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-013-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-Saraca-014-scaled.jpg)
+**责编：胡天**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16325540531.png)**[图片来源：acnw](https://www.chinatimes.com/)**
 
 
-[【English PDF 英文原版】](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/nyag_aod_-_gtv-saraca_-_executed.pdf)
+据《每日快报》（Daily Express）9月25日报道，中共已表示如果与美英澳爆发战争，“必须准备好进行第一次核打击”。
 
-[【秘密翻译组 – 中文翻译版 PDF】关于GTV和Saraca公司的终止刑事和民事调查保证书](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/关于GTV和Saraca公司的终止刑事和民事调查保证书.pdf)
+为了应对中共在印太地区的侵略，美国、英国和澳大利亚已经达成了一项新的名为Aukus的核潜艇协议。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+前驻联合国大使沙祖康告诉中共军控与裁军协会，中共应该“重新审视和微调”其对核武器的策略。随着美国建立新的军事联盟，并增加其在中共周边地区的军事措施，沙祖康认为“不首先使用（核武器）”政策应该被废除。虽然只有在报复中使用核武器才能给中共带来“道德制高点”，沙祖康认为，只有在中（共）美谈判同意双方不首先使用核武器的情况下用核武器作为报复不合适。他还补充道：“在未来一段时间，美国将把中共视为其主要竞争对手甚至是敌人。”
 
-+4
+自1968年以来，中共采取的是仅报复时才使用核武器的政策。中共是第五个发展核武器的国家，拥有250至350枚核弹。但中共官媒《环球时报》编辑胡锡进称，中共人民解放军应将其武器库扩大到1000枚核弹头。他强调中共需要有一个更大的核武器库，以遏制美国的战略野心及其对中共的冲动。
+
+此前，美英澳宣布了Aukus协议，这是三国之间的一种“战略伙伴关系”，将为澳大利亚提供核动力潜艇。
+
+澳大利亚总理斯科特·莫里森（Scott Morrison）说，澳大利亚正与美国和英国签订“永远的契约”，但强调堪培拉不希望引发核冲突。另外他还强调，澳大利亚并不寻求建立核工业或建立民用核能力，澳大利亚将继续履行其核不扩散义务。
+
+英国首相鲍里斯·约翰逊（Boris Johnson）补充说：“这件事并非针对中共。从根本上说，这是全球安全的一个巨大进步。这是三个非常志同道合的盟友肩并肩地站在一起，为分享技术建立一个新的伙伴关系。这不是排他性的，并不试图把任何人排除在外。例如，它对中共没有敌意。”
+
+《环球时报》警告说，在Aukus协议后将出现核潜艇的军备竞赛，它还补充说，如果战争爆发，澳大利亚士兵可能会在中共的“反击”中“首先死亡”。
+
+**[新闻来源](https://www.express.co.uk/news/world/1496289/china-news-nuclear-war-australia-aukus-warning-latest)**

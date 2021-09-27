@@ -2,37 +2,27 @@
 ---
 
 
-## 中共封堵资金出逃，火币年底前清退中共国用户
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1558517/)
+## 全球金融危机即将到来 华为厄运刚刚开始
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558546/)
 
-**撰稿：日本东京方舟农场 海星**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-9月26日，中共最大的虚拟货币比特币交易平台火币网公告表示，已于24日停止中共国地区新用户注册，并计划于今年年底前清退存量用户。
-据《路透社》报导，火币网已停止让交易者使用中共国地区的移动电话号码注册新账户，香港用户仍然可以注册新账户，但创建新账户时不能再选择中共国地区。
-另据《区块链日报》报导，除火币之外，以太坊矿池星火矿池、显卡矿机管理软件NBMINER、BiONE、富途牛牛App、TokenPocket、BHEX、路印科技、币安、ZKSWAP、HyperDAO、QKL123、AEX安银交易所12家虚拟货币交易所、机构也对外宣布了将退出中共国市场。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210927012651398.jpg)图片来自于网络
+视频参看：2021.09.27早GTV新闻访谈
 
+[https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4](https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4)
 
-24日，中共央行等多部门发文明确，虚拟货币相关业务活动属于非法金融活动，境外虚拟货币交易所通过互联网向境内居民提供服务同样属于非法金融活动；将加强虚拟货币交易炒作风险监测预警，并要求金融机构和非银行支付机构不得为虚拟货币相关业务活动提供服务。有分析人士指出，这是中共为封锁资金流入即将上市的Gcoin出台的有针对性的政策。
-他说：“老百姓手里没什么钱，现在出逃的都是中共基层党员的资金。这些资金能去哪呢？海外比特币等虚拟货币市场是一个选项，但不是最佳的，因为比特币被中共控制，其它币种的锚定又决定了其稳定性极差。剩下的就只有以黄金为锚的新中国联邦喜联储推出的Gcoin了。”他还强调：“Gcoin上市在即，作为全球最大、最有力的灭共组织的金融系统，中共势必要全力封锁。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-*参考链接：*
-
-[比特币交易平台火币：已停止中国大陆新用户注册 年底前逐步清退存量用户](https://cn.reuters.com/article/huobi-crypto-0926-sun-idCNKBS2GM0NM)
-
-[MEDIA-火币已经暂停国内新用户注册，此前中国扩大打击加密货币–彭博](https://cn.reuters.com/article/idCNL4S2QR05U)
-
-[比特币再次去中国化：火币、币核等13家机构宣布退出大陆](http://finance.ce.cn/stock/gsgdbd/202109/27/t20210927_36951823.shtml)
-
-
-
-> [分析：中共为封锁资金流入Gcoin定性虚拟币非法](https://gnews.org/zh-hans/1552931/)
-
-
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

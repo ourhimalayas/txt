@@ -2,9 +2,9 @@
 ---
 
 
-## 马龙博士在罗马峰会上号召大家行动起来
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1551512/)
+## 纳瓦罗和班农：继中共病毒，中共再次向世界传播金融病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1554081/)
 
-9/18/2021 马龙博士提出罗马宣言抵制强制接种疫苗，峰会吸引了超过1亿人次登录观看。
+9/20/2021 纳瓦罗和班农：继中共病毒后，中共再次向世界传播金融病毒。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

@@ -2,32 +2,34 @@
 ---
 
 
-## 朱立伦和国民党舔共卖台能得到继续尸位素餐的机会么
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1556989/)
+## 墨尔本反强制接种疫苗活动的组织者被捕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558158/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/83c8b77244type_jpeg_size_1050_149_end_副本.jpg)
-据郭文贵先生于[Posted on 3:07 AM · Sep. 27., 2021](https://gettr.com/post/pcb3w6da92)发布的盖特——
+![](https://assets.gnews.org/wp-content/uploads/2021/09/33588676fe4ccc0d44e1d82cd4303c93bc6be0d8.jpg)图片来源：The Age
+**【雅典娜快讯】，紧贴时事脉搏**
 
-9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！
+**整理报道：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001_副本.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002_副本.jpg)
+25岁的哈里森·麦克莱恩(Harrison Mclean)于周六早上在家中被捕，被控“煽动罪”。麦克莱恩一直以“Dominic D”的名称在Telegram（电报群）上宣传和组织反封锁和反强制接种疫苗的集会。
 
+麦克莱恩毕业于莫纳什大学IT专业，几个月来，反强制接种疫苗者和反封锁的人士将他誉为英雄，但在他宣布被捕并签署保释协议后，许多人在周日开始转向反对他。
 
-很多网友质疑朱立伦与共产党舔腚的这份文件中没有出现中华民国的字样，并质疑朱立伦及它背后的中国国民党把中华民国给卖了，其实这种质疑既对也不对，为什么这么说呢？因为只有借国民党的尸身才能还卖台的魂，否则不担任公职的朱立伦何以卖台呢？
+麦克莱恩称：“我已接受保释条件，包括遵循首席卫生官的指示，不再宣传违反维多利亚州卫生部门规定的自由活动。”
 
-既不担任公职而又一心卖台的朱立伦借国民党的尸身批评民进党所谓去中、反中政策，并进一步以所谓国共两党的九二共识及反对台独的基础上向中共递降书纳顺表，继当年不争气的国民党丢掉大陆龟缩台湾之余，国民党的宵小之辈朱立伦继续借国民党的尸身再卖台湾并乐此不疲，由此可见一斑矣！
+坚持反封锁和反对强制接种疫苗的人士则认为，麦克莱恩应该选择监狱，而不是同意保释条件，因此举阻止他们继续推动抗议活动。
 
-卖台贼朱立伦的可耻与可恨之处在哪里呢？他的可耻和可恨在其空手套白狼以一纸文书绑架台湾两千三百万人民，在这份卖台舔共的文件中，朱立伦想当然地把他脚下的那片台湾土地和那片土地上生存的两千三百万台湾同胞想当然地划归了国民党和民进党，在把台湾这片土地和人民窃据囊中之后再用这一纸文书来舔共，并试图以卖台湾来为自己和那个尸身犹存的所谓中国国民党谋得一个尸位。
+受保释条件的限制，直到明年的4月11日在墨尔本地方法院开庭，麦克莱恩将不得继续组织和参加任何抗议活动。他的抗议活动Telegram电报群和推特描述现在已改为：“安德鲁斯政权是澳大利亚历史上最无情、最专制和最残暴的组织”。【注：安德鲁斯是维多利亚州现任州长】
 
-如果成功卖台，卖台贼朱立伦和他身后的这个国民党或许可以能得到尸位素餐的机会吗？殷鉴不远 在夏后之世，中国共产党的所谓政治协商制度里的八个民主党派已经是国民党最好的前车之鉴，中国十亿同胞现在的水深火热也是台湾两千三百万同胞最好的前车之鉴，台湾同胞们和台湾的有种的政治家们如果能容忍国民党和朱立伦这样的公开通敌卖国，那就只有死路一条了，因为朱立伦至少还能借国民党的尸身还卖台湾的魂，剩下的民进党和两千三百万台湾同胞就只有被卖的份儿了。
+麦克莱恩坚称他“没有鼓励暴动，只有和平抗议”。
 
-（文章内容仅代表作者个人观点）
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-撰稿：喜马拉雅的肉夹馍
+**参考链接：**[Anti-vaxxer protesters turn on IT nerd who organised Melbourne’s chaotic demonstrations – slamming the man they once hailed as a hero as SELLOUT for quitting rallies to avoid jail](https://www.dailymail.co.uk/news/article-10031205/Melbourne-anti-vaccine-protesters-turn-organiser-Harrison-Mclean-quits-avoid-jail.html)
 
-审核：喜马拉雅的馍夹肉
+*编辑/发布：翼族*
 
-校对：Maarago
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
