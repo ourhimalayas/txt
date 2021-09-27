@@ -2,31 +2,50 @@
 ---
 
 
-## DC每日热点0926
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1556501/)
+## 美国对中国所有制定的政策，处处都打到中共的七寸
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556712/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F5620EF8-F0A8-426C-969E-876BD86097B7-scaled.jpeg)
-道琼斯指数 34798.00 ▲0.10%
-纳斯达克指数 15047.70 ▼0.03%
-WTI纽约原油CFD 73.982 ▲0.93%
-布伦特原油CFD 77.220 ▼0.01%
-美元兑人民币 1USD=6.466RMB
-美元兑港币 1USD=7.785HKD
-国际黄金 1750.42 美元/盎司
-全球CCP病毒感染人数 232,397,750 例
+![](https://assets.gnews.org/wp-content/uploads/2021/09/100-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=614fb309d2e2b817486e173e](https://gtv.org/video/id=614fb309d2e2b817486e173e)
 
-1、美国芯片厂竞相开建 英特尔200亿美元项目在亚利桑那破土
-2、俄罗斯表示，美中俄和巴基斯坦正在合作，确保塔利班遵守承诺，尤其是组建政府和防范恐怖主义蔓延的承诺
-3、塔利班星期六在一个城市的广场悬挂尸体示众，显示过去某些残忍的统治手段复活
-4、美国称现状下无意重返TPP
-5、马斯克参加互联网世界大会向中共保证，在前所未有的经济动荡背景下，特斯拉将致力于在中共国的投资与扩张
-6、英政府据报接近达成协议 或终止中企在英核电站的参与
-7、法国海军参谋长：中共海上力量崛起令所有人感到担忧
-8、美印首脑联合声明：拜登重申对印度作为主要防务伙伴的坚定承诺
-9、日本31所大学对留学生加强审查以防止技术外流
-10、联合国：叙利亚内战导致大约35万平民死亡
-11、国民党党主席选举周六(9月25日)结果揭晓，由标榜“中道”路线的前新北市市长朱立伦胜出
-12、中共当局对娱乐业的整顿范围扩大，儿童漫画的内容进入监管者关注的对象，动漫剧全网下架
-13、代表着“六四烛光”的香港支联会周六（9月25日）宣布解散
-14、中共科普杂志模拟解放军攻台：称003航母可突破第二岛链限制
+**郭文贵：**
+**Miles Guo：**
+
+为什么呢？
+Why？
+
+从两样事能看得出来，就美国对中国所有制定的政策
+It is clear from two things, one is that all the policies set by the United States against China
+
+几乎都是处处能打到中共的7寸
+can hit the Chinese Communist Party in almost every way
+
+对中国所有出售给中国的粮食价格和科技产品的把握
+Control over the price of all food and technology products sold to China
+
+每次制裁都是招招致命，而且美国从来没有损失
+Every sanction is a deadly move, and the U.S. never loses
+
+所有共产党在国际上篮金黄这些国家，所有的达到的目的和所有的钱，花完以后
+all the countries that the communists colluded with internationally, in order to achieve their goals and spent the money
+
+美国人都能顺势到那儿去，把最好的东西捡走
+After the money is spent, the Americans are able to go to that country along the way and take away the best benefit
+
+你到那去打，战争完，战场的果实都被美国收走
+The Communists go to some countries and fight for benefit, the war ends, the United States always collects the fruits of the war
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24](https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24)
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – Raul
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

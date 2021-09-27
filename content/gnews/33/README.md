@@ -2,190 +2,37 @@
 ---
 
 
-## 世界上各种力量和黑暗组织正在较量
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556745/)
+## 中共对恒大采取措施是继续欺骗，并为恒大破产做准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556758/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1777-a41t4-juabx.jpg)
-[https://gtv.org/video/id=615010d8d2e2b817486e3271](https://gtv.org/video/id=615010d8d2e2b817486e3271)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/azb4z-io9zi-1.jpg)图片来源：《零对冲》视频
+**《零对冲》引述了一篇《彭博社》关于恒大违约的观点的文章，其中心内容指中共政府已经采取了措施，确保恒大完成住房项目。言下之意，恒大公司宁愿违约支付债权人，也要确保在建的房产项目完成。政府出手了，购房者的利益可以得到保证。**
 
-**郭文贵**
+**据《零对冲》记者泰勒·杜登（TYLER DURDEN）在2021 年 9 月 24 日报道：恒大的外国债券持有人表示，他们尚未收到密切关注的 8350 万美元利息，该利息支付将于纽约时间周四午夜或香港时间周五中午到期，这实际上触发了硬违约之前的30 天的宽限期。 《彭博社》报道称，中国住房监管机构已“加强对中国恒大集团银行账户的监管，以确保资金用于完成住房项目，而不是转用于支付债权人。”**
 
-**Miles Guo**
+**报道称，住房和城乡建设部上个月指示全国各地部门对恒大房地产项目资金专项托管账户进行监管……一些城市已经开始实施这些措施。本月早些时候，买家包围了当地房管局，要求恒大重启建设，（广州）南沙区房管局本月以自己的名义设立了一个托管账户，接收恒大购房者的购房款。**
 
-这些重大的国际形势背后
-Detrás de estas grandes situaciones internacionales
+据国内新闻报道：中共中央就恒大债务出台处理措施，由各地政府自行解决。财经真相报道说，截止9月24日，除了上述报道中的广州南沙区房管局表示将接手恒大阳光半岛项目之外，尚未有任何一个地方政府部门出来表态，他们都采取了拖延和观望的态度。
 
-大家想到的经济
-Todos piensan en la economía
+资金短缺已经导致一些未完工的房屋停工，引发购房者的社会动荡。北京的首要任务更简单：维护社会秩序。心怀不满的投资者本月至少连续三天聚集在该公司的深圳总部抗议，中国其他地区抗议该开发商的视频也在网上广泛传播。
 
-香港的林郑月娥
-Carrie Lam de Hong Kong
+恒大的债务及后续事件由地方政府处理，意味着中央默许地方政府暴力镇压民众，否则，地方政府就必须想办法。地方筹资接盘恒大的项目，除了还债之外，还需要有更多的后续完成项目的资金。由于项目的估价非常虚高，大大超出地方政府的财税收入，地方政府基本是没有办法接盘的。投资人、施工队、承包商和材料供应商引发的社会动乱和抗议活动，地方政府大概率会动用警察和安保实行严厉的打击镇压。
 
-一个安全法
-Una ley de seguridad
+财经真相的节目中指出了针对房产措施的实质，并对楼宇买家给出建议：恒大全国800个楼盘，能否交楼取决权在业主，许家印的保交楼令根本没有用，纯粹就是忽悠和拖延。这些再建楼盘里已经封顶的，只要业主们积极维权尚有一丝希望能够交楼，没有封顶的铁定烂尾。而且随着时间流逝，恒大楼盘烂尾概率在增加，一旦过了中共二十大，基本再无任何希望。
 
-一个中央领导的讲话
-Un líder central habla
+郭文贵先生在2021年9月23日的直播中指出了恒大事件处理的实质：这是江派出谋划策来肢解恒大集团，实质上是掩饰和保护背后的影子银行、保险机构、信托等资金池。恒大爆雷将导致全球的金融市场崩溃。
 
-是香港稳定的基石
-Y es la piedra angular de la estabilidad de Hong Kong
+在9月24日的直播中，郭先生进一步指出：恒大就是庞氏骗局，恒大与平安以及许家印的结局会很悲惨。共产党会想出一堆办法让恒大不倒，但恒大最终一定会倒，而且会非常惨。而且许家印一定是车祸死、心脏病死、自杀、猝死这些结局。
 
-啪, 股票下来了, 860亿啊
-Pas, la capital social bajó, 86 mil millones
+**参考文章：**
+[https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors](https://www.zerohedge.com/markets/china-steps-ensure-evergrande-funds-used-complete-housing-project-not-pay-creditors)
 
-呱唧就下来了
-Así de una bajó
+**参考视频：2021年9月23/24日，GTV-郭文贵先生直播**
 
-几个点啊
-Cuántos puntos
+**（本文章仅代表作者个人观点）**
 
-香港这个市场是真钱
-El mercado de Hong Kong es dinero de verdad
-
-全部走人
-Todos se fueron
-
-然后国内的恒大
-Luego el Evergrande Group de China
-
-然后国内的所谓的
-Lo que supuestamente es
-
-这力那力、新力、富力
-Este Sinic Holdings, Guangzhou R&F Properties Co., Ltd.
-
-所有的这兵那兵
-Todos esos soldados
-
-共产党一系列的决策
-La serie de decisiones del PCCh
-
-然后在福建沿海严阵以待
-Luego es la preparación de antemano para esperar al infractor en la costa de Fujian
-
-随时要出马
-En cualquier momento sale
-
-打台湾这一系列的现象
-Una serie de fenómenos para atacar a Taiwán
-
-经济、政治、地域、文化
-En la economía, política, zona, cultura
-
-在中东, 大家看到了没有
-En Medio Oriente, todos vieron o no
-
-大家看一看
-Todos vean
-
-在2017年到现在爆料当中
-Durante las noticias desde el 2017 hasta ahora
-
-我多次说到过
-Yo en varias ocasiones mencioné
-
-姆努钦, 美国财长
-Steven Mnuchin, exadministrador de fondos estadounidense
-
-我跟美国好多朋友打过赌
-Aposté varias veces con muchos amigos estadounidenses
-
-我说我告诉你姆努钦最近会干啥
-Les dije que le decía qué haría últimamente Mnuchin
-
-大家现在注意到了吗
-¿ Ahora todos pusieron atención?
-
-看到一个姆努钦的报导
-Se vió un reporte de Mnuchin
-
-现在筹建了一个基金
-Ahorita está estableciendo un fondo
-
-筹资25亿美元
-Recaudando 2.5 mil millones de dólares
-
-公告出来了吧
-Ya salió el anuncio
-
-所有人全傻眼了
-Todos se quedaron boquiabiertos
-
-因为这个基金界的
-Porque en la industria de fondos
-
-我说姆努钦下一步会筹立基金
-Yo dije que el próximo paso de Mnuchin es establecer un fondo
-
-这个基金的钱来自于沙特
-El dinero de este fondo proviene de Arabia Saudita
-
-或者UAE
-O de los Emiratos Árabes Unidos
-
-但绝大多数是沙特
-Pero la mayoría es de Arabia Saudita
-
-而且沙特一定在这个交易
-Además, Arabia Saudita seguro hará y terminará esta transacción financiera
-
-5000亿美元跟中共做完
-Con el PCCh de 500 mil millones de dólares
-
-交易以后
-Luego de la transacción
-
-七哥是4年前和3年前告诉的国际基金组织
-Yo hace 3 y 4 años atrás le dije al Fondo Monetario Internacional
-
-所有的大咖们, 就这么准
-Todos estos grandes personajes, así de preciso
-
-这是不可能的事情
-Esto es imposible
-
-但是我就做到了
-Pero yo lo logré
-
-兄弟姐妹们什么意思
-Entienden qué significa esto hermanos y hermanas
-
-知道吗
-¿ Lo saben?
-
-世界的黑暗组织, 世界上的各种力量
-La organización oscura y todo tipo de fuerza de este mundo
-
-都在较量中
-Están en una competencia
-
-都在较量
-Están compitiendo
-
-就在这方圆不超过十个Miles
-En este diámetro no sobrepasa de 10 Miles
-
-那么这些人现在也意识到一个最大的问题
-Entonces estas personas ahora se dieron cuenta de un gran problema
-
-所有的人只要有一天
-Algún día todas las personas
-
-共产党强大了
-Será aniquilada
-
-这些人都会被消灭
-Cuando el PCCh logre ponerse poderoso
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24](https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24)
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+作者: 洛杉矶盘古农场 – 蓝精灵
+校对/编辑：洛杉矶盘古农场 – 明子
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

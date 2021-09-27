@@ -2,33 +2,38 @@
 ---
 
 
-## 视频| 真相工程- FDA人员主张挨家挨户“吹飞镖”式注射，迫使未打疫苗者就范
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1556970/)
+## 郭文贵直播摘要和音频2021.9.26
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1557035/)
 
-制作：香草山视频部
+摘要撰稿人： 文俊
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+音频提供者： 左媛
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-26-at-10.15.44-PM.png)
 
 
+### 视频：
 
+[视频链接：](https://gtv.org/video/id=6150769942a8af3151a5b28f)
 
+### 音频：
 
-*发稿：雪梨*
+### 摘要：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+1. 全球每年芯片总市值：1.3万亿美元
+2. 共产党控制2/3芯片 扯蛋的事 没有支配权
+3. 七哥推荐三本：1.弗洛伊德”人际关系” 2.日本版”中国的结社文化” 3.德国版斯大林
+4. 森林深处 33万元七哥心领了 法治基金也心领了
+5. 近期大额捐款 七哥都拒绝了 包括小SARA她妈妈
+6. 目前不接受战友大额捐款，不接受捐助喜币，不接受捐GTV股份。未来战友们盈利后才有机会大额捐助。
+7. 华为就是共产党的情报机构，它的亲爹，总参二部，军方的情报部门
+8. 任正非海外3000亿美元，代持人是孟晚舟，她死了钱就没了 所以她不能死 孟就是取钱的密码
+9. 天上人间出来了一个叫 燕子 的 搞了一个牛郎店 好多非洲牛郎 香港女的好多被搞定了 叶刘淑仪爱死那儿了
+10. 未来两年代替芯片的技术就是生物芯片
+11. 美国3个家族曾经拥有美国一半财富的: 罗斯柴尔德 摩根 洛克菲勒 这3大家族现在不再有一半财富 但是它的影响力还在
+12. 这些家族大量抛售所有和中概股有关的资产 但他们掩藏得非常好 更可怕的 他们也抛美国的好多核心资产
+13. 朱立伦100%是共产党的人
+14. 2022年底是大决战
+15. 苏哈托排华的最大问题是中共造孽华人买单 当然华人的懦弱和不团结也是原因之一
+16. 欧洲不超过一个月停止强制打疫苗 美国和日本跟进政策 同时伊维菌素青蒿素羟氯喹都会开放使用 世界经济危机一定会来

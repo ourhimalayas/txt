@@ -2,8 +2,8 @@
 ---
 
 
-## 中共为掩盖能源危机 以节能为借口下令浙江省企业停产
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556885/)
+## 美国俄勒冈州参议员起诉美国食品药物管理局和疾病控防中心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1556889/)
 
 栏目记者/责任编辑：文真
 
@@ -12,22 +12,16 @@
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
 
 
-
-9 月 25 日消息：中共政府正在敦促各地方政府减少能耗。早在今年8月，在中共发改委公布的一份文件中将浙江等几个省份被评定为 ”二级警告“，这意味着浙江等省在能源方面已经面临严峻挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture1-5.jpg)
-作为中共国东部沿海的制造业中心，这次浙江省大约160家能源密集型企业收到停产令，主要集中在纺织、印染和化纤行业。近80%的受影响企业位于马鞍山，该地区已于9月21日至30日发出停产令。
-
-随着国际能源价格上涨以及中共外汇紧缺，已经导致中共国煤炭供应短缺，发电供电明显不能满足纺织、石化等高耗能行业的需求。
-
-被勒令停产的企业，将推迟订单交付，会极大的影响供应链和资金链，甚至导致企业破产倒闭，和失业大潮等连锁反应。
-
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5-5.jpg)
+美国俄勒冈州两位参议员，撒切尔和林西科姆，联合提交一份正式请愿书，要求联邦大陪审团调查美国食品药物管理局和疾病控防中心。证据表明这两个机构在中共病毒疫情处理方式和死亡人数上撒谎。 在科学、法律和公共政策专家的帮助下，撒切尔和林西科姆在过去九个月里一直在准备他们的证据和请愿书。他们的目标是纠正所有以抗击疫情的名义，向民众施行的暴政。他们提交的公函包括8份展示资料和20份证据参考。例如，在《科学、公共卫生政策和法律》杂志上发表的一项研究，全面概述了早在2020年3月，CDC突然改变死亡证明的记录方式，将任何原因的死亡都标记为”新冠死亡“。 只有民众联合抵制，才能终结食品药物管理局和疾病控防中心的医疗暴政。截至目前，俄勒冈州各地已经收集了大约62,200个签名。随着越来越多的俄勒冈人了解到这封请愿书的意图，预计这个数字将大幅上升。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5a.jpg)
 （本文仅代表作者观点）
 
-参考链接：[中共为掩盖能源危机 以节能为借口下令浙江省企业停产](https://asia.nikkei.com/Spotlight/Caixin/China-s-Zhejiang-orders-production-suspensions-to-meet-energy-targets)
+参考链接：[美国俄勒冈州参议员起诉美国食品药物管理局和疾病控防中心](https://www.survivethenews.com/oregon-senators-sue-cdc-fda-for-lying-about-covid-deaths/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
 
-终审编辑：Q大哥
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
