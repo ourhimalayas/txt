@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 3:00 AM (UTC)`
+
+1026：这是咋回事呀……
+![img](https://media.gettr.com/group24/getter/2021/09/27/03/00/19f87886-320a-b05e-410a-8a057c22883c/906a16e39dc3ffe9227eb84c768762bf.jpg)
+
+---
+
 `@miles 9/27/2021 2:49 AM (UTC)`
 
 <br/>10月26日：共产党的这一切都是假的，爱国都得造假，他们为什么要造假呢？就是诱骗更多傻爱国的人！
@@ -289,14 +296,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9月22号：历史是现在和未来最好的证明！
 ![img](https://media.gettr.com/group31/default/20210923/01/02/6fb171bb-6c60-b7b7-307d-e3b9b3fa459b/out.jpg)
-
----
-
-`@miles 9/22/2021 10:52 PM (UTC)`
-
-😫🆘🆘🆘🆘🆘🆘
-> `@mildseven 9/22/2021 7:43 PM (UTC)`<br/>Pressekonferenz Tod durch Impfung/Undeklarierte Bestandteile der #COVID -19-Impfstoffe am 20.09.2021<br/>nun auf GTV.org verfügbar.<br/>(Youtube hat die Pressekonferenz mehrfach gelöscht.)<br/>20/09/2021年9月20日的 *德语*新闻发布会：疫苗接种导致的死亡和#COVID -19疫苗的未申报成分。<br/>内含大量解刨图片和各种疫苗污染物的视频。<br/>现在可以在GTV.org上看到。<br/>(Youtube已经多次删除了新闻发布会的内容)。<br/>https://gtv.org/video/id=614b401442a8af3151a34afa
-![img](https://media.gettr.com/group34/origin/2021/09/22/19/01847894-3f78-5f34-bedf-30e533fde16b/86f54c6439b57006898783ed0b581b2d.jpg)
 
 ---
 
