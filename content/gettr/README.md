@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 4:37 PM (UTC)`
+
+👏👏👏
+> `@taiwanparis 9/24/2021 5:30 PM (UTC)`<br/>TW新聞快訊 疫苗真相 傳播📣
+![img](https://media.gettr.com/group20/getter/2021/09/24/17/30/31d61095-5224-ec7c-46fd-4918a6846ebf/out.jpg)
+
+---
+
+`@miles 9/27/2021 4:37 PM (UTC)`
+
+9月27号：尊敬的战友们好……七哥建议所有的战友们要认真思考，未来一两年的生活和生存的方式，严肃认真的对待社会结构及政治各方面改变带来的冲击，特别是要对疫苗灾难的脑梗，心梗等各种不可预料的交通灾难事件的发生必要的防护！
+![img](https://media.gettr.com/group41/getter/2021/09/27/16/37/7a6a0d71-26f5-98f6-dff2-b205d68e7f84/out.jpg)
+
+---
+
 `@miles 9/27/2021 3:39 PM (UTC)`
 
 10月27号：七哥又蒙对了．德国的社会结构，政治结构将彻底改变。
@@ -282,21 +297,6 @@ WOW
 
 9月23号：<br/>科兴疫苗要收回这是真的吗？<br/><br/><br/>http://mp.weixin.qq.com/s/YHhfG4E2t-Fk
 ![img](https://media.gettr.com/group44/default/20210924/02/51/8f270eaa-5583-18be-b466-2d2729d49e26/24931a5ceb1169927475a7005637f5e9.jpg)
-
----
-
-`@miles 9/24/2021 1:52 AM (UTC)`
-
-💪💪💪
-> `@alexjones 9/23/2021 10:13 PM (UTC)`<br/>REVEALED: Daszak Admits #Fauci Funded Chinese Coronavirus Research at Conference Featuring Hunter Biden-Linked Pandemic Group<br/><br/>📡 LIVE Weekdays at 11am CST & Sundays at 4pm cst: https://freeworldnews.tv/channel/the-alex-jones-show<br/><br/>📲 Sign Up For Live Broadcast Alerts! - Text: 'SHOW' To: (833) 637-1776<br/><br/>🦠 #COVIDLAND - The Lockdown: https://ifw.io/3kg
-![img](https://media.gettr.com/group19/default/20210923/22/12/cfcf0c0b-84b3-5a9d-d30d-bafc9615b632/out.jpg)
-
----
-
-`@miles 9/24/2021 12:10 AM (UTC)`
-
-9/23/2021 Miles Guo gives an alert to all the overseas Chinese that an anti-Chinese movement is brewing around the world. The hatred against the Chinese people is escalating due to the disasters caused by the coronavirus and its vaccines. Racist actions targeting the overseas Chinese are expected to take place around the world the next year<br/><br/>9/23/2021 文贵直播：警告所有海外华人，全世界正在酝酿一场反华运动！由于冠状病毒及其疫苗的灾难，国际上对中国人的仇恨愈演愈烈，预计明年在海外会出现排华的灾难！
-![img](https://media.gettr.com/group42/default/20210924/00/10/10459adc-5433-329c-4d67-afe211d91ab4/out.jpg)
 
 ---
 
