@@ -2,15 +2,46 @@
 ---
 
 
-## 2021年9月26日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558344/)
+## 中共在全球范围镇压和扼杀侨民的意志
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1558377/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-5.jpg)网络图片
 
-9/26/2021 Miles Guo: My revelation on Ping An Group and Lufax has had a huge impact on our platform! If the Zhongnan Pit ordered to shut down Lufax, then the US will end up in the biggest financial crisis in history! The Rothschild family, Rockefeller family, and Morgan family that used to own half of the wealth in America have been massively dumping their shares related to the CCP and Hong Kong, and their core assets in the US, indicating that both the CCP and the whole world will be in trouble.
+根据最近的一份报告，中共国发动了“世界上最大规模的跨国镇压”，以确保全球华人社区遵守中国共产党的路线。
 
-9/26/2021 文贵直播：关于平安和陆金所的爆料在我们的平台产生了巨大影响！如果中南坑下令关陆金所，那么美国将进入有史以来最大的经济危机！曾拥有美国一半财富的罗斯柴尔德家族、洛克菲勒家族和摩根家族正在抛售跟中共和香港有关的股份和美国的核心资产，这说明中共和全世界到要出事了！
+这场广泛的运动针对逃离中共国的持不同政见者和与政治不同观点的人。根据隶属于法国的独立机构军事学校战略研究所(IRSEM)近650页的报告，北京的策略包括间谍、恐吓、威胁、骚扰、人身攻击以及对留在中共国的亲属施加压力。全面了解掌握中国人在全球的行动及影响力。
 
-[【2021年9月26日】文贵先生盖特原文](https://gettr.com/post/pcc1d645d9)
+该政权还直接向至少九个国家施加压力，要求逮捕那些被中共国当局通缉的人。
 
-**喜联盟Gnews编辑部**
+根据中共国国务院下属的一个与海外华人联络的行政机构，侨务办公室的数据显示，约有6000万华人居住在中共国境外，其中美国的华人居多。
+
+报告称，对中共政权来说，这些人是首要的“优先目标”，因为他们更容易接触到批评中共的未经审查的观点，并且很可能将这些信息传播给他们在中共国的亲属。
+
+尽管他们中的绝大多数人已是外国公民，不能被视为中国公民，但北京方面坚持认为所有海外华人都是一个血脉相连的“中国大家庭”的成员，同时将那些越轨的人称为“叛徒”。
+
+2019年8月23日，中共国驻立陶宛大使和中共国大使馆官员参加了反抗议活动，以破坏支持该市民主运动的亲香港集会。在警方介入并逮捕了两名中国公民后，几名中国外交官带着他们的使馆徽章接近警方，要求释放被拘留者。立陶宛随后召见中国特使提出抗议，称中共国大使馆工作人员“参与并组织非法行动”。
+
+在瑞典，两名代表中共国政府的商人试图让维权人士安吉拉·桂闭嘴，她是在中国出生的瑞典书商桂民海的女儿，北京于2020年被判入狱10年。在2019年 2月在斯德哥尔摩举行的会议上，该商人称，如果她停止与媒体交谈，她的父亲就会获释。其中一个男人告诉她，如果她不信任他们，她可能再也见不到父亲了。
+
+会议由瑞典驻华大使安娜·林斯泰特发起。在瑞典引起公众强烈抗议后，该国从北京召回了林斯泰特，并对她进行了调查。
+
+安吉拉·桂远不是唯一一个受到中共特工威胁的海外华人。
+
+加拿大女演员阿纳斯塔西娅·林(Anastasia Lin)因是法轮功的修炼者以及她在人权问题上的直言不讳而引起北京的愤怒。她发现自己被北京宣布为“不受欢迎的人”，并拒绝了中国签证。在她于2015年加冕加拿大世界小姐后，她接到了在中共国湖南省经营一家大企业的父亲的电话，告诉她中国安全部曾拜访过他。在当局的压力下，林的父亲恳求她停止行动。
+
+这些都有可能发生在任何人身上
+
+简评：中共把“虽远必诛”的手段淋漓精致的用在了海外华人和持不同政见者身上，一个流氓政权的丑恶嘴脸暴露无遗。
+
+原文链接： [https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds\_681176.html](https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds_681176.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

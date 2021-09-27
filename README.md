@@ -15,122 +15,122 @@
 
 ---
 
-### [2021年9月26日 文贵先生盖特 6](/content/gnews/1/README.md)
+### [2021年9月26日 文贵先生盖特 10](/content/gnews/1/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年9月26日 文贵先生盖特 5](/content/gnews/2/README.md)
+### [2021年9月26日 文贵先生盖特 9](/content/gnews/2/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [世界各国每分每秒都在变化](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年9月26日 文贵先生盖特 4](/content/gnews/4/README.md)
+### [2021年9月26日 文贵先生盖特 8](/content/gnews/3/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [疫苗灾难真的没有开始，是因为印钞票全掩盖了](/content/gnews/5/README.md)
+### [中共在全球范围镇压和扼杀侨民的意志](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年9月26日 文贵先生盖特 7](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月26日 文贵先生盖特 6](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年9月26日 文贵先生盖特 5](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中共国习近平在致台湾反对党的信中警告台湾局势“严峻”](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [世界各国每分每秒都在变化](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共军事专家杜文龙说，基因武器将是下一代大规模的杀伤性武器](/content/gnews/6/README.md)
+### [2021年9月26日 文贵先生盖特 4](/content/gnews/10/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [疫苗灾难真的没有开始，是因为印钞票全掩盖了](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [孟晚舟签订暂缓起诉协议是福是祸？](/content/gnews/7/README.md)
+### [中共军事专家杜文龙说，基因武器将是下一代大规模的杀伤性武器](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角](/content/gnews/8/README.md)
+### [孟晚舟签订暂缓起诉协议是福是祸？](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [每日快报： “我们面临巨大压力”——中国开发商现金紧缩波及融创](/content/gnews/9/README.md)
+### [每日快报： “我们面临巨大压力”——中国开发商现金紧缩波及融创](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳总理：澳大利亚对话中共的大门始终是敞开的](/content/gnews/10/README.md)
+### [澳总理：澳大利亚对话中共的大门始终是敞开的](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [强迫中共病毒疫苗接种是一场大规模的第 3 阶段人体试验](/content/gnews/11/README.md)
+### [强迫中共病毒疫苗接种是一场大规模的第 3 阶段人体试验](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国共和党参议员痛批释放孟晚舟](/content/gnews/12/README.md)
+### [美国共和党参议员痛批释放孟晚舟](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [英国军舰罕见高调穿越台湾海峡](/content/gnews/13/README.md)
+### [英国军舰罕见高调穿越台湾海峡](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [朕被算计了](/content/gnews/14/README.md)
+### [朕被算计了](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾卖台贼与共产党公开勾兑](/content/gnews/15/README.md)
+### [台湾卖台贼与共产党公开勾兑](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [德国大选变天, 社民党胜出墨克尔的基民党](/content/gnews/16/README.md)
+### [德国大选变天, 社民党胜出墨克尔的基民党](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [福奇称除非大规模接种新冠疫苗，否则美国将面临一个“黑暗的冬天”](/content/gnews/17/README.md)
+### [福奇称除非大规模接种新冠疫苗，否则美国将面临一个“黑暗的冬天”](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [墨尔本反强制接种疫苗活动的组织者被捕](/content/gnews/18/README.md)
+### [墨尔本反强制接种疫苗活动的组织者被捕](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生直播分享重要信息](/content/gnews/19/README.md)
+### [郭文贵先生直播分享重要信息](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [9/27/2021国际财经快讯：美民主党同意3.5万亿美元法案；美国为加密货币规则奠定基础](/content/gnews/20/README.md)
+### [9/27/2021国际财经快讯：美民主党同意3.5万亿美元法案；美国为加密货币规则奠定基础](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国科学家正在研究含有mRNA新冠疫苗成分的可食用植物](/content/gnews/21/README.md)
+### [美国科学家正在研究含有mRNA新冠疫苗成分的可食用植物](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美国务院拟成立“中国小组”监控中共海外活动](/content/gnews/22/README.md)
+### [美国务院拟成立“中国小组”监控中共海外活动](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [口罩凶杀案后，德国当局着手打击电报平台上反对疫苗和封锁的声音](/content/gnews/23/README.md)
+### [口罩凶杀案后，德国当局着手打击电报平台上反对疫苗和封锁的声音](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [中共国恒大旗下电动汽车公司在发出警告后股价暴跌26%](/content/gnews/24/README.md)
+### [中共国恒大旗下电动汽车公司在发出警告后股价暴跌26%](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [企业限电, 辽宁发生煤气泄漏多人中毒](/content/gnews/25/README.md)
+### [企业限电, 辽宁发生煤气泄漏多人中毒](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [2021年9月26日 文贵先生盖特 3](/content/gnews/26/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [9/26/2021 七哥直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨](/content/gnews/27/README.md)
+### [9/26/2021 七哥直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [两位顶级病理学揭示了从未出现过的十起疫苗死亡](/content/gnews/28/README.md)
+### [两位顶级病理学揭示了从未出现过的十起疫苗死亡](/content/gnews/33/README.md)
  ` wenwu`
 
-### [麻州民众反对强制疫苗 但对疫苗危害认知有限](/content/gnews/29/README.md)
+### [麻州民众反对强制疫苗 但对疫苗危害认知有限](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [9/26/2021 七哥直播：生物芯片将取代现有的半导体芯片，华为也在研究中](/content/gnews/30/README.md)
+### [9/26/2021 七哥直播：生物芯片将取代现有的半导体芯片，华为也在研究中](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|意大利爆发大规模反疫苗护照示威游行](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [法官驳回警察工会推迟麻省疫苗强制令的请求](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [香港支联会周六投票解散](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [文·贵天成——文贵先生谈“恒大许家印”（九）](/content/gnews/34/README.md)
+### [文·贵天成——文贵先生谈“恒大许家印”（九）](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [红色公主风光回国 海外游子垂死挣扎](/content/gnews/35/README.md)
+### [红色公主风光回国 海外游子垂死挣扎](/content/gnews/37/README.md)
  ` 首尔天池农场`
 
-### [加密货币交易所巨头因禁令加宽而缩减中共国用户数](/content/gnews/36/README.md)
+### [加密货币交易所巨头因禁令加宽而缩减中共国用户数](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [问题不仅仅是习近平；这是共产主义](/content/gnews/37/README.md)
+### [问题不仅仅是习近平；这是共产主义](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共拿下朱立伦，为夺台积电全面侵占台湾埋下伏笔](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [捷克大亨：希望欧洲更多的反对中、俄的腐败和干涉](/content/gnews/39/README.md)
- ` Charlie`
 
 ### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/40/README.md)
  ` wenwu`

@@ -2,39 +2,45 @@
 ---
 
 
-## 麻州民众反对强制疫苗 但对疫苗危害认知有限
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558013/)
+## 口罩凶杀案后，德国当局着手打击电报平台上反对疫苗和封锁的声音
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558088/)
 
-作者：香草山农场-葛朗台太太
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+栏目记者/责任编辑：AsG諾雅
 
 
 
-联邦法院推迟了纽约市对教师的疫苗强制接种授权的新闻受到广泛关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/merlin_194458599_630804d2-f61f-4574-8500-9a24aae74ec4-superJumbo.jpeg)
-Boston 25 News在其脸书账号转发相关新闻，并且提问：你认为雇主应该不应该实施强制疫苗？ 截稿前，这个帖子收到了507个评论，评论几乎全是反对强制疫苗的。评论中不乏已经打了疫苗的民众。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-反对的原因主要出于两点：政府强制疫苗是违法行为，每个人拥有选择医疗手段的权力。
 
-虽然目前，麻州已经有超过四百六十六万人，占人口比例的67.6%接种过两针疫苗，但是强制疫苗因为触及到了自由民主的底线遭到民众反对。
 
-很可惜的是：评论里没有人指出新冠疫苗的危害。疫苗危害的真相还需要爆料革命战友更大力度的传播。
 
-参考链接： [https://www.facebook.com/168744703121/posts/10159030164478122/?d=n](https://www.facebook.com/168744703121/posts/10159030164478122/?d=n) [https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/](https://www.newyorkglobe.co/2021/09/25/a-federal-appeals-court-delays-new-york-citys-vaccine-mandate-for-teachers/)
 
-校对/发稿：飞虹
+国家脉动9月25日报道，德国政府开始向社交媒体平台施压，要求对发布被称为 “新冠误导信息”的团体进行审查，起因据称是9月18日一名加油站收银员因戴口罩问题，与顾客发生争执而被杀害。 图林根州的内政部长乔治-梅尔特别要求，紧急监管并将电报（Telegram）归类为社交网络，而不是信息传递平台，以便将新规则强加给该平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-11.jpg)
+目前，德国的网络执行法要求，社交媒体平台应删除任何政府认为的“犯罪”内容，甚至向联邦刑事政策局报告。尽管有大量事实证明主流政客、卫生官员、主流媒体在口罩、疫苗、疫情等主题上传播了错误信息，却没有任何社交平台删除他们的账号。 爆料革命一直旗帜鲜明地向世界传播中共病毒和疫苗都是中共超限生物战的武器，政府不能利用民众的信任，实施专制政策和迫使人们接种疫苗。只有GTV、GNews和盖特是我们发声和宣传真相的唯一可信任的平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-94.jpg)
+参考链接：
+[After a Murder Over Mask-Wearing, Authorities Are Cracking Down on COVID Skeptics on Telegram.](https://thenationalpulse.com/news/after-a-murder-over-mask-wearing-authorities-are-cracking-down-on-covid-skeptics-on-telegram/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

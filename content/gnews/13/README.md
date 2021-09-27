@@ -2,41 +2,41 @@
 ---
 
 
-## 英国军舰罕见高调穿越台湾海峡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558198/)
+## 孟晚舟签订暂缓起诉协议是福是祸？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558280/)
 
-栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-79.jpg)图片来自RFI
+2018年12月1日，华为财务总监孟晚舟在温哥华机场被加拿大警方逮捕。此后，中、加、美三方，围绕此事件展开了充分的博弈。经历近3年时间之后，据报道，2021年9月24日，美司法部与孟晚舟达成协议，允许其返回中共国。25日，孟乘坐中共转机，降落深圳。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+孟晚舟签的是一份暂缓起诉的和解书。因为案件还没到最后庭审的阶段，所以也不存在孟晚舟是不是要当庭认罪。根据这份和解书，美国政府暂时选择不起诉孟晚舟，孟晚舟可以立即获得自由，但孟晚舟在和解书里承认了几乎所有美国司法部的事实指控，而且不得反悔或改口。
 
+那么孟晚舟具体承认了什么呢？
 
+\* Skycom是华为在伊朗的长期附属公司，华为精心策划了2007年的交易，看起来是两个无关方之间的公平交易，但实际上华为实际控制了购买Skycom的公司；
 
-周一，隶属英国皇家海军“伊丽莎白女王”号航母打击群的“里士满”号护卫舰，罕见高调穿越台湾海峡，并公开发布推文，称正通过台湾海峡前往越南访问越南海军。
+\* 华为通过Skycom向伊朗销售了包含美国芯片的设备，违反了美国对伊朗的制裁和出口管制法；
 
-中共官媒《环球时报》以“张狂”为标题报道了这一消息。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/PP2，4.003.jpeg)
-“伊丽莎白女王”号航母打击群目前在印太地区的行动是其首次“全球部署”的一部分。本月初停靠访问日本时，英国皇家海军一位高级官员曾在日媒采访中表示，台湾海峡是一个国际航运通道，也是自由与开放的印太地区的一部分。但此前英国媒体报道，为了不引起中共的反应，此番航母打击群不会驶过台湾海峡。
+\* 孟晚舟和华为在与香港银行开展金融业务的事实，隐瞒了华为与Skycom的真实关系；
 
-虽然美国军舰频繁通过台湾海峡，但英国等美国的盟国很少派军舰穿越这一敏感海域。英国海军今天的高调行动，显示了英方的态度转变。
+\* 孟晚舟和她律师对于和解书以及事实部分的签名。
 
-英国在脱欧后重新评估了自己在世界秩序中的位置，并将印太地区视为英国国防和外交政策的重点，认为维护印太地区航行自由对英国的国家利益至关重要。台海的重要性和中共对台的明显企图，已改变了各国的军事策略，激发了世界对中共霸权主义行径的反击。
-(本文仅代表作者观点)
+就在孟晚舟签署这份和解书的同时，被中共扣押当作人质的两位加拿大人已经在中国获释并已经在返回加拿大的途中。如此巧合的时机，说明孟晚舟的和解书和中共放人互为交换条件。也就是说，孟晚舟签这份和解书提前获得了中共的批准。
 
-参考链接：
+孟晚舟为什么要承认这么些事实？她请的是顶级律师团，在加拿大法院打了三年官司，这说明她的律师认为最终获胜的可能性比较小，才会接受这个方案。当然美国盗国贼家族的利益必不可少。
 
-1. [罕见！英国军舰穿越台湾海峡](https://www.voachinese.com/a/uk-warship-taiwan-straits-20210927/6246857.html)
-2. [英军舰“里士满”号罕见穿越台湾海峡](https://www.epochtimes.com/gb/21/9/27/n13263522.htm)
+美国司法部为什么要这么选择？惩罚孟晚舟个人不是最终目的，华为才是它要调查的对象。美国司法部今天发的声明就明确说了：“孟晚舟已经承认了华为非法销售受限产品到伊朗和欺骗金融机构的事实。我们将继续针对华为的案子，我们期待在法院证明我们的案子。”有了孟晚舟的这个事实承认，华为在美国将无法翻案，只会遭受更严厉的惩罚。
 
+加拿大为什么要这么选择？孟的案子对于加拿大来说是一个烫手山芋，夹在中美之间的冲突十分难受。小土豆因为那两个加拿大人的事屡遭民众质疑，现在终于可以松一口气了。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+所以综合看来，华为是这场勾兑的最大输家。舍弃华为也要将孟弄回国，一是共产党爱“面子”，宣传“爱国主义”教育；二是习近平看中的是自己通过华为在海外藏的三五千亿美元的“党产”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-38.jpg)图片来自新浪新闻
+孟晚舟手里拿着党国的秘密和“党产”，享受着西方国家的法制和自由制度，本来她一人留在美国可保证任正非一家平安。华为本来是个被共产党隐藏起来的大鳄鱼，结果现在，其隶属解放军总参二部的身份已暴露。大鳄鱼露了头，甚至被拉上岸，无法继续潜行，不堪重用。这逻辑也适用于孟晚舟女士，希望她能一切平安，还能有在与身在加拿大的家人团聚的一刻。
 
-终审：FoxRina
-校正/发稿：我不在这里
+素材来源：[https://www.justice.gov/opa/pr/chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial](https://www.justice.gov/opa/pr/chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作者：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

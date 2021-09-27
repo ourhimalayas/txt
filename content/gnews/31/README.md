@@ -2,37 +2,37 @@
 ---
 
 
-## 有声|意大利爆发大规模反疫苗护照示威游行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1558000/)
+## 企业限电, 辽宁发生煤气泄漏多人中毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558053/)
 
-配音：纽约香草山美食部 – 玫瑰园
+栏目记者/责任编辑：文扬四海
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
+9月24日，辽宁澎辉铸业有限公司发生高炉煤气中毒事故。事故原因是当地政府拉闸限电设备停机导致煤气泄漏，共有23人煤气中毒。目前伤者仍在医院接受观察治疗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/视频备用1、3、5.001-1.jpeg)
+据悉，近日中共国内很多地区分别出台了不同程度的限电/断电政策，严重影响了当地工业/农业生产和民众日常生活。有的地方政府公示称将 “不定期、不定时、无计划、无通知停电限电” ，且此情况至少将持续到2022年3月份。
 
-意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
+郭文贵先生直播透露，中共国内因为受脱钩影响外汇吃紧，导致进口原材料供应不上，煤炭价格由此不断攀高，直接影响到墙内的电力供应，目前的电力能源仅能满足市场 40%左右的需求，号称强国的中共国,未来停电限电或将成为常态，由此导致的各种乱象、事故甚至伤亡也将越来越多。
+(本文仅代表作者观点)
 
-评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
+参考链接：
 
-[文字版原文：意大利爆发大规模反疫苗护照示威游行](https://gnews.org/zh-hans/1556807/)
+1. [辽宁一企业因限电发生煤气泄漏 23人中毒](https://c.m.163.com/news/a/GKT4S37N00019K82.html?spss=newsapp)
+2. [辽宁辽阳一企业发生煤气泄漏](https://news.stcn.com/sd/202109/t20210927_3716163.html)
 
-音频处理：喜山必胜Maverick
 
-*发稿：*Yuki jiang
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+终审：文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

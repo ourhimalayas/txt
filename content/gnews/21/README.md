@@ -2,10 +2,10 @@
 ---
 
 
-## 美国科学家正在研究含有mRNA新冠疫苗成分的可食用植物
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558104/)
+## 台湾卖台贼与共产党公开勾兑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558175/)
 
-栏目记者/责任编辑：文真
+栏目记者/责任编辑：火来
 
 
 
@@ -15,17 +15,16 @@
 
 
 
-美国国家科学基金会提供50万美元经费资助一项研究，使可食用植物携带与mRNA疫苗相同的成分。 来自加州大学河滨分校、圣地亚哥分校和卡内基-梅隆大学的科研团队，正在用菠菜和莴苣测试，将mRNA新冠疫苗基因注入植物的叶绿体。这些成分对植物并没有传染性，但是通过食用，人体细胞可以吸收这些化学物质，达到和注射一样的效果。 这显然是一项有争议的、危险的科学研究。新冠疫苗mRNA基因成分正在被伪装成食物。当食物有“转基因”标记的时候，民众能否清楚地得知，这种“转基因”来自mRNA疫苗成分。mRNA疫苗的转基因食物应该归属于药物和可食用“疫苗”，而民众应该享有知情权和选择权。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-10.jpg)图片来源： 网络
+9月25日，时隔5年 ，朱立伦再次当选台湾国民党主席。9月26日，习近平给朱立伦发去贺电，强调“九二共识”，反对“台独”。而作为台湾新当选的国民党主席朱立伦回信，极尽阿谀跪舔之能事，表示将全面彻底的与共产党合作，将台湾的核心利益拱手相让，将台湾百姓的安全抛之脑后，成了不折不扣的卖台贼。台湾的未来由台湾百姓做主，由不得像朱立伦这样的卖台贼左右。中共在香港的所作所为已经充分证明了，台湾一旦落入中共之手，将会被更加残酷的蹂躏和践踏，中华文明的最后一篇净土也将化为乌有。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-40.jpg)
 参考链接：
-[Vaccines in your salad? Scientists growing medicine-filled plants to replace injections](https://www.studyfinds.org/vaccines-salad-growing-plants/)
-[Salad vaccines? Mad scientists want to grow mRNA covid “vaccines” in genetically modified lettuce, so you can EAT spike protein bioweapons as required by government](https://dreddymd.com/2021/09/26/scientists-grow-mrna-covid-vaccines-in-genetically-modified-lettuce/)
+[郭先生盖特： 9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！](https://gettr.com/post/pcb3w6da92)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-终审： Ryan
+终审： 鬼五
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
