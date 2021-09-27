@@ -2,15 +2,11 @@
 ---
 
 
-## 2021年9月26日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558397/)
+## CCP百年百罪 合集（1-25 罪）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1558458/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+百年百罪 中共卖国之源；中共是外来组织；里通外国；杀人如麻；武装暴动；武装保卫苏联；分裂国家；恐怖杀戮；滥杀无辜；富田事变；肃反杀人；发动内乱；绑架勒索杀人；策动西安事变；卢沟桥事变疑团；勾结日伪；晋西事变; 黄桥战役; 制造毒品；延安整风；思想控制；挑起内战；苏俄援助；长春围城；把平民当炮灰
 
-9/26/2021 Miles Guo: Meng Wanzhou’s return to China is the beginning of her personal tragedy! Her ending must be very miserable! Huawei, as the core of the CCP’s battle with the whole world will eventually be sacrificed! This deal for Meng Wanzhou’s return to China is actually a surrender of the US to the CCP. However, this is a great help to our Whistleblowers’ Movement!
+【CCP百年百罪】合集（1- 25罪）
 
-9/26/2021 文贵直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨。华为作为中共与世界较量的核心定会被牺牲掉。这次孟晚舟交易事件等于美国向中共投降。这对我们爆料革命是巨大的帮助。
-
-[【2021年9月26日】文贵先生盖特原文](https://gettr.com/post/pccgks40cc)
-
-**喜联盟Gnews编辑部**
+喜马拉雅华盛顿DC农场出品

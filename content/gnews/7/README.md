@@ -2,40 +2,13 @@
 ---
 
 
-## 中共已向世界输出“杀人疫苗”超过12.5亿剂
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1558513/)
+## 2021年9月27日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558597/)
 
-**By:秘翻新闻**
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-***2021-9-27***
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/927-2.jpg)](https://gtv.org/broadcast/watch/615186f142a8af3151a6700e)点击图片观看视频
-**新闻摘要:**
+4月27号：就是这本书！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-7.gif)![](https://assets.gnews.org/wp-content/uploads/2021/09/d8bfdfb945db7e24f26510082799b266.jpg)
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcea7nce2e)
 
-1、孟晚舟回国会生不如死 华为的灾难刚刚开始
-
-2、孟晚舟坐包机回国 花多少钱？
-
-3、恒大世纪欠外债高达1千亿美元，新一代的芯片的较量是生物芯片
-
-4、恒大汽车部分项目停工 欠薪欠款情况恐恶化
-
-5、关于中共病毒及其疫苗的重要事实！
-
-6、火币交易所将在 2021 年底前清退现有的大陆客户
-
-7、沈阳理工学生遭室友杀害 身中百刀
-
-8、中共已向世界输出“杀人疫苗”超过12.5亿剂
-
-9、R.1新变种毒株疫苗逃逸能力强 37国上万人感染
-
-10、第二次世界大战以来，CCP病毒大流行病使人的预期寿命缩短最多
-
-**GTV链接：**[https://gtv.org/video/id=615186f142a8af3151a6700d](https://gtv.org/video/id=615186f142a8af3151a6700d)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+**喜联盟Gnews编辑部**

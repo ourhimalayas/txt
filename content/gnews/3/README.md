@@ -2,27 +2,13 @@
 ---
 
 
-## 全球金融危机即将到来 华为厄运刚刚开始
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558546/)
+## 2021年9月27日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558617/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-14.png)
-文章仅代表作者本人观点，与Gnews无关
+9月27号：哇塞，已经排第一了，太不可思议了，这就是行动和信仰的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/638f4e83ee4da1a790217fce9a895eea.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-8.gif)
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcck7yf883)
 
-视频参看：2021.09.27早GTV新闻访谈
-
-[https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4](https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**喜联盟Gnews编辑部**

@@ -2,46 +2,33 @@
 ---
 
 
-## 中共在全球范围镇压和扼杀侨民的意志
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1558377/)
+## 意大利爆发大规模反接种护照示威游行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558429/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-5.jpg)网络图片
+栏目记者：正义的小新
+ 责任编辑：文一
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-402.png)
+连日来，数以万计的民众在意大利 里雅斯特市 举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。
 
-根据最近的一份报告，中共国发动了“世界上最大规模的跨国镇压”，以确保全球华人社区遵守中国共产党的路线。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-48.jpeg)
 
-这场广泛的运动针对逃离中共国的持不同政见者和与政治不同观点的人。根据隶属于法国的独立机构军事学校战略研究所(IRSEM)近650页的报告，北京的策略包括间谍、恐吓、威胁、骚扰、人身攻击以及对留在中共国的亲属施加压力。全面了解掌握中国人在全球的行动及影响力。
+美国全国公共广播电台报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求所有公共或私人雇员都要出示疫苗接种证明, 否则将失去工作。 意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或乘坐 公共交通工具均要出示该证。 但自从意大利计划推出疫苗护照以来， 该国民众就通过社交媒体在80个城镇组织进行了示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次活动是对10月新规又一次集中而大规模的示威行动。民众不接受疫苗护照，是因为它会为政府走向专制和暴政打开闸门，政府将从决定你必须注射某种疫苗开始, 逐渐开始任意影响和干涉民众的生活。
 
-该政权还直接向至少九个国家施加压力，要求逮捕那些被中共国当局通缉的人。
+（本文仅代表作者观点）
 
-根据中共国国务院下属的一个与海外华人联络的行政机构，侨务办公室的数据显示，约有6000万华人居住在中共国境外，其中美国的华人居多。
+参考链接:[https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21)
+[Italy’s New COVID Vaccine Mandate Is One Of The Strictest In The World](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world)
+[Italy faces wave of Green Pass protests](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
 
-报告称，对中共政权来说，这些人是首要的“优先目标”，因为他们更容易接触到批评中共的未经审查的观点，并且很可能将这些信息传播给他们在中共国的亲属。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-尽管他们中的绝大多数人已是外国公民，不能被视为中国公民，但北京方面坚持认为所有海外华人都是一个血脉相连的“中国大家庭”的成员，同时将那些越轨的人称为“叛徒”。
+终审：文龍
+校对/发稿：谐趣园
 
-2019年8月23日，中共国驻立陶宛大使和中共国大使馆官员参加了反抗议活动，以破坏支持该市民主运动的亲香港集会。在警方介入并逮捕了两名中国公民后，几名中国外交官带着他们的使馆徽章接近警方，要求释放被拘留者。立陶宛随后召见中国特使提出抗议，称中共国大使馆工作人员“参与并组织非法行动”。
-
-在瑞典，两名代表中共国政府的商人试图让维权人士安吉拉·桂闭嘴，她是在中国出生的瑞典书商桂民海的女儿，北京于2020年被判入狱10年。在2019年 2月在斯德哥尔摩举行的会议上，该商人称，如果她停止与媒体交谈，她的父亲就会获释。其中一个男人告诉她，如果她不信任他们，她可能再也见不到父亲了。
-
-会议由瑞典驻华大使安娜·林斯泰特发起。在瑞典引起公众强烈抗议后，该国从北京召回了林斯泰特，并对她进行了调查。
-
-安吉拉·桂远不是唯一一个受到中共特工威胁的海外华人。
-
-加拿大女演员阿纳斯塔西娅·林(Anastasia Lin)因是法轮功的修炼者以及她在人权问题上的直言不讳而引起北京的愤怒。她发现自己被北京宣布为“不受欢迎的人”，并拒绝了中国签证。在她于2015年加冕加拿大世界小姐后，她接到了在中共国湖南省经营一家大企业的父亲的电话，告诉她中国安全部曾拜访过他。在当局的压力下，林的父亲恳求她停止行动。
-
-这些都有可能发生在任何人身上
-
-简评：中共把“虽远必诛”的手段淋漓精致的用在了海外华人和持不同政见者身上，一个流氓政权的丑恶嘴脸暴露无遗。
-
-原文链接： [https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds\_681176.html](https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds_681176.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

@@ -2,45 +2,36 @@
 ---
 
 
-## 9/24/2021国际财经快讯：恒大未能支付离岸债券利息；中共当局对加密货币施压
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1552473/)
+## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-75.png)[图片来源](https://www.reuters.com/)
-**1.****恒大****未能在****截止日期前支付****离岸债券利息**
+根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
 
-[新加坡/香港，9月24日（路透社）–两位熟悉此事的人士表示，中国恒大集团（3333.HK）的一些离岸债券持有人在美国时间周四的最后期限前没有收到利息付款，因为人们对这家房地产开发商的命运越来越担忧。支付8,350万美元债券利息的最后期限在周四结束，恒大没有发表任何意见，其庞大的债务已经吓坏了世界市场。该公司现在进入了30天的宽限期，如果过了宽限期没有付款，它将违约。由于未获授权对媒体发言，这些消息来源不能透露姓名。恒大集团的发言人没有立即回应置评请求。路透社无法确定恒大是否已经告诉债券持有人它打算如何处理周四到期的票据付款。](https://www.reuters.com/world/china/some-evergrande-offshore-bondholders-not-paid-by-thursday-deadline-us-time-2021-09-24/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
 
-**2.****中****共当局****对加密货币施压比特币跌跌不休**
 
-[上海，9月24日（路透社）–中国周五加大了对加密货币交易的打击力度，发誓要根除 “非法 “活动，并在全国范围内禁止加密货币开采，打击了比特币和其他主要币种，并对加密货币和区块链相关股票造成压力。十个中国政府机构，包括中央银行以及银行、证券和外汇监管机构，在一份联合声明中表示，他们将密切合作，保持对加密货币交易的 “高压 “打击。中国人民银行（PBOC）表示，加密货币不得作为传统货币在市场上流通，海外交易所被禁止通过互联网向大陆投资者提供服务。中国人民银行还禁止金融机构、支付公司和互联网公司促进加密货币交易。](https://www.reuters.com/world/china/china-central-bank-vows-crackdown-cryptocurrency-trading-2021-09-24/)
+[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
 
-**3.****华尔街认为鲍威尔在美联储的任期将延长****4****年**
+[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
 
-[(路透社)–美联储主席杰罗姆-鲍威尔(Jerome Powell)仍被白宫看好，如果最近的历史重演，决定可能会在11月初央行再次开会之前的任何时候作出。华尔街预计，2017年由美国总统特朗普提名并经参议院确认的鲍威尔，将由总统乔-拜登重新提名，再干四年。“我认为市场会喜欢这样，因为这是连续性的，他们已经对他感到满意，他是一个已知的数量，”Truist Advisory Services的联合首席投资官Keith Lerner说。“总的来说，我认为街道的看法是积极的。”政治博彩网站Predictit显示，鲍威尔被参议院重新确认的可能性约为84%，低于9月12日的90%，但与他7月时的可能性基本持平。该网站显示，美联储理事Lael Brainard的机会约为15%。鲍威尔于2018年2月接替珍妮特-耶伦(Janet Yellen)担任美联储理事会主席，他不得不操纵经济度过自第二次世界大战以来最严重的危机，受到去年年初开始的COVID-19大流行病的打击。](https://www.oann.com/wall-street-eyes-four-more-years-for-powell-at-fed/)
 
-**4.****白宫就芯片信息要求向各公司提出质询**
 
-[华盛顿（路透社）–白宫周四向汽车制造商、芯片公司和其他公司施加压力，要求他们提供有关正在进行的半导体危机的信息，该危机已迫使美国汽车生产削减，并带头帮助解决。商务部长吉娜-雷蒙多（Gina Raimondo）与国家经济委员会主任布莱恩-迪斯（Brian Deese）周四与半导体行业参与者会面，她告诉路透社，需要采取强有力的行动。“是时候采取更积极的行动了，”她说。“情况没有变好；在某些方面，情况正在变坏。”在4月和5月的会议之后，周四会议的参与者包括底特律的三大汽车制造商，以及苹果、戴姆勒、宝马、GlobalFoundries、美光、微软、三星、台积电、英特尔和安培计算。白宫表示，政府“重申工业界需要在解决因全球芯片短缺而出现的供应链瓶颈方面发挥主导作用。”](https://www.oann.com/white-house-seeks-to-address-semiconductor-chips-crisis-harming-automakers/)
-
-**5.****纽约和伦敦保持全球金融中心指数榜首位置**
-
-[伦敦（路透社）–根据周五公布的排名，纽约轻松保住了最新全球金融中心指数（GFCI）的榜首位置，而伦敦则因中国城市的下滑而稳居第二。该指数由Z/Yen集团与智囊团中国发展研究院合作发布，在去年12月英国完成脱离欧盟轨道的过程中，伦敦失去了进入欧盟金融市场的机会，这对伦敦来说尤其是一种安慰。GFCI在一份声明中说：“纽约和伦敦相对强劲的表现表明，尽管在过去18个月中工作方式发生了根本性的变化，但这些城市的金融服务部门还是设法维持了它们的业绩。排名第三和第四的香港和新加坡在评级中都下降了25分。”](https://www.oann.com/new-york-london-keep-top-spots-in-global-financial-centres-index/)
-
-**6.****百度****被认为不太可能被中共当局批准****收购****YY****直播****的交易**
-
-[香港（路透社）-两位直接了解此事的消息人士告诉路透社，中国的反垄断监管机构不太可能批准百度以36亿美元收购JOYY Inc的基于视频的国内直播业务YY Live。他们说，这是在中国政府通过交易控制游戏相关业务和企业扩张的举措之后。百度和YY的交易将是在中国广泛打击私营企业，特别是互联网行业的私营企业的背景下，最新的数十亿美元的交易，因为中国政府寻求控制大数据和打破垄断做法。上述消息人士和另外两名熟悉此事的消息人士表示，百度交易的失败可能会给另一项计划中的纳斯达克上市公司JOYY的私有化交易投下阴影，该交易的估值将达到80亿美元。中国搜索引擎巨头百度在11月宣布，它将从社交媒体公司JOYY收购YY Live，支付现金以帮助实现收入来源多样化。](https://www.oann.com/exclusive-china-is-unlikely-to-approve-baidus-3-6-billion-purchase-of-joyys-yy-live-sources/)
-
-**7.****德国富翁在选举前将资产****转向****瑞士**
-
-[苏黎世，9月24日（路透社）–银行家和税务律师说，德国周日的选举可能向左倾斜，这吓得百万富翁把资产转移到瑞士。如果中左翼的社会民主党（SPD）、硬左翼的林克党（Linke）和环保主义者绿党上台，重新引入财富税和收紧遗产税可能会被列入政治议程。“对于超级富豪来说，这是很红火的，”一位在德国有广泛瑞士业务的税务律师说。“企业家家庭高度震惊。”](https://www.reuters.com/world/europe/german-millionaires-rush-assets-switzerland-ahead-election-2021-09-24/)
-
-[此举表明，尽管瑞士努力废除其作为亿万富翁避风港的形象，但许多富人仍将瑞士视为一个有吸引力的财富停放地。没有哪个国家的离岸资产比瑞士多，2020年资金流入加速，瑞银(UBSG.S)、瑞士信贷(CSGN.S)和瑞士宝盛(BAER.S)等大银行受益。地缘政治的紧张和对COVID-19大流行病的经济影响的担忧使瑞士的政治稳定具有吸引力。](https://www.reuters.com/world/europe/german-millionaires-rush-assets-switzerland-ahead-election-2021-09-24/)
-
-**8.美国的 “粉单”交易市场出现动荡，证券监管机构希望杜绝欺诈行为
-**
-[华盛顿/纽约，9月23日（路透社）–当一项旨在杜绝美国股票市场这块臭名昭著的欺诈行为的新规则在下周生效时，多达2000家公司可能会从长期受到散户投资者喜爱的场外交易“粉单”中消失。美国证券交易委员会（SEC）的规则要求交易所外发行人（通常是不符合主要交易所上市标准的股票公司）公开提供准确的、最新的财务信息，从而促进投资者的信息披露。](https://www.reuters.com/business/finance/us-pink-sheets-shakeup-securities-regulator-looks-stamp-out-fraud-2021-09-23/)
-
-[由于现行规则中的一个漏洞，在纽约OTC市场集团（OTCM.PK）经营的粉红市场上报价的大约11000家公司中，约有2000家没有公开提供此类信息。OTC Markets一直在努力宣传并鼓励公司将其文件工作做好，但目前还不清楚有多少公司会在9月28日的最后期限前及时完成这一工作，如果有的话，该公司的总法律顾问Daniel Zinn说。](https://www.reuters.com/business/finance/us-pink-sheets-shakeup-securities-regulator-looks-stamp-out-fraud-2021-09-23/)
-
-By 【秘密翻译组-金融组】
-作者：千年等一回
++21
