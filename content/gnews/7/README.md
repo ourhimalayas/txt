@@ -2,149 +2,43 @@
 ---
 
 
-## CCP正在和某大国建造三个生物实验室
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559090/)
+## 拜登政府考虑对中国的工业补贴进行调查
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559160/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/121-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=6151ceedd2e2b817486eba66](https://gtv.org/video/id=6151ceedd2e2b817486eba66)
+作者：香草山金融部- Opal
 
-**郭文贵
-Miles Guo**
 
-共产党正在和某大国正在制造两到三个新的生化武器实验室
-CCP is building up two or three new biological weapon laboratories with a major power
 
-在东欧一个
-One in Eastern Europe
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-在中东两个都在建造中
-two in Middle East. They are all under construction
 
-7哥掌握一切情况
-I (Miles) have all the information
 
-而且到现在，美国只是警告对方
-Up to now, U.S. has only warned those parties
+近日，《彭博新闻社》和《金融时报》就拜登政府的高级官员是否对中国使用工业补贴进行调查进行了报道。据称，此举可能引发华盛顿和北京之间贸易紧张局势的升级。
 
-你们不要干什么
-saying “You are not allowed to do these”
+据熟悉此事的人士称，美国贸易代表Katherine Tai和美国商务部长Gina Raimondo已经考虑根据《1974年贸易法》第301条对中国的补贴进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-54.png)图片来源：[www.thediplomat.com](https://www.thediplomat.com/)
+这也是川普政府在白宫期间对中国征收3600亿美元的产品关税所使用的法律框架。2020年1月，时任美国总统川普和中共国国家主席习近平达成了贸易休战协议。但这协议并不包括中国政府会改变其工业补贴等任何可执行的承诺。今年拜登上任以来，尽管美国商业团体要求降低或取消关税，以减轻美国进口商的成本，但拜登还是保留了川普的关税。对中共发起新的贸易调查的决定表明，拜登不会与中共妥协，反而可能会变本加厉对抗中共。
 
-完全没有措施
-No countermeasures at all
+众所周知，中共国自身的贸易保护形式──补助和补贴在工业利润中的比重一直以来都是很大的。可以说，巨额政府补贴在中国公司的营运利润中占据越来越大的比重，国企和私企都是如此，这已不是秘密。
 
-你别把世界想得多么伟大
-Don’t think the world is great
+补贴是政府可用来推低出口产品价格的另一种手段。政府补贴以多种形式存在，包括全额现金补助、退税、地方政府援助和出口商扶持政策。在中国，当一家公司连续四年亏损时，这家公司将从证券交易所下市。而差不多10%的上市省级国有企业都依靠政府补贴来保持盈利。
 
-所以说兄弟姐妹们很吓人
-So, brothers and sisters, it is very frightening
+川普政府在白宫期间对中国征收3600亿美元的产品关税所使用的法律框架，也是《1974年贸易法》第301条。那么为什么拜登政府的高级官员，在现在这个时间点上，讨论是否对中国使用工业补贴进行调查呢？巧合的是，这是在拜登总统和习近平举行了90分钟的电话会议后爆出的新闻。笔者认为，拜登在电话中对北京在与他的团队接触方面缺乏认真态度表示失望，也就是说，拜登并没有从习近平那里得到他所希望得到的承诺。
 
-就在日本周边
-It is close to Japan
+（本文仅代表作者个人观点）
 
-现在建的那个地方
-A laboratory is being built
+参考链接：
 
-我相信
-I believe
+[https://www.ft.com/content/76dd1430-bd4b-4f6f-954a-40ab0d636e74](https://www.ft.com/content/76dd1430-bd4b-4f6f-954a-40ab0d636e74)
 
-在日本周边建的那个新的毒实验室
-the new poison-making laboratory is being built close to Japan
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
 
-一旦放的时候，
-Once poisons (viruses) are released
+编辑/审核/发稿：正义的小新
 
-整个日本国一半都会没了
-half of the whole Japan will be gone
-
-一半都会干掉
-50% of Japanese will be killed
-
-而且他们一定敢放
-Furthermore, they dare to release (poisons)
-
-因为现在有借口了
-because they have excuses now
-
-放了以后
-After poisons are released
-
-他全给你归类到这个冠状病毒上去
-He classified it all as a coronavirus
-
-记住大家
-Remember
-
-当这个共产党的冠状病毒放出以后
-after CCP released the coronavirus
-
-已经没有任何人可以停止
-nobody can stop
-
-谁敢不敢使用生化武器的问题了
-It is no longer a question of who dares to use biochemical weapons
-
-而且谁使用生化武器
-And whoever uses biological weapons
-
-都说这是冠状病毒的什么并发症
-They all say this is a complication of the coronavirus
-
-他都找到借口和平台了
-They now have excuses and platforms
-
-这是最危险的
-This is most dangerous
-
-这种世界的放纵和腐败
-This kind of indulgence and corruption in the world
-
-和媒体上整个的垄断
-And monopoly in media
-
-加上医疗的科学的垄断，完了
-Plus monopoly in medical science, it is over
-
-就是大家觉得我干坏事儿，你查不着我
-It is like, I do bad things, but you cannot catch me
-
-你弄不着我
-You cannot get me
-
-这种侥幸心理
-This kind of luck-playing mentality is the reason for
-
-就是现在正在制造的几个大的毒实验室
-the big poison-making laboratories are being built
-
-某国正在制造的
-A country is building them
-
-大概两周前
-Roughly two weeks ago
-
-我听说这个项目的这个制造病毒的人
-I heard that the person in charge of this virus-making project
-
-说出了惊人的话，说从现在起
-Said something astonishing, “from now on
-
-我们可以决定这个地球的命运了
-We can decide the destiny of the earth”
-
-你想这有多可怕兄弟姐妹们
-Think about how scary this can be, brothers and sisters
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24](https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24)
-
-英听校: 洛杉矶盘古农场 – WH
-翻译: 洛杉矶盘古农场 – WH
-翻译终校: 洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)

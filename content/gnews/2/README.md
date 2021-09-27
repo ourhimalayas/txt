@@ -2,101 +2,29 @@
 ---
 
 
-## 煤价太贵，污染严重是中共国停电的原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559119/)
+## 澳漫画家把反中共病毒疫苗运动与天安门大屠杀相提并论
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559206/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/123-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=6151d1ead2e2b817486ebb99](https://gtv.org/video/id=6151d1ead2e2b817486ebb99)
+#### 撰稿：东京樱花团/Orange文橘
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-127.jpg)
+（图片源自本文链接）
 
-**郭文贵
-Miles**
+9月27日周一，澳大利亚墨尔本漫画家迈克尔.卢尼格（Michael Leunig）在他的Instagram页面上发布了一幅褒贬不一的图片， 并配以一个词的标题“强制”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-21.png)
+[图片来源](https://www.instagram.com/p/CUTONJjBIHA/?utm_source=ig_embed&amp;ig_rid=88caf429-f108-4122-b35a-38eba7e24e15)
 
-刚才很多战友说这个安徽啊，广东啊，江苏大范围停电
-Just now, many comrades in arms said that Anhui, Guangdong, and Jiangsu had a large-scale power outage.
+图片中，一名男子站在一辆军用坦克前，无助地盯着坦克上代替大炮的巨大注射器针头。在左上角，漫画家复制了 “坦克人 “图片——1989年6月4日一名示威学生站在坦克编队前面试图阻止其前行。
 
-为啥，跟打台湾没有任何关系，
-Why？ It has nothing to do with attacking Taiwan
+1989年中共国由学生领导的呼吁民主、言论自由和新闻自由并持续数周的抗议活动，在6月4日中共军队抵达天安门广场后，被血腥镇压。
 
-它停电是因为煤价越来越高
-It’s power outages because coal prices are getting higher and higher
+这位有争议的漫画家在网上遭到抨击，因为他将反对强制注射中共病毒疫苗的抵抗比作是1989年北京学生为了民主自由在天安门广场进行的斗争。一些粉丝称赞迈克尓“一如既往地一针见血”， 但是其他粉丝却感到震惊，他们认为自己不是生活在一个共产主义政权下，不应该把他们和生活在残酷独裁统治下的人相提并论。疫苗接种反对者则非常赞这位漫画家的政治评论。
 
-煤价越来越高，发出来的电赔钱
-The price of coal is getting higher and higher, and the generated electricity lose money
+当年中共用坦克大炮对北京学生和市民进行屠杀，阻止民众对民主自由的憧憬与追求。如今中共又释放病毒，让全世界遭受巨大灾难，并通过强打疫苗，对整个世界进行二次荼毒的同时，对西方的民主政治和社会进行摧残。所幸，随着爆料革命对中共病毒疫苗真相的不断揭露，西方世界的觉醒已经开始。
 
-现在国内呢，是收你1块的电费，赔大概7分钱，赔7分钱
-Now in China, it charges you 1 yuan for the electricity bill, and loses about 7 cents
+[信息源](https://www.dailymail.co.uk/news/article-10031855/Leunig-Controversial-artist-slammed-Tiananmen-Square-vaccines-post.html)
 
-它不愿意发电，再一个呢，现在更夸张的事情
-It doesn’t want to generate electricity now, and one more thing now is even more exaggerated
+（文章仅代表作者个人观点，与GNEWS无关）
 
-这个污染啊，这个污染的越来越厉害
-This pollution, this pollution is getting worse and worse
-
-因为大家都是乱整嘛，所以说现在是很大的问题
-Because everyone is messy, so it’s a big problem now
-
-缺电，缺到啥程度呢，你都很难想象
-It’s hard to imagine the lack of electricity to what extent
-
-只有中共国能做得到，过去需要1度电
-Only the Communist Party of China can do it. In the past, 1 kWh of electricity was needed
-
-现在呢，能满足你0.4度电
-but now, only provide your 0.4 kilowatt of electricity
-
-没有一个真正的工业文明国家说突然缺电能缺10%以上
-There is no real industrial civilization country that sudden power shortage is more than 10%
-
-铲侠你当律师，你懂这道理
-ChanXia, you are a lawyer, you know the reason
-
-没有一个国家说你家里吃饭吃了一年了
-There is no country like China, where people have been eating at home for a year
-
-突然缺粮，缺50%
-and then suddenly there is a shortage of food, a 50% shortage
-
-现在这个当家的有问题了，是吧
-Now this person in charge has a problem, right?
-
-那怎么可能啊，说明这个中共国它就一切都是假的
-How is that possible? It means that everything is fake in this Chinese Communist country
-
-当进口的所有的东西满足不了的时候
-When all the imported things are not enough
-
-全都傻了啊，物价上去，工资上不去
-The people are all stunned, prices go up, wages can’t go up
-
-物价这个价格很高，然后呢，原材料供应又接不了
-Prices are high, but raw materials are not available
-
-还跟澳大利亚又打又闹的
-They’re still fighting the raw materials with Australia
-
-那你不是欠揍嘛，是不是
-So you’re brainless, are you?
-
-所以它必须缺电，它没有一个真正的国家领导的能力和组织
-So it must be short of electricity, it does not have the ability and organization of a true national leadership
-
-原因，就是煤太贵，发电成本太贵，而且污染很高
-The reason is that coal is too expensive, the cost of power generation is too expen-sive, and the pollution is so severe
-
-最后结局，停电
-It will only end in a power outage
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,51 +2,51 @@
 ---
 
 
-## 森林深处的33万元捐款感动了无数战友
-` 文名` [轉載自GNews](https://gnews.org/zh-hans/1558884/)
+## 9月25日意大利声势浩大的反绿色通行证抗议，但是媒体报道“人数很少”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1559093/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snap_screen_20210927074242.png)
-**作者：英国伦敦喜庄园 文名**
+翻译整理/简评： 意大利罗马达芬奇农场  小白鸽
 
-2021年9月26日，满怀期待地打开GTV收看七哥大直播，首先看到森林深处战友向七哥索要三个礼物。我心中首先咯噔一下，这怎么上来就要这要那，求求你让七哥专心灭共吧！
+意大利各个重要媒体对9月25日声势浩大的游行报道用词是“数百人在街上”,“不到一千人在街上”。当一位意大利公民读到这样的报道，会面对以下两种可能性：一是面对昨天意大利60个城市爆发的反绿色通行证的抗议，许多重要报纸选择不报道，或者不放在首页；还有一种可能便是发现有示威游行，但被告知参加者极少，是“否认新冠病毒存在者”，有可能是法西斯分子。那么9月25日真的像媒体报道的那样只有少数人走上街头吗？
 
-没想到，森林深处战友要的三个礼物，一个比一个令人折服令人敬佩。她这哪里是索要礼物，她这是在赠送给爆料革命和战友们礼物。
-
-第一个礼物，想要知道七哥归隐山林之后的空房间是什么样的。这也是在帮助我们探索七哥的精神世界，让我们提升一些认知和境界。嗯，很特别的战友。
-
-第二个礼物，请七哥推荐三本书。这可太好了，面对灭共和重建新世界这样的世纪大变革，精神食粮是我们很多战友急需的。七哥的建议也相当有用，弗洛伊德的书让我们认识自己的内心，结社文化的书让我们认识人与人的关系，斯大林的传记让我们了解人的恶，让我们知道在跟什么样的邪恶势力做斗争。嗯，这个问题很有水平，好礼物！
-
-第三个礼物，竟然是捐款33万元！以及它对应的G系列所有投资收益！我当时怀疑自己没听清楚。哪里有索要礼物竟然是向外送钱的？听到这里，我当即就被森林深处战友折服了。这种精神境界，这种文化修养，实在太值得末学学习了。森林深处战友绝对理解施与受的哲学思想，她是在做財布施、法布施、无畏布施。从森林深处战友的背景家装和服装打扮来看，不像是末学一样的苦哈哈穷人，但捐款33万元对于绝大多数人来说，一定是像割大腿一样心疼肝疼。
-
-七哥当即表示感谢，心领了。但是现在绝不接受任何战友的大额捐款，包括股份、Hcoin等投资收益。七哥要等战友们赚钱啦，10倍、100倍的时候，赚的钱花不完的时候再来捐。七哥太懂战友们啦。咱们真战友，哪个不是脑袋别在裤腰带上跟七哥干革命，真的是砸锅卖铁倾家荡产投资爆料革命。很多战友已经一分钱都拿不出来了，所以七哥不要战友们的血汗钱。
-
-被拒绝后，森林深处战友表示遗憾。她表示后面的节目她不在行，不能参与讨论，所以就自行下线，不浪费大家时间。这让我对她更加钦佩。
-要知道，能跟郭先生一起直播，尤其是现在的大直播，每一分钟都是世界瞩目的历史性关键时刻。也许会是扬名立万的大好时机，多少人挤破头想要与七哥同框。然而森林深处战友竟然能做到从容退出，这是她有自知之明，不争名夺利，一心奉献。
-我对她的敬仰已如滔滔江水延绵不绝。
-
-短短的几句话，森林深处战友表现出了自己的无我、知性、谦逊、感恩和奉献。恰如七哥对她的评价：有品位，有教养，有文化，有牺牲精神。
-她高尚的行为，同时也感动了七哥和各位直播嘉宾和各位观众。战友们被她感动的留言已经刷屏了。
-感恩爆料革命，感恩七哥，感恩像森林深处这样默默无闻的战友。
-今天的直播，让我非常欣慰自己正跟这样高尚情操的人一起干一件了不起的事情。七哥说是这样的战友让他每天能快乐地灭共，今天我也终于感同身受地体会到了这种情感。
-我压上一切做出的选择，值了！
-啥也不说了，敬天敬地敬战友！
+以下是从推特上截取的一些视频。第一个视频是在罗马圣乔万尼广场， 连国家警察也反对绿色通行证。
 
 
 
-【文章仅代表作者观点】
+> Piazza San Giovanni a Roma oggi è piena…… Anche la polizia di stato è [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/AaczcQfBnw](https://t.co/AaczcQfBnw)
+> — Luigino Degani (@LDegani) [September 26, 2021](https://twitter.com/LDegani/status/1441917479060754437?ref_src=twsrc%5Etfw)
 
-【参考资料】：
-[➥2021年9月26日文贵大直播](https://gtv.org/video/id=6150769942a8af3151a5b28f)
 
-[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
-[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
-[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
-[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
-[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
-[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
-[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
-[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
-[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
-[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
-[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
-[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
+
+第二个视频9月20日在特利亚斯特市中心成千上万的人们在市中心高喊“ 不要绿色通行证”。
+
+
+
+> [#Trieste](https://twitter.com/hashtag/Trieste?src=hash&amp;ref_src=twsrc%5Etfw), lunedì 20 settembre 2021: migliaia di persone sfilano per il centro storico al grido "No [#greenpass](https://twitter.com/hashtag/greenpass?src=hash&amp;ref_src=twsrc%5Etfw)". [pic.twitter.com/LHqnIQMVcM](https://t.co/LHqnIQMVcM)
+> — Giacomo Bertoni (@ParcodiGiacomo) [September 20, 2021](https://twitter.com/ParcodiGiacomo/status/1440008528404549633?ref_src=twsrc%5Etfw)
+
+
+
+第三个视频是在米兰，警察在对付反疫苗通行证的抗议者。
+
+
+
+> Green Pass, tafferugli a Milano: polizia affronta No Green Pass [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#novax](https://twitter.com/hashtag/novax?src=hash&amp;ref_src=twsrc%5Etfw) [#covid](https://twitter.com/hashtag/covid?src=hash&amp;ref_src=twsrc%5Etfw) [#vaccini](https://twitter.com/hashtag/vaccini?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cnriOd34a6](https://t.co/cnriOd34a6)
+> — Local Team (@localteamtv) [September 25, 2021](https://twitter.com/localteamtv/status/1441796564725477376?ref_src=twsrc%5Etfw)
+
+
+
+第四个视频是在都灵，9月25日反强制绿色通行证。
+
+
+
+> 25 settembre [#torino](https://twitter.com/hashtag/torino?src=hash&amp;ref_src=twsrc%5Etfw) [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#nobbligovaccino](https://twitter.com/hashtag/nobbligovaccino?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0CssPdcVxy](https://t.co/0CssPdcVxy)
+> — elena galluzzo (@elenagalluz) [September 25, 2021](https://twitter.com/elenagalluz/status/1441896039762448385?ref_src=twsrc%5Etfw)
+
+
+
+简评：从主流媒体对民众抗议绿色通行证采取的歪曲事实和轻描淡写地一带而过的报道，我们可以看出我们的Gnews和GTV有多么了不起，多么重要。新中国联邦人一直在为病毒真相和疫苗真相而在大声疾呼。在这场世纪大战中，我们能有讲真话，讲真相的媒体是多么的重要。
+
+免责声明： 本文只代表个人观点，并不代表Gnews 平台。
+[原文链接](https://www.lindipendente.online/2021/09/26/no-green-pass-ieri-manifestazioni-imponenti-ma-per-i-media-cerano-poche-persone/)
+上传：意大利达芬奇农场 老中医

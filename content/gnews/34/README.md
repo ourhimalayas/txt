@@ -2,27 +2,31 @@
 ---
 
 
-## 全球金融危机即将到来 华为厄运刚刚开始
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558546/)
+## 秘翻在线:全球科技和汽车供应链因中共国电力吃紧而遭受重击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1558607/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/p-12.jpg)
+图片来源：新唐人
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-14.png)
-文章仅代表作者本人观点，与Gnews无关
+根据 《零对冲 》的报导，因为电力需求飙升导致煤炭和天然气的价格高涨，中共国采取电力限制，苹果和特斯拉的几家供应商于9月26日起宣布暂停在中共国的制造业务。
 
-视频参看：2021.09.27早GTV新闻访谈
+**Iphone 因中共国限电危机而生产受挫**
 
-[https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4](https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4)
+据 《彭博社 》的最新报导，崑山和苏州的 iPhone 组装工厂和硕9月27日宣布，它正在“采取节能措施以符合当地政府的政策”。和硕9月26日表示，目前所有运营都正常。如果中共国政府减少或关闭其工厂的电力，它准备以替代发电机来应对。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+消息人士告诉《彭博社 》 ，和硕在崑山的 iPhone 工厂受影响最大。目前尚不清楚苹果和特斯拉的供应链中断情况，其他的供应商也已经停电，并且会持续几天甚至到月底。 iPhone 扬声器供应商康克拉夫特控股有限公司 Concraft Holding 9月26日发布了一份文件，称其在苏州的生产设施将暂停五天。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+富士康子公司亿生精密工程( Eson Precision Engineering) 是全球最大的 iPhone 组装商之一，也是苹果和特斯拉的零部件供应商。9月27日亿生宣布，为响应崑山的环保措施，该公司在中国崑山市的工厂从9月27日至10月1日暂停生产。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**印刷电路板及芯片供应商也因中共限电危机而停产**
+
+消息人士称，在江苏省苏州和崑山设有工厂的主要印刷电路板制造商和苹果的顶级供应商欣兴科技公司 Unimicron Technology Corporation 被迫停产至本月底。该公司9月26日发布了最新消息，并表示将在其他地方提高产量以弥补产量损失。
+
+另一家为恩智浦、英飞凌和日月光科技控股制造零件的芯片供应商昌华科技宣布，为了遵守政府的命令，它不得不9月26日在暂停生产至月底。
+
+**全球科技及汽车供应前景堪忧**
+
+日经(Nikkei )表示，“除了越南和马来西亚因为中共病毒导致供应链遭受破坏，全球科技和汽车供应链正遭受前所未有的芯片和组件短缺。 “许多大陆的高科技产业因为中共国负担不起高额的天然气导致的停电而损失惨重，成了”哑巴吃黄莲”。
+
+消息来源: [Top Apple, Tesla Suppliers Suspend Production Amid China Power Crunch](http://Top%20Apple,%20Tesla%20Suppliers%20Suspend%20Production%20Amid%20China%20Power%20Crunch)

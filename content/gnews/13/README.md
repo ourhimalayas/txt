@@ -2,13 +2,50 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558873/)
+## 孟晚舟包机回国引发脑残粉“爱国”狂欢
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1559092/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+**【修罗短评】**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/8ac7040f04d291ed28201b71d1235b0fu5-1.jpg)
+作者：修罗闻道
 
-**If you want to protect your family, please keep them away from the Covid vaccine, spread out the truth, and reach out a helping hand to those in need. For those already vaccinated, please avoid the 2nd and 3rd doses; If you start having the symptoms, please seek help and don’t hesitate to ask your doctor to give you Ivermectin plus Doxycycline and Artemisinin for the Treatment of Covid-19 Infection.**
+三年多的司法、外交和舆论大战，期间中共连绑架人质的下三滥招数都用上了。9月24日，孟晚舟案算是告一段落。文贵先生提前爆出的很多信息，再一次得到验证。
 
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcbwmh2d6c)
+尽管如此，中共国依然要将这次事件好好包装运作一番，搞一次现实版的爱国主义教育。
 
-**喜联盟Gnews编辑部**
+毫无疑问的，这种信息必须要新华社首发，“经过中国政府的不懈努力，当地时间9月24日，孟晚舟女士已经乘坐中国政府的包机离开加拿大，即将回到祖国，并与家人团聚。”
+
+他们强调的是“中国政府的努力”，而不是事实如何，更不是依照法律。乘坐的是中共国政府的包机，人民又获得了一次光荣的买单机会。航线避开了所有的美国领空，可见中共国仍然是心里不踏实。
+
+这和逃跑有什么区别？
+
+焦点回到国内，那里简直成了一片沸土。网上网下，锣鼓喧天、鞭炮齐鸣。新华社的深水炸弹一投放，无论是吃狗粮的宣传机器还是自干五的野媒体，纷纷进入癫狂状态。满屏都是欢迎回家、祖国伟大之类的神经错乱主题。被激动到难以控制的脑残粉，恨不得通过在线裸奔的方式，秀出自己智商的上限。
+
+接机大厅人满为患，喧嚣与吵闹仿佛都忘记了这个世界还有病毒的存在；仿佛江浙、东北不再限电了；仿佛中原的大水消失了。
+
+“孟晚舟回来了，你就不用坐台了吗？”
+
+这是一个多么深刻的问题。孟晚舟回来了，你不仅需要继续做台，而且很有可能被亢奋的粉红嫖客揍一顿。
+
+希望有脑子的人多想想，全网都是欢迎回家，这里是她的家吗？这里不是。她的家在加拿大，那里有她的大别墅、她的老公、她的孩子，还有花不完的金钱，穿用不完的奢侈品和享受不完的奢靡生活。时至今日，为什么只有她自己回来了？陪伴了她三年的家人呢？
+
+在法庭签完字，没有任何逗留，直接坐飞机回国。他们在害怕什么？
+
+真正应该被欢迎回家的，是那两位倒霉又幸运的加拿大人。两位在异国被判了死刑的人，回到了属于自己的国家，被总理在机场拥抱欢迎。我想，那一刻，这两位加国人才真正体会到什么是重获新生吧；相比之下，不知道孟晚舟女士在面对深圳机场的欢迎场面时又是何种感受，毕竟在她被加拿大警方禁足的将近三年的时间里，中共国内被撂倒的私企大佬不计其数，仍在努力坚挺的“白手套”们无一不是如履薄冰、剑悬在顶。
+
+（文章仅代表作者个人观点）
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*校对/审核：仙女儿-文善*
+
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,51 +2,47 @@
 ---
 
 
-## 9月25日意大利声势浩大的反绿色通行证抗议，但是媒体报道“人数很少”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1559093/)
+## 华尔街投资者对中国市场意见分歧
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559179/)
 
-翻译整理/简评： 意大利罗马达芬奇农场  小白鸽
-
-意大利各个重要媒体对9月25日声势浩大的游行报道用词是“数百人在街上”,“不到一千人在街上”。当一位意大利公民读到这样的报道，会面对以下两种可能性：一是面对昨天意大利60个城市爆发的反绿色通行证的抗议，许多重要报纸选择不报道，或者不放在首页；还有一种可能便是发现有示威游行，但被告知参加者极少，是“否认新冠病毒存在者”，有可能是法西斯分子。那么9月25日真的像媒体报道的那样只有少数人走上街头吗？
-
-以下是从推特上截取的一些视频。第一个视频是在罗马圣乔万尼广场， 连国家警察也反对绿色通行证。
+作者：香草山金融部- Opal
 
 
 
-> Piazza San Giovanni a Roma oggi è piena…… Anche la polizia di stato è [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/AaczcQfBnw](https://t.co/AaczcQfBnw)
-> — Luigino Degani (@LDegani) [September 26, 2021](https://twitter.com/LDegani/status/1441917479060754437?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
 
-第二个视频9月20日在特利亚斯特市中心成千上万的人们在市中心高喊“ 不要绿色通行证”。
+据《金融报》报道，上周，世界上最知名的两位投资者之间爆发了一场冲突，这反映出华尔街在将资金投入中国的可行性方面，存在着越来越大的分歧。
 
+本周，全球最大的资产管理公司贝莱德(BlackRock)周三宣布，由于中国不断增长的储蓄市场的机会，贝莱德为其在中国的首个共同基金筹集了10亿美元。就在一天前，亿万富翁金融家乔治-索罗斯在《华尔街日报》上写道，贝莱德进入中国是一个 “悲惨的错误”， “贝莱德错了。”索罗斯此前曾警告说，中国的投资者面临 “粗暴的觉醒”，因为 “习近平把所有中国公司都视为一党制国家的工具”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-55.png)图片来源：[www.ft.com](https://www.ft.com/)
+根据数据提供商Copley Fund Research的数据，经营主动型全球股票基金的经理们已将其对中国和香港的配置削减到四年来的最低水平。根据对资产超过10亿美元的381只基金的抽样调查，Copley计算出，现在仅有超过四分之一的基金持有的中国和香港股票多于基准全球指数。在2015年初，最高时有45%的投资者对中国持有如此大的赌注。
 
+外国投资者的不安反映了中国10个月来，中共在对从教育到电子游戏等行业发起一连串的监管行动，中共的 “共同富裕 “运动几乎触及了所有行业，包括打击中国最大的科技公司和房地产市场，严格限制年轻人玩电子游戏的时间，以及禁止营利性教育行业。
 
-> [#Trieste](https://twitter.com/hashtag/Trieste?src=hash&amp;ref_src=twsrc%5Etfw), lunedì 20 settembre 2021: migliaia di persone sfilano per il centro storico al grido "No [#greenpass](https://twitter.com/hashtag/greenpass?src=hash&amp;ref_src=twsrc%5Etfw)". [pic.twitter.com/LHqnIQMVcM](https://t.co/LHqnIQMVcM)
-> — Giacomo Bertoni (@ParcodiGiacomo) [September 20, 2021](https://twitter.com/ParcodiGiacomo/status/1440008528404549633?ref_src=twsrc%5Etfw)
+基金经理们不仅在权衡是否要投资中国资产，他们也在考虑如何向中国的消费者提供他们的服务。除了贝莱德，包括美国的摩根资产管理公司、高盛资产管理公司，以及欧洲的Amundi和Schroders在内的外国投资者，正在通过财富管理合资企业进入中国。可谓是几家欢喜，几家愁，得到利益的，自然会继续高歌猛进；亏损的，会收拾行囊撤退；当然还有一些投资机构在坚持，在观望。
 
+在中共现行的这种“打土豪分田地”的政策下，多数的私人企业、私人投资者，包括外资，因被瘦身、被割、被斩而被迫离场，早已不足为奇。因为这个体制是罪恶的，要想得益，就只能和中共勾兑。
 
+郭文贵先生在2019年5月6日直播中提到：有一家全球最大的基金，已经和中共勾兑好了。这家基金与中共签署了一份800亿美元所谓影子银行顾问合同，前提是美国与中共签署贸易协定!
 
-第三个视频是在米兰，警察在对付反疫苗通行证的抗议者。
+笔者推测，全球最大的基金应该就是贝莱德基金(BlackRock)。贝莱德基金， 主要为针对法人与零售通路提供投资管理、风险管理与财务咨询服务，现在成为第一家在中共国有自己基金的外国资产管理公司。贝莱德在中共国的共同基金大约价值3.6万亿美元。贝莱德基金会不会也难逃亏损的命运？是否会像索罗斯讲的那样，把投资者们的资金统统输光呢？咱们拭目以待。
 
+（本文仅代表作者个人观点）
 
+参考链接：
 
-> Green Pass, tafferugli a Milano: polizia affronta No Green Pass [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#novax](https://twitter.com/hashtag/novax?src=hash&amp;ref_src=twsrc%5Etfw) [#covid](https://twitter.com/hashtag/covid?src=hash&amp;ref_src=twsrc%5Etfw) [#vaccini](https://twitter.com/hashtag/vaccini?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cnriOd34a6](https://t.co/cnriOd34a6)
-> — Local Team (@localteamtv) [September 25, 2021](https://twitter.com/localteamtv/status/1441796564725477376?ref_src=twsrc%5Etfw)
+[https://www.ft.com/content/8cda606f-aa6a-444a-8331-310c6b5f167d](https://www.ft.com/content/8cda606f-aa6a-444a-8331-310c6b5f167d)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
 
+编辑/审核/发稿：正义的小新
 
-第四个视频是在都灵，9月25日反强制绿色通行证。
-
-
-
-> 25 settembre [#torino](https://twitter.com/hashtag/torino?src=hash&amp;ref_src=twsrc%5Etfw) [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#nobbligovaccino](https://twitter.com/hashtag/nobbligovaccino?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0CssPdcVxy](https://t.co/0CssPdcVxy)
-> — elena galluzzo (@elenagalluz) [September 25, 2021](https://twitter.com/elenagalluz/status/1441896039762448385?ref_src=twsrc%5Etfw)
-
-
-
-简评：从主流媒体对民众抗议绿色通行证采取的歪曲事实和轻描淡写地一带而过的报道，我们可以看出我们的Gnews和GTV有多么了不起，多么重要。新中国联邦人一直在为病毒真相和疫苗真相而在大声疾呼。在这场世纪大战中，我们能有讲真话，讲真相的媒体是多么的重要。
-
-免责声明： 本文只代表个人观点，并不代表Gnews 平台。
-[原文链接](https://www.lindipendente.online/2021/09/26/no-green-pass-ieri-manifestazioni-imponenti-ma-per-i-media-cerano-poche-persone/)
-上传：意大利达芬奇农场 老中医
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)

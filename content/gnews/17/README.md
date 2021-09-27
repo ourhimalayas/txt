@@ -2,47 +2,21 @@
 ---
 
 
-## 以色列数千人抗议疫苗护照新规定——接种加强型疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1558805/)
+## 势同水火&#8211;接种疫苗让加拿大人之间的对立越来越深！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1559032/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/05/土豆打疫苗-6-edited-5.jpg)正在接种COVID19疫苗的加拿大总理特鲁多
+图片来源：thepostmillennial
 
 
+加拿大知名自媒体《Thepostmillennial》9月27日刊登文章指出，莱格（Leger）公司为【加拿大研究协会】（Association of Canadian Studies）进行的一项最新民意调查结果显示：超过四分之三的受访加拿大人对未接种疫苗者持有负面看法。
 
+据《渥太华公民报》（ *Ottawa Citizen*）于同日新闻报道，在9月10日至9月12日期间，有1,549名加拿大人对这项民意调查作出了回应，调查结果显示，参与者倾向于认为那些未接种疫苗的加拿大人是 “不负责任和自私的”。其中，约三分之二的受访者表示，已接种疫苗者和未接种疫苗者作为截然不同的群体，彼此之间存在着愈来愈严重的对立关系。而有大约25%的未接种疫苗者对其他未接种疫苗的人有负面看法，他们在个人层面上提出了不接种疫苗的理由，但认为自己的理由不一定能证明其他未接种者的选择是正确的。
 
-据[门道专家](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)9月26日报道，以色列数以千计的人在特拉维夫抗议疫苗护照，该护照现在要求公民打加强针才能被视为 “完全接种”。不接种加强疫苗的人将回到原点，不再有机会参加日常活动，就像那些一开始就没有接种过疫苗的人一样。
+【加拿大研究协会】主席杰克-杰德瓦布（Jack Jedwab）对该调查结果发表了自己的看法：“目前大多数公众对某些群体很多负面的情绪正被其对那些未接种疫苗者的反感所取代，似乎整个社会都对未接种疫苗者有一种高度的憎恶或敌意。为此，人们所看到的是家庭成员和朋友以及同事之间日趋紧张的人际关系，即已接种疫苗者和未接种疫苗者之间逐渐水火难容的势态。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1064-1-Screenshot_20210926-134129_Twitter-913x479-1.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)
+此外，该项民调结果还发现，大多数加拿大非洲裔人口对COVID19疫苗的不信任程度相较其他族群更高。同时，有大约20%对是否接种该疫苗犹豫不决的受访加拿大人会为了顺利出外旅行而谎报其COVID19疫苗的接种情况。
 
-上月底，以色列卫生官员宣布，根据该国的疫苗护照制度，任何在第二次接种后6个月内没有接受第三次接种的人将不再被视为 “完全接种”。
+以上内容仅代表原文信息和作者本人观点。
 
-到目前为止，几乎三分之二的以色列人已经配合政府的限制，完全接种了疫苗，但现在第三针强制接种已被授权，人们正聚集在一起，集体抗议限制性的疫苗护照。
-
-自从疫苗仓促上市以来，以色列公民一直是第一批接种的人。现在他们的政府想把他们作为实验的小白鼠，来注射更加仓促开发的加强型疫苗。强行注射这些加强针证明疫苗没有提供免疫力，难怪以色列的医院85-90%的新病例都来自于已接种疫苗的个人。
-
-事实上，以色列特拉维夫大学的一个研究小组最近对80万人进行了广泛的研究，研究结果表明，接种疫苗的人感染新的病毒变种的可能性比拥有自然免疫力的人高13倍，完全接种疫苗的人 “住院的风险更大”。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[原文链接：](https://thepostmillennial.com/new-poll-shows-deepening-divide-between-vaccinated-canadians-and-the-unvaccinated)

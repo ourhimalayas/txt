@@ -2,35 +2,47 @@
 ---
 
 
-## 华大妈的“加拿大应该从孟晚舟案中汲取教训”成加国新闻
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1558692/)
+## 以色列数千人抗议疫苗护照新规定——接种加强型疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1558805/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场 – 四季
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/C-8.jpg)webcorenigeria.com
-MSN 9月27日转载了CBC的一篇稿，说是一篇，其实就是一句话的文字：“中共表示，加拿大应该从孟晚舟案中汲取教训”【1】，文章附了一段视频，华大妈趾高气扬地向全世界作了以上宣布。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-节目主持人一脸懵圈，像是在告诉世人，中共就是这样对待加拿大？加拿大就怂到如此地步了？“小土豆”就这样给中共收割了？明白人会有进一步的解释，不只是“小土豆”，那个靠中共助力的窃位总统拜登，是这件事的主谋，以他为代表的一股势力受邪共的要挟，在为习神的20大献礼。拜登窃位入主白宫以来关键问题的所作所为足以说明他的通共、亲共、怯共倾向，后面还会有与中共进一步的勾兑，足以让你瞠目结舌，完全认清中共的邪魔面目。
 
-且看华大妈是如何表演的：【2】
 
-2018年12月初孟晚舟被无理拘押后，中（共）国党和政府高度重视，习近平主席亲自关心……25日晚，孟晚舟平安回家的消息仅在中央广播电视总台新媒体上就获得4亿点赞，超过美、加两国人口总和。这两天，有一些青年大学生自发来到外交部门口送上鲜花……正如孟女士所说，没有强大的祖国，就没有她今天的自由。孟晚舟女士的平安回国，是中（共）国党和政府不懈努力的结果，是全国人民鼎力支持的结果。正义也许迟到，但绝不会缺席。这也再次充分证明，中国共产党坚强领导下的强大中国，永远是每一位中（共）国公民的坚强后盾……
 
-孟晚舟事件同康明凯、迈克尔案件的性质完全不同。孟晚舟事件是一起针对中（共）国公民的政治迫害事件，目的是打压中（共）国的高技术企业。康明凯、迈克尔涉嫌危害中（共）国国家安全犯罪，两人以身患疾病为由提出申请取保候审，经有关部门确认和专业医疗机构诊断，并由加拿大驻华大使提供担保，中（共）国相关法院依法批准取保候审，由国家安全机关执行。
 
-……
+据[门道专家](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)9月26日报道，以色列数以千计的人在特拉维夫抗议疫苗护照，该护照现在要求公民打加强针才能被视为 “完全接种”。不接种加强疫苗的人将回到原点，不再有机会参加日常活动，就像那些一开始就没有接种过疫苗的人一样。
 
-加方本来就不应该给美国“干脏活”，加方应该汲取教训，从自身利益出发行事。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1064-1-Screenshot_20210926-134129_Twitter-913x479-1.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)
 
-……
+上月底，以色列卫生官员宣布，根据该国的疫苗护照制度，任何在第二次接种后6个月内没有接受第三次接种的人将不再被视为 “完全接种”。
 
-（节选完）
+到目前为止，几乎三分之二的以色列人已经配合政府的限制，完全接种了疫苗，但现在第三针强制接种已被授权，人们正聚集在一起，集体抗议限制性的疫苗护照。
 
-华大妈说这些颠倒黑白的话，在我们看来有啥好奇怪的？这就是中共邪恶、流氓的本质。很不情愿地期待中共嘴脸更多地败露，那将是认知邪共的清醒期，更是邪魔的死亡加速期。
+自从疫苗仓促上市以来，以色列公民一直是第一批接种的人。现在他们的政府想把他们作为实验的小白鼠，来注射更加仓促开发的加强型疫苗。强行注射这些加强针证明疫苗没有提供免疫力，难怪以色列的医院85-90%的新病例都来自于已接种疫苗的个人。
 
-参考链接：
+事实上，以色列特拉维夫大学的一个研究小组最近对80万人进行了广泛的研究，研究结果表明，接种疫苗的人感染新的病毒变种的可能性比拥有自然免疫力的人高13倍，完全接种疫苗的人 “住院的风险更大”。
 
-【1】[https://www.msn.com/en-ca/news/canada/canada-should-learn-lesson-from-meng-wanzhou-case-says-china/vi-AAOShp7?ocid=msedgntp](https://www.msn.com/en-ca/news/canada/canada-should-learn-lesson-from-meng-wanzhou-case-says-china/vi-AAOShp7?ocid=msedgntp)
+（本文仅代表作者观点）
 
-【2】https://www.fmprc.gov.cn/web/wjdt\_674879/fyrbt\_674889/t1910167.shtml
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

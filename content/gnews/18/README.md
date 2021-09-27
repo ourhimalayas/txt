@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558760/)
+## 2021年9月27日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1559015/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-9月27号：骗子多的地方就说明了傻人更多……骗子傻人多的地方就说明社会没有法律没有信仰，当然也没有真正的公平的成功。
+对新冠疫苗说“不”! 在为时已晚之前，对强制要求接种新冠疫苗说“不”! 传播真相，阻止一切灾难! 这种臭名昭著的疫苗不仅剥夺了我们的权利还杀害了我们的亲人。有多少人被迫违背自己的意愿注射疫苗!有多少人因为这种疫苗而死!有多少人面临着未来可能发生的副作用的问题?例如自身免疫性神经疾病，包括四肢和肌肉的无力和瘫痪，血栓性血小板减少综合征(TTS)，导致血凝块和低血小板水平，持续性头痛，视觉改变，腹痛，胸痛，腿痛，四肢寒冷和急性瘀伤或出血。 如果你想保护你的家人，请让他们远离新冠疫苗，传播真相，向有需要的人伸出援助之手。 对于已经接种疫苗的人，请避免第二和第三次接种;如果你开始出现症状，请寻求帮助，不要犹豫，请医生给你开伊维菌素加强力霉素和青蒿素治疗Covid-19感染
 
-[泰山](https://gettr.com/user/taishan)@taishan·1h我十几年前的“借壳融资”模式也让恒大集团发扬光大了！ 恒大集团真是无所不用其极！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1a8b9fb95ebf8e8b58bcfeb2578fd8e8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/8a307f76c1b8d832d84076611645f66d.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/8ba7c493d77eb728610860cfe671362b.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/82f10b7faf2820129b2420ebccc220eb.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/cffad2da9a3d29eff6e33ba7bff1242e.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/ea67898f459907cfab2d1fa9999ad409.jpg)
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pccj2qac3a)
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pce5215064)
 
 **喜联盟Gnews编辑部**
