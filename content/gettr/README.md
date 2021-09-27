@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 12:15 AM (UTC)`
+
+《Make A Killing 暴富有术》
+![img](https://media.gettr.com/group46/getter/2021/09/27/00/15/058a1978-9690-a344-109b-725cb7d8379f/out.jpg)
+
+---
+
 `@miles 9/26/2021 11:09 PM (UTC)`
 
 9/26/2021 Miles Guo: My revelation on Ping An Group and Lufax has had a huge impact on our platform! If the Zhongnan Pit ordered to shut down Lufax, then the US will end up in the biggest financial crisis in history! The Rothschild family, Rockefeller family, and Morgan family that used to own half of the wealth in America have been massively dumping their shares related to the CCP and Hong Kong, and their core assets in the US, indicating that both the CCP and the whole world will be in trouble.<br/><br/>9/26/2021 文贵直播：关于平安和陆金所的爆料在我们的平台产生了巨大影响！如果中南坑下令关陆金所，那么美国将进入有史以来最大的经济危机！曾拥有美国一半财富的罗斯柴尔德家族、洛克菲勒家族和摩根家族正在抛售跟中共和香港有关的股份和美国的核心资产，这说明中共和全世界到要出事了！
@@ -290,13 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 
 9-21日：医生主动曝光打疫苗有抽成……这才是重点！
 ![img](https://media.gettr.com/group5/getter/2021/09/22/02/73b8f085-670f-de5c-ec63-bfe0ac14ad04/f393ab565bc9819f7bb9dcdbaa4cac92.jpg)
-
----
-
-`@miles 9/21/2021 11:46 PM (UTC)`
-
-9/21/2021 文贵直播：在过去一年里，中共在香港的投资损失惨重，很多基金正在撤离；恒大倒下后，民生银行必将破产；中共地方政府债和保险公司出了大问题，即将发生和西方的长期的债务违约。因此，日本、德国乃至整个世界的经济将随时崩溃！<br/>9/21/2021 Miles Guo: The CCP’s investment in Hong Kong has suffered huge losses in the past year, while many funds are pulling their investment out of HK. The collapse of Evergrande will be followed by the bankruptcy of the Minsheng Bank. The CCP’s local government’s bonds and insurance companies are in deep trouble, and its default on the long-term debts with the West is around the corner. So, Japan, Germany, and even the entire world’s economy are about to crash at any moment!
-![img](https://media.gettr.com/group46/default/20210921/23/45/793502f5-eb76-6d1e-e6dd-1c0f19f734b3/out.jpg)
 
 ---
 
