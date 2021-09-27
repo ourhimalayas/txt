@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 6:52 PM (UTC)`
+
+If you want to protect your family, please keep them away from the Covid vaccine, spread out the truth, and reach out a helping hand to those in need.  <br/><br/>For those already vaccinated, please avoid the 2nd and 3rd doses; If you start having the symptoms, please seek help and don’t hesitate to ask your doctor to give you Ivermectin plus Doxycycline and Artemisinin for the Treatment of Covid-19 Infection.
+![img](https://media.gettr.com/group37/getter/2021/09/27/18/52/ce3c07e4-b29b-363c-076a-ff198ca86264/out.jpg)
+
+---
+
+`@miles 9/27/2021 6:51 PM (UTC)`
+
+Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine before it is too late!<br/>Spread out the truth to stop all the disasters!  <br/><br/>This notorious vaccine not only taking away our rights but also murdering our loved ones.  How many people were forced to take the vaccine against their will?! How many people were killed because of this vaccine?! How many people are facing the problem of side effects that may occur in the future? Such as autoimmune neurologic disorder that includes weakness and paralysis in the limbs and muscles, and thrombosis with thrombocytopenia syndrome (TTS), which causes blood clots and low platelet levels, persistent headaches, visual changes, abdominal pain, chest pain, leg pain, coldness in limbs and acute bruising or bleeding.
+![img](https://media.gettr.com/group35/getter/2021/09/27/18/51/29e4a6f0-3325-1478-c8f2-25038462e1d7/out.jpg)
+
+---
+
 `@miles 9/27/2021 4:49 PM (UTC)`
 
 9月27号：骗子多的地方就说明了傻人更多……骗子傻人多的地方就说明社会没有法律没有信仰，当然也没有真正的公平的成功。
@@ -284,20 +298,6 @@ WOW
 
 9月24号：尊敬的战友们好．受到了很多战友的要求，希望七哥能直播一下．七哥在30分钟左右，开始乱聊直播。
 ![img](https://media.gettr.com/group38/getter/2021/09/24/14/23/ce27097f-243f-e813-20bc-ab4620a07d0a/70eed6a958c7cea59ee6e5c4abceb56c.jpg)
-
----
-
-`@miles 9/24/2021 2:17 PM (UTC)`
-
-9月24号：依靠王岐山嚣张，跋扈，到了令人发指神鬼都恨这个人，到今天才抓捕，这说明了在中国根本没有法律，根本也不存在什么公平，每个人都是政治和法律的牺牲品……他们坑害的少女，老百姓的财富，犯下的罪恶。在30年前都应该枪毙了，能让他们一直祸害中国人民这几十年，都是因为王岐山这个魔鬼集团，和共产党是个杀人不眨眼的政治犯罪集团，需要继续利用他坑害人民盗取中国人的财富，才能造成这种灾难的结果。被坑害的海航员工，老百姓的血汗钱．被玩弄的少女，谁能给他们公平？谁能给他们真相，对这些被坑害的人民这太不公平了……此时此刻的被抓捕更说明了共产党的腐败，而利用抓人作为借口，不偿还被骗者的债务，转移责任，这是更大的犯罪，一抓债就消除，真正的犯罪人……王岐山就脱罪。这种体制制度！王岐山，作为这个犯罪集团的最大的股东，最大的靠山，不被抓，这就是共产党犯罪集团的真实的嘴脸……是打着合法的名义，法治的幌子，实行独裁腐败，坑害百姓的最低级的伎俩，中国人太可怜了。
-![img](https://media.gettr.com/group28/getter/2021/09/24/14/f450c541-aeb0-5097-e0f8-437deb098307/0ec1a44d6899e347e038de50d8c4c59f.jpg)
-
----
-
-`@miles 9/24/2021 9:59 AM (UTC)`
-
-9/23/2021 Miles Guo: The Jiang faction gave an advice to tear Evergrande apart only to protect their capital pools such as shadow banks, insurance institutions, and trusts; The West is begging Xi to save Evergrande from collapsing, while Xi couldn’t do it by himself; The collapse of Evergrande will crash the world’s financial market, after which the CCP will release more viruses to stop Lao Baixing from protesting on the street; The New Federal State of China will bring the wealth of humanity back to the gold standard<br/><br/>9/23/2021 文贵直播：江派出主意肢解恒大以保其影子银行、保险机构、信托等资金池；西方各国跪求习捂住恒大这颗雷，而习自己却做不到；恒大爆雷将导致全球的金融市场崩溃，而后中共将加大力度放毒以阻止百姓上街抗议；新中国联邦将让人类财富重新回归金本位<br/>
-![img](https://media.gettr.com/group18/getter/2021/09/24/09/59/fdf5ac7b-7d92-268e-5d66-eed54d453b60/out.jpg)
 
 ---
 

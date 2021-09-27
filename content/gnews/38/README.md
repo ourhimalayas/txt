@@ -2,46 +2,106 @@
 ---
 
 
-## 康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1558271/)
+## 疫苗灾难真的没有开始，是因为印钞票全掩盖了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1558326/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210921001211_副本-1.jpg)
-据[**赵延壮mm**](https://weibo.com/u/7306095702?refer_flag=1005055014_) [2021年9月27日 16:47](https://weibo.com/7306095702/KA7nWb8vc?from=page_1005057306095702_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI Mate 30](https://app.weibo.com/t/feed/67dir4) 已编辑
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-22.jpg)https://gtv.org/video/id=61514fadd2e2b817486e947d
+现在他们所有人都意识到
+Ahora todos ellos se dieron cuenta de algo
 
-求政府救命，国家重视 性别：男  姓名：赵延壮 年龄：18岁 联系电话：13111343899 地址：河北省邯郸市馆陶县寿山寺乡韩范庄村 于6.23日接种康希诺新冠疫苗
+疫苗的灾难真的没有开始
+El desastre de la vacuna no ha empezado de verdad
 
-在上海奉贤区八维学校上学，上学期间学校组织我们成年学生接种新冠疫苗，接种后疫苗开始反复发烧、牙龈出血之后，浑身乏力开始严重贫血，身体开始有淤青和出血点。疫苗之前身体很健康，从未生过大病，也没有家族史。后来贫血严重在学校请假去奉贤区医院检查做了血常规，发现结果异常。
+这是七哥在3月4月5月说过的
+Esto lo dije en marzo, abril y mayo
 
-老师带我来到三甲瑞金医院检查，当天就进行了各种检查包括血常规，CT一类，由于医院没有床位就在急诊住了几天，之后腾出床位后进行了骨穿检查，结果显示为急性髓系白血病m2。 住院期间发生了 面部出血、眼底出血包括吐血一类的反应。
+我说美国的经济（崩溃）是5月到9月开始显露
+Yo dije que la economía de EE. UU empezará a revelar (el colapso) desde mayo hasta septiembre
 
-现在已经过去两个月了，病情也暂时得到了控制，现在我已知的和我一样情况的已有200多人，其中包括很多和我一个医院的治疗的，相信还有很多不知道的案例在内。
+到年底会开始
+Hasta finales de este año empezará
 
-半个月前去奉贤区疾控中心上报疫苗异常反应，今天给了答复是跟疫苗没有关系，但是诊断书上连一个权威专家的签名都没有，让我们如何相信这份报告的权威性。更可气的是疾控中心的工作人员告诉我们，没有一个人会对这份报告负责，只是一个政府行为，那么既然没人对这份报告负责我，我们是不是可以怀疑这份报告的真实性和权威性。至此我们是否可以怀疑根本没有专家做鉴定这份报告只是一份敷衍。
+大家看看美国的股市
+Todos vean la bolsa de valores de EE. UU
 
-难道都不需要问一下我的情况进行判断吗，就只是几个专家坐在一起喝着茶水聊一聊我的病情就可以诊断为与疫苗没有关系吗？马上要进行三疗了，这些期间已经费用高达数十万，家里只有爸爸妈妈和姐姐，爸妈年纪大了跑不动流程了，只能让我姐姐来办手续，所以家庭已经没有了任何收入来源，之后还有干细胞移植的费用高达几十万元，之后发生严重排异的费用更是想也不敢想。
+嘎叽就下来了
+Así de una bajará
 
-就算疫苗的严重不良反应是接种剂次的十万分之一那也是对几千个家庭的灭顶之灾，让这些家庭支离破碎。所以求政府救命，求国家重视此类问题。麻烦网友帮忙转发让国家看到。🆘 [2上海](http://t.cn/RVJk9aF) [2上海](http://t.cn/RVJk9aF)
+刚刚在这儿做的决定
+Hace rato hicieron una decisión aquí
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001-5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002-5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/003-4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/004-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/005-4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/006-2.jpg)
+美联储到底要不要把美国的国债的上限提高
+¿Debería la Reserva Federal elevar el límite superior de la deuda pública de EE. UU.?
 
+每年两三万亿
+Dos o tres billones al año
 
-那么赵延壮发出的疫苗诊断报告是怎么写的呢？——急性白血病的发生可能与外界环境、遗传因素有关，接种疫苗不会诱发白血病；疫苗和接种过程均符合接种工作规范要求；受种者接种的康希诺疫苗与所患急性髓系白血病不存在因果关系，不属于预防接种异常反应。
+他不提高做什么
+Por qué no lo eleva
 
-互联网和防火墙分明制造了一个阴阳相隔的奈何桥，在桥的那边是响应政府号召打疫苗，和打了疫苗致病以后的求助无门，18岁的河北青年赵延壮和与他同样因为疫苗导致白血病的200例病友只是冰山一角，200+赵延壮的这些人在徒呼奈何时，这一切与疫苗接种机关的任何个人无关。
+他什么提高
+Para qué lo eleva
 
-这一切只是一个政府行为，可是难道这些疫苗接种机构不是政府的一部分么？所有的扯皮都永远会陷入这样一个怪圈，所有的扯皮都会最终耗尽200+赵延壮这些人的精力，也最终在徒呼奈何中走向生命的终结。
+提高就能印钞票
+Si lo eleva puede imprimir más billetes
 
-撰稿：喜马拉雅的肉夹馍
+你能印多长时间
+Y ¿por cuánto tiempo puede imprimir?
 
-审核：喜马拉雅的馍夹肉
+美国这次股市的下滑可不是操作性、技术性的
+Esta vez, la caída en el mercado de valores de EE. UU. no fue operativa, técnica
 
-校对：Maarago
+或者因为某个突发事件
+o debido a un suceso inesperado
 
-（文章内容仅代表作者个人观点）
+他是一个本质性的经济上的认可
+Eso es un reconocimiento económico esencial
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+一个基本面的经济的反应
+Una reacción económica fundamental
+
+他不是一个所谓的
+Eso no es un supuesto
+
+发现哪个公司、哪个丑闻或者政策或哪个疯狂的总统
+El descubrimiento de una empresa, un escándalo, una política o un presidente perturbado
+
+想炒一把
+Queriendo impactar
+
+哐叽, 给你输一下利益砸起来
+Y así darte unos beneficios
+
+他不是
+Eso no es así
+
+是一个美联储
+Es una Reserva Federal
+
+美国货币基金组织
+El Fondo Monetario de EE. UU
+
+和美国经济面的基础面的反应
+Y la reacción de la base fundamental de la economía estadounidense
+
+严格讲这次疫苗所有的灾难完全没有反映出来呢
+Estrictamente se dice que todo el desastre de la vacuna no se reflejó por completo
+
+一点都没有
+Ni un poquito
+
+因为印钞票全掩盖了
+Porque la impresión de billete lo cubrió por completo
+
+原视频日期：09/23/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1440865571747233798?s=24
+视频时间段：0:00-1:19
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

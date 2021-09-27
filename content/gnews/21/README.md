@@ -2,27 +2,24 @@
 ---
 
 
-## 全球金融危机即将到来 华为厄运刚刚开始
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558546/)
+## 疫苗致台湾24岁青年突患心肌炎 一度命危
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1558551/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+**撰稿：日本东京方舟农场 Kevin wang**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-14.png)
-文章仅代表作者本人观点，与Gnews无关
+据苹果新闻网9月26日报导，台湾一位24岁的男青年在9日打完阿斯利康第一针后，隔天身体不适就医，到院时心脏收缩率减半，甚至出现低血压有休克症状，一度命危。
 
-视频参看：2021.09.27早GTV新闻访谈
+![](https://assets.gnews.org/wp-content/uploads/2021/09/微信图片_20210927171542.png)图片来自于网络
 
-[https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4](https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4)
+据报导，台中市荣总副院长傅云庆指出，这名24岁男性患者是在9月9日接种AZ疫苗第一剂，隔天就出现发烧、呕吐、胸闷等症状，9月12日到他院住院时检查出心肌酵素高，显示心肌发炎且血压偏低，收缩压只有80左右，9月14日转院到该院治疗。9月19日，该男子心脏收缩率上升至46%，病况逐渐稳定后出院。
+台中市卫生局也证实了该信息。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+*注：本文仅代表作者观点，与 Gnews无关*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+*参考链接：*
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[還原發病經過｜台中24歲男打AZ爆心肌炎　心臟收縮率對半砍](https://tw.appledaily.com/life/20210926/AYZB3X6FSJCHDNWBKVIJNCH6TA/)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
