@@ -2,36 +2,41 @@
 ---
 
 
-## 意大利爆发大规模反疫苗护照示威游行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556807/)
+## 中共病毒疫苗和普朊病的风险
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1556938/)
 
-作者：香草山写作组 – 文一
+翻译: 波士顿五月花  时空旅行者
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/g-1.jpg)https://web.archive.org/web/20210210033730/https://scivisionpub.com/pdfs/covid19-rna-based-vaccines-and-the-risk-of-prion-disease-1503.pdf
 
+中共病毒疫苗被发现会导致一系列慢性、晚期不良事件。如1型糖尿病等不良事件，可能会在接种疫苗后的3至4年才会发生。以1型糖尿病为例，不良事件的发生频率可能超过疫苗旨在预防的严重传染病病例的频率。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+鉴于1型糖尿病只是疫苗可能引起的许多免疫性疾病之一，慢性晚期不良事件是一个严重的公共卫生问题。新疫苗技术的出现为疫苗不良事件创造了新的潜在机制。例如，第一款失败的小儿麻痹症疫苗在接重者中引起了脊髓灰质炎，大规模的生产过程使得疫苗在注射到患者体内之前并未有效地杀死脊髓灰质炎病毒。基于RNA的疫苗具有诱发特定不良事件的特殊风险。
 
+其中一个潜在的不良事件是朊蛋白为基础的疾病，由活化内在蛋白质形成朊蛋白引起。一类RNA结合蛋白被证明导致了许多神经系统疾病，包括阿尔茨海默氏症和ALS，大量相关事实已经发表。TDP-43 和 FUS 是这些相关蛋白质研究中做得最好的。
 
+辉瑞基于RNA的中共疫苗在没有长期安全数据的情况下，未经紧急使用授权，获得美国FDA批准。由于担心疫苗安全，有科学家进行了研究，以确定疫苗是否可能诱发普朊病。
 
-近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
+医学界有句老话：”治疗可能比疾病本身更糟糕“。此话适用于疫苗。在本论文中，有人担心基于RNA的中共疫苗比中共病毒大流行本身更有可能引起更多疾病。本文重点研究一种新型潜在的不良事件机制——导致普朊病，这种可能比疫苗旨在预防的病毒感染更为常见和令人沮丧。
 
-意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
+这种担忧源于针对某些机制上研究数据的潜在不当使用，诸如TDP-43、FUS等的RNA结合蛋白可被激活，形成疾病，导致朊病毒。这项研究可用于生物武器开发，由比尔及梅林达·盖茨基金会、埃里森医学基金会等私人组织资助，并无国家或国际监督，这也是令人担忧的一点。
 
-评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
+已公布的数据表明，有几个不同的因素可以促进某些RNA结合蛋白包括TDP-43，FUS和相关分子的转换到他们的病理状态。RNA结合蛋白具有多种功能，存在于细胞核和细胞质中，具有氨基酸区域，结合图案结合特定的RNA序列。当蛋白质在细胞质中时，与特定的RNA序列结合会导致分子以某些方式折叠，导致细胞质的病理聚集，形成阮病毒。现有分析表明，辉瑞疫苗含有许多此类RNA序列，对TDP-43或FUS具有很高的亲和力，并有可能诱发慢性退行性神经系统疾病。
 
-参考链接： [https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21) [https://youtu.be/UxIREubRjh4](https://youtu.be/UxIREubRjh4) [https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world) [https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
+锌与TDP-43的RNA识别图案结合是另一种导致形成淀粉样蛋白，如聚合的机制。由疫苗RNA序列编码的病毒刺突蛋白与ACE2（含有锌分子的酶 ）结合。这种相互作用有可能增加细胞内的锌水平，导致普朊病。最初的结合可能是通过疫苗在细胞表面的刺突蛋白及相邻细胞表面的ACE2之间发生。由此产生的复合体可能会变得内化。
 
-（本文仅代表作者个人观点）
+或者，这种相互作用最初可以在制造ACE2的细胞质中发生，并且已经通过疫苗RNA编码对刺突蛋白进行转染。这种相互作用令人非常担心，因为人们相信导致大流行病的中共病毒是一种生物武器，而刺突蛋白可能被设计成引发普朊病。另一个担忧点为：辉瑞疫苗使用独特的RNA核苷酸1-甲基-3+伪二乙酰（+）。FDA的简报文件称，对这种核苷酸的选择旨在减少先天免疫系统的活性 。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
+含有这种核苷酸的RNA分子无疑会改变结合过程。不幸的是，TDP-43、FUS和其他RNA结合蛋白的影响没有公布。在疫苗中使用这种核苷酸可以潜在地增强RNA序列的结合亲和力，从而导致TDP-43和FUS假定有毒特性。
 
-编辑/校对/发稿：正义的小新
+新型RNA疫苗可诱发许多其他潜在的不良事件，可针对中共疫苗将一种新的分子——刺突蛋白，放入宿主细胞的表面。此种刺突蛋白是另一种可能的新型传染源的潜在受体。如果认为中共病毒是生物武器的人是正确的，那么第二种潜在的更危险的病毒可能会被释放，这种病毒结合了疫苗接种者宿主细胞上的刺突蛋白。
 
-**更多资讯，更多关注**
+（文章仅代表作者本人观点，与GNews 无关）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源: [COVID-19 RNA Based Vaccines And The Risk Of Prion Disease](https://principia-scientific.com/covid-19-rna-based-vaccines-and-the-risk-of-prion-disease-2/)
+
+* * *
+
+*素材来源：时空旅行者*
+
+*编辑**&发布：jamie(文胤)*

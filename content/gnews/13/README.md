@@ -2,50 +2,67 @@
 ---
 
 
-## 美国对中国所有制定的政策，处处都打到中共的七寸
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556712/)
+## 《南华早报》称桑顿访中是基辛格秘密之行的重演
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1556751/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/100-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=614fb309d2e2b817486e173e](https://gtv.org/video/id=614fb309d2e2b817486e173e)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵：**
-**Miles Guo：**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/T-6.jpg)theglobeandmail.com
+笔者曾发文这样描述过拜登，“……真为拜登政府的不争气感到蒙羞，目前虽然没有拿到坐实的证据，但是与中共的勾兑肯定存在，在那些关键问题上的所作所为，拜登主观客观、明里暗里都在帮中共。一上台叫停了唯一的美国官方病毒溯源调查、对种族灭绝只是叫喊，出台一些不痛不痒的制裁措施、对抵制北京冬奥会的呼声不闻不问、积极配合中共在阿富汗的撤军、留人质留武器给塔利班和中共、90天病毒溯源报告内容为中共解围，民众关注点被阿富汗混乱分散。一切都在中共的布局之下，不知克里这次的汇报工作是表功呢，还是继续请领新的任务？”【1】。
 
-为什么呢？
-Why？
+还真让笔者猜中了，孟晚舟的回国，是拜登向习神20大的献礼【2】。
 
-从两样事能看得出来，就美国对中国所有制定的政策
-It is clear from two things, one is that all the policies set by the United States against China
+还有后续的“节目”吗？在中共助力下，窃位总统拜登不会就此止步，背后的中共等恶势力也不会收手，这不，《南华早报》已经开始放风，“基辛格‘秘密’中共国之行的重演，华尔街老兵会见了中共主要领导人，并访问了新疆”【3】。文章摘要指出，中美金融圆桌会议联席主席、高盛（Goldman Sachs）前老板约翰·桑顿（John Thornton）在为期六周的访问中获得了在中共病毒时代前所未有的机会；
 
-几乎都是处处能打到中共的7寸
-can hit the Chinese Communist Party in almost every way
+知情人士表示，（桑顿）与中共副总理讨论了包括气候挑战、新疆以及美中官方会谈的前景。
 
-对中国所有出售给中国的粮食价格和科技产品的把握
-Control over the price of all food and technology products sold to China
+文章说，《邮报》（the Post）获悉，在中美官方交流因紧张局势加剧而放缓之际，一位华尔街资深人士访问北京，与一位高级领导人进行了会谈，这对中美两国来说是一个强大的后方通道。
 
-每次制裁都是招招致命，而且美国从来没有损失
-Every sanction is a deadly move, and the U.S. never loses
+据知情人士透露，巴里克黄金公司（Barrick Gold Corp.）执行董事长、高盛前总裁约翰·桑顿（John Thornton）8月底在北京会见了中共国务院副总理韩正。
 
-所有共产党在国际上篮金黄这些国家，所有的达到的目的和所有的钱，花完以后
-all the countries that the communists colluded with internationally, in order to achieve their goals and spent the money
+讨论的关键问题包括气候变化、新疆和恢复双边会谈的条件。
 
-美国人都能顺势到那儿去，把最好的东西捡走
-After the money is spent, the Americans are able to go to that country along the way and take away the best benefit
+桑顿也是中美金融圆桌会议（the China-US Financial Roundtable）的联席主席，他在为期六周的访问中充当了美中交流的非官方渠道，其中包括8月底与中共高级官员的北京会晤之前在上海停留了三周。
 
-你到那去打，战争完，战场的果实都被美国收走
-The Communists go to some countries and fight for benefit, the war ends, the United States always collects the fruits of the war
+随后，他对遥远的西部地区新疆进行了为期一周的访问。在新疆，美国指责中共对少数民族的维吾尔人实施了种族灭绝政策。
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+自中共病毒疫情首次爆发以来，在中共国对大多数外国人基本上仍不开放的时候，桑顿获得了前所未有的准入。在乔·拜登（Joe Biden）就任总统八个月以来，随着官方关系持续恶化，他是极少数能够在北京与中共官员举行会晤的外国人之一，因此能够在美国和中共高层领导人之间传递信息和政策立场。
 
-**原视频链接:**[** **https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24](https://twitter.com/se1y7cblljselva/status/1439524007825395716?s=24)
+知情人士要求匿名表示，“桑顿的访问性质类似于（1971年）基辛格的秘密中国之行。”
 
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – Raul
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+白宫最近几个月试图在拜登和中共习近平主席之间安排一次亲自会晤，希望能解决一些最棘手的问题，北京官员表示，今年年底前不太可能实现这一目标，但已对重启对话持开放态度。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+他们还坚持认为，华盛顿应该首先调整其强硬方针，解决中共国的一些最关心的问题，正如美国副国务卿温迪·谢尔曼（Wendy Sherman）7月底在天津会见中共高级外交官时所阐述的那样。
+
+其中一个关注的问题是，要求美国撤回对﻿2018年12月在加拿大被拘留的华为首席财务官孟婉舟的引渡要求。令人惊讶的是，孟在与美国检察官达成协议后于周六（9月25日）返回了中共国，该协议有效地解决了一宗美国欺诈案，该案使她在温哥华处于法律边缘近三年。
+
+这位知情人士说：“韩告诉桑顿，中共不寻求挑战或取代美国，两国应该恢复合作，但前提是相互尊重，这意味着美国应该将中共视为平等的伙伴。”
+
+担任七人全能政治局常委之一的韩正也拒绝了拜登政府对中共国的双管齐下方针——即继承川普在各方面与北京竞争的剧本，同时寻求在包括气候问题在内的有限领域开辟合作渠道，他告诉桑顿，继续前总统的强硬路线是行不通的。
+
+在前往中共国之前，桑顿与一位深入参与美中关系的白宫官员讨论了此次访问，这位官员至少两次要求桑顿不要访问新疆，因为担心这会被视为对华盛顿所说的中共在维吾尔自治区的镇压政策的认可。
+
+但桑顿的新疆之行显然受到了韩正的欢迎，知情人士说：“韩正告诉桑顿，他应该告诉美国议员他在新疆的观察结果，美国应该重新考虑其双重标准——将9/11后的战争视为反恐行动，但批评中共的反恐行动侵犯人权。”
+
+在北京期间，桑顿还在美国气候特使约翰·克里（John Kerry）正式访问之前会见了中共首席气候谈判代表解振华，并于8月31日至9月3日在天津与多名中共高级官员进行了虚拟会谈。
+
+桑顿告诉韩正，他相信克里不仅是气候问题谈判的关键人物，而且是整个美中关系的关键人物。
+
+……
+
+略去扯淡的气候话题。
+
+（完）
+
+笔者认为《华南早报》的这篇文章传达了很重要的信息，拜登政府与中共有一条“强大的后方通道”，该从幕后转为前台了。韩正被抬得很高，有没有画外音？韩正要桑顿告诉美国议员在新疆的观察结果，试图淡化西方对新疆的制裁、指责？为继续举办冬奥会铺垫？
+
+且看拜登政府亲共、通共的继续表演！
+
+参考链接：
+
+【1】[https://gnews.org/zh-hans/1504769/](https://gnews.org/zh-hans/1504769/)
+
+【2】[https://gnews.org/zh-hans/1553000/](https://gnews.org/zh-hans/1553000/)
+
+【3】[https://www.scmp.com/news/china/diplomacy/article/3150003/kissingers-secret-china-trip-recalled-wall-street-veteran?module=perpetual\_scroll&pgtype=article&campaign=3150003](https://www.scmp.com/news/china/diplomacy/article/3150003/kissingers-secret-china-trip-recalled-wall-street-veteran?module=perpetual_scroll&amp;pgtype=article&amp;campaign=3150003)
