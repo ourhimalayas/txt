@@ -2,27 +2,19 @@
 ---
 
 
-## 中共为掩盖能源危机下令企业停产
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1557049/)
+## 中共粮食危机已经近在咫尺
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1557236/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+#### 撰稿：东京樱花团/深藏不露
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/NEWSTALK-20210926PM-text-SC.png)
-文章仅代表作者本人观点，与Gnews无关
 
-视频参看： 2021.09.26晚GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/6151101942a8af3151a64128](https://gtv.org/broadcast/watch/6151101942a8af3151a64128)
+据中共海关总署数据，去年中国进口粮食首次突破1.4亿吨，增至1.4262亿吨，同比增长27.97%，无论进口量和增幅均创近年来新高。其中玉米和小麦进口量创历史最高纪录，分别达到1,130万吨和838万吨，同比增长135.7%和140.2%。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+今年随着中共国内各种天灾人祸以及中共外汇的短缺，加上巴西等粮食出口大国严重干旱加剧了价格上行压力，中共的粮食危机已经近在咫尺！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

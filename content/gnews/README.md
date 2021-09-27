@@ -15,137 +15,137 @@
 
 ---
 
-### [澳大利亚银行现出故障，客户账号余额显示错误](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [澳洲总理联大演讲再次呼吁查清中共病毒疫情源头](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [中共为掩盖能源危机下令企业停产](/content/gnews/2/README.md)
- ` 纽约香草山MOS01`
+### [中共粮食危机已经近在咫尺](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵直播摘要和音频2021.9.26](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [G时评：好人、仇恨与嘲笑](/content/gnews/4/README.md)
- ` GISELLE`
-
-### [朱立伦和国民党舔共卖台能得到继续尸位素餐的机会么](/content/gnews/5/README.md)
+### [强制疫苗会停止,经济危机一定爆发新虚拟货币系统将诞生](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国再次封杀加密货币](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共国杂志《舰船知识》刊登模拟解放军攻台情景](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 真相工程- FDA人员主张挨家挨户“吹飞镖”式注射，迫使未打疫苗者就范](/content/gnews/7/README.md)
- ` MOSREC`
+### [鉴于疫情数据好转，日本政府欲结束紧急事态宣言](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩电商Coupang被疑泄露用户个人信息](/content/gnews/8/README.md)
- ` 首尔天池农场`
-
-### [郭文贵对孟晚舟事件发展走向的历次神预言](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共病毒疫苗和普朊病的风险](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [以朱立伦为首的国民党将会出卖台湾](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [已经全面进入小康社会 为何还要停电？](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [雅典娜时报-第064期](/content/gnews/13/README.md)
+### [澳大利亚银行现出故障，客户账号余额显示错误](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《红色赌盘》之四：2002－2018年党内斗争和政治局势变化](/content/gnews/14/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [意大利爆发大规模反疫苗护照示威游行](/content/gnews/15/README.md)
+### [中共为掩盖能源危机下令企业停产](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [中共对恒大采取措施是继续欺骗，并为恒大破产做准备](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [《红色赌盘》之三：段伟红夫妇与王岐山，周亮，习近平和李伯潭等人的交往](/content/gnews/17/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [《红色赌盘》之二：温家宝及亲属（夫人张蓓莉，儿子温如松和女儿温如春）](/content/gnews/18/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [《南华早报》称桑顿访中是基辛格秘密之行的重演](/content/gnews/19/README.md)
- ` HimalayaRussia`
-
-### [世界上各种力量和黑暗组织正在较量](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [9/26/2021 七哥直播：关于平安和陆金所的爆料在我们的平台产生了巨大影响](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
-
-### [恒大的钱去哪了](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [樱花灭共诗——杞忧（新韵）](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国对中国所有制定的政策，处处都打到中共的七寸](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [樱花灭共诗——南乡子•华为公主回国](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [从印尼排华来看世界华人的危险及中共对华人的祸害](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [9/26/2021 七哥直播：10月1日后各国将停止强制注射疫苗，并将开放使用伊维菌素，青蒿素，地塞米松，羟氯喹](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭先生：多种因素将导致共产党加速灭亡](/content/gnews/28/README.md)
- ` MG 澳喜农场多语组`
-
-### [加拿大生活美谈2021-09-23第二十三期](/content/gnews/29/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [联邦工作人员就疫苗强制接种令提起诉讼](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [意大利卫生部准备给老年人施打新冠疫苗第三剂加强针和流感疫苗](/content/gnews/31/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共军机挂核弹绕台 中共国沿海导弹系统启动](/content/gnews/32/README.md)
- ` 纽约香草山MOS01`
-
-### [DC每日热点0926](/content/gnews/33/README.md)
+### [郭文贵直播摘要和音频2021.9.26](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [孟晚舟封神 福兮？祸兮？](/content/gnews/34/README.md)
- ` 纽约香草山MOS02`
+### [G时评：好人、仇恨与嘲笑](/content/gnews/9/README.md)
+ ` GISELLE`
 
-### [（日说｜文贵）2021年9月24日](/content/gnews/35/README.md)
- ` 纽约香草山MOS02`
+### [朱立伦和国民党舔共卖台能得到继续尸位素餐的机会么](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [沈栋的《红色赌盘》与郭先生爆料的对比-《红色赌盘》之一: 段伟红和沈栋](/content/gnews/36/README.md)
+### [中共国再次封杀加密货币](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频| 真相工程- FDA人员主张挨家挨户“吹飞镖”式注射，迫使未打疫苗者就范](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [韩电商Coupang被疑泄露用户个人信息](/content/gnews/13/README.md)
+ ` 首尔天池农场`
+
+### [郭文贵对孟晚舟事件发展走向的历次神预言](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共病毒疫苗和普朊病的风险](/content/gnews/15/README.md)
+ ` 波士顿五月花农场`
+
+### [以朱立伦为首的国民党将会出卖台湾](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [已经全面进入小康社会 为何还要停电？](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [雅典娜时报-第064期](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国俄勒冈州参议员起诉美国食品药物管理局和疾病控防中心](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [加密货币交易所火币将在2021年底前清理现有大陆客户](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [中国科技界高管在乌镇互联网峰会上承诺支持 &#8220;共同富裕&#8221;](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [孟晚舟回中共国事件，成中共墙内愚民的新工具](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [中共为掩盖能源危机 以节能为借口下令浙江省企业停产](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [《红色赌盘》之四：2002－2018年党内斗争和政治局势变化](/content/gnews/24/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/37/README.md)
- ` wenwu`
+### [意大利爆发大规模反疫苗护照示威游行](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
 
-### [家庭反洗脑序列：第28篇 氧化石墨烯](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共对恒大采取措施是继续欺骗，并为恒大破产做准备](/content/gnews/26/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年9月26日郭先生直播速记](/content/gnews/39/README.md)
+### [《红色赌盘》之三：段伟红夫妇与王岐山，周亮，习近平和李伯潭等人的交往](/content/gnews/27/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [罗马民众再次走上街头抗议疫苗护照](/content/gnews/40/README.md)
+### [《红色赌盘》之二：温家宝及亲属（夫人张蓓莉，儿子温如松和女儿温如春）](/content/gnews/28/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [《南华早报》称桑顿访中是基辛格秘密之行的重演](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [9/26/21 香港快讯 20岁以下登记选民跌幅近3成](/content/gnews/41/README.md)
+### [世界上各种力量和黑暗组织正在较量](/content/gnews/30/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [9/26/2021 七哥直播：关于平安和陆金所的爆料在我们的平台产生了巨大影响](/content/gnews/31/README.md)
+ ` 秘密翻译组-北美组`
+
+### [恒大的钱去哪了](/content/gnews/32/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国对中国所有制定的政策，处处都打到中共的七寸](/content/gnews/33/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [9/26/2021 七哥直播：10月1日后各国将停止强制注射疫苗，并将开放使用伊维菌素，青蒿素，地塞米松，羟氯喹](/content/gnews/34/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭先生：多种因素将导致共产党加速灭亡](/content/gnews/35/README.md)
+ ` MG 澳喜农场多语组`
+
+### [联邦工作人员就疫苗强制接种令提起诉讼](/content/gnews/36/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [DC每日热点0926](/content/gnews/37/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [孟晚舟封神 福兮？祸兮？](/content/gnews/38/README.md)
+ ` 纽约香草山MOS02`
+
+### [（日说｜文贵）2021年9月24日](/content/gnews/39/README.md)
+ ` 纽约香草山MOS02`
+
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/40/README.md)
+ ` wenwu`
+
+### [家庭反洗脑序列：第28篇 氧化石墨烯](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年9月26日郭先生直播速记](/content/gnews/42/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [罗马民众再次走上街头抗议疫苗护照](/content/gnews/43/README.md)
+ ` HimalayaRussia`
+
+### [9/26/21 香港快讯 20岁以下登记选民跌幅近3成](/content/gnews/44/README.md)
  ` 英喜-粵語組`
-
-### [秘翻在线：狂热的疫苗接种支持者第三次注射后死亡](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：粮食短缺问题解决了？中共科学家称二氧化碳可合成为淀粉](/content/gnews/43/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国禁止所有加密货币交易](/content/gnews/44/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [9/25/21国内经济财经周报：海航陈峰股权清零后被采取强制措施；中共进一步整治虚拟币](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`

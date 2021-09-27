@@ -2,18 +2,15 @@
 ---
 
 
-## 雅典娜时报-第064期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1556925/)
+## 韩电商Coupang被疑泄露用户个人信息
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1556960/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+韩国天池农场—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/09/927封面C.jpeg)图片来源：网络
+据韩国NEWSIS于9月26日的报道，韩国国会科学技术信息放送通信委员会无党派议员梁贞淑，质疑韩国电商巨头Coupang，将保存在其应用程序中的个人身份和位置信息转移至中国子公司韩领网络（北京/上海）有限公司。Coupang方面发布文件否认了质疑，声称用户个人信息储存在韩国，并没有转移或储存在中国。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-20.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/1-33.png)
-***发布：小红帽***
+点评：因为把保存在其应用程序中的个人身份和位置信息转移至中国子公司韩领网络（北京/上海）有限公司，是在中共国被泄漏了，又是和中共有关。中共作为一个偷取信息的惯犯，上一次是今年3月份，日本即时通讯软件LINE公司在上海的中国工程师在没有通知用户的情况下，接触了公司存放的用户信息。在中共国设立公司，就要接受中共的法律法规的监督。但中共就是中国的法律，为了企业的安全和长远发展，还是远离中共为上策。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[新闻来源](http://naver.me/F4NbwoxT)
+
+（本文仅代表作者观点，与Gnews平台无关）
