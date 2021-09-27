@@ -2,32 +2,37 @@
 ---
 
 
-## 加密货币交易所巨头因禁令加宽而缩减中共国用户数
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1557874/)
+## 有声|意大利爆发大规模反疫苗护照示威游行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1558000/)
 
-**简评：**两家由中共自己一手扶持起来的数字货币公司，竟会将本国人民拒之门外，真的很荒谬。中共很清楚，这些交易平台上的缺口，为资金外流提供了通道。在喜币即将上市之际，中共出于恐惧终于不得已选择打压数字货币交易平台，无异于此地无银三百两。中共仓皇地反应只会给它带去更多的灾难，一刀切的方法必将进一步损害部分人的利益，加剧党内斗争，百姓间激增的恐慌情绪也会让社会动乱，削弱中南坑的统治基础。
+配音：纽约香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-2.jpg)网络图片
-
-世界上最大的两家比特币交易所已经停止了中共国用户的新注册，并且其中一家将清退现有账户，以遵守中共政府最新的加密货币禁令。
-
-交易所运营商火币和币安已经停止让交易者使用中国大陆的手机号码注册新账户，此前中国人民银行于周五表示，所有与加密货币有关的交易将被视为非法金融活动。在这两个平台上，香港用户仍然可以进行新的注册，但中国大陆不再是创建新账户的一个选项。火币也宣布计划在年底以前关闭现有账户。
-
-币安发言人表示，该公司在中共国没有交易业务，并屏蔽了来自中共国的IP，但没有对移动注册的举措发表评论。
-
-中共国的最新公告——由央行和包括公安部在内的其他九个政府机构共同发布——是多年来试图打击比特币及其同类数字货币的高潮。周五的通知特别指出了针对中共国用户的离岸交易所，禁止他们在当地招聘从营销到支付结算和技术的职位。
-
-6月，火币禁止现有中共国用户交易风险较高的产品，如金融衍生品，此前中共国呼吁重新打击加密货币交易和采矿。
-
-原文链接：[State police union sues over governor’s vaccination mandate](https://www.foxnews.com/politics/state-police-union-sues-over-governors-vaccination-mandate)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
+
+意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
+
+评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
+
+[文字版原文：意大利爆发大规模反疫苗护照示威游行](https://gnews.org/zh-hans/1556807/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

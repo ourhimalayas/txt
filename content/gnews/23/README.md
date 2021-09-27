@@ -2,19 +2,35 @@
 ---
 
 
-## 卡车司机对绿色通行证的罢工
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1557697/)
+## 有声|德国内政部对中共国产智能手机启动安全调查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1557875/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09271.png)
-意大利在 9 月 27 日星期一的今天开始另外一种形式的抗议绿色通行证的行动，卡车司机们召集一起进行罢工：他们采用最高时速为 30 公里的行驶速度，这是他们特殊的抗议形式，这可能会对道路和高速公路的流动性产生影响。
+配音：纽约香草山美食部 – 玫瑰园
 
-这是自发的动员行为，意大利运输部门的任何行业协会都没有确认这样的举措，也没有任何赞助，同时也有不少重型车辆司机加入了该行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-现在还无法预测这个抗议活动将如何演变。警方处于戒备状态，因为当没有任何组织，一切都不协调时，动乱和紧张局势的风险就会增加。
 
-免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.today.it/cronaca/sciopero-camionisti-oggi-27-settembre-2021.html](https://www.today.it/cronaca/sciopero-camionisti-oggi-27-settembre-2021.html)
+继立陶宛政府对中共国智能手机产品内置的信息审查功能发出警告后，德国内政部下属的联邦信息安全办公室（BSI）也就此启动了调查。具体涉及的中共国产手机品牌包括华为、小米和一加OnePlus。
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+此前立陶宛政府称小米/华为手机在欧洲销售的手机可以识别”自由西藏”、”台湾独立万岁”、”民主运动”等关键词并屏蔽相关内容。而德国内政部也启动对中共国国产手机的安全调查，表明欧洲社会已经开始对中共远程数据操纵和信息审查保持高度警惕。中共试图把对中国人的那一套监控打压方法在欧洲如法炮制，并非法窃取各种信息，这对西方社会和公民来说都是一种侵犯和巨大的安全隐患。
+
+[文字版原文：德国内政部对中共国产智能手机启动安全调查](https://gnews.org/zh-hans/1556027/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

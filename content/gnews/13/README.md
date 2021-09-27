@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年9月25日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557794/)
+## 2021年9月25日 文贵先生盖特 10
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557937/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。 证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/) 以色列COVID-19 疫苗受害者证词(一）
+This clip clearly displays Mr. Miles Guo’s repeated early warnings about the Covid Vaccines for the CCP Virus. This vaccine product is the result of collusion between the international “Dark Forces” and the CCP. The Covid Vaccines would cause serious adverse effects and a secondary disaster in the COVID-19 pandemic. Too many people are suffering from the Covid Vaccines and lots of people have even lost their lives. A series of events have fully validated Miles Guo’s warnings. History is the best proof of present and future! Rejecting toxic vaccine is saving humanity. Spread the truth and never give up!
 
-[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pc9b02895d)
+[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pcau8r8499)
 
 **喜联盟Gnews编辑部**

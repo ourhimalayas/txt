@@ -2,13 +2,22 @@
 ---
 
 
-## 2021年9月25日 文贵先生盖特 7
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557847/)
+## 促生育！中共再废止部分计划生育行政法规
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1557975/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-400.png)
+[图片来源](https://www.hk01.com/01%E8%A7%80%E9%BB%9E/614664/%E8%A8%88%E5%8A%83%E7%94%9F%E8%82%B2%E8%88%87%E9%96%8B%E6%94%BE%E7%94%9F%E8%82%B2%E6%9C%AA%E5%BF%85%E8%A1%9D%E7%AA%81)
 
-9/25/2021 Miles Guo’s GETTR: Before the Covid vaccine and virus catastrophe arrives, our fellow fighters shall focus on the following key issues: 1) stay away from the CCP virus, 2) not get vaccinated, 3) prepare for necessary medicines and antidotes, and 4) until the threat is disarmed, you must ensure you have food to eat, dwelling to live and money to spend 9/25/2021 文贵盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点：1）防范中共病毒、2）不打疫苗、3）备好解药、4）在威胁解除前保证有饭吃、有房住、有钱花
+近年来，针对人口的不断老龄化发展和低生育率的现实，中共不断放开施行了四十年的人口计划生育管制。
 
-[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pc9rn371b9)
+9月26日，中共发布“第747号国务院令”，宣布即日起废止《计划生育技术服务管理条例》《社会抚养费征收管理办法》《流动人口计划生育工作条例》3项行政法规。
 
-**喜联盟Gnews编辑部**
+废止计划生育法规，出台激励生育的措施，正是中共当下促生育的两个重要抓手。实施了四十年的计划生育，彻底破坏中国人口结构，加之中共的盗国贼治国模式，制造了“房医学”的新三座大山对老百姓进行极端压榨，导致低生育率不断走低。可见，不灭共，老百姓生不起，也不愿生！
+
+信息来源：[国务院关于废止部分行政法规的决定（中华人民共和国国务院令第747号）](https://www.mee.gov.cn/zcwj/gwywj/202109/t20210927_954071.shtml)
+
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

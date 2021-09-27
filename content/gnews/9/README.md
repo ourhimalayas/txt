@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年9月25日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557828/)
+## 2021年9月25日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557964/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-9/25/2021 Miles Guo’s GETTR: Again, I’ve said Meng Wanzhou might be sent back to China and she did! My live broadcast starts tomorrow from 10 AM to 10:30 AM (EST), or 10:00 PM (CST) by sharing some of my comments and intel
+这段视频清楚地展示了郭文贵先生对中共病毒 Covid疫苗早期的反复预警。 这些疫苗产品是国际“黑暗势力”与中共勾结的结果。Covid 疫苗将在 COVID-19 大流行中造成严重的副作用和次生灾难。 太多人遭受Covid疫苗副作用的折磨，很多人甚至失去了生命。 一系列事件充分验证了郭文贵的警告。 历史是现在和未来最好的证明！ 拒绝有毒疫苗就是在拯救人类。 传播真相，永不放弃！
 
-9/25/2021文贵盖特：孟晚舟回国又被七哥说中了？明天早上10点到10点半(美东时间)、大陆时间明晚10点七哥大直播，和大家分享一下七哥的观点和情报
-
-[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pc854j0237)
+[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pcasp6a2fb)
 
 **喜联盟Gnews编辑部**

@@ -2,13 +2,35 @@
 ---
 
 
-## 2021年9月25日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557749/)
+## 有声|盖特答谢用户大抽奖, 新泽西一家赢得福特卡车
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1557899/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+配音：纽约香草山美食部 – 玫瑰园
 
-9月25号：疫苗灭共．我们取得巨大的成就，接下来还有更多的国家需要我们去解救！大家一定不要松懈下来，全力以赴传播解药的真相．疫苗的真相。 【尊敬的七哥，您好！ 昨天得到的信息，欧盟已经同意10月20号不再推行疫苗护照，疫苗被归于试验性，基本上停止了毒疫苗。伊维菌素重新被批准使用，10月1日起，欧盟医院正式启动五种药物临床综合治疗方法。 七哥您为了这个事情，基本上是彻夜连续工作，无法用语言来表达所有人对您的感激和感恩。 我的军事群里一位男士前天告诉我，在他家乡XX的地方上，有一位中国商人买通当地市长，做尽坏事。我告诉他在澳洲有许多各种层次的这种人，所以我们有良知的之间要合作，携起手来彻底消灭共产党。 通过传播您的爆料声音，让更多的当地社区知道中国人不等同与CCP。 另外，XXX的这位在椅子群里发表这种言论，有点过了。她曾经还表示自己就是CCP。 再次感恩七哥**🙏🙏🙏**】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2fad3b12a927d059d2d81250cd65ab69.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/3f35d1b35496ae9fe612d75647325d33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/33c1b2cdaca4ccee56e7e7ae293e8af6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/68fb672752cadb0728a11864e69bba61.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/88aaf2240000be4044684d0cf21d0264.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/09/25926698b2983d55740e0b407fe264c0.jpg)
-[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pc6yta2afd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-**喜联盟Gnews编辑部**
+
+
+由川普总统的前高级顾问和战略家杰森米勒担任CEO的全新社交媒体盖特, 虽然刚成立不到3个月, 但已经成为推特最有力的竞争对手,众多保守派人士及媒体/自媒体都选择离开推特来到盖特, 因为这里不会有政治正确和对言论自由的打压,更不会有封杀。
+
+目前盖特注册用户已超过200万! 为鼓励和欢迎注册用户, 盖特举行了一次名为”Get Truckin”的抽奖答谢活动, 最终来自新泽西州杰克逊市的莱克伍德赢得了一辆全新福特F-150卡车, 杰森米勒亲自驾车送到他的家门口。 一位向获奖者表示祝贺的用户称: ” 感谢盖特和米勒,他们在为言论自由而战!”
+
+[文字版原文：盖特答谢用户大抽奖, 新泽西一家赢得福特卡车](https://gnews.org/zh-hans/1556341/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
