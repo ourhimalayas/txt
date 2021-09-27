@@ -2,21 +2,15 @@
 ---
 
 
-## 秘翻在线：世卫组织组建新团队调查中共病毒起源
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1557634/)
+## 2021年9月24日 文贵先生盖特 9
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557730/)
 
-##### 撰稿：彩虹  
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-##### 责编：胡天     
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-397.png)图片来源：法国24电视台
-9月26日，《国会山报》记者奥拉菲米汉·奥辛（Olafimihan Oshin）引述《华尔街日报》（The Wall Street Journal）报道说，世界卫生组织（WHO）组建了一个由20名科学家组成的团队，重启对中共病毒（COVID-19）起源的调查。
+9/24/2021 Miles Guo: Chen Feng had been formally arrested months ago and had lost his freedom for two years. Chen Feng’s daydream that Wang Qishan would replace Xi to be the head of the CCP in the 20th Party Congress has been broken! The first overseas investment made by the Chinese people in history was the CIC’s investment in Blackstone. About 40-50% of HNA’s assets are hidden overseas now.
 
-报道指，之所以重启调查，是因为世卫组织的初步调查发现，中共国科学家提供的数据不足以回答有关中共病毒起源的关键问题。
+9/24/2021 文贵直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久; 陈峰关于王岐山20大取代习当老大的幻想已破灭！ 中投投资黑石是中国人有史以来第一笔在海外的投资; 海航仍有40%-50%的资产藏在海外
 
-据报道，世卫组织的官员表示，这个名为“新型病原体起源科学顾问小组”的科学家团队，可能会负责审查中共病毒是否从实验室中出现，以及对未来病毒风险和与人类行为的联系进行更广泛的调查。该调查团队包括实验室安全专家、生物安全专家、遗传学专家和动物疾病方面的专家。
+[【2021年9月24日】文贵先生盖特原文](https://gettr.com/post/pc5hizc3b8)
 
-已经从病毒生化武器升级到疫苗基因武器了，世卫组织还在带着全世界兜圈子。其作用仅在于：一，无端消耗纳税人的资金；二，掩盖罪恶事实，拖延事实真相，为中共续命；三，维持世卫这个助纣为虐组织的存在合理性。
-
-**新闻来源**
-
-[WHO looks to revive probe into COVID-19 origins: report](https://thehill.com/policy/healthcare/public-global-health/574022-who-looks-to-revive-probe-in-covid-19-origins?rl=1)
+**喜联盟Gnews编辑部**

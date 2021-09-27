@@ -2,19 +2,13 @@
 ---
 
 
-## 2021年9月25日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557791/)
+## 2021年9月25日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557847/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-【郭先生，这个视频是以色列中共病毒疫苗受害者证词。 原视频共1小时6分，DC农场翻译组将之翻译成6个成品视频。这个受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。 证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/) [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/)】
+9/25/2021 Miles Guo’s GETTR: Before the Covid vaccine and virus catastrophe arrives, our fellow fighters shall focus on the following key issues: 1) stay away from the CCP virus, 2) not get vaccinated, 3) prepare for necessary medicines and antidotes, and 4) until the threat is disarmed, you must ensure you have food to eat, dwelling to live and money to spend 9/25/2021 文贵盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点：1）防范中共病毒、2）不打疫苗、3）备好解药、4）在威胁解除前保证有饭吃、有房住、有钱花
 
-
-
-> [Homepage English](https://www.vaxtestimonies.org/en/)
-
-
-
-[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pc70dfa3f0)
+[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pc9rn371b9)
 
 **喜联盟Gnews编辑部**

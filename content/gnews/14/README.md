@@ -2,15 +2,49 @@
 ---
 
 
-## 2021年9月24日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557716/)
+## 世界重磅炸弹｜新冠病毒、疫苗、“超级MERS”生化攻击 — 一场惊天阴谋正在进行中
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1557792/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+台湾宝岛农场｜天灭中共 / 砖家
 
-9/24/2021 Miles Guo: Bohai Capital Holding fabricated its 20 trillion yuan worth of assets with lies and fraudulent appraisals; HNA managed to grow 20,000 times a day by swindling the Lao Baixing’s money and fraudulent accounting. Evergrande and HNA employ the same scam – taking away 1,000 yuan from every 10,000 yuan defrauded out of the Lao Baixing; The state-owned real estate companies profit by taking kickbacks, while the private enterprises rely upon laundering money to the overseas
+在之前的一篇系列文章中我们已经提及，一份由生态健康联盟向 DARPA 提出的，编号为 HR001118S0017-PREEMPT-PA-001 （下文简称 DARPA 文件）的拨款提案，近日被 DRASTIC 小组获得。
 
-9/24/2021 文贵直播：渤海金控用谎言和虚假评估伪造了20万亿的资产，海航通过骗老百姓的钱和做假帐达到了所谓每天2万倍的成长；恒大和海航都用同一套路骗钱，骗老百姓一万块拿走一千；国有房地产全靠吃回扣，私营企业全靠洗钱到海外去
+- 回顾上一篇：[中共即将对美发起“超级MERS”生化攻击](https://gnews.org/zh-hant/1555959/)
 
-[【2021年9月24日】文贵先生盖特原文](https://gettr.com/post/pc4cepcfdd)
 
-**喜联盟Gnews编辑部**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/快照_36157.png)
+
+该小组结合较早前被揭露的其他文件，经过深入研究发现一个惊天阴谋正在进行中……
+
+**新冠病毒 COVID-19：**
+
+- 生态健康联盟的 CEO 彼得·达扎克 (Peter Daszak）和福奇向 DARPA 寻求资金，以便在中国研制生物武器，如果 DARPA 同意资助，计划邀请石正丽参加 DARPA 总部的庆祝活动。
+- DARPA 拒绝资助，但他们仍然通过支持人口减少的全球主义获得了资金支持。
+- 设计 SARS-CoV-2 （即现在的COVID-19），旨在以低死亡率迅速传播，以制造全球恐慌和对疫苗的需求，以及由于通过欺诈性 PCR 测试诊断出的“病例”而实现封锁和全球共产主义。
+- 计划每年开发 3 到 5 种冠状病毒生物武器菌株。通过生物武器对人类进行的持续、永无止境的管制，所有这些的合作方：中国共产党；资助方：美国军方。
+
+
+**超級 MERS**：
+
+- 福奇（Anthony Fauci）和生态健康联盟已经找到了一种获得 MERS 的方法，并将其作为获得功能研究的模板。
+- 在武汉病毒研究所将来自 MERS、HIV、SARS、Ebola、Nipah 等病毒株设计在一起，创造出对人类 ACE2 受体具有特殊亲和力的“嵌合”生物武器：“超级MERS”。
+- 通过福奇、NIH 和 PLA（人民解放军）控制下，发布增强版“超级MERS”，一种超级致命的生物武器。
+- DARPA 最初资助MERS，但拒绝支持将其释放到野外，仅希望将其作为一种战略性的、最后一搏的生物武器，以应对极端紧急情况。
+- “超级 MERS” 目前已经由中共解放军通过墨西哥毒品走私路线，进入美国，他们接到命令后，将立即在美国各城市同时释放“超级 MERS”。中共解放军有数百名军事顾问与墨西哥毒贩合作，并承诺一旦中共击败美国，毒贩将获得美国南部的一部分。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/快照_36154.png)
+
+**疫苗：**
+
+- 二元武器系统：疫苗是前半部分，“超级 MERS”是后半部分。
+- 超级 MERS 的释放将被称为“变种”毒株，将责任推到未接种疫苗的人。
+- 在正常情况下，这种超级 MERS 菌株将杀死至少 30% 的冠状病毒感染者。但由于新冠病毒疫苗破坏了接种者的免疫反应，接种者的死亡率可能突破50%。
+
+
+推荐阅读：//[郭文贵爆料：中共会在快完蛋的时候，在全世界释放毒性强、无潜伏期、高致死的“热毒”，并推卸给冠状病毒](https://gettr.com/post/pc36ln05b0)//
+推薦閱讀：//[郭文贵对世界的警告：中共掌握了生化武器投放技术，无色、无味、易投放，技术来源于美国，准备夏秋之际把冠状病毒再次投放到美国和欧洲](https://gettr.com/post/p1lbjg)//
+
+新闻来源：[分析报告](https://www.naturalnews.com/files/Defuse-Project-Drastic-Analysis-1.pdf)
+
+* * *

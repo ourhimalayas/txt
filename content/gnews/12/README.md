@@ -2,15 +2,24 @@
 ---
 
 
-## 2021年9月24日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557730/)
+## 日本喜剧演员接种两针疫苗后感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1557795/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-398.png)
+(图片源自本文链接)
 
-9/24/2021 Miles Guo: Chen Feng had been formally arrested months ago and had lost his freedom for two years. Chen Feng’s daydream that Wang Qishan would replace Xi to be the head of the CCP in the 20th Party Congress has been broken! The first overseas investment made by the Chinese people in history was the CIC’s investment in Blackstone. About 40-50% of HNA’s assets are hidden overseas now.
+日本雅虎网站9月27日消息：
 
-9/24/2021 文贵直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久; 陈峰关于王岐山20大取代习当老大的幻想已破灭！ 中投投资黑石是中国人有史以来第一笔在海外的投资; 海航仍有40%-50%的资产藏在海外
+由其签约经纪公司官方网站27日宣布，喜剧二人组Anjash的儿嶋一哉（49岁）已感染中共病毒。
 
-[【2021年9月24日】文贵先生盖特原文](https://gettr.com/post/pc5hizc3b8)
+他的办公室说：为了上节目，他在9月24日(星期五)进行了PCR测试，9月26日(星期日)收到了阳性测试结果。本人表示目前没有任何症状，但我们正在遵循卫生当局的指示，谨慎对待。从现在起，在公共卫生部门的指导下，我们将采取适当的措施，包括识别与他有密切接触的人。
 
-**喜联盟Gnews编辑部**
+经纪公司宣布后，儿嶋也发推写道：我对由中共病毒检测呈阳性给大家带来的麻烦和担忧，深表歉意! 我已经接种了两次疫苗，没有任何症状，情况良好。我将遵循公共卫生中心的指示，好好治病。
+
+[信息源](https://news.yahoo.co.jp/articles/826dc88612912a99b182dc905077b2792d353425)
+
+（文章仅代表作者个人观点，与GMEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

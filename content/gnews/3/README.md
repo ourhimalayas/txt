@@ -2,24 +2,35 @@
 ---
 
 
-## 日本喜剧演员接种两针疫苗后感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1557795/)
+## 有声|德国内政部对中共国产智能手机启动安全调查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1557875/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-398.png)
-(图片源自本文链接)
+配音：纽约香草山美食部 – 玫瑰园
 
-日本雅虎网站9月27日消息：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-由其签约经纪公司官方网站27日宣布，喜剧二人组Anjash的儿嶋一哉（49岁）已感染中共病毒。
 
-他的办公室说：为了上节目，他在9月24日(星期五)进行了PCR测试，9月26日(星期日)收到了阳性测试结果。本人表示目前没有任何症状，但我们正在遵循卫生当局的指示，谨慎对待。从现在起，在公共卫生部门的指导下，我们将采取适当的措施，包括识别与他有密切接触的人。
 
-经纪公司宣布后，儿嶋也发推写道：我对由中共病毒检测呈阳性给大家带来的麻烦和担忧，深表歉意! 我已经接种了两次疫苗，没有任何症状，情况良好。我将遵循公共卫生中心的指示，好好治病。
+继立陶宛政府对中共国智能手机产品内置的信息审查功能发出警告后，德国内政部下属的联邦信息安全办公室（BSI）也就此启动了调查。具体涉及的中共国产手机品牌包括华为、小米和一加OnePlus。
 
-[信息源](https://news.yahoo.co.jp/articles/826dc88612912a99b182dc905077b2792d353425)
+此前立陶宛政府称小米/华为手机在欧洲销售的手机可以识别”自由西藏”、”台湾独立万岁”、”民主运动”等关键词并屏蔽相关内容。而德国内政部也启动对中共国国产手机的安全调查，表明欧洲社会已经开始对中共远程数据操纵和信息审查保持高度警惕。中共试图把对中国人的那一套监控打压方法在欧洲如法炮制，并非法窃取各种信息，这对西方社会和公民来说都是一种侵犯和巨大的安全隐患。
 
-（文章仅代表作者个人观点，与GMEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[文字版原文：德国内政部对中共国产智能手机启动安全调查](https://gnews.org/zh-hans/1556027/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

@@ -2,29 +2,23 @@
 ---
 
 
-## 德国选举：德国社民党获胜，寻找盟友以取代默克尔领导的联盟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1557651/)
+## 在纪律处分下的意大利女警
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1557739/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Germanelection-1320x743-1.jpg)
-图片来源： Getty Images
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09272.jpg)
+罗马警察总部已经对周六在首都参加无绿通行证事件的副局长 Nunzia Alessandra Schilirò 发起纪律处分，现在有从“简单”警告到被解雇的风险。
 
-路透社柏林2021年9月27日简讯：德国社会民主党(Social Democrats)在以微弱优势赢得自2005年以来的首次全国大选后，将于周一开始尝试组建政府，以结束默克尔领导的保守派16年的统治。
+Schilirò 的警察生涯现在可能处于危险之中，因为她执导了罗马移动广场的第四部分。她本人拥有一个 Telegram 频道，并经常在其中分享一些“有争议”的电视节目以及所谓其他与大流行有关的内容。
 
-社会民主党的总理候选人奥拉夫·肖尔茨（Olaf Scholz）说，他的目标是与绿党(Greens)和自由民主党（FDP）建立联盟，称德国人在执政16年后投票决定将安格拉-默克尔的保守派送入反对派阵营。
+内政部长 Luciana Lamorgese 昨天晚上也以警官身份介入了 该事件，以便能“以绝对速度确定有关人员的责任”。
 
-根据临时结果，社民党赢得了25.7%的选票，超过了默克尔的基民盟/基社盟保守联盟的24.1%。绿党的得票率为14.8%，自由民主党为11.5%。
+与此同时，Schilirò 表现得很平静，她说：“为了对我对这个国家的热爱，我将永远坚持下去，无论有没有制服”。 在拉特兰圣乔瓦尼广场搭建的舞台上，她说：“我在这里不同意绿色通行证，这完全不符合我们的宪法，没有任何权利可以从属于绿色证书”。
 
-曾在默克尔即将离任的 “大联盟 “中担任财政部长的肖尔茨周日表示，他希望在圣诞节前达成一个联盟。但他的基督教民主党对手、60岁的阿尔明·拉谢(Armin Laschet)表示，尽管他带领的保守派取得了有史以来最糟糕的选举结果，但他仍可能尝试组建政府。
+Schilirò 重申了她在 Facebook 上的立场：“昨天（星期六）我有机会根据宪法行使我的权利，我做到了，我所做的工作是公开的，昨天我只是一个行使权利的自由公民，如果政府不喜欢我对宪法和意大利人民的忠诚，我很抱歉，无论如何我都会继续”。
 
-默克尔没有寻求第五个总理任期，她将在联盟谈判期间继续担任看守角色。
+免责申明：本文只代表译者观点，与Gnews无关
 
-《政客报》9月27号的评论文章《大选让德国陷入僵局》称：社会民主党和保守派将为争夺默克尔的衣钵而进行旷日持久的权力斗争。
+原文链接：[https://www.today.it/cronaca/nunzia-alessandra-schiliro-cosa-rischia.html](https://www.today.it/cronaca/nunzia-alessandra-schiliro-cosa-rischia.html)
 
-（文章只代表作者个人观点）
-
-来源：
-
-[路透社](https://www.reuters.com/world/europe/german-spd-seeks-allies-replace-merkel-led-coalition-2021-09-27/)
-
-[政客报](https://www.politico.eu/article/election-germany-results-limbo/)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
