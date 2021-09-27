@@ -2,43 +2,21 @@
 ---
 
 
-## 秘翻在线：联邦法官暂停纽约学校强制疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556176/)
+## 秘翻在线：柳叶刀的中共病毒溯源小组因与生态健康联盟有关联被解散
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556181/)
 
-#### 文章撰写：寶寶
+#### 翻译撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ny-healthcare-worker-120d0x757.jpg)
+#### 校对发布：
 
-据大纪元9月25日报道，周五晚些时候，根据联邦法官要求，纽约市对教师和其他教育部工作人员的COVID-19疫苗强制暂停。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/asdf8954sda6f489h46fg65df65sd.jpg)图片来源：The Sunday Times
 
-原告是一群教师，在等待美国第二巡回上诉法院三名法官小组的审查期间要求临时禁令。
+据英国《每日邮报》（Daily Mail）9月25日报道，哥伦比亚大学教授杰弗理·萨克斯 (Jeffrey Sachs)博士9月25日宣布解散隶属于《柳叶刀》（Lancet）医学杂志的一个中共病毒起源调查小组，原因是该小组与资助了武汉病毒研究所功能增强研究的生态健康联盟（EcoHealth Alliance）及其主席彼得·达萨克 (Peter Daszak)有关联。
 
-美国上诉法院法官约瑟夫·比安科 (Joseph Bianco) 是乔治·W·布什 (George W. Bush) 提名的法官，他在一份长达一页的命令中批准了该请求。
+萨克斯博士告诉《华尔街日报》说，一个由12名成员组成的中共病毒起源调查小组在9月中旬被解散。此前很长一段时间里达萨克一直在领导着这个小组，直到今年6月他才退出该职位。此外，该小组的部分成员也与达萨克或生态健康联盟有密切往来。2020 年 2 月，五名小组成员与达萨克在《柳叶刀》上发布了一封联署信，谴责中共病毒来自实验室的说法是阴谋论。这些参与溯源调查的成员也在 2021 年 7 月宣称，他们有更多证据支持中共病毒来自自然。
 
-三名法官专家组现在将决定是在上诉期间强制执行禁令还是允许疫苗强制令生效。
+萨克斯表示，在旧的起源调查小组解散后，一个新的柳叶刀中共病毒委员会将继续调查研究，并准备在 2022 年中期发布调查报告。但会扩大调查范围，纳入其他专家对生物安全问题的意见，包括有风险的实验室研究。
 
-原告雷切尔·马尼斯卡科（Rachel Maniscalco）和其他三名纽约市教育局工作人员就这项原定于9月27日开始的强制措施提起诉讼。
+就在数天前，一份让人震惊的文件显示达萨克在2018年向美国国防高等研究计划署（DARPA）提出1420万美元的资金申请，以资助武毒所的蝙蝠冠状病毒功能增强研究。他提议在SARS样蝙蝠冠状病毒中插入福林裂解位点，增强其传染性和致命性。
 
-他们说，疫苗强制令要求所有员工证明他们至少接种了一剂COVID-19疫苗，这是政府的过度干预，违反了美国宪法的正当程序条款。 该条款部分规定，任何国家都不得“未经正当法律程序剥夺任何人的生命、自由或财产”。
-
-诉讼称，从事职业的权利是一种自由的权利，而强制疫苗可能会导致不接种疫苗的员工付出代价，干扰了公民自由权。
-
-本周早些时候，另一位乔治·W·布什提名的法官、美国地区法官布赖恩·科根（Brian Cogan）拒绝阻止强制疫苗，裁决原告未能表明他们可能会胜诉。
-
-之后引发了上诉，之后才有了比安科法官的裁决。
-
-目前尚不清楚三名法官小组何时会做出决定。
-
-该市教育部 (DOE) 在向新闻媒体发表的一份声明中表示，相信“一旦所有事实都陈述清楚，强制疫苗将会实施，因为这是我们所有学生和教职员工应得的保护。”
-
-“我们目前的接种疫苗授权仍然有效，我们希望下周巡回法院迅速裁决。 超过82%的教育部员工已接种疫苗，我们继续敦促所有员工在9月27日之前接种疫苗，”该机构补充道。
-
-工会敦促该市推迟或修改强制命令，声称这将导致教师短缺。
-
-周五早些时候，代表该市校长的工会“学校监督与管理委员会”主席马克·坎尼扎罗 (Mark Cannizzaro) 告诉记者，一些学校有几十名未接种疫苗的工作人员。
-
-但民主党市长比尔·德·布拉西奥（Bill de Blasio）持反对意见。周五他在一个广播节目中说： “我们一直在计划。 我们准备了很多替代老师，但我认为这里绝大多数教师和工作人员都将接种疫苗回到学校。”
-
-参考文章：[**Federal Judge Blocks New York City’s School COVID-19 Vaccine Mandate**](https://m.theepochtimes.com/federal-judge-blocks-new-york-citys-school-covid-19-vaccine-mandate_4016844.html?welcomeuser=1)
-
-本文仅代表作者本人观点，不代表Gnews平台
+新闻来源：[**Lancet taskforce investigating origins of Covid is DISBANDED over ties to discredited Peter Daszak – just days after bombshell documents revealed his 2018 proposal to help Wuhan lab engineer more deadly bat coronaviruses**](https://www.dailymail.co.uk/news/article-10028443/Lancets-COVID-origins-panel-disbands-ties-Peter-Daszaks-EcoHealth-Alliance.html)

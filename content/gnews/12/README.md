@@ -2,23 +2,19 @@
 ---
 
 
-## 樱花灭共诗——南乡子•华为公主回国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1556705/)
+## 樱花灭共诗——杞忧（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1556713/)
 
-#### 作者：东京樱花团/藤田村野
+#### 作者：东京樱花团/曲非烟
 ![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-公主喜回京，全国欢呼一片声。
+国乱疫纷秋复冷，杞忧心病不曾医。
 
-媒体粉红，扬眉吐气，双赢！
+学诗未作惊人语，爆料频观旷世奇。
 
-看国强谁敢灞陵。
+胜负凭天功自勉，穷通有命信何移。
 
-打着疫苗牲，笑毒西方罪有应。
-
-善恶不分，妖魔作父，还膨！
-
-无记亲朋病毒薨。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-123-scaled.jpg)
+字斟句斧磨锋久，难具生民困苦饥。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-90.jpg)
 (本文只代表作者观点，与GNews网站无关)
 
 *插图：东京樱花团/闪闪*

@@ -2,109 +2,188 @@
 ---
 
 
-## 恒大的钱去哪了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556734/)
+## 世界上各种力量和黑暗组织正在较量
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556745/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/777-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=61500ffad2e2b817486e322f](https://gtv.org/video/id=61500ffad2e2b817486e322f)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1777-a41t4-juabx.jpg)
+[https://gtv.org/video/id=615010d8d2e2b817486e3271](https://gtv.org/video/id=615010d8d2e2b817486e3271)
 
-**郭文贵：
-Miles Guo：**
+**郭文贵**
 
-恒大
-Evergrande
+**Miles Guo**
 
-大家都弄不清楚的这两万亿
-Everyone can’t figure out where the two trillion dollars went
+这些重大的国际形势背后
+Detrás de estas grandes situaciones internacionales
 
-买房子付钱了，是吧？都付钱了
-People paid for the house, didn’t they? All paid
+大家想到的经济
+Todos piensan en la economía
 
-然后呢？它还（负债）两万亿
-And then? It also has two trillion debt
+香港的林郑月娥
+Carrie Lam de Hong Kong
 
-这钱去哪儿了？这个问题问得好
-Where did the money go? That’s a good one.
+一个安全法
+Una ley de seguridad
 
-那还钱不就完了嘛？你还有利润
-Then paid back your debt, right? Evergrande has profit
+一个中央领导的讲话
+Un líder central habla
 
-关键是，兄弟姐妹们，这是个旁氏骗局
-The point is, brothers and sisters, it’s a ponzi’s scheme
+是香港稳定的基石
+Y es la piedra angular de la estabilidad de Hong Kong
 
-你们让它还钱，指望它还钱，我说我告诉你
-You expect Evergrande to pay back, I said: I tell you
+啪, 股票下来了, 860亿啊
+Pas, la capital social bajó, 86 mil millones
 
-你得做到以下四件事儿:
-You have to do the following four things:
+呱唧就下来了
+Así de una bajó
 
-第一条，所谓的恒大汽车和恒大抵押，恒大的地，所谓价值4000亿
-The first one, the so-called Evergrande automobile and Evergrande mortgage, the so-called value of 400 billion land
+几个点啊
+Cuántos puntos
 
-那是谁评估的？
-Who evaluated all that?
+香港这个市场是真钱
+El mercado de Hong Kong es dinero de verdad
 
-那是恒大花钱评估的，它不值4000个亿
-That’s what Evergrande paid to evaluate, so it’s not worth 400 billion
+全部走人
+Todos se fueron
 
-这是假的，负4000个亿还差不多
-This is phony, a negative 400 billion assets is more like it
+然后国内的恒大
+Luego el Evergrande Group de China
 
-第二，恒大在股市上造的那的股市的价格不能作为你参考它资产的价格
-Second, the price of the stock market that Evergrande made in the stock market cannot be used as a reference for you to refer to the price of its assets
+然后国内的所谓的
+Lo que supuestamente es
 
-因为它全是一帮骗子抬起来的价格
-Because it’s all a bunch of scammers jacking up the price
+这力那力、新力、富力
+Este Sinic Holdings, Guangzhou R&F Properties Co., Ltd.
 
-第三个，我说所有的金融机构、信托、银行贷款，全是骗局，都不是真的
-Third, I said all financial institutions, trusts, bank loans, all scams, are not real
+所有的这兵那兵
+Todos esos soldados
 
-绝对多于这个数
-Definitely more than this number
+共产党一系列的决策
+La serie de decisiones del PCCh
 
-最后第四个，我说它最大的灾难不是你能看得见的这些东西
-And finally the fourth one, I’d say its biggest disaster is not these things that you can see
+然后在福建沿海严阵以待
+Luego es la preparación de antemano para esperar al infractor en la costa de Fujian
 
-我在2017年就说过，他说七哥我懂了，我说是金融票据
-I said it was a financial instruments in 2017, he said he understand
+随时要出马
+En cualquier momento sale
 
-没有人告诉你实话，都想活着
-No one tells you the truth, they all want to live
+打台湾这一系列的现象
+Una serie de fenómenos para atacar a Taiwán
 
-金融票据的兑现，所有这些房地产全让员工买它的债
-The cashing in of financial instruments, all these real estate debt bought by its employees
+经济、政治、地域、文化
+En la economía, política, zona, cultura
 
-这些债大家赎回的时候，又大概在5万亿
-when everyone redeemed the bond are about another 5 trillion
+在中东, 大家看到了没有
+En Medio Oriente, todos vieron o no
 
-说你这10万亿你付不付？
-I asked: will you pay off this 10 trillion?
+大家看一看
+Todos vean
 
-你付了，不要说10万亿，你付2万亿，你所有的银行全倒闭
-You pay, not to say 10 trillion, you pay 2 trillion, all your banks collapse
+在2017年到现在爆料当中
+Durante las noticias desde el 2017 hasta ahora
 
-对吧？大卫兄弟，很简单，你全倒塌
-Right? Brother David, it’s simple, you’re all falling down
+我多次说到过
+Yo en varias ocasiones mencioné
 
-你让不让大家赎债？
-Will you let people redeem their debts?
+姆努钦, 美国财长
+Steven Mnuchin, exadministrador de fondos estadounidense
 
-赎债的时候，现在你拿官方示例说
-When foreclosing on a debt, now you take the official example and say
+我跟美国好多朋友打过赌
+Aposté varias veces con muchos amigos estadounidenses
 
-这些人一旦要兑现的时候，我说你就让他30%的利息不给，你给他本
-Once these people want to cash in, I said you don’t pay 30% of the interest, you just give back the principal
+我说我告诉你姆努钦最近会干啥
+Les dije que le decía qué haría últimamente Mnuchin
 
-他说估计给本最多20%，我说那就是社会动乱
-He said he estimated that he could pay up to 20% of the principal, and I said that would be social unrest
+大家现在注意到了吗
+¿ Ahora todos pusieron atención?
+
+看到一个姆努钦的报导
+Se vió un reporte de Mnuchin
+
+现在筹建了一个基金
+Ahorita está estableciendo un fondo
+
+筹资25亿美元
+Recaudando 2.5 mil millones de dólares
+
+公告出来了吧
+Ya salió el anuncio
+
+所有人全傻眼了
+Todos se quedaron boquiabiertos
+
+因为这个基金界的
+Porque en la industria de fondos
+
+我说姆努钦下一步会筹立基金
+Yo dije que el próximo paso de Mnuchin es establecer un fondo
+
+这个基金的钱来自于沙特
+El dinero de este fondo proviene de Arabia Saudita
+
+或者UAE
+O de los Emiratos Árabes Unidos
+
+但绝大多数是沙特
+Pero la mayoría es de Arabia Saudita
+
+而且沙特一定在这个交易
+Además, Arabia Saudita seguro hará y terminará esta transacción financiera
+
+5000亿美元跟中共做完
+Con el PCCh de 500 mil millones de dólares
+
+交易以后
+Luego de la transacción
+
+七哥是4年前和3年前告诉的国际基金组织
+Yo hace 3 y 4 años atrás le dije al Fondo Monetario Internacional
+
+所有的大咖们, 就这么准
+Todos estos grandes personajes, así de preciso
+
+这是不可能的事情
+Esto es imposible
+
+但是我就做到了
+Pero yo lo logré
+
+兄弟姐妹们什么意思
+Entienden qué significa esto hermanos y hermanas
+
+知道吗
+¿ Lo saben?
+
+世界的黑暗组织, 世界上的各种力量
+La organización oscura y todo tipo de fuerza de este mundo
+
+都在较量中
+Están en una competencia
+
+都在较量
+Están compitiendo
+
+就在这方圆不超过十个Miles
+En este diámetro no sobrepasa de 10 Miles
+
+那么这些人现在也意识到一个最大的问题
+Entonces estas personas ahora se dieron cuenta de un gran problema
+
+所有的人只要有一天
+Algún día todas las personas
+
+共产党强大了
+Será aniquilada
+
+这些人都会被消灭
+Cuando el PCCh logre ponerse poderoso
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24](https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24)
+**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24](https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24)
 
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Raul
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow

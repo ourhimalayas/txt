@@ -2,31 +2,25 @@
 ---
 
 
-## DC每日热点0926
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1556501/)
+## 河南再遭暴雨 中共媒体只关注孟晚舟回国
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556527/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F5620EF8-F0A8-426C-969E-876BD86097B7-scaled.jpeg)
-道琼斯指数 34798.00 ▲0.10%
-纳斯达克指数 15047.70 ▼0.03%
-WTI纽约原油CFD 73.982 ▲0.93%
-布伦特原油CFD 77.220 ▼0.01%
-美元兑人民币 1USD=6.466RMB
-美元兑港币 1USD=7.785HKD
-国际黄金 1750.42 美元/盎司
-全球CCP病毒感染人数 232,397,750 例
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-1、美国芯片厂竞相开建 英特尔200亿美元项目在亚利桑那破土
-2、俄罗斯表示，美中俄和巴基斯坦正在合作，确保塔利班遵守承诺，尤其是组建政府和防范恐怖主义蔓延的承诺
-3、塔利班星期六在一个城市的广场悬挂尸体示众，显示过去某些残忍的统治手段复活
-4、美国称现状下无意重返TPP
-5、马斯克参加互联网世界大会向中共保证，在前所未有的经济动荡背景下，特斯拉将致力于在中共国的投资与扩张
-6、英政府据报接近达成协议 或终止中企在英核电站的参与
-7、法国海军参谋长：中共海上力量崛起令所有人感到担忧
-8、美印首脑联合声明：拜登重申对印度作为主要防务伙伴的坚定承诺
-9、日本31所大学对留学生加强审查以防止技术外流
-10、联合国：叙利亚内战导致大约35万平民死亡
-11、国民党党主席选举周六(9月25日)结果揭晓，由标榜“中道”路线的前新北市市长朱立伦胜出
-12、中共当局对娱乐业的整顿范围扩大，儿童漫画的内容进入监管者关注的对象，动漫剧全网下架
-13、代表着“六四烛光”的香港支联会周六（9月25日）宣布解散
-14、中共科普杂志模拟解放军攻台：称003航母可突破第二岛链限制
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-13.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：202109.26早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/6150675d42a8af3151a5a4c4](https://gtv.org/broadcast/watch/6150675d42a8af3151a5a4c4)
+
+编辑/校对/发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

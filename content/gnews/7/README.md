@@ -2,192 +2,55 @@
 ---
 
 
-## 世界上各种力量和黑暗组织正在较量
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556745/)
+## 《红色赌盘》之二：温家宝及亲属（夫人张蓓莉，儿子温如松和女儿温如春）
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1556755/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1777-a41t4-juabx.jpg)
-[https://gtv.org/video/id=615010d8d2e2b817486e3271](https://gtv.org/video/id=615010d8d2e2b817486e3271)
+加拿大多伦多枫叶农场 – lulu18
+![](https://assets.gnews.org/wp-content/uploads/2021/09/段卫红-2.jpg)
+**引言**: 本篇梳理《红色赌盘》中提到的段伟红及沈栋对温家宝家族的近距离观察，包括张蓓莉，温如松和温如春的商业金融活动，家族内部个人情况，以及2012年被《纽约时报》曝光家族财富后的反应等内幕。对比郭先生的爆料，请参见郭先生爆料对比《红色赌盘》之二：关于温家宝及家人部分 （含部分关于薄熙来，令计划，贾庆林，王歧山的内容）。
 
-**郭文贵**
+![](https://lh6.googleusercontent.com/UdY2LsHO3SOT1W6d8d8uah-8egrN-URrWuqLSB6SHP0sa0MTP8ghCIan-nIhIYZ8gk3E6P_0nbrna_FhvEJRRjyHey9Qc_8zlk8Onbwe-0QboCpSMqmy-4BaCf8GA4z0n_H5e6R5=s0)
 
-**Miles Guo**
+张蓓莉1941年出生于甘肃，她在就读兰州大学时与当时在地质队的温家宝相识。张蓓莉爱说话喜欢交际，和严肃爱读书的温家宝完全相反。两人结婚后，1982年温家宝上调到北京的中国地质矿产部，后于1985年成为中央办公厅的副主任，并于1986年成为主任。躲过六四后对赵紫阳派的清洗后，于2003年成为国家总理。
 
-这些重大的国际形势背后
-Detrás de estas grandes situaciones internacionales
+张蓓莉在两人1983年搬到北京后开设了中国地质博物馆的第一个宝石陈列室，成立了宝石矿产研究室，创办了《中国宝石》杂志，并帮助建立了中国第一家宝石鉴定机构。1992年成为了在中国各地采购和销售宝石的国有企业中国矿产宝石总公司的负责人，并负责将国家资金投资于珠宝初创企业，包括连锁的北京钻石首饰公司。1997年帮助北京钻石在上海证交所上市。1998年为了避免上市公司负责人需要公布个人财产的规定，选择成为国家宝石检测中心的主任。
 
-大家想到的经济
-Todos piensan en la economía
+两人的两个孩子是温如松（Winston Wen, MBA from Kellog School of Management in Northwestern University）和温如春 (Lily Chang, MBA from U of Delaware) 。温如松2005年成立私募基金新天域资本，接受了来自软银子公司，以及善于接触太子党的新加坡国家投资基金淡马锡的投资。新加坡政府相关的公司也同时投资了江泽民孙子的私募公司。之后许多中国领导人的子女也跟随温如松进入私募股权领域，并从新加坡获得资金。段伟红认为温如松独揽投资机会到处树敌，劝他收敛一点，但是温如松仍然我行我素。温如春1998年MBA毕业后在华尔街的雷曼兄弟工作，住在曼哈顿的Trump Place。之后加入Swiss Suisse First Boston。回到北京成立了Fullmark Consultant。《纽约时报》2013年报道，2006－2008年间，JP Morgan付了Fullmark $1.8m 以求帮助他们寻找中国客户，并因此受到SEC的调查。温如春最初与大连商人徐明交往，段认为徐明与薄熙来派系走得太近不可靠。多年后徐明入狱，并在2015年将要获释的前一年在监狱里意外去世。后来张蓓莉提议女儿与刘春航(后任中国银监会的局长)交往。
 
-香港的林郑月娥
-Carrie Lam de Hong Kong
+张蓓莉的一个亲密男性朋友是小她三十五岁的黄旭怀（音），他自称是‘温夫人的办公室主管’，沈和段怀疑他是张的面首，并帮张完成一些背地里的不光彩事。据2004年《纽约时报》报道，德意志银行曾付给黄$2m 以游说中国政府来获得投资华夏银行的许可 。即使温当了总理后，张蓓莉自己的行程还是很满。她不与丈夫共同出访，主张有自由做自己的生意（却对丈夫保密）。然而他们不是红色后代，很多事情还是要自己折腾。2007年wikileaks发布的从美国投资公司Carlyle Group给美国外交官的电文里称，温家宝不喜欢家人从商，但是也不愿意或不能阻止他们。
 
-一个安全法
-Una ley de seguridad
+2012年10月16日，《纽约时报》记者David Barboza撰写文章，爆料温家宝家族拥有$3 billion资产，并指出段伟红是温家的白手套，利用泰鸿公司帮助温家购买平安保险的股票，后又将$100m的股票转到了温家宝母亲（退休教师）的名下。张蓓莉指示段伟红担下所有事，向外宣布是段为了掩盖她个人的财富才将股票转到别人的名下。段先是想通过Barboza的台湾太太求情，后非常讲义气的担下了所有事。好在之前《纽约时报》曾在2012年的6月报道了习近平家族的财富情况，才没有让温家成为党内的目标。两件事后，中共封锁了《纽约时报》的网站，党内高层将美国政府视为幕后黑手，企图对中共领导人进行攻击。然而，私下温家宝对张蓓莉和他们的儿子温如松非常生气。他好像不知道家人的股票金融活动，之前也对家人经商很不满。这件事后，温家宝竟然提出要离婚，退休后去出家，但是被党组织劝退。之后张向段提出退出她的项目，不再收取30%的佣金。《纽约时报》曝光后，段伟红一度停止了她的社交活动，防止给别人带来麻烦。张让她的子女都停止经商活动而进入了国企。温如春进入了国家外汇管理局，张也搁置了在北京的一大块地上建立一个珠宝职业培训中心的计划，把它交给了计划建立一个高端寄宿国际学校[鼎石](https://zh.keystoneacademy.cn/)（Keystone Academy）的儿子温如松。
 
-一个中央领导的讲话
-Un líder central habla
+因为薄熙来派系记恨温家宝在王立军事件的立场，薄在国安部门的的盟友2012年2月开始暗地调查温家的情况，据张蓓莉称之后还将几盒子的文件交给了《纽约时报》驻香港的记者Barboza。2013年在《纽约时报》曝光习家和温家财产的一年后，张告诉段夫妇温家已经“捐赠”了他们所有的资产给国家，以换取他们不会被起诉的保证。她说其他红色家庭也在这样做。
 
-是香港稳定的基石
-Y es la piedra angular de la estabilidad de Hong Kong
+沈栋观察段伟红和张蓓莉及其家人交谈的印象是，温家宝对民主是有想法的，但是他也谈过，他不想打破现状，而是做一些必要的事情，让中国成为一个更自由的地方。
 
-啪, 股票下来了, 860亿啊
-Pas, la capital social bajó, 86 mil millones
+注：本文仅代表作者观点，与 Gnews无关
 
-呱唧就下来了
-Así de una bajó
+**沈栋的《红色赌盘》: 与郭先生爆料的对比**
 
-几个点啊
-Cuántos puntos
+[前言](https://gnews.org/zh-hans/1556432/)
 
-香港这个市场是真钱
-El mercado de Hong Kong es dinero de verdad
+[《红色赌盘》之一: 段伟红和沈栋](https://gnews.org/zh-hans/1556432/)
 
-全部走人
-Todos se fueron
+[《红色赌盘》之二：温家宝及亲属（夫人张蓓莉，儿子温如松和女儿温如春）](https://gnews.org/zh-hans/1556755/)
 
-然后国内的恒大
-Luego el Evergrande Group de China
+[《红色赌盘》之三：段伟红夫妇与王岐山，周亮，习近平和李伯潭等人的交往](https://gnews.org/zh-hans/1556757/)
 
-然后国内的所谓的
-Lo que supuestamente es
+《红色赌盘》之四：2002－2018年党内斗争和政治局势变化
 
-这力那力、新力、富力
-Este Sinic Holdings, Guangzhou R&F Properties Co., Ltd.
+《红色赌盘》之五: 段伟红夫妇的慈善和艺术品收藏事业
 
-所有的这兵那兵
-Todos esos soldados
+郭先生爆料对比《红色赌盘》之一：关于段伟红的部分
 
-共产党一系列的决策
-La serie de decisiones del PCCh
+郭先生爆料对比《红色赌盘》之二：关于温家宝及家人部分 （含部分关于薄熙来，令计划，贾庆林，王歧山的内容）
 
-然后在福建沿海严阵以待
-Luego es la preparación de antemano para esperar al infractor en la costa de Fujian
+郭先生爆料对比《红色赌盘》之三：关于贾庆林的女婿李伯潭
 
-随时要出马
-En cualquier momento sale
+郭先生爆料对比《红色赌盘》之四：关于孙政才
 
-打台湾这一系列的现象
-Una serie de fenómenos para atacar a Taiwán
+郭先生爆料对比《红色赌盘》之五：关于令计划和十八大前后党内斗争
 
-经济、政治、地域、文化
-En la economía, política, zona, cultura
+* * *
 
-在中东, 大家看到了没有
-En Medio Oriente, todos vieron o no
-
-大家看一看
-Todos vean
-
-在2017年到现在爆料当中
-Durante las noticias desde el 2017 hasta ahora
-
-我多次说到过
-Yo en varias ocasiones mencioné
-
-姆努钦, 美国财长
-Steven Mnuchin, exadministrador de fondos estadounidense
-
-我跟美国好多朋友打过赌
-Aposté varias veces con muchos amigos estadounidenses
-
-我说我告诉你姆努钦最近会干啥
-Les dije que le decía qué haría últimamente Mnuchin
-
-大家现在注意到了吗
-¿ Ahora todos pusieron atención?
-
-看到一个姆努钦的报导
-Se vió un reporte de Mnuchin
-
-现在筹建了一个基金
-Ahorita está estableciendo un fondo
-
-筹资25亿美元
-Recaudando 2.5 mil millones de dólares
-
-公告出来了吧
-Ya salió el anuncio
-
-所有人全傻眼了
-Todos se quedaron boquiabiertos
-
-因为这个基金界的
-Porque en la industria de fondos
-
-我说姆努钦下一步会筹立基金
-Yo dije que el próximo paso de Mnuchin es establecer un fondo
-
-这个基金的钱来自于沙特
-El dinero de este fondo proviene de Arabia Saudita
-
-或者UAE
-O de los Emiratos Árabes Unidos
-
-但绝大多数是沙特
-Pero la mayoría es de Arabia Saudita
-
-而且沙特一定在这个交易
-Además, Arabia Saudita seguro hará y terminará esta transacción financiera
-
-5000亿美元跟中共做完
-Con el PCCh de 500 mil millones de dólares
-
-交易以后
-Luego de la transacción
-
-七哥是4年前和3年前告诉的国际基金组织
-Yo hace 3 y 4 años atrás le dije al Fondo Monetario Internacional
-
-所有的大咖们, 就这么准
-Todos estos grandes personajes, así de preciso
-
-这是不可能的事情
-Esto es imposible
-
-但是我就做到了
-Pero yo lo logré
-
-兄弟姐妹们什么意思
-Entienden qué significa esto hermanos y hermanas
-
-知道吗
-¿ Lo saben?
-
-世界的黑暗组织, 世界上的各种力量
-La organización oscura y todo tipo de fuerza de este mundo
-
-都在较量中
-Están en una competencia
-
-都在较量
-Están compitiendo
-
-就在这方圆不超过十个Miles
-En este diámetro no sobrepasa de 10 Miles
-
-那么这些人现在也意识到一个最大的问题
-Entonces estas personas ahora se dieron cuenta de un gran problema
-
-所有的人只要有一天
-Algún día todas las personas
-
-共产党强大了
-Será aniquilada
-
-这些人都会被消灭
-Cuando el PCCh logre ponerse poderoso
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址**： [https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24](https://twitter.com/se1y7cblljselva/status/1440988552079179780?s=24)
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/发稿 云起时
