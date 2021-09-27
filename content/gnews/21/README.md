@@ -2,29 +2,27 @@
 ---
 
 
-## 《疫苗死亡报告》：氧化石墨烯正改变人类电磁场
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1558487/)
+## 全球金融危机即将到来 华为厄运刚刚开始
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558546/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-近期，弗拉基米尔·泽连科医生（Dr. Vladimir Zelenko MD）和戴维·约翰·索伦森（David John Sorensen）在联合出版的《（新冠）疫苗死亡报告》中披露，世界知名的生物物理学家安德烈亚斯·卡尔克发现新冠疫苗含有大量的氧化石墨烯（高达95%），他警告说，被注入人体的氧化石墨烯正在改变人类的电磁场。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Alloisomers.jpg)图片来自于网络
+视频参看：2021.09.27早GTV新闻访谈
 
-安德烈亚斯·卡尔克表示，石墨烯正在完全改变我们的电磁场，这是以前从未发生过的。他解释说，身体需要电分子能力来工作。心脏之所以跳动，是因为有一个磁场，随后产生了用于泵送和其他一切的电力。但接种新冠疫苗后出现大量的痉挛反应有非常具体的频率，它们基本上是相同的。这些痉挛清楚地表明，人类的电磁场受到了破坏。
+[https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4](https://gtv.org/broadcast/watch/6151b90742a8af3151a67fd4)
 
-报告指出，新冠疫苗中含有氧化石墨烯的这一发现得到了罗伯特·杨博士及其科学团队的进一步证实。该科学团队利用各种显微镜测试发现新冠疫苗中含有具有磁毒性、细胞毒性和基因毒性的石墨烯，和已确定的会威胁生命的寄生虫，以及其他有毒物质。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-*注：本文仅代表作者观点，与 Gnews无关*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-*参考链接：*
-
-
-
-> [美国科学家在四种CCP病毒“疫苗”中发现氧化石墨烯，聚乙二醇等毒性物质](https://gnews.org/zh-hans/1551337/)
-
-
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
