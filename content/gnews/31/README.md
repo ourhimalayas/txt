@@ -2,29 +2,32 @@
 ---
 
 
-## 德国选举：德国社民党获胜，寻找盟友以取代默克尔领导的联盟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1557651/)
+## 加密货币交易所巨头因禁令加宽而缩减中共国用户数
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1557874/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Germanelection-1320x743-1.jpg)
-图片来源： Getty Images
+**简评：**两家由中共自己一手扶持起来的数字货币公司，竟会将本国人民拒之门外，真的很荒谬。中共很清楚，这些交易平台上的缺口，为资金外流提供了通道。在喜币即将上市之际，中共出于恐惧终于不得已选择打压数字货币交易平台，无异于此地无银三百两。中共仓皇地反应只会给它带去更多的灾难，一刀切的方法必将进一步损害部分人的利益，加剧党内斗争，百姓间激增的恐慌情绪也会让社会动乱，削弱中南坑的统治基础。
 
-路透社柏林2021年9月27日简讯：德国社会民主党(Social Democrats)在以微弱优势赢得自2005年以来的首次全国大选后，将于周一开始尝试组建政府，以结束默克尔领导的保守派16年的统治。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-2.jpg)网络图片
 
-社会民主党的总理候选人奥拉夫·肖尔茨（Olaf Scholz）说，他的目标是与绿党(Greens)和自由民主党（FDP）建立联盟，称德国人在执政16年后投票决定将安格拉-默克尔的保守派送入反对派阵营。
+世界上最大的两家比特币交易所已经停止了中共国用户的新注册，并且其中一家将清退现有账户，以遵守中共政府最新的加密货币禁令。
 
-根据临时结果，社民党赢得了25.7%的选票，超过了默克尔的基民盟/基社盟保守联盟的24.1%。绿党的得票率为14.8%，自由民主党为11.5%。
+交易所运营商火币和币安已经停止让交易者使用中国大陆的手机号码注册新账户，此前中国人民银行于周五表示，所有与加密货币有关的交易将被视为非法金融活动。在这两个平台上，香港用户仍然可以进行新的注册，但中国大陆不再是创建新账户的一个选项。火币也宣布计划在年底以前关闭现有账户。
 
-曾在默克尔即将离任的 “大联盟 “中担任财政部长的肖尔茨周日表示，他希望在圣诞节前达成一个联盟。但他的基督教民主党对手、60岁的阿尔明·拉谢(Armin Laschet)表示，尽管他带领的保守派取得了有史以来最糟糕的选举结果，但他仍可能尝试组建政府。
+币安发言人表示，该公司在中共国没有交易业务，并屏蔽了来自中共国的IP，但没有对移动注册的举措发表评论。
 
-默克尔没有寻求第五个总理任期，她将在联盟谈判期间继续担任看守角色。
+中共国的最新公告——由央行和包括公安部在内的其他九个政府机构共同发布——是多年来试图打击比特币及其同类数字货币的高潮。周五的通知特别指出了针对中共国用户的离岸交易所，禁止他们在当地招聘从营销到支付结算和技术的职位。
 
-《政客报》9月27号的评论文章《大选让德国陷入僵局》称：社会民主党和保守派将为争夺默克尔的衣钵而进行旷日持久的权力斗争。
+6月，火币禁止现有中共国用户交易风险较高的产品，如金融衍生品，此前中共国呼吁重新打击加密货币交易和采矿。
 
-（文章只代表作者个人观点）
+原文链接：[State police union sues over governor’s vaccination mandate](https://www.foxnews.com/politics/state-police-union-sues-over-governors-vaccination-mandate)
 
-来源：
+* * *
 
-[路透社](https://www.reuters.com/world/europe/german-spd-seeks-allies-replace-merkel-led-coalition-2021-09-27/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[政客报](https://www.politico.eu/article/election-germany-results-limbo/)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

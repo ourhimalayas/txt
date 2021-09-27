@@ -2,51 +2,90 @@
 ---
 
 
-## 9/25/2021国际财经快讯：美国新房销售超预期；恒大不确定性导致美元上涨
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1554157/)
+## 因接种新冠疫苗导致白血病的健身爱好者宫东升都经历了啥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1554629/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-27.png)[图片来源](https://dzm0ugdauank9.cloudfront.net/)
-**1.****美联储即将缩表引发**** “****再通胀**** “****交****易的讨论**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/018_副本.jpg)
+宫东升于2021年5月8日14：42：24在中国人民解放军联勤保障部队九六O医院临时接种点接种了一针新冠疫苗（腺病毒载体），打完疫苗后出现恶心，问现场人员，现场人员的答复是到了半小时可以离开，随后宫东升于2021年5月20日、5月21日、5月22日出现恶心加重、头胀、身上没劲等症状，于2021年6月9日出现“头疼和头发胀分开”症状（原文如此），于2021年7月20日晚呕吐晕倒。自接种新冠疫苗起就一直存在恶心症状。
 
-[纽约（路透社）–美联储发出的将很快取消其债券购买计划的信号正在支持金融市场上所谓的再通胀交易，这种交易在2021年的最初几个月里提升了国债收益率并提振了银行、能源公司和其他经济敏感公司的股票。再通胀交易在夏季停滞不前。但央行本周表示，它可能最快将于11月开始缩减每月1200亿美元的政府债券购买计划，同时还表明它可能在2022年加息，比许多人的预期要早。](https://www.oann.com/feds-coming-taper-fans-talk-of-renewed-reflation-trade/)
+“7月21号来医院确诊白血病，7月22日再次确诊为（急性髓细胞白血病）！医生说90%可以治愈，但资金是个缺口！这是在电视里才听到的病，怎么能发生在我的身上，一时半会我真的缓不过来！接着做了所有的检查：激素，抽骨髓，做腰穿，输血小板…医生说移植可以治愈，前期费用需要50万，甚至准备更多！前期的费用已经花费了十五万左右！”（摘自宫东升发起的轻松筹[生命以痛吻我，我仍报之以歌！含泪求助！](https://m2.qschou.com/fund/detail?projuuid=984497cb-2430-49f5-8eea-9773e568297f&amp;projuuid=984497cb-2430-49f5-8eea-9773e568297f&amp;share_no=e406bdc39f66d3-b8c50d9b06f742-5e8b5cc1-5A900-15416f5e551837&amp;level=1&amp;shareto=0&amp;sharecount=1&amp;platform=qsc_ios&amp;timestamp=1631950305&amp;from_uuid=89c5590e-f5b9-11eb-b002-0242ac103d0a&amp;uuid=89c5590e-f5b9-11eb-b002-0242ac103d0a&amp;sharecc=10002.v5_1_4&amp;bi_cf=share.link.weiai.10002.v5_1_4&amp;shareuuid=89c5590e-f5b9-11eb-b002-0242ac103d0a)）
 
-[尽管货币紧缩政策经常被视为对股票的拖累，但一些投资者认为美联储的立场是对美国经济的信任投票。安本标准投资公司(Aberdeen Standard Investments)北美股票主管拉尔夫-巴塞特(Ralph Bassett)说：”通常情况下，鹰派转向对风险资产不利，尤其是股票。事实上，美联储把这个问题摆在那里，向市场表明经济的基础相当稳固”。](https://www.oann.com/feds-coming-taper-fans-talk-of-renewed-reflation-trade/)
+而在接种新冠疫苗前的宫东升是一位健身爱好者，在确诊白血病之后他都经历了什么呢？他经历了针对他本人的调查诊断书的作假，据[**gds666666**](https://weibo.com/u/7330358710?refer_flag=1005055013_) [2021年9月8日 18:11](https://weibo.com/7330358710/KxeOAvwTx?from=page_1005057330358710_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone XS Max](https://app.weibo.com/t/feed/52oJDc) 已编辑
 
-**2.****中国****恒大不确定因素****增加****美元****上涨**
+可笑至极的调查诊断书！没有担当！和我说的对不起来！太可笑！
 
-[纽约（路透社）–美元周五上涨，兑一篮子主要货币有望连续第三周上涨，因为陷入困境的中国房地产开发商恒大的不确定性帮助美元从上一交易日的大幅下跌中反弹。中国恒大集团欠款3050亿美元，而且现金短缺，错过了周四支付8350万美元的最后期限，让投资者质疑其是否会在30天的宽限期到期前支付这笔款项。该公司的倒闭可能给中国的金融系统带来系统性风险。周四，在中国政府向金融系统注入新的现金，以及恒大宣布将支付在岸债券的利息，提振风险情绪之后，避险的美元出现了大约一个月以来的最大单日百分比跌幅。离岸人民币兑美元汇率走弱，报6.4641美元。](https://www.oann.com/dollar-wallows-near-one-week-low-as-haven-demand-ebbs/)
+诊断现场本人录音说的是2021年5月8日打完疫苗出现恶心，问现场的工作人员说到半小时了就可以离开！本人于2021年5月20日，21日，22日恶心加重，头胀，身上没劲！于2021年6月7日，8日头胀恶心连在一起！于2021年6月9日头疼和头发胀分开！于2021年7月20日晚呕吐晕倒！本人从打疫苗一直都恶心！并且胳膊疼！
 
-**3.****美国新房销售超出预期；供应量接近****13****年高点**
+患者姓名：宫东升371425198503198611
 
-[华盛顿（路透社）–8月份美国单户住宅的销售量连续第二个月增长，但在经历了一场由COVID-19大流行病引发的购买狂潮之后，住房需求可能已经达到顶峰。商务部周五的报告还显示，上个月市场上的新房供应量是近13年来最大的，价格按月计算没有变化。此前，周三有消息称8月份以前拥有的房屋销售量下降。](https://www.oann.com/u-s-new-home-sales-beat-expectations-in-august/)
+电话：15508678678
 
-[“这些数据表明，大流行期间新房销售的激增已经退潮，未售出房屋的库存相对于销售来说已经上升到一个更正常的水平，”纽约Brean Capital的高级经济顾问Conrad DeQuadros说。“这份报告和8月份的现房销售数据表明，可能已经发生了相当部分的销售流动调整，以适应更高的需求。”上个月新房销售增长1.5%，经季节性调整后的年率为74万套。7月的销售速度从之前报告的70.8万套修正为72.9万套。](https://www.oann.com/u-s-new-home-sales-beat-expectations-in-august/)
+想听录音的可以进微博群！也可以v加我的电话发给大家！ [2济南·济南军区总医院](http://t.cn/z8AI5Q7)
 
-**4.****格奥尔基耶娃指责前世行行长金墉的办公室进行操纵**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/020.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/021.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/022.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/023.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/024.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/025.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/026.jpg)
 
-[华盛顿（路透社）–IMF总裁Kristalina Georgieva批评一项独立调查的结果是错误和虚假的，该调查指控她在担任世界银行行长时向工作人员施压，操纵数据，使中国的商业环境看起来更有利。在她计划提交给国际货币基金组织执行董事会的一份声明中，格奥尔基耶娃还指责该银行前任行长金墉的办公室进行操纵。她说，她进行了干预，阻止了他的一名工作人员提出的将香港数据纳入中国在世界银行《2018年营商环境报告》中的排名，这将大大改善中国的地位。该银行上周发布了一份关于律师事务所WilmerHale的调查报告。报告发现，包括格奥尔基耶娃在内的银行高级领导人不适当地对员工施加压力，要求他们修改数据以提高中国在《营商环境报告》中的排名，而当时银行正在寻求中国的增资支持。](https://www.oann.com/imfs-georgieva-accuses-former-world-bank-president-kims-office-of-manipulation/)
 
-**5.****美国证监会根据新的披露规则推****迟****对某些资产的执法行动**
+他经历了被逼迫删除微博，据[**gds666666**](https://weibo.com/u/7330358710?refer_flag=1005055013_) [2021年9月23日 08:42](https://weibo.com/7330358710/KzsuVqlIL?from=page_1005057330358710_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone XS Max](https://app.weibo.com/t/feed/52oJDc)
 
-[华盛顿（路透社）–美国证券交易委员会（SEC）周五表示，它将推迟对场外证券新披露规则中某些资产的执行，直到2022年1月3日。新的遵守日期原定于周二生效。该机构表示，该机构的无行动函影响到经纪商发布的政府债券买卖报价，并不改变或修正旨在杜绝美国股票市场欺诈行为的新规则的遵守日期，该规则将于2021年9月28日开始实施。该机构表示，这一立场“仅涉及执法行动，并不代表对证券法的法定或监管规定的适用性的法律结论”。](https://www.oann.com/u-s-sec-delays-until-jan-3-certain-assets-from-enforcement-actions-related-to-new-disclosure-rule/)
+这就是老百姓的命运！惨！！！ 患者姓名：宫东升371425198503198611 电话 15508678678 ​​​
 
-[下周的新措施旨在对美国的 “粉单 “进行整顿，证券监管机构希望通过要求场外发行人公开准确、最新的财务信息来杜绝欺诈行为，以提高投资者的信息披露。这些公司往往是不符合主要交易所上市标准的便士股票公司。](https://www.oann.com/u-s-sec-delays-until-jan-3-certain-assets-from-enforcement-actions-related-to-new-disclosure-rule/)
+我呼吁所有人！！！：还没有注射新冠疫苗的！注射新冠疫苗前一定要做个全面的血常规！以免身体出现问题作为证据！！避免注射后不负责任逃避责任！
+为什么连个马上离开世界的我都不放过！用各种手段如此对待我？逼我删除微博！
 
-**6.****中国****恒大****错过最后****付款期限，电动车部门警告说现金紧缺**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/003-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/004-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/005.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/006.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/007.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/008.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/009.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/010.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/011.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/012.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/013.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/014.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/015.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/016.jpg)
 
-[新加坡/上海（路透社）–中国恒大的电动车部门周五警告说，除非迅速注入现金，否则它将面临不确定的未来，这是迄今为止最明显的迹象，表明该房地产开发商的流动性危机正在其业务的其他部分恶化。恒大欠款3050亿美元，现金短缺，投资者担心崩溃可能给中国的金融系统带来系统性风险，并在全球范围内产生反响。](https://www.oann.com/china-evergrande-bondholders-in-limbo-over-debt-resolution/)
 
-[该公司本周错过了一个美元债券的付款期限，其对此事的沉默让全球投资者怀疑，当30天的宽限期结束时，他们是否不得不吞下巨额损失。同时，中国恒大新能源汽车集团表示，如果没有战略投资或出售资产，其支付员工和供应商以及大规模生产汽车的能力将受到冲击。恒大对本周8350万美元的利息支付保持沉默，这与它对待国内投资者的态度形成对比。](https://www.oann.com/china-evergrande-bondholders-in-limbo-over-debt-resolution/)
+他现在的状态是怎样的呢？据[**gds666666**](https://weibo.com/u/7330358710?refer_flag=1005055013_) [2021年9月20日 10:21](https://weibo.com/7330358710/Kz0RyyTiS?from=page_1005057330358710_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone XS Max](https://app.weibo.com/t/feed/52oJDc) 已编辑
 
-**7.****道琼斯指数和标准普尔****500****指数在颠簸的一周后以上涨收尾**
+没生病之前是一位健身爱好者！
 
-[纽约（路透社）–道指和标普500指数周五走高，并以小幅上涨结束了动荡的一周，这得益于特斯拉和Facebook的上涨，抵消了耐克的下跌。运动服公司耐克的股价下跌了6.3%，是拖累道指和标普500指数的最大因素，此前该公司发布了低迷的销售预测，并警告说假日购物季将出现延迟，并将此归咎于供应链的紧缩。](https://www.oann.com/futures-edge-lower-after-wall-streets-two-day-rally/)
+现在的我却在病床上，用最廉价的治疗方案再续命！没有钱做异体造血干细胞移植，不久的时间我就是草木皆灰。大家有愿意伸出援助之手的可以帮帮我。
 
-[鞋类零售商Foot Locker的股票也大幅下跌。反之，Facebook攀升2%，特斯拉上涨2.7%。标普通信服务板块攀升0.7%，是当天继能源之后涨幅第二大的板块，涨幅为0.8%。股市从本周初的大幅下挫中反弹，部分原因是对中国恒大违约及其对全球金融市场潜在风险的担忧。](https://www.oann.com/futures-edge-lower-after-wall-streets-two-day-rally/)
+打上针从胳膊疼恶心开始！到呕吐晕倒，到查出白血病两个多月的时间！毁了我的一生！把命给搭上了！
 
-**8.****石油生产商****Hilcorp****考****虑****购买关闭的路易斯安那州炼油厂**
+患者本人：宫东升371425198503198611 ​​​
 
-[休斯顿（路透社）–四位熟悉此事的消息人士称，总部位于休斯顿的石油生产商Hilcorp正在评估Phillips 66在路易斯安那州Alliance的炼油厂，以将其改造成一个石油出口终端，此举将消除其作为汽车燃料的来源。Hilcorp是美国最大的私营石油生产商，业务范围从阿拉斯加到宾夕法尼亚州再到德克萨斯州，该公司没有回答有关其对该设施感兴趣的问题，该设施沿密西西比河占地2400英亩。消息人士称，一个买家计划在本周访问该炼油厂。菲利普斯66公司拒绝对买家本周可能访问该炼油厂发表评论。菲利普斯66公司发言人Bernardo Fallas说，这个被飓风破坏的炼油厂仍在出售，其 “营销过程正在进行中”。他说，该公司计划修复风暴造成的损失并重新启动该设施。](https://www.oann.com/exclusive-oil-producer-hilcorp-eyes-purchase-of-shut-louisiana-refinery-sources/)
+电话15508678678
 
-By【秘密翻译组-金融组】
-作者：千年等一回
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/017.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/018.jpg)
+
+
+宫东升在新浪微博的存在也算是一个意外，因为在此前新浪微博上基本是没有这样的疫苗受害者的存在空间的，也就是说在此前宫东升不需要有关部门逼他删除微博，他这样的微博本身就不会在新浪微博上长期存在，但是现在却要相关部门逼迫他删除，如果他不同意，这条微博还可以继续存在，但是为避免不测，本文依然全文全图片转载他的相关微博，以作存底。
+
+无论宫东升如何出示证据，济南市预防接种异常反应调查诊断专家组出具的《山东省预防接种异常反应调查诊断书》做出的结论是——“目前没有文献资料显示腺病毒载体疫苗与急性髓细胞白血病发病有关联”，并由此得出最终结论是——“宫东升所患急性髓细胞白血病不属于预防接种异常反应”。
+
+专家总是能用貌似专业的语言做出最扯淡的结果，因为中共病毒疫苗施打才不到一年时间，用不到一年的文献空白来得出“目前没有文献资料显示腺病毒载体疫苗与急性髓细胞白血病发病有关联”的结论，同样也可以得出**“目前没有文献资料显示腺病毒载体疫苗与急性髓细胞白血病发病无关联”**的相反结论。
+
+但是中共的砖家可以用文字游戏终结任何关于施打疫苗的争议，并且进一步用这样的文字游戏变相终结宫东升的生命，因为只要不是预防接种异常反应引起的急性髓性细胞白血病，宫东升就不会得到任何国家层面的医疗援助，不管他在此前多么地爱这个国家。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

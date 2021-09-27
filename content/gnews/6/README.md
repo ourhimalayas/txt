@@ -2,22 +2,37 @@
 ---
 
 
-## 促生育！中共再废止部分计划生育行政法规
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1557975/)
+## 企业限电, 辽宁发生煤气泄漏多人中毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1558053/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-400.png)
-[图片来源](https://www.hk01.com/01%E8%A7%80%E9%BB%9E/614664/%E8%A8%88%E5%8A%83%E7%94%9F%E8%82%B2%E8%88%87%E9%96%8B%E6%94%BE%E7%94%9F%E8%82%B2%E6%9C%AA%E5%BF%85%E8%A1%9D%E7%AA%81)
+栏目记者/责任编辑：文扬四海
 
-近年来，针对人口的不断老龄化发展和低生育率的现实，中共不断放开施行了四十年的人口计划生育管制。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-9月26日，中共发布“第747号国务院令”，宣布即日起废止《计划生育技术服务管理条例》《社会抚养费征收管理办法》《流动人口计划生育工作条例》3项行政法规。
 
-废止计划生育法规，出台激励生育的措施，正是中共当下促生育的两个重要抓手。实施了四十年的计划生育，彻底破坏中国人口结构，加之中共的盗国贼治国模式，制造了“房医学”的新三座大山对老百姓进行极端压榨，导致低生育率不断走低。可见，不灭共，老百姓生不起，也不愿生！
 
-信息来源：[国务院关于废止部分行政法规的决定（中华人民共和国国务院令第747号）](https://www.mee.gov.cn/zcwj/gwywj/202109/t20210927_954071.shtml)
+9月24日，辽宁澎辉铸业有限公司发生高炉煤气中毒事故。事故原因是当地政府拉闸限电设备停机导致煤气泄漏，共有23人煤气中毒。目前伤者仍在医院接受观察治疗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/视频备用1、3、5.001-1.jpeg)
+据悉，近日中共国内很多地区分别出台了不同程度的限电/断电政策，严重影响了当地工业/农业生产和民众日常生活。有的地方政府公示称将 “不定期、不定时、无计划、无通知停电限电” ，且此情况至少将持续到2022年3月份。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+郭文贵先生直播透露，中共国内因为受脱钩影响外汇吃紧，导致进口原材料供应不上，煤炭价格由此不断攀高，直接影响到墙内的电力供应，目前的电力能源仅能满足市场 40%左右的需求，号称强国的中共国,未来停电限电或将成为常态，由此导致的各种乱象、事故甚至伤亡也将越来越多。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [辽宁一企业因限电发生煤气泄漏 23人中毒](https://c.m.163.com/news/a/GKT4S37N00019K82.html?spss=newsapp)
+2. [辽宁辽阳一企业发生煤气泄漏](https://news.stcn.com/sd/202109/t20210927_3716163.html)
+
+
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

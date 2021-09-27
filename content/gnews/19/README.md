@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年9月25日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557898/)
+## 2021年9月25日 文贵先生盖特 11
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1557964/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-9/25/2021 Miles Guo’s GETTR: The real darkness is yet to come! In response to the question of the fellow fighters, my opinion is that it is better to stay in the countryside. The farther away from the crowd, the modern consumption and supply chain environment, the better!
+这段视频清楚地展示了郭文贵先生对中共病毒 Covid疫苗早期的反复预警。 这些疫苗产品是国际“黑暗势力”与中共勾结的结果。Covid 疫苗将在 COVID-19 大流行中造成严重的副作用和次生灾难。 太多人遭受Covid疫苗副作用的折磨，很多人甚至失去了生命。 一系列事件充分验证了郭文贵的警告。 历史是现在和未来最好的证明！ 拒绝有毒疫苗就是在拯救人类。 传播真相，永不放弃！
 
-9/25/2021 文贵盖特: 真正黑暗的时刻还没有到来！对于战友的提问，文贵先生的意见是待在远离人群，现代化消费和供应链环境的农村更好！
-
-[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pcacxac957)
+[【2021年9月25日】文贵先生盖特原文](https://gettr.com/post/pcasp6a2fb)
 
 **喜联盟Gnews编辑部**
