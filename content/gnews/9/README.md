@@ -2,36 +2,18 @@
 ---
 
 
-## 意大利爆发大规模反疫苗护照示威游行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1556807/)
+## 以朱立伦为首的国民党将会出卖台湾
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1556934/)
 
-作者：香草山写作组 – 文一
+#### 作者：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-124.jpg)图片来源：DW
+台湾原新北市长朱立伦于9月25日被当选为国民党主席，随即中国共产党总书记习近平立刻发出贺电，祝贺其当选中国国民党主席，指出过去一个时期（国共）两党在坚持“九二共识”、反对“台独”共同政治基础上良性互动，推动两岸关系和平发展，造福两岸同胞，成效有目共睹。期望两党登高望远，坚持共同政治基础，坚守民族大义，勠力合作，为同胞谋福祉，为台海谋和平，为国家谋统一，为民族谋复兴。
 
+同日，新当选的中国国民党主席朱立伦立刻复电，对习近平表示感谢。他表示，两岸人民同为炎黄子孙，深盼今后两党在“九二共识”、反对“台独”基础上，增进互信融合，加强交流合作，让两岸关系和平发展继续前行，共同造福两岸民众，促进台海和平稳定。
 
+从朱立伦的复电中可以看出，朱立伦请习近平“勋鉴”，所谓“鉴”，表示审查，看，“勋”指功德，功劳，“勋鉴” 指请有功德之人审查性地看，可见朱立伦自甘拜于习之下，也就是说，如果他是台湾首脑的话，就是受北京中央领导下的一个省，卖台之势已经非常明显；接着在内容中指责民进党“去中，反中”造成台湾人民“极度不安”，其实质是以朱立伦为首的某些国民党高官“极度不安”，因为无法获得主子的狗粮，只有通过卖台才能获得主子的“奖赏“，通过”乞怜摆尾“来获得安全感。殊不知，这是出卖台湾人好不容易获得的民主自由，把全台湾人卖身为中共的奴隶，如果朱立伦被当选为台湾的首脑，以朱立伦为首的国民党必将成为台湾的罪人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+不要以为向中共低头，中共就不会打台湾，因为中共必定会步步紧逼，让台湾完全听从中共，稍有不顺，到时照样会打，中共的历史已经一遍遍地证明了，新疆是如此，西藏是如此，香港是如此，不要以为有台海隔着，中共只要需要，它照样会干，而到时，中共已经更进一步在台湾各处安插了中共的人，那时，再想反对已经毫无力量了， 希望台湾人民擦亮眼睛，不要上中共的当。
 
-
-
-近日，数以万计的人在意大利里雅斯特市举行示威活动，反对政府的疫苗护照。卡车司机们也准备仿效澳洲在周一封锁该国的高速公路。 据美国全国公共广播电台（NPR）报道，意大利将于10月开始实施世界上最严格的疫苗政策，即要求从事公共或私人工作的雇员出示疫苗接种证明否则将失去工作。
-
-意大利的疫苗护照被称为绿色通行证，无论去室内餐饮、博物馆和健身房或坐火车、飞机和坐船都需要出示该证。 据悉，自八月意大利推出疫苗护照以来， 早在七月底该国民众就通过社交媒体组织在80个城镇同时进行示威游行，包括佛罗伦萨、米兰、那不勒斯、罗马等主要城市。此次是对10月新规又一次集中而大规模的示威行动。
-
-评：绝不能接受纳粹疫苗护照，因为它会为国家的控制和暴政打开闸门，他们将能够随意开启或关闭您的生活，并决定您应该注射何种药物。
-
-参考链接： [https://twitter.com/electionwiz/status/1441738231385661440?s=21](https://twitter.com/electionwiz/status/1441738231385661440?s=21) [https://youtu.be/UxIREubRjh4](https://youtu.be/UxIREubRjh4) [https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world](https://www.npr.org/2021/09/24/1040550745/italys-new-covid-vaccine-mandate-is-one-of-the-strictest-in-the-world) [https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html](https://www.wantedinrome.com/news/italy-faces-wave-of-green-pass-protests.html)
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+资料来源：[国民党选出新主席 习近平电贺 朱立伦即覆](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210926-%E5%9B%BD%E6%B0%91%E5%85%9A%E9%80%89%E5%87%BA%E6%96%B0%E4%B8%BB%E5%B8%AD-%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%94%B5%E8%B4%BA-%E6%9C%B1%E7%AB%8B%E4%BC%A6%E5%8D%B3%E8%A6%86)

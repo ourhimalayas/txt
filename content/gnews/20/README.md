@@ -2,35 +2,113 @@
 ---
 
 
-## 从印尼排华来看世界华人的危险及中共对华人的祸害
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1556700/)
+## 恒大的钱去哪了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1556734/)
 
-#### 撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2021/09/af243b444d9ba320.png)
-中共建政以来，东南亚多个国家都发生过不同程度的针对当地华人的大规模有组织的排华事件，其中印尼由于在1965年和1998年2次发生大规模排华事件，加之过程中暴乱分子对华人，尤其是妇女和儿童所采取“奸、杀、焚”的系列化集体化暴行，其残忍和灭绝人性的程度令人发指，让全球华人群体，乃至世界良善民众都感到极端愤怒。对于印尼排华事件，究其根源以及中共在事件发生的前中后的作为，我们就不难看出中共是贻害海外华人的罪魁祸首。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/777-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=61500ffad2e2b817486e322f](https://gtv.org/video/id=61500ffad2e2b817486e322f)
 
-一、印尼排华事件根源是中共输出革命造成的
+**郭文贵：
+Miles Guo：**
 
-从中共建政开始，向世界各国介绍毛主义和中共革命的模式直至输出革命，一直是中共对外政策的一个重要组成部分。到了60年代中期，中共作出了“世界革命高潮已经到来”的判断，于是用输出毛主义来推动世界革命高潮，就成为中共对外工作的主要任务。
+恒大
+Evergrande
 
-印度尼西亚是当时中共在东南亚输出革命的另一个主要目标国。中共企图在印尼建立一个完全由共产党控制的政权。如能成功，就可以示范扩大到整个东南亚，使整个东南亚地区变成赤色的世界，所以鼓动印尼共产党暴乱夺权。在当时的国际共运阵营中印尼共产党是亲华反苏派。60年代上半期，印尼共产党利用印尼总统苏加诺的亲共立场，建立统一战线扩大势力，一度声势很大，结果重蹈中共1927年的覆辙，遭到右翼军事力量反击，在1965年被镇压。1965年9月30日，印尼共产党党员、苏加诺的亲信、总统卫队三营营长翁东中校为首的军官发动军事政变，杀死包括陆军司令雅尼在内的6名陆军将领，是为「930」事件。时任军队将领的苏哈托指责印尼共产党暗杀政敌试图夺权，随即苏哈托和纳苏蒂安为首的军人集团发动军事政变，他们推翻了苏加诺总统，并在社会各阶层全面肃清印尼共产党势力。在反共清洗中，除了消灭印尼共产党分子以外，由于中共扶植印尼共产党，印尼全国掀起大规模反华浪潮，导致大量华人被当作共产党分子处决。学界普遍认为，有50万印尼华人在此事件中被屠杀。
+大家都弄不清楚的这两万亿
+Everyone can’t figure out where the two trillion dollars went
 
-此后印尼屠杀华人的排华事件又多次重演。1998年5月13日，印尼发生了一场举世震惊、骇人听闻的「排华」暴乱，华裔居民受到有组织的虐待、杀害，华人所拥有的公司、住所被砸毁、抢劫，华人妇女惨遭轮奸、焚烧。有统计数据表明，5月13日至5月15日，在短短三天的时间里，人口一千余万的印尼首都雅加达市内，有27个地区发生暴乱，全市有5,000多家华人商店和房屋被烧毁，1,200多人被杀害，468名妇女被强奸，最小的年仅九岁。同时发生在梭罗、巨港、楠榜、泗水、棉兰等地的类似暴乱所造成的华人生命财产损失更是无法估量。被杀数字从10万到50万不等，美国情报部门估计的数字是25万。据报导，暴徒们把商店财物抢掠一空后，便把数以百计的妇女集中起来，然后强行脱光她们的衣服，进行集体轮奸，有的虚脱而死，更有些妇女被奸后遭抛进火坑烧死，惨不忍睹。他们还把在场的女子中较年轻的（往往只有10岁或者11岁）抓过来，当着其他人的面，在她们的母亲、父亲、丈夫和兄弟的面前多次施以暴行。
+买房子付钱了，是吧？都付钱了
+People paid for the house, didn’t they? All paid
 
-可见，**中共输出革命就是导致1965年印尼排华事件的根源，而1998年的第二次印尼排华事件就是1965年事件的延续**。
+然后呢？它还（负债）两万亿
+And then? It also has two trillion debt
 
-二、面对华人被残害，中共永远选择无视和助纣为虐
+这钱去哪儿了？这个问题问得好
+Where did the money go? That’s a good one.
 
-中共不仅对1998年印尼的野蛮行径采取不报导，不谴责、不干涉的态度，甚至如期送给印尼政府4亿元贷款，使纵容排华的苏哈托大受鼓舞。 6月中旬外交部才对此事件表示了关注；时隔一个多月后，7月28日，外交部长唐家璇又表示「强烈关注和不安」。中共政府撤走200名中华人民共和国国民——而不是受害的侨民。印尼五月发生暴乱的消息居然在中国大陆被封锁了足足两个多月。直到七月份互联网上传出一张张令人惨痛欲绝的图片，传出海外华人群情激愤示威游行场面时，才终于点点滴滴地漏出在媒体上。就在国际舆论纷纷用「野蛮」、「惨无人道」来描述这一事件时，8月3日《人民日报》发表评论，却只敢说「掠人财产、奸人妻女」，仿佛是个别道德品行不良的流氓所为似的。不痛不痒的呼吁保护印尼华人的安全和合法权益，严惩不法之徒。中国国内的各大报纸也在中共政府的引导下，摆出一付莫管闲事的姿态。各高校学生组织的抗议行动都被劝导和制止。
+那还钱不就完了嘛？你还有利润
+Then paid back your debt, right? Evergrande has profit
 
-而美国、加拿大、香港、新西兰、澳大利亚、马来西亚、菲律宾、台湾政府，世界各地的华人民间组织纷纷表示了极大的惊骇和愤怒，严辞遣责印尼政府，要求印尼政府迅速查清事情真相，对犯罪份子绳之以法，保护华人的合法权益，并对受伤的华人妇女表达了深切的关怀。美国国防部表示如果有必要，准备为想离开印尼的美国人提供军事保护和支援。美国大使馆敦促侨民离开雅加达，并安排两架波音747包机，协助侨民撤离。暴乱发生后，《纽约时报》及时发表四篇文章披露印尼华人在动乱中成牺牲品的种种劫难，更于六月十日发表一篇近万字的报导，详细描述印尼华人在这次动乱中所遭遇的不幸。并指出，这同30年代德国法西斯反犹排犹没有两样。国政府认定印尼「排华」暴动是种族歧视，并以武力威胁施压迫使印尼当局停止迫害华人的兽行；美国批准受难华裔的「避难请求」，并派出军舰从印尼接回了大量华人。中华民国政府向印尼提出「严正抗议」，5月16日起紧急指派专机飞往印尼疏散受难者，并且安排C-130运输机于国内待命及派遣舰队至峇里岛海域随时进行武力撤侨。中华民国政府要求保护受难者，并威胁要撤回台湾在印尼的投资（约130亿美元），禁止印尼劳工入境（约1万5千人）。对于印尼表达希望勿撤资撤侨，至同年7月29日公开召见印尼驻台代表提出「最严正的抗议」。 8月3日，上百人向印尼驻台北经济贸易代表处抗议印尼华人女性被强暴。 8月8日，印尼投资部长飞往台湾提倡投资印尼时，也因此为此事件道歉。新加坡政府宣布该国的樟宜国际机场二十四小时不关闭，接受难民入境。
+关键是，兄弟姐妹们，这是个旁氏骗局
+The point is, brothers and sisters, it’s a ponzi’s scheme
 
-**中共建政以来，华人在世界上的地位不升反降，甚至由于中共的输出革命导致20世纪60、70年代在东南亚各国普遍发生大规模有组织排华事件，导致数百万华人受害。及至所谓的“改革开放”，中共把“输出革命”伪装成了“蓝金黄”、“一带一路”，而其改造世界掌控世界的野心始终未改，再到2019年下半年又释放生物病毒荼毒世界，导致全球2亿人感染，数百万死亡，以史为鉴，中共造的孽最后都会由全体中国人和海外华人来承受**。为避免新一轮的全球反华浪潮，给广大无辜的华人带来灭顶之灾，广大的海外华人必须高度警觉、未雨绸缪，并且站出来大声急呼——中国人不等于中共！
+你们让它还钱，指望它还钱，我说我告诉你
+You expect Evergrande to pay back, I said: I tell you
 
-[参考链接](http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=5577)
+你得做到以下四件事儿:
+You have to do the following four things:
 
-（文章仅代表作者个人观点，与GNEWS无关）
+第一条，所谓的恒大汽车和恒大抵押，恒大的地，所谓价值4000亿
+The first one, the so-called Evergrande automobile and Evergrande mortgage, the so-called value of 400 billion land
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+那是谁评估的？
+Who evaluated all that?
+
+那是恒大花钱评估的，它不值4000个亿
+That’s what Evergrande paid to evaluate, so it’s not worth 400 billion
+
+这是假的，负4000个亿还差不多
+This is phony, a negative 400 billion assets is more like it
+
+第二，恒大在股市上造的那的股市的价格不能作为你参考它资产的价格
+Second, the price of the stock market that Evergrande made in the stock market cannot be used as a reference for you to refer to the price of its assets
+
+因为它全是一帮骗子抬起来的价格
+Because it’s all a bunch of scammers jacking up the price
+
+第三个，我说所有的金融机构、信托、银行贷款，全是骗局，都不是真的
+Third, I said all financial institutions, trusts, bank loans, all scams, are not real
+
+绝对多于这个数
+Definitely more than this number
+
+最后第四个，我说它最大的灾难不是你能看得见的这些东西
+And finally the fourth one, I’d say its biggest disaster is not these things that you can see
+
+我在2017年就说过，他说七哥我懂了，我说是金融票据
+I said it was a financial instruments in 2017, he said he understand
+
+没有人告诉你实话，都想活着
+No one tells you the truth, they all want to live
+
+金融票据的兑现，所有这些房地产全让员工买它的债
+The cashing in of financial instruments, all these real estate debt bought by its employees
+
+这些债大家赎回的时候，又大概在5万亿
+when everyone redeemed the bond are about another 5 trillion
+
+说你这10万亿你付不付？
+I asked: will you pay off this 10 trillion?
+
+你付了，不要说10万亿，你付2万亿，你所有的银行全倒闭
+You pay, not to say 10 trillion, you pay 2 trillion, all your banks collapse
+
+对吧？大卫兄弟，很简单，你全倒塌
+Right? Brother David, it’s simple, you’re all falling down
+
+你让不让大家赎债？
+Will you let people redeem their debts?
+
+赎债的时候，现在你拿官方示例说
+When foreclosing on a debt, now you take the official example and say
+
+这些人一旦要兑现的时候，我说你就让他30%的利息不给，你给他本
+Once these people want to cash in, I said you don’t pay 30% of the interest, you just give back the principal
+
+他说估计给本最多20%，我说那就是社会动乱
+He said he estimated that he could pay up to 20% of the principal, and I said that would be social unrest
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24](https://twitter.com/se1y7cblljselva/status/1439357838027939844?s=24)
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Raul
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

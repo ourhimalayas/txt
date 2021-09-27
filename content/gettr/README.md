@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/27/2021 2:49 AM (UTC)`
+
+<br/>10月26日：共产党的这一切都是假的，爱国都得造假，他们为什么要造假呢？就是诱骗更多傻爱国的人！
+![img](https://media.gettr.com/group19/getter/2021/09/27/02/1d802191-d54d-abb1-dd98-a1878cebe000/c55d6e522fe43a199f11764eef28fc7f.jpg)
+
+---
+
 `@miles 9/27/2021 2:29 AM (UTC)`
 
 9/26/2021 Miles Guo: Xi Yuanping is the biggest boss of Xu Jiayin, and the Xi family wants to keep Evergrande alive until after the 20th National Congress; Evergrande owes about US$100 billion to foreign creditors, while only reported to the CCP US$20 billion worth of debt; If Evergrande defaulted on the interests or the principal payment, the US stock market would be down by 600 points, with its impact being 10 times that of Lehman Brothers<br/><br/>9/26/2021 文贵直播：习远平是许家印最大的老板，习家想要恒大活过20大；恒大欠了1000万美元外债，却给中共报告说只欠200亿；恒大若无法兑付这1000亿外债，美股将被打下600点，其影响将超过10个雷曼兄弟爆雷！<br/>
@@ -290,13 +297,6 @@ Someone getting lucky at 12:30pm ET!!! <br/><br/>
 😫🆘🆘🆘🆘🆘🆘
 > `@mildseven 9/22/2021 7:43 PM (UTC)`<br/>Pressekonferenz Tod durch Impfung/Undeklarierte Bestandteile der #COVID -19-Impfstoffe am 20.09.2021<br/>nun auf GTV.org verfügbar.<br/>(Youtube hat die Pressekonferenz mehrfach gelöscht.)<br/>20/09/2021年9月20日的 *德语*新闻发布会：疫苗接种导致的死亡和#COVID -19疫苗的未申报成分。<br/>内含大量解刨图片和各种疫苗污染物的视频。<br/>现在可以在GTV.org上看到。<br/>(Youtube已经多次删除了新闻发布会的内容)。<br/>https://gtv.org/video/id=614b401442a8af3151a34afa
 ![img](https://media.gettr.com/group34/origin/2021/09/22/19/01847894-3f78-5f34-bedf-30e533fde16b/86f54c6439b57006898783ed0b581b2d.jpg)
-
----
-
-`@miles 9/22/2021 4:43 PM (UTC)`
-
-9月22号：这是真的吗？【Vaccine Side Effects Cover-up at a Hospital<br/>真相工程 - 护士揭露医院隐瞒疫苗副作用】
-![img](https://media.gettr.com/group18/default/20210922/16/43/fc7ae543-e3a2-82f8-a433-d6d3786ef53b/out.jpg)
 
 ---
 
