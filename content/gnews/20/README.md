@@ -2,37 +2,31 @@
 ---
 
 
-## 澳洲议员抨击：强制接种疫苗与“种族隔离”无异
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559546/)
+## 美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559585/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-129.jpg)
-图片来源：*ABC News: Tamara Penniket*
+栏目记者/责任编辑：文一
 
-**【雅典娜快讯】，紧贴时事脉搏**
 
-周一下午，自由党国民议会议员乔治·克里斯滕森（George Christensen）在一个在线广播中，将强制接种疫苗与奴隶制和“种族隔离”进行了比较。他警告说强制工人接种疫苗会产生一个新的“麻风病人”社会等级制度。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-403.png)
 
-在Telegram（一个深受极右翼团体欢迎的平台）的直播中，克里斯滕森将强制接种疫苗运动与奴隶制进行了比较。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-7.jpg)
+路透社9月27日 讯 – 美国官员本周将前往拉丁美洲考察基础设施项目，准备与中共国耗资数万亿美元的“一带一路”倡议相抗衡。 美国官员称，由拜登总统的副国家安全顾问 达利普·辛格率领的一个外交和发展官员代表团正在哥伦比亚，他们计划与哥国总统杜克会面，然后在本周稍晚前往厄瓜多尔和巴拿马。 该代表团的任务是将七国集团(G7)国家6月宣示的国际基础设施投资倡议“重建更美好的世界”（B3W)变为现实。这是几个计划的“聆听之旅”中的第一个。 按美国计划在明年年初正式启动B3W倡议，包括公布一些初始项目的细节。 据《零对冲》报道，“一带一路”项目因疫情加速了存量债务违约的重新谈判，到目前为止估计达到 940 亿美元，约占中共国海外贷款的四分之一。这表明“一带一路”最重要的贷款人，即中共国家开发银行和进出口银行，在为一带一路项目融资方面做得非常差，中共国纳税人很可能最终为此买单。 如今B3W项目的启动，恒大的崩坍，“一带一路”的有去无回几成定局。
 
-“这不是反疫苗。这关乎自由，关乎选择，关乎对政府和企业表示–我们是你的雇员，不是你的资产。我们不再是奴隶关系，你不可以要求对我的身体做某些事情，”克里斯滕森说。
+（本文仅代表作者观点）
 
-克里斯滕森表示，“这一切很荒唐。这是一种源自过去的观念，以及在工作场所强制要求接种疫苗的主要原因。这是不公平的。某些政客提出的强制要求，不打疫苗就不能工作，以及所有其他的疫苗歧视和医疗隔离规定，都是没有事实依据的。”
+参考链接：[美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](https://www.reuters.com/article/usa-latam-0927-mon-idCNKBS2GN0R9%20https://gnews.org/zh-hans/1418714/)
 
-“如果你接种了疫苗，我们为什么要隔离人群？为什么我们把人划分到不同的区域。这种封锁会把你当作麻风病人对待，你会失去工作，找不到工作，不能去购物，或者去看体育比赛”。这是灾难。”克里斯滕森强调。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
 
-克里斯滕森敦促那些不想接种疫苗的工人不要辞职，而是要向工会和律师寻求法律建议。
+终审编辑：Ryan
+校正/发稿：Hetangyuese
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**参考新闻：**[George Christensen compares vaccine mandate with ‘apartheid’ | news.com.au — Australia’s leading news site](https://www.news.com.au/national/politics/nationals-mp-george-christensen-compares-mandatory-vaccines-with-apartheid/news-story/b5385e22f7ff6bcf42cc5dba8080d7b8)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-406.png)

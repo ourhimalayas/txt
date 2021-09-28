@@ -2,27 +2,21 @@
 ---
 
 
-## 融创公司子公司向绍兴市致信寻求援助
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559615/)
+## 【G时新闻】中共国发动了“世界上最大规模的跨国镇压”
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559697/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+加拿大多伦多枫叶农场 – 播报：翌珊 制做： 北美小哥
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/text-SC-1.png)
-文章仅代表作者本人观点，与Gnews无关
+根据最近的一份报告，中共国发动了“世界上最大规模的跨国镇压”，以确保全球华人社区遵守中国共产党的路线。
 
-视频参看： 2021.09.27晚GTV新闻访谈
+这场广泛的运动针对逃离中共国的持不同政见者和与政治不同观点的人。根据隶属于法国的独立机构军事学校战略研究所(IRSEM)近650页的报告，北京的策略包括间谍、恐吓、威胁、骚扰、人身攻击以及对留在中共国的亲属施加压力。全面了解掌握中国人在全球的行动及影响力。
 
-[https://gtv.org/broadcast/watch/615261df42a8af3151a6a92a](https://gtv.org/broadcast/watch/615261df42a8af3151a6a92a)
+该政权还直接向至少九个国家施加压力，要求逮捕那些被中共国当局通缉的人。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+原文链接：[中共在全球范围镇压和扼杀侨民的意志](https://gnews.org/zh-hans/1558377/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+[盖特链接](https://gettr.com/post/pce6jz60f7)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
+
+编辑/发稿 云起时

@@ -2,125 +2,27 @@
 ---
 
 
-## 习主席会怎么处理恒大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559263/)
+## 《疫苗死亡报告》：殡葬师大胆发声
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559450/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-image0-8.jpg)
-[https://gtv.org/video/id=6152014cd2e2b817486ec9cc](https://gtv.org/video/id=6152014cd2e2b817486ec9cc)
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+约翰·奥卢尼（John O’Looney）是来自于英国的一位殡葬师，他是一个非常有说服力的目击者。10年来，他是英国最大的殡葬公司的一员。约翰与英国广播公司（BBC）合作，记录大流行病的情况，并与因大流行病而被政府任命的一名官员紧密合作。他与其他45个殡葬师都有联系，因此，对正在发生的事情有一个非常清楚的概述。他所披露的情况令人震惊。
 
-今天恒大
-Hoy Evergrande Group
+首先，他作证说，在所谓的冠状病毒大流行病期间，他或他认识的任何其他殡葬师都没有看到死亡人数增加。这是令人震惊的，因为在电视上他们不断看到大量死亡信息的传播，但现实中却没有这样的迹象。然而，在2020年3月，约翰突然晚上被呼叫，连续三周，专门去养老院。所有在那里死亡的人都被标记为中共病毒死者。他从来没有看到过一个医生在场，也没有做过一次中共病毒测试。与此同时，咪达唑仑（Midazolam）的销量突然增加了1000%。一名护士秘密地告诉他，他（她）们如何被指示给老人注射致命剂量的这种药物，从而大规模地消灭他们（养老院院老人）。这些大量的死亡数字随后被用来宣传支持“中共病毒大流行”的说法。
 
-现在我救你, 我就得救所有人
-Si ahora te salvo, debo salvar a todos
+一位政府大流行病官员也找过他，告诉他，他们必须把每一个人的死亡都标为中共病毒死因。被车撞死的人、心脏病发作的人、癌症患者，不管是什么原因造成的死亡，他们都必须被标记为因中共病毒而死亡。这是来自政府的直接指示。
 
-我不救你, 所有人都成为我的灾难, 那怎么办
-Si no te salvo, todas las personas se convertirán en mi desastre, ¿ qué debo hacer?
+约翰说，政府为英国人口大规模接种疫苗一开始，死亡人数突然激增。“作为一个做了15年殡葬师的我，从来没有见过这样的事情。而这正是从他们开始在人们的手臂上扎针开始的。我从没有见过这么高的死亡率。那是非常可怕的。大流行病的（死亡）数字只是在他们开始接种疫苗之后（飙升的），在那之前从未发生过。”约翰解释说，他们尽可能多地将（死者）标记为中共病毒死亡。第一波疫苗接种和由此产生的死亡持续了大约12周。然后是一个非常平静的时期，接着又是一波新接种疫苗人的死亡。
 
-所以内部决定, 地方的事
-Entonces, la zona interna decide que esto es asunto local
+“每一个有一丝诚实的殡葬师都会告诉你，所有在我们周围死去的人都是疫苗接种者。根本不存在中共病毒大流行，我就是活生生的证人。”
 
-地方的钱, 地方解决
-El dinero local se resuelve dentro de la región
+“这都是为了让你接种疫苗。在我的殡仪馆关系网信息中，没有一个孩子死于中共病毒，所以，没有任何理由将疫苗用于儿童。（肯定）存在一个人口减少的计划。正是疫苗在杀人，作为殡仪馆馆长，我亲眼看到了这一切。”
 
-中央的事, 中央解决, 他们想把恒大给肢解了, 然后呢
-Los asuntos del gobierno central los resuelven ellos mismos, quieren desmembrar a Evergrande Group y luego
+**参考资料：**[https://www.stopworldcontrol.com/director](https://www.stopworldcontrol.com/director)
 
-全部各部委
-Todos los ministerios
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
 
-所有承担责任
-Deben asumir las responsabilidades
-
-但是记住战友们, 给恒大出这个招的人
-Pero recuerden, compañeros luchadores, quien le dió este truco a Evergrande Group
-
-一定是江派的人
-Debe ser del Partido de Jiang
-
-习派没有这样的人
-El Partido Xi no tiene este tipo de persona
-
-他这样的出招, 就把整个中国的影子银行
-Este truco que hizo, dejó a todos los bancos de sombras de China
-
-保险机构、信托、所谓资金池子不在财富列表之内的
-Las instituciones de seguros, los fideicomisos y los denominados grupos de capital que no se incluyen en la lista de patrimonio
-
-这几十万亿全给隐藏住, 习100%用这个招
-Estas decenas de billones están todas ocultas y Xi usó este truco al 100%
-
-今天记着我的话
-Recuerden lo que dije hoy
-
-也看到了很多人都被安抚了
-También verán a muchas personas que serán consoladas
-
-买房的交房, 欠钱的按期付款
-El comprador de la casa lo entregará, y el dinero adeudado se pagará a tiempo
-
-但不准上街闹事
-Pero no deben crear disturbios en la calle
-
-习一听
-Xi al escuchar esto
-
-这事很好, 阻止了各种其他房地产商
-Dijo, esto es algo bueno y ha detenido a varios agentes inmobiliarios
-
-来到我这闹事
-A crear problemas aquí
-
-那么现在我告诉大家
-Entonces ahora les digo a todos
-
-恒大倒不倒
-Evergrande Group caerá o no
-
-关键是第一张牌
-El punto crucial es la primera carta
-
-一定会让你惊艳
-De seguro te sorprenderá
-
-共产党的一堆办法
-El Partido Comunista tiene cantidades de soluciones
-
-就是要让恒大不倒
-Para que Evergrande Group no se caiga
-
-你会看到一堆措施
-Verás muchas medidas
-
-但是最终我告诉你
-Pero finalmente, te digo
-
-一定会倒
-Seguramente caerá
-
-而且倒的非常的惨
-Y de la manera más terrible
-
-而且许家印进不了监狱, 许加印一定是车祸死啊
-Además, Xu Jiayin no entrará al carcel, él será muerto de un accidente automovilístico
-
-心脏病死啊、自杀啊
-De un infarto, suicidio
-
-猝死等, 一定这结局
-Muerte súbita, entre otros, el final debe ser así
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24](https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24)
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)

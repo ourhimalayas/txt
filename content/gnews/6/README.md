@@ -2,59 +2,30 @@
 ---
 
 
-## 《GTV新闻访谈》简讯
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559682/)
+## 终结共产主义的游戏已经开始：从恒大出事看中共
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559769/)
 
-栏目记者/责任编辑：文一
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-9-scaled.jpeg)图片来源：搜狐
+零对冲网9月27日报道，恒大暴雷并未引起全球连锁反应，但迫在眉睫的中共国经济灾难可能会出现。
 
+冷战的主要错误，是西方观察家们高估了前苏联，对于中共国是不是也发生了同样的情况？过去10年的所有文章都在讲中共国的经济将超过美国，但至少有两个预测提到“中共国的危机”。一个是2015年大卫·仙保写道：“终结中共的游戏已经开始，它的灭亡很可能要经过一段较长的过程。” 同年，尼克斯联合基金公司的詹姆斯·查諾斯警告说：”中共国这艘大船正在开始无情地下沉中。“
 
+上周又开始了另一个下沉点，这个即将倒下的是中共国巨型房产开发商恒大集团公司，很可能是中共国的“雷曼兄弟”，过去24小时，全球股票市场下降了几个百分点，但周二早晨，这事好像已经过去了，紧张不安的情绪已经缓解，投资者们回味了美联储主席杰·鲍威尔所说的没什么了不起的。按照目前的美元计算，中共国即使加上香港的GDP，也只有美国的72%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+中共国将会超过美国吗？不，不会。三年前在首尔的讨论会上，当时谈到中共国人均GDP是3000美元，预测20年内将不会超过美国。
 
+回顾当初对前苏联的预测，经济学家保罗·萨慕尔森于1967年预测前苏联将于1984年-1997年将超过美国，甚至可能在1977年发生，而哈佛大学约翰·盖尔布瑞斯于1984年坚持认为“苏联的系统是成功的，因为它充分发挥了人的力量”。只有极少数的历史学家如罗伯特·康凯斯特抓住了苏联系统对其自身公民犯罪本质。当然中共国从苏联学到了经验，从70年代末开始改革开放，但它从来没有放弃过政治上的专权，不允许出现中共国的戈尔巴乔夫。
 
+同样，中共国也学到了2008年的“雷曼兄弟”破产的经验，不能出现中共国的雷曼兄弟。
 
+而恒大能异军突起是中共国过去几十年的城市化进程中的中共经济模式。这个中共国第二大房产开发公司，估值3550亿美元，有1300个楼盘，20万雇员，每年雇用300-400万建筑工人。也是世界上负债最多的，相当于中共国GDP的2%，恒大是中共国众多高杠杆房地产公司中的一家，当中共政府决定要处理这种高杠杆的案例时，那将不会是全球经融危机，甚至不能算国内经济危机，而且更像是破产边缘，一切都是为了政治，政府将采取：1. 中央银行将进一步放宽贷款，以缓解银根紧缩问题；2.房产销售回暖；3.让更多的陷于破产的房地产公司销售其资产以回笼资金。这样的流程互相加强，以帮助稳定房地产，危机似乎将过去，但中共国的房产泡沫远超美国和欧洲，简单来说，中共国的增长多年来是通过房地产过多开发，中共国的房地产股票中1/5-1/4其实是空的，有9000万人的资产相对于房子而言是空的。
 
+另外中共国的经济增长率其实已被人为拉高，实际的增长率可能只有报出来的一半，很多经济学家认为今后10年的增长率只有1-2%。
 
-►周一下午，美国总统乔-拜登在电视直播中接受了新冠疫苗加强针，此前几天，美国疾控中心支持为数百万在六个月前接受辉瑞公司疫苗第二针的美国人打加强针。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-5.jpg)
-►美国务院发言人内德-普莱斯的病毒检测呈阳性，将被隔离。讽刺的是，普莱斯在一条推文中说：“我感觉不是很舒服，但对安全有效的疫苗所提供的对重症的保护表示感谢。”
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.2-3.jpg)
-►据总部位于纽约的数据服务机构布尔比奥（Burbio）称，本学年到目前为止，43个州的539个地区的近2200所学校因中共病毒疫情而不得不暂时关闭。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.3-1.jpg)
-►联邦调查局报告说，在中共病毒大流行期间，2020年的谋杀案增加了近30%，这是该局自六十年前开始记录犯罪统计数据以来最大的单年跳跃。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.4-1.jpg)
-►“与星共舞”本赛季职业选手谢丽尔-伯克，周日在视频中含泪宣布病毒检测呈阳性。这位早打了Moderna疫苗的舞者说，根据CDC对检测出阳性的疫苗接种者的指导方针，她必须在家里隔离10天。 疫情并未因疫苗的普及而受控，反而越来越严重，越来越扩散，并导致各种次生灾害事件频发，政客和所谓权威机构却还在为医药公司站台作秀撒谎推打疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.5-1.jpg)
-参考链接：
-[Biden gets vaccine booster shot; Arizona judge finds ban on school mask mandates unconstitutional: COVID-19 updates](https://www.msn.com/en-us/news/us/biden-gets-a-vaccine-booster-shot-thousands-of-new-york-health-care-workers-could-lose-jobs-as-soon-as-today-covid-19-updates/ar-AAORrao)
+为了不同于戈尔巴乔夫，习近平的各项改革与戈氏完全相反，将政治拉回到马克思列宁那一边，而不是向自由迈进。但结局却很可能是相同的。习近平打击房地产业，坚持反对“中国的资本主义特征”，他打击阿里巴巴、腾讯、滴滴以及教育产业，反映出他要中国从虚拟增长变成真实增长，就像他提出的要“共同富裕”，投资者如果忽略中共国这种反资本的倾向，那么赔钱也只能怪自己。
 
-[推文：After experiencing symptoms for the first time this morning, I tested positive for COVID-19 shortly thereafter, & will now quarantine for the next 10 days. I’m feeling under the weather but am grateful for the protection from severe illness offered by safe and effective vaccines.](https://twitter.com/statedeptspox/status/1442558871395045376?s=21)
+同样的，分析家们如果继续认为中共国经济将会超越美国，也只能怪他们自己没有从苏联垮台的教训中吸取经验，或许习近平从其他的危机中仅仅学到如何自己制造危机。
 
-[K-12 School Reopening Trends](https://info.burbio.com/school-tracker-update-latest/)
-
-[FBI: Record surge in 2020 murders; nearly 30% increase drives spike in violent crime](//www.usatoday.com/story/news/politics/2021/09/27/fbi-reports-2020-murder-surge-biggest-single-year-jump/5886792001/%20violent%20crime)
-
-[‘DWTS’ pro Cheryl Burke tests positive for COVID, tearfully apologizes to dance partner Cody Rigsby](https://www.usatoday.com/story/entertainment/tv/2021/09/27/dwts-cheryl-burke-cody-rigsbys-partner-tests-positive-covid/5880823001/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+##### 新闻来源： [“The Endgame Of Communist Rule Has Begun”: Evergrande’s Fall Shows How Xi Has Created A China Crisis](https://www.zerohedge.com/geopolitical/fergsuon-evergrandes-fall-shows-how-xi-has-created-china-crisis)

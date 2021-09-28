@@ -2,23 +2,60 @@
 ---
 
 
-## 因人口忧虑 中共国或要限制堕胎
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1559242/)
+## 前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1559409/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F8919858-902B-476B-BB86-998D6E459B36_w650_r0_s.jpg.jpg)因人口忧虑 中共国或要限制堕胎 网络图片
-据法新社9月27日报道，中共国政府发布女性健康新准则，以减少非医学需要的堕胎。一直以来，堕胎在中共国不仅合法，而且容易实施。中共国最新的人口普查结果显示，去年出生人口降至1200万，是1940年代末以来的最低水平。
-
-中共国自2016年放宽限制，允许生育第二个孩子。今年5月底，允许生育三个。但由于抚养成本过高和从前的计划生育政策，导致很多身为独生子女的年轻夫妇不愿意生三个孩子。中共国目前的生育率已降至每名育龄妇女只生1.3个孩子，远远低于更替水平。
-
-中共国强制推行计划生育30年，叫嚣宁可血流成河，不能超生一个，造成全国范围内的人道灾难，被处理掉的婴儿，大多数是女婴在4亿左右。当人口出现问题时，开始考虑限制堕胎。人不是动物，就算是动物也不能人为地控制出生和死亡。苍天有眼，万物有灵，中共的血腥和残暴必然会为自己的结局画上灭亡的句号。
-
-新闻参考链接：[https://amp.rfi.fr/cn/中国/20210927-因人口忧虑-中国或要限制堕胎](https://amp.rfi.fr/cn/中国/20210927-因人口忧虑-中国或要限制堕胎)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+前白宫经济顾问皮特·纳瓦罗： 推特上的“取消文化”又开始(作怪)了。他们决定不允许我为我的推文做广告。很显然,真相刺激了他们泼妇般敏感的神经。这些人是谁？ 盖特(GETTR)是推特杀手。推特的“取消文化”正在摧毁美国。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> The cancel culture twits at Twitter are at it again. They have decided they won't allow me to advertise my tweets. Apparently truth offends their pearl-clutching sensibilities. Who ARE these people?
+> 
+> GETTR is the Twitter Killer. Twitter's cancel culture is destroying America.
+> — Peter Navarro (@RealPNavarro) [September 27, 2021](https://twitter.com/RealPNavarro/status/1442283619926564872?ref_src=twsrc%5Etfw)
+
+
+
+美国务院发言人内德·普莱斯： 国务卿布林肯与新加坡外交部长[@VivianBala](https://twitter.com/VivianBala) 进行了交谈，并肯定了我们国家的密切伙伴关系。他们讨论了我们对印太地区、太空合作和应对气候危机的承诺。 【附国务院官网新闻】
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) spoke with Singaporean Foreign Minister [@VivianBala](https://twitter.com/VivianBala?ref_src=twsrc%5Etfw) and affirmed our countries’ close partnership. They discussed our commitment to the Indo-Pacific region, space cooperation, and combatting the climate crisis. [https://t.co/D5Uai0fWpn](https://t.co/D5Uai0fWpn)
+> — Ned Price (@StateDeptSpox) [September 27, 2021](https://twitter.com/StateDeptSpox/status/1442609472128659459?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 通过恐怖主义人质外交取胜. 【转推称：孟晚舟和加拿大人质的交换是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和卖美贼幕后交易的的结果】
+
+
+
+> China wins using terroristic hostage diplomacy [https://t.co/7D2hELRswq](https://t.co/7D2hELRswq)
+> — Bill Gertz (@BillGertz) [September 27, 2021](https://twitter.com/BillGertz/status/1442302993534128135?ref_src=twsrc%5Etfw)
+
+
+
+众议院共和党领袖凯文·麦卡锡 ： 民主党正试图将4,300,000,000,000美元的 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 宠物项目强加给美国人民。 它会导致通货膨胀 这会让我们的孩子背上债务 它将会改变政府的模样,正如我们所知道的. 这是个很糟糕的协议——共和党人将全力而战. 【附福克斯新闻：麦卡锡关于众议院民主党人的开支闪电战】
+
+
+
+> Democrats are trying to force $4,300,000,000,000 in socialist pet projects on the American people.
+> 
+> It would cause inflation.
+> It would saddle our children with debt.
+> It would transform government as we know it.
+> 
+> It’s a BAD DEAL—and Republicans will fight it tooth and nail. [pic.twitter.com/VEuUd0YW6o](https://t.co/VEuUd0YW6o)
+> — Kevin McCarthy (@GOPLeader) [September 27, 2021](https://twitter.com/GOPLeader/status/1442535002823036932?ref_src=twsrc%5Etfw)
+
+
+
+众议员马乔丽·泰勒·格林： 国会应该保护被困在阿富汗的美国人，关闭边境入侵，并帮助被 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发送给我们的病毒摧毁的小企业。 与之相反，民主党正在通过法案来谋杀子宫内直到出生前的胎儿。
+
+
+
+> Congress should be protecting Americans trapped in Afghanistan, shutting down the border invasion, and helping the small businesses destroyed by the virus sent to us by China. 
+> 
+> Instead, Democrats are passing bills to murder babies in the womb up until birth. 
+> 
+> (Part 1) [pic.twitter.com/6g7UJsUdrx](https://t.co/6g7UJsUdrx)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [September 27, 2021](https://twitter.com/RepMTG/status/1442548123092635652?ref_src=twsrc%5Etfw)
