@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 12:29 AM (UTC)`
+
+9/27/2021 Miles Guo’s GETTR: We need to take a serious look at how we will live our lives as well as the political and social changes throughout the world in the next few years. We need to carefully consider how to cope with the changes in people's behaviors and their ways of life<br/><br/>9/27/2021 文贵盖特: 请兄弟姐妹们认真地思考未来两三年的生活方式和整个世界政治、社会的大变革，仔细想一想我们要如何去应对人们的行为和生活方式的改变<br/><br/>
+![img](https://media.gettr.com/group25/getter/2021/09/28/00/29/63a66e28-6a53-3ac5-2103-c22493d1491a/out.jpg)
+
+---
+
 `@miles 9/28/2021 12:18 AM (UTC)`
 
 9/27/2021 Miles Guo’s GETTR: Everyone should take preventative measures for the cerebral infarctions and myocardial infarctions, and the resultant unpredictable traffic disaster events. Avoid unessential trips and prepare for the tough life in the next 1 or 2 years.<br/><br/>9/27/2021 文贵盖特: 大家要对疫苗灾难带来的脑梗、心梗及其导致的各种不可预料的交通灾难事故做好必要的防护，避免不必要的出行，为一两年内艰难的生活做好准备
@@ -294,12 +301,6 @@ WOW
 
 9/24/2021 Miles Guo: Yesterday the CCP’s Army, Navy, and Air Force conducted military drills targeting Taiwan with live ammunition (nuclear bombs), which is technically equivalent to starting a war despite that not a single shot was fired. Meanwhile, the Taiwanese troops’ incompetence, and the weakness of the U.S. and Japanese troops were all exposed, leading the CCP to believe that taking Taiwan is a piece of cake<br/><br/>9/24/2021 文贵直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习，虽未开炮但等同开战，同时暴露了台军的无能和美军、日军的弱点，中共认为攻占台湾如探囊取物<br/>
 ![img](https://media.gettr.com/group25/getter/2021/09/25/03/05/91e455af-c64e-73ba-9fdd-c11d45695a38/out.jpg)
-
----
-
-`@miles 9/24/2021 11:10 PM (UTC)`
-
-9月24号：亲爱的兄弟姐妹们还记得这一段七哥的视频吗？https://youtu.be/oSRXeu8E8JE
 
 ---
 
