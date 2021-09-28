@@ -2,48 +2,53 @@
 ---
 
 
-## 2021/09/27 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1561051/)
+## 辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1561121/)
 
-[![](https://spark.adobe.com/page/r96mYcoqfzK28/images/b1292a0b-f21c-4037-9403-98194459a9db.jpg?asset_id=47fd1c3d-8503-4068-9723-5e001a7aca0f&amp;img_etag=%22bee8a035d1e182a858da4fffedfa0bf9%22&amp;size=2560)](https://spark.adobe.com/page/r96mYcoqfzK28/images/b1292a0b-f21c-4037-9403-98194459a9db.jpg?asset_id=47fd1c3d-8503-4068-9723-5e001a7aca0f&amp;img_etag=%22bee8a035d1e182a858da4fffedfa0bf9%22&amp;size=1024)
-**嘉宾：草根小哥**
+作者：纽约香草山农场 – 四季
 
-视频链接：[2021/09/27 中共国为何开始限制电量供应？ 华尔街“老年团”中共国之行的秘密？中共政治经济水深火热中…](https://www.youtube.com/watch?v=scv5tdb2I4E)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-**板块1–国际政治**
 
-1.德国监管机构对中共国收集开展调查。
 
-2.立陶宛国防部报告提到到中共国手机（华为P40、小米10T5G等）存在后门，例如：远程激活、根据用户使用习惯进行监控、选择性投放新闻给用户等。欧盟和北约成员国开始分享并报道此类信息。
 
-3.华为本质是军事情报部门。实行偷盗技术、信息窃取、勾兑外部势力，孟晚舟是实际操作的“组织性人物”。华为在新疆通过大数据监控、5G的运用、AI技术对新疆人民进行监控。
+据[零对冲](https://www.zerohedge.com/covid-19/pfizer-launches-final-study-covid-drug-thats-suspiciously-similar-ivermectin)9月28日报道，周一，辉瑞公司宣布，它正加速进行一种COVID预防药物的中后期试验，旨在抵御那些可能接触过该疾病的人的COVID。该药物旨在阻断冠状病毒在人体内繁殖所需的一种关键酶的活性，将与低剂量的利托那韦一起给药，利托那韦是一种广泛用于艾滋病（HIV）感染联合治疗的老药。
 
-4.华尔街退休大佬约翰桑顿八月底对新疆和上海进行了6周的访问，并在上海会见韩正。目的：粉饰中共国在新疆的恶行、软化彭培奥对新疆的定性、进行勾兑来减轻美国对新疆的制裁。华尔街现处于分裂状态，索罗斯几次炮轰习，与桑顿低调访问中共国形成鲜明对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1077-1-protease.png)图片来源：零对冲
 
-**板块2–中共病毒**
+巧合的是，辉瑞公司正在研发的新药至少与伊维菌素共享同一种作用机理。伊维菌素是一种在人类中使用了几十年的抗寄生虫药，它作为一种蛋白酶抑制剂可对抗Covid-10。研究人员推测这“可能是其抗病毒效率背后的生物物理基础”。
 
-1.谭德赛在欧洲多国的支持下连任，政治操作溯源调查（世界卫生组织寻求通过新团队恢复已停滞的对Covid-19溯源的调查）“表演”给世界看。调查结果可能会对抗爆料革命关于病毒的真相。
+辉瑞即将推出的新药与伊维菌素之间的相似性引起了公众的关注，有推文写道：
 
-**板块3–财经**
+“在其他新闻中，辉瑞公司正在测试伊维菌素，现在更名为PF-07321332，以帮助治疗Covid。他们这样做是为了使这种药物比伊维菌素更昂贵，尽管事实上，它们是同一种药物”。
 
-1.火币与币安已停止让交易者用中国大陆的手机号注册新账户，现阶段加密货币是中共洗钱和圈老百姓钱的工具。中共是火币背后的主要控制方，配合彭博社报道“随着禁令扩大，加密货币巨头不再接待中共国用户”向海外投资者释放信息，释放资金投入比特币市场，背后操作者趁机大赚；并促使国内火币用户套现返回入账银行，中共国银行利用资金回流填补生活成本增高造成的“窟窿”。
+“在对一种已有35年历史的安全、有效的伊维菌素进行了精心设计的‘马驱虫剂’抹黑运动之后，媒体开始公然赞扬该未经证实的药物，而辉瑞和默克公司正在推动其获得继实验性疫苗之后的欧盟认证”。
 
-2.喜联储是灭共后金融体系必须搭建的重要一环，与世界金融体系互相融合。
+与辉瑞公司的实验性药物不同，伊维菌素可能已经拯救了从印度到巴西的数十万人的生命。
 
-3.中国北方限电主要原因跟煤炭价格疯涨有关，与澳大利亚等国煤炭交易不顺利，导致电力公司“入不敷出”。中共煤炭产业结构不健康，各级都有利益输送，造成偷工减料。
+然而，这一证明有效的老药被多国CDC警告和禁用，取而代之的将是与之机理相类似的，更加昂贵的新药的推出。人类还要经受怎样的磨难才能结束这一切是我们每一个都要思考和行动的。
 
-4.中国电力紧张之际，苹果和特斯拉主要供应商停产，导致国际大企业下批订单外移到其他国，中共国经济形势将进一步恶化。
+（本文仅代表作者观点）
 
-5.中共国房地产违约的增加，无数个“恒大”在排着队，摩根斯坦利分析中共国政策宽松接近拐点，中共将会对民营企业进一步掠夺。
+封面图片来自Getty Images
 
-*编辑：【英国伦敦喜庄园编辑部】*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
-*听写：call me uncle|Pr: 乐禧禧|Page：小六月*
+编辑/校对/发稿：小鹿
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-[![](https://spark.adobe.com/page/r96mYcoqfzK28/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/r96mYcoqfzK28/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

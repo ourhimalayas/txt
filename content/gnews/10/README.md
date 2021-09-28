@@ -2,50 +2,48 @@
 ---
 
 
-## 4,600 多名医生科学家指责 COVID 政策制定者“危害人类罪”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560964/)
+## 2021/09/27 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1561051/)
 
-- 编译：Jenny Ball
+[![](https://spark.adobe.com/page/r96mYcoqfzK28/images/b1292a0b-f21c-4037-9403-98194459a9db.jpg?asset_id=47fd1c3d-8503-4068-9723-5e001a7aca0f&amp;img_etag=%22bee8a035d1e182a858da4fffedfa0bf9%22&amp;size=2560)](https://spark.adobe.com/page/r96mYcoqfzK28/images/b1292a0b-f21c-4037-9403-98194459a9db.jpg?asset_id=47fd1c3d-8503-4068-9723-5e001a7aca0f&amp;img_etag=%22bee8a035d1e182a858da4fffedfa0bf9%22&amp;size=1024)
+**嘉宾：草根小哥**
+
+视频链接：[2021/09/27 中共国为何开始限制电量供应？ 华尔街“老年团”中共国之行的秘密？中共政治经济水深火热中…](https://www.youtube.com/watch?v=scv5tdb2I4E)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/doctors-scientists-Covid-crimes-against-humanity-feature-800x417-1.jpg)图片来源：本篇新闻
 
-由医生和科学家在罗马** COVID **峰会期间制定的《医师宣言》，指责决策者强行采用**“**一刀切**”**的治疗策略，导致**“**不必要的疾病和死亡**”**。
+**板块1–国际政治**
 
-一个由医生和科学家组成的国际团体，周五签署了一份声明，指责 COVID-19 政策制定者“危害人类罪”，因为他们阻止对患者使用挽救生命的治疗方法。
+1.德国监管机构对中共国收集开展调查。
 
-截至周一上午，《医师宣言》[Physicians Declaration](https://doctorsandscientistsdeclaration.org/)已获得 4,600 多个签名。签名者指责政策制定者强行采取“一刀切”的治疗策略，导致“不必要的疾病和死亡”，而不是“坚持个体化的基本概念”。
+2.立陶宛国防部报告提到到中共国手机（华为P40、小米10T5G等）存在后门，例如：远程激活、根据用户使用习惯进行监控、选择性投放新闻给用户等。欧盟和北约成员国开始分享并报道此类信息。
 
-[根据全球 COVID 峰会](https://globalcovidsummit.org/news/welcome-to-the-global-covid-summit)，该宣言是在罗马 COVID 峰会期间由医生和科学家创建的。 签署人是专业人士，其中许多人是处于治疗[COVID](https://childrenshealthdefense.org/defender_category/covid/)患者的前线医生。
+3.华为本质是军事情报部门。实行偷盗技术、信息窃取、勾兑外部势力，孟晚舟是实际操作的“组织性人物”。华为在新疆通过大数据监控、5G的运用、AI技术对新疆人民进行监控。
 
-**全球 COVID 峰会报道：**
+4.华尔街退休大佬约翰桑顿八月底对新疆和上海进行了6周的访问，并在上海会见韩正。目的：粉饰中共国在新疆的恶行、软化彭培奥对新疆的定性、进行勾兑来减轻美国对新疆的制裁。华尔街现处于分裂状态，索罗斯几次炮轰习，与桑顿低调访问中共国形成鲜明对比。
 
-“虽然宣言的签署者在他们的专业、治疗理念和医学观点上各不相同，但他们已经站起来采取集体立场，反对企业、医学协会、政府及其各自机构的专制措施。 该宣言的目标是，恢复他们在战胜这一流行病方面的领导作用。”
+**板块2–中共病毒**
 
-[**宣言指出： **](https://doctorsandscientistsdeclaration.org/)
+1.谭德赛在欧洲多国的支持下连任，政治操作溯源调查（世界卫生组织寻求通过新团队恢复已停滞的对Covid-19溯源的调查）“表演”给世界看。调查结果可能会对抗爆料革命关于病毒的真相。
 
-“在罗马 COVID 峰会上首次宣读了《医师宣言》，促进了全球医学科学家和医生的积极支持。 这些专业人士没想到从事的职业（治病救人）会遭受威胁、人身暗杀、论文和研究被审查、社交账户被封锁、搜索结果被操纵、临床试验和患者观察被禁止，他们的职业历史和成就会在学术和主流媒体中被改变或遗漏。
+**板块3–财经**
 
-由于无法获得挽救生命的早期治疗，数千人死于 COVID。该宣言是医生们的战斗口号，他们每天都在为治疗患者的权利，以及患者接受这些治疗的权利——而不用担心政府、药店、制药公司和大型科技公司的干预、报复或审查而战。”
+1.火币与币安已停止让交易者用中国大陆的手机号注册新账户，现阶段加密货币是中共洗钱和圈老百姓钱的工具。中共是火币背后的主要控制方，配合彭博社报道“随着禁令扩大，加密货币巨头不再接待中共国用户”向海外投资者释放信息，释放资金投入比特币市场，背后操作者趁机大赚；并促使国内火币用户套现返回入账银行，中共国银行利用资金回流填补生活成本增高造成的“窟窿”。
 
-签署方创建了一个“仅限医生和科学家”的 COVID 信息平台，因此公民可以“不受干扰、操纵、政治化或从医患关系之外的外部力量中牟取暴利”，为家人做出明智的决定。
+2.喜联储是灭共后金融体系必须搭建的重要一环，与世界金融体系互相融合。
 
-点击这里[**here**](https://doctorsandscientistsdeclaration.org/)阅读医师宣言全文。
+3.中国北方限电主要原因跟煤炭价格疯涨有关，与澳大利亚等国煤炭交易不顺利，导致电力公司“入不敷出”。中共煤炭产业结构不健康，各级都有利益输送，造成偷工减料。
 
-**点击文章链接观看**** mRNA ****疫苗技术的发明者罗伯特·马龙（**** Robert Malone ****）博士阅读《医师宣言》**
+4.中国电力紧张之际，苹果和特斯拉主要供应商停产，导致国际大企业下批订单外移到其他国，中共国经济形势将进一步恶化。
 
-**评论：许多无辜的人们相信科学，这些就是有良知的科学家为了我们的健康和生命发出的誓言。科学无正义邪恶之分，但是如果掌握科学知识的人，为了金钱地位用科学杀人，那灾难就是今天我们经历的数以百万的死亡！**
+5.中共国房地产违约的增加，无数个“恒大”在排着队，摩根斯坦利分析中共国政策宽松接近拐点，中共将会对民营企业进一步掠夺。
 
-**向勇敢的科学家致敬！行动起来，保护我们自己和我们的下一代！**
+*编辑：【英国伦敦喜庄园编辑部】*
 
-（文章仅代表作者观点，与GNEWS无关）
+*听写：call me uncle|Pr: 乐禧禧|Page：小六月*
 
-**素材来源：**[childrenshealthdefense.org](https://childrenshealthdefense.org/defender/4600-doctors-scientists-accuse-covid-policymakers-crimes-against-humanity/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=c49025fa-3ddc-4c4b-90c7-4ead3130fdaa)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+[![](https://spark.adobe.com/page/r96mYcoqfzK28/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/r96mYcoqfzK28/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

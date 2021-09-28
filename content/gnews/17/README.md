@@ -2,41 +2,52 @@
 ---
 
 
-## 佛罗里达州长宣布对脸书涉嫌干预选举进行调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1560905/)
+## 新闻速递|法国卫生高级管理局 （HAS）建议同时接种流感疫苗和Covid-19疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1560996/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Julien Vattaire
+翻译：香草山商业部 – 文锤
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F-3.jpg)npr.org
-《新闻纵横》（news max）9月27日发表文章称，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）已指示州官员，对脸书（Facebook）涉嫌干扰选举进行调查，这是州长周一（9月27日）作出的宣布。 【1】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-文章说，州长的行动是在一份报告之后做出的，该报告称，脸书可能通过按照社交平台自身的规则删除和限制精英用户的手段，影响了该州和许多地方的选举。
 
-德桑蒂斯在办公室发布的一份声明中说：“大型科技公司的审查机构长期以来一直在不一致地执行自己的规则，这已经不是什么秘密了，如果这一新的报告属实，脸书涉嫌操控了本州和许多地方的选举，从而违反了佛罗里达州的法律。”
 
-州长指示州务卿劳雷尔·李（Laurel Lee）负责佛罗里达州的调查。“佛罗里达人应该知道这个企业巨头对我们的选举产生了多大的影响。” 他说，“这就是为什么我指示李部长使用一切法律手段来揭露违反佛罗里达选举法的行为。”
 
-“脸书秘密操纵选举的想法是对我们共和国基本原则的侮辱，我们人民有权选择我们的代表，不管硅谷是否同意。”
 
-《华尔街日报》9月13日报道称，其获得的内部文件显示，脸书对其用户采用了双重标准。《华尔街日报》称，部分用户可以自由地无视平台自身的社区标准而不会受到强制执行的威胁，其他用户则不行。
+周一，法国卫生高级管理局 (HAS) 估计，可以同时在一只手臂上接种Covid-19 疫苗而在另一只手臂上接种流感疫苗。
 
-德桑蒂斯的办公室表示，如果《华尔街日报》的报告是准确的，脸书已经创造了一个特权阶层的发言人，并授权他们“操纵选举而不受到惩罚”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1072-1.png)[图片来源](https://www.rtl.fr/actu/bien-etre/la-has-recommande-la-vaccination-simultanee-contre-la-grippe-et-le-covid-19-7900078196)
 
-“更令人不安的是，脸书‘白名单’上的这些精英用户据称是被这家科技巨头秘密挑选出来的。”发布会上称，“白名单的甄选过程、范围和施加影响，对公众是保密的，只有脸书知道，如果这是真的，这一过程可能会让现任当选政客在州和地方选举中战胜对手。”
+在接下来的几周内，一种双疫苗接种计划将向数百万法国人推荐。老年人以及患有基础疾病易受伤害的人群将被邀请接种第三剂针对 Covid-19 的疫苗，同时也会接种一剂流感疫苗。据高级卫生局周一估计，这些注射可以在同一天完成。
 
-（全文完）
+法国卫生高级管理局 (HAS)在一份新闻稿中保证，“同时实现针对流感和 Covid-19 的疫苗的接种”是“可能的，可以避免另一种疫苗注射出现任何延误”。“具体来说，两次注射可以在同一天进行”，但在身体的两个不同的地方，“每只手臂一个疫苗”，独立的公共当局具体说明了这种接种方法。
 
-德桑蒂斯州长就涉嫌干扰操控选举行为，开启了对科技巨头诉讼的先河。的确，象征美国国本的选举受到了严重的挑战，就像该州长所说的那样，“秘密操纵选举的想法是对我们共和国基本原则的侮辱”。岂止是侮辱？根本是一种颠覆国家的罪恶行径。本质上与邪恶的中共没有区别，通过不择手段的阴谋，号称得到了民意，获得了执政地位，继续通过欺骗走向独裁。如果不及时制止（其实已经很晚了，2020大选就是被操控的，令人悲哀的是，精英层有多少人意识到了？还有多少人意识到却在帮助掩盖），美国的明天就是中共国的今日。
+流感疫苗接种于 10 月 26 日开始
 
-亚利桑那州的“国家审计”也是在维护美国国本，看看几天来美国的反应，主流媒体歪曲事实的报道【2】，川普总统“声嘶力竭”的声明【3】，而国会山的立法者有几个在响应亚利桑州的“国家审计”？应验了文贵先生的话语，“不打疼你们，你们意识不到什么叫邪恶”，还在观望，还在疑惑？
+周一，卫生部长奥利维尔·韦兰（Olivier Véran）在坐落于里昂旁边的世卫组织全球培训中心说明了这一消息，这一建议是“好消息”。 “但我们仍然需要验证它”，他补充说到，他表示将在接下来的几天内说明这件事情。
 
-美国正在犯常识性错误，还好有一批爱国者在抗争、在奋斗，德桑蒂斯州长便是其中之一。正是有了这样的力量，才能让人看到美国的希望。
+这位部长还表示，到10 月底，药店将可以买到“1000 万剂” 流感疫苗。因此，流感疫苗接种活动将于 10 月 26 日开始。与此同时， 9月初在法国启动了所谓的[第三剂](https://www-rtl-fr.translate.goog/actu/debats-societe/vaccin-contre-le-coronavirus-quel-est-le-calendrier-pour-la-3e-dose-7900064422?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui)抗Covid-19疫苗接种加强运动 。它涉及 1800 万法国人，第三剂疫苗接种目的在于弥补几个月后疫苗有效性的下降。
 
-有关链接：
+**原文阅读：**
 
-【1】[https://www.newsmax.com/politics/gov-ron-desantis-florida-facebook-election/2021/09/27/id/1038123/](https://www.newsmax.com/politics/gov-ron-desantis-florida-facebook-election/2021/09/27/id/1038123/)
+[La HAS recommande la vaccination simultanée contre la grippe et le Covid-19 (rtl.fr)](https://www.rtl.fr/actu/bien-etre/la-has-recommande-la-vaccination-simultanee-contre-la-grippe-et-le-covid-19-7900078196)
 
-【2】[https://gnews.org/zh-hans/1553250/](https://gnews.org/zh-hans/1553250/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
-【3】[https://gnews.org/zh-hans/1555292/](https://gnews.org/zh-hans/1555292/)
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
