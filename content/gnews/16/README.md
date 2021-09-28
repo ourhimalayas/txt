@@ -2,32 +2,37 @@
 ---
 
 
-## &#8220;一切的问题不仅是习近平,而是共产主义!&#8221;
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560725/)
+## 秘翻在线:自然免疫力超越中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560739/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-424.png)
-9月26日, 零对冲发表了一篇专栏文章, 称有一种声音正在游说西方, 试图让人们相信, 只要推翻习近平,一切都会过去. 而事实上罪恶的根源是整个共产党, 是共产主义!
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/p-14.jpg)
+图:Unsplash
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-35.jpeg)
+据《零对冲》的报导，目前至少有一家密歇根州医疗保健领域的雇主Spectrum Health，决定接受”员工感染过中共病毒而产生自然免疫力”作为避免接种疫苗的理由。
 
-文章写道, 今天世界面临的一切问题,不只是习近平带来的, 而是自1949年以来一直存在。在共产主义中国，真相一直在被掩盖,  共产党 控制着一个没有法治、没有人权、没有保护工人权利的 国家 。一个令人震惊的例子就是达数十亿美元的人体器官交易 , 这一交易可以追溯到习近平上台前 。事实证明, 共产主义一直与文明格格不入, 我们不能希望共产主义政权表现的体面, 更不能相信他们的话，即使是最基本的事情。以这次中共在新冠疫情中的统计数据为例: 谁会相信2600 万人口的澳大利亚,死于病毒的人数竟然超过 14 亿人口的中国?
+**自然免疫力优于疫苗**
 
-文章的结论是, 每一个共产主义政权的敌人都是真理本身，是文明世界的价值观，而随着柏林墙的倒塌和欧洲其他共产主义独裁统治的瓦解，中共所作的一切, 目标就是如何避免类似的命运。这篇文章与我们爆料革命的诉求异曲同工, 面对这场全球性的病毒疫情危机,只有消灭共产党,彻底消除共产主义,才是解决问题的唯一方法!
+科学家与律师们正在努力寻求人体自然免疫所提供的抗体优于中共病毒疫苗的证据，他们企图证明自然豁免的合法性是否有可能在法庭上胜出？这个问题的答案取决于“科学”。
 
-（本文仅代表作者观点）
+根据雅虎财经的一份报告，自然免疫优越的观点已经在法律界获得支持。以色列的一份报告表明，在预防 delta 变体感染方面，自然免疫可能比辉瑞疫苗有效许多倍。
 
-参考链接: [The Problem Is Not Just Xi Jinping; It Is Communism](https://www.zerohedge.com/geopolitical/problem-not-just-xi-jinping-it-communism)
+**CDC 睁眼说瞎话**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+然而，CDC 却引用的另一项只有数十个的案例的同行评议研究，其中某些 COVID 检测呈阳性的人竟然最终从未产生抗体。从科学的观点而言，感染过COVID而没有抗体是让人匪夷所思的。
 
-终审：文龍
-校对/发稿：谐趣园
+CDC 还发表了一项针对 246 名肯塔基州居民的研究，得出的结论是，接种疫苗比以前感染过 COVID 提供了更高的保护。CDC 表示，该研究在提交之前经历了“严格的多级清除程序”，但现在有些人担心它有点过时，因为它的发表在 delta 病毒未出现之前。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+**感染过中共病毒的人，会产生天然抗体**
+
+就支持自然免疫的概念而言，克利夫兰诊所和华盛顿大学的研究极具意义。在 6 月份进行的 ACA 研究，追踪了 52,238 名克利夫兰诊所员工，发现在 1,359 名已经感染中共病毒并且也未接种疫苗的人中，没有任何人在超过五个月的追踪中感染中共病毒(COVID- 19 )。研究结果发现，”感染过中共病毒的人，可以自身产生抗体，不需要从中共病毒( COVID-19) 疫苗获取抗体”。
+
+**自然产生的中共病毒抗体有终生保护力**
+
+在华盛顿大学医学院进行并发表在《自然》杂志上的一项较小的研究中，资深作者、医学和分子微生物学副教授阿里·埃勒贝迪( Ali Ellebedy) 博士在 11 个月的 19 名研究对象中，在他们发生中共病毒 (COVID-19 )症状之后，抽取 15 名的骨髓，发现产生抗体的细胞。“这些细胞将在人们的馀生中存活并产生抗体，这是持久免疫力的有力证据，” 埃勒贝迪说。
+
+**真正的科学是说人话**
+
+法律和科学标准在真相面前是互相成全的，随着更多数据证实了自然免疫至少与接种免疫一样有效的论点。律师们更有可能成功说服法官，”任何免疫力都是被接受的，不需要只依赖中共病毒的免疫力。”
+
+消息来源:[Lawyers & Scientists Are Building A Case For Why Natural Immunity Should Be Treated Same As Vaccination](http://Lawyers%20&amp;%20Scientists%20Are%20Building%20A%20Case%20For%20Why%20Natural%20Immunity%20Should%20Be%20Treated%20Same%20As%20Vaccination)

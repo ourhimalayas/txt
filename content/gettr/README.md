@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 6:10 PM (UTC)`
+
+9月28号：火币，将停止中国境內用户，新用户不能注册，老用户退款！这是共产党不允许任何中国人的财富安全的地方，可以存放，只能有共产党的虚拟人民币的这一个选择这说明了共产党，你到了穷凶极恶山穷水尽的地步了。
+![img](https://media.gettr.com/group19/getter/2021/09/28/18/b19b281a-ad68-2483-3dfe-9e88f76baf54/66fc4811b44de63e0d0ccf40189740f7.jpg)
+
+---
+
 `@miles 9/28/2021 5:09 PM (UTC)`
 
 ❤️❤️❤️❤️❤️❤️❤️❤️
@@ -297,13 +304,6 @@ WOW
 
 9/25/2021 Miles Guo’s GETTR: Again, I’ve said Meng Wanzhou might be sent back to China and she did! My live broadcast starts tomorrow from 10 AM to 10:30 AM (EST), or 10:00 PM (CST) by sharing some of my comments and intel<br/><br/>9/25/2021文贵盖特：孟晚舟回国又被七哥说中了？明天早上10点到10点半(美东时间)、大陆时间明晚10点七哥大直播，和大家分享一下七哥的观点和情报<br/>
 ![img](https://media.gettr.com/group49/getter/2021/09/26/02/14/aaca5c9d-7b42-b3e8-97a9-88a6ff4a85f8/out.jpg)
-
----
-
-`@miles 9/25/2021 9:34 PM (UTC)`
-
-以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/<br/><br/>以色列COVID-19 疫苗受害者证词(一）
-![img](https://media.gettr.com/group45/getter/2021/09/25/21/34/a875f9fa-bd2b-f692-3971-c0cbba550614/out.jpg)
 
 ---
 
