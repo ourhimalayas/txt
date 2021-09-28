@@ -2,41 +2,91 @@
 ---
 
 
-## 媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560623/)
+## 9月26日北京的截访与27日河南信访局长李刚的被免
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1560701/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
-现役NBA球员凯里·欧文，因反对包括接种强制令在内的新冠限制政策，被媒体全面打压；刚刚过去的媒体日上，欧文再一次表示了不应当将接种和社会责任绑架起来误导大众，新冠疫苗导致很多人已经生病。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2_副本-2.png)
+据[新聞看點@MuYangLee\_XWKD](https://twitter.com/MuYangLee_XWKD)于[下午7:00 · 2021年9月27日](https://twitter.com/MuYangLee_XWKD/status/1442443908965830660)发布的推文——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-27.jpeg)
+2020年9月26日，河南開封政府便衣公然在北京永定橋下綁架單身女訪民。
 
-同队优秀控卫球员凯文·杜兰特在接受采访时表示支持欧文的决定，每个人都有自由选择的权力，也有隐私权；华盛顿奇才队的布拉德利·比尔（Bradley Beal）也强调了新冠疫苗的危害。
 
-欧文现效力于布鲁克林篮网，篮球赛场上多次打破得分记录，是《福布斯》2020年收入排名第24位的运动员。在去年1月份，传奇球星科比（Kobe Bryant）及家人飞机失事后欧文曾一度情绪崩溃，后立志延续“曼巴精神”延续恩师精神，不断努力向前迈进。
 
-作为球员工会副主席的欧文，对政府推出的新冠限制令和疫苗规定持反对态度，并表示这是一场邪恶阴谋。早在8月7日，NBA球员工会就联盟推行的百分之百接种率的问题会议中，欧文和部分成员不再沉默，对强制推行新冠疫苗接种表示了反对。
+> 2020年9月26日，河南開封政府便衣公然在北京永定橋下綁架單身女訪民。 [pic.twitter.com/i9St8UqJU1](https://t.co/i9St8UqJU1)
+> — 新聞看點 (@MuYangLee\_XWKD) [September 27, 2021](https://twitter.com/MuYangLee_XWKD/status/1442443908965830660?ref_src=twsrc%5Etfw)
 
-近期，美国说唱歌手米娜，和荷兰国宝级超模克罗斯都表态反对毒针疫苗，更发起直播和抗议，揭露疫苗严重不良副反应真相，以行动反击政府的集权行为；惊恐于难以压抑的明星效应，以及担忧名人大量跟随者的觉醒，媒体对欧文的打压态度非常明显，将其抹黑为“阴谋论者”，称其无视科学，兜售错误信息。
 
-世界知名体育联盟在不断调整计划的过程中，逐渐丧失了职业体育精神。在球队各自老板利益的要挟下，球员在联盟的包办管理下被剥夺了自由选择的权力。现在，随着欧文和其他NBA球员的挺身而出，一场体育界的觉醒风暴已被唤醒。
 
-（本文仅代表作者观点）
+视频概要——
 
-参考链接: [Kyrie Irving Declines to Say Whether He Will Play Nets Home Games as Vaccine Questions Swirl](https://www.rollingstone.com/culture/culture-news/brooklyn-nets-kyrie-irving-vaccination-kevin-durant-james-harden-1232827/)
-[Anti-vaxxers are getting way too much say in NBA Covid protocols](https://www.sbnation.com/nba/2021/9/27/22696676/nba-covid-protocol-anti-vaxx-kyrie-irving)
-[凯里·欧文](https://zh.wikipedia.org/wiki/凯里·欧文)
-[布拉德利·比尔](https://zh.wikipedia.org/wiki/布拉德利·比尔)
+截访人员：关！你再录！报警、报警，你现在报，拿过来！拿过来！妈个B的你干啥的！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+录视频者：你干嘛的？你干嘛的？你干嘛的？
 
-终审：暗黑
-校对/发稿：谐趣园
+截访人员：你录我干嘛的？你为啥要录我？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+录视频者：我不知道你干啥的。你干什么的？
+
+截访人员：你管呢？
+
+录视频者：我们不能管吗？我们公民，维权嘛，我们。
+
+截访人员：你管吧，你管吧！
+
+录视频者：公民能管吗？
+
+截访人员：你管吧，你管吧！
+
+录视频者：公民能管你吗？
+
+截访人员：你是公民你没有权利管我！
+
+旁观者：报警，报警。
+
+截访人员：现在报！现在报！
+
+录视频者：我给他拍着。
+
+旁观者：你好，在信访办这里有截访的，抓住一个女的，
+
+录视频者：在绑架，在绑架，在实施绑架，在绑架一名妇女。
+
+截访人员：我告诉你诬蔑，我跟你说！
+
+录视频者：永定桥下面，地下通道。大姐你哪里的？
+
+被截访者：我是河南开封的。
+
+录视频者：河南开封的？
+
+被截访者：我是河南开封市\*\*\*\*\*\*\*\*（听不清）
+
+截访人员二：干嘛呢？干嘛这是？（想要抢被拍摄者的手机）
+
+录视频者：干嘛呢？你干嘛的？你在绑架，你在实施绑架知道吗？
+
+截访人员：你赶快走，听见没有？
+
+录视频者：你在绑架，你在违法！我走不走不关你事啊！
+
+截访人员：你赶快关了！听见没有？
+
+录视频者：我就开着，怎么了？给他发群里。
+
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+
+接下来发生什么事情了呢？据[​河南省人民政府關于免去李剛職務的通知](http://www.henan.gov.cn/2021/09-27/2319664.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获.png)
+截访人员像拎小鸡一样绑架上访人员，并且肆无忌惮地威胁拍视频者，这一切就发生在天子脚下，那位被截访的女士接下来会遭遇什么，我们不知道，但是河南省免掉信访局长的职务与这段被截访视频传出来应该是有关系，因为李刚被免职的公文发布日期就在这段截访视频被录的2021年9月26日之后，当然从省政府发布的公文来看，这份公文早在2021年9月18日就成文了，或许这是另一种形式的欲盖弥彰？
+
+省政府的公文里是不会承认李刚的免职与这段截访视频的公开有关，因为即使走了李刚还会再有王刚、张刚做信访局长，都不会改变雇佣黑社会绑架访民的事实，因为在这个社会里，每个访民都是人民政府的敌人，人民政府不怕访民，人民政府雇佣的黑社会更是把访民当猪狗，真正能让这个独裁政权害怕的，恰恰就是媒体的力量。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

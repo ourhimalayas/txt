@@ -2,27 +2,37 @@
 ---
 
 
-## 问题不仅仅是习近平，而是共产主义！
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1560706/)
+## 秘翻在线:自然免疫力超越中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560739/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/p-14.jpg)
+图:Unsplash
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-15.png)
-文章仅代表作者本人观点，与Gnews无关
+据《零对冲》的报导，目前至少有一家密歇根州医疗保健领域的雇主Spectrum Health，决定接受”员工感染过中共病毒而产生自然免疫力”作为避免接种疫苗的理由。
 
-视频参看：2021.09.28早GTV新闻访谈
+**自然免疫力优于疫苗**
 
-[https://gtv.org/broadcast/watch/61530a5542a8af3151a6e82b](https://gtv.org/broadcast/watch/61530a5542a8af3151a6e82b)
+科学家与律师们正在努力寻求人体自然免疫所提供的抗体优于中共病毒疫苗的证据，他们企图证明自然豁免的合法性是否有可能在法庭上胜出？这个问题的答案取决于“科学”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+根据雅虎财经的一份报告，自然免疫优越的观点已经在法律界获得支持。以色列的一份报告表明，在预防 delta 变体感染方面，自然免疫可能比辉瑞疫苗有效许多倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+**CDC 睁眼说瞎话**
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+然而，CDC 却引用的另一项只有数十个的案例的同行评议研究，其中某些 COVID 检测呈阳性的人竟然最终从未产生抗体。从科学的观点而言，感染过COVID而没有抗体是让人匪夷所思的。
+
+CDC 还发表了一项针对 246 名肯塔基州居民的研究，得出的结论是，接种疫苗比以前感染过 COVID 提供了更高的保护。CDC 表示，该研究在提交之前经历了“严格的多级清除程序”，但现在有些人担心它有点过时，因为它的发表在 delta 病毒未出现之前。
+
+**感染过中共病毒的人，会产生天然抗体**
+
+就支持自然免疫的概念而言，克利夫兰诊所和华盛顿大学的研究极具意义。在 6 月份进行的 ACA 研究，追踪了 52,238 名克利夫兰诊所员工，发现在 1,359 名已经感染中共病毒并且也未接种疫苗的人中，没有任何人在超过五个月的追踪中感染中共病毒(COVID- 19 )。研究结果发现，”感染过中共病毒的人，可以自身产生抗体，不需要从中共病毒( COVID-19) 疫苗获取抗体”。
+
+**自然产生的中共病毒抗体有终生保护力**
+
+在华盛顿大学医学院进行并发表在《自然》杂志上的一项较小的研究中，资深作者、医学和分子微生物学副教授阿里·埃勒贝迪( Ali Ellebedy) 博士在 11 个月的 19 名研究对象中，在他们发生中共病毒 (COVID-19 )症状之后，抽取 15 名的骨髓，发现产生抗体的细胞。“这些细胞将在人们的馀生中存活并产生抗体，这是持久免疫力的有力证据，” 埃勒贝迪说。
+
+**真正的科学是说人话**
+
+法律和科学标准在真相面前是互相成全的，随着更多数据证实了自然免疫至少与接种免疫一样有效的论点。律师们更有可能成功说服法官，”任何免疫力都是被接受的，不需要只依赖中共病毒的免疫力。”
+
+消息来源:[Lawyers & Scientists Are Building A Case For Why Natural Immunity Should Be Treated Same As Vaccination](http://Lawyers%20&amp;%20Scientists%20Are%20Building%20A%20Case%20For%20Why%20Natural%20Immunity%20Should%20Be%20Treated%20Same%20As%20Vaccination)

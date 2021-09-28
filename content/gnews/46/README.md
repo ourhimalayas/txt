@@ -2,143 +2,62 @@
 ---
 
 
-## 中共病毒疫苗抑制了对控制癌症的受体（视频）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
+## WI警方：（未打疫苗）少年宣布战胜中共病毒可入狱
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1560065/)
 
-Now, very importantly
+- 编译：西班牙喜悦农场–wenwu
 
-现在，非常重要的是
 
-This goes to that question
+![](https://assets.gnews.org/wp-content/uploads/2021/09/001-6.jpg)
 
-这涉及到那个问题
+Amyiah Cohoon 刚于 2020 年 3 月从医院回家，一名警长周日就来了，他警告说你的女儿竟然在 Instagram 上发帖称，她“战胜了中共病毒（covid-19)”这种社交行为让她面临指控甚至入狱。据[法庭文件](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)称，当时是大流行初期，她所在威斯康星州的县尚未记录任何 covid-19 病例。“担忧的市民”已开始打电话给当地官员。
 
-All these anecdotes that we’re hearing from different oncologist around the country
+“如果[IS帖子]不删掉，WI警长已经指控了我发出扰乱秩序的传票，这传票有权力把人送进监狱，”根据《华盛顿邮报》获得的录像视频，威斯康星州马凯特县（Marquette County）的警长告诉 Cohoon 的父亲。”因为这对公众造成了干扰”。该IS帖子被撤下，但 Cohoon 的家人在下个月就这一威胁对警长办公室提起了联邦诉讼。
 
-我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
+一名联邦法官最近裁定，警长办公室侵犯了该学生的言论自由权，无论她是否真的患有 covid-19。据美国地方法官布雷特·路德维希 (Brett Ludwig) 称，这名青少年无法立即接受检测，医生建议最终的阴性检测可能来得太晚了。
 
-And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
+路德维希法官周五（24日）在威斯康星州东区的[法庭裁决中](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)表示，接受当局逮捕这名当时16岁的青少年的理由–警方声称，她通过社交媒体帖子散布焦虑和“恐慌”–将“削弱”第一修正案的保护。路德维希法官说，这些保护措施适用于“任何时期”。
 
-我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
+现年17岁的 Cohoon 在周日（26日）《华盛顿邮报》的简短采访中，对该案件的“爆发”感到惊叹。她质疑道：”我想做的是让人们知道我当时生病了（感染中共病毒），因为我身边有一群人。”
 
-he knows his community, he knows his patients
+她的母亲 Angela Cohoon 补充说：“我们不想看到其他人经历这种情况。”马凯特县警长办公室、警长和代表他们的律师周日没有回应置评请求。他们的律师塞缪尔·霍尔今年春天[告诉《纽约时报》](https://www.nytimes.com/2020/04/21/us/marquette-county-sheriff-instagram-lawsuit.html) ——在行车记录仪[镜头](https://wapo.st/3m0fCU7)作为法庭案件的一部分浮出水面之前——执法部门否认威胁要逮捕 Amyiah Cohoon。
 
-他了解他的社区，了解他的病人
+据法庭记录声称，Cohoon 和她的高中乐队一起去往 Walt Disney World and Universal Studios 后，就出现了呼吸困难、发烧和咳嗽的情况。她去了急诊室，被诊断为“急性上呼吸道感染”。法庭文件指出，医生说她的症状与 covid-19 相符，但她没有资格接受该病毒的测试（或许是医院禁止医生确诊青少年感染 covid-19 的情况，理由大概是知道不需要打疫苗，这种没有及时确诊的现象在美国全境都是普遍都）。
 
-And he said hey you know a lot of my patients are getting the shot, some aren’t
+Cohoon 是带着呼吸机出院，并被建议隔离两周后，她还在 Instagram 上发布了关于这次磨难的信息（如图）：
 
-他说，你知道，我的很多病人都打了疫苗针，有些没有打
+![](https://assets.gnews.org/wp-content/uploads/2021/09/002-6.jpg)
 
-But in those are and he listed the number of cancers he seen in a 6 week period of time
+“嘿，伙计们……对不起，我休息了很长时间。由于我 [现在] 感染了 COVID-19 病毒，我还有等一段时间才可以回来，”她写道。她说她不想引起关注——这只想告诉人们“这是事实”。
 
-但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
+路德维希法官写道，几天后，即 2020 年 3 月 25 日，Cohoon 回到医院并检测出[中共病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_27)呈阴性。但医生告诉她的家人，她应该继续隔离，而且 Cohoon 有可能感染了 covid-19，只是“错过了检测窗口”。当这位大二学生回到家时，她又发布了一张戴着氧气罩的照片，说她仍在接受”呼吸治疗”，但已经从中共病毒中恢复过来。
 
-that is never seen in a 40 years career
+路德维希法官在法庭文件中写道，该帖子引发了当地卫生部门以及 Westfield 学区的电话，卫生官员联系了警长办公室，并对她表示“希望说服2020年3月27日晚，卡梅伦·克鲁姆普警官出现在 Cohoons 家，要求撤下青少年声称的covid-19 说法；县卫生部门周日没有回应置评请求。
 
-这是在他40年的职业生涯中从未见过的
+Cohoons 家人提出抗议：根据视频片段，Cohoon 的父亲告诉这个警告，中共病毒测试挑战是众所周知的；“人们需要知道这[病毒]正在发生，当你不能警告他们时，当你又得到一个警长办公室威胁要把人们投入监狱时，这让人们出于危险中，”他埋怨道。
 
-And so he asked to what could be causing that?
+但 Cohoons 家人最终同意了删除此贴；同一天，韦斯特菲尔德学区管理员罗伯特·梅彻（Westfield School District Administrator Robert Meicher）似乎在[给其家人](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)的[一封信中](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)批评了 Cohoon 。
 
-于是他问，可能是什么原因造成的呢？
+“今天我注意到，外面有一个谣言，说我们的一个学生在两周前去佛罗里达的乐队旅行时，感染了Covid-19，”Meicher 写道。“我可以向你保证，这是你故意造谣的。这是一种愚蠢的吸引注意力的方式，你女儿的谣言已经得到妥善的解决。”
 
-So, I sent him that paper as a potential mechanism
+路德维希法官说，这就是 Cohoon 关于她发布“可能”感染 Covid-19 的帖子的结尾。
 
-所以我把那篇论文作为一个潜在的机理发给了他
+路德维希法官在上周对案件进行了权衡时候，他拒绝了警长的建议，即 Cohoon 的行为类似于“在拥挤的电影院里呼喊着火了”。该法官还说，有关当局上门仅是在进行说服而不是胁迫的论点是不成立的，因为这忽略了“一名身穿制服的警察出现在青少年家中，并命令她只允许发出“一种声音的言论。”这本身就具有令人不寒而栗的性质和胁迫性。
 
-As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
+代表 Cohoon 的威斯康星州法律和自由研究所的律师卢克·伯格(Luke Berg)对这一决定表示庆祝，并告诉《华盛顿邮报》，该案的事情原委“相当奇怪，但这是一个非常强烈的声明……警察不能对社交媒体进行监管。”
 
-因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
+**简评：**
 
-So I was talking to Harvey Risch, the world-renowned epidemiologist
+**从本篇报道的美国人物和统治系统上分析，其描述故事的真实可信度是很高。唯一可以确定的是，Instagram 对言论自由的控制在近几年的爆料革命中被暴露了。那么，我们不得不相信 Facebook 对儿童洗脑控制而进行“线上+线下”的操控，而感染了中共病毒的青少年不需要接种疫苗的事件，无疑对邪恶势力的计划造成了负面的影响。这让感到不可思议的是，面对此类事件的发生竟然具有如此的系统规划和应急措施。**
 
-因此，我与世界知名的流行病学家哈维·里希进行了交谈
+**这会不会跟中共国发起的世界互联网新一届大会的[开幕](https://gnews.org/zh-hans/1557472/)与“共同富裕”有关呢？值得讨论。**
 
-He said, well you know the post shot therapy is usually going to be 5-10 years
+（文章仅代表作者观点 与GNEWS无关）
 
-他说，你知道接种疫苗后治疗通常需要5-10年
+新闻来源：《[华盛顿邮报](https://www.washingtonpost.com/nation/2021/09/27/amyiah-cohoon-sheriff-lawsuit-covid/)》｜作者：汉娜·诺尔斯｜发布时间：2021年9月27日
 
-till we see the signals
+* * *
 
-直到我们看到信号
+*发稿：Nuevo唐人*
 
-I said yeah usually it would be
-
-我说是的，通常是这样的
-
-But when we have something that we never done before
-
-但是，当我们有一些我们以前从未做过的事情的时候
-
-that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
-
-突然抑制了一种对控制癌症负有高度责任的受体
-
-It would be very explicable as to why something that is quiescent
-
-这很容易解释为什么有些东西是静止的
-
-All of a sudden wakes up
-
-一下子就醒了
-
-So I mean all day long our cells are fighting off mutations in different cells
-
-所以我的意思是，我们的细胞整天在对抗不同细胞的突变
-
-They see the mutation to try to kill that cell
-
-他们看到突变，试图杀死那个细胞
-
-If this receptor is downregulated
-
-如果这个受体被抑制了
-
-then all those downstream are molecules inside that cell that’s fighting there can’t fight
-
-那么所有其后的分子在细胞内的战斗就无法进行
-
-Because those signals are now turned off the cytokines, the interferons
-
-因为这些信号现在关闭了细胞因子和干扰素
-
-the things that will attack that atypical cell
-
-这些东西会攻击非典型细胞
-
-So, we’re seeing the early signals of this
-
-所以，我们看到这样的早期信号
-
-And so that’s what’s concerning is we want to be able to under the microscope
-
-这就是我们想要在显微镜下观察的问题
-
-you know here’s a whole stack of tumors
-
-你知道这里有一大堆的肿瘤
-
-in the last couple of weeks where what am I doing is
-
-在过去的几周里，我在做什么呢？
-
-I’m looking at the ratios of helper T cells this CD8 killer T-cells
-
-我在观察辅助T细胞和CD8杀伤性T细胞的比例
-
-and then we’ll be staying these for always
-
-然后我们会继续这么做
-
-Because some of these patients again inexplicable cancers
-
-因为这些病人中有些人的癌症无法解释
-
-at really unusual ages
-
-真的是在不寻常的年龄
-
-That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
-
-与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
-
-听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
