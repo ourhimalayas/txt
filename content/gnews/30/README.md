@@ -2,33 +2,26 @@
 ---
 
 
-## 2021/09/27 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560568/)
+## 法官解除接种禁令 纽约市教职工处境艰难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560609/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-420.png)盖特链接：[https://gettr.com/post/pcdzhtec4f](https://gettr.com/post/pcdzhtec4f)
-9月27号：尊敬的战友们好……七哥建议所有的战友们要认真思考，未来一两年的生活和生存的方式，严肃认真的对待社会结构及政治各方面改变带来的冲击，特别是要对疫苗灾难的脑梗，心梗等各种不可预料的交通灾难事件的发生必要的防护！
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-421.png)
+针对纽约市强制要求教职人员接种新冠疫苗的规定，继第二巡回上诉法院的法官于上周五批准临时禁令后，周一，由三名法官组成的快速审查小组宣布解除了这项禁令。
 
-远在南美的几个好朋友和七哥通话，他们对疫苗后的脑梗、心梗、心肌炎、心包炎等的情况进行医院的了解后，情况非常吓人，每个人都要高度重视以后航空、交通、船舶这个问题。科研机构、医疗、交通，政府已经感受到了这将是以后最大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-49.jpeg)
 
-住在康州的老朋友通电话，他觉得出门没有安全感，他保镖司机都已打了疫苗，七哥告之现在唯一的办法就是：1，吃解药；2，改变生活方式，避免乘坐航空交通工具出行；这是通过各方官方和咱们各行业战友给出的信息。
+按照纽约市政府的规定，从本周二开始，拒绝接种疫苗的教职人员，要么选择无薪休假一年，要么离职。但鉴于审查小组刚刚做出的决定，目前尚不清楚市政府是否会立即执行。据悉，原告律师已经向最高法院申请司法干预。
 
-用青蒿剂做出合成剂，科学家說，这是绝对不对的，青蒿素的绝招就是合成，自己提炼的都是没有用的。战友们要吃标准的青蒿素治病的药品，青蒿素钙片等附属用品，可做防范用，但他不治病。现在伊维菌素，地塞米松在国内都可以买到，战友们要尽一切办法智慧的买到这些药。很快全世界对伊维菌素，地塞米松，青蒿素都会开放，都可以买到。
+法官的这一决定，不仅使学校和学生失去了职员和老师，还因此切断了很多家庭的收入来源，致使他们无法支付房租、水电和其他生活必需品。而在世界经济危机到来之际，这一决定将会对社会造成无法挽回的伤害。
 
-阻止全世界强制打疫苗要开始了，但是没有打疫苗的要避免没必要的交通和闲逛，防范疫苗的各种梗和病毒，还有共产党可能释放新病毒。在这种情况下，大家要充分预料一两年的艰难生活，少动以稳为主。
+（本文仅代表作者观点）
 
-现在欧洲，日本，台湾德国等全世界都在变革当中，每个变革都影响人类未来，要有常识，耐心，包括灭共，要客观综合的看，中共经济的脆弱性。恒大，平安，陆金所，民生，招生银行，上海银行，兴业银行都会倒闭。世界经济肯定不会这样下去，这种情况下你没有准备好，一定会成为砸倒在崩溃的垃圾堆下的那个人。
+参考链接: [Update: Federal Judges Say NYC Can Impose Vaccine Mandate on School Employees – Lawyers Representing Teachers to Petition US Supreme Court](Federal%20Judges%20Say%20NYC%20Can%20Impose%20Vaccine%20Mandate%20on%20School%20Employees%20–%20Lawyers%20Representing%20Teachers%20to%20Petition%20US%20Supreme%20Court)
+[Federal judges: NYC can impose vaccine mandate on teachers](https://www.cnbc.com/2021/09/27/federal-judges-nyc-can-impose-vaccine-mandate-on-teachers.html)
+[Judge’s ruling creates cliffhanger for NYC teacher vaccine mandate](https://nypost.com/2021/09/25/nyc-teacher-vaccine-mandate-paused/)
 
-全世界经济现在生产力和供给之间出现了矛盾，人们生活方式的改变，对某些产品的特殊需求，已经改变社会的供需结构，人们对金融的需要，也到了完全矛盾化，现在赚一百要花一千块钱，过去的房贷车贷和能赚回来的钱，完全不成正比了，全靠政府的印钞票，是坚持不下去的。所有认真思考最起码俩三年的生活方式，和整个世界的政治社会大变革及社会行为生活方式的改变，你自己该如何应对。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-听写：文评 / PR: 乐禧禧
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+终审：暗黑
+校对/发稿：谐趣园
