@@ -2,37 +2,143 @@
 ---
 
 
-## 从最高视角看懂孟晚舟获释，华为和她本人的灾难刚刚开始
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1559364/)
+## 中共病毒疫苗抑制了对控制癌症的受体（视频）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
 
-**作者：新西兰伊甸农场 亚伦**
+Now, very importantly
 
+现在，非常重要的是
 
+This goes to that question
 
-**9月26日，文贵先生在GTV大直播中透露，华为的背后有两个“官方的爹”：一个是总参二部，就是解放军的情报部；一个就是习皇帝的姐夫老吴（习近平的姐夫是华为股东）。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/b128-84c62b02f53041f1078482bf28b2e8b4.png)
+这涉及到那个问题
 
+All these anecdotes that we’re hearing from different oncologist around the country
 
-**华为是中共亲手打造的一个靠科技蓝金黄对付西方，利用通信系统特别是****5G****技术欲征服世界的平台。领头人任正非是当年给军队的领导搞农场、搞游泳池的。如果让华为的任何人，把华为的本质告诉了美国和西方****社会****，所有过去这些年埋在西方的偷取技术和蓝金黄网络将会全部暴露。**
+我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
 
-**当然，包括美国的华尔街、甚至五角大楼里出卖美国国家利益的卖美贼，也将全部暴露。所以美国的卖国贼为了摆脱罪责也不希望孟引渡至美国受审。除了美国之外，也包括英国、德国、法国等被华为蓝金黄的官方人士，都在极力阻止孟晚舟引渡到美国。即便到现在，英国华为仍然有****2****万****6****千个华为的信号基站，现在一个都没拆。**
+And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
 
-**总结孟晚舟可以在认罪下延迟起诉而脱身，主要有三个方面的原因：**
+我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
 
-**一、这是与中共勾兑的这些西方国家“沼泽地”力量、情报机关最想要的结果，可以免于追查；**
+he knows his community, he knows his patients
 
-**二、华为第二个“亲爹”是习的亲姐夫老吴，华为股份的持有者。华为与****ZTE****中兴，这都是皇帝习家的私产。习可以用国家的名义和国家的外交力量，让孟晚舟回去；**
+他了解他的社区，了解他的病人
 
-**三、也是最重要的，只有孟晚舟知道“钱路”。孟晚舟代持了任正非在海外至少隐藏的****3000****亿美元资产，因为资产是通过信托产品，必须要代持人本人出面签字，否则其他人是拿不走的。所以孟一定是要回去的，不然这****3000****亿美元就没了。**
+And he said hey you know a lot of my patients are getting the shot, some aren’t
 
-**但是孟晚舟认罪无判的回归，也引发了重大的影响。**
+他说，你知道，我的很多病人都打了疫苗针，有些没有打
 
-**首先对于孟本身，是她个人悲剧的开始，她要么意外死掉，要么被控制着活一辈子。当一个人被贴了标签，被高高挂起在高位，那她一辈子都将是一个牺牲品，会死的会比王健惨一万倍。**
+But in those are and he listed the number of cancers he seen in a 6 week period of time
 
-**对国内政治斗争的影响，习通过孟晚舟事件告诫党内。只要跟习的，吃香的喝辣的，即使犯罪都能无罪接回来继续做民族大英雄，接受无脑小粉红和拿佣金举国旗的人顶礼膜拜。跟随王岐山的人，就是王健，陈峰的下场。跟随多家常委骑墙派的，就是许家印的下场。**
+但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
 
-**最后文贵先生还告诉大家两点：孟晚舟回国会比去美国还惨，她结局会非常惨，被高高挂起不会超过****2025****年；华为的灾难，一切糟糕的事情，从孟晚舟回国开始。**
+that is never seen in a 40 years career
 
-**孟这穿着红裙一回国，彻底激怒了当时制裁华为的力量，美国的科技领域极右派，背后的****AT&T****、硅谷等公司。也包括金融领域的极右派，一定要灭掉华为自己才能赚钱的，再就是要废掉华为保美国根本的鹰派军方。华为成了中共和西方科技较量的第一杆枪，结局一定是被美国消灭。**
+这是在他40年的职业生涯中从未见过的
 
-**这也正和芯片联系在一起了，华为现在的主攻方向就是芯片，任正非在低调地研发芯片。芯片的较量，使华为会成为中国和西方世界敌对的核心，所以也将成为不管输赢的牺牲品。**
+And so he asked to what could be causing that?
+
+于是他问，可能是什么原因造成的呢？
+
+So, I sent him that paper as a potential mechanism
+
+所以我把那篇论文作为一个潜在的机理发给了他
+
+As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
+
+因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
+
+So I was talking to Harvey Risch, the world-renowned epidemiologist
+
+因此，我与世界知名的流行病学家哈维·里希进行了交谈
+
+He said, well you know the post shot therapy is usually going to be 5-10 years
+
+他说，你知道接种疫苗后治疗通常需要5-10年
+
+till we see the signals
+
+直到我们看到信号
+
+I said yeah usually it would be
+
+我说是的，通常是这样的
+
+But when we have something that we never done before
+
+但是，当我们有一些我们以前从未做过的事情的时候
+
+that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
+
+突然抑制了一种对控制癌症负有高度责任的受体
+
+It would be very explicable as to why something that is quiescent
+
+这很容易解释为什么有些东西是静止的
+
+All of a sudden wakes up
+
+一下子就醒了
+
+So I mean all day long our cells are fighting off mutations in different cells
+
+所以我的意思是，我们的细胞整天在对抗不同细胞的突变
+
+They see the mutation to try to kill that cell
+
+他们看到突变，试图杀死那个细胞
+
+If this receptor is downregulated
+
+如果这个受体被抑制了
+
+then all those downstream are molecules inside that cell that’s fighting there can’t fight
+
+那么所有其后的分子在细胞内的战斗就无法进行
+
+Because those signals are now turned off the cytokines, the interferons
+
+因为这些信号现在关闭了细胞因子和干扰素
+
+the things that will attack that atypical cell
+
+这些东西会攻击非典型细胞
+
+So, we’re seeing the early signals of this
+
+所以，我们看到这样的早期信号
+
+And so that’s what’s concerning is we want to be able to under the microscope
+
+这就是我们想要在显微镜下观察的问题
+
+you know here’s a whole stack of tumors
+
+你知道这里有一大堆的肿瘤
+
+in the last couple of weeks where what am I doing is
+
+在过去的几周里，我在做什么呢？
+
+I’m looking at the ratios of helper T cells this CD8 killer T-cells
+
+我在观察辅助T细胞和CD8杀伤性T细胞的比例
+
+and then we’ll be staying these for always
+
+然后我们会继续这么做
+
+Because some of these patients again inexplicable cancers
+
+因为这些病人中有些人的癌症无法解释
+
+at really unusual ages
+
+真的是在不寻常的年龄
+
+That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
+
+与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
+
+听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说

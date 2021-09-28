@@ -2,41 +2,61 @@
 ---
 
 
-## 媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560623/)
+## 沙拉疫苗？在转基因生菜中植入mRNA 新冠疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1560707/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
-现役NBA球员凯里·欧文，因反对包括接种强制令在内的新冠限制政策，被媒体全面打压；刚刚过去的媒体日上，欧文再一次表示了不应当将接种和社会责任绑架起来误导大众，新冠疫苗导致很多人已经生病。
+**简评：
+***如果说改良疫苗用植物载体，做成的沙拉可以使不打疫苗的人转向接受疫苗注射，这个想法是很天真很梦幻的。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-27.jpeg)
+*随风飘扬不愿思考的的绝大多数人大已经打了疫苗。在这个时刻还坚持不打疫苗而反对疫苗注射的，却大部分是清醒的人， 也许这少数人并不是从事医学或者科学研究， 但是仅凭常识，认为疫苗不但没有效果，还有副作用伤害人体将抗， 甚至导致长远的慢性疾病或者死亡。*
 
-同队优秀控卫球员凯文·杜兰特在接受采访时表示支持欧文的决定，每个人都有自由选择的权力，也有隐私权；华盛顿奇才队的布拉德利·比尔（Bradley Beal）也强调了新冠疫苗的危害。
+*所以，疫苗做成生菜的样式，或者胡萝卜那么可爱，甚至如巧克力一样无法抗拒，这部分人依然不会选择“吃了这盘沙拉把。”*
 
-欧文现效力于布鲁克林篮网，篮球赛场上多次打破得分记录，是《福布斯》2020年收入排名第24位的运动员。在去年1月份，传奇球星科比（Kobe Bryant）及家人飞机失事后欧文曾一度情绪崩溃，后立志延续“曼巴精神”延续恩师精神，不断努力向前迈进。
+据《布雷特巴特》埃迪·贝特曼博士，2021年9月26日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2322.png)
+如果人们继续拒绝武汉冠状病毒（Covid-19）“疫苗”针剂，那么大药厂就会开始在我们的食物中植入疫苗。
 
-作为球员工会副主席的欧文，对政府推出的新冠限制令和疫苗规定持反对态度，并表示这是一场邪恶阴谋。早在8月7日，NBA球员工会就联盟推行的百分之百接种率的问题会议中，欧文和部分成员不再沉默，对强制推行新冠疫苗接种表示了反对。
+瘟疫的下一个潜在阶段涉及基因改造（GMO）生菜，使其在叶子中生长自己的mRNA化学品。这样一来，只要一个人吃了沙拉，他或她就会在不知不觉中接种了“疫苗”。
 
-近期，美国说唱歌手米娜，和荷兰国宝级超模克罗斯都表态反对毒针疫苗，更发起直播和抗议，揭露疫苗严重不良副反应真相，以行动反击政府的集权行为；惊恐于难以压抑的明星效应，以及担忧名人大量跟随者的觉醒，媒体对欧文的打压态度非常明显，将其抹黑为“阴谋论者”，称其无视科学，兜售错误信息。
+加州大学河滨分校植物学和植物科学系的Juan Pablo Giraldo教授宣布：“在理想情况下，一株植物将产生足够的mRNA来为一个人接种疫苗。”
 
-世界知名体育联盟在不断调整计划的过程中，逐渐丧失了职业体育精神。在球队各自老板利益的要挟下，球员在联盟的包办管理下被剥夺了自由选择的权力。现在，随着欧文和其他NBA球员的挺身而出，一场体育界的觉醒风暴已被唤醒。
+利用美国国家科学基金会（NSF）提供的50万美元资助。该项目涉及将mRNA基因修饰拼接到生菜叶中，食用后这些化学物质会被输送到人体细胞，就像接受疫苗针剂注射一样。
 
-（本文仅代表作者观点）
+“我们正在用菠菜和生菜测试这种方法，长期目标是人们在自己的花园里进行种植，”Giraldo补充说，这项研究正在与其他几所研究大学合作进行。“农民们最终也可以种植整个田地。”
 
-参考链接: [Kyrie Irving Declines to Say Whether He Will Play Nets Home Games as Vaccine Questions Swirl](https://www.rollingstone.com/culture/culture-news/brooklyn-nets-kyrie-irving-vaccination-kevin-durant-james-harden-1232827/)
-[Anti-vaxxers are getting way too much say in NBA Covid protocols](https://www.sbnation.com/nba/2021/9/27/22696676/nba-covid-protocol-anti-vaxx-kyrie-irving)
-[凯里·欧文](https://zh.wikipedia.org/wiki/凯里·欧文)
-[布拉德利·比尔](https://zh.wikipedia.org/wiki/布拉德利·比尔)
+将新冠疫苗伪装成 “食物”，是否真的能说服更多的人遵守？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+如果计划获得成功，那么很快各地的人们就会在自己的后院或温室里种植自己的新冠疫苗。在杂货店出售的生菜也可能成为一种 “药物”，尽管它不太可能被贴上这样的标签。
 
-终审：暗黑
-校对/发稿：谐趣园
+Mac Slavo解释说：“如果这可行的话，这可能意味着植物可以产生与传统疫苗注射一样多的mRNA。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+“真正的问题是这些植物是否会被标记为‘转基因’，因为如果它们含有mRNA，显然会被标记为‘转基因’，正如我们所解释的，mRNA只是单链DNA和遗传物质。我们甚至会被告知我们正在服用我们不想要的‘疫苗’吗？”
+
+问题是，每个想注射新冠疫苗的人已经注射了。其他人只是说不，然而疯狂的科学家想通过他们吃的食物来欺骗 “未接种疫苗的人”，让他们接种疫苗。
+
+通过将疫苗转化为看似 “食物”的东西，其目的显然是为了使接种疫苗对那些 “犹豫不决”的人更有吸引力。这可能会奏效，但可能不会，因为那些拒绝接种疫苗的人往往都是比较聪明的人。
+
+将新冠疫苗伪装成沙拉可能对脑残粉起作用，但对那些已经做了功课并认为这会永久修改其基因组的人来说，不太可能会起作用。
+
+“这是精神病，”Slavo在谈话中补充道。
+
+“给统治阶级的新消息：你宝贵的一针已经打了6个多月了。想要它的旅鼠们已经得到了它。你越是用力，就会越快地唤醒沉睡的群众。而且更糟糕的是，他们现在承认需要使用‘纳米技术’了。”
+
+如果注射疫苗还不够糟糕，生菜疫苗的目的是欺骗更多的人成为转基因生化人。这就像科幻电影中的情节，只不过它现在正在现实生活中发生。
+
+加州大学圣地亚哥分校的纳米工程专家Nicole Steinmetz教授说： “我们的想法是重新利用自然发生的纳米颗粒，即植物病毒，将基因传递给植物。”
+
+“一些工程涉及这个领域，使纳米粒子进入叶绿体，并使它们对植物没有感染性。”
+
+原文链接：[https://dreddymd.com/2021/09/26/scientists-grow-mrna-covid-vaccines-in-genetically-modified-lettuce/](https://dreddymd.com/2021/09/26/scientists-grow-mrna-covid-vaccines-in-genetically-modified-lettuce/)
+
+**文章点评仅代表个人观点**
+
+翻译：洛杉矶盘古农场 – KY
+校对：洛杉矶盘古农场 – 心照
+评论：洛杉矶盘古农场 – 蓝精灵
+编辑：洛杉矶盘古农场 – 蓝精灵
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

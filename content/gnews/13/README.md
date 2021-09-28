@@ -2,26 +2,33 @@
 ---
 
 
-## 香港开审涉国家安全法第二案 马俊文庭上不承认犯罪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560562/)
+## 部分英国中学遇网络侵入 系统向家长发出知情同意书
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560687/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/53C383FA-E436-4115-B1F4-29DBFA31AAF0_w1023_r1_s-1.jpg)网络图片
+栏目记者/责任编辑：安吉拉
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-423.png)
+刚刚过去的周末，数家英国中学邮件系统遭受网络侵入，向系统中的家长邮件列表地址发送新冠疫苗接种知情同意书。
 
-**编辑摘要：**9月28日，据法广引述法新社报道，香港今天开庭审理一名当地居民参加2020年抗议示威案，31岁的马俊文Ma Chun-man被指控在去年8月至11月的20次抗议活动中，通过呼喊口号和展示标语牌，以及接受记者问话，试图将香港与中国分裂违反国安法。马俊文出庭以不承认犯罪做辩护。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-26.jpeg)
 
-据香港检察官指控说，马俊文曾高呼 “光复香港，时代革命”、”香港独立，唯一出路”、”香港人，让我们建立自己的国家”、”一个国家，一个香港 “以及 “众志成城，武装起义”。
+这份两页的pdf文件详细列出来新冠病毒和疫苗的多项事实，包括疫苗属于紧急授权缺乏临床数据、将诱导人体产生刺突蛋白、无法保护接种人不受病毒感染、超高严重不良反应比率及导致不孕不育的长期影响。文件同时强调了，年轻人群因接种新冠疫苗的死亡概率远远大于病毒本身的危害。所有的新冠疫苗都是实验性的，其制造商可免于承担民事责任。
 
-法新社说，这是香港根据北京严厉的国家安全法遏制异议的第二次审判，在马俊文的案件中，被指控的罪行并不涉及暴力，而是围绕着语言表达，香港未来将要开庭的多项涉及国安法的庭案也均是言论指控。
+文件第二页是针对第一页注意事项的官方解释，包含CDC、英国政府，及公共健康部门官网地址；家长可以直接扫描二维码或点击链接阅读官方资料。
 
-新闻参考链接：[香港开审涉国家安全法第二案 马俊文庭上不承认犯罪](https://amp.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210928-%E9%A6%99%E6%B8%AF%E5%BC%80%E5%AE%A1%E6%B6%89%E5%9B%BD%E5%AE%B6%E5%AE%89%E5%85%A8%E6%B3%95%E7%AC%AC%E4%BA%8C%E6%A1%88-%E9%A9%AC%E4%BF%8A%E6%96%87%E5%BA%AD%E4%B8%8A%E4%B8%8D%E6%89%BF%E8%AE%A4%E7%8A%AF%E7%BD%AA#click=https://t.co/2qe40wJurZ)
+学校发现此事后，急忙补发邮件让家长们“忽略”该知情同意书，但家长们表示，文件陈述的内容让人感到十分担心，更为震惊的是，从官方文件看到政府和医疗机构早已知情却依旧推行接种计划。很多家长直接回复学校，表示坚决不同意孩子接种新冠疫苗。
 
-* * *
+知情同意权的形成最早源于根据纽伦堡审判和人体实验伦理规则， “知情同意，免予强制、合理设计及有利于试验参与者”为《纽伦堡准则》的基本原则。新冠疫苗的推行已经完全违反了该准则，并打破医学伦理的最基本要求。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+（本文仅代表作者观点）
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
+校对/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
