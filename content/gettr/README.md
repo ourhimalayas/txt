@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 11:08 PM (UTC)`
+
+9.28:【七哥好，英国跟您今天盖特说的完全一样】
+![img](https://media.gettr.com/group41/getter/2021/09/28/23/08/b8e369ea-a15b-0400-0f2d-ee3e258481e8/b52bc7caed155a7cab1b5c0c79197645.jpg)
+
+---
+
+`@miles 9/28/2021 11:00 PM (UTC)`
+
+9/28/2012 Miles Guo’s GETTR: The CCP’s economy is bound to collapse regardless who will take power after the 20th Party Congress; Once the real estate industry goes bankrupt, its relevant industries and financial sector will also be over, and the CCP won’t purchase iron ore from Australia anymore; The greedy Western capitalists only wants to profit from the Huawei incident; We must hold accountable and punish the Suharto family for their crimes against the ethnic Chinese according to the law, and we must avenge!<br/><br/>9/28/2021 文贵盖特：20大后不论谁上台，中共经济都必将崩溃；房地产一旦破产，其相关产业和金融都要完蛋，中共不再会买澳洲的铁矿了；贪婪的西方资本家一心想利用华为事件牟利；必须依法追究并严惩苏哈托家族针对华人所犯下的罪行，此仇必报！
+![img](https://media.gettr.com/group44/getter/2021/09/28/22/a074ae34-9706-13c6-a233-4cfe34bbcd1a/out.jpg)
+
+---
+
 `@miles 9/28/2021 10:29 PM (UTC)`
 
 9/28/2021 Miles Guo’s GETTR: Who will be arrested first? Zeng Qinghong, Wang Qishan, or Meng Jianzhu? The price of commodities, labor, electricity, food, healthcare, and medicine will skyrocket in the future, while non-essential goods like cars will be worthless. The beginning of the COVID vaccine disaster will be the time when you fear the most.<br/><br/>9/28/2021 文贵盖特：曾庆红、王岐山、孟建柱，谁会最先被抓？劳动力、大宗商品、电、粮、医、药的价格在未来都会暴涨，而汽车等非生活必需品将一文不值。疫苗灾难的开始才是让你最恐惧的时候！<br/>
@@ -289,20 +303,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 This clip clearly displays Mr. Miles Guo’s repeated early warnings about the Covid Vaccines for the CCP Virus. This vaccine product is the result of collusion between the international "Dark Forces" and the CCP. The Covid Vaccines would cause serious adverse effects and a secondary disaster in the COVID-19 pandemic. Too many people are suffering from the Covid Vaccines and lots of people have even lost their lives.<br/>A series of events have fully validated Miles Guo's warnings. History is the best proof of present and future! Rejecting toxic vaccine is saving humanity. Spread the truth and never give up!
 ![img](https://media.gettr.com/group19/getter/2021/09/26/18/02/4dd57d16-5b15-1094-4b6e-c059522bd205/out.jpg)
-
----
-
-`@miles 9/26/2021 5:40 PM (UTC)`
-
-The end result of Huawei Meng Wanzhou case is no different from Mr Miles Guo’s prediction in 2018<br/><br/>华为孟晚舟案的结局与郭文贵先生2018年预测的分毫不差
-![img](https://media.gettr.com/group42/getter/2021/09/26/17/40/f35f7fb4-2005-2bcf-5c45-db997ea9c51c/out.jpg)
-
----
-
-`@miles 9/26/2021 3:05 AM (UTC)`
-
-9/25/2021 Miles Guo’s GETTR: The real darkness is yet to come! In response to the question of the fellow fighters, my opinion is that it is better to stay in the countryside. The farther away from the crowd, the modern consumption and supply chain environment, the better!<br/><br/>9/25/2021 文贵盖特: 真正黑暗的时刻还没有到来！对于战友的提问，文贵先生的意见是待在远离人群，现代化消费和供应链环境的农村更好！<br/>
-![img](https://media.gettr.com/group47/getter/2021/09/26/03/05/656eae01-b137-b27c-da57-6dfa5b643ccc/out.jpg)
 
 ---
 
