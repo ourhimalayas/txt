@@ -2,37 +2,143 @@
 ---
 
 
-## 英国就香港引渡条约风险向本国公民发出警告
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559852/)
+## 中共病毒疫苗抑制了对控制癌症的受体（视频）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-91.png)
-资料图片：英国公民布劳德在美国参议院作证（图片来自网络）
+Now, very importantly
 
-中共于2020年6月在香港强行推出《国安法》，目的是为压制政治反对意见，镇压香港的反政府抗议运动。自这部法律实施以来，已有140多人因此被捕，包括议员、民主活动人士、记者和媒体负责人等。这部恶法不仅限制了香港人的基本民主自由权利，其“长臂权”还伸向了全世界——该法不仅仅适用于香港居民，而是适用于世界上任何地区的任何人。
+现在，非常重要的是
 
-据《美国之音》9月28日报道，英国政府近日就几名英国公民可能面临逮捕，并被引渡到香港的风险发出警告。与此同时，越来越多的人对中共在香港实施《国安法》所触及的范围表示了担忧。
+This goes to that question
 
-香港反对派活动人士李宇轩（Andy Li）就是被在《国安法》之下被抓捕的人士之一。据报，他是因游说外国政府制裁香港和中共，被控勾结外国的罪名。
+这涉及到那个问题
 
-李宇轩案件的法庭文件中提到了几名英国公民。英国政府本月早些时候联系到他们并警告说，如果他们前往与香港有引渡条约的任何一个国家，就可能被捕，并被引渡到香港。
+All these anecdotes that we’re hearing from different oncologist around the country
 
-出生于美国的英国公民布劳德（Bill Browder）是英国外交部联系到的至少5人中的一人。他之前曾成功争取到几个国家对侵犯人权者实施《马格尼茨基法案》的制裁。
+我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
 
-布劳德周一在接受《美国之音》采访时表示，英国官员警告他，可能是因为他与不同的人讨论了对涉及压制民主的香港官员实施“马格尼茨基制裁”，而他可能会因此遭受到中共国政府的某种迫害。他称，英国外交部官员提醒他说，文件中有他的名字，并指出中共国的《国安法》不仅仅适用于香港居民，而是适用于世界上任何地区的任何人。
+And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
 
-布劳德此前还曾遭到过俄罗斯几次试图通过国际刑警组织逮捕他，并将他引渡。布劳德表示，这些指控显然是出于政治动机。然而，他依然因此面临旅行限制，只能将他的旅行控制在“法治”国家以内。
+我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
 
-目前，全世界有十几个国家与香港有引渡条约，包括印度、南非和葡萄牙等。还有几个国家在香港实施《国安法》之后，废除了与香港的引渡条约，这些国家包括英国、美国、澳大利亚、德国和法国。
+he knows his community, he knows his patients
 
-英国亲民主活动人士裴伦德（Luke de Pulford）上星期也被英国外交部联系，他的名字同样出现在李宇轩的法庭起诉文件中。裴伦德对《美国之音》表示，英国应该对北京（中共）强硬。他说，“这的确是悲哀的起诉，体现英国在中（共）国面前的退缩。我们现在面临的局面是，英国未能兑现对港人的承诺，而现在又说他们不能前往第三国，因为可能会被捕，而他们可能被引渡到中（共）国。”
+他了解他的社区，了解他的病人
 
-中共在1984年与英国签署的《中英联合声明》中，曾保证依据《基本法》维持香港自治和“一国两制”的原则。然而，中共事实上早已撕毁了这一协议，并且还声称《中英联合声明》是“过时”的历史文件。
+And he said hey you know a lot of my patients are getting the shot, some aren’t
 
-英国政府在一份声明中对《美国之音》表示，英国在香港问题上不会假装没看见，不会躲避对港人的历史责任。作为联合声明共同签字方，英国将继续支持香港人民，指出违背他们自由的行为，并让中（共）国履行国际义务。
+他说，你知道，我的很多病人都打了疫苗针，有些没有打
 
-英国政府的声明虽写得义正言辞，但是实际行动呢？作为《中英联合声明》的共同签署方，对于公然撕毁声明，任意践踏香港民主、自由和法治的中共流氓政权，英国政府难道仅仅只是发出几声谴责；仅仅只是接收一些持英国护照的香港难民；仅仅只是向受《国安法》威胁的本国公民发出警告吗？显然，英国做得远远不够。曾经的大英帝国，如今沦落到屈从于中共的淫威之下，拿不出更强硬的态度和行动，令人唏嘘。
+But in those are and he listed the number of cancers he seen in a 6 week period of time
 
-注：本文仅代表作者观点
+但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
 
-**新闻链接**：[https://twitter.com/VOAChinese/status/1442628760038109185](https://twitter.com/VOAChinese/status/1442628760038109185)
+that is never seen in a 40 years career
+
+这是在他40年的职业生涯中从未见过的
+
+And so he asked to what could be causing that?
+
+于是他问，可能是什么原因造成的呢？
+
+So, I sent him that paper as a potential mechanism
+
+所以我把那篇论文作为一个潜在的机理发给了他
+
+As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
+
+因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
+
+So I was talking to Harvey Risch, the world-renowned epidemiologist
+
+因此，我与世界知名的流行病学家哈维·里希进行了交谈
+
+He said, well you know the post shot therapy is usually going to be 5-10 years
+
+他说，你知道接种疫苗后治疗通常需要5-10年
+
+till we see the signals
+
+直到我们看到信号
+
+I said yeah usually it would be
+
+我说是的，通常是这样的
+
+But when we have something that we never done before
+
+但是，当我们有一些我们以前从未做过的事情的时候
+
+that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
+
+突然抑制了一种对控制癌症负有高度责任的受体
+
+It would be very explicable as to why something that is quiescent
+
+这很容易解释为什么有些东西是静止的
+
+All of a sudden wakes up
+
+一下子就醒了
+
+So I mean all day long our cells are fighting off mutations in different cells
+
+所以我的意思是，我们的细胞整天在对抗不同细胞的突变
+
+They see the mutation to try to kill that cell
+
+他们看到突变，试图杀死那个细胞
+
+If this receptor is downregulated
+
+如果这个受体被抑制了
+
+then all those downstream are molecules inside that cell that’s fighting there can’t fight
+
+那么所有其后的分子在细胞内的战斗就无法进行
+
+Because those signals are now turned off the cytokines, the interferons
+
+因为这些信号现在关闭了细胞因子和干扰素
+
+the things that will attack that atypical cell
+
+这些东西会攻击非典型细胞
+
+So, we’re seeing the early signals of this
+
+所以，我们看到这样的早期信号
+
+And so that’s what’s concerning is we want to be able to under the microscope
+
+这就是我们想要在显微镜下观察的问题
+
+you know here’s a whole stack of tumors
+
+你知道这里有一大堆的肿瘤
+
+in the last couple of weeks where what am I doing is
+
+在过去的几周里，我在做什么呢？
+
+I’m looking at the ratios of helper T cells this CD8 killer T-cells
+
+我在观察辅助T细胞和CD8杀伤性T细胞的比例
+
+and then we’ll be staying these for always
+
+然后我们会继续这么做
+
+Because some of these patients again inexplicable cancers
+
+因为这些病人中有些人的癌症无法解释
+
+at really unusual ages
+
+真的是在不寻常的年龄
+
+That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
+
+与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
+
+听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说

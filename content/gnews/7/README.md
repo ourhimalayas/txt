@@ -2,23 +2,39 @@
 ---
 
 
-## 日本自民党总裁选举原来是螳螂捕蝉黄雀在后
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559800/)
+## 中共国的电力紧缺威胁全球最新供应链
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559809/)
 
-#### 撰稿：东京樱花团/华夏小哥
-![](https://assets.gnews.org/wp-content/uploads/2021/09/19-6.png)
-众所周知，河野太郎父亲的日本端子公司与共匪暗中勾兑，一家三代舔共卖日。但为何日本媒体对此却视而不见呢？尤其是朝日、每日、东京报纸、NHK、TBS等大媒体没有任何报道。
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/电力.jpg)
+图片来源：reuters
 
-据最新消息，立宪民主党和日本共产党有建立联合政府的计划。正所谓，螳螂捕蝉黄雀在后，不识太郎真面目，只因身在谎言中。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-可以预见，若河野太郎当选自民党新总裁，10月4号成立新政府之后，日本媒体便会以日本端子株式会社在中国的商业行为以及政治献金丑闻为由发动攻击，推翻河野政府，并推动建立以立宪民主党和日本共产党的反对党联盟。届时日本政坛将会更加混乱，中共在日本的蓝金黄渗透会更加猖獗。
+随着全球最大出口国的工厂被迫通过减产来节约能源，中共国的能源危机正在对全球供应链造成新的冲击。
 
-此次日本自民党总裁选举实质上是美国（安倍、麻生）和中共（二阶、河野、石破茂）在日本政坛代理人的选举之战，究竟鹿死谁手？我们只能拭目以待。
+能源中断发生之际，生产商和承运人为了满足年底的假日购物季，努力应对因原材料成本飙升、港口长期延误和集装箱短缺而被破坏的供应链，其中包括从服装到玩具的各种需求。
 
-[信息来源](https://www.asahi.com/amp/articles/ASP986S9PP98UTFK014.html)
+因为电力短缺，中共国半数以上省份限电。中共国的制造商警告称，严格的削减用电措施将导致江苏、浙江和广东等经济强省的产量大幅下降，并可能推高商品价格。这些省份合计占中共国国内生产总值的近三分之一。
 
-（文章仅代表作者个人观点，与GNEWS无关）
+地方政府正在下令停电，因为他们试图达到降低能源和排放强度的目标，而有些地方则面临实际缺电。
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+电力问题是在中共国最近港口中断波及全球供应链之后出现的。宁波港是世界上最繁忙的港口之一，上个月因中共病毒爆发而被闲置数周，而深圳盐田港于5月关闭。
+
+由于严格的病毒控制措施和更严格的房地产市场限制等因素，能源紧缩将给中共国经济带来更大压力。
+
+野村控股有限公司、中国国际金融公司和摩根士丹利要么下调中共国的GDP增长预测，要么警告称，由于电力中断，GDP增长会放缓。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Supply Chains Threatened as Energy Crisis Curbs China Factories – Bloomberg](https://www.bloomberg.com/news/articles/2021-09-27/china-s-electricity-shock-is-latest-supply-chain-threat-to-world)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

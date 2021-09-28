@@ -2,59 +2,46 @@
 ---
 
 
-## 《GTV新闻访谈》简讯
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559682/)
+## 中国东北部地区的家庭遭遇停电
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1559683/)
 
-栏目记者/责任编辑：文一
+翻译：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中国东北部的居民正在经历突如其来的断电，因为电力短缺从工厂蔓延到家庭。居住在辽宁、吉林和黑龙江省的人在社交媒体上抱怨没有暖气，电梯和没有交通灯。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-415.png)
 
+当地媒体说，原因是煤炭价格上涨导致供应短缺。由于，该国的电力高度依赖煤炭，电力公司说，它预计停电将持续到明年春天，意外停电将成为 “新常态”。然而，它的帖子很快被删除了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+能源短缺起初只是影响了全国各地的制造商，其中许多工厂在最近几周不得不停止生产。但是现在，在周末，一些城市的居民也遇到他们的电力被间歇性中断，“东北停电”和其他相关短语在类似Twitter的社交媒体平台微博上成为趋势。目前，停电的程度还不清楚，但有近1亿人生活在这三个省。
 
+在辽宁省，一家工厂的通风设备突然停止工作，不得不将23名一氧化碳中毒的员工送往医院。还有报道说，一些人在通风不良的房间里使用炉子取暖后被送往医院，住在高层建筑里的人因为电梯无法使用而不得不爬上爬下几十层楼。在网路上流传的一段视频显示，由于交通灯和路灯被关闭，沈阳一条繁忙的高速公路上的汽车在完全黑暗中行驶。市政府告诉《新京报》，他们看到“大规模”的电力短缺。
 
+来自受影响地区的社交媒体帖子说，这种情况类似于在邻国朝鲜的生活。
 
+吉林省政府表示，正在努力从内蒙古采购更多煤炭，以解决煤炭短缺问题。
 
+另外，其他10个省份的工厂已经实施了电力限制，包括制造基地山东、广东和江苏。
 
-►周一下午，美国总统乔-拜登在电视直播中接受了新冠疫苗加强针，此前几天，美国疾控中心支持为数百万在六个月前接受辉瑞公司疫苗第二针的美国人打加强针。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-5.jpg)
-►美国务院发言人内德-普莱斯的病毒检测呈阳性，将被隔离。讽刺的是，普莱斯在一条推文中说：“我感觉不是很舒服，但对安全有效的疫苗所提供的对重症的保护表示感谢。”
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.2-3.jpg)
-►据总部位于纽约的数据服务机构布尔比奥（Burbio）称，本学年到目前为止，43个州的539个地区的近2200所学校因中共病毒疫情而不得不暂时关闭。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.3-1.jpg)
-►联邦调查局报告说，在中共病毒大流行期间，2020年的谋杀案增加了近30%，这是该局自六十年前开始记录犯罪统计数据以来最大的单年跳跃。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.4-1.jpg)
-►“与星共舞”本赛季职业选手谢丽尔-伯克，周日在视频中含泪宣布病毒检测呈阳性。这位早打了Moderna疫苗的舞者说，根据CDC对检测出阳性的疫苗接种者的指导方针，她必须在家里隔离10天。 疫情并未因疫苗的普及而受控，反而越来越严重，越来越扩散，并导致各种次生灾害事件频发，政客和所谓权威机构却还在为医药公司站台作秀撒谎推打疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.5-1.jpg)
-参考链接：
-[Biden gets vaccine booster shot; Arizona judge finds ban on school mask mandates unconstitutional: COVID-19 updates](https://www.msn.com/en-us/news/us/biden-gets-a-vaccine-booster-shot-thousands-of-new-york-health-care-workers-could-lose-jobs-as-soon-as-today-covid-19-updates/ar-AAORrao)
+尽管，中国领导人习近平承诺，他的国家将在九年内达到碳排放峰值。然而，BBC记者Stephen McDonell在北京报道，各地区因未能实现节能减排目标而受到北京政府的批评，这给地方官员带来了减低电力消费的压力。
 
-[推文：After experiencing symptoms for the first time this morning, I tested positive for COVID-19 shortly thereafter, & will now quarantine for the next 10 days. I’m feeling under the weather but am grateful for the protection from severe illness offered by safe and effective vaccines.](https://twitter.com/statedeptspox/status/1442558871395045376?s=21)
+参考来源：[Power cuts hit homes in north-east China](https://www.bbc.com/news/world-asia-china-58704221)
 
-[K-12 School Reopening Trends](https://info.burbio.com/school-tracker-update-latest/)
+**本文仅代表作者观点**
 
-[FBI: Record surge in 2020 murders; nearly 30% increase drives spike in violent crime](//www.usatoday.com/story/news/politics/2021/09/27/fbi-reports-2020-murder-surge-biggest-single-year-jump/5886792001/%20violent%20crime)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-[‘DWTS’ pro Cheryl Burke tests positive for COVID, tearfully apologizes to dance partner Cody Rigsby](https://www.usatoday.com/story/entertainment/tv/2021/09/27/dwts-cheryl-burke-cody-rigsbys-partner-tests-positive-covid/5880823001/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

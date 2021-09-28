@@ -2,27 +2,32 @@
 ---
 
 
-## 《疫苗死亡报告》：殡葬师大胆发声
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559450/)
+## 新南威尔士州：接种疫苗并不能阻止重症
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559460/)
 
-#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
-翻译：彩虹
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
-约翰·奥卢尼（John O’Looney）是来自于英国的一位殡葬师，他是一个非常有说服力的目击者。10年来，他是英国最大的殡葬公司的一员。约翰与英国广播公司（BBC）合作，记录大流行病的情况，并与因大流行病而被政府任命的一名官员紧密合作。他与其他45个殡葬师都有联系，因此，对正在发生的事情有一个非常清楚的概述。他所披露的情况令人震惊。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1631968788523_G4B3FO3A2.1-2.jpg)图片来源：The West Australian
+**【雅典娜快讯】，紧贴时事脉搏**
 
-首先，他作证说，在所谓的冠状病毒大流行病期间，他或他认识的任何其他殡葬师都没有看到死亡人数增加。这是令人震惊的，因为在电视上他们不断看到大量死亡信息的传播，但现实中却没有这样的迹象。然而，在2020年3月，约翰突然晚上被呼叫，连续三周，专门去养老院。所有在那里死亡的人都被标记为中共病毒死者。他从来没有看到过一个医生在场，也没有做过一次中共病毒测试。与此同时，咪达唑仑（Midazolam）的销量突然增加了1000%。一名护士秘密地告诉他，他（她）们如何被指示给老人注射致命剂量的这种药物，从而大规模地消灭他们（养老院院老人）。这些大量的死亡数字随后被用来宣传支持“中共病毒大流行”的说法。
+**整理报道：**翼族
 
-一位政府大流行病官员也找过他，告诉他，他们必须把每一个人的死亡都标为中共病毒死因。被车撞死的人、心脏病发作的人、癌症患者，不管是什么原因造成的死亡，他们都必须被标记为因中共病毒而死亡。这是来自政府的直接指示。
+从昨天晚上8点钟之前的24小时内，新南威尔士州记录了863例新增本地感染中共病毒（COVID-19）的病例。自中共病毒流行以来，新南威尔士州记录的病例总数已经达到了60372例。
 
-约翰说，政府为英国人口大规模接种疫苗一开始，死亡人数突然激增。“作为一个做了15年殡葬师的我，从来没有见过这样的事情。而这正是从他们开始在人们的手臂上扎针开始的。我从没有见过这么高的死亡率。那是非常可怕的。大流行病的（死亡）数字只是在他们开始接种疫苗之后（飙升的），在那之前从未发生过。”约翰解释说，他们尽可能多地将（死者）标记为中共病毒死亡。第一波疫苗接种和由此产生的死亡持续了大约12周。然后是一个非常平静的时期，接着又是一波新接种疫苗人的死亡。
+令人伤心的是，新州卫生局同时报告了七名死亡病例——四名女性和三名男性。其中1人40多岁，1人50多岁，2人70多岁，2人80多岁，1人90多岁。
 
-“每一个有一丝诚实的殡葬师都会告诉你，所有在我们周围死去的人都是疫苗接种者。根本不存在中共病毒大流行，我就是活生生的证人。”
+七名死者中，三人完全接种了两剂疫苗，三人接种了一剂疫苗，一人未接种疫苗。
 
-“这都是为了让你接种疫苗。在我的殡仪馆关系网信息中，没有一个孩子死于中共病毒，所以，没有任何理由将疫苗用于儿童。（肯定）存在一个人口减少的计划。正是疫苗在杀人，作为殡仪馆馆长，我亲眼看到了这一切。”
+自 2021年6月16日德尔塔病毒变种以来，新南威尔士州已记录316例与COVID-19相关的死亡，而自大流行一开始以来则总共有372例。
 
-**参考资料：**[https://www.stopworldcontrol.com/director](https://www.stopworldcontrol.com/director)
+目前新州有1155例住院病人，213人正在接受重症监护，其中113人需要呼吸机。
 
-[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)
+**参考链接：**[COVID-19 (Coronavirus) statistics](https://www.health.nsw.gov.au/news/Pages/20210928_00.aspx)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

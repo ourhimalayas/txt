@@ -2,28 +2,59 @@
 ---
 
 
-## 从一则温情脉脉的倡议书看中共假骗偷实质
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559677/)
+## 《GTV新闻访谈》简讯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559682/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-413.png)
-[图片来源](https://www.wenweipo.com/a/202103/30/AP60623acbe4b04e1918ce0d22.html)
+栏目记者/责任编辑：文一
 
-我所知的某个三线小城市每天连篇累牍，重复播放已经录好的音频对老百姓进行洗脑。倡议书内容如下：
 
-市民朋友：
 
-您打新冠疫苗吗？这几天大家见面最关心的就是打没打疫苗。如果您还没有接种疫苗，大家都会用疑惑的眼光看着您，您就会站在朋友圈之外，不会被大家容纳和接受。（笔者点评：中共有意制造对立，把未接种疫苗群众看作异类和异己，便于以后把病毒传播责任推给未接种人群）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-我们只是想通过更多的渠道告知您接种消息，不是疫苗不值钱（疫苗太值钱了，如今，所有的制作疫苗公司财务报显示同比盈利是上年同期好多倍），也不是医护人员，乡镇干部、村组工作人员没事儿干，因为您是中国人，因为我们有一个强大的祖国，才能享受免费打新冠疫苗的待遇。（中共不仅习惯性意淫祖国强大，强大到上不起学，看不起病，买不起房，中共还欺骗老百姓，疫苗根本不是免费的，所有购买疫苗的费用是居民医保基金，既便如此，个人缴费比例每年还在以10-20%的幅度上涨）
 
-医护人员、乡镇干部、社区工作人员，每天从早到晚，不分白天黑夜，没有休息时间，就是为了服务群众，方便大家，随到随接种。请大家放下手头工作，尽快前去完成接种任务，达到构建全民免疫屏障的目的（赤裸裸的谎言，云南瑞丽市疫苗接种率达到95%以上，并没有达到免疫屏障建立，而是成为疫情高发地区）。在秋冬来临病毒高发之时（中共怎么知道秋冬病毒高发，难道他有未卜先知的能力，如果没有，是否会有意放毒，才得此结论，真是令人毛骨悚然，不寒而栗），我们不再因为惧怕感染而不敢出门，不再因为疫情而停工失业，而是全民免疫屏障的建立，使我们的生活无碍，经济社会运转良好。请大家善待医务接种人员、乡镇干部、社区工作者（中共重复多次点出这批人，目的是今后将疫苗造成副作用和次生灾难的责任推到这些基层人员身上，佯装自己无辜。他们早就预判，因为疫苗造成伤亡的受害者家属不会善罢甘休，会找他们算帐的，故留此伏笔），请尊重他们的辛勤付出，接种疫苗，大到为国，小到为家，全民免疫屏障的建立，才能使我们的生活无碍，经济社会运转良好，接种疫苗是民族责任，是社会义务（中共又把民族责任，社会义务这些空泛抽象概念这些大帽子扣到普通人身上，具有很大的欺骗性，让普通市民认为我不打疫苗对不起国家民族的高度，纯粹是道德绑架）。
 
-市民朋友们，请珍惜我们疫苗充足、接种方便的大好机会（当然充足，疫苗于病毒出现初期就已备足，也因为国外不要中共国的疫苗，卖不出去只有收割墙内韭菜。大好机会貌似可以免费接种，将来因为疫苗造成各种心梗脑梗白血病等可是需要你自掏腰包，强大的祖国才不会管你）。如果您还没有接种疫苗，而不是疫苗禁忌症者，请您积极主动配合社区工作人员，为了自己，也为了家人的安全，请您尽快去接种疫苗。（郭文贵先生多次说相信共产党，走进火葬场，中国人一再被欺骗就是因为没有信仰，不辩善恶，善于遗忘，因为懦弱和自私，才让中共横行70几年，只有认清中共的撒旦本质，跟随爆料革命，才能重获新生）
 
-\*\*市疾控中心
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+►周一下午，美国总统乔-拜登在电视直播中接受了新冠疫苗加强针，此前几天，美国疾控中心支持为数百万在六个月前接受辉瑞公司疫苗第二针的美国人打加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-5.jpg)
+►美国务院发言人内德-普莱斯的病毒检测呈阳性，将被隔离。讽刺的是，普莱斯在一条推文中说：“我感觉不是很舒服，但对安全有效的疫苗所提供的对重症的保护表示感谢。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.2-3.jpg)
+►据总部位于纽约的数据服务机构布尔比奥（Burbio）称，本学年到目前为止，43个州的539个地区的近2200所学校因中共病毒疫情而不得不暂时关闭。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.3-1.jpg)
+►联邦调查局报告说，在中共病毒大流行期间，2020年的谋杀案增加了近30%，这是该局自六十年前开始记录犯罪统计数据以来最大的单年跳跃。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.4-1.jpg)
+►“与星共舞”本赛季职业选手谢丽尔-伯克，周日在视频中含泪宣布病毒检测呈阳性。这位早打了Moderna疫苗的舞者说，根据CDC对检测出阳性的疫苗接种者的指导方针，她必须在家里隔离10天。 疫情并未因疫苗的普及而受控，反而越来越严重，越来越扩散，并导致各种次生灾害事件频发，政客和所谓权威机构却还在为医药公司站台作秀撒谎推打疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.5-1.jpg)
+参考链接：
+[Biden gets vaccine booster shot; Arizona judge finds ban on school mask mandates unconstitutional: COVID-19 updates](https://www.msn.com/en-us/news/us/biden-gets-a-vaccine-booster-shot-thousands-of-new-york-health-care-workers-could-lose-jobs-as-soon-as-today-covid-19-updates/ar-AAORrao)
+
+[推文：After experiencing symptoms for the first time this morning, I tested positive for COVID-19 shortly thereafter, & will now quarantine for the next 10 days. I’m feeling under the weather but am grateful for the protection from severe illness offered by safe and effective vaccines.](https://twitter.com/statedeptspox/status/1442558871395045376?s=21)
+
+[K-12 School Reopening Trends](https://info.burbio.com/school-tracker-update-latest/)
+
+[FBI: Record surge in 2020 murders; nearly 30% increase drives spike in violent crime](//www.usatoday.com/story/news/politics/2021/09/27/fbi-reports-2020-murder-surge-biggest-single-year-jump/5886792001/%20violent%20crime)
+
+[‘DWTS’ pro Cheryl Burke tests positive for COVID, tearfully apologizes to dance partner Cody Rigsby](https://www.usatoday.com/story/entertainment/tv/2021/09/27/dwts-cheryl-burke-cody-rigsbys-partner-tests-positive-covid/5880823001/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
