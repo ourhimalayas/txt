@@ -2,23 +2,65 @@
 ---
 
 
-## 参议员科顿警告说中共正在与美国进行冷战，催促拜登做出回应
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560075/)
+## 《疫苗死亡报告》：疫苗管用吗？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560171/)
 
-#### 翻译/撰稿：zzballack
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：**zzballack**
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+世界著名的疫苗专家吉尔特·范登·保茨（Geert Vanden Bossche）博士警告说，这些疫苗会破坏身体的免疫系统，使接种者容易感染新变种病毒。他还说：
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture3-2.jpg)图片来源：英国卫报
-据《纽约邮报》（New York Post）9月27日报道，美国阿肯色州参议员汤姆·科顿(Tom Cotton)周一在一篇专栏文章中写道，中共正在与美国进行冷战，拜登总统必须对这种威胁作出强有力回应，否则将面临被中共支配的命运。
+“在高传染性变种大流行期间进行大规模疫苗接种无法控制病毒的传播。它们非但无助于构建群体免疫，反而极大地延迟了自然群体免疫的建立。**这就是为什么说正在进行的全球疫苗接种运动绝对有害于公众和全球卫生。”**
 
-拜登上周在联合国大会中坚称美国“不寻求新的冷战”，并避免点名提及中共。科顿在文章中对此回应说：“拜登总统必须改变方向，将中共视为敌人并与之对抗。中共对我们发动的冷战已持续数年，美国和世界的未来正处于危险之中。我们现在唯一的选择是要么获胜，要么屈服于中共的统治。上个世纪，我们与苏联的冷战是两个大国为争夺全球经济、军事、技术和意识形态优势而进行的长达数十年的斗争。毫无疑问我们现在正与中共国进行这样的对抗。”
+诺贝尔医学奖得主吕克·蒙塔尼耶（Luc Montagnier）博士也警告说，这些疫苗正在产生危险的新变种。以色列的统计数据清晰表明，一旦开始疫苗接种，死于中共病毒的人数就会急剧增加（见本报告之前的内容）。
 
-科顿引用了冷战一词的创造者伯纳德·巴鲁克 (Bernard Baruch)对怀疑论者所说的话，“让我们不要被欺骗；我们今天正处于冷战之中。国内国外都能找到我们的敌人。”
+**以色列总理纳夫塔利·贝内特 (Naftali Bennett)甚至说，现在最危险的人是那些接种了两剂中共病毒疫苗的人。**
 
-科顿指出中共试图腐蚀和重塑国际体系。“中共利用其‘一带一路’倡议，通过债务陷阱、贿赂和巨大的基础设施项目收买盟友，扩大其军事力量，并建立一个由北京支配的全球经济秩序。中共用惩罚性的贸易制裁行动打击澳大利亚、日本、和欧盟成员国等美国盟友，以阻止他们批评中共的人权侵犯行为。中共在不断扩大其影响力的同时，也在逐步削弱美国的全球影响力。”
+岛国塞舌尔之前几乎没有任何中共病毒死亡病例，但是自从该国开始给其民众接种中共病毒疫苗后，死亡人数暴增了一百倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-10.jpeg)
+在澳大利亚，一对年轻夫妇被拒绝接触自己的新生儿长达8天之久，尽管他们已经完全接种了疫苗。澳大利亚的首席卫生官员珍妮特·杨 (Jeannette Young)博士对这种不人道的情况做出了如下解释：
 
-“三十年来，中共通过产品倾销、知识产权盗窃和工业破坏，对美国发动了经济战。自2000年以来，‘中共的冲击’已使美国失去了数百万个制造业工作岗位，并摧毁了美国的工业社会。现今，美国的知识产权盗窃案件中有80%与中共有关，70%以上的假冒伪劣和盗版商品来自中共国。中共也是联邦调查局所有经济间谍案中近一半案件的调查对象。这种经济战使美国每年损失数千亿美元。”
+**“即使你接种了疫苗，并不意味着你不会被感染。这就是为什么我们不允许那个家庭去探望他们的孩子。”**
 
-科顿说中共快速的经济增长又为其军事扩张提供了资金。“自2000年以来，中共的军事开支增加了1000%以上，其海军规模扩大了两倍多，并建立了世界上最大的常规地基导弹库。中共最近又成倍地增加了其核武库。这种和平时期的军备活动可能是在为一场大型战争做准备，或者表明冷战正在升级。此外，中共还支持朝鲜、叙利亚、伊朗和委内瑞拉等残暴政权，显然是为了对抗西方的民主国家联盟。”
+安东尼·福奇（Anthony Fauci）也说得很清楚：“疾控中心正在考虑要求疫苗接种者必须戴口罩。越来越多已接种疫苗的人的中共病毒核酸检测呈阳性，因此他们需要继续带口罩。接种者仍然需要避免在餐馆吃饭。接种者携带的德尔塔变种病毒数量和未接种者一样多。”因此，根据福奇的说法，这些疫苗基本上没什么用。然而，他却坚持要求给游客强制注射这些无用的疫苗。英国首相鲍里斯·约翰逊 (Boris Johnson)也公开做出了相同的表态，他说：
 
-新闻来源：[Cotton warns China engaged in cold war, urges Biden to act](https://nypost.com/2021/09/27/sen-tom-cotton-warns-of-cold-war-with-china-and-biden-must-take-action/)
+“如果我的朋友和家人都接种了疫苗，我现在可以在室内与他们见面吗？答案恐怕是否定的。因为我们还没有到那个阶段，我们在很大程度上仍然处于你只能在户外会见朋友和家人的世界，而且最多只允许6人或两户家庭在室外聚会。而且，即使你的朋友和家人可能已经接种了疫苗，**但疫苗不能提供100%的保护**，这就是我们需要小心和谨慎的原因。”
+
+《内科医学趋势》（Trends in Internal Medicine）刊登了美国免疫学家、医学博士约翰·巴斯洛·克拉森（John Barthelow Classen）的一篇研究论文，题为：
+
+**《使用正确科学方法对关键性临床试验数据进行分析后发现美国的中共病毒疫苗被证明弊大于利，“所有的疫苗都会导致严重的发病率” 》（US COVID-19 Vaccines Proven to Cause More Harm than Good Based on Pivotal Clinical Trial Data Analyzed Using the Proper Scientific Endpoint，“All Cause Severe Morbidity”）**
+
+甚至连美国疾控中心（CDC）也承认，疫苗对德尔塔变种以及未来的变种毒株没有保护作用，所有的疫情防护措施仍需要维持原状。但是他们却继续强烈要求每人都必须接种疫苗。澳大利亚新南威尔士州的首席卫生官员说，在可预见的未来，我们不得不习惯无休止的疫苗接种，疫苗加强针和重复疫苗加强针将成为未来生活的一部分。莫德纳（Moderna）的首席医疗官塔尔·扎克斯（Tal Zaks）博士说，疫苗不会让生活恢复正常。这一点也得到了世卫组织总干事谭德赛（Tedros Adhanom）的确认，他说：
+
+“疫苗本身不会结束这场大流行。监测工作需要继续进行，人们仍然需要接受检测、隔离和护理。仍然需要对接触者进行追踪和隔离，仍然需要社区的参与。”
+
+《柳叶刀》（Lancet）杂志的一项研究表明，德尔塔变种可以在接种者中自由传播。一项研究证实了这一点。该研究显示，马萨诸塞州巴恩斯特布尔县（Barnstable County）的一个小镇在2021年7月举行了多起大型公共活动后，在7月3日至17日期间前往该镇的马萨诸塞州居民有469人感染了中共病毒，**其中346（74%）人完全接种了疫苗。**
+
+**错误和欺骗**
+
+根据世界各地的“卫生官员”的说法，疫苗不能保护任何人免受感染，不能阻止传播，人们仍然需要戴口罩、保持距离、自我隔离、被隔离等等。在夏季中期爆发的疫情中，74%的感染者都接种了疫苗。免疫接种运动开始后，死亡人数也随之急剧飙升。简而言之：相比未推广疫苗接种时期没有任何变化。然而，他们想让不断的接种加强针成为我们生活的一部分。因此，“疫苗安全有效”的说法被证明是错误的和骗人的。
+
+参考资料：
+1: https://thehighwire.com/videos/a-coming-covid-catastrophe
+1B: https://nulluslocussinegenio.com/2021/09/13/why-mass-vaccinations-prolong-and-make-epidemics-deadlier-real-vaccine-expert-calls-out-flawed-government-pandemic-strategy/
+2: https://rumble.com/vldilx-nobel-prize-winner-professor-luc-montagnier-says-vaccine-is-creating-varian.html
+3: https://rumble.com/vlme81-the-most-vulnerable-population-are-the-ones-who-received-two-vaccine-doses.html
+4: https://www.bitchute.com/video/3dX3gawfhaEJ/
+5: https://rumble.com/vkb885-fauci-says-cdc-considering-mask-mandates-for-vaccinated-americans.html
+6: https://rumble.com/vkciqv-fauci-vaccinated-wear-a-mask-will-he-ever-be-canceled.html
+7: https://rumble.com/vflkib-more-fauci-b.s.-vaccinated-americans-still-cant-eat-indoors.html
+8: https://rumble.com/vlt9b1-dr.-anthony-fauci-fully-vaccinated-people-carry-as-much-virus-as-unvaccinat.html
+9: https://rumble.com/vmgq6o-fauci-demands-vaccine-mandate-for-air-travel-and-public-schools.html
+10: https://www.bitchute.com/video/OQBS0IAIrXEa/
+11: https://www.stopworldcontrol.com/downloads/en/vaccines/vaccines-harm.pdf
+12: https://www.nbcnews.com/science/science-news/cdc-warns-internal-document-war-has-changed-coronavirus-n1275478
+13: https://rumble.com/vmh1er-we-need-to-prepare-to-live-with-covid-boosters-australia.html
+14: https://nypost.com/2020/11/24/moderna-boss-says-covid-shot-not-proven-to-stop-virus-spread/
+15: https://rumble.com/vjs9ef-australias-new-world-order-began-july-10-2021.html
+16: https://papers.ssrn.com/sol3/papers.cfm?abstract\_id=3897733
+17: https://www.cdc.gov/mmwr/volumes/70/wr/mm7031e2.htm?s\_cid=mm7031e2\_
+
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
+
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)

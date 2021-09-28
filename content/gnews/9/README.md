@@ -2,133 +2,76 @@
 ---
 
 
-## CCP会继续放毒—热毒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1560246/)
+## 川普盟友推出GETTR来对抗Twitter
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560291/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-24.jpg)https://gtv.org/video/id=61520219d2e2b817486ec9f3
-经济倒了
-La economía caerá
+- **编译：Lulumi**
 
-国际上也完了
-Internacionalmente también
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip147.png)
+**唐纳德·川普将有一个新的社交媒体平台来传达他的信息（图片: Getty)**
+据英国《每日快报》报道，美国前总统在2016年和2020年的选举通信主管杰森·米勒(Jason Miller)推出了GETTR，与川普先生几乎每天都用来向世界传达他的观点的Twitter直接竞争。米勒先生在接受《星期日快报》采访时，指责社交媒体巨头通过压制有关乔·拜登儿子亨特的破坏性报道来干预上届美国大选，并在大选后终身禁止川普先生使用Twitter和脸书。
 
-人们要捣乱的时候
-Cuando la gente quiere crear disturbios
+他说：”六分之一的拜登选民表示，如果他们知道亨特·拜登的故事，他们会改变投票，或考虑这样做。”
 
-他最大的威胁不是别的
-Su mayor amenaza no es otra cosa
+他还指出，对美国大科技公司的担忧意味着加入GETTR的人中有三分之二希望对抗社交媒体巨头，而有三分之一的人希望支持川普总统。
 
-国际上的经济脱钩
-El desacoplamiento económico internacional
+他说：”我们在7月4日独立日推出，以便人们可以宣布独立于大科技公司，到目前为止，我们是有史以来最快达到100万用户的社交媒体平台。”
 
-国内的老百姓上街
-Los chinos saldrán a las calles
+“我们也是有史以来最快达到200万用户的社交媒体平台，这件事真的像火箭飞船一样起飞了。”
 
-大量的疫苗死亡
-Gran cantidad de muertes debido a las vacunas
+“我想说，就市场而言，Twitter和脸书是我们最有可能的两个竞争对手。”
 
-继续放毒
-Siguen descargando virus
+他说，与Twitter不同，这里不会有哈马斯或塔利班等恐怖组织的空间。
 
-放到全世界
-Hacia todo el mundo
+然而，同样与Twitter不同的是，”想要表达政治观点的人将不会被取消账号”。
 
-各旮旯都给你放
-Hasta los rincones más desapercibidos
+新平台也将有所不同，它不会收集和出售人们的数据。
 
-就让全世界的人类都待在家里
-Para que toda la humanidad se quede en sus hogares
+在描述他的竞争对手时，米勒先生说。”表面上他们是关于社交媒体的，实际上他们是数据公司。”
 
-而且放的新毒
-Además, el nuevo virus que desacargarán
+米勒先生呼应其前老板的竞选口号，说GETTR将 “让社交媒体再次有趣”。
 
-什么狗屁疫苗根本都不管用, 现在的毒都属于
-Ni siquiera la porquería de vacuna funcionará, ahora el virus pertenece
+他正在与南美著名足球运动员、两位主要歌手和其他名人洽谈加入该网站。
 
-冠状病毒这一株的
-A la variedad de Coronavirus
+在英国，开垦党领导人和演员劳伦斯·福克斯已经加入了该网站。
 
-我们欧洲的科学家头两天跟我说, 如果共产党疯狂
-Nuestro científico europeo hace dos días me dijo, si el Partido Comunista se vuelve loco
+据本周宣布，福克斯先生将在一部关于金融丑闻的电影中扮演亨特·拜登。
 
-再放的时候就不是这个了
-Cuando descargan de nuevo el veneno
+米勒先生说，GETTR上将没有色情或种族虐待的空间，违反这些规则的用户将被禁止。
 
-再放毒叫热毒, 记住我今天的话叫热毒
-Se llamará veneno caliente, recuerden lo que dije hoy, es llamado veneno caliente
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip148.png)
+**劳伦斯·福克斯已加入GETTR（图片：Getty）**
 
-什么叫热毒啊
-En qué consiste este veneno
+这位通信大师说，GETTR正在站出来对抗取消文化和西方历史上前所未有的审查制度。
 
-就是你放完了(得了病)立马就是七窍出血
-Quiere decir cuando terminen de descargar (ya estás contagiado) inmediatamente, sangras por los siete orificios
+他说。”如果你在一年半前告诉我，我会在全世界倡导言论自由和川普，我会说你是疯了。”
 
-结束
-Y finaliza
+“看到发生的一切，我真的认为去年是美国历史上审查制度最糟糕的一年。”
 
-就是剧毒型的
-Es altamente tóxico
+“回到去年春天，当COVID出现时，人们因为说病毒来自中国的一个实验室而被标为激进并受到审查。”
 
-没有什么反应期
-No tiene período de reacción
+“大科技公司会去审查和关闭账户，我认为这对美国的言论自由来说真的是个悲剧。”
 
-没有反应期
-No hay etapa de reacción
+“现在我们发现，白宫正积极与社交媒体合作，在言论自由的赌注上挑选赢家和输家。”
 
-记住我说的话再有毒的时候
-Recuerden lo que dije, cuando aparece de nuevo el virus
+“如果你让川普总统和[他的新闻秘书]萨拉·哈克比说’我们正在与一家社交媒体公司合作来定义某些帖子，说它们应该被删除’。人们会发疯的，这是法西斯国家，这是1984年。”
 
-七窍流血
-Sangrarás por los siete orificios
+**点评：**
 
-而且死亡率极高
-Además, el porcentaje de muerte es muy alto
+**无论是在美国大选舞弊，还是在病毒来源，疫苗真相这些关乎世界安全和人类命运的重大问题上，科技巨头全部一边倒的打压真相颠倒黑白，散布虚假信息。**
 
-大家要记住我今天说的话, 还有一段距离
-Todos recuerden lo que dije hoy, todavía hay algo de distancia
+**这不光是因为科技巨头经济利益的原因，更重要的事这是一场中共发动的信息超限战。感谢上天给了我们郭先生用大智慧创造了传播真相的平台GTV，GNEWS，GETTER，在信息超限战中用事实真相唤醒民众来一起对抗中共及科技巨头。**
 
-但你要不准备好, 你就完了, 真的坏日子还早着呢
-Pero si no estás preparado, serás acabado, todavía es temprano para la llegada de momentos difíciles
+**郭先生创造的这些平台未来一定会取代科技巨头成为真相的唯一传播平台。**
 
-还有一段时间
-Aún queda un período de tiempo
+（文章仅代表作者观点 与GNEWS无关）
 
-大家务必要小心
-Todos deben tener cuidado
+**新闻来源：[每日快报](https://www.express.co.uk/news/politics/1496458/donald-trump-presidency-new-social-media-platform-rival-twitter)(Daily Express) | 作者：DAVID MADDOX** **发布时间：2021年9月25日 |**
 
-务必做好准备
-Estar preparados
+* * *
 
-所以说兄弟姊妹们, 不是那么简单的
-Por eso hermanos y hermanas, no es tan fácil
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-这是为什么我今天特别要跟大家分享的
-Esta es la razón por la cual hoy les quiero compartir especialmente
-
-一定要记住
-Deben recordar
-
-农场要全面的
-La finca debe estar unida en todos los aspectos
-
-团结起来力量
-De manera integral
-
-农场和战友们要紧密的联系
-Los compañeros luchadores de la finca deben mantenerse en contactos
-
-而且我们要做好最坏时刻的到来
-Y debemos estar preparados para la llegada de los peores momentos
-
-原视频日期：09/24/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1441341881896476692?s=24
-视频时间段：0:00-1:48
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

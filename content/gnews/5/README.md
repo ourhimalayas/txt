@@ -2,46 +2,29 @@
 ---
 
 
-## DAVID USHER在福克斯谈到武汉病毒实验室
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560273/)
+## 澳洲民意调查：大多数人支持 AUKUS核潜艇协议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1560321/)
 
-[![](https://spark.adobe.com/page/30broIy7CUoQS/images/513debe3-91a0-4293-a265-77e73c5cf6ae.png?asset_id=968c7e38-2471-4182-b6e4-1466b031589b&amp;img_etag=%2257059f474668b31b841260635ad0e425%22&amp;size=2560)](https://spark.adobe.com/page/30broIy7CUoQS/images/513debe3-91a0-4293-a265-77e73c5cf6ae.png?asset_id=968c7e38-2471-4182-b6e4-1466b031589b&amp;img_etag=%2257059f474668b31b841260635ad0e425%22&amp;size=1024)
-**简评：**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2a25010a92f082b53202327ed2f58cb8a578c7b5.jpg)图片来源：Getty Images
+**整理报道：**翼族
 
-武汉病毒研究所与生态健康联盟的美国伙伴在2018年3月份提交给国防部一份计划，申请进行功能增强实验，为蝙蝠冠状病毒增加福林酶切位点用以杀伤人类人类。感谢上帝，国防部因为担忧大规模杀伤性武器而否定了该计划。
+大多数澳大利亚人支持总理斯科特·莫里森与美国和英国建立牢固关系，以支持澳大利亚国防安全的举措。但《卫报》最新的调查显示，受访者同时也担心新的AUKUS伙伴关系将会使得澳大利亚与中（共）国及欧洲的关系变得更加紧张。
 
-中共政府与生态健康联盟有一个全球病毒专案计划。美方已经掌握全部细节，从基因的角度可以证明新冠病毒是由石正丽主导，武汉病毒研究所制造的，其科研资金98%来自美国纳税人。联邦调查局需要对他们进行实质性的刑事调查。
+对1094名受访者的调查显示，62%的人认为澳大利亚与美国和英国达成核潜艇协议是正确的，而54%的人同意以下说法：“ AUKUS伙伴关系符合澳大利亚最佳的安全和经济利益。”
 
-GTV视频链接：[David Asher 0926: 从基因的角度证明，新冠病毒正是由石正丽主导，从武汉病毒研究所的实验室里制造出来的](https://gtv.org/video/id=6151996ad2e2b817486eab0d)
+55%的人认为该安排将会进一步激化与中（共）国的关系。在法国政府对莫里森决定取消与海军集团900亿美元潜艇合同的激烈反应之后，48%的人认为新的伙伴关系将危及澳洲与法国的贸易协议，以及与欧盟的关系。
 
+随着有可能在2022年第一季度举行的联邦大选的临近，最新的民意调查显示，自由国家党联盟在处理国家安全政策方面，领先工党13%，并且联盟党在国际关系管理方面也领先5个百分点。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**视频字幕：**
+**参考链接：**[Essential poll: majority of Australians back Aukus submarine pact, but fear it will inflame tensions with China](https://www.theguardian.com/australia-news/2021/sep/28/essential-poll-majority-of-australians-back-aukus-submarine-pact-but-fear-it-will-inflame-tensions-with-china)
 
-**David**：事实上，武汉病毒研究所和生态健康联盟，他们的美国合作伙伴申请了做功能增强性研究的经费，明确说明要将福林酶切位点赋予与非典病毒类似的蝙蝠冠状病毒，使它可以杀死人类。
+*编辑/发布：翼族*
 
-这是他们在2018年3月提交给国防部的一个研究计划。感谢上帝，DARPA，美国国防高级研究计划局拒绝了该计划。因为太危险，存在大规模杀伤性武器方面的担忧。在他们看来这纯粹是一种功能增强，这与Fauci的说法完全相悖。
-
-**主持人**：的确。看起来他们还是继续做了这件事，因为看起来和你们说的病毒非常相似，你们所怀疑这正是所发生的。
-
-**David**：是的，中共国政府自己有一个叫做全球病毒专案的计划，也与《生态健康联盟》合作。中共国用自己的资金在进行提高冠状病毒致病性的研究。基本上，我们现在拥有所有细节，从基因的角度证明新冠病毒正是由石正丽主导，从武汉病毒研究所的实验室里制造出来的。
-
-中共所有的谎言，NIH的谎言和掩盖，及其他们的同谋，都已经被击碎。我们知道它不是来自海鲜市场。我们知道他们在福林酶切位点的研究。我们知道他们在同一个实验室里有蝙蝠、穿山甲和人源化小鼠。他们在动物间进行功能增强，以创造一种超级冠状病毒，看起来就像是新冠病毒。
-
-**主持人**：我们知道拥有《生态健康联盟》这家美国公司的彼得-达萨克与他们合作。显然，这令人有巨大的挫败感。
-
-我知道你有这种感觉。英国的调查人员也有这种感觉。为什么我们没有能够调查和询问他，让他与我们分享他所知道的全部情况？
-
-**David**：我认为现在确实存在犯罪行为的掩盖。联邦调查局需要接受考验，以实际行动调查美国公民，这些事情到底是还是不是（彼得达萨克的）任务。这百分之百是被《生态健康联盟》掩盖的犯罪阴谋 。我指的是，他们拒绝任何国会议员的询问和索取数据的要求。根据他们自己的声明，他们98%的资金来自美国纳税人。他们最好开始回答问题。
-
-我们需要进行非常实质性的刑事调查，也需要国会进行彻底调查，揭开真相，切实推进。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：雨中漫步 | 听写：云岭 | 翻译：clau* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-[![](https://spark.adobe.com/page/30broIy7CUoQS/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/30broIy7CUoQS/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
