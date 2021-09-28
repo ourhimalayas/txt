@@ -15,152 +15,152 @@
 
 ---
 
-### [从一则温情脉脉的倡议书看中共假骗偷实质](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [嫦娥不悔偷灵药](/content/gnews/2/README.md)
- ` 纽约香草山MOS03`
-
-### [融创公司子公司向绍兴市致信寻求援助](/content/gnews/3/README.md)
- ` 纽约香草山MOS01`
-
-### [恶政限电不定时、无计划、无通知](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [叶天士“邪入血分”证对新疆出血热的启发](/content/gnews/5/README.md)
- ` 纽约香草山MOS03`
-
-### [美国将斥资19亿美元移除电信网络中的华为中兴设备](/content/gnews/6/README.md)
+### [终结共产主义的游戏已经开始：从恒大出事看中共](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国房企的现金紧缺蔓延到融创](/content/gnews/7/README.md)
- ` GTV新闻访谈`
+### [海航重组将发行57亿美元新股](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [2018年4月26日郭文贵先生直播全文听写：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/gnews/8/README.md)
+### [朝鲜向东部海域发射疑似弹道导弹](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2018年4月28日郭文贵先生报平安视频全文听写：金正恩是我们学习的坏榜样！](/content/gnews/4/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [回看郭先生过去的直播，媒体太重要了](/content/gnews/9/README.md)
- ` 纽约香草山MOS03`
-
-### [澳洲议员抨击：强制接种疫苗与“种族隔离”无异](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声| 愿赐勇敢的神救赎我们脱离危险](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [2021年09月27日澳喜要闻（每日更新）](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [高盛前总裁在克里访华前，前往中共国进行勾兑](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本网络安全战略，中俄朝被列为发动网络攻击的国家](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [13岁孩子接种疫苗后心脏骤停](/content/gnews/15/README.md)
+### [【G时新闻】中共国发动了“世界上最大规模的跨国镇压”](/content/gnews/5/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共开始“种草”第三针 百姓或将再成推广“木偶”](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新南威尔士州：接种疫苗并不能阻止重症](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [《疫苗死亡报告》：真正的解决方案——早期治疗](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手](/content/gnews/19/README.md)
- ` 美国政要直译推`
-
-### [全球毒疫苗次生灾难突显，郭先生建议广大战友从长计议](/content/gnews/20/README.md)
+### [《GTV新闻访谈》简讯](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [澳洲纽省取消疫苗护照限制](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [阻塞墨尔本机场高速，卡车司机发起新的抗议行动](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [从最高视角看懂孟晚舟获释，华为和她本人的灾难刚刚开始](/content/gnews/23/README.md)
- ` YALUN 亚伦`
-
-### [2018年4月24日郭文贵先生视频全文听写二：在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/gnews/24/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [英国欲将中广核从新核电项目中剔除](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [剑指喜币！中共全面封杀虚拟货币相关业务](/content/gnews/26/README.md)
+### [从一则温情脉脉的倡议书看中共假骗偷实质](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [恒大危机蔓延至大户投资者](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [联盟工作汇报文字版2021.9.26](/content/gnews/8/README.md)
+ ` 纽约香草山MOS02`
 
-### [2018年4月24日郭文贵先生视频全文听写](/content/gnews/28/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [嫦娥不悔偷灵药](/content/gnews/9/README.md)
+ ` 纽约香草山MOS03`
 
-### [9/27/2021 七哥盖特: 请认真地思考未来两三年的生活方式和整个世界政治、社会的大变革](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
-
-### [习主席会怎么处理恒大](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [9/27/2021 七哥盖特:大家要对疫苗灾难带来的脑梗、心梗做好必要的防护](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
-
-### [因人口忧虑 中共国或要限制堕胎](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【路大脑袋逃窜记】 路大脑袋匆忙跑路🚮杂乱满屋！](/content/gnews/33/README.md)
- ` 新西兰新联邦新闻摘要`
-
-### [【路大脑袋逃窜记】路大脑袋疯狂潜逃😱掏空保险柜！](/content/gnews/34/README.md)
- ` 新西兰新联邦新闻摘要`
-
-### [【 G时新闻 】世卫组织组建新团队调查中共病毒起源](/content/gnews/35/README.md)
- ` 北美小哥`
-
-### [华尔街投资者对中国市场意见分歧](/content/gnews/36/README.md)
- ` 纽约香草山MOS01`
-
-### [文雍漫谈：破茧而出](/content/gnews/37/README.md)
- ` 文雍`
-
-### [拜登政府考虑对中国的工业补贴进行调查](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
-
-### [煤价太贵，污染严重是中共国停电的原因](/content/gnews/39/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [势同水火&#8211;接种疫苗让加拿大人之间的对立越来越深！](/content/gnews/40/README.md)
- ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
-
-### [《疫苗死亡报告》：只有疫苗接种者死亡](/content/gnews/41/README.md)
+### [马萨诸塞州几十名警察提交辞呈反对强制接种中共病毒疫苗](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [亚利桑那州司法部长表态“是时候进行战斗了”](/content/gnews/42/README.md)
- ` HimalayaRussia`
+### [融创公司子公司向绍兴市致信寻求援助](/content/gnews/11/README.md)
+ ` 纽约香草山MOS01`
 
-### [纽约人周六示威抗议疫苗护照](/content/gnews/43/README.md)
- ` HimalayaRussia`
+### [恶政限电不定时、无计划、无通知](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CCP百年百罪 合集（1-25 罪）](/content/gnews/44/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
 
-### [康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角](/content/gnews/45/README.md)
- ` 喜马拉雅日本银河系农场`
+### [叶天士“邪入血分”证对新疆出血热的启发](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
 
-### [每日快报： “我们面临巨大压力”——中国开发商现金紧缩波及融创](/content/gnews/46/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [美国将斥资19亿美元移除电信网络中的华为中兴设备](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [澳总理：澳大利亚对话中共的大门始终是敞开的](/content/gnews/47/README.md)
+### [德国大选社民党险胜 总理花落谁家有待组阁谈判](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [中共国房企的现金紧缺蔓延到融创](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [2018年4月26日郭文贵先生直播全文听写：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/gnews/18/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [回看郭先生过去的直播，媒体太重要了](/content/gnews/19/README.md)
+ ` 纽约香草山MOS03`
+
+### [澳洲议员抨击：强制接种疫苗与“种族隔离”无异](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9/27/2021国际财经快讯：美民主党同意3.5万亿美元法案；美国为加密货币规则奠定基础](/content/gnews/48/README.md)
- ` 秘密翻译组金融团队`
+### [有声| 愿赐勇敢的神救赎我们脱离危险](/content/gnews/21/README.md)
+ ` MOSREC`
 
-### [全球灭共大潮中翻起的漂亮浪花（二）](/content/gnews/49/README.md)
- ` 纽约香草山MOS02`
+### [2021年09月27日澳喜要闻（每日更新）](/content/gnews/22/README.md)
+ ` 澳喜农场`
+
+### [高盛前总裁在克里访华前，前往中共国进行勾兑](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本网络安全战略，中俄朝被列为发动网络攻击的国家](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [13岁孩子接种疫苗后心脏骤停](/content/gnews/25/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [新南威尔士州：接种疫苗并不能阻止重症](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《疫苗死亡报告》：真正的解决方案——早期治疗](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手](/content/gnews/28/README.md)
+ ` 美国政要直译推`
+
+### [阻塞墨尔本机场高速，卡车司机发起新的抗议行动](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [从最高视角看懂孟晚舟获释，华为和她本人的灾难刚刚开始](/content/gnews/30/README.md)
+ ` YALUN 亚伦`
+
+### [恒大危机蔓延至大户投资者](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [9/27/2021 七哥盖特: 请认真地思考未来两三年的生活方式和整个世界政治、社会的大变革](/content/gnews/32/README.md)
+ ` 秘密翻译组-北美组`
+
+### [习主席会怎么处理恒大](/content/gnews/33/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [9/27/2021 七哥盖特:大家要对疫苗灾难带来的脑梗、心梗做好必要的防护](/content/gnews/34/README.md)
+ ` 秘密翻译组-北美组`
+
+### [因人口忧虑 中共国或要限制堕胎](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【路大脑袋逃窜记】 路大脑袋匆忙跑路🚮杂乱满屋！](/content/gnews/36/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [【路大脑袋逃窜记】路大脑袋疯狂潜逃😱掏空保险柜！](/content/gnews/37/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [【 G时新闻 】世卫组织组建新团队调查中共病毒起源](/content/gnews/38/README.md)
+ ` 北美小哥`
+
+### [华尔街投资者对中国市场意见分歧](/content/gnews/39/README.md)
+ ` 纽约香草山MOS01`
+
+### [拜登政府考虑对中国的工业补贴进行调查](/content/gnews/40/README.md)
+ ` 纽约香草山MOS01`
+
+### [煤价太贵，污染严重是中共国停电的原因](/content/gnews/41/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [《疫苗死亡报告》：只有疫苗接种者死亡](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [亚利桑那州司法部长表态“是时候进行战斗了”](/content/gnews/43/README.md)
+ ` HimalayaRussia`
+
+### [纽约人周六示威抗议疫苗护照](/content/gnews/44/README.md)
+ ` HimalayaRussia`
+
+### [CCP百年百罪 合集（1-25 罪）](/content/gnews/45/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角](/content/gnews/46/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [每日快报： “我们面临巨大压力”——中国开发商现金紧缩波及融创](/content/gnews/47/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [澳总理：澳大利亚对话中共的大门始终是敞开的](/content/gnews/48/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9/27/2021国际财经快讯：美民主党同意3.5万亿美元法案；美国为加密货币规则奠定基础](/content/gnews/49/README.md)
+ ` 秘密翻译组金融团队`
 
 ### [朱立伦和国民党舔共卖台能得到继续尸位素餐的机会么](/content/gnews/50/README.md)
  ` 喜马拉雅日本银河系农场`

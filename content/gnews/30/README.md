@@ -2,125 +2,37 @@
 ---
 
 
-## 习主席会怎么处理恒大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559263/)
+## 从最高视角看懂孟晚舟获释，华为和她本人的灾难刚刚开始
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1559364/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-image0-8.jpg)
-[https://gtv.org/video/id=6152014cd2e2b817486ec9cc](https://gtv.org/video/id=6152014cd2e2b817486ec9cc)
+**作者：新西兰伊甸农场 亚伦**
 
-今天恒大
-Hoy Evergrande Group
 
-现在我救你, 我就得救所有人
-Si ahora te salvo, debo salvar a todos
 
-我不救你, 所有人都成为我的灾难, 那怎么办
-Si no te salvo, todas las personas se convertirán en mi desastre, ¿ qué debo hacer?
+**9月26日，文贵先生在GTV大直播中透露，华为的背后有两个“官方的爹”：一个是总参二部，就是解放军的情报部；一个就是习皇帝的姐夫老吴（习近平的姐夫是华为股东）。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/b128-84c62b02f53041f1078482bf28b2e8b4.png)
 
-所以内部决定, 地方的事
-Entonces, la zona interna decide que esto es asunto local
 
-地方的钱, 地方解决
-El dinero local se resuelve dentro de la región
+**华为是中共亲手打造的一个靠科技蓝金黄对付西方，利用通信系统特别是****5G****技术欲征服世界的平台。领头人任正非是当年给军队的领导搞农场、搞游泳池的。如果让华为的任何人，把华为的本质告诉了美国和西方****社会****，所有过去这些年埋在西方的偷取技术和蓝金黄网络将会全部暴露。**
 
-中央的事, 中央解决, 他们想把恒大给肢解了, 然后呢
-Los asuntos del gobierno central los resuelven ellos mismos, quieren desmembrar a Evergrande Group y luego
+**当然，包括美国的华尔街、甚至五角大楼里出卖美国国家利益的卖美贼，也将全部暴露。所以美国的卖国贼为了摆脱罪责也不希望孟引渡至美国受审。除了美国之外，也包括英国、德国、法国等被华为蓝金黄的官方人士，都在极力阻止孟晚舟引渡到美国。即便到现在，英国华为仍然有****2****万****6****千个华为的信号基站，现在一个都没拆。**
 
-全部各部委
-Todos los ministerios
+**总结孟晚舟可以在认罪下延迟起诉而脱身，主要有三个方面的原因：**
 
-所有承担责任
-Deben asumir las responsabilidades
+**一、这是与中共勾兑的这些西方国家“沼泽地”力量、情报机关最想要的结果，可以免于追查；**
 
-但是记住战友们, 给恒大出这个招的人
-Pero recuerden, compañeros luchadores, quien le dió este truco a Evergrande Group
+**二、华为第二个“亲爹”是习的亲姐夫老吴，华为股份的持有者。华为与****ZTE****中兴，这都是皇帝习家的私产。习可以用国家的名义和国家的外交力量，让孟晚舟回去；**
 
-一定是江派的人
-Debe ser del Partido de Jiang
+**三、也是最重要的，只有孟晚舟知道“钱路”。孟晚舟代持了任正非在海外至少隐藏的****3000****亿美元资产，因为资产是通过信托产品，必须要代持人本人出面签字，否则其他人是拿不走的。所以孟一定是要回去的，不然这****3000****亿美元就没了。**
 
-习派没有这样的人
-El Partido Xi no tiene este tipo de persona
+**但是孟晚舟认罪无判的回归，也引发了重大的影响。**
 
-他这样的出招, 就把整个中国的影子银行
-Este truco que hizo, dejó a todos los bancos de sombras de China
+**首先对于孟本身，是她个人悲剧的开始，她要么意外死掉，要么被控制着活一辈子。当一个人被贴了标签，被高高挂起在高位，那她一辈子都将是一个牺牲品，会死的会比王健惨一万倍。**
 
-保险机构、信托、所谓资金池子不在财富列表之内的
-Las instituciones de seguros, los fideicomisos y los denominados grupos de capital que no se incluyen en la lista de patrimonio
+**对国内政治斗争的影响，习通过孟晚舟事件告诫党内。只要跟习的，吃香的喝辣的，即使犯罪都能无罪接回来继续做民族大英雄，接受无脑小粉红和拿佣金举国旗的人顶礼膜拜。跟随王岐山的人，就是王健，陈峰的下场。跟随多家常委骑墙派的，就是许家印的下场。**
 
-这几十万亿全给隐藏住, 习100%用这个招
-Estas decenas de billones están todas ocultas y Xi usó este truco al 100%
+**最后文贵先生还告诉大家两点：孟晚舟回国会比去美国还惨，她结局会非常惨，被高高挂起不会超过****2025****年；华为的灾难，一切糟糕的事情，从孟晚舟回国开始。**
 
-今天记着我的话
-Recuerden lo que dije hoy
+**孟这穿着红裙一回国，彻底激怒了当时制裁华为的力量，美国的科技领域极右派，背后的****AT&T****、硅谷等公司。也包括金融领域的极右派，一定要灭掉华为自己才能赚钱的，再就是要废掉华为保美国根本的鹰派军方。华为成了中共和西方科技较量的第一杆枪，结局一定是被美国消灭。**
 
-也看到了很多人都被安抚了
-También verán a muchas personas que serán consoladas
-
-买房的交房, 欠钱的按期付款
-El comprador de la casa lo entregará, y el dinero adeudado se pagará a tiempo
-
-但不准上街闹事
-Pero no deben crear disturbios en la calle
-
-习一听
-Xi al escuchar esto
-
-这事很好, 阻止了各种其他房地产商
-Dijo, esto es algo bueno y ha detenido a varios agentes inmobiliarios
-
-来到我这闹事
-A crear problemas aquí
-
-那么现在我告诉大家
-Entonces ahora les digo a todos
-
-恒大倒不倒
-Evergrande Group caerá o no
-
-关键是第一张牌
-El punto crucial es la primera carta
-
-一定会让你惊艳
-De seguro te sorprenderá
-
-共产党的一堆办法
-El Partido Comunista tiene cantidades de soluciones
-
-就是要让恒大不倒
-Para que Evergrande Group no se caiga
-
-你会看到一堆措施
-Verás muchas medidas
-
-但是最终我告诉你
-Pero finalmente, te digo
-
-一定会倒
-Seguramente caerá
-
-而且倒的非常的惨
-Y de la manera más terrible
-
-而且许家印进不了监狱, 许加印一定是车祸死啊
-Además, Xu Jiayin no entrará al carcel, él será muerto de un accidente automovilístico
-
-心脏病死啊、自杀啊
-De un infarto, suicidio
-
-猝死等, 一定这结局
-Muerte súbita, entre otros, el final debe ser así
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24](https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24)
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**这也正和芯片联系在一起了，华为现在的主攻方向就是芯片，任正非在低调地研发芯片。芯片的较量，使华为会成为中国和西方世界敌对的核心，所以也将成为不管输赢的牺牲品。**

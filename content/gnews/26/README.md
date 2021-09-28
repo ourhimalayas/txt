@@ -2,22 +2,32 @@
 ---
 
 
-## 剑指喜币！中共全面封杀虚拟货币相关业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559354/)
+## 新南威尔士州：接种疫苗并不能阻止重症
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559460/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://imgcdn.yicai.com/uppics/images/2021/09/365c8d0a4a46b087328216ce32d79813.jpg)
-[图片来源](https://www.yicai.com/news/101184866.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1631968788523_G4B3FO3A2.1-2.jpg)图片来源：The West Australian
+**【雅典娜快讯】，紧贴时事脉搏**
 
-近日，中共多个部门发布《关于进一步防范和处置虚拟货币交易炒作风险的通知》、《关于整治虚拟货币“挖矿”活动的通知》，在此背景下，多家虚拟币交易所停新清退，虚拟币相关业务被定性为非法金融活动。
+**整理报道：**翼族
 
-据“第一财经”9月27日报道，火币、CoinTiger、BiKi等虚拟币交易所将暂停中国大陆身份的用户注册，并请原有大陆用户提现相关资产，后续将进行清退工作。报道还专门指出，币安KOL社区等相关平台仍在“顶风作案”，加密资产概念，将成为“敏感词汇”，境外虚拟货币交易所通过互联网向境内居民提供服务、境内人员为境外交易所工作，都属于违法行为，且虚拟币投资交易的合同无效。
+从昨天晚上8点钟之前的24小时内，新南威尔士州记录了863例新增本地感染中共病毒（COVID-19）的病例。自中共病毒流行以来，新南威尔士州记录的病例总数已经达到了60372例。
 
-虚拟币一直是中共洗钱和蓝金黄的工具，为了阻止喜币上市，中共不惜“自废功夫”，由此可见，喜币具有绝对的安全性，前景不可估量。
+令人伤心的是，新州卫生局同时报告了七名死亡病例——四名女性和三名男性。其中1人40多岁，1人50多岁，2人70多岁，2人80多岁，1人90多岁。
 
-信息来源：[合规”路被彻底堵死，虚拟货币交易所开始停新清退](https://www.yicai.com/news/101184866.html)
+七名死者中，三人完全接种了两剂疫苗，三人接种了一剂疫苗，一人未接种疫苗。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+自 2021年6月16日德尔塔病毒变种以来，新南威尔士州已记录316例与COVID-19相关的死亡，而自大流行一开始以来则总共有372例。
+
+目前新州有1155例住院病人，213人正在接受重症监护，其中113人需要呼吸机。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考链接：**[COVID-19 (Coronavirus) statistics](https://www.health.nsw.gov.au/news/Pages/20210928_00.aspx)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

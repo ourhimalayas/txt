@@ -2,27 +2,22 @@
 ---
 
 
-## 融创公司子公司向绍兴市致信寻求援助
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559615/)
+## 朝鲜向东部海域发射疑似弹道导弹
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559731/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+#### 翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-70.jpg)图片来源：半岛电视台
+据美联社韩国首尔报道，首尔参谋长联席会议和日本首相菅义伟都确认，朝鲜周二早些时候向朝鲜东部海域发射了一枚疑似弹道导弹，这是平壤一系列武器试验中的最新一次，使人们对其最近提出的与韩国谈判的诚意产生了疑问。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/text-SC-1.png)
-文章仅代表作者本人观点，与Gnews无关
+本月早些时候的弹道导弹和巡航导弹试验是朝鲜六个月来的首次此类发射，显示了其攻击韩国和日本目标的能力，这两个国家都是美国的重要盟友，共有8万名美国军队驻扎在这里。
 
-视频参看： 2021.09.27晚GTV新闻访谈
+但是，上周五和周六，朝鲜金与正向首尔伸出橄榄枝，称如果条件得到满足，朝鲜对恢复会谈和和解步骤持开放态度。一些专家认为朝鲜希望韩国帮助其缓解美国主导的制裁。韩国称她的声明是”有意义的”，但敦促朝鲜恢复已经休眠15个月的沟通渠道。
 
-[https://gtv.org/broadcast/watch/615261df42a8af3151a6a92a](https://gtv.org/broadcast/watch/615261df42a8af3151a6a92a)
+韩国总统文在寅上周在联合国发表讲话时，提议在朝韩两国、美国和中共国之间签署结束战争宣言。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+由美国主导的旨在说服朝鲜放弃核武器以换取经济和政治利益的外交努力已经停滞了两年半。美国官员多次表示希望进一步谈判，但也明确表示，对朝鲜的长期制裁将继续存在，直到朝鲜采取具体步骤实现无核化。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+虽然朝鲜已经测试了短程武器，并发誓要继续建设其核武库，但金正恩一直坚持暂停测试能够到达美国本土的长程武器，这表明他希望保持未来与美国进行外交谈判的机会。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[North Korea fires suspected ballistic missile into sea](https://apnews.com/article/south-korea-north-korea-joint-chiefs-of-staff-52bc6f2f467c4d02f34800a545d793fe)

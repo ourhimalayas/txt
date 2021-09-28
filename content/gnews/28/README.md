@@ -2,52 +2,60 @@
 ---
 
 
-## 2018年4月24日郭文贵先生视频全文听写
-` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1559282/)
+## 前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1559409/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-27-at-4.25.01-PM.png)
-视频链接：[https://www.youtube.com/watch?v=x8ruP\_lclcw](https://www.youtube.com/watch?v=x8ruP_lclcw)
+前白宫经济顾问皮特·纳瓦罗： 推特上的“取消文化”又开始(作怪)了。他们决定不允许我为我的推文做广告。很显然,真相刺激了他们泼妇般敏感的神经。这些人是谁？ 盖特(GETTR)是推特杀手。推特的“取消文化”正在摧毁美国。
 
-Guo Wengui’s Statement on the Persecution of Mr. Zhiyu Chen and Zhiheng Chen by the Chinese Government.
 
-On April 23, 2018, the Chongqing Public Security Bureau in China announced that the Chinese police arrested Mr. Zhiyu Chen and Mr. Zhiheng Chen.  The Chen brothers are Canadian citizens.  They have been accused of forging more than 30 top-secret official documents of the Chinese Communist Party Central Committee, the State Council, and their subordinate departments for me, and for forging information related to the massive overseas assets owned, illegitimate children, and mistresses of the top Chinese leaders.
 
-The Chongqing police released a tape as evidence, which was clearly edited.  I have released the full recording via social media (www.guo.media and YouTube: Guo Wengui). The entire tape shows that the Chen brothers were helping me to verify those documents by answering my questions.  Comparing the two recordings reveals that the Chongqing police has fabricated the evidence.
+> The cancel culture twits at Twitter are at it again. They have decided they won't allow me to advertise my tweets. Apparently truth offends their pearl-clutching sensibilities. Who ARE these people?
+> 
+> GETTR is the Twitter Killer. Twitter's cancel culture is destroying America.
+> — Peter Navarro (@RealPNavarro) [September 27, 2021](https://twitter.com/RealPNavarro/status/1442283619926564872?ref_src=twsrc%5Etfw)
 
-Both Mr. Zhiyu Chen and Mr. Zhiheng Chen hold Canadian passports.  Not long ago, they disappeared in Singapore.  All signs show that they were likely kidnapped and taken by force into the Mainland China.
 
-I have provided a great deal of documents in my possession to the U.S. law enforcement.  Some of which I released have been authenticated by the US authorities.
 
-As to the contents of my whistle blowing, I take legal responsibility for their truthfulness.
+美国务院发言人内德·普莱斯： 国务卿布林肯与新加坡外交部长[@VivianBala](https://twitter.com/VivianBala) 进行了交谈，并肯定了我们国家的密切伙伴关系。他们讨论了我们对印太地区、太空合作和应对气候危机的承诺。 【附国务院官网新闻】
 
-郭文贵声明：关于加拿大华人陈志煜与陈志恒被中国政府指控
 
-4月23日，中国的重庆公安局宣布，在今年2月18日逮捕了加拿大华人陈志煜与陈志恒兄弟。他们被指控为我伪造了三十多份中共中央、中国国务院以及属下部委的文件，以及中共高层在境外拥有巨额资产、私生子、情妇等信息。
 
-重庆公安局播放的录音证据，经过明显的剪接。我已经通过自媒体（www.guo.media and YouTube: Guo Wengui）放出了完整的录音，显示了陈氏兄弟在帮助我核实文件，回答我对原件中的一些疑问。对比两份录音，重庆公安的造假昭然若揭。
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) spoke with Singaporean Foreign Minister [@VivianBala](https://twitter.com/VivianBala?ref_src=twsrc%5Etfw) and affirmed our countries’ close partnership. They discussed our commitment to the Indo-Pacific region, space cooperation, and combatting the climate crisis. [https://t.co/D5Uai0fWpn](https://t.co/D5Uai0fWpn)
+> — Ned Price (@StateDeptSpox) [September 27, 2021](https://twitter.com/StateDeptSpox/status/1442609472128659459?ref_src=twsrc%5Etfw)
 
-陈志煜与陈志恒先生均为加拿大公民，在不久前在新加坡失踪。有迹象显示，他们是从新加坡被绑架去中国大陆的。
 
-我手上掌握的大量文件已经提供给美国执法部门，公布出来的少数文件是经过美国相关部门鉴证，肯定其真实性。
 
-对于我爆料中的内容，我保证其真实，并愿意承担一切法律后果。
+比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 通过恐怖主义人质外交取胜. 【转推称：孟晚舟和加拿大人质的交换是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和卖美贼幕后交易的的结果】
 
-\*\*\*\*\*\*END\*\*\*\*\*\*\*
 
-温哥华扬帆农场七哥直播全文听写组：
 
-听写整理——
+> China wins using terroristic hostage diplomacy [https://t.co/7D2hELRswq](https://t.co/7D2hELRswq)
+> — Bill Gertz (@BillGertz) [September 27, 2021](https://twitter.com/BillGertz/status/1442302993534128135?ref_src=twsrc%5Etfw)
 
-温哥华扬帆农场：Peter哥
 
-全文总校——
 
-温哥华扬帆农场：Peter哥
+众议院共和党领袖凯文·麦卡锡 ： 民主党正试图将4,300,000,000,000美元的 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 宠物项目强加给美国人民。 它会导致通货膨胀 这会让我们的孩子背上债务 它将会改变政府的模样,正如我们所知道的. 这是个很糟糕的协议——共和党人将全力而战. 【附福克斯新闻：麦卡锡关于众议院民主党人的开支闪电战】
 
-审核发布——
 
-温哥华扬帆农场：Peter哥
 
-全文发布稿总审核——
+> Democrats are trying to force $4,300,000,000,000 in socialist pet projects on the American people.
+> 
+> It would cause inflation.
+> It would saddle our children with debt.
+> It would transform government as we know it.
+> 
+> It’s a BAD DEAL—and Republicans will fight it tooth and nail. [pic.twitter.com/VEuUd0YW6o](https://t.co/VEuUd0YW6o)
+> — Kevin McCarthy (@GOPLeader) [September 27, 2021](https://twitter.com/GOPLeader/status/1442535002823036932?ref_src=twsrc%5Etfw)
 
-温哥华扬帆农场：文敏
+
+
+众议员马乔丽·泰勒·格林： 国会应该保护被困在阿富汗的美国人，关闭边境入侵，并帮助被 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发送给我们的病毒摧毁的小企业。 与之相反，民主党正在通过法案来谋杀子宫内直到出生前的胎儿。
+
+
+
+> Congress should be protecting Americans trapped in Afghanistan, shutting down the border invasion, and helping the small businesses destroyed by the virus sent to us by China. 
+> 
+> Instead, Democrats are passing bills to murder babies in the womb up until birth. 
+> 
+> (Part 1) [pic.twitter.com/6g7UJsUdrx](https://t.co/6g7UJsUdrx)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [September 27, 2021](https://twitter.com/RepMTG/status/1442548123092635652?ref_src=twsrc%5Etfw)

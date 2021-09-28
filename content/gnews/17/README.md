@@ -2,32 +2,42 @@
 ---
 
 
-## 新南威尔士州：接种疫苗并不能阻止重症
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559460/)
+## 中共国房企的现金紧缺蔓延到融创
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559580/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1631968788523_G4B3FO3A2.1-2.jpg)图片来源：The West Australian
-**【雅典娜快讯】，紧贴时事脉搏**
+栏目记者/责任编辑：AsG諾雅
 
-**整理报道：**翼族
 
-从昨天晚上8点钟之前的24小时内，新南威尔士州记录了863例新增本地感染中共病毒（COVID-19）的病例。自中共病毒流行以来，新南威尔士州记录的病例总数已经达到了60372例。
 
-令人伤心的是，新州卫生局同时报告了七名死亡病例——四名女性和三名男性。其中1人40多岁，1人50多岁，2人70多岁，2人80多岁，1人90多岁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-402.png)
 
-七名死者中，三人完全接种了两剂疫苗，三人接种了一剂疫苗，一人未接种疫苗。
 
-自 2021年6月16日德尔塔病毒变种以来，新南威尔士州已记录316例与COVID-19相关的死亡，而自大流行一开始以来则总共有372例。
 
-目前新州有1155例住院病人，213人正在接受重症监护，其中113人需要呼吸机。
+零对冲9月26日消息，融创公司的子公司在其房产销售项目受到当地住房禁令影响后，向绍兴市当局致信寻求援助，声称市场几乎被冻结，该公司面临巨大资金压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture1-6.jpg)
+消息传出后，融创的美元债于周五出现极速下滑，2024年到期的5.95%票据跌至历史最低价。而融创在“彭博中共国高收益美元债券指数”中的权重排名第三，仅次于凯撒和工商银行本月出售的高风险债券。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+实际上，融创公司在房企“三道红线”排名中比恒大状况好，其在全球三大信用风险评估机构中也拥有较高的投机级评级，其负债约为恒大的一半。但伴随房地产市场的下跌，及中共维持削减行业杠杆率和冷却住房销售活动的规则，财务状况比恒大好的公司也正在受到波及。该公司今年以来，股价已经跌了一半以上，而且正在寻求出售资产以筹集现金。
 
-**参考链接：**[COVID-19 (Coronavirus) statistics](https://www.health.nsw.gov.au/news/Pages/20210928_00.aspx)
+中共通过蓝金黄，多年来已经成功地把中资企业植入到了欧美等国的资本市场中，中资企业暴雷必将动摇各国经济和社会。当中共无以存续的时候，势必引爆经济炸弹，企图把西方各国拉进深渊，呼吁能够听到爆料革命声音的投资方及早止损出局。
 
-*编辑/发布：翼族*
+（本文仅代表作者观点）
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：
+1. [中共国房企的现金紧缺蔓延到融创](https://www.zerohedge.com/markets/we-face-huge-pressure-chinas-developer-cash-crunch-spreads-sunac)
+2. [中共国房企的现金紧缺蔓延到融创](https://www.futunn.com/en/stock/01918-HK)
+3. [中共国房企的现金紧缺蔓延到融创](http://house.hexun.com/2021-07-27/204039066.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+
+终审编辑：瑞卡
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-406.png)

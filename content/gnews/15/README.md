@@ -2,35 +2,35 @@
 ---
 
 
-## 13岁孩子接种疫苗后心脏骤停
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559472/)
+## 美国将斥资19亿美元移除电信网络中的华为中兴设备
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559583/)
 
-加拿大多伦多枫叶农场 – 视频字幕：Kent 文字翻译：云起时
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-90.png)
+图片来自网络
 
-视频文字（中文）：
+近几天，华为“大公主”孟晚舟与美国法院达成暂停起诉协议，被释放并返回中共国的消息，成为了全球关注的焦点。在中共国大肆将孟晚舟宣传成不屈服、不认罪的“民族英雄”的同时，美国共和党的一些议员也对拜登政府的这一让步提出了严厉批评。
 
-我的女儿刚刚从学校联系我，非常的难过和生气。她的一个朋友，正在哈利法克斯的医院里接受重症监护，因为她的心脏在她一打完疫苗之后就停跳了。 她现在情况很不好，无法呼吸，她的心脏一直在停止跳动。她今年才13岁！13岁！她的心脏居然停止跳动了！你们有多少人听说过一个13岁的孩子会心脏停跳？ 而这就是我们的政府正在强迫我们所有人和我们的孩子做的事。一个13岁的女孩在新斯科舍省哈利法克斯市, 现在正躺在医院里，因为她的心脏在注射疫苗后停止跳动了。
+不过，据《纽约时报》披露，美国司法部表示，会使用孟晚舟承认的犯罪事实去起诉华为。如果上述消息属实，那么在孟晚舟事件上，中共和华为是赢了面子，输了里子。接下来人们关注的焦点是：美国究竟会否对华为网开一面。
 
-这是我女儿的朋友，她曾在我家里待过，她曾在我的餐桌上与我共进晚餐。 这可能会是你的孩子，可能会是你的侄女、侄子、孙子女。你的邻居。 这些人到底有什么毛病？由于这种疫苗，世界各地都有儿童死亡，世界各地都有成人死亡，甚至美国食品和药物管理局都已经告诉了你们，但我们的政府仍在强迫人们接种疫苗，才能够参与社会活动。
+据《大纪元》9月28日报道，美国联邦通信委员会（FCC）周一（9月27日）宣布，将启动一项19亿美元的项目，资助美国农村电信运营商移除华为和中兴等被视为威胁美国国家安全的网络设备。该项目于今年7月敲定，将于10月29日开始接受申请，并截止到2022年1月14日结束。
 
-你知道关于这孩子的这件事最糟糕的部分是什么吗？ 是她在我家里说，她不想接种疫苗，如果她不打算接种疫苗的话，她的父母将尊重她的决定，但当我们的省长休斯顿先生决定强制要求孩子们接种疫苗才能够参加体育运动，她觉得自己别无选择，只能接受，因为她喜欢踢足球。 你们怎么敢，对我们的孩子做这样的事情
+根据FCC在2020年9月所做出的预算，从网络中移除和替换华为和中兴的设备，将花费18.37亿美元。
 
-视频文字（英文）：
+去年，美国联邦通信委员会将华为和中兴的网络设备，指定为威胁美国通信网络安全及威胁国家安全。这一声明叫停了美国公司动用83亿美元的政府资金，从这两家中共国公司购买设备的计划。不仅如此，去年12月，美国联邦通信委员会又制定了一项规定，要求拥有中兴或华为设备的运营商“拆除并更换”这些设备。
 
-So my daughter，Just contacted me from school。 Very upset。 One of her friends ，is now in critical care in the hospital here in Halifax because her heart stopped, right after she had a vaccine!
+对于农村运营商来说，拆除和更换设备将面临高昂的成本，而且难以找到工人来做。FCC的最终命令将有资格获得补贴的公司的范围，从拥有200万或更少客户的公司，扩大到拥有1000万或更少客户的公司。
 
-She’s not well right now she can’t breathe, her heart keeps stopping. She’s 13 years old！13 years old！And her heart stopped! How many of you know a 13-year old whose heart stops?
+今年6月，美国联邦通信委员会又投票通过一项决议，禁止华为和中兴等被认为对美国国家安全构成威胁的中共国公司，向美国电信网络提供设备；同时，联邦通信委员会还可能撤销此前发给中共国公司的设备授权。
 
-And this is what our government is forcing on all of us and our children. A 13-year-old girl in Halifax Nova Scotia is in the hospital right now because her heart stopped after the vaccine.
+此外，在今年3月，联邦通信委员会还根据2019年的一项旨在保护美国通信网络的法律，认定五家中共国公司对美国国家安全构成威胁。这五家公司包括之前指定的华为公司和中兴通讯，以及海能达通信股份有限公司、杭州海康威视数码科技有限公司和浙江大华科技有限公司。
 
-That’s my daughter’s friend. She’s been in my home. She’s had dinner with me at my table. That could be your child, could be your niece your nephew your grandchild, your neighbour. What the fxx hells wrong with you people!
+在此前的2020年8月，美国政府就已禁止联邦机构从这五家中共国公司购买商品或服务。
 
-There are children dying all over the world, there are adults dying all over the world, from this vaccine. The FDA has even told you. But yet our government is still forcing people to be vaccinated to be able to partake in society. 
+由此可见，拜登政府的某些人或许和中共有某种桌子底下的交易，但在民主国家，即便是总统，也不能一手遮天、肆意妄为。对孟晚舟的暂缓起诉，并不代表对华为的松绑。美国白宫发言人就已表示，与孟晚舟达成协议纯属法律考量，美国对中共国与华为的政策不变。
 
-Do you want to know what the worst part of this is with this child? Is that she was in my house saying, she didn’t want the vaccine if she wasn’t going to get the vaccine. And her parents respected her decision. But when our premier Mr Houston decided to mandate vaccines for children to be able to play sports, she felt she had no other choice but to take it because she loves playing soccer. 
+爆料革命和新中国联邦创始人郭文贵先生也对此给出了他的判断：孟晚舟和华为的噩梦或许才刚刚开始。
 
-How dare you do this to our children!
+注：本文仅代表作者观点
 
-* * *
-
-编辑/ 发稿 云起时
+**新闻链接：**[https://twitter.com/dajiyuan/status/1442642718077894657](https://twitter.com/dajiyuan/status/1442642718077894657)

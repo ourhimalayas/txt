@@ -2,35 +2,59 @@
 ---
 
 
-## 美国将斥资19亿美元移除电信网络中的华为中兴设备
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559583/)
+## 《GTV新闻访谈》简讯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559682/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-90.png)
-图片来自网络
+栏目记者/责任编辑：文一
 
-近几天，华为“大公主”孟晚舟与美国法院达成暂停起诉协议，被释放并返回中共国的消息，成为了全球关注的焦点。在中共国大肆将孟晚舟宣传成不屈服、不认罪的“民族英雄”的同时，美国共和党的一些议员也对拜登政府的这一让步提出了严厉批评。
 
-不过，据《纽约时报》披露，美国司法部表示，会使用孟晚舟承认的犯罪事实去起诉华为。如果上述消息属实，那么在孟晚舟事件上，中共和华为是赢了面子，输了里子。接下来人们关注的焦点是：美国究竟会否对华为网开一面。
 
-据《大纪元》9月28日报道，美国联邦通信委员会（FCC）周一（9月27日）宣布，将启动一项19亿美元的项目，资助美国农村电信运营商移除华为和中兴等被视为威胁美国国家安全的网络设备。该项目于今年7月敲定，将于10月29日开始接受申请，并截止到2022年1月14日结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-根据FCC在2020年9月所做出的预算，从网络中移除和替换华为和中兴的设备，将花费18.37亿美元。
 
-去年，美国联邦通信委员会将华为和中兴的网络设备，指定为威胁美国通信网络安全及威胁国家安全。这一声明叫停了美国公司动用83亿美元的政府资金，从这两家中共国公司购买设备的计划。不仅如此，去年12月，美国联邦通信委员会又制定了一项规定，要求拥有中兴或华为设备的运营商“拆除并更换”这些设备。
 
-对于农村运营商来说，拆除和更换设备将面临高昂的成本，而且难以找到工人来做。FCC的最终命令将有资格获得补贴的公司的范围，从拥有200万或更少客户的公司，扩大到拥有1000万或更少客户的公司。
 
-今年6月，美国联邦通信委员会又投票通过一项决议，禁止华为和中兴等被认为对美国国家安全构成威胁的中共国公司，向美国电信网络提供设备；同时，联邦通信委员会还可能撤销此前发给中共国公司的设备授权。
 
-此外，在今年3月，联邦通信委员会还根据2019年的一项旨在保护美国通信网络的法律，认定五家中共国公司对美国国家安全构成威胁。这五家公司包括之前指定的华为公司和中兴通讯，以及海能达通信股份有限公司、杭州海康威视数码科技有限公司和浙江大华科技有限公司。
+►周一下午，美国总统乔-拜登在电视直播中接受了新冠疫苗加强针，此前几天，美国疾控中心支持为数百万在六个月前接受辉瑞公司疫苗第二针的美国人打加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-5.jpg)
+►美国务院发言人内德-普莱斯的病毒检测呈阳性，将被隔离。讽刺的是，普莱斯在一条推文中说：“我感觉不是很舒服，但对安全有效的疫苗所提供的对重症的保护表示感谢。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.2-3.jpg)
+►据总部位于纽约的数据服务机构布尔比奥（Burbio）称，本学年到目前为止，43个州的539个地区的近2200所学校因中共病毒疫情而不得不暂时关闭。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.3-1.jpg)
+►联邦调查局报告说，在中共病毒大流行期间，2020年的谋杀案增加了近30%，这是该局自六十年前开始记录犯罪统计数据以来最大的单年跳跃。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.4-1.jpg)
+►“与星共舞”本赛季职业选手谢丽尔-伯克，周日在视频中含泪宣布病毒检测呈阳性。这位早打了Moderna疫苗的舞者说，根据CDC对检测出阳性的疫苗接种者的指导方针，她必须在家里隔离10天。 疫情并未因疫苗的普及而受控，反而越来越严重，越来越扩散，并导致各种次生灾害事件频发，政客和所谓权威机构却还在为医药公司站台作秀撒谎推打疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.5-1.jpg)
+参考链接：
+[Biden gets vaccine booster shot; Arizona judge finds ban on school mask mandates unconstitutional: COVID-19 updates](https://www.msn.com/en-us/news/us/biden-gets-a-vaccine-booster-shot-thousands-of-new-york-health-care-workers-could-lose-jobs-as-soon-as-today-covid-19-updates/ar-AAORrao)
 
-在此前的2020年8月，美国政府就已禁止联邦机构从这五家中共国公司购买商品或服务。
+[推文：After experiencing symptoms for the first time this morning, I tested positive for COVID-19 shortly thereafter, & will now quarantine for the next 10 days. I’m feeling under the weather but am grateful for the protection from severe illness offered by safe and effective vaccines.](https://twitter.com/statedeptspox/status/1442558871395045376?s=21)
 
-由此可见，拜登政府的某些人或许和中共有某种桌子底下的交易，但在民主国家，即便是总统，也不能一手遮天、肆意妄为。对孟晚舟的暂缓起诉，并不代表对华为的松绑。美国白宫发言人就已表示，与孟晚舟达成协议纯属法律考量，美国对中共国与华为的政策不变。
+[K-12 School Reopening Trends](https://info.burbio.com/school-tracker-update-latest/)
 
-爆料革命和新中国联邦创始人郭文贵先生也对此给出了他的判断：孟晚舟和华为的噩梦或许才刚刚开始。
+[FBI: Record surge in 2020 murders; nearly 30% increase drives spike in violent crime](//www.usatoday.com/story/news/politics/2021/09/27/fbi-reports-2020-murder-surge-biggest-single-year-jump/5886792001/%20violent%20crime)
 
-注：本文仅代表作者观点
+[‘DWTS’ pro Cheryl Burke tests positive for COVID, tearfully apologizes to dance partner Cody Rigsby](https://www.usatoday.com/story/entertainment/tv/2021/09/27/dwts-cheryl-burke-cody-rigsbys-partner-tests-positive-covid/5880823001/)
 
-**新闻链接：**[https://twitter.com/dajiyuan/status/1442642718077894657](https://twitter.com/dajiyuan/status/1442642718077894657)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

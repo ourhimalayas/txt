@@ -2,53 +2,35 @@
 ---
 
 
-## 英国欲将中广核从新核电项目中剔除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559355/)
+## 13岁孩子接种疫苗后心脏骤停
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559472/)
 
-栏目记者/责任编辑：AsG諾雅
+加拿大多伦多枫叶农场 – 视频字幕：Kent 文字翻译：云起时
 
+视频文字（中文）：
 
+我的女儿刚刚从学校联系我，非常的难过和生气。她的一个朋友，正在哈利法克斯的医院里接受重症监护，因为她的心脏在她一打完疫苗之后就停跳了。 她现在情况很不好，无法呼吸，她的心脏一直在停止跳动。她今年才13岁！13岁！她的心脏居然停止跳动了！你们有多少人听说过一个13岁的孩子会心脏停跳？ 而这就是我们的政府正在强迫我们所有人和我们的孩子做的事。一个13岁的女孩在新斯科舍省哈利法克斯市, 现在正躺在医院里，因为她的心脏在注射疫苗后停止跳动了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+这是我女儿的朋友，她曾在我家里待过，她曾在我的餐桌上与我共进晚餐。 这可能会是你的孩子，可能会是你的侄女、侄子、孙子女。你的邻居。 这些人到底有什么毛病？由于这种疫苗，世界各地都有儿童死亡，世界各地都有成人死亡，甚至美国食品和药物管理局都已经告诉了你们，但我们的政府仍在强迫人们接种疫苗，才能够参与社会活动。
 
+你知道关于这孩子的这件事最糟糕的部分是什么吗？ 是她在我家里说，她不想接种疫苗，如果她不打算接种疫苗的话，她的父母将尊重她的决定，但当我们的省长休斯顿先生决定强制要求孩子们接种疫苗才能够参加体育运动，她觉得自己别无选择，只能接受，因为她喜欢踢足球。 你们怎么敢，对我们的孩子做这样的事情
 
+视频文字（英文）：
 
+So my daughter，Just contacted me from school。 Very upset。 One of her friends ，is now in critical care in the hospital here in Halifax because her heart stopped, right after she had a vaccine!
 
+She’s not well right now she can’t breathe, her heart keeps stopping. She’s 13 years old！13 years old！And her heart stopped! How many of you know a 13-year old whose heart stops?
 
-德国之声9月26日援引英国《卫报》周六独家消息，英国政府正接近达成一项协议，将中共国有的广核集团（CGN）从一个价值200亿英镑的Sizewell C核电厂兴建计划中剔除，转而用纳税人的税款进行投资，继续与法国EDF电力公司合作完成兴建，这可能导致目前持有该核电站20%股份的中广核被剔除。
+And this is what our government is forcing on all of us and our children. A 13-year-old girl in Halifax Nova Scotia is in the hospital right now because her heart stopped after the vaccine.
 
-中广核已经与法国EDF电力公司合作，建造预计2025年竣工的英国西南部欣克利角（Hinkley Point）核电设施。
+That’s my daughter’s friend. She’s been in my home. She’s had dinner with me at my table. That could be your child, could be your niece your nephew your grandchild, your neighbour. What the fxx hells wrong with you people!
 
-近期，英国因间谍活动、网络攻击、人权等议题与中共国关系紧张。面对保守党内人士要求对北京采取更强硬立场的压力，英国首相约翰逊今年早些时候对国会议员表示，要建立“清醒的对华关系”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-128.jpg)
-2020年，英国已宣布，2027年底前从5G建设中移除所有华为设备。
+There are children dying all over the world, there are adults dying all over the world, from this vaccine. The FDA has even told you. But yet our government is still forcing people to be vaccinated to be able to partake in society. 
 
-中共无视中英声明，悍然对香港民众和平的反送中运动采取激进的镇压措施，世界各国都看在眼里，英国作为香港曾经的管理者，为了保护自身的利益和形象，都不可能视而不见，采取剔除华为、中广核等的中资投资项目也许只是脱钩的开始。
+Do you want to know what the worst part of this is with this child? Is that she was in my house saying, she didn’t want the vaccine if she wasn’t going to get the vaccine. And her parents respected her decision. But when our premier Mr Houston decided to mandate vaccines for children to be able to play sports, she felt she had no other choice but to take it because she loves playing soccer. 
 
+How dare you do this to our children!
 
+* * *
 
-参考链接：
-[英媒：英国欲将中广核踢出核电项目](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E6%AC%B2%E5%B0%86%E4%B8%AD%E5%B9%BF%E6%A0%B8%E8%B8%A2%E5%87%BA%E6%A0%B8%E7%94%B5%E9%A1%B9%E7%9B%AE/a-59315471)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+编辑/ 发稿 云起时

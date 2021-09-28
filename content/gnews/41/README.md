@@ -2,43 +2,101 @@
 ---
 
 
-## 《疫苗死亡报告》：只有疫苗接种者死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1558761/)
+## 煤价太贵，污染严重是中共国停电的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559119/)
 
-#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
-翻译：致敬香港！
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
-1918 年的“西班牙流感”可能导致了5千万到 1 亿人的死亡，医疗科学家埃莉诺·麦克比恩博士（Eleanor McBean）是这个历史事件的目击证人，她把自己的亲身经历写成了书，阐述了当时其实并没有什么流感，而是给人们大规模、强制性地接种疫苗导致了貌似流感的病症，以及一系列其它疾病和大量死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/123-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=6151d1ead2e2b817486ebb99](https://gtv.org/video/id=6151d1ead2e2b817486ebb99)
 
-**她没有听说过任何一例未接种疫苗的人死于这场所谓的“西班牙流感”，而当时大多数的疫苗接种者都丧生了。**
+**郭文贵
+Miles**
 
-“我是 1918 年西班牙大流感的亲历者。所有经历了这场流感的医生和民众都说这是有史以来最可怕的疾病。一个体格强健的人，前一天还神采奕奕、精力充沛，第二天却瞬间病逝了。这种病的症状，是黑死病加上伤寒、白喉、肺炎、天花、麻痹症以及一战后人们随即接种预防的各种疾病的总和。当时几乎全部人口都因注射疫苗而“种下”了十几种、甚至更多的疾病，或者血清变得有毒性。当这些经医生手造的疾病后来一下子爆发的时候，情况惨不忍睹。这场瘟疫持续了两年，为了续命，医生们开出更多有毒副作用的药品来抑制症状。
+刚才很多战友说这个安徽啊，广东啊，江苏大范围停电
+Just now, many comrades in arms said that Anhui, Guangdong, and Jiangsu had a large-scale power outage.
 
-**在我所了解的范围内，流感受害人都是疫苗接种者，而拒绝接种的却都幸免于难。我的家人都拒绝了接种，而我们一直都很好。我们从格雷厄姆（Graham**译者注：牧师、美国素食主义先驱**）、特雷尔（Trail）、提尔顿（Tilden**译者注：美国内科医生**）和其他人的健康教义中了解到，毒害性物质进入人体后是一定会引发疾病的。**
+为啥，跟打台湾没有任何关系，
+Why？ It has nothing to do with attacking Taiwan
 
-在流感疫情的顶峰时期，所有的商店、学校、企业，甚至连医院都关门了，因为医生和护士也接种并感染了，街道空无一人，像一座鬼城。当时根本找不到医生了，我们没有打过疫苗的家庭似乎是仅存的没被感染的，所以我的父母尽己所能、挨家挨户地去照顾邻里病患。如果说疫情是病菌、细菌、病毒或杆菌导致的，那我的父母每天都在患者房间里很多个小时，他们被感染的几率是高危的，然而他们没有染病，也没带回任何感染孩子的病菌、或造成任何其它后果，我们全家都没有感染。在那样的遍地积雪的冬天，我们连鼻涕都没流。
+它停电是因为煤价越来越高
+It’s power outages because coal prices are getting higher and higher
 
-**1918 ****年的流感疫情据说造成了全世界 2000 万人死亡，可实际的罪魁祸首是医生们粗暴、致命的疗法和药物。这个指控虽然尖锐、但却是事实，对比当时自然疗法与医药疗法各自的治愈率，就可以得出结论。**
+煤价越来越高，发出来的电赔钱
+The price of coal is getting higher and higher, and the generated electricity lose money
 
-当33% 的流感病患在医院里失去生命的时候，自然疗法机构——比如巴特克里市療養院（BATTLE CREEK）、凯罗葛和麦克法登的康复中心（KELLOGG and MACFADDEN’S HEALTH-RESTORIUM）——采用水疗、药浴、灌肠、禁食及一些其他的简单疗法，加上精心配套的自然饮食，治愈率几乎100% ，其中一位保健医生在八年里无一例患者死亡。关于这些非常成功的、无一例患者死亡的自然疗法医生们，本书稍后将发表的另一章节会介绍其中的一位，标题为《疫苗有罪》（VACCINATION CONDEMNED）。如果药物疗法能和自然疗法同样地高瞻远瞩，就不会有 2000 万人死于流感医药。
+现在国内呢，是收你1块的电费，赔大概7分钱，赔7分钱
+Now in China, it charges you 1 yuan for the electricity bill, and loses about 7 cents
 
-**接种过疫苗的士兵染病人数比未接种的民众染病人数还要多七倍，而且他们染的病全是他们接种疫苗为了预防的。**
+它不愿意发电，再一个呢，现在更夸张的事情
+It doesn’t want to generate electricity now, and one more thing now is even more exaggerated
 
-一位1912年从海外归来的士兵告诉我，部队医院里到处都是小儿麻痹症患者，他不明白为什么成年人会染上幼童疾病。我们现在已经知道，麻痹症是疫苗中毒的常见后遗症。在1918 年全球展开疫苗接种之后，本国人当中才开始出现瘫痪。”
+这个污染啊，这个污染的越来越厉害
+This pollution, this pollution is getting worse and worse
 
-**“有七名男性在接种疫苗后当场死在医生的诊疗室里，而他们的家人收到信函通知，说他们在军事行动中牺牲。”**
+因为大家都是乱整嘛，所以说现在是很大的问题
+Because everyone is messy, so it’s a big problem now
 
-——埃莉诺·麦克比恩博士、自然疗法医生
+缺电，缺到啥程度呢，你都很难想象
+It’s hard to imagine the lack of electricity to what extent
 
-她提供的医疗专业证词后来得到了尸检的验证，灾难的确并非起源于流感，而是由剂量随机的、实验性的“细菌性脑膜炎疫苗”所引发的，这种疫苗至今仍可以导致与流感非常相似的症状。正是这些不断追加的疫苗，大规模、多次攻击了军人和民众们毫无防备的免疫系统，才形成了这个“万人冢”，而未接种的人没有受到伤害。
+只有中共国能做得到，过去需要1度电
+Only the Communist Party of China can do it. In the past, 1 kWh of electricity was needed
 
-参考资料：
+现在呢，能满足你0.4度电
+but now, only provide your 0.4 kilowatt of electricity
 
-1：[https://educate-yourself.org/cn/flu1918andnow07feb04.shtml](https://educate-yourself.org/cn/flu1918andnow07feb04.shtml)
+没有一个真正的工业文明国家说突然缺电能缺10%以上
+There is no real industrial civilization country that sudden power shortage is more than 10%
 
-2：[https://salmartingano.com/2020/05/the-1918-spanish-flu-only-the-vaccinated-died/](https://salmartingano.com/2020/05/the-1918-spanish-flu-only-the-vaccinated-died/)
+铲侠你当律师，你懂这道理
+ChanXia, you are a lawyer, you know the reason
 
-[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
+没有一个国家说你家里吃饭吃了一年了
+There is no country like China, where people have been eating at home for a year
 
-**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)
+突然缺粮，缺50%
+and then suddenly there is a shortage of food, a 50% shortage
+
+现在这个当家的有问题了，是吧
+Now this person in charge has a problem, right?
+
+那怎么可能啊，说明这个中共国它就一切都是假的
+How is that possible? It means that everything is fake in this Chinese Communist country
+
+当进口的所有的东西满足不了的时候
+When all the imported things are not enough
+
+全都傻了啊，物价上去，工资上不去
+The people are all stunned, prices go up, wages can’t go up
+
+物价这个价格很高，然后呢，原材料供应又接不了
+Prices are high, but raw materials are not available
+
+还跟澳大利亚又打又闹的
+They’re still fighting the raw materials with Australia
+
+那你不是欠揍嘛，是不是
+So you’re brainless, are you?
+
+所以它必须缺电，它没有一个真正的国家领导的能力和组织
+So it must be short of electricity, it does not have the ability and organization of a true national leadership
+
+原因，就是煤太贵，发电成本太贵，而且污染很高
+The reason is that coal is too expensive, the cost of power generation is too expen-sive, and the pollution is so severe
+
+最后结局，停电
+It will only end in a power outage
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
