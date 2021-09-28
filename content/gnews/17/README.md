@@ -2,19 +2,21 @@
 ---
 
 
-## 日本将中俄朝三国视为网络安全威胁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559867/)
+## 数百名康州校车司机罢工抗议疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559912/)
 
 #### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture1-2-1.jpg)图片来源：The Japan Times
-日本《共同通讯社》(Kyodo News) 9月27日报道称，日本政府9月27日通过了一项未来三年的网络安全战略草案，首次将中共国、俄罗斯和朝鲜列为网络攻击威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-3.jpg)图片来源：News Break
+据《布雷特巴特新闻网》（Breitbart News）9月27日报道，康涅狄格州要求州政府雇员接种中共病毒疫苗的命令本周一（9月27日）开始生效，预计有数百名校车司机将罢工以示抗议。
 
-该草案预计不久会被内阁批准，它指出网络空间“有迅速演变为严重事态的风险”，中俄朝三国正在建设和加强其网络能力，有进行网络攻击窃取信息的可能性。日本将利用一切可用的有效手段和能力采取严厉的反击措施，包括外交手段和刑事起诉。
+康州州长内德·拉蒙特 (Ned Lamont)在8月中旬宣布了疫苗强制令，要求州政府工作人员、学校雇员和儿童护理员在9月27日之前至少接种一剂疫苗。那些符合“某些豁免”条件的人需要每周接受核酸检测。尽管州长办公室明确表示，该州医院的工作人员 “将不能选择以核酸检测代替疫苗接种”。
 
-内阁官房长加藤胜信（Katsunobu Kato）敦促网络安全战略总部的成员“与地方政府合作，同时充分考虑获得公众的信任，稳步实施战略中所述的各项举措”。战略草案说，日本将加快与四国框架伙伴美国、澳大利亚和印度，以及东南亚国家联盟（东盟）在网络领域的合作，以确保网络空间自由、公平和安全，和实现印太地区的自由和开放。这显然是为了对抗中共国日益增长的影响力。
+美国学校运输协会（National School Transportation Association）说康州有多达350名校车司机预计会罢工，以抗议疫苗强制令。目前康州有1500名司机没有接种疫苗。1300人已经同意每周进行核酸检测来代替疫苗接种。其余的人拒绝接种疫苗或每周接受检测。
 
-草案还透露，为了消除对经济活动的威胁，有必要确保像海底电缆这样的关键基础设施得到充分的保护，并为信息技术设备设立新的安全与可靠性标准。
+康涅狄格州公立学校校长协会（CAPSS）的执行主任弗兰·拉比诺维茨（Fran Rabinowitz）说：“他们将尽一切可能，并与他们的巴士公司合作，让尽可能多的学生上学，这可能意味着再增加一倍数量的巴士。”
 
-新闻来源：[Japan names China, Russia, North Korea as threats in cyberspace](https://english.kyodonews.net/news/2021/09/24ce55dd144e-japan-names-china-russia-n-korea-as-threats-in-cyberspace.html)
+然而拉蒙特政府仍坚持其立场。内德·拉蒙特的通讯主管马克思·雷斯（Max Reiss）说：“我们相信，康州的父母都希望他们的孩子，特别是那些未接种疫苗的孩子周围的人都接种了疫苗。”
+
+新闻来源：[Hundreds of School Bus Drivers Expected to Skip Work over Connecticut Vaccine Mandate](https://www.breitbart.com/politics/2021/09/27/hundreds-of-school-bus-drivers-expected-to-skip-work-over-connecticut-vaccine-mandate/)

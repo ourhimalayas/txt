@@ -2,45 +2,63 @@
 ---
 
 
-## 澳大利亚的新闻自由正在受到严重威胁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559842/)
+## [财务反思]黄金和白银的五种不同特性，更好分散投资
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559884/)
 
-#### 翻译：文扬
-校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-41.png)
-图片来源：AL Jazeera
+作者：纽约香草山金融部 – 闲聊钱币
 
-据一位前媒体高管称，维多利亚州警方最近在墨尔本抗议活动期间对媒体的严厉对待发出了一个“令人震惊的危险信号”，表明澳大利亚的新闻自由正在受到严重威胁。
 
-墨尔本警方的攻击性行为，包括对摄影师使用胡椒喷雾剂、逮捕记者，以及在上周颁布禁令，阻止新闻机构空中航拍抗议活动的画面并现场直播，都引发了人们对警方不适当干预媒体对重要新闻事件报道的质疑。
 
-前资深电视新闻主管斯蒂夫·凯里（Steve Carey），其35年的职业生涯中，他曾在七频道、九频道和美国广播公司工作过，他说维州警方这次在中共病毒大流期间“走得太远”。
 
-“警察指挥部试图关闭领空，并试图阻止媒体履行其职责，这绝对是一个错误的决定”，他说：“这是一个令人震惊的危险信号。”
 
-上周，多家媒体机构在法院提起诉讼，指控民航安全局应维多利亚州警方的要求执行了一项（关闭领空）决定。
 
-在维州警方的要求下，民航安全局决定阻止媒体飞越墨尔本中央商务区，此举禁止了媒体对正在进行的抗议活动进行空中拍摄，也限制了媒体对抗议活动进行现场报道的能力。
 
-在向联邦法院提出申请后，该决定被撤销了，此事将在本周五（10月1日）再次提交法庭审理。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
 
-七频道的墨尔本新闻播报员迈克·阿莫尔痛斥维州警方行为，“限制直升机使用的空域，这个举动不属于民主国家。”
 
-9月18日，为《时代报》（The Age）工作的自由摄影师路易斯·阿斯奎（Luis Ascui）正在报道抗议活动时，遭到维州警察的胡椒喷雾袭击。当时他拿着三台相机，尽管他脖子上挂着记者证，维州警察可以清晰辨别出他是一名记者，而且身边还有一名保安。
 
-“你本应提防抗议者，但现在你必须提防警察，”阿斯奎说。
 
-今年早些时候，《先驱太阳报》记者奥利维亚·詹金斯和摄影师杰克·诺瓦科夫斯基在报道墨尔本市中心反对强制疫苗接种抗议示威活动时，被维多利亚警方戴上手铐。
 
-警方后来为这一事件道歉，维州警察部长丽莎·内维尔的一位女发言人敦促警方和媒体共同合作，但警方没有对涉及媒体的具体问题作出回应。
 
-新闻链接：[Subscribe to The Australian | Newspaper home delivery, website, iPad, iPhone & Android apps](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a_TWT&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fbusiness%2Fmedia%2Ftv-veteran-steve-carey-says-victoria-police-is-trying-to-stop-the-reporting-of-breaking-news%2Fnews-story%2F2e9da82ea3756fa9e9825a9caf0ecf44&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-cold-control-noscore&amp;V21spcbehaviour=append)
 
-发布：文泓
+摩根士丹利的经济学家在最新出炉的大宗商品报告中对黄金和白银市场进行了差异分析。他们称许多投资者正在寻找方法以应对疫情及疫情之后所有的不确定性。其中一些人的解决方案包括投资贵金属，如黄金和白银。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5-6.jpg)
+报告将这些观点分成5个关键部分
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+1. 白银与全球经济的关系更加密切
+
+50%白银被用于重工业和高科技，这其中包括熟知的智能手机、平板电脑、汽车电气系统、太阳能电池等。因此，白银对世界经济的敏感度远高于黄金，因为黄金更多的用于饰品和国库储备。经济增长必然导致对白银的需求增加，进而刺激价格增长。反之亦然。
+
+2. 白银可能是一个更好的通货膨胀对冲工具
+
+从历史上看，当通货膨胀率上升时，黄金和白银都会取得丰厚的收益。这两种金属都是以美元计价。当美元贬值时，黄金和白银通常会上涨。考虑到白银有更大的工业需求，在通货膨胀和美元下跌的情况下，白银往往比黄金涨得更多。
+
+3. 白银比黄金具有更大的波动性
+
+历史数据表明白银价格波动的百分比在一个交易周期内有可能是黄金的两到三倍，甚至更多。投资者短期内可能会受益，但同时又面临巨大风险。黄金白银的这种波动性可以为投资者提供不同期限的投资回报。
+
+4. 黄金是更好的分散投资工具
+
+对比白银，黄金被认为是更强大的多元化投资工具。原因是它与股票债券等资产类投资相关性非常低，它的工业用途也相当有限。黄金的这种独立性使得它在世界经济中扮演非常稳定的角色。
+
+5. 白银目前比黄金更便宜
+
+现阶段白银的价格更能被个人投资者接受。对于那些刚刚开始建立投资组合或者资金有限的人来说，白银的低成本更具有强大的吸引力。
+
+（本文仅代表作者观点）
+
+参考阅读：[黄金和白银的五种不同特性，更好分散投资](https://www.morganstanley.com/articles/investing-gold-silver-decision-guide/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+***编辑/校对/发稿：***Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)

@@ -2,15 +2,21 @@
 ---
 
 
-## 英国：军队对燃料危机保持警惕
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1559945/)
+## 朝鲜发射新型“不明”导弹
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1559967/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09281.jpg)
-英国已将军队置于戒备状态，以用于对油轮的保护及使用军事司机来弥补该国因缺乏平民司机而导致的燃料危机，目前需要向很多石油分销商供货，因为他们的存储都干涸了。能源部在一份声明中说：“将有限数量的军事司机处于戒备状态，必要时将被雇用以进一步稳定燃料供应链”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09282-1.jpg)
+一项新的导弹试验重新点燃了朝韩两国之间的紧张局势。据韩国军方报道，朝鲜向东海岸海域发射了一枚新型短程导弹。朝鲜大使在联合国大会上发表讲话时为自己辩护：“朝鲜拥有测试武器的权利”。
+
+据韩国军方称，平壤当地时间06时40分在东海引爆一枚不明子弹。日本防卫省发言人证实了这一消息，称子弹“似乎是一枚弹道导弹”。此次发射标志着一段明显的测试升级：朝鲜政权于 9 月 15 日测试了两枚短程弹道导弹，几天前测试了一枚巡航导弹。
+
+朝鲜大使金松在纽约说：“我们只是在建设我们的国防，以保卫自己并可靠地维护国家的安全与和平。” 与此同时，日本已同意加强对朝鲜的监视。菅义伟总理说：“我们正在加强监视和分析情况，并为任何可能发生的事情做好准备”。
+
+美国军方印太司令部表示，此次发射凸显了朝鲜非法武器计划破坏稳定的影响。美国国务院在一份声明中说：“美国谴责发射导弹。这次发射违反了联合国安理会的多项决议，对（朝鲜的）邻国和国际构成威胁 ”。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/09/27/gb-esercito-in-stato-dallerta-per-crisi-carburanti\_4e852ddf-17f4-438b-88d0-8d26e6d5320a.html](https://www.ansa.it/sito/notizie/topnews/2021/09/27/gb-esercito-in-stato-dallerta-per-crisi-carburanti_4e852ddf-17f4-438b-88d0-8d26e6d5320a.html)
+原文链接：[https://www.today.it/mondo/missile-corea-del-nord-ultime-notizie-oggi.html](https://www.today.it/mondo/missile-corea-del-nord-ultime-notizie-oggi.html)
 
 责任编辑/校对/发布：意大利达芬奇农场   萧亦

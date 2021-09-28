@@ -2,13 +2,15 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 12
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1559959/)
+## 2021年9月27日 文贵先生盖特 13
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1559995/)
 
 编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-9-27日：新中国联邦的疫苗灭共．拯救人类……荻得巨大的成功！ 【澳洲纽省省长最新发布政令：对于打过针的或从未打过针的：从十二月一号开始，可以自由出入餐厅、Club ，所有户外活动，走入正常生活。 从10月11日，注射过疫苗针的先达到70％的场所自由行动。 从10月18号开始，达到80％的场所自由行动。**😊** 对于从未疫苗注射的居民必须要等待3-4个星期后才能与前面所述的70％.80％注射疫苗针所指定的场所可以自由出入。 从十二月一号开始：接受过疫苗注射的和从未接受过疫苗注射的全部恢复正常生活。 God bless Australia **🇦🇺**】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/507e4d2a5be9c38382f526a48f9fd812.jpg)
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pceieg0e75)
+9/27/2021 Miles Guo’s GETTR: Everyone should take preventative measures for the cerebral infarctions and myocardial infarctions, and the resultant unpredictable traffic disaster events. Avoid unessential trips and prepare for the tough life in the next 1 or 2 years.
+
+9/27/2021 文贵盖特: 大家要对疫苗灾难带来的脑梗、心梗及其导致的各种不可预料的交通灾难事故做好必要的防护，避免不必要的出行，为一两年内艰难的生活做好准备
+
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcdua443f9)
 
 **喜联盟Gnews编辑部**

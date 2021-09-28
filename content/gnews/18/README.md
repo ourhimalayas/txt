@@ -2,143 +2,64 @@
 ---
 
 
-## 中共病毒疫苗抑制了对控制癌症的受体（视频）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
+## 四方集团推动基础设施建设，对抗中共国&#8221;一带一路&#8221;战略
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559910/)
 
-Now, very importantly
+#### **翻译：****Lish**
 
-现在，非常重要的是
+#### **校对****/编辑：守望黎明**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-42.png)
+图片来源：VCG
 
-This goes to that question
+华盛顿消息，澳洲总理莫里森及四方集团(Quad)的成员，同意成立一个新的基础设施专家小组，该小组将开始确定整个地区的项目，由成员国提供资金支持。
 
-这涉及到那个问题
+作为最优先事项，四方集团的新冠疫情救济计划涉及制造和分发超过10亿剂疫苗，该集团还同意成立四方基础设施协调小组。
 
-All these anecdotes that we’re hearing from different oncologist around the country
+根据周末在华盛顿发布的四方峰会官方公报，集团将定期举行会议，”分享对区域基础设施需求的评估，并协调各自的途径，以提供透明、高标准的基础设施。”
 
-我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
+四方集团的领导人——莫里森总理、日本首相菅义伟、印度总理莫迪和美国总统拜登，自该集团于2017年重新成立以来首次举行峰会。公报说：”该集团还将协调技术援助和产能建设工作，包括与区域伙伴的合作，以确保我们在满足印-太地区重大基础设施需求方面相辅相成。”
 
-And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
+自2015年以来，四方集团已经为该地区的基础设施提供了超过480亿美元（660亿澳元）的官方资金。
 
-我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
+公报说：”四方集团是在印-太地区高质量基础设施建设的引领者。我们采用互补的方式，充分利用公共和私人资源来实现最大的成果。”
 
-he knows his community, he knows his patients
+推动基础设施建设被认为是对抗中共国大规模”一带一路”战略的新举措。中共搞的”一带一路”提供基础设施资金的对象不仅为该地区的，也遍及整个发展中国家。中共国除了旨在巩固其联盟关系外，这些项目通常也为了获得矿产和能源。
 
-他了解他的社区，了解他的病人
+澳洲莫里森政府已经正式终结了维多利亚州与中共国签署的”一带一路”合作协议，并且积极阻止了中共国收购给澳大利亚在太平洋和加勒比地区提供移动电话网络的Digicel公司。
 
-And he said hey you know a lot of my patients are getting the shot, some aren’t
+美国也有自己独自的”重建美好”投资战略，旨在为地缘政治敏感的发展中国家提供替代性基础设施。
 
-他说，你知道，我的很多病人都打了疫苗针，有些没有打
+公报称，四方集团基础设施合作伙伴将向”30多个国家的数千个项目开放，包括加强当地基础建设，以支持农村发展、卫生基础设施、供水和卫生设施、可再生能源发电、电信、公路运输等等。我们的基础设施伙伴关系将放大这些贡献，并进一步促进私营企业在该地区的投资。”
 
-But in those are and he listed the number of cancers he seen in a 6 week period of time
+莫里森先生还呼吁世界银行和国际货币基金组织扩大其对清洁能源项目的融资方式。
 
-但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
+四方还成立了特别的四方高级网络小组，其中包括高级别的专家。小组将定期开会，以加快政府和行业之间采用新网络标准的工作，包括发展网络安全和 “可信赖的数字基础设施”。
 
-that is never seen in a 40 years career
+7月，北约国家与澳大利亚和其他”五眼联盟”国家一起详尽地揭露了中共国政府在世界各地网络攻击中扮演的角色。
 
-这是在他40年的职业生涯中从未见过的
+四方集团还将设立 半导体供应链促进小组，由专家们编制产能图，找出短板，以加强半导体及其重要部件的供应链安全。半导体的短缺已经破坏了世界各地的工业能力。
 
-And so he asked to what could be causing that?
+**积极的伙伴关系**
 
-于是他问，可能是什么原因造成的呢？
+四国集团的新推出的巨大承诺，被大多数人看作是针对中共国在这些领域的主导地位采取行动的宣言。
 
-So, I sent him that paper as a potential mechanism
+然而，当被问及 “四国集团 “的新倡议和新的澳美英三方军事情报共享机制（AUKUS）是否是 “反华 “时，莫里森总理解释说：”这是一个积极的伙伴关系，有助于在印太地区做出贡献。这不是要反对谁，而是要支持一些事情。就是这样。”
 
-所以我把那篇论文作为一个潜在的机理发给了他
+当被问及中共国的目标是否是要 “击垮 “澳大利亚，并进而对付整个西方联盟时。他说，如果中共政府真是这么想的，那是行不通的。他说：”如果是这样的话，澳大利亚将永远具有韧性，并对我们所珍视的东西立场坚定。”
 
-As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
+莫里森总理还呼应了拜登先生上周在联合国发表的演讲，他说美国 “不寻求新的冷战或将世界简单地划分为对抗的集团”。
 
-因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
+他在哥伦比亚广播公司的采访中说到：”我当然不认为战争是不可避免的，它是完全可以避免的。”
 
-So I was talking to Harvey Risch, the world-renowned epidemiologist
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-因此，我与世界知名的流行病学家哈维·里希进行了交谈
+原文链接：[Quad steps up response to China’s Belt and Road](https://www.afr.com/policy/foreign-affairs/quad-steps-up-response-to-china-s-belt-and-road-20210926-p58uu1)
 
-He said, well you know the post shot therapy is usually going to be 5-10 years
+发布：文泓
 
-他说，你知道接种疫苗后治疗通常需要5-10年
-
-till we see the signals
-
-直到我们看到信号
-
-I said yeah usually it would be
-
-我说是的，通常是这样的
-
-But when we have something that we never done before
-
-但是，当我们有一些我们以前从未做过的事情的时候
-
-that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
-
-突然抑制了一种对控制癌症负有高度责任的受体
-
-It would be very explicable as to why something that is quiescent
-
-这很容易解释为什么有些东西是静止的
-
-All of a sudden wakes up
-
-一下子就醒了
-
-So I mean all day long our cells are fighting off mutations in different cells
-
-所以我的意思是，我们的细胞整天在对抗不同细胞的突变
-
-They see the mutation to try to kill that cell
-
-他们看到突变，试图杀死那个细胞
-
-If this receptor is downregulated
-
-如果这个受体被抑制了
-
-then all those downstream are molecules inside that cell that’s fighting there can’t fight
-
-那么所有其后的分子在细胞内的战斗就无法进行
-
-Because those signals are now turned off the cytokines, the interferons
-
-因为这些信号现在关闭了细胞因子和干扰素
-
-the things that will attack that atypical cell
-
-这些东西会攻击非典型细胞
-
-So, we’re seeing the early signals of this
-
-所以，我们看到这样的早期信号
-
-And so that’s what’s concerning is we want to be able to under the microscope
-
-这就是我们想要在显微镜下观察的问题
-
-you know here’s a whole stack of tumors
-
-你知道这里有一大堆的肿瘤
-
-in the last couple of weeks where what am I doing is
-
-在过去的几周里，我在做什么呢？
-
-I’m looking at the ratios of helper T cells this CD8 killer T-cells
-
-我在观察辅助T细胞和CD8杀伤性T细胞的比例
-
-and then we’ll be staying these for always
-
-然后我们会继续这么做
-
-Because some of these patients again inexplicable cancers
-
-因为这些病人中有些人的癌症无法解释
-
-at really unusual ages
-
-真的是在不寻常的年龄
-
-That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
-
-与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
-
-听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

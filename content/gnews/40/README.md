@@ -2,35 +2,64 @@
 ---
 
 
-## 13岁孩子接种疫苗后心脏骤停
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559472/)
+## 叶天士“邪入血分”证对新疆出血热的启发
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1559584/)
 
-加拿大多伦多枫叶农场 – 视频字幕：Kent 文字翻译：云起时
+作者：纽约香草山福音部 – 小草
 
-视频文字（中文）：
 
-我的女儿刚刚从学校联系我，非常的难过和生气。她的一个朋友，正在哈利法克斯的医院里接受重症监护，因为她的心脏在她一打完疫苗之后就停跳了。 她现在情况很不好，无法呼吸，她的心脏一直在停止跳动。她今年才13岁！13岁！她的心脏居然停止跳动了！你们有多少人听说过一个13岁的孩子会心脏停跳？ 而这就是我们的政府正在强迫我们所有人和我们的孩子做的事。一个13岁的女孩在新斯科舍省哈利法克斯市, 现在正躺在医院里，因为她的心脏在注射疫苗后停止跳动了。
 
-这是我女儿的朋友，她曾在我家里待过，她曾在我的餐桌上与我共进晚餐。 这可能会是你的孩子，可能会是你的侄女、侄子、孙子女。你的邻居。 这些人到底有什么毛病？由于这种疫苗，世界各地都有儿童死亡，世界各地都有成人死亡，甚至美国食品和药物管理局都已经告诉了你们，但我们的政府仍在强迫人们接种疫苗，才能够参与社会活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-你知道关于这孩子的这件事最糟糕的部分是什么吗？ 是她在我家里说，她不想接种疫苗，如果她不打算接种疫苗的话，她的父母将尊重她的决定，但当我们的省长休斯顿先生决定强制要求孩子们接种疫苗才能够参加体育运动，她觉得自己别无选择，只能接受，因为她喜欢踢足球。 你们怎么敢，对我们的孩子做这样的事情
 
-视频文字（英文）：
 
-So my daughter，Just contacted me from school。 Very upset。 One of her friends ，is now in critical care in the hospital here in Halifax because her heart stopped, right after she had a vaccine!
 
-She’s not well right now she can’t breathe, her heart keeps stopping. She’s 13 years old！13 years old！And her heart stopped! How many of you know a 13-year old whose heart stops?
 
-And this is what our government is forcing on all of us and our children. A 13-year-old girl in Halifax Nova Scotia is in the hospital right now because her heart stopped after the vaccine.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210928_3.jpg)
 
-That’s my daughter’s friend. She’s been in my home. She’s had dinner with me at my table. That could be your child, could be your niece your nephew your grandchild, your neighbour. What the fxx hells wrong with you people!
 
-There are children dying all over the world, there are adults dying all over the world, from this vaccine. The FDA has even told you. But yet our government is still forcing people to be vaccinated to be able to partake in society. 
 
-Do you want to know what the worst part of this is with this child? Is that she was in my house saying, she didn’t want the vaccine if she wasn’t going to get the vaccine. And her parents respected her decision. But when our premier Mr Houston decided to mandate vaccines for children to be able to play sports, she felt she had no other choice but to take it because she loves playing soccer. 
+**摘要：我认为战友们如果发现有此类症状出现，还是选择去医院，自己是处理不了以上症状的。但家中可以常备冰袋降温，再备上泰诺类降烧药。**
 
-How dare you do this to our children!
+从七哥宣布青蒿素是疫苗的解药那一天起，我就在想，中医药宝库中是否有好的思路能解决新疆出血热呢？中医名家叶天士描述的“邪入血分”，在症状上与出血热有很多重合之处。那治疗“卫、气、营、血”的药物可不可以帮助治疗新疆出血热呢？这个值得探讨一下。
 
-* * *
+从新疆出血热的典型症状来看：发热、头痛、出血、低血压。（1）潜伏期：2-10天。病程上：有10-14天，病人处于寒战、高热、头痛、腰痛、全身痛、口渴、呕吐、周身皮肤潮红，结膜水肿，软腭和颊粘膜有出血点、上胸、腋下、背部有出血点和出血斑，有鼻出血，多器官出血如：消化道、血尿、子官出血。出血和休克是两大症状群。病原体是虫媒RNA病毒，归类于布尼亚病毒科，内罗病毒属。此病致死率50%，十分凶险。
 
-编辑/ 发稿 云起时
+此图来自武毒所，揭示了“来源于CCHFV（克里米亚-刚果出血热病毒 ）主要靶器官的肝脏（肝癌细胞Huh7）、肾脏（人肾上腺皮质癌细胞SW-13和人胚胎肾细胞HEK-293）、脑（恶性胶质母细胞瘤细胞U-87 MG）和血管（人脐静脉内皮细胞HUVEC）的细胞系可以支持CCHFV相对较高水平的复制，是CCHFV易感细胞系，适用于CCHFV在各自组织器官的发病机制研究和抗病毒药物评估。”！（2）看来这CCHFV病毒喜欢肝、肾、脑和血管，并且有较高亲合复制能力。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210928_2.jpg)CCHFV对不同组织器官来源的人源细胞系的敏感性（图片来自网络）
+
+
+
+临床上通常对症治疗。抗病毒，补液，止血，降体温，透析，防止肾脏和心肺衰竭。激素地塞米松的运用可以救治重症。出血热包括了疟疾和出血两大症侯群，青蒿素可对抗三日疟和恶性疟，内脏器官的出血和血栓同时出现，提升了治疗难度，那出血由那种思路救治好呢？
+
+叶天士是温病派代表，是清代名医。他从病邪由表入里的发展过程，总结出“卫、气、营、血”辨证，这等于是中医中创立了一个学说。邪入血分证：症状以高烧出血发斑为主，斑色紫暗、口渴气粗，以及各种出血现象，舌质深绛，脉洪数。治宜解毒化斑，凉血散血。方选化斑汤加味：生石膏30g（先煎），知母12g，水牛角10g，玄参12g，粳米15g，生甘草3g，大青叶30g，银花30g，紫草12g，丹皮10g，水煎服。
+
+这个方药清热凉血，重在治温病气血两燔。本方以口渴、壮热、发斑、舌绛苔黄为辨证要点。本方中白虎汤清气分之邪热而保津液，犀角、玄参清热解毒，消斑凉血。诸药并用，有清气凉血，解毒化斑之效。 如神昏谵语，加安宫牛黄丸或至宝丹；大便秘结，加芒硝、大黄；里热伤津，加生地、麦冬；热盛动风，加羚羊角、钩藤；斑色紫暗，加紫草、丹皮、赤芍。现常用于治疗乙型脑炎、流行性脑脊髄膜炎、流行性出血热、过敏性紫癜等。
+
+看了以上方药，战友们是很难去理解，去准备药材的。我认为战友们如果发现有此类症状出现，还是选择去医院，自己是处理不了以上症状的。但家中可以常备冰袋降温，再备上泰诺类降烧药。可以先对家人进行全身防护，因为此病是经体液、粪便、气溶胶传播，一切接触物都须专门处理焚烧，实际上此时家人也容易被感染，因此大家要有通讯工具。由于有大量体液丧失，要口服碘盐。此时搬动病人动作要轻柔，勿让深静脉血栓脱落。家中请常备激素类药物、强心剂，可以尽量准备能让病人安全到达医院的条件。
+
+参考：
+1、[新疆出血热（克里米亚-新疆出血热） 简阳市中医医院](http://www.jyszyyy.com/disease/show6711/) 
+2、[武汉病毒所/国家病毒资源库在CCHFV敏感细胞系的鉴定研究取得新进展](http://www.whiov.cas.cn/kxyj_160249/kyjz_160280/202103/t20210330_5987018.html)
+
+（本文仅代表作者个人观点）
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
+
+
+
+编辑/校对/发稿：武裝的羔羊
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
