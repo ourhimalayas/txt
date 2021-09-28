@@ -2,32 +2,13 @@
 ---
 
 
-## &#8220;一切的问题不仅是习近平,而是共产主义!&#8221;
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560725/)
+## 2021年9月20日晚餐前郭文贵先生盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1560752/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-424.png)
-9月26日, 零对冲发表了一篇专栏文章, 称有一种声音正在游说西方, 试图让人们相信, 只要推翻习近平,一切都会过去. 而事实上罪恶的根源是整个共产党, 是共产主义!
+盖特连接：[https://gettr.com/post/pbpos60c65](https://gettr.com/post/pbpos60c65)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-35.jpeg)
+战友们，你看看这蓝天白云，你看看，哎呀，真漂亮啊，这花香真的是纯粹的花香，纯粹的花香，太美了，太美了，哎呀，真好！哎呀，真舒服！感觉太好了！哎呀，这清晰的空气呀！凉飕飕的，然后看着大熊、麋鹿，现在马上要吃晚饭了，今天的晚饭超级丰富，刚才我看他们做的那饭老棒了，这味道从这儿都能闻得着。我能给你们发录像但发不出味道。
 
-文章写道, 今天世界面临的一切问题,不只是习近平带来的, 而是自1949年以来一直存在。在共产主义中国，真相一直在被掩盖,  共产党 控制着一个没有法治、没有人权、没有保护工人权利的 国家 。一个令人震惊的例子就是达数十亿美元的人体器官交易 , 这一交易可以追溯到习近平上台前 。事实证明, 共产主义一直与文明格格不入, 我们不能希望共产主义政权表现的体面, 更不能相信他们的话，即使是最基本的事情。以这次中共在新冠疫情中的统计数据为例: 谁会相信2600 万人口的澳大利亚,死于病毒的人数竟然超过 14 亿人口的中国?
+编辑整理及发布：黎明之前
 
-文章的结论是, 每一个共产主义政权的敌人都是真理本身，是文明世界的价值观，而随着柏林墙的倒塌和欧洲其他共产主义独裁统治的瓦解，中共所作的一切, 目标就是如何避免类似的命运。这篇文章与我们爆料革命的诉求异曲同工, 面对这场全球性的病毒疫情危机,只有消灭共产党,彻底消除共产主义,才是解决问题的唯一方法!
-
-（本文仅代表作者观点）
-
-参考链接: [The Problem Is Not Just Xi Jinping; It Is Communism](https://www.zerohedge.com/geopolitical/problem-not-just-xi-jinping-it-communism)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龍
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
