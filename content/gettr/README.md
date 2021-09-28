@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 5:30 AM (UTC)`
+
+An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一位愤怒的恒大女投资人在会议上对许家印破口大骂
+![img](https://media.gettr.com/group46/getter/2021/09/28/05/30/5978537a-4d44-1992-f95e-dcc715cf99bd/out.jpg)
+
+---
+
 `@miles 9/28/2021 12:29 AM (UTC)`
 
 9/27/2021 Miles Guo’s GETTR: We need to take a serious look at how we will live our lives as well as the political and social changes throughout the world in the next few years. We need to carefully consider how to cope with the changes in people's behaviors and their ways of life<br/><br/>9/27/2021 文贵盖特: 请兄弟姐妹们认真地思考未来两三年的生活方式和整个世界政治、社会的大变革，仔细想一想我们要如何去应对人们的行为和生活方式的改变<br/><br/>
@@ -294,13 +301,6 @@ WOW
 
 9/24/2021 Miles Guo: It is HNA that is going to bring about China’s economic collapse! HNA has more debts than Evergrande! Chen Feng, Wang Jian have transferred large amounts of money overseas.<br/><br/>9/24/2021 文贵直播：真正要导致中国经济崩溃的是海航！其债务比恒大还多！陈峰、王健早已把大量金钱转移到海外。<br/>
 ![img](https://media.gettr.com/group14/getter/2021/09/25/04/43/341bcf7a-4e6c-e042-0c93-4021d7148701/out.jpg)
-
----
-
-`@miles 9/25/2021 3:05 AM (UTC)`
-
-9/24/2021 Miles Guo: Yesterday the CCP’s Army, Navy, and Air Force conducted military drills targeting Taiwan with live ammunition (nuclear bombs), which is technically equivalent to starting a war despite that not a single shot was fired. Meanwhile, the Taiwanese troops’ incompetence, and the weakness of the U.S. and Japanese troops were all exposed, leading the CCP to believe that taking Taiwan is a piece of cake<br/><br/>9/24/2021 文贵直播：昨天中共海陆空三军全面对台湾进行了实(核)弹演习，虽未开炮但等同开战，同时暴露了台军的无能和美军、日军的弱点，中共认为攻占台湾如探囊取物<br/>
-![img](https://media.gettr.com/group25/getter/2021/09/25/03/05/91e455af-c64e-73ba-9fdd-c11d45695a38/out.jpg)
 
 ---
 
