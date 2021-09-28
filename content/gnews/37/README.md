@@ -2,33 +2,41 @@
 ---
 
 
-## 2021/09/27 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560568/)
+## 媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560623/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-420.png)盖特链接：[https://gettr.com/post/pcdzhtec4f](https://gettr.com/post/pcdzhtec4f)
-9月27号：尊敬的战友们好……七哥建议所有的战友们要认真思考，未来一两年的生活和生存的方式，严肃认真的对待社会结构及政治各方面改变带来的冲击，特别是要对疫苗灾难的脑梗，心梗等各种不可预料的交通灾难事件的发生必要的防护！
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+现役NBA球员凯里·欧文，因反对包括接种强制令在内的新冠限制政策，被媒体全面打压；刚刚过去的媒体日上，欧文再一次表示了不应当将接种和社会责任绑架起来误导大众，新冠疫苗导致很多人已经生病。
 
-远在南美的几个好朋友和七哥通话，他们对疫苗后的脑梗、心梗、心肌炎、心包炎等的情况进行医院的了解后，情况非常吓人，每个人都要高度重视以后航空、交通、船舶这个问题。科研机构、医疗、交通，政府已经感受到了这将是以后最大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-27.jpeg)
 
-住在康州的老朋友通电话，他觉得出门没有安全感，他保镖司机都已打了疫苗，七哥告之现在唯一的办法就是：1，吃解药；2，改变生活方式，避免乘坐航空交通工具出行；这是通过各方官方和咱们各行业战友给出的信息。
+同队优秀控卫球员凯文·杜兰特在接受采访时表示支持欧文的决定，每个人都有自由选择的权力，也有隐私权；华盛顿奇才队的布拉德利·比尔（Bradley Beal）也强调了新冠疫苗的危害。
 
-用青蒿剂做出合成剂，科学家說，这是绝对不对的，青蒿素的绝招就是合成，自己提炼的都是没有用的。战友们要吃标准的青蒿素治病的药品，青蒿素钙片等附属用品，可做防范用，但他不治病。现在伊维菌素，地塞米松在国内都可以买到，战友们要尽一切办法智慧的买到这些药。很快全世界对伊维菌素，地塞米松，青蒿素都会开放，都可以买到。
+欧文现效力于布鲁克林篮网，篮球赛场上多次打破得分记录，是《福布斯》2020年收入排名第24位的运动员。在去年1月份，传奇球星科比（Kobe Bryant）及家人飞机失事后欧文曾一度情绪崩溃，后立志延续“曼巴精神”延续恩师精神，不断努力向前迈进。
 
-阻止全世界强制打疫苗要开始了，但是没有打疫苗的要避免没必要的交通和闲逛，防范疫苗的各种梗和病毒，还有共产党可能释放新病毒。在这种情况下，大家要充分预料一两年的艰难生活，少动以稳为主。
+作为球员工会副主席的欧文，对政府推出的新冠限制令和疫苗规定持反对态度，并表示这是一场邪恶阴谋。早在8月7日，NBA球员工会就联盟推行的百分之百接种率的问题会议中，欧文和部分成员不再沉默，对强制推行新冠疫苗接种表示了反对。
 
-现在欧洲，日本，台湾德国等全世界都在变革当中，每个变革都影响人类未来，要有常识，耐心，包括灭共，要客观综合的看，中共经济的脆弱性。恒大，平安，陆金所，民生，招生银行，上海银行，兴业银行都会倒闭。世界经济肯定不会这样下去，这种情况下你没有准备好，一定会成为砸倒在崩溃的垃圾堆下的那个人。
+近期，美国说唱歌手米娜，和荷兰国宝级超模克罗斯都表态反对毒针疫苗，更发起直播和抗议，揭露疫苗严重不良副反应真相，以行动反击政府的集权行为；惊恐于难以压抑的明星效应，以及担忧名人大量跟随者的觉醒，媒体对欧文的打压态度非常明显，将其抹黑为“阴谋论者”，称其无视科学，兜售错误信息。
 
-全世界经济现在生产力和供给之间出现了矛盾，人们生活方式的改变，对某些产品的特殊需求，已经改变社会的供需结构，人们对金融的需要，也到了完全矛盾化，现在赚一百要花一千块钱，过去的房贷车贷和能赚回来的钱，完全不成正比了，全靠政府的印钞票，是坚持不下去的。所有认真思考最起码俩三年的生活方式，和整个世界的政治社会大变革及社会行为生活方式的改变，你自己该如何应对。
+世界知名体育联盟在不断调整计划的过程中，逐渐丧失了职业体育精神。在球队各自老板利益的要挟下，球员在联盟的包办管理下被剥夺了自由选择的权力。现在，随着欧文和其他NBA球员的挺身而出，一场体育界的觉醒风暴已被唤醒。
 
-听写：文评 / PR: 乐禧禧
+（本文仅代表作者观点）
 
-* * *
+参考链接: [Kyrie Irving Declines to Say Whether He Will Play Nets Home Games as Vaccine Questions Swirl](https://www.rollingstone.com/culture/culture-news/brooklyn-nets-kyrie-irving-vaccination-kevin-durant-james-harden-1232827/)
+[Anti-vaxxers are getting way too much say in NBA Covid protocols](https://www.sbnation.com/nba/2021/9/27/22696676/nba-covid-protocol-anti-vaxx-kyrie-irving)
+[凯里·欧文](https://zh.wikipedia.org/wiki/凯里·欧文)
+[布拉德利·比尔](https://zh.wikipedia.org/wiki/布拉德利·比尔)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：暗黑
+校对/发稿：谐趣园
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
