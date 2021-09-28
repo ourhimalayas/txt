@@ -2,98 +2,79 @@
 ---
 
 
-## 今日香港明日西方，中共早已渗透西方
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559104/)
+## 文雍漫谈：破茧而出
+` 文雍` [轉載自GNews](https://gnews.org/zh-hans/1559177/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/122-a6bev-e7m6z.jpg)
-[https://gtv.org/video/id=6151cfecd2e2b817486ebac2](https://gtv.org/video/id=6151cfecd2e2b817486ebac2)
+```
+作者：文雍 | 伦敦英喜庄园 Himalaya UK美工/排版/发布：齐天二圣
+```
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210927-01-scaled.jpg)
+许多时候，我们看到纷杂的信息，传递着完全相反的结论。尤其是处于网络信息战的当下，真真假假的消息，消耗了大量的时间。真希望跳进太上老君的炼丹炉里把眼睛升个级，一眼就能看出信息里藏着的是何方妖孽，就不用浪费心力了。
 
-七哥啥时候知道，今天的香港就是你们西方的明天
-When did I told you that today’s Hong Kong will be the West’s tomorrow?
+我们有多大程度地被困在信息茧房之中，或者说我们似乎是主动在摄取信息，有多少是被兑水或是被收看的？比如那个踏着盛装舞步的中国式农民大妹子李子柒，红袖添香地出场，集中国式田园美景之大乘，秒办了陶渊明，也让人瞬间忘了手刃亲子又自绝的最惨农村母亲杨改兰。
 
-明天，你们的未来，然后无处不香港
-Tomorrow, your future, then all over the place will be like Hong Kong
+怎么同样是中国的田园，画风竟然是天堂和地狱的差别？怎么村姑李子柒人人钦羡全球招惹眼球，同为村姑的杨改兰却鲜为人知？有一段时间，朋友圈以及油管就这样被李子柒这个公主式的村姑霸占着。让百万傻白甜粉丝哈喇子直流，谁敢质疑立刻被李子柒的粉丝围攻撕咬。而有谁胆敢传播杨改兰的故事，就会冠以负能量，甚至删帖封号被维稳。
 
-2019年5月份我说香港这事发生
-In May 2019, I said this happened in Hong Kong
+及至最近传出李子柒与包装她的金主因分赃不均闹翻，非但没拿到出场费，还被拔了粘在身上的羽毛，回归了小鸡本色。这进一步证明中共治下无真相，连标点符号都不值得相信。就如朋友圈中那些靠 P 图抗衰老的造假爱好者，完全罔顾大家都是见过面的事实，非要把自己搞成天山童姥的升级版才罢休。
+![金沙js3777-wwwjs77888](https://lh3.googleusercontent.com/proxy/hfULNe-sOzuNO_3QSGxiVpdMwwWto6iHTkkfIUwFn0TkPcv4rOrIBJXmGdyjcFhj0pZrB7XifU9V3eANlv90nqDcX2KGUe5eque5UOWqFw)图片来源：深港在线
+且不说李子柒的包装团队有没有政治任务，单单是流量广告带货便赚得脑满肠肥。而大众稀里糊涂地被这种推送的链接消费了眼球、消耗了时间，还捎带着洗了脑。稍有不慎还会对中国式田园生活产生无限向往，甚至产生去村姑家插门的念头。却很少有人知道，李子柒是假的，而因贫穷无法生存的杨改兰才是真的。
 
-我第二天我这直播中我就说过
-I said in my live broadcast the next day
+有些人的故事，我们之所以看到，是因为有人需要我们看到；而有些故事，我们之所以看不到，是因为有人需要我们看不到。
 
-我说如果你们不救香港，香港的事情会到你世界任何一个国家去
-I said that if you don’t save Hong Kong, repression in Hong Kong will go to any country in the world
+无论是主动还是被动，这几天，有谁没有被孟大公主返乡的新闻消费时间？美国怂了，加大拿怂了，中共国又「众志成城」了。土豆总理亲身验证了「请神容易送神难」的硬道理。用一个永久居民换了两个公民，算下来真是双喜临盆啊！
 
-你七哥当时说为啥呀，你七哥不是蒙的
-Why I said that, I didn’t make prediction
+土豆亲启銮驾去迎接，经历了千天牢狱的无妄之灾后，两名加拿大人作何感想？相比之下，孟大小姐的回归光彩夺目，上千个粉红暂时搁置被恒大爆菊的惨痛经历、忘了刚刚被粪水洗胃的呕吐感，举着小红旗到机场扮演孟大公主的老公了（也有说接机的是每人补助 500 软妹币的华为员工）。
 
-我也不是预言家，我也不是说预言的
-I am not a prophet, nor am I prophesying
+皇帝大婚本来是皇帝的鸟事，太监们却跟着吃起了壮阳药。突然想起了刚刚过去的八月份，25 国大使在加拿大驻中国大使馆前力挺加拿大，抗议中共扣押加拿大公民的「人质外交」行为。
+![加拿大在华商人被判十一年加国总理发声：绝对不能接受— 普通话主页](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/ec0811a-08112021063053.html/@@images/image/social_media)图片来源：rfa.org
+目前这些大使心情如何我们不得而知。但我们知道，任何事情都是有前提的。以后如果有一盘咸猪手摆在面前的时候，千万不要直接去珍惜，一定要看一看旁边有没有龙虾啊！更不要看到一盘土豆丝就以为是真爱了。
 
-我当时因为共产党内部的战友
-That was because of our the comrades in arms in the Communist Party
+先河一开，加拿大再也无法用司法独立搪塞厉害国了。勾兑过的民主醉态满屏，乙醇味在地球上空飘荡，与共产主义的幽灵合二为一，世界新秩序的解释权就此诞生。以后，但凡绑架可以解决的问题都不是问题了。人质外交登堂入室，能动手就别打口炮了。
 
-就像我们的大校告诉我说， 我们要什么什么执行的时候
-Just like our colonel told me that when we would do such repression
+各方似乎都很满意，中共赢两次，一次是抓人质，一次是换人。加拿大赢两次，一次是抓人，一次是换人；美国赢两次，一次是审人，一次是放线。三方都双赢，成果满满。只有机场接驾的粉红们，眼睁睁看着孟大公主跨红毯、捧鲜花、表演爱国后，被提前抵达的现任老公搀扶回宫，人家人生得意回家尽欢去了。他们揉揉视线朦胧的双眼，捧着爱国心，回家研究明天如何去恒大讨债维权，毕竟他们的苦难不是通过接一次驾能解决的。
 
-我说那要（是）止不住你们那你们（会怎么样）
-I said if you can’t be stopped, what you would do?
+算下来，一场孟大公主的回归消耗掉国人的时间有多少？我们被这样的信息茧房牢牢地锁定着，不知该如何摆脱。不在朋友圈里冒个泡表个态似乎就不是现代人了，无论是援舟还是覆舟，似乎总是要蹭个热度才行。
 
-他说那我们直接就是跨过南亚直接进欧洲了
-He said that we just crossed South Asia and entered Europe directly
+厉害国太需要一场爱国大戏来辟邪了。一时间通往脑缺的大道拥挤不堪，竟然把大盗陈波切被抓的大事给盖过去了，以至于厉害国准备好的其它几个信息覆盖版本都没派上用场，明星们纷纷表示这次出轨撞见鬼了。
 
-这不是开玩笑的兄弟姐妹们，就像那个二战打仗一样
-This is not kidding, brothers and sisters, just like the world war II
+信息是一张无边无际的网，而我已被困在网中央，越思越想越迷茫，直到迷失了方向。
 
-就是希特勒，说你到了波兰你去哪啊，是不是
-It’s like Hitler, “Where else would you go after you invade Poland?”, right?
+尽管世界光怪陆离，尽管信息巨量能压垮一切，然而我们看到的只是被耕耘与深加工的信息。它之所以被看到，是因为它们需要被看到。当那些莫名其妙的信息跳出来占有了你的眼球，你该有足够的理由怀疑这些信息后面藏着一颗叵测的心。所以，选择那些不会屏蔽信息的载体就显得相当重要。
 
-他直接就从德国直接的就奔着法国，英国就去了，对吧
-He went straight from Germany to France and England, right?
+下面隆重推荐一款社交平台：Gettr。你一定听说过了，这是一个自由发声的新平台。它诞生仅仅两个多月的时间，用户就快突破三百万了，这在社交网络上绝无仅有，它凭借的就是唯真不破的理念，传播真相让更多的人听到自己内心的声音。
 
-那是肯定的嘛，你挡不住
-That’s for sure, you can’t stop it
+最近为了控制蓬勃向上的体重，一日一餐。感觉有些饿了，想煮个蛋吃，突然想起厉害国的新研究：熟鸡蛋能返生孵出小鸡，顿时作罢，万一吃了蛋，嘴里飞出一只拔了毛的李子柒，那可受不了。
 
-他过了塞纳河，他一定会横扫你欧洲
-He crossed the Seine, then he would sweep Europe
+想到二氧化碳也可以做淀粉了，立刻又捕捉到土豆要凉凉的信息。科技太以人为本了，说不定哪天「吃个屁」都能填饱肚子。普天之下就不用再挨饿了，杨改兰也可以从容地活着，看着孩子们靠二氧化碳淀粉长的白白嫩嫩，共产主义就实现了。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-409-edited-1.png)图片来源于网络
+厉害国掌控信息的时代，一切都在向着反智主义的方向狂奔，他们控制的媒体你还敢信吗？
 
-他往你西欧就去了吧
-He went to Western Europe, right?
+所以请记住：GTV，GNEWS，GETTR，就是传播真相、照亮黑暗世界的灯塔！在人类的至暗时刻，相约 G 系列吧！点亮理想、点亮希望、破茧而出！世界正在大破之中大立，人类定会因为有了我们而不同。来吧，G 系列欢迎你！新中国联邦欢迎你！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/67d79ae9-90be-4fe9-b19e-37e8c9e419a9.png)
+本文仅代表作者观点。
 
-大校一句话就把我点醒了, 过了几天我再跟大校通话时候
-The colonel woke me up with a word. A few days later, when I talked to the colo-nel again
 
-我说，那你们现在在外面有布兵
-I said, now you have soldiers out there
+```
+阅读更多【文雍漫谈】专栏相关文章：
+文雍漫谈：假科学之名
+文雍漫谈：我们都需要勇气
+文雍漫谈：我能想到最无奈的事
+文雍漫谈：你的身体谁做主
+文雍漫谈：有一种温暖超越语言
+文雍漫谈：目送
+文雍漫谈：疫苗护照打了谁的脸
+文雍漫谈：雷出没 请注意
+文雍漫谈：没有哪一滴雨认为自己就是洪灾
+文雍漫谈：小聪明与大智慧
+文雍漫谈：你的底线就是文明的下限
+文雍漫谈：话说人民日报的火眼金睛
+文雍漫谈：她的妈妈有救了
 
-你看我们在欧洲已经有警察开始执法了
-You see, we already have police in Europe starting to enforce the law
 
-我们在欧洲周围已经开始建军事基地了
-We have started to build military bases around Europe
+或使用 gnews 搜索「文雍」阅读更多
+```
 
-关键是他说我们的宣传思想教育队伍已经渗透了西方了，
-The key is that he said that our propaganda and ideological education team has infiltrated the West
-
-这就是兄弟姐妹们你要想到一个问题，那话不是随便说的
-This is a question you have to think of, brothers and sisters, that was not just casual talk
-
-那不是你张嘴来了就可能发生的
-Not you just saying something, things will happen
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+搜索
+搜索
+![此图像的alt属性为空；文件名为d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg](https://assets.gnews.org/wp-content/uploads/2021/04/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpeg)

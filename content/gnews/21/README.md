@@ -2,29 +2,52 @@
 ---
 
 
-## 澳漫画家把反中共病毒疫苗运动与天安门大屠杀相提并论
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559206/)
+## 2018年4月24日郭文贵先生视频全文听写
+` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1559282/)
 
-#### 撰稿：东京樱花团/Orange文橘
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-127.jpg)
-（图片源自本文链接）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-27-at-4.25.01-PM.png)
+视频链接：[https://www.youtube.com/watch?v=x8ruP\_lclcw](https://www.youtube.com/watch?v=x8ruP_lclcw)
 
-9月27日周一，澳大利亚墨尔本漫画家迈克尔.卢尼格（Michael Leunig）在他的Instagram页面上发布了一幅褒贬不一的图片， 并配以一个词的标题“强制”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-21.png)
-[图片来源](https://www.instagram.com/p/CUTONJjBIHA/?utm_source=ig_embed&amp;ig_rid=88caf429-f108-4122-b35a-38eba7e24e15)
+Guo Wengui’s Statement on the Persecution of Mr. Zhiyu Chen and Zhiheng Chen by the Chinese Government.
 
-图片中，一名男子站在一辆军用坦克前，无助地盯着坦克上代替大炮的巨大注射器针头。在左上角，漫画家复制了 “坦克人 “图片——1989年6月4日一名示威学生站在坦克编队前面试图阻止其前行。
+On April 23, 2018, the Chongqing Public Security Bureau in China announced that the Chinese police arrested Mr. Zhiyu Chen and Mr. Zhiheng Chen.  The Chen brothers are Canadian citizens.  They have been accused of forging more than 30 top-secret official documents of the Chinese Communist Party Central Committee, the State Council, and their subordinate departments for me, and for forging information related to the massive overseas assets owned, illegitimate children, and mistresses of the top Chinese leaders.
 
-1989年中共国由学生领导的呼吁民主、言论自由和新闻自由并持续数周的抗议活动，在6月4日中共军队抵达天安门广场后，被血腥镇压。
+The Chongqing police released a tape as evidence, which was clearly edited.  I have released the full recording via social media (www.guo.media and YouTube: Guo Wengui). The entire tape shows that the Chen brothers were helping me to verify those documents by answering my questions.  Comparing the two recordings reveals that the Chongqing police has fabricated the evidence.
 
-这位有争议的漫画家在网上遭到抨击，因为他将反对强制注射中共病毒疫苗的抵抗比作是1989年北京学生为了民主自由在天安门广场进行的斗争。一些粉丝称赞迈克尓“一如既往地一针见血”， 但是其他粉丝却感到震惊，他们认为自己不是生活在一个共产主义政权下，不应该把他们和生活在残酷独裁统治下的人相提并论。疫苗接种反对者则非常赞这位漫画家的政治评论。
+Both Mr. Zhiyu Chen and Mr. Zhiheng Chen hold Canadian passports.  Not long ago, they disappeared in Singapore.  All signs show that they were likely kidnapped and taken by force into the Mainland China.
 
-当年中共用坦克大炮对北京学生和市民进行屠杀，阻止民众对民主自由的憧憬与追求。如今中共又释放病毒，让全世界遭受巨大灾难，并通过强打疫苗，对整个世界进行二次荼毒的同时，对西方的民主政治和社会进行摧残。所幸，随着爆料革命对中共病毒疫苗真相的不断揭露，西方世界的觉醒已经开始。
+I have provided a great deal of documents in my possession to the U.S. law enforcement.  Some of which I released have been authenticated by the US authorities.
 
-[信息源](https://www.dailymail.co.uk/news/article-10031855/Leunig-Controversial-artist-slammed-Tiananmen-Square-vaccines-post.html)
+As to the contents of my whistle blowing, I take legal responsibility for their truthfulness.
 
-（文章仅代表作者个人观点，与GNEWS无关）
+郭文贵声明：关于加拿大华人陈志煜与陈志恒被中国政府指控
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+4月23日，中国的重庆公安局宣布，在今年2月18日逮捕了加拿大华人陈志煜与陈志恒兄弟。他们被指控为我伪造了三十多份中共中央、中国国务院以及属下部委的文件，以及中共高层在境外拥有巨额资产、私生子、情妇等信息。
+
+重庆公安局播放的录音证据，经过明显的剪接。我已经通过自媒体（www.guo.media and YouTube: Guo Wengui）放出了完整的录音，显示了陈氏兄弟在帮助我核实文件，回答我对原件中的一些疑问。对比两份录音，重庆公安的造假昭然若揭。
+
+陈志煜与陈志恒先生均为加拿大公民，在不久前在新加坡失踪。有迹象显示，他们是从新加坡被绑架去中国大陆的。
+
+我手上掌握的大量文件已经提供给美国执法部门，公布出来的少数文件是经过美国相关部门鉴证，肯定其真实性。
+
+对于我爆料中的内容，我保证其真实，并愿意承担一切法律后果。
+
+\*\*\*\*\*\*END\*\*\*\*\*\*\*
+
+温哥华扬帆农场七哥直播全文听写组：
+
+听写整理——
+
+温哥华扬帆农场：Peter哥
+
+全文总校——
+
+温哥华扬帆农场：Peter哥
+
+审核发布——
+
+温哥华扬帆农场：Peter哥
+
+全文发布稿总审核——
+
+温哥华扬帆农场：文敏

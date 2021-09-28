@@ -2,125 +2,79 @@
 ---
 
 
-## 习主席会怎么处理恒大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559263/)
+## 2018年4月24日郭文贵先生视频全文听写二：在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！
+` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1559362/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-image0-8.jpg)
-[https://gtv.org/video/id=6152014cd2e2b817486ec9cc](https://gtv.org/video/id=6152014cd2e2b817486ec9cc)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-27-at-5.43.24-PM.png)
+视频链接：[https://www.youtube.com/watch?v=evMMXX-34DM](https://www.youtube.com/watch?v=evMMXX-34DM)
 
-今天恒大
-Hoy Evergrande Group
+- **（00:00）所有关于郭文贵的证人全是在押犯人，证据全是在押的**
 
-现在我救你, 我就得救所有人
-Si ahora te salvo, debo salvar a todos
 
-我不救你, 所有人都成为我的灾难, 那怎么办
-Si no te salvo, todas las personas se convertirán en mi desastre, ¿ qué debo hacer?
+**郭文贵先生：**尊敬的战友们好，从重庆市公安局开完了叫作案情通报会。
 
-所以内部决定, 地方的事
-Entonces, la zona interna decide que esto es asunto local
+我感觉真有意思。郭文贵能让中国的警察有这么大变化，办案的都有通报会了，雷洋咋没有案情通报会呢？你说中国过去5，6年抓了几百万人，牵涉了上千万人，咋没有通报会呢？那肖建华案咋没个通报会呢？那安邦吴晓晖咋没个通报会呢？
 
-地方的钱, 地方解决
-El dinero local se resuelve dentro de la región
+不但通报会还通知了全世界在北京的50多家媒体记者。那你说海航的事咋没个通报会呢？那王岐山同志的这个老婆的美国证券咋没个通报会呢？贯君刘呈杰咋没个通报会呢？
 
-中央的事, 中央解决, 他们想把恒大给肢解了, 然后呢
-Los asuntos del gobierno central los resuelven ellos mismos, quieren desmembrar a Evergrande Group y luego
+文贵开启了中国有多少的第一次，第一次。这就是喜马拉雅的力量，这就是我们追求依法治国的力量，这就是我们的成就。不管你承不承认你都在被改变中。当年有一位非常重要的老师给我说了一句话，说这个乌托邦，他是不见棺材不落泪的，你必须要让它见了棺材，让它躺在里边然后盖上盖，它才会落泪。
 
-全部各部委
-Todos los ministerios
+现在看来他们正在往里面走的时候，所以你看，结果搞了一个周先生，还有这他兄弟俩出来认罪。中国的案子法律规定，未审就先把这人撂出来，这是合法吗？陈氏两个兄弟是在被囚禁中，所有关于文贵这些年所有的出来电视认证，什么郭三秒那个女孩啊，还有什么王有杰啊、马建副部长啊、石发亮啊、曲龙啊，全是被在押犯人。
 
-所有承担责任
-Deben asumir las responsabilidades
+所有关于郭文贵的证人全是在押犯人，证据全是在押的。现在大家都在问这俩人，加拿大的人到了新加坡怎么就跑回大陆去了？而且从湖南抓的，广东抓的，我向你们保证他在新加坡丢失的。怎么跑回大陆去的，这是个问题。
 
-但是记住战友们, 给恒大出这个招的人
-Pero recuerden, compañeros luchadores, quien le dió este truco a Evergrande Group
+为什么一个在囚禁中的人，你让他讲的话能算证据。为啥这不让他两个回到加拿大来？只要重庆公安你有种把这两人给放到加拿大来，他说啥我都认，他说什么我都承认。他说我杀人我都认，我现在在这块以视频为证。你把所有人抓起来就像那个铜锣湾事件，让人家说啥人说啥。你敢把人放回来吗？这叫耍流氓这不叫警察。
 
-一定是江派的人
-Debe ser del Partido de Jiang
+- **（03:00）这个专员就是现任常委的某个秘书，是陈氏兄弟的亲戚**
 
-习派没有这样的人
-El Partido Xi no tiene este tipo de persona
 
-他这样的出招, 就把整个中国的影子银行
-Este truco que hizo, dejó a todos los bancos de sombras de China
+**郭文贵先生：**那么关于这两位陈氏兄弟绝不像大家想象那么简单，他俩的背后的故事可事儿大了去了。就在这两位兄弟，我在这先说抱歉，这事让你们受苦了，同时给你家人带去问候。你们不要紧张，我相信你们知道他俩是什么身份什么个性。你们要有任何经济上困难直接给我联系，我文贵义不容辞全力以赴。那么我相信你们家人对他俩是有信心的，了解他俩的追求是什么。
 
-保险机构、信托、所谓资金池子不在财富列表之内的
-Las instituciones de seguros, los fideicomisos y los denominados grupos de capital que no se incluyen en la lista de patrimonio
+这两位先生是双胞胎，一米九的个子，能吃至极。在我家吃过一顿饭，我桌上三分之二的饭都被他吃了。我说你吃吧我知道你能吃。在这之前都是我的助手和我的保镖见的他。在个印度餐馆，每次他一个人吃3个人饭，人特别特别的帅非常冷静，受良好的教育。从小到大就是对乌托邦对共产党那是看不惯的，而且他身边的很多人都是真正的有良知的，不是所谓搞募捐的那些民主民运人士，是非常有良知的追求中国的法治民主自由的人士。
 
-这几十万亿全给隐藏住, 习100%用这个招
-Estas decenas de billones están todas ocultas y Xi usó este truco al 100%
+而且我再告诉你们他那个文件肯定来自中南海，而且就在现任的常委当中办公室出来的。你们可以看看今天两会时候哪个常委脸上不高兴。我在过去视频说过你看看有人不高兴，为啥不高兴？其中就涉及到陈氏两位兄弟，就是我们叫周先生。因为他抓他之前，先把那个常委，现任常委，现在的现任常委其中的秘书给抓了。
 
-今天记着我的话
-Recuerden lo que dije hoy
+也就是他给我通话中讲专员，专员，这个专员就是现任常委的某个秘书。这个专员同时是他家的亲戚，好像是他的什么妹夫，这个人很了不起。所以说好戏因为重庆市警察局现在搞热闹了，全世界关注。现在我这里热闹了，全世界都要找我。问我咋回事，你看这不是给我做广告吗？我不说都不行，我让子弹飞一会。
 
-也看到了很多人都被安抚了
-También verán a muchas personas que serán consoladas
+- **（05:15）与陈氏兄弟的所有来往都会公布出去，盗国贼上当了**
 
-买房的交房, 欠钱的按期付款
-El comprador de la casa lo entregará, y el dinero adeudado se pagará a tiempo
 
-但不准上街闹事
-Pero no deben crear disturbios en la calle
+**郭文贵先生：**我和陈先生之间的这个录音被他们给剪接了。我从第1天告诉他到最后，你千万不要你造假，你造假那你一定要负责，我是不愿意的。那么同时到后来有人提出这个文件是假的，我又问他，大家看了那一段了吗，那一段是警察掐住那一段，他把所有的录音都听过了，没有一样有毛病的。
 
-习一听
-Xi al escuchar esto
+那就那一句，这是我说不能造假，他就说他能造假我们不能造假吗
 
-这事很好, 阻止了各种其他房地产商
-Dijo, esto es algo bueno y ha detenido a varios agentes inmobiliarios
+这是前边有前缀，后面有后因的，这个语境。结果他给掐断了，这一掐断好像他很聪明，他当然拿枪逼着两兄弟说了这是我让的。大家可以看一看，世界上50家媒体没有一个是笨蛋的。现在都在找我问，都很兴奋，成了世界焦点了。慢慢来，让子弹飞一会。
 
-来到我这闹事
-A crear problemas aquí
+接下来我会把和两位兄弟之间所有的来往都会公布出去，我正在和律师开会每一个字每个字地确定中，我向大家保证我不会剪辑一个字。到那时候重庆公安你不就帮文贵了吗？所以说重庆警察的同志们，你们辛苦了，郭文贵向你致谢啦。
 
-那么现在我告诉大家
-Entonces ahora les digo a todos
+另外一个，盗国贼这回你找了50多家记者搞文贵的事情，我太清楚想干嘛了。因为你得到了假情报，有海外的伪类说郭文贵现在有什么什么事，那是我钓鱼的。我现在就告诉你你上当啦，结果你就啪嚓紧急弄出了这么一个重庆叫案情通报会帮了我大忙了。
 
-恒大倒不倒
-Evergrande Group caerá o no
+因为你所有说的话都是假的，陈氏兄弟跟我没有买卖关系。我最初认识他，我给人家钱人家都不要。直到后来他要全职干这事的时候，说要去调查盗国贼的时候，我提出了给他发工资。虽然一个月4000，但是我每个月都给了6000到8000。而且在文贵的文件里面，他连千分之一都不占，千分之一都不占。
 
-关键是第一张牌
-El punto crucial es la primera carta
+他这次回去到新加坡是被钓鱼了，我坚决不同意他去。2月15号是我跟他最后一次通话，我说你绝对不要去，你去你一定会被你抓回去。他认为新加坡没问题。结果，他哗从新加波给绑回去了，因为他见什么去了？是交易肖建华的全部卷宗，全部卷宗。全部卷宗这是核心所以说被抓了，还有他俩个的这个亲戚是现在常委的秘书。
 
-一定会让你惊艳
-De seguro te sorprenderá
+还有一个他的文件只在我文件当中千分之一都不到。他给我的文件只有两份我用了，其他我一概没用。只有两份我用了。然后另外有两份给了其他部门，所以说他说30份我都不记得了，他的文件什么都不算。我跟他的关系不是文件，他也不是弄文件、造假文件的人。完全是造假。
 
-共产党的一堆办法
-El Partido Comunista tiene cantidades de soluciones
+但他这回造假他先说了，盗国贼先说了，盗国贼先出手了。等着等文贵拿证据，来咱们向大家展示。盗国贼用的全是一方之词和被监禁的这个当事人所说的话。我说的是完全是多方的，不仅是两兄弟是多方的，还是有证据的而且是可以确认的。
 
-就是要让恒大不倒
-Para que Evergrande Group no se caiga
+一切都是刚刚开始，大家等着别着急、别着急，等着文贵给你晾出去。莘县阳谷县搭县，光说空的咱不算，咱要拿证据才说了算。哈哈，哎呀，昨天晚上我是没睡觉啊！昨天赛场赢了很开心；但是今天开了很多会，午饭还没吃，但很高兴啊。
 
-你会看到一堆措施
-Verás muchas medidas
+\*\*\*\*\*\*END\*\*\*\*\*\*\*
 
-但是最终我告诉你
-Pero finalmente, te digo
+温哥华扬帆农场七哥直播全文听写组：
 
-一定会倒
-Seguramente caerá
+听写整理——
 
-而且倒的非常的惨
-Y de la manera más terrible
+多伦多枫叶农场：软红香土
 
-而且许家印进不了监狱, 许加印一定是车祸死啊
-Además, Xu Jiayin no entrará al carcel, él será muerto de un accidente automovilístico
+全文总校——
 
-心脏病死啊、自杀啊
-De un infarto, suicidio
+温哥华扬帆农场：Peter哥
 
-猝死等, 一定这结局
-Muerte súbita, entre otros, el final debe ser así
+审核发布——
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+温哥华扬帆农场：Peter哥
 
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24](https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24)
+全文发布稿总审核——
 
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+温哥华扬帆农场：文敏

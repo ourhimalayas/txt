@@ -2,53 +2,60 @@
 ---
 
 
-## 英国欲将中广核从新核电项目中剔除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559355/)
+## 前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1559409/)
 
-栏目记者/责任编辑：AsG諾雅
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+前白宫经济顾问皮特·纳瓦罗： 推特上的“取消文化”又开始(作怪)了。他们决定不允许我为我的推文做广告。很显然,真相刺激了他们泼妇般敏感的神经。这些人是谁？ 盖特(GETTR)是推特杀手。推特的“取消文化”正在摧毁美国。
 
 
 
-
-
-德国之声9月26日援引英国《卫报》周六独家消息，英国政府正接近达成一项协议，将中共国有的广核集团（CGN）从一个价值200亿英镑的Sizewell C核电厂兴建计划中剔除，转而用纳税人的税款进行投资，继续与法国EDF电力公司合作完成兴建，这可能导致目前持有该核电站20%股份的中广核被剔除。
-
-中广核已经与法国EDF电力公司合作，建造预计2025年竣工的英国西南部欣克利角（Hinkley Point）核电设施。
-
-近期，英国因间谍活动、网络攻击、人权等议题与中共国关系紧张。面对保守党内人士要求对北京采取更强硬立场的压力，英国首相约翰逊今年早些时候对国会议员表示，要建立“清醒的对华关系”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-128.jpg)
-2020年，英国已宣布，2027年底前从5G建设中移除所有华为设备。
-
-中共无视中英声明，悍然对香港民众和平的反送中运动采取激进的镇压措施，世界各国都看在眼里，英国作为香港曾经的管理者，为了保护自身的利益和形象，都不可能视而不见，采取剔除华为、中广核等的中资投资项目也许只是脱钩的开始。
+> The cancel culture twits at Twitter are at it again. They have decided they won't allow me to advertise my tweets. Apparently truth offends their pearl-clutching sensibilities. Who ARE these people?
+> 
+> GETTR is the Twitter Killer. Twitter's cancel culture is destroying America.
+> — Peter Navarro (@RealPNavarro) [September 27, 2021](https://twitter.com/RealPNavarro/status/1442283619926564872?ref_src=twsrc%5Etfw)
 
 
 
-参考链接：
-[英媒：英国欲将中广核踢出核电项目](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E6%AC%B2%E5%B0%86%E4%B8%AD%E5%B9%BF%E6%A0%B8%E8%B8%A2%E5%87%BA%E6%A0%B8%E7%94%B5%E9%A1%B9%E7%9B%AE/a-59315471)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+美国务院发言人内德·普莱斯： 国务卿布林肯与新加坡外交部长[@VivianBala](https://twitter.com/VivianBala) 进行了交谈，并肯定了我们国家的密切伙伴关系。他们讨论了我们对印太地区、太空合作和应对气候危机的承诺。 【附国务院官网新闻】
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) spoke with Singaporean Foreign Minister [@VivianBala](https://twitter.com/VivianBala?ref_src=twsrc%5Etfw) and affirmed our countries’ close partnership. They discussed our commitment to the Indo-Pacific region, space cooperation, and combatting the climate crisis. [https://t.co/D5Uai0fWpn](https://t.co/D5Uai0fWpn)
+> — Ned Price (@StateDeptSpox) [September 27, 2021](https://twitter.com/StateDeptSpox/status/1442609472128659459?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 通过恐怖主义人质外交取胜. 【转推称：孟晚舟和加拿大人质的交换是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和卖美贼幕后交易的的结果】
+
+
+
+> China wins using terroristic hostage diplomacy [https://t.co/7D2hELRswq](https://t.co/7D2hELRswq)
+> — Bill Gertz (@BillGertz) [September 27, 2021](https://twitter.com/BillGertz/status/1442302993534128135?ref_src=twsrc%5Etfw)
+
+
+
+众议院共和党领袖凯文·麦卡锡 ： 民主党正试图将4,300,000,000,000美元的 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 宠物项目强加给美国人民。 它会导致通货膨胀 这会让我们的孩子背上债务 它将会改变政府的模样,正如我们所知道的. 这是个很糟糕的协议——共和党人将全力而战. 【附福克斯新闻：麦卡锡关于众议院民主党人的开支闪电战】
+
+
+
+> Democrats are trying to force $4,300,000,000,000 in socialist pet projects on the American people.
+> 
+> It would cause inflation.
+> It would saddle our children with debt.
+> It would transform government as we know it.
+> 
+> It’s a BAD DEAL—and Republicans will fight it tooth and nail. [pic.twitter.com/VEuUd0YW6o](https://t.co/VEuUd0YW6o)
+> — Kevin McCarthy (@GOPLeader) [September 27, 2021](https://twitter.com/GOPLeader/status/1442535002823036932?ref_src=twsrc%5Etfw)
+
+
+
+众议员马乔丽·泰勒·格林： 国会应该保护被困在阿富汗的美国人，关闭边境入侵，并帮助被 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发送给我们的病毒摧毁的小企业。 与之相反，民主党正在通过法案来谋杀子宫内直到出生前的胎儿。
+
+
+
+> Congress should be protecting Americans trapped in Afghanistan, shutting down the border invasion, and helping the small businesses destroyed by the virus sent to us by China. 
+> 
+> Instead, Democrats are passing bills to murder babies in the womb up until birth. 
+> 
+> (Part 1) [pic.twitter.com/6g7UJsUdrx](https://t.co/6g7UJsUdrx)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [September 27, 2021](https://twitter.com/RepMTG/status/1442548123092635652?ref_src=twsrc%5Etfw)

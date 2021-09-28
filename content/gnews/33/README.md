@@ -2,51 +2,43 @@
 ---
 
 
-## 9月25日意大利声势浩大的反绿色通行证抗议，但是媒体报道“人数很少”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1559093/)
+## 拜登政府考虑对中国的工业补贴进行调查
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559160/)
 
-翻译整理/简评： 意大利罗马达芬奇农场  小白鸽
-
-意大利各个重要媒体对9月25日声势浩大的游行报道用词是“数百人在街上”,“不到一千人在街上”。当一位意大利公民读到这样的报道，会面对以下两种可能性：一是面对昨天意大利60个城市爆发的反绿色通行证的抗议，许多重要报纸选择不报道，或者不放在首页；还有一种可能便是发现有示威游行，但被告知参加者极少，是“否认新冠病毒存在者”，有可能是法西斯分子。那么9月25日真的像媒体报道的那样只有少数人走上街头吗？
-
-以下是从推特上截取的一些视频。第一个视频是在罗马圣乔万尼广场， 连国家警察也反对绿色通行证。
+作者：香草山金融部- Opal
 
 
 
-> Piazza San Giovanni a Roma oggi è piena…… Anche la polizia di stato è [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/AaczcQfBnw](https://t.co/AaczcQfBnw)
-> — Luigino Degani (@LDegani) [September 26, 2021](https://twitter.com/LDegani/status/1441917479060754437?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
 
-第二个视频9月20日在特利亚斯特市中心成千上万的人们在市中心高喊“ 不要绿色通行证”。
+近日，《彭博新闻社》和《金融时报》就拜登政府的高级官员是否对中国使用工业补贴进行调查进行了报道。据称，此举可能引发华盛顿和北京之间贸易紧张局势的升级。
 
+据熟悉此事的人士称，美国贸易代表Katherine Tai和美国商务部长Gina Raimondo已经考虑根据《1974年贸易法》第301条对中国的补贴进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-54.png)图片来源：[www.thediplomat.com](https://www.thediplomat.com/)
+这也是川普政府在白宫期间对中国征收3600亿美元的产品关税所使用的法律框架。2020年1月，时任美国总统川普和中共国国家主席习近平达成了贸易休战协议。但这协议并不包括中国政府会改变其工业补贴等任何可执行的承诺。今年拜登上任以来，尽管美国商业团体要求降低或取消关税，以减轻美国进口商的成本，但拜登还是保留了川普的关税。对中共发起新的贸易调查的决定表明，拜登不会与中共妥协，反而可能会变本加厉对抗中共。
 
+众所周知，中共国自身的贸易保护形式──补助和补贴在工业利润中的比重一直以来都是很大的。可以说，巨额政府补贴在中国公司的营运利润中占据越来越大的比重，国企和私企都是如此，这已不是秘密。
 
-> [#Trieste](https://twitter.com/hashtag/Trieste?src=hash&amp;ref_src=twsrc%5Etfw), lunedì 20 settembre 2021: migliaia di persone sfilano per il centro storico al grido "No [#greenpass](https://twitter.com/hashtag/greenpass?src=hash&amp;ref_src=twsrc%5Etfw)". [pic.twitter.com/LHqnIQMVcM](https://t.co/LHqnIQMVcM)
-> — Giacomo Bertoni (@ParcodiGiacomo) [September 20, 2021](https://twitter.com/ParcodiGiacomo/status/1440008528404549633?ref_src=twsrc%5Etfw)
+补贴是政府可用来推低出口产品价格的另一种手段。政府补贴以多种形式存在，包括全额现金补助、退税、地方政府援助和出口商扶持政策。在中国，当一家公司连续四年亏损时，这家公司将从证券交易所下市。而差不多10%的上市省级国有企业都依靠政府补贴来保持盈利。
 
+川普政府在白宫期间对中国征收3600亿美元的产品关税所使用的法律框架，也是《1974年贸易法》第301条。那么为什么拜登政府的高级官员，在现在这个时间点上，讨论是否对中国使用工业补贴进行调查呢？巧合的是，这是在拜登总统和习近平举行了90分钟的电话会议后爆出的新闻。笔者认为，拜登在电话中对北京在与他的团队接触方面缺乏认真态度表示失望，也就是说，拜登并没有从习近平那里得到他所希望得到的承诺。
 
+（本文仅代表作者个人观点）
 
-第三个视频是在米兰，警察在对付反疫苗通行证的抗议者。
+参考链接：
 
+[https://www.ft.com/content/76dd1430-bd4b-4f6f-954a-40ab0d636e74](https://www.ft.com/content/76dd1430-bd4b-4f6f-954a-40ab0d636e74)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
 
-> Green Pass, tafferugli a Milano: polizia affronta No Green Pass [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#novax](https://twitter.com/hashtag/novax?src=hash&amp;ref_src=twsrc%5Etfw) [#covid](https://twitter.com/hashtag/covid?src=hash&amp;ref_src=twsrc%5Etfw) [#vaccini](https://twitter.com/hashtag/vaccini?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cnriOd34a6](https://t.co/cnriOd34a6)
-> — Local Team (@localteamtv) [September 25, 2021](https://twitter.com/localteamtv/status/1441796564725477376?ref_src=twsrc%5Etfw)
+编辑/审核/发稿：正义的小新
 
-
-
-第四个视频是在都灵，9月25日反强制绿色通行证。
-
-
-
-> 25 settembre [#torino](https://twitter.com/hashtag/torino?src=hash&amp;ref_src=twsrc%5Etfw) [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#nobbligovaccino](https://twitter.com/hashtag/nobbligovaccino?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0CssPdcVxy](https://t.co/0CssPdcVxy)
-> — elena galluzzo (@elenagalluz) [September 25, 2021](https://twitter.com/elenagalluz/status/1441896039762448385?ref_src=twsrc%5Etfw)
-
-
-
-简评：从主流媒体对民众抗议绿色通行证采取的歪曲事实和轻描淡写地一带而过的报道，我们可以看出我们的Gnews和GTV有多么了不起，多么重要。新中国联邦人一直在为病毒真相和疫苗真相而在大声疾呼。在这场世纪大战中，我们能有讲真话，讲真相的媒体是多么的重要。
-
-免责声明： 本文只代表个人观点，并不代表Gnews 平台。
-[原文链接](https://www.lindipendente.online/2021/09/26/no-green-pass-ieri-manifestazioni-imponenti-ma-per-i-media-cerano-poche-persone/)
-上传：意大利达芬奇农场 老中医
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
