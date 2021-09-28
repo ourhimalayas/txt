@@ -2,62 +2,63 @@
 ---
 
 
-## WI警方：（未打疫苗）少年宣布战胜中共病毒可入狱
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1560065/)
+## 《疫苗死亡报告》：人类基因被永久改变
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560172/)
 
-- 编译：西班牙喜悦农场–wenwu
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：**zzballack**
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+卡莉·玛德杰（Carrie Madej）博士研究疫苗和超人类主义长达20年。她在由停止世界控制（Stop World Control）组织制作的纪录片《为人类而战》（The Battle For Humanity）中向人类发出警告说，这些中共病毒疫苗可能会永久地改变人类 DNA，并可能产生灾难性的结果。世界各地的通常已被疫苗行业收买的“事实核查”人员跳出来否认这一说法，并将其称为假新闻。脸书也制定了政策，审查所有警告这种实验性基因疗法可能会改变人类基因组的声音。直到一名脸书员工录制并公布了与脸书首席执行官马克·扎克伯格（Mark Zuckerberg）的内部会议视频，扎克伯格在视频中告诉员工说，这种疫苗确实改变了人类的DNA！他的原话是：
 
+**“我们真的不知道疫苗的长期副作用是什么。疫苗实质上修改了人体的DNA和RNA，以便直接在人的DNA和RNA上进行编码，以达到能够产生那些抗体的能力。尚不清楚这是否会导致其他突变或其他风险。”**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-6.jpg)
+参考资料：https://rumble.com/vmh8gx-covid-injections-indeed-change-the-human-dna.html
 
-Amyiah Cohoon 刚于 2020 年 3 月从医院回家，一名警长周日就来了，他警告说你的女儿竟然在 Instagram 上发帖称，她“战胜了中共病毒（covid-19)”这种社交行为让她面临指控甚至入狱。据[法庭文件](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)称，当时是大流行初期，她所在威斯康星州的县尚未记录任何 covid-19 病例。“担忧的市民”已开始打电话给当地官员。
+**一个专利超人类不再是拥有人权的人**
 
-“如果[IS帖子]不删掉，WI警长已经指控了我发出扰乱秩序的传票，这传票有权力把人送进监狱，”根据《华盛顿邮报》获得的录像视频，威斯康星州马凯特县（Marquette County）的警长告诉 Cohoon 的父亲。”因为这对公众造成了干扰”。该IS帖子被撤下，但 Cohoon 的家人在下个月就这一威胁对警长办公室提起了联邦诉讼。
+钦达·布兰多莉诺（Chinda Brandolino）博士是一位拉丁美洲的医生，她一直在大声疾呼一旦某人的基因组被改变，那么他就不再被认为是一个原始的人，而是变成了一个超人类，因此失去了人权。此外，她解释说，被改变的DNA和RNA可以被授予专利，使得这个转基因人成了专利持有人的财产。其中的含义非常令人震惊。
 
-一名联邦法官最近裁定，警长办公室侵犯了该学生的言论自由权，无论她是否真的患有 covid-19。据美国地方法官布雷特·路德维希 (Brett Ludwig) 称，这名青少年无法立即接受检测，医生建议最终的阴性检测可能来得太晚了。
+**参考资料：**https://rumble.com/vmk9yn-alarm-humans-with-modified-dna-have-no-rights-and-are-patented.html
 
-路德维希法官周五（24日）在威斯康星州东区的[法庭裁决中](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)表示，接受当局逮捕这名当时16岁的青少年的理由–警方声称，她通过社交媒体帖子散布焦虑和“恐慌”–将“削弱”第一修正案的保护。路德维希法官说，这些保护措施适用于“任何时期”。
+**危险的毒素：疫苗中的氧化石墨烯改变了电磁场**
 
-现年17岁的 Cohoon 在周日（26日）《华盛顿邮报》的简短采访中，对该案件的“爆发”感到惊叹。她质疑道：”我想做的是让人们知道我当时生病了（感染中共病毒），因为我身边有一群人。”
+世界知名的生物物理学家安德烈亚斯·卡尔克（Andreas Kalcker）开发了一种能有效治疗中共病毒的方法，它被23个国家的5000多名医生使用。大流行开始时，他的包含治疗级二氧化氯的治疗方案将玻利维亚的日死亡率从每天100人降至几乎为零。该方法被几个拉丁美洲国家的警察、军队和政客使用。这位生物物理学家还发现，这些疫苗含有大量的氧化石墨烯（含量高达95%）。他警告说，被注射入人体的氧化石墨烯**正在改变疫苗接种者的电磁场。**
 
-她的母亲 Angela Cohoon 补充说：“我们不想看到其他人经历这种情况。”马凯特县警长办公室、警长和代表他们的律师周日没有回应置评请求。他们的律师塞缪尔·霍尔今年春天[告诉《纽约时报》](https://www.nytimes.com/2020/04/21/us/marquette-county-sheriff-instagram-lawsuit.html) ——在行车记录仪[镜头](https://wapo.st/3m0fCU7)作为法庭案件的一部分浮出水面之前——执法部门否认威胁要逮捕 Amyiah Cohoon。
+“我们所关注的是氧化石墨烯会产生什么副作用。在医学上没有这方面的描述，但在我的领域（生物物理学）上有描述。会发生什么？身体需要它的分子带电功能（electromolecular capabilities）正常运转。心脏跳动是因为有一个磁场，该磁场创造了用于泵送和其他用途的电力。**石墨烯正在完全改变我们的电磁场，这是以前从未发生过的。**我们观察到“机体内”的一些东西正发生急剧变化。我们一直在观看大量的人们在接种疫苗后死亡的视频。你看到接种者出现了痉挛。例如，这些痉挛有非常特定的频率，并且在各种各样的痉挛中它们都是一样的。这些痉挛清楚地表明人类的电磁场受到了破坏。“
 
-据法庭记录声称，Cohoon 和她的高中乐队一起去往 Walt Disney World and Universal Studios 后，就出现了呼吸困难、发烧和咳嗽的情况。她去了急诊室，被诊断为“急性上呼吸道感染”。法庭文件指出，医生说她的症状与 covid-19 相符，但她没有资格接受该病毒的测试（或许是医院禁止医生确诊青少年感染 covid-19 的情况，理由大概是知道不需要打疫苗，这种没有及时确诊的现象在美国全境都是普遍都）。
+罗伯特·杨（Robert Young）博士进一步证实了中共病毒疫苗中存在氧化石墨烯、铝、脂质纳米颗粒（LNP）外壳、聚乙二醇（PEG）和寄生虫等有毒物质。科学家俱乐部也发布了一份报告，其中的大量电子显微照片证明了疫苗中存在纳米粒子。
 
-Cohoon 是带着呼吸机出院，并被建议隔离两周后，她还在 Instagram 上发布了关于这次磨难的信息（如图）：
+“罗伯特·杨博士及其科学团队在研究中利用电子（electron）显微镜、相衬（phase）显微镜、暗视野（dark field）显微镜、明视野（bright field）显微镜和其他类型的显微镜来观察疫苗中究竟含有什么物质。**其发现结果证实了拉昆塔科伦纳（La Quinta Columna）研究人员的发现：疫苗中存在具有磁毒性、细胞毒性和基因毒性作用的有毒纳米金属物质，以及已被确认的对生命构成威胁的寄生虫。**此外，在2008年，斯坦福大学的戴宏杰及其同事发现了氧化石墨烯。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/002-6.jpg)
+**参考资料：**
+1: https://www.bitchute.com/video/hy0MxQK4uQlR/
+2: drrobertyoung.com/post/science-team-reveals-graphene-aluminum-lnp-capsids-peg-parasites-in-4-cov-vaccines
+3: drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines
+4: https://www.stopworldcontrol.com/downloads/en/vaccines/nanotech-vaccines.pdf
 
-“嘿，伙计们……对不起，我休息了很长时间。由于我 [现在] 感染了 COVID-19 病毒，我还有等一段时间才可以回来，”她写道。她说她不想引起关注——这只想告诉人们“这是事实”。
+**血液的急剧变化：显微照片揭示了接种者的血液发生变化**
 
-路德维希法官写道，几天后，即 2020 年 3 月 25 日，Cohoon 回到医院并检测出[中共病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_27)呈阴性。但医生告诉她的家人，她应该继续隔离，而且 Cohoon 有可能感染了 covid-19，只是“错过了检测窗口”。当这位大二学生回到家时，她又发布了一张戴着氧气罩的照片，说她仍在接受”呼吸治疗”，但已经从中共病毒中恢复过来。
+罗伯特·杨博士还发现，在接种了mRNA疫苗之后，接种者的血液发生了巨大变化。下面这张图片显示了红细胞的正常健康状态，其颜色均匀、形状均匀、大小均匀。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-133.jpg)
+第二张显微照片是在相衬显微镜（Phase Contrast Microscopy）下拍摄的，展示了接种mRNA疫苗24小时后的人体血液。血液中含有被称为海因小体（Heinz Body）的结晶红细胞，红细胞和白细胞进行生物转化，血液中还发现了氧化石墨烯晶体中心的大型共质体（symplast），照片右上角是乳清酸晶体（orotic acid crystals）。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-71.jpg)
+在杨博士的网站上可以找到更多的显微照片，人们还可以看到疫苗中存在氧化石墨烯的证据：https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines
 
-路德维希法官在法庭文件中写道，该帖子引发了当地卫生部门以及 Westfield 学区的电话，卫生官员联系了警长办公室，并对她表示“希望说服2020年3月27日晚，卡梅伦·克鲁姆普警官出现在 Cohoons 家，要求撤下青少年声称的covid-19 说法；县卫生部门周日没有回应置评请求。
+一个德国研究小组的发现非常令人不安：当他们把疫苗瓶放在一盏灯下，将其加热到大约30摄氏度时，他们拍摄记录下了疫苗内复杂的晶体正在形成！请看: https://www.youtube.com/watch?v=s8e06KfDWMM
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-53.jpg)
+中共病毒疫苗的真相甚至远不止这些。在Bitchute或Rumble上搜索后可以发现更多关于疫苗或接种者血液的视频。由此发现的东西真是让人毛骨悚然：疫苗中有活的生物体，红血球堵塞在一起，各种危险的毒素，正在“执行神秘任务”的晶体，被注射进血液的纳米机器人扩散到大脑和全身所有器官，自组装纳米颗粒开始在血液中形成不同的结构等等。疫苗制造商没有对外公开上述任何一种情况，但由于他们的所有疫苗似乎都含有相同种类的高危险物质，很明显他们共同致力于一个不可告人的邪恶目的。
 
-Cohoons 家人提出抗议：根据视频片段，Cohoon 的父亲告诉这个警告，中共病毒测试挑战是众所周知的；“人们需要知道这[病毒]正在发生，当你不能警告他们时，当你又得到一个警长办公室威胁要把人们投入监狱时，这让人们出于危险中，”他埋怨道。
+辉瑞疫苗中的氧化石墨烯纳米自组装技术：
+https://everydayconcerned.net/2021/08/15/self-assembling-graphene-oxide-nanotech-now-found-also-in-pfizer-vaccine-german-video-reveals-self-assembling-specks-and-crystalline-networks-forming/
 
-但 Cohoons 家人最终同意了删除此贴；同一天，韦斯特菲尔德学区管理员罗伯特·梅彻（Westfield School District Administrator Robert Meicher）似乎在[给其家人](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)的[一封信中](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)批评了 Cohoon 。
+莫德纳疫苗中的纳米自组装技术
+https://everydayconcerned.net/2021/08/15/self-assembling-graphene-oxide-nanotech-now-found-also-in-pfizer-vaccine-german-video-reveals-self-assembling-specks-and-crystalline-networks-forming/
 
-“今天我注意到，外面有一个谣言，说我们的一个学生在两周前去佛罗里达的乐队旅行时，感染了Covid-19，”Meicher 写道。“我可以向你保证，这是你故意造谣的。这是一种愚蠢的吸引注意力的方式，你女儿的谣言已经得到妥善的解决。”
+**致命的毒素**
 
-路德维希法官说，这就是 Cohoon 关于她发布“可能”感染 Covid-19 的帖子的结尾。
+世界知名科学家的研究显示，中共病毒疫苗中存在剧毒物质，它们改变了人体的电磁场，扰乱了人体的正常功能。疫苗还使人体血液发生了急剧变化，这带来了更严重的健康风险。一些疫苗有纳米自组装技术，某些疫苗内正在形成复杂晶体。最不可思议的是，人类的基因被永久性修改，疫苗接种者成了超人类，他们不再被认为是原始人类，他们成了那些拥有DNA修改专利的人的财产。
 
-路德维希法官在上周对案件进行了权衡时候，他拒绝了警长的建议，即 Cohoon 的行为类似于“在拥挤的电影院里呼喊着火了”。该法官还说，有关当局上门仅是在进行说服而不是胁迫的论点是不成立的，因为这忽略了“一名身穿制服的警察出现在青少年家中，并命令她只允许发出“一种声音的言论。”这本身就具有令人不寒而栗的性质和胁迫性。
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
 
-代表 Cohoon 的威斯康星州法律和自由研究所的律师卢克·伯格(Luke Berg)对这一决定表示庆祝，并告诉《华盛顿邮报》，该案的事情原委“相当奇怪，但这是一个非常强烈的声明……警察不能对社交媒体进行监管。”
-
-**简评：**
-
-**从本篇报道的美国人物和统治系统上分析，其描述故事的真实可信度是很高。唯一可以确定的是，Instagram 对言论自由的控制在近几年的爆料革命中被暴露了。那么，我们不得不相信 Facebook 对儿童洗脑控制而进行“线上+线下”的操控，而感染了中共病毒的青少年不需要接种疫苗的事件，无疑对邪恶势力的计划造成了负面的影响。这让感到不可思议的是，面对此类事件的发生竟然具有如此的系统规划和应急措施。**
-
-**这会不会跟中共国发起的世界互联网新一届大会的[开幕](https://gnews.org/zh-hans/1557472/)与“共同富裕”有关呢？值得讨论。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：《[华盛顿邮报](https://www.washingtonpost.com/nation/2021/09/27/amyiah-cohoon-sheriff-lawsuit-covid/)》｜作者：汉娜·诺尔斯｜发布时间：2021年9月27日
-
-* * *
-
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)

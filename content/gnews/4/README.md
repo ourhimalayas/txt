@@ -2,32 +2,27 @@
 ---
 
 
-## DC每日热点0928
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1560533/)
+## 问题不仅仅是习近平，而是共产主义！
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1560706/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ED71919B-29D2-41E3-9114-198C38167886-scaled.jpeg)
-道琼斯指数 34769.39 ▼0.29%
-纳斯达克指数 14815.77 ▼1.03%
-WTI纽约原油CFD 75.759 ▲0.41%
-布伦特原油CFD 78.995 ▲0.35%
-美元兑人民币 1USD=6.461RMB
-美元兑港币 1USD=7.783HKD
-国际黄金 1738.34 美元/盎司
-全球CCP病毒感染人数 233,218,214 例
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-1、美国宣布实施一次HAWC高超音速武器飞行测试
-2、北约与北京对话,对发展核武器和军事现代化不透明表达忧虑
-3、美军参谋长联席会议主席米利上将周二将出席参议院听证，接受与中共解放军将领李作成两次通话有关的质询
-4、中共将反对澳英美三方安全协议AUKUS的立场带到了联合国，称建造核潜艇协议将加剧军备竞赛，损害国际核不扩散体系
-5、孟晚舟获释不是中共无条件的胜利，她签字承认了误导全球金融机构的事实，并签署延期起诉协议以解决欺诈指控
-6、白宫: 孟晚舟案纯法律考量，美对中共国与华为政策不变
-7、英国警告公民注意香港引渡条约的风险
-8、巴基斯坦与塔利班讨论阿富汗参加中巴经济走廊问题
-9、英国研究小组指伦敦缺乏仔细中共国策略 需新方向应对北京
-10、世界卫生组织组建新专家组 重启新冠病毒溯源调查
-11、日本制定网络安全战略，首次点名中俄朝为网络空间威胁
-12、传辽宁方大集团巨额注资海航
-13、美国开始拆除电信网络中华为和中兴等中共国设备
-14、瑞士议会要求政府出面与中共国国家“最高政治机构”进行交涉假货问题
-15、亚利桑那审计现5万多问题选票 已提交总检察长
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-15.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.09.28早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/61530a5542a8af3151a6e82b](https://gtv.org/broadcast/watch/61530a5542a8af3151a6e82b)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

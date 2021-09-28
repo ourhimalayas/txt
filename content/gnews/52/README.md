@@ -2,32 +2,28 @@
 ---
 
 
-## 朱立伦和国民党舔共卖台能得到继续尸位素餐的机会么
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1556989/)
+## 澳总理：澳大利亚对话中共的大门始终是敞开的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558239/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/83c8b77244type_jpeg_size_1050_149_end_副本.jpg)
-据郭文贵先生于[Posted on 3:07 AM · Sep. 27., 2021](https://gettr.com/post/pcb3w6da92)发布的盖特——
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/09/australia-scott-morrison-ap-19085176633304.jpg)CBS新闻
+9月27日，《天空新闻台》记者杰克·马赫尼（Jack Mahony）撰文，报道总理斯科特·莫里森（Scott Morrison）在接受采访时，驳斥了有关澳大利亚最近与中共国缺乏外交沟通的问题。
 
-9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！
+在接受CBS新闻《面对国家》节目采访时，主持人玛格丽特·布伦南（*Margaret Brennan*）向莫里森提问，为什么没有与中共国国家主席习近平进行沟通。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001_副本.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002_副本.jpg)
+莫里森驳斥道：“我们的电话始终是在线状态，我们对话的大门始终是敞开的。澳中两国在政治层面的直接对话不存在澳大利亚方面的任何障碍。但中（共）国方面没有对话的兴趣，但他们希望抓住这样的对话机会时，我们始终是欢迎的。并且，这些（对话）的机会多年来一直存在，但他们不感兴趣，那是他们的选择。”
 
+布伦南问莫里森，面对澳大利亚和中共国之间军事关系的紧张，是否存在“热战”的威胁。莫里森总理对此予以了否认。他说：“我当然不认为这是不可避免的，我认为这一切是完全可以避免的。不过，这些问题主要是（需要）在美中两国之间解决。”
 
-很多网友质疑朱立伦与共产党舔腚的这份文件中没有出现中华民国的字样，并质疑朱立伦及它背后的中国国民党把中华民国给卖了，其实这种质疑既对也不对，为什么这么说呢？因为只有借国民党的尸身才能还卖台的魂，否则不担任公职的朱立伦何以卖台呢？
+**新闻来源**
 
-既不担任公职而又一心卖台的朱立伦借国民党的尸身批评民进党所谓去中、反中政策，并进一步以所谓国共两党的九二共识及反对台独的基础上向中共递降书纳顺表，继当年不争气的国民党丢掉大陆龟缩台湾之余，国民党的宵小之辈朱立伦继续借国民党的尸身再卖台湾并乐此不疲，由此可见一斑矣！
+[Scott Morrison rejects suggestions a lack of political communication with China could lead to a ‘hot war’](https://www.skynews.com.au/australia-news/politics/scott-morrison-rejects-suggestions-a-lack-of-political-communication-with-china-could-lead-to-a-hot-war/news-story/887fbf8ceb9304d4fa811d5dbfcdb39a)
 
-卖台贼朱立伦的可耻与可恨之处在哪里呢？他的可耻和可恨在其空手套白狼以一纸文书绑架台湾两千三百万人民，在这份卖台舔共的文件中，朱立伦想当然地把他脚下的那片台湾土地和那片土地上生存的两千三百万台湾同胞想当然地划归了国民党和民进党，在把台湾这片土地和人民窃据囊中之后再用这一纸文书来舔共，并试图以卖台湾来为自己和那个尸身犹存的所谓中国国民党谋得一个尸位。
+校对编辑：文泓
+发布：七彩光
 
-如果成功卖台，卖台贼朱立伦和他身后的这个国民党或许可以能得到尸位素餐的机会吗？殷鉴不远 在夏后之世，中国共产党的所谓政治协商制度里的八个民主党派已经是国民党最好的前车之鉴，中国十亿同胞现在的水深火热也是台湾两千三百万同胞最好的前车之鉴，台湾同胞们和台湾的有种的政治家们如果能容忍国民党和朱立伦这样的公开通敌卖国，那就只有死路一条了，因为朱立伦至少还能借国民党的尸身还卖台湾的魂，剩下的民进党和两千三百万台湾同胞就只有被卖的份儿了。
-
-（文章内容仅代表作者个人观点）
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

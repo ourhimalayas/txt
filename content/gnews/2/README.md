@@ -2,26 +2,32 @@
 ---
 
 
-## 香港开审涉国家安全法第二案 马俊文庭上不承认犯罪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560562/)
+## &#8220;一切的问题不仅是习近平,而是共产主义!&#8221;
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560725/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/53C383FA-E436-4115-B1F4-29DBFA31AAF0_w1023_r1_s-1.jpg)网络图片
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-424.png)
+9月26日, 零对冲发表了一篇专栏文章, 称有一种声音正在游说西方, 试图让人们相信, 只要推翻习近平,一切都会过去. 而事实上罪恶的根源是整个共产党, 是共产主义!
 
-**编辑摘要：**9月28日，据法广引述法新社报道，香港今天开庭审理一名当地居民参加2020年抗议示威案，31岁的马俊文Ma Chun-man被指控在去年8月至11月的20次抗议活动中，通过呼喊口号和展示标语牌，以及接受记者问话，试图将香港与中国分裂违反国安法。马俊文出庭以不承认犯罪做辩护。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-35.jpeg)
 
-据香港检察官指控说，马俊文曾高呼 “光复香港，时代革命”、”香港独立，唯一出路”、”香港人，让我们建立自己的国家”、”一个国家，一个香港 “以及 “众志成城，武装起义”。
+文章写道, 今天世界面临的一切问题,不只是习近平带来的, 而是自1949年以来一直存在。在共产主义中国，真相一直在被掩盖,  共产党 控制着一个没有法治、没有人权、没有保护工人权利的 国家 。一个令人震惊的例子就是达数十亿美元的人体器官交易 , 这一交易可以追溯到习近平上台前 。事实证明, 共产主义一直与文明格格不入, 我们不能希望共产主义政权表现的体面, 更不能相信他们的话，即使是最基本的事情。以这次中共在新冠疫情中的统计数据为例: 谁会相信2600 万人口的澳大利亚,死于病毒的人数竟然超过 14 亿人口的中国?
 
-法新社说，这是香港根据北京严厉的国家安全法遏制异议的第二次审判，在马俊文的案件中，被指控的罪行并不涉及暴力，而是围绕着语言表达，香港未来将要开庭的多项涉及国安法的庭案也均是言论指控。
+文章的结论是, 每一个共产主义政权的敌人都是真理本身，是文明世界的价值观，而随着柏林墙的倒塌和欧洲其他共产主义独裁统治的瓦解，中共所作的一切, 目标就是如何避免类似的命运。这篇文章与我们爆料革命的诉求异曲同工, 面对这场全球性的病毒疫情危机,只有消灭共产党,彻底消除共产主义,才是解决问题的唯一方法!
 
-新闻参考链接：[香港开审涉国家安全法第二案 马俊文庭上不承认犯罪](https://amp.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210928-%E9%A6%99%E6%B8%AF%E5%BC%80%E5%AE%A1%E6%B6%89%E5%9B%BD%E5%AE%B6%E5%AE%89%E5%85%A8%E6%B3%95%E7%AC%AC%E4%BA%8C%E6%A1%88-%E9%A9%AC%E4%BF%8A%E6%96%87%E5%BA%AD%E4%B8%8A%E4%B8%8D%E6%89%BF%E8%AE%A4%E7%8A%AF%E7%BD%AA#click=https://t.co/2qe40wJurZ)
+（本文仅代表作者观点）
 
-* * *
+参考链接: [The Problem Is Not Just Xi Jinping; It Is Communism](https://www.zerohedge.com/geopolitical/problem-not-just-xi-jinping-it-communism)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
+终审：文龍
+校对/发稿：谐趣园
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

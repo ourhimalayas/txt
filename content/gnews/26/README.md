@@ -2,29 +2,38 @@
 ---
 
 
-## 澳洲民意调查：大多数人支持 AUKUS核潜艇协议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1560321/)
+## 秘翻在线：中共猛烈抨击英国海军护卫舰穿越台湾海峡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560440/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2a25010a92f082b53202327ed2f58cb8a578c7b5.jpg)图片来源：Getty Images
-**整理报道：**翼族
+#### 文章撰写： 寶寶
 
-大多数澳大利亚人支持总理斯科特·莫里森与美国和英国建立牢固关系，以支持澳大利亚国防安全的举措。但《卫报》最新的调查显示，受访者同时也担心新的AUKUS伙伴关系将会使得澳大利亚与中（共）国及欧洲的关系变得更加紧张。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/FAOva5CVcAsdaf43t34r2Uv75z.jpg)
 
-对1094名受访者的调查显示，62%的人认为澳大利亚与美国和英国达成核潜艇协议是正确的，而54%的人同意以下说法：“ AUKUS伙伴关系符合澳大利亚最佳的安全和经济利益。”
+据零对冲9月28日报道，中共对英国军舰通过台湾海峡的最初反应平淡，外交部发言人华春莹告诉记者，北京希望“有关国家能够为建立国家间互信，维护地区和平与安全做出更多努力。”
 
-55%的人认为该安排将会进一步激化与中（共）国的关系。在法国政府对莫里森决定取消与海军集团900亿美元潜艇合同的激烈反应之后，48%的人认为新的伙伴关系将危及澳洲与法国的贸易协议，以及与欧盟的关系。
+但不久之后，哥伦比亚广播公司（CBS）报道的，中共军队的东部战区司令部表示，它已派遣空军和海军部队跟踪里士满号，并警告它离开台湾海峡。
 
-随着有可能在2022年第一季度举行的联邦大选的临近，最新的民意调查显示，自由国家党联盟在处理国家安全政策方面，领先工党13%，并且联盟党在国际关系管理方面也领先5个百分点。
+军方声明说：“这种行为怀有恶意，破坏台海和平稳定。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+“战区指挥部队始终保持高度戒备，坚决应对一切威胁和挑衅。”
 
-**参考链接：**[Essential poll: majority of Australians back Aukus submarine pact, but fear it will inflame tensions with China](https://www.theguardian.com/australia-news/2021/sep/28/essential-poll-majority-of-australians-back-aukus-submarine-pact-but-fear-it-will-inflame-tensions-with-china)
+据《星条旗报》报道，自 2019 年以来，一艘英国军舰周一首次通过台湾海峡，同时拜登政府经常让导弹驱逐舰穿过敏感的水道，以反击北京在该地区的军事侵略。
 
-*编辑/发布：翼族*
+以反潜战闻名的23型护卫舰里士满号（HMS Richmond）在推特上表示：“经过与东海伙伴和盟友的忙碌工作之后，我们现在正穿过台湾海峡访问越南和越南人民海军，”
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- 上一次英国军舰穿越争议激烈的狭长水域是2019 年的里士满天企业号（HMS Enterprise）。
+
+
+当被问及护卫舰航行情况时，中共外交部发言人华春莹在例行记者会上对记者说，“有关国家应做有利于建立互信、维护地区和平稳定的事情。”
+
+伦敦此举正值拜登政府每月派军舰通过海峡之际，这加剧了与中共的紧张关系。 已经有 13 次这样的航行，表明美国对一个自由的印太地区的承诺。
+
+英国海军上将托尼·拉达金（Tony Radakin）最近告诉《日经亚洲》，“台湾海峡是国际水域，这是一条可供不同国家使用的水道，这一点非常明确。”
+
+此外，北共一直加大对台湾的外交压力，台湾拒绝承认台湾是中国的一部分。 由于两岸冲突的威胁加剧，中共空军今年已对台湾防空识别区进行了500多次入侵。
+
+里士满号是英国皇家海军伊丽莎白女王号航母打击群的一部分，首次前往太平洋地区执行任务。
+
+参考文章：[**China Slams UK’s “Evil Intentions” After Navy Frigate Sails Through Taiwan Strait For First Time Since 2019**](https://www.zerohedge.com/geopolitical/british-frigate-sails-through-taiwan-strait-first-time-2019)
+
+本文仅代表作者本人观点，不代表Gnews平台

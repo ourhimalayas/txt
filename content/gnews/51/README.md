@@ -2,28 +2,46 @@
 ---
 
 
-## 澳总理：澳大利亚对话中共的大门始终是敞开的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558239/)
+## 康希诺疫苗致白血病的赵延壮和200例病友只是冰山一角
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1558271/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/australia-scott-morrison-ap-19085176633304.jpg)CBS新闻
-9月27日，《天空新闻台》记者杰克·马赫尼（Jack Mahony）撰文，报道总理斯科特·莫里森（Scott Morrison）在接受采访时，驳斥了有关澳大利亚最近与中共国缺乏外交沟通的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210921001211_副本-1.jpg)
+据[**赵延壮mm**](https://weibo.com/u/7306095702?refer_flag=1005055014_) [2021年9月27日 16:47](https://weibo.com/7306095702/KA7nWb8vc?from=page_1005057306095702_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI Mate 30](https://app.weibo.com/t/feed/67dir4) 已编辑
 
-在接受CBS新闻《面对国家》节目采访时，主持人玛格丽特·布伦南（*Margaret Brennan*）向莫里森提问，为什么没有与中共国国家主席习近平进行沟通。
+求政府救命，国家重视 性别：男  姓名：赵延壮 年龄：18岁 联系电话：13111343899 地址：河北省邯郸市馆陶县寿山寺乡韩范庄村 于6.23日接种康希诺新冠疫苗
 
-莫里森驳斥道：“我们的电话始终是在线状态，我们对话的大门始终是敞开的。澳中两国在政治层面的直接对话不存在澳大利亚方面的任何障碍。但中（共）国方面没有对话的兴趣，但他们希望抓住这样的对话机会时，我们始终是欢迎的。并且，这些（对话）的机会多年来一直存在，但他们不感兴趣，那是他们的选择。”
+在上海奉贤区八维学校上学，上学期间学校组织我们成年学生接种新冠疫苗，接种后疫苗开始反复发烧、牙龈出血之后，浑身乏力开始严重贫血，身体开始有淤青和出血点。疫苗之前身体很健康，从未生过大病，也没有家族史。后来贫血严重在学校请假去奉贤区医院检查做了血常规，发现结果异常。
 
-布伦南问莫里森，面对澳大利亚和中共国之间军事关系的紧张，是否存在“热战”的威胁。莫里森总理对此予以了否认。他说：“我当然不认为这是不可避免的，我认为这一切是完全可以避免的。不过，这些问题主要是（需要）在美中两国之间解决。”
+老师带我来到三甲瑞金医院检查，当天就进行了各种检查包括血常规，CT一类，由于医院没有床位就在急诊住了几天，之后腾出床位后进行了骨穿检查，结果显示为急性髓系白血病m2。 住院期间发生了 面部出血、眼底出血包括吐血一类的反应。
 
-**新闻来源**
+现在已经过去两个月了，病情也暂时得到了控制，现在我已知的和我一样情况的已有200多人，其中包括很多和我一个医院的治疗的，相信还有很多不知道的案例在内。
 
-[Scott Morrison rejects suggestions a lack of political communication with China could lead to a ‘hot war’](https://www.skynews.com.au/australia-news/politics/scott-morrison-rejects-suggestions-a-lack-of-political-communication-with-china-could-lead-to-a-hot-war/news-story/887fbf8ceb9304d4fa811d5dbfcdb39a)
+半个月前去奉贤区疾控中心上报疫苗异常反应，今天给了答复是跟疫苗没有关系，但是诊断书上连一个权威专家的签名都没有，让我们如何相信这份报告的权威性。更可气的是疾控中心的工作人员告诉我们，没有一个人会对这份报告负责，只是一个政府行为，那么既然没人对这份报告负责我，我们是不是可以怀疑这份报告的真实性和权威性。至此我们是否可以怀疑根本没有专家做鉴定这份报告只是一份敷衍。
 
-校对编辑：文泓
-发布：七彩光
+难道都不需要问一下我的情况进行判断吗，就只是几个专家坐在一起喝着茶水聊一聊我的病情就可以诊断为与疫苗没有关系吗？马上要进行三疗了，这些期间已经费用高达数十万，家里只有爸爸妈妈和姐姐，爸妈年纪大了跑不动流程了，只能让我姐姐来办手续，所以家庭已经没有了任何收入来源，之后还有干细胞移植的费用高达几十万元，之后发生严重排异的费用更是想也不敢想。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+就算疫苗的严重不良反应是接种剂次的十万分之一那也是对几千个家庭的灭顶之灾，让这些家庭支离破碎。所以求政府救命，求国家重视此类问题。麻烦网友帮忙转发让国家看到。🆘 [2上海](http://t.cn/RVJk9aF) [2上海](http://t.cn/RVJk9aF)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/001-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/002-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/003-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/004-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/005-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/006-2.jpg)
+
+
+那么赵延壮发出的疫苗诊断报告是怎么写的呢？——急性白血病的发生可能与外界环境、遗传因素有关，接种疫苗不会诱发白血病；疫苗和接种过程均符合接种工作规范要求；受种者接种的康希诺疫苗与所患急性髓系白血病不存在因果关系，不属于预防接种异常反应。
+
+互联网和防火墙分明制造了一个阴阳相隔的奈何桥，在桥的那边是响应政府号召打疫苗，和打了疫苗致病以后的求助无门，18岁的河北青年赵延壮和与他同样因为疫苗导致白血病的200例病友只是冰山一角，200+赵延壮的这些人在徒呼奈何时，这一切与疫苗接种机关的任何个人无关。
+
+这一切只是一个政府行为，可是难道这些疫苗接种机构不是政府的一部分么？所有的扯皮都永远会陷入这样一个怪圈，所有的扯皮都会最终耗尽200+赵延壮这些人的精力，也最终在徒呼奈何中走向生命的终结。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

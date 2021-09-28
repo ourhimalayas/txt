@@ -2,53 +2,26 @@
 ---
 
 
-## 秘翻在线：英国媒体报道GETTER 对抗推特
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560486/)
+## 法官解除接种禁令 纽约市教职工处境艰难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560609/)
 
-#### 翻译：文斗
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-421.png)
+针对纽约市强制要求教职人员接种新冠疫苗的规定，继第二巡回上诉法院的法官于上周五批准临时禁令后，周一，由三名法官组成的快速审查小组宣布解除了这项禁令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/sa5f6546tr4h561sd6a51f651gtr56ge5w6e.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-49.jpeg)
 
-9月25日，英国媒体《每日快报》网站（express.co.uk）发表《川普的盟友推出社交媒体平台以对抗推特》，报道杰森·米勒(Jason Miller)接受《星期日快报》（Sunday Express）采访。
+按照纽约市政府的规定，从本周二开始，拒绝接种疫苗的教职人员，要么选择无薪休假一年，要么离职。但鉴于审查小组刚刚做出的决定，目前尚不清楚市政府是否会立即执行。据悉，原告律师已经向最高法院申请司法干预。
 
-这是盖特（GETTER）总裁杰森·米勒在欧洲推广盖特工作的一部分。
+法官的这一决定，不仅使学校和学生失去了职员和老师，还因此切断了很多家庭的收入来源，致使他们无法支付房租、水电和其他生活必需品。而在世界经济危机到来之际，这一决定将会对社会造成无法挽回的伤害。
 
-米勒先生在采访中指责社交媒体巨头Twitter和Facebook通过压制有关乔·拜登儿子亨特的负面报道来干预上届美国大选，并在大选后终身禁止川普先生使用。
+（本文仅代表作者观点）
 
-他说：“六分之一的拜登选民表示，如果他们知道亨特·拜登的故事，他们会改变或考虑改变投票。”
+参考链接: [Update: Federal Judges Say NYC Can Impose Vaccine Mandate on School Employees – Lawyers Representing Teachers to Petition US Supreme Court](Federal%20Judges%20Say%20NYC%20Can%20Impose%20Vaccine%20Mandate%20on%20School%20Employees%20–%20Lawyers%20Representing%20Teachers%20to%20Petition%20US%20Supreme%20Court)
+[Federal judges: NYC can impose vaccine mandate on teachers](https://www.cnbc.com/2021/09/27/federal-judges-nyc-can-impose-vaccine-mandate-on-teachers.html)
+[Judge’s ruling creates cliffhanger for NYC teacher vaccine mandate](https://nypost.com/2021/09/25/nyc-teacher-vaccine-mandate-paused/)
 
-他还指出，对美国大科技公司的担忧意味着加入盖特的人中有三分之二希望迎战社交媒体巨头，而有三分之一的人希望支持川普总统。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-米勒说：“我们在7月4日独立日上线，以便人们可以宣布独立于大科技公司，到目前为止，我们是有史以来最快达到100万用户的社交媒体平台。”
-
-“我们也是有史以来最快达到200万用户的社交媒体平台，这件事真的像火箭起飞一样。”
-
-“我想说，就市场而言，Twitter和Facebook是我们最有可能的两个竞争对手。”
-
-他说，与Twitter不同，盖特不会有哈马斯或塔利班等恐怖组织的空间。同时也与Twitter不同，“想表达政治观点的人不会被封杀。”
-
-盖特的不同之处还在于，它不会收集和出售人们的数据。
-
-在描述他的竞争对手时，米勒先生说：“表面上他们是社交媒体，实际上他们是数据公司。”
-
-米勒先生呼应其前老板川普的竞选口号，盖特将 “让社交媒体再次变得有趣”。
-
-他正在与南美著名足球运动员、两位主要歌手和其他名人洽谈加入盖特。
-
-在英国，一个新的党派“UK Reclaim Party”领导人、演员劳伦斯·福克斯（ Lawrence Fox）已经加入了盖特。本周此前宣布，福克斯先生将在一部关于金融丑闻的电影中扮演亨特·拜登。
-
-米勒先生说，盖特上将没有色情或种族虐待的空间，违反这些规则的用户将被封禁。
-
-这位传播学大师说，盖特正挺身迎战西方历史上前所未有的封杀文化和审查制度。
-
-他说：“如果一年半前你告诉我，我会满全世界倡导言论自由和支持川普，我会说你疯了。”
-
-“看到发生的一切，我真的认为去年是美国历史上审查制度最糟糕的一年。”
-
-“回溯到去年春天，当中共病毒出现时，人们因为说病毒来自中共国的一个实验室这样激进的话而受到审查。”
-
-“事实上，大科技公司会去审查和封杀（言论），我认为这对美国的言论自由来说真的是个悲剧。”
-
-“现在我们发现，白宫正积极与社交媒体合作，以言论自由为赌注挑选赢家和输家。”
-
-“如果你让川普总统和（他的新闻秘书）莎拉·桑德斯 (Sarah Huckabee)说‘我们正在与一家社交媒体公司合作，确定某些帖子，说它们应该被删除’。人们会发疯的，这是法西斯国家，这是《1984》。”
+终审：暗黑
+校对/发稿：谐趣园

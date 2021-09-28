@@ -2,15 +2,9 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 16
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1560261/)
+## 杰森·米勒宣传Gettr遇到许多左派制造麻烦压制言论自由
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1560397/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+9/27/2021 杰森·米勒在世界各地宣传Gettr时，遇到许多左派制造麻烦，因为他们想压制言论自由。
 
-Dr. Pierre Kory during the senate hearing: immerse amount of data have shown that Ivermectin is a life-saving early treatment against Covid-19
-
-皮埃尔·科里医生在参议院听证会上：大量数据表明，伊维菌素是早期治疗中共病毒的救命药
-
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcfohw3a28)
-
-**喜联盟Gnews编辑部**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

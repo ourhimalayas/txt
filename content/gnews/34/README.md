@@ -2,38 +2,34 @@
 ---
 
 
-## 西方三大数据库显示 疫苗至少已致40666人死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560187/)
+## 班农专访4: 世界银行向中共磕头服软
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560259/)
 
-#### 采集/撰稿：极寒将至 
+[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=2560)](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=1024)
+**简评：**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/vacunas01.jpg)图片来源：路透社
-全球研究网站（Global Research）刊登了新冠伦理医生组织（Doctors for Covid Ethics）的一封公开信，信中总和了包括欧盟、英国、美国三大官方数据库的疫苗不良反应统计，数据显示截至2021年9月15日，中共病毒疫苗已致总共40,666人死亡，6,626,502人出现疫苗不良反应。
+川普时期任命的世界银行行长与其他一些高层领导人曾经向经济学家施压，要求提高中共国2018年的排名。川普身边的许多金融人士没有真正地执行川普的计划来对抗中共，相反，他们与中共勾结，任由中共从沙特筹集资金并干涉世界银行的运行。他们热衷于中共的合作。人们既希望与川普总统和他的计划来抗衡中共。
 
-新冠伦理医生组织（Doctors for Covid Ethics），是来自 30 个国家/地区的医生和科学家成立的，宣称致力于在应对COVID-19时维护医学道德、患者安全和人权。
-
-以下是更新至2021年9月15日的数据：
-
-欧盟、欧洲经济区、瑞士至2021年9月11日，根据EudraVigilance数据库（欧盟药物警戒系统）显示，24,528个死亡案例与注射中共病毒疫苗有关，2,292,967 人出现疫苗不良反应。
-
-根据MHRA数据库（药品和医疗产品监管署Medicines and Healthcare products Regulatory Agency），英国至2021年9月1日，1,632 个死亡案例与注射中共病毒疫苗有关和 1,186,844人出现疫苗不良反应。
-
-美国至 2021年9月3日，根据VAERS数据库（疫苗不良事件报告系统Vaccine Adverse Event Reporting System），14,506个死亡案例与注射中共病毒疫苗有关和 3,146,691人出现疫苗不良反应。
-
-公开信中还提醒大家注意以下几点：
-
-- 上述官方数字（向卫生当局报告的）仅占实际数字的一小部分（1%至10%）。
+GTV视频链接：[英喜每周采访班农先生0922-Q4：世界银行屈服于中共，无时无刻不在向中共磕头](https://gtv.org/video/id=61511810d2e2b817486e7bf5)
 
 
-- 英要求在全球范围内立即停止 COVID-19疫苗接种计划。
 
+**视频字幕：**
 
-- 在充分了解成人和儿童正在遭受严重伤害和死亡的情况下，继续实施该计划构成了危害人类罪、种族灭绝罪，被认定负有责任或同谋者最终将被追究个人责任。
+**主持人**：世界银行取消了其旗舰出版物《营商环境报告》。经调查发现，包括时任世界银行行长克里斯塔琳娜·格奥尔基耶娃在内的一些高层领导人, 曾向经济学家施压，要求其提高中国2018年的排名。班农先生，你对这个发现感到惊讶吗？
 
+**班农先生**：我对此一点也不感到惊讶。 世界银行屈服于中共，无时无刻不在向中共磕头。我很惊讶世界银行现任行长是由川普总统任命的。我认识他，他没做任何事。他谈论的只是他们如何与中国共产党与全球主义者合作。他基本什么事情也没做。事实上，中共国仍然收买第三世界发展中国家。
 
-全世界的政府都在欺骗他们的人民，声称为人民服务。而且上面的资料足以说明基因疫苗是致命的！
+令人发指的是他们让中共这个犯罪组织与世界银行勾结。他们干涉世界银行运作，却没人站出来反对。川普总统任命世行现任行长, 首先想治理这种中共的滥用行为，但却没有发生。人们寄希望于川普总统和川普总统计划来对抗中共。瞧瞧财政部长姆努钦，对中共国非常软弱。
 
-如果说先前没有这些数据的时候，政府推广疫苗是因为无知，那么在已经有了这些数据证明疫苗的危害远大于病毒的时候，政府还有什么理由再推广，甚至是强制推广疫苗接种？
+对于中共国主要从沙特阿拉伯海湾酋长国筹集的25亿美元。中共通过那里筹集了很多钱，但他们放入了基金。所以川普总统身边有许多金融人士，没有执行川普的计划，尤其没有真正对抗中共。
 
-新闻来源：[J’Accuse! The Gene-based “Vaccines” Are Killing People. Governments Worldwide Are Lying to You the People, to the Populations They Purportedly Serve](https://www.globalresearch.ca/jaccuse-governments-worldwide-lying-you-people-populations-they-purportedly-serve/5750650?__cf_chl_captcha_tk__=pmd_6GUeVKXeRXkEMTbEu6B_L0gGkMkRzm4Mi0ohmgfDWVk-1632818558-0-gqNtZGzNAyWjcnBszQol)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕:雨中漫步 | 听写：云岭 | 翻译：Dasy* *| PR：Roberts* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

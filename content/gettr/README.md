@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 3:20 PM (UTC)`
+
+9月28号：请教🙏🙏🙏这是否是我们战友开的餐厅？
+![img](https://media.gettr.com/group2/getter/2021/09/28/15/20/1aa5c4d7-9a79-0606-d05c-baebdf10f282/b5a68f943b5fa8354b82e04c6e4ab435.jpg)
+
+---
+
+`@miles 9/28/2021 3:14 PM (UTC)`
+
+9月28号：全世界有良知的人正在觉醒中。
+![img](https://media.gettr.com/group47/getter/2021/09/28/15/14/b1fb4ab1-b77e-83ef-0946-6fb0a6699402/out.jpg)
+
+---
+
 `@miles 9/28/2021 9:25 AM (UTC)`
 
 Dr. Pierre Kory during the senate hearing: immerse amount of data have shown that Ivermectin is a life-saving early treatment against Covid-19<br/><br/>皮埃尔·科里医生在参议院听证会上：大量数据表明，伊维菌素是早期治疗中共病毒的救命药
@@ -287,20 +301,6 @@ WOW
 
 9月25号：疫苗灭共．我们取得巨大的成就，接下来还有更多的国家需要我们去解救！大家一定不要松懈下来，全力以赴传播解药的真相．疫苗的真相。<br/><br/><br/>【尊敬的七哥，您好！<br/><br/>昨天得到的信息，欧盟已经同意10月20号不再推行疫苗护照，疫苗被归于试验性，基本上停止了毒疫苗。伊维菌素重新被批准使用，10月1日起，欧盟医院正式启动五种药物临床综合治疗方法。<br/>七哥您为了这个事情，基本上是彻夜连续工作，无法用语言来表达所有人对您的感激和感恩。<br/><br/>我的军事群里一位男士前天告诉我，在他家乡XX的地方上，有一位中国商人买通当地市长，做尽坏事。我告诉他在澳洲有许多各种层次的这种人，所以我们有良知的之间要合作，携起手来彻底消灭共产党。 通过传播您的爆料声音，让更多的当地社区知道中国人不等同与CCP。<br/><br/>另外，XXX的这位在椅子群里发表这种言论，有点过了。她曾经还表示自己就是CCP。<br/><br/>再次感恩七哥🙏🙏🙏】
 ![img](https://media.gettr.com/group48/getter/2021/09/25/14/29/4810a509-90d7-fb50-ef71-0e90ac3e36f4/2fad3b12a927d059d2d81250cd65ab69.jpg)
-
----
-
-`@miles 9/25/2021 6:58 AM (UTC)`
-
-9/24/2021 Miles Guo: Chen Feng had been formally arrested months ago and had lost his freedom for two years. Chen Feng’s daydream that Wang Qishan would replace Xi to be the head of the CCP in the 20th Party Congress has been broken! The first overseas investment made by the Chinese people in history was the CIC’s investment in Blackstone. About 40-50% of HNA’s assets are hidden overseas now.<br/><br/>9/24/2021 文贵直播：陈峰数月前已被正式逮捕，此前已失去自由达两年之久; 陈峰关于王岐山20大取代习当老大的幻想已破灭！ 中投投资黑石是中国人有史以来第一笔在海外的投资; 海航仍有40%-50%的资产藏在海外<br/>
-![img](https://media.gettr.com/group21/getter/2021/09/25/06/58/6f3f2d0f-b587-f0dc-b3e3-cfd6ba77511c/out.jpg)
-
----
-
-`@miles 9/25/2021 5:59 AM (UTC)`
-
-9/24/2021 Miles Guo: Bohai Capital Holding fabricated its 20 trillion yuan worth of assets with lies and fraudulent appraisals; HNA managed to grow 20,000 times a day by swindling the Lao Baixing’s money and fraudulent accounting. Evergrande and HNA employ the same scam - taking away 1,000 yuan from every 10,000 yuan defrauded out of the Lao Baixing; The state-owned real estate companies profit by taking kickbacks, while the private enterprises rely upon laundering money to the overseas<br/><br/>9/24/2021 文贵直播：渤海金控用谎言和虚假评估伪造了20万亿的资产，海航通过骗老百姓的钱和做假帐达到了所谓每天2万倍的成长；恒大和海航都用同一套路骗钱，骗老百姓一万块拿走一千；国有房地产全靠吃回扣，私营企业全靠洗钱到海外去
-![img](https://media.gettr.com/group18/getter/2021/09/25/05/59/d58a47d3-094c-9d66-8be2-6592108a6c46/out.jpg)
 
 ---
 

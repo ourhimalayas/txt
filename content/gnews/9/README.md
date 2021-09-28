@@ -2,28 +2,36 @@
 ---
 
 
-## 中共在联合国告状, 质疑英美澳核潜艇协议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560487/)
+## 媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560623/)
 
-栏目记者/责任编辑：飞虹
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+现役NBA球员凯里·欧文，因反对包括接种强制令在内的新冠限制政策，被媒体全面打压；刚刚过去的媒体日上，欧文再一次表示了不应当将接种和社会责任绑架起来误导大众，新冠疫苗导致很多人已经生病。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-27.jpeg)
 
+同队优秀控卫球员凯文·杜兰特在接受采访时表示支持欧文的决定，每个人都有自由选择的权力，也有隐私权；华盛顿奇才队的布拉德利·比尔（Bradley Beal）也强调了新冠疫苗的危害。
 
+欧文现效力于布鲁克林篮网，篮球赛场上多次打破得分记录，是《福布斯》2020年收入排名第24位的运动员。在去年1月份，传奇球星科比（Kobe Bryant）及家人飞机失事后欧文曾一度情绪崩溃，后立志延续“曼巴精神”延续恩师精神，不断努力向前迈进。
 
-9月27日，中共常驻联合国代表张军，在联合国安理会出席核问题讨论会时称“个别核武器国家不能表面上高喊致力于维护国际核不扩散体系，暗地里却协助无核武器国家建造核潜艇。”暗指此前美国、英国和澳大利亚9月初的三边安全协议，按照该协议，美英两国将帮助澳大利亚建造核动力潜艇。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0928-AM-2、4、5.005.jpeg)
-美国五角大楼发言人解释美澳加强防务关系时则说：“中共国在印太地区的攻击性行为，促使整个国际社会都在聚焦该地区，我们将采取行动确保一个自由与开放的印太地区，并最终实现这个愿景。” 其言下之意表明了英美帮助澳洲升级军力，正是对中共威胁的合理反应！
+作为球员工会副主席的欧文，对政府推出的新冠限制令和疫苗规定持反对态度，并表示这是一场邪恶阴谋。早在8月7日，NBA球员工会就联盟推行的百分之百接种率的问题会议中，欧文和部分成员不再沉默，对强制推行新冠疫苗接种表示了反对。
 
-同时美、英、澳三方也都强调，英美帮助澳大利亚建造的潜艇将只是采用核反应堆作为驱动力，并不配备任何核武器，并坚称这项协议旨在维护地区和世界和平。
-(本文仅代表作者观点)
+近期，美国说唱歌手米娜，和荷兰国宝级超模克罗斯都表态反对毒针疫苗，更发起直播和抗议，揭露疫苗严重不良副反应真相，以行动反击政府的集权行为；惊恐于难以压抑的明星效应，以及担忧名人大量跟随者的觉醒，媒体对欧文的打压态度非常明显，将其抹黑为“阴谋论者”，称其无视科学，兜售错误信息。
 
-参考链接：[澳英美核潜艇协议刺到痛处 中国到联合国告状](https://www.voachinese.com/a/china-un-aukus-20210928/6248363.html)
+世界知名体育联盟在不断调整计划的过程中，逐渐丧失了职业体育精神。在球队各自老板利益的要挟下，球员在联盟的包办管理下被剥夺了自由选择的权力。现在，随着欧文和其他NBA球员的挺身而出，一场体育界的觉醒风暴已被唤醒。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+（本文仅代表作者观点）
 
-终审：文龙
-校正/发稿：我不在这里
+参考链接: [Kyrie Irving Declines to Say Whether He Will Play Nets Home Games as Vaccine Questions Swirl](https://www.rollingstone.com/culture/culture-news/brooklyn-nets-kyrie-irving-vaccination-kevin-durant-james-harden-1232827/)
+[Anti-vaxxers are getting way too much say in NBA Covid protocols](https://www.sbnation.com/nba/2021/9/27/22696676/nba-covid-protocol-anti-vaxx-kyrie-irving)
+[凯里·欧文](https://zh.wikipedia.org/wiki/凯里·欧文)
+[布拉德利·比尔](https://zh.wikipedia.org/wiki/布拉德利·比尔)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,5 +39,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
