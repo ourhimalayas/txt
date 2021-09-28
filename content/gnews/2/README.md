@@ -2,52 +2,53 @@
 ---
 
 
-## 2018年4月24日郭文贵先生视频全文听写
-` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1559282/)
+## 英国欲将中广核从新核电项目中剔除
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559355/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-27-at-4.25.01-PM.png)
-视频链接：[https://www.youtube.com/watch?v=x8ruP\_lclcw](https://www.youtube.com/watch?v=x8ruP_lclcw)
+栏目记者/责任编辑：AsG諾雅
 
-Guo Wengui’s Statement on the Persecution of Mr. Zhiyu Chen and Zhiheng Chen by the Chinese Government.
 
-On April 23, 2018, the Chongqing Public Security Bureau in China announced that the Chinese police arrested Mr. Zhiyu Chen and Mr. Zhiheng Chen.  The Chen brothers are Canadian citizens.  They have been accused of forging more than 30 top-secret official documents of the Chinese Communist Party Central Committee, the State Council, and their subordinate departments for me, and for forging information related to the massive overseas assets owned, illegitimate children, and mistresses of the top Chinese leaders.
 
-The Chongqing police released a tape as evidence, which was clearly edited.  I have released the full recording via social media (www.guo.media and YouTube: Guo Wengui). The entire tape shows that the Chen brothers were helping me to verify those documents by answering my questions.  Comparing the two recordings reveals that the Chongqing police has fabricated the evidence.
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-Both Mr. Zhiyu Chen and Mr. Zhiheng Chen hold Canadian passports.  Not long ago, they disappeared in Singapore.  All signs show that they were likely kidnapped and taken by force into the Mainland China.
 
-I have provided a great deal of documents in my possession to the U.S. law enforcement.  Some of which I released have been authenticated by the US authorities.
 
-As to the contents of my whistle blowing, I take legal responsibility for their truthfulness.
 
-郭文贵声明：关于加拿大华人陈志煜与陈志恒被中国政府指控
 
-4月23日，中国的重庆公安局宣布，在今年2月18日逮捕了加拿大华人陈志煜与陈志恒兄弟。他们被指控为我伪造了三十多份中共中央、中国国务院以及属下部委的文件，以及中共高层在境外拥有巨额资产、私生子、情妇等信息。
+德国之声9月26日援引英国《卫报》周六独家消息，英国政府正接近达成一项协议，将中共国有的广核集团（CGN）从一个价值200亿英镑的Sizewell C核电厂兴建计划中剔除，转而用纳税人的税款进行投资，继续与法国EDF电力公司合作完成兴建，这可能导致目前持有该核电站20%股份的中广核被剔除。
 
-重庆公安局播放的录音证据，经过明显的剪接。我已经通过自媒体（www.guo.media and YouTube: Guo Wengui）放出了完整的录音，显示了陈氏兄弟在帮助我核实文件，回答我对原件中的一些疑问。对比两份录音，重庆公安的造假昭然若揭。
+中广核已经与法国EDF电力公司合作，建造预计2025年竣工的英国西南部欣克利角（Hinkley Point）核电设施。
 
-陈志煜与陈志恒先生均为加拿大公民，在不久前在新加坡失踪。有迹象显示，他们是从新加坡被绑架去中国大陆的。
+近期，英国因间谍活动、网络攻击、人权等议题与中共国关系紧张。面对保守党内人士要求对北京采取更强硬立场的压力，英国首相约翰逊今年早些时候对国会议员表示，要建立“清醒的对华关系”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-128.jpg)
+2020年，英国已宣布，2027年底前从5G建设中移除所有华为设备。
 
-我手上掌握的大量文件已经提供给美国执法部门，公布出来的少数文件是经过美国相关部门鉴证，肯定其真实性。
+中共无视中英声明，悍然对香港民众和平的反送中运动采取激进的镇压措施，世界各国都看在眼里，英国作为香港曾经的管理者，为了保护自身的利益和形象，都不可能视而不见，采取剔除华为、中广核等的中资投资项目也许只是脱钩的开始。
 
-对于我爆料中的内容，我保证其真实，并愿意承担一切法律后果。
 
-\*\*\*\*\*\*END\*\*\*\*\*\*\*
 
-温哥华扬帆农场七哥直播全文听写组：
+参考链接：
+[英媒：英国欲将中广核踢出核电项目](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E6%AC%B2%E5%B0%86%E4%B8%AD%E5%B9%BF%E6%A0%B8%E8%B8%A2%E5%87%BA%E6%A0%B8%E7%94%B5%E9%A1%B9%E7%9B%AE/a-59315471)
 
-听写整理——
+（本文仅代表作者观点）
 
-温哥华扬帆农场：Peter哥
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-全文总校——
+终审： 鬼五
+校对/发稿：为真不破20
 
-温哥华扬帆农场：Peter哥
+**更多资讯，更多关注**
 
-审核发布——
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-温哥华扬帆农场：Peter哥
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-全文发布稿总审核——
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-温哥华扬帆农场：文敏
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

@@ -2,37 +2,51 @@
 ---
 
 
-## 世卫将启用新的专家团队对新冠病毒是否来自武汉实验室进行调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1559077/)
+## 9月25日意大利声势浩大的反绿色通行证抗议，但是媒体报道“人数很少”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1559093/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/092201-1.jpg)
-世界卫生组织（WHO）将开始对新冠病毒疫情的起源进行新的调查，并调查该病毒是否来自武汉实验室。
+翻译整理/简评： 意大利罗马达芬奇农场  小白鸽
 
-据《华尔街日报》报道，将任命一个新的专家小组，包括生物安全、实验室安全、遗传学以及病毒如何传播给人类方面的专家。
+意大利各个重要媒体对9月25日声势浩大的游行报道用词是“数百人在街上”,“不到一千人在街上”。当一位意大利公民读到这样的报道，会面对以下两种可能性：一是面对昨天意大利60个城市爆发的反绿色通行证的抗议，许多重要报纸选择不报道，或者不放在首页；还有一种可能便是发现有示威游行，但被告知参加者极少，是“否认新冠病毒存在者”，有可能是法西斯分子。那么9月25日真的像媒体报道的那样只有少数人走上街头吗？
 
-他们将调查冠状病毒是否在2019年底从武汉的实验室泄露出去——中共国否认了这一说法，中共国还希望世卫组织检查该病毒是否源自其他国家。
-
-此前，美国总统拜登下令情报机构调查“实验室泄漏”理论。
-
-一位世卫组织发言人说，“新小组的首要任务是获取数据和进入最早报告疫情的国家”。
-
-早先的调查说中共国检查最早的疑似冠状病毒病例，研究小组在最后报告中声称，中共国提供的数据不足。
-
-**评论：**
-
-这篇文章揭示了病毒真相一直在被关注，也早晚会被人发现，正如郭先生直播中提到的那样，病毒不会就这么拉倒，还会查寻源头，这篇报道也证实了，民主国家一直在关注，不会轻易放过的。
-
-[原文链接：](https://www.dailymail.co.uk/news/article-10031381/World-Health-Organisation-start-NEW-Covid-investigation.html)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评: Johnston2021 | 校对: 感恩*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+以下是从推特上截取的一些视频。第一个视频是在罗马圣乔万尼广场， 连国家警察也反对绿色通行证。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> Piazza San Giovanni a Roma oggi è piena…… Anche la polizia di stato è [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/AaczcQfBnw](https://t.co/AaczcQfBnw)
+> — Luigino Degani (@LDegani) [September 26, 2021](https://twitter.com/LDegani/status/1441917479060754437?ref_src=twsrc%5Etfw)
+
+
+
+第二个视频9月20日在特利亚斯特市中心成千上万的人们在市中心高喊“ 不要绿色通行证”。
+
+
+
+> [#Trieste](https://twitter.com/hashtag/Trieste?src=hash&amp;ref_src=twsrc%5Etfw), lunedì 20 settembre 2021: migliaia di persone sfilano per il centro storico al grido "No [#greenpass](https://twitter.com/hashtag/greenpass?src=hash&amp;ref_src=twsrc%5Etfw)". [pic.twitter.com/LHqnIQMVcM](https://t.co/LHqnIQMVcM)
+> — Giacomo Bertoni (@ParcodiGiacomo) [September 20, 2021](https://twitter.com/ParcodiGiacomo/status/1440008528404549633?ref_src=twsrc%5Etfw)
+
+
+
+第三个视频是在米兰，警察在对付反疫苗通行证的抗议者。
+
+
+
+> Green Pass, tafferugli a Milano: polizia affronta No Green Pass [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#novax](https://twitter.com/hashtag/novax?src=hash&amp;ref_src=twsrc%5Etfw) [#covid](https://twitter.com/hashtag/covid?src=hash&amp;ref_src=twsrc%5Etfw) [#vaccini](https://twitter.com/hashtag/vaccini?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cnriOd34a6](https://t.co/cnriOd34a6)
+> — Local Team (@localteamtv) [September 25, 2021](https://twitter.com/localteamtv/status/1441796564725477376?ref_src=twsrc%5Etfw)
+
+
+
+第四个视频是在都灵，9月25日反强制绿色通行证。
+
+
+
+> 25 settembre [#torino](https://twitter.com/hashtag/torino?src=hash&amp;ref_src=twsrc%5Etfw) [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#nobbligovaccino](https://twitter.com/hashtag/nobbligovaccino?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0CssPdcVxy](https://t.co/0CssPdcVxy)
+> — elena galluzzo (@elenagalluz) [September 25, 2021](https://twitter.com/elenagalluz/status/1441896039762448385?ref_src=twsrc%5Etfw)
+
+
+
+简评：从主流媒体对民众抗议绿色通行证采取的歪曲事实和轻描淡写地一带而过的报道，我们可以看出我们的Gnews和GTV有多么了不起，多么重要。新中国联邦人一直在为病毒真相和疫苗真相而在大声疾呼。在这场世纪大战中，我们能有讲真话，讲真相的媒体是多么的重要。
+
+免责声明： 本文只代表个人观点，并不代表Gnews 平台。
+[原文链接](https://www.lindipendente.online/2021/09/26/no-green-pass-ieri-manifestazioni-imponenti-ma-per-i-media-cerano-poche-persone/)
+上传：意大利达芬奇农场 老中医

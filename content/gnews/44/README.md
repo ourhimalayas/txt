@@ -2,41 +2,46 @@
 ---
 
 
-## 纪念天安门事件公民团体被迫解散，香港失去民主活动支柱
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1558450/)
+## 中共在全球范围镇压和扼杀侨民的意志
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1558377/)
 
-作者：文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Evergrande-Gets-Orders-from-Chinese-Authorities-Amid-Preparations-for-Failure.jpeg-5.jpg)网络图片
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+根据最近的一份报告，中共国发动了“世界上最大规模的跨国镇压”，以确保全球华人社区遵守中国共产党的路线。
+
+这场广泛的运动针对逃离中共国的持不同政见者和与政治不同观点的人。根据隶属于法国的独立机构军事学校战略研究所(IRSEM)近650页的报告，北京的策略包括间谍、恐吓、威胁、骚扰、人身攻击以及对留在中共国的亲属施加压力。全面了解掌握中国人在全球的行动及影响力。
+
+该政权还直接向至少九个国家施加压力，要求逮捕那些被中共国当局通缉的人。
+
+根据中共国国务院下属的一个与海外华人联络的行政机构，侨务办公室的数据显示，约有6000万华人居住在中共国境外，其中美国的华人居多。
+
+报告称，对中共政权来说，这些人是首要的“优先目标”，因为他们更容易接触到批评中共的未经审查的观点，并且很可能将这些信息传播给他们在中共国的亲属。
+
+尽管他们中的绝大多数人已是外国公民，不能被视为中国公民，但北京方面坚持认为所有海外华人都是一个血脉相连的“中国大家庭”的成员，同时将那些越轨的人称为“叛徒”。
+
+2019年8月23日，中共国驻立陶宛大使和中共国大使馆官员参加了反抗议活动，以破坏支持该市民主运动的亲香港集会。在警方介入并逮捕了两名中国公民后，几名中国外交官带着他们的使馆徽章接近警方，要求释放被拘留者。立陶宛随后召见中国特使提出抗议，称中共国大使馆工作人员“参与并组织非法行动”。
+
+在瑞典，两名代表中共国政府的商人试图让维权人士安吉拉·桂闭嘴，她是在中国出生的瑞典书商桂民海的女儿，北京于2020年被判入狱10年。在2019年 2月在斯德哥尔摩举行的会议上，该商人称，如果她停止与媒体交谈，她的父亲就会获释。其中一个男人告诉她，如果她不信任他们，她可能再也见不到父亲了。
+
+会议由瑞典驻华大使安娜·林斯泰特发起。在瑞典引起公众强烈抗议后，该国从北京召回了林斯泰特，并对她进行了调查。
+
+安吉拉·桂远不是唯一一个受到中共特工威胁的海外华人。
+
+加拿大女演员阿纳斯塔西娅·林(Anastasia Lin)因是法轮功的修炼者以及她在人权问题上的直言不讳而引起北京的愤怒。她发现自己被北京宣布为“不受欢迎的人”，并拒绝了中国签证。在她于2015年加冕加拿大世界小姐后，她接到了在中共国湖南省经营一家大企业的父亲的电话，告诉她中国安全部曾拜访过他。在当局的压力下，林的父亲恳求她停止行动。
+
+这些都有可能发生在任何人身上
+
+简评：中共把“虽远必诛”的手段淋漓精致的用在了海外华人和持不同政见者身上，一个流氓政权的丑恶嘴脸暴露无遗。
+
+原文链接： [https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds\_681176.html](https://www.ntd.com/beijing-responsible-for-largest-transnational-crackdown-in-the-world-to-muzzle-diaspora-report-finds_681176.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/纪念天安门事件公民团体被迫解散，香港失去民主活动支柱.png)图片来源：网络
-
-根据日本NHK消息，9月25日，香港市民团体“香港市民支援爱国民主运动联合会”（支联会）召开临时会议，宣布解散。
-
-支联会成立于1989年5月。自1990年开始，每年6月4日晚上，支联会都会在香港维多利亚公园举行烛光晚会，数以万计的香港市民均会在当晚前来悼念“六四”英雄。
-
-然而，该集会在去年被政府禁止，主要成员如李卓人，因组织所谓未经授权的示威活动而被判入狱。此外，李卓人及三名高管被控煽动推翻国家政权，违反香港国家安全法，致使该团体难以为继。
-
-随着港府政策的收紧，民主派工会和团体陆续被迫解散。30多年来，支联会一直是香港民主化运动象征。随着支联会的解散，民主派人士也失去了活动的支柱。
-
-参考连接：[香港 天安門事件追悼の市民団体が解散 民主派 活動の柱を失う](https://www3.nhk.or.jp/news/html/20210925/k10013276821000.html)
-
-
-
-编辑/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

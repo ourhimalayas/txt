@@ -2,125 +2,21 @@
 ---
 
 
-## 习主席会怎么处理恒大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559263/)
+## 恒大危机蔓延至大户投资者
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1559293/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-image0-8.jpg)
-[https://gtv.org/video/id=6152014cd2e2b817486ec9cc](https://gtv.org/video/id=6152014cd2e2b817486ec9cc)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Unknown-7.jpg)恒大危机蔓延至大户投资者 网络图片
+据&lt;汇港通讯&gt;9月27日报道，恒大危机蔓延至大户投资者。据统计，恒大拖欠散户投资者共计400亿人民币，引发内地投资者在全国抗议。如果风波蔓延至规模达3万亿美元的信托行业，将令更多投资者面临风险，而随着影子银行退出，也将危及房地产行业的非银行资金来源。
 
-今天恒大
-Hoy Evergrande Group
+一些信托机构以自身的资金，代恒大向大户投资者偿付，而其他机构则正与恒大谈判延期付款。
 
-现在我救你, 我就得救所有人
-Si ahora te salvo, debo salvar a todos
+新闻参考链接：[https://www.rfi.fr/cn/中国/20210927-据报恒大危机蔓延至大户投资者](https://www.rfi.fr/cn/中国/20210927-据报恒大危机蔓延至大户投资者)
 
-我不救你, 所有人都成为我的灾难, 那怎么办
-Si no te salvo, todas las personas se convertirán en mi desastre, ¿ qué debo hacer?
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-所以内部决定, 地方的事
-Entonces, la zona interna decide que esto es asunto local
 
-地方的钱, 地方解决
-El dinero local se resuelve dentro de la región
+编辑：【英国伦敦喜庄园编辑部】
 
-中央的事, 中央解决, 他们想把恒大给肢解了, 然后呢
-Los asuntos del gobierno central los resuelven ellos mismos, quieren desmembrar a Evergrande Group y luego
-
-全部各部委
-Todos los ministerios
-
-所有承担责任
-Deben asumir las responsabilidades
-
-但是记住战友们, 给恒大出这个招的人
-Pero recuerden, compañeros luchadores, quien le dió este truco a Evergrande Group
-
-一定是江派的人
-Debe ser del Partido de Jiang
-
-习派没有这样的人
-El Partido Xi no tiene este tipo de persona
-
-他这样的出招, 就把整个中国的影子银行
-Este truco que hizo, dejó a todos los bancos de sombras de China
-
-保险机构、信托、所谓资金池子不在财富列表之内的
-Las instituciones de seguros, los fideicomisos y los denominados grupos de capital que no se incluyen en la lista de patrimonio
-
-这几十万亿全给隐藏住, 习100%用这个招
-Estas decenas de billones están todas ocultas y Xi usó este truco al 100%
-
-今天记着我的话
-Recuerden lo que dije hoy
-
-也看到了很多人都被安抚了
-También verán a muchas personas que serán consoladas
-
-买房的交房, 欠钱的按期付款
-El comprador de la casa lo entregará, y el dinero adeudado se pagará a tiempo
-
-但不准上街闹事
-Pero no deben crear disturbios en la calle
-
-习一听
-Xi al escuchar esto
-
-这事很好, 阻止了各种其他房地产商
-Dijo, esto es algo bueno y ha detenido a varios agentes inmobiliarios
-
-来到我这闹事
-A crear problemas aquí
-
-那么现在我告诉大家
-Entonces ahora les digo a todos
-
-恒大倒不倒
-Evergrande Group caerá o no
-
-关键是第一张牌
-El punto crucial es la primera carta
-
-一定会让你惊艳
-De seguro te sorprenderá
-
-共产党的一堆办法
-El Partido Comunista tiene cantidades de soluciones
-
-就是要让恒大不倒
-Para que Evergrande Group no se caiga
-
-你会看到一堆措施
-Verás muchas medidas
-
-但是最终我告诉你
-Pero finalmente, te digo
-
-一定会倒
-Seguramente caerá
-
-而且倒的非常的惨
-Y de la manera más terrible
-
-而且许家印进不了监狱, 许加印一定是车祸死啊
-Además, Xu Jiayin no entrará al carcel, él será muerto de un accidente automovilístico
-
-心脏病死啊、自杀啊
-De un infarto, suicidio
-
-猝死等, 一定这结局
-Muerte súbita, entre otros, el final debe ser así
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24](https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24)
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
