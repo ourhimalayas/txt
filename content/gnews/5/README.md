@@ -2,23 +2,40 @@
 ---
 
 
-## 200多位企业主就疫苗强制令向纽约市市长提起集体诉讼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560228/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560252/)
 
-#### 翻译/撰稿：zzballack
+- 编译：土饭团(文团)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-2-1.jpg)图片来源：纽约时报
-《网关专家》（The Gateway Pundit）9月27日报道称，纽约市的企业主们正联合起来发起集体诉讼，反击市政府违宪的疫苗强制令，以结束疫苗暴政。
 
-纽约市市长白思豪（Bill de Blasio）8月17日签署了第225号紧急行政命令，规定未出示疫苗接种证明和印有与疫苗接种证明相同识别信息的身份证明的顾客、全职或兼职员工、实习生、义工或承包商不得进入室内餐馆、音乐会厅、体育场馆、动物园以及室内健身房等场所。任何伪造疫苗护照的人将面临7年监禁。
+**1.[参议员Tom Cotton: 一场与中国的冷战，无论我们是否寻求](https://www.foxnews.com/opinion/china-cold-war-biden-sen-tom-cotton)**
 
-由200多名企业主在2020年3月创建的“独立餐厅业主协会救援组织”（The Independent Restaurant Owners Association Rescue,IROAR），正在就225号行政令起诉白思豪和纽约市，其律师认为这将是在全国范围内结束中共病毒暴政的第一张多米诺骨牌。
+福克斯新闻9月27日电，Biden总统上周在联合国大会上辩护说“我们不是在寻求一场新的冷战”，尽管他甚至连“中国”这个名字都不敢说，但人们猜测这就是他的意思。中国寻求收买盟友，扩大军事力量，建立一个由北京主导的全球经济秩序。不幸的是，无论我们是否寻求，共产党中国多年来对我们发动了一场冷战，我们唯一的选择是赢或输。
 
-意大利餐馆Max’s Es-Ca的合伙人阿利森·马切塞（Alison Marchese）接受采访时说：“我们从一开始就在与州长和市长抗争，让我们重新开业，让顾客回到这里。疫苗强制令对我们来说有些过了。我们不想因顾客没有接种证明而拒绝他们。该命令对我们和顾客来说是一个双输的结果。如果我们不检查接种证明，人们就会对我们生气，好像我们不关心顾客的福祉。如果我们这样做，他们就会给我们贴上共产主义者的标签。”
+**2.[世卫组织寻求通过新团队恢复对Covid-19起源的停滞调查](https://www.wsj.com/articles/who-seeks-to-revive-stalled-inquiry-into-origins-of-covid-19-with-new-team-11632657603)**
 
-马切塞的商业伙伴马克斯·卡利奇奥（Max Calicchio）解释说，这项“噩梦般”的法律使得私营行业和该市仍未接种疫苗的900万居民相互敌对。餐馆老板被迫要求顾客戴口罩，并拒绝那些不出示证明的人，否则就只能破产。在熬过了封城的艰难时期后，卡利奇奥担心小企业恐怕无法在这场最新的疫苗暴政中存活。“大流行期间，我们一直试图遵守各种防疫限令，这给我们的经营带来了巨大压力，营收额剧减。我们正在寻找一种可以不遵守规定又能避免罚款的方法。但我们的律师建议我们尽量遵守规定，因为如果我们不遵守规定，就会损害我们的诉讼案。顾客们抱怨不能在这吃饭，现在我们处境艰难，能不倒闭就知足了。”
+华尔街日报9月26日电，世界卫生组织正在恢复其对Covid-19病毒起源的停滞不前的调查，因为该机构官员警告说，确定这种已经在全世界造成470多万人死亡的大流行病是如何开始的时间已经不多了。包括国务卿Antony Blinken在内的Biden政府官员已向世卫组织总干事Tedros Adhanom Ghebreyesus施压，要求其公开和私下重新开展调查，该调查可能至少涉及一名美国人。
 
-卡利奇奥和马切塞正在恳求纽约市的所有餐馆老板加入这起诉讼，在为时已晚之前和他们一起为了恢复自由而抗争。马切塞说：“我们肯定需要支持和帮助。我们肯定乐意看到餐馆业主和其他人加入到我们的诉讼之中。”代表IROAR的企业诉讼律师隆·贝鲁蒂（Ron Berrutti）认为，如果有更多的原告加入这起诉讼并支持IROAR的法律辩护基金，那么胜诉的可能性就越大。“有必要支付法律费用，也有必要保护这些人免受将要遭受的惩罚。这确实是一个全国性的案件。我们希望它能成为第一张多米诺骨牌，终结这个州和这个国家的中共病毒暴政。”
+**3.[美国计划在拉美开展项目以对抗中国的“一带一路”](https://www.reuters.com/world/americas/us-plans-projects-latin-america-countering-chinas-belt-road-2021-09-27/)**
 
-新闻来源：[Over 200 Business Owners File Federal Class Action Lawsuit Againt NYC Mayor: ‘This Will Be The First Domino’ To #EndCovidTyranny Nationwide](https://www.thegatewaypundit.com/2021/09/200-business-owners-file-federal-class-action-lawsuit-againt-nyc-mayor-will-first-domino-endcovidtyranny-nationwide/)
+路透社9月27日电，美国官员本周将前往拉丁美洲考察基础设施项目，准备反击中国国家主席习近平价值数万亿美元的“一带一路”倡议。官员们表示，该计划的重点领域包括气候、卫生、数字技术和性别平等。
+
+**4.[面对中国威胁，Quad部署安全、开放、透明的5G网络](https://www.aninews.in/news/world/us/amid-chinese-threat-quad-to-deploy-secure-open-transparent-5g-networks20210925125557/)**
+
+ANI 9月25日电，在对中国企业滥用5G技术的安全问题日益关注的情况下，美国、日本、澳大利亚和印度的领导人周五同意推进部署“安全、开放和透明”的5G电信网络，并努力加强半导体的供应链安全。被称为Quad的四个民主国家领导人首次面对面峰会的讨论，反映了成员国对世界半导体制造能力主要集中在中国的担忧，以及对亚洲国家5G网络的控制。
+
+**5.[Milley将军在国会面临他最艰难的一天](https://thehill.com/policy/defense/574174-gen-milley-faces-his-toughest-day-yet-on-capitol-hill?rl=1)**
+
+The Hill 9月27日电，Mark Milley将军预计将在周二和周三面临共和党的拷问，此前一些共和党人说他应该辞职，因为他威胁到平民控制军队的原则。关于他与中国互动的问题，可能是本周美国共和党质疑的重点。
+
+（文章仅代表作者观点）
+
+* * *
+
+*审核：蚂蚁兄弟*
+*校对：阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+
+#  

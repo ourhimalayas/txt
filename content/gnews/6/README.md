@@ -2,20 +2,133 @@
 ---
 
 
-## 美食也被剥夺
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1560214/)
+## CCP会继续放毒—热毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1560246/)
 
-作者：东京樱花团｜阿恩
-![](https://lh6.googleusercontent.com/B5rrTMwzVPIP0wJ_bYWJ0R6FD6WxjWpwItpWRJUVKHUPsF09pAsS9yNtC5deL28YuphPicHoTANBMRG6Z4uq-1YmEB22lqvkRyAUU-WQU206W4DZ6KV4d8JFDmryJbqIrx_abSL0=s0)
-香港的生活成本昂贵，虽然高楼价高物价让许多人捉襟见肘，但周末必定会外出吃饭放松心情，大家各取所需有人在中环高档餐厅把酒言欢，更多的人则在市井小店温馨小酌。自由行彻底改变了香港的餐饮结构，以财团为后盾的连锁快餐店迅速占领了昂贵的金融地段，他们供应机械化生产的食品，不求味道只求效率，加上有财团的资金泵水，可以无惧飞涨的租金，还能以更低的价格吸引游客。靓丽光鲜的连锁快餐店迅速蚕食了横街小巷餐厅的市场份额，许多本地餐厅不敌加租和客源减少而搬离甚至结业，财团的竞争对手日渐稀少，就开始变着花样加价，有的套餐不再包含饮料，有的套餐的肉菜量越来越少，连锁餐厅每年加价的幅度均在10%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-24.jpg)https://gtv.org/video/id=61520219d2e2b817486ec9f3
+经济倒了
+La economía caerá
 
-还好在香港的闹市仍有一块保留了香港旧貌的深水埗区，这里唐楼林立，街道狭窄，租金便宜，吸引了许多低收入者入住劏房，一日三餐就在楼下的茶餐厅解决，这里的餐费比市中心便宜两成以上。一些餐厅老板也乐善好施，定期向低收入者免费派饭，这个地方虽然古旧嘈杂，但充满人情味。但在中共的眼中人民的和睦就是问题，它必要挑起纷争才能充当救世主被人们依靠。上周有社企在长沙湾开设了平民饭堂，有菜或有肉选择的堂食饭餐收费只要10元食到饱，开业后大受街坊欢迎，不料好景不长却传来噩耗，巿建局上周五（24日）宣告重建长沙湾「兼善里／福华街」项目，这就意味着长沙湾的这间平民饭堂即将面临结业。中共为安抚狗圈中的财团，许诺他们参与旧区重建，港府早前已启动对九龙区的旧城改造计划，那些树立了上百年历史的唐楼，为几代人遮风挡雨，终被港府纳入危楼清拆行列。由财团重建后的高楼大厦自然是他们为中共为自己敛财的工具，那些平民饭堂如何负担得起高昂的租金，财团旗下的连锁餐饮店将换上更多款式的马甲扎根于此，垄断式的经营逼迫消费者没有更多选择，只能支付更多的金钱消费。
+国际上也完了
+Internacionalmente también
 
-中共邪恶极权下的香港，人民失去了追求民主自由的权利，教育体制也被文革化地屏蔽掉有碍政权的内容，网络社交平台被中共监管，毒疫苗要统一注射，现在连港人的美食自由也将被消失。仍记得满城璀璨的不夜之城，街灯下三五知己围坐台前，大厨在烈火中奋力颠勺，浓郁的味道弥漫空中……
+人们要捣乱的时候
+Cuando la gente quiere crear disturbios
 
-[**新闻来源**](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/681441/%E5%85%BC%E5%96%84%E9%87%8C%E5%B9%B3%E6%B0%91%E9%A3%AF%E5%A0%82%E5%89%9B%E9%96%8B%E5%BC%B5-%E5%B8%82%E5%BB%BA%E5%B1%80%E5%AE%A3%E4%BD%88%E9%87%8D%E5%BB%BA-%E8%B2%A0%E8%B2%AC%E4%BA%BA%E7%A8%B1%E5%BD%A2%E5%90%8C%E7%B5%90%E6%A5%AD%E9%A0%90%E5%91%8A)
+他最大的威胁不是别的
+Su mayor amenaza no es otra cosa
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+国际上的经济脱钩
+El desacoplamiento económico internacional
+
+国内的老百姓上街
+Los chinos saldrán a las calles
+
+大量的疫苗死亡
+Gran cantidad de muertes debido a las vacunas
+
+继续放毒
+Siguen descargando virus
+
+放到全世界
+Hacia todo el mundo
+
+各旮旯都给你放
+Hasta los rincones más desapercibidos
+
+就让全世界的人类都待在家里
+Para que toda la humanidad se quede en sus hogares
+
+而且放的新毒
+Además, el nuevo virus que desacargarán
+
+什么狗屁疫苗根本都不管用, 现在的毒都属于
+Ni siquiera la porquería de vacuna funcionará, ahora el virus pertenece
+
+冠状病毒这一株的
+A la variedad de Coronavirus
+
+我们欧洲的科学家头两天跟我说, 如果共产党疯狂
+Nuestro científico europeo hace dos días me dijo, si el Partido Comunista se vuelve loco
+
+再放的时候就不是这个了
+Cuando descargan de nuevo el veneno
+
+再放毒叫热毒, 记住我今天的话叫热毒
+Se llamará veneno caliente, recuerden lo que dije hoy, es llamado veneno caliente
+
+什么叫热毒啊
+En qué consiste este veneno
+
+就是你放完了(得了病)立马就是七窍出血
+Quiere decir cuando terminen de descargar (ya estás contagiado) inmediatamente, sangras por los siete orificios
+
+结束
+Y finaliza
+
+就是剧毒型的
+Es altamente tóxico
+
+没有什么反应期
+No tiene período de reacción
+
+没有反应期
+No hay etapa de reacción
+
+记住我说的话再有毒的时候
+Recuerden lo que dije, cuando aparece de nuevo el virus
+
+七窍流血
+Sangrarás por los siete orificios
+
+而且死亡率极高
+Además, el porcentaje de muerte es muy alto
+
+大家要记住我今天说的话, 还有一段距离
+Todos recuerden lo que dije hoy, todavía hay algo de distancia
+
+但你要不准备好, 你就完了, 真的坏日子还早着呢
+Pero si no estás preparado, serás acabado, todavía es temprano para la llegada de momentos difíciles
+
+还有一段时间
+Aún queda un período de tiempo
+
+大家务必要小心
+Todos deben tener cuidado
+
+务必做好准备
+Estar preparados
+
+所以说兄弟姊妹们, 不是那么简单的
+Por eso hermanos y hermanas, no es tan fácil
+
+这是为什么我今天特别要跟大家分享的
+Esta es la razón por la cual hoy les quiero compartir especialmente
+
+一定要记住
+Deben recordar
+
+农场要全面的
+La finca debe estar unida en todos los aspectos
+
+团结起来力量
+De manera integral
+
+农场和战友们要紧密的联系
+Los compañeros luchadores de la finca deben mantenerse en contactos
+
+而且我们要做好最坏时刻的到来
+Y debemos estar preparados para la llegada de los peores momentos
+
+原视频日期：09/24/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1441341881896476692?s=24
+视频时间段：0:00-1:48
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

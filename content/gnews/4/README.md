@@ -2,39 +2,34 @@
 ---
 
 
-## 中共国打击加密货币，迫切希望推出数字人民币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1560233/)
+## 班农专访4: 世界银行向中共磕头服软
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560259/)
 
-据《零对冲》作者: 泰勒·杜登(Tyler Durden)，2021年9月26日报道:
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-39.jpg)图片来源：getty images
-作者：埃里克·彼得斯(Eric Peters), 一河资产(One River Asset)管理首席信息官。
+[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=2560)](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=1024)
+**简评：**
 
-首席信息官说:“当你和我成长的时候，共产主义覆盖了世界的一半，全球市场和国际业务系统提供了释放扼杀人类潜力的钥匙。当我们开始从事这项业务时，并没有大量人力资本来移动成堆的纸张, 但那些日子已经过去了。”
+川普时期任命的世界银行行长与其他一些高层领导人曾经向经济学家施压，要求提高中共国2018年的排名。川普身边的许多金融人士没有真正地执行川普的计划来对抗中共，相反，他们与中共勾结，任由中共从沙特筹集资金并干涉世界银行的运行。他们热衷于中共的合作。人们既希望与川普总统和他的计划来抗衡中共。
 
-社会的方方面面都已经被金融化、利益化了。这种结构会导致现任者腐败、脆弱、不稳定。“市场和经济不再是世界问题的答案。这并不是说共产主义是解决方案。但很明显，我们正在进入一个时代，在一个世纪里，你会看到的由政治占主导地位的时代。”
+GTV视频链接：[英喜每周采访班农先生0922-Q4：世界银行屈服于中共，无时无刻不在向中共磕头](https://gtv.org/video/id=61511810d2e2b817486e7bf5)
 
-**总体情况：**
 
-中国人民银行宣称，“与虚拟货币相关的商业活动是非法的金融活动。”它迫切希望可确保成功推出其中心化的数字人民币。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-15.jpg)图片来源：《零对冲》
-“政府将坚决打击虚拟货币的投机、相关金融活动和不当行为，以维护人民的财产安全，以及维护经济、金融和社会秩序。”
 
-北京并未宣布此类数字资产的所有权为非法。他们更喜欢集中的强制性控制和缓慢的窒息。取缔虚拟货币所有权的一个风险是，丧失了虚拟币的公民会永远愤慨。将其公民大规模变成罪犯的国家，是会面临极大的危险的。苏联共产党人将这种转变变成了一种艺术形式。
+**视频字幕：**
 
-这些都是赌注。中共国央行的数字人民币将为北京提供无与伦比的交易洞察力和金融控制。它还打算将该系统作为美元的替代品出口，通过其新的国际支付系统在中共国开展业务。
+**主持人**：世界银行取消了其旗舰出版物《营商环境报告》。经调查发现，包括时任世界银行行长克里斯塔琳娜·格奥尔基耶娃在内的一些高层领导人, 曾向经济学家施压，要求其提高中国2018年的排名。班农先生，你对这个发现感到惊讶吗？
 
-但自由市场已经创造了北京统治之外的平行体系。比特币就是其中之一，以太坊是另一个，稳定币也是如此。此类系统旨在满足市场对现有法定货币（例如美元）数字版本的需求。全球 1280 亿美元的稳定币中有 98% 以上与美元挂钩。更令人印象深刻的是，美元稳定币的年交易额超过100万亿。这是私营部门大规模应用区块链技术的惊人成功。数字人民币没有这样的需求 —— 最大的私人人民币稳定币少于5百万(见“我一点也不兴奋”：中国的数字人民币正在变成一个巨大的失败）。
+**班农先生**：我对此一点也不感到惊讶。 世界银行屈服于中共，无时无刻不在向中共磕头。我很惊讶世界银行现任行长是由川普总统任命的。我认识他，他没做任何事。他谈论的只是他们如何与中国共产党与全球主义者合作。他基本什么事情也没做。事实上，中共国仍然收买第三世界发展中国家。
 
-因此，中美面临着截然不同的立场。中共国在数字货币领域的成功取决于控制 —— 数字人民币将被强制使用。美国的成功依赖于监管机构将美元稳定币纳入主流。
+令人发指的是他们让中共这个犯罪组织与世界银行勾结。他们干涉世界银行运作，却没人站出来反对。川普总统任命世行现任行长, 首先想治理这种中共的滥用行为，但却没有发生。人们寄希望于川普总统和川普总统计划来对抗中共。瞧瞧财政部长姆努钦，对中共国非常软弱。
 
-并且，当他们这样做时，这些技术将受到传统的监督，解锁指数增长。国家将通过市场选择的货币获得利益。毫无疑问，这仍然是美国。
+对于中共国主要从沙特阿拉伯海湾酋长国筹集的25亿美元。中共通过那里筹集了很多钱，但他们放入了基金。所以川普总统身边有许多金融人士，没有执行川普的计划，尤其没有真正对抗中共。
 
-原文链接：[https://www.zerohedge.com/markets/hedge-fund-cio-chinas-crypto-crackdown-beijing-desperate-ensure-successful-rollout-their](https://www.zerohedge.com/markets/hedge-fund-cio-chinas-crypto-crackdown-beijing-desperate-ensure-successful-rollout-their)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-翻译：洛杉矶盘古农场–Freeearth
-校对：洛杉矶盘古农场–明子
-编辑：洛杉矶盘古农场–明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*字幕:雨中漫步 | 听写：云岭 | 翻译：Dasy* *| PR：Roberts* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

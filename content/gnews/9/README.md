@@ -2,38 +2,39 @@
 ---
 
 
-## 西方三大数据库显示 疫苗至少已致40666人死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560187/)
+## 中共国打击加密货币，迫切希望推出数字人民币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1560233/)
 
-#### 采集/撰稿：极寒将至 
+据《零对冲》作者: 泰勒·杜登(Tyler Durden)，2021年9月26日报道:
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-39.jpg)图片来源：getty images
+作者：埃里克·彼得斯(Eric Peters), 一河资产(One River Asset)管理首席信息官。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/vacunas01.jpg)图片来源：路透社
-全球研究网站（Global Research）刊登了新冠伦理医生组织（Doctors for Covid Ethics）的一封公开信，信中总和了包括欧盟、英国、美国三大官方数据库的疫苗不良反应统计，数据显示截至2021年9月15日，中共病毒疫苗已致总共40,666人死亡，6,626,502人出现疫苗不良反应。
+首席信息官说:“当你和我成长的时候，共产主义覆盖了世界的一半，全球市场和国际业务系统提供了释放扼杀人类潜力的钥匙。当我们开始从事这项业务时，并没有大量人力资本来移动成堆的纸张, 但那些日子已经过去了。”
 
-新冠伦理医生组织（Doctors for Covid Ethics），是来自 30 个国家/地区的医生和科学家成立的，宣称致力于在应对COVID-19时维护医学道德、患者安全和人权。
+社会的方方面面都已经被金融化、利益化了。这种结构会导致现任者腐败、脆弱、不稳定。“市场和经济不再是世界问题的答案。这并不是说共产主义是解决方案。但很明显，我们正在进入一个时代，在一个世纪里，你会看到的由政治占主导地位的时代。”
 
-以下是更新至2021年9月15日的数据：
+**总体情况：**
 
-欧盟、欧洲经济区、瑞士至2021年9月11日，根据EudraVigilance数据库（欧盟药物警戒系统）显示，24,528个死亡案例与注射中共病毒疫苗有关，2,292,967 人出现疫苗不良反应。
+中国人民银行宣称，“与虚拟货币相关的商业活动是非法的金融活动。”它迫切希望可确保成功推出其中心化的数字人民币。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-15.jpg)图片来源：《零对冲》
+“政府将坚决打击虚拟货币的投机、相关金融活动和不当行为，以维护人民的财产安全，以及维护经济、金融和社会秩序。”
 
-根据MHRA数据库（药品和医疗产品监管署Medicines and Healthcare products Regulatory Agency），英国至2021年9月1日，1,632 个死亡案例与注射中共病毒疫苗有关和 1,186,844人出现疫苗不良反应。
+北京并未宣布此类数字资产的所有权为非法。他们更喜欢集中的强制性控制和缓慢的窒息。取缔虚拟货币所有权的一个风险是，丧失了虚拟币的公民会永远愤慨。将其公民大规模变成罪犯的国家，是会面临极大的危险的。苏联共产党人将这种转变变成了一种艺术形式。
 
-美国至 2021年9月3日，根据VAERS数据库（疫苗不良事件报告系统Vaccine Adverse Event Reporting System），14,506个死亡案例与注射中共病毒疫苗有关和 3,146,691人出现疫苗不良反应。
+这些都是赌注。中共国央行的数字人民币将为北京提供无与伦比的交易洞察力和金融控制。它还打算将该系统作为美元的替代品出口，通过其新的国际支付系统在中共国开展业务。
 
-公开信中还提醒大家注意以下几点：
+但自由市场已经创造了北京统治之外的平行体系。比特币就是其中之一，以太坊是另一个，稳定币也是如此。此类系统旨在满足市场对现有法定货币（例如美元）数字版本的需求。全球 1280 亿美元的稳定币中有 98% 以上与美元挂钩。更令人印象深刻的是，美元稳定币的年交易额超过100万亿。这是私营部门大规模应用区块链技术的惊人成功。数字人民币没有这样的需求 —— 最大的私人人民币稳定币少于5百万(见“我一点也不兴奋”：中国的数字人民币正在变成一个巨大的失败）。
 
-- 上述官方数字（向卫生当局报告的）仅占实际数字的一小部分（1%至10%）。
+因此，中美面临着截然不同的立场。中共国在数字货币领域的成功取决于控制 —— 数字人民币将被强制使用。美国的成功依赖于监管机构将美元稳定币纳入主流。
 
+并且，当他们这样做时，这些技术将受到传统的监督，解锁指数增长。国家将通过市场选择的货币获得利益。毫无疑问，这仍然是美国。
 
-- 英要求在全球范围内立即停止 COVID-19疫苗接种计划。
+原文链接：[https://www.zerohedge.com/markets/hedge-fund-cio-chinas-crypto-crackdown-beijing-desperate-ensure-successful-rollout-their](https://www.zerohedge.com/markets/hedge-fund-cio-chinas-crypto-crackdown-beijing-desperate-ensure-successful-rollout-their)
 
+翻译：洛杉矶盘古农场–Freeearth
+校对：洛杉矶盘古农场–明子
+编辑：洛杉矶盘古农场–明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-- 在充分了解成人和儿童正在遭受严重伤害和死亡的情况下，继续实施该计划构成了危害人类罪、种族灭绝罪，被认定负有责任或同谋者最终将被追究个人责任。
-
-
-全世界的政府都在欺骗他们的人民，声称为人民服务。而且上面的资料足以说明基因疫苗是致命的！
-
-如果说先前没有这些数据的时候，政府推广疫苗是因为无知，那么在已经有了这些数据证明疫苗的危害远大于病毒的时候，政府还有什么理由再推广，甚至是强制推广疫苗接种？
-
-新闻来源：[J’Accuse! The Gene-based “Vaccines” Are Killing People. Governments Worldwide Are Lying to You the People, to the Populations They Purportedly Serve](https://www.globalresearch.ca/jaccuse-governments-worldwide-lying-you-people-populations-they-purportedly-serve/5750650?__cf_chl_captcha_tk__=pmd_6GUeVKXeRXkEMTbEu6B_L0gGkMkRzm4Mi0ohmgfDWVk-1632818558-0-gqNtZGzNAyWjcnBszQol)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
