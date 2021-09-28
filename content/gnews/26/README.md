@@ -2,17 +2,15 @@
 ---
 
 
-## 孟晚舟能回国是因为华为背后的两个爹
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1560893/)
+## 2021年9月28日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1560937/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/merlin_154565964_a4a7426a-04b6-4d56-bbe9-65404dda4310-master1050-2.jpg)图片来源：cn.nytimes.com
-郭先生在9月26日的直播中说，这次华为背后官方的两个爹让孟晚舟回了国。这两个爹一个是总参二部，一个是习近平的亲姐夫。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-总参二部是军队的情报部门。华为是中共通过通信征服世界的平台，特别是通过5G。如果孟晚舟将这告诉美国和西方，所有过去这些年埋在西方的技术和蓝金黄网络将全部暴露，在美国华尔街和军方出卖美国的某些人也将被曝光。孟晚舟能够回到中国的另一个重要原因是因为习近平的亲姐夫，他是华为唯一的亲爹。华为是皇帝的家族拥有的。习近平以国家的名义，必须让她回去。
+**❤️❤️❤️❤️❤️❤️❤️❤️**
 
-孟晚舟带着无限荣光回到了“母亲”的怀抱，“唱支山歌给党听，我把党来比母亲……”，这首歌应该由孟晚舟来唱，而不是你。
+[Himalaya Global(喜站)](https://gettr.com/user/globalhimalaya)@GlobalHimalaya·12hArchbishop Vigano: Forcing experimental vaccines is a grave crime against humanity. It is a massacre planned on a global level, 维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益
 
-参考链接：
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pcghq66fd9)
 
-[2021年9月26日文贵直播](https://gtv.org/video/id=6150769942a8af3151a5b28f)
+**喜联盟Gnews编辑部**
