@@ -2,60 +2,27 @@
 ---
 
 
-## 前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1559409/)
+## 中共开始“种草”第三针 百姓或将再成推广“木偶”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559461/)
 
-前白宫经济顾问皮特·纳瓦罗： 推特上的“取消文化”又开始(作怪)了。他们决定不允许我为我的推文做广告。很显然,真相刺激了他们泼妇般敏感的神经。这些人是谁？ 盖特(GETTR)是推特杀手。推特的“取消文化”正在摧毁美国。
+#### 撰稿：Julia
+角度：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/111-3.png)图片来源：新华社
+在中共病毒疫苗真相被爆料革命带给世界后，随着越来越多接种疫苗后致伤、致残、致死等事故的发生，欧美等国刮起了抗议强制接种疫苗的浪潮。据郭文贵先生直播透露，预计欧美等国将在10月份开始逐步停止强制接种疫苗政策。可是，几乎与此同时，中共国于近期召开的2021中关村论坛会议上，仍有人在推进第三针疫苗的接种。
 
+人民网 9月27日转《北京青年报》消息，9月25日，中国科学院外籍院士、北京大学李兆基讲席教授谢晓亮在此次论坛全体会议上发言指出，由于“第二针疫苗接种者血液中综合抗体滴度在几个月内会明显减弱，但体内免疫记忆仍未丢失”，因此，接种加强第三针疫苗，会在七天内快速提升综合抗体滴度，“并能维持至少9个月的高水平”。他表示，第一针接种后，血液中的综合抗体滴度很低，第二针会提升体内综合抗体滴度，但第二针六个月后综合抗体滴度基本低于检测的阈值，“意味着突破感染有可能发生”。因此，他建议第三针在接种第二针后六个月打。
 
+人民网27日稍后还转发了《科技日报》消息，称在25日的此次论坛“第二届全球科学与生命健康”平行论坛上，有专家称“今年冬天（中共）新冠肺炎疫情可能会反弹”，因此，中（共）国工程院院士张伯礼认为，需要加强疫苗接种防范疫情。与会专家也认为，未来疫情可能会有“‘流感化’趋势”，因此，疫苗“是应对疫情常态化防控最有效的措施”。
 
-> The cancel culture twits at Twitter are at it again. They have decided they won't allow me to advertise my tweets. Apparently truth offends their pearl-clutching sensibilities. Who ARE these people?
-> 
-> GETTR is the Twitter Killer. Twitter's cancel culture is destroying America.
-> — Peter Navarro (@RealPNavarro) [September 27, 2021](https://twitter.com/RealPNavarro/status/1442283619926564872?ref_src=twsrc%5Etfw)
+而中共国疾控中心主任高福则表示，疫苗“防感染差了一点，防发病又差了一点，防传播也不能防住全部，但在防重症、防死亡上效果明显。因此，大家对疫苗要有信心”。他还呼吁“一定要向世界共享疫苗，如果不共享疫苗，那么病毒将共享世界”。
 
+中共国疾控中心免疫规划中心主任尹遵栋则表示，加强接种会首先在“重点人群”、“免疫功能相对较低的人群以及60岁以上的人群”、需要“到境外疫情高风险地区或国家人群”中开展，“全人群开展加强免疫有待进一步研究，需根据疫情情况做出综合研判”。
 
+以上这些“专家”传递出的信息，无一不在暗示、“催眠”读者接受第三针加强免疫接种的“必要性”。尤其是尹遵栋透露的第三针加强接种所采取的推进策略，与中共国在今年年初推广疫苗的策略如出一辙——优先给予特定人群接种，以此起到“示范”和“饥饿营销”的效应，随后进行大规模推广便会水到渠成。而中共国的这样一种推进策略同时也对他国有着潜在的“示范”影响。
 
-美国务院发言人内德·普莱斯： 国务卿布林肯与新加坡外交部长[@VivianBala](https://twitter.com/VivianBala) 进行了交谈，并肯定了我们国家的密切伙伴关系。他们讨论了我们对印太地区、太空合作和应对气候危机的承诺。 【附国务院官网新闻】
+回想中共病毒疫苗在全球的推进过程，中国老百姓被中共当作疫苗实验小白鼠和疫苗推广“木偶”的一幕大概又将重演。
 
+**新闻来源**：
 
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) spoke with Singaporean Foreign Minister [@VivianBala](https://twitter.com/VivianBala?ref_src=twsrc%5Etfw) and affirmed our countries’ close partnership. They discussed our commitment to the Indo-Pacific region, space cooperation, and combatting the climate crisis. [https://t.co/D5Uai0fWpn](https://t.co/D5Uai0fWpn)
-> — Ned Price (@StateDeptSpox) [September 27, 2021](https://twitter.com/StateDeptSpox/status/1442609472128659459?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 通过恐怖主义人质外交取胜. 【转推称：孟晚舟和加拿大人质的交换是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和卖美贼幕后交易的的结果】
-
-
-
-> China wins using terroristic hostage diplomacy [https://t.co/7D2hELRswq](https://t.co/7D2hELRswq)
-> — Bill Gertz (@BillGertz) [September 27, 2021](https://twitter.com/BillGertz/status/1442302993534128135?ref_src=twsrc%5Etfw)
-
-
-
-众议院共和党领袖凯文·麦卡锡 ： 民主党正试图将4,300,000,000,000美元的 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 宠物项目强加给美国人民。 它会导致通货膨胀 这会让我们的孩子背上债务 它将会改变政府的模样,正如我们所知道的. 这是个很糟糕的协议——共和党人将全力而战. 【附福克斯新闻：麦卡锡关于众议院民主党人的开支闪电战】
-
-
-
-> Democrats are trying to force $4,300,000,000,000 in socialist pet projects on the American people.
-> 
-> It would cause inflation.
-> It would saddle our children with debt.
-> It would transform government as we know it.
-> 
-> It’s a BAD DEAL—and Republicans will fight it tooth and nail. [pic.twitter.com/VEuUd0YW6o](https://t.co/VEuUd0YW6o)
-> — Kevin McCarthy (@GOPLeader) [September 27, 2021](https://twitter.com/GOPLeader/status/1442535002823036932?ref_src=twsrc%5Etfw)
-
-
-
-众议员马乔丽·泰勒·格林： 国会应该保护被困在阿富汗的美国人，关闭边境入侵，并帮助被 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发送给我们的病毒摧毁的小企业。 与之相反，民主党正在通过法案来谋杀子宫内直到出生前的胎儿。
-
-
-
-> Congress should be protecting Americans trapped in Afghanistan, shutting down the border invasion, and helping the small businesses destroyed by the virus sent to us by China. 
-> 
-> Instead, Democrats are passing bills to murder babies in the womb up until birth. 
-> 
-> (Part 1) [pic.twitter.com/6g7UJsUdrx](https://t.co/6g7UJsUdrx)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [September 27, 2021](https://twitter.com/RepMTG/status/1442548123092635652?ref_src=twsrc%5Etfw)
+1. [http://health.people.com.cn/n1/2021/0927/c14739-32237739.html](http://health.people.com.cn/n1/2021/0927/c14739-32237739.html)
+2. [http://health.people.com.cn/n1/2021/0927/c14739-32237843.html](http://health.people.com.cn/n1/2021/0927/c14739-32237843.html)
