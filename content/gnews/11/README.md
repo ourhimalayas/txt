@@ -2,32 +2,23 @@
 ---
 
 
-## 台湾与印度大学签约再增三处教育中心
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560404/)
+## 秘翻在线 :恒大事件引爆世界金融危机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560479/)
 
-栏目记者/责任编辑：云豹
+撰稿：William
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/p.jpg-4.png)
+图片来源：foreignpolicy
 
+根据零对冲(Zero Hedge) 的报导,尽管美国华尔街对恒大违约风险装聋作哑，甚至认为中共国垃圾债券不太可能波及全球。然而恒大危机牵涉高达中共国 60 万亿美元的房地产行业，早已从融资蔓延到土地销售、房地产销售、项目交付和房价各方面，成为一发不可收十的烂摊子!
 
+根据报导，中共国最近几周房地产市场突然急剧崩塌，表示实际土地交易量远低于土地供应量，成交量也比去年同期暴跌了65%。知情人士担心6500 万套空置公寓中的一部分进入市场后，将导致房地产价值暴跌。
 
-台湾驻印度代表处于24日与印度阿育王大学（Ashoka University）签署合作备忘录，设立台湾教育中心。  26、27日再与昌迪加尔大学（Chandigarh University）及印度理工学院罗巴尔分校（IIT-Ropar）签署成立台湾教育中心的合作备忘录。 使在印度的台湾教育中心增加到21所。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0928-AM-2、4、5.001.jpeg)
-在印度的台湾教育中心，主要负责媒介台印双方的学术交流活动及研究，以及在印度推广中文学习课程、程度认证、及各种留学服务。随着中共影响力的逐步下降，各国都在逐渐转向与台湾合作，改由台湾提供中文教学师资及教材。 台湾保留了真正华语文化的精髓，也同样实施民主法治的体制。 经由台湾教育中心来推广中文，促进与世界的交流，是当下最好的选择 。与此同时，台湾的存在也是”中国人不等于共产党” 的最佳证明和诠释！
-(本文仅代表作者观点)
+根据当地政府的一份声明，7 月份，中共国一个城市停止了两个恒大项目的销售。同时，资金缺口也导致一些未完工的房屋暂停建造，引发购房者的严重不安。在广州，本月早些时候，买家包围了当地房管局，要求恒大重启建设。房地产行业混乱带来的最令人不安的是造成社会动荡。
 
-参考链接：[印度將再添2所台灣教育中心 計達21所](https://www.cna.com.tw/news/aopl/202109270385.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2017年郭文贵先生就预言了恒大危机，郭先生说恒大事件带来的毁灭性的影响远远超过雷曼兄弟。并在今年9/23的直播说到恒大事件将引发国内所有金融市场、影子银行、金融信托、股票崩塌，房地产跟着崩塌，接着更引发世界金融系统、国家货币崩塌。在中共即将倒台之际，中共会向全世界巨量放毒。全球最黑暗的时刻尚未到来，金融海啸必将冲击每个人的生活。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+文贵先生语重心长地提醒大家:”现在最重要的是谨慎小心！不要感染病毒、不要打疫苗、备好解药、维持食衣住行的需求，安全地、耐心地等待危机过去。”
 
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源 [The Housing Market Is Almost Frozen” – An Even Bigger Problem Emerges For China](http://The%20Housing%20Market%20Is%20Almost%20Frozen&quot;%20-%20An%20Even%20Bigger%20Problem%20Emerges%20For%20China)

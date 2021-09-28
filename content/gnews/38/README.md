@@ -2,34 +2,62 @@
 ---
 
 
-## 中共国的安全是保安不带AK47还是网播被边防特警保护出来的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1559909/)
+## WI警方：（未打疫苗）少年宣布战胜中共病毒可入狱
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1560065/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获_副本-17.png)
-据[**填鸭式教育受害者**](https://weibo.com/u/5833359023) [2021年9月28日 11:41](https://weibo.com/5833359023/KAeNTro0c?from=page_1005055833359023_profile&amp;wvr=6&amp;mod=weibotime) 来自 [填鸭说车超话](https://huati.weibo.com/k/%E5%A1%AB%E9%B8%AD%E8%AF%B4%E8%BD%A6)
-
-同样的台词同样的剧本，只是不同样的人…… （网友投稿） [L填鸭式教育受害者的微博视频](http://t.cn/A6MtlxVM) ​​​​
-
-另一个剧本是不同的主播分别在中日边境、中朝边境被边防特警保护的，据[文普智开@Jack202064](https://twitter.com/Jack202064)于[下午12:37 · 2021年9月27日](https://twitter.com/Jack202064/status/1442347559851204611)发布的推文——
-
-[#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 匪夷所思的穿帮爱国宣传片 第一个
+- 编译：西班牙喜悦农场–wenwu
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/001-6.jpg)
 
-> [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 匪夷所思的穿帮爱国宣传片🤷‍♂️🤷‍♂️
-> 第一个 [pic.twitter.com/oHxbzJ6Lm3](https://t.co/oHxbzJ6Lm3)
-> — 文普智开 (@Jack202064) [September 27, 2021](https://twitter.com/Jack202064/status/1442347559851204611?ref_src=twsrc%5Etfw)
+Amyiah Cohoon 刚于 2020 年 3 月从医院回家，一名警长周日就来了，他警告说你的女儿竟然在 Instagram 上发帖称，她“战胜了中共病毒（covid-19)”这种社交行为让她面临指控甚至入狱。据[法庭文件](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)称，当时是大流行初期，她所在威斯康星州的县尚未记录任何 covid-19 病例。“担忧的市民”已开始打电话给当地官员。
 
+“如果[IS帖子]不删掉，WI警长已经指控了我发出扰乱秩序的传票，这传票有权力把人送进监狱，”根据《华盛顿邮报》获得的录像视频，威斯康星州马凯特县（Marquette County）的警长告诉 Cohoon 的父亲。”因为这对公众造成了干扰”。该IS帖子被撤下，但 Cohoon 的家人在下个月就这一威胁对警长办公室提起了联邦诉讼。
 
+一名联邦法官最近裁定，警长办公室侵犯了该学生的言论自由权，无论她是否真的患有 covid-19。据美国地方法官布雷特·路德维希 (Brett Ludwig) 称，这名青少年无法立即接受检测，医生建议最终的阴性检测可能来得太晚了。
 
-那么在这个空气有霾、食品有毒、疫苗杀人，每个环节都充满危险的国度里，它的安全到底体现在哪里呢？它的安全就体现在造假者可以肆无忌惮，造谣者可以豪无顾忌，在这个以假治国的国度里，一切的真都是最危险的，而一切的假不仅安全，而且假还可以带来收益，甚至造假者已经没有心情造出日新月异的假，他们已经开始了批发造假。
+路德维希法官周五（24日）在威斯康星州东区的[法庭裁决中](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)表示，接受当局逮捕这名当时16岁的青少年的理由–警方声称，她通过社交媒体帖子散布焦虑和“恐慌”–将“削弱”第一修正案的保护。路德维希法官说，这些保护措施适用于“任何时期”。
 
-撰稿：喜马拉雅的肉夹馍
+现年17岁的 Cohoon 在周日（26日）《华盛顿邮报》的简短采访中，对该案件的“爆发”感到惊叹。她质疑道：”我想做的是让人们知道我当时生病了（感染中共病毒），因为我身边有一群人。”
 
-审核：喜马拉雅的馍夹肉
+她的母亲 Angela Cohoon 补充说：“我们不想看到其他人经历这种情况。”马凯特县警长办公室、警长和代表他们的律师周日没有回应置评请求。他们的律师塞缪尔·霍尔今年春天[告诉《纽约时报》](https://www.nytimes.com/2020/04/21/us/marquette-county-sheriff-instagram-lawsuit.html) ——在行车记录仪[镜头](https://wapo.st/3m0fCU7)作为法庭案件的一部分浮出水面之前——执法部门否认威胁要逮捕 Amyiah Cohoon。
 
-校对：Maarago
+据法庭记录声称，Cohoon 和她的高中乐队一起去往 Walt Disney World and Universal Studios 后，就出现了呼吸困难、发烧和咳嗽的情况。她去了急诊室，被诊断为“急性上呼吸道感染”。法庭文件指出，医生说她的症状与 covid-19 相符，但她没有资格接受该病毒的测试（或许是医院禁止医生确诊青少年感染 covid-19 的情况，理由大概是知道不需要打疫苗，这种没有及时确诊的现象在美国全境都是普遍都）。
 
-（文章内容仅代表作者个人观点）
+Cohoon 是带着呼吸机出院，并被建议隔离两周后，她还在 Instagram 上发布了关于这次磨难的信息（如图）：
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/002-6.jpg)
+
+“嘿，伙计们……对不起，我休息了很长时间。由于我 [现在] 感染了 COVID-19 病毒，我还有等一段时间才可以回来，”她写道。她说她不想引起关注——这只想告诉人们“这是事实”。
+
+路德维希法官写道，几天后，即 2020 年 3 月 25 日，Cohoon 回到医院并检测出[中共病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_27)呈阴性。但医生告诉她的家人，她应该继续隔离，而且 Cohoon 有可能感染了 covid-19，只是“错过了检测窗口”。当这位大二学生回到家时，她又发布了一张戴着氧气罩的照片，说她仍在接受”呼吸治疗”，但已经从中共病毒中恢复过来。
+
+路德维希法官在法庭文件中写道，该帖子引发了当地卫生部门以及 Westfield 学区的电话，卫生官员联系了警长办公室，并对她表示“希望说服2020年3月27日晚，卡梅伦·克鲁姆普警官出现在 Cohoons 家，要求撤下青少年声称的covid-19 说法；县卫生部门周日没有回应置评请求。
+
+Cohoons 家人提出抗议：根据视频片段，Cohoon 的父亲告诉这个警告，中共病毒测试挑战是众所周知的；“人们需要知道这[病毒]正在发生，当你不能警告他们时，当你又得到一个警长办公室威胁要把人们投入监狱时，这让人们出于危险中，”他埋怨道。
+
+但 Cohoons 家人最终同意了删除此贴；同一天，韦斯特菲尔德学区管理员罗伯特·梅彻（Westfield School District Administrator Robert Meicher）似乎在[给其家人](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)的[一封信中](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)批评了 Cohoon 。
+
+“今天我注意到，外面有一个谣言，说我们的一个学生在两周前去佛罗里达的乐队旅行时，感染了Covid-19，”Meicher 写道。“我可以向你保证，这是你故意造谣的。这是一种愚蠢的吸引注意力的方式，你女儿的谣言已经得到妥善的解决。”
+
+路德维希法官说，这就是 Cohoon 关于她发布“可能”感染 Covid-19 的帖子的结尾。
+
+路德维希法官在上周对案件进行了权衡时候，他拒绝了警长的建议，即 Cohoon 的行为类似于“在拥挤的电影院里呼喊着火了”。该法官还说，有关当局上门仅是在进行说服而不是胁迫的论点是不成立的，因为这忽略了“一名身穿制服的警察出现在青少年家中，并命令她只允许发出“一种声音的言论。”这本身就具有令人不寒而栗的性质和胁迫性。
+
+代表 Cohoon 的威斯康星州法律和自由研究所的律师卢克·伯格(Luke Berg)对这一决定表示庆祝，并告诉《华盛顿邮报》，该案的事情原委“相当奇怪，但这是一个非常强烈的声明……警察不能对社交媒体进行监管。”
+
+**简评：**
+
+**从本篇报道的美国人物和统治系统上分析，其描述故事的真实可信度是很高。唯一可以确定的是，Instagram 对言论自由的控制在近几年的爆料革命中被暴露了。那么，我们不得不相信 Facebook 对儿童洗脑控制而进行“线上+线下”的操控，而感染了中共病毒的青少年不需要接种疫苗的事件，无疑对邪恶势力的计划造成了负面的影响。这让感到不可思议的是，面对此类事件的发生竟然具有如此的系统规划和应急措施。**
+
+**这会不会跟中共国发起的世界互联网新一届大会的[开幕](https://gnews.org/zh-hans/1557472/)与“共同富裕”有关呢？值得讨论。**
+
+（文章仅代表作者观点 与GNEWS无关）
+
+新闻来源：《[华盛顿邮报](https://www.washingtonpost.com/nation/2021/09/27/amyiah-cohoon-sheriff-lawsuit-covid/)》｜作者：汉娜·诺尔斯｜发布时间：2021年9月27日
+
+* * *
+
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)

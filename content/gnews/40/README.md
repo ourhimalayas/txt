@@ -2,143 +2,30 @@
 ---
 
 
-## 中共病毒疫苗抑制了对控制癌症的受体（视频）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
+## 中共统治下灾难迭起，病毒疫苗未停又电荒
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1559976/)
 
-Now, very importantly
+视频&文章：澳洲天好蓝
 
-现在，非常重要的是
+中共国一党当政，遍地是灾，这病毒疫情灾难远远未结束，中共国又在这9月末尾的一段时间开始又闹幺蛾子了。这回，又是搞什么全国限电，东北三省，江苏，浙江，广东，广西等等。一时间，让人摸不着头脑，众说纷纭。有说，因为中共报复澳洲，不进口澳洲便宜的矿引起的；有说，中共为了拉升对外输出的通货膨胀，对美国发动的经济超限战；有说，外汇不足引起的。
 
-This goes to that question
+根据中共国海关数据显示：2021年1-2月中共国共进口煤及褐煤4112.6万吨，同比2020年1-2月进口量 6794.4万吨减少39.47%。2021年3月份，中共国进口煤炭2732.9万吨，较去年同期的2783.3万吨减少50.4万吨，下降1.81%。海关总署：中国4月煤及褐煤进口2173.4万吨，同比下降29.8%。2021年5月份，中共国进口煤及褐煤2104.0万吨，环比下降3.2%，同比下降4.6%。2021年1-5月份，我国累计进口煤及褐煤11116.6万吨，同比下降25.2%。也就是说，中共在今年1月份就开始有意下调了煤的进口量，倒底是什么原因引起的中共减少进口，目前还不得而知，笔者认为可能与外汇的紧张有一定关系。
 
-这涉及到那个问题
+就限电的地方不同严重程度来看，貌似北方最为严重，其次是沿海，南方很多地区好像不是太严重，至少居民生活没有受到影响。而东北三省老百姓的生活已经受到了严重的影响，甚至可以说是受到了严重破坏。
 
-All these anecdotes that we’re hearing from different oncologist around the country
+9月23日关于辽宁省实施限电通知里说：受联络线净受能力下降，煤电价格居高不下导致发电厂出力下降等因素影响，23日对辽宁地区实施有序用电，但仍然有缺口，所以对辽宁十四个市实施事故拉闸限电。
 
-我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
+9月26日吉林一水务公司发文称：根据国家电网要求，将执行东北电管局和吉林省能源局有关有序用电的精神，不定期，不定时，无计划，无通知停电限电，此种情况将持续到2022年3月份，停电，停水变为常态。
 
-And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
+现在东北三省已经到了随时停电，停水的程度，不但工厂停电，居民区也停电，就连手机都没有信号，市区公路上的路灯晚上都没有照明，简直是一朝回到了石器时代了。东北三省老百姓的生活受到了严重的破坏，眼下北方已经开始降温了，这停电也是遥遥无期，不知道冬天北方百姓如何生活？
 
-我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
+不过现在看来南方很多地区受到的影响没有北方那么严重，一方面笔者认为，东北三省由于政府早就负债严重，年年GDP都是造假，实际上政府已经破产了。所以，东北三省政府干脆就停电得比较彻底，这样今年的GDP就可以不造假了，完全甩锅给缺煤。另一方面，中共内部政治斗争激烈，发电用煤的分配肯定有派系斗争的结果，东北三省就直接被牺牲掉了，你听说过上海有停电吗？就像郭先生所说，打疫苗给你北方，广东的都打真的，像上海这些江系的地方就是假打的。
 
-he knows his community, he knows his patients
+但不管怎么样，造成今天中共国全国范围的停电的罪魁祸首就是中共！中共从今年1月就蓄意下调进口煤，才会造成今天这样的结果，最终的灾难性后果还是中共国百姓来买单，这又是一党独裁，遍地是灾的真实写照！
 
-他了解他的社区，了解他的病人
+（本文只代表作者观点）
 
-And he said hey you know a lot of my patients are getting the shot, some aren’t
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-他说，你知道，我的很多病人都打了疫苗针，有些没有打
-
-But in those are and he listed the number of cancers he seen in a 6 week period of time
-
-但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
-
-that is never seen in a 40 years career
-
-这是在他40年的职业生涯中从未见过的
-
-And so he asked to what could be causing that?
-
-于是他问，可能是什么原因造成的呢？
-
-So, I sent him that paper as a potential mechanism
-
-所以我把那篇论文作为一个潜在的机理发给了他
-
-As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
-
-因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
-
-So I was talking to Harvey Risch, the world-renowned epidemiologist
-
-因此，我与世界知名的流行病学家哈维·里希进行了交谈
-
-He said, well you know the post shot therapy is usually going to be 5-10 years
-
-他说，你知道接种疫苗后治疗通常需要5-10年
-
-till we see the signals
-
-直到我们看到信号
-
-I said yeah usually it would be
-
-我说是的，通常是这样的
-
-But when we have something that we never done before
-
-但是，当我们有一些我们以前从未做过的事情的时候
-
-that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
-
-突然抑制了一种对控制癌症负有高度责任的受体
-
-It would be very explicable as to why something that is quiescent
-
-这很容易解释为什么有些东西是静止的
-
-All of a sudden wakes up
-
-一下子就醒了
-
-So I mean all day long our cells are fighting off mutations in different cells
-
-所以我的意思是，我们的细胞整天在对抗不同细胞的突变
-
-They see the mutation to try to kill that cell
-
-他们看到突变，试图杀死那个细胞
-
-If this receptor is downregulated
-
-如果这个受体被抑制了
-
-then all those downstream are molecules inside that cell that’s fighting there can’t fight
-
-那么所有其后的分子在细胞内的战斗就无法进行
-
-Because those signals are now turned off the cytokines, the interferons
-
-因为这些信号现在关闭了细胞因子和干扰素
-
-the things that will attack that atypical cell
-
-这些东西会攻击非典型细胞
-
-So, we’re seeing the early signals of this
-
-所以，我们看到这样的早期信号
-
-And so that’s what’s concerning is we want to be able to under the microscope
-
-这就是我们想要在显微镜下观察的问题
-
-you know here’s a whole stack of tumors
-
-你知道这里有一大堆的肿瘤
-
-in the last couple of weeks where what am I doing is
-
-在过去的几周里，我在做什么呢？
-
-I’m looking at the ratios of helper T cells this CD8 killer T-cells
-
-我在观察辅助T细胞和CD8杀伤性T细胞的比例
-
-and then we’ll be staying these for always
-
-然后我们会继续这么做
-
-Because some of these patients again inexplicable cancers
-
-因为这些病人中有些人的癌症无法解释
-
-at really unusual ages
-
-真的是在不寻常的年龄
-
-That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
-
-与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
-
-听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
