@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+﻿###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/main/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/main/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/main/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/main/about)
 ---
 
 推薦文章:point_down:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
-:new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+[視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+
+:new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
 ## 頁面 3/35 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [35](/content/README-35.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+
+[全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/content/2021/07/20210704-1375674.md)
 
 [全文字版2021年6月30日郭文贵先生G-TV直播](/content/2021/06/20210630-1364325.md)
 
@@ -61,8 +65,6 @@
 [全文字版2021年5月9日郭文贵先生G-TV直播](/content/2021/05/20210509-1198433.md)
 
 [全文字版2021年5月2日郭文贵先生G-TV直播](/content/2021/05/20210502-1166796.md)
-
-[全文字版2021年4月25日郭文贵先生G-TV直播](/content/2021/04/20210425-1140222.md)
 
 
 ## 頁面 3/35 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [35](/content/README-35.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

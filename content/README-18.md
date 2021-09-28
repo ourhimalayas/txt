@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+﻿###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/main/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/main/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/main/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/main/about)
 ---
 
 推薦文章:point_down:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
-:new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+[視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+
+:new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
 ## 頁面 18/35 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [35](/content/README-35.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
+
+[文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/content/2019/08/20190808-3378844936967794316.md)
 
 [文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
 
@@ -61,8 +65,6 @@
 [文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/content/2019/07/20190708-1629076298190675341.md)
 
 [文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/2019/07/20190707-3878113483367388120.md)
-
-[文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
 
 
 ## 頁面 18/35 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [35](/content/README-35.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

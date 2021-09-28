@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/master/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+﻿###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:statue_of_liberty:Gettr](https://github.com/ourhimalayas/txt/blob/main/content/gettr/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/main/content/README.md) | [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/main/content/docs/g-radio/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/main/about)
 ---
 
 推薦文章:point_down:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
-:new: :tada::tada::tada: [視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+[視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md)已更新
+
+:new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
 ## 頁面 20/35 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [35](/content/README-35.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
+
+[翻译：班农法国行：“胜利在我们一边”](/content/2019/05/20190527-4863328313468786056.md)
 
 [文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
 
@@ -61,8 +65,6 @@
 [文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/content/2019/04/20190425-6473105803624226885.md)
 
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/content/2019/04/20190423-1316930851159830610.md)
-
-[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/2019/04/20190422-2917569343036844190.md)
 
 
 ## 頁面 20/35 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [35](/content/README-35.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
