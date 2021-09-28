@@ -2,23 +2,18 @@
 ---
 
 
-## 没有意外，没有惊喜，屠呦呦女士再次落选两院院士
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559793/)
+## 雅典娜时报-第065期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559814/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/09/121-1.jpg)
-[图片来源](https://www.bbc.com/zhongwen/simp/world/2015/12/151211_tu_youyou_receives_nobel_prize)
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-众所周知，1949中共篡政以来，经过历次运动，特别是文化大革命以后，有脊梁风骨的仁人志士已经所剩无几。中共治下基本上领导就是学术官僚，党棍把持职能部门，真正有学术专长，有真才实学的教授，不会在乎所谓的两院院士这个title。因为不愿意阿谀奉承，对他们曲意逢迎，或者金钱上的交易，往往被他们讥笑为不懂人情世故，迂腐陈旧，因为妒贤忌能，像屠呦呦教授这样的三无（无博士学位，无留学背景，无学术论文）被他们长期排挤打压，落选两院院士，也就毫无疑问了。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/11-37.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/22-6.png)
+***发布：小红帽***
 
-中共创始党魁陈独秀说过，党外无党，帝王思想，党外无派，千奇百怪。所有的一切，当然包括所有的学术职称一定在党的绝对领导之下，概莫能外，越是因为获得诺贝尔医学奖，越要打压。我还是你的领导呢，也没有获得国际上的荣誉，不要认为自己得奖了，就可以不把领导放在眼里，在中共科学院和工程院还是领导说了算。但令他们意外的是，院士这个称号及其包含的荣誉和利益对于屠呦呦女士恐怕真是半分吸引力都没有。
-
-一直以来，屠女生潜心研究青蒿素，为全人类医学进步做出了巨大贡献，值得全人类尊重，也因为她没有和中共勾兑，总是落选两院院士，更值得我们新中国联邦人加倍尊重。
-
-[消息来源](https://www.163.com/dy/article/GA3OK86S0550EZLH.html)
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 知了知了*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

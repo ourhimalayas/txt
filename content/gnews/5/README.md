@@ -2,69 +2,143 @@
 ---
 
 
-## 如果拒绝接种疫苗数百名海豹突击队将不能继续服役
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559837/)
+## 中共病毒疫苗抑制了对控制癌症的受体（视频）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
 
-据《及时新闻》作者约翰·所罗门（ John Solomon ）2021 年 9 月 20 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/09/slm_adobespark.png)图片来自网络
-*随着接种期限的临近，海豹突击队员在寻求宗教豁免后陷入困境。律师寻求**90**天暂缓以避免军队战斗能力大减的危机。*
+Now, very importantly
 
-据为他们提供咨询服务的一位律师和一位牧师说，数百名精英海豹突击队员在未接种强制性中共病毒疫苗后，面临被五角大楼禁止参与特种作战小组部署的危险。
+现在，非常重要的是
 
-他们的辩护人告诉《及时新闻》，与五角大楼发生争执的人数占所有现役海豹突击队员的四分之一或更多，这一损失可能会影响军队战斗力，因为海豹突击队在现代军事行动中发挥着巨大作用。本周，一些海豹突击队员被限定了接种疫苗的最后期限，他们已寻求获得宗教豁免。
+This goes to that question
 
-美国海军中校 R. 戴维斯·杨茨（ R. Davis Younts ）说：“我的客户包括几名海豹突击队员，他们是一大群海豹突击队员及其他军人中的一小部分，这些军人被要求在他们的信仰和为我们国家服务之间做出选择”。杨茨是空军预备役军官和法官辩护团律师，他作为私人律师代表几位特战队员。战队员们被告知，如果他们寻求宗教保护，他们可能将无法再以海豹突击队的身份为我们的国家服务，并被随意限定了遵守疫苗规定的截止日期。
+这涉及到那个问题
 
-“我的客户需要时间，我们正在寻求将他们的强制疫苗接种合规期限至少延长 90 天。”
+All these anecdotes that we’re hearing from different oncologist around the country
 
-杨茨说，五角大楼已经以书面形式进行了威胁：未接种疫苗的海豹突击队员，包括那些获得宗教豁免或已经拥有自然免疫力的，将被禁止与他们的团队一起参与部署，这几乎彻底结束了他们的特种作战人员职业生涯。他说，有些人的最后期限是本周内。
+我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
 
-杰夫·德宾（Jeff Durbin）牧师是亚利桑那州著名的反堕胎活动家和福音派牧师，在这些特种作战人员考虑如何做出决定时他已经施助数周，他说，所有现役海豹突击队员的四分之一到三分之一都卷入了这场与五角大楼的争执，包括一些得过病康复后已经具有中共病毒免疫力的人。
+And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
 
-德宾告诉《及时新闻》：“有数百名海豹突击队员没有接种疫苗、不想接种疫苗，或者已经感染过中共病毒并从中恢复过来而受益于自然免疫力，我代表的大量海豹突击队员正面临着一个非常艰难的决定，即使他们获得了合法的基于对基督、福音、上帝的律法和宪法的信奉的宗教豁免，他们也将不再是海豹突击队员了。
+我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
 
-“他们基本上是被要求在他们对基督主权的承诺和他们作为海豹突击队员的职业之间做出选择。我们国家应该非常关注这会对军队战斗能力产生什么样的影响。由于他们合法且真诚的基督教信仰而失去数百名海豹突击队员，对我们这个国家来说可能是毁灭性的。”
+he knows his community, he knows his patients
 
-五角大楼将评论要求转给了海军，而海军没有立即回应。一位海军消息人士只愿确认11 月 28 日是所有海军人员接受疫苗接种的最后期限。
+他了解他的社区，了解他的病人
 
-蒂姆·帕拉托雷（ Tim Parlatore ）是一名律师，他帮助海豹突击队员埃迪·加拉格尔 (Eddie Gallagher) 获得无罪释放，加拉格尔涉嫌导致一名 ISIS 囚犯的死亡。蒂姆·帕拉托雷说，他已确认大量海豹突击队员现在拒绝接种疫苗。
+And he said hey you know a lot of my patients are getting the shot, some aren’t
 
-帕拉托雷说：“有数百人。而且不是高层指挥人员。所有人都是射手，这将产生巨大影响” 他说：“如果他们继续使用这个愚蠢的政策，如果（没有）海豹突击队，你将彻底毁灭”。
+他说，你知道，我的很多病人都打了疫苗针，有些没有打
 
-帕拉托雷说海豹突击队员不是反对疫苗；事实上，他们接受了各种各样的（其他疫苗）注射。他说他们只是相信需要更多的安全数据来做出自己的判断。他指出，其中一些人已经对这种疾病有免疫力。
+But in those are and he listed the number of cancers he seen in a 6 week period of time
 
-联邦卫生监管机构表示，该疫苗对大多数美国人是安全的，同时承认一些罕见但严重的不良反应事件，例如年轻成年人的突发心脏病。
+但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
 
-海豹突击队是军中最精英和最著名的特种部队之一，据报道，需要高达 50 万美金和一年或更长时间来完成训练海豹突击队员的任务。在过去二十年的反恐战争中，海豹突击队肩负着不成比例的沉重负担，战斗队经常多次部署到战区，包括在 2011 年杀死奥萨马·本·拉登的执行秘密任务的海豹六队。
+that is never seen in a 40 years career
 
-代表特种作战人员的其他几名律师以及海豹突击队的几名成员向《及时新闻》证实了杨茨和德宾的说法，他们确认未来几天可能会有大量特种作战人员靠边站。大多数人不愿留下姓名，因为害怕失去工作，但警告可能会发生安全灾难。
+这是在他40年的职业生涯中从未见过的
 
-埃里克·格雷滕斯（Eric Greitens）是一名退休的海豹突击队员、前密苏里州州长，现在正在竞选国会参议员，他表示，五角大楼目前的立场错误地影响了美国国防和为自己国家做出如此多贡献的人们的个人事业。
+And so he asked to what could be causing that?
 
-格雷滕斯说：“这对国家安全来说是错误的，从破坏海军特种作战能力中受益的只有塔利班、俄罗斯、中共国和其他世界各地的对手。这在个人的层面上也是错误的。这些战士将自己的生命献给了国家，为保卫这个国家献出了青春，其中一些献出了健康，现在却因无效的科学、医学或军事理由而陷入了困境。很明显，他们失控的指挥更关心政治正确，而不是战士的死伤，因此情愿损害国家安全和（军人的）个人事业。”
+于是他问，可能是什么原因造成的呢？
 
-杨茨是宾夕法尼亚州的一名律师，近 20 年来一直参与为现役军人辩护，并作为法官辩护团的顶级空军辩护律师，赢得了一个奖项。他的成就和著作已在法官辩护团[官方杂志上登出](https://www.afjag.af.mil/Portals/77/documents/AFD-121203-007.pdf)。
+So, I sent him that paper as a potential mechanism
 
-德宾在凤凰城地区经营着大型福音派阿波罗吉亚教堂，以强烈反对堕胎而闻名。2017 年，当他建议将堕胎与谋杀同等对待时受到了批评，根据某些州的法律，堕胎可判处死刑。然而，当本月早些时候教皇方济各宣布“堕胎是谋杀”时，他的关于堕胎是犯罪的立场最近得到了支持。
+所以我把那篇论文作为一个潜在的机理发给了他
 
-德宾告诉《及时新闻》，他最近几周开始为海豹突击队员和其他军事人员提供服务，因为他们正在痛苦抉择是否按照五角大楼的规定接种中共病毒疫苗。他说，他所辅导的人有宗教异议，由于遵守军纪而无法公开发言，并且知道即使他们获得了宗教豁免，如果他们在目前的军事职位下拒绝接种疫苗，他们的海豹突击队的职业生涯也会结束。 .
+As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
 
-他说：“这些海豹突击队员是对耶稣·基督有信仰的人，他们觉得好像被迫在对基督的信仰、对上帝律法的遵守，以及爱邻居和维护人类生命的原则与他们作为海豹突击队员的职业之间做出抉择。”
+因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
 
-他说，他所服务的海豹突击队员“是沉默的专业人士的缩影，他们不想也不能为自己发声。”
+So I was talking to Harvey Risch, the world-renowned epidemiologist
 
-译者简评：
+因此，我与世界知名的流行病学家哈维·里希进行了交谈
 
-中共病毒、疫苗是子母弹，真正的杀伤力来自毒疫苗。而各国政府，无论左右，几乎都在全力推进强制疫苗接种，背后的邪恶力量不是简简单单为了点钱，而是要控制全世界全人类，人类大重启正在进行中，杀死多少人他们是不会在意的。
+He said, well you know the post shot therapy is usually going to be 5-10 years
 
-文中提到 11 月 28 日是所有美国海军人员接受疫苗接种的最后期限。郭文贵先生在直播中提到当美国军队完成了疫苗接种，疫苗的强制接种也就快要结束了。但是，病毒、疫苗的次生灾害-经济上的、政治上的-只是刚刚开始，人类的至暗时刻悄悄来临…
+他说，你知道接种疫苗后治疗通常需要5-10年
 
-本文结尾说这些海豹突击队员“是沉默的专业人士的缩影，他们不想也不能为自己发声。”问题是，全世界所有人士-专业的非专业的，有多少人想、又可以为自己发声呢？人类是继续选择沉默任人宰割，还是勇敢说不，和郭文贵先生、爆料革命、新中国联邦一起揭露真相，消灭中共，消灭国际共产主义，消灭背后的黑暗势力呢？
+till we see the signals
 
-人类大觉醒的时刻应该不远了 — 或贪生怕死被杀，或勇敢反抗求生，这才是所有人面临的真正抉择。
+直到我们看到信号
 
-原文链接：
+I said yeah usually it would be
 
-[https://justthenews.com/government/security/hundreds-navy-seals-face-being-blocked-deployment-refusing-covid-vaccine](https://justthenews.com/government/security/hundreds-navy-seals-face-being-blocked-deployment-refusing-covid-vaccine)
+我说是的，通常是这样的
 
-翻译：JS709｜校对：Nick｜编辑&发布：V
+But when we have something that we never done before
+
+但是，当我们有一些我们以前从未做过的事情的时候
+
+that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
+
+突然抑制了一种对控制癌症负有高度责任的受体
+
+It would be very explicable as to why something that is quiescent
+
+这很容易解释为什么有些东西是静止的
+
+All of a sudden wakes up
+
+一下子就醒了
+
+So I mean all day long our cells are fighting off mutations in different cells
+
+所以我的意思是，我们的细胞整天在对抗不同细胞的突变
+
+They see the mutation to try to kill that cell
+
+他们看到突变，试图杀死那个细胞
+
+If this receptor is downregulated
+
+如果这个受体被抑制了
+
+then all those downstream are molecules inside that cell that’s fighting there can’t fight
+
+那么所有其后的分子在细胞内的战斗就无法进行
+
+Because those signals are now turned off the cytokines, the interferons
+
+因为这些信号现在关闭了细胞因子和干扰素
+
+the things that will attack that atypical cell
+
+这些东西会攻击非典型细胞
+
+So, we’re seeing the early signals of this
+
+所以，我们看到这样的早期信号
+
+And so that’s what’s concerning is we want to be able to under the microscope
+
+这就是我们想要在显微镜下观察的问题
+
+you know here’s a whole stack of tumors
+
+你知道这里有一大堆的肿瘤
+
+in the last couple of weeks where what am I doing is
+
+在过去的几周里，我在做什么呢？
+
+I’m looking at the ratios of helper T cells this CD8 killer T-cells
+
+我在观察辅助T细胞和CD8杀伤性T细胞的比例
+
+and then we’ll be staying these for always
+
+然后我们会继续这么做
+
+Because some of these patients again inexplicable cancers
+
+因为这些病人中有些人的癌症无法解释
+
+at really unusual ages
+
+真的是在不寻常的年龄
+
+That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
+
+与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
+
+听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说
