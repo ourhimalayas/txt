@@ -2,38 +2,132 @@
 ---
 
 
-## 中共国打击加密货币，迫切希望推出数字人民币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1560233/)
+## CCP会继续放毒—热毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1560246/)
 
-据《零对冲》作者: 泰勒·杜登(Tyler Durden)，2021年9月26日报道:
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-39.jpg)图片来源：getty images
-作者：埃里克·彼得斯(Eric Peters), 一河资产(One River Asset)管理首席信息官。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/snapshot-24.jpg)https://gtv.org/video/id=61520219d2e2b817486ec9f3
+经济倒了
+La economía caerá
 
-首席信息官说:“当你和我成长的时候，共产主义覆盖了世界的一半，全球市场和国际业务系统提供了释放扼杀人类潜力的钥匙。当我们开始从事这项业务时，并没有大量人力资本来移动成堆的纸张, 但那些日子已经过去了。”
+国际上也完了
+Internacionalmente también
 
-社会的方方面面都已经被金融化、利益化了。这种结构会导致现任者腐败、脆弱、不稳定。“市场和经济不再是世界问题的答案。这并不是说共产主义是解决方案。但很明显，我们正在进入一个时代，在一个世纪里，你会看到的由政治占主导地位的时代。”
+人们要捣乱的时候
+Cuando la gente quiere crear disturbios
 
-**总体情况：**
+他最大的威胁不是别的
+Su mayor amenaza no es otra cosa
 
-中国人民银行宣称，“与虚拟货币相关的商业活动是非法的金融活动。”它迫切希望可确保成功推出其中心化的数字人民币。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片3-15.jpg)图片来源：《零对冲》
-“政府将坚决打击虚拟货币的投机、相关金融活动和不当行为，以维护人民的财产安全，以及维护经济、金融和社会秩序。”
+国际上的经济脱钩
+El desacoplamiento económico internacional
 
-北京并未宣布此类数字资产的所有权为非法。他们更喜欢集中的强制性控制和缓慢的窒息。取缔虚拟货币所有权的一个风险是，丧失了虚拟币的公民会永远愤慨。将其公民大规模变成罪犯的国家，是会面临极大的危险的。苏联共产党人将这种转变变成了一种艺术形式。
+国内的老百姓上街
+Los chinos saldrán a las calles
 
-这些都是赌注。中共国央行的数字人民币将为北京提供无与伦比的交易洞察力和金融控制。它还打算将该系统作为美元的替代品出口，通过其新的国际支付系统在中共国开展业务。
+大量的疫苗死亡
+Gran cantidad de muertes debido a las vacunas
 
-但自由市场已经创造了北京统治之外的平行体系。比特币就是其中之一，以太坊是另一个，稳定币也是如此。此类系统旨在满足市场对现有法定货币（例如美元）数字版本的需求。全球 1280 亿美元的稳定币中有 98% 以上与美元挂钩。更令人印象深刻的是，美元稳定币的年交易额超过100万亿。这是私营部门大规模应用区块链技术的惊人成功。数字人民币没有这样的需求 —— 最大的私人人民币稳定币少于5百万(见“我一点也不兴奋”：中国的数字人民币正在变成一个巨大的失败）。
+继续放毒
+Siguen descargando virus
 
-因此，中美面临着截然不同的立场。中共国在数字货币领域的成功取决于控制 —— 数字人民币将被强制使用。美国的成功依赖于监管机构将美元稳定币纳入主流。
+放到全世界
+Hacia todo el mundo
 
-并且，当他们这样做时，这些技术将受到传统的监督，解锁指数增长。国家将通过市场选择的货币获得利益。毫无疑问，这仍然是美国。
+各旮旯都给你放
+Hasta los rincones más desapercibidos
 
-原文链接：[https://www.zerohedge.com/markets/hedge-fund-cio-chinas-crypto-crackdown-beijing-desperate-ensure-successful-rollout-their](https://www.zerohedge.com/markets/hedge-fund-cio-chinas-crypto-crackdown-beijing-desperate-ensure-successful-rollout-their)
+就让全世界的人类都待在家里
+Para que toda la humanidad se quede en sus hogares
 
-翻译：洛杉矶盘古农场–Freeearth
-校对：洛杉矶盘古农场–明子
-编辑：洛杉矶盘古农场–明子
+而且放的新毒
+Además, el nuevo virus que desacargarán
+
+什么狗屁疫苗根本都不管用, 现在的毒都属于
+Ni siquiera la porquería de vacuna funcionará, ahora el virus pertenece
+
+冠状病毒这一株的
+A la variedad de Coronavirus
+
+我们欧洲的科学家头两天跟我说, 如果共产党疯狂
+Nuestro científico europeo hace dos días me dijo, si el Partido Comunista se vuelve loco
+
+再放的时候就不是这个了
+Cuando descargan de nuevo el veneno
+
+再放毒叫热毒, 记住我今天的话叫热毒
+Se llamará veneno caliente, recuerden lo que dije hoy, es llamado veneno caliente
+
+什么叫热毒啊
+En qué consiste este veneno
+
+就是你放完了(得了病)立马就是七窍出血
+Quiere decir cuando terminen de descargar (ya estás contagiado) inmediatamente, sangras por los siete orificios
+
+结束
+Y finaliza
+
+就是剧毒型的
+Es altamente tóxico
+
+没有什么反应期
+No tiene período de reacción
+
+没有反应期
+No hay etapa de reacción
+
+记住我说的话再有毒的时候
+Recuerden lo que dije, cuando aparece de nuevo el virus
+
+七窍流血
+Sangrarás por los siete orificios
+
+而且死亡率极高
+Además, el porcentaje de muerte es muy alto
+
+大家要记住我今天说的话, 还有一段距离
+Todos recuerden lo que dije hoy, todavía hay algo de distancia
+
+但你要不准备好, 你就完了, 真的坏日子还早着呢
+Pero si no estás preparado, serás acabado, todavía es temprano para la llegada de momentos difíciles
+
+还有一段时间
+Aún queda un período de tiempo
+
+大家务必要小心
+Todos deben tener cuidado
+
+务必做好准备
+Estar preparados
+
+所以说兄弟姊妹们, 不是那么简单的
+Por eso hermanos y hermanas, no es tan fácil
+
+这是为什么我今天特别要跟大家分享的
+Esta es la razón por la cual hoy les quiero compartir especialmente
+
+一定要记住
+Deben recordar
+
+农场要全面的
+La finca debe estar unida en todos los aspectos
+
+团结起来力量
+De manera integral
+
+农场和战友们要紧密的联系
+Los compañeros luchadores de la finca deben mantenerse en contactos
+
+而且我们要做好最坏时刻的到来
+Y debemos estar preparados para la llegada de los peores momentos
+
+原视频日期：09/24/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1441341881896476692?s=24
+视频时间段：0:00-1:48
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

@@ -15,116 +15,116 @@
 
 ---
 
-### [西媒头条 — 第75期](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [DAVID USHER在福克斯谈到武汉病毒实验室](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年9月27日 文贵先生盖特 16](/content/gnews/3/README.md)
+### [2021年9月27日郭先生盖特 — 视频盖特1「9分47秒」](/content/gnews/1/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [班农专访4: 世界银行向中共磕头服软](/content/gnews/4/README.md)
+### [人们在川普集会上高呼：“把他关起来”](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [川普盟友推出GETTR来对抗Twitter](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西媒头条 — 第75期](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DAVID USHER在福克斯谈到武汉病毒实验室](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/5/README.md)
+### [2021年9月27日 文贵先生盖特 16](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [班农专访4: 世界银行向中共磕头服软](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [CCP会继续放毒—热毒](/content/gnews/6/README.md)
+### [CCP会继续放毒—热毒](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [强积金变年金的戏法](/content/gnews/7/README.md)
+### [强积金变年金的戏法](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/8/README.md)
+### [墙内要闻汇编](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国打击加密货币，迫切希望推出数字人民币](/content/gnews/9/README.md)
+### [中共国打击加密货币，迫切希望推出数字人民币](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [200多位企业主就疫苗强制令向纽约市市长提起集体诉讼](/content/gnews/10/README.md)
+### [200多位企业主就疫苗强制令向纽约市市长提起集体诉讼](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美食也被剥夺](/content/gnews/11/README.md)
+### [美食也被剥夺](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数据显示伊维菌素有效预防和治疗中共病毒](/content/gnews/12/README.md)
+### [数据显示伊维菌素有效预防和治疗中共病毒](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共警察全球执法，中国共产党意图改造世界](/content/gnews/13/README.md)
+### [中共警察全球执法，中国共产党意图改造世界](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西方三大数据库显示 疫苗至少已致40666人死亡](/content/gnews/14/README.md)
+### [西方三大数据库显示 疫苗至少已致40666人死亡](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大感到惊慌，中共国贷款机构开始断贷](/content/gnews/15/README.md)
+### [恒大感到惊慌，中共国贷款机构开始断贷](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [好日子已过去，卖掉房子带着解药到乡下活着](/content/gnews/16/README.md)
+### [好日子已过去，卖掉房子带着解药到乡下活着](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共数字人民币重在场景落地](/content/gnews/17/README.md)
+### [中共数字人民币重在场景落地](/content/gnews/20/README.md)
  ` 儒为`
 
-### [两党议员共同提案立法监管加密货币的开采](/content/gnews/18/README.md)
+### [两党议员共同提案立法监管加密货币的开采](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [如果还认为你只是与病毒做斗争，您将成为受害者](/content/gnews/19/README.md)
+### [如果还认为你只是与病毒做斗争，您将成为受害者](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [G时评：原创时政小段子（停电了）](/content/gnews/20/README.md)
+### [G时评：原创时政小段子（停电了）](/content/gnews/23/README.md)
  ` GISELLE`
 
-### [参议员科顿警告说中共正在与美国进行冷战，催促拜登做出回应](/content/gnews/21/README.md)
+### [参议员科顿警告说中共正在与美国进行冷战，催促拜登做出回应](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/22/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/25/README.md)
  ` wenwu`
 
-### [WI警方：（未打疫苗）少年宣布战胜中共病毒可入狱](/content/gnews/23/README.md)
+### [WI警方：（未打疫苗）少年宣布战胜中共病毒可入狱](/content/gnews/26/README.md)
  ` wenwu`
 
-### [罗伯特·马龙公开COVID峰会医师声明并邀请医护人员加入决议](/content/gnews/24/README.md)
+### [罗伯特·马龙公开COVID峰会医师声明并邀请医护人员加入决议](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [郭文贵先生9月27日盖特视频（9：47秒）全文字版](/content/gnews/25/README.md)
+### [郭文贵先生9月27日盖特视频（9：47秒）全文字版](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/26/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/29/README.md)
  ` wenwu`
 
-### [日本医生对地塞米松服用方法的重要提醒](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年9月27日 文贵先生盖特 15](/content/gnews/28/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [币圈新闻动态：阿里巴巴周一表示，10月8日起将停止在其平台上销售挖矿设备](/content/gnews/29/README.md)
+### [币圈新闻动态：阿里巴巴周一表示，10月8日起将停止在其平台上销售挖矿设备](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国限电险出人命 工厂停电致煤气泄漏23人中毒](/content/gnews/30/README.md)
+### [中共国限电险出人命 工厂停电致煤气泄漏23人中毒](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共统治下灾难迭起，病毒疫苗未停又电荒](/content/gnews/31/README.md)
+### [中共统治下灾难迭起，病毒疫苗未停又电荒](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [西方退休/养老基金投资中概股总额75.56亿美元，阿里巴巴占41%](/content/gnews/32/README.md)
+### [每日快报：佛罗里达州长下令调查Facebook涉嫌违反选举法的行为](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [银河快讯：日本将中共，俄罗斯和朝鲜列为网络威胁；卫星群防御导弹](/content/gnews/33/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [每日快报：佛罗里达州长下令调查Facebook涉嫌违反选举法的行为](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国的安全是保安不带AK47还是网播被边防特警保护出来的](/content/gnews/35/README.md)
+### [中共国的安全是保安不带AK47还是网播被边防特警保护出来的](/content/gnews/34/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日本将中俄朝三国视为网络安全威胁](/content/gnews/36/README.md)
+### [日本将中俄朝三国视为网络安全威胁](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共病毒疫苗抑制了对控制癌症的受体（视频）](/content/gnews/37/README.md)
+### [中共病毒疫苗抑制了对控制癌症的受体（视频）](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
+
+### [日本从10月1日开始解除“紧急状态”](/content/gnews/37/README.md)
+ ` 首尔天池农场`
 
 ### [郭文贵精品视频-从华为孟晚舟事件纵览中共在世界的称霸行为](/content/gnews/38/README.md)
  ` 澳喜农场`
