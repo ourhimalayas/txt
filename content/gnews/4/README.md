@@ -2,60 +2,41 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1560801/)
+## 佛罗里达州长宣布对脸书涉嫌干预选举进行调查
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1560905/)
 
-- **编译：西班牙喜悦农场–wenwu**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/F-3.jpg)npr.org
+《新闻纵横》（news max）9月27日发表文章称，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）已指示州官员，对脸书（Facebook）涉嫌干扰选举进行调查，这是州长周一（9月27日）作出的宣布。 【1】
 
-您若想了解全文报导内容，请点击标题链接
+文章说，州长的行动是在一份报告之后做出的，该报告称，脸书可能通过按照社交平台自身的规则删除和限制精英用户的手段，影响了该州和许多地方的选举。
 
-（爱惜生命 远离疫苗）
+德桑蒂斯在办公室发布的一份声明中说：“大型科技公司的审查机构长期以来一直在不一致地执行自己的规则，这已经不是什么秘密了，如果这一新的报告属实，脸书涉嫌操控了本州和许多地方的选举，从而违反了佛罗里达州的法律。”
 
-**1. [世卫组织调查人员返回中共国寻找新冠病毒起源](https://www.nydailynews.com/news/politics/us-elections-government/ny-world-health-organizaton-covid-investigation-china-20210926-eafzmqrw2vfghhieujzyq7dwga-story.html)**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip153.png)
-据《每日新闻》2021年9月26日电，世卫组织正在组建一个由约 20 名科学家组成的团队，他们将负责在中共国和其他地方寻找新证据；该小组将检查该病毒是否来自实验室，这一理论已被中国愤怒地拒绝。
+州长指示州务卿劳雷尔·李（Laurel Lee）负责佛罗里达州的调查。“佛罗里达人应该知道这个企业巨头对我们的选举产生了多大的影响。” 他说，“这就是为什么我指示李部长使用一切法律手段来揭露违反佛罗里达选举法的行为。”
 
-2020 年 12 月，世卫组织调查人员开始访问中国武汉，那里是已知的第一次病毒爆发地；2021年3月的CCP—WHO联合溯源报告声称，从中国科学家那里得到的信息不足以回答有关中共病毒起源的关键问题；8 月，美国情报机构发布了一份单独的报告，称他们也无法对中共病毒的起源做出明确的结论。
+“脸书秘密操纵选举的想法是对我们共和国基本原则的侮辱，我们人民有权选择我们的代表，不管硅谷是否同意。”
 
-**2. [数十名马萨诸塞州士兵因疫苗授权而辞职](https://thehill.com/homenews/state-watch/574111-union-dozens-of-massachusetts-troopers-resigning-over-vaccine-mandate?rl=1)**
+《华尔街日报》9月13日报道称，其获得的内部文件显示，脸书对其用户采用了双重标准。《华尔街日报》称，部分用户可以自由地无视平台自身的社区标准而不会受到强制执行的威胁，其他用户则不行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T175258.179.png)
+德桑蒂斯的办公室表示，如果《华尔街日报》的报告是准确的，脸书已经创造了一个特权阶层的发言人，并授权他们“操纵选举而不受到惩罚”。
 
-据《国会山》2021年9月27日电，8 月，马萨诸塞州州长 Charlie Baker (R) 发布了一项[行政命令，](https://www.mass.gov/news/baker-polito-administration-announces-covid-19-vaccine-requirement-for-executive-department-employees)要求所有行政部门员工在 10 月 17 日之前出示中共病毒（COVID-19）疫苗接种证明；州警察协会主席迈克尔·切尔文（Michael Cherven）周一（27日）[在一份声明中](https://msptrooper.org/state-police-assoc-of-massachusetts-spam-statement-on-judges-ruling-and-governor-bakers-vaccine-mandate/)宣布了，马萨诸塞州的数十名州警因该州的 COVID-19 疫苗接种规定而辞职。
+“更令人不安的是，脸书‘白名单’上的这些精英用户据称是被这家科技巨头秘密挑选出来的。”发布会上称，“白名单的甄选过程、范围和施加影响，对公众是保密的，只有脸书知道，如果这是真的，这一过程可能会让现任当选政客在州和地方选举中战胜对手。”
 
-上周，一名法官裁定，尽管马萨诸塞州警察协会提出要求，疫苗授权不会推迟；州警察协会主席迈克尔·切尔文（Michael Cherven）表示，曾试图说服想辞职的警员接受疫苗，而那些辞职的数十名警员的态度很坚决，这是州警察协会为他们所必须维护的权利；工会的律师告诉[当地波士顿 CBS 附属电台](https://boston.cbslocal.com/2021/09/27/massachusetts-state-police-covid-vaccine-mandate-resignations/)，大约 20% 的州警察雇员没有接种疫苗。
+（全文完）
 
-**3. [商业团体希望在拜登的疫苗规则的决策中占有一席之地](https://thehill.com/business-a-lobbying/business-a-lobbying/574170-business-groups-want-seat-at-the-table-on-biden)**
+德桑蒂斯州长就涉嫌干扰操控选举行为，开启了对科技巨头诉讼的先河。的确，象征美国国本的选举受到了严重的挑战，就像该州长所说的那样，“秘密操纵选举的想法是对我们共和国基本原则的侮辱”。岂止是侮辱？根本是一种颠覆国家的罪恶行径。本质上与邪恶的中共没有区别，通过不择手段的阴谋，号称得到了民意，获得了执政地位，继续通过欺骗走向独裁。如果不及时制止（其实已经很晚了，2020大选就是被操控的，令人悲哀的是，精英层有多少人意识到了？还有多少人意识到却在帮助掩盖），美国的明天就是中共国的今日。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T175452.406.png)
+亚利桑那州的“国家审计”也是在维护美国国本，看看几天来美国的反应，主流媒体歪曲事实的报道【2】，川普总统“声嘶力竭”的声明【3】，而国会山的立法者有几个在响应亚利桑州的“国家审计”？应验了文贵先生的话语，“不打疼你们，你们意识不到什么叫邪恶”，还在观望，还在疑惑？
 
-据《国会山》2021年9月27日电，美国政府拒绝就疫苗授权同商业团体进行任何实质性对话：负责执行疫苗或测试要求的职业安全与健康管理局（OSHA）不接受与商业团体或工会的会议，这些团体或工会正在寻求影响这一进程或收集有关这一规则的更多信息。；全国零售业联合会说，它提出将OSHA官员与那些已经成功实施了自己的疫苗要求的公司（如沃尔玛和迪士尼）的高管联系起来，但遭到了拒绝。
+美国正在犯常识性错误，还好有一批爱国者在抗争、在奋斗，德桑蒂斯州长便是其中之一。正是有了这样的力量，才能让人看到美国的希望。
 
-拜登政府本月早些时候宣布了不遵守疫苗全面强制令的公司，可能面临每项违规行为高达1.4万美元的罚款。许多公司已经在跟踪工作场所的疫苗接种情况，但对未接种疫苗的工人实施COVID-19测试要求的经验较少。大多数企业都在等待购买检测用品，却不知道谁来买单，也不知道什么样的检测才是足够的。美国疾病控制和预防中心在本月早些时候警告说，快速检测短缺。
+有关链接：
 
-大约四分之一的美国成年人没有接种过这种致命病毒的疫苗。根据华盛顿邮报-ABC 新闻本月发布的一项民意调查，近三分之二未接种疫苗的员工[宁愿辞职也不愿](https://thehill.com/changing-america/well-being/prevention-cures/571084-whopping-70-percent-of-unvaccinated-americans)接种疫苗；美国企业不想在全国劳动力短缺的情况下失去任何工人，其中一千万个工作岗位仍未填补；美国疫苗接种率低的地区的公司特别担心一旦规则生效，员工就会离开。
+【1】[https://www.newsmax.com/politics/gov-ron-desantis-florida-facebook-election/2021/09/27/id/1038123/](https://www.newsmax.com/politics/gov-ron-desantis-florida-facebook-election/2021/09/27/id/1038123/)
 
-**4. [CDC 主任：未接种疫苗的美国人并不完全相同](https://finance.yahoo.com/news/unvaccinated-americans-are-not-all-the-same-cdc-director-141253785.html)**
+【2】[https://gnews.org/zh-hans/1553250/](https://gnews.org/zh-hans/1553250/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T175732.454.png)
-
-据《雅虎财经》2021年9月28日电，说服未接种疫苗的人，并针对他们犹豫或拒绝的原因，并非易事。CDC 主任 Rochelle Walensky 博士告诉雅虎财经，CDC正在努力找出未接种疫苗的问题所在。
-
-CDC主任表示：“我们不能将所有没有接种疫苗的人都定性为相同；我们知道……人们不会卷起袖子来，我们将不得不深入到社区层面，这就是我们每天继续做的艰苦工作；调查研究表明，人们没有接种疫苗的原因各不相同。我们必须一次解决这些人的原因；我认为每个人都有潜在的独特原因来解释为什么他或她没有接种疫苗。这就是我们需要做的艰苦工作。”（美国疫苗文革开始了）
-
-**5. [凯里·欧文（Kyrie Irving）或因疫苗授权问题而拒绝参加篮网（NBA）主场比赛](https://www.rollingstone.com/culture/culture-news/brooklyn-nets-kyrie-irving-vaccination-kevin-durant-james-harden-1232827/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T175852.663.png)
-
-据《滚石杂志》2021年9月27日电，鉴于纽约市要求职业运动员在室内比赛时接种疫苗，[凯里·欧文](https://www.rollingstone.com/t/kyrie-irving/)周一拒绝回答有关他今年是否会参加[布鲁克林篮网队](https://www.rollingstone.com/t/brooklyn-nets/)主场比赛的问题。“我想把所有这些都保密，”他说。“请尊重我的隐私，下一个问题。”
-
-欧文正在一个黑暗的房间里通过[视频](https://twitter.com/SNYNets/status/1442523716122857482?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1442523716122857482%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.rollingstone.com/culture/culture-news/brooklyn-nets-kyrie-irving-vaccination-kevin-durant-james-harden-1232827/)回答问题，因为他无法参加在巴克莱中心举行的网队媒体日，[据报道](https://www.espn.com/nba/story/_/id/32291549/sources-brooklyn-nets-star-kyrie-irving-miss-team-media-day-due-nyc-covid-19-proof-vaccine-requirement)是因为纽约市的疫苗接种证明要求；滚石杂志透露，工会执行委员会副总裁欧文一直在关注和喜欢一位阴谋论者在社交媒体上发布的帖子，他声称疫苗是将黑人与主计算机连接起来的撒旦计划的一部分，并且错误信息活动已蔓延到多个球队。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
+【3】[https://gnews.org/zh-hans/1555292/](https://gnews.org/zh-hans/1555292/)

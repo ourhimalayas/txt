@@ -2,9 +2,9 @@
 ---
 
 
-## 杰森·米勒宣传Gettr遇到许多左派制造麻烦压制言论自由
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1560397/)
+## 一女投资人在会议上对许家印破口大骂
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1560399/)
 
-9/27/2021 杰森·米勒在世界各地宣传Gettr时，遇到许多左派制造麻烦，因为他们想压制言论自由。
+9/27/2021 一女投资人在会议上对许家印破口大骂。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

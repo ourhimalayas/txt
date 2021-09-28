@@ -2,23 +2,34 @@
 ---
 
 
-## 200多位企业主就疫苗强制令向纽约市市长提起集体诉讼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560228/)
+## 班农专访4: 世界银行向中共磕头服软
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560259/)
 
-#### 翻译/撰稿：zzballack
+[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=2560)](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=1024)
+**简评：**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-2-1.jpg)图片来源：纽约时报
-《网关专家》（The Gateway Pundit）9月27日报道称，纽约市的企业主们正联合起来发起集体诉讼，反击市政府违宪的疫苗强制令，以结束疫苗暴政。
+川普时期任命的世界银行行长与其他一些高层领导人曾经向经济学家施压，要求提高中共国2018年的排名。川普身边的许多金融人士没有真正地执行川普的计划来对抗中共，相反，他们与中共勾结，任由中共从沙特筹集资金并干涉世界银行的运行。他们热衷于中共的合作。人们既希望与川普总统和他的计划来抗衡中共。
 
-纽约市市长白思豪（Bill de Blasio）8月17日签署了第225号紧急行政命令，规定未出示疫苗接种证明和印有与疫苗接种证明相同识别信息的身份证明的顾客、全职或兼职员工、实习生、义工或承包商不得进入室内餐馆、音乐会厅、体育场馆、动物园以及室内健身房等场所。任何伪造疫苗护照的人将面临7年监禁。
+GTV视频链接：[英喜每周采访班农先生0922-Q4：世界银行屈服于中共，无时无刻不在向中共磕头](https://gtv.org/video/id=61511810d2e2b817486e7bf5)
 
-由200多名企业主在2020年3月创建的“独立餐厅业主协会救援组织”（The Independent Restaurant Owners Association Rescue,IROAR），正在就225号行政令起诉白思豪和纽约市，其律师认为这将是在全国范围内结束中共病毒暴政的第一张多米诺骨牌。
 
-意大利餐馆Max’s Es-Ca的合伙人阿利森·马切塞（Alison Marchese）接受采访时说：“我们从一开始就在与州长和市长抗争，让我们重新开业，让顾客回到这里。疫苗强制令对我们来说有些过了。我们不想因顾客没有接种证明而拒绝他们。该命令对我们和顾客来说是一个双输的结果。如果我们不检查接种证明，人们就会对我们生气，好像我们不关心顾客的福祉。如果我们这样做，他们就会给我们贴上共产主义者的标签。”
 
-马切塞的商业伙伴马克斯·卡利奇奥（Max Calicchio）解释说，这项“噩梦般”的法律使得私营行业和该市仍未接种疫苗的900万居民相互敌对。餐馆老板被迫要求顾客戴口罩，并拒绝那些不出示证明的人，否则就只能破产。在熬过了封城的艰难时期后，卡利奇奥担心小企业恐怕无法在这场最新的疫苗暴政中存活。“大流行期间，我们一直试图遵守各种防疫限令，这给我们的经营带来了巨大压力，营收额剧减。我们正在寻找一种可以不遵守规定又能避免罚款的方法。但我们的律师建议我们尽量遵守规定，因为如果我们不遵守规定，就会损害我们的诉讼案。顾客们抱怨不能在这吃饭，现在我们处境艰难，能不倒闭就知足了。”
+**视频字幕：**
 
-卡利奇奥和马切塞正在恳求纽约市的所有餐馆老板加入这起诉讼，在为时已晚之前和他们一起为了恢复自由而抗争。马切塞说：“我们肯定需要支持和帮助。我们肯定乐意看到餐馆业主和其他人加入到我们的诉讼之中。”代表IROAR的企业诉讼律师隆·贝鲁蒂（Ron Berrutti）认为，如果有更多的原告加入这起诉讼并支持IROAR的法律辩护基金，那么胜诉的可能性就越大。“有必要支付法律费用，也有必要保护这些人免受将要遭受的惩罚。这确实是一个全国性的案件。我们希望它能成为第一张多米诺骨牌，终结这个州和这个国家的中共病毒暴政。”
+**主持人**：世界银行取消了其旗舰出版物《营商环境报告》。经调查发现，包括时任世界银行行长克里斯塔琳娜·格奥尔基耶娃在内的一些高层领导人, 曾向经济学家施压，要求其提高中国2018年的排名。班农先生，你对这个发现感到惊讶吗？
 
-新闻来源：[Over 200 Business Owners File Federal Class Action Lawsuit Againt NYC Mayor: ‘This Will Be The First Domino’ To #EndCovidTyranny Nationwide](https://www.thegatewaypundit.com/2021/09/200-business-owners-file-federal-class-action-lawsuit-againt-nyc-mayor-will-first-domino-endcovidtyranny-nationwide/)
+**班农先生**：我对此一点也不感到惊讶。 世界银行屈服于中共，无时无刻不在向中共磕头。我很惊讶世界银行现任行长是由川普总统任命的。我认识他，他没做任何事。他谈论的只是他们如何与中国共产党与全球主义者合作。他基本什么事情也没做。事实上，中共国仍然收买第三世界发展中国家。
+
+令人发指的是他们让中共这个犯罪组织与世界银行勾结。他们干涉世界银行运作，却没人站出来反对。川普总统任命世行现任行长, 首先想治理这种中共的滥用行为，但却没有发生。人们寄希望于川普总统和川普总统计划来对抗中共。瞧瞧财政部长姆努钦，对中共国非常软弱。
+
+对于中共国主要从沙特阿拉伯海湾酋长国筹集的25亿美元。中共通过那里筹集了很多钱，但他们放入了基金。所以川普总统身边有许多金融人士，没有执行川普的计划，尤其没有真正对抗中共。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕:雨中漫步 | 听写：云岭 | 翻译：Dasy* *| PR：Roberts* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

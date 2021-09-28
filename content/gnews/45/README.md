@@ -2,88 +2,63 @@
 ---
 
 
-## 如果还认为你只是与病毒做斗争，您将成为受害者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560100/)
+## 《疫苗死亡报告》：人类基因被永久改变
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560172/)
 
-- 编译： Jenny Ball
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：**zzballack**
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+卡莉·玛德杰（Carrie Madej）博士研究疫苗和超人类主义长达20年。她在由停止世界控制（Stop World Control）组织制作的纪录片《为人类而战》（The Battle For Humanity）中向人类发出警告说，这些中共病毒疫苗可能会永久地改变人类 DNA，并可能产生灾难性的结果。世界各地的通常已被疫苗行业收买的“事实核查”人员跳出来否认这一说法，并将其称为假新闻。脸书也制定了政策，审查所有警告这种实验性基因疗法可能会改变人类基因组的声音。直到一名脸书员工录制并公布了与脸书首席执行官马克·扎克伯格（Mark Zuckerberg）的内部会议视频，扎克伯格在视频中告诉员工说，这种疫苗确实改变了人类的DNA！他的原话是：
 
+**“我们真的不知道疫苗的长期副作用是什么。疫苗实质上修改了人体的DNA和RNA，以便直接在人的DNA和RNA上进行编码，以达到能够产生那些抗体的能力。尚不清楚这是否会导致其他突变或其他风险。”**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-417.png)
+参考资料：https://rumble.com/vmh8gx-covid-injections-indeed-change-the-human-dna.html
 
-李·梅里特(Lee Merritt)博士在[*Brighteon.TV*](https://brighteon.tv/)的“让我们谈谈美国”节目中告诉艾伦·凯斯(Alan Keyes)，人们需要对世界上正在发生的事情的形势醒悟。
+**一个专利超人类不再是拥有人权的人**
 
-“我们需要认清形势。这是一场战争，不仅仅是一场病毒，”梅里特说。“如果你还认为自己只是在与病毒作斗争，[那么你就会成为受害者](https://www.brighteon.com/afdc7233-83df-4338-af21-3191b0663499)”。
+钦达·布兰多莉诺（Chinda Brandolino）博士是一位拉丁美洲的医生，她一直在大声疾呼一旦某人的基因组被改变，那么他就不再被认为是一个原始的人，而是变成了一个超人类，因此失去了人权。此外，她解释说，被改变的DNA和RNA可以被授予专利，使得这个转基因人成了专利持有人的财产。其中的含义非常令人震惊。
 
-战争很久以前就在酝酿了
+**参考资料：**https://rumble.com/vmk9yn-alarm-humans-with-modified-dna-have-no-rights-and-are-patented.html
 
-著名外科医生梅里特说，他们在美国医师和外科医生协会 (AAPS) 的前辈们很久以前就看到了这一点。1943 年，许多内科医生和外科医生与美国医学会 (AMA) 分道扬镳，成立了 AAPS，因为AMA与政府结盟。
+**危险的毒素：疫苗中的氧化石墨烯改变了电磁场**
 
-“AAPS 说，不是因为我们需要让政府远离药物。您希望药物在您和患者之间——而不是在您、政府官僚和患者之间。而这正是已经发生的摸式，”梅里特说。
+世界知名的生物物理学家安德烈亚斯·卡尔克（Andreas Kalcker）开发了一种能有效治疗中共病毒的方法，它被23个国家的5000多名医生使用。大流行开始时，他的包含治疗级二氧化氯的治疗方案将玻利维亚的日死亡率从每天100人降至几乎为零。该方法被几个拉丁美洲国家的警察、军队和政客使用。这位生物物理学家还发现，这些疫苗含有大量的氧化石墨烯（含量高达95%）。他警告说，被注射入人体的氧化石墨烯**正在改变疫苗接种者的电磁场。**
 
-“我们不再看到医生向患者宣誓，并为患者做最好的事情。他们正在向 CDC [疾病控制和预防中心] 以及 NIH [国立卫生研究院] 和 CDC 指南宣誓，这是由金钱驱动的。 现在事情就是这样。”
+“我们所关注的是氧化石墨烯会产生什么副作用。在医学上没有这方面的描述，但在我的领域（生物物理学）上有描述。会发生什么？身体需要它的分子带电功能（electromolecular capabilities）正常运转。心脏跳动是因为有一个磁场，该磁场创造了用于泵送和其他用途的电力。**石墨烯正在完全改变我们的电磁场，这是以前从未发生过的。**我们观察到“机体内”的一些东西正发生急剧变化。我们一直在观看大量的人们在接种疫苗后死亡的视频。你看到接种者出现了痉挛。例如，这些痉挛有非常特定的频率，并且在各种各样的痉挛中它们都是一样的。这些痉挛清楚地表明人类的电磁场受到了破坏。“
 
-AAPS 和 AMA 之间的差异，在武汉冠状病毒 (COVID-19) 大流行开始时最为明显。
+罗伯特·杨（Robert Young）博士进一步证实了中共病毒疫苗中存在氧化石墨烯、铝、脂质纳米颗粒（LNP）外壳、聚乙二醇（PEG）和寄生虫等有毒物质。科学家俱乐部也发布了一份报告，其中的大量电子显微照片证明了疫苗中存在纳米粒子。
 
-**AMA ****为联邦机构服务**
+“罗伯特·杨博士及其科学团队在研究中利用电子（electron）显微镜、相衬（phase）显微镜、暗视野（dark field）显微镜、明视野（bright field）显微镜和其他类型的显微镜来观察疫苗中究竟含有什么物质。**其发现结果证实了拉昆塔科伦纳（La Quinta Columna）研究人员的发现：疫苗中存在具有磁毒性、细胞毒性和基因毒性作用的有毒纳米金属物质，以及已被确认的对生命构成威胁的寄生虫。**此外，在2008年，斯坦福大学的戴宏杰及其同事发现了氧化石墨烯。”
 
-去年 4 月，AMA 主席帕特里斯·哈里斯（Patrice Harris）博士告诉 CNN 的沃尔夫·布利泽（ Wolf Blitzer），她不会给 COVID-19 患者开羟氯喹和阿奇霉素。（相关：[Stew Peters 和Bryan Ardis 博士猛烈抨击 AMA 的 Covid 宣传语言 。](https://www.naturalnews.com/2021-09-12-stew-peters-bryan-ardis-slam-ama-propaganda-language-police-instructions.html)）
+**参考资料：**
+1: https://www.bitchute.com/video/hy0MxQK4uQlR/
+2: drrobertyoung.com/post/science-team-reveals-graphene-aluminum-lnp-capsids-peg-parasites-in-4-cov-vaccines
+3: drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines
+4: https://www.stopworldcontrol.com/downloads/en/vaccines/nanotech-vaccines.pdf
 
-哈里斯当时说，这将是“不恰当的处方，因为 FDA尚未批准这种新病毒的药物”。 “它可能会产生负面影响，包括死亡。此外，我们需要对患有狼疮和其他疾病的患者保持供应。对于 COVID，这是未经证实的。在这一点上，我们只是没有数据。”
+**血液的急剧变化：显微照片揭示了接种者的血液发生变化**
 
-**AAPS****为患者服务**
+罗伯特·杨博士还发现，在接种了mRNA疫苗之后，接种者的血液发生了巨大变化。下面这张图片显示了红细胞的正常健康状态，其颜色均匀、形状均匀、大小均匀。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-133.jpg)
+第二张显微照片是在相衬显微镜（Phase Contrast Microscopy）下拍摄的，展示了接种mRNA疫苗24小时后的人体血液。血液中含有被称为海因小体（Heinz Body）的结晶红细胞，红细胞和白细胞进行生物转化，血液中还发现了氧化石墨烯晶体中心的大型共质体（symplast），照片右上角是乳清酸晶体（orotic acid crystals）。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-71.jpg)
+在杨博士的网站上可以找到更多的显微照片，人们还可以看到疫苗中存在氧化石墨烯的证据：https://www.drrobertyoung.com/post/transmission-electron-microscopy-reveals-graphene-oxide-in-cov-19-vaccines
 
-在 CNN 采访哈里斯后不久，AAPS 发表了以下声明。
+一个德国研究小组的发现非常令人不安：当他们把疫苗瓶放在一盏灯下，将其加热到大约30摄氏度时，他们拍摄记录下了疫苗内复杂的晶体正在形成！请看: https://www.youtube.com/watch?v=s8e06KfDWMM
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-53.jpg)
+中共病毒疫苗的真相甚至远不止这些。在Bitchute或Rumble上搜索后可以发现更多关于疫苗或接种者血液的视频。由此发现的东西真是让人毛骨悚然：疫苗中有活的生物体，红血球堵塞在一起，各种危险的毒素，正在“执行神秘任务”的晶体，被注射进血液的纳米机器人扩散到大脑和全身所有器官，自组装纳米颗粒开始在血液中形成不同的结构等等。疫苗制造商没有对外公开上述任何一种情况，但由于他们的所有疫苗似乎都含有相同种类的高危险物质，很明显他们共同致力于一个不可告人的邪恶目的。
 
-“氯喹 (CQ) 和羟氯喹 (HCQ) 已获得 FDA 批准约 70 年，并已在全球范围内广泛安全地用于治疗疟疾和其他疾病。获得新适应症的批准非常昂贵，通常需要数年时间。 虽然药物不能用于“标签外”适应症，但它们可能会被开处方，而且可能五分之一的处方是标签外的。
+辉瑞疫苗中的氧化石墨烯纳米自组装技术：
+https://everydayconcerned.net/2021/08/15/self-assembling-graphene-oxide-nanotech-now-found-also-in-pfizer-vaccine-german-video-reveals-self-assembling-specks-and-crystalline-networks-forming/
 
-**希波克拉底誓言规定，医生有责任“根据我的能力和判断开处方”**。
+莫德纳疫苗中的纳米自组装技术
+https://everydayconcerned.net/2021/08/15/self-assembling-graphene-oxide-nanotech-now-found-also-in-pfizer-vaccine-german-video-reveals-self-assembling-specks-and-crystalline-networks-forming/
 
-“到目前为止，数据显示出成功的结果，即使在一些濒临死亡的患者中也有作用。当早期联合使用HCQ 与锌和普通抗生素阿奇霉素时，治疗结果似乎是最好的。根据我们定期更新的表格，来自许多国家的大量数据表明，多达 98% 的患者通过这种治疗得到改善，而且风险很小。
+**致命的毒素**
 
-“对于这种新型疾病，没有 FDA 批准的预防措施或疗法。[道德和人道的行动，是让医生开出有科学依据和有利当前经验的补救措施](https://www.prnewswire.com/news-releases/ama-prefers-death-to-treating-without-data-states-the-association-of-american-physicians-and-surgeons-aaps-301038354.html)。这些包括 HCQ 以及高剂量静脉注射维生素 C。**替代方案就是拒绝患者获得最佳的生存机会**。
+世界知名科学家的研究显示，中共病毒疫苗中存在剧毒物质，它们改变了人体的电磁场，扰乱了人体的正常功能。疫苗还使人体血液发生了急剧变化，这带来了更严重的健康风险。一些疫苗有纳米自组装技术，某些疫苗内正在形成复杂晶体。最不可思议的是，人类的基因被永久性修改，疫苗接种者成了超人类，他们不再被认为是原始人类，他们成了那些拥有DNA修改专利的人的财产。
 
-“FDA 官僚机构推迟了测试，并阻碍了防护装备的提供。像 AMA、州长和医疗和药学委员会这样的专业协会，不应该禁止长期接受的做法，即为新发现的用途开出 FDA 批准的药物。**这种对医学实践的前所未有的干扰，可能导致数千人不必要的死亡**，**并延迟对致命大流行的控制。****”**
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
 
-该声明符合该组织的座右铭：Omnia Pro Aegroto，意思是“一切为了患者”。AAPS 基本上指责 AMA， 宁愿人们死亡也不愿在未经联邦授权的情况下，用某些药物对他们进行治疗。
-
-**PCR ****测试证明****COVID-19 ****不是真正的敌人**
-
-梅里特引用聚合酶链反应 (PCR) 测试作为病毒不是真正敌人的证据。（[相关：FDA 文件承认“**Covid”PCR 测试，是在没有用于测试校准的隔离Covid 样本的情况下开发的，实际上承认它正在测试其他东西。**](https://www.naturalnews.com/2021-08-01-fda-covid-pcr-test-fraud.html)）
-
-“如果您阅读手册，它会准确地告诉您如何进行测试，”梅里特说。“循环 20-30 次。 如果超过 30 次，就会开始出现误报。如果超过 35 次，则基本没有意义。这就像一个坏掉的时钟，每天走对两次。”
-
-然而，全世界所有的实验室平均都在做 45 个周期。梅里特指出，这些实验室都是由知道如何进行测试和培训的员工经营。
-
-“怎么操作的？ 他们都没有犯过循环不足并得到假阴性的错误。一切都朝着同一个方向发展，”梅里特说。“**过度循环测试没有真正的好处，就是吓唬人类**进入下一步，让人们相信外面有一种可怕的疾病，尽管有封锁，但它仍然如此猖獗。”
-
-**敌人以儿童为目标**
-
-梅里特警告说，敌人正在瞄准孩子们，所以，现在是站出来反对他们的最佳时机。
-
-“我有儿子，我想给他们一个比这更美好的世界。这不是关于我们——而是关于我们的孩子。他们正在瞄准我们的孩子，有很多方法可以证明这一点，”梅里特说。
-
-现在进行心理操纵已经有一段时间，孩子们肯定会受到最大的影响。该操作称为掩码授权。“他们并不真正关心科学，”梅里特说。
-
-她告诉凯斯，传统上，面具是戴在奴隶和邪教追随者身上的。**“这是一个邪教象征，‘我会安静，我会服从，我会屈服，我会变成你想让我成为的任何人。’这就是面具的邪教象征意义，**”梅里特解释道。
-
-口罩对儿童尤其有害。随着社会疏远，长时间戴口罩可能会导致年轻一代的创伤和发育迟缓。
-
-“他们正在以我们特别独特的人类方式破坏我们的基本人性，将我们与人类同胞分开。你把人性拿走了，我们就不能正确发展，我们不会成为快乐的人，”梅里特说。
-
-[点击这里](https://www.brighteon.com/afdc7233-83df-4338-af21-3191b0663499)：观看 9 月 21 日这期的“让我们谈谈美国”
-
-**评论：**
-
-**文章提醒“人们需要对世界上正在发生的事情有形势醒悟”一语中的。这场中共发起的病毒疫苗生化武器超限战，病毒只是制造恐惧的武器，目的是让人们彻底沦为“我会安静，我会服从，我会屈服，我会变成你想让我成为的任何人。”只有认清这个形势的真相，才能行动起来抗争。换言之，这就是一场正义与邪恶对决的人类生存的终极之战**！
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源 **:** [Brighteon.com](https://www.brighteon.com/afdc7233-83df-4338-af21-3191b0663499)/ [PRNewswire.com](https://www.prnewswire.com/news-releases/ama-prefers-death-to-treating-without-data-states-the-association-of-american-physicians-and-surgeons-aaps-301038354.html)/ [newstarget.com](https://www.newstarget.com/2021-09-27-dr-lee-merritt-covid-is-not-the-real-enemy.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH..jpeg)
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)

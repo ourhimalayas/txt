@@ -2,34 +2,32 @@
 ---
 
 
-## 中共在联合国告状, 质疑英美澳核潜艇协议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560487/)
+## DC每日热点0928
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1560533/)
 
-栏目记者/责任编辑：飞虹
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/09/ED71919B-29D2-41E3-9114-198C38167886-scaled.jpeg)
+道琼斯指数 34769.39 ▼0.29%
+纳斯达克指数 14815.77 ▼1.03%
+WTI纽约原油CFD 75.759 ▲0.41%
+布伦特原油CFD 78.995 ▲0.35%
+美元兑人民币 1USD=6.461RMB
+美元兑港币 1USD=7.783HKD
+国际黄金 1738.34 美元/盎司
+全球CCP病毒感染人数 233,218,214 例
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-9月27日，中共常驻联合国代表张军，在联合国安理会出席核问题讨论会时称“个别核武器国家不能表面上高喊致力于维护国际核不扩散体系，暗地里却协助无核武器国家建造核潜艇。”暗指此前美国、英国和澳大利亚9月初的三边安全协议，按照该协议，美英两国将帮助澳大利亚建造核动力潜艇。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0928-AM-2、4、5.005.jpeg)
-美国五角大楼发言人解释美澳加强防务关系时则说：“中共国在印太地区的攻击性行为，促使整个国际社会都在聚焦该地区，我们将采取行动确保一个自由与开放的印太地区，并最终实现这个愿景。” 其言下之意表明了英美帮助澳洲升级军力，正是对中共威胁的合理反应！
-
-同时美、英、澳三方也都强调，英美帮助澳大利亚建造的潜艇将只是采用核反应堆作为驱动力，并不配备任何核武器，并坚称这项协议旨在维护地区和世界和平。
-(本文仅代表作者观点)
-
-参考链接：[澳英美核潜艇协议刺到痛处 中国到联合国告状](https://www.voachinese.com/a/china-un-aukus-20210928/6248363.html)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1、美国宣布实施一次HAWC高超音速武器飞行测试
+2、北约与北京对话,对发展核武器和军事现代化不透明表达忧虑
+3、美军参谋长联席会议主席米利上将周二将出席参议院听证，接受与中共解放军将领李作成两次通话有关的质询
+4、中共将反对澳英美三方安全协议AUKUS的立场带到了联合国，称建造核潜艇协议将加剧军备竞赛，损害国际核不扩散体系
+5、孟晚舟获释不是中共无条件的胜利，她签字承认了误导全球金融机构的事实，并签署延期起诉协议以解决欺诈指控
+6、白宫: 孟晚舟案纯法律考量，美对中共国与华为政策不变
+7、英国警告公民注意香港引渡条约的风险
+8、巴基斯坦与塔利班讨论阿富汗参加中巴经济走廊问题
+9、英国研究小组指伦敦缺乏仔细中共国策略 需新方向应对北京
+10、世界卫生组织组建新专家组 重启新冠病毒溯源调查
+11、日本制定网络安全战略，首次点名中俄朝为网络空间威胁
+12、传辽宁方大集团巨额注资海航
+13、美国开始拆除电信网络中华为和中兴等中共国设备
+14、瑞士议会要求政府出面与中共国国家“最高政治机构”进行交涉假货问题
+15、亚利桑那审计现5万多问题选票 已提交总检察长

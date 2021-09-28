@@ -2,26 +2,91 @@
 ---
 
 
-## 法官解除接种禁令 纽约市教职工处境艰难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560609/)
+## 9月26日北京的截访与27日河南信访局长李刚的被免
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1560701/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-421.png)
-针对纽约市强制要求教职人员接种新冠疫苗的规定，继第二巡回上诉法院的法官于上周五批准临时禁令后，周一，由三名法官组成的快速审查小组宣布解除了这项禁令。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2_副本-2.png)
+据[新聞看點@MuYangLee\_XWKD](https://twitter.com/MuYangLee_XWKD)于[下午7:00 · 2021年9月27日](https://twitter.com/MuYangLee_XWKD/status/1442443908965830660)发布的推文——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-49.jpeg)
+2020年9月26日，河南開封政府便衣公然在北京永定橋下綁架單身女訪民。
 
-按照纽约市政府的规定，从本周二开始，拒绝接种疫苗的教职人员，要么选择无薪休假一年，要么离职。但鉴于审查小组刚刚做出的决定，目前尚不清楚市政府是否会立即执行。据悉，原告律师已经向最高法院申请司法干预。
 
-法官的这一决定，不仅使学校和学生失去了职员和老师，还因此切断了很多家庭的收入来源，致使他们无法支付房租、水电和其他生活必需品。而在世界经济危机到来之际，这一决定将会对社会造成无法挽回的伤害。
 
-（本文仅代表作者观点）
+> 2020年9月26日，河南開封政府便衣公然在北京永定橋下綁架單身女訪民。 [pic.twitter.com/i9St8UqJU1](https://t.co/i9St8UqJU1)
+> — 新聞看點 (@MuYangLee\_XWKD) [September 27, 2021](https://twitter.com/MuYangLee_XWKD/status/1442443908965830660?ref_src=twsrc%5Etfw)
 
-参考链接: [Update: Federal Judges Say NYC Can Impose Vaccine Mandate on School Employees – Lawyers Representing Teachers to Petition US Supreme Court](Federal%20Judges%20Say%20NYC%20Can%20Impose%20Vaccine%20Mandate%20on%20School%20Employees%20–%20Lawyers%20Representing%20Teachers%20to%20Petition%20US%20Supreme%20Court)
-[Federal judges: NYC can impose vaccine mandate on teachers](https://www.cnbc.com/2021/09/27/federal-judges-nyc-can-impose-vaccine-mandate-on-teachers.html)
-[Judge’s ruling creates cliffhanger for NYC teacher vaccine mandate](https://nypost.com/2021/09/25/nyc-teacher-vaccine-mandate-paused/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：暗黑
-校对/发稿：谐趣园
+视频概要——
+
+截访人员：关！你再录！报警、报警，你现在报，拿过来！拿过来！妈个B的你干啥的！
+
+录视频者：你干嘛的？你干嘛的？你干嘛的？
+
+截访人员：你录我干嘛的？你为啥要录我？
+
+录视频者：我不知道你干啥的。你干什么的？
+
+截访人员：你管呢？
+
+录视频者：我们不能管吗？我们公民，维权嘛，我们。
+
+截访人员：你管吧，你管吧！
+
+录视频者：公民能管吗？
+
+截访人员：你管吧，你管吧！
+
+录视频者：公民能管你吗？
+
+截访人员：你是公民你没有权利管我！
+
+旁观者：报警，报警。
+
+截访人员：现在报！现在报！
+
+录视频者：我给他拍着。
+
+旁观者：你好，在信访办这里有截访的，抓住一个女的，
+
+录视频者：在绑架，在绑架，在实施绑架，在绑架一名妇女。
+
+截访人员：我告诉你诬蔑，我跟你说！
+
+录视频者：永定桥下面，地下通道。大姐你哪里的？
+
+被截访者：我是河南开封的。
+
+录视频者：河南开封的？
+
+被截访者：我是河南开封市\*\*\*\*\*\*\*\*（听不清）
+
+截访人员二：干嘛呢？干嘛这是？（想要抢被拍摄者的手机）
+
+录视频者：干嘛呢？你干嘛的？你在绑架，你在实施绑架知道吗？
+
+截访人员：你赶快走，听见没有？
+
+录视频者：你在绑架，你在违法！我走不走不关你事啊！
+
+截访人员：你赶快关了！听见没有？
+
+录视频者：我就开着，怎么了？给他发群里。
+
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+
+接下来发生什么事情了呢？据[​河南省人民政府關于免去李剛職務的通知](http://www.henan.gov.cn/2021/09-27/2319664.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获.png)
+截访人员像拎小鸡一样绑架上访人员，并且肆无忌惮地威胁拍视频者，这一切就发生在天子脚下，那位被截访的女士接下来会遭遇什么，我们不知道，但是河南省免掉信访局长的职务与这段被截访视频传出来应该是有关系，因为李刚被免职的公文发布日期就在这段截访视频被录的2021年9月26日之后，当然从省政府发布的公文来看，这份公文早在2021年9月18日就成文了，或许这是另一种形式的欲盖弥彰？
+
+省政府的公文里是不会承认李刚的免职与这段截访视频的公开有关，因为即使走了李刚还会再有王刚、张刚做信访局长，都不会改变雇佣黑社会绑架访民的事实，因为在这个社会里，每个访民都是人民政府的敌人，人民政府不怕访民，人民政府雇佣的黑社会更是把访民当猪狗，真正能让这个独裁政权害怕的，恰恰就是媒体的力量。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
