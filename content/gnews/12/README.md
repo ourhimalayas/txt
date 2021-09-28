@@ -2,13 +2,15 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 12
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1559959/)
+## 2021年9月27日 文贵先生盖特 14
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1560003/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-9-27日：新中国联邦的疫苗灭共．拯救人类……荻得巨大的成功！ 【澳洲纽省省长最新发布政令：对于打过针的或从未打过针的：从十二月一号开始，可以自由出入餐厅、Club ，所有户外活动，走入正常生活。 从10月11日，注射过疫苗针的先达到70％的场所自由行动。 从10月18号开始，达到80％的场所自由行动。**😊** 对于从未疫苗注射的居民必须要等待3-4个星期后才能与前面所述的70％.80％注射疫苗针所指定的场所可以自由出入。 从十二月一号开始：接受过疫苗注射的和从未接受过疫苗注射的全部恢复正常生活。 God bless Australia **🇦🇺**】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/507e4d2a5be9c38382f526a48f9fd812.jpg)
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pceieg0e75)
+9/27/2021 Miles Guo’s GETTR: We need to take a serious look at how we will live our lives as well as the political and social changes throughout the world in the next few years. We need to carefully consider how to cope with the changes in people’s behaviors and their ways of life
+
+9/27/2021 文贵盖特: 请兄弟姐妹们认真地思考未来两三年的生活方式和整个世界政治、社会的大变革，仔细想一想我们要如何去应对人们的行为和生活方式的改变
+
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcdxu789b0)
 
 **喜联盟Gnews编辑部**

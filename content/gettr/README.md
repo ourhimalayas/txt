@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 9:25 AM (UTC)`
+
+Dr. Pierre Kory during the senate hearing: immerse amount of data have shown that Ivermectin is a life-saving early treatment against Covid-19<br/><br/>皮埃尔·科里医生在参议院听证会上：大量数据表明，伊维菌素是早期治疗中共病毒的救命药
+![img](https://media.gettr.com/group19/getter/2021/09/28/09/24/52ea0b21-8e74-763b-c0f7-7017adb8d4f2/out.jpg)
+
+---
+
 `@miles 9/28/2021 5:30 AM (UTC)`
 
 An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一位愤怒的恒大女投资人在会议上对许家印破口大骂
@@ -294,13 +301,6 @@ WOW
 
 9/24/2021 Miles Guo: Bohai Capital Holding fabricated its 20 trillion yuan worth of assets with lies and fraudulent appraisals; HNA managed to grow 20,000 times a day by swindling the Lao Baixing’s money and fraudulent accounting. Evergrande and HNA employ the same scam - taking away 1,000 yuan from every 10,000 yuan defrauded out of the Lao Baixing; The state-owned real estate companies profit by taking kickbacks, while the private enterprises rely upon laundering money to the overseas<br/><br/>9/24/2021 文贵直播：渤海金控用谎言和虚假评估伪造了20万亿的资产，海航通过骗老百姓的钱和做假帐达到了所谓每天2万倍的成长；恒大和海航都用同一套路骗钱，骗老百姓一万块拿走一千；国有房地产全靠吃回扣，私营企业全靠洗钱到海外去
 ![img](https://media.gettr.com/group18/getter/2021/09/25/05/59/d58a47d3-094c-9d66-8be2-6592108a6c46/out.jpg)
-
----
-
-`@miles 9/25/2021 4:43 AM (UTC)`
-
-9/24/2021 Miles Guo: It is HNA that is going to bring about China’s economic collapse! HNA has more debts than Evergrande! Chen Feng, Wang Jian have transferred large amounts of money overseas.<br/><br/>9/24/2021 文贵直播：真正要导致中国经济崩溃的是海航！其债务比恒大还多！陈峰、王健早已把大量金钱转移到海外。<br/>
-![img](https://media.gettr.com/group14/getter/2021/09/25/04/43/341bcf7a-4e6c-e042-0c93-4021d7148701/out.jpg)
 
 ---
 

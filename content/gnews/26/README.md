@@ -2,18 +2,63 @@
 ---
 
 
-## 雅典娜时报-第065期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559814/)
+## [财务反思]黄金和白银的五种不同特性，更好分散投资
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559884/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+作者：纽约香草山金融部 – 闲聊钱币
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/11-37.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/22-6.png)
-***发布：小红帽***
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
+
+
+
+
+
+
+
+摩根士丹利的经济学家在最新出炉的大宗商品报告中对黄金和白银市场进行了差异分析。他们称许多投资者正在寻找方法以应对疫情及疫情之后所有的不确定性。其中一些人的解决方案包括投资贵金属，如黄金和白银。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5-6.jpg)
+报告将这些观点分成5个关键部分
+
+1. 白银与全球经济的关系更加密切
+
+50%白银被用于重工业和高科技，这其中包括熟知的智能手机、平板电脑、汽车电气系统、太阳能电池等。因此，白银对世界经济的敏感度远高于黄金，因为黄金更多的用于饰品和国库储备。经济增长必然导致对白银的需求增加，进而刺激价格增长。反之亦然。
+
+2. 白银可能是一个更好的通货膨胀对冲工具
+
+从历史上看，当通货膨胀率上升时，黄金和白银都会取得丰厚的收益。这两种金属都是以美元计价。当美元贬值时，黄金和白银通常会上涨。考虑到白银有更大的工业需求，在通货膨胀和美元下跌的情况下，白银往往比黄金涨得更多。
+
+3. 白银比黄金具有更大的波动性
+
+历史数据表明白银价格波动的百分比在一个交易周期内有可能是黄金的两到三倍，甚至更多。投资者短期内可能会受益，但同时又面临巨大风险。黄金白银的这种波动性可以为投资者提供不同期限的投资回报。
+
+4. 黄金是更好的分散投资工具
+
+对比白银，黄金被认为是更强大的多元化投资工具。原因是它与股票债券等资产类投资相关性非常低，它的工业用途也相当有限。黄金的这种独立性使得它在世界经济中扮演非常稳定的角色。
+
+5. 白银目前比黄金更便宜
+
+现阶段白银的价格更能被个人投资者接受。对于那些刚刚开始建立投资组合或者资金有限的人来说，白银的低成本更具有强大的吸引力。
+
+（本文仅代表作者观点）
+
+参考阅读：[黄金和白银的五种不同特性，更好分散投资](https://www.morganstanley.com/articles/investing-gold-silver-decision-guide/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+***编辑/校对/发稿：***Hetangyuese
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO.jpg)
