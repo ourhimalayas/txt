@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 10:29 PM (UTC)`
+
+9/28/2021 Miles Guo’s GETTR: Who will be arrested first? Zeng Qinghong, Wang Qishan, or Meng Jianzhu? The price of commodities, labor, electricity, food, healthcare, and medicine will skyrocket in the future, while non-essential goods like cars will be worthless. The beginning of the COVID vaccine disaster will be the time when you fear the most.<br/><br/>9/28/2021 文贵盖特：曾庆红、王岐山、孟建柱，谁会最先被抓？劳动力、大宗商品、电、粮、医、药的价格在未来都会暴涨，而汽车等非生活必需品将一文不值。疫苗灾难的开始才是让你最恐惧的时候！<br/>
+![img](https://media.gettr.com/group38/getter/2021/09/28/22/29/2cfc1081-158a-b78d-1b57-100feb5eb2fc/out.jpg)
+
+---
+
 `@miles 9/28/2021 8:44 PM (UTC)`
 
 How on the earth that the companies are require their workers to get vaccinated? And if workers refuse to do so, their job will be jeopardized, in the meanwhile they all knew this covid vaccine is very risky and caused death on many people, but they still do so?! STOP what you are doing, either you’re completely fool or your hands will be full of blood. For people who are still debating whether they should put food on the table for their families or choose what’s right for themselves. I want to say, your live matters!  <br/>Don’t you know that the drug companies take no responsibility for their products, so why should you have the obligation to take it.  <br/>“Freedom is not a gift bestowed upon us by other men, but a right that belongs to us by the laws of God and nature” <br/>
@@ -296,13 +303,6 @@ The end result of Huawei Meng Wanzhou case is no different from Mr Miles Guo’s
 
 9/25/2021 Miles Guo’s GETTR: The real darkness is yet to come! In response to the question of the fellow fighters, my opinion is that it is better to stay in the countryside. The farther away from the crowd, the modern consumption and supply chain environment, the better!<br/><br/>9/25/2021 文贵盖特: 真正黑暗的时刻还没有到来！对于战友的提问，文贵先生的意见是待在远离人群，现代化消费和供应链环境的农村更好！<br/>
 ![img](https://media.gettr.com/group47/getter/2021/09/26/03/05/656eae01-b137-b27c-da57-6dfa5b643ccc/out.jpg)
-
----
-
-`@miles 9/26/2021 2:29 AM (UTC)`
-
-9/25/2021 Miles Guo’s GETTR: Before the Covid vaccine and virus catastrophe arrives, <br/>our fellow fighters shall focus on the following key issues: 1) stay away from the CCP virus, 2) not get vaccinated, 3) prepare for necessary medicines and antidotes, and 4) until the threat is disarmed, you must ensure you have food to eat, dwelling to live and money to spend<br/><br/>9/25/2021 文贵盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点：1）防范中共病毒、2）不打疫苗、3）备好解药、4）在威胁解除前保证有饭吃、有房住、有钱花<br/>
-![img](https://media.gettr.com/group4/getter/2021/09/26/02/29/67198591-5c17-db43-0c65-d100ab5aa844/out.jpg)
 
 ---
 
