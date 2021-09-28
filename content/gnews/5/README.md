@@ -2,143 +2,39 @@
 ---
 
 
-## 中共病毒疫苗抑制了对控制癌症的受体（视频）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
+## 中共国限电险出人命 工厂停电致煤气泄漏23人中毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559977/)
 
-Now, very importantly
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-92.png)
+图片来自网络
 
-现在，非常重要的是
+近日，中共国多省出现大规模限电停电，不仅对企业生产造成巨大影响，也使许多百姓的生活陷入困境。
 
-This goes to that question
+据《希望之声》9月27日报道，近日，与东北三省限电相关的话题数次登上了微博的热搜榜。当地民众抱怨官方在停电前毫无预警和通知。而更令他们难以接受的是，不同于江浙等地的工业用电停电，东北停的是民用电，给居民生活造成极大困扰，甚至险些闹出人命。
 
-这涉及到那个问题
+有网友爆料称，自己一家三口因为停电被迫烧煤取暖，险些命丧黄泉。此外，辽宁省辽阳市的一家工厂也因突然停电，发生高炉煤气泄漏，共有23人因煤气中毒住院。
 
-All these anecdotes that we’re hearing from different oncologist around the country
+综合大陆多家媒体报道，9月24日下午3点30分左右，辽宁省辽阳县突然拉停了辽宁澎辉铸业有限公司的现场用电，造成两台高炉电鼓停机，高炉煤气发生泄漏，导致23人煤气中毒。
 
-我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
+据辽阳县供电公司工作人员证实，澎辉铸业在9月24日确实出现过限电情况。工作人员表示，供电公司接到相关部门通知，就会对部分区域进行限电，而限电通知都是临时通知，并且，不清楚近期是否还会限电。
 
-And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
+辽宁澎辉铸业有限公司的经营范围包括金属铸造、炼铁、炼钢等。该企业的工作人员在9月27日上午回应称，9月24日下午公司确实突然停电，有工人出现身体不适，随即被送到医院接受治疗。据报道，截至9月27日，出现煤气中毒症状的23名工人仍在医院接受观察治疗，暂无生命危险。
 
-我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
+辽宁、吉林、黑龙江三省多个地区从23日起出现不同程度的停电状况。由于许多地方政府并未提前通知，突然停电令民众措手不及。不少商铺只能点蜡烛营业；学校学生也只能在烛光下学习；有的城市甚至连红绿灯都停了，造成交通大拥堵；辽宁省大连市中国移动分公司还告知客户，因为限电，近日上网和打电话可能都会都受到影响。
 
-he knows his community, he knows his patients
+在新浪微博上，与东北三省停电限电相关的话题不停在热搜榜上刷屏。尽管微博进行引流，且多家门户网站关闭了评论区，但仍挡不住网友发帖表达怒火。
 
-他了解他的社区，了解他的病人
+其中，有网友表示，因为停电自己一家三口的命差点没了。这位网友称，由于东北现在天气寒冷，他家晚上睡觉时需要烧煤取暖，而烧煤产生的废气是通过排气扇排到室外。但是由于停电，排气扇无法启动，废气排不出去，蓄积在屋子里，结果全家一氧化碳中毒。幸运的是，半夜里他母亲心脏病犯了，他醒来后及时发现了危险，并在中毒状态下迷迷糊糊拨打了120。医生及时赶到把他们救了。然而至今，他的父母仍在住院治疗，他自己也要每天去高压氧舱做吸氧治疗。
 
-And he said hey you know a lot of my patients are getting the shot, some aren’t
+此外，有不少人称被困在了电梯里；还有人说家里的孕妇要爬24楼才能回家，怒批当局一刀切的停电方式；也有网友称自己家里停电超过12个小时，只在凌晨时给了一点电，然后就又停了。饭做不了，连热水都喝不上。
 
-他说，你知道，我的很多病人都打了疫苗针，有些没有打
+还有不少网友用孟晚舟回国时深圳大搞霓虹灯秀与东北停电做对比。有人说：“接一破舟（孟晚舟），举国欢庆，鞭炮齐鸣，红旗招展，人山人海。可东北限电怎么不回应一下？”也有人说：“霓虹灯整晚整晚的亮，不限电！老百姓日用民电说限就限？”还有人说：“有人张灯结彩，十里飘红相迎；有人茶凉心寒，金秋如至数九凛冬。”
 
-But in those are and he listed the number of cancers he seen in a 6 week period of time
+然而，百姓有再多的抱怨也没用。吉林省新北水务有限公司在9月26日发出通知称，根据国家电网要求，将执行东北电管局和吉林省能源局关于有序用电的精神，不定期、不定时、无计划、无通知停电限电。此情况将延续到2022年3月，停电、停水变为常态。
 
-但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
+半年（可以肯定不止），随时停电停水，这也能称之为有序？这让老百姓的日子怎么过？在中共的高压统治之下，逆来顺受的百姓从来都是任人宰割的羔羊，你受得了得受，受不了也得受。中共连百姓的死活都不顾，哪还会管你的生活是否受到困扰？中共不灭，中国人将面临的悲惨遭遇，远不止限电停电这么简单。
 
-that is never seen in a 40 years career
+注：本文仅代表作者观点
 
-这是在他40年的职业生涯中从未见过的
-
-And so he asked to what could be causing that?
-
-于是他问，可能是什么原因造成的呢？
-
-So, I sent him that paper as a potential mechanism
-
-所以我把那篇论文作为一个潜在的机理发给了他
-
-As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
-
-因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
-
-So I was talking to Harvey Risch, the world-renowned epidemiologist
-
-因此，我与世界知名的流行病学家哈维·里希进行了交谈
-
-He said, well you know the post shot therapy is usually going to be 5-10 years
-
-他说，你知道接种疫苗后治疗通常需要5-10年
-
-till we see the signals
-
-直到我们看到信号
-
-I said yeah usually it would be
-
-我说是的，通常是这样的
-
-But when we have something that we never done before
-
-但是，当我们有一些我们以前从未做过的事情的时候
-
-that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
-
-突然抑制了一种对控制癌症负有高度责任的受体
-
-It would be very explicable as to why something that is quiescent
-
-这很容易解释为什么有些东西是静止的
-
-All of a sudden wakes up
-
-一下子就醒了
-
-So I mean all day long our cells are fighting off mutations in different cells
-
-所以我的意思是，我们的细胞整天在对抗不同细胞的突变
-
-They see the mutation to try to kill that cell
-
-他们看到突变，试图杀死那个细胞
-
-If this receptor is downregulated
-
-如果这个受体被抑制了
-
-then all those downstream are molecules inside that cell that’s fighting there can’t fight
-
-那么所有其后的分子在细胞内的战斗就无法进行
-
-Because those signals are now turned off the cytokines, the interferons
-
-因为这些信号现在关闭了细胞因子和干扰素
-
-the things that will attack that atypical cell
-
-这些东西会攻击非典型细胞
-
-So, we’re seeing the early signals of this
-
-所以，我们看到这样的早期信号
-
-And so that’s what’s concerning is we want to be able to under the microscope
-
-这就是我们想要在显微镜下观察的问题
-
-you know here’s a whole stack of tumors
-
-你知道这里有一大堆的肿瘤
-
-in the last couple of weeks where what am I doing is
-
-在过去的几周里，我在做什么呢？
-
-I’m looking at the ratios of helper T cells this CD8 killer T-cells
-
-我在观察辅助T细胞和CD8杀伤性T细胞的比例
-
-and then we’ll be staying these for always
-
-然后我们会继续这么做
-
-Because some of these patients again inexplicable cancers
-
-因为这些病人中有些人的癌症无法解释
-
-at really unusual ages
-
-真的是在不寻常的年龄
-
-That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
-
-与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
-
-听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说
+**新闻链接：**[https://twitter.com/SoundOfHope\_SOH/status/1442419720859365376](https://twitter.com/SoundOfHope_SOH/status/1442419720859365376)

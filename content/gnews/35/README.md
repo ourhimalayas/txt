@@ -2,35 +2,59 @@
 ---
 
 
-## 13岁孩子接种疫苗后心脏骤停
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559472/)
+## 《GTV新闻访谈》简讯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559682/)
 
-加拿大多伦多枫叶农场 – 视频字幕：Kent 文字翻译：云起时
+栏目记者/责任编辑：文一
 
-视频文字（中文）：
 
-我的女儿刚刚从学校联系我，非常的难过和生气。她的一个朋友，正在哈利法克斯的医院里接受重症监护，因为她的心脏在她一打完疫苗之后就停跳了。 她现在情况很不好，无法呼吸，她的心脏一直在停止跳动。她今年才13岁！13岁！她的心脏居然停止跳动了！你们有多少人听说过一个13岁的孩子会心脏停跳？ 而这就是我们的政府正在强迫我们所有人和我们的孩子做的事。一个13岁的女孩在新斯科舍省哈利法克斯市, 现在正躺在医院里，因为她的心脏在注射疫苗后停止跳动了。
 
-这是我女儿的朋友，她曾在我家里待过，她曾在我的餐桌上与我共进晚餐。 这可能会是你的孩子，可能会是你的侄女、侄子、孙子女。你的邻居。 这些人到底有什么毛病？由于这种疫苗，世界各地都有儿童死亡，世界各地都有成人死亡，甚至美国食品和药物管理局都已经告诉了你们，但我们的政府仍在强迫人们接种疫苗，才能够参与社会活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-你知道关于这孩子的这件事最糟糕的部分是什么吗？ 是她在我家里说，她不想接种疫苗，如果她不打算接种疫苗的话，她的父母将尊重她的决定，但当我们的省长休斯顿先生决定强制要求孩子们接种疫苗才能够参加体育运动，她觉得自己别无选择，只能接受，因为她喜欢踢足球。 你们怎么敢，对我们的孩子做这样的事情
 
-视频文字（英文）：
 
-So my daughter，Just contacted me from school。 Very upset。 One of her friends ，is now in critical care in the hospital here in Halifax because her heart stopped, right after she had a vaccine!
 
-She’s not well right now she can’t breathe, her heart keeps stopping. She’s 13 years old！13 years old！And her heart stopped! How many of you know a 13-year old whose heart stops?
 
-And this is what our government is forcing on all of us and our children. A 13-year-old girl in Halifax Nova Scotia is in the hospital right now because her heart stopped after the vaccine.
+►周一下午，美国总统乔-拜登在电视直播中接受了新冠疫苗加强针，此前几天，美国疾控中心支持为数百万在六个月前接受辉瑞公司疫苗第二针的美国人打加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-5.jpg)
+►美国务院发言人内德-普莱斯的病毒检测呈阳性，将被隔离。讽刺的是，普莱斯在一条推文中说：“我感觉不是很舒服，但对安全有效的疫苗所提供的对重症的保护表示感谢。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.2-3.jpg)
+►据总部位于纽约的数据服务机构布尔比奥（Burbio）称，本学年到目前为止，43个州的539个地区的近2200所学校因中共病毒疫情而不得不暂时关闭。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.3-1.jpg)
+►联邦调查局报告说，在中共病毒大流行期间，2020年的谋杀案增加了近30%，这是该局自六十年前开始记录犯罪统计数据以来最大的单年跳跃。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.4-1.jpg)
+►“与星共舞”本赛季职业选手谢丽尔-伯克，周日在视频中含泪宣布病毒检测呈阳性。这位早打了Moderna疫苗的舞者说，根据CDC对检测出阳性的疫苗接种者的指导方针，她必须在家里隔离10天。 疫情并未因疫苗的普及而受控，反而越来越严重，越来越扩散，并导致各种次生灾害事件频发，政客和所谓权威机构却还在为医药公司站台作秀撒谎推打疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.5-1.jpg)
+参考链接：
+[Biden gets vaccine booster shot; Arizona judge finds ban on school mask mandates unconstitutional: COVID-19 updates](https://www.msn.com/en-us/news/us/biden-gets-a-vaccine-booster-shot-thousands-of-new-york-health-care-workers-could-lose-jobs-as-soon-as-today-covid-19-updates/ar-AAORrao)
 
-That’s my daughter’s friend. She’s been in my home. She’s had dinner with me at my table. That could be your child, could be your niece your nephew your grandchild, your neighbour. What the fxx hells wrong with you people!
+[推文：After experiencing symptoms for the first time this morning, I tested positive for COVID-19 shortly thereafter, & will now quarantine for the next 10 days. I’m feeling under the weather but am grateful for the protection from severe illness offered by safe and effective vaccines.](https://twitter.com/statedeptspox/status/1442558871395045376?s=21)
 
-There are children dying all over the world, there are adults dying all over the world, from this vaccine. The FDA has even told you. But yet our government is still forcing people to be vaccinated to be able to partake in society. 
+[K-12 School Reopening Trends](https://info.burbio.com/school-tracker-update-latest/)
 
-Do you want to know what the worst part of this is with this child? Is that she was in my house saying, she didn’t want the vaccine if she wasn’t going to get the vaccine. And her parents respected her decision. But when our premier Mr Houston decided to mandate vaccines for children to be able to play sports, she felt she had no other choice but to take it because she loves playing soccer. 
+[FBI: Record surge in 2020 murders; nearly 30% increase drives spike in violent crime](//www.usatoday.com/story/news/politics/2021/09/27/fbi-reports-2020-murder-surge-biggest-single-year-jump/5886792001/%20violent%20crime)
 
-How dare you do this to our children!
+[‘DWTS’ pro Cheryl Burke tests positive for COVID, tearfully apologizes to dance partner Cody Rigsby](https://www.usatoday.com/story/entertainment/tv/2021/09/27/dwts-cheryl-burke-cody-rigsbys-partner-tests-positive-covid/5880823001/)
 
-* * *
+（本文仅代表作者观点）
 
-编辑/ 发稿 云起时
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

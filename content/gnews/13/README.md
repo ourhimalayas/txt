@@ -2,21 +2,21 @@
 ---
 
 
-## 【G时新闻】法国海军参谋长称，中共海军崛起令人担忧
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559785/)
+## 数百名康州校车司机罢工抗议疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559912/)
 
-播报员：翌珊 制作：Kent
+#### 翻译/撰稿：zzballack
 
-美国和盟军需要加强对中共的武力震慑，牢牢掌握住太平洋及南中国海海域的自由航行权，才能将中共称霸印太地区的野心扼杀在摇篮里!
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-3.jpg)图片来源：News Break
+据《布雷特巴特新闻网》（Breitbart News）9月27日报道，康涅狄格州要求州政府雇员接种中共病毒疫苗的命令本周一（9月27日）开始生效，预计有数百名校车司机将罢工以示抗议。
 
-法国海军参谋长皮埃尔∙范迪埃上周六在接受电台采访时称，对于中共在南海进行的人工岛礁建设和军事化问题，美国和包括法国在内的盟国海军将通过举行诸如“环太平洋军演”等大型规模演习，对中共进行武力威慑。
+康州州长内德·拉蒙特 (Ned Lamont)在8月中旬宣布了疫苗强制令，要求州政府工作人员、学校雇员和儿童护理员在9月27日之前至少接种一剂疫苗。那些符合“某些豁免”条件的人需要每周接受核酸检测。尽管州长办公室明确表示，该州医院的工作人员 “将不能选择以核酸检测代替疫苗接种”。
 
-范迪埃认为，目前中共所面临的挑战，是如何在不引发战争的情况下部署军事力量。在中共海军势力不断壮大，逐步向美国盟友施加压力，这些国家慢慢地放弃了美国，倒向中共，这令所有人感到担忧。
+美国学校运输协会（National School Transportation Association）说康州有多达350名校车司机预计会罢工，以抗议疫苗强制令。目前康州有1500名司机没有接种疫苗。1300人已经同意每周进行核酸检测来代替疫苗接种。其余的人拒绝接种疫苗或每周接受检测。
 
-原文链接：[法国海军参谋长称，中共海军崛起令人担忧](https://gnews.org/zh-hans/1558467/)
+康涅狄格州公立学校校长协会（CAPSS）的执行主任弗兰·拉比诺维茨（Fran Rabinowitz）说：“他们将尽一切可能，并与他们的巴士公司合作，让尽可能多的学生上学，这可能意味着再增加一倍数量的巴士。”
 
-[盖特链接](https://gettr.com/post/pcg6nx4bfd)
+然而拉蒙特政府仍坚持其立场。内德·拉蒙特的通讯主管马克思·雷斯（Max Reiss）说：“我们相信，康州的父母都希望他们的孩子，特别是那些未接种疫苗的孩子周围的人都接种了疫苗。”
 
-* * *
-
-编辑/ 发稿 云起时
+新闻来源：[Hundreds of School Bus Drivers Expected to Skip Work over Connecticut Vaccine Mandate](https://www.breitbart.com/politics/2021/09/27/hundreds-of-school-bus-drivers-expected-to-skip-work-over-connecticut-vaccine-mandate/)

@@ -2,18 +2,10 @@
 ---
 
 
-## 雅典娜时报-第065期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559814/)
+## 西方退休/养老基金投资中概股总额75.56亿美元，阿里巴巴占41%
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559951/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+作者：keikei
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/11-37.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/22-6.png)
-***发布：小红帽***
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+西方退休/养老基金投资中概股总额75.56亿美元，其中美国23.40亿，加拿大51.11亿，澳大利亚9500万，英国1千万。被投资最多的中概股为：阿里巴巴（30.72亿），占总投资额的41%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-34.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/2-22.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/3-15.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/4-9.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/5-8.png)

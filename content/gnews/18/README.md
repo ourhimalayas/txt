@@ -2,102 +2,143 @@
 ---
 
 
-## 2018年4月28日郭文贵先生报平安视频全文听写：金正恩是我们学习的坏榜样！
-` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1559728/)
+## 中共病毒疫苗抑制了对控制癌症的受体（视频）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-27-at-9.00.48-PM.png)
-视频链接：[https://www.youtube.com/watch?v=gdto8t\_beKU](https://www.youtube.com/watch?v=gdto8t_beKU)
+Now, very importantly
 
-- **（00:00）学习金正恩的坏榜样，一定要有自己的核武器，引而不发 **
+现在，非常重要的是
 
+This goes to that question
 
-**郭文贵先生：**尊敬的战友们好！今天是四月二十七号，还是二十八号啊，我都糊涂了，我还是要报平安视频啊。
+这涉及到那个问题
 
-昨天路德先生的访谈节目因为美国的林教授一个中国的妻子，在采访当中突然给停了，哈哈。然后他妻子说我害怕，我害怕。太多人被这个迫害了，太好的词。
+All these anecdotes that we’re hearing from different oncologist around the country
 
-十四亿人民，就是要有人说出来，我害怕，我害怕，太多人被迫害啦。就像亚美尼亚一样，一日之间把盗国贼给铲平它。
+我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
 
-还有一个，昨天和前天看到了金正恩，你看人家金正恩那范儿啊，地球上最牛的八零后。你看人那个握手，到了南方，打破这种这个老政治的规矩，又把他领回到北朝鲜，然后大气的往前走。
+And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
 
-啊，这孩子不简单，我说这孩子真不简单。可以说是中国见过他本人的不多。我是见过他两到三次，这个孩子比他爷爷还狠，比他爸爸还聪明，这孩子真不简单。
+我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
 
-这孩子咱先不说他好的坏的这个体制啊，我不是说他体制好，我非常反对独裁，反对北朝鲜残害人民，就像我现在反对盗国贼一样。
+he knows his community, he knows his patients
 
-但是他的事情给了我们启发，什么？得有实力！得有你的核武器！如果金正恩同志，这孩子要没有那个核武器，哪可能跟你文在寅握手啊，哪能把你拉北朝鲜来，那发生战争啦。包括这个在见面的头一天，二十四号的演习，停，停了啊。
+他了解他的社区，了解他的病人
 
-然后呢先到中国去，弄一票，弄几个火车，弄上几十个专列，弄上八十万吨柴油回来。然后呢给俄罗斯打打电话，安慰安慰。这边给美国川普总统见面，这边见文在寅去啦，还带去了北方的冷面，北朝鲜的冷面是好喝啊，好喝，绿豆的，好喝。
+And he said hey you know a lot of my patients are getting the shot, some aren’t
 
-然后咔咔咔，中午回去睡个午觉，在板门店睡个午觉。然后回来，啪，签了，然后呢，散散步，穿着喇叭裤，走啊，回去了，是不是，坐着大加长的特制奔驰，他喜欢奔驰，喜欢路虎。
+他说，你知道，我的很多病人都打了疫苗针，有些没有打
 
-这范儿，取决于他的实力。我们的爆料，没有核武器级的料，没有这样的勇气，你啥也办不成。你有了核武器，那你就能乱用吗，那金正恩同志，这孩子要把武器扔到中国，扔到美国来，扔到南韩去，还谈吗？不谈了，那还谈啥呀？
+But in those are and he listed the number of cancers he seen in a 6 week period of time
 
-现在好，他拿了核武器，他没扔，叫引而不发，对方知道你有没有核武器，要不然咋给你谈呢？你以为盗国贼不知道你手里有什么？不知道怎么能搞重庆的事？能搞马建同志出来认罪？能搞那么多人出来认罪？让刘彦平到美国来，让孙力军到美国来？
+但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
 
-他俩录音我还没放呢，我慢慢放，你们看着。像昨天路德采访，嗙叽，吓成那个样子，断播，全世界蓝金黄。大家没注意到，中国的管外事的，杨洁篪政治委员，今天飞往了科威特，明天飞往阿布扎比，叫访问，外事访问。
+that is never seen in a 40 years career
 
-访问啥啊？我在科威特银行有账号，我给那陈氏兄弟，我叫周先生，在科威特银行开的账号，科威特银行。他要去商量把那钱给拿走，那不可能的。
+这是在他40年的职业生涯中从未见过的
 
-在他被抓的一星期后，他家人就通知把钱都弄走了，所以干嘛？继续到海外，封我的关系，封我的账号，能有用吗？金正恩也被你们封了几十年了，结果封成这样了。
+And so he asked to what could be causing that?
 
-所以金正恩的事情告诉大家，要有武器引而不发，要有实力，确实有毁灭对方一百次的能力。还有一个要最终要把引而不发变成你的武器，否则你就是自取灭亡。
+于是他问，可能是什么原因造成的呢？
 
-所有有些人呼吁：放小视频，放小视频……放啥小视频啊？不到放的时候，你乱放，都是假的，你这都是假的。然后给你找出来像陈氏兄弟，你看这都是假的，这个女的不是我，那个手去动她的也不是王岐山，也不是孟建柱，这都不是我。
+So, I sent him that paper as a potential mechanism
 
-他们太能了，叫他们撒谎，像重庆的谎，三邪视频的谎，贯君的谎，刘呈杰的谎，撒完都不相信的时候，让他深深地掉入塔西佗陷阱。
+所以我把那篇论文作为一个潜在的机理发给了他
 
-这个时候咱们小视频一点一点放，人家金正恩这孩子五连发。咱弄两连发就把他灭了，两连发就把他灭了，这是我的战略。再一个，这些伪类们，这些狗屎们，让它叫一叫挺好的。
+As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
 
-这个音乐里面有哗啦啦，哗啦啦的那个啥，像是苞米谷子似的，那是杂音音乐，再给你点伴奏。它得当啷啷，当啷啷，来两下。
+因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
 
-人家金正恩同时也有，旁边这事、那事都有。这个体制是坏的，但是他这个决绝的精神，这种战略和这孩子的思路，赢了是可以学习的。我们不希望世界上有第二个北朝鲜，更不希望中国的盗国贼，再有未来的所谓三年。
+So I was talking to Harvey Risch, the world-renowned epidemiologist
 
-- **（05:36）全世界的反共浪潮；重庆专案组的无知、愚蠢**
+因此，我与世界知名的流行病学家哈维·里希进行了交谈
 
+He said, well you know the post shot therapy is usually going to be 5-10 years
 
-**郭文贵先生：**全世界今天在非洲国家已经有百分之五十一的国家都是民选的国家了，凡是非洲民选的国家一律都是反中国共产党的，反盗国贼的，全赢，只要反就赢。南美，现在哪个国家只要一反中，反盗国贼，反共产党，赢！
+他说，你知道接种疫苗后治疗通常需要5-10年
 
-欧洲在干嘛？欧洲在像老鹰一样脱掉老的茧子，正在复苏中。美国人正在唤醒中，他们爱中国人民，就像昨天林教授说的，都爱中国，爱中国人民，尊重中国文化。恨中国的体制，恨这个共产党，恨这个盗国贼。而绝大多数人认为共产党（员）是好的，也是被绑架的。
+till we see the signals
 
-昨天有一个朋友，美国朋友问我，你怎么看待这个下一步中国盗国贼会做什么样的事情？在中国会想干啥？
+直到我们看到信号
 
-我说他们在这五年疯狂啦，他们过去认为能把中国所有的权利给私有化啦，成功啦，把财富现在接近于公有化啦，抱他家去了。
+I said yeah usually it would be
 
-现在它要干啥？要挑战全西方世界，当全世界的老大。你们不行，你们不行，你们就死亡，我说你们一觉醒来，你们老婆孩子都没啦，你的房子也都没啦，他们现在都点头。
+我说是的，通常是这样的
 
-最近这各国政府官员跟我联络的太多啦。我今天虽然是周末，加拿大来的人一会儿要和我见面，就是关于这陈氏兄弟的事，陈氏兄弟的事，咋回事？陈家兄弟的家人也跟我联系了，现在准备参加我搞一个记者招待会，我说我想想吧，不到时候。
+But when we have something that we never done before
 
-因为陈氏兄弟的事说出来，百分之十，盗国贼就吓尿了，中南坑那个海水就成了屎水，尿水啦，就这么可怕，就这么可怕！那两兄弟不是凡人，那双胞胎，一米九的个，一个是懂科技，一个是懂医学，还有一个，那位陈什么煜啊，陈志煜啊，叫周国民啊？我叫中文名啊，是加拿大的交通警察，他是交通警察，而且玩枪玩得特别好。盗国贼啊，你会没想到双胞胎男的，还有俩双胞胎女的呐！
+但是，当我们有一些我们以前从未做过的事情的时候
 
-他给郭文贵文件，我让他给我制造文件，还搞什么PI，什么PDF，疯了吧，啊，疯了吧！
+that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
 
-我让他给我造假文件，我是自杀么，我敢送到美国政府去啊？我还有点脑子没有啊，然后美国政府说这是真的，啊，我有病啊我呀。我说那个东西是美国执法部门得到，说是真的，那是经过人家认证的。盗国贼啊，你骗吧你啊，你骗吧，你这种愚蠢，傲慢，无知，恐惧，还有重庆公安过去一桩桩一桩桩的大事，你这回可到灭亡的时候了。
+突然抑制了一种对控制癌症负有高度责任的受体
 
-你们是给国家，是给盗国贼集团，正在给它打造一个大棺材，不是水晶的啊，不是水晶的。是什么呢？是铜的，是铜的。因为铜棺材到了地狱是永远不能再回来了啊。
+It would be very explicable as to why something that is quiescent
 
-行啦，谢谢重庆的警察，谢谢专案组，最近到北京盘古，到郑州裕达，从过去二十万块钱支付整个公司的运转支付，要向他报告。头两天写什么？十万块钱要向他批准，昨天又把这员工工资表都拿走了。
+这很容易解释为什么有些东西是静止的
 
-哎哟，盗国贼啊，你太小看郭文贵了，郭文贵从开始没拿出你一分钱！我在这庄严地说，从中国出来，没从国内拿一分钱。我还拿进去了一百多个亿现金，被你们给查封。永远不会在国内拿一分钱，记住郭文贵说的话。但是你带共产党三个字的，带盗国贼的字儿的钱，我现在都不想碰，你给我都不要。
+All of a sudden wakes up
 
-就你们那个脑袋，无知、愚蠢。就你们专案组，什么专案组啊？你们是黑社会组，就是靠抓，打，你有本事用智商，用法律和我较量较量，有本事放马过来，在法律环境里咱们试一试，你什么都不是。
+一下子就醒了
 
-一切都是刚刚开始啊，谢谢所有的战友们！
+So I mean all day long our cells are fighting off mutations in different cells
 
-\*\*\*\*\*\*END\*\*\*\*\*\*\*
+所以我的意思是，我们的细胞整天在对抗不同细胞的突变
 
-温哥华扬帆农场七哥直播全文听写组：
+They see the mutation to try to kill that cell
 
-听写整理——
+他们看到突变，试图杀死那个细胞
 
-英国伦敦喜庄园：杯酒渐浓
+If this receptor is downregulated
 
-全文总校——
+如果这个受体被抑制了
 
-温哥华扬帆农场：Peter哥
+then all those downstream are molecules inside that cell that’s fighting there can’t fight
 
-审核发布——
+那么所有其后的分子在细胞内的战斗就无法进行
 
-温哥华扬帆农场：Peter哥
+Because those signals are now turned off the cytokines, the interferons
 
-全文发布稿总审核——
+因为这些信号现在关闭了细胞因子和干扰素
 
-温哥华扬帆农场：文敏
+the things that will attack that atypical cell
+
+这些东西会攻击非典型细胞
+
+So, we’re seeing the early signals of this
+
+所以，我们看到这样的早期信号
+
+And so that’s what’s concerning is we want to be able to under the microscope
+
+这就是我们想要在显微镜下观察的问题
+
+you know here’s a whole stack of tumors
+
+你知道这里有一大堆的肿瘤
+
+in the last couple of weeks where what am I doing is
+
+在过去的几周里，我在做什么呢？
+
+I’m looking at the ratios of helper T cells this CD8 killer T-cells
+
+我在观察辅助T细胞和CD8杀伤性T细胞的比例
+
+and then we’ll be staying these for always
+
+然后我们会继续这么做
+
+Because some of these patients again inexplicable cancers
+
+因为这些病人中有些人的癌症无法解释
+
+at really unusual ages
+
+真的是在不寻常的年龄
+
+That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
+
+与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
+
+听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说

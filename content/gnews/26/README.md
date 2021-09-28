@@ -2,31 +2,21 @@
 ---
 
 
-## 美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559585/)
+## 【G时新闻】法国海军参谋长称，中共海军崛起令人担忧
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559785/)
 
-栏目记者/责任编辑：文一
+播报员：翌珊 制作：Kent
 
+美国和盟军需要加强对中共的武力震慑，牢牢掌握住太平洋及南中国海海域的自由航行权，才能将中共称霸印太地区的野心扼杀在摇篮里!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-403.png)
+法国海军参谋长皮埃尔∙范迪埃上周六在接受电台采访时称，对于中共在南海进行的人工岛礁建设和军事化问题，美国和包括法国在内的盟国海军将通过举行诸如“环太平洋军演”等大型规模演习，对中共进行武力威慑。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-7.jpg)
-路透社9月27日 讯 – 美国官员本周将前往拉丁美洲考察基础设施项目，准备与中共国耗资数万亿美元的“一带一路”倡议相抗衡。 美国官员称，由拜登总统的副国家安全顾问 达利普·辛格率领的一个外交和发展官员代表团正在哥伦比亚，他们计划与哥国总统杜克会面，然后在本周稍晚前往厄瓜多尔和巴拿马。 该代表团的任务是将七国集团(G7)国家6月宣示的国际基础设施投资倡议“重建更美好的世界”（B3W)变为现实。这是几个计划的“聆听之旅”中的第一个。 按美国计划在明年年初正式启动B3W倡议，包括公布一些初始项目的细节。 据《零对冲》报道，“一带一路”项目因疫情加速了存量债务违约的重新谈判，到目前为止估计达到 940 亿美元，约占中共国海外贷款的四分之一。这表明“一带一路”最重要的贷款人，即中共国家开发银行和进出口银行，在为一带一路项目融资方面做得非常差，中共国纳税人很可能最终为此买单。 如今B3W项目的启动，恒大的崩坍，“一带一路”的有去无回几成定局。
+范迪埃认为，目前中共所面临的挑战，是如何在不引发战争的情况下部署军事力量。在中共海军势力不断壮大，逐步向美国盟友施加压力，这些国家慢慢地放弃了美国，倒向中共，这令所有人感到担忧。
 
-（本文仅代表作者观点）
+原文链接：[法国海军参谋长称，中共海军崛起令人担忧](https://gnews.org/zh-hans/1558467/)
 
-参考链接：[美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](https://www.reuters.com/article/usa-latam-0927-mon-idCNKBS2GN0R9%20https://gnews.org/zh-hans/1418714/)
+[盖特链接](https://gettr.com/post/pcg6nx4bfd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+* * *
 
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-406.png)
+编辑/ 发稿 云起时

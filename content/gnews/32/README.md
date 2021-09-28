@@ -2,45 +2,20 @@
 ---
 
 
-## 有声| 愿赐勇敢的神救赎我们脱离危险
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1559529/)
+## 辉瑞公司开始大规模临床试验口服抗中共病毒药物
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559698/)
 
-配音：香草山福音部-Daxia
+#### 翻译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-132.jpg)图片来源：NEWS18
+9月27日，据美联社报道，辉瑞公司周一表示，它已经开始对一种药片进行中后期的临床试验，以避免接触感染的人染上中共病毒。几家公司正在研究所谓的口服抗病毒药物，模仿药物达菲（Tamiflu）对流感的作用，防止疾病发展到严重程度。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+根据报道，2020年3月开始，辉瑞公司就开发名为PF-07321332的药物，并正在与利托那韦（ritonavir，一种重新使用的艾滋病毒药物）进行联合测试。
 
+该临床试验将招募2660名成人，他们将在感染中共病毒显示最初迹象时，或首次意识到接触了中国病毒时参加。他们将被随机分配，接受PF-07321332和利托那韦的组合治疗，或配套治疗，每天两次，为期五天或十天。该临床试验的目的是评估在预防中共病毒（SARS-CoV-2）感染及14天内出现症状方面，该症状研究的药物的安全性和有效性。该药物被称为 “蛋白酶抑制剂”，已在实验室测试中证明能够干扰病毒的复制机制。
 
+但是，即使该药在现实生活中有效，可能也只是在感染中共病毒的早期阶段有效。因为，当（感染）中共病毒发展到严重疾病程度时，病毒已经基本停止了复制，病人会遭受过度免疫反应（的痛苦）。
 
+译者以为，在不透彻调查中共病毒真正起源情况下，作为中共的生化武器，任何所谓大医疗科技公司的科学家都是在忽悠大众，目的只不过是为了赚钱，和贯彻世界暗黑势力的真实计划意图。
 
-
-
-
-- “**主耶和华啊，惟有你是神。你的话是真实的，你也应许将这福气赐给仆人。（撒母耳记下 7:28）**
-- **所以，你们不可丢弃勇敢的心；存这样的心必得大赏赐。（希伯来书 10:35）**
-
-
-先知撒母耳由衷地说，认识神的真实是多么大的福气啊！因为这意味着整本圣经的话语都是真实的，神已经藉着圣经告诉我们说：“[在世上，你们有苦难；但你们可以放心，我已经胜了世界](https://wd.bible/jhn.16.33.cunps)。”
-
-然而，神的“真实”在于我们接受现实中所发生的一切，这包括灾难和平安与福乐，还包括人与人之间的背叛与爱情等等。因为，这一切都是人选择的结果。
-
-
-
-**文字版原文：[愿赐勇敢的神救赎我们脱离危险](https://gnews.org/zh-hans/1555245/)**
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+**新闻来源：**[Pfizer starts large trial for anti-Covid pill](https://www.france24.com/en/live-news/20210927-pfizer-starts-large-trial-for-anti-covid-pill)

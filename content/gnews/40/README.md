@@ -2,125 +2,35 @@
 ---
 
 
-## 习主席会怎么处理恒大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559263/)
+## 13岁孩子接种疫苗后心脏骤停
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559472/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-image0-8.jpg)
-[https://gtv.org/video/id=6152014cd2e2b817486ec9cc](https://gtv.org/video/id=6152014cd2e2b817486ec9cc)
+加拿大多伦多枫叶农场 – 视频字幕：Kent 文字翻译：云起时
 
-今天恒大
-Hoy Evergrande Group
+视频文字（中文）：
 
-现在我救你, 我就得救所有人
-Si ahora te salvo, debo salvar a todos
+我的女儿刚刚从学校联系我，非常的难过和生气。她的一个朋友，正在哈利法克斯的医院里接受重症监护，因为她的心脏在她一打完疫苗之后就停跳了。 她现在情况很不好，无法呼吸，她的心脏一直在停止跳动。她今年才13岁！13岁！她的心脏居然停止跳动了！你们有多少人听说过一个13岁的孩子会心脏停跳？ 而这就是我们的政府正在强迫我们所有人和我们的孩子做的事。一个13岁的女孩在新斯科舍省哈利法克斯市, 现在正躺在医院里，因为她的心脏在注射疫苗后停止跳动了。
 
-我不救你, 所有人都成为我的灾难, 那怎么办
-Si no te salvo, todas las personas se convertirán en mi desastre, ¿ qué debo hacer?
+这是我女儿的朋友，她曾在我家里待过，她曾在我的餐桌上与我共进晚餐。 这可能会是你的孩子，可能会是你的侄女、侄子、孙子女。你的邻居。 这些人到底有什么毛病？由于这种疫苗，世界各地都有儿童死亡，世界各地都有成人死亡，甚至美国食品和药物管理局都已经告诉了你们，但我们的政府仍在强迫人们接种疫苗，才能够参与社会活动。
 
-所以内部决定, 地方的事
-Entonces, la zona interna decide que esto es asunto local
+你知道关于这孩子的这件事最糟糕的部分是什么吗？ 是她在我家里说，她不想接种疫苗，如果她不打算接种疫苗的话，她的父母将尊重她的决定，但当我们的省长休斯顿先生决定强制要求孩子们接种疫苗才能够参加体育运动，她觉得自己别无选择，只能接受，因为她喜欢踢足球。 你们怎么敢，对我们的孩子做这样的事情
 
-地方的钱, 地方解决
-El dinero local se resuelve dentro de la región
+视频文字（英文）：
 
-中央的事, 中央解决, 他们想把恒大给肢解了, 然后呢
-Los asuntos del gobierno central los resuelven ellos mismos, quieren desmembrar a Evergrande Group y luego
+So my daughter，Just contacted me from school。 Very upset。 One of her friends ，is now in critical care in the hospital here in Halifax because her heart stopped, right after she had a vaccine!
 
-全部各部委
-Todos los ministerios
+She’s not well right now she can’t breathe, her heart keeps stopping. She’s 13 years old！13 years old！And her heart stopped! How many of you know a 13-year old whose heart stops?
 
-所有承担责任
-Deben asumir las responsabilidades
+And this is what our government is forcing on all of us and our children. A 13-year-old girl in Halifax Nova Scotia is in the hospital right now because her heart stopped after the vaccine.
 
-但是记住战友们, 给恒大出这个招的人
-Pero recuerden, compañeros luchadores, quien le dió este truco a Evergrande Group
+That’s my daughter’s friend. She’s been in my home. She’s had dinner with me at my table. That could be your child, could be your niece your nephew your grandchild, your neighbour. What the fxx hells wrong with you people!
 
-一定是江派的人
-Debe ser del Partido de Jiang
+There are children dying all over the world, there are adults dying all over the world, from this vaccine. The FDA has even told you. But yet our government is still forcing people to be vaccinated to be able to partake in society. 
 
-习派没有这样的人
-El Partido Xi no tiene este tipo de persona
+Do you want to know what the worst part of this is with this child? Is that she was in my house saying, she didn’t want the vaccine if she wasn’t going to get the vaccine. And her parents respected her decision. But when our premier Mr Houston decided to mandate vaccines for children to be able to play sports, she felt she had no other choice but to take it because she loves playing soccer. 
 
-他这样的出招, 就把整个中国的影子银行
-Este truco que hizo, dejó a todos los bancos de sombras de China
+How dare you do this to our children!
 
-保险机构、信托、所谓资金池子不在财富列表之内的
-Las instituciones de seguros, los fideicomisos y los denominados grupos de capital que no se incluyen en la lista de patrimonio
+* * *
 
-这几十万亿全给隐藏住, 习100%用这个招
-Estas decenas de billones están todas ocultas y Xi usó este truco al 100%
-
-今天记着我的话
-Recuerden lo que dije hoy
-
-也看到了很多人都被安抚了
-También verán a muchas personas que serán consoladas
-
-买房的交房, 欠钱的按期付款
-El comprador de la casa lo entregará, y el dinero adeudado se pagará a tiempo
-
-但不准上街闹事
-Pero no deben crear disturbios en la calle
-
-习一听
-Xi al escuchar esto
-
-这事很好, 阻止了各种其他房地产商
-Dijo, esto es algo bueno y ha detenido a varios agentes inmobiliarios
-
-来到我这闹事
-A crear problemas aquí
-
-那么现在我告诉大家
-Entonces ahora les digo a todos
-
-恒大倒不倒
-Evergrande Group caerá o no
-
-关键是第一张牌
-El punto crucial es la primera carta
-
-一定会让你惊艳
-De seguro te sorprenderá
-
-共产党的一堆办法
-El Partido Comunista tiene cantidades de soluciones
-
-就是要让恒大不倒
-Para que Evergrande Group no se caiga
-
-你会看到一堆措施
-Verás muchas medidas
-
-但是最终我告诉你
-Pero finalmente, te digo
-
-一定会倒
-Seguramente caerá
-
-而且倒的非常的惨
-Y de la manera más terrible
-
-而且许家印进不了监狱, 许加印一定是车祸死啊
-Además, Xu Jiayin no entrará al carcel, él será muerto de un accidente automovilístico
-
-心脏病死啊、自杀啊
-De un infarto, suicidio
-
-猝死等, 一定这结局
-Muerte súbita, entre otros, el final debe ser así
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24](https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24)
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/ 发稿 云起时

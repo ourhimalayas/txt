@@ -2,23 +2,15 @@
 ---
 
 
-## 日本自民党总裁选举原来是螳螂捕蝉黄雀在后
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559800/)
+## 英国：军队对燃料危机保持警惕
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1559945/)
 
-#### 撰稿：东京樱花团/华夏小哥
-![](https://assets.gnews.org/wp-content/uploads/2021/09/19-6.png)
-众所周知，河野太郎父亲的日本端子公司与共匪暗中勾兑，一家三代舔共卖日。但为何日本媒体对此却视而不见呢？尤其是朝日、每日、东京报纸、NHK、TBS等大媒体没有任何报道。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/09/09281.jpg)
+英国已将军队置于戒备状态，以用于对油轮的保护及使用军事司机来弥补该国因缺乏平民司机而导致的燃料危机，目前需要向很多石油分销商供货，因为他们的存储都干涸了。能源部在一份声明中说：“将有限数量的军事司机处于戒备状态，必要时将被雇用以进一步稳定燃料供应链”。
 
-据最新消息，立宪民主党和日本共产党有建立联合政府的计划。正所谓，螳螂捕蝉黄雀在后，不识太郎真面目，只因身在谎言中。
+免责申明：本文只代表译者观点，与Gnews无关
 
-可以预见，若河野太郎当选自民党新总裁，10月4号成立新政府之后，日本媒体便会以日本端子株式会社在中国的商业行为以及政治献金丑闻为由发动攻击，推翻河野政府，并推动建立以立宪民主党和日本共产党的反对党联盟。届时日本政坛将会更加混乱，中共在日本的蓝金黄渗透会更加猖獗。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/09/27/gb-esercito-in-stato-dallerta-per-crisi-carburanti\_4e852ddf-17f4-438b-88d0-8d26e6d5320a.html](https://www.ansa.it/sito/notizie/topnews/2021/09/27/gb-esercito-in-stato-dallerta-per-crisi-carburanti_4e852ddf-17f4-438b-88d0-8d26e6d5320a.html)
 
-此次日本自民党总裁选举实质上是美国（安倍、麻生）和中共（二阶、河野、石破茂）在日本政坛代理人的选举之战，究竟鹿死谁手？我们只能拭目以待。
-
-[信息来源](https://www.asahi.com/amp/articles/ASP986S9PP98UTFK014.html)
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
