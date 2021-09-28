@@ -2,60 +2,27 @@
 ---
 
 
-## 前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1559409/)
+## 《疫苗死亡报告》：殡葬师大胆发声
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559450/)
 
-前白宫经济顾问皮特·纳瓦罗： 推特上的“取消文化”又开始(作怪)了。他们决定不允许我为我的推文做广告。很显然,真相刺激了他们泼妇般敏感的神经。这些人是谁？ 盖特(GETTR)是推特杀手。推特的“取消文化”正在摧毁美国。
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+约翰·奥卢尼（John O’Looney）是来自于英国的一位殡葬师，他是一个非常有说服力的目击者。10年来，他是英国最大的殡葬公司的一员。约翰与英国广播公司（BBC）合作，记录大流行病的情况，并与因大流行病而被政府任命的一名官员紧密合作。他与其他45个殡葬师都有联系，因此，对正在发生的事情有一个非常清楚的概述。他所披露的情况令人震惊。
 
+首先，他作证说，在所谓的冠状病毒大流行病期间，他或他认识的任何其他殡葬师都没有看到死亡人数增加。这是令人震惊的，因为在电视上他们不断看到大量死亡信息的传播，但现实中却没有这样的迹象。然而，在2020年3月，约翰突然晚上被呼叫，连续三周，专门去养老院。所有在那里死亡的人都被标记为中共病毒死者。他从来没有看到过一个医生在场，也没有做过一次中共病毒测试。与此同时，咪达唑仑（Midazolam）的销量突然增加了1000%。一名护士秘密地告诉他，他（她）们如何被指示给老人注射致命剂量的这种药物，从而大规模地消灭他们（养老院院老人）。这些大量的死亡数字随后被用来宣传支持“中共病毒大流行”的说法。
 
+一位政府大流行病官员也找过他，告诉他，他们必须把每一个人的死亡都标为中共病毒死因。被车撞死的人、心脏病发作的人、癌症患者，不管是什么原因造成的死亡，他们都必须被标记为因中共病毒而死亡。这是来自政府的直接指示。
 
-> The cancel culture twits at Twitter are at it again. They have decided they won't allow me to advertise my tweets. Apparently truth offends their pearl-clutching sensibilities. Who ARE these people?
-> 
-> GETTR is the Twitter Killer. Twitter's cancel culture is destroying America.
-> — Peter Navarro (@RealPNavarro) [September 27, 2021](https://twitter.com/RealPNavarro/status/1442283619926564872?ref_src=twsrc%5Etfw)
+约翰说，政府为英国人口大规模接种疫苗一开始，死亡人数突然激增。“作为一个做了15年殡葬师的我，从来没有见过这样的事情。而这正是从他们开始在人们的手臂上扎针开始的。我从没有见过这么高的死亡率。那是非常可怕的。大流行病的（死亡）数字只是在他们开始接种疫苗之后（飙升的），在那之前从未发生过。”约翰解释说，他们尽可能多地将（死者）标记为中共病毒死亡。第一波疫苗接种和由此产生的死亡持续了大约12周。然后是一个非常平静的时期，接着又是一波新接种疫苗人的死亡。
 
+“每一个有一丝诚实的殡葬师都会告诉你，所有在我们周围死去的人都是疫苗接种者。根本不存在中共病毒大流行，我就是活生生的证人。”
 
+“这都是为了让你接种疫苗。在我的殡仪馆关系网信息中，没有一个孩子死于中共病毒，所以，没有任何理由将疫苗用于儿童。（肯定）存在一个人口减少的计划。正是疫苗在杀人，作为殡仪馆馆长，我亲眼看到了这一切。”
 
-美国务院发言人内德·普莱斯： 国务卿布林肯与新加坡外交部长[@VivianBala](https://twitter.com/VivianBala) 进行了交谈，并肯定了我们国家的密切伙伴关系。他们讨论了我们对印太地区、太空合作和应对气候危机的承诺。 【附国务院官网新闻】
+**参考资料：**[https://www.stopworldcontrol.com/director](https://www.stopworldcontrol.com/director)
 
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
 
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) spoke with Singaporean Foreign Minister [@VivianBala](https://twitter.com/VivianBala?ref_src=twsrc%5Etfw) and affirmed our countries’ close partnership. They discussed our commitment to the Indo-Pacific region, space cooperation, and combatting the climate crisis. [https://t.co/D5Uai0fWpn](https://t.co/D5Uai0fWpn)
-> — Ned Price (@StateDeptSpox) [September 27, 2021](https://twitter.com/StateDeptSpox/status/1442609472128659459?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 通过恐怖主义人质外交取胜. 【转推称：孟晚舟和加拿大人质的交换是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和卖美贼幕后交易的的结果】
-
-
-
-> China wins using terroristic hostage diplomacy [https://t.co/7D2hELRswq](https://t.co/7D2hELRswq)
-> — Bill Gertz (@BillGertz) [September 27, 2021](https://twitter.com/BillGertz/status/1442302993534128135?ref_src=twsrc%5Etfw)
-
-
-
-众议院共和党领袖凯文·麦卡锡 ： 民主党正试图将4,300,000,000,000美元的 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 宠物项目强加给美国人民。 它会导致通货膨胀 这会让我们的孩子背上债务 它将会改变政府的模样,正如我们所知道的. 这是个很糟糕的协议——共和党人将全力而战. 【附福克斯新闻：麦卡锡关于众议院民主党人的开支闪电战】
-
-
-
-> Democrats are trying to force $4,300,000,000,000 in socialist pet projects on the American people.
-> 
-> It would cause inflation.
-> It would saddle our children with debt.
-> It would transform government as we know it.
-> 
-> It’s a BAD DEAL—and Republicans will fight it tooth and nail. [pic.twitter.com/VEuUd0YW6o](https://t.co/VEuUd0YW6o)
-> — Kevin McCarthy (@GOPLeader) [September 27, 2021](https://twitter.com/GOPLeader/status/1442535002823036932?ref_src=twsrc%5Etfw)
-
-
-
-众议员马乔丽·泰勒·格林： 国会应该保护被困在阿富汗的美国人，关闭边境入侵，并帮助被 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发送给我们的病毒摧毁的小企业。 与之相反，民主党正在通过法案来谋杀子宫内直到出生前的胎儿。
-
-
-
-> Congress should be protecting Americans trapped in Afghanistan, shutting down the border invasion, and helping the small businesses destroyed by the virus sent to us by China. 
-> 
-> Instead, Democrats are passing bills to murder babies in the womb up until birth. 
-> 
-> (Part 1) [pic.twitter.com/6g7UJsUdrx](https://t.co/6g7UJsUdrx)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [September 27, 2021](https://twitter.com/RepMTG/status/1442548123092635652?ref_src=twsrc%5Etfw)
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)

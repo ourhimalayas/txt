@@ -2,21 +2,18 @@
 ---
 
 
-## 【G时新闻】法国海军参谋长称，中共海军崛起令人担忧
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559785/)
+## 雅典娜时报-第065期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559814/)
 
-播报员：翌珊 制作：Kent
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-美国和盟军需要加强对中共的武力震慑，牢牢掌握住太平洋及南中国海海域的自由航行权，才能将中共称霸印太地区的野心扼杀在摇篮里!
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/11-37.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/22-6.png)
+***发布：小红帽***
 
-法国海军参谋长皮埃尔∙范迪埃上周六在接受电台采访时称，对于中共在南海进行的人工岛礁建设和军事化问题，美国和包括法国在内的盟国海军将通过举行诸如“环太平洋军演”等大型规模演习，对中共进行武力威慑。
-
-范迪埃认为，目前中共所面临的挑战，是如何在不引发战争的情况下部署军事力量。在中共海军势力不断壮大，逐步向美国盟友施加压力，这些国家慢慢地放弃了美国，倒向中共，这令所有人感到担忧。
-
-原文链接：[法国海军参谋长称，中共海军崛起令人担忧](https://gnews.org/zh-hans/1558467/)
-
-[盖特链接](https://gettr.com/post/pcg6nx4bfd)
-
-* * *
-
-编辑/ 发稿 云起时
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

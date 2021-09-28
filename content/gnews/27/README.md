@@ -2,37 +2,42 @@
 ---
 
 
-## 澳洲议员抨击：强制接种疫苗与“种族隔离”无异
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559546/)
+## 中共国房企的现金紧缺蔓延到融创
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559580/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-129.jpg)
-图片来源：*ABC News: Tamara Penniket*
+栏目记者/责任编辑：AsG諾雅
 
-**【雅典娜快讯】，紧贴时事脉搏**
 
-周一下午，自由党国民议会议员乔治·克里斯滕森（George Christensen）在一个在线广播中，将强制接种疫苗与奴隶制和“种族隔离”进行了比较。他警告说强制工人接种疫苗会产生一个新的“麻风病人”社会等级制度。
 
-在Telegram（一个深受极右翼团体欢迎的平台）的直播中，克里斯滕森将强制接种疫苗运动与奴隶制进行了比较。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-402.png)
 
-“这不是反疫苗。这关乎自由，关乎选择，关乎对政府和企业表示–我们是你的雇员，不是你的资产。我们不再是奴隶关系，你不可以要求对我的身体做某些事情，”克里斯滕森说。
 
-克里斯滕森表示，“这一切很荒唐。这是一种源自过去的观念，以及在工作场所强制要求接种疫苗的主要原因。这是不公平的。某些政客提出的强制要求，不打疫苗就不能工作，以及所有其他的疫苗歧视和医疗隔离规定，都是没有事实依据的。”
 
-“如果你接种了疫苗，我们为什么要隔离人群？为什么我们把人划分到不同的区域。这种封锁会把你当作麻风病人对待，你会失去工作，找不到工作，不能去购物，或者去看体育比赛”。这是灾难。”克里斯滕森强调。
+零对冲9月26日消息，融创公司的子公司在其房产销售项目受到当地住房禁令影响后，向绍兴市当局致信寻求援助，声称市场几乎被冻结，该公司面临巨大资金压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture1-6.jpg)
+消息传出后，融创的美元债于周五出现极速下滑，2024年到期的5.95%票据跌至历史最低价。而融创在“彭博中共国高收益美元债券指数”中的权重排名第三，仅次于凯撒和工商银行本月出售的高风险债券。
 
-克里斯滕森敦促那些不想接种疫苗的工人不要辞职，而是要向工会和律师寻求法律建议。
+实际上，融创公司在房企“三道红线”排名中比恒大状况好，其在全球三大信用风险评估机构中也拥有较高的投机级评级，其负债约为恒大的一半。但伴随房地产市场的下跌，及中共维持削减行业杠杆率和冷却住房销售活动的规则，财务状况比恒大好的公司也正在受到波及。该公司今年以来，股价已经跌了一半以上，而且正在寻求出售资产以筹集现金。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+中共通过蓝金黄，多年来已经成功地把中资企业植入到了欧美等国的资本市场中，中资企业暴雷必将动摇各国经济和社会。当中共无以存续的时候，势必引爆经济炸弹，企图把西方各国拉进深渊，呼吁能够听到爆料革命声音的投资方及早止损出局。
 
-**参考新闻：**[George Christensen compares vaccine mandate with ‘apartheid’ | news.com.au — Australia’s leading news site](https://www.news.com.au/national/politics/nationals-mp-george-christensen-compares-mandatory-vaccines-with-apartheid/news-story/b5385e22f7ff6bcf42cc5dba8080d7b8)
+（本文仅代表作者观点）
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+参考链接：
+1. [中共国房企的现金紧缺蔓延到融创](https://www.zerohedge.com/markets/we-face-huge-pressure-chinas-developer-cash-crunch-spreads-sunac)
+2. [中共国房企的现金紧缺蔓延到融创](https://www.futunn.com/en/stock/01918-HK)
+3. [中共国房企的现金紧缺蔓延到融创](http://house.hexun.com/2021-07-27/204039066.html)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-2.png)
+
+终审编辑：瑞卡
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-406.png)

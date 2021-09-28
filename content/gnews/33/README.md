@@ -2,27 +2,35 @@
 ---
 
 
-## 《疫苗死亡报告》：殡葬师大胆发声
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559450/)
+## 13岁孩子接种疫苗后心脏骤停
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559472/)
 
-#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
-翻译：彩虹
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
-约翰·奥卢尼（John O’Looney）是来自于英国的一位殡葬师，他是一个非常有说服力的目击者。10年来，他是英国最大的殡葬公司的一员。约翰与英国广播公司（BBC）合作，记录大流行病的情况，并与因大流行病而被政府任命的一名官员紧密合作。他与其他45个殡葬师都有联系，因此，对正在发生的事情有一个非常清楚的概述。他所披露的情况令人震惊。
+加拿大多伦多枫叶农场 – 视频字幕：Kent 文字翻译：云起时
 
-首先，他作证说，在所谓的冠状病毒大流行病期间，他或他认识的任何其他殡葬师都没有看到死亡人数增加。这是令人震惊的，因为在电视上他们不断看到大量死亡信息的传播，但现实中却没有这样的迹象。然而，在2020年3月，约翰突然晚上被呼叫，连续三周，专门去养老院。所有在那里死亡的人都被标记为中共病毒死者。他从来没有看到过一个医生在场，也没有做过一次中共病毒测试。与此同时，咪达唑仑（Midazolam）的销量突然增加了1000%。一名护士秘密地告诉他，他（她）们如何被指示给老人注射致命剂量的这种药物，从而大规模地消灭他们（养老院院老人）。这些大量的死亡数字随后被用来宣传支持“中共病毒大流行”的说法。
+视频文字（中文）：
 
-一位政府大流行病官员也找过他，告诉他，他们必须把每一个人的死亡都标为中共病毒死因。被车撞死的人、心脏病发作的人、癌症患者，不管是什么原因造成的死亡，他们都必须被标记为因中共病毒而死亡。这是来自政府的直接指示。
+我的女儿刚刚从学校联系我，非常的难过和生气。她的一个朋友，正在哈利法克斯的医院里接受重症监护，因为她的心脏在她一打完疫苗之后就停跳了。 她现在情况很不好，无法呼吸，她的心脏一直在停止跳动。她今年才13岁！13岁！她的心脏居然停止跳动了！你们有多少人听说过一个13岁的孩子会心脏停跳？ 而这就是我们的政府正在强迫我们所有人和我们的孩子做的事。一个13岁的女孩在新斯科舍省哈利法克斯市, 现在正躺在医院里，因为她的心脏在注射疫苗后停止跳动了。
 
-约翰说，政府为英国人口大规模接种疫苗一开始，死亡人数突然激增。“作为一个做了15年殡葬师的我，从来没有见过这样的事情。而这正是从他们开始在人们的手臂上扎针开始的。我从没有见过这么高的死亡率。那是非常可怕的。大流行病的（死亡）数字只是在他们开始接种疫苗之后（飙升的），在那之前从未发生过。”约翰解释说，他们尽可能多地将（死者）标记为中共病毒死亡。第一波疫苗接种和由此产生的死亡持续了大约12周。然后是一个非常平静的时期，接着又是一波新接种疫苗人的死亡。
+这是我女儿的朋友，她曾在我家里待过，她曾在我的餐桌上与我共进晚餐。 这可能会是你的孩子，可能会是你的侄女、侄子、孙子女。你的邻居。 这些人到底有什么毛病？由于这种疫苗，世界各地都有儿童死亡，世界各地都有成人死亡，甚至美国食品和药物管理局都已经告诉了你们，但我们的政府仍在强迫人们接种疫苗，才能够参与社会活动。
 
-“每一个有一丝诚实的殡葬师都会告诉你，所有在我们周围死去的人都是疫苗接种者。根本不存在中共病毒大流行，我就是活生生的证人。”
+你知道关于这孩子的这件事最糟糕的部分是什么吗？ 是她在我家里说，她不想接种疫苗，如果她不打算接种疫苗的话，她的父母将尊重她的决定，但当我们的省长休斯顿先生决定强制要求孩子们接种疫苗才能够参加体育运动，她觉得自己别无选择，只能接受，因为她喜欢踢足球。 你们怎么敢，对我们的孩子做这样的事情
 
-“这都是为了让你接种疫苗。在我的殡仪馆关系网信息中，没有一个孩子死于中共病毒，所以，没有任何理由将疫苗用于儿童。（肯定）存在一个人口减少的计划。正是疫苗在杀人，作为殡仪馆馆长，我亲眼看到了这一切。”
+视频文字（英文）：
 
-**参考资料：**[https://www.stopworldcontrol.com/director](https://www.stopworldcontrol.com/director)
+So my daughter，Just contacted me from school。 Very upset。 One of her friends ，is now in critical care in the hospital here in Halifax because her heart stopped, right after she had a vaccine!
 
-[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
+She’s not well right now she can’t breathe, her heart keeps stopping. She’s 13 years old！13 years old！And her heart stopped! How many of you know a 13-year old whose heart stops?
 
-**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)
+And this is what our government is forcing on all of us and our children. A 13-year-old girl in Halifax Nova Scotia is in the hospital right now because her heart stopped after the vaccine.
+
+That’s my daughter’s friend. She’s been in my home. She’s had dinner with me at my table. That could be your child, could be your niece your nephew your grandchild, your neighbour. What the fxx hells wrong with you people!
+
+There are children dying all over the world, there are adults dying all over the world, from this vaccine. The FDA has even told you. But yet our government is still forcing people to be vaccinated to be able to partake in society. 
+
+Do you want to know what the worst part of this is with this child? Is that she was in my house saying, she didn’t want the vaccine if she wasn’t going to get the vaccine. And her parents respected her decision. But when our premier Mr Houston decided to mandate vaccines for children to be able to play sports, she felt she had no other choice but to take it because she loves playing soccer. 
+
+How dare you do this to our children!
+
+* * *
+
+编辑/ 发稿 云起时

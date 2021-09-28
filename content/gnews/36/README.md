@@ -2,37 +2,51 @@
 ---
 
 
-## 从最高视角看懂孟晚舟获释，华为和她本人的灾难刚刚开始
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1559364/)
+## 《疫苗死亡报告》：真正的解决方案——早期治疗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1559449/)
 
-**作者：新西兰伊甸农场 亚伦**
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：致敬香港！
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+带有毒副作用的新冠疫苗无法结束疫情，那么人类将如何得到解救？答案很简单：在这场全球健康危机伊始之际，就有不少著名的科学家和医生大声疾呼，他们已经使用安全有效的现有药物成功治疗了成千上万的中共病毒感染者。比如，著名的法国教授迪迪埃·拉乌尔（Didier Raoult），他是传染病和微生物学家领域最大研究组织之一的负责人。根据国际统计学会（ISI）的数据，他是欧洲被引用次数最多的微生物学家，自 1998 年以来，他的实验室培训了超过 457 名外国科学家，他的1950 多篇文章在国际统计学会或 PubMed搜索引擎上被引用，被公认是世界上最重要的传染病专家。拉乌尔教授使用了羟氯喹（hydroxychloroquine）治疗中共病毒感染者，这个药已经有 60 多年的历史，它的安全性和治疗冠状病毒的有效性已经远近闻名。
 
+**拉乌尔教授用羟氯喹+阿奇霉素治疗了 4000 多名中共病毒感染者，除少数原本患有多种疾病的高龄患者以外，几乎所有人都康复了**。
 
+这项惊人的成就激励了世界各地的很多医生开始使用相同的药物。在荷兰，罗伯·埃伦斯（Rob Elens）博士给他所有的新冠患者都服用了羟氯喹和锌，平均四天后康复率达到 100%，没有人需要入院治疗。这位医生与其他 2,700名专业医务人员一起致函荷兰政府，要求将羟氯喹纳入标准治疗方案。 埃伦斯博士和其他荷兰医生还建立了一个叫“新冠（中共病毒）自我护理（COVID-19 Self Care）”的网站，提供如何服用羟氯喹和锌来预防及治疗中共病毒感染的信息。
 
-**9月26日，文贵先生在GTV大直播中透露，华为的背后有两个“官方的爹”：一个是总参二部，就是解放军的情报部；一个就是习皇帝的姐夫老吴（习近平的姐夫是华为股东）。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/b128-84c62b02f53041f1078482bf28b2e8b4.png)
+纽约家庭医生弗拉基米尔·泽连科 (Vladimir Zelenko) 在疫情初期，使用“羟氯喹+锌+阿奇霉素”治疗了 500 多名新冠患者，康复率也达到了100%，几乎没有任何副作用，也没有入院病例。截至 2021 年 8 月，泽连科医生及其团队成功治疗了6000 多名新冠患者，他的新冠治疗方案已经世界闻名，采用者包括远程医疗平台https://www.speakwithanmd.com/ ，还有会员人数超80万的 “美国前线医生（Americas Frontline Doctors）”组织， 这些药物正在拯救全球数以亿计的生命。
 
+**已经有数百项研究证实了羟氯喹对于中共病毒感染的治疗、预防重症和死亡的有效性。**
 
-**华为是中共亲手打造的一个靠科技蓝金黄对付西方，利用通信系统特别是****5G****技术欲征服世界的平台。领头人任正非是当年给军队的领导搞农场、搞游泳池的。如果让华为的任何人，把华为的本质告诉了美国和西方****社会****，所有过去这些年埋在西方的偷取技术和蓝金黄网络将会全部暴露。**
+世界顶尖的科学家皮埃尔·科里（Pierre Kory）医生和彼得·麦卡洛（Peter McCullough）医生，都是各自领域内发表论文最多的医学专家。他们和团队都使用伊维菌素等药物成功治疗了数万名中共病毒感染者，科里医生和顶级医学专家组成的团队一起，经过对全部医学文献的九个多月的研究，发现伊维菌素这个经过验证的神奇药物可以有效预防和治疗中共病毒。
 
-**当然，包括美国的华尔街、甚至五角大楼里出卖美国国家利益的卖美贼，也将全部暴露。所以美国的卖国贼为了摆脱罪责也不希望孟引渡至美国受审。除了美国之外，也包括英国、德国、法国等被华为蓝金黄的官方人士，都在极力阻止孟晚舟引渡到美国。即便到现在，英国华为仍然有****2****万****6****千个华为的信号基站，现在一个都没拆。**
+**已有63 项研究证实了伊维菌素治疗中共病毒感染的有效性。**
 
-**总结孟晚舟可以在认罪下延迟起诉而脱身，主要有三个方面的原因：**
+在玻利维亚，生物物理学家安德烈亚斯·卡尔克（Andreas Kalcker）使用二氧化氯将每日的患者死亡率从100降低到了 0，他还被几个拉美国家邀请为部队、警察和政治家提供治疗。他发起的 COMUSAV.com 组织有全球数以千计的医生、学者、科学家和律师参与，共同推广这种有效疗法。
 
-**一、这是与中共勾兑的这些西方国家“沼泽地”力量、情报机关最想要的结果，可以免于追查；**
+参考资料：
+1：https://www.sciencedirect.com/science/article/abs/pii/S1477893920302179?via%3Dihub
+2：https://artsencollectief.nl/https://zelfzorgcovid19.nl/
+3：https://techstartups.com/2020/04/05/new-updates-dr-vladimir-zelenko-cocktail-hydroxychloroquine-zinc-sulfate-azithromycin-showing-phenomenon-results-900-coronavirus-patients-treated-must-watch-video
+4：https://thezelenkoprotocol.com/
+5：https://americasfrontlinedoctors.org/treatments/hydroxychloroquine/science-of-hcq
+6：https://www.sciencedirect.com/science/article/pii/S0924857920304258/
+7：https://c19hcq.com/
+8：https://ivmmeta.com
+9：https://covid.us.org/2021/01/28/ivermectin-safe-effective-covid-19/
+10：https://brandnewtube.com/watch/dr-mccullough-shares-is-hcq-truly-safe-for-covid-19\_ForRTpkTvv6EKrlz.html
+11：https://www.stopworldcontrol.com/cds
+12：https://comusav.com
+13：https://andreaskalcker.com
 
-**二、华为第二个“亲爹”是习的亲姐夫老吴，华为股份的持有者。华为与****ZTE****中兴，这都是皇帝习家的私产。习可以用国家的名义和国家的外交力量，让孟晚舟回去；**
+**治疗方法的信息**
+www.CovidPatientGuide.com
+www.C19Protocols.com
+www.TheCovidRemedy.com
+www.FlemingMethod.com/best-available-published-evidence
+www.StopWorldControl.com/cures
 
-**三、也是最重要的，只有孟晚舟知道“钱路”。孟晚舟代持了任正非在海外至少隐藏的****3000****亿美元资产，因为资产是通过信托产品，必须要代持人本人出面签字，否则其他人是拿不走的。所以孟一定是要回去的，不然这****3000****亿美元就没了。**
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
 
-**但是孟晚舟认罪无判的回归，也引发了重大的影响。**
-
-**首先对于孟本身，是她个人悲剧的开始，她要么意外死掉，要么被控制着活一辈子。当一个人被贴了标签，被高高挂起在高位，那她一辈子都将是一个牺牲品，会死的会比王健惨一万倍。**
-
-**对国内政治斗争的影响，习通过孟晚舟事件告诫党内。只要跟习的，吃香的喝辣的，即使犯罪都能无罪接回来继续做民族大英雄，接受无脑小粉红和拿佣金举国旗的人顶礼膜拜。跟随王岐山的人，就是王健，陈峰的下场。跟随多家常委骑墙派的，就是许家印的下场。**
-
-**最后文贵先生还告诉大家两点：孟晚舟回国会比去美国还惨，她结局会非常惨，被高高挂起不会超过****2025****年；华为的灾难，一切糟糕的事情，从孟晚舟回国开始。**
-
-**孟这穿着红裙一回国，彻底激怒了当时制裁华为的力量，美国的科技领域极右派，背后的****AT&T****、硅谷等公司。也包括金融领域的极右派，一定要灭掉华为自己才能赚钱的，再就是要废掉华为保美国根本的鹰派军方。华为成了中共和西方科技较量的第一杆枪，结局一定是被美国消灭。**
-
-**这也正和芯片联系在一起了，华为现在的主攻方向就是芯片，任正非在低调地研发芯片。芯片的较量，使华为会成为中国和西方世界敌对的核心，所以也将成为不管输赢的牺牲品。**
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injection](https://www.stopworldcontrol.com/report/)
