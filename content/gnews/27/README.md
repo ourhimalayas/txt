@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年9月27日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558847/)
+## 2021年9月27日 文贵先生盖特 10
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1558873/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-Say “NO” to covid vaccine! Say “No” to mandate covid vaccine before it is too late! Spread out the truth to stop all the disasters! This notorious vaccine not only taking away our rights but also murdering our loved ones. How many people were forced to take the vaccine against their will?! How many people were killed because of this vaccine?! How many people are facing the problem of side effects that may occur in the future? Such as autoimmune neurologic disorder that includes weakness and paralysis in the limbs and muscles, and thrombosis with thrombocytopenia syndrome (TTS), which causes blood clots and low platelet levels, persistent headaches, visual changes, abdominal pain, chest pain, leg pain, coldness in limbs and acute bruising or bleeding.
+**If you want to protect your family, please keep them away from the Covid vaccine, spread out the truth, and reach out a helping hand to those in need. For those already vaccinated, please avoid the 2nd and 3rd doses; If you start having the symptoms, please seek help and don’t hesitate to ask your doctor to give you Ivermectin plus Doxycycline and Artemisinin for the Treatment of Covid-19 Infection.**
 
-[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcdp8wc1a8)
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcbwmh2d6c)
 
 **喜联盟Gnews编辑部**

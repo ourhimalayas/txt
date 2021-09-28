@@ -2,47 +2,33 @@
 ---
 
 
-## 以色列数千人抗议疫苗护照新规定——接种加强型疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1558805/)
+## DC每日热点0927
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1558825/)
 
-作者：纽约香草山农场 – 四季
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6BD79BDB-3D5A-4351-9BF9-146E73E3875C-scaled.jpeg)
+道琼斯指数 35005.24 ▲0.60%
+纳斯达克指数 14897.29 ▼1.00%
+WTI纽约原油CFD 75.514 ▲2.07%
+布伦特原油CFD 75.514 ▲2.14%
+美元兑人民币 1USD=6.458RMB
+美元兑港币 1USD=7.784HKD
+国际黄金 1755.93 美元/盎司
+全球CCP病毒感染人数 232,696,764 例
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
-
-
-
-据[门道专家](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)9月26日报道，以色列数以千计的人在特拉维夫抗议疫苗护照，该护照现在要求公民打加强针才能被视为 “完全接种”。不接种加强疫苗的人将回到原点，不再有机会参加日常活动，就像那些一开始就没有接种过疫苗的人一样。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1064-1-Screenshot_20210926-134129_Twitter-913x479-1.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)
-
-上月底，以色列卫生官员宣布，根据该国的疫苗护照制度，任何在第二次接种后6个月内没有接受第三次接种的人将不再被视为 “完全接种”。
-
-到目前为止，几乎三分之二的以色列人已经配合政府的限制，完全接种了疫苗，但现在第三针强制接种已被授权，人们正聚集在一起，集体抗议限制性的疫苗护照。
-
-自从疫苗仓促上市以来，以色列公民一直是第一批接种的人。现在他们的政府想把他们作为实验的小白鼠，来注射更加仓促开发的加强型疫苗。强行注射这些加强针证明疫苗没有提供免疫力，难怪以色列的医院85-90%的新病例都来自于已接种疫苗的个人。
-
-事实上，以色列特拉维夫大学的一个研究小组最近对80万人进行了广泛的研究，研究结果表明，接种疫苗的人感染新的病毒变种的可能性比拥有自然免疫力的人高13倍，完全接种疫苗的人 “住院的风险更大”。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+1、隶属英国皇家海军“伊丽莎白女王”号航母打击群的一艘护卫舰星期一（2021年9月27日）通过台湾海峡
+2、欧盟-美国不顾法国的愤怒寻求共享技术规则
+3、恒大子公司新能源放弃上海股市计划 公司港股应声而降
+4、德国大选结果不明朗 陷入漫长谈判组阁期
+5、中共国法院禁诉令禁止起诉中共国企业知识产权侵权
+6、加拿大外长称与中共国关系：共存、竞争、合作和挑战
+7、欧盟高官：美欧贸易和技术委员会将为21世纪制定标准和规则
+8、加拿大全球事务部在发给Global News的一份邮件声明中称，截至9月26日，仍有至少115名加拿大人被关在中共国监狱里，至少四人是死刑犯
+9、纽约州府：违法购买、持有假疫苗卡恐坐牢
+10、纽约州劳工部表示，那些拒绝接种COVID-19疫苗并因未遵守该州新的法律而被解雇的医护人员，将无法领取失业救济金，除非他们展示医生批准的医疗豁免申请表
+11、辉瑞CEO：1年内恢复正常生活 每年或要打疫苗
+12、悉尼各主要大学正考虑推出强制学生接种疫苗的政策
+13、澳总理联大演讲再次呼吁查清疫情源头
+14、英燃油危机加深 一半以上独立加油站缺油停摆
+15、中共国东北23日起多个城市传出停电消息，多间苹果、特斯拉供应商在中国的工厂也因当地限电政策而暂停生产
+16、台陆委会猛批朱立伦回习近平贺电 新华社也对两人电传删减报道

@@ -2,51 +2,101 @@
 ---
 
 
-## 9月25日意大利声势浩大的反绿色通行证抗议，但是媒体报道“人数很少”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1559093/)
+## 煤价太贵，污染严重是中共国停电的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559119/)
 
-翻译整理/简评： 意大利罗马达芬奇农场  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/123-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=6151d1ead2e2b817486ebb99](https://gtv.org/video/id=6151d1ead2e2b817486ebb99)
 
-意大利各个重要媒体对9月25日声势浩大的游行报道用词是“数百人在街上”,“不到一千人在街上”。当一位意大利公民读到这样的报道，会面对以下两种可能性：一是面对昨天意大利60个城市爆发的反绿色通行证的抗议，许多重要报纸选择不报道，或者不放在首页；还有一种可能便是发现有示威游行，但被告知参加者极少，是“否认新冠病毒存在者”，有可能是法西斯分子。那么9月25日真的像媒体报道的那样只有少数人走上街头吗？
+**郭文贵
+Miles**
 
-以下是从推特上截取的一些视频。第一个视频是在罗马圣乔万尼广场， 连国家警察也反对绿色通行证。
+刚才很多战友说这个安徽啊，广东啊，江苏大范围停电
+Just now, many comrades in arms said that Anhui, Guangdong, and Jiangsu had a large-scale power outage.
 
+为啥，跟打台湾没有任何关系，
+Why？ It has nothing to do with attacking Taiwan
 
+它停电是因为煤价越来越高
+It’s power outages because coal prices are getting higher and higher
 
-> Piazza San Giovanni a Roma oggi è piena…… Anche la polizia di stato è [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/AaczcQfBnw](https://t.co/AaczcQfBnw)
-> — Luigino Degani (@LDegani) [September 26, 2021](https://twitter.com/LDegani/status/1441917479060754437?ref_src=twsrc%5Etfw)
+煤价越来越高，发出来的电赔钱
+The price of coal is getting higher and higher, and the generated electricity lose money
 
+现在国内呢，是收你1块的电费，赔大概7分钱，赔7分钱
+Now in China, it charges you 1 yuan for the electricity bill, and loses about 7 cents
 
+它不愿意发电，再一个呢，现在更夸张的事情
+It doesn’t want to generate electricity now, and one more thing now is even more exaggerated
 
-第二个视频9月20日在特利亚斯特市中心成千上万的人们在市中心高喊“ 不要绿色通行证”。
+这个污染啊，这个污染的越来越厉害
+This pollution, this pollution is getting worse and worse
 
+因为大家都是乱整嘛，所以说现在是很大的问题
+Because everyone is messy, so it’s a big problem now
 
+缺电，缺到啥程度呢，你都很难想象
+It’s hard to imagine the lack of electricity to what extent
 
-> [#Trieste](https://twitter.com/hashtag/Trieste?src=hash&amp;ref_src=twsrc%5Etfw), lunedì 20 settembre 2021: migliaia di persone sfilano per il centro storico al grido "No [#greenpass](https://twitter.com/hashtag/greenpass?src=hash&amp;ref_src=twsrc%5Etfw)". [pic.twitter.com/LHqnIQMVcM](https://t.co/LHqnIQMVcM)
-> — Giacomo Bertoni (@ParcodiGiacomo) [September 20, 2021](https://twitter.com/ParcodiGiacomo/status/1440008528404549633?ref_src=twsrc%5Etfw)
+只有中共国能做得到，过去需要1度电
+Only the Communist Party of China can do it. In the past, 1 kWh of electricity was needed
 
+现在呢，能满足你0.4度电
+but now, only provide your 0.4 kilowatt of electricity
 
+没有一个真正的工业文明国家说突然缺电能缺10%以上
+There is no real industrial civilization country that sudden power shortage is more than 10%
 
-第三个视频是在米兰，警察在对付反疫苗通行证的抗议者。
+铲侠你当律师，你懂这道理
+ChanXia, you are a lawyer, you know the reason
 
+没有一个国家说你家里吃饭吃了一年了
+There is no country like China, where people have been eating at home for a year
 
+突然缺粮，缺50%
+and then suddenly there is a shortage of food, a 50% shortage
 
-> Green Pass, tafferugli a Milano: polizia affronta No Green Pass [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#novax](https://twitter.com/hashtag/novax?src=hash&amp;ref_src=twsrc%5Etfw) [#covid](https://twitter.com/hashtag/covid?src=hash&amp;ref_src=twsrc%5Etfw) [#vaccini](https://twitter.com/hashtag/vaccini?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cnriOd34a6](https://t.co/cnriOd34a6)
-> — Local Team (@localteamtv) [September 25, 2021](https://twitter.com/localteamtv/status/1441796564725477376?ref_src=twsrc%5Etfw)
+现在这个当家的有问题了，是吧
+Now this person in charge has a problem, right?
 
+那怎么可能啊，说明这个中共国它就一切都是假的
+How is that possible? It means that everything is fake in this Chinese Communist country
 
+当进口的所有的东西满足不了的时候
+When all the imported things are not enough
 
-第四个视频是在都灵，9月25日反强制绿色通行证。
+全都傻了啊，物价上去，工资上不去
+The people are all stunned, prices go up, wages can’t go up
 
+物价这个价格很高，然后呢，原材料供应又接不了
+Prices are high, but raw materials are not available
 
+还跟澳大利亚又打又闹的
+They’re still fighting the raw materials with Australia
 
-> 25 settembre [#torino](https://twitter.com/hashtag/torino?src=hash&amp;ref_src=twsrc%5Etfw) [#nogreenpass](https://twitter.com/hashtag/nogreenpass?src=hash&amp;ref_src=twsrc%5Etfw) [#nobbligovaccino](https://twitter.com/hashtag/nobbligovaccino?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0CssPdcVxy](https://t.co/0CssPdcVxy)
-> — elena galluzzo (@elenagalluz) [September 25, 2021](https://twitter.com/elenagalluz/status/1441896039762448385?ref_src=twsrc%5Etfw)
+那你不是欠揍嘛，是不是
+So you’re brainless, are you?
 
+所以它必须缺电，它没有一个真正的国家领导的能力和组织
+So it must be short of electricity, it does not have the ability and organization of a true national leadership
 
+原因，就是煤太贵，发电成本太贵，而且污染很高
+The reason is that coal is too expensive, the cost of power generation is too expen-sive, and the pollution is so severe
 
-简评：从主流媒体对民众抗议绿色通行证采取的歪曲事实和轻描淡写地一带而过的报道，我们可以看出我们的Gnews和GTV有多么了不起，多么重要。新中国联邦人一直在为病毒真相和疫苗真相而在大声疾呼。在这场世纪大战中，我们能有讲真话，讲真相的媒体是多么的重要。
+最后结局，停电
+It will only end in a power outage
 
-免责声明： 本文只代表个人观点，并不代表Gnews 平台。
-[原文链接](https://www.lindipendente.online/2021/09/26/no-green-pass-ieri-manifestazioni-imponenti-ma-per-i-media-cerano-poche-persone/)
-上传：意大利达芬奇农场 老中医
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

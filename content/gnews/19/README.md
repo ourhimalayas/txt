@@ -2,146 +2,95 @@
 ---
 
 
-## CCP正在和某大国建造三个生物实验室
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559090/)
+## 今日香港明日西方，中共早已渗透西方
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559104/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/121-Miles-asy99-gbcgn.jpg)
-[https://gtv.org/video/id=6151ceedd2e2b817486eba66](https://gtv.org/video/id=6151ceedd2e2b817486eba66)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/122-a6bev-e7m6z.jpg)
+[https://gtv.org/video/id=6151cfecd2e2b817486ebac2](https://gtv.org/video/id=6151cfecd2e2b817486ebac2)
 
 **郭文贵
 Miles Guo**
 
-共产党正在和某大国正在制造两到三个新的生化武器实验室
-CCP is building up two or three new biological weapon laboratories with a major power
+七哥啥时候知道，今天的香港就是你们西方的明天
+When did I told you that today’s Hong Kong will be the West’s tomorrow?
 
-在东欧一个
-One in Eastern Europe
+明天，你们的未来，然后无处不香港
+Tomorrow, your future, then all over the place will be like Hong Kong
 
-在中东两个都在建造中
-two in Middle East. They are all under construction
+2019年5月份我说香港这事发生
+In May 2019, I said this happened in Hong Kong
 
-7哥掌握一切情况
-I (Miles) have all the information
+我第二天我这直播中我就说过
+I said in my live broadcast the next day
 
-而且到现在，美国只是警告对方
-Up to now, U.S. has only warned those parties
+我说如果你们不救香港，香港的事情会到你世界任何一个国家去
+I said that if you don’t save Hong Kong, repression in Hong Kong will go to any country in the world
 
-你们不要干什么
-saying “You are not allowed to do these”
+你七哥当时说为啥呀，你七哥不是蒙的
+Why I said that, I didn’t make prediction
 
-完全没有措施
-No countermeasures at all
+我也不是预言家，我也不是说预言的
+I am not a prophet, nor am I prophesying
 
-你别把世界想得多么伟大
-Don’t think the world is great
+我当时因为共产党内部的战友
+That was because of our the comrades in arms in the Communist Party
 
-所以说兄弟姐妹们很吓人
-So, brothers and sisters, it is very frightening
+就像我们的大校告诉我说， 我们要什么什么执行的时候
+Just like our colonel told me that when we would do such repression
 
-就在日本周边
-It is close to Japan
+我说那要（是）止不住你们那你们（会怎么样）
+I said if you can’t be stopped, what you would do?
 
-现在建的那个地方
-A laboratory is being built
+他说那我们直接就是跨过南亚直接进欧洲了
+He said that we just crossed South Asia and entered Europe directly
 
-我相信
-I believe
+这不是开玩笑的兄弟姐妹们，就像那个二战打仗一样
+This is not kidding, brothers and sisters, just like the world war II
 
-在日本周边建的那个新的毒实验室
-the new poison-making laboratory is being built close to Japan
+就是希特勒，说你到了波兰你去哪啊，是不是
+It’s like Hitler, “Where else would you go after you invade Poland?”, right?
 
-一旦放的时候，
-Once poisons (viruses) are released
+他直接就从德国直接的就奔着法国，英国就去了，对吧
+He went straight from Germany to France and England, right?
 
-整个日本国一半都会没了
-half of the whole Japan will be gone
+那是肯定的嘛，你挡不住
+That’s for sure, you can’t stop it
 
-一半都会干掉
-50% of Japanese will be killed
+他过了塞纳河，他一定会横扫你欧洲
+He crossed the Seine, then he would sweep Europe
 
-而且他们一定敢放
-Furthermore, they dare to release (poisons)
+他往你西欧就去了吧
+He went to Western Europe, right?
 
-因为现在有借口了
-because they have excuses now
+大校一句话就把我点醒了, 过了几天我再跟大校通话时候
+The colonel woke me up with a word. A few days later, when I talked to the colo-nel again
 
-放了以后
-After poisons are released
+我说，那你们现在在外面有布兵
+I said, now you have soldiers out there
 
-他全给你归类到这个冠状病毒上去
-He classified it all as a coronavirus
+你看我们在欧洲已经有警察开始执法了
+You see, we already have police in Europe starting to enforce the law
 
-记住大家
-Remember
+我们在欧洲周围已经开始建军事基地了
+We have started to build military bases around Europe
 
-当这个共产党的冠状病毒放出以后
-after CCP released the coronavirus
+关键是他说我们的宣传思想教育队伍已经渗透了西方了，
+The key is that he said that our propaganda and ideological education team has infiltrated the West
 
-已经没有任何人可以停止
-nobody can stop
+这就是兄弟姐妹们你要想到一个问题，那话不是随便说的
+This is a question you have to think of, brothers and sisters, that was not just casual talk
 
-谁敢不敢使用生化武器的问题了
-It is no longer a question of who dares to use biochemical weapons
-
-而且谁使用生化武器
-And whoever uses biological weapons
-
-都说这是冠状病毒的什么并发症
-They all say this is a complication of the coronavirus
-
-他都找到借口和平台了
-They now have excuses and platforms
-
-这是最危险的
-This is most dangerous
-
-这种世界的放纵和腐败
-This kind of indulgence and corruption in the world
-
-和媒体上整个的垄断
-And monopoly in media
-
-加上医疗的科学的垄断，完了
-Plus monopoly in medical science, it is over
-
-就是大家觉得我干坏事儿，你查不着我
-It is like, I do bad things, but you cannot catch me
-
-你弄不着我
-You cannot get me
-
-这种侥幸心理
-This kind of luck-playing mentality is the reason for
-
-就是现在正在制造的几个大的毒实验室
-the big poison-making laboratories are being built
-
-某国正在制造的
-A country is building them
-
-大概两周前
-Roughly two weeks ago
-
-我听说这个项目的这个制造病毒的人
-I heard that the person in charge of this virus-making project
-
-说出了惊人的话，说从现在起
-Said something astonishing, “from now on
-
-我们可以决定这个地球的命运了
-We can decide the destiny of the earth”
-
-你想这有多可怕兄弟姐妹们
-Think about how scary this can be, brothers and sisters
+那不是你张嘴来了就可能发生的
+Not you just saying something, things will happen
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24](https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24)
+**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
 
-英听校: 洛杉矶盘古农场 – WH
-翻译: 洛杉矶盘古农场 – WH
-翻译终校: 洛杉矶盘古农场 -Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
