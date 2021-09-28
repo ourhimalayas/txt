@@ -2,15 +2,15 @@
 ---
 
 
-## 英国：军队对燃料危机保持警惕
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1559945/)
+## 2021年9月27日 文贵先生盖特 14
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1560003/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09281.jpg)
-英国已将军队置于戒备状态，以用于对油轮的保护及使用军事司机来弥补该国因缺乏平民司机而导致的燃料危机，目前需要向很多石油分销商供货，因为他们的存储都干涸了。能源部在一份声明中说：“将有限数量的军事司机处于戒备状态，必要时将被雇用以进一步稳定燃料供应链”。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-免责申明：本文只代表译者观点，与Gnews无关
+9/27/2021 Miles Guo’s GETTR: We need to take a serious look at how we will live our lives as well as the political and social changes throughout the world in the next few years. We need to carefully consider how to cope with the changes in people’s behaviors and their ways of life
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/09/27/gb-esercito-in-stato-dallerta-per-crisi-carburanti\_4e852ddf-17f4-438b-88d0-8d26e6d5320a.html](https://www.ansa.it/sito/notizie/topnews/2021/09/27/gb-esercito-in-stato-dallerta-per-crisi-carburanti_4e852ddf-17f4-438b-88d0-8d26e6d5320a.html)
+9/27/2021 文贵盖特: 请兄弟姐妹们认真地思考未来两三年的生活方式和整个世界政治、社会的大变革，仔细想一想我们要如何去应对人们的行为和生活方式的改变
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+[【2021年9月27日】文贵先生盖特原文](https://gettr.com/post/pcdxu789b0)
+
+**喜联盟Gnews编辑部**

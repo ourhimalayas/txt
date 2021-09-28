@@ -2,143 +2,34 @@
 ---
 
 
-## 中共病毒疫苗抑制了对控制癌症的受体（视频）
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
+## 银河快讯：日本将中共，俄罗斯和朝鲜列为网络威胁；卫星群防御导弹
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1559946/)
 
-Now, very importantly
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-80.jpg)[图片来源](https://www.bbc.com/)
+**1.****中共病毒抗原检测试剂盒将在药房出售，可自行检查**
 
-现在，非常重要的是
+[据NHK9月28日报道，日本厚生劳动省特别批准在药店销售中共病毒抗原检测试剂盒，可在大约30分钟内得到检测结果，以便人们担心自己的身体状况时可以在家中进行检测。厚生劳动省此前曾批准在医疗等场所使用抗原检测试剂盒，但从 27 日起，它将特别批准在药店面向普通公众销售。其目的是让人们在担心自己的健康时能在家里自行测试。将棉签插入鼻腔，采集样本并进行测试，大约 15 至 30 分钟即可得到结果。但是，如果病毒量少，即使被感染也存在“假阴性”的风险，因此即使结果为阴性，也需要继续采取佩戴口罩等感染控制措施。如果得到阳性结果，则需要去医疗机构就诊。](https://www3.nhk.or.jp/news/html/20210927/k10013279201000.html?utm_int=all_side_ranking-social_001)
 
-This goes to that question
+**2****.****日本政府决定本月3****0****日解除全部紧急状态声明和****防止****传播措施**
 
-这涉及到那个问题
+[据NHK 9月27日报道，为应对中共病毒，对包括东京、大阪在内的19个都道府县发布的紧急状态声明和对8个县的防止疾病传播等优先措施，都有30天的期限。对此，菅义伟首相于下午5时30分后在首相府会见了经济振兴大臣西村、厚生劳动大臣田村等相关大臣，商讨应对措施。其结果是决定在30天期限内全部取消，并通知执政党。28日，政府将与由传染病专家组成的基本对策小组委员会协商，如果获得同意，将由对策本部做出决定。](https://www3.nhk.or.jp/news/html/20210927/k10013279361000.html?utm_int=all_side_ranking-social_003)
 
-All these anecdotes that we’re hearing from different oncologist around the country
+**3.日本将中共国、俄罗斯、朝鲜列为网络空间威胁**
 
-我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
+[据共同社报道，日本政府周一通过了未来三年网络安全战略草案，首次将中共国、俄罗斯和朝鲜列为网络攻击威胁。该战略预计将很快得到内阁的批准，称网络空间局势存在“迅速发展成危急局势的风险”，这三个国家涉嫌参与敌对的网络活动。另外，日本将“使用一切有效手段和能力采取强硬反制措施”，包括外交回应和刑事起诉。战略草案称，日本将加快与四国框架内的伙伴——美国、澳大利亚和印度——以及东南亚国家联盟在网络领域的合作，以实现自由开放的印太地区，这显然是为了对抗中共国日益增长的影响力。该战略将取代 2018 年 7 月通过的现行战略，在 7 月编制时引发了中共国的批评，称其是对中共国和俄罗斯的“无端诽谤”。](https://english.kyodonews.net/news/2021/09/24ce55dd144e-japan-names-china-russia-n-korea-as-threats-in-cyberspace.html)
 
-And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
+**4****.****日本将缩短已接种疫苗旅客的隔离期**
 
-我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
+[据共同社报道，日本政府周一表示，将从 10 月 1 日起放宽对已接种中共病毒疫苗的入境人员的隔离规定，将在家中自我隔离所需的时间从 14 天缩短至 10 天。只有辉瑞公司、莫德纳公司或阿斯利康公司开发的疫苗才有资格，并且需要有日本签发或认可的“疫苗护照”。来自包括英国、印度和菲律宾在内的45个被日本视为具有引入中共病毒变种的高度风险的国家中的任何一个国家的旅行者曾需要在政府指定的设施中度过14天中的3天，但如果他们完全接种疫苗，将不再需要这样做。日本目前原则上不允许外国人入境，入境者主要限于日本公民和已经居住在该国的外国人。](https://english.kyodonews.net/news/2021/09/9b78725e8c3d-japan-to-shorten-quarantine-period-for-vaccinated-travelers.html)
 
-he knows his community, he knows his patients
+**5****.****日本防卫省设置工作组探讨利用卫星群防御导弹**
 
-他了解他的社区，了解他的病人
+[据共同社报道，日本防卫省27日设置了为将小型人造卫星群“卫星星座”用于导弹探测等防卫领域的工作组，并召开了首次会议。担任主席的防卫副大臣中山泰秀称：“如果自卫队能活用卫星星座，有望在导弹防御、通信、定位方面获得重大效果。”中共国和俄罗斯正在开发突破导弹防御的高超音速滑翔武器，朝鲜也在发射低空导弹。这些武器据称难以被地面雷达探测到，工作组将探讨如何活用卫星星座。卫星星座由离地球较近的同一轨道上部署的多颗小型卫星所组成并协同工作。美国计划发射数百颗小型卫星，日方也将摸索合作的可能性。](https://china.kyodonews.net/news/2021/09/4f1ced133290.html)
 
-And he said hey you know a lot of my patients are getting the shot, some aren’t
+**6****.****日本央行行长黑田东彦：随着声明的解除，最早在年内恢复外出就餐**
 
-他说，你知道，我的很多病人都打了疫苗针，有些没有打
+[据NHK报道，日本央行行长黑田东彦在27日的新闻发布会上表示，受中共病毒影响而一直在下降的消费，随着紧急状态声明的解除，预测最早将在今年、最迟明年初，包括外出就餐和住宿等就会有所恢复。黑田行长在评论经济时表示，“这取决于感染蔓延何时达到顶峰，但如果解除紧急状态，个人消费，尤其是面对面的服务，预计会恢复。预计最早今年、最迟明年初，外出就餐和住宿等将会复苏”。此外，就其在央行历史上并列最长的任期，黑田行长回顾了过去，并说：“货币宽松的效果导致经济增长率和消费者价格上涨率上升，因此并没有错。不幸的是，2%的通胀目标没有实现，但在剩下的一年半里，我们会尽最大努力实现这一目标”。](https://www3.nhk.or.jp/news/html/20210927/k10013279211000.html?utm_int=news-business_contents_news-main_001)
 
-But in those are and he listed the number of cancers he seen in a 6 week period of time
-
-但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
-
-that is never seen in a 40 years career
-
-这是在他40年的职业生涯中从未见过的
-
-And so he asked to what could be causing that?
-
-于是他问，可能是什么原因造成的呢？
-
-So, I sent him that paper as a potential mechanism
-
-所以我把那篇论文作为一个潜在的机理发给了他
-
-As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
-
-因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
-
-So I was talking to Harvey Risch, the world-renowned epidemiologist
-
-因此，我与世界知名的流行病学家哈维·里希进行了交谈
-
-He said, well you know the post shot therapy is usually going to be 5-10 years
-
-他说，你知道接种疫苗后治疗通常需要5-10年
-
-till we see the signals
-
-直到我们看到信号
-
-I said yeah usually it would be
-
-我说是的，通常是这样的
-
-But when we have something that we never done before
-
-但是，当我们有一些我们以前从未做过的事情的时候
-
-that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
-
-突然抑制了一种对控制癌症负有高度责任的受体
-
-It would be very explicable as to why something that is quiescent
-
-这很容易解释为什么有些东西是静止的
-
-All of a sudden wakes up
-
-一下子就醒了
-
-So I mean all day long our cells are fighting off mutations in different cells
-
-所以我的意思是，我们的细胞整天在对抗不同细胞的突变
-
-They see the mutation to try to kill that cell
-
-他们看到突变，试图杀死那个细胞
-
-If this receptor is downregulated
-
-如果这个受体被抑制了
-
-then all those downstream are molecules inside that cell that’s fighting there can’t fight
-
-那么所有其后的分子在细胞内的战斗就无法进行
-
-Because those signals are now turned off the cytokines, the interferons
-
-因为这些信号现在关闭了细胞因子和干扰素
-
-the things that will attack that atypical cell
-
-这些东西会攻击非典型细胞
-
-So, we’re seeing the early signals of this
-
-所以，我们看到这样的早期信号
-
-And so that’s what’s concerning is we want to be able to under the microscope
-
-这就是我们想要在显微镜下观察的问题
-
-you know here’s a whole stack of tumors
-
-你知道这里有一大堆的肿瘤
-
-in the last couple of weeks where what am I doing is
-
-在过去的几周里，我在做什么呢？
-
-I’m looking at the ratios of helper T cells this CD8 killer T-cells
-
-我在观察辅助T细胞和CD8杀伤性T细胞的比例
-
-and then we’ll be staying these for always
-
-然后我们会继续这么做
-
-Because some of these patients again inexplicable cancers
-
-因为这些病人中有些人的癌症无法解释
-
-at really unusual ages
-
-真的是在不寻常的年龄
-
-That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
-
-与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
-
-听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说
+【日本银河系农场-阿尔法星球】
+作者：π&π
+校对：帆間知津
