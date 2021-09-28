@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 5:09 PM (UTC)`
+
+❤️❤️❤️❤️❤️❤️❤️❤️
+> `@globalhimalaya 9/28/2021 4:24 AM (UTC)`<br/>Archbishop Vigano:  Forcing experimental vaccines is a grave crime against humanity. It is a massacre planned on a global level,<br/>维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益
+![img](https://media.gettr.com/group20/origin/2021/09/28/04/24/4deb4632-898a-5e1a-e947-5e6e9fab1871/out.jpg)
+
+---
+
 `@miles 9/28/2021 4:28 PM (UTC)`
 
 9月28号：七哥在开会前．紧急给战友们录个视频，全世界的人民的生活方式和所有的全球的供应链就有巨大的改变。我们该如何应对，共产党内部正在酝酿的腥风血雨．是先抓曾庆红．王岐山，孟建柱，还是全部抓捕呢？
@@ -296,12 +304,6 @@ WOW
 
 以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/<br/><br/>以色列COVID-19 疫苗受害者证词(一）
 ![img](https://media.gettr.com/group45/getter/2021/09/25/21/34/a875f9fa-bd2b-f692-3971-c0cbba550614/out.jpg)
-
----
-
-`@miles 9/25/2021 6:13 PM (UTC)`
-
-【郭先生，这个视频是以色列中共病毒疫苗受害者证词。 原视频共1小时6分，DC农场翻译组将之翻译成6个成品视频。这个受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/ https://www.vaxtestimonies.org/en/】
 
 ---
 
