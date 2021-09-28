@@ -2,19 +2,125 @@
 ---
 
 
-## 黑色星期一！中共股市超3800家个股下跌，近两百股跌停
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559199/)
+## 习主席会怎么处理恒大
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559263/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/er-1.jpg)
-9月27日，中共国A股三大指数开盘集体高开，开盘后在酿酒、医药、半导体和石油等板块的带动之下，三大指数快速冲高，尤其是创业板指数冲高后独立走强。午间收盘三大指数涨跌不一，上证指数跌幅为1.30%，深证指数跌幅为0.55%，创业板指数涨幅为0.43%；个股一地鸡毛，上涨个股只有641家，下跌个股有3804家，高达196家股票跌停；个股方面以抱团股为首，酿酒、旅游和食品饮料，以及石油等个股领涨；周期股领跌沪深两市，有色、船舶、钢铁等个股领跌，周期股成为重灾区，其余行业个股集体下跌为主，整个市场绿油油一大片，超3800家个股下跌，近两百股跌停，这是有种熊市或者股灾的特征，各大题材股都被收割。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/001-image0-8.jpg)
+[https://gtv.org/video/id=6152014cd2e2b817486ec9cc](https://gtv.org/video/id=6152014cd2e2b817486ec9cc)
 
-拉闸限电政策刚刚在全国实行，虚假的中共股市已明显恐慌，如此折腾分散了恒大暴雷的焦点，又套住股民让其不要在假期出行以减少疫情压力，最后还迎合上意的碳中和节能减排目标。中共国一切流氓政策都是就是折腾，一切都是政治需要，一切的都是收割奴役百姓！
+今天恒大
+Hoy Evergrande Group
 
-[信息来源](https://mq.mbd.baidu.com/r/tNR2aJcbQc?f=cp&amp;rs=3324267841&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=695aab71398adcdc)
+现在我救你, 我就得救所有人
+Si ahora te salvo, debo salvar a todos
 
-（文章仅代表作者个人观点，与GNEWS无关）
+我不救你, 所有人都成为我的灾难, 那怎么办
+Si no te salvo, todas las personas se convertirán en mi desastre, ¿ qué debo hacer?
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+所以内部决定, 地方的事
+Entonces, la zona interna decide que esto es asunto local
+
+地方的钱, 地方解决
+El dinero local se resuelve dentro de la región
+
+中央的事, 中央解决, 他们想把恒大给肢解了, 然后呢
+Los asuntos del gobierno central los resuelven ellos mismos, quieren desmembrar a Evergrande Group y luego
+
+全部各部委
+Todos los ministerios
+
+所有承担责任
+Deben asumir las responsabilidades
+
+但是记住战友们, 给恒大出这个招的人
+Pero recuerden, compañeros luchadores, quien le dió este truco a Evergrande Group
+
+一定是江派的人
+Debe ser del Partido de Jiang
+
+习派没有这样的人
+El Partido Xi no tiene este tipo de persona
+
+他这样的出招, 就把整个中国的影子银行
+Este truco que hizo, dejó a todos los bancos de sombras de China
+
+保险机构、信托、所谓资金池子不在财富列表之内的
+Las instituciones de seguros, los fideicomisos y los denominados grupos de capital que no se incluyen en la lista de patrimonio
+
+这几十万亿全给隐藏住, 习100%用这个招
+Estas decenas de billones están todas ocultas y Xi usó este truco al 100%
+
+今天记着我的话
+Recuerden lo que dije hoy
+
+也看到了很多人都被安抚了
+También verán a muchas personas que serán consoladas
+
+买房的交房, 欠钱的按期付款
+El comprador de la casa lo entregará, y el dinero adeudado se pagará a tiempo
+
+但不准上街闹事
+Pero no deben crear disturbios en la calle
+
+习一听
+Xi al escuchar esto
+
+这事很好, 阻止了各种其他房地产商
+Dijo, esto es algo bueno y ha detenido a varios agentes inmobiliarios
+
+来到我这闹事
+A crear problemas aquí
+
+那么现在我告诉大家
+Entonces ahora les digo a todos
+
+恒大倒不倒
+Evergrande Group caerá o no
+
+关键是第一张牌
+El punto crucial es la primera carta
+
+一定会让你惊艳
+De seguro te sorprenderá
+
+共产党的一堆办法
+El Partido Comunista tiene cantidades de soluciones
+
+就是要让恒大不倒
+Para que Evergrande Group no se caiga
+
+你会看到一堆措施
+Verás muchas medidas
+
+但是最终我告诉你
+Pero finalmente, te digo
+
+一定会倒
+Seguramente caerá
+
+而且倒的非常的惨
+Y de la manera más terrible
+
+而且许家印进不了监狱, 许加印一定是车祸死啊
+Además, Xu Jiayin no entrará al carcel, él será muerto de un accidente automovilístico
+
+心脏病死啊、自杀啊
+De un infarto, suicidio
+
+猝死等, 一定这结局
+Muerte súbita, entre otros, el final debe ser así
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24](https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24)
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

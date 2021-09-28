@@ -2,47 +2,149 @@
 ---
 
 
-## 以色列数千人抗议疫苗护照新规定——接种加强型疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1558805/)
+## CCP正在和某大国建造三个生物实验室
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559090/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/09/121-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=6151ceedd2e2b817486eba66](https://gtv.org/video/id=6151ceedd2e2b817486eba66)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**郭文贵
+Miles Guo**
 
+共产党正在和某大国正在制造两到三个新的生化武器实验室
+CCP is building up two or three new biological weapon laboratories with a major power
 
+在东欧一个
+One in Eastern Europe
 
+在中东两个都在建造中
+two in Middle East. They are all under construction
 
+7哥掌握一切情况
+I (Miles) have all the information
 
-据[门道专家](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)9月26日报道，以色列数以千计的人在特拉维夫抗议疫苗护照，该护照现在要求公民打加强针才能被视为 “完全接种”。不接种加强疫苗的人将回到原点，不再有机会参加日常活动，就像那些一开始就没有接种过疫苗的人一样。
+而且到现在，美国只是警告对方
+Up to now, U.S. has only warned those parties
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1064-1-Screenshot_20210926-134129_Twitter-913x479-1.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)
+你们不要干什么
+saying “You are not allowed to do these”
 
-上月底，以色列卫生官员宣布，根据该国的疫苗护照制度，任何在第二次接种后6个月内没有接受第三次接种的人将不再被视为 “完全接种”。
+完全没有措施
+No countermeasures at all
 
-到目前为止，几乎三分之二的以色列人已经配合政府的限制，完全接种了疫苗，但现在第三针强制接种已被授权，人们正聚集在一起，集体抗议限制性的疫苗护照。
+你别把世界想得多么伟大
+Don’t think the world is great
 
-自从疫苗仓促上市以来，以色列公民一直是第一批接种的人。现在他们的政府想把他们作为实验的小白鼠，来注射更加仓促开发的加强型疫苗。强行注射这些加强针证明疫苗没有提供免疫力，难怪以色列的医院85-90%的新病例都来自于已接种疫苗的个人。
+所以说兄弟姐妹们很吓人
+So, brothers and sisters, it is very frightening
 
-事实上，以色列特拉维夫大学的一个研究小组最近对80万人进行了广泛的研究，研究结果表明，接种疫苗的人感染新的病毒变种的可能性比拥有自然免疫力的人高13倍，完全接种疫苗的人 “住院的风险更大”。
+就在日本周边
+It is close to Japan
 
-（本文仅代表作者观点）
+现在建的那个地方
+A laboratory is being built
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+我相信
+I believe
 
-编辑/校对/发稿：小鹿
+在日本周边建的那个新的毒实验室
+the new poison-making laboratory is being built close to Japan
 
+一旦放的时候，
+Once poisons (viruses) are released
 
+整个日本国一半都会没了
+half of the whole Japan will be gone
 
-**更多资讯，更多关注**
+一半都会干掉
+50% of Japanese will be killed
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+而且他们一定敢放
+Furthermore, they dare to release (poisons)
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+因为现在有借口了
+because they have excuses now
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+放了以后
+After poisons are released
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他全给你归类到这个冠状病毒上去
+He classified it all as a coronavirus
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+记住大家
+Remember
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+当这个共产党的冠状病毒放出以后
+after CCP released the coronavirus
+
+已经没有任何人可以停止
+nobody can stop
+
+谁敢不敢使用生化武器的问题了
+It is no longer a question of who dares to use biochemical weapons
+
+而且谁使用生化武器
+And whoever uses biological weapons
+
+都说这是冠状病毒的什么并发症
+They all say this is a complication of the coronavirus
+
+他都找到借口和平台了
+They now have excuses and platforms
+
+这是最危险的
+This is most dangerous
+
+这种世界的放纵和腐败
+This kind of indulgence and corruption in the world
+
+和媒体上整个的垄断
+And monopoly in media
+
+加上医疗的科学的垄断，完了
+Plus monopoly in medical science, it is over
+
+就是大家觉得我干坏事儿，你查不着我
+It is like, I do bad things, but you cannot catch me
+
+你弄不着我
+You cannot get me
+
+这种侥幸心理
+This kind of luck-playing mentality is the reason for
+
+就是现在正在制造的几个大的毒实验室
+the big poison-making laboratories are being built
+
+某国正在制造的
+A country is building them
+
+大概两周前
+Roughly two weeks ago
+
+我听说这个项目的这个制造病毒的人
+I heard that the person in charge of this virus-making project
+
+说出了惊人的话，说从现在起
+Said something astonishing, “from now on
+
+我们可以决定这个地球的命运了
+We can decide the destiny of the earth”
+
+你想这有多可怕兄弟姐妹们
+Think about how scary this can be, brothers and sisters
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24](https://twitter.com/se1y7cblljselva/status/1441397788563030024?s=24)
+
+英听校: 洛杉矶盘古农场 – WH
+翻译: 洛杉矶盘古农场 – WH
+翻译终校: 洛杉矶盘古农场 -Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
