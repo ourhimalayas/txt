@@ -2,34 +2,29 @@
 ---
 
 
-## 班农专访4: 世界银行向中共磕头服软
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560259/)
+## 澳洲民意调查：大多数人支持 AUKUS核潜艇协议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1560321/)
 
-[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=2560)](https://spark.adobe.com/page/EcEinODIlDUAD/images/9f78fae8-31d1-4410-9a41-1e21424effc4.png?asset_id=af14d453-04c7-4ffc-a00a-a9fdcfe60867&amp;img_etag=%22b049f7d3b690f7d4336bea0b399544db%22&amp;size=1024)
-**简评：**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2a25010a92f082b53202327ed2f58cb8a578c7b5.jpg)图片来源：Getty Images
+**整理报道：**翼族
 
-川普时期任命的世界银行行长与其他一些高层领导人曾经向经济学家施压，要求提高中共国2018年的排名。川普身边的许多金融人士没有真正地执行川普的计划来对抗中共，相反，他们与中共勾结，任由中共从沙特筹集资金并干涉世界银行的运行。他们热衷于中共的合作。人们既希望与川普总统和他的计划来抗衡中共。
+大多数澳大利亚人支持总理斯科特·莫里森与美国和英国建立牢固关系，以支持澳大利亚国防安全的举措。但《卫报》最新的调查显示，受访者同时也担心新的AUKUS伙伴关系将会使得澳大利亚与中（共）国及欧洲的关系变得更加紧张。
 
-GTV视频链接：[英喜每周采访班农先生0922-Q4：世界银行屈服于中共，无时无刻不在向中共磕头](https://gtv.org/video/id=61511810d2e2b817486e7bf5)
+对1094名受访者的调查显示，62%的人认为澳大利亚与美国和英国达成核潜艇协议是正确的，而54%的人同意以下说法：“ AUKUS伙伴关系符合澳大利亚最佳的安全和经济利益。”
 
+55%的人认为该安排将会进一步激化与中（共）国的关系。在法国政府对莫里森决定取消与海军集团900亿美元潜艇合同的激烈反应之后，48%的人认为新的伙伴关系将危及澳洲与法国的贸易协议，以及与欧盟的关系。
 
+随着有可能在2022年第一季度举行的联邦大选的临近，最新的民意调查显示，自由国家党联盟在处理国家安全政策方面，领先工党13%，并且联盟党在国际关系管理方面也领先5个百分点。
 
-**视频字幕：**
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**主持人**：世界银行取消了其旗舰出版物《营商环境报告》。经调查发现，包括时任世界银行行长克里斯塔琳娜·格奥尔基耶娃在内的一些高层领导人, 曾向经济学家施压，要求其提高中国2018年的排名。班农先生，你对这个发现感到惊讶吗？
+**参考链接：**[Essential poll: majority of Australians back Aukus submarine pact, but fear it will inflame tensions with China](https://www.theguardian.com/australia-news/2021/sep/28/essential-poll-majority-of-australians-back-aukus-submarine-pact-but-fear-it-will-inflame-tensions-with-china)
 
-**班农先生**：我对此一点也不感到惊讶。 世界银行屈服于中共，无时无刻不在向中共磕头。我很惊讶世界银行现任行长是由川普总统任命的。我认识他，他没做任何事。他谈论的只是他们如何与中国共产党与全球主义者合作。他基本什么事情也没做。事实上，中共国仍然收买第三世界发展中国家。
+*编辑/发布：翼族*
 
-令人发指的是他们让中共这个犯罪组织与世界银行勾结。他们干涉世界银行运作，却没人站出来反对。川普总统任命世行现任行长, 首先想治理这种中共的滥用行为，但却没有发生。人们寄希望于川普总统和川普总统计划来对抗中共。瞧瞧财政部长姆努钦，对中共国非常软弱。
-
-对于中共国主要从沙特阿拉伯海湾酋长国筹集的25亿美元。中共通过那里筹集了很多钱，但他们放入了基金。所以川普总统身边有许多金融人士，没有执行川普的计划，尤其没有真正对抗中共。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕:雨中漫步 | 听写：云岭 | 翻译：Dasy* *| PR：Roberts* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-[![](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/EcEinODIlDUAD/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

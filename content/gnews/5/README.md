@@ -2,29 +2,32 @@
 ---
 
 
-## 澳洲民意调查：大多数人支持 AUKUS核潜艇协议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1560321/)
+## 台湾与印度大学签约再增三处教育中心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560404/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2a25010a92f082b53202327ed2f58cb8a578c7b5.jpg)图片来源：Getty Images
-**整理报道：**翼族
+栏目记者/责任编辑：云豹
 
-大多数澳大利亚人支持总理斯科特·莫里森与美国和英国建立牢固关系，以支持澳大利亚国防安全的举措。但《卫报》最新的调查显示，受访者同时也担心新的AUKUS伙伴关系将会使得澳大利亚与中（共）国及欧洲的关系变得更加紧张。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-对1094名受访者的调查显示，62%的人认为澳大利亚与美国和英国达成核潜艇协议是正确的，而54%的人同意以下说法：“ AUKUS伙伴关系符合澳大利亚最佳的安全和经济利益。”
 
-55%的人认为该安排将会进一步激化与中（共）国的关系。在法国政府对莫里森决定取消与海军集团900亿美元潜艇合同的激烈反应之后，48%的人认为新的伙伴关系将危及澳洲与法国的贸易协议，以及与欧盟的关系。
 
-随着有可能在2022年第一季度举行的联邦大选的临近，最新的民意调查显示，自由国家党联盟在处理国家安全政策方面，领先工党13%，并且联盟党在国际关系管理方面也领先5个百分点。
+台湾驻印度代表处于24日与印度阿育王大学（Ashoka University）签署合作备忘录，设立台湾教育中心。  26、27日再与昌迪加尔大学（Chandigarh University）及印度理工学院罗巴尔分校（IIT-Ropar）签署成立台湾教育中心的合作备忘录。 使在印度的台湾教育中心增加到21所。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0928-AM-2、4、5.001.jpeg)
+在印度的台湾教育中心，主要负责媒介台印双方的学术交流活动及研究，以及在印度推广中文学习课程、程度认证、及各种留学服务。随着中共影响力的逐步下降，各国都在逐渐转向与台湾合作，改由台湾提供中文教学师资及教材。 台湾保留了真正华语文化的精髓，也同样实施民主法治的体制。 经由台湾教育中心来推广中文，促进与世界的交流，是当下最好的选择 。与此同时，台湾的存在也是”中国人不等于共产党” 的最佳证明和诠释！
+(本文仅代表作者观点)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+参考链接：[印度將再添2所台灣教育中心 計達21所](https://www.cna.com.tw/news/aopl/202109270385.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-**参考链接：**[Essential poll: majority of Australians back Aukus submarine pact, but fear it will inflame tensions with China](https://www.theguardian.com/australia-news/2021/sep/28/essential-poll-majority-of-australians-back-aukus-submarine-pact-but-fear-it-will-inflame-tensions-with-china)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-*编辑/发布：翼族*
+终审：文龙
+校正/发稿：我不在这里
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

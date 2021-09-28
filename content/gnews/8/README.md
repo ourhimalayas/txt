@@ -2,49 +2,38 @@
 ---
 
 
-## 人们在川普集会上高呼：“把他关起来”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560298/)
+## 中共限电导致苹果、特斯拉供应商停产
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560352/)
 
-- **编译：Lulumi**
+栏目记者/责任编辑：文扬四海
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip152.png)
-2018年4月10日，在华盛顿特区，马克·扎克伯格在国会山哈特参议院办公大楼举行的参议院司法和商业委员会联合听证会上作证。(Alex Wong/Getty Images)
 
-据布莱巴特新闻网报道，在前总统川普周六在乔治亚州佩里举行的集会上，人们高呼 “把他关起来！”，以回应据说脸书首席执行官马克·扎克伯格曾向乔治亚州官员提供4500万美元资助与选举有关的活动，这可能对乔治亚州的选举产生”重大影响”。
+受中共大面积拉闸限电影响，苹果、特斯拉在中国的部分供应商、制造商遭遇停产。
 
-川普在集会上说：”乔治亚州官员还从脸书的马克·扎克伯格那里拿了4500万美元来资助与选举有关的活动，”人们以 “把他关起来！”的呼声作为回应。
+富士康旗下的乙盛精密公司设在江苏昆山，是苹果和特斯拉的关键机械部件供应商, 该公司26日起已暂停生产，而目前正值苹果iphone13手机上市的重要阶段 ，中共的这轮限电将对苹果和特斯拉的供应链造成冲击，直接影响产品上市。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0928AM-1、3视频备用.001.jpeg)
+据悉此次限电不仅影响到苹果、特斯拉这样的企业，对国内芯片和半导体行业也有很大影响。中共对此次限电乱象的借口是实行所谓“能耗双控”政策，其真实原因是中共国外汇短缺引发煤炭价格升高，电力部门入不敷出减少了发电量，从而导致电力供应不足，限电是不得已而为之的举措。电力等能源的供应不足和中共政策的不透明将促使更多外资企业考虑撤离中共国。
+(本文仅代表作者观点)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip149.png)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip150.png)
-前总统唐纳德·川普2021年9月25日在乔治亚州佩里举行的集会上发表讲话。共和党参议院候选人赫歇尔·沃克(Herschel Walker)、乔治亚州国务卿候选人乔迪·海斯(Jody Hice)议员和乔治亚州副州长候选人州参议员伯特·琼斯(Burt Jones)也作为嘉宾出现在集会上。(Photos by Sean Rayford/Getty Images)
+1. [中国限电导致苹果、特斯拉供应商停产](https://www.dw.com/zh/中国限电导致苹果特斯拉供应商停产/a-59321369)
+2. [苹果、特斯拉供应商停产，中国限电影响波及全球？](https://c.m.163.com/news/a/GKVFNBUV0519D4UH.html?spss=newsapp)
 
-川普引用福克斯新闻6月份的一份报告称，乔治亚州的选举结果——2020年11月的选举和2021年1月该州的参议院决选·”可能受到扎克伯格和他的妻子普莉希拉·陈(Priscilla Chan)总共4500万美元的影响”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip151.png)
-普莉希拉·陈和马克·扎克伯格于2019年11月3日在加州山景城出席美国宇航局艾姆斯研究中心举行的2020年突破奖红地毯。(Photo by Ian Tuttle/Getty Images for Breakthrough Prize)
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-据报道，扎克伯格和他妻子向科技与公民生活中心（CTCL）提供了3.5亿美元，该中心在2020年11月大选前向48个州和华盛顿特区发放了用于选举管理的拨款。
+终审：文龙
+校正/发稿：我不在这里
 
-福克斯新闻报道说，在2020年11月的大选中，3100万美元被拨给了乔治亚州，”乔·拜登在那里以微弱优势赢得了该州的16张选举人票，以不到12,000票击败了当时的总统川普”。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-报道还说，”该中心还向乔治亚州各县提供了1450万美元，用于该州1月份的两次决胜选举，民主党人在这两次选举中获胜，将美国参议院的多数席位转给了民主党人。”
-
-川普在周六的集会上说：”好吧，他们应该看一下这个。这到底是怎么回事？他们说，这些资金的90%以上都给了该州的民主党地区，用来提高民主党的选民投票率。这到底是怎么回事？”
-
-前总统川普补充说：”你知道他们的限额是5,200美元，[而]他给不同的州提供了数百万美元，不仅仅是乔治亚州。”
-
-估计有两万人参加了周六在乔治亚州休斯顿县中部举行的川普集会。
-
-（文章仅代表作者观点 与GNEWS无关）
-
-**新闻来源：[布莱巴特新闻网](https://www.breitbart.com/tech/2021/09/26/lock-him-up-trump-rally-crowd-targets-facebooks-mark-zuckerberg/)(Breitbart News Network) | 作者：ALANA MASTRANGELO** **发布时间：2021年9月26日 **
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

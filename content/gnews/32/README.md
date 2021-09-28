@@ -2,66 +2,62 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1560022/)
+## WI警方：（未打疫苗）少年宣布战胜中共病毒可入狱
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1560065/)
 
-- **编译：西班牙喜悦农场–wenwu**
+- 编译：西班牙喜悦农场–wenwu
 
 
-您若想了解全文报导内容，请点击标题链接
+![](https://assets.gnews.org/wp-content/uploads/2021/09/001-6.jpg)
 
-（爱惜生命 远离疫苗）
+Amyiah Cohoon 刚于 2020 年 3 月从医院回家，一名警长周日就来了，他警告说你的女儿竟然在 Instagram 上发帖称，她“战胜了中共病毒（covid-19)”这种社交行为让她面临指控甚至入狱。据[法庭文件](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)称，当时是大流行初期，她所在威斯康星州的县尚未记录任何 covid-19 病例。“担忧的市民”已开始打电话给当地官员。
 
-**1. [新加坡有 1647 例新的中共病毒（COVID-19）病例](https://www.channelnewsasia.com/singapore/moh-covid-19-sep-27-new-cases-death-toll-80-2-deaths-2204716)**
+“如果[IS帖子]不删掉，WI警长已经指控了我发出扰乱秩序的传票，这传票有权力把人送进监狱，”根据《华盛顿邮报》获得的录像视频，威斯康星州马凯特县（Marquette County）的警长告诉 Cohoon 的父亲。”因为这对公众造成了干扰”。该IS帖子被撤下，但 Cohoon 的家人在下个月就这一威胁对警长办公室提起了联邦诉讼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip145.png)
+一名联邦法官最近裁定，警长办公室侵犯了该学生的言论自由权，无论她是否真的患有 covid-19。据美国地方法官布雷特·路德维希 (Brett Ludwig) 称，这名青少年无法立即接受检测，医生建议最终的阴性检测可能来得太晚了。
 
-据《亚洲频道》（CNA）2021年9月27日电，截至周一（27日）中午，新加坡报告了1647例新的中共病毒案例，这是连续第7天新增感染过千大关；其中有1642例（1280例社区病例和362名宿舍居民；335例年龄超60岁）为本土感染，5例是境外感染；另有2例突破性感染者死亡（一名 80 岁妇女和一名 74 岁男子，都是新加坡人）。
+路德维希法官周五（24日）在威斯康星州东区的[法庭裁决中](https://will-law.org/wp-content/uploads/2021/09/cohoon-decision.pdf)表示，接受当局逮捕这名当时16岁的青少年的理由–警方声称，她通过社交媒体帖子散布焦虑和“恐慌”–将“削弱”第一修正案的保护。路德维希法官说，这些保护措施适用于“任何时期”。
 
-自大流行开始以来，新加坡共报告了 8万9539 例 COVID-19 病例。
+现年17岁的 Cohoon 在周日（26日）《华盛顿邮报》的简短采访中，对该案件的“爆发”感到惊叹。她质疑道：”我想做的是让人们知道我当时生病了（感染中共病毒），因为我身边有一群人。”
 
-**2. [台湾报告3例科兴、国药疫苗突破性感染](https://www.taiwannews.com.tw/en/news/4298763)**
+她的母亲 Angela Cohoon 补充说：“我们不想看到其他人经历这种情况。”马凯特县警长办公室、警长和代表他们的律师周日没有回应置评请求。他们的律师塞缪尔·霍尔今年春天[告诉《纽约时报》](https://www.nytimes.com/2020/04/21/us/marquette-county-sheriff-instagram-lawsuit.html) ——在行车记录仪[镜头](https://wapo.st/3m0fCU7)作为法庭案件的一部分浮出水面之前——执法部门否认威胁要逮捕 Amyiah Cohoon。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T100136.751.png)
+据法庭记录声称，Cohoon 和她的高中乐队一起去往 Walt Disney World and Universal Studios 后，就出现了呼吸困难、发烧和咳嗽的情况。她去了急诊室，被诊断为“急性上呼吸道感染”。法庭文件指出，医生说她的症状与 covid-19 相符，但她没有资格接受该病毒的测试（或许是医院禁止医生确诊青少年感染 covid-19 的情况，理由大概是知道不需要打疫苗，这种没有及时确诊的现象在美国全境都是普遍都）。
 
-据《台湾英文新闻》2021年9月27日电，台湾中央流行病指挥中心（CECC）周一（27日）宣布了四例新的突破性感染病例（完成完整的疫苗接种计划后至少 14 天检测出 COVID-19 呈阳性的人），其中三例发生在接种了中共国的 COVID-19 疫苗 Sinovac 和国药集团之后。
+Cohoon 是带着呼吸机出院，并被建议隔离两周后，她还在 Instagram 上发布了关于这次磨难的信息（如图）：
 
-CECC医疗应对处副处长罗一钧宣布，9例输入性病例中有4例（3例来自中共疫苗）被认为是突破性感染。罗说，第16303号病例是一名20多岁的印尼妇女，曾于7月和8月接种了科兴（Sinovac）疫苗；第 16307 号病例是一名十几岁的印度尼西亚女孩，她在 7 月和 8 月分别接种了一剂 Sinovac 疫苗；第16308号病例，一名40多岁的台湾妇女，于5月接种了第一剂国药疫苗，6月接种了第二剂，并于9月24日从缅甸返回台湾.
+![](https://assets.gnews.org/wp-content/uploads/2021/09/002-6.jpg)
 
-**3. [欧盟审查有关 Moderna 的 COVID-19 助推器的数据](https://www.channelnewsasia.com/world/eu-reviewing-data-modernas-covid-19-booster-shot-2205631)**
+“嘿，伙计们……对不起，我休息了很长时间。由于我 [现在] 感染了 COVID-19 病毒，我还有等一段时间才可以回来，”她写道。她说她不想引起关注——这只想告诉人们“这是事实”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T100622.719.png)
+路德维希法官写道，几天后，即 2020 年 3 月 25 日，Cohoon 回到医院并检测出[中共病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_27)呈阴性。但医生告诉她的家人，她应该继续隔离，而且 Cohoon 有可能感染了 covid-19，只是“错过了检测窗口”。当这位大二学生回到家时，她又发布了一张戴着氧气罩的照片，说她仍在接受”呼吸治疗”，但已经从中共病毒中恢复过来。
 
-据《亚洲频道》（CNA）2021年9月28日电，欧洲药品管理局 (EMA) 的审查是在上周发表声明声称，，该声明旨在于10 月初决定是否[批准辉瑞-生物科技公司疫苗的加强针](https://www.channelnewsasia.com/asia/eu-regulator-decide-pfizer-booster-start-october-source-2197101)，以为12岁以上人群或完成半个月第二针的人群“再来一针”。
+路德维希法官在法庭文件中写道，该帖子引发了当地卫生部门以及 Westfield 学区的电话，卫生官员联系了警长办公室，并对她表示“希望说服2020年3月27日晚，卡梅伦·克鲁姆普警官出现在 Cohoons 家，要求撤下青少年声称的covid-19 说法；县卫生部门周日没有回应置评请求。
 
-“尽管EMA和ECDC（欧洲疾病预防和控制中心）认为在一般人群中不需要COVID-19疫苗的加强剂量，但EMA正在评估目前的申请，以确保有证据支持必要时的进一步剂量，”欧盟监管机构说。
+Cohoons 家人提出抗议：根据视频片段，Cohoon 的父亲告诉这个警告，中共病毒测试挑战是众所周知的；“人们需要知道这[病毒]正在发生，当你不能警告他们时，当你又得到一个警长办公室威胁要把人们投入监狱时，这让人们出于危险中，”他埋怨道。
 
-Moderna疫苗被称为“Spikevax”，它的申请是由美国公司提交的，其中包括一项正在进行的试验的结果；许多欧盟国家已经决定通过“再来一针”，尽管面临更高的法律风险，目前仅是没有得到EMA的正式批准。
+但 Cohoons 家人最终同意了删除此贴；同一天，韦斯特菲尔德学区管理员罗伯特·梅彻（Westfield School District Administrator Robert Meicher）似乎在[给其家人](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)的[一封信中](https://web.archive.org/web/20200429024825/https://www.westfield.k12.wi.us/cms_files/resources/district%20update%203-27-20.pdf)批评了 Cohoon 。
 
-**4. [纽约州立大学校长说，未接种疫苗的工人将被解雇](https://nypost.com/2021/09/26/suny-chancellor-jim-malatras-says-unvaccinated-employees-will-be-fired/)**
+“今天我注意到，外面有一个谣言，说我们的一个学生在两周前去佛罗里达的乐队旅行时，感染了Covid-19，”Meicher 写道。“我可以向你保证，这是你故意造谣的。这是一种愚蠢的吸引注意力的方式，你女儿的谣言已经得到妥善的解决。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T100954.878.png)
+路德维希法官说，这就是 Cohoon 关于她发布“可能”感染 Covid-19 的帖子的结尾。
 
-据《纽约邮报》2021年9月26日电，纽约州立大学校长吉姆·马拉特拉斯 (Jim Malatras)向州立大学医院的负责人发出了一份备忘录，警告他们通知员工，如果员工在周一（27日）之前拒绝接种中共病毒疫苗，他们将被“[立即解雇](https://documentcloud.adobe.com/link/review?uri=urn:aaid:scds:US:d3a18366-82e4-44bb-9135-e72ef3010162)”；马拉特拉斯指出，此举是在纽约州卫生局上个月发布紧急COVID-19疫苗授权之后。
+路德维希法官在上周对案件进行了权衡时候，他拒绝了警长的建议，即 Cohoon 的行为类似于“在拥挤的电影院里呼喊着火了”。该法官还说，有关当局上门仅是在进行说服而不是胁迫的论点是不成立的，因为这忽略了“一名身穿制服的警察出现在青少年家中，并命令她只允许发出“一种声音的言论。”这本身就具有令人不寒而栗的性质和胁迫性。
 
-该备忘录周五（24日）被发送给布鲁克林的纽约州立大学下州医院、长岛的石溪大学医院及其经营的长岛州退伍军人之家和雪城的上州大学医院的首席执行官和院长，其内容是要不折不扣执行的；纽约州长Kathy Hochul正试图积极执行这项任务–并希望招募外国工人以及国民警卫队成员和联邦医生和医务人员，以取代那些不愿意接受注射的工人。
+代表 Cohoon 的威斯康星州法律和自由研究所的律师卢克·伯格(Luke Berg)对这一决定表示庆祝，并告诉《华盛顿邮报》，该案的事情原委“相当奇怪，但这是一个非常强烈的声明……警察不能对社交媒体进行监管。”
 
-全州每六名医院工作人员中就有一名（也就是16%）仍未接种疫苗，尽管随着最后期限的临近，最近几周的免疫接种率有所上升；在布朗克斯、布鲁克林和斯塔滕岛的医院中，约有四分之一的员工没有接种COVID-19保护疫苗；全州大约七分之一的养老院工作人员（也就是13%）也没有接种疫苗。另外，纽约工会就疫苗强制令的上诉的也在紧锣密鼓的进行着。
+**简评：**
 
-**5. [“这是完全可以避免的”——纽约医院准备应对人员配备危机](https://www.zerohedge.com/covid-19/completely-avoidable-new-york-hospitals-prepare-staffing-crisis-vaccination-mandate-forces)**
+**从本篇报道的美国人物和统治系统上分析，其描述故事的真实可信度是很高。唯一可以确定的是，Instagram 对言论自由的控制在近几年的爆料革命中被暴露了。那么，我们不得不相信 Facebook 对儿童洗脑控制而进行“线上+线下”的操控，而感染了中共病毒的青少年不需要接种疫苗的事件，无疑对邪恶势力的计划造成了负面的影响。这让感到不可思议的是，面对此类事件的发生竟然具有如此的系统规划和应急措施。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-28T101323.535.png)
+**这会不会跟中共国发起的世界互联网新一届大会的[开幕](https://gnews.org/zh-hans/1557472/)与“共同富裕”有关呢？值得讨论。**
 
-据《零对冲》2021年9月26日电，随着[拜登](https://www.zerohedge.com/political/biden-eliminates-testing-opt-out-requiring-all-public-workers-and-contractors-get)总统[的联邦疫苗授权将于周一生效](https://www.zerohedge.com/political/biden-eliminates-testing-opt-out-requiring-all-public-workers-and-contractors-get)，全国各地的医疗保健系统都暂停了选择性住院手术，并拒绝接受来自其他医院的 ICU 患者，因为他们准备好应对可能有数百名护士和其他关键工作人员被解雇的情况；最大的医疗保健提供者 Northwell Health 的官员估计，可能会有数千名护士或者医生因为拒绝疫苗而被迫解雇。
+（文章仅代表作者观点 与GNEWS无关）
 
-在一个不愿意上班的工人比—确切地说，是比空缺的职位多出220万—这是由于纽约州长迫使工人在就业和他们的健康或宗教信仰之间做出选择，根本不是一个聪明的主意，并且州长自己还没有意识到；在加州，护士的短缺已经达到了危机的程度，航空公司由于工人的短缺而经常看到航班被取消。
-
-截至9月底，纽约45万名医院工作人员中的16%和疗养院工作人员中的83%—大约有4万5400人—仍然没有接种疫苗；黑人、西班牙裔的纽约人的接种率远远低于白种人；在布朗克斯区的圣·巴纳巴斯医院（ St. Barnabas Hospital），首席医疗官埃里克·阿佩尔鲍姆在接受采访时说，截至周五中午，近3000名员工中约有12%没有接种疫苗。其中包括大约3名重要的医生，以及大量急需的研究人员。
-
-（文章仅代表作者本人观点，与Gnews无关）
+新闻来源：《[华盛顿邮报](https://www.washingtonpost.com/nation/2021/09/27/amyiah-cohoon-sheriff-lawsuit-covid/)》｜作者：汉娜·诺尔斯｜发布时间：2021年9月27日
 
 * * *
 
-***发稿：信心满满***
+*发稿：Nuevo唐人*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
