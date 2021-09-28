@@ -2,32 +2,53 @@
 ---
 
 
-## 台湾与印度大学签约再增三处教育中心
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560404/)
+## 秘翻在线：英国媒体报道GETTER 对抗推特
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560486/)
 
-栏目记者/责任编辑：云豹
+#### 翻译：文斗
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/sa5f6546tr4h561sd6a51f651gtr56ge5w6e.png)
 
+9月25日，英国媒体《每日快报》网站（express.co.uk）发表《川普的盟友推出社交媒体平台以对抗推特》，报道杰森·米勒(Jason Miller)接受《星期日快报》（Sunday Express）采访。
 
+这是盖特（GETTER）总裁杰森·米勒在欧洲推广盖特工作的一部分。
 
-台湾驻印度代表处于24日与印度阿育王大学（Ashoka University）签署合作备忘录，设立台湾教育中心。  26、27日再与昌迪加尔大学（Chandigarh University）及印度理工学院罗巴尔分校（IIT-Ropar）签署成立台湾教育中心的合作备忘录。 使在印度的台湾教育中心增加到21所。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0928-AM-2、4、5.001.jpeg)
-在印度的台湾教育中心，主要负责媒介台印双方的学术交流活动及研究，以及在印度推广中文学习课程、程度认证、及各种留学服务。随着中共影响力的逐步下降，各国都在逐渐转向与台湾合作，改由台湾提供中文教学师资及教材。 台湾保留了真正华语文化的精髓，也同样实施民主法治的体制。 经由台湾教育中心来推广中文，促进与世界的交流，是当下最好的选择 。与此同时，台湾的存在也是”中国人不等于共产党” 的最佳证明和诠释！
-(本文仅代表作者观点)
+米勒先生在采访中指责社交媒体巨头Twitter和Facebook通过压制有关乔·拜登儿子亨特的负面报道来干预上届美国大选，并在大选后终身禁止川普先生使用。
 
-参考链接：[印度將再添2所台灣教育中心 計達21所](https://www.cna.com.tw/news/aopl/202109270385.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+他说：“六分之一的拜登选民表示，如果他们知道亨特·拜登的故事，他们会改变或考虑改变投票。”
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+他还指出，对美国大科技公司的担忧意味着加入盖特的人中有三分之二希望迎战社交媒体巨头，而有三分之一的人希望支持川普总统。
 
-终审：文龙
-校正/发稿：我不在这里
+米勒说：“我们在7月4日独立日上线，以便人们可以宣布独立于大科技公司，到目前为止，我们是有史以来最快达到100万用户的社交媒体平台。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“我们也是有史以来最快达到200万用户的社交媒体平台，这件事真的像火箭起飞一样。”
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我想说，就市场而言，Twitter和Facebook是我们最有可能的两个竞争对手。”
+
+他说，与Twitter不同，盖特不会有哈马斯或塔利班等恐怖组织的空间。同时也与Twitter不同，“想表达政治观点的人不会被封杀。”
+
+盖特的不同之处还在于，它不会收集和出售人们的数据。
+
+在描述他的竞争对手时，米勒先生说：“表面上他们是社交媒体，实际上他们是数据公司。”
+
+米勒先生呼应其前老板川普的竞选口号，盖特将 “让社交媒体再次变得有趣”。
+
+他正在与南美著名足球运动员、两位主要歌手和其他名人洽谈加入盖特。
+
+在英国，一个新的党派“UK Reclaim Party”领导人、演员劳伦斯·福克斯（ Lawrence Fox）已经加入了盖特。本周此前宣布，福克斯先生将在一部关于金融丑闻的电影中扮演亨特·拜登。
+
+米勒先生说，盖特上将没有色情或种族虐待的空间，违反这些规则的用户将被封禁。
+
+这位传播学大师说，盖特正挺身迎战西方历史上前所未有的封杀文化和审查制度。
+
+他说：“如果一年半前你告诉我，我会满全世界倡导言论自由和支持川普，我会说你疯了。”
+
+“看到发生的一切，我真的认为去年是美国历史上审查制度最糟糕的一年。”
+
+“回溯到去年春天，当中共病毒出现时，人们因为说病毒来自中共国的一个实验室这样激进的话而受到审查。”
+
+“事实上，大科技公司会去审查和封杀（言论），我认为这对美国的言论自由来说真的是个悲剧。”
+
+“现在我们发现，白宫正积极与社交媒体合作，以言论自由为赌注挑选赢家和输家。”
+
+“如果你让川普总统和（他的新闻秘书）莎拉·桑德斯 (Sarah Huckabee)说‘我们正在与一家社交媒体公司合作，确定某些帖子，说它们应该被删除’。人们会发疯的，这是法西斯国家，这是《1984》。”

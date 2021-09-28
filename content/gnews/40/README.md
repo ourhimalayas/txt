@@ -2,42 +2,143 @@
 ---
 
 
-## 郭文贵精品视频-从华为孟晚舟事件纵览中共在世界的称霸行为
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1559762/)
+## 中共病毒疫苗抑制了对控制癌症的受体（视频）
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1559857/)
 
-撰稿：澳喜cindy
+Now, very importantly
 
-近期国内舆论一片欢腾，喜迎被加拿大软禁近三年的华为首席财务官孟晚舟释放回国。孟晚舟在被释放前签署了一份“暂缓起诉的和解书”以换得美国政府暂时选择不起诉，孟晚舟可以立即获得自由。但孟晚舟在和解书里承认了几乎所有美国司法部的事实指控包括：“Skycom这家香港公司在存续期间是受华为控制的；华为通过Skycom向伊朗销售了包含美国芯片的设备，违反了美国对伊朗的制裁和出口管制法；孟和华为在与香港银行开展金融业务中隐瞒了华为与Skycom的真实关系。”而且签署后不得反悔或改口。
-Youtube视频
-华为是中共打造的以5G通信系统为主的用来征服世界的科技蓝、金、黄平台。如果华为的任何人把它的本质告诉美国和西方，那么中共所有过去这些年在西方埋下的情报技术来源、资金来源和蓝、金、黄的网络及美国的华尔街、美国军方，美国的情报方，和出卖美国的人会全部暴露。
+现在，非常重要的是
 
-郭先生今天所讲的孟晚舟之所以被释放的信息恰恰印证了郭先生三年前就已经告诉大家的那样：“梦晚舟将来被引渡的可能性不大，因为共产党的蓝金黄的力量太大了！但是相信孟晚舟被捕事件绝对是华为被揭开真相的开始”。
-Youtube视频
-华为是中共派出的十一个国有军企走出国门，走向世界实现其称霸全球为宗旨的企业之一。1.马云的阿里巴巴—大数据；2.微信的社交媒体—微信通信；3.中国兵器—做武器、卖武器；4.保利集团—贸易、科技等；5.北方工业集团—搞武器的；6. 平安集团—搞金融的；7.华为集团—搞手机的 ；8.振兴石油—搞石油的；9.中兴通信—通信信息服务；10中国威视—做监控设备；11.海航—航空、金融等。
+This goes to that question
 
-以上企业多数对外均以私企名义来参与各项工程的招标和竞争，而实际上他们均属于中国军工国家企业。他们受国家外交保护、国家政策扶持、资金支持、集结资源，为国家收集情报、完成国家一带一路项目、灭白计划、称霸全球战略为宗旨的。
+这涉及到那个问题
 
-郭先生根据情报得知：
+All these anecdotes that we’re hearing from different oncologist around the country
 
-1.中共在过去的几十年，一直以来都是有计划的在经济、科技、军事上针对美国和西方国家的渗透和侵略，及对整个世界的扩张。华为是中共数据区块链战略的一部分，华为的手机留有后门，用来搜集所有用户的个人信息，作为量子计算基础的5G技术中所需要的数据。量子电脑是中共“一带一路”、人民币国际化，建立海外军事基地的根本基础。
+我们从全国各地不同的肿瘤医生那里听到的所有这些奇闻轶事
 
-2.马云的大数据全是来自美国的核心技术，全是由中共的百人计划、千人计划的重要成果偷取来的技术。马云给共产党提供所有的使用马云阿里巴巴、蚂蚁金服和淘宝的个人数据，让共产党掌握老百姓信息，使有的人被抓，有的人被杀。 并且打着私营企业的名声，到美国上市，骗取美元财富，然后再偷取人家的技术。
+And the world literally I got a very interesting note from a family Doctor that’s been in Ireland for 40 years
 
-马云大数据、海航、华为等这 11 家企业海外扩张走出去，就是干死美国、干弱美国、搞乱美国的执行者。
-Youtube视频
-由中共十一家国有军企走出国门那天起至今我们看到的给一带一路所涉及的国家都留下了什么？
+我从一位在爱尔兰工作了40年的家庭医生那里得到了一个非常有趣的笔记
 
-1.“一带一路”伴随大量腐败、洗钱、利益集团交易，中共国人民的血汗钱被盗取和转移到国外。
+he knows his community, he knows his patients
 
-2.坑害到那些国家的民众和环境，造成人道灾难。“一带一路”就是“一贷一赂”只会让他们陷入无法自拔的债务陷阱并受到中共的胁迫和压制。如：斯里兰卡的汉班托港、马来西亚的铁路建设、柬埔寨的大坝影响了成千上万村民 的生活，造成了严重的人道灾难，鉴于中共已经在中共国、老挝和柬埔寨的河流及其支流上修建了几十座大坝，这些国家和地区的水资源已经被中共牢牢控制。湄公河对东南亚数千万人的生存至关重要。中共对该地区的许多此类项目的不透明操作，对当地环境和本地居民生计所造成严重破环和恶劣影响，后果难以估量。
+他了解他的社区，了解他的病人
 
-3.中共借推广“一带一路”战略的机会，陆续在各大洲参与的国家中投资建设了一些具有重要经济意义和战略意义的港口，诸如巴基斯坦的瓜达尔港 、澳大利亚的达尔文港和非洲的吉布提港、吉布提海军基地以及美洲的委内瑞拉，中共都暗中部署了部队、核潜艇、航空母舰和各种武器。达到对“一带一路”沿线各国的全面入侵，将这些国家的政治、经济、文化等全部纳入其军事控制之下，实现其军国主义霸权下的帝国梦。 这严重威胁到大西洋沿岸欧洲国家和美国的国家安全。
+And he said hey you know a lot of my patients are getting the shot, some aren’t
 
-三年前孟晚舟被抓是美国已经意识到了如果不这样， 美国这个国家将会面临巨大的国家安全问题。5G 将把美国置于死地，美国将会输掉世界上最关键的一战。
+他说，你知道，我的很多病人都打了疫苗针，有些没有打
 
-美国惩罚孟晚舟个人不是最终目的，华为才是它要搞的对象。美国司法部今天发的声明就明确说了：“孟晚舟已经承认了华为非法销售到伊朗和欺骗金融机构的事实。我们将继续华为的案子，期待在法院证明我们的案子。”有了孟晚舟的这个事实承认，相信华为在美国将无法翻案，只会遭受更严厉的惩罚。
+But in those are and he listed the number of cancers he seen in a 6 week period of time
 
-（本文观点纯属个人）
+但在那些打了疫苗的人中，他列出了他在6周内看到的癌症的数量
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+that is never seen in a 40 years career
+
+这是在他40年的职业生涯中从未见过的
+
+And so he asked to what could be causing that?
+
+于是他问，可能是什么原因造成的呢？
+
+So, I sent him that paper as a potential mechanism
+
+所以我把那篇论文作为一个潜在的机理发给了他
+
+As that Toll-like receptor number 4 is critical in the microenvironment to keep cancers in check
+
+因为那个哨兵一样的4号受体在微环境理里是控制癌症的关键
+
+So I was talking to Harvey Risch, the world-renowned epidemiologist
+
+因此，我与世界知名的流行病学家哈维·里希进行了交谈
+
+He said, well you know the post shot therapy is usually going to be 5-10 years
+
+他说，你知道接种疫苗后治疗通常需要5-10年
+
+till we see the signals
+
+直到我们看到信号
+
+I said yeah usually it would be
+
+我说是的，通常是这样的
+
+But when we have something that we never done before
+
+但是，当我们有一些我们以前从未做过的事情的时候
+
+that suddenly suppressing one of the receptors that’s highly highly responsible for keeping cancer in check.
+
+突然抑制了一种对控制癌症负有高度责任的受体
+
+It would be very explicable as to why something that is quiescent
+
+这很容易解释为什么有些东西是静止的
+
+All of a sudden wakes up
+
+一下子就醒了
+
+So I mean all day long our cells are fighting off mutations in different cells
+
+所以我的意思是，我们的细胞整天在对抗不同细胞的突变
+
+They see the mutation to try to kill that cell
+
+他们看到突变，试图杀死那个细胞
+
+If this receptor is downregulated
+
+如果这个受体被抑制了
+
+then all those downstream are molecules inside that cell that’s fighting there can’t fight
+
+那么所有其后的分子在细胞内的战斗就无法进行
+
+Because those signals are now turned off the cytokines, the interferons
+
+因为这些信号现在关闭了细胞因子和干扰素
+
+the things that will attack that atypical cell
+
+这些东西会攻击非典型细胞
+
+So, we’re seeing the early signals of this
+
+所以，我们看到这样的早期信号
+
+And so that’s what’s concerning is we want to be able to under the microscope
+
+这就是我们想要在显微镜下观察的问题
+
+you know here’s a whole stack of tumors
+
+你知道这里有一大堆的肿瘤
+
+in the last couple of weeks where what am I doing is
+
+在过去的几周里，我在做什么呢？
+
+I’m looking at the ratios of helper T cells this CD8 killer T-cells
+
+我在观察辅助T细胞和CD8杀伤性T细胞的比例
+
+and then we’ll be staying these for always
+
+然后我们会继续这么做
+
+Because some of these patients again inexplicable cancers
+
+因为这些病人中有些人的癌症无法解释
+
+at really unusual ages
+
+真的是在不寻常的年龄
+
+That are really thick cancers and really aggressive cancers compare to where we are used to seeing in a lab
+
+与我们通常在实验室里看到的相比这些是非常稠密的，非常有侵略性的癌症
+
+听写/翻译：烟波浩淼 | 校对：雨山溪桥客 | 视频制作+字幕：小腾腾说

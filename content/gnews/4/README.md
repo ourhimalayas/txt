@@ -2,38 +2,34 @@
 ---
 
 
-## 秘翻在线：中共猛烈抨击英国海军护卫舰穿越台湾海峡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1560440/)
+## 中共在联合国告状, 质疑英美澳核潜艇协议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560487/)
 
-#### 文章撰写： 寶寶
+栏目记者/责任编辑：飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/FAOva5CVcAsdaf43t34r2Uv75z.jpg)
-
-据零对冲9月28日报道，中共对英国军舰通过台湾海峡的最初反应平淡，外交部发言人华春莹告诉记者，北京希望“有关国家能够为建立国家间互信，维护地区和平与安全做出更多努力。”
-
-但不久之后，哥伦比亚广播公司（CBS）报道的，中共军队的东部战区司令部表示，它已派遣空军和海军部队跟踪里士满号，并警告它离开台湾海峡。
-
-军方声明说：“这种行为怀有恶意，破坏台海和平稳定。”
-
-“战区指挥部队始终保持高度戒备，坚决应对一切威胁和挑衅。”
-
-据《星条旗报》报道，自 2019 年以来，一艘英国军舰周一首次通过台湾海峡，同时拜登政府经常让导弹驱逐舰穿过敏感的水道，以反击北京在该地区的军事侵略。
-
-以反潜战闻名的23型护卫舰里士满号（HMS Richmond）在推特上表示：“经过与东海伙伴和盟友的忙碌工作之后，我们现在正穿过台湾海峡访问越南和越南人民海军，”
-
-- 上一次英国军舰穿越争议激烈的狭长水域是2019 年的里士满天企业号（HMS Enterprise）。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-当被问及护卫舰航行情况时，中共外交部发言人华春莹在例行记者会上对记者说，“有关国家应做有利于建立互信、维护地区和平稳定的事情。”
 
-伦敦此举正值拜登政府每月派军舰通过海峡之际，这加剧了与中共的紧张关系。 已经有 13 次这样的航行，表明美国对一个自由的印太地区的承诺。
+9月27日，中共常驻联合国代表张军，在联合国安理会出席核问题讨论会时称“个别核武器国家不能表面上高喊致力于维护国际核不扩散体系，暗地里却协助无核武器国家建造核潜艇。”暗指此前美国、英国和澳大利亚9月初的三边安全协议，按照该协议，美英两国将帮助澳大利亚建造核动力潜艇。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0928-AM-2、4、5.005.jpeg)
+美国五角大楼发言人解释美澳加强防务关系时则说：“中共国在印太地区的攻击性行为，促使整个国际社会都在聚焦该地区，我们将采取行动确保一个自由与开放的印太地区，并最终实现这个愿景。” 其言下之意表明了英美帮助澳洲升级军力，正是对中共威胁的合理反应！
 
-英国海军上将托尼·拉达金（Tony Radakin）最近告诉《日经亚洲》，“台湾海峡是国际水域，这是一条可供不同国家使用的水道，这一点非常明确。”
+同时美、英、澳三方也都强调，英美帮助澳大利亚建造的潜艇将只是采用核反应堆作为驱动力，并不配备任何核武器，并坚称这项协议旨在维护地区和世界和平。
+(本文仅代表作者观点)
 
-此外，北共一直加大对台湾的外交压力，台湾拒绝承认台湾是中国的一部分。 由于两岸冲突的威胁加剧，中共空军今年已对台湾防空识别区进行了500多次入侵。
+参考链接：[澳英美核潜艇协议刺到痛处 中国到联合国告状](https://www.voachinese.com/a/china-un-aukus-20210928/6248363.html)
 
-里士满号是英国皇家海军伊丽莎白女王号航母打击群的一部分，首次前往太平洋地区执行任务。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-参考文章：[**China Slams UK’s “Evil Intentions” After Navy Frigate Sails Through Taiwan Strait For First Time Since 2019**](https://www.zerohedge.com/geopolitical/british-frigate-sails-through-taiwan-strait-first-time-2019)
+终审：文龙
+校正/发稿：我不在这里
 
-本文仅代表作者本人观点，不代表Gnews平台
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
