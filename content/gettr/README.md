@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 11:13 PM (UTC)`
+
+🤣🤣🤣💪💪💪
+> `@taishan 9/28/2021 10:00 PM (UTC)`<br/>2016年的陈峰多么傲娇，那时的海航集团多么不可一世…<br/>2017年文贵先生和爆料革命横空出世、盘古开天…<br/>一场正义与邪恶的殊死搏斗一直在继续…<br/>如今海航怎么样了？陈峰又去哪儿了呢？<br/>今日之爆料革命正在集结全世界正义力量所向披靡……<br/>正义终将战胜邪恶
+![img](https://media.gettr.com/group24/getter/2021/09/28/22/00/d138e3b4-1284-9f45-ced8-a7456940819f/out.jpg)
+
+---
+
 `@miles 9/28/2021 11:08 PM (UTC)`
 
 9.28:【七哥好，英国跟您今天盖特说的完全一样】
@@ -296,13 +304,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 这段视频清楚地展示了郭文贵先生对中共病毒 Covid疫苗早期的反复预警。 这些疫苗产品是国际“黑暗势力”与中共勾结的结果。Covid 疫苗将在 COVID-19 大流行中造成严重的副作用和次生灾难。 太多人遭受Covid疫苗副作用的折磨，很多人甚至失去了生命。<br/><br/>一系列事件充分验证了郭文贵的警告。 历史是现在和未来最好的证明！ 拒绝有毒疫苗就是在拯救人类。 传播真相，永不放弃！
 ![img](https://media.gettr.com/group18/getter/2021/09/26/18/04/0dbe7abb-2c8b-c654-128c-08462e0ac55c/out.jpg)
-
----
-
-`@miles 9/26/2021 6:02 PM (UTC)`
-
-This clip clearly displays Mr. Miles Guo’s repeated early warnings about the Covid Vaccines for the CCP Virus. This vaccine product is the result of collusion between the international "Dark Forces" and the CCP. The Covid Vaccines would cause serious adverse effects and a secondary disaster in the COVID-19 pandemic. Too many people are suffering from the Covid Vaccines and lots of people have even lost their lives.<br/>A series of events have fully validated Miles Guo's warnings. History is the best proof of present and future! Rejecting toxic vaccine is saving humanity. Spread the truth and never give up!
-![img](https://media.gettr.com/group19/getter/2021/09/26/18/02/4dd57d16-5b15-1094-4b6e-c059522bd205/out.jpg)
 
 ---
 
