@@ -2,33 +2,33 @@
 ---
 
 
-## 部分英国中学遇网络侵入 系统向家长发出知情同意书
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560687/)
+## 中共国能源紧张触发警报，请求更多煤炭供应
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1560724/)
 
-栏目记者/责任编辑：安吉拉
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-423.png)
-刚刚过去的周末，数家英国中学邮件系统遭受网络侵入，向系统中的家长邮件列表地址发送新冠疫苗接种知情同意书。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-13.jpg)网络图片
+**摘要：**据路透社消息，随着严重的电力紧缺席卷中国东北部的工业中心，高级官员面临着来自惊慌失措的公民的越来越大的压力，他们要求大量和快速地增加煤炭进口，以保持照明、工厂开工甚至供水连续。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-26.jpeg)
+由于煤炭供应不足引发的电力短缺导致了大部分工业瘫痪，世界第二大经济体中受冲击最严重的吉林省省长呼吁增加煤炭进口，同时一家电力公司协会表示，正在“不惜一切代价”扩大煤炭供应。
 
-这份两页的pdf文件详细列出来新冠病毒和疫苗的多项事实，包括疫苗属于紧急授权缺乏临床数据、将诱导人体产生刺突蛋白、无法保护接种人不受病毒感染、超高严重不良反应比率及导致不孕不育的长期影响。文件同时强调了，年轻人群因接种新冠疫苗的死亡概率远远大于病毒本身的危害。所有的新冠疫苗都是实验性的，其制造商可免于承担民事责任。
+新闻机构和社交媒体的报道和帖子称，东北地区缺电不仅引发工厂停工，也导致交通信号灯、住宅电梯和 3G 手机覆盖关闭。沈阳和大连等城市（人口超过 1300 万）受到影响，
 
-文件第二页是针对第一页注意事项的官方解释，包含CDC、英国政府，及公共健康部门官网地址；家长可以直接扫描二维码或点击链接阅读官方资料。
+由于煤炭供应短缺、温室气体排放标准收紧以及工业需求强劲推动煤炭价格达到顶峰，电力紧缩已经开始——截至周二格林威治标准时间 05:00，中国动力煤期货上涨 7% 至创纪录的 1,324 元（204.76 美元）/ 公吨。
 
-学校发现此事后，急忙补发邮件让家长们“忽略”该知情同意书，但家长们表示，文件陈述的内容让人感到十分担心，更为震惊的是，从官方文件看到政府和医疗机构早已知情却依旧推行接种计划。很多家长直接回复学校，表示坚决不同意孩子接种新冠疫苗。
+高盛估计，中国多达 44% 的工业活动受到电力短缺的影响，可能导致第三季度 GDP 年化增长率下降 1 个百分点，10 月至 12 月下降 2 个百分点。它在周二发布的一份报告中表示，它将对中国 2021 年的 GDP 增长预测从之前的 8.2% 下调至 7.8%。
 
-知情同意权的形成最早源于根据纽伦堡审判和人体实验伦理规则， “知情同意，免予强制、合理设计及有利于试验参与者”为《纽伦堡准则》的基本原则。新冠疫苗的推行已经完全违反了该准则，并打破医学伦理的最基本要求。
+**简评：**中共国的能源危机不仅将导致供电不足，使限电成为常态，同时也会推动电价上涨，老百姓过冬取暖将会十分艰难。能源危机只是中共经济崩塌的一部分，之后大公司倒闭潮和银行破产所引发的金融危机、粮食危机会陆续爆发。
 
-（本文仅代表作者观点）
+原文链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+[https://www.reuters.com/world/china/china-energy-crunch-triggers-alarm-pleas-more-coal-2021-09-28/](https://www.reuters.com/world/china/china-energy-crunch-triggers-alarm-pleas-more-coal-2021-09-28/)
 
-校对/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

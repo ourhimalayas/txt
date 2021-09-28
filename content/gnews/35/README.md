@@ -2,32 +2,26 @@
 ---
 
 
-## DC每日热点0928
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1560533/)
+## 法官解除接种禁令 纽约市教职工处境艰难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1560609/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/09/ED71919B-29D2-41E3-9114-198C38167886-scaled.jpeg)
-道琼斯指数 34769.39 ▼0.29%
-纳斯达克指数 14815.77 ▼1.03%
-WTI纽约原油CFD 75.759 ▲0.41%
-布伦特原油CFD 78.995 ▲0.35%
-美元兑人民币 1USD=6.461RMB
-美元兑港币 1USD=7.783HKD
-国际黄金 1738.34 美元/盎司
-全球CCP病毒感染人数 233,218,214 例
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-421.png)
+针对纽约市强制要求教职人员接种新冠疫苗的规定，继第二巡回上诉法院的法官于上周五批准临时禁令后，周一，由三名法官组成的快速审查小组宣布解除了这项禁令。
 
-1、美国宣布实施一次HAWC高超音速武器飞行测试
-2、北约与北京对话,对发展核武器和军事现代化不透明表达忧虑
-3、美军参谋长联席会议主席米利上将周二将出席参议院听证，接受与中共解放军将领李作成两次通话有关的质询
-4、中共将反对澳英美三方安全协议AUKUS的立场带到了联合国，称建造核潜艇协议将加剧军备竞赛，损害国际核不扩散体系
-5、孟晚舟获释不是中共无条件的胜利，她签字承认了误导全球金融机构的事实，并签署延期起诉协议以解决欺诈指控
-6、白宫: 孟晚舟案纯法律考量，美对中共国与华为政策不变
-7、英国警告公民注意香港引渡条约的风险
-8、巴基斯坦与塔利班讨论阿富汗参加中巴经济走廊问题
-9、英国研究小组指伦敦缺乏仔细中共国策略 需新方向应对北京
-10、世界卫生组织组建新专家组 重启新冠病毒溯源调查
-11、日本制定网络安全战略，首次点名中俄朝为网络空间威胁
-12、传辽宁方大集团巨额注资海航
-13、美国开始拆除电信网络中华为和中兴等中共国设备
-14、瑞士议会要求政府出面与中共国国家“最高政治机构”进行交涉假货问题
-15、亚利桑那审计现5万多问题选票 已提交总检察长
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-49.jpeg)
+
+按照纽约市政府的规定，从本周二开始，拒绝接种疫苗的教职人员，要么选择无薪休假一年，要么离职。但鉴于审查小组刚刚做出的决定，目前尚不清楚市政府是否会立即执行。据悉，原告律师已经向最高法院申请司法干预。
+
+法官的这一决定，不仅使学校和学生失去了职员和老师，还因此切断了很多家庭的收入来源，致使他们无法支付房租、水电和其他生活必需品。而在世界经济危机到来之际，这一决定将会对社会造成无法挽回的伤害。
+
+（本文仅代表作者观点）
+
+参考链接: [Update: Federal Judges Say NYC Can Impose Vaccine Mandate on School Employees – Lawyers Representing Teachers to Petition US Supreme Court](Federal%20Judges%20Say%20NYC%20Can%20Impose%20Vaccine%20Mandate%20on%20School%20Employees%20–%20Lawyers%20Representing%20Teachers%20to%20Petition%20US%20Supreme%20Court)
+[Federal judges: NYC can impose vaccine mandate on teachers](https://www.cnbc.com/2021/09/27/federal-judges-nyc-can-impose-vaccine-mandate-on-teachers.html)
+[Judge’s ruling creates cliffhanger for NYC teacher vaccine mandate](https://nypost.com/2021/09/25/nyc-teacher-vaccine-mandate-paused/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园

@@ -2,12 +2,9 @@
 ---
 
 
-## 数据显示伊维菌素有效预防和治疗中共病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560209/)
+## 杰森·米勒宣传Gettr遇到许多左派制造麻烦压制言论自由
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1560397/)
 
-- 制作：葛大饼
+9/27/2021 杰森·米勒在世界各地宣传Gettr时，遇到许多左派制造麻烦，因为他们想压制言论自由。
 
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
