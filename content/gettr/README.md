@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 8:44 PM (UTC)`
+
+How on the earth that the companies are require their workers to get vaccinated? And if workers refuse to do so, their job will be jeopardized, in the meanwhile they all knew this covid vaccine is very risky and caused death on many people, but they still do so?! STOP what you are doing, either you’re completely fool or your hands will be full of blood. For people who are still debating whether they should put food on the table for their families or choose what’s right for themselves. I want to say, your live matters!  <br/>Don’t you know that the drug companies take no responsibility for their products, so why should you have the obligation to take it.  <br/>“Freedom is not a gift bestowed upon us by other men, but a right that belongs to us by the laws of God and nature” <br/>
+![img](https://media.gettr.com/group33/getter/2021/09/28/20/44/359b000d-a332-445e-18c5-abb83b92e7c1/out.jpg)
+
+---
+
 `@miles 9/28/2021 7:29 PM (UTC)`
 
 Unfortunately, there are more stories like this, but they just aren't being reported on the news. What happened with the mainstream media? Why are you covering the truth about the covid vaccine?!    You have committed a crime by encouraging people to get these toxic vaccines. Sooner or later, you will be punished by God. So, we need more people to spread the truth about vaccines and not let these tragedies happen again because there's a good chance your family and friends will be next! Wake up, friends!<br/>不幸的是，像这样的故事还有很多，只是没有出现在新闻中。主流媒体是发生了什么?你为什么要隐瞒新冠疫苗的真相!你鼓励人们接种这些有毒疫苗就是犯罪。你们迟早会受到上帝的惩罚。我们需要更多的人来传播疫苗的真相，不要让这些悲剧再次发生，因为很有可能你的家人和朋友就是下一个受害者!醒醒吧,朋友们!
@@ -296,14 +303,6 @@ The end result of Huawei Meng Wanzhou case is no different from Mr Miles Guo’s
 
 9/25/2021 Miles Guo’s GETTR: Before the Covid vaccine and virus catastrophe arrives, <br/>our fellow fighters shall focus on the following key issues: 1) stay away from the CCP virus, 2) not get vaccinated, 3) prepare for necessary medicines and antidotes, and 4) until the threat is disarmed, you must ensure you have food to eat, dwelling to live and money to spend<br/><br/>9/25/2021 文贵盖特：在疫苗和病毒大灾难到来之前，战友们要关注四个重点：1）防范中共病毒、2）不打疫苗、3）备好解药、4）在威胁解除前保证有饭吃、有房住、有钱花<br/>
 ![img](https://media.gettr.com/group4/getter/2021/09/26/02/29/67198591-5c17-db43-0c65-d100ab5aa844/out.jpg)
-
----
-
-`@miles 9/26/2021 2:16 AM (UTC)`
-
-WOW 
-> `@zhongren 9/26/2021 1:50 AM (UTC)`<br/>Gfashion太酷啦！太帅了太帅了，🌹🌹展油们都去买！！<br/>穿上就是最靓的仔～原来我可以这么的帅❤️❤️郭叔的品味实在是🐂！<br/><br/>#gfashion #best #himalaya <br/>#himalayanz 
-![img](https://media.gettr.com/group21/getter/2021/09/26/01/49/5858e426-d500-66de-eff9-74fc93a0b6c0/cb69b5dcba0184b8beeea1e2c77ab1af.jpg)
 
 ---
 
