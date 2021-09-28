@@ -2,37 +2,42 @@
 ---
 
 
-## 亚利桑那州司法部长表态“是时候进行战斗了”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1558648/)
+## 《疫苗死亡报告》：疫苗制造商不承担任何责任
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1558735/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 作者：David John Sorensen/Dr. Vladimir Zelenko, MD
+翻译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cover-vaccine-death-report-1.jpg)
+**科学证明了疫苗的伤害**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/B-5.jpg)wiredailynews.com
-一直对亚利桑那州“国家审计”态度含混，有见风使舵嫌疑的亚利桑那州司法部长（Attorney General）马克·布尔诺维奇（Mark Brnovich），在“国家审计”报告听证会举行前表态，“如果我们现在不站起来保护宪法和法治，我们将永远无法恢复。”
+旧金山大学（University of San Francisco），或索尔克研究所（Salk Institute）的一项研究表明，疫苗将人体变成一个刺突蛋白工厂，制造出数万亿个导致血栓的刺突，从而引起中风和心脏病发作。另一项研究证实了疫苗如何导致致命的血栓，进而导致心脏病发作和中风。《新英格兰医学杂志》（The New England Journal of Medicine）显示了针剂如何导致心脏发炎，同一杂志还发表了一项关于流产急剧增加的研究。一些研究证明了抗体依赖性增强的现实。另外，不孕症和精子数量减少的发生也得到了证实。最后一项研究表明，注射会导致癌症。而这些只是几个例子……
 
-《门道专家》（The Gateway Pundit）9月26日发表文章称，亚利桑那州司法部长马克·布诺维奇强调，是时候进行斗争了。
+参考资料：
+1: https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/
+2: https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902
+3: https://www.nature.com/articles/s41586-021-03744-4
+4: https://www.nejm.org/doi/full/10.1056/NEJMc2109975
+5: https://deeprootsathome.com/a-foreshadowing-buried-82-miscarriage-data-in-new-nejm-study/
+6: https://papers.ssrn.com/sol3/papers.cfm?abstract\_id=3897733
+7: https://pubmed.ncbi.nlm.nih.gov/32908214/
+8: https://citizenfreepress.com/breaking/whoa-fauci-finally-mentions-vaccine-risk-for-ade/
+9: https://canadianmale.wordpress.com/2021/04/19/thousands-of-reports-of-menstrual-irregularities-reproductivedysfunction-following-covid-vaccines/
+10: https://www.lifesitenews.com/wp-content/uploads/2021/06/Pfizer-bio-distribution-confidential-documenttranslated-to-english.pdf
+11: https://www.nature.com/articles/s41586-018-0465-8
 
-布诺维奇部长说，我们国家最宝贵的文献受到越来越多的威胁，亚利桑那州“现在正是中午”（笔者注：他借用了1952年美国的影片《正午西部》“High Noon Western”来形容当下）。
+**疫苗制造商不承担任何责任**
 
-《门道专家》报告说，布诺维奇在审计报告提交之前发表声明说，他将采取有证据支持的必要行动。
+在过去的几十年里，世界各国签署了若干官方政府协议，为每一个疫苗制造商提供 100% 的保护，使其免于承担任何和所有责任。不管他们的产品会造成多大的破坏，造成多少人的死亡和永久性残疾，都没有人可以追索。
 
-文章附上了布诺维奇司法部长的推特，“这是一个容易错过的机会，是历史的关键时刻，如果我们现在不站出来保护宪法和法治，我们将永远无法恢复。”
+**世界各国政府确保没有一家疫苗公司可以为他们对全世界人民所做的事情负责。**
 
-《华盛顿观察者》报道，布尔诺维奇说：“我觉得这是一个稍纵即逝的机会，是历史的一个关键时刻，如果我们现在不站起来保护宪法和法治，我们就再也回不来了。”他将自己比作加里·库珀（Gary Cooper）在经典影片《正午西部》（High Noon Western）中扮演的警长。
+没有任何健康保险会支付因疫苗损害产生的费用，当接种疫苗的人遇到麻烦时，他们根本不会为其报销。完全要靠自己，没有人会来救你。然而……那些拒绝保护你的健康、生命和心爱的人免遭可能的破坏的政府，却强制要求进行这些致命的注射，并要求你在购物、旅行、聚会甚至银行服务时出示注射证明。
 
-他特别担心华盛顿民主党人将在大选前成功推动拜登的自由主义进程，而共和党人正全力争取国会的多数席位。
+**注射正在继续**
 
-他说：“我们这个国家正面临着两大疾病：一个是在中共国实验室制造的（病毒），另一个则是来自华盛顿特区。如果我们现在没有这场斗争，我不想在25年或50年后回首往事，人们会问，‘当美国成为社会主义或马克思主义国家时，你做了什么？’我想能够说，‘我阻止了它。’”
+**那些组织这一犯罪行动的人，想确保世界上没有人能够在没有持续注射的情况下生活……代价是惊人的死亡和破坏。没有任何保险公司会赔偿任何受害者，而疫苗公司则被100%的保护起来。**
 
-该是停止这个不正当政权的时候了。
+[vaccine-death-report](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/vaccine-death-report.pdf)
 
-（全文完）
-
-看到这里，必须为布诺维奇部长点赞！“我们这个国家正面临着两大疾病：一个是在中共国实验室制造的（病毒），另一个则是来自华盛顿特区。”相信这段时间以来受文贵先生、新中国联邦引领的爆料革命的影响，布诺维奇部长对邪共有了充分的认知，对中共病毒的阴谋有所了解。也意识到了民主党人正在走马克思主义的道路，所以他要采取行动进行阻止。
-
-大觉醒时代的进程已经开启，唤醒人们的时刻已经到来。邪恶势力会疯狂地掩盖和阻止，越是这样，越能帮助大众认清邪恶，中共你死期已到！
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/09/high-noon-arizona-attorney-general-mark-brnovich-dont-stand-now-protect-constitution-rule-law-never-get-back/](https://www.thegatewaypundit.com/2021/09/high-noon-arizona-attorney-general-mark-brnovich-dont-stand-now-protect-constitution-rule-law-never-get-back/)
+**原文链接：**[THE VACCINE DEATH REPORT – Millions Are Dying From The Injections](https://www.stopworldcontrol.com/report/)

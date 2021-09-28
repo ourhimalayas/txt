@@ -2,79 +2,60 @@
 ---
 
 
-## 2018年4月24日郭文贵先生视频全文听写二：在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！
-` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1559362/)
+## 前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1559409/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-27-at-5.43.24-PM.png)
-视频链接：[https://www.youtube.com/watch?v=evMMXX-34DM](https://www.youtube.com/watch?v=evMMXX-34DM)
-
-- **（00:00）所有关于郭文贵的证人全是在押犯人，证据全是在押的**
+前白宫经济顾问皮特·纳瓦罗： 推特上的“取消文化”又开始(作怪)了。他们决定不允许我为我的推文做广告。很显然,真相刺激了他们泼妇般敏感的神经。这些人是谁？ 盖特(GETTR)是推特杀手。推特的“取消文化”正在摧毁美国。
 
 
-**郭文贵先生：**尊敬的战友们好，从重庆市公安局开完了叫作案情通报会。
 
-我感觉真有意思。郭文贵能让中国的警察有这么大变化，办案的都有通报会了，雷洋咋没有案情通报会呢？你说中国过去5，6年抓了几百万人，牵涉了上千万人，咋没有通报会呢？那肖建华案咋没个通报会呢？那安邦吴晓晖咋没个通报会呢？
-
-不但通报会还通知了全世界在北京的50多家媒体记者。那你说海航的事咋没个通报会呢？那王岐山同志的这个老婆的美国证券咋没个通报会呢？贯君刘呈杰咋没个通报会呢？
-
-文贵开启了中国有多少的第一次，第一次。这就是喜马拉雅的力量，这就是我们追求依法治国的力量，这就是我们的成就。不管你承不承认你都在被改变中。当年有一位非常重要的老师给我说了一句话，说这个乌托邦，他是不见棺材不落泪的，你必须要让它见了棺材，让它躺在里边然后盖上盖，它才会落泪。
-
-现在看来他们正在往里面走的时候，所以你看，结果搞了一个周先生，还有这他兄弟俩出来认罪。中国的案子法律规定，未审就先把这人撂出来，这是合法吗？陈氏两个兄弟是在被囚禁中，所有关于文贵这些年所有的出来电视认证，什么郭三秒那个女孩啊，还有什么王有杰啊、马建副部长啊、石发亮啊、曲龙啊，全是被在押犯人。
-
-所有关于郭文贵的证人全是在押犯人，证据全是在押的。现在大家都在问这俩人，加拿大的人到了新加坡怎么就跑回大陆去了？而且从湖南抓的，广东抓的，我向你们保证他在新加坡丢失的。怎么跑回大陆去的，这是个问题。
-
-为什么一个在囚禁中的人，你让他讲的话能算证据。为啥这不让他两个回到加拿大来？只要重庆公安你有种把这两人给放到加拿大来，他说啥我都认，他说什么我都承认。他说我杀人我都认，我现在在这块以视频为证。你把所有人抓起来就像那个铜锣湾事件，让人家说啥人说啥。你敢把人放回来吗？这叫耍流氓这不叫警察。
-
-- **（03:00）这个专员就是现任常委的某个秘书，是陈氏兄弟的亲戚**
+> The cancel culture twits at Twitter are at it again. They have decided they won't allow me to advertise my tweets. Apparently truth offends their pearl-clutching sensibilities. Who ARE these people?
+> 
+> GETTR is the Twitter Killer. Twitter's cancel culture is destroying America.
+> — Peter Navarro (@RealPNavarro) [September 27, 2021](https://twitter.com/RealPNavarro/status/1442283619926564872?ref_src=twsrc%5Etfw)
 
 
-**郭文贵先生：**那么关于这两位陈氏兄弟绝不像大家想象那么简单，他俩的背后的故事可事儿大了去了。就在这两位兄弟，我在这先说抱歉，这事让你们受苦了，同时给你家人带去问候。你们不要紧张，我相信你们知道他俩是什么身份什么个性。你们要有任何经济上困难直接给我联系，我文贵义不容辞全力以赴。那么我相信你们家人对他俩是有信心的，了解他俩的追求是什么。
 
-这两位先生是双胞胎，一米九的个子，能吃至极。在我家吃过一顿饭，我桌上三分之二的饭都被他吃了。我说你吃吧我知道你能吃。在这之前都是我的助手和我的保镖见的他。在个印度餐馆，每次他一个人吃3个人饭，人特别特别的帅非常冷静，受良好的教育。从小到大就是对乌托邦对共产党那是看不惯的，而且他身边的很多人都是真正的有良知的，不是所谓搞募捐的那些民主民运人士，是非常有良知的追求中国的法治民主自由的人士。
-
-而且我再告诉你们他那个文件肯定来自中南海，而且就在现任的常委当中办公室出来的。你们可以看看今天两会时候哪个常委脸上不高兴。我在过去视频说过你看看有人不高兴，为啥不高兴？其中就涉及到陈氏两位兄弟，就是我们叫周先生。因为他抓他之前，先把那个常委，现任常委，现在的现任常委其中的秘书给抓了。
-
-也就是他给我通话中讲专员，专员，这个专员就是现任常委的某个秘书。这个专员同时是他家的亲戚，好像是他的什么妹夫，这个人很了不起。所以说好戏因为重庆市警察局现在搞热闹了，全世界关注。现在我这里热闹了，全世界都要找我。问我咋回事，你看这不是给我做广告吗？我不说都不行，我让子弹飞一会。
-
-- **（05:15）与陈氏兄弟的所有来往都会公布出去，盗国贼上当了**
+美国务院发言人内德·普莱斯： 国务卿布林肯与新加坡外交部长[@VivianBala](https://twitter.com/VivianBala) 进行了交谈，并肯定了我们国家的密切伙伴关系。他们讨论了我们对印太地区、太空合作和应对气候危机的承诺。 【附国务院官网新闻】
 
 
-**郭文贵先生：**我和陈先生之间的这个录音被他们给剪接了。我从第1天告诉他到最后，你千万不要你造假，你造假那你一定要负责，我是不愿意的。那么同时到后来有人提出这个文件是假的，我又问他，大家看了那一段了吗，那一段是警察掐住那一段，他把所有的录音都听过了，没有一样有毛病的。
 
-那就那一句，这是我说不能造假，他就说他能造假我们不能造假吗
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) spoke with Singaporean Foreign Minister [@VivianBala](https://twitter.com/VivianBala?ref_src=twsrc%5Etfw) and affirmed our countries’ close partnership. They discussed our commitment to the Indo-Pacific region, space cooperation, and combatting the climate crisis. [https://t.co/D5Uai0fWpn](https://t.co/D5Uai0fWpn)
+> — Ned Price (@StateDeptSpox) [September 27, 2021](https://twitter.com/StateDeptSpox/status/1442609472128659459?ref_src=twsrc%5Etfw)
 
-这是前边有前缀，后面有后因的，这个语境。结果他给掐断了，这一掐断好像他很聪明，他当然拿枪逼着两兄弟说了这是我让的。大家可以看一看，世界上50家媒体没有一个是笨蛋的。现在都在找我问，都很兴奋，成了世界焦点了。慢慢来，让子弹飞一会。
 
-接下来我会把和两位兄弟之间所有的来往都会公布出去，我正在和律师开会每一个字每个字地确定中，我向大家保证我不会剪辑一个字。到那时候重庆公安你不就帮文贵了吗？所以说重庆警察的同志们，你们辛苦了，郭文贵向你致谢啦。
 
-另外一个，盗国贼这回你找了50多家记者搞文贵的事情，我太清楚想干嘛了。因为你得到了假情报，有海外的伪类说郭文贵现在有什么什么事，那是我钓鱼的。我现在就告诉你你上当啦，结果你就啪嚓紧急弄出了这么一个重庆叫案情通报会帮了我大忙了。
+比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 通过恐怖主义人质外交取胜. 【转推称：孟晚舟和加拿大人质的交换是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和卖美贼幕后交易的的结果】
 
-因为你所有说的话都是假的，陈氏兄弟跟我没有买卖关系。我最初认识他，我给人家钱人家都不要。直到后来他要全职干这事的时候，说要去调查盗国贼的时候，我提出了给他发工资。虽然一个月4000，但是我每个月都给了6000到8000。而且在文贵的文件里面，他连千分之一都不占，千分之一都不占。
 
-他这次回去到新加坡是被钓鱼了，我坚决不同意他去。2月15号是我跟他最后一次通话，我说你绝对不要去，你去你一定会被你抓回去。他认为新加坡没问题。结果，他哗从新加波给绑回去了，因为他见什么去了？是交易肖建华的全部卷宗，全部卷宗。全部卷宗这是核心所以说被抓了，还有他俩个的这个亲戚是现在常委的秘书。
 
-还有一个他的文件只在我文件当中千分之一都不到。他给我的文件只有两份我用了，其他我一概没用。只有两份我用了。然后另外有两份给了其他部门，所以说他说30份我都不记得了，他的文件什么都不算。我跟他的关系不是文件，他也不是弄文件、造假文件的人。完全是造假。
+> China wins using terroristic hostage diplomacy [https://t.co/7D2hELRswq](https://t.co/7D2hELRswq)
+> — Bill Gertz (@BillGertz) [September 27, 2021](https://twitter.com/BillGertz/status/1442302993534128135?ref_src=twsrc%5Etfw)
 
-但他这回造假他先说了，盗国贼先说了，盗国贼先出手了。等着等文贵拿证据，来咱们向大家展示。盗国贼用的全是一方之词和被监禁的这个当事人所说的话。我说的是完全是多方的，不仅是两兄弟是多方的，还是有证据的而且是可以确认的。
 
-一切都是刚刚开始，大家等着别着急、别着急，等着文贵给你晾出去。莘县阳谷县搭县，光说空的咱不算，咱要拿证据才说了算。哈哈，哎呀，昨天晚上我是没睡觉啊！昨天赛场赢了很开心；但是今天开了很多会，午饭还没吃，但很高兴啊。
 
-\*\*\*\*\*\*END\*\*\*\*\*\*\*
+众议院共和党领袖凯文·麦卡锡 ： 民主党正试图将4,300,000,000,000美元的 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 宠物项目强加给美国人民。 它会导致通货膨胀 这会让我们的孩子背上债务 它将会改变政府的模样,正如我们所知道的. 这是个很糟糕的协议——共和党人将全力而战. 【附福克斯新闻：麦卡锡关于众议院民主党人的开支闪电战】
 
-温哥华扬帆农场七哥直播全文听写组：
 
-听写整理——
 
-多伦多枫叶农场：软红香土
+> Democrats are trying to force $4,300,000,000,000 in socialist pet projects on the American people.
+> 
+> It would cause inflation.
+> It would saddle our children with debt.
+> It would transform government as we know it.
+> 
+> It’s a BAD DEAL—and Republicans will fight it tooth and nail. [pic.twitter.com/VEuUd0YW6o](https://t.co/VEuUd0YW6o)
+> — Kevin McCarthy (@GOPLeader) [September 27, 2021](https://twitter.com/GOPLeader/status/1442535002823036932?ref_src=twsrc%5Etfw)
 
-全文总校——
 
-温哥华扬帆农场：Peter哥
 
-审核发布——
+众议员马乔丽·泰勒·格林： 国会应该保护被困在阿富汗的美国人，关闭边境入侵，并帮助被 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发送给我们的病毒摧毁的小企业。 与之相反，民主党正在通过法案来谋杀子宫内直到出生前的胎儿。
 
-温哥华扬帆农场：Peter哥
 
-全文发布稿总审核——
 
-温哥华扬帆农场：文敏
+> Congress should be protecting Americans trapped in Afghanistan, shutting down the border invasion, and helping the small businesses destroyed by the virus sent to us by China. 
+> 
+> Instead, Democrats are passing bills to murder babies in the womb up until birth. 
+> 
+> (Part 1) [pic.twitter.com/6g7UJsUdrx](https://t.co/6g7UJsUdrx)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [September 27, 2021](https://twitter.com/RepMTG/status/1442548123092635652?ref_src=twsrc%5Etfw)
