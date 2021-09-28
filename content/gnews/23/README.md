@@ -2,125 +2,22 @@
 ---
 
 
-## 习主席会怎么处理恒大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559263/)
+## 剑指喜币！中共全面封杀虚拟货币相关业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559354/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-image0-8.jpg)
-[https://gtv.org/video/id=6152014cd2e2b817486ec9cc](https://gtv.org/video/id=6152014cd2e2b817486ec9cc)
+撰稿：东京樱花团/鲤鱼打挺
+![](https://imgcdn.yicai.com/uppics/images/2021/09/365c8d0a4a46b087328216ce32d79813.jpg)
+[图片来源](https://www.yicai.com/news/101184866.html)
 
-今天恒大
-Hoy Evergrande Group
+近日，中共多个部门发布《关于进一步防范和处置虚拟货币交易炒作风险的通知》、《关于整治虚拟货币“挖矿”活动的通知》，在此背景下，多家虚拟币交易所停新清退，虚拟币相关业务被定性为非法金融活动。
 
-现在我救你, 我就得救所有人
-Si ahora te salvo, debo salvar a todos
+据“第一财经”9月27日报道，火币、CoinTiger、BiKi等虚拟币交易所将暂停中国大陆身份的用户注册，并请原有大陆用户提现相关资产，后续将进行清退工作。报道还专门指出，币安KOL社区等相关平台仍在“顶风作案”，加密资产概念，将成为“敏感词汇”，境外虚拟货币交易所通过互联网向境内居民提供服务、境内人员为境外交易所工作，都属于违法行为，且虚拟币投资交易的合同无效。
 
-我不救你, 所有人都成为我的灾难, 那怎么办
-Si no te salvo, todas las personas se convertirán en mi desastre, ¿ qué debo hacer?
+虚拟币一直是中共洗钱和蓝金黄的工具，为了阻止喜币上市，中共不惜“自废功夫”，由此可见，喜币具有绝对的安全性，前景不可估量。
 
-所以内部决定, 地方的事
-Entonces, la zona interna decide que esto es asunto local
+信息来源：[合规”路被彻底堵死，虚拟货币交易所开始停新清退](https://www.yicai.com/news/101184866.html)
 
-地方的钱, 地方解决
-El dinero local se resuelve dentro de la región
-
-中央的事, 中央解决, 他们想把恒大给肢解了, 然后呢
-Los asuntos del gobierno central los resuelven ellos mismos, quieren desmembrar a Evergrande Group y luego
-
-全部各部委
-Todos los ministerios
-
-所有承担责任
-Deben asumir las responsabilidades
-
-但是记住战友们, 给恒大出这个招的人
-Pero recuerden, compañeros luchadores, quien le dió este truco a Evergrande Group
-
-一定是江派的人
-Debe ser del Partido de Jiang
-
-习派没有这样的人
-El Partido Xi no tiene este tipo de persona
-
-他这样的出招, 就把整个中国的影子银行
-Este truco que hizo, dejó a todos los bancos de sombras de China
-
-保险机构、信托、所谓资金池子不在财富列表之内的
-Las instituciones de seguros, los fideicomisos y los denominados grupos de capital que no se incluyen en la lista de patrimonio
-
-这几十万亿全给隐藏住, 习100%用这个招
-Estas decenas de billones están todas ocultas y Xi usó este truco al 100%
-
-今天记着我的话
-Recuerden lo que dije hoy
-
-也看到了很多人都被安抚了
-También verán a muchas personas que serán consoladas
-
-买房的交房, 欠钱的按期付款
-El comprador de la casa lo entregará, y el dinero adeudado se pagará a tiempo
-
-但不准上街闹事
-Pero no deben crear disturbios en la calle
-
-习一听
-Xi al escuchar esto
-
-这事很好, 阻止了各种其他房地产商
-Dijo, esto es algo bueno y ha detenido a varios agentes inmobiliarios
-
-来到我这闹事
-A crear problemas aquí
-
-那么现在我告诉大家
-Entonces ahora les digo a todos
-
-恒大倒不倒
-Evergrande Group caerá o no
-
-关键是第一张牌
-El punto crucial es la primera carta
-
-一定会让你惊艳
-De seguro te sorprenderá
-
-共产党的一堆办法
-El Partido Comunista tiene cantidades de soluciones
-
-就是要让恒大不倒
-Para que Evergrande Group no se caiga
-
-你会看到一堆措施
-Verás muchas medidas
-
-但是最终我告诉你
-Pero finalmente, te digo
-
-一定会倒
-Seguramente caerá
-
-而且倒的非常的惨
-Y de la manera más terrible
-
-而且许家印进不了监狱, 许加印一定是车祸死啊
-Además, Xu Jiayin no entrará al carcel, él será muerto de un accidente automovilístico
-
-心脏病死啊、自杀啊
-De un infarto, suicidio
-
-猝死等, 一定这结局
-Muerte súbita, entre otros, el final debe ser así
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频网址：** [https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24](https://twitter.com/se1y7cblljselva/status/1441342619607396356?s=24)
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)

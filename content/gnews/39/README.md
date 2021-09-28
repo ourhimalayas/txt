@@ -2,21 +2,101 @@
 ---
 
 
-## 势同水火&#8211;接种疫苗让加拿大人之间的对立越来越深！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1559032/)
+## 煤价太贵，污染严重是中共国停电的原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559119/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/05/土豆打疫苗-6-edited-5.jpg)正在接种COVID19疫苗的加拿大总理特鲁多
-图片来源：thepostmillennial
+![](https://assets.gnews.org/wp-content/uploads/2021/09/123-Miles-asy99-gbcgn.jpg)
+[https://gtv.org/video/id=6151d1ead2e2b817486ebb99](https://gtv.org/video/id=6151d1ead2e2b817486ebb99)
 
+**郭文贵
+Miles**
 
-加拿大知名自媒体《Thepostmillennial》9月27日刊登文章指出，莱格（Leger）公司为【加拿大研究协会】（Association of Canadian Studies）进行的一项最新民意调查结果显示：超过四分之三的受访加拿大人对未接种疫苗者持有负面看法。
+刚才很多战友说这个安徽啊，广东啊，江苏大范围停电
+Just now, many comrades in arms said that Anhui, Guangdong, and Jiangsu had a large-scale power outage.
 
-据《渥太华公民报》（ *Ottawa Citizen*）于同日新闻报道，在9月10日至9月12日期间，有1,549名加拿大人对这项民意调查作出了回应，调查结果显示，参与者倾向于认为那些未接种疫苗的加拿大人是 “不负责任和自私的”。其中，约三分之二的受访者表示，已接种疫苗者和未接种疫苗者作为截然不同的群体，彼此之间存在着愈来愈严重的对立关系。而有大约25%的未接种疫苗者对其他未接种疫苗的人有负面看法，他们在个人层面上提出了不接种疫苗的理由，但认为自己的理由不一定能证明其他未接种者的选择是正确的。
+为啥，跟打台湾没有任何关系，
+Why？ It has nothing to do with attacking Taiwan
 
-【加拿大研究协会】主席杰克-杰德瓦布（Jack Jedwab）对该调查结果发表了自己的看法：“目前大多数公众对某些群体很多负面的情绪正被其对那些未接种疫苗者的反感所取代，似乎整个社会都对未接种疫苗者有一种高度的憎恶或敌意。为此，人们所看到的是家庭成员和朋友以及同事之间日趋紧张的人际关系，即已接种疫苗者和未接种疫苗者之间逐渐水火难容的势态。”
+它停电是因为煤价越来越高
+It’s power outages because coal prices are getting higher and higher
 
-此外，该项民调结果还发现，大多数加拿大非洲裔人口对COVID19疫苗的不信任程度相较其他族群更高。同时，有大约20%对是否接种该疫苗犹豫不决的受访加拿大人会为了顺利出外旅行而谎报其COVID19疫苗的接种情况。
+煤价越来越高，发出来的电赔钱
+The price of coal is getting higher and higher, and the generated electricity lose money
 
-以上内容仅代表原文信息和作者本人观点。
+现在国内呢，是收你1块的电费，赔大概7分钱，赔7分钱
+Now in China, it charges you 1 yuan for the electricity bill, and loses about 7 cents
 
-[原文链接：](https://thepostmillennial.com/new-poll-shows-deepening-divide-between-vaccinated-canadians-and-the-unvaccinated)
+它不愿意发电，再一个呢，现在更夸张的事情
+It doesn’t want to generate electricity now, and one more thing now is even more exaggerated
+
+这个污染啊，这个污染的越来越厉害
+This pollution, this pollution is getting worse and worse
+
+因为大家都是乱整嘛，所以说现在是很大的问题
+Because everyone is messy, so it’s a big problem now
+
+缺电，缺到啥程度呢，你都很难想象
+It’s hard to imagine the lack of electricity to what extent
+
+只有中共国能做得到，过去需要1度电
+Only the Communist Party of China can do it. In the past, 1 kWh of electricity was needed
+
+现在呢，能满足你0.4度电
+but now, only provide your 0.4 kilowatt of electricity
+
+没有一个真正的工业文明国家说突然缺电能缺10%以上
+There is no real industrial civilization country that sudden power shortage is more than 10%
+
+铲侠你当律师，你懂这道理
+ChanXia, you are a lawyer, you know the reason
+
+没有一个国家说你家里吃饭吃了一年了
+There is no country like China, where people have been eating at home for a year
+
+突然缺粮，缺50%
+and then suddenly there is a shortage of food, a 50% shortage
+
+现在这个当家的有问题了，是吧
+Now this person in charge has a problem, right?
+
+那怎么可能啊，说明这个中共国它就一切都是假的
+How is that possible? It means that everything is fake in this Chinese Communist country
+
+当进口的所有的东西满足不了的时候
+When all the imported things are not enough
+
+全都傻了啊，物价上去，工资上不去
+The people are all stunned, prices go up, wages can’t go up
+
+物价这个价格很高，然后呢，原材料供应又接不了
+Prices are high, but raw materials are not available
+
+还跟澳大利亚又打又闹的
+They’re still fighting the raw materials with Australia
+
+那你不是欠揍嘛，是不是
+So you’re brainless, are you?
+
+所以它必须缺电，它没有一个真正的国家领导的能力和组织
+So it must be short of electricity, it does not have the ability and organization of a true national leadership
+
+原因，就是煤太贵，发电成本太贵，而且污染很高
+The reason is that coal is too expensive, the cost of power generation is too expen-sive, and the pollution is so severe
+
+最后结局，停电
+It will only end in a power outage
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

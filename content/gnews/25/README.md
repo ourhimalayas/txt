@@ -2,23 +2,52 @@
 ---
 
 
-## 因人口忧虑 中共国或要限制堕胎
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1559242/)
+## 2018年4月24日郭文贵先生视频全文听写
+` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1559282/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/F8919858-902B-476B-BB86-998D6E459B36_w650_r0_s.jpg.jpg)因人口忧虑 中共国或要限制堕胎 网络图片
-据法新社9月27日报道，中共国政府发布女性健康新准则，以减少非医学需要的堕胎。一直以来，堕胎在中共国不仅合法，而且容易实施。中共国最新的人口普查结果显示，去年出生人口降至1200万，是1940年代末以来的最低水平。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-27-at-4.25.01-PM.png)
+视频链接：[https://www.youtube.com/watch?v=x8ruP\_lclcw](https://www.youtube.com/watch?v=x8ruP_lclcw)
 
-中共国自2016年放宽限制，允许生育第二个孩子。今年5月底，允许生育三个。但由于抚养成本过高和从前的计划生育政策，导致很多身为独生子女的年轻夫妇不愿意生三个孩子。中共国目前的生育率已降至每名育龄妇女只生1.3个孩子，远远低于更替水平。
+Guo Wengui’s Statement on the Persecution of Mr. Zhiyu Chen and Zhiheng Chen by the Chinese Government.
 
-中共国强制推行计划生育30年，叫嚣宁可血流成河，不能超生一个，造成全国范围内的人道灾难，被处理掉的婴儿，大多数是女婴在4亿左右。当人口出现问题时，开始考虑限制堕胎。人不是动物，就算是动物也不能人为地控制出生和死亡。苍天有眼，万物有灵，中共的血腥和残暴必然会为自己的结局画上灭亡的句号。
+On April 23, 2018, the Chongqing Public Security Bureau in China announced that the Chinese police arrested Mr. Zhiyu Chen and Mr. Zhiheng Chen.  The Chen brothers are Canadian citizens.  They have been accused of forging more than 30 top-secret official documents of the Chinese Communist Party Central Committee, the State Council, and their subordinate departments for me, and for forging information related to the massive overseas assets owned, illegitimate children, and mistresses of the top Chinese leaders.
 
-新闻参考链接：[https://amp.rfi.fr/cn/中国/20210927-因人口忧虑-中国或要限制堕胎](https://amp.rfi.fr/cn/中国/20210927-因人口忧虑-中国或要限制堕胎)
+The Chongqing police released a tape as evidence, which was clearly edited.  I have released the full recording via social media (www.guo.media and YouTube: Guo Wengui). The entire tape shows that the Chen brothers were helping me to verify those documents by answering my questions.  Comparing the two recordings reveals that the Chongqing police has fabricated the evidence.
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Both Mr. Zhiyu Chen and Mr. Zhiheng Chen hold Canadian passports.  Not long ago, they disappeared in Singapore.  All signs show that they were likely kidnapped and taken by force into the Mainland China.
 
+I have provided a great deal of documents in my possession to the U.S. law enforcement.  Some of which I released have been authenticated by the US authorities.
 
-编辑：【英国伦敦喜庄园编辑部】
+As to the contents of my whistle blowing, I take legal responsibility for their truthfulness.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+郭文贵声明：关于加拿大华人陈志煜与陈志恒被中国政府指控
+
+4月23日，中国的重庆公安局宣布，在今年2月18日逮捕了加拿大华人陈志煜与陈志恒兄弟。他们被指控为我伪造了三十多份中共中央、中国国务院以及属下部委的文件，以及中共高层在境外拥有巨额资产、私生子、情妇等信息。
+
+重庆公安局播放的录音证据，经过明显的剪接。我已经通过自媒体（www.guo.media and YouTube: Guo Wengui）放出了完整的录音，显示了陈氏兄弟在帮助我核实文件，回答我对原件中的一些疑问。对比两份录音，重庆公安的造假昭然若揭。
+
+陈志煜与陈志恒先生均为加拿大公民，在不久前在新加坡失踪。有迹象显示，他们是从新加坡被绑架去中国大陆的。
+
+我手上掌握的大量文件已经提供给美国执法部门，公布出来的少数文件是经过美国相关部门鉴证，肯定其真实性。
+
+对于我爆料中的内容，我保证其真实，并愿意承担一切法律后果。
+
+\*\*\*\*\*\*END\*\*\*\*\*\*\*
+
+温哥华扬帆农场七哥直播全文听写组：
+
+听写整理——
+
+温哥华扬帆农场：Peter哥
+
+全文总校——
+
+温哥华扬帆农场：Peter哥
+
+审核发布——
+
+温哥华扬帆农场：Peter哥
+
+全文发布稿总审核——
+
+温哥华扬帆农场：文敏

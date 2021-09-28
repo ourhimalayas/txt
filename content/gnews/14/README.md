@@ -2,46 +2,32 @@
 ---
 
 
-## 澳洲纽省取消疫苗护照限制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1559375/)
+## 新南威尔士州：接种疫苗并不能阻止重症
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1559460/)
 
-栏目记者/责任编辑：正义的小新
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1631968788523_G4B3FO3A2.1-2.jpg)图片来源：The West Australian
+**【雅典娜快讯】，紧贴时事脉搏**
 
+**整理报道：**翼族
 
+从昨天晚上8点钟之前的24小时内，新南威尔士州记录了863例新增本地感染中共病毒（COVID-19）的病例。自中共病毒流行以来，新南威尔士州记录的病例总数已经达到了60372例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+令人伤心的是，新州卫生局同时报告了七名死亡病例——四名女性和三名男性。其中1人40多岁，1人50多岁，2人70多岁，2人80多岁，1人90多岁。
 
+七名死者中，三人完全接种了两剂疫苗，三人接种了一剂疫苗，一人未接种疫苗。
 
+自 2021年6月16日德尔塔病毒变种以来，新南威尔士州已记录316例与COVID-19相关的死亡，而自大流行一开始以来则总共有372例。
 
+目前新州有1155例住院病人，213人正在接受重症监护，其中113人需要呼吸机。
 
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-9月27日，郭文贵先生发布盖特称，澳洲纽省省长发布最新政令，自12月1号开始，不管接种疫苗与否，居民均可以自由出入餐厅、俱乐部等室内场所，参加所有户外活动，全部恢复正常的生活。文贵先生指出，此次澳洲纽省的行政令，是新中国联邦的疫苗灭共、拯救人类的巨大成功。
+**参考链接：**[COVID-19 (Coronavirus) statistics](https://www.health.nsw.gov.au/news/Pages/20210928_00.aspx)
 
-文贵先生今日再次连发多条盖特，提醒大家，一定要对疫苗说“不”，对强制疫苗接种说“不”！新中国联邦要继续传播真相，阻止一切灾难! 文贵先生再次强调，如果您想保护您的家人，请让他们远离新冠疫苗，传播真相，向有需要的人伸出援助之手。对于已经接种疫苗的人，请避免第二和第三次接种；如果您开始出现症状，请寻求帮助，不要犹豫，请医生给您开伊维菌素加强力霉素和青蒿素治疗新冠病毒感染。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-95.jpg)
-参考链接：
-郭先生9月27日盖特： [对新冠疫苗说“不”! 在为时已晚之前，对强制要求接种新冠疫苗说“不”! 传播真相，阻止一切灾难!](https://gettr.com/post/pce5215064) 
-郭先生盖特：[9-27日：新中国联邦的疫苗灭共．拯救人类……荻得巨大的成功！](https://gettr.com/post/pceieg0e75)
+*编辑/发布：翼族*
 
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

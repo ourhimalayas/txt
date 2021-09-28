@@ -2,24 +2,27 @@
 ---
 
 
-## 恶政限电不定时、无计划、无通知
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1559596/)
+## 融创公司子公司向绍兴市致信寻求援助
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559615/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-412.png)
-[图片来源](https://www.tuliu.com/read-134439.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-9月26日，一则通知吸引了舆论的眼球。吉林市新北水务有限公司发布信息称，不定期、不定时、无计划、无通知停电限电至2022年3月。次日，该公司再发公告称，该通知措辞不当、内容不准确，将严格按公司制度处理相关责任人。一时间，该事件将正处于舆论热点的拉闸限电政策置于风口浪尖。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/text-SC-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-中共国的能源结构一直是个问题，但从来没有像今天这么矛盾突出。2020年，煤炭消费量占比57%，石油占比19%，清洁能源仅占比24%，能源结构严重失衡，过分依赖煤炭。随着全球主要经济体加足马力印钞，动力煤价一直处于高位上升趋势。最近一个月，动力煤期货主力合约暴涨超50%，报历史最高价1276.0元/吨，远超煤电盈亏平衡点，成本与基准电价严重倒挂。看起来，电厂限产、消费端限电好像成了理所当然的选择。
+视频参看： 2021.09.27晚GTV新闻访谈
 
-实际上，停电限电的核心原因是主要能源原料价格由市场决定，能源生产和消费由国家垄断，而国家垄断的僵化性无法适应市场的灵活性所致。当煤价没有按中共国发改委的计划涨跌时，能源危机就出现了。当它想管住一切时，突然发现市场给了它一记耳光，它就很自然地选择了进一步增加管控的方式应对能源危机。本文开头那荒谬的故事就这样发生了。
+[https://gtv.org/broadcast/watch/615261df42a8af3151a6a92a](https://gtv.org/broadcast/watch/615261df42a8af3151a6a92a)
 
-今日限水限电之“不定期、不定时、无计划、无通知”与古代恶税之“不定时、不定量、不定物”极其类似，均体现着权力的狂妄自大与无知傲慢，然限电恶政之根本，还是共产极权体制没有自我修复机制，靠垄断一切社会资源，管控一切社会活动，强权模式一条路走到黑造成的。古代恶税的结果是小规模的冲突和大规模的革命，并导致朝代灭亡。那么，今日恶政的结果会好吗？
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-[消息来源](http://www.haozaobao.com/time/20210927/101226.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/待命（文晓） 
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

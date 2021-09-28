@@ -2,60 +2,35 @@
 ---
 
 
-## 前白宫经济顾问皮特·纳瓦罗：盖特(GETTR)是推特杀手
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1559409/)
+## 13岁孩子接种疫苗后心脏骤停
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1559472/)
 
-前白宫经济顾问皮特·纳瓦罗： 推特上的“取消文化”又开始(作怪)了。他们决定不允许我为我的推文做广告。很显然,真相刺激了他们泼妇般敏感的神经。这些人是谁？ 盖特(GETTR)是推特杀手。推特的“取消文化”正在摧毁美国。
+加拿大多伦多枫叶农场 – 视频字幕：Kent 文字翻译：云起时
 
+视频文字（中文）：
 
+我的女儿刚刚从学校联系我，非常的难过和生气。她的一个朋友，正在哈利法克斯的医院里接受重症监护，因为她的心脏在她一打完疫苗之后就停跳了。 她现在情况很不好，无法呼吸，她的心脏一直在停止跳动。她今年才13岁！13岁！她的心脏居然停止跳动了！你们有多少人听说过一个13岁的孩子会心脏停跳？ 而这就是我们的政府正在强迫我们所有人和我们的孩子做的事。一个13岁的女孩在新斯科舍省哈利法克斯市, 现在正躺在医院里，因为她的心脏在注射疫苗后停止跳动了。
 
-> The cancel culture twits at Twitter are at it again. They have decided they won't allow me to advertise my tweets. Apparently truth offends their pearl-clutching sensibilities. Who ARE these people?
-> 
-> GETTR is the Twitter Killer. Twitter's cancel culture is destroying America.
-> — Peter Navarro (@RealPNavarro) [September 27, 2021](https://twitter.com/RealPNavarro/status/1442283619926564872?ref_src=twsrc%5Etfw)
+这是我女儿的朋友，她曾在我家里待过，她曾在我的餐桌上与我共进晚餐。 这可能会是你的孩子，可能会是你的侄女、侄子、孙子女。你的邻居。 这些人到底有什么毛病？由于这种疫苗，世界各地都有儿童死亡，世界各地都有成人死亡，甚至美国食品和药物管理局都已经告诉了你们，但我们的政府仍在强迫人们接种疫苗，才能够参与社会活动。
 
+你知道关于这孩子的这件事最糟糕的部分是什么吗？ 是她在我家里说，她不想接种疫苗，如果她不打算接种疫苗的话，她的父母将尊重她的决定，但当我们的省长休斯顿先生决定强制要求孩子们接种疫苗才能够参加体育运动，她觉得自己别无选择，只能接受，因为她喜欢踢足球。 你们怎么敢，对我们的孩子做这样的事情
 
+视频文字（英文）：
 
-美国务院发言人内德·普莱斯： 国务卿布林肯与新加坡外交部长[@VivianBala](https://twitter.com/VivianBala) 进行了交谈，并肯定了我们国家的密切伙伴关系。他们讨论了我们对印太地区、太空合作和应对气候危机的承诺。 【附国务院官网新闻】
+So my daughter，Just contacted me from school。 Very upset。 One of her friends ，is now in critical care in the hospital here in Halifax because her heart stopped, right after she had a vaccine!
 
+She’s not well right now she can’t breathe, her heart keeps stopping. She’s 13 years old！13 years old！And her heart stopped! How many of you know a 13-year old whose heart stops?
 
+And this is what our government is forcing on all of us and our children. A 13-year-old girl in Halifax Nova Scotia is in the hospital right now because her heart stopped after the vaccine.
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) spoke with Singaporean Foreign Minister [@VivianBala](https://twitter.com/VivianBala?ref_src=twsrc%5Etfw) and affirmed our countries’ close partnership. They discussed our commitment to the Indo-Pacific region, space cooperation, and combatting the climate crisis. [https://t.co/D5Uai0fWpn](https://t.co/D5Uai0fWpn)
-> — Ned Price (@StateDeptSpox) [September 27, 2021](https://twitter.com/StateDeptSpox/status/1442609472128659459?ref_src=twsrc%5Etfw)
+That’s my daughter’s friend. She’s been in my home. She’s had dinner with me at my table. That could be your child, could be your niece your nephew your grandchild, your neighbour. What the fxx hells wrong with you people!
 
+There are children dying all over the world, there are adults dying all over the world, from this vaccine. The FDA has even told you. But yet our government is still forcing people to be vaccinated to be able to partake in society. 
 
+Do you want to know what the worst part of this is with this child? Is that she was in my house saying, she didn’t want the vaccine if she wasn’t going to get the vaccine. And her parents respected her decision. But when our premier Mr Houston decided to mandate vaccines for children to be able to play sports, she felt she had no other choice but to take it because she loves playing soccer. 
 
-比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 通过恐怖主义人质外交取胜. 【转推称：孟晚舟和加拿大人质的交换是 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和卖美贼幕后交易的的结果】
+How dare you do this to our children!
 
+* * *
 
-
-> China wins using terroristic hostage diplomacy [https://t.co/7D2hELRswq](https://t.co/7D2hELRswq)
-> — Bill Gertz (@BillGertz) [September 27, 2021](https://twitter.com/BillGertz/status/1442302993534128135?ref_src=twsrc%5Etfw)
-
-
-
-众议院共和党领袖凯文·麦卡锡 ： 民主党正试图将4,300,000,000,000美元的 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 宠物项目强加给美国人民。 它会导致通货膨胀 这会让我们的孩子背上债务 它将会改变政府的模样,正如我们所知道的. 这是个很糟糕的协议——共和党人将全力而战. 【附福克斯新闻：麦卡锡关于众议院民主党人的开支闪电战】
-
-
-
-> Democrats are trying to force $4,300,000,000,000 in socialist pet projects on the American people.
-> 
-> It would cause inflation.
-> It would saddle our children with debt.
-> It would transform government as we know it.
-> 
-> It’s a BAD DEAL—and Republicans will fight it tooth and nail. [pic.twitter.com/VEuUd0YW6o](https://t.co/VEuUd0YW6o)
-> — Kevin McCarthy (@GOPLeader) [September 27, 2021](https://twitter.com/GOPLeader/status/1442535002823036932?ref_src=twsrc%5Etfw)
-
-
-
-众议员马乔丽·泰勒·格林： 国会应该保护被困在阿富汗的美国人，关闭边境入侵，并帮助被 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发送给我们的病毒摧毁的小企业。 与之相反，民主党正在通过法案来谋杀子宫内直到出生前的胎儿。
-
-
-
-> Congress should be protecting Americans trapped in Afghanistan, shutting down the border invasion, and helping the small businesses destroyed by the virus sent to us by China. 
-> 
-> Instead, Democrats are passing bills to murder babies in the womb up until birth. 
-> 
-> (Part 1) [pic.twitter.com/6g7UJsUdrx](https://t.co/6g7UJsUdrx)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [September 27, 2021](https://twitter.com/RepMTG/status/1442548123092635652?ref_src=twsrc%5Etfw)
+编辑/ 发稿 云起时

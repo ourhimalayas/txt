@@ -2,98 +2,43 @@
 ---
 
 
-## 今日香港明日西方，中共早已渗透西方
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1559104/)
+## 拜登政府考虑对中国的工业补贴进行调查
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559160/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/122-a6bev-e7m6z.jpg)
-[https://gtv.org/video/id=6151cfecd2e2b817486ebac2](https://gtv.org/video/id=6151cfecd2e2b817486ebac2)
+作者：香草山金融部- Opal
 
-**郭文贵
-Miles Guo**
 
-七哥啥时候知道，今天的香港就是你们西方的明天
-When did I told you that today’s Hong Kong will be the West’s tomorrow?
 
-明天，你们的未来，然后无处不香港
-Tomorrow, your future, then all over the place will be like Hong Kong
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-2019年5月份我说香港这事发生
-In May 2019, I said this happened in Hong Kong
 
-我第二天我这直播中我就说过
-I said in my live broadcast the next day
 
-我说如果你们不救香港，香港的事情会到你世界任何一个国家去
-I said that if you don’t save Hong Kong, repression in Hong Kong will go to any country in the world
+近日，《彭博新闻社》和《金融时报》就拜登政府的高级官员是否对中国使用工业补贴进行调查进行了报道。据称，此举可能引发华盛顿和北京之间贸易紧张局势的升级。
 
-你七哥当时说为啥呀，你七哥不是蒙的
-Why I said that, I didn’t make prediction
+据熟悉此事的人士称，美国贸易代表Katherine Tai和美国商务部长Gina Raimondo已经考虑根据《1974年贸易法》第301条对中国的补贴进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-54.png)图片来源：[www.thediplomat.com](https://www.thediplomat.com/)
+这也是川普政府在白宫期间对中国征收3600亿美元的产品关税所使用的法律框架。2020年1月，时任美国总统川普和中共国国家主席习近平达成了贸易休战协议。但这协议并不包括中国政府会改变其工业补贴等任何可执行的承诺。今年拜登上任以来，尽管美国商业团体要求降低或取消关税，以减轻美国进口商的成本，但拜登还是保留了川普的关税。对中共发起新的贸易调查的决定表明，拜登不会与中共妥协，反而可能会变本加厉对抗中共。
 
-我也不是预言家，我也不是说预言的
-I am not a prophet, nor am I prophesying
+众所周知，中共国自身的贸易保护形式──补助和补贴在工业利润中的比重一直以来都是很大的。可以说，巨额政府补贴在中国公司的营运利润中占据越来越大的比重，国企和私企都是如此，这已不是秘密。
 
-我当时因为共产党内部的战友
-That was because of our the comrades in arms in the Communist Party
+补贴是政府可用来推低出口产品价格的另一种手段。政府补贴以多种形式存在，包括全额现金补助、退税、地方政府援助和出口商扶持政策。在中国，当一家公司连续四年亏损时，这家公司将从证券交易所下市。而差不多10%的上市省级国有企业都依靠政府补贴来保持盈利。
 
-就像我们的大校告诉我说， 我们要什么什么执行的时候
-Just like our colonel told me that when we would do such repression
+川普政府在白宫期间对中国征收3600亿美元的产品关税所使用的法律框架，也是《1974年贸易法》第301条。那么为什么拜登政府的高级官员，在现在这个时间点上，讨论是否对中国使用工业补贴进行调查呢？巧合的是，这是在拜登总统和习近平举行了90分钟的电话会议后爆出的新闻。笔者认为，拜登在电话中对北京在与他的团队接触方面缺乏认真态度表示失望，也就是说，拜登并没有从习近平那里得到他所希望得到的承诺。
 
-我说那要（是）止不住你们那你们（会怎么样）
-I said if you can’t be stopped, what you would do?
+（本文仅代表作者个人观点）
 
-他说那我们直接就是跨过南亚直接进欧洲了
-He said that we just crossed South Asia and entered Europe directly
+参考链接：
 
-这不是开玩笑的兄弟姐妹们，就像那个二战打仗一样
-This is not kidding, brothers and sisters, just like the world war II
+[https://www.ft.com/content/76dd1430-bd4b-4f6f-954a-40ab0d636e74](https://www.ft.com/content/76dd1430-bd4b-4f6f-954a-40ab0d636e74)
 
-就是希特勒，说你到了波兰你去哪啊，是不是
-It’s like Hitler, “Where else would you go after you invade Poland?”, right?
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
 
-他直接就从德国直接的就奔着法国，英国就去了，对吧
-He went straight from Germany to France and England, right?
+编辑/审核/发稿：正义的小新
 
-那是肯定的嘛，你挡不住
-That’s for sure, you can’t stop it
-
-他过了塞纳河，他一定会横扫你欧洲
-He crossed the Seine, then he would sweep Europe
-
-他往你西欧就去了吧
-He went to Western Europe, right?
-
-大校一句话就把我点醒了, 过了几天我再跟大校通话时候
-The colonel woke me up with a word. A few days later, when I talked to the colo-nel again
-
-我说，那你们现在在外面有布兵
-I said, now you have soldiers out there
-
-你看我们在欧洲已经有警察开始执法了
-You see, we already have police in Europe starting to enforce the law
-
-我们在欧洲周围已经开始建军事基地了
-We have started to build military bases around Europe
-
-关键是他说我们的宣传思想教育队伍已经渗透了西方了，
-The key is that he said that our propaganda and ideological education team has infiltrated the West
-
-这就是兄弟姐妹们你要想到一个问题，那话不是随便说的
-This is a question you have to think of, brothers and sisters, that was not just casual talk
-
-那不是你张嘴来了就可能发生的
-Not you just saying something, things will happen
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:**[https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24](https://twitter.com/se1y7cblljselva/status/1441340815045914627?s=24)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
