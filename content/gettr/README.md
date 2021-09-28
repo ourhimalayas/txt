@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/28/2021 7:29 PM (UTC)`
+
+Unfortunately, there are more stories like this, but they just aren't being reported on the news. What happened with the mainstream media? Why are you covering the truth about the covid vaccine?!    You have committed a crime by encouraging people to get these toxic vaccines. Sooner or later, you will be punished by God. So, we need more people to spread the truth about vaccines and not let these tragedies happen again because there's a good chance your family and friends will be next! Wake up, friends!<br/>不幸的是，像这样的故事还有很多，只是没有出现在新闻中。主流媒体是发生了什么?你为什么要隐瞒新冠疫苗的真相!你鼓励人们接种这些有毒疫苗就是犯罪。你们迟早会受到上帝的惩罚。我们需要更多的人来传播疫苗的真相，不要让这些悲剧再次发生，因为很有可能你的家人和朋友就是下一个受害者!醒醒吧,朋友们!
+![img](https://media.gettr.com/group35/getter/2021/09/28/19/29/917dd878-1ce4-b8c1-ee2d-6086ad1544d6/out.jpg)
+
+---
+
 `@miles 9/28/2021 6:23 PM (UTC)`
 
 9月28号：火币，将停止中国境內用户，新用户不能注册，老用户退款！这是共产党不允许任何中国人的财富安全的地方，可以存放，只能有共产党的虚拟人民币的这一个选择这说明了共产党，已经到了穷凶极恶山穷水尽的地步了。
@@ -297,13 +304,6 @@ The end result of Huawei Meng Wanzhou case is no different from Mr Miles Guo’s
 WOW 
 > `@zhongren 9/26/2021 1:50 AM (UTC)`<br/>Gfashion太酷啦！太帅了太帅了，🌹🌹展油们都去买！！<br/>穿上就是最靓的仔～原来我可以这么的帅❤️❤️郭叔的品味实在是🐂！<br/><br/>#gfashion #best #himalaya <br/>#himalayanz 
 ![img](https://media.gettr.com/group21/getter/2021/09/26/01/49/5858e426-d500-66de-eff9-74fc93a0b6c0/cb69b5dcba0184b8beeea1e2c77ab1af.jpg)
-
----
-
-`@miles 9/26/2021 2:14 AM (UTC)`
-
-9/25/2021 Miles Guo’s GETTR: Again, I’ve said Meng Wanzhou might be sent back to China and she did! My live broadcast starts tomorrow from 10 AM to 10:30 AM (EST), or 10:00 PM (CST) by sharing some of my comments and intel<br/><br/>9/25/2021文贵盖特：孟晚舟回国又被七哥说中了？明天早上10点到10点半(美东时间)、大陆时间明晚10点七哥大直播，和大家分享一下七哥的观点和情报<br/>
-![img](https://media.gettr.com/group49/getter/2021/09/26/02/14/aaca5c9d-7b42-b3e8-97a9-88a6ff4a85f8/out.jpg)
 
 ---
 
