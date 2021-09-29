@@ -2,30 +2,13 @@
 ---
 
 
-## 恒大向沈阳国企出售盛京银行部分股权脱困
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562672/)
+## 《拜登总统勇扎第三针》
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1562740/)
 
-栏目记者/责任编辑：文扬四海
+昨日拜登总统在白宫直播打了第三针疫苗。看来他对爆料革命的警告是置若罔闻。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他所注射的疫苗如果是真的，疫苗的副作用通常在几个月至2～3年间将会陆续显现。鉴于拜登总统已经78岁了，运气好的话可能能够完成整个任期。运气不好也有可能不能够完成这届总统任期。届时，美国政局会经历一段过渡时期。有可能会造成一些混乱。同时也给中共一些可乘之机。 他所注射的疫苗如果是假的，拜登总统的这种公开加持和宣传，可能会促使更多人接受疫苗注射，因而增加更多因疫苗受伤害的案例，疫苗导致的悲剧将继续上演更长一段时期。
 
-恒大集团9月28日发布公告称，将恒大持有的沈阳盛京银行 17.53 亿非流通内资股有偿转让给沈阳国资委下属公司” 沈阳盛京金控投资集团” 。恒大持有的这部分股份约占盛京银行已发行股份的 20% 。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0929AM（2、3）視頻備用.001.jpeg)
-郭文贵先生曾揭示总部位于沈阳的盛京银行，是为中共盗国贼家族洗钱、换外汇的诈骗集团之一，其资产早已被许家印和几个常委家族盗走掏空，盛京银行一定会倒闭。此次恒大将盛京股份出售给同在沈阳的国企，把债务分解到各地方政府，验证文贵先生的爆料：中共一定试图在20大前延缓恒大暴雷。
-(本文仅代表作者观点)
+字幕制作：绒绒兔      素材翻译：红色马克杯
 
-参考链接：[近100亿出售盛京银行20%股份！恒大继续“卖卖卖”，危急快解除？这次地方国企接盘](https://finance.sina.com.cn/stock/zqgd/2021-09-29/doc-iktzscyx6958243.shtml)
-
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发布：Theodosia*
