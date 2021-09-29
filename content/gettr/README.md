@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/29/2021 12:52 AM (UTC)`
+
+9月28号：一切还都没有开始！<br/><br/><br/>【流動性在大幅度減少，七哥說的世界要出大問題。】
+![img](https://media.gettr.com/group5/getter/2021/09/29/00/52/e1936101-1ff5-4d69-507e-60e49d49431b/fdc5343619b84c04749977f9c57fdcb1.jpg)
+
+---
+
+`@miles 9/29/2021 12:45 AM (UTC)`
+
+9月28号：尊敬的战友们好……明天9月29号，纽约时间上午10:00开始大直播。
+![img](https://media.gettr.com/group29/getter/2021/09/29/00/45/7f22c329-038c-27c2-f431-3156034a2d17/0292d3387d47c3943075726c113e930e.jpg)
+
+---
+
 `@miles 9/28/2021 11:13 PM (UTC)`
 
 🤣🤣🤣💪💪💪
@@ -290,20 +304,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 以色列COVID-19 疫苗受害者证词(二）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
 ![img](https://media.gettr.com/group37/getter/2021/09/26/19/59/7bb96f14-58d9-a747-0d68-852878e27155/out.jpg)
-
----
-
-`@miles 9/26/2021 7:07 PM (UTC)`
-
-9月26号：卖台贼与共产党的勾兑，全面所谓的合法化开始！
-![img](https://media.gettr.com/group32/getter/2021/09/26/19/8ddc83c9-665a-5312-646f-83aaff511b7e/cf512637cba83658d93c0b4ffaecfc16.jpg)
-
----
-
-`@miles 9/26/2021 6:04 PM (UTC)`
-
-这段视频清楚地展示了郭文贵先生对中共病毒 Covid疫苗早期的反复预警。 这些疫苗产品是国际“黑暗势力”与中共勾结的结果。Covid 疫苗将在 COVID-19 大流行中造成严重的副作用和次生灾难。 太多人遭受Covid疫苗副作用的折磨，很多人甚至失去了生命。<br/><br/>一系列事件充分验证了郭文贵的警告。 历史是现在和未来最好的证明！ 拒绝有毒疫苗就是在拯救人类。 传播真相，永不放弃！
-![img](https://media.gettr.com/group18/getter/2021/09/26/18/04/0dbe7abb-2c8b-c654-128c-08462e0ac55c/out.jpg)
 
 ---
 
