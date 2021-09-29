@@ -2,50 +2,31 @@
 ---
 
 
-## 4,600 多名医生科学家指责 COVID 政策制定者“危害人类罪”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560964/)
+## 美国参议员呼吁全面追责世界银行操纵数据
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1561046/)
 
-- 编译：Jenny Ball
+**撰稿：日本东京方舟农场 海星**
 
+9月27日，美国参议院外交关系委员会参议员梅嫩德斯(Robert Menendez)和里施(James Risch)在发表的公开信中表示，拜登应指示财政部尽职尽责，对世界银行操纵数据全面追究责任。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/doctors-scientists-Covid-crimes-against-humanity-feature-800x417-1.jpg)图片来源：本篇新闻
+据《路透社》报导，日前一份外部调查报告指控IMF总裁格奥尔基耶娃(Kristalina Georgieva) 任职世界银行CEO期间，对员工施加不当压力，要求他们改变数据，以提高中共在该行《2018年营商环境报告》中的排名。随后，格奥尔基耶娃虽然对她的指控矢口否认，却指责世界银行前任行长金墉的办公室操纵了数据。这一举动显然坐实了世界银行涉嫌为中共操纵数据的行为。
 
-由医生和科学家在罗马** COVID **峰会期间制定的《医师宣言》，指责决策者强行采用**“**一刀切**”**的治疗策略，导致**“**不必要的疾病和死亡**”**。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/微信图片_20210928213626.png)图片来自于网络
 
-一个由医生和科学家组成的国际团体，周五签署了一份声明，指责 COVID-19 政策制定者“危害人类罪”，因为他们阻止对患者使用挽救生命的治疗方法。
+美国当局是IMF及世界银行的最大股东，并由财政部负责处理相关事务。美国财政部发言人拉马纳（Alexandra LaManna）拒绝对叶伦与乔治艾娃间的联系发表评论；IMF的一位发言人拒绝回应，乔治艾娃也拒绝置评。
 
-截至周一上午，《医师宣言》[Physicians Declaration](https://doctorsandscientistsdeclaration.org/)已获得 4,600 多个签名。签名者指责政策制定者强行采取“一刀切”的治疗策略，导致“不必要的疾病和死亡”，而不是“坚持个体化的基本概念”。
+至于世界银行操纵数据的丑闻，拉马纳表示，美方严肃看待此事，有必要全面审查乔治艾娃在此事的影响力，并重申本月稍早的声明：“我们的主要责任是维持国际金融机构的诚信。”
 
-[根据全球 COVID 峰会](https://globalcovidsummit.org/news/welcome-to-the-global-covid-summit)，该宣言是在罗马 COVID 峰会期间由医生和科学家创建的。 签署人是专业人士，其中许多人是处于治疗[COVID](https://childrenshealthdefense.org/defender_category/covid/)患者的前线医生。
+此外，知情人士也透露，乔治艾娃在本月稍早被指控不当干预后，试图与叶伦通话，但未能成功。该知情人士称，考量到IMF与美国财政部之间的密切接触，乔治艾娃过去能轻易联系上叶伦。
 
-**全球 COVID 峰会报道：**
+*注：本文仅代表作者观点，与 Gnews无关*
 
-“虽然宣言的签署者在他们的专业、治疗理念和医学观点上各不相同，但他们已经站起来采取集体立场，反对企业、医学协会、政府及其各自机构的专制措施。 该宣言的目标是，恢复他们在战胜这一流行病方面的领导作用。”
+*参考链接：*
 
-[**宣言指出： **](https://doctorsandscientistsdeclaration.org/)
+[美国参议员呼吁对世界银行数据操纵争议进行“全面问责”](https://cn.reuters.com/article/idCNKBS2GO098)
 
-“在罗马 COVID 峰会上首次宣读了《医师宣言》，促进了全球医学科学家和医生的积极支持。 这些专业人士没想到从事的职业（治病救人）会遭受威胁、人身暗杀、论文和研究被审查、社交账户被封锁、搜索结果被操纵、临床试验和患者观察被禁止，他们的职业历史和成就会在学术和主流媒体中被改变或遗漏。
-
-由于无法获得挽救生命的早期治疗，数千人死于 COVID。该宣言是医生们的战斗口号，他们每天都在为治疗患者的权利，以及患者接受这些治疗的权利——而不用担心政府、药店、制药公司和大型科技公司的干预、报复或审查而战。”
-
-签署方创建了一个“仅限医生和科学家”的 COVID 信息平台，因此公民可以“不受干扰、操纵、政治化或从医患关系之外的外部力量中牟取暴利”，为家人做出明智的决定。
-
-点击这里[**here**](https://doctorsandscientistsdeclaration.org/)阅读医师宣言全文。
-
-**点击文章链接观看**** mRNA ****疫苗技术的发明者罗伯特·马龙（**** Robert Malone ****）博士阅读《医师宣言》**
-
-**评论：许多无辜的人们相信科学，这些就是有良知的科学家为了我们的健康和生命发出的誓言。科学无正义邪恶之分，但是如果掌握科学知识的人，为了金钱地位用科学杀人，那灾难就是今天我们经历的数以百万的死亡！**
-
-**向勇敢的科学家致敬！行动起来，保护我们自己和我们的下一代！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**素材来源：**[childrenshealthdefense.org](https://childrenshealthdefense.org/defender/4600-doctors-scientists-accuse-covid-policymakers-crimes-against-humanity/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=c49025fa-3ddc-4c4b-90c7-4ead3130fdaa)
+[IMF总裁调陆排名 美财长拒接电话](https://www.epochtimes.com/gb/21/9/28/n13266464.htm)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+*编辑：文顺 校对：Ranting 发布：Ranting*

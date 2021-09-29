@@ -2,52 +2,40 @@
 ---
 
 
-## 新闻速递|法国卫生高级管理局 （HAS）建议同时接种流感疫苗和Covid-19疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1560996/)
+## 对疫苗不良事件报告系统的数据的简单探索
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1561050/)
 
-作者：Julien Vattaire
-翻译：香草山商业部 – 文锤
+作者：Shobaku 华盛顿DC农场
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+从美国疾病预防与控制中心（Centers for Disease Control and Prevention，CDC， [https://www.cdc.gov/](https://www.cdc.gov/)）获得的新冠疫苗数据以及从美国人口普查局（Census，[https://www.census.gov/](https://www.census.gov/)）获得的美国居民数据的估测值（在2020年12月是330 656 950），算得接种疫苗的人口占总人口的比重如图1所示。从2020年12月14日美国开始批准新冠疫苗的第一针[1]，截至5月18日，接种至少一针的人数超过了50%达到50.2282%（166 082 884人），而且截至7月26日，完成全部接种的人数超过了50%达到50.0069%（165 351 154人）。美国的2021年上半年的新冠疫苗的接种增长得非常迅速。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-35.png)图1. 美国的新冠疫苗比重（2020年12月1日至2021年8月31日）
+Sorensen和Zelenko在他们的报告中指出实验性的新冠疫苗已经造成了全世界数百万人的死亡[2]。至于美国在经历过高速接种之后又是怎么样的呢？那么探索疫苗不良事件报告系统（Vaccine Adverse Event Reporting System，VAERS，[https://vaers.hhs.gov/](https://vaers.hhs.gov/)）的数据是能够帮助我们来了解这些实验性的新冠疫苗会造成多么严重的后果。在此之前，我们需要保持谨慎，根据Sorensen和Zelenko的报告中提到的，VAERS对真实情况是有数十倍甚至于超过一百倍的低报[2]。
 
+从2019年1月1日至2021年9月17日，VAERS共有668 145名疫苗不良事件的接种者，其中569 294名（85.2052%）接种了新冠疫苗；如果只从2021年1月1日至2021年9月17日来看，这个数字就是569 501，其中558 403名（98.0513%）接种了新冠疫苗。从2019年1月至2021年8月的月度的疫苗不良事件的接种者如图2a所示，其中黑色的柱子表示新冠疫苗接种者，绿色的柱子表示非新冠疫苗接种者；新冠疫苗接种者的比重如图2b所示，其中黑色的柱子表示新冠疫苗接种者占所有疫苗的比重。图2揭示出疫苗不良事件的接种者数量自2021年1月起出现了巨大的跳跃，并且新冠疫苗的接种者占据了绝大多数，其中最低的比重出现在7月份也达到了95.0222%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-23.png)(a) 接种者的数量![](https://assets.gnews.org/wp-content/uploads/2021/09/3-16.png)(b) 接种者的比重
+图2. 疫苗不良事件的接种者（2019年1月至2021年8月）
+从2019年1月1日至2021年9月17日，VAERS共有7 532名疫苗不良事件的死亡者，其中6 981名（92.6845%）接种的是新冠疫苗；如果只从2021年1月1日至2021年9月17日来看，这个数字就是7 182，其中6 965名（96.9786%）接种的是新冠疫苗。从2019年1月至2021年8月的月度的疫苗不良事件的死亡者如图3a所示，其中黑色的柱子表示新冠疫苗死亡者，绿色的柱子表示非新冠疫苗死亡者；新冠疫苗死亡者的比重如图3b所示，其中黑色的柱子表示新冠疫苗死亡者占所有疫苗的比重。图3揭示出疫苗不良事件的死亡者数量自2021年1月起同样也出现了巨大的跳跃，并且新冠疫苗的死亡者占据了绝大多数，其中最低的比重出现在5月份也达到了95.7529%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-10.png)(a) 死亡者的数量![](https://assets.gnews.org/wp-content/uploads/2021/09/5-9.png)(b) 死亡者的比重
+图3. 疫苗不良事件的死亡者（2019年1月至2021年8月）
+从图2和图3中，很明显地新冠疫苗将数据的趋势变到了另一个高度，并且自2021年1月以来，新冠疫苗占据了疫苗不良事件的绝大部分。 关于不同年龄、不同性别的疫苗不良事件又是如何呢？尤其是新冠疫苗？图4显示了新冠疫苗的接种者数量、死亡者数量和死亡比率（公式是，死亡比率(%) = 死亡者数量 / 接种者数量），其中行表示的是年龄区间（“75以上”、“65至74”、“55至64”、“45至54”、“35至44”、“25至34”、“18至24”、“17以下”、“合计”），列表示的是性别（“男性”、“女性”、“合计”）。日期采用的是接种者接种疫苗的日期，而不是如图2和图3那样的VAERS接收报告的日期；日期从2020年12月至2021年3月，这大约与数据中的最后的日期（2021年9月17日）相差半年，因此这样的数据相比小于半年的数据来说更可能会稳定一些。举例来说，因为在报告日期从2021年9月1日至2021年9月17日中，总共有24 030名新冠疫苗的疫苗不良事件的接种者，在他们中187名在2020年12月接种的，1 267名在2021年1月接种的，2 512名在2021年2月接种的，2 596名在2021年3月接种的，那么这就提醒我们图4的结果在未来是可以被更新掉的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-7.png)图4. 新冠疫苗的疫苗不良事件的死亡比率（2020年12月至2021年3月）
+从图4中，可以得到：
+（1）对于每个年龄区间，女性接种者的数量都大于男性接种者的数量，这表明接种过新冠疫苗的女性更有可能发生不良事件并报告至VAERS；
+（2）对于大于等于55岁的人群，死亡比率比其它年龄区间要高，并且接种过新冠疫苗的该年龄区间的男性比女性更有可能死亡。
+然而依然要注意以上的发现是基于对现实情况有所低估的VAERS的数据。
 
+尽管说VAERS的数据被低估，从以上的图2、图3和图4中，新冠疫苗的接种者和死亡者中以疫苗不良事件上报给VAERS的数量还是巨大的，并且从2021年1月至2021年8月的疫苗不良事件几乎都是出自新冠疫苗。通过本文的描述以及Sorensen和Zelenko的报告，我们希望以此来警示大家远离新冠疫苗。
 
+* * *
 
-
-周一，法国卫生高级管理局 (HAS) 估计，可以同时在一只手臂上接种Covid-19 疫苗而在另一只手臂上接种流感疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1072-1.png)[图片来源](https://www.rtl.fr/actu/bien-etre/la-has-recommande-la-vaccination-simultanee-contre-la-grippe-et-le-covid-19-7900078196)
-
-在接下来的几周内，一种双疫苗接种计划将向数百万法国人推荐。老年人以及患有基础疾病易受伤害的人群将被邀请接种第三剂针对 Covid-19 的疫苗，同时也会接种一剂流感疫苗。据高级卫生局周一估计，这些注射可以在同一天完成。
-
-法国卫生高级管理局 (HAS)在一份新闻稿中保证，“同时实现针对流感和 Covid-19 的疫苗的接种”是“可能的，可以避免另一种疫苗注射出现任何延误”。“具体来说，两次注射可以在同一天进行”，但在身体的两个不同的地方，“每只手臂一个疫苗”，独立的公共当局具体说明了这种接种方法。
-
-流感疫苗接种于 10 月 26 日开始
-
-周一，卫生部长奥利维尔·韦兰（Olivier Véran）在坐落于里昂旁边的世卫组织全球培训中心说明了这一消息，这一建议是“好消息”。 “但我们仍然需要验证它”，他补充说到，他表示将在接下来的几天内说明这件事情。
-
-这位部长还表示，到10 月底，药店将可以买到“1000 万剂” 流感疫苗。因此，流感疫苗接种活动将于 10 月 26 日开始。与此同时， 9月初在法国启动了所谓的[第三剂](https://www-rtl-fr.translate.goog/actu/debats-societe/vaccin-contre-le-coronavirus-quel-est-le-calendrier-pour-la-3e-dose-7900064422?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui)抗Covid-19疫苗接种加强运动 。它涉及 1800 万法国人，第三剂疫苗接种目的在于弥补几个月后疫苗有效性的下降。
-
-**原文阅读：**
-
-[La HAS recommande la vaccination simultanée contre la grippe et le Covid-19 (rtl.fr)](https://www.rtl.fr/actu/bien-etre/la-has-recommande-la-vaccination-simultanee-contre-la-grippe-et-le-covid-19-7900078196)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-校对/发稿：小鹿
+*发布：Theodosia*
 
 
 
-**更多资讯，更多关注**
+参考资料:
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[1] I. Pereira. “US administers 1st doses of Pfizer coronavirus vaccine.” ABC news.
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[链接进入：](https://abcnews.go.com/US/us-administer-1st-doses-pfizer-coronavirus-vaccine/story?id=74703018) (accessed December 14, 2020).
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+[2] D. J. Sorensen, and V. Zelenko, “The vaccine death report: Evidence of millions of deaths and serious adverse events resulting from the experimental COVID-19 injections (version 1.0),” 2021.

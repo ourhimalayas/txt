@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/29/2021 2:31 AM (UTC)`
+
+🙏🙏🙏❤️❤️❤️
+> `@globalhimalaya 9/29/2021 2:05 AM (UTC)`<br/>Johnson & Johnson employees on hidden camera:  Don't vaccinate Children because there are ‘unknown repercussions down the road’; Never trust anything that the media say @ProjectVeritas <br/>强生公司科学家和商务负责人在被偷拍的视频中透露：千万不要给儿童接种疫苗，因为注射疫苗的后果是未知的！千万不要相信媒体所说的任何事情！要让不愿接种疫苗的人成为二等公民
+![img](https://media.gettr.com/group44/origin/2021/09/29/02/05/0a79bc80-b29a-5623-b8ca-60d17a60e100/out.jpg)
+
+---
+
+`@miles 9/29/2021 2:29 AM (UTC)`
+
+9月28号：青蒿素．伊微菌素．地塞米松。将拯救无数的善良的人们，这就是爆料革命和新中国联盟的力量。【<br/><br/>我所在国的一个朋友全家有5口人，3人确诊，都是打过两针科兴疫苗的，同一个屋檐下，反而没打疫苗的两个小孩没确诊，疫苗就是毒。这里缺医少药，确诊基本没有任何有效药物医治，政府免费给几盒中共捐赠的莲花清瘟就完事了，吃了几天根本不起作用。三天前我给他青蒿素，三天内所有病人全部退烧，呼吸正常，恢复味觉。伟大的青蒿素，伟大的爆料革命，真的救了太多人了，这就是新中国联邦人该做的事。<br/>最近几天给出去好多青蒿素，吃了都非常有效，这个是在这边做物流生意的香港人，同样买不到药被困在家里……打了两针科兴疫苗失去味觉，身体极度疲劳，吃了青蒿素两天，味觉恢复了，身体活力恢复了……青蒿素简直神奇到上天！现在还不敢露脸，等天亮以后我都要邀请他们和我一起上gtv直播，讲出这段和中共病毒抗争的令人难忘的经历的😄】
+![img](https://media.gettr.com/group23/getter/2021/09/29/02/c9c433e3-b744-9d55-c36e-16316a8ff181/5bc6934a9221e25570de7b01a99e3677.jpg)
+
+---
+
 `@miles 9/29/2021 2:05 AM (UTC)`
 
 9月28号：【举报人称： breaking: 近5万名医保患者在注射COVID疫苗后不久死亡 据医疗自由权律师托马斯-伦茨（Thomas Renz）称，一名举报人提供的政府数据显示，仅在医疗保险患者中，就有48465人在接种COVID-19疫苗后14天内死亡。 "你想知道为什么14天很重要吗？"他问。"因为如果你在14天内死亡，你就不被认为是接种了疫苗。" 根据美国疾病控制和预防中心（CDC）的说法，一个人在完成注射方案14天后才被认为是 "接种疫苗"，这引起了一个问题，即政府当局是否一直将这些死亡事件归类为与疫苗接种有关的死亡之外的事情。 】<br/><br/>https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/ https://gettr.com/post/pch6l37d0a https://gettr.com/post/pcilpc1489
@@ -289,20 +304,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 《Make A Killing 暴富有术》
 ![img](https://media.gettr.com/group46/getter/2021/09/27/00/15/058a1978-9690-a344-109b-725cb7d8379f/out.jpg)
-
----
-
-`@miles 9/26/2021 11:09 PM (UTC)`
-
-9/26/2021 Miles Guo: My revelation on Ping An Group and Lufax has had a huge impact on our platform! If the Zhongnan Pit ordered to shut down Lufax, then the US will end up in the biggest financial crisis in history! The Rothschild family, Rockefeller family, and Morgan family that used to own half of the wealth in America have been massively dumping their shares related to the CCP and Hong Kong, and their core assets in the US, indicating that both the CCP and the whole world will be in trouble.<br/><br/>9/26/2021 文贵直播：关于平安和陆金所的爆料在我们的平台产生了巨大影响！如果中南坑下令关陆金所，那么美国将进入有史以来最大的经济危机！曾拥有美国一半财富的罗斯柴尔德家族、洛克菲勒家族和摩根家族正在抛售跟中共和香港有关的股份和美国的核心资产，这说明中共和全世界到要出事了！
-![img](https://media.gettr.com/group15/getter/2021/09/26/23/09/847ffb17-ea7e-4726-5545-b7de9c074ab4/out.jpg)
-
----
-
-`@miles 9/26/2021 10:56 PM (UTC)`
-
-9/26/2021 Miles Guo: You will gradually see that COVID vaccine mandate will be ended in Europe, Canada, the US, Japan, Singapore, Australia, New Zealand, etc. Medications such as ivermectin, artemisinin, dexamethasone, hydroxychloroquine will be allowed to treat COVID; Due to our fellow fighters’ tireless efforts, the bosses of the Big Pharma companies have realized that keeping pushing the COVID vaccines will lead to bankruptcy.<br/><br/> 9/26/2021 文贵直播：10月1号后大家会逐渐看到，欧洲、加拿大、美国、日本、新加坡、澳大利亚、新西兰等国将停止强制注射疫苗，并将开放使用伊维菌素，青蒿素，地塞米松，羟氯喹等药物治疗；战友们的不懈努力让各大药厂的老板们意识到继续推疫苗将导致其破产<br/>
-![img](https://media.gettr.com/group14/getter/2021/09/26/22/56/2c54824d-3883-5cab-89ee-f73b859d88d7/out.jpg)
 
 ---
 

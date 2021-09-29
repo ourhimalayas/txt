@@ -2,31 +2,61 @@
 ---
 
 
-## 无视联合国决议禁令 朝鲜再度试射新型导弹
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1561448/)
+## 众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1561496/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+众议员吉姆·乔丹： 唯一不想调查 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的人就是国会的民主党人。 【附thepostmillennial的相关文章:世卫组织称,调查#中共病毒起源的时间不多了】
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/N-2.jpg)todayuknews.com
-据朝中社周三（9月29）报道，朝鲜于本周二在其东海岸试射了新研制的超高音速导弹，并宣称该新型“战略性”超高音速武器系统可提高朝鲜国防的防守能力。
 
-这是9月15日韩国继6个月来首次违反联合国决议向韩国试射导弹之后，加剧双方紧张局势的又一个事件。韩国方面将朝鲜试射导弹行为视为“挑衅”。更耐人寻味的是，朝鲜方面9月15日试射导弹正值中共国王毅访问韩国之际，而谈判内容就包括朝鲜无核化。
 
-就在朝鲜发射导弹几个小时后，韩国也试射了其第一枚潜艇发射的弹道导弹。似乎是向朝鲜背后的中共通告，韩国不会屈服于朝鲜的胁迫和恐吓。平静数月后，在敏感时刻中共似乎有意主动挑起朝韩两国之间的敌对情绪和军备竞赛。
+> The only people who don’t want to investigate the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) are Democrats in Congress. [https://t.co/tEG560m62y](https://t.co/tEG560m62y)
+> — Rep. Jim Jordan (@Jim\_Jordan) [September 28, 2021](https://twitter.com/Jim_Jordan/status/1442654325424246788?ref_src=twsrc%5Etfw)
 
-自2018年川普政府启动美朝无核化谈判以来，美国始终坚持只有朝鲜全面废除其核武器和弹道导弹设施后，白宫才能取消对平壤的全面经济制裁。但是因为美朝均不肯作出实质性让步，此轮无核化谈判从2019年至今已陷入僵局。
 
-此后，朝鲜不断加大发展其武器系统的力度。有报道称尽管金正恩并没有视察这次导弹发射，但是朝鲜军事专家确认本次试射的Hwasong系列导弹的各项技术指标，如可控性、稳定性、机动性等均已达到预期结果。美国军事专家也在推特（Twitter）上发推表示，本次试射导弹是自2017年11月以来朝鲜首次发射的液体推进剂导弹。
 
-军方指出，因平壤不满美韩在武器计划执行中的”双重标准”，朝鲜遂向其东海岸海域试射导弹，以表明朝鲜的强硬态度，目的是期望重启与美韩的外交对话。
+前白宫经济顾问皮特·纳瓦罗： 在川普时期,福奇已经没戏了,他完了。这段视频抨击了大西洋杂志-一左翼霉体，在福奇显然应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 及其杀死的数百万人负责任的情况下仍为福奇开脱。在亚马逊购买《川普时代》：[https://bit.ly/TwitterFauciFork](https://t.co/a1KWEzBNPL?amp=1)
 
-韩国总统文在寅9月21日在联合国大会上再次呼吁韩国和朝鲜双方正式签署文件以结束1950-1953年的朝鲜战争，同时建议朝韩美三方或是朝韩、美国和中共国四方一起，宣布朝鲜半岛的战争正式结束。
 
-随即，在本届联大一般性辩论中，朝鲜大使金星称平壤有权适当进行导弹试验。他强调道， “没有人可以剥夺我们合法自卫的权力”。 但是，根据联合国投票决议禁止朝鲜试验可携带核弹头的导弹。
 
-9月28日朝鲜再次试射导弹，几乎就是公开表明朝鲜不在乎、也不会遵守联合国对朝鲜的禁止性决议。这种不断的挑衅和试探行为，一方面说明联合国在实际行动执行力上能力十分有限，另一方面也说明中共对朝鲜的经济和军事资助帮助了金氏家族独裁统治着朝鲜人民，使其不惜与民主和人民为敌。这表明，只有中共解体崩溃，无法继续向平壤输送金钱和武器技术等，金氏王朝才会彻底瓦解，直到那时朝鲜人民才能真正获得自由民主。
+> In Trump Time sticks a fork in Fauci and he's done. This video skewers the Left Wing Atlantic for pulling its Fauci punches when Fauci is clearly responsible for the Chinese Communist Party virus and millions it has killed. Buy In Trump Time at Amazon: [https://t.co/zydWckJK1w](https://t.co/zydWckJK1w) [pic.twitter.com/NA82WxwrZT](https://t.co/NA82WxwrZT)
+> — Peter Navarro (@RealPNavarro) [September 28, 2021](https://twitter.com/RealPNavarro/status/1443001502352687104?ref_src=twsrc%5Etfw)
 
-参考资料：
 
-[North Korea says it test-fired new hypersonic missile – Reuters – 29/09/2021](https://www.newsbreak.com/news/2386716784977/north-korea-says-it-test-fired-new-hypersonic-missile)
+
+参议员马可·卢比奥: 康明凯和斯帕沃根本不应该被拘留。经过多年的非法任意逮捕，他们早该获释了。 通过先释放孟晚舟来确保他们的获释开创了一个可怕的先例，这只会鼓励 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京在未来继续进行人质外交。
+
+
+
+> Kovrig & Spavor should've never been detained. Their release is long overdue after years of arbitrary arrest.
+> 
+> Securing their release by first releasing [#MengWanzhou](https://twitter.com/hashtag/MengWanzhou?src=hash&amp;ref_src=twsrc%5Etfw) sets a terrible precedent that'll only embolden [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to continue conducting hostage diplomacy in the future. [https://t.co/Smww3BVOVW](https://t.co/Smww3BVOVW)
+> — Senator Rubio Press (@SenRubioPress) [September 28, 2021](https://twitter.com/SenRubioPress/status/1442991416645410820?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 我和中国特别工作组的成员一起呼吁（气候特使）约翰·克里和（商业部部长）雷蒙多立即接受关于 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的威胁简报，因为他们最近忽视 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成的威胁。
+
+
+
+> I joined members of the China Task Force in calling on [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw) & [@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) to receive an immediate threat briefing on the Chinese Communist Party due to their recent dismissive language regarding the threat the CCP poses to the U.S.
+> — Rep. Mike Garcia (@RepMikeGarcia) [September 28, 2021](https://twitter.com/RepMikeGarcia/status/1442953035630612483?ref_src=twsrc%5Etfw)
+
+
+
+国智库哈德逊研究所： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对 [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hashtag_click) （美英澳）安全协议有多担心？ “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在意识到其战略误判的严重性。这可能会阻止解放军超越第一岛链——这让北京不寒而栗，” （前国务院顾问）余茂春告诉 （华盛顿时报军情记者）比尔·格茨。 【附华盛顿时报文章：北京称AUKUS联盟不负责任】
+
+
+
+> How worried is [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) about the [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) security pact? 
+> 
+> "The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is realizing the magnitude of its strategic miscalculations. This could obviate the PLA’s march beyond the First Island Chain – that makes Beijing shiver,” [@milesyu10](https://twitter.com/milesyu10?ref_src=twsrc%5Etfw) tells [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) [https://t.co/B8UKIVx3u1](https://t.co/B8UKIVx3u1)
+> — Hudson Institute (@HudsonInstitute) [September 28, 2021](https://twitter.com/HudsonInstitute/status/1442917986499657731?ref_src=twsrc%5Etfw)
+
+
+
+众议院外交委员会转推： 【shane Tews 的推文：美国政策的影响开始累积——2021 年，10 个最大经济体中的 8 个——全球超过 60% 的蜂窝设备市场，以及几乎所有欧盟成员国都禁止或限制使用华为的5G 网络。 （附美国企业协会文章：华为的衰落说明中国为何难以称霸：北京的好战是罪魁祸首）】
+
+
+
+> Effects of US policy are starting to accumulate – 2021, 8 of 10 largest economies – over 60% of the world’s cellular equipment market, & nearly all members of the EU had either banned or restricted [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) from their 5G networks. [@halbrands](https://twitter.com/HalBrands?ref_src=twsrc%5Etfw) [https://t.co/Xnd9u3XID8](https://t.co/Xnd9u3XID8) via [@AEI](https://twitter.com/AEI?ref_src=twsrc%5Etfw)
+> — Shane Tews (@ShaneTews) [September 27, 2021](https://twitter.com/ShaneTews/status/1442543988901298178?ref_src=twsrc%5Etfw)
