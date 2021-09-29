@@ -2,44 +2,17 @@
 ---
 
 
-## 有声| 让我们在最黑暗的时刻里都活在人间天堂里
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562183/)
+## 秘翻在线：【速报】岸田文雄当选为自民党新任总裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1562203/)
 
-配音：香草山教育部-蒙古鸿雁
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/画像4-1.png)（图片源自本文链接）
+9月29日报道：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+实际意义上的下届日本首相选举的日本自民党总裁选今天举行，刚刚产生的投票结果是，前政调会长岸田文雄当选为新任自民党总裁。
 
+在第一轮投票中，岸田先生获得了来自国会议员和党员的256选票，名列前茅。但因这个票数没有过半数，他和获得选票第二名的河野先生之间又进行了第二轮投票。第二轮投票结果是岸田获得257票，河野获得170票。
 
+[信息源](https://news.yahoo.co.jp/articles/05303cae73213c89753a28fd693c0fcd5bd3a66f)
 
-
-
-
-
-我根据这几天灵修的内容总结出以下四个协议。这是根据美国作家唐·米格尔`鲁伊斯（Don Miguel Ruiz ）和珍妮特·米尔斯（Janet Mills）于1997年出版的《四项协议：个人自由实用指南》一书加上自己的感悟整理出来的。
-
-我们只要与自己签定以下四个协议，并能真正做到的话，就一定能够活在属于自己的人间天堂里！让我们一起努力，一边紧跟七哥传播病毒和疫苗真相，一边争取在灭共前的这人类历史上最黑暗的时刻里以及灭共后的光明日子里都活在人间天堂里！
-
-
-
-**文字版原文：[让我们在最黑暗的时刻里都活在人间天堂里](https://gnews.org/zh-hans/1558710/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者个人观点）

@@ -2,39 +2,25 @@
 ---
 
 
-## [金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1562126/)
+## 台湾被中共抢先申请加入CPTPP是因内部消息走漏？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1562144/)
 
-作者：纽约香草山金融部 – 闲聊钱币
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-96.png)
+图片来自网络
 
+《法国国际广播电台》9月28日消息，台湾9月22日以“台澎金马个别关税领域”名称，申请加入“跨太平洋伙伴全面进步协定”（CPTPP）。有民进党立委27日在经济委员会的质询会上质疑，中共抢在台湾之前申请加入CPTPP，有可能是因台湾内部走漏消息，呼吁经济部进行调查。
 
+据《新头壳》报道，台湾立法院经济委员会星期一邀请农委会主委陈吉仲、经济部长王美花等相关部会首长列席，就“加入CPTPP对台湾产业的冲击——定位、时程规划与因应”做出报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+民进党立委蔡易余在质询时指出，中共国在这个时候提出申请加入CPTPP，令他感到纳闷。他质疑，是否因事先了解到台湾要申请加入CPTPP，因此中共国要赶在台湾之前提出申请。
 
+蔡易余认为，经济部应进行内部调查，查清是否存在有内部消息走漏的可能。他认为，或许正因为中共国知道了台湾申请的时间，才让中共在诸多不利的条件下，仍要进行比台湾早几天申请加入CPTPP的政治动作。《新头壳》的报道称，王美花并未对此做出回应。
 
+至于加入CPTPP对台湾影响，《新头壳》的报道称，王美花回答说，台湾是高度外贸导向，不仅有关税问题，还有供应链问题；此外，加入CPTPP还能让大家看到台湾是国际一员，这对台湾很重要。
 
-汉班托塔国际港是一个深水港，它也是斯里兰卡第二大港口，仅次于科伦坡港。该港口于2008年1月开始兴建，中共国参与部分投资。2010年11月18日投入运营，2016年营业利润为181万美元。2020年，该港口吞吐能力已达180万吨。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-17.jpg)
-当斯里兰卡政府在偿还中共投资兴建港口的债务遇到困难的时候，时任总理Ranil Wickremesinghe于2017年7月与中共签署了一份协议，给予中共的招商局港汉班托塔港70%及周边15000英亩土地99年的使用租约。
+多年来，中共对台湾的渗透已达到全方位、无死角，无论是政界、军界还是商界。台湾绿委发出这般质疑不无道理，因为这次中共申请加入CPTPP的时间点十分蹊跷，并且是明知不可为而为之，目的之一或许就是为了阻止台湾加入。由此可见，台湾对抗中共的最大障碍，就是那些出卖台湾利益的“卖台贼”。
 
-网络消息称中共可能根据某些附加条款要求延长租约至198年，又有称新当选政府要求收回港口使用权。
+注：本文仅代表作者观点
 
-汉班托塔港命运扑朔迷离。
-
-参考阅读：
-1.[https://en.wikipedia.org/wiki/Hambantota\_International\_Port](https://en.wikipedia.org/wiki/Hambantota_International_Port)
-2. [https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/](https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/)
-3. [https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port](https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-***编辑/校对/发稿：***Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+**新闻链接：**[https://twitter.com/RFI\_Cn/status/1442798379981934596](https://twitter.com/RFI_Cn/status/1442798379981934596)
