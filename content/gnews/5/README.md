@@ -2,24 +2,15 @@
 ---
 
 
-## 中共限电一刀切引发多地事故，伤人夺命
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1562240/)
+## 2021年9月28日 文贵先生盖特 9
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562316/)
 
-视频&文章：澳洲天好蓝
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-中共国这几天的全国限电来势突然，凶猛之极，一刀切式没有通知的限电，停电，不但让很多企业直接歇菜了，还让百姓的生活受到了严重的影响。不管怎么样中共政府的管理水平的低下，简单、粗爆的作风又一次体现了出来 。
+9/28/2021 Miles Guo’s GETTR: Who will be arrested first? Zeng Qinghong, Wang Qishan, or Meng Jianzhu? The price of commodities, labor, electricity, food, healthcare, and medicine will skyrocket in the future, while non-essential goods like cars will be worthless. The beginning of the COVID vaccine disaster will be the time when you fear the most.
 
-中共这样低智商的管理手段，让社会产生了极大的混乱，这样一刀切的管理也引发了可怕的人祸。根据网上流出的中共鸡西市安全风险防控通知显示：9月24日，辽宁彭辉铸业有限公司因突发限电，导致排风系统停运，发生23人高炉煤气中毒事故。
+9/28/2021 文贵盖特：曾庆红、王岐山、孟建柱，谁会最先被抓？劳动力、大宗商品、电、粮、医、药的价格在未来都会暴涨，而汽车等非生活必需品将一文不值。疫苗灾难的开始才是让你最恐惧的时候！
 
-但实际上这个事故远远不止23人中毒这样的简单，而根据网上某群的聊天信息显示，有位网友在辽宁辽阳，因为当时没有预警的突然停电，导致当地一个最大的民营钢厂的熔炼高频炉散热循环泵停止散热，炉子里的钢水全都炸了出来，据说现场就死了十几个人。辽宁彭辉铸业有限公司办公地址正是辽阳，这位网友说的这个企业就是辽宁彭辉铸业有限公司。
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pch86x2149)
 
-无独有偶，因为限电，东北一位网友一家三口烧煤取暖，结果又因为排风没电，没有把一氧化碳排出去，导致全家中毒，他母亲中毒严重还晕到了，还好这位网友自己中毒情况没有父母严重，他打了120才得以脱险。
-
-这些都是中共人祸的冰山一角，中共造成这样的人祸都是因为中共独裁专制，高层一纸令下，下面的奴才就不管三七二十一的执行，从来不考虑会造成什么后果，就算造成了严重的后果，只要控制新闻舆论就没人会知道真相。就算是有无辜的百姓被害死了，没有人，也没有一个地方能为他们伸张正义,就像大饥荒，文革等等一样，中共从来没有为这些人祸负责，只要中华大地有中共在，不负责任的人祸就会一次又一次的发生，没有止境！
-
-（本文只代表作者个人观点）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+**喜联盟Gnews编辑部**

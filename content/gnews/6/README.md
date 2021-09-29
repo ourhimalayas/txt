@@ -2,35 +2,13 @@
 ---
 
 
-## DC大中华时事：中国全面禁止虚拟货币交易
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1562234/)
+## 2021年9月28日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562297/)
 
-*编辑：西北风 / 作图：*虎子哥
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+How on the earth that the companies are require their workers to get vaccinated? And if workers refuse to do so, their job will be jeopardized, in the meanwhile they all knew this covid vaccine is very risky and caused death on many people, but they still do so?! STOP what you are doing, either you’re completely fool or your hands will be full of blood. For people who are still debating whether they should put food on the table for their families or choose what’s right for themselves. I want to say, your live matters! Don’t you know that the drug companies take no responsibility for their products, so why should you have the obligation to take it. “Freedom is not a gift bestowed upon us by other men, but a right that belongs to us by the laws of God and nature”
 
-#   墙国妄语每日驳
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pcgc9ab549)
 
-### **0**9.29.2021
-
-[周少来：百年大党根本活力源于人民 (huanqiu.com)](https://m.huanqiu.com/article/44xag75aWTF)
-
-***简评：***儒家思想是有民本思想的。但这里的人民指的是群体而不是指个休。儒生们的理想政治应该是君臣共治天下，建立起来文官政府行王道施仁政，这是儒生为基础的官僚政治的理想。记住，儒家思想以民为本本质是维护帝国制度高高在上的皇权，这是核心。以儒生为代表的官僚政治和以皇帝为代表的皇权政治之争贯穿整个中华史。今天执政中国的中共和过去又有什么区别吗？仍然要高举以人民的民义，当中共以人民的民义牌子举的越高，口号越哄亮说明中共内部权力斗争越激化，这才是实质，中共口中的“人民”其实不关人民任何事。
-
-### 09.29.2021
-
-[外媒关注：中国全面禁止虚拟货币交易\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/finance/20210926/2455044.shtml)
-
-***简评：***新中国联邦喜币马上要上市交易了，中共开始全面禁止国内虚拟货币交易。时间是很巧合。当中共禁止国内虚拟货币交易后，普通国内民众想把自己的辛苦努力赚到财富转移出国外的仅存的渠道也被卡死了。随着国内经济塌陷式的恶化，这也是一种本能的逃亡反应，民众转移财富的需求剧增，中共外汇存底由2018最高峰3万亿美元骤降至现在可动用外外汇不足1万亿美元。中共禁止国内虚拟货币交易，再清晰不过表明中共外汇出现危机。
-
-### 09.29.2021
-
-[全球新增超过74万例！研究表明4%癌症与饮酒有关\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/sports/20210929/2454562.shtml)
-
-***简评：***爱达华州加登城医生Dr.Ryan Cole在采访中指出：在过去几周内，全世界的病理学家都看到了各种各样的癌症病例迅速增多，探究其原因：可能是是因为体内大量产生的刺突蛋白抑制了免疫系统功能，使得原先身体内负责检查癌变细胞的免疫细胞的功能被压制了，导致癌变细胞可以大量快速繁殖。中共这篇文章就是洗地文章，明明是需要强调的是是注射疫苗引起了癌症患者的增加，可中共这篇文强调的是4%癌症患者和饮洒有关，驴头不对马嘴，中共一贯宣传手法，避重就轻，混淆是非，愚弄民众。
-
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/892645316736716810/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/892645382742499378/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/892645435842367488/03.png?width=1043&amp;height=586)
-*编辑：*西北风
-*作图：虎子哥
-发布：文顾*
+**喜联盟Gnews编辑部**

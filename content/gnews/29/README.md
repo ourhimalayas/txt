@@ -2,44 +2,39 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1561961/)
+## [金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1562126/)
 
-素材：东京樱花团GNEWS组
-![](https://lh5.googleusercontent.com/PxPNM1zDv35AKYnOlGyMSHbHVQzl8LdF0z7EHhxWyJ4aqhsqjlV6Hm__WjX2SC7G9YQ-XnPbVpD9nnlc5ujR6uYtScEUbMOw-sxFO2u9i1HwyF2oLcJYOPVMxVsXcgj7ShvmHIth=s0)
-[图片来源](https://www.voachinese.com/a/white-house-xinjiang-uyghur-20210928/6249408.html)
+作者：纽约香草山金融部 – 闲聊钱币
 
-**9月29日汇编**
 
-1、 [白宫发言人：拜登总统直接关切维吾尔人处境](https://www.voachinese.com/a/white-house-xinjiang-uyghur-20210928/6249408.html)
 
-9月28号星期二的白宫新闻简报会上，被问到拜登政府对《防止维吾尔人强迫劳动法》的立场，白宫发言人莎琪重申本届政府在新疆跟维吾尔人的立场。莎琪说：“总统过去当然已经直接向中国表达了对维吾尔人处境的关切。”美国政府7月13号对企业界发出商业警示，说“未退出与新疆有关的供应链、合资企业和/或投资的企业和个人，可能面临违反美国法律的高风险。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-美国参议院在7月14号通过了《防止维吾尔人强迫劳动法》，当中规定进口商必须举证，从新疆进口的商品没有涉及强制劳动，否则将依照《1930年关税法》禁止进口。目前的规定是如果有合理证据显示商品涉及强制劳动，则将禁止进口。
 
-2、[纽约数千医护拒绝接种疫苗 州长宣布紧急状态](https://www.aboluowang.com/2021/0929/1652924.html)
 
-纽约州州长凯茜·霍楚尔（Kathy Hochul）周一（27日）晚上宣布，该州进入紧急状态，以应对因至少数千名医务人员拒绝接种COVID-19疫苗而导致的潜在的医务人员短缺危机。周二（28日）上午，霍楚尔在推特上宣布：“昨晚，我采取了大胆的行动，签署了一项行政命令，该命令将缓解我们纽约州各地医院和其它医疗机构潜在的人员短缺问题。”纽约州政府网站上周六（25日）公布了霍楚尔准备宣布紧急状态的计划。按照纽约州疫苗令的要求，全州所有医务人员必须在9月27日前接种至少一剂COVID-19疫苗，否则将面临解雇。据《华盛顿邮报》报导，截至上周三（22日），纽约州的45万名卫生保健工作者中，大约84%完全接种了疫苗，7万人尚未接种。纽约州的疫苗令下一步将影响到其它卫生保健机构，包括家庭护理、临终关怀和成人护理机构。按照该命令，这些机构的工作人员须在10月7日前接种疫苗。
+汉班托塔国际港是一个深水港，它也是斯里兰卡第二大港口，仅次于科伦坡港。该港口于2008年1月开始兴建，中共国参与部分投资。2010年11月18日投入运营，2016年营业利润为181万美元。2020年，该港口吞吐能力已达180万吨。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-17.jpg)
+当斯里兰卡政府在偿还中共投资兴建港口的债务遇到困难的时候，时任总理Ranil Wickremesinghe于2017年7月与中共签署了一份协议，给予中共的招商局港汉班托塔港70%及周边15000英亩土地99年的使用租约。
 
-3、[法国赛诺菲宣布：停止开发mRNA新冠疫苗](https://www.aboluowang.com/2021/0929/1652923.html)
+网络消息称中共可能根据某些附加条款要求延长租约至198年，又有称新当选政府要求收回港口使用权。
 
-法国制药巨擘赛诺菲（Sanofi）今日表示，尽管试验结果正向，但由于疫苗生产进度落后对手，公司已经停止进行COVID-19（中共病毒）（2019冠状病毒疾病）mRNA疫苗开发作业。赛诺菲表示，公司将转而聚焦和英国葛兰素史克药厂（GlaxoSmithKline）合作研发另一种形式的疫苗，目前这款疫苗正在进行人体试验的最后阶段。赛诺菲表示，公司的mRNA疫苗在第一和第二临床试验阶段有正面的结果。赛诺菲的对手瑞/BioNTech（Pfizer/BioNTech）和莫德纳（Moderna）都采用创新的mRNA技术。但赛诺菲表示，该公司不会进行第三阶段（最后阶段）试验，赛诺菲认为，赛诺菲反而会以mRNA技术生产疫苗，对抗其他病原的疾病，像是流感等。
+汉班托塔港命运扑朔迷离。
 
-4、[特鲁多：将就华为5G设备问题很快做出决定](https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html)
+参考阅读：
+1.[https://en.wikipedia.org/wiki/Hambantota\_International\_Port](https://en.wikipedia.org/wiki/Hambantota_International_Port)
+2. [https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/](https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/)
+3. [https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port](https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port)
 
-根据路透社28日消息，加拿大将很快就是否禁止使用华为5G设备问题做出最后决定。加拿大总理特鲁多周二（28日）说，可能在“未来几个星期内”就是否禁止使用华为5G设备问题做出最后决定。加拿大政府对是否像“五眼联盟”其他成员国一样禁止使用华为5G设备的问题已经研究了三年，这是特鲁多在华为首席财务官孟晚舟上星期获释后首次就华为设备问题发表评论。在此之前，加拿大表示正等待情报机构的报告，以做出最终的决定。加拿大两家最大的无线供应商去年6月与瑞典的爱立信和芬兰的诺基亚合作，共同建造5G通信网络。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-5、[美英澳新联盟形成 澳核潜艇将是中国攻台顾忌](https://www.voachinese.com/a/china-aukus-20210928/6248615.html)
+***编辑/校对/发稿：***Hetangyuese
 
-美国、英国和澳大利亚最近宣布建立新的三边安全伙伴关系（奥克斯，AUKUS），美英两国将帮助澳大利亚海军建立核潜艇部队，深化防务关系以抗衡中国。分析人士指出，从地缘战略的角度看，“奥克斯”三边安全伙伴关系实际上是美英澳形成的一个新的联盟，是美国印太战略重心向印太地区转移的具体体现，在印太地区的最外围的海域构筑了一道限制中国扩张的战略防线。根据澳英美三边安全伙伴关系协议，澳大利亚将获得至少八艘核动力潜艇。核潜艇被认为隐蔽性高、续航时间长、生存能力远高于传统柴电动力潜艇，是威慑中国贸然动武的最佳战略武器之一。美国福布斯杂志举例说，如果北京选择攻击台湾，弗吉尼亚级潜艇可以打破对台湾的任何海上封锁。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-6、[哈佛预言：恒大如破产中国经济增长将降至2%](https://www.aboluowang.com/2021/0929/1652987.html)
-
-长期关注中国房地产问题的国际货币基金组织（IMF）前首席经济学家、哈佛大学经济学教授罗格夫（Kenneth Rogoff）指出，恒大的问题可能不会演变成中国版的“雷曼兄弟”金融风暴，而是整个中国经济仰赖房地产增长的模式即将破灭，中国年经济增长率跌至仅有2%的痛苦状态。罗格夫向《巴隆周刊》（Barron’s）表示：中国长期以来养成过度依赖房地产拉动经济的模式，房产相关产品与服务占国内生产总值（GDP）的29%，高得不正常，而且中国市面上已经有巨量的空房子存货，外界质疑，人均所得仅有德国、法国四分之一的中国，怎么负担得起跟德、法一样贵的房价？
-
-中国的经济成长正在放缓，新冠肺炎（中共病毒）疫后出现的反弹复苏快要结束，此时经济丧失任何动能的冲击都会很大。因此恒大一旦倒下，拖垮整个中国房市，北京当局很难无缝接轨找到其他的增长来源拉动经济。罗格夫指出：假设中国经济未来12个月的GDP成长率，本来就可能因为房市放缓从6%降到4%，这时恒大倒闭冲击房地产业，使中国GDP成长率再掉1到2个百分点，中国GDP成长仅剩2%，将难以创造足够工作，陷入痛苦的经济状况。
-
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
