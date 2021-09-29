@@ -15,101 +15,101 @@
 
 ---
 
-### [2018年5月1日郭文贵先生直播一全文听写：我们中华名族遇到魔鬼了](/content/gnews/1/README.md)
+### [11个太平洋贸易条约国家将决定北京与台北之战的赢家](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2018年5月1日郭文贵先生直播一全文听写：我们中华名族遇到魔鬼了](/content/gnews/2/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [CCP借纽约时报打压伊维菌素](/content/gnews/2/README.md)
+### [CCP借纽约时报打压伊维菌素](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [大英霸权：大西洋主义](/content/gnews/3/README.md)
+### [DC每日热点0929](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [大英霸权：大西洋主义](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [接种率高达 95%的哈佛正经历COVID大爆发](/content/gnews/4/README.md)
+### [接种率高达 95%的哈佛正经历COVID大爆发](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【小雨专栏】在路上（031）——手机篇](/content/gnews/5/README.md)
+### [【小雨专栏】在路上（031）——手机篇](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [日本知名医生内海聪推特被封，入驻盖特](/content/gnews/6/README.md)
+### [日本知名医生内海聪推特被封，入驻盖特](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [GET REVVIN&#8217;: 自由言论网络GETTR宣布2021年哈雷·戴维森赠品](/content/gnews/7/README.md)
+### [GET REVVIN&#8217;: 自由言论网络GETTR宣布2021年哈雷·戴维森赠品](/content/gnews/9/README.md)
  ` wenwu`
 
-### [强生公司员工：疫苗的影响未知，不能给孩子注射疫苗](/content/gnews/8/README.md)
+### [强生公司员工：疫苗的影响未知，不能给孩子注射疫苗](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [阿尔内·布尔卡德博士教授（Prof. Dr. Arne Burkhardt）对于新冠病毒疫苗所产生副作用的病理学实例分析，如炎症](/content/gnews/9/README.md)
+### [阿尔内·布尔卡德博士教授（Prof. Dr. Arne Burkhardt）对于新冠病毒疫苗所产生副作用的病理学实例分析，如炎症](/content/gnews/11/README.md)
  ` MG 澳喜农场多语组`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/10/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/12/README.md)
  ` wenwu`
 
-### [2021年9月29日郭先生直播速记](/content/gnews/11/README.md)
+### [2021年9月29日郭先生直播速记](/content/gnews/13/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [新华社暴露世卫组织在武汉溯源中共病毒的“猫腻”](/content/gnews/12/README.md)
+### [新华社暴露世卫组织在武汉溯源中共病毒的“猫腻”](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本选出新首相岸田文雄](/content/gnews/13/README.md)
+### [日本选出新首相岸田文雄](/content/gnews/15/README.md)
  ` HimalayaRussia`
 
-### [秘翻在线：英国医院80%的COVID死亡病例都是接种疫苗的病人](/content/gnews/14/README.md)
+### [秘翻在线：英国医院80%的COVID死亡病例都是接种疫苗的病人](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纽约数千名医院工作人员可能因未接种新冠疫苗被解雇](/content/gnews/15/README.md)
+### [纽约数千名医院工作人员可能因未接种新冠疫苗被解雇](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登：疫苗接种率要达到97%-98%美国才能恢复正常](/content/gnews/16/README.md)
+### [拜登：疫苗接种率要达到97%-98%美国才能恢复正常](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [NBA球星感染了病毒也不接种疫苗](/content/gnews/17/README.md)
+### [NBA球星感染了病毒也不接种疫苗](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [为什么强制没有用的含有石墨烯的毒疫苗](/content/gnews/18/README.md)
+### [为什么强制没有用的含有石墨烯的毒疫苗](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：警惕！人类物种应被改造的潮流甚嚣尘上](/content/gnews/19/README.md)
+### [秘翻在线：警惕！人类物种应被改造的潮流甚嚣尘上](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：瑞士歌手由于晕倒音乐会取消](/content/gnews/20/README.md)
+### [秘翻在线：瑞士歌手由于晕倒音乐会取消](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗会导致血栓并增加患癌症的风险](/content/gnews/21/README.md)
+### [疫苗会导致血栓并增加患癌症的风险](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西媒头条 — 第76期](/content/gnews/22/README.md)
+### [西媒头条 — 第76期](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [刺突蛋白就是毒，疫苗会导致和中共病毒一样的疾病](/content/gnews/23/README.md)
+### [刺突蛋白就是毒，疫苗会导致和中共病毒一样的疾病](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [维加诺大主教称强制接种新冠疫苗为反人类罪](/content/gnews/24/README.md)
+### [维加诺大主教称强制接种新冠疫苗为反人类罪](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [金灿荣：解决台湾問題, 至少十大收益](/content/gnews/25/README.md)
+### [金灿荣：解决台湾問題, 至少十大收益](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线:澳大利亚正在成为「欧威尔式」的集权主义国家](/content/gnews/26/README.md)
+### [秘翻在线:澳大利亚正在成为「欧威尔式」的集权主义国家](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [盖特](/content/gnews/27/README.md)
+### [盖特](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [CCP输出共产主义是全球华人灾难的根源](/content/gnews/28/README.md)
+### [CCP输出共产主义是全球华人灾难的根源](/content/gnews/30/README.md)
  ` 波士顿五月花农场`
 
-### [2021/09/28大卫作战室直播精要](/content/gnews/29/README.md)
+### [2021/09/28大卫作战室直播精要](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [彼得·达扎克2017年演讲证明其与中共病毒的紧密联系](/content/gnews/30/README.md)
+### [彼得·达扎克2017年演讲证明其与中共病毒的紧密联系](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线：限电导致百姓哄抢蜡烛 北上深官方忙辟谣稳民心](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [盖特](/content/gnews/32/README.md)
- ` 首尔天池农场`
 
 ### [维加诺大主教称，强制接种新冠疫苗是反人类罪](/content/gnews/33/README.md)
  ` GTV新闻访谈`

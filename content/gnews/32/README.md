@@ -2,14 +2,9 @@
 ---
 
 
-## 盖特
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1562936/)
+## 彼得·达扎克2017年演讲证明其与中共病毒的紧密联系
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1562964/)
 
-韩国天池农场战友
+09/23/2021 娜塔丽·温特斯：彼得·达扎克在2017年举办的全球健康大学联盟主办的会议上进行的演讲，侧面证明了他本人和安东尼·福奇都和中共病毒的产生有紧密联系。
 
-天降大任郭七哥，
-引领爆料建新国。
-若问世间真相处，
-诸君翻墙看盖特！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/盖特1.jpeg)
-（本文仅代表作者观点，与Gnews平台无关）
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
