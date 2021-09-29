@@ -2,33 +2,48 @@
 ---
 
 
-## 视频| 真相工程 &#8211; 暗访强生科学家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1561552/)
+## 从印尼三十年内两次排华谈起 警惕历史重演
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1561430/)
 
-制作：香草山视频部
+**By**:**秘翻时评（特辑）**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+***2021-9-29***
+[![](https://assets.gnews.org/wp-content/uploads/2021/09/Unknown-1.jpeg)](https://gtv.org/video/id=6150541c42a8af3151a59f88)*点击图片观看第一期完整视频*
+19965年为了消灭政治对手，苏哈托举行军事政变，种族歧视被当成利用的工具，华人被当作共产党而遭到杀戮。父亲是华人的苏哈托将自己童年缺少父爱的私人愤恨发泄在无辜的华人身上，用自己手中的国家机器，屠杀了数十万印尼华人。
 
+1998年在亚洲金融风暴的压力下，印尼政府为了转移民众视线，进行了国家层面的有组织的，有奖金鼓励的，针对华人群体实施的奸杀掠夺的暴行，而中共政府的原则“当地华人加入印尼国籍了，就是印尼内政，不干涉，不报道”。
 
+为什么勤勤恳恳劳作的华人总是被用来泄愤的对象？
 
+利用国家机器的力量，有预谋有组织的暴行，到底能够有多残忍？
 
+现在的病毒和疫苗到底会产生怎样的灾难？
 
+又会给全球华人带来怎样的灭顶之灾？
 
+全球范围的排华事件会发生吗？
 
+我们要如何应对灾难的来临？
 
+你准备好了吗？
 
-*发稿：雪梨*
+请移步GTV，观看**【秘翻时评】三期特辑**，完整展示历史的伤痛和现实的担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+**2021/9/26 第一期**
 
-**更多资讯，更多关注**
+[https://gtv.org/video/id=6150541c42a8af3151a59f88](https://gtv.org/video/id=6150541c42a8af3151a59f88)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**2021/9/27 第二期**
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[https://gtv.org/video/id=6151a44d42a8af3151a67776](https://gtv.org/video/id=6151a44d42a8af3151a67776)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**2021/9/28 第三期**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://gtv.org/video/id=6152f59542a8af3151a6de30](https://gtv.org/video/id=6152f59542a8af3151a6de30)
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+*发布:星星*
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)

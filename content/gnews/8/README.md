@@ -2,21 +2,15 @@
 ---
 
 
-## 外劳短缺，英国企业加薪30%
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1562283/)
+## 2021年9月28日 文贵先生盖特 10
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562321/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09293-1.jpg)OLYMPUS DIGITAL CAMERA
-虽然卡车司机的短缺使英国的货运交通瘫痪，也引发了渴望汽油的司机们的恐慌，但伦敦政府现在被迫在另一条战线上采取行动。物流业的一些主要公司发现自己被迫将仓库工人的工资提高了 30%，以此希望找到愿意担任劳动力空缺的工人。
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-很多低工资的外国劳动力实际上已经搬到了不需要签证的国家，例如法国和德国。 UKWA（英国仓储协会）的代表已经向路透社承认“数万名工人”失踪了。因此，需要将工资提高 20% 到 30% 之间的数字，而这个增加很可能会反映在向消费者收取的价格上。
+9/28/2012 Miles Guo’s GETTR: The CCP’s economy is bound to collapse regardless who will take power after the 20th Party Congress; Once the real estate industry goes bankrupt, its relevant industries and financial sector will also be over, and the CCP won’t purchase iron ore from Australia anymore; The greedy Western capitalists only wants to profit from the Huawei incident; We must hold accountable and punish the Suharto family for their crimes against the ethnic Chinese according to the law, and we must avenge!
 
-英国通讯社说，英国物流网络的混乱加剧了欧洲天然气价格的飙升、英国脱欧后卡车司机的短缺以及 冠状（中共）病毒影响，这是 20年来以劳动密集型产业为主的英国首次面临这样的问题。
+9/28/2021 文贵盖特：20大后不论谁上台，中共经济都必将崩溃；房地产一旦破产，其相关产业和金融都要完蛋，中共不再会买澳洲的铁矿了；贪婪的西方资本家一心想利用华为事件牟利；必须依法追究并严惩苏哈托家族针对华人所犯下的罪行，此仇必报！
 
-行业协会最担心的是原定于今年 11 月 26 日举行的黑色星期五以及12月份的圣诞节会因为欧洲工人外逃而出现商业网络的风险。
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pchtsi57d8)
 
-免责申明：本文只代表译者观点，与Gnews无关
-
-原文链接：[https://europa.today.it/attualita/mancano-lavoratori-regno-unito-aumentano-salari.html#\_ga=2.117092358.1053365128.1632903359-145009575.1615972944](https://europa.today.it/attualita/mancano-lavoratori-regno-unito-aumentano-salari.html#_ga=2.117092358.1053365128.1632903359-145009575.1615972944)
-
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+**喜联盟Gnews编辑部**

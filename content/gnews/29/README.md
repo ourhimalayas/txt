@@ -2,39 +2,42 @@
 ---
 
 
-## [金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1562126/)
+## 有声| 美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562160/)
 
-作者：纽约香草山金融部 – 闲聊钱币
+配音：香草山教育部-蒙古鸿雁
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-汉班托塔国际港是一个深水港，它也是斯里兰卡第二大港口，仅次于科伦坡港。该港口于2008年1月开始兴建，中共国参与部分投资。2010年11月18日投入运营，2016年营业利润为181万美元。2020年，该港口吞吐能力已达180万吨。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-17.jpg)
-当斯里兰卡政府在偿还中共投资兴建港口的债务遇到困难的时候，时任总理Ranil Wickremesinghe于2017年7月与中共签署了一份协议，给予中共的招商局港汉班托塔港70%及周边15000英亩土地99年的使用租约。
 
-网络消息称中共可能根据某些附加条款要求延长租约至198年，又有称新当选政府要求收回港口使用权。
 
-汉班托塔港命运扑朔迷离。
 
-参考阅读：
-1.[https://en.wikipedia.org/wiki/Hambantota\_International\_Port](https://en.wikipedia.org/wiki/Hambantota_International_Port)
-2. [https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/](https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/)
-3. [https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port](https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+路透社9月27日 讯 – 美国官员本周将前往拉丁美洲考察基础设施项目，准备与中共国耗资数万亿美元的“一带一路”倡议相抗衡。 美国官员称，由拜登总统的副国家安全顾问 达利普·辛格率领的一个外交和发展官员代表团正在哥伦比亚，他们计划与哥国总统杜克会面，然后在本周稍晚前往厄瓜多尔和巴拿马。 该代表团的任务是将七国集团(G7)国家6月宣示的国际基础设施投资倡议“重建更美好的世界”（B3W)变为现实。这是几个计划的“聆听之旅”中的第一个。 按美国计划在明年年初正式启动B3W倡议，包括公布一些初始项目的细节。 据《零对冲》报道，“一带一路”项目因疫情加速了存量债务违约的重新谈判，到目前为止估计达到 940 亿美元，约占中共国海外贷款的四分之一。这表明“一带一路”最重要的贷款人，即中共国家开发银行和进出口银行，在为一带一路项目融资方面做得非常差，中共国纳税人很可能最终为此买单。 如今B3W项目的启动，恒大的崩坍，“一带一路”的有去无回几成定局。
 
-***编辑/校对/发稿：***Hetangyuese
+
+
+**文字版原文：[美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](https://gnews.org/zh-hans/1559585/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

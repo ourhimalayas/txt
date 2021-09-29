@@ -2,15 +2,26 @@
 ---
 
 
-## 2021年9月28日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562321/)
+## 盐野义制药公司的治疗中共病毒新药开始第二期临床试验
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1562340/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-434.png)
+（图片源自本文链接）
 
-9/28/2012 Miles Guo’s GETTR: The CCP’s economy is bound to collapse regardless who will take power after the 20th Party Congress; Once the real estate industry goes bankrupt, its relevant industries and financial sector will also be over, and the CCP won’t purchase iron ore from Australia anymore; The greedy Western capitalists only wants to profit from the Huawei incident; We must hold accountable and punish the Suharto family for their crimes against the ethnic Chinese according to the law, and we must avenge!
+日本雅虎网站9月28日消息：
 
-9/28/2021 文贵盖特：20大后不论谁上台，中共经济都必将崩溃；房地产一旦破产，其相关产业和金融都要完蛋，中共不再会买澳洲的铁矿了；贪婪的西方资本家一心想利用华为事件牟利；必须依法追究并严惩苏哈托家族针对华人所犯下的罪行，此仇必报！
+盐野义制药公司于9月27日宣布，正在开发的用于治疗中共病毒感染的口服抗病毒药（开发编号：S-217622）的国内2/3期临床试验开始。
 
-[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pchtsi57d8)
+该药物自2021年7月起在日本进行了1期临床试验，没有显示出重大的安全问题。其药代动力也被证明是良好的，超过了目标血药浓度。此次临床试验将评估该疗法对轻症状COVID-19患者或无症状感染患者的疗效和安全性，与使用安慰剂的群组进行对照，每天口服一次，为期五天。
 
-**喜联盟Gnews编辑部**
+鉴于目前的医疗条件下，轻症COVID-19患者或无症状感染者主要是通过居家或留宿护理接受治疗。本次临床试验是在实施这项试验的医疗机构的基础上，将进行派遣医护人员进行治疗的医疗机构的那些居家，以及留宿治疗的患者也作为临床试验对象。该试验还将包括一个安慰剂组，但与正常的临床试验一样，受试者将在整个研究过程中得到医生和护士的全面医疗支持。
+
+公司表示，该药物是非常方便的口服药，有望为患者的早期治疗以及维护医疗系统的稳定做出贡献。
+
+[信息源](https://news.yahoo.co.jp/articles/1c5953b514fe42ae04e345152ad7a0a587a80c94)
+
+（文章仅代表作者个人观点，与GNEWS无关）
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
