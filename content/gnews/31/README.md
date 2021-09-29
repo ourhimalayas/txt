@@ -2,9 +2,14 @@
 ---
 
 
-## 海航陈峰曾赞扬中国制度优越，今被采取强制措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1562918/)
+## 盖特
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1562936/)
 
-09/24/2021 海航集团董事长陈峰2019年11月还在公开赞扬中国社会制度的优越性，不到两年后的2021年9月，他就被采取强制措施。
+韩国天池农场战友
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+天降大任郭七哥，
+引领爆料建新国。
+若问世间真相处，
+诸君翻墙看盖特！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/盖特1.jpeg)
+（本文仅代表作者观点，与Gnews平台无关）

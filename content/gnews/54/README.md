@@ -2,28 +2,47 @@
 ---
 
 
-## 澳总理：澳大利亚对话中共的大门始终是敞开的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1558239/)
+## 华尔街投资者对中国市场意见分歧
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559179/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/australia-scott-morrison-ap-19085176633304.jpg)CBS新闻
-9月27日，《天空新闻台》记者杰克·马赫尼（Jack Mahony）撰文，报道总理斯科特·莫里森（Scott Morrison）在接受采访时，驳斥了有关澳大利亚最近与中共国缺乏外交沟通的问题。
+作者：香草山金融部- Opal
 
-在接受CBS新闻《面对国家》节目采访时，主持人玛格丽特·布伦南（*Margaret Brennan*）向莫里森提问，为什么没有与中共国国家主席习近平进行沟通。
 
-莫里森驳斥道：“我们的电话始终是在线状态，我们对话的大门始终是敞开的。澳中两国在政治层面的直接对话不存在澳大利亚方面的任何障碍。但中（共）国方面没有对话的兴趣，但他们希望抓住这样的对话机会时，我们始终是欢迎的。并且，这些（对话）的机会多年来一直存在，但他们不感兴趣，那是他们的选择。”
 
-布伦南问莫里森，面对澳大利亚和中共国之间军事关系的紧张，是否存在“热战”的威胁。莫里森总理对此予以了否认。他说：“我当然不认为这是不可避免的，我认为这一切是完全可以避免的。不过，这些问题主要是（需要）在美中两国之间解决。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-**新闻来源**
 
-[Scott Morrison rejects suggestions a lack of political communication with China could lead to a ‘hot war’](https://www.skynews.com.au/australia-news/politics/scott-morrison-rejects-suggestions-a-lack-of-political-communication-with-china-could-lead-to-a-hot-war/news-story/887fbf8ceb9304d4fa811d5dbfcdb39a)
 
-校对编辑：文泓
-发布：七彩光
+据《金融报》报道，上周，世界上最知名的两位投资者之间爆发了一场冲突，这反映出华尔街在将资金投入中国的可行性方面，存在着越来越大的分歧。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+本周，全球最大的资产管理公司贝莱德(BlackRock)周三宣布，由于中国不断增长的储蓄市场的机会，贝莱德为其在中国的首个共同基金筹集了10亿美元。就在一天前，亿万富翁金融家乔治-索罗斯在《华尔街日报》上写道，贝莱德进入中国是一个 “悲惨的错误”， “贝莱德错了。”索罗斯此前曾警告说，中国的投资者面临 “粗暴的觉醒”，因为 “习近平把所有中国公司都视为一党制国家的工具”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-55.png)图片来源：[www.ft.com](https://www.ft.com/)
+根据数据提供商Copley Fund Research的数据，经营主动型全球股票基金的经理们已将其对中国和香港的配置削减到四年来的最低水平。根据对资产超过10亿美元的381只基金的抽样调查，Copley计算出，现在仅有超过四分之一的基金持有的中国和香港股票多于基准全球指数。在2015年初，最高时有45%的投资者对中国持有如此大的赌注。
+
+外国投资者的不安反映了中国10个月来，中共在对从教育到电子游戏等行业发起一连串的监管行动，中共的 “共同富裕 “运动几乎触及了所有行业，包括打击中国最大的科技公司和房地产市场，严格限制年轻人玩电子游戏的时间，以及禁止营利性教育行业。
+
+基金经理们不仅在权衡是否要投资中国资产，他们也在考虑如何向中国的消费者提供他们的服务。除了贝莱德，包括美国的摩根资产管理公司、高盛资产管理公司，以及欧洲的Amundi和Schroders在内的外国投资者，正在通过财富管理合资企业进入中国。可谓是几家欢喜，几家愁，得到利益的，自然会继续高歌猛进；亏损的，会收拾行囊撤退；当然还有一些投资机构在坚持，在观望。
+
+在中共现行的这种“打土豪分田地”的政策下，多数的私人企业、私人投资者，包括外资，因被瘦身、被割、被斩而被迫离场，早已不足为奇。因为这个体制是罪恶的，要想得益，就只能和中共勾兑。
+
+郭文贵先生在2019年5月6日直播中提到：有一家全球最大的基金，已经和中共勾兑好了。这家基金与中共签署了一份800亿美元所谓影子银行顾问合同，前提是美国与中共签署贸易协定!
+
+笔者推测，全球最大的基金应该就是贝莱德基金(BlackRock)。贝莱德基金， 主要为针对法人与零售通路提供投资管理、风险管理与财务咨询服务，现在成为第一家在中共国有自己基金的外国资产管理公司。贝莱德在中共国的共同基金大约价值3.6万亿美元。贝莱德基金会不会也难逃亏损的命运？是否会像索罗斯讲的那样，把投资者们的资金统统输光呢？咱们拭目以待。
+
+（本文仅代表作者个人观点）
+
+参考链接：
+
+[https://www.ft.com/content/8cda606f-aa6a-444a-8331-310c6b5f167d](https://www.ft.com/content/8cda606f-aa6a-444a-8331-310c6b5f167d)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
+
+编辑/审核/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
