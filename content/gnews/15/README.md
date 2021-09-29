@@ -2,15 +2,41 @@
 ---
 
 
-## 2021年9月28日 文贵先生盖特 10
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562321/)
+## 09/29/2021 财经快讯：黑石集团以56.5亿美元的价格出售 The Cosmopolitan 度假村和赌场；油价三年来首次突破80美元
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1562399/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20210929-1.jpg)[图片来源](https://www.google.com/search?q=stagflation&amp;sxsrf=AOaemvIvMl1wwbnnY7zQHj2tcaFFsAJFjg:1632904153548&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjouJiA4qPzAhXq_7sIHbNNAo8Q_AUoAXoECAEQAw&amp;biw=1280&amp;bih=577&amp;dpr=1.5#imgrc=T6eNL1tK2BtA2M)
+**1.因美国国债收益率飙升，道指下跌 569 点，科技股纳斯达克指数暴跌**
 
-9/28/2012 Miles Guo’s GETTR: The CCP’s economy is bound to collapse regardless who will take power after the 20th Party Congress; Once the real estate industry goes bankrupt, its relevant industries and financial sector will also be over, and the CCP won’t purchase iron ore from Australia anymore; The greedy Western capitalists only wants to profit from the Huawei incident; We must hold accountable and punish the Suharto family for their crimes against the ethnic Chinese according to the law, and we must avenge!
+[由于消费者信心跌至七个月低点，美联储主席鲍威尔表达了对通胀的担忧，美国股指周二暴跌。道琼斯工业平均指数下跌 569 点，跌幅 1.63%，而标准普尔 500 指数和纳斯达克综合指数分别下跌 2.04% 和 2.83%。鲍威尔周二上午对参议院银行委员会表示，通胀比预期的更大、持续时间更长，央行将在必要时使用其可用工具。他是在会议委员会表示消费者信心指数从 8 月份的 115.2 跌至 9 月份的 109.3 后不久发表的上述评论。美国国债继续抛售，10年期国债收益率上涨5个基点至1.53%，创三个月新高。](https://www.foxbusiness.com/markets/stocks-futures-slid-feds-powell-warn-inflation)
 
-9/28/2021 文贵盖特：20大后不论谁上台，中共经济都必将崩溃；房地产一旦破产，其相关产业和金融都要完蛋，中共不再会买澳洲的铁矿了；贪婪的西方资本家一心想利用华为事件牟利；必须依法追究并严惩苏哈托家族针对华人所犯下的罪行，此仇必报！
+**2.摩根大通的戴蒙表示，美国违约将是“潜在的灾难性事件”**
 
-[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pchtsi57d8)
+[摩根大通首席执行官杰米戴蒙周二警告说，美国拖欠未偿债务将会对经济造成毁灭性后果。如果立法者未能在迫在眉睫的最后期限之前暂停借款上限，摩根大通已开始预测违约影响的情景。 戴蒙告诉路透社，违约将是“潜在的灾难性事件”，并补充说国会最终应该投票决定完全取消债务上限。“每次出现这种情况时，它都会得到解决，但我们永远不应该接近这一点。我只是认为整件事是错误的，有一天我们应该有一个两党联合的法案并摆脱债务上限。现在全部在玩政治，”戴蒙在采访中说。](https://www.foxbusiness.com/politics/dimon-us-default-potentially-catastrophic-event)
 
-**喜联盟Gnews编辑部**
+**3.马斯克重回世界首富宝座**
+
+[马斯克重新夺回了世界首富的头衔，成为继杰夫·贝索斯和伯纳德·阿诺特之后第三个超过 2000亿美元 的人。根据福布斯实时亿万富豪榜，特斯拉和SpaceX创始人马斯克现在拥有2014亿美元的财富，超过亚马逊和蓝色起源创始人杰夫贝索斯的1930亿美元； LVMH Moët Hennessy – Louis Vuitton SE 首席执行官 Bernard Arnault 和家族的 1740 亿美元，微软联合创始人比尔盖茨的 1295 亿美元，以及 Facebook 首席执行官马克扎克伯格的 1218 亿美元。马斯克财富的增加在很大程度上与特斯拉的股市成功有关。 马斯克拥有这家电动汽车制造商约五分之一的股份。](https://www.foxbusiness.com/business-leaders/elon-musk-reclaims-top-spot-as-worlds-richest-person)
+
+**4.黑石集团 以 $5.65B 的价格出售 The Cosmopolitan 度假村和赌场**
+
+[黑石公司周一表示，将以 56.5 亿美元的价格出售其拉斯维加斯大都会度假村和赌场。作为交易的一部分，米高梅国际度假村将以 16.3 亿美元收购 The Cosmopolitan 的业务。米高梅还将与 Stonepeak Partners、Cherng Family Trust 和 Blackstone Real Estate Income Trust Inc 之间的合伙企业签订长期租赁协议，后者将收购 The Cosmopolitan 的房地产资产。黑石集团在 2014 年以约 17 亿美元的价格收购了该物业，并斥资 5 亿美元进行升级，包括翻新近 3,000 间客房并增加新的餐厅和酒吧。](https://www.foxbusiness.com/markets/blackstone-sell-cosmopolitan-resort-casino)
+
+**5.油价三年来首次突破80美元**
+
+[油价周二攀升至每桶 80 美元（59 英镑）以上，随着英镑下跌，创下三年来的最高水平。国际基准布伦特原油当天一度上涨至 80.69 美元，为 2018 年 10 月以来最高。在欧洲能源危机的背景下，价格已连续 7 天上涨。分析人士认为，在需求激增和供应紧张的情况下，油价将继续上涨。投资银行高盛表示，布伦特原油可能在年底前达到每桶 90 美元，并警告称，投入成本上升、天然气价格上涨和增长疲软可能会对 2021 年欧洲企业利润增长构成压力。](https://www.bbc.com/news/business-58727437)
+
+**6.高盛因停电下调中国经济增长预期**
+
+[高盛已成为最新一家下调中国增长预期的银行业巨头，因为中国正与能源短缺作斗争。它现在预计世界第二大经济体今年将增长 7.8%，低于此前预测的 8.2%。该公司表示，停电造成的重大工业减产增加了“巨大的下行压力”。据估计，中国多达 44% 的工业活动受到影响。由环境控制、供应限制和价格飞涨引起的电力供应紧缩，已使一些工厂和家庭断电。能源短缺起初影响了全国各地的制造商，其中许多制造商最近几周不得不限制或停止生产。](https://www.bbc.com/news/business-58704200)
+
+**7.塔利班：阿富汗银行老板警告该行业濒临崩溃**
+
+[阿富汗最大的银行之一的老板告诉 BBC，阿富汗的银行系统已接近崩溃。阿富汗伊斯兰银行首席执行官 Syed Moosa Kaleem Al-Falahi 表示，由于客户恐慌，该国金融业正处于“生存危机”之中。“目前正在发生大量撤资”，他在迪拜说，由于喀布尔的混乱，他暂时驻扎在迪拜。他补充说：“只有提款发生，大多数银行都没有运作，也没有提供全面的服务。”甚至在塔利班 8 月上台之前，阿富汗的经济就已经岌岌可危。它严重依赖外国援助——据世界银行称，其国内生产总值 (GDP) 的约 40% 来自国际援助。但自从塔利班接管以来，西方已经冻结了国际资金，包括阿富汗本可以通过世界银行和国际货币基金组织（IMF）获得的资产。](https://www.bbc.com/news/business-58660579)
+
+**8.由于 PC 制造商面临零件短缺，美光预测芯片需求下降**
+
+[美光科技预测本季度收入低于分析师的预期，并警告称，由于制造个人电脑的客户面临其他部件短缺，其存储芯片的出货量将在短期内下降。苹果公司供应商的股价周二在盘后交易中下跌近 4%，该公司也表示其自身供应链中的某些组件出现短缺。该公司生产服务于数据存储市场的 NAND 存储芯片和广泛用于数据中心、个人计算机和其他设备的 DRAM 存储芯片。全球最大的存储芯片供应商之一美光表示，预计这两种芯片的出货量将在短期内依次下降。](https://finance.yahoo.com/news/germanys-ifo-institute-cuts-2021-081021783.html)
+
+By 【秘密翻译组-金融组】
+作者：Andrew

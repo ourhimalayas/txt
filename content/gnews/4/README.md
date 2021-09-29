@@ -2,32 +2,15 @@
 ---
 
 
-## 2021/09/29 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1562398/)
+## 2021年9月28日 文贵先生盖特 18
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562474/)
 
-## 001 官与民的对立的世界
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-**视频注：**中共城管的身影又一次出现在令人愤怒的视频内，一位卖菜的老人只因为没有按照中共政府的要求在规定的地点摆摊卖菜，被中共城管部队随意损坏没收财产。在不具有任何威胁性的情况下被随意甩到了地上。她会是谁的母亲？她的遭遇可能会是中共境内任何人的母亲大概率都会遇到的事情。
+9/28/2021 Miles Guo GETTR: The people of the New Federal State of China don’t pursue economic or political interests and are selflessly devoted to the better future, peace, and safety of the whole world! The CCP is bound to pull the entire world’s economy into abyss, and the era of exploiting the Chinese will never return! There will surely be retribution for the Suharto family for what they have done to the ethnic Chinese in Indonesia.
 
-## 002 “完善的”中共社会福利体系
+9/28/2021文贵盖特：新中国联邦人不追逐经济或政治利益，为了全世界美好的未来、和平与安全而无私奉献！中共必然把整个世界的经济带入深渊，而过去几十年压榨中国人血汗的时代将一去不复返！苏哈托家族一定为他们对印尼华人的所作所为而遭到报应的！
 
-**视频注：**GDP位列全球第二的中共国，每年都会大量援助亚非拉国家，以救世主的身份。但另一方面，它对自己国内、它立誓要服务的人民，却没有如此慷慨。普通中国人的困难只有在网络上被曝光后，为了安抚舆论才有可能得到的政府部门的所谓服务和官僚式的“赏赐” 。 视频中残疾老人的遭遇就是中共社会福利体系的一个缩影。中共的社会福利体系对中国的普通老百姓来说等于零！而视频中这样的百万残疾老人只能自生自灭。
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pch7208835)
 
-## 003 被医疗大山压在山脚下的中国人
-
-**视频注：**北京儿童医院病房外，露宿在空地上的是那些生病儿童的父母。为了省钱他们只能如流浪狗般的露宿街头。中共荒唐昂贵的医疗体系，是中共搜刮百姓敛取暴利的工具。所有生病的普通中国人，基本上只能靠自己的积蓄来治病救命。在他们的人生中，任何一次不幸患病就可能会要了他们整个家族的未来。中国人的治病过程中，政府作为社会医疗保障体系的职能角色，根本就没有出现过。
-
-## 004 中共特色共产主义社区
-
-**视频注：**美名其曰服务，实则监管无处不在。国人烦恼不已、又永远无法绕开的具有共产主义特色的中共社区。中共治下百姓一生中的行政服务，都需要被这样全国划好片区的网格化成员管理和批准。从出生到死亡，都需要提供证明。而社区就是这些提供证明和管控公民的地方。
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**喜联盟Gnews编辑部**

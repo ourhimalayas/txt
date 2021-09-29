@@ -2,42 +2,17 @@
 ---
 
 
-## 有声| 美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562160/)
+## 秘翻在线：【速报】岸田文雄当选为自民党新任总裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1562203/)
 
-配音：香草山教育部-蒙古鸿雁
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/画像4-1.png)（图片源自本文链接）
+9月29日报道：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+实际意义上的下届日本首相选举的日本自民党总裁选今天举行，刚刚产生的投票结果是，前政调会长岸田文雄当选为新任自民党总裁。
 
+在第一轮投票中，岸田先生获得了来自国会议员和党员的256选票，名列前茅。但因这个票数没有过半数，他和获得选票第二名的河野先生之间又进行了第二轮投票。第二轮投票结果是岸田获得257票，河野获得170票。
 
+[信息源](https://news.yahoo.co.jp/articles/05303cae73213c89753a28fd693c0fcd5bd3a66f)
 
-
-
-
-
-路透社9月27日 讯 – 美国官员本周将前往拉丁美洲考察基础设施项目，准备与中共国耗资数万亿美元的“一带一路”倡议相抗衡。 美国官员称，由拜登总统的副国家安全顾问 达利普·辛格率领的一个外交和发展官员代表团正在哥伦比亚，他们计划与哥国总统杜克会面，然后在本周稍晚前往厄瓜多尔和巴拿马。 该代表团的任务是将七国集团(G7)国家6月宣示的国际基础设施投资倡议“重建更美好的世界”（B3W)变为现实。这是几个计划的“聆听之旅”中的第一个。 按美国计划在明年年初正式启动B3W倡议，包括公布一些初始项目的细节。 据《零对冲》报道，“一带一路”项目因疫情加速了存量债务违约的重新谈判，到目前为止估计达到 940 亿美元，约占中共国海外贷款的四分之一。这表明“一带一路”最重要的贷款人，即中共国家开发银行和进出口银行，在为一带一路项目融资方面做得非常差，中共国纳税人很可能最终为此买单。 如今B3W项目的启动，恒大的崩坍，“一带一路”的有去无回几成定局。
-
-
-
-**文字版原文：[美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](https://gnews.org/zh-hans/1559585/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者个人观点）

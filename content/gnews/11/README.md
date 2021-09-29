@@ -2,26 +2,19 @@
 ---
 
 
-## 盐野义制药公司的治疗中共病毒新药开始第二期临床试验
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1562340/)
+## 2021年9月28日 文贵先生盖特 15
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562423/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-434.png)
-（图片源自本文链接）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-日本雅虎网站9月28日消息：
+9月28号：【举报人称： breaking: 近5万名医保患者在注射COVID疫苗后不久死亡 据医疗自由权律师托马斯-伦茨（Thomas Renz）称，一名举报人提供的政府数据显示，仅在医疗保险患者中，就有48465人在接种COVID-19疫苗后14天内死亡。 “你想知道为什么14天很重要吗？”他问。”因为如果你在14天内死亡，你就不被认为是接种了疫苗。” 根据美国疾病控制和预防中心（CDC）的说法，一个人在完成注射方案14天后才被认为是 “接种疫苗”，这引起了一个问题，即政府当局是否一直将这些死亡事件归类为与疫苗接种有关的死亡之外的事情。 】 [https://www.lifesitenews.com/news/nearly-50k…](https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/) [https://gettr.com/post/pch6l37d0a](https://gettr.com/post/pch6l37d0a) [https://gettr.com/post/pcilpc1489](https://gettr.com/post/pcilpc1489)
 
-盐野义制药公司于9月27日宣布，正在开发的用于治疗中共病毒感染的口服抗病毒药（开发编号：S-217622）的国内2/3期临床试验开始。
 
-该药物自2021年7月起在日本进行了1期临床试验，没有显示出重大的安全问题。其药代动力也被证明是良好的，超过了目标血药浓度。此次临床试验将评估该疗法对轻症状COVID-19患者或无症状感染患者的疗效和安全性，与使用安慰剂的群组进行对照，每天口服一次，为期五天。
 
-鉴于目前的医疗条件下，轻症COVID-19患者或无症状感染者主要是通过居家或留宿护理接受治疗。本次临床试验是在实施这项试验的医疗机构的基础上，将进行派遣医护人员进行治疗的医疗机构的那些居家，以及留宿治疗的患者也作为临床试验对象。该试验还将包括一个安慰剂组，但与正常的临床试验一样，受试者将在整个研究过程中得到医生和护士的全面医疗支持。
+> [Nearly 50k Medicare patients died soon after getting COVID shot: whistleblower](https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/)
 
-公司表示，该药物是非常方便的口服药，有望为患者的早期治疗以及维护医疗系统的稳定做出贡献。
 
-[信息源](https://news.yahoo.co.jp/articles/1c5953b514fe42ae04e345152ad7a0a587a80c94)
 
-（文章仅代表作者个人观点，与GNEWS无关）
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pch8u40122)
+
+**喜联盟Gnews编辑部**
