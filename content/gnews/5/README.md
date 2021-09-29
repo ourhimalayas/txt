@@ -2,18 +2,19 @@
 ---
 
 
-## 雅典娜时报-第066期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561472/)
+## 2021年9月16日郭文贵先生今天有两场球赛盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1561578/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+盖特连接：https://gettr.com/post/pb9pwa4c2f
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/09/99.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/88.png)
-***发布：小红帽***
+9.16日：七哥今天有两场球赛**🏀**……一大1⃣️小……
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+
+天呐，这家伙，这给我洗得真干净，真干净啊！呵呵，洗得太干净了！天呐，太漂亮了，太漂亮了！太漂亮了！太漂亮了！太漂亮了！然后高尔夫球场那边，今天我发现高尔夫球场来了好多VVIP，VVIP，咋弄嘞，咋弄嘞！
+
+今天我将举行一场别开生面的篮球赛，都是牛人啊！都是牛人，但是七哥估计零分，零分！零分！
+
+编辑整理及发布：黎明之前
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)、[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

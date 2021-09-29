@@ -2,33 +2,21 @@
 ---
 
 
-## 视频| 真相工程 &#8211; 暗访强生科学家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1561552/)
+## 2021年9月16日郭文贵先生看亡腚缸住过的房子盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1561620/)
 
-制作：香草山视频部
+盖特连接：https://gettr.com/post/pba6id3241
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+9月16号：看了这个房子的花园和曾经相比简直是无法形容的恼怒，这是清理了一个多月以后的情况！很多车的垃圾已经清理出去了，太烂了路大脑骗！
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
+看这花园，看这花园都成啥了，这王八蛋这花园，这在美国是犯罪知道吗？这花园整成这样，他们跟我说这里边全都是垃圾，全都是垃圾，你看看，全都是垃圾呀！你看这花儿多漂亮的花儿，这个孙子欸！
 
+Hold on（等一下）！我今天是开这个摩托车来的啊！开着摩托车回去啊！I follow you（我跟在你后边）！OK? Yeah! Let‘s go!（是的，我们走）！太牛啦！Go! Thank you! Master, Thank you! （走，谢谢！）
 
+人家今天看这房子的人都觉得是疯子，都觉得简直这帮孙子太疯狂了，行了，回头再给大家汇报啊，Let’s go!（我们走！）
 
+编辑整理及发布：黎明之前
 
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)、[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

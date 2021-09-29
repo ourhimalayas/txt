@@ -2,23 +2,42 @@
 ---
 
 
-## 中共国发布《中国的全面小康》奴役国人白皮书
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1561195/)
+## 我的身体我做主，墨尔本教师周五将举行和平抗议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561361/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-72.jpg)
-[图片来源](https://www.voachinese.com/a/voa-news-global-slavery-china-20160531/3355428.html)
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-43.png)
+图片来源：Herald Sun
 
-9月28中共国发布了《中国的全面小康》白皮书，中共中央宣传部副部长、国务院新闻办公室主任徐麟在发布会上介绍白皮书有关情况。白皮书共3.2万余字，正文分为“迈向中华民族伟大复兴的关键一步”、“全面小康是全面发展的小康”、“全面小康是全体人民的小康”、“全面小康是奋斗出来的小康”、“中共国全面小康的世界意义”五个部分，系统阐述中共国的全面小康是什么，又是如何建成的。白皮书宣称，全面小康是物质文明和精神文明协调发展的小康，既是国家经济实力增强，也是国家文化软实力提升；既是人民仓廪实、衣食足，也是人民知礼节、明荣辱。全面小康，以人为本，民生为先。良好生态环境是最普惠的民生福祉，是全面小康最亮丽的底色。
+Fullscreen
 
-这是中共国成立70年，中共匪党成立100年为国人画的大饼，所谓的国家富强、民族振兴、人民幸福，多维度、全方位的小康，生存权、发展权得到了有效保障，实现了幼有所育、学有所教、劳有所得、病有所医、老有所养、住有所居、弱有所扶……这都是中共的谎话大话空话，白皮书所及大抵教育、医疗、住房三事件，而讽刺的是这被称“新三座大山”，其实质是中共是利用民生绑架国人，奴役国人，让国人为了生存疲于奔命，不得不成为依附于中共的奴隶。
+9月29日，墨尔本教师已经计划在本周五就维多利亚州政府的疫苗强制接种政策举行和平抗议。一封寄给教育部秘书珍妮·艾塔（Jenny Atta）的投诉信说，这项（强制接种）任务”显然不支持所有学校工作人员，因为一些工作人员将明显处于不利地位”。
 
-索尔仁尼琴说：“我们知道他们在说谎，他们也知道他们在说谎，他们知道我们知道他们在说谎，我们也知道他们知道我们知道他们在说谎，但是他们依然在说谎。”
+虽然教育部门的大多数人已经接种了疫苗，但仍有一小部分人没有选择接种新冠疫苗，并声称强制接种是“非法的”，“应该是一种可选择”。
 
-[《中国的全面小康》白皮书全文](https://mr.baidu.com/r/tSaqKc9Xsk?f=cp&amp;rs=958624137&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=a2242461e9fd2259)
+一位不愿透露姓名的女士透露，她已经”完全打过疫苗”，但反对政府的指令。她告诉媒体：”（接种疫苗）这应该是一种选择，我不同意长期服务的教师将因此而失去工作，这是不对的。“
 
-（文章仅代表作者个人观点，与GNEWS无关）
+据报道，本周五维州一些教育工作者将提前几小时在加密信息应用Telegram上被告知集会的集合点。
 
-*校对：东京樱花团 / 知了知了*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+一位教育部发言人告诉媒体，“绝大多数人”正在接种疫苗，并强调“抗议对病毒不起作用”。教育部的一项调查发现，37,000名雇员中的98%已经接种了一剂COVID-19疫苗。
+
+副州长兼教育部长詹姆士·梅里诺（James Merlino）上周宣布，学校员工需要在11月底前接种疫苗，然后才能回到面授课程。
+
+他说：“我对所有教师和所有工作人员的呼吁是，进行预约并接种疫苗。”
+
+“12岁以下的儿童无法获得疫苗，所以我们必须保护我们的孩子在回家后不会感染病毒和传播病毒。”
+
+然而，今天维多利亚州公布的新增病例950例，再一次创出新高。
+
+（本文仅代表作者个人观点，与Gnews平台无关）
+
+新闻链接：[Melbourne lockdown: Victoria teachers plan protests against COVID-19 vaccine mandate | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/victoria-teachers-plan-protests-against-coronavirus-vaccine-mandate-on-friday/news-story/621b830ff43013ff3f094c7d642075be)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
