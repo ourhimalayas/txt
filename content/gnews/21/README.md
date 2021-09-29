@@ -2,31 +2,37 @@
 ---
 
 
-## 无视联合国决议禁令 朝鲜再度试射新型导弹
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1561448/)
+## 朝鲜向日本海域发射弹道导弹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1561559/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+栏目记者/责任编辑：文真
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/N-2.jpg)todayuknews.com
-据朝中社周三（9月29）报道，朝鲜于本周二在其东海岸试射了新研制的超高音速导弹，并宣称该新型“战略性”超高音速武器系统可提高朝鲜国防的防守能力。
 
-这是9月15日韩国继6个月来首次违反联合国决议向韩国试射导弹之后，加剧双方紧张局势的又一个事件。韩国方面将朝鲜试射导弹行为视为“挑衅”。更耐人寻味的是，朝鲜方面9月15日试射导弹正值中共国王毅访问韩国之际，而谈判内容就包括朝鲜无核化。
 
-就在朝鲜发射导弹几个小时后，韩国也试射了其第一枚潜艇发射的弹道导弹。似乎是向朝鲜背后的中共通告，韩国不会屈服于朝鲜的胁迫和恐吓。平静数月后，在敏感时刻中共似乎有意主动挑起朝韩两国之间的敌对情绪和军备竞赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
 
-自2018年川普政府启动美朝无核化谈判以来，美国始终坚持只有朝鲜全面废除其核武器和弹道导弹设施后，白宫才能取消对平壤的全面经济制裁。但是因为美朝均不肯作出实质性让步，此轮无核化谈判从2019年至今已陷入僵局。
 
-此后，朝鲜不断加大发展其武器系统的力度。有报道称尽管金正恩并没有视察这次导弹发射，但是朝鲜军事专家确认本次试射的Hwasong系列导弹的各项技术指标，如可控性、稳定性、机动性等均已达到预期结果。美国军事专家也在推特（Twitter）上发推表示，本次试射导弹是自2017年11月以来朝鲜首次发射的液体推进剂导弹。
 
-军方指出，因平壤不满美韩在武器计划执行中的”双重标准”，朝鲜遂向其东海岸海域试射导弹，以表明朝鲜的强硬态度，目的是期望重启与美韩的外交对话。
+9月28日上午，韩国军方检测到一枚从朝鲜长江省发射的导弹。该导弹飞越朝鲜东部海岸进入日本海，在日本的专属经济区外降落。这是过去一个月里，朝鲜进行的第三次被禁导弹的挑衅性试验。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture4-6.jpg)
+朝鲜驻联合国大使金颂，在纽约联合国大会上发言时坚称，无论联合国安理会针对朝鲜导弹计划的决议如何规定，朝鲜都有权发展更好的武器来对抗美国和韩国的 “敌对政策”。
 
-韩国总统文在寅9月21日在联合国大会上再次呼吁韩国和朝鲜双方正式签署文件以结束1950-1953年的朝鲜战争，同时建议朝韩美三方或是朝韩、美国和中共国四方一起，宣布朝鲜半岛的战争正式结束。
+韩国国防部发言人周二表示，迄今为止，朝鲜对连接两国军事热线的电话 “毫无反应”。日本首相菅义伟星期二说，日本将 “加强警惕” 以应对朝鲜的武力挑衅行为。美国印度洋-太平洋司令部的一份声明批评了 “朝鲜非法武器计划的不稳定影响”，并重申美国对保卫韩国和日本的 “铁血 “承诺。
 
-随即，在本届联大一般性辩论中，朝鲜大使金星称平壤有权适当进行导弹试验。他强调道， “没有人可以剥夺我们合法自卫的权力”。 但是，根据联合国投票决议禁止朝鲜试验可携带核弹头的导弹。
+（本文仅代表作者观点）
 
-9月28日朝鲜再次试射导弹，几乎就是公开表明朝鲜不在乎、也不会遵守联合国对朝鲜的禁止性决议。这种不断的挑衅和试探行为，一方面说明联合国在实际行动执行力上能力十分有限，另一方面也说明中共对朝鲜的经济和军事资助帮助了金氏家族独裁统治着朝鲜人民，使其不惜与民主和人民为敌。这表明，只有中共解体崩溃，无法继续向平壤输送金钱和武器技术等，金氏王朝才会彻底瓦解，直到那时朝鲜人民才能真正获得自由民主。
+参考链接：[https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/](https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/)
 
-参考资料：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
 
-[North Korea says it test-fired new hypersonic missile – Reuters – 29/09/2021](https://www.newsbreak.com/news/2386716784977/north-korea-says-it-test-fired-new-hypersonic-missile)
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)

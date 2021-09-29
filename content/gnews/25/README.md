@@ -2,49 +2,61 @@
 ---
 
 
-## 美启动拆除华为中兴等中国通信设备计划
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1561381/)
+## 众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1561496/)
 
-作者：纽约香草山媒体部- CloudSky
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+众议员吉姆·乔丹： 唯一不想调查 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的人就是国会的民主党人。 【附thepostmillennial的相关文章:世卫组织称,调查#中共病毒起源的时间不多了】
 
 
 
-
-
-自华为首席财务官孟晚舟与美国政府地方检察官签署了延期起诉协议，被政府专机接回深圳后，中共国内一片欢腾，似乎CCP取得了外交上的极大胜利，为华为及孟女士洗净了不白之冤。然而，激动的情绪还没平息，打脸的消息就传来了。就在今天9月27日， 美联邦通信委员会（FCC）发布了从电信网络中拆除华为、中兴等中国通信设备的公告。消息如下：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1084-1.jpg)2021年2月23日，在中国上海举行的移动世界大会上的华为标志（REUTERS/Aly Song）
-
-[华盛顿（路透社）](https://www.reuters.com/business/media-telecom/us-open-program-replace-huawei-equipment-us-networks-2021-09-27/)-美国联邦通信委员会（FCC）周一表示，将启动一项19亿美元的计划，以补偿大部分美国农村电信运营商拆除华为和中兴制造的网络设备。因为这两家公司被视为威胁美国的国家安全。
-
-该计划在今年7月最终敲定，将于10月29日开放申请，截止于2022年1月14日。去年，FCC声明将华为和中兴视为通信网络的国家安全威胁从而禁止美国公司动用83亿美元的政府基金从这两家公司购买设备。FCC在12月通过了规定，要求拥有中兴或华为设备的运营商“拆卸并更换”这些设备。
-
-对于农村运输公司来说，这是一个很大的问题，他们面临着高昂的成本，很难找到工人来拆卸和更换设备。FCC的最终订单将符合报销条件的公司从拥有不多于200万客户的公司扩大到不多于1000万客户的公司。FCC在2020年9月估算，从网络上拆除和更换华为和中兴通讯设备将花费18.37亿美元。
-
-6月，FCC投票通过了一项计划，禁止华为和中兴等被视为国家安全威胁的中国公司向美国电信网络提供设备。FCC还会撤销之前发给中国公司的设备授权。3月，FCC根据2019年旨在保护美国通信网络的法律，认定五家中国公司对国家安全构成威胁。这五家公司除包括之前指定的华为和中兴通讯，还有海能达通信有限公司、杭州海康威视数字码科技有限公司和浙江大华科技有限公司。2020年8月，美国政府禁止联邦机构从五家中国公司中的任何一家购买商品或服务。
-
-以上的这条消息说明，在孟晚舟事件中输的最惨的正是华为自己。因为美国起诉孟晚舟的是串谋实施欺诈和串谋实施电汇欺诈、银行欺诈和电汇欺诈罪， 而梦签字承认她在实施一项欺诈全球金融机构的计划中扮演了主要角色，并说明这个签字是在没有任何胁迫情况下进行的。 这实际上是对华为的犯罪事实做了法律上的证明，使得美国在采取任何处罚时都具有法律依据，华为无力反击。这无疑给了CCP一个重创，也正是我们爆料革命希望的结果。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
+> The only people who don’t want to investigate the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) are Democrats in Congress. [https://t.co/tEG560m62y](https://t.co/tEG560m62y)
+> — Rep. Jim Jordan (@Jim\_Jordan) [September 28, 2021](https://twitter.com/Jim_Jordan/status/1442654325424246788?ref_src=twsrc%5Etfw)
 
 
 
-**更多资讯，更多关注**
+前白宫经济顾问皮特·纳瓦罗： 在川普时期,福奇已经没戏了,他完了。这段视频抨击了大西洋杂志-一左翼霉体，在福奇显然应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 及其杀死的数百万人负责任的情况下仍为福奇开脱。在亚马逊购买《川普时代》：[https://bit.ly/TwitterFauciFork](https://t.co/a1KWEzBNPL?amp=1)
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+> In Trump Time sticks a fork in Fauci and he's done. This video skewers the Left Wing Atlantic for pulling its Fauci punches when Fauci is clearly responsible for the Chinese Communist Party virus and millions it has killed. Buy In Trump Time at Amazon: [https://t.co/zydWckJK1w](https://t.co/zydWckJK1w) [pic.twitter.com/NA82WxwrZT](https://t.co/NA82WxwrZT)
+> — Peter Navarro (@RealPNavarro) [September 28, 2021](https://twitter.com/RealPNavarro/status/1443001502352687104?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+参议员马可·卢比奥: 康明凯和斯帕沃根本不应该被拘留。经过多年的非法任意逮捕，他们早该获释了。 通过先释放孟晚舟来确保他们的获释开创了一个可怕的先例，这只会鼓励 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京在未来继续进行人质外交。
+
+
+
+> Kovrig & Spavor should've never been detained. Their release is long overdue after years of arbitrary arrest.
+> 
+> Securing their release by first releasing [#MengWanzhou](https://twitter.com/hashtag/MengWanzhou?src=hash&amp;ref_src=twsrc%5Etfw) sets a terrible precedent that'll only embolden [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to continue conducting hostage diplomacy in the future. [https://t.co/Smww3BVOVW](https://t.co/Smww3BVOVW)
+> — Senator Rubio Press (@SenRubioPress) [September 28, 2021](https://twitter.com/SenRubioPress/status/1442991416645410820?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 我和中国特别工作组的成员一起呼吁（气候特使）约翰·克里和（商业部部长）雷蒙多立即接受关于 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的威胁简报，因为他们最近忽视 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成的威胁。
+
+
+
+> I joined members of the China Task Force in calling on [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw) & [@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) to receive an immediate threat briefing on the Chinese Communist Party due to their recent dismissive language regarding the threat the CCP poses to the U.S.
+> — Rep. Mike Garcia (@RepMikeGarcia) [September 28, 2021](https://twitter.com/RepMikeGarcia/status/1442953035630612483?ref_src=twsrc%5Etfw)
+
+
+
+国智库哈德逊研究所： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对 [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hashtag_click) （美英澳）安全协议有多担心？ “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在意识到其战略误判的严重性。这可能会阻止解放军超越第一岛链——这让北京不寒而栗，” （前国务院顾问）余茂春告诉 （华盛顿时报军情记者）比尔·格茨。 【附华盛顿时报文章：北京称AUKUS联盟不负责任】
+
+
+
+> How worried is [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) about the [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) security pact? 
+> 
+> "The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is realizing the magnitude of its strategic miscalculations. This could obviate the PLA’s march beyond the First Island Chain – that makes Beijing shiver,” [@milesyu10](https://twitter.com/milesyu10?ref_src=twsrc%5Etfw) tells [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) [https://t.co/B8UKIVx3u1](https://t.co/B8UKIVx3u1)
+> — Hudson Institute (@HudsonInstitute) [September 28, 2021](https://twitter.com/HudsonInstitute/status/1442917986499657731?ref_src=twsrc%5Etfw)
+
+
+
+众议院外交委员会转推： 【shane Tews 的推文：美国政策的影响开始累积——2021 年，10 个最大经济体中的 8 个——全球超过 60% 的蜂窝设备市场，以及几乎所有欧盟成员国都禁止或限制使用华为的5G 网络。 （附美国企业协会文章：华为的衰落说明中国为何难以称霸：北京的好战是罪魁祸首）】
+
+
+
+> Effects of US policy are starting to accumulate – 2021, 8 of 10 largest economies – over 60% of the world’s cellular equipment market, & nearly all members of the EU had either banned or restricted [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) from their 5G networks. [@halbrands](https://twitter.com/HalBrands?ref_src=twsrc%5Etfw) [https://t.co/Xnd9u3XID8](https://t.co/Xnd9u3XID8) via [@AEI](https://twitter.com/AEI?ref_src=twsrc%5Etfw)
+> — Shane Tews (@ShaneTews) [September 27, 2021](https://twitter.com/ShaneTews/status/1442543988901298178?ref_src=twsrc%5Etfw)
