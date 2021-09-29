@@ -2,25 +2,26 @@
 ---
 
 
-## 纽约数千名医院工作人员可能因未接种新冠疫苗被解雇
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1563151/)
+## 强生公司员工：疫苗的影响未知，不能给孩子注射疫苗
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1563248/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-19.jpg)网络图片
-纽约州命令医护人员接种新冠疫苗的规定于周一午夜生效。官员们说，该州16%的医院工作人员，即大约83,000人，没有完全接种疫苗。大约8%的人没有接种一剂疫苗，他们将面临被解雇的风险。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-在纽约市，教师的疫苗接种命令预计将在本周晚些时候生效。教师工会说，其97%的成员都接种了疫苗，市政府说大约有7000名教育工作者在周末接种了疫苗。
+9月29日，一则暗访视频引起关注，视频中两名强生公司的员工表示不能给孩子注射疫苗，疫苗对未来的影响还是未知。
+这则暗访视频由一位ID为Himalaya Global(喜站)的账户，发布在GETTR社交媒体上，截至目前已被转发1000余次。
+视频中，强生公司的商业负责人Brandon Schadt表示，孩子们不应该接种疫苗，我们对疫苗在未来的影响完全一无所知。针对媒体对疫苗的宣传，他补充说：“我们绝对不能相信他们说的任何事情！”
 
-**简介：**纽约市的政府雇员中，真正没有打疫苗的人已经很少了。政府用失去工作来胁迫剩下的人接种疫苗，他们在做最后的反抗，希望他们能守住自己及家人的健康。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/57180388_403.jpg)图片来自于网络
 
-原文链接：[https://www.cbsnews.com/news/covid-vaccine-mandate-new-york-hospital-workers-2021-09-28/](https://www.cbsnews.com/news/covid-vaccine-mandate-new-york-hospital-workers-2021-09-28/)
+另一位强生公司的科学家Justin Durrant也表示不会给自己的孩子注射疫苗。当被问到为什么会有如此的大的力量在推动疫苗时，这位科学家说，为了财务报表，为了让人们乖乖的服从。他补充表示，对于不愿接种疫苗的人，就让他们成为二等公民，当他们因为疫苗而失去自由、失去工作时，他们就会选择注射疫苗。
+另外，这位GETTR用户还发布了维加诺大主教针对疫苗发声的视频，大主教在视频中指出，我们正处于一场没有公开宣布的战争中，强推试验性疫苗是反人类重罪，是全球范围内对人类的大屠杀！他补充说：“他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Johnson & Johnson employees on hidden camera: Don’t vaccinate Children because there are ‘unknown repercussions down the road’; Never trust anything that the media say 强生公司科学家和商务负责人在被偷拍的视频中透露：千万不要给儿童接种疫苗，因为注射疫苗的后果是未知的！千万不要相信媒体所说的任何事情！要让不愿接种疫苗的人成为二等公民](https://gettr.com/post/pci7rh4eaf)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*编辑：文顺 校对：Ranting 发布：Ranting*

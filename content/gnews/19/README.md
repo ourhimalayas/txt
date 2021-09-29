@@ -2,24 +2,27 @@
 ---
 
 
-## 北京欲阻台湾加入CPTPP，台湾批北京无权干涉
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1562937/)
+## 维加诺大主教称强制接种新冠疫苗为反人类罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562993/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-18.jpg)网络图片
+![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-22.png)
 
-**编辑摘要：** 9月29日，中共国国台办发言人朱凤莲以所谓“一个中国”原则为前提，表示将阻止台湾加入亚太地区多边自由贸易机制《全面与进步跨太平洋伙伴关系协定》（CPTPP）。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
-台湾行政院陆委会随即发表书面声明指出，中华民国是主权国家，台湾从来不是中华人民共和国的一部分，任何国家、任何人都无权干涉台湾既有的国际权利。然而北京当局长期以蛮横手段在国际间操作“一个中国原则”的政治框架，阻挡台湾参与国际经济组织或协议。这不仅伤害台湾人民情感、无助两岸关系正向发展，更得不到国际民主自由国家的普遍支持。
+视频参看：2021.09.29早GTV新闻访谈
 
-新闻参考链接：[https://www.voachinese.com/a/China-vows-to-keep-Taiwan-out-of-Pacific-Rim-trade-group-20210929/6250095.html](https://www.voachinese.com/a/China-vows-to-keep-Taiwan-out-of-Pacific-Rim-trade-group-20210929/6250095.html)
+[https://gtv.org/broadcast/watch/61545bff42a8af3151a74752](https://gtv.org/broadcast/watch/61545bff42a8af3151a74752)
 
-* * *
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
