@@ -2,7 +2,9 @@
 ---
 
 
-## 9/28/2021七哥盖特：新中国联邦人不追逐经济或政治利益
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1562734/)
+## 华为会在世界引发如印尼大屠杀的排华事件
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1562796/)
 
-秘密翻译组-北美组
+9/26/2021 华为会在世界引发有如印尼大屠杀一般的排华事件。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

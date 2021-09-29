@@ -2,13 +2,51 @@
 ---
 
 
-## 2021年9月28日 文贵先生盖特 19
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562504/)
+## 西方邪恶资本仍不忘在中共灭亡前与其勾兑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562557/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+栏目记者/责任编辑：Zion文恩
 
-CCP’s mouthpiece Jin Canrong again released wild words to create public opinion for the unification of Taiwan by force： There are at least ten benefits in solving the Taiwan issue 中共喉舌金灿荣再放狂言，为武统台湾制造舆论：解决台湾問題, 至少十大收益
 
-[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pchx4ja714)
 
-**喜联盟Gnews编辑部**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+面对当今全球金融滞涨，以及中共巨额的债务违约，全球各国的政商精英鲜有招架之力。许多邪恶资本家寄希望于与中共勾兑，寄希望于在中共灭亡前，争得最后一份利益。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-56.jpg)
+9月28日，郭先生在盖特视频中谈及全球即将面临的危机，以及全球邪恶资本无视中国劳动人民的死活进一步与中共勾兑的阴谋。
+
+郭先生说: 中共内部的斗争已达空前规模。内部广泛讨论：中共二十大前，是曾庆红．王岐山，孟建柱等势力，哪个会优先“人头落地”，抑或是被全部抓捕。此外，由于贸易制裁和外汇枯竭，党内纷纷讨论如何解决当前的限电 、限粮的困局。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5-42.jpg)
+郭先生指出，无论中共二十大情势如何，中共的虚假房地产经济都无法逃离崩溃的命运。然而，当下所有寄希望与中共在经济领域取得合作，大搞所谓“世界经济”的国际政商精英，都是心存幻想。——澳大利亚仍有部分势力，希望与习近平当局勾兑，以换取向中共出口铁砂石的盈利；殊不知，中共的市场供应链已经完全被切断——房地产崩盘后，其赖以生存的社会金融、保险、信托、债权业相继垮塌，继而建材、材料产业会迎来大崩溃，中共还有何资金进口铁矿等原材料呢？。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-6.jpg)
+此外，美国的一些邪恶资本势力仍希望在“华为”上大做文章，觊觎5G产业这一块肥肉。他们罔顾华为是中国人的血汗工厂，更无视中共奴役中国廉价劳动力的事实。西方的资本家，为了赚钱，丧失了道德和良知。此举与当年孕育了印尼排华事件的中共当局和一些昧了良心的香港资本家，如出一辙。每个中国人都不应忘记印尼排华这一对中国人犯下的滔天罪孽，更应秉承新中国联邦人无我、利他、求真、守法的品格，在即将到来的全球性金融灾难之时，让新中国联邦事业成为人类的希望。
+
+信息链接：
+[郭先生盖特：9月28号：七哥在开会前．紧急给战友们录个视频，全世界的人民的生活方式和所有的全球的供应链就有巨大的改变。我们该如何应对，共产党内部正在酝酿的腥风血雨．是先抓曾庆红．王岐山，孟建柱，还是全部抓捕呢？](https://gettr.com/post/pchtzk1ea1)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

@@ -2,39 +2,35 @@
 ---
 
 
-## 加拿大政府对华为5G设备问题继续犹豫不决
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562654/)
+## 有声|台湾与印度大学签约再增三处教育中心
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562733/)
 
-栏目记者/责任编辑：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-427.png)
-9月28日，获得连任的加拿大总理特鲁多在选举后首次举行的记者会上表示，越来越多的加拿大通信公司，开始从他们的网络中移除华为设备，但新政府成立之前不可能做出决定。政府需要在未来的几周内，进一步权衡考虑。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-436.png)
-作为五眼联盟成员，加拿大以等待情报机构报告为由，对华为禁令已经研究了三年，封锁措施没有公开，或与孟晚舟及中共“人质外交”有关。
+配音：纽约香草山美食部 – 玫瑰园
 
-去年6月以来，爱立信和诺基亚，成为加拿大多家大型无线供应商的5G建设合作伙伴首选。虽然华为无缘爱立信、诺基亚的5G建设项目，但在其4G设备中仍占有相当大的比例。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-(本文仅代表作者观点)
 
-补充链接：
 
-[https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners](https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners)
+台湾驻印度代表处于24日与印度阿育王大学（Ashoka University）签署合作备忘录，设立台湾教育中心。  26、27日再与昌迪加尔大学（Chandigarh University）及印度理工学院罗巴尔分校（IIT-Ropar）签署成立台湾教育中心的合作备忘录。 使在印度的台湾教育中心增加到21所。
 
-[https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran](https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran)
+在印度的台湾教育中心，主要负责媒介台印双方的学术交流活动及研究，以及在印度推广中文学习课程、程度认证、及各种留学服务。随着中共影响力的逐步下降，各国都在逐渐转向与台湾合作，改由台湾提供中文教学师资及教材。 台湾保留了真正华语文化的精髓，也同样实施民主法治的体制。 经由台湾教育中心来推广中文，促进与世界的交流，是当下最好的选择 。与此同时，台湾的存在也是”中国人不等于共产党” 的最佳证明和诠释！
 
-[https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g](https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g)
+[文字版原文：台湾与印度大学签约再增三处教育中心](https://gnews.org/zh-hans/1560404/)
 
-参考链接：
+音频处理：喜山必胜Maverick
 
-[https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html](https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html)
+*发稿：*Yuki jiang
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
-
-终审: 暗黑
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

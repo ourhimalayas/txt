@@ -15,131 +15,131 @@
 
 ---
 
-### [9/28/2021七哥盖特：新中国联邦人不追逐经济或政治利益](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [华为会在世界引发如印尼大屠杀的排华事件](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|法官解除接种禁令 纽约市教职工处境艰难](/content/gnews/2/README.md)
+### [有声|以色列数千人抗议疫苗护照新规定——接种加强型疫苗](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [恒大向沈阳国企出售盛京银行部分股权脱困](/content/gnews/3/README.md)
+### [有声|“一切的问题不仅是习近平,而是共产主义!”](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [郭文贵先生提到的奥巴马俱乐部与女性高官的故事](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9/28/2021七哥盖特：新中国联邦人不追逐经济或政治利益](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|台湾与印度大学签约再增三处教育中心](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|法官解除接种禁令 纽约市教职工处境艰难](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [恒大向沈阳国企出售盛京银行部分股权脱困](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [疫苗接种是人类有史以来面临的最大威胁](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [媒体审查深化 美国记者的领英页面遭中国“下架”](/content/gnews/5/README.md)
+### [媒体审查深化 美国记者的领英页面遭中国“下架”](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [加拿大政府对华为5G设备问题继续犹豫不决](/content/gnews/6/README.md)
+### [加拿大政府对华为5G设备问题继续犹豫不决](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [中共国房地产业深陷危机，融创否认经营陷入困境](/content/gnews/7/README.md)
+### [中共国房地产业深陷危机，融创否认经营陷入困境](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥一周聊：春江水暖鸭先知，为什么摩根抛售美国核心资产？](/content/gnews/8/README.md)
+### [七哥一周聊：春江水暖鸭先知，为什么摩根抛售美国核心资产？](/content/gnews/12/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [许家印的牌友刘銮雄开始抛售恒大股票](/content/gnews/9/README.md)
+### [许家印的牌友刘銮雄开始抛售恒大股票](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [马克米利将军继续为与中共军方高层通话自辩](/content/gnews/10/README.md)
+### [马克米利将军继续为与中共军方高层通话自辩](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [纳瓦罗新书《在川普时代》：选举公正，让我们把它赢回来](/content/gnews/11/README.md)
+### [纳瓦罗新书《在川普时代》：选举公正，让我们把它赢回来](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国商务部长指责中共未遵守协议并阻止购买波音客机](/content/gnews/12/README.md)
+### [美国商务部长指责中共未遵守协议并阻止购买波音客机](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：英国政府试图绕过议会实施疫苗护照](/content/gnews/13/README.md)
+### [秘翻在线：英国政府试图绕过议会实施疫苗护照](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [哈佛接种率超95%，疫情却大规模爆发被迫重启线上课程](/content/gnews/14/README.md)
+### [哈佛接种率超95%，疫情却大规模爆发被迫重启线上课程](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [继承蓬佩奥政治遗产，拜登政府持续关注维族人处境](/content/gnews/15/README.md)
+### [继承蓬佩奥政治遗产，拜登政府持续关注维族人处境](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [岸田文雄当选自民党新总裁，或将成为日本第100任首相!](/content/gnews/16/README.md)
+### [岸田文雄当选自民党新总裁，或将成为日本第100任首相!](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [歌曲《我的选择》：澳大利亚人拒绝注射中共疫苗的决心](/content/gnews/17/README.md)
+### [郭先生：美国经济崩溃将会导致中共灭亡](/content/gnews/21/README.md)
+ ` MG 澳喜农场多语组`
+
+### [歌曲《我的选择》：澳大利亚人拒绝注射中共疫苗的决心](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西方邪恶资本仍不忘在中共灭亡前与其勾兑](/content/gnews/18/README.md)
+### [西方邪恶资本仍不忘在中共灭亡前与其勾兑](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [河南又要死多少人？](/content/gnews/19/README.md)
+### [河南又要死多少人？](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [夏秋交替流感季 感染校职员工均为新冠疫苗完全接种者](/content/gnews/20/README.md)
+### [夏秋交替流感季 感染校职员工均为新冠疫苗完全接种者](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [不顾廉耻, 中共发布《全面小康白皮书》](/content/gnews/21/README.md)
+### [不顾廉耻, 中共发布《全面小康白皮书》](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [强生疫苗内部人士称儿童不应该接受新冠疫苗](/content/gnews/22/README.md)
+### [强生疫苗内部人士称儿童不应该接受新冠疫苗](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [2021年9月28日 文贵先生盖特 19](/content/gnews/23/README.md)
+### [2021年9月28日 文贵先生盖特 19](/content/gnews/28/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [澳大利亚正在成为一个世界上最大的监狱](/content/gnews/24/README.md)
+### [澳大利亚正在成为一个世界上最大的监狱](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年9月28日 文贵先生盖特 18](/content/gnews/25/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [热点新闻速递](/content/gnews/26/README.md)
+### [热点新闻速递](/content/gnews/30/README.md)
  ` 澳喜农场`
 
-### [拜登面临国会投票的艰巨关键一周](/content/gnews/27/README.md)
+### [拜登面临国会投票的艰巨关键一周](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [20大前，习近平要对王岐山的老巢金融领域下手了](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年9月28日 文贵先生盖特 17](/content/gnews/29/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [4200名医生和科学家签署，反对政府干预早期治疗COVID-19声明](/content/gnews/30/README.md)
+### [4200名医生和科学家签署，反对政府干预早期治疗COVID-19声明](/content/gnews/32/README.md)
  ` G-NEWS TAIWAN`
 
-### [俄罗斯天然气供应一夜之间减少过半 导致欧洲天然气价格暴涨](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [09/29/2021 财经快讯：黑石集团以56.5亿美元的价格出售 The Cosmopolitan 度假村和赌场；油价三年来首次突破80美元](/content/gnews/32/README.md)
+### [09/29/2021 财经快讯：黑石集团以56.5亿美元的价格出售 The Cosmopolitan 度假村和赌场；油价三年来首次突破80美元](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [2021/09/29 墙内世界](/content/gnews/33/README.md)
+### [2021/09/29 墙内世界](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国电力短缺对经济的影响](/content/gnews/34/README.md)
+### [中共国电力短缺对经济的影响](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
 
-### [77年前共匪借下的大洋金条和粮食如今滚到三万亿能还吗](/content/gnews/35/README.md)
+### [77年前共匪借下的大洋金条和粮食如今滚到三万亿能还吗](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英舰在台海](/content/gnews/36/README.md)
+### [英舰在台海](/content/gnews/37/README.md)
  ` Charlie`
 
-### [黑冬死亡开始：大规模疫苗死亡伴随人为的饥饿和能源危机](/content/gnews/37/README.md)
+### [黑冬死亡开始：大规模疫苗死亡伴随人为的饥饿和能源危机](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [外劳短缺，英国企业加薪30%](/content/gnews/38/README.md)
+### [外劳短缺，英国企业加薪30%](/content/gnews/39/README.md)
  ` Charlie`
 
-### [病毒共存的另一面](/content/gnews/39/README.md)
+### [病毒共存的另一面](/content/gnews/40/README.md)
  ` Charlie`
 
-### [金正恩的新型高超音速导弹](/content/gnews/40/README.md)
+### [金正恩的新型高超音速导弹](/content/gnews/41/README.md)
  ` Charlie`
 
-### [币圈新闻动态：最新研究报告，中欧、北欧和西欧已成为世界最活跃的加密货币地区](/content/gnews/41/README.md)
+### [币圈新闻动态：最新研究报告，中欧、北欧和西欧已成为世界最活跃的加密货币地区](/content/gnews/42/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [中共限电一刀切引发多地事故，伤人夺命](/content/gnews/42/README.md)
- ` 澳喜农场`
 
 ### [每日快报：共和党人要求拜登不要阻挠对新冠病毒起源的调查](/content/gnews/43/README.md)
  ` 喜马拉雅-华盛顿DC农场`
