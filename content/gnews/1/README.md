@@ -2,22 +2,15 @@
 ---
 
 
-## 樱花灭共诗——甲子轮回（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1563449/)
+## 【 #G时新闻 】 英国医院80%的COVID死亡病例都是接种疫苗的病人
+` 枫叶农场 G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1563482/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-鼠牛虎兔终成乱，甲子轮回运不差。
+播报员：文广 制做： 北美小哥
 
-核弹腾云人饿死，卫星落地电拉闸。
+英国医院的数据显示，与去年同期相比，现在的 covid-19死亡人数增加了3,000%，而且死亡人数更多的并不是“未接种疫苗。
 
-乡民入社食堂闭，煤炭拒关烛火花。
+原文链接：[秘翻在线-英国医院80%的COVID死亡病例都是接种疫苗的病人](https://gnews.org/zh-hans/1563160/)
 
-所幸万人空巷景，在逃公主捆娘家。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-100.jpg)
-(本文只代表作者观点，与GNews网站无关)
+盖特链接：[【 #G时新闻 】](https://gettr.com/post/pcits29a6f)
 
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+编辑/ 上传 Kent

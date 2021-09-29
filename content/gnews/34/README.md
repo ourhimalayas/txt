@@ -2,9 +2,27 @@
 ---
 
 
-## 金灿荣：解决台湾問題, 至少十大收益
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1562988/)
+## 维加诺大主教称强制接种新冠疫苗为反人类罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562993/)
 
-09/23/2021 金灿荣：解决台湾问题至少有十个好处，包括1）改善地缘状况，2）翻篇中国“百年耻辱”，3）奠定习近平新时代中国特色社会主义内涵，4）解放军地位再上新台阶，5）将台积电国有化，6）提高政治稳定性，7）促进台湾社会稳定，8）促进沿海经济，9）消除外交弱点和 10) 树立中国新的国际威望。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-22.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-16.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.09.29早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/61545bff42a8af3151a74752](https://gtv.org/broadcast/watch/61545bff42a8af3151a74752)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
