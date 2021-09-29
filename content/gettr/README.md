@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/29/2021 6:24 PM (UTC)`
+
+9月29号：这是轮回报应，还是巧合？？？【真係邪，今日彥霖妹妹向黑警索命，死八婆女警！】
+![img](https://media.gettr.com/group6/getter/2021/09/29/18/24/39cffe0d-b33d-c368-21c9-7460fda3915e/432eae69a8f9371617d9ae17d2a6b716.jpg)
+
+---
+
 `@miles 9/29/2021 8:17 AM (UTC)`
 
 CCP’s mouthpiece Jin Canrong again released wild words to create public opinion for the unification of Taiwan by force： There are at least ten benefits in solving the Taiwan issue<br/><br/>中共喉舌金灿荣再放狂言，为武统台湾制造舆论：解决台湾問題, 至少十大收益<br/>
@@ -297,13 +304,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 🌹🌹🌹🌹🌹👉🌹
 > `@zhongren 9/26/2021 11:12 PM (UTC)`<br/>#gfashion <br/>文贵先生说让大家每天健身，真的是非常有必要啊！👍👍<br/>为了穿漂亮的Gfashion，减肥健身！❤️展油们，今天你健身了吗？<br/>真的越来越佩服文贵先生啦！<br/><br/>#himalayanz #himalaya 
 ![img](https://media.gettr.com/group31/getter/2021/09/26/23/10/5687b73d-543e-59c1-30f5-1fbe62b56db8/70c569f13bacaaf58ce7b637396d5a5f.jpg)
-
----
-
-`@miles 9/27/2021 3:00 AM (UTC)`
-
-1026：这是咋回事呀……
-![img](https://media.gettr.com/group24/getter/2021/09/27/03/00/19f87886-320a-b05e-410a-8a057c22883c/906a16e39dc3ffe9227eb84c768762bf.jpg)
 
 ---
 
