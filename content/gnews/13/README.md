@@ -2,42 +2,49 @@
 ---
 
 
-## 我的身体我做主，墨尔本教师周五将举行和平抗议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561361/)
+## 美启动拆除华为中兴等中国通信设备计划
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1561381/)
 
-#### **编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-43.png)
-图片来源：Herald Sun
+作者：纽约香草山媒体部- CloudSky
 
-Fullscreen
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-9月29日，墨尔本教师已经计划在本周五就维多利亚州政府的疫苗强制接种政策举行和平抗议。一封寄给教育部秘书珍妮·艾塔（Jenny Atta）的投诉信说，这项（强制接种）任务”显然不支持所有学校工作人员，因为一些工作人员将明显处于不利地位”。
 
-虽然教育部门的大多数人已经接种了疫苗，但仍有一小部分人没有选择接种新冠疫苗，并声称强制接种是“非法的”，“应该是一种可选择”。
 
-一位不愿透露姓名的女士透露，她已经”完全打过疫苗”，但反对政府的指令。她告诉媒体：”（接种疫苗）这应该是一种选择，我不同意长期服务的教师将因此而失去工作，这是不对的。“
 
-据报道，本周五维州一些教育工作者将提前几小时在加密信息应用Telegram上被告知集会的集合点。
 
-一位教育部发言人告诉媒体，“绝大多数人”正在接种疫苗，并强调“抗议对病毒不起作用”。教育部的一项调查发现，37,000名雇员中的98%已经接种了一剂COVID-19疫苗。
+自华为首席财务官孟晚舟与美国政府地方检察官签署了延期起诉协议，被政府专机接回深圳后，中共国内一片欢腾，似乎CCP取得了外交上的极大胜利，为华为及孟女士洗净了不白之冤。然而，激动的情绪还没平息，打脸的消息就传来了。就在今天9月27日， 美联邦通信委员会（FCC）发布了从电信网络中拆除华为、中兴等中国通信设备的公告。消息如下：
 
-副州长兼教育部长詹姆士·梅里诺（James Merlino）上周宣布，学校员工需要在11月底前接种疫苗，然后才能回到面授课程。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1084-1.jpg)2021年2月23日，在中国上海举行的移动世界大会上的华为标志（REUTERS/Aly Song）
 
-他说：“我对所有教师和所有工作人员的呼吁是，进行预约并接种疫苗。”
+[华盛顿（路透社）](https://www.reuters.com/business/media-telecom/us-open-program-replace-huawei-equipment-us-networks-2021-09-27/)-美国联邦通信委员会（FCC）周一表示，将启动一项19亿美元的计划，以补偿大部分美国农村电信运营商拆除华为和中兴制造的网络设备。因为这两家公司被视为威胁美国的国家安全。
 
-“12岁以下的儿童无法获得疫苗，所以我们必须保护我们的孩子在回家后不会感染病毒和传播病毒。”
+该计划在今年7月最终敲定，将于10月29日开放申请，截止于2022年1月14日。去年，FCC声明将华为和中兴视为通信网络的国家安全威胁从而禁止美国公司动用83亿美元的政府基金从这两家公司购买设备。FCC在12月通过了规定，要求拥有中兴或华为设备的运营商“拆卸并更换”这些设备。
 
-然而，今天维多利亚州公布的新增病例950例，再一次创出新高。
+对于农村运输公司来说，这是一个很大的问题，他们面临着高昂的成本，很难找到工人来拆卸和更换设备。FCC的最终订单将符合报销条件的公司从拥有不多于200万客户的公司扩大到不多于1000万客户的公司。FCC在2020年9月估算，从网络上拆除和更换华为和中兴通讯设备将花费18.37亿美元。
 
-（本文仅代表作者个人观点，与Gnews平台无关）
+6月，FCC投票通过了一项计划，禁止华为和中兴等被视为国家安全威胁的中国公司向美国电信网络提供设备。FCC还会撤销之前发给中国公司的设备授权。3月，FCC根据2019年旨在保护美国通信网络的法律，认定五家中国公司对国家安全构成威胁。这五家公司除包括之前指定的华为和中兴通讯，还有海能达通信有限公司、杭州海康威视数字码科技有限公司和浙江大华科技有限公司。2020年8月，美国政府禁止联邦机构从五家中国公司中的任何一家购买商品或服务。
 
-新闻链接：[Melbourne lockdown: Victoria teachers plan protests against COVID-19 vaccine mandate | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/victoria-teachers-plan-protests-against-coronavirus-vaccine-mandate-on-friday/news-story/621b830ff43013ff3f094c7d642075be)
+以上的这条消息说明，在孟晚舟事件中输的最惨的正是华为自己。因为美国起诉孟晚舟的是串谋实施欺诈和串谋实施电汇欺诈、银行欺诈和电汇欺诈罪， 而梦签字承认她在实施一项欺诈全球金融机构的计划中扮演了主要角色，并说明这个签字是在没有任何胁迫情况下进行的。 这实际上是对华为的犯罪事实做了法律上的证明，使得美国在采取任何处罚时都具有法律依据，华为无力反击。这无疑给了CCP一个重创，也正是我们爆料革命希望的结果。
 
-编辑/发布：文泓
+（本文仅代表作者观点）
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

@@ -2,27 +2,33 @@
 ---
 
 
-## 美国各地民众抗议强制接种疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1561538/)
+## 视频| 真相工程 &#8211; 暗访强生科学家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1561552/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+制作：香草山视频部
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/text-SC-2.png)
-文章仅代表作者本人观点，与Gnews无关
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-视频参看： 2021.09.28晚GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/6153b2a642a8af3151a7144b](https://gtv.org/broadcast/watch/6153b2a642a8af3151a7144b)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
