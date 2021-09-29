@@ -2,37 +2,17 @@
 ---
 
 
-## 朝鲜向日本海域发射弹道导弹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1561559/)
+## 2021年9月15日郭文贵先生做健腹轮盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1561652/)
 
-栏目记者/责任编辑：文真
+盖特连接：https://gettr.com/post/pb2uxr9e1b
 
+9月15号：尊敬的战友们好……你们健身了吗？传播C C P病毒C C P疫苗灾难的解药的真相了吗？
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+欸！战友们，9月15号啦！今天我做了第四组了，一百多啦！做六组一共，兄弟姐妹们，别忘了健身！
 
+编辑整理及发布：黎明之前
 
-
-9月28日上午，韩国军方检测到一枚从朝鲜长江省发射的导弹。该导弹飞越朝鲜东部海岸进入日本海，在日本的专属经济区外降落。这是过去一个月里，朝鲜进行的第三次被禁导弹的挑衅性试验。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture4-6.jpg)
-朝鲜驻联合国大使金颂，在纽约联合国大会上发言时坚称，无论联合国安理会针对朝鲜导弹计划的决议如何规定，朝鲜都有权发展更好的武器来对抗美国和韩国的 “敌对政策”。
-
-韩国国防部发言人周二表示，迄今为止，朝鲜对连接两国军事热线的电话 “毫无反应”。日本首相菅义伟星期二说，日本将 “加强警惕” 以应对朝鲜的武力挑衅行为。美国印度洋-太平洋司令部的一份声明批评了 “朝鲜非法武器计划的不稳定影响”，并重申美国对保卫韩国和日本的 “铁血 “承诺。
-
-（本文仅代表作者观点）
-
-参考链接：[https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/](https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)、[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

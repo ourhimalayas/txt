@@ -2,42 +2,41 @@
 ---
 
 
-## 孟晚舟获释抵华，华裔兄妹被扣三年后旋即获准返美
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1561557/)
+## 澳大利亚警察局长拒绝执行疫苗护照规定
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561579/)
 
-栏目记者/责任编辑：文一
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳大利亚.jpg)
+图片来源：aljazeera.com
 
+**【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+近日，新南威尔士州警察局长拒绝执行该州的疫苗护照规定，并表示警察不会在餐馆、俱乐部或酒吧检查人们的疫苗接种情况。
 
+政府正准备通过一项授权，禁止所有未接种疫苗的人进入众多场所。该授权将持续到12月1日。这是一个重复的隔离计划，已经在许多西方国家被采用。
 
-继华为协议达成，孟晚舟获释并抵达中国几小时内，两位被中共扣押长达三年之久的加拿大人获释。
+然而，在企业是否会被迫对顾客实施该措施的问题出现后，新南威尔士州警察局长米克·富勒（Mick Fuller）明确表示，该局的警察不会根据疫苗护照规定进行巡逻。
 
-同一天，有两位美国人也被允许出境返美，他们是乔治城大学学生维克多·刘和麦肯锡公司顾问辛西娅·刘两兄妹。此前二人从未被指控有不当行为，却被中共扣押长达三年之久。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture2-15.jpg)
-据悉，这对姐弟于2018年6月前往中国看望患病的祖父。在华期间，他们同为美国公民的母亲被警方拘留，姐弟俩则被禁止出境。他们的父亲刘昌明曾是一家中国银行的行长，因参与诈骗案而被中共警方通缉。两人的出境禁令，以及其母受到的监禁，被视为迫使其父返回中国自首的一种办法。
+卫生部长布拉德·哈扎德（Brad Hazzard）断言，执行这些措施是警方的工作，但这看起来并不会发生。
 
-《纽约时报》对此评论称中共国处理孟晚舟案的强硬策略就是把外国公民当作谈判筹码。中共政府可以肆无忌惮地拿外国公民做交易。
+自上周开始，在建筑工人工会要求员工要么接受接种疫苗，要么失去工作后，墨尔本一直被不羁的抗议活动所震撼。
 
-孟晚舟获释事件充分暴露中共国“人质外交”和强盗治国的本质，当让世界人民觉醒，否则没有一个人一个地方是安全的。
+在建筑工人在工会总部外举行抗议后，政府宣布将关闭所有与工业相关的工作两周，作为惩罚。
 
-（本文仅代表作者观点）
+这导致了警察和示威者之间的进一步冲突，防暴警察和常用于反恐的特种部队向澳大利亚人作出了行动。
 
-参考链接：
-1. [孟晚舟获释抵华，华裔兄妹被扣三年后旋即获准返美](https://cn.nytimes.com/usa/20210928/china-americans-released/)
-2. [孟晚舟获释抵华，华裔兄妹被扣三年后旋即获准返美](https://cn.nytimes.com/china/20210926/meng-wanzhou-china/)
-3. [孟晚舟获释抵华，华裔兄妹被扣三年后旋即获准返美](https://www.businessinsider.com/liu-changming-china-holds-officials-family-hostage-to-force-return-2018-11)
+与此同时，新南威尔士州卫生局局长凯瑞·圣歌（ Kerry Chant ）昨天透露了真相。她说，即使人们接种疫苗，中共病毒封锁措施仍将继续存在。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
+**参考新闻：**[Australian Police Commissioner Refuses to Enforce Vaccine Passport Mandate – Summit News](https://summit.news/2021/09/28/australian-police-commissioner-refuses-to-enforce-vaccine-passport-mandate/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
