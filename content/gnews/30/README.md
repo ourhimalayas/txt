@@ -2,11 +2,18 @@
 ---
 
 
-## 日本政府宣布解除紧急事态宣言
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1561464/)
+## 雅典娜时报-第066期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561472/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09291-scaled.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+#### **《雅典娜时报》汇聚全球新闻时事**
+
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/99.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/88.png)
+***发布：小红帽***
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

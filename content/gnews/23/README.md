@@ -2,37 +2,31 @@
 ---
 
 
-## 朝鲜向日本海域发射弹道导弹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1561559/)
+## 澳外长关切阿桑奇案件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561565/)
 
-栏目记者/责任编辑：文真
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4392.jpg)图片来源：The Guardian
+**整理报道：**翼族
 
+据美国政府透露，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）在本月访问华盛顿特区期间，向美国国务卿布林肯提出了维基解密联合创始人朱利安·阿桑奇的案件。
 
+本周美国新闻报道称，川普政府期间的中央情报局官员曾讨论过绑架甚至暗杀阿桑奇。在这之后，支持阿桑奇的澳大利亚议员表示，澳洲政府应该要求英国立即获释这名澳大利亚公民【**注：**朱利安·阿桑奇是澳大利亚籍公民】。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+阿桑奇目前仍被关押在英国伦敦的贝尔马什监狱，因为美国政府对之前法院的裁决提出上了诉，该裁决阻止了将阿桑奇引渡至美国，美国对阿桑奇的指控包括涉嫌违反《美国间谍法》，获取和发布机密文件。
 
+在回答《卫报》问题时，澳大利亚外交和贸易部的发言人称：“佩恩部长向美国和英国同行提起过阿桑奇先生的情况。最近一次是在9月15日，是向美国国务卿布林肯提出的。”
 
+这位发言人说，澳大利亚政府表达了“期望阿桑奇先生有权获得正当程序、人道和公平的待遇，获得适当的医疗和其他护理，以及接触他的法律团队”的权利。《卫报》不清楚佩恩从她与美国和英国同行的谈话中获得了哪些保证。
 
-9月28日上午，韩国军方检测到一枚从朝鲜长江省发射的导弹。该导弹飞越朝鲜东部海岸进入日本海，在日本的专属经济区外降落。这是过去一个月里，朝鲜进行的第三次被禁导弹的挑衅性试验。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture4-6.jpg)
-朝鲜驻联合国大使金颂，在纽约联合国大会上发言时坚称，无论联合国安理会针对朝鲜导弹计划的决议如何规定，朝鲜都有权发展更好的武器来对抗美国和韩国的 “敌对政策”。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-韩国国防部发言人周二表示，迄今为止，朝鲜对连接两国军事热线的电话 “毫无反应”。日本首相菅义伟星期二说，日本将 “加强警惕” 以应对朝鲜的武力挑衅行为。美国印度洋-太平洋司令部的一份声明批评了 “朝鲜非法武器计划的不稳定影响”，并重申美国对保卫韩国和日本的 “铁血 “承诺。
+**参考链接：**[Australia reveals it raised case of Julian Assange with US, amid ‘kidnap plot’ claim](https://www.theguardian.com/media/2021/sep/29/australia-reveals-it-raised-case-of-julian-assange-with-us-amid-kidnap-plot-claim)
 
-（本文仅代表作者观点）
+*编辑/发布：翼族*
 
-参考链接：[https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/](https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

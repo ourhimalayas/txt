@@ -15,110 +15,110 @@
 
 ---
 
-### [七哥一周聊：生物芯片将主导人类未来](/content/gnews/1/README.md)
+### [墙内要闻汇编](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国际要闻汇编](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国要年轻人多生娃了](/content/gnews/3/README.md)
+ ` 银河勇气之星`
+
+### [银河快讯：电信公司NTT远程工作成为常态；日本英国开始加强安全合作](/content/gnews/4/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/2/README.md)
+### [七哥一周聊：生物芯片将主导人类未来](/content/gnews/5/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/6/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [东北限电甩锅能耗“双控”，舆论引导坑蒙普通百姓](/content/gnews/3/README.md)
+### [东北限电甩锅能耗“双控”，舆论引导坑蒙普通百姓](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列面对核伊朗何去何从](/content/gnews/4/README.md)
+### [以色列面对核伊朗何去何从](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [论文造假的元京都大学教授是中共国人](/content/gnews/5/README.md)
+### [论文造假的元京都大学教授是中共国人](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [安全监管机构指控维州政府酒店检疫58项违规行为](/content/gnews/6/README.md)
+### [安全监管机构指控维州政府酒店检疫58项违规行为](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年9月13日郭文贵先生送小郑州雪茄盖特全文字版](/content/gnews/7/README.md)
+### [2021年9月13日郭文贵先生送小郑州雪茄盖特全文字版](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共病毒导致人类预期寿命出现自二战以来的最大降幅](/content/gnews/8/README.md)
+### [中共病毒导致人类预期寿命出现自二战以来的最大降幅](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共媒体炒作的CAR-T“神药”与中共病毒以及疫苗毒针有关吗？](/content/gnews/9/README.md)
+### [中共媒体炒作的CAR-T“神药”与中共病毒以及疫苗毒针有关吗？](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [强生高管对话泄露：儿童不能打疫苗](/content/gnews/10/README.md)
+### [强生高管对话泄露：儿童不能打疫苗](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月13日郭文贵先生做健腹轮盖特全文字版](/content/gnews/11/README.md)
+### [2021年9月13日郭文贵先生做健腹轮盖特全文字版](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年9月28日郭先生盖特 — 视频盖特1「9分42秒」](/content/gnews/12/README.md)
+### [2021年9月28日郭先生盖特 — 视频盖特1「9分42秒」](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（二）](/content/gnews/13/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（二）](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年9月15日郭文贵先生做健腹轮盖特全文字版](/content/gnews/14/README.md)
+### [2021年9月15日郭文贵先生做健腹轮盖特全文字版](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年9月16日郭文贵先生看亡腚缸住过的房子盖特全文字版](/content/gnews/15/README.md)
+### [2021年9月16日郭文贵先生看亡腚缸住过的房子盖特全文字版](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [《GTV新闻访谈》简讯：美国各地民众抗议强制接种疫苗](/content/gnews/16/README.md)
+### [《GTV新闻访谈》简讯：美国各地民众抗议强制接种疫苗](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：东京妇产科医师协会名誉会长谈病毒蔓延下的妇科分娩](/content/gnews/17/README.md)
+### [秘翻在线：东京妇产科医师协会名誉会长谈病毒蔓延下的妇科分娩](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G时评：牧场外的“狼”根本不存在](/content/gnews/18/README.md)
- ` GISELLE`
-
-### [澳大利亚警察局长拒绝执行疫苗护照规定](/content/gnews/19/README.md)
+### [澳大利亚警察局长拒绝执行疫苗护照规定](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年9月16日郭文贵先生今天有两场球赛盖特全文字版](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [郭文贵先生2021年9月28日盖特视频（9分42秒）全文字版](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳外长关切阿桑奇案件](/content/gnews/22/README.md)
+### [澳外长关切阿桑奇案件](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [朝鲜向日本海域发射弹道导弹](/content/gnews/23/README.md)
+### [朝鲜向日本海域发射弹道导弹](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [赞比亚前政府隐瞒巨额中共债务](/content/gnews/24/README.md)
+### [赞比亚前政府隐瞒巨额中共债务](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [孟晚舟获释抵华，华裔兄妹被扣三年后旋即获准返美](/content/gnews/25/README.md)
+### [孟晚舟获释抵华，华裔兄妹被扣三年后旋即获准返美](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [视频| 真相工程 &#8211; 暗访强生科学家](/content/gnews/26/README.md)
+### [视频| 真相工程 &#8211; 暗访强生科学家](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党](/content/gnews/27/README.md)
+### [众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党](/content/gnews/28/README.md)
  ` 美国政要直译推`
 
-### [美国司法部证实孟晚舟承认指控](/content/gnews/28/README.md)
+### [美国司法部证实孟晚舟承认指控](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第066期](/content/gnews/29/README.md)
+### [雅典娜时报-第066期](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本政府宣布解除紧急事态宣言](/content/gnews/30/README.md)
+### [日本政府宣布解除紧急事态宣言](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从印尼三十年内两次排华谈起 警惕历史重演](/content/gnews/31/README.md)
+### [从印尼三十年内两次排华谈起 警惕历史重演](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [延长缴费年限，只交15年领不了养老金？](/content/gnews/32/README.md)
+### [延长缴费年限，只交15年领不了养老金？](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年09月28日澳喜要闻（每日更新）](/content/gnews/33/README.md)
+### [2021年09月28日澳喜要闻（每日更新）](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [美启动拆除华为中兴等中国通信设备计划](/content/gnews/34/README.md)
+### [美启动拆除华为中兴等中国通信设备计划](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
-
-### [我的身体我做主，墨尔本教师周五将举行和平抗议](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [【战友观点】得青蒿素者得天下](/content/gnews/36/README.md)
  ` 温哥华扬帆农场`

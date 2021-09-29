@@ -2,32 +2,30 @@
 ---
 
 
-## 赞比亚前政府隐瞒巨额中共债务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1561558/)
+## 朝鲜向日本海域发射弹道导弹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1561559/)
 
 栏目记者/责任编辑：文真
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-423.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
 
 
 
-9月28日，约翰-霍普金斯大学中-非研究计划分析师表示，非洲国家赞比亚欠中共国66亿美元，比前总统伦古声称的数额多一倍以上。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-8.jpg)
-在新冠病毒大流行的加速下，赞比亚的债务危机在2020年11月大爆发。它成为第一个拖欠主权债务的非洲国家。中共 “一带一路” 贷款的条款，包括当借贷人违约时，允许中共控制该国资产。作为南部非洲第三大经济体和非洲第二大铜矿生产国，赞比亚是中共 “一带一路” 债务陷阱的教科书式案例。
+9月28日上午，韩国军方检测到一枚从朝鲜长江省发射的导弹。该导弹飞越朝鲜东部海岸进入日本海，在日本的专属经济区外降落。这是过去一个月里，朝鲜进行的第三次被禁导弹的挑衅性试验。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture4-6.jpg)
+朝鲜驻联合国大使金颂，在纽约联合国大会上发言时坚称，无论联合国安理会针对朝鲜导弹计划的决议如何规定，朝鲜都有权发展更好的武器来对抗美国和韩国的 “敌对政策”。
 
-中共债务陷阱影响了15个非洲国家，包括吉布提和刚果。赞比亚的例子让更多的非洲国家对他们的巨额中共债务感到担忧，因为这些贷款数额巨大，并且，以签署方承诺不披露其条款为条件。
-
-“一带一路 “贷款的不透明性，使得非洲国家的新政府很难重新谈判其前任所做的不良交易，而且，几乎不可能说服其他贷款人和投资方将资金投入被中共贷款腐蚀的经济体。
+韩国国防部发言人周二表示，迄今为止，朝鲜对连接两国军事热线的电话 “毫无反应”。日本首相菅义伟星期二说，日本将 “加强警惕” 以应对朝鲜的武力挑衅行为。美国印度洋-太平洋司令部的一份声明批评了 “朝鲜非法武器计划的不稳定影响”，并重申美国对保卫韩国和日本的 “铁血 “承诺。
 
 （本文仅代表作者观点）
 
-参考链接：[赞比亚前政府隐瞒巨额中共债务](https://www.breitbart.com/national-security/2021/09/28/analysts-say-zambia-concealed-half-of-its-6-6-billion-debt-to-china/)
+参考链接：[https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/](https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
 
-终审编辑：Q大哥
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -37,4 +35,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-423.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
