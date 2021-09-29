@@ -2,52 +2,39 @@
 ---
 
 
-## 新闻速递|法国卫生高级管理局 （HAS）建议同时接种流感疫苗和Covid-19疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1560996/)
+## 日本将中共国、俄罗斯、朝鲜列为网络空间威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1561025/)
 
-作者：Julien Vattaire
-翻译：香草山商业部 – 文锤
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-16.jpg)网络图片
+东京——日本政府周一通过了未来三年的网络安全战略草案，首次将中共国、俄罗斯和朝鲜列为网络攻击威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+该战略预计将很快得到内阁的批准，称网络空间存在着“迅速发展为危急局势的风险”，这三个国家涉嫌参与敌对的网络活动。
 
+战略草案提到，日本将“使用一切有效手段和能力并采取强硬反制措施”，包括外交回应和刑事起诉。
 
+内阁官房长官加藤胜信敦促网络安全战略总部成员“与地方政府合作，同时充分考虑获得公众的信任，并稳步实施战略中规定的措施”。
 
+他说，日本没有证实任何影响今年夏天东京奥运会和残奥会的网络攻击。
 
+战略草案称，日本将加快与四国联盟框架内的伙伴美国、澳大利亚、印度以及东南亚国家在网络领域的合作，以实现一个自由​​开放的印太地区，显然是为了对抗中共国日益增长的影响力。
 
-周一，法国卫生高级管理局 (HAS) 估计，可以同时在一只手臂上接种Covid-19 疫苗而在另一只手臂上接种流感疫苗。
+从消除经济活动风险的角度来看，该战略草案指出需要确保海底电缆等关键基础设施得到良好保护，并为IT设备制定新的安全和可靠性标准。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1072-1.png)[图片来源](https://www.rtl.fr/actu/bien-etre/la-has-recommande-la-vaccination-simultanee-contre-la-grippe-et-le-covid-19-7900078196)
+随着数字机构于9月1日启动以促进国家数字化，该草案呼吁同时推进网络安全和数字改革。
 
-在接下来的几周内，一种双疫苗接种计划将向数百万法国人推荐。老年人以及患有基础疾病易受伤害的人群将被邀请接种第三剂针对 Covid-19 的疫苗，同时也会接种一剂流感疫苗。据高级卫生局周一估计，这些注射可以在同一天完成。
+该战略将取代了2018年7月通过的现行战略，在7月编制时引发了中共国的批评，称其是对中国和俄罗斯的“毫无根据的诽谤”。
 
-法国卫生高级管理局 (HAS)在一份新闻稿中保证，“同时实现针对流感和 Covid-19 的疫苗的接种”是“可能的，可以避免另一种疫苗注射出现任何延误”。“具体来说，两次注射可以在同一天进行”，但在身体的两个不同的地方，“每只手臂一个疫苗”，独立的公共当局具体说明了这种接种方法。
+**简评：**日本已经意识到了“邪恶轴心国”在网络安全甚至信息战领域对自己国家安全的威胁。日本毕竟离这些邪恶国家的物理距离非常近，所以危机感更强，相信会有更多的国家会跟上日本的脚步。
 
-流感疫苗接种于 10 月 26 日开始
+**新闻链接：**[https://english.kyodonews.net/news/2021/09/24ce55dd144e-japan-names-china-russia-n-korea-as-threats-in-cyberspace.html](https://english.kyodonews.net/news/2021/09/24ce55dd144e-japan-names-china-russia-n-korea-as-threats-in-cyberspace.html)
 
-周一，卫生部长奥利维尔·韦兰（Olivier Véran）在坐落于里昂旁边的世卫组织全球培训中心说明了这一消息，这一建议是“好消息”。 “但我们仍然需要验证它”，他补充说到，他表示将在接下来的几天内说明这件事情。
+* * *
 
-这位部长还表示，到10 月底，药店将可以买到“1000 万剂” 流感疫苗。因此，流感疫苗接种活动将于 10 月 26 日开始。与此同时， 9月初在法国启动了所谓的[第三剂](https://www-rtl-fr.translate.goog/actu/debats-societe/vaccin-contre-le-coronavirus-quel-est-le-calendrier-pour-la-3e-dose-7900064422?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui)抗Covid-19疫苗接种加强运动 。它涉及 1800 万法国人，第三剂疫苗接种目的在于弥补几个月后疫苗有效性的下降。
-
-**原文阅读：**
-
-[La HAS recommande la vaccination simultanée contre la grippe et le Covid-19 (rtl.fr)](https://www.rtl.fr/actu/bien-etre/la-has-recommande-la-vaccination-simultanee-contre-la-grippe-et-le-covid-19-7900078196)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-校对/发稿：小鹿
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

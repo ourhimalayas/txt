@@ -2,35 +2,42 @@
 ---
 
 
-## 以色列爆发大规模抗议，反对政府提高疫苗接种目标
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1561275/)
+## 我的身体我做主，墨尔本教师周五将举行和平抗议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561361/)
 
-【**简评】自实施疫苗接种以来，以色列的接种率一直名列前茅，很多人都不理解。个人认为是以色列民众对政府非常信任，才导致了这种情况。而媒体捕捉到该国卫生部长的语音，他承认疫苗通行证主要是为了强迫持怀疑态度的人接种疫苗，而不是出于医疗原因；以及以色列即将实行的接种四针才算完全接种的政策，彻底激怒了该国民众。此外，维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益。正如郭文贵先生所说，10月1日后，疫苗政策会改变。我们也注意到，越来越多国家和民众正在觉醒。**
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-43.png)
+图片来源：Herald Sun
 
-**作者史蒂夫·沃森（Steve Watson）在 Summit News上发布。**
+Fullscreen
 
-**抗议终于在以色列爆发，因为那里的人们逐渐意识到，政府一直在改变疫苗护照的目标。**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/00001-Miles-asy99-gbcgn-1.jpg)图片来源：https://twitter.com/i/status/1441077766477262851
-现在，以色列预计将宣布，**至少需要接种四剂疫苗才能被视为“完全接种”，**之后才能参与社会活动。
+9月29日，墨尔本教师已经计划在本周五就维多利亚州政府的疫苗强制接种政策举行和平抗议。一封寄给教育部秘书珍妮·艾塔（Jenny Atta）的投诉信说，这项（强制接种）任务”显然不支持所有学校工作人员，因为一些工作人员将明显处于不利地位”。
 
-上周末，特拉维夫街头举行了反对所谓“绿色通行证”的游行:
-![](https://assets.gnews.org/wp-content/uploads/2021/09/123-3.png)图片来源：https://twitter.com/i/status/1442166905142321164
-以色列特拉维夫的大规模抗议：拒绝COVID绿色通行证限制。抗议者在特拉维夫抗议强制接种疫苗和绿色护照。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/azx.png)图片来源：https://twitter.com/i/status/1442218541801947138
-不出所料，媒体给抗议者贴上了“右翼极端分子”和反疫苗分子的标签。
+虽然教育部门的大多数人已经接种了疫苗，但仍有一小部分人没有选择接种新冠疫苗，并声称强制接种是“非法的”，“应该是一种可选择”。
 
-正如我们最近指出的那样，尽管超过 61% 的人口完全接种了疫苗并实施了疫苗护照制度；但最近以色列COVID-19感染人数的下降趋势正在逆转，而且感染率可能达到新高，对此，该国卫生部表示担忧。
+一位不愿透露姓名的女士透露，她已经”完全打过疫苗”，但反对政府的指令。她告诉媒体：”（接种疫苗）这应该是一种选择，我不同意长期服务的教师将因此而失去工作，这是不对的。“
 
-媒体捕捉到以色列卫生部长尼赞·霍洛维茨（Nitzan Horowitz）的谈话，他承认疫苗通行证主要是为了强迫持怀疑态度的人接种疫苗，而不是出于医疗原因。
+据报道，本周五维州一些教育工作者将提前几小时在加密信息应用Telegram上被告知集会的集合点。
 
-**原文连接：**[https://www.zerohedge.com/covid-19/watch-israelis-rise-against-vaxx-passports-after-being-told-more-shots-needed-be](https://www.zerohedge.com/covid-19/watch-israelis-rise-against-vaxx-passports-after-being-told-more-shots-needed-be)
+一位教育部发言人告诉媒体，“绝大多数人”正在接种疫苗，并强调“抗议对病毒不起作用”。教育部的一项调查发现，37,000名雇员中的98%已经接种了一剂COVID-19疫苗。
 
-**（本文评论仅代表个人观点）**
+副州长兼教育部长詹姆士·梅里诺（James Merlino）上周宣布，学校员工需要在11月底前接种疫苗，然后才能回到面授课程。
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+他说：“我对所有教师和所有工作人员的呼吁是，进行预约并接种疫苗。”
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“12岁以下的儿童无法获得疫苗，所以我们必须保护我们的孩子在回家后不会感染病毒和传播病毒。”
+
+然而，今天维多利亚州公布的新增病例950例，再一次创出新高。
+
+（本文仅代表作者个人观点，与Gnews平台无关）
+
+新闻链接：[Melbourne lockdown: Victoria teachers plan protests against COVID-19 vaccine mandate | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/victoria-teachers-plan-protests-against-coronavirus-vaccine-mandate-on-friday/news-story/621b830ff43013ff3f094c7d642075be)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
