@@ -2,23 +2,39 @@
 ---
 
 
-## 都是因公殉职 差别咋就那么大呢？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1562902/)
+## 维加诺大主教称，强制接种新冠疫苗是反人类罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562924/)
 
-作者：东京樱花团｜阿恩
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-440.png)
+在各国政府联合强制推行疫苗护照，激发全民反抗的当下，前教廷驻美国大使：红衣大主教维加诺（Archbishop Viganò）于9月中旬发表讲话，称新冠疫情是深层政府和深层教会，强制推行疫苗护照的虚假借口，强制要求接种实验性的疫苗，是反人类的重罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/都是因公殉职-差别咋就那么大.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-27.jpeg)
 
-香港曾经被港英政府打造成国际认可的法制之都，这里的居民嫉恶如仇，抵制罪案一呼百应，贼人在街头经常被警察和市民们穷追不舍，凶徒被英勇市民空手夺械，受伤市民被人及时救助安抚，警民互助的和谐景象曾令许多内地观客啧啧称奇赞叹不已。纪律部队成员亲和与奋不顾身的表现曾经极受香港人尊敬和喜爱，尤其是消防员和警察，每当有纪律部队的人因公殉职，香港人都如同失去了自己的孩子般同悲痛，每年都有市民自发去浩园悼念为香港牺牲的英雄们。
+大主教断言道：我们的社会和宗教正面临着一场围攻。他说，“我们正处于战争中，这场战争没有公开宣战，也没有使用传统的武器，但这场战争与其他战争并无本质区别。这里有侵略者和被侵略者，有刽子手和受害者，有不公平的审判和囚徒。在这场战争中，暴力已被粉饰成了合法的形态，而且正在侵犯公民和有信仰者的权利”。
 
-2016年6月淘大工业村迷你仓火灾焚烧了108小时，消防员在酷热的气温下身负重甲，被无脑的指挥官逼着来来回回进出火场疲惫不堪，许多市民们不忍停留在电视机前叹息，纷纷携带冷饮、热饭和冰袋奔赴现场守着每位消防员进食，有附近餐厅东主更不断送来自家套餐和饮料。因为不断有消防员受伤送院，有的生命垂危，火势也因错误的指挥而愈演愈烈，许多市民致电消防署痛斥指挥官为救货品罔顾人命，现场更有市民痛骂指挥官要他们自己进火场灭火，不要逼消防员去送死。在舆论的炮轰下，指挥官终决定在外围灭火。这场火灾导致两名消防员殉职，12位消防员受伤，香港人认为是指挥官的官僚害死了他们，演艺界也联手重新填词和演唱《真心英雄》向前线消防员致敬。
+新冠疫苗仍处于试验阶段，不能为人体提供免疫保护，而且导致多种严重副作用。在事实面前，深层政府不顾人民的反对，只为谋求自身邪恶目的，并非服务于人民。
 
-本月25日，水警女高级督察林婉仪在反走私行动中堕海失踪，27日巡回遗体。这本是令人惋惜的事故，正当港人孕育思绪之际，党媒铺天盖地的重复报道令人大倒胃口，港府官员出镜誓要缉拿凶手报仇雪恨，建制议员则窥探民间反应，麦当劳文宣不幸躺枪，被人“举报”文宣内容冒犯殉职女警；[近日更有消防员在社交平台的评论涉嫌“讽刺死者”被举报而停职调查](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/682715/%E6%B0%B4%E8%AD%A6%E6%AE%89%E8%81%B7-%E6%B6%88%E6%81%AF-2%E6%B6%88%E9%98%B2%E5%93%A1%E6%B6%89%E7%B6%B2%E7%99%BC-%E5%98%B2%E8%AB%B7-%E8%A8%80%E8%AB%96%E9%81%AD%E6%8A%95%E8%A8%B4-%E6%AD%A3%E5%81%9C%E8%81%B7%E5%80%99%E6%9F%A5)。
+教会当局的权利阶层，丝毫不谴责权力滥用者，而且还支持这场全球范围的大屠杀计划，反而诋毁选择不接种实验性基因血清制剂的人们。他继续强调，这些基因疫苗在生产测试过程中使用了堕胎婴儿组织，每个天主教徒都有充分的道德理由拒绝接种。
 
-他们本想利用殉职女警营造社会对警队的重新认可和尊重，不想中共的走狗们劲使得太猛，又一次在港人面前演砸了。可悲的是死者，生时舍命服务中共，死了也要成为中共的工具。中共的走狗们始终不明白同是因公殉职，港人对待两件事的死者的态度却是天壤之别，殊不知隶属于一个邪恶凶残的政权，如何能期盼得到人民的爱戴。
+维加诺大主教表示，教皇方济各，利用宗教影响力，通过道德绑架，推进疫苗接种计划，是大重启计划不可或缺的一部分。北美和南美的红衣主教和主教，包括美国主教团主席、洛杉矶教区大主教 戈麦斯（Jose Gomez），都是帮凶，都要为这场反人类罪行负责。
 
-（本文只代表个人观点，与Gnews网站无关）
+大主教总结说：只是一场划时代的战争，是末世的前奏，也是《得撒尼洛人后书》第二节经卷中所说的大叛教。
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 /老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/樱花团图标-1.jpg)
+(本文仅代表作者观点）
+
+参考链接：[Abp. Viganò: COVID-19 vaccine, passport drive ‘an epochal war’ and ‘prelude to the end times’](https://www.lifesitenews.com/news/abp-vigano-covid-19-vaccine-and-passport-drive-an-epochal-war-and-prelude-to-the-end-times/)
+[LA Archbishop Urges Catholics To Get Vaccinated: ‘It’s Our Community That’s At Stake Here’](https://laist.com/news/health/la-archbishop-urges-catholics-to-get-vaccinated-its-our-community-thats-at-stake-here)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

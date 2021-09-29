@@ -2,32 +2,31 @@
 ---
 
 
-## 美国政府数据显示，近5万人接种新冠疫苗后14天内死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562889/)
+## 火币会在2021年底前清理现有中国大陆客户
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1562913/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-439.png)
-上周六，俄亥俄州的医疗自由权律师 托马斯·伦茨 宣布，根据爆料人提供的 医疗护理救助服务中心CMS相关数据显示，仅在医疗保险患者中，接种新冠疫苗后于14天内死亡的病例就高达48,465例。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/093001-1.jpg)
+北京——中共国加密货币交易所火币周日表示，它已在周五（9月24日）停止接受新的中国大陆客户，并将在年底前终止与大陆客户的合同，以遵守当地法规。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-30.jpeg)
+中共国监管机构上周五加大了打击力度，禁止加密货币交易和挖矿行为，并澄清海外交易所被禁止通过互联网向内地投资者提供服务。
 
-CMS数据库涵盖超过半亿医疗保险受益人的数据，是美国最大的、可用于研究新冠病毒的数据库。根据疾控中心官方定义，一个人完成疫苗注射14天后，才会被认定为”接种了疫苗”。言下之意，如果死亡发生在14天以内，政府医疗机构不会承认其与疫苗接种的相关性。托马斯还向公众展示了CMS服务器的原始数据截图，并强调这仅是来自不超过20%美国人口的数据。
+火币在一份声明中表示，在保证资产安全的前提下，将有序退出现有中国大陆客户。
 
-此前，罗斯博士团队发布的，新冠疫苗至少造成15万美国人死亡的研究，引起广泛关注。近几日，真相工程相继发布来自联邦医疗机构的员工、强生药厂的科学家揭露新冠疫苗真相的视频，引发媒体风暴和民众的热议。许多有影响力的政客、歌手、NBA明星等也纷纷站出来反对疫苗。随着事件的发酵，更多疫苗受害者的声音也正在被关注。
+**简评：**
 
-(本文仅代表作者观点）
+爆料革命和新中国联邦的战友们都知道，CCP非常惧怕即将上线的喜交易所和喜币，这次对于火币等交易所的针对性打击，充分证明了爆料革命招招都击中了中共的要害。
 
-参考链接：[Nearly 50k Medicare patients died soon after getting COVID shot: whistleblower](https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/)
+[原文链接](https://www.theepochtimes.com/cryptocurrency-exchange-huobi-to-clean-up-existing-mainland-clients-by-end-2021_4018582.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+***编辑：【英国伦敦喜庄园编辑部】***
 
-终审：暗黑
-校对/发稿：谐趣园
+*翻译: Johnston2021 | 简评/校对: clau*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

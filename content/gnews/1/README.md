@@ -2,19 +2,25 @@
 ---
 
 
-## 秘翻在线：瑞士歌手由于晕倒音乐会取消
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1563067/)
+## 纽约数千名医院工作人员可能因未接种新冠疫苗被解雇
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1563151/)
 
-翻译：Nstar
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-19.jpg)网络图片
+纽约州命令医护人员接种新冠疫苗的规定于周一午夜生效。官员们说，该州16%的医院工作人员，即大约83,000人，没有完全接种疫苗。大约8%的人没有接种一剂疫苗，他们将面临被解雇的风险。
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-29-232257.jpg)
-据《瑞士卢塞恩报》 报道,  周日晚上，巴赫合唱团卢塞恩(Bach Ensemble Luzern)的”纪念Trinitatis的大合唱”( Cantatas after Trinitatis)节目因医疗紧急情况而被取消。
+在纽约市，教师的疫苗接种命令预计将在本周晚些时候生效。教师工会说，其97%的成员都接种了疫苗，市政府说大约有7000名教育工作者在周末接种了疫苗。
 
-周日晚上，在巴赫合唱团卢塞恩(Luzern)节目的刚开始的时候，一位女歌手在舞台上晕倒了。音乐会立即中断， 这位歌手得到了合唱团的另外一名成员的急救，几分钟后，救护车和其他医疗救助也迅速到达.。最后，这位女歌手被送往医院，情况稳定。经过短暂的协商，决定音乐会不再继续，并恳求观众回家。
+**简介：**纽约市的政府雇员中，真正没有打疫苗的人已经很少了。政府用失去工作来胁迫剩下的人接种疫苗，他们在做最后的反抗，希望他们能守住自己及家人的健康。
 
-这位歌手当晚在医院接受了紧急手术。 合唱团周一在其网站上宣布：“周日晚上在卢塞恩巴赫合唱团的音乐会上晕倒的合唱团歌手当晚在医院接受了手术…情况稳定。”
+原文链接：[https://www.cbsnews.com/news/covid-vaccine-mandate-new-york-hospital-workers-2021-09-28/](https://www.cbsnews.com/news/covid-vaccine-mandate-new-york-hospital-workers-2021-09-28/)
 
-巴赫合唱团主席丹尼尔·韦茨坦（Daniel Wettstein）周日对本报表示：他无法多说这位歌手目前的健康状况。这位女歌手是否是(超过70%的瑞士人)接种中共病毒疫苗中的一员，尚不得而知。
+* * *
 
-**信息来源: https://www.luzernerzeitung.ch/zentralschweiz/luzern/sangerin-kollabiert-konzert-wird-abgebrochen-ld.2193796**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

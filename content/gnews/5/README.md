@@ -2,27 +2,19 @@
 ---
 
 
-## 维加诺大主教称强制接种新冠疫苗为反人类罪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562993/)
+## 秘翻在线：瑞士歌手由于晕倒音乐会取消
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1563067/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-22.png)
+翻译：Nstar
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-16.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-09-29-232257.jpg)
+据《瑞士卢塞恩报》 报道,  周日晚上，巴赫合唱团卢塞恩(Bach Ensemble Luzern)的”纪念Trinitatis的大合唱”( Cantatas after Trinitatis)节目因医疗紧急情况而被取消。
 
-视频参看：2021.09.29早GTV新闻访谈
+周日晚上，在巴赫合唱团卢塞恩(Luzern)节目的刚开始的时候，一位女歌手在舞台上晕倒了。音乐会立即中断， 这位歌手得到了合唱团的另外一名成员的急救，几分钟后，救护车和其他医疗救助也迅速到达.。最后，这位女歌手被送往医院，情况稳定。经过短暂的协商，决定音乐会不再继续，并恳求观众回家。
 
-[https://gtv.org/broadcast/watch/61545bff42a8af3151a74752](https://gtv.org/broadcast/watch/61545bff42a8af3151a74752)
+这位歌手当晚在医院接受了紧急手术。 合唱团周一在其网站上宣布：“周日晚上在卢塞恩巴赫合唱团的音乐会上晕倒的合唱团歌手当晚在医院接受了手术…情况稳定。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+巴赫合唱团主席丹尼尔·韦茨坦（Daniel Wettstein）周日对本报表示：他无法多说这位歌手目前的健康状况。这位女歌手是否是(超过70%的瑞士人)接种中共病毒疫苗中的一员，尚不得而知。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**信息来源: https://www.luzernerzeitung.ch/zentralschweiz/luzern/sangerin-kollabiert-konzert-wird-abgebrochen-ld.2193796**
