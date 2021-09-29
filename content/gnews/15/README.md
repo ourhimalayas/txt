@@ -2,19 +2,15 @@
 ---
 
 
-## 病毒共存的另一面
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1562268/)
+## 2021年9月28日 文贵先生盖特 10
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562321/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09292-1.jpg)
-在对 SarsCoV2 病毒对生物体的影响进行了数月的研究后，那不勒斯 Cardarelli 的 Utic 心脏病学复杂结构主任 Ciro Mauro说到：“专家定义的病毒共存现象使这种疾病的后果可能成为未来几个月面临的真正问题，而我们正在登记关于得了该病毒后扩张性心脏病的真正紧急情况，在心脏病学领域，冠状（中共）病毒将是我们在未来几个月和几年内必须应对的疾病”。
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-根据专家的说法，现在每个人都认为 冠状（中共）病毒只会攻击肺部，但事实并非如此。病毒以系统性的方式影响我们的身体，我们发现大量心肌炎并非偶然，甚至是严重的。从长远来看，尤其是如果不进行及时治疗，可能是致命的。
+9/28/2012 Miles Guo’s GETTR: The CCP’s economy is bound to collapse regardless who will take power after the 20th Party Congress; Once the real estate industry goes bankrupt, its relevant industries and financial sector will also be over, and the CCP won’t purchase iron ore from Australia anymore; The greedy Western capitalists only wants to profit from the Huawei incident; We must hold accountable and punish the Suharto family for their crimes against the ethnic Chinese according to the law, and we must avenge!
 
-每个人都同意的观点之一是：慢性缺血性心脏病、心房颤动、高血压心脏病、急性冠状动脉综合征，现在需要有条不紊地去解决。
+9/28/2021 文贵盖特：20大后不论谁上台，中共经济都必将崩溃；房地产一旦破产，其相关产业和金融都要完蛋，中共不再会买澳洲的铁矿了；贪婪的西方资本家一心想利用华为事件牟利；必须依法追究并严惩苏哈托家族针对华人所犯下的罪行，此仇必报！
 
-免责申明：本文只代表译者观点，与Gnews无关
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pchtsi57d8)
 
-原文链接：[https://www.today.it/attualita/long-covid-malattia-futuro.html](https://www.today.it/attualita/long-covid-malattia-futuro.html)
-
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+**喜联盟Gnews编辑部**

@@ -2,36 +2,13 @@
 ---
 
 
-## 从孟晚舟回国看美国政治
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1562249/)
+## 2021年9月28日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562297/)
 
-作者：晨兮
-编辑：翼族
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9.29-1.jpg)
-图片来源：RFI
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-孟晚舟回国是代表美国国家利益一方的美国政治和外交的失败。任何国家的政府官员都不是完全为了国家利益，其中就有一些坐在国家职位上谋取个人利益者，这点在美国尤其是华尔街特别明显。
+How on the earth that the companies are require their workers to get vaccinated? And if workers refuse to do so, their job will be jeopardized, in the meanwhile they all knew this covid vaccine is very risky and caused death on many people, but they still do so?! STOP what you are doing, either you’re completely fool or your hands will be full of blood. For people who are still debating whether they should put food on the table for their families or choose what’s right for themselves. I want to say, your live matters! Don’t you know that the drug companies take no responsibility for their products, so why should you have the obligation to take it. “Freedom is not a gift bestowed upon us by other men, but a right that belongs to us by the laws of God and nature”
 
-孟晚舟事件远的不说，从七月份舒曼和王毅天津会谈就可以看出。舒曼的天津之行是之前勾兑不成功的结果，所以才有电视画面中王毅傲慢的身体语言。随后发生塔利班15天占领阿富汗首都喀布尔，美国在军事、外交层面均遭受重创，失去南亚西亚盟友的信任和尊重，国际形象大打折扣，随后克里以环境问题为主题访华。
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pcgc9ab549)
 
-克里是克林顿政府的副总统、亲华，在华有很深的个人利益。谁都能看出克里访华，气候问题只是借口，如同小姑娘头上的花，掩饰勾兑的本质。文贵先生说过，勾兑的内容是双方领导人的利益不能受损，不能爆料对方家庭丑闻，然后是是几个重要问题的勾兑，孟晚舟事件是其中之一。
-
-早些时候，美国相关力量耗时三年时间想用法律程序将孟晚舟引渡到美国，因为孟晚舟身上有重要秘密，这也是中共拼一国之力也要将孟晚舟接回国的主要原因，但并不是每个人都会有孟晚舟的待遇。比如2015年9月9日，中国记者樊京辉在巴基斯坦西部被绑架，绑架者向中国索取赎金，未获回应，11月18日，该组织宣布已经将其处决。由此可见中共政府对海外事件、人物的的选择性，也反应出孟晚舟对中共利益的重要性。
-
-美国一步步意识到其被中共蓝金黄的程度和中共在美国内部的力量。其实这些早有所暴露，比如川普总统的决定，当时只有四个人在场，其中一位是班农先生，但是谈话内容却马上被中共掌握，并二十四小时内派杨洁篪到美国勾兑。但是美国反应迟钝得令人惊讶，在各种意外事件损失中认识中共的威胁。
-
-对于热爱美国的人来说，如果让中共在5G上赢了，会把整个美国置于死地。如果可能，中共恨不得把美国变成中国，让美国置身于社会主义铁拳下，蹂躏美国是中共梦寐以求的目标，华为充当的是先锋的角色。
-
-自由市场下的金融既有做多也有做空。按理说无论做多还是做空，应该和国家利益不相冲突，但由于华为的特殊性，它并非简单的企业，而是有军方背景，技术间谍、偷窃，和美国制裁的伊朗暗中交易等等……损害美国乃至全世界利益和安全的行为，使得投资华为赚钱的结果是损害美国乃至全世界的安全和利益。这很有趣，投资者在利益面前不管什么国家利益，自己赚钱才是王道。这点全世界都一样，人性导致。
-
-那么灭掉华为既可以赚钱，又符合美国国家利益，交易利益和国家利益吻合，再加上正义爱国者们的推动，这件事会加大2024年代表着反共力量的美国极右势力的胜算，对世界的政治格局有巨大影响。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-*发布：*文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**喜联盟Gnews编辑部**

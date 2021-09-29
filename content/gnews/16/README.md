@@ -2,21 +2,15 @@
 ---
 
 
-## 金正恩的新型高超音速导弹
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1562262/)
+## 2021年9月28日 文贵先生盖特 9
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562316/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09291-1.jpg)
-朝鲜已通过其官方媒体向世界宣布，它已成功测试了高超音速滑翔火箭。朝鲜中央通讯社解释此次发射证明所有技术规格都符合设计要求。由于朝鲜正在寻求提高其防御能力，因此具有被称之为具有“重大战略意义”。韩国总统文在寅呼吁对朝鲜最新的高超音速导弹试验进行全面分析。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-这种新型导弹被称为“战略武器”，这通常意味着它具有核能力，但暂还没有确认。据该州称，这枚名为 Hwasong-8 的导弹是由朝鲜北部茶江省东阳里国防科学院发射的，如果它们的速度超过每小时 6,000 公里，在这种情况下，它们将无法拦截。如果这一点得到证实，那将是一项重大的技术突破。
+9/28/2021 Miles Guo’s GETTR: Who will be arrested first? Zeng Qinghong, Wang Qishan, or Meng Jianzhu? The price of commodities, labor, electricity, food, healthcare, and medicine will skyrocket in the future, while non-essential goods like cars will be worthless. The beginning of the COVID vaccine disaster will be the time when you fear the most.
 
-周二的发射清楚地表明平壤不断发展的武器技术将会面临着严厉的国际制裁。专家表示：“很难评估导弹的“精确能力”，但该导弹在防御方面所面临的挑战与传统弹道导弹截然不同，这种新武器让朝鲜首次推出了火箭燃料罐，它会减少导弹发射的准备时间，并使武器在开火前准备就绪”。
+9/28/2021 文贵盖特：曾庆红、王岐山、孟建柱，谁会最先被抓？劳动力、大宗商品、电、粮、医、药的价格在未来都会暴涨，而汽车等非生活必需品将一文不值。疫苗灾难的开始才是让你最恐惧的时候！
 
-今年8月，联合国原子能机构表示，朝鲜似乎已经重启了一座可以生产用于核武器的钚的反应堆。朝鲜因其被禁止的核武器和弹道导弹计划而面临多项国际制裁，尽管如此，在上个月，它的导弹试验却成倍增加。
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pch86x2149)
 
-免责申明：本文只代表译者观点，与Gnews无关
-
-原文链接：[https://www.today.it/mondo/missile-ipersonico-corea-del-nord.html](https://www.today.it/mondo/missile-ipersonico-corea-del-nord.html)
-
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+**喜联盟Gnews编辑部**

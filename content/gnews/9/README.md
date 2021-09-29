@@ -2,15 +2,15 @@
 ---
 
 
-## 2021年9月28日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562316/)
+## 岸田文雄当选日本自民党第27任总裁 按惯例将是下一任首相
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1562355/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+韩国天池农场—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/09/929首相.jpeg)自民党新总裁 岸田文雄
+据日本雅虎新闻9月29日报道 ，日本自民党总裁选举29日在东京举行，日本前外务大臣岸田文雄以257票优势胜出，领先河野太郎87票，成功当选自民党第27任总裁。按惯例他将出任下一任首相职务。
 
-9/28/2021 Miles Guo’s GETTR: Who will be arrested first? Zeng Qinghong, Wang Qishan, or Meng Jianzhu? The price of commodities, labor, electricity, food, healthcare, and medicine will skyrocket in the future, while non-essential goods like cars will be worthless. The beginning of the COVID vaccine disaster will be the time when you fear the most.
+当天进行了两轮投票。在第一轮投票中，由于4名候选人无一超过半数，因此得票前两位的岸田文雄和行政改革担当大臣河野太郎进入第二轮投票，最终岸田文雄获257票，河野太郎170票。
 
-9/28/2021 文贵盖特：曾庆红、王岐山、孟建柱，谁会最先被抓？劳动力、大宗商品、电、粮、医、药的价格在未来都会暴涨，而汽车等非生活必需品将一文不值。疫苗灾难的开始才是让你最恐惧的时候！
+[新闻来源](https://news.yahoo.co.jp/articles/05303cae73213c89753a28fd693c0fcd5bd3a66f)
 
-[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pch86x2149)
-
-**喜联盟Gnews编辑部**
+（本文仅代表作者观点，与Gnews平台无关）
