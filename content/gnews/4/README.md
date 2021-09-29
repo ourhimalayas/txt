@@ -2,18 +2,9 @@
 ---
 
 
-## 盖特
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1562972/)
+## 刺突蛋白就是毒，疫苗会导致和中共病毒一样的疾病
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1563032/)
 
-韩国天池农场战友
+08/11/2021 瑞恩·科尔医生：刺突蛋白就是毒，疫苗会导致和中共病毒一样的疾病。
 
-推特龌龊，
-蛇鼠一窝！
-盖特盖特，
-盖掉推特！
-跟随七哥，
-斩妖除魔！
-真相传播，
-唯有盖特！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/盖特2.jpeg)
-（本文仅代表作者观点，与Gnews平台无关）
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

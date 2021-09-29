@@ -2,41 +2,17 @@
 ---
 
 
-## 有声|以色列数千人抗议疫苗护照新规定——接种加强型疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562785/)
+## 西方国家十月份后将停止强制性疫苗，羟氯喹将开放使用
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1562860/)
 
-配音：纽约香草山美食部 – 玫瑰园
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMG_0267-1-scaled.jpg)图片来源：ctmirror.org
+郭先生在9月26日的直播中说，十月一号以后，在西方一些主要国家接种疫苗会变成可选项，同时，地塞米松、羟氯喹将会开放使用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+现在到了一个关键的时刻。在班农，英雄的医生和各方面战友的努力下，真相已经逐渐浮出。我们整理的信息包括青蒿素是解药，国内战友提供的证据和信息。美国几个制药公司的老板都在这开会。我特别自信地告诉大家，这些沼泽地的老人真不知道有什么阴谋。他们也都打了疫苗了。十月一号以后，疫苗会变成可选项，同时，地塞米松，羟氯喹都会开放使用。不会超过一个月，欧洲会大面积停止所有疫苗。加拿大很快会停止强制性疫苗。美国也是很快会停止强迫打疫苗。
 
+这次会议将正在飞速坠向深渊的人类拉了回来。正是郭先生等提供的石锤铁证让这场荒诞、邪恶的疫苗大戏落下了帷幕。人类“浴火重生”的时刻即将来临。
 
+参考链接：
 
-据[门道专家](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)9月26日报道，以色列数以千计的人在特拉维夫抗议疫苗护照，该护照现在要求公民打加强针才能被视为 “完全接种”。不接种加强疫苗的人将回到原点，不再有机会参加日常活动，就像那些一开始就没有接种过疫苗的人一样。
-
-上月底，以色列卫生官员宣布，根据该国的疫苗护照制度，任何在第二次接种后6个月内没有接受第三次接种的人将不再被视为 “完全接种”。
-
-到目前为止，几乎三分之二的以色列人已经配合政府的限制，完全接种了疫苗，但现在第三针强制接种已被授权，人们正聚集在一起，集体抗议限制性的疫苗护照。
-
-自从疫苗仓促上市以来，以色列公民一直是第一批接种的人。现在他们的政府想把他们作为实验的小白鼠，来注射更加仓促开发的加强型疫苗。强行注射这些加强针证明疫苗没有提供免疫力，难怪以色列的医院85-90%的新病例都来自于已接种疫苗的个人。
-
-事实上，以色列特拉维夫大学的一个研究小组最近对80万人进行了广泛的研究，研究结果表明，接种疫苗的人感染新的病毒变种的可能性比拥有自然免疫力的人高13倍，完全接种疫苗的人 “住院的风险更大”。
-
-[文字版原文：以色列数千人抗议疫苗护照新规定——接种加强型疫苗](https://gnews.org/zh-hans/1558805/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[2021年9月26日文贵直播](https://gtv.org/video/id=6150769942a8af3151a5b28f)
