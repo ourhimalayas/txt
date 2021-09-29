@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/29/2021 7:03 PM (UTC)`
+
+以色列COVID-19 疫苗受害者证词(四）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
+![img](https://media.gettr.com/group41/getter/2021/09/29/19/03/34796001-c3de-b0ff-0041-e1fc5c3522e4/out.jpg)
+
+---
+
 `@miles 9/29/2021 6:24 PM (UTC)`
 
 9月29号：这是轮回报应，还是巧合？？？【真係邪，今日彥霖妹妹向黑警索命，死八婆女警！】
@@ -296,14 +303,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 9/26/2021 Miles Guo: Meng Wanzhou’s return to China is the beginning of her personal tragedy! Her ending must be very miserable! Huawei, as the core of the CCP’s battle with the whole world will eventually be sacrificed! This deal for Meng Wanzhou’s return to China is actually a surrender of the US to the CCP. However, this is a great help to our Whistleblowers’ Movement!<br/><br/>9/26/2021 文贵直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨。华为作为中共与世界较量的核心定会被牺牲掉。这次孟晚舟交易事件等于美国向中共投降。这对我们爆料革命是巨大的帮助。<br/>
 ![img](https://media.gettr.com/group8/getter/2021/09/27/08/13/3a8d9cc0-441e-b643-99ab-1c3843e3bc7a/out.jpg)
-
----
-
-`@miles 9/27/2021 3:16 AM (UTC)`
-
-🌹🌹🌹🌹🌹👉🌹
-> `@zhongren 9/26/2021 11:12 PM (UTC)`<br/>#gfashion <br/>文贵先生说让大家每天健身，真的是非常有必要啊！👍👍<br/>为了穿漂亮的Gfashion，减肥健身！❤️展油们，今天你健身了吗？<br/>真的越来越佩服文贵先生啦！<br/><br/>#himalayanz #himalaya 
-![img](https://media.gettr.com/group31/getter/2021/09/26/23/10/5687b73d-543e-59c1-30f5-1fbe62b56db8/70c569f13bacaaf58ce7b637396d5a5f.jpg)
 
 ---
 
