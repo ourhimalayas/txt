@@ -15,140 +15,140 @@
 
 ---
 
-### [秘翻在线：【速报】岸田文雄当选为自民党新任总裁](/content/gnews/1/README.md)
+### [从孟晚舟回国看美国政治](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [币圈新闻动态：最新研究报告，中欧、北欧和西欧已成为世界最活跃的加密货币地区](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共限电一刀切引发多地事故，伤人夺命](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [DC大中华时事：中国全面禁止虚拟货币交易](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [每日快报：共和党人要求拜登不要阻挠对新冠病毒起源的调查](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国近5万名医保患者死于接种疫苗后14天内](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声| 让我们在最黑暗的时刻里都活在人间天堂里](/content/gnews/2/README.md)
+### [奥巴马为拜登基建法案站台：愿以身被税](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：【速报】岸田文雄当选为自民党新任总裁](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [NBA球星比尔和伊萨克投下大量红色药丸](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声| 让我们在最黑暗的时刻里都活在人间天堂里](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声| 中国东北部地区的家庭遭遇停电](/content/gnews/3/README.md)
+### [有声| 中国东北部地区的家庭遭遇停电](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声| 美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](/content/gnews/4/README.md)
+### [有声| 美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [灭共就从反洗脑开始](/content/gnews/5/README.md)
+### [灭共就从反洗脑开始](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美议员质疑白宫干预孟晚舟案 要求司法部分享文件](/content/gnews/6/README.md)
+### [美议员质疑白宫干预孟晚舟案 要求司法部分享文件](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾被中共抢先申请加入CPTPP是因内部消息走漏？](/content/gnews/7/README.md)
+### [台湾被中共抢先申请加入CPTPP是因内部消息走漏？](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Fauci在Daszak主办的会议上发言](/content/gnews/8/README.md)
+### [Fauci在Daszak主办的会议上发言](/content/gnews/16/README.md)
  ` wenwu`
 
-### [[金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港](/content/gnews/9/README.md)
+### [[金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [速报：前外交大臣岸田文雄确定为下一任日本首相](/content/gnews/10/README.md)
+### [速报：前外交大臣岸田文雄确定为下一任日本首相](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9/25郭文贵盖特：真正黑暗的时刻还没有到来（粤语配音）](/content/gnews/11/README.md)
+### [9/25郭文贵盖特：真正黑暗的时刻还没有到来（粤语配音）](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/25郭文贵盖特：在疫苗和病毒灾难到来之前，战友们要关注四个重点（粤语配音）](/content/gnews/12/README.md)
+### [9/25郭文贵盖特：在疫苗和病毒灾难到来之前，战友们要关注四个重点（粤语配音）](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/24郭文贵直播：陈峰数月前已被正式逮捕（粤语配音）](/content/gnews/13/README.md)
+### [9/24郭文贵直播：陈峰数月前已被正式逮捕（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/24郭文贵直播：昨中共海陆空三军对台湾实(核)弹演习（粤语配音）](/content/gnews/14/README.md)
+### [9/24郭文贵直播：昨中共海陆空三军对台湾实(核)弹演习（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/23郭文贵直播：江派出主意肢解恒大以保其影子银行等资金池（粤语配音）](/content/gnews/15/README.md)
+### [9/23郭文贵直播：江派出主意肢解恒大以保其影子银行等资金池（粤语配音）](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/23郭文贵直播：警告海外华人，全世界正酝酿一场反华运动（粤语配音）](/content/gnews/16/README.md)
+### [9/23郭文贵直播：警告海外华人，全世界正酝酿一场反华运动（粤语配音）](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [凛冬将至，中共国的煤没了](/content/gnews/17/README.md)
+### [凛冬将至，中共国的煤没了](/content/gnews/25/README.md)
  ` 银河勇气之星`
 
-### [墙内要闻汇编](/content/gnews/18/README.md)
+### [墙内要闻汇编](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编](/content/gnews/19/README.md)
+### [国际要闻汇编](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国要年轻人多生娃了](/content/gnews/20/README.md)
+### [中共国要年轻人多生娃了](/content/gnews/28/README.md)
  ` 银河勇气之星`
 
-### [银河快讯：电信公司NTT远程工作成为常态；日本英国开始加强安全合作](/content/gnews/21/README.md)
+### [银河快讯：电信公司NTT远程工作成为常态；日本英国开始加强安全合作](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [七哥一周聊：生物芯片将主导人类未来](/content/gnews/22/README.md)
+### [七哥一周聊：生物芯片将主导人类未来](/content/gnews/30/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/23/README.md)
+### [一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/31/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [东北限电甩锅能耗“双控”，舆论引导坑蒙普通百姓](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [以色列面对核伊朗何去何从](/content/gnews/25/README.md)
+### [以色列面对核伊朗何去何从](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [论文造假的元京都大学教授是中共国人](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [安全监管机构指控维州政府酒店检疫58项违规行为](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共病毒导致人类预期寿命出现自二战以来的最大降幅](/content/gnews/28/README.md)
+### [中共媒体炒作的CAR-T“神药”与中共病毒以及疫苗毒针有关吗？](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共媒体炒作的CAR-T“神药”与中共病毒以及疫苗毒针有关吗？](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021年9月28日郭先生盖特 — 视频盖特1「9分42秒」](/content/gnews/30/README.md)
+### [2021年9月28日郭先生盖特 — 视频盖特1「9分42秒」](/content/gnews/34/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [秘翻在线：东京妇产科医师协会名誉会长谈病毒蔓延下的妇科分娩](/content/gnews/31/README.md)
+### [秘翻在线：东京妇产科医师协会名誉会长谈病毒蔓延下的妇科分娩](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚警察局长拒绝执行疫苗护照规定](/content/gnews/32/README.md)
+### [澳大利亚警察局长拒绝执行疫苗护照规定](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳外长关切阿桑奇案件](/content/gnews/33/README.md)
+### [澳外长关切阿桑奇案件](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [朝鲜向日本海域发射弹道导弹](/content/gnews/34/README.md)
+### [朝鲜向日本海域发射弹道导弹](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [视频| 真相工程 &#8211; 暗访强生科学家](/content/gnews/35/README.md)
+### [视频| 真相工程 &#8211; 暗访强生科学家](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党](/content/gnews/36/README.md)
+### [众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党](/content/gnews/40/README.md)
  ` 美国政要直译推`
 
-### [美国司法部证实孟晚舟承认指控](/content/gnews/37/README.md)
+### [美国司法部证实孟晚舟承认指控](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第066期](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本政府宣布解除紧急事态宣言](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [从印尼三十年内两次排华谈起 警惕历史重演](/content/gnews/40/README.md)
+### [从印尼三十年内两次排华谈起 警惕历史重演](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [延长缴费年限，只交15年领不了养老金？](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【战友观点】得青蒿素者得天下](/content/gnews/42/README.md)
+### [【战友观点】得青蒿素者得天下](/content/gnews/43/README.md)
  ` 温哥华扬帆农场`
 
-### [福克斯质疑拜登家族的交易为中共带来了回报](/content/gnews/43/README.md)
+### [福克斯质疑拜登家族的交易为中共带来了回报](/content/gnews/44/README.md)
  ` HimalayaRussia`
 
-### [美国参议员呼吁全面追责世界银行操纵数据](/content/gnews/44/README.md)
+### [美国参议员呼吁全面追责世界银行操纵数据](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
-
-### [佛罗里达州长宣布对脸书涉嫌干预选举进行调查](/content/gnews/45/README.md)
- ` HimalayaRussia`
 
 ### [9月26日北京的截访与27日河南信访局长李刚的被免](/content/gnews/46/README.md)
  ` 喜马拉雅日本银河系农场`

@@ -2,32 +2,39 @@
 ---
 
 
-## 凛冬将至，中共国的煤没了
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1562050/)
+## [金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1562126/)
 
-华为的长公主孟晚舟坐着政府的包机回来了，据说小粉红喜大普奔，纷纷点赞，点赞数超4亿，超过了美加人口总和。瞧这阵势，孟晚舟简直成了四亿多中国人的亲妈。可这“亲妈”没给这些子孙带来礼物呀。房贷该还得还，恒大欠的债还在欠，银行的利息也一分不少地得还。最最主要的是，这煤还是没多起来，电还得继续限停
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-12.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2021/09/5-11.png)图片来源：网络
-据统计，因缺煤而导致的大面积停电，波及的省市已经有17个了，连东北三省都限停了，还可能要停到明年三月份。。。。。。并且这限停可不是仅仅针对企业用电，居民的生活用电也属于限停范围，东北三省官员连个招呼都不打，想拉闸就拉闸，这不，就有东北网友吐槽：今早一醒来就没电了，吃不上饭，洗不了衣服，不敢上厕所。。。。。。问题停电几小时后手机就没信号了，直接失联。结尾这位网友还调侃说：2021年活出了原始人的感觉
+作者：纽约香草山金融部 – 闲聊钱币
 
-我不知道原始人是怎么活的，也不知道东北三省的电会不会真的要限停到明年的三月份，果真如此的话，那从九十月开始到明年的三四月份，东北应该是冬天这个季节，零下二三十度那是家常便饭。如果说这几天的突然不打招呼的停电，让许多人措手不及造成了许多不便的原因。那么，当停电成为常态之后，在苦寒的东北之境，不知道还有几人有调侃的心情
 
-大面积不定时的拉闸，可能导致大量的企业关停，就像江苏一样，厂家干脆直接放假。也许对于企业来说，是及时止损；但对于员工来说，却是直接断粮。并且我们还面临着因停工而造成的物资短缺而导致的物价暴涨，沉重的生活负担，不会让你拖一个月的房贷，还有超市不断上涨的粮价，以及如约呼啸而来的来自西伯利亚的寒风：这个限电停电的冬天，不止有点冷，简直冷得要人的命
-![](https://assets.gnews.org/wp-content/uploads/2021/09/6-10.png)图片来源：网络
-这么一个火力发电占73%的国家，这么一个严重依赖进口煤炭进行火力发电的国家，却为了所谓的国家利益去制裁澳大利亚，停止进口他们的煤炭钢铁，还美其曰“饿死他们”。制裁土澳一年以后，不见土澳公民饿死倒地，墙内的韭菜们先被干趴下了。哦对了，韭菜趴下后，他们又换了另一个说法，说是国家在“下一盘大棋”。难道，墙内的韭菜现在已经是你中共国的弃子了？还是干趴韭菜、打倒民营企业家关闭他们的企业是你的棋局？“皮之不存，毛将焉附”，这种自杀式的制裁，不用中国人民起来反抗，你们自己就自绝于天下了
 
-当然王歧山说，中国人吃草三年也没事。你们这些老杂毛对中国人民有多大的仇恨，才会再一次挟着中国人民的生命来换取你们称霸地球的野心？从人民公社，到大跃进，再到文化大革命，还有八九六四，甚至于去年的病毒和今年的疫苗，以及推行了几十年了的计划生育，一件件一桩桩，这滔天罪行真是罄竹难书！“君之视臣如手足，则臣视君如腹心；君之视臣如犬马，则臣视君如国人；君之视臣如土芥,则臣视君如寇仇”。当年崇祯以为，让人民再苦几年，就能彻底解决东北边患。然而满清没怎么样，李自成先进了北京。如今你们重蹈覆辙，企图牺牲上亿百姓来实现你们的春秋大梦，告诉你们，当年崇祯皇帝没有成功，你们这种岳不群式的“欲练神功，必先自宫”的方式来一统江湖也注定会失败，并且会满盘皆输，连煤山上吊自绝天下的机会都不会给你
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-你们一系列的对人类的屠杀和对世界的阴谋，就像岳不群一样，开始看似所向无敌，但也是你们失败的开始。因为爆料革命的战友们和世界的正义力量已在全世界集结，在你们的眼皮底下集结，他们在郭先生的带领下，用G系列吹响了灭共的号角！等待你们的将会是纽伦堡大审判
 
-只是，在消灭你这邪恶的中共之时，不知道要有多少同胞惨死在你们的暴政之下，才是这个凛冬将至之时，所有正义之士最大的担忧
 
-（文章仅代表作者观点）
+汉班托塔国际港是一个深水港，它也是斯里兰卡第二大港口，仅次于科伦坡港。该港口于2008年1月开始兴建，中共国参与部分投资。2010年11月18日投入运营，2016年营业利润为181万美元。2020年，该港口吞吐能力已达180万吨。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-17.jpg)
+当斯里兰卡政府在偿还中共投资兴建港口的债务遇到困难的时候，时任总理Ranil Wickremesinghe于2017年7月与中共签署了一份协议，给予中共的招商局港汉班托塔港70%及周边15000英亩土地99年的使用租约。
 
-作者：天雷滚滚
+网络消息称中共可能根据某些附加条款要求延长租约至198年，又有称新当选政府要求收回港口使用权。
 
-审核：兵嫂
+汉班托塔港命运扑朔迷离。
 
-发布：骄子
+参考阅读：
+1.[https://en.wikipedia.org/wiki/Hambantota\_International\_Port](https://en.wikipedia.org/wiki/Hambantota_International_Port)
+2. [https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/](https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/)
+3. [https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port](https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port)
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+***编辑/校对/发稿：***Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)

@@ -2,39 +2,76 @@
 ---
 
 
-## [金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1562126/)
+## NBA球星比尔和伊萨克投下大量红色药丸
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1562185/)
 
-作者：纽约香草山金融部 – 闲聊钱币
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+- **编译： Jenny Ball**
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip156.png)
 
-汉班托塔国际港是一个深水港，它也是斯里兰卡第二大港口，仅次于科伦坡港。该港口于2008年1月开始兴建，中共国参与部分投资。2010年11月18日投入运营，2016年营业利润为181万美元。2020年，该港口吞吐能力已达180万吨。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-17.jpg)
-当斯里兰卡政府在偿还中共投资兴建港口的债务遇到困难的时候，时任总理Ranil Wickremesinghe于2017年7月与中共签署了一份协议，给予中共的招商局港汉班托塔港70%及周边15000英亩土地99年的使用租约。
+令人惊讶的是，左翼将“未接种疫苗”的人称为支持川普的无权无势的乡巴佬——人们如此无知和消息闭塞，以至于他们无法为自己做出决定，需要更聪明、更“老练”的自由主义者和政府官员介入来拯救他们。
 
-网络消息称中共可能根据某些附加条款要求延长租约至198年，又有称新当选政府要求收回港口使用权。
+**但事实并非如此。**
 
-汉班托塔港命运扑朔迷离。
+首先，支持川普，但不信任疫苗的人，自从川普总统推崇疫苗一来，他们就一直不信任疫苗……不像自由派那样，先是从川普领导时的拒绝疫苗，到拜登领导下突然喜欢它，川普的支持者一直非常坚定， 并且在这个问题上态度不变。
 
-参考阅读：
-1.[https://en.wikipedia.org/wiki/Hambantota\_International\_Port](https://en.wikipedia.org/wiki/Hambantota_International_Port)
-2. [https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/](https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/)
-3. [https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port](https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port)
+并不是川普总统做错了什么，而是病毒一直笼罩在神秘之中——这种神秘的东西，让很多人感到非常怀疑。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+对于大多数人来说，这不是“反疫苗”。这是关于从一开始就对整个病毒的处理方式非常怀疑。福奇一开始就造成了很多问题。福奇和后来的拜登，在重大问题上有过很多反复。
 
-***编辑/校对/发稿：***Hetangyuese
+福奇早期和后来的拜登，都传播了很多错误信息，并且，两者的信息产生了很多混淆。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更不用说我们日复一日地看到那些不遵守“规则”和病毒政治化的精英们——所有这些，以及更多的东西，在美国人民中造成了很多混乱、犹豫和不信任。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
+再加上我们不允许在网上谈论有关疫苗的任何“负面”内容，以及持有不同观点的实际医生要冒停职风险，他们如何迅速被沉默和指责……
+
+这一切都没有道理，而且都不是“正常的”，而且，这只会增加对这一切的怀疑。我认为，让大多数人完全困惑的主要事情之一是，我们为何不讨论自然免疫……永远不让， 它从未被提起，这是所有这一切中最奇怪的方面之一……尤其是对我这个感染过 COVID 的人来说。
+
+疫苗一开始被吹捧和销售为“免疫”，然后很快就被打脸，因为接种了疫苗的人病情越来越严重……但不知何故，**不说疫苗是罪魁祸首使每个人生病，而是翻转事实，怪罪于未接种疫苗的人……所以，这一切都说不通。**
+
+最后，媒体、民主党和乔·拜登似乎看不到这一点，大多数不想接种这种疫苗的人不是“川普的支持者”，他们是少数族裔……黑人和西班牙裔，出于我上面提到的所有原因，他们不相信疫苗。
+
+这就是我在网上看到的这两个视频发挥作用之处。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip157.png)
+
+谈到了不起的 NBA 球员，我看到了这段视频，乔纳森·艾萨克 (Jonathan Isaac) 完美地阐述了我们所有人的感受，所有人为之震撼。他用一千把正义之锤把疫苗钉死。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-29T093450.374.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip158.png)
+
+这两位 NBA 球星，已经成功地，准确地表达了许多美国人对疫苗的看法。
+
+他们真的是在整个 NBA 和对乔·拜登投下红色药丸炸弹，老实说，你怎么能与这些常识性的论点争论呢？
+
+艾萨克是对的——左派越是斥责和嘲笑未接种疫苗的人，他们吐出的毒液和恶毒越多，未接种疫苗的人就越是在背后挖苦……我们需要对此进行严肃的国家“科学”讨论，包括自然免疫力、肥胖和年龄。
+
+我们还需要谈论死亡人数， 我们需要将死于 COVID 的人和因 COVID而死的人分开……以及那些“死于” COVID 的人，他们多大年龄，他们是否肥胖，是否有其他健康风险？
+
+这是一场诚实的全国性讨论的开始，它将让 COVID 变得更加清晰……**但也许这正是他们不想谈论所有这些东西的原因****……****他们不想****“****清楚地了解****”****任何与**** COVID****有关的问题****，这就是为什么这么多人不想接种疫苗的原因。**
+
+看， 这是一个恶性循环，一切都围绕着向人们隐瞒事实和科学。
+
+注释：
+
+红色药丸: 用来指一个人的观点发生戏剧性转变的过程，使他们对特定情况的真实本质有了新的、通常令人不安的理解。
+
+**评论：**
+
+**这就是一切问题的实质：“一切都围绕着向人们隐瞒事实和科学。”爆料革命坚持唯真不破，因为真相是战胜邪恶的武器，越来越多的“诚实的全国性讨论”，“它将让 COVID 变得更加清晰”。**
+
+**只要人们向这两位NBA球星一样，用常识思维，就能看到各种违法违规违背常理的猫腻，看到真相。真相掀起的怒潮一定会将邪恶势力湮灭！**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**文章内容来源:  [WayneDupree.com](https://wiredailynews.com/2021/09/28/video-washington-wizards-star-bradley-beal-and-orlandos-jonathan-issac-drop-massive-red-pills-on-nba/)**
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

@@ -2,24 +2,44 @@
 ---
 
 
-## 速报：前外交大臣岸田文雄确定为下一任日本首相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1562125/)
+## 有声| 让我们在最黑暗的时刻里都活在人间天堂里
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562183/)
 
-撰稿：东京樱花团/华夏小哥
-![此图像的alt属性为空；文件名为image-428.png](https://assets.gnews.org/wp-content/uploads/2021/09/image-428.png)
-在9月29日举行的自民党总裁选举中岸田文雄最终获胜，当选为自民党新总裁。
+配音：香草山教育部-蒙古鸿雁
 
-第一轮投票中，前外交大臣岸田文雄共获得包括国会议员选票和党员选票在内的256票，排名第一。由于未能超过762票的半数，即未超过382票，因此，岸田文雄还必须与获得255票的行政改革大臣河野太郎进入第二轮投票。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-按照规则，第二轮投票由现场的382位国会议员和47位都道府县代表投票表决。
 
-第二轮投票岸田文雄获得257票，当选为自民党第27代总裁。同时将会在10月4号组阁的新内阁中被推举为首相，也恰好是日本第100代首相。
 
-在新内阁中，强硬保守派高市早苗可能被任命为最重要的防卫大臣或者外交大臣。考虑到河野太郎在日本民众中的高人气，和即将到来的众议院大选，他可能会被委以干事长的重任。最令人可喜的是，老牌亲共派二階俊博将会被彻底边缘化。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-429.png)
-第一轮投票中岸田文雄在国会议员中获得最多146票，在党员票中获得第二名 110 票。河野太郎分别获得86票和 169 票。第三名是前总务大臣高市早苗，共获得188 票。代理干事长野田圣子共获得 63 票。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+
+我根据这几天灵修的内容总结出以下四个协议。这是根据美国作家唐·米格尔`鲁伊斯（Don Miguel Ruiz ）和珍妮特·米尔斯（Janet Mills）于1997年出版的《四项协议：个人自由实用指南》一书加上自己的感悟整理出来的。
+
+我们只要与自己签定以下四个协议，并能真正做到的话，就一定能够活在属于自己的人间天堂里！让我们一起努力，一边紧跟七哥传播病毒和疫苗真相，一边争取在灭共前的这人类历史上最黑暗的时刻里以及灭共后的光明日子里都活在人间天堂里！
+
+
+
+**文字版原文：[让我们在最黑暗的时刻里都活在人间天堂里](https://gnews.org/zh-hans/1558710/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

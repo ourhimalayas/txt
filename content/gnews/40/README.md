@@ -2,48 +2,61 @@
 ---
 
 
-## 从印尼三十年内两次排华谈起 警惕历史重演
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1561430/)
+## 众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1561496/)
 
-**By**:**秘翻时评（特辑）**
+众议员吉姆·乔丹： 唯一不想调查 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的人就是国会的民主党人。 【附thepostmillennial的相关文章:世卫组织称,调查#中共病毒起源的时间不多了】
 
-***2021-9-29***
-[![](https://assets.gnews.org/wp-content/uploads/2021/09/Unknown-1.jpeg)](https://gtv.org/video/id=6150541c42a8af3151a59f88)*点击图片观看第一期完整视频*
-19965年为了消灭政治对手，苏哈托举行军事政变，种族歧视被当成利用的工具，华人被当作共产党而遭到杀戮。父亲是华人的苏哈托将自己童年缺少父爱的私人愤恨发泄在无辜的华人身上，用自己手中的国家机器，屠杀了数十万印尼华人。
 
-1998年在亚洲金融风暴的压力下，印尼政府为了转移民众视线，进行了国家层面的有组织的，有奖金鼓励的，针对华人群体实施的奸杀掠夺的暴行，而中共政府的原则“当地华人加入印尼国籍了，就是印尼内政，不干涉，不报道”。
 
-为什么勤勤恳恳劳作的华人总是被用来泄愤的对象？
+> The only people who don’t want to investigate the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) are Democrats in Congress. [https://t.co/tEG560m62y](https://t.co/tEG560m62y)
+> — Rep. Jim Jordan (@Jim\_Jordan) [September 28, 2021](https://twitter.com/Jim_Jordan/status/1442654325424246788?ref_src=twsrc%5Etfw)
 
-利用国家机器的力量，有预谋有组织的暴行，到底能够有多残忍？
 
-现在的病毒和疫苗到底会产生怎样的灾难？
 
-又会给全球华人带来怎样的灭顶之灾？
+前白宫经济顾问皮特·纳瓦罗： 在川普时期,福奇已经没戏了,他完了。这段视频抨击了大西洋杂志-一左翼霉体，在福奇显然应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 及其杀死的数百万人负责任的情况下仍为福奇开脱。在亚马逊购买《川普时代》：[https://bit.ly/TwitterFauciFork](https://t.co/a1KWEzBNPL?amp=1)
 
-全球范围的排华事件会发生吗？
 
-我们要如何应对灾难的来临？
 
-你准备好了吗？
+> In Trump Time sticks a fork in Fauci and he's done. This video skewers the Left Wing Atlantic for pulling its Fauci punches when Fauci is clearly responsible for the Chinese Communist Party virus and millions it has killed. Buy In Trump Time at Amazon: [https://t.co/zydWckJK1w](https://t.co/zydWckJK1w) [pic.twitter.com/NA82WxwrZT](https://t.co/NA82WxwrZT)
+> — Peter Navarro (@RealPNavarro) [September 28, 2021](https://twitter.com/RealPNavarro/status/1443001502352687104?ref_src=twsrc%5Etfw)
 
-请移步GTV，观看**【秘翻时评】三期特辑**，完整展示历史的伤痛和现实的担忧。
 
-**2021/9/26 第一期**
 
-[https://gtv.org/video/id=6150541c42a8af3151a59f88](https://gtv.org/video/id=6150541c42a8af3151a59f88)
+参议员马可·卢比奥: 康明凯和斯帕沃根本不应该被拘留。经过多年的非法任意逮捕，他们早该获释了。 通过先释放孟晚舟来确保他们的获释开创了一个可怕的先例，这只会鼓励 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京在未来继续进行人质外交。
 
-**2021/9/27 第二期**
 
-[https://gtv.org/video/id=6151a44d42a8af3151a67776](https://gtv.org/video/id=6151a44d42a8af3151a67776)
 
-**2021/9/28 第三期**
+> Kovrig & Spavor should've never been detained. Their release is long overdue after years of arbitrary arrest.
+> 
+> Securing their release by first releasing [#MengWanzhou](https://twitter.com/hashtag/MengWanzhou?src=hash&amp;ref_src=twsrc%5Etfw) sets a terrible precedent that'll only embolden [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to continue conducting hostage diplomacy in the future. [https://t.co/Smww3BVOVW](https://t.co/Smww3BVOVW)
+> — Senator Rubio Press (@SenRubioPress) [September 28, 2021](https://twitter.com/SenRubioPress/status/1442991416645410820?ref_src=twsrc%5Etfw)
 
-[https://gtv.org/video/id=6152f59542a8af3151a6de30](https://gtv.org/video/id=6152f59542a8af3151a6de30)
 
-*发布:星星*
 
-* * *
+众议员迈克·加西亚： 我和中国特别工作组的成员一起呼吁（气候特使）约翰·克里和（商业部部长）雷蒙多立即接受关于 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的威胁简报，因为他们最近忽视 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成的威胁。
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+
+
+> I joined members of the China Task Force in calling on [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw) & [@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) to receive an immediate threat briefing on the Chinese Communist Party due to their recent dismissive language regarding the threat the CCP poses to the U.S.
+> — Rep. Mike Garcia (@RepMikeGarcia) [September 28, 2021](https://twitter.com/RepMikeGarcia/status/1442953035630612483?ref_src=twsrc%5Etfw)
+
+
+
+国智库哈德逊研究所： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对 [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hashtag_click) （美英澳）安全协议有多担心？ “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在意识到其战略误判的严重性。这可能会阻止解放军超越第一岛链——这让北京不寒而栗，” （前国务院顾问）余茂春告诉 （华盛顿时报军情记者）比尔·格茨。 【附华盛顿时报文章：北京称AUKUS联盟不负责任】
+
+
+
+> How worried is [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) about the [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) security pact? 
+> 
+> "The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is realizing the magnitude of its strategic miscalculations. This could obviate the PLA’s march beyond the First Island Chain – that makes Beijing shiver,” [@milesyu10](https://twitter.com/milesyu10?ref_src=twsrc%5Etfw) tells [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) [https://t.co/B8UKIVx3u1](https://t.co/B8UKIVx3u1)
+> — Hudson Institute (@HudsonInstitute) [September 28, 2021](https://twitter.com/HudsonInstitute/status/1442917986499657731?ref_src=twsrc%5Etfw)
+
+
+
+众议院外交委员会转推： 【shane Tews 的推文：美国政策的影响开始累积——2021 年，10 个最大经济体中的 8 个——全球超过 60% 的蜂窝设备市场，以及几乎所有欧盟成员国都禁止或限制使用华为的5G 网络。 （附美国企业协会文章：华为的衰落说明中国为何难以称霸：北京的好战是罪魁祸首）】
+
+
+
+> Effects of US policy are starting to accumulate – 2021, 8 of 10 largest economies – over 60% of the world’s cellular equipment market, & nearly all members of the EU had either banned or restricted [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) from their 5G networks. [@halbrands](https://twitter.com/HalBrands?ref_src=twsrc%5Etfw) [https://t.co/Xnd9u3XID8](https://t.co/Xnd9u3XID8) via [@AEI](https://twitter.com/AEI?ref_src=twsrc%5Etfw)
+> — Shane Tews (@ShaneTews) [September 27, 2021](https://twitter.com/ShaneTews/status/1442543988901298178?ref_src=twsrc%5Etfw)
