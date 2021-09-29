@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/29/2021 2:05 AM (UTC)`
+
+9月28号：【举报人称： breaking: 近5万名医保患者在注射COVID疫苗后不久死亡 据医疗自由权律师托马斯-伦茨（Thomas Renz）称，一名举报人提供的政府数据显示，仅在医疗保险患者中，就有48465人在接种COVID-19疫苗后14天内死亡。 "你想知道为什么14天很重要吗？"他问。"因为如果你在14天内死亡，你就不被认为是接种了疫苗。" 根据美国疾病控制和预防中心（CDC）的说法，一个人在完成注射方案14天后才被认为是 "接种疫苗"，这引起了一个问题，即政府当局是否一直将这些死亡事件归类为与疫苗接种有关的死亡之外的事情。 】<br/><br/>https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/ https://gettr.com/post/pch6l37d0a https://gettr.com/post/pcilpc1489
+
+---
+
 `@miles 9/29/2021 12:52 AM (UTC)`
 
 9月28号：一切还都没有开始！<br/><br/><br/>【流動性在大幅度減少，七哥說的世界要出大問題。】
@@ -297,13 +303,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 9/26/2021 Miles Guo: You will gradually see that COVID vaccine mandate will be ended in Europe, Canada, the US, Japan, Singapore, Australia, New Zealand, etc. Medications such as ivermectin, artemisinin, dexamethasone, hydroxychloroquine will be allowed to treat COVID; Due to our fellow fighters’ tireless efforts, the bosses of the Big Pharma companies have realized that keeping pushing the COVID vaccines will lead to bankruptcy.<br/><br/> 9/26/2021 文贵直播：10月1号后大家会逐渐看到，欧洲、加拿大、美国、日本、新加坡、澳大利亚、新西兰等国将停止强制注射疫苗，并将开放使用伊维菌素，青蒿素，地塞米松，羟氯喹等药物治疗；战友们的不懈努力让各大药厂的老板们意识到继续推疫苗将导致其破产<br/>
 ![img](https://media.gettr.com/group14/getter/2021/09/26/22/56/2c54824d-3883-5cab-89ee-f73b859d88d7/out.jpg)
-
----
-
-`@miles 9/26/2021 7:59 PM (UTC)`
-
-以色列COVID-19 疫苗受害者证词(二）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
-![img](https://media.gettr.com/group37/getter/2021/09/26/19/59/7bb96f14-58d9-a747-0d68-852878e27155/out.jpg)
 
 ---
 
