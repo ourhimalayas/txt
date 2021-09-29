@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/29/2021 6:01 AM (UTC)`
+
+9/28/2021 Miles Guo GETTR: The people of the New Federal State of China don’t pursue economic or political interests and are selflessly devoted to the better future, peace, and safety of the whole world! The CCP is bound to pull the entire world’s economy into abyss, and the era of exploiting the Chinese will never return! There will surely be retribution for the Suharto family for what they have done to the ethnic Chinese in Indonesia.<br/><br/>9/28/2021文贵盖特：新中国联邦人不追逐经济或政治利益，为了全世界美好的未来、和平与安全而无私奉献！中共必然把整个世界的经济带入深渊，而过去几十年压榨中国人血汗的时代将一去不复返！苏哈托家族一定为他们对印尼华人的所作所为而遭到报应的！<br/>
+![img](https://media.gettr.com/group27/getter/2021/09/29/06/01/2553968f-bd8e-cd7c-e5a6-f93ade7f5f57/out.jpg)
+
+---
+
 `@miles 9/29/2021 2:31 AM (UTC)`
 
 🙏🙏🙏❤️❤️❤️
@@ -297,13 +304,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 <br/>10月26日：共产党的这一切都是假的，爱国都得造假，他们为什么要造假呢？就是诱骗更多傻爱国的人！
 ![img](https://media.gettr.com/group19/getter/2021/09/27/02/1d802191-d54d-abb1-dd98-a1878cebe000/c55d6e522fe43a199f11764eef28fc7f.jpg)
-
----
-
-`@miles 9/27/2021 12:15 AM (UTC)`
-
-《Make A Killing 暴富有术》
-![img](https://media.gettr.com/group46/getter/2021/09/27/00/15/058a1978-9690-a344-109b-725cb7d8379f/out.jpg)
 
 ---
 
