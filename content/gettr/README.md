@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/29/2021 8:08 PM (UTC)`
+
+9月29号：血淋淋的现实，一个个鲜活的生命。<br/><br/>【一个人在接种完疫苗的三周后因感染Covid而在医院需要呼吸机治疗；另一个人没有死于Covid病毒感染，却在打了第一针疫苗后死亡】
+![img](https://media.gettr.com/group21/getter/2021/09/29/20/08/21a870e7-239c-4bae-f8ca-7afe89c064e2/out.jpg)
+
+---
+
 `@miles 9/29/2021 7:03 PM (UTC)`
 
 以色列COVID-19 疫苗受害者证词(四）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
@@ -296,13 +303,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 2021年9月27日 法治基金,法治社会每周捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>27 September 2021, Rule of Law Foundation and Society donors messages collection.Rule of Law Foundation and Society appreciate all of our supporters and donors!
 ![img](https://media.gettr.com/group14/getter/2021/09/27/08/25/163399ac-28b0-29cb-8073-da19d81f7211/out.jpg)
-
----
-
-`@miles 9/27/2021 8:13 AM (UTC)`
-
-9/26/2021 Miles Guo: Meng Wanzhou’s return to China is the beginning of her personal tragedy! Her ending must be very miserable! Huawei, as the core of the CCP’s battle with the whole world will eventually be sacrificed! This deal for Meng Wanzhou’s return to China is actually a surrender of the US to the CCP. However, this is a great help to our Whistleblowers’ Movement!<br/><br/>9/26/2021 文贵直播：孟晚舟回国是她个人悲剧的开始，结局会非常惨。华为作为中共与世界较量的核心定会被牺牲掉。这次孟晚舟交易事件等于美国向中共投降。这对我们爆料革命是巨大的帮助。<br/>
-![img](https://media.gettr.com/group8/getter/2021/09/27/08/13/3a8d9cc0-441e-b643-99ab-1c3843e3bc7a/out.jpg)
 
 ---
 
