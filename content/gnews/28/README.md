@@ -2,26 +2,26 @@
 ---
 
 
-## 中共负面影响下,英国担心中国留学生数量恐影响国家安全
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562866/)
+## 美国政府数据显示，近5万人接种新冠疫苗后14天内死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562889/)
 
-栏目记者/责任编辑：云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-438.png)
-英国国会外交委员会主席 图根哈特 27日在”泰晤士报”撰文称，今年英国各大院校的中国留学生人数创下新高, 有些院校甚至1/4的学费收入来自中国留学生。而 英国的高等教育和研究机构中, 中国籍留学生占比过高恐有违英国国家利益，甚至影响国家安全。
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-439.png)
+上周六，俄亥俄州的医疗自由权律师 托马斯·伦茨 宣布，根据爆料人提供的 医疗护理救助服务中心CMS相关数据显示，仅在医疗保险患者中，接种新冠疫苗后于14天内死亡的病例就高达48,465例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-51.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-30.jpeg)
 
-据悉,目前约有21万6千名中国学生在英国各大学院校就读, 专业涵盖航太工程、生命科学、奈米科技、资通讯等具有战略科研领域，与此同时,英国众多院校也与中国大学或企业签署了多项合作协定，其中包括接受来自中资企业所提供的, 每年数千万英镑的所谓研究计划补助。
+CMS数据库涵盖超过半亿医疗保险受益人的数据，是美国最大的、可用于研究新冠病毒的数据库。根据疾控中心官方定义，一个人完成疫苗注射14天后，才会被认定为”接种了疫苗”。言下之意，如果死亡发生在14天以内，政府医疗机构不会承认其与疫苗接种的相关性。托马斯还向公众展示了CMS服务器的原始数据截图，并强调这仅是来自不超过20%美国人口的数据。
 
-图根哈特认为，在习近平主导下，中共比过去更加集权、自负, 比以往更积极使用经济捆绑/胁迫手段来要挟其它国家。 英国必须尽快调整对中国的立场，并重新评估上述互动及所谓伙伴关系, 是否符合英国的长远利益。
+此前，罗斯博士团队发布的，新冠疫苗至少造成15万美国人死亡的研究，引起广泛关注。近几日，真相工程相继发布来自联邦医疗机构的员工、强生药厂的科学家揭露新冠疫苗真相的视频，引发媒体风暴和民众的热议。许多有影响力的政客、歌手、NBA明星等也纷纷站出来反对疫苗。随着事件的发酵，更多疫苗受害者的声音也正在被关注。
 
 (本文仅代表作者观点）
 
-参考链接: [英國外委會主席示警 大學院校過度依賴中國資金](https://www.cna.com.tw/news/aopl/202109280380.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[Nearly 50k Medicare patients died soon after getting COVID shot: whistleblower](https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：文龍
+终审：暗黑
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**
