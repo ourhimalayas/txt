@@ -2,32 +2,53 @@
 ---
 
 
-## 20大前，习近平要对王岐山的老巢金融领域下手了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1562454/)
+## 夏秋交替流感季 感染校职员工均为新冠疫苗完全接种者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562527/)
 
-**【雅典娜观察】与您一起洞察世界**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9.29-2.jpg)
-图片来源：RFI
+栏目记者/责任编辑：安吉拉
 
-**作者：**顺其自然
-**编辑：**翼族
 
-《央视新闻》报导，9月26日，中共召开了十九届中央第八轮巡视工作动员部署会，此次被“巡视”的金融单位有25家，它们分别是：中国人民银行、银保监会、证监会、外汇管理局、国家开发银行、中国进出口银行、中国五大银行（中国工商银行、中国农业银行、中国银行、中国建设银行、交通银行）以及上交所、深交所等等。
 
-就在公布“巡视”名单的前一天，25日，中共中纪委网站还发布了一篇耐人寻味的文章，标题是《防范领导干部被利益集团绑架》，文章点名原内蒙古银监局党委书记、局长薛纪宁，在“不法金融集团”和“包商银行”的深度腐蚀围猎下，“落实党中央金融工作决策部署时打折扣、搞变通，放弃监守职责”。包商银行隶属于明天系，而明天系掌门人肖建华已被习弄死了。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-中共二十大即将在明年召开，在当下敏感时刻，中纪委把明天系银行和“不法金融集团”并举；而且，中共这次新的大规模“巡视”金融及监管单位，范围之广是十八大以来首见。通过这些举动，习近平在释放什么政治信号呢？
 
-众所周知，金融领域是王岐山的天下，什么周亮、田惠宇都是王岐山的秘书，他的大秘董宏已被抓，陈峰也已移交司法机关。现在，在20大之前“巡视”金融领域，就是要对王岐山下手，从巡视中找出各个银行、信托、银监会和保监会的错处，抓一批，再杀一批，那王岐山的金融帝国就崩塌了。左膀右臂没了，只剩下王岐山一个光杆司令，那王岐山也就像剪断了翅膀的燕子，想飞也飞不了，习近平想什么时候抓王岐山，就什么时候抓了！
 
-一个国家的金融领域可是最重要的，它关系着一个国家的稳定和经济的安全，尤其在20大习近平想要连任的情况下，一定不能出事。现在恒大这个雷已经引发了一个国家的金融系统的危机，若王岐山借此搞事，导致金融系统崩塌，那习近平连任就无望了，所以习也要死死盯住房地产在金融系统引起的危机，无论如何也要把这个盖子捂住，不让它爆发。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-*发布：*文武全才
+英国小学校园本周末过后，各年级学生多人出现咳嗽症状。按新冠时期处理办法，这些学童都被要求进行新冠病毒检测。医疗系统会将检测结果直接推送给包含校方在内的相关社会公众服务平台。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+PCR检测呈阳性的报告人，其密接人员会收到国民保健机构“track and trace”系统的警示，需立即进行病毒检测；等待检测结果，和后续确认呈阳性结果的学生、家长和人员则需严格执行居家隔离令，导致多地学校师资短缺。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-11.jpg)
+面对每天上升的感染报告，学校周一周二连发数封邮件给学生家长，表示学校只接受无任何病症、完全健康状态的孩子。虽然目前是感冒高发季节，但因为无法分辨是普通咳嗽还是新冠病毒感染，学生返回校园前需提供新冠病毒阴性检测结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-75.jpg)
+此前周末刚刚发生了部分学校邮件系统遭受入侵的事件，一份印有病毒和疫苗真相的《知情同意书》电子文件被自动发送给学生家长，校方也因此收到大量来信质疑接种计划。一位汉普郡的小学校长在补充邮件中的陈述，被认为与该《知情同意书》有关。该名校长确认，“检测呈阳性的教职员工，此前全部完成了双剂新冠疫苗接种；但这并不能阻挡他们被病毒感染。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.2-5.jpg)
+信息链接：
+[Update on Covid cases in the school](https://ibb.co/wRMCk6j)
+[Short term staff shortages](https://ibb.co/YRnBHXp)
+[All of the staff members who have tested positive have been double vaccinated](https://ibb.co/Fmdg0rR)
+[Consent checklist for COVID-19 Vaccination](https://ibb.co/3pzjrgd)
+[Official statement verification](https://ibb.co/w7YGW4W)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

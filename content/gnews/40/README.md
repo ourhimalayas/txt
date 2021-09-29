@@ -2,44 +2,42 @@
 ---
 
 
-## Fauci在Daszak主办的会议上发言
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1562143/)
+## 有声| 美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562160/)
 
-- **编译：wenwu**
+配音：香草山教育部-蒙古鸿雁
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip155.png)
 
-尽管有大量证据表明，生态健康联盟主席Peter Daszak在掩盖中共病毒（COVID-19）的起源上起了一定的作用，但Fauci还是在这次由生态健康联盟主办的活动中发表了讲话，Daszak也是这次活动的发言人（该活动的主题为错误信息的影响）。
 
-据《国家脉动》透露，福奇领导的国家过敏和传染病研究所（NIAID）与其他联邦机构一起[赞助](https://www.nationalacademies.org/our-work/towards-a-post-pandemic-world-lessons-from-covid-19-for-now-and-the-future)了2021年9月的会议活动，其中包括了疾病控制和预防中心（CDC）、国土安全部（DHS）和美国国际发展署（USAID）。
 
-达扎克长期获得福奇的国家卫生研究院（NIH）机构的资助，他曾[使用](https://thenationalpulse.com/exclusive/peter-daszak-admits-china-coronavirus-work-funded-by-nih/)联邦资金与有争议的武汉病毒研究所合作，研究蝙蝠冠状病毒；达扎克曾在几次生态健康联盟会议活动中特意地[拉上](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)了福奇一起参加；他曾作为《柳叶刀》COVID-19委员会和世界卫生组织（WHO）COVID-19溯源调查小组中的角色，而且他当时利用职位的便利，也曾[带头](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)宣称COVID-19是在海鲜[市场](https://thenationalpulse.com/breaking/patents-articles-show-wuhan-worked-with-live-bats/)中发展起来，我们现在知道这是欺诈性说法。达扎克后来也因为被曝光和武毒所存在紧密的联系而被迫退出了《柳叶刀》溯源调查小组。
 
-尽管生态健康联盟与中共合作，并随后进行了掩盖。但福奇还是与达扎克一起出现在美国国家科学、工程院和医学研究院（NASEM）的”迈向大流行后的世界”[论坛](https://www.nationalacademies.org/event/07-27-2021/moving-past-covid-19-lessons-learned-from-responses-around-the-world#sectionEventMaterials)上，两人是共同并肩作战的。该会议论坛活动发生在9月21日至24日，也是在达扎克的整个《柳叶刀》COVID特别工作组因利益冲突而解散的前一天结束。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-29T091403.466.png)
-《国家脉动》看到的一份会议议程（如图）显示，达扎克在活动中发表了欢迎和闭幕致辞。同样，在活动的最后一天，福奇发表了事先录制好的关于“大流行病准备”：生物医学研究方法的“愿景声明”。
 
-尽管达扎克一再自愿对 COVID-19 [撒谎](https://thenationalpulse.com/breaking/patents-articles-show-wuhan-worked-with-live-bats/)，但该会议活动内容是旨在减轻（疫苗）“虚假和错误信息的影响”，以努力“保持公众信任和优化遵守”。
+路透社9月27日 讯 – 美国官员本周将前往拉丁美洲考察基础设施项目，准备与中共国耗资数万亿美元的“一带一路”倡议相抗衡。 美国官员称，由拜登总统的副国家安全顾问 达利普·辛格率领的一个外交和发展官员代表团正在哥伦比亚，他们计划与哥国总统杜克会面，然后在本周稍晚前往厄瓜多尔和巴拿马。 该代表团的任务是将七国集团(G7)国家6月宣示的国际基础设施投资倡议“重建更美好的世界”（B3W)变为现实。这是几个计划的“聆听之旅”中的第一个。 按美国计划在明年年初正式启动B3W倡议，包括公布一些初始项目的细节。 据《零对冲》报道，“一带一路”项目因疫情加速了存量债务违约的重新谈判，到目前为止估计达到 940 亿美元，约占中共国海外贷款的四分之一。这表明“一带一路”最重要的贷款人，即中共国家开发银行和进出口银行，在为一带一路项目融资方面做得非常差，中共国纳税人很可能最终为此买单。 如今B3W项目的启动，恒大的崩坍，“一带一路”的有去无回几成定局。
 
-原内容为：*“*虚假和错误信息的影响，以及如何在危机时期管理这些信息以维持官方公众信任，并优化确保人们遵守健康行为的指导。*”*
 
-此次9 月的[活动](https://www.nationalacademies.org/event/07-27-2021/moving-past-covid-19-lessons-learned-from-responses-around-the-world#sectionEventMaterials)是，对2021 年 3 月由医学研究所微生物威胁论坛召集的会议的[补充](https://www.nap.edu/read/26259/chapter/1)，那次也是达扎克担任会议的主席。（附2013年3月17日[论坛](https://www.scribd.com/document/527486729/Fmt-Syndemics-Agenda-Final-3-10-21#download&amp;from_embed)的PDF）
-![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-29T090951.417.png)
-**简评：**
 
-**本篇文章的封面把福奇的脸搞绿了，让人想起了罪恶之都的市长的儿子。**
+**文字版原文：[美国计划在拉丁美洲开展项目 与中共国“一带一路”相抗衡](https://gnews.org/zh-hans/1559585/)**
 
-**罪恶之都的市长儿子有个怪癖，那就是喜欢听惨叫声，如同福奇喜欢看川普在白宫出丑一样（福奇看川普上钩忍不住在镜头中笑）。所以，他们的脸都被作者搞绿了，还有他们的背后也有一个罪恶之都，这个罪恶之都不是在白宫，而是一个在全球蔓延的共产党中国专政权体制。**
 
-**值得一提的是，共产党中国会在爆料革命和新中国联邦的力量下覆灭，这是无人怀疑的。**
 
-（文章仅代表作者观点 与GNEWS无关）
 
-**新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/fauci-sponsors-and-speaks-at-ecohealth-conference/)》｜作者：娜塔丽·温特斯｜发布时间：2021年9月28日｜**
 
-* * *
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-***发稿：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

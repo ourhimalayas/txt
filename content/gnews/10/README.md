@@ -2,13 +2,13 @@
 ---
 
 
-## 2021年9月28日 文贵先生盖特 16
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562439/)
+## 2021年9月28日 文贵先生盖特 19
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1562504/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-9月28号：青蒿素．伊微菌素．地塞米松。将拯救无数的善良的人们，这就是爆料革命和新中国联盟的力量。【 我所在国的一个朋友全家有5口人，3人确诊，都是打过两针科兴疫苗的，同一个屋檐下，反而没打疫苗的两个小孩没确诊，疫苗就是毒。这里缺医少药，确诊基本没有任何有效药物医治，政府免费给几盒中共捐赠的莲花清瘟就完事了，吃了几天根本不起作用。三天前我给他青蒿素，三天内所有病人全部退烧，呼吸正常，恢复味觉。伟大的青蒿素，伟大的爆料革命，真的救了太多人了，这就是新中国联邦人该做的事。 最近几天给出去好多青蒿素，吃了都非常有效，这个是在这边做物流生意的香港人，同样买不到药被困在家里……打了两针科兴疫苗失去味觉，身体极度疲劳，吃了青蒿素两天，味觉恢复了，身体活力恢复了……青蒿素简直神奇到上天！现在还不敢露脸，等天亮以后我都要邀请他们和我一起上gtv直播，讲出这段和中共病毒抗争的令人难忘的经历的**😄**】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5bc6934a9221e25570de7b01a99e3677.jpg)
-[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pciyhud56d)
+CCP’s mouthpiece Jin Canrong again released wild words to create public opinion for the unification of Taiwan by force： There are at least ten benefits in solving the Taiwan issue 中共喉舌金灿荣再放狂言，为武统台湾制造舆论：解决台湾問題, 至少十大收益
+
+[【2021年9月28日】文贵先生盖特原文](https://gettr.com/post/pchx4ja714)
 
 **喜联盟Gnews编辑部**
