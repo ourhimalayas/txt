@@ -2,47 +2,34 @@
 ---
 
 
-## 华尔街投资者对中国市场意见分歧
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1559179/)
+## 中共国的安全是保安不带AK47还是网播被边防特警保护出来的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1559909/)
 
-作者：香草山金融部- Opal
+![](https://assets.gnews.org/wp-content/uploads/2021/09/捕获_副本-17.png)
+据[**填鸭式教育受害者**](https://weibo.com/u/5833359023) [2021年9月28日 11:41](https://weibo.com/5833359023/KAeNTro0c?from=page_1005055833359023_profile&amp;wvr=6&amp;mod=weibotime) 来自 [填鸭说车超话](https://huati.weibo.com/k/%E5%A1%AB%E9%B8%AD%E8%AF%B4%E8%BD%A6)
+
+同样的台词同样的剧本，只是不同样的人…… （网友投稿） [L填鸭式教育受害者的微博视频](http://t.cn/A6MtlxVM) ​​​​
+
+另一个剧本是不同的主播分别在中日边境、中朝边境被边防特警保护的，据[文普智开@Jack202064](https://twitter.com/Jack202064)于[下午12:37 · 2021年9月27日](https://twitter.com/Jack202064/status/1442347559851204611)发布的推文——
+
+[#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 匪夷所思的穿帮爱国宣传片 第一个
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+> [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 匪夷所思的穿帮爱国宣传片🤷‍♂️🤷‍♂️
+> 第一个 [pic.twitter.com/oHxbzJ6Lm3](https://t.co/oHxbzJ6Lm3)
+> — 文普智开 (@Jack202064) [September 27, 2021](https://twitter.com/Jack202064/status/1442347559851204611?ref_src=twsrc%5Etfw)
 
 
 
-据《金融报》报道，上周，世界上最知名的两位投资者之间爆发了一场冲突，这反映出华尔街在将资金投入中国的可行性方面，存在着越来越大的分歧。
+那么在这个空气有霾、食品有毒、疫苗杀人，每个环节都充满危险的国度里，它的安全到底体现在哪里呢？它的安全就体现在造假者可以肆无忌惮，造谣者可以豪无顾忌，在这个以假治国的国度里，一切的真都是最危险的，而一切的假不仅安全，而且假还可以带来收益，甚至造假者已经没有心情造出日新月异的假，他们已经开始了批发造假。
 
-本周，全球最大的资产管理公司贝莱德(BlackRock)周三宣布，由于中国不断增长的储蓄市场的机会，贝莱德为其在中国的首个共同基金筹集了10亿美元。就在一天前，亿万富翁金融家乔治-索罗斯在《华尔街日报》上写道，贝莱德进入中国是一个 “悲惨的错误”， “贝莱德错了。”索罗斯此前曾警告说，中国的投资者面临 “粗暴的觉醒”，因为 “习近平把所有中国公司都视为一党制国家的工具”。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16x9-feature-photos-MOS-logos-55.png)图片来源：[www.ft.com](https://www.ft.com/)
-根据数据提供商Copley Fund Research的数据，经营主动型全球股票基金的经理们已将其对中国和香港的配置削减到四年来的最低水平。根据对资产超过10亿美元的381只基金的抽样调查，Copley计算出，现在仅有超过四分之一的基金持有的中国和香港股票多于基准全球指数。在2015年初，最高时有45%的投资者对中国持有如此大的赌注。
+撰稿：喜马拉雅的肉夹馍
 
-外国投资者的不安反映了中国10个月来，中共在对从教育到电子游戏等行业发起一连串的监管行动，中共的 “共同富裕 “运动几乎触及了所有行业，包括打击中国最大的科技公司和房地产市场，严格限制年轻人玩电子游戏的时间，以及禁止营利性教育行业。
+审核：喜马拉雅的馍夹肉
 
-基金经理们不仅在权衡是否要投资中国资产，他们也在考虑如何向中国的消费者提供他们的服务。除了贝莱德，包括美国的摩根资产管理公司、高盛资产管理公司，以及欧洲的Amundi和Schroders在内的外国投资者，正在通过财富管理合资企业进入中国。可谓是几家欢喜，几家愁，得到利益的，自然会继续高歌猛进；亏损的，会收拾行囊撤退；当然还有一些投资机构在坚持，在观望。
+校对：Maarago
 
-在中共现行的这种“打土豪分田地”的政策下，多数的私人企业、私人投资者，包括外资，因被瘦身、被割、被斩而被迫离场，早已不足为奇。因为这个体制是罪恶的，要想得益，就只能和中共勾兑。
+（文章内容仅代表作者个人观点）
 
-郭文贵先生在2019年5月6日直播中提到：有一家全球最大的基金，已经和中共勾兑好了。这家基金与中共签署了一份800亿美元所谓影子银行顾问合同，前提是美国与中共签署贸易协定!
-
-笔者推测，全球最大的基金应该就是贝莱德基金(BlackRock)。贝莱德基金， 主要为针对法人与零售通路提供投资管理、风险管理与财务咨询服务，现在成为第一家在中共国有自己基金的外国资产管理公司。贝莱德在中共国的共同基金大约价值3.6万亿美元。贝莱德基金会不会也难逃亏损的命运？是否会像索罗斯讲的那样，把投资者们的资金统统输光呢？咱们拭目以待。
-
-（本文仅代表作者个人观点）
-
-参考链接：
-
-[https://www.ft.com/content/8cda606f-aa6a-444a-8331-310c6b5f167d](https://www.ft.com/content/8cda606f-aa6a-444a-8331-310c6b5f167d)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-3.png)
-
-编辑/审核/发稿：正义的小新
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-380.png)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
