@@ -2,37 +2,18 @@
 ---
 
 
-## 朝鲜向日本海域发射弹道导弹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1561559/)
+## 中共病毒导致人类预期寿命出现自二战以来的最大降幅
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1561723/)
 
-栏目记者/责任编辑：文真
+#### 翻译：zzballack
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-73.jpg)图片来源：the Denvor Postttutu’p图片
+据《以色列时报》(The Times of Israel) 9月28日报道，《国际流行病学杂志》(International Journal of Epidemiology) 9月27日发表的一项最新研究称，中共病毒大流行导致美国和西欧国家的预期寿命大幅下降，降幅是二战以来最大的。
 
+在这项涵盖了欧洲、美国和智利等29个国家的研究中，有27个国家的预期寿命有所下降。据英国《卫报》（The Guardian）报道，下降幅度最大的是美国男性，与2019年相比下降了2.2年。其次是立陶宛男性，下降了1.7年。在大多数国家，男性的预期寿命下降幅度大于女性。
 
+该研究的共同第一作者何塞·曼努埃尔·阿布尔托（José Manuel Aburto）博士说：”8个国家的女性和11个国家的男性的预期寿命缩减了1年。这些国家最近平均花了5、6年时间才将预期寿命延长了一年，但是这一进展在2020年因中共病毒而被抵消。”自中共病毒大流行爆发以来，疫情已在全球夺走了近500万人的生命。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+另一位共同第一作者里迪·卡什亚普（Ridhi Kashyap）博士说：“我们的研究结果凸显出了中共病毒直接造成的巨大影响，事实表明，它对许多国家造成了非常严重的冲击。我们迫切呼吁更多的国家，特别是那些低收入国家公布和提供其死亡率数据和更多的人群细分数据，以便更好地了解疫情对全球的影响。”
 
-
-
-9月28日上午，韩国军方检测到一枚从朝鲜长江省发射的导弹。该导弹飞越朝鲜东部海岸进入日本海，在日本的专属经济区外降落。这是过去一个月里，朝鲜进行的第三次被禁导弹的挑衅性试验。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture4-6.jpg)
-朝鲜驻联合国大使金颂，在纽约联合国大会上发言时坚称，无论联合国安理会针对朝鲜导弹计划的决议如何规定，朝鲜都有权发展更好的武器来对抗美国和韩国的 “敌对政策”。
-
-韩国国防部发言人周二表示，迄今为止，朝鲜对连接两国军事热线的电话 “毫无反应”。日本首相菅义伟星期二说，日本将 “加强警惕” 以应对朝鲜的武力挑衅行为。美国印度洋-太平洋司令部的一份声明批评了 “朝鲜非法武器计划的不稳定影响”，并重申美国对保卫韩国和日本的 “铁血 “承诺。
-
-（本文仅代表作者观点）
-
-参考链接：[https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/](https://www.breitbart.com/national-security/2021/09/28/north-korea-launches-ballistic-missile-into-sea-of-japan/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-422.png)
+新闻来源：[COVID causing biggest life expectancy drop since WWII in US and western Europe](https://www.timesofisrael.com/study-covid-caused-biggest-western-europe-us-life-expectancy-drop-since-wwii/)

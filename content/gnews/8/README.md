@@ -2,44 +2,44 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1561961/)
+## Fauci在Daszak主办的会议上发言
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1562143/)
 
-素材：东京樱花团GNEWS组
-![](https://lh5.googleusercontent.com/PxPNM1zDv35AKYnOlGyMSHbHVQzl8LdF0z7EHhxWyJ4aqhsqjlV6Hm__WjX2SC7G9YQ-XnPbVpD9nnlc5ujR6uYtScEUbMOw-sxFO2u9i1HwyF2oLcJYOPVMxVsXcgj7ShvmHIth=s0)
-[图片来源](https://www.voachinese.com/a/white-house-xinjiang-uyghur-20210928/6249408.html)
+- **编译：wenwu**
 
-**9月29日汇编**
 
-1、 [白宫发言人：拜登总统直接关切维吾尔人处境](https://www.voachinese.com/a/white-house-xinjiang-uyghur-20210928/6249408.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip155.png)
 
-9月28号星期二的白宫新闻简报会上，被问到拜登政府对《防止维吾尔人强迫劳动法》的立场，白宫发言人莎琪重申本届政府在新疆跟维吾尔人的立场。莎琪说：“总统过去当然已经直接向中国表达了对维吾尔人处境的关切。”美国政府7月13号对企业界发出商业警示，说“未退出与新疆有关的供应链、合资企业和/或投资的企业和个人，可能面临违反美国法律的高风险。”
+尽管有大量证据表明，生态健康联盟主席Peter Daszak在掩盖中共病毒（COVID-19）的起源上起了一定的作用，但Fauci还是在这次由生态健康联盟主办的活动中发表了讲话，Daszak也是这次活动的发言人（该活动的主题为错误信息的影响）。
 
-美国参议院在7月14号通过了《防止维吾尔人强迫劳动法》，当中规定进口商必须举证，从新疆进口的商品没有涉及强制劳动，否则将依照《1930年关税法》禁止进口。目前的规定是如果有合理证据显示商品涉及强制劳动，则将禁止进口。
+据《国家脉动》透露，福奇领导的国家过敏和传染病研究所（NIAID）与其他联邦机构一起[赞助](https://www.nationalacademies.org/our-work/towards-a-post-pandemic-world-lessons-from-covid-19-for-now-and-the-future)了2021年9月的会议活动，其中包括了疾病控制和预防中心（CDC）、国土安全部（DHS）和美国国际发展署（USAID）。
 
-2、[纽约数千医护拒绝接种疫苗 州长宣布紧急状态](https://www.aboluowang.com/2021/0929/1652924.html)
+达扎克长期获得福奇的国家卫生研究院（NIH）机构的资助，他曾[使用](https://thenationalpulse.com/exclusive/peter-daszak-admits-china-coronavirus-work-funded-by-nih/)联邦资金与有争议的武汉病毒研究所合作，研究蝙蝠冠状病毒；达扎克曾在几次生态健康联盟会议活动中特意地[拉上](https://thenationalpulse.com/exclusive/fauci-daszak-ecohealth-ties/)了福奇一起参加；他曾作为《柳叶刀》COVID-19委员会和世界卫生组织（WHO）COVID-19溯源调查小组中的角色，而且他当时利用职位的便利，也曾[带头](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)宣称COVID-19是在海鲜[市场](https://thenationalpulse.com/breaking/patents-articles-show-wuhan-worked-with-live-bats/)中发展起来，我们现在知道这是欺诈性说法。达扎克后来也因为被曝光和武毒所存在紧密的联系而被迫退出了《柳叶刀》溯源调查小组。
 
-纽约州州长凯茜·霍楚尔（Kathy Hochul）周一（27日）晚上宣布，该州进入紧急状态，以应对因至少数千名医务人员拒绝接种COVID-19疫苗而导致的潜在的医务人员短缺危机。周二（28日）上午，霍楚尔在推特上宣布：“昨晚，我采取了大胆的行动，签署了一项行政命令，该命令将缓解我们纽约州各地医院和其它医疗机构潜在的人员短缺问题。”纽约州政府网站上周六（25日）公布了霍楚尔准备宣布紧急状态的计划。按照纽约州疫苗令的要求，全州所有医务人员必须在9月27日前接种至少一剂COVID-19疫苗，否则将面临解雇。据《华盛顿邮报》报导，截至上周三（22日），纽约州的45万名卫生保健工作者中，大约84%完全接种了疫苗，7万人尚未接种。纽约州的疫苗令下一步将影响到其它卫生保健机构，包括家庭护理、临终关怀和成人护理机构。按照该命令，这些机构的工作人员须在10月7日前接种疫苗。
+尽管生态健康联盟与中共合作，并随后进行了掩盖。但福奇还是与达扎克一起出现在美国国家科学、工程院和医学研究院（NASEM）的”迈向大流行后的世界”[论坛](https://www.nationalacademies.org/event/07-27-2021/moving-past-covid-19-lessons-learned-from-responses-around-the-world#sectionEventMaterials)上，两人是共同并肩作战的。该会议论坛活动发生在9月21日至24日，也是在达扎克的整个《柳叶刀》COVID特别工作组因利益冲突而解散的前一天结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-29T091403.466.png)
+《国家脉动》看到的一份会议议程（如图）显示，达扎克在活动中发表了欢迎和闭幕致辞。同样，在活动的最后一天，福奇发表了事先录制好的关于“大流行病准备”：生物医学研究方法的“愿景声明”。
 
-3、[法国赛诺菲宣布：停止开发mRNA新冠疫苗](https://www.aboluowang.com/2021/0929/1652923.html)
+尽管达扎克一再自愿对 COVID-19 [撒谎](https://thenationalpulse.com/breaking/patents-articles-show-wuhan-worked-with-live-bats/)，但该会议活动内容是旨在减轻（疫苗）“虚假和错误信息的影响”，以努力“保持公众信任和优化遵守”。
 
-法国制药巨擘赛诺菲（Sanofi）今日表示，尽管试验结果正向，但由于疫苗生产进度落后对手，公司已经停止进行COVID-19（中共病毒）（2019冠状病毒疾病）mRNA疫苗开发作业。赛诺菲表示，公司将转而聚焦和英国葛兰素史克药厂（GlaxoSmithKline）合作研发另一种形式的疫苗，目前这款疫苗正在进行人体试验的最后阶段。赛诺菲表示，公司的mRNA疫苗在第一和第二临床试验阶段有正面的结果。赛诺菲的对手瑞/BioNTech（Pfizer/BioNTech）和莫德纳（Moderna）都采用创新的mRNA技术。但赛诺菲表示，该公司不会进行第三阶段（最后阶段）试验，赛诺菲认为，赛诺菲反而会以mRNA技术生产疫苗，对抗其他病原的疾病，像是流感等。
+原内容为：*“*虚假和错误信息的影响，以及如何在危机时期管理这些信息以维持官方公众信任，并优化确保人们遵守健康行为的指导。*”*
 
-4、[特鲁多：将就华为5G设备问题很快做出决定](https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html)
+此次9 月的[活动](https://www.nationalacademies.org/event/07-27-2021/moving-past-covid-19-lessons-learned-from-responses-around-the-world#sectionEventMaterials)是，对2021 年 3 月由医学研究所微生物威胁论坛召集的会议的[补充](https://www.nap.edu/read/26259/chapter/1)，那次也是达扎克担任会议的主席。（附2013年3月17日[论坛](https://www.scribd.com/document/527486729/Fmt-Syndemics-Agenda-Final-3-10-21#download&amp;from_embed)的PDF）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/unnamed-2021-09-29T090951.417.png)
+**简评：**
 
-根据路透社28日消息，加拿大将很快就是否禁止使用华为5G设备问题做出最后决定。加拿大总理特鲁多周二（28日）说，可能在“未来几个星期内”就是否禁止使用华为5G设备问题做出最后决定。加拿大政府对是否像“五眼联盟”其他成员国一样禁止使用华为5G设备的问题已经研究了三年，这是特鲁多在华为首席财务官孟晚舟上星期获释后首次就华为设备问题发表评论。在此之前，加拿大表示正等待情报机构的报告，以做出最终的决定。加拿大两家最大的无线供应商去年6月与瑞典的爱立信和芬兰的诺基亚合作，共同建造5G通信网络。
+**本篇文章的封面把福奇的脸搞绿了，让人想起了罪恶之都的市长的儿子。**
 
-5、[美英澳新联盟形成 澳核潜艇将是中国攻台顾忌](https://www.voachinese.com/a/china-aukus-20210928/6248615.html)
+**罪恶之都的市长儿子有个怪癖，那就是喜欢听惨叫声，如同福奇喜欢看川普在白宫出丑一样（福奇看川普上钩忍不住在镜头中笑）。所以，他们的脸都被作者搞绿了，还有他们的背后也有一个罪恶之都，这个罪恶之都不是在白宫，而是一个在全球蔓延的共产党中国专政权体制。**
 
-美国、英国和澳大利亚最近宣布建立新的三边安全伙伴关系（奥克斯，AUKUS），美英两国将帮助澳大利亚海军建立核潜艇部队，深化防务关系以抗衡中国。分析人士指出，从地缘战略的角度看，“奥克斯”三边安全伙伴关系实际上是美英澳形成的一个新的联盟，是美国印太战略重心向印太地区转移的具体体现，在印太地区的最外围的海域构筑了一道限制中国扩张的战略防线。根据澳英美三边安全伙伴关系协议，澳大利亚将获得至少八艘核动力潜艇。核潜艇被认为隐蔽性高、续航时间长、生存能力远高于传统柴电动力潜艇，是威慑中国贸然动武的最佳战略武器之一。美国福布斯杂志举例说，如果北京选择攻击台湾，弗吉尼亚级潜艇可以打破对台湾的任何海上封锁。
+**值得一提的是，共产党中国会在爆料革命和新中国联邦的力量下覆灭，这是无人怀疑的。**
 
-6、[哈佛预言：恒大如破产中国经济增长将降至2%](https://www.aboluowang.com/2021/0929/1652987.html)
+（文章仅代表作者观点 与GNEWS无关）
 
-长期关注中国房地产问题的国际货币基金组织（IMF）前首席经济学家、哈佛大学经济学教授罗格夫（Kenneth Rogoff）指出，恒大的问题可能不会演变成中国版的“雷曼兄弟”金融风暴，而是整个中国经济仰赖房地产增长的模式即将破灭，中国年经济增长率跌至仅有2%的痛苦状态。罗格夫向《巴隆周刊》（Barron’s）表示：中国长期以来养成过度依赖房地产拉动经济的模式，房产相关产品与服务占国内生产总值（GDP）的29%，高得不正常，而且中国市面上已经有巨量的空房子存货，外界质疑，人均所得仅有德国、法国四分之一的中国，怎么负担得起跟德、法一样贵的房价？
+**新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/fauci-sponsors-and-speaks-at-ecohealth-conference/)》｜作者：娜塔丽·温特斯｜发布时间：2021年9月28日｜**
 
-中国的经济成长正在放缓，新冠肺炎（中共病毒）疫后出现的反弹复苏快要结束，此时经济丧失任何动能的冲击都会很大。因此恒大一旦倒下，拖垮整个中国房市，北京当局很难无缝接轨找到其他的增长来源拉动经济。罗格夫指出：假设中国经济未来12个月的GDP成长率，本来就可能因为房市放缓从6%降到4%，这时恒大倒闭冲击房地产业，使中国GDP成长率再掉1到2个百分点，中国GDP成长仅剩2%，将难以创造足够工作，陷入痛苦的经济状况。
+* * *
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)

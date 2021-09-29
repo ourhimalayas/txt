@@ -2,31 +2,39 @@
 ---
 
 
-## 中共国要年轻人多生娃了
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1561952/)
+## [金融园]新海上丝绸之路:中共债务陷阱外交政策受害国-之斯里兰卡汉班托塔国际港
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1562126/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图2片-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/图片-1.png)
-最近中共国热点不断，这不，卫健委也来凑热闹了。央视新闻客户端发布了一则消息：国家将切实降低家庭生育教育养育的负担，充分释放年轻人的生育意愿，并将出台完善支持家庭生育养育教育的法律法规政策。早在几天前，国务院还印发了《中国妇女发展纲要（2021-2030年）》。纲要指出，要提高妇女生殖健康水平，减少非医学需要的人工流产，并加强对女性健康安全用品产品的质量保障
+作者：纽约香草山金融部 – 闲聊钱币
 
-记得上半年刚刚放出开放三胎政策时，评论区翻车的壮观场面，几万多则评论，一边倒的骂声一片，连很多小粉红和水军也怠工了。想必中南坑老杂毛们应该略有耳闻，否则，不可能有《中国妇女发展纲要》的出台
 
-佩服他们的无耻，相信七十八年代出生的人都记忆尤新。共匪为了达到控制人口的目的，各种横幅让人毛骨悚然：“一胎生，二胎扎，三胎四胎杀！杀！杀”，“该引不引，株连六亲！”“该流不流，扒房牵牛！”,“儿子不在找老子，老子不在拆房子”,“宁可血流成河，也不超生一个”。以上这些还只是针对超生家庭惩罚，还有更恐怖的呢，如：“一人超生，全村结扎”,直接把商鞅的什伍连坐法扩展到了全村，用出了水平，用到了极致!你别以为只是标语而已，豪不夸张地说，这些事每一天都在全国上演，每一件事都曾经在身边发生。当然也有利诱的，譬如：只生一个好，政府来养老；或者少生优生，幸福一生！无所不用的手段，终于成功地消灭了上亿婴儿，并且大部分是女婴。从1982年中共把计划生育当作基本国策以来，有多少家庭游离失所，又有多少家庭背井离乡，还有更多的家庭倾家荡产，中共对中国人民欠下的血债，真是罄竹难书！这种反人类的大屠杀罪行，他们居然把它作为减轻地球负担的“丰功伟绩”而写进了教科书，供人传颂，希特勒都不敢这么做
 
-现在可能是他们的精子红旗太多，中共国现有的韭菜不够他们收割了，于是，开始厚颜无耻地鼓励生育多胎。好事的网友开始为他们写了各种标语：“一人拒绝多生，全村人工受精”。“怀上来生出来养起来，就是不能打下来”！“二胎奖，一胎罚，丁克不育都该抓”。调侃归调侃，问题来了，这怀了，你能打；要是不想怀怀不上，难不成你真让人工受精？还有，你就是鼓励政策出台，这些年轻人生得起吗
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-18.png)
-看看网上的真实声音，这则很有代表性：***放过我们这些*****上世纪*九十年代出生的独生子女吧。。。。。。*小学赶上了非典/中学赶上了禽流感/大学毕业房价疯长/工作没几年就要延长退休/鼓励自主创业然后新冠肺炎来了/在家待着哪都不能去更别提创业了/996、007玩命工作/依然买不起房结不起婚养不起娃。。。。。。如果命大能熬到拿退休金/还得给三个孩子带*九*个孙子。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-** **拜你中共所赐，这么多年来，中共号称赶走了帝国主义、封建主义、官僚资本主义“三座大山”，又在中国人民的头上又套了新的三座大山，教育改革让老百姓上不起学，医疗改革让老百姓看不起病，住房改革让老百姓买不起房，你们还把中国百姓当成牲口来使唤，不让生，血流成河也不给生，让生就使尽手段让年轻人生下来。你们像牲口一样对待中国百姓，现在这些牲口也终于被你折腾得早早就油灯枯尽了，再也生养不起了！
 
-很好奇，伟大光荣正确的共产党，战无不胜的中国共产党，你用什么手段让年轻人生下来呢？让我们拭目以待！
 
-（文章仅代表作者观点）
+汉班托塔国际港是一个深水港，它也是斯里兰卡第二大港口，仅次于科伦坡港。该港口于2008年1月开始兴建，中共国参与部分投资。2010年11月18日投入运营，2016年营业利润为181万美元。2020年，该港口吞吐能力已达180万吨。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-17.jpg)
+当斯里兰卡政府在偿还中共投资兴建港口的债务遇到困难的时候，时任总理Ranil Wickremesinghe于2017年7月与中共签署了一份协议，给予中共的招商局港汉班托塔港70%及周边15000英亩土地99年的使用租约。
 
-作者：天雷滚滚
+网络消息称中共可能根据某些附加条款要求延长租约至198年，又有称新当选政府要求收回港口使用权。
 
-审核：兵嫂
+汉班托塔港命运扑朔迷离。
 
-发布：骄子
+参考阅读：
+1.[https://en.wikipedia.org/wiki/Hambantota\_International\_Port](https://en.wikipedia.org/wiki/Hambantota_International_Port)
+2. [https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/](https://gjia.georgetown.edu/2021/06/05/questioning-the-debt-trap-diplomacy-rhetoric-surrounding-hambantota-port/)
+3. [https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port](https://www.lowyinstitute.org/the-interpreter/hambantota-the-chinese-port)
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+***编辑/校对/发稿：***Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-2.jpg)
