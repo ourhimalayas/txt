@@ -2,32 +2,39 @@
 ---
 
 
-## 河南又要死多少人？
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1562536/)
+## 加拿大政府对华为5G设备问题继续犹豫不决
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562654/)
 
-by：银河勇气星骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/09/羊1.png)图片：骄子![](https://assets.gnews.org/wp-content/uploads/2021/09/图片-1-2.png)图片来源：网络
-河南在今年夏季遭遇了暴雨和泄洪以后，秋季又在暴雨和泄洪。夏天是农作物生长的季节，洪涝淹死了多少庄稼？秋天是收获的季节，最怕雨水，收粮食赶上下雨泄洪，收获的季节也许一无所获。农民一年的辛苦都白费了那也说不定的。没有了收入，他们吃什么？
+栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-427.png)
+9月28日，获得连任的加拿大总理特鲁多在选举后首次举行的记者会上表示，越来越多的加拿大通信公司，开始从他们的网络中移除华为设备，但新政府成立之前不可能做出决定。政府需要在未来的几周内，进一步权衡考虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-436.png)
+作为五眼联盟成员，加拿大以等待情报机构报告为由，对华为禁令已经研究了三年，封锁措施没有公开，或与孟晚舟及中共“人质外交”有关。
 
-雨水天气影响到粮食收成，也会影响到畜牧产业。这新闻上清清楚楚写着，溺亡羊群已经流入市场。淹死的家畜不能吃，暴雨过后因为水源地水污染、环境卫生破坏、病媒生物孳生等各种危险因素增多，容易引起多种疾病发生和传染病暴发流行。今年夏天的时候，那些死在暴雨中，但至今未被找到的尸体，小龙虾吃了一部分，剩下那部分有没有找到？对环境和水源地的病毒细菌处理有没有到位？不知道。反正河南暴雨过后几天又是封城又是隔离还划定危险区，很难说是在处理新冠病毒还是在处理暴雨过后的细菌和环境污染，抑或是维稳。
+去年6月以来，爱立信和诺基亚，成为加拿大多家大型无线供应商的5G建设合作伙伴首选。虽然华为无缘爱立信、诺基亚的5G建设项目，但在其4G设备中仍占有相当大的比例。
 
-多个养殖场病羊流入市场，畜牧局称会“指导统一无害处处理”。什么叫统一无害处处理？意思还是要给人吃吗？这些处理成本谁来出？养殖场还有没有收入？“什么叫养殖场认为溺亡羊不属于病羊？养殖场专搞养殖的他能不懂这个？如果细菌滋生，加上新冠病毒，再加上毒疫苗，又炮制出个啥新病毒，得病了去哪儿看病去？夏季被淹掉的医院还历历在目，也才过去几个月，这么短的时间，医疗系统恢复了没有？医疗承载力够不够？是否怀孕大肚还要上班，还是生理期内都没时间上厕所？医疗报销保险金准备好没有？
+(本文仅代表作者观点)
 
-另外秋季这次泄洪有没有人被淹死的，一定不能有，有也是没有，反正死了很多羊，而且溺亡病羊已经流入市场了。夏季淹死那么多人，据文贵先生爆料，不应该泄漏的信息，一个也没泄漏，共产党内部庆祝维稳大获成功。我们从社交媒体上看到的那些死人，都是可以被看到的。那些淹死在地铁里和隧道里的人，这种在共产党眼里，是可以批量死给你看的。美国在阿富汗死一个人，拜登都得迈着老腿去接机；黑人弗洛伊德死后，拜登的老腿都不敢直着，不停给人下跪。他就算是演戏也得好好配合演。世界各个文明国家在应对不同的自然灾害和人为伤害对人命的保护上面，都做出了巨大的进步，一切以人命为主，所以遭受伤害后的老百姓，有资金赔偿，还有人道关怀。但是最近的疫苗事件，这一切都被大打折扣了，你不打疫苗就不让上班，不允许进入公共区域。人命遭到了前所未有的破坏，所幸的是文明国家那个文明的框架还在，被强制打疫苗，你是可以上街的，你可以反对这种对人命的残害。普通老百姓，能做的也只有上街。至于在共产党这儿，人命就是掌权者的工具。共产党不断地向西方国家输入共产主义，在中共国的媒体上，死人那是常有的事儿。那么被输入共产主义的文明国家，死人也应该变成常有的事，所以打疫苗死去的人，也应该被呈现在媒体上。好合理啊，世界命运共同体，我们都是共产主义接班人。共产主义就是得死人，不停地死人。媒体上报导死人则是按需求来死。所以你看，这次秋季泄洪溺亡的人命还不如羊命。
+补充链接：
 
-文贵先生最近的直播，祈祷的时候，又加上了郑州的同胞们。
+[https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners](https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners)
 
-这是继夏季大洪水之后，再一次为郑州祈祷。
+[https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran](https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran)
 
-河南郑州，中原佛手，阿弥陀佛。
+[https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g](https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g)
 
-（文章内容仅代表作者观点）
+参考链接：
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+[https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html](https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
 
+终审: 暗黑
+校正/发稿：浪迹天涯
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

@@ -2,26 +2,31 @@
 ---
 
 
-## 阴云密布
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1562737/)
+## 火币会在2021年底前清理现有中国大陆客户
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1562913/)
 
-撰稿：文雨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/093001-1.jpg)
+北京——中共国加密货币交易所火币周日表示，它已在周五（9月24日）停止接受新的中国大陆客户，并将在年底前终止与大陆客户的合同，以遵守当地法规。
 
-村里天气预报称，近日将有恶劣天气，而今天联邦政府将停止发放COVID19灾难救助的新闻尤如晴天霹雳，给不确定的将来又蒙上了一层厚厚的乌云。新闻是说，对于疫苗接种已达70%-80%的州，联邦政府将逐步减少，甚至取消疫情救助，此举旨在使州领导人尽量减少使用封锁措施来控制疫情。对村里已高达86%的接种率，很显然今后无论村里疫情如何，生活和生存的压力是巨大的。
+中共国监管机构上周五加大了打击力度，禁止加密货币交易和挖矿行为，并澄清海外交易所被禁止通过互联网向内地投资者提供服务。
 
-今天昆州州长在发布会上说，打了疫苗的人会感染病毒，而且也会在社区传播，但是如果打了疫苗，则需要去医院的机会会非常低。听此一言，感觉疫苗的功能在本世纪也是有了新的突破了，疫苗不能阻止流行病的传染，不能保护人们，不能阻止人们不被病毒感染，唯一可能的是可以减少去医院的概率，疫苗要保护的是现有的医疗体系，这是今天政府的发布会上说的，似乎有点天方夜谭。
+火币在一份声明中表示，在保证资产安全的前提下，将有序退出现有中国大陆客户。
 
-无论怎样担心，焦虑，日子总要一天天过，准备好过冬的＂棉衣＂，备好药，继续在推特和盖特发声，为明天，为未来抗争！
+**简评：**
 
-参考来源：
-1https://www.abc.net.au/news/2021-09-28/covid-disaster-payments-to-be-scaled-back-as-vaccination-rates/100499038
-2 https://youtu.be/330ZybTNuRo
+爆料革命和新中国联邦的战友们都知道，CCP非常惧怕即将上线的喜交易所和喜币，这次对于火币等交易所的针对性打击，充分证明了爆料革命招招都击中了中共的要害。
 
-(文章内容仅代表作者观点)
+[原文链接](https://www.theepochtimes.com/cryptocurrency-exchange-huobi-to-clean-up-existing-mainland-clients-by-end-2021_4018582.html)
 
-*编辑：MG1*
+***编辑：【英国伦敦喜庄园编辑部】***
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+*翻译: Johnston2021 | 简评/校对: clau*
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

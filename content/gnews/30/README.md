@@ -2,33 +2,35 @@
 ---
 
 
-## 继承蓬佩奥政治遗产，拜登政府持续关注维族人处境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562584/)
+## 有声|台湾与印度大学签约再增三处教育中心
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562733/)
 
-栏目记者/责任编辑：在远方
+配音：纽约香草山美食部 – 玫瑰园
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
 
 
-继前任国务卿蓬佩奥于今年1月19日宣布美国认定中共在新疆犯有“种族灭绝和反人类罪”之后，美国参议院 于7月14日再通过《防止维吾尔人强迫劳动法》。本周二，白宫发言人表示本届政府认可该法案方向，并在研究如何执行法案细节，同时重申美国对新疆维吾尔人处境持续关注的立场。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0929AM（1、4）.003.jpeg)
-对于中共在新疆的暴政，美国政府目前已经开始推动根据马格尼茨基法案实施的制裁，包括对中共相关负责官员的制裁，以及涉及新疆产品的进出口管制、商业警示，并且在G7上承诺将确保所有全球供应链，都不再继续使用强制劳动的产品等措施。
+台湾驻印度代表处于24日与印度阿育王大学（Ashoka University）签署合作备忘录，设立台湾教育中心。  26、27日再与昌迪加尔大学（Chandigarh University）及印度理工学院罗巴尔分校（IIT-Ropar）签署成立台湾教育中心的合作备忘录。 使在印度的台湾教育中心增加到21所。
 
-中共以反恐为借口，将百万维族人关进名为再教育基地的集中营，其中也包括其他少数民族及宗教人士，这些人被迫接受洗脑教育、强迫劳动，放弃宗教信仰，甚至被迫接受绝育措施并受到各种酷刑。前国务卿蓬佩奥在卸任前将中共暴行定义为”种族灭绝罪” ，被誉为川普政府最为重要的”政治遗产”之一。
-(本文仅代表作者观点)
+在印度的台湾教育中心，主要负责媒介台印双方的学术交流活动及研究，以及在印度推广中文学习课程、程度认证、及各种留学服务。随着中共影响力的逐步下降，各国都在逐渐转向与台湾合作，改由台湾提供中文教学师资及教材。 台湾保留了真正华语文化的精髓，也同样实施民主法治的体制。 经由台湾教育中心来推广中文，促进与世界的交流，是当下最好的选择 。与此同时，台湾的存在也是”中国人不等于共产党” 的最佳证明和诠释！
 
-参考链接：[白宫要义: 白宫: 拜登总统直接对中国关切新疆维吾尔人处境](https://www.voachinese.com/a/white-house-xinjiang-uyghur-20210928/6249408.html)
+[文字版原文：台湾与印度大学签约再增三处教育中心](https://gnews.org/zh-hans/1560404/)
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+音频处理：喜山必胜Maverick
 
-终审：文龙
-校正/发稿：我不在这里
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

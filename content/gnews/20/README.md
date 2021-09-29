@@ -2,32 +2,32 @@
 ---
 
 
-## 媒体审查深化 美国记者的领英页面遭中国“下架”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562669/)
+## 中共负面影响下,英国担心中国留学生数量恐影响国家安全
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562866/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-426.png)
-栏目记者/责任编辑：飞虹
+栏目记者/责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-438.png)
+英国国会外交委员会主席 图根哈特 27日在”泰晤士报”撰文称，今年英国各大院校的中国留学生人数创下新高, 有些院校甚至1/4的学费收入来自中国留学生。而 英国的高等教育和研究机构中, 中国籍留学生占比过高恐有违英国国家利益，甚至影响国家安全。
 
-美国新闻网站记者贝书颖，于27日深夜收到来自职业社交网站领英客服的电邮，通知她说，其领英页面不能再在中国的网页上显示。 贝书颖是华盛顿知名的国家安全记者和中共问题专家，中文流利，擅长报道中共国在海外的政治影响力。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-437.png)
-她在领英页面的简介部分主要介绍了她在新闻调查领域取得的成就，是此前“中国电文”项目的首席记者。“中国电文”是2017年中共政府的泄露文件，包含新疆大规模拘禁营的运行细节。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-51.jpeg)
 
-贝书颖正在撰写一本将在明年出版的新书，题为《北京规则：资本主义、冠状病毒与中国追求全球影响力》。 领英并没有说明屏蔽原因，但表示，更新页面简介内容后会重新审核，暗示其删除互联网上的政治敏感内容。
+据悉,目前约有21万6千名中国学生在英国各大学院校就读, 专业涵盖航太工程、生命科学、奈米科技、资通讯等具有战略科研领域，与此同时,英国众多院校也与中国大学或企业签署了多项合作协定，其中包括接受来自中资企业所提供的, 每年数千万英镑的所谓研究计划补助。
 
-(本文仅代表作者观点)
+图根哈特认为，在习近平主导下，中共比过去更加集权、自负, 比以往更积极使用经济捆绑/胁迫手段来要挟其它国家。 英国必须尽快调整对中国的立场，并重新评估上述互动及所谓伙伴关系, 是否符合英国的长远利益。
 
-参考链接： [https://www.voachinese.com/a/linkedin-blocked-us-journalist-account-in-china-20210928/6249302.html](https://www.voachinese.com/a/linkedin-blocked-us-journalist-account-in-china-20210928/6249302.html)
+(本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
+参考链接: [英國外委會主席示警 大學院校過度依賴中國資金](https://www.cna.com.tw/news/aopl/202109280380.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-终审：暗黑
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-校正/发稿：浪迹天涯
+终审：文龍
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-425.png)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
