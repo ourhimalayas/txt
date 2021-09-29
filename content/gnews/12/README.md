@@ -2,30 +2,45 @@
 ---
 
 
-## 日本知名医生内海聪推特被封，入驻盖特
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1563258/)
+## 台湾正在修订法律以防止中共窃取半导体技术
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1563379/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：纽约香草山农场 – 四季
 
-近期，日本医生内海聪在接受本社记者采访时表示，他在推特账户遭到封号后开始使用盖特，并表示盖特更便于向外界传递信息。
-9月21日，内海聪医生在专访中两次提到他的推特账户被封锁。他说：“我经常使用社交媒体，Facebook上有大量关注者。我也用过推特，但完全被封号了。”他打趣说，自己受到了与美国川普总统同等的待遇。
-除了推特账户被封外，内海聪医生的Youtube频道也被删除了很多视频，盖特成为内海聪医生发声渠道的最佳选择。他说：“可以传递信息的地方越来越少，正好在此时听说了盖特，所以开始使用。”他特别表示，盖特的使用体验不错，没有被删帖封号，更便于向外界传递信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8.2-1-scaled.jpg)
 
-7月7日，内海聪医生因在推特上发表否定疫苗的言论而被推特标记为错误的信息。现在，他的账号在推特上已经完全消失了。
-内海聪医生是日本著名的药害学专家，在东京经营一家诊所，专门治疗因药物受到损害的患者。他经常在日本各地进行演讲活动，与政府交涉，并出版了多本书籍，其中一本名为《医生告诉你中共病毒疫苗的真相，真正可怕的不是中共病毒而是疫苗》的书登上日本杂志畅销书生活类排行榜第二位。
 
-*注：本文仅代表作者观点，与 Gnews无关*
 
-*参考链接：*
 
-[内海聪医师是日本著名的药害学专家，在 Facebook 上拥有 15 万粉丝，粉丝量排名日本第六！ 这次专访时长 30 分钟，从一位药害学专家的立场，阐述了疫苗的危害。并在采访中两次提到，他的推特账户被冻结， GTEER 给他的工作带来了很大的帮助**👍**](https://gettr.com/post/pcdmcw386d)
+据[OAN](https://www.oann.com/taiwan-proposes-tightening-law-to-prevent-china-stealing-technology/)网站援引路透社9月29日报道，台湾政府周三提议收紧一项法律，以防止中共国窃取半导体关键技术。
 
-[内海聡](https://ja.wikipedia.org/wiki/%E5%86%85%E6%B5%B7%E8%81%A1#cite_note-43)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1091-1-2021-09-29T093644Z_1_LYNXMPEH8S0HY_RTROPTP_0_CHINA-TAIWAN-FRUIT_1.jpg)2021年6月30日，台湾桃园，一面台湾国旗迎风飘扬。 (REUTERS/Ann Wang/File Photo)
 
-[コロナワクチンの安全性に警鐘を鳴らした一冊　ネット書店からページそのものが消える［生活実用書ベストセラー］](https://news.yahoo.co.jp/articles/65e52e0c61e3b0a35ca78a74b4238b7be2e99030)
+台湾的大陆事务委员会说，它正在提议修订一项有关中共国关系的现行法律，要求获得政府资金用于某些技术的人在前往中共国之前必须获得许可。
 
-* * *
+台湾拥有蓬勃发展和世界领先的半导体产业，其半导体技术广泛用于各个领域，从战斗机到汽车，无所不包。台湾政府长期以来一直担心中共国试图通过工业间谍活动、“挖走”人才和其他方法来复制这一成功。
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+台湾政府高级官员表示，此次修订是为了保护该岛的先进芯片制造技术，业内专家称该“国家技术”领先于中共国的几代。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

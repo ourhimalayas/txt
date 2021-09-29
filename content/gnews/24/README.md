@@ -2,12 +2,9 @@
 ---
 
 
-## 为什么强制没有用的含有石墨烯的毒疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1563130/)
+## 阿尔内·布尔卡德博士教授（Prof. Dr. Arne Burkhardt）对于新冠病毒疫苗所产生副作用的病理学实例分析，如炎症
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1563218/)
 
-- 制作：JIHO
+对曾接受疫苗接种的病人尸检的病理分析显示，淋巴细胞在肌肉组织中异常聚集，导致肌肉组织松弛、炎症和淋巴细胞浸润。
 
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+原视频：https://odysee.com/@BannedFromYoutube:d/Pressekonferenz-Tod-durch-Impfung-Undeklarierte-Bestandteile-der-COVID-19-Impfstoffe:a

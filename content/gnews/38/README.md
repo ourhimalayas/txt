@@ -2,32 +2,31 @@
 ---
 
 
-## 中共负面影响下,英国担心中国留学生数量恐影响国家安全
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562866/)
+## 火币会在2021年底前清理现有中国大陆客户
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1562913/)
 
-栏目记者/责任编辑：云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-438.png)
-英国国会外交委员会主席 图根哈特 27日在”泰晤士报”撰文称，今年英国各大院校的中国留学生人数创下新高, 有些院校甚至1/4的学费收入来自中国留学生。而 英国的高等教育和研究机构中, 中国籍留学生占比过高恐有违英国国家利益，甚至影响国家安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/093001-1.jpg)
+北京——中共国加密货币交易所火币周日表示，它已在周五（9月24日）停止接受新的中国大陆客户，并将在年底前终止与大陆客户的合同，以遵守当地法规。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide1-51.jpeg)
+中共国监管机构上周五加大了打击力度，禁止加密货币交易和挖矿行为，并澄清海外交易所被禁止通过互联网向内地投资者提供服务。
 
-据悉,目前约有21万6千名中国学生在英国各大学院校就读, 专业涵盖航太工程、生命科学、奈米科技、资通讯等具有战略科研领域，与此同时,英国众多院校也与中国大学或企业签署了多项合作协定，其中包括接受来自中资企业所提供的, 每年数千万英镑的所谓研究计划补助。
+火币在一份声明中表示，在保证资产安全的前提下，将有序退出现有中国大陆客户。
 
-图根哈特认为，在习近平主导下，中共比过去更加集权、自负, 比以往更积极使用经济捆绑/胁迫手段来要挟其它国家。 英国必须尽快调整对中国的立场，并重新评估上述互动及所谓伙伴关系, 是否符合英国的长远利益。
+**简评：**
 
-(本文仅代表作者观点）
+爆料革命和新中国联邦的战友们都知道，CCP非常惧怕即将上线的喜交易所和喜币，这次对于火币等交易所的针对性打击，充分证明了爆料革命招招都击中了中共的要害。
 
-参考链接: [英國外委會主席示警 大學院校過度依賴中國資金](https://www.cna.com.tw/news/aopl/202109280380.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[原文链接](https://www.theepochtimes.com/cryptocurrency-exchange-huobi-to-clean-up-existing-mainland-clients-by-end-2021_4018582.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+***编辑：【英国伦敦喜庄园编辑部】***
 
-终审：文龍
-校对/发稿：谐趣园
+*翻译: Johnston2021 | 简评/校对: clau*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

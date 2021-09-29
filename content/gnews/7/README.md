@@ -2,52 +2,24 @@
 ---
 
 
-## CCP借纽约时报打压伊维菌素
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1563292/)
+## 秘翻在线：法国修改疫苗法令为中共疫苗接种游客放行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1563411/)
 
-作者：纽约香草山福音部 – 凤鸡
+翻译 : Charline
+校对：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Touristes-chinois-Paris-800x500-1.jpeg)图片来源：lecourrierdesstrateges
+法国9月22日通过的第2021-1215号法令修改了疫苗接种计划。这一法令, 放宽了使用未被欧洲药品管理局认可的疫苗的旅行者进入法国的条件。
 
+2021年9月22日法国总理让·卡斯特在《官方日报》上公布的一项最新法令规定，因在国外接种疫苗而被注射了未经EMA（欧洲药品管理局）验证但经世界卫生组织（WHO）验证的疫苗的人，将可以来到法国。除了法国授权的疫苗外，世卫组织迄今已验证了中国疫苗Sinovac、印度血清研究所疫苗和国药集团疫苗。
 
+已经接受了这些疫苗之一的完整接种计划的旅行者将能够获得法国健康通行证，条件是他们还必须接受一剂RNA疫苗的注射。如果他们只接种了一剂中国疫苗，他们 “必须接种两剂mRNA疫苗，以完成他们的接种计划，从而获得在法国的健康证”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+尽管法国健康证依然有严格限制，但针对外国游客的执行人员找到了让接受过中国疫苗剂量的旅行者前来的诀窍。因此信息很明确：即使您的疫苗接种证在法国不被承认，只要您遵循法国的疫苗接种选择，您就可以去法国旅行。
 
+因此，法国政府通过一项 “卫生 “法令，避免了其旅游业首当其冲的情况，因为如果不承认中共国疫苗，就会失去数百万的游客和欧元收入。
 
+（本文仅代表原作者个人观点）
 
-下面图片中的文字中说美国因为滥用伊维菌素，所以中毒人数大幅上涨，这简直就是一派胡言。
+原文链接：
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210930_1.jpg)
-
-
-
-出现这样的文字，说明纽约时报也被ccp操控了，成为他的大外宣了，要不怎么会发这种毫无根据的东西？这也证明了他们还在坚定不移地执行他们的人口减少计划。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20210930_2.jpg)
-
-
-
-什么叫做滥用？这完全是网络霸凌，意思是说在ccp说可以用之前，使用任何药物都是滥用，这有点像那句台词“不管你信不信，反正我是信了，不要你信，只要你服就可以了”。这种搞法主要还是给墙内洗脑，西方虽然有魔鬼福奇和美国卫生部领导柯林斯站台，但是西方的民众已经开始觉醒，我相信不久的将来国内也将很快觉醒。看我们英国的大卫兄弟，他就是用伊维菌素和地塞米松走出重症室的，还有无数的实例证明伊维菌素特别有效。
-
-我们一定要加大媒体宣传，让这个世界性的邪恶势力的人口减少计划彻底破产！
-
-（本文仅代表作者个人观点）
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-3.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Comment la France change le décret sur le schéma vaccinal pour les touristes chinois](https://lecourrierdesstrateges.fr/2021/09/25/comment-la-france-change-le-decret-sur-le-schema-vaccinal-pour-les-touristes-chinois/)

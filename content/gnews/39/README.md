@@ -2,47 +2,32 @@
 ---
 
 
-## 中共之恶-杀人诛心的洗脑
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1562852/)
+## 美国政府数据显示，近5万人接种新冠疫苗后14天内死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562889/)
 
-作者: 纽约香草山农场-新世界的一员
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-439.png)
+上周六，俄亥俄州的医疗自由权律师 托马斯·伦茨 宣布，根据爆料人提供的 医疗护理救助服务中心CMS相关数据显示，仅在医疗保险患者中，接种新冠疫苗后于14天内死亡的病例就高达48,465例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-30.jpeg)
 
+CMS数据库涵盖超过半亿医疗保险受益人的数据，是美国最大的、可用于研究新冠病毒的数据库。根据疾控中心官方定义，一个人完成疫苗注射14天后，才会被认定为”接种了疫苗”。言下之意，如果死亡发生在14天以内，政府医疗机构不会承认其与疫苗接种的相关性。托马斯还向公众展示了CMS服务器的原始数据截图，并强调这仅是来自不超过20%美国人口的数据。
 
+此前，罗斯博士团队发布的，新冠疫苗至少造成15万美国人死亡的研究，引起广泛关注。近几日，真相工程相继发布来自联邦医疗机构的员工、强生药厂的科学家揭露新冠疫苗真相的视频，引发媒体风暴和民众的热议。许多有影响力的政客、歌手、NBA明星等也纷纷站出来反对疫苗。随着事件的发酵，更多疫苗受害者的声音也正在被关注。
 
+(本文仅代表作者观点）
 
+参考链接：[Nearly 50k Medicare patients died soon after getting COVID shot: whistleblower](https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/)
 
-为了苟活当下，我每天步行跑在生存的路上。今天经过学校门口，那清脆悦耳的童音让我的心情变得舒畅。可是仔细聆听，清纯的童音居然朗诵出一句伟大的党妈妈！伴随的还有一个年轻的老师温柔地问孩子党妈妈是否有生日。清纯的童音不仅回答有而且还回答了具体的年份！吓得我连忙离开现场。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/13-14.png)
-学校应该是教育人成才的神圣殿堂，是文明的启蒙地！更是每一个人、每一代人开启梦想的摇篮！如今，它却沦为了共产党的植毒中心！在被其污染的环境、教育下人性窒息的我，在现实生活里表达不了真实的思想，无处述说真实的历史，只有日常的苟活 。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-刚进单位，隔壁店家过来诉苦说：“姐姐，现在生意越来越清淡了，赚的还不如用的多，外地人都不见了。”我叹道：”不是跟你说过许家印要倒，他一倒，要害到各行各业的两亿人以上，那要害多少人没有了工作，没有工作不回老家呆，饿死啊，许家印那么多钱还不起，银行不倒吗？经济能好吗？接下来多米诺骨牌效应，苦哈哈的日子要开始了。
-
-常听身边很多人感叹，什么已开始吃老本了，这日子没法过，明年总会改善的吧？国家总会出政策的吧？我说，中共国跟每一个国家关系都搞得那么紧张，人家不喜欢跟你们做生意了，内循环循环给谁呀？日子艰难才刚刚开始。 她们对我这样的言论是很反感的，经常用怪异的眼神看我，我也习惯了。虽然她们爱理不理地拒人千里之外，可是我依然不忍见防火墙下无知的人们遭受挫折、遭受伤害、遭受灾难，我总是期望她们能观事实而辨真相。她们明明说得出共产党是谎言党、贪腐党，但她们依然通情达理地为共产党辩护，认为中共说谎言是为了创造好的国际影响，哪一个国家都有一点贪腐。我人微言轻，怎能不徒劳无功？
-
-中共太厉害了，洗脑从娃娃抓起，宣传更是从各个方面无死角地给民众进行洗脑，如新闻联播、抖音、腾讯、微博、微信、报纸等各种媒体！反正你眼里看到的，耳朵听到的，都只有一个声音——感恩党的伟大！中共太毒了，深懂得话语权远胜核武器，杀人还诛心！你在朋友圈晒些真人真事，不仅没人点赞，有人留个言还能气抽你；你晒个城管邪恶执法，他会说你眼里就只看到坏人吗？你转发个吃呀玩的图片，点赞人会有一大片；你晒一下疫苗的副作用和救命的药，却无人问津；你晒一下明星绯闻，评论区能翻了天！
-![](https://assets.gnews.org/wp-content/uploads/2021/09/13-1-1.png)
-这是个什么世道啊，人心呢？人性呢？信任呢？正道呢？善良呢？统统不见！共产党，好一个杀人诛心呐！再不快点消灭中共，中国人就要被拖进了蓄生道，此共党不灭，天地不容！ 几代人的愚昧导致了武汉和郑州的大灾难！共党不除，类似的大屠杀必将连绵不绝。我们这一代人有幸活在信息时代，如果再不懂得分辨真假善恶，脑子里进的水迟早都会从眼睛里流出来。该懂得醒悟了！
-
-
-
-校对/编辑/发稿: Amanda艾曼达
-
-终审：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-3.jpg)
+终审：暗黑
+校对/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
