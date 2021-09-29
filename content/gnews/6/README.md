@@ -2,51 +2,39 @@
 ---
 
 
-## 西方邪恶资本仍不忘在中共灭亡前与其勾兑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562557/)
+## 加拿大政府对华为5G设备问题继续犹豫不决
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562654/)
 
-栏目记者/责任编辑：Zion文恩
+栏目记者/责任编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-427.png)
+9月28日，获得连任的加拿大总理特鲁多在选举后首次举行的记者会上表示，越来越多的加拿大通信公司，开始从他们的网络中移除华为设备，但新政府成立之前不可能做出决定。政府需要在未来的几周内，进一步权衡考虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-436.png)
+作为五眼联盟成员，加拿大以等待情报机构报告为由，对华为禁令已经研究了三年，封锁措施没有公开，或与孟晚舟及中共“人质外交”有关。
 
+去年6月以来，爱立信和诺基亚，成为加拿大多家大型无线供应商的5G建设合作伙伴首选。虽然华为无缘爱立信、诺基亚的5G建设项目，但在其4G设备中仍占有相当大的比例。
 
+(本文仅代表作者观点)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+补充链接：
 
+[https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners](https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners)
 
+[https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran](https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran)
 
+[https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g](https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g)
 
+参考链接：
 
-面对当今全球金融滞涨，以及中共巨额的债务违约，全球各国的政商精英鲜有招架之力。许多邪恶资本家寄希望于与中共勾兑，寄希望于在中共灭亡前，争得最后一份利益。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-56.jpg)
-9月28日，郭先生在盖特视频中谈及全球即将面临的危机，以及全球邪恶资本无视中国劳动人民的死活进一步与中共勾兑的阴谋。
+[https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html](https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html)
 
-郭先生说: 中共内部的斗争已达空前规模。内部广泛讨论：中共二十大前，是曾庆红．王岐山，孟建柱等势力，哪个会优先“人头落地”，抑或是被全部抓捕。此外，由于贸易制裁和外汇枯竭，党内纷纷讨论如何解决当前的限电 、限粮的困局。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5-42.jpg)
-郭先生指出，无论中共二十大情势如何，中共的虚假房地产经济都无法逃离崩溃的命运。然而，当下所有寄希望与中共在经济领域取得合作，大搞所谓“世界经济”的国际政商精英，都是心存幻想。——澳大利亚仍有部分势力，希望与习近平当局勾兑，以换取向中共出口铁砂石的盈利；殊不知，中共的市场供应链已经完全被切断——房地产崩盘后，其赖以生存的社会金融、保险、信托、债权业相继垮塌，继而建材、材料产业会迎来大崩溃，中共还有何资金进口铁矿等原材料呢？。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5.1-6.jpg)
-此外，美国的一些邪恶资本势力仍希望在“华为”上大做文章，觊觎5G产业这一块肥肉。他们罔顾华为是中国人的血汗工厂，更无视中共奴役中国廉价劳动力的事实。西方的资本家，为了赚钱，丧失了道德和良知。此举与当年孕育了印尼排华事件的中共当局和一些昧了良心的香港资本家，如出一辙。每个中国人都不应忘记印尼排华这一对中国人犯下的滔天罪孽，更应秉承新中国联邦人无我、利他、求真、守法的品格，在即将到来的全球性金融灾难之时，让新中国联邦事业成为人类的希望。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
 
-信息链接：
-[郭先生盖特：9月28号：七哥在开会前．紧急给战友们录个视频，全世界的人民的生活方式和所有的全球的供应链就有巨大的改变。我们该如何应对，共产党内部正在酝酿的腥风血雨．是先抓曾庆红．王岐山，孟建柱，还是全部抓捕呢？](https://gettr.com/post/pchtzk1ea1)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
+终审: 暗黑
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

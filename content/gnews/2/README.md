@@ -2,33 +2,37 @@
 ---
 
 
-## 秘翻在线：英国政府试图绕过议会实施疫苗护照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1562595/)
+## 有声|法官解除接种禁令 纽约市教职工处境艰难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562706/)
 
-#### 文章撰写： 寶寶
+配音：纽约香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/280921asfd54f6h4ty8kiu4894sd6f46sa5dvaxpass1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-据巅峰新闻（Summit News）9月28日报道，英国政府被指试图绕过议会通过后门实施疫苗护照，尽管之前保证不会考虑该计划，但该计划仍在审查。
 
-正如我们本月早些时候强调的那样，就在卫生部长萨吉德·贾维德（Sajid Javid）断言疫苗护照已被取消的第二天，政府宣布，如果病例和住院人数增加，疫苗护照将成为其冬季应对COVID的“不可或缺的”部分。
 
-根据政府的“B计划”，疫苗护照将构成抵御冬季COVID浪潮的“第一道防线”，尽管它们在以色列的推广已被证明对减少COVID病例的作用为零。
+针对纽约市强制要求教职人员接种新冠疫苗的规定，继第二巡回上诉法院的法官于上周五批准临时禁令后，周一，由三名法官组成的快速审查小组宣布解除了这项禁令。
 
-意识到疫苗护照可能难以通过议会投票，政府现在正在发起“公众咨询”，试图争取对该计划的支持。
+按照纽约市政府的规定，从本周二开始，拒绝接种疫苗的教职人员，要么选择无薪休假一年，要么离职。但鉴于审查小组刚刚做出的决定，目前尚不清楚市政府是否会立即执行。据悉，原告律师已经向最高法院申请司法干预。
 
-“该计划原本似乎被搁置，但在周一晚上，政府发起了一次动议，如果Covid-19病例威胁到英国国家医疗服务体系（NHS），政府就今年秋季和冬季使用疫苗护照征求意见，”据每日电讯报报（Telegraph）报道。
+法官的这一决定，不仅使学校和学生失去了职员和老师，还因此切断了很多家庭的收入来源，致使他们无法支付房租、水电和其他生活必需品。而在世界经济危机到来之际，这一决定将会对社会造成无法挽回的伤害。
 
-“该计划提案还为扩大到夜总会、音乐场所、户外节日、音乐会和体育赛事之外的场所。”
+[文字版原文：法官解除接种禁令 纽约市教职工处境艰难](https://gnews.org/zh-hans/1560609/)
 
-由于政府拒绝实施议会投票，许多记者认为此举是试图绕过议会。
+音频处理：喜山必胜Maverick
 
-疫苗护照计划极其愚蠢的是，它去除了提供病毒阴性测试结果的选项。
+*发稿：*Yuki jiang
 
-换句话说，证明你没有感染病毒并不足以允许进入公共场所，但证明你已经遵​​守并接种了效果欠佳的疫苗却可以，要知道打了疫苗仍然可能携带病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-英国政府从一开始就有关疫苗护照的意图向公众撒谎，最初声称并未考虑疫苗护照，一边又在为其拨款。然后宣布将在9月底引入疫苗护照，然后回溯，现在疫苗护照再次提上日程。
+**更多资讯，更多关注**
 
-参考文章：[**British Government Trying to Bypass Parliament to Implement Vaccine Passports**](https://summit.news/2021/09/28/british-government-trying-to-bypass-parliament-to-implement-vaccine-passports/)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-本文仅代表作者本人观点，不代表Gnews平台
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
