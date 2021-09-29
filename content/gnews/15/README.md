@@ -2,34 +2,61 @@
 ---
 
 
-## 从白手套孟晚舟被释放看中共对西方国家的蓝金黄
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1561449/)
+## 众议员吉姆·乔丹：唯一不想调查 中共病毒起源的人就是国会的民主党
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1561496/)
 
-#### 作者:李易通
-编辑:MSGZ
-![](https://assets.gnews.org/wp-content/uploads/2021/09/12-11.jpg)
-图片来源 rfi
+众议员吉姆·乔丹： 唯一不想调查 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的人就是国会的民主党人。 【附thepostmillennial的相关文章:世卫组织称,调查#中共病毒起源的时间不多了】
 
-2021年9月25日，中共军企华为公司的首席执行官孟晚舟乘坐中共政府的波音777飞机回到了深圳。在这之前，孟晚舟被加拿大政府扣留了将近3年的时间，期间美国政府一直试图将孟晚舟引渡到美国，但最终孟晚舟与美国司法部达成了和解，被释放回中共国。
 
-9月26日，爆料革命的发起人郭文贵先生在GTV视频直播中揭露了孟晚舟被释放回中共国的内幕。更加令人震撼的是郭先生早在2018年12月12日就在视频直播中作出判断，有 90%的概率孟晚舟会被释放，结果我们看到了，与郭先生预测的一样。是什么让郭先生早在几年前就做出了正确的判断？
 
-起底华为公司背后的大老板是中共国国家主席习近平的姐夫，本质上华为就是习近平的家族企业。华为公司同时也是中国的准军事企业，由中共解放军总参二部管辖。华为公司存在的意义是为了给中国的军队提供技术和设备，同时也为中共及军队搜罗海外情报。
+> The only people who don’t want to investigate the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) are Democrats in Congress. [https://t.co/tEG560m62y](https://t.co/tEG560m62y)
+> — Rep. Jim Jordan (@Jim\_Jordan) [September 28, 2021](https://twitter.com/Jim_Jordan/status/1442654325424246788?ref_src=twsrc%5Etfw)
 
-华为是中共对西方国家发动科技超限战的重要战略支点，其窃取的5G技术以及正在研发的生物芯片技术将是帮助中共在AI和量子电脑领域获得全球决胜地位的关键所在。
 
-华为的傀儡老板任正非是曾经获得过中共一等功表彰的中共党员，任正非的女儿孟晚舟作为华为公司的财务首席执行官同样也是享受特殊军籍待遇的中共党员。华为公司作为中共对外获取情报和蓝金黄的平台，广泛渗透了西方国家的政界、军界和科技界，而孟晚舟亲自执行了这些渗透，它的本质就是中共政府的高级特务。那些被渗透后跟华为有利益勾兑的组织和个人是绝不希望孟晚舟被引渡到美国审判的。
 
-为什么孟晚舟对于中共当权家族的价值极其非凡，是因为由孟晚舟本人代持了巨额的中共家族信托基金，她是最终能把钱取走的关键人物，也就是相当于宝藏密码。所以这就是中共政府会不惜一切代价把孟晚舟交易回去的本质原因。中共跟拜登政府派出的特使特里达成的秘密协议的内容之一就是遣返孟晚舟回到中共国，并且拜登政府答应中共会给华为一定的发展空间。
+前白宫经济顾问皮特·纳瓦罗： 在川普时期,福奇已经没戏了,他完了。这段视频抨击了大西洋杂志-一左翼霉体，在福奇显然应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 及其杀死的数百万人负责任的情况下仍为福奇开脱。在亚马逊购买《川普时代》：[https://bit.ly/TwitterFauciFork](https://t.co/a1KWEzBNPL?amp=1)
 
-孟晚舟被交易回中共国，再次验证了文贵先生获取情报的能力和准确性，同时也让西方国家的正义力量们看到了中共对西方国家实施蓝金黄的力道和规模之巨大，这将有助于西方国家进一步看清中共对西方国家的致命威胁。
 
-接下来，华为公司与中西方科技角逐将引发更大范围的剧烈冲突，包括由此事件的传导效应大概率引发美国两党的较量，这会进一步影响明年的中期选举结果，最终将会体现在“以美灭共”关键政治角逐中。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+> In Trump Time sticks a fork in Fauci and he's done. This video skewers the Left Wing Atlantic for pulling its Fauci punches when Fauci is clearly responsible for the Chinese Communist Party virus and millions it has killed. Buy In Trump Time at Amazon: [https://t.co/zydWckJK1w](https://t.co/zydWckJK1w) [pic.twitter.com/NA82WxwrZT](https://t.co/NA82WxwrZT)
+> — Peter Navarro (@RealPNavarro) [September 28, 2021](https://twitter.com/RealPNavarro/status/1443001502352687104?ref_src=twsrc%5Etfw)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+参议员马可·卢比奥: 康明凯和斯帕沃根本不应该被拘留。经过多年的非法任意逮捕，他们早该获释了。 通过先释放孟晚舟来确保他们的获释开创了一个可怕的先例，这只会鼓励 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京在未来继续进行人质外交。
+
+
+
+> Kovrig & Spavor should've never been detained. Their release is long overdue after years of arbitrary arrest.
+> 
+> Securing their release by first releasing [#MengWanzhou](https://twitter.com/hashtag/MengWanzhou?src=hash&amp;ref_src=twsrc%5Etfw) sets a terrible precedent that'll only embolden [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) to continue conducting hostage diplomacy in the future. [https://t.co/Smww3BVOVW](https://t.co/Smww3BVOVW)
+> — Senator Rubio Press (@SenRubioPress) [September 28, 2021](https://twitter.com/SenRubioPress/status/1442991416645410820?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 我和中国特别工作组的成员一起呼吁（气候特使）约翰·克里和（商业部部长）雷蒙多立即接受关于 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的威胁简报，因为他们最近忽视 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成的威胁。
+
+
+
+> I joined members of the China Task Force in calling on [@JohnKerry](https://twitter.com/JohnKerry?ref_src=twsrc%5Etfw) & [@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) to receive an immediate threat briefing on the Chinese Communist Party due to their recent dismissive language regarding the threat the CCP poses to the U.S.
+> — Rep. Mike Garcia (@RepMikeGarcia) [September 28, 2021](https://twitter.com/RepMikeGarcia/status/1442953035630612483?ref_src=twsrc%5Etfw)
+
+
+
+国智库哈德逊研究所： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对 [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hashtag_click) （美英澳）安全协议有多担心？ “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在意识到其战略误判的严重性。这可能会阻止解放军超越第一岛链——这让北京不寒而栗，” （前国务院顾问）余茂春告诉 （华盛顿时报军情记者）比尔·格茨。 【附华盛顿时报文章：北京称AUKUS联盟不负责任】
+
+
+
+> How worried is [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) about the [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) security pact? 
+> 
+> "The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is realizing the magnitude of its strategic miscalculations. This could obviate the PLA’s march beyond the First Island Chain – that makes Beijing shiver,” [@milesyu10](https://twitter.com/milesyu10?ref_src=twsrc%5Etfw) tells [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) [https://t.co/B8UKIVx3u1](https://t.co/B8UKIVx3u1)
+> — Hudson Institute (@HudsonInstitute) [September 28, 2021](https://twitter.com/HudsonInstitute/status/1442917986499657731?ref_src=twsrc%5Etfw)
+
+
+
+众议院外交委员会转推： 【shane Tews 的推文：美国政策的影响开始累积——2021 年，10 个最大经济体中的 8 个——全球超过 60% 的蜂窝设备市场，以及几乎所有欧盟成员国都禁止或限制使用华为的5G 网络。 （附美国企业协会文章：华为的衰落说明中国为何难以称霸：北京的好战是罪魁祸首）】
+
+
+
+> Effects of US policy are starting to accumulate – 2021, 8 of 10 largest economies – over 60% of the world’s cellular equipment market, & nearly all members of the EU had either banned or restricted [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) from their 5G networks. [@halbrands](https://twitter.com/HalBrands?ref_src=twsrc%5Etfw) [https://t.co/Xnd9u3XID8](https://t.co/Xnd9u3XID8) via [@AEI](https://twitter.com/AEI?ref_src=twsrc%5Etfw)
+> — Shane Tews (@ShaneTews) [September 27, 2021](https://twitter.com/ShaneTews/status/1442543988901298178?ref_src=twsrc%5Etfw)
