@@ -2,50 +2,29 @@
 ---
 
 
-## 4,600 多名医生科学家指责 COVID 政策制定者“危害人类罪”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1560964/)
+## 美确定“拆除并更换”华为和中兴网络设备补偿金的开始日期
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1561019/)
 
-- 编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-14.jpg)网络图片
+**摘要翻译：**美国联邦通信委员会(FCC)于9月27日宣布了一项19亿美元补偿计划的开始日期，该计划旨在补偿美国电信运营商“拆除并更换”华为、中兴和其它被认定为具有国家安全威胁的中共国公司生产的网络设备。
 
+去年6月30日，美国联邦通信委员会将华为和中兴列为国家安全威胁，禁止美国公司动用83亿美元的政府基金从这两家公司购买设备。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/doctors-scientists-Covid-crimes-against-humanity-feature-800x417-1.jpg)图片来源：本篇新闻
+美国联邦通信委员会主席阿吉特·派当时在一份声明中说：“两家公司都与中共和中共国的军事机构有着密切的联系，并且两家公司都受到中共国法律的广泛约束，要求它们有义务与该国的情报部门合作。”“我们不能也不会允许中国共产党利用网络漏洞，损害我们关键的通信基础设施。”
 
-由医生和科学家在罗马** COVID **峰会期间制定的《医师宣言》，指责决策者强行采用**“**一刀切**”**的治疗策略，导致**“**不必要的疾病和死亡**”**。
+除了采取措施在美国国内根除华为和中兴的通讯设备外，美国还一直在警告其盟友，称在他们的网络中也存在这些设备。国家安全顾问杰克·沙利文在8月份的一次访问中曾就此事警告过巴西。
 
-一个由医生和科学家组成的国际团体，周五签署了一份声明，指责 COVID-19 政策制定者“危害人类罪”，因为他们阻止对患者使用挽救生命的治疗方法。
+**简评：**美国三权分立的政治制度，有效限制了总统的权力，所以拜登执政之后，也只能废除川普总统颁布的一系列行政命令，对于川普执政时期大部分的对中政策，美国政府一直都在有序推进。本篇报道提到的补偿美国电信运营商、根除华为和中兴通讯设备等都是川普时期的政策延续，并非拜登政府的决定。但是拜登执政之后与中共的勾兑亦是很明显的，从美国对中共病毒追责问题上的软弱就可以看出这一点，希望川普总统在明年举行的美国中期选举中能够强势回归，把美国引向正途，并联合全世界的正义力量，消灭中共。
 
-截至周一上午，《医师宣言》[Physicians Declaration](https://doctorsandscientistsdeclaration.org/)已获得 4,600 多个签名。签名者指责政策制定者强行采取“一刀切”的治疗策略，导致“不必要的疾病和死亡”，而不是“坚持个体化的基本概念”。
-
-[根据全球 COVID 峰会](https://globalcovidsummit.org/news/welcome-to-the-global-covid-summit)，该宣言是在罗马 COVID 峰会期间由医生和科学家创建的。 签署人是专业人士，其中许多人是处于治疗[COVID](https://childrenshealthdefense.org/defender_category/covid/)患者的前线医生。
-
-**全球 COVID 峰会报道：**
-
-“虽然宣言的签署者在他们的专业、治疗理念和医学观点上各不相同，但他们已经站起来采取集体立场，反对企业、医学协会、政府及其各自机构的专制措施。 该宣言的目标是，恢复他们在战胜这一流行病方面的领导作用。”
-
-[**宣言指出： **](https://doctorsandscientistsdeclaration.org/)
-
-“在罗马 COVID 峰会上首次宣读了《医师宣言》，促进了全球医学科学家和医生的积极支持。 这些专业人士没想到从事的职业（治病救人）会遭受威胁、人身暗杀、论文和研究被审查、社交账户被封锁、搜索结果被操纵、临床试验和患者观察被禁止，他们的职业历史和成就会在学术和主流媒体中被改变或遗漏。
-
-由于无法获得挽救生命的早期治疗，数千人死于 COVID。该宣言是医生们的战斗口号，他们每天都在为治疗患者的权利，以及患者接受这些治疗的权利——而不用担心政府、药店、制药公司和大型科技公司的干预、报复或审查而战。”
-
-签署方创建了一个“仅限医生和科学家”的 COVID 信息平台，因此公民可以“不受干扰、操纵、政治化或从医患关系之外的外部力量中牟取暴利”，为家人做出明智的决定。
-
-点击这里[**here**](https://doctorsandscientistsdeclaration.org/)阅读医师宣言全文。
-
-**点击文章链接观看**** mRNA ****疫苗技术的发明者罗伯特·马龙（**** Robert Malone ****）博士阅读《医师宣言》**
-
-**评论：许多无辜的人们相信科学，这些就是有良知的科学家为了我们的健康和生命发出的誓言。科学无正义邪恶之分，但是如果掌握科学知识的人，为了金钱地位用科学杀人，那灾难就是今天我们经历的数以百万的死亡！**
-
-**向勇敢的科学家致敬！行动起来，保护我们自己和我们的下一代！**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**素材来源：**[childrenshealthdefense.org](https://childrenshealthdefense.org/defender/4600-doctors-scientists-accuse-covid-policymakers-crimes-against-humanity/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=c49025fa-3ddc-4c4b-90c7-4ead3130fdaa)
+**新闻链接：**[https://m.theepochtimes.com/us-sets-start-date-for-fund-to-rip-and-replace-huawei-and-zte-network-equipment\_4019983.html](https://m.theepochtimes.com/us-sets-start-date-for-fund-to-rip-and-replace-huawei-and-zte-network-equipment_4019983.html)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
