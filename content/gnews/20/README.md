@@ -2,36 +2,32 @@
 ---
 
 
-## 岸田文雄当选自民党新总裁，或将成为日本第100任首相!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562583/)
+## 媒体审查深化 美国记者的领英页面遭中国“下架”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562669/)
 
-栏目记者/责任编辑：流浪的阳光
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-426.png)
+栏目记者/责任编辑：飞虹
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国新闻网站记者贝书颖，于27日深夜收到来自职业社交网站领英客服的电邮，通知她说，其领英页面不能再在中国的网页上显示。 贝书颖是华盛顿知名的国家安全记者和中共问题专家，中文流利，擅长报道中共国在海外的政治影响力。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-437.png)
+她在领英页面的简介部分主要介绍了她在新闻调查领域取得的成就，是此前“中国电文”项目的首席记者。“中国电文”是2017年中共政府的泄露文件，包含新疆大规模拘禁营的运行细节。
 
+贝书颖正在撰写一本将在明年出版的新书，题为《北京规则：资本主义、冠状病毒与中国追求全球影响力》。 领英并没有说明屏蔽原因，但表示，更新页面简介内容后会重新审核，暗示其删除互联网上的政治敏感内容。
 
-
-当地时间9月29日下午，日本自民党党魁选战结果出炉，前外长岸田文雄击败对手河野太郎胜出，当选自民党总裁。 10月4日召集的临时国会将进行首相提名选举，岸田或将当选日本第100任首相。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0929AM（2、3）視頻備用.003.jpeg)
-今年64岁的岸田文雄出生于日本广岛，毕业于早稻田大学法学部。先后担任过内阁特命担当大臣、外务大臣、自民党国会对策委员长等职务，现为自民党 “岸田派＂领袖。 岸田文雄曾宣称 他担忧中共治下的中国变得更加“专制”，而日本是一个重视民主、人权等基本价值观的国家，日本“将坚决应对台海、香港民主、维吾尔人权”等问题。他也明确坚称 “尖阁诸岛” 也就是钓鱼岛及其附属岛屿 均为日本固有领土，可以说，由于在涉华问题上对中共的强硬态度，岸田文雄就任日本新任首相，将是中共最不希望看到的结果。
 (本文仅代表作者观点)
 
-参考链接：
+参考链接： [https://www.voachinese.com/a/linkedin-blocked-us-journalist-account-in-china-20210928/6249302.html](https://www.voachinese.com/a/linkedin-blocked-us-journalist-account-in-china-20210928/6249302.html)
 
-1. [岸田文雄当选自民党新总裁](https://www.zaobao.com.sg/realtime/world/story20210929-1198403)
-2. [日新外相坚称钓鱼岛系日本”领土”，专家解析：](https://twitter.com/chinaibtimesgoo/status/284464151575793664?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
 
+终审：暗黑
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：文龙
-校正/发稿：我不在这里
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-425.png)

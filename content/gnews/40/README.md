@@ -2,19 +2,21 @@
 ---
 
 
-## 病毒共存的另一面
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1562268/)
+## 英舰在台海
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1562323/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/09/09292-1.jpg)
-在对 SarsCoV2 病毒对生物体的影响进行了数月的研究后，那不勒斯 Cardarelli 的 Utic 心脏病学复杂结构主任 Ciro Mauro说到：“专家定义的病毒共存现象使这种疾病的后果可能成为未来几个月面临的真正问题，而我们正在登记关于得了该病毒后扩张性心脏病的真正紧急情况，在心脏病学领域，冠状（中共）病毒将是我们在未来几个月和几年内必须应对的疾病”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0929-4.jpeg)
+英国护卫舰 HMS Richmond 昨天越过中（共）国沿海的台湾海峡，北京愤怒的称之为“恶意意图”，而伦敦回答道是：“我们在前往越南的途中，这是在国际水域的合法航线”。
 
-根据专家的说法，现在每个人都认为 冠状（中共）病毒只会攻击肺部，但事实并非如此。病毒以系统性的方式影响我们的身体，我们发现大量心肌炎并非偶然，甚至是严重的。从长远来看，尤其是如果不进行及时治疗，可能是致命的。
+最后一艘穿越台湾海峡的英国护卫舰是 2008 年的 HMS Kent，而侦察舰 HMS Enterprise 两年前也曾在这些水域航行。这证实了美国和英国在印太地区日益明显的军事和地缘战略趋同，这是反华的关键，最新的“[奥库斯](https://www.repubblica.it/esteri/2021/09/16/news/biden_partnership_con_gb_e_australia_sulla_sicurezza_nell_accordo_si_parla_anche_di_sottomarini_a_propulsione_nucleare-317995166/)”联盟向澳大利亚供应核潜艇就证明了这一点。
 
-每个人都同意的观点之一是：慢性缺血性心脏病、心房颤动、高血压心脏病、急性冠状动脉综合征，现在需要有条不紊地去解决。
+伦敦声称它有权“在国际水域合法航行”，但这艘船后来离开了关岛，即将在巴士运河附近与美国的罗纳德·里根号和卡尔·文森号航空母舰重聚。
+
+简而言之，英美在菲律宾海的联合行动仍在继续，而且更加激烈。因为印太地区是美国和英国共同遏制中（共）国的关键领域，虽然两国经历了一些摩擦，但现在重新建立了“特殊关系”。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.today.it/attualita/long-covid-malattia-futuro.html](https://www.today.it/attualita/long-covid-malattia-futuro.html)
+原文链接：[https://www.repubblica.it/esteri/2021/09/28/news/taiwan\_fregata\_brittanica\_cina-319772414/](https://www.repubblica.it/esteri/2021/09/28/news/taiwan_fregata_brittanica_cina-319772414/)
 
 责任编辑/校对/发布：意大利达芬奇农场   萧亦

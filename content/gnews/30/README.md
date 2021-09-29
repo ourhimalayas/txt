@@ -2,38 +2,33 @@
 ---
 
 
-## 热点新闻速递
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1562462/)
+## 继承蓬佩奥政治遗产，拜登政府持续关注维族人处境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562584/)
 
-撰稿人：Microkevin
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture1-15.jpg)图片来自网络![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-4.jpg)图片来自网络
-9月22日墙内媒体报道多位深圳南山区宝能城幼儿园的孩子家长反映称，该幼儿园通知家长今年9月将正式开学。而家长们在8月18日参加幼儿园开放日时意外发现，幼儿园的儿童游乐设施里竟藏有一处地下通道。通道的另一头，则是正在装修的ktv包间、泳池和桑拿房等娱乐设施，俨然是一处隐秘的地下娱乐“会所”。时至今日跟进报道称，政府部门已要求停工，和正在调查该事件。另外报道称，该幼儿园没有取得教育局批复的招生资质。
+栏目记者/责任编辑：在远方
 
-作者时评，我真的想笑，这洗地洗的也太低级了，要是没有招生资质你还不得罚死它。教育局，规划局和管委会还有工商管理机构都是吃干饭的呀？试问墙内哪个工程项目，经营买卖不是给政府相关管理机构上过供的，谁都知道在墙国要是没有点关系和路子谁能搞教育产业，尤其还能胆大妄为的和娱乐会所相连。这锅甩的低级！差评！我就看看后续你调查出啥了，会不会不了了之呢？会不会又是一个红黄蓝的翻版呢？
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture3-3.jpg)
-图片来自网络
-王立科被双开，问题不寻常
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-去年10月24日主动投案的江苏省委常委、政法委书记王立科，9月22日被开除党籍公职。
 
-作者时评，不知道昨天七哥盖特说的即将被抓的王，孟，曾，是不是第一个被抓的就是他的上司孟建柱。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture4-1.jpg)
-安徽省人口四连降，呈断崖式下跌趋势。
 
-安徽省出生人口连续4年减少，人口形势极为严峻。据安徽省全员人口数据库统计，2017年至2021年安徽省出生人口分别为98.4万、86.5万、76.6万、64.5万、53万（预测），年增长率为-12.1%、-11.4%、-15.8%，-17.8%，整体呈断崖式下降趋势。
+继前任国务卿蓬佩奥于今年1月19日宣布美国认定中共在新疆犯有“种族灭绝和反人类罪”之后，美国参议院 于7月14日再通过《防止维吾尔人强迫劳动法》。本周二，白宫发言人表示本届政府认可该法案方向，并在研究如何执行法案细节，同时重申美国对新疆维吾尔人处境持续关注的立场。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0929AM（1、4）.003.jpeg)
+对于中共在新疆的暴政，美国政府目前已经开始推动根据马格尼茨基法案实施的制裁，包括对中共相关负责官员的制裁，以及涉及新疆产品的进出口管制、商业警示，并且在G7上承诺将确保所有全球供应链，都不再继续使用强制劳动的产品等措施。
 
-作者时评，简单点说，现在的中国人越来越充满了，大多都是看破不说破，在这个被剥削的社会下谁愿意生孩子啊，生了孩子还是被剥削的命。看看现在丁克有多火就知道咋回事了。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture5-1.jpg)
-# 东北被迫限制民用电引发舆论潮：是无奈，还是不该
+中共以反恐为借口，将百万维族人关进名为再教育基地的集中营，其中也包括其他少数民族及宗教人士，这些人被迫接受洗脑教育、强迫劳动，放弃宗教信仰，甚至被迫接受绝育措施并受到各种酷刑。前国务卿蓬佩奥在卸任前将中共暴行定义为”种族灭绝罪” ，被誉为川普政府最为重要的”政治遗产”之一。
+(本文仅代表作者观点)
 
-# 某砖家中国社科院世经政所全球宏观经济研究室主任肖立晟为了平息舆论潮带节奏表示，除了发电成本上涨的因素外，地方政府未能提前规划并实施好能源目标，正是导致临近年末“赶作业”式限电的主要成因。
+参考链接：[白宫要义: 白宫: 拜登总统直接对中国关切新疆维吾尔人处境](https://www.voachinese.com/a/white-house-xinjiang-uyghur-20210928/6249408.html)
 
-# 作者时评，傻子都知道跟规划有个毛关系，不就是跟澳洲抬扛，不买人家煤矿，结果人家没咋地，自己擀面杖先折了，没得煤矿用，才导致电煤价格上涨。不是么？
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-# 本文纯属个人观点。
+终审：文龙
+校正/发稿：我不在这里
 
-参考文献
-
-[https://www.163.com/news/article/GHTS4E3M00018AOR.html](https://www.163.com/news/article/GHTS4E3M00018AOR.html)
-
-[https://www.163.com/news/article/GKGF5CO70001899O.htmlhttps://new.qq.com/omn/20210929/20210929A02UJ300.html](https://www.163.com/news/article/GKGF5CO70001899O.htmlhttps://new.qq.com/omn/20210929/20210929A02UJ300.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

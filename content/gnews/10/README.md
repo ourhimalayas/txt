@@ -2,39 +2,41 @@
 ---
 
 
-## 加拿大政府对华为5G设备问题继续犹豫不决
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562654/)
+## 有声|以色列数千人抗议疫苗护照新规定——接种加强型疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1562785/)
 
-栏目记者/责任编辑：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-427.png)
-9月28日，获得连任的加拿大总理特鲁多在选举后首次举行的记者会上表示，越来越多的加拿大通信公司，开始从他们的网络中移除华为设备，但新政府成立之前不可能做出决定。政府需要在未来的几周内，进一步权衡考虑。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-436.png)
-作为五眼联盟成员，加拿大以等待情报机构报告为由，对华为禁令已经研究了三年，封锁措施没有公开，或与孟晚舟及中共“人质外交”有关。
+配音：纽约香草山美食部 – 玫瑰园
 
-去年6月以来，爱立信和诺基亚，成为加拿大多家大型无线供应商的5G建设合作伙伴首选。虽然华为无缘爱立信、诺基亚的5G建设项目，但在其4G设备中仍占有相当大的比例。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-(本文仅代表作者观点)
 
-补充链接：
 
-[https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners](https://www.telus.com/en/about/news-and-events/media-releases/telus-announces-5g-network-equipment-partners)
+据[门道专家](https://www.thegatewaypundit.com/2021/09/jab-broke-camels-back-thousands-protest-tel-aviv-israels-vaccine-passport-now-requires-citizens-take-booster-shot-considered-fully-vaccinated-video/)9月26日报道，以色列数以千计的人在特拉维夫抗议疫苗护照，该护照现在要求公民打加强针才能被视为 “完全接种”。不接种加强疫苗的人将回到原点，不再有机会参加日常活动，就像那些一开始就没有接种过疫苗的人一样。
 
-[https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran](https://www.ericsson.com/en/news/2020/6/bell-canada-chooses-ericsson-5g-ran)
+上月底，以色列卫生官员宣布，根据该国的疫苗护照制度，任何在第二次接种后6个月内没有接受第三次接种的人将不再被视为 “完全接种”。
 
-[https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g](https://www.ericsson.com/en/news/2020/6/rogers-canada-selects-ericsson-5g)
+到目前为止，几乎三分之二的以色列人已经配合政府的限制，完全接种了疫苗，但现在第三针强制接种已被授权，人们正聚集在一起，集体抗议限制性的疫苗护照。
 
-参考链接：
+自从疫苗仓促上市以来，以色列公民一直是第一批接种的人。现在他们的政府想把他们作为实验的小白鼠，来注射更加仓促开发的加强型疫苗。强行注射这些加强针证明疫苗没有提供免疫力，难怪以色列的医院85-90%的新病例都来自于已接种疫苗的个人。
 
-[https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html](https://www.voachinese.com/a/canada-to-decide-on-huawei-soon-20210928/6249386.html)
+事实上，以色列特拉维夫大学的一个研究小组最近对80万人进行了广泛的研究，研究结果表明，接种疫苗的人感染新的病毒变种的可能性比拥有自然免疫力的人高13倍，完全接种疫苗的人 “住院的风险更大”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
+[文字版原文：以色列数千人抗议疫苗护照新规定——接种加强型疫苗](https://gnews.org/zh-hans/1558805/)
 
-终审: 暗黑
-校正/发稿：浪迹天涯
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
