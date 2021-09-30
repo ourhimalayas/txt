@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/30/2021 1:50 AM (UTC)`
+
+9/29/2021 Miles Guo: Xi found out that Huobi is the key channel protected by the Central Political and Legal Affairs Commission for the CCP to launder money overseas; Refunds from Huobi cannot be made without one’s own consent; The recent power outage caused by the CCP will lead to enormous disasters regarding the economy and the people’s livelihood in China and more bloody struggles within the CCP. The arrival of the era of cryptocurrencies is inevitable, and we must cherish and preserve the core foundation of our NFSC - the healthy currency<br/><br/>9/29/2021 文贵直播：习发现火币是由政法委护航的中共对外洗钱的重要通道；从火币退钱必须由本人同意方可进行；中共这次停电会对中国造成经济和生存的巨大灾难，并将导致中共有更多血雨腥风的内斗；虚拟币时代的到来无人可挡，我们要珍惜和维护我们新中国联邦未来的核心基础 - 健康的货币！<br/>
+![img](https://media.gettr.com/group13/getter/2021/09/30/01/50/db873597-0efd-eca4-a188-edb0a988493c/out.jpg)
+
+---
+
 `@miles 9/29/2021 8:08 PM (UTC)`
 
 9月29号：血淋淋的现实，一个个鲜活的生命。<br/><br/>【一个人在接种完疫苗的三周后因感染Covid而在医院需要呼吸机治疗；另一个人没有死于Covid病毒感染，却在打了第一针疫苗后死亡】
@@ -296,13 +303,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 9/26/2021 Miles Guo: Xi Yuanping is the biggest boss of Xu Jiayin, and the Xi family wants to keep Evergrande alive until after the 20th National Congress; Evergrande owes about US$100 billion to foreign creditors, while only reported to the CCP US$20 billion worth of debt; If Evergrande defaulted on the interests or the principal payment, the US stock market would be down by 600 points, with its impact being 10 times that of Lehman Brothers<br/><br/>9/26/2021 文贵直播：习远平是许家印最大的老板，习家想要恒大活过20大；恒大欠了1000亿美元外债，却给中共报告说只欠200亿；恒大若无法兑付这1000亿外债，美股将被打下600点，其影响将超过10个雷曼兄弟爆雷！<br/>
 ![img](https://media.gettr.com/group46/getter/2021/09/27/09/45/d414c8ba-5589-cf5e-0322-a1d907db6894/out.jpg)
-
----
-
-`@miles 9/27/2021 8:25 AM (UTC)`
-
-2021年9月27日 法治基金,法治社会每周捐款留言精选集。法治基金,法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>27 September 2021, Rule of Law Foundation and Society donors messages collection.Rule of Law Foundation and Society appreciate all of our supporters and donors!
-![img](https://media.gettr.com/group14/getter/2021/09/27/08/25/163399ac-28b0-29cb-8073-da19d81f7211/out.jpg)
 
 ---
 
