@@ -2,37 +2,29 @@
 ---
 
 
-## 美国证券交易委员会支持新立法 将加速财务造假的中共上市公司退市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1563625/)
+## 2021年9月4日郭文贵先生做健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563869/)
 
-栏目记者/责任编辑：文真
+盖特连接：[https://gettr.com/post/pa5jfn2cf7](https://gettr.com/post/pa5jfn2cf7)
 
+9月4号：尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？**🙏****🙏🙏🙏🙏🙏🙏🙏🙏**
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-440.png)
+（做了一组健身轮），欧~~哦哈姆呐姆Gi哈斯嘎呀（马背英雄中的蒙古语歌词：推翻共产党）！灭共！兄弟姐妹们，太多好消息了！明天直播，我有好多好消息告诉你们！每一组做二十四个，做六组，千万别试啊！千万别试！这个不是吹牛的！（送飞吻）。
 
+编辑整理及发布：黎明之前
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-美国证券交易委员会正在支持一项新法案，即《加速追究外国公司责任法案》，使其能够迅速采取行动，保护美国投资者利益，免受使用“可变利益实体”结构的公司的欺诈。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture5-7.jpg)
-为了在外国证券交易所上市，中共国公司利用 “可变利益实体” 建立离岸壳公司进行融资。由于这种公司结构存在法律漏洞，缺乏信息透明度，常被不法分子用于藏匿资产，逃避监管。在美国交易所上市的217家中共国公司中，有125家是可变利益实体。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-去年，美国国会通过了《追究外国公司责任法》，要求中共政府提高会计标准，并接受审计，否则将在三年内被退市。而新法案将限制使用“可变利益实体”结构的公司上市，并且监督所有在美上市的中共国公司，必须符合传统的会计和审计标准，否则将在两年内退市。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-（本文仅代表作者观点）
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-参考链接：[美国证券交易委员会支持新立法 将加速财务造假的中共上市公司退市](https://thedrilldown.com/newsroom/shell-game-sec-backs-legislation-to-stop-chinas-dangerous-accounting-practices/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-439.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

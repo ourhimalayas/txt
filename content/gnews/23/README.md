@@ -2,27 +2,37 @@
 ---
 
 
-## 维州：当日确诊病例1438例，再创记录
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563878/)
+## 油管禁止所有反疫苗视频，俄罗斯对此违法行为表不满
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563981/)
+
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Z3CXTPW65JLEJJO2UZEGMRLEWE-1-680x454-1.jpg)
+图片来源：junkee.com
 
 **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：The Guardian
-**整理报道：**翼族
 
-周四，维多利亚州记录了1438例新增本地中共病毒（COVID-19）感染病例，比一天前记录的950例增加了50%以上。同时记录了5例死亡病例，目前维州的死亡病例总数达到41人。
+油管（YouTube）将禁止其平台上的所有“有害的疫苗内容”，包括声称疫苗对减少疾病传播无效的说法。该禁令是在谷歌旗下公司一年来不断升级的审查之后出台的。
 
-维州当局表示，AFL【注：澳式足球联盟】总决赛最后一天的长周末假期是该州感染病例急剧增加的原因。州长丹尼尔·安德鲁斯称，许多新感染是“完全可以避免的”。
+新规定禁止声称疫苗“引起慢性副作用”、“不能减少疾病的传播或感染”以及含有未列出的成分（如胎儿细胞）的内容。这些规则适用于所有当前批准和管理的疫苗，而不仅仅是中共病毒疫苗。
 
-新增确诊病例是从周三处理的65497个测试结果中检测到的。安德鲁斯称“数百甚至数千”的新增感染是由于“违反了规则”，他说：“我不是要责怪任何人，我只是想解释一下……它怎么会涨得这么快。”
+违反这些新规则的内容将收到来自油管的一系列“警告”，收到三次警告后会导致违规频道被关停。
 
-尽管本次疫情爆发后，维州政府发现第一批病例后就立即封锁了该州，但确诊数字一直在飙升。安德鲁斯表示，如果病例增长速度超过预期，政府将不排除更长时间的封锁，他敦促人们遵守规则，直到可以安全地解除限制。
+新政策增加了现有的“中共病毒医疗错误信息政策”，该政策规定了有关中共病毒的广泛禁忌话题。其中包括“鼓励家庭疗法”的视频，声称“口罩在防止中共病毒传染或传播方面没有作用”的内容，以及“建议使用伊维菌素或羟氯喹预防中共病毒”的内容。
+
+油管周三表示，自去年以来，已有超过13万个视频因违反此政策而被删除。本周初，俄罗斯的RT的德语频道（RT DE和Der Fehlende Part）就因违反该政策被油管永久删除。
+
+俄罗斯总统弗拉基米尔`·普京(Vladimir Putin)的新闻秘书德米特里·佩斯科夫(Dmitry Peskov)周三告诉记者，禁令相当于“审查和阻碍媒体传播信息的案件”，并将受到俄罗斯媒体监管机构的调查，并补充说“必须对此类违法行为零容忍。”
 
 （文章内容仅代表作者个人观点，与GNEWS无关）
 
-编辑/发布：翼族
+**参考新闻：**[YouTube bans ALL anti-vax videos, ramping up Covid-era censorship campaign — RT World News](https://www.rt.com/news/536174-youtube-bans-anti-vax/)
 
-**更多资讯，请关注：
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

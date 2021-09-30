@@ -2,29 +2,76 @@
 ---
 
 
-## 2021年9月4日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563869/)
+## 把酒言欢敬战友
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1563937/)
 
-盖特连接：[https://gettr.com/post/pa5jfn2cf7](https://gettr.com/post/pa5jfn2cf7)
+撰稿：东京樱花团/希望
+![](https://assets.gnews.org/wp-content/uploads/2021/09/093012.jpg)
+云漫漫 落日 路阔道且长
 
-9月4号：尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？**🙏****🙏🙏🙏🙏🙏🙏🙏🙏**
+雨沥沥 雾散 映日红
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+晨钟鸣 惊醒多少痴人梦
 
-（做了一组健身轮），欧~~哦哈姆呐姆Gi哈斯嘎呀（马背英雄中的蒙古语歌词：推翻共产党）！灭共！兄弟姐妹们，太多好消息了！明天直播，我有好多好消息告诉你们！每一组做二十四个，做六组，千万别试啊！千万别试！这个不是吹牛的！（送飞吻）。
+暮鼓响 鸦啼啼
 
-编辑整理及发布：黎明之前
+真战友 又过了几度春秋
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+谁的呼喊 和歌声
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+爆料路上 添了几滴热泪
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+雨打芭蕉 静观变
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+聚沙成塔 集腋成裘
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+这一碗酒香仔细品
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+性情战友心亦真
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+其中滋味几人知？
+
+将悲愤 一饮而尽
+
+你我净手来祈福
+
+有爱有情有真相
+
+各来挥笔作战枪
+
+泪已流 惦念民族魂未散
+
+难忘的乡音 轻轻唱
+
+才抬眉 忽见七哥鬓已白
+
+笔未落 心头画已成
+
+战马胯下铜铃声
+
+共魔闻风颤抖
+
+接过这七芒星
+
+千山万水寻战友
+
+马奶酒 浓郁悠长
+
+一碗饮尽 谈笑风生
+
+性情战友心最真
+
+其中滋味几人知？
+
+将悲愤 一饮而尽
+
+潇洒如风 俯瞰众山小
+
+有爱有情亦有义
+
+阔步逍遥共此生
+
+（文章仅代表作者本人观点，与GNEWS无关）
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
