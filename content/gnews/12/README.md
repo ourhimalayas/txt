@@ -2,25 +2,22 @@
 ---
 
 
-## 再给中共脖子套绳！美国要求芯片企业提交代工数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1563413/)
+## 美警告伊朗准许检查员进入车间，或者面临在IAEA的行动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1563477/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/09/12-14.jpg)
-[图片来源](https://news.mydrivers.com/1/749/749110.htm)
+**据《新闻大全》转载《路透社》 2021年9月27日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/122-a6bev-e7m6z-1.jpg)图片来源：Joe Klamar/STR/AFP via Getty Images
+美国周一在（国际原子能机构）董事会会议上表示，伊朗必须允许联合国核监督机构进入TESA Karaj综合设施的一个车间，以按照本月的协议重新安装摄像头，否则将面临监督机构理事会的外交行动。
 
-据9月28日新浪科技官方微博号消息，由于全球“芯片荒”迟迟未缓解，美国商务部再次举行半导体高峰会，要求台积电等半导体企业上缴代工数据。包括台积电、三星、英特尔等半导体大厂参加了此次会议。
+美国在国际原子能机构理事会会议上发表的一份声明说：“我们呼吁伊朗向国际原子能机构提供所需的准入，不要再拖延。如果伊朗未能这样做，我们将在未来几天与其他理事会成员密切磋商，以作出适当的回应。”
 
-据悉，美国以提高芯片“供应链透明度”为由，要求台积电、三星等晶圆代工厂交出库存量、订单、销售纪录等核心机密。这些机密包括芯片库存量、订单以及销售数据等，美国给了它们一个期限，45天内必须满足要求。也就是说，美国要求相关芯片企业，在45天内上缴公司的相关数据，不然将受到美国的针对，台积电也不例外。
+**文章来源：**[https://www.newsmax.com/newsfront/us-iran-iaea/2021/09/27/id/1038015/](https://www.newsmax.com/newsfront/us-iran-iaea/2021/09/27/id/1038015/)
 
-美国究竟想干什么？要求台积电等企业上缴代工数据，又意味着什么？美国的做法是想掌握各芯片市场的库存量、订单和销售数据这些内容，显然这是扼制中共的又一政策。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-遍地歌颂赞美独裁的小粉红的国度，是无法生芯片的，芯片相当于现代社会的神经元细胞，没有芯片，就搞不了手机、搞不了汽车、搞不了一切稍微自动化、智能化的设备，人一旦离开这些设备，在现代社会里就寸步难行，落后于时代的脚步，被国际社会抛弃，芯片已是卡脖断中共国的必须品。
-
-[信息来源](https://ms.mbd.baidu.com/r/tVn0DLHGh2?f=cp&amp;rs=2074674615&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d2e223fd7ec23f37)
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

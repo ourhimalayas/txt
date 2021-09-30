@@ -2,55 +2,45 @@
 ---
 
 
-## 接种率高达 95%的哈佛正经历COVID大爆发
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1563267/)
+## 台湾正在修订法律以防止中共窃取半导体技术
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1563379/)
 
-- **编译：Jenny Ball**
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip162.png)
-图片来源：来自盖蒂图片社的 NurPhoto
 
-**尽管疫苗接种率高于 95%，但在 COVID“大量”爆发后，哈佛商学院被迫将一年级和二年级学生转为远程学习**。
 
-“最近几天，尽管疫苗接种率高且检测频繁，但我们看到学生群体中的突破性感染直线上升，”HBS 通讯主管马克·考特拉（Mark Cautela）告诉“诗人与量子”([**Poets&Quants**](https://poetsandquants.com/2021/09/27/breaking-harvard-business-school-moves-mba-classes-online-amid-rising-covid-cases/?pq-category=business-school-news))
 
-尽管声称疫情“不会在校园内的教室或其他学术环境中发生”，但当局“决定将所有一年级 MBA 学生，以及一些二年级学生，从 9/27 到 10/03的一周转移到远程学习。”
+据[OAN](https://www.oann.com/taiwan-proposes-tightening-law-to-prevent-china-stealing-technology/)网站援引路透社9月29日报道，台湾政府周三提议收紧一项法律，以防止中共国窃取半导体关键技术。
 
-耶鲁大学管理学院管理实践教授、医学博士霍华德·福尔曼（Howard Foreman）表示，这种情况代表了一场“大规模爆发”，并且随着“11名新研究生在最后一批测试中呈阳性反应”，情况继续恶化。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1091-1-2021-09-29T093644Z_1_LYNXMPEH8S0HY_RTROPTP_0_CHINA-TAIWAN-FRUIT_1.jpg)2021年6月30日，台湾桃园，一面台湾国旗迎风飘扬。 (REUTERS/Ann Wang/File Photo)
 
-根据哈佛大学的官方冠状病毒仪表板，95% 的学生和 96% 的员工接种了该病毒的疫苗。
+台湾的大陆事务委员会说，它正在提议修订一项有关中共国关系的现行法律，要求获得政府资金用于某些技术的人在前往中共国之前必须获得许可。
 
-“因此，哈佛是否含蓄地承认了，疫苗的有效性已经减弱到完全无效的地步？” [零对冲](https://www.zerohedge.com/covid-19/harvard-business-school-shifts-mba-classes-online-after-substantial-outbreak-covid)问道。
+台湾拥有蓬勃发展和世界领先的半导体产业，其半导体技术广泛用于各个领域，从战斗机到汽车，无所不包。台湾政府长期以来一直担心中共国试图通过工业间谍活动、“挖走”人才和其他方法来复制这一成功。
 
-“因此，尽管所有人都承诺‘只要每个人都接种疫苗（现在几乎就是这种情况了）就能恢复正常’，看来 2021 年的精英高等教育与 2020 年的精英高等教育没有什么不同……而且肯定不会更便宜 。”
+台湾政府高级官员表示，此次修订是为了保护该岛的先进芯片制造技术，业内专家称该“国家技术”领先于中共国的几代。
 
-小组活动和会议现已全部转移到网上，哈佛要求学生限制与家庭以外的其他人的面对面互动。
+（本文仅代表作者观点）
 
-这再次强调了将如何要求人们在伴随着所有的健康风险情况下不断加强注射，**因为疫苗提供的保护寿命很短。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
-与此同时，[研究已经表明](https://www.timesofisrael.com/study-covid-recovery-gave-israelis-longer-lasting-delta-defense-than-vaccines/)自然免疫能够提供 27 倍的保护，这个信息却被媒体完全抹黑，VICE 简报最近[完全否认](https://elamerican.com/vice-natural-immunity-backlash-social-networks/)它的存在。
+编辑/校对/发稿：小鹿
 
-**另请注意，乔·拜登昨天表示，在 98% 的人口接种疫苗之前，美国的生活不会恢复正常。**
 
-**哈佛几乎达到了那个水平，生活几乎没有恢复正常。**
 
-**评论：**
+**更多资讯，更多关注**
 
-**读了这篇文章，真正明白作者意味深长的结论：“****看来 2021 年的精英高等教育与 2020 年的精英高等教育没有什么不同……”花着惊人学费在顶级高等学府的未来精英的智商也不过如此，他们还不如一个有正常思维的医院护士和部队战士。他们宁可丢掉饭碗，也要坚持维护自己的权利和揭示疫苗灾难的真相，而哈佛的经验在学府将近100%接种后却爆发了大规模疫情，得出的结论是**“**因为疫苗提供的保护寿命很短”，所以要一针又一针地打加强剂疫苗。**
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**这篇文章也让我们看到中共和邪恶势力近20多年对美国高等教育的洗脑渗透，把一个曾经以思想自由的学术圣殿，变成了尽是俯首听命自以为是的无脑懦夫之地。尽管**“**哈佛几乎达到了那个（98%接种）水平，生活几乎没有恢复正常”， 但哈佛的精英们仍然相信“在 98% 的人口接种疫苗之前，美国的生活不会恢复正常”。**
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**无语！悲哀！**
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-（文章仅代表作者观点，与GNEWS无关）
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**素材链接：[infowars](https://www.infowars.com/posts/despite-95-vaccination-rate-harvard-experiences-substantial-outbreak-of-covid/)**
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***、
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
