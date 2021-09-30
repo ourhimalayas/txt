@@ -2,29 +2,18 @@
 ---
 
 
-## 2021年9月6日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563654/)
+## 雅典娜时报-第067期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563728/)
 
-盖特连接：[https://gettr.com/post/pa940d7527](https://gettr.com/post/pa940d7527)
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-9月6号：尊敬的战友们好，你们传播CC P病毒疫苗的解药了吗？你们健身了吗？一切都已经开始！
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9-28.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/8-4.jpg)
+***发布：小红帽***
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
-
-战友们，这个（指健腹轮）推到头的时候它会自动地卡住，不是你想往前就往前的，啊，累死我了！所以这个是限制量的，只有慢慢地，才能推得更远一些。这个我每天做八组，每一组二十四个，耶~哦哈姆那姆Gi娜斯嘎呀（蒙古语，马背英雄的歌词，意为打倒共产党）！共产党你完啦！
-
-编辑整理及发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,42 +2,29 @@
 ---
 
 
-## 郭文贵直播摘要和音频2021.9.29
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1563691/)
+## 2021年9月5日郭文贵先生吃饭饭盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563773/)
 
-摘要撰稿人：文俊
+盖特连接：[https://gettr.com/post/pa75ei47cb](https://gettr.com/post/pa75ei47cb)
 
-音频提供者：左媛
+吃饭饭啦……未来农场的必备菜！
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-29-at-8.40.19-PM.png)
+吃卷子喽！花卷，花卷，花卷！羊肉花卷！羊肉，羊肉，羊肉啊！然后大饼子，大饼子，没钱了，只能吃这个了，只能吃这个了！啥锅？啥锅？啥锅？欧~
 
+编辑整理及发布：黎明之前
 
-### 视频：
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[视频链接](https://gtv.org/video/id=615466c142a8af3151a74ee3)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-### 音频：
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-### 摘要：
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-1. 香港金管局正在研究扩大人民币在香港股票交易中的使用，这就是消灭港币
-2. 所以说现在离了谷歌都不能活了 谷歌不统治人类都不好意思
-3. 中国人工业用电是美国的一倍 美国大概在1万亿千瓦 中国3万亿千瓦甚至更多
-4. 中国统计局原局长王保儿(被抓了)说 随便改个数字 都弄它个几百亿 偷电是我们改善财政状况的好办法
-5. 中国有19个核电厂 现在实际上在建的32个
-6. 火币要给中国客户退款：要求钱款原路退回，只退到中国银行 邮政银行 上海银行
-7. 区块链技术：把人绑回去 钱都打不回去
-8. 暗网北京奥巴马俱乐部创始人：肖燕燕（音译）欧文广（被抓）
-9. 暗网3万亿美元，美国的海军情报部门研究的洋葱网 就是 暗网 技术
-10. 未来的钱:港币消失 人民币变冥纸 美元会大打折扣
-11. 真正安全的现在只有喜币 它跟黄金挂钩 黄金挂钩的任何币 都可以买 千万不要存美元
-12. 中国国内停电最根本的原因是没有外汇买煤了也觉得没必要了
-13. 未来GTV和GETTR可以1：1换股，也有望和喜联储换股
-14. 新中国联邦护照 全球通+0关税 目前3个国家 会达到上百万护照
-15. 所有的国家都纳税养活一帮混蛋 笨蛋！我们不需要国家！
-16. 德国会从亲中转向亲俄 未来影响欧洲最大是俄罗斯
-17. 排华概率最高的国家：美澳印日
-18. 建议看看建议看看柯蒂斯· 李梅 《李梅传》
-19. 需要有语言好 形象好的战友去跟人打交道 参与新中国联邦基地的建设
-20. 中国几个核电厂都出了问题
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

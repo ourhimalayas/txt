@@ -2,23 +2,67 @@
 ---
 
 
-## 德国内政部证实：对小米手机展开安全调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1563694/)
+## 参议员罗恩·约翰逊： 拜登政府决定强制给在职的美国人接种疫苗,这是对公民自由的粗暴践踏
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1563775/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-28T095406Z_1744731075_RC2MYP9WJ5RU_RTRMADP_3_CHINA-XIAOMI.jpg)德国内政部证实：对小米手机展开安全调查 网络图片
-德国内政部发言人9月29日表示，出于资讯安全考虑，德国电信联邦资讯安全局正对小米手机( Mi 10T 5G ）进行审查，因为美国制裁华为，称其设备可能用来支援中共国的间谍活动。
-
-立陶宛国家网络中心警告称，小米手机会向新加坡的伺服器发送加密过后的手机数据，且小米手机内设审查功能，会自动审查”自由西藏”、”台湾独立万岁”或”民主运动”等用语，目前已列入 449 个中文词汇，而且该清单还在不断更新。立陶宛国防部建议不要买中共国手机，并尽快处理掉已购买的手机。
-
-中共的间谍渗透已经到了防不胜防的地步，作为通讯工具的手机被内置了诸多功能，随时随地搜索和收集数据，实时监控，不分国界。
-
-新闻参考链接：[https://www.rfi.fr/cn/中国/20210929-德国内政部证实-对小米手机展开安全调查](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20210929-%25E5%25BE%25B7%25E5%259B%25BD%25E5%2586%2585%25E6%2594%25BF%25E9%2583%25A8%25E8%25AF%2581%25E5%25AE%259E-%25E5%25AF%25B9%25E5%25B0%258F%25E7%25B1%25B3%25E6%2589%258B%25E6%259C%25BA%25E5%25B1%2595%25E5%25BC%2580%25E5%25AE%2589%25E5%2585%25A8%25E8%25B0%2583%25E6%259F%25A5)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参议员罗恩·约翰逊： 拜登政府决定强制给在职的美国人接种疫苗，这是对公民自由的粗暴践踏，也是总统单方面强加给美国公众的危险先例。很高兴与参议员瑞克·斯科特[@SenRickScott](https://twitter.com/SenRickScott) 等同事一起在这方面努力。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> The Biden administration’s decision to mandate vaccines for working Americans is an outrageous trampling of civil liberties and a dangerous precedent for what a president can unilaterally impose on the American public. Happy to join [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw) and colleagues in this effort. [https://t.co/11V1cqBYXF](https://t.co/11V1cqBYXF)
+> — Senator Ron Johnson (@SenRonJohnson) [September 30, 2021](https://twitter.com/SenRonJohnson/status/1443369052664172547?ref_src=twsrc%5Etfw)
+
+
+
+美前国务卿迈克·蓬佩奥： 习近平一心要实现地区霸权，然后攻击西方，最终攻击美国。 更多我与布赖恩·基尔米德的谈话[@kilmeade](https://twitter.com/kilmeade)→ 【附油管链接：视频里蓬佩奥强调对付以习近平为首的#CCP邪恶组织，需要整个西方的团结，这不只是和美国站队的问题，这是选择暴政还是自由的原则问题】
+
+
+
+> Xi Jinping is intent on regional domination then attacking the West and ultimately the United States.
+> 
+> More in my conversation with [@kilmeade](https://twitter.com/kilmeade?ref_src=twsrc%5Etfw) → [https://t.co/3toG5HBaiq](https://t.co/3toG5HBaiq)
+> — Mike Pompeo (@mikepompeo) [September 30, 2021](https://twitter.com/mikepompeo/status/1443366652792426500?ref_src=twsrc%5Etfw)
+
+
+
+参议员吉姆·班克斯： 米利将军今天告诉我，《危险》一书曲解了他与议长佩洛西的通话以及他对 1 月 6 日的反应。 [@realBobWoodward](https://twitter.com/realBobWoodward)（该书作者）你能澄清一下吗？ 【附[http://wpta21.com](https://t.co/KBlkjhvADR?amp=1)报道：班克斯就保守派媒体的特性对米利施压：追问他是否说过和认为保守派媒体是国内恐怖分子】
+
+
+
+> Gen. Milley told me today that "Peril" misrepresented his call with Speaker Pelosi & reaction to Jan 6.
+>  
+> Can you set the record straight, [@realBobWoodward](https://twitter.com/realBobWoodward?ref_src=twsrc%5Etfw)?  [https://t.co/NOj6XscJG0](https://t.co/NOj6XscJG0)
+> — Jim Banks (@RepJimBanks) [September 29, 2021](https://twitter.com/RepJimBanks/status/1443345288895373316?ref_src=twsrc%5Etfw)
+
+
+
+参议员朗·约翰逊： 在整个大流行期间，我们都面临着恐惧、怀疑、孤立和压力。 在大流行期间，（我们）已经失去了太多的自由和个人健康自主权。 让我们不要用不必要的强制疫苗来增加这种损失。 【附华盛顿时报专栏：质疑强制新冠疫苗背后的科学：强制（疫苗）正在加剧社会分裂只会加深大流行的危害】
+
+
+
+> We have all faced fear, doubt, isolation, and stress throughout the pandemic. 
+> 
+> Too much freedom and personal health autonomy have already been lost during the pandemic. 
+> 
+> Let’s not compound that loss with unnecessary vaccine mandates.[https://t.co/TkX0K8vWw3](https://t.co/TkX0K8vWw3)
+> — Senator Ron Johnson (@SenRonJohnson) [September 29, 2021](https://twitter.com/SenRonJohnson/status/1443339748047732736?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的“一带一路”倡议只不过是发展中国家的债务陷阱。 【转推华尔街日报：对于在习近平的国际基础设施发展计划下启动的中国项目的研究，指出了隐藏的债务、腐败丑闻、劳工违规和环境风险】
+
+
+
+> China’s Belt and Road Initiative is nothing but a debt trap for developing nations. [https://t.co/opQx4qTmYB](https://t.co/opQx4qTmYB)
+> — Marco Rubio (@marcorubio) [September 29, 2021](https://twitter.com/marcorubio/status/1443260251281805328?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔什·霍利： 真是疯了。 直接对 [#共产党](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)[#China](https://twitter.com/hashtag/China?src=hashtag_click) 采取绥靖政策。这些都是陈旧失败的谈话要点，那是中共国绥靖者用来证明向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 输送数百万个工作岗位并摧毁美国工业是合理的 【转推说，美商务部长吉娜·雷蒙多[@SecRaimondo](https://twitter.com/SecRaimondo)：“谈论脱钩毫无意义。…
+
+【转推说，美商务部长吉娜·雷蒙多[@SecRaimondo](https://twitter.com/SecRaimondo)：“谈论脱钩毫无意义。正如拜登总统所说，我们对与中共国的冷战没有兴趣。这是一个太大的经济体——我们想要进入他们的经济，他们想要进入我们的经济”】
+
+
+
+> This is insane. Straight up appeasement of Communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). These are the same old tired, failed talking points that the China appeasers used to justify sending millions of jobs to China and destroying American industry [https://t.co/d1rC1TaUP2](https://t.co/d1rC1TaUP2)
+> — Josh Hawley (@HawleyMO) [September 29, 2021](https://twitter.com/HawleyMO/status/1443242680109129747?ref_src=twsrc%5Etfw)

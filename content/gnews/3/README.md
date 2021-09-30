@@ -2,29 +2,24 @@
 ---
 
 
-## 2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563831/)
+## 鸡尾酒疗法有效，但不接受疫苗接种者
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1563915/)
 
-盖特连接：[https://gettr.com/post/pa3p4qc384](https://gettr.com/post/pa3p4qc384)
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-442.png)
+图片来源
 
-9月4日：两轮摩托车在草地上滑……弄了个三轮摩托车试试……**😅****😅😅😅😅😅**
+熊本日日新闻29日称，截至9月13日，为防止中共病毒患者重症化，已对407名患者进行了“抗体鸡尾酒疗法”。其中，只有 0.7% 的患者病情发展成重症，县医疗政策科表示“鸡尾酒疗法是有效的”。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+目前，已向县议会厚生常任委员会报告。鸡尾酒疗法是将两种阻止病毒在体内生长的中和抗体结合，通过输液进行治疗的方法。从7月24日至9月13日，熊本县内33家医疗机构实施了该疗法。
 
-来啦，来啦！欧~仨轮的啊！仨轮的不打滑！也滑呀！天呐，三轱辘轧出这么大一个沟啊！我这发现上午轧了好大一个沟啊！三个轮不打滑，这也滑呀！发现了吗？天呐！嗷嗷地滑呀！嗷嗷地滑，嗷嗷地滑，这绿地全毁了，这绿地全毁了！我骑另外一个了啊。中吧？
+该疗法对象为12岁以上、发病7天内的轻症患者，或症状相对较轻的中度患者。保健所选择慢性呼吸道疾病、肥胖等，有重症化风险的患者，将他们安排到能进行鸡尾酒疗法的医院，但不包括接种疫苗者。
 
-编辑整理及发布：黎明之前
+截至28日，三名重症患者中有两人已出院。剩下一名仍然是重症，但该科室表示，“很明显，患者会在治疗后 1 至 2 天内出院，这也关系到病床确保。”（高宗亮辅）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+信息来源：[抗体鸡尾酒疗法，仅加重熊本县的 0.7% “对新冠治疗有效”](https://news.yahoo.co.jp/articles/3e4cdb050b1d575030570e15c8f8ea59e89b8b86)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

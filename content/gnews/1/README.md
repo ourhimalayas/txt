@@ -2,29 +2,20 @@
 ---
 
 
-## 2021年9月4日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563869/)
+## 媒体至暗时分，优酷宣布禁止所有反疫苗内容！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1563927/)
 
-盖特连接：[https://gettr.com/post/pa5jfn2cf7](https://gettr.com/post/pa5jfn2cf7)
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-443.png)
+(图片源自本文链接）
 
-9月4号：尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？**🙏****🙏🙏🙏🙏🙏🙏🙏🙏**
+日本雅虎网站9月30日消息：据29日路透社消息，美国Alphabet公司旗下的视频网站优酷，29日宣布，将禁止包括中共病毒疫苗在内的所有抗疫苗内容。说是为了回应对除了优酷之外，还有脸书和推特等高科技巨头没有采取足够的措施来防止有关健康的虚假信息的传播之批评。还说，禁止发布与疫苗会导致慢性健康危害和有关疫苗成分的虚假信息有关的所有内容。此外，据《华盛顿邮报》报道，优酷已禁止著名反疫苗活动家使用其服务功能。例如前总统肯尼迪的侄子小罗伯特·肯尼迪 (Robert F. Kennedy Jr.)等人的多个频道已被暂停。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+信息源：[YouTube 禁止所有反疫苗内容，包括新冠病毒](https://news.yahoo.co.jp/articles/2f4d01443b077b9d07509015f4e0625d45b9cf25)
 
-（做了一组健身轮），欧~~哦哈姆呐姆Gi哈斯嘎呀（马背英雄中的蒙古语歌词：推翻共产党）！灭共！兄弟姐妹们，太多好消息了！明天直播，我有好多好消息告诉你们！每一组做二十四个，做六组，千万别试啊！千万别试！这个不是吹牛的！（送飞吻）。
+至此，优酷再也不是可以自由言论的优酷，优酷这个决定打开了全世界媒体界至暗时刻的大门！
 
-编辑整理及发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
