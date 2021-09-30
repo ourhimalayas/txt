@@ -2,37 +2,27 @@
 ---
 
 
-## 2021年9月12日郭文贵先生签名送小郑州雪茄盒子全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563739/)
+## 金管局研究人民币计价港股 港币将消失
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1563822/)
 
-盖特连接：[https://gettr.com/post/pa940d7527](https://gettr.com/post/pa940d7527)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-**❤****️****❤****️****❤****️****❤****️****❤****️****❤****️** 给小郑州兄弟签名．送给他的空雪茄盒子的视频！ 9月12号：一年前直播中答应送给小郑州兄弟的雪茄空盒子的事情，今天终于尘埃落定．很多老雪茄盒子都被管家给扔了！到处找才找到这几个难得的具有雪茄奇迹般的历史的记忆的盒子，大家能看得懂吗？言而无信者，永远不可能获得别人的尊重！彼此的人际关系最重要的，就是信守承诺．唯真不破！
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/text-SC-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+视频参看： 2021.09.29晚GTV新闻访谈
 
-老弟呀，这个你看，小郑州，这个是绝对古董的这个雪茄，古董的，现在要买得着一根这个大概在………，得两三千磅吧，两三千磅一根！但是那个老盒没了，这个盒是个世界上仅有的盒啦，非常非常稀有啊！这是哪一年的我看看这是，这是哪一年的，这个盒绝对是世界稀有的，全世界没几个。
+[https://gtv.org/broadcast/watch/615504fc42a8af3151a7ca63](https://gtv.org/broadcast/watch/615504fc42a8af3151a7ca63)
 
-这个可以我给你，这个绝对值的，没那么漂亮，但是绝对有意义，绝对有意义！给你啊！致小郑州兄弟，七哥给你签上名！然后今天是2021年，是9月12号。你看看，你看看啊。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-这个（第二个）也非常的，这个也是古董的，这个没有这个厉害了啊，这个也是古董的，你看这个，这都是现在绝对不可能再有的了，我也送给你了啊，致亲爱的小郑州兄弟，我最起码花了十几个小时来给你找那个红盒的那个，找不着！你说这神经病已经给我扔了你说，9月12号，这个也是你的了兄弟！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
 
-这个（第三个）也给你了啊！这个啊，这个是新的啊，亲爱的小郑州兄弟，文贵，这样的签名，2021年9月12日，这个也给你了啊！
-
-这个（第四个）也是给你的，我只有这么多了，致亲爱的小郑州兄弟，2021年9月12号，这个也是你的，都给你啦！我给你说，小兄弟，这个绝对换台宝马都没问题，看到了没有？牛大了这个。这个你去查一查就知道这个多牛，我都给你带着，连腊纸都给你带着，等我再找到那个真正的老盒子的时候，我再给你寄。现在给你寄这些啊！说了话不兑现是最讨厌的，真的很抱歉！我那让他竟然给我扔掉了，哇~！好了，唔盖塞啦！Thank You!
-
-编辑整理及发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

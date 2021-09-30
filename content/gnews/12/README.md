@@ -2,27 +2,20 @@
 ---
 
 
-## 金管局研究人民币计价港股 港币将消失
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1563822/)
+## 中共限电导致苹果特斯拉供应商停产
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1563887/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+撰稿：文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/特斯拉苹果.jpg)（图片来自网络）
+受中共大面积拉闸限电影响，苹果、特斯拉在中国的部分供应商、制造商遭遇停产。富士康旗下的乙盛精密公司周日表示，从26日到10月1日，该公司在中国昆山的设施已暂停生产。乙盛精密是苹果和特斯拉的关键机械部件供应商。同样是苹果主要供应商的印刷电路板制造商欣兴电子公司和扬声器部件供应商康而富公司也同样停产。目前正值苹果iphone13手机上市的重要时期，特斯拉的产能也一直吃紧，中共的这轮限电将对苹果和特斯拉的供应链造成不小的冲击，直接影响产品上市。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/09/text-SC-3.png)
-文章仅代表作者本人观点，与Gnews无关
+据悉，此次限电不仅影响到苹果、特斯拉这样的企业，对国内芯片和半导体行业也有很大影响。芯片厂商恩智浦的供应商和长华科技的的子公司也都收到了停工通知。 中共对此次限电乱象的借口是实行所谓“能耗双控”政策，具体指按能源消费总量和强度两个指标对各地方政府考核。然而上述停产的公司也并非高能耗企业。其真实原因是中共国外汇短缺引发煤炭价格升高, 电力部门入不敷出减少了发电量,从而导致电力供应不足，限电是不得已而为之的举措，否则全国电网将会有崩溃风险。电力等能源的供应不足和中共政策的不透明或将促使更多外资企业考虑撤离中共国。
 
-视频参看： 2021.09.29晚GTV新闻访谈
+参考链接：
 
-[https://gtv.org/broadcast/watch/615504fc42a8af3151a7ca63](https://gtv.org/broadcast/watch/615504fc42a8af3151a7ca63)
+1.[网易新闻 (163.com)](https://c.m.163.com/news/a/GKVFNBUV0519D4UH.html?spss=newsapp)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+2.[中国限电导致苹果、特斯拉供应商停产 | 经济纵横 | DW | 27.09.2021](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E9%99%90%E7%94%B5%E5%AF%BC%E8%87%B4%E8%8B%B9%E6%9E%9C%E7%89%B9%E6%96%AF%E6%8B%89%E4%BE%9B%E5%BA%94%E5%95%86%E5%81%9C%E4%BA%A7/a-59321369)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)

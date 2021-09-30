@@ -2,45 +2,29 @@
 ---
 
 
-## 昆士兰警察代表律师表示：疫苗授权具有“歧视性”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563792/)
+## 2021年9月4日郭文贵先生做健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563869/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/r0_0_800_600_w1200_h678_fmax.jpg)
-图片来源：northernbeachesreview.com.au
+盖特连接：[https://gettr.com/post/pa5jfn2cf7](https://gettr.com/post/pa5jfn2cf7)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+9月4号：尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？**🙏****🙏🙏🙏🙏🙏🙏🙏🙏**
 
-近50名昆士兰警察局员工的代表律师致函警察局长卡塔琳娜·卡罗尔（Katarina Carroll），称疫苗授权具有歧视性。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-另外，一部分警察局员工今天在布里斯班最高法院申请一项命令，以取消该指示并阻止其执行。
+（做了一组健身轮），欧~~哦哈姆呐姆Gi哈斯嘎呀（马背英雄中的蒙古语歌词：推翻共产党）！灭共！兄弟姐妹们，太多好消息了！明天直播，我有好多好消息告诉你们！每一组做二十四个，做六组，千万别试啊！千万别试！这个不是吹牛的！（送飞吻）。
 
-早前，卡塔琳娜·卡罗尔指示文职人员和警察在10月4日之前至少接种一剂疫苗，并在明年1月24日之前接种第二剂，否则将面临停职或解雇。
+编辑整理及发布：黎明之前
 
-本月初，一部分昆士兰警察及其家人设立了一个众筹页面，为任何针对强制接种疫苗的法律挑战而筹集资金。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-该团体于9月29日开始了针对昆士兰警察局有关任务的劳资纠纷程序。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-美国广播公司新闻获得了代表律师托马斯·艾伦（Thomas Allan）周三发给卡罗尔的一封信。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-信中指出“该团体成员反对疫苗授权指令，以及因未能遵守该指令而导致的就业条件可能发生的变化”，理由是在颁布该指令之前没有征询他们的意见。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-“……如果因不遵守该指令，而对其就业条件的预期作出改变，是具有歧视性的，”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-信中说，如果卡罗尔没有回应，该团体的每个成员都将启动“争议程序”。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-此前，卡罗尔已指示文职人员和警察在 10 月 4 日之前至少注射一次疫苗，并在明年 1 月 24 日之前注射第二剂，任何未能在截止日期前完成的工作人员将被停薪一周。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Vaccine mandate ‘discriminatory’ and ‘breaches awards’, Queensland police officers’ lawyer says – ABC News](https://www.abc.net.au/news/2021-09-30/covid-qld-vaccine-mandate-police-industrial-action/100502484)
-
-***编辑：小红帽******/******文泓*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
