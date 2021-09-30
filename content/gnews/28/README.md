@@ -2,38 +2,34 @@
 ---
 
 
-## 英美开始采用地塞米松和伊维菌素治疗新冠病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564997/)
+## 有感于孟晚舟回国机场的发言
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1565030/)
 
-栏目记者：禹水沃土
-责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
-英格兰国家医疗服务体系NHS已开始与政府的抗病毒工作组合作，研究和推出在社区中使用地塞米松等口服药物以治疗新冠病毒。首席制药官 Keith Ridge 担任口服抗病毒药物计划高级负责人。在英国和海外抗病毒治疗临床试验的数据中，地塞米松等药物在缩短新冠病毒对人体影响时间、和防止重症方面显示出可喜的结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/213.png)
+孟晚舟这次回国就是一场提前安排好的秀，可惜的是，尽管央视全程直播，14亿人口，只有207.9万人在线观看。花费巨资，不远万里接回的大腕，不应该阿。每逢大型活动，领导讲话少不了，这一次，我很荣幸地一睹了这位“国家英雄”的风采，对此本人有几点感想。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-36.jpeg)
+演讲原文：
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-475.png)
+第一，开篇从称呼上知道孟晚舟的讲话是讲给她的领导和朋友，所以吃瓜群众们和广大网友们不要妄自菲薄。我只是怕你们那么关心爱护她，却因为从来没有被她放心上而苦恼，因为你不是领导也不是她的朋友。
 
-牛津大学的PRINCIPLE试验一直在研究新冠病毒感染的可能疗法，早在6月就确认伊维菌素可以加速康复、减少症状的严重性，避免患者入院治疗。英国卫生署旗下健康与临床优化研究所N.I.C.E近期也发布多篇资料支持以上结论。
+第二，如果孟晚舟真的被美国和加拿大诬陷和迫害，那我建议她一下飞机就要告诉所有中国人真相，将她在自由民主社会所受的苦难娓娓道来，也不枉费举国之力将她救回。可是通篇，我们没有看到她喊冤和义愤填膺的控诉美加暴行。回到了自己的祖国，我不知道她在怕什么，连说自己是无辜的都那么难么？难道是被美帝国主义吓坏了？还是真的如美国司法部新闻所说：她做了虚假陈述（作伪证），加拿大当地做出的只是延迟起诉。(相关链接：[https://www.justice.gov/opa/pr/huawei-cfo-wanzhou-meng-admits-misleading-global-financial-institution](https://www.justice.gov/opa/pr/huawei-cfo-wanzhou-meng-admits-misleading-global-financial-institution) ，[https://www.justice.gov/opa/press-release/file/1436211/download](https://www.justice.gov/opa/press-release/file/1436211/download))
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-476.png)
+第三，我要指出孟晚舟的一个错误，她不是一名普通的“中国公民”。且不说她拥有的7本不同国家护照，中国根本没有公民，我和她领的合法证件都是居民身份证。在国外作伪证，还享受国家包机接回来的待遇，她就更不是一名普通的中国人。目前能免费享受包机服务的只有死去的志愿军和国家元首。
 
-8月份，大卫战友在感染新冠病毒重症期间，血氧严重偏低，出现心脏间歇性骤停，在服用了郭文贵先生提供的地塞米松，和战友提供的伊维菌素后，逐渐转危为安。
+习主席关心每一位公民的安危，孟晚舟可能是在加拿大被关傻了。不信，让她问问习主席知不知道郑州水灾死了多少人？89年被迫逃亡海外的学生们什么时候才能回国？亏习主席那么关心她一个人，她却给习主席下套人他去关心每一个人的安危，这不得累死他，孟大姐这拍马屁能力有待提高。
+孟晚舟和习主席非亲非故，为什么独得习的恩宠？难道真如郭文贵先生所说，习关心的是孟晚舟掌握的钱。（视频链接：[https://gtv.org/video/id=6150769942a8af3151a5b28f](https://gtv.org/video/id=6150769942a8af3151a5b28f) ,文字链接：[https://gnews.org/zh-hans/1556387/](https://gnews.org/zh-hans/1556387/)）
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-477.png)
+第四，孟晚舟一下飞机就表忠心：“我们坚决拥护以习近平同志为核心的党中央，忠于自己的国家，热爱自己的事业，在政府的管理规则下努力发展好企业，为国家为社会多做贡献。”难道她在加拿大的法庭上说了习的秘密？忠于自己的国家，就应该把从中国人手中赚到的钱回馈社会，而不是去加拿大购买千万豪宅。为国家社会做贡献就不要坐政府的包机，劳烦各级政府机构为她跑前跑后。麻烦孟晚舟同志自觉把包机费付了再做个公示，毕竟这都是纳税人的血汗！
 
-美国南卡罗来纳州斯巴达堡将招募新冠病毒感染者，使用伊维菌素进行临床实验。爆料革命和郭文贵先生向全世界推荐的药物正在拯救人类。
+最后，希望孟晚舟这次回到母亲的怀抱，再也不要离开，记得把爱人小孩都接回来。这次回来，五星红旗天天有，如果孟愿意的话，可以撤下来当被子用。戏子就是戏子，就怕戏子把戏当成了人生。七叔已经说了孟老爹有3000亿美金在海外，是怎么转出去的？谁经手的？在谁手上？习是否知情？任正非的3000亿是否还有其他人的份？孟晚舟该如何面对党中央各领导的关怀？
 
-（本文仅代表作者观点）
+吃瓜群众们，别走，真正的大戏才刚刚开始。
 
-参考链接：[NHS prepares for antiviral deployment to treat COVID-19](https://pharmaceutical-journal.com/article/news/nhs-prepares-for-antiviral-deployment-to-treat-covid-19)
-[Clinical trial testing Ivermectin, two other drugs against COVID open for signups](https://www.wfxrtv.com/news/health/coronavirus/clinical-trial-testing-ivermectin-two-other-drugs-against-covid-open-for-signups/)
-[铁血大卫对决CCP病毒 化险为夷的来龙去脉](https://gnews.org/zh-hans/1517319/)
-[Ivermectin to be investigated as a possible treatment for COVID-19 in Oxford’s PRINCIPLE trial](https://www.ox.ac.uk/news/2021-06-23-ivermectin-be-investigated-possible-treatment-covid-19-oxford-s-principle-trial)
+【文章观点仅代表作者个人，与gnews平台无关】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+作者：洛杉矶盘古农场 — 文如
+编审：洛杉矶盘古农场 — 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-终审：暗黑
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,31 +2,15 @@
 ---
 
 
-## 中共残害百姓不减速 毒疫苗加强针全面展开
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564969/)
+## 秘翻在线：凛冬将至 中共为塔利班送去了“关爱”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565012/)
 
-栏目记者：禹水沃土 
-责任编辑：在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-467.png)
-9月29日，中共国务院联防联控表示，新冠病毒疫苗加强免疫的相关政策，和实施措施正在加紧制订。已接种人口中，将对易感及60岁以上的重点人群开展“加强免疫”。疫苗灾难已经在全世界呈爆发趋势，大量受害者因为注射了新冠疫苗而身患重病甚至死亡。
+撰稿：葛大饼
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-28.jpeg)
+责编: 人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-10-01-002333.jpg)图片来源：新浪
+根据2021年9月29日UC网报道，凛冬将至，中共对阿富汗表示极度关心。三周以前，中共国外长王毅承诺将向阿富汗提供价值约2亿元人民币的救援物资，包括粮食、药物、疫苗和御寒物资等。果然首批对阿富汗紧急人道主义援助物资已经顺利运抵喀布尔国际机场，包括有毛毯、羽绒服等阿富汗人民急需的越冬物资。塔利班官员表示不会忘记中共对他们的关爱！
 
-在国内，信息被高度屏蔽。对有关疫苗不良副作用的各种社交媒体消息，都被中共极力掩盖和打压，多数民众还根本不知道毒疫苗的恐怖，老百姓面对的将是一个无比惨烈的冬天。
+近日中共国多地停电， 东北地区的百姓也急需越冬烧煤取暖，但是中共为了“面子”和澳洲死扛，不进口澳大利亚煤炭，宁可拉闸限电也不想办法救助百姓。如此讽刺的对比百姓也该真正看清中共的嘴脸了。中共从来都是对自己的人民最心狠手辣，视草民如猪狗一般，也是有史以来杀害中国人民最多的恶党，没有之一！
 
-（本文仅代表作者观点）
-
-参考链接：[新冠疫苗加强针要来了 谁先打？能混打吗？](https://news.sina.com.cn/c/2021-09-30/doc-iktzscyx7164064.shtml)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：暗黑
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+**[新闻来源](https://mparticle.uc.cn/article.html?uc_biz_str=S%3Acustom%7CC%3Aiflow_wm2&amp;btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=911f500556c04e16bbf06b7176117935&amp;wm_cid=446574579538736128&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt&amp;source=share-back)**

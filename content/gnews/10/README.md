@@ -2,45 +2,27 @@
 ---
 
 
-## 参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1565386/)
+## 恒大美元债月内次未能付息
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1565470/)
 
-作者：纽约香草山农场 – 四季
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+据路透社9月30日报道，有两位消息人士表示，纽约时间周三的付息日己过，中国恒大3333.HK部分境外债券持有人尚未收到利息支付，成为该公司本月未能付息的第二笔美元债。
 
+该公司应在9月29日为其2024年3月到期、票息为9.5%的美元债券支付4,750万美元利息。恒大上周未能向海外债券持有人支付8,350万美元的利息。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-1341800269.jpg)图片来自于网络
 
+据悉，负债高达3,050亿美元的恒大没有发表任何言论，对其境外支付义务保持沉默。
 
+对此，全球投资者担忧，当9月23日和9月29日到期票息的30天宽限期结束后，他们恐遭受巨大损失。
 
-据[门道专家](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)9月30日报道，美国参议员罗恩-约翰逊在参议院会议上讨论了目前与COVID-19疫苗有关的COVID-19大流行病。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1097-1-vax-johnson.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)
+*参考链接：*
 
-约翰逊参议员展示的一张图表显示，疫苗并没有像宣传的那样发挥作用。他对与COVID-19疫苗有关的冠状病毒病例和冠状病毒死亡的时间线，提出了如下三个非常重要的观点：
+[恒大美元债券持有人称在纽约时间最后期限前没有收到应付票息–消息人士](https://cn.reuters.com/article/evergrande-bond-bearers-interest-0930-idCNKBS2GQ0DF?il=0)
 
-“在疫苗推出之前，确诊冠状病毒的总病例和死亡人数已经大幅下降；疫苗接种率在2021年初开始攀升，如今达已到60%左右；尽管60%的人口已经接种了疫苗，但今年夏天的病例和死亡人数仍再次激增”。
+* * *
 
-现在公众没有得到需要做出知情选择的准确信息，而大药厂又对疫苗的后果不承担任何责任。这都将施打疫苗的公众陷于非常不利的境地。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+*编辑：文顺 校对：Ranting 发布：Ranting*
