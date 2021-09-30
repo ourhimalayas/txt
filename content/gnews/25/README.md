@@ -2,45 +2,20 @@
 ---
 
 
-## 昆士兰警察代表律师表示：疫苗授权具有“歧视性”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563792/)
+## 斯洛文尼亚动用催泪弹和水炮车镇压中共病毒疫苗护照抗议者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1563835/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/r0_0_800_600_w1200_h678_fmax.jpg)
-图片来源：northernbeachesreview.com.au
+#### 编译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-101.jpg)图片来源：亚基马先驱报
+9月29日，《美联社》报道斯洛文尼亚警察使用催泪弹和水炮车镇压反抗疫苗护照的抗议者。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+与中欧和东欧的大部分地区一样，斯洛文尼亚最近几周也出现了中共病毒感染病例的增加。尽管一些国家将强生公司的疫苗使用范围仅限于老年人，但斯洛文尼亚政府建议所有18岁以上的公民都接种强生公司（Johnson & Johnson）的疫苗。政府要求所有在国营企业上班的雇员，要么接种中共病毒疫苗，要么接受昂贵的PCR测试。截止目前，这个拥有200万人口的国家有将近48%的人完成了中共病毒疫苗接种。
 
-近50名昆士兰警察局员工的代表律师致函警察局长卡塔琳娜·卡罗尔（Katarina Carroll），称疫苗授权具有歧视性。
+但是，政府周三突然暂停使用强生公司的疫苗，原因是一名20岁的女孩在接种疫苗14天后死亡。按照斯洛文尼亚卫生部长亚内兹·波克卢卡尔（Janez POKLUKAR）的说法，政府将调查确认该女孩是死于中风而非中共病毒疫苗。
 
-另外，一部分警察局员工今天在布里斯班最高法院申请一项命令，以取消该指示并阻止其执行。
+周三，在首都卢布尔雅那（Ljubljana），抗议示威者打出了“停止疫苗法西斯”的横幅，大约1万名抗议者高呼“自由! 自由！”要求接种和不接种疫苗的人享有平等权利。
 
-早前，卡塔琳娜·卡罗尔指示文职人员和警察在10月4日之前至少接种一剂疫苗，并在明年1月24日之前接种第二剂，否则将面临停职或解雇。
+抗议者卡蒂亚·祖潘（Katja Zupan）说：“我是为了未来而参加抗议活动，为了我孩子的未来，为了后代，因为这种疯狂的（疫苗护照）行为需要被制止。如果我们不为自己和人类站出来，那么我们就完了，我们就输了。”
 
-本月初，一部分昆士兰警察及其家人设立了一个众筹页面，为任何针对强制接种疫苗的法律挑战而筹集资金。
-
-该团体于9月29日开始了针对昆士兰警察局有关任务的劳资纠纷程序。
-
-美国广播公司新闻获得了代表律师托马斯·艾伦（Thomas Allan）周三发给卡罗尔的一封信。
-
-信中指出“该团体成员反对疫苗授权指令，以及因未能遵守该指令而导致的就业条件可能发生的变化”，理由是在颁布该指令之前没有征询他们的意见。
-
-“……如果因不遵守该指令，而对其就业条件的预期作出改变，是具有歧视性的，”
-
-信中说，如果卡罗尔没有回应，该团体的每个成员都将启动“争议程序”。
-
-此前，卡罗尔已指示文职人员和警察在 10 月 4 日之前至少注射一次疫苗，并在明年 1 月 24 日之前注射第二剂，任何未能在截止日期前完成的工作人员将被停薪一周。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Vaccine mandate ‘discriminatory’ and ‘breaches awards’, Queensland police officers’ lawyer says – ABC News](https://www.abc.net.au/news/2021-09-30/covid-qld-vaccine-mandate-police-industrial-action/100502484)
-
-***编辑：小红帽******/******文泓*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：**[Slovenia police use water cannons at anti-COVID pass protest](https://apnews.com/article/coronavirus-pandemic-europe-health-european-union-slovenia-f1b6e3486d51778ad058b68781ec1ad4)
