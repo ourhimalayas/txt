@@ -2,29 +2,25 @@
 ---
 
 
-## 丹佛警察就强制疫苗接种对市长提起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564620/)
+## NBA以禁止上场和停薪警告未接种新冠疫苗球员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564645/)
 
-栏目记者/责任编辑：圣母院钟声
+栏目记者/责任编辑：Yousei
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+NBA 通讯执行副总裁迈克·巴斯（Mike Bass）在29日的一份声明中表示：因不遵守当地疫苗接种规定而导致无法参赛的球员将不能获得报酬。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（7、10）視頻備用.001.jpeg)
+据了解，有90%的NBA球员已完成疫苗接种，这表示联盟内还有50名左右的球员未接种疫苗。这其中包含明星球员：纽约篮网队的欧文（Kyrie Irving），和旧金山金州勇士队的威金斯（Andrew Wiggins），两人的年收入均在3000万美元以上。尽管疫苗规定会对其出赛和收入造成影响，但两人仍表示将做正确的事情，继续为信仰而战。
 
-
-【National File】9 月 28 日报道，丹佛警察局的七名警官已经对市长迈克尔·汉考克(Michael Hancock)、公共卫生及环境部执行主任罗伯特·麦克唐纳(Robert McDonald)和丹佛警察局长保罗·帕赞(Paul Pazen)提起诉讼，指控他们对该市制定强制疫苗接种规定。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM-8、9、11.001.jpeg)
-有数百名丹佛警官签名，要求参与这场诉讼。如果强制疫苗接种令不撤销，这些警官会考虑辞去丹佛警察局的职务。
-
-该诉讼写道，“在全民谨慎行事的情况下，每个人，包括健康的年轻人、老年人、曾经病毒感染康复而已获得自然免疫的人、甚至孕妇和哺乳期妇女，目前正受到来自于政府、企业和教育机构的压力，要求他们接受新冠疫苗接种，而没有评估每个人所要承担的风险，也没有考虑每个特定情况下的医疗必要性或禁忌症。在强制遵守疫苗接种的非法公共卫生命令下，无数人受到不可逆的健康损害……”。
-
-世界觉醒民众与黑暗势力的较量正在进行中，当国家机器，像丹佛警局的警察们，法国巴黎的警察们，多伦多市的救火队员们……也都觉醒时，暗夜会在黎明的刺眼光照下瞬间消失殆尽。
+NBA拒绝球员的宗教豁免请求，对未打疫苗球员进行个人财产惩罚，实际上是一种变相强制。在这次大疫情下，西方世界的自由民主，似乎已完全被邪恶的专制意识形态所侵蚀。只有让更多的人了解真相，才能避免世界陷入黑暗沼泽而不自知。只有坚定信仰，才能获得真正的自由。
 (本文仅代表作者观点)
 
-参考链接：[Denver Cops File Lawsuit Against Democrat Mayor Over Vaccine Mandate, Claim Hundreds Of Officers Are Ready To Resign](https://nationalfile.com/denver-cops-file-lawsuit-against-democrat-mayor-over-vaccine-mandate-claim-hundreds-of-officers-are-ready-to-resign/)
+参考链接：[NBA tells unvaccinated players they won’t get paid for missed games](https://abcnews.go.com/Sports/nba-tells-unvaccinated-players-paid-missed-games/story?id=80305629)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：Q大哥
+终审：暗黑
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
