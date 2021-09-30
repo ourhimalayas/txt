@@ -2,44 +2,27 @@
 ---
 
 
-## 澳洲前总理托尼·阿博特为墨尔本建筑工人辩护
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1564073/)
+## 反对声浪和债务问题令“一带一路”失去发展势头
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1564131/)
 
-#### **编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-46.png)
-图片来源：SBS News
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16329851551.png)
+据美国之音9月29日报道，美国维吉尼亚州威廉玛丽学院的研究机构“援助数据”所作的一项研究表示，中共国2013年推出的所谓“一带一路”世纪项目由于参与国家的反对声浪和债务高涨，在海外失去发展势头，这为其他竞争计划挤走北京铺平了道路。
 
-9月29日，澳大利亚前总理托尼·阿博特（Tony Abbott）为在墨尔本战争纪念馆前集会反对强制性工作场所疫苗接种的抗议者辩护。
+“援助数据”的研究发现，过去18年在165个国家，中共国支持了13427个项目，总金额高达8430亿美元。但一些国家的民意发生重大变化，导致马来西亚在2013至2021年间取消了115.8亿美元的项目，哈萨克斯坦取消近15亿美元，玻利维亚超过10亿美元。此外，信贷风险在加剧，在很多中低收入的国家，中共国债务已超过该国GDP的10%。报告还发现，35%的“一带一路”项目存在疲于应付腐败、劳工违规、环境污染和公众抗议等问题。
 
-上周，反疫苗示威者和一些穿着反光工作背心的建筑工人冲进了这座为纪念那些曾在一战中服役和牺牲的战士而建造的地标建筑。
+今年6月，七国集团领导人在伦敦推出“重建更好世界”（Build Back Better World，B3W） 的基础建设计划，向发展中国家提供兴建基础设施的资金支持。这个计划被外界视为是冲着中国“一带一路”倡议而来的替代方案。
 
-数百名抗议者高呼“唯恐我们忘记”，使用这条澳新军团日相关的短语来抗议在建筑工地强制接种新冠病毒疫苗。
+中共国的“一带一路”侵略方案血本无归，不仅损失了中国老百姓的血汗钱，也让所在国背负了沉重的负担，唯一中饱私囊的就是中共盗国贼集团和所在国的腐败官员。这种盗国洗钱的行为必会引起民意的巨大反弹，“一带一路”最终失去市场也是必然，最终损失的是老百姓被盗走的财富。
 
-阿博特先生说，尽管示威者违反了封锁规则，而且他们占领了一个纪念馆，但抗议者正在行使他们的言论自由权，反而维州警察用橡皮子弹对付他们，好比战时的冲锋队。
+新闻参考链接：[https://www.voachinese.com/a/Belt-And-Road-Project-Losing-Momentum-20210929/6250347.html](https://www.voachinese.com/a/Belt-And-Road-Project-Losing-Momentum-20210929/6250347.html)
 
-他在澳大利亚公共事务自由研究所的播客中说：“听着，我不是一个反疫苗主义者，我认为一般来说人们有权利不接种疫苗，如果这是他们的选择。”
+* * *
 
-“显然，人们不应该触犯法律，但你在纪念馆里有人举着旗帜和标语牌，据我观察，他们只是在那里表明观点。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-“他们没有暴力，他们没有故意破坏，他们也没有破坏性，”他补充说道。
 
-阿博特先生是维多利亚州工党州长安德鲁斯的激烈批评者，他将随时准备好拿着橡皮子弹的警察比作战时冲锋队。
+编辑：【英国伦敦喜庄园编辑部】
 
-“然后你让维州警察像冲锋队一样排成一排，最终用橡皮子弹和催泪瓦斯向抗议者冲锋，”他说。
-
-这位前自由党总理表示，当示威者只是在行使民主表达权时，媒体和政治阶层就嘲笑他们是暴徒。
-
-阿博特先生抨击行业工会老板约翰·塞特卡暗示抗议者是新纳粹分子。
-
-他说：“他们只是普通的工人，工会忽视他们的危险。”
-
-原文链接：[Tony Abbott defends protesters who took over Melbourne’s Shrine of Remembrace | Daily Mail Online](https://www.dailymail.co.uk/news/article-10040009/Tony-Abbott-defends-protesters-took-Melbournes-Shrine-Remembrace.html)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

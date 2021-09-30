@@ -2,58 +2,53 @@
 ---
 
 
-## 路透社评论：中共国限电停电背后意味着什么
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564163/)
+## 油管封杀所有反疫苗内容及著名反疫苗人士
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564187/)
 
-作者：香草山写作组-文一
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+栏目记者/责任编辑：文一
 
 
 
-9月27日路透社发表评论指出，由于煤炭供应短缺、排放标准趋严以及制造商和工业界的强劲需求，中共国正面临电力供应严重不足的局面，煤炭价格被推至历史高位，导致大规模停电限电。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/57456176_303.jpeg)
 
-文章指出，虽然家庭限电才刚开始生效，其实至少从3月份开始，中共国一些大型工业基地、出口大省广东的制造商们及东部沿海主要工业区就出现了断电限电问题。
 
-作为世界上最大的二氧化碳和其他污染气体的生产国，中共国家主席习近平于2020年底在联合国气候变化峰会上宣布大幅降低二氧化碳排放量，实际上30个大陆地区中只有10个实现了其能源削减目标。
 
-截至2021年8月，中共国的总发电量比2020年同期多出10.1%，比2019年同期多出近15%
 
-为此中共发改委在9月中旬宣布了更严厉的惩罚和问责措施。各地政府纷纷出招应对。
+据《华盛顿邮报》今日报道，油管正在封杀反疫苗内容和关闭包括约瑟夫-梅科拉和小罗伯特-肯尼迪等著名反疫苗人士的视频频道。
 
-浙江、江苏、云南和广东等省的地方政府已经要求工厂限制用电或减少生产。
+油管、脸书和推特早在大流行初期就压制关于中共病毒的所谓“错误”信息。迄今，油管已经删除了超过13.3万个相关视频。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-102.jpg)
+目前大约56%的美国人口已经打了两针，而加拿大和英国分别为71%和67%。7月，美国总统乔-拜登声称社交媒体公司对疫苗接种放缓负有责任，需要做更多工作来解决这个问题。
 
-一些电力供应商通知要求用户上午7点至晚上11点的用电高峰期停止生产，或者每周有两到三天完全停产。
+油管这个每日流量超过10亿小时的社媒巨头应声对反疫苗内容再次打压。医学企业家梅科拉和已故参议员罗伯特-F-肯尼迪的儿子小肯尼迪的频道被关。他们一直是反疫苗运动的代言人。但他们并非反对所有的疫苗，而是认为有关疫苗风险的信息被压制。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2..jpg)
+脸书早在7个月前就动作压制所有反疫苗信息。
 
-有些用户被要求关闭。据悉天津大豆加工厂等工厂自9月22日以来一直处关闭状态。
-
-不仅广大工业生产受到打击，个人用户也不能幸免，中国东北部分地区的家庭被告知限制使用热水器和微波炉。
-
-另一方面，因中共发起对第二大煤炭出口国澳大利亚进行贸易战，澳大利亚已经极大限制对中煤炭出口。而中共国在煤矿事故频发、加强监管后，自身生产已经放缓。天然气也因疫情出现全球短缺。
-
-另据新浪网报道，因煤价攀升和能源管控，中共国电厂出现越发电越亏损的情况，因此不愿意亏本发售电，导致电力供应缺口持续扩大。
-
-这真是中共国又一次搬起石头砸自己脚的奇葩演绎。对外假大空，对内快狠准，连维持民生和企业生产的基本保障都出了大问题。
-
+防民之口甚于防川，现今在一向自由开放的西方国家也有愈演愈烈之势，恰确是人类最需要真相，事关生死之时。盖特的横空出世犹如划破黑夜的曙光，令真相得以传播。历史将做出最好的选择和证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-13.jpg)
 参考链接：
+[YouTube is banning prominent anti-vaccine activists and blocking all anti-vaccine content](https://www.washingtonpost.com/technology/2021/09/29/youtube-ban-joseph-mercola/)
 
-[https://www.msn.com/en-us/news/world/explainer-what-is-behind-chinas-power-crunch/ar-AAORFo3](https://www.msn.com/en-us/news/world/explainer-what-is-behind-chinas-power-crunch/ar-AAORFo3)
-[https://www.sohu.com/a/491708389\_115479](https://www.sohu.com/a/491708389_115479)
+（本文仅代表作者观点）
 
-校对/发稿：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

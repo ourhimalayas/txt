@@ -15,122 +15,122 @@
 
 ---
 
-### [无惧中共制裁威胁 法国参议员下周访台](/content/gnews/1/README.md)
+### [近200名明尼苏达州医护人员起诉雇主](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [完全接种疫苗的夫妇二人相隔一分钟死于病毒](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [无惧中共制裁威胁 法国参议员下周访台](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾提议加强法律以防止中共窃取技术](/content/gnews/2/README.md)
+### [台湾提议加强法律以防止中共窃取技术](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [民意调查显示，澳大利亚人正在认同“自由比法律更重要”](/content/gnews/3/README.md)
+### [民意调查显示，澳大利亚人正在认同“自由比法律更重要”](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [NBA球员因不打疫苗而缺席比赛的，将被停发薪水](/content/gnews/4/README.md)
+### [NBA球员因不打疫苗而缺席比赛的，将被停发薪水](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共发展改革委负责人回应今冬明春能源供应](/content/gnews/5/README.md)
+### [中共发展改革委负责人回应今冬明春能源供应](/content/gnews/7/README.md)
  ` 儒为`
 
-### [有声| 辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似](/content/gnews/6/README.md)
+### [有声| 辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声| 部分英国中学遇网络侵入 系统向家长发出知情同意书](/content/gnews/7/README.md)
+### [有声| 部分英国中学遇网络侵入 系统向家长发出知情同意书](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [美国国家银行监管人曾获得”列宁&#8221;奖](/content/gnews/8/README.md)
+### [美国国家银行监管人曾获得”列宁&#8221;奖](/content/gnews/10/README.md)
  ` wenwu`
 
-### [有声| 媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑](/content/gnews/9/README.md)
+### [有声| 媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声| 中共之恶-杀人诛心的洗脑](/content/gnews/10/README.md)
+### [有声| 中共之恶-杀人诛心的洗脑](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [秘翻在线：澳大利亚疫苗专家在法庭上的无知与傲慢](/content/gnews/11/README.md)
+### [秘翻在线：澳大利亚疫苗专家在法庭上的无知与傲慢](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [蓬佩奥致梅根·凯利：米利没有向我简要介绍](/content/gnews/12/README.md)
+### [蓬佩奥致梅根·凯利：米利没有向我简要介绍](/content/gnews/14/README.md)
  ` wenwu`
 
-### [视频| 强生主管透露：不应给孩子打F*cking新冠疫苗](/content/gnews/13/README.md)
+### [视频| 强生主管透露：不应给孩子打F*cking新冠疫苗](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [NBA中各方对于疫苗的不同态度](/content/gnews/14/README.md)
+### [NBA中各方对于疫苗的不同态度](/content/gnews/16/README.md)
  ` G-NEWS TAIWAN`
 
-### [恒大将向国企出售盛京银行15亿美元股权](/content/gnews/15/README.md)
+### [恒大将向国企出售盛京银行15亿美元股权](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [墙内限电暴露了中共的能源腐败和政治较量](/content/gnews/16/README.md)
+### [墙内限电暴露了中共的能源腐败和政治较量](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [舔共艺人能躲过“共同富裕”的风暴吗](/content/gnews/17/README.md)
+### [舔共艺人能躲过“共同富裕”的风暴吗](/content/gnews/19/README.md)
  ` G-NEWS TAIWAN`
 
-### [白思豪的警务专员和COVID顾问与中共的&#8221;执法合作&#8221;](/content/gnews/18/README.md)
+### [白思豪的警务专员和COVID顾问与中共的&#8221;执法合作&#8221;](/content/gnews/20/README.md)
  ` wenwu`
 
-### [澳州官员警告说 未接种疫苗的人未来生活会有很多不便](/content/gnews/19/README.md)
+### [澳州官员警告说 未接种疫苗的人未来生活会有很多不便](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [mRNA疫苗技术发明者领头签署《医生宣言》，谴责政府干预违宪并构成“反人类罪”](/content/gnews/20/README.md)
+### [mRNA疫苗技术发明者领头签署《医生宣言》，谴责政府干预违宪并构成“反人类罪”](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [英国巴斯大学：未打疫苗学生需佩戴不同颜色腕带](/content/gnews/21/README.md)
+### [英国巴斯大学：未打疫苗学生需佩戴不同颜色腕带](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美商务部和国务院意欲放行中共控制的“荣耀”](/content/gnews/22/README.md)
+### [秘翻在线：美商务部和国务院意欲放行中共控制的“荣耀”](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯：日本钢铁厂高炉在生产60年后停产；岸田能否长期担任首相](/content/gnews/23/README.md)
+### [银河快讯：日本钢铁厂高炉在生产60年后停产；岸田能否长期担任首相](/content/gnews/25/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/24/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/26/README.md)
  ` wenwu`
 
-### [币圈新闻动态：埃隆•马斯克表示支持加密货币，称其不可能被摧毁](/content/gnews/25/README.md)
+### [币圈新闻动态：埃隆•马斯克表示支持加密货币，称其不可能被摧毁](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [油管封杀所有反疫苗内容及著名反疫苗人士](/content/gnews/26/README.md)
+### [油管封杀所有反疫苗内容及著名反疫苗人士](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [联邦法官裁决：可以向教师要求强制疫苗接种](/content/gnews/27/README.md)
+### [联邦法官裁决：可以向教师要求强制疫苗接种](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [路透社评论：中共国限电停电背后意味着什么](/content/gnews/28/README.md)
+### [路透社评论：中共国限电停电背后意味着什么](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/29/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/31/README.md)
  ` wenwu`
 
-### [每日快报：拜登的疫苗授权使美国最严重的经济问题变得更糟](/content/gnews/30/README.md)
+### [每日快报：拜登的疫苗授权使美国最严重的经济问题变得更糟](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [爱国生意做昏了头 北京当局喝令刹车](/content/gnews/31/README.md)
+### [爱国生意做昏了头 北京当局喝令刹车](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳议员评中共渗透，包括最近的“一带一路”交易丑闻](/content/gnews/32/README.md)
+### [澳议员评中共渗透，包括最近的“一带一路”交易丑闻](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [反对声浪和债务问题令“一带一路”失去发展势头](/content/gnews/33/README.md)
+### [反对声浪和债务问题令“一带一路”失去发展势头](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国棒球联盟为讨好中共将工作机会迁到中共国](/content/gnews/34/README.md)
+### [美国棒球联盟为讨好中共将工作机会迁到中共国](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲前总理托尼·阿博特为墨尔本建筑工人辩护](/content/gnews/35/README.md)
+### [澳洲前总理托尼·阿博特为墨尔本建筑工人辩护](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大多数西方人还没有分清共产党于中国人](/content/gnews/36/README.md)
+### [大多数西方人还没有分清共产党于中国人](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [以色列COVID-19 疫苗受害者证词(4/6）](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [冰岛、比特币狗币很多来自与共产党勾兑的澳大利亚的黑钱](/content/gnews/38/README.md)
+### [冰岛、比特币狗币很多来自与共产党勾兑的澳大利亚的黑钱](/content/gnews/39/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [墙内要闻汇编](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（二）](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`

@@ -2,44 +2,17 @@
 ---
 
 
-## 有声| 辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564388/)
+## NBA球员因不打疫苗而缺席比赛的，将被停发薪水
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564401/)
 
-配音：香草山教育部-蒙古鸿雁
+#### 翻译/撰稿：zzballack
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture1-16.jpg)图片来源：New York Daily News
+《国会山报》（The Hill）9月29日报道称，北美男子职业篮球联盟（NBA）发言人迈克·巴斯（Mike Bass）9月29日在一份声明中说：“任何选择不遵守当地疫苗接种规定的球员，在他缺席的比赛中不会获得报酬。”这项新协议是NBA为防止病毒传播而制定的许多新安全协议之一。
 
+美联社之前获得的一份NBA备忘录称，联盟并未强制要求球员接种疫苗。但未接种疫苗的球员不被允许和已接种疫苗的队友一起用餐，他们的储物柜必须放置在远离队友的地方，在球队会议上保持社交距离并佩戴口罩。备忘录还包括比赛期间的住宿指南：当在自己的城市时，未接种疫苗的球员将被要求留在家中，在其他城市时，他们必须呆在酒店房间里，远离商业活动或大型室内集会。NBA所有球员被要求每周提交核酸测试结果，无论其是否接种疫苗。
 
+NBA目前已经有90%的球员完全接种了疫苗，但是仍有少数球员拒绝接种，比如金州勇士队的安德鲁·威金斯（Andrew Wiggins）、华盛顿奇才队的布拉德利·比尔（Bradley Beal ）和布鲁克林篮网队的凯里·欧文 (Kyrie Irving)。威金斯之前申请了宗教豁免，但被联盟拒绝。由于纽约和旧金山这两座城市对于球员在主场比赛有接种疫苗的要求，所以如果威金斯和欧文仍拒绝接种疫苗，就不能在主场参加比赛。每缺席一场比赛，威金斯将损失36万美元的薪水。欧文将损失约38万美元。
 
-
-
-
-
-据[零对冲](https://www.zerohedge.com/covid-19/pfizer-launches-final-study-covid-drug-thats-suspiciously-similar-ivermectin)9月28日报道，周一，辉瑞公司宣布，它正加速进行一种COVID预防药物的中后期试验，旨在抵御那些可能接触过该疾病的人的COVID。该药物旨在阻断冠状病毒在人体内繁殖所需的一种关键酶的活性，将与低剂量的利托那韦一起给药，利托那韦是一种广泛用于艾滋病（HIV）感染联合治疗的老药。
-
-巧合的是，辉瑞公司正在研发的新药至少与伊维菌素共享同一种作用机理。伊维菌素是一种在人类中使用了几十年的抗寄生虫药，它作为一种蛋白酶抑制剂可对抗Covid-10。研究人员推测这“可能是其抗病毒效率背后的生物物理基础”。
-
-
-
-**文字版原文：[辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似](https://gnews.org/zh-hans/1561121/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[NBA announces it will withhold pay of unvaccinated players](https://thehill.com/policy/healthcare/574522-nba-announces-it-will-withhold-pay-of-unvaccinated-players?rl=1)
