@@ -2,18 +2,27 @@
 ---
 
 
-## 完全接种疫苗的密歇根州夫妇在几分钟内相继因中共病毒过世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1563824/)
+## 维州：当日确诊病例1438例，再创记录
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563878/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-142.jpg)图片来源：网络截图
-据零对冲网站9月29日报道，密西根州的大急流城居民Cal Dunham，59岁，和他的妻子Linda，66岁，在周一与中共病毒短暂斗争后去世。虽然两人以前都有健康问题，但都已全面接种疫苗。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：The Guardian
+**整理报道：**翼族
 
-据当地一家电视台报道，他们在一次家庭露营中开始感到不适，随着这对夫妇病情的发展，露营被缩短了。他们的病情在几天内恶化，最后靠呼吸机维持生命。他们在周一脱离生命支持系统后去世，允许他们手拉手一起去世。
+周四，维多利亚州记录了1438例新增本地中共病毒（COVID-19）感染病例，比一天前记录的950例增加了50%以上。同时记录了5例死亡病例，目前维州的死亡病例总数达到41人。
 
-“他们所做的一切都是正确的，他们所做的一切都是按照协议应该做的。”这是密歇根州一对夫妇的女儿所说的话，这对夫妇在充分接种疫苗的情况下还是被感染了。
+维州当局表示，AFL【注：澳式足球联盟】总决赛最后一天的长周末假期是该州感染病例急剧增加的原因。州长丹尼尔·安德鲁斯称，许多新感染是“完全可以避免的”。
 
-官方的疾病预防控制中心坚持认为，疫苗在防止死亡方面几乎是100%有效的，但是随着时间的推移，接种疫苗的美国人感染中共病毒的例子越来越多，无论是德尔塔病毒还是其他病毒株。
+新增确诊病例是从周三处理的65497个测试结果中检测到的。安德鲁斯称“数百甚至数千”的新增感染是由于“违反了规则”，他说：“我不是要责怪任何人，我只是想解释一下……它怎么会涨得这么快。”
 
-新闻来源：[Michigan Couple Dies Of COVID Within Minutes Of Each Other Despite Being Fully Vaccinated](https://www.zerohedge.com/covid-19/michigan-couple-dies-covid-within-minutes-each-other-despite-being-fully-vaccinated)
+尽管本次疫情爆发后，维州政府发现第一批病例后就立即封锁了该州，但确诊数字一直在飙升。安德鲁斯表示，如果病例增长速度超过预期，政府将不排除更长时间的封锁，他敦促人们遵守规则，直到可以安全地解除限制。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+编辑/发布：翼族
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

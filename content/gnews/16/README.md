@@ -2,29 +2,20 @@
 ---
 
 
-## 2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563831/)
+## 中共限电导致苹果特斯拉供应商停产
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1563887/)
 
-盖特连接：[https://gettr.com/post/pa3p4qc384](https://gettr.com/post/pa3p4qc384)
+撰稿：文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/特斯拉苹果.jpg)（图片来自网络）
+受中共大面积拉闸限电影响，苹果、特斯拉在中国的部分供应商、制造商遭遇停产。富士康旗下的乙盛精密公司周日表示，从26日到10月1日，该公司在中国昆山的设施已暂停生产。乙盛精密是苹果和特斯拉的关键机械部件供应商。同样是苹果主要供应商的印刷电路板制造商欣兴电子公司和扬声器部件供应商康而富公司也同样停产。目前正值苹果iphone13手机上市的重要时期，特斯拉的产能也一直吃紧，中共的这轮限电将对苹果和特斯拉的供应链造成不小的冲击，直接影响产品上市。
 
-9月4日：两轮摩托车在草地上滑……弄了个三轮摩托车试试……**😅****😅😅😅😅😅**
+据悉，此次限电不仅影响到苹果、特斯拉这样的企业，对国内芯片和半导体行业也有很大影响。芯片厂商恩智浦的供应商和长华科技的的子公司也都收到了停工通知。 中共对此次限电乱象的借口是实行所谓“能耗双控”政策，具体指按能源消费总量和强度两个指标对各地方政府考核。然而上述停产的公司也并非高能耗企业。其真实原因是中共国外汇短缺引发煤炭价格升高, 电力部门入不敷出减少了发电量,从而导致电力供应不足，限电是不得已而为之的举措，否则全国电网将会有崩溃风险。电力等能源的供应不足和中共政策的不透明或将促使更多外资企业考虑撤离中共国。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+参考链接：
 
-来啦，来啦！欧~仨轮的啊！仨轮的不打滑！也滑呀！天呐，三轱辘轧出这么大一个沟啊！我这发现上午轧了好大一个沟啊！三个轮不打滑，这也滑呀！发现了吗？天呐！嗷嗷地滑呀！嗷嗷地滑，嗷嗷地滑，这绿地全毁了，这绿地全毁了！我骑另外一个了啊。中吧？
+1.[网易新闻 (163.com)](https://c.m.163.com/news/a/GKVFNBUV0519D4UH.html?spss=newsapp)
 
-编辑整理及发布：黎明之前
+2.[中国限电导致苹果、特斯拉供应商停产 | 经济纵横 | DW | 27.09.2021](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E9%99%90%E7%94%B5%E5%AF%BC%E8%87%B4%E8%8B%B9%E6%9E%9C%E7%89%B9%E6%96%AF%E6%8B%89%E4%BE%9B%E5%BA%94%E5%95%86%E5%81%9C%E4%BA%A7/a-59321369)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
