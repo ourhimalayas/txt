@@ -2,34 +2,50 @@
 ---
 
 
-## 银河快讯：日本钢铁厂高炉在生产60年后停产；岸田能否长期担任首相
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1564208/)
+## 白思豪的警务专员和COVID顾问与中共的&#8221;执法合作&#8221;
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564268/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片1-99.png)[图片来源](http://www.lpls.net/)
-**1.****日本GPIF在纳入债券基准后仍将回避中共国债券**
+- 编译：西班牙喜悦农场–wenwu
 
-[据路透社9月30日报道，日本政府养老金投资基金(GPIF)表示，由于结算和流动性问题，即使在下个月中共国国债被纳入一个主要债券指数，该基金也不会投资于中共国国债。这个总资产达193万亿日元（1.729万亿美元）的世界最大养老基金表示，在富时罗素的世界国债指数（WGBI）从10月开始纳入中共国国债后，它将不参与人民币债券。GPIF总裁在其7月份举行的董事会会议记录中，列举了该基金认为投资中共国政府债对GPIF这样的大型投资者来说有风险原因。“中共国政府债券不能在国际结算系统中结算，而其他主要政府债券可以使用这种系统…”](https://money.usnews.com/investing/news/articles/2021-09-29/japans-gpif-to-shun-chinese-govt-bonds-even-after-benchmark-inclusion)
 
-**2.****私营企业的平均工资约为433万日元，连续第二年下降**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/001-7.jpg)
 
-[据朝日新闻 9月29日报道，据国家税务局的调查，去年私营企业收到的平均工资与前一年相比减少了约3万日元，这是连续第二年的下降。 平均奖金也比前一年下降了8%，约为65万日元，这是自金融海啸以来最大的下降。按就业类型划分，全职员工的平均工资约为496万日元，兼职员工的平均工资约为176万日元，这是自2012年开始调查以来首次缩小差距。](https://news.yahoo.co.jp/articles/6c551ad86caf277d5933880a0eed073a05fb8789)
+詹姆斯·奥尼尔（james O’Neill）曾被纽约市长比尔·德·白思豪（Bill de Blasio）提名为纽约市警察局长，也是COVID-19的现任高级顾问，他曾多次在美中公共事务协会（ACPAI）发言，该协会与中共高层联系的影响力团体有密切联系，寻求”收编和中立化反对派”的政权。
 
-**3.****美国将寻求与下任日本首相建立密切联系**
+尼尔于 2016 年至 2019 年期间担任第 43 任警务专员，在其任职期间曾三度在美中公共事务协会 (ACPAI)中[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。它们分别是在：2016年[8](https://www.americachina.us/2017)月、2017 年 9 月和[2018 年](https://archive.ph/9h1NL)[11](https://www.americachina.us/2018) [月](https://archive.ph/9h1NL)的“警务专员午宴”（如图）上[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。
 
-[据共同社9月29日报道，亚洲问题专家说，鉴于在美中竞争加剧的情况下双边联盟的重要性，预计美国总统拜登的政府将迅速伸出援手，与下任日本首相岸田文雄建立密切联系。拜登政府也可能会密切关注64岁的岸田是否能够巩固其对权力的控制，避免日本回到所谓的旋转门领导时代。日本处于美国关心的与中共国竞争的每个领域，从技术和国防到民主和外交。双边关系重点不在联盟而在于“战略的执行力”。](https://english.kyodonews.net/news/2021/09/86b8e35246a9-us-to-seek-close-ties-with-next-japanese-pm-amid-china-rivalry.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/002-7.jpg)
 
-**4.****岸田能****否****长期担任首相取决于11月的大选**
+ACPAI 网站显示，该组织强大力[支持](https://www.americachina.us/goals)美中两国在“执法合作”、“军事磋商”和“流行病控制”等领域，建立安全伙伴关系。同样，ACPAI“强烈支持美利坚合众国和中华人民共和国之间的互免签证计划”，以及两国之间的自由贸易协定。
 
-[据共同社 9月29日报道，岸田文雄不会有太多时间沉浸在他在日本执政的自民党领导人竞选中的胜利，也就是下一任首相，因为他很快将面临大选的重大考验。随着众议院议员目前的任期在10月21日结束，全国范围的投票必须在11月28日之前举行。投票结果将决定这位前外长是在法定授权下执政，还是像他的前任菅义伟那样冒着任期短的风险。在关于谁最适合成为该国下一任领导人的媒体调查中，河野一直名列前茅，在共同社最近的一项调查中，有31.9%的受访者选择了他，而岸田则有18.8%。](https://english.kyodonews.net/news/2021/09/662638b42893-focus-kishidas-longevity-as-pm-hinges-on-nov-general-election.html)
+ACPAI 的会长滕绍骏（Fred Teng)，[同时还兼任](https://bushchinafoundation.org/people/fred-teng/)中美交流基金会（CUSEF）的高级美国代表。
 
-**5.****吴市钢铁厂高炉在生产60年后停产**
+CUSEF 是由中共国统战的“最高级别实体”副主席[董建华](http://usa.chinadaily.com.cn/2016-01/26/content_23262245.htm)创办的，美国[政府](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)认为[CUSEF](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)旨在“吸收和消除可能反对中共政策和政权的潜在反对者”。并“影响外国政府采取行支持北京的行动或立场”。董建华本人曾在 2016 年的 ACPAI 活动中（如图）发表了讲话。此外， CUSEF 理事 Ronnie [Chan](http://www.nordvann.com/news_and_events_detail.asp?id=19)（如图）也曾为 ACPAI 表过三次讲话。ACPAI 还主办了由中国共产党官员参加的活动，包括中共国联合国大使、对外贸易经济合作部副部长和总领事，以及中共国官方媒体主持人。
 
-[NHK 9月29日报道，日本最大的钢铁制造商新日铁公司停止了位于广岛县吴市的钢铁厂的高炉运行。由于国内市场萎缩，该公司决定在两年内关闭该厂，结束了约60年的高炉钢铁生产。据该公司称，包括分包商在内的在该厂工作的3,000人中有一半将因高炉关闭而失去工作。 该公司表示，它将通过将工人转移到县外来维持就业，但一些分包商已决定关闭他们的业务，这引起了对当地经济影响的担忧。](https://www3.nhk.or.jp/news/html/20210929/k10013282021000.html?utm_int=all_side_ranking-social_001)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/003-5.jpg)
 
-**6.****七国集团财长举行会议讨论新的国际税收规则**
+ACPAI 还举办了“与（中国人民解放军退役少将）姚云珠博士的私人早餐论坛”，同时该协会还举办了由解放军军事科学院主办的”安全伙伴关系研讨会”。
 
-[据NHK 9月30日报道，七国集团财政部长在线讨论国际税收的新规则。会后，副总理兼财政部长麻生说，讨论正在稳步推进，争取在下个月月底前达成最终协议。该会议于29日晚在举行，日本副首相出席了会议，并讨论了建立新的国际税收规则以阻止竞相降低企业税的问题。到目前为止，134个国家和地区，主要是OECD（经济合作与发展组织）的成员，已经广泛同意将最低公司税率设定为至少15%，并为全球公司引入新的税收规则。](https://www3.nhk.or.jp/news/html/20210930/k10013283331000.html??utm_int=news-new_contents_latest_002)
+根据该协会的使命声明，在上述中国共产党官员的帮助下，ACPAI 试图“聚集我们的专业知识和我们的朋友网络，以促进美中关系的转型；在二十一世纪，与中华人民共和国的合作伙伴关系对美利坚合众国来说是重要和必要的。
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Curiosity
+尽管奥尼尔与该组织有联系，但德·白思豪还是在 2020 年 4 月重新聘请了这位前警察局长，并兼任担任中共病毒（COVID-19）高级顾问。
+
+“在这个职位上，奥尼尔（如图）将监督纽约市医院内个人防护和医疗设备的供应和分配，因为 COVID-19 危机导致需求持续激增。奥尼尔将在医院内创建、运作和管理一个供应检查制度，以确保新供应品的快速周转，并核实每家医院正在向一线医护人员推送所需设备，”纽约市长办公室[解释说](https://www1.nyc.gov/office-of-the-mayor/news/215-20/mayor-de-blasio-james-o-neill-covid-19-senior-advisor#/0)。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/004-4.jpg)
+
+**简评：**
+
+**奥尼尔被中共蓝金黄了，并且可能带着白思豪的任务，所以白思豪在中共病毒在美国肆虐之时，重新聘请了他回来担任 中共病毒高级顾问。**
+
+**本篇报道明确了，这位纽约市警察局局长是管控了纽约市医院的应对疫苗所需要的设备。当时还是川普的时代，川普认为纽约市谎报了呼吸机等的医疗储存数量，而纽约市为驳斥了川普；值得一提的是，华为向纽约州捐出了1万个N95口罩、1万个手套、2万件防护服和5万个防护镜，还包括了纽约[紧急](https://c.m.163.com/news/a/F8GH0AB10519EO06.html)向中共国求购1.5万台呼吸机！**
+
+（文章仅代表作者观点 与GNEWS无关）
+
+新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/de-blasio-commisioner-spoke-at-ccp-influence-group/)》｜作者：娜塔丽·温特斯｜发布时间：2021年9月29日
+
+* * *
+
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)

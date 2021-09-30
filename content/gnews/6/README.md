@@ -2,35 +2,44 @@
 ---
 
 
-## 秘翻在线：澳大利亚疫苗专家在法庭上的无知与傲慢
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564328/)
+## 有声| 辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564388/)
 
-#### 撰稿：彩虹        
+配音：香草山教育部-蒙古鸿雁
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-450.png)图片来源：7News
-9月30日，《悉尼先驱晨报》报道了澳大利亚新南威尔士州民众就中共病毒疫情等问题起诉政府官员和州政府的最新进展。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-新南威尔士州卫生部今天（周四）宣布，自6月16日最新中共病毒疫情开始以来，新南威尔士州有337例与中共病毒相关的死亡病例，共有56500中共病毒病例。目前，新州有1090人在医院接受新冠病毒治疗，其中213人在重症监护室。
 
-根据报道，新南威尔士州强制要求某些行业的工人接种中共病毒疫苗，如要求医生、护士和护理人员在内的医护人员必须在周四之前接种至少一剂中共病毒疫苗才能上班，或者提供一份医疗证明，以详细说明他们为何不能接种中共病毒疫苗。此外，政府还对老年护理人员、新南威尔士州警察、公立学校、学前教育机构的工作人员以及建筑行业也发布了强制接种中共病毒疫苗的规定。
 
-对此，多名普通民众在新南威尔士州最高法院针对州政府和州卫生部长布拉德·哈扎德（Brad Hazzard）发起了诉讼。这些原告包括：老年护理人员娜塔莎·亨利（Natasha Henry）和塞琳娜·克罗(Selina Crowe)，护理人员约翰·莱特（John Larter）、高中特殊教育教师朱莉·拉莫斯（Julie Ramos）和建筑工人阿尔·穆尼尔·卡萨姆（Al-Munir Kassam）。其他原告包括一名孕妇，她是Laverty Pathology化验室的工作人员，也是班克斯敦（Bankstown）医院的一名工人。
 
-原告方认为，要求从10月11日起，接种疫苗者才可以出席某些零售场所的活动，这是不合法和无效的，违反了自然正义的要求。
 
-值得注意的是，代表建筑工人卡萨姆先生出庭的彼得·金（Peter King）大律师说，他认为哈扎德先生没有调查或询问中共病毒（COVID-19）的替代治疗方案。
 
-就一位营养学家的意见，即锌、维生素D和维生素C“将是中共病毒（COVID-19）患者的安全和有效的治疗方法”一事，他向疫苗专家、澳大利亚免疫技术咨询小组（ATAGI）成员克里斯汀·麦卡特尼（Kristine Macartney）教授进行了询问。
 
-麦卡特尼的回复是：“不，我不同意这个观点。”
+据[零对冲](https://www.zerohedge.com/covid-19/pfizer-launches-final-study-covid-drug-thats-suspiciously-similar-ivermectin)9月28日报道，周一，辉瑞公司宣布，它正加速进行一种COVID预防药物的中后期试验，旨在抵御那些可能接触过该疾病的人的COVID。该药物旨在阻断冠状病毒在人体内繁殖所需的一种关键酶的活性，将与低剂量的利托那韦一起给药，利托那韦是一种广泛用于艾滋病（HIV）感染联合治疗的老药。
 
-彼得·金律师也提出了一系列其他治疗药物，包括伊维菌素、羟氯喹、阿司匹林、哮喘病药物singulair以及土霉素等。
+巧合的是，辉瑞公司正在研发的新药至少与伊维菌素共享同一种作用机理。伊维菌素是一种在人类中使用了几十年的抗寄生虫药，它作为一种蛋白酶抑制剂可对抗Covid-10。研究人员推测这“可能是其抗病毒效率背后的生物物理基础”。
 
-麦卡特尼却回答说，她没有亲自参与任何有关药物治疗中共病毒有效性的研究，但她认为她已经了解了所有可用的证据和评论。
 
-**新闻来源**
 
-[Expert asked about vitamin C, zinc during court challenge to COVID-19 vaccine mandate](https://www.smh.com.au/national/nsw/expert-asked-about-vitamin-c-zinc-during-court-challenge-to-covid-19-vaccine-mandate-20210930-p58w09.html)
+**文字版原文：[辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似](https://gnews.org/zh-hans/1561121/)**
 
-**关键词**
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

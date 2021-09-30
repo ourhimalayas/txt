@@ -2,31 +2,53 @@
 ---
 
 
-## 爱国生意做昏了头 北京当局喝令刹车
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1564147/)
+## 油管封杀所有反疫苗内容及著名反疫苗人士
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564187/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16329859101.png)
-中共国最近大面积电荒，爱国网红称这是在为掌握通胀大权下一步大棋。爱国还爱到了“中日边境“，让北京当局也难堪。共青团中央9月30日发文批评“有人把爱国做成了生意”，为了博眼球，带节奏，用反智论刺激社会情绪。爱国网红们丢掉了常识。
-
-最近围绕孟晚舟回国，全国多地大规模停电、限电，网红们掀起种种爱国浪潮。网红经济学家叶檀则为“拉闸限电”掩饰：1，倒逼原材料成本，以免失控；2，争夺通胀话语权；3，逼迫国内产业升级，与人民币汇率升值同理。动力煤价太高了。
-
-有网民评论，国外凡是停电都是事故，大面积停电都是灾难。中共国停电是绿色低碳生活，大面积停电是党中央的一盘大棋，是争夺中共国定价权，掌握通胀的主动权，反击美元霸权，引起美国通胀、加息，直到美股崩盘，导致美国经济崩塌，中共国经济就伟大了。如果是这样，那真的是在下一盘很大的棋。然而精神胜利法并不能解决实际问题，限电、停电还在继续，严重影响民生。
-
-拍马屁拍到了马蹄子上，不留神挨了党妈一蹄子。“爱国”爱到脑子发烧，“爱国”爱到没人性的网红们，睁开眼睛看一看，动动猪脑子想一想，北方进入冬季，如果继续限电、停电，会有多少民众会被冻伤，甚至冻死？全国限电，中南坑会不会限电？盗国贼海外的私生子女们会不会回来跟老百姓一起挨冻受饿？网红们，别忘了，下一个有可能被冻死的就是你。
-
-新闻参考链接：[https://www.rfi.fr/cn/中国/20210929-爱国生意做昏了头-北京当局喝令刹车](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20210929-%25E7%2588%25B1%25E5%259B%25BD%25E7%2594%259F%25E6%2584%258F%25E5%2581%259A%25E6%2598%258F%25E4%25BA%2586%25E5%25A4%25B4-%25E5%258C%2597%25E4%25BA%25AC%25E5%25BD%2593%25E5%25B1%2580%25E5%2596%259D%25E4%25BB%25A4%25E5%2588%25B9%25E8%25BD%25A6)
-
-编辑：胖丁
-
-PR：穆清
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+栏目记者/责任编辑：文一
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+据《华盛顿邮报》今日报道，油管正在封杀反疫苗内容和关闭包括约瑟夫-梅科拉和小罗伯特-肯尼迪等著名反疫苗人士的视频频道。
+
+油管、脸书和推特早在大流行初期就压制关于中共病毒的所谓“错误”信息。迄今，油管已经删除了超过13.3万个相关视频。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-102.jpg)
+目前大约56%的美国人口已经打了两针，而加拿大和英国分别为71%和67%。7月，美国总统乔-拜登声称社交媒体公司对疫苗接种放缓负有责任，需要做更多工作来解决这个问题。
+
+油管这个每日流量超过10亿小时的社媒巨头应声对反疫苗内容再次打压。医学企业家梅科拉和已故参议员罗伯特-F-肯尼迪的儿子小肯尼迪的频道被关。他们一直是反疫苗运动的代言人。但他们并非反对所有的疫苗，而是认为有关疫苗风险的信息被压制。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2..jpg)
+脸书早在7个月前就动作压制所有反疫苗信息。
+
+防民之口甚于防川，现今在一向自由开放的西方国家也有愈演愈烈之势，恰确是人类最需要真相，事关生死之时。盖特的横空出世犹如划破黑夜的曙光，令真相得以传播。历史将做出最好的选择和证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-13.jpg)
+参考链接：
+[YouTube is banning prominent anti-vaccine activists and blocking all anti-vaccine content](https://www.washingtonpost.com/technology/2021/09/29/youtube-ban-joseph-mercola/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
