@@ -2,12 +2,7 @@
 ---
 
 
-## 为什么强制没有用的含有石墨烯的毒疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1563130/)
+## 9/29/2021 七哥直播：当年印尼有110万华人被杀掉
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1563799/)
 
-- 制作：JIHO
-
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+秘密翻译组-北美组

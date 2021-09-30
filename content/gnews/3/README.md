@@ -2,58 +2,44 @@
 ---
 
 
-## 舔共艺人能躲过“共同富裕”的风暴吗
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1564279/)
+## 美国国家银行监管人曾获得”列宁&#8221;奖
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564376/)
 
-台湾宝岛农场 斗阵来拼
+- 编译：西班牙喜悦农场–wenwu
 
-2021年8月中旬，中共中央财经委员会上提出 “在高品质发展中促进共同富裕”，此政策出抬并上升为国家战略后，“共同富裕”这个词即成为热搜话题。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/My-Post-4.jpg)图片来源: 自由时报
-如何实现“共同富裕”才是让人最胆颤心惊的过程。根据彭博报导，中共国政府6月将国内第3富裕的省份浙江指定为共同富裕政策的试点，并在7月发布详细目标，同时呼吁企业家将更多财产捐赠给社会；根据彭博数据统计，浙江有至少10名亿万富翁，净财产总额达2.36亿美元，其在中共国监管压力下，已经有多名科技巨头公开表示将捐款回馈社会。
 
-此计画目前虽箭指民营企业，但仍不免让然联想，中共整治完民企之后的下一步，会不会也祭出呼吁演艺圈与娱乐界的名人们，列入推动实现“共同富裕”的重点目标之一呢? 这次中共大动作地掠夺各方财富之际，这些所谓的舔共艺人，他们会不会响应“共同富裕”政策，以表效忠祖国呢? 让我们拭目以待。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-452.png)
 
-所谓的“舔共艺人”，他们必须在发生重大且具有争议的新闻事件上，第一时间迅速地表态支持中共国的政策，以达到政府当局洗脑国人及带风向的效果；他们的特点是完全不关心社会议题，不支持弱势群体，只在乎自己是不是能在中共国获得更多工作机会，进而捞更多人民币罢了。
+拜登总统挑选来监督国家银行的监管人，曾经称赞苏联的男女平等，并曾在大学期间获得了“列宁”奖。
 
-简单整理近年所发生几件违反民主与人权的国际新闻事件，都有舔共艺人的身影出现：
+康奈尔大学（Cornell University）法学教授绍尔·奥马洛娃（（Saule Omarova）是哈萨克斯坦人，毕业于莫斯科国立大学（Moscow State University），根据她的简历，她曾获得”列宁个人学术奖学金”。
 
-新疆棉事件
-美国川普政府国务卿蓬佩奥( Mike Pompeo) 于台湾时间2021年1月20日宣布，认定中共对维吾尔族“犯下种族灭绝和反人类罪”的这一刻起，世界各民主国家对中共的谴责排山倒海而来，许多国际知名品牌亦纷纷宣布禁用新疆棉之际，此时“舔共艺人”必须出头表态，为赚人民币下跪，力挺新疆棉，与国际大品牌解约取消代言，也在所不惜!
+就在最近的2019年，奥马洛娃[称赞](https://twitter.com/STOmarova/status/1112387645882200064?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1112387645882200064%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.foxnews.com/politics/bidens-pick-regulate-national-banks-lenin-award-praised-ussr-gender-equality)（如图）前苏联共产主义体制–她认为，这一点在美国可以得到应用。“在我来到美国之前，我无法想象像男女工资差距这样的事情在当今世界仍然存在，”奥马洛娃在一条推特上写道。“说说你对前苏联的看法吧，那里没有男女薪酬差距。自由市场体制并不总是’有效的’。”
 
-此事件的代表性舔共台湾籍艺人有彭于晏、张钧宁、许光汉、欧阳娜娜等人。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-454.png)
 
-香港反送中运动与黑警事件
-2019年6月百万港人走上街头，反对港府修订“逃犯条例”，拉开反送中运动的序幕。香港政府把“逃犯条例” (又称送中条例) 的修订推上立法会二读，上万人包围立法会和平示威，要求撤回修例，但警方却对民众发出催泪弹，并爆发众多黑警对和平抗议民众暴力执法的许多画面被拍下，上传于社交媒体上，震惊国际社会。
+其作为对华尔街的激烈批评者，奥马洛娃的任命在华盛顿和国家最强大的银行中敲响了警钟，因为她提出的改革是“有效地’结束银行业务’，正如我们所知。我们对她从根本上限制美国银行系统的想法表示严重担忧，这个系统仍然是世界上最多样化和最具竞争力的。”美国银行家协会主席兼首席执行官罗布·尼科尔斯（Rob Nichols）在一份声明中说。
 
-香港发生如此泯灭人性的黑警血腥镇压此事件，老牌港星谭咏麟、钟镇涛、梁家辉等人竟一起现身撑警大会，表示支持香港警察；还有台籍艺人欧阳娜娜又再次入榜也迅速表态:“我爱香港，我爱中国，我也支持香港警察”，这些支持黑警的所有人都是刽子手的共谋，天理难容。
+《福克斯》已经联系了奥马洛娃和白宫以寻求评论，但在发表之前没有得到回复；奥马洛娃的任命与拜登总统对自己作为一个所谓的温和派的描述不一致。她也不是拜登的人选中第一个被指控怀有激进信仰的人。
 
-台湾太阳花学运
-2014年台湾的318太阳花学运，在2014年3月18日至4月10日期间学生冲入立法院占领国会，抗议马英九政府的立法院，竟然欲上演黑箱表决通过与中共国签订不对等的“海峡两岸服务贸易协议”(简称服贸协议)。
+拜登提名大卫·奇普曼（David Chipman）管理酒精烟草和火器局（ATF），但后来因[奇普曼](https://www.foxnews.com/politics/white-house-pulling-atf-nomination-david-chipman-second-amendment-guns)曾对拥枪者发表过尖锐的评论，而取消了任命；与此同时，参议院民主党人正准备[确认](https://www.foxnews.com/politics/senate-dems-prepare-confirm-stone-manning)拜登总统与生态恐怖主义有关的候选人特雷西·斯通-曼宁（Tracy Stone-Manning），以领导土地管理局 (BLM)。
 
-当年反对太阳花学运的代表性台湾艺人有张小燕、胡瓜、曾国城等人。其中知名老牌主持人张小燕公开反对太阳花学运的名言是: “不能因为菜不好吃，就进厨房翻别人桌子”。由此言可窥出，她对学生们此次和平抗议运动是充满轻蔑及践踏民主信仰的成分居多。
+奥马洛娃似乎对共产主义政府的亲和力让人想起前总统巴拉克·奥巴马的顾问[安妮塔](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)[·](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)[邓恩](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)。她在奥巴马时代[上任](https://www.youtube.com/watch?v=5qDsrfy-Zvg&amp;feature=emb_imp_woyt)的第一年就把[毛泽东](https://www.independent.co.uk/arts-entertainment/books/news/mao-s-great-leap-forward-killed-45-million-four-years-2081630.html)列为她的英雄之一而引起人们的关注，另一位则是特蕾莎修女。
 
-这些艺人的共同特点就是他们眼中只有钱。正如知名爱港艺人杜汶泽对这些人所下的评价是:“他们眼中除了钱、名气和工作上的满足感之外，地面上所发生的一切，离他们很远”、“奉劝粉丝：“不要太认真，会失望是因为没有做好“期望管理”而已，以后听歌的听歌，看戏的看戏，不要存在太多幻想就好”。
+**简评：**
 
-值得一提的是，演艺圈知名的舔共夫妻林瑞阳及张庭曾在媒体上公开炫富称 “家里到处都是钱”，但最近张庭被起底，注销旗下9家公司，更传出她已“逃回台湾”，引发诸多揣测。最爱祖国的舔共夫妻为何要逃回台湾? 是否跟“共同富裕”的口号，“鼓励高收入人群和企业回报社会”的计划有关呢? 一切都未完待续进行中，让我们继续看…下…去!
-(本文只是笔者观点，不代表G NEWS立场)
+**看来本届政府让《福克斯》联想到了，拜登总统上台的任务之一是像奥巴马时代一样印美元和增加国家赤字的。而且美元变毛的幅度，或许也会超过许多人的想象！**
 
-参考资料
+**另外在中共国，郭文贵先生在2021年9月29日[大直播](https://gtv.org/video/id=615466c142a8af3151a74ee3)中表示：“中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，虚拟币是美国和中共都抢不走钱，只有喜币最安全；新中国联邦是超越国家的概念，建立独一无二的体制带给战友财富并有无限希望。”**
 
-:
+**最后，我们爆料革命将会庆祝喜币在10月份的上市（还有每年将会多出10亿个喜币）。**
 
-- [https://view.ctee.com.tw/analysis/32044.html](https://view.ctee.com.tw/analysis/32044.html)
-- [https://www.storm.mg/article/1496655](https://www.storm.mg/article/1496655)
-- [https://stars.udn.com/star/story/10089/5344960](https://stars.udn.com/star/story/10089/5344960)
-- [https://news.ltn.com.tw/news/politics/breakingnews/2887846](https://news.ltn.com.tw/news/politics/breakingnews/2887846)
-- [https://star.ettoday.net/news/340347](https://star.ettoday.net/news/340347)
-- [https://www.chinatimes.com/amp/realtimenews/20140330000445-260507](https://www.chinatimes.com/amp/realtimenews/20140330000445-260507)
-- [https://newtalk.tw/news/view/2021-03-26/554615](https://newtalk.tw/news/view/2021-03-26/554615)
+（文章仅代表作者观点 与GNEWS无关）
 
+新闻来源：《[福克斯](https://www.foxnews.com/politics/bidens-pick-regulate-national-banks-lenin-award-praised-ussr-gender-equality)》｜作者：布拉德福德·贝茨｜发布时间：2021年9月29日
 
 * * *
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)

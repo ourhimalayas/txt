@@ -2,58 +2,19 @@
 ---
 
 
-## 路透社评论：中共国限电停电背后意味着什么
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564163/)
+## 澳州官员警告说 未接种疫苗的人未来生活会有很多不便
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564260/)
 
-作者：香草山写作组-文一
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-2-2.jpg)图片来源：美联社
+据《布雷特巴特新闻网》（Breitbart News）9月28日报道，澳大利亚新南威尔士州州长格拉迪斯·贝尔吉格利安 (Gladys Berejiklian) 9月28日告诉记者说，当居家限制令（stay-at-home orders）于今年12月终止时，那些仍未接种中共病毒疫苗的人在日常生活上将面临诸多苦难，从参加社会活动到求职就业都会受到影响，而且这种影响是无限期的。
 
+贝尔吉格利安告诉第7频道新闻网（7News）：“很多企业已经表示，他们不会招收任何未接种疫苗的人。“ 因为澳州政府严格执行新冠政策，所以警察在街上逮捕那些不戴口罩的人，正如数个视频所显示的那样。
 
+悉尼政府承诺在10月11日至12月1日期间，对已接种疫苗的居民放松封锁限令。“在悉尼的所在地新南威尔士州，酒吧、咖啡馆、健身房和理发店将于10月11日向完全接种疫苗的人重新开放。一旦80%的成年人完全接种了疫苗，更多禁令将被解除。”截至9月28日，澳州的接种率仍为52%。澳大利亚领导人表示，接种率必须达到80%以上，澳州才能完全重新开放。卫生部长格雷格·亨特 (Greg Hunt)敦促人们接种疫苗，“接种疫苗是为了拯救你的生命。”
 
-9月27日路透社发表评论指出，由于煤炭供应短缺、排放标准趋严以及制造商和工业界的强劲需求，中共国正面临电力供应严重不足的局面，煤炭价格被推至历史高位，导致大规模停电限电。
+美国佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis) 9月23日直言不讳地表示：“澳大利亚不能再被视为是一个‘自由的国家’，因为它继续实施军事化的封锁禁令，对人们的监管程度和监控其饮酒一样严厉。现在的澳洲比中共国更自由吗？”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/57456176_303.jpeg)
-
-文章指出，虽然家庭限电才刚开始生效，其实至少从3月份开始，中共国一些大型工业基地、出口大省广东的制造商们及东部沿海主要工业区就出现了断电限电问题。
-
-作为世界上最大的二氧化碳和其他污染气体的生产国，中共国家主席习近平于2020年底在联合国气候变化峰会上宣布大幅降低二氧化碳排放量，实际上30个大陆地区中只有10个实现了其能源削减目标。
-
-截至2021年8月，中共国的总发电量比2020年同期多出10.1%，比2019年同期多出近15%
-
-为此中共发改委在9月中旬宣布了更严厉的惩罚和问责措施。各地政府纷纷出招应对。
-
-浙江、江苏、云南和广东等省的地方政府已经要求工厂限制用电或减少生产。
-
-一些电力供应商通知要求用户上午7点至晚上11点的用电高峰期停止生产，或者每周有两到三天完全停产。
-
-有些用户被要求关闭。据悉天津大豆加工厂等工厂自9月22日以来一直处关闭状态。
-
-不仅广大工业生产受到打击，个人用户也不能幸免，中国东北部分地区的家庭被告知限制使用热水器和微波炉。
-
-另一方面，因中共发起对第二大煤炭出口国澳大利亚进行贸易战，澳大利亚已经极大限制对中煤炭出口。而中共国在煤矿事故频发、加强监管后，自身生产已经放缓。天然气也因疫情出现全球短缺。
-
-另据新浪网报道，因煤价攀升和能源管控，中共国电厂出现越发电越亏损的情况，因此不愿意亏本发售电，导致电力供应缺口持续扩大。
-
-这真是中共国又一次搬起石头砸自己脚的奇葩演绎。对外假大空，对内快狠准，连维持民生和企业生产的基本保障都出了大问题。
-
-参考链接：
-
-[https://www.msn.com/en-us/news/world/explainer-what-is-behind-chinas-power-crunch/ar-AAORFo3](https://www.msn.com/en-us/news/world/explainer-what-is-behind-chinas-power-crunch/ar-AAORFo3)
-[https://www.sohu.com/a/491708389\_115479](https://www.sohu.com/a/491708389_115479)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[Australia: Official Warns: ‘Life for the Unvaccinated Will Be Very Difficult Indefinitely’](https://www.breitbart.com/politics/2021/09/28/australia-official-warns-sydney-residents-unvaccinated-will-face-social-isolation-difficult-life/)

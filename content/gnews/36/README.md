@@ -2,29 +2,20 @@
 ---
 
 
-## 2021年9月4日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563869/)
+## 俄电视台德语频道遭油管封杀 俄罗斯或因此封锁油管
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564020/)
 
-盖特连接：[https://gettr.com/post/pa5jfn2cf7](https://gettr.com/post/pa5jfn2cf7)
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-143.jpg)图片来源：路透社
+据政治新闻网9月29日报道，因俄罗斯国有广播公司今日俄罗斯（Russia Today/RT）的两个德语账户在周二被YouTube（油管）终止，俄罗斯政府的媒体监督机构Roskomnadzor周三反击威胁说，如果油管不恢复被禁止的频道，它将在俄罗斯被封杀。
 
-9月4号：尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？**🙏****🙏🙏🙏🙏🙏🙏🙏🙏**
+在 RT 的德语频道被删除 1 天后，这家谷歌公司的视频平台称俄罗斯国家支持的广播公司违反了其关于中共病毒的信息政策。该公司的一位发言人告诉多家媒体。在RT的频道被终止之前，它受到了攻击，随后遭到为期一周的发布禁令。RT试图通过其一个名为 “Der Fehlende Part “（失踪的部分）的节目频道进行上传来规避这一禁令，结果，两个频道都因违反油管服务条款而被终止。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+RT 的总编辑 Margarita Simonyan 在一条推文中称，该禁令是 “德国政府向俄罗斯政府宣布的真正的媒体战争”。她还呼吁俄罗斯政府通过禁止德国公共服务广播公司（如 ARD 和 ZDF）做出回应。
 
-（做了一组健身轮），欧~~哦哈姆呐姆Gi哈斯嘎呀（马背英雄中的蒙古语歌词：推翻共产党）！灭共！兄弟姐妹们，太多好消息了！明天直播，我有好多好消息告诉你们！每一组做二十四个，做六组，千万别试啊！千万别试！这个不是吹牛的！（送飞吻）。
+俄罗斯外交部在一份声明中把终止 RT 的频道描述为 “前所未有的信息侵略”。
 
-编辑整理及发布：黎明之前
+据 ARD 报道，在大流行期间，以 “保持批判性 “为座右铭的RT怀疑德国是否存在第二波感染，并报道了挪威的所谓 “疫苗屠杀”。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[Russia threatens to block YouTube after it deleted RT’s German channels](https://www.politico.eu/article/youtube-deletes-rt-germany-covid-19-misinformation/)
