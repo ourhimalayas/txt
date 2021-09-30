@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/30/2021 12:39 PM (UTC)`
+
+众多注射了中共病毒疫苗的患者在不应该的年龄被诊断出患有难以解释的癌症<br/><br/>A tremendous amount of vaccinated patients are diagnosed with inexplicable cancers at unusual ages<br/>
+![img](https://media.gettr.com/group11/getter/2021/09/30/12/7b370ecf-485a-8e85-7159-e1abfd3ec5b1/out.jpg)
+
+---
+
+`@miles 9/30/2021 12:28 PM (UTC)`
+
+澳参议员评论中共对澳大利亚的渗透，包括最近的“一带一路”交易丑闻<br/><br/>Australian senator comments on the CCP’s infiltration of Australia, including the recent Belt and Road deal scandal<br/>
+![img](https://media.gettr.com/group39/getter/2021/09/30/12/b44dfce1-58f6-161f-5baf-f3812cc46cc1/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@baguan 9/30/2021 12:08 PM (UTC)`
@@ -286,21 +300,6 @@ An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一
 
 If you want to protect your family, please keep them away from the Covid vaccine, spread out the truth, and reach out a helping hand to those in need.  <br/><br/>For those already vaccinated, please avoid the 2nd and 3rd doses; If you start having the symptoms, please seek help and don’t hesitate to ask your doctor to give you Ivermectin plus Doxycycline and Artemisinin for the Treatment of Covid-19 Infection.
 ![img](https://media.gettr.com/group37/getter/2021/09/27/18/52/ce3c07e4-b29b-363c-076a-ff198ca86264/out.jpg)
-
----
-
-`@miles 9/27/2021 6:51 PM (UTC)`
-
-Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine before it is too late!<br/>Spread out the truth to stop all the disasters!  <br/><br/>This notorious vaccine not only taking away our rights but also murdering our loved ones.  How many people were forced to take the vaccine against their will?! How many people were killed because of this vaccine?! How many people are facing the problem of side effects that may occur in the future? Such as autoimmune neurologic disorder that includes weakness and paralysis in the limbs and muscles, and thrombosis with thrombocytopenia syndrome (TTS), which causes blood clots and low platelet levels, persistent headaches, visual changes, abdominal pain, chest pain, leg pain, coldness in limbs and acute bruising or bleeding.
-![img](https://media.gettr.com/group35/getter/2021/09/27/18/51/29e4a6f0-3325-1478-c8f2-25038462e1d7/out.jpg)
-
----
-
-`@miles 9/27/2021 4:49 PM (UTC)`
-
-9月27号：骗子多的地方就说明了傻人更多……骗子傻人多的地方就说明社会没有法律没有信仰，当然也没有真正的公平的成功。
-> `@taishan 9/27/2021 4:27 PM (UTC)`<br/>我十几年前的“借壳融资”模式也让恒大集团发扬光大了！<br/>恒大集团真是无所不用其极！
-![img](https://media.gettr.com/group29/getter/2021/09/27/16/26/467c9f28-b76d-c2ab-2f96-c8b35443c0d4/1a8b9fb95ebf8e8b58bcfeb2578fd8e8.jpg)
 
 ---
 
