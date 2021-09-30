@@ -2,29 +2,23 @@
 ---
 
 
-## 2021年9月6日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563654/)
+## 德国内政部证实：对小米手机展开安全调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1563694/)
 
-盖特连接：[https://gettr.com/post/pa940d7527](https://gettr.com/post/pa940d7527)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-28T095406Z_1744731075_RC2MYP9WJ5RU_RTRMADP_3_CHINA-XIAOMI.jpg)德国内政部证实：对小米手机展开安全调查 网络图片
+德国内政部发言人9月29日表示，出于资讯安全考虑，德国电信联邦资讯安全局正对小米手机( Mi 10T 5G ）进行审查，因为美国制裁华为，称其设备可能用来支援中共国的间谍活动。
 
-9月6号：尊敬的战友们好，你们传播CC P病毒疫苗的解药了吗？你们健身了吗？一切都已经开始！
+立陶宛国家网络中心警告称，小米手机会向新加坡的伺服器发送加密过后的手机数据，且小米手机内设审查功能，会自动审查”自由西藏”、”台湾独立万岁”或”民主运动”等用语，目前已列入 449 个中文词汇，而且该清单还在不断更新。立陶宛国防部建议不要买中共国手机，并尽快处理掉已购买的手机。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+中共的间谍渗透已经到了防不胜防的地步，作为通讯工具的手机被内置了诸多功能，随时随地搜索和收集数据，实时监控，不分国界。
 
-战友们，这个（指健腹轮）推到头的时候它会自动地卡住，不是你想往前就往前的，啊，累死我了！所以这个是限制量的，只有慢慢地，才能推得更远一些。这个我每天做八组，每一组二十四个，耶~哦哈姆那姆Gi娜斯嘎呀（蒙古语，马背英雄的歌词，意为打倒共产党）！共产党你完啦！
+新闻参考链接：[https://www.rfi.fr/cn/中国/20210929-德国内政部证实-对小米手机展开安全调查](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20210929-%25E5%25BE%25B7%25E5%259B%25BD%25E5%2586%2585%25E6%2594%25BF%25E9%2583%25A8%25E8%25AF%2581%25E5%25AE%259E-%25E5%25AF%25B9%25E5%25B0%258F%25E7%25B1%25B3%25E6%2589%258B%25E6%259C%25BA%25E5%25B1%2595%25E5%25BC%2580%25E5%25AE%2589%25E5%2585%25A8%25E8%25B0%2583%25E6%259F%25A5)
 
-编辑整理及发布：黎明之前
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+编辑：【英国伦敦喜庄园编辑部】
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
