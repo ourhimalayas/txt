@@ -2,29 +2,37 @@
 ---
 
 
-## 2021年9月4日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563869/)
+## 油管禁止所有反疫苗视频，俄罗斯对此违法行为表不满
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563981/)
 
-盖特连接：[https://gettr.com/post/pa5jfn2cf7](https://gettr.com/post/pa5jfn2cf7)
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Z3CXTPW65JLEJJO2UZEGMRLEWE-1-680x454-1.jpg)
+图片来源：junkee.com
 
-9月4号：尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？**🙏****🙏🙏🙏🙏🙏🙏🙏🙏**
+**【雅典娜快讯】，紧贴时事脉搏**
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+油管（YouTube）将禁止其平台上的所有“有害的疫苗内容”，包括声称疫苗对减少疾病传播无效的说法。该禁令是在谷歌旗下公司一年来不断升级的审查之后出台的。
 
-（做了一组健身轮），欧~~哦哈姆呐姆Gi哈斯嘎呀（马背英雄中的蒙古语歌词：推翻共产党）！灭共！兄弟姐妹们，太多好消息了！明天直播，我有好多好消息告诉你们！每一组做二十四个，做六组，千万别试啊！千万别试！这个不是吹牛的！（送飞吻）。
+新规定禁止声称疫苗“引起慢性副作用”、“不能减少疾病的传播或感染”以及含有未列出的成分（如胎儿细胞）的内容。这些规则适用于所有当前批准和管理的疫苗，而不仅仅是中共病毒疫苗。
 
-编辑整理及发布：黎明之前
+违反这些新规则的内容将收到来自油管的一系列“警告”，收到三次警告后会导致违规频道被关停。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+新政策增加了现有的“中共病毒医疗错误信息政策”，该政策规定了有关中共病毒的广泛禁忌话题。其中包括“鼓励家庭疗法”的视频，声称“口罩在防止中共病毒传染或传播方面没有作用”的内容，以及“建议使用伊维菌素或羟氯喹预防中共病毒”的内容。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+油管周三表示，自去年以来，已有超过13万个视频因违反此政策而被删除。本周初，俄罗斯的RT的德语频道（RT DE和Der Fehlende Part）就因违反该政策被油管永久删除。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+俄罗斯总统弗拉基米尔`·普京(Vladimir Putin)的新闻秘书德米特里·佩斯科夫(Dmitry Peskov)周三告诉记者，禁令相当于“审查和阻碍媒体传播信息的案件”，并将受到俄罗斯媒体监管机构的调查，并补充说“必须对此类违法行为零容忍。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**参考新闻：**[YouTube bans ALL anti-vax videos, ramping up Covid-era censorship campaign — RT World News](https://www.rt.com/news/536174-youtube-bans-anti-vax/)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,41 +2,20 @@
 ---
 
 
-## 恒大危机持续 中共网络维稳 维权群组被删
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1563623/)
+## 斯洛文尼亚动用催泪弹和水炮车镇压中共病毒疫苗护照抗议者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1563835/)
 
-栏目记者/责任编辑：AsG诺雅
+#### 编译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-101.jpg)图片来源：亚基马先驱报
+9月29日，《美联社》报道斯洛文尼亚警察使用催泪弹和水炮车镇压反抗疫苗护照的抗议者。
 
+与中欧和东欧的大部分地区一样，斯洛文尼亚最近几周也出现了中共病毒感染病例的增加。尽管一些国家将强生公司的疫苗使用范围仅限于老年人，但斯洛文尼亚政府建议所有18岁以上的公民都接种强生公司（Johnson & Johnson）的疫苗。政府要求所有在国营企业上班的雇员，要么接种中共病毒疫苗，要么接受昂贵的PCR测试。截止目前，这个拥有200万人口的国家有将近48%的人完成了中共病毒疫苗接种。
 
+但是，政府周三突然暂停使用强生公司的疫苗，原因是一名20岁的女孩在接种疫苗14天后死亡。按照斯洛文尼亚卫生部长亚内兹·波克卢卡尔（Janez POKLUKAR）的说法，政府将调查确认该女孩是死于中风而非中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-439.png)
+周三，在首都卢布尔雅那（Ljubljana），抗议示威者打出了“停止疫苗法西斯”的横幅，大约1万名抗议者高呼“自由! 自由！”要求接种和不接种疫苗的人享有平等权利。
 
+抗议者卡蒂亚·祖潘（Katja Zupan）说：“我是为了未来而参加抗议活动，为了我孩子的未来，为了后代，因为这种疯狂的（疫苗护照）行为需要被制止。如果我们不为自己和人类站出来，那么我们就完了，我们就输了。”
 
-
-
-
-【路透社】9月29日消息，恒大高达3050亿美元的债务危机尚未解决，国内债权人用来组织抗议和讨论索赔的即时通讯群组却已经被封锁。周二早上开始，至少八个各有200到500人的不同群组，其用户被阻止向群组内发送新信息。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture3-9.jpg)
-周三，两名微信用户报告说看到了错误提示，信息显示”由于该群组违反了相关规定，已对其进行了限制”；另有三名用户说，这些群组被自动从微信中删除；其他两名用户也说无法访问相关群组。两个相关群组的人分别说，他们周日被中国执法部门访问，并被要求签署文件，保证不参加任何聚会或做任何所谓“非法”的事情。
-
-中共国的社交媒体就是帮助中共言论审查的工具，所谓 “破坏社会稳定 “或批评政府的内容都会被删除或限制功能。 恒大上周未能及时给付全球债券票据，令全球市场震惊，但中共官方媒体很少报道，中共政府也没有做任何公开表示。中共治下，各种“庞氏骗局”造成人们重大损失的事件层出不穷，而政府解决问题的邪恶方法就是打压带头维权的人，捂住受害者的嘴，阻断他们的发声途径，结果总是冤屈无法申诉，损失无法讨回。只有消灭中共，追回盗国贼偷走的钱，正义才有可能得到声张。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [恒大危机持续 中共网络维稳 维权群组被删](https://www.reuters.com/world/china/wechat-blocks-china-evergrande-messaging-groups-some-users-say-2021-09-29/)
-2. [恒大危机持续 中共网络维稳 维权群组被删](https://www.dw.com/zh/%E6%81%92%E5%A4%A7%E5%8D%B1%E6%9C%BA%E5%BB%B6%E7%83%A7-%E7%BB%B4%E6%9D%83%E7%BE%A4%E7%BB%84%E8%A2%AB%E5%B0%81/a-59354580)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
-
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-439.png)
+**新闻来源：**[Slovenia police use water cannons at anti-COVID pass protest](https://apnews.com/article/coronavirus-pandemic-europe-health-european-union-slovenia-f1b6e3486d51778ad058b68781ec1ad4)
