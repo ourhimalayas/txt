@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/30/2021 2:50 AM (UTC)`
+
+9月29号当所有的战友们看到自己的行动，真的能拯救人类的时候，你会更加明白心，新中国联邦和信仰的力量无处不在。【👉👉应该是悉尼死了七个人，一个没打疫苗，三个打了一针，三个打了两针，七哥厉害，澳大利亚开始讲实话了，不敢再隐瞒真相了，澳洲政客真的腐敗，看他們縱容警察殘暴對待示威者就可見一斑。这个世界上只有七哥能揭开真相，敢揭盖真相！以前的革命都是地点年份革命，七哥带领我们用说实话的方式革命，这个世界真的被谎言欺骗的太多了，有的时候我想想当时七哥定义“爆料革命”我觉得太厉害了，用现代弥赛亚的称号连七哥的百分之一都不够！<br/>有时我在想：我们的后代会不会每家都供着七哥的佛像，孩子上学都在学习爆料革命这段历史，我真是觉得太有可能了！ 木村戰友這些話，如果我們能夠有個好的平台，每天大家都來分享和傳播，讓更多人知道就好了，相信改變這個世界的力量將會大很多倍！😂👍👍👍】
+![img](https://media.gettr.com/group44/getter/2021/09/30/02/50/f3cd101c-1e54-26c6-12c4-e4051586fd96/out.jpg)
+
+---
+
+`@miles 9/30/2021 2:44 AM (UTC)`
+
+9/29/2021 Miles Guo: 1.1 million ethnic Chinese were slaughtered in Indonesia, while no one in the world spoke for them. Had this tragedy repeated itself today, who would speak out on behalf of us? There is likely to be worse anti-Chinese tragedies in Australia, the US, India, and Japan compared to what had happened in Indonesia. The evil CCP believed that the anti-Chinese tragedy in Indonesia was “good news”. Without the CCP, there would be no anti-Chinese movements. The New Federal State of China should not only take down the CCP, but also protect the interests and benefits of the ethnic Chinese<br/><br/>9/29/2021 文贵直播：当年印尼有110万华人被杀掉，而全世界却没有任何人为华人发声，如果悲剧在今天重演，那么有谁会替我们发声？澳、美、印、日本或将发生比印尼更恶劣的排华惨案；邪恶的中共竟认为印尼排华惨案是好事，没有中共就没有排华！新中国联邦既要灭共，又要维护华人的利益！<br/>
+![img](https://media.gettr.com/group11/getter/2021/09/30/02/9162a79d-35ca-6655-a21e-0d7930c3a587/out.jpg)
+
+---
+
+`@miles 9/30/2021 2:43 AM (UTC)`
+
+9月29号：该发生的都会发生，最大收益方就是新中国联邦。【转：<br/>1  美财长说美政府三周后就没现金可用于付账单了<br/>2  一家佛吉尼亚公司三周前发射了一颗卫星当常规基站，用常规手机即可连卫星打电话<br/>3  Ingenu签约付2亿美元给Phantom ，为其设计制造发射建造一个有72颗低轨卫星的太空物联网<br/>4  日本取消所有疫情紧急状态<br/>5  英国汽油短缺，大家急搜电动汽车<br/>6  Multiverse，一家解决学徒需求的公司融资1.3亿美元<br/>7  市区垂直农场出产越来越多的蔬菜】
+![img](https://media.gettr.com/group23/getter/2021/09/30/02/43/f53e90be-0fe1-3bd4-2024-be62ad94da2e/out.jpg)
+
+---
+
 `@miles 9/30/2021 1:50 AM (UTC)`
 
 9/29/2021 Miles Guo: Xi found out that Huobi is the key channel protected by the Central Political and Legal Affairs Commission for the CCP to launder money overseas; Refunds from Huobi cannot be made without one’s own consent; The recent power outage caused by the CCP will lead to enormous disasters regarding the economy and the people’s livelihood in China and more bloody struggles within the CCP. The arrival of the era of cryptocurrencies is inevitable, and we must cherish and preserve the core foundation of our NFSC - the healthy currency<br/><br/>9/29/2021 文贵直播：习发现火币是由政法委护航的中共对外洗钱的重要通道；从火币退钱必须由本人同意方可进行；中共这次停电会对中国造成经济和生存的巨大灾难，并将导致中共有更多血雨腥风的内斗；虚拟币时代的到来无人可挡，我们要珍惜和维护我们新中国联邦未来的核心基础 - 健康的货币！<br/>
@@ -280,29 +301,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 9月27号：哇塞，已经排第一了，太不可思议了，这就是行动和信仰的力量。
 > `@jasonmillerindc 9/27/2021 2:47 PM (UTC)`<br/>#1 today!!! <br/><br/>
 ![img](https://media.gettr.com/group36/getter/2021/09/27/14/47/d0b1c8b8-a2c3-919c-68f1-128125068f2a/638f4e83ee4da1a790217fce9a895eea.jpg)
-
----
-
-`@miles 9/27/2021 3:35 PM (UTC)`
-
-10月27日：所有智慧的聪明的人，一定从现在开始改变自己的生活方式。
-> `@kin20200604 9/27/2021 3:25 PM (UTC)`<br/>#疫苗災難⚠️<br/><br/>2021年9月26日，又一例司機疫苗梗死後猛烈撞擊路人！<br/>開車出行從此不再安全！<br/><br/>#喵駕
-![img](https://media.gettr.com/group37/getter/2021/09/27/15/25/64541c30-798c-142e-f12d-33fb9e285c47/out.jpg)
-
----
-
-`@miles 9/27/2021 3:34 PM (UTC)`
-
-4月27号：就是这本书！
-> `@jessicag 9/27/2021 3:23 PM (UTC)`<br/>七哥提到的书，新西兰战友提供，有需要可以下载<br/>https://mega.nz/file/1BBlTCrR#Xio4NrtzoKO7--DilfucEBBsM56y-VJgNEdPQqak9UI
-![img](https://media.gettr.com/group36/getter/2021/09/27/15/23/8fbaa5c0-6d85-d32d-e639-938114243cfa/d8bfdfb945db7e24f26510082799b266.jpg)
-
----
-
-`@miles 9/27/2021 9:45 AM (UTC)`
-
-9/26/2021 Miles Guo: Xi Yuanping is the biggest boss of Xu Jiayin, and the Xi family wants to keep Evergrande alive until after the 20th National Congress; Evergrande owes about US$100 billion to foreign creditors, while only reported to the CCP US$20 billion worth of debt; If Evergrande defaulted on the interests or the principal payment, the US stock market would be down by 600 points, with its impact being 10 times that of Lehman Brothers<br/><br/>9/26/2021 文贵直播：习远平是许家印最大的老板，习家想要恒大活过20大；恒大欠了1000亿美元外债，却给中共报告说只欠200亿；恒大若无法兑付这1000亿外债，美股将被打下600点，其影响将超过10个雷曼兄弟爆雷！<br/>
-![img](https://media.gettr.com/group46/getter/2021/09/27/09/45/d414c8ba-5589-cf5e-0322-a1d907db6894/out.jpg)
 
 ---
 
