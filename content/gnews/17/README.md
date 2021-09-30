@@ -2,35 +2,44 @@
 ---
 
 
-## 秘翻在线：澳大利亚疫苗专家在法庭上的无知与傲慢
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564328/)
+## 有声| 中共之恶-杀人诛心的洗脑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564335/)
 
-#### 撰稿：彩虹        
+配音：香草山美食部-玫瑰园
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-450.png)图片来源：7News
-9月30日，《悉尼先驱晨报》报道了澳大利亚新南威尔士州民众就中共病毒疫情等问题起诉政府官员和州政府的最新进展。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-新南威尔士州卫生部今天（周四）宣布，自6月16日最新中共病毒疫情开始以来，新南威尔士州有337例与中共病毒相关的死亡病例，共有56500中共病毒病例。目前，新州有1090人在医院接受新冠病毒治疗，其中213人在重症监护室。
 
-根据报道，新南威尔士州强制要求某些行业的工人接种中共病毒疫苗，如要求医生、护士和护理人员在内的医护人员必须在周四之前接种至少一剂中共病毒疫苗才能上班，或者提供一份医疗证明，以详细说明他们为何不能接种中共病毒疫苗。此外，政府还对老年护理人员、新南威尔士州警察、公立学校、学前教育机构的工作人员以及建筑行业也发布了强制接种中共病毒疫苗的规定。
 
-对此，多名普通民众在新南威尔士州最高法院针对州政府和州卫生部长布拉德·哈扎德（Brad Hazzard）发起了诉讼。这些原告包括：老年护理人员娜塔莎·亨利（Natasha Henry）和塞琳娜·克罗(Selina Crowe)，护理人员约翰·莱特（John Larter）、高中特殊教育教师朱莉·拉莫斯（Julie Ramos）和建筑工人阿尔·穆尼尔·卡萨姆（Al-Munir Kassam）。其他原告包括一名孕妇，她是Laverty Pathology化验室的工作人员，也是班克斯敦（Bankstown）医院的一名工人。
 
-原告方认为，要求从10月11日起，接种疫苗者才可以出席某些零售场所的活动，这是不合法和无效的，违反了自然正义的要求。
 
-值得注意的是，代表建筑工人卡萨姆先生出庭的彼得·金（Peter King）大律师说，他认为哈扎德先生没有调查或询问中共病毒（COVID-19）的替代治疗方案。
 
-就一位营养学家的意见，即锌、维生素D和维生素C“将是中共病毒（COVID-19）患者的安全和有效的治疗方法”一事，他向疫苗专家、澳大利亚免疫技术咨询小组（ATAGI）成员克里斯汀·麦卡特尼（Kristine Macartney）教授进行了询问。
 
-麦卡特尼的回复是：“不，我不同意这个观点。”
+为了苟活当下，我每天步行跑在生存的路上。今天经过学校门口，那清脆悦耳的童音让我的心情变得舒畅。可是仔细聆听，清纯的童音居然朗诵出一句伟大的党妈妈！伴随的还有一个年轻的老师温柔地问孩子党妈妈是否有生日。清纯的童音不仅回答有而且还回答了具体的年份！吓得我连忙离开现场。
 
-彼得·金律师也提出了一系列其他治疗药物，包括伊维菌素、羟氯喹、阿司匹林、哮喘病药物singulair以及土霉素等。
+学校应该是教育人成才的神圣殿堂，是文明的启蒙地！更是每一个人、每一代人开启梦想的摇篮！如今，它却沦为了共产党的植毒中心！在被其污染的环境、教育下人性窒息的我，在现实生活里表达不了真实的思想，无处述说真实的历史，只有日常的苟活 。
 
-麦卡特尼却回答说，她没有亲自参与任何有关药物治疗中共病毒有效性的研究，但她认为她已经了解了所有可用的证据和评论。
 
-**新闻来源**
 
-[Expert asked about vitamin C, zinc during court challenge to COVID-19 vaccine mandate](https://www.smh.com.au/national/nsw/expert-asked-about-vitamin-c-zinc-during-court-challenge-to-covid-19-vaccine-mandate-20210930-p58w09.html)
+**文字版原文：[中共之恶-杀人诛心的洗脑](https://gnews.org/zh-hans/1562852/)**
 
-**关键词**
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

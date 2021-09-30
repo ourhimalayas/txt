@@ -2,49 +2,31 @@
 ---
 
 
-## 墙内限电暴露了中共的能源腐败和政治较量
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564280/)
+## 恒大将向国企出售盛京银行15亿美元股权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1564281/)
 
-栏目记者/责任编辑：Zion文恩
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-29t011108z_2_lynxmpeh8s00o_rtroptp_3_china-evergrande-debt-wealth-1.jpg)网络图片
+现金紧张的中国恒大周三（9月29日）表示，计划将其持有的盛京银行99.9亿元人民币（合15亿美元）的股份出售给一家国有资产管理公司，以筹集资金。
 
+恒大表示，盛京银行已要求将出售所得全部净收益用于清偿集团对盛京银行的相关金融负债。
 
+恒大迅速成为中共国最令人头痛的企业，因为它在影响深远的混乱崩溃、有管理的崩溃或不可能得到中共政府纾困之间摇摆不定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+恒大董事长许家印在声明中表示：“公司的流动性问题对盛京银行产生了实质性的不利影响”。
 
+收购方作为国有企业，它的的引入，将有助于稳定盛京银行的运营，同时有助于提高和维持公司保留的盛京银行14.75%的权益价值。
 
+知情人士本周对路透社表示，中共政府正在推动国有企业和国有房地产开发商收购陷入困境的中国恒大集团的部分资产。
 
+**原文链接：**[https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071](https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071)
 
+* * *
 
-近一段时间以来，中共在东北、华北，以及南方等地推出大规模限电的政策。郭文贵先生在9月29日的直播中揭露了中共此举的深意。
-
-郭先生说，中共国年均真实用电量约8.7万亿度，美国实际用电量4.5万亿度，中国的用电总量约是美国的两倍，然而两国的人均月用电量差异显著——美国人均月用电量约500度，然而中国人均月用电量只有六七十度，其中，排除美国普及电气化厨卫以及电动汽车的影响，中国人一年的用电量，也不及美国人一月的用电量。中国一年的工业用电有三万亿度，美国的年均工业用电量约一万亿度。很难想象，美国作为世界第一工业大国，其工业用电量竟不如中国工业用电量的一半。其中猫腻，郭文贵先生引用中共原统计局局长王保安的话，揭露了中共当局通过大规模擅自修改电表，增收电费、压榨民营企业的事实。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4-57.jpg)
-郭先生指出，中共每年的发电量，约有三分之一的煤炭资源来源于澳大利亚的优质煤炭资源，涉及数百亿美元的现金交易。澳洲的矿产资源、材料加工产业，绝大多数已完与中共勾兑。产生了巨额非法政治献金、偷税漏税、以及各种两国间的非法交易。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4.1-10.jpg)
-此次中共大范围的停电、限电，完全是党内政治、经济斗争的结果。早先，中共拒绝进口澳洲煤矿，本是习近平当局维护其权威的荒唐之举。习当局寄希望于开发国内的煤炭资源以填充当下的燃煤空缺，然而，中共低估了病毒和疫苗的威胁——当下国内煤炭开采的各项成本远高于利润，以致煤炭开采链断裂。中共万般无奈，出此限电下策。此外，习当局已借机开展一系列针对能源部门、发改委的清洗，打击李鹏等把持能源行业的家族。此举会将中共二十大前的政治、经济斗争推向新的高潮。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/4.2-3.jpg)
-参考链接：
-[2021年9月29日 文贵大直播：中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，虚拟币是美国和中共都抢不走钱，只有喜币最安全；](https://gtv.org/video/id=615466c142a8af3151a74ee3)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

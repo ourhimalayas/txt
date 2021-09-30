@@ -2,16 +2,19 @@
 ---
 
 
-## 西媒头条 — 第77期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564460/)
+## 七哥说— 第17期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564462/)
 
-- **制作：蚂蚁兄弟**
+- 制作：Inzaghi
 
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/xm0930.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a35.png)
 
-***发稿:信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2021/09/a34.png)
+
+发稿：信心的选择
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

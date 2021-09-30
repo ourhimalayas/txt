@@ -2,50 +2,58 @@
 ---
 
 
-## 白思豪的警务专员和COVID顾问与中共的&#8221;执法合作&#8221;
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564268/)
+## 舔共艺人能躲过“共同富裕”的风暴吗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1564279/)
 
-- 编译：西班牙喜悦农场–wenwu
+台湾宝岛农场 斗阵来拼
 
+2021年8月中旬，中共中央财经委员会上提出 “在高品质发展中促进共同富裕”，此政策出抬并上升为国家战略后，“共同富裕”这个词即成为热搜话题。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/My-Post-4.jpg)图片来源: 自由时报
+如何实现“共同富裕”才是让人最胆颤心惊的过程。根据彭博报导，中共国政府6月将国内第3富裕的省份浙江指定为共同富裕政策的试点，并在7月发布详细目标，同时呼吁企业家将更多财产捐赠给社会；根据彭博数据统计，浙江有至少10名亿万富翁，净财产总额达2.36亿美元，其在中共国监管压力下，已经有多名科技巨头公开表示将捐款回馈社会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-7.jpg)
+此计画目前虽箭指民营企业，但仍不免让然联想，中共整治完民企之后的下一步，会不会也祭出呼吁演艺圈与娱乐界的名人们，列入推动实现“共同富裕”的重点目标之一呢? 这次中共大动作地掠夺各方财富之际，这些所谓的舔共艺人，他们会不会响应“共同富裕”政策，以表效忠祖国呢? 让我们拭目以待。
 
-詹姆斯·奥尼尔（james O’Neill）曾被纽约市长比尔·德·白思豪（Bill de Blasio）提名为纽约市警察局长，也是COVID-19的现任高级顾问，他曾多次在美中公共事务协会（ACPAI）发言，该协会与中共高层联系的影响力团体有密切联系，寻求”收编和中立化反对派”的政权。
+所谓的“舔共艺人”，他们必须在发生重大且具有争议的新闻事件上，第一时间迅速地表态支持中共国的政策，以达到政府当局洗脑国人及带风向的效果；他们的特点是完全不关心社会议题，不支持弱势群体，只在乎自己是不是能在中共国获得更多工作机会，进而捞更多人民币罢了。
 
-尼尔于 2016 年至 2019 年期间担任第 43 任警务专员，在其任职期间曾三度在美中公共事务协会 (ACPAI)中[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。它们分别是在：2016年[8](https://www.americachina.us/2017)月、2017 年 9 月和[2018 年](https://archive.ph/9h1NL)[11](https://www.americachina.us/2018) [月](https://archive.ph/9h1NL)的“警务专员午宴”（如图）上[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。
+简单整理近年所发生几件违反民主与人权的国际新闻事件，都有舔共艺人的身影出现：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/002-7.jpg)
+新疆棉事件
+美国川普政府国务卿蓬佩奥( Mike Pompeo) 于台湾时间2021年1月20日宣布，认定中共对维吾尔族“犯下种族灭绝和反人类罪”的这一刻起，世界各民主国家对中共的谴责排山倒海而来，许多国际知名品牌亦纷纷宣布禁用新疆棉之际，此时“舔共艺人”必须出头表态，为赚人民币下跪，力挺新疆棉，与国际大品牌解约取消代言，也在所不惜!
 
-ACPAI 网站显示，该组织强大力[支持](https://www.americachina.us/goals)美中两国在“执法合作”、“军事磋商”和“流行病控制”等领域，建立安全伙伴关系。同样，ACPAI“强烈支持美利坚合众国和中华人民共和国之间的互免签证计划”，以及两国之间的自由贸易协定。
+此事件的代表性舔共台湾籍艺人有彭于晏、张钧宁、许光汉、欧阳娜娜等人。
 
-ACPAI 的会长滕绍骏（Fred Teng)，[同时还兼任](https://bushchinafoundation.org/people/fred-teng/)中美交流基金会（CUSEF）的高级美国代表。
+香港反送中运动与黑警事件
+2019年6月百万港人走上街头，反对港府修订“逃犯条例”，拉开反送中运动的序幕。香港政府把“逃犯条例” (又称送中条例) 的修订推上立法会二读，上万人包围立法会和平示威，要求撤回修例，但警方却对民众发出催泪弹，并爆发众多黑警对和平抗议民众暴力执法的许多画面被拍下，上传于社交媒体上，震惊国际社会。
 
-CUSEF 是由中共国统战的“最高级别实体”副主席[董建华](http://usa.chinadaily.com.cn/2016-01/26/content_23262245.htm)创办的，美国[政府](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)认为[CUSEF](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)旨在“吸收和消除可能反对中共政策和政权的潜在反对者”。并“影响外国政府采取行支持北京的行动或立场”。董建华本人曾在 2016 年的 ACPAI 活动中（如图）发表了讲话。此外， CUSEF 理事 Ronnie [Chan](http://www.nordvann.com/news_and_events_detail.asp?id=19)（如图）也曾为 ACPAI 表过三次讲话。ACPAI 还主办了由中国共产党官员参加的活动，包括中共国联合国大使、对外贸易经济合作部副部长和总领事，以及中共国官方媒体主持人。
+香港发生如此泯灭人性的黑警血腥镇压此事件，老牌港星谭咏麟、钟镇涛、梁家辉等人竟一起现身撑警大会，表示支持香港警察；还有台籍艺人欧阳娜娜又再次入榜也迅速表态:“我爱香港，我爱中国，我也支持香港警察”，这些支持黑警的所有人都是刽子手的共谋，天理难容。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/003-5.jpg)
+台湾太阳花学运
+2014年台湾的318太阳花学运，在2014年3月18日至4月10日期间学生冲入立法院占领国会，抗议马英九政府的立法院，竟然欲上演黑箱表决通过与中共国签订不对等的“海峡两岸服务贸易协议”(简称服贸协议)。
 
-ACPAI 还举办了“与（中国人民解放军退役少将）姚云珠博士的私人早餐论坛”，同时该协会还举办了由解放军军事科学院主办的”安全伙伴关系研讨会”。
+当年反对太阳花学运的代表性台湾艺人有张小燕、胡瓜、曾国城等人。其中知名老牌主持人张小燕公开反对太阳花学运的名言是: “不能因为菜不好吃，就进厨房翻别人桌子”。由此言可窥出，她对学生们此次和平抗议运动是充满轻蔑及践踏民主信仰的成分居多。
 
-根据该协会的使命声明，在上述中国共产党官员的帮助下，ACPAI 试图“聚集我们的专业知识和我们的朋友网络，以促进美中关系的转型；在二十一世纪，与中华人民共和国的合作伙伴关系对美利坚合众国来说是重要和必要的。
+这些艺人的共同特点就是他们眼中只有钱。正如知名爱港艺人杜汶泽对这些人所下的评价是:“他们眼中除了钱、名气和工作上的满足感之外，地面上所发生的一切，离他们很远”、“奉劝粉丝：“不要太认真，会失望是因为没有做好“期望管理”而已，以后听歌的听歌，看戏的看戏，不要存在太多幻想就好”。
 
-尽管奥尼尔与该组织有联系，但德·白思豪还是在 2020 年 4 月重新聘请了这位前警察局长，并兼任担任中共病毒（COVID-19）高级顾问。
+值得一提的是，演艺圈知名的舔共夫妻林瑞阳及张庭曾在媒体上公开炫富称 “家里到处都是钱”，但最近张庭被起底，注销旗下9家公司，更传出她已“逃回台湾”，引发诸多揣测。最爱祖国的舔共夫妻为何要逃回台湾? 是否跟“共同富裕”的口号，“鼓励高收入人群和企业回报社会”的计划有关呢? 一切都未完待续进行中，让我们继续看…下…去!
+(本文只是笔者观点，不代表G NEWS立场)
 
-“在这个职位上，奥尼尔（如图）将监督纽约市医院内个人防护和医疗设备的供应和分配，因为 COVID-19 危机导致需求持续激增。奥尼尔将在医院内创建、运作和管理一个供应检查制度，以确保新供应品的快速周转，并核实每家医院正在向一线医护人员推送所需设备，”纽约市长办公室[解释说](https://www1.nyc.gov/office-of-the-mayor/news/215-20/mayor-de-blasio-james-o-neill-covid-19-senior-advisor#/0)。
+参考资料
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/004-4.jpg)
+:
 
-**简评：**
+- [https://view.ctee.com.tw/analysis/32044.html](https://view.ctee.com.tw/analysis/32044.html)
+- [https://www.storm.mg/article/1496655](https://www.storm.mg/article/1496655)
+- [https://stars.udn.com/star/story/10089/5344960](https://stars.udn.com/star/story/10089/5344960)
+- [https://news.ltn.com.tw/news/politics/breakingnews/2887846](https://news.ltn.com.tw/news/politics/breakingnews/2887846)
+- [https://star.ettoday.net/news/340347](https://star.ettoday.net/news/340347)
+- [https://www.chinatimes.com/amp/realtimenews/20140330000445-260507](https://www.chinatimes.com/amp/realtimenews/20140330000445-260507)
+- [https://newtalk.tw/news/view/2021-03-26/554615](https://newtalk.tw/news/view/2021-03-26/554615)
 
-**奥尼尔被中共蓝金黄了，并且可能带着白思豪的任务，所以白思豪在中共病毒在美国肆虐之时，重新聘请了他回来担任 中共病毒高级顾问。**
-
-**本篇报道明确了，这位纽约市警察局局长是管控了纽约市医院的应对疫苗所需要的设备。当时还是川普的时代，川普认为纽约市谎报了呼吸机等的医疗储存数量，而纽约市为驳斥了川普；值得一提的是，华为向纽约州捐出了1万个N95口罩、1万个手套、2万件防护服和5万个防护镜，还包括了纽约[紧急](https://c.m.163.com/news/a/F8GH0AB10519EO06.html)向中共国求购1.5万台呼吸机！**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/de-blasio-commisioner-spoke-at-ccp-influence-group/)》｜作者：娜塔丽·温特斯｜发布时间：2021年9月29日
 
 * * *
 
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)

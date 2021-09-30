@@ -2,39 +2,67 @@
 ---
 
 
-## 英国巴斯大学：未打疫苗学生需佩戴不同颜色腕带
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1564255/)
+## mRNA疫苗技术发明者领头签署《医生宣言》，谴责政府干预违宪并构成“反人类罪”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564259/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/512657_shutterstock_546637312_786355_crop_crop.jpg)
-图片来源：chemistryworld.com
+栏目记者：正义的小新
+责任编辑：文一
 
-**【雅典娜快讯】，紧贴时事脉搏**
 
-据英国《每日电讯》报道，本周抵达巴斯大学（University of Bath）的学生，或者能提前证明已经接种两剂疫苗，或者具有中共病毒（COVID-19)免疫力，否则在俱乐部之夜就会得到一条不同颜色的腕带。
 
-那些无法证明自己接种过疫苗的学生会被迫编入一个不同的队列，这显然就是隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-研究发现，疫苗护照具有歧视性且违反伦理道德。尽管政府无法将疫苗护照强加于英国民众，但是疫苗护照仍在校园内被强制执行。
 
-谢菲尔德大学（Sheffield University）要求学生获得接种疫苗的通行证后，才能进入新生活动或工会之夜。这意味着那些不遵守规定的人将完全错过社交生活。一名学生透露，他如何感到“被排斥”，并害怕“在朋友面前丢脸。”
 
-同样，牛津大学和剑桥大学的学生也被要求披露他们的疫苗接种情况。
 
-疫苗护照在很大程度上已被证明在任何地方都无效，包括在法国，在许多情况下甚至没有强制执行。
 
-以色列建立了世界上第一个疫苗护照计划之后，却依然经历了创纪录的新的一波中共病毒感染浪潮。
+数千名医生签署《医生宣言》宣称，应对中共病毒的全球战略完全是“反人类罪”，并谴责所有政策制定者和政客们强行要求人们呆在家里，保持社交距离，强制疫苗等规定没有科学依据，更是违宪的。宣言同时捍卫医生依据专业知识对新冠患者进行早期治疗的基本权利。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+这份宣言正是由mRNA疫苗技术主要发明者罗伯特-马龙博士领导的团队撰写的，并由他本人9月12日在罗马举行全球新冠病毒峰会上首次宣读，也是目前官方批评新冠治疗现状最强声。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3-76.jpg)
+这些医生指出政府对他们工作的强行干预导致“数十万病人不必要的死亡”，已构成“反人类罪”。
 
-**参考新闻：**[Unvaccinated Students Told to Wear Different Coloured Wristbands So They Can be Identified – Summit News](https://summit.news/2021/09/29/unvaccinated-students-told-to-wear-different-coloured-wristbands-so-they-can-be-identified/)
+根据马龙博士9月28日的推文，目前签名已超过5200个。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+另悉罗马峰会上集中讨论了新冠早期治疗方案问题，其中包括使用伊维菌素和羟氯喹。会议在大胡子医生，泽连科博士的视频致辞中拉开帷幕。马龙博士称其为英雄，应该获得诺贝尔奖。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-12.jpg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+参考链接：
+[More than 3,000 doctors agree: Fauci and other covid policymakers have committed “crimes against humanity”](https://newstarget.com/2021-09-28-doctors-fauci-covid-policymakers-crimes-humanity.html)
+
+[4,200 physicians, scientists sign declaration for early treatment of COVID-19, against gov’t intrusion](https://www.lifesitenews.com/blogs/4200-physicians-sign-declaration-for-early-treatment-of-covid-19-against-govt-intrusion/)
+
+[Robert W Malone, MD： Over 5,200 signatories now.](https://twitter.com/rwmalonemd/status/1442800138448146433?s=21)
+
+视频素材：
+[Global Covid Summit](https://globalcovidsummit.org/news/san-juan-panel-undertreatment-cited-as-a-cause-for-hospitalizations-long-haul-covid)
+
+[International Covid Summt – Roma](https://ippocrateorg.org/2021/09/05/international-covid-summit/)
+
+[ICS 2021 – Meet the people](https://www.youtube.com/watch?v=IQAeguvHFM8)
+
+[Canadian Dr. Ira Bernstein Talks about the Recent Rome Summit & the Related San Juan & CCCA Declarations](https://covexit.com/canadian-dr-ira-bernstein-talks-about-the-recent-rome-summit-the-related-san-juan-ccca-declarations/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

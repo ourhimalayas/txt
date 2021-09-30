@@ -2,53 +2,75 @@
 ---
 
 
-## 油管封杀所有反疫苗内容及著名反疫苗人士
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564187/)
+## 币圈新闻动态：埃隆•马斯克表示支持加密货币，称其不可能被摧毁
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1564195/)
 
-栏目记者/责任编辑：文一
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
 
-
-
-据《华盛顿邮报》今日报道，油管正在封杀反疫苗内容和关闭包括约瑟夫-梅科拉和小罗伯特-肯尼迪等著名反疫苗人士的视频频道。
-
-油管、脸书和推特早在大流行初期就压制关于中共病毒的所谓“错误”信息。迄今，油管已经删除了超过13.3万个相关视频。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-102.jpg)
-目前大约56%的美国人口已经打了两针，而加拿大和英国分别为71%和67%。7月，美国总统乔-拜登声称社交媒体公司对疫苗接种放缓负有责任，需要做更多工作来解决这个问题。
-
-油管这个每日流量超过10亿小时的社媒巨头应声对反疫苗内容再次打压。医学企业家梅科拉和已故参议员罗伯特-F-肯尼迪的儿子小肯尼迪的频道被关。他们一直是反疫苗运动的代言人。但他们并非反对所有的疫苗，而是认为有关疫苗风险的信息被压制。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2..jpg)
-脸书早在7个月前就动作压制所有反疫苗信息。
-
-防民之口甚于防川，现今在一向自由开放的西方国家也有愈演愈烈之势，恰确是人类最需要真相，事关生死之时。盖特的横空出世犹如划破黑夜的曙光，令真相得以传播。历史将做出最好的选择和证明。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-13.jpg)
-参考链接：
-[YouTube is banning prominent anti-vaccine activists and blocking all anti-vaccine content](https://www.washingtonpost.com/technology/2021/09/29/youtube-ban-joseph-mercola/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+## 每日一问
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+交易所停新清退，大陆币圈大限已至？
+
+
+
+
+
+## 喜马拉雅交易所要闻
+
+
+
+
+
+- 喜交所网站更新交易时间为2021年10月。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1. 9月29日消息，稳定币协议Float Protocol完成120万美元财库多元化Treasury Diversification融资，同时此次财库多元化融资通过智能合约在链上完成，具体形式为合作伙伴将ETH兑换为Float Protocol的功能和治理代币BANK。
+2. Cointelegraph报道，瑞士金融市场监管局FINMA9月29日正式宣布，该机构已批准加密市场指数基金Crypto Market Index Fund成为“根据瑞士法律成立的第一只加密基金”。该基金由瑞士资产管理公司Crypto Finance发起，由投资管理公司PvB Pernetvon Ballmoos AG管理，由受监管的机构SEBA Bank AG托管。FINMA指出，新批准的基金仅限于合格投资者，主要投资于“基于区块链或分布式分类账技术”的加密货币或数字资产。
+3. 9月29日消息，Mask Network推出生态系统合作伙伴联盟SocialFi Alliance，通过代币互换来加强合作伙伴关系，并且帮助联盟中各个DeFi项目将各自金库资产分散化和多样化。目前，去中心化资管协议dHedge社区已通过50万美元的DHT-MASK代币互换提案，去中心化衍生品交易平台Perpetual与dHedge完成了100万美元的代币互换。
+4. EOSGO报道，EOS基金会首轮资助计划即将推出，34个项目获340万美元。除了EOSGO近期报道的Eden首次链上选举，EOS基金会资助的领域还包括：核心基础设施、改进的开发人员工具和用户体验、安全、教育和技术知识，以及媒体宣传。
+5. Cointelegraph报道，根据递交给SEC的文件信息，资管规模达9.5万亿美元的黑岩Black Rock在7月31日购入CME发行的54枚BTC期货合约，这些期货合约在8月27日到期，黑岩盈利369137美元。
+6. Coindesk报道，澳大利亚Crypto Exchange位于英国的子公司CoinJar UK已经获得英国金融行为监管局(FCA)的注册，并计划推动在澳大利亚的类似许可注册，以提振企业和消费者的信心并监督该行业的业务。据悉，CoinJar数字货币兑换服务由CoinJar UK Limited运营，这是一家在英格兰和威尔士注册的私人有限公司。
+7. 9月29日消息，日本金融巨头SBI控股公司宣布收购NFT市场”nanakusa”的运营商SmartApp公司，从而正式进军NFT领域。SmartApp公司在被收购后将更名为SBINFT公司，SBI集团持股比例为80%，SBINFT服务将于2022年2月启动。
+8. 9月29日消息，DeFi保险协议Insur Ace正式推出稳定币脱锚保险，首个产品为Terra生态的UST稳定币脱锚。此外，Insur Ace还推出了基于Terra生态协议Anchor Protocol、Mirror Finance和UST脱锚保险的保险组合险种，用户可通过购买组合险一次性保护多种风险。
+9. 9月29日消息，Blockstream团队宣布比特币侧链Liquid Network计划于10月4日启动Dyna Fed硬分叉升级。Blockstream团队表示，由于硬分叉不能向后兼容原链，运行Liquid Network节点的用户需要升级到Elementsv0.18.1.11或更新版本以避免服务中断。
+10. 9月29日消息，开源区块链应用平台Lisk提出“跨链消息”提案，引入了一种新的消息格式，以实现互操作性。
+11. 9月29日，NEAR Protocol宣布推出针对企业的私有分片Private Shards解决方案。据悉，该方案可为机构例如医院、学校等或企业在NEAR上创建一个私有分片，来满足不同团体对数据上链的需求，无需从头开始构建区块链。
+12. 官方消息，zkTube主网将于9月30日升级至1.0版本，新版本将优化ERC-20代币交易功能，L2层支持代币转移及交易功能，以及L1层和L2层之间所支持代币转移及交易等功能。此外，本次升级将进行一次主网Regenesis，L1层用户资产不受此次升级影响；主网L2层状态结构将被改变，L2层用户资产将暂时改变存储状态，但不影响L2层资产数据。此次升级，zkTube节点数据将被保留，用户可在zkTubescan自行查看，请大家耐心等待升级完成。
+13. 9月29日消息，体育NFT生态系统Lympo宣布与跨链NFT包装协议ENVELO Pprotocol达成合作，将引入ENVELOP的NFT包装方案以丰富Lympo上NFT的经济性。ENVELOP将为Lympo的用户提供工具来实现NFT的自定义包装，包装后的NFT可用于赚取收益的链游，也可以在NFT上附加版税等功能。
+14. Globenewswire报道，区块链技术初创企业CAD Chain宣布推出一种保护计算机辅助设计CAD知识产权IP的新解决方案，即端到端的安全和跟踪解决方案BORIS，以确保用户在他们的CAD作品处于开发或改变所有权时得到保护。
+15. 9月29日消息，区块链游戏平台Play Dapp近日已经在Polygon主网集成Chainlink VRF，使其能够帮助Play Dapp Town NFT持有者提高其NFT的效用和价值。用户可以将拥有的6个R或SR级NFT组合成一个更稀有的NFT。
+16. 9月29日消息，韩国金融服务委员会FSC在一份声明中表示，韩国禁止虚拟资产服务提供商VASP及其员工交易他们自己发行的代币。FSC规定加密服务提供商必须在一个月内为内幕交易行为建立内控流程，否则将面临停业和最高1亿韩元（8.5万美元）的罚款。
+17. 韩国先驱报报道，Upbit是韩国第一家获得监管机构批准的加密货币交易所，它正准备验证其大量用户，以履行反洗钱法规定的下一个重要职责。行业观察人士认为，由于Upbit拥有830万的庞大用户群以及由内政和安全部运营的公共身份验证系统，因此Upbit的用户验证可能需要长达三个月的时间。
+18. News.Bitcoin报道，据乌克兰国家银行的IT主管Vladimir Nagornyuk于LinkedIn发布的招聘公告显示，乌克兰中央银行正招聘区块链开发人员，该职位将参与基础设施服务、高度可访问的分布式系统和服务的开发、实施和改进，未来的招聘将专注于微服务和集成解决方案的设计和开发，以及智能合约、寄存器和架构解决方案的开发等。
+19. 9月29日消息，由深圳市政府主办，深圳报业集团、清华大学深圳研究院、中国物流与采购联合会、蚂蚁集团共同承办的全球数字经济产业大会•全球产业区块链峰会以下简称“峰会”在深圳举行。本次峰会以“用科技链接信任用信任链接产业”为主题，汇聚2000余位政府及行业嘉宾，从技术、金融、产业、公共服务、生态、租赁等维度全面探讨和展示了区块链的发展现状和应用前景，以及面对的挑战。
+20. 9月29日消息，为响应当地政府监管政策要求，IPFSCN即日起暂停为中国境内用户提供相关服务。同时，经公司董事会决议，IPFS.CN将整体出售给(新加坡)IPFS生态基金(IPFS Ecological Fund)，并升级转型为元宇宙全球社区，原有主体将不再提供任何平台相关服务。
+21. NEWSBTC报道，波卡的Founder Gavin Wood表示，波卡平行链在技术方面已经准备就绪，接下来的启动进程取决于平台治理流程。
+22. 据官方消息，9月27日14:00，Overseas CMO Of UENC Sam Lindaman在线上直播中表示，元宇宙的未来，是把人类越来越多的数字经济与虚拟化服务形式产生的劳动价值，投射到现实生活中，而不仅仅是沉浸式虚拟体验。Sam Lindaman认为，在元宇宙新时代来临的时候，应该准备好让用户去实现真正的、超现实的社交体验。
+23. Cointelegraph报道，随着全球监管机构继续审查加密货币行业，特斯拉CEO埃隆•马斯克表示支持加密货币，称其不可能被摧毁。马斯克在加州举行的代码大会上说，”我认为，不可能摧毁加密货币，但政府有可能减缓其发展速度。
+24. Ripplesnigeria报道，尼日利亚公司Olakule Agbebi Esq起诉尼日利亚中央银行CBN使用e-Naira名称，称其侵权。并表示，e-Naira的推出是一种威胁，由于CBN的侵权行为，他们的客户现在面临业务损失和商誉损害等不利影响。
+25. Coingape报道，Coinbase曾在推特转发官方博客，称“Coinbase报告：预计加密基金将增长以及美国SEC将很快批准ETF”。然而，这条推文在引发有关SEC可能于10月批准比特币ETF的猜测后很快被删除。有人认为，最近删除的推文可能暗示美国首个加密ETF将获得批准。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*

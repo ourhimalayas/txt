@@ -2,58 +2,45 @@
 ---
 
 
-## 路透社评论：中共国限电停电背后意味着什么
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564163/)
+## 联邦法官裁决：可以向教师要求强制疫苗接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564175/)
 
-作者：香草山写作组-文一
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+栏目记者/责任编辑：圣母院钟声
 
 
 
-9月27日路透社发表评论指出，由于煤炭供应短缺、排放标准趋严以及制造商和工业界的强劲需求，中共国正面临电力供应严重不足的局面，煤炭价格被推至历史高位，导致大规模停电限电。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/57456176_303.jpeg)
 
-文章指出，虽然家庭限电才刚开始生效，其实至少从3月份开始，中共国一些大型工业基地、出口大省广东的制造商们及东部沿海主要工业区就出现了断电限电问题。
 
-作为世界上最大的二氧化碳和其他污染气体的生产国，中共国家主席习近平于2020年底在联合国气候变化峰会上宣布大幅降低二氧化碳排放量，实际上30个大陆地区中只有10个实现了其能源削减目标。
 
-截至2021年8月，中共国的总发电量比2020年同期多出10.1%，比2019年同期多出近15%
 
-为此中共发改委在9月中旬宣布了更严厉的惩罚和问责措施。各地政府纷纷出招应对。
-
-浙江、江苏、云南和广东等省的地方政府已经要求工厂限制用电或减少生产。
-
-一些电力供应商通知要求用户上午7点至晚上11点的用电高峰期停止生产，或者每周有两到三天完全停产。
-
-有些用户被要求关闭。据悉天津大豆加工厂等工厂自9月22日以来一直处关闭状态。
-
-不仅广大工业生产受到打击，个人用户也不能幸免，中国东北部分地区的家庭被告知限制使用热水器和微波炉。
-
-另一方面，因中共发起对第二大煤炭出口国澳大利亚进行贸易战，澳大利亚已经极大限制对中煤炭出口。而中共国在煤矿事故频发、加强监管后，自身生产已经放缓。天然气也因疫情出现全球短缺。
-
-另据新浪网报道，因煤价攀升和能源管控，中共国电厂出现越发电越亏损的情况，因此不愿意亏本发售电，导致电力供应缺口持续扩大。
-
-这真是中共国又一次搬起石头砸自己脚的奇葩演绎。对外假大空，对内快狠准，连维持民生和企业生产的基本保障都出了大问题。
-
+据9月28日美联社纽约报道：纽约市曼哈顿第二巡回上诉法院的三名法官小组，在当天晚些时候发布了一项简短命令：支持原市长比尔·德·布拉西奥（Bill de Blasio）对美国最大的纽约学区，约14万8千名教职员工实施强制疫苗接种的紧急授权。未能接种疫苗的教职员工，从10月5星期二开始，将无法工作。截至周一，教育部87%的员工已经接种了疫苗，其中包括90%的教师。教师们的上诉律师说，他们将要求美国最高法院进行干预。并声称“纽约市政府会后悔它的决定，因为上万教师没有接种疫苗，我们的孩子将没有老师，学校将失去安全性。同时对被停薪留职的教师造成无可挽回的伤害。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-8.jpg)
+一年之内超高速研制出的疫苗有多久的安全数据和有效性研究？这场疫苗接种已经暴露出来海量严重问题。65岁以下人群死于或伤残于疫苗接种的人数已超过新冠病毒感染而死亡的人数。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-144.jpg)
 参考链接：
+[Federal judges: NYC can impose vaccine mandate on teachers](https://apnews.com/article/coronavirus-pandemic-health-new-york-courts-education-e9222c7325afcf60d6a4ac0db7d408d1)
 
-[https://www.msn.com/en-us/news/world/explainer-what-is-behind-chinas-power-crunch/ar-AAORFo3](https://www.msn.com/en-us/news/world/explainer-what-is-behind-chinas-power-crunch/ar-AAORFo3)
-[https://www.sohu.com/a/491708389\_115479](https://www.sohu.com/a/491708389_115479)
+（本文仅代表作者观点）
 
-校对/发稿：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

@@ -2,10 +2,10 @@
 ---
 
 
-## 联邦法官裁决：可以向教师要求强制疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564175/)
+## 油管封杀所有反疫苗内容及著名反疫苗人士
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564187/)
 
-栏目记者/责任编辑：圣母院钟声
+栏目记者/责任编辑：文一
 
 
 
@@ -15,12 +15,20 @@
 
 
 
-据9月28日美联社纽约报道：纽约市曼哈顿第二巡回上诉法院的三名法官小组，在当天晚些时候发布了一项简短命令：支持原市长比尔·德·布拉西奥（Bill de Blasio）对美国最大的纽约学区，约14万8千名教职员工实施强制疫苗接种的紧急授权。未能接种疫苗的教职员工，从10月5星期二开始，将无法工作。截至周一，教育部87%的员工已经接种了疫苗，其中包括90%的教师。教师们的上诉律师说，他们将要求美国最高法院进行干预。并声称“纽约市政府会后悔它的决定，因为上万教师没有接种疫苗，我们的孩子将没有老师，学校将失去安全性。同时对被停薪留职的教师造成无可挽回的伤害。”
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-8.jpg)
-一年之内超高速研制出的疫苗有多久的安全数据和有效性研究？这场疫苗接种已经暴露出来海量严重问题。65岁以下人群死于或伤残于疫苗接种的人数已超过新冠病毒感染而死亡的人数。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-144.jpg)
+据《华盛顿邮报》今日报道，油管正在封杀反疫苗内容和关闭包括约瑟夫-梅科拉和小罗伯特-肯尼迪等著名反疫苗人士的视频频道。
+
+油管、脸书和推特早在大流行初期就压制关于中共病毒的所谓“错误”信息。迄今，油管已经删除了超过13.3万个相关视频。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-102.jpg)
+目前大约56%的美国人口已经打了两针，而加拿大和英国分别为71%和67%。7月，美国总统乔-拜登声称社交媒体公司对疫苗接种放缓负有责任，需要做更多工作来解决这个问题。
+
+油管这个每日流量超过10亿小时的社媒巨头应声对反疫苗内容再次打压。医学企业家梅科拉和已故参议员罗伯特-F-肯尼迪的儿子小肯尼迪的频道被关。他们一直是反疫苗运动的代言人。但他们并非反对所有的疫苗，而是认为有关疫苗风险的信息被压制。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2..jpg)
+脸书早在7个月前就动作压制所有反疫苗信息。
+
+防民之口甚于防川，现今在一向自由开放的西方国家也有愈演愈烈之势，恰确是人类最需要真相，事关生死之时。盖特的横空出世犹如划破黑夜的曙光，令真相得以传播。历史将做出最好的选择和证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2.1-13.jpg)
 参考链接：
-[Federal judges: NYC can impose vaccine mandate on teachers](https://apnews.com/article/coronavirus-pandemic-health-new-york-courts-education-e9222c7325afcf60d6a4ac0db7d408d1)
+[YouTube is banning prominent anti-vaccine activists and blocking all anti-vaccine content](https://www.washingtonpost.com/technology/2021/09/29/youtube-ban-joseph-mercola/)
 
 （本文仅代表作者观点）
 
