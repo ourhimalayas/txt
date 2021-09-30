@@ -16,6 +16,16 @@
 ---
 ## 頁面 2/35 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [35](/content/README-35.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[2021年9月3日郭文贵先生直播全文字版](/content/2021/09/20210903-1510695.md)
+
+[2021年9月1日郭文贵先生直播全文字版](/content/2021/09/20210901-1506418.md)
+
+[2021年8月30日郭文贵先生直播全文字版](/content/2021/08/20210830-1502191.md)
+
+[全文字版2021年8月29日郭文贵先生G-TV直播](/content/2021/08/20210829-1499593.md)
+
+[全文字版2021年8月28日郭文贵先生G-TV直播](/content/2021/08/20210828-1497755.md)
+
 [全文字版2021年8月26日郭文贵先生G-TV直播](/content/2021/08/20210826-1494569.md)
 
 [全文字版2021年8月26日摇滚歌神郭文贵先生现场签名直播](/content/2021/08/20210826-1507643.md)
@@ -55,16 +65,6 @@
 [全文字版2021年8月4日郭文贵先生G-TV直播](/content/2021/08/20210804-1446074.md)
 
 [全文字版2021年8月3日郭文贵先生G-TV直播](/content/2021/08/20210803-1444955.md)
-
-[全文字版2021年8月1日郭文贵先生G-TV直播](/content/2021/08/20210801-1440210.md)
-
-[全文字版2021年7月30日郭文贵先生G-TV直播](/content/2021/07/20210730-1436734.md)
-
-[全文字版2021年7月29日郭文贵先生G-TV直播](/content/2021/07/20210729-1434186.md)
-
-[全文字版2021年7月24日郭文贵先生G-TV直播](/content/2021/07/20210724-1421496.md)
-
-[全文字版2021年7月23日郭文贵先生G-TV直播](/content/2021/07/20210723-1418274.md)
 
 
 ## 頁面 2/35 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [35](/content/README-35.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

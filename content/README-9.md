@@ -16,6 +16,16 @@
 ---
 ## 頁面 9/35 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [35](/content/README-35.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/content/2020/06/20200609-6663996851433423244.md)
+
+[新中国联邦六四建国直播图文版](/content/2020/06/20200606-8976575972430129554.md)
+
+[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/2020/06/20200604-1889289193459336361.md)
+
+[文字版：5月30日郭先生GTV第二次直播](/content/2020/06/20200602-4381535378837818753.md)
+
+[文字版：2020年5月30日郭先生GTV直播](/content/2020/06/20200602-6823555117302845700.md)
+
 [文字版:郭先生2020年5月29日GTV直播](/content/2020/06/20200601-3800927915915287668.md)
 
 [文字版:5月27日郭先生GTV直播](/content/2020/05/20200530-3579241706056800133.md)
@@ -55,16 +65,6 @@
 [文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
 
 [文字版：5月6日郭先生GTV直播连线Twins](/content/2020/05/20200510-2903203991693841280.md)
-
-[文字版：郭先生5月5日GTV直播](/content/2020/05/20200507-1653317726052582270.md)
-
-[文字版：5月4日郭先生GTV直播](/content/2020/05/20200507-758917873142808151.md)
-
-[文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/2020/05/20200504-2906844940978365909.md)
-
-[文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/content/2020/05/20200503-2344599282144457777.md)
-
-[文字版:2020年4月29日郭先生GTV直播](/content/2020/05/20200502-8838486692400180379.md)
 
 
 ## 頁面 9/35 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [35](/content/README-35.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)

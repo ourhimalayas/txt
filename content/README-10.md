@@ -16,6 +16,16 @@
 ---
 ## 頁面 10/35 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [35](/content/README-35.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版：郭先生5月5日GTV直播](/content/2020/05/20200507-1653317726052582270.md)
+
+[文字版：5月4日郭先生GTV直播](/content/2020/05/20200507-758917873142808151.md)
+
+[文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/2020/05/20200504-2906844940978365909.md)
+
+[文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/content/2020/05/20200503-2344599282144457777.md)
+
+[文字版:2020年4月29日郭先生GTV直播](/content/2020/05/20200502-8838486692400180379.md)
+
 [文字版:2020年4月28日郭先生GTV直播](/content/2020/05/20200502-1137245394833329218.md)
 
 [文字版：2020年4月27日郭先生GTV直播](/content/2020/05/20200502-6467348940863168493.md)
@@ -55,16 +65,6 @@
 [文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/2020/04/20200404-1051683434562586641.md)
 
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/2020/04/20200403-1478603494714953028.md)
-
-[文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/content/2020/04/20200402-257449982049081995.md)
-
-[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/content/2020/03/20200331-7430016907269619361.md)
-
-[文字版：2020年3月27日一切美好再也回不到今天了](/content/2020/03/20200331-6998457737623230780.md)
-
-[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/2020/03/20200328-980133680998762013.md)
-
-[文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/2020/03/20200325-1518205290434863780.md)
 
 
 ## 頁面 10/35 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [35](/content/README-35.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

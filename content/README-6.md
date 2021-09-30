@@ -16,6 +16,16 @@
 ---
 ## 頁面 6/35 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [35](/content/README-35.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[2020年12月1日郭先生盖特视频文字版](/content/2020/12/20201201-613214.md)
+
+[文字版2020年11月30日郭先生GTV直播](/content/2020/11/20201130-640933.md)
+
+[文字版：2020年11月19日文贵先生直播视频](/content/2020/11/20201129-7401034988161346285.md)
+
+[文字版：2020年11月15日文贵先生连线唐平、威廉王](/content/2020/11/20201129-7306310389775398829.md)
+
+[文字版2020年11月28日郭先生GTV直播](/content/2020/11/20201128-640822.md)
+
 [文字版2020年11月27日郭先生GTV直播](/content/2020/11/20201127-640673.md)
 
 [文字版：2020年11月14日郭文贵先生直播连线香草山](/content/2020/11/20201123-5538570264251162424.md)
@@ -55,16 +65,6 @@
 [文字版:2020年9月9日郭先生GTV直播](/content/2020/09/20200926-1971840848005876799.md)
 
 [文字版：2020年9月8日郭先生GTV直播](/content/2020/09/20200921-1213567933833974136.md)
-
-[文字版：2020年9月2日郭先生GTV直播  ](/content/2020/09/20200909-3610329875293251513.md)
-
-[文字版：2020年8月31日郭先生GTV直播](/content/2020/09/20200909-6393113916959370264.md)
-
-[文字版：2020年8月29日郭先生GTV直播连线台湾游行战友](/content/2020/09/20200909-3958441803573956074.md)
-
-[文字版：2020年8月29日郭先生GTV直播连线图桑游行战友  ](/content/2020/09/20200909-4793138191271001277.md)
-
-[文字版：2020年8月29日郭先生GTV直播连线温哥华游行战友](/content/2020/09/20200909-7406434220057898701.md)
 
 
 ## 頁面 6/35 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [35](/content/README-35.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,16 @@
 ---
 ## 頁面 8/35 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [35](/content/README-35.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：郭先生2020年7月25日GTV直播](/content/2020/07/20200729-6515817926208283674.md)
+
+[文字版：2020年7月22日郭先生8分钟盖特](/content/2020/07/20200726-4617342392146265454.md)
+
+[文字版：郭先生2020年7月22日GTV直播](/content/2020/07/20200726-865086789235456284.md)
+
+[文字版：郭先生2020年7月19号参加大卫小哥采访](/content/2020/07/20200726-1420691719987690334.md)
+
+[文字版：郭先生2020年7月19日GTV直播](/content/2020/07/20200726-4115956209071178859.md)
+
 [文字版:郭先生2020年7月17日GTV直播](/content/2020/07/20200720-623099392723005208.md)
 
 [文字版:7月14日郭先生盖文汇总](/content/2020/07/20200719-4379804612561417938.md)
@@ -55,16 +65,6 @@
 [文字版:2020年6月8日郭先生连线木兰乱聊直播](/content/2020/06/20200611-1109197692077432203.md)
 
 [文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/content/2020/06/20200611-7286733971832697894.md)
-
-[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/content/2020/06/20200609-6663996851433423244.md)
-
-[新中国联邦六四建国直播图文版](/content/2020/06/20200606-8976575972430129554.md)
-
-[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/2020/06/20200604-1889289193459336361.md)
-
-[文字版：5月30日郭先生GTV第二次直播](/content/2020/06/20200602-4381535378837818753.md)
-
-[文字版：2020年5月30日郭先生GTV直播](/content/2020/06/20200602-6823555117302845700.md)
 
 
 ## 頁面 8/35 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [35](/content/README-35.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
