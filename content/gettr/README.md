@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/30/2021 5:10 PM (UTC)`
+
+9月30号，无论是政治．还是科学和宗教都不能迷信，迷信任何东西的代价是巨大的。爆料革命就是要让人类打破一切迷信和崇拜，让人们有基本的善恶．真假，辨别之能力，这就是未来我们建设新人类的根本的基础。【这位女士特别提到了她丈夫因为相信科学打了疫苗 ，死在了自己家的床上😭】
+![img](https://media.gettr.com/group24/getter/2021/09/30/17/10/e99aea6e-328b-8ea1-22f5-84f51cd1483d/out.jpg)
+
+---
+
 `@miles 9/30/2021 4:05 PM (UTC)`
 
 9月30号：尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！
@@ -293,13 +300,6 @@ An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一
 
 9/27/2021 Miles Guo’s GETTR: We need to take a serious look at how we will live our lives as well as the political and social changes throughout the world in the next few years. We need to carefully consider how to cope with the changes in people's behaviors and their ways of life<br/><br/>9/27/2021 文贵盖特: 请兄弟姐妹们认真地思考未来两三年的生活方式和整个世界政治、社会的大变革，仔细想一想我们要如何去应对人们的行为和生活方式的改变<br/><br/>
 ![img](https://media.gettr.com/group25/getter/2021/09/28/00/29/63a66e28-6a53-3ac5-2103-c22493d1491a/out.jpg)
-
----
-
-`@miles 9/28/2021 12:18 AM (UTC)`
-
-9/27/2021 Miles Guo’s GETTR: Everyone should take preventative measures for the cerebral infarctions and myocardial infarctions, and the resultant unpredictable traffic disaster events. Avoid unessential trips and prepare for the tough life in the next 1 or 2 years.<br/><br/>9/27/2021 文贵盖特: 大家要对疫苗灾难带来的脑梗、心梗及其导致的各种不可预料的交通灾难事故做好必要的防护，避免不必要的出行，为一两年内艰难的生活做好准备
-![img](https://media.gettr.com/group8/getter/2021/09/28/00/18/5da5258a-4cf9-5f33-7981-9201d683156a/out.jpg)
 
 ---
 
