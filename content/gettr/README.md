@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/30/2021 4:05 PM (UTC)`
+
+9月30号：尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！
+![img](https://media.gettr.com/group39/getter/2021/09/30/16/05/a5818dcd-1e46-7f69-be06-a8952b685dd8/out.jpg)
+
+---
+
 `@miles 9/30/2021 3:02 PM (UTC)`
 
 FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再有效，加强针的安全性和有效性也并没有数据支持<br/>Before approving the Pfizer’s COVID booster dose, FDA didn’t provide evidence that the first two doses are not effective anymore, also the safety and effectiveness of Pfizer's COVID vaccine booster dose is not supported by data<br/>
@@ -293,13 +300,6 @@ An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一
 
 9/27/2021 Miles Guo’s GETTR: Everyone should take preventative measures for the cerebral infarctions and myocardial infarctions, and the resultant unpredictable traffic disaster events. Avoid unessential trips and prepare for the tough life in the next 1 or 2 years.<br/><br/>9/27/2021 文贵盖特: 大家要对疫苗灾难带来的脑梗、心梗及其导致的各种不可预料的交通灾难事故做好必要的防护，避免不必要的出行，为一两年内艰难的生活做好准备
 ![img](https://media.gettr.com/group8/getter/2021/09/28/00/18/5da5258a-4cf9-5f33-7981-9201d683156a/out.jpg)
-
----
-
-`@miles 9/27/2021 8:28 PM (UTC)`
-
-9-27日：新中国联邦的疫苗灭共．拯救人类……荻得巨大的成功！<br/><br/>【澳洲纽省省长最新发布政令：对于打过针的或从未打过针的：从十二月一号开始，可以自由出入餐厅、Club ，所有户外活动，走入正常生活。<br/>从10月11日，注射过疫苗针的先达到70％的场所自由行动。<br/>从10月18号开始，达到80％的场所自由行动。😊<br/>对于从未疫苗注射的居民必须要等待3-4个星期后才能与前面所述的70％.80％注射疫苗针所指定的场所可以自由出入。<br/>从十二月一号开始：接受过疫苗注射的和从未接受过疫苗注射的全部恢复正常生活。<br/>God bless Australia 🇦🇺】
-![img](https://media.gettr.com/group20/getter/2021/09/27/20/28/a60358c6-85b4-4d23-78ed-c763687aff79/507e4d2a5be9c38382f526a48f9fd812.jpg)
 
 ---
 
