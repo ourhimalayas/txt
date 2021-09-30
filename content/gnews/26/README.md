@@ -2,25 +2,148 @@
 ---
 
 
-## 中共发展改革委负责人回应今冬明春能源供应
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1564397/)
+## 孟晚舟必须回国的3个理由，牵扯太大了，吓死我了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564522/)
 
-作者：意大利达芬奇农场 儒为
-![](https://assets.gnews.org/wp-content/uploads/2021/09/发改委煤炭.jpeg)封面来源：网络图片
-【新华社北京2021年9月29日电】近日一些地方拉闸限电，引发对冬季能源保供的担心。针对近期能源供需偏紧的情况，国家发展改革委经济运行调节局负责人29日接受新华社记者采访时说，要始终把确保民生用能作为保供工作的重中之重，多措并举加强供需调节。1、今冬明春能源供应总体有保障。2、全力保障东北能源运行平稳。3、必要时科学有序“压非保民”。4、增加电力供应严禁拉闸限电。5、核增投产煤炭优质产能。6、重点保障民生用气。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/10171141a54badce9cdc5bbb7ea6adc0.jpg)https://gtv.org/video/id=61555fc1d2e2b817486f92f7
+我想给大家说一下
+Quiero decirles a todos ustedes
 
-**浅析：**
+第一个, 大家要记住的
+El primero, todos deben recordar
 
-**七哥大直播向我们讲解中共“拉闸限电”的主要原因，让我们再一次深刻理解中共这个流氓政权从不关心百姓死活，只关心自己政权是否稳定和经济利益是否有保障。中共为报复澳大利亚而停止优质煤炭进口，转而进口劣质煤炭和自己开采劣质煤炭，造成效率低下和成本上升，更重要的是劣质煤有害气体排放污染严重。但就是低劣煤炭的开采都无法满足需求，不停电怎么办？**
+华为的老板, 华为公司背后
+El jefe de Huawei, detrás de esta compañía
 
-**中共造成的病毒、疫苗灾害在杀人的同时也在杀死自己，沿海地区的大量靠加工出口的工厂没有订单，没有订单那就赚取不到外汇，没有外汇就没钱进口煤炭，而且也感觉没有必要进口，进口的煤也都用来帮着欧美生产廉价的商品，赚取低廉的利润，这就形成了一个恶性循环。再加上大量外资企业停止投资中共国，并有步骤的撤出中共国，可谓学上加霜。**
+他有两个官方的爹, 就是(共产党的)总參二部
+Tiene dos padres oficiales que es el Segundo Departamento del Estado Mayor (del Partido Comunista)
 
-**七哥揭示，中共国电力能源主要掌握在李鹏家族，其次温家、朱家参与一些。王岐山“以贪反贪”合法抢劫，但是没敢动发改委这一块。七哥说中共反贪不对军队、发改委、政法委、财政部等下手，那就是假反贪。现在中共国拉闸限电，是要动摇更深层的利益集团，是政治斗争、经济斗争的产物。“魔鬼打架，百姓遭殃”，这是在中共国永远颠簸不破的真理，能每次活下来的百姓不是你比别人强，而是因为你这次命大，但不保证你下次还命大。**
+它就是一个军方的情报部, 它就是一个100%的中共
+Es un Departamento de Inteligencia Militar, es 100% del PCCh
 
-**确保民生用能作为保供重中之重——国家发展改革委经济运行调节局负责人回应今冬明春能源供应，并且列举多条应对措施，主要举措都是在倾斜民生，再有给一个未来的许诺，目的就是维稳为主。发改委更重要的目的是向习近平表态，立“军令状”，保证在中共20大之前能源供应方面不出问题，就是出了问题也要把出问题的人搞定。理想是丰满的，现实是骨感的，就不知道在这种恶性循环的现实状态下，习李之间能否达成共识？**
+打造的一个科技蓝金黄和对西方战略上
+Para crear el plan ADA (BGY) tecnológica en cuanto a la estrategia occidental
 
-（文章仅代表作者本人观点，与GNEWS无关）
+特别是5G
+Especialmente el 5G
 
-新闻来源：🔗[确保民生用能作为保供重中之重——国家发展改革委经济运行调节局负责人回应今冬明春能源供应](http://www.news.cn/politics/2021-09/30/c_1127918699.htm)
+还有整个通信系统打造的一个征服世界的这么一个平台
+También es una plataforma construida por todo el sistema de comunicación para conquistar el mundo
 
-*编辑/校对/发布：意大利达芬奇农场 儒为*
+所以说它亲爹绝对是共产党的情报部
+Por eso se dice que su padre es definitivamente el Departamento de Inteligencia del Partido Comunista
+
+也就共产党
+Es decir, del Partido Comunista
+
+如果让华为的任何人把它的本质告诉了美国和西方
+Si se deja a cualquier persona de Huawei contarle a EE. UU y el occidente sobre su naturaleza
+
+它带来的灾难又是什么(样的)结果呢
+Qué resultado de desastre traerá
+
+所有过去这些年在西方埋下的情报
+Todas las informaciones enterradas en el occidente durante estos últimos años
+
+技术和蓝金黄的网路全部暴露
+La tecnología y el internet del plan ADA (BGY) serán expuestos
+
+特别是华为的钱和华为的技术来源
+Especialmente, el dinero y el origen de la tecnología de Huawei
+
+那会是什么, 战友们记住
+Qué será eso, recuerden, compañeros luchadores
+
+美国的华尔街和美国的军方
+El Wall Street y el ejército estadounidense
+
+美国的情报方出卖美国的人
+Agentes de inteligencia estadounidenses traicionan a su propio pueblo
+
+全部暴露
+Todo será expuesto
+
+所以中共也不愿意让这事说出来
+Por lo tanto el PCCh no está dispuesto a que este asunto sea revelado
+
+美国欧洲也不让说出来
+EE. UU y Europa tampoco
+
+第二条, 华为任正非
+El Segundo, Ren Zhengfei de Huawei
+
+所有的股份里边唯一的亲爹是习的亲姊夫老吴
+Dentro de todas las acciones, el único padre es el cuñado de Xi, LaoWu
+
+ZTE, 华为这是人家习家的
+ZTE, Huawei pertenece a la familia de Xi
+
+别人你是不能碰的
+Otras personas no podrán tocarlo
+
+人家是皇上
+Él es el emperador
+
+(你碰了)这损失, 你想想那怎么可能(让你碰)
+Si llegas a tocarlo, la pérdida que puede tener, piensa cómo será posible dejarte tocar
+
+我当着皇帝, 我怎么让你碰
+Si soy emperador, cómo es posible dejar que lo toques
+
+所以说这个问题在利益上
+Así que este problema, en cuanto a su interés
+
+习是以国家的名义
+Xi a nombre del país
+
+必须得把她(孟晚舟)弄回去
+Debe recuperarla (Meng Wanzhou)
+
+这是非常重要的
+Esto es sumamente importante
+
+第三个, 大家要看到的是
+Tercero, todos lo que verán es
+
+为啥要让孟晚舟回去
+Por qué deben recuperar a Meng Wanzhou
+
+孟晚舟最大的问题是知道钱路, 任正非多了没有
+El mayor problema de ella es que sabe el camino del dinero, pero Ren Zhengfei no lo sabe
+
+最起码在外面存了3000亿以上
+Como mínimo, tiene guardado más de 300 mil millones en el exterior
+
+这3000亿美元所有代持人签字人必须是孟晚舟
+Todos los signatarios en nombre del titular de estos 300 mil millones de dólares deben ser Meng Wanzhou
+
+孟晚舟要死了
+Si ella muere
+
+这钱也就没了
+Este dinero se desaparecerá también
+
+她不能死, 所以习集一国之力必须弄回来
+Ella no puede morir, por eso Xi unió la fuerza del país para recuperarla
+
+关键他的钱没了
+Sin embargo, la clave es que su dinero se ha ido
+
+这个钱路要被美国人给弄走了
+Este dinero está a punto de ser quitado por los estadounidenses
+
+这事就太大了
+Este asunto es demasiado grande
+
+原视频日期：09/27/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1442467964104568836?s=24
+视频时间段：0:00-2:09
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

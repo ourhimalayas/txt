@@ -2,112 +2,58 @@
 ---
 
 
-## 孟晚舟回国引发美内部反弹，对爆料革命及其有利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564548/)
+## 拒绝台湾加入联合国是全世界的道义和物质上双重损失（一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564638/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5a0fcb79dd98110210f5a374c015ea23.jpg)https://gtv.org/video/id=61555f54d2e2b817486f92de
-郭文贵
-Miles Guo
+- 编译：喜妹
 
-华为的灾难和未来的科技，一切糟糕的事情就是从那一天回来的时候刚开始
-Huawei’s disaster and future technology, all bad things just started when she came back from that day
 
-而且最后我要告诉大家的事情，它对我们爆料革命灭共的事业是巨大的帮助
-And in the end I want to tell you, it’s great help for our whistleblower movement to take down the CCP mission
+![](https://assets.gnews.org/wp-content/uploads/2021/09/embajador-taiwan-despacho.jpg)图片来源：本篇新闻
 
-巨大的帮助， 为什么，从她一回去基本上美国的极右派
-Great help, why? Since she returned that basically the extreme right in the U.S.
+世界上很少有国家像台湾这样，尽管它历史短，面积小–它所处的岛屿比埃斯特雷马杜拉还小–仅拥有2300万人口，是整个西班牙人口的一半。但它却是一个充满活力的国家，在世界一个没有那么多民主的地方建立了民主制度，并在短短几十年内取得了显著的进步。
 
-我今天跟你说的极右派
-The extreme right I told you about today
+但是，不幸的是，台湾首先有一个强大的敌人，从外部来看，它制约着台湾政治的很大一部分和它在全世界的地位。而这个敌人可能是它拥有的最糟糕的敌人：中共政权，它不接受这样一个独立国家的存在，除其他许多事情外，它清楚地表明了其在许多方面的失败程度。
 
-还有当时搞华为这个事情，搞华为的是谁呢，是吧？
-There was also the issue to against Huawei at that time, who was it against Huawei, right?
+一个对台湾的安全和完整构成严重威胁的敌人，与此同时，将台湾人排除在国际组织之外，而至少在理论上是这样，任何行使完全主权超过70年的国家都不应该被排除在国际组织之外。
 
-第一个是美国的绝对的科技保守派
-The first one is the absolute technological conservative in the United States
+我们与驻西班牙台北经济文化办事处主任刘德利（José María Der-li Liu），即台湾实际上的驻西班牙大使，谈论了这些相关问题。这次采访是在新一届联合国大会开始的前几天，台湾要求继续加入联合国，而继续被中共阻挠困扰中。
 
-就是这些人，像这个背后的AT&T, 搞通讯的
-like AT&T who is behind the whole plan, these people are in communication industry
+问：台湾的政治很大程度上受两岸关系的影响。 目前与中国的关系状况如何？
 
-还有硅谷的这些人，这些人利益是一致的
-And these people in Silicon Valley have same interests
+答：4月12日，中共派出由25架飞机组成的小组，在台湾岛附近演练，又于6月15日，派出28架军机前往台湾的防空识别区，如此庞大的飞行中队联合飞越台湾附近， 前后相距60多天而已。
 
-必须干掉华为，不干掉华为咱就完了
-So they must destroy Huawei, they’ll be done if they don’t destroy Huawei
+这种具有明显威胁目的的入侵已经成为一种普遍做法。这是中国扩张主义政策和共产党政权缺乏自由和民主的最明显例子。
 
-这一波人恼怒了，你把她放回去了
-These people are so angry about having her back to China
+不过，正如蔡英文总统近日所言，台湾希望成为推动地区和平与繁荣的关键力量，并愿意承担起维护地区稳定的责任。我们大陆事务委员会最近的一项民意调查显示，超过80%的台湾人认为台湾唯一的选择是变得更强大、更团结、更坚定自卫，加强国家安全、主权和民主。
 
-（因为）这个事恼火了，它失败了
-Because this angered them. They plan failed
+问：近年来，使这些关系紧张的事情之一是冠状病毒的流行。 你认为我们会知道在武汉发生的事情的真相吗？
 
-第二个，极右派当中的金融派
-The second one is the financial faction among the extreme right
+答： 我认为，不幸的是，怀疑多于确定。世卫组织总干事本人澄清说，需要更多的数据和更多的研究才能得出关于大流行开始时武汉发生的事情的可靠结论。那里的国际代表团团长已经认识到在工作期间存在政治压力。在台湾的早期，我们决定自己采取行动，不等待世卫组织的指示。在台湾，由于中共专制政权缺乏透明度，我们已经习惯于不信任来自海峡另一边的一切。后来发生的事情证明我们是对的。
 
-金融派里面有两派，投华为的，赚华为钱的
-There are two groups in the financial faction, the one who invests in Huawei, who makes money from Huawei
+问：台湾在管理疫情方面的成功一直是吸引世界关注的事情之一。 他们是如何管理的？ 关键是什么？
 
-还有一个，一定要灭掉华为自己才能赚钱的
-There is another one, they must destroy Huawei so they can make money
+答：所谓的 “台湾模式 “基于五个关键：经验，因为我们已经在2003年遭受了另一次类似的疫情，即SARS；反应速度，因为我们立即建立了边境管制；应用现代技术，因为我们的政府创建了有效的大数据来检测可疑病例，并使用GPS来监测和为需要隔离的人提供支持；透明度，因为我们让民众充分了解；以及公民合作，因为每个人都对所采取的必要措施作出了很好的反应。
 
-再一个，现在就是最重要的，也就是这个军方
-Another one which is the most important in the military
+我们台湾人已经权衡了我们的个人自由和我们的健康安全，我们倾向于后者，但从长远来看，最终的结果对所有人都是有利的。
 
-就是鹰派的军方，（意识到）这个华为要再开始
-It’s the hawks in military, if Huawei is going to start again
+问：美国对台湾的支持一直是你们的保险。 你是否认为阿富汗的事件可能会转移美国的注意力，使台湾对拜登政府的重要性降低？
 
-那对咱们的威胁太大了
-That threatens us too much
+答：在9月13日美国国会关于在阿富汗撤军的听证会上，国务卿安东尼-布林肯再次重申了华盛顿对台北的承诺。当被问及中共国试图将放弃喀布尔和与台湾的关系相提并论时，他回答说，中共很乐意看到华盛顿再被困在阿富汗几十年。而国家安全委员会的印太协调员库尔特-坎贝尔指出，美国的外交政策已经在将重点从中东转移到印太地区。对我们来说，在应对来自中共国的持续威胁和恐吓时，美国的支持是不可或缺的。对美国和世界其他国家来说，台湾作为 “正义的力量 “的作用也是不可或缺的，它不仅有助于全球共同打击中国的霸权主义扩张，也有助于打击任何形式的恐怖主义威胁。
 
-华为要发展下去，绝对美国的基本一半功力被它废掉了
-If Huawei continues to develop, basically it will abolish half of the strengths of the United States
+问：你认为美国新政府的对华政策会是怎样的？
 
-所以说大家要记住，华为要么发展，那成为美国和欧洲最大的劲敌
-So remember, Huawei continues to develop then become the biggest rival of the U.S. and Europe
+答：美国政府重申其对台湾的承诺是 “坚如磐石”，并呼吁中共国停止 “对该岛施加军事、外交和经济压力”。国务卿安东尼-布林肯本人断言，中共国正在竭尽所能 “使用胁迫手段来达到目的”，并警告说，盟国必须共同努力，回击中共国的侵略和破坏台湾民主的威胁。
 
-它成了中共和西方科技较量的第一杆枪
-It becomes the first gun in the technology battle between the CCP and the West
+副总统卡马拉-哈里斯在最近的亚洲之行中，对中共国在南中国海的主张进行了指责，并主张追求一个自由和开放的印度太平洋。他对台湾的关注和坚定承诺的证明是最近出售的先进武器，美国承诺用这些武器加强我们的防御系统。
 
-那你说结果很简单嘛，它可能（成功）吗？是吧
-obviously the result is very simple, is it possible to succeed? Is it?
+请看下篇：[拒绝台湾加入联合国是全世界的道义和物质上双重损失（二）](https://gnews.org/zh-hans/1564673/)
 
-就连跟芯片连在一起了，华为现在主攻的就是芯片
-It’s even connected to the chip. Huawei’s main focus now is the chip design
+**素材来源：**[www.libertaddigital.com](https://www.libertaddigital.com/internacional/mundo/2021-09-21/jose-maria-der-li-liu-negar-entrada-taiwan-onu-perdida-moral-material-para-mundo-6820262/)
 
-华为的任正非低调地在搞芯片
-Huawei’s Ren Zhengfei is keeping a low profile in chip R&D
+* * *
 
-那芯片的较量，一会儿咱再说芯片，未来真正的价值在哪里
-That chip contest, let’s talk about the chip later, where is the real value in the future?
+*审核：蚂蚁兄弟*
+*校对：阿伯塔*
+*发布：信心的选择*
 
-咱们一会儿再聊一聊，所以说你看看
-Let’s talk it later, so let’s take a look
-
-芯片的较量，绝对就把华为弄在了中美，
-The chip contest definitely put Huawei in the U.S. and China
-
-还有中共和全世界的敌对的核心之中里面去
-and also inside the hostile core of the CCP and the whole world
-
-当这牺牲品，那不找死的吗, 是吧，
-It becomes the victim, you’re risking your neck, right?
-
-所以说它最终它一定（死）
-So eventually Huawei must die
-
-不管赢和输它都要被牺牲掉
-Whether it wins or loses, it has to be sacrificed
-
-原视频日期：2021/09/26
-原视频链接: https://twitter.com/se1y7cblljselva/status/1442385896553140228?s=24
-视频时间段 : 0:00-2:15
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

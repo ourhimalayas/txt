@@ -2,46 +2,154 @@
 ---
 
 
-## 民意调查显示，澳大利亚人正在认同“自由比法律更重要”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1564402/)
+## 疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564540/)
 
-#### **编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-47.png)
-**图片来源：****7 News**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cb554e1ec633a6c0f28e0ee6040f2f89.jpg)https://gtv.org/video/id=6155602fd2e2b817486f930a
+大家能搞明白的
+Todos tienen que entender
 
-9月29日，澳大利亚著名市场调查公司罗伊·摩根的最新调查数据显示，自新冠病毒大流行以来，相比国家法律，澳大利亚人支持自由的观点有了持续增长。14岁以上的澳大利亚人中29.3%现在同意“自由比法律更重要”，这与2020年3月支持率21.6%相比，增加了近8%。
+疫苗和病毒
+La vacuna y el virus
 
-上周，人民的情绪在墨尔本街头展现很明显。我们可以看到建筑工人、商人和其他人每天都在抗议，反对强制疫苗接种和延长封锁。经常看到墨尔本内城的抗议者成群结队地呼喊“自由”，这违反了维多利亚州目前禁止人们大规模聚集的卫生法令。
+他对人类的威胁还早着呢
+Aún es temprano en cuanto a su amenaza hacia la humanidad
 
-从性别上看，女性认同这一声明增长的份额比男性更大，大约四分之一的女性（24.9%）现在同意该声明，比2020年3月季度增加了8.4%，接近2021年3月季度达到的25.2%的高点；超过三分之一（33.8%）的男性同意该声明，比2020年第3季度增加了6.8%。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/百年-2.png)
-图片来源：Roy Morgan
+在这个生死面前
+Frente a la vida y muerte
 
-从不同年代的人对这句话的反应分析表明，认同与年龄有很大关系，越年轻越高。即便如此，同意“自由比法律更重要”的各年代人都在增加。
+啥事对咱都不是最重要的
+No hay nada más importante que eso para nosotros
 
-几乎五分之二的Z世代年轻人（38.1%）同意“自由比法律更重要”，比2020年3月季度增加了5.4%个百分点，比任何其他年龄段都高。
+第一, 一定要防范住病毒
+Primero, debemos protegernos del virus
 
-【备注：Z世代一般指1997年以后出生的任何人。】
+第二, 不打疫苗
+Segundo, no vacunarse
 
-然而，在新冠病毒大流行期间，同意“自由比法律更重要”的人中，千禧一代的增幅最大，在2021年6月上升了12.2%点，达到35.4%。
+第三, 如果以上发生了
+Tercero, si lo ante mencionado ya sucedió
 
-【备注：千禧一代一般指上世纪80-90年代出生的任何人。】
+咱有解药, 那迅速吃解药
+Tenemos el antídoto, entonces deben tomarlo inmediatamente
 
-X世代中超过四分之一的人（26%）现在同意“自由比法律更重要”，比新冠病毒大流行前上升了8.5%点。这是所有年龄段中第二大的增长，涵盖了40多岁和50多岁的人。
+第四, 在这个过程当中
+Cuarto, durante este proceso
 
-【备注：X世代一般指上世纪六、七十年代出生的任何人。】
+这个有饭吃, 有钱花, 有房子住
+Si tenemos comida, dinero para gastar, una casa para vivir
 
-年龄在60岁以上的澳大利亚人最不可能同意这种说法，只有18%的婴儿潮一代和17.2%的婴儿潮前一代同意“自由比法律更重要”。
+然后呢, 追求更舒服一点
+Y buscamos una mejor comodidad
 
-（以上文章仅代表作者个人观点，与Gnews平台无关）
+最后, 当这个灾难过后
+Finalmente, luego de este desastre
 
-原文链接：[29% of Australians now say ‘Freedom is more important than the law’ – Roy Morgan Research](https://www.roymorgan.com/findings/8801-freedom-and-the-law-june-2021-202109270703)
+咱幺都能健健康康的活着
+Todos podemos vivir sanos y saludables
 
-编辑/发布：文泓
+这是个大赢家
+Entonces seremos el gran ganador
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G系列是天赐给我们新中国联邦
+La serie G es lo que el Cielo otorgó a nuestro Nuevo Estado Federal de China
+
+要没有G系列
+Si no hay esta serie G
+
+要没有法治基金, 法治社会
+Ni la fundación para el estado de derecho, sociedad del estado de derecho
+
+没有G-CLUB, 没有盖特
+G-CLUB, GTTR
+
+没有G-TV, G-NEWS
+G-TV, G-NEWS
+
+任何一样东西
+Ninguno de ellos
+
+咱活得都不一样
+Viviremos de una manera diferente
+
+你没有希望
+No tendrás esperanza
+
+而且你都是从腰包里边掏钱
+Además, si sacas el dinero de tu bolsillo
+
+你怎能活得更好
+Cómo puedes vivir mejor
+
+还有个你能掏多长时间
+Y cúanto tiempo puedes estar sacando dinero de tu bolsillo
+
+你有多深能让你掏啊
+Qué tan profundo tienes el bolsillo
+
+结果这个新中国联邦这个国家形式
+Como resultado, la forma del Nuevo Estado Federal de China como país
+
+他是上天给我们的
+Es lo que Dios nos otorgó
+
+它给了我们希望
+Él nos dió esperanza
+
+它把我们凝(聚)了一起
+Él unió a todos nosotros
+
+爆料革命又创造出了G系列
+El Movimiento de Denunciantes creó la serie G
+
+这真是
+Esto realmente es
+
+让大家能有财富
+Para que todos tengan riqueza
+
+能有希望
+Esperanza
+
+能有动力凝聚在一起
+Y motivación para estar unidos
+
+还能好好的活下去
+Y vivir bien
+
+就是不可思议啊
+Es increíble todo esto
+
+所以说这才是属于我们的
+Por eso, esto es lo que nos pertenece
+
+不属于我们的
+Lo que no nos pertenece
+
+跟咱没关系的, 你少操闲心
+No es necesario preocuparse por lo que no tiene relación con nosotros
+
+现在开始关心我们G系列
+Ahora empieza a estar pendiente de nuestra serie G
+
+如何更快的, 更稳定的成功
+Cómo tener éxito de forma más rápida y estable
+
+让大家都能分享这个成功的喜悦和结果
+Para que todos puedan compartir el resultado y la felicidad del éxito
+
+这才是最重要的
+Esto es lo más importante
+
+原视频日期：09/27/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1442419230729670666?s=24
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

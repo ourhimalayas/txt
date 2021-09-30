@@ -2,47 +2,41 @@
 ---
 
 
-## 白思豪的警务专员和COVID顾问与中共的&#8221;执法合作&#8221;
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564268/)
+## 美国国家银行监管人曾获得”列宁&#8221;奖
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564376/)
 
 - 编译：西班牙喜悦农场–wenwu
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/001-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-452.png)
 
-詹姆斯·奥尼尔（james O’Neill）曾被纽约市长比尔·德·白思豪（Bill de Blasio）提名为纽约市警察局长，也是COVID-19的现任高级顾问，他曾多次在美中公共事务协会（ACPAI）发言，该协会与中共高层联系的影响力团体有密切联系，寻求”收编和中立化反对派”的政权。
+拜登总统挑选来监督国家银行的监管人，曾经称赞苏联的男女平等，并曾在大学期间获得了“列宁”奖。
 
-尼尔于 2016 年至 2019 年期间担任第 43 任警务专员，在其任职期间曾三度在美中公共事务协会 (ACPAI)中[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。它们分别是在：2016年[8](https://www.americachina.us/2017)月、2017 年 9 月和[2018 年](https://archive.ph/9h1NL)[11](https://www.americachina.us/2018) [月](https://archive.ph/9h1NL)的“警务专员午宴”（如图）上[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。
+康奈尔大学（Cornell University）法学教授绍尔·奥马洛娃（（Saule Omarova）是哈萨克斯坦人，毕业于莫斯科国立大学（Moscow State University），根据她的简历，她曾获得”列宁个人学术奖学金”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/002-7.jpg)
+就在最近的2019年，奥马洛娃[称赞](https://twitter.com/STOmarova/status/1112387645882200064?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1112387645882200064%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.foxnews.com/politics/bidens-pick-regulate-national-banks-lenin-award-praised-ussr-gender-equality)（如图）前苏联共产主义体制–她认为，这一点在美国可以得到应用。“在我来到美国之前，我无法想象像男女工资差距这样的事情在当今世界仍然存在，”奥马洛娃在一条推特上写道。“说说你对前苏联的看法吧，那里没有男女薪酬差距。自由市场体制并不总是’有效的’。”
 
-ACPAI 网站显示，该组织强大力[支持](https://www.americachina.us/goals)美中两国在“执法合作”、“军事磋商”和“流行病控制”等领域，建立安全伙伴关系。同样，ACPAI“强烈支持美利坚合众国和中华人民共和国之间的互免签证计划”，以及两国之间的自由贸易协定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-454.png)
 
-ACPAI 的会长滕绍骏（Fred Teng)，[同时还兼任](https://bushchinafoundation.org/people/fred-teng/)中美交流基金会（CUSEF）的高级美国代表。
+其作为对华尔街的激烈批评者，奥马洛娃的任命在华盛顿和国家最强大的银行中敲响了警钟，因为她提出的改革是“有效地’结束银行业务’，正如我们所知。我们对她从根本上限制美国银行系统的想法表示严重担忧，这个系统仍然是世界上最多样化和最具竞争力的。”美国银行家协会主席兼首席执行官罗布·尼科尔斯（Rob Nichols）在一份声明中说。
 
-CUSEF 是由中共国统战的“最高级别实体”副主席[董建华](http://usa.chinadaily.com.cn/2016-01/26/content_23262245.htm)创办的，美国[政府](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)认为[CUSEF](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)旨在“吸收和消除可能反对中共政策和政权的潜在反对者”。并“影响外国政府采取行支持北京的行动或立场”。董建华本人曾在 2016 年的 ACPAI 活动中（如图）发表了讲话。此外， CUSEF 理事 Ronnie [Chan](http://www.nordvann.com/news_and_events_detail.asp?id=19)（如图）也曾为 ACPAI 表过三次讲话。ACPAI 还主办了由中国共产党官员参加的活动，包括中共国联合国大使、对外贸易经济合作部副部长和总领事，以及中共国官方媒体主持人。
+《福克斯》已经联系了奥马洛娃和白宫以寻求评论，但在发表之前没有得到回复；奥马洛娃的任命与拜登总统对自己作为一个所谓的温和派的描述不一致。她也不是拜登的人选中第一个被指控怀有激进信仰的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/003-5.jpg)
+拜登提名大卫·奇普曼（David Chipman）管理酒精烟草和火器局（ATF），但后来因[奇普曼](https://www.foxnews.com/politics/white-house-pulling-atf-nomination-david-chipman-second-amendment-guns)曾对拥枪者发表过尖锐的评论，而取消了任命；与此同时，参议院民主党人正准备[确认](https://www.foxnews.com/politics/senate-dems-prepare-confirm-stone-manning)拜登总统与生态恐怖主义有关的候选人特雷西·斯通-曼宁（Tracy Stone-Manning），以领导土地管理局 (BLM)。
 
-ACPAI 还举办了“与（中国人民解放军退役少将）姚云珠博士的私人早餐论坛”，同时该协会还举办了由解放军军事科学院主办的”安全伙伴关系研讨会”。
-
-根据该协会的使命声明，在上述中国共产党官员的帮助下，ACPAI 试图“聚集我们的专业知识和我们的朋友网络，以促进美中关系的转型；在二十一世纪，与中华人民共和国的合作伙伴关系对美利坚合众国来说是重要和必要的。
-
-尽管奥尼尔与该组织有联系，但德·白思豪还是在 2020 年 4 月重新聘请了这位前警察局长，并兼任担任中共病毒（COVID-19）高级顾问。
-
-“在这个职位上，奥尼尔（如图）将监督纽约市医院内个人防护和医疗设备的供应和分配，因为 COVID-19 危机导致需求持续激增。奥尼尔将在医院内创建、运作和管理一个供应检查制度，以确保新供应品的快速周转，并核实每家医院正在向一线医护人员推送所需设备，”纽约市长办公室[解释说](https://www1.nyc.gov/office-of-the-mayor/news/215-20/mayor-de-blasio-james-o-neill-covid-19-senior-advisor#/0)。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/004-4.jpg)
+奥马洛娃似乎对共产主义政府的亲和力让人想起前总统巴拉克·奥巴马的顾问[安妮塔](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)[·](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)[邓恩](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)。她在奥巴马时代[上任](https://www.youtube.com/watch?v=5qDsrfy-Zvg&amp;feature=emb_imp_woyt)的第一年就把[毛泽东](https://www.independent.co.uk/arts-entertainment/books/news/mao-s-great-leap-forward-killed-45-million-four-years-2081630.html)列为她的英雄之一而引起人们的关注，另一位则是特蕾莎修女。
 
 **简评：**
 
-**奥尼尔被中共蓝金黄了，并且可能带着白思豪的任务，所以白思豪在中共病毒在美国肆虐之时，重新聘请了他回来担任 中共病毒高级顾问。**
+**看来本届政府让《福克斯》联想到了，拜登总统上台的任务之一是像奥巴马时代一样印美元和增加国家赤字的。而且美元变毛的幅度，或许也会超过许多人的想象！**
 
-**本篇报道明确了，这位纽约市警察局局长是管控了纽约市医院的应对疫苗所需要的设备。当时还是川普的时代，川普认为纽约市谎报了呼吸机等的医疗储存数量，而纽约市为驳斥了川普；值得一提的是，华为向纽约州捐出了1万个N95口罩、1万个手套、2万件防护服和5万个防护镜，还包括了纽约[紧急](https://c.m.163.com/news/a/F8GH0AB10519EO06.html)向中共国求购1.5万台呼吸机！**
+**另外在中共国，郭文贵先生在2021年9月29日[大直播](https://gtv.org/video/id=615466c142a8af3151a74ee3)中表示：“中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，虚拟币是美国和中共都抢不走钱，只有喜币最安全；新中国联邦是超越国家的概念，建立独一无二的体制带给战友财富并有无限希望。”**
+
+**最后，我们爆料革命将会庆祝喜币在10月份的上市（还有每年将会多出10亿个喜币）。**
 
 （文章仅代表作者观点 与GNEWS无关）
 
-新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/de-blasio-commisioner-spoke-at-ccp-influence-group/)》｜作者：娜塔丽·温特斯｜发布时间：2021年9月29日
+新闻来源：《[福克斯](https://www.foxnews.com/politics/bidens-pick-regulate-national-banks-lenin-award-praised-ussr-gender-equality)》｜作者：布拉德福德·贝茨｜发布时间：2021年9月29日
 
 * * *
 

@@ -2,148 +2,27 @@
 ---
 
 
-## 孟晚舟必须回国的3个理由，牵扯太大了，吓死我了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564522/)
+## 秘翻在线：研究显示37%的中共病毒患者康复后 至少显现一种长期症状
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564603/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/10171141a54badce9cdc5bbb7ea6adc0.jpg)https://gtv.org/video/id=61555fc1d2e2b817486f92f7
-我想给大家说一下
-Quiero decirles a todos ustedes
+#### 文章撰写：寶寶
 
-第一个, 大家要记住的
-El primero, todos deben recordar
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Snipaste_2021-09sdaf34t45yh56-30_20-43-36.png)
 
-华为的老板, 华为公司背后
-El jefe de Huawei, detrás de esta compañía
+据路透社9月29日报道，牛津大学和国家卫生研究所（National Institute for Health Research）的一项大型研究显示，在感染病毒三到六个月后37%的患者至少出现了一种长期的症状。
 
-他有两个官方的爹, 就是(共产党的)总參二部
-Tiene dos padres oficiales que es el Segundo Departamento del Estado Mayor (del Partido Comunista)
+牛津大学在对超过270,000名从COVID-19中康复患者的症状进行了调查后说，最常见的症状包括呼吸问题、疲劳、疼痛和焦虑。
 
-它就是一个军方的情报部, 它就是一个100%的中共
-Es un Departamento de Inteligencia Militar, es 100% del PCCh
+根据这项研究，这些症状在因COVID-19住院的患者中更为常见，而女性患者也更明显。
 
-打造的一个科技蓝金黄和对西方战略上
-Para crear el plan ADA (BGY) tecnológica en cuanto a la estrategia occidental
+该研究没有提供长期COVID症状的任何详细原因、严重程度或可能持续时间。
 
-特别是5G
-Especialmente el 5G
+然而，它表示老年患者和男性患者面临更多的呼吸困难和认知问题，而年轻患者和女性患者则更常见头痛、腹部症状以及焦虑或抑郁。
 
-还有整个通信系统打造的一个征服世界的这么一个平台
-También es una plataforma construida por todo el sistema de comunicación para conquistar el mundo
+“我们需要确定可能影响幸存患者的各种症状背后的机制，”领导这项研究的牛津大学教授保罗哈里森（Paul Harrison）说。
 
-所以说它亲爹绝对是共产党的情报部
-Por eso se dice que su padre es definitivamente el Departamento de Inteligencia del Partido Comunista
+哈里森补充说：“如果要有效预防或治疗COVID-19出现的长期症状，这些研究信息将是必不可少的。”
 
-也就共产党
-Es decir, del Partido Comunista
+参考文章：**[At least one long-term symptom seen in 37% of COVID-19 patients -study](https://www.reuters.com/business/healthcare-pharmaceuticals/least-one-long-term-symptom-seen-third-covid-19-patients-study-2021-09-29/)**
 
-如果让华为的任何人把它的本质告诉了美国和西方
-Si se deja a cualquier persona de Huawei contarle a EE. UU y el occidente sobre su naturaleza
-
-它带来的灾难又是什么(样的)结果呢
-Qué resultado de desastre traerá
-
-所有过去这些年在西方埋下的情报
-Todas las informaciones enterradas en el occidente durante estos últimos años
-
-技术和蓝金黄的网路全部暴露
-La tecnología y el internet del plan ADA (BGY) serán expuestos
-
-特别是华为的钱和华为的技术来源
-Especialmente, el dinero y el origen de la tecnología de Huawei
-
-那会是什么, 战友们记住
-Qué será eso, recuerden, compañeros luchadores
-
-美国的华尔街和美国的军方
-El Wall Street y el ejército estadounidense
-
-美国的情报方出卖美国的人
-Agentes de inteligencia estadounidenses traicionan a su propio pueblo
-
-全部暴露
-Todo será expuesto
-
-所以中共也不愿意让这事说出来
-Por lo tanto el PCCh no está dispuesto a que este asunto sea revelado
-
-美国欧洲也不让说出来
-EE. UU y Europa tampoco
-
-第二条, 华为任正非
-El Segundo, Ren Zhengfei de Huawei
-
-所有的股份里边唯一的亲爹是习的亲姊夫老吴
-Dentro de todas las acciones, el único padre es el cuñado de Xi, LaoWu
-
-ZTE, 华为这是人家习家的
-ZTE, Huawei pertenece a la familia de Xi
-
-别人你是不能碰的
-Otras personas no podrán tocarlo
-
-人家是皇上
-Él es el emperador
-
-(你碰了)这损失, 你想想那怎么可能(让你碰)
-Si llegas a tocarlo, la pérdida que puede tener, piensa cómo será posible dejarte tocar
-
-我当着皇帝, 我怎么让你碰
-Si soy emperador, cómo es posible dejar que lo toques
-
-所以说这个问题在利益上
-Así que este problema, en cuanto a su interés
-
-习是以国家的名义
-Xi a nombre del país
-
-必须得把她(孟晚舟)弄回去
-Debe recuperarla (Meng Wanzhou)
-
-这是非常重要的
-Esto es sumamente importante
-
-第三个, 大家要看到的是
-Tercero, todos lo que verán es
-
-为啥要让孟晚舟回去
-Por qué deben recuperar a Meng Wanzhou
-
-孟晚舟最大的问题是知道钱路, 任正非多了没有
-El mayor problema de ella es que sabe el camino del dinero, pero Ren Zhengfei no lo sabe
-
-最起码在外面存了3000亿以上
-Como mínimo, tiene guardado más de 300 mil millones en el exterior
-
-这3000亿美元所有代持人签字人必须是孟晚舟
-Todos los signatarios en nombre del titular de estos 300 mil millones de dólares deben ser Meng Wanzhou
-
-孟晚舟要死了
-Si ella muere
-
-这钱也就没了
-Este dinero se desaparecerá también
-
-她不能死, 所以习集一国之力必须弄回来
-Ella no puede morir, por eso Xi unió la fuerza del país para recuperarla
-
-关键他的钱没了
-Sin embargo, la clave es que su dinero se ha ido
-
-这个钱路要被美国人给弄走了
-Este dinero está a punto de ser quitado por los estadounidenses
-
-这事就太大了
-Este asunto es demasiado grande
-
-原视频日期：09/27/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442467964104568836?s=24
-视频时间段：0:00-2:09
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+本文仅代表作者本人观点，不代表Gnews平台

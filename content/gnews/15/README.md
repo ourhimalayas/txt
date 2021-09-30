@@ -2,55 +2,35 @@
 ---
 
 
-## 有声|[金融园]黄金和白银的五种不同特性，更好分散投资
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564513/)
+## 共和党参议员推出法案 欲阻止中共与塔利班经济合作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564599/)
 
-配音：纽约香草山美食部 – 玫瑰园
+栏目记者/责任编辑：飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-摩根士丹利的经济学家在最新出炉的大宗商品报告中对黄金和白银市场进行了差异分析。他们称许多投资者正在寻找方法以应对疫情及疫情之后所有的不确定性。其中一些人的解决方案包括投资贵金属，如黄金和白银。
+9月28日，22名美国共和党参议员联合提出一项法案《阿富汗反恐、监督与问责法》，寻求对塔利班以及所有支持该组织的外国政府实施制裁。
 
-报告将这些观点分成5个关键部分
+中共政府是目前为数不多的高调支持阿富汗塔利班的主要外国政府，该法案针对中共的意味明显。
 
-1. 白银与全球经济的关系更加密切
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（1、4）視頻備用.003.jpeg)
 
-50%白银被用于重工业和高科技，这其中包括熟知的智能手机、平板电脑、汽车电气系统、太阳能电池等。因此，白银对世界经济的敏感度远高于黄金，因为黄金更多的用于饰品和国库储备。经济增长必然导致对白银的需求增加，进而刺激价格增长。反之亦然。
+法案由美国参议院外交委员会共和党头号人物、爱达荷州联邦参议员吉姆·里施发起，要求美国政府对塔利班委任的阿富汗驻美国大使、以及阿富汗常驻联合国代表不予与承认，要求美国对支持阿富汗塔利班的任何外国实体进行全面审查，同时敦促美国总统提交报告，详细说明俄罗斯、中共国和塔利班对南亚和中亚国家构成的安全和经济挑战。 此外该法案还寻求与印度加强合作，以应对中共、俄罗斯和塔利班在该地区带来的经济和安全挑战。
 
-2. 白银可能是一个更好的通货膨胀对冲工具
+众院共和党人表示，他们也将提出单独的法案，旨在限制塔利班与外国政府和实体开展经济合作。
+(本文仅代表作者观点)
 
-从历史上看，当通货膨胀率上升时，黄金和白银都会取得丰厚的收益。这两种金属都是以美元计价。当美元贬值时，黄金和白银通常会上涨。考虑到白银有更大的工业需求，在通货膨胀和美元下跌的情况下，白银往往比黄金涨得更多。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-3. 白银比黄金具有更大的波动性
-
-历史数据表明白银价格波动的百分比在一个交易周期内有可能是黄金的两到三倍，甚至更多。投资者短期内可能会受益，但同时又面临巨大风险。黄金白银的这种波动性可以为投资者提供不同期限的投资回报。
-
-4. 黄金是更好的分散投资工具
-
-对比白银，黄金被认为是更强大的多元化投资工具。原因是它与股票债券等资产类投资相关性非常低，它的工业用途也相当有限。黄金的这种独立性使得它在世界经济中扮演非常稳定的角色。
-
-5. 白银目前比黄金更便宜
-
-现阶段白银的价格更能被个人投资者接受。对于那些刚刚开始建立投资组合或者资金有限的人来说，白银的低成本更具有强大的吸引力。
-
-[文字版原文：\[金融园\]黄金和白银的五种不同特性，更好分散投资](https://gnews.org/zh-hans/1559884/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+终审：FoxRina
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

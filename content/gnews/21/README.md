@@ -2,48 +2,34 @@
 ---
 
 
-## 完全接种疫苗的夫妇二人相隔一分钟死于病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564426/)
+## 担心国际联合抵制，北京冬奥会将仅向国内观众售票
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564552/)
 
-- **编译： Jenny Ball**
+栏目记者/责任编辑：在远方
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip166.png)
 
-亲戚们说，59 岁的卡尔·邓纳姆（Cal Dunham）和 66 岁的妻子琳达（Linda）在周日“升到了天国”，然而他们都是采取了预防措施，接种了疫苗的。
+国际奥委会周三表示，国际奥委会执行董事会接到北京冬奥组委的最新“疫情防控政策”通报，北京2022冬奥会现场门票，将只面向中共国境内符合疫情防控要求的观众售票，与此同时，未接种或未完全接种疫苗的参赛运动员和工作人员，也必须在入境后首先进行21天的隔离观察。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（1、4）視頻備用.001.jpeg)
+由于中共在新疆施行的种族灭绝和反人类罪行，以及对香港、西藏、内蒙古人民的镇压迫害，由全球180个人权组织组成的国际联盟今年2月曾经致信世界各国领导人，要求关注中国的人权纪录，并抵制明年的北京冬奥会。该联盟还呼吁包括美国国家广播公司在内的世界各大电视台，取消转播北京冬季奥运会的计划。
 
-这对夫妇悲伤的女儿莎拉·邓纳姆 (Sarah Dunham) 说，父母本月早些时候，在一次家庭露营旅行中生病了，他们没有透露潜在的健康状况。
+中共在面对新冠病毒真相追责及人权劣迹的双重压力下，为避免面对全世界联合抵制北京冬奥会的尴尬局面，决定以疫情为借口，只向国内观众售票，表明中共深知，试图再次借助奥运会来营造“万国来朝”假象的计划，已无可能 。 
+(本文仅代表作者观点)
 
-“[我父亲]在我们全家野营旅行之前打电话给我，说他感觉不舒服，但他认为这就像鼻窦炎，琳达感冒了，然后传染给了他，”她告诉 Fox17。
+参考链接：[北京冬奥会现场将仅允许中国境内观众 未完成疫苗接种入境隔离21天–IOC](https://cn.reuters.com/article/winter-olympics-0929-wedn-idCNKBS2GQ035?il=0)
 
-“第三天他们叫醒我说，‘我们先走了，因为我们感觉不舒服。’所以我帮他们打包好，他们就离开了。”
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-这对夫妇在几天内相继住院，并都使用了呼吸机。两人之前都还患有其他病症。
+终审：文龙
+校正/发稿：我不在这里
 
-他们手牵着手死去；卡尔于上午 11 点 07 分过世，他的妻子于上午 11 点 08 分去世。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-卡尔·邓纳姆在 5 月 15 日用边框更新了他的 Facebook 个人资料图片，以反映他获得了疫苗。
-
-当朋友们评论说他们也都打了疫苗，他还称赞他们“太棒了”。
-
-**评论：**
-
-**有多少无辜的人们，在被疫苗夺去生命时，还称赞打疫苗“太棒了”。看到这句话时鼻子一酸，泪水就止不住流出来，久久平复不了心中难以压抑的感觉。**
-
-**文章中可以看到，没有人把他们的不幸归咎于罪魁祸首“疫苗”，现在科学研究已经证明，mRNA疫苗的刺突蛋白，是体内原有疾病的促发剂，而他们夫妇在接种疫苗之前，都有其他疾病。**
-
-**这也是为什么邪恶势力强制人们接种疫苗，因为一旦没有了没有接种人群的对比，邪恶的势力就不用担心，人们会把这对夫妇这样的突然死亡，罪咎到实验期的疫苗，所有接种疫苗的人们，实际上都是疫苗开发第三期人体试验的老鼠，而这个实验连第二期的动物实验都没有过关！**
-
-**这样的违背人伦的灭绝人类罪行，就这样还在“合法”大规模地实施着……**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**素材链接：[infowars](https://www.infowars.com/posts/married-michigan-couple-who-were-both-fully-vaccinated-but-had-underlying-health-conditions-die-of-covid-just-one-minute-apart-while-holding-hands/)**
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,154 +2,36 @@
 ---
 
 
-## 疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564540/)
+## 丹佛警察就强制疫苗接种对市长提起诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564620/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/cb554e1ec633a6c0f28e0ee6040f2f89.jpg)https://gtv.org/video/id=6155602fd2e2b817486f930a
-大家能搞明白的
-Todos tienen que entender
+栏目记者/责任编辑：圣母院钟声
 
-疫苗和病毒
-La vacuna y el virus
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-他对人类的威胁还早着呢
-Aún es temprano en cuanto a su amenaza hacia la humanidad
 
-在这个生死面前
-Frente a la vida y muerte
 
-啥事对咱都不是最重要的
-No hay nada más importante que eso para nosotros
+【National File】9 月 28 日报道，丹佛警察局的七名警官已经对市长迈克尔·汉考克(Michael Hancock)、公共卫生及环境部执行主任罗伯特·麦克唐纳(Robert McDonald)和丹佛警察局长保罗·帕赞(Paul Pazen)提起诉讼，指控他们对该市制定强制疫苗接种规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM-8、9、11.001.jpeg)
+有数百名丹佛警官签名，要求参与这场诉讼。如果强制疫苗接种令不撤销，这些警官会考虑辞去丹佛警察局的职务。
 
-第一, 一定要防范住病毒
-Primero, debemos protegernos del virus
+该诉讼写道，“在全民谨慎行事的情况下，每个人，包括健康的年轻人、老年人、曾经病毒感染康复而已获得自然免疫的人、甚至孕妇和哺乳期妇女，目前正受到来自于政府、企业和教育机构的压力，要求他们接受新冠疫苗接种，而没有评估每个人所要承担的风险，也没有考虑每个特定情况下的医疗必要性或禁忌症。在强制遵守疫苗接种的非法公共卫生命令下，无数人受到不可逆的健康损害……”。
 
-第二, 不打疫苗
-Segundo, no vacunarse
+世界觉醒民众与黑暗势力的较量正在进行中，当国家机器，像丹佛警局的警察们，法国巴黎的警察们，多伦多市的救火队员们……也都觉醒时，暗夜会在黎明的刺眼光照下瞬间消失殆尽。
+(本文仅代表作者观点)
 
-第三, 如果以上发生了
-Tercero, si lo ante mencionado ya sucedió
+参考链接：[Denver Cops File Lawsuit Against Democrat Mayor Over Vaccine Mandate, Claim Hundreds Of Officers Are Ready To Resign](https://nationalfile.com/denver-cops-file-lawsuit-against-democrat-mayor-over-vaccine-mandate-claim-hundreds-of-officers-are-ready-to-resign/)
 
-咱有解药, 那迅速吃解药
-Tenemos el antídoto, entonces deben tomarlo inmediatamente
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-第四, 在这个过程当中
-Cuarto, durante este proceso
+终审：Q大哥
+校正/发稿：我不在这里
 
-这个有饭吃, 有钱花, 有房子住
-Si tenemos comida, dinero para gastar, una casa para vivir
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-然后呢, 追求更舒服一点
-Y buscamos una mejor comodidad
-
-最后, 当这个灾难过后
-Finalmente, luego de este desastre
-
-咱幺都能健健康康的活着
-Todos podemos vivir sanos y saludables
-
-这是个大赢家
-Entonces seremos el gran ganador
-
-G系列是天赐给我们新中国联邦
-La serie G es lo que el Cielo otorgó a nuestro Nuevo Estado Federal de China
-
-要没有G系列
-Si no hay esta serie G
-
-要没有法治基金, 法治社会
-Ni la fundación para el estado de derecho, sociedad del estado de derecho
-
-没有G-CLUB, 没有盖特
-G-CLUB, GTTR
-
-没有G-TV, G-NEWS
-G-TV, G-NEWS
-
-任何一样东西
-Ninguno de ellos
-
-咱活得都不一样
-Viviremos de una manera diferente
-
-你没有希望
-No tendrás esperanza
-
-而且你都是从腰包里边掏钱
-Además, si sacas el dinero de tu bolsillo
-
-你怎能活得更好
-Cómo puedes vivir mejor
-
-还有个你能掏多长时间
-Y cúanto tiempo puedes estar sacando dinero de tu bolsillo
-
-你有多深能让你掏啊
-Qué tan profundo tienes el bolsillo
-
-结果这个新中国联邦这个国家形式
-Como resultado, la forma del Nuevo Estado Federal de China como país
-
-他是上天给我们的
-Es lo que Dios nos otorgó
-
-它给了我们希望
-Él nos dió esperanza
-
-它把我们凝(聚)了一起
-Él unió a todos nosotros
-
-爆料革命又创造出了G系列
-El Movimiento de Denunciantes creó la serie G
-
-这真是
-Esto realmente es
-
-让大家能有财富
-Para que todos tengan riqueza
-
-能有希望
-Esperanza
-
-能有动力凝聚在一起
-Y motivación para estar unidos
-
-还能好好的活下去
-Y vivir bien
-
-就是不可思议啊
-Es increíble todo esto
-
-所以说这才是属于我们的
-Por eso, esto es lo que nos pertenece
-
-不属于我们的
-Lo que no nos pertenece
-
-跟咱没关系的, 你少操闲心
-No es necesario preocuparse por lo que no tiene relación con nosotros
-
-现在开始关心我们G系列
-Ahora empieza a estar pendiente de nuestra serie G
-
-如何更快的, 更稳定的成功
-Cómo tener éxito de forma más rápida y estable
-
-让大家都能分享这个成功的喜悦和结果
-Para que todos puedan compartir el resultado y la felicidad del éxito
-
-这才是最重要的
-Esto es lo más importante
-
-原视频日期：09/27/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442419230729670666?s=24
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

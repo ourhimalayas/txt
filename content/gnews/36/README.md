@@ -2,31 +2,46 @@
 ---
 
 
-## 恒大将向国企出售盛京银行15亿美元股权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1564281/)
+## 民意调查显示，澳大利亚人正在认同“自由比法律更重要”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1564402/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-29t011108z_2_lynxmpeh8s00o_rtroptp_3_china-evergrande-debt-wealth-1.jpg)网络图片
-现金紧张的中国恒大周三（9月29日）表示，计划将其持有的盛京银行99.9亿元人民币（合15亿美元）的股份出售给一家国有资产管理公司，以筹集资金。
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-47.png)
+**图片来源：****7 News**
 
-恒大表示，盛京银行已要求将出售所得全部净收益用于清偿集团对盛京银行的相关金融负债。
+9月29日，澳大利亚著名市场调查公司罗伊·摩根的最新调查数据显示，自新冠病毒大流行以来，相比国家法律，澳大利亚人支持自由的观点有了持续增长。14岁以上的澳大利亚人中29.3%现在同意“自由比法律更重要”，这与2020年3月支持率21.6%相比，增加了近8%。
 
-恒大迅速成为中共国最令人头痛的企业，因为它在影响深远的混乱崩溃、有管理的崩溃或不可能得到中共政府纾困之间摇摆不定。
+上周，人民的情绪在墨尔本街头展现很明显。我们可以看到建筑工人、商人和其他人每天都在抗议，反对强制疫苗接种和延长封锁。经常看到墨尔本内城的抗议者成群结队地呼喊“自由”，这违反了维多利亚州目前禁止人们大规模聚集的卫生法令。
 
-恒大董事长许家印在声明中表示：“公司的流动性问题对盛京银行产生了实质性的不利影响”。
+从性别上看，女性认同这一声明增长的份额比男性更大，大约四分之一的女性（24.9%）现在同意该声明，比2020年3月季度增加了8.4%，接近2021年3月季度达到的25.2%的高点；超过三分之一（33.8%）的男性同意该声明，比2020年第3季度增加了6.8%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/百年-2.png)
+图片来源：Roy Morgan
 
-收购方作为国有企业，它的的引入，将有助于稳定盛京银行的运营，同时有助于提高和维持公司保留的盛京银行14.75%的权益价值。
+从不同年代的人对这句话的反应分析表明，认同与年龄有很大关系，越年轻越高。即便如此，同意“自由比法律更重要”的各年代人都在增加。
 
-知情人士本周对路透社表示，中共政府正在推动国有企业和国有房地产开发商收购陷入困境的中国恒大集团的部分资产。
+几乎五分之二的Z世代年轻人（38.1%）同意“自由比法律更重要”，比2020年3月季度增加了5.4%个百分点，比任何其他年龄段都高。
 
-**原文链接：**[https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071](https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071)
+【备注：Z世代一般指1997年以后出生的任何人。】
 
-* * *
+然而，在新冠病毒大流行期间，同意“自由比法律更重要”的人中，千禧一代的增幅最大，在2021年6月上升了12.2%点，达到35.4%。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+【备注：千禧一代一般指上世纪80-90年代出生的任何人。】
 
+X世代中超过四分之一的人（26%）现在同意“自由比法律更重要”，比新冠病毒大流行前上升了8.5%点。这是所有年龄段中第二大的增长，涵盖了40多岁和50多岁的人。
 
-编辑：【英国伦敦喜庄园编辑部】
+【备注：X世代一般指上世纪六、七十年代出生的任何人。】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+年龄在60岁以上的澳大利亚人最不可能同意这种说法，只有18%的婴儿潮一代和17.2%的婴儿潮前一代同意“自由比法律更重要”。
+
+（以上文章仅代表作者个人观点，与Gnews平台无关）
+
+原文链接：[29% of Australians now say ‘Freedom is more important than the law’ – Roy Morgan Research](https://www.roymorgan.com/findings/8801-freedom-and-the-law-june-2021-202109270703)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

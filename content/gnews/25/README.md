@@ -2,17 +2,39 @@
 ---
 
 
-## NBA球员因不打疫苗而缺席比赛的，将被停发薪水
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564401/)
+## 有声|台湾正在修订法律以防止中共窃取半导体技术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564530/)
 
-#### 翻译/撰稿：zzballack
+配音：纽约香草山美食部 – 玫瑰园
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture1-16.jpg)图片来源：New York Daily News
-《国会山报》（The Hill）9月29日报道称，北美男子职业篮球联盟（NBA）发言人迈克·巴斯（Mike Bass）9月29日在一份声明中说：“任何选择不遵守当地疫苗接种规定的球员，在他缺席的比赛中不会获得报酬。”这项新协议是NBA为防止病毒传播而制定的许多新安全协议之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
-美联社之前获得的一份NBA备忘录称，联盟并未强制要求球员接种疫苗。但未接种疫苗的球员不被允许和已接种疫苗的队友一起用餐，他们的储物柜必须放置在远离队友的地方，在球队会议上保持社交距离并佩戴口罩。备忘录还包括比赛期间的住宿指南：当在自己的城市时，未接种疫苗的球员将被要求留在家中，在其他城市时，他们必须呆在酒店房间里，远离商业活动或大型室内集会。NBA所有球员被要求每周提交核酸测试结果，无论其是否接种疫苗。
 
-NBA目前已经有90%的球员完全接种了疫苗，但是仍有少数球员拒绝接种，比如金州勇士队的安德鲁·威金斯（Andrew Wiggins）、华盛顿奇才队的布拉德利·比尔（Bradley Beal ）和布鲁克林篮网队的凯里·欧文 (Kyrie Irving)。威金斯之前申请了宗教豁免，但被联盟拒绝。由于纽约和旧金山这两座城市对于球员在主场比赛有接种疫苗的要求，所以如果威金斯和欧文仍拒绝接种疫苗，就不能在主场参加比赛。每缺席一场比赛，威金斯将损失36万美元的薪水。欧文将损失约38万美元。
 
-新闻来源：[NBA announces it will withhold pay of unvaccinated players](https://thehill.com/policy/healthcare/574522-nba-announces-it-will-withhold-pay-of-unvaccinated-players?rl=1)
+据[OAN](https://www.oann.com/taiwan-proposes-tightening-law-to-prevent-china-stealing-technology/)网站援引路透社9月29日报道，台湾政府周三提议收紧一项法律，以防止中共国窃取半导体关键技术。
+
+台湾的大陆事务委员会说，它正在提议修订一项有关中共国关系的现行法律，要求获得政府资金用于某些技术的人在前往中共国之前必须获得许可。
+
+台湾拥有蓬勃发展和世界领先的半导体产业，其半导体技术广泛用于各个领域，从战斗机到汽车，无所不包。台湾政府长期以来一直担心中共国试图通过工业间谍活动、“挖走”人才和其他方法来复制这一成功。
+
+台湾政府高级官员表示，此次修订是为了保护该岛的先进芯片制造技术，业内专家称该“国家技术”领先于中共国的几代。
+
+[文字版原文：台湾正在修订法律以防止中共窃取半导体技术](https://gnews.org/zh-hans/1563379/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

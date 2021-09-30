@@ -2,33 +2,44 @@
 ---
 
 
-## 有声| 辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564388/)
+## 有声|[金融园]黄金和白银的五种不同特性，更好分散投资
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564513/)
 
-配音：香草山教育部-蒙古鸿雁
+配音：纽约香草山美食部 – 玫瑰园
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
 
 
 
+摩根士丹利的经济学家在最新出炉的大宗商品报告中对黄金和白银市场进行了差异分析。他们称许多投资者正在寻找方法以应对疫情及疫情之后所有的不确定性。其中一些人的解决方案包括投资贵金属，如黄金和白银。
 
+报告将这些观点分成5个关键部分
 
-据[零对冲](https://www.zerohedge.com/covid-19/pfizer-launches-final-study-covid-drug-thats-suspiciously-similar-ivermectin)9月28日报道，周一，辉瑞公司宣布，它正加速进行一种COVID预防药物的中后期试验，旨在抵御那些可能接触过该疾病的人的COVID。该药物旨在阻断冠状病毒在人体内繁殖所需的一种关键酶的活性，将与低剂量的利托那韦一起给药，利托那韦是一种广泛用于艾滋病（HIV）感染联合治疗的老药。
+1. 白银与全球经济的关系更加密切
 
-巧合的是，辉瑞公司正在研发的新药至少与伊维菌素共享同一种作用机理。伊维菌素是一种在人类中使用了几十年的抗寄生虫药，它作为一种蛋白酶抑制剂可对抗Covid-10。研究人员推测这“可能是其抗病毒效率背后的生物物理基础”。
+50%白银被用于重工业和高科技，这其中包括熟知的智能手机、平板电脑、汽车电气系统、太阳能电池等。因此，白银对世界经济的敏感度远高于黄金，因为黄金更多的用于饰品和国库储备。经济增长必然导致对白银的需求增加，进而刺激价格增长。反之亦然。
 
+2. 白银可能是一个更好的通货膨胀对冲工具
 
+从历史上看，当通货膨胀率上升时，黄金和白银都会取得丰厚的收益。这两种金属都是以美元计价。当美元贬值时，黄金和白银通常会上涨。考虑到白银有更大的工业需求，在通货膨胀和美元下跌的情况下，白银往往比黄金涨得更多。
 
-**文字版原文：[辉瑞正在研究的抗病毒预防治疗新药和伊维菌素貌似相似](https://gnews.org/zh-hans/1561121/)**
+3. 白银比黄金具有更大的波动性
 
+历史数据表明白银价格波动的百分比在一个交易周期内有可能是黄金的两到三倍，甚至更多。投资者短期内可能会受益，但同时又面临巨大风险。黄金白银的这种波动性可以为投资者提供不同期限的投资回报。
 
+4. 黄金是更好的分散投资工具
 
+对比白银，黄金被认为是更强大的多元化投资工具。原因是它与股票债券等资产类投资相关性非常低，它的工业用途也相当有限。黄金的这种独立性使得它在世界经济中扮演非常稳定的角色。
 
+5. 白银目前比黄金更便宜
+
+现阶段白银的价格更能被个人投资者接受。对于那些刚刚开始建立投资组合或者资金有限的人来说，白银的低成本更具有强大的吸引力。
+
+[文字版原文：\[金融园\]黄金和白银的五种不同特性，更好分散投资](https://gnews.org/zh-hans/1559884/)
 
 音频处理：喜山必胜Maverick
-发稿：雪梨
+
+*发稿：*Yuki jiang
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
@@ -36,10 +47,10 @@
 
 [**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

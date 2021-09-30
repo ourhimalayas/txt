@@ -2,39 +2,17 @@
 ---
 
 
-## 有声|台湾正在修订法律以防止中共窃取半导体技术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564530/)
+## 三方合力促成孟晚舟回国
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1564606/)
 
-配音：纽约香草山美食部 – 玫瑰园
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6500-1.jpg)图片来源：www.theguardian.com
+郭先生在9月26日的直播中说，孟晚舟能够回到中共国，是华为背后两个官方的爹，和美国内部人员三方合力的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+除了华为背后两个官方的爹之外，郭先生说，在克里去中国之前，我就知道孟晚舟事件将是中美谈判的一个话题，我有关于美国和中共之间谈判的有关信息，以及中共内部希望达成的结果。我提供了准确的的时间、地点和方式都可以证明你们内部有人想帮助孟晚舟回到中共国。我现在手里的资料让那些人有一种被出卖的感觉，美方有人踢了椅子。这让美国真正意识到美国的内部人员被渗透和收买的情况有多严重。
 
+这些国家的背叛者，这些信仰崩塌，灵魂被贪婪和欲望所吞噬的人才是文明世界最危险的敌人。没有他们，中共只是一群乌合之众。
 
+参考链接：
 
-据[OAN](https://www.oann.com/taiwan-proposes-tightening-law-to-prevent-china-stealing-technology/)网站援引路透社9月29日报道，台湾政府周三提议收紧一项法律，以防止中共国窃取半导体关键技术。
-
-台湾的大陆事务委员会说，它正在提议修订一项有关中共国关系的现行法律，要求获得政府资金用于某些技术的人在前往中共国之前必须获得许可。
-
-台湾拥有蓬勃发展和世界领先的半导体产业，其半导体技术广泛用于各个领域，从战斗机到汽车，无所不包。台湾政府长期以来一直担心中共国试图通过工业间谍活动、“挖走”人才和其他方法来复制这一成功。
-
-台湾政府高级官员表示，此次修订是为了保护该岛的先进芯片制造技术，业内专家称该“国家技术”领先于中共国的几代。
-
-[文字版原文：台湾正在修订法律以防止中共窃取半导体技术](https://gnews.org/zh-hans/1563379/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[2021年9月26日文贵直播](https://gtv.org/video/id=6150769942a8af3151a5b28f)
