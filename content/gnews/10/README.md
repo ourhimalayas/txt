@@ -2,49 +2,29 @@
 ---
 
 
-## 教育部“双减”政策下的一些学校的对策
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1563717/)
+## 2021年9月5日郭文贵先生吃饭饭盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563773/)
 
-作者：香草山农场写作组-静水流深
+盖特连接：[https://gettr.com/post/pa75ei47cb](https://gettr.com/post/pa75ei47cb)
 
+吃饭饭啦……未来农场的必备菜！
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
+吃卷子喽！花卷，花卷，花卷！羊肉花卷！羊肉，羊肉，羊肉啊！然后大饼子，大饼子，没钱了，只能吃这个了，只能吃这个了！啥锅？啥锅？啥锅？欧~
 
+编辑整理及发布：黎明之前
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-2021年8月30日，中共国教育部召开新闻发布会，会议上通报：义务教育学校要严格执行均衡编班的法律规定，不得以任何名义设置重点班，严格执行教学计划，不得随意增减课时、改变难度、调整进度，不得利用课后服务时间讲新课。今年秋季学期是中共国中小学全面实施所谓的“双减”，即“有效减轻义务教育阶段学生过重作业负担和校外培训负担”的第一学期。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-新闻发布会说是这么说，但实际上呢？各地区各阶层义务教育学校的生源不一样，教学设施、教学条件不一样。无论如何，农村义务教育学校总是个薄弱地带，被牺牲的地带。但凡成绩稍微好些的学生，或者经济条件稍微好些的家庭孩子，都去往城里的义务教育学校学习，留下在农村的义务教育学校的学生基本是留守儿童，家里经济条件很差，当然学习成绩普遍不理想。在“双减”政策之下，农村义务教育学校既要执行“双减”政策，又不能较少“教学质量”，所以“重点班”是必然。但是学校对外宣传肯定不会说是否分了重点班和普通版，而在“重点班”的学生家长自然也配合学校。既然学校不宣传，老师不说，家长也不说，所以大家都很默契的认为没有“重点班”。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-为了响应国家号召，各学校都严格执行“双减”政策。学生课堂作业每科每天不超过10分钟，所有学科课后作业每天不超过90分钟。每天要登记作业量，并统计各科时间总和是否在规定分钟以内。而这些登记的表格确是应付检查。实际上很多学校目前都没有一套具体的“双减”政策的方案，都在尝试中，其实也都是在维持原来的模式。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-除了学校要实行“双减”政策，同时教育部对各学校还有“双减”和“课后服务”工作的落实进行检测，家长需要填写“义务教育学生家长调查问卷”。为了完美填写这一份调查问卷，学校的对策是：又让老师们冒充家长填写调查问卷。因调查问卷没有实名制，不同设备、不同浏览器都可以填写问卷。所以分到教师头上，每位老师至少要完成几次填写，而且填写的内容都是已做好的标准答案。然后又是同样的配方：辛苦大家克服困难，完成之后给予少量补助。
-
-中共的假，在学校教育中也体现得淋漓尽致。
-
-参考来源：
-
-[中共教育“双减”开始实施，包藏窝心](https://gnews.org/zh-hans/1499246/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9%E6%9C%88-1.jpg)
-
-编辑/审核/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

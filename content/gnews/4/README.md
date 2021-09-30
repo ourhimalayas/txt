@@ -2,45 +2,18 @@
 ---
 
 
-## 昆士兰警察代表律师表示：疫苗授权具有“歧视性”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563792/)
+## 完全接种疫苗的密歇根州夫妇在几分钟内相继因中共病毒过世
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1563824/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/09/r0_0_800_600_w1200_h678_fmax.jpg)
-图片来源：northernbeachesreview.com.au
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-142.jpg)图片来源：网络截图
+据零对冲网站9月29日报道，密西根州的大急流城居民Cal Dunham，59岁，和他的妻子Linda，66岁，在周一与中共病毒短暂斗争后去世。虽然两人以前都有健康问题，但都已全面接种疫苗。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+据当地一家电视台报道，他们在一次家庭露营中开始感到不适，随着这对夫妇病情的发展，露营被缩短了。他们的病情在几天内恶化，最后靠呼吸机维持生命。他们在周一脱离生命支持系统后去世，允许他们手拉手一起去世。
 
-近50名昆士兰警察局员工的代表律师致函警察局长卡塔琳娜·卡罗尔（Katarina Carroll），称疫苗授权具有歧视性。
+“他们所做的一切都是正确的，他们所做的一切都是按照协议应该做的。”这是密歇根州一对夫妇的女儿所说的话，这对夫妇在充分接种疫苗的情况下还是被感染了。
 
-另外，一部分警察局员工今天在布里斯班最高法院申请一项命令，以取消该指示并阻止其执行。
+官方的疾病预防控制中心坚持认为，疫苗在防止死亡方面几乎是100%有效的，但是随着时间的推移，接种疫苗的美国人感染中共病毒的例子越来越多，无论是德尔塔病毒还是其他病毒株。
 
-早前，卡塔琳娜·卡罗尔指示文职人员和警察在10月4日之前至少接种一剂疫苗，并在明年1月24日之前接种第二剂，否则将面临停职或解雇。
-
-本月初，一部分昆士兰警察及其家人设立了一个众筹页面，为任何针对强制接种疫苗的法律挑战而筹集资金。
-
-该团体于9月29日开始了针对昆士兰警察局有关任务的劳资纠纷程序。
-
-美国广播公司新闻获得了代表律师托马斯·艾伦（Thomas Allan）周三发给卡罗尔的一封信。
-
-信中指出“该团体成员反对疫苗授权指令，以及因未能遵守该指令而导致的就业条件可能发生的变化”，理由是在颁布该指令之前没有征询他们的意见。
-
-“……如果因不遵守该指令，而对其就业条件的预期作出改变，是具有歧视性的，”
-
-信中说，如果卡罗尔没有回应，该团体的每个成员都将启动“争议程序”。
-
-此前，卡罗尔已指示文职人员和警察在 10 月 4 日之前至少注射一次疫苗，并在明年 1 月 24 日之前注射第二剂，任何未能在截止日期前完成的工作人员将被停薪一周。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Vaccine mandate ‘discriminatory’ and ‘breaches awards’, Queensland police officers’ lawyer says – ABC News](https://www.abc.net.au/news/2021-09-30/covid-qld-vaccine-mandate-police-industrial-action/100502484)
-
-***编辑：小红帽******/******文泓*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Michigan Couple Dies Of COVID Within Minutes Of Each Other Despite Being Fully Vaccinated](https://www.zerohedge.com/covid-19/michigan-couple-dies-covid-within-minutes-each-other-despite-being-fully-vaccinated)

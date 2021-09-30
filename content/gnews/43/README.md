@@ -2,21 +2,27 @@
 ---
 
 
-## 金正恩称将于10月重启韩朝联络渠道
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1562984/)
+## 维加诺大主教称强制接种新冠疫苗为反人类罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562993/)
 
-韩国天池农场
-翻译：鱼子酱CAVIAR
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/09/金正恩封.jpeg)
-据朝鲜中央通讯9月30日报道，朝鲜国务委员会委员长金正恩29日出席第14届最高人民会议第五次会议第二天会议，发表了讲话并提出将于10月重启韩朝通信联络渠道。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/MOS_LOGO_publish-22.png)
 
-金正恩称，朝鲜全民族希望朝韩关系尽早改善，和平在半岛扎根，为此朝方将于10月初重启韩朝通信联络渠道。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GTV-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
-朝鲜于9月28日上午发射短程导弹一事，韩国文在寅总统指示要综合、周密地分析北韩最近的谈话和导弹发射情况，制定应对方案。
+视频参看：2021.09.29早GTV新闻访谈
 
-金正恩前天发射了短程导弹，今天就发表关于韩朝关系早日改善的讲话。对于终战宣言，他指出在宣布终战之前，有关各方应相互尊重，摈弃偏见和有失公正的双重态度，取消敌对政策。
+[https://gtv.org/broadcast/watch/61545bff42a8af3151a74752](https://gtv.org/broadcast/watch/61545bff42a8af3151a74752)
 
-他又指出，从美国拜登政府执政8个月以来的表现可知，美方对朝军事威胁和敌对政策毫无变化，反而变本加厉。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-[新闻来源](https://mn.kbs.co.kr/mobile/news/view.do?ncd=5290215)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Ye_LOGO_YueLiPai-5.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

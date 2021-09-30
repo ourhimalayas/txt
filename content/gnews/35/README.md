@@ -2,45 +2,45 @@
 ---
 
 
-## 4,200 名医生和科学家签署了早期治疗新冠肺炎的声明，以阻止政府干预
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1563363/)
+## 台湾正在修订法律以防止中共窃取半导体技术
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1563379/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/DSC_1542.jpg)
-**摘要翻译：**
+作者：纽约香草山农场 – 四季
 
-([LifeSiteNews](https://www.lifesitenews.com/))—本月早些时候，罗伯特·马龙(Robert Malone)博士领导的一个团队撰写了一份医生和医学科学家的声明，马龙(Malone)博士是“信使核糖核酸(mRNA)”技术的主要发明人，也是对当下官方应对新冠肺炎措施的坚定反对者。这篇声明捍卫了医生利用早期治疗的最佳知识来治疗新冠病人的权利，同时反对政府机构对医生治疗新冠病人的强力干预。现已获得了其他4,200名医生和医学科学家的签名。
-
-LifeSite报道称，为了撰写这样的声明，马龙博士最初在波多黎各会见了一些医生。这些医生中的许多人都因其在这场新冠病毒危机中支持真相和反对政府及媒体不断操纵的勇敢立场而闻名。
-
-随后，马龙博士于2021年9月12日至14日在罗马举行的国际新冠肺炎峰会上向会众宣读了这份声明。峰会与会者也通过了该文本，因此其名称为“罗马宣言”。
-
-罗马国际新冠肺炎峰会专注于新冠肺炎的早期治疗方案问题，其中一些方案包括伊维菌素和羟氯喹。
-
-《罗马宣言》批评政府过度干预医生们对新冠患者的治疗方法。“正如我们所知，医学界正处于十字路口，”宣言写道。“我们照顾病人的能力遭到了前所未有的蓄意攻击。医生以及所有医疗保健提供者必须拥有实践医疗技术和科学的自由，而不必担心报复、审查、诽谤和纪律处分，包括可能失去执照和医院特权、失去保险合同和遭到政府机构与组织的干预——所有这些都进一步阻止了我们照顾有需要的患者。”
-
-此外，《罗马宣言》指出，世界上精通生物医学研究的科学家应该“坚持他们开展和发表客观、实证研究的能力，而不必担心他们的职业、声誉和生计受到报复”。
-
-“宣言的目标是重新获得医学界在战胜这场大流行病方面的领导作用。”
-
-**简评：**
-
-到维基百科上搜索罗伯特·马龙(Robert Malone)博士，可以看到这句很刺眼的评论“他因误导有关COVID-19疫苗安全性和有效性的信息而受到批评。”越来越多的实证表明，疫苗的安全性和有效性是绝对存在问题的，所以很显然，对马龙博士所谓的“批评”都是利益集团阻止人们获得真相，混淆视听的谎言。
-
-爆料革命的战友早在中共病毒爆发之初就知道，新冠病毒是中共政府与世界黑暗力量联合研制的生物武器，如今强推的新冠病毒疫苗更是这些黑暗力量残害全世界人民的工具。令人欣慰的是，世界上仍然有这么多医学界的专家与我们爆料革命战友并肩战斗，并利用其专业和影响力，推出了《罗马宣言》这样重要的医学声明。
-
-希望全世界的正义力量早日集合，唤醒沉默的大多数，共同应对这场由CCP发起的全球病毒战争，消灭以中共独裁政权为首的全球邪恶力量。
-
-[新闻链接](https://www.lifesitenews.com/blogs/4200-physicians-sign-declaration-for-early-treatment-of-covid-19-against-govt-intrusion/)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评：Harvey (叶知秋) |校对：感恩*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[OAN](https://www.oann.com/taiwan-proposes-tightening-law-to-prevent-china-stealing-technology/)网站援引路透社9月29日报道，台湾政府周三提议收紧一项法律，以防止中共国窃取半导体关键技术。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1091-1-2021-09-29T093644Z_1_LYNXMPEH8S0HY_RTROPTP_0_CHINA-TAIWAN-FRUIT_1.jpg)2021年6月30日，台湾桃园，一面台湾国旗迎风飘扬。 (REUTERS/Ann Wang/File Photo)
+
+台湾的大陆事务委员会说，它正在提议修订一项有关中共国关系的现行法律，要求获得政府资金用于某些技术的人在前往中共国之前必须获得许可。
+
+台湾拥有蓬勃发展和世界领先的半导体产业，其半导体技术广泛用于各个领域，从战斗机到汽车，无所不包。台湾政府长期以来一直担心中共国试图通过工业间谍活动、“挖走”人才和其他方法来复制这一成功。
+
+台湾政府高级官员表示，此次修订是为了保护该岛的先进芯片制造技术，业内专家称该“国家技术”领先于中共国的几代。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

@@ -2,29 +2,41 @@
 ---
 
 
-## 2021年9月6日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563654/)
+## 实名注册国家反诈骗中心app是一项政治任务
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1563693/)
 
-盖特连接：[https://gettr.com/post/pa940d7527](https://gettr.com/post/pa940d7527)
+作者：香草山农场写作组- 静水流深
 
-9月6号：尊敬的战友们好，你们传播CC P病毒疫苗的解药了吗？你们健身了吗？一切都已经开始！
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-战友们，这个（指健腹轮）推到头的时候它会自动地卡住，不是你想往前就往前的，啊，累死我了！所以这个是限制量的，只有慢慢地，才能推得更远一些。这个我每天做八组，每一组二十四个，耶~哦哈姆那姆Gi娜斯嘎呀（蒙古语，马背英雄的歌词，意为打倒共产党）！共产党你完啦！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-编辑整理及发布：黎明之前
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+继每位家长都要下载安装反诈骗APP之后，学校里也要求老师们注册国家反诈骗中心APP。学校领导反复强调这是一项政治任务。这项任务的分配，教育系统要完成实名注册任务X万，官方政务号关注任务X万，分配到各学校X个。每次遇到这样的任务时，总说要大家克服困难。这次同样的辛苦大家克服困难，同时还要求每位老师积极发动亲朋好友，完成X个号码注册，并于规定时间内填好任务表和注册统计表。有些学校对克服此次困难圆满完成任务的老师给予少量补助。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+每次开例会，学校领导总要强调一句：每位老师要做好正确政治站位。这是不是说明了学校里面也是政治第一，学习其次呢？在中共的统治下，中华大地没有一片净土，一切都是为政治服务，为中共政权服务，为中共统治服务。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+参考链接：
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[【灭共有我】中共把我们的孩子当成绑票](https://gnews.org/zh-hans/1034256/)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+（本文仅代表作者观点）
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9%E6%9C%88-1.jpg)
+
+编辑/审核/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
