@@ -2,39 +2,26 @@
 ---
 
 
-## 湖南电价上涨将于10月开始实行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564855/)
+## 人生无常，又无勇气和担当
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1564929/)
 
-作者：香草山教育部-Yousei
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
+撰稿、插图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-464.png)
+天下大事，纷纷扰扰，好不精彩。
 
+各位看官，有道是“会看的看门道，不会看的看热闹”，同一朵花，蜂吸蜜，蛇吸毒。同一件事，仁者见仁智者见智。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/湖南电价上涨于10月开始实行.jpg)
+而如今，强制接种疫苗这件事，在全世界闹得人心惶惶。这有点荒唐，更有点不可理喻。越来越多的人逐渐醒来，然而仍有无数不明真相之人执迷不悟。尤其在中共国更是绝大多数，呜呼哀哉！
 
-9月26日，一份湖南省发改委印发的《关于完善我省燃煤发电交易价格机制的通知》在网络引发关注。据该通知显示，在确定电力市场交易基准价格的基础上，引入燃煤电企购煤价格作参数，联动调整电价上限，并将于10月开始实施。据了解，除湖南外，全国已有多个省份也出台了电价改革方案。
+人生无常，常在变中。时至当下，人心不古，愚弄欺骗，成为本事，甚至成为某些人的信条。常使被骗者倾家荡产，乃至死亡，而无任何愧意。苹果尚能烂，仁心怎能永恒？
 
-近期，北京出示的一份计划于国庆期间停电的公告，引发网友热议。面对市民的恐慌和质疑，中共电网官方发表紧急声明，极力解释掩饰真相。
+只有根据社会大环境随时应景地解读时政方能得其要，一窥一斑。愚者听其言，挶于其表而常使其受惑；智者观其行巡其理而定夺是非真假，故常能先知先觉。
 
-郭先生在直播中爆料，此次全国大范围的停电、限电，实际上是新一波的党内斗争。而中共向来都是牺牲老百姓的利益甚至生命，打倒对手，赢得政治资本。
+强制接种疫苗这件事又哪能如此简单和单纯。疫苗到底管不管用，强制接种到底合不合法？其实问题也不难，只要多渠道地获取信息而不是偏听偏信，尤其是中共一家之言，答案其实很明确。怕只怕慑于恐惧和官威，又无勇气和胆量，懦弱屈服又自欺欺人地选择偏信恶魔的谎言，为实害人不浅！
 
-（文章仅代表作者个人观点）
+人生无常，无常在演双簧，小鬼在人间，常勾无命人！！！
 
-参考链接：
-
-[https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom](https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom) [https://m.yicai.com/news/101186815.html](https://m.yicai.com/news/101186815.html) [https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html](https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html)
-
-编辑/校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

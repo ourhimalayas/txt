@@ -2,25 +2,36 @@
 ---
 
 
-## 韩国政府对伪造冒用预防接种凭证行为可判刑
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1564534/)
+## 中共接管香港电台，颁布“凌驾性原则”结束新闻自由
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564576/)
 
-韩国首尔天池农场—–追着曙光跑
+栏目记者/责任编辑：云豹
 
-韩联社首尔9月30日电 韩国新冠疫苗预防接种推进团（下称推进团）30日表示，对于伪造预防接种凭证或冒名使用凭证的行为，将根据《刑法》相关规定予以处罚。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-据推进团消息，为了不受私人聚会限制使用假冒预防接种证书，将被处以最长10年的有期徒刑。以认证为目的冒用他人证书，将被处以2年以下有期徒刑或500万韩元（约合人民币2.73万元）以下罚金。
+9月29日，官方香港电台对员工发布《香港电台编辑政策及流程》文件，以一国两制为名，行中共新闻管控之实。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（2、3）.001.jpeg)
+文件以13项编辑政策破坏新闻自由、泯灭媒体人良知。文件中指示，香港电台的节目不得提供平台从事鼓励、煽动、宣扬、美化具有认同或同情所谓危害国家安全的行为或活动；也不得报导包含任何所谓不利于国家安全的内容。 显然是针对香港反送中运动以来的媒体报导。
 
-公众聚集设施的管理、运营人员若不确认预防接种凭证，允许超过私人聚会限制范围的人员出入，将被处以300万韩元以下罚金。
+文件还规定了中共新闻审查制度，列出了在制作中必须事先上报的一些内容事项。该文件的发布标志着香港的新闻自由已彻底结束。
+(本文仅代表作者观点)
 
-政府根据《传染病预防法》对完成疫苗接种者可出具预防接种凭证。政府公认的凭证有纸质、电子、预防接种贴纸共三种。
+参考链接：
 
-点评：韩国因中秋长假人员相聚导致疫情变得严重，而政府还是大力推行疫苗的注射，以此来阻断中共病毒的传播。但是所起到的效果甚微，疫苗的副作用的相关报道也是不能出现在公众面前。公民并不知道疫苗的副作用给人的身体带来的危害远远大于病毒。
+1. [香港電台新約章：維護憲制秩序一國兩制凌駕一切](https://www.cna.com.tw/news/acn/202109290335.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2. [港台編輯政策列明維護憲制秩序和一國兩制屬凌駕性原則](https://news.rthk.hk/rthk/ch/component/k2/1612822-20210929.htm)
 
-现在韩国政府对进入公众场所的人员采取疫苗护照措施，对使用假冒预防接种书进行私人聚会的行为，使用法律法规进行惩罚。公民知道伪造文件是要受到法律制裁，但是为了不打疫苗而冒险去伪造疫苗证书来参加私人聚会，可见公民还是知道不能打疫苗。
 
-在爆料革命爆创始人郭文贵先生爆出疫苗真相的时候，全球那么多国家和地区的公民上街反对强制接种疫苗的事件越来越多，政府是不是应该要认真对待注射疫苗。政府应该本着为公民生命的负责态度，收集世界各国和地区注射疫苗后的反应病例，而不是纯粹为了控制住病毒而强行注射疫苗。政府要求疫苗护照才能进入公众场所本事就是一种威胁，是一种违法行为。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-[新闻来源](https://cn.yna.co.kr/view/ACK20210930004000881)
+终审：FoxRina
+校正/发稿：我不在这里
 
-（本文仅代表作者观点）
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

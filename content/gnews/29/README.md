@@ -2,9 +2,12 @@
 ---
 
 
-## 9/26郭文贵直播：十一后欧美国等发达国家将停止强制注射疫苗（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1564669/)
+## NBA球星乔纳森·犹大·艾萨克谈为啥不接种疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564702/)
 
-9/26/2021 郭文贵直播：10月1日后大家会逐渐看到，欧洲、加拿大、美国、日本、新加坡、澳大利亚、新西兰等国将停止强制注射疫苗，并将开放使用伊维菌素、青蒿素、地塞米松、羟氯喹等药物治疗；战友们的不懈努力让各大药厂的老板们意识到继续推疫苗将导致其破产。
+- 制作：meiping
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+素材/翻译：JIHO；发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

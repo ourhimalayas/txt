@@ -2,43 +2,34 @@
 ---
 
 
-## 印尼930排华事件五十六周年，新中国联邦不会让历史重演！
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564672/)
+## 特鲁多推进强制联邦公务员的COVID-19疫苗接种任务
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1564758/)
 
-栏目记者/责任编辑：雪梨
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/09/MW-GK164_trudea_ZG_20180531185358.jpg)图片来源：Market Watch
+根据《CTV 新闻》9月28日报道，加拿大总理特鲁多正在重申其选举前的承诺，即强制联邦公务员接种COVID-19疫苗。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我们将确保联邦公务员接种疫苗”，特鲁多星期二在渥太华的一个COVID-19疫苗接种诊所讲话时说，“对任何为联邦政府工作的人都有明确的疫苗接种要求。”
 
-今天是印尼930排华惨案的纪念日，时至今日这一事件在印尼仍是敏感话题。
+联邦政府在8月宣布，打算让所有联邦公共服务工作人员和加拿大武装部队成员强制接种COVID-19疫苗。联邦公共服务部门在渥太华拥有最多雇员。
 
-1945年印尼宣布独立，首任总统苏加诺倾向于苏俄和中共统领的社会主义阵营。在中共的扶持下，1965年，印尼共产党已发展成仅次于苏共和中共的世界第三大共产党。同年9月30日，时任陆军少将苏哈托（Suharto）发动政变推翻苏加诺政权。为清除印尼共产主义势力，苏哈托随后策动了反共大屠杀，多达50万华人惨遭杀害。史称“九三零事件”。邪恶的中共竟认为这次排华事件对中共有利，因为排华屠杀导致大量华侨回国，使中共国外汇短时间增加数倍!
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM-8、9、11.003.jpeg)
-不仅中共视而不见，对于这一人间惨剧，国际社会同样一片沉默 ，默许等同于纵容。更讽刺的是, 虽然众多香港华侨在此事件中惨遭杀害，但香港富商随后仍持续投资苏哈托家族产业。1998年金融危机袭来，苏哈托政府为转移金融危机压力，缓和国内的民怨，策划煽动“黑色五月暴动事件”，华人再次成为泄愤群体，仅在首都雅加达，就有近1200名华人被屠杀!
+加拿大财政委员会秘书处在8月13日的一份新闻稿中说：”对于那些无法接种疫苗的少数人，可以根据不同情况决定采取通融或替代措施，如测试和筛查，通过减少COVID-19的风险来保护更广泛的公众健康“。
 
-近20多年来中共始终没有间断在向世界输出共产主义，一带一路、蓝金黄、恶意投资殖民、破坏生态环境和人文秩序、也许在澳洲、美国，也许是印度和日本，都很可能会再度发生印尼式排华悲剧和人道灾难！
+迄今为止，还没有提供接受COVID-19疫苗的公务员人数的数据，但在当地，渥太华公共卫生部门说，18岁以上的成年人中有83%已经接受了两剂COVID-19疫苗，被认为是完全接种。
 
-反观中共国内，文化大革命、八九六四、西藏事件、新疆集中营、香港事件，无数事实证明，全世界“最排华的是中共”，而没有中共也就不会有”排华”。只有彻底消灭中共，才能从根本上维护华人的权益，保障华人的安全，这正是我们爆料革命在推进的使命 。与此同时,我们新中国联邦也郑重声明，印尼苏哈托及其家族曾对华人犯下的惨绝人寰暴行，未来一定会通过不同法律途径，对责任人进行应有的追责和惩罚，以告慰同胞冤魂 !
-(本文仅代表作者观点)
+财政局的一位发言人在周三的一份声明中说，推测公务员的疫苗接种率与普通公众相同。”我们知道，加拿大80%符合条件的人已经完全接种了疫苗，超过85%的人已经接种了第一针。虽然我们还没有关于公务员疫苗接种率的准确数字，但我们有理由相信公务员的疫苗接种率与加拿大普通民众相同“ 。
 
-参考链接：
+拒绝接种疫苗的联邦工作人员的情况仍不清楚。特鲁多告诉记者，公共服务部门继续致力于其强制性疫苗接种计划，他承诺在未来几周提供更多细节。
 
-1. [2021年9月29日 文贵大直播](https://gtv.org/video/id=615466c142a8af3151a74ee3)
-2. [九三〇事件](https://zh.wikipedia.org/wiki/九三〇事件)
-3. [黑色五月暴动](https://zh.wikipedia.org/wiki/黑色五月暴动)
-4. [印尼讨论50年前的屠杀 反华仍是敏感话题](https://www.bbc.com/zhongwen/simp/world/2016/04/160418_indonesia_1965_sukharto_chinese)
-5. [印尼总统大选：历史上的反华、排华事件](https://www.bbc.com/zhongwen/simp/chinese-news-47946596)
+特鲁多说：”大家都知道，度过这场大流行的方法是确保尽可能多的人接种疫苗”。
 
+卫生部长哈伊杜Patty Hajdu周二在CTV新闻频道的Power Play节目中说，围绕未接种疫苗的员工的后果的讨论仍在进行。”这些是目前正在与联邦公共服务部门和工会进行的对话。总的来说，人们明白我们需要在公共场所，特别是工作场所相互保护”。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+在疫苗灾难逐渐显现和疫苗阴谋被郭文贵先生及正义力量揭穿的情况下，特鲁多应该停止强制疫苗，看他后续如何表演下去，我们继续关注。
 
-终审：文龙
-校正/发稿：我不在这里
+原文链接：
+[https://ottawa.ctvnews.ca/trudeau-moving-ahead-with-covid-19-vaccine-mandate-for-federal-public-servants-1.5603911](https://ottawa.ctvnews.ca/trudeau-moving-ahead-with-covid-19-vaccine-mandate-for-federal-public-servants-1.5603911)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+* * *
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发稿 Spirit

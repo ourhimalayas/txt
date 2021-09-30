@@ -2,48 +2,38 @@
 ---
 
 
-## 孟晚舟回国，算啥？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564878/)
+## 英美开始采用地塞米松和伊维菌素治疗新冠病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564997/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/211.png)
-9月25日晚，孟晚舟在结束被加拿大方面近3年的拘押后，乘坐中共国政府包机抵达深圳宝安国际机场。对此，中共借此大肆炒作洗脑运动，尽情收割韭菜们的智商税，而关于孟晚舟事件的真相却讳莫如深。
+栏目记者：禹水沃土
+责任编辑：文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
+英格兰国家医疗服务体系NHS已开始与政府的抗病毒工作组合作，研究和推出在社区中使用地塞米松等口服药物以治疗新冠病毒。首席制药官 Keith Ridge 担任口服抗病毒药物计划高级负责人。在英国和海外抗病毒治疗临床试验的数据中，地塞米松等药物在缩短新冠病毒对人体影响时间、和防止重症方面显示出可喜的结果。
 
-一，**孟晚舟回国是无罪释放？**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-36.jpeg)
 
-对于孟晚舟的案件，我们查询一下美国司法部的新闻（[https://www.justice.gov/opa/pr/huawei-cfo-wanzhou-meng-admits-misleading-global-financial-institution](https://www.justice.gov/opa/pr/huawei-cfo-wanzhou-meng-admits-misleading-global-financial-institution)）了解到：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-459.png)
-简单来说她已经认罪，并且在案件审理中故意虚假陈述。
+牛津大学的PRINCIPLE试验一直在研究新冠病毒感染的可能疗法，早在6月就确认伊维菌素可以加速康复、减少症状的严重性，避免患者入院治疗。英国卫生署旗下健康与临床优化研究所N.I.C.E近期也发布多篇资料支持以上结论。
 
-孟晚舟DPA-延期起诉原文: [https://www.justice.gov/opa/press-release/file/1436211/download](https://www.justice.gov/opa/press-release/file/1436211/download))
-延期起诉协议（Deferred Prosecution Agreement，简称：DPA）指的是一种近似“不起诉协议（Non-Prosecution Agreement / NPA）”的自愿替代裁决，以被告同意满足某些条件来换取检察官的赦免。例如，企业欺诈就可以通过延期起诉协议来解决；被告同意支付赔款，实施公司改革并全面配合调查。一旦规定的要求获得满足，那相应的指控就将撤回。
+8月份，大卫战友在感染新冠病毒重症期间，血氧严重偏低，出现心脏间歇性骤停，在服用了郭文贵先生提供的地塞米松，和战友提供的伊维菌素后，逐渐转危为安。
 
-与此同时，此前被中共国拘留的康明凯(Michael Kovrig)和迈克尔·斯帕弗(Michael Spavor)被释放。
+美国南卡罗来纳州斯巴达堡将招募新冠病毒感染者，使用伊维菌素进行临床实验。爆料革命和郭文贵先生向全世界推荐的药物正在拯救人类。
 
-孟晚舟能回国不是无罪释放，是中美加之间博弈后的结果。
+（本文仅代表作者观点）
 
-二，**孟为什么可以乘坐中国政府的包机？**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-460.png)
-孟晚舟的是华为公司副董事长兼首席财务官。按所谓的公开资料显示（华为股权[https://www.huawei.com/minisite/who-runs-huawei/cn/](https://www.huawei.com/minisite/who-runs-huawei/cn/) ），华为是100%的民营企业。作为一名私营企业工作人员，孟晚舟为什么可以乘坐中共国政府包的专机回国？她有什么特殊身份？孟在机场收到热烈欢迎，这和之前重庆警方包机押解150名网络诈骗嫌疑人回国形成强大反差（[https://www.thepaper.cn/newsDetail\_forward\_4275026](https://www.thepaper.cn/newsDetail_forward_4275026)），同样是罪犯，她却享受了国家英雄待遇。
+参考链接：[NHS prepares for antiviral deployment to treat COVID-19](https://pharmaceutical-journal.com/article/news/nhs-prepares-for-antiviral-deployment-to-treat-covid-19)
+[Clinical trial testing Ivermectin, two other drugs against COVID open for signups](https://www.wfxrtv.com/news/health/coronavirus/clinical-trial-testing-ivermectin-two-other-drugs-against-covid-open-for-signups/)
+[铁血大卫对决CCP病毒 化险为夷的来龙去脉](https://gnews.org/zh-hans/1517319/)
+[Ivermectin to be investigated as a possible treatment for COVID-19 in Oxford’s PRINCIPLE trial](https://www.ox.ac.uk/news/2021-06-23-ivermectin-be-investigated-possible-treatment-covid-19-oxford-s-principle-trial)
 
-如果按“英雄”的贡献论，牺牲在朝鲜的志愿军烈士理应获得最高礼遇，我很想知道孟晚舟为国家做了哪些贡献？
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-461.png)（图片来源：[http://www.news.cn/politics/2021-09/02/c\_1127820565.htm](http://www.news.cn/politics/2021-09/02/c_1127820565.htm)）
-三，**接机标准堪比国家领导人**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-从孟晚舟到达深圳机场的现场视频（视频链接：[https://www.youtube.com/watch?v=eaNU6oSS91o](https://www.youtube.com/watch?v=eaNU6oSS91o)）可以看到，她享受的礼遇堪比国家领导人，出机舱特写，红地毯，拉横幅，挥国旗，现场直播……
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-462.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/image-463.png)
-然而，荒诞的是，我大中华举全国之力，包机从加拿大接回来一个罪犯。央媒和一些主流媒体不遗余力的大力宣传，全程直播，硬生生的把一个笑话包装成了王者归来，英雄归来。更可悲的是，还有很多人因孟回国之事而高潮。如果有人生活确实枯燥无味，确实需要类似战狼外交，虽远必诛，痛打西方世界的故事来娱乐和高潮。我建议花点时间了解下真实的孟晚舟。
+终审：暗黑
+校对/发稿：谐趣园
 
-**如果孟没有罪，为什么虚假陈述？**
-
-为了获得保释，孟晚舟向加拿大当地法院抵押了近1000万加元的财产，近5000万人民币。如果她是一名中国居民，按每年5万美金的个人额度，她需要近200年才能合法将此笔巨款汇到加拿大？如果她不只拿中国护照，还持有其它6本不同国家护照，那她的祖国到底是哪个？
-
-全国人民如此支持孟晚舟，不知道她是否会给广大网友抽个奖，所有华为手机打个折，微信群里发个大红包？这样既可体现她的情操和情怀，也不枉韭菜们的热情、热血、热泪……别做梦了，她回中国，与你，与我一点关系没有，啥也不是！
-
-【文章观点仅代表作者个人，与gnews平台无关】
-
-作者：洛杉矶盘古农场 — 文如
-编审：洛杉矶盘古农场 — 心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

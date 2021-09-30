@@ -2,32 +2,20 @@
 ---
 
 
-## 澳大利亚企业反抗政府严厉的封锁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564953/)
+## 限电停电已影响世界产业链供应链！李克强亲自安抚28国使节
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1565149/)
 
-栏目记者/责任编辑：DM
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-466.png)
-零对冲昨日报导，澳洲许多大公司的领导人，包括BHP、麦格理和澳洲航空的澳大利亚商业委员会签署了一封公开信，要求政府考虑经济和民意，解除过于严厉的封锁政策，像其他国家一样开放边境。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/09/093022.jpg)[图片来源](https://gnews.org/wp-admin/post-new.php)
+中共央视9月30日讯，中共国李克强总理30日下午在人民大会堂会见28国新任驻华使节时表示，中共将维护产业链供应链稳定，保证能源电力供应，保障基本民生，确保经济运行在合理区间。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-31.jpeg)
+李克强还表示，中共将进一步深化改革，推动高水平对外开放，打造市场化法治化国际化营商环境，坚持对内外资企业一视同仁，促进公平竞争，欢迎各国企业来华投资。
 
-签署该公开信的公司雇佣了近100万澳大利亚人，澳洲的大小企业均在政府的疫情政策中苦苦挣扎，签署者之一，墨尔本基金管理公司乐筹金融的首席执行官格雷格·奥尼尔表示：现在是拿出勇气和诚实的时候了。
+按照中共的宣传策略，解读李克强讲话，说明中共宏观政策已经不具有连续性稳定性。当前，中共国能源电力出现严重问题，已不能保证连续供应，所以才会拉闸限电。由此，导致基本民生已经失去保障，经济运行基本上铁定是负增长，所谓改革开放已经进行不下去。中共2000年加入WTO所承诺的市场化、法制化，在营上环境上对内外资企业一视同仁，最后不但无一兑现，反而是倒行逆施，极速左转，外资企业被迫用脚投票，不计成本撤离中共国。中共在国际国内都已经陷入塔西陀陷阱，等待他的将是经济崩溃，房倒屋塌。
 
-从封锁到疫苗，澳州政府在疫情诸多政策上的专政表现，已经引起了澳洲民众不满与反抗，此番澳洲大企业的联合发声，为澳洲抗争带来了希望。
+信息来源：[李克强会见28国新任驻华使节 强调中国的发展始终在改革中推进、在开放中前行](https://www.fmprc.gov.cn/web/zyxw/t1911799.shtml)
 
-（本文仅代表作者观点）
-
-参考链接：[Australia’s Corporations Rebel Against Government’s Draconian COVID Lockdowns](https://twitter.com/zerohedge/status/1443390250844295169?s=21)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：FoxRina
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
