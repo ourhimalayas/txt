@@ -2,31 +2,45 @@
 ---
 
 
-## 爱国生意做昏了头 北京当局喝令刹车
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1564147/)
+## 联邦法官裁决：可以向教师要求强制疫苗接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564175/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16329859101.png)
-中共国最近大面积电荒，爱国网红称这是在为掌握通胀大权下一步大棋。爱国还爱到了“中日边境“，让北京当局也难堪。共青团中央9月30日发文批评“有人把爱国做成了生意”，为了博眼球，带节奏，用反智论刺激社会情绪。爱国网红们丢掉了常识。
-
-最近围绕孟晚舟回国，全国多地大规模停电、限电，网红们掀起种种爱国浪潮。网红经济学家叶檀则为“拉闸限电”掩饰：1，倒逼原材料成本，以免失控；2，争夺通胀话语权；3，逼迫国内产业升级，与人民币汇率升值同理。动力煤价太高了。
-
-有网民评论，国外凡是停电都是事故，大面积停电都是灾难。中共国停电是绿色低碳生活，大面积停电是党中央的一盘大棋，是争夺中共国定价权，掌握通胀的主动权，反击美元霸权，引起美国通胀、加息，直到美股崩盘，导致美国经济崩塌，中共国经济就伟大了。如果是这样，那真的是在下一盘很大的棋。然而精神胜利法并不能解决实际问题，限电、停电还在继续，严重影响民生。
-
-拍马屁拍到了马蹄子上，不留神挨了党妈一蹄子。“爱国”爱到脑子发烧，“爱国”爱到没人性的网红们，睁开眼睛看一看，动动猪脑子想一想，北方进入冬季，如果继续限电、停电，会有多少民众会被冻伤，甚至冻死？全国限电，中南坑会不会限电？盗国贼海外的私生子女们会不会回来跟老百姓一起挨冻受饿？网红们，别忘了，下一个有可能被冻死的就是你。
-
-新闻参考链接：[https://www.rfi.fr/cn/中国/20210929-爱国生意做昏了头-北京当局喝令刹车](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20210929-%25E7%2588%25B1%25E5%259B%25BD%25E7%2594%259F%25E6%2584%258F%25E5%2581%259A%25E6%2598%258F%25E4%25BA%2586%25E5%25A4%25B4-%25E5%258C%2597%25E4%25BA%25AC%25E5%25BD%2593%25E5%25B1%2580%25E5%2596%259D%25E4%25BB%25A4%25E5%2588%25B9%25E8%25BD%25A6)
-
-编辑：胖丁
-
-PR：穆清
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+栏目记者/责任编辑：圣母院钟声
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+据9月28日美联社纽约报道：纽约市曼哈顿第二巡回上诉法院的三名法官小组，在当天晚些时候发布了一项简短命令：支持原市长比尔·德·布拉西奥（Bill de Blasio）对美国最大的纽约学区，约14万8千名教职员工实施强制疫苗接种的紧急授权。未能接种疫苗的教职员工，从10月5星期二开始，将无法工作。截至周一，教育部87%的员工已经接种了疫苗，其中包括90%的教师。教师们的上诉律师说，他们将要求美国最高法院进行干预。并声称“纽约市政府会后悔它的决定，因为上万教师没有接种疫苗，我们的孩子将没有老师，学校将失去安全性。同时对被停薪留职的教师造成无可挽回的伤害。”
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Capture-8.jpg)
+一年之内超高速研制出的疫苗有多久的安全数据和有效性研究？这场疫苗接种已经暴露出来海量严重问题。65岁以下人群死于或伤残于疫苗接种的人数已超过新冠病毒感染而死亡的人数。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1-144.jpg)
+参考链接：
+[Federal judges: NYC can impose vaccine mandate on teachers](https://apnews.com/article/coronavirus-pandemic-health-new-york-courts-education-e9222c7325afcf60d6a4ac0db7d408d1)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

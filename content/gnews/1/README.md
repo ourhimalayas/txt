@@ -2,55 +2,112 @@
 ---
 
 
-## 有声|[金融园]黄金和白银的五种不同特性，更好分散投资
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564513/)
+## 孟晚舟回国引发美内部反弹，对爆料革命及其有利
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564548/)
 
-配音：纽约香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/09/5a0fcb79dd98110210f5a374c015ea23.jpg)https://gtv.org/video/id=61555f54d2e2b817486f92de
+郭文贵
+Miles Guo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+华为的灾难和未来的科技，一切糟糕的事情就是从那一天回来的时候刚开始
+Huawei’s disaster and future technology, all bad things just started when she came back from that day
 
+而且最后我要告诉大家的事情，它对我们爆料革命灭共的事业是巨大的帮助
+And in the end I want to tell you, it’s great help for our whistleblower movement to take down the CCP mission
 
+巨大的帮助， 为什么，从她一回去基本上美国的极右派
+Great help, why? Since she returned that basically the extreme right in the U.S.
 
-摩根士丹利的经济学家在最新出炉的大宗商品报告中对黄金和白银市场进行了差异分析。他们称许多投资者正在寻找方法以应对疫情及疫情之后所有的不确定性。其中一些人的解决方案包括投资贵金属，如黄金和白银。
+我今天跟你说的极右派
+The extreme right I told you about today
 
-报告将这些观点分成5个关键部分
+还有当时搞华为这个事情，搞华为的是谁呢，是吧？
+There was also the issue to against Huawei at that time, who was it against Huawei, right?
 
-1. 白银与全球经济的关系更加密切
+第一个是美国的绝对的科技保守派
+The first one is the absolute technological conservative in the United States
 
-50%白银被用于重工业和高科技，这其中包括熟知的智能手机、平板电脑、汽车电气系统、太阳能电池等。因此，白银对世界经济的敏感度远高于黄金，因为黄金更多的用于饰品和国库储备。经济增长必然导致对白银的需求增加，进而刺激价格增长。反之亦然。
+就是这些人，像这个背后的AT&T, 搞通讯的
+like AT&T who is behind the whole plan, these people are in communication industry
 
-2. 白银可能是一个更好的通货膨胀对冲工具
+还有硅谷的这些人，这些人利益是一致的
+And these people in Silicon Valley have same interests
 
-从历史上看，当通货膨胀率上升时，黄金和白银都会取得丰厚的收益。这两种金属都是以美元计价。当美元贬值时，黄金和白银通常会上涨。考虑到白银有更大的工业需求，在通货膨胀和美元下跌的情况下，白银往往比黄金涨得更多。
+必须干掉华为，不干掉华为咱就完了
+So they must destroy Huawei, they’ll be done if they don’t destroy Huawei
 
-3. 白银比黄金具有更大的波动性
+这一波人恼怒了，你把她放回去了
+These people are so angry about having her back to China
 
-历史数据表明白银价格波动的百分比在一个交易周期内有可能是黄金的两到三倍，甚至更多。投资者短期内可能会受益，但同时又面临巨大风险。黄金白银的这种波动性可以为投资者提供不同期限的投资回报。
+（因为）这个事恼火了，它失败了
+Because this angered them. They plan failed
 
-4. 黄金是更好的分散投资工具
+第二个，极右派当中的金融派
+The second one is the financial faction among the extreme right
 
-对比白银，黄金被认为是更强大的多元化投资工具。原因是它与股票债券等资产类投资相关性非常低，它的工业用途也相当有限。黄金的这种独立性使得它在世界经济中扮演非常稳定的角色。
+金融派里面有两派，投华为的，赚华为钱的
+There are two groups in the financial faction, the one who invests in Huawei, who makes money from Huawei
 
-5. 白银目前比黄金更便宜
+还有一个，一定要灭掉华为自己才能赚钱的
+There is another one, they must destroy Huawei so they can make money
 
-现阶段白银的价格更能被个人投资者接受。对于那些刚刚开始建立投资组合或者资金有限的人来说，白银的低成本更具有强大的吸引力。
+再一个，现在就是最重要的，也就是这个军方
+Another one which is the most important in the military
 
-[文字版原文：\[金融园\]黄金和白银的五种不同特性，更好分散投资](https://gnews.org/zh-hans/1559884/)
+就是鹰派的军方，（意识到）这个华为要再开始
+It’s the hawks in military, if Huawei is going to start again
 
-音频处理：喜山必胜Maverick
+那对咱们的威胁太大了
+That threatens us too much
 
-*发稿：*Yuki jiang
+华为要发展下去，绝对美国的基本一半功力被它废掉了
+If Huawei continues to develop, basically it will abolish half of the strengths of the United States
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+所以说大家要记住，华为要么发展，那成为美国和欧洲最大的劲敌
+So remember, Huawei continues to develop then become the biggest rival of the U.S. and Europe
 
-**更多资讯，更多关注**
+它成了中共和西方科技较量的第一杆枪
+It becomes the first gun in the technology battle between the CCP and the West
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+那你说结果很简单嘛，它可能（成功）吗？是吧
+obviously the result is very simple, is it possible to succeed? Is it?
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+就连跟芯片连在一起了，华为现在主攻的就是芯片
+It’s even connected to the chip. Huawei’s main focus now is the chip design
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+华为的任正非低调地在搞芯片
+Huawei’s Ren Zhengfei is keeping a low profile in chip R&D
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+那芯片的较量，一会儿咱再说芯片，未来真正的价值在哪里
+That chip contest, let’s talk about the chip later, where is the real value in the future?
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+咱们一会儿再聊一聊，所以说你看看
+Let’s talk it later, so let’s take a look
+
+芯片的较量，绝对就把华为弄在了中美，
+The chip contest definitely put Huawei in the U.S. and China
+
+还有中共和全世界的敌对的核心之中里面去
+and also inside the hostile core of the CCP and the whole world
+
+当这牺牲品，那不找死的吗, 是吧，
+It becomes the victim, you’re risking your neck, right?
+
+所以说它最终它一定（死）
+So eventually Huawei must die
+
+不管赢和输它都要被牺牲掉
+Whether it wins or loses, it has to be sacrificed
+
+原视频日期：2021/09/26
+原视频链接: https://twitter.com/se1y7cblljselva/status/1442385896553140228?s=24
+视频时间段 : 0:00-2:15
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
