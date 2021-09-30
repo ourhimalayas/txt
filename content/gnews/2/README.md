@@ -2,15 +2,18 @@
 ---
 
 
-## 【 #G时新闻 】维加诺大主教称，强制接种新冠疫苗是反人类罪
-` 枫叶农场 G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1563650/)
+## 雅典娜时报-第067期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563728/)
 
-播报员：翌珊 制做： Kent
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-盖文：红衣大主教维加诺于9月中旬发表了讲话，称新冠疫情 是深层政府和深层教会，强制推行疫苗护照的 虚假借口，强制要求接种实验性的疫苗，是反人类的 重罪。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9-28.png)![](https://assets.gnews.org/wp-content/uploads/2021/09/8-4.jpg)
+***发布：小红帽***
 
-原文链接：https://gnews.org/zh-hans/1562924/
-
-盖特链接：https://gettr.com/post/pck9dp6643
-
-编辑/ 上传 Kent
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,22 +2,29 @@
 ---
 
 
-## 美国政府数据显示，近5万人接种新冠疫苗后14天内死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562889/)
+## 维加诺大主教称，强制接种新冠疫苗是反人类罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1562924/)
 
 栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-439.png)
-上周六，俄亥俄州的医疗自由权律师 托马斯·伦茨 宣布，根据爆料人提供的 医疗护理救助服务中心CMS相关数据显示，仅在医疗保险患者中，接种新冠疫苗后于14天内死亡的病例就高达48,465例。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-440.png)
+在各国政府联合强制推行疫苗护照，激发全民反抗的当下，前教廷驻美国大使：红衣大主教维加诺（Archbishop Viganò）于9月中旬发表讲话，称新冠疫情是深层政府和深层教会，强制推行疫苗护照的虚假借口，强制要求接种实验性的疫苗，是反人类的重罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-30.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-27.jpeg)
 
-CMS数据库涵盖超过半亿医疗保险受益人的数据，是美国最大的、可用于研究新冠病毒的数据库。根据疾控中心官方定义，一个人完成疫苗注射14天后，才会被认定为”接种了疫苗”。言下之意，如果死亡发生在14天以内，政府医疗机构不会承认其与疫苗接种的相关性。托马斯还向公众展示了CMS服务器的原始数据截图，并强调这仅是来自不超过20%美国人口的数据。
+大主教断言道：我们的社会和宗教正面临着一场围攻。他说，“我们正处于战争中，这场战争没有公开宣战，也没有使用传统的武器，但这场战争与其他战争并无本质区别。这里有侵略者和被侵略者，有刽子手和受害者，有不公平的审判和囚徒。在这场战争中，暴力已被粉饰成了合法的形态，而且正在侵犯公民和有信仰者的权利”。
 
-此前，罗斯博士团队发布的，新冠疫苗至少造成15万美国人死亡的研究，引起广泛关注。近几日，真相工程相继发布来自联邦医疗机构的员工、强生药厂的科学家揭露新冠疫苗真相的视频，引发媒体风暴和民众的热议。许多有影响力的政客、歌手、NBA明星等也纷纷站出来反对疫苗。随着事件的发酵，更多疫苗受害者的声音也正在被关注。
+新冠疫苗仍处于试验阶段，不能为人体提供免疫保护，而且导致多种严重副作用。在事实面前，深层政府不顾人民的反对，只为谋求自身邪恶目的，并非服务于人民。
+
+教会当局的权利阶层，丝毫不谴责权力滥用者，而且还支持这场全球范围的大屠杀计划，反而诋毁选择不接种实验性基因血清制剂的人们。他继续强调，这些基因疫苗在生产测试过程中使用了堕胎婴儿组织，每个天主教徒都有充分的道德理由拒绝接种。
+
+维加诺大主教表示，教皇方济各，利用宗教影响力，通过道德绑架，推进疫苗接种计划，是大重启计划不可或缺的一部分。北美和南美的红衣主教和主教，包括美国主教团主席、洛杉矶教区大主教 戈麦斯（Jose Gomez），都是帮凶，都要为这场反人类罪行负责。
+
+大主教总结说：只是一场划时代的战争，是末世的前奏，也是《得撒尼洛人后书》第二节经卷中所说的大叛教。
 
 (本文仅代表作者观点）
 
-参考链接：[Nearly 50k Medicare patients died soon after getting COVID shot: whistleblower](https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/)
+参考链接：[Abp. Viganò: COVID-19 vaccine, passport drive ‘an epochal war’ and ‘prelude to the end times’](https://www.lifesitenews.com/news/abp-vigano-covid-19-vaccine-and-passport-drive-an-epochal-war-and-prelude-to-the-end-times/)
+[LA Archbishop Urges Catholics To Get Vaccinated: ‘It’s Our Community That’s At Stake Here’](https://laist.com/news/health/la-archbishop-urges-catholics-to-get-vaccinated-its-our-community-thats-at-stake-here)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
