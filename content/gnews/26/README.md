@@ -2,34 +2,39 @@
 ---
 
 
-## 特鲁多推进强制联邦公务员的COVID-19疫苗接种任务
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1564758/)
+## 湖南电价上涨将于10月开始实行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564855/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/09/MW-GK164_trudea_ZG_20180531185358.jpg)图片来源：Market Watch
-根据《CTV 新闻》9月28日报道，加拿大总理特鲁多正在重申其选举前的承诺，即强制联邦公务员接种COVID-19疫苗。
+作者：香草山教育部-Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
 
-“我们将确保联邦公务员接种疫苗”，特鲁多星期二在渥太华的一个COVID-19疫苗接种诊所讲话时说，“对任何为联邦政府工作的人都有明确的疫苗接种要求。”
 
-联邦政府在8月宣布，打算让所有联邦公共服务工作人员和加拿大武装部队成员强制接种COVID-19疫苗。联邦公共服务部门在渥太华拥有最多雇员。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/湖南电价上涨于10月开始实行.jpg)
 
-加拿大财政委员会秘书处在8月13日的一份新闻稿中说：”对于那些无法接种疫苗的少数人，可以根据不同情况决定采取通融或替代措施，如测试和筛查，通过减少COVID-19的风险来保护更广泛的公众健康“。
+9月26日，一份湖南省发改委印发的《关于完善我省燃煤发电交易价格机制的通知》在网络引发关注。据该通知显示，在确定电力市场交易基准价格的基础上，引入燃煤电企购煤价格作参数，联动调整电价上限，并将于10月开始实施。据了解，除湖南外，全国已有多个省份也出台了电价改革方案。
 
-迄今为止，还没有提供接受COVID-19疫苗的公务员人数的数据，但在当地，渥太华公共卫生部门说，18岁以上的成年人中有83%已经接受了两剂COVID-19疫苗，被认为是完全接种。
+近期，北京出示的一份计划于国庆期间停电的公告，引发网友热议。面对市民的恐慌和质疑，中共电网官方发表紧急声明，极力解释掩饰真相。
 
-财政局的一位发言人在周三的一份声明中说，推测公务员的疫苗接种率与普通公众相同。”我们知道，加拿大80%符合条件的人已经完全接种了疫苗，超过85%的人已经接种了第一针。虽然我们还没有关于公务员疫苗接种率的准确数字，但我们有理由相信公务员的疫苗接种率与加拿大普通民众相同“ 。
+郭先生在直播中爆料，此次全国大范围的停电、限电，实际上是新一波的党内斗争。而中共向来都是牺牲老百姓的利益甚至生命，打倒对手，赢得政治资本。
 
-拒绝接种疫苗的联邦工作人员的情况仍不清楚。特鲁多告诉记者，公共服务部门继续致力于其强制性疫苗接种计划，他承诺在未来几周提供更多细节。
+（文章仅代表作者个人观点）
 
-特鲁多说：”大家都知道，度过这场大流行的方法是确保尽可能多的人接种疫苗”。
+参考链接：
 
-卫生部长哈伊杜Patty Hajdu周二在CTV新闻频道的Power Play节目中说，围绕未接种疫苗的员工的后果的讨论仍在进行。”这些是目前正在与联邦公共服务部门和工会进行的对话。总的来说，人们明白我们需要在公共场所，特别是工作场所相互保护”。
+[https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom](https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom) [https://m.yicai.com/news/101186815.html](https://m.yicai.com/news/101186815.html) [https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html](https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html)
 
-在疫苗灾难逐渐显现和疫苗阴谋被郭文贵先生及正义力量揭穿的情况下，特鲁多应该停止强制疫苗，看他后续如何表演下去，我们继续关注。
+编辑/校对/发稿：雪梨
 
-原文链接：
-[https://ottawa.ctvnews.ca/trudeau-moving-ahead-with-covid-19-vaccine-mandate-for-federal-public-servants-1.5603911](https://ottawa.ctvnews.ca/trudeau-moving-ahead-with-covid-19-vaccine-mandate-for-federal-public-servants-1.5603911)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-* * *
+**更多资讯，更多关注**
 
-发稿 Spirit
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

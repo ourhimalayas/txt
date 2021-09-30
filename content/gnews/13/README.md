@@ -2,32 +2,15 @@
 ---
 
 
-## 澳大利亚企业反抗政府严厉的封锁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564953/)
+## 秘翻在线：凛冬将至 中共为塔利班送去了“关爱”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565012/)
 
-栏目记者/责任编辑：DM
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-466.png)
-零对冲昨日报导，澳洲许多大公司的领导人，包括BHP、麦格理和澳洲航空的澳大利亚商业委员会签署了一封公开信，要求政府考虑经济和民意，解除过于严厉的封锁政策，像其他国家一样开放边境。
+撰稿：葛大饼
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-31.jpeg)
+责编: 人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-10-01-002333.jpg)图片来源：新浪
+根据2021年9月29日UC网报道，凛冬将至，中共对阿富汗表示极度关心。三周以前，中共国外长王毅承诺将向阿富汗提供价值约2亿元人民币的救援物资，包括粮食、药物、疫苗和御寒物资等。果然首批对阿富汗紧急人道主义援助物资已经顺利运抵喀布尔国际机场，包括有毛毯、羽绒服等阿富汗人民急需的越冬物资。塔利班官员表示不会忘记中共对他们的关爱！
 
-签署该公开信的公司雇佣了近100万澳大利亚人，澳洲的大小企业均在政府的疫情政策中苦苦挣扎，签署者之一，墨尔本基金管理公司乐筹金融的首席执行官格雷格·奥尼尔表示：现在是拿出勇气和诚实的时候了。
+近日中共国多地停电， 东北地区的百姓也急需越冬烧煤取暖，但是中共为了“面子”和澳洲死扛，不进口澳大利亚煤炭，宁可拉闸限电也不想办法救助百姓。如此讽刺的对比百姓也该真正看清中共的嘴脸了。中共从来都是对自己的人民最心狠手辣，视草民如猪狗一般，也是有史以来杀害中国人民最多的恶党，没有之一！
 
-从封锁到疫苗，澳州政府在疫情诸多政策上的专政表现，已经引起了澳洲民众不满与反抗，此番澳洲大企业的联合发声，为澳洲抗争带来了希望。
-
-（本文仅代表作者观点）
-
-参考链接：[Australia’s Corporations Rebel Against Government’s Draconian COVID Lockdowns](https://twitter.com/zerohedge/status/1443390250844295169?s=21)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：FoxRina
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+**[新闻来源](https://mparticle.uc.cn/article.html?uc_biz_str=S%3Acustom%7CC%3Aiflow_wm2&amp;btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=911f500556c04e16bbf06b7176117935&amp;wm_cid=446574579538736128&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt&amp;source=share-back)**

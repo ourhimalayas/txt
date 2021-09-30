@@ -2,154 +2,38 @@
 ---
 
 
-## 疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564540/)
+## 中共通过“慷慨资助”控制发展中国家 影响全球政治经济
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564586/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/cb554e1ec633a6c0f28e0ee6040f2f89.jpg)https://gtv.org/video/id=6155602fd2e2b817486f930a
-大家能搞明白的
-Todos tienen que entender
+栏目记者/责任编辑：在远方
 
-疫苗和病毒
-La vacuna y el virus
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-他对人类的威胁还早着呢
-Aún es temprano en cuanto a su amenaza hacia la humanidad
 
-在这个生死面前
-Frente a la vida y muerte
 
-啥事对咱都不是最重要的
-No hay nada más importante que eso para nosotros
+美国威廉与玛丽学院9月29日公布了一份报告，揭示了中共扩张的规模以及发展中国家依赖的处境。
 
-第一, 一定要防范住病毒
-Primero, debemos protegernos del virus
+目前，中共在 42个发展中国家的未偿还贷款已经超过其国内生产总值的10%。 过去二十年，中共以赠款但主要是贷款形式向163个国家提供了8430亿美元，相当于二战后马歇尔重建欧洲计划预算的六倍，远超美国与其他发达富裕国家资助金额的总和。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（2、3）.003.jpeg)
+中共向信用脆弱的国家提供了不成比例的贷款，进而通过高利率、资产抵押、第三方担保、被资助国家购买保险或存储可被扣押的现金等卑劣方式，控制无力偿还债务的发展中国家。斯里兰卡因无力偿还债务，被迫将印度洋的重要航运港口卡汉班托塔港于2019年移交给中共公司运营99年。
 
-第二, 不打疫苗
-Segundo, no vacunarse
+中共更利用债务影响国际政治。中共试图让其候选人在 2019年担任联合国粮食及农业组织负责人时，取消了喀麦隆 7000 万美元的债务，于是喀麦隆的候选人退出了竞选。
 
-第三, 如果以上发生了
-Tercero, si lo ante mencionado ya sucedió
+14亿中国老百姓的血汗，被中共对外疯狂大撒币，以实现其邪恶的政治利益，这是中国人民和世界发展中国家的悲哀与不幸，也是对全球秩序的致命伤害。
+(本文仅代表作者观点)
 
-咱有解药, 那迅速吃解药
-Tenemos el antídoto, entonces deben tomarlo inmediatamente
+参考链接：[慷慨资助的背后中国是如何让发展中国家还债的](https://www.rfi.fr/cn/中国/20210930-慷慨资助的背后-中国是如何让发展中国家还债的)
 
-第四, 在这个过程当中
-Cuarto, durante este proceso
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-这个有饭吃, 有钱花, 有房子住
-Si tenemos comida, dinero para gastar, una casa para vivir
+终审：FoxRina
+校正/发稿：我不在这里
 
-然后呢, 追求更舒服一点
-Y buscamos una mejor comodidad
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-最后, 当这个灾难过后
-Finalmente, luego de este desastre
-
-咱幺都能健健康康的活着
-Todos podemos vivir sanos y saludables
-
-这是个大赢家
-Entonces seremos el gran ganador
-
-G系列是天赐给我们新中国联邦
-La serie G es lo que el Cielo otorgó a nuestro Nuevo Estado Federal de China
-
-要没有G系列
-Si no hay esta serie G
-
-要没有法治基金, 法治社会
-Ni la fundación para el estado de derecho, sociedad del estado de derecho
-
-没有G-CLUB, 没有盖特
-G-CLUB, GTTR
-
-没有G-TV, G-NEWS
-G-TV, G-NEWS
-
-任何一样东西
-Ninguno de ellos
-
-咱活得都不一样
-Viviremos de una manera diferente
-
-你没有希望
-No tendrás esperanza
-
-而且你都是从腰包里边掏钱
-Además, si sacas el dinero de tu bolsillo
-
-你怎能活得更好
-Cómo puedes vivir mejor
-
-还有个你能掏多长时间
-Y cúanto tiempo puedes estar sacando dinero de tu bolsillo
-
-你有多深能让你掏啊
-Qué tan profundo tienes el bolsillo
-
-结果这个新中国联邦这个国家形式
-Como resultado, la forma del Nuevo Estado Federal de China como país
-
-他是上天给我们的
-Es lo que Dios nos otorgó
-
-它给了我们希望
-Él nos dió esperanza
-
-它把我们凝(聚)了一起
-Él unió a todos nosotros
-
-爆料革命又创造出了G系列
-El Movimiento de Denunciantes creó la serie G
-
-这真是
-Esto realmente es
-
-让大家能有财富
-Para que todos tengan riqueza
-
-能有希望
-Esperanza
-
-能有动力凝聚在一起
-Y motivación para estar unidos
-
-还能好好的活下去
-Y vivir bien
-
-就是不可思议啊
-Es increíble todo esto
-
-所以说这才是属于我们的
-Por eso, esto es lo que nos pertenece
-
-不属于我们的
-Lo que no nos pertenece
-
-跟咱没关系的, 你少操闲心
-No es necesario preocuparse por lo que no tiene relación con nosotros
-
-现在开始关心我们G系列
-Ahora empieza a estar pendiente de nuestra serie G
-
-如何更快的, 更稳定的成功
-Cómo tener éxito de forma más rápida y estable
-
-让大家都能分享这个成功的喜悦和结果
-Para que todos puedan compartir el resultado y la felicidad del éxito
-
-这才是最重要的
-Esto es lo más importante
-
-原视频日期：09/27/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442419230729670666?s=24
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

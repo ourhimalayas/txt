@@ -2,39 +2,22 @@
 ---
 
 
-## 湖南电价上涨将于10月开始实行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564855/)
+## 突破临界点！中共国9月PMI降至49.6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1564911/)
 
-作者：香草山教育部-Yousei
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/09/093021.png)[图片来源](http://www.stats.gov.cn/tjsj/zxfb/202109/t20210930_1822646.html)
+9月30日中共国家统计局发布的《2021年9月中国采购经理指数运行情况》：9月制造业PMI为49.6，降至临界点以下。
 
+报告称，中国制造业采购经理指数(PMI)为49.6%，低于上月0.5个百分点，降至临界点以下，制造业景气水平有所回落。从企业规模看，大型企业PMI为50.4%，比上月微升0.1个百分点，继续高于临界点；中型企业PMI为49.7%，比上月下降1.5个百分点，低于临界点；小型企业PMI为47.5%，比上月下降0.7个百分点，低于临界点。从分类指数看，在构成制造业PMI的5个分类指数中，生产指数、新订单指数、原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/湖南电价上涨于10月开始实行.jpg)
+郭文贵先生9月29日大直播爆料，美国工业用电1万亿度，中国大约3万亿度；美国居民平均用电大约5000度，而中国人只有600-700度；美国居民用电占40%，而中共国居民用电只有30%。中共国年用电量大约8.5万亿度电，大约1万多亿美元规模，仅在建核电站就多达32个，居民用电能力充分反映了人民的生活水平和基本人权状况。
 
-9月26日，一份湖南省发改委印发的《关于完善我省燃煤发电交易价格机制的通知》在网络引发关注。据该通知显示，在确定电力市场交易基准价格的基础上，引入燃煤电企购煤价格作参数，联动调整电价上限，并将于10月开始实施。据了解，除湖南外，全国已有多个省份也出台了电价改革方案。
+由于中共外汇枯竭，加之内部斗争不断升级，中共不愿意进口澳洲高热值煤炭，导致煤电价格倒挂，造成供电公司卖的越多，亏损越多，可以预见中共国PMI指数还会一路走低。
 
-近期，北京出示的一份计划于国庆期间停电的公告，引发网友热议。面对市民的恐慌和质疑，中共电网官方发表紧急声明，极力解释掩饰真相。
+信息来源：[2021年9月中国采购经理指数运行情况](http://www.stats.gov.cn/tjsj/zxfb/202109/t20210930_1822646.html)
 
-郭先生在直播中爆料，此次全国大范围的停电、限电，实际上是新一波的党内斗争。而中共向来都是牺牲老百姓的利益甚至生命，打倒对手，赢得政治资本。
-
-（文章仅代表作者个人观点）
-
-参考链接：
-
-[https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom](https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom) [https://m.yicai.com/news/101186815.html](https://m.yicai.com/news/101186815.html) [https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html](https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html)
-
-编辑/校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

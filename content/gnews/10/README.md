@@ -2,38 +2,25 @@
 ---
 
 
-## 英美开始采用地塞米松和伊维菌素治疗新冠病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564997/)
+## 金正恩拒绝美国重返会谈的建议
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1565104/)
 
-栏目记者：禹水沃土
-责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
-英格兰国家医疗服务体系NHS已开始与政府的抗病毒工作组合作，研究和推出在社区中使用地塞米松等口服药物以治疗新冠病毒。首席制药官 Keith Ridge 担任口服抗病毒药物计划高级负责人。在英国和海外抗病毒治疗临床试验的数据中，地塞米松等药物在缩短新冠病毒对人体影响时间、和防止重症方面显示出可喜的结果。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-36.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/N-3.jpg)time.news
+美东时间9月30日消息，朝鲜领导人金正恩拒绝了美国在朝鲜再次发射导弹后提出的重返会谈的建议。
 
-牛津大学的PRINCIPLE试验一直在研究新冠病毒感染的可能疗法，早在6月就确认伊维菌素可以加速康复、减少症状的严重性，避免患者入院治疗。英国卫生署旗下健康与临床优化研究所N.I.C.E近期也发布多篇资料支持以上结论。
+金正恩表示：“美国坚持外交接触和无先决条件的对话，但这不过是欺骗国际社会和掩饰其敌对行为的手段。”在他看来，对话建议是前几届美国政府奉行的敌对政策的延续。
 
-8月份，大卫战友在感染新冠病毒重症期间，血氧严重偏低，出现心脏间歇性骤停，在服用了郭文贵先生提供的地塞米松，和战友提供的伊维菌素后，逐渐转危为安。
+朝鲜领导人表示，“自美国新政府上台以来，过去八个月的事件清楚地表明，美国对我们的军事威胁和敌对政策没有任何改变。”
 
-美国南卡罗来纳州斯巴达堡将招募新冠病毒感染者，使用伊维菌素进行临床实验。爆料革命和郭文贵先生向全世界推荐的药物正在拯救人类。
+9月28日上午，朝鲜又进行了一次导弹发射，据称朝鲜军方正在测试一种新的高超音速导弹。
 
-（本文仅代表作者观点）
+美国国务院谴责朝鲜的发射行为，并呼吁朝鲜进行对话。副参谋长贾丽娜∙波特（Jalina Porter）表示，“我们准备在没有先决条件的情况下与朝鲜会面，我们当然希望朝鲜能对我们的支持作出积极回应，美国的目标仍然是朝鲜半岛的完全无核化。”
 
-参考链接：[NHS prepares for antiviral deployment to treat COVID-19](https://pharmaceutical-journal.com/article/news/nhs-prepares-for-antiviral-deployment-to-treat-covid-19)
-[Clinical trial testing Ivermectin, two other drugs against COVID open for signups](https://www.wfxrtv.com/news/health/coronavirus/clinical-trial-testing-ivermectin-two-other-drugs-against-covid-open-for-signups/)
-[铁血大卫对决CCP病毒 化险为夷的来龙去脉](https://gnews.org/zh-hans/1517319/)
-[Ivermectin to be investigated as a possible treatment for COVID-19 in Oxford’s PRINCIPLE trial](https://www.ox.ac.uk/news/2021-06-23-ivermectin-be-investigated-possible-treatment-covid-19-oxford-s-principle-trial)
+平壤的回应是承诺不侵犯邻国或美国的安全。朝鲜常驻联合国组织代表金松（Kim Sung）说，韩国和美国不断试图通过开发和部署新武器来“破坏朝鲜半岛的力量平衡。没有一个国家像朝鲜那样不断受到战争的威胁。我们把军事威慑理解为一种合法的自卫权，它可以阻止侵略战争，保护我们。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+参考链接：
 
-终审：暗黑
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+[https://www.rbc.ru/politics/30/09/2021/6154fe629a79474322d6b68c](https://www.rbc.ru/politics/30/09/2021/6154fe629a79474322d6b68c)
