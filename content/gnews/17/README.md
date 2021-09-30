@@ -2,38 +2,35 @@
 ---
 
 
-## 英美开始采用地塞米松和伊维菌素治疗新冠病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564997/)
+## 脸书在俄罗斯面临10亿卢布罚款
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1565013/)
 
-栏目记者：禹水沃土
-责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
-英格兰国家医疗服务体系NHS已开始与政府的抗病毒工作组合作，研究和推出在社区中使用地塞米松等口服药物以治疗新冠病毒。首席制药官 Keith Ridge 担任口服抗病毒药物计划高级负责人。在英国和海外抗病毒治疗临床试验的数据中，地塞米松等药物在缩短新冠病毒对人体影响时间、和防止重症方面显示出可喜的结果。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-36.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/F-4.jpg)rt.com
+美东时间9月30日消息，因为脸书多次未能删除被禁信息，俄联邦通信、信息技术和大众传媒监督局计划起草一份相应的协议并将其送达脸书在俄罗斯的代表，脸书所面临的罚款是其在俄罗斯收入的十分之一。
 
-牛津大学的PRINCIPLE试验一直在研究新冠病毒感染的可能疗法，早在6月就确认伊维菌素可以加速康复、减少症状的严重性，避免患者入院治疗。英国卫生署旗下健康与临床优化研究所N.I.C.E近期也发布多篇资料支持以上结论。
+10月4日，脸书的代表将被传唤，以起草该议定书。然后，该文件将被送至法院，由法院决定罚款金额。由于它一再违反关于删除被禁信息的立法，脸书可能被要求支付互联网公司年营业额的二十分之一至十分之一的罚款。
 
-8月份，大卫战友在感染新冠病毒重症期间，血氧严重偏低，出现心脏间歇性骤停，在服用了郭文贵先生提供的地塞米松，和战友提供的伊维菌素后，逐渐转危为安。
+自今年年初以来，俄罗斯法院多次对主要互联网公司进行罚款，包括推特、脸书、谷歌和抖音，但到目前为止，罚款金额并不高，不超过2000万卢布。他们要么是因为没有删除被禁止的信息（《行政法典》第13.41条），要么是因为将俄罗斯用户的数据存储在国外（《行政法典》第13.11条）而被签发。
 
-美国南卡罗来纳州斯巴达堡将招募新冠病毒感染者，使用伊维菌素进行临床实验。爆料革命和郭文贵先生向全世界推荐的药物正在拯救人类。
+例如，在此期间，俄罗斯对未删除禁止信息的所有罚款累计达6600万卢布，推特 – 3840万卢布，谷歌 – 2600万卢布。俄联邦通信、信息技术和大众传媒监督局表示，脸书和推特在8月份的用户数据本地化案件中分别被罚款1500万和1700万卢布。
 
-（本文仅代表作者观点）
+根据《行政法典》第13.41条，社交网络和供应商有义务应当局的要求删除含有禁止信息的网页。各种信息都属于这一类，包括出售假证书和假文凭、赌场广告和被法院视为极端主义的信息。此外，还有一项单独的义务，即删除含有呼吁极端主义、儿童色情和使用毒品信息的网页。屡次不删除此类信息将被处以更高的罚款，即公司营业额的五分之一，而不是十分之一。
 
-参考链接：[NHS prepares for antiviral deployment to treat COVID-19](https://pharmaceutical-journal.com/article/news/nhs-prepares-for-antiviral-deployment-to-treat-covid-19)
-[Clinical trial testing Ivermectin, two other drugs against COVID open for signups](https://www.wfxrtv.com/news/health/coronavirus/clinical-trial-testing-ivermectin-two-other-drugs-against-covid-open-for-signups/)
-[铁血大卫对决CCP病毒 化险为夷的来龙去脉](https://gnews.org/zh-hans/1517319/)
-[Ivermectin to be investigated as a possible treatment for COVID-19 in Oxford’s PRINCIPLE trial](https://www.ox.ac.uk/news/2021-06-23-ivermectin-be-investigated-possible-treatment-covid-19-oxford-s-principle-trial)
+据俄联邦通信、信息技术和大众传媒监督局称，脸书和Instagram的管理部门迄今未能删除2000多份非法材料，“包括儿童色情、自杀、支持毒品和极端主义内容”。一位熟悉案件进展的消息人士说，尽管在脸书上也发现了此类信息，但俄联邦通信、信息技术和大众传媒监督局尚未启动相关程序，如果不删除，可能会导致更大的罚款。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+自今年年初以来，该机构根据《俄罗斯联邦行政法典》第13.41条对脸书进行了19次举报，原因是没有删除被禁内容。法院对该公司的罚款总额约为7000万卢布，其中4300万卢布的法院判决已经生效。俄联邦通信、信息技术和大众传媒监督局指出，“脸书的管理部门并没有支付罚款。”
 
-终审：暗黑
-校对/发稿：谐趣园
+据该公司称，2020年，脸书在全球的收入为859亿美元。脸书没有按国家（包括俄罗斯）单独披露收入。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+Finam公司的分析师Leonid Delitsyn估计，脸书俄罗斯的收入可能约为80-120亿卢布。在这种情况下，如果法院将罚金比率定为俄罗斯营业额的1/20，则处罚可高达4-6亿卢布，按可能的最高比率计算，可高达8-12亿卢布。
+
+然而，俄罗斯律师协会莫斯科分会数字经济委员会主席Alexander Zhuravlev表示，在俄罗斯收取罚款并不容易。主要问题是一些外国IT公司，包括脸书和推特，在俄罗斯没有官方机构。
+
+普京总统在7月初签署的外国IT公司“登陆“法可以解决这个问题。根据这项法律，外国IT公司必须从2022年1月1日起在俄罗斯建立其分支机构和代表处。该要求将适用于每日受众超过50万的俄罗斯用户的社交网络，前提是这些社交网络以俄语发布内容，并且广告是针对俄罗斯受众的。如果不是这样，公司可能会受到一些措施的制约。其中包括禁止在俄罗斯传播广告，限制汇款和接受俄罗斯公民和公司的付款，以及部分或全部限制对资源的访问。
+
+参考链接：
+
+[https://www.rbc.ru/business/30/09/2021/6154e0d69a79473e0a35e6d1?from=from\_main\_11](https://www.rbc.ru/business/30/09/2021/6154e0d69a79473e0a35e6d1?from=from_main_11)

@@ -2,19 +2,45 @@
 ---
 
 
-## [#G时新闻】一种被忽视的毒疫苗杀手锏——刺突蛋白脱落
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1565196/)
+## 参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1565386/)
 
-作者：加拿大枫叶农场 – Myway
+作者：纽约香草山农场 – 四季
 
-播报/ 制作 小苹果lily
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-刺突蛋白通过口腔，呼吸、皮肤接触和体液等方式脱落，感染周围的人导致血栓、中风、心脏病、肺栓塞和不孕症等各种严重不良反应。由于刺突蛋白的可传播性，只需要大部分人接种了疫苗，就可以把刺突蛋白传播给所有不打疫苗的人
 
-原文链接：[一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](https://gnews.org/zh-hans/1561787/)
 
-盖特链接：[【#G时新闻】](https://gettr.com/post/pcj9f8cbfe)
 
-* * *
 
-编辑/发稿 云起时
+据[门道专家](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)9月30日报道，美国参议员罗恩-约翰逊在参议院会议上讨论了目前与COVID-19疫苗有关的COVID-19大流行病。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1097-1-vax-johnson.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)
+
+约翰逊参议员展示的一张图表显示，疫苗并没有像宣传的那样发挥作用。他对与COVID-19疫苗有关的冠状病毒病例和冠状病毒死亡的时间线，提出了如下三个非常重要的观点：
+
+“在疫苗推出之前，确诊冠状病毒的总病例和死亡人数已经大幅下降；疫苗接种率在2021年初开始攀升，如今达已到60%左右；尽管60%的人口已经接种了疫苗，但今年夏天的病例和死亡人数仍再次激增”。
+
+现在公众没有得到需要做出知情选择的准确信息，而大药厂又对疫苗的后果不承担任何责任。这都将施打疫苗的公众陷于非常不利的境地。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

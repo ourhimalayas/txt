@@ -15,94 +15,94 @@
 
 ---
 
-### [2021年9月29日郭文贵先生直播全文字版](/content/gnews/1/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [[#G时新闻】一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/2/README.md)
- ` 中共病毒真相`
-
-### [约翰逊在美参议院质疑中共病毒疫苗的有效性](/content/gnews/3/README.md)
- ` HimalayaRussia`
-
-### [福奇和其他新冠病毒政策制定者犯下了“危害人类罪”](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [疫苗暴政——这场安静的屠杀即将结束](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [法国外交部长称法美关系处于严重危机中](/content/gnews/6/README.md)
- ` HimalayaRussia`
-
-### [唯真不破反洗脑‑‑ 我什么都不信了之三：吓人的柱状图](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [同志，你家夜壶满了](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [9/30/21 香港快讯 警方凌晨封闭会展一带 明十一活动派8千警严防](/content/gnews/9/README.md)
- ` 英喜-粵語組`
-
-### [限电停电已影响世界产业链供应链！李克强亲自安抚28国使节](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [NBA球星詹姆斯说不应该干涉别人是否接种疫苗](/content/gnews/11/README.md)
+### [川普被TWITTER替代者GETTR所吸引](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [金正恩拒绝美国重返会谈的建议](/content/gnews/12/README.md)
+### [参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [何以为继&#8211;加拿大去年出生率为近15年来最低！](/content/gnews/3/README.md)
+ ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
+
+### [2021年9月29日郭文贵先生直播全文字版](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [[#G时新闻】一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/5/README.md)
+ ` 中共病毒真相`
+
+### [约翰逊在美参议院质疑中共病毒疫苗的有效性](/content/gnews/6/README.md)
  ` HimalayaRussia`
 
-### [有感于孟晚舟回国机场的发言](/content/gnews/13/README.md)
+### [福奇和其他新冠病毒政策制定者犯下了“危害人类罪”](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [脸书在俄罗斯面临10亿卢布罚款](/content/gnews/14/README.md)
+### [疫苗暴政——这场安静的屠杀即将结束](/content/gnews/8/README.md)
+ ` 秘密翻译组-原创组`
+
+### [法国外交部长称法美关系处于严重危机中](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [秘翻在线：凛冬将至 中共为塔利班送去了“关爱”](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [对“孟公主”的一封道歉信](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英美开始采用地塞米松和伊维菌素治疗新冠病毒](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [中共残害百姓不减速 毒疫苗加强针全面展开](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [又要放毒？中共在全国大规模改造集中隔离场所](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚企业反抗政府严厉的封锁](/content/gnews/20/README.md)
- ` GTV新闻访谈`
-
-### [文贵视角：将公布孙力军在海外的资金关系网及藏匿的各方重大案情等绝密信息](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [人生无常，又无勇气和担当](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美欧建合作新机制，遏制中共非市场贸易行为](/content/gnews/23/README.md)
- ` GTV新闻访谈`
-
-### [突破临界点！中共国9月PMI降至49.6%](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：日本排华趋势已经抬头，海外华人不要成为世界仇视中共的牺牲品](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [孟晚舟回国，算啥？](/content/gnews/26/README.md)
+### [唯真不破反洗脑‑‑ 我什么都不信了之三：吓人的柱状图](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视人民为敌的邪恶政权](/content/gnews/27/README.md)
+### [同志，你家夜壶满了](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [湖南电价上涨将于10月开始实行](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
+### [9/30/21 香港快讯 警方凌晨封闭会展一带 明十一活动派8千警严防](/content/gnews/12/README.md)
+ ` 英喜-粵語組`
 
-### [印尼930排华事件五十周年 新中国联邦不会让悲剧重演](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
+### [限电停电已影响世界产业链供应链！李克强亲自安抚28国使节](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美FCC斥资19亿主导拆除中共国网络设备](/content/gnews/30/README.md)
+### [NBA球星詹姆斯说不应该干涉别人是否接种疫苗](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [金正恩拒绝美国重返会谈的建议](/content/gnews/15/README.md)
+ ` HimalayaRussia`
+
+### [有感于孟晚舟回国机场的发言](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [脸书在俄罗斯面临10亿卢布罚款](/content/gnews/17/README.md)
+ ` HimalayaRussia`
+
+### [秘翻在线：凛冬将至 中共为塔利班送去了“关爱”](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [对“孟公主”的一封道歉信](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英美开始采用地塞米松和伊维菌素治疗新冠病毒](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [中共残害百姓不减速 毒疫苗加强针全面展开](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [又要放毒？中共在全国大规模改造集中隔离场所](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳大利亚企业反抗政府严厉的封锁](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [文贵视角：将公布孙力军在海外的资金关系网及藏匿的各方重大案情等绝密信息](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [人生无常，又无勇气和担当](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美欧建合作新机制，遏制中共非市场贸易行为](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [突破临界点！中共国9月PMI降至49.6%](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：日本排华趋势已经抬头，海外华人不要成为世界仇视中共的牺牲品](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [孟晚舟回国，算啥？](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [印尼930排华事件五十周年 新中国联邦不会让悲剧重演](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
 ### [含澳大利亚日本美国腐败及南普陀音视频的91号文件啥时公布](/content/gnews/31/README.md)
