@@ -2,112 +2,40 @@
 ---
 
 
-## 孟晚舟回国引发美内部反弹，对爆料革命及其有利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564548/)
+## 中共砸数亿不许谷歌出现郭文贵讲疫苗讲病毒和喜币及盖特
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1564621/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5a0fcb79dd98110210f5a374c015ea23.jpg)https://gtv.org/video/id=61555f54d2e2b817486f92de
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/09/969aa36a902270106d369fb21d6dea26_副本-1.jpg)
+据[2021年9月29日 文贵大直播：中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，虚拟币是美国和中共都抢不走钱，只有喜币最安全；](https://gtv.org/video/id=615466c142a8af3151a74ee3)时间点47：10——
 
-华为的灾难和未来的科技，一切糟糕的事情就是从那一天回来的时候刚开始
-Huawei’s disaster and future technology, all bad things just started when she came back from that day
+你这都是查的都查的谷歌，你们全是谷歌，所以说谷歌不统治人类，它都不好意思，就你们离了谷歌已经完全不能活了，知道了吗？就每次就看你们直播的时候，我现在我越感觉到谷歌是人类的威胁，我真的是我觉得太可怕了。
 
-而且最后我要告诉大家的事情，它对我们爆料革命灭共的事业是巨大的帮助
-And in the end I want to tell you, it’s great help for our whistleblower movement to take down the CCP mission
+就我开会那老头都不会用什么手机的人，在旁边拿手机用语音喊秘书给我查查这个谷歌一下，我说这帮人都是人类上最精英的人，最精英的人他都不会用手机查东西的人，拿着个小破手机，就会语音叫秘书，给我查查，啊~雪莉给我查查谷歌一下子，你千万别把人类这个事儿都当成多么神秘，不是拍电影的！
 
-巨大的帮助， 为什么，从她一回去基本上美国的极右派
-Great help, why? Since she returned that basically the extreme right in the U.S.
+你看你们这些人离了谷歌你啥都是，谷歌让你说瞎话你就说瞎话，说郭文贵是坏蛋，你一定说是坏蛋，你到谷歌一查，郭文贵是大坏蛋！你现在查郭文贵的时候，最近排名，郭文贵钱、郭文贵的媳妇、郭文贵跑路了排在前5位，人家谷歌内部的哥们咱战友告诉我说，七哥我们最近因为你最起码又多收入了几亿美元——广告，说就有个前提条件，大陆的几个广告商说把郭文贵的这个提前、这个提前，他说我们都懵了，这郭文贵最近干什么事那么厉害呀？
 
-我今天跟你说的极右派
-The extreme right I told you about today
+最后发现就是不允许三件事出来——郭文贵讲疫苗，讲疫苗、讲病毒，绝对不能让这个事，郭文贵和疫苗不能出来，所以说战友们，你们说疫苗的事有多大的影响力你看看，第一；第二郭文贵和喜币，然后第三是郭文贵和盖特——就不能出来。
 
-还有当时搞华为这个事情，搞华为的是谁呢，是吧？
-There was also the issue to against Huawei at that time, who was it against Huawei, right?
+往上推是郭文贵的老婆、郭文贵的跑路、郭文贵的没钱了，你说这谷歌，要是别人去谷歌我去那还有好吗？你想想。
 
-第一个是美国的绝对的科技保守派
-The first one is the absolute technological conservative in the United States
+（以下暂略）
 
-就是这些人，像这个背后的AT&T, 搞通讯的
-like AT&T who is behind the whole plan, these people are in communication industry
+撰稿：喜马拉雅的肉夹馍；
 
-还有硅谷的这些人，这些人利益是一致的
-And these people in Silicon Valley have same interests
+审核：喜马拉雅的馍夹肉；
 
-必须干掉华为，不干掉华为咱就完了
-So they must destroy Huawei, they’ll be done if they don’t destroy Huawei
+校对：Maarago
 
-这一波人恼怒了，你把她放回去了
-These people are so angry about having her back to China
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-（因为）这个事恼火了，它失败了
-Because this angered them. They plan failed
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-第二个，极右派当中的金融派
-The second one is the financial faction among the extreme right
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-金融派里面有两派，投华为的，赚华为钱的
-There are two groups in the financial faction, the one who invests in Huawei, who makes money from Huawei
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-还有一个，一定要灭掉华为自己才能赚钱的
-There is another one, they must destroy Huawei so they can make money
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-再一个，现在就是最重要的，也就是这个军方
-Another one which is the most important in the military
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-就是鹰派的军方，（意识到）这个华为要再开始
-It’s the hawks in military, if Huawei is going to start again
-
-那对咱们的威胁太大了
-That threatens us too much
-
-华为要发展下去，绝对美国的基本一半功力被它废掉了
-If Huawei continues to develop, basically it will abolish half of the strengths of the United States
-
-所以说大家要记住，华为要么发展，那成为美国和欧洲最大的劲敌
-So remember, Huawei continues to develop then become the biggest rival of the U.S. and Europe
-
-它成了中共和西方科技较量的第一杆枪
-It becomes the first gun in the technology battle between the CCP and the West
-
-那你说结果很简单嘛，它可能（成功）吗？是吧
-obviously the result is very simple, is it possible to succeed? Is it?
-
-就连跟芯片连在一起了，华为现在主攻的就是芯片
-It’s even connected to the chip. Huawei’s main focus now is the chip design
-
-华为的任正非低调地在搞芯片
-Huawei’s Ren Zhengfei is keeping a low profile in chip R&D
-
-那芯片的较量，一会儿咱再说芯片，未来真正的价值在哪里
-That chip contest, let’s talk about the chip later, where is the real value in the future?
-
-咱们一会儿再聊一聊，所以说你看看
-Let’s talk it later, so let’s take a look
-
-芯片的较量，绝对就把华为弄在了中美，
-The chip contest definitely put Huawei in the U.S. and China
-
-还有中共和全世界的敌对的核心之中里面去
-and also inside the hostile core of the CCP and the whole world
-
-当这牺牲品，那不找死的吗, 是吧，
-It becomes the victim, you’re risking your neck, right?
-
-所以说它最终它一定（死）
-So eventually Huawei must die
-
-不管赢和输它都要被牺牲掉
-Whether it wins or loses, it has to be sacrificed
-
-原视频日期：2021/09/26
-原视频链接: https://twitter.com/se1y7cblljselva/status/1442385896553140228?s=24
-视频时间段 : 0:00-2:15
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

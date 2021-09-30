@@ -2,55 +2,36 @@
 ---
 
 
-## 有声|[金融园]黄金和白银的五种不同特性，更好分散投资
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564513/)
+## 中共接管香港电台，颁布“凌驾性原则”结束新闻自由
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564576/)
 
-配音：纽约香草山美食部 – 玫瑰园
+栏目记者/责任编辑：云豹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-109-2.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+9月29日，官方香港电台对员工发布《香港电台编辑政策及流程》文件，以一国两制为名，行中共新闻管控之实。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（2、3）.001.jpeg)
+文件以13项编辑政策破坏新闻自由、泯灭媒体人良知。文件中指示，香港电台的节目不得提供平台从事鼓励、煽动、宣扬、美化具有认同或同情所谓危害国家安全的行为或活动；也不得报导包含任何所谓不利于国家安全的内容。 显然是针对香港反送中运动以来的媒体报导。
+
+文件还规定了中共新闻审查制度，列出了在制作中必须事先上报的一些内容事项。该文件的发布标志着香港的新闻自由已彻底结束。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [香港電台新約章：維護憲制秩序一國兩制凌駕一切](https://www.cna.com.tw/news/acn/202109290335.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2. [港台編輯政策列明維護憲制秩序和一國兩制屬凌駕性原則](https://news.rthk.hk/rthk/ch/component/k2/1612822-20210929.htm)
 
 
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-摩根士丹利的经济学家在最新出炉的大宗商品报告中对黄金和白银市场进行了差异分析。他们称许多投资者正在寻找方法以应对疫情及疫情之后所有的不确定性。其中一些人的解决方案包括投资贵金属，如黄金和白银。
-
-报告将这些观点分成5个关键部分
-
-1. 白银与全球经济的关系更加密切
-
-50%白银被用于重工业和高科技，这其中包括熟知的智能手机、平板电脑、汽车电气系统、太阳能电池等。因此，白银对世界经济的敏感度远高于黄金，因为黄金更多的用于饰品和国库储备。经济增长必然导致对白银的需求增加，进而刺激价格增长。反之亦然。
-
-2. 白银可能是一个更好的通货膨胀对冲工具
-
-从历史上看，当通货膨胀率上升时，黄金和白银都会取得丰厚的收益。这两种金属都是以美元计价。当美元贬值时，黄金和白银通常会上涨。考虑到白银有更大的工业需求，在通货膨胀和美元下跌的情况下，白银往往比黄金涨得更多。
-
-3. 白银比黄金具有更大的波动性
-
-历史数据表明白银价格波动的百分比在一个交易周期内有可能是黄金的两到三倍，甚至更多。投资者短期内可能会受益，但同时又面临巨大风险。黄金白银的这种波动性可以为投资者提供不同期限的投资回报。
-
-4. 黄金是更好的分散投资工具
-
-对比白银，黄金被认为是更强大的多元化投资工具。原因是它与股票债券等资产类投资相关性非常低，它的工业用途也相当有限。黄金的这种独立性使得它在世界经济中扮演非常稳定的角色。
-
-5. 白银目前比黄金更便宜
-
-现阶段白银的价格更能被个人投资者接受。对于那些刚刚开始建立投资组合或者资金有限的人来说，白银的低成本更具有强大的吸引力。
-
-[文字版原文：\[金融园\]黄金和白银的五种不同特性，更好分散投资](https://gnews.org/zh-hans/1559884/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+终审：FoxRina
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,19 +2,44 @@
 ---
 
 
-## 澳州官员警告说 未接种疫苗的人未来生活会有很多不便
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564260/)
+## 有声| 中共之恶-杀人诛心的洗脑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564335/)
 
-#### 翻译/撰稿：zzballack
+配音：香草山美食部-玫瑰园
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-2-2.jpg)图片来源：美联社
-据《布雷特巴特新闻网》（Breitbart News）9月28日报道，澳大利亚新南威尔士州州长格拉迪斯·贝尔吉格利安 (Gladys Berejiklian) 9月28日告诉记者说，当居家限制令（stay-at-home orders）于今年12月终止时，那些仍未接种中共病毒疫苗的人在日常生活上将面临诸多苦难，从参加社会活动到求职就业都会受到影响，而且这种影响是无限期的。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-贝尔吉格利安告诉第7频道新闻网（7News）：“很多企业已经表示，他们不会招收任何未接种疫苗的人。“ 因为澳州政府严格执行新冠政策，所以警察在街上逮捕那些不戴口罩的人，正如数个视频所显示的那样。
 
-悉尼政府承诺在10月11日至12月1日期间，对已接种疫苗的居民放松封锁限令。“在悉尼的所在地新南威尔士州，酒吧、咖啡馆、健身房和理发店将于10月11日向完全接种疫苗的人重新开放。一旦80%的成年人完全接种了疫苗，更多禁令将被解除。”截至9月28日，澳州的接种率仍为52%。澳大利亚领导人表示，接种率必须达到80%以上，澳州才能完全重新开放。卫生部长格雷格·亨特 (Greg Hunt)敦促人们接种疫苗，“接种疫苗是为了拯救你的生命。”
 
-美国佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis) 9月23日直言不讳地表示：“澳大利亚不能再被视为是一个‘自由的国家’，因为它继续实施军事化的封锁禁令，对人们的监管程度和监控其饮酒一样严厉。现在的澳洲比中共国更自由吗？”
 
-新闻来源：[Australia: Official Warns: ‘Life for the Unvaccinated Will Be Very Difficult Indefinitely’](https://www.breitbart.com/politics/2021/09/28/australia-official-warns-sydney-residents-unvaccinated-will-face-social-isolation-difficult-life/)
+
+
+
+为了苟活当下，我每天步行跑在生存的路上。今天经过学校门口，那清脆悦耳的童音让我的心情变得舒畅。可是仔细聆听，清纯的童音居然朗诵出一句伟大的党妈妈！伴随的还有一个年轻的老师温柔地问孩子党妈妈是否有生日。清纯的童音不仅回答有而且还回答了具体的年份！吓得我连忙离开现场。
+
+学校应该是教育人成才的神圣殿堂，是文明的启蒙地！更是每一个人、每一代人开启梦想的摇篮！如今，它却沦为了共产党的植毒中心！在被其污染的环境、教育下人性窒息的我，在现实生活里表达不了真实的思想，无处述说真实的历史，只有日常的苟活 。
+
+
+
+**文字版原文：[中共之恶-杀人诛心的洗脑](https://gnews.org/zh-hans/1562852/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

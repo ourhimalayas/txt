@@ -2,67 +2,35 @@
 ---
 
 
-## mRNA疫苗技术发明者领头签署《医生宣言》，谴责政府干预违宪并构成“反人类罪”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564259/)
+## 秘翻在线：澳大利亚疫苗专家在法庭上的无知与傲慢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564328/)
 
-栏目记者：正义的小新
-责任编辑：文一
+#### 撰稿：彩虹        
 
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-450.png)图片来源：7News
+9月30日，《悉尼先驱晨报》报道了澳大利亚新南威尔士州民众就中共病毒疫情等问题起诉政府官员和州政府的最新进展。
 
+新南威尔士州卫生部今天（周四）宣布，自6月16日最新中共病毒疫情开始以来，新南威尔士州有337例与中共病毒相关的死亡病例，共有56500中共病毒病例。目前，新州有1090人在医院接受新冠病毒治疗，其中213人在重症监护室。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+根据报道，新南威尔士州强制要求某些行业的工人接种中共病毒疫苗，如要求医生、护士和护理人员在内的医护人员必须在周四之前接种至少一剂中共病毒疫苗才能上班，或者提供一份医疗证明，以详细说明他们为何不能接种中共病毒疫苗。此外，政府还对老年护理人员、新南威尔士州警察、公立学校、学前教育机构的工作人员以及建筑行业也发布了强制接种中共病毒疫苗的规定。
 
+对此，多名普通民众在新南威尔士州最高法院针对州政府和州卫生部长布拉德·哈扎德（Brad Hazzard）发起了诉讼。这些原告包括：老年护理人员娜塔莎·亨利（Natasha Henry）和塞琳娜·克罗(Selina Crowe)，护理人员约翰·莱特（John Larter）、高中特殊教育教师朱莉·拉莫斯（Julie Ramos）和建筑工人阿尔·穆尼尔·卡萨姆（Al-Munir Kassam）。其他原告包括一名孕妇，她是Laverty Pathology化验室的工作人员，也是班克斯敦（Bankstown）医院的一名工人。
 
+原告方认为，要求从10月11日起，接种疫苗者才可以出席某些零售场所的活动，这是不合法和无效的，违反了自然正义的要求。
 
+值得注意的是，代表建筑工人卡萨姆先生出庭的彼得·金（Peter King）大律师说，他认为哈扎德先生没有调查或询问中共病毒（COVID-19）的替代治疗方案。
 
+就一位营养学家的意见，即锌、维生素D和维生素C“将是中共病毒（COVID-19）患者的安全和有效的治疗方法”一事，他向疫苗专家、澳大利亚免疫技术咨询小组（ATAGI）成员克里斯汀·麦卡特尼（Kristine Macartney）教授进行了询问。
 
-数千名医生签署《医生宣言》宣称，应对中共病毒的全球战略完全是“反人类罪”，并谴责所有政策制定者和政客们强行要求人们呆在家里，保持社交距离，强制疫苗等规定没有科学依据，更是违宪的。宣言同时捍卫医生依据专业知识对新冠患者进行早期治疗的基本权利。
+麦卡特尼的回复是：“不，我不同意这个观点。”
 
-这份宣言正是由mRNA疫苗技术主要发明者罗伯特-马龙博士领导的团队撰写的，并由他本人9月12日在罗马举行全球新冠病毒峰会上首次宣读，也是目前官方批评新冠治疗现状最强声。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-76.jpg)
-这些医生指出政府对他们工作的强行干预导致“数十万病人不必要的死亡”，已构成“反人类罪”。
+彼得·金律师也提出了一系列其他治疗药物，包括伊维菌素、羟氯喹、阿司匹林、哮喘病药物singulair以及土霉素等。
 
-根据马龙博士9月28日的推文，目前签名已超过5200个。
+麦卡特尼却回答说，她没有亲自参与任何有关药物治疗中共病毒有效性的研究，但她认为她已经了解了所有可用的证据和评论。
 
-另悉罗马峰会上集中讨论了新冠早期治疗方案问题，其中包括使用伊维菌素和羟氯喹。会议在大胡子医生，泽连科博士的视频致辞中拉开帷幕。马龙博士称其为英雄，应该获得诺贝尔奖。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-12.jpg)
+**新闻来源**
 
+[Expert asked about vitamin C, zinc during court challenge to COVID-19 vaccine mandate](https://www.smh.com.au/national/nsw/expert-asked-about-vitamin-c-zinc-during-court-challenge-to-covid-19-vaccine-mandate-20210930-p58w09.html)
 
-参考链接：
-[More than 3,000 doctors agree: Fauci and other covid policymakers have committed “crimes against humanity”](https://newstarget.com/2021-09-28-doctors-fauci-covid-policymakers-crimes-humanity.html)
-
-[4,200 physicians, scientists sign declaration for early treatment of COVID-19, against gov’t intrusion](https://www.lifesitenews.com/blogs/4200-physicians-sign-declaration-for-early-treatment-of-covid-19-against-govt-intrusion/)
-
-[Robert W Malone, MD： Over 5,200 signatories now.](https://twitter.com/rwmalonemd/status/1442800138448146433?s=21)
-
-视频素材：
-[Global Covid Summit](https://globalcovidsummit.org/news/san-juan-panel-undertreatment-cited-as-a-cause-for-hospitalizations-long-haul-covid)
-
-[International Covid Summt – Roma](https://ippocrateorg.org/2021/09/05/international-covid-summit/)
-
-[ICS 2021 – Meet the people](https://www.youtube.com/watch?v=IQAeguvHFM8)
-
-[Canadian Dr. Ira Bernstein Talks about the Recent Rome Summit & the Related San Juan & CCCA Declarations](https://covexit.com/canadian-dr-ira-bernstein-talks-about-the-recent-rome-summit-the-related-san-juan-ccca-declarations/)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-1.jpg)
-
-终审： Ryan
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**关键词**

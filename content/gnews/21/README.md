@@ -2,44 +2,48 @@
 ---
 
 
-## 有声| 媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564354/)
+## 完全接种疫苗的夫妇二人相隔一分钟死于病毒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564426/)
 
-配音：香草山教育部-蒙古鸿雁
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- **编译： Jenny Ball**
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip166.png)
 
+亲戚们说，59 岁的卡尔·邓纳姆（Cal Dunham）和 66 岁的妻子琳达（Linda）在周日“升到了天国”，然而他们都是采取了预防措施，接种了疫苗的。
 
+这对夫妇悲伤的女儿莎拉·邓纳姆 (Sarah Dunham) 说，父母本月早些时候，在一次家庭露营旅行中生病了，他们没有透露潜在的健康状况。
 
+“[我父亲]在我们全家野营旅行之前打电话给我，说他感觉不舒服，但他认为这就像鼻窦炎，琳达感冒了，然后传染给了他，”她告诉 Fox17。
 
+“第三天他们叫醒我说，‘我们先走了，因为我们感觉不舒服。’所以我帮他们打包好，他们就离开了。”
 
-现役NBA球员凯里·欧文，因反对包括接种强制令在内的新冠限制政策，被媒体全面打压；刚刚过去的媒体日上，欧文再一次表示了不应当将接种和社会责任绑架起来误导大众，新冠疫苗导致很多人已经生病。
+这对夫妇在几天内相继住院，并都使用了呼吸机。两人之前都还患有其他病症。
 
-同队优秀控卫球员凯文·杜兰特在接受采访时表示支持欧文的决定，每个人都有自由选择的权力，也有隐私权；华盛顿奇才队的布拉德利·比尔（Bradley Beal）也强调了新冠疫苗的危害。
+他们手牵着手死去；卡尔于上午 11 点 07 分过世，他的妻子于上午 11 点 08 分去世。
 
+卡尔·邓纳姆在 5 月 15 日用边框更新了他的 Facebook 个人资料图片，以反映他获得了疫苗。
 
+当朋友们评论说他们也都打了疫苗，他还称赞他们“太棒了”。
 
-**文字版原文：[媒体打压限制令反对声音 NBA球星凯里·欧文遭抹黑](https://gnews.org/zh-hans/1560623/)**
+**评论：**
 
+**有多少无辜的人们，在被疫苗夺去生命时，还称赞打疫苗“太棒了”。看到这句话时鼻子一酸，泪水就止不住流出来，久久平复不了心中难以压抑的感觉。**
 
+**文章中可以看到，没有人把他们的不幸归咎于罪魁祸首“疫苗”，现在科学研究已经证明，mRNA疫苗的刺突蛋白，是体内原有疾病的促发剂，而他们夫妇在接种疫苗之前，都有其他疾病。**
 
+**这也是为什么邪恶势力强制人们接种疫苗，因为一旦没有了没有接种人群的对比，邪恶的势力就不用担心，人们会把这对夫妇这样的突然死亡，罪咎到实验期的疫苗，所有接种疫苗的人们，实际上都是疫苗开发第三期人体试验的老鼠，而这个实验连第二期的动物实验都没有过关！**
 
+**这样的违背人伦的灭绝人类罪行，就这样还在“合法”大规模地实施着……**
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+（文章仅代表作者观点，与GNEWS无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
+**素材链接：[infowars](https://www.infowars.com/posts/married-michigan-couple-who-were-both-fully-vaccinated-but-had-underlying-health-conditions-die-of-covid-just-one-minute-apart-while-holding-hands/)**
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

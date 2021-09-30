@@ -2,48 +2,154 @@
 ---
 
 
-## 完全接种疫苗的夫妇二人相隔一分钟死于病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564426/)
+## 疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564540/)
 
-- **编译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cb554e1ec633a6c0f28e0ee6040f2f89.jpg)https://gtv.org/video/id=6155602fd2e2b817486f930a
+大家能搞明白的
+Todos tienen que entender
 
+疫苗和病毒
+La vacuna y el virus
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/tempsnip166.png)
+他对人类的威胁还早着呢
+Aún es temprano en cuanto a su amenaza hacia la humanidad
 
-亲戚们说，59 岁的卡尔·邓纳姆（Cal Dunham）和 66 岁的妻子琳达（Linda）在周日“升到了天国”，然而他们都是采取了预防措施，接种了疫苗的。
+在这个生死面前
+Frente a la vida y muerte
 
-这对夫妇悲伤的女儿莎拉·邓纳姆 (Sarah Dunham) 说，父母本月早些时候，在一次家庭露营旅行中生病了，他们没有透露潜在的健康状况。
+啥事对咱都不是最重要的
+No hay nada más importante que eso para nosotros
 
-“[我父亲]在我们全家野营旅行之前打电话给我，说他感觉不舒服，但他认为这就像鼻窦炎，琳达感冒了，然后传染给了他，”她告诉 Fox17。
+第一, 一定要防范住病毒
+Primero, debemos protegernos del virus
 
-“第三天他们叫醒我说，‘我们先走了，因为我们感觉不舒服。’所以我帮他们打包好，他们就离开了。”
+第二, 不打疫苗
+Segundo, no vacunarse
 
-这对夫妇在几天内相继住院，并都使用了呼吸机。两人之前都还患有其他病症。
+第三, 如果以上发生了
+Tercero, si lo ante mencionado ya sucedió
 
-他们手牵着手死去；卡尔于上午 11 点 07 分过世，他的妻子于上午 11 点 08 分去世。
+咱有解药, 那迅速吃解药
+Tenemos el antídoto, entonces deben tomarlo inmediatamente
 
-卡尔·邓纳姆在 5 月 15 日用边框更新了他的 Facebook 个人资料图片，以反映他获得了疫苗。
+第四, 在这个过程当中
+Cuarto, durante este proceso
 
-当朋友们评论说他们也都打了疫苗，他还称赞他们“太棒了”。
+这个有饭吃, 有钱花, 有房子住
+Si tenemos comida, dinero para gastar, una casa para vivir
 
-**评论：**
+然后呢, 追求更舒服一点
+Y buscamos una mejor comodidad
 
-**有多少无辜的人们，在被疫苗夺去生命时，还称赞打疫苗“太棒了”。看到这句话时鼻子一酸，泪水就止不住流出来，久久平复不了心中难以压抑的感觉。**
+最后, 当这个灾难过后
+Finalmente, luego de este desastre
 
-**文章中可以看到，没有人把他们的不幸归咎于罪魁祸首“疫苗”，现在科学研究已经证明，mRNA疫苗的刺突蛋白，是体内原有疾病的促发剂，而他们夫妇在接种疫苗之前，都有其他疾病。**
+咱幺都能健健康康的活着
+Todos podemos vivir sanos y saludables
 
-**这也是为什么邪恶势力强制人们接种疫苗，因为一旦没有了没有接种人群的对比，邪恶的势力就不用担心，人们会把这对夫妇这样的突然死亡，罪咎到实验期的疫苗，所有接种疫苗的人们，实际上都是疫苗开发第三期人体试验的老鼠，而这个实验连第二期的动物实验都没有过关！**
+这是个大赢家
+Entonces seremos el gran ganador
 
-**这样的违背人伦的灭绝人类罪行，就这样还在“合法”大规模地实施着……**
+G系列是天赐给我们新中国联邦
+La serie G es lo que el Cielo otorgó a nuestro Nuevo Estado Federal de China
 
-（文章仅代表作者观点，与GNEWS无关）
+要没有G系列
+Si no hay esta serie G
 
-**素材链接：[infowars](https://www.infowars.com/posts/married-michigan-couple-who-were-both-fully-vaccinated-but-had-underlying-health-conditions-die-of-covid-just-one-minute-apart-while-holding-hands/)**
+要没有法治基金, 法治社会
+Ni la fundación para el estado de derecho, sociedad del estado de derecho
 
-* * *
+没有G-CLUB, 没有盖特
+G-CLUB, GTTR
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+没有G-TV, G-NEWS
+G-TV, G-NEWS
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+任何一样东西
+Ninguno de ellos
+
+咱活得都不一样
+Viviremos de una manera diferente
+
+你没有希望
+No tendrás esperanza
+
+而且你都是从腰包里边掏钱
+Además, si sacas el dinero de tu bolsillo
+
+你怎能活得更好
+Cómo puedes vivir mejor
+
+还有个你能掏多长时间
+Y cúanto tiempo puedes estar sacando dinero de tu bolsillo
+
+你有多深能让你掏啊
+Qué tan profundo tienes el bolsillo
+
+结果这个新中国联邦这个国家形式
+Como resultado, la forma del Nuevo Estado Federal de China como país
+
+他是上天给我们的
+Es lo que Dios nos otorgó
+
+它给了我们希望
+Él nos dió esperanza
+
+它把我们凝(聚)了一起
+Él unió a todos nosotros
+
+爆料革命又创造出了G系列
+El Movimiento de Denunciantes creó la serie G
+
+这真是
+Esto realmente es
+
+让大家能有财富
+Para que todos tengan riqueza
+
+能有希望
+Esperanza
+
+能有动力凝聚在一起
+Y motivación para estar unidos
+
+还能好好的活下去
+Y vivir bien
+
+就是不可思议啊
+Es increíble todo esto
+
+所以说这才是属于我们的
+Por eso, esto es lo que nos pertenece
+
+不属于我们的
+Lo que no nos pertenece
+
+跟咱没关系的, 你少操闲心
+No es necesario preocuparse por lo que no tiene relación con nosotros
+
+现在开始关心我们G系列
+Ahora empieza a estar pendiente de nuestra serie G
+
+如何更快的, 更稳定的成功
+Cómo tener éxito de forma más rápida y estable
+
+让大家都能分享这个成功的喜悦和结果
+Para que todos puedan compartir el resultado y la felicidad del éxito
+
+这才是最重要的
+Esto es lo más importante
+
+原视频日期：09/27/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1442419230729670666?s=24
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
