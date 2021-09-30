@@ -2,46 +2,44 @@
 ---
 
 
-## 民意调查显示，澳大利亚人正在认同“自由比法律更重要”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1564402/)
+## 美国国家银行监管人曾获得”列宁&#8221;奖
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564376/)
 
-#### **编译报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-47.png)
-**图片来源：****7 News**
+- 编译：西班牙喜悦农场–wenwu
 
-9月29日，澳大利亚著名市场调查公司罗伊·摩根的最新调查数据显示，自新冠病毒大流行以来，相比国家法律，澳大利亚人支持自由的观点有了持续增长。14岁以上的澳大利亚人中29.3%现在同意“自由比法律更重要”，这与2020年3月支持率21.6%相比，增加了近8%。
 
-上周，人民的情绪在墨尔本街头展现很明显。我们可以看到建筑工人、商人和其他人每天都在抗议，反对强制疫苗接种和延长封锁。经常看到墨尔本内城的抗议者成群结队地呼喊“自由”，这违反了维多利亚州目前禁止人们大规模聚集的卫生法令。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-452.png)
 
-从性别上看，女性认同这一声明增长的份额比男性更大，大约四分之一的女性（24.9%）现在同意该声明，比2020年3月季度增加了8.4%，接近2021年3月季度达到的25.2%的高点；超过三分之一（33.8%）的男性同意该声明，比2020年第3季度增加了6.8%。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/百年-2.png)
-图片来源：Roy Morgan
+拜登总统挑选来监督国家银行的监管人，曾经称赞苏联的男女平等，并曾在大学期间获得了“列宁”奖。
 
-从不同年代的人对这句话的反应分析表明，认同与年龄有很大关系，越年轻越高。即便如此，同意“自由比法律更重要”的各年代人都在增加。
+康奈尔大学（Cornell University）法学教授绍尔·奥马洛娃（（Saule Omarova）是哈萨克斯坦人，毕业于莫斯科国立大学（Moscow State University），根据她的简历，她曾获得”列宁个人学术奖学金”。
 
-几乎五分之二的Z世代年轻人（38.1%）同意“自由比法律更重要”，比2020年3月季度增加了5.4%个百分点，比任何其他年龄段都高。
+就在最近的2019年，奥马洛娃[称赞](https://twitter.com/STOmarova/status/1112387645882200064?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1112387645882200064%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.foxnews.com/politics/bidens-pick-regulate-national-banks-lenin-award-praised-ussr-gender-equality)（如图）前苏联共产主义体制–她认为，这一点在美国可以得到应用。“在我来到美国之前，我无法想象像男女工资差距这样的事情在当今世界仍然存在，”奥马洛娃在一条推特上写道。“说说你对前苏联的看法吧，那里没有男女薪酬差距。自由市场体制并不总是’有效的’。”
 
-【备注：Z世代一般指1997年以后出生的任何人。】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-454.png)
 
-然而，在新冠病毒大流行期间，同意“自由比法律更重要”的人中，千禧一代的增幅最大，在2021年6月上升了12.2%点，达到35.4%。
+其作为对华尔街的激烈批评者，奥马洛娃的任命在华盛顿和国家最强大的银行中敲响了警钟，因为她提出的改革是“有效地’结束银行业务’，正如我们所知。我们对她从根本上限制美国银行系统的想法表示严重担忧，这个系统仍然是世界上最多样化和最具竞争力的。”美国银行家协会主席兼首席执行官罗布·尼科尔斯（Rob Nichols）在一份声明中说。
 
-【备注：千禧一代一般指上世纪80-90年代出生的任何人。】
+《福克斯》已经联系了奥马洛娃和白宫以寻求评论，但在发表之前没有得到回复；奥马洛娃的任命与拜登总统对自己作为一个所谓的温和派的描述不一致。她也不是拜登的人选中第一个被指控怀有激进信仰的人。
 
-X世代中超过四分之一的人（26%）现在同意“自由比法律更重要”，比新冠病毒大流行前上升了8.5%点。这是所有年龄段中第二大的增长，涵盖了40多岁和50多岁的人。
+拜登提名大卫·奇普曼（David Chipman）管理酒精烟草和火器局（ATF），但后来因[奇普曼](https://www.foxnews.com/politics/white-house-pulling-atf-nomination-david-chipman-second-amendment-guns)曾对拥枪者发表过尖锐的评论，而取消了任命；与此同时，参议院民主党人正准备[确认](https://www.foxnews.com/politics/senate-dems-prepare-confirm-stone-manning)拜登总统与生态恐怖主义有关的候选人特雷西·斯通-曼宁（Tracy Stone-Manning），以领导土地管理局 (BLM)。
 
-【备注：X世代一般指上世纪六、七十年代出生的任何人。】
+奥马洛娃似乎对共产主义政府的亲和力让人想起前总统巴拉克·奥巴马的顾问[安妮塔](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)[·](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)[邓恩](https://www.foxnews.com/politics/anita-dunn-what-to-know-about-bidens-senior-adviser)。她在奥巴马时代[上任](https://www.youtube.com/watch?v=5qDsrfy-Zvg&amp;feature=emb_imp_woyt)的第一年就把[毛泽东](https://www.independent.co.uk/arts-entertainment/books/news/mao-s-great-leap-forward-killed-45-million-four-years-2081630.html)列为她的英雄之一而引起人们的关注，另一位则是特蕾莎修女。
 
-年龄在60岁以上的澳大利亚人最不可能同意这种说法，只有18%的婴儿潮一代和17.2%的婴儿潮前一代同意“自由比法律更重要”。
+**简评：**
 
-（以上文章仅代表作者个人观点，与Gnews平台无关）
+**看来本届政府让《福克斯》联想到了，拜登总统上台的任务之一是像奥巴马时代一样印美元和增加国家赤字的。而且美元变毛的幅度，或许也会超过许多人的想象！**
 
-原文链接：[29% of Australians now say ‘Freedom is more important than the law’ – Roy Morgan Research](https://www.roymorgan.com/findings/8801-freedom-and-the-law-june-2021-202109270703)
+**另外在中共国，郭文贵先生在2021年9月29日[大直播](https://gtv.org/video/id=615466c142a8af3151a74ee3)中表示：“中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，虚拟币是美国和中共都抢不走钱，只有喜币最安全；新中国联邦是超越国家的概念，建立独一无二的体制带给战友财富并有无限希望。”**
 
-编辑/发布：文泓
+**最后，我们爆料革命将会庆祝喜币在10月份的上市（还有每年将会多出10亿个喜币）。**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章仅代表作者观点 与GNEWS无关）
+
+新闻来源：《[福克斯](https://www.foxnews.com/politics/bidens-pick-regulate-national-banks-lenin-award-praised-ussr-gender-equality)》｜作者：布拉德福德·贝茨｜发布时间：2021年9月29日
+
+* * *
+
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-2.jpeg)

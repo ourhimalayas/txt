@@ -2,111 +2,153 @@
 ---
 
 
-## 孟晚舟回国引发美内部反弹，对爆料革命及其有利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564548/)
+## 疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564540/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/5a0fcb79dd98110210f5a374c015ea23.jpg)https://gtv.org/video/id=61555f54d2e2b817486f92de
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/09/cb554e1ec633a6c0f28e0ee6040f2f89.jpg)https://gtv.org/video/id=6155602fd2e2b817486f930a
+大家能搞明白的
+Todos tienen que entender
 
-华为的灾难和未来的科技，一切糟糕的事情就是从那一天回来的时候刚开始
-Huawei’s disaster and future technology, all bad things just started when she came back from that day
+疫苗和病毒
+La vacuna y el virus
 
-而且最后我要告诉大家的事情，它对我们爆料革命灭共的事业是巨大的帮助
-And in the end I want to tell you, it’s great help for our whistleblower movement to take down the CCP mission
+他对人类的威胁还早着呢
+Aún es temprano en cuanto a su amenaza hacia la humanidad
 
-巨大的帮助， 为什么，从她一回去基本上美国的极右派
-Great help, why? Since she returned that basically the extreme right in the U.S.
+在这个生死面前
+Frente a la vida y muerte
 
-我今天跟你说的极右派
-The extreme right I told you about today
+啥事对咱都不是最重要的
+No hay nada más importante que eso para nosotros
 
-还有当时搞华为这个事情，搞华为的是谁呢，是吧？
-There was also the issue to against Huawei at that time, who was it against Huawei, right?
+第一, 一定要防范住病毒
+Primero, debemos protegernos del virus
 
-第一个是美国的绝对的科技保守派
-The first one is the absolute technological conservative in the United States
+第二, 不打疫苗
+Segundo, no vacunarse
 
-就是这些人，像这个背后的AT&T, 搞通讯的
-like AT&T who is behind the whole plan, these people are in communication industry
+第三, 如果以上发生了
+Tercero, si lo ante mencionado ya sucedió
 
-还有硅谷的这些人，这些人利益是一致的
-And these people in Silicon Valley have same interests
+咱有解药, 那迅速吃解药
+Tenemos el antídoto, entonces deben tomarlo inmediatamente
 
-必须干掉华为，不干掉华为咱就完了
-So they must destroy Huawei, they’ll be done if they don’t destroy Huawei
+第四, 在这个过程当中
+Cuarto, durante este proceso
 
-这一波人恼怒了，你把她放回去了
-These people are so angry about having her back to China
+这个有饭吃, 有钱花, 有房子住
+Si tenemos comida, dinero para gastar, una casa para vivir
 
-（因为）这个事恼火了，它失败了
-Because this angered them. They plan failed
+然后呢, 追求更舒服一点
+Y buscamos una mejor comodidad
 
-第二个，极右派当中的金融派
-The second one is the financial faction among the extreme right
+最后, 当这个灾难过后
+Finalmente, luego de este desastre
 
-金融派里面有两派，投华为的，赚华为钱的
-There are two groups in the financial faction, the one who invests in Huawei, who makes money from Huawei
+咱幺都能健健康康的活着
+Todos podemos vivir sanos y saludables
 
-还有一个，一定要灭掉华为自己才能赚钱的
-There is another one, they must destroy Huawei so they can make money
+这是个大赢家
+Entonces seremos el gran ganador
 
-再一个，现在就是最重要的，也就是这个军方
-Another one which is the most important in the military
+G系列是天赐给我们新中国联邦
+La serie G es lo que el Cielo otorgó a nuestro Nuevo Estado Federal de China
 
-就是鹰派的军方，（意识到）这个华为要再开始
-It’s the hawks in military, if Huawei is going to start again
+要没有G系列
+Si no hay esta serie G
 
-那对咱们的威胁太大了
-That threatens us too much
+要没有法治基金, 法治社会
+Ni la fundación para el estado de derecho, sociedad del estado de derecho
 
-华为要发展下去，绝对美国的基本一半功力被它废掉了
-If Huawei continues to develop, basically it will abolish half of the strengths of the United States
+没有G-CLUB, 没有盖特
+G-CLUB, GTTR
 
-所以说大家要记住，华为要么发展，那成为美国和欧洲最大的劲敌
-So remember, Huawei continues to develop then become the biggest rival of the U.S. and Europe
+没有G-TV, G-NEWS
+G-TV, G-NEWS
 
-它成了中共和西方科技较量的第一杆枪
-It becomes the first gun in the technology battle between the CCP and the West
+任何一样东西
+Ninguno de ellos
 
-那你说结果很简单嘛，它可能（成功）吗？是吧
-obviously the result is very simple, is it possible to succeed? Is it?
+咱活得都不一样
+Viviremos de una manera diferente
 
-就连跟芯片连在一起了，华为现在主攻的就是芯片
-It’s even connected to the chip. Huawei’s main focus now is the chip design
+你没有希望
+No tendrás esperanza
 
-华为的任正非低调地在搞芯片
-Huawei’s Ren Zhengfei is keeping a low profile in chip R&D
+而且你都是从腰包里边掏钱
+Además, si sacas el dinero de tu bolsillo
 
-那芯片的较量，一会儿咱再说芯片，未来真正的价值在哪里
-That chip contest, let’s talk about the chip later, where is the real value in the future?
+你怎能活得更好
+Cómo puedes vivir mejor
 
-咱们一会儿再聊一聊，所以说你看看
-Let’s talk it later, so let’s take a look
+还有个你能掏多长时间
+Y cúanto tiempo puedes estar sacando dinero de tu bolsillo
 
-芯片的较量，绝对就把华为弄在了中美，
-The chip contest definitely put Huawei in the U.S. and China
+你有多深能让你掏啊
+Qué tan profundo tienes el bolsillo
 
-还有中共和全世界的敌对的核心之中里面去
-and also inside the hostile core of the CCP and the whole world
+结果这个新中国联邦这个国家形式
+Como resultado, la forma del Nuevo Estado Federal de China como país
 
-当这牺牲品，那不找死的吗, 是吧，
-It becomes the victim, you’re risking your neck, right?
+他是上天给我们的
+Es lo que Dios nos otorgó
 
-所以说它最终它一定（死）
-So eventually Huawei must die
+它给了我们希望
+Él nos dió esperanza
 
-不管赢和输它都要被牺牲掉
-Whether it wins or loses, it has to be sacrificed
+它把我们凝(聚)了一起
+Él unió a todos nosotros
 
-原视频日期：2021/09/26
-原视频链接: https://twitter.com/se1y7cblljselva/status/1442385896553140228?s=24
-视频时间段 : 0:00-2:15
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+爆料革命又创造出了G系列
+El Movimiento de Denunciantes creó la serie G
+
+这真是
+Esto realmente es
+
+让大家能有财富
+Para que todos tengan riqueza
+
+能有希望
+Esperanza
+
+能有动力凝聚在一起
+Y motivación para estar unidos
+
+还能好好的活下去
+Y vivir bien
+
+就是不可思议啊
+Es increíble todo esto
+
+所以说这才是属于我们的
+Por eso, esto es lo que nos pertenece
+
+不属于我们的
+Lo que no nos pertenece
+
+跟咱没关系的, 你少操闲心
+No es necesario preocuparse por lo que no tiene relación con nosotros
+
+现在开始关心我们G系列
+Ahora empieza a estar pendiente de nuestra serie G
+
+如何更快的, 更稳定的成功
+Cómo tener éxito de forma más rápida y estable
+
+让大家都能分享这个成功的喜悦和结果
+Para que todos puedan compartir el resultado y la felicidad del éxito
+
+这才是最重要的
+Esto es lo más importante
+
+原视频日期：09/27/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1442419230729670666?s=24
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

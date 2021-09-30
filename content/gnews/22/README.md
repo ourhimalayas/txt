@@ -2,29 +2,25 @@
 ---
 
 
-## 中共接管香港电台，颁布“凌驾性原则”结束新闻自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564576/)
+## NBA以禁止上场和停薪警告未接种新冠疫苗球员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564645/)
 
-栏目记者/责任编辑：云豹
+栏目记者/责任编辑：Yousei
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-9月29日，官方香港电台对员工发布《香港电台编辑政策及流程》文件，以一国两制为名，行中共新闻管控之实。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（2、3）.001.jpeg)
-文件以13项编辑政策破坏新闻自由、泯灭媒体人良知。文件中指示，香港电台的节目不得提供平台从事鼓励、煽动、宣扬、美化具有认同或同情所谓危害国家安全的行为或活动；也不得报导包含任何所谓不利于国家安全的内容。 显然是针对香港反送中运动以来的媒体报导。
+NBA 通讯执行副总裁迈克·巴斯（Mike Bass）在29日的一份声明中表示：因不遵守当地疫苗接种规定而导致无法参赛的球员将不能获得报酬。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（7、10）視頻備用.001.jpeg)
+据了解，有90%的NBA球员已完成疫苗接种，这表示联盟内还有50名左右的球员未接种疫苗。这其中包含明星球员：纽约篮网队的欧文（Kyrie Irving），和旧金山金州勇士队的威金斯（Andrew Wiggins），两人的年收入均在3000万美元以上。尽管疫苗规定会对其出赛和收入造成影响，但两人仍表示将做正确的事情，继续为信仰而战。
 
-文件还规定了中共新闻审查制度，列出了在制作中必须事先上报的一些内容事项。该文件的发布标志着香港的新闻自由已彻底结束。
+NBA拒绝球员的宗教豁免请求，对未打疫苗球员进行个人财产惩罚，实际上是一种变相强制。在这次大疫情下，西方世界的自由民主，似乎已完全被邪恶的专制意识形态所侵蚀。只有让更多的人了解真相，才能避免世界陷入黑暗沼泽而不自知。只有坚定信仰，才能获得真正的自由。
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [香港電台新約章：維護憲制秩序一國兩制凌駕一切](https://www.cna.com.tw/news/acn/202109290335.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2. [港台編輯政策列明維護憲制秩序和一國兩制屬凌駕性原則](https://news.rthk.hk/rthk/ch/component/k2/1612822-20210929.htm)
-
+参考链接：[NBA tells unvaccinated players they won’t get paid for missed games](https://abcnews.go.com/Sports/nba-tells-unvaccinated-players-paid-missed-games/story?id=80305629)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：FoxRina
+终审：暗黑
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

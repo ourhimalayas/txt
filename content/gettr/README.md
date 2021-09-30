@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/30/2021 3:02 PM (UTC)`
+
+FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再有效，加强针的安全性和有效性也并没有数据支持<br/>Before approving the Pfizer’s COVID booster dose, FDA didn’t provide evidence that the first two doses are not effective anymore, also the safety and effectiveness of Pfizer's COVID vaccine booster dose is not supported by data<br/>
+![img](https://media.gettr.com/group27/getter/2021/09/30/15/02/5879d24b-e71e-e5ba-bfa4-3a42c4940c2d/out.jpg)
+
+---
+
 `@miles 9/30/2021 1:57 PM (UTC)`
 
 9月30号：邪恶势力控制媒体后，对人类的洗脑达到的境界，空前绝后。这场人类的大屠杀还没有真正的开始。<br/><br/>【打了三针的教授骂完没打疫苗的教授12天后英勇就义】
@@ -293,13 +300,6 @@ An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一
 
 9-27日：新中国联邦的疫苗灭共．拯救人类……荻得巨大的成功！<br/><br/>【澳洲纽省省长最新发布政令：对于打过针的或从未打过针的：从十二月一号开始，可以自由出入餐厅、Club ，所有户外活动，走入正常生活。<br/>从10月11日，注射过疫苗针的先达到70％的场所自由行动。<br/>从10月18号开始，达到80％的场所自由行动。😊<br/>对于从未疫苗注射的居民必须要等待3-4个星期后才能与前面所述的70％.80％注射疫苗针所指定的场所可以自由出入。<br/>从十二月一号开始：接受过疫苗注射的和从未接受过疫苗注射的全部恢复正常生活。<br/>God bless Australia 🇦🇺】
 ![img](https://media.gettr.com/group20/getter/2021/09/27/20/28/a60358c6-85b4-4d23-78ed-c763687aff79/507e4d2a5be9c38382f526a48f9fd812.jpg)
-
----
-
-`@miles 9/27/2021 6:55 PM (UTC)`
-
-对新冠疫苗说“不”!<br/>在为时已晚之前，对强制要求接种新冠疫苗说“不”!<br/>传播真相，阻止一切灾难!<br/><br/>这种臭名昭著的疫苗不仅剥夺了我们的权利还杀害了我们的亲人。有多少人被迫违背自己的意愿注射疫苗!有多少人因为这种疫苗而死!有多少人面临着未来可能发生的副作用的问题?例如自身免疫性神经疾病，包括四肢和肌肉的无力和瘫痪，血栓性血小板减少综合征(TTS)，导致血凝块和低血小板水平，持续性头痛，视觉改变，腹痛，胸痛，腿痛，四肢寒冷和急性瘀伤或出血。<br/><br/><br/>如果你想保护你的家人，请让他们远离新冠疫苗，传播真相，向有需要的人伸出援助之手。<br/><br/>对于已经接种疫苗的人，请避免第二和第三次接种;如果你开始出现症状，请寻求帮助，不要犹豫，请医生给你开伊维菌素加强力霉素和青蒿素治疗Covid-19感染
-![img](https://media.gettr.com/group39/getter/2021/09/27/18/55/178be96a-3913-f107-8da7-ef24ac79d2d9/out.jpg)
 
 ---
 

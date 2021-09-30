@@ -2,55 +2,47 @@
 ---
 
 
-## 蓬佩奥致梅根·凯利：米利没有向我简要介绍
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564322/)
+## 白思豪的警务专员和COVID顾问与中共的&#8221;执法合作&#8221;
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1564268/)
 
 - 编译：西班牙喜悦农场–wenwu
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/005-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/001-7.jpg)
 
-前美国国务卿迈克·蓬佩奥否认现任参谋长联席会议主席马克·米利将军有告知他，他曾告诉中共国军方（张作成），他将在川普政府的最后几天提醒他们注意任何即将发生的袭击。他说，如果米利真这样做，那他的行为将是“一个真正的问题”。
+詹姆斯·奥尼尔（james O’Neill）曾被纽约市长比尔·德·白思豪（Bill de Blasio）提名为纽约市警察局长，也是COVID-19的现任高级顾问，他曾多次在美中公共事务协会（ACPAI）发言，该协会与中共高层联系的影响力团体有密切联系，寻求”收编和中立化反对派”的政权。
 
-蓬佩奥周三（29日）在 SiriusXM 卫星广播上对[“梅根](https://www.youtube.com/watch?v=GpDs_bZKiPE)[·](https://www.youtube.com/watch?v=GpDs_bZKiPE)[凯利脱口秀”](https://www.youtube.com/watch?v=GpDs_bZKiPE)的评论，直接反驳了米利周二（28日）在参议院军事委员会的证词，而且蓬佩奥也为《危险》一书中关于川普在任期最后几天的报道而辩护。
+尼尔于 2016 年至 2019 年期间担任第 43 任警务专员，在其任职期间曾三度在美中公共事务协会 (ACPAI)中[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。它们分别是在：2016年[8](https://www.americachina.us/2017)月、2017 年 9 月和[2018 年](https://archive.ph/9h1NL)[11](https://www.americachina.us/2018) [月](https://archive.ph/9h1NL)的“警务专员午宴”（如图）上[发表讲话](https://twitter.com/NYPD10Pct/status/1067846450439176192?s=20)。
 
-《危险》一书声称，米利于 1 月 8 日给他的中共国军方李作成将军打电话，并试图缓解中共国对可能发生来自美国的军事打击的担忧，并告诉他如果川普有任何即将采取的行动，他会通知他的；[米利作证说](https://www.politico.com/news/2021/09/28/milley-china-congress-hearing-514488)，蓬佩奥和白宫幕僚长马克·梅多斯都知道这通电话。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/002-7.jpg)
 
-“如果他真的通共了（告诉了李作成：除非我们警告你，否则我们不会攻击你），那简直是疯了，对吧？”蓬佩奥说。“那只是……可以肯定的是，米利没有告诉白宫幕僚长梅多斯或我，因为——我不知道他是否告诉我们，他认为他在通共的电话中告诉了我们，但我可以向你保证，白宫幕僚长梅多斯会立即打电话给我说（嘿，我们这里有一个真正的问题）。如果我听到它，我应该会更加的激进反共。如果米利将军正是这样告诉中共国军方的，我会非常惊讶。我和米利将军共事过很多次。但如果他告诉《危险》的作者[Bob] Woodward和[Robert] Costa他说了这些，这是他必须要交代的事情。这不是他这个位置要做的事情。”
+ACPAI 网站显示，该组织强大力[支持](https://www.americachina.us/goals)美中两国在“执法合作”、“军事磋商”和“流行病控制”等领域，建立安全伙伴关系。同样，ACPAI“强烈支持美利坚合众国和中华人民共和国之间的互免签证计划”，以及两国之间的自由贸易协定。
 
-蓬佩奥还反驳了雅虎一篇基于匿名消息来源的报道，即美国正在策划暗杀维基解密创始人朱利安·阿桑奇的计划。虽然蓬佩奥承认该报道的部分内容，如美国政府正在努力防止机密信息的披露，是真实的，但他否认这包括谋划杀害阿桑奇。
+ACPAI 的会长滕绍骏（Fred Teng)，[同时还兼任](https://bushchinafoundation.org/people/fred-teng/)中美交流基金会（CUSEF）的高级美国代表。
 
-蓬佩奥先生表示：“他们应该很熟悉写这样的小说。我们曾经从事过违反美国法律的活动吗？你知道这里的规则。你确切地知道中央情报局是如何运作的，也就是说美国法律不允许我们进行暗杀。我们从未通过违法的方式行事，也从未规避——这篇报道中有意暗示我们规避了律师，来进行这些类型的流氓活动。”
+CUSEF 是由中共国统战的“最高级别实体”副主席[董建华](http://usa.chinadaily.com.cn/2016-01/26/content_23262245.htm)创办的，美国[政府](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)认为[CUSEF](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)旨在“吸收和消除可能反对中共政策和政权的潜在反对者”。并“影响外国政府采取行支持北京的行动或立场”。董建华本人曾在 2016 年的 ACPAI 活动中（如图）发表了讲话。此外， CUSEF 理事 Ronnie [Chan](http://www.nordvann.com/news_and_events_detail.asp?id=19)（如图）也曾为 ACPAI 表过三次讲话。ACPAI 还主办了由中国共产党官员参加的活动，包括中共国联合国大使、对外贸易经济合作部副部长和总领事，以及中共国官方媒体主持人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/006-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/003-5.jpg)
+
+ACPAI 还举办了“与（中国人民解放军退役少将）姚云珠博士的私人早餐论坛”，同时该协会还举办了由解放军军事科学院主办的”安全伙伴关系研讨会”。
+
+根据该协会的使命声明，在上述中国共产党官员的帮助下，ACPAI 试图“聚集我们的专业知识和我们的朋友网络，以促进美中关系的转型；在二十一世纪，与中华人民共和国的合作伙伴关系对美利坚合众国来说是重要和必要的。
+
+尽管奥尼尔与该组织有联系，但德·白思豪还是在 2020 年 4 月重新聘请了这位前警察局长，并兼任担任中共病毒（COVID-19）高级顾问。
+
+“在这个职位上，奥尼尔（如图）将监督纽约市医院内个人防护和医疗设备的供应和分配，因为 COVID-19 危机导致需求持续激增。奥尼尔将在医院内创建、运作和管理一个供应检查制度，以确保新供应品的快速周转，并核实每家医院正在向一线医护人员推送所需设备，”纽约市长办公室[解释说](https://www1.nyc.gov/office-of-the-mayor/news/215-20/mayor-de-blasio-james-o-neill-covid-19-senior-advisor#/0)。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/004-4.jpg)
 
 **简评：**
 
-**当美国国务院仍[拒绝](https://www.thegatewaypundit.com/2021/09/outrageous-biden-state-dept-refuses-entry-private-rescue-flight-28-americans-83-green-card-members-afghanistan/)来自阿富汗的28名美国公民和83名美国绿卡成员的私人救援航班（包括了50名儿童）入境美国的时候，阿富汗的“混乱”撤军延续到了美国境内。这架私人救援航班从海关已经批准了在纽约降落，到后来通知转飞在华盛顿郊区外杜勒斯国际机场降落，最后竟然接收到了奇葩的一个驱逐出境的通知。难道说，白宫认为这架飞机是像911一样被塔利班恐怖分子劫机了吗？**
+**奥尼尔被中共蓝金黄了，并且可能带着白思豪的任务，所以白思豪在中共病毒在美国肆虐之时，重新聘请了他回来担任 中共病毒高级顾问。**
 
-**同样的阿富汗撤军“混乱”在周三的众议院军事委员会的国防部长奥斯汀中[显现](https://www.newsmax.com/newsfront/milley-afghanistan-kabul-civilians/2021/09/29/id/1038490/)出来。他表示原计划喀布尔撤军在4月开始，但国务院直到8月14日才批准撤离非战斗人员的任务；这位国防部长还表示。美国国务院的担忧是排在最优先位置——前阿富汗政府曾警告过国务院，如果美方以过快的速度撤回喀布尔的非战斗人员，将导致前阿富汗政府垮台。**
+**本篇报道明确了，这位纽约市警察局局长是管控了纽约市医院的应对疫苗所需要的设备。当时还是川普的时代，川普认为纽约市谎报了呼吸机等的医疗储存数量，而纽约市为驳斥了川普；值得一提的是，华为向纽约州捐出了1万个N95口罩、1万个手套、2万件防护服和5万个防护镜，还包括了纽约[紧急](https://c.m.163.com/news/a/F8GH0AB10519EO06.html)向中共国求购1.5万台呼吸机！**
 
-**也就是说，只要尽可能的把美国公民和阿富汗的盟友丢在喀布尔，就可以保证前阿富汗政府不会垮台。可见，美国政府为了阿富汗不垮台用足了吃奶的力气了。我怎么越来越乱了…他们或许真的熟悉写小说。**
+（文章仅代表作者观点 与GNEWS无关）
 
-（文章仅代表作者观点，与**GNEWS**无关）
-
-新闻来源：《[大全](https://www.newsmax.com/newsfront/pompeo-milley-meadows-china/2021/09/29/id/1038495/)》｜作者：布赖恩**·**特鲁斯德尔｜发布时间：**2021**年**9**月**29**日
-
-相关内容文章：
-
-- [中共国：塔利班赶走阿富汗政府就具有合法性](https://gnews.org/zh-hans/1467026/)
-- [麦考尔：拜登因阿富汗撤军**“**手上沾满鲜血”](https://gnews.org/zh-hans/1471720/)
-- [蓬佩奥：拜登“没能履行”在阿富汗灾难性的撤军中保护美国人](https://gnews.org/zh-hans/1471702/)
-- [拜登和习神一样，不听将军的](https://gnews.org/zh-hans/1474594/)
-- [科尔特斯：欢迎来到拜登版美国大屠杀](https://gnews.org/zh-hans/1476374/)
-- [目前中共国、俄罗斯和巴基斯坦仍选择留在阿富汗](https://gnews.org/zh-hans/1482984/)
-- [川普就阿富汗恐怖袭击发表声明](https://gnews.org/zh-hans/1493996/)
-- [国会议员宣布他将提出针对拜登的弹劾条款](https://gnews.org/zh-hans/1497339/)
-- [塔利班在最后一批美军撤离阿富汗时，庆祝胜利](https://gnews.org/zh-hans/1501319/)
-- [潜在的2024年总统候选人为川普的阿富汗战略辩护](https://gnews.org/zh-hans/1507998/)
-- [英国军官：拜登比塔利班更危险](https://gnews.org/zh-hans/1515961/)
-- [川普呼吁以叛国罪审判“蠢货”马克·米利将军](https://gnews.org/zh-hans/1537097/)
-
+新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/de-blasio-commisioner-spoke-at-ccp-influence-group/)》｜作者：娜塔丽·温特斯｜发布时间：2021年9月29日
 
 * * *
 
