@@ -2,26 +2,25 @@
 ---
 
 
-## 澳大利亚企业反抗政府严厉的封锁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564953/)
+## 中共残害百姓不减速 毒疫苗加强针全面展开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564969/)
 
-栏目记者/责任编辑：DM
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-466.png)
-零对冲昨日报导，澳洲许多大公司的领导人，包括BHP、麦格理和澳洲航空的澳大利亚商业委员会签署了一封公开信，要求政府考虑经济和民意，解除过于严厉的封锁政策，像其他国家一样开放边境。
+栏目记者：禹水沃土 
+责任编辑：在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-467.png)
+9月29日，中共国务院联防联控表示，新冠病毒疫苗加强免疫的相关政策，和实施措施正在加紧制订。已接种人口中，将对易感及60岁以上的重点人群开展“加强免疫”。疫苗灾难已经在全世界呈爆发趋势，大量受害者因为注射了新冠疫苗而身患重病甚至死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-31.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-28.jpeg)
 
-签署该公开信的公司雇佣了近100万澳大利亚人，澳洲的大小企业均在政府的疫情政策中苦苦挣扎，签署者之一，墨尔本基金管理公司乐筹金融的首席执行官格雷格·奥尼尔表示：现在是拿出勇气和诚实的时候了。
-
-从封锁到疫苗，澳州政府在疫情诸多政策上的专政表现，已经引起了澳洲民众不满与反抗，此番澳洲大企业的联合发声，为澳洲抗争带来了希望。
+在国内，信息被高度屏蔽。对有关疫苗不良副作用的各种社交媒体消息，都被中共极力掩盖和打压，多数民众还根本不知道毒疫苗的恐怖，老百姓面对的将是一个无比惨烈的冬天。
 
 （本文仅代表作者观点）
 
-参考链接：[Australia’s Corporations Rebel Against Government’s Draconian COVID Lockdowns](https://twitter.com/zerohedge/status/1443390250844295169?s=21)
+参考链接：[新冠疫苗加强针要来了 谁先打？能混打吗？](https://news.sina.com.cn/c/2021-09-30/doc-iktzscyx7164064.shtml)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：FoxRina
+终审：暗黑
 校对/发稿：谐趣园
 
 **更多资讯，更多关注**

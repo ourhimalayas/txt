@@ -2,45 +2,72 @@
 ---
 
 
-## 参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1565386/)
+## 川普被TWITTER替代者GETTR所吸引
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1565390/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+- 编译：Lulumi
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/APTOPIX_Virus_Outbreak_Trump.jpg)GETTR和Parler等 “言论自由 “平台正在争相与前总统川普签约。美联社
 
+据《纽约邮报》报道，川普的前高级顾问杰森·米勒(Jason Miller)告诉《纽约邮报》，他已经与川普就加入该平台讨论了几个月，GETTR自6月上线以来，已经注册了250万用户。
 
+米勒想让川普加入GETTR，认为如果这位前总统成为会员，他的数百万粉丝就会跟随。
 
-据[门道专家](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)9月30日报道，美国参议员罗恩-约翰逊在参议院会议上讨论了目前与COVID-19疫苗有关的COVID-19大流行病。
+川普现在还没有同意注册。米勒告诉《邮报》，川普已经远离了以伏特加、牛排和领带命名的日子，他想在加入之前 “确保这是一个可行的平台”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1097-1-vax-johnson.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)
+目前，GETTR看起来像一个基础版的Twitter，但米勒说，该平台计划在未来几个月内增加短信和直播等功能。GETTR Pay是苹果和谷歌Pay的替代品，预计将于明年推出。
 
-约翰逊参议员展示的一张图表显示，疫苗并没有像宣传的那样发挥作用。他对与COVID-19疫苗有关的冠状病毒病例和冠状病毒死亡的时间线，提出了如下三个非常重要的观点：
+根据Axios上个月的报道，川普还想要一些其他东西作为加入的条件——GETTR的股权。川普的发言人利兹·哈灵顿(Liz Harrington)没有立即回复评论请求。
 
-“在疫苗推出之前，确诊冠状病毒的总病例和死亡人数已经大幅下降；疫苗接种率在2021年初开始攀升，如今达已到60%左右；尽管60%的人口已经接种了疫苗，但今年夏天的病例和死亡人数仍再次激增”。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-1231067108.jpg)川普前高级顾问杰森·米勒正试图让他的老上司加入GETTR。彭博社Getty Images
 
-现在公众没有得到需要做出知情选择的准确信息，而大药厂又对疫苗的后果不承担任何责任。这都将施打疫苗的公众陷于非常不利的境地。
+米勒不愿证实这一报道，但表示自8月以来与前总统的谈判取得了进展。他拒绝提供细节。他是在GETTR纽约总部（华丽的服装品牌范思哲的前办公室位于哥伦布圆环3号20层）附近的一家餐厅吃牛排午餐时接受本报采访的。
 
-（本文仅代表作者观点）
+GETTR获得了郭文贵先生的资助，他是2014年逃离中国的商人，与川普的前顾问史蒂夫·班农关系密切。该公司表示，它还有其他未透露姓名的支持者，到目前为止已经筹集了约7500万美元。米勒告诉《邮报》，他最近一直在与海外的潜在投资者交谈，包括在拉丁美洲和欧洲。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+GETTR不是第一个邀请前总统川普的平台。
 
-编辑/校对/发稿：小鹿
+Parler是Twitter和Facebook的另一个以自由言论为导向的替代方案，在2020年底在保守派中获得了吸引力，然后在1月6日的骚乱之后，亚马逊网络服务禁止该公司，使其应用程序在一个月内无法使用而崩溃。据《纽约杂志》报道，川普曾考虑加入Parler，但当该公司拒绝审查他的批评者时，他放弃了。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-1234596140-1.jpg)GETTR一直在努力解决内容审核的问题。SOPA图片/LightRocket via Gett
 
+GETTR也依靠亚马逊网络服务提供支撑其网站的技术，但米勒说，如果亚马逊切断服务，它有一个备份计划，以避免类似Parler的长时间崩溃。
 
-**更多资讯，更多关注**
+作为其 “言论自由 “精神的一部分，GETTR避免了对一些有争议的内容进行审查。米勒说，虽然YouTube禁止了许多 “反疫苗 “的内容，但GETTR允许此类内容在其网站上出现，他必须出示疫苗接种证明并戴上口罩才能进入他与邮报会面的餐厅。
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+米勒希望通过使GETTR的范围更加国际化，使其有别于竞争对手的亲川普平台。米勒已经说服巴西总统博索纳罗(Jair Bolsonaro)加入，并正在推动其他全球右翼民粹主义人物加入。
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+这位首席执行官9月前往欧洲招募政治家，包括法国反移民媒体人士埃里克·泽莫尔(Éric Zemmour)，他被广泛认为是该国2022年总统选举的主要候选人。
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/AFP_9KB3PE.jpg)巴西总统Jair Bolsonaro在GETTR上。AFP via Getty Images
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+米勒还会见了法国另一位保守派政治人物玛丽昂·马雷夏尔(Marion Maréchal)，她是玛丽娜·勒庞(Marine Le Pen)的侄女，以及欧洲议会前议员、英国脱欧设计师奈杰尔·法拉奇(Nigel Farage)。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+但是，经营一家社交媒体公司并不只是需要完成高大上的任务，比如飞往世界各地与政治家们打交道。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+米勒说，作为首席执行官，他的大部分时间都在处理内容审核问题，包括Politico报道的圣战分子处决视频的泛滥和斯坦福大学研究人员8月标记的儿童色情内容。
+
+GETTR表示，它正在解决这些问题，并加强了由海外合同工组成的内容审核团队。米勒没有说GETTR到底雇用了多少版主，但他说该公司在全球共有约300名员工和全职承包商，包括纽约的50人。
+
+在米勒与川普的谈话中，隐约可见这位前总统在2024年再次参选的可能性，这位前顾问说这一可能性越来越大。
+
+米勒说，他已经告诉川普，只有在前总统加入平台，带来数百万用户，并帮助推动公司成功上市后，他才会辞职为川普的竞选工作。如果这没有发生，米勒说他希望以兼职身份为川普的竞选提供建议。
+
+如果川普不参选，米勒预测佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)将成为共和党提名的领跑者。至于德桑蒂斯，他似乎已于7月加入GETTR。
+
+**评论：**
+
+**虽然目前西方媒体话语还主要掌握科技巨头及左派势力手中，但他们对美国大选舞弊，中共病毒真相，以及疫苗危害的颠倒黑白扭曲事实的掩盖，已经彻底把他们伪善的面具撕了下来。唯真不破的G系列媒体平台GTV，GNews，GETTR必定会取代这些无良媒体，重新拿回话语权。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[纽约邮报](https://nypost.com/2021/09/29/donald-trump-being-courted-by-twitter-alternative-gettr-run-by-his-ex-adviser/)(New York Post) | 作者：Theo Wayt|发布时间：2021年9月29日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
