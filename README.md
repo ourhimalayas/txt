@@ -15,119 +15,119 @@
 
 ---
 
-### [秘翻在线：数据显示使用瑞德西韦处方的中共病毒患者26%死亡](/content/gnews/1/README.md)
+### [生命重心的转向——寻找真相](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [特鲁多推进强制联邦公务员的COVID-19疫苗接种任务](/content/gnews/2/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [9/29/2021 郭先生直播：没打疫苗和拥有虚拟币的人才是最大的人生赢家](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [9/29/2021 郭先生直播：火币退钱的三大指定银行是上海银行、中国银行和邮储银行](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [秘翻在线：数据显示使用瑞德西韦处方的中共病毒患者26%死亡](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中美决战AI生物技术，看鹿死谁手](/content/gnews/2/README.md)
+### [中美决战AI生物技术，看鹿死谁手](/content/gnews/6/README.md)
  ` 银河勇气之星`
 
-### [拒绝台湾加入联合国是全世界的道义和物质上双重损失（二）](/content/gnews/3/README.md)
+### [拒绝台湾加入联合国是全世界的道义和物质上双重损失（二）](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [维加诺大主教：强推试验性疫苗是反人类重罪（粤语配音）](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/26郭文贵直播：平安和陆金所的爆料产生巨大影响（粤语配音）](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [9/26郭文贵直播：十一后欧美国等发达国家将停止强制注射疫苗（粤语配音）](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [NBA以禁止上场和停薪警告未接种新冠疫苗球员](/content/gnews/7/README.md)
+### [印尼930排华事件五十六周年，新中国联邦不会让历史重演！](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [9/24郭文贵直播：渤海金控用虚假评估伪造了20万亿资产（粤语配音）](/content/gnews/8/README.md)
+### [维加诺大主教：强推试验性疫苗是反人类重罪（粤语配音）](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/24郭文贵直播：真正会导致中国经济崩溃的是海航（粤语配音）](/content/gnews/9/README.md)
+### [9/26郭文贵直播：平安和陆金所的爆料产生巨大影响（粤语配音）](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拒绝台湾加入联合国是全世界的道义和物质上双重损失（一）](/content/gnews/10/README.md)
+### [9/26郭文贵直播：十一后欧美国等发达国家将停止强制注射疫苗（粤语配音）](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [NBA以禁止上场和停薪警告未接种新冠疫苗球员](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [9/24郭文贵直播：渤海金控用虚假评估伪造了20万亿资产（粤语配音）](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [9/24郭文贵直播：真正会导致中国经济崩溃的是海航（粤语配音）](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拒绝台湾加入联合国是全世界的道义和物质上双重损失（一）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共砸数亿不许谷歌出现郭文贵讲疫苗讲病毒和喜币及盖特](/content/gnews/11/README.md)
+### [中共砸数亿不许谷歌出现郭文贵讲疫苗讲病毒和喜币及盖特](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [丹佛警察就强制疫苗接种对市长提起诉讼](/content/gnews/12/README.md)
+### [丹佛警察就强制疫苗接种对市长提起诉讼](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [三方合力促成孟晚舟回国](/content/gnews/13/README.md)
+### [三方合力促成孟晚舟回国](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线：研究显示37%的中共病毒患者康复后 至少显现一种长期症状](/content/gnews/14/README.md)
+### [秘翻在线：研究显示37%的中共病毒患者康复后 至少显现一种长期症状](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共和党参议员推出法案 欲阻止中共与塔利班经济合作](/content/gnews/15/README.md)
+### [共和党参议员推出法案 欲阻止中共与塔利班经济合作](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [中共通过“慷慨资助”控制发展中国家 影响全球政治经济](/content/gnews/16/README.md)
+### [中共通过“慷慨资助”控制发展中国家 影响全球政治经济](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [中共接管香港电台，颁布“凌驾性原则”结束新闻自由](/content/gnews/17/README.md)
+### [中共接管香港电台，颁布“凌驾性原则”结束新闻自由](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（三）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（三）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习近平要对控制中国电力产业的李鹏家族动手了](/content/gnews/19/README.md)
+### [习近平要对控制中国电力产业的李鹏家族动手了](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [09/30/2021 国际财经快讯：西班牙的通胀水平创下 13 年新高; 美国SEC拟要求资产管理公司就如何使用投票权提高透明度](/content/gnews/20/README.md)
+### [09/30/2021 国际财经快讯：西班牙的通胀水平创下 13 年新高; 美国SEC拟要求资产管理公司就如何使用投票权提高透明度](/content/gnews/25/README.md)
  ` 秘密翻译组金融团队`
 
-### [担心国际联合抵制，北京冬奥会将仅向国内观众售票](/content/gnews/21/README.md)
+### [担心国际联合抵制，北京冬奥会将仅向国内观众售票](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [孟晚舟回国引发美内部反弹，对爆料革命及其有利](/content/gnews/22/README.md)
+### [孟晚舟回国引发美内部反弹，对爆料革命及其有利](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|中共负面影响下，英国担心中国留学生数量恐影响国家安全](/content/gnews/23/README.md)
+### [有声|中共负面影响下，英国担心中国留学生数量恐影响国家安全](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备](/content/gnews/24/README.md)
+### [疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|台湾正在修订法律以防止中共窃取半导体技术](/content/gnews/25/README.md)
+### [韩国政府对伪造冒用预防接种凭证行为可判刑](/content/gnews/30/README.md)
+ ` 首尔天池农场`
+
+### [有声|台湾正在修订法律以防止中共窃取半导体技术](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [孟晚舟必须回国的3个理由，牵扯太大了，吓死我了](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|[金融园]黄金和白银的五种不同特性，更好分散投资](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [全球最大退休基金决定不再投资中共国公债](/content/gnews/28/README.md)
+### [全球最大退休基金决定不再投资中共国公债](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥说— 第17期](/content/gnews/29/README.md)
+### [西媒头条 — 第77期](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西媒头条 — 第77期](/content/gnews/30/README.md)
+### [近200名明尼苏达州医护人员起诉雇主](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [护士揭露医院里对待未接种中共病毒疫苗病人的态度](/content/gnews/31/README.md)
+### [完全接种疫苗的夫妇二人相隔一分钟死于病毒](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [近200名明尼苏达州医护人员起诉雇主](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [完全接种疫苗的夫妇二人相隔一分钟死于病毒](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [无惧中共制裁威胁 法国参议员下周访台](/content/gnews/34/README.md)
+### [无惧中共制裁威胁 法国参议员下周访台](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾提议加强法律以防止中共窃取技术](/content/gnews/35/README.md)
+### [台湾提议加强法律以防止中共窃取技术](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [民意调查显示，澳大利亚人正在认同“自由比法律更重要”](/content/gnews/36/README.md)
+### [民意调查显示，澳大利亚人正在认同“自由比法律更重要”](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [NBA球员因不打疫苗而缺席比赛的，将被停发薪水](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共发展改革委负责人回应今冬明春能源供应](/content/gnews/38/README.md)
- ` 儒为`
 
 ### [美国国家银行监管人曾获得”列宁&#8221;奖](/content/gnews/39/README.md)
  ` wenwu`

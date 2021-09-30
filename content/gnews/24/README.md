@@ -2,154 +2,83 @@
 ---
 
 
-## 疫苗和病毒对人类的威胁还早着呢，要做好四个重点准备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1564540/)
+## 习近平要对控制中国电力产业的李鹏家族动手了
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1564562/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/cb554e1ec633a6c0f28e0ee6040f2f89.jpg)https://gtv.org/video/id=6155602fd2e2b817486f930a
-大家能搞明白的
-Todos tienen que entender
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9.30-1.jpg)图片来源：RFA
 
-疫苗和病毒
-La vacuna y el virus
 
-他对人类的威胁还早着呢
-Aún es temprano en cuanto a su amenaza hacia la humanidad
+**作者：**顺其自然
+**编辑：**翼族
 
-在这个生死面前
-Frente a la vida y muerte
+【**编者按：**郭文贵先生曾数次提起YouTube一个“闲聊澳洲”的频道，主播Lily女士正是本文的作者。本专栏将陆续推出Lily女士的直播简要，欢迎关注。】
 
-啥事对咱都不是最重要的
-No hay nada más importante que eso para nosotros
+在美国时间的9月29日，郭先生与几位嘉宾做了近四个小时的直播。在直播当中，郭先生主要讲了以下内容：
 
-第一, 一定要防范住病毒
-Primero, debemos protegernos del virus
+1）日本新当选的岸田文雄首相，一半儿跟爆料革命合作，一半儿亲共，因为他的家族在中（共）国有非常多的利益。
 
-第二, 不打疫苗
-Segundo, no vacunarse
+2）爆料革命给澳洲政府发出的文件，最起码有2万份，律师认证的文件就有几千份，不能提供给公众，其中包括在中国的医学专家偷偷出具的个人证明，有青蒿素伊维菌素治病的这些文件。所有这些信息都给了澳洲政府，澳洲政府才改变了强硬的打疫苗政策，还包括德国、意大利和英国。
 
-第三, 如果以上发生了
-Tercero, si lo ante mencionado ya sucedió
+3）香港政府正式说，大陆居民可以用人民币购买香港股票，港币最终会消失。
 
-咱有解药, 那迅速吃解药
-Tenemos el antídoto, entonces deben tomarlo inmediatamente
+4）现在在英国摘水果的工人，每年可以挣十几万。高科技公司、银行等都砍掉一半的工资，体力劳动力越来越贵。
 
-第四, 在这个过程当中
-Cuarto, durante este proceso
+5）大陆的一度商用电是一块钱左右，民用电是一块多钱，香港是三块多港币，中国实际每年用电8.7万亿千瓦，美国是4.5万亿千瓦，中国是美国的两倍。一吨煤发8700度电，中国居民用电远远小于美国居民用电，而中国的工业用电是美国的两倍。
 
-这个有饭吃, 有钱花, 有房子住
-Si tenemos comida, dinero para gastar, una casa para vivir
+6）中国统计局局长王宝安说，在中共国的最佳骗钱方式，一是从银行弄钱，二是改用电的数字，一年就能弄几百亿。再就是储备粮！没人储存粮食，储备粮都弄自己家去了。
 
-然后呢, 追求更舒服一点
-Y buscamos una mejor comodidad
+7）中国有19个核电站，正在建的32个。中国一年8万多亿人民币电费。
 
-最后, 当这个灾难过后
-Finalmente, luego de este desastre
+8）澳洲不是反共，是反习近平，澳洲政客跟江胡时代的派系勾兑非常深。
 
-咱幺都能健健康康的活着
-Todos podemos vivir sanos y saludables
+9）火币大陆买家必须原路返回，若不能原路返回，要求打到大陆一个指定的退款账号，账号开在在上海银行、邮储银行、中国银行这三个银行里。中国银行是中国的情报银行，邮政银行100%是习家控制的，它一定会倒闭。邮政银行上市是全世界最大的蓝金黄案，郭先生也曾是邮储银行的股东。中国最腐败的三家银行，邮储第一，国家开发银行第二、第三才是民生，第四是中银。国开行已抓了800多个高管，600多人，但邮储一个人都没抓，因为邮储是习家的邮储，是国际腐败。
 
-这是个大赢家
-Entonces seremos el gran ganador
+10）火币最牛的一点是为国内洗钱，像叶简明、肖建华、贯军、刘呈杰等人的钱，除了存瑞士和家族信托，很多都存在火币里。国内的高官和富豪，包括吴征很多钱也存在了火币里，还有许家印，所以火币老板被中共用麻袋从新加坡给弄回中国。
 
-G系列是天赐给我们新中国联邦
-La serie G es lo que el Cielo otorgó a nuestro Nuevo Estado Federal de China
+11）由于区块链技术，即使火币的老板被抓，他也没办法把钱弄回去。只有持有火币的本人才能把钱拿回去。
 
-要没有G系列
-Si no hay esta serie G
+12）暗网一年三万亿美元的GDP，十年前是几百亿美元，暗网就是洋葱网TOR，是由美国海军情报部门研发的，后来因为没钱被承包商放开，成为了失控的暗网。【注：在这里补充一条有关暗网的信息，TOR是一种免费的开放源代码的通信软件，可以屏蔽使用者的身份和私人信息。这个名字是The Onion Router洋葱路由器的缩写，TOR像一层一层的洋葱一样，有多重加密，因为数据在这条列表上面跳一步就加密一次，所以很难锁定用户的上网操作】。马斯克曾说，当AI技术成熟后再应用到暗网时，人类会有灾难的后果。
 
-要没有法治基金, 法治社会
-Ni la fundación para el estado de derecho, sociedad del estado de derecho
+13）澳洲和加拿大政府搜刮老百姓是非常夸张的。1992年，罗斯柴尔德对当时年轻的郭先生说，不要把钱放到澳大利亚，因为澳大利亚认为所有的钱都是他的，澳大利亚做的最好的就是纳税系统。
 
-没有G-CLUB, 没有盖特
-G-CLUB, GTTR
+14）未来港币会消失，人民币会变成冥纸，美元会贬值，第四会贬值的就是加元，第五是英镑，第六是欧元，第七是澳元。只要台海一开战，中共一定会打台湾，或者台湾被卖台贼给卖掉。
 
-没有G-TV, G-NEWS
-G-TV, G-NEWS
+15）未来最好的生意，是火葬场还有虚拟货币。
 
-任何一样东西
-Ninguno de ellos
+16）共产党停电的原因是没有外汇买煤了。中国现在实际也就七八千亿美元的外汇储备，他还要买芯片、军事设施，再花几百亿美元去澳洲买煤根本不可能。工业用电占了中国的2/3，而这些用电企业基本是出口加工企业，就是给美欧打工当奴才的，而且高污染，所以出口赚的钱他再去澳洲买煤炭，那是干傻事！所以中共不干了。中国的煤热量很低，而且还会产生硫产生霾，是澳煤的30到100倍。现在中国愿意下井挖煤的人也少了。第二个是习近平的面子，宁可冻死一些中国人，也不能买澳洲的煤。第三，习近平没有电力产业的利益，这块儿是李鹏家族的，还有温家、朱家的，习家的是稀土，华为和中兴。
 
-咱活得都不一样
-Viviremos de una manera diferente
+16）澳大利亚政客都是过去江派和胡派的关系。发改委能源局局长赚100亿，就像普通人赚1000块钱那么简单。所以这次大停电是国内政治经济利益大较量的结果。打开了中共政治构成的一个黑幕，会腥风血雨。
 
-你没有希望
-No tendrás esperanza
+17）北京有三路电供北京，但从西北和天津来的线路，现在说要电路维修长达两个月，就是掩盖当初造假，所以连北京都要停电了。这次停电是大老虎的一个大露馅，是一场政治较量。这次李鹏家族撑不过去了，李家控制能源部、发改委，一定牵涉中纪委。
 
-而且你都是从腰包里边掏钱
-Además, si sacas el dinero de tu bolsillo
+18）火币火的原因是因为国内的人通过火币洗钱，且是政法委护航。政法委要出大事儿。在火币洗钱最多的是军方，还有政法委，孙力军、王立科、罗文进、重庆帮、江苏帮，都把钱放在火币里了，包括吴征。这次吴征的大钱一定会被弄回去，许家印的很多钱也放在了火币里。
 
-你怎能活得更好
-Cómo puedes vivir mejor
+19）目前德国最大的问题是与俄罗斯的关系。强势的普京符合俄罗斯的利益，经俄罗斯输入欧洲的天然气管道重启，普京还让俄罗斯的石油替代中东的石油。在欧洲，这些新上来的德国政党会从亲中转向亲俄。德国的钢铁、汽车业很厉害，但通讯几乎和非洲差不多。
 
-还有个你能掏多长时间
-Y cúanto tiempo puedes estar sacando dinero de tu bolsillo
+20）未来核电会大力发展。德国在核电上会是个超级国家。巴西、澳大利亚这几个农业国家一定是新的帝国。
 
-你有多深能让你掏啊
-Qué tan profundo tienes el bolsillo
+21）未来欧元、欧盟会崩塌。欧元欧盟崩塌后，德国、英国会强大，但他的调整期会经历几十年，法国会玩完。意大利、比利时也会玩完。
 
-结果这个新中国联邦这个国家形式
-Como resultado, la forma del Nuevo Estado Federal de China como país
+22）将来排华，最有可能发生的就是澳洲、新西兰、美国、日本、印度，可能比印尼排华还要惨。
 
-他是上天给我们的
-Es lo que Dios nos otorgó
+23）昨天两个台湾的大佬也去深山里开会。他们去谈芯片，共产党搞台湾的芯片厂时，你会突然之间发现你旁边的秘书就是共产党员。你还想转移设备技术？根本不可能，然后立马把你这些人押送到福建去，和新疆人关在一起，在心灵上肉体上折磨你，然后你就老老实实的交出技术了。台湾人还想着战争来后，72小时转移技术，根本不可能。中共一定会在24小时之内把这些人带走，他兴许切一个手指头让你说出东西在哪，中国大陆当兵的，不敢对付美国人、日本人，但是对付台湾人他一定敢，一定非常狠。
 
-它给了我们希望
-Él nos dió esperanza
+24）德国会大量失业，澳洲加拿大也一样，而且高福利的时代已经过去了。他从哪儿来钱啊？所有的股票都会下跌。
 
-它把我们凝(聚)了一起
-Él unió a todos nosotros
+25）李显龙两次癌症虽然好了，但他身体不行了。接下来两年会面临接班问题，新加坡也会动荡。新加坡是中国人藏钱最重要的地方，瑞士、新加坡币的贬值不会很厉害，会比较安全保值。李显龙不行，之后何晶会垂帘听政。新加坡就是个合法洗钱的国家，而且脚踩中美两条船，随着中国的完蛋，新加坡长期不会好。
 
-爆料革命又创造出了G系列
-El Movimiento de Denunciantes creó la serie G
+26）日本经济会出大问题，日本骨子里就排华，就看不起中国人。杀日本人最多的是美国的李梅将军，在东京、大阪、名古屋投下燃烧弹，烧掉60万日本人，就是李梅将军干的。但日本给李梅发了个最高荣誉勋章，人家李梅还不要。李梅说过要让野蛮愚昧的民族从地球上消失。山本五十六经常说，不要跟美国人干，但要打中国。
 
-这真是
-Esto realmente es
+27）新中国联邦已在澳大利亚买了地，澳洲一定会成为南半球新中国联邦的核心总部。
 
-让大家能有财富
-Para que todos tengan riqueza
+**YouTube****链接**：[闲聊澳洲](https://www.youtube.com/watch?v=3uNFZMXT-qQ)
 
-能有希望
-Esperanza
+**GTV****频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
 
-能有动力凝聚在一起
-Y motivación para estar unidos
+*发布：*文武全才
 
-还能好好的活下去
-Y vivir bien
-
-就是不可思议啊
-Es increíble todo esto
-
-所以说这才是属于我们的
-Por eso, esto es lo que nos pertenece
-
-不属于我们的
-Lo que no nos pertenece
-
-跟咱没关系的, 你少操闲心
-No es necesario preocuparse por lo que no tiene relación con nosotros
-
-现在开始关心我们G系列
-Ahora empieza a estar pendiente de nuestra serie G
-
-如何更快的, 更稳定的成功
-Cómo tener éxito de forma más rápida y estable
-
-让大家都能分享这个成功的喜悦和结果
-Para que todos puedan compartir el resultado y la felicidad del éxito
-
-这才是最重要的
-Esto es lo más importante
-
-原视频日期：09/27/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442419230729670666?s=24
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

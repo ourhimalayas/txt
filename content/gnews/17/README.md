@@ -2,29 +2,29 @@
 ---
 
 
-## 中共接管香港电台，颁布“凌驾性原则”结束新闻自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564576/)
+## 丹佛警察就强制疫苗接种对市长提起诉讼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564620/)
 
-栏目记者/责任编辑：云豹
+栏目记者/责任编辑：圣母院钟声
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-9月29日，官方香港电台对员工发布《香港电台编辑政策及流程》文件，以一国两制为名，行中共新闻管控之实。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（2、3）.001.jpeg)
-文件以13项编辑政策破坏新闻自由、泯灭媒体人良知。文件中指示，香港电台的节目不得提供平台从事鼓励、煽动、宣扬、美化具有认同或同情所谓危害国家安全的行为或活动；也不得报导包含任何所谓不利于国家安全的内容。 显然是针对香港反送中运动以来的媒体报导。
 
-文件还规定了中共新闻审查制度，列出了在制作中必须事先上报的一些内容事项。该文件的发布标志着香港的新闻自由已彻底结束。
+
+【National File】9 月 28 日报道，丹佛警察局的七名警官已经对市长迈克尔·汉考克(Michael Hancock)、公共卫生及环境部执行主任罗伯特·麦克唐纳(Robert McDonald)和丹佛警察局长保罗·帕赞(Paul Pazen)提起诉讼，指控他们对该市制定强制疫苗接种规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM-8、9、11.001.jpeg)
+有数百名丹佛警官签名，要求参与这场诉讼。如果强制疫苗接种令不撤销，这些警官会考虑辞去丹佛警察局的职务。
+
+该诉讼写道，“在全民谨慎行事的情况下，每个人，包括健康的年轻人、老年人、曾经病毒感染康复而已获得自然免疫的人、甚至孕妇和哺乳期妇女，目前正受到来自于政府、企业和教育机构的压力，要求他们接受新冠疫苗接种，而没有评估每个人所要承担的风险，也没有考虑每个特定情况下的医疗必要性或禁忌症。在强制遵守疫苗接种的非法公共卫生命令下，无数人受到不可逆的健康损害……”。
+
+世界觉醒民众与黑暗势力的较量正在进行中，当国家机器，像丹佛警局的警察们，法国巴黎的警察们，多伦多市的救火队员们……也都觉醒时，暗夜会在黎明的刺眼光照下瞬间消失殆尽。
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [香港電台新約章：維護憲制秩序一國兩制凌駕一切](https://www.cna.com.tw/news/acn/202109290335.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2. [港台編輯政策列明維護憲制秩序和一國兩制屬凌駕性原則](https://news.rthk.hk/rthk/ch/component/k2/1612822-20210929.htm)
-
+参考链接：[Denver Cops File Lawsuit Against Democrat Mayor Over Vaccine Mandate, Claim Hundreds Of Officers Are Ready To Resign](https://nationalfile.com/denver-cops-file-lawsuit-against-democrat-mayor-over-vaccine-mandate-claim-hundreds-of-officers-are-ready-to-resign/)
 
 ![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-终审：FoxRina
+终审：Q大哥
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
