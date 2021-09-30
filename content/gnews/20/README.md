@@ -2,26 +2,32 @@
 ---
 
 
-## 人生无常，又无勇气和担当
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1564929/)
+## 澳大利亚企业反抗政府严厉的封锁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564953/)
 
-撰稿、插图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-464.png)
-天下大事，纷纷扰扰，好不精彩。
+栏目记者/责任编辑：DM
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-466.png)
+零对冲昨日报导，澳洲许多大公司的领导人，包括BHP、麦格理和澳洲航空的澳大利亚商业委员会签署了一封公开信，要求政府考虑经济和民意，解除过于严厉的封锁政策，像其他国家一样开放边境。
 
-各位看官，有道是“会看的看门道，不会看的看热闹”，同一朵花，蜂吸蜜，蛇吸毒。同一件事，仁者见仁智者见智。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-31.jpeg)
 
-而如今，强制接种疫苗这件事，在全世界闹得人心惶惶。这有点荒唐，更有点不可理喻。越来越多的人逐渐醒来，然而仍有无数不明真相之人执迷不悟。尤其在中共国更是绝大多数，呜呼哀哉！
+签署该公开信的公司雇佣了近100万澳大利亚人，澳洲的大小企业均在政府的疫情政策中苦苦挣扎，签署者之一，墨尔本基金管理公司乐筹金融的首席执行官格雷格·奥尼尔表示：现在是拿出勇气和诚实的时候了。
 
-人生无常，常在变中。时至当下，人心不古，愚弄欺骗，成为本事，甚至成为某些人的信条。常使被骗者倾家荡产，乃至死亡，而无任何愧意。苹果尚能烂，仁心怎能永恒？
+从封锁到疫苗，澳州政府在疫情诸多政策上的专政表现，已经引起了澳洲民众不满与反抗，此番澳洲大企业的联合发声，为澳洲抗争带来了希望。
 
-只有根据社会大环境随时应景地解读时政方能得其要，一窥一斑。愚者听其言，挶于其表而常使其受惑；智者观其行巡其理而定夺是非真假，故常能先知先觉。
+（本文仅代表作者观点）
 
-强制接种疫苗这件事又哪能如此简单和单纯。疫苗到底管不管用，强制接种到底合不合法？其实问题也不难，只要多渠道地获取信息而不是偏听偏信，尤其是中共一家之言，答案其实很明确。怕只怕慑于恐惧和官威，又无勇气和胆量，懦弱屈服又自欺欺人地选择偏信恶魔的谎言，为实害人不浅！
+参考链接：[Australia’s Corporations Rebel Against Government’s Draconian COVID Lockdowns](https://twitter.com/zerohedge/status/1443390250844295169?s=21)
 
-人生无常，无常在演双簧，小鬼在人间，常勾无命人！！！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+终审：FoxRina
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

@@ -2,38 +2,15 @@
 ---
 
 
-## 英美开始采用地塞米松和伊维菌素治疗新冠病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564997/)
+## 秘翻在线：凛冬将至 中共为塔利班送去了“关爱”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565012/)
 
-栏目记者：禹水沃土
-责任编辑：文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
-英格兰国家医疗服务体系NHS已开始与政府的抗病毒工作组合作，研究和推出在社区中使用地塞米松等口服药物以治疗新冠病毒。首席制药官 Keith Ridge 担任口服抗病毒药物计划高级负责人。在英国和海外抗病毒治疗临床试验的数据中，地塞米松等药物在缩短新冠病毒对人体影响时间、和防止重症方面显示出可喜的结果。
+撰稿：葛大饼
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-36.jpeg)
+责编: 人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screenshot-2021-10-01-002333.jpg)图片来源：新浪
+根据2021年9月29日UC网报道，凛冬将至，中共对阿富汗表示极度关心。三周以前，中共国外长王毅承诺将向阿富汗提供价值约2亿元人民币的救援物资，包括粮食、药物、疫苗和御寒物资等。果然首批对阿富汗紧急人道主义援助物资已经顺利运抵喀布尔国际机场，包括有毛毯、羽绒服等阿富汗人民急需的越冬物资。塔利班官员表示不会忘记中共对他们的关爱！
 
-牛津大学的PRINCIPLE试验一直在研究新冠病毒感染的可能疗法，早在6月就确认伊维菌素可以加速康复、减少症状的严重性，避免患者入院治疗。英国卫生署旗下健康与临床优化研究所N.I.C.E近期也发布多篇资料支持以上结论。
+近日中共国多地停电， 东北地区的百姓也急需越冬烧煤取暖，但是中共为了“面子”和澳洲死扛，不进口澳大利亚煤炭，宁可拉闸限电也不想办法救助百姓。如此讽刺的对比百姓也该真正看清中共的嘴脸了。中共从来都是对自己的人民最心狠手辣，视草民如猪狗一般，也是有史以来杀害中国人民最多的恶党，没有之一！
 
-8月份，大卫战友在感染新冠病毒重症期间，血氧严重偏低，出现心脏间歇性骤停，在服用了郭文贵先生提供的地塞米松，和战友提供的伊维菌素后，逐渐转危为安。
-
-美国南卡罗来纳州斯巴达堡将招募新冠病毒感染者，使用伊维菌素进行临床实验。爆料革命和郭文贵先生向全世界推荐的药物正在拯救人类。
-
-（本文仅代表作者观点）
-
-参考链接：[NHS prepares for antiviral deployment to treat COVID-19](https://pharmaceutical-journal.com/article/news/nhs-prepares-for-antiviral-deployment-to-treat-covid-19)
-[Clinical trial testing Ivermectin, two other drugs against COVID open for signups](https://www.wfxrtv.com/news/health/coronavirus/clinical-trial-testing-ivermectin-two-other-drugs-against-covid-open-for-signups/)
-[铁血大卫对决CCP病毒 化险为夷的来龙去脉](https://gnews.org/zh-hans/1517319/)
-[Ivermectin to be investigated as a possible treatment for COVID-19 in Oxford’s PRINCIPLE trial](https://www.ox.ac.uk/news/2021-06-23-ivermectin-be-investigated-possible-treatment-covid-19-oxford-s-principle-trial)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
-
-终审：暗黑
-校对/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+**[新闻来源](https://mparticle.uc.cn/article.html?uc_biz_str=S%3Acustom%7CC%3Aiflow_wm2&amp;btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=911f500556c04e16bbf06b7176117935&amp;wm_cid=446574579538736128&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt&amp;source=share-back)**

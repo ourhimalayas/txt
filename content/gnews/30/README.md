@@ -2,34 +2,37 @@
 ---
 
 
-## 特鲁多推进强制联邦公务员的COVID-19疫苗接种任务
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1564758/)
+## 美FCC斥资19亿主导拆除中共国网络设备
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564841/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/09/MW-GK164_trudea_ZG_20180531185358.jpg)图片来源：Market Watch
-根据《CTV 新闻》9月28日报道，加拿大总理特鲁多正在重申其选举前的承诺，即强制联邦公务员接种COVID-19疫苗。
+作者：修文
 
-“我们将确保联邦公务员接种疫苗”，特鲁多星期二在渥太华的一个COVID-19疫苗接种诊所讲话时说，“对任何为联邦政府工作的人都有明确的疫苗接种要求。”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-联邦政府在8月宣布，打算让所有联邦公共服务工作人员和加拿大武装部队成员强制接种COVID-19疫苗。联邦公共服务部门在渥太华拥有最多雇员。
 
-加拿大财政委员会秘书处在8月13日的一份新闻稿中说：”对于那些无法接种疫苗的少数人，可以根据不同情况决定采取通融或替代措施，如测试和筛查，通过减少COVID-19的风险来保护更广泛的公众健康“。
 
-迄今为止，还没有提供接受COVID-19疫苗的公务员人数的数据，但在当地，渥太华公共卫生部门说，18岁以上的成年人中有83%已经接受了两剂COVID-19疫苗，被认为是完全接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/美FCC斥资19亿主导拆除中国网络设备.png)图片来源：网络
 
-财政局的一位发言人在周三的一份声明中说，推测公务员的疫苗接种率与普通公众相同。”我们知道，加拿大80%符合条件的人已经完全接种了疫苗，超过85%的人已经接种了第一针。虽然我们还没有关于公务员疫苗接种率的准确数字，但我们有理由相信公务员的疫苗接种率与加拿大普通民众相同“ 。
+美国联邦通信委员会（FCC）9月27日表示，将启动一个价值19亿美元的项目，为美国乡村地区电信运营商提供补偿，帮助拆除华为和中兴等中共国公司生产的网络设备。据悉，该项目将在今年10月29日至2022年1月14日期间接受申请。
 
-拒绝接种疫苗的联邦工作人员的情况仍不清楚。特鲁多告诉记者，公共服务部门继续致力于其强制性疫苗接种计划，他承诺在未来几周提供更多细节。
+去年，FCC认定华为和中兴公司对通信网络已构成国家安全威胁，并规定采用中兴或华为设备的运营商“拆除并更换”这些设备。因考虑拆除和更换成本，FCC会对客户人数在1000万以下的运营商进行补偿。此举亦显示美国在通信行业去除中共国网络安全威胁的决心。
 
-特鲁多说：”大家都知道，度过这场大流行的方法是确保尽可能多的人接种疫苗”。
+除华为和中兴通讯外，FCC也认定海能达通信、杭州海康威视数字和浙江大华技术威胁国家安全。美国政府已禁止联邦机构从这5家公司购买商品或服务，还可能撤销此前已发出的设备授权。
 
-卫生部长哈伊杜Patty Hajdu周二在CTV新闻频道的Power Play节目中说，围绕未接种疫苗的员工的后果的讨论仍在进行。”这些是目前正在与联邦公共服务部门和工会进行的对话。总的来说，人们明白我们需要在公共场所，特别是工作场所相互保护”。
+参考链接：[美FCC斥资助美电信商拆除威胁国家安全的中国网络设备](https://www.voachinese.com/a/FCC-support-for-replacing-Huawei-equipment-in-US-networks-20210928/6249002.html)
 
-在疫苗灾难逐渐显现和疫苗阴谋被郭文贵先生及正义力量揭穿的情况下，特鲁多应该停止强制疫苗，看他后续如何表演下去，我们继续关注。
+编辑/校对/发稿：雪梨
 
-原文链接：
-[https://ottawa.ctvnews.ca/trudeau-moving-ahead-with-covid-19-vaccine-mandate-for-federal-public-servants-1.5603911](https://ottawa.ctvnews.ca/trudeau-moving-ahead-with-covid-19-vaccine-mandate-for-federal-public-servants-1.5603911)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
 
-* * *
+**更多资讯，更多关注**
 
-发稿 Spirit
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

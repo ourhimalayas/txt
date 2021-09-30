@@ -2,24 +2,26 @@
 ---
 
 
-## 美FCC斥资19亿主导拆除中共国网络设备
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564841/)
+## 湖南电价上涨将于10月开始实行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564855/)
 
-作者：修文
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
+作者：香草山教育部-Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-348.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/美FCC斥资19亿主导拆除中国网络设备.png)图片来源：网络
+![](https://assets.gnews.org/wp-content/uploads/2021/09/湖南电价上涨于10月开始实行.jpg)
 
-美国联邦通信委员会（FCC）9月27日表示，将启动一个价值19亿美元的项目，为美国乡村地区电信运营商提供补偿，帮助拆除华为和中兴等中共国公司生产的网络设备。据悉，该项目将在今年10月29日至2022年1月14日期间接受申请。
+9月26日，一份湖南省发改委印发的《关于完善我省燃煤发电交易价格机制的通知》在网络引发关注。据该通知显示，在确定电力市场交易基准价格的基础上，引入燃煤电企购煤价格作参数，联动调整电价上限，并将于10月开始实施。据了解，除湖南外，全国已有多个省份也出台了电价改革方案。
 
-去年，FCC认定华为和中兴公司对通信网络已构成国家安全威胁，并规定采用中兴或华为设备的运营商“拆除并更换”这些设备。因考虑拆除和更换成本，FCC会对客户人数在1000万以下的运营商进行补偿。此举亦显示美国在通信行业去除中共国网络安全威胁的决心。
+近期，北京出示的一份计划于国庆期间停电的公告，引发网友热议。面对市民的恐慌和质疑，中共电网官方发表紧急声明，极力解释掩饰真相。
 
-除华为和中兴通讯外，FCC也认定海能达通信、杭州海康威视数字和浙江大华技术威胁国家安全。美国政府已禁止联邦机构从这5家公司购买商品或服务，还可能撤销此前已发出的设备授权。
+郭先生在直播中爆料，此次全国大范围的停电、限电，实际上是新一波的党内斗争。而中共向来都是牺牲老百姓的利益甚至生命，打倒对手，赢得政治资本。
 
-参考链接：[美FCC斥资助美电信商拆除威胁国家安全的中国网络设备](https://www.voachinese.com/a/FCC-support-for-replacing-Huawei-equipment-in-US-networks-20210928/6249002.html)
+（文章仅代表作者个人观点）
+
+参考链接：
+
+[https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom](https://m.weibo.cn/status/KAiGo1xgp?jumpfrom=weibocom) [https://m.yicai.com/news/101186815.html](https://m.yicai.com/news/101186815.html) [https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html](https://news.sina.cn/gn/2021-09-28/detail-iktzqtyt8590569.d.html)
 
 编辑/校对/发稿：雪梨
 
