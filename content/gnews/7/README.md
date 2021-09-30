@@ -2,58 +2,45 @@
 ---
 
 
-## 福奇和其他新冠病毒政策制定者犯下了“危害人类罪”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1565180/)
+## 参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1565386/)
 
-【评论：】
+作者：纽约香草山农场 – 四季
 
-随着越来越多的人在爆料革命的反击宣传下醒悟，越来越多的人知道真相，并选择正道主义，福奇一定会被绳之以法，美国人民和全世界人民都不会放过他。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-《新闻目标》记者Ethan Huff 评论，2021年9月28日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2361.png)图片来源：《新闻目标》
-由3,000多名医生签署的“医生宣言”宣称，应对中共冠状病毒 (Covid-19) 的全球战略无异于“危害人类罪” 。
 
-一个由医生和医学科学家组成的国际联盟谴责了所有政策制定者和政客的行为，他们强加了呆在家里、社会疏远、戴口罩和“疫苗”的要求，这些措施甚至在科学上都没有根据，更不用说在宪法上是合理的。
 
-针对中共病毒的“一刀切”的应对方法，导致了无数疾病和死亡。
 
-截至 9 月 24 日星期五下午 1 点，超过 3,100 名医生和科学家签署了这封信，该信是最近在罗马举行的一次会议之前签署完成的，目的是呼吁“说出有关 Covid 大流行研究和治疗的真相”。
 
-正如他们所说，这次全球 Covid 峰会于 9 月 12 日至 14 日举行。它为医疗专业人员提供了比较他们的研究，并评估各种治疗福奇流感的疗效的机会。
+据[门道专家](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)9月30日报道，美国参议员罗恩-约翰逊在参议院会议上讨论了目前与COVID-19疫苗有关的COVID-19大流行病。
 
-“医生宣言是在罗马 Covid 峰会上首次宣读的，它激发了全球医学科学家和医生的积极支持。”会议的一份文件中写道。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1097-1-vax-johnson.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)
 
-“这些专业人士没想到职业威胁、暗杀、论文和研究被审查、社交账户被封锁、搜索结果被操纵、临床试验和患者观察被禁止，他们的职业历史和成就在学术和主流媒体中被篡改或遗漏。”
+约翰逊参议员展示的一张图表显示，疫苗并没有像宣传的那样发挥作用。他对与COVID-19疫苗有关的冠状病毒病例和冠状病毒死亡的时间线，提出了如下三个非常重要的观点：
 
-**发明mRNA技术的医生反对mRNA疫苗**
+“在疫苗推出之前，确诊冠状病毒的总病例和死亡人数已经大幅下降；疫苗接种率在2021年初开始攀升，如今达已到60%左右；尽管60%的人口已经接种了疫苗，但今年夏天的病例和死亡人数仍再次激增”。
 
-峰会上，正是mRNA疫苗的设计者罗伯特·马龙博士为在场所有人宣读了宣言。
+现在公众没有得到需要做出知情选择的准确信息，而大药厂又对疫苗的后果不承担任何责任。这都将施打疫苗的公众陷于非常不利的境地。
 
-正如我们报道的那样，马龙博士反对中共病毒“疫苗”，并同意所有利用中共病毒的限制和动荡，实际上只是伪装成“公共卫生”的危害人类罪。
+（本文仅代表作者观点）
 
-“宣言是医生们的战斗口号，他们每天都在为治疗患者的权利和患者接受这些治疗的权利而战 —— 不用担心政府、药店、制药公司和大型科技公司的干预、报复或审查。”马龙博士说。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
 
-“我们要求这些团体退而求其次，尊重医患关系的神圣性和完整性，‘首先不要伤害’的基本格言，以及患者和医生做出明智医疗决定的自由。生命取决于它。”
+编辑/校对/发稿：小鹿
 
-在过去的一年半里，《希波克拉底誓言》遭受了相当沉重的打击。甚至在福奇流感之前，西医在很大程度上就已经是一个笑话，但仍然存在的任何好处都在新的全球宗教——新冠病毒——的祭坛上被摧毁了。
 
-强迫人们用中共塑料盖住自己的脸，并一遍又一遍地用可修饰 DNA 的神秘化学物质疫苗，这与“首先不要伤害”相反，但它却成为了整个西方的标准。
 
-《纽伦堡法典》明确禁止政府以抗击“大流行”的名义试图强加的那些事情。事实证明，人类受试者的自愿同意“绝对必要”，并且每个人都应该“能够行使自由选择的权力，不受任何武力、欺诈、欺骗、胁迫、越权或其他不可告人的因素的干预，以及形式的约束或胁迫。”
+**更多资讯，更多关注**
 
-“纽伦堡法典怎么这么容易被人记住。” AmGreatness.com 的一位评论者问道，“美国士兵为了这个确切的原则绞死了纳粹。关键词：强制。”
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“每个为了保住工作而采取行动的人都应该起诉。”另一位写道，“每个失去工作的人都应该起诉。”
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-文章来源：[https://newstarget.com/2021-09-28-doctors-fauci-covid-policymakers-crimes-humanity.html](https://newstarget.com/2021-09-28-doctors-fauci-covid-policymakers-crimes-humanity.html)
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-（本文评论仅代表个人观点）
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Raul
-编辑：洛杉矶盘古农场 – 明子
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

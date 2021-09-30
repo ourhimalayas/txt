@@ -2,22 +2,31 @@
 ---
 
 
-## 突破临界点！中共国9月PMI降至49.6%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1564911/)
+## 中共残害百姓不减速 毒疫苗加强针全面展开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564969/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/09/093021.png)[图片来源](http://www.stats.gov.cn/tjsj/zxfb/202109/t20210930_1822646.html)
-9月30日中共国家统计局发布的《2021年9月中国采购经理指数运行情况》：9月制造业PMI为49.6，降至临界点以下。
+栏目记者：禹水沃土 
+责任编辑：在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-467.png)
+9月29日，中共国务院联防联控表示，新冠病毒疫苗加强免疫的相关政策，和实施措施正在加紧制订。已接种人口中，将对易感及60岁以上的重点人群开展“加强免疫”。疫苗灾难已经在全世界呈爆发趋势，大量受害者因为注射了新冠疫苗而身患重病甚至死亡。
 
-报告称，中国制造业采购经理指数(PMI)为49.6%，低于上月0.5个百分点，降至临界点以下，制造业景气水平有所回落。从企业规模看，大型企业PMI为50.4%，比上月微升0.1个百分点，继续高于临界点；中型企业PMI为49.7%，比上月下降1.5个百分点，低于临界点；小型企业PMI为47.5%，比上月下降0.7个百分点，低于临界点。从分类指数看，在构成制造业PMI的5个分类指数中，生产指数、新订单指数、原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-28.jpeg)
 
-郭文贵先生9月29日大直播爆料，美国工业用电1万亿度，中国大约3万亿度；美国居民平均用电大约5000度，而中国人只有600-700度；美国居民用电占40%，而中共国居民用电只有30%。中共国年用电量大约8.5万亿度电，大约1万多亿美元规模，仅在建核电站就多达32个，居民用电能力充分反映了人民的生活水平和基本人权状况。
+在国内，信息被高度屏蔽。对有关疫苗不良副作用的各种社交媒体消息，都被中共极力掩盖和打压，多数民众还根本不知道毒疫苗的恐怖，老百姓面对的将是一个无比惨烈的冬天。
 
-由于中共外汇枯竭，加之内部斗争不断升级，中共不愿意进口澳洲高热值煤炭，导致煤电价格倒挂，造成供电公司卖的越多，亏损越多，可以预见中共国PMI指数还会一路走低。
+（本文仅代表作者观点）
 
-信息来源：[2021年9月中国采购经理指数运行情况](http://www.stats.gov.cn/tjsj/zxfb/202109/t20210930_1822646.html)
+参考链接：[新冠疫苗加强针要来了 谁先打？能混打吗？](https://news.sina.com.cn/c/2021-09-30/doc-iktzscyx7164064.shtml)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：暗黑
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
