@@ -2,29 +2,27 @@
 ---
 
 
-## 2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563831/)
+## 维州：当日确诊病例1438例，再创记录
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1563878/)
 
-盖特连接：[https://gettr.com/post/pa3p4qc384](https://gettr.com/post/pa3p4qc384)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：The Guardian
+**整理报道：**翼族
 
-9月4日：两轮摩托车在草地上滑……弄了个三轮摩托车试试……**😅****😅😅😅😅😅**
+周四，维多利亚州记录了1438例新增本地中共病毒（COVID-19）感染病例，比一天前记录的950例增加了50%以上。同时记录了5例死亡病例，目前维州的死亡病例总数达到41人。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+维州当局表示，AFL【注：澳式足球联盟】总决赛最后一天的长周末假期是该州感染病例急剧增加的原因。州长丹尼尔·安德鲁斯称，许多新感染是“完全可以避免的”。
 
-来啦，来啦！欧~仨轮的啊！仨轮的不打滑！也滑呀！天呐，三轱辘轧出这么大一个沟啊！我这发现上午轧了好大一个沟啊！三个轮不打滑，这也滑呀！发现了吗？天呐！嗷嗷地滑呀！嗷嗷地滑，嗷嗷地滑，这绿地全毁了，这绿地全毁了！我骑另外一个了啊。中吧？
+新增确诊病例是从周三处理的65497个测试结果中检测到的。安德鲁斯称“数百甚至数千”的新增感染是由于“违反了规则”，他说：“我不是要责怪任何人，我只是想解释一下……它怎么会涨得这么快。”
 
-编辑整理及发布：黎明之前
+尽管本次疫情爆发后，维州政府发现第一批病例后就立即封锁了该州，但确诊数字一直在飙升。安德鲁斯表示，如果病例增长速度超过预期，政府将不排除更长时间的封锁，他敦促人们遵守规则，直到可以安全地解除限制。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+编辑/发布：翼族
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

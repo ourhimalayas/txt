@@ -2,56 +2,67 @@
 ---
 
 
-## 中共超限战灭港行动（75）七二一大游行 起因与背景
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1563774/)
+## 参议员罗恩·约翰逊： 拜登政府决定强制给在职的美国人接种疫苗,这是对公民自由的粗暴践踏
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1563775/)
 
-#### 搜集/撰文：岁月如歌
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/75fenmian.jpg)
-一连几天的游行到最后都发展成警民冲突，流血事件。社会矛盾已经非常严重，警方几个月的维稳，一面是市民越来越愤怒的情绪，给警方维护秩序有很大的压力，另一面是中共港府给他们施加的压力，警方成了夹心饼。长久的维稳工作也令警员感到身心疲惫，体力不支甚至精神压抑，很多有良心的警员，因不堪中共港府暴力镇压市民，愤而辞职。当然也有很多如光头刘sir（刘泽基）这类「爱国警察」非常兴奋，他们认为这是报效祖国的好时候，也是升官发财的好机会，休班还会便衣上岗抓捕年青人补充精力严重不足情况。反送中运动不但扩大，此起彼伏，香港警察已经不够用了，加上有警员辞职，更是「僧多粥少」。中共更是大肆派遣大陆公安武警等相关人员入港混进警队，非法执勤。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9301.jpg)图片来自大纪元
-官民矛盾加剧，林政月娥依然不想撤回恶法，令港人更加失望和愤怒，上街游行越来越频繁，游行过程中冲突也越来越多，越来越激烈。九龙游行、光复屯门和上水、沙田游行都不同程度地发生的警民冲突，足见示威者与警员的情绪都非常激动和不耐烦。在这情况下，享受着市民努力争取社会福利的建制派更是火上浇油。 7月20日举行「撑警集会」，呼吁警方暂停给游行示威发“不反对通知书”，更有亲共人士，《香港经济日报》创办人兼副社长石镜泉，在集会扬言支持中共港府者用藤条、塑料水管「教训」示威青年人，即“藤条教仔”。石镜泉在公开场合如此赤裸裸地煽动亲共势力买藤条、塑料水管等对人有伤害的物品来对付自己的同胞，可见其心肠是何等险恶。年青人为香港争取民主、法治和真普选，竟然令不同政见的同胞起歹念，真是悲哀。香港的“四大不要脸”所谓精英已经彻底与狼共舞了。
-
-集会同一日，香港民主阵线仓库荃湾德士古到一工厂大厦「被发现」藏有武器： 1公斤T A T P、10枚电流燃烧弹、刀、铁棍，弹叉和镪水。 TATP 炸药性质不稳定及危险，不能在市面上购买，必须自行制造。警方抓捕了多人，香港民族阵线发言人梁颂恒称，仓库一直只用来存放音响和其他宣传物资，不知道为何有爆炸品在里面，他们并无任何制作爆炸品的计划。亦有网传不排除被栽赃陷害，事件在进一步调查中。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9302.jpg)图片来自BBC
-以上这些现象透露出香港当前社会政治危机非常严重，市民的诉求得不到港府回应，民间人权阵线（民阵）发起第六次反对修订《逃犯条例》大型游行。前面的五次游行时间是： 2019年3月31日、4月28日、6月9日、6月16日、7月1日。其中6月16日创下破纪录的200万+1人的游行人数。自7月1日示威者冲入立法会后，游行发展至一周两次游行，而且后来的游行规模虽然不大，但是都发生了大型的警民冲突。建制派议员陈凯欣、何君尧、蒋丽芸等以此为由更敦促警方停止发放「不反对通知书」，他们认为密集式的游行示威可能会继续引发冲突，危害社会安全。
-
-在这种情况下，民阵原定于7月21日举行游行，被警方基于公共安全考虑建议改期，民政反对。另外游行路线警方以前不久该路段发生冲突，妨碍公共安全为由，也不同意终点定在铜锣湾至金钟或者中环一带，为此民阵上诉维护权益，最终法院还是维护统治着利益为重，上诉失败。游行终点定于卢押道、庄士敦道交界处，即湾仔修顿球场对开处。警方对民阵申请不反对通知书出现各种理由刁难，会不会是因为建制派呼吁的原因呢？
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9303.jpg)图片来自民间人权阵线
-游行当天市民从天后站和铜锣湾站出闸陆续抵达维园，人数超过43万，拥挤足足塞满了四个足球场。今次的目标是：
-
-1），2020年实行“普选”，即选择全数立法会议员和行政长官
-2），释放被拘捕示威者，承诺永不起诉
-3），成立独立调查委员会调查警民冲突
-4），取消6月12日警民冲突为“暴动”之定性
-5），按议事规则，撤回《逃犯条例》修订
-6），不排除成立临时立法会
-
-从“目标”，市民的诉求依然是要求港府落实5大诉求为主。发起人岑子杰宣读大会宣言后下午3:39出发，由泛民主派议员即何韵诗等人做龙头岂不手持“独立调查、捍卫法治、守护真相”剧情横幅，一路喊着口号向前走。一个多小时游行到达终点站，民政呼吁群众立即解散，并注意安全。民阵则把领头横幅按原定计划送至中环终审法院。如此安静地完成了游行活动，未能到达原定的地方，很多人心里不爽，有一部分人继续向金钟进发，另有一批人向警察总部，海富中心和政府总部一带的天桥，聚集大批人士，上千人很快占据了夏悫道的全部行车线。而政府总部在游行前就已经架设了大型水马，并“重兵把守”，如临大敌。对比市民自发前往政总、警总和中联办等地方，似乎在酝酿着一场血雨腥风的战争……
-
-（未完待续）
-
-【本文仅代表作者个人观点】
-
-参考链接：
-[港警称破获推反送中力量武器库-炸药枪支引惊炸](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20190720-%E6%B8%AF%E8%AD%A6%E7%A8%B1%E7%A0%B4%E7%8D%B2%E6%8E%A8%E5%8F%8D%E9%80%81%E4%B8%AD%E5%8A%9B%E9%87%8F%E6%AD%A6%E5%99%A8%E5%BA%AB-%E7%82%B8%E8%97%A5%E6%A7%8D%E6%94%AF%E5%BC%95%E9%A9%9A%E7%82%B8)
-
-[「独立调查、捍卫法治、守护真相、重申五大诉求」游行](https://zh.m.wikipedia.org/wiki/%E3%80%8C%E7%8D%A8%E7%AB%8B%E8%AA%BF%E6%9F%A5%E3%80%81%E6%8D%8D%E8%A1%9B%E6%B3%95%E6%B2%BB%E3%80%81%E5%AE%88%E8%AD%B7%E7%9C%9F%E7%9B%B8%E3%80%81%E9%87%8D%E7%94%B3%E4%BA%94%E5%A4%A7%E8%A8%B4%E6%B1%82%E3%80%8D%E9%81%8A%E8%A1%8C)
-
-[石镜泉曾吁大众用水喉通「打仔」　网民罢买《经济日报》](https://www.thestandnews.com/politics/%E5%85%83%E6%9C%97%E6%87%B7%E7%96%91%E8%AD%A6%E9%BB%91%E5%8B%BE%E7%B5%90%E4%BA%8B%E4%BB%B6-%E7%9F%B3%E9%8F%A1%E6%B3%89%E6%9B%BE%E7%B1%B2%E5%A4%A7%E7%9C%BE%E7%94%A8%E6%B0%B4%E5%96%89%E9%80%9A-%E6%89%93%E4%BB%94-%E7%B6%B2%E6%B0%91%E7%BD%B7%E8%B2%B7-%E7%B6%93%E6%BF%9F%E6%97%A5%E5%A0%B1)
-
-导读：
-中共超限战灭港行动
-[中共超限战灭港行动（七十）七七九龙区大游行（下）疯狂黑警暴力清场](https://gnews.org/zh-hans/1516676/)
-
-[中共超限战灭港行动（七十一）光复屯门上水行动](https://gnews.org/zh-hans/1523035/)
-
-[中共超限战灭港行动（七十二）港台发起拒绝「红色渗透」运动](https://gnews.org/zh-hans/1527144/)
-
-[中共超限战灭港行动（七十三）多个团体发起静默游行 促「停止警暴」](https://gnews.org/zh-hans/1534195/)
-
-[中共超限战灭港行动（七十四）中共组织爪牙 争夺「道德光环」话语权](https://gnews.org/zh-hans/1539901/)
+参议员罗恩·约翰逊： 拜登政府决定强制给在职的美国人接种疫苗，这是对公民自由的粗暴践踏，也是总统单方面强加给美国公众的危险先例。很高兴与参议员瑞克·斯科特[@SenRickScott](https://twitter.com/SenRickScott) 等同事一起在这方面努力。
 
 
-*校对**/**封面合成：文粤**/**发布：天网灰灰*
+
+> The Biden administration’s decision to mandate vaccines for working Americans is an outrageous trampling of civil liberties and a dangerous precedent for what a president can unilaterally impose on the American public. Happy to join [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw) and colleagues in this effort. [https://t.co/11V1cqBYXF](https://t.co/11V1cqBYXF)
+> — Senator Ron Johnson (@SenRonJohnson) [September 30, 2021](https://twitter.com/SenRonJohnson/status/1443369052664172547?ref_src=twsrc%5Etfw)
+
+
+
+美前国务卿迈克·蓬佩奥： 习近平一心要实现地区霸权，然后攻击西方，最终攻击美国。 更多我与布赖恩·基尔米德的谈话[@kilmeade](https://twitter.com/kilmeade)→ 【附油管链接：视频里蓬佩奥强调对付以习近平为首的#CCP邪恶组织，需要整个西方的团结，这不只是和美国站队的问题，这是选择暴政还是自由的原则问题】
+
+
+
+> Xi Jinping is intent on regional domination then attacking the West and ultimately the United States.
+> 
+> More in my conversation with [@kilmeade](https://twitter.com/kilmeade?ref_src=twsrc%5Etfw) → [https://t.co/3toG5HBaiq](https://t.co/3toG5HBaiq)
+> — Mike Pompeo (@mikepompeo) [September 30, 2021](https://twitter.com/mikepompeo/status/1443366652792426500?ref_src=twsrc%5Etfw)
+
+
+
+参议员吉姆·班克斯： 米利将军今天告诉我，《危险》一书曲解了他与议长佩洛西的通话以及他对 1 月 6 日的反应。 [@realBobWoodward](https://twitter.com/realBobWoodward)（该书作者）你能澄清一下吗？ 【附[http://wpta21.com](https://t.co/KBlkjhvADR?amp=1)报道：班克斯就保守派媒体的特性对米利施压：追问他是否说过和认为保守派媒体是国内恐怖分子】
+
+
+
+> Gen. Milley told me today that "Peril" misrepresented his call with Speaker Pelosi & reaction to Jan 6.
+>  
+> Can you set the record straight, [@realBobWoodward](https://twitter.com/realBobWoodward?ref_src=twsrc%5Etfw)?  [https://t.co/NOj6XscJG0](https://t.co/NOj6XscJG0)
+> — Jim Banks (@RepJimBanks) [September 29, 2021](https://twitter.com/RepJimBanks/status/1443345288895373316?ref_src=twsrc%5Etfw)
+
+
+
+参议员朗·约翰逊： 在整个大流行期间，我们都面临着恐惧、怀疑、孤立和压力。 在大流行期间，（我们）已经失去了太多的自由和个人健康自主权。 让我们不要用不必要的强制疫苗来增加这种损失。 【附华盛顿时报专栏：质疑强制新冠疫苗背后的科学：强制（疫苗）正在加剧社会分裂只会加深大流行的危害】
+
+
+
+> We have all faced fear, doubt, isolation, and stress throughout the pandemic. 
+> 
+> Too much freedom and personal health autonomy have already been lost during the pandemic. 
+> 
+> Let’s not compound that loss with unnecessary vaccine mandates.[https://t.co/TkX0K8vWw3](https://t.co/TkX0K8vWw3)
+> — Senator Ron Johnson (@SenRonJohnson) [September 29, 2021](https://twitter.com/SenRonJohnson/status/1443339748047732736?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的“一带一路”倡议只不过是发展中国家的债务陷阱。 【转推华尔街日报：对于在习近平的国际基础设施发展计划下启动的中国项目的研究，指出了隐藏的债务、腐败丑闻、劳工违规和环境风险】
+
+
+
+> China’s Belt and Road Initiative is nothing but a debt trap for developing nations. [https://t.co/opQx4qTmYB](https://t.co/opQx4qTmYB)
+> — Marco Rubio (@marcorubio) [September 29, 2021](https://twitter.com/marcorubio/status/1443260251281805328?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔什·霍利： 真是疯了。 直接对 [#共产党](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)[#China](https://twitter.com/hashtag/China?src=hashtag_click) 采取绥靖政策。这些都是陈旧失败的谈话要点，那是中共国绥靖者用来证明向 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 输送数百万个工作岗位并摧毁美国工业是合理的 【转推说，美商务部长吉娜·雷蒙多[@SecRaimondo](https://twitter.com/SecRaimondo)：“谈论脱钩毫无意义。…
+
+【转推说，美商务部长吉娜·雷蒙多[@SecRaimondo](https://twitter.com/SecRaimondo)：“谈论脱钩毫无意义。正如拜登总统所说，我们对与中共国的冷战没有兴趣。这是一个太大的经济体——我们想要进入他们的经济，他们想要进入我们的经济”】
+
+
+
+> This is insane. Straight up appeasement of Communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). These are the same old tired, failed talking points that the China appeasers used to justify sending millions of jobs to China and destroying American industry [https://t.co/d1rC1TaUP2](https://t.co/d1rC1TaUP2)
+> — Josh Hawley (@HawleyMO) [September 29, 2021](https://twitter.com/HawleyMO/status/1443242680109129747?ref_src=twsrc%5Etfw)

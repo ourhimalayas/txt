@@ -2,29 +2,20 @@
 ---
 
 
-## 2021年9月4日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1563869/)
+## 欧盟20国支持谭德塞连任世卫总干事
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1563898/)
 
-盖特连接：[https://gettr.com/post/pa5jfn2cf7](https://gettr.com/post/pa5jfn2cf7)
+撰稿：文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/谭德赛.jpg)（图片来自网络）
+欧盟二十多个成员国于周四提议现任世卫组织秘书长谭德塞连任。欧盟多国提名谭德塞连任出乎多方预料。谭德塞曾在新冠疫情爆发初期无视中共隐瞒疫情事实，反而大赞中共抗疫有方，推迟宣布全球进入紧急卫生状态，因此一度引发国际反感。 但自从中共屡屡阻挠世卫专家前往中国新冠溯源后，谭德塞的立场开始转变,先是表示应对武汉病毒所重新进行调查，后又批评中共未能分享新冠病毒原始数据，并敦促中国配合世卫组织进行第二次病毒起源调查。 这招致中共多家媒体发文猛批谭德塞”背叛”中共。
 
-9月4号：尊敬的战友们好！你们传播C C P病毒．疫苗的解药的真相了吗？**🙏****🙏🙏🙏🙏🙏🙏🙏🙏**
+而上一次全力支持谭德塞当选的中共和非洲国家目前态度不明。笔者分析，欧盟和中共对谭德塞态度的前后转变，反映出西方和中共对世卫组织影响力的变化，目前西方国家已经更大程度影响了谭德塞， 9月26日世卫组织开始组建一个大约 20 名科学家的新团队恢复对 新冠病毒起源的调查，希望世卫组织的这次调查不再是走走过场。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+参考链接：
 
-（做了一组健身轮），欧~~哦哈姆呐姆Gi哈斯嘎呀（马背英雄中的蒙古语歌词：推翻共产党）！灭共！兄弟姐妹们，太多好消息了！明天直播，我有好多好消息告诉你们！每一组做二十四个，做六组，千万别试啊！千万别试！这个不是吹牛的！（送飞吻）。
+1.[曾被指屈服北京谭德塞华丽转身 欧盟20国支持连任世卫总干事 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210923-%E6%9B%BE%E8%A2%AB%E6%8C%87%E5%B1%88%E6%9C%8D%E5%8C%97%E4%BA%AC%E8%B0%AD%E5%BE%B7%E5%A1%9E%E5%8D%8E%E4%B8%BD%E8%BD%AC%E8%BA%AB-%E6%AC%A7%E7%9B%9F20%E5%9B%BD%E6%94%AF%E6%8C%81%E8%BF%9E%E4%BB%BB%E4%B8%96%E5%8D%AB%E6%80%BB%E5%B9%B2%E4%BA%8B)
 
-编辑整理及发布：黎明之前
+2.[WHO Seeks to Revive Stalled Inquiry Into Origins of Covid-19 With New Team – WSJ](https://www.wsj.com/articles/who-seeks-to-revive-stalled-inquiry-into-origins-of-covid-19-with-new-team-11632657603)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)

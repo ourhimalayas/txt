@@ -15,86 +15,86 @@
 
 ---
 
-### [毫无底线！YouTube全面封杀反疫苗言论](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [超限战打垮欧洲-评欧盟对华战略报告（六）](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [疫苗灾难笼罩下的航空业即将崩溃](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [油管禁止所有反疫苗视频，俄罗斯对此违法行为表不满](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花灭共诗——废土世（新韵）](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共诗——脑残逻辑爱国宣传](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [把酒言欢敬战友](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [媒体至暗时分，优酷宣布禁止所有反疫苗内容！](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年9月29日郭文贵先生G-TV直播小飞象速记版](/content/gnews/9/README.md)
+### [冰岛、比特币狗币很多来自与共产党勾兑的澳大利亚的黑钱](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [鸡尾酒疗法有效，但不接受疫苗接种者](/content/gnews/10/README.md)
+### [墙内要闻汇编](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文雍漫谈：从希波克拉底誓言到罗马宣言](/content/gnews/11/README.md)
+### [国际要闻汇编](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄电视台德语频道遭油管封杀 俄罗斯或因此封锁油管](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [毫无底线！YouTube全面封杀反疫苗言论](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [超限战打垮欧洲-评欧盟对华战略报告（六）](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [疫苗灾难笼罩下的航空业即将崩溃](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（二）](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [油管禁止所有反疫苗视频，俄罗斯对此违法行为表不满](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花灭共诗——废土世（新韵）](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——脑残逻辑爱国宣传](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [把酒言欢敬战友](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [媒体至暗时分，优酷宣布禁止所有反疫苗内容！](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年9月29日郭文贵先生G-TV直播小飞象速记版](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文雍漫谈：从希波克拉底誓言到罗马宣言](/content/gnews/15/README.md)
  ` 文雍`
 
-### [中国动力煤期货价格创历史新高，涨至1376.8元每吨](/content/gnews/12/README.md)
+### [中国动力煤期货价格创历史新高，涨至1376.8元每吨](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田文雄当选日本自民党新总裁，10月将当任日本首相](/content/gnews/13/README.md)
+### [岸田文雄当选日本自民党新总裁，10月将当任日本首相](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟20国支持谭德塞连任世卫总干事](/content/gnews/14/README.md)
+### [欧盟20国支持谭德塞连任世卫总干事](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [誓将善勇进行到底](/content/gnews/15/README.md)
+### [誓将善勇进行到底](/content/gnews/19/README.md)
  ` 纽约香草山MOS03`
 
-### [中共限电导致苹果特斯拉供应商停产](/content/gnews/16/README.md)
- ` 澳喜农场`
-
-### [维州：当日确诊病例1438例，再创记录](/content/gnews/17/README.md)
+### [维州：当日确诊病例1438例，再创记录](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年9月4日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/18/README.md)
+### [2021年9月4日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [斯洛文尼亚动用催泪弹和水炮车镇压中共病毒疫苗护照抗议者](/content/gnews/19/README.md)
+### [斯洛文尼亚动用催泪弹和水炮车镇压中共病毒疫苗护照抗议者](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [完全接种疫苗的密歇根州夫妇在几分钟内相继因中共病毒过世](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [金管局研究人民币计价港股 港币将消失](/content/gnews/22/README.md)
+### [金管局研究人民币计价港股 港币将消失](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [9/29/2021 七哥直播：当年印尼有110万华人被杀掉](/content/gnews/23/README.md)
+### [9/29/2021 七哥直播：当年印尼有110万华人被杀掉](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [昆士兰警察代表律师表示：疫苗授权具有“歧视性”](/content/gnews/24/README.md)
+### [昆士兰警察代表律师表示：疫苗授权具有“歧视性”](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [参议员罗恩·约翰逊： 拜登政府决定强制给在职的美国人接种疫苗,这是对公民自由的粗暴践踏](/content/gnews/25/README.md)
+### [参议员罗恩·约翰逊： 拜登政府决定强制给在职的美国人接种疫苗,这是对公民自由的粗暴践踏](/content/gnews/26/README.md)
  ` 美国政要直译推`
 
-### [中共超限战灭港行动（75）七二一大游行 起因与背景](/content/gnews/26/README.md)
+### [中共超限战灭港行动（75）七二一大游行 起因与背景](/content/gnews/27/README.md)
  ` 英喜-粵語組`
-
-### [2021年9月5日郭文贵先生吃饭饭盖特全文字版](/content/gnews/27/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [雅典娜时报-第067期](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
