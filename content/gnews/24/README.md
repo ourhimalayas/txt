@@ -2,9 +2,12 @@
 ---
 
 
-## 9/24郭文贵直播：渤海金控用虚假评估伪造了20万亿资产（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1564643/)
+## NBA球星乔纳森·犹大·艾萨克谈为啥不接种疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1564702/)
 
-9/24/2021 郭文贵直播：渤海金控用谎言和虚假评估伪造了20万亿的资产，海航通过骗老百姓的钱和做假帐达到了所谓每天2万倍的成长；恒大和海航都用同一套路骗钱，骗老百姓一万块拿走一千；国有房地产全靠吃回扣，私营企业全靠洗钱到海外去。
+- 制作：meiping
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+素材/翻译：JIHO；发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

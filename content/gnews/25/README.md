@@ -2,36 +2,33 @@
 ---
 
 
-## 丹佛警察就强制疫苗接种对市长提起诉讼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564620/)
+## 秘翻在线：数据显示使用瑞德西韦处方的中共病毒患者26%死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564698/)
 
-栏目记者/责任编辑：圣母院钟声
+#### **翻译：文斗**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/sad1f5665gtrh156yt156s1ad3f1sd3f12sda3.png)
 
+9月29日，加拿大非营利性新闻网站lifesitenews.com 报道，根据医疗护理和医疗救助服务中心数据库，26%使用瑞德西韦处方的中共病毒患者死亡。
 
+根据托马斯·伦茨（Thomas Renz）律师公布的数据，在医疗护理和医疗救助服务中心（Centers for Medicare & Medicaid Services ，简称CMS）的数据库中，25.9%使用瑞德西韦处方的中共病毒患者记录为已经死亡。CMS数据显示，在7960名因中共病毒被开具瑞德西韦处方的患者中，有2058名死亡。其中46%的死亡发生在接受瑞德西韦治疗的14天内。
 
-【National File】9 月 28 日报道，丹佛警察局的七名警官已经对市长迈克尔·汉考克(Michael Hancock)、公共卫生及环境部执行主任罗伯特·麦克唐纳(Robert McDonald)和丹佛警察局长保罗·帕赞(Paul Pazen)提起诉讼，指控他们对该市制定强制疫苗接种规定。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM-8、9、11.001.jpeg)
-有数百名丹佛警官签名，要求参与这场诉讼。如果强制疫苗接种令不撤销，这些警官会考虑辞去丹佛警察局的职务。
+中共病毒患者使用瑞德西韦处方的死亡率，让使用伊维菌素处方的死亡率相形见绌，根据CMS数据库的记录，伊维菌素处方的死亡率为7.2%。
 
-该诉讼写道，“在全民谨慎行事的情况下，每个人，包括健康的年轻人、老年人、曾经病毒感染康复而已获得自然免疫的人、甚至孕妇和哺乳期妇女，目前正受到来自于政府、企业和教育机构的压力，要求他们接受新冠疫苗接种，而没有评估每个人所要承担的风险，也没有考虑每个特定情况下的医疗必要性或禁忌症。在强制遵守疫苗接种的非法公共卫生命令下，无数人受到不可逆的健康损害……”。
+为了让公众进一步考虑瑞德西韦的安全性，伦茨指出，一份瑞德西韦临床试验最终报告显示，约有四分之一的患者遭受了该药物的严重不良反应事件。发表在《新英格兰医学杂志》（New England Journal of Medicine）上的这项研究表明，“在接受瑞德西韦的532名患者中，有131人报告了严重的不良反应事件（24.6%）”。
 
-世界觉醒民众与黑暗势力的较量正在进行中，当国家机器，像丹佛警局的警察们，法国巴黎的警察们，多伦多市的救火队员们……也都觉醒时，暗夜会在黎明的刺眼光照下瞬间消失殆尽。
-(本文仅代表作者观点)
+伦茨在他的网站上指出，这些数据 “被政府隐瞒了，没有告诉我们的公民”。他补充说：“这就提出了一个问题……为什么美国医院采用这样的方案？这对你是否‘安全和有效’？”
 
-参考链接：[Denver Cops File Lawsuit Against Democrat Mayor Over Vaccine Mandate, Claim Hundreds Of Officers Are Ready To Resign](https://nationalfile.com/denver-cops-file-lawsuit-against-democrat-mayor-over-vaccine-mandate-claim-hundreds-of-officers-are-ready-to-resign/)
+瑞德西韦是目前唯一被美国食品药物管理局（FDA）批准用于治疗中共病毒的药物，因为中共病毒治疗指南小组继续建议不要使用羟氯喹，并且也不建议或反对使用伊维菌素。
 
-![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+在其网站上分享的一份报告中，伦茨还指出，医院将为每瓶瑞德西韦支付390美元，五天疗程的平均费用为2340至3120美元，而使用伊维菌素的患者人均费用为24美元。
 
-终审：Q大哥
-校正/发稿：我不在这里
+伦茨的CMS数据报告并不是发现使用瑞德西韦导致高死亡率的第一份报告。Bryan Ardis博士在一个调查中共病毒大流行期间政府侵犯人权行为的国际法律团体的录像采访中分享说，瑞德西韦在2018年的埃博拉临床试验中被放弃，因为发现该药物在被测试的四种药物中死亡率最高。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+埃博拉临床试验由国家过敏和传染病研究所（NIAID）赞助，福奇是该研究所的主任。作为时任总统唐纳德·川普关于中共病毒的首席医学顾问之一，他肯定知道瑞德西韦的死亡率为50%，而试验中其他两种药物的死亡率为35%——而且有严重的副作用，包括至少一次死亡，导致该药物被撤下并放弃了对它的研究。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+正如CNBC报道的那样，即使在2020年4月福奇宣传使用瑞德西韦治疗中共病毒时，他也承认“瑞德西韦的降低死亡率效益”“尚未达到统计学意义”。
+
+译评：我们绝大多数人对医药专业一无所知，我们只能选择相信专家。现在，一些控制医药行业的资本、掌握医药专业知识的“专家”，利用平民的知识盲区与信任，凭借知识权威与信息垄断来侵害平民。这些人是为了钱，而平民失去的不止是钱，更有宝贵的生命。这世界的黑暗力量让人心惊胆寒。
+
+新闻来源：[**26% of those prescribed Remdesivir for COVID died, according to Medicare database**](https://www.lifesitenews.com/news/26-of-those-prescribed-remdesivir-for-covid-died-according-to-medicare-database/)

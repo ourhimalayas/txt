@@ -2,27 +2,36 @@
 ---
 
 
-## 全球最大退休基金决定不再投资中共国公债
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564480/)
+## 中共接管香港电台，颁布“凌驾性原则”结束新闻自由
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564576/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/09/图片2-32.png)
-图片来自网络
+栏目记者/责任编辑：云豹
 
-《阿波罗新闻网》9月30日消息，据《日本经济新闻》9月29日报道，全球最大的退休养老基金——日本的“政府年金投资基金”（GPIF）已决定不将人民币计价的中共国公债纳入投资组合。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-GPIF将排除投资中共国主权债的时机，选择在英国的富时罗素“世界政府债券指数”（WGBI）即将把中共国公债纳入指数之前。从10月底开始，WGBI预定将以三年的时间，逐步将中共国公债纳入指数，而日本的“政府年金投资基金”原本追随该指数。
+9月29日，官方香港电台对员工发布《香港电台编辑政策及流程》文件，以一国两制为名，行中共新闻管控之实。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/0930AM（2、3）.001.jpeg)
+文件以13项编辑政策破坏新闻自由、泯灭媒体人良知。文件中指示，香港电台的节目不得提供平台从事鼓励、煽动、宣扬、美化具有认同或同情所谓危害国家安全的行为或活动；也不得报导包含任何所谓不利于国家安全的内容。 显然是针对香港反送中运动以来的媒体报导。
 
-《日本经济新闻》的报道指出，在恒大集团的债务危机升高后，GPIF基于中共国债券市场的不确定性及其他因素考量，决定其投资组合中不再加入中共国的主权债券。根据3月底的数据显示，GPIF投资于与恒大集团有关的股票与债券，总价值大约为97亿日元（约8690万美元）。
+文件还规定了中共新闻审查制度，列出了在制作中必须事先上报的一些内容事项。该文件的发布标志着香港的新闻自由已彻底结束。
+(本文仅代表作者观点)
 
-GPIF官员长冈宏（Hiroshi Nagaoka）对《彭博资讯》表示，该基金未来将以不含中共国的WGBI版本进行投资。
+参考链接：
 
-据《彭博资讯》披露，当日公布的GPIF理事会7月的会议纪录显示，当时与会理事就已倾向避免投资中共国债券，主要是担心交割问题、流动性和稳定性等，并议定本月做出最后决定。
+1. [香港電台新約章：維護憲制秩序一國兩制凌駕一切](https://www.cna.com.tw/news/acn/202109290335.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2. [港台編輯政策列明維護憲制秩序和一國兩制屬凌駕性原則](https://news.rthk.hk/rthk/ch/component/k2/1612822-20210929.htm)
 
-截至6月底，日本“政府年金投资基金”管理的资产，价值193兆日元（约1.7兆美元），其中有47兆日元为外国债券。该基金目前并未投资以人民币计价的中共国公债，而基金追随WGBI投资的金额约为20兆日元。
 
-日本政府年金投资基金的这一决定实属明智之举。爆料革命和新中国联邦创始人郭文贵先生早就指出，美、加、日、英等大国的很多退休基金，大量投资于中共国，是巨大的灾难。这些退休养老资金将随着中共的灭亡，最终血本无归，必将会对这些国家造成难以弥补的伤害。
+![This image has an empty alt attribute; its file name is 9_Sep_mini2.jpg](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-注：本文仅代表作者观点
+终审：FoxRina
+校正/发稿：我不在这里
 
-**新闻链接：**[https://twitter.com/aboluowang/status/1443319312324837376](https://twitter.com/aboluowang/status/1443319312324837376)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

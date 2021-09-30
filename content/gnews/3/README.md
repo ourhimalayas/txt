@@ -2,21 +2,32 @@
 ---
 
 
-## 视人民为敌的邪恶政权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1564872/)
+## 澳大利亚企业反抗政府严厉的封锁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564953/)
 
-#### 作者：东京樱花团｜阿恩
+栏目记者/责任编辑：DM
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-466.png)
+零对冲昨日报导，澳洲许多大公司的领导人，包括BHP、麦格理和澳洲航空的澳大利亚商业委员会签署了一封公开信，要求政府考虑经济和民意，解除过于严厉的封锁政策，像其他国家一样开放边境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/shengji.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-31.jpeg)
 
-古往今来国君的责任就是庇护和造福自己的人民，而残暴的君王只有被人民推翻，甚至死无葬身之地的命运。古埃及在法老的统治下曾经雄霸东方，这些被历史书籍上描述得如何残暴的法老，却并不苛待他的臣民，虽然古埃及人有严格的阶级制度，但即使基层的古埃及人生活也平稳，并不十分艰苦，因所有劳役的工作均由外邦人和奴隶们承担。法老允许臣民拥有自己的土地，肥沃的尼罗河两岸为古埃及人民带来丰厚的物产，也充实了法老的粮仓。古埃及的年轻男性是法老忠实的卫士，铁战车和彪悍的马匹是战士们英勇杀敌卫国的利器，法老及其子嗣经常与战士们一起浴血奋战，被人民誉为神的化身，国运亨通数千年。
+签署该公开信的公司雇佣了近100万澳大利亚人，澳洲的大小企业均在政府的疫情政策中苦苦挣扎，签署者之一，墨尔本基金管理公司乐筹金融的首席执行官格雷格·奥尼尔表示：现在是拿出勇气和诚实的时候了。
 
-中共七十年独裁统治中国，人民却命如草芥，不仅没有一寸自己的土地，连生育权和生存权也被剥夺，唯一有民主自由之光的香港也被中共武力抹去。中共进驻香港后，最大的投资就是督促港府加强装备警力和提高警队收入。2019年的反逃犯条例运动中（反送中），港府坚持拒绝回应民意，并差派港警残酷镇压市民，催泪弹壳堆积如山，胡椒喷剂、橡胶子弹、布袋弹、警棍、实弹……所有的这些武器悉数在手无寸铁的港人身上尽情使用，杀敌卫国的英勇如今变成了家暴。
+从封锁到疫苗，澳州政府在疫情诸多政策上的专政表现，已经引起了澳洲民众不满与反抗，此番澳洲大企业的联合发声，为澳洲抗争带来了希望。
 
-[临近今年中共10.1国庆，港警进一步升级了武器装备，不仅有致命新手枪和强化胡椒球，还有特制的保护衣](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/679178/10-1%E5%9C%8B%E6%85%B6-%E7%9B%A4%E9%BB%9E%E8%AD%A6%E9%9A%8A%E6%96%B0%E8%A3%9D%E5%82%99-%E5%BC%95%E5%85%A5%E8%83%A1%E6%A4%92%E7%90%83%E6%89%8B%E6%A7%8D%E5%8F%8A%E6%B0%B4%E6%A7%8D-%E5%8D%87%E7%B4%9A%E9%98%B2%E6%9A%B4%E8%A3%9D)。这些手持利器的警察究竟有没有想过，这些武器要对付的究竟是拥有怎样武装的敌人，这些被中共定义为“敌人”的，其实是自己的同胞，同住一个地球的弟兄姊妹。港警为何要去服务于邪恶的政权，成就中共挑起人类纷争与仇恨的工具，你们向同胞所施的罪恶，都将归到你的后代身上。中共的暴力治国还妄想能延续百年，你们用生命维护的邪恶政权在倒塌的那刻也会连带你们一同被毁灭。
+（本文仅代表作者观点）
 
-（本文只代表个人观点，与Gnews网站无关）
+参考链接：[Australia’s Corporations Rebel Against Government’s Draconian COVID Lockdowns](https://twitter.com/zerohedge/status/1443390250844295169?s=21)
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：FoxRina
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)

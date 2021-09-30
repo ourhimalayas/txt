@@ -2,37 +2,22 @@
 ---
 
 
-## 美FCC斥资19亿主导拆除中共国网络设备
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1564841/)
+## 突破临界点！中共国9月PMI降至49.6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1564911/)
 
-作者：修文
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/09/093021.png)[图片来源](http://www.stats.gov.cn/tjsj/zxfb/202109/t20210930_1822646.html)
+9月30日中共国家统计局发布的《2021年9月中国采购经理指数运行情况》：9月制造业PMI为49.6，降至临界点以下。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+报告称，中国制造业采购经理指数(PMI)为49.6%，低于上月0.5个百分点，降至临界点以下，制造业景气水平有所回落。从企业规模看，大型企业PMI为50.4%，比上月微升0.1个百分点，继续高于临界点；中型企业PMI为49.7%，比上月下降1.5个百分点，低于临界点；小型企业PMI为47.5%，比上月下降0.7个百分点，低于临界点。从分类指数看，在构成制造业PMI的5个分类指数中，生产指数、新订单指数、原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
 
+郭文贵先生9月29日大直播爆料，美国工业用电1万亿度，中国大约3万亿度；美国居民平均用电大约5000度，而中国人只有600-700度；美国居民用电占40%，而中共国居民用电只有30%。中共国年用电量大约8.5万亿度电，大约1万多亿美元规模，仅在建核电站就多达32个，居民用电能力充分反映了人民的生活水平和基本人权状况。
 
+由于中共外汇枯竭，加之内部斗争不断升级，中共不愿意进口澳洲高热值煤炭，导致煤电价格倒挂，造成供电公司卖的越多，亏损越多，可以预见中共国PMI指数还会一路走低。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/美FCC斥资19亿主导拆除中国网络设备.png)图片来源：网络
+信息来源：[2021年9月中国采购经理指数运行情况](http://www.stats.gov.cn/tjsj/zxfb/202109/t20210930_1822646.html)
 
-美国联邦通信委员会（FCC）9月27日表示，将启动一个价值19亿美元的项目，为美国乡村地区电信运营商提供补偿，帮助拆除华为和中兴等中共国公司生产的网络设备。据悉，该项目将在今年10月29日至2022年1月14日期间接受申请。
-
-去年，FCC认定华为和中兴公司对通信网络已构成国家安全威胁，并规定采用中兴或华为设备的运营商“拆除并更换”这些设备。因考虑拆除和更换成本，FCC会对客户人数在1000万以下的运营商进行补偿。此举亦显示美国在通信行业去除中共国网络安全威胁的决心。
-
-除华为和中兴通讯外，FCC也认定海能达通信、杭州海康威视数字和浙江大华技术威胁国家安全。美国政府已禁止联邦机构从这5家公司购买商品或服务，还可能撤销此前已发出的设备授权。
-
-参考链接：[美FCC斥资助美电信商拆除威胁国家安全的中国网络设备](https://www.voachinese.com/a/FCC-support-for-replacing-Huawei-equipment-in-US-networks-20210928/6249002.html)
-
-编辑/校对/发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
