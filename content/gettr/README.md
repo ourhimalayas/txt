@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 9/30/2021 11:44 AM (UTC)`
+
+9月30号：当科技．制药寡头．媒体寡头控制全世界的时候，要么人类重生，要么人类被消灭。我相信我们的现在灭对的一切，就是人类重生的最佳机会。可悲的是人类要付出这么多的代价，怎么大的代价？【一个曾经非常健康的父亲在注射新冠疫苗以后有可能因为血栓而失去他的胳膊和腿，而且他还得了双重肺炎以及充血性心力衰竭】
+![img](https://media.gettr.com/group10/getter/2021/09/30/11/44/7402154f-1d9e-97ae-a40d-3ba7c495507a/out.jpg)
+
+---
+
 `@miles 9/30/2021 5:53 AM (UTC)`
 
 9/29/2021 Miles Guo: The 3 major banks designated to receive Huobi’s refunds are Shanghai Bank, BOC, and PSBC, which is controlled by Xi and is one of the most corrupt banks in the Communist China; Due to the blockchain technology, Huobi’s refunds must be go back to the users’ original bank accounts or the designated ones; This recent major power outage in the Communist China is caused by a great contest between the political and economic interests groups within the CCP, involving key cases of the CCP’s energy sector, the Development and Reform Commission, and ultimately the Central Commission for Discipline Inspection<br/><br/>9/29/2021 文贵直播：火币退钱的三大指定银行是上海银行、中国银行和邮储银行，其中邮储银行由习控制，是中共国最腐败的银行之一；由于使用了区块链技术，火币的退钱必须原路返回或退回指定账号；此次大停电是中共国内政治经济利益大较量的结果，这将牵涉到中共能源板块、发改委乃至中纪委的重大案件！<br/>
@@ -292,14 +299,6 @@ Say “NO” to covid vaccine!  <br/>Say “No” to mandate covid vaccine befor
 
 9月27号：尊敬的战友们好……七哥建议所有的战友们要认真思考，未来一两年的生活和生存的方式，严肃认真的对待社会结构及政治各方面改变带来的冲击，特别是要对疫苗灾难的脑梗，心梗等各种不可预料的交通灾难事件的发生必要的防护！
 ![img](https://media.gettr.com/group41/getter/2021/09/27/16/37/7a6a0d71-26f5-98f6-dff2-b205d68e7f84/out.jpg)
-
----
-
-`@miles 9/27/2021 3:39 PM (UTC)`
-
-10月27号：七哥又蒙对了．德国的社会结构，政治结构将彻底改变。
-> `@2mmbpkm00ijwiuv 9/27/2021 3:34 PM (UTC)`<br/>德国新总理产生，来自社民党的奥拉夫·舒尔茨担任德国总理。
-![img](https://media.gettr.com/group20/getter/2021/09/27/15/18813d22-b842-0ae2-6406-72151dd261de/out.jpg)
 
 ---
 
