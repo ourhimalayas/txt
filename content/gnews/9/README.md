@@ -2,44 +2,46 @@
 ---
 
 
-## 有声| 部分英国中学遇网络侵入 系统向家长发出知情同意书
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1564377/)
+## 民意调查显示，澳大利亚人正在认同“自由比法律更重要”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1564402/)
 
-配音：香草山教育部-蒙古鸿雁
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/打倒-47.png)
+**图片来源：****7 News**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+9月29日，澳大利亚著名市场调查公司罗伊·摩根的最新调查数据显示，自新冠病毒大流行以来，相比国家法律，澳大利亚人支持自由的观点有了持续增长。14岁以上的澳大利亚人中29.3%现在同意“自由比法律更重要”，这与2020年3月支持率21.6%相比，增加了近8%。
 
+上周，人民的情绪在墨尔本街头展现很明显。我们可以看到建筑工人、商人和其他人每天都在抗议，反对强制疫苗接种和延长封锁。经常看到墨尔本内城的抗议者成群结队地呼喊“自由”，这违反了维多利亚州目前禁止人们大规模聚集的卫生法令。
 
+从性别上看，女性认同这一声明增长的份额比男性更大，大约四分之一的女性（24.9%）现在同意该声明，比2020年3月季度增加了8.4%，接近2021年3月季度达到的25.2%的高点；超过三分之一（33.8%）的男性同意该声明，比2020年第3季度增加了6.8%。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/百年-2.png)
+图片来源：Roy Morgan
 
+从不同年代的人对这句话的反应分析表明，认同与年龄有很大关系，越年轻越高。即便如此，同意“自由比法律更重要”的各年代人都在增加。
 
+几乎五分之二的Z世代年轻人（38.1%）同意“自由比法律更重要”，比2020年3月季度增加了5.4%个百分点，比任何其他年龄段都高。
 
+【备注：Z世代一般指1997年以后出生的任何人。】
 
+然而，在新冠病毒大流行期间，同意“自由比法律更重要”的人中，千禧一代的增幅最大，在2021年6月上升了12.2%点，达到35.4%。
 
-刚刚过去的周末，数家英国中学邮件系统遭受网络侵入，向系统中的家长邮件列表地址发送新冠疫苗接种知情同意书。
+【备注：千禧一代一般指上世纪80-90年代出生的任何人。】
 
-这份两页的pdf文件详细列出来新冠病毒和疫苗的多项事实，包括疫苗属于紧急授权缺乏临床数据、将诱导人体产生刺突蛋白、无法保护接种人不受病毒感染、超高严重不良反应比率及导致不孕不育的长期影响。文件同时强调了，年轻人群因接种新冠疫苗的死亡概率远远大于病毒本身的危害。所有的新冠疫苗都是实验性的，其制造商可免于承担民事责任。
+X世代中超过四分之一的人（26%）现在同意“自由比法律更重要”，比新冠病毒大流行前上升了8.5%点。这是所有年龄段中第二大的增长，涵盖了40多岁和50多岁的人。
 
+【备注：X世代一般指上世纪六、七十年代出生的任何人。】
 
+年龄在60岁以上的澳大利亚人最不可能同意这种说法，只有18%的婴儿潮一代和17.2%的婴儿潮前一代同意“自由比法律更重要”。
 
-**文字版原文：[部分英国中学遇网络侵入 系统向家长发出知情同意书](https://gnews.org/zh-hans/1560687/)**
+（以上文章仅代表作者个人观点，与Gnews平台无关）
 
+原文链接：[29% of Australians now say ‘Freedom is more important than the law’ – Roy Morgan Research](https://www.roymorgan.com/findings/8801-freedom-and-the-law-june-2021-202109270703)
 
+编辑/发布：文泓
 
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

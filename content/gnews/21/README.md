@@ -2,19 +2,31 @@
 ---
 
 
-## 澳州官员警告说 未接种疫苗的人未来生活会有很多不便
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564260/)
+## 恒大将向国企出售盛京银行15亿美元股权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1564281/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-29t011108z_2_lynxmpeh8s00o_rtroptp_3_china-evergrande-debt-wealth-1.jpg)网络图片
+现金紧张的中国恒大周三（9月29日）表示，计划将其持有的盛京银行99.9亿元人民币（合15亿美元）的股份出售给一家国有资产管理公司，以筹集资金。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Picture2-2-2.jpg)图片来源：美联社
-据《布雷特巴特新闻网》（Breitbart News）9月28日报道，澳大利亚新南威尔士州州长格拉迪斯·贝尔吉格利安 (Gladys Berejiklian) 9月28日告诉记者说，当居家限制令（stay-at-home orders）于今年12月终止时，那些仍未接种中共病毒疫苗的人在日常生活上将面临诸多苦难，从参加社会活动到求职就业都会受到影响，而且这种影响是无限期的。
+恒大表示，盛京银行已要求将出售所得全部净收益用于清偿集团对盛京银行的相关金融负债。
 
-贝尔吉格利安告诉第7频道新闻网（7News）：“很多企业已经表示，他们不会招收任何未接种疫苗的人。“ 因为澳州政府严格执行新冠政策，所以警察在街上逮捕那些不戴口罩的人，正如数个视频所显示的那样。
+恒大迅速成为中共国最令人头痛的企业，因为它在影响深远的混乱崩溃、有管理的崩溃或不可能得到中共政府纾困之间摇摆不定。
 
-悉尼政府承诺在10月11日至12月1日期间，对已接种疫苗的居民放松封锁限令。“在悉尼的所在地新南威尔士州，酒吧、咖啡馆、健身房和理发店将于10月11日向完全接种疫苗的人重新开放。一旦80%的成年人完全接种了疫苗，更多禁令将被解除。”截至9月28日，澳州的接种率仍为52%。澳大利亚领导人表示，接种率必须达到80%以上，澳州才能完全重新开放。卫生部长格雷格·亨特 (Greg Hunt)敦促人们接种疫苗，“接种疫苗是为了拯救你的生命。”
+恒大董事长许家印在声明中表示：“公司的流动性问题对盛京银行产生了实质性的不利影响”。
 
-美国佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis) 9月23日直言不讳地表示：“澳大利亚不能再被视为是一个‘自由的国家’，因为它继续实施军事化的封锁禁令，对人们的监管程度和监控其饮酒一样严厉。现在的澳洲比中共国更自由吗？”
+收购方作为国有企业，它的的引入，将有助于稳定盛京银行的运营，同时有助于提高和维持公司保留的盛京银行14.75%的权益价值。
 
-新闻来源：[Australia: Official Warns: ‘Life for the Unvaccinated Will Be Very Difficult Indefinitely’](https://www.breitbart.com/politics/2021/09/28/australia-official-warns-sydney-residents-unvaccinated-will-face-social-isolation-difficult-life/)
+知情人士本周对路透社表示，中共政府正在推动国有企业和国有房地产开发商收购陷入困境的中国恒大集团的部分资产。
+
+**原文链接：**[https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071](https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

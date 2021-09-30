@@ -2,31 +2,35 @@
 ---
 
 
-## 恒大将向国企出售盛京银行15亿美元股权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1564281/)
+## 秘翻在线：澳大利亚疫苗专家在法庭上的无知与傲慢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564328/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-29t011108z_2_lynxmpeh8s00o_rtroptp_3_china-evergrande-debt-wealth-1.jpg)网络图片
-现金紧张的中国恒大周三（9月29日）表示，计划将其持有的盛京银行99.9亿元人民币（合15亿美元）的股份出售给一家国有资产管理公司，以筹集资金。
+#### 撰稿：彩虹        
 
-恒大表示，盛京银行已要求将出售所得全部净收益用于清偿集团对盛京银行的相关金融负债。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-450.png)图片来源：7News
+9月30日，《悉尼先驱晨报》报道了澳大利亚新南威尔士州民众就中共病毒疫情等问题起诉政府官员和州政府的最新进展。
 
-恒大迅速成为中共国最令人头痛的企业，因为它在影响深远的混乱崩溃、有管理的崩溃或不可能得到中共政府纾困之间摇摆不定。
+新南威尔士州卫生部今天（周四）宣布，自6月16日最新中共病毒疫情开始以来，新南威尔士州有337例与中共病毒相关的死亡病例，共有56500中共病毒病例。目前，新州有1090人在医院接受新冠病毒治疗，其中213人在重症监护室。
 
-恒大董事长许家印在声明中表示：“公司的流动性问题对盛京银行产生了实质性的不利影响”。
+根据报道，新南威尔士州强制要求某些行业的工人接种中共病毒疫苗，如要求医生、护士和护理人员在内的医护人员必须在周四之前接种至少一剂中共病毒疫苗才能上班，或者提供一份医疗证明，以详细说明他们为何不能接种中共病毒疫苗。此外，政府还对老年护理人员、新南威尔士州警察、公立学校、学前教育机构的工作人员以及建筑行业也发布了强制接种中共病毒疫苗的规定。
 
-收购方作为国有企业，它的的引入，将有助于稳定盛京银行的运营，同时有助于提高和维持公司保留的盛京银行14.75%的权益价值。
+对此，多名普通民众在新南威尔士州最高法院针对州政府和州卫生部长布拉德·哈扎德（Brad Hazzard）发起了诉讼。这些原告包括：老年护理人员娜塔莎·亨利（Natasha Henry）和塞琳娜·克罗(Selina Crowe)，护理人员约翰·莱特（John Larter）、高中特殊教育教师朱莉·拉莫斯（Julie Ramos）和建筑工人阿尔·穆尼尔·卡萨姆（Al-Munir Kassam）。其他原告包括一名孕妇，她是Laverty Pathology化验室的工作人员，也是班克斯敦（Bankstown）医院的一名工人。
 
-知情人士本周对路透社表示，中共政府正在推动国有企业和国有房地产开发商收购陷入困境的中国恒大集团的部分资产。
+原告方认为，要求从10月11日起，接种疫苗者才可以出席某些零售场所的活动，这是不合法和无效的，违反了自然正义的要求。
 
-**原文链接：**[https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071](https://www.channelnewsasia.com/business/china-evergrande-sell-shengjing-bank-2209071)
+值得注意的是，代表建筑工人卡萨姆先生出庭的彼得·金（Peter King）大律师说，他认为哈扎德先生没有调查或询问中共病毒（COVID-19）的替代治疗方案。
 
-* * *
+就一位营养学家的意见，即锌、维生素D和维生素C“将是中共病毒（COVID-19）患者的安全和有效的治疗方法”一事，他向疫苗专家、澳大利亚免疫技术咨询小组（ATAGI）成员克里斯汀·麦卡特尼（Kristine Macartney）教授进行了询问。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+麦卡特尼的回复是：“不，我不同意这个观点。”
 
+彼得·金律师也提出了一系列其他治疗药物，包括伊维菌素、羟氯喹、阿司匹林、哮喘病药物singulair以及土霉素等。
 
-编辑：【英国伦敦喜庄园编辑部】
+麦卡特尼却回答说，她没有亲自参与任何有关药物治疗中共病毒有效性的研究，但她认为她已经了解了所有可用的证据和评论。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**新闻来源**
+
+[Expert asked about vitamin C, zinc during court challenge to COVID-19 vaccine mandate](https://www.smh.com.au/national/nsw/expert-asked-about-vitamin-c-zinc-during-court-challenge-to-covid-19-vaccine-mandate-20210930-p58w09.html)
+
+**关键词**

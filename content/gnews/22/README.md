@@ -2,11 +2,10 @@
 ---
 
 
-## mRNA疫苗技术发明者领头签署《医生宣言》，谴责政府干预违宪并构成“反人类罪”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564259/)
+## 墙内限电暴露了中共的能源腐败和政治较量
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564280/)
 
-栏目记者：正义的小新
-责任编辑：文一
+栏目记者/责任编辑：Zion文恩
 
 
 
@@ -16,33 +15,16 @@
 
 
 
-数千名医生签署《医生宣言》宣称，应对中共病毒的全球战略完全是“反人类罪”，并谴责所有政策制定者和政客们强行要求人们呆在家里，保持社交距离，强制疫苗等规定没有科学依据，更是违宪的。宣言同时捍卫医生依据专业知识对新冠患者进行早期治疗的基本权利。
+近一段时间以来，中共在东北、华北，以及南方等地推出大规模限电的政策。郭文贵先生在9月29日的直播中揭露了中共此举的深意。
 
-这份宣言正是由mRNA疫苗技术主要发明者罗伯特-马龙博士领导的团队撰写的，并由他本人9月12日在罗马举行全球新冠病毒峰会上首次宣读，也是目前官方批评新冠治疗现状最强声。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3-76.jpg)
-这些医生指出政府对他们工作的强行干预导致“数十万病人不必要的死亡”，已构成“反人类罪”。
-
-根据马龙博士9月28日的推文，目前签名已超过5200个。
-
-另悉罗马峰会上集中讨论了新冠早期治疗方案问题，其中包括使用伊维菌素和羟氯喹。会议在大胡子医生，泽连科博士的视频致辞中拉开帷幕。马龙博士称其为英雄，应该获得诺贝尔奖。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/3.1-12.jpg)
-
-
+郭先生说，中共国年均真实用电量约8.7万亿度，美国实际用电量4.5万亿度，中国的用电总量约是美国的两倍，然而两国的人均月用电量差异显著——美国人均月用电量约500度，然而中国人均月用电量只有六七十度，其中，排除美国普及电气化厨卫以及电动汽车的影响，中国人一年的用电量，也不及美国人一月的用电量。中国一年的工业用电有三万亿度，美国的年均工业用电量约一万亿度。很难想象，美国作为世界第一工业大国，其工业用电量竟不如中国工业用电量的一半。其中猫腻，郭文贵先生引用中共原统计局局长王保安的话，揭露了中共当局通过大规模擅自修改电表，增收电费、压榨民营企业的事实。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4-57.jpg)
+郭先生指出，中共每年的发电量，约有三分之一的煤炭资源来源于澳大利亚的优质煤炭资源，涉及数百亿美元的现金交易。澳洲的矿产资源、材料加工产业，绝大多数已完与中共勾兑。产生了巨额非法政治献金、偷税漏税、以及各种两国间的非法交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4.1-10.jpg)
+此次中共大范围的停电、限电，完全是党内政治、经济斗争的结果。早先，中共拒绝进口澳洲煤矿，本是习近平当局维护其权威的荒唐之举。习当局寄希望于开发国内的煤炭资源以填充当下的燃煤空缺，然而，中共低估了病毒和疫苗的威胁——当下国内煤炭开采的各项成本远高于利润，以致煤炭开采链断裂。中共万般无奈，出此限电下策。此外，习当局已借机开展一系列针对能源部门、发改委的清洗，打击李鹏等把持能源行业的家族。此举会将中共二十大前的政治、经济斗争推向新的高潮。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/4.2-3.jpg)
 参考链接：
-[More than 3,000 doctors agree: Fauci and other covid policymakers have committed “crimes against humanity”](https://newstarget.com/2021-09-28-doctors-fauci-covid-policymakers-crimes-humanity.html)
-
-[4,200 physicians, scientists sign declaration for early treatment of COVID-19, against gov’t intrusion](https://www.lifesitenews.com/blogs/4200-physicians-sign-declaration-for-early-treatment-of-covid-19-against-govt-intrusion/)
-
-[Robert W Malone, MD： Over 5,200 signatories now.](https://twitter.com/rwmalonemd/status/1442800138448146433?s=21)
-
-视频素材：
-[Global Covid Summit](https://globalcovidsummit.org/news/san-juan-panel-undertreatment-cited-as-a-cause-for-hospitalizations-long-haul-covid)
-
-[International Covid Summt – Roma](https://ippocrateorg.org/2021/09/05/international-covid-summit/)
-
-[ICS 2021 – Meet the people](https://www.youtube.com/watch?v=IQAeguvHFM8)
-
-[Canadian Dr. Ira Bernstein Talks about the Recent Rome Summit & the Related San Juan & CCCA Declarations](https://covexit.com/canadian-dr-ira-bernstein-talks-about-the-recent-rome-summit-the-related-san-juan-ccca-declarations/)
+[2021年9月29日 文贵大直播：中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，虚拟币是美国和中共都抢不走钱，只有喜币最安全；](https://gtv.org/video/id=615466c142a8af3151a74ee3)
 
 （本文仅代表作者观点）
 
