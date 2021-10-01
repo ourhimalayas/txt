@@ -15,116 +15,116 @@
 
 ---
 
-### [一个月来塔利班铁血统治阿富汗](/content/gnews/1/README.md)
+### [保存好你的证据等待即将到来的纽伦堡大审判](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [一个月来塔利班铁血统治阿富汗](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [让那些想毀掉美国的人见鬼去吧！—— 来自斯巴达克斯的信](/content/gnews/2/README.md)
+### [让那些想毀掉美国的人见鬼去吧！—— 来自斯巴达克斯的信](/content/gnews/3/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [两议员呼吁美将华大基因等公司列入黑名单](/content/gnews/3/README.md)
+### [两议员呼吁美将华大基因等公司列入黑名单](/content/gnews/4/README.md)
  ` HimalayaRussia`
 
-### [唐纳德川普被期待加入由他的前顾问经营的Twitter替代品 Gettr](/content/gnews/4/README.md)
+### [唐纳德川普被期待加入由他的前顾问经营的Twitter替代品 Gettr](/content/gnews/5/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [2021/09/30文贵先生盖特精要](/content/gnews/5/README.md)
+### [2021/09/30文贵先生盖特精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [墙国新闻：2021年7月21日突发事件鄭州洪水引发公共交通危机百姓伤亡惨重](/content/gnews/6/README.md)
+### [墙国新闻：2021年7月21日突发事件鄭州洪水引发公共交通危机百姓伤亡惨重](/content/gnews/7/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [中共对中国维吾尔人的深远监视](/content/gnews/7/README.md)
+### [中共对中国维吾尔人的深远监视](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [斯洛文尼亚警方在反疫苗通行证抗议中使用水炮](/content/gnews/8/README.md)
+### [斯洛文尼亚警方在反疫苗通行证抗议中使用水炮](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖特宣布2021年抽奖送哈雷·戴维森摩托车活动](/content/gnews/9/README.md)
+### [盖特宣布2021年抽奖送哈雷·戴维森摩托车活动](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [坎普：煤荒导致的中共国电力危机](/content/gnews/10/README.md)
+### [坎普：煤荒导致的中共国电力危机](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [北京要求国企等地产商购入恒大资产](/content/gnews/11/README.md)
+### [北京要求国企等地产商购入恒大资产](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国面临史上首次债务违约](/content/gnews/12/README.md)
+### [美国面临史上首次债务违约](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [朝鲜试射新型超高音速导弹](/content/gnews/13/README.md)
+### [朝鲜试射新型超高音速导弹](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [昆士兰警员准备就疫苗强制令状告警局](/content/gnews/14/README.md)
+### [昆士兰警员准备就疫苗强制令状告警局](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大美元债月内次未能付息](/content/gnews/15/README.md)
+### [恒大美元债月内次未能付息](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [盖特再推用户抽奖活动，赢取哈雷戴维森摩托车](/content/gnews/16/README.md)
+### [盖特再推用户抽奖活动，赢取哈雷戴维森摩托车](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [川普被TWITTER替代者GETTR所吸引](/content/gnews/17/README.md)
+### [川普被TWITTER替代者GETTR所吸引](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效](/content/gnews/18/README.md)
+### [参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [何以为继&#8211;加拿大去年出生率为近15年来最低！](/content/gnews/19/README.md)
+### [何以为继&#8211;加拿大去年出生率为近15年来最低！](/content/gnews/20/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [2020年文贵就开始谈缺电&#8211;腐败+不买澳大利亚的煤](/content/gnews/20/README.md)
+### [2020年文贵就开始谈缺电&#8211;腐败+不买澳大利亚的煤](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年9月29日郭文贵先生直播全文字版](/content/gnews/21/README.md)
+### [2021年9月29日郭文贵先生直播全文字版](/content/gnews/22/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [[#G时新闻】一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/22/README.md)
+### [[#G时新闻】一种被忽视的毒疫苗杀手锏——刺突蛋白脱落](/content/gnews/23/README.md)
  ` 中共病毒真相`
 
-### [约翰逊在美参议院质疑中共病毒疫苗的有效性](/content/gnews/23/README.md)
+### [约翰逊在美参议院质疑中共病毒疫苗的有效性](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [福奇和其他新冠病毒政策制定者犯下了“危害人类罪”](/content/gnews/24/README.md)
+### [福奇和其他新冠病毒政策制定者犯下了“危害人类罪”](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗暴政——这场安静的屠杀即将结束](/content/gnews/25/README.md)
+### [疫苗暴政——这场安静的屠杀即将结束](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [法国外交部长称法美关系处于严重危机中](/content/gnews/26/README.md)
+### [法国外交部长称法美关系处于严重危机中](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [唯真不破反洗脑‑‑ 我什么都不信了之三：吓人的柱状图](/content/gnews/27/README.md)
+### [唯真不破反洗脑‑‑ 我什么都不信了之三：吓人的柱状图](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [同志，你家夜壶满了](/content/gnews/28/README.md)
+### [同志，你家夜壶满了](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9/30/21 香港快讯 警方凌晨封闭会展一带 明十一活动派8千警严防](/content/gnews/29/README.md)
+### [9/30/21 香港快讯 警方凌晨封闭会展一带 明十一活动派8千警严防](/content/gnews/30/README.md)
  ` 英喜-粵語組`
 
-### [限电停电已影响世界产业链供应链！李克强亲自安抚28国使节](/content/gnews/30/README.md)
+### [限电停电已影响世界产业链供应链！李克强亲自安抚28国使节](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NBA球星詹姆斯说不应该干涉别人是否接种疫苗](/content/gnews/31/README.md)
+### [NBA球星詹姆斯说不应该干涉别人是否接种疫苗](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [金正恩拒绝美国重返会谈的建议](/content/gnews/32/README.md)
+### [金正恩拒绝美国重返会谈的建议](/content/gnews/33/README.md)
  ` HimalayaRussia`
 
-### [有感于孟晚舟回国机场的发言](/content/gnews/33/README.md)
+### [有感于孟晚舟回国机场的发言](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英美开始采用地塞米松和伊维菌素治疗新冠病毒](/content/gnews/34/README.md)
+### [英美开始采用地塞米松和伊维菌素治疗新冠病毒](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [中共残害百姓不减速 毒疫苗加强针全面展开](/content/gnews/35/README.md)
+### [中共残害百姓不减速 毒疫苗加强针全面展开](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [澳大利亚企业反抗政府严厉的封锁](/content/gnews/36/README.md)
+### [澳大利亚企业反抗政府严厉的封锁](/content/gnews/37/README.md)
  ` GTV新闻访谈`
-
-### [文贵视角：将公布孙力军在海外的资金关系网及藏匿的各方重大案情等绝密信息](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [美欧建合作新机制，遏制中共非市场贸易行为](/content/gnews/38/README.md)
  ` GTV新闻访谈`
