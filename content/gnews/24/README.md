@@ -2,15 +2,36 @@
 ---
 
 
-## 日本自民党新组建领导班子亮相
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1566900/)
+## 印度陆军积极筹备印中边境军事对峙
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566924/)
 
-韩国首尔天池农场—–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/日.jpeg)自民党新的领导班子
-据日本雅虎新闻10月1日的报道，新当选的自民党总裁岸田文雄的新领导班子亮相。其中核心领导班子成员是4个人，分别是副总裁麻生太郎，干事长甘利明，选举对策委员长远藤利明，政策调查会长高市早苗，他们四人的平均年龄为64.25岁。
+栏目记者/责任编辑：在远方
 
-副总理兼财务大臣麻生太郎就任党的副总裁，原经济财政大臣甘利明出任党的干事长，具体负责自明党的运营管理。原总务大臣高市早苗出任党的政策调查会长。担任过防卫大臣政务官的福田达夫，出任党的总务会长。原奥运担当大臣远藤利明出任党的选举对策委员长。原行政改革大臣河野太郎出任党的广报本部长。原经济产业大臣小渊优子出任党的组织运动本部长。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-另外，岸田虽然在4日的国会选举大会上才能正式就任日本第100代首相，但是内阁的组建工作已经开始。
 
-[新闻来源](https://news.yahoo.co.jp/articles/0702be2852c8c2927439dafdb8ca5383fb50b813)
+
+印度陆军参谋长纳拉瓦内 9月30日表示，印中边境拉达克沿线事态的发展增加了印度的挑战，在与中共国达成边界协议之前，军事对峙之类的事件将继续发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（1、2、3、6、7）視頻備用.003.jpeg)
+去年5月以来，中共不断在有争议的边境拉达克地区采取挑衅性的军事活动，目前中共已实际控制了拉达克以东的阿克赛钦高原，该地区把新疆与西藏西部连接起来，对中共具有战略意义。
+
+针对中共持续的武力挑衅，印度政府最近签订了113份合同，用于采购对作战至关重要的弹药、军备、车辆、备件和特殊登山设备，总金额近12亿美元。
+
+印方表示，已做好充分准备，以应对可能发生的任何事件。
+(本文仅代表作者观点)
+
+参考链接：[印度陆军参谋长：在达成边界协议之前 边界事件将继续发生](https://www.rfi.fr/cn/亚洲/20210930-印度陆军参谋长-在达成边界协议之前-边界事件将继续发生)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：FoxRina
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

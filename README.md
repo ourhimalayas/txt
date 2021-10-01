@@ -15,145 +15,145 @@
 
 ---
 
-### [美国政府不愿给美国人使用的伊维菌素正在拯救印度人的生命](/content/gnews/1/README.md)
+### [没有国庆，只有国殇，中共非法执政72周年有感！](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线:大量科学研究证实，感染中共病毒后具有强大、持久的免疫力](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [高盛表示8.2万亿美元的威胁比恒大更严重](/content/gnews/3/README.md)
+ ` 纽约香草山MOS01`
+
+### [西媒头条 — 第78期](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国政府不愿给美国人使用的伊维菌素正在拯救印度人的生命](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [秘翻在线：欠债近2200亿的华夏幸福真准备还钱吗？](/content/gnews/2/README.md)
+### [秘翻在线：欠债近2200亿的华夏幸福真准备还钱吗？](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021/09/29文贵先生直播精要](/content/gnews/3/README.md)
+### [2021/09/29文贵先生直播精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [因电力短缺，东北多地停电](/content/gnews/4/README.md)
+### [因电力短缺，东北多地停电](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [强生科学家私下认为不要打强生疫苗，但是仍支持强推疫苗](/content/gnews/5/README.md)
+### [强生科学家私下认为不要打强生疫苗，但是仍支持强推疫苗](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大危机有可能像1997年泰国开始的危机一样失控](/content/gnews/6/README.md)
+### [恒大危机有可能像1997年泰国开始的危机一样失控](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [刚刚在日本自民党总裁选中胜出的岸田文雄其人](/content/gnews/7/README.md)
+### [刚刚在日本自民党总裁选中胜出的岸田文雄其人](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗推进中的 &#8220;死因不明 &#8220;反射日本社会的黑暗（之一）](/content/gnews/8/README.md)
+### [疫苗推进中的 &#8220;死因不明 &#8220;反射日本社会的黑暗（之一）](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2021年9月30日盖特视频（9分59秒）全文字版](/content/gnews/9/README.md)
+### [郭文贵先生2021年9月30日盖特视频（9分59秒）全文字版](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/10/README.md)
+### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/14/README.md)
  ` 秘密翻译组金融团队`
 
-### [集结，让今天是中华民族最后一个国殇日](/content/gnews/11/README.md)
+### [集结，让今天是中华民族最后一个国殇日](/content/gnews/15/README.md)
  ` 银河勇气之星`
 
-### [2021/09/30大卫作战室直播精要](/content/gnews/12/README.md)
+### [2021/09/30大卫作战室直播精要](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲维州感染中共病毒住院病人中，95%接种过疫苗（粤语配音）](/content/gnews/13/README.md)
+### [澳洲维州感染中共病毒住院病人中，95%接种过疫苗（粤语配音）](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/26郭文贵直播：孟晚舟回国是她个人悲剧的开始（粤语配音）](/content/gnews/14/README.md)
+### [9/26郭文贵直播：孟晚舟回国是她个人悲剧的开始（粤语配音）](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共发动生物战后，美欧出现芯片危机，台湾表示寻求帮助](/content/gnews/15/README.md)
+### [中共发动生物战后，美欧出现芯片危机，台湾表示寻求帮助](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CCP百年百罪 全集](/content/gnews/16/README.md)
+### [CCP百年百罪 全集](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [韩美日北核问题首席代表电话会谈 应对朝鲜射弹](/content/gnews/17/README.md)
+### [韩美日北核问题首席代表电话会谈 应对朝鲜射弹](/content/gnews/21/README.md)
  ` 首尔天池农场`
 
-### [印度将在斯里兰卡建造战略性深水港码头对抗中共](/content/gnews/18/README.md)
+### [印度将在斯里兰卡建造战略性深水港码头对抗中共](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [港府逼关六四纪念馆 封杀线上网站](/content/gnews/19/README.md)
+### [港府逼关六四纪念馆 封杀线上网站](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [印度陆军积极筹备印中边境军事对峙](/content/gnews/20/README.md)
+### [印度陆军积极筹备印中边境军事对峙](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [CDC 终于明确：mRNA疫苗副作用出现不应再接种第二剂](/content/gnews/21/README.md)
+### [CDC 终于明确：mRNA疫苗副作用出现不应再接种第二剂](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [重磅：Lynk公司已直接将普通手机连接到卫星上](/content/gnews/22/README.md)
+### [重磅：Lynk公司已直接将普通手机连接到卫星上](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“十一”国殇日香港黑警高压维稳](/content/gnews/23/README.md)
+### [“十一”国殇日香港黑警高压维稳](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [日本自民党新组建领导班子亮相](/content/gnews/24/README.md)
+### [日本自民党新组建领导班子亮相](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [《中国秘密社会史》之天地会](/content/gnews/25/README.md)
+### [《中国秘密社会史》之天地会](/content/gnews/29/README.md)
  ` 银河勇气之星`
 
-### [2021年8月29日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/26/README.md)
+### [2021年8月29日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/30/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中秋晚会后音乐竞演节目接力宣传中共大湾区](/content/gnews/27/README.md)
- ` G-NEWS TAIWAN`
-
-### [2021年9月2日郭文贵先生做健腹轮健身盖特](/content/gnews/28/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [“离开”Twitter的川普被Gettr所吸引](/content/gnews/29/README.md)
+### [“离开”Twitter的川普被Gettr所吸引](/content/gnews/31/README.md)
  ` wenwu`
 
-### [中共72周年冥庆有感](/content/gnews/30/README.md)
- ` 儒为`
-
-### [秘翻在线：中共国很有可能对台湾动手](/content/gnews/31/README.md)
+### [秘翻在线：中共国很有可能对台湾动手](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国地方融资平台天量债务威胁远甚于恒大](/content/gnews/32/README.md)
+### [中共国地方融资平台天量债务威胁远甚于恒大](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声| 实名注册国家反诈骗中心app是一项政治任务](/content/gnews/33/README.md)
+### [有声| 实名注册国家反诈骗中心app是一项政治任务](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [96岁的前纳粹秘书在受审当天逃离疗养院后被捕](/content/gnews/34/README.md)
+### [96岁的前纳粹秘书在受审当天逃离疗养院后被捕](/content/gnews/35/README.md)
  ` wenwu`
 
-### [在今天这第72个国殇日里大连和烟台下起了冰雹](/content/gnews/35/README.md)
+### [在今天这第72个国殇日里大连和烟台下起了冰雹](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [接种疫苗的人占Covid-19死亡人数的77%](/content/gnews/36/README.md)
+### [接种疫苗的人占Covid-19死亡人数的77%](/content/gnews/37/README.md)
  ` wenwu`
 
-### [纳瓦罗《在川普时代》：福奇走到头了，福奇撒谎，美国人死亡](/content/gnews/37/README.md)
+### [纳瓦罗《在川普时代》：福奇走到头了，福奇撒谎，美国人死亡](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗博士谈新书：为川普主义、为真相，发力一击](/content/gnews/38/README.md)
+### [纳瓦罗博士谈新书：为川普主义、为真相，发力一击](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海2009年以前的高层建筑普遍存在重大公共安全隐患](/content/gnews/39/README.md)
+### [上海2009年以前的高层建筑普遍存在重大公共安全隐患](/content/gnews/40/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [全球疫苗暴政的形式已出现逆转](/content/gnews/40/README.md)
+### [全球疫苗暴政的形式已出现逆转](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [币圈新闻动态：正在筹备HCN上市庆典， 预测喜交所10月下旬开市](/content/gnews/41/README.md)
+### [币圈新闻动态：正在筹备HCN上市庆典， 预测喜交所10月下旬开市](/content/gnews/42/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“系统崩溃”：来自全球供应链运作的工人警告](/content/gnews/42/README.md)
+### [“系统崩溃”：来自全球供应链运作的工人警告](/content/gnews/43/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/43/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/44/README.md)
  ` wenwu`
 
-### [每日快报：派遣美国人参加北京冬奥会是不安全和不明智的](/content/gnews/44/README.md)
+### [每日快报：派遣美国人参加北京冬奥会是不安全和不明智的](/content/gnews/45/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：欧亚基金会8月民调，42%美国的支持出兵保护台湾](/content/gnews/45/README.md)
+### [DC大中华时事：欧亚基金会8月民调，42%美国的支持出兵保护台湾](/content/gnews/46/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长](/content/gnews/46/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：美国疫苗接种率排第四的缅因州感染者数 &#8220;激增&#8221;](/content/gnews/47/README.md)
+### [秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/48/README.md)

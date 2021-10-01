@@ -2,50 +2,40 @@
 ---
 
 
-## 重磅：Lynk公司已直接将普通手机连接到卫星上
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566904/)
+## 印度将在斯里兰卡建造战略性深水港码头对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566948/)
 
-**【雅典娜观察】与您一起洞察世界**
+栏目记者/责任编辑：七哩香
 
-**翻译/译评：**天道酬勤2020
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.1-1.png)图片来源：TechCrunch
-一家太空初创公司表示，它已经成功地证明了使用未经技术提升的普通移动电话连接到卫星互联网服务的能力。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-总部位于弗吉尼亚州的Lynk公司三个月前将其“Shannon”卫星送入轨道，这是猎鹰9号火箭共享任务的一部分。经过一些初步测试后，该公司表示，在美国、英国和巴哈马，已有“数百部”移动电话能够与卫星连接，它通过头顶的苍穹，仿佛就是一个虚拟的手机塔置于太空之中。
 
-Lynk联合创始人兼首席执行官查尔斯·米勒表示：“基本上，我们的卫星将手机看成标准手机塔。”
 
-卫星互联网在航天和电信行业非常流行，SpaceX、OneWeb、亚马逊、Telesat等公司以及更多公司计划将发射大型卫星群来提供宽带互联网。但是所有这些服务都需要一个终端，也许类似于DirecTV卫星天线，才能向地球低轨发送和接收信号。米勒说，Lynk特别的是，它的1米×1米卫星不需要终端，甚至连软件都不需要下载。该服务旨在为客户的移动提供商（如美国的T-Mobile或Verizon）在没有覆盖信号范围的偏远地区提供服务。因此，就像您前往外国时，被问及是否要使用具有国际漫游费的本地服务一样，在退出移动提供商的覆盖区域时也会弹出类似的消息。Lynk 通过这种方式与移动网络运营商共享频谱。
+9月30日，印度阿达尼（Adani）集团、及斯里兰卡John Keells集团， 与斯里兰卡港务局签署了一份价值7亿美元的合同，要在斯里兰卡建造一个战略性的深水港头。这是斯里兰卡港口领域有史以来最大的外国投资，这一举措被视为是抗衡中共在印度洋日益增长影响力的一种方式。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（4、5、8）.001.jpeg)
+新码头毗邻科伦坡国际码头，预计长1.4公里，深20米，年处理能力为320万个集装箱，其产权将在运营35年后全部转移给斯里兰卡。
 
-**技术挑战**
+科伦坡国际码头于2013年开始运营，中共拥有其85%股权；2014年因中共潜艇突抵达触发外交事件而成为焦点。
 
-米勒说，为了让这一切发挥作用，Lynk必须解决一些技术问题。其中最主要的是能够通过其它手机的“噪音”将上行信号从手机发送到卫星。另一个挑战是补偿卫星和移动电话在地面上的大量多普勒移位。现有的电话和移动网络是为了适应子弹头列车的速度，而不是轨道速度。Lynk的工程师们不得不为卫星设计技术，以便在太空中执行这种多普勒补偿，这样手机才能“看到”看似固定的塔。
+斯里兰卡地处印度洋战略要地，是亚非、亚欧贸易通道的重要节点，也是中共”一带一路”的关键环节。近年来，中共重金投入斯里兰卡的基建等领域，令斯里兰卡陷入债务泥潭，印度则担忧这里变为中共军事基地。新码头协议，无论对印度，还是对全世界民主国家，都具有战略性意义，是对中共扩张和威胁态势的强力反击和有效制约。
+(本文仅代表作者观点)
 
-Lynk开始发射的单颗卫星每天只能覆盖几分钟的纬度。米勒说，明年将有10颗卫星在大约500公里的高空飞行，目标是每隔几个小时覆盖地球的大部分地区。到2023年，大约100颗卫星将每5至20分钟覆盖一次。他说，要建立一个连续的实时网络，需要1500颗卫星。米勒解释说：“当人们每15分钟就有一颗卫星时，总比没有好。”这会是一种拯救生命的技术。由于带宽有限，最初该服务将只提供短信，重点是飓风过后或在登山探险或海上失事后用户的救生潜力。但最终将有足够的卫星为宽带互联网服务，服务价格将由移动网络运营商确定。
+参考链接：
 
-到目前为止，该公司已经筹集了2000万美元，但银行中仍有大部分资金。根据Lynk的研究，目前地球上使用的手机只有平均大约85%的时间连接到地面网络。因此，多达7.5亿人在特定时间会经历脱节，这就是Lynk打算服务的市场。到目前为止，该公司已与阿里夫在巴哈马和中非共和国的电信中心达成了承运商协议。
+1. [对抗中国：印度将在斯里兰卡建造战略性深水港码头](https://www.rfi.fr/cn/亚洲/20210930-对抗中国-印度将在斯里兰卡建造战略性深水港码头)
+2. [India’s Adani Plans to Compete With China at Sri Lankan Port](https://www.maritime-executive.com/index.php/article/india-s-adani-to-build-sri-lanka-port-in-competition-to-chinese)
+3. [India counters China in Sri Lanka with $700 million port deal](https://www.easterneye.biz/india-counters-china-in-sri-lanka-with-700-million-port-deal/)
 
-**竞争对手**
 
-Lynk并不是唯一一家将地面电话与卫星直接连接起来的公司。总部位于得克萨斯州的一家公司，AST太空移动公司，在2019年发射了一颗名为“蓝步1号”的小型测试卫星，验证了其卫星对蜂窝网络的架构。该公司说，该航天器利用4G-LTE协议成功地处理了来自低地球轨道的通信延迟和多普勒在卫星到地面环境中的影响。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-AST的下一个原型航天器——蓝步3号——预计最早将于2022年3月从佛罗里达州卡纳维拉尔角发射升空。该航天器的光圈面积为64平方米，设计用于通过3GPP标准频率直接与手机通信。
+终审：暗黑
+校正/发稿：我不在这里
 
-然而，AST还没有获得联邦通信委员会的许可，无法进入美国市场。此前，美国国家航空航天局对拟建卫星的大尺寸提出了担忧，其硬体（不含天线）半径为30米，比天线阵列大得多。目前此事仍然悬而未决。
-
-**参考链接：**[A Virginia company has connected mobile phones directly to satellites | Ars Technica](https://arstechnica.com/science/2021/09/a-virginia-company-has-connected-mobile-phones-directly-to-satellites/)
-
-**译评：**Lynk公司目前的手机通过卫星发短信还是断断续续不稳定，但它会不断优化和增加更多功能。以前要连接卫星只能购买专用卫星电话，使用普通手机连接卫星根本不可能的。而且卫星电话有很多品牌，因为每种卫星只能匹配某一特定品牌的卫星电话。但是随着科技的进步，现在Lynk公司发射了针对为手机网络定制的卫星后，普通手机就可以连接卫星，这意味着人们不必再依赖传统的WIFI和地面手机基站，偏远地区也能更方便地使用互联网。
-
-我们知道开发这个技术的公司，除了文中提到的Lynk以及AST公司，还有大名鼎鼎的马斯克的天网计划——星链网(Starlink)。由此可见，使用手机连接卫星上网是未来的趋势，这是必然的，也是不可阻挡的。相信这些卫星网络将来也能在中国墙内自由使用，到时人人都可以通过卫星上网，那么CCP阻挡人们接触真相的防火墙也就不复存在了。使用普通手机连接卫星，将是中国人民的福音！
-
-（文章内容仅代表作者观点，与GNEWS无关）
-
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
