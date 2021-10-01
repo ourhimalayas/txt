@@ -2,34 +2,126 @@
 ---
 
 
-## 银河快讯：日本食品，烟草和水电价格将上涨；台湾希望日本帮助其加入TPP
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1566343/)
+## 共产党吹牛控制三分之二的芯片产能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566387/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-1.png)[图片来源](https://local.6parknews.com/)
-**1.****日本10月起食品和烟草产品的价格将上涨**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot.jpg)https://gtv.org/video/id=61566f7cd2e2b817486fd8a4
+郭文贵
+Miles Guo
 
-[据共同社 9月30日报道，日本将从10月起提高一些食品和烟草产品以及服务的价格，部分原因是全球原材料价格飙升，对受到中共病毒大流行影响的家庭造成进一步打击。食品饮料制造商味之素AGF公司正在提高其40种咖啡产品的价格，估计它们将飙升约20%。在10月份提高香烟税之后，日本烟草公司将修改其定价，该公司的七星烟的每包价格从560日元（5美元）提高到600日元。居民也将在 11 月面临更高的水电费。根据全国电力和天然气公司的数据，普通家庭每月的家庭电费将比 10 月份高出 73 至 171 日元，而普通家庭的天然气费用最多将上涨 91 日元。](https://english.kyodonews.net/news/2021/09/c4b66c2c87d3-japan-to-see-price-hikes-in-food-tobacco-products-from-oct.html)
+这个芯片啊，全球的芯片产值一共加一起1万亿美元
+For this chip, the global chip output value adds up to 1 trillion US dollars
 
-**2.****日本谴责朝鲜发射导弹是违反联合国决议的行为**
+到今年大概，吹了狼蛋了，涨价弄价
+Till this year estimate plus price increase and play the price game
 
-[据共同社9月30日报道，日本政府最高发言人表示，朝鲜本周早些时候的导弹发射违反了联合国安理会决议，同时谴责这次试验是 “极其令人遗憾的”。内阁官房长官在新闻发布会上说，日本与朝鲜没有正式的外交关系，它通过其驻北京大使馆提出了抗议。与此同时，日本、美国和韩国的朝鲜最高特使周四举行了电话会谈，并对朝鲜最近的核武器和导弹开发计划有关的活动表示关切。日本外务省亚洲和大洋洲事务局局长同意继续进行三边合作，以实现朝鲜的完全无核化。](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
+也就才1.3万亿美元，1万多亿美元的产值
+The output is only 1.3 trillion US dollars, more than 1 trillion U.S. dollars in output value
 
-**3.****东京海上控股成为日本第一家从煤矿开发中撤资的保险公司**
+在全世界一年100万亿的全球GDP, 它占了1%
+Of the world’s $100 trillion global GDP a year, it accounts for 1%
 
-[据共同社9月30日报道，东京海上控股表示，它将从10月起原则上停止为煤矿开发项目承保新的保单和发放新的贷款，成为日本第一家这样做的非寿险公司。此举将针对主要用于发电的燃料煤，而不是用于生产钢铁的原煤，因此只影响燃煤电厂。不过，东京海上表示，它将继续处理现有的案件，它仍可能为煤矿开发项目承保，这些项目为能够遏制温室气体排放的电厂生产煤炭。该保险公司表示，它决定采取这一政策是为了配合欧洲和美国为减少碳排放而从煤矿开发中撤资的举措。](https://english.kyodonews.net/news/2021/09/dc9aeccf0256-tokio-marine-1st-japan-insurer-to-divest-from-coal-mine-development.html)
+就芯片这件事上，我跟美国人最近，特别是我跟他们讨论特别多
+on the matter of the chip, the Americans and I have discussion recently
 
-**4.****麻生被任命自民党副总裁**
+我说你们美国人不要瞪眼说瞎话，也不行的
+I said you Americans don’t lie in front of people’s face, it will not work
 
-[据NHK 9月30日报道，自民党新任总裁岸田决定任命副首相兼财务大臣麻生为其副手。 麻生先生曾担任副首相和财政部长近9年。新任自民党总裁岸田将于周四就该党的行政任命作出决定，并正在选择他的人选。81岁的麻生曾13次从福冈第8区当选下议院。通过任命曾长期担任副首相和财务大臣并领导该党第二大派系的麻生为副总裁，岸田有望稳定其政府的基础，并从党内推广自己的政策，包括旨在实现增长和分配的良性循环的经济政策。](https://www3.nhk.or.jp/news/html/20210930/k10013285141000.html)
+共产党说瞎话不行，你们说瞎话也不行
+The Communist Party can’t lie, and you can’t lie either
 
-**5.****台湾希望日本帮助其加入TPP**
+共产党并购了两家公司，那么占了所谓的全球2/3
+The Communist Party acquired two companies which accounted for 2/3 productions of the so-called globally
 
-[据中央通讯社9月30日报道，台日关系协会秘书长在外交部举行的在线新闻发布会上表示，如果日本政府帮助台湾加入跨太平洋伙伴关系(TPP)，那么台湾的加入将具有重大意义。台湾于9月22日申请加入TPP，9月29日，岸田文雄当选为自民党新任总裁，并将成为日本的下一任首相。他说，日本是世界上和TPP中最有影响力的经济体之一，他希望日本能帮助台湾加入TPP。](https://news.yahoo.co.jp/articles/decc88bdcebdf834047dcbe92e367e8ac51a54b2)
+但是共产党有没有这2/3的支配权呢
+But does the Communist Party have dominion over this 2/3 of the world’s production?
 
-**6.****全日空飞行员的工资或将与公司收入的变动挂钩**
+有没有2/3的支配权呢
+Do they have dominion over this 2/3
 
-[据读卖新闻10月1日报道，全日空公司通知工会打算审查飞行员的工资制度并向工会提出了改变的意向。 如果将来发生大流行病或自然灾害导致飞行时间减少，飞行员的工资也会减少。 公司的政策是，只有在收入下降时，才会根据航空旅行需求的波动而减少人事费用。这一工资制度，会使员工的年薪减少了30-40%。 目前的制度规定了每月50小时工资的 “最低保障”。 如果津贴减少到每月30小时，机长的月收入预计将减少约100,000日元。](https://news.yahoo.co.jp/articles/c4771cde02a98e0389fbc94f08a6e11c20bfb326)
+大家都知道没有，话说回来了
+We all know it has no dominance, then again
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Curiosity
+如果你现在要出租，像那个AMD
+If you want to rent now, like AMD
+
+你现在说，我出10%，3%的溢价
+Now you say, I offer 10%, 3% premium
+
+你马上就可以拿到芯片，但是美国人习惯了使用中国奴才
+You can get the chip right away, but Americans are used to using Chinese minions
+
+奴隶用的这个廉价产品
+and the cheap product made by slave labors
+
+所以说，一个共产党拥有这家公司产品的调配权，是吧
+So, does Communist Party has the right to distribute the company’s products？ right?
+
+2/3 （占全球），台积电就占了一半多了
+Taiwan Semiconductor Manufacturing Company (TSMC) accounted for more than half world’s production
+
+这不矛盾吗？飞飞呀
+Isn’t this contradictory? Feifei
+
+台积电占了全世界60%到70%的产量
+TSMC accounts for 60% to 70% of the world’s production
+
+你觉得共产党能决定那个60%-70%的每一（芯）片吗
+Do you think the Communist Party can determine the 60%-70% of each (chip) piece?
+
+一个他都决定不了
+It can’t decide on any of them
+
+他在私下里面放水又有多少
+How much does it add water in private？
+
+对吧，政清，这很简单吧
+Right, Zhengqing, it’s so simple
+
+那你共产党的2/3都哪去了，你2/3包不包含这个台积电呢？
+So where did your 2/3 of the Communist Party go? Your 2/3 package does include this TSMC or not?
+
+这不瞪眼说瞎话吗，说美国人很夸张有时候, 你别听他们胡说八道
+That’s lie in front of your face, sometimes American are so exaggerated, don’t listen to their nonsense
+
+还有一个就是很简单的事情，这个技术，这技术是共产党的吗
+There is another simple thing, technology, is this technology owned by the Communist Party?
+
+零，零，你技术上没有主导权，那美国人不给你动杀气
+Zero, nought, the CCP doesn’t have technical leadership, then the Americans don’t give CCP a killing blow
+
+还是你美国人跟中国共产党勾兑嘛
+Or you American have secret deal underneath the table with the CCP
+
+那你不动杀气，那很简单嘛
+The Americans don’t give CCP a killing blow, it’s very simple
+
+如果你要从技术上，你都是零
+If you want to talk technically, CCP are nothing
+
+我说了让你收，你就收，你有什么屁用啊
+I told you to put it away, you have to put it away, you have no value of it?
+
+以为共产党强大的2/3（调配权）就可以控制了（全世界）
+The Communists think they can control the world with their powerful 2/3 allocation power, it’s a lie
+
+那个女的，瞪着大眼珠子（撒谎）在福克斯
+That woman was lying in front of your face on Fox News
+
+所以说，福克斯也好，CNN也好，这帮家伙坏着呢
+So Fox News or CNN, these are all not good
+
+我跟你说，你不要听他们胡说八道
+I tell you, don’t listen to their nonsense
+
+原视频链接: https://twitter.com/se1y7cblljselva/status/1442384694402641926?s=24
+视频时间段 : 0:00-2:11
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

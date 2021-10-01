@@ -2,13 +2,45 @@
 ---
 
 
-## 魁北克护士勇敢发声爆料，拒绝疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1565843/)
+## 日本在全国范围内解除所有中共病毒疫情紧急状态
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566186/)
 
-视频剪辑/字幕 加拿大枫叶农场 – Kent
+栏目记者/责任编辑：文真
 
-我的名字是埃里卡•比尔兹利。 而我在11年后离开了魁北克的护士岗位。 我爱我的工作，我爱这些人。 我亲眼目睹了他们如何按住老人，为他们接种疫苗。 在他们大喊 “不”，同时违背他们的意愿的情况下。 我见过有人因自杀未遂而入院的情况 ，然后在他们死后被检测。 我的意思是，在他们死后，就是他们被检测出covid的时候。 为什么？为什么我们要给他们做covid测试？ 我见过很多人死于心脏病。 就在接种疫苗后不久。 我目睹了孕妇流产的全过程，就疫苗接种后5或4天。 而这只是一个小城镇，一个小社区。 因为我在一家小医院，我在所有楼层工作。 我曾在长期护理、普通护理、急诊、门诊工作，… 我已经看到了这一切。 这个社区有多大？ 大约3000人。它位于魁北克省的庞蒂亚克地区。 而且我也没有什么可失去的。我没有什么可隐瞒的。 他们想强迫我接种疫苗，而我拒绝，我拒绝！
 
-* * *
 
-编辑/ 发稿 云起时
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+9月28日，日本政府宣布疫情紧急状态在周四结束，以帮助恢复经济活力。 首相菅义伟表示，随着疫情感染放缓，病毒限制令逐步放宽。这是自今年4月，日本在六个多月时间里，首次完全摆脱疫情紧急状态的限制。 在实施疫情紧急状态期间，日本并没有抑制中共病毒的再度爆发。日本的疫情在7月开始恶化，在东京奥运会后的8月中旬达到顶峰。紧急状态限制令主要涉及，要求餐馆和酒吧减少营业时间和不供应酒精。公众早已对这些封锁措施感到厌倦和沮丧。 政府官员正在为放松限制做准备，制定其他计划，以确保感染不会迅速反弹。政府将建立更多的临时治疗设施，为未来的任何复发做准备。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.jpg)
+参考链接：
+[Japan To Lift All Coronavirus Emergency Steps Nationwide](https://www.npr.org/2021/09/28/1041086891/japan-to-lift-all-coronavirus-emergency-steps-nationwide)
+[Japan to lift all coronavirus emergency steps](https://apnews.com/article/coronavirus-pandemic-sports-lifestyle-business-2020-tokyo-olympics-9ac68d89a4124116a0a8d6cfc5e48eb7)
+[郭文贵先生盖特： 9月29号：该发生的都会发生，最大收益方就是新中国联邦。](https://gettr.com/post/pcjqsv6a51)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

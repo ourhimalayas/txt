@@ -2,24 +2,42 @@
 ---
 
 
-## 昆士兰警方将在最高法院就强制接种中共病毒疫苗进行法律对决
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565876/)
+## 佛州州长抨击澳大利亚正在走向共产主义中国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566191/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-1.jpg)
-据澳大利亚7台新闻报道，对昆士兰州警察和医疗工作者强制接种中共病毒疫苗的命令将在布里斯班最高法院接受考验，法律对决的日期已经锁定。
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒.png)
+图片来源：Yahoo News
 
-昆州警察总长卡塔琳娜.卡罗尔已指示文职人员和警察在10月4日前至少接种一针疫苗，并在明年1月24日前注射第二针。她此前曾表示，任何未能在最后期限前完成的工作人员将被停薪一周，然后被要求说明为何不应停薪。
+美国第三大州的领导人——佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)猛烈抨击澳大利亚的新冠病毒限制措施，指责澳洲已“脱轨”，正在走向专制的共产主义中国。
 
-警察接种第一针中共病毒疫苗的周一截止日期已被推迟，因为七名警察正在与他们所说的 “损害、影响或剥夺其基本普通法权利 “的行为进行斗争。
+德桑蒂斯先生一直强烈反对美国的封锁、强制执行和疫苗护照，他在坦帕举行的国际造船展览会上发表讲话时提到了澳大利亚的新冠病毒政策。
 
-周四的听证会上，法院还收到了一个类似的挑战，即针对该州医护人员的强制接种。
+“看看吧，澳大利亚现在发生了什么。在（疫情爆发）一年半之后，他们正在执行军方的封锁措施，”德桑蒂斯说。
 
-法律界各方被要求在10月12日之前准备好他们的材料，包括指示背后的理由声明。
+“那不是一个自由的国家，它根本不是一个自由的国家。”
 
-David Boddice法官告诉申请人的律师，如果他们想要延长授权中止，届时他需要被说服，鼓励他们在这期间提出豁免申请。这是一个涉及公共卫生问题的问题，决策者已经就其对特定劳动力的影响做出了决定，而你正在挑战这一决定。法院被告知，根据警方的指示，可以因健康或宗教原因或在特殊情况下给予豁免。
+“事实上，我想知道为什么当他们这样做时，我们（两国）仍然保持正常的外交关系。澳大利亚现在比共产主义中国更自由吗？我不知道，一个普通问题的事实告诉你，其中一些东西已经大大偏离了轨道。”
 
-这些事项预计将在10月18日的一周内进行全面审理。
+德桑蒂斯先生被广泛视为2024年共和党总统候选人提名的主要竞争者，他声称佛罗里达州在反对美国各地的限制措施方面处于领先地位。
 
-新闻来源：[Queensland police set for Supreme Court legal showdown over COVID vaccine mandate](https://7news.com.au/lifestyle/health-wellbeing/qld-jab-mandate-set-for-legal-showdown-c-4109650)
+例如，他所在的州率先禁止私营企业要求客户提供疫苗接种证明。
+
+“如果我们不这样做（取消疫苗护照），很多其他州就不会效仿，”他说。
+
+“佛罗里达州是一个自由州，我们将赋予人民权力，”州长在8月份给他的支持者的一封筹款电子邮件中说。
+
+“我们不会允许乔·拜登和他的官僚随从闯入并侵占佛罗里达人的权利和自由。”
+
+与此同时，白宫新闻秘书珍·普萨基（Jen Psaki）抨击德桑蒂斯先生采取了“违反公共卫生建议的措施”，例如禁止学校要求学生戴口罩。
+
+新闻链接：[‘Off the rails’: Florida Governor Ron DeSantis blasts Australia’s Covid restrictions | news.com.au — Australia’s leading news site](https://www.news.com.au/world/coronavirus/australia/off-the-rails-florida-governor-ron-desantis-blasts-australias-covid-restrictions/news-story/9aea5a9f5df3c82cbf4bdcbdd62a8cd5)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

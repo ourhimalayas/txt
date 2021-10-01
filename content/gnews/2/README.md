@@ -2,82 +2,60 @@
 ---
 
 
-## 印尼排华事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566519/)
+## 上海2009年以前的高层建筑普遍存在重大公共安全隐患
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566584/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-4.jpg)https://gtv.org/video/id=61567132d2e2b817486fd8fb
-郭文贵
-Miles Guo：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a8ab103abad344b6997575001a772c31_副本.jpg)
+据[**头条新闻**](https://weibo.com/breakingnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月1日 14:09](https://weibo.com/1618051664/KAI3CaDWb?ref=home&amp;rid=7_0_8_6558532373735932310_0_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-有站出来说话的吗？没有人站出来说话
-Did anyone stand up and speak? No one stood up to speak
+【[#上海在全国首次试点外墙水幕喷淋#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%9C%A8%E5%85%A8%E5%9B%BD%E9%A6%96%E6%AC%A1%E8%AF%95%E7%82%B9%E5%A4%96%E5%A2%99%E6%B0%B4%E5%B9%95%E5%96%B7%E6%B7%8B%23&amp;from=default) 尝试破解高层火灾难题】据[@央视网快看](https://weibo.com/n/%E5%A4%AE%E8%A7%86%E7%BD%91%E5%BF%AB%E7%9C%8B?from=feed&amp;loc=at) 报道：高层住宅，一旦发生火情，救援难度很大。针对这种情况，近日，上海在全国首次试点外墙水幕喷淋，尝试破解高层火灾难题。[L央视网快看的微博视频](http://t.cn/A6MfQX6d) ​​
 
-当时印尼杀害50万华人， 110万华人受害的时候
-When Indonesia killed 500,000 Chinese and 1.1 million Chinese were victimized,
+**画外音：**根据现行消防规定，上海高楼外保温材料应该使用不燃材料，但2009年以前建成的大楼使用的保温材料多数可燃，存在一定消防隐患，徐汇区肇嘉浜路上的这个大楼高约90米，建成于2003年，外保温材料使用的就是可燃材料。
 
-美国人说一句话了吗？
-Did the American say a word?
+物业测算费用后发现很难对大楼进行整体保温材料更换，为此消防部门出谋划策在顶楼天台位置，每隔两米装上了一个消防喷淋。
 
-欧洲人说一句话了吗？
-Did the Europeans say a word?
+**龚君（上海徐汇消防救援支队防火监管处工作人员）：**消防队到场，它有一个时间性，他不一定能够第一时间就能到达，那么外墙喷洒系统能够第一时间作用的话，其实是对火灾扑救有一定的帮助的。
 
-你们问过这个问题吗？
-Have you asked this question?
+**画外音：**后台启动用10秒左右就可以发挥作用，喷出的水可以顺着大楼外墙留下，对外墙起到保温作用，延缓火势发展，为楼内人员逃生争取时间，这也是上海初次试点在高楼上加装外墙水幕喷淋。
 
-1998年呐
-The year of 1998
+**王斌（项目工程师）：**喷淋取水是通过屋顶水箱进行取水，他的流量是15升每秒。
 
-1968年， 1998年
-The year of 1968 and 1998
+此外外保温材料燃烧容易发生流淌，上部的燃烧物会掉落至底下，进一步引发火灾，因此对于此类大楼还要求将底部保温材料更换成不燃材料，起到更好的保护作用。
 
-这两个时间段
-These two time periods
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
-那人类还不至于说 （没有人敢站出来）
-Humans don’t even say (no one dares to stand up)
+这一段视频透露出非常重要的信息，其一就是在上海2009年以前建成的所有的高层建筑，其外层保温材料多数可燃，关于这一点对照已经作废的[GB50045-95《高层民用建筑设计防火规范》（2005年版）](https://max.book118.com/html/2018/0414/161542256.shtm)依然是不符合规定的——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/002.jpg)
+根据以上资料可见，哪怕是已经作废的规范中也明确规定不管是耐火等级为一级还是二级的高层建筑的承重墙、非承重外墙都要使用不燃烧体，而绝对没有提到可以使用燃烧体材料。
 
-那是美国最强盛的时候
-America was at its strongest in that time
+根据以上材料可以判断的是视频中提到的徐汇区肇嘉浜路上的这幢高层建筑在施工时，消防部门在对施工图纸进行审批时已经严重渎职，埋下了重大公共安全隐患，而根据视频中提到的2009年以前建成的上海高层建筑的外墙多数使用可燃材料来看，上海的消防部门在上海埋下的不是单个的重大安全隐患，而是批量的重大公共安全隐患。
 
-你两次杀害中国人
-Haji Mohammad Suharto killed the Chinese twice
+那么上海消防部门当年的严重赎职所造成的重大公共安全隐患能否被视频中所提到的补救措施消除呢？答案是否定的，首先来说目前的喷淋系统仅为屋顶下垂的单层设计，它不能无死角覆盖整个外墙，其次视频中仅提及屋顶水箱可以满足15升每秒的流量，但并未提及可以满足多长时间的流量，是满足一分钟呢？还是满足一小时呢？
 
-这么多残害和杀害
-So much cruel injuries and killing
+还有一个更重要的问题是，哪怕已加装的外墙水幕喷淋实现了整个外墙的无死角全方位覆盖，哪怕屋顶水箱可以满足数小时15升每秒的供水量，只要外墙保温材料着起火来，现有的外墙水幕喷淋依然无法熄灭外墙保温材料的火势。
 
-他们成为全世界有史以来最残忍的一次，人类大灾难
-They became the cruelest human catastrophe in the history of the world
+因为外墙保温材料的结构形式就是外表面的铁丝网为骨架内里填充的高分子合成保温材料，这种可燃的保温材料一旦起火是在铁丝网骨架内的火烧连营，外表面的喷水根本不可能触及内部燃烧，并且随着可燃物的内部燃烧会迅速形成连通的气孔，形成火借风势、风助火威的态势。
 
-有人说话吗？
-Does anyone speak?
+在这样的情况下，哪怕是消防队到达现场，也依然无法对可燃的外墙保温材料引起的火灾进行有效灭火，那么我们到底该怎么办呢？在这样的情况下好像只有祈求上帝了，如果觉得上帝遥不可及，如果觉得上帝未必会站在你一边，那么所有在上海的居民都要选择站在上帝一边——远离上海所有2009年以前竣工的高层建筑，除非可以肯定这些高层建筑的外墙保温材料是不燃的或者难燃的，否则每个在这样的高层建筑里的市民距离灾难的距离只差一个火星。
 
-有人替我们华人说话吗？
-Does anyone speak for us Chinese?
+撰稿：喜马拉雅的肉夹馍
 
-不要爱美国爱西方爱疯了
-Don’t love America and the West too much crazy!
+审核：喜马拉雅的馍夹肉
 
-就资本主义的没有原则
-There is no principle of capitalism
+校对：Maarago
 
-还有他们根本不懂得东方
-And they don’t know the East at all
+（文章内容仅代表作者个人观点）
 
-甚至不懂得苏联
-They don’t even understand the Soviet Union
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-他不知道共产主义的邪恶
-He doesn’t know the evil of communism
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-原视频日期：2021/09/28
-原视频链接 https://twitter.com/se1y7cblljselva/status/1442805365972688900?s=24
-视频时间段 : 00:00-00:54
-英听校： 洛杉矶盘古农场 – Raul
-翻译： 洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
