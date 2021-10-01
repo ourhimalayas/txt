@@ -2,82 +2,75 @@
 ---
 
 
-## 装修公司、金融机构和保险公司的钱都流进房地产黑洞
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566414/)
+## 币圈新闻动态：正在筹备HCN上市庆典， 预测喜交所10月下旬开市
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1566550/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-1.jpg)https://gtv.org/video/id=61567025d2e2b817486fd8cb
-郭文贵：
-Miles Guo：
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-那么刚才我在说到这个时候，大家想想
-So, I was talking about this just now, thinking about it
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
-这些装修公司，像金螳螂、三棵树，
-These interior decoration companies, like Golden Mantis, Three Trees,
 
-像中原建设、中国一建、二建、海建
-like Zhongyuan Construction, China Construction First, China Construction Second, Marine Construction
 
-几乎所有人都掉到了房地产的黑洞里
-almost all of them have fallen into the black hole of China real estate
+## 每日一问
 
-几乎所有的金融机构，100％都不会告诉央行
-Almost all financial institutions will not tell the central bank
 
-和当地监管机构、银监会、保监会
-and local regulatory agencies, the China Banking Regulatory Commission, and the Insurance Regulatory Commission the truth
 
-对，还有保险公司. 保险公司的钱，几乎大多数中国人的保险钱全进入房地产了
-Yes, there are insurance companies also. almost most Chinese people’s insurance were into the real estate
 
-你告诉我,中国除了房地产，你钱能去哪儿
-You tell me, where your money can go besides real estate in China
 
-中国保险公司总值多少钱？大家算一算
-How much is the total value of Chinese insurance companies? Let’s do the math
+币圈的朋友现在回想起文贵先生的“保命、保财、报仇”是不是别有一番滋味？
 
-中国所谓的社保基金才不到1000亿美元
-China’s so-called social security fund is less than $100 billion
 
-上万亿人民币，2000亿美元就搞社保了，它搞不起来
-let’s say one trillion of yuan, that only $200 billion on social security fund, and China can’t afford it
 
-那么整个保险基金
-Then the entire insurance fund
 
-几十万亿的保险基金绝大多数都已经作为担保和金融票据的担保和作为各种的基金对冲，都已经流入房地产了
-the vast majority of the tens of trillions of insurance funds have been used as guarantees and guarantees, financial instruments and as various fund hedges have flowed into the real estate
 
-这就是为什么中国有95万亿的房地产总值
-That’s why China has $95 trillion worth of real estate
+## 喜马拉雅交易所要闻
 
-他所说的，官方承认65万亿
-What China said, the officially recognized of 65 trillion
 
-所以现在能救它只有一样
-So there is only one way to save China’s real estate industry now
 
-突然一夜之间冒出来100万亿美元，能把中共国给救了
-Another $100 trillion suddenly popped up overnight, then can save the CCP
 
-就是把美国、欧洲、日本所有的钱都给中共国
-Even all the money of the United States, Europe and Japan give to the Communist China
 
-然后这些人都饿死，一年内不吃不喝不拉，才能救他们
-and all these people from west countries starve to death, do not eat or drink for a year
+- 1）湾流群有截图显示，喜交所通过KYC的人数为5,001。（未经证实，仅供参考）
+- 2）长岛伟哥直播视频消息，正在筹备HCN上市庆典事宜， 并预测喜交所将于10月下旬开市。
 
-可能吗？
-Is it possible?
 
-原视频日期：2021/09/17
-原视频链接: https://twitter.com/se1y7cblljselva/status/1439525047224258561?s=24
-视频时间段 : 0:00-1:21
-英听校： 洛杉矶盘古农场 – Mike Li
-翻译： 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
+## 新闻动态
+
+
+
+
+
+1. 10月1日，EOS基金会发文阐述了该项目的发展方向及未来规划。文章称，从很多方面的表现来看，目前EOS的发展并不尽如人意，作为曾经的明星项目，EOS浪费了它最初拥有的所有市场领先地位，但是，诸如此类问题并不意味着EOS已无力回天。
+2. 9月30日消息，Zero Hash宣布完成3,500万美元C轮融资，Point72领投，NYCA Partners和Drive Wealth以及部分天使投资者跟投。据悉，Zero Hash将使用该笔融资用于DeFi和NFT领域的扩张。
+3. 9月30日消息，加密资金管理平台Multi Safe已更名为Coinshift，并宣布在种子轮融资中获得250万美元。投资者包括红杉资本等。
+4. Cryptoninjas报道，基于区块链的加密货币支付生态系统COTI公司宣布启用其COTI银行账户和VISA借记卡。COTI团队表示，“我们一直与我们的亲密合作伙伴Simplex合作，为用户提供COTI银行账户和借记卡，我们很高兴能够成功实现这一重要里程碑。”
+5. Coindesk报道，澳大利亚加密货币交易所Independent Reserve已成为该国首批获得新加坡金融管理局“MAS”颁发的主要支付机构许可证的公司之一。该许可证授予该交易所根据岛国支付服务法在新加坡作为虚拟资产服务提供商VASP开展业务的批准。
+6. 9月30日消息，NBA圣安东尼奥马刺队宣布与Socios.com达成合作。从2021-22赛季开始，在马刺队主场比赛期间，Socios.com提供的内容将出现在马刺主场AT&T中心球馆的广告牌和电视中。Socios.com还将在马刺队官方应用、官网以及马刺队的各种社交渠道上提供内容。圣安东尼奥马刺队成立于1967年，曾5次获得NBA总冠军。
+7. 9月30日消息，土耳其足球甲级联赛萨姆松体育队Samsunspor宣布与Socios.com达成合作，将推出官方粉丝TokenSAM。萨姆松体育队成立于1965年，曾赢得过巴尔干杯和多次土甲联赛冠军。Socios.com体育娱乐区块链服务提供商，其合作伙伴包括巴塞罗那、巴黎圣日耳曼、尤文图斯、AC米兰、曼城、阿森纳等足球豪门和篮球、F1、电竞、板球领域的知名球队。
+8. FXStreet报道，ShibaInu代币生态系统开发者和领导者Shytoshi Kusama近日宣布，将在ShibaSwap上推出10,000个随机生成的NFT。随机生成的NFT收藏品被命名为“Shiboshis”。
+9. Investing报道，社交媒体Twitter透漏了一个开发中的工具，该工具将允许用户将加密收藏品经过验证的NFT设置为他们的个人资料图片。据悉，Twitter的高级软件工程师MadaAflak分享了一个视频，展示了允许用户向其帐户添加NFT的功能。用户将能够管理他们的个人资料、连接加密货币钱包并导入他们的OpenSea收藏，并允许他们从NFT数字艺术收藏中选择一个头像。
+10. 9月30日消息，DeFi流动性协议Meld宣布计划在Cardano区块链上发行由实物黄金支持的稳定币。黄金将存储在保险库中，被代币化，然后进行细分和分割，以便可以出售。
+11. 10月1日消息，TikTok正在推出一个NFT系列，将看到其顶级内容创作者与顶级NFT创作者合作。新发布的TikTok最佳时刻将包含六个“具有文化意义的TikTok视频”，创作者包括Lil Nas X、Rudy Willingham、Bella Poarch、Curtis Roach、Brittany Broski、FN Meka、Jess Marciante和Gary Vaynerchuk等。
+12. Prnewswire报道，濒危动物NFT系列Endangered Animals NFT即将发布该系列中的首个NFT。该系列由12个NFT组成，其中包含来自世界各地的濒危动物，部分收益将捐赠给特定的濒危动物慈善机构。该系列的首个濒危动物NFT是飞蛙，是Solana区块链上以编程方式随机生成的NFT的集合。
+13. 10月1日消息，加密货币交易和技术公司Amber Group宣布已加入Pyth网络，后者是一个去中心化的金融市场数据分发平台。通过合作，Amber Group将向Pyth网络贡献其第一方加密资产市场数据。
+14. 10月1日消息，Bitcoin Depot的加密货币ATM网络继续扩展，在零售采用激增的情况下，其在北美的安装量首次超过5,000。凭借这一里程碑，Bitcoin Depot再次成为北美最大的加密ATM网络。
+15. Coindesk报道，加密采矿公司Argo Blockchain已同意为其在西德克萨斯州建造的数据中心购买20,000台采矿机。公司宣布到2022年第三季度末，Bitmain Antminer S19J Pro机器将使总部位于伦敦的Argo的哈希率增加2exahash以上，达到3.7exahash。从明年第二季度开始，这些机器将被派往西德克萨斯数据中心。
+16. CoinDesk报道，在周四Maker DAO治理论坛上的一项提案中，法国跨国银行巨头法国兴业银行SocGen提交了去中心化金融DeFi借贷平台的申请，以接受该银行发行的链上债券代币作为稳定币DAI贷款的抵押品。这笔贷款在一些法律实体和第三方之间以某种复杂的法律架构进行调解，最高可达2000万美元的DAI——这可能是迄今为止向机构采用DeFi迈出的最大一步。
+17. 10月1日消息，去中心化借贷协议Compound创始人Robert Leshner发推称，如果用户从Compound协议中错误地收到大量COMP代币，需要将这些代币转回至Compound并可保留10%作为白帽奖励。否则，这些COMP将会作为收入报告给美国国税局。
+18. 10月1日消息，出勤证明徽章协议POAP表示，其铸币系统在9月29日遭到黑客攻击，XCOPY和Polygonal Mind的几个POAP被欺诈性发行和出售。POAP应艺术家要求已烧毁相关NFT，并将赔偿受损各方。
+19. 9月30日消息，报道，法国政治家Pierre Person制定了在法国简化加密货币税收的计划。据悉，使用加密货币支付商品或服务通常构成纳税义务，因为数字资产必须转换为法定货币。然而，Person希望结束税务合规问题。该国会议员提议，如果总金额不超过3000欧元，则不对加密支付征税。这意味着人们将能够在流行的加密卡或其他服务的帮助下使用数字资产，而不会产生应税事件。
+20. Beincrypto报道，在探索发行数字货币CBDC时，新西兰储备银行RBNZ正在征求公众的意见。新西兰央行发布了一份问题文件，该文件没有详细介绍具体的设计细节，而是解释了发行CBDC的抽象优势和劣势、成本和收益以及风险和机遇。据悉该主题征求公众意见截止日为12月6日。
+21. News.bitcoin报道，俄罗斯国家邮政运营商计划最早在2023年实施基于区块链技术的包裹追踪系统。这项新服务的引入是俄罗斯邮政数字化转型战略的一部分，旨在帮助俄罗斯邮政节省时间和资源，减少丢失货物的数量。
+22. 9月30日消息，随着中国监管机构推出更严格的打击加密货币措施，新加坡正成为中国加密货币公司和高管的关注热点。由于其对加密货币友好的态度和灵活的法规，许多加密货币公司将业务迁移至新加坡。据悉，新加坡尚未向加密货币公司颁发许可证，但已向包括币安在内的一些业内最大参与者授予豁免权，允许他们继续为本地散户和机构投资者提供服务。
+23. 9月30日消息，加密货币交易所CoinEx宣布将彻底清退中国大陆地区的用户，以响应中国政府监管政策要求。CoinEx表示，对于实名认证为中国大陆地区或者绑定了中国大陆地区手机号的账户，CoinEx将于北京时间2021年10月31日16:00前，在保证用户资产安全的前提下完成平稳有序清退工作。
+24. 9月30日消息，交易平台Bitfinex宣布因平台自身问题，暂时停止向用户提供交易服务。目前，该平台的Web服务器及交易引擎、后端平台正在维护中。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*

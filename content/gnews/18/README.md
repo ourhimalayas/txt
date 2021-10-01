@@ -2,126 +2,43 @@
 ---
 
 
-## 共产党吹牛控制三分之二的芯片产能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566387/)
+## DC大中华时事：欧亚基金会8月民调，42%美国的支持出兵保护台湾
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1566536/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot.jpg)https://gtv.org/video/id=61566f7cd2e2b817486fd8a4
-郭文贵
-Miles Guo
+*编辑：DC任盈盈 / 作图：*hans（文玄）
 
-这个芯片啊，全球的芯片产值一共加一起1万亿美元
-For this chip, the global chip output value adds up to 1 trillion US dollars
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-到今年大概，吹了狼蛋了，涨价弄价
-Till this year estimate plus price increase and play the price game
+#   墙国妄语每日驳
 
-也就才1.3万亿美元，1万多亿美元的产值
-The output is only 1.3 trillion US dollars, more than 1 trillion U.S. dollars in output value
+### **0**930.新华网.10月新规来了！事关你的房子、车子
 
-在全世界一年100万亿的全球GDP, 它占了1%
-Of the world’s $100 trillion global GDP a year, it accounts for 1%
+*“十一”将至，一批与国计民生相关的重要新规也将开始施行。住房租赁市场迎来减税优惠，租房负担有望降低；新规进一步规范汽车数据处理活动，避免过度收集和滥用个人信息；新修订的兵役法放宽高素质兵员征集年龄限制，让更多有志青年一圆从军梦……更完善的法治，护航更美好的生活。**住房租赁市场迎来减税政策**，根据财政部、国家税务总局、住房和城乡建设部此前联合发布的公告，住房租赁市场发展将迎来税收优惠政策，有望增加市场供应、降低住房租赁价格。从10月1日起，住房租赁企业向个人出租住房适用简易计税方法，按照5%征收率减按1.5%缴纳增值税；对企事业单位等向个人、专业化规模化住房租赁企业出租住房，减按4%税率征收房产税。对利用非居住存量土地和非居住存量房屋（含商业办公用房、工业厂房改造后出租用于居住的房屋）建设的保障性租赁住房，取得保障性租赁住房项目认定书后，比照适用上述税收政策。*
 
-就芯片这件事上，我跟美国人最近，特别是我跟他们讨论特别多
-on the matter of the chip, the Americans and I have discussion recently
+***规范汽车数据处理活动**，《汽车数据安全管理若干规定（试行）》10月1日起施行，进一步规范汽车数据处理活动，促进汽车数据合理开发利用。规定倡导，汽车数据处理者在开展汽车数据处理活动中坚持“车内处理”“默认不收集”“精度范围适用”“脱敏处理”等数据处理原则，减少对汽车数据的无序收集和违规滥用。同时，规定汽车数据处理者应当履行个人信息保护责任，充分保护个人信息安全和合法权益。**放宽高素质兵员征集年龄限制**，新修订的兵役法自10月1日起施行。新修订的兵役法加大高素质兵员征集力度，规定普通高等学校应当有负责兵役工作的机构，将研究生的征集年龄放宽至26周岁；优化服役待遇保障制度，规定义务兵服现役期间表现特别优秀的经批准可以提前选改为军士，公民入伍时保留户籍，义务兵家庭优待金由中央财政和地方财政共同负担。*
 
-我说你们美国人不要瞪眼说瞎话，也不行的
-I said you Americans don’t lie in front of people’s face, it will not work
+***加强医疗器械全生命周期质量管理**，10月1日起，新修订的《医疗器械注册与备案管理办法》与《体外诊断试剂注册与备案管理办法》开始施行。办法要求落实各级监管部门的监管责任，进一步强化医疗器械注册人、备案人主体责任落实，要求加强医疗器械全生命周期质量管理，对研制、生产、经营、使用全过程中的医疗器械的安全性、有效性和质量可控性依法承担责任。同时，落实“放管服”改革要求，简化境外上市证明文件、检验报告等注册备案资料要求。**建立卡拉OK音乐违规曲目清单制度**，《歌舞娱乐场所卡拉OK音乐内容管理暂行规定》10月1日起施行，要求建立卡拉OK音乐违规曲目清单制度。暂行规定明确了歌舞娱乐场所播放的卡拉OK音乐不得含有的内容，包括：危害国家统一、主权或者领土完整的；违反国家宗教政策，宣扬邪教、迷信的；宣扬淫秽、赌博、暴力以及与毒品有关的违法犯罪活动等。全国文化娱乐行业协会应当引导行业加强内容自律，提醒歌曲点播系统内容提供商、歌舞娱乐场所及时删除含有法律法规禁止内容的音乐产品，并协助行业主管部门依法依规处置。*
 
-共产党说瞎话不行，你们说瞎话也不行
-The Communist Party can’t lie, and you can’t lie either
+***简评：*****中共国庆前夕发布了真实的真实政策消息，是中共将不利使用好消息带偏风向的惯用手段。认为这个怀疑，这个税款是，全国政府已经为当地枯竭竭力，财政困难而发愁，主要是为了买人心做这样的政策制定，骗取一个财政收入，可能会收税，罗织收费名目再举一个例子放宽素质兵，征集年龄限制，高素质兵征征集有力，规定高等学校应该有重要的役兵工作的机构，遇到“毕业不能毕业”的问题中共提下手，将征募机构设置高校中也就是在学生学生学生指导中心工作中引入，将寻找工作的征战兵在行动或安排到军队，一方面减少社会无业人员到数量维稳地方，另一方面方面也能通无阻将中共军队的炮灰团。上战场的时候，新蛋子是军队中最畅快的一群，最有可能被围成灰炮。**
 
-共产党并购了两家公司，那么占了所谓的全球2/3
-The Communist Party acquired two companies which accounted for 2/3 productions of the so-called globally
+### 0930.中国的事微信公众号：台湾的事，是中国的事，不关日本制造业
 
-但是共产党有没有这2/3的支配权呢
-But does the Communist Party have dominion over this 2/3 of the world’s production?
+*9月30日下午，出席例行记者会，国防部新闻局局长、国防部新闻发言人吴大校答记者会。*
 
-有没有2/3的支配权呢
-Do they have dominion over this 2/3
+*记者：日本防卫大臣岸信夫近日表示，中国以不透明的方式持续高水平地增加国防开支，加强军事力量，引发日本等地区国家和国际社会强烈担忧。钓鱼岛是日领土，日将捍卫相关岛屿主权。日台地理位置接近，台若出事，日亦无法置身事外。日防卫副大臣中山泰秀称，台湾有事就是日本有事。请问中方对此有何评论？*
 
-大家都知道没有，话说回来了
-We all know it has no dominance, then again
+*吴谦：日本防务高官一再炒作所谓“中国军事威胁”，粗暴干涉中国内政，危害中国主权，中方对此表示强烈不满和坚决反对。中国坚持国防建设和经济建设协调发展方针，国防支出公开透明，开支水平合理适度。中国近30年每年国防开支占GDP比例不到2%，不仅低于世界主要国家，也低于2.6%的世界平均水平，人均军费支出更是只有日本的1/5。反观日方，不但不真诚反思侵略历史，反而大幅增加防卫预算，屡创历史新高。此外，日方还大力加强西南岛屿军力，发展网络、太空等新兴作战力量，远超“专守防卫”需要。日方究竟意欲何为，值得亚洲邻国和国际社会高度警惕。钓鱼岛及其附属岛屿是中国固有领土。无论日方如何鼓噪，都改变不了这一基本事实。日方应停止一切在钓鱼岛问题上对中国的挑衅行为，更不要颠倒黑白，对中方倒打一耙。最后我要强调，台湾的事，是中国的事，不关日本什么事。日方政客以所谓“地理邻近”作为介入台湾事务的借口，是对中国内政的粗暴干涉，不禁让人回想起日本发动对外侵略战争和殖民亚洲的历史。中方必须正告日方：今天的中国早已不是当年的样子，我们决不容许任何国家以任何方式插手台湾问题。*
 
-如果你现在要出租，像那个AMD
-If you want to rent now, like AMD
+***简评：*****郭文贵先生一直警告中共会动手侵占台湾，而且方案很多。在爆料革命新中国联邦的不断努力下西方国家对台湾表达了支持，但是真正动起手来是否会出兵不得而知。日本的态度和行为具有决定性作用，如果日本意识到和台湾唇亡齿寒的作用，出兵保护或者解放被占领的台湾，美国也会因为和日本有协防协议一起展开军事行动，北约也会被调动起来，否则台湾真不知道要被侵占或是蹂躏多久。而中共一直以台湾是中共国内政来做借口单方面改变台海状态，郭先生指出拜登政府已经勾兑好不会出兵，而不断变化的局势让外界对日本新一届政府抱有期望。中共军费开支除了表面公开的数字，还有隐藏的庞大的民营企业资金，军民融合研发的项目比比皆是，这些数额有多少？中共不会公开，对西方国家而言这是想不到的领域。中共动不动就拿日本侵略中国说事，而私底下中共毛泽东曾经说过大大感谢日本侵略中国让中共得以逃到西北苟延残喘并阴谋篡夺中华民国政权的“恩情”。**
 
-你现在说，我出10%，3%的溢价
-Now you say, I offer 10%, 3% premium
+### 0930.凤凰网.敏感时期秘密访华，穿梭于中国高官之间，他将是下一个基辛格？
 
-你马上就可以拿到芯片，但是美国人习惯了使用中国奴才
-You can get the chip right away, but Americans are used to using Chinese minions
+https://i.ifeng.com/c/89xppTm7Sc9
 
-奴隶用的这个廉价产品
-and the cheap product made by slave labors
+***简评：*在这篇文章披露的信息中，我们看到约翰.桑顿和中共的合作始于1993年李嘉诚的项目，郭先生指出李嘉诚和江家关系密切，之后桑顿拉来了默多克帮助中共开始渗透西方的新闻媒体界，他在清华大学经管学院做顾问并执教，在美建立人才交流中心帮助中共落实“千人计划”，帮助中共建立情报间谍机构孔子学院，到新疆为中共站台否认对维吾尔人的种族灭绝罪，促成川普的中美贸易协议签订中为中共赢得时间准备生化战……一桩桩一件件的事显现出他是中共渗透、蓝金黄西方的核心力量，同时作为华尔街金融投资家他得到了中共最高的回报。以他和王岐山、江家等的关系，秘密访华6周的消息在此时被江派控制的《南华早报》《凤凰网》放出和转载，疑是对习显示江派在美国有后台力量，展现王和江派在国际金融中的掌控能力，对应郭先生分析的王岐山等江派处境微妙，这让人觉得他们不得不通过自己的国外势力和掌控媒体对内展示实力，笼络住人心和气场。而对于习，看着这一幕幕，不知道他心里怎么想？内斗还在继续，桑顿和基辛格一样，帮助中共发展壮大，奴役中国人，同时他协助中共国有企业上市，欺骗美国人的养老金、退休金，是中共在美国的高级沉默力量。**
 
-所以说，一个共产党拥有这家公司产品的调配权，是吧
-So, does Communist Party has the right to distribute the company’s products？ right?
-
-2/3 （占全球），台积电就占了一半多了
-Taiwan Semiconductor Manufacturing Company (TSMC) accounted for more than half world’s production
-
-这不矛盾吗？飞飞呀
-Isn’t this contradictory? Feifei
-
-台积电占了全世界60%到70%的产量
-TSMC accounts for 60% to 70% of the world’s production
-
-你觉得共产党能决定那个60%-70%的每一（芯）片吗
-Do you think the Communist Party can determine the 60%-70% of each (chip) piece?
-
-一个他都决定不了
-It can’t decide on any of them
-
-他在私下里面放水又有多少
-How much does it add water in private？
-
-对吧，政清，这很简单吧
-Right, Zhengqing, it’s so simple
-
-那你共产党的2/3都哪去了，你2/3包不包含这个台积电呢？
-So where did your 2/3 of the Communist Party go? Your 2/3 package does include this TSMC or not?
-
-这不瞪眼说瞎话吗，说美国人很夸张有时候, 你别听他们胡说八道
-That’s lie in front of your face, sometimes American are so exaggerated, don’t listen to their nonsense
-
-还有一个就是很简单的事情，这个技术，这技术是共产党的吗
-There is another simple thing, technology, is this technology owned by the Communist Party?
-
-零，零，你技术上没有主导权，那美国人不给你动杀气
-Zero, nought, the CCP doesn’t have technical leadership, then the Americans don’t give CCP a killing blow
-
-还是你美国人跟中国共产党勾兑嘛
-Or you American have secret deal underneath the table with the CCP
-
-那你不动杀气，那很简单嘛
-The Americans don’t give CCP a killing blow, it’s very simple
-
-如果你要从技术上，你都是零
-If you want to talk technically, CCP are nothing
-
-我说了让你收，你就收，你有什么屁用啊
-I told you to put it away, you have to put it away, you have no value of it?
-
-以为共产党强大的2/3（调配权）就可以控制了（全世界）
-The Communists think they can control the world with their powerful 2/3 allocation power, it’s a lie
-
-那个女的，瞪着大眼珠子（撒谎）在福克斯
-That woman was lying in front of your face on Fox News
-
-所以说，福克斯也好，CNN也好，这帮家伙坏着呢
-So Fox News or CNN, these are all not good
-
-我跟你说，你不要听他们胡说八道
-I tell you, don’t listen to their nonsense
-
-原视频链接: https://twitter.com/se1y7cblljselva/status/1442384694402641926?s=24
-视频时间段 : 0:00-2:11
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+#   港台资讯
+![](https://himalayawashingtondc.org/wp-content/uploads/2021/09/15A85E75-B3B2-44FB-89DC-3C45DD00045F-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/09/2B9203F6-1095-4DFE-966E-880C41969804-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/09/7E8FB20D-18C3-42DF-84D2-7634DF43C9FF-1024x576.png)
+*编辑：*DC任盈盈
+*作图：hans（文玄）
+发布：文顾*

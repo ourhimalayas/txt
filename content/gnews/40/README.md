@@ -2,13 +2,39 @@
 ---
 
 
-## 魁北克护士勇敢发声爆料，拒绝疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1565843/)
+## 美国马萨诸塞州警察：因强制接种疫苗而辞职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566287/)
 
-视频剪辑/字幕 加拿大枫叶农场 – Kent
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/美国.jpg)
+图片来源：John Tlumacki/The Boston Globe
 
-我的名字是埃里卡•比尔兹利。 而我在11年后离开了魁北克的护士岗位。 我爱我的工作，我爱这些人。 我亲眼目睹了他们如何按住老人，为他们接种疫苗。 在他们大喊 “不”，同时违背他们的意愿的情况下。 我见过有人因自杀未遂而入院的情况 ，然后在他们死后被检测。 我的意思是，在他们死后，就是他们被检测出covid的时候。 为什么？为什么我们要给他们做covid测试？ 我见过很多人死于心脏病。 就在接种疫苗后不久。 我目睹了孕妇流产的全过程，就疫苗接种后5或4天。 而这只是一个小城镇，一个小社区。 因为我在一家小医院，我在所有楼层工作。 我曾在长期护理、普通护理、急诊、门诊工作，… 我已经看到了这一切。 这个社区有多大？ 大约3000人。它位于魁北克省的庞蒂亚克地区。 而且我也没有什么可失去的。我没有什么可隐瞒的。 他们想强迫我接种疫苗，而我拒绝，我拒绝！
+**【雅典娜快讯】，紧贴时事脉搏**
 
-* * *
+据美国马萨诸塞州（Massachusetts state ）警察工会律师称，大约20%的州警察没有接种中共病毒疫苗。
 
-编辑/ 发稿 云起时
+一位消息人士周一告诉WBZ电视台（WBZ-TV），只有一名马萨诸塞州警察告诉人力资源部，将因疫苗授权而辞职。消息人士还表示，还有其他人与人力资源部进行了交谈，以评估如果他们选择退休，养老金能拿到多少。
+
+上周，法官拒绝了马萨诸塞州警察工会提出的，暂停州长查理·贝克（Charlie Baker）为警察接种疫苗的要求。该州要求所有行政部门员工在10月17日之前出示疫苗接种证明，否则将面临失业的风险。
+
+迄今为止，已有数十名警察提交了辞职书，其中一些人计划调到其他部门，并接受合理的替代方案，例如戴口罩和定期检测中共病毒。
+
+马萨诸塞州警察协会(SPAM)表示，由于该州的中共病毒疫苗授权，数十名警察提交了辞职书。现在，州警察​​已经严重短缺，他们从调查凶杀案、恐怖主义、计算机犯罪、纵火、帮派、毒品和人口贩卖的专业部队中抽调人员，并将其送回到穿制服的巡逻队中。
+
+代表1,800名警察成员的工会认为，州政府在实施这项授权之前，需要与员工进行谈判。
+
+州长周一告诉记者，他无意在授权上让步，并相信疫苗授权的合规性很高。
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考新闻：**[Dozens Of Massachusetts State Police Troopers Resigning Over COVID Vaccine Mandate, Union Says – CBS Boston (cbslocal.com)](https://boston.cbslocal.com/2021/09/27/massachusetts-state-police-covid-vaccine-mandate-resignations/)
+
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

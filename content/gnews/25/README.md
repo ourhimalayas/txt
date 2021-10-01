@@ -2,31 +2,82 @@
 ---
 
 
-## 秘翻在线：中共大量进口美国牛肉取代澳洲牛肉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566330/)
+## 装修公司、金融机构和保险公司的钱都流进房地产黑洞
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566414/)
 
-**撰稿：黄金精神**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-1.jpg)https://gtv.org/video/id=61567025d2e2b817486fd8cb
+郭文贵：
+Miles Guo：
 
-**责编：胡天**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-2.png)**图片来源：新浪网**
-据路透社10月1日报道，澳大利亚在中共国的牛肉出口由于外交紧张局势而萎缩，中共国日益增长的中产阶级对美国谷饲牛肉的需求激增。
+那么刚才我在说到这个时候，大家想想
+So, I was talking about this just now, thinking about it
 
-火锅店、日本烧烤连锁店和牛排店在世界第二大经济体（中共国）中扩张，正在用美国牛肉取代澳大利亚牛肉。去年有几家澳大利亚供应商被禁止（供货），而其他供应商的货物需要很长时间才能通关。一位北京的进口商被告知至少需要85天才能清关，他有六个冷冻澳大利亚牛肉的集装箱滞留在上海港。相比之下，来自其他产地的肉类需要一周左右的时间。中共国海关总署没有对评论请求作出回应。
+这些装修公司，像金螳螂、三棵树，
+These interior decoration companies, like Golden Mantis, Three Trees,
 
-中共国海关数据显示，2021年前8个月从美国进口的牛肉已经增长了8.3万吨，是一年前同期的9倍，今年价值将超过10亿美元。澳大利亚作为向中共国出口谷饲牛肉的第一大国，今年落后于美国。前八个月从澳大利亚进口的牛肉降至9.6万吨，是去年同期的一半。
+像中原建设、中国一建、二建、海建
+like Zhongyuan Construction, China Construction First, China Construction Second, Marine Construction
 
-美国肉类出口协会（the U.S. Meat Export Federation）发言人乔·舒尔（Joe Schuele）说：“当涉及到肉质好、谷物喂养的产品时，他们（中共国）没有很多其他选择。这就是在中共国真正突出的产品。”
+几乎所有人都掉到了房地产的黑洞里
+almost all of them have fallen into the black hole of China real estate
 
-中共国与澳大利亚之间不断恶化的关系已经损害了澳大利亚的供应。去年澳大利亚最大的五家工厂因标签不全和被禁物质污染物等原因被中共国暂停（供货）。尽管其他工厂仍被允许向中共国发货，但进口商说他们面临长时间的延误。
+几乎所有的金融机构，100％都不会告诉央行
+Almost all financial institutions will not tell the central bank
 
-自2018年以来，中澳关系一直很紧张，去年当澳大利亚要求对中共病毒来源进行独立调查时，情况更加恶化，促使中共国进行贸易报复。
+和当地监管机构、银监会、保监会
+and local regulatory agencies, the China Banking Regulatory Commission, and the Insurance Regulatory Commission the truth
 
-中共国的大众餐馆和超市通常有草饲牛肉更便宜的购买渠道。
+对，还有保险公司. 保险公司的钱，几乎大多数中国人的保险钱全进入房地产了
+Yes, there are insurance companies also. almost most Chinese people’s insurance were into the real estate
 
-中共国中产阶级在2020年消费了7.3万亿美元，比任何其他国家中产阶级都要多，而且还在增长，年轻人的消费占比高于其他国家。去年，进口牛肉占中共国牛肉消费量的40%，约200万吨，主要是从巴西、阿根廷、乌拉圭的低成本草饲生产商那里进口，但在经济疲软的情况下，大众市场消费者的需求正在放缓。
+你告诉我,中国除了房地产，你钱能去哪儿
+You tell me, where your money can go besides real estate in China
 
-纽约连锁店沃尔夫冈牛排馆在北京有两家餐厅，今年在南方城市深圳又开了一家，并计划在杭州开第四家。该餐厅空运冰冻美国牛肉，其800克肋眼价格为150美元/块。
+中国保险公司总值多少钱？大家算一算
+How much is the total value of Chinese insurance companies? Let’s do the math
 
-自拜登通过窃取选票上台后，中共与美国的贸易战已经悄然化干戈为玉帛，这不能不说是中共的巨大胜利。政客们一味追求短期利益，放弃美国基本价值观，甘愿被中共资本收买，必将付出更为惨痛的代价！
+中国所谓的社保基金才不到1000亿美元
+China’s so-called social security fund is less than $100 billion
 
-**[新闻来源](https://www.reuters.com/world/china/china-gorges-american-grain-fed-beef-amid-shrinking-supplies-down-under-2021-10-01/)**
+上万亿人民币，2000亿美元就搞社保了，它搞不起来
+let’s say one trillion of yuan, that only $200 billion on social security fund, and China can’t afford it
+
+那么整个保险基金
+Then the entire insurance fund
+
+几十万亿的保险基金绝大多数都已经作为担保和金融票据的担保和作为各种的基金对冲，都已经流入房地产了
+the vast majority of the tens of trillions of insurance funds have been used as guarantees and guarantees, financial instruments and as various fund hedges have flowed into the real estate
+
+这就是为什么中国有95万亿的房地产总值
+That’s why China has $95 trillion worth of real estate
+
+他所说的，官方承认65万亿
+What China said, the officially recognized of 65 trillion
+
+所以现在能救它只有一样
+So there is only one way to save China’s real estate industry now
+
+突然一夜之间冒出来100万亿美元，能把中共国给救了
+Another $100 trillion suddenly popped up overnight, then can save the CCP
+
+就是把美国、欧洲、日本所有的钱都给中共国
+Even all the money of the United States, Europe and Japan give to the Communist China
+
+然后这些人都饿死，一年内不吃不喝不拉，才能救他们
+and all these people from west countries starve to death, do not eat or drink for a year
+
+可能吗？
+Is it possible?
+
+原视频日期：2021/09/17
+原视频链接: https://twitter.com/se1y7cblljselva/status/1439525047224258561?s=24
+视频时间段 : 0:00-1:21
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

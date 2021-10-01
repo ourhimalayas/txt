@@ -2,21 +2,27 @@
 ---
 
 
-## 秘翻在线：又一位参议员关注微软和领英遵从中共国要求审查美国人资料
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566354/)
+## 速报：一个时代的结束！日本大相扑第69代横纲白鹏宣布退役
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1566488/)
 
-#### 撰稿：彩虹
+#### 撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-3.jpg)
+10月1日下午3时，日本大相扑选手第69代横纲白鹏在东京宣布退役。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-1.jpg)
+白鹏，本名白鹏翔，现年36岁，1985年3月11日出生于蒙古乌兰巴托。在其长达14年2个月的横纲在位时期，打破并创下了无数记录，尤其是以下三个记录均是历史第一，可以说前无古人后无来者。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1.jpg)图片来源：Axios
-10月1日，《新闻极限》（Newsmax）引述美国新闻网站Axios报道，周四，佛罗里达州共和党参议员里克·斯科特（Rick Scott）致函领英（LinkedIn）及其母公司微软（MicroSoft），询问领英为何遵从中共政府的要求，对美国记者的资料进行审查。
+\* 墓内夺冠回数（45）
 
-本周，领英通知几位记者，他们已经采取了行动，这些记者的领英资料页面在中共国将无法浏览。接到领英邮件通知的记者包括Axios的贝书颖(*Bethany Allen**-Ebrahimian*)、VICE新闻的陈嘉韵（ *Melissa Chan*）和自由记者葛瑞格．布鲁诺（*Greg**C. Bruno*）。据Axios报道，这三名记者都曾报道过中共国侵犯人权的行为。
+\* 横纲在位场所数（84）
 
-在给微软首席执行官萨提亚·纳德拉（Satya Nadella）和领英首席执行官瑞安·罗斯兰斯基（Ryan Roslansky）的信中，斯科特说：“我对一家美国公司代表中国共产党积极审查美国记者深感担忧。媒体成员报道的信息对帮助包括国会议员在内的美国人，了解中国共产党的侵权行为的范围至关重要，特别是它对新疆维吾尔人的侵权和监控。”对记者的审查“让人们对微软的意图和承诺产生了怀疑，因为微软承诺反对中共国可怕的人权侵犯和对民主的反复攻击，”
+\* 幕內力士获胜次数（1093）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-1.jpg)
+2019年9月3日取得日本国籍、退役后改名为間垣，作为教练指导年轻的相扑运动员。
 
-报道说，领英是仅有的几家同意中共国政府要求审查此类内容的美国公司之一，在中共国要求下，领英还审查了来自学术界、研究人员和政府雇员的领英页面资料。
+大相扑被称为日本的国技，外国出生的相扑运动员在竞技之外受到了更多的要求和条件。白鹏的妻子是日本人，共同育有四个子女。白鹏也曾在节目中说过正是因为有了妻子的帮助，自己才可以专心于竞技，取得目前的成绩。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-1.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-此外，共和党参议员吉姆·班克斯（Jim Banks）上周也向领英发送了一封类似内容的信。详见报道《[秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](https://gnews.org/zh-hans/1553916/)》
-
-新闻来源：[Sen. Scott Questions LinkedIn on Censoring Journalists for China](https://www.newsmax.com/politics/linkedin-rick-scott-journalist-censoring/2021/09/30/id/1038640/)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

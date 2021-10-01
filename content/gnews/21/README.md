@@ -2,27 +2,23 @@
 ---
 
 
-## 维多利亚州强制工人接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566362/)
+## 秘翻在线：美国疫苗接种率排第四的缅因州感染者数 &#8220;激增&#8221;
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566509/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：The Guardian
-**整理报道：**翼族
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像5.png)[图片来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200213-%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E-%E7%AC%AC%E5%9B%9B%E4%BB%A3%E7%97%85%E6%AF%92%E6%84%9F%E6%9F%93%E5%BC%BA%E9%9C%87%E5%87%BA%E7%8E%B0)
+10月1日，日本雅虎网站消息：
 
-维多利亚州政府宣布：到10月15日，维多利亚州约有100万“授权”工人需要至少接种一剂中共病毒（COVID-19）疫苗才能继续留下工作。并且要求同在一起工作的工人们在11月26日之前必须接种两剂疫苗。
+在美国那些中共病毒疫苗接种率较低的州，确实有以未接种疫苗者为主的感染和死亡发生。但是，在疫苗接种率较高的州也不断出现被感染者，这引起了人们的置疑。
 
-另外，对之前已有强制疫苗接种要求的群体，如建筑工人、教师和医疗保健工作者，还有单独的时间表。从下周二开始，建筑工人在现场工作之前，必须至少注射一剂。
+据《华尔街日报》（WSJ）报道，在美国50个州中，缅因州的疫苗接种率排名第四，可最近每天因中共病毒感染的住院和死亡人数却连创记录。
 
-此次维州政府网站列出的特定“授权”工作人员包括：殡葬业、卫生服务人员、紧急服务、消防服务、警察雇员等等。
+《华尔街日报》指出，引起注意的是，已判明缅因州的许多患者没有接种疫苗，但是传染性很强的德尔塔菌株专找寻攻击疫苗接种率较高地区的未接种群体。目前，美国各州的平均疫苗接种率为56.2%，而缅因州的接种率远远高于平均水平，达到68.99%。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+尽管如此，最近中共病毒在缅因州的传播被归因于 “德尔塔菌株的高感染性 “和 “由于取消了戴口罩的要求而放松了公众意识”。在缅因州，需要呼吸机的病人数量已经从7月份的每家医院约4人上升到40多人，增加了10倍以上。每周的日平均新感染人数已经从7月份的约20人上升到现在的520人。
 
-*编辑/发布：翼族*
+[信息源](https://news.yahoo.co.jp/articles/5281123c50ab6f19d4c90a423d690f668842be0f)
 
-**参考链接：**[This is the full list of Victorian authorised workers who need to get vaccinated against COVID to remain on site](https://www.abc.net.au/news/2021-10-01/victoria-which-authorised-workers-mandatory-vaccination-onsite/100506980)
+与最近笔者看到的很多报道一样，不知中共之邪恶的作者提出了关键性的问题，但终究还是不能说到问题的实质。但置疑的开始，就是觉醒的开始。觉醒需要真相的究明，新中国联邦的中共病毒真相的传播更显得尤为重要！
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章仅代表作者个人观点）

@@ -2,36 +2,54 @@
 ---
 
 
-## 全球疫苗暴政的形式已出现逆转
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1566551/)
+## 有声| 誓将善勇进行到底
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1566721/)
 
-**By:秘翻新视野**
+配音：香草山香港部-文凯琳
 
-***2021-10-1***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-10-01-110914.jpg)](https://gtv.org/video/id=6156abcb38f52a1f22ff2e3f)*点击图片可看完整视频*
-## ***主题内容：***
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-**一**、正义力量吹响集结号对抗全球疫苗纳粹，全球疫苗暴政的形式已经出现逆转。
 
-二**,** 在中共金钱进攻下，澳大利亚沦为共产党的俘虏，卷入政治斗争难以脱身，如不转变，澳洲將步香港后尘。
 
-三、 对中共国百姓血汗钱的洗劫，败家子政治让中共外汇枯竭是中共国停电的根本原因。
 
-四 、什么仇什么怨？ 澳大利亚卷入中共国大停电，是无辜躺枪还是中共内部势力政治角逐的海外延伸？出来混迟早得还！
 
-五、 数字货币的安全性让共产党恐惧，紧急应对避免中共海外资产流通到洼地––喜币系统。
 
-六 、喜币的安全性势不可挡，在疫苗大灾难爆发后，会是唯一安全的全球财富聚宝盆。
 
-七、 新中国联邦人將迎来护照和喜币带来的新生，世界财富重组之时，新中国联邦的G系列开启新世界的新秩序。
+黎明前的黑暗是难熬
+组里的例会中
+有战友说压抑的感觉真难受
+可我们都相信曙光越来越近
+为了感恩爆料革命
+让我们沐浴在第一缕的阳光
+大家努力奋战
+勇往直前的步伐从没犹豫过
+我们互相鼓励、我们互相取暖
+我们彼此相爱，我们彼此友善
+我们无话不谈，我们真诚待人
+我们一起进步，我们一起加油
+这就是新国度带来的幸福
 
-八、 中国共产党是一切排华事件最大的推动力量，始作俑者，后台和保护伞，只有灭共，才能避免再一次排华事件的发生。
 
-**请移步GTV，观看完整节目[「秘翻新视野」](https://gtv.org/video/id=6156abcb38f52a1f22ff2e3f)**
 
-*发布:星星*
+**文字版原文：[誓将善勇进行到底](https://gnews.org/zh-hans/1563894/)**
 
-* * *
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

@@ -2,45 +2,34 @@
 ---
 
 
-## 日本在全国范围内解除所有中共病毒疫情紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566186/)
+## 银河快讯：日本食品，烟草和水电价格将上涨；台湾希望日本帮助其加入TPP
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1566343/)
 
-栏目记者/责任编辑：文真
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-1.png)[图片来源](https://local.6parknews.com/)
+**1.****日本10月起食品和烟草产品的价格将上涨**
 
+[据共同社 9月30日报道，日本将从10月起提高一些食品和烟草产品以及服务的价格，部分原因是全球原材料价格飙升，对受到中共病毒大流行影响的家庭造成进一步打击。食品饮料制造商味之素AGF公司正在提高其40种咖啡产品的价格，估计它们将飙升约20%。在10月份提高香烟税之后，日本烟草公司将修改其定价，该公司的七星烟的每包价格从560日元（5美元）提高到600日元。居民也将在 11 月面临更高的水电费。根据全国电力和天然气公司的数据，普通家庭每月的家庭电费将比 10 月份高出 73 至 171 日元，而普通家庭的天然气费用最多将上涨 91 日元。](https://english.kyodonews.net/news/2021/09/c4b66c2c87d3-japan-to-see-price-hikes-in-food-tobacco-products-from-oct.html)
 
+**2.****日本谴责朝鲜发射导弹是违反联合国决议的行为**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+[据共同社9月30日报道，日本政府最高发言人表示，朝鲜本周早些时候的导弹发射违反了联合国安理会决议，同时谴责这次试验是 “极其令人遗憾的”。内阁官房长官在新闻发布会上说，日本与朝鲜没有正式的外交关系，它通过其驻北京大使馆提出了抗议。与此同时，日本、美国和韩国的朝鲜最高特使周四举行了电话会谈，并对朝鲜最近的核武器和导弹开发计划有关的活动表示关切。日本外务省亚洲和大洋洲事务局局长同意继续进行三边合作，以实现朝鲜的完全无核化。](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
 
+**3.****东京海上控股成为日本第一家从煤矿开发中撤资的保险公司**
 
+[据共同社9月30日报道，东京海上控股表示，它将从10月起原则上停止为煤矿开发项目承保新的保单和发放新的贷款，成为日本第一家这样做的非寿险公司。此举将针对主要用于发电的燃料煤，而不是用于生产钢铁的原煤，因此只影响燃煤电厂。不过，东京海上表示，它将继续处理现有的案件，它仍可能为煤矿开发项目承保，这些项目为能够遏制温室气体排放的电厂生产煤炭。该保险公司表示，它决定采取这一政策是为了配合欧洲和美国为减少碳排放而从煤矿开发中撤资的举措。](https://english.kyodonews.net/news/2021/09/dc9aeccf0256-tokio-marine-1st-japan-insurer-to-divest-from-coal-mine-development.html)
 
+**4.****麻生被任命自民党副总裁**
 
+[据NHK 9月30日报道，自民党新任总裁岸田决定任命副首相兼财务大臣麻生为其副手。 麻生先生曾担任副首相和财政部长近9年。新任自民党总裁岸田将于周四就该党的行政任命作出决定，并正在选择他的人选。81岁的麻生曾13次从福冈第8区当选下议院。通过任命曾长期担任副首相和财务大臣并领导该党第二大派系的麻生为副总裁，岸田有望稳定其政府的基础，并从党内推广自己的政策，包括旨在实现增长和分配的良性循环的经济政策。](https://www3.nhk.or.jp/news/html/20210930/k10013285141000.html)
 
-9月28日，日本政府宣布疫情紧急状态在周四结束，以帮助恢复经济活力。 首相菅义伟表示，随着疫情感染放缓，病毒限制令逐步放宽。这是自今年4月，日本在六个多月时间里，首次完全摆脱疫情紧急状态的限制。 在实施疫情紧急状态期间，日本并没有抑制中共病毒的再度爆发。日本的疫情在7月开始恶化，在东京奥运会后的8月中旬达到顶峰。紧急状态限制令主要涉及，要求餐馆和酒吧减少营业时间和不供应酒精。公众早已对这些封锁措施感到厌倦和沮丧。 政府官员正在为放松限制做准备，制定其他计划，以确保感染不会迅速反弹。政府将建立更多的临时治疗设施，为未来的任何复发做准备。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.jpg)
-参考链接：
-[Japan To Lift All Coronavirus Emergency Steps Nationwide](https://www.npr.org/2021/09/28/1041086891/japan-to-lift-all-coronavirus-emergency-steps-nationwide)
-[Japan to lift all coronavirus emergency steps](https://apnews.com/article/coronavirus-pandemic-sports-lifestyle-business-2020-tokyo-olympics-9ac68d89a4124116a0a8d6cfc5e48eb7)
-[郭文贵先生盖特： 9月29号：该发生的都会发生，最大收益方就是新中国联邦。](https://gettr.com/post/pcjqsv6a51)
+**5.****台湾希望日本帮助其加入TPP**
 
-（本文仅代表作者观点）
+[据中央通讯社9月30日报道，台日关系协会秘书长在外交部举行的在线新闻发布会上表示，如果日本政府帮助台湾加入跨太平洋伙伴关系(TPP)，那么台湾的加入将具有重大意义。台湾于9月22日申请加入TPP，9月29日，岸田文雄当选为自民党新任总裁，并将成为日本的下一任首相。他说，日本是世界上和TPP中最有影响力的经济体之一，他希望日本能帮助台湾加入TPP。](https://news.yahoo.co.jp/articles/decc88bdcebdf834047dcbe92e367e8ac51a54b2)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+**6.****全日空飞行员的工资或将与公司收入的变动挂钩**
 
-终审： Ryan
-校对/发稿：为真不破20
+[据读卖新闻10月1日报道，全日空公司通知工会打算审查飞行员的工资制度并向工会提出了改变的意向。 如果将来发生大流行病或自然灾害导致飞行时间减少，飞行员的工资也会减少。 公司的政策是，只有在收入下降时，才会根据航空旅行需求的波动而减少人事费用。这一工资制度，会使员工的年薪减少了30-40%。 目前的制度规定了每月50小时工资的 “最低保障”。 如果津贴减少到每月30小时，机长的月收入预计将减少约100,000日元。](https://news.yahoo.co.jp/articles/c4771cde02a98e0389fbc94f08a6e11c20bfb326)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Curiosity

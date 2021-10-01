@@ -2,75 +2,43 @@
 ---
 
 
-## 币圈新闻动态：正在筹备HCN上市庆典， 预测喜交所10月下旬开市
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1566550/)
+## 在今天这第72个国殇日里大连和烟台下起了冰雹
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566717/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+2021年10月1日是大陆人民迎来的第72个国殇日，在这个国殇日里，大连和烟台人民看到的不是秋高气爽更不是云淡风轻，而是局部的冰雹甚至是鸡蛋大的冰雹。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+据[**沸点视频**](https://weibo.com/5145725878?refer_flag=1001030103_) [2021年10月1日12:38](https://weibo.com/5145725878/KAHsHhHZM?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
+【[#大连下*冰雹*部分航班延误取消#](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E8%BF%9E%E4%B8%8B%E5%86%B0%E9%9B%B9%E9%83%A8%E5%88%86%E8%88%AA%E7%8F%AD%E5%BB%B6%E8%AF%AF%E5%8F%96%E6%B6%88%23)：部分航空器不同程度受损】10月1日，辽宁大连出现强降雨并伴有*冰雹*。[#大连突下*冰雹*超鸡蛋大#](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E8%BF%9E%E7%AA%81%E4%B8%8B%E5%86%B0%E9%9B%B9%E8%B6%85%E9%B8%A1%E8%9B%8B%E5%A4%A7%23)。很多市民被*冰雹*声吵醒。一夜过后，市民起床后发现自己的车被*冰雹*砸伤、车玻璃被砸碎，车体被砸凹陷。有市民称，在大连市区居住几十年，从未见过这么大的*冰雹*。据大连国际机场官微通告，受突发*冰雹*极端天气影响，造成部分航空器不同程度受损，导致部分航班延误、取消。[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [2大连](https://weibo.com/p/1001018008621020000000000) [L沸点视频的微博视频](http://t.cn/A6MfBLeb)
 
+另据[**印象烟台**](https://weibo.com/2266260155?refer_flag=1001030103_) [2021年10月1日14:06](https://weibo.com/2266260155/KAI2jbDFn?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-## 每日一问
+晴天霹雳！！今天上午*烟台*蓬莱区遭遇*冰雹*天气！目前正值*烟台*苹果成熟期……哎！你那里下*冰雹*啦嘛？[#*烟台冰雹*#](https://s.weibo.com/weibo/%23%E7%83%9F%E5%8F%B0%E5%86%B0%E9%9B%B9%23) [#*烟台*人的海鲜日常#](https://s.weibo.com/weibo?q=%23%E7%83%9F%E5%8F%B0%E4%BA%BA%E7%9A%84%E6%B5%B7%E9%B2%9C%E6%97%A5%E5%B8%B8%23) [L印象*烟台*的微博视频](http://t.cn/A6MfezY6) ​
 
+据[**中国气象爱好者**](https://weibo.com/1763864272?refer_flag=1001030103_) [2021年10月1日16：43](https://weibo.com/1763864272/KAJ4j3IYK?from=page_1005051763864272_profile&amp;wvr=6&amp;mod=weibotime)
 
+[#*烟台冰雹*#](https://s.weibo.com/weibo/%23%E7%83%9F%E5%8F%B0%E5%86%B0%E9%9B%B9%23) 来自qq粉丝投稿，今天鲁东大学鸡蛋大的*冰雹*，会不会是雪莲的味道？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001VmZFKly1guzwgtwe7cj60p80pwjsj02.jpg)
+在中共准备9月份的第一次攻台前后天安门降下了黑天鹅，作为中共根器的延安窑子洞垮塌，中共的太祖毛贼东纪念堂出现天灯坠落，而在今天，在中国人民的第72个国殇日里，在大连和烟台降下的冰雹无论如何不能称作天降祥瑞，天怒人怨的中共还有几天阳寿我们不得而知，但是这冰雹光顾之下对于等待收获的庄稼和苹果绝对不是好消息。
 
+撰稿：喜马拉雅的肉夹馍
 
+审核：喜马拉雅的馍夹肉
 
-币圈的朋友现在回想起文贵先生的“保命、保财、报仇”是不是别有一番滋味？
+校对：Maarago
 
+（文章内容仅代表作者个人观点）
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-## 喜马拉雅交易所要闻
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-
-- 1）湾流群有截图显示，喜交所通过KYC的人数为5,001。（未经证实，仅供参考）
-- 2）长岛伟哥直播视频消息，正在筹备HCN上市庆典事宜， 并预测喜交所将于10月下旬开市。
-
-
-
-
-
-
-## 新闻动态
-
-
-
-
-
-1. 10月1日，EOS基金会发文阐述了该项目的发展方向及未来规划。文章称，从很多方面的表现来看，目前EOS的发展并不尽如人意，作为曾经的明星项目，EOS浪费了它最初拥有的所有市场领先地位，但是，诸如此类问题并不意味着EOS已无力回天。
-2. 9月30日消息，Zero Hash宣布完成3,500万美元C轮融资，Point72领投，NYCA Partners和Drive Wealth以及部分天使投资者跟投。据悉，Zero Hash将使用该笔融资用于DeFi和NFT领域的扩张。
-3. 9月30日消息，加密资金管理平台Multi Safe已更名为Coinshift，并宣布在种子轮融资中获得250万美元。投资者包括红杉资本等。
-4. Cryptoninjas报道，基于区块链的加密货币支付生态系统COTI公司宣布启用其COTI银行账户和VISA借记卡。COTI团队表示，“我们一直与我们的亲密合作伙伴Simplex合作，为用户提供COTI银行账户和借记卡，我们很高兴能够成功实现这一重要里程碑。”
-5. Coindesk报道，澳大利亚加密货币交易所Independent Reserve已成为该国首批获得新加坡金融管理局“MAS”颁发的主要支付机构许可证的公司之一。该许可证授予该交易所根据岛国支付服务法在新加坡作为虚拟资产服务提供商VASP开展业务的批准。
-6. 9月30日消息，NBA圣安东尼奥马刺队宣布与Socios.com达成合作。从2021-22赛季开始，在马刺队主场比赛期间，Socios.com提供的内容将出现在马刺主场AT&T中心球馆的广告牌和电视中。Socios.com还将在马刺队官方应用、官网以及马刺队的各种社交渠道上提供内容。圣安东尼奥马刺队成立于1967年，曾5次获得NBA总冠军。
-7. 9月30日消息，土耳其足球甲级联赛萨姆松体育队Samsunspor宣布与Socios.com达成合作，将推出官方粉丝TokenSAM。萨姆松体育队成立于1965年，曾赢得过巴尔干杯和多次土甲联赛冠军。Socios.com体育娱乐区块链服务提供商，其合作伙伴包括巴塞罗那、巴黎圣日耳曼、尤文图斯、AC米兰、曼城、阿森纳等足球豪门和篮球、F1、电竞、板球领域的知名球队。
-8. FXStreet报道，ShibaInu代币生态系统开发者和领导者Shytoshi Kusama近日宣布，将在ShibaSwap上推出10,000个随机生成的NFT。随机生成的NFT收藏品被命名为“Shiboshis”。
-9. Investing报道，社交媒体Twitter透漏了一个开发中的工具，该工具将允许用户将加密收藏品经过验证的NFT设置为他们的个人资料图片。据悉，Twitter的高级软件工程师MadaAflak分享了一个视频，展示了允许用户向其帐户添加NFT的功能。用户将能够管理他们的个人资料、连接加密货币钱包并导入他们的OpenSea收藏，并允许他们从NFT数字艺术收藏中选择一个头像。
-10. 9月30日消息，DeFi流动性协议Meld宣布计划在Cardano区块链上发行由实物黄金支持的稳定币。黄金将存储在保险库中，被代币化，然后进行细分和分割，以便可以出售。
-11. 10月1日消息，TikTok正在推出一个NFT系列，将看到其顶级内容创作者与顶级NFT创作者合作。新发布的TikTok最佳时刻将包含六个“具有文化意义的TikTok视频”，创作者包括Lil Nas X、Rudy Willingham、Bella Poarch、Curtis Roach、Brittany Broski、FN Meka、Jess Marciante和Gary Vaynerchuk等。
-12. Prnewswire报道，濒危动物NFT系列Endangered Animals NFT即将发布该系列中的首个NFT。该系列由12个NFT组成，其中包含来自世界各地的濒危动物，部分收益将捐赠给特定的濒危动物慈善机构。该系列的首个濒危动物NFT是飞蛙，是Solana区块链上以编程方式随机生成的NFT的集合。
-13. 10月1日消息，加密货币交易和技术公司Amber Group宣布已加入Pyth网络，后者是一个去中心化的金融市场数据分发平台。通过合作，Amber Group将向Pyth网络贡献其第一方加密资产市场数据。
-14. 10月1日消息，Bitcoin Depot的加密货币ATM网络继续扩展，在零售采用激增的情况下，其在北美的安装量首次超过5,000。凭借这一里程碑，Bitcoin Depot再次成为北美最大的加密ATM网络。
-15. Coindesk报道，加密采矿公司Argo Blockchain已同意为其在西德克萨斯州建造的数据中心购买20,000台采矿机。公司宣布到2022年第三季度末，Bitmain Antminer S19J Pro机器将使总部位于伦敦的Argo的哈希率增加2exahash以上，达到3.7exahash。从明年第二季度开始，这些机器将被派往西德克萨斯数据中心。
-16. CoinDesk报道，在周四Maker DAO治理论坛上的一项提案中，法国跨国银行巨头法国兴业银行SocGen提交了去中心化金融DeFi借贷平台的申请，以接受该银行发行的链上债券代币作为稳定币DAI贷款的抵押品。这笔贷款在一些法律实体和第三方之间以某种复杂的法律架构进行调解，最高可达2000万美元的DAI——这可能是迄今为止向机构采用DeFi迈出的最大一步。
-17. 10月1日消息，去中心化借贷协议Compound创始人Robert Leshner发推称，如果用户从Compound协议中错误地收到大量COMP代币，需要将这些代币转回至Compound并可保留10%作为白帽奖励。否则，这些COMP将会作为收入报告给美国国税局。
-18. 10月1日消息，出勤证明徽章协议POAP表示，其铸币系统在9月29日遭到黑客攻击，XCOPY和Polygonal Mind的几个POAP被欺诈性发行和出售。POAP应艺术家要求已烧毁相关NFT，并将赔偿受损各方。
-19. 9月30日消息，报道，法国政治家Pierre Person制定了在法国简化加密货币税收的计划。据悉，使用加密货币支付商品或服务通常构成纳税义务，因为数字资产必须转换为法定货币。然而，Person希望结束税务合规问题。该国会议员提议，如果总金额不超过3000欧元，则不对加密支付征税。这意味着人们将能够在流行的加密卡或其他服务的帮助下使用数字资产，而不会产生应税事件。
-20. Beincrypto报道，在探索发行数字货币CBDC时，新西兰储备银行RBNZ正在征求公众的意见。新西兰央行发布了一份问题文件，该文件没有详细介绍具体的设计细节，而是解释了发行CBDC的抽象优势和劣势、成本和收益以及风险和机遇。据悉该主题征求公众意见截止日为12月6日。
-21. News.bitcoin报道，俄罗斯国家邮政运营商计划最早在2023年实施基于区块链技术的包裹追踪系统。这项新服务的引入是俄罗斯邮政数字化转型战略的一部分，旨在帮助俄罗斯邮政节省时间和资源，减少丢失货物的数量。
-22. 9月30日消息，随着中国监管机构推出更严格的打击加密货币措施，新加坡正成为中国加密货币公司和高管的关注热点。由于其对加密货币友好的态度和灵活的法规，许多加密货币公司将业务迁移至新加坡。据悉，新加坡尚未向加密货币公司颁发许可证，但已向包括币安在内的一些业内最大参与者授予豁免权，允许他们继续为本地散户和机构投资者提供服务。
-23. 9月30日消息，加密货币交易所CoinEx宣布将彻底清退中国大陆地区的用户，以响应中国政府监管政策要求。CoinEx表示，对于实名认证为中国大陆地区或者绑定了中国大陆地区手机号的账户，CoinEx将于北京时间2021年10月31日16:00前，在保证用户资产安全的前提下完成平稳有序清退工作。
-24. 9月30日消息，交易平台Bitfinex宣布因平台自身问题，暂时停止向用户提供交易服务。目前，该平台的Web服务器及交易引擎、后端平台正在维护中。
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
