@@ -2,40 +2,52 @@
 ---
 
 
-## 印度将在斯里兰卡建造战略性深水港码头对抗中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566948/)
+## 2021/09/30大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567068/)
 
-栏目记者/责任编辑：七哩香
+**主播**：大卫｜**嘉宾**：天津老马
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-9月30日，印度阿达尼（Adani）集团、及斯里兰卡John Keells集团， 与斯里兰卡港务局签署了一份价值7亿美元的合同，要在斯里兰卡建造一个战略性的深水港头。这是斯里兰卡港口领域有史以来最大的外国投资，这一举措被视为是抗衡中共在印度洋日益增长影响力的一种方式。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（4、5、8）.001.jpeg)
-新码头毗邻科伦坡国际码头，预计长1.4公里，深20米，年处理能力为320万个集装箱，其产权将在运营35年后全部转移给斯里兰卡。
-
-科伦坡国际码头于2013年开始运营，中共拥有其85%股权；2014年因中共潜艇突抵达触发外交事件而成为焦点。
-
-斯里兰卡地处印度洋战略要地，是亚非、亚欧贸易通道的重要节点，也是中共”一带一路”的关键环节。近年来，中共重金投入斯里兰卡的基建等领域，令斯里兰卡陷入债务泥潭，印度则担忧这里变为中共军事基地。新码头协议，无论对印度，还是对全世界民主国家，都具有战略性意义，是对中共扩张和威胁态势的强力反击和有效制约。
-(本文仅代表作者观点)
-
-参考链接：
-
-1. [对抗中国：印度将在斯里兰卡建造战略性深水港码头](https://www.rfi.fr/cn/亚洲/20210930-对抗中国-印度将在斯里兰卡建造战略性深水港码头)
-2. [India’s Adani Plans to Compete With China at Sri Lankan Port](https://www.maritime-executive.com/index.php/article/india-s-adani-to-build-sri-lanka-port-in-competition-to-chinese)
-3. [India counters China in Sri Lanka with $700 million port deal](https://www.easterneye.biz/india-counters-china-in-sri-lanka-with-700-million-port-deal/)
+[GTV视频链接](https://gtv.org/video/id=615598fb304e992109ad2564)
 
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：暗黑
-校正/发稿：我不在这里
+**板块1–中共病毒**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1. 辉瑞公司即将新推出治疗新冠病毒的药中含有伊维菌素。大科技平台封杀关于伊维菌素的信息，伊维菌素核心作用就是干扰新冠病毒阻止其感染人体细胞。福奇被曝光直接资助武汉实验室功能增强实验（即让病毒更容易感染人体）。新冠病毒为矛，伊维菌素为盾，它们相互佐证。
+
+2. 印度在2020年底至2021初死亡率急速降低的主要原因-：**运用伊维菌素**。
+
+3. 大卫哥和马哥的妻子均已打疫苗，耐心劝说下不会接种第二剂疫苗。
+
+**板块2–马哥经历**
+
+1. 天津老马是回族同胞，深刻体会中共体制的恶，天津的空气质量直接让马哥逃离大陆。马哥关注过“民运要饭帮”；2017年1月26日文贵先生开始直播，经历“4.19断播门”，直接刷新三观、打开新世界；中途经历过伪类–“天津大驴脸”。马哥一直为爆料革命摇旗呐喊。
+
+2. 爆料革命战友——是狼哪里都吃肉。中共的伪类——是狗哪里都吃屎。
+
+3. 习仲勋是改革开放开创人之一，成果被邓小平盗走；习近平从小文革经历，心理状态不正常。习近平出席烈士纪念日凸显其推动爱国主义的目的：提前让民众进入准战争、准军管状态（习惯性限电、限粮）。
+
+**板块3-国际政治**
+
+1. 法国报告全景式展示北京推动全球影响力；法国政府附属智库提及“北京与外国官员建立联系以渗透西方”。结合英国和德国前期对中共国态度的转变，欧洲正在集结力量。
+
+2. 王健案件——法国检察和司法系统配合中共国国安委到法国当地作案，是海航长期在欧洲“耕耘”的结果。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/090846.jpg)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*听写：call me uncle | 校对：CharlesS**| Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

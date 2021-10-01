@@ -2,33 +2,42 @@
 ---
 
 
-## 美国政府将在三周内耗尽现金无法支付账单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1565627/)
+## 佛州州长抨击澳大利亚正在走向共产主义中国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566191/)
 
-栏目记者/责任编辑：文真
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒.png)
+图片来源：Yahoo News
 
+美国第三大州的领导人——佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)猛烈抨击澳大利亚的新冠病毒限制措施，指责澳洲已“脱轨”，正在走向专制的共产主义中国。
 
+德桑蒂斯先生一直强烈反对美国的封锁、强制执行和疫苗护照，他在坦帕举行的国际造船展览会上发表讲话时提到了澳大利亚的新冠病毒政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
+“看看吧，澳大利亚现在发生了什么。在（疫情爆发）一年半之后，他们正在执行军方的封锁措施，”德桑蒂斯说。
 
+“那不是一个自由的国家，它根本不是一个自由的国家。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture44.jpg)
-9月28日在参议院银行委员会上，美国财政部长耶伦警告立法者，除非国会迅速采取行动增加政府的借贷权限，否则联邦政府可能在10月18日之前，因缺乏现金，无法支付账单。 此前，在国会就所谓的债务上限问题僵持不下。9月27日，参议院共和党人阻止了一项提高或暂停债务上限的措施。周二股市随之大幅下跌，而政府债券的收益率上升。 耶伦明确表示，如果不能在10月中旬之前达成协议，使联邦政府借到更多的钱，将导致美国历史上首次违约。社会安全福利，儿童福利，政府雇员和军队薪金将会停发。这对美国经济、全球金融市场以及数百万家庭和工人来说都是灾难性的。 新冠疫情的持续和高通胀的冲击下，美国政府和个人消费者的借贷大幅上升，创历史新高。自09年金融危机以来，依靠QE借贷刺激经济的模式，已经濒临绝境。
+“事实上，我想知道为什么当他们这样做时，我们（两国）仍然保持正常的外交关系。澳大利亚现在比共产主义中国更自由吗？我不知道，一个普通问题的事实告诉你，其中一些东西已经大大偏离了轨道。”
 
-（本文仅代表作者观点）
+德桑蒂斯先生被广泛视为2024年共和党总统候选人提名的主要竞争者，他声称佛罗里达州在反对美国各地的限制措施方面处于领先地位。
 
-参考链接：[美国政府将在三周内耗尽现金无法支付账单](https://www.npr.org/2021/09/28/1041126764/janet-yellen-jerome-powell-debt-ceiling-standoff%20https://gettr.com/post/pcjqsv6a51)
+例如，他所在的州率先禁止私营企业要求客户提供疫苗接种证明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M9-3.jpg)
+“如果我们不这样做（取消疫苗护照），很多其他州就不会效仿，”他说。
 
-终审编辑：鬼五
-校正/发稿：Hetangyuese
+“佛罗里达州是一个自由州，我们将赋予人民权力，”州长在8月份给他的支持者的一封筹款电子邮件中说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“我们不会允许乔·拜登和他的官僚随从闯入并侵占佛罗里达人的权利和自由。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
+与此同时，白宫新闻秘书珍·普萨基（Jen Psaki）抨击德桑蒂斯先生采取了“违反公共卫生建议的措施”，例如禁止学校要求学生戴口罩。
+
+新闻链接：[‘Off the rails’: Florida Governor Ron DeSantis blasts Australia’s Covid restrictions | news.com.au — Australia’s leading news site](https://www.news.com.au/world/coronavirus/australia/off-the-rails-florida-governor-ron-desantis-blasts-australias-covid-restrictions/news-story/9aea5a9f5df3c82cbf4bdcbdd62a8cd5)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,22 +2,19 @@
 ---
 
 
-## 盖特再推重磅抽奖活动 注册用户可得哈雷摩托！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566404/)
+## 秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566515/)
 
-#### 编译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-41.png)图片来源：Gettr
-国家脉动9月29日报道，盖特（GETTR）作为一个言论自由、反对“取消文化”的新社交平台，今天宣布它将举行赠送2021年哈雷·戴维森道路滑行摩托车的新的抽奖活动。
+#### 撰稿：彩虹
 
-这个活动是继上个月成功举行赠送F-150福特皮卡的活动之后的又一竞赛活动。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2.jpg)图片来源：CBS新闻
+9月30日，据《国会山报》(The Hill)报道，两名军人对国防部长劳埃德·奥斯汀（Lloyd Austin）提起了诉讼，以阻止他要求所有部队接种中共病毒疫苗。
 
-这一活动的举办时间为9月29日至10月17日，由外部律师事务所随机抽取获奖者，参与者必须注册盖特账号，以赢得大奖。
+这两名军人分别是陆军上士丹·罗伯特（Dan Robert）和海军陆战队上士霍利·马尔维希尔（Hollie Mulvihill），两人都在北卡罗来纳州，他们认为国防部的强制接种中共病毒疫苗“公开侵犯”了军人的权利，是违宪的，同时，他们也希望五角大楼为那些以前就感染过中共病毒的人豁免疫苗注射，因为他们已经拥有了“自然免疫力”。他们于8月17日在美国科罗拉多州地区法院提起了该诉讼。
 
-有两种经典的方法表达你自己：1.在盖特上说出你的想法；2.开着真的哈雷·戴维森畅游。盖特总裁杰森·米勒说：“你们可以在盖特上与社交媒体寡头战斗，并开着哈利-戴维森摩托车抗议。”
+在该诉讼中，国防部长奥斯汀、卫生和公共服务部长泽维尔·贝塞拉（Xavier Becerra）和食品和药物管理局（FDA）的代理专员珍妮特·伍德科克（Janet Woodcock）均为被告。
 
-于今年7月4日正式上线的盖特不会取消人们的政治观点，在三天之内就达到一百万注册用户，目前用户数量已经近三百万，这在社交媒体历史上是增长最快的，推特花了两年月才达到一百万，而脸书则用了十个月。
+报道说，根据国防部的数据，美国军事人员中已经超过372000个中共病毒病例（其中233300是军人），5274人接受住院治疗，515人死亡。截至周三，已经有58名军人、水手和飞行员死于中共病毒。
 
-盖特在苹果应用软件商店和谷歌游戏软件商店平台以及网上均可下载。想参与抽奖的盖特注册用户请访问：[www.getrevvinsweeps.com](http://www.getrevvinsweeps.com/)
-
-新闻来源： [GETTR](http://www.gettr.com/) – [the new social media platform which defends free speech and fights cancel culture](https://thenationalpulse.com/sponsored/get-revvin-free-speech-network-gettr-announces-2021-harley-davidson-giveaway/)
+新闻来源：[Troops move to block Pentagon vaccine requirement in court](https://thehill.com/policy/defense/574790-troops-move-to-block-pentagon-vaccine-requirement-in-court?rl=1)

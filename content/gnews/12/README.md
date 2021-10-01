@@ -2,29 +2,32 @@
 ---
 
 
-## 2021年9月2日郭文贵先生做健腹轮健身盖特
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566845/)
+## “十一”国殇日香港黑警高压维稳
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566903/)
 
-盖特连接：[https://gettr.com/post/p9vqa224f8](https://gettr.com/post/p9vqa224f8)
+栏目记者/责任编辑：在远方
 
-9月2号尊敬的家人（注：疑似笔误，疑似为战友）们好：你们健身了吗？传播CCP病毒．香港危机．郑州人祸．病毒解药的真相了吗？
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+今年“十一”国殇日，港共政府将在湾仔金紫荆广场及香港会议展览中心，分别举行升旗仪式及十一酒会，因此为防止意外, 从9月30日起，香港黑警即出动超8千警力高压维稳，要在“各个敏感地点做高姿态巡逻”， 还声称将出动便衣警察作适当部署。完全是一派中共作风！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（1、2、3、6、7）視頻備用.001.jpeg)
+其中所谓“敏感”更是来自中共国的特色词汇，按照惯例，但凡有可能危及中共政权或者仅仅有可能对中共造成负面影响的时间、地点和事件都会被冠以“敏感”二字。从8964到香港雨伞运动/街头运动，甚至包括中共自己的各种节庆纪念日，全都成为”敏感日”！
 
-（无）。
+自2019年6月9日香港反送中运动爆发以来，中共管控操纵下的港府和黑警，对香港民众进行了残酷镇压，据郭文贵先生揭示有多达2万多名香港青年人被中共杀害或被拘押失踪，仅仅两年多时间，香港已经变成了一座”内地化”城市，民众大举移民逃离 。港共政府在高压维稳下苟且“欢度国庆”，也显露出着对香港民众不屈抗争的恐惧。
+(本文仅代表作者观点)
 
-编辑整理及发布：黎明之前
+参考链接：[中国十一国庆：香港出动八千多警力部署各区维稳](https://www.rfi.fr/cn/中国/20210930-中国十一国庆-香港出动八千多警力部署各区维稳)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+终审：文龙
+校正/发稿：我不在这里
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,43 +2,46 @@
 ---
 
 
-## 美国律师证实：近5万名医保病人打疫苗后不久死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566697/)
+## 96岁的前纳粹秘书在受审当天逃离疗养院后被捕
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1566722/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/PADJb.OvCc_.1.jpg)
-图片来源：justthenews.com
+- 编译：西班牙喜悦农场–wenwu
 
-暴露疫苗就是种族灭绝的关键信息正在浮现。托马斯·伦茨（Thomas Renz）律师上周六在美国科罗拉多斯普林斯（Colorado Springs）举行的克拉克唤醒美国（Clay Clark ReAwaken ）之旅的活动中展示了这一重磅消息。
 
-托马斯·伦茨律师透露：来自医疗保险跟踪系统的数据显示，在接种中共病毒疫苗后的14天内，有19,400名80岁以下的人死亡。此外，在接种中共病毒疫苗后的14天内，有28,065名80岁以上的人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-14.png)
 
-**根据医疗保险跟踪系统中披露的真实数据，在接种中共病毒疫苗后****14****天内死亡的美国公民总数为**** 48,465****人。**
+[据法新社报道](https://news.yahoo.com/former-nazi-death-camp-secretary-015110785.html?fr=sycsrp_catchall)，一名 96 岁的[纳粹](https://www.businessinsider.com/auschwitz-photos-nazi-camp-history-liberation-anniversary-2020-1?r=US&amp;IR=T)集中营指挥官的前秘书 Irmgard Furchner 将于周四（30日）在德国接受审判，她从疗养院逃跑，但在几个小时后被捕，现在法庭决定是否将她拘留；[据美联社报道](https://apnews.com/article/europe-crime-trials-courts-germany-6e3b2dc5f61d24e3b658ad3bac0b48ec)，这名高龄妇女的纳粹身份被德国媒体核实，并面临超过1.1万项谋杀从犯的指控。
 
-今年7 月，托马斯·伦茨律师就表示，估计至少有4.5人死于中共病毒疫苗。《今日美国》事实核查机构和其他事实核查服务机构声称这是“错误信息”。今天的揭露证实了“可信新闻倡议”实际上是错误信息和宣传的来源，而托马斯·伦茨律师一直是正确的。
+据《Der Spiegel》报道，她原定于周四在德国北部的伊策霍州法院出庭，但从未露面；她周四一早离开了养老院，乘坐出租车前往附近的地铁站。很快，她就被找到了；法官 Dominik Gross 周四上午在法庭上宣布 Furchner 失踪，并补充说：“被告现在是逃犯，法庭已发出逮捕令。”
 
-在证明超过4.5万人死于中共病毒疫苗后，托马斯·伦茨律师随后将话题转移到安东尼·福奇（Anthony Fauci）博士制定的瑞德西韦方案在美国医院杀死的人数上。
+国际奥斯威辛集中营委员会副主席克里斯托夫·赫布纳说，这次越狱企图表明是“对幸存者和法治的蔑视”。
 
-托马斯·伦茨律师还拥有来自医疗保险跟踪系统的瑞德西韦死亡数据，但该数据已被政府扣留，不允许给公民查阅。
+上周，Furchner 给法官 Dominik Gross [写了一封信](https://www.spiegel.de/panorama/justiz/irmgard-furchner-ehemalige-kz-sekretaerin-schreibt-brief-an-den-richter-a-23ea17a0-e888-4011-b704-a23704921ef5#bild-73100b92-c859-453f-8b0b-f1f4ab85911e)，说她出于健康原因不想出庭；据《[图片报](https://www.bild.de/regional/hamburg/bremen-aktuell/paukenschlag-zum-prozess-auftakt-in-itzehoe-angeklagte-kz-sekretaerin-auf-der-fl-77828838.bild.html)》报道，她在信中说：“我想避免这些尴尬，不要让自己成为笑柄。”
 
-瑞德西韦数据显示，为中共病毒开出瑞德西韦处方的7,960名受益人中，有2,058（25.9%）人死亡。
+据《[明镜周刊》报道](https://www.spiegel.de/panorama/justiz/kz-stutthof-sekretaerin-von-kommandanten-irmgard-furchner-stenotypistin-des-grauens-1623060543-a-9777266e-75a4-4d28-ab01-095f9fba08b9)，Furchner 18 岁时开始在[纳粹占领的波兰的](https://www.insider.com/germany-100-year-old-former-nazi-death-camp-guard-trial-2021-8)斯图特霍夫集中营曾担任，前纳粹党卫军指挥官保罗·沃纳·霍普（Paul Werner Hoppe）的秘书；霍普作为纳粹集中营指挥官，编写了处决命令、开往奥斯威辛集中营的火车的驱逐清单，以及在纳粹集中营毒气室进行大屠杀的指示。报道称，Furchner 以信件和无线电信息的形式，传达了他的命令。
 
-**46%****的人在接受瑞德西韦治疗后的****14****天内死亡。**** ****瑞德西韦治疗方案是在安东尼****·****福奇博士的指导下在美国医院建立的。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-15.png)
 
-在接受瑞德西韦治疗的532名患者中，有131（24.6%）人报告了严重的不良事件。
+据美联社报道，在过去的纳粹审判中曾作为证人接受讯问时候的 Furchner 声称，她此前不知道她在那里工作时，在集中营所发生的杀戮事件。
 
-托马斯·伦茨律师说：“这就引出了一个问题……为什么美国医院会有这样的协议？这在你看来“安全和有效”吗？”
+她是几十年来第一位因第三帝国的罪行而接受审判的女性。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+**简评：**
 
-**参考新闻：**[BOMBSHELL from attorney Thomas Renz: Nearly 50k Medicare patients died soon after getting COVID shot – NaturalNews.com](https://www.naturalnews.com/2021-09-29-attorney-thomas-renz-nearly-50k-medicare-patients-died-soon-after-getting-covid-shot.html)
+**早在国殇日前十年，欧洲出现了一个纳粹德国，该组织以发动世界大战和屠杀犹太人而闻名。现今全世界对该邪恶组织的追杀仍为停止，并且如今已经没有人敢说自己是纳粹了，但这并不意味着纳粹的种子被拔除了（邪恶的华尔街并没有被定罪）。**
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+**另一方面，据2021年9月30日《耶路撒冷邮报》[报道](https://www.jpost.com/international/leader-of-neo-nazi-group-convicted-of-five-federal-felonies-680735)，美国司法部周三（29日）的一份声明表示，新纳粹组织“[原子武器](https://www.jpost.com/international/transgender-ex-neo-nazi-wont-face-prison-time-already-suffered-enough-663842)”的领导人被判犯有五项联邦重罪。 **
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**25岁的新纳粹组织“原子武器”领导人卡莱布·科尔(Kaleb Cole)和其他四人去年被指控对记者和反诽谤联盟(Anti-Defamation League)的雇员进行网络跟踪，并发送写满纳粹标志的海报。一张海报还被粘在《犹太生活方式杂志》的一个编辑的卧室窗户上。该海报包括”你已经被当地的纳粹分子拜访了”这句话。最终，他在为期两天的审判后被判刑**。
+
+**中共是人类历史上比纳粹邪恶万倍的跨国犯罪组织。新中国联邦不仅会让中共受到应有的法律制裁和遗臭万年，更有有责任让中共的犯罪分子永远在历史长河中被唾弃。**
+
+（文章仅代表作者观点 与GNEWS无关）
+
+新闻来源：《[内幕信息](https://www.insider.com/former-nazi-concentration-camp-secretary-due-on-trial-missing-report-2021-9)》｜作者：索菲亚·安克尔&丽贝卡·科恩｜发布时间：2021年9月30日
+
+* * *
+
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
