@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 2:39 PM (UTC)`
+
+10月1号：尊敬的战友们好！没有庆祝的中国共产党的中国国庆。的内部政治斗争，已经像火山一样即将爆发，全世界都已经将中共国的政治，和经济，列为最大的不稳定因素，爆料革命新中国联邦……传播的疫苗灾难的真相，每时每刻都在改变着全球的政治，和人类的未来，星期天，上午9:00七哥继续大直播，向大家汇报。
+![img](https://media.gettr.com/group28/getter/2021/10/01/14/39/a9e72058-28bb-24bc-eb27-e5b9f1de57be/out.jpg)
+
+---
+
 `@miles 10/1/2021 4:15 AM (UTC)`
 
 9/30/2021 Miles Guo’s GETTR: Wang Qishan and Meng Jianzhu have done numerous things that even Xi doesn’t know. The CCP’s recent announcement about Sun Lijun has covered up Sun’s over 100 murders and kidnappings, his attempt to murder and assassinate Xi, and the surveillance footage of the CCP’s top leaders, indicating that Sun Lijun’s force is getting stronger and is everywhere!<br/><br/>9/30/2021文贵盖特：过去几年王岐山和孟建柱干的很多事连习都不知道；中共最近关于孙力军的公告掩盖了他杀人绑架百次以上、企图谋杀和暗杀习以及监控中央领导的视频，该公告恰恰说明孙力军的势力正变得更强且无处不在！<br/>
@@ -291,13 +298,6 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 
 Dr. Pierre Kory during the senate hearing: immerse amount of data have shown that Ivermectin is a life-saving early treatment against Covid-19<br/><br/>皮埃尔·科里医生在参议院听证会上：大量数据表明，伊维菌素是早期治疗中共病毒的救命药
 ![img](https://media.gettr.com/group19/getter/2021/09/28/09/24/52ea0b21-8e74-763b-c0f7-7017adb8d4f2/out.jpg)
-
----
-
-`@miles 9/28/2021 5:30 AM (UTC)`
-
-An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一位愤怒的恒大女投资人在会议上对许家印破口大骂
-![img](https://media.gettr.com/group46/getter/2021/09/28/05/30/5978537a-4d44-1992-f95e-dcc715cf99bd/out.jpg)
 
 ---
 
