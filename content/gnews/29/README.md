@@ -2,31 +2,41 @@
 ---
 
 
-## 盖特再推用户抽奖活动，赢取哈雷戴维森摩托车
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1565466/)
+## 坎普：煤荒导致的中共国电力危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1565536/)
 
-**撰稿：日本东京方舟农场 海星**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-22.jpg)网络图片
+中共国陷入严重的煤炭和电力短缺。中共国的经济在经历了新冠病毒期间的不景气之后重新强势增长，但是煤炭产出未能保持增长，导致发电机缺乏燃料。
 
-9月29日，盖特宣布开始新一轮的抽奖活动，获奖者将得到一辆全新的哈雷戴维森Road Glide摩托车。
-据《国家脉搏》报导，参加盖特抽奖活动的人必须先注册盖特，成为盖特用户。活动时间为9月29日到10月17日。获奖者将由第三方的外部律师事务所随机抽取，并在活动期结束后公开宣布。
-盖特总裁杰森·米勒（Jason Miller）表示，有两种经典方式可以表达自己，一种方式是在盖特上说出自己的想法，另一种方式是骑上真正的哈雷戴维森摩托车巡游。
+和去年同期相比，2021年前8个月中共国的发电量增加了616万亿瓦时（13%）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-29-at-8.06.29-AM.png)图片来自于网络
+大部分增长由热力发电机供应，主要是煤电站，其发电量在前8个月增加了465万亿瓦时（14%）。
 
-他调侃道：“你可以在盖特上与大型社交媒体作战，也可以骑上哈雷戴维森摩托车游行抗议权贵。”
-此前，盖特已经成功举办了一次抽奖活动，并送出了一辆全新的福特F-150卡车。
-盖特始终提倡言论自由，不会因人们的不同观点而删帖封号，并坚持与大型社交媒体的删除行为作斗争。该平台在7月4日上线至今，已经积累了200多万注册用户，并在推出后不到三天盖特就实现了第一个百万用户，奠定了其作为有史以来增长最快的社交媒体平台的历史地位。相比之下，Twitter花了24个月才吸引到100万用户，而Facebook花了10个月。
+今年水力发电的发电量实际上略有下滑。水力发电目前运行在自2018年以来的最低水平，这加剧了热力发电机填补电力短缺的压力。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+今年前7个月，热力发电机组的平均运行时间由去年的2321小时增加到今年的2589小时，增加了12%。
 
-*参考链接：*
+今年前8个月，中共国家铁路网的铁路运输增长了11%，这佐证了热力发电量的增长。
 
+但是根据中共国家统计局的月度报告，煤炭开采量跟2020年相比仅上升了6%。
 
+其结果是煤炭库存被严重消耗，这导致许多发电厂库存低迷，对煤炭价格构成上行压力。
 
-> [GET REVVIN’: Free Speech Network GETTR Announces 2021 Harley-Davidson Giveaway.](https://thenationalpulse.com/sponsored/get-revvin-free-speech-network-gettr-announces-2021-harley-davidson-giveaway/)
+去年这个时候煤炭价格每吨仅仅90美元，现在每吨将近210美元，增长了一倍多。
 
+随着危机的加剧，中共国家电网——负责中共国内除边远南部以外大部分地区的电力运输，承诺保证居民的用电供应，并全力满足今年冬天的基本用电需求。
 
+但是，很多机构和高级官员都感觉有必要强调其确保冬天燃料供应的决心和计划——这实际上是煤炭和电力形势已经变得非常严重的一个信号。
+
+新闻链接：[https://www.zerohedge.com/markets/kemp-chinas-electricity-crisis-caused-coal-shortage](https://www.zerohedge.com/markets/kemp-chinas-electricity-crisis-caused-coal-shortage)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
