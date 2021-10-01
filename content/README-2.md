@@ -16,6 +16,8 @@
 ---
 ## 頁面 2/35 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [35](/content/README-35.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[2021年9月4日郭文贵先生试骑三轮摩托车盖特全文字版](/content/2021/09/20210904-1563831.md)
+
 [2021年9月3日郭文贵先生直播全文字版](/content/2021/09/20210903-1510695.md)
 
 [2021年9月1日郭文贵先生直播全文字版](/content/2021/09/20210901-1506418.md)
@@ -63,8 +65,6 @@
 [全文字版2021年8月7日郭文贵先生G-TV直播](/content/2021/08/20210807-1452928.md)
 
 [全文字版2021年8月4日郭文贵先生G-TV直播](/content/2021/08/20210804-1446074.md)
-
-[全文字版2021年8月3日郭文贵先生G-TV直播](/content/2021/08/20210803-1444955.md)
 
 
 ## 頁面 2/35 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [35](/content/README-35.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
