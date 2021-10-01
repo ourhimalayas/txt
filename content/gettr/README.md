@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 3:12 PM (UTC)`
+
+以色列COVID-19 疫苗受害者证词(五）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
+![img](https://media.gettr.com/group38/getter/2021/10/01/15/12/7dedb9de-a723-719d-668b-dafb061d4a9a/out.jpg)
+
+---
+
 `@miles 10/1/2021 2:39 PM (UTC)`
 
 10月1号：尊敬的战友们好！没有庆祝的中国共产党的中国国庆。的内部政治斗争，已经像火山一样即将爆发，全世界都已经将中共国的政治，和经济，列为最大的不稳定因素，爆料革命新中国联邦……传播的疫苗灾难的真相，每时每刻都在改变着全球的政治，和人类的未来，星期天，上午9:00七哥继续大直播，向大家汇报。
@@ -291,13 +298,6 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 
 9月28号：全世界有良知的人正在觉醒中。
 ![img](https://media.gettr.com/group47/getter/2021/09/28/15/14/b1fb4ab1-b77e-83ef-0946-6fb0a6699402/out.jpg)
-
----
-
-`@miles 9/28/2021 9:25 AM (UTC)`
-
-Dr. Pierre Kory during the senate hearing: immerse amount of data have shown that Ivermectin is a life-saving early treatment against Covid-19<br/><br/>皮埃尔·科里医生在参议院听证会上：大量数据表明，伊维菌素是早期治疗中共病毒的救命药
-![img](https://media.gettr.com/group19/getter/2021/09/28/09/24/52ea0b21-8e74-763b-c0f7-7017adb8d4f2/out.jpg)
 
 ---
 
