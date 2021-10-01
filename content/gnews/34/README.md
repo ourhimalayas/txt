@@ -2,147 +2,126 @@
 ---
 
 
-## 诅咒未接种疫苗者的前圣母大学教授在接种第三针后死亡
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1566352/)
+## 共产党吹牛控制三分之二的芯片产能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566387/)
 
-据《门户专家网》克里斯蒂娜·莱拉2021 年 9 月 29 日下午报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3rd_adobespark.png)
-佛罗里达州奥兰多市，一位前圣母大学教授在接种第三针中共病毒疫苗后死亡，她生前经常攻击未接种疫苗的人，称他们“自私”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot.jpg)https://gtv.org/video/id=61566f7cd2e2b817486fd8a4
+郭文贵
+Miles Guo
 
-67 岁的凯伦·克罗克·海斯勒（ Karen Croake Heisler ）于 2021 年 1 月 13 日接受了第一针辉瑞疫苗注射。
+这个芯片啊，全球的芯片产值一共加一起1万亿美元
+For this chip, the global chip output value adds up to 1 trillion US dollars
 
-她在推中说：“刚刚接种了第一剂疫苗。从来没有感觉“变老”更快乐。现在让我们为每个人接种这些疫苗！”
+到今年大概，吹了狼蛋了，涨价弄价
+Till this year estimate plus price increase and play the price game
 
+也就才1.3万亿美元，1万多亿美元的产值
+The output is only 1.3 trillion US dollars, more than 1 trillion U.S. dollars in output value
 
+在全世界一年100万亿的全球GDP, 它占了1%
+Of the world’s $100 trillion global GDP a year, it accounts for 1%
 
-> Just got my first dose of the vaccine. Never been happier to be “old.” Now let’s get these vaccines rolling for everyone!
-> — Karen Croake Heisler (@KCroakeHeisler) [January 13, 2021](https://twitter.com/KCroakeHeisler/status/1349444225507749888?ref_src=twsrc%5Etfw)
+就芯片这件事上，我跟美国人最近，特别是我跟他们讨论特别多
+on the matter of the chip, the Americans and I have discussion recently
 
+我说你们美国人不要瞪眼说瞎话，也不行的
+I said you Americans don’t lie in front of people’s face, it will not work
 
+共产党说瞎话不行，你们说瞎话也不行
+The Communist Party can’t lie, and you can’t lie either
 
-凯伦·克罗克·海斯勒 @KCroakeHeisler
+共产党并购了两家公司，那么占了所谓的全球2/3
+The Communist Party acquired two companies which accounted for 2/3 productions of the so-called globally
 
-*刚刚接种了第一剂疫苗。**从未如此高兴地成为**“**老人**“**。**现在让我们为每个人接种这些疫苗！*
+但是共产党有没有这2/3的支配权呢
+But does the Communist Party have dominion over this 2/3 of the world’s production?
 
-*2021**年**1**月**13**日*
+有没有2/3的支配权呢
+Do they have dominion over this 2/3
 
-4 月 9 日，海斯勒发推说，在接受第二针辉瑞疫苗注射后，她没有任何副作用。
+大家都知道没有，话说回来了
+We all know it has no dominance, then again
 
+如果你现在要出租，像那个AMD
+If you want to rent now, like AMD
 
+你现在说，我出10%，3%的溢价
+Now you say, I offer 10%, 3% premium
 
-> Neither John nor I had problems with second Pfizer shot except a sore arm.
-> — Karen Croake Heisler (@KCroakeHeisler) [April 9, 2021](https://twitter.com/KCroakeHeisler/status/1380486169356554245?ref_src=twsrc%5Etfw)
+你马上就可以拿到芯片，但是美国人习惯了使用中国奴才
+You can get the chip right away, but Americans are used to using Chinese minions
 
+奴隶用的这个廉价产品
+and the cheap product made by slave labors
 
+所以说，一个共产党拥有这家公司产品的调配权，是吧
+So, does Communist Party has the right to distribute the company’s products？ right?
 
-*帕特**·**福特（**Pat Forde**）发推：*
+2/3 （占全球），台积电就占了一半多了
+Taiwan Semiconductor Manufacturing Company (TSMC) accounted for more than half world’s production
 
-*周二打了第二针。**星期三很艰难。今天我恢复了正常。*
+这不矛盾吗？飞飞呀
+Isn’t this contradictory? Feifei
 
-*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
+台积电占了全世界60%到70%的产量
+TSMC accounts for 60% to 70% of the world’s production
 
-*接种第二剂辉瑞后，除了胳膊有点疼，约翰和我都没有任何问题。*
+你觉得共产党能决定那个60%-70%的每一（芯）片吗
+Do you think the Communist Party can determine the 60%-70% of each (chip) piece?
 
-*2021**年**4**月**9**日*
+一个他都决定不了
+It can’t decide on any of them
 
-本月早些时候，海斯勒发推特说她打了第三针。
+他在私下里面放水又有多少
+How much does it add water in private？
 
-“刚刚接种了我的第三剂中共病毒疫苗”，她在 9 月 7 日发推说。
+对吧，政清，这很简单吧
+Right, Zhengqing, it’s so simple
 
+那你共产党的2/3都哪去了，你2/3包不包含这个台积电呢？
+So where did your 2/3 of the Communist Party go? Your 2/3 package does include this TSMC or not?
 
+这不瞪眼说瞎话吗，说美国人很夸张有时候, 你别听他们胡说八道
+That’s lie in front of your face, sometimes American are so exaggerated, don’t listen to their nonsense
 
-> Just received my third Covid vaccine.
-> — Karen Croake Heisler (@KCroakeHeisler) [September 7, 2021](https://twitter.com/KCroakeHeisler/status/1435335040397979651?ref_src=twsrc%5Etfw)
+还有一个就是很简单的事情，这个技术，这技术是共产党的吗
+There is another simple thing, technology, is this technology owned by the Communist Party?
 
+零，零，你技术上没有主导权，那美国人不给你动杀气
+Zero, nought, the CCP doesn’t have technical leadership, then the Americans don’t give CCP a killing blow
 
+还是你美国人跟中国共产党勾兑嘛
+Or you American have secret deal underneath the table with the CCP
 
-*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
+那你不动杀气，那很简单嘛
+The Americans don’t give CCP a killing blow, it’s very simple
 
-*刚刚接种了我的第三剂中共病毒疫苗*
+如果你要从技术上，你都是零
+If you want to talk technically, CCP are nothing
 
-*2021**年**9**月**7**日*
+我说了让你收，你就收，你有什么屁用啊
+I told you to put it away, you have to put it away, you have no value of it?
 
-一周后，海斯勒开始出现并发症，并开始诅咒未接种疫苗的人。
-
-
-
-> So still waiting to see a doc although they have run tests. Still no room in hospital or in ER bay. PA announcement just said ER could not accept more patients. This is a BIG hospital. Damn the unvaccinated. They have made life hell for a lot of people.
-> — Karen Croake Heisler (@KCroakeHeisler) [September 14, 2021](https://twitter.com/KCroakeHeisler/status/1437880281873199107?ref_src=twsrc%5Etfw)
-
-
-
-*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
-
-*还在等医生看报告，尽管他们已经进行了测试。医院或急诊室仍然没有房间。广播公告只是说急诊室无法接受更多患者。这是一家大医院。该死的未接种疫苗的人。他们让很多人的生活变成了地狱。*
-
-*2021**年**9**月**14**日*
-
-海斯勒说，她的心脏病专家试图让她住院，但由于中共病毒，没有房间。
-
-
-
-> Welcome to the reality of the Covid crisis in Florida. My cardiologist tried to admit me to the hospital but there are no rooms because of Covid. Had to go ER route. Place is a teaming and the waiting room stretches into hallways. Wait for some is 15 hours. Get the damn vaccine.
-> — Karen Croake Heisler (@KCroakeHeisler) [September 14, 2021](https://twitter.com/KCroakeHeisler/status/1437830488878731264?ref_src=twsrc%5Etfw)
-
-
-
-*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
-
-欢迎来到佛罗里达州中共病毒危机现实。我的心脏病专家试图让我住院，却因中共病毒没有房间。不得不走急诊了。这地方到处是人候诊室一直延伸到了走廊。等了大概 15 个小时。该死的你们去打疫苗吧。
-
-在第三次接种中共病毒疫苗大约两周后，凯伦·克罗克·海斯勒去世了。
-
-根据海斯勒的讣告，她于 9 月 19 日死于“癌症相关并发症”。
-
-
-
-> Just heard the horrible news that [@KCroakeHeisler](https://twitter.com/KCroakeHeisler?ref_src=twsrc%5Etfw) passed away. Karen inspired a generation of ND students, including myself. Her Sports & TV class was the highlight of everyone’s week, even when she was berating us for incorrect grammar usage. She will be dearly missed.
-> — Jessica Smetana (@jessica\_smetana) [September 20, 2021](https://twitter.com/jessica_smetana/status/1439747534579290112?ref_src=twsrc%5Etfw)
-
-
-
-*杰西卡**·**斯美塔那**@jessica\_smetana*
-
-*刚刚听到**@KCroakeHeisler**去世的可怕消息。凯伦激励了一代圣母学生，包括我自己。她的“体育与电视”课是每个人课上课下一周的亮点，哪怕她因为语法使用不正确而责备我们。我们会非常想念她的。*
-
-*2021**年**9**月**19**日*
-
-海斯勒的几个学生对她去世的消息做出了反应。
-
-
-
-> Nooooooooooo, one of my absolute favorite profs I had. Horrible news
-> — NDEddieMac (@NDEddieMac) [September 20, 2021](https://twitter.com/NDEddieMac/status/1439748318591131656?ref_src=twsrc%5Etfw)
-
-
-
-*ND**埃迪麦克**@NDEddieMac*
-
-*不不不，我绝对最喜欢的教授之一。可怕的消息*
-
-*2021**年**9**月**19**日*
-
-
-
-> This is the worst news I’ve gotten in a long time. Karen might’ve been the best professor I had at Notre Dame. She was instrumental in helping me start my career & remained a good friend & mentor for decades. My heart breaks for [@HeislerUCF](https://twitter.com/HeislerUCF?ref_src=twsrc%5Etfw) & their sons. RIP Karen. [https://t.co/yIYlrbgk06](https://t.co/yIYlrbgk06)
-> — Pete Byrne WSBT (@PeteByrneSports) [September 20, 2021](https://twitter.com/PeteByrneSports/status/1439755294922485761?ref_src=twsrc%5Etfw)
-
-
-
-*皮特**·**伯恩**WSBT @PeteByrneSports*
-
-*这是我很长时间以来得到的最糟糕的消息。凯伦可能是我在圣母大学遇到的最好的教授。她在帮助我开始我的职业生涯方面发挥了重要作用，几十年来一直是我的良师益友。我为**@HeislerUCF**和他们的儿子们心碎。愿凯伦安息。*
-
-*2021**年**9**月**19**日*
-
-海斯勒留下了丈夫、两个儿子和一个姐妹。
-
-原文链接：
-
-
-
-> [Former Notre Dame Professor Who Said, “Damn the Unvaccinated” Dies Two Weeks After Receiving 3rd Covid Shot](https://www.thegatewaypundit.com/2021/09/former-notre-dame-professor-said-damn-unvaccinated-dies-two-weeks-receiving-3rd-covid-shot/)
-
-
-
-翻译：JS709 ｜校对：Nick ｜编辑&发布：V
+以为共产党强大的2/3（调配权）就可以控制了（全世界）
+The Communists think they can control the world with their powerful 2/3 allocation power, it’s a lie
+
+那个女的，瞪着大眼珠子（撒谎）在福克斯
+That woman was lying in front of your face on Fox News
+
+所以说，福克斯也好，CNN也好，这帮家伙坏着呢
+So Fox News or CNN, these are all not good
+
+我跟你说，你不要听他们胡说八道
+I tell you, don’t listen to their nonsense
+
+原视频链接: https://twitter.com/se1y7cblljselva/status/1442384694402641926?s=24
+视频时间段 : 0:00-2:11
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

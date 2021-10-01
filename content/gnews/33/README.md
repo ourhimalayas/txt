@@ -2,21 +2,20 @@
 ---
 
 
-## 秘翻在线：又一位参议员关注微软和领英遵从中共国要求审查美国人资料
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566354/)
+## 中共病毒疫情期间美国军人自杀率升高
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566403/)
 
-#### 撰稿：彩虹
+#### 编译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-104.jpg)
+九月份是美国防止自杀月。9月30日，据合众国际社（UPI）报道，五角大楼于当天发布了一份报告，报告指在中共病毒疫情大流行的2020年，美国军队自杀人数比2019年增长了15%。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1.jpg)图片来源：Axios
-10月1日，《新闻极限》（Newsmax）引述美国新闻网站Axios报道，周四，佛罗里达州共和党参议员里克·斯科特（Rick Scott）致函领英（LinkedIn）及其母公司微软（MicroSoft），询问领英为何遵从中共政府的要求，对美国记者的资料进行审查。
+据今日美国（USA Today）周三晚间通过国会和国防部的消息来源证实，2020年，有580名军人死于自杀，而《年度自杀报告》显示，2019年有504名军人死于自杀。
 
-本周，领英通知几位记者，他们已经采取了行动，这些记者的领英资料页面在中共国将无法浏览。接到领英邮件通知的记者包括Axios的贝书颖(*Bethany Allen**-Ebrahimian*)、VICE新闻的陈嘉韵（ *Melissa Chan*）和自由记者葛瑞格．布鲁诺（*Greg**C. Bruno*）。据Axios报道，这三名记者都曾报道过中共国侵犯人权的行为。
+另外，五角大楼的报告还发现，自杀率从2015年的十万分之20.3上升到了2020年的十万分之28.7。
 
-在给微软首席执行官萨提亚·纳德拉（Satya Nadella）和领英首席执行官瑞安·罗斯兰斯基（Ryan Roslansky）的信中，斯科特说：“我对一家美国公司代表中国共产党积极审查美国记者深感担忧。媒体成员报道的信息对帮助包括国会议员在内的美国人，了解中国共产党的侵权行为的范围至关重要，特别是它对新疆维吾尔人的侵权和监控。”对记者的审查“让人们对微软的意图和承诺产生了怀疑，因为微软承诺反对中共国可怕的人权侵犯和对民主的反复攻击，”
+尽管如此，国防部在一份声明中说，没有看到统计上的这些变化表明与中共病毒有关。
 
-报道说，领英是仅有的几家同意中共国政府要求审查此类内容的美国公司之一，在中共国要求下，领英还审查了来自学术界、研究人员和政府雇员的领英页面资料。
+对于该报告，国防部长劳埃德·奥斯汀（Lloyd Austin）只是说：“我们的服役人员和军人家属的自杀率仍然太高，发展趋势没有保持正确方向发展。”
 
-此外，共和党参议员吉姆·班克斯（Jim Banks）上周也向领英发送了一封类似内容的信。详见报道《[秘翻在线：领英(LinkedIn)，要么为中共服务，要么支持美国](https://gnews.org/zh-hans/1553916/)》
-
-新闻来源：[Sen. Scott Questions LinkedIn on Censoring Journalists for China](https://www.newsmax.com/politics/linkedin-rick-scott-journalist-censoring/2021/09/30/id/1038640/)
+**新闻来源：**[Military suicides increase amid COVID-19 pandemic, Pentagon says](https://www.upi.com/Top_News/US/2021/09/30/military-suicides-up-2020-covid-19-pandemic/5501633024981/)

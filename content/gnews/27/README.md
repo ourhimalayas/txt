@@ -2,22 +2,27 @@
 ---
 
 
-## 盖特再推重磅抽奖活动 注册用户可得哈雷摩托！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566404/)
+## 速报：一个时代的结束！日本大相扑第69代横纲白鹏宣布退役
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1566488/)
 
-#### 编译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-41.png)图片来源：Gettr
-国家脉动9月29日报道，盖特（GETTR）作为一个言论自由、反对“取消文化”的新社交平台，今天宣布它将举行赠送2021年哈雷·戴维森道路滑行摩托车的新的抽奖活动。
+#### 撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-3.jpg)
+10月1日下午3时，日本大相扑选手第69代横纲白鹏在东京宣布退役。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-1.jpg)
+白鹏，本名白鹏翔，现年36岁，1985年3月11日出生于蒙古乌兰巴托。在其长达14年2个月的横纲在位时期，打破并创下了无数记录，尤其是以下三个记录均是历史第一，可以说前无古人后无来者。
 
-这个活动是继上个月成功举行赠送F-150福特皮卡的活动之后的又一竞赛活动。
+\* 墓内夺冠回数（45）
 
-这一活动的举办时间为9月29日至10月17日，由外部律师事务所随机抽取获奖者，参与者必须注册盖特账号，以赢得大奖。
+\* 横纲在位场所数（84）
 
-有两种经典的方法表达你自己：1.在盖特上说出你的想法；2.开着真的哈雷·戴维森畅游。盖特总裁杰森·米勒说：“你们可以在盖特上与社交媒体寡头战斗，并开着哈利-戴维森摩托车抗议。”
+\* 幕內力士获胜次数（1093）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-1.jpg)
+2019年9月3日取得日本国籍、退役后改名为間垣，作为教练指导年轻的相扑运动员。
 
-于今年7月4日正式上线的盖特不会取消人们的政治观点，在三天之内就达到一百万注册用户，目前用户数量已经近三百万，这在社交媒体历史上是增长最快的，推特花了两年月才达到一百万，而脸书则用了十个月。
+大相扑被称为日本的国技，外国出生的相扑运动员在竞技之外受到了更多的要求和条件。白鹏的妻子是日本人，共同育有四个子女。白鹏也曾在节目中说过正是因为有了妻子的帮助，自己才可以专心于竞技，取得目前的成绩。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-1.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-盖特在苹果应用软件商店和谷歌游戏软件商店平台以及网上均可下载。想参与抽奖的盖特注册用户请访问：[www.getrevvinsweeps.com](http://www.getrevvinsweeps.com/)
-
-新闻来源： [GETTR](http://www.gettr.com/) – [the new social media platform which defends free speech and fights cancel culture](https://thenationalpulse.com/sponsored/get-revvin-free-speech-network-gettr-announces-2021-harley-davidson-giveaway/)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

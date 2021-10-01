@@ -2,29 +2,147 @@
 ---
 
 
-## 墙内要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1566303/)
+## 诅咒未接种疫苗者的前圣母大学教授在接种第三针后死亡
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1566352/)
 
-素材：东京樱花团GNEWS组
-![](https://lh6.googleusercontent.com/gAq9s5oxBCMt1RLVzDepQXKGj1lLb-ojDxI_XAkl9f9mrNdRmXj_VEtc2ndY-M8wBvsbhxIHppYPW8yswybQW_nmXe67KiOIvQNP2E0S28VonZ1Q89eO019RW_q7CRgvxW1lNi__=s0)[图片来源](https://www.aboluowang.com/2021/1001/1653779.html)
-**10月1日汇编**
+据《门户专家网》克里斯蒂娜·莱拉2021 年 9 月 29 日下午报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3rd_adobespark.png)
+佛罗里达州奥兰多市，一位前圣母大学教授在接种第三针中共病毒疫苗后死亡，她生前经常攻击未接种疫苗的人，称他们“自私”。
 
-1、[恒大债务危机新信号 人行召24家银行要求稳楼市](https://www.aboluowang.com/2021/1001/1653779.html) 
-据外媒报道，周三(29日)由中国人民银行行长易纲主持的会议，要求金融机构与政府合作，“共同维持房地产市场的稳定与健康发展，确保购屋消费者的合法权利与利益”。包括银行暨证券监督机关、住建部官员及24家银行主管出席该会议。人行呼吁，围绕“稳地价、稳房价、稳预期”目标，准确把握及执行好房地产金融审慎管理制度。知情人士指，官员要求银行不可全面切断对地产商的融资，要对营建中的计划提供支持，并批准购买楼花人士的抵押贷款。分析师指上述会议凸显中国政府目前采取的措施，以应对恒大引发的潜在扩散风险；进而引导部分资金流入中国的地产商。花旗银行料至今年底，中国银行系统约41%资产直接或间接与房地产有关，楼价下跌恐引发银行资产连锁效应，而提供予地产商及买楼人士的未偿付贷款估计达50万亿元人民币。
+67 岁的凯伦·克罗克·海斯勒（ Karen Croake Heisler ）于 2021 年 1 月 13 日接受了第一针辉瑞疫苗注射。
 
-2、[三支失业大军同时出现 中国逾千万人失去生计](https://www.aboluowang.com/2021/1001/1653768.html) 
-今年初以来，中国房企“爆雷”、教培机构被团灭、跨境电商规模被压缩。上述三支失业大军领域生态环境的改变，导致至少一千万人被裁，使他们即时失去生计。第一支失业大军是房地产企业大幅度裁员。除了恒大集团负债三千亿美元“爆雷”，新力控股集团近日也传出“爆雷”。9月15日，新力公司总部员工已陆续收到降薪50%的口头通知，其后传出裁员50%。第二是教培行业。在“双减”政策下，中国各地上千家教培机构被“团灭”，上千万教职人员失业。据报，教培机构新东方截至9月中旬，裁员近一万人，预计年底前将裁减4万人。第三支失业大军是跨境电商行业。规模被压缩失业人员暴增。知名跨境电商“有棵树”，1.3亿元人民币的资金被冻结，一夜之间，这个品牌的营收从4500万下滑到100万，1400名员工离职。
+她在推中说：“刚刚接种了第一剂疫苗。从来没有感觉“变老”更快乐。现在让我们为每个人接种这些疫苗！”
 
-3、[乌镇大会中共“国际盟友”未见西方发达国家代表](https://www.aboluowang.com/2021/1001/1653863.html)
-2021年世界互联网大会乌镇峰会。官媒吹嘘:“互联网之光”博览会聚焦全球数字技术前沿动态，吸引300余家中外知名企业参展。但细看与会代表，除了部分私人机构，参与会议国家的部级官员代表，没有一个来自西方发达国家。随后，参加大会的“重要嘉宾”名单在社交媒体上曝光。网友们发现，除俄罗斯联邦通信、信息技术大众传媒监督局局长外，几乎所有的嘉宾都来自诸如巴基斯坦、东帝汶、伊拉克、阿富汗、肯尼亚等这类互联网技术十分落后而且贫穷的国家，看不到任何一位来自西方发达国家的代表。
 
-4、[面对中共“国庆” 香港强力威协打压异议声音](https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html) 
-彭博社报道,在中共政权的10月1日“国庆日”到来前夕，名义上依然实行所谓的“一国两制”的香港特别行政区采取措施强化打压异议。香港当局决定9月30日和10月1日向街头加派8000名警察。同时，纪念中共1989年调遣野战军镇压1989年天安门反腐败要民主的示威者的网上博物馆在香港被屏蔽。显示了香港在网络信息控制方面进一步向中国大陆和“一国一制”靠拢。此外，9月29日，香港当局再对港人网络上表达自由的权利实施限制。香港立法会通过法案，规定禁止所谓的“侮辱国旗或国徽的行为，包括焚烧、毁损、涂划、玷污等，相关网上行为同样受规范，例如在网上发布被玷辱国旗的图像也属犯法”，违法者将受到长达3年的监禁处罚。
 
-5、[中国儿童发展大纲移除”尊重少数民族”条款](https://www.aboluowang.com/2021/1001/1653981.html) 
-本周二（28日），中国政府发布《中国儿童发展纲要(2021-2030年)》的第三部分，“儿童与教育”第4条写道：提高民族地区教育质量和水平，加大国家通用语言文字推广力度，深化民族团结进步教育。对比2011年公布的《中国儿童发展规划纲要2011-2020》，将原有的“尊重和保障少数民族使用本民族语言接受教育的权利”一句移除，取而代之的是“加大国家通用语言文字推广力度”。总部在德国的世界维吾尔代表大会发言人迪里夏提认为，中共政府公布的新《儿童发展纲要》是为了加强从儿童时期灌输汉式文化、语言、文字，消灭民族文化。
+> Just got my first dose of the vaccine. Never been happier to be “old.” Now let’s get these vaccines rolling for everyone!
+> — Karen Croake Heisler (@KCroakeHeisler) [January 13, 2021](https://twitter.com/KCroakeHeisler/status/1349444225507749888?ref_src=twsrc%5Etfw)
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 /平安卿卿
-发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+
+凯伦·克罗克·海斯勒 @KCroakeHeisler
+
+*刚刚接种了第一剂疫苗。**从未如此高兴地成为**“**老人**“**。**现在让我们为每个人接种这些疫苗！*
+
+*2021**年**1**月**13**日*
+
+4 月 9 日，海斯勒发推说，在接受第二针辉瑞疫苗注射后，她没有任何副作用。
+
+
+
+> Neither John nor I had problems with second Pfizer shot except a sore arm.
+> — Karen Croake Heisler (@KCroakeHeisler) [April 9, 2021](https://twitter.com/KCroakeHeisler/status/1380486169356554245?ref_src=twsrc%5Etfw)
+
+
+
+*帕特**·**福特（**Pat Forde**）发推：*
+
+*周二打了第二针。**星期三很艰难。今天我恢复了正常。*
+
+*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
+
+*接种第二剂辉瑞后，除了胳膊有点疼，约翰和我都没有任何问题。*
+
+*2021**年**4**月**9**日*
+
+本月早些时候，海斯勒发推特说她打了第三针。
+
+“刚刚接种了我的第三剂中共病毒疫苗”，她在 9 月 7 日发推说。
+
+
+
+> Just received my third Covid vaccine.
+> — Karen Croake Heisler (@KCroakeHeisler) [September 7, 2021](https://twitter.com/KCroakeHeisler/status/1435335040397979651?ref_src=twsrc%5Etfw)
+
+
+
+*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
+
+*刚刚接种了我的第三剂中共病毒疫苗*
+
+*2021**年**9**月**7**日*
+
+一周后，海斯勒开始出现并发症，并开始诅咒未接种疫苗的人。
+
+
+
+> So still waiting to see a doc although they have run tests. Still no room in hospital or in ER bay. PA announcement just said ER could not accept more patients. This is a BIG hospital. Damn the unvaccinated. They have made life hell for a lot of people.
+> — Karen Croake Heisler (@KCroakeHeisler) [September 14, 2021](https://twitter.com/KCroakeHeisler/status/1437880281873199107?ref_src=twsrc%5Etfw)
+
+
+
+*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
+
+*还在等医生看报告，尽管他们已经进行了测试。医院或急诊室仍然没有房间。广播公告只是说急诊室无法接受更多患者。这是一家大医院。该死的未接种疫苗的人。他们让很多人的生活变成了地狱。*
+
+*2021**年**9**月**14**日*
+
+海斯勒说，她的心脏病专家试图让她住院，但由于中共病毒，没有房间。
+
+
+
+> Welcome to the reality of the Covid crisis in Florida. My cardiologist tried to admit me to the hospital but there are no rooms because of Covid. Had to go ER route. Place is a teaming and the waiting room stretches into hallways. Wait for some is 15 hours. Get the damn vaccine.
+> — Karen Croake Heisler (@KCroakeHeisler) [September 14, 2021](https://twitter.com/KCroakeHeisler/status/1437830488878731264?ref_src=twsrc%5Etfw)
+
+
+
+*凯伦**·**克罗克**·**海斯勒**@KCroakeHeisler*
+
+欢迎来到佛罗里达州中共病毒危机现实。我的心脏病专家试图让我住院，却因中共病毒没有房间。不得不走急诊了。这地方到处是人候诊室一直延伸到了走廊。等了大概 15 个小时。该死的你们去打疫苗吧。
+
+在第三次接种中共病毒疫苗大约两周后，凯伦·克罗克·海斯勒去世了。
+
+根据海斯勒的讣告，她于 9 月 19 日死于“癌症相关并发症”。
+
+
+
+> Just heard the horrible news that [@KCroakeHeisler](https://twitter.com/KCroakeHeisler?ref_src=twsrc%5Etfw) passed away. Karen inspired a generation of ND students, including myself. Her Sports & TV class was the highlight of everyone’s week, even when she was berating us for incorrect grammar usage. She will be dearly missed.
+> — Jessica Smetana (@jessica\_smetana) [September 20, 2021](https://twitter.com/jessica_smetana/status/1439747534579290112?ref_src=twsrc%5Etfw)
+
+
+
+*杰西卡**·**斯美塔那**@jessica\_smetana*
+
+*刚刚听到**@KCroakeHeisler**去世的可怕消息。凯伦激励了一代圣母学生，包括我自己。她的“体育与电视”课是每个人课上课下一周的亮点，哪怕她因为语法使用不正确而责备我们。我们会非常想念她的。*
+
+*2021**年**9**月**19**日*
+
+海斯勒的几个学生对她去世的消息做出了反应。
+
+
+
+> Nooooooooooo, one of my absolute favorite profs I had. Horrible news
+> — NDEddieMac (@NDEddieMac) [September 20, 2021](https://twitter.com/NDEddieMac/status/1439748318591131656?ref_src=twsrc%5Etfw)
+
+
+
+*ND**埃迪麦克**@NDEddieMac*
+
+*不不不，我绝对最喜欢的教授之一。可怕的消息*
+
+*2021**年**9**月**19**日*
+
+
+
+> This is the worst news I’ve gotten in a long time. Karen might’ve been the best professor I had at Notre Dame. She was instrumental in helping me start my career & remained a good friend & mentor for decades. My heart breaks for [@HeislerUCF](https://twitter.com/HeislerUCF?ref_src=twsrc%5Etfw) & their sons. RIP Karen. [https://t.co/yIYlrbgk06](https://t.co/yIYlrbgk06)
+> — Pete Byrne WSBT (@PeteByrneSports) [September 20, 2021](https://twitter.com/PeteByrneSports/status/1439755294922485761?ref_src=twsrc%5Etfw)
+
+
+
+*皮特**·**伯恩**WSBT @PeteByrneSports*
+
+*这是我很长时间以来得到的最糟糕的消息。凯伦可能是我在圣母大学遇到的最好的教授。她在帮助我开始我的职业生涯方面发挥了重要作用，几十年来一直是我的良师益友。我为**@HeislerUCF**和他们的儿子们心碎。愿凯伦安息。*
+
+*2021**年**9**月**19**日*
+
+海斯勒留下了丈夫、两个儿子和一个姐妹。
+
+原文链接：
+
+
+
+> [Former Notre Dame Professor Who Said, “Damn the Unvaccinated” Dies Two Weeks After Receiving 3rd Covid Shot](https://www.thegatewaypundit.com/2021/09/former-notre-dame-professor-said-damn-unvaccinated-dies-two-weeks-receiving-3rd-covid-shot/)
+
+
+
+翻译：JS709 ｜校对：Nick ｜编辑&发布：V

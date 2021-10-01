@@ -2,45 +2,42 @@
 ---
 
 
-## 日本在全国范围内解除所有中共病毒疫情紧急状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566186/)
+## 佛州州长抨击澳大利亚正在走向共产主义中国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566191/)
 
-栏目记者/责任编辑：文真
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒.png)
+图片来源：Yahoo News
 
+美国第三大州的领导人——佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)猛烈抨击澳大利亚的新冠病毒限制措施，指责澳洲已“脱轨”，正在走向专制的共产主义中国。
 
+德桑蒂斯先生一直强烈反对美国的封锁、强制执行和疫苗护照，他在坦帕举行的国际造船展览会上发表讲话时提到了澳大利亚的新冠病毒政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+“看看吧，澳大利亚现在发生了什么。在（疫情爆发）一年半之后，他们正在执行军方的封锁措施，”德桑蒂斯说。
 
+“那不是一个自由的国家，它根本不是一个自由的国家。”
 
+“事实上，我想知道为什么当他们这样做时，我们（两国）仍然保持正常的外交关系。澳大利亚现在比共产主义中国更自由吗？我不知道，一个普通问题的事实告诉你，其中一些东西已经大大偏离了轨道。”
 
+德桑蒂斯先生被广泛视为2024年共和党总统候选人提名的主要竞争者，他声称佛罗里达州在反对美国各地的限制措施方面处于领先地位。
 
+例如，他所在的州率先禁止私营企业要求客户提供疫苗接种证明。
 
-9月28日，日本政府宣布疫情紧急状态在周四结束，以帮助恢复经济活力。 首相菅义伟表示，随着疫情感染放缓，病毒限制令逐步放宽。这是自今年4月，日本在六个多月时间里，首次完全摆脱疫情紧急状态的限制。 在实施疫情紧急状态期间，日本并没有抑制中共病毒的再度爆发。日本的疫情在7月开始恶化，在东京奥运会后的8月中旬达到顶峰。紧急状态限制令主要涉及，要求餐馆和酒吧减少营业时间和不供应酒精。公众早已对这些封锁措施感到厌倦和沮丧。 政府官员正在为放松限制做准备，制定其他计划，以确保感染不会迅速反弹。政府将建立更多的临时治疗设施，为未来的任何复发做准备。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2.jpg)
-参考链接：
-[Japan To Lift All Coronavirus Emergency Steps Nationwide](https://www.npr.org/2021/09/28/1041086891/japan-to-lift-all-coronavirus-emergency-steps-nationwide)
-[Japan to lift all coronavirus emergency steps](https://apnews.com/article/coronavirus-pandemic-sports-lifestyle-business-2020-tokyo-olympics-9ac68d89a4124116a0a8d6cfc5e48eb7)
-[郭文贵先生盖特： 9月29号：该发生的都会发生，最大收益方就是新中国联邦。](https://gettr.com/post/pcjqsv6a51)
+“如果我们不这样做（取消疫苗护照），很多其他州就不会效仿，”他说。
 
-（本文仅代表作者观点）
+“佛罗里达州是一个自由州，我们将赋予人民权力，”州长在8月份给他的支持者的一封筹款电子邮件中说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+“我们不会允许乔·拜登和他的官僚随从闯入并侵占佛罗里达人的权利和自由。”
 
-终审： Ryan
-校对/发稿：为真不破20
+与此同时，白宫新闻秘书珍·普萨基（Jen Psaki）抨击德桑蒂斯先生采取了“违反公共卫生建议的措施”，例如禁止学校要求学生戴口罩。
 
-**更多资讯，更多关注**
+新闻链接：[‘Off the rails’: Florida Governor Ron DeSantis blasts Australia’s Covid restrictions | news.com.au — Australia’s leading news site](https://www.news.com.au/world/coronavirus/australia/off-the-rails-florida-governor-ron-desantis-blasts-australias-covid-restrictions/news-story/9aea5a9f5df3c82cbf4bdcbdd62a8cd5)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑/发布：文泓
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

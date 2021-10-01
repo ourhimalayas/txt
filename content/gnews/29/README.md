@@ -2,126 +2,19 @@
 ---
 
 
-## 共产党吹牛控制三分之二的芯片产能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566387/)
+## 秘翻在线：石油行业担心疫苗强制令会进一步损害该行业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566448/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot.jpg)https://gtv.org/video/id=61566f7cd2e2b817486fd8a4
-郭文贵
-Miles Guo
+#### 翻译/撰稿：zzballack
 
-这个芯片啊，全球的芯片产值一共加一起1万亿美元
-For this chip, the global chip output value adds up to 1 trillion US dollars
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片12.jpg)
+据《每日来电》（Daily Caller）9月30日报道，美国石油行业的高管们表示，拜登政府的疫苗强制令将使该行业的发展受阻，招工也更加困难。
 
-到今年大概，吹了狼蛋了，涨价弄价
-Till this year estimate plus price increase and play the price game
+油田服务公司Nine Energy Service的首席执行官安·福克斯（Ann Fox）说：“由于中共病毒疫情，我们公司的员工流失率已经很高了。疫苗强制令公布后，形势进一步严峻。818名员工中大约只有15%接种了中共病毒疫苗。”总统拜登9月9日宣布，他将命令安全与卫生署 (Occupational Safety and Health Administration）颁布一项规定，要求企业为其全体员工强制接种疫苗，另外也可以选择每周接受一次核酸测试代替疫苗接种。福克斯说：“石油行业正为如何执行这项命令发愁，因为很多员工拒绝接种疫苗。有些人甚至警告说，他们会在被强迫接种之前辞职。如果公司不确保员工遵守这一规定，就会面临联邦政府的巨额罚款。”
 
-也就才1.3万亿美元，1万多亿美元的产值
-The output is only 1.3 trillion US dollars, more than 1 trillion U.S. dollars in output value
+在GM油田和卡车服务（Oilfield & Trucking Services）公司担任运营经理的阿贝尔·奥尔特加（Abel Ortega）说：“为德克萨斯州和新墨西哥州的石油开采公司运输水、沙子和物资的卡车司机将因为疫苗强制令而辞职。业内人士说，公司将被迫提高工资以吸引工人，这将导致消费者的成本增加。”拉蒂戈石油（Latigo Petroleum）公司的总裁柯克·爱德华兹（Kirk Edwards）说：“油井的钻探成本将因此上涨。”《华尔街日报》报道称，员工薪资已经是油田服务公司的最大支出之一，而且最近几个月一直在上涨。一位石油行业高管表示，工资上涨了 20%。但是我们发现，很难通过涨价来抵消我们增加的成本。
 
-在全世界一年100万亿的全球GDP, 它占了1%
-Of the world’s $100 trillion global GDP a year, it accounts for 1%
+德州伯德油田服务公司（Byrd Oilfield Services）的运营经理克林特·康科德（Clint Concord）：“如果我们不愿意，不向自己身体注入某种东西是我们的宪法权利，况且中共病毒疫苗还未被证实是百分百安全和稳定的。”另一位石油行业人士说：“我的大多数同事都没有接种疫苗。当有人强迫我必须做某事时，我只想反着干。”
 
-就芯片这件事上，我跟美国人最近，特别是我跟他们讨论特别多
-on the matter of the chip, the Americans and I have discussion recently
-
-我说你们美国人不要瞪眼说瞎话，也不行的
-I said you Americans don’t lie in front of people’s face, it will not work
-
-共产党说瞎话不行，你们说瞎话也不行
-The Communist Party can’t lie, and you can’t lie either
-
-共产党并购了两家公司，那么占了所谓的全球2/3
-The Communist Party acquired two companies which accounted for 2/3 productions of the so-called globally
-
-但是共产党有没有这2/3的支配权呢
-But does the Communist Party have dominion over this 2/3 of the world’s production?
-
-有没有2/3的支配权呢
-Do they have dominion over this 2/3
-
-大家都知道没有，话说回来了
-We all know it has no dominance, then again
-
-如果你现在要出租，像那个AMD
-If you want to rent now, like AMD
-
-你现在说，我出10%，3%的溢价
-Now you say, I offer 10%, 3% premium
-
-你马上就可以拿到芯片，但是美国人习惯了使用中国奴才
-You can get the chip right away, but Americans are used to using Chinese minions
-
-奴隶用的这个廉价产品
-and the cheap product made by slave labors
-
-所以说，一个共产党拥有这家公司产品的调配权，是吧
-So, does Communist Party has the right to distribute the company’s products？ right?
-
-2/3 （占全球），台积电就占了一半多了
-Taiwan Semiconductor Manufacturing Company (TSMC) accounted for more than half world’s production
-
-这不矛盾吗？飞飞呀
-Isn’t this contradictory? Feifei
-
-台积电占了全世界60%到70%的产量
-TSMC accounts for 60% to 70% of the world’s production
-
-你觉得共产党能决定那个60%-70%的每一（芯）片吗
-Do you think the Communist Party can determine the 60%-70% of each (chip) piece?
-
-一个他都决定不了
-It can’t decide on any of them
-
-他在私下里面放水又有多少
-How much does it add water in private？
-
-对吧，政清，这很简单吧
-Right, Zhengqing, it’s so simple
-
-那你共产党的2/3都哪去了，你2/3包不包含这个台积电呢？
-So where did your 2/3 of the Communist Party go? Your 2/3 package does include this TSMC or not?
-
-这不瞪眼说瞎话吗，说美国人很夸张有时候, 你别听他们胡说八道
-That’s lie in front of your face, sometimes American are so exaggerated, don’t listen to their nonsense
-
-还有一个就是很简单的事情，这个技术，这技术是共产党的吗
-There is another simple thing, technology, is this technology owned by the Communist Party?
-
-零，零，你技术上没有主导权，那美国人不给你动杀气
-Zero, nought, the CCP doesn’t have technical leadership, then the Americans don’t give CCP a killing blow
-
-还是你美国人跟中国共产党勾兑嘛
-Or you American have secret deal underneath the table with the CCP
-
-那你不动杀气，那很简单嘛
-The Americans don’t give CCP a killing blow, it’s very simple
-
-如果你要从技术上，你都是零
-If you want to talk technically, CCP are nothing
-
-我说了让你收，你就收，你有什么屁用啊
-I told you to put it away, you have to put it away, you have no value of it?
-
-以为共产党强大的2/3（调配权）就可以控制了（全世界）
-The Communists think they can control the world with their powerful 2/3 allocation power, it’s a lie
-
-那个女的，瞪着大眼珠子（撒谎）在福克斯
-That woman was lying in front of your face on Fox News
-
-所以说，福克斯也好，CNN也好，这帮家伙坏着呢
-So Fox News or CNN, these are all not good
-
-我跟你说，你不要听他们胡说八道
-I tell you, don’t listen to their nonsense
-
-原视频链接: https://twitter.com/se1y7cblljselva/status/1442384694402641926?s=24
-视频时间段 : 0:00-2:11
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[‘An Obstacle’: Oil Companies Fear Biden Vaccine Mandate Will Further Disrupt Business](https://dailycaller.com/2021/09/30/joe-biden-vaccine-mandate-oil-fracking-worker-shortage/)
