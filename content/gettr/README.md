@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 3:36 AM (UTC)`
+
+9/30/2021 Miles Guo’s GETTR: Please post on all social media outlets everyday as much as possible the videos of people talking about the cons of the COVID jabs plus the evidence and information! I am grateful to the fellow fighters around the world for distributing tons of materials about the COVID vaccines to various media outlets and expert institutions! No COVID vaccine mandate! Nothing is more important than taking down the CCP with the truth about the COVID vaccines!<br/><br/>9/30/2021 文贵盖特: 请大家尽可能每天在所有社交媒体上发布关于人们以身说冠状病毒疫苗坏处的视频、证据和信息！感谢全球的战友们向各媒体和专家机构发送大量关于疫苗的材料！绝不能强制打疫苗！没有比“以疫苗灭共”更重要的事了！<br/>
+![img](https://media.gettr.com/group34/getter/2021/10/01/03/36/e124d0a8-8633-dd5c-e1d7-0103f4bb996c/out.jpg)
+
+---
+
 `@miles 9/30/2021 5:10 PM (UTC)`
 
 9月30号，无论是政治．还是科学和宗教都不能迷信，迷信任何东西的代价是巨大的。爆料革命就是要让人类打破一切迷信和崇拜，让人们有基本的善恶．真假，辨别之能力，这就是未来我们建设新人类的根本的基础。【这位女士特别提到了她丈夫因为相信科学打了疫苗 ，死在了自己家的床上😭】
@@ -293,13 +300,6 @@ Dr. Pierre Kory during the senate hearing: immerse amount of data have shown tha
 
 An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一位愤怒的恒大女投资人在会议上对许家印破口大骂
 ![img](https://media.gettr.com/group46/getter/2021/09/28/05/30/5978537a-4d44-1992-f95e-dcc715cf99bd/out.jpg)
-
----
-
-`@miles 9/28/2021 12:29 AM (UTC)`
-
-9/27/2021 Miles Guo’s GETTR: We need to take a serious look at how we will live our lives as well as the political and social changes throughout the world in the next few years. We need to carefully consider how to cope with the changes in people's behaviors and their ways of life<br/><br/>9/27/2021 文贵盖特: 请兄弟姐妹们认真地思考未来两三年的生活方式和整个世界政治、社会的大变革，仔细想一想我们要如何去应对人们的行为和生活方式的改变<br/><br/>
-![img](https://media.gettr.com/group25/getter/2021/09/28/00/29/63a66e28-6a53-3ac5-2103-c22493d1491a/out.jpg)
 
 ---
 

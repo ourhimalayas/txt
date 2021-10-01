@@ -2,29 +2,47 @@
 ---
 
 
-## 一个月来塔利班铁血统治阿富汗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1565628/)
+## 台陆委会修订条例 严控关键技术人员赴陆
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1565724/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+作者：纽约香草山农场 – 在远方
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/09/A-5.jpg)news.abs-cbn.com
-日经新闻10月1日报道，自美国完成从阿富汗撤军以来的一个月，塔利班政权采取铁血手腕限制自由，高压统治阿富汗。塔利班表示他们将暂停上届政府制定的宪法，恢复1973年生效的宪章，重申君主立宪制赋予国王至高无上的权力。
 
-塔利班司法部长阿卜杜勒·哈基姆·沙雷（Abdul Hakeem Sharaee）周二在一份官方声明中说：“伊斯兰酋长国将在过渡时期执行前国王穆罕默德·扎赫尔·沙阿（Mohammad Zaher Shah）时代的宪法，没有任何内容与伊斯兰教法和伊斯兰酋长国的原则相冲突。”
 
-旧宪法对妇女权利和宗教自由做出了明确规定，但沙雷的声明表明，这些内容很可能与伊斯兰酋长国的原则相冲突。人们担心妇女在就业和教育方面将面临进一步的限制。喀布尔大学校长穆罕默德·阿什拉夫·盖拉特说，”在满足适当条件之前，只要没有为所有人提供真正的伊斯兰环境，妇女将不允许在家庭外入学或工作。”在该国其他地区，妇女被禁止拥有手机或不由男性或家庭成员陪同的情况下在户外活动。离开家的妇女必须戴头巾。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
 
-塔利班的独裁主义已经在中部的达昆迪省显露出来，那里的土地和房屋已经被武力收回。
 
-“塔利班宣称这里是他们的土地，大约700个家庭被迫搬迁。”据消息人士透露，这场抢劫可能影响到多达3000个家庭。
 
-塔利班的铁腕统治正值国际社会是否承认塔利班为阿富汗合法政府之际。 在上星期召开的联合国大会的讲话中，各方意见分歧，但一致呼吁塔利班组成一个包容性的、有代表性的政府以获得国际承认。印度和巴基斯坦在内的八个国家组成的南亚区域合作联盟取消了原定于上个星期举行的会议。据印度媒体报道，巴基斯坦希望让塔利班代表阿富汗出席会议，但其他成员国对此持保留态度。
+为防止台湾产业技术被中共窃取危及国家安全和利益，同时维护台湾整体经济及产业优势，台陆委会于9月29日通过了《两岸条例》修正草案。该条例将严格管控台湾核心关键技术人员前往大陆。目前，该草案已报请行政院核准，其后将转往立法院审议。
 
-五角大楼新闻秘书约翰·柯比（John Kirby）9月30日表示，在美国占领阿富汗的20年中，阿富汗取得了一些进展，包括妇女权利、阿富汗青年与外界的联系以及新技术的采用等。柯比说，所有这些东西都应该保存下来。法新社9月28日报道指出，五角大楼公开承认，美国撤离阿富汗是 “战略失败”。美国中央司令部负责人麦肯锡将军称曾经建议拜登总统在阿富汗保留2500名士兵，以避免喀布尔政权垮台。但拜登8月曾表示，他从未收到过这一建议。
+![](https://gdb.voanews.com/D9AB4B97-E50C-476F-A7A5-18ED6A5F87E6_w1023_r1_s.jpg)图片来源：AP
 
-参考链接：
+在与美国的战略竞争中，中共常常被美国在高科技领域上“卡脖子”，因此，中共时常觊觎领先于中共的台湾高科技产业。近年来，台湾爆发过多起中共间谍案，其中，除了涉及军事机密的信息外，更多的是关于产业或科技机密。
 
-[https://asia.nikkei.com/Politics/International-relations/Afghanistan-turmoil/Taliban-tightens-iron-grip-1st-month-in-power](https://asia.nikkei.com/Politics/International-relations/Afghanistan-turmoil/Taliban-tightens-iron-grip-1st-month-in-power)
+而今，在中共不断对台湾进行武力恫吓与威胁并极力打压台湾国际生存空间的前提下，陆委会此次修订的两岸条例，或将强化涉及政府委托或补助的国家核心关键技术人员的赴陆规范。此举不仅可以保障国家核心关键技术的稳定发展，也是对共产党流氓政策的有力反击。
 
-[五角大楼承认阿富汗战略失败 (rfi.fr)](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210928-%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A5%BC%E6%89%BF%E8%AE%A4%E9%98%BF%E5%AF%8C%E6%B1%97%E6%88%98%E7%95%A5%E5%A4%B1%E8%B4%A5)
+（本文仅代表作者观点）
+
+参考阅读：
+
+[台湾陆委会修订两岸条例 严控关键技术人员前往大陆](https://www.voachinese.com/a/Taiwan-proposes-tightening-law-to-prevent-China-stealing-technology-20210929/6250465.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
