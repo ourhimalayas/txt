@@ -2,29 +2,29 @@
 ---
 
 
-## 2021年9月3日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566816/)
+## 中共经济代理人在非洲抢夺互联网资源
+` 象声` [轉載自GNews](https://gnews.org/zh-hans/1566819/)
 
-盖特连接：[https://gettr.com/post/pa18la6a75](https://gettr.com/post/pa18la6a75)
+译者简评：
 
-9月3号：尊敬的战友们好，你们健身了吗？传播CCP病毒和疫苗灾难的真相了吗？传播CCP病毒的解药的大好休（消）息了吗？
+*非洲作为中共蓝金黄的重灾区，成为中共掠夺资源和向外部扩张的最好的试验田。无论是资本运作，大型科技的推广，例如5G和华为监控设备，还是目前的实验性药物的人体实验，非洲首当其冲。南非当年是一个多么富裕的国家，被曼德拉的国际共产统治多年后， 如今民不聊生。非洲老百姓和中共国的老百姓一样， 被世界文明所隔离。从下述的文章中， 简略的叙述了非洲互联网的乱象，并可见从2013年开始，非洲的网络就被布局，控制了网络， 控制了流量，也就控制了一个国家的未来。*
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+乌干达坎帕拉（美联社）报道：外来者长期以来一直从非洲丰富的黄金、钻石甚至人口中获利。事实证明，在抢夺数字资源上并没有什么不同。
 
-（做完一组健腹轮），任何情况下不要说自己，你不锻炼找理由，锻炼！共产党，你完啦！
+分配给非洲的数百万个互联网地址已被盗用，其中一些是欺诈性的，包括通过与分配非洲大陆地址的非营利组织的一名前高级员工有关的内部阴谋。许多人没有为非洲的互联网发展服务，反而使垃圾邮件发送者和诈骗者受益，而另一些人则满足了中国某些人对色情和赌博的胃口。
 
-编辑整理及发布：黎明之前
+非营利组织 AFRINIC 的新领导正在努力收回丢失的地址。但一位财大气粗的中国商人，香港的套利专家陆恒，在有争议的情况下，从 2013 年到 2016 年获得了 620 万个非洲地址。这大约占非洲大陆总数的 5%，比肯尼亚多。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+当AFRINIC 撤销了现在价值约 1.5 亿美元的 陆 的地址，陆的律师在 7 月底说服了 AFRICNIC 所在的毛里求斯的一名法官冻结其银行账户。他的公司还向 AFRINIC 及其新首席执行官提出了 8000 万美元的诽谤诉讼。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+卢在此案中的法律收益令全球互联网治理界震惊和沮丧。网络活动人士担心，他们可能会帮助中共进一步攫取互联网资源。陆的一些主要客户包括中共国有电信公司中国电信和中国移动。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+美联社获得的电子邮件显示，陆在 2013 年最初的 IP 地址请求中向 AFRINIC 明确表示，他的客户将在中国。在这些电子邮件中，Lu 说他需要虚拟专用网络（称为 VPN）的地址来绕过中共政府的防火墙，该防火墙在那里阻止了 Facebook 和 YouTube 等流行网站。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+美联社发现了几个针对中国观众的色情和赌博网站，这些网站使用 陆 从 AFRINIC 获得的 IP 地址。虽然这些网站在中共国被禁止，但它们仍然可以通过 VPN 访问。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+原文链接：[https://apnews.com/article/technology-business-africa-china-uganda-5462f03bbd75bf9724a26623295fbf0e](https://apnews.com/article/technology-business-africa-china-uganda-5462f03bbd75bf9724a26623295fbf0e)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+备注：原文有删减，本文仅代表个人观点
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+翻译&编辑： 洛杉矶盘古农场-蓝精灵

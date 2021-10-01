@@ -2,70 +2,23 @@
 ---
 
 
-## 恒大票据如果不能贴现或付息，相当于10个雷曼兄弟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566486/)
+## 秘翻在线：美国疫苗接种率排第四的缅因州感染者数 &#8220;激增&#8221;
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566509/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-3.jpg)https://gtv.org/video/id=615670bad2e2b817486fd8e9
-大家(知道)只要是这个1000亿
-Todos saben si estos 100 mil millones
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像5.png)[图片来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200213-%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E-%E7%AC%AC%E5%9B%9B%E4%BB%A3%E7%97%85%E6%AF%92%E6%84%9F%E6%9F%93%E5%BC%BA%E9%9C%87%E5%87%BA%E7%8E%B0)
+10月1日，日本雅虎网站消息：
 
-它不能贴现的话
-No pueden ser descontados
+在美国那些中共病毒疫苗接种率较低的州，确实有以未接种疫苗者为主的感染和死亡发生。但是，在疫苗接种率较高的州也不断出现被感染者，这引起了人们的置疑。
 
-不能付息
-No pueden pagar intereses
+据《华尔街日报》（WSJ）报道，在美国50个州中，缅因州的疫苗接种率排名第四，可最近每天因中共病毒感染的住院和死亡人数却连创记录。
 
-或着它宣布说我还不了了
-O que él anuncie de no poder pagar esto
+《华尔街日报》指出，引起注意的是，已判明缅因州的许多患者没有接种疫苗，但是传染性很强的德尔塔菌株专找寻攻击疫苗接种率较高地区的未接种群体。目前，美国各州的平均疫苗接种率为56.2%，而缅因州的接种率远远高于平均水平，达到68.99%。
 
-它的杠杆的力量是达到几千(亿)
-El poder de su apalancamiento es de varios miles (miles de millones)
+尽管如此，最近中共病毒在缅因州的传播被归因于 “德尔塔菌株的高感染性 “和 “由于取消了戴口罩的要求而放松了公众意识”。在缅因州，需要呼吸机的病人数量已经从7月份的每家医院约4人上升到40多人，增加了10倍以上。每周的日平均新感染人数已经从7月份的约20人上升到现在的520人。
 
-最起码5000亿
-Al menos 500 mil millones
+[信息源](https://news.yahoo.co.jp/articles/5281123c50ab6f19d4c90a423d690f668842be0f)
 
-5000亿
-500 mil millones
+与最近笔者看到的很多报道一样，不知中共之邪恶的作者提出了关键性的问题，但终究还是不能说到问题的实质。但置疑的开始，就是觉醒的开始。觉醒需要真相的究明，新中国联邦的中共病毒真相的传播更显得尤为重要！
 
-美国直接600个点就下去了
-Estados Unidos caerá directamente a los 600 puntos
-
-大家你知道美债现在有多恐怖啊
-Todos saben lo horrible que es la deuda estadounidense ahora
-
-美债已经28万亿了
-La deuda de Estados Unidos ya es de 28 billones
-
-快到30万亿的上限了
-Casi está llegando al límite superior de 30 billones
-
-如果就是这个节骨点上
-Si en este punto crucial
-
-砸这么1000亿的烂帐
-Le lanza una deuda incobrable de 100 mil millones
-
-绝对比10个雷曼兄弟的(破坏力)大
-Es absolutamente mayor que el (poder destructivo) de 10 Lehman Brothers
-
-绝对是
-Seguramente lo es
-
-我这几天跟这帮子基金的人都嚇得肝颤, 你知道吗
-He estado tan asustado con este grupo de personas de fundación estos días, ¿lo saben?
-
-肝颤, 肝颤
-Fibrilación hepática
-
-原视频日期：09/28/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442804476897738759?s=24
-视频时间段：0:00-0:50
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者个人观点）

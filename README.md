@@ -15,131 +15,131 @@
 
 ---
 
-### [2021年8月29日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/1/README.md)
+### [《中国秘密社会史》之天地会](/content/gnews/1/README.md)
+ ` 银河勇气之星`
+
+### [2021年8月29日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中秋晚会后音乐竞演节目接力宣传中共大湾区](/content/gnews/2/README.md)
+### [中秋晚会后音乐竞演节目接力宣传中共大湾区](/content/gnews/3/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021年9月2日郭文贵先生做健腹轮健身盖特](/content/gnews/3/README.md)
+### [2021年9月2日郭文贵先生做健腹轮健身盖特](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [“离开”Twitter的川普被Gettr所吸引](/content/gnews/4/README.md)
+### [“离开”Twitter的川普被Gettr所吸引](/content/gnews/5/README.md)
  ` wenwu`
 
-### [中共72周年冥庆有感](/content/gnews/5/README.md)
+### [中共经济代理人在非洲抢夺互联网资源](/content/gnews/6/README.md)
+ ` 象声`
+
+### [中共72周年冥庆有感](/content/gnews/7/README.md)
  ` 儒为`
 
-### [2021年9月3日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/6/README.md)
+### [2021年9月3日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：中共国很有可能对台湾动手](/content/gnews/7/README.md)
+### [秘翻在线：中共国很有可能对台湾动手](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻吐槽剧场：诗歌《哭泣的香港》](/content/gnews/8/README.md)
+### [秘翻吐槽剧场：诗歌《哭泣的香港》](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年9月4日郭文贵先生盖特:蒙古铁马在大草原上](/content/gnews/9/README.md)
+### [2021年9月4日郭文贵先生盖特:蒙古铁马在大草原上](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年9月4日郭文贵先生试骑摩托车盖特全文字版](/content/gnews/10/README.md)
+### [2021年9月4日郭文贵先生试骑摩托车盖特全文字版](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国地方融资平台天量债务威胁远甚于恒大](/content/gnews/11/README.md)
+### [中共国地方融资平台天量债务威胁远甚于恒大](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声| 实名注册国家反诈骗中心app是一项政治任务](/content/gnews/12/README.md)
+### [有声| 实名注册国家反诈骗中心app是一项政治任务](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [96岁的前纳粹秘书在受审当天逃离疗养院后被捕](/content/gnews/13/README.md)
+### [96岁的前纳粹秘书在受审当天逃离疗养院后被捕](/content/gnews/15/README.md)
  ` wenwu`
 
-### [有声| 誓将善勇进行到底](/content/gnews/14/README.md)
+### [有声| 誓将善勇进行到底](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [在今天这第72个国殇日里大连和烟台下起了冰雹](/content/gnews/15/README.md)
+### [在今天这第72个国殇日里大连和烟台下起了冰雹](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声| 英美开始采用地塞米松和伊维菌素治疗新冠病毒](/content/gnews/16/README.md)
+### [有声| 英美开始采用地塞米松和伊维菌素治疗新冠病毒](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [接种疫苗的人占Covid-19死亡人数的77%](/content/gnews/17/README.md)
+### [接种疫苗的人占Covid-19死亡人数的77%](/content/gnews/19/README.md)
  ` wenwu`
 
-### [美国律师证实：近5万名医保病人打疫苗后不久死亡](/content/gnews/18/README.md)
+### [美国律师证实：近5万名医保病人打疫苗后不久死亡](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [纳瓦罗《在川普时代》：福奇走到头了，福奇撒谎，美国人死亡](/content/gnews/19/README.md)
+### [纳瓦罗《在川普时代》：福奇走到头了，福奇撒谎，美国人死亡](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗博士谈新书：为川普主义、为真相，发力一击](/content/gnews/20/README.md)
+### [纳瓦罗博士谈新书：为川普主义、为真相，发力一击](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞疫苗加强针的安全性和有效性没有数据支持](/content/gnews/21/README.md)
+### [辉瑞疫苗加强针的安全性和有效性没有数据支持](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众多注射中共疫苗患者在不应该的年龄被诊断出难以解释的癌症](/content/gnews/22/README.md)
+### [众多注射中共疫苗患者在不应该的年龄被诊断出难以解释的癌症](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海2009年以前的高层建筑普遍存在重大公共安全隐患](/content/gnews/23/README.md)
+### [上海2009年以前的高层建筑普遍存在重大公共安全隐患](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [全球疫苗暴政的形式已出现逆转](/content/gnews/24/README.md)
+### [全球疫苗暴政的形式已出现逆转](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [币圈新闻动态：正在筹备HCN上市庆典， 预测喜交所10月下旬开市](/content/gnews/25/README.md)
+### [币圈新闻动态：正在筹备HCN上市庆典， 预测喜交所10月下旬开市](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“系统崩溃”：来自全球供应链运作的工人警告](/content/gnews/26/README.md)
+### [“系统崩溃”：来自全球供应链运作的工人警告](/content/gnews/28/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/27/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/29/README.md)
  ` wenwu`
 
-### [每日快报：派遣美国人参加北京冬奥会是不安全和不明智的](/content/gnews/28/README.md)
+### [每日快报：派遣美国人参加北京冬奥会是不安全和不明智的](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：欧亚基金会8月民调，42%美国的支持出兵保护台湾](/content/gnews/29/README.md)
+### [DC大中华时事：欧亚基金会8月民调，42%美国的支持出兵保护台湾](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [印尼排华事件](/content/gnews/30/README.md)
+### [印尼排华事件](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长](/content/gnews/31/README.md)
+### [秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：美国疫苗接种率排第四的缅因州感染者数 &#8220;激增&#8221;](/content/gnews/32/README.md)
+### [秘翻在线：美国疫苗接种率排第四的缅因州感染者数 &#8220;激增&#8221;](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [速报：一个时代的结束！日本大相扑第69代横纲白鹏宣布退役](/content/gnews/33/README.md)
+### [速报：一个时代的结束！日本大相扑第69代横纲白鹏宣布退役](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [恒大票据如果不能贴现或付息，相当于10个雷曼兄弟](/content/gnews/34/README.md)
+### [恒大票据如果不能贴现或付息，相当于10个雷曼兄弟](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：石油行业担心疫苗强制令会进一步损害该行业](/content/gnews/35/README.md)
+### [秘翻在线：石油行业担心疫苗强制令会进一步损害该行业](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [装修公司、金融机构和保险公司的钱都流进房地产黑洞](/content/gnews/36/README.md)
+### [装修公司、金融机构和保险公司的钱都流进房地产黑洞](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵先生揭示孙力军双开公告中回避的三大问题](/content/gnews/37/README.md)
+### [郭文贵先生揭示孙力军双开公告中回避的三大问题](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [盖特再推重磅抽奖活动 注册用户可得哈雷摩托！](/content/gnews/38/README.md)
+### [盖特再推重磅抽奖活动 注册用户可得哈雷摩托！](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共病毒疫情期间美国军人自杀率升高](/content/gnews/39/README.md)
+### [中共病毒疫情期间美国军人自杀率升高](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党吹牛控制三分之二的芯片产能](/content/gnews/40/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [董明珠开发了光能、储能与空调结合技术用空调发电？](/content/gnews/41/README.md)
+### [董明珠开发了光能、储能与空调结合技术用空调发电？](/content/gnews/42/README.md)
  ` 喜马拉雅日本银河系农场`
-
-### [银河快讯：日本食品，烟草和水电价格将上涨；台湾希望日本帮助其加入TPP](/content/gnews/42/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`

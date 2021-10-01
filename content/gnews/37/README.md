@@ -2,51 +2,19 @@
 ---
 
 
-## 郭文贵先生揭示孙力军双开公告中回避的三大问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566409/)
+## 秘翻在线：石油行业担心疫苗强制令会进一步损害该行业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566448/)
 
-栏目记者/责任编辑：火来
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片12.jpg)
+据《每日来电》（Daily Caller）9月30日报道，美国石油行业的高管们表示，拜登政府的疫苗强制令将使该行业的发展受阻，招工也更加困难。
 
+油田服务公司Nine Energy Service的首席执行官安·福克斯（Ann Fox）说：“由于中共病毒疫情，我们公司的员工流失率已经很高了。疫苗强制令公布后，形势进一步严峻。818名员工中大约只有15%接种了中共病毒疫苗。”总统拜登9月9日宣布，他将命令安全与卫生署 (Occupational Safety and Health Administration）颁布一项规定，要求企业为其全体员工强制接种疫苗，另外也可以选择每周接受一次核酸测试代替疫苗接种。福克斯说：“石油行业正为如何执行这项命令发愁，因为很多员工拒绝接种疫苗。有些人甚至警告说，他们会在被强迫接种之前辞职。如果公司不确保员工遵守这一规定，就会面临联邦政府的巨额罚款。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+在GM油田和卡车服务（Oilfield & Trucking Services）公司担任运营经理的阿贝尔·奥尔特加（Abel Ortega）说：“为德克萨斯州和新墨西哥州的石油开采公司运输水、沙子和物资的卡车司机将因为疫苗强制令而辞职。业内人士说，公司将被迫提高工资以吸引工人，这将导致消费者的成本增加。”拉蒂戈石油（Latigo Petroleum）公司的总裁柯克·爱德华兹（Kirk Edwards）说：“油井的钻探成本将因此上涨。”《华尔街日报》报道称，员工薪资已经是油田服务公司的最大支出之一，而且最近几个月一直在上涨。一位石油行业高管表示，工资上涨了 20%。但是我们发现，很难通过涨价来抵消我们增加的成本。
 
+德州伯德油田服务公司（Byrd Oilfield Services）的运营经理克林特·康科德（Clint Concord）：“如果我们不愿意，不向自己身体注入某种东西是我们的宪法权利，况且中共病毒疫苗还未被证实是百分百安全和稳定的。”另一位石油行业人士说：“我的大多数同事都没有接种疫苗。当有人强迫我必须做某事时，我只想反着干。”
 
-
-
-
-9月30日，中共纪委监委官网发布公告称，中共公安部原副部长孙力军被开除党籍和公职，并被移送司法机关起诉。这份公告看似措辞严厉，涉及了孙力军藏匿资料，结党营私，买官卖官，巨额财富来源不明，生活淫乱等罪名，但是，郭文贵先生在今天的盖特视频中，为大家揭示了孙力军的这份“双开公告”中，没有提及的三大重点问题。
-
-第一，多年以来，孙力军绑架杀人，弄死监狱中的在押犯人，并掠夺财富，超过百余起。
-
-第二，使用高级警用手段，监听监视中南海，实现政治目的。颠覆政权，谋杀领导人等。
-
-第三，监控中共领导人家人隐私多年，拥有大量视频。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.jpg)
-孙力军是王岐山和孟建柱共同认可的枪把子，以上三点都需要团伙作案。中共国只要孟建柱，孙力军，王岐山，周亮，曾庆红等人还在，所谓的“反腐败”都是无稽之谈。孙力军的“双开公告”回避了上述三个重点问题，证明了孙力军的势力还很强大。中共内部较量还在继续。
-
-参考链接：
-[郭文贵先生盖特：9月30号：尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！](https://gettr.com/post/pclmgqf8e2)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+新闻来源：[‘An Obstacle’: Oil Companies Fear Biden Vaccine Mandate Will Further Disrupt Business](https://dailycaller.com/2021/09/30/joe-biden-vaccine-mandate-oil-fracking-worker-shortage/)

@@ -2,27 +2,19 @@
 ---
 
 
-## 速报：一个时代的结束！日本大相扑第69代横纲白鹏宣布退役
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1566488/)
+## 秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566515/)
 
-#### 撰稿：东京樱花团/华夏小哥
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-3.jpg)
-10月1日下午3时，日本大相扑选手第69代横纲白鹏在东京宣布退役。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-1.jpg)
-白鹏，本名白鹏翔，现年36岁，1985年3月11日出生于蒙古乌兰巴托。在其长达14年2个月的横纲在位时期，打破并创下了无数记录，尤其是以下三个记录均是历史第一，可以说前无古人后无来者。
+#### 撰稿：彩虹
 
-\* 墓内夺冠回数（45）
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2.jpg)图片来源：CBS新闻
+9月30日，据《国会山报》(The Hill)报道，两名军人对国防部长劳埃德·奥斯汀（Lloyd Austin）提起了诉讼，以阻止他要求所有部队接种中共病毒疫苗。
 
-\* 横纲在位场所数（84）
+这两名军人分别是陆军上士丹·罗伯特（Dan Robert）和海军陆战队上士霍利·马尔维希尔（Hollie Mulvihill），两人都在北卡罗来纳州，他们认为国防部的强制接种中共病毒疫苗“公开侵犯”了军人的权利，是违宪的，同时，他们也希望五角大楼为那些以前就感染过中共病毒的人豁免疫苗注射，因为他们已经拥有了“自然免疫力”。他们于8月17日在美国科罗拉多州地区法院提起了该诉讼。
 
-\* 幕內力士获胜次数（1093）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-1.jpg)
-2019年9月3日取得日本国籍、退役后改名为間垣，作为教练指导年轻的相扑运动员。
+在该诉讼中，国防部长奥斯汀、卫生和公共服务部长泽维尔·贝塞拉（Xavier Becerra）和食品和药物管理局（FDA）的代理专员珍妮特·伍德科克（Janet Woodcock）均为被告。
 
-大相扑被称为日本的国技，外国出生的相扑运动员在竞技之外受到了更多的要求和条件。白鹏的妻子是日本人，共同育有四个子女。白鹏也曾在节目中说过正是因为有了妻子的帮助，自己才可以专心于竞技，取得目前的成绩。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-1.jpg)
-（文章仅代表作者个人观点，与GNEWS无关）
+报道说，根据国防部的数据，美国军事人员中已经超过372000个中共病毒病例（其中233300是军人），5274人接受住院治疗，515人死亡。截至周三，已经有58名军人、水手和飞行员死于中共病毒。
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+新闻来源：[Troops move to block Pentagon vaccine requirement in court](https://thehill.com/policy/defense/574790-troops-move-to-block-pentagon-vaccine-requirement-in-court?rl=1)

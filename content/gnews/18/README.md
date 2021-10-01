@@ -2,43 +2,44 @@
 ---
 
 
-## 美国律师证实：近5万名医保病人打疫苗后不久死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566697/)
+## 有声| 英美开始采用地塞米松和伊维菌素治疗新冠病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1566716/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/PADJb.OvCc_.1.jpg)
-图片来源：justthenews.com
+配音：香草山美食部-玫瑰园
 
-暴露疫苗就是种族灭绝的关键信息正在浮现。托马斯·伦茨（Thomas Renz）律师上周六在美国科罗拉多斯普林斯（Colorado Springs）举行的克拉克唤醒美国（Clay Clark ReAwaken ）之旅的活动中展示了这一重磅消息。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-托马斯·伦茨律师透露：来自医疗保险跟踪系统的数据显示，在接种中共病毒疫苗后的14天内，有19,400名80岁以下的人死亡。此外，在接种中共病毒疫苗后的14天内，有28,065名80岁以上的人死亡。
 
-**根据医疗保险跟踪系统中披露的真实数据，在接种中共病毒疫苗后****14****天内死亡的美国公民总数为**** 48,465****人。**
 
-今年7 月，托马斯·伦茨律师就表示，估计至少有4.5人死于中共病毒疫苗。《今日美国》事实核查机构和其他事实核查服务机构声称这是“错误信息”。今天的揭露证实了“可信新闻倡议”实际上是错误信息和宣传的来源，而托马斯·伦茨律师一直是正确的。
 
-在证明超过4.5万人死于中共病毒疫苗后，托马斯·伦茨律师随后将话题转移到安东尼·福奇（Anthony Fauci）博士制定的瑞德西韦方案在美国医院杀死的人数上。
 
-托马斯·伦茨律师还拥有来自医疗保险跟踪系统的瑞德西韦死亡数据，但该数据已被政府扣留，不允许给公民查阅。
 
-瑞德西韦数据显示，为中共病毒开出瑞德西韦处方的7,960名受益人中，有2,058（25.9%）人死亡。
 
-**46%****的人在接受瑞德西韦治疗后的****14****天内死亡。**** ****瑞德西韦治疗方案是在安东尼****·****福奇博士的指导下在美国医院建立的。**
+英格兰国家医疗服务体系NHS已开始与政府的抗病毒工作组合作，研究和推出在社区中使用地塞米松等口服药物以治疗新冠病毒。首席制药官 Keith Ridge 担任口服抗病毒药物计划高级负责人。在英国和海外抗病毒治疗临床试验的数据中，地塞米松等药物在缩短新冠病毒对人体影响时间、和防止重症方面显示出可喜的结果。
 
-在接受瑞德西韦治疗的532名患者中，有131（24.6%）人报告了严重的不良事件。
+牛津大学的PRINCIPLE试验一直在研究新冠病毒感染的可能疗法，早在6月就确认伊维菌素可以加速康复、减少症状的严重性，避免患者入院治疗。英国卫生署旗下健康与临床优化研究所N.I.C.E近期也发布多篇资料支持以上结论。
 
-托马斯·伦茨律师说：“这就引出了一个问题……为什么美国医院会有这样的协议？这在你看来“安全和有效”吗？”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[BOMBSHELL from attorney Thomas Renz: Nearly 50k Medicare patients died soon after getting COVID shot – NaturalNews.com](https://www.naturalnews.com/2021-09-29-attorney-thomas-renz-nearly-50k-medicare-patients-died-soon-after-getting-covid-shot.html)
+**文字版原文：[英美开始采用地塞米松和伊维菌素治疗新冠病毒](https://gnews.org/zh-hans/1564997/)**
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

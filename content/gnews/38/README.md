@@ -2,22 +2,82 @@
 ---
 
 
-## 盖特再推重磅抽奖活动 注册用户可得哈雷摩托！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566404/)
+## 装修公司、金融机构和保险公司的钱都流进房地产黑洞
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566414/)
 
-#### 编译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-41.png)图片来源：Gettr
-国家脉动9月29日报道，盖特（GETTR）作为一个言论自由、反对“取消文化”的新社交平台，今天宣布它将举行赠送2021年哈雷·戴维森道路滑行摩托车的新的抽奖活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-1.jpg)https://gtv.org/video/id=61567025d2e2b817486fd8cb
+郭文贵：
+Miles Guo：
 
-这个活动是继上个月成功举行赠送F-150福特皮卡的活动之后的又一竞赛活动。
+那么刚才我在说到这个时候，大家想想
+So, I was talking about this just now, thinking about it
 
-这一活动的举办时间为9月29日至10月17日，由外部律师事务所随机抽取获奖者，参与者必须注册盖特账号，以赢得大奖。
+这些装修公司，像金螳螂、三棵树，
+These interior decoration companies, like Golden Mantis, Three Trees,
 
-有两种经典的方法表达你自己：1.在盖特上说出你的想法；2.开着真的哈雷·戴维森畅游。盖特总裁杰森·米勒说：“你们可以在盖特上与社交媒体寡头战斗，并开着哈利-戴维森摩托车抗议。”
+像中原建设、中国一建、二建、海建
+like Zhongyuan Construction, China Construction First, China Construction Second, Marine Construction
 
-于今年7月4日正式上线的盖特不会取消人们的政治观点，在三天之内就达到一百万注册用户，目前用户数量已经近三百万，这在社交媒体历史上是增长最快的，推特花了两年月才达到一百万，而脸书则用了十个月。
+几乎所有人都掉到了房地产的黑洞里
+almost all of them have fallen into the black hole of China real estate
 
-盖特在苹果应用软件商店和谷歌游戏软件商店平台以及网上均可下载。想参与抽奖的盖特注册用户请访问：[www.getrevvinsweeps.com](http://www.getrevvinsweeps.com/)
+几乎所有的金融机构，100％都不会告诉央行
+Almost all financial institutions will not tell the central bank
 
-新闻来源： [GETTR](http://www.gettr.com/) – [the new social media platform which defends free speech and fights cancel culture](https://thenationalpulse.com/sponsored/get-revvin-free-speech-network-gettr-announces-2021-harley-davidson-giveaway/)
+和当地监管机构、银监会、保监会
+and local regulatory agencies, the China Banking Regulatory Commission, and the Insurance Regulatory Commission the truth
+
+对，还有保险公司. 保险公司的钱，几乎大多数中国人的保险钱全进入房地产了
+Yes, there are insurance companies also. almost most Chinese people’s insurance were into the real estate
+
+你告诉我,中国除了房地产，你钱能去哪儿
+You tell me, where your money can go besides real estate in China
+
+中国保险公司总值多少钱？大家算一算
+How much is the total value of Chinese insurance companies? Let’s do the math
+
+中国所谓的社保基金才不到1000亿美元
+China’s so-called social security fund is less than $100 billion
+
+上万亿人民币，2000亿美元就搞社保了，它搞不起来
+let’s say one trillion of yuan, that only $200 billion on social security fund, and China can’t afford it
+
+那么整个保险基金
+Then the entire insurance fund
+
+几十万亿的保险基金绝大多数都已经作为担保和金融票据的担保和作为各种的基金对冲，都已经流入房地产了
+the vast majority of the tens of trillions of insurance funds have been used as guarantees and guarantees, financial instruments and as various fund hedges have flowed into the real estate
+
+这就是为什么中国有95万亿的房地产总值
+That’s why China has $95 trillion worth of real estate
+
+他所说的，官方承认65万亿
+What China said, the officially recognized of 65 trillion
+
+所以现在能救它只有一样
+So there is only one way to save China’s real estate industry now
+
+突然一夜之间冒出来100万亿美元，能把中共国给救了
+Another $100 trillion suddenly popped up overnight, then can save the CCP
+
+就是把美国、欧洲、日本所有的钱都给中共国
+Even all the money of the United States, Europe and Japan give to the Communist China
+
+然后这些人都饿死，一年内不吃不喝不拉，才能救他们
+and all these people from west countries starve to death, do not eat or drink for a year
+
+可能吗？
+Is it possible?
+
+原视频日期：2021/09/17
+原视频链接: https://twitter.com/se1y7cblljselva/status/1439525047224258561?s=24
+视频时间段 : 0:00-1:21
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
