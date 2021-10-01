@@ -2,60 +2,87 @@
 ---
 
 
-## 上海2009年以前的高层建筑普遍存在重大公共安全隐患
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566584/)
+## 接种疫苗的人占Covid-19死亡人数的77%
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1566711/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a8ab103abad344b6997575001a772c31_副本.jpg)
-据[**头条新闻**](https://weibo.com/breakingnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月1日 14:09](https://weibo.com/1618051664/KAI3CaDWb?ref=home&amp;rid=7_0_8_6558532373735932310_0_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+- **编译：西班牙喜悦农场–wenwu**
 
-【[#上海在全国首次试点外墙水幕喷淋#](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%9C%A8%E5%85%A8%E5%9B%BD%E9%A6%96%E6%AC%A1%E8%AF%95%E7%82%B9%E5%A4%96%E5%A2%99%E6%B0%B4%E5%B9%95%E5%96%B7%E6%B7%8B%23&amp;from=default) 尝试破解高层火灾难题】据[@央视网快看](https://weibo.com/n/%E5%A4%AE%E8%A7%86%E7%BD%91%E5%BF%AB%E7%9C%8B?from=feed&amp;loc=at) 报道：高层住宅，一旦发生火情，救援难度很大。针对这种情况，近日，上海在全国首次试点外墙水幕喷淋，尝试破解高层火灾难题。[L央视网快看的微博视频](http://t.cn/A6MfQX6d) ​​
 
-**画外音：**根据现行消防规定，上海高楼外保温材料应该使用不燃材料，但2009年以前建成的大楼使用的保温材料多数可燃，存在一定消防隐患，徐汇区肇嘉浜路上的这个大楼高约90米，建成于2003年，外保温材料使用的就是可燃材料。
+星期四（23日）发布的一份英格兰公共卫生局（Public Health England）[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)显示，2021年8月23日至9月19日期间，77% 的中共病毒（Covid-19）死亡病例是在接种疫苗的人群中。也就是说，73%的死亡病例是完全接种疫苗的人群，4%的死亡病例是部分接种疫苗的人群。
 
-物业测算费用后发现很难对大楼进行整体保温材料更换，为此消防部门出谋划策在顶楼天台位置，每隔两米装上了一个消防喷淋。
+然而，主流媒体继续公然对公众撒谎，声称大多数 Covid-19 的死亡是在未接种疫苗的人群中。这必须终止。
 
-**龚君（上海徐汇消防救援支队防火监管处工作人员）：**消防队到场，它有一个时间性，他不一定能够第一时间就能到达，那么外墙喷洒系统能够第一时间作用的话，其实是对火灾扑救有一定的帮助的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip176.png)
 
-**画外音：**后台启动用10秒左右就可以发挥作用，喷出的水可以顺着大楼外墙留下，对外墙起到保温作用，延缓火势发展，为楼内人员逃生争取时间，这也是上海初次试点在高楼上加装外墙水幕喷淋。
+在过去的两周里，由于主流媒体公布了BBC《Strictly Come Dancing》节目中的一些舞者没有接种 Covid-19 疫苗的事实，引起了骚动。这导致了一位总是非常有主见的 ex-Strictly Pro 职业选手的不满，而且他呼吁BBC解雇那些拒绝注射疫苗的舞者。
 
-**王斌（项目工程师）：**喷淋取水是通过屋顶水箱进行取水，他的流量是15升每秒。
+他的名字叫詹姆斯·乔丹，这导致他出现在GB新闻节目中，与英国电视和广播主持人贝芙·特纳进行辩论，该主持人一直致力于阻止向儿童推广不必要的Covid-19疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip175.png)
+当贝夫·特纳（中间是主持人）不同意并说这不是事实时，詹姆斯·乔丹回应说：“这就是你在做的事情，你在看你想听的东西，这就是你在做的事情，这就是反疫苗主义者所做的事情”。
 
-此外外保温材料燃烧容易发生流淌，上部的燃烧物会掉落至底下，进一步引发火灾，因此对于此类大楼还要求将底部保温材料更换成不燃材料，起到更好的保护作用。
+在GB新闻的辩论中，詹姆斯·乔丹声称如下（[视频中](https://www.youtube.com/watch?v=_1kmQ6-k0d0)11分钟10秒起）：“我听说，现在医院里所有死于中共病毒的人中，只有1%的人接种了两针疫苗。”
 
-\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
+詹姆斯·乔丹声称所谓的只有1%的中共病毒死亡病例是在完全接种疫苗的人群中发生的说法，这一点在PHE的报告中证明其是大错特错的，该报告显示 有77% 的中共病毒死亡病例是在接种疫苗的人群中发生的。
 
-这一段视频透露出非常重要的信息，其一就是在上海2009年以前建成的所有的高层建筑，其外层保温材料多数可燃，关于这一点对照已经作废的[GB50045-95《高层民用建筑设计防火规范》（2005年版）](https://max.book118.com/html/2018/0414/161542256.shtm)依然是不符合规定的——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/002.jpg)
-根据以上资料可见，哪怕是已经作废的规范中也明确规定不管是耐火等级为一级还是二级的高层建筑的承重墙、非承重外墙都要使用不燃烧体，而绝对没有提到可以使用燃烧体材料。
+但是，GB新闻的主持人是否对詹姆斯·乔丹进行了 face check，并说：”对不起，詹姆斯，但我们只需要明确，我们面前没有这些数字，所以我们无法验证。我们会让团队中的一个人去查找，然后回来提供事实数字”？也就是说，73%接种了两针毒疫苗的报告，如果是谎言或者不能被验证，那么这个节目的信誉就被大受打击，后果十分严重！
 
-根据以上材料可以判断的是视频中提到的徐汇区肇嘉浜路上的这幢高层建筑在施工时，消防部门在对施工图纸进行审批时已经严重渎职，埋下了重大公共安全隐患，而根据视频中提到的2009年以前建成的上海高层建筑的外墙多数使用可燃材料来看，上海的消防部门在上海埋下的不是单个的重大安全隐患，而是批量的重大公共安全隐患。
+当詹姆斯·乔丹后来引用希拉里（Hilary)博士（一个有信誉的来源）时，我们不难理解他声称只有1%的中共病毒死亡病例，是在两针疫苗接种者中的理由。
+（[视频](https://www.youtube.com/watch?v=_1kmQ6-k0d0)的12分钟45秒开始)
 
-那么上海消防部门当年的严重赎职所造成的重大公共安全隐患能否被视频中所提到的补救措施消除呢？答案是否定的，首先来说目前的喷淋系统仅为屋顶下垂的单层设计，它不能无死角覆盖整个外墙，其次视频中仅提及屋顶水箱可以满足15升每秒的流量，但并未提及可以满足多长时间的流量，是满足一分钟呢？还是满足一小时呢？
+“正如希拉里博士今天早上所说，一旦你染上中共病毒，就太晚了。所以测试不是重点，不是吗。”
 
-还有一个更重要的问题是，哪怕已加装的外墙水幕喷淋实现了整个外墙的无死角全方位覆盖，哪怕屋顶水箱可以满足数小时15升每秒的供水量，只要外墙保温材料着起火来，现有的外墙水幕喷淋依然无法熄灭外墙保温材料的火势。
+当贝夫·特纳将希拉里博士称为可笑的消息来源时，詹姆斯·乔丹回应说：“他还是个医生，你只是个记者。”
 
-因为外墙保温材料的结构形式就是外表面的铁丝网为骨架内里填充的高分子合成保温材料，这种可燃的保温材料一旦起火是在铁丝网骨架内的火烧连营，外表面的喷水根本不可能触及内部燃烧，并且随着可燃物的内部燃烧会迅速形成连通的气孔，形成火借风势、风助火威的态势。
+对此，贝夫·特纳回应说：“区别在于，我是公正的，（说服别人打疫苗）没有人给我钱，这就是区别。另外，[真正的]医生都很忙于拯救人们的生命。”
 
-在这样的情况下，哪怕是消防队到达现场，也依然无法对可燃的外墙保温材料引起的火灾进行有效灭火，那么我们到底该怎么办呢？在这样的情况下好像只有祈求上帝了，如果觉得上帝遥不可及，如果觉得上帝未必会站在你一边，那么所有在上海的居民都要选择站在上帝一边——远离上海所有2009年以前竣工的高层建筑，除非可以肯定这些高层建筑的外墙保温材料是不燃的或者难燃的，否则每个在这样的高层建筑里的市民距离灾难的距离只差一个火星。
+贝夫关于希拉里博士的说法当然是正确的，而且正如我们在[之前的调查中](https://theexpose.uk/2021/07/12/dr-hilary-dangerous-lies-and-big-pharma-ties/)所揭示的真相，是与大型制药公司有重大联系。
 
-撰稿：喜马拉雅的肉夹馍
+这位希拉里博士还在《早安英国》中声称：“在机场很危险，在飞机上很危险，在你要去的国家也很危险。”
 
-审核：喜马拉雅的馍夹肉
+“作为一名医生，我不得不问一个问题，在全球大流行病中，度假真的很重要、很必要吗？它真的不是。这是一种奢侈。为了保护生命，你可以不这样做。”
 
-校对：Maarago
+希拉里博士却计划在今年底参与邮轮旅行，他绝不是一个有信誉的消息来源，但问题在于数百万英国人很可能相信他是，因为他们被主流媒体欺骗了。
 
-（文章内容仅代表作者个人观点）
+9 月初，BBC新闻发布了一篇文章（如下图），其中包含英国首相鲍里斯·约翰逊 (Boris Johnson) 的虚假声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip177.png)
+这篇[文章是由凯蒂·怀特为BBC新闻撰写](https://www.bbc.co.uk/news/uk-58494842)的，其中包含鲍里斯·约翰逊的一段话，他声称“有75%死于中共病毒的人是由于没有接种疫苗”。（如下图）。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip178.png)
+这不是真的。在[英格兰公告卫生局](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)9月23日发布的报告显示，在2021年8月23日和9月19日之间，61%的人因急诊导致入院过夜，至少接受了一剂中共疫苗，而绝大多数人是完全接种的。[（下图来源）](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip179.png)
+由比尔·盖茨资助的《卫报》随后在 9 月 13 日发布了[以下标题](https://www.theguardian.com/world/2021/sep/13/fully-vaccinated-people-account-for-12-of-englands-covid-19-deaths)：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip180.png)
+在 2021 年 1 月至 2021 年 7 月期间（如下图）共有5万1281起中共病毒死亡案例，其中完全接种疫苗的人确实只占1.2%。但这些主流新闻是否曾在文章中解释说过，其中[有3万1538起死亡案例是发生在 2021 年 1 月，](https://theexpose.uk/2021/09/22/161848-people-have-died-after-having-a-covid-19-vaccine/)而1月初有 0% 的人口接种了疫苗，到1月底结束只有 0.8% 的人口接种了疫苗；
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip181.png)
+他们是否曾在文章中解释说过，[这些死亡](https://theexpose.uk/2021/09/22/161848-people-have-died-after-having-a-covid-19-vaccine/)人数中有[1万4629人发生在 2021 年 2 月，](https://theexpose.uk/2021/09/22/161848-people-have-died-after-having-a-covid-19-vaccine/)2月初只有 0.8% 的人口完全接种了疫苗，而到2月底结束有 1.1% 的人口（如下图）完全接种了疫苗；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip182.png)
+他们是否曾在文章中解释说，在2021 年 8 月 23 日至 9 月 19 日之间（如下图[来源](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)）发生[的中共病毒死亡](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)事件中，[接种疫苗的人占死亡人数的 77%](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip183.png)
+他们是否曾在文章中解释说，[中共病毒的死亡人数是去年](https://theexpose.uk/2021/09/24/phe-report-reveals-the-vaccinated-account-for-77-percent-covid-19-deaths/)的[11 倍](https://theexpose.uk/2021/09/24/phe-report-reveals-the-vaccinated-account-for-77-percent-covid-19-deaths/)（如下图），这是因为去年还没有人注射疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip184.png)
+他们当然不会对此作出解释。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+相反，主流媒体公然向公众撒谎，这只能被视为试图强迫剩余人口和儿童注射实验性中共疫苗，并掩盖其未能防止住院和死亡的事实，以及未能防止感染和传播的失败。值得注意的是，[三个最近发表的研究报告证明](https://theexpose.uk/2021/09/12/three-studies-find-the-covid-19-vaccines-do-not-work/)了这一点：[CDC](https://www.cdc.gov/mmwr/volumes/70/wr/pdfs/mm7031e2-H.pdf)，[英国政府](https://www.medrxiv.org/content/10.1101/2021.08.18.21262237v1)和[英国牛津大学](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3897733)。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+在当前的中共病毒死亡浪潮中，77% 死于中共病毒的人是已接种中共疫苗的，比去年同期死亡人数高出 11 倍。正如[英格兰公共卫生局的最新报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)所证明的那样，这是事实。现在是主流媒体终止向公众撒谎的时候了。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip185.png)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**简评：**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**大部分会更热衷于相信利于自身的新闻，这无可厚非。另外，当人们发现中共疫苗真相的时候往往为时已晚，救人的真相并不能保证能够满足大众“通关”的偷懒心理。或者说，装睡的人往往需要事情临到自己身上才会终止“撒谎”，这也是正道主义的价值所在：消除Cancle Culture、把 Twitter 丢进垃圾桶。**
+
+**我们现在能尽量做的就是把疫苗的危机告知公众，甚至“吹凉了，喂给他们”。正如郭文贵先生在[盖文](https://gettr.com/post/pcmokgd589)中所发布的：**
+
+**“无论是政治．还是科学和宗教都不能迷信，迷信任何东西的代价是巨大的。爆料革命就是要让人类打破一切迷信和崇拜，让人们有基本的善恶．真假，辨别之能力，这就是未来我们建设新人类的根本的基础。【这位女士特别提到了她丈夫因为相信科学打了疫苗 ，死在了自己家的床上】”**
+
+（文章仅代表作者观点 与GNEWS无关）
+
+**新闻来源：《[吹哨人](https://theexpose.uk/2021/09/28/fact-check-vaccinated-77-percent-covid-deaths-mainsteam-media-lying/)》｜发布时间：2021年9月28日｜**
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

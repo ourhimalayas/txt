@@ -2,44 +2,31 @@
 ---
 
 
-## YouTube开始全面封禁、删除关于毒疫苗真相的信息
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566307/)
+## 秘翻在线：中共大量进口美国牛肉取代澳洲牛肉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566330/)
 
-栏目记者/责任编辑：
+**撰稿：黄金精神**
 
+**责编：胡天**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-2.png)**图片来源：新浪网**
+据路透社10月1日报道，澳大利亚在中共国的牛肉出口由于外交紧张局势而萎缩，中共国日益增长的中产阶级对美国谷饲牛肉的需求激增。
 
+火锅店、日本烧烤连锁店和牛排店在世界第二大经济体（中共国）中扩张，正在用美国牛肉取代澳大利亚牛肉。去年有几家澳大利亚供应商被禁止（供货），而其他供应商的货物需要很长时间才能通关。一位北京的进口商被告知至少需要85天才能清关，他有六个冷冻澳大利亚牛肉的集装箱滞留在上海港。相比之下，来自其他产地的肉类需要一周左右的时间。中共国海关总署没有对评论请求作出回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+中共国海关数据显示，2021年前8个月从美国进口的牛肉已经增长了8.3万吨，是一年前同期的9倍，今年价值将超过10亿美元。澳大利亚作为向中共国出口谷饲牛肉的第一大国，今年落后于美国。前八个月从澳大利亚进口的牛肉降至9.6万吨，是去年同期的一半。
 
+美国肉类出口协会（the U.S. Meat Export Federation）发言人乔·舒尔（Joe Schuele）说：“当涉及到肉质好、谷物喂养的产品时，他们（中共国）没有很多其他选择。这就是在中共国真正突出的产品。”
 
+中共国与澳大利亚之间不断恶化的关系已经损害了澳大利亚的供应。去年澳大利亚最大的五家工厂因标签不全和被禁物质污染物等原因被中共国暂停（供货）。尽管其他工厂仍被允许向中共国发货，但进口商说他们面临长时间的延误。
 
+自2018年以来，中澳关系一直很紧张，去年当澳大利亚要求对中共病毒来源进行独立调查时，情况更加恶化，促使中共国进行贸易报复。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.jpg)
-9月29日，YouTube开始删除所有曝光疫苗真相的视频，并且封禁反对疫苗的重要人士。很多用户都收到了YouTube发来的视频删除通知。YouTube的CEO苏珊-沃伊西基在采访中承认，审查关于新冠疫苗的视频内容是YouTube的头等大事。新冠疫苗自接种以来，不断造成致死致病，越来越多的受害者及其家属在各大社交媒体上，讲述自己的真实经历，警告大家千万不要接种疫苗！很多用户在社交媒体上，讲述自己真实的经历，告诫大家毒疫苗的危害，为大家敲响警钟。但是，YouTube等平台，不断打压疫苗有害等相关信息的传播，封锁消息，进一步加重疫苗所带来的伤害。只有GTV与盖特平台，才能让大家看到真实的信息，才是真正减少伤害、早日结束疫情的关键。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1.jpg)
-参考链接：
-[YouTube to remove misinformation videos about all vaccines](https://www.theguardian.com/technology/2021/sep/29/youtube-to-remove-misinformation-videos-about-all-vaccines)
-[被删除的推特](https://twitter.com/AnonCitizenUK/status/)
+中共国的大众餐馆和超市通常有草饲牛肉更便宜的购买渠道。
 
-（本文仅代表作者观点）
+中共国中产阶级在2020年消费了7.3万亿美元，比任何其他国家中产阶级都要多，而且还在增长，年轻人的消费占比高于其他国家。去年，进口牛肉占中共国牛肉消费量的40%，约200万吨，主要是从巴西、阿根廷、乌拉圭的低成本草饲生产商那里进口，但在经济疲软的情况下，大众市场消费者的需求正在放缓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+纽约连锁店沃尔夫冈牛排馆在北京有两家餐厅，今年在南方城市深圳又开了一家，并计划在杭州开第四家。该餐厅空运冰冻美国牛肉，其800克肋眼价格为150美元/块。
 
-终审： Ryan
-校对/发稿：为真不破20
+自拜登通过窃取选票上台后，中共与美国的贸易战已经悄然化干戈为玉帛，这不能不说是中共的巨大胜利。政客们一味追求短期利益，放弃美国基本价值观，甘愿被中共资本收买，必将付出更为惨痛的代价！
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**[新闻来源](https://www.reuters.com/world/china/china-gorges-american-grain-fed-beef-amid-shrinking-supplies-down-under-2021-10-01/)**

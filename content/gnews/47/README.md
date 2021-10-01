@@ -2,33 +2,24 @@
 ---
 
 
-## 美国政府将在三周内耗尽现金无法支付账单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1565627/)
+## 昆士兰警方将在最高法院就强制接种中共病毒疫苗进行法律对决
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565876/)
 
-栏目记者/责任编辑：文真
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-1.jpg)
+据澳大利亚7台新闻报道，对昆士兰州警察和医疗工作者强制接种中共病毒疫苗的命令将在布里斯班最高法院接受考验，法律对决的日期已经锁定。
 
+昆州警察总长卡塔琳娜.卡罗尔已指示文职人员和警察在10月4日前至少接种一针疫苗，并在明年1月24日前注射第二针。她此前曾表示，任何未能在最后期限前完成的工作人员将被停薪一周，然后被要求说明为何不应停薪。
 
+警察接种第一针中共病毒疫苗的周一截止日期已被推迟，因为七名警察正在与他们所说的 “损害、影响或剥夺其基本普通法权利 “的行为进行斗争。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
+周四的听证会上，法院还收到了一个类似的挑战，即针对该州医护人员的强制接种。
 
+法律界各方被要求在10月12日之前准备好他们的材料，包括指示背后的理由声明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture44.jpg)
-9月28日在参议院银行委员会上，美国财政部长耶伦警告立法者，除非国会迅速采取行动增加政府的借贷权限，否则联邦政府可能在10月18日之前，因缺乏现金，无法支付账单。 此前，在国会就所谓的债务上限问题僵持不下。9月27日，参议院共和党人阻止了一项提高或暂停债务上限的措施。周二股市随之大幅下跌，而政府债券的收益率上升。 耶伦明确表示，如果不能在10月中旬之前达成协议，使联邦政府借到更多的钱，将导致美国历史上首次违约。社会安全福利，儿童福利，政府雇员和军队薪金将会停发。这对美国经济、全球金融市场以及数百万家庭和工人来说都是灾难性的。 新冠疫情的持续和高通胀的冲击下，美国政府和个人消费者的借贷大幅上升，创历史新高。自09年金融危机以来，依靠QE借贷刺激经济的模式，已经濒临绝境。
+David Boddice法官告诉申请人的律师，如果他们想要延长授权中止，届时他需要被说服，鼓励他们在这期间提出豁免申请。这是一个涉及公共卫生问题的问题，决策者已经就其对特定劳动力的影响做出了决定，而你正在挑战这一决定。法院被告知，根据警方的指示，可以因健康或宗教原因或在特殊情况下给予豁免。
 
-（本文仅代表作者观点）
+这些事项预计将在10月18日的一周内进行全面审理。
 
-参考链接：[美国政府将在三周内耗尽现金无法支付账单](https://www.npr.org/2021/09/28/1041126764/janet-yellen-jerome-powell-debt-ceiling-standoff%20https://gettr.com/post/pcjqsv6a51)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M9-3.jpg)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
+新闻来源：[Queensland police set for Supreme Court legal showdown over COVID vaccine mandate](https://7news.com.au/lifestyle/health-wellbeing/qld-jab-mandate-set-for-legal-showdown-c-4109650)

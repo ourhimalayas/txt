@@ -2,19 +2,82 @@
 ---
 
 
-## 危险警告： 西方正在酝酿一个世界范围的反华运动
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1566364/)
+## 装修公司、金融机构和保险公司的钱都流进房地产黑洞
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566414/)
 
-郭先生深刻的感受和传达一个信息，全世界在酝酿着一场反华运动。这是共产党最愿意看到的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-1.jpg)https://gtv.org/video/id=61567025d2e2b817486fd8cb
+郭文贵：
+Miles Guo：
 
-**【郭先生直播摘要】****2021.9.22****危险警告： 西方正在酝酿一个世界范围的反华运动**
+那么刚才我在说到这个时候，大家想想
+So, I was talking about this just now, thinking about it
 
-**郭先生：**
+这些装修公司，像金螳螂、三棵树，
+These interior decoration companies, like Golden Mantis, Three Trees,
 
-大家要看到，西方现在正在酝酿着一个巨大的反华的一个运动，记住我今天说的话。今天有你们四个在场，Rachel、铲侠、文艺、草根，记住今天七哥现在说的话，今天我在这儿说的话啊，我记住我在这说的话，你们以为上深山开会都是给你们赚银子哪，你以为深山开会回来告诉你什么绝密信息哪，那是太天真了，你是小孩看游戏哪，打过了关就赢是不是，游戏里边九十九你都是输的，太多的好消息一定是假的，七哥听到更多的是坏消息，更多坏消息说明我们才得到了情报，都是好消息一定是欺民贼忽悠你呢，那一定是假的，你听得可愉悦了，那像买一个自慰棒没什么两样。
+像中原建设、中国一建、二建、海建
+like Zhongyuan Construction, China Construction First, China Construction Second, Marine Construction
 
-我深刻的感受，第一个向你们传达的信息，全世界在酝酿着一场反华。这是共产党最愿意看到的。当时苏哈托事件发生以后，共产党内部说，为了国际上的共产党和所有的未来联盟的形象，共产党联盟的形象和我们的战略需要，此事情不宜扩大。第二，非常重要的，对我们现在国内的人，所谓追求西方的资产，资产主义自由思想的人，是个好事，他们就不出去了。哇塞，你知道我看到这句话有多可怕，共产党认为死那么几十万人，就从那阴道里面插进去棍子，像烤鸟一样，烤鹌鹑一样，把中国的女的华人烤了，店全砸了，一家人奸完轮奸完直接把脑袋像敲那核桃仁一样咔咔的给敲烂，共产党认为这是高兴的。然后一家人家四个孩子，小孩被轮奸，被奸淫，然后再给杀掉。
+几乎所有人都掉到了房地产的黑洞里
+almost all of them have fallen into the black hole of China real estate
 
-我说话都是负责任的，都是印尼当时啊，都发生的，大家你们可以找资料去。有些你们能看到，有些你们看不到，但绝大多数你们都会知道的。三十七万人当时可记录的，可记录的啊，华人的资产无数被干掉，我有几个同事是从印尼当时来的，在我酒店工作，跟我讲述了他家里边发生的事情，哇塞，那更惨。今天此时此刻是全球性的，没有一个地方，包括昨天我跟那老挝咱的战友，这打榜的时候老挝一直一榜，包括那个缅甸，我说我告诉你，一定要相信，因为共产党制造这场的灾难，最终的账人家都算在中国人身上。
+几乎所有的金融机构，100％都不会告诉央行
+Almost all financial institutions will not tell the central bank
 
-视频剪辑：北方信使 | 听写：雨山溪桥客 | 翻译：Arthur | 校对： 红色马克杯 |字幕+视频制作：小腾腾说
+和当地监管机构、银监会、保监会
+and local regulatory agencies, the China Banking Regulatory Commission, and the Insurance Regulatory Commission the truth
+
+对，还有保险公司. 保险公司的钱，几乎大多数中国人的保险钱全进入房地产了
+Yes, there are insurance companies also. almost most Chinese people’s insurance were into the real estate
+
+你告诉我,中国除了房地产，你钱能去哪儿
+You tell me, where your money can go besides real estate in China
+
+中国保险公司总值多少钱？大家算一算
+How much is the total value of Chinese insurance companies? Let’s do the math
+
+中国所谓的社保基金才不到1000亿美元
+China’s so-called social security fund is less than $100 billion
+
+上万亿人民币，2000亿美元就搞社保了，它搞不起来
+let’s say one trillion of yuan, that only $200 billion on social security fund, and China can’t afford it
+
+那么整个保险基金
+Then the entire insurance fund
+
+几十万亿的保险基金绝大多数都已经作为担保和金融票据的担保和作为各种的基金对冲，都已经流入房地产了
+the vast majority of the tens of trillions of insurance funds have been used as guarantees and guarantees, financial instruments and as various fund hedges have flowed into the real estate
+
+这就是为什么中国有95万亿的房地产总值
+That’s why China has $95 trillion worth of real estate
+
+他所说的，官方承认65万亿
+What China said, the officially recognized of 65 trillion
+
+所以现在能救它只有一样
+So there is only one way to save China’s real estate industry now
+
+突然一夜之间冒出来100万亿美元，能把中共国给救了
+Another $100 trillion suddenly popped up overnight, then can save the CCP
+
+就是把美国、欧洲、日本所有的钱都给中共国
+Even all the money of the United States, Europe and Japan give to the Communist China
+
+然后这些人都饿死，一年内不吃不喝不拉，才能救他们
+and all these people from west countries starve to death, do not eat or drink for a year
+
+可能吗？
+Is it possible?
+
+原视频日期：2021/09/17
+原视频链接: https://twitter.com/se1y7cblljselva/status/1439525047224258561?s=24
+视频时间段 : 0:00-1:21
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

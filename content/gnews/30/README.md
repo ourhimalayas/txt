@@ -2,80 +2,80 @@
 ---
 
 
-## 装修公司、金融机构和保险公司的钱都流进房地产黑洞
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566414/)
+## 印尼排华事件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566519/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-1.jpg)https://gtv.org/video/id=61567025d2e2b817486fd8cb
-郭文贵：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-4.jpg)https://gtv.org/video/id=61567132d2e2b817486fd8fb
+郭文贵
 Miles Guo：
 
-那么刚才我在说到这个时候，大家想想
-So, I was talking about this just now, thinking about it
+有站出来说话的吗？没有人站出来说话
+Did anyone stand up and speak? No one stood up to speak
 
-这些装修公司，像金螳螂、三棵树，
-These interior decoration companies, like Golden Mantis, Three Trees,
+当时印尼杀害50万华人， 110万华人受害的时候
+When Indonesia killed 500,000 Chinese and 1.1 million Chinese were victimized,
 
-像中原建设、中国一建、二建、海建
-like Zhongyuan Construction, China Construction First, China Construction Second, Marine Construction
+美国人说一句话了吗？
+Did the American say a word?
 
-几乎所有人都掉到了房地产的黑洞里
-almost all of them have fallen into the black hole of China real estate
+欧洲人说一句话了吗？
+Did the Europeans say a word?
 
-几乎所有的金融机构，100％都不会告诉央行
-Almost all financial institutions will not tell the central bank
+你们问过这个问题吗？
+Have you asked this question?
 
-和当地监管机构、银监会、保监会
-and local regulatory agencies, the China Banking Regulatory Commission, and the Insurance Regulatory Commission the truth
+1998年呐
+The year of 1998
 
-对，还有保险公司. 保险公司的钱，几乎大多数中国人的保险钱全进入房地产了
-Yes, there are insurance companies also. almost most Chinese people’s insurance were into the real estate
+1968年， 1998年
+The year of 1968 and 1998
 
-你告诉我,中国除了房地产，你钱能去哪儿
-You tell me, where your money can go besides real estate in China
+这两个时间段
+These two time periods
 
-中国保险公司总值多少钱？大家算一算
-How much is the total value of Chinese insurance companies? Let’s do the math
+那人类还不至于说 （没有人敢站出来）
+Humans don’t even say (no one dares to stand up)
 
-中国所谓的社保基金才不到1000亿美元
-China’s so-called social security fund is less than $100 billion
+那是美国最强盛的时候
+America was at its strongest in that time
 
-上万亿人民币，2000亿美元就搞社保了，它搞不起来
-let’s say one trillion of yuan, that only $200 billion on social security fund, and China can’t afford it
+你两次杀害中国人
+Haji Mohammad Suharto killed the Chinese twice
 
-那么整个保险基金
-Then the entire insurance fund
+这么多残害和杀害
+So much cruel injuries and killing
 
-几十万亿的保险基金绝大多数都已经作为担保和金融票据的担保和作为各种的基金对冲，都已经流入房地产了
-the vast majority of the tens of trillions of insurance funds have been used as guarantees and guarantees, financial instruments and as various fund hedges have flowed into the real estate
+他们成为全世界有史以来最残忍的一次，人类大灾难
+They became the cruelest human catastrophe in the history of the world
 
-这就是为什么中国有95万亿的房地产总值
-That’s why China has $95 trillion worth of real estate
+有人说话吗？
+Does anyone speak?
 
-他所说的，官方承认65万亿
-What China said, the officially recognized of 65 trillion
+有人替我们华人说话吗？
+Does anyone speak for us Chinese?
 
-所以现在能救它只有一样
-So there is only one way to save China’s real estate industry now
+不要爱美国爱西方爱疯了
+Don’t love America and the West too much crazy!
 
-突然一夜之间冒出来100万亿美元，能把中共国给救了
-Another $100 trillion suddenly popped up overnight, then can save the CCP
+就资本主义的没有原则
+There is no principle of capitalism
 
-就是把美国、欧洲、日本所有的钱都给中共国
-Even all the money of the United States, Europe and Japan give to the Communist China
+还有他们根本不懂得东方
+And they don’t know the East at all
 
-然后这些人都饿死，一年内不吃不喝不拉，才能救他们
-and all these people from west countries starve to death, do not eat or drink for a year
+甚至不懂得苏联
+They don’t even understand the Soviet Union
 
-可能吗？
-Is it possible?
+他不知道共产主义的邪恶
+He doesn’t know the evil of communism
 
-原视频日期：2021/09/17
-原视频链接: https://twitter.com/se1y7cblljselva/status/1439525047224258561?s=24
-视频时间段 : 0:00-1:21
-英听校： 洛杉矶盘古农场 – Mike Li
-翻译： 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+原视频日期：2021/09/28
+原视频链接 https://twitter.com/se1y7cblljselva/status/1442805365972688900?s=24
+视频时间段 : 00:00-00:54
+英听校： 洛杉矶盘古农场 – Raul
+翻译： 洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
