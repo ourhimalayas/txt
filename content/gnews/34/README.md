@@ -2,25 +2,32 @@
 ---
 
 
-## 秘翻在线：如何中和mRNA疫苗带给身体的潜在危害
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1567296/)
+## 新南威尔士州政府官员威胁未接种者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567387/)
 
-翻译：Nstar
+栏目作者/责任编辑：DM
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-19.png)
+零对冲10月1日消息，澳大利亚新南威尔士州政府宣称，要对进入企业时未出示疫苗接种通行证的人进行监禁。
 
-校对：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-01-235352.jpg)图片来源：MedScape
-以下是来自网站“关于疫苗的真相”所收集到的建议: ** **
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5.jpeg)
 
-** 1 |碘 ** 甲状腺使用碘來制造甲状腺激素，甲状腺激素也可用于解毒有毒化合物并強烈增加 mRNA 衰減率。
+新南威尔士州客户服务部长维克多·多米内洛威胁称 ，使用假疫苗护照的人，将以欺诈罪逮捕。而那些试图不出示任何疫苗接种文件的人，也将被逮捕监禁。他重申，要向警方举报那些进入商店、餐馆和其他场所时拒绝出示疫苗接种文件证明的人。
 
-** 2 |锌 ** 锌使身体能够制造蛋白质和 DNA，有助于伤口愈合，并在儿童成长中发挥作用。其抗氧化特性有助于细胞的免疫功能并调节细胞因子的 mRNA 水平。
+在澳大利亚各地, 尚未接种疫苗的人不仅会受到公然歧视，新南威尔士州政府的该项政策, 将使得这部分民众无法进行基本的工作和生活，甚至会有牢狱之灾。这也将导致澳洲当地抵抗疫苗暴政的行动日趋激烈。
 
-** 3 |槲皮素** 槲皮素处理的中性粒细胞（一种类黄酮）表现出对各种促炎基因 mRNA 表达的显著抑制。
+(本文仅代表作者观点)
 
-** 4 |增压碳60（纳米碳活性炭）** 碳纳米载体可以提供小干扰 RNA (siRNA) 并实现无数植物生物技术 mRNA 应用，并且可以增强身体在健康和疾病状态下管理氧化应激的能力。
+参考链接：[Authorities Threaten Jail Time For Unvaccinated Aussies Who Try To Enter Businesses](https://twitter.com/zerohedge/status/1443762651104940033?s=21)
 
-**5 |PQQ（吡咯喹啉奎宁）** 在水果蔬菜和母乳中都可以找到的植物因子，是一种强大的抗氧化剂和细胞能量助推器，可支持产线粒体的健康，保护它们免受氧化损伤，甚至帮助生长新的线粒体。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-【以上观点未经专家鉴定，请谨慎参考】
+终审：文龍
+校正/发稿：谐趣园
 
-**[信息来源](https://thetruthaboutvaccines.com/stop-damage-mrna-vaccines/)**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
