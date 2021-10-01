@@ -2,21 +2,27 @@
 ---
 
 
-## 秘翻在线：欠债近2200亿的华夏幸福真准备还钱吗？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1567136/)
+## 高盛表示8.2万亿美元的威胁比恒大更严重
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1567217/)
 
-撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-责编：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-01-223321.jpg)
-根据2021年10月1日新浪报道，欠债近2200亿人民币的华夏幸福终于准备还钱了。此外，华夏幸福将于2021年10月8日开市起复牌。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV.png)
+文章仅代表作者本人观点，与Gnews无关
 
-华夏幸福在2021年初遭遇了困境，该公司旗下多只债券下跌，该公司的信用评级也被下调。华夏幸福董事长，河北前首富王文学（廊坊王）坦言公司陷入流动性危机。
+视频参看：2021.10.01早GTV新闻访谈
 
-从华夏幸福前10名股东持股情况来看，平安保险是其大股东。 华夏幸福的危机也引起了外界的关注，在地方政府的指导和支持下，公司初步拟定了债务重组计划。
+[https://gtv.org/broadcast/watch/6156fea1304e992109ad968b](https://gtv.org/broadcast/watch/6156fea1304e992109ad968b)
 
-华夏幸福通过出售了部分资产进行自救，但业界人士表示，短期华夏幸福仍需要借助银行信贷和战略投资者支持，来化解债务风险。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-郭先生直播提过习近平搞的雄安新区就是是“华夏幸福”最大的房地产项目，雄安将近40%的地是华夏幸福一个房地产公司开发的。马明哲⼤量资⾦投⼊华夏幸福，投的就是习近平。没想到破产了，钱去了哪里？曾家早已经把这里头的钱转移到了海外。中共国到处都是吸老百姓血的盗国贼公司！如今所谓地方政府支持债务重组计划也只不过是拖延战术，稳定民心，用新债还旧债，事实上老百姓的钱早已洗劫一空。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
 
-**[新闻来源](https://news.sina.cn/2021-10-01/detail-iktzscyx7372499.d.html?from=wap)**
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
