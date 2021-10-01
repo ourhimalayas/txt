@@ -2,32 +2,37 @@
 ---
 
 
-## 民调显示多数选民反对因拒绝接种而解聘雇员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567349/)
+## 中国南方年轻女子死于 H5N6 禽流感
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1567388/)
 
-栏目记者、责任编辑：AsG諾雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-17.png)
-布莱巴特9月29日消息，本周公布的一项州政府调查结果显示，大多数选民不支持以拒绝接种新冠病毒疫苗为由解雇工作人员。
+【评论： 】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1.jpeg)
+中共国政府一如既往地想瞒住病情，根本没有从新冠疫情带来的巨大伤害中吸取教训，再一次触动世界的神经。也许，中共研制的一款新型人传人禽流感冠状病毒已经在蠢蠢欲动。
 
-这项调查是由特拉法尔加集团完成的, 该集团被誉为被最准确的民调机构之一，调查于2021年9月17日至19日在选民中进行。其中，84%的共和党人不赞成因为拒绝接种疫苗而解雇人们，63%的独立人士和48%的民主党人也持相同观点。
+据《BNO新闻》2021年9月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2370.png)图片来源：《BNO新闻》
+香港卫生官员周三报道，在孤立病例增加的情况下，中国南部一名26岁的妇女死于H5N6禽流感。本月早些时候还报告了另外三起病例。
 
-美国国会行动组织主席马克-梅克勒在声明中表示，” 强制疫苗接种的目的不是免疫，而是为了让人们服从”。此次该民调的结果很明确，越来越多的美国人正站出来反对强迫接种疫苗，更不应该因为拒绝疫苗接种而影响到公民的工作生计。
+香港卫生署表示，已于周三获悉中国大陆广西壮族自治区桂林市的病例。当地官员没有立即发出消息。
 
-(本文仅代表作者观点)
+卫生部门表示，这名26岁的女子在8月14日出现症状之前曾接触过活家禽。五天后，她被送往医院，现已死亡。
 
-参考链接：[Poll: Majority Voters Say People Should Not Lose Their Job for Rejecting the Coronavirus Vaccine](Majority%20Voters%20Say%20People%20Should%20Not%20Lose%20Their%20Job%20for%20Rejecting%20the%20Coronavirus%20Vaccine)
+不知道为什么直到周三才向公众报告此案。世界卫生组织（WHO）的发言人没有立即回应置评请求。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+自2014年第一例H5N6禽流感病例以来，仅确认了46例人类感染H5N6禽流感病例，但其中近四分之一是在过去2.5个月内报告的。去年报告了至少22起病例，其中只有一例发生在中国。
 
-终审：文龍
-校正/发稿：谐趣园
+据世界卫生组织称，已知H5N6禽流感会导致所有年龄段的人患上严重疾病，并且已经杀死了一半以上的感染者。目前没有确诊的人传人病例。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“虽然最近发现的禽流感病毒目前不容易在人与人之间传播，但这些病毒在家禽中的持续传播令人担忧，因为这些病毒会导致人类严重疾病，并有可能发生变异，从而在人与人之间变得更具传染性。”世卫组织在其网站上说，“因此，世卫组织的突发卫生事件计划将持续监测人类禽流感病例。”
+
+文章来源：[https://bnonews.com/index.php/2021/09/young-woman-dies-of-h5n6-bird-flu-in-southern-china/](https://bnonews.com/index.php/2021/09/young-woman-dies-of-h5n6-bird-flu-in-southern-china/)
+
+（本文评论仅代表个人观点）
+
+翻译/评论：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

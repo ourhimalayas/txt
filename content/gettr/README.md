@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 6:50 PM (UTC)`
+
+经过DC农场战友们两个月的的努力，《百年百罪》全集终于面世了！我们都是业余选手，但我们是用心的！幸好有gnews和getrr，有郭先生引领的爆料革命，真相得以传播！让我们子子孙孙记住中共的罪恶，不让历史重演！<br/>庆父不死鲁难未已<br/>中共不灭灾难不止<br/><br/>特约配音：郭文贵<br/>https://gnews.org/zh-hans/1566979/<br/>【中共百年百罪】全集（1-101罪） 华盛顿DC农场系列纪录片，，特约配音：郭文贵。欢迎大家观看指正！ 谢谢🙏<br/>中文链接：https://youtube.com/playlist?list=PL90kFz9UQbWgxZRwZCISX7IjJjJWV3kKs<br/>https://gtv.org/video/id=613a4cb2784c5a2583543523<br/><br/>英文版：<br/>https://gnews.org/1567159/<br/>【Hundred Crimes of CCP in Hundred Years】A Docuseries Produced by HimalayaWashingtonDC<br/>English link： https://youtube.com/playlist?list=PL90kFz9UQbWhnVdi7BpR5gPmKEQ1QGzka<br/>https://gtv.org/video/id=613a4cee784c5a2583543532<br/>Produced by Himalaya Washington DC
+
+---
+
 `@miles 10/1/2021 3:12 PM (UTC)`
 
 以色列COVID-19 疫苗受害者证词(五）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
@@ -291,13 +297,6 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 
 9月28号：请教🙏🙏🙏这是否是我们战友开的餐厅？
 ![img](https://media.gettr.com/group2/getter/2021/09/28/15/20/1aa5c4d7-9a79-0606-d05c-baebdf10f282/b5a68f943b5fa8354b82e04c6e4ab435.jpg)
-
----
-
-`@miles 9/28/2021 3:14 PM (UTC)`
-
-9月28号：全世界有良知的人正在觉醒中。
-![img](https://media.gettr.com/group47/getter/2021/09/28/15/14/b1fb4ab1-b77e-83ef-0946-6fb0a6699402/out.jpg)
 
 ---
 

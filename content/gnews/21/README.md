@@ -2,19 +2,32 @@
 ---
 
 
-## 秘翻在线:大量科学研究证实，感染中共病毒后具有强大、持久的免疫力
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1567230/)
+## 民调显示多数选民反对因拒绝接种而解聘雇员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567349/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/epa-1-scaled.jpg)
-图片:网路
+栏目记者、责任编辑：AsG諾雅
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-17.png)
+布莱巴特9月29日消息，本周公布的一项州政府调查结果显示，大多数选民不支持以拒绝接种新冠病毒疫苗为由解雇工作人员。
 
-据《零对冲》的报导，9月30日美国参议员兰德·保罗(Rand Paul)斥责乔·拜登的健康与公共服务部长泽维尔·贝塞拉(Xavier Becerra )，指责他藐视科学，并剥夺美国人应有的自主医疗决定权，实质上就是威权主义。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1.jpeg)
 
-参议员兰德·保罗特别提到，美国政府拒绝承认感染过中共病毒的人体有自然免疫能力。保罗指出人体自然免疫可能比中共病毒疫苗更有效(事实上当然比中共病毒疫苗好千倍万倍)。他指责贝塞拉“侮辱了数百万美国人，包括已经感染并康复的 NBA 球星乔纳森·艾萨克。”
+这项调查是由特拉法尔加集团完成的, 该集团被誉为被最准确的民调机构之一，调查于2021年9月17日至19日在选民中进行。其中，84%的共和党人不赞成因为拒绝接种疫苗而解雇人们，63%的独立人士和48%的民主党人也持相同观点。
 
-保罗提到以色列最近的一项研究，该研究发现接种疫苗的人感染中共病毒 (COVID-19) 的可能性是具有天然免疫力的人的 7 倍。他随后质问不是医师也没有科学学位的贝塞拉凭甚么做出如此离谱的决定?“这是一种傲慢，更是违反美国民主精神的威权主义。 ”保罗抨击道。“先生，你完全无视科学的存在。大量科学研究表明，感染中共病毒后的人具有强大、持久的免疫力，”参议员进一步指责，并要求贝塞拉为自己的不诚实而道歉。
+美国国会行动组织主席马克-梅克勒在声明中表示，” 强制疫苗接种的目的不是免疫，而是为了让人们服从”。此次该民调的结果很明确，越来越多的美国人正站出来反对强迫接种疫苗，更不应该因为拒绝疫苗接种而影响到公民的工作生计。
 
-然而，一个没有科学及医学背景的律师成为健康与公共服务部长，如果他不是太优秀，就只能是被操纵的木偶，背后的暗黑势力才是真正的主谋及凶手。
+(本文仅代表作者观点)
 
-消息来源:[Watch: Rand Paul Blasts Biden Health Secretary – “This Is Arrogance Coupled With Authoritarianism That Is Un-American”](Rand%20Paul%20Blasts%20Biden%20Health%20Secretary%20-%20&quot;This%20Is%20Arrogance%20Coupled%20With%20Authoritarianism%20That%20Is%20Un-American&quot;)
+参考链接：[Poll: Majority Voters Say People Should Not Lose Their Job for Rejecting the Coronavirus Vaccine](Majority%20Voters%20Say%20People%20Should%20Not%20Lose%20Their%20Job%20for%20Rejecting%20the%20Coronavirus%20Vaccine)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龍
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,43 +2,46 @@
 ---
 
 
-## 在今天这第72个国殇日里大连和烟台下起了冰雹
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566717/)
+## 96岁的前纳粹秘书在受审当天逃离疗养院后被捕
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1566722/)
 
-2021年10月1日是大陆人民迎来的第72个国殇日，在这个国殇日里，大连和烟台人民看到的不是秋高气爽更不是云淡风轻，而是局部的冰雹甚至是鸡蛋大的冰雹。
+- 编译：西班牙喜悦农场–wenwu
 
-据[**沸点视频**](https://weibo.com/5145725878?refer_flag=1001030103_) [2021年10月1日12:38](https://weibo.com/5145725878/KAHsHhHZM?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-【[#大连下*冰雹*部分航班延误取消#](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E8%BF%9E%E4%B8%8B%E5%86%B0%E9%9B%B9%E9%83%A8%E5%88%86%E8%88%AA%E7%8F%AD%E5%BB%B6%E8%AF%AF%E5%8F%96%E6%B6%88%23)：部分航空器不同程度受损】10月1日，辽宁大连出现强降雨并伴有*冰雹*。[#大连突下*冰雹*超鸡蛋大#](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E8%BF%9E%E7%AA%81%E4%B8%8B%E5%86%B0%E9%9B%B9%E8%B6%85%E9%B8%A1%E8%9B%8B%E5%A4%A7%23)。很多市民被*冰雹*声吵醒。一夜过后，市民起床后发现自己的车被*冰雹*砸伤、车玻璃被砸碎，车体被砸凹陷。有市民称，在大连市区居住几十年，从未见过这么大的*冰雹*。据大连国际机场官微通告，受突发*冰雹*极端天气影响，造成部分航空器不同程度受损，导致部分航班延误、取消。[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [2大连](https://weibo.com/p/1001018008621020000000000) [L沸点视频的微博视频](http://t.cn/A6MfBLeb)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-14.png)
 
-另据[**印象烟台**](https://weibo.com/2266260155?refer_flag=1001030103_) [2021年10月1日14:06](https://weibo.com/2266260155/KAI2jbDFn?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+[据法新社报道](https://news.yahoo.com/former-nazi-death-camp-secretary-015110785.html?fr=sycsrp_catchall)，一名 96 岁的[纳粹](https://www.businessinsider.com/auschwitz-photos-nazi-camp-history-liberation-anniversary-2020-1?r=US&amp;IR=T)集中营指挥官的前秘书 Irmgard Furchner 将于周四（30日）在德国接受审判，她从疗养院逃跑，但在几个小时后被捕，现在法庭决定是否将她拘留；[据美联社报道](https://apnews.com/article/europe-crime-trials-courts-germany-6e3b2dc5f61d24e3b658ad3bac0b48ec)，这名高龄妇女的纳粹身份被德国媒体核实，并面临超过1.1万项谋杀从犯的指控。
 
-晴天霹雳！！今天上午*烟台*蓬莱区遭遇*冰雹*天气！目前正值*烟台*苹果成熟期……哎！你那里下*冰雹*啦嘛？[#*烟台冰雹*#](https://s.weibo.com/weibo/%23%E7%83%9F%E5%8F%B0%E5%86%B0%E9%9B%B9%23) [#*烟台*人的海鲜日常#](https://s.weibo.com/weibo?q=%23%E7%83%9F%E5%8F%B0%E4%BA%BA%E7%9A%84%E6%B5%B7%E9%B2%9C%E6%97%A5%E5%B8%B8%23) [L印象*烟台*的微博视频](http://t.cn/A6MfezY6) ​
+据《Der Spiegel》报道，她原定于周四在德国北部的伊策霍州法院出庭，但从未露面；她周四一早离开了养老院，乘坐出租车前往附近的地铁站。很快，她就被找到了；法官 Dominik Gross 周四上午在法庭上宣布 Furchner 失踪，并补充说：“被告现在是逃犯，法庭已发出逮捕令。”
 
-据[**中国气象爱好者**](https://weibo.com/1763864272?refer_flag=1001030103_) [2021年10月1日16：43](https://weibo.com/1763864272/KAJ4j3IYK?from=page_1005051763864272_profile&amp;wvr=6&amp;mod=weibotime)
+国际奥斯威辛集中营委员会副主席克里斯托夫·赫布纳说，这次越狱企图表明是“对幸存者和法治的蔑视”。
 
-[#*烟台冰雹*#](https://s.weibo.com/weibo/%23%E7%83%9F%E5%8F%B0%E5%86%B0%E9%9B%B9%23) 来自qq粉丝投稿，今天鲁东大学鸡蛋大的*冰雹*，会不会是雪莲的味道？
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001VmZFKly1guzwgtwe7cj60p80pwjsj02.jpg)
-在中共准备9月份的第一次攻台前后天安门降下了黑天鹅，作为中共根器的延安窑子洞垮塌，中共的太祖毛贼东纪念堂出现天灯坠落，而在今天，在中国人民的第72个国殇日里，在大连和烟台降下的冰雹无论如何不能称作天降祥瑞，天怒人怨的中共还有几天阳寿我们不得而知，但是这冰雹光顾之下对于等待收获的庄稼和苹果绝对不是好消息。
+上周，Furchner 给法官 Dominik Gross [写了一封信](https://www.spiegel.de/panorama/justiz/irmgard-furchner-ehemalige-kz-sekretaerin-schreibt-brief-an-den-richter-a-23ea17a0-e888-4011-b704-a23704921ef5#bild-73100b92-c859-453f-8b0b-f1f4ab85911e)，说她出于健康原因不想出庭；据《[图片报](https://www.bild.de/regional/hamburg/bremen-aktuell/paukenschlag-zum-prozess-auftakt-in-itzehoe-angeklagte-kz-sekretaerin-auf-der-fl-77828838.bild.html)》报道，她在信中说：“我想避免这些尴尬，不要让自己成为笑柄。”
 
-撰稿：喜马拉雅的肉夹馍
+据《[明镜周刊》报道](https://www.spiegel.de/panorama/justiz/kz-stutthof-sekretaerin-von-kommandanten-irmgard-furchner-stenotypistin-des-grauens-1623060543-a-9777266e-75a4-4d28-ab01-095f9fba08b9)，Furchner 18 岁时开始在[纳粹占领的波兰的](https://www.insider.com/germany-100-year-old-former-nazi-death-camp-guard-trial-2021-8)斯图特霍夫集中营曾担任，前纳粹党卫军指挥官保罗·沃纳·霍普（Paul Werner Hoppe）的秘书；霍普作为纳粹集中营指挥官，编写了处决命令、开往奥斯威辛集中营的火车的驱逐清单，以及在纳粹集中营毒气室进行大屠杀的指示。报道称，Furchner 以信件和无线电信息的形式，传达了他的命令。
 
-审核：喜马拉雅的馍夹肉
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-15.png)
 
-校对：Maarago
+据美联社报道，在过去的纳粹审判中曾作为证人接受讯问时候的 Furchner 声称，她此前不知道她在那里工作时，在集中营所发生的杀戮事件。
 
-（文章内容仅代表作者个人观点）
+她是几十年来第一位因第三帝国的罪行而接受审判的女性。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**简评：**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**早在国殇日前十年，欧洲出现了一个纳粹德国，该组织以发动世界大战和屠杀犹太人而闻名。现今全世界对该邪恶组织的追杀仍为停止，并且如今已经没有人敢说自己是纳粹了，但这并不意味着纳粹的种子被拔除了（邪恶的华尔街并没有被定罪）。**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+**另一方面，据2021年9月30日《耶路撒冷邮报》[报道](https://www.jpost.com/international/leader-of-neo-nazi-group-convicted-of-five-federal-felonies-680735)，美国司法部周三（29日）的一份声明表示，新纳粹组织“[原子武器](https://www.jpost.com/international/transgender-ex-neo-nazi-wont-face-prison-time-already-suffered-enough-663842)”的领导人被判犯有五项联邦重罪。 **
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+**25岁的新纳粹组织“原子武器”领导人卡莱布·科尔(Kaleb Cole)和其他四人去年被指控对记者和反诽谤联盟(Anti-Defamation League)的雇员进行网络跟踪，并发送写满纳粹标志的海报。一张海报还被粘在《犹太生活方式杂志》的一个编辑的卧室窗户上。该海报包括”你已经被当地的纳粹分子拜访了”这句话。最终，他在为期两天的审判后被判刑**。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**中共是人类历史上比纳粹邪恶万倍的跨国犯罪组织。新中国联邦不仅会让中共受到应有的法律制裁和遗臭万年，更有有责任让中共的犯罪分子永远在历史长河中被唾弃。**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+（文章仅代表作者观点 与GNEWS无关）
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：《[内幕信息](https://www.insider.com/former-nazi-concentration-camp-secretary-due-on-trial-missing-report-2021-9)》｜作者：索菲亚·安克尔&丽贝卡·科恩｜发布时间：2021年9月30日
+
+* * *
+
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
