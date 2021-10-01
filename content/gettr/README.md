@@ -81,15 +81,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@wenzhe 9/30/2021 11:38 AM (UTC)`
-
-My son is dead, he's dead, he's been vaccinated, he's dead in two days.Government agencies are lying to you.<br/>我兒子已經死了，他死了，他接種後死了，他打了疫苗在2天內死亡。政府機構正在騙你們.
-![img](https://media.gettr.com/group30/origin/2021/09/30/11/38/7c8529e1-be18-ceab-4fae-6ac20986690d/out.jpg)
-
----
-
 `@miles 9/30/2021 12:10 PM (UTC)`
 
 9月30号：所有孙力军这些犯罪行为内容……在2017，18年文贵都在直播当中都说到了！孙力军的这些行为。这些官方公布的资料只是孙犯罪的冰山一角。这说明孙力军的犯罪势力集团，还在垂死挣扎中，从这些公布的案情信息来看……很有可能还会反复，等他们判决后，文贵会公布孙在海外的资金，关系网，和藏匿的大量的共匪，各个方面．及重大案情等绝密信息，绝对会震撼世界。孙力军案，将使我们爆料革命，走向新的一个世界级爆料高度。我们等待的就是这个时刻，就是要等他们潜伏的力量在这个案情审理当中暴露出来，才能显示出我们掌握的情报和信息的力量。从这些公布的虚假的文字游戏当中完全是迷惑对方．欺骗老百姓游戏，说明习根本控制不了政法委，和中纪委，甚至中南坑他也没有绝对控制。孙力军的真正的罪行，根本没有触及，特别是杀人，绑架，大量的海外资金信托．由钥匙🔑澜代持！海外现金就超过300亿美元，代词的股份价值达1200亿美元以上，这里根本没有涉及到。
@@ -300,6 +291,13 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 
 Dr. Pierre Kory during the senate hearing: immerse amount of data have shown that Ivermectin is a life-saving early treatment against Covid-19<br/><br/>皮埃尔·科里医生在参议院听证会上：大量数据表明，伊维菌素是早期治疗中共病毒的救命药
 ![img](https://media.gettr.com/group19/getter/2021/09/28/09/24/52ea0b21-8e74-763b-c0f7-7017adb8d4f2/out.jpg)
+
+---
+
+`@miles 9/28/2021 5:30 AM (UTC)`
+
+An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一位愤怒的恒大女投资人在会议上对许家印破口大骂
+![img](https://media.gettr.com/group46/getter/2021/09/28/05/30/5978537a-4d44-1992-f95e-dcc715cf99bd/out.jpg)
 
 ---
 
