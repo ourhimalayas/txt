@@ -2,25 +2,245 @@
 ---
 
 
-## 2021年9月30日郭先生盖特 — 视频盖特1「10分00秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1565919/)
+## 医生谈疫苗如何损伤人体自身的免疫力
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1565937/)
 
-听写：洛杉矶盘古农场 — Antsee-GTV
+Okay so I am a natural doctor
+我是一名自然疗法医生
+and I have 1600 patients
+我有1600个病人
+Many are vaccinated
+许多人都接种了疫苗
+Just to give you a little backstory about my credibility
+我只想给你讲讲我的信誉的背景情况
+What I have seen so far and what I’ve learned
+到目前为止，我所看到的和我所了解到的情况
+Is all information from
+所有的信息都来自
+Physicians
+医生
+Medical Physicians
+内科医生
+Natural physician,
+自然疗法医生
+and also immunization, or virology doctors
+还有免疫，或病毒学专科医生
+and also nurses.
+以及护士
+So what I’m about to share with you is the
+因此，我即将与你分享的是
+The first vaccine, the second vaccine
+第一针疫苗， 第二针疫苗
+and then the boosters
+然后是增强剂
+and what it does to your body.
+以及它们对你的身体的影响
+The first vaccine
+第一针疫苗
+As it goes into your body
+当它进入你的身体时
+It has a small amount of saline
+它有少量的盐水
+And then a bunch of ingredients that are very
+还有一堆对你的细胞系统有非常
+Catastrophic to your cellular system.
+灾难性影响的成份
+What that does to your immune system,
+这对你的免疫系统有什么影响？
+which is your bone marrow,
+也就是你的骨髓。
+your thymus gland, your spleen,
+你的胸腺，你的脾脏。
+and all other systems associated with your immune system,
+和所有其他与你的免疫系统相关的系统。
+It decreases the ability to produce
+它使生产白细胞的能力下降了
+white blood cells by 50% from your first vaccine
+从第一针开始生产白血球的能力下降了50%
+Then 8 weeks later
+然后八周后
+which is white blood cells reproductive system
+这就是白血球的再生系统
+So your ability to make another generation
+身体制造另一代白血球的能力
+of white blood cells is 8 weeks,
+所需要的时间是八周
+that’s why they set it up eight weeks later to hit it again
+这就是为什么他们设置了8周后再打一针疫苗
+So you hit the white blood cell ability while it’s down
+所以你在白血球能力下降的时候打击它
+So now what they do is now they
+所以现在他们所做的是
+decrease the saline in a second one
+在第二针中减少盐水的用量
+and they increase the harmful ingredients
+并增加有害成分
+So now you have a shift in the ingredients so they
+所以现在有了一个成分的转变，他们
+decrease the saline and increase
+减少盐水成份，增加（其它成分）
+so now there’s a shift
+所以现在有了一个转变
+And then what they do is that
+然后他们所做的是
+The second dose attacks your ability to make
+第二针疫苗攻击你制造白血球的能力
+white blood cells by an additional 25%.
+达另外一个25%
+So now you only have a white blood cell
+所以现在你的白血球
+like the ability to make white blood cells
+以及制造白血球的能力
+functioning at 25%
+只有25%
+So you just wiped out 75% of your military
+所以你刚刚消灭了你75%的免疫防御能力
+and the ability to make that military
+和制造这种免疫力的能力
+Then what they do is they set in the
+然后他们所做的是设置了
+booster
+增强剂
+The booster has 81 strands of
+增强剂里有81种
+Foreign bacteria that your cells have
+外来的细菌，你的细胞
+never come across so you don’t have
+从来没有遇到过，所以你没有
+the antibodies to fight it
+抗体来对抗它
+You only have 25% of your white blood cell production
+你只有25%的白血球产量
+to be able to fight it so it’s a losing battle
+能够对抗它，所以这是一场失败的战斗
+so then what starts to happen is you get chronic inflammation
+因此，你开始产生慢性炎症
+that goes to the areas that you had a predisposition
+而这些慢性炎症会出现在你身体抵抗力薄弱的的区域
+So if you are someone that has gut health issues
+因此，如果你是一个有肠道健康问题的人
+that’s your area that it’s going to focus on
+它将专注于你的消化系统
+and you’re going to have inflammation in the gut health
+于是你将会有肠道的炎症
+If it’s respiratory if you have
+如果是呼吸系统，如果你有
+Tumour or cancer, or if you have
+肿瘤或癌症，或者如果你有
+say endometriosis, or you have a skin condition
+比如子宫内膜异位症，或者你有皮肤病
+Whatever that is it’s going to inflame that area
+不管是什么，它都会使该区域发炎
+Because now the body has hit the sympathetic nervous system
+因为现在身体交感神经系统已经开始起作用了
+which is the fight-or-flight and a body is in a chronic
+也就是战斗或逃跑，身体处于一种慢性的
+inflammatory state
+炎症状态
+With low immunity and low immune response
+处于低免疫力和低免疫反应状态
+Then you get your second booster
+然后，你会得到你的第二个增强剂
+the second booster has eight strands of HIV and
+第二个增强剂有八种HIV毒株
+Now, what that does the completely shuts off your ability
+现在，它的作用是完全关闭了你
+to make white blood cells.
+制造白细胞的能力
+If you Googled what that disease is, it is HIV (AIDS).
+如果你在谷歌上搜索这种疾病是什么，那就是艾滋病（获得性免疫缺陷综合征）
+So now we have people that are walking around with no
+因此，现在我们有一些人走来走去，他们没有
+immune system no ability to make an immune system
+免疫系统，没有能力制造免疫系统
+81 strands of foreign bacteria
+81种外来细菌
+And then also 8 strands of foreign HIV
+然后还有8种外来的艾滋毒株
+Along with all the other harmful ingredients
+还有其他所有的有害成分
+and then they remove all the saline from the
+然后他们把所有的生理盐水从
+the first and second booster
+第一个和第二个增强剂中移除
+Now to make matters worse
+现在事情变得更糟
+During this process
+在这个过程中
+20-30% of the population is going to die
+20-30%的人将会死亡
+Every single series of this process
+这个过程的每一个系列
+There’s 4 series
+有4个系列
+They have three more boosters that are coming out
+他们还有三个加强针即将问世
+And the reason why
+之所以如此
+Is because once they make you
+是因为一旦他们让你
+So that your immune system
+使你的免疫系统
+Can’t make white blood cells anymore
+不能再制造白血球
+You become dependant on the boosters
+你就会变得要依赖加于加强针
+to survive just like someone becomes
+来生存，就像有人变得
+dependant on insulin
+依赖胰岛素生存
+Big Pharma is looking for
+大药厂正在试图让
+people that either die-off
+人们或者死去
+to protect our population control
+来保护人口控制
+and those that don’t die off
+而那些没有死去的人们
+We will have a recurring customer for life
+我们将拥有终身的重复性客户
+With the boosters
+靠着这些增强针
+So that they will be able to maintain
+这样他们就能保持
+income and collect the money back
+收入，并把早期投入
+from all the funding that they put in
+制造疫苗的资金成本
+to make these vaccines in the first place
+收回
+So hope that was helpful, I hope that you
+所以，希望这对你有帮助，我希望你
+listen to this properly and I hope that you
+好好听一下，我希望你
+take the time to do your own critical thinking and
+花时间做你自己的批判性思考，并且
+Just Give It 2 to 3 years.
+给它2到3年时间
+Every single animal that participated in the study
+凡是参加这类疫苗研究的每一只动物
+for any of these vaccines
+had a 100% death rate
+都有100%的死亡率
+And I encourage you all to
+我鼓励你们所有人
+Just take a moment look around you
+花点时间看看你周围
+And just wait it out
+并等待它的到来
+And let’s just see,
+让我们拭目以待
+Let nature take its course and let’s just see what happens
+顺其自然，让我们看看会发生什么
+Thank you
+谢谢！
 
-Video link: [https://gettr.com/post/pclmgqf8e2](https://gettr.com/post/pclmgqf8e2)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/686CDF0B-B3AE-4E60-9F33-1B94CD4BB930.png)
-尊敬的战友们好，今天是9月30号，马上就要进入10月了。昨天到今天，我们要看到世界上最重要的还是疫苗 — 到底要不要强制打疫苗？咱们“以疫苗灭共”这个事现在越来越大，越来越大。我相信大家也都越来越看到这个感觉了。兄弟姐妹们，永远不要懒，永远不要得意。我们全球战友，特别是欧洲政治组的战友，这么多人没日没夜的工作 — 在日本，在台湾，在东欧，在南欧，在西欧，所有的！特别是在加拿大和美国的这些战友们默默的工作着。我们就给这些官僚们给这些王八蛋的所谓专家门，让他们知道现在真正疫苗的死亡真相和「打疫苗后的」反应就足够了。
+* * *
 
-7哥昨天直播中说的 — 拿到这些真相只有两个选择：完全把它忽视掉，那未来知道后是犯罪；第二，你面对，那就得有回应。不需要大炮也不需要核武器就能打到敌人 — 这是最巧妙的，是我们对待坏人的超限战，一定要做下去兄弟姐妹们，一定要广泛在GETTR，在G-News在G-TV和所有的社交媒体 — 能有的范围内把那些“以身说疫苗的坏处”的视频和那些证据和信息发到尽可能多的公共媒体上去。你每天多做一次，就做了一次菩萨。你都不知道将会发生多大的事情！我们爆料革命和新中国联邦在这次的“以疫苗灭共”和拯救全人类上是树立新中国联邦人形象，也是未来考验新中国联邦人对人类，对社会，对家人，对朋友，对自己，对世界观，对人生观的真正的判断的标准。
+视频剪辑/字幕 Kent
 
-昨天晚上我大概4点钟醒来到现在都没睡。我看到欧洲的和亚洲的，像我们在越南的朋友，像我们泰国的战友，像台湾的战友「工作着」。像日本的战友仅昨天一天就发出一万多份 — 官方给各媒体和给各所谓专家和机构发出的各种视频和材料。太感动了！就连日本政府的官员都给我发信息，还有给咱们秘密小组的发信息，都说，“看到这些信息和资料，任何一个有良知的人都不能不面对到底疫苗是什么东西？到底疫苗该不该打？疫苗一定不能强制打，特别不能给孩子打，给孕妇，打给老人打” — 从昨天到今天。有一个母亲，孩子6岁，母亲打了疫苗死掉了。还有很多一家死好几口。这个是咱们的大事儿，兄弟姐妹们，没有比这再重要的 — “以疫苗灭共”。
+文字翻译 云起时
 
-然后再看中共的经济，然后再看中共的野心，再看中共的内斗 — 中共的一切都请关注二十大。想想十八大、十九大、二十大，兄弟姐妹们，几乎咱们大家可以说是共同关注的。十八大换上了“习—王”政府，中国进入了一个黑云遮日「的时代」 — 全人类现在都凶多吉少。然后大家跟我一起看了十九大 — 郭文贵和爆料革命成了他们的威胁，看到了刘彦平、孙立军、孟建柱之嚣张。你们很多都没有经历过，没看到过孟建柱当年去德国去欧洲开国际刑警组织会议，去土耳其，到中东去那排场。不敢让习近平和王岐山知道，但是孟建柱私下的享受，要求的地方都比习的都高 — 除了没有马呀、车呀、仪仗队呀，都高的很。有些人给孟建柱送表，送了两三盒表，在一个酒店里边。孟建柱把两三盒表全送给当地的官员了，送给大使了。那人家当地那国家是100多万美金一盒，300万美金的表，孟建柱看看说就不拿回去了，都有了，都发了吧。这就是孟建柱。什么概念？再想想当年孟建柱到某个国家去，那各国的司法部门、情报部门的重视是什么概念？
+文字校对：MyWay
 
-王岐山是你看过去几年只要习近平去的国家王岐山马上去。王岐山去表面上政治上是跟随 — 就是跟着第1号的，实际上就是2号，私下全埋了钉子了。到现在“习一神”都不知道咋回事。2017年，7哥说孟建柱和王岐山的时候，孟建柱和王岐山在中南海是门对门。你看人家两人这咔咔咔勾兑的，是吧？只有亲身经历过的人才懂在中南海“门对门”的概念。孟建柱不在公安部办公，是在中南海办公。
-
-除此之外，大家看到昨天正式公布孙立军被移送司法机关，是吧？很多战友给我发信息说过去一星期在社交媒体上，攻击7哥和和爆料革命的5毛少了70%以上。说就跟孙立军有关，其实跟孙立军半毛关系都没有。孙立军已经是在这过去的六七个月逐渐在消减，主要是跟海航和王岐山有莫大的关系 — 攻击咱们还主要是王岐山和孟建柱。说明孟建柱王岐山可能还有动作，这两人可能要有问题。但是看了孙立军的公告写得“咬牙切齿”的 — 藏匿资料，结党营私，买官卖官，巨额财富，生活非常淫乱，然后还在很多支付的各种场所，就差没说“双修”到无处不在的点了，然后公安部八局成了什么样子了，然后在香港什么样，在上海什么样……
-
-重点的事情，战友们，你看到没有？三大问题它绝对没敢提：杀人绑架是孙立军过去干的 — 不是十起，不是一百起，而是百起以上。杀人是很多人在监狱里知道这人可能判10年，或者是可以回家的 — 弄死你，财产全收了，杀人抢钱！这里绝对没有提。这是死罪呀，没有吧？第二，在中南坑中南海，看到没有它是隐喻的说了藏匿私人重要的信息和私人机密材料，没有说监听监控。说用超级警察手段搞政治 — 没有说到点子上，都是点到为止。否则在中共中央里边应该说什么话？试图颠覆政权，谋杀领导，但这些都没说。谋杀暗害领导是大事，但没有提。谋杀暗害一定不是一个人，一定是多人。在监狱里把本来该回家的犯人给图财害命，全家灭了一定是多人作案，也没提。第三，监控中央领导人家里多年的私人隐私，录像监控，包括双修视频，没有！那不是一个人作案。
-
-北京公安局的李东，我2017年就说过，我现在都不说了。李东是河南人，跟吴征是生死兄弟。李多原话，那时候孙立军还不是公安部副部长的时候，他说孙立军要当官部副部长了，你弄啥呢？那是孟建柱和王岐山公认的枪靶子。光杨澜一个人在美国那个Digital AI公司，数据公司，就拿走了34亿美元。你们上网可以查一查。这家公司吴征最起码2到3次辞职又进去 — 当CEO。34亿美元卖给了阿里巴巴，阿里巴巴就等于送线。仅这一家公司就34亿美元。仅杨澜，“钥匙澜”就300多亿。光吴征在海外持有的股权，像湄公河，泰国，缅甸，台湾的黑帮，整个包括俄罗斯这一带都1000多亿美元。这是2015年的年底，2016年跟我说的。现在李东在哪儿呢我都不知道。2016年到现在，孙立军、和孟建柱、王岐山都干了啥？中国只要孟建柱、孙立军、王岐山，还有周亮，还有曾庆红在，反腐就是扯王八犊子的事儿。所有孙立军的公告证明了孙立军的势力更强大，无处不在。
+编辑/发稿 云起时

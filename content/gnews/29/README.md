@@ -2,10 +2,10 @@
 ---
 
 
-## 日本全国平均最低工资上调至历史最高纪录达930日元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1565746/)
+## 中共中纪委网站刊登通报：孙力军被双开
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1565753/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/10._1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1001.png)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*

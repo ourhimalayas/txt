@@ -2,36 +2,33 @@
 ---
 
 
-## 2022 北京冬奥会将在没有外国观众的情况下举行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1565626/)
+## 美国政府将在三周内耗尽现金无法支付账单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1565627/)
 
-栏目记者：新世界的一员
-责任编辑：文仁
+栏目记者/责任编辑：文真
 
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture33.jpg)
-据【法新社】报道，国际奥委会执委会 9 月 29 日（周三）举行会议，审议明年2月举行的北京冬奥会及冬残奥会的疫情防控政策。并在会后宣布，由于新冠病毒疫情，预定于2022年2月4日至20日举行的北京冬奥会，将在没有外国观众的情况下举行。
-
-郭文贵先生于今年8月4日签署了新中国联邦的一份重要文件，向世界呼吁取消北京冬奥会的举办权。希望世界上正义的人士一起能尽早醒悟，认清中共的丑陋本质和邪恶的用心，一起抵制 2022 北京冬奥会，避免中共利用冬奥会再次放毒祸害世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture44.jpg)
+9月28日在参议院银行委员会上，美国财政部长耶伦警告立法者，除非国会迅速采取行动增加政府的借贷权限，否则联邦政府可能在10月18日之前，因缺乏现金，无法支付账单。 此前，在国会就所谓的债务上限问题僵持不下。9月27日，参议院共和党人阻止了一项提高或暂停债务上限的措施。周二股市随之大幅下跌，而政府债券的收益率上升。 耶伦明确表示，如果不能在10月中旬之前达成协议，使联邦政府借到更多的钱，将导致美国历史上首次违约。社会安全福利，儿童福利，政府雇员和军队薪金将会停发。这对美国经济、全球金融市场以及数百万家庭和工人来说都是灾难性的。 新冠疫情的持续和高通胀的冲击下，美国政府和个人消费者的借贷大幅上升，创历史新高。自09年金融危机以来，依靠QE借贷刺激经济的模式，已经濒临绝境。
 
 （本文仅代表作者观点）
 
-参考链接：[2022 北京冬奥会将在没有外国观众的情况下举行](https://amp.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210929-%E5%9B%BD%E9%99%85%E5%A5%A5%E5%A7%94%E4%BC%9A-2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%B0%86%E5%9C%A8%E6%B2%A1%E6%9C%89%E5%A4%96%E5%9B%BD%E8%A7%82%E4%BC%97%E7%9A%84%E6%83%85%E5%86%B5%E4%B8%8B%E4%B8%BE%E8%A1%8C?__twitter_impression=true)
+参考链接：[美国政府将在三周内耗尽现金无法支付账单](https://www.npr.org/2021/09/28/1041126764/janet-yellen-jerome-powell-debt-ceiling-standoff%20https://gettr.com/post/pcjqsv6a51)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/M9-3.jpg)
 
-终审编辑：Q大哥
+终审编辑：鬼五
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)

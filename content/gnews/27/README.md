@@ -2,27 +2,49 @@
 ---
 
 
-## 中共“国庆”前夕 香港强力威吓打压异议声音
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1565761/)
+## 中共迫于人口低生育压力被迫废止部分计生恶法
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1565788/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16330517721.png)
-据美国之音10月1日报道，在中共非法政权“国庆日”到来前夕，香港当局决定9月30日和10月1日向街头增派8000名警察，多于2019年“十一”期间的6000名警察。同时，纪念中共1989年调遣野战军镇压天安门民主行为的网上博物馆在香港被屏蔽。港人必须要向中共国大陆网民那样使用翻墙软件才能进入。此外，香港立法会还通过一项议案，禁止在网络上焚烧、毁损等亵渎中共国旗，违者将被处监禁3年。
-
-中共当局多年来设立所谓的防火墙，又称信息柏林墙，对中共国大陆网民实行严格的网络管控。如今香港用户也需要用翻墙软件才能登录网上八九六四博物馆，显示了香港在网络信息控制方面进一步向中共大陆和“一国一制”靠拢。
-
-中共一直想收回香港和台湾并实行和大陆一样的严格监管。如今香港已经沦陷，中共对台湾的威胁与日加增。自由世界还能够忍受中共多久？但愿人民能够早日清醒，让邪恶中共度过世上最后一个冥诞“国庆”。
-
-新闻参考链接：[https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html](https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+在中共治下，中共国内的生存环境日益恶化。据悉，对于墙内90后及00后的一代年轻人，他们的结婚以及生育愿望很低。据中共官媒的消息称，中共国目前已经有149个城市进入“深度老龄化”，而这些城市主要集中在东北、中部、长三角、黄河中下游以及成渝城市群地区。
+
+![](https://s.rfi.fr/media/display/b2dc6c42-1282-11ea-9fbc-005056a99247/w:1280/p:16x9/p1201871a831594630-ss.webp)图源网络
+
+为此，迫于人口老龄化和低生育的压力，中共打着“优化生育政策，促进人口长期均衡发展”的旗号，不得不废止了《计划生育技术服务管理条例》、《社会抚养费征收管理办法》和《流动人口计划生育工作条例》等三项计生恶法。
+
+事实上，中共实行计划生育恶法的这40年来，已经有约4亿左右的无辜婴儿被残忍杀害，造成了无数的人间悲剧。更可悲的是，对于孩子的生育与否，中国老百姓完全没有自己做主的权利，一切都是共产党说了算。至于中共，从其最初的严格计划生育政策，到后来取消二胎惩罚措施，而今又允许民众生育三胎并予以奖励，民众可谓被中共的朝令夕改玩弄于鼓掌之间，毫无人权与自由。现今，墙内民众对鼓励生育政策的相应者寥寥无几，中国的生育率持续下滑。
+
+归根究底，共产党用实际行动表明了，它们就是“上管天、下管地、中间还管生殖器”的彻头彻尾的独裁恐怖组织。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+国务院决定废止《流动人口计划生育工作条例》等行政法规\_https://m.nbd.com.cn/articles/2021-09-26/1926245.html
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
+
+***编辑/校对/发稿：Irene木木***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
