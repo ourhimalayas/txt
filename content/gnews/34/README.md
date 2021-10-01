@@ -2,30 +2,45 @@
 ---
 
 
-## 保存好你的证据等待即将到来的纽伦堡大审判
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1565673/)
+## 众议员加拉格尔和参议员汤姆·科顿呼吁拜登政府将与中共相连的生物技术公司列入黑名单
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1565822/)
 
-翻译：喜国公民
-视频来自网络
-大家好，我是来自南澳大利亚的蒂姆-德怀尔。背景中的图片是国际法院，有一个非常非常好的理由把它放在那里。
+众议员加拉格尔新闻办： 众议员加拉格尔和参议员汤姆·科顿呼吁拜登政府将与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相连的生物技术公司列入黑名单。 【福克斯商业新闻报道：参议员科顿和加拉格尔参议员写信给财政部，商业部和国防部呼吁将中共国生物技术公司列入制裁名单，称中共国将生物技术军事化有意违背美国利益】
 
-在澳大利亚，我们最近看到并遭受了很多。在维多利亚州，对作为澳大利亚人的维州人民犯下的罪行可以说是非常严重。而这是由丹尼尔-安德鲁斯和警察局长谢恩-巴顿下的令。现在，卫生委员会，维州的总督和总检察长也也参与其中。
 
-我们看看澳大利亚各州的州长，安纳斯塔西娅-帕拉斯楚克, 格拉迪斯-贝雷吉克廉, 所有这些人，以及南澳的史蒂芬-马歇尔，包括各自的部长，议会，都同意并沉默地坐视我们所有人权的被侵犯。他们已经违反了国际人权条约，他们数百万次地打破了法规，法律，告诉人们你不能有工作，直到你打疫苗。
 
-因此，它是一种胁迫，是一种威胁。而且，这是对所有人权和尊严的侵犯。现在，主流媒体已经记录了很多这样的事情。但是私人媒体，你们用你们的手机，街上的普通人，善良诚实的澳大利亚人，你们也记录了这些。我们现在呼吁大家把你们所有的信息、所有的录像存档，因为这将被用作指控所有这些人的证据。
+> Rep. Gallagher and [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) are calling on the Biden Administration to blacklist CCP-affiliated biotechnology companies. 
+> 
+> Read more here: [https://t.co/us8PCAFQ2Z](https://t.co/us8PCAFQ2Z)
+> — Rep. Gallagher Press Office (@RepGallagher) [September 30, 2021](https://twitter.com/RepGallagher/status/1443669009157722112?ref_src=twsrc%5Etfw)
 
-一些中学校长、医生、药剂师会在这个审判前被用重金收买。如果被认定犯有最令人发指的罪行，死亡、破坏、伤残、反人类，你们将被绞死。不要搞错了，这就是法律，在法律面前人人平等。不管你拿了多少钱，你的工资是多少，你参与了什么贪污腐败，你都逃不了。
 
-昨天在墨尔本，抗议者们来到了纪念圣地。那是一个真正的圣地。它是国王的领地，在那里抗议者遭遇了维州警察，他们自称为维州警察。维州组建了一支军队，他们将警察军事化，在我们的宪法中，这绝对是违法的。他们作为军队行事，在澳大利亚的圣地向手无寸铁的平民开枪。
 
-这让我相信，这些人中的很多人可能实际上并不是澳大利亚人，考虑到联邦议会允许在紧急情况下将外国官员、外国警察和外国军队带到这个国家，他们将被列为特殊类别的公民，对他们的行为不承担责任。他们不能为自己的行为受到指控。我不认为任何一个道德高尚的澳州人会向澳州人开火，特别是在那个神圣的地方。
+众议院外交委员会共和党领袖： 麦考尔：“[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在全球范围内使用法律战来攻击多家公司。贬低美国知识产权等同于窃取它。各公司不应该利用中共控制的法院来解决他们的法律纠纷。” 【附华尔街日报报道：中国使用新法律武器打击知识产权盗窃索赔案】
 
-澳洲退伍军人负责人说，那不是举行示威的地方。那正是举行示威的地方，那里纪念的是澳大利亚人为阻止世界上其他国家的压迫所做的事情。而这里是澳大利亚人被压迫，被枪击，被暴徒毒打。这是一个多么美丽的抗议场所。看来，澳洲退伍军人的负责人可能已经忘记了战争是怎么回事，为什么要打仗。
 
-女士们，先生们，我的名字是蒂姆-德怀尔，收集你的证据，把它放在U盘上，放在安全的地方，从你的手机上拿下来，从你的电脑上拿下来，把它安全地录下来，因为我们将要求把它们作为证据。媒体不能隐藏，所谓的名人，用它来做宣传。请记住，纽伦堡在上一次世界大战的审判中，宣传机器也上绞刑架。要签名，持有你的证据，坚守底线，保持坚强。因为在这个国家的历史上，我们从来没有遇到过这样的危险。我们正受到来自内部的攻击。女士们，先生们，我是来自南澳大利亚的蒂姆-德怀尔。请保持坚强。
 
-(文章内容仅代表作者观点)
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): “The CCP is using legal warfare on a global scale to attack companies. Devaluing American IP is the same as stealing it. Companies should not be using the CCP controlled courts to settle their legal disputes." [https://t.co/KIYbQzUi1w](https://t.co/KIYbQzUi1w)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [September 30, 2021](https://twitter.com/HouseForeignGOP/status/1443675566369120263?ref_src=twsrc%5Etfw)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/澳喜图标2-1.jpg)
+
+
+美国国务院： 美国和欧盟拥有 7.8 亿人，他们共享民主价值观，是世界上最大的经济关系之一。我们正在一起制定共同原则，以更新 21 世纪的经济规则。更多的： 【附国务院官网公布】
+
+
+
+> The United States & European Union are home to 780 million people who share democratic values and one of the largest economic relationships in the world. Together, we are establishing common principles to update the rules for a 21st century economy. More: [https://t.co/SzNXhayAit](https://t.co/SzNXhayAit)
+> — Department of State (@StateDept) [September 30, 2021](https://twitter.com/StateDept/status/1443666967861374984?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 乔拜登的银行监管提名人曾赞扬过苏联 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。 她想“结束我们所知道的银行业”。 她是不合格的，且是一个可怕的选择。 乔·拜登又一次违背诺言。 【附华尔街日报观点文章：经济主计长 拜登提名的银行监管人真的非常讨厌… 银行。】
+
+
+
+> Joe Biden's nominee to regulate banks praised Soviet communism. She wants to "end banking as we know it."
+> 
+> She's unqualified and a terrible choice. 
+> 
+> Yet another broken promise from Joe Biden. [https://t.co/g6rHY8o0As](https://t.co/g6rHY8o0As)
+> — Tom Cotton (@TomCottonAR) [September 30, 2021](https://twitter.com/TomCottonAR/status/1443627436025987079?ref_src=twsrc%5Etfw)

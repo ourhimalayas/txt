@@ -2,29 +2,82 @@
 ---
 
 
-## 墙内要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1566303/)
+## 装修公司、金融机构和保险公司的钱都流进房地产黑洞
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566414/)
 
-素材：东京樱花团GNEWS组
-![](https://lh6.googleusercontent.com/gAq9s5oxBCMt1RLVzDepQXKGj1lLb-ojDxI_XAkl9f9mrNdRmXj_VEtc2ndY-M8wBvsbhxIHppYPW8yswybQW_nmXe67KiOIvQNP2E0S28VonZ1Q89eO019RW_q7CRgvxW1lNi__=s0)[图片来源](https://www.aboluowang.com/2021/1001/1653779.html)
-**10月1日汇编**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-1.jpg)https://gtv.org/video/id=61567025d2e2b817486fd8cb
+郭文贵：
+Miles Guo：
 
-1、[恒大债务危机新信号 人行召24家银行要求稳楼市](https://www.aboluowang.com/2021/1001/1653779.html) 
-据外媒报道，周三(29日)由中国人民银行行长易纲主持的会议，要求金融机构与政府合作，“共同维持房地产市场的稳定与健康发展，确保购屋消费者的合法权利与利益”。包括银行暨证券监督机关、住建部官员及24家银行主管出席该会议。人行呼吁，围绕“稳地价、稳房价、稳预期”目标，准确把握及执行好房地产金融审慎管理制度。知情人士指，官员要求银行不可全面切断对地产商的融资，要对营建中的计划提供支持，并批准购买楼花人士的抵押贷款。分析师指上述会议凸显中国政府目前采取的措施，以应对恒大引发的潜在扩散风险；进而引导部分资金流入中国的地产商。花旗银行料至今年底，中国银行系统约41%资产直接或间接与房地产有关，楼价下跌恐引发银行资产连锁效应，而提供予地产商及买楼人士的未偿付贷款估计达50万亿元人民币。
+那么刚才我在说到这个时候，大家想想
+So, I was talking about this just now, thinking about it
 
-2、[三支失业大军同时出现 中国逾千万人失去生计](https://www.aboluowang.com/2021/1001/1653768.html) 
-今年初以来，中国房企“爆雷”、教培机构被团灭、跨境电商规模被压缩。上述三支失业大军领域生态环境的改变，导致至少一千万人被裁，使他们即时失去生计。第一支失业大军是房地产企业大幅度裁员。除了恒大集团负债三千亿美元“爆雷”，新力控股集团近日也传出“爆雷”。9月15日，新力公司总部员工已陆续收到降薪50%的口头通知，其后传出裁员50%。第二是教培行业。在“双减”政策下，中国各地上千家教培机构被“团灭”，上千万教职人员失业。据报，教培机构新东方截至9月中旬，裁员近一万人，预计年底前将裁减4万人。第三支失业大军是跨境电商行业。规模被压缩失业人员暴增。知名跨境电商“有棵树”，1.3亿元人民币的资金被冻结，一夜之间，这个品牌的营收从4500万下滑到100万，1400名员工离职。
+这些装修公司，像金螳螂、三棵树，
+These interior decoration companies, like Golden Mantis, Three Trees,
 
-3、[乌镇大会中共“国际盟友”未见西方发达国家代表](https://www.aboluowang.com/2021/1001/1653863.html)
-2021年世界互联网大会乌镇峰会。官媒吹嘘:“互联网之光”博览会聚焦全球数字技术前沿动态，吸引300余家中外知名企业参展。但细看与会代表，除了部分私人机构，参与会议国家的部级官员代表，没有一个来自西方发达国家。随后，参加大会的“重要嘉宾”名单在社交媒体上曝光。网友们发现，除俄罗斯联邦通信、信息技术大众传媒监督局局长外，几乎所有的嘉宾都来自诸如巴基斯坦、东帝汶、伊拉克、阿富汗、肯尼亚等这类互联网技术十分落后而且贫穷的国家，看不到任何一位来自西方发达国家的代表。
+像中原建设、中国一建、二建、海建
+like Zhongyuan Construction, China Construction First, China Construction Second, Marine Construction
 
-4、[面对中共“国庆” 香港强力威协打压异议声音](https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html) 
-彭博社报道,在中共政权的10月1日“国庆日”到来前夕，名义上依然实行所谓的“一国两制”的香港特别行政区采取措施强化打压异议。香港当局决定9月30日和10月1日向街头加派8000名警察。同时，纪念中共1989年调遣野战军镇压1989年天安门反腐败要民主的示威者的网上博物馆在香港被屏蔽。显示了香港在网络信息控制方面进一步向中国大陆和“一国一制”靠拢。此外，9月29日，香港当局再对港人网络上表达自由的权利实施限制。香港立法会通过法案，规定禁止所谓的“侮辱国旗或国徽的行为，包括焚烧、毁损、涂划、玷污等，相关网上行为同样受规范，例如在网上发布被玷辱国旗的图像也属犯法”，违法者将受到长达3年的监禁处罚。
+几乎所有人都掉到了房地产的黑洞里
+almost all of them have fallen into the black hole of China real estate
 
-5、[中国儿童发展大纲移除”尊重少数民族”条款](https://www.aboluowang.com/2021/1001/1653981.html) 
-本周二（28日），中国政府发布《中国儿童发展纲要(2021-2030年)》的第三部分，“儿童与教育”第4条写道：提高民族地区教育质量和水平，加大国家通用语言文字推广力度，深化民族团结进步教育。对比2011年公布的《中国儿童发展规划纲要2011-2020》，将原有的“尊重和保障少数民族使用本民族语言接受教育的权利”一句移除，取而代之的是“加大国家通用语言文字推广力度”。总部在德国的世界维吾尔代表大会发言人迪里夏提认为，中共政府公布的新《儿童发展纲要》是为了加强从儿童时期灌输汉式文化、语言、文字，消灭民族文化。
+几乎所有的金融机构，100％都不会告诉央行
+Almost all financial institutions will not tell the central bank
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 /平安卿卿
-发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+和当地监管机构、银监会、保监会
+and local regulatory agencies, the China Banking Regulatory Commission, and the Insurance Regulatory Commission the truth
+
+对，还有保险公司. 保险公司的钱，几乎大多数中国人的保险钱全进入房地产了
+Yes, there are insurance companies also. almost most Chinese people’s insurance were into the real estate
+
+你告诉我,中国除了房地产，你钱能去哪儿
+You tell me, where your money can go besides real estate in China
+
+中国保险公司总值多少钱？大家算一算
+How much is the total value of Chinese insurance companies? Let’s do the math
+
+中国所谓的社保基金才不到1000亿美元
+China’s so-called social security fund is less than $100 billion
+
+上万亿人民币，2000亿美元就搞社保了，它搞不起来
+let’s say one trillion of yuan, that only $200 billion on social security fund, and China can’t afford it
+
+那么整个保险基金
+Then the entire insurance fund
+
+几十万亿的保险基金绝大多数都已经作为担保和金融票据的担保和作为各种的基金对冲，都已经流入房地产了
+the vast majority of the tens of trillions of insurance funds have been used as guarantees and guarantees, financial instruments and as various fund hedges have flowed into the real estate
+
+这就是为什么中国有95万亿的房地产总值
+That’s why China has $95 trillion worth of real estate
+
+他所说的，官方承认65万亿
+What China said, the officially recognized of 65 trillion
+
+所以现在能救它只有一样
+So there is only one way to save China’s real estate industry now
+
+突然一夜之间冒出来100万亿美元，能把中共国给救了
+Another $100 trillion suddenly popped up overnight, then can save the CCP
+
+就是把美国、欧洲、日本所有的钱都给中共国
+Even all the money of the United States, Europe and Japan give to the Communist China
+
+然后这些人都饿死，一年内不吃不喝不拉，才能救他们
+and all these people from west countries starve to death, do not eat or drink for a year
+
+可能吗？
+Is it possible?
+
+原视频日期：2021/09/17
+原视频链接: https://twitter.com/se1y7cblljselva/status/1439525047224258561?s=24
+视频时间段 : 0:00-1:21
+英听校： 洛杉矶盘古农场 – Mike Li
+翻译： 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
