@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 7:43 PM (UTC)`
+
+10月1号：疫苗灾难将是人类有史以来最大的一次人类大屠杀……每时每刻疫苗，杀人的數字．和速度和危险，都在改写一切的历史。【致所有那些对不打疫苗的人进行霸凌的人们： 请停止霸凌, 因为新冠疫苗正在杀人……To all those who bully people who are not vaccinated: Please stop bullying, because the new crown vaccine is killing people】
+![img](https://media.gettr.com/group37/getter/2021/10/01/19/43/33a5b9d6-445a-79e9-a4ca-b50cd69d5528/out.jpg)
+
+---
+
 `@miles 10/1/2021 6:50 PM (UTC)`
 
 经过DC农场战友们两个月的的努力，《百年百罪》全集终于面世了！我们都是业余选手，但我们是用心的！幸好有gnews和getrr，有郭先生引领的爆料革命，真相得以传播！让我们子子孙孙记住中共的罪恶，不让历史重演！<br/>庆父不死鲁难未已<br/>中共不灭灾难不止<br/><br/>特约配音：郭文贵<br/>https://gnews.org/zh-hans/1566979/<br/>【中共百年百罪】全集（1-101罪） 华盛顿DC农场系列纪录片，，特约配音：郭文贵。欢迎大家观看指正！ 谢谢🙏<br/>中文链接：https://youtube.com/playlist?list=PL90kFz9UQbWgxZRwZCISX7IjJjJWV3kKs<br/>https://gtv.org/video/id=613a4cb2784c5a2583543523<br/><br/>英文版：<br/>https://gnews.org/1567159/<br/>【Hundred Crimes of CCP in Hundred Years】A Docuseries Produced by HimalayaWashingtonDC<br/>English link： https://youtube.com/playlist?list=PL90kFz9UQbWhnVdi7BpR5gPmKEQ1QGzka<br/>https://gtv.org/video/id=613a4cee784c5a2583543532<br/>Produced by Himalaya Washington DC
@@ -290,13 +297,6 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 9月28日：这是真正的英雄，我们的兄弟姐妹，这是大好人。
 > `@dailybeats 9/28/2021 1:50 PM (UTC)`<br/>Last year, she was a hero, this year, she will be terminated from her job. Here is why! 
 ![img](https://media.gettr.com/group30/getter/2021/09/28/13/50/c436579d-dcd6-bccc-48ab-c48646cc6eb3/out.jpg)
-
----
-
-`@miles 9/28/2021 3:20 PM (UTC)`
-
-9月28号：请教🙏🙏🙏这是否是我们战友开的餐厅？
-![img](https://media.gettr.com/group2/getter/2021/09/28/15/20/1aa5c4d7-9a79-0606-d05c-baebdf10f282/b5a68f943b5fa8354b82e04c6e4ab435.jpg)
 
 ---
 
