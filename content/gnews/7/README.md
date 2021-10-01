@@ -2,27 +2,19 @@
 ---
 
 
-## 维多利亚州强制工人接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566362/)
+## 秘翻在线：石油行业担心疫苗强制令会进一步损害该行业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566448/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：The Guardian
-**整理报道：**翼族
+#### 翻译/撰稿：zzballack
 
-维多利亚州政府宣布：到10月15日，维多利亚州约有100万“授权”工人需要至少接种一剂中共病毒（COVID-19）疫苗才能继续留下工作。并且要求同在一起工作的工人们在11月26日之前必须接种两剂疫苗。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片12.jpg)
+据《每日来电》（Daily Caller）9月30日报道，美国石油行业的高管们表示，拜登政府的疫苗强制令将使该行业的发展受阻，招工也更加困难。
 
-另外，对之前已有强制疫苗接种要求的群体，如建筑工人、教师和医疗保健工作者，还有单独的时间表。从下周二开始，建筑工人在现场工作之前，必须至少注射一剂。
+油田服务公司Nine Energy Service的首席执行官安·福克斯（Ann Fox）说：“由于中共病毒疫情，我们公司的员工流失率已经很高了。疫苗强制令公布后，形势进一步严峻。818名员工中大约只有15%接种了中共病毒疫苗。”总统拜登9月9日宣布，他将命令安全与卫生署 (Occupational Safety and Health Administration）颁布一项规定，要求企业为其全体员工强制接种疫苗，另外也可以选择每周接受一次核酸测试代替疫苗接种。福克斯说：“石油行业正为如何执行这项命令发愁，因为很多员工拒绝接种疫苗。有些人甚至警告说，他们会在被强迫接种之前辞职。如果公司不确保员工遵守这一规定，就会面临联邦政府的巨额罚款。”
 
-此次维州政府网站列出的特定“授权”工作人员包括：殡葬业、卫生服务人员、紧急服务、消防服务、警察雇员等等。
+在GM油田和卡车服务（Oilfield & Trucking Services）公司担任运营经理的阿贝尔·奥尔特加（Abel Ortega）说：“为德克萨斯州和新墨西哥州的石油开采公司运输水、沙子和物资的卡车司机将因为疫苗强制令而辞职。业内人士说，公司将被迫提高工资以吸引工人，这将导致消费者的成本增加。”拉蒂戈石油（Latigo Petroleum）公司的总裁柯克·爱德华兹（Kirk Edwards）说：“油井的钻探成本将因此上涨。”《华尔街日报》报道称，员工薪资已经是油田服务公司的最大支出之一，而且最近几个月一直在上涨。一位石油行业高管表示，工资上涨了 20%。但是我们发现，很难通过涨价来抵消我们增加的成本。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+德州伯德油田服务公司（Byrd Oilfield Services）的运营经理克林特·康科德（Clint Concord）：“如果我们不愿意，不向自己身体注入某种东西是我们的宪法权利，况且中共病毒疫苗还未被证实是百分百安全和稳定的。”另一位石油行业人士说：“我的大多数同事都没有接种疫苗。当有人强迫我必须做某事时，我只想反着干。”
 
-*编辑/发布：翼族*
-
-**参考链接：**[This is the full list of Victorian authorised workers who need to get vaccinated against COVID to remain on site](https://www.abc.net.au/news/2021-10-01/victoria-which-authorised-workers-mandatory-vaccination-onsite/100506980)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[‘An Obstacle’: Oil Companies Fear Biden Vaccine Mandate Will Further Disrupt Business](https://dailycaller.com/2021/09/30/joe-biden-vaccine-mandate-oil-fracking-worker-shortage/)

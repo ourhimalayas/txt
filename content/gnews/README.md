@@ -15,127 +15,127 @@
 
 ---
 
-### [装修公司、金融机构和保险公司的钱都流进房地产黑洞](/content/gnews/1/README.md)
+### [DC大中华时事：欧亚基金会8月民调，42%美国的支持出兵保护台湾](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [印尼排华事件](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵先生揭示孙力军双开公告中回避的三大问题](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [中共病毒疫情期间美国军人自杀率升高](/content/gnews/3/README.md)
+### [秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党吹牛控制三分之二的芯片产能](/content/gnews/4/README.md)
+### [秘翻在线：美国疫苗接种率排第四的缅因州感染者数 &#8220;激增&#8221;](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [速报：一个时代的结束！日本大相扑第69代横纲白鹏宣布退役](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [恒大票据如果不能贴现或付息，相当于10个雷曼兄弟](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [董明珠开发了光能、储能与空调结合技术用空调发电？](/content/gnews/5/README.md)
+### [秘翻在线：石油行业担心疫苗强制令会进一步损害该行业](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [装修公司、金融机构和保险公司的钱都流进房地产黑洞](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [郭文贵先生揭示孙力军双开公告中回避的三大问题](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [盖特再推重磅抽奖活动 注册用户可得哈雷摩托！](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共病毒疫情期间美国军人自杀率升高](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [共产党吹牛控制三分之二的芯片产能](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [董明珠开发了光能、储能与空调结合技术用空调发电？](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [危险警告： 西方正在酝酿一个世界范围的反华运动](/content/gnews/6/README.md)
+### [危险警告： 西方正在酝酿一个世界范围的反华运动](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维多利亚州强制工人接种疫苗](/content/gnews/7/README.md)
+### [维多利亚州强制工人接种疫苗](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：又一位参议员关注微软和领英遵从中共国要求审查美国人资料](/content/gnews/8/README.md)
+### [秘翻在线：又一位参议员关注微软和领英遵从中共国要求审查美国人资料](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [诅咒未接种疫苗者的前圣母大学教授在接种第三针后死亡](/content/gnews/9/README.md)
+### [诅咒未接种疫苗者的前圣母大学教授在接种第三针后死亡](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [银河快讯：日本食品，烟草和水电价格将上涨；台湾希望日本帮助其加入TPP](/content/gnews/10/README.md)
+### [银河快讯：日本食品，烟草和水电价格将上涨；台湾希望日本帮助其加入TPP](/content/gnews/18/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/11/README.md)
+### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英儿童心理健康状况堪忧，美CDC敦促孕妇打毒针](/content/gnews/12/README.md)
+### [英儿童心理健康状况堪忧，美CDC敦促孕妇打毒针](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [YouTube开始全面封禁、删除关于毒疫苗真相的信息](/content/gnews/13/README.md)
+### [YouTube开始全面封禁、删除关于毒疫苗真相的信息](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [墙内要闻汇编](/content/gnews/14/README.md)
+### [墙内要闻汇编](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国马萨诸塞州警察：因强制接种疫苗而辞职](/content/gnews/15/README.md)
+### [美国马萨诸塞州警察：因强制接种疫苗而辞职](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [超过5000名医生和科学家签署宣言抨击疫苗政策制定者正在犯下“反人类罪行”](/content/gnews/16/README.md)
+### [超过5000名医生和科学家签署宣言抨击疫苗政策制定者正在犯下“反人类罪行”](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳州中文媒体的出版内容受到了中共国翻译人员的审查](/content/gnews/17/README.md)
+### [澳州中文媒体的出版内容受到了中共国翻译人员的审查](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国拉闸限电措施将引发全球供应链恶化](/content/gnews/18/README.md)
+### [中国拉闸限电措施将引发全球供应链恶化](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [国际要闻汇编](/content/gnews/19/README.md)
+### [国际要闻汇编](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [佛州州长抨击澳大利亚正在走向共产主义中国](/content/gnews/20/README.md)
+### [佛州州长抨击澳大利亚正在走向共产主义中国](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [聚焦：布林肯代表美国祝贺中国人民国庆节快乐！](/content/gnews/21/README.md)
- ` 军迷wilson`
-
-### [日本在全国范围内解除所有中共病毒疫情紧急状态](/content/gnews/22/README.md)
+### [日本在全国范围内解除所有中共病毒疫情紧急状态](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [關於疫苗的思考](/content/gnews/23/README.md)
+### [關於疫苗的思考](/content/gnews/30/README.md)
  ` MG FARM`
 
-### [台湾政府、商界、佛教界正在屠杀台湾的下一代](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [突发重磅：澳洲NSW州长“涉嫌违反公众信任&#8221;在听证会后被迫辞职](/content/gnews/25/README.md)
+### [突发重磅：澳洲NSW州长“涉嫌违反公众信任&#8221;在听证会后被迫辞职](/content/gnews/31/README.md)
  ` 澳喜农场`
 
-### [【文炬拾字】中华10·1国殇日](/content/gnews/26/README.md)
- ` 温哥华扬帆农场`
-
-### [昆州警察因强制接种疫苗起诉警察局长](/content/gnews/27/README.md)
- ` 澳喜农场`
-
-### [医生谈疫苗如何损伤人体自身的免疫力](/content/gnews/28/README.md)
+### [医生谈疫苗如何损伤人体自身的免疫力](/content/gnews/32/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [市场崩盘可能即将来临](/content/gnews/29/README.md)
+### [市场崩盘可能即将来临](/content/gnews/33/README.md)
  ` 纽约香草山MOS03`
 
-### [2021年9月30日郭先生盖特 — 视频盖特1「10分00秒」](/content/gnews/30/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [昆士兰警方将在最高法院就强制接种中共病毒疫苗进行法律对决](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [2021年09月30日澳喜要闻（每日更新）](/content/gnews/31/README.md)
- ` 澳喜农场`
-
-### [魁北克护士勇敢发声爆料，拒绝疫苗](/content/gnews/32/README.md)
+### [魁北克护士勇敢发声爆料，拒绝疫苗](/content/gnews/35/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [北京封杀台湾水果进口，台湾拟10月向世贸组织控诉](/content/gnews/33/README.md)
+### [北京封杀台湾水果进口，台湾拟10月向世贸组织控诉](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [众议员加拉格尔和参议员汤姆·科顿呼吁拜登政府将与中共相连的生物技术公司列入黑名单](/content/gnews/34/README.md)
- ` 美国政要直译推`
-
-### [9/30/2021 七哥盖特: 过去几年王岐山和孟建柱干的很多事连习一神都不知道](/content/gnews/35/README.md)
+### [9/30/2021 七哥盖特: 过去几年王岐山和孟建柱干的很多事连习一神都不知道](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
 
-### [9/30/2021 七哥盖特: 绝不能强制打疫苗](/content/gnews/36/README.md)
+### [9/30/2021 七哥盖特: 绝不能强制打疫苗](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [保存好你的证据等待即将到来的纽伦堡大审判](/content/gnews/37/README.md)
+### [保存好你的证据等待即将到来的纽伦堡大审判](/content/gnews/39/README.md)
  ` 澳喜农场`
 
-### [美国政府将在三周内耗尽现金无法支付账单](/content/gnews/38/README.md)
+### [美国政府将在三周内耗尽现金无法支付账单](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [2022 北京冬奥会将在没有外国观众的情况下举行](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [由川普前顾问经营的“推特杀手” Gettr 随时欢迎川普加入](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [中共国26岁妇女死于H5N6禽流感，为本月第四个病例](/content/gnews/41/README.md)
+### [由川普前顾问经营的“推特杀手” Gettr 随时欢迎川普加入](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
 ### [让那些想毀掉美国的人见鬼去吧！—— 来自斯巴达克斯的信](/content/gnews/42/README.md)

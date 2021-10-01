@@ -2,49 +2,39 @@
 ---
 
 
-## 關於疫苗的思考
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1566147/)
+## 美国马萨诸塞州警察：因强制接种疫苗而辞职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566287/)
 
-作者：七郎 – 溫哥華英里農場
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color.png)
-从打疫苗开始至今，复杂的内心被愤怒，无助，担忧缠绕着每分每秒！
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/美国.jpg)
+图片来源：John Tlumacki/The Boston Globe
 
-找不到任何的词语来描述！
+**【雅典娜快讯】，紧贴时事脉搏**
 
-七哥在9月24日直播中讲到：
+据美国马萨诸塞州（Massachusetts state ）警察工会律师称，大约20%的州警察没有接种中共病毒疫苗。
 
-最痛苦的是看到这些无知的人包括最信任，最爱的，最亲的，那个无知到了你无法相信的程度！
+一位消息人士周一告诉WBZ电视台（WBZ-TV），只有一名马萨诸塞州警察告诉人力资源部，将因疫苗授权而辞职。消息人士还表示，还有其他人与人力资源部进行了交谈，以评估如果他们选择退休，养老金能拿到多少。
 
-怎么办？
+上周，法官拒绝了马萨诸塞州警察工会提出的，暂停州长查理·贝克（Charlie Baker）为警察接种疫苗的要求。该州要求所有行政部门员工在10月17日之前出示疫苗接种证明，否则将面临失业的风险。
 
-经过多次的问询，讨论，在此找出一些可以让这些最爱的，最亲的人思考的问题，希望可以帮助他们开始思考！从而尽可能的达到让他们开启疫苗真相的搜索！
+迄今为止，已有数十名警察提交了辞职书，其中一些人计划调到其他部门，并接受合理的替代方案，例如戴口罩和定期检测中共病毒。
 
-这也是，走出家门，与邻居，与可以说上话的路人来共同探索疫苗真相的敲门砖！
+马萨诸塞州警察协会(SPAM)表示，由于该州的中共病毒疫苗授权，数十名警察提交了辞职书。现在，州警察​​已经严重短缺，他们从调查凶杀案、恐怖主义、计算机犯罪、纵火、帮派、毒品和人口贩卖的专业部队中抽调人员，并将其送回到穿制服的巡逻队中。
 
-最后可以让大家知道爆料革命，就是告诉这个世界真相的一群人！加油战友们！
+代表1,800名警察成员的工会认为，州政府在实施这项授权之前，需要与员工进行谈判。
 
-**由淺入深的思考**
+州长周一告诉记者，他无意在授权上让步，并相信疫苗授权的合规性很高。
 
-1. COVID-19疫苗的成分是什麽？
-2. 接種疫苗的人導致傷害或死亡是由誰負責？
-3. 政府花的錢是從哪裏來的？
-4. 雖然疫苗是免費的，但是誰又最終為疫苗買單？
-5. 爲什麽我們打完疫苗后還需要戴口罩？
-6. 爲什麽政府出臺各種規定例如疫苗護照等强制人們打疫苗？
-7. 媒體是為老百姓服務還是為有權有勢的人服務的?
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
+**参考新闻：**[Dozens Of Massachusetts State Police Troopers Resigning Over COVID Vaccine Mandate, Union Says – CBS Boston (cbslocal.com)](https://boston.cbslocal.com/2021/09/27/massachusetts-state-police-covid-vaccine-mandate-resignations/)
 
-對接種疫苗人士采訪，反饋如下：
-R先生回應：對自己的身體沒有負責任。
-H先生回應：無言以對。
-Y女士回應：現在對打了疫苗的怎麽辦？
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-**關注我們**
-
-Discord 賬號
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 賬號
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

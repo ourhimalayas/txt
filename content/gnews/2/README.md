@@ -2,51 +2,82 @@
 ---
 
 
-## 郭文贵先生揭示孙力军双开公告中回避的三大问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566409/)
+## 印尼排华事件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566519/)
 
-栏目记者/责任编辑：火来
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-4.jpg)https://gtv.org/video/id=61567132d2e2b817486fd8fb
+郭文贵
+Miles Guo：
 
+有站出来说话的吗？没有人站出来说话
+Did anyone stand up and speak? No one stood up to speak
 
+当时印尼杀害50万华人， 110万华人受害的时候
+When Indonesia killed 500,000 Chinese and 1.1 million Chinese were victimized,
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+美国人说一句话了吗？
+Did the American say a word?
 
+欧洲人说一句话了吗？
+Did the Europeans say a word?
 
+你们问过这个问题吗？
+Have you asked this question?
 
+1998年呐
+The year of 1998
 
+1968年， 1998年
+The year of 1968 and 1998
 
-9月30日，中共纪委监委官网发布公告称，中共公安部原副部长孙力军被开除党籍和公职，并被移送司法机关起诉。这份公告看似措辞严厉，涉及了孙力军藏匿资料，结党营私，买官卖官，巨额财富来源不明，生活淫乱等罪名，但是，郭文贵先生在今天的盖特视频中，为大家揭示了孙力军的这份“双开公告”中，没有提及的三大重点问题。
+这两个时间段
+These two time periods
 
-第一，多年以来，孙力军绑架杀人，弄死监狱中的在押犯人，并掠夺财富，超过百余起。
+那人类还不至于说 （没有人敢站出来）
+Humans don’t even say (no one dares to stand up)
 
-第二，使用高级警用手段，监听监视中南海，实现政治目的。颠覆政权，谋杀领导人等。
+那是美国最强盛的时候
+America was at its strongest in that time
 
-第三，监控中共领导人家人隐私多年，拥有大量视频。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1.jpg)
-孙力军是王岐山和孟建柱共同认可的枪把子，以上三点都需要团伙作案。中共国只要孟建柱，孙力军，王岐山，周亮，曾庆红等人还在，所谓的“反腐败”都是无稽之谈。孙力军的“双开公告”回避了上述三个重点问题，证明了孙力军的势力还很强大。中共内部较量还在继续。
+你两次杀害中国人
+Haji Mohammad Suharto killed the Chinese twice
 
-参考链接：
-[郭文贵先生盖特：9月30号：尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！](https://gettr.com/post/pclmgqf8e2)
+这么多残害和杀害
+So much cruel injuries and killing
 
-（本文仅代表作者观点）
+他们成为全世界有史以来最残忍的一次，人类大灾难
+They became the cruelest human catastrophe in the history of the world
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+有人说话吗？
+Does anyone speak?
 
-终审： 鬼五
-校对/发稿：为真不破20
+有人替我们华人说话吗？
+Does anyone speak for us Chinese?
 
-**更多资讯，更多关注**
+不要爱美国爱西方爱疯了
+Don’t love America and the West too much crazy!
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+就资本主义的没有原则
+There is no principle of capitalism
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+还有他们根本不懂得东方
+And they don’t know the East at all
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+甚至不懂得苏联
+They don’t even understand the Soviet Union
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他不知道共产主义的邪恶
+He doesn’t know the evil of communism
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原视频日期：2021/09/28
+原视频链接 https://twitter.com/se1y7cblljselva/status/1442805365972688900?s=24
+视频时间段 : 00:00-00:54
+英听校： 洛杉矶盘古农场 – Raul
+翻译： 洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

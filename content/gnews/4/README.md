@@ -2,126 +2,23 @@
 ---
 
 
-## 共产党吹牛控制三分之二的芯片产能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566387/)
+## 秘翻在线：美国疫苗接种率排第四的缅因州感染者数 &#8220;激增&#8221;
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566509/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot.jpg)https://gtv.org/video/id=61566f7cd2e2b817486fd8a4
-郭文贵
-Miles Guo
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像5.png)[图片来源](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200213-%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E-%E7%AC%AC%E5%9B%9B%E4%BB%A3%E7%97%85%E6%AF%92%E6%84%9F%E6%9F%93%E5%BC%BA%E9%9C%87%E5%87%BA%E7%8E%B0)
+10月1日，日本雅虎网站消息：
 
-这个芯片啊，全球的芯片产值一共加一起1万亿美元
-For this chip, the global chip output value adds up to 1 trillion US dollars
+在美国那些中共病毒疫苗接种率较低的州，确实有以未接种疫苗者为主的感染和死亡发生。但是，在疫苗接种率较高的州也不断出现被感染者，这引起了人们的置疑。
 
-到今年大概，吹了狼蛋了，涨价弄价
-Till this year estimate plus price increase and play the price game
+据《华尔街日报》（WSJ）报道，在美国50个州中，缅因州的疫苗接种率排名第四，可最近每天因中共病毒感染的住院和死亡人数却连创记录。
 
-也就才1.3万亿美元，1万多亿美元的产值
-The output is only 1.3 trillion US dollars, more than 1 trillion U.S. dollars in output value
+《华尔街日报》指出，引起注意的是，已判明缅因州的许多患者没有接种疫苗，但是传染性很强的德尔塔菌株专找寻攻击疫苗接种率较高地区的未接种群体。目前，美国各州的平均疫苗接种率为56.2%，而缅因州的接种率远远高于平均水平，达到68.99%。
 
-在全世界一年100万亿的全球GDP, 它占了1%
-Of the world’s $100 trillion global GDP a year, it accounts for 1%
+尽管如此，最近中共病毒在缅因州的传播被归因于 “德尔塔菌株的高感染性 “和 “由于取消了戴口罩的要求而放松了公众意识”。在缅因州，需要呼吸机的病人数量已经从7月份的每家医院约4人上升到40多人，增加了10倍以上。每周的日平均新感染人数已经从7月份的约20人上升到现在的520人。
 
-就芯片这件事上，我跟美国人最近，特别是我跟他们讨论特别多
-on the matter of the chip, the Americans and I have discussion recently
+[信息源](https://news.yahoo.co.jp/articles/5281123c50ab6f19d4c90a423d690f668842be0f)
 
-我说你们美国人不要瞪眼说瞎话，也不行的
-I said you Americans don’t lie in front of people’s face, it will not work
+与最近笔者看到的很多报道一样，不知中共之邪恶的作者提出了关键性的问题，但终究还是不能说到问题的实质。但置疑的开始，就是觉醒的开始。觉醒需要真相的究明，新中国联邦的中共病毒真相的传播更显得尤为重要！
 
-共产党说瞎话不行，你们说瞎话也不行
-The Communist Party can’t lie, and you can’t lie either
-
-共产党并购了两家公司，那么占了所谓的全球2/3
-The Communist Party acquired two companies which accounted for 2/3 productions of the so-called globally
-
-但是共产党有没有这2/3的支配权呢
-But does the Communist Party have dominion over this 2/3 of the world’s production?
-
-有没有2/3的支配权呢
-Do they have dominion over this 2/3
-
-大家都知道没有，话说回来了
-We all know it has no dominance, then again
-
-如果你现在要出租，像那个AMD
-If you want to rent now, like AMD
-
-你现在说，我出10%，3%的溢价
-Now you say, I offer 10%, 3% premium
-
-你马上就可以拿到芯片，但是美国人习惯了使用中国奴才
-You can get the chip right away, but Americans are used to using Chinese minions
-
-奴隶用的这个廉价产品
-and the cheap product made by slave labors
-
-所以说，一个共产党拥有这家公司产品的调配权，是吧
-So, does Communist Party has the right to distribute the company’s products？ right?
-
-2/3 （占全球），台积电就占了一半多了
-Taiwan Semiconductor Manufacturing Company (TSMC) accounted for more than half world’s production
-
-这不矛盾吗？飞飞呀
-Isn’t this contradictory? Feifei
-
-台积电占了全世界60%到70%的产量
-TSMC accounts for 60% to 70% of the world’s production
-
-你觉得共产党能决定那个60%-70%的每一（芯）片吗
-Do you think the Communist Party can determine the 60%-70% of each (chip) piece?
-
-一个他都决定不了
-It can’t decide on any of them
-
-他在私下里面放水又有多少
-How much does it add water in private？
-
-对吧，政清，这很简单吧
-Right, Zhengqing, it’s so simple
-
-那你共产党的2/3都哪去了，你2/3包不包含这个台积电呢？
-So where did your 2/3 of the Communist Party go? Your 2/3 package does include this TSMC or not?
-
-这不瞪眼说瞎话吗，说美国人很夸张有时候, 你别听他们胡说八道
-That’s lie in front of your face, sometimes American are so exaggerated, don’t listen to their nonsense
-
-还有一个就是很简单的事情，这个技术，这技术是共产党的吗
-There is another simple thing, technology, is this technology owned by the Communist Party?
-
-零，零，你技术上没有主导权，那美国人不给你动杀气
-Zero, nought, the CCP doesn’t have technical leadership, then the Americans don’t give CCP a killing blow
-
-还是你美国人跟中国共产党勾兑嘛
-Or you American have secret deal underneath the table with the CCP
-
-那你不动杀气，那很简单嘛
-The Americans don’t give CCP a killing blow, it’s very simple
-
-如果你要从技术上，你都是零
-If you want to talk technically, CCP are nothing
-
-我说了让你收，你就收，你有什么屁用啊
-I told you to put it away, you have to put it away, you have no value of it?
-
-以为共产党强大的2/3（调配权）就可以控制了（全世界）
-The Communists think they can control the world with their powerful 2/3 allocation power, it’s a lie
-
-那个女的，瞪着大眼珠子（撒谎）在福克斯
-That woman was lying in front of your face on Fox News
-
-所以说，福克斯也好，CNN也好，这帮家伙坏着呢
-So Fox News or CNN, these are all not good
-
-我跟你说，你不要听他们胡说八道
-I tell you, don’t listen to their nonsense
-
-原视频链接: https://twitter.com/se1y7cblljselva/status/1442384694402641926?s=24
-视频时间段 : 0:00-2:11
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者个人观点）
