@@ -2,28 +2,25 @@
 ---
 
 
-## 中共国26岁妇女死于H5N6禽流感，为本月第四个病例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1565624/)
+## 2022 北京冬奥会将在没有外国观众的情况下举行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1565626/)
 
-栏目记者/责任编辑：文一
+栏目记者：新世界的一员
+责任编辑：文仁
 
 
 
-【BNO NEWS】9 月 29 日報導，香港卫生官员周三报告说，在孤立病例增加的情况下，中国南部一名26岁的妇女死于H5N6禽流感。本月早些时候还报告了另外三个病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
 
-卫生部门说，这名26岁的妇女在8月14日出现症状之前曾接触活家禽。五天后她被送入医院，此后死亡。但当地官员没有立即发布这一消息。 世界卫生组织官员没有就与此相关的质询做出即时回应。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11.jpg)
-自2014年出现第一例H5N6禽流感以来，共有46例得到证实的病例，近四分之一是在过去2.5个月内集中报告的。其中至少 22 例是发生在去年，且只有一例发生在中共国以外的地区。
 
-据世卫组织称，已知H5N6禽流感会导致所有年龄段的人类患上重症，目前已知致死率为50%以上。 世卫组织在其网站上警告说：”虽然最近发现的禽流感病毒目前不容易在人与人之间传播，但这些病毒在家禽中的持续流通令人担忧，因为这些病毒在人类会中引发严重疾病，并有可能发生变异，在人与人之间更具传染性”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture33.jpg)
+据【法新社】报道，国际奥委会执委会 9 月 29 日（周三）举行会议，审议明年2月举行的北京冬奥会及冬残奥会的疫情防控政策。并在会后宣布，由于新冠病毒疫情，预定于2022年2月4日至20日举行的北京冬奥会，将在没有外国观众的情况下举行。
 
-中国境内媒体《搜狐》和《新浪》不约而同在一星期前发表题为《多地报告甲型禽流感H5N6散发病例，暴发疫情可能性不大》的报道，称今年以来，中共国多地发现人感H5N6病例。1月，重庆市1例；7月14日，四川1例；9月17日，湖南1例重症病例。 去年20多例未见媒体报道，今年几例似乎集中在9月被上报和媒体关注。中共就此事件在媒体上的不同操作，值得继续关注。
+郭文贵先生于今年8月4日签署了新中国联邦的一份重要文件，向世界呼吁取消北京冬奥会的举办权。希望世界上正义的人士一起能尽早醒悟，认清中共的丑陋本质和邪恶的用心，一起抵制 2022 北京冬奥会，避免中共利用冬奥会再次放毒祸害世界。
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [中共国26岁妇女死于H5N6禽流感，为本月第四个病例](https://bnonews.com/index.php/2021/09/young-woman-dies-of-h5n6-bird-flu-in-southern-china/%20https://m.sohu.com/a/491770656_313745/?pvid=000115_3w_a)
-2. [中共国26岁妇女死于H5N6禽流感，为本月第四个病例](https://finance.sina.cn/tech/2021-09-24/detail-iktzscyx6048412.d.html?fromtech=1&amp;from=wap)
+参考链接：[2022 北京冬奥会将在没有外国观众的情况下举行](https://amp.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210929-%E5%9B%BD%E9%99%85%E5%A5%A5%E5%A7%94%E4%BC%9A-2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%B0%86%E5%9C%A8%E6%B2%A1%E6%9C%89%E5%A4%96%E5%9B%BD%E8%A7%82%E4%BC%97%E7%9A%84%E6%83%85%E5%86%B5%E4%B8%8B%E4%B8%BE%E8%A1%8C?__twitter_impression=true)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/M9-3.jpg)
 
@@ -32,9 +29,9 @@
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)

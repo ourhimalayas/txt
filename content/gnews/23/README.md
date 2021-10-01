@@ -2,27 +2,45 @@
 ---
 
 
-## 中共“国庆”前夕 香港强力威吓打压异议声音
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1565761/)
+## 众议员加拉格尔和参议员汤姆·科顿呼吁拜登政府将与中共相连的生物技术公司列入黑名单
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1565822/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16330517721.png)
-据美国之音10月1日报道，在中共非法政权“国庆日”到来前夕，香港当局决定9月30日和10月1日向街头增派8000名警察，多于2019年“十一”期间的6000名警察。同时，纪念中共1989年调遣野战军镇压天安门民主行为的网上博物馆在香港被屏蔽。港人必须要向中共国大陆网民那样使用翻墙软件才能进入。此外，香港立法会还通过一项议案，禁止在网络上焚烧、毁损等亵渎中共国旗，违者将被处监禁3年。
-
-中共当局多年来设立所谓的防火墙，又称信息柏林墙，对中共国大陆网民实行严格的网络管控。如今香港用户也需要用翻墙软件才能登录网上八九六四博物馆，显示了香港在网络信息控制方面进一步向中共大陆和“一国一制”靠拢。
-
-中共一直想收回香港和台湾并实行和大陆一样的严格监管。如今香港已经沦陷，中共对台湾的威胁与日加增。自由世界还能够忍受中共多久？但愿人民能够早日清醒，让邪恶中共度过世上最后一个冥诞“国庆”。
-
-新闻参考链接：[https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html](https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+众议员加拉格尔新闻办： 众议员加拉格尔和参议员汤姆·科顿呼吁拜登政府将与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相连的生物技术公司列入黑名单。 【福克斯商业新闻报道：参议员科顿和加拉格尔参议员写信给财政部，商业部和国防部呼吁将中共国生物技术公司列入制裁名单，称中共国将生物技术军事化有意违背美国利益】
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> Rep. Gallagher and [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) are calling on the Biden Administration to blacklist CCP-affiliated biotechnology companies. 
+> 
+> Read more here: [https://t.co/us8PCAFQ2Z](https://t.co/us8PCAFQ2Z)
+> — Rep. Gallagher Press Office (@RepGallagher) [September 30, 2021](https://twitter.com/RepGallagher/status/1443669009157722112?ref_src=twsrc%5Etfw)
+
+
+
+众议院外交委员会共和党领袖： 麦考尔：“[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在全球范围内使用法律战来攻击多家公司。贬低美国知识产权等同于窃取它。各公司不应该利用中共控制的法院来解决他们的法律纠纷。” 【附华尔街日报报道：中国使用新法律武器打击知识产权盗窃索赔案】
+
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): “The CCP is using legal warfare on a global scale to attack companies. Devaluing American IP is the same as stealing it. Companies should not be using the CCP controlled courts to settle their legal disputes." [https://t.co/KIYbQzUi1w](https://t.co/KIYbQzUi1w)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [September 30, 2021](https://twitter.com/HouseForeignGOP/status/1443675566369120263?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院： 美国和欧盟拥有 7.8 亿人，他们共享民主价值观，是世界上最大的经济关系之一。我们正在一起制定共同原则，以更新 21 世纪的经济规则。更多的： 【附国务院官网公布】
+
+
+
+> The United States & European Union are home to 780 million people who share democratic values and one of the largest economic relationships in the world. Together, we are establishing common principles to update the rules for a 21st century economy. More: [https://t.co/SzNXhayAit](https://t.co/SzNXhayAit)
+> — Department of State (@StateDept) [September 30, 2021](https://twitter.com/StateDept/status/1443666967861374984?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 乔拜登的银行监管提名人曾赞扬过苏联 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。 她想“结束我们所知道的银行业”。 她是不合格的，且是一个可怕的选择。 乔·拜登又一次违背诺言。 【附华尔街日报观点文章：经济主计长 拜登提名的银行监管人真的非常讨厌… 银行。】
+
+
+
+> Joe Biden's nominee to regulate banks praised Soviet communism. She wants to "end banking as we know it."
+> 
+> She's unqualified and a terrible choice. 
+> 
+> Yet another broken promise from Joe Biden. [https://t.co/g6rHY8o0As](https://t.co/g6rHY8o0As)
+> — Tom Cotton (@TomCottonAR) [September 30, 2021](https://twitter.com/TomCottonAR/status/1443627436025987079?ref_src=twsrc%5Etfw)
