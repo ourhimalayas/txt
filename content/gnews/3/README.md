@@ -2,8 +2,8 @@
 ---
 
 
-## 台陆委会修订条例 严控关键技术人员赴陆
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1565724/)
+## 中共迫于人口低生育压力被迫废止部分计生恶法
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1565788/)
 
 作者：纽约香草山农场 – 在远方
 
@@ -13,19 +13,21 @@
 
 
 
-为防止台湾产业技术被中共窃取危及国家安全和利益，同时维护台湾整体经济及产业优势，台陆委会于9月29日通过了《两岸条例》修正草案。该条例将严格管控台湾核心关键技术人员前往大陆。目前，该草案已报请行政院核准，其后将转往立法院审议。
+在中共治下，中共国内的生存环境日益恶化。据悉，对于墙内90后及00后的一代年轻人，他们的结婚以及生育愿望很低。据中共官媒的消息称，中共国目前已经有149个城市进入“深度老龄化”，而这些城市主要集中在东北、中部、长三角、黄河中下游以及成渝城市群地区。
 
-![](https://gdb.voanews.com/D9AB4B97-E50C-476F-A7A5-18ED6A5F87E6_w1023_r1_s.jpg)图片来源：AP
+![](https://s.rfi.fr/media/display/b2dc6c42-1282-11ea-9fbc-005056a99247/w:1280/p:16x9/p1201871a831594630-ss.webp)图源网络
 
-在与美国的战略竞争中，中共常常被美国在高科技领域上“卡脖子”，因此，中共时常觊觎领先于中共的台湾高科技产业。近年来，台湾爆发过多起中共间谍案，其中，除了涉及军事机密的信息外，更多的是关于产业或科技机密。
+为此，迫于人口老龄化和低生育的压力，中共打着“优化生育政策，促进人口长期均衡发展”的旗号，不得不废止了《计划生育技术服务管理条例》、《社会抚养费征收管理办法》和《流动人口计划生育工作条例》等三项计生恶法。
 
-而今，在中共不断对台湾进行武力恫吓与威胁并极力打压台湾国际生存空间的前提下，陆委会此次修订的两岸条例，或将强化涉及政府委托或补助的国家核心关键技术人员的赴陆规范。此举不仅可以保障国家核心关键技术的稳定发展，也是对共产党流氓政策的有力反击。
+事实上，中共实行计划生育恶法的这40年来，已经有约4亿左右的无辜婴儿被残忍杀害，造成了无数的人间悲剧。更可悲的是，对于孩子的生育与否，中国老百姓完全没有自己做主的权利，一切都是共产党说了算。至于中共，从其最初的严格计划生育政策，到后来取消二胎惩罚措施，而今又允许民众生育三胎并予以奖励，民众可谓被中共的朝令夕改玩弄于鼓掌之间，毫无人权与自由。现今，墙内民众对鼓励生育政策的相应者寥寥无几，中国的生育率持续下滑。
+
+归根究底，共产党用实际行动表明了，它们就是“上管天、下管地、中间还管生殖器”的彻头彻尾的独裁恐怖组织。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-[台湾陆委会修订两岸条例 严控关键技术人员前往大陆](https://www.voachinese.com/a/Taiwan-proposes-tightening-law-to-prevent-China-stealing-technology-20210929/6250465.html)
+国务院决定废止《流动人口计划生育工作条例》等行政法规\_https://m.nbd.com.cn/articles/2021-09-26/1926245.html
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
 
@@ -33,16 +35,16 @@
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)

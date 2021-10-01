@@ -2,34 +2,32 @@
 ---
 
 
-## DC每日热点0930
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1564732/)
+## 澳大利亚企业反抗政府严厉的封锁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564953/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/09/BB728306-4E31-4288-80F8-F675547884FC-scaled.jpeg)
-道琼斯指数 34412.51 ▲0.06%
-纳斯达克指数 14589.76 ▲0.53%
-WTI纽约原油CFD 73.499 ▼1.78%
-布伦特原油CFD 76.856 ▼1.58%
-美元兑人民币 1USD=6.458RMB
-美元兑港币 1USD=7.788HKD
-国际黄金 1737.52 美元/盎司
-全球CCP病毒感染人数 234,207,080 例
+栏目记者/责任编辑：DM
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-466.png)
+零对冲昨日报导，澳洲许多大公司的领导人，包括BHP、麦格理和澳洲航空的澳大利亚商业委员会签署了一封公开信，要求政府考虑经济和民意，解除过于严厉的封锁政策，像其他国家一样开放边境。
 
-1、台美日三方共同主持会议 美国重申致力拓展台湾的国际参与
-2、美中恢复防务磋商 五角大楼称是管控竞争的负责任做法
-3、美共和党参议员推出法案，谋求阻止中共与塔利班经济合作
-4、美国与欧盟同意在芯片供应、遏制中共国的非市场贸易行为等方面加强合作
-5、塔利班和中共国星期三要求美国停止派无人机飞越阿富汗领空，说此类行动破坏了阿富汗的主权和一项相互协议
-6、美国国会准备批准权宜资金，让美国政府继续运转
-7、台湾陆委会修订两岸条例 严控关键技术人员前往大陆
-8、国安法生效一年间 澳洲批4312港人移民 25年来最多
-9、法国参议员下周访台 中驻法大使卢沙野阻扰无效
-10、德国内政部证实：对小米手机展开安全调查
-11、五角大楼承认阿富汗战略失败
-12、国际奥委会：2022北京冬奥将在没有外国观众的情况下举行
-13、美联储询问华尔街银行对恒大的风险敞口
-14、高盛报告：中共地方政府隐性债务已达GDP一半以上
-15、金正恩称10月恢复朝韩热线 美敦促回归对话
-16、美大使：美澳英三边安全合作协议不会威胁印太地区的稳定
-17、哈尔滨三只宠物猫染新冠病毒被安乐死引社媒愤怒
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide3-31.jpeg)
+
+签署该公开信的公司雇佣了近100万澳大利亚人，澳洲的大小企业均在政府的疫情政策中苦苦挣扎，签署者之一，墨尔本基金管理公司乐筹金融的首席执行官格雷格·奥尼尔表示：现在是拿出勇气和诚实的时候了。
+
+从封锁到疫苗，澳州政府在疫情诸多政策上的专政表现，已经引起了澳洲民众不满与反抗，此番澳洲大企业的联合发声，为澳洲抗争带来了希望。
+
+（本文仅代表作者观点）
+
+参考链接：[Australia’s Corporations Rebel Against Government’s Draconian COVID Lockdowns](https://twitter.com/zerohedge/status/1443390250844295169?s=21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+
+终审：FoxRina
+校对/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
