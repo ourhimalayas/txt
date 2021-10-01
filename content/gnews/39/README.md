@@ -2,19 +2,43 @@
 ---
 
 
-## 昆士兰警员准备就疫苗强制令状告警局
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565475/)
+## 斯洛文尼亚警方在反疫苗通行证抗议中使用水炮
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1565557/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/id13200949-High_school_student_vaccine-600x400-1.jpeg)图片来源：www.epochtimes.com
-据7news9月30日报道，昆士兰警员准备就警局疫苗强制令向最高法院提起诉讼，该州医护人员也将发起同样的起诉。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/kendall_0-24.jpg)Source：THE ASSOCIATED PRESS
+斯洛文尼亚警方向数千名反对在这个欧盟小国强致推行抗新冠病毒措施的抗议者发射催泪瓦斯和高压水枪。作为回应，抗议者向防暴警察投掷瓶子和其他物品。
 
-昆士兰州警察局局长卡塔琳娜·卡罗尔已经指示警员和文职工作人员在10月4日之前至少注射一次疫苗，并在明年1月24日之前注射第二针。她说，任何未能在最后期限前完成的工作人员将被停薪一周，不同意者将被要求说明理由。
+大约1万名抗议者高呼“自由！自由！”警方介入时他们试图封锁卢布尔雅那以北的一条主要高速公路，这是斯洛文尼亚一个月内发生的第二起此类事件。
 
-对此，昆士兰警员准备就警局疫苗强制令向最高法院提起诉讼，并已确定了诉讼日期。因为这七名警员维护自身基本权利的上诉，预定第一次注射疫苗的截止日期已被推迟。
+周三，在斯洛文尼亚，抗议活动主要由反对使用新冠疫苗通行证的团体组织的，要求暂停使用强生公司疫苗，同时对一名接受疫苗导致死亡的20岁妇女的死亡进行调查。
 
-周四的听证会上，法院还收到了一个类似的诉讼，它是针对该州医护人员强制性疫苗接种。因为发现了更多的COVID病例，昆士兰总理宣布了新的限制措施，并且这些法律诉讼预计将在10月18日的一周内进行全面审理。
+卫生部长珍妮兹·波克鲁卡(Janez Poklukar)说，在专家确定该妇女本周死于中风与两周前接种的疫苗之间是否存在联系之前，强生 (J&J) 疫苗将暂停使用。
 
-参考链接：
+在斯洛文尼亚当局对使用疫苗通行证（包括在所有国营公司上班的人）提出新要求后，单剂强生疫苗变得更受欢迎。人们必须证明他们已完全接种疫苗或接受了昂贵的PCR测试。
 
-[Queensland police set for Supreme Court legal showdown over COVID vaccine mandate](https://7news.com.au/lifestyle/health-wellbeing/qld-jab-mandate-set-for-legal-showdown-c-4109650)
+政府批准从匈牙利购买额外的10万剂强生药物，以应对不断增长的需求。
+
+据官方STA通讯社报道，这名死亡的妇女是斯洛文尼亚第二位因接种强生疫苗而出现严重健康状况的人。斯洛文尼亚约有12万人接种了疫苗。
+
+在抗议活动之前，参与者为这位年轻女子默哀片刻。
+
+抗议者Katja Zupan说：“我是为了未来而来，为了我孩子们的未来，为了后代，因为这种疯狂的行为需要被制止。” “如果我们不为自己和人类挺身而出，那么我们就完了，我们就输了。”
+
+与中欧和东欧的大部分地区一样，斯洛文尼亚最近几周新冠病毒感染病例有所增加。这个拥有200万人口的国家已为近48%的人口接种了疫苗，这一比例低于许多其他欧盟国家。
+
+斯洛文尼亚已向所有18岁以上的人推荐强生疫苗，而一些国家则将其使用范围限制在老年人身上。
+
+简评： 疫苗之战，越演愈烈，黑暗无处不在，但是还是有不受政府和媒体愚弄的人们站出来发声，让越来越多的人听到他们的声音，了解疫苗的真相，这是一场全球性的战争，相信正义一定会战胜邪恶，爆料革命一定会凝聚所有的力量把真相传递出去，让越来越多的人和我们站在一起。
+
+**新闻链接：**[https://www.usnews.com/news/health-news/articles/2021-09-29/slovenia-suspends-j-j-vaccine-after-20-year-olds-death](https://www.usnews.com/news/health-news/articles/2021-09-29/slovenia-suspends-j-j-vaccine-after-20-year-olds-death)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
