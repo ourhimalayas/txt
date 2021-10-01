@@ -2,29 +2,15 @@
 ---
 
 
-## 2021年9月2日郭文贵先生做健腹轮健身盖特
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566845/)
+## 日本自民党新组建领导班子亮相
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1566900/)
 
-盖特连接：[https://gettr.com/post/p9vqa224f8](https://gettr.com/post/p9vqa224f8)
+韩国首尔天池农场—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/日.jpeg)自民党新的领导班子
+据日本雅虎新闻10月1日的报道，新当选的自民党总裁岸田文雄的新领导班子亮相。其中核心领导班子成员是4个人，分别是副总裁麻生太郎，干事长甘利明，选举对策委员长远藤利明，政策调查会长高市早苗，他们四人的平均年龄为64.25岁。
 
-9月2号尊敬的家人（注：疑似笔误，疑似为战友）们好：你们健身了吗？传播CCP病毒．香港危机．郑州人祸．病毒解药的真相了吗？
+副总理兼财务大臣麻生太郎就任党的副总裁，原经济财政大臣甘利明出任党的干事长，具体负责自明党的运营管理。原总务大臣高市早苗出任党的政策调查会长。担任过防卫大臣政务官的福田达夫，出任党的总务会长。原奥运担当大臣远藤利明出任党的选举对策委员长。原行政改革大臣河野太郎出任党的广报本部长。原经济产业大臣小渊优子出任党的组织运动本部长。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+另外，岸田虽然在4日的国会选举大会上才能正式就任日本第100代首相，但是内阁的组建工作已经开始。
 
-（无）。
-
-编辑整理及发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[新闻来源](https://news.yahoo.co.jp/articles/0702be2852c8c2927439dafdb8ca5383fb50b813)

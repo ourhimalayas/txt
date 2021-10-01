@@ -2,33 +2,46 @@
 ---
 
 
-## 秘翻在线：中共国很有可能对台湾动手
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566796/)
+## 96岁的前纳粹秘书在受审当天逃离疗养院后被捕
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1566722/)
 
-#### 采集/撰稿：极寒将至 
+- 编译：西班牙喜悦农场–wenwu
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7100a266f8ade674e55ee7ebdf3af377.jpg)图片来源：台湾雅虎
-市政厅网站（Townhall）专栏作家杰夫·克鲁尔（Jeff Crouere）的分析文章认为，如果中共政府要对台湾采取行动，现在可能正是时候，因为美军从阿富汗的溃败式撤军，以及拜登对中共国挑衅行为的沉默，显示出了美国处于软弱状态，领导层也很糟糕。
 
-现在越来越多的证据表明，武汉生化武器实验室是中共病毒的来源。如果这个理论是真的，那就意味着中共病毒要么是意外地泄露，要么就是做为生化武器有意的散播到全球。如今中共国不配合对中共病毒起源的调查，故意阻止这项调查的行为，不禁让人质疑中共到底在隐藏什么？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-14.png)
 
-这场大流行已经在美国造成超过70万人死亡，在全世界造成超过470万人死亡。美国在经济上付出惊人的代价，失去的数百万工作岗位可能永远不会回来，作为美国经济支柱的众多小企业在大流行封锁期间关闭。
+[据法新社报道](https://news.yahoo.com/former-nazi-death-camp-secretary-015110785.html?fr=sycsrp_catchall)，一名 96 岁的[纳粹](https://www.businessinsider.com/auschwitz-photos-nazi-camp-history-liberation-anniversary-2020-1?r=US&amp;IR=T)集中营指挥官的前秘书 Irmgard Furchner 将于周四（30日）在德国接受审判，她从疗养院逃跑，但在几个小时后被捕，现在法庭决定是否将她拘留；[据美联社报道](https://apnews.com/article/europe-crime-trials-courts-germany-6e3b2dc5f61d24e3b658ad3bac0b48ec)，这名高龄妇女的纳粹身份被德国媒体核实，并面临超过1.1万项谋杀从犯的指控。
 
-中共国从这场大流行病中获得了另一个重要的好处。直到2020年初，川普总统都是中共政权的眼中钉。在他的竞选和总统任期内，川普警告说中共国对美国经济构成威胁。并且川普政府致力于将美国工厂从中共国重新带回美国，他还大幅提高了对中共国商品的关税。这也导致中共政权痛恨川普政府对其造成的损失。
+据《Der Spiegel》报道，她原定于周四在德国北部的伊策霍州法院出庭，但从未露面；她周四一早离开了养老院，乘坐出租车前往附近的地铁站。很快，她就被找到了；法官 Dominik Gross 周四上午在法庭上宣布 Furchner 失踪，并补充说：“被告现在是逃犯，法庭已发出逮捕令。”
 
-这一切都在中共病毒大流行期间改变了。大流行导致了2020年大选的新投票模式。由于对中共病毒的恐惧和面对面投票的假定危险，邮寄投票大规模扩展到全国各地。在皮尤研究中心（Pew Research）的一项研究中显示，在2020年选举中邮寄选票或缺席选票占总投票的46%，而且这些选票绝大多数投给了拜登。拜登通过这种类型的选举模式赢得了总统。
+国际奥斯威辛集中营委员会副主席克里斯托夫·赫布纳说，这次越狱企图表明是“对幸存者和法治的蔑视”。
 
-川普的卸任让中共国受益匪浅。在拜登的领导下，从此中共国在白宫内有了一个“朋友”。拜登不仅在考虑放宽川普的关税政策，而且他对中共侵犯人权的行为不管不顾。在他最近在联合国的演讲中，拜登根本没有提到中共。他本可以谴责中共国如何残酷地镇压香港的自由运动，并监禁那些挑战共产主义政府的勇敢领导人，以及谴责中共国政府对穆斯林维吾尔社区实施的种族灭绝的行为。
+上周，Furchner 给法官 Dominik Gross [写了一封信](https://www.spiegel.de/panorama/justiz/irmgard-furchner-ehemalige-kz-sekretaerin-schreibt-brief-an-den-richter-a-23ea17a0-e888-4011-b704-a23704921ef5#bild-73100b92-c859-453f-8b0b-f1f4ab85911e)，说她出于健康原因不想出庭；据《[图片报](https://www.bild.de/regional/hamburg/bremen-aktuell/paukenschlag-zum-prozess-auftakt-in-itzehoe-angeklagte-kz-sekretaerin-auf-der-fl-77828838.bild.html)》报道，她在信中说：“我想避免这些尴尬，不要让自己成为笑柄。”
 
-拜登的沉默只会鼓励中共国对他们最喜欢的目标台湾进行更多的侵略。在美国军队耻辱性地从阿富汗撤出以及美国人质继续留在该国之后，中共政权变得更加胆大妄为，并升级了对台湾的威胁行为。中共国在台湾附近越来越频繁地进行“突击演习”，并派出越来越多的军机进入台湾防空识别区。
+据《[明镜周刊》报道](https://www.spiegel.de/panorama/justiz/kz-stutthof-sekretaerin-von-kommandanten-irmgard-furchner-stenotypistin-des-grauens-1623060543-a-9777266e-75a4-4d28-ab01-095f9fba08b9)，Furchner 18 岁时开始在[纳粹占领的波兰的](https://www.insider.com/germany-100-year-old-former-nazi-death-camp-guard-trial-2021-8)斯图特霍夫集中营曾担任，前纳粹党卫军指挥官保罗·沃纳·霍普（Paul Werner Hoppe）的秘书；霍普作为纳粹集中营指挥官，编写了处决命令、开往奥斯威辛集中营的火车的驱逐清单，以及在纳粹集中营毒气室进行大屠杀的指示。报道称，Furchner 以信件和无线电信息的形式，传达了他的命令。
 
-中共国的意图很明显，要么是直接入侵台湾，要么是怂恿台湾投降。即使我们与台湾有“安全伙伴关系”但美国政府面对中共的挑衅仍无动于衷。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-15.png)
 
-许多分析人士认为，当我们的国家仍在阿富汗的崩溃中挣扎时，中共国会迅速对台湾采取行动。
+据美联社报道，在过去的纳粹审判中曾作为证人接受讯问时候的 Furchner 声称，她此前不知道她在那里工作时，在集中营所发生的杀戮事件。
 
-只有在美国处于软弱状态，而且政府领导层很糟糕的时候，中共残暴的共产主义独裁者才会放心采取进一步对台湾的威胁。如果中共国要采取行动，那么现在可能正是时机。我们绝不能像在阿富汗那样毫无准备，对美国国家安全的影响太大了。
+她是几十年来第一位因第三帝国的罪行而接受审判的女性。
 
-原文作者对中共国的威胁认识得非常到位，但遗憾的是作者没能分清中共——这个政权才是最大的威胁，作者也没有将中共和中国，中国人分开，如果不能让美国人学会区分，那将造成灾难性的后果。
+**简评：**
 
-新闻来源：[Target Taiwan](https://townhall.com/columnists/jeffcrouere/2021/09/27/target-taiwan-n2596519)
+**早在国殇日前十年，欧洲出现了一个纳粹德国，该组织以发动世界大战和屠杀犹太人而闻名。现今全世界对该邪恶组织的追杀仍为停止，并且如今已经没有人敢说自己是纳粹了，但这并不意味着纳粹的种子被拔除了（邪恶的华尔街并没有被定罪）。**
+
+**另一方面，据2021年9月30日《耶路撒冷邮报》[报道](https://www.jpost.com/international/leader-of-neo-nazi-group-convicted-of-five-federal-felonies-680735)，美国司法部周三（29日）的一份声明表示，新纳粹组织“[原子武器](https://www.jpost.com/international/transgender-ex-neo-nazi-wont-face-prison-time-already-suffered-enough-663842)”的领导人被判犯有五项联邦重罪。 **
+
+**25岁的新纳粹组织“原子武器”领导人卡莱布·科尔(Kaleb Cole)和其他四人去年被指控对记者和反诽谤联盟(Anti-Defamation League)的雇员进行网络跟踪，并发送写满纳粹标志的海报。一张海报还被粘在《犹太生活方式杂志》的一个编辑的卧室窗户上。该海报包括”你已经被当地的纳粹分子拜访了”这句话。最终，他在为期两天的审判后被判刑**。
+
+**中共是人类历史上比纳粹邪恶万倍的跨国犯罪组织。新中国联邦不仅会让中共受到应有的法律制裁和遗臭万年，更有有责任让中共的犯罪分子永远在历史长河中被唾弃。**
+
+（文章仅代表作者观点 与GNEWS无关）
+
+新闻来源：《[内幕信息](https://www.insider.com/former-nazi-concentration-camp-secretary-due-on-trial-missing-report-2021-9)》｜作者：索菲亚·安克尔&丽贝卡·科恩｜发布时间：2021年9月30日
+
+* * *
+
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

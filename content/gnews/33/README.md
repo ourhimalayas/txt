@@ -2,82 +2,37 @@
 ---
 
 
-## 印尼排华事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566519/)
+## 从最高视角看懂孟晚舟获释，华为和她本人的灾难刚刚开始
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1559364/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-4.jpg)https://gtv.org/video/id=61567132d2e2b817486fd8fb
-郭文贵
-Miles Guo：
+**作者：新西兰伊甸农场 亚伦**
 
-有站出来说话的吗？没有人站出来说话
-Did anyone stand up and speak? No one stood up to speak
 
-当时印尼杀害50万华人， 110万华人受害的时候
-When Indonesia killed 500,000 Chinese and 1.1 million Chinese were victimized,
 
-美国人说一句话了吗？
-Did the American say a word?
+**9月26日，文贵先生在GTV大直播中透露，华为的背后有两个“官方的爹”：一个是总参二部，就是解放军的情报部；一个就是习皇帝的姐夫老吴（习近平的姐夫是华为股东）。**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/b128-84c62b02f53041f1078482bf28b2e8b4.png)
 
-欧洲人说一句话了吗？
-Did the Europeans say a word?
 
-你们问过这个问题吗？
-Have you asked this question?
+**华为是中共亲手打造的一个靠科技蓝金黄对付西方，利用通信系统特别是****5G****技术欲征服世界的平台。领头人任正非是当年给军队的领导搞农场、搞游泳池的。如果让华为的任何人，把华为的本质告诉了美国和西方****社会****，所有过去这些年埋在西方的偷取技术和蓝金黄网络将会全部暴露。**
 
-1998年呐
-The year of 1998
+**当然，包括美国的华尔街、甚至五角大楼里出卖美国国家利益的卖美贼，也将全部暴露。所以美国的卖国贼为了摆脱罪责也不希望孟引渡至美国受审。除了美国之外，也包括英国、德国、法国等被华为蓝金黄的官方人士，都在极力阻止孟晚舟引渡到美国。即便到现在，英国华为仍然有****2****万****6****千个华为的信号基站，现在一个都没拆。**
 
-1968年， 1998年
-The year of 1968 and 1998
+**总结孟晚舟可以在认罪下延迟起诉而脱身，主要有三个方面的原因：**
 
-这两个时间段
-These two time periods
+**一、这是与中共勾兑的这些西方国家“沼泽地”力量、情报机关最想要的结果，可以免于追查；**
 
-那人类还不至于说 （没有人敢站出来）
-Humans don’t even say (no one dares to stand up)
+**二、华为第二个“亲爹”是习的亲姐夫老吴，华为股份的持有者。华为与****ZTE****中兴，这都是皇帝习家的私产。习可以用国家的名义和国家的外交力量，让孟晚舟回去；**
 
-那是美国最强盛的时候
-America was at its strongest in that time
+**三、也是最重要的，只有孟晚舟知道“钱路”。孟晚舟代持了任正非在海外至少隐藏的****3000****亿美元资产，因为资产是通过信托产品，必须要代持人本人出面签字，否则其他人是拿不走的。所以孟一定是要回去的，不然这****3000****亿美元就没了。**
 
-你两次杀害中国人
-Haji Mohammad Suharto killed the Chinese twice
+**但是孟晚舟认罪无判的回归，也引发了重大的影响。**
 
-这么多残害和杀害
-So much cruel injuries and killing
+**首先对于孟本身，是她个人悲剧的开始，她要么意外死掉，要么被控制着活一辈子。当一个人被贴了标签，被高高挂起在高位，那她一辈子都将是一个牺牲品，会死的会比王健惨一万倍。**
 
-他们成为全世界有史以来最残忍的一次，人类大灾难
-They became the cruelest human catastrophe in the history of the world
+**对国内政治斗争的影响，习通过孟晚舟事件告诫党内。只要跟习的，吃香的喝辣的，即使犯罪都能无罪接回来继续做民族大英雄，接受无脑小粉红和拿佣金举国旗的人顶礼膜拜。跟随王岐山的人，就是王健，陈峰的下场。跟随多家常委骑墙派的，就是许家印的下场。**
 
-有人说话吗？
-Does anyone speak?
+**最后文贵先生还告诉大家两点：孟晚舟回国会比去美国还惨，她结局会非常惨，被高高挂起不会超过****2025****年；华为的灾难，一切糟糕的事情，从孟晚舟回国开始。**
 
-有人替我们华人说话吗？
-Does anyone speak for us Chinese?
+**孟这穿着红裙一回国，彻底激怒了当时制裁华为的力量，美国的科技领域极右派，背后的****AT&T****、硅谷等公司。也包括金融领域的极右派，一定要灭掉华为自己才能赚钱的，再就是要废掉华为保美国根本的鹰派军方。华为成了中共和西方科技较量的第一杆枪，结局一定是被美国消灭。**
 
-不要爱美国爱西方爱疯了
-Don’t love America and the West too much crazy!
-
-就资本主义的没有原则
-There is no principle of capitalism
-
-还有他们根本不懂得东方
-And they don’t know the East at all
-
-甚至不懂得苏联
-They don’t even understand the Soviet Union
-
-他不知道共产主义的邪恶
-He doesn’t know the evil of communism
-
-原视频日期：2021/09/28
-原视频链接 https://twitter.com/se1y7cblljselva/status/1442805365972688900?s=24
-视频时间段 : 00:00-00:54
-英听校： 洛杉矶盘古农场 – Raul
-翻译： 洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**这也正和芯片联系在一起了，华为现在的主攻方向就是芯片，任正非在低调地研发芯片。芯片的较量，使华为会成为中国和西方世界敌对的核心，所以也将成为不管输赢的牺牲品。**
