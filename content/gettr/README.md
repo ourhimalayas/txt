@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 4:15 AM (UTC)`
+
+9/30/2021 Miles Guo’s GETTR: Wang Qishan and Meng Jianzhu have done numerous things that even Xi doesn’t know. The CCP’s recent announcement about Sun Lijun has covered up Sun’s over 100 murders and kidnappings, his attempt to murder and assassinate Xi, and the surveillance footage of the CCP’s top leaders, indicating that Sun Lijun’s force is getting stronger and is everywhere!<br/><br/>9/30/2021文贵盖特：过去几年王岐山和孟建柱干的很多事连习都不知道；中共最近关于孙力军的公告掩盖了他杀人绑架百次以上、企图谋杀和暗杀习以及监控中央领导的视频，该公告恰恰说明孙力军的势力正变得更强且无处不在！<br/>
+![img](https://media.gettr.com/group3/getter/2021/10/01/04/15/c54221e7-8a7f-cb45-cbe4-2df5e900a0e3/out.jpg)
+
+---
+
 `@miles 10/1/2021 3:36 AM (UTC)`
 
 9/30/2021 Miles Guo’s GETTR: Please post on all social media outlets everyday as much as possible the videos of people talking about the cons of the COVID jabs plus the evidence and information! I am grateful to the fellow fighters around the world for distributing tons of materials about the COVID vaccines to various media outlets and expert institutions! No COVID vaccine mandate! Nothing is more important than taking down the CCP with the truth about the COVID vaccines!<br/><br/>9/30/2021 文贵盖特: 请大家尽可能每天在所有社交媒体上发布关于人们以身说冠状病毒疫苗坏处的视频、证据和信息！感谢全球的战友们向各媒体和专家机构发送大量关于疫苗的材料！绝不能强制打疫苗！没有比“以疫苗灭共”更重要的事了！<br/>
@@ -293,13 +300,6 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 
 Dr. Pierre Kory during the senate hearing: immerse amount of data have shown that Ivermectin is a life-saving early treatment against Covid-19<br/><br/>皮埃尔·科里医生在参议院听证会上：大量数据表明，伊维菌素是早期治疗中共病毒的救命药
 ![img](https://media.gettr.com/group19/getter/2021/09/28/09/24/52ea0b21-8e74-763b-c0f7-7017adb8d4f2/out.jpg)
-
----
-
-`@miles 9/28/2021 5:30 AM (UTC)`
-
-An angry female Evergrande investor scolded Xu Jiayin in a meeting <br/><br/>一位愤怒的恒大女投资人在会议上对许家印破口大骂
-![img](https://media.gettr.com/group46/getter/2021/09/28/05/30/5978537a-4d44-1992-f95e-dcc715cf99bd/out.jpg)
 
 ---
 

@@ -2,39 +2,45 @@
 ---
 
 
-## 习近平正将中共国引上委内瑞拉之路
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1565774/)
+## 众议员加拉格尔和参议员汤姆·科顿呼吁拜登政府将与中共相连的生物技术公司列入黑名单
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1565822/)
 
-#### 【雅典娜观察】与您一起洞察世界
+众议员加拉格尔新闻办： 众议员加拉格尔和参议员汤姆·科顿呼吁拜登政府将与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相连的生物技术公司列入黑名单。 【福克斯商业新闻报道：参议员科顿和加拉格尔参议员写信给财政部，商业部和国防部呼吁将中共国生物技术公司列入制裁名单，称中共国将生物技术军事化有意违背美国利益】
 
-作者：顺其自然
-编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/09/71d645ec-5fd4-4f1d-a01b-540aa352e509.jpg)图片来源：网络图片
-【**编者按：**郭文贵先生曾数次提起YouTube一个“闲聊澳洲”的频道，主播Lily女士正是本文的作者。本专栏将陆续推出Lily女士的直播简要，欢迎关注。】
 
-昨天，网易、腾讯等主要网络媒体都转载了《第一财经》的一篇文章，内容是当前居民消费增速降低之快超乎想象，呼吁尽快拿出对策。文章中说，内需不振的深层次原因并非局部地区突发疫情所致，更重要的且可能构成长期影响的原因包括几点：疫情后中低收入阶层可支配收入增速放缓甚至出现下降；疫情对居民消费习惯产生影响；房地产市场形势发生变化。
 
-近年来，提升消费促进内需一直是中共国经济工作重点。然而在后疫情时代经济本该全面复苏之际，居民消费数据的恢复却一直滞后，最近更是出现了加速下滑的态势，令人瞠目。国家统计局日前公布的8月份经济数据显示，8月当月社会消费品零售总额34395亿元，比上月大幅回落6个百分点，同比仅增长2.5%，两年复合增速为1.5%，比7月份回落2.1个百分点，下行较快。而刚刚公布的今年中秋假期国内旅游出游为8815.93万人次，按可比口径只恢复至2019年中秋假期的87.2%；旅游收入为371.49亿元，是2019年中秋假期的78.6%，人均旅游消费降幅不小。
+> Rep. Gallagher and [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) are calling on the Biden Administration to blacklist CCP-affiliated biotechnology companies. 
+> 
+> Read more here: [https://t.co/us8PCAFQ2Z](https://t.co/us8PCAFQ2Z)
+> — Rep. Gallagher Press Office (@RepGallagher) [September 30, 2021](https://twitter.com/RepGallagher/status/1443669009157722112?ref_src=twsrc%5Etfw)
 
-很明显，疲弱的消费数据将进一步拖累中共国经济的复苏和全年增速。疫情加剧了收入分化，今年以来公布的居民消费数据也印证了这一点：疫情后社会零售总额增速滞后，社会总需求不振。只有富裕阶层的消费有所增加，去年以来国内豪华车、奢侈品及豪宅的销量逆势有所增加。这篇文章透露出的意思就是众多的底层百姓没钱消费了，只有富豪阶层出手阔绰，中国要想用消费拉动增长，已不太可能。
 
-中共国经济这么多年来一直靠投资、消费和出口这三驾马车来拉动，现在哪辆车都跑不动了。我们先看一下出口。今年以来的出口表面上红红火火，但利润大多被大幅上涨的海运费和原材料吃掉了。再有如今出口的增加掺杂着大量的洗钱行为，货物卖到了国外钱却并没有回到国内，而是都留在了海外。这也是很多公司即便赔钱也要出口的原因，因为他们急于要把国内的钱转往海外。
 
-再说消费，在《第一财经》谈居民消费增幅下降的那篇文章下面有位网友留言说：中秋节我跟老婆出去逛商场，看到服装店人不多，超市里人也一般，商场中的饭店小吃店都生意冷清。回到家里，买菜回来的老妈却说，菜市场里摩肩接踵，人多的不得了。如此看来，消费真是下滑得厉害。人们连吃饭穿衣这种最起码的消费都已经到了节衣缩食、退守基本需求的地步了。消费拉动可不是靠居民每天在菜市场买菜，回家做饭能拉动得了的，它要靠外出游玩，上饭店吃饭，经常换衣服，更换车、手机等大件消费品来拉动。现在由于老百姓收入预期降低，所以没钱也不敢多消费了。
+众议院外交委员会共和党领袖： 麦考尔：“[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在全球范围内使用法律战来攻击多家公司。贬低美国知识产权等同于窃取它。各公司不应该利用中共控制的法院来解决他们的法律纠纷。” 【附华尔街日报报道：中国使用新法律武器打击知识产权盗窃索赔案】
 
-最后看投资。长期以来，中共经济最主要的驱动力就是投资拉动，而投资的最大头非房地产莫属，房地产的红火牵引了中共国经济20多年。中共国这些年最主要的所谓“成功经验”，也全部都是走这条路取得的。这也是很多国人最骄傲自豪的东西——看看我们中国高楼大厦多宏伟漂亮，高铁动车速度飞快，相比西方陈旧的基础设施和老旧的房子，简直好到天上去了。那么，投资拉动这条路还可以一直走下去吗？其实中共心里门儿清的很，所以之前才会反复强调不再对经济搞强刺激。但面对经济减速中共慌不择路，只能不时地把这个夜壶捡起来重新使用。其实这只是一针兴奋剂，不仅解决不了实际问题，还让问题越积越多。就拿2007年来说，政府大概投下去了7万亿货币，拉动了经济产出5万亿的增长。2008年投入了25万亿的货币，也只拉动了5万亿的增长。这说明投资拉动的边际效应在快速递减，甚至经济增长已经对于货币投入不再敏感了。反过来，为了拉动这么一点效果有限的经济增长，却大大了刺激国内房地产那个本来就巨大无比的泡沫，让它在短短数年中又膨胀了很多，目前总规模达到了90万亿美金这一惊人的数字，超过了美、日、英、法、德五国的房地产总值，也是中共国GDP的500%，这一房地产与GDP的比值已远超美国次贷危机发生和日本房地产泡沫破裂时的水平。本来是拉动经济的手段，却为经济埋下了更大的雷。
 
-现在中共国内的经济萎靡到了这样的程度，外资撤走，工厂倒闭，大量人员丢掉饭碗。要命的是一直引以为傲的外汇储备也见了底，不然也不会陷入连进口煤炭发电的钱都没有的空前窘境。在这种情况下，中共政府的税收自然大大减少，昔日滚滚而来的卖地钱如今彻底断流，那么多公务员、离退休人员的工资退休金等着发，大笔的军费和维稳经费等着派。面对无解的经济困局，中共穷尽所有的手段后别无选择，只能像当年国民党发行金圆券那样，饮鸩止渴超发货币。这必然引发恶性通货膨胀，导致空前的经济危机。人民将陷入水深火热之中，到时候吃饱肚子就成了老百姓最大的愿望。这是一条通往委内瑞拉之路，总加速师习大神正驾驶着中共这辆破车，往这条道上一路狂奔。
 
-**YouTube****链接**：[闲聊澳洲](https://www.youtube.com/watch?v=3uNFZMXT-qQ)
-**GTV****频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): “The CCP is using legal warfare on a global scale to attack companies. Devaluing American IP is the same as stealing it. Companies should not be using the CCP controlled courts to settle their legal disputes." [https://t.co/KIYbQzUi1w](https://t.co/KIYbQzUi1w)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [September 30, 2021](https://twitter.com/HouseForeignGOP/status/1443675566369120263?ref_src=twsrc%5Etfw)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-发布：七彩光
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美国国务院： 美国和欧盟拥有 7.8 亿人，他们共享民主价值观，是世界上最大的经济关系之一。我们正在一起制定共同原则，以更新 21 世纪的经济规则。更多的： 【附国务院官网公布】
+
+
+
+> The United States & European Union are home to 780 million people who share democratic values and one of the largest economic relationships in the world. Together, we are establishing common principles to update the rules for a 21st century economy. More: [https://t.co/SzNXhayAit](https://t.co/SzNXhayAit)
+> — Department of State (@StateDept) [September 30, 2021](https://twitter.com/StateDept/status/1443666967861374984?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 乔拜登的银行监管提名人曾赞扬过苏联 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)。 她想“结束我们所知道的银行业”。 她是不合格的，且是一个可怕的选择。 乔·拜登又一次违背诺言。 【附华尔街日报观点文章：经济主计长 拜登提名的银行监管人真的非常讨厌… 银行。】
+
+
+
+> Joe Biden's nominee to regulate banks praised Soviet communism. She wants to "end banking as we know it."
+> 
+> She's unqualified and a terrible choice. 
+> 
+> Yet another broken promise from Joe Biden. [https://t.co/g6rHY8o0As](https://t.co/g6rHY8o0As)
+> — Tom Cotton (@TomCottonAR) [September 30, 2021](https://twitter.com/TomCottonAR/status/1443627436025987079?ref_src=twsrc%5Etfw)

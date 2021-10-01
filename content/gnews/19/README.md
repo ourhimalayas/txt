@@ -2,49 +2,27 @@
 ---
 
 
-## 蒙俄建交百年联合军演防备中共
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1565741/)
+## 中共“国庆”前夕 香港强力威吓打压异议声音
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1565761/)
 
-作者：纽约香草山农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16330517721.png)
+据美国之音10月1日报道，在中共非法政权“国庆日”到来前夕，香港当局决定9月30日和10月1日向街头增派8000名警察，多于2019年“十一”期间的6000名警察。同时，纪念中共1989年调遣野战军镇压天安门民主行为的网上博物馆在香港被屏蔽。港人必须要向中共国大陆网民那样使用翻墙软件才能进入。此外，香港立法会还通过一项议案，禁止在网络上焚烧、毁损等亵渎中共国旗，违者将被处监禁3年。
 
+中共当局多年来设立所谓的防火墙，又称信息柏林墙，对中共国大陆网民实行严格的网络管控。如今香港用户也需要用翻墙软件才能登录网上八九六四博物馆，显示了香港在网络信息控制方面进一步向中共大陆和“一国一制”靠拢。
 
+中共一直想收回香港和台湾并实行和大陆一样的严格监管。如今香港已经沦陷，中共对台湾的威胁与日加增。自由世界还能够忍受中共多久？但愿人民能够早日清醒，让邪恶中共度过世上最后一个冥诞“国庆”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+新闻参考链接：[https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html](https://www.voachinese.com/a/Hong-Kong-Deploys-Massive-Police-For-National-Day-20210930/6252028.html)
 
+编辑：胖丁
 
+* * *
 
-蒙古与俄罗斯至2021年已建交百年，同时，蒙古军队也于今年迎来了百年建立之年。近期，蒙古与俄罗斯再度开展持续多年的色楞格河军事演习。地处中共国与俄罗斯之间，蒙古此举或可被视作对中共的防范。
-
-![](https://gdb.voanews.com/5C7F270B-7EAA-44C2-9730-688D2E871E3C_w1023_r1_s.jpg)图片来源：路透社
-
-历史上，蒙古建军主要借由俄罗斯的资助。因此，此次演习的双方均特别强调了两国经过时间考验的战斗友谊，同时，俄军也会参加蒙古军队建军百年的系列庆祝活动。
-
-事实上，俄罗斯东亚问题学者库兹明认为，在前苏联解体后的一段时间里，由于俄罗斯自顾不暇，使得长期依赖苏联的蒙古被迫开始与中共国发展关系。于是，中共趁机将其对蒙古的影响从经济领域扩展到政治和宗教领域。而今，中共国对蒙古的经济渗透已经对蒙古的国家主权构成了威胁。为此，减少对中共的依赖，无疑对蒙古有利。
-
-另一方面，根据英国杂志《经济学人》评出的民主指数显示，俄罗斯虽然从混合政权降为独裁政权，但其国内的民主情况仍然要比中共国好许多。另外，俄罗斯政府指定的四个传统宗教——基督正教、伊斯兰教、犹太教和佛教——与宗教信仰普遍复兴的蒙古来说几乎完全相同。可以想象，蒙古国政府或许已经意识到，不断加强与俄罗斯的关系并逐渐摆脱中共的影响和控制，才是国家安全的生存之道。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-[俄蒙建交百年 仍不忘防备中（共）国](https://www.voachinese.com/a/Russia-Mongolia-100-years-diplomatic-relations-not-forget-alert-against-China-20210927/6247388.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/September-Calendar.jpg)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

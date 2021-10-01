@@ -2,20 +2,27 @@
 ---
 
 
-## 媒体抹杀伊维菌素是为了给“辉瑞菌素”上市打掩护
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565841/)
+## 中共国出现本月第四宗H5N6禽流感死亡个案
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1565851/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/09/1-148.jpg)图片来源：知乎
-最后的警告网站9月30日报道，最近人们觉得奇怪，“为什么伊维菌素占据了主流媒体？”，答案是“辉瑞公司”。因为该公司盗版这个药，试图借此大肆赚钱。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-4.jpg)
 
-本周一，辉瑞向世界宣布它正在加速开展第二和第三期临床试验，但奇怪的是这个像伊维菌素的药物却有了新的名字，辉瑞说这个具有潜在预防中共病毒作用的药物起到了“潜在的蛋白酶抑制剂”的作用，其实伊维菌素就是起了这个作用。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/09/text-SC-1-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-那为什么很可笑地变成了新的“辉瑞菌素”了呢？不管辉瑞最后给这个药起了什么名字，这就是与伊维菌素一样的，而且这将调整修改，变得比伊维菌素效果要差一些，因为政府不想要人们受到保护，从中共病毒中恢复过来，不，他们更想要绑架公众，不让人们用伊维菌素，而是用他们的所谓新的“专利药物”，让人们花更多钱，辉瑞因此获取巨大的利益。伊维菌素已经在印度挽救了上百万的生命，巴西和其他一些地方都是可以让公众买到的。由于北美公众不能买到伊维菌素，很少人能从此药上获得益处。为什么美国人允许大公司埋没这个药？
+视频参看： 2021.09.30晚GTV新闻访谈
 
-人们怀疑这个名为“PF-07321332”的辉瑞新药就是伊维菌素再包装，其目的就是要抬高药价，以至于只有富人才买得起，大公司和其恐怖主义者在那里限制用药，他们已经使这个药比伊维菌素更贵，尽管事上这就是同一个药物。辉瑞在剽窃这个便宜的药，把这个用于马的驱虫药换成其他名称，卖出去大赚一笔，美国食品药物管理局（FDA)也不想用这个名称，然后大家就会说是这个辉瑞菌素治愈了这个场人祸。事实上，这些药物公司却趁机大肆谋财害命。
+[https://gtv.org/broadcast/watch/6156560a304e992109ad5a5d](https://gtv.org/broadcast/watch/6156560a304e992109ad5a5d)
 
-据零对冲网报告，这个新的“盈利中心”将继续让股东们富得流油。请关注揭露腐败新闻（Corruption.news)跟踪关于辉瑞剽窃伊维菌素的新闻。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-新闻来源： [**Media smear campaign against ivermectin timed to clear market for Pfizer’s new ivermectin-like clone drug, which will be hailed as a “miracle”**](https://www.afinalwarning.com/558297.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
