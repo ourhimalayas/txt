@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 11:48 PM (UTC)`
+
+✊✊✊
+> `@zaqmlp45671 10/1/2021 11:39 PM (UTC)`<br/>好消息！加拿大BC省的卫生官在谈到疫情形势的时候，没有再推疫苗！七哥太牛啦👍👍👍🙏🙏🙏
+![img](https://media.gettr.com/group45/getter/2021/10/01/23/b3ee9a8a-c382-e3e0-bb82-18d5291337c8/05b223c58ef197aaced69a3db8f59a4d.jpg)
+
+---
+
 `@miles 10/1/2021 7:43 PM (UTC)`
 
 10月1号：疫苗灾难将是人类有史以来最大的一次人类大屠杀……每时每刻疫苗，杀人的數字．和速度和危险，都在改写一切的历史。【致所有那些对不打疫苗的人进行霸凌的人们： 请停止霸凌, 因为新冠疫苗正在杀人……To all those who bully people who are not vaccinated: Please stop bullying, because the new crown vaccine is killing people】
@@ -289,14 +297,6 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 
 9月28号：七哥在开会前．紧急给战友们录个视频，全世界的人民的生活方式和所有的全球的供应链就有巨大的改变。我们该如何应对，共产党内部正在酝酿的腥风血雨．是先抓曾庆红．王岐山，孟建柱，还是全部抓捕呢？
 ![img](https://media.gettr.com/group21/getter/2021/09/28/16/28/54dfbd93-9e87-9b09-32b5-d4c6a8c8abdb/out.jpg)
-
----
-
-`@miles 9/28/2021 3:30 PM (UTC)`
-
-9月28日：这是真正的英雄，我们的兄弟姐妹，这是大好人。
-> `@dailybeats 9/28/2021 1:50 PM (UTC)`<br/>Last year, she was a hero, this year, she will be terminated from her job. Here is why! 
-![img](https://media.gettr.com/group30/getter/2021/09/28/13/50/c436579d-dcd6-bccc-48ab-c48646cc6eb3/out.jpg)
 
 ---
 
