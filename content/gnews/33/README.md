@@ -2,19 +2,82 @@
 ---
 
 
-## 秘翻在线：为阻止要求所有军人接种中共病毒疫苗，军人起诉国防部长
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566515/)
+## 印尼排华事件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566519/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-4.jpg)https://gtv.org/video/id=61567132d2e2b817486fd8fb
+郭文贵
+Miles Guo：
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2.jpg)图片来源：CBS新闻
-9月30日，据《国会山报》(The Hill)报道，两名军人对国防部长劳埃德·奥斯汀（Lloyd Austin）提起了诉讼，以阻止他要求所有部队接种中共病毒疫苗。
+有站出来说话的吗？没有人站出来说话
+Did anyone stand up and speak? No one stood up to speak
 
-这两名军人分别是陆军上士丹·罗伯特（Dan Robert）和海军陆战队上士霍利·马尔维希尔（Hollie Mulvihill），两人都在北卡罗来纳州，他们认为国防部的强制接种中共病毒疫苗“公开侵犯”了军人的权利，是违宪的，同时，他们也希望五角大楼为那些以前就感染过中共病毒的人豁免疫苗注射，因为他们已经拥有了“自然免疫力”。他们于8月17日在美国科罗拉多州地区法院提起了该诉讼。
+当时印尼杀害50万华人， 110万华人受害的时候
+When Indonesia killed 500,000 Chinese and 1.1 million Chinese were victimized,
 
-在该诉讼中，国防部长奥斯汀、卫生和公共服务部长泽维尔·贝塞拉（Xavier Becerra）和食品和药物管理局（FDA）的代理专员珍妮特·伍德科克（Janet Woodcock）均为被告。
+美国人说一句话了吗？
+Did the American say a word?
 
-报道说，根据国防部的数据，美国军事人员中已经超过372000个中共病毒病例（其中233300是军人），5274人接受住院治疗，515人死亡。截至周三，已经有58名军人、水手和飞行员死于中共病毒。
+欧洲人说一句话了吗？
+Did the Europeans say a word?
 
-新闻来源：[Troops move to block Pentagon vaccine requirement in court](https://thehill.com/policy/defense/574790-troops-move-to-block-pentagon-vaccine-requirement-in-court?rl=1)
+你们问过这个问题吗？
+Have you asked this question?
+
+1998年呐
+The year of 1998
+
+1968年， 1998年
+The year of 1968 and 1998
+
+这两个时间段
+These two time periods
+
+那人类还不至于说 （没有人敢站出来）
+Humans don’t even say (no one dares to stand up)
+
+那是美国最强盛的时候
+America was at its strongest in that time
+
+你两次杀害中国人
+Haji Mohammad Suharto killed the Chinese twice
+
+这么多残害和杀害
+So much cruel injuries and killing
+
+他们成为全世界有史以来最残忍的一次，人类大灾难
+They became the cruelest human catastrophe in the history of the world
+
+有人说话吗？
+Does anyone speak?
+
+有人替我们华人说话吗？
+Does anyone speak for us Chinese?
+
+不要爱美国爱西方爱疯了
+Don’t love America and the West too much crazy!
+
+就资本主义的没有原则
+There is no principle of capitalism
+
+还有他们根本不懂得东方
+And they don’t know the East at all
+
+甚至不懂得苏联
+They don’t even understand the Soviet Union
+
+他不知道共产主义的邪恶
+He doesn’t know the evil of communism
+
+原视频日期：2021/09/28
+原视频链接 https://twitter.com/se1y7cblljselva/status/1442805365972688900?s=24
+视频时间段 : 00:00-00:54
+英听校： 洛杉矶盘古农场 – Raul
+翻译： 洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,70 +2,27 @@
 ---
 
 
-## 恒大票据如果不能贴现或付息，相当于10个雷曼兄弟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566486/)
+## 速报：一个时代的结束！日本大相扑第69代横纲白鹏宣布退役
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1566488/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-3.jpg)https://gtv.org/video/id=615670bad2e2b817486fd8e9
-大家(知道)只要是这个1000亿
-Todos saben si estos 100 mil millones
+#### 撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-3.jpg)
+10月1日下午3时，日本大相扑选手第69代横纲白鹏在东京宣布退役。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-1.jpg)
+白鹏，本名白鹏翔，现年36岁，1985年3月11日出生于蒙古乌兰巴托。在其长达14年2个月的横纲在位时期，打破并创下了无数记录，尤其是以下三个记录均是历史第一，可以说前无古人后无来者。
 
-它不能贴现的话
-No pueden ser descontados
+\* 墓内夺冠回数（45）
 
-不能付息
-No pueden pagar intereses
+\* 横纲在位场所数（84）
 
-或着它宣布说我还不了了
-O que él anuncie de no poder pagar esto
+\* 幕內力士获胜次数（1093）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-1.jpg)
+2019年9月3日取得日本国籍、退役后改名为間垣，作为教练指导年轻的相扑运动员。
 
-它的杠杆的力量是达到几千(亿)
-El poder de su apalancamiento es de varios miles (miles de millones)
+大相扑被称为日本的国技，外国出生的相扑运动员在竞技之外受到了更多的要求和条件。白鹏的妻子是日本人，共同育有四个子女。白鹏也曾在节目中说过正是因为有了妻子的帮助，自己才可以专心于竞技，取得目前的成绩。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-1.jpg)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-最起码5000亿
-Al menos 500 mil millones
-
-5000亿
-500 mil millones
-
-美国直接600个点就下去了
-Estados Unidos caerá directamente a los 600 puntos
-
-大家你知道美债现在有多恐怖啊
-Todos saben lo horrible que es la deuda estadounidense ahora
-
-美债已经28万亿了
-La deuda de Estados Unidos ya es de 28 billones
-
-快到30万亿的上限了
-Casi está llegando al límite superior de 30 billones
-
-如果就是这个节骨点上
-Si en este punto crucial
-
-砸这么1000亿的烂帐
-Le lanza una deuda incobrable de 100 mil millones
-
-绝对比10个雷曼兄弟的(破坏力)大
-Es absolutamente mayor que el (poder destructivo) de 10 Lehman Brothers
-
-绝对是
-Seguramente lo es
-
-我这几天跟这帮子基金的人都嚇得肝颤, 你知道吗
-He estado tan asustado con este grupo de personas de fundación estos días, ¿lo saben?
-
-肝颤, 肝颤
-Fibrilación hepática
-
-原视频日期：09/28/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442804476897738759?s=24
-视频时间段：0:00-0:50
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
