@@ -2,87 +2,46 @@
 ---
 
 
-## 接种疫苗的人占Covid-19死亡人数的77%
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1566711/)
+## 96岁的前纳粹秘书在受审当天逃离疗养院后被捕
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1566722/)
 
-- **编译：西班牙喜悦农场–wenwu**
-
-
-星期四（23日）发布的一份英格兰公共卫生局（Public Health England）[报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)显示，2021年8月23日至9月19日期间，77% 的中共病毒（Covid-19）死亡病例是在接种疫苗的人群中。也就是说，73%的死亡病例是完全接种疫苗的人群，4%的死亡病例是部分接种疫苗的人群。
-
-然而，主流媒体继续公然对公众撒谎，声称大多数 Covid-19 的死亡是在未接种疫苗的人群中。这必须终止。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip176.png)
-
-在过去的两周里，由于主流媒体公布了BBC《Strictly Come Dancing》节目中的一些舞者没有接种 Covid-19 疫苗的事实，引起了骚动。这导致了一位总是非常有主见的 ex-Strictly Pro 职业选手的不满，而且他呼吁BBC解雇那些拒绝注射疫苗的舞者。
-
-他的名字叫詹姆斯·乔丹，这导致他出现在GB新闻节目中，与英国电视和广播主持人贝芙·特纳进行辩论，该主持人一直致力于阻止向儿童推广不必要的Covid-19疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip175.png)
-当贝夫·特纳（中间是主持人）不同意并说这不是事实时，詹姆斯·乔丹回应说：“这就是你在做的事情，你在看你想听的东西，这就是你在做的事情，这就是反疫苗主义者所做的事情”。
-
-在GB新闻的辩论中，詹姆斯·乔丹声称如下（[视频中](https://www.youtube.com/watch?v=_1kmQ6-k0d0)11分钟10秒起）：“我听说，现在医院里所有死于中共病毒的人中，只有1%的人接种了两针疫苗。”
-
-詹姆斯·乔丹声称所谓的只有1%的中共病毒死亡病例是在完全接种疫苗的人群中发生的说法，这一点在PHE的报告中证明其是大错特错的，该报告显示 有77% 的中共病毒死亡病例是在接种疫苗的人群中发生的。
-
-但是，GB新闻的主持人是否对詹姆斯·乔丹进行了 face check，并说：”对不起，詹姆斯，但我们只需要明确，我们面前没有这些数字，所以我们无法验证。我们会让团队中的一个人去查找，然后回来提供事实数字”？也就是说，73%接种了两针毒疫苗的报告，如果是谎言或者不能被验证，那么这个节目的信誉就被大受打击，后果十分严重！
-
-当詹姆斯·乔丹后来引用希拉里（Hilary)博士（一个有信誉的来源）时，我们不难理解他声称只有1%的中共病毒死亡病例，是在两针疫苗接种者中的理由。
-（[视频](https://www.youtube.com/watch?v=_1kmQ6-k0d0)的12分钟45秒开始)
-
-“正如希拉里博士今天早上所说，一旦你染上中共病毒，就太晚了。所以测试不是重点，不是吗。”
-
-当贝夫·特纳将希拉里博士称为可笑的消息来源时，詹姆斯·乔丹回应说：“他还是个医生，你只是个记者。”
-
-对此，贝夫·特纳回应说：“区别在于，我是公正的，（说服别人打疫苗）没有人给我钱，这就是区别。另外，[真正的]医生都很忙于拯救人们的生命。”
-
-贝夫关于希拉里博士的说法当然是正确的，而且正如我们在[之前的调查中](https://theexpose.uk/2021/07/12/dr-hilary-dangerous-lies-and-big-pharma-ties/)所揭示的真相，是与大型制药公司有重大联系。
-
-这位希拉里博士还在《早安英国》中声称：“在机场很危险，在飞机上很危险，在你要去的国家也很危险。”
-
-“作为一名医生，我不得不问一个问题，在全球大流行病中，度假真的很重要、很必要吗？它真的不是。这是一种奢侈。为了保护生命，你可以不这样做。”
-
-希拉里博士却计划在今年底参与邮轮旅行，他绝不是一个有信誉的消息来源，但问题在于数百万英国人很可能相信他是，因为他们被主流媒体欺骗了。
-
-9 月初，BBC新闻发布了一篇文章（如下图），其中包含英国首相鲍里斯·约翰逊 (Boris Johnson) 的虚假声明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip177.png)
-这篇[文章是由凯蒂·怀特为BBC新闻撰写](https://www.bbc.co.uk/news/uk-58494842)的，其中包含鲍里斯·约翰逊的一段话，他声称“有75%死于中共病毒的人是由于没有接种疫苗”。（如下图）。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip178.png)
-这不是真的。在[英格兰公告卫生局](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)9月23日发布的报告显示，在2021年8月23日和9月19日之间，61%的人因急诊导致入院过夜，至少接受了一剂中共疫苗，而绝大多数人是完全接种的。[（下图来源）](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip179.png)
-由比尔·盖茨资助的《卫报》随后在 9 月 13 日发布了[以下标题](https://www.theguardian.com/world/2021/sep/13/fully-vaccinated-people-account-for-12-of-englands-covid-19-deaths)：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip180.png)
-在 2021 年 1 月至 2021 年 7 月期间（如下图）共有5万1281起中共病毒死亡案例，其中完全接种疫苗的人确实只占1.2%。但这些主流新闻是否曾在文章中解释说过，其中[有3万1538起死亡案例是发生在 2021 年 1 月，](https://theexpose.uk/2021/09/22/161848-people-have-died-after-having-a-covid-19-vaccine/)而1月初有 0% 的人口接种了疫苗，到1月底结束只有 0.8% 的人口接种了疫苗；
+- 编译：西班牙喜悦农场–wenwu
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip181.png)
-他们是否曾在文章中解释说过，[这些死亡](https://theexpose.uk/2021/09/22/161848-people-have-died-after-having-a-covid-19-vaccine/)人数中有[1万4629人发生在 2021 年 2 月，](https://theexpose.uk/2021/09/22/161848-people-have-died-after-having-a-covid-19-vaccine/)2月初只有 0.8% 的人口完全接种了疫苗，而到2月底结束有 1.1% 的人口（如下图）完全接种了疫苗；
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip182.png)
-他们是否曾在文章中解释说，在2021 年 8 月 23 日至 9 月 19 日之间（如下图[来源](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)）发生[的中共病毒死亡](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)事件中，[接种疫苗的人占死亡人数的 77%](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)；
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip183.png)
-他们是否曾在文章中解释说，[中共病毒的死亡人数是去年](https://theexpose.uk/2021/09/24/phe-report-reveals-the-vaccinated-account-for-77-percent-covid-19-deaths/)的[11 倍](https://theexpose.uk/2021/09/24/phe-report-reveals-the-vaccinated-account-for-77-percent-covid-19-deaths/)（如下图），这是因为去年还没有人注射疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip184.png)
-他们当然不会对此作出解释。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-14.png)
 
-相反，主流媒体公然向公众撒谎，这只能被视为试图强迫剩余人口和儿童注射实验性中共疫苗，并掩盖其未能防止住院和死亡的事实，以及未能防止感染和传播的失败。值得注意的是，[三个最近发表的研究报告证明](https://theexpose.uk/2021/09/12/three-studies-find-the-covid-19-vaccines-do-not-work/)了这一点：[CDC](https://www.cdc.gov/mmwr/volumes/70/wr/pdfs/mm7031e2-H.pdf)，[英国政府](https://www.medrxiv.org/content/10.1101/2021.08.18.21262237v1)和[英国牛津大学](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3897733)。
+[据法新社报道](https://news.yahoo.com/former-nazi-death-camp-secretary-015110785.html?fr=sycsrp_catchall)，一名 96 岁的[纳粹](https://www.businessinsider.com/auschwitz-photos-nazi-camp-history-liberation-anniversary-2020-1?r=US&amp;IR=T)集中营指挥官的前秘书 Irmgard Furchner 将于周四（30日）在德国接受审判，她从疗养院逃跑，但在几个小时后被捕，现在法庭决定是否将她拘留；[据美联社报道](https://apnews.com/article/europe-crime-trials-courts-germany-6e3b2dc5f61d24e3b658ad3bac0b48ec)，这名高龄妇女的纳粹身份被德国媒体核实，并面临超过1.1万项谋杀从犯的指控。
 
-在当前的中共病毒死亡浪潮中，77% 死于中共病毒的人是已接种中共疫苗的，比去年同期死亡人数高出 11 倍。正如[英格兰公共卫生局的最新报告](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1019992/Vaccine_surveillance_report_-_week_38.pdf)所证明的那样，这是事实。现在是主流媒体终止向公众撒谎的时候了。
+据《Der Spiegel》报道，她原定于周四在德国北部的伊策霍州法院出庭，但从未露面；她周四一早离开了养老院，乘坐出租车前往附近的地铁站。很快，她就被找到了；法官 Dominik Gross 周四上午在法庭上宣布 Furchner 失踪，并补充说：“被告现在是逃犯，法庭已发出逮捕令。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip185.png)
+国际奥斯威辛集中营委员会副主席克里斯托夫·赫布纳说，这次越狱企图表明是“对幸存者和法治的蔑视”。
+
+上周，Furchner 给法官 Dominik Gross [写了一封信](https://www.spiegel.de/panorama/justiz/irmgard-furchner-ehemalige-kz-sekretaerin-schreibt-brief-an-den-richter-a-23ea17a0-e888-4011-b704-a23704921ef5#bild-73100b92-c859-453f-8b0b-f1f4ab85911e)，说她出于健康原因不想出庭；据《[图片报](https://www.bild.de/regional/hamburg/bremen-aktuell/paukenschlag-zum-prozess-auftakt-in-itzehoe-angeklagte-kz-sekretaerin-auf-der-fl-77828838.bild.html)》报道，她在信中说：“我想避免这些尴尬，不要让自己成为笑柄。”
+
+据《[明镜周刊》报道](https://www.spiegel.de/panorama/justiz/kz-stutthof-sekretaerin-von-kommandanten-irmgard-furchner-stenotypistin-des-grauens-1623060543-a-9777266e-75a4-4d28-ab01-095f9fba08b9)，Furchner 18 岁时开始在[纳粹占领的波兰的](https://www.insider.com/germany-100-year-old-former-nazi-death-camp-guard-trial-2021-8)斯图特霍夫集中营曾担任，前纳粹党卫军指挥官保罗·沃纳·霍普（Paul Werner Hoppe）的秘书；霍普作为纳粹集中营指挥官，编写了处决命令、开往奥斯威辛集中营的火车的驱逐清单，以及在纳粹集中营毒气室进行大屠杀的指示。报道称，Furchner 以信件和无线电信息的形式，传达了他的命令。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-15.png)
+
+据美联社报道，在过去的纳粹审判中曾作为证人接受讯问时候的 Furchner 声称，她此前不知道她在那里工作时，在集中营所发生的杀戮事件。
+
+她是几十年来第一位因第三帝国的罪行而接受审判的女性。
 
 **简评：**
 
-**大部分会更热衷于相信利于自身的新闻，这无可厚非。另外，当人们发现中共疫苗真相的时候往往为时已晚，救人的真相并不能保证能够满足大众“通关”的偷懒心理。或者说，装睡的人往往需要事情临到自己身上才会终止“撒谎”，这也是正道主义的价值所在：消除Cancle Culture、把 Twitter 丢进垃圾桶。**
+**早在国殇日前十年，欧洲出现了一个纳粹德国，该组织以发动世界大战和屠杀犹太人而闻名。现今全世界对该邪恶组织的追杀仍为停止，并且如今已经没有人敢说自己是纳粹了，但这并不意味着纳粹的种子被拔除了（邪恶的华尔街并没有被定罪）。**
 
-**我们现在能尽量做的就是把疫苗的危机告知公众，甚至“吹凉了，喂给他们”。正如郭文贵先生在[盖文](https://gettr.com/post/pcmokgd589)中所发布的：**
+**另一方面，据2021年9月30日《耶路撒冷邮报》[报道](https://www.jpost.com/international/leader-of-neo-nazi-group-convicted-of-five-federal-felonies-680735)，美国司法部周三（29日）的一份声明表示，新纳粹组织“[原子武器](https://www.jpost.com/international/transgender-ex-neo-nazi-wont-face-prison-time-already-suffered-enough-663842)”的领导人被判犯有五项联邦重罪。 **
 
-**“无论是政治．还是科学和宗教都不能迷信，迷信任何东西的代价是巨大的。爆料革命就是要让人类打破一切迷信和崇拜，让人们有基本的善恶．真假，辨别之能力，这就是未来我们建设新人类的根本的基础。【这位女士特别提到了她丈夫因为相信科学打了疫苗 ，死在了自己家的床上】”**
+**25岁的新纳粹组织“原子武器”领导人卡莱布·科尔(Kaleb Cole)和其他四人去年被指控对记者和反诽谤联盟(Anti-Defamation League)的雇员进行网络跟踪，并发送写满纳粹标志的海报。一张海报还被粘在《犹太生活方式杂志》的一个编辑的卧室窗户上。该海报包括”你已经被当地的纳粹分子拜访了”这句话。最终，他在为期两天的审判后被判刑**。
+
+**中共是人类历史上比纳粹邪恶万倍的跨国犯罪组织。新中国联邦不仅会让中共受到应有的法律制裁和遗臭万年，更有有责任让中共的犯罪分子永远在历史长河中被唾弃。**
 
 （文章仅代表作者观点 与GNEWS无关）
 
-**新闻来源：《[吹哨人](https://theexpose.uk/2021/09/28/fact-check-vaccinated-77-percent-covid-deaths-mainsteam-media-lying/)》｜发布时间：2021年9月28日｜**
+新闻来源：《[内幕信息](https://www.insider.com/former-nazi-concentration-camp-secretary-due-on-trial-missing-report-2021-9)》｜作者：索菲亚·安克尔&丽贝卡·科恩｜发布时间：2021年9月30日
 
 * * *
 
-***发稿：信心满满***
+*发稿：Nuevo唐人*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
