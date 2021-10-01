@@ -15,174 +15,174 @@
 
 ---
 
-### [火币事件揭示盗国贼金融腐败](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [人生而自由](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：荒谬至极——新父母需要疫苗证书才能探视照顾新生儿](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
+### [有声|印尼930排华事件五十六周年，新中国联邦不会让历史重演！](/content/gnews/2/README.md)
+ ` MOSREC`
 
-### [中国南方年轻女子死于 H5N6 禽流感](/content/gnews/3/README.md)
+### [布林肯要莫斯科对“消灭”黑客组织负起责任](/content/gnews/3/README.md)
+ ` HimalayaRussia`
+
+### [法国13 岁男孩接种辉瑞疫苗 10 天后失明，母亲寻求答案](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新南威尔士州政府官员威胁未接种者](/content/gnews/4/README.md)
+### [有声|美FCC斥资19亿主导拆除中共国网络设备](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [10/1/21 香港快讯 【十一升旗】社民连 4 人游行 要求释放政治犯 遭数十警包围](/content/gnews/6/README.md)
+ ` 英喜-粵語組`
+
+### [火币事件揭示盗国贼金融腐败](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [陆军医生，航天医学专家呼吁五角大楼命令所有接种过COVID-19疫苗的飞行员停飞](/content/gnews/5/README.md)
+### [秘翻在线：荒谬至极——新父母需要疫苗证书才能探视照顾新生儿](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中国南方年轻女子死于 H5N6 禽流感](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新南威尔士州政府官员威胁未接种者](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [陆军医生，航天医学专家呼吁五角大楼命令所有接种过COVID-19疫苗的飞行员停飞](/content/gnews/11/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [盖恩斯维尔市居民成功回击新冠疫苗强制令](/content/gnews/6/README.md)
+### [盖恩斯维尔市居民成功回击新冠疫苗强制令](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [民调显示多数选民反对因拒绝接种而解聘雇员](/content/gnews/7/README.md)
+### [民调显示多数选民反对因拒绝接种而解聘雇员](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [NBA德雷蒙德称强制疫苗是政治战争 违背了自由意志](/content/gnews/8/README.md)
+### [NBA德雷蒙德称强制疫苗是政治战争 违背了自由意志](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：如何中和mRNA疫苗带给身体的潜在危害](/content/gnews/9/README.md)
+### [秘翻在线：如何中和mRNA疫苗带给身体的潜在危害](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [没有国庆，只有国殇，中共非法执政72周年有感！](/content/gnews/10/README.md)
+### [没有国庆，只有国殇，中共非法执政72周年有感！](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线:大量科学研究证实，感染中共病毒后具有强大、持久的免疫力](/content/gnews/11/README.md)
+### [秘翻在线:大量科学研究证实，感染中共病毒后具有强大、持久的免疫力](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [高盛表示8.2万亿美元的威胁比恒大更严重](/content/gnews/12/README.md)
+### [高盛表示8.2万亿美元的威胁比恒大更严重](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [西媒头条 — 第78期](/content/gnews/13/README.md)
+### [西媒头条 — 第78期](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国政府不愿给美国人使用的伊维菌素正在拯救印度人的生命](/content/gnews/14/README.md)
+### [美国政府不愿给美国人使用的伊维菌素正在拯救印度人的生命](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [秘翻在线：欠债近2200亿的华夏幸福真准备还钱吗？](/content/gnews/15/README.md)
+### [秘翻在线：欠债近2200亿的华夏幸福真准备还钱吗？](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021/09/29文贵先生直播精要](/content/gnews/16/README.md)
+### [2021/09/29文贵先生直播精要](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [因电力短缺，东北多地停电](/content/gnews/17/README.md)
+### [因电力短缺，东北多地停电](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [强生科学家私下认为不要打强生疫苗，但是仍支持强推疫苗](/content/gnews/18/README.md)
+### [强生科学家私下认为不要打强生疫苗，但是仍支持强推疫苗](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大危机有可能像1997年泰国开始的危机一样失控](/content/gnews/19/README.md)
+### [恒大危机有可能像1997年泰国开始的危机一样失控](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [刚刚在日本自民党总裁选中胜出的岸田文雄其人](/content/gnews/20/README.md)
+### [刚刚在日本自民党总裁选中胜出的岸田文雄其人](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗推进中的 &#8220;死因不明 &#8220;反射日本社会的黑暗（之一）](/content/gnews/21/README.md)
+### [疫苗推进中的 &#8220;死因不明 &#8220;反射日本社会的黑暗（之一）](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2021年9月30日盖特视频（9分59秒）全文字版](/content/gnews/22/README.md)
+### [郭文贵先生2021年9月30日盖特视频（9分59秒）全文字版](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/23/README.md)
+### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/29/README.md)
  ` 秘密翻译组金融团队`
 
-### [集结，让今天是中华民族最后一个国殇日](/content/gnews/24/README.md)
+### [集结，让今天是中华民族最后一个国殇日](/content/gnews/30/README.md)
  ` 银河勇气之星`
 
-### [2021/09/30大卫作战室直播精要](/content/gnews/25/README.md)
+### [2021/09/30大卫作战室直播精要](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲维州感染中共病毒住院病人中，95%接种过疫苗（粤语配音）](/content/gnews/26/README.md)
+### [澳洲维州感染中共病毒住院病人中，95%接种过疫苗（粤语配音）](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [9/26郭文贵直播：孟晚舟回国是她个人悲剧的开始（粤语配音）](/content/gnews/27/README.md)
+### [9/26郭文贵直播：孟晚舟回国是她个人悲剧的开始（粤语配音）](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共发动生物战后，美欧出现芯片危机，台湾表示寻求帮助](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [CCP百年百罪 全集](/content/gnews/29/README.md)
+### [CCP百年百罪 全集](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [韩美日北核问题首席代表电话会谈 应对朝鲜射弹](/content/gnews/30/README.md)
+### [韩美日北核问题首席代表电话会谈 应对朝鲜射弹](/content/gnews/35/README.md)
  ` 首尔天池农场`
 
-### [印度将在斯里兰卡建造战略性深水港码头对抗中共](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [港府逼关六四纪念馆 封杀线上网站](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [CDC 终于明确：mRNA疫苗副作用出现不应再接种第二剂](/content/gnews/33/README.md)
+### [CDC 终于明确：mRNA疫苗副作用出现不应再接种第二剂](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“十一”国殇日香港黑警高压维稳](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [2021年8月29日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/35/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [“离开”Twitter的川普被Gettr所吸引](/content/gnews/36/README.md)
+### [“离开”Twitter的川普被Gettr所吸引](/content/gnews/37/README.md)
  ` wenwu`
 
-### [秘翻在线：中共国很有可能对台湾动手](/content/gnews/37/README.md)
+### [秘翻在线：中共国很有可能对台湾动手](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国地方融资平台天量债务威胁远甚于恒大](/content/gnews/38/README.md)
+### [中共国地方融资平台天量债务威胁远甚于恒大](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [96岁的前纳粹秘书在受审当天逃离疗养院后被捕](/content/gnews/39/README.md)
+### [96岁的前纳粹秘书在受审当天逃离疗养院后被捕](/content/gnews/40/README.md)
  ` wenwu`
 
-### [在今天这第72个国殇日里大连和烟台下起了冰雹](/content/gnews/40/README.md)
+### [在今天这第72个国殇日里大连和烟台下起了冰雹](/content/gnews/41/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [接种疫苗的人占Covid-19死亡人数的77%](/content/gnews/41/README.md)
+### [接种疫苗的人占Covid-19死亡人数的77%](/content/gnews/42/README.md)
  ` wenwu`
 
-### [纳瓦罗《在川普时代》：福奇走到头了，福奇撒谎，美国人死亡](/content/gnews/42/README.md)
+### [美国律师证实：近5万名医保病人打疫苗后不久死亡](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [纳瓦罗《在川普时代》：福奇走到头了，福奇撒谎，美国人死亡](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗博士谈新书：为川普主义、为真相，发力一击](/content/gnews/43/README.md)
+### [纳瓦罗博士谈新书：为川普主义、为真相，发力一击](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海2009年以前的高层建筑普遍存在重大公共安全隐患](/content/gnews/44/README.md)
+### [上海2009年以前的高层建筑普遍存在重大公共安全隐患](/content/gnews/46/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [全球疫苗暴政的形式已出现逆转](/content/gnews/45/README.md)
+### [全球疫苗暴政的形式已出现逆转](/content/gnews/47/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [“系统崩溃”：来自全球供应链运作的工人警告](/content/gnews/46/README.md)
+### [“系统崩溃”：来自全球供应链运作的工人警告](/content/gnews/48/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/47/README.md)
- ` wenwu`
+### [印尼排华事件](/content/gnews/49/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [每日快报：派遣美国人参加北京冬奥会是不安全和不明智的](/content/gnews/48/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/49/README.md)
+### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [佛州州长抨击澳大利亚正在走向共产主义中国](/content/gnews/50/README.md)
- ` 墨尔本雅典娜农场`
+### [中国拉闸限电措施将引发全球供应链恶化](/content/gnews/51/README.md)
+ ` 纽约香草山MOS02`
 
-### [市场崩盘可能即将来临](/content/gnews/51/README.md)
- ` 纽约香草山MOS03`
-
-### [美国政府将在三周内耗尽现金无法支付账单](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [由川普前顾问经营的“推特杀手” Gettr 随时欢迎川普加入](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [09/30/2021 国际财经快讯：西班牙的通胀水平创下 13 年新高; 美国SEC拟要求资产管理公司就如何使用投票权提高透明度](/content/gnews/54/README.md)
+### [09/30/2021 国际财经快讯：西班牙的通胀水平创下 13 年新高; 美国SEC拟要求资产管理公司就如何使用投票权提高透明度](/content/gnews/52/README.md)
  ` 秘密翻译组金融团队`
 
-### [彼得·达扎克2017年演讲证明其与中共病毒的紧密联系](/content/gnews/55/README.md)
+### [彼得·达扎克2017年演讲证明其与中共病毒的紧密联系](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [09/29/2021 财经快讯：黑石集团以56.5亿美元的价格出售 The Cosmopolitan 度假村和赌场；油价三年来首次突破80美元](/content/gnews/56/README.md)
+### [09/29/2021 财经快讯：黑石集团以56.5亿美元的价格出售 The Cosmopolitan 度假村和赌场；油价三年来首次突破80美元](/content/gnews/54/README.md)
  ` 秘密翻译组金融团队`
 
-### [9/28/2021国际财经快讯：全球股市连续第三天下跌；中共将导致世界进入熊市](/content/gnews/57/README.md)
+### [9/28/2021国际财经快讯：全球股市连续第三天下跌；中共将导致世界进入熊市](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
+
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/56/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/57/README.md)
+ ` 秘密翻译组-北美组`
 
