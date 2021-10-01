@@ -2,34 +2,49 @@
 ---
 
 
-## 盖恩斯维尔市居民成功回击新冠疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567365/)
+## 陆军医生，航天医学专家呼吁五角大楼命令所有接种过COVID-19疫苗的飞行员停飞
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1567386/)
 
-栏目记者/责任编辑：Yousei
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-18.png)
-盖恩斯维尔市（城市名：Gainesville）成功回击政府疫苗强制令：州法院于近日裁定，不得解雇或处罚未接种的雇员。
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3281.jpg)图片来源：The Guardian
+根据《Survive the News》9月29日报道，一位航天医学专家，美国陆军医生向五角大楼领导人发出了一个前所未有的呼吁，要求他们让所有接受过COVID-19疫苗的各军种飞行员停飞。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3.jpeg)
+在一份宣誓书中，特雷莎-朗中校阐述了她的理由，并列出了引文和研究报告，指出她是在《军事举报人保护法》的支持下这样做的。
 
-城市委员会在今年8月时提议，以就业基本条件为由，要求2200多名雇员接种新冠疫苗，并定于10月1日执行首次新冠毒针接种的强制令。人们的平等保护、隐私权和身体完整性等权力被严重侵犯。9月份警察和消防员等200多名员工对市政府提起诉讼，并强调州宪法必须保护个人的“身体自主权”。弗罗里达州州长罗恩·德桑蒂斯（Ron DeSaintis）、司法部长穆迪 （Ashley Moody）和国会议员卡迈可（Kat Cammack）誓言支持盖恩斯维尔的员工回击疫苗强制令。
+特蕾莎获得了德克萨斯大学奥斯汀分校的学士学位，2008年在休斯顿德克萨斯大学健康科学中心医学院完成了医学学位，然后担任了十年的战地外科医生，并继续在阿拉巴马州拉克堡的美国陆军航空医学院完成了航空和职业医学的住院医生培训。她接受国拉克堡战斗准备中心的航空安全官员培训，和德特里克堡化学和生物事故的医疗管理的额外培训。她还获得了飞行航空医学委员会认证和职业医学委员会资格。
 
-所有弗罗里达州的法院都同意，强制医疗侵犯公民的合法隐私。负责本案件的 杰夫·柴尔德斯 律师在采访中表示，这是美国国内首批针对拜登疫苗强制令的案件之一。该裁定为佛罗里达州创建了一个模版，作为一个成功的判例将发挥重要作用。州内的很多其它城市也开始行动起来，考虑撤回疫苗强制令。
+陆军文件指出，在COVID-19大流行之前，特蕾莎接受了来自陆军、海军和空军的传染病医生关于新出现的传染病威胁的专门军事培训，并且最近担任了一个航空训练旅的医疗和科学顾问，寻求确定风险缓解策略，并对接种疫苗和未接种疫苗的士兵的Covid 19感染进行生物统计分析。她也曾诊断和治疗过COVID-19病例，因此，她当然有资格提供意见。
 
-(本文仅代表作者观点)
+特蕾莎在宣誓书中作证说，“我观察过在使用紧急授权使用疫苗后的疫苗不良事件，并跟踪了在军队外获得各种Covid 19疗法的士兵的成功案例。国防部人口中的大多数服务人员都很年轻，身体状况良好”。
 
-参考链接：[Judge hears debate over Gainesville’s mandatory COVID-19 vaccine policy for staff](https://www.gainesville.com/story/news/2021/09/20/gainesville-city-employees-court-argue-over-vaccine-mandate/8410424002/)
-[Cops, firefighters challenge Gainesville’s ‘odious’ vaccine mandate](https://www.reuters.com/legal/government/cops-firefighters-challenge-gainesvilles-odious-vaccine-mandate-2021-08-27/)
-[Fla. Court Halts City Vaccine Mandate In Gainesville](https://www.oann.com/fla-court-halts-city-vaccine-mandate-in-gainesville/?web=1&amp;wdLOR=c7BE66E49-AF14-7B4C-9B18-B29D79D5E348)
+“军事飞行员是军事人口中的一部分，必须满足最严格的医疗标准才能进入飞行状态。我所照顾的学生飞行员群体主要是20-30多岁，男性，身体状况极佳。在这一人群中，Covid引起严重疾病或死亡的风险很小，存活率为99.997%”, 她继续说道。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+在研究了所有数据并观察了病毒如何影响，以及重要的是不影响军事准备后，特蕾莎形成了一个专业意见，她有义务向她的上级报告。她说，问题是，没有人愿意听到这个消息。她写道：”我已经报告了，在接受、拒绝和威胁惩罚方面的结果好坏参半，”她说。
 
-终审：暗黑
-校正/发稿：谐趣园
+这位医生继续引用陆军训练理论条例，其中规定 “风险决定 “由个别指挥官接受或拒绝，而他们也必须根据决定采取行动或将其进一步向上传递。无论哪种方式，她明确表示，她在报告她所发现的情况和得出的结论时履行了她的职责。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+CDC和FDA是民事机构，没有国防部那样的国防使命。特蕾莎在作证时补充说：”这些民事机构提出的指导和建议必须通过国防的战略视角以及建议可能对整个战斗部队的健康产生的潜在风险来过滤“。
+
+大多数年轻的新陆军飞行员都在二十岁出头。我们知道每次接种mRNA疫苗都会有心肌炎的风险。此外，我们现在知道，接种疫苗并不一定能防止Covid的感染或传播。因此，完全接种mRNA疫苗的人在接种后至少有两个独立的心肌炎风险因素。加强针注射会增加更多风险。在没有进一步数据的情况下，不可能对使用mRNA作为Covid的应对措施进行风险/效益分析……在我们的战斗部队中使用mRNA疫苗会带来不确定程度的风险，在140万现役人员中，只有不到20人死于Covid。
+无论哪种方式，她明确表示，她在报告她所发现的情况和得出的结论时履行了她的职责。
+
+“CDC和FDA是民事机构，没有国防部那样的国防使命。朗在作证时补充说：”这些民事机构提出的指导和建议必须通过国防的战略视角以及建议可能对整个战斗部队的健康产生的潜在风险来过滤。
+
+大多数年轻的新陆军飞行员都在二十岁出头。我们知道每次接种mRNA疫苗都会有心肌炎的风险。此外，我们现在知道，接种疫苗并不一定能防止SARs-CoV-2的感染或传播。因此，完全接种mRNA疫苗的人在接种后至少有两个独立的心肌炎风险因素。额外的博斯特注射会增加更多风险。在没有进一步数据的情况下，不可能对使用mRNA作为SARs-CoV-2的应对措施进行风险/效益分析……在我们的战斗部队中使用mRNA疫苗会带来不确定程度的风险，在140万现役人员中，只有不到20人死于潜在的SARs-CoV-2。
+
+她说，问题是很少有年轻的飞行员会知道他们是否患上了心肌炎，这可能导致在他们飞行时猝死。
+
+特蕾莎呼吁：
+
+我亲眼目睹了我在陆军20多年来看到的身体最健康的女兵，在接种疫苗的几周内，从接受游骑兵学校训练的领队级运动员，变成了身体虚弱的心脏病患者，新诊断的垂体脑瘤，甲状腺功能紊乱。几位军医与我分享了他们的第一手经验，在接种疫苗后，患有偏头痛、月经不调、癌症、疑似心肌炎和报告心脏症状的年轻士兵人数显著增加。许多士兵和国防部平民告诉我，他们在接种疫苗后如何生病、卧床不起、身体虚弱，并在数天至数周内无法工作。我最近还审查了三名飞行人员的医疗记录，他们都出现了严重的、积极的系统性健康问题。今天我收到了胡德堡一个死亡病例和两个ICU病例的消息；死者是一名陆军飞行员，当时可能正在飞行。所有三个肺栓塞事件都发生在他们接种疫苗后的48小时内。Covid 19疫苗是导致这些事件的来源，每个人在接种前都处于最佳的身体状态，而每个人都在接种后2天内发生了事件。
+
+她补充说：”Covid治疗和疫苗接种策略的政治化已经完全损害了长期的安全机制、公开和诚实的对话，以及我们的服役人员对其卫生系统和医疗保健提供者的信任”。
+
+现在，问题是，美国国防部部长劳埃德-奥斯汀会听她的话吗？国防部部长看到者些实事伤亡案件，会无动于衷吗？如果国防军队50%接种疫苗不能作战，其余健康的拒绝疫苗的军人要被开除，这样的美国国防军队怎样保护美国国家安全？
+
+原文链接：
+[https://www.survivethenews.com/army-physician-and-aerospace-medicine-specialist-calls-on-pentagon-to-order-all-pilots-who-have-received-covid-19-vaccine-to-be-grounded/](https://www.survivethenews.com/army-physician-and-aerospace-medicine-specialist-calls-on-pentagon-to-order-all-pilots-who-have-received-covid-19-vaccine-to-be-grounded/)
+
+* * *
+
+发稿 Spirit

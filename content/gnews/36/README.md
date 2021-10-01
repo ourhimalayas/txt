@@ -2,15 +2,27 @@
 ---
 
 
-## 西媒头条 — 第78期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1567186/)
+## 高盛表示8.2万亿美元的威胁比恒大更严重
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1567217/)
 
-- **制作：蚂蚁兄弟**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV.png)
+文章仅代表作者本人观点，与Gnews无关
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+视频参看：2021.10.01早GTV新闻访谈
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1001.001.jpeg)
+[https://gtv.org/broadcast/watch/6156fea1304e992109ad968b](https://gtv.org/broadcast/watch/6156fea1304e992109ad968b)
 
-***发稿:信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_ES-1536x1086-1.jpeg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
