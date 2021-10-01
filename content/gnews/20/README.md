@@ -2,29 +2,36 @@
 ---
 
 
-## 2021年9月3日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566816/)
+## 印度陆军积极筹备印中边境军事对峙
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566924/)
 
-盖特连接：[https://gettr.com/post/pa18la6a75](https://gettr.com/post/pa18la6a75)
+栏目记者/责任编辑：在远方
 
-9月3号：尊敬的战友们好，你们健身了吗？传播CCP病毒和疫苗灾难的真相了吗？传播CCP病毒的解药的大好休（消）息了吗？
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-（做完一组健腹轮），任何情况下不要说自己，你不锻炼找理由，锻炼！共产党，你完啦！
 
-编辑整理及发布：黎明之前
+印度陆军参谋长纳拉瓦内 9月30日表示，印中边境拉达克沿线事态的发展增加了印度的挑战，在与中共国达成边界协议之前，军事对峙之类的事件将继续发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（1、2、3、6、7）視頻備用.003.jpeg)
+去年5月以来，中共不断在有争议的边境拉达克地区采取挑衅性的军事活动，目前中共已实际控制了拉达克以东的阿克赛钦高原，该地区把新疆与西藏西部连接起来，对中共具有战略意义。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+针对中共持续的武力挑衅，印度政府最近签订了113份合同，用于采购对作战至关重要的弹药、军备、车辆、备件和特殊登山设备，总金额近12亿美元。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+印方表示，已做好充分准备，以应对可能发生的任何事件。
+(本文仅代表作者观点)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+参考链接：[印度陆军参谋长：在达成边界协议之前 边界事件将继续发生](https://www.rfi.fr/cn/亚洲/20210930-印度陆军参谋长-在达成边界协议之前-边界事件将继续发生)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+终审：FoxRina
+校正/发稿：我不在这里
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,40 +2,29 @@
 ---
 
 
-## 印度将在斯里兰卡建造战略性深水港码头对抗中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566948/)
+## 刚刚在日本自民党总裁选中胜出的岸田文雄其人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1567107/)
 
-栏目记者/责任编辑：七哩香
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wree-1.png)
+（图片源自本文链接）
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本自民党总裁选举胜出者岸田文雄，64岁，身高173cm，AB血型，出生于东京，早稻田法学部毕业，一妻三子。做过银行职员、做过政治家父亲的秘书，之后开始从政。
 
+在去年9月的总裁选举中输给首相菅义伟后，岸田度过了一段不被关注的日子，但经过一年的努力又满血复活。
 
+岸田生长于政治家庭，祖父和父亲都在众议院任职。他于1993年首次当选为众议院议员，2012年成为著名的宏池会的会长。虽然他常被视为 “精英 “学生，但却三次落榜东京大学的入学考试，而他的大多数亲属都毕业于该大学。也曾想过成为小说家，但 “一切都失败了”他回忆说。
 
-9月30日，印度阿达尼（Adani）集团、及斯里兰卡John Keells集团， 与斯里兰卡港务局签署了一份价值7亿美元的合同，要在斯里兰卡建造一个战略性的深水港头。这是斯里兰卡港口领域有史以来最大的外国投资，这一举措被视为是抗衡中共在印度洋日益增长影响力的一种方式。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（4、5、8）.001.jpeg)
-新码头毗邻科伦坡国际码头，预计长1.4公里，深20米，年处理能力为320万个集装箱，其产权将在运营35年后全部转移给斯里兰卡。
+他作为政界屈指可数的”酒人”，在三、四十岁时，曾出过喝到失去记忆的丑，也曾对家乡充满爱意的说”广岛的酒是最好的”。家里有妻子裕子和三个儿子。对妻子给他做的广岛风味煎菜饼，他会不管三七二十一的说好吃，是个充满爱心的丈夫。
 
-科伦坡国际码头于2013年开始运营，中共拥有其85%股权；2014年因中共潜艇突抵达触发外交事件而成为焦点。
+他崇拜的人是广岛县出身的，宏池会创立者，前首相池田勇人。宏池会已经有很多年没出首相了，这次是已故的前首相宫泽喜一以来，近30年来第一次胜出的，宏池会成员的首相。
 
-斯里兰卡地处印度洋战略要地，是亚非、亚欧贸易通道的重要节点，也是中共”一带一路”的关键环节。近年来，中共重金投入斯里兰卡的基建等领域，令斯里兰卡陷入债务泥潭，印度则担忧这里变为中共军事基地。新码头协议，无论对印度，还是对全世界民主国家，都具有战略性意义，是对中共扩张和威胁态势的强力反击和有效制约。
-(本文仅代表作者观点)
+[信息源](https://www.sankei.com/article/20210929-DSB72YZLJFLYLAQQSPTYEWHBH4/)
 
-参考链接：
+岸田文雄的当选，正值人类史上前所未有的中共病毒灾难、中共病毒疫苗灾难、中共蓝金黄严重渗透世界政界和金融界以及媒体界的灾难之顶峰期，正值很多国家政要已经意识到不灭中共，人类将走向灭亡之当口。所以，无论何人当选、无论岸田文雄其人如何，只要他不采取坚决灭共之国策，就很难坐稳总裁这把椅子！
 
-1. [对抗中国：印度将在斯里兰卡建造战略性深水港码头](https://www.rfi.fr/cn/亚洲/20210930-对抗中国-印度将在斯里兰卡建造战略性深水港码头)
-2. [India’s Adani Plans to Compete With China at Sri Lankan Port](https://www.maritime-executive.com/index.php/article/india-s-adani-to-build-sri-lanka-port-in-competition-to-chinese)
-3. [India counters China in Sri Lanka with $700 million port deal](https://www.easterneye.biz/india-counters-china-in-sri-lanka-with-700-million-port-deal/)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：暗黑
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

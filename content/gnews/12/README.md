@@ -2,32 +2,52 @@
 ---
 
 
-## “十一”国殇日香港黑警高压维稳
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566903/)
+## 2021/09/30大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567068/)
 
-栏目记者/责任编辑：在远方
+**主播**：大卫｜**嘉宾**：天津老马
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[GTV视频链接](https://gtv.org/video/id=615598fb304e992109ad2564)
 
-今年“十一”国殇日，港共政府将在湾仔金紫荆广场及香港会议展览中心，分别举行升旗仪式及十一酒会，因此为防止意外, 从9月30日起，香港黑警即出动超8千警力高压维稳，要在“各个敏感地点做高姿态巡逻”， 还声称将出动便衣警察作适当部署。完全是一派中共作风！
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（1、2、3、6、7）視頻備用.001.jpeg)
-其中所谓“敏感”更是来自中共国的特色词汇，按照惯例，但凡有可能危及中共政权或者仅仅有可能对中共造成负面影响的时间、地点和事件都会被冠以“敏感”二字。从8964到香港雨伞运动/街头运动，甚至包括中共自己的各种节庆纪念日，全都成为”敏感日”！
 
-自2019年6月9日香港反送中运动爆发以来，中共管控操纵下的港府和黑警，对香港民众进行了残酷镇压，据郭文贵先生揭示有多达2万多名香港青年人被中共杀害或被拘押失踪，仅仅两年多时间，香港已经变成了一座”内地化”城市，民众大举移民逃离 。港共政府在高压维稳下苟且“欢度国庆”，也显露出着对香港民众不屈抗争的恐惧。
-(本文仅代表作者观点)
 
-参考链接：[中国十一国庆：香港出动八千多警力部署各区维稳](https://www.rfi.fr/cn/中国/20210930-中国十一国庆-香港出动八千多警力部署各区维稳)
+**板块1–中共病毒**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+1. 辉瑞公司即将新推出治疗新冠病毒的药中含有伊维菌素。大科技平台封杀关于伊维菌素的信息，伊维菌素核心作用就是干扰新冠病毒阻止其感染人体细胞。福奇被曝光直接资助武汉实验室功能增强实验（即让病毒更容易感染人体）。新冠病毒为矛，伊维菌素为盾，它们相互佐证。
 
-终审：文龙
-校正/发稿：我不在这里
+2. 印度在2020年底至2021初死亡率急速降低的主要原因-：**运用伊维菌素**。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+3. 大卫哥和马哥的妻子均已打疫苗，耐心劝说下不会接种第二剂疫苗。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**板块2–马哥经历**
+
+1. 天津老马是回族同胞，深刻体会中共体制的恶，天津的空气质量直接让马哥逃离大陆。马哥关注过“民运要饭帮”；2017年1月26日文贵先生开始直播，经历“4.19断播门”，直接刷新三观、打开新世界；中途经历过伪类–“天津大驴脸”。马哥一直为爆料革命摇旗呐喊。
+
+2. 爆料革命战友——是狼哪里都吃肉。中共的伪类——是狗哪里都吃屎。
+
+3. 习仲勋是改革开放开创人之一，成果被邓小平盗走；习近平从小文革经历，心理状态不正常。习近平出席烈士纪念日凸显其推动爱国主义的目的：提前让民众进入准战争、准军管状态（习惯性限电、限粮）。
+
+**板块3-国际政治**
+
+1. 法国报告全景式展示北京推动全球影响力；法国政府附属智库提及“北京与外国官员建立联系以渗透西方”。结合英国和德国前期对中共国态度的转变，欧洲正在集结力量。
+
+2. 王健案件——法国检察和司法系统配合中共国国安委到法国当地作案，是海航长期在欧洲“耕耘”的结果。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/090846.jpg)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*听写：call me uncle | 校对：CharlesS**| Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

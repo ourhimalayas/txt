@@ -2,29 +2,25 @@
 ---
 
 
-## 2021年9月2日郭文贵先生做健腹轮健身盖特
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566845/)
+## 韩美日北核问题首席代表电话会谈 应对朝鲜射弹
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1566969/)
 
-盖特连接：[https://gettr.com/post/p9vqa224f8](https://gettr.com/post/p9vqa224f8)
+韩国首尔天池农场—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/韩美日.jpeg)图片来源：网络
+据韩国国际广播电台10月1日报道：日本外务省表示，韩国、美国、日本三国负责北韩核问题的首席代表进行电话会谈，探讨共同应对朝鲜射弹等方案。
 
-9月2号尊敬的家人（注：疑似笔误，疑似为战友）们好：你们健身了吗？传播CCP病毒．香港危机．郑州人祸．病毒解药的真相了吗？
+韩国外交部韩半岛和平交涉本部长鲁圭德、美国对北韩政策特别代表金成、日本外务省亚洲大洋洲局局长船越健裕韩国时间9月30日下午1时进行了约15分钟的电话会谈。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+据日本外务省介绍，三方重点讨论北韩近期的核导活动，并对北韩的一系列活动表示忧虑。韩美日还商定根据联合国安理会决议密切保持合作，继续推动韩半岛实现完全无核化。
+ 
+日本政府发言人、内阁官房长官加藤胜信在当天下午召开的记者会上表示，根据判断，北韩9月28日违反联合国安理会决议，利用弹道导弹技术发射导弹，日方已通过驻中国大使馆向北韩提出了抗议。
+ 
+朝中社9月29日报道称，北韩9月28日试射国防科学院开发的“火星-8”型新型高超音速导弹。
 
-（无）。
+就在韩美日三国通话会议的当天，北韩试射新型反航空导弹，即防空导弹。
 
-编辑整理及发布：黎明之前
+点评：北韩国务委员长金正恩在9月29日举行的最高人民会议第二天会议上发表讲话时指出“为了实现民族对南北关系改善与朝鲜半岛和平的期望，有意于10月初重启南北通信联络线”。在发表讲话的前一天9月28日试射国防科学院开发的“火星-8”型新型高超音速导弹，然后第二天9月30日就再次试射新型反航空导弹即防空导弹。嘴上说着要和平相处然后又各种射弹，这一反常的行为，就没有表现要和平相处的意思。一而再地射弹，引起半岛关系及周边亚太国家紧张。这样一个社会主义极权国家领导人的讲话，就像中共领导人说的话一样，最好连标点符合都不要相信。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[新闻来源](http://world.kbs.co.kr/service/news_view.htm?lang=c&amp;Seq_Code=73071)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（本文仅代表作者观点，与Gnews平台无关）
