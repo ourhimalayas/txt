@@ -2,9 +2,15 @@
 ---
 
 
-## 因电力短缺，东北多地停电
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1567112/)
+## 西媒头条 — 第78期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1567186/)
 
-9/27/2021 因电力短缺，东北多地停电。中共拉闸限电，居民生活受到严重影响。
+- **制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1001.001.jpeg)
+
+***发稿:信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_ES-1536x1086-1.jpeg)

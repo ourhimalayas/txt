@@ -2,14 +2,34 @@
 ---
 
 
-## 没有国庆，只有国殇，中共非法执政72周年有感！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1567250/)
+## 盖恩斯维尔市居民成功回击新冠疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567365/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-16.png)图片源自
-72年前的十月一日，中共匪首毛泽东强奸民意，未经合法选举 ，无耻宣布，中国人民从此“站起来了”。这里的中国人民只是一个政治词汇，只是盗国贼的代表，中国人民又一次被出卖，中共只是共产国际苏联（光明会）在中国的代理人而已。所谓的“解放”，不过是又一次通往奴役之路。今天我屏蔽了朋友圈所有庆祝伪大祖国生日快乐的人，我知道这不是我的国，我不过是沦陷区一个微不足道的人。是郭文贵先生4年多的爆料，让我认识到中共的邪恶，它出卖中国人民利益，同境外势力勾结，卖国求荣。中共治下，民不聊生，生灵涂炭，曾经的大好河山现在变得满目疮痍。中共用商君书，驭民五术统治人民，让中国人民上不起学，看不起病，养不起老，整日为了生计奔波劳累而无暇思考，谁是这一切问题的根源？今天这个特别的日子，我思绪万千，心情悲痛，想起了很多曾经被中共历次政治运动迫害致死的无辜善良的人，想起为追求民主自由而战的八九六四受难者，想起为了信仰被迫害致死的亲人，想起反送中运动遇害的香港同胞，想起千千万万个杨改兰，和所有无辜的受难者。中共是一切灾难的始作俑者，正如新中国联邦宣言所倡导的，消灭中共是正义的必须，推翻中共对我们所有爆料革命战友很重要，我坚信这一天很快就会到来。
+栏目记者/责任编辑：Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-18.png)
+盖恩斯维尔市（城市名：Gainesville）成功回击政府疫苗强制令：州法院于近日裁定，不得解雇或处罚未接种的雇员。
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/待命（文晓）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3.jpeg)
+
+城市委员会在今年8月时提议，以就业基本条件为由，要求2200多名雇员接种新冠疫苗，并定于10月1日执行首次新冠毒针接种的强制令。人们的平等保护、隐私权和身体完整性等权力被严重侵犯。9月份警察和消防员等200多名员工对市政府提起诉讼，并强调州宪法必须保护个人的“身体自主权”。弗罗里达州州长罗恩·德桑蒂斯（Ron DeSaintis）、司法部长穆迪 （Ashley Moody）和国会议员卡迈可（Kat Cammack）誓言支持盖恩斯维尔的员工回击疫苗强制令。
+
+所有弗罗里达州的法院都同意，强制医疗侵犯公民的合法隐私。负责本案件的 杰夫·柴尔德斯 律师在采访中表示，这是美国国内首批针对拜登疫苗强制令的案件之一。该裁定为佛罗里达州创建了一个模版，作为一个成功的判例将发挥重要作用。州内的很多其它城市也开始行动起来，考虑撤回疫苗强制令。
+
+(本文仅代表作者观点)
+
+参考链接：[Judge hears debate over Gainesville’s mandatory COVID-19 vaccine policy for staff](https://www.gainesville.com/story/news/2021/09/20/gainesville-city-employees-court-argue-over-vaccine-mandate/8410424002/)
+[Cops, firefighters challenge Gainesville’s ‘odious’ vaccine mandate](https://www.reuters.com/legal/government/cops-firefighters-challenge-gainesvilles-odious-vaccine-mandate-2021-08-27/)
+[Fla. Court Halts City Vaccine Mandate In Gainesville](https://www.oann.com/fla-court-halts-city-vaccine-mandate-in-gainesville/?web=1&amp;wdLOR=c7BE66E49-AF14-7B4C-9B18-B29D79D5E348)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
