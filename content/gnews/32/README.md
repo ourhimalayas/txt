@@ -2,31 +2,25 @@
 ---
 
 
-## 中共残害百姓不减速 毒疫苗加强针全面展开
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564969/)
+## 金正恩拒绝美国重返会谈的建议
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1565104/)
 
-栏目记者：禹水沃土 
-责任编辑：在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image-467.png)
-9月29日，中共国务院联防联控表示，新冠病毒疫苗加强免疫的相关政策，和实施措施正在加紧制订。已接种人口中，将对易感及60岁以上的重点人群开展“加强免疫”。疫苗灾难已经在全世界呈爆发趋势，大量受害者因为注射了新冠疫苗而身患重病甚至死亡。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide5-28.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/09/N-3.jpg)time.news
+美东时间9月30日消息，朝鲜领导人金正恩拒绝了美国在朝鲜再次发射导弹后提出的重返会谈的建议。
 
-在国内，信息被高度屏蔽。对有关疫苗不良副作用的各种社交媒体消息，都被中共极力掩盖和打压，多数民众还根本不知道毒疫苗的恐怖，老百姓面对的将是一个无比惨烈的冬天。
+金正恩表示：“美国坚持外交接触和无先决条件的对话，但这不过是欺骗国际社会和掩饰其敌对行为的手段。”在他看来，对话建议是前几届美国政府奉行的敌对政策的延续。
 
-（本文仅代表作者观点）
+朝鲜领导人表示，“自美国新政府上台以来，过去八个月的事件清楚地表明，美国对我们的军事威胁和敌对政策没有任何改变。”
 
-参考链接：[新冠疫苗加强针要来了 谁先打？能混打吗？](https://news.sina.com.cn/c/2021-09-30/doc-iktzscyx7164064.shtml)
+9月28日上午，朝鲜又进行了一次导弹发射，据称朝鲜军方正在测试一种新的高超音速导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
+美国国务院谴责朝鲜的发射行为，并呼吁朝鲜进行对话。副参谋长贾丽娜∙波特（Jalina Porter）表示，“我们准备在没有先决条件的情况下与朝鲜会面，我们当然希望朝鲜能对我们的支持作出积极回应，美国的目标仍然是朝鲜半岛的完全无核化。”
 
-终审：暗黑
-校对/发稿：谐趣园
+平壤的回应是承诺不侵犯邻国或美国的安全。朝鲜常驻联合国组织代表金松（Kim Sung）说，韩国和美国不断试图通过开发和部署新武器来“破坏朝鲜半岛的力量平衡。没有一个国家像朝鲜那样不断受到战争的威胁。我们把军事威慑理解为一种合法的自卫权，它可以阻止侵略战争，保护我们。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
+参考链接：
+
+[https://www.rbc.ru/politics/30/09/2021/6154fe629a79474322d6b68c](https://www.rbc.ru/politics/30/09/2021/6154fe629a79474322d6b68c)

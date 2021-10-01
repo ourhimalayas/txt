@@ -2,20 +2,45 @@
 ---
 
 
-## 何以为继&#8211;加拿大去年出生率为近15年来最低！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1565366/)
+## 参议员罗恩-约翰逊揭露，COVID疫苗似乎并不像广告中说的那样有效
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1565386/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/sy-edited.jpg)图片来源：Thepostmillennial
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-加拿大知名自媒体《Thepostmillennial》9月30日刊登文章说，联邦政府统计局日前公布的统计报告数据显示，该国2020年的人口出生率为2006年以来最低，出生人口数比2019年减少了约13,000人。
 
-该报告还指出，2020年在整个加拿大但不包括育空地区，该国的出生人数仅358,604人。自2016年以来，加拿大全国的人口出生率一直都在持续下降，并在去年出现了比2019年更大的一次下降。
 
-对此，加拿大统计局解释说：“随着COVID19疫情在世界各地的爆发所导致的全球旅行限制，加拿大国际移民人数因此骤减，从而造成该国新移民父母的生育数量急剧减少。此外，疫情所引发的其他社会和经济因素（例如：学校和托儿所关闭，失业和财务不确定性等）的巨变，可能导致众多家庭推迟生育期，而这将继续减少今年晚些时候的出生人数。”
 
-值得注意的是，其他几个国家也出现了类似从2019年至2020年出生人数下降的情况。例如，美国报告的出生人数下降了4.0%，英格兰和威尔士报告的出生人数下降了3.9%，而法国的出生人数减少了2.0%。
+据[门道专家](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)9月30日报道，美国参议员罗恩-约翰逊在参议院会议上讨论了目前与COVID-19疫苗有关的COVID-19大流行病。
 
-以上内容仅代表原文信息和作者个人观点。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/1097-1-vax-johnson.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)
 
-[原文链接：](https://thepostmillennial.com/statcan-birthrates-at-their-lowest-since-2006)
+约翰逊参议员展示的一张图表显示，疫苗并没有像宣传的那样发挥作用。他对与COVID-19疫苗有关的冠状病毒病例和冠状病毒死亡的时间线，提出了如下三个非常重要的观点：
+
+“在疫苗推出之前，确诊冠状病毒的总病例和死亡人数已经大幅下降；疫苗接种率在2021年初开始攀升，如今达已到60%左右；尽管60%的人口已经接种了疫苗，但今年夏天的病例和死亡人数仍再次激增”。
+
+现在公众没有得到需要做出知情选择的准确信息，而大药厂又对疫苗的后果不承担任何责任。这都将施打疫苗的公众陷于非常不利的境地。
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/calendar_sep-2.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

@@ -2,19 +2,26 @@
 ---
 
 
-## 昆士兰警员准备就疫苗强制令状告警局
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565475/)
+## 朝鲜试射新型超高音速导弹
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1565476/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/09/id13200949-High_school_student_vaccine-600x400-1.jpeg)图片来源：www.epochtimes.com
-据7news9月30日报道，昆士兰警员准备就警局疫苗强制令向最高法院提起诉讼，该州医护人员也将发起同样的起诉。
+**撰稿：日本东京方舟农场 子辰**
 
-昆士兰州警察局局长卡塔琳娜·卡罗尔已经指示警员和文职工作人员在10月4日之前至少注射一次疫苗，并在明年1月24日之前注射第二针。她说，任何未能在最后期限前完成的工作人员将被停薪一周，不同意者将被要求说明理由。
+CNA9月29日援引朝中社报道，朝鲜试射了一种新开发的超高音速导弹，这是朝鲜测试的一系列新武器中的最新武器。
+报道称，在第一次试射中，朝鲜国防科学家证实了导弹的导航控制和稳定性。称这枚名为 Hwasong（华松）-8 的导弹实现了其技术目标，包括分离的高超音速滑翔弹头的制导机动性和滑翔飞行特性。
 
-对此，昆士兰警员准备就警局疫苗强制令向最高法院提起诉讼，并已确定了诉讼日期。因为这七名警员维护自身基本权利的上诉，预定第一次注射疫苗的截止日期已被推迟。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2021-09-28t220343z_1_lynxmpeh8r19r_rtroptp_3_northkorea-missiles.jpg)图片来自于网络
 
-周四的听证会上，法院还收到了一个类似的诉讼，它是针对该州医护人员强制性疫苗接种。因为发现了更多的COVID病例，昆士兰总理宣布了新的限制措施，并且这些法律诉讼预计将在10月18日的一周内进行全面审理。
+美国卡内基国际和平基金会高级研究员安吉特·潘达表示，华松系列导弹使用液体推进剂发动机。他说“这是自 2017 年 11 月以来朝鲜首次试射液体推进剂导弹”。
+韩国国家安全委员会周二召开紧急会议后发表声明称，“对在朝鲜半岛政治稳定非常关键的时候进行发射表示遗憾”。
+华盛顿方面谴责朝鲜最近的发射，称这是对平壤邻国和国际社会的“威胁”，表示这次发射违反了联合国安理会的多项决议，并补充说：“我们对韩国和日本国防的承诺仍然坚定不移。”
 
-参考链接：
+*注：本文仅代表作者观点，与 Gnews无关*
 
-[Queensland police set for Supreme Court legal showdown over COVID vaccine mandate](https://7news.com.au/lifestyle/health-wellbeing/qld-jab-mandate-set-for-legal-showdown-c-4109650)
+*参考链接：*
+
+[North Korea says it test-fired new hypersonic missile](https://www.channelnewsasia.com/asia/north-korea-says-it-test-fired-new-hypersonic-missile-2208896)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

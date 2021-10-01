@@ -2,27 +2,19 @@
 ---
 
 
-## 恒大美元债月内次未能付息
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1565470/)
+## 昆士兰警员准备就疫苗强制令状告警局
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1565475/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/09/id13200949-High_school_student_vaccine-600x400-1.jpeg)图片来源：www.epochtimes.com
+据7news9月30日报道，昆士兰警员准备就警局疫苗强制令向最高法院提起诉讼，该州医护人员也将发起同样的起诉。
 
-据路透社9月30日报道，有两位消息人士表示，纽约时间周三的付息日己过，中国恒大3333.HK部分境外债券持有人尚未收到利息支付，成为该公司本月未能付息的第二笔美元债。
+昆士兰州警察局局长卡塔琳娜·卡罗尔已经指示警员和文职工作人员在10月4日之前至少注射一次疫苗，并在明年1月24日之前注射第二针。她说，任何未能在最后期限前完成的工作人员将被停薪一周，不同意者将被要求说明理由。
 
-该公司应在9月29日为其2024年3月到期、票息为9.5%的美元债券支付4,750万美元利息。恒大上周未能向海外债券持有人支付8,350万美元的利息。
+对此，昆士兰警员准备就警局疫苗强制令向最高法院提起诉讼，并已确定了诉讼日期。因为这七名警员维护自身基本权利的上诉，预定第一次注射疫苗的截止日期已被推迟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GettyImages-1341800269.jpg)图片来自于网络
+周四的听证会上，法院还收到了一个类似的诉讼，它是针对该州医护人员强制性疫苗接种。因为发现了更多的COVID病例，昆士兰总理宣布了新的限制措施，并且这些法律诉讼预计将在10月18日的一周内进行全面审理。
 
-据悉，负债高达3,050亿美元的恒大没有发表任何言论，对其境外支付义务保持沉默。
+参考链接：
 
-对此，全球投资者担忧，当9月23日和9月29日到期票息的30天宽限期结束后，他们恐遭受巨大损失。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[恒大美元债券持有人称在纽约时间最后期限前没有收到应付票息–消息人士](https://cn.reuters.com/article/evergrande-bond-bearers-interest-0930-idCNKBS2GQ0DF?il=0)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+[Queensland police set for Supreme Court legal showdown over COVID vaccine mandate](https://7news.com.au/lifestyle/health-wellbeing/qld-jab-mandate-set-for-legal-showdown-c-4109650)

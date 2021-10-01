@@ -2,37 +2,38 @@
 ---
 
 
-## 文贵视角：将公布孙力军在海外的资金关系网及藏匿的各方重大案情等绝密信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1564941/)
+## 英美开始采用地塞米松和伊维菌素治疗新冠病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1564997/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/09/G930.jpg)
-图片来源/合成：MilesGuo GETTR/Skagen
+栏目记者：禹水沃土
+责任编辑：文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image-473.png)
+英格兰国家医疗服务体系NHS已开始与政府的抗病毒工作组合作，研究和推出在社区中使用地塞米松等口服药物以治疗新冠病毒。首席制药官 Keith Ridge 担任口服抗病毒药物计划高级负责人。在英国和海外抗病毒治疗临床试验的数据中，地塞米松等药物在缩短新冠病毒对人体影响时间、和防止重症方面显示出可喜的结果。
 
-2021年9月30日，郭文贵先生置顶盖特针对中共纪检监察网公布的《公安部原副部长孙力军严重违纪违法被开除党籍和公职》，他说，从这些公布的案情信息来看，官方公布的资料只是孙犯罪的冰山一角，说明孙力军的犯罪势力集团，还在垂死挣扎中。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Slide7-36.jpeg)
 
-魔鬼打手孙力军犯罪集团对中国人民犯下了杀人绑架血案、盗取巨额中国人民财富，桩桩件件令人发指。孙力军比贝利亚（斯大林的肃反委员会主席）还坏，是人间魔鬼。
+牛津大学的PRINCIPLE试验一直在研究新冠病毒感染的可能疗法，早在6月就确认伊维菌素可以加速康复、减少症状的严重性，避免患者入院治疗。英国卫生署旗下健康与临床优化研究所N.I.C.E近期也发布多篇资料支持以上结论。
 
-孙力军，汉族，1969年1月生，山东青岛人。在孟建柱提携下，孙力军2013年升任公安部最为重要的一局局长。 2016年跻身部级。孙力军于2018年三月，晋升公安部副部长，分管治安工作。孙力军曾任中共上海市政府外事办公室副主任、公安部办公厅副主任、中共中央610办公室副主任。
+8月份，大卫战友在感染新冠病毒重症期间，血氧严重偏低，出现心脏间歇性骤停，在服用了郭文贵先生提供的地塞米松，和战友提供的伊维菌素后，逐渐转危为安。
 
-1. 迫害法轮功人士：负责610办公室，是抓捕、迫害法轮功人士，活摘器官的最大恶魔！
+美国南卡罗来纳州斯巴达堡将招募新冠病毒感染者，使用伊维菌素进行临床实验。爆料革命和郭文贵先生向全世界推荐的药物正在拯救人类。
 
-2. 杀人换肾：孟建柱，除了镇压法轮功，还帮助江泽民长子江绵恒多次换肾，孟建柱母亲也几次换肾。肾源由孙力军从狱中寻找囚犯配对，之后杀人取器官。在过程中，还曾一度杀错人，为掩盖真相他们又将为孟的母亲做手术者和知情者都灭口。
+（本文仅代表作者观点）
 
-3.镇压香港民众的抗议：公安部和政法委都曾介入，孙力军和孟建柱在其中扮演了重要的角色。在香港杀人强奸干坏事的都是孙力军、孟建柱一伙人。
+参考链接：[NHS prepares for antiviral deployment to treat COVID-19](https://pharmaceutical-journal.com/article/news/nhs-prepares-for-antiviral-deployment-to-treat-covid-19)
+[Clinical trial testing Ivermectin, two other drugs against COVID open for signups](https://www.wfxrtv.com/news/health/coronavirus/clinical-trial-testing-ivermectin-two-other-drugs-against-covid-open-for-signups/)
+[铁血大卫对决CCP病毒 化险为夷的来龙去脉](https://gnews.org/zh-hans/1517319/)
+[Ivermectin to be investigated as a possible treatment for COVID-19 in Oxford’s PRINCIPLE trial](https://www.ox.ac.uk/news/2021-06-23-ivermectin-be-investigated-possible-treatment-covid-19-oxford-s-principle-trial)
 
-4. 南普陀计划执行人：孙力军代表江家，执行南普陀计划，要控制习进平，还监督王岐山，占领香港、打台湾都是上海帮的计划！上海帮所有枪杆子的小枪就是孙力军。他就是江家的活走狗！
+![](https://assets.gnews.org/wp-content/uploads/2021/09/9_Sep_mini2.jpg)
 
-5.海外藏匿巨额财富：孙力军作为负责国家政治保卫的共匪公安部副部长，居然是在澳洲登记结婚。妻子李莉（情人升级而来）的银行账户存款高达100多亿美元！由杨澜代持海外资金，海外现金就达到300亿美元，股份价值1200亿美元。
+终审：暗黑
+校对/发稿：谐趣园
 
-官方文件对孙力军的真正罪行，根本没有触及，特别是杀人，绑架，大量的海外资金信托这些内容在中共官方公布的案情中根本没有涉及到。郭先生指出，从这些公布的虚假的文字游戏完全是迷惑对方，欺骗老百姓的游戏。也说明了，习近平根本控制不了政法委和中纪委，甚至中南坑他也没有能绝对控制。
-
-孙力军的犯罪势力集团还在垂死挣扎中。官文中提到孙力军“成伙作势控制要害部门”，“私放私藏大量涉密材料”。那么，孙力军在澳洲藏的大量绝密文件和办案卷宗，这些护身符能救孙力军的狗命吗？
-
-郭文贵先生在盖特中说，他将公布孙力军在海外的资金和关系网，藏匿的大量的共匪各方面及重大案情等绝密信息，绝对会震撼世界。孙力军案，将使我们爆料革命，走向新的一个世界级爆料高度！孙力军案，将使我们爆料革命，走向新的一个世界级爆料高度。我们等待的就是这个时刻，就是要等他们潜伏的力量在这个案情审理当中暴露出来，才能显示出我们掌握的情报和信息的力量。
-
-（本文仅代表撰稿者个人观点）
-
-参考连结
-
-1．[2021年9月30号郭文贵先生盖特](https://gettr.com/post/pcm1sa3149)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Bar-3.png](https://assets.gnews.org/wp-content/uploads/2021/07/Bar-3.png)
