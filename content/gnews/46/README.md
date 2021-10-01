@@ -2,47 +2,42 @@
 ---
 
 
-## 市场崩盘可能即将来临
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1565932/)
+## 佛州州长抨击澳大利亚正在走向共产主义中国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1566191/)
 
-**作者**：香草山美食部-蓝天大海
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒.png)
+图片来源：Yahoo News
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+美国第三大州的领导人——佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)猛烈抨击澳大利亚的新冠病毒限制措施，指责澳洲已“脱轨”，正在走向专制的共产主义中国。
 
+德桑蒂斯先生一直强烈反对美国的封锁、强制执行和疫苗护照，他在坦帕举行的国际造船展览会上发表讲话时提到了澳大利亚的新冠病毒政策。
 
+“看看吧，澳大利亚现在发生了什么。在（疫情爆发）一年半之后，他们正在执行军方的封锁措施，”德桑蒂斯说。
 
+“那不是一个自由的国家，它根本不是一个自由的国家。”
 
+“事实上，我想知道为什么当他们这样做时，我们（两国）仍然保持正常的外交关系。澳大利亚现在比共产主义中国更自由吗？我不知道，一个普通问题的事实告诉你，其中一些东西已经大大偏离了轨道。”
 
-零对冲9月30日刊登了一篇署名查尔斯.休.史密斯（Charles Hugh Smith）的文章——《没人认为可能的市场崩盘即将来临》。
+德桑蒂斯先生被广泛视为2024年共和党总统候选人提名的主要竞争者，他声称佛罗里达州在反对美国各地的限制措施方面处于领先地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-49.jpg)图片来源：pixabay.com
+例如，他所在的州率先禁止私营企业要求客户提供疫苗接种证明。
 
-文章认为：盛宴正在上演，冒险崩溃就像报复一样，因为没有“认真的人”相信崩溃是可能的，更不用说迫在眉睫了。他例举了若干相互作用的因素：经济泡沫已经见顶，高估值、高杠杆、高度兴奋和投机的极端情况已经远远超过了基准；通货膨胀不仅是内在的，而且是全球性的问题，整个地区的天然气价格可能会增加三倍，而其他必需品的成本也可能毫不费力地轻松增加三倍；美联储的腐败造成其公信力下降，同时，由于美联储已经失去对收益率的控制，长期积累的对美联储神一般权力的信任正在动摇；中国这次不会再像以前那样，在泡沫破灭时拯救全球市场；散户投资者投入的资金比过去10-20年还要多，最终泡沫将被戳破。
+“如果我们不这样做（取消疫苗护照），很多其他州就不会效仿，”他说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-26.jpg)图片来源：pixabay.com
+“佛罗里达州是一个自由州，我们将赋予人民权力，”州长在8月份给他的支持者的一封筹款电子邮件中说。
 
-查尔斯是美国金融评论家，从去年开始就不断撰文唱衰美国经济。该文指出了即将爆发金融危机的种种迹象和原因，并且重墨指出是美联储的腐败，导致金融泡沫越吹越大。除此之外，笔者认为，中共的邪恶以及华尔街的贪婪是造成目前美国金融困境的另一个重要原因。三十年来，中共利用华尔街的贪婪，渗透并绑架了美国的经济。中共一方面利用股市和基金吸纳了大量美国退休和养老基金；另一方面则利用数百支在美上市的中概股吸纳了大量美国机构和散户投资者的资金，而这些在美国上市的中国公司并未按照美国SEC的标准公布和审核数据。随着中共国经济和投资环境日益恶化，外资纷纷撤离，大规模债务违约和企业倒闭正在发生，致使其将捆绑在一起的美国经济也推到了无底深渊。恒大爆雷了，爆雷当天，全球股市受到影响，道琼斯指数一天下跌五百多点。恒大以后呢？郭文贵先生说，还有平安，建业，绿地，碧桂园等等排着队呢。郭先生特别强调了平安陆金所，他说如果中南坑下令关闭陆金所，那么美国将进入有史以来最大的经济危机！
+“我们不会允许乔·拜登和他的官僚随从闯入并侵占佛罗里达人的权利和自由。”
 
-这绝不是危言耸听。然而，直至目前，美国人似乎并未意识到这一点，甚至没人认为可能的市场崩盘即将来临。贪婪的华尔街投资者们仍然不肯收手，他们还妄想继续跟中共勾兑，榨取更多中国老百姓乃至美国人的血汗。爆料革命重任在肩，任重道远。
+与此同时，白宫新闻秘书珍·普萨基（Jen Psaki）抨击德桑蒂斯先生采取了“违反公共卫生建议的措施”，例如禁止学校要求学生戴口罩。
 
-（本文仅代表作者个人观点）
+新闻链接：[‘Off the rails’: Florida Governor Ron DeSantis blasts Australia’s Covid restrictions | news.com.au — Australia’s leading news site](https://www.news.com.au/world/coronavirus/australia/off-the-rails-florida-governor-ron-desantis-blasts-australias-covid-restrictions/news-story/9aea5a9f5df3c82cbf4bdcbdd62a8cd5)
 
-参阅链接：[https://www.zerohedge.com/markets/market-crash-nobody-thinks-possible-coming](https://www.zerohedge.com/markets/market-crash-nobody-thinks-possible-coming)
+编辑/发布：文泓
 
-编辑/校对/发稿：遍地开花
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/9月-3.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

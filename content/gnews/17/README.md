@@ -2,9 +2,9 @@
 ---
 
 
-## 辉瑞疫苗加强针的安全性和有效性没有数据支持
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1566619/)
+## 秘翻吐槽剧场：诗歌《哭泣的香港》
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566792/)
 
-9/18/2021 辉瑞疫苗加强针的安全性和有效性没有数据支持。
+#### 作者：小蚂蚁的自由 文殊
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+#### 朗诵：文殊
