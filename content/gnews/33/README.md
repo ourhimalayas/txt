@@ -2,29 +2,21 @@
 ---
 
 
-## 2021年8月29日郭文贵先生做健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566866/)
+## CDC 终于明确：mRNA疫苗副作用出现不应再接种第二剂
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566907/)
 
-盖特连接：[https://gettr.com/post/p9guqk6413](https://gettr.com/post/p9guqk6413)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G101.jpg)
+图片来源/图片合成：CDC/Skagen
 
-8月29日：尊敬的战友们好，你们健身了吗？传播CCP病毒……香港危机．郑州人祸的真相了吗？
+美国CDC 网站2021年9年30号更新，在《接种COVID-19疫苗后可能产生的副作用》中公告：
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+**如果您在接种第一剂mRNA COVID-19疫苗后出现严重或即时过敏反应，则不应接种第二剂mRNA COVID-19 疫苗！**也承认接种第二剂后的副作用可能比接种第一剂后的副作用更严重，但还坚持说“这些副作用是身体正在建立保护的正常反应，应该会在几天内消失。”
 
-（做完一组健腹轮）啊！太棒了，每组24，做了六组，中不中？兄弟姐妹们！
+同样CDC在《COVID-19疫苗的安全性》栏目下承认：根据报告，**青少年和年轻成人在接种mRNA COVID-19疫苗（辉瑞-生物科技或Moderna）的第二剂后出现心肌炎和心包炎的病例比接种第一剂后更为常见。**
 
-编辑整理及发布：黎明之前
+而为了推动医学界和科学界承认疫苗的副作用和推动CDC做出改变，郭文贵先生和背后战友们作出了不懈的努力。短短的两句话将救下多少人命，这一切天地可鉴。爆料革命新中国联邦没有利益，没有权利欲望，只为了人类的健康延续和安全。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+来源：
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+1. [CDC](https://chinese.cdc.gov/coronavirus/2019-ncov/vaccines/expect/after.html)

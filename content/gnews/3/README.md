@@ -2,34 +2,37 @@
 ---
 
 
-## 盖恩斯维尔市居民成功回击新冠疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567365/)
+## 中国南方年轻女子死于 H5N6 禽流感
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1567388/)
 
-栏目记者/责任编辑：Yousei
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-18.png)
-盖恩斯维尔市（城市名：Gainesville）成功回击政府疫苗强制令：州法院于近日裁定，不得解雇或处罚未接种的雇员。
+【评论： 】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3.jpeg)
+中共国政府一如既往地想瞒住病情，根本没有从新冠疫情带来的巨大伤害中吸取教训，再一次触动世界的神经。也许，中共研制的一款新型人传人禽流感冠状病毒已经在蠢蠢欲动。
 
-城市委员会在今年8月时提议，以就业基本条件为由，要求2200多名雇员接种新冠疫苗，并定于10月1日执行首次新冠毒针接种的强制令。人们的平等保护、隐私权和身体完整性等权力被严重侵犯。9月份警察和消防员等200多名员工对市政府提起诉讼，并强调州宪法必须保护个人的“身体自主权”。弗罗里达州州长罗恩·德桑蒂斯（Ron DeSaintis）、司法部长穆迪 （Ashley Moody）和国会议员卡迈可（Kat Cammack）誓言支持盖恩斯维尔的员工回击疫苗强制令。
+据《BNO新闻》2021年9月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2370.png)图片来源：《BNO新闻》
+香港卫生官员周三报道，在孤立病例增加的情况下，中国南部一名26岁的妇女死于H5N6禽流感。本月早些时候还报告了另外三起病例。
 
-所有弗罗里达州的法院都同意，强制医疗侵犯公民的合法隐私。负责本案件的 杰夫·柴尔德斯 律师在采访中表示，这是美国国内首批针对拜登疫苗强制令的案件之一。该裁定为佛罗里达州创建了一个模版，作为一个成功的判例将发挥重要作用。州内的很多其它城市也开始行动起来，考虑撤回疫苗强制令。
+香港卫生署表示，已于周三获悉中国大陆广西壮族自治区桂林市的病例。当地官员没有立即发出消息。
 
-(本文仅代表作者观点)
+卫生部门表示，这名26岁的女子在8月14日出现症状之前曾接触过活家禽。五天后，她被送往医院，现已死亡。
 
-参考链接：[Judge hears debate over Gainesville’s mandatory COVID-19 vaccine policy for staff](https://www.gainesville.com/story/news/2021/09/20/gainesville-city-employees-court-argue-over-vaccine-mandate/8410424002/)
-[Cops, firefighters challenge Gainesville’s ‘odious’ vaccine mandate](https://www.reuters.com/legal/government/cops-firefighters-challenge-gainesvilles-odious-vaccine-mandate-2021-08-27/)
-[Fla. Court Halts City Vaccine Mandate In Gainesville](https://www.oann.com/fla-court-halts-city-vaccine-mandate-in-gainesville/?web=1&amp;wdLOR=c7BE66E49-AF14-7B4C-9B18-B29D79D5E348)
+不知道为什么直到周三才向公众报告此案。世界卫生组织（WHO）的发言人没有立即回应置评请求。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+自2014年第一例H5N6禽流感病例以来，仅确认了46例人类感染H5N6禽流感病例，但其中近四分之一是在过去2.5个月内报告的。去年报告了至少22起病例，其中只有一例发生在中国。
 
-终审：暗黑
-校正/发稿：谐趣园
+据世界卫生组织称，已知H5N6禽流感会导致所有年龄段的人患上严重疾病，并且已经杀死了一半以上的感染者。目前没有确诊的人传人病例。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“虽然最近发现的禽流感病毒目前不容易在人与人之间传播，但这些病毒在家禽中的持续传播令人担忧，因为这些病毒会导致人类严重疾病，并有可能发生变异，从而在人与人之间变得更具传染性。”世卫组织在其网站上说，“因此，世卫组织的突发卫生事件计划将持续监测人类禽流感病例。”
+
+文章来源：[https://bnonews.com/index.php/2021/09/young-woman-dies-of-h5n6-bird-flu-in-southern-china/](https://bnonews.com/index.php/2021/09/young-woman-dies-of-h5n6-bird-flu-in-southern-china/)
+
+（本文评论仅代表个人观点）
+
+翻译/评论：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

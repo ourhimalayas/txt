@@ -2,36 +2,25 @@
 ---
 
 
-## 印度陆军积极筹备印中边境军事对峙
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566924/)
+## 韩美日北核问题首席代表电话会谈 应对朝鲜射弹
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1566969/)
 
-栏目记者/责任编辑：在远方
+韩国首尔天池农场—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/韩美日.jpeg)图片来源：网络
+据韩国国际广播电台10月1日报道：日本外务省表示，韩国、美国、日本三国负责北韩核问题的首席代表进行电话会谈，探讨共同应对朝鲜射弹等方案。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+韩国外交部韩半岛和平交涉本部长鲁圭德、美国对北韩政策特别代表金成、日本外务省亚洲大洋洲局局长船越健裕韩国时间9月30日下午1时进行了约15分钟的电话会谈。
 
+据日本外务省介绍，三方重点讨论北韩近期的核导活动，并对北韩的一系列活动表示忧虑。韩美日还商定根据联合国安理会决议密切保持合作，继续推动韩半岛实现完全无核化。
+ 
+日本政府发言人、内阁官房长官加藤胜信在当天下午召开的记者会上表示，根据判断，北韩9月28日违反联合国安理会决议，利用弹道导弹技术发射导弹，日方已通过驻中国大使馆向北韩提出了抗议。
+ 
+朝中社9月29日报道称，北韩9月28日试射国防科学院开发的“火星-8”型新型高超音速导弹。
 
+就在韩美日三国通话会议的当天，北韩试射新型反航空导弹，即防空导弹。
 
-印度陆军参谋长纳拉瓦内 9月30日表示，印中边境拉达克沿线事态的发展增加了印度的挑战，在与中共国达成边界协议之前，军事对峙之类的事件将继续发生。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（1、2、3、6、7）視頻備用.003.jpeg)
-去年5月以来，中共不断在有争议的边境拉达克地区采取挑衅性的军事活动，目前中共已实际控制了拉达克以东的阿克赛钦高原，该地区把新疆与西藏西部连接起来，对中共具有战略意义。
+点评：北韩国务委员长金正恩在9月29日举行的最高人民会议第二天会议上发表讲话时指出“为了实现民族对南北关系改善与朝鲜半岛和平的期望，有意于10月初重启南北通信联络线”。在发表讲话的前一天9月28日试射国防科学院开发的“火星-8”型新型高超音速导弹，然后第二天9月30日就再次试射新型反航空导弹即防空导弹。嘴上说着要和平相处然后又各种射弹，这一反常的行为，就没有表现要和平相处的意思。一而再地射弹，引起半岛关系及周边亚太国家紧张。这样一个社会主义极权国家领导人的讲话，就像中共领导人说的话一样，最好连标点符合都不要相信。
 
-针对中共持续的武力挑衅，印度政府最近签订了113份合同，用于采购对作战至关重要的弹药、军备、车辆、备件和特殊登山设备，总金额近12亿美元。
+[新闻来源](http://world.kbs.co.kr/service/news_view.htm?lang=c&amp;Seq_Code=73071)
 
-印方表示，已做好充分准备，以应对可能发生的任何事件。
-(本文仅代表作者观点)
-
-参考链接：[印度陆军参谋长：在达成边界协议之前 边界事件将继续发生](https://www.rfi.fr/cn/亚洲/20210930-印度陆军参谋长-在达成边界协议之前-边界事件将继续发生)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：FoxRina
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（本文仅代表作者观点，与Gnews平台无关）

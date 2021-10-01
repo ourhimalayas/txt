@@ -2,21 +2,40 @@
 ---
 
 
-## CDC 终于明确：mRNA疫苗副作用出现不应再接种第二剂
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1566907/)
+## 印度将在斯里兰卡建造战略性深水港码头对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1566948/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/10/G101.jpg)
-图片来源/图片合成：CDC/Skagen
+栏目记者/责任编辑：七哩香
 
-美国CDC 网站2021年9年30号更新，在《接种COVID-19疫苗后可能产生的副作用》中公告：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**如果您在接种第一剂mRNA COVID-19疫苗后出现严重或即时过敏反应，则不应接种第二剂mRNA COVID-19 疫苗！**也承认接种第二剂后的副作用可能比接种第一剂后的副作用更严重，但还坚持说“这些副作用是身体正在建立保护的正常反应，应该会在几天内消失。”
 
-同样CDC在《COVID-19疫苗的安全性》栏目下承认：根据报告，**青少年和年轻成人在接种mRNA COVID-19疫苗（辉瑞-生物科技或Moderna）的第二剂后出现心肌炎和心包炎的病例比接种第一剂后更为常见。**
 
-而为了推动医学界和科学界承认疫苗的副作用和推动CDC做出改变，郭文贵先生和背后战友们作出了不懈的努力。短短的两句话将救下多少人命，这一切天地可鉴。爆料革命新中国联邦没有利益，没有权利欲望，只为了人类的健康延续和安全。
+9月30日，印度阿达尼（Adani）集团、及斯里兰卡John Keells集团， 与斯里兰卡港务局签署了一份价值7亿美元的合同，要在斯里兰卡建造一个战略性的深水港头。这是斯里兰卡港口领域有史以来最大的外国投资，这一举措被视为是抗衡中共在印度洋日益增长影响力的一种方式。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1001AM（4、5、8）.001.jpeg)
+新码头毗邻科伦坡国际码头，预计长1.4公里，深20米，年处理能力为320万个集装箱，其产权将在运营35年后全部转移给斯里兰卡。
 
-来源：
+科伦坡国际码头于2013年开始运营，中共拥有其85%股权；2014年因中共潜艇突抵达触发外交事件而成为焦点。
 
-1. [CDC](https://chinese.cdc.gov/coronavirus/2019-ncov/vaccines/expect/after.html)
+斯里兰卡地处印度洋战略要地，是亚非、亚欧贸易通道的重要节点，也是中共”一带一路”的关键环节。近年来，中共重金投入斯里兰卡的基建等领域，令斯里兰卡陷入债务泥潭，印度则担忧这里变为中共军事基地。新码头协议，无论对印度，还是对全世界民主国家，都具有战略性意义，是对中共扩张和威胁态势的强力反击和有效制约。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [对抗中国：印度将在斯里兰卡建造战略性深水港码头](https://www.rfi.fr/cn/亚洲/20210930-对抗中国-印度将在斯里兰卡建造战略性深水港码头)
+2. [India’s Adani Plans to Compete With China at Sri Lankan Port](https://www.maritime-executive.com/index.php/article/india-s-adani-to-build-sri-lanka-port-in-competition-to-chinese)
+3. [India counters China in Sri Lanka with $700 million port deal](https://www.easterneye.biz/india-counters-china-in-sri-lanka-with-700-million-port-deal/)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,27 +2,25 @@
 ---
 
 
-## 高盛表示8.2万亿美元的威胁比恒大更严重
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1567217/)
+## 秘翻在线：如何中和mRNA疫苗带给身体的潜在危害
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1567296/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+翻译：Nstar
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-01-235352.jpg)图片来源：MedScape
+以下是来自网站“关于疫苗的真相”所收集到的建议: ** **
 
-视频参看：2021.10.01早GTV新闻访谈
+** 1 |碘 ** 甲状腺使用碘來制造甲状腺激素，甲状腺激素也可用于解毒有毒化合物并強烈增加 mRNA 衰減率。
 
-[https://gtv.org/broadcast/watch/6156fea1304e992109ad968b](https://gtv.org/broadcast/watch/6156fea1304e992109ad968b)
+** 2 |锌 ** 锌使身体能够制造蛋白质和 DNA，有助于伤口愈合，并在儿童成长中发挥作用。其抗氧化特性有助于细胞的免疫功能并调节细胞因子的 mRNA 水平。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+** 3 |槲皮素** 槲皮素处理的中性粒细胞（一种类黄酮）表现出对各种促炎基因 mRNA 表达的显著抑制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
+** 4 |增压碳60（纳米碳活性炭）** 碳纳米载体可以提供小干扰 RNA (siRNA) 并实现无数植物生物技术 mRNA 应用，并且可以增强身体在健康和疾病状态下管理氧化应激的能力。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**5 |PQQ（吡咯喹啉奎宁）** 在水果蔬菜和母乳中都可以找到的植物因子，是一种强大的抗氧化剂和细胞能量助推器，可支持产线粒体的健康，保护它们免受氧化损伤，甚至帮助生长新的线粒体。
+
+【以上观点未经专家鉴定，请谨慎参考】
+
+**[信息来源](https://thetruthaboutvaccines.com/stop-damage-mrna-vaccines/)**
