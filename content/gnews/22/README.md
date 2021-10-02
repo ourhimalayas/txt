@@ -2,191 +2,63 @@
 ---
 
 
-## 零对冲对加密货币市场最新变化的更新（FW39）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567756/)
+## 焦点：中共国电荒是全球经济崩盘的导火索
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1567797/)
 
-作者：纽约香草山信息部 – 6zero4
+#### 加拿大多伦多枫叶农场  Wilson 
+![GTV陷筹资风波，郭文贵支持者和反对者激烈交锋— 普通话主页](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/xx2-10052020140228.html/xx1005a.jpg/@@images/9b1b46ed-c10c-4555-ad0a-d502e7a2e65c.jpeg)图片来源于网络
+新中国联邦创始人郭文贵先生，在半年前谈到中共病毒和毒疫苗对全球的潜在危害时指出，人们已经明白中共病毒对全球产业链、供应链的破坏是巨大的，但远未认识到毒疫苗发作造成的脑梗、心梗、猝死等对世界的颠覆性影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+郭先生披露，病毒和疫苗是中俄及国际暗黑势力合谋扔向全世界的子母弹，受害最严重的将是高疫苗接种率的欧美国家及其他洲的发达国家，这是上述邪恶力量处心积虑要达到的效果。
 
+郭先生认为，世界格局剧变是从现存的军事、经济、政治秩序运行出现梗塞、阻滞开始的，和我们当前看到毒疫苗在人身上发作时的情形一样，不同点是世界局势的变化是一个巨大的系统变量。
 
+简单而言，当毒疫苗的副作用发作时，高疫苗注射率国家的军队就会失去作战能力，同时整个国家的病患及死亡率飚升就会击跨本国经济，发达国家的整体实力和国际地位就会土崩瓦解，国际版图就会彻底改变，邪恶势力就可以轻而易举地奴役人类。
 
+中共国限产限电就是这个全球性系统变量中的一个重要组成部分和观察窗口：数据显示，中共囯历年来从澳洲进口的煤仅占其总使用量的约五十分之一，而澳洲煤是最优质的，并不愁卖，其价格近来上涨约160%就是证明，实际上中共国停止从澳洲进口煤炭并不单单是和澳洲的关系搞僵了，还有价格因素在里面，中共国在乎价格，证明外汇储备已经非常短缺。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/13.png)
-**2021****年****9****月****20****日，****Coinbase****宣布放弃推出加密借贷平台计划（****USDC APY****），****SEC****“赢”了？**
+稍有经济常识的人都知道，当市场出现面粉（原材或半成品）贵过面包（终端商品）时，就是经济危机爆发前的先兆，而煤炭只不过是众多面粉中的一种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/B4F8C6D1-8F92-465B-B0C1-EB69D88335ED_4_5005_c.jpeg)图片来源于网络
+而在煤炭价格未上涨前，中共国已经出现工业价格指数和消费价格指数严重背离的情况，据中共官方数据，工业价格（面粉价）指数已创下15年新高，但消费价格（面包价）却一直原地踏步，无法同步上涨。里面的关系很简单，就是穷人太多，社会消费能力严重不足，消费者没有能力接受商品价格上涨，原料价格无法向终端消费传导。
 
-继2021年9月8日Coinbase的CEO阿姆斯特朗（Brian Armstrong）在推特上抨击SEC的过度长臂管辖，且SEC威胁要起诉Coinbase的加密交易所新贷款计划（USDC APY）的两周后，9月17日他在一篇博客中证实，Coinbase将不会启动该贷款计划。
+由于中共国加入世贸后，已经发展成为世界工厂，形成了制造业门类齐全的产业链，其商品出口占到全球的一半，因此可以毫不夸张的说，中共国的工厂是全球产业链中最重要的一部分，也是中共绑架和勒索全世界的本钱之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/6-11.png)
+当依靠近60％的煤炭能源支撑运转的中共囯世界工厂遇到面粉贵过面包问题时，已经不单是中共国遇到了大问题，而是全球经济在中共国这个重要运行环节出现了梗阻。
 
-在此博客中，阿姆斯特朗表示，SEC最近出现了一些非常恶劣的行为，在Coinbase继续努力为整个加密货币行业寻求监管清晰度的同时，我们做出了一个艰难的决定： Coinbase将不会启动USDC APY借贷项目！且更新了其Lend计划发布网站，并将其关闭了。Coinbase的目标是为客户创造伟大的产品，增加世界的经济自由度。我们有来自美国全国各地成千上万的注册客户，感谢他们对Coinbase的兴趣，我们将不会停止创新，为客户寻找和开发值得信赖的方案和产品。
+**据独立学者如松提供的数据，即使现在是用电、用气淡季，但亚洲天然气价格在一年内还是上涨了**600%**，欧洲天然气价格涨幅达到**1000%**，但天燃气价格远未见顶。**
 
-有趣的是，在今天Coinbase宣布放弃USDC APY这一针对散户的贷款计划的同时，却推出了针对机构投资者的Coinbase Prime产品。
+**更为夸张的是，拥有北海油田的英国，今年**9**月中旬电力拍卖市场的高峰时段成交价居然高达**2500**英镑**/**兆瓦，而疫情前这一价格一般为**40**英镑**/**兆瓦。欧洲各国的电价涨幅同样非常惊人，同是化石能源的石油涨价仅仅是时间问题。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/2-26.png)
+能源进口占中共囯能源总使用量的七成以上，实际上中共国的世界工厂就是一个代工厂，消耗的能源和其它大宗商品，都高度依赖进口，当能源危机到来和国际大宗价格失控时，这个世界工厂就会歇菜，就会出现商品供应不足造成的通胀。
 
-Entrepreneur.com的普里斯特利（Daniel Priestley）表示，这是加密货币领域的一个转折点，SEC此举被视为一个重要的警告信号，表明SEC打算与加密货币相关企业正面交锋。在未来的一年里，世界各地的金融监管机构很可能将目光转向加密货币业务，并要求它们遵守仍在起草的专项法规和传统证券法。唯一的例外将是那些已经受到监管而可以出售证券的公司，或者受到监管的银行，他们将受益于加密货币资产交易的延续，并可能在行业中占据主导地位。
+中共国的商品不仅卖到全世界的商场，还垄断了部分军用市场的供应。据美国《国防新闻》报导，美国国会众议院军事委员会近日宣称，“由于国防工业基地的大量材料都是从中共国独家采购的，因此在美国国防供应链中存在国家安全风险。”
 
-Coinbase和其他大型加密货币公司如BlockFi和Celsius目前仍拥有强大的影响力，但加密货币业务的重点将未必是自己的白皮书、品牌和精心设计的智能手机应用程序，而是将更多地与监管审批有关。随着加密货币的发展，整个行业已经受到全球监管机构的关注，并开始整顿这个行业。
+消费往往占到发达国家GDP的6成到7成，疫情爆发后到今年7月，发达国家的消费之所以较为稳定，是因为有疫情补贴。当各国再也无法举债补贴时（印钱补贴将使本币变成废纸），民众就没有能力接受商品的涨价，尤其是在巨大的通胀压力下，购买力缩水，人们更不敢花钱。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-01-下午5.44.29.png)图片来源于网络
+近来中共的大小外宣一直在欺骗中国人民，人民日报宣称是地方政府为了完成碳排放任务而釆取突击限电限产。有外宣称限产限电可以提高出口商品价格，向美国输出通胀，从而打击美国经济。只要反问：取消出口补贴和退税，不就可以抬高出口商品价格了吗？为什么还要自伤呢？这样的谎言就会不攻自破。
 
-**Dalio****说比特币有“估算价值，而不是内在价值”**
+造成中共国煤荒的主要原因是疫情破坏了全球媒炭供应链，由于美元滥发导致以美元计价的大宗商品走高等。供应链被破坏的例子是蒙古国由于疫情影响开釆，即使中共出高价也无法从蒙古买到煤。
 
-桥水基金创世人Ray Dalio在谈到比特币时坚称，这种加密货币有“估算价值，而不是内在价值”。如果政府没有“扼杀”比特币，它将成功且其价值将比现在“高得多”。
+近年来油气价格低迷冲击了煤碳行业，短视的中共多年前将煤炭行业收归国有后，投入新煤矿勘探的费用非常有限，在老煤矿储量不断下降的同时，环保措施却层层加码，导致产量急剧下降。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/8-21.png)
+但是，中共国发电厂60%以上依赖煤炭的布局却从未出现变化，可以说，中共国的工业体系是建立在高污染和日渐枯竭的媒炭行业上的。
 
-**9****月****21****日，加密货币在缩减购债谈判和债务天花板释疑之前暴跌**
+由于历史原因，当前的美国就高度依赖中共国的工业体系，如果中共国的工厂熄灭了，世界就将面临商品供应短缺造成的激烈通胀，这是耶伦上任后，不断试探舆论和政敌对她提议降低中共国输美商品关税态度的原因，也是拜登政府和中共勾搭的原因之一。
 
-今天加密资产价格再次受挫……
-![](https://assets.gnews.org/wp-content/uploads/2021/09/10-34.png)
-比特币试探性下跌至8月初以来的100天移动均线（100DMA）之最低水平…
+被媒体热妙的煤炭短缺仅仅是问题中的一个因素，中共国的世界工厂产业链是超级长的，又由于中共全球树敌，等于产业链所到之处都是地雷，因而对美国而言也充满了隐患。
+![（图源：网络）](https://n.sinaimg.cn/sinakd20210926s/0/w480h320/20210926/af8c-8e360f3b89542cf4d5833fcfc572ea3b.jpg)图片来源于网络
+这条产业链从能源到各种大宗商品、资金链、技术链再到终端需求，在全球陷入病毒危机和中共四面楚歌的情况下，中共要控制住这么长的产业链是不可能的，加上中共进攻台湾时，公开和中共为敌的世界各国将遵循战争法则，群起攻击、破坏这条为中共输血的产业链，中共必将疯狂报复，多点开花的战争就可能全面爆发，就会出现玉石俱焚的惨烈结局。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/11-42.png)
+近日美联储主席鲍威尔一改此前“通胀是暂时的”说法称通胀将是长期的，包括欧洲央行总裁拉加德等均表示，“严峻的供应瓶颈问题正导致通货膨胀升温，并阻碍全球经济在走出新冠病毒疫情后的复苏；且供应链短缺有可能进一步恶化。”
 
-然后典型反弹……
+中共国总理李克强周四公开保证能源电力供应。在外汇紧缺的情况下，中共无非是疯狂挖堀本国煤矿，但开采量是受储量、开釆条件、物流等因素制约的，因此李克强的保证更象是一句空话，不足以对中共国的经济崩溃产生任何影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/12-30.png)
+毫无疑问，不管拜登政府如何害怕、迁就中共，这样的结局都会照样发生，这是由中共的邪恶极权本质决定的。全世界需要警惕和阻止拜登政府为了保护美国的泡沫经济，不让中共公开自己及众多腐败官员的丑闻而釆取无耻的鸵鸟政策，否则将无限助长中共进一步奴役、屠杀人类的野心。
 
-**9****月****21****日，因****SEC/OCC****质疑私人货币形式的“长期可行性”，并发出“清算”警告，导致加密货币崩溃**
+参考来源：
 
-曾在MIT教授过一门加密领域课程的SEC主席根斯勒（Gary Gensler）正力图让加密货币行业人士相信，他将成为这个新兴行业的“朋友”。他今天表示所有加密货币交易所都必须在SEC注册并受其监管，否则“会有很多人受到伤害”，其逻辑是广泛的监管对于促进“广泛采用”是必要的。根斯勒认为大多数私人形式的加密货币都没有“长期可行性”，因此有必要围绕这一问题建立一个投资者保护机制。根斯勒还进一步将稳定币等加密货币比作赌博的筹码，其稳定币几乎就像赌场里的扑克筹码。根斯勒对加密货币的这一通评论，立即被头条新闻记者跟进报道，导致比特币和以太坊的价格再次下滑。
+[https://news.sina.com.cn/c/2021-09-26/doc-iktzqtyt8219965.shtml](https://news.sina.com.cn/c/2021-09-26/doc-iktzqtyt8219965.shtml)
 
-货币监理署（OCC）代理主席迈克尔（Michael Hsu）今天也表示，随着加密货币与去中心化金融（DeFi ）的发展，将演变成各国金融体系几乎以相同的方式监管其衍生品，并可能正在走上一条类似于2000年代早期CDS（信贷违约掉期）的道路。
+[精彩片段》翁偉捷:壓力越來越重…【年代向錢看】20210930](https://youtube.com/watch?v=fcpAadoSpro&amp;feature=share)
 
-Coinbase前高管、迈克尔的前任布鲁克斯（Brian P. Brooks）曾在OCC领导了一项支持加密货币的行动，建立了更受该行业欢迎的政策，并为一些公司提供银行牌照。迈克尔担任OCC主席后却暂停了这些加密货币行业的友好政策，并与监管机构一起呼吁跨部门采取统一监管做法。
-
-迈克尔对加密货币行业的诋毁甚至更进一步，他表示加密货币与去中心化金融解决实体经济问题的办法很少，且清算可能就要开始了，“加密货币的铁杆信徒”可能会让位于不太接受这些加密资产风险的传统货币主流用户，后者将“主导并驱动市场反应”，因此加密货币投资可能意味着更大的恐慌风险甚至被瓦解。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/15-12.png)
-
-今天加密货币在SEA和OCC的双重打击下，恐惧情绪（FUD）推动加密货币走低就不足为奇了，比特币和以太坊价格试探性下降到了100天移动平均线（100DMA）的水平……
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/16-12.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/17-9.png)
-
-但CoinTelegraph却乐观地指出，加密货币恐惧与贪婪指数降到了27分（满分为100分），为三个月以来的最低点，正转向极端恐惧信号，表明加密货币市场正经历一段投资者恐惧期，但从另一个层面表明了比特币可能被低估。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/18-8.png)
-
-一名Reddit用户引用“谣言时买入，真话时卖出”这句常见的交易咒语，并说交易员应该“在恐惧时买入，在贪婪时卖出”。并表示加密货币等颠覆性新事物，在变得越来越成功的路上难逃被摧毁的命运，这似乎是目前业界的宿命，因为一个由个人主体使用的去中心化平台怎能击败霸权？
-
-**9****月****22****日，加密货币价格走势**
-
-今天早上美联储的核心机构联邦公开市场委员会（FOMC）发出将在2022年加息并预计在2022年年中结束量化宽松的强势声明，这是美联储2018年以来最强硬的一次声明，金融市场的下意识反应是“有趣的”，比特币应声上涨……
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/19-8.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/09/20-8.png)
-今天晚些时候因为来自恒大集团同意支付9月23日到期的本地债券利息这个头条新闻，引发了加密货币价格的上涨，比特币随之飙升……
-
-在最近两次FOMC声明期间，加密货币一路狂飙，但比特币今天的价格与上次FOMC声明时的价格相比却几乎没有变化……
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/21-9.png)
-
-**9****月****22****日，肯塔基州发生针对学生的枪击案，疑与附近学校刚刚发生的以比特币支付的炸弹威胁事件有关**
-
-大约在美国东部时间当日早上6:30，在肯塔基州的路易斯维尔市（Louisville），3名学生正在位于市中心正西边拉塞尔街区（Russell neighborhood）的一个角落等待校车时遭遇枪击，当时一名身份不明的袭击者开车从此经过并向他们开枪，导致1死2伤，嫌犯仍在逃。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/22-8.png)
-
-2名伤者中，一名14岁的男孩被送往医院，伤势没有生命危险；另一名14岁的女孩被子弹轻微擦伤并在现场接受了治疗。这三名学生都就读于杰斐逊县（Jefferson County）公立学区的东部高中。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/25-5.png)
-
-警方正在收集线索并将启动全面调查，以找到罪犯。枪击案发生前不久，附近的几所学校就因一系列炸弹威胁事件而采取了疏散措施，且这些炸弹威胁都要求对方支付价值50万美元的比特币。
-
-**9****月****23****日，****Twitter****宣布用户可以用比特币给人“打赏”了！**
-
-加密货币倡导者多尔西（Jack Dorsey）创建的Twitter，今天宣布新“打赏”功能将于本周向全球所有苹果iOS用户推出，并在未来几周内对安卓用户开放，并表示Twitter不会从中分一杯羹。这让世界Twitter用户可用比特币“打赏”他们最喜欢的推友。基于此好消息，Twitter股价当天上涨了3%，比特币当天价格也因此攀升。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/24-3.png)
-
-同时，Twitter也正在整合比特币钱包Strike的服务，以便推友可将比特币账户添加到自己的Strike钱包中，从而方便发送和接收比特币等加密货币的打赏。早先Twitter的比特币打赏功能仅作为产品测试的一部分对少数用户开放，更早前Twitter用户就只能用法币通过PayPal的Venmo，或多尔西自己创建的Square的Cash等传统支付工具打赏。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/25-5.png)
-
-Twitter当天表示还在试验一项新功能，允许用户在社交网络上“验证和展示”他们的非代币（NFTs）资产收藏，因为推友对区块链相关的应用越来越感兴趣，以助推友在Twitter上可以直接参与到一个不断发展的去中心化互联网中。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/26-3.png)
-
-比特币“打赏”功能是Twitter帮助高端用户将其付出的劳动转化为金钱的最新举措，以帮助活跃推友筹集资金，同时也为比特币打造一个支付平台。Twitter最近还推出了“超级粉丝”功能，用户可以付费观看会员节目。其它社交媒体机构无疑也会密切关注Twitter的最新打赏功能，因为加密支付被认为是正在崩溃的数字媒体行业的潜在救星。
-
-**9****月****24****日，在中共封杀加密货币的气氛中，加密货币领域普遍暴跌**
-
-在当天最大的隔夜新闻中，由中（共）国人民银行（PBOC）、中央网信办、最高人民法院、最高人民检察院、工业和信息化部、公安部、市场监督总局、银保监会、证监会和外汇局总共10个部门联合发布的《关于进一步防范和处置虚拟货币交易炒作风险的通知》正式向外界披露，该通知旨在加强对加密货币交易市场的全面监控和打击。该通知其实早在9月15日就已经开始在中共内部公布并执行了。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/27-4.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/28-3.png)
-
-这一消息导致加密货币领域暴跌8%，与加密货币相关的股票在美国盘前交易中也大幅下跌：Marathon Digital (MARA)下跌6.5%，Bit Digital (BTBT)下跌4.7%，Riot区块链(RIOT)下跌5.9%，Coinbase下跌2.8%。
-
-本周由于恒大（Evergrande）面临大范围减债（broad-based degrossing）而引发的流动性恐慌，以及中共宣布加密交易“非法”，加密货币受到了沉重打击，哀鸿遍野……
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/29-2.png)
-
-比特币价格目前仍保持在4万美元以上……
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/30-2.png)
-
-比特币本周三次获得其100日移动平均值（100DMA）的支持……
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/31-4.png)
-
-**加密网络机器人“****Flashbots****”可以让交易员轻易跳过加密网络交易线而享受抢先服务**
-
-2021年9月26日
-
-抢先交易不再是城堡投资公司（Citadel）的专利，同样的事情也开始在加密货币领域快速发展。Citadel是一家总部位于芝加哥的跨国对冲基金金融服务公司，其交易频率是同行业之冠，也是加杠杆最高的对冲基金，堪称对冲基金之王。
-
-加密网络上的加密机器人现在可以发现哪些交易者正在进行代币交易，且可以立即下单并领先于别人已经存在的订单完成交易，这对于那些拥有加密机器人的交易员来说，是一个双赢的局面：即如果需要，你就能抢在其他交易员完成交易之前完成你自己的交易，而抢先得到一个很好的代币交易，并推高了其他买家必须支付的价格，最终自己轻松获利。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/32-3.png)
-
-在加密领域进行这些类型的交易要比在股票或期货市场容易得多。加密网络上有很多机器人可以下载，同时Flashbots的免费开源工具就是其中开发加密机器人的平台之一，它让创建这些类型的机器人变得很容易。Flashbots的创造者表明他们只是在“试图解决一个严重的问题”，即加密矿工在处理账本交易时，有权决定区块链网络中的哪些交易获得优先级。在Flashbots的拍卖功能中，允许交易员对加密矿工队列中的位置进行竞价，并允许交易员向拍卖赢家收取一定的费用，Flashbots “通过插队创造了一个市场”。
-
-参考及图片来源：
-
-[Coinbase Drops Plans To Launch Crypto-Lending Platform; SEC ‘Wins’?](https://www.zerohedge.com/crypto/coinbase-drops-plans-launch-crypto-lending-platform-sec-wins)
-
-[QE Infinity: Ray Dalio Warns US Will See Another Round Of QE After Taper](https://WWW.ZEROHEDGE.COM/MARKETS/QE-INFINITY-RAY-DALIO-WARNS-US-WILL-SEE-ANOTHER-ROUND-QE-AFTER-TAPER)
-
-[Stocks Pump’n’Dump As Crypto Slumps Ahead Of Taper-Talk, Debt-Ceiling Doubts](https://WWW.ZEROHEDGE.COM/MARKETS/STOCKS-PUMPNDUMP-CRYPTO-SLUMPS-AHEAD-TAPER-TALK)
-
-[Crypto Crashes As SEC/OCC Warn Of ‘Reckoning’, Question “Long-Term Viability” Of Private Forms Of Money](https://www.zerohedge.com/crypto/crypto-crashes-secocc-warn-reckoning-question-long-term-viability-private-forms-money)
-
-[Offshore Creditors Remain In Limbo As Evergrande Agrees To Pay Thursday’s Interest On Local Bonds Only](https://WWW.ZEROHEDGE.COM/MARKETS/FUTURES-CRYPTO-SURGE-EVERGRANDE-MAKE-THURSDAY-INTEREST-PAYMENT-PBOC-INJECTS-MOST-LIQUIDITY)
-
-[1 Teen Killed, 2 Wounded In Kentucky Bus Stop Shooting; Suspect Still At Large](https://www.zerohedge.com/political/1-teen-killed-2-wounded-kentucky-bus-stop-shooting-suspect-still-large)
-
-[FOMC Signals Rate-Hike In 2022, Sees Taper Ending Mid-2022](https://WWW.ZEROHEDGE.COM/MARKETS/FOMC-SIGNALS-TAPER-MAY-SOON-BE-WARRANTED-DOT-PLOT-SHOWS-RATE-HIKE-2022)
-
-[Stocks, Bonds, Bullion, & Bitcoin Jump As Dollar Dumps On Hawkish Fed](https://WWW.ZEROHEDGE.COM/MARKETS/STOCKS-BONDS-BULLION-BITCOIN-JUMP-DOLLAR-DUMPS-HAWKISH-FED)
-
-[Twitter Says Users Can Now “Tip” Others With Bitcoin](https://www.zerohedge.com/crypto/twitter-says-users-can-now-tip-others-bitcoin)
-
-[Futures Slide Alongside Cryptocurrencies Amid China Crackdown](https://WWW.ZEROHEDGE.COM/MARKETS/FUTURES-SLIDE-ALONGSIDE-CRYPTOCURRENCIES-AMID-CHINA-CRACKDOWN)
-
-[Stocks Shrug As Taper Tantrum Sparks Bond Bloodbath; Beijing Batters Bitcoin](https://WWW.ZEROHEDGE.COM/MARKETS/TAPER-TANTRUM-SPARKS-BOND-BLOODBATH-3RD-STRAIGHT-WEEKLY-LOSS-NASDAQ)
-
-[Frontrunning As A Service: “Flashbots” Can Now Enable Anyone To Skip The Transaction Line On Crypto Networks](https://www.zerohedge.com/markets/frontrunning-service-flashbots-can-now-enable-anyone-skip-transaction-line-crypto-networks)
-
-（以上内容仅代表作者本人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Delilah小胖***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+（文章仅代表作者观点，与GNEWS无关）

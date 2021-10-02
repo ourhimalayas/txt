@@ -2,29 +2,62 @@
 ---
 
 
-## 2021年8月22日郭文贵先生健腹轮健身盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1567933/)
+## 众议员迈克·华尔兹：中共 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1567948/)
 
-盖特连接：[https://gettr.com/post/p8fuf511fe](https://gettr.com/post/p8fuf511fe)
+众议员迈克·华尔兹： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争。 随着我们债务的利息接近我们整个国防预算的规模，佩洛西和民主党正在寻求将我们社会项目的规模扩大三倍，刚好如了中国的意。 【附华尔兹议员在福克斯电视台就民主党预算提案的视频谈话】
 
-8月22号：尊敬的战友们好，你们健身了吗？传播CCP病毒．香港危机．郑州人祸．真相了吗？
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-这世界上最惨的事情——录了半天，我发现没录上！哇塞，这（健腹轮手柄）都干坏了，（做完一组健腹轮），当你这个（健腹轮）推到头用肚子，东弟颖妹说，用肚子吸回来的时候，真不是吹牛的！这才叫运动！连着做12组试试！
+> The [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic was a wakeup call – it’s time to take biological threats more seriously. Today, I introduced legislation to keep Americans safe from the threat of biological weapons. [https://t.co/SFoYCCV9Wg](https://t.co/SFoYCCV9Wg)
+> — Senate Foreign Relations Committee Ranking Member (@SenateForeign) [September 30, 2021](https://twitter.com/SenateForeign/status/1443674704255012864?ref_src=twsrc%5Etfw)
 
-编辑整理及发布：黎明之前
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+> 前纽约市长鲁迪·朱利安尼：
+> 如果疫苗效果很好以至于他们可以强制接种，那为什么你们打了疫苗还要戴口罩？ [https://t.co/uobp21RZa8](https://t.co/uobp21RZa8)
+> — 美国政要直译推 (@zhiyitw33) [October 1, 2021](https://twitter.com/zhiyitw33/status/1444020403400110084?ref_src=twsrc%5Etfw)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+参议院外交委员会高级成员： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 大流行敲响了警钟——是时候要更认真地对待生物威胁了。今天，我提出了一项立法，以保护美国人免受生物武器的威胁。 【附参议院外交委员会官网新闻：参议员吉姆·瑞许提出立法遏制生物武器发展】
+
+
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is hoping the US implodes economically so we can no longer afford to compete militarily.
+> 
+> As the interest on our debt approaches the size of our entire defense budget, Pelosi & Dems are looking to triple the size of our social programs, playing right into China’s hands. [pic.twitter.com/bGHM2Hqtb2](https://t.co/bGHM2Hqtb2)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 1, 2021](https://twitter.com/michaelgwaltz/status/1444060806614638595?ref_src=twsrc%5Etfw)
+
+
+
+众议院吉姆·班克斯： [@ElbridgeColby](https://twitter.com/ElbridgeColby)上周在电台节 [#GroundedwithJimBanks](https://twitter.com/hashtag/GroundedwithJimBanks?src=hashtag_click) 上与我一起讨论中国对我们国家安全构成的威胁以及在人工智能等领域保持竞争力所需的进步。 【附该节目链接】
+
+
+
+> ICYMI: [@ElbridgeColby](https://twitter.com/ElbridgeColby?ref_src=twsrc%5Etfw) joined me last week on [#GroundedWithJimBanks](https://twitter.com/hashtag/GroundedWithJimBanks?src=hash&amp;ref_src=twsrc%5Etfw) to discuss the threat that China poses to our national security and the advancements needed in areas like AI to stay competitive. [https://t.co/wE6bpVuslC](https://t.co/wE6bpVuslC)
+> — Jim Banks (@RepJimBanks) [October 1, 2021](https://twitter.com/RepJimBanks/status/1444020520740077575?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·乔丹： 这是民主党想解雇的人，因为他们没有接种疫苗： -医生 -护士 -警察 -消防员 -老师 -边境巡逻人员 -航空公司工作人员 -记者 以下是应该被解雇的人： 民主党的人
+
+
+
+> Here’s who Democrats want to fire because they didn’t get the vaccine:
+> 
+> -Doctors
+> -Nurses
+> -Police
+> -Firefighters 
+> -Teachers
+> -Border Patrol agents
+> -Airline workers
+> -Journalists 
+> 
+> Here’s who should be fired:
+> 
+> -Democrats
+> — Rep. Jim Jordan (@Jim\_Jordan) [October 1, 2021](https://twitter.com/Jim_Jordan/status/1443958724960391172?ref_src=twsrc%5Etfw)

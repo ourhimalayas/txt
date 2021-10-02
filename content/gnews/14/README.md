@@ -2,47 +2,19 @@
 ---
 
 
-## 这里的黎明静悄悄 ——小镇反新冠疫苗宣传活动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567840/)
+## 今年最大规模：北京在国庆日向台湾方向派出38架次军机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567861/)
 
-作者：纽约香草山美食部 – 文百合
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown.jpg)北京在国庆日向台湾方向派出38架次军机 wwawanwangwang l网络图片
+据美国之音10月1日报道，北京在中共建立政权的国庆日出动了包括喷气式战斗机在内的38架次军机，侵扰台湾西南防空识别区，这是今年以来最大规模的对台武力展示。台湾军方派遣空中巡逻兵力应对、广播驱离、放空飞弹追踪。
 
+新闻参考链接：[https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8](https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
-
-
-
-我居住的小城镇人不多，且社区中多以白人为主。虽然新冠疫情在过去一年多肆虐全球，庆幸的是，这个小镇还是一片净土，大家邻里和睦，安静祥和。然而，近期加拿大政府推行的强制性新冠疫苗接种和疫苗护照政策打破了小镇中人们的幸福生活。事实上，新型“生物超限战”和中共的邪恶杀人计划——新冠病毒及其疫苗——正在渗透着加拿大的每一个角落。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/17.jpg)
-
-这一年多里，每天街上救护车的警报声异常频繁；往年大排长龙的养老院，今年的空房却越来越多。其实，关于新冠疫苗副作用的话题，比如永久的残疾、蹊跷的死亡，一直流传在小镇里的各个角落：一位老人极其恐惧和谨慎地讲述了养老院所执行的强制疫苗接种政策，这导致以前身体健康的她在接种完第二剂疫苗后的三个月内病痛缠身，体重从200多斤急速消瘦至100斤；隔壁小镇一位二十岁出头的小姑娘在注射过第二针疫苗后，隔天就猝死了。因此，在接种新冠疫苗这个问题上，整个小镇都惶恐不安。加之各类小道消息不胫而走，比如小镇附近要设立加拿大最大的反新冠疫苗集中营，平静的小镇大街上突然出现了军人的身影等，让这些消息更加扑朔迷离——阴影笼罩着整个小镇。
-
-![Image](https://media.discordapp.net/attachments/805966415436972042/893630832705695774/image0.png?width=1081&amp;height=609)
-
-一直以来，小镇上的民众单纯朴实，过着和平又安宁的生活——他们疏于战争，也感知不到硝烟弥漫，丝毫没有意识到危险正在悄悄地逼近他们。也是因此，这突如其来的疫苗护照政策让他们猝不及防。但是，勇敢的小镇居民最近在小镇的广场上举行了反对新冠疫苗护照和强制疫苗政策的示威宣传活动。而我，作为小镇上唯一的中国人，带着咱们新中国联邦的国旗，也参与了其中，用手机记录了当地民众对强制疫苗护照的不满和愤怒。活动最后，我们一起高唱了加拿大国歌，誓为自由抗争到底。而通过这个活动，我也让小镇居民认识到了新中国联邦和爆料革命的力量。
-
-中共不灭，世界不得安宁，但是，中共和毒疫苗邪恶计划所有的背后推手们最终一定会被审判、定罪！战友们一起加油！
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,19 +2,31 @@
 ---
 
 
-## 今年最大规模：北京在国庆日向台湾方向派出38架次军机
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567861/)
+## 里约热内卢爆发疫苗护照之争
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1567890/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown.jpg)北京在国庆日向台湾方向派出38架次军机 wwawanwangwang l网络图片
-据美国之音10月1日报道，北京在中共建立政权的国庆日出动了包括喷气式战斗机在内的38架次军机，侵扰台湾西南防空识别区，这是今年以来最大规模的对台武力展示。台湾军方派遣空中巡逻兵力应对、广播驱离、放空飞弹追踪。
+蒙特利尔皇家山战友团  平民正道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/theglobeandmail.com_cr.jpg)图片来源：theglobeandmail.com
+据CNN记者朱莉安娜·科赫斯2021年9月30日在巴西圣保罗报道，里约热内卢市在暂停了 “疫苗护照”政策一天后又恢复了它。
 
-新闻参考链接：[https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8](https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8)
+应市政府的要求，巴西最高法院周四废除了保罗·兰格尔法官的一项裁决。该裁决曾短暂禁止要求提供疫苗接种证明才能进入某些公共场所的政策。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+居民将再次被要求证明他们已经接种了疫苗，才能参加如进入健身房、博物馆和旅游场所等公共设施的活动。
 
+兰格尔将这一要求描述为“专横”。
 
-编辑：【英国伦敦喜庄园编辑部】
+“实施疫苗护照法令将社会分为两种类型：接种疫苗和未接种疫苗。该法令阻止了未接种疫苗者的自由流通。”兰格尔说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+超过 50 万巴西人在大流行中丧生——这是仅次于美国的世界上死亡人数最多的国家。 今天，巴西各地 200 多个其他城镇都采用了某种形式的疫苗护照，其中包括该国最大的城市圣保罗。 每个地区当局决定自己的法规。
+
+但是，兰格尔并不是唯一一个对该系统持怀疑态度的人。长期以来一直淡化 Covid-19 严重性的总统贾尔·博尔索纳罗 (Jair Bolsonaro) 正与此类预防措施作斗争，并公开批评了疫苗护照的想法。
+
+本月早些时候，博尔索纳罗总统在纽约联合国总部亲自挑战关于疫苗接种规定。尽管没有接种疫苗，仍前往纽约总部向全球机构发表讲话。
+
+（文章仅代表作者观点）
+
+[参考链接](https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html)
+
+* * *
+
+编辑发稿：月亮之上
