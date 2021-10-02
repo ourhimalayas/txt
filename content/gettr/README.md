@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 11:46 AM (UTC)`
+
+10月2号：一切还都没有开始！傅政华的罪行和阴谋，不是我们老百姓所能想象的，孙立军孟建柱，王岐山：傅政华．周亮．等一些，要当二十大领导人的政治阴谋集团还没有浮现出来。中国过去十几年的疯狂的灾难……和世界上所有国家对立，将中国经济和人民至与水火之中的这些人，还都在中南坑和上海过着安稳的日子呢。坐等二十大继续控制中国继而控制全世界．发疫苗大财的美梦呢……可惜的事情是全中国人民，和全世界人民都成了这些流氓政治野心家的牺牲品，所有的这些真相都将被爆料革命予以证明。
+![img](https://media.gettr.com/group18/getter/2021/10/02/11/46/308f2e92-ba68-1948-6fed-1a0e6eae9525/out.jpg)
+
+---
+
 `@miles 10/2/2021 1:37 AM (UTC)`
 
 🆘🆘🆘喜站出品．必是精品！🙏🙏🙏
@@ -289,13 +296,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 
 9/28/2021 Miles Guo’s GETTR: Who will be arrested first? Zeng Qinghong, Wang Qishan, or Meng Jianzhu? The price of commodities, labor, electricity, food, healthcare, and medicine will skyrocket in the future, while non-essential goods like cars will be worthless. The beginning of the COVID vaccine disaster will be the time when you fear the most.<br/><br/>9/28/2021 文贵盖特：曾庆红、王岐山、孟建柱，谁会最先被抓？劳动力、大宗商品、电、粮、医、药的价格在未来都会暴涨，而汽车等非生活必需品将一文不值。疫苗灾难的开始才是让你最恐惧的时候！<br/>
 ![img](https://media.gettr.com/group38/getter/2021/09/28/22/29/2cfc1081-158a-b78d-1b57-100feb5eb2fc/out.jpg)
-
----
-
-`@miles 9/28/2021 8:44 PM (UTC)`
-
-How on the earth that the companies are require their workers to get vaccinated? And if workers refuse to do so, their job will be jeopardized, in the meanwhile they all knew this covid vaccine is very risky and caused death on many people, but they still do so?! STOP what you are doing, either you’re completely fool or your hands will be full of blood. For people who are still debating whether they should put food on the table for their families or choose what’s right for themselves. I want to say, your live matters!  <br/>Don’t you know that the drug companies take no responsibility for their products, so why should you have the obligation to take it.  <br/>“Freedom is not a gift bestowed upon us by other men, but a right that belongs to us by the laws of God and nature” <br/>
-![img](https://media.gettr.com/group33/getter/2021/09/28/20/44/359b000d-a332-445e-18c5-abb83b92e7c1/out.jpg)
 
 ---
 
