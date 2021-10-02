@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 9:08 PM (UTC)`
+
+10月2日法国媒体Franceinfo报道说, “中国亿万富翁郭文贵先生提到疫苗灾难要来了！”  【中英文字幕】 
+![img](https://media.gettr.com/group48/getter/2021/10/02/21/08/c86a015c-fa46-0f0a-d160-c73da520ac86/out.jpg)
+
+---
+
 `@miles 10/2/2021 6:55 PM (UTC)`
 
 10月2号：谢谢战友发给我的信息和翻译这个文章，所有的传统媒体和黑暗势力控制的媒体不可能有所谓的正面的信息，但我喜欢😘对我们役苗灭共有帮助，真相往往都是这些谎言，制造者帮我们传播的。【七哥好，看到您發的蓋特，我剛翻譯了這個法國電視台的報導，我認為它對您和GNEWS的態度是負面的，說您提供的關於疫苗和病毒的信息沒有任何依據。<br/>說您提供的關於疫苗和病毒的信息沒有任何依據。<br/>以下是我翻譯的文章原文內容，和視頻中英對照文件🙏🙏以下是我翻譯的文章原文內容，和視頻中英對照文件🙏🙏<br/>郭文贵，预言“疫苗灾难即将到来”的中国亿万富翁<br/><br/>郭文貴，一位中國億萬富翁，在沒有提供任何證據的情況下散佈有關 新冠病毒和疫苗的理論。他的其中一個視頻在社交媒體上被分享了數千次。<br/><br/>“疫苗災難将会到来，經濟肯定會崩潰。然後到明年年底，人類將不得不在生與死之間做出選擇。”只有那些沒有接種新冠疫苗的人才會倖存下來：簡而言之，這就是在社交網絡上分享了數千次的視頻信息。這些言论背後的人是郭文貴，一位在房地產行業發家致富的中國億萬富翁。他也是北京政權的堅定反對者。 “中國共產黨的目標是利用（此處語意不明確）冠狀病毒，”他特別提到。<br/><br/>他掌握有關病毒和疫苗的理論<br/><br/>因被（中国共产）黨指控腐敗，郭文贵為躲避報復于2014年流亡美國。他在紐約的頂層公寓或豪車中，大量录制視頻接发中共，但也抓住有關病毒和疫苗的理論，在沒有提供任何證據的情況下為這些理論辯護。 “冠狀病毒是中國政府開發的生物武器，”他說。他的話被轉發到他的 YouTube 帳戶上，有近 400,000 名訂閱者。他還擁有自己的媒體渠道 G News，一个拥有14 種語言版本的网站。經證實的信息和純粹的虛假信息都發佈在這個平台上。而當這些信息在網路上瘋傳，它們並不基於任何調查或可靠來源】
@@ -287,13 +294,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 9/29/2021 Miles Guo: Xi found out that Huobi is the key channel protected by the Central Political and Legal Affairs Commission for the CCP to launder money overseas; Refunds from Huobi cannot be made without one’s own consent; The recent power outage caused by the CCP will lead to enormous disasters regarding the economy and the people’s livelihood in China and more bloody struggles within the CCP. The arrival of the era of cryptocurrencies is inevitable, and we must cherish and preserve the core foundation of our NFSC - the healthy currency<br/><br/>9/29/2021 文贵直播：习发现火币是由政法委护航的中共对外洗钱的重要通道；从火币退钱必须由本人同意方可进行；中共这次停电会对中国造成经济和生存的巨大灾难，并将导致中共有更多血雨腥风的内斗；虚拟币时代的到来无人可挡，我们要珍惜和维护我们新中国联邦未来的核心基础 - 健康的货币！<br/>
 ![img](https://media.gettr.com/group13/getter/2021/09/30/01/50/db873597-0efd-eca4-a188-edb0a988493c/out.jpg)
-
----
-
-`@miles 9/29/2021 8:08 PM (UTC)`
-
-9月29号：血淋淋的现实，一个个鲜活的生命。<br/><br/>【一个人在接种完疫苗的三周后因感染Covid而在医院需要呼吸机治疗；另一个人没有死于Covid病毒感染，却在打了第一针疫苗后死亡】
-![img](https://media.gettr.com/group21/getter/2021/09/29/20/08/21a870e7-239c-4bae-f8ca-7afe89c064e2/out.jpg)
 
 ---
 
