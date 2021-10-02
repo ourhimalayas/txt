@@ -2,20 +2,31 @@
 ---
 
 
-## 破四旧来势汹汹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1568732/)
+## 幻影空间宣布将为英格努建造和发射星联网
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1568805/)
 
-作者：东京樱花团｜阿恩
-![](https://lh3.googleusercontent.com/TLogjcFRyDkyw1DYlHIcxQv2vA3zm5T6uYQMzE3joDgIXrDvUq420GD7ClYuXgA4H2BuzNjeJW6NWDs7oI9MVReh44cFcst1Q5Ny3Ko3jMDrLSulYit6YBGZgBrENT2E8tR-a6dK=s0)[图片来源](https://www.thestandnews.com/politics/%E6%84%9B%E5%9C%8B%E5%9C%98%E9%AB%94%E8%BC%89%E6%AD%8C%E8%BC%89%E8%88%9E%E8%B3%80%E5%9C%8B%E6%85%B6-%E6%9C%89%E5%9C%98%E9%AB%94%E8%A6%81%E7%B6%AD%E5%9C%92%E6%94%B9%E5%90%8D%E4%BA%BA%E6%B0%91%E5%85%AC%E5%9C%92)
-香港从百年前的不毛之地被港英政府建设成国际都市，不仅有现代化的摩天大楼，也有百年历史的古建筑，既有繁华的中环商业区，也有半山幽静的欧式住宅，有华人的永久墓地，也有180年历史的洋人墓园，还有七成的保育土地代谢城市的废气，养育一众生灵。香港的街道、地名和建筑物名称大多以英女皇、皇室成员及历任港督的名字冠名，每个冠名都是一段历史故事，延续了百年，仍令港人津津乐道。中英联合声明签署后，香港人有感中共文革的愚昧，甚为忧心中共会清除香港的殖民色彩，这些被冠以洋人名字的地点将首当其冲，已逝香港歌星黄家驹的名曲《皇后大道》的歌词就预警了中共去殖民化的阴谋。
+作者：香草山写作组-文真
 
-今日是中共国庆，在国安恶法的残暴镇压下，香港已经如新疆集中营般了无生气，中共的走狗们终于可以大肆挥舞血旗高唱红歌向中共表忠。不仅如此，[几个所谓的“爱港组织“代表港人到政总请愿，要求将维多利亚公园改名做「人民公园」、「国家纪念公园」。](https://www.thestandnews.com/politics/%E6%84%9B%E5%9C%8B%E5%9C%98%E9%AB%94%E8%BC%89%E6%AD%8C%E8%BC%89%E8%88%9E%E8%B3%80%E5%9C%8B%E6%85%B6-%E6%9C%89%E5%9C%98%E9%AB%94%E8%A6%81%E7%B6%AD%E5%9C%92%E6%94%B9%E5%90%8D%E4%BA%BA%E6%B0%91%E5%85%AC%E5%9C%92)
 
-中共在97后的二十年里，用各种诡计试图同化香港人，包括每日150个内地移民名额稀释香港人，成为建制派的幕后金主收买港人，勾结和豢养香港的财团扭曲香港的经济结构剥削港人财富，所有的渗透均在有条不紊地进行着，中共却低估了香港人对自由民主的坚守，从港府欲通过23条、到推迟双普选，再到强推逃犯条例，每次都触动港人大规模游行抗议，香港成为了内地同胞追求民主自由的风向标。中共只能将镰刀和铁锤摆上台面众目睽睽之下直接对付港人。
 
-如今中共在香港民心尽失，更不忿英国政开放BN（O）移民计划尽得港人心，所谓睹物思人，中共借势在香港营造去殖民化的文革之风，势必在香港兴起“破四旧“的行动，但凡有殖民色彩的均在劫难逃。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+9月29日，空间运输技术开发和制造公司 “幻影空间” 宣布，与无线网络供应商 “英格努” 达成一项价值高达2.4亿美元的交易，为其设计、建造和发射一组由72颗卫星组成的星链网，成为工业物联网的有效载体。 该星链网将成为世界上第一个专为 “机器到机器” 通信设计的天基公共网络。与任何现有的星联网络相比，它具有更深更远的全球覆盖范围和更持久的网络寿命。它的端到端技术满足每个传感器100%的数据传输确认要求。其强大、一流、面向未来的技术，将为使用该星联网的技术解决方案供应商，提供无以伦比的控制力和可视性。 该星链网最初将专注于提供端到端的解决方案，包括智能电网、智能工厂、智能农业、智能城市、石油和天然气、采矿、资产跟踪和物流。大部分卫星预计将在2023年底由幻影公司的运载火箭发射。
+
+参考链接：[http://spaceref.com/news/viewpr.html?pid=58376](http://spaceref.com/news/viewpr.html?pid=58376) [https://finance.yahoo.com/news/phantom-space-ingenu-build-72-195759305.html](https://finance.yahoo.com/news/phantom-space-ingenu-build-72-195759305.html) [https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
+
+(本文仅代表作者观点)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

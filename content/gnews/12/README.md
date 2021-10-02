@@ -2,26 +2,32 @@
 ---
 
 
-## 加不到油了
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1568795/)
+## 电荒重挫之下，中共紧急求助俄罗斯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568881/)
 
-撰稿：文雨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/205.jpg)图片来自网络
-今天有消息说，英国的加油站都没有汽油可加了，军队已做好准备帮助缓解燃料供应问题。英国出现“汽油荒”，很多加油站被迫停业或“限量加油”，市民出现“恐慌式”加油，导致该国多处加油站燃油售罄。英国约150名军用油罐车司机准备向燃油短缺地区供油。
+栏目记者/责任编辑：文小白
 
-英国出现的油荒只是因疫情引发的经济问题，对民众生活造成影响的一个小小的表象而已，这只是刚刚开始。更深的原因是疫情和疫苗所引发的全球供应链问题，而且这一问题将随着疫苗后遗症的暴发，更会给民众的生活带来灾难性的后果。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-这场已经持续了十八个月之久的疫情，各国所采取的封锁政策，导致了很多船只，飞机航线航班的延误和取消，很多大型购物公司为保证上架的货品，不得不购买自身的集装箱货轮以解燃煤之急。另一方面由于封城等因素，阻碍了很多劳工无法工作，导致码头堆积量暴增。这些因素使得运输成本暴增，有统计从亚洲至欧洲的运输成本比去年同期增长了近十倍。同时，由于封城造成的消费疲软，导致很多零售业者不敢轻易大量下单，使得市场更有物资短缺的紧张感。运输迟滞，劳工短缺，成本上升，消费疲软是全球供应链目前面临的巨大的风险压力。
+路透社莫斯科10月1日报道，俄罗斯电力出口垄断企业 “国际RAO集团” 本周五表示，中共国家电网请求该公司增加对中国北方各省份的电力供应 。应中共的请求，该公司将通过2012年建成的”阿穆尔-黑河” 高压输电线路，将10月份原定向中国供应的电力增加一倍，以缓解当地的电慌危机。
 
-然而为解决供应链问题，各国政府陆续采取了用疫苗来走出封城的困境，殊不知这疫苗所引发的将是一场更大的灾难。疫苗不能阻止被感染，相反增加的人员流动会令感染人数暴增，暴增的感染人员同样会导致劳工的短缺。同时，随着疫苗所引发的后遗症，例如这梗那梗，更会给各运输线的安全造成不可估量的损失。因此供应链上的关键因素，人出了问题。正如郭先生所预言的那样，疫情引发的下一步是经济危机，英国的油荒，这才刚刚拉开序幕。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.2AM-PICTURES-57图片备用.001.jpeg)
 
-(文章内容仅代表作者观点）
+国际RAO集团表示，目前所有的三条俄中 输电线路都将用于供电，三条线路每年能够向中国输送高达70亿千瓦时的电力。在与西方关系持续恶化的同时，中共只能求助于俄罗斯, 除不断加大从俄罗斯采购农产品、煤炭和能源外，预计双边其他产品贸易额也将有大幅增长。这些都是俄罗斯所希望发生的，毕竟普京从不会放过要挟、压榨习近平和中共的任何机会！
+(本文仅代表作者观点)
 
-参考来源：
+参考链接：[应中国的请求 俄罗斯10月将把输华电力增加一倍以帮助中国缓解供电紧张](https://cn.reuters.com/article/chinaNews/idCNKBS2GS00S?irpc=932)
 
-[https://youtu.be/ZmS1PyIbITQ](https://youtu.be/ZmS1PyIbITQ)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+终审：文龙
+校正/发稿：我不在这里
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

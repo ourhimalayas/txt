@@ -2,94 +2,21 @@
 ---
 
 
-## 摩根家族基金大量抛售与中概股相關事物，更可怕的事，也在抛售美国很多核心资产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1568476/)
+## 秘翻在线：高级陆军飞行外科医生警告注射mRNA疫苗的飞行员会在飞行中猝死
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568665/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-8.jpg)https://gtv.org/video/id=6157c270d2e2b817487024aa
-洛克菲勒最早的家族你们记得吧
-Recuerdan la primera familia de Rockefeller
+**翻译：Nstar**
 
-卖给了一个人3000多万
-Se la vendieron a una persona por más de 30 millones
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-02-172214.jpg)
+美国陆军一名高级飞行外科医生发表了宣誓书并警告说，注射了中共病毒疫苗的飞行员有可能在飞行途中因疫苗产生的不良心脏副作用而死亡。
 
-卖掉了
-Fue vendido
+疾病控制中心最近公布的数据表明，心肌炎或心包炎是一种罕见的心脏炎症，与接受第二剂 中共病毒 疫苗直接相关。
 
-现在花一个亿在重建
-Ahora está gastando 100 millones para reconstruirlo
+CDC 安全小组主任格蕾丝·李（Grace Lee ）博士承认，“接种疫苗后心肌炎病例的临床表现很明显，最常发生在第二剂后的一周内，最常见的表现是胸痛。”
 
-旁边我老去拜的天主教堂就是他建的
-Construyó la iglesia católica que queda al lado y es la que siempre he ido a venerar
+特蕾莎·朗中校回应警告称，飞行员在接受 mRNA 疫苗注射后，在飞行过程中面临死亡风险。她还声称，国防部已经放弃了在中共病毒大流行期间对接种疫苗后的飞行员进行 MRI 扫描的常规协议。如果没有这些 MRI 扫描，就无法评估疫苗将如何影响飞行员。
 
-他们家族最近干了个什么事
-Qué hicieron su familia últimamente
+如此看来，未来注射疫苗的飞行员甚至其他交通工具的驾驶者都会因为疫苗副作用可能造成不可预测的次生灾难。这也许比注射疫苗和感染中共病毒所导致的直接死伤更可怕！
 
-我告诉你啊
-Déjame decirte
-
-摩根家族剩下的几个大的基金
-Las grandes fundaciones que quedan de la familia Morgan
-
-大量的抛售所有和中概股有关系的东西
-Están arrojando cantidades de cosas relacionadas con las acciones de concepto chino
-
-所有有关系的东西你去看一看, 你在网路上都能看得出来
-Puedes ir a ver todas las cosas que tienen en relación con ellos, lo puedes notar por el internet
-
-但是他们都是掩藏的非常好
-Sin embargo, ellos han escondido muy bien
-
-这是过去, 就连2008年金融危机到现在都没有的事儿
-Esto fue en el pasado, incluso la crisis financiera de 2008 no ha ocurrido hasta ahora
-
-他们都是长期的投资
-Ellos hacen inversiones a largo plazo
-
-最近大量的抛
-Y últimamente están arrojando cantidades
-
-共产党的股份跟中共国有关系的
-De acciones relacionadas con el PCCh
-
-包括跟香港有关系
-Incluyendo de Hong Kong
-
-更可怕的事情
-Y algo más terrible
-
-我是第一次在这会上感受到
-Primera vez siento en cuanto a este asunto
-
-他们也在抛美国的很多核心资产
-Están arrojando también muchos activos principales de EE. UU
-
-兄弟姊妹们
-Hermanos y hermanas
-
-这说明了啥问题
-Qué demuestra esto
-
-你抛中共的, 是中共出事了
-Si estás arrojando de PCCh, significa que está ocurriendo algo en ellos
-
-你抛美国的
-Si arrojas de EE. UU
-
-就是世界要出事了
-Quiere decir que el mundo pasará algo
-
-大了, 事儿大了
-Algo muy grande
-
-原视频日期：09/28/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442804253672628231?s=24
-视频时间段：0:00-1:22
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**[信息来源](https://www.redvoicemedia.com/2021/10/red-alert-pilots-may-die-from-covid-vaccines-during-flights-senior-army-flight-surgeon-warns/)**

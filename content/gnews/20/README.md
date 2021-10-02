@@ -2,25 +2,41 @@
 ---
 
 
-## 麦卡洛医生：犯有反人类罪行的人都会被追捕
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568742/)
+## 安联资产管理总裁杰奎琳亨特因司法部调查下台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1568812/)
 
-**简评：**拒绝给予患者同情护理，制造恐惧、痛苦、住院甚至死亡，都是不道德、应该被谴责的，都会被视为反人类罪。每个人都会被追捕，正义会得到伸张。
-
-GTV视频链接：[Dr. McCullough:你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类](https://gtv.org/video/id=6157e6d9d2e2b81748702d8b)
+作者：香草山写作组 – 文一
 
 
 
-**视频字幕：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-坚持拒绝给予患者同情护理，制造恐惧、痛苦、住院和死亡，是不道德、应该被谴责的，在民事法庭上是非法的。你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类罪。
 
-*编辑：【英国伦敦喜庄园编辑部】*
 
-*字幕：Vekap* *| 听写：云岭 | 翻译：势不可挡* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-[![](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+据《华尔街日报》9月30日消息，安联资产管理公司首席执行官杰奎琳-亨特将卸任。此举是司法部对该公司经营的一系列基金的损失进行调查后，管理部门作出的举措之一。
+
+亨特女士于2016年加入安联，负责监督其资产管理和美国人寿保险业务，其中包括德盛安联资产管理公司和全球最大的债券经纪公司-太平洋投资管理公司，她的合同于2019年续签，本应留任至2022年。
+
+这家总部位于慕尼黑的公司是世界上最大的资产管理公司之一，管理着2.5万亿欧元，相当于2.897万亿美元。此次调查是由美国司法部和证券交易委员会于去年发起的。该公司则表示因无法预估罚款金额，因此没有预留经费。
+
+据报道，包括蓝十字蓝盾协会和阿肯色州教师退休系统在内的几个大型投资者，就数十亿美元的损失起诉了该保险公司。
+
+参考链接：
+
+[https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351](https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351)
+
+(本文仅代表作者观点)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

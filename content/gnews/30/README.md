@@ -2,30 +2,25 @@
 ---
 
 
-## 针下亡魂｜斯洛文尼亚 20 岁女学生接种疫苗10日后离世
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1568651/)
+## 麦卡洛医生：犯有反人类罪行的人都会被追捕
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568742/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜發布日期/ 02/10/2021**
+**简评：**拒绝给予患者同情护理，制造恐惧、痛苦、住院甚至死亡，都是不道德、应该被谴责的，都会被视为反人类罪。每个人都会被追捕，正义会得到伸张。
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。 ***
-***本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。 ***
-***他们曾经和你我一样，也有想要实现的梦想，也有想要相爱的亲友，他们的生命虽然平凡但一样珍贵，希望有一天，公道会还他们一个真相。***
+GTV视频链接：[Dr. McCullough:你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类](https://gtv.org/video/id=6157e6d9d2e2b81748702d8b)
 
-【斯洛文尼亚】一名 20 岁女大学生 Katja Jagodic，因为当地政府的疫苗强制令而无奈于 9 月 14 日接种了第一剂强生 COVID-19 疫苗。
 
-不久之后，9 月 27 日，她因身体严重不适，送往卢布尔雅那的大学临床中心 (UKC) 进行检查，经急诊神经病学系主任伊戈尔·里格勒 (Igor Rigler) 诊断后表示“她病得很重，她的大脑有血栓和出血的症状。我们会集合血管专家、血液学家、肾病学家、神经学家，尽一切现代医学能做的帮助她。”
 
-不幸的是，翌日凌晨她就离开了人世，结束了她短短20年的生命。
+**视频字幕：**
 
-悲愤的父亲后来出席了反对“疫苗通行证”的集会，并带着泪腔说道：“当你到达疫苗接种地点时，没有人警告你可能会出现并发症，也没有人警告过不建议 40 岁以下的人接种疫苗。他们不只是数字，不只是谈百分比，我的 Katja 不是百分比，不是数字，她是我的唯一。”
+坚持拒绝给予患者同情护理，制造恐惧、痛苦、住院和死亡，是不道德、应该被谴责的，在民事法庭上是非法的。你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类罪。
 
-唯一庆幸的是，斯洛文尼亚卫生部长 Janez Poklukar，因为 Katja 的离世，而下令暂停强生 COVID-19 疫苗的接种计划。
-譯：「一名年輕患者於週一早上被送往盧布爾雅那大學臨床中心 (UKC)，懷疑是接種 COVID-19 疫苗後出現了嚴重的不良事件。
-現在，我命令國家公共衛生研究所暫停強生疫苗的接種。」
-可惜，付出的代价，对 Katja 的家人来说，是终生都难以忘记的痛。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-*他们的故事：[//泰国](https://gnews.org/zh-hant/1568338/)[59](https://gnews.org/zh-hans/1568655/)[岁](https://gnews.org/zh-hant/1568338/)[教师](https://gnews.org/zh-hans/1568655/)[接种疫苗10日后去世](https://gnews.org/zh-hant/1568338/)**[//](https://gnews.org/zh-hant/1568338/)*
+*字幕：Vekap* *| 听写：云岭 | 翻译：势不可挡* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-* * *
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-来源｜  [个案003](https://thecovidworld.com/slovenia-suspends-janssen-covid-19-vaccine-after-the-death-of-a-20-year-old-student/)
+[![](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

@@ -2,28 +2,43 @@
 ---
 
 
-## 班农专访：班农战斗室获得美国政治类播客第一名
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568744/)
+## 从委内瑞拉货币再次巨贬，看如何财富保值
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1568814/)
 
-[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=2560)](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=1024)
-**简评：**因为新中国联邦、爆料革命、GTV和GNews的支持，班农战斗室获得美国政治类播客的第一名，成为有史以来最好的英语节目。唯真不破，传播真相，就会获得民众的支持。
-
-GTV视频链接：[英喜每周采访班农先生0929-Q0: 我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持](https://gtv.org/video/id=6156a779d2e2b817486fe616)
+作者：香草山写作组-AsG諾雅
 
 
 
-**视频字幕：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-**主持人**：班农先生，首先祝贺《战斗室》荣升苹果播客第一名，有史以来最好的英语节目。班农先生，感谢你传播真相。
 
-**班农先生**：我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持。还有GNews、GTV帮我们翻译成汉语和日语等语言，这个帮助巨大。我想对你们整个团队表示感谢。
 
-*编辑：【英国伦敦喜庄园编辑部】*
+法广10月1日援引法新社消息，委内瑞拉政府为摆脱恶性通货膨涨，当日起把该国货币玻利瓦面额砍掉6个零，这是继2008年删掉3个零、和2018年去掉5个零后的第3次，总计2008年以来已砍掉14个零。这次更改后，百万面额的玻利瓦一夜间变成1玻利瓦，兑换美元仍相当于25美分。7张面额100万的玻利瓦纸钞，只能够买一条面包。委内瑞拉是石油储量丰富的国家，曾经非常富裕，但在过去数十年间，由于其社会主义当局的贪污腐败，自从2013年以来，该国的国内生产总值大幅缩水了80%，经济陷入了绝境。
 
-*字幕*：*Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：势不可挡* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+相较之下，中共国现在表面看起来还不会太糟糕，但据郭文贵先生爆料，国内仅六家由盗国贼掌握的最腐败的银行：邮储、国开行、民生、中国银行、上海银行、兴业银行就佔了40万亿人民币资产，他们常年通过虚假票据、虚假资产抵押等方式早就已经把金融系统亏空，巨额资金通过各种渠道已经转往海外，中共国剩下的实际外汇储备只剩七到八千亿美元，要维持国家运转已经捉襟见肘。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+一旦摇摇欲坠的房地产市场崩盘，不仅中共国的传统银行系统会崩溃，世界各国也会因为相关债务暴雷，再加上中共病毒毒疫苗的影响，而产生前所未有的连锁崩塌的效应。预计今年底到明年，港币会消失，人民币会变成冥纸，美元、加币、英镑、欧元、澳币、日元等都会大幅度贬值。只有瑞士法郎和新加坡元可能还会有一半以上的保值。
 
-[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+文贵先生指出，届时，唯有运用区块链技术的虚拟货币因为其安全性、不会被政府抢夺而受到青睐，其中拥有稳定币、有支付系统、又有20%黄金挂钩的喜币会是世界上最安全的货币。请战友们、观众们做好一切准备以度过难关。
+
+信息链接：
+
+
+
+[https://www.rfi.fr/cn/%E5%A7%94%E5%86%85%E7%91%9E%E6%8B%89%E7%99%BE%E4%B8%87%E7%BA%B8%E9%92%9E%E7%A0%8D6%E4%B8%AA%E9%9B%B6-%E4%B8%80%E5%A4%9C%E9%97%B4%E5%8F%98%E6%88%90%E4%BB%851%E7%8E%BB%E5%88%A9%E7%93%A6](https://www.rfi.fr/cn/%E5%A7%94%E5%86%85%E7%91%9E%E6%8B%89%E7%99%BE%E4%B8%87%E7%BA%B8%E9%92%9E%E7%A0%8D6%E4%B8%AA%E9%9B%B6-%E4%B8%80%E5%A4%9C%E9%97%B4%E5%8F%98%E6%88%90%E4%BB%851%E7%8E%BB%E5%88%A9%E7%93%A6)
+
+[https://gtv.org/video/id=615466c142a8af3151a74ee3](https://gtv.org/video/id=615466c142a8af3151a74ee3)
+
+(本文仅代表作者观点)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

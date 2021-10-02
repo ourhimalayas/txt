@@ -2,58 +2,45 @@
 ---
 
 
-## 孟晚舟回国，此次交易基本就是美国投降了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1568463/)
+## 十月底前按每万人不少于20间改造新冠隔离点意味着啥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1568664/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-7.jpg)https://gtv.org/video/id=6157c355d2e2b817487024d9
-经济战从什么开始?
-¿Por dónde comienza la guerra económica?
+据[国家卫健委：按*每万人不少于20*间的标准改造集中隔离场所](https://v.qq.com/x/page/f3279qjxfk3.html)来源：腾讯视频官方 发布时间：2021年9月30日
 
-股票市场, 卖美国国债
-Por el mercado de valores, la venta de bonos del Tesoro de EE. UU
+**央视主持人：**那近期我国的病例主要是来源于境外输入，对入境人员采取集中隔离的措施就至关重要，
 
-所以这次孟晚舟交易当中有三条
-Por eso esta vez, el acuerdo de Meng Wanzhou existe tres convenios
+**央视主持人二：**国家卫生健康委疾控局的相关负责人强调加强隔离点的管理，规范落实集中隔离措施是疫情防控的重要工作。
 
-在一定时间内不卖你国债
-No vender los bonos de Tesoro por un período de tiempo determinado
+**国家卫生健康委疾控局二级巡视员 崔钢：**要对现在集中隔离点的位置、内部布局、设施等进行风险评估，合格后方能启用，坚决防止交叉感染。10月底前，我们要求各地按照每万人口不少于20间的标准改造一批符合要求的集中隔离场所，建立备用集中隔离点清单，确保选址合理，硬件设施符合防控要求，避免出现“小散乱”的情况。
 
-第二, 不爆美国领导人的料
-En segundo lugar, no hacer reportaje de las noticias del líder estadounidense
+疫情发生后分批及时启用备用集中隔离点，对入境人员比较集中的地区，特别是输入病例较多的口岸城市，采取建设入境人员隔离医学观察健康驿站等做法。按照平急结合原则和当地的实际情况建设大型专用隔离场。
 
-第三
-Tercero
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
-表面上在气侯变暖(问题)上, 进行一下合作
-Superficialmente cooperar en cuanto al (problema) del calentamiento climático
+按照中共官方宣布的14亿人口来计算，卫健委这一次启动的集中隔离点总房间数量应该不少于280万间，这个数字也是这则视频透露出非常重要的信息之一，那就是接下来的高峰隔离人数应该是百万级别的。
 
-然后把孟晚舟送回, 加拿大人放回
-Luego enviar a Meng Wanzhou de regreso y a los canadienses también
+由于中共的国殇日的七天小长假正是人流出行高峰，在国殇长假接下来的必将是各地出现中共病毒感染者集中爆发，感染者所带动的密切接触者要集中隔离一批，这样两个轮次下来，十月份基本上算一波，在十月底建成不少于280万间的隔离点之后，接下来的疫情爆发应该已经在计划当中了。
 
-然后给华为一定的发展空间
-Después darle cierto espacio para el desarrollo de Huawei
+因为病毒是自家造、疫苗是自家造、隔离点是自家规划建，所有这一切都是早已经计划好了的，只要这个中国共产党这个反人类集团在地球上存在一天，包括新冠病毒之类的人为灾难就不会停止。
 
-一定发展空间
-Cierto espacio para el desarrollo
+撰稿：喜马拉雅的肉夹馍
 
-甚至中国可以继续买一些国债
-Incluso, China puede seguir comprando algunos bonos de Tesoro
+审核：喜马拉雅的馍夹肉
 
-就这交易
-Y este acuerdo
+校对：Maarago
 
-实际上, 这基本上是美国投降了
-Prácticamente, es la rendición de EE. UU
+（文章内容仅代表作者个人观点）
 
-原视频日期：09/28/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442804677746126853?s=24
-视频时间段：0:00-0:44
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

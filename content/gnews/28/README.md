@@ -2,19 +2,21 @@
 ---
 
 
-## 秘翻在线：美国查获180万颗芬太尼假药，其原料主要来自中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568657/)
+## 中共内斗火热！傅政华落马
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568746/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p6562611a520604722-800x450-1.jpg)网络图片
+**编辑摘要：**继中共国公安部前副部长孙力军遭双开后，10月2日，据中央纪委国家监委网站消息，中共国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。傅政华曾任公安部副部长、司法部部长等要职。
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-26.png)   图片来源：福布斯
-据《纽约邮报》（New York Post）10月1日报道，在经历了为期两个月的调查后，美国缉毒局（DEA）查获了180万粒芬太尼假药，共逮捕了810人。缉毒局局长安妮·米尔格拉姆 (Anne Milgram)说：“这180万粒含有致命合成阿片类药物芬太尼的假药可能会导致70多万人死亡。我敦促美国民众今天向亲人和好友讲述该假药的危险，以及一粒药就能让人致死的事实。”
+新闻参考链接：[https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp](https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp)
 
-DEA官员说，这些假药看起来几乎与治疗中重度疼痛的合法处方药完全相同，比如羟考酮 (Oxycodone)、阿得拉 (Adderall)和阿普唑仑 (Xanax)。墨西哥的毒品网络正在大规模生产这种假药，其所需的化学原料主要来自中共国。假药被贩运至美国后在美国各地分销，甚至在社交媒体和电子商务平台上出售。DEA的实验室测试结果显示，每10颗芬太尼假药中就有4个含有潜在致死剂量。
+* * *
 
-与此同时，DEA还查获了1500多磅芬太尼粉末，这足以用于制造数千万颗药丸。他们还收缴了158非法武器、8800多磅冰毒（甲基苯丙胺）和1400磅可卡因。美国司法部副部长莉萨·莫纳科 (Lisa Monaco)表示，自2019年以来，DEA发现的含有芬太尼的假药数量猛增了近430%。在美国去年超过9.3万多起毒品过量致死事件中，非法的芬太尼占了近四分之三。缉毒局称，芬太尼的效果比吗啡强100倍，它经常被添加到海洛因中以增加其效力，或者被伪装成一种极易上瘾的阿片类药物。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-在这场对美国发动的“毒品战”中，中共伙同墨西哥毒枭以及其他犯罪集团杀害了许多美国人。中共深度参与了毒品的生产、销售以及分赃等过程。必须切断中共这个罪恶之源，美国的芬太尼毒品危机才会得到根本解决。
 
-新闻来源：[810 arrested in nationwide crackdown on fentanyl-laced fake pills: DEA](https://nypost.com/2021/10/01/810-arrested-in-crackdown-on-fentanyl-laced-fake-pills-dea/)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

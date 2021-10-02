@@ -2,24 +2,28 @@
 ---
 
 
-## 疫苗灾情｜英国 29 岁创意总监接种疫苗后瘫痪
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1568652/)
+## 班农专访：班农战斗室获得美国政治类播客第一名
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568744/)
 
-**撰文/ 台湾宝岛农场 天滅中共 ｜發布日期/ 02/10/2021**
+[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=2560)](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=1024)
+**简评：**因为新中国联邦、爆料革命、GTV和GNews的支持，班农战斗室获得美国政治类播客的第一名，成为有史以来最好的英语节目。唯真不破，传播真相，就会获得民众的支持。
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。***
-***本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+GTV视频链接：[英喜每周采访班农先生0929-Q0: 我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持](https://gtv.org/video/id=6156a779d2e2b817486fe616)
 
-* * *
 
-【英国】曼彻斯特一名 29 岁的女性 Felicity Jackson 在接种第二剂辉瑞 COVID-19 疫苗之后，陆续出现了包括头痛、视力模糊、颤抖、光敏感及瘫痪等一系列症状，自8月26日起，在医院进进出出就变成她日常生活中最重要的部分。
 
-Felicity Jackson 任职于一间婚纱店的创意总监，从她的 Instagram 上晒出的作品看出，她热爱自己的工作，本人亦十分有才华。
+**视频字幕：**
 
-为了帮助更多人对疫苗的危险性有警觉，她还将自己经历制作成影像。在她接种完第二剂疫苗后，她写道“ 8月24日的晚上，我整个身体都瘫痪，我被抬到床上，我开始抽搐，医护人员 26日把我送进医院，这之后，我开始不断转诊于其他医院接受检查和观察，直到我收到了神经系统损伤的诊断。”
+**主持人**：班农先生，首先祝贺《战斗室》荣升苹果播客第一名，有史以来最好的英语节目。班农先生，感谢你传播真相。
 
-她还表示自己一向身体健康，保持运动，而且，在接种完第一剂疫苗之后，她就有不适，询问医护人员之后，得到的答覆是“正常反应，毋需担忧。”
+**班农先生**：我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持。还有GNews、GTV帮我们翻译成汉语和日语等语言，这个帮助巨大。我想对你们整个团队表示感谢。
 
-在她最新的贴文中，她说自己的健康问题依然严重，生活被头晕、低血压、虚弱、瘫痪等症状困扰着，目前她仍然需要24小时的看护。网友在留言区留下了上千则鼓励的话语，并为她祈祷。
-***Felicity 故事***
-来源｜  个案002（IG：flicjackson）
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕*：*Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：势不可挡* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

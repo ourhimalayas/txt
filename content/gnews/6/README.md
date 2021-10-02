@@ -2,32 +2,42 @@
 ---
 
 
-## 声讨中共暴政，欧洲维族人巴黎大游行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568849/)
+## 民主党参议员提案乘坐国内航班须接种疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1568926/)
 
-栏目记者/责任编辑：在远方
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- 编译：Lulumi
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown.png)范斯坦提交法案，要求在国内航班上强制接种COVID疫苗或进行测试 (Greg Nash/Pool via AP)
 
-中共“国庆日”刚过，10月2日，来自欧洲各地的维吾尔族人汇聚巴黎，举行了大规模的示威游行，要求中共立即关闭新疆境内的集中营，停止对维族人的迫害暴政。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.2AM-PICTURES-1234689.005.jpeg)
-当天的示威游行从巴士底广场启动，游行至共和广场后举行了演讲活动。包括法国及比利时在内的多位欧洲议会议员参加了游行活动并发表演讲。目前欧洲已有比利时、英国、荷兰和立陶宛等国家议会通过了认定维吾尔人被中共种族灭绝屠杀的议案，此次巴黎大游行就是敦促法国国民议会，能够尽快审议并通过相关议案,并对中共政权发起制裁。
-(本文仅代表作者观点)
+据极限新闻报道，《美国航空旅行公共安全法案》将授权卫生与公众服务部和联邦航空管理局，制定一套航空公司标准。以防止COVID-19中共病毒在2021年冬季到来之前的传播。
 
-参考链接：[欧洲维吾尔人汇聚巴黎举行大游行呼吁北京停止镇压](https://www.rfi.fr/cn/法国/20211001-欧洲维吾尔族汇聚巴黎举行大游行呼吁北京停止镇压)
+该法案指出，这些标准应要求乘客提供疫苗接种证明、中共病毒检测阴性证明，或 ”COVID-19康复的书面或电子文件“。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+范斯坦在一份声明中说：“我们知道，2020年假日期间的航空旅行促成了，去年冬天毁灭性的COVID-19中共病毒激增。我们不允许这种情况再次发生。”
 
-终审：文龙
-校正/发稿：我不在这里
+确保航空旅行者保护自己和他们的目的地社区，不受这种疾病的影响。对于防止下一次的激增至关重要，特别是当我们面对新的、毒性更强的COVID-19中共病毒变种的时候。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+她继续说：“这项法案补充了，对所有从外国飞往美国的航空旅客——包括美国人——已经实施的类似旅行要求。这包括来自COVID-19发病率低于美国许多州的外国航班。”
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“唯一有意义的是，我们也要确保纵横我国的数百万航空旅客不会造成进一步的传播，特别是在幼儿仍然没有资格接种疫苗的情况下。”
+
+杜克大学医学院医学和病理学教授、美国传染病协会主席芭芭拉·亚历山大博士在一份声明中说：“接种疫苗是结束COVID-19大流行病的关键战略。多种场合的接种要求是，提高疫苗接种率、防止感染和住院以及拯救生命的重要机制。”
+
+“美国传染病协会支持参议员范斯坦的立法，要求在国内航空旅行中接种疫苗。作为我们国家更广泛的COVID-19中共病毒疫苗接种战略的一部分。”
+
+**评论：**
+
+**正如文贵先生说的，这些政客虽然位高权重，但他们很多人真的并没有开智，比如他们对科学，对疫苗的无脑相信，完全丧失了质疑能力和对真相的追求。他们并没有什么了不起，只是占据了一个重要的位置而已。他们一个错误决定，会对很多无辜老百姓造成严重伤害。我们新中国联邦人必须不断在社交媒体，传播病毒真相，疫苗真相，用事实打破谎言，用真相唤醒有缘人，在这场人类大劫难中拯救更多人。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[极限新闻](https://www.newsmax.com/newsfront/dianne-feinstein-vaccine-flights-bill/2021/09/30/id/1038643/)(New York Post) | 作者：Theodore Bunker|发布时间：2021年9月30日
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
