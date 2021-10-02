@@ -2,39 +2,50 @@
 ---
 
 
-## 美國聯邦政府暫時解除停止運作危機
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1568076/)
+## 美国军官提起诉讼要求法院阻止国防部的强制疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568149/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+栏目记者：正义的小新，文仁
+责任编辑：文仁
 
-作者：紐約香草山 雲豹
 
-9月30日，美國的參議院及眾議院相繼快速通過臨時開支法案（stopgap funding bill），並將該法案提交到白宮。拜登總統也趕在政府關門期限前簽署了此項臨時開支法案，讓聯邦政府得免於關門，可以暫時繼續運作至12月3日。
 
-拜登隨後發表聲明表示，感謝兩黨達成協議、避免了政府關門的危機。拜登表示，這項法案提供國家的關鍵緊迫性需求，讓聯邦政府可以繼續執行現前的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-如果此次臨時開支法案沒有順利通過，聯邦政府會關閉一些非必要性的政府機構，用剩於資金暫時保持軍事、航管、醫療、氣象、郵政、法務等少數必要單位的運行，維持最低度的運作。如果預算案托太久遲遲沒有通過，聯邦政府在沒有預算下，終究會關門，只是在歷史上沒發生過。
 
-(本文為作者觀點，不代表G NEWS 立場)
 
-[參考連接]：
 
-[https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-[https://www.cna.com.tw/news/aopl/202110010028.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202110010028.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+根据【AirForceTimes】报道：
 
-审核 / 编辑 / 发稿: 圣母院钟声
+美国陆军参谋中士丹尼尔罗伯特和海军陆战队中士Hollie Mulvihill 于 8 月 17 日向科罗拉多州的美国地方法院提起诉讼，指控国防部强制军人注射新冠疫苗是非法和违宪的。这两名军人认为他们应该免于接种疫苗，因为他们已经感染了中共病毒，并且他们正在推动将案件认证为集体诉讼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
+法庭文件显示，服役军人称疫苗要求是“赤裸裸地利用原告的军人身份来对付他们，以推进不必要的公共卫生任务”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-2.jpg)
+他们还提出，如果有替代治疗方法，疫苗不应该是强制性的。他们将伊维菌素列为一种可行的替代方法。除了要求法院宣布疫苗要求是非法的并免除军人的费用外，原告还要求法院赔偿他们的律师费和认为合适的“任何其他救济”。两名军职人员均位于北卡罗来纳州。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-1.jpg)
+参考链接：
+[Troops ask court to block DoD’s vaccine requirement](https://www.airforcetimes.com/news/your-military/2021/09/30/troops-ask-court-to-block-dods-vaccine-requirement/)
 
-**更多資訊，更多關注**
+（本文仅代表作者观点）
 
-[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[**紐約香草山農場****GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+终审： Ryan
+校对/发稿：为真不破20
 
-[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**更多资讯，更多关注**
 
-[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

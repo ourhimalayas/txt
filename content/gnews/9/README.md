@@ -2,41 +2,49 @@
 ---
 
 
-## 中共利用西方的体系对西方国家进行颠覆
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1568120/)
+## 梵蒂冈将惩罚拒绝遵守中共病毒认证规则的员工
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568242/)
 
-#### **作者：晨兮**
-编辑：MSGZ
-![](https://assets.gnews.org/wp-content/uploads/2021/10/03.jpg)
-图片来源：网络
+栏目记者/责任编辑：AsG諾雅
 
-二战以后形成的西方体系的架构中包含了几个众所周知的要素，主要包含了自由、民主、人权和开放。何以去瓦解这种体系，中共很早就制定了阴谋计划。
 
-**中共一贯以不引起正面冲突的超限战的方式去瓦解它想要的消灭的对象。**中共善于用相对隐秘的蓝金黄手段进行渗透，把极权主义植入到西方社会的关键架构中，使西方的体系变成一具空壳。中共善于观察各个国家之间的差异，比如对方的国家系统是如何运作的，以及在对方的体系中存在的关键性冲突。利用那些固有的矛盾和冲突进行更进一步的挑拨以加剧混乱，以此来颠覆西方体系中固有的积极因素。
 
-你说你相信自由？我们就在你自己的街道上举行抗议活动，来找你的麻烦，以体现自由的国度。利用黑命贵、Antifa等进行打砸抢，后台就是中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-你说你相信新闻自由？那我们就在你的国家设立趋从于共产党意识形态的类国营媒体，变成本国的新华社，我们将使用这些媒体来欺骗和愚化民众。
 
-你引以为傲的自由市场？那我们就用国营企业把销售价格压低或利用关税补贴进行流氓式的竞争使你的公司走投无路，甚至是最终收购你的企业。
 
-比如利用美国历史中的种族冲突问题，中共恶意策划并制造美国本土的社会事件、制造分裂、扩大仇恨。
 
-中共在实现上述颠覆西方秩序的行动中着重使用了舆论超限战、心理超限战、法律超限战。**心理超限战不一定对你说谎，而是改变你对讯息理解的方式和结果。**比如当人们了解到病毒是有中共制造并从中（共）国传出时，人们说这个病毒是中共国传来的，这是无可厚非的正常表达方式。可是中共是不会容忍在国际舆论中充斥着 “中共病毒”和“中国病毒”字眼，于是他们就刻意把这种舆论陈述扭曲成为种族歧视性质，制造政治禁忌，博得社会同情，以影响你原本对病毒事实的专注力。
 
-**舆论超限战是对信息的制造和输出渠道的控制。**当下的国际主流的新闻媒体、社交媒体、泛互联网场域，凡是有信息交流的地方，都是中共天下。
+零对冲10月1日报道，从当日开始，梵蒂冈的工作人员如果不能证明已接种疫苗，或拒绝负担昂贵的中共病毒阴性测试，将被视为 “无理由旷工”而没有工资。许多基督徒宣称对疫苗接种有宗教豁免权，但梵蒂冈却没有提供这种变通。
 
-法律超限战的运用更加体现中共的无耻与邪恶。**用你本国的法律置你于死地。**比如你们的投票选举政治，那我就暗中帮助傀儡政客作弊，然后通过蓝金黄的手段渗透你的司法系统，依法让作弊的选举结果合法。
+在意大利，普通民众已经开始觉醒，他们持续上街抗议政府的针对疫苗接种的强制措施，连警察也摘下头盔以声援示威者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-3.jpg)
+参考链接：
+[Vatican To Punish Employees Who Refuse To Comply With COVID-19 Certification](https://www.zerohedge.com/covid-19/vatican-punish-employees-who-refuse-comply-covid-19-certification)
+[It’s not Catholic to say getting the COVID shot is ‘gift of love’](https://www.lifesitenews.com/opinion/the-fake-theology-behind-bishops-message-that-covid-jabs-are-a-gift-of-love/?utm_source=home_opinion&amp;utm_campaign=usa)
+[维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益](https://gettr.com/post/pcghq66fd9)
+[Latest from Archbishop Vigano: “Truth over Fear: COVID-19, The Vaccine, and The Great Reset”](https://www.raypeatforum.com/community/threads/latest-from-archbishop-vigano-truth-over-fear-covid-19-the-vaccine-and-the-great-reset.40306/)
+[Archbishop Viganò Warns of Satanic Nature of Vaccines with Fetal Tissue](https://stateofthenation.co/?p=75176)
 
-中共的黑手在全世界已是无处不在，无论是病毒大流行还是疫苗灾难，这都是以往中共持续对西方秩序进行颠覆的结果。
+（本文仅代表作者观点）
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-***发布：小红帽***
+终审： 鬼五
+校对/发稿：为真不破20
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，更多关注**
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

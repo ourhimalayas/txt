@@ -15,113 +15,113 @@
 
 ---
 
-### [秘翻在线：日本发表首例与疫苗相关的血栓形成与血小板减少症报告](/content/gnews/1/README.md)
+### [沁园春·缺芯片](/content/gnews/1/README.md)
+ ` 首尔天池农场`
+
+### [秘翻在线：俄罗斯国有企业停止向匈牙利输送天然气](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共派二十多架战斗机进入台湾领空碰瓷](/content/gnews/2/README.md)
+### [中共地方政府债务规模2020年底就已达到了8.2万亿美元](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共“一带一路”的隐性债务高达3850亿美元](/content/gnews/3/README.md)
+### [CDC 政策变化早已证实其明显的欺骗行为](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [抗中共霸凌 潜水世锦赛11国自愿撤下国旗力挺台湾](/content/gnews/4/README.md)
+### [以色列取消旅行禁令 放宽疫情限制](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G时评：疫苗毒针的策略分析](/content/gnews/5/README.md)
+### [英国政府批准军队从周一开始运送汽油](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [傅政华被调查,在海外的傅永斌赵月琳赵燕曦可曾安好？](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共国政协社会和法制委员会副主任傅政华接受审查调查](/content/gnews/8/README.md)
+ ` 首尔天池农场`
+
+### [梵蒂冈将惩罚拒绝遵守中共病毒认证规则的员工](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：日本发表首例与疫苗相关的血栓形成与血小板减少症报告](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生提出的“以疫苗灭共”在世界影响巨大](/content/gnews/11/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：中共派二十多架战斗机进入台湾领空碰瓷](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共“一带一路”的隐性债务高达3850亿美元](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [抗中共霸凌 潜水世锦赛11国自愿撤下国旗力挺台湾](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [G时评：疫苗毒针的策略分析](/content/gnews/15/README.md)
  ` GISELLE`
 
-### [美国军官提起诉讼要求法院阻止国防部的强制疫苗要求](/content/gnews/6/README.md)
+### [美国军官提起诉讼要求法院阻止国防部的强制疫苗要求](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [澳大利亚第一大州领导人因反腐机构展开调查而辞职](/content/gnews/7/README.md)
+### [澳大利亚第一大州领导人因反腐机构展开调查而辞职](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [美国加州圣荷西市正式就其反华政策和歧视历史向华人社区道歉](/content/gnews/8/README.md)
+### [美国加州圣荷西市正式就其反华政策和歧视历史向华人社区道歉](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [中共利用西方的体系对西方国家进行颠覆](/content/gnews/9/README.md)
+### [中共利用西方的体系对西方国家进行颠覆](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [高盛认为8.2万亿美元地方债务的威胁比恒大更严重](/content/gnews/10/README.md)
+### [高盛认为8.2万亿美元地方债务的威胁比恒大更严重](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月1日郭先生盖特 — 视频盖特1「3分14秒」](/content/gnews/11/README.md)
+### [2021年10月1日郭先生盖特 — 视频盖特1「3分14秒」](/content/gnews/21/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [议员呼吁拜登政府将中共生物技术公司列入黑名单](/content/gnews/12/README.md)
+### [议员呼吁拜登政府将中共生物技术公司列入黑名单](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [银河快讯：日本自民党新内阁幕僚人选敲定；真子公主将于26日结婚](/content/gnews/13/README.md)
+### [银河快讯：日本自民党新内阁幕僚人选敲定；真子公主将于26日结婚](/content/gnews/23/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [一项关键加密服务到期，致数百万人的互联网瘫痪](/content/gnews/14/README.md)
+### [一项关键加密服务到期，致数百万人的互联网瘫痪](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥一周聊：加密稳定币是世界的未来](/content/gnews/15/README.md)
+### [七哥一周聊：加密稳定币是世界的未来](/content/gnews/25/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [美國聯邦政府暫時解除停止運作危機](/content/gnews/16/README.md)
+### [美國聯邦政府暫時解除停止運作危機](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
 
-### [中共派遣具备核能力的轰炸机入侵台湾](/content/gnews/17/README.md)
+### [中共派遣具备核能力的轰炸机入侵台湾](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年10月01日澳喜要闻（每日更新）](/content/gnews/18/README.md)
+### [2021年10月01日澳喜要闻（每日更新）](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [10月1日中共38架次军机扰台，为今年最大规模](/content/gnews/19/README.md)
+### [10月1日中共38架次军机扰台，为今年最大规模](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [受中共病毒影响，9月日本国内新车销量下降约三成](/content/gnews/20/README.md)
+### [受中共病毒影响，9月日本国内新车销量下降约三成](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国殇日香港部署超过8000警力](/content/gnews/21/README.md)
+### [中共国殇日香港部署超过8000警力](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [美国呼吁“严肃对待”朝鲜导弹发射](/content/gnews/22/README.md)
+### [美国呼吁“严肃对待”朝鲜导弹发射](/content/gnews/32/README.md)
  ` HimalayaRussia`
 
-### [中共20大的血雨腥风正式拉开大幕](/content/gnews/23/README.md)
+### [文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（五）](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年8月20日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2021年8月20日郭文贵先生莲花刀法切西瓜全文字版](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（五）](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [众议员迈克·华尔兹：中共 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争](/content/gnews/27/README.md)
- ` 美国政要直译推`
-
-### [塔克·卡尔森：中共病毒疫苗不安全也不有效](/content/gnews/28/README.md)
+### [塔克·卡尔森：中共病毒疫苗不安全也不有效](/content/gnews/34/README.md)
  ` HimalayaRussia`
 
-### [震惊! Covid疫苗实含有DNA（不仅仅是RNA）在身体内合成刺突蛋白](/content/gnews/29/README.md)
+### [震惊! Covid疫苗实含有DNA（不仅仅是RNA）在身体内合成刺突蛋白](/content/gnews/35/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [2021年8月22日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/30/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [香草山医疗视角节目中战友关心的问题及回答(2021-9-26)](/content/gnews/31/README.md)
+### [香草山医疗视角节目中战友关心的问题及回答(2021-9-26)](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
-
-### [2021年8月23日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2021年8月27日郭文贵先生做健腹轮健身盖特全文字版](/content/gnews/33/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [里约热内卢爆发疫苗护照之争](/content/gnews/34/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [新冠疫苗产生的S蛋白对生殖系统的潜在影响](/content/gnews/35/README.md)
- ` 纽约香草山MOS03`
-
-### [美国执法人员截获大量含有芬太尼的致命假药](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [10/01/2021 七哥盖特：习近平周围都是江曾王孟的爪牙，习一神危险了](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`

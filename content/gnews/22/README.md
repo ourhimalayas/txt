@@ -2,27 +2,44 @@
 ---
 
 
-## 美国呼吁“严肃对待”朝鲜导弹发射
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1567976/)
+## 议员呼吁拜登政府将中共生物技术公司列入黑名单
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568091/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+阿肯色州共和党参议员汤姆·科顿和威斯康星州共和党众议员麦克·加拉格尔要求拜登政府将中共国生物技术公司列入美国政府的经济黑名单。他们认为中共国意图将生物技术应用于损害美国利益的军事目的。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/N.jpg)knoe.com
-据朝鲜官方媒体报道，朝鲜9月28日试射了一枚新开发的高超音速导弹“火星-8”。9月30日朝鲜再次试射了一枚新开发的防空导弹以确认该发射器和系统其他部件的实用性。这是朝鲜9月进行的第四次导弹试验。此举引发了世界各国对朝鲜在这个导弹技术方面快速发展的担忧。
+“中共会不惜一切代价窃取美国人最私密的信息——包括他们的DNA，”科顿在一份声明中告诉福克斯新闻。“将中共国生物技术公司列入黑名单，将有助于对抗中共对隐私的侵犯，并加强我们的国家安全。”
 
-据朝中社(KCNA)报道，朝鲜国防科学研究院(Academy of Defense Science)表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统方面具有非常现实的意义”，金正恩9月29日在朝鲜最高立法机构最高人民会议(Supreme People’s Assembly)上发表讲话时称，朝鲜的武器“正在以极快的速度发展”。
+科顿和加拉格尔周四宣布，他们呼吁将北京华大基因研究中心(BGI)和其它中共国生物技术公司列入黑名单。
 
-美国国务卿安东尼·布林肯9月30日敦促国际社会认真对待北韩的导弹发射，他指出，这些发射造成了“更大的不稳定和不安全的前景”。同时指出，美国正在与亚洲盟友日本和韩国就处理朝鲜问题进行“非常积极的对话”。
+国会议员在信中辩称，华大基因(BGI)一贯代表中国人民解放军(PLA)行事，这是中国共产党“军民融合”战略的一部分。
 
-日本政府表示，已经确定朝鲜此举违反了联合国安理会禁止使用弹道导弹技术的决议。同时谴责北韩的试射行为“令人极为遗憾”。与此同时，日本、美国和韩国9月30举行了电话会谈，对朝鲜最近与核武器和导弹开发计划有关的活动表示担忧。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
+议员们表示，现在管理中共国国家基因数据库的华大基因已经收购了美国公司，并正在利用国家补贴“削弱全球DNA测序市场”。
 
-报道称，金正恩今年1月在执政的劳动党代表大会上表示，他希望加强朝鲜的军事能力和核武库，并补充说，朝鲜已经开发出了防空导弹。美国总统拜登(Joe Biden)领导的政府一直在重申愿意与朝鲜就无核化进行接触，但到目前为止没有任何进展。
+他们写道，“华大基因与中国人民解放军的联合研究，可能在未来的生物武器中得到应用——这尤其令人担忧，因为华大基因的国家基因库很可能用于军事研究。”
 
-参考链接：
+加拉格尔在一份声明中告诉福克斯新闻，“生物技术是一个重要的新兴领域，很大可能会决定21世纪的经济。拜登政府必须现在就采取行动，趁为时未晚，确保像华大基因这样的中共国公司不会主导这一关键领域。”
 
-[https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
+议员们要求将华大基因和其它中共国生物技术公司加入财政部的“非SDN中共国军工综合体企业”名单，该名单禁止这些公司在美国交易所交易。
 
-[https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
+他们还希望将这些公司纳入对出口许可要求严格的商务部实体名单，以及国防部的中共国军事公司名单，后者直接针对军民融合的贡献者。
 
-[https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html](https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html)
+简评：
+
+科顿和加拉格尔国会议员的提议就当下而言，象征意义大于实际意义。拜登政府对中共政权的软弱与妥协有目共睹，从病毒追责到配合中共强推疫苗接种，再到近期对中共军事威胁台湾表现出来的迟滞，都说明了，拜登即使是在任美国总统，也无法放弃其家族与中共的利益勾兑。如今让他推行一个会损害其自身利益的提议，他自然不会去做。
+
+中共政权将新冠病毒作为生物武器，已经杀害了全世界近480万人，美国依然在说“华大基因与中国人民解放军的联合研究’可能在未来’的生物武器中得到应用”，很是让人无奈。还好，在本篇报道的评论区，可以看到参与评论的大多数美国人都是觉醒的，他们已经认清，只要拜登政府执政，美国政府与中共的勾兑将很难停止，更无从谈起所谓的美国国家安全。希望美国能早日觉醒。
+
+
+
+[新闻链接](https://www.foxbusiness.com/politics/cotton-gallagher-biden-admin-blacklist-chinese-biotech)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

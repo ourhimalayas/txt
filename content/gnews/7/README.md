@@ -2,53 +2,49 @@
 ---
 
 
-## 澳大利亚第一大州领导人因反腐机构展开调查而辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568148/)
+## 傅政华被调查,在海外的傅永斌赵月琳赵燕曦可曾安好？
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1568273/)
 
-栏目记者/责任编辑：文一
+据[**中国长安网**](https://weibo.com/changan) [2021年10月2日 11:39](https://weibo.com/5617030362/KAQvkAOLz?from=page_1001065617030362_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
+【全国政协社会和法制委员会副主任[#傅政华接受审查调查#](https://s.weibo.com/weibo?q=%23%E5%82%85%E6%94%BF%E5%8D%8E%E6%8E%A5%E5%8F%97%E5%AE%A1%E6%9F%A5%E8%B0%83%E6%9F%A5%23&amp;from=default)】据中央纪委国家监委网站消息：全国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 ​ ​​​​
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001.jpg)
+我们知道郭文贵先生开启爆料革命之初爆出的就是傅政华、海航、王岐山，那么既然傅政华现在已经上了中共绞肉机的砧板，我们有必要回顾一下郭文贵先生在**2017****年10月26日郭文贵直播十九大后爆料计划**中提到的傅政华的儿子傅永斌、傅政华的情妇赵月琳、傅政华与赵月琳的私生女赵燕曦以及他们在海外藏匿的巨额财富和大量绝密文件及办案卷宗——
 
+那么接下来我们就说说傅政华了。傅政华先生作为公安部副部长，副书记，公安部常务副部长，中央610办公室主任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/002.png)
+我们本来是今天是把他作为一个重点去爆的，后来还是，傅政华先生帮了几个人，救了几个人。救得人其中就包括我的老领导。昨天打了十几次电话，明确跟我说：我没有和傅政华沟通，就是因为他救过我，所以希望你把那一段不要放，那么非常担心，说傅政华现在几乎是一天吃几片安眠药，睡不着觉。到处感觉有人暗杀他，惶惶不可终日。说他也活不几天了，他现在接下来的19大后，他也很难受，所以呐，说就少爆点吧，或者不让爆。我说这个绝对不行！必须爆！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/003.png)
+傅政华的儿子傅永斌，1983年5月9号出生，在读高中期间，赴加拿大温哥华就读，已入籍加拿大，现住于温哥华附近的白石镇。这个儿子傅永斌现在控制的银行信息和资产是惊天的，这是傅政华睡不着觉的根本原因，傅永斌这个孩子也非常非常的狂妄，非常的狂妄。而且这个孩子控制这么大的资产，拥有这么大的物业，在加拿大，已引起了美国和加拿大的高度注意。我们和加拿大和美国有关部门正在合作中，当我们双方沟通的时候。他们都非常的惊讶，他怎么会有这么多钱，这么多资产。是不可思议的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/004.png)
+傅政华的情妇之一呢叫赵月琳，赵月琳——原北京市公安局的机关民警，已入籍新西兰，在惠灵顿和奥克兰等地均有房产。藏有傅政华办案非法所得大量的金银珠宝玉器、大量的绝密文件和办案卷宗。银行存有巨额美元现金和资产，银行账户详情、流水、存款信息稍后公布。赵女士和傅（政华）有一个私生女叫赵燕曦。2012年11月17日出生。这个女同志相当不简单！所使用的银行的注册和存款方式，用当地的司法机关说，这是他们见过最专业的藏钱和洗钱方式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+从她钱的资金来源和存款方式一点儿法律瑕疵没有。但有一点，因为现在傅政华已经被这个美国列入了马格尼茨基法案，同时现在当地政府让她提供资金来源还未提供，所以这件事情这个资产还有藏的信息呢，公布之日也是天大的事儿，这个也是挖到十尺以上——新的地下室，而且，很多银行的保密的保险箱，所以说傅政华是干公安的、干刑侦出来的，非常懂他的弟弟傅卫华负责给他送东西。
 
+所以说一会我们看到后面的时候，大家知道海航用打大飞机往外拉，一车一车东西，大家知道一个翡翠镯子都过亿，就过亿，有的一个古董，像那个叫五龙金的五龙车，五龙车呀，五个金龙拉着一个车，那一个多大呢？3米X1米2。你去想想那是值多少钱啊？这位赵小姐可以有大东西。
 
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
+傅政华已经上了绞肉机的砧板，那么傅政华的儿子傅永斌、傅政华的情妇赵月琳、傅政华和情妇赵月琳的女儿赵燕曦以及其他郭文贵先生还未爆料的傅政华在海外的情人及私生子女们和他们在海外藏匿的巨额财富、绝密文件及办案卷宗到底会怎样呢？
 
+撰稿：喜马拉雅的肉夹馍
 
-CNBC 10月1日讯- 澳大利亚新南威尔士州领导人贝雷吉克连周五宣布辞职，并称一旦该州的自由党能够选出新的领导人，她的辞呈将立即生效。
+审核：喜马拉雅的馍夹肉
 
-贝雷吉克连是在该州反腐败监督机构启动对其在2012年至2018年期间是否存在违规违法行为后递交辞呈的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-2.jpg)
-因其政府在处理新南威尔士州的中共病毒疫情危机时面临越来越多的批评，该机构加强了对该领导人的调查，并定于10月18日举行公开调查。
+校对：Maarago
 
-据澳大利亚的政府数据显示，新南威尔士州有超过10,000个新冠病例，仅次于维多利亚州。
+（文章内容仅代表作者个人观点）
 
-该州政府的限制措施导致悉尼和墨尔本等主要城市发生反封锁抗议活动，警方与数千名抗议者发生冲突。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-新南威尔士州和维多利亚州都宣布计划在70%的人口完全接种疫苗后放松一些限制。据报道，这两个州预计将在本月达到这一数字。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-参考链接：
-[Leader of Australia’s most populous state resigns as corruption watchdog launches investigation](https://www.msn.com/en-us/news/world/leader-of-australias-most-populous-state-resigns-as-corruption-watchdog-launches-investigation/ar-AAP1DmX)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-（本文仅代表作者观点）
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-终审： Ryan
-校对/发稿：为真不破20
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
