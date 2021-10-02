@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 1:37 AM (UTC)`
+
+🆘🆘🆘喜站出品．必是精品！🙏🙏🙏
+> `@globalhimalaya 10/1/2021 7:56 PM (UTC)`<br/>New Wuhan COVID docs 'completely contradict Fauci' on gain-of-function claims, ex-State Dept official says<br/>前国务院新冠来源调查员大卫艾舍：最新泄漏的文档揭示了中共制造病毒的实锤证据和犯罪现场！病毒是杀人武器！
+![img](https://media.gettr.com/group30/origin/2021/10/01/19/56/632cfcc7-d46c-4b6f-c778-1691e65cd1dc/out.jpg)
+
+---
+
 `@miles 10/2/2021 12:11 AM (UTC)`
 
 10/01/2021 Miles Guo’s GETTR: All our fellow fighters around the world shall keep disseminating videos and information regarding poisonous Covid vaccine, DO NOT STOP YOUR FINGERS! Xi Jinping is surrounded by followers of Jiang Zemin, Zeng Qinghong, Wang Qishan, and Meng Jianzhu, Xi is in great danger!<br/><br/>10/01/2021 文贵盖特：全球各地的战友们继续加油传播毒疫苗的视频和信息，不要停！习周围都是江曾王孟的爪牙，习危险了啊！<br/>
@@ -288,13 +296,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 
 How on the earth that the companies are require their workers to get vaccinated? And if workers refuse to do so, their job will be jeopardized, in the meanwhile they all knew this covid vaccine is very risky and caused death on many people, but they still do so?! STOP what you are doing, either you’re completely fool or your hands will be full of blood. For people who are still debating whether they should put food on the table for their families or choose what’s right for themselves. I want to say, your live matters!  <br/>Don’t you know that the drug companies take no responsibility for their products, so why should you have the obligation to take it.  <br/>“Freedom is not a gift bestowed upon us by other men, but a right that belongs to us by the laws of God and nature” <br/>
 ![img](https://media.gettr.com/group33/getter/2021/09/28/20/44/359b000d-a332-445e-18c5-abb83b92e7c1/out.jpg)
-
----
-
-`@miles 9/28/2021 7:29 PM (UTC)`
-
-Unfortunately, there are more stories like this, but they just aren't being reported on the news. What happened with the mainstream media? Why are you covering the truth about the covid vaccine?!    You have committed a crime by encouraging people to get these toxic vaccines. Sooner or later, you will be punished by God. So, we need more people to spread the truth about vaccines and not let these tragedies happen again because there's a good chance your family and friends will be next! Wake up, friends!<br/>不幸的是，像这样的故事还有很多，只是没有出现在新闻中。主流媒体是发生了什么?你为什么要隐瞒新冠疫苗的真相!你鼓励人们接种这些有毒疫苗就是犯罪。你们迟早会受到上帝的惩罚。我们需要更多的人来传播疫苗的真相，不要让这些悲剧再次发生，因为很有可能你的家人和朋友就是下一个受害者!醒醒吧,朋友们!
-![img](https://media.gettr.com/group35/getter/2021/09/28/19/29/917dd878-1ce4-b8c1-ee2d-6086ad1544d6/out.jpg)
 
 ---
 

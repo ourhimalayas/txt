@@ -2,23 +2,19 @@
 ---
 
 
-## “十一”电影票房已破7亿，长津湖票房第一
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1567806/)
+## 今年最大规模：北京在国庆日向台湾方向派出38架次军机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567861/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/48-1.png)[图片来源](https://n.sinaimg.cn/spider20211001/600/w1080h1920/20211001/2970-78722d8cd225e9dd02797c923715d79d.jpg)
-据灯塔专业版统计，截至10月1日20时35分，2021国庆档总票房(含预售)已突破7亿元，影片《长津湖》票房已达5亿，排名第一。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown.jpg)北京在国庆日向台湾方向派出38架次军机 wwawanwangwang l网络图片
+据美国之音10月1日报道，北京在中共建立政权的国庆日出动了包括喷气式战斗机在内的38架次军机，侵扰台湾西南防空识别区，这是今年以来最大规模的对台武力展示。台湾军方派遣空中巡逻兵力应对、广播驱离、放空飞弹追踪。
 
-电影《长津湖》改编自朝鲜战争发生在长津湖地区的一场战役。1950年6月25日凌晨4时，在得到斯大林的同意之后，朝鲜内阁首相金日成下令军队越过三八线，发动了对韩国措手不及的入侵，韩国军队节节败退，就在金日成志得意满之时，美国总统哈里·S·杜鲁门命令驻扎在日本的美国远东空军协助韩国作战，将朝鲜人民军击溃，金日成向中华人民共和国求援，中华人民共和国派出中国人民志愿军参战，中国人民志愿军和美国军队在朝鲜长津湖地区交战，中国人民志愿军第9兵团把美国军队1个多师分割包围，歼灭1.3万余美军士兵（信息来源：维基百科）。
+新闻参考链接：[https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8](https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8)
 
-“每当一个国家的政治、经济出现重大危机的时候，爱国主义的破旗就又散发出浓烈的臭味来”。从公开资料来看，中共志愿军未战斗已经损兵折将52156，而美军死亡13000人，还不算共军战场被歼灭阵亡将士，已经是美军4倍，这个打的什么仗，就这样还被中共拿来洗脑中国民众，在美军指挥官看来，长津湖战役中共军完全是一场自杀式战斗，美军之所以同意和谈完全是因为国内民众反战情绪，因为共军伤亡惨重，中共根本不把士兵当人看待，完全就是炮灰，因为美军军事力量基本上是碾压式对抗共军，共军优势就是人海战术，任何一个有常识和逻辑思维能力的人，都不可能认为共军赢得战争胜利，就这样，中共还把这个拍成电影，大肆宣扬，墙内民众又自嗨了一把，认为共军很强大，真是哀其不幸，怒其不争。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-当前，中共面临即将到来的病毒溯源和疫苗灾难追责，为了转移国内外矛盾，最终可能会攻打台湾转嫁政治经济危机，而电影长津湖就是为洗脑民众，取得舆论支持的一种宣传手段。
 
-[信息来源](https://www.fx112.hk/stock/short-2332221.html)
+编辑：【英国伦敦喜庄园编辑部】
 
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
