@@ -2,35 +2,27 @@
 ---
 
 
-## 福奇力推默克公司实验性治疗CCP病毒口服药Molnupiravir
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1568667/)
+## 感染新冠后的自然免疫力足以对抗病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568740/)
 
-翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1490.jpg)
-白宫冠状病毒协调员Jeff Zients在周五的一次简报会上说：”我们希望预防感染，而不仅仅是等到感染发生时再去治疗。默克公司的新的药片莫努匹拉韦（molnupiravir）可以为治疗COVID 19提供一种更容易、有效的方法，这是一个好消息，同时补充说接种疫苗仍然是控制该大流行病的关键。
+**简评：**兰德参议员指责一位不具备科学和医学背景的傲慢的律师，无视科学事实，不承认很多感染过新冠病毒的患者痊愈后获得了强大的免疫力。这种认知既不体面，也不美国，更不诚实。他应该向美国人道歉。
 
-**安东尼-福奇博士称这是 “非常好的消息”，默克公司关于其药品的数据 “令人印象深刻”。**
+GTV视频链接：[Sen. Rand Paul批评Xavier Becerra 拒绝在 HELP 听证会上向 Covid 幸存者道歉](https://gtv.org/video/id=6157e696d2e2b81748702d7a)
 
-制药商默克公司说，其试验性的COVID-19药片莫努匹拉韦（molnupiravir）可以将最近感染冠状病毒的人的住院和死亡人数减少一半，它将很快要求美国和世界各地的卫生官员批准其使用。
 
-如果获得批准，该药物将是第一种治疗COVID-19的药片，这可能是全球控制该大流行病的努力中的一个重要步骤。现在在美国授权的所有COVID-19疗法都需要静脉注射。相比之下，一种可以在家里服用的药片可以使许多病人远离医院，减轻紧张的卫生保健专业人员的工作负担。它还可以帮助遏制低收入国家的疾病爆发，这些国家无法获得更昂贵的输液疗法。
 
-默克公司及其合作伙伴Ridgeback Biotherapeutics公司说，早期结果显示，在出现COVID-19症状的五天内接受这种名为莫努匹拉韦（molnupiravir）的药物的患者，其住院和死亡的比率约为接受假药的患者的一半。该研究追踪了775名患有轻度至中度COVID-19的成年人，他们因肥胖、糖尿病或心脏病等健康问题而被认为有较高的严重疾病风险。研究结果没有经过外部专家的同行评审，这是审查新医学研究的通常程序。
+**视频字幕：**
 
-在服用莫努匹拉韦（molnupiravir）的病人中，7.3%的人在30天后住院或死亡，而服用假药的人则为14.1%。默克公司称，在这一时间段之后，药物组没有人死亡，而安慰剂组有8人死亡。
-一个监测试验的独立医疗专家小组建议提前停止试验，因为中期结果如此强大。这是典型的做法，因为早期结果清楚地表明一种治疗方法是有效的，以至于在申请授权之前不需要进行进一步的测试。公司高管表示，他们计划在未来几天将数据提交给食品和药物管理局审查。
+你在全国各地旅行，将那些曾经感染过新冠病毒、查看了对百万人的研究并做出自己的决定—认为自然获得的免疫已经足够的人，称之为相信“地平说”的人。但是你想以某种方式告诉这些1亿多经历过新冠病毒的美国人，“你们无权决定自己的医疗保健”。你作为一个没有科学背景、没有医学学历的律师，高高在上，你为我们做决定？
 
-据悉美国已经下了高达12 亿美金，可供应170万个人/疗程的订单，这种新药每10粒为一疗程，合计$700美金，也就是说每粒药价值$70美金。
+这是一种傲慢加专制主义，既不体面也不美国。你无视科学和科学研究的巨大优势。很多很多人在感染过新冠病毒后表现出强大和长期的免疫力。甚至CDC也不建议具有麻疹免疫力的人接种麻疹疫苗，对天花也是如此。但是你无视历史和科学，羞辱他们是相信“地平说”的人你应该为自己感到羞愧，为在自然获得的免疫力方面的不诚实向美国人道歉。
 
-对此，著名美国前线医生皮埃尔-科里Pierre Kory 发推文指出：Merck抗新冠病毒新药Molnupiravir以每粒$70获美$1.2Billion订单，其减少住院与死亡有效率为47%。而伊维菌素有效率为88%，每粒$0.58。同样都是5日疗程。价格却是天壤之别。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-援引自推特：
+*字幕：Vekap* *| 听写：云岭 | 翻译：Roberts | PR：云岭* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-[ttps://twitter.com/mountainview007/status/1444190475674476546?s=21](https://twitter.com/mountainview007/status/1444190475674476546?s=21)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-（本文纯属个人观点，与Gnews 无关）
-
-[原文链接：](https://www.9news.com.au/world/coronavirus-medicine-merck-experimental-pill-cuts-worst-effects-of-covid-19/649565fb-9499-474f-9237-b6ad3cde8f4c)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+[![](https://spark.adobe.com/page/vLLxrQoaqmRnA/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/vLLxrQoaqmRnA/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

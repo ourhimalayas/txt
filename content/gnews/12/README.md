@@ -2,32 +2,34 @@
 ---
 
 
-## 电荒重挫之下，中共紧急求助俄罗斯
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568881/)
+## 阿拉斯加航空要求所有员工接种疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1568958/)
 
-栏目记者/责任编辑：文小白
+- 编译：Lulumi
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-路透社莫斯科10月1日报道，俄罗斯电力出口垄断企业 “国际RAO集团” 本周五表示，中共国家电网请求该公司增加对中国北方各省份的电力供应 。应中共的请求，该公司将通过2012年建成的”阿穆尔-黑河” 高压输电线路，将10月份原定向中国供应的电力增加一倍，以缓解当地的电慌危机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/f918917a-1198-425e-8ede-e9627037b26e-medium16x9_210125_pio_alaska_airlines_max_jetliner_01.jpg)（图片：阿拉斯加航空公司）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.2AM-PICTURES-57图片备用.001.jpeg)
+据ABC 7新闻台西雅图的报道，阿拉斯加航空集团表示，决定所有员工都需要这样做，因为拜登总统的行政命令说，联邦承包商的所有员工都必须接种该疫苗。
 
-国际RAO集团表示，目前所有的三条俄中 输电线路都将用于供电，三条线路每年能够向中国输送高达70亿千瓦时的电力。在与西方关系持续恶化的同时，中共只能求助于俄罗斯, 除不断加大从俄罗斯采购农产品、煤炭和能源外，预计双边其他产品贸易额也将有大幅增长。这些都是俄罗斯所希望发生的，毕竟普京从不会放过要挟、压榨习近平和中共的任何机会！
-(本文仅代表作者观点)
+阿拉斯加航空集团在一份声明中说：“由于我们公司为联邦政府做了大量工作，我们已经确定阿拉斯加航空公司、地平线航空公司和麦基公司的员工——都是阿拉斯加航空集团的一部分——确实属于这项联邦疫苗强制令的执行对象”。这包括某些承包商和供应商，以及所有员工。
 
-参考链接：[应中国的请求 俄罗斯10月将把输华电力增加一倍以帮助中国缓解供电紧张](https://cn.reuters.com/article/chinaNews/idCNKBS2GS00S?irpc=932)
+接种疫苗的员工如果在12月1日之前证明他们的全部疫苗接种，还可以获得200美元的报酬。然而，员工接种疫苗没有正式的最后期限。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+阿拉斯加航空公司最近决定所有新员工都需要接种疫苗，但直到现在才对现有员工作出说明。
 
-终审：文龙
-校正/发稿：我不在这里
+**评论：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**天下没有免费的午餐，如果疫苗真是好东西，不需要用200美元奖励来让大家去接种。让航空公司全员接种中共病毒疫苗绝对是灾难中的灾难。试想如果飞机在飞行的过程中万一飞行员突然脑梗心梗发作，乘客几乎没有生还的机会。这种短视政策无异于大规模屠杀平民。等新中国联邦带领我们战胜邪恶势力，他们必须受到正义的历史审判。**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[abc 7新闻](https://wjla.com/news/nation-world/alaska-airlines-to-require-all-employees-get-the-covid-19-vaccine)(abc 7 News) | 作者：Gerald Tracy|发布时间：2021年10月2日
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

@@ -2,20 +2,21 @@
 ---
 
 
-## 破四旧来势汹汹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1568732/)
+## 中共内斗火热！傅政华落马
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568746/)
 
-作者：东京樱花团｜阿恩
-![](https://lh3.googleusercontent.com/TLogjcFRyDkyw1DYlHIcxQv2vA3zm5T6uYQMzE3joDgIXrDvUq420GD7ClYuXgA4H2BuzNjeJW6NWDs7oI9MVReh44cFcst1Q5Ny3Ko3jMDrLSulYit6YBGZgBrENT2E8tR-a6dK=s0)[图片来源](https://www.thestandnews.com/politics/%E6%84%9B%E5%9C%8B%E5%9C%98%E9%AB%94%E8%BC%89%E6%AD%8C%E8%BC%89%E8%88%9E%E8%B3%80%E5%9C%8B%E6%85%B6-%E6%9C%89%E5%9C%98%E9%AB%94%E8%A6%81%E7%B6%AD%E5%9C%92%E6%94%B9%E5%90%8D%E4%BA%BA%E6%B0%91%E5%85%AC%E5%9C%92)
-香港从百年前的不毛之地被港英政府建设成国际都市，不仅有现代化的摩天大楼，也有百年历史的古建筑，既有繁华的中环商业区，也有半山幽静的欧式住宅，有华人的永久墓地，也有180年历史的洋人墓园，还有七成的保育土地代谢城市的废气，养育一众生灵。香港的街道、地名和建筑物名称大多以英女皇、皇室成员及历任港督的名字冠名，每个冠名都是一段历史故事，延续了百年，仍令港人津津乐道。中英联合声明签署后，香港人有感中共文革的愚昧，甚为忧心中共会清除香港的殖民色彩，这些被冠以洋人名字的地点将首当其冲，已逝香港歌星黄家驹的名曲《皇后大道》的歌词就预警了中共去殖民化的阴谋。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p6562611a520604722-800x450-1.jpg)网络图片
+**编辑摘要：**继中共国公安部前副部长孙力军遭双开后，10月2日，据中央纪委国家监委网站消息，中共国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。傅政华曾任公安部副部长、司法部部长等要职。
 
-今日是中共国庆，在国安恶法的残暴镇压下，香港已经如新疆集中营般了无生气，中共的走狗们终于可以大肆挥舞血旗高唱红歌向中共表忠。不仅如此，[几个所谓的“爱港组织“代表港人到政总请愿，要求将维多利亚公园改名做「人民公园」、「国家纪念公园」。](https://www.thestandnews.com/politics/%E6%84%9B%E5%9C%8B%E5%9C%98%E9%AB%94%E8%BC%89%E6%AD%8C%E8%BC%89%E8%88%9E%E8%B3%80%E5%9C%8B%E6%85%B6-%E6%9C%89%E5%9C%98%E9%AB%94%E8%A6%81%E7%B6%AD%E5%9C%92%E6%94%B9%E5%90%8D%E4%BA%BA%E6%B0%91%E5%85%AC%E5%9C%92)
+新闻参考链接：[https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp](https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp)
 
-中共在97后的二十年里，用各种诡计试图同化香港人，包括每日150个内地移民名额稀释香港人，成为建制派的幕后金主收买港人，勾结和豢养香港的财团扭曲香港的经济结构剥削港人财富，所有的渗透均在有条不紊地进行着，中共却低估了香港人对自由民主的坚守，从港府欲通过23条、到推迟双普选，再到强推逃犯条例，每次都触动港人大规模游行抗议，香港成为了内地同胞追求民主自由的风向标。中共只能将镰刀和铁锤摆上台面众目睽睽之下直接对付港人。
+* * *
 
-如今中共在香港民心尽失，更不忿英国政开放BN（O）移民计划尽得港人心，所谓睹物思人，中共借势在香港营造去殖民化的文革之风，势必在香港兴起“破四旧“的行动，但凡有殖民色彩的均在劫难逃。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-（本文只代表个人观点，与Gnews网站无关）
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

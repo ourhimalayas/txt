@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 1:59 PM (UTC)`
+
+🤪🤪🤪
+> `@jasonmillerindc 10/2/2021 1:19 PM (UTC)`<br/>Who's Hot on #GETTR<br/><br/>These are the 10 fastest growing accounts in the U.S. right now!<br/><br/>@NRA<br/>@MaxMAGA<br/>@Conservativee_<br/>@ToddStarnes<br/>@MTG4America<br/>@Mr3Rights<br/>@TimMurtaugh<br/>@GatewayPundit<br/>@EpochTV<br/>@MarkLevinShow
+
+---
+
 `@miles 10/2/2021 1:47 PM (UTC)`
 
 🆘🆘🆘
@@ -289,12 +296,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 
 9月28号：青蒿素．伊微菌素．地塞米松。将拯救无数的善良的人们，这就是爆料革命和新中国联盟的力量。【<br/><br/>我所在国的一个朋友全家有5口人，3人确诊，都是打过两针科兴疫苗的，同一个屋檐下，反而没打疫苗的两个小孩没确诊，疫苗就是毒。这里缺医少药，确诊基本没有任何有效药物医治，政府免费给几盒中共捐赠的莲花清瘟就完事了，吃了几天根本不起作用。三天前我给他青蒿素，三天内所有病人全部退烧，呼吸正常，恢复味觉。伟大的青蒿素，伟大的爆料革命，真的救了太多人了，这就是新中国联邦人该做的事。<br/>最近几天给出去好多青蒿素，吃了都非常有效，这个是在这边做物流生意的香港人，同样买不到药被困在家里……打了两针科兴疫苗失去味觉，身体极度疲劳，吃了青蒿素两天，味觉恢复了，身体活力恢复了……青蒿素简直神奇到上天！现在还不敢露脸，等天亮以后我都要邀请他们和我一起上gtv直播，讲出这段和中共病毒抗争的令人难忘的经历的😄】
 ![img](https://media.gettr.com/group23/getter/2021/09/29/02/c9c433e3-b744-9d55-c36e-16316a8ff181/5bc6934a9221e25570de7b01a99e3677.jpg)
-
----
-
-`@miles 9/29/2021 2:05 AM (UTC)`
-
-9月28号：【举报人称： breaking: 近5万名医保患者在注射COVID疫苗后不久死亡 据医疗自由权律师托马斯-伦茨（Thomas Renz）称，一名举报人提供的政府数据显示，仅在医疗保险患者中，就有48465人在接种COVID-19疫苗后14天内死亡。 "你想知道为什么14天很重要吗？"他问。"因为如果你在14天内死亡，你就不被认为是接种了疫苗。" 根据美国疾病控制和预防中心（CDC）的说法，一个人在完成注射方案14天后才被认为是 "接种疫苗"，这引起了一个问题，即政府当局是否一直将这些死亡事件归类为与疫苗接种有关的死亡之外的事情。 】<br/><br/>https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/ https://gettr.com/post/pch6l37d0a https://gettr.com/post/pcilpc1489
 
 ---
 
