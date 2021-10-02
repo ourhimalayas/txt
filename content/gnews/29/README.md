@@ -2,15 +2,27 @@
 ---
 
 
-## 秘翻在线：郭文贵先生盖特影响力排名第一
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569234/)
+## 孙立军被双开 傅政华被调查 中共内部决战已经开启
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569266/)
 
-**撰稿： WENJIE   **
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/111.png)
-根据盖特CEO杰森·米勒先生（Jason Miller）的最新盖文，爆料革命的发起人郭文贵（Miles Guo）先生在盖特的个人影响力单日综合评分达到128,060，位居第一位。该影响力是基于盖特使用者的发文量、转发量、点赞数、新订阅用户数以及个人资料浏览次数这五部分综合评比而构成。盖特的CEO杰森·米勒先生排名第二，他的评分是22,729，与第一名的郭先生的评分相差悬殊，由此可见郭先生的影响力非同一般。杰森在盖文称赞并恭喜了郭先生，认为郭先生做得太出色了。上榜的前十名影响力账号还包括大家熟悉的班农战斗室（第七位）以及美国前国务卿彭培奥先生（第八位）。另外，杰森也发布了本周在英国和美国盖特账号蹿升速度最快的前十名，里面不乏我们的爆料革命战友三票先生和铁血组成员之一大卫等。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-基于这些账号的成绩，我们可以看出郭文贵先生引领的爆料革命在美国及西方社会的影响力。爆料革命灭共的目标已经深入美国人民心中。特别是近期在盖特对中共病毒和疫苗真相的揭露，正在唤醒世界，聚集更多渴望了解真相，追求正义的人们的聚集。可以预见，盖特替代推特的日子正在加速到来，爆料革命的影响力也正在全世界飞速增长。
+视频参看：2021.10.02早GTV新闻访谈
 
-衷心祝福郭先生荣登盖特第一人，也期待秘密翻译组以及更多战友们再创佳绩！
+[https://gtv.org/broadcast/watch/6158506b304e992109adf896](https://gtv.org/broadcast/watch/6158506b304e992109adf896)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

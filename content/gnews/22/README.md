@@ -2,29 +2,33 @@
 ---
 
 
-## 为缓解电荒 中共国多地调高电价
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1569338/)
+## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/power_1614911127_133235183663.jpg)
-**编辑摘要：**
-
-据美国之音10月1日报道，进入9月中下旬以来，中共国大约有20个省市出现严重电荒，特别是在拥有1亿居民的东北三省，拉闸限电不仅严重冲击工业生产，而且波及民众生活。
-
-据中共官媒报道，在电力紧缺和电煤价格倒挂的双重压力下，自今年7月以来，至少已有内蒙古、四川、宁夏、上海、山东、广东、湖南、安徽等8个省市区批准上网电价上调。此外，包括广东、贵州、广西、安徽、浙江和河南在内的6个省区则将高峰与离峰的电价价差拉大，借此让用户“错峰用电”。
-
-中共国多地拉闸限电，甚至电价上涨，中共官媒还坚称电价上浮暂时并不涉及民生用电。70多年来，中共国每一次灾祸的出现，无一例外都是中共所为，然而中共每一次度过困难的手法都无一例外的将苦难施加给中国百姓。中国人民一朝不醒，邪恶中共一日不灭，苦难就一刻不会停止。
-
-[新闻参考链接](https://www.voachinese.com/amp/Regional-China-utilities-get-nod-to-raise-prices-in-hope-of-easing-outages-20211001/6253474.html#click=https://t.co/dYsw7bsnQ4)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*编辑：穆清*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：香草山健身部 – 文真
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+
+
+
+9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
+
+“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
+
+参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/审核/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
