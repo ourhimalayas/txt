@@ -2,49 +2,32 @@
 ---
 
 
-## 梵蒂冈将惩罚拒绝遵守中共病毒认证规则的员工
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568242/)
+## 中共地方政府债务规模2020年底就已达到了8.2万亿美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568296/)
 
-栏目记者/责任编辑：AsG諾雅
+#### 编译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-2.jpg)图片来源：红板报
+9月30日，著名专栏作家威廉·佩塞克（*William Pesek*）在《福布斯》（Forbes）上发表文章，针对中国恒大集团和高盛经济学家的相关评论做了相关报道。
 
+报道说，中共国地方政府融资平台（LGFV）的债务总额已经从2013年的16万亿人民币（2.47万亿美元），达到了2020年底的53万亿人民币（8.2万亿美元），约占中国GDP的52%。显然，十个月过去了，现在的额度肯定更高，或者非常的高。
 
+作者说，尽管3000亿美元的恒大事件可能很吓人，但共产党政府的债务更吓人。更令中共政府头疼的是，如何做到在不增加经济泡沫的情况下保持GDP增长不远远低于希望的6%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+文章分析说，地方债务的增长，源于中共地方官员为了获得中共高层的赏识，必须创造高于全国平均水平的GDP增长率，这使得几十位县级领导参与某种程度上的基础设施“军备竞赛”，竞相建造摩天大楼、六车道高速公路、国际机场、酒店、大型体育场、庞大购物区和游乐园等。
 
+但是，中共国地方政府融资平台债务规模的快速增长，伴随的却是不透明性。尽管中共自2012年以来一直在谈论让市场发挥“决定性”的作用，但实际上却是变得更加不透明，信用评级系统没有能够与中共国资本市场发展相匹配。
 
+这些天，国际投资银行和新闻机构担心，对中共国地方政府债务泡沫的警告将使他们受到中共国报复。
 
+另外，地方政府的借贷计划触及到对中共国庞大影子银行体系的担忧，可以肯定的是，作为控制影子银行的努力的一部分，中国政府已经瞄准了超过1万亿美元的不透明产品，并将其作为低风险和高收益来销售。很多时候，这些所谓的现金管理产品将资金引入到诸如开发商等风险较大的借款人。
 
+然而，正如国际信誉评级机构惠誉国际的分析师珍妮特·刘（*Janet Liu*）在7月12日的一份报告中所观察到的，“现金理财产品一直是在银行借款方面遇到困难的弱势地方政府融资机构的一个重要资金来源。我们预计这一变化将在长期内降低系统性风险，但弱势的地方政府融资机构的融资选择减少将进一步削弱其财务灵活性”。
 
-零对冲10月1日报道，从当日开始，梵蒂冈的工作人员如果不能证明已接种疫苗，或拒绝负担昂贵的中共病毒阴性测试，将被视为 “无理由旷工”而没有工资。许多基督徒宣称对疫苗接种有宗教豁免权，但梵蒂冈却没有提供这种变通。
+作者认为，这种灵活性的丧失，可能在短期内造成失控的问题，这也正是越来越不透明的经济表面下发酵的、环环相扣风险的一个缩影，这也就难怪恒大等开发商的困境会让全球市场感到不安。
 
-在意大利，普通民众已经开始觉醒，他们持续上街抗议政府的针对疫苗接种的强制措施，连警察也摘下头盔以声援示威者。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-3.jpg)
-参考链接：
-[Vatican To Punish Employees Who Refuse To Comply With COVID-19 Certification](https://www.zerohedge.com/covid-19/vatican-punish-employees-who-refuse-comply-covid-19-certification)
-[It’s not Catholic to say getting the COVID shot is ‘gift of love’](https://www.lifesitenews.com/opinion/the-fake-theology-behind-bishops-message-that-covid-jabs-are-a-gift-of-love/?utm_source=home_opinion&amp;utm_campaign=usa)
-[维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益](https://gettr.com/post/pcghq66fd9)
-[Latest from Archbishop Vigano: “Truth over Fear: COVID-19, The Vaccine, and The Great Reset”](https://www.raypeatforum.com/community/threads/latest-from-archbishop-vigano-truth-over-fear-covid-19-the-vaccine-and-the-great-reset.40306/)
-[Archbishop Viganò Warns of Satanic Nature of Vaccines with Fetal Tissue](https://stateofthenation.co/?p=75176)
+因此，一些全球最大的投资者对人民币计价的资产抱持观望态度。当桥水基金（Bridgewater Associates）为中共国公司唱赞歌时，就有乔治·索罗斯（Gorge Soros）警告说那些急于进入中共国大陆市场的人正在犯“悲剧性错误”。
 
-（本文仅代表作者观点）
+文章指出，日本1.75万亿美元的政府养老金投资基金（GPIF）是世界上最大的基金，该基金现在表示不会将人民币计价的中国主权债务纳入其投资组合。无独有偶，富时罗素（FTSE Russell）指数即将开始将中共国债务纳入其基准的全球债券指数。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+**新闻来源：**[Goldman Flags $8.2 Trillion Threat Worse Than China Evergrande](https://www.forbes.com/sites/williampesek/2021/09/30/goldman-flags-82-trillion-threat-worse-than-china-evergrande/?sh=2b492a7615cc)

@@ -2,40 +2,19 @@
 ---
 
 
-## 哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568124/)
+## 秘翻在线：中共派二十多架战斗机进入台湾领空碰瓷
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568206/)
 
-栏目记者：正义的小新
-责任编辑：晓仙女
+#### 撰稿：彩虹 
 
+#### 校对：胡天 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-25.png)图片来源：外交政策
+据《国会山报》10月1日报道，在中共国国庆日期间，中共派出军机继续入侵台湾领空。
 
+这次中共派出了18架歼-16战斗机，两架H-6轰炸机，四架苏-30战斗机和一架反潜机进入了台湾的防空区，迫使台湾部署飞机警告离开，并部署了导弹系统来追踪中共飞机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
+另据郭文贵先生近几个月来不断的警告和情报预测，中共已经下定决心攻占台湾。因此，译者以为，近期包括北京时间9月24日上午和下午分别有19架军机和5架军机对台湾凌空的侵扰，均可视为中共为挑起台海战争而进行的碰瓷行为。
 
+**新闻来源**
 
-
-在本周哈尔滨市召开的疫情防控新闻发布会上，新闻发布官员提到，若粮食市场出现供应紧张，将及时启动相应的应急响应。
-
-会上透露哈尔滨市有成品粮储备1.55万吨，加上黑龙江省在哈尔滨市储备的粮油，仅可以满足15日的口粮消费量。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture15.jpg)
-郭文贵先生直播中曾爆料：中共国粮食储备数据造假严重，粮食短缺问题严重，当前中共外汇短缺，将无法进口所需粮食，饥荒会在中共国大范围出现。
-
-当下的哈尔滨，每日都有确诊新冠病毒新增病例，此时提出粮食应急预案问题，说明粮食危机已经开始。
-
-（本文仅代表作者观点）
-
-参考链接：[哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应](https://3g.163.com/v/video/VGK51BO5C.html?spss=adap_pc)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
+[Defense & National Security — Chinese aggression ramps up](https://thehill.com/policy/defense/overnights/574982-defense-national-security?rl=1)

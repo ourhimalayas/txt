@@ -2,17 +2,21 @@
 ---
 
 
-## 默克将要求美国批准抗 Covid 药丸
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1568507/)
+## 马克龙的援助后 （中共）病毒抑郁症计划
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1568597/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10021.jpg)
-默克公司将尽快要求在美国紧急批准首个抗冠状（中共）病毒药丸。这家制药巨头表示，进行的临床试验表明，在感染早期对高危人群使用口服药物时，可降低住院和死亡的风险。默克药丸是为阻止冠状（中共）病毒复制而开发的，服用五天，每天四片。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10023.jpg)
+冠状（中共）病毒大流行及其带来的限制对心理健康产生了非常严重的影响。根据 Istituto Superiore di Sanità 进行的一项研究，长期和反复的封锁导致越来越多的人患有焦虑、抑郁、失眠，在某些情况下，还患上了创伤后障碍。为应对法国的这一问题，马克龙宣布了一项应对这一问题的计划，然而这却让该国的心理学家大发雷霆，指责总统没有分配足够的资源。
 
-制药公司默克公司表示，根据 3 期研究的中期分析数据，药物莫奈拉韦降低了约 50% 的死亡风险。根据独立数据监测委员会的建议并与美国食品和药物管理局 (FDA) 协商，默克公司打算尽快向美国 FDA申请紧急使用授权 ，同时拟向全球其他监管机构申请上市许可并为生产莫奈拉韦承担全部风险。
+据[《世界报》](https://www.lemonde.fr/societe/article/2021/09/28/les-consultations-chez-un-psychologue-seront-remboursees-sur-prescription-medicale-a-hauteur-de-30-a-40-euros-a-partir-de-2022-annonce-emmanuel-macron_6096326_3224.html)报道，根据最近的一项调查结果，15% 的法国人表现出抑郁状态的迹象，23% 的人表现出焦虑状态的迹象和 10% 的人在这一年中有自杀念头。
+
+政府承诺在一年内在医学心理学领域创造 800 个工作岗位，投资 8000 万欧元用于行业创新研究。但这个措施引发了心理健康专业人士的抗议，全国心理学家联盟秘书长帕特里克·安吉·拉乌尔( Patrick Ange Raoult ) 称：平均而言，一小时的诊断费用在 50 到 60 欧元之间，仅报销 30欧元的这个措施可能会迫使无力支付差价的患者只要求半小时的咨询，这被认为是不够的。心理学家无法定义患者需要什么帮助，这对他们来说是一种侮辱。
+
+至于疫情对意大利公民心理的影响，根据一项研究，由于封锁，出现焦虑或抑郁症状的人数增加了一倍多。焦虑症患者从 18.1% 上升到 41.5%，而抑郁症患者从 14.3% 上升到 33.2%。酗酒和使用精神药物（事先未咨询医生）等危险和自毁行为也呈上升趋势。尽管如此，意大利政府尚未采取任何措施来应对这一问题。在意大利，心理治疗实际上是一种私人垄断。据估计，意大利 80% 的心理治疗费用都是由公民自掏腰包。
 
 免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://www.ansa.it/canale\_saluteebenessere/notizie/sanita/2021/10/01/merck-chiedera-autorizzazione-usa-per-pillola-contro-covid\_e65880d6-8882-4222-a820-6ffac9e90f18.html](https://www.ansa.it/canale_saluteebenessere/notizie/sanita/2021/10/01/merck-chiedera-autorizzazione-usa-per-pillola-contro-covid_e65880d6-8882-4222-a820-6ffac9e90f18.html)
+原文链接：[https://europa.today.it/attualita/depressi-covid-macron.html#\_ga=2.141986098.1486520036.1633082979-145009575.1615972944](https://europa.today.it/attualita/depressi-covid-macron.html#_ga=2.141986098.1486520036.1633082979-145009575.1615972944)
 
 责任编辑/校对/发布：意大利达芬奇农场   萧亦

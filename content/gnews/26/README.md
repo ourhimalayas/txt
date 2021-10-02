@@ -2,45 +2,20 @@
 ---
 
 
-## 郭文贵先生提出的“以疫苗灭共”在世界影响巨大
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568219/)
+## 以色列取消旅行禁令 放宽疫情限制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568275/)
 
-栏目记者/责任编辑：晓仙女
+#### 编译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-3.jpg)图片来源：新华社
+美国合众国际社10月1日报道，以色列周五取消了旅行禁令，將因感染率的原因曾属“红色”禁令的国家不再列入禁令范围。
 
+下周一开始，来自保加利亚，巴西和土耳其的游客，无论是否打过疫苗，都将被允许进入以色列，这是根据卫生部门的建议取消的。
 
+卫生部长纳取曼·阿希说第四波的疫苗从6月底到现在已趋下降，周四，该国有4313例新感染患者，显示疫情趋缓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+同时，约有150万以色列人未打加强针，周日可能丧失“绿色通行证”，这个通行证表明已打疫苗或最近中共病毒测试阴性，居民被允许参加活动和经商。
 
+周四，有超过10万个以色列人接受疫苗注射，包括加强针，第一和第二针，几乎是一个月中最高数字。
 
-
-
-
-9月30日，郭文贵先生盖特表示，以疫苗灭共，在世界上的影响越来越大。爆料革命正在向全世界传播新冠疫苗是生化武器的事实，揭露接种疫苗导致病变及致死亡的真相。各国政府和专家机构拿到这些视频和资料时，有两种选择：一是把它忽视掉，但未来真相大白时，就是犯罪；第二就是，面对真相采取回应，停止强制疫苗。日本政府开始对疫苗产生疑惑，质疑该不该打疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/42-1.jpg)
-新中国联邦人努力传播疫苗灾难的真相，展开了疫苗灭共的大决战， 这是一场拯救人类的重要行动！
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5.jpg)
-参考链接：
-[郭先生盖特： 9月30号：尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！](https://gettr.com/post/pclmgqf8e2)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+##### 新闻来源： [Israel removes all red-listed countries, easing COVID-19 restrictions](https://www.upi.com/Top_News/World-News/2021/10/01/red-listed-countries-removed-COVID19-infection-rates-lower/3291633108469/)

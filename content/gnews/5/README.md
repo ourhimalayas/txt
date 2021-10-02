@@ -2,58 +2,19 @@
 ---
 
 
-## 孟晚舟回国，此次交易基本就是美国投降了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1568463/)
+## 秘翻在线：美国白宫施压美航空公司执行强制疫苗令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568515/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-7.jpg)https://gtv.org/video/id=6157c355d2e2b817487024d9
-经济战从什么开始?
-¿Por dónde comienza la guerra económica?
+#### 翻译/撰稿：zzballack
 
-股票市场, 卖美国国债
-Por el mercado de valores, la venta de bonos del Tesoro de EE. UU
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-3.jpg)图片来源：福布斯
+据《新闻极限》（Newsmax）10月1日报道，消息人士本周五告诉路透社（Reuters），美国白宫正在向美国主要航空公司施压，要求他们在12月8日之前对员工执行接种中共病毒疫苗的强制命令。
 
-所以这次孟晚舟交易当中有三条
-Por eso esta vez, el acuerdo de Meng Wanzhou existe tres convenios
+白宫新冠疫情应对小组的协调员杰弗里·齐恩特 (Jeffrey Zients) 9月30日与美国航空公司（American Airlines）、达美航空公司（Delta Air Lines）和西南航空公司（Southwest Airlines）的首席执行官进行了交谈，以确保他们在12月8日的截止日期之前迅速制定和执行疫苗接种要求。由于这三家航空公司均与联邦政府有业务往来，符合政府对联邦承包商的定义，所以这三家航空公司及其雇员必须遵循政府对承包商的疫苗要求，必须于12月8日前接种疫苗。一位消息人士说，齐恩特敦促他们“尽早采取行动，以确保实施过程尽可能顺利”，并让他们参照联合航空公司（United Airlines）在8月公布的疫苗要求。
 
-在一定时间内不卖你国债
-No vender los bonos de Tesoro por un período de tiempo determinado
+一些航空公司官员曾要求白宫将拜登在9月签署的疫苗强制令推迟到繁忙的假日旅游季之后。但是拜登政府通知各航空公司说，它将寻求修改民用后备机队(CRAF)的合同，以要求航空公司员工接种疫苗。
 
-第二, 不爆美国领导人的料
-En segundo lugar, no hacer reportaje de las noticias del líder estadounidense
+拜登政府的强制疫苗令越来越疯狂，科学研究和相关案例已经证明，接种了中共病毒疫苗的飞行员在飞行途中很容易发生意外，会给同乘机组人员和乘客的生命安全带来巨大危险。
 
-第三
-Tercero
-
-表面上在气侯变暖(问题)上, 进行一下合作
-Superficialmente cooperar en cuanto al (problema) del calentamiento climático
-
-然后把孟晚舟送回, 加拿大人放回
-Luego enviar a Meng Wanzhou de regreso y a los canadienses también
-
-然后给华为一定的发展空间
-Después darle cierto espacio para el desarrollo de Huawei
-
-一定发展空间
-Cierto espacio para el desarrollo
-
-甚至中国可以继续买一些国债
-Incluso, China puede seguir comprando algunos bonos de Tesoro
-
-就这交易
-Y este acuerdo
-
-实际上, 这基本上是美国投降了
-Prácticamente, es la rendición de EE. UU
-
-原视频日期：09/28/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442804677746126853?s=24
-视频时间段：0:00-0:44
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[White House Presses US Airlines to Quickly Mandate Vaccines for Staff](https://www.newsmax.com/streettalk/airline-industry-ccovid-19-vaccine/2021/10/01/id/1038779/)
