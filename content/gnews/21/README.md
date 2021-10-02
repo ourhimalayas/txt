@@ -2,19 +2,29 @@
 ---
 
 
-## 今年最大规模：北京在国庆日向台湾方向派出38架次军机
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567861/)
+## 2021年8月27日郭文贵先生做健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1567894/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown.jpg)北京在国庆日向台湾方向派出38架次军机 wwawanwangwang l网络图片
-据美国之音10月1日报道，北京在中共建立政权的国庆日出动了包括喷气式战斗机在内的38架次军机，侵扰台湾西南防空识别区，这是今年以来最大规模的对台武力展示。台湾军方派遣空中巡逻兵力应对、广播驱离、放空飞弹追踪。
+盖特连接：[https://gettr.com/post/p91jlp200a](https://gettr.com/post/p91jlp200a)
 
-新闻参考链接：[https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8](https://www.voachinese.com/amp/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html#click=https://t.co/1f6arUjXK8)
+8月27日：尊敬的战友们好，你们健身了吗？传播C C P病毒，香港危机，郑州，水灾．人祸真相了吗？
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
+（做完一组健腹轮）,当这个（健腹轮）它推到头的时候，它会不让你往下推，但是一次做24个，这真不是吹狼蛋的！有本事做做，不简单，真不简单！昨天，看我嘴，昨天这个亲吻签名，嘴都麻了，这儿肿了，我挺性感的哈，后来抹了凡士林好多了，别忘了健身，兄弟姐妹们！
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑整理及发布：黎明之前
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

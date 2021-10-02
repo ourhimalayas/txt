@@ -2,74 +2,62 @@
 ---
 
 
-## 香草山医疗视角节目中战友关心的问题及回答(2021-9-26)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1567932/)
+## 众议员迈克·华尔兹：中共 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1567948/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-
-主讲：纽约香草山医疗部 – Wenfei 文紫
-
-1. 问：服用2盒青蒿素＋锌＋硫酸羟氯喹，今晚低烧，这是否正常？
+众议员迈克·华尔兹： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争。 随着我们债务的利息接近我们整个国防预算的规模，佩洛西和民主党正在寻求将我们社会项目的规模扩大三倍，刚好如了中国的意。 【附华尔兹议员在福克斯电视台就民主党预算提案的视频谈话】
 
 
-答：药物本身不会引起发热反应，包括过敏反应也不会有发热表现，需要排除是否并发了感冒，也需要确定是否感染COVID-19、是否注射疫苗。如果排除了COVID-19的感染，有可能是感冒造成的。
 
-- 问：是否可以理解为打完疫苗的就有机会成为无症状病毒携带者？
-
-
-答：现在注射过疫苗的人群大多就是以无症状带菌者存在于人群中。
-
-- 问：两针国产疫苗注射后，目前服用青蒿素每天一粒，服用7天，硫酸羟氯喹1粒，服用7天，锌25mg，服用7天，以上为每月一次的剂量，加上每日服用VitD3、VitC，作为预防COVID-19用药方法是否可行？
+> The [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic was a wakeup call – it’s time to take biological threats more seriously. Today, I introduced legislation to keep Americans safe from the threat of biological weapons. [https://t.co/SFoYCCV9Wg](https://t.co/SFoYCCV9Wg)
+> — Senate Foreign Relations Committee Ranking Member (@SenateForeign) [September 30, 2021](https://twitter.com/SenateForeign/status/1443674704255012864?ref_src=twsrc%5Etfw)
 
 
-答：地塞米松没有症状无需服用，当出现血氧饱和度降低时，请尽快到医院就诊。医院会给予大剂量的静脉给药，比自己口服用药效果更好。青蒿素保健品可以每日服用，槲皮素类似于硫酸羟氯喹，可以每日服用；锌需每日口服；但硫酸羟氯喹不可长时间连续服用，通常第一周连续服用5-7天，之后每周一次。青蒿素类药物应用中，青蒿素哌喹是唯一国内有报道的，药物单剂量是青蒿素62.5mg＋哌喹175mg，首次服用剂量是125mg＋345mg，也就是两片。但是目前具体的药物应用剂量的指导还没有披露，也有可能不单纯是口服用药，要等待进一步的用药途径、用药剂量的披露。
-
-- 问：针对注射疫苗（第二针）后的解毒治疗，有没有青蒿素替代品或者是否可以推荐购买途径或代购？
 
 
-答：虽然文贵先生曾经说过，疫苗第二针后的解毒，效果不好，但目前依旧有战友运用伊维菌素解毒。在亚马逊网可以买到保健品类青蒿素，香草山农场在盖特也推出了网上购买药品的方法（push doctor），实测可以收到药品。对伊维菌素服用多少剂量才能完全解毒目前不详。建议按预防（Dr. Zelenko建议）剂量服用。
 
-- 问：室友注射两针疫苗，如何避免被感染？
-
-
-答：按照Dr. Zelenko推荐的预防药物及剂量服用即可。如果服用青蒿素保健品，亦可按照商品推荐服用剂量。
-
-- 问：注射疫苗后除外口鼻携带病毒外，会通过皮肤汗腺传播吗？
+> 前纽约市长鲁迪·朱利安尼：
+> 如果疫苗效果很好以至于他们可以强制接种，那为什么你们打了疫苗还要戴口罩？ [https://t.co/uobp21RZa8](https://t.co/uobp21RZa8)
+> — 美国政要直译推 (@zhiyitw33) [October 1, 2021](https://twitter.com/zhiyitw33/status/1444020403400110084?ref_src=twsrc%5Etfw)
 
 
-答：通过皮肤汗腺排除的病毒数量会比较少，目前可以找到比较可靠的报告提及精液、乳汁的S蛋白含量较高，但汗液相对含量较少。
 
-- 问：夫妻其中一人注射两针疫苗，是否可以行房事？
-
-
-答：注射后睾丸组织内会有大量S蛋白，注射者需要进行药物排毒，参考Dr. Zelenko 的COVID-19治疗处方建议用药。注射疫苗后短时间内建议采用避孕措施（避孕套等）。
-
-- 问：哪里可以买到伊维菌素、硫酸羟氯喹、青蒿素？
+参议院外交委员会高级成员： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 大流行敲响了警钟——是时候要更认真地对待生物威胁了。今天，我提出了一项立法，以保护美国人免受生物武器的威胁。 【附参议院外交委员会官网新闻：参议员吉姆·瑞许提出立法遏制生物武器发展】
 
 
-答：在香草山医疗组的盖特（屏幕下方有二维码显示）可以找到购买方法，香草山Discord群医疗组可以进行一对一的咨询，亦可获得。India Mart也可以买到。
 
-- 问题：注入身体的mRNA有多少S蛋白的表达？S蛋白表达在人体的哪些部位？如果工作中必须接触一些打过疫苗的人，应该注意些什么？有没有直接或间接的接触性感染风险？（脱落的S蛋白会不会通过间接接触被感染）
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is hoping the US implodes economically so we can no longer afford to compete militarily.
+> 
+> As the interest on our debt approaches the size of our entire defense budget, Pelosi & Dems are looking to triple the size of our social programs, playing right into China’s hands. [pic.twitter.com/bGHM2Hqtb2](https://t.co/bGHM2Hqtb2)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 1, 2021](https://twitter.com/michaelgwaltz/status/1444060806614638595?ref_src=twsrc%5Etfw)
 
 
-答：如果是mRNA的疫苗，理论上是一过性的，mRNA会慢慢被机体降解掉，但是所产生的S蛋白会在体内长期存在，随着时间的推移，慢慢的会淡化。如果产生的抗体起作用，会产生B细胞，B细胞对S蛋白有记忆，当再次遇到（相同病毒入侵人体）时，就会对S蛋白产生攻击作用。刚注射过疫苗，体循环内的蛋白量比较高，有报导指出，精液以及哺乳母亲的乳汁内含量较高，注射过疫苗人群的更大的危险性有可能是携带大量病毒而没有任何表现（作为类似于无症状的高剂量带菌者）存在于人群中间。 变体出现的时间和打疫苗的时间有高度重合性，可以假设，注射过疫苗的群体促进了变体的产生，有一种说法——打过疫苗的人可以带着病毒到处行走，会造成人群感染，这种情况是现在纽约这种城市广泛存在的     。对于个人而言，接种疫苗后的危险是S蛋白，对于没有接种疫苗的人来说，不发病的疫苗接种者携带大量病毒是很危险的。接种过新冠疫苗的人可以表现为暂时不发病，但具有传染性 ；对于亲密接触者也可能有害，有案例报道与接种疫苗者亲密接触，会引发未接种者皮疹，头痛，嗜睡，妇女生理周期改变等等；另外有多起母亲哺乳期间接种新冠疫苗，导致母乳喂养的婴儿发生过敏反应甚至死亡。目前，已有许多案例证实由疫苗产生的S-蛋白的间接危害。
 
-参考链接：
+众议院吉姆·班克斯： [@ElbridgeColby](https://twitter.com/ElbridgeColby)上周在电台节 [#GroundedwithJimBanks](https://twitter.com/hashtag/GroundedwithJimBanks?src=hashtag_click) 上与我一起讨论中国对我们国家安全构成的威胁以及在人工智能等领域保持竞争力所需的进步。 【附该节目链接】
 
-[https://gtv.org/video/id=6150aa1442a8af3151a62508](https://gtv.org/video/id=6150aa1442a8af3151a62508)
 
-审稿 / 编辑 / 发稿：圣母院钟声
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
+> ICYMI: [@ElbridgeColby](https://twitter.com/ElbridgeColby?ref_src=twsrc%5Etfw) joined me last week on [#GroundedWithJimBanks](https://twitter.com/hashtag/GroundedWithJimBanks?src=hash&amp;ref_src=twsrc%5Etfw) to discuss the threat that China poses to our national security and the advancements needed in areas like AI to stay competitive. [https://t.co/wE6bpVuslC](https://t.co/wE6bpVuslC)
+> — Jim Banks (@RepJimBanks) [October 1, 2021](https://twitter.com/RepJimBanks/status/1444020520740077575?ref_src=twsrc%5Etfw)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+众议员吉姆·乔丹： 这是民主党想解雇的人，因为他们没有接种疫苗： -医生 -护士 -警察 -消防员 -老师 -边境巡逻人员 -航空公司工作人员 -记者 以下是应该被解雇的人： 民主党的人
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+> Here’s who Democrats want to fire because they didn’t get the vaccine:
+> 
+> -Doctors
+> -Nurses
+> -Police
+> -Firefighters 
+> -Teachers
+> -Border Patrol agents
+> -Airline workers
+> -Journalists 
+> 
+> Here’s who should be fired:
+> 
+> -Democrats
+> — Rep. Jim Jordan (@Jim\_Jordan) [October 1, 2021](https://twitter.com/Jim_Jordan/status/1443958724960391172?ref_src=twsrc%5Etfw)
