@@ -2,39 +2,41 @@
 ---
 
 
-## 有声|中共迫于人口低生育压力被迫废止部分计生恶法
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568807/)
+## 安联资产管理总裁杰奎琳亨特因司法部调查下台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1568812/)
 
-配音：纽约香草山美食部 – 玫瑰园
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-2.jpg)
+作者：香草山写作组 – 文一
 
 
 
-在中共治下，中共国内的生存环境日益恶化。据悉，对于墙内90后及00后的一代年轻人，他们的结婚以及生育愿望很低。据中共官媒的消息称，中共国目前已经有149个城市进入“深度老龄化”，而这些城市主要集中在东北、中部、长三角、黄河中下游以及成渝城市群地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-为此，迫于人口老龄化和低生育的压力，中共打着“优化生育政策，促进人口长期均衡发展”的旗号，不得不废止了《计划生育技术服务管理条例》、《社会抚养费征收管理办法》和《流动人口计划生育工作条例》等三项计生恶法。
 
-事实上，中共实行计划生育恶法的这40年来，已经有约4亿左右的无辜婴儿被残忍杀害，造成了无数的人间悲剧。更可悲的是，对于孩子的生育与否，中国老百姓完全没有自己做主的权利，一切都是共产党说了算。至于中共，从其最初的严格计划生育政策，到后来取消二胎惩罚措施，而今又允许民众生育三胎并予以奖励，民众可谓被中共的朝令夕改玩弄于鼓掌之间，毫无人权与自由。现今，墙内民众对鼓励生育政策的相应者寥寥无几，中国的生育率持续下滑。
 
-归根究底，共产党用实际行动表明了，它们就是“上管天、下管地、中间还管生殖器”的彻头彻尾的独裁恐怖组织。
 
-[文字版原文：中共迫于人口低生育压力被迫废止部分计生恶法](https://gnews.org/zh-hans/1565788/)
 
-音频处理：喜山必胜Maverick
+据《华尔街日报》9月30日消息，安联资产管理公司首席执行官杰奎琳-亨特将卸任。此举是司法部对该公司经营的一系列基金的损失进行调查后，管理部门作出的举措之一。
 
-*发稿：*Yuki jiang
+亨特女士于2016年加入安联，负责监督其资产管理和美国人寿保险业务，其中包括德盛安联资产管理公司和全球最大的债券经纪公司-太平洋投资管理公司，她的合同于2019年续签，本应留任至2022年。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+这家总部位于慕尼黑的公司是世界上最大的资产管理公司之一，管理着2.5万亿欧元，相当于2.897万亿美元。此次调查是由美国司法部和证券交易委员会于去年发起的。该公司则表示因无法预估罚款金额，因此没有预留经费。
+
+据报道，包括蓝十字蓝盾协会和阿肯色州教师退休系统在内的几个大型投资者，就数十亿美元的损失起诉了该保险公司。
+
+参考链接：
+
+[https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351](https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351)
+
+(本文仅代表作者观点)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

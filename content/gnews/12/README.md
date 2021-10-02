@@ -2,34 +2,39 @@
 ---
 
 
-## 阿拉斯加航空要求所有员工接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1568958/)
+## 最新文件再次证实，新冠病毒就是中共制造的生化武器
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568969/)
 
-- 编译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
+栏目记者/责任编辑：雪梨
+
+前国务院新冠来源调查员大卫·艾舍，在上周接受福克斯节目采访时表示，根据私人研究团体DRASTIC最新揭露的文件再次证实，新冠病毒就是来自武汉病毒研究所。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-29.png)
+病毒基因序列中的福林酶切位点，使病毒从蝙蝠传染到人类，并以高致病性的方式导致人传人。艾舍表示，美国已经掌握了新冠病毒的所有基因片段。
+
+武汉病毒研究所的合作伙伴：彼得·达萨克领导的纽约生态健康联盟，曾于2018年3月申请一项有关蝙蝠冠状病毒的功能增强研究。鉴于对大规模杀伤性武器方面的担忧，国防部的高级研究计划局（DARPA）否决了这一申请。而中共仍提供资金持续这项提高病毒致病性的研究。
+
+艾舍进一步表示，通过对蝙蝠、穿山甲和人源化小仓鼠进行功能增强研究，武毒所的研究人员还制造了类似COVID-19的超级病毒。这也验证了郭文贵先生此前的警示，中共不止研发了一种病毒，还有更致命的病毒系列。
+
+(本文仅代表作者观点)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/f918917a-1198-425e-8ede-e9627037b26e-medium16x9_210125_pio_alaska_airlines_max_jetliner_01.jpg)（图片：阿拉斯加航空公司）
 
-据ABC 7新闻台西雅图的报道，阿拉斯加航空集团表示，决定所有员工都需要这样做，因为拜登总统的行政命令说，联邦承包商的所有员工都必须接种该疫苗。
+参考链接：
 
-阿拉斯加航空集团在一份声明中说：“由于我们公司为联邦政府做了大量工作，我们已经确定阿拉斯加航空公司、地平线航空公司和麦基公司的员工——都是阿拉斯加航空集团的一部分——确实属于这项联邦疫苗强制令的执行对象”。这包括某些承包商和供应商，以及所有员工。
+[https://gettr.com/post/pcuhi842af](https://gettr.com/post/pcuhi842afhttps://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official)
 
-接种疫苗的员工如果在12月1日之前证明他们的全部疫苗接种，还可以获得200美元的报酬。然而，员工接种疫苗没有正式的最后期限。
+[https://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official](https://gettr.com/post/pcuhi842afhttps://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official)
 
-阿拉斯加航空公司最近决定所有新员工都需要接种疫苗，但直到现在才对现有员工作出说明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-**评论：**
+终审：暗黑
+校正/发稿：浪迹天涯
 
-**天下没有免费的午餐，如果疫苗真是好东西，不需要用200美元奖励来让大家去接种。让航空公司全员接种中共病毒疫苗绝对是灾难中的灾难。试想如果飞机在飞行的过程中万一飞行员突然脑梗心梗发作，乘客几乎没有生还的机会。这种短视政策无异于大规模屠杀平民。等新中国联邦带领我们战胜邪恶势力，他们必须受到正义的历史审判。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：**[abc 7新闻](https://wjla.com/news/nation-world/alaska-airlines-to-require-all-employees-get-the-covid-19-vaccine)(abc 7 News) | 作者：Gerald Tracy|发布时间：2021年10月2日
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
