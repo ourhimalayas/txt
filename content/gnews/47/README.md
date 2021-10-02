@@ -2,47 +2,59 @@
 ---
 
 
-## 10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1567080/)
+## 煤炭短缺难改，拉闸限电成“常态”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567585/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2.png)[图片来源](https://www.pharmaceutical-technology.com/features/rising-inflation-rates-impacting-economic-recovery/)
-**1.Five9 在股东投票后终止与Zoom近150亿美元的全股票交易**
+作者：香草山农场-鹰(文言)
 
-[Five9 公司的股东周四投票否决了这家呼叫中心软件公司以 147 亿美元出售给 Zoom的决定，这对 Zoom 在中共病毒疫情之后扩大其产品的计划造成了重大打击。在代理咨询公司机构股东服务 (ISS) 和 Glass Lewis 本月早些时候建议 Five9 股东投票反对该交易之后，Zoom 有史以来最大的收购交易终止，理由是增长担忧和双重股权。](https://www.foxbusiness.com/media/zoom-five9-to-terminate-nearly-15b-all-stock-deal-after-shareholder-vote)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-[根据 7 月宣布的交易条款，Five9 的股东每购买 Five9 股票将获得 0.5533 股 Zoom 股票。 这些条款意味着比 Five9 的市场价格溢价 12.8%，对该公司的估值为 147 亿美元。](https://www.foxbusiness.com/media/zoom-five9-to-terminate-nearly-15b-all-stock-deal-after-shareholder-vote)
 
-**2.****比特币、以太币、狗币在周五早上都小幅走高**
 
-[比特币上涨至 45,000 美元上方，并在早盘交易中上涨超过 4%。根据 Coindesk 的数据，比特币价格略高于每枚硬币 45,000 美元，而竞争对手以太币和狗币的交易价格分别约为每枚硬币 3,119 美元（+4.59%）和 20.6 美分（+2.61%）。在周四与众议院金融服务委员会成员举行的两小时会议上，美联储主席杰罗姆鲍威尔表示，他不打算禁止加密货币，但表示稳定币需要更严格的监管。据 Coindesk 报道，此次会议主要话题是向财政部长珍妮特·耶伦和鲍威尔询问财政部和美联储应对中共病毒疫情措施的论坛，但也提出了几个有关加密货币的问题。](https://www.foxbusiness.com/markets/bitcoin-ethereum-dogecoin-all-edging-higher-early-friday-morning)
+新浪网10月1日转载中国新闻网消息，近期多地拉闸限电，电力供应日趋紧张，受此影响居民照明用具销量猛增。
 
-**3.美国初次申请失业金人数意外上升**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片25.png)
 
-[尽管新增中共病毒病例有所减少，且艾达飓风的影响正在减弱，但上周仍有更多美国人申请了首次失业救济。美国劳工部的数据显示，截至 9 月 25 日当周，首次申请失业救济的美国人增加了 11,000 人，达到 362,000 人。 Refinitiv 调查的分析师预计首次申请的数量将下降至 335,000。](https://www.foxbusiness.com/economy/initial-jobless-claims-september-25)
+根据中共能源局数据，2020年全社会用电量7.511万亿度（同比增长3.1%），其中城乡居民生活用电量1.095万亿度（占比14.47%）。发电量上，2020年总计发电量7.417万亿度，其中火力发电5.2799万亿度（占比71.19%），即虽然近年来中共推行清洁能源（如太阳能、水能、核能），但受限于技术水平和发展进程，超过2/3的电力仍来源于火力发电，同时近年来用电量逐年上涨对应着火力发电的用煤量逐年攀高。
 
-[“负面意外警报：新申领失业救济金人数连续第三周上升，”Bankrate 高级经济分析师马克·哈姆里克 (Mark Hamrick) 表示。 “最近的增长使改善的希望落空。它似乎至少部分受到加利福尼亚州和密歇根州索赔增加的刺激。”](https://www.foxbusiness.com/economy/initial-jobless-claims-september-25)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片26.png)
 
-**4.****美康涅狄格州州长拉蒙特通知国民警卫队代替违反疫苗规定的工人**
+首先无论是2020年初CCP病毒疫情造成的大量人口死亡，焚烧尸体耗费的用电量和煤炭量猛增，其次为提振经济，中共号召扩大消费，增加汽车、大件商品的生产，再有赚取外汇的加工制造业“加班加点”，最终导致了去年煤炭消费量的猛增，从2019年的28.1亿吨提至2020年的49.8亿吨标准煤（同比上涨77.22%）。但是下游煤炭生产供应起伏较小，2020年的原煤产量（38.4亿吨）反而相比2019年略有下滑（0.156%），焦煤产量与2019年持平，2020年煤炭进口3.04亿吨，同比2019年上涨1.5%，煤炭供应的缺口直接导致了2020年底南方多地限电。
 
-[美康涅狄格州州长拉蒙特 (Ned Lamont) 已将通知所在州的国民警卫队保持戒备状态，并告诉他们计划积极部署，以取代他因拒绝遵守 COVID-19 疫苗任务而被裁员的州工作人员。拉蒙特周四警告说，州机构需要为下周的人员短缺做好准备，如果近四分之一的州工作人员仍处于他要求他们接种疫苗或服从命令的“不合规状态”，他们将面临无薪休假。 每周检测冠状病毒。](https://www.foxbusiness.com/economy/connecticut-gov-tells-national-guard-to-plan-on-replacing-unvaccinated-state-workers)
+进入2021年后，煤炭缺口依旧未得到有效缓解，一方面是澳大利亚的“灭共”政策导致经济上的脱钩，煤炭、铁矿石等能源进口归零，另一方面则是地方政府为增加贷款继续大搞基建，用电用煤消费不减，导致“拉闸限电”提前上演。虽然当年仅在工业用电上“限电”，但“做二休五”的限电力度已经侧面反映了当前电力的短缺（对应煤炭缺口），再加上外企的密集撤离，国内泡沫经济越加不堪重负，难以周转，更难以调集外资进口煤炭“救急”，煤炭的缺口只能日渐加大。
 
-[拉蒙特在一份声明中说：“我继续保持乐观，我们的员工将迅速提交他们的检测和疫苗接种信息。但正如我们在整个中共病毒疫情期间所做的那样，我们将为最坏的情况做好准备，以防止对该州提供的关键服务产生影响。”](https://www.foxbusiness.com/economy/connecticut-gov-tells-national-guard-to-plan-on-replacing-unvaccinated-state-workers)
+工业“限电”虽能一定程度上减少用电量，但工业产品的减量势必造成整个产业链的断裂以及国内各行业的“原料缺口”，转嫁至螺纹钢、铝锭、水泥等原材料的价格上涨，最终由消费者买单。中共加大对人民奴役和肆意掠取的力度、加大党内斗争和铲除异己的力度，再加上官场的贪污腐败和对底层民众的横征暴敛都预示着居民用电紧缺的即将上演。
 
-**5.****欧元区通胀跃升至 13 年高位，加剧欧洲央行的头痛**
+新闻来源：
 
-[欧元区通胀上个月触及 13 年高位，而且看起来可能还会继续升高，这进一步使欧洲央行对全球金融危机前最大价格飙升的良性看法蒙上阴影。欧盟统计机构欧盟统计局的数据显示，欧元区 19 个国家 9 月份的消费者价格通胀同比从一个月前的 3% 加速至 3.4%，为 2008 年 9 月以来的最高水平，略高于分析师预期的 3.3% 周五显示。价格上涨的主要原因是能源成本飙升，这主要是为了扭转 中共病毒疫情期间发生的油价暴跌，但生产和运输瓶颈的影响也显现出来，耐用品价格比 8 月份上涨了 2.3%。](https://www.reuters.com/world/europe/euro-zone-inflation-jumps-13-year-high-worsening-ecb-headache-2021-10-01/)
+[限电限产下，蜡烛销量大增，这些产品在涨价……](https://news.sina.com.cn/o/2021-10-01/doc-iktzqtyt9109372.shtml)
 
-**6.全世界工厂因供应受限而苦苦挣扎，成本上升**
+[2020年全社会用电量增长3.1% 电力需求呈稳步回升态势](http://www.gov.cn/xinwen/2021-01/21/content_5581518.htm)
 
-[周五的调查显示，全球制造业活动因供应链瓶颈和成本上升而遭受重创，而中共病毒疫情导致亚洲工厂停工以及中国经济增长放缓的迹象则加剧了这种情况。虽然 Delta 冠状病毒变种爆发消退的国家/地区的活动有所改善，但由于芯片短缺和供应中断影响了那些仍在努力摆脱 中共病毒 打击的国家，一些国家的增长出现萎缩。欧元区和英国制造业增长仍然强劲，但活动受到物流问题、产品短缺和劳动力紧缩的影响，这些问题可能会持续存在并保持高通胀压力。](https://www.reuters.com/business/global-economy-asian-factories-stagnate-chinas-slowdown-supply-constraints-hit-2021-10-01/)
+[2020年中国煤炭行业产量、消费量与进口情况分析 2020年煤炭进口量增至3.04亿吨【组图】](https://www.qianzhan.com/analyst/detail/220/210226-3c1c6e09.html)
 
-**7.澳欧贸易谈判因争执加深而推迟**
+[电力行业耗煤量同比下滑 2020年煤炭价格重心下移](https://finance.sina.com.cn/money/future/indu/2020-08-10/doc-iivhuipn7888564.shtml)
 
-[澳大利亚和欧盟之间的贸易谈判已被推迟，因为与法国就所谓的 Aukus 安全伙伴关系加深了争执。上个月，澳大利亚取消了与法国达成的一项耗资 370 亿美元（合 275 亿美元）的建造常规潜艇舰队的协议。相反，它将建造至少八艘采用美国和英国技术的核动力潜艇。这一决定激怒了巴黎，称该交易是美国和澳大利亚的“背后捅刀子”。事实上，在奥库斯协议宣布后不久，法国就召回了堪培拉和华盛顿的大使。](https://www.bbc.com/news/business-58757749)
+[2020年火力发电行业发展现状及前沿技术路线分析](https://power.in-en.com/html/power-2385843.shtml)
 
-**8.****美国 8 月消费者支出超出预期； 通货膨胀上升**
+[电力及公用事业周报：2020年全年发电量同比增长2.7% 火电、水电发电量同比增长1.2%、5.3%](http://stock.finance.sina.com.cn/stock/go.php/vReport_Show/kind/industry/rptid/664420325115/index.phtml)
 
-[美国 8 月消费者支出增幅超过预期，但对 7 月数据的下行保持了第三季度经济增长放缓的预期，因为 中共病毒感染的复苏抑制了对服务业的需求。美国商务部周五表示，占美国经济活动三分之二以上的消费者支出在 8 月份反弹了 0.8%，摆脱了全球半导体短缺导致汽车销售下滑的影响，这削弱了汽车生产 。7 月数据下行显示支出下降 0.1%，而不是之前报告的增长 0.3%。 路透社调查的经济学家此前预计，8 月份消费者支出将增长 0.6%。 政府提供的返校购物和儿童税收抵免可能会提振支出。](https://finance.yahoo.com/news/u-consumer-spending-beat-expectations-124637308.html)
+[南方多地开启“限电”模式！上班取暖全靠抖，这地连路灯都关了！](https://news.sina.com.cn/c/2020-12-18/doc-iiznctke7143664.shtml)
 
-By【秘密翻译组-金融组】
-作者：Andrew
+[能耗双控！多地限电限产，部分企业停产有单不敢接；芯片交付时间或进一步拉长](https://www.163.com/dy/article/GKOD4R6T0511CS15.html)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

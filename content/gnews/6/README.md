@@ -2,26 +2,21 @@
 ---
 
 
-## 【樱花宅急便】受电荒重挫 中共紧急请求俄罗斯供电
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1568512/)
+## 马克龙的援助后 （中共）病毒抑郁症计划
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1568597/)
 
-作者：东京樱花团｜文小白
-![](https://lh4.googleusercontent.com/wSMLoQTsAMuZ7vTBt0bsn7FLQCIeSgGERVYCyZ8bmAOIjrr7Q-kEhsketYnbqOhSOqIiIOr9ecP6whsZotPIJ5p3sjSwg8LnfwzovI-P0ocLMjoJ2SApi0oJq5IPdgIfbBBvt-2E=s0)[图片来源](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%BC%BA%E7%94%B5%E5%8D%B1%E6%9C%BA%E4%BF%84%E7%BD%97%E6%96%AF%E7%A7%B0%E6%94%B6%E5%88%B0%E5%8C%97%E4%BA%AC%E8%AF%B7%E6%B1%82%E5%B8%AE%E5%8A%A9/a-59360546)
-应中共的请求，俄罗斯10月将把输华电力增加一倍，以帮助中国缓解供电紧张。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10023.jpg)
+冠状（中共）病毒大流行及其带来的限制对心理健康产生了非常严重的影响。根据 Istituto Superiore di Sanità 进行的一项研究，长期和反复的封锁导致越来越多的人患有焦虑、抑郁、失眠，在某些情况下，还患上了创伤后障碍。为应对法国的这一问题，马克龙宣布了一项应对这一问题的计划，然而这却让该国的心理学家大发雷霆，指责总统没有分配足够的资源。
 
-路透莫斯科10月1日报道，俄罗斯电力出口垄断企业Inter RAOIRAO.MM周五（1日）表示，中共国家电网本周稍早请求该公司增加对中国北方省份的电力供应。应中共的请求，从10月1日起，该公司将通过2012年所建成的阿穆尔-黑河高压输电线路，把10月向中国供应的电力增加一倍，以期大大缓解中国东北三省的用电紧张局面。
+据[《世界报》](https://www.lemonde.fr/societe/article/2021/09/28/les-consultations-chez-un-psychologue-seront-remboursees-sur-prescription-medicale-a-hauteur-de-30-a-40-euros-a-partir-de-2022-annonce-emmanuel-macron_6096326_3224.html)报道，根据最近的一项调查结果，15% 的法国人表现出抑郁状态的迹象，23% 的人表现出焦虑状态的迹象和 10% 的人在这一年中有自杀念头。
 
-·延展阅读：[中国缺电危机：俄罗斯称收到北京请求帮助](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%BC%BA%E7%94%B5%E5%8D%B1%E6%9C%BA%E4%BF%84%E7%BD%97%E6%96%AF%E7%A7%B0%E6%94%B6%E5%88%B0%E5%8C%97%E4%BA%AC%E8%AF%B7%E6%B1%82%E5%B8%AE%E5%8A%A9/a-59360546)
+政府承诺在一年内在医学心理学领域创造 800 个工作岗位，投资 8000 万欧元用于行业创新研究。但这个措施引发了心理健康专业人士的抗议，全国心理学家联盟秘书长帕特里克·安吉·拉乌尔( Patrick Ange Raoult ) 称：平均而言，一小时的诊断费用在 50 到 60 欧元之间，仅报销 30欧元的这个措施可能会迫使无力支付差价的患者只要求半小时的咨询，这被认为是不够的。心理学家无法定义患者需要什么帮助，这对他们来说是一种侮辱。
 
-·延展阅读：[俄罗斯统一电力公司](https://baike.baidu.com/item/%E4%BF%84%E7%BD%97%E6%96%AF%E7%BB%9F%E4%B8%80%E7%94%B5%E5%8A%9B%E5%85%AC%E5%8F%B8/11014841)
+至于疫情对意大利公民心理的影响，根据一项研究，由于封锁，出现焦虑或抑郁症状的人数增加了一倍多。焦虑症患者从 18.1% 上升到 41.5%，而抑郁症患者从 14.3% 上升到 33.2%。酗酒和使用精神药物（事先未咨询医生）等危险和自毁行为也呈上升趋势。尽管如此，意大利政府尚未采取任何措施来应对这一问题。在意大利，心理治疗实际上是一种私人垄断。据估计，意大利 80% 的心理治疗费用都是由公民自掏腰包。
 
-Inter RAO表示，10月对中国的出口将同比增长100%，较原定计划增长90%。该公司补充称，所有三条俄中输电线路都将用于供电，这三条线路每年能够输送高达70亿千瓦时的电力。
+免责申明：本文只代表译者观点，与Gnews无关
 
-在与西方关系持续恶化的同时，中共加大从俄罗斯采购农产品、煤炭和能源，双边贸易额今年可望创历史记录。
+原文链接：[https://europa.today.it/attualita/depressi-covid-macron.html#\_ga=2.141986098.1486520036.1633082979-145009575.1615972944](https://europa.today.it/attualita/depressi-covid-macron.html#_ga=2.141986098.1486520036.1633082979-145009575.1615972944)
 
-[参考连接]：[应中国的请求 俄罗斯10月将把输华电力增加一倍以帮助中国缓解供电紧张](https://cn.reuters.com/article/chinaNews/idCNKBS2GS00S?irpc=932)
-
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 / 平安卿卿
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦

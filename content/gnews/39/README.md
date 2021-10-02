@@ -2,29 +2,29 @@
 ---
 
 
-## 哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568124/)
+## 台海局势严峻 &#8211; 10月1日凌晨，中共军机 9 次进入台湾领空
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568127/)
 
-栏目记者：正义的小新
-责任编辑：晓仙女
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
+栏目记者：andy5
+责任编辑：葛朗台太太
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
 
-在本周哈尔滨市召开的疫情防控新闻发布会上，新闻发布官员提到，若粮食市场出现供应紧张，将及时启动相应的应急响应。
 
-会上透露哈尔滨市有成品粮储备1.55万吨，加上黑龙江省在哈尔滨市储备的粮油，仅可以满足15日的口粮消费量。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture15.jpg)
-郭文贵先生直播中曾爆料：中共国粮食储备数据造假严重，粮食短缺问题严重，当前中共外汇短缺，将无法进口所需粮食，饥荒会在中共国大范围出现。
+当地时间10月1日凌晨开始，中共军机分别于 1 点 41 分、4 点 37 分、7 点 07 分、8 点整、8 点 46 分、9 点 05 分、9 点 11 分、9 点 19 分、9 点 40 分，九度进入台湾“ADIZ”（西南空域），高度约 8700 米。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture12.jpg)
+据台防务部门统计显示：中共军机在 2021 年已经累计 166 天进入台空域，519 架次。
 
-当下的哈尔滨，每日都有确诊新冠病毒新增病例，此时提出粮食应急预案问题，说明粮食危机已经开始。
+而在刚刚过去的9月份，中共军机在台湾西南空域更加活跃，共计 26 天，累计 116 架次出现在台湾空域，包括运八反潜机、运八技侦机和运八远干机等等机型。特别是在 9 月 24 日，中共军机携带 7 枚核弹出现在台湾领空。
+
+中共从未放弃武统台湾，台湾人民和世界人民都需要为可能的战争做好应对准备。
 
 （本文仅代表作者观点）
 
-参考链接：[哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应](https://3g.163.com/v/video/VGK51BO5C.html?spss=adap_pc)
+参考链接：
+1. [台海局势严峻 – 10月1日凌晨，中共军机 9 次进入台湾领空](https://www.facebook.com/SouthwestAirspaceofTW/)
+2. [台海局势严峻 – 10月1日凌晨，中共军机 9 次进入台湾领空](https://mil.news.sina.com.cn/china/2021-10-01/doc-iktzscyx7398564.shtml&quot;)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
@@ -38,4 +38,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)

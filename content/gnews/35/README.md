@@ -2,11 +2,10 @@
 ---
 
 
-## 美国军官提起诉讼要求法院阻止国防部的强制疫苗要求
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568149/)
+## 梵蒂冈将惩罚拒绝遵守中共病毒认证规则的员工
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568242/)
 
-栏目记者：正义的小新，文仁
-责任编辑：文仁
+栏目记者/责任编辑：AsG諾雅
 
 
 
@@ -16,22 +15,22 @@
 
 
 
-根据【AirForceTimes】报道：
+零对冲10月1日报道，从当日开始，梵蒂冈的工作人员如果不能证明已接种疫苗，或拒绝负担昂贵的中共病毒阴性测试，将被视为 “无理由旷工”而没有工资。许多基督徒宣称对疫苗接种有宗教豁免权，但梵蒂冈却没有提供这种变通。
 
-美国陆军参谋中士丹尼尔罗伯特和海军陆战队中士Hollie Mulvihill 于 8 月 17 日向科罗拉多州的美国地方法院提起诉讼，指控国防部强制军人注射新冠疫苗是非法和违宪的。这两名军人认为他们应该免于接种疫苗，因为他们已经感染了中共病毒，并且他们正在推动将案件认证为集体诉讼。
-
-法庭文件显示，服役军人称疫苗要求是“赤裸裸地利用原告的军人身份来对付他们，以推进不必要的公共卫生任务”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-2.jpg)
-他们还提出，如果有替代治疗方法，疫苗不应该是强制性的。他们将伊维菌素列为一种可行的替代方法。除了要求法院宣布疫苗要求是非法的并免除军人的费用外，原告还要求法院赔偿他们的律师费和认为合适的“任何其他救济”。两名军职人员均位于北卡罗来纳州。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-1.jpg)
+在意大利，普通民众已经开始觉醒，他们持续上街抗议政府的针对疫苗接种的强制措施，连警察也摘下头盔以声援示威者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-3.jpg)
 参考链接：
-[Troops ask court to block DoD’s vaccine requirement](https://www.airforcetimes.com/news/your-military/2021/09/30/troops-ask-court-to-block-dods-vaccine-requirement/)
+[Vatican To Punish Employees Who Refuse To Comply With COVID-19 Certification](https://www.zerohedge.com/covid-19/vatican-punish-employees-who-refuse-comply-covid-19-certification)
+[It’s not Catholic to say getting the COVID shot is ‘gift of love’](https://www.lifesitenews.com/opinion/the-fake-theology-behind-bishops-message-that-covid-jabs-are-a-gift-of-love/?utm_source=home_opinion&amp;utm_campaign=usa)
+[维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益](https://gettr.com/post/pcghq66fd9)
+[Latest from Archbishop Vigano: “Truth over Fear: COVID-19, The Vaccine, and The Great Reset”](https://www.raypeatforum.com/community/threads/latest-from-archbishop-vigano-truth-over-fear-covid-19-the-vaccine-and-the-great-reset.40306/)
+[Archbishop Viganò Warns of Satanic Nature of Vaccines with Fetal Tissue](https://stateofthenation.co/?p=75176)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-终审： Ryan
+终审： 鬼五
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

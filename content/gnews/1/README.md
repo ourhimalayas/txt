@@ -2,21 +2,45 @@
 ---
 
 
-## 马克龙的援助后 （中共）病毒抑郁症计划
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1568597/)
+## 有声| 论天国的仇敌：“兽印”成为当下疫苗暴政下的思考
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568648/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10023.jpg)
-冠状（中共）病毒大流行及其带来的限制对心理健康产生了非常严重的影响。根据 Istituto Superiore di Sanità 进行的一项研究，长期和反复的封锁导致越来越多的人患有焦虑、抑郁、失眠，在某些情况下，还患上了创伤后障碍。为应对法国的这一问题，马克龙宣布了一项应对这一问题的计划，然而这却让该国的心理学家大发雷霆，指责总统没有分配足够的资源。
+配音：香草山福音部-Daxia
 
-据[《世界报》](https://www.lemonde.fr/societe/article/2021/09/28/les-consultations-chez-un-psychologue-seront-remboursees-sur-prescription-medicale-a-hauteur-de-30-a-40-euros-a-partir-de-2022-annonce-emmanuel-macron_6096326_3224.html)报道，根据最近的一项调查结果，15% 的法国人表现出抑郁状态的迹象，23% 的人表现出焦虑状态的迹象和 10% 的人在这一年中有自杀念头。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-政府承诺在一年内在医学心理学领域创造 800 个工作岗位，投资 8000 万欧元用于行业创新研究。但这个措施引发了心理健康专业人士的抗议，全国心理学家联盟秘书长帕特里克·安吉·拉乌尔( Patrick Ange Raoult ) 称：平均而言，一小时的诊断费用在 50 到 60 欧元之间，仅报销 30欧元的这个措施可能会迫使无力支付差价的患者只要求半小时的咨询，这被认为是不够的。心理学家无法定义患者需要什么帮助，这对他们来说是一种侮辱。
 
-至于疫情对意大利公民心理的影响，根据一项研究，由于封锁，出现焦虑或抑郁症状的人数增加了一倍多。焦虑症患者从 18.1% 上升到 41.5%，而抑郁症患者从 14.3% 上升到 33.2%。酗酒和使用精神药物（事先未咨询医生）等危险和自毁行为也呈上升趋势。尽管如此，意大利政府尚未采取任何措施来应对这一问题。在意大利，心理治疗实际上是一种私人垄断。据估计，意大利 80% 的心理治疗费用都是由公民自掏腰包。
 
-免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://europa.today.it/attualita/depressi-covid-macron.html#\_ga=2.141986098.1486520036.1633082979-145009575.1615972944](https://europa.today.it/attualita/depressi-covid-macron.html#_ga=2.141986098.1486520036.1633082979-145009575.1615972944)
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+
+
+- **除了那受印记、有了兽名或有兽名数目的，都不得作买卖。在这里有智慧：凡有聪明的，可以算计兽的数目；因为这是人的数目，它的数目是六百六十六。（启示录 ****13:17-18 )**
+- **你们却不可耽延，要追赶你们的仇敌，击杀他们尽后边的人，不容他们进自己的城邑，因为耶和华你们的　神已经把他们交在你们手里“（书****10:19****）。**
+
+
+追求敬虔的基督徒生活的战友善于将生活中难以取舍的事向永生神陈明，祈求神的帮助，不让其肉体的情欲被仇敌激动。如接种中共病毒（COVID-19、Delta）疫苗，直到中共将所谓抗疫经验传播到全世界的时候想，一种新的暴政专制极权主义——疫苗暴政在民主国家兴起，且各国政府将接种无效且有严重副作用的疫苗当做首要普及任务，而不是经济。
+
+
+
+**文字版原文：[论天国的仇敌：“兽印”成为当下疫苗暴政下的思考](https://gnews.org/zh-hans/1480867/)**
+
+
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

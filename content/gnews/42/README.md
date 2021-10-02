@@ -2,39 +2,36 @@
 ---
 
 
-## 美國聯邦政府暫時解除停止運作危機
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1568076/)
+## 高盛认为8.2万亿美元地方债务的威胁比恒大更严重
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568101/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+高盛的分析师称，最令人担忧的是地方政府债务水平的飙升，习近平主席的手下已经在竭力掩盖了这一问题。与价值8.2万亿美元的未偿还地方政府融资平台相比，全球负债最多的房地产开发项目的违约问题似乎微不足道。
 
-作者：紐約香草山 雲豹
+中共国地方政府融资平台繁荣的问题在于伴随着它的不透明性。尽管自2012年以来，中共领导人一直在谈论让市场力量发挥 “决定性”作用，但他们却使中共国的透明度降低。信用评级系统也没有跟上中共国资本市场的发展步伐。
 
-9月30日，美國的參議院及眾議院相繼快速通過臨時開支法案（stopgap funding bill），並將該法案提交到白宮。拜登總統也趕在政府關門期限前簽署了此項臨時開支法案，讓聯邦政府得免於關門，可以暫時繼續運作至12月3日。
+如今，国际投资银行和新闻机构担心，对中共国地方政府债务泡沫的警告将使它们招致报复。因为这个亚洲最大的经济体，为贝莱德、摩根大通、瑞银和其它纷纷涌入的公司铺上了欢迎的红毯。
 
-拜登隨後發表聲明表示，感謝兩黨達成協議、避免了政府關門的危機。拜登表示，這項法案提供國家的關鍵緊迫性需求，讓聯邦政府可以繼續執行現前的工作。
+地方政府的借贷计划，触及了另一个令人担忧的地方事出有因：那就是中共国庞大的影子银行体系。可以肯定的是，作为控制影子银行的一部分措施，中共政府已经瞄准了超过1万亿美元的不透明产品，将其标榜为低风险和高收益的产品来销售。很多时候，这些所谓的现金管理产品将资金引向风险较高的借款人，如房地产开发商。
 
-如果此次臨時開支法案沒有順利通過，聯邦政府會關閉一些非必要性的政府機構，用剩於資金暫時保持軍事、航管、醫療、氣象、郵政、法務等少數必要單位的運行，維持最低度的運作。如果預算案托太久遲遲沒有通過，聯邦政府在沒有預算下，終究會關門，只是在歷史上沒發生過。
+这也难怪，一些全球最大的投资者对人民币计价的资产持观望态度。每当桥水公司的创始人雷·达里奥（Ray Dalio）为中共国公司唱赞歌时，就会有乔治·索罗斯(George Soros)警告那些急于进入大陆市场的人正在犯下“悲剧性错误”。在这两者之间，像方舟投资公司首席执行官凯西·伍德(Cathie Wood)这样的人正在努力辨别，中共国对科技行业的打压，是否是“买入”或“卖出”人民币资产的一个理由。
 
-(本文為作者觀點，不代表G NEWS 立場)
+日本1.75万亿美元的政府养老金投资基金是世界上最大的基金，也属于后者，（即唱衰人民币资产的那一拨）。它表示甚至不会将人民币计价的中共国主权债务纳入其投资组合。现在的时机对中共国很不利：富时罗素指数即将开始将中共国债务纳入其基准的全球债券指数。
 
-[參考連接]：
+今年7月，政府养老金投资基金总裁宫园正孝（Masataka Miyazono）表示，投资大鳄需对投资中共国债务持谨慎态度。而现在，习近平领导的中共国印证了这一判断。当然，更大的问题是，习近平不再支持中共国科技行业的同时，
 
-[https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+恒大的混乱与地方政府的过度债务发生冲突。
 
-[https://www.cna.com.tw/news/aopl/202110010028.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202110010028.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+如果你闻到来自大中华区（地方债务市场）的烟味，你就应该已经得到更多的信息了。
 
-审核 / 编辑 / 发稿: 圣母院钟声
+[原文链接](https://www.forbes.com/sites/williampesek/2021/09/30/goldman-flags-82-trillion-threat-worse-than-china-evergrande/?sh=5db0540215cc)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
+* * *
 
-**更多資訊，更多關注**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**紐約香草山農場****GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

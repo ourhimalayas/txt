@@ -2,59 +2,27 @@
 ---
 
 
-## 煤炭短缺难改，拉闸限电成“常态”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567585/)
+## 美国呼吁“严肃对待”朝鲜导弹发射
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1567976/)
 
-作者：香草山农场-鹰(文言)
+俄罗斯莫斯科喀秋莎农场   银河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N.jpg)knoe.com
+据朝鲜官方媒体报道，朝鲜9月28日试射了一枚新开发的高超音速导弹“火星-8”。9月30日朝鲜再次试射了一枚新开发的防空导弹以确认该发射器和系统其他部件的实用性。这是朝鲜9月进行的第四次导弹试验。此举引发了世界各国对朝鲜在这个导弹技术方面快速发展的担忧。
 
+据朝中社(KCNA)报道，朝鲜国防科学研究院(Academy of Defense Science)表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统方面具有非常现实的意义”，金正恩9月29日在朝鲜最高立法机构最高人民会议(Supreme People’s Assembly)上发表讲话时称，朝鲜的武器“正在以极快的速度发展”。
 
+美国国务卿安东尼·布林肯9月30日敦促国际社会认真对待北韩的导弹发射，他指出，这些发射造成了“更大的不稳定和不安全的前景”。同时指出，美国正在与亚洲盟友日本和韩国就处理朝鲜问题进行“非常积极的对话”。
 
-新浪网10月1日转载中国新闻网消息，近期多地拉闸限电，电力供应日趋紧张，受此影响居民照明用具销量猛增。
+日本政府表示，已经确定朝鲜此举违反了联合国安理会禁止使用弹道导弹技术的决议。同时谴责北韩的试射行为“令人极为遗憾”。与此同时，日本、美国和韩国9月30举行了电话会谈，对朝鲜最近与核武器和导弹开发计划有关的活动表示担忧。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片25.png)
+报道称，金正恩今年1月在执政的劳动党代表大会上表示，他希望加强朝鲜的军事能力和核武库，并补充说，朝鲜已经开发出了防空导弹。美国总统拜登(Joe Biden)领导的政府一直在重申愿意与朝鲜就无核化进行接触，但到目前为止没有任何进展。
 
-根据中共能源局数据，2020年全社会用电量7.511万亿度（同比增长3.1%），其中城乡居民生活用电量1.095万亿度（占比14.47%）。发电量上，2020年总计发电量7.417万亿度，其中火力发电5.2799万亿度（占比71.19%），即虽然近年来中共推行清洁能源（如太阳能、水能、核能），但受限于技术水平和发展进程，超过2/3的电力仍来源于火力发电，同时近年来用电量逐年上涨对应着火力发电的用煤量逐年攀高。
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片26.png)
+[https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
 
-首先无论是2020年初CCP病毒疫情造成的大量人口死亡，焚烧尸体耗费的用电量和煤炭量猛增，其次为提振经济，中共号召扩大消费，增加汽车、大件商品的生产，再有赚取外汇的加工制造业“加班加点”，最终导致了去年煤炭消费量的猛增，从2019年的28.1亿吨提至2020年的49.8亿吨标准煤（同比上涨77.22%）。但是下游煤炭生产供应起伏较小，2020年的原煤产量（38.4亿吨）反而相比2019年略有下滑（0.156%），焦煤产量与2019年持平，2020年煤炭进口3.04亿吨，同比2019年上涨1.5%，煤炭供应的缺口直接导致了2020年底南方多地限电。
+[https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
 
-进入2021年后，煤炭缺口依旧未得到有效缓解，一方面是澳大利亚的“灭共”政策导致经济上的脱钩，煤炭、铁矿石等能源进口归零，另一方面则是地方政府为增加贷款继续大搞基建，用电用煤消费不减，导致“拉闸限电”提前上演。虽然当年仅在工业用电上“限电”，但“做二休五”的限电力度已经侧面反映了当前电力的短缺（对应煤炭缺口），再加上外企的密集撤离，国内泡沫经济越加不堪重负，难以周转，更难以调集外资进口煤炭“救急”，煤炭的缺口只能日渐加大。
-
-工业“限电”虽能一定程度上减少用电量，但工业产品的减量势必造成整个产业链的断裂以及国内各行业的“原料缺口”，转嫁至螺纹钢、铝锭、水泥等原材料的价格上涨，最终由消费者买单。中共加大对人民奴役和肆意掠取的力度、加大党内斗争和铲除异己的力度，再加上官场的贪污腐败和对底层民众的横征暴敛都预示着居民用电紧缺的即将上演。
-
-新闻来源：
-
-[限电限产下，蜡烛销量大增，这些产品在涨价……](https://news.sina.com.cn/o/2021-10-01/doc-iktzqtyt9109372.shtml)
-
-[2020年全社会用电量增长3.1% 电力需求呈稳步回升态势](http://www.gov.cn/xinwen/2021-01/21/content_5581518.htm)
-
-[2020年中国煤炭行业产量、消费量与进口情况分析 2020年煤炭进口量增至3.04亿吨【组图】](https://www.qianzhan.com/analyst/detail/220/210226-3c1c6e09.html)
-
-[电力行业耗煤量同比下滑 2020年煤炭价格重心下移](https://finance.sina.com.cn/money/future/indu/2020-08-10/doc-iivhuipn7888564.shtml)
-
-[2020年火力发电行业发展现状及前沿技术路线分析](https://power.in-en.com/html/power-2385843.shtml)
-
-[电力及公用事业周报：2020年全年发电量同比增长2.7% 火电、水电发电量同比增长1.2%、5.3%](http://stock.finance.sina.com.cn/stock/go.php/vReport_Show/kind/industry/rptid/664420325115/index.phtml)
-
-[南方多地开启“限电”模式！上班取暖全靠抖，这地连路灯都关了！](https://news.sina.com.cn/c/2020-12-18/doc-iiznctke7143664.shtml)
-
-[能耗双控！多地限电限产，部分企业停产有单不敢接；芯片交付时间或进一步拉长](https://www.163.com/dy/article/GKOD4R6T0511CS15.html)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html](https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html)
