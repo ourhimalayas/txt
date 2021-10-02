@@ -2,17 +2,23 @@
 ---
 
 
-## 秘翻在线：日本发表首例与疫苗相关的血栓形成与血小板减少症报告
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568236/)
+## 秘翻在线：俄罗斯国有企业停止向匈牙利输送天然气
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568334/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1.png)（图片源自本文链接）
-日本朝日新闻10月1日报道称：日本发表首例与阿斯特拉疫苗相关的血栓形成与血小板减少症的报告。
+#### 文章撰写：寶寶
 
-日本厚生劳动省的一个专家小组10月1日表示，在接种阿斯利康公司生产的中共病毒疫苗后，出现了血小板减少的疑似病例。在其它国家，接种该疫苗后出现血栓并伴有血小板减少的病例已有报道，但在日本尚属首次。这是8月3日至9月19日期间的49,904次接种当中的一次，患者是一名48岁的男子。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gazprom-starts-suppdso-Hungary-bypassing-Ukraine.jpg)
 
-该男子已被送进医院，据说正在康复中。该专家小组说：由于信息不足，现阶段还无法评估因果关系，但会继续调查。
+据Disclose网站10月1日报道，乌克兰天然气运营商OGS表示，俄罗斯国有企业俄罗斯天然气工业股份公司（简称Gazprom）已于基辅时间10月1日上午7点（格林威治标准时间凌晨5点）完全停止通过乌克兰向匈牙利输送天然气。
 
-[信息源](https://www.asahi.com/articles/ASPB16H90PB1ULBJ00W.html)
+Gazprom与OGS签订了从2021年10月1日到2022 年9月30日的天然气输送合同，每天输送量达2460万立方米。
 
-（文章仅代表作者个人观点）
+俄罗斯开始使用“TurkStream”输送管道，即南部天然气路线，绕过乌克兰向匈牙利直接出售天然气，无视与乌克兰现有的合同。
+
+匈牙利总理奥尔班（Orban）今天在国家电视台表示，他“无法承认乌克兰在这场冲突中的立场”。
+
+与此同时，欧洲的天然气现货价格已超过1,200 美元每1,000立方厘米。 本周初价格为1,100美元，上周为1,000美元，不断突破历史新高。
+
+参考文章：[**Gazprom stops gas transit to Hungary through Ukraine**](https://www.disclose.tv/gazprom-stops-gas-transit-to-hungary-through-ukraine/)
+
+本文仅代表作者本人观点，不代表Gnews平台

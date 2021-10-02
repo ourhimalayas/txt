@@ -15,145 +15,145 @@
 
 ---
 
-### [沁园春·缺芯片](/content/gnews/1/README.md)
- ` 首尔天池农场`
-
-### [秘翻在线：俄罗斯国有企业停止向匈牙利输送天然气](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共地方政府债务规模2020年底就已达到了8.2万亿美元](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [CDC 政策变化早已证实其明显的欺骗行为](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [以色列取消旅行禁令 放宽疫情限制](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国政府批准军队从周一开始运送汽油](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [傅政华被调查,在海外的傅永斌赵月琳赵燕曦可曾安好？](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共国政协社会和法制委员会副主任傅政华接受审查调查](/content/gnews/8/README.md)
- ` 首尔天池农场`
-
-### [梵蒂冈将惩罚拒绝遵守中共病毒认证规则的员工](/content/gnews/9/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：日本发表首例与疫苗相关的血栓形成与血小板减少症报告](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生提出的“以疫苗灭共”在世界影响巨大](/content/gnews/11/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：中共派二十多架战斗机进入台湾领空碰瓷](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共“一带一路”的隐性债务高达3850亿美元](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [抗中共霸凌 潜水世锦赛11国自愿撤下国旗力挺台湾](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [G时评：疫苗毒针的策略分析](/content/gnews/15/README.md)
- ` GISELLE`
-
-### [美国军官提起诉讼要求法院阻止国防部的强制疫苗要求](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [澳大利亚第一大州领导人因反腐机构展开调查而辞职](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [美国加州圣荷西市正式就其反华政策和歧视历史向华人社区道歉](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [中共利用西方的体系对西方国家进行颠覆](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [高盛认为8.2万亿美元地方债务的威胁比恒大更严重](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年10月1日郭先生盖特 — 视频盖特1「3分14秒」](/content/gnews/21/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [议员呼吁拜登政府将中共生物技术公司列入黑名单](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [银河快讯：日本自民党新内阁幕僚人选敲定；真子公主将于26日结婚](/content/gnews/23/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [一项关键加密服务到期，致数百万人的互联网瘫痪](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥一周聊：加密稳定币是世界的未来](/content/gnews/25/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [美國聯邦政府暫時解除停止運作危機](/content/gnews/26/README.md)
- ` 纽约香草山MOS03`
-
-### [中共派遣具备核能力的轰炸机入侵台湾](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年10月01日澳喜要闻（每日更新）](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [10月1日中共38架次军机扰台，为今年最大规模](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [受中共病毒影响，9月日本国内新车销量下降约三成](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国殇日香港部署超过8000警力](/content/gnews/31/README.md)
- ` 纽约香草山MOS01`
-
-### [美国呼吁“严肃对待”朝鲜导弹发射](/content/gnews/32/README.md)
- ` HimalayaRussia`
-
-### [文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（五）](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [塔克·卡尔森：中共病毒疫苗不安全也不有效](/content/gnews/34/README.md)
- ` HimalayaRussia`
-
-### [震惊! Covid疫苗实含有DNA（不仅仅是RNA）在身体内合成刺突蛋白](/content/gnews/35/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [香草山医疗视角节目中战友关心的问题及回答(2021-9-26)](/content/gnews/36/README.md)
- ` 纽约香草山MOS03`
-
-### [10/01/2021 七哥盖特：习近平周围都是江曾王孟的爪牙，习一神危险了](/content/gnews/37/README.md)
- ` 秘密翻译组-北美组`
-
-### [这里的黎明静悄悄 ——小镇反新冠疫苗宣传活动](/content/gnews/38/README.md)
- ` 纽约香草山MOS02`
-
-### [焦点：中共国电荒是全球经济崩盘的导火索](/content/gnews/39/README.md)
- ` 军迷wilson`
-
-### [外科医生警告，飞行员可能因疫苗副作用在飞行途中死亡](/content/gnews/40/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [煤炭短缺难改，拉闸限电成“常态”](/content/gnews/41/README.md)
- ` 纽约香草山MOS02`
-
-### [有声|教育部“双减”政策下的一些学校的对策](/content/gnews/42/README.md)
- ` MOSREC`
-
-### [有声|印尼930排华事件五十六周年，新中国联邦不会让历史重演！](/content/gnews/43/README.md)
- ` MOSREC`
-
-### [有声|美FCC斥资19亿主导拆除中共国网络设备](/content/gnews/44/README.md)
- ` MOSREC`
-
-### [NBA德雷蒙德称强制疫苗是政治战争 违背了自由意志](/content/gnews/45/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [因电力短缺，东北多地停电](/content/gnews/46/README.md)
+### [恒大投资受害者举着红旗游行要求还钱](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [强生科学家私下认为不要打强生疫苗，但是仍支持强推疫苗](/content/gnews/47/README.md)
+### [孟晚舟将生不如死，习近平对政治对手发出明确信号](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线：美最高法院大法官布雷特·卡瓦诺感染中共病毒](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [沙拉靠自己治疗疫苗副作用，因为医疗保健系统令人失望](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [由于资金短缺，清华紫光集团面临破产或法院主导的重组](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [还记得民主党人曾经讲述的对疫苗的看法吗？](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [夏里·马克森：福奇对川普只字不提武毒所基因改造冠状病毒](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [在中国工商银行存款的无故消失引发储户愤怒](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [沁园春·缺芯片](/content/gnews/9/README.md)
+ ` 首尔天池农场`
+
+### [秘翻在线：俄罗斯国有企业停止向匈牙利输送天然气](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共地方政府债务规模2020年底就已达到了8.2万亿美元](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [CDC 政策变化早已证实其明显的欺骗行为](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [以色列取消旅行禁令 放宽疫情限制](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国政府批准军队从周一开始运送汽油](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [傅政华被调查,在海外的傅永斌赵月琳赵燕曦可曾安好？](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共国政协社会和法制委员会副主任傅政华接受审查调查](/content/gnews/16/README.md)
+ ` 首尔天池农场`
+
+### [梵蒂冈将惩罚拒绝遵守中共病毒认证规则的员工](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：日本发表首例与疫苗相关的血栓形成与血小板减少症报告](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生提出的“以疫苗灭共”在世界影响巨大](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：中共派二十多架战斗机进入台湾领空碰瓷](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共“一带一路”的隐性债务高达3850亿美元](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [抗中共霸凌 潜水世锦赛11国自愿撤下国旗力挺台湾](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [G时评：疫苗毒针的策略分析](/content/gnews/23/README.md)
+ ` GISELLE`
+
+### [美国军官提起诉讼要求法院阻止国防部的强制疫苗要求](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [澳大利亚第一大州领导人因反腐机构展开调查而辞职](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [美国加州圣荷西市正式就其反华政策和歧视历史向华人社区道歉](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [中共政府命令能源公司不惜一切代价确保冬季燃料供应](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [中共利用西方的体系对西方国家进行颠覆](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [高盛认为8.2万亿美元地方债务的威胁比恒大更严重](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年10月1日郭先生盖特 — 视频盖特1「3分14秒」](/content/gnews/30/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [文·贵天成——文贵先生谈“孙力军”（一）](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [议员呼吁拜登政府将中共生物技术公司列入黑名单](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [银河快讯：日本自民党新内阁幕僚人选敲定；真子公主将于26日结婚](/content/gnews/33/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [一项关键加密服务到期，致数百万人的互联网瘫痪](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥一周聊：加密稳定币是世界的未来](/content/gnews/35/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [美國聯邦政府暫時解除停止運作危機](/content/gnews/36/README.md)
+ ` 纽约香草山MOS03`
+
+### [中共派遣具备核能力的轰炸机入侵台湾](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年10月01日澳喜要闻（每日更新）](/content/gnews/38/README.md)
+ ` 澳喜农场`
+
+### [10月1日中共38架次军机扰台，为今年最大规模](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国呼吁“严肃对待”朝鲜导弹发射](/content/gnews/40/README.md)
+ ` HimalayaRussia`
+
+### [塔克·卡尔森：中共病毒疫苗不安全也不有效](/content/gnews/41/README.md)
+ ` HimalayaRussia`
+
+### [震惊! Covid疫苗实含有DNA（不仅仅是RNA）在身体内合成刺突蛋白](/content/gnews/42/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [10/01/2021 七哥盖特：习近平周围都是江曾王孟的爪牙，习一神危险了](/content/gnews/43/README.md)
+ ` 秘密翻译组-北美组`
+
+### [焦点：中共国电荒是全球经济崩盘的导火索](/content/gnews/44/README.md)
+ ` 军迷wilson`
+
+### [外科医生警告，飞行员可能因疫苗副作用在飞行途中死亡](/content/gnews/45/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [煤炭短缺难改，拉闸限电成“常态”](/content/gnews/46/README.md)
+ ` 纽约香草山MOS02`
+
+### [因电力短缺，东北多地停电](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/48/README.md)

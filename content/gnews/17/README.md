@@ -2,10 +2,10 @@
 ---
 
 
-## 澳大利亚第一大州领导人因反腐机构展开调查而辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568148/)
+## 梵蒂冈将惩罚拒绝遵守中共病毒认证规则的员工
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568242/)
 
-栏目记者/责任编辑：文一
+栏目记者/责任编辑：AsG諾雅
 
 
 
@@ -15,26 +15,22 @@
 
 
 
-CNBC 10月1日讯- 澳大利亚新南威尔士州领导人贝雷吉克连周五宣布辞职，并称一旦该州的自由党能够选出新的领导人，她的辞呈将立即生效。
+零对冲10月1日报道，从当日开始，梵蒂冈的工作人员如果不能证明已接种疫苗，或拒绝负担昂贵的中共病毒阴性测试，将被视为 “无理由旷工”而没有工资。许多基督徒宣称对疫苗接种有宗教豁免权，但梵蒂冈却没有提供这种变通。
 
-贝雷吉克连是在该州反腐败监督机构启动对其在2012年至2018年期间是否存在违规违法行为后递交辞呈的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-2.jpg)
-因其政府在处理新南威尔士州的中共病毒疫情危机时面临越来越多的批评，该机构加强了对该领导人的调查，并定于10月18日举行公开调查。
-
-据澳大利亚的政府数据显示，新南威尔士州有超过10,000个新冠病例，仅次于维多利亚州。
-
-该州政府的限制措施导致悉尼和墨尔本等主要城市发生反封锁抗议活动，警方与数千名抗议者发生冲突。
-
-新南威尔士州和维多利亚州都宣布计划在70%的人口完全接种疫苗后放松一些限制。据报道，这两个州预计将在本月达到这一数字。
-
+在意大利，普通民众已经开始觉醒，他们持续上街抗议政府的针对疫苗接种的强制措施，连警察也摘下头盔以声援示威者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-3.jpg)
 参考链接：
-[Leader of Australia’s most populous state resigns as corruption watchdog launches investigation](https://www.msn.com/en-us/news/world/leader-of-australias-most-populous-state-resigns-as-corruption-watchdog-launches-investigation/ar-AAP1DmX)
+[Vatican To Punish Employees Who Refuse To Comply With COVID-19 Certification](https://www.zerohedge.com/covid-19/vatican-punish-employees-who-refuse-comply-covid-19-certification)
+[It’s not Catholic to say getting the COVID shot is ‘gift of love’](https://www.lifesitenews.com/opinion/the-fake-theology-behind-bishops-message-that-covid-jabs-are-a-gift-of-love/?utm_source=home_opinion&amp;utm_campaign=usa)
+[维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益](https://gettr.com/post/pcghq66fd9)
+[Latest from Archbishop Vigano: “Truth over Fear: COVID-19, The Vaccine, and The Great Reset”](https://www.raypeatforum.com/community/threads/latest-from-archbishop-vigano-truth-over-fear-covid-19-the-vaccine-and-the-great-reset.40306/)
+[Archbishop Viganò Warns of Satanic Nature of Vaccines with Fetal Tissue](https://stateofthenation.co/?p=75176)
 
 （本文仅代表作者观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-终审： Ryan
+终审： 鬼五
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,39 +2,49 @@
 ---
 
 
-## 美國聯邦政府暫時解除停止運作危機
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1568076/)
+## 美国加州圣荷西市正式就其反华政策和歧视历史向华人社区道歉
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568143/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+栏目记者：正义的小新，文仁
+责任编辑：文仁
 
-作者：紐約香草山 雲豹
 
-9月30日，美國的參議院及眾議院相繼快速通過臨時開支法案（stopgap funding bill），並將該法案提交到白宮。拜登總統也趕在政府關門期限前簽署了此項臨時開支法案，讓聯邦政府得免於關門，可以暫時繼續運作至12月3日。
 
-拜登隨後發表聲明表示，感謝兩黨達成協議、避免了政府關門的危機。拜登表示，這項法案提供國家的關鍵緊迫性需求，讓聯邦政府可以繼續執行現前的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-如果此次臨時開支法案沒有順利通過，聯邦政府會關閉一些非必要性的政府機構，用剩於資金暫時保持軍事、航管、醫療、氣象、郵政、法務等少數必要單位的運行，維持最低度的運作。如果預算案托太久遲遲沒有通過，聯邦政府在沒有預算下，終究會關門，只是在歷史上沒發生過。
 
-(本文為作者觀點，不代表G NEWS 立場)
 
-[參考連接]：
 
-[https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-[https://www.cna.com.tw/news/aopl/202110010028.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202110010028.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+据【旧金山金门报】9月30日报道，位于加州湾区的圣荷西市正式向当地中国移民极其后裔就历史上不公正和歧视行行为道歉。市长萨姆·利卡尔多 (Sam Liccardo) 向聚集在市中心的数十名华裔美国人、盟友和公职人员宣读了决议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.2.jpg)
+该决议由市议会一致通过，继续“寻求宽恕并承诺纠正过去的政策和不当行为。”  ，它详述了自 1849 年华裔美国人开始移民美国以来，圣何塞市议会、州和联邦政府以及居民所造成的无数错误。与美国历史上许多被排斥的群体一样，华裔美国人为当地社区和经济做出了巨大贡献，但遭到政府和社会各方面的攻击和歧视。即使在 1943 年废除《排华法案》时，华裔美国人也被系统地排除在社会的许多方面之外。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1.1.jpg)
+在中共向世界放出病毒和推行疫苗以来，已经在美国和世界各国埋下了罪恶的种子，一旦病毒与疫苗真相被揭露出来后，一场全球的反华排华运动可能随时发生。郭文贵先生在9月23日的直播中指出：华人被排挤的灾难即将到来，新中国联邦各农场要做好保护海外华人的安全的准备。在向世界传播真相的同时，要大力宣传中国人不等同于中共， 在灾难到来前要做好自救与互助的应急措施。
 
-审核 / 编辑 / 发稿: 圣母院钟声
+参考链接： 
+[City Formally Apologizes To Chinese Community For Its History Of Anti-Chinese Policies And Discrimination](https://www.sfgate.com/news/bayarea/article/City-Formally-Apologizes-To-Chinese-Community-For-16498625.php)
+[2021年9月23日文贵直播：疫苗，病毒灾难远远还没开始；恒大事件被掩盖的房地产的资金池子，影子银行，保险会爆雷，一旦爆雷国际金融货币市场将崩塌；中共准备放更多病毒以镇压抗议游行，新病毒是热毒；许家印一定会猝死；华人被排挤的灾难即将到来，新中国联邦各农场做好保护海外华人安全的准备](https://gtv.org/video/id=614c897242a8af3151a3c790)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
+（本文仅代表作者观点）
 
-**更多資訊，更多關注**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+终审： Ryan
+校对/发稿：为真不破20
 
-[**紐約香草山農場****GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**更多资讯，更多关注**
 
-[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
