@@ -2,15 +2,32 @@
 ---
 
 
-## 秘翻在线：郭文贵先生盖特影响力排名第一
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569234/)
+## 中共内部决战已经开启!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569330/)
 
-**撰稿： WENJIE   **
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+10月1日，郭文贵先生在盖特视频中爆料，习、孟、王、曾、江的大决战已正式拉开帷幕，多个单位和部门已做好和习长期作战的准备。其中，外交部是江家的天下，只要外交部持续出击，江家和孟建柱便安然无恙；王岐山在政法系统根基深厚，只要中纪委和政法委人员稳定，王岐山就平安无事。而在国内房地产即将崩塌，各地限电引发民怨的当下，习的处境却非常危险。西方政要已经充分意识到，中共政府处于极不稳定的状态，习随时可能被政治对手击溃。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/111.png)
-根据盖特CEO杰森·米勒先生（Jason Miller）的最新盖文，爆料革命的发起人郭文贵（Miles Guo）先生在盖特的个人影响力单日综合评分达到128,060，位居第一位。该影响力是基于盖特使用者的发文量、转发量、点赞数、新订阅用户数以及个人资料浏览次数这五部分综合评比而构成。盖特的CEO杰森·米勒先生排名第二，他的评分是22,729，与第一名的郭先生的评分相差悬殊，由此可见郭先生的影响力非同一般。杰森在盖文称赞并恭喜了郭先生，认为郭先生做得太出色了。上榜的前十名影响力账号还包括大家熟悉的班农战斗室（第七位）以及美国前国务卿彭培奥先生（第八位）。另外，杰森也发布了本周在英国和美国盖特账号蹿升速度最快的前十名，里面不乏我们的爆料革命战友三票先生和铁血组成员之一大卫等。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-2.jpeg)
 
-基于这些账号的成绩，我们可以看出郭文贵先生引领的爆料革命在美国及西方社会的影响力。爆料革命灭共的目标已经深入美国人民心中。特别是近期在盖特对中共病毒和疫苗真相的揭露，正在唤醒世界，聚集更多渴望了解真相，追求正义的人们的聚集。可以预见，盖特替代推特的日子正在加速到来，爆料革命的影响力也正在全世界飞速增长。
+纵观全球，文贵先生说，继澳洲新南威尔士州州长因腐败问题辞职、日本政治大地震后，英国、欧盟、美国等全世界的官员也将因强制接种疫苗而陆续辞职。爆料革命传递的病毒和疫苗真相，正在影响着世界的政治格局。
 
-衷心祝福郭先生荣登盖特第一人，也期待秘密翻译组以及更多战友们再创佳绩！
+历史处于大变革时期，世界最黑暗的时刻还没有到来。新中国联邦人，更要保持警惕，持续地向当地政要和媒体传播疫苗真相。
+
+（本文仅代表作者观点）
+
+参考链接: [https://gettr.com/post/pctat2db2e](https://gettr.com/post/pctat2db2e)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

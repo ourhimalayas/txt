@@ -2,33 +2,35 @@
 ---
 
 
-## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
+## 美国国会议员呼吁将中共生物技术公司列入监管黑名单
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1569430/)
 
-作者：香草山健身部 – 文真
+**撰稿：日本东京方舟农场 海星**
 
+9月30日，美国国会议员科顿（Tom Cotton）和加拉格尔（Mike Gallagher）致函拜登政府，呼吁将包括北京华大基因研究所等在内的15家中共生物技术公司列入监管黑名单。
 
+据《美国之音》报道，议员们在给拜登政府的信中写道，华大基因在中共经济的国防和材料等相关领域开展业务，其所涉及的活动违反了美国国家安全和外交政策利益，它显然是中国共产党“军民融合”战略的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+议员们表示，华大基因的国家基因数据库可能会被中共用于军事研究，并运用在生化武器中，这一点令人极其担忧。
 
+议员们还对华大基因使用国家补贴购买美国企业来收集美国民众基因和健康信息的企图感到非常不安。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211002185301.png)图片来自于网络
 
-9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
+信中指出，除华大基因以外，还有至少14家中共生物技术公司为美国医疗保健使用者进行基因组测序工作，根据中共的法律，这些公司几乎肯定已经与中共分享了这些数据。
 
-“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
+议员们在信中要求将华大基因和其它中共生物技术公司列为财政部“非特别指定（Non-SDN) 中国军工综合体企业”清单，禁止这些公司在美国交易所进行交易。
 
-参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
+他们还要求将这些公司列入商务部的实体清单和国防部的中共军事公司名单，前者将对这些公司实施严格的出口许可要求，后者直接将这些公司锁定为中共军民融合公司。
 
-（本文仅代表作者观点）
+此外，美国国会议员鲁比奥（Marco Rubio）在今年5月提出了两项法案，《基因组和强化国家安全法》和《基因组数据安全法》，旨在透过加强美国基因和医疗系统的相关交易法规，解决中共采集美国民众基因数据所构成的威胁。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+*注：本文仅代表作者观点，与 Gnews无关*
 
-编辑/审核/发稿：正义的小新
+*参考链接：*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[美国会共和党人致函拜登政府 点名“华大基因”列管黑名单](https://www.voachinese.com/a/us-lawmakers-letter-biden-admin-blacklist-bgi-20211001/6254372.html)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,26 +2,27 @@
 ---
 
 
-## 广东电价上调25%引发全国涨价潮 通胀将全面传导
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1569195/)
+## 孙立军被双开 傅政华被调查 中共内部决战已经开启
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569266/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-33.png)
-[图片来源](//www.china5e.com/news/news-1119074-1.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-10月2日，阿波罗新闻网报导，中国供电严重不足，继广东省宣布调涨25%电价后，湖南等省份纷纷表示将跟进上调电价。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据悉，湖南省将在确定电力市场交易基准价格的基础上，引入火力发电企业购煤价格作为参数，按波动调整交易价格上限，建立火力发电市场交易价格上限浮动机制，这意味着电价即将上调。
+视频参看：2021.10.02早GTV新闻访谈
 
-虽然，目前俄罗斯已同意增加对中国的供电以缓解北方省份电力短缺问题，但买电付出的成本，将可能部分被转嫁至消费者身上。此外，中国的热能供应等问题也相当严重，煤炭工业协会在日前发出的一份通知中指出，目前国内电煤供应持续紧绷，电厂存煤明显偏低，预计“迎峰度冬期间电煤供应前景不容乐观”。
+[https://gtv.org/broadcast/watch/6158506b304e992109adf896](https://gtv.org/broadcast/watch/6158506b304e992109adf896)
 
-笔者认为伴随着国际煤炭价格飙涨，自然会影响电价，电厂一定会将成本转嫁给消费者，因此人民生活成本将会大幅增加，工业产品的价格上涨，其下游那些消费产品的价格也将无可避免的上涨，这种恶性连锁反应恐进一步加剧中共经济、社会和民生的灾难。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-[信息来源](//www.aboluowang.com/2021/1002/1654581.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-
-校对：东京樱花团/喜马拉雅的微尘
-
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-5.png)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
