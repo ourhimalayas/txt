@@ -2,51 +2,151 @@
 ---
 
 
-## 普京警告Facebook删除俄罗斯禁止的内容
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1569519/)
+## 强制疫苗接种和拒绝承认自然豁免的理由是什么
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569579/)
 
-作者：香草山教育部- Naughty（文行）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/at0wh-gh9kr.jpg)
+[https://gtv.org/video/id=6158a2bad2e2b81748705b19](https://gtv.org/video/id=6158a2bad2e2b81748705b19)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**Senator Ron Johnson**
+**参议员罗恩·约翰逊**
 
+Let’s look at some data,
+让我们看一些数据
 
+the type of data that we’re not getting from our healthcare agen-cy
+这类数据是从我们的医疗保健机构无法获得的
 
-俄罗斯总统普京称，如果Facebook不立即从平台上删除恋童癖相关内容，将对其进行严惩。
+so we have to look, unfortunately to England, and Israel, they’re more transparent.
+所以不幸的是我们必须看看英格兰和以色列的，他们更透明
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4.jpg)
+I don’t, I don’t expect anybody to be able to read the figures show
+我不期待任何人能够阅读显示的数字
 
-周四，普京政府威胁说，如果这家社交媒体巨头拒绝删除俄罗斯禁止的内容，将向Facebook处以巨额罚款。
+I’ll give you, I’ll give you the highlights
+我会给你们一些重点
 
-此举是在普京发誓要惩罚YouTube在平台上审查独立内容的几天后。
+but I’m showing that this is from Public Health England.
+但我展示的这是来自英国公共卫生部
 
-俄罗斯技术和电信监管机构Roskomnadzor在接受路透社采访时表示，它将向Facebook办公室部署政府特工来执行罚款。
+This is one of their, their federal health care agencies.
+这是他们其中的一个联邦医疗保健机构
 
-Dailycaller.com报道：俄罗斯于6月宣布与持不同政见者和弗拉基米尔·普京批评者阿列克谢·纳瓦尔尼有关联的团体为“极端主义者”，宣布纳瓦尔尼相邻政党为非法，并冻结其支持者的银行账户。纳瓦尔尼目前正在服刑（两年），是2020年9月中毒袭击的受害者。
+This is from their technical briefing number 23, date September 17 2021.
+这是从他们的技术简报第 23 号，日期为 2021 年 9 月 17 日
 
-据彭博社报道，9月中旬，在Facebook和谷歌母公司Alphabet拒绝代表俄罗斯审查内容后，俄罗斯威胁要处以高达其在俄罗斯年收入20%的罚款。
+It covers cases for about seven and a half months,
+它涵盖了大约七个半月的案例
 
-这一威胁是莫斯科不断努力控制美国科技公司的最新进展。
+from the beginning of February to February 12
+从2月初至2月12日
 
-俄罗斯外交部周三表示，在视频平台删除了两个国家支持的传播COVID-19错误信息的渠道后，它计划阻止俄罗斯人访问YouTube。YouTube首席执行官Susan Wojcicki也没有否认该公司从其平台上删除了对海军相关内容的指控。
+what the data shows. Is it during that seven half month period in England.
+数据显示的是，是在英格兰的七个半月期间的
 
-9月中旬，苹果和谷歌在俄罗斯当局威胁起诉的情况下，从他们的应用程序商店中删除了链接纳瓦尔尼的投票应用程序。纳瓦尔尼的支持者使用该应用程序来协调投票活动，并在俄罗斯议会选举前被删除。
+There were about 750,000 new COVID cases
+大约有75万例新的 COVID 病例
 
-普京近期针对YouTube 、Google和Facebook的一系列举动再次证实了郭先生此前的判断——当今世界比核武器更有威力的是社交媒体。也正是基于此郭先生带领爆料革命新中国联邦先后创建了GTV、GNews和GETTR，在黑暗势力笼罩全球之前为正义力量抢到了一席发声之地，让世界还有机会听到看到真相。
+about little under 600,000， those were the Delta variant about 80%,
+大约略低于 60万例的，那些大约 80%是德尔塔变种
 
-在这次新冠疫情爆发以及随后疫苗危机的恶化中，社交媒体无处不在影响着人们的判断和行为。只有了解并相信真相的人在这场危机中获得了救赎。作为正道主义的践行者，爆料革命新中国联邦的战友们应该继续积极宣传病毒和疫苗危机真相，以GTV和GETTR为基础，利用社交媒体这把利剑刺破谎言的阴霾，把真相散播到所有的媒体平台，让更多的人看到真相并采取明智正确的行动，让所有追求正义的人们一起联手战胜黑暗，度过危机。
+the number of deaths associated with those 600,000 Delta cases was 2542,
+与这 60万例德尔塔变种病例相关的死亡人数为 2542人
 
-校对/发稿：飞虹
+which gives us a case fatality ratio of about point four.
+这给了我们大约0.4％的病死率
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+Again, case fatality is higher than infection fatality
+再次，病死率高于感染死亡率
 
-**更多资讯，更多关注**
+because these are actually registered cases
+因为这些实际上是登记的案例
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+and they’re all kinds of infections that never get registered.
+而且有很多各种感染的病例从未登记过的
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+So to put this in context, an infection fatality rate for a bad flu season
+所以把这个放在这个情况，一个严重流感季节的感染死亡率
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+is slightly under point two, half of this
+是稍微低于0.2％，病死率的一半
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+just can put things in perspective.
+就可以把事情看得很透彻
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+Now, President Biden this has been parroted by media, news media said
+现在，拜登总统这已经被媒体，新闻媒体炒作说
+
+that what we are currently experiencing a pandemic of the unvac-cinated.
+我们目前正在经历的是一场未接种疫苗人群的流行病
+
+They don’t give us really any data to back that up.
+他们没有给我们任何数据来支持这个主张
+
+They just do proclaim pronounced that 99% of people with COVID now are unvaccinated.
+他们只是宣布现在99%的COVID患者都没有接种过疫苗
+
+But they don’t give us the data. We have data from England.
+但是他们不给我们数据，我们有来自英格兰的数据
+
+And here’s the data. So of the 600,000 cases in England,
+这是数据，在英格兰的60万个病例中
+
+43% were unvaxxed 27% with, with the fully vaxxed.
+43%是没有接种疫苗的，27%是完全接种疫苗的
+
+Another 30% with were partially vaxxed, or just undetermined.
+另有30%的接种了部分疫苗，或只是未确定
+
+But I think what’s interesting, because here’s another quote, President Biden,
+但我认为有趣的是，这是另一句话，拜登总统说
+
+President Biden said if you’re vaccinated, you’re not going to be hospitalized.
+拜登总统说，如果你接种了疫苗，你就不会去住医院
+
+You’re not going to an ICU unit, you’re not going to die.
+你不会去重症监护室病房，你不会死
+
+You’re not going to get COVID If you have these vaccinations.
+如果你接种了这些疫苗，你就不会感染 COVID
+
+Well, maybe that’s true in the US, I kind of doubt it
+好吧，也许这在美国是真的，我真的很怀疑
+
+because in England, of the 600,000 new cases of delta of the over 2500 deaths,
+因为在英国，在超过2500人死亡的60万起新增病例中
+
+63% of those deaths 1613 People with, with fully vaccinated.
+63%的死亡的人，1613人是完全接种过疫苗的
+
+28% were the unvaxxed.
+28%是没有接种过疫苗的
+
+Now, this is information the American people who probably never heard.
+现在，这是美国人民可能从未听说过的信息
+
+It’s information by conveying, I will get attack, I will be vili-fied,
+这些信息被传达出去，我会受到攻击，我会被诽谤
+
+I will be censored, I will be suppressed.
+我会被审查，我会被压制
+
+So the reason I’ve come to the Florida Senate to reveal this in-formation
+所以这是我来佛罗里达州参议院透露这些信息的原因
+
+that American people need to know.
+这是美国人民需要知道的信息
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:** [https://twitter.com/senronjohnson/status/1443777704994672644?s=21](https://twitter.com/senronjohnson/status/1443777704994672644?s=21)
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
