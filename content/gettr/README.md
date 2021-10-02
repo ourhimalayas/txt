@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 5:21 PM (UTC)`
+
+🙏🙏🙏【‼️罗马，意大利 🇮🇹 ‼️<br/><br/>经过努力部分警察已经决定不对人民采取行动，而是与人民在一起。爆料革命太牛了 】
+![img](https://media.gettr.com/group30/getter/2021/10/02/17/21/73c903c6-119f-bdee-dc8e-122adabb350a/out.jpg)
+
+---
+
+`@miles 10/2/2021 5:19 PM (UTC)`
+
+2015年，傅振华与郭文贵先生的秘密通话（下）<br/>傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱<br/><br/>In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 2-2)<br/>Fu threatened Mr. Guo's family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu's overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu's decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
+![img](https://media.gettr.com/group14/getter/2021/10/02/17/19/73bb2fe1-7b64-9478-87bb-26fd2e556fdb/out.jpg)
+
+---
+
 `@miles 10/2/2021 5:08 PM (UTC)`
 
 2015年，傅振华与郭文贵先生的秘密通话（上）<br/>傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱<br/><br/>In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 1-2)<br/>Fu threatened Mr. Guo's family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu's overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu's decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
@@ -280,20 +294,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 以色列COVID-19 疫苗受害者证词(四）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
 ![img](https://media.gettr.com/group41/getter/2021/09/29/19/03/34796001-c3de-b0ff-0041-e1fc5c3522e4/out.jpg)
-
----
-
-`@miles 9/29/2021 6:24 PM (UTC)`
-
-9月29号：这是轮回报应，还是巧合？？？【真係邪，今日彥霖妹妹向黑警索命，死八婆女警！】
-![img](https://media.gettr.com/group6/getter/2021/09/29/18/24/39cffe0d-b33d-c368-21c9-7460fda3915e/432eae69a8f9371617d9ae17d2a6b716.jpg)
-
----
-
-`@miles 9/29/2021 8:17 AM (UTC)`
-
-CCP’s mouthpiece Jin Canrong again released wild words to create public opinion for the unification of Taiwan by force： There are at least ten benefits in solving the Taiwan issue<br/><br/>中共喉舌金灿荣再放狂言，为武统台湾制造舆论：解决台湾問題, 至少十大收益<br/>
-![img](https://media.gettr.com/group3/getter/2021/09/29/08/17/b3bcba9a-c1bb-b4aa-d554-c1f32893a78e/out.jpg)
 
 ---
 
