@@ -2,117 +2,191 @@
 ---
 
 
-## 文贵先生9月29日G-TV大直播摘要
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567587/)
+## 零对冲对加密货币市场最新变化的更新（FW39）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567756/)
 
-作者：香草山教育部-月野兔
+作者：纽约香草山信息部 – 6zero4
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
 
-直播视频🔗[2021年9月29日文贵大直播：以史为鉴洞察世事灭毒灭共](https://gtv.org/video/id=615466c142a8af3151a74ee3)
-全文字版🔗[2021年9月29日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1565198/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片27.png)
-摘要：
-•疫苗灾难发生重大转折
-•中共国停电最根本原因是没外汇了
-•火币清退大陆客户退款到国内
-•新G-TV投资者将享有更多福利
-•正道主义会彻底干掉国家主义
-•排华最危险的几个国家
-•德国未来会成为新的帝国之一
-•何晶可能做新加坡的慈禧垂帘听政
-•澳大利亚是新中国联邦在南半球最重要的核心总部
 
-### 疫苗灾难
+![](https://assets.gnews.org/wp-content/uploads/2021/10/13.png)
+**2021****年****9****月****20****日，****Coinbase****宣布放弃推出加密借贷平台计划（****USDC APY****），****SEC****“赢”了？**
 
-1.上次大直播到今天直播，疫苗灾难发生重大转折：强制打疫苗在欧洲基本结束，在日本一半结束，在台湾也会停下来。
-2.推动澳大利亚政客在强制打疫苗上做出改变的最大功劳属于爆料革命战友，政治小组给澳相关政府发送的文件至少有两万份。
-3.政治小组提供给各国政府部门的文件和情报，他们只有两种选择：1，视而不见，但日后这会是犯罪，因为他已看过文件；2，按照文件做出改变，不再强制打疫苗。
-4.战友们做视频没有逻辑性，不会讲自己的故事，一回回被路大脑骗那帮孙子捡占山头阵地。
+继2021年9月8日Coinbase的CEO阿姆斯特朗（Brian Armstrong）在推特上抨击SEC的过度长臂管辖，且SEC威胁要起诉Coinbase的加密交易所新贷款计划（USDC APY）的两周后，9月17日他在一篇博客中证实，Coinbase将不会启动该贷款计划。
 
-### 中共国停电
+![](https://assets.gnews.org/wp-content/uploads/2021/09/6-11.png)
 
-1.中共国原统计局局长王保安说偷电是解决财务上黑洞的好方法，随便改个数字就能弄几百亿，美国、台湾、俄罗斯，全世界都这样干；
-2.中共国现有19个核电站，其中9个因技术问题不能工作，在建核电站32个；台湾有4个核电厂，其中1个不能工作。
-3.中共国年用电量7.8万亿千瓦，工业用电至少3万亿千瓦；美国年用电量4.5万亿千瓦，工业用电大概1万亿千瓦。
-4.中共国人均每月用电60～67度，每年约700度电；美国居民人均每月用电约500度，每年5000～6000度电。
-5.中共国一吨煤发电8400～8700度电，每年总电力收入8万多亿人民币，约一万多亿美元，1/3发电用煤从澳大利亚进口。
-6.头两天澳大利亚总理说习近平好久不接他电话了，习不接澳电话的资本就是每年给澳几千亿美元的煤市场，但澳反习不反共亲江胡。
-7.这次共产党停电的根本问题是没有外汇买煤了；占比2/3的工业用电是给美欧做外加工，中共国挖矿成本高/产的煤污染高，习要政治面子也不愿从澳继续进口煤。
-8.这次停电是中共国电力腐败的大露馅儿，也是一场共产党的政治大较量，会动从未动过的能源板块和发改委，牵扯到中纪委。
-9.共产党电力腐败剥削老百姓，停电更说明了中共视人民如牲畜不顾其死活，政治斗争永远牺牲的是人民的利益。
+在此博客中，阿姆斯特朗表示，SEC最近出现了一些非常恶劣的行为，在Coinbase继续努力为整个加密货币行业寻求监管清晰度的同时，我们做出了一个艰难的决定： Coinbase将不会启动USDC APY借贷项目！且更新了其Lend计划发布网站，并将其关闭了。Coinbase的目标是为客户创造伟大的产品，增加世界的经济自由度。我们有来自美国全国各地成千上万的注册客户，感谢他们对Coinbase的兴趣，我们将不会停止创新，为客户寻找和开发值得信赖的方案和产品。
 
-### 虚拟币
+有趣的是，在今天Coinbase宣布放弃USDC APY这一针对散户的贷款计划的同时，却推出了针对机构投资者的Coinbase Prime产品。
 
-1.七哥昨天第一次把七嫂给的去年的过年红包花出去了100美元现金。
-2.过去十年间所有上市的币七哥都买了，为了学习、看规则，这块七哥磨剑磨了很久。
-3.用火币洗钱最多的是中共国军方还有政法委，重庆帮、江苏帮的钱都放在火币；吴征也是火币的最大使用者，替孟建柱洗钱；王岐山的贯君、刘呈杰、海航都是用火币洗钱的；许家印很多钱在火币。
-4.火币是共产党在海外抓情报、获取黑钱脏钱、军火商交易、打入暗网的利器，因此获得了中央大力扶持，但最后发现是政法委护航金融机构开路往外洗钱的重要通道，成百上千亿美元进了火币，所以抓了火币老板，政法委也要出事。
-5.区块链技术美国和中共国都破不了，共产党哪怕抓了火币老板，也拿不走钱，所以前两天火币公布要清退大陆客户，把钱退到上海银行、邮储银行、中国银行。
-6.国内的战友们要记住：要想钱存得安全、保值，只有虚拟货币，存在任何传统银行，共产党都可以把账封了。
-7.香港政府正式说“正在内地研究扩大人民币在香港股票交易中的使用”，这就是要干掉港币，七哥2017年就说过港币会消失。
-8.未来贬值最多的货币排序：港币会消失，人民币会变冥纸，美元大打折扣、加拿大元、英镑、欧元、澳大利亚元、日元。
-9.台湾只要一开战，钱就变成了纸。
-10.世界上目前虚拟币中只有喜币是安全的，因为有稳定币、支付系统、20%与黄金挂钩。
-11.共产党害怕如果不管火币，喜币、稳定币就成了全中共国钱流向的唯一洼地，预估喜币在一两年内可能会形成几千亿上万亿的规模 ，所以共产党要干掉喜币，但是病毒和疫苗灾难让全世界恐惧，越来越多的钱流进喜币。
-12.谷歌拿了中共国几个广告商几亿美元不发布3件事:郭文贵和疫苗、郭文贵和喜币、郭文贵和盖特。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/2-26.png)
 
-### 新GTV投资者
+Entrepreneur.com的普里斯特利（Daniel Priestley）表示，这是加密货币领域的一个转折点，SEC此举被视为一个重要的警告信号，表明SEC打算与加密货币相关企业正面交锋。在未来的一年里，世界各地的金融监管机构很可能将目光转向加密货币业务，并要求它们遵守仍在起草的专项法规和传统证券法。唯一的例外将是那些已经受到监管而可以出售证券的公司，或者受到监管的银行，他们将受益于加密货币资产交易的延续，并可能在行业中占据主导地位。
 
-1.七哥已经为新GTV投资者争取到了盖特5%原始股权、喜联储5%股权、G-Clubs10%股权，这次七哥进山开会再提议新GTV投资者未来可以1:1换股盖特，也可以1:1换股喜联储。
-2.喜联储/G-TV/盖特股东给战友移居目标岛国投150亿美元，每个战友就可以支付5万美元全家拿新中国联邦特殊护照，护照优先发放给法治基金捐款者和G-Clubs会员。
-新中国联邦/正道主义
-1.爆料革命要开辟东欧市场，在瑞士的政治组的一位女战友自荐，她是《幽灵》电影女主角的双胞胎妹妹，会讲流利的中文、俄罗斯文、希伯来语。
-2.战友们正在做的是摩西“劈山过海”故事的现实版，所以没打过疫苗的战友一定要做一切尝试要孩子。
-3.德国大选默克尔大败，原因之一就是共产党；加拿大特鲁多这次提前大选也输得很惨，只有辞职；日本新首相岸田文雄是最反共的；台湾人一定会把朱立伦灭掉。
-4.没打疫苗，你是人生最大赢家，保了命；有虚拟币，你是财富上最大的赢家，保住了钱；加入新中国联邦，你是人类上唯一有希望的人。
-5.新中国联邦不是国家，新中国联邦人因为共同的信仰——正道主义走到了一起，不分种族、不分肤色。
-6.正道主义会彻底干掉国家主义，因为国家要求纳税，限制人的行为，对信仰有各种要求，而且养活了一帮骗子、笨蛋。
-7.七哥创造的各地农场概念就是超出国家概念的大联邦概念，现在被很多西方人在研究。
-8.七哥看过很深很深的地下的东西，也看过很高很高地上的东西，都是战友们见不到的，七哥希望没有任何利益、没有任何东西挡住和战友们在一起享受这些东西，这是为什么叫G-Clubs，为什么要有喜联储、喜币。
+Coinbase和其他大型加密货币公司如BlockFi和Celsius目前仍拥有强大的影响力，但加密货币业务的重点将未必是自己的白皮书、品牌和精心设计的智能手机应用程序，而是将更多地与监管审批有关。随着加密货币的发展，整个行业已经受到全球监管机构的关注，并开始整顿这个行业。
 
-### 排华
+**Dalio****说比特币有“估算价值，而不是内在价值”**
 
-1.1968、1998年印尼排华，110万华人被虐，五六十万人被杀，全世界选择了沉默，共产党叫好，苏哈托竟然安详到老年不受惩罚，他家族成员在欧洲过好日子。
-2.没有共产党就没有排华，最排华的是共产党，爆料革命要灭共，维护华人的利益，必须依法跟苏哈托算账，
-3.排华最危险的国家：澳大利亚、美国、印度、日本，都有可能发生比印尼还夸张的排华罪行，而且是一秒钟就起来，控制不住的。
-4.日本骨子里就看不起华人，一旦有机会一定全面排华。
-5.美国LeMay将军是西方出现的白鬼，他无差别烧死了60万日本人，日本人给他发了个最高荣誉勋章，但LeMay不要。
+桥水基金创世人Ray Dalio在谈到比特币时坚称，这种加密货币有“估算价值，而不是内在价值”。如果政府没有“扼杀”比特币，它将成功且其价值将比现在“高得多”。
 
-### 德国
+![](https://assets.gnews.org/wp-content/uploads/2021/09/8-21.png)
 
-1.英国脱欧以后，欧洲最大的关系是德国和俄罗斯，未来影响欧洲最大的人物是普京，普京会重启俄罗斯天然气西输管道，示弱欧洲进行大量的能源合作，要把俄罗斯石油大部分替代中东石油出口到特别是德英。
-2.德国现在最大的问题是通讯，产业结构不合理导致它只能亲俄亲中或亲日，这届政党可能从亲中完全转向亲俄。
-3.全世界未来的发电中核电最厉害，还会有生物发电，巴西、澳大利亚、德国、加拿大一定是未来新的帝国。
-4.德国会发展新能源、新通讯方式，甚至在生物科技、电脑上德国也可能一跃到前。
-5.德国在经济调整过程中，欧盟欧元可能会崩塌，越崩塌，德国越强大，但德国这种政治动荡和经济结构产业调整可能要等五年甚至几十年，从现在开始经济技术政治都是蹦蹦车状态，高福利的时代已经过去了。
+**9****月****21****日，加密货币在缩减购债谈判和债务天花板释疑之前暴跌**
 
-### 新加坡
+今天加密资产价格再次受挫……
+![](https://assets.gnews.org/wp-content/uploads/2021/09/10-34.png)
+比特币试探性下跌至8月初以来的100天移动均线（100DMA）之最低水平…
 
-1.新加坡的货币比较安全，有一半以上的保值完全可期，但李显龙家族会动荡，今明两年可能开始接代。
-2.李显龙不在以后，他太太何晶可能带孩子垂帘听政一段时间，延续家族独裁制。
-3.新加坡是合法洗钱的国家，在美中之间玩两边跳，共产党完蛋后，新加坡长期看是不行的，但在这次经济危机中，新加坡还是有优势的。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/11-42.png)
 
-### 澳大利亚
+然后典型反弹……
 
-1.派往其他国家合作的政治组，包括建基地项目、农场项目，都需要加入一些中国人战友，语言好，形象好，教育好，真心灭共，高素质，高执行力，能代表新中国联邦对外打交道。
-2.澳喜和雅典娜农场总做不起来，澳大利亚很多战友鼠目寸光、小作坊思想，让人很失望，七哥希望农场能凝聚更多的人才。
-3.新中国联邦绝不局限于一国一地一族，澳大利亚一定会成为新中国联邦在南半球最重要的核心总部。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/12-30.png)
 
-校对/发稿：飞虹
+**9****月****21****日，因****SEC/OCC****质疑私人货币形式的“长期可行性”，并发出“清算”警告，导致加密货币崩溃**
+
+曾在MIT教授过一门加密领域课程的SEC主席根斯勒（Gary Gensler）正力图让加密货币行业人士相信，他将成为这个新兴行业的“朋友”。他今天表示所有加密货币交易所都必须在SEC注册并受其监管，否则“会有很多人受到伤害”，其逻辑是广泛的监管对于促进“广泛采用”是必要的。根斯勒认为大多数私人形式的加密货币都没有“长期可行性”，因此有必要围绕这一问题建立一个投资者保护机制。根斯勒还进一步将稳定币等加密货币比作赌博的筹码，其稳定币几乎就像赌场里的扑克筹码。根斯勒对加密货币的这一通评论，立即被头条新闻记者跟进报道，导致比特币和以太坊的价格再次下滑。
+
+货币监理署（OCC）代理主席迈克尔（Michael Hsu）今天也表示，随着加密货币与去中心化金融（DeFi ）的发展，将演变成各国金融体系几乎以相同的方式监管其衍生品，并可能正在走上一条类似于2000年代早期CDS（信贷违约掉期）的道路。
+
+Coinbase前高管、迈克尔的前任布鲁克斯（Brian P. Brooks）曾在OCC领导了一项支持加密货币的行动，建立了更受该行业欢迎的政策，并为一些公司提供银行牌照。迈克尔担任OCC主席后却暂停了这些加密货币行业的友好政策，并与监管机构一起呼吁跨部门采取统一监管做法。
+
+迈克尔对加密货币行业的诋毁甚至更进一步，他表示加密货币与去中心化金融解决实体经济问题的办法很少，且清算可能就要开始了，“加密货币的铁杆信徒”可能会让位于不太接受这些加密资产风险的传统货币主流用户，后者将“主导并驱动市场反应”，因此加密货币投资可能意味着更大的恐慌风险甚至被瓦解。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/15-12.png)
+
+今天加密货币在SEA和OCC的双重打击下，恐惧情绪（FUD）推动加密货币走低就不足为奇了，比特币和以太坊价格试探性下降到了100天移动平均线（100DMA）的水平……
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/16-12.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/17-9.png)
+
+但CoinTelegraph却乐观地指出，加密货币恐惧与贪婪指数降到了27分（满分为100分），为三个月以来的最低点，正转向极端恐惧信号，表明加密货币市场正经历一段投资者恐惧期，但从另一个层面表明了比特币可能被低估。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/18-8.png)
+
+一名Reddit用户引用“谣言时买入，真话时卖出”这句常见的交易咒语，并说交易员应该“在恐惧时买入，在贪婪时卖出”。并表示加密货币等颠覆性新事物，在变得越来越成功的路上难逃被摧毁的命运，这似乎是目前业界的宿命，因为一个由个人主体使用的去中心化平台怎能击败霸权？
+
+**9****月****22****日，加密货币价格走势**
+
+今天早上美联储的核心机构联邦公开市场委员会（FOMC）发出将在2022年加息并预计在2022年年中结束量化宽松的强势声明，这是美联储2018年以来最强硬的一次声明，金融市场的下意识反应是“有趣的”，比特币应声上涨……
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/19-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/20-8.png)
+今天晚些时候因为来自恒大集团同意支付9月23日到期的本地债券利息这个头条新闻，引发了加密货币价格的上涨，比特币随之飙升……
+
+在最近两次FOMC声明期间，加密货币一路狂飙，但比特币今天的价格与上次FOMC声明时的价格相比却几乎没有变化……
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/21-9.png)
+
+**9****月****22****日，肯塔基州发生针对学生的枪击案，疑与附近学校刚刚发生的以比特币支付的炸弹威胁事件有关**
+
+大约在美国东部时间当日早上6:30，在肯塔基州的路易斯维尔市（Louisville），3名学生正在位于市中心正西边拉塞尔街区（Russell neighborhood）的一个角落等待校车时遭遇枪击，当时一名身份不明的袭击者开车从此经过并向他们开枪，导致1死2伤，嫌犯仍在逃。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/22-8.png)
+
+2名伤者中，一名14岁的男孩被送往医院，伤势没有生命危险；另一名14岁的女孩被子弹轻微擦伤并在现场接受了治疗。这三名学生都就读于杰斐逊县（Jefferson County）公立学区的东部高中。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/25-5.png)
+
+警方正在收集线索并将启动全面调查，以找到罪犯。枪击案发生前不久，附近的几所学校就因一系列炸弹威胁事件而采取了疏散措施，且这些炸弹威胁都要求对方支付价值50万美元的比特币。
+
+**9****月****23****日，****Twitter****宣布用户可以用比特币给人“打赏”了！**
+
+加密货币倡导者多尔西（Jack Dorsey）创建的Twitter，今天宣布新“打赏”功能将于本周向全球所有苹果iOS用户推出，并在未来几周内对安卓用户开放，并表示Twitter不会从中分一杯羹。这让世界Twitter用户可用比特币“打赏”他们最喜欢的推友。基于此好消息，Twitter股价当天上涨了3%，比特币当天价格也因此攀升。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/24-3.png)
+
+同时，Twitter也正在整合比特币钱包Strike的服务，以便推友可将比特币账户添加到自己的Strike钱包中，从而方便发送和接收比特币等加密货币的打赏。早先Twitter的比特币打赏功能仅作为产品测试的一部分对少数用户开放，更早前Twitter用户就只能用法币通过PayPal的Venmo，或多尔西自己创建的Square的Cash等传统支付工具打赏。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/25-5.png)
+
+Twitter当天表示还在试验一项新功能，允许用户在社交网络上“验证和展示”他们的非代币（NFTs）资产收藏，因为推友对区块链相关的应用越来越感兴趣，以助推友在Twitter上可以直接参与到一个不断发展的去中心化互联网中。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/26-3.png)
+
+比特币“打赏”功能是Twitter帮助高端用户将其付出的劳动转化为金钱的最新举措，以帮助活跃推友筹集资金，同时也为比特币打造一个支付平台。Twitter最近还推出了“超级粉丝”功能，用户可以付费观看会员节目。其它社交媒体机构无疑也会密切关注Twitter的最新打赏功能，因为加密支付被认为是正在崩溃的数字媒体行业的潜在救星。
+
+**9****月****24****日，在中共封杀加密货币的气氛中，加密货币领域普遍暴跌**
+
+在当天最大的隔夜新闻中，由中（共）国人民银行（PBOC）、中央网信办、最高人民法院、最高人民检察院、工业和信息化部、公安部、市场监督总局、银保监会、证监会和外汇局总共10个部门联合发布的《关于进一步防范和处置虚拟货币交易炒作风险的通知》正式向外界披露，该通知旨在加强对加密货币交易市场的全面监控和打击。该通知其实早在9月15日就已经开始在中共内部公布并执行了。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/27-4.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/28-3.png)
+
+这一消息导致加密货币领域暴跌8%，与加密货币相关的股票在美国盘前交易中也大幅下跌：Marathon Digital (MARA)下跌6.5%，Bit Digital (BTBT)下跌4.7%，Riot区块链(RIOT)下跌5.9%，Coinbase下跌2.8%。
+
+本周由于恒大（Evergrande）面临大范围减债（broad-based degrossing）而引发的流动性恐慌，以及中共宣布加密交易“非法”，加密货币受到了沉重打击，哀鸿遍野……
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/29-2.png)
+
+比特币价格目前仍保持在4万美元以上……
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/30-2.png)
+
+比特币本周三次获得其100日移动平均值（100DMA）的支持……
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/31-4.png)
+
+**加密网络机器人“****Flashbots****”可以让交易员轻易跳过加密网络交易线而享受抢先服务**
+
+2021年9月26日
+
+抢先交易不再是城堡投资公司（Citadel）的专利，同样的事情也开始在加密货币领域快速发展。Citadel是一家总部位于芝加哥的跨国对冲基金金融服务公司，其交易频率是同行业之冠，也是加杠杆最高的对冲基金，堪称对冲基金之王。
+
+加密网络上的加密机器人现在可以发现哪些交易者正在进行代币交易，且可以立即下单并领先于别人已经存在的订单完成交易，这对于那些拥有加密机器人的交易员来说，是一个双赢的局面：即如果需要，你就能抢在其他交易员完成交易之前完成你自己的交易，而抢先得到一个很好的代币交易，并推高了其他买家必须支付的价格，最终自己轻松获利。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/32-3.png)
+
+在加密领域进行这些类型的交易要比在股票或期货市场容易得多。加密网络上有很多机器人可以下载，同时Flashbots的免费开源工具就是其中开发加密机器人的平台之一，它让创建这些类型的机器人变得很容易。Flashbots的创造者表明他们只是在“试图解决一个严重的问题”，即加密矿工在处理账本交易时，有权决定区块链网络中的哪些交易获得优先级。在Flashbots的拍卖功能中，允许交易员对加密矿工队列中的位置进行竞价，并允许交易员向拍卖赢家收取一定的费用，Flashbots “通过插队创造了一个市场”。
+
+参考及图片来源：
+
+[Coinbase Drops Plans To Launch Crypto-Lending Platform; SEC ‘Wins’?](https://www.zerohedge.com/crypto/coinbase-drops-plans-launch-crypto-lending-platform-sec-wins)
+
+[QE Infinity: Ray Dalio Warns US Will See Another Round Of QE After Taper](https://WWW.ZEROHEDGE.COM/MARKETS/QE-INFINITY-RAY-DALIO-WARNS-US-WILL-SEE-ANOTHER-ROUND-QE-AFTER-TAPER)
+
+[Stocks Pump’n’Dump As Crypto Slumps Ahead Of Taper-Talk, Debt-Ceiling Doubts](https://WWW.ZEROHEDGE.COM/MARKETS/STOCKS-PUMPNDUMP-CRYPTO-SLUMPS-AHEAD-TAPER-TALK)
+
+[Crypto Crashes As SEC/OCC Warn Of ‘Reckoning’, Question “Long-Term Viability” Of Private Forms Of Money](https://www.zerohedge.com/crypto/crypto-crashes-secocc-warn-reckoning-question-long-term-viability-private-forms-money)
+
+[Offshore Creditors Remain In Limbo As Evergrande Agrees To Pay Thursday’s Interest On Local Bonds Only](https://WWW.ZEROHEDGE.COM/MARKETS/FUTURES-CRYPTO-SURGE-EVERGRANDE-MAKE-THURSDAY-INTEREST-PAYMENT-PBOC-INJECTS-MOST-LIQUIDITY)
+
+[1 Teen Killed, 2 Wounded In Kentucky Bus Stop Shooting; Suspect Still At Large](https://www.zerohedge.com/political/1-teen-killed-2-wounded-kentucky-bus-stop-shooting-suspect-still-large)
+
+[FOMC Signals Rate-Hike In 2022, Sees Taper Ending Mid-2022](https://WWW.ZEROHEDGE.COM/MARKETS/FOMC-SIGNALS-TAPER-MAY-SOON-BE-WARRANTED-DOT-PLOT-SHOWS-RATE-HIKE-2022)
+
+[Stocks, Bonds, Bullion, & Bitcoin Jump As Dollar Dumps On Hawkish Fed](https://WWW.ZEROHEDGE.COM/MARKETS/STOCKS-BONDS-BULLION-BITCOIN-JUMP-DOLLAR-DUMPS-HAWKISH-FED)
+
+[Twitter Says Users Can Now “Tip” Others With Bitcoin](https://www.zerohedge.com/crypto/twitter-says-users-can-now-tip-others-bitcoin)
+
+[Futures Slide Alongside Cryptocurrencies Amid China Crackdown](https://WWW.ZEROHEDGE.COM/MARKETS/FUTURES-SLIDE-ALONGSIDE-CRYPTOCURRENCIES-AMID-CHINA-CRACKDOWN)
+
+[Stocks Shrug As Taper Tantrum Sparks Bond Bloodbath; Beijing Batters Bitcoin](https://WWW.ZEROHEDGE.COM/MARKETS/TAPER-TANTRUM-SPARKS-BOND-BLOODBATH-3RD-STRAIGHT-WEEKLY-LOSS-NASDAQ)
+
+[Frontrunning As A Service: “Flashbots” Can Now Enable Anyone To Skip The Transaction Line On Crypto Networks](https://www.zerohedge.com/markets/frontrunning-service-flashbots-can-now-enable-anyone-skip-transaction-line-crypto-networks)
+
+（以上内容仅代表作者本人观点）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
+***编辑/校对/发稿：Delilah小胖***
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
