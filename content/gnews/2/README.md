@@ -2,11 +2,12 @@
 ---
 
 
-## 10月1日中共38架次军机扰台，为今年最大规模
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1568039/)
+## 2021年10月01日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1568040/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1026.png)
-（文章仅代表作者个人观点，与GNEWS无关）
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+GTV澳喜影像视频组、新闻组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/201-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/202-scaled.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

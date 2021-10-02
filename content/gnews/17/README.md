@@ -2,31 +2,29 @@
 ---
 
 
-## 里约热内卢爆发疫苗护照之争
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1567890/)
+## 2021年8月27日郭文贵先生做健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1567894/)
 
-蒙特利尔皇家山战友团  平民正道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/theglobeandmail.com_cr.jpg)图片来源：theglobeandmail.com
-据CNN记者朱莉安娜·科赫斯2021年9月30日在巴西圣保罗报道，里约热内卢市在暂停了 “疫苗护照”政策一天后又恢复了它。
+盖特连接：[https://gettr.com/post/p91jlp200a](https://gettr.com/post/p91jlp200a)
 
-应市政府的要求，巴西最高法院周四废除了保罗·兰格尔法官的一项裁决。该裁决曾短暂禁止要求提供疫苗接种证明才能进入某些公共场所的政策。
+8月27日：尊敬的战友们好，你们健身了吗？传播C C P病毒，香港危机，郑州，水灾．人祸真相了吗？
 
-居民将再次被要求证明他们已经接种了疫苗，才能参加如进入健身房、博物馆和旅游场所等公共设施的活动。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-兰格尔将这一要求描述为“专横”。
+（做完一组健腹轮）,当这个（健腹轮）它推到头的时候，它会不让你往下推，但是一次做24个，这真不是吹狼蛋的！有本事做做，不简单，真不简单！昨天，看我嘴，昨天这个亲吻签名，嘴都麻了，这儿肿了，我挺性感的哈，后来抹了凡士林好多了，别忘了健身，兄弟姐妹们！
 
-“实施疫苗护照法令将社会分为两种类型：接种疫苗和未接种疫苗。该法令阻止了未接种疫苗者的自由流通。”兰格尔说。
+编辑整理及发布：黎明之前
 
-超过 50 万巴西人在大流行中丧生——这是仅次于美国的世界上死亡人数最多的国家。 今天，巴西各地 200 多个其他城镇都采用了某种形式的疫苗护照，其中包括该国最大的城市圣保罗。 每个地区当局决定自己的法规。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-但是，兰格尔并不是唯一一个对该系统持怀疑态度的人。长期以来一直淡化 Covid-19 严重性的总统贾尔·博尔索纳罗 (Jair Bolsonaro) 正与此类预防措施作斗争，并公开批评了疫苗护照的想法。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-本月早些时候，博尔索纳罗总统在纽约联合国总部亲自挑战关于疫苗接种规定。尽管没有接种疫苗，仍前往纽约总部向全球机构发表讲话。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-（文章仅代表作者观点）
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-[参考链接](https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-* * *
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-编辑发稿：月亮之上
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

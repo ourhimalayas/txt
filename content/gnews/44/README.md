@@ -2,9 +2,12 @@
 ---
 
 
-## 因电力短缺，东北多地停电
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1567112/)
+## NBA德雷蒙德称强制疫苗是政治战争 违背了自由意志
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1567333/)
 
-9/27/2021 因电力短缺，东北多地停电。中共拉闸限电，居民生活受到严重影响。
+- 制作：JIHO
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

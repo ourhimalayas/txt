@@ -2,10 +2,10 @@
 ---
 
 
-## 受中共病毒影响，9月日本国内新车销量下降约三成
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1568030/)
+## 10月1日中共38架次军机扰台，为今年最大规模
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1568039/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1025-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1026.png)
 （文章仅代表作者个人观点，与GNEWS无关）
 *编辑：东京樱花团/简报小组*
 *发布：东京樱花团 / 平安卿卿*

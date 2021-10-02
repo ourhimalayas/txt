@@ -2,62 +2,58 @@
 ---
 
 
-## 众议员迈克·华尔兹：中共 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1567948/)
+## 文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（五）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1567949/)
 
-众议员迈克·华尔兹： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争。 随着我们债务的利息接近我们整个国防预算的规模，佩洛西和民主党正在寻求将我们社会项目的规模扩大三倍，刚好如了中国的意。 【附华尔兹议员在福克斯电视台就民主党预算提案的视频谈话】
+![](https://assets.gnews.org/wp-content/uploads/2021/09/WhatsApp-Image-2021-09-29-at-3.22.53-PM.jpeg)图片来源：雅典娜设计组（姐夫说说）
+**整理：**KONG/翼族
+**编辑：**翼族
 
+【**编者按：**2017年1月以来，郭文贵先生通过直播和社交媒体，发起了一场改变世界的爆料革命运动，影响深远。文贵先生数千个视频里的内容是取之不尽的宝藏，本专栏将把文贵先生数年来关于某一特定话题的精华内容陆续整理成文字，以时间线排序，希望对读者更系统地了解爆料革命有所帮助。近期由于澳大利亚强制接种疫苗引起世界巨大关注，因此本篇特别整理了郭文贵先生谈到的关于澳大利亚政治、病毒与疫苗方面的相关内容。】
 
+[文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（一）](https://gnews.org/zh-hans/1561691/)
+[文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（二）](https://gnews.org/zh-hans/1563997/)
+[文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（三）](https://gnews.org/zh-hans/1564567/)
+[文·贵天成——文贵先生谈“澳大利亚政治、病毒及疫苗”（四）](https://gnews.org/zh-hans/1565872/)
 
-> The [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic was a wakeup call – it’s time to take biological threats more seriously. Today, I introduced legislation to keep Americans safe from the threat of biological weapons. [https://t.co/SFoYCCV9Wg](https://t.co/SFoYCCV9Wg)
-> — Senate Foreign Relations Committee Ranking Member (@SenateForeign) [September 30, 2021](https://twitter.com/SenateForeign/status/1443674704255012864?ref_src=twsrc%5Etfw)
+**郭文贵先生2021年9月3日直播**：
 
+华夏幸福搞垮了平安，给习近平打了一堆的脸。但华夏幸福、河北董仚生都是曾家的人。曾家早就把买地预期的钱拿到国外去了，大部分钱存在哪里？澳大利亚、新西兰、日本，一分钱都不来美国。曾家钱不会来美国的……
 
+我就让你们知道一个，每天在视频直播中，我们的力量、我们建立的信用，都是正面的，而且是每日俱增。澳大利亚这么疯狂的政府，现在没有一边不跟我们联系的。我们也不求它，爆料革命、新中国联邦最牛的就是不求你钱、不求你官，你爱搭理不搭理，我又不求你，无欲则刚！新中国联邦人是最牛的！
 
+**郭文贵先生2021年9月5日直播**：
 
+是我第一个说用汽车横马路（抗议），你看澳大利亚用大货车堵路，你去看看那前五个头儿，你去看看他自己发的社交媒体，其中写“我要学会MILES GUO给香港的招，停止疫苗，用车堵路”，你去看看，学的七哥。
 
-> 前纽约市长鲁迪·朱利安尼：
-> 如果疫苗效果很好以至于他们可以强制接种，那为什么你们打了疫苗还要戴口罩？ [https://t.co/uobp21RZa8](https://t.co/uobp21RZa8)
-> — 美国政要直译推 (@zhiyitw33) [October 1, 2021](https://twitter.com/zhiyitw33/status/1444020403400110084?ref_src=twsrc%5Etfw)
+**郭文贵先生2021年9月7日直播**：
 
+我觉得（毒疫苗）会停止的，一定会停止的，我非常自信，因为我最有感觉。特别是像老班长，新西兰政府的官员跟我联系的时候，就非常直接，他说：我们新西兰收到了很多的案例，新西兰是无法再承受这些疫苗案例的。像新西兰、澳大利亚、英国、法国、比利时，都在跟我联系。这个过程中我能感觉到他们真地害怕了，特别是欧盟，他们也害怕了，德国也一样。我觉得世界上已经深深地感觉到了。听说美国政府跟中共也在保持联系，想通过中共了解一些病情和中国的实际情况，美国也慌，但是还会疯狂一段时间，最后一定会停止。台湾也会停的。
 
+**郭文贵先生2021年9月21日直播**：
 
-参议院外交委员会高级成员： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 大流行敲响了警钟——是时候要更认真地对待生物威胁了。今天，我提出了一项立法，以保护美国人免受生物武器的威胁。 【附参议院外交委员会官网新闻：参议员吉姆·瑞许提出立法遏制生物武器发展】
+在昨天24小时以前，大家看到欧洲发生了什么事情？两派对垒！一个是坚决不打疫苗的，一个是坚决打疫苗的，没有中间派了。消灭了欧洲的中间派，这是欧洲政治历史上几乎是没有的。欧洲它（一直）就是多党政治，多数派政治，甚至几十个人都有派别，现在没了！欧洲消灭中间派，对于澳大利亚什么影响？对新西兰什么影响？现在澳大利亚是绝对派——坚决打疫苗，少数派基本就没用。你看加拿大折腾那么厉害，小土豆还赢了一票。如果没有这个反疫苗，小土豆绝赢。（小土豆）绝赢对灭共是个灾难，大家都懂得这个道理。
 
+**郭文贵先生2021年9月23日直播：**
 
+现在我们一定要做好最坏的准备。像你们现在坐在这儿的时候，直播完后干啥去？看手机？看信息？然后准备睡觉？或者干什么？这不行的！你们每个人都要想想，最坏时刻到来的时候你怎么办？你真得有办法，不能这么糊弄糊弄，等灾难到头上的时候你才发现我没准备好，那是不可以的。你为家人负责，你要做好各种准备，各种计划。现在你看到全世界，在澳大利亚，（警察）用橡皮子弹射击人的时候，那种凶猛！你们看完这些以后有什么感受？
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is hoping the US implodes economically so we can no longer afford to compete militarily.
-> 
-> As the interest on our debt approaches the size of our entire defense budget, Pelosi & Dems are looking to triple the size of our social programs, playing right into China’s hands. [pic.twitter.com/bGHM2Hqtb2](https://t.co/bGHM2Hqtb2)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 1, 2021](https://twitter.com/michaelgwaltz/status/1444060806614638595?ref_src=twsrc%5Etfw)
+**郭文贵先生2021年9月26日直播**：
 
+还有一个就是法治基金，现在不需要捐大钱，捐大钱没地方花，能花钱的都是七哥去花了。像欧洲，我们花的钱早就超过一亿五千欧以上了，现在还没算到法治基金，等到办成有结果了再算到法治基金捐款去……你（指文贵先生的基金）一个经营性机构，凭啥拿一万多欧给这些公关公司搞政治游说去？（游说）澳大利亚、欧洲？现在是商业行为，等结果出来了，那可以捐给法治基金，连钱连帐都可以捐过来，而且有第三方公关公司做公证。
 
+**郭文贵先生2021年9月29日直播（注：部分内容）**
 
-众议院吉姆·班克斯： [@ElbridgeColby](https://twitter.com/ElbridgeColby)上周在电台节 [#GroundedwithJimBanks](https://twitter.com/hashtag/GroundedwithJimBanks?src=hashtag_click) 上与我一起讨论中国对我们国家安全构成的威胁以及在人工智能等领域保持竞争力所需的进步。 【附该节目链接】
+上次直播的时候我专门提到，我说我们每次直播，每句话每个信息都非常的重要，可是说实在话，我越来越发现，就是咱们说的话和信息和情报是否能被大家接受和理解？这确实太重要了。
 
+上次直播的时候，全世界的疫苗情况是全世界都要喊打，给老百姓必须打，强制打。上次直播到今天，我们大家看到了，澳大利亚，最强硬的澳大利亚都软下来了，最强硬的加拿大小土豆已经快熟了，最强硬的德国流氓，德国这完全是（犯罪），现在强制打疫苗已经成了犯罪了。（强制打疫苗）在欧洲基本结束，在日本现在基本上一半结束，岸田这家伙他绝对一半是咱们战友，不是绝大多数，为什么呢？他的家族在国内利益太多，他是中国利益最多的，但是骨子里边跟咱是好哥们，所以说他一定会停止打疫苗……
 
+猫本小哥，我给他说，澳大利亚（发生）这么大的改变！我们现在对着视频说，澳大利亚的改变，我们绝对是最大的功劳，我们给澳大利亚的相关政府发送的文件最起码有两万份，有多少战友在工作，我们政治小组做的基本上有两万份，我们通过律师认证的文件达几千份，我们提供的——现在不能给公共提供的文件——医学文件，包括在中国的医学专家偷偷地出去的个人的证明，青蒿素管用、伊维菌素管用，我们给这些人送过去，没有我们，澳大利亚这帮流氓政客是不可能这样的。（待续）
 
-> ICYMI: [@ElbridgeColby](https://twitter.com/ElbridgeColby?ref_src=twsrc%5Etfw) joined me last week on [#GroundedWithJimBanks](https://twitter.com/hashtag/GroundedWithJimBanks?src=hash&amp;ref_src=twsrc%5Etfw) to discuss the threat that China poses to our national security and the advancements needed in areas like AI to stay competitive. [https://t.co/wE6bpVuslC](https://t.co/wE6bpVuslC)
-> — Jim Banks (@RepJimBanks) [October 1, 2021](https://twitter.com/RepJimBanks/status/1444020520740077575?ref_src=twsrc%5Etfw)
+*发布：翼族*
 
-
-
-众议员吉姆·乔丹： 这是民主党想解雇的人，因为他们没有接种疫苗： -医生 -护士 -警察 -消防员 -老师 -边境巡逻人员 -航空公司工作人员 -记者 以下是应该被解雇的人： 民主党的人
-
-
-
-> Here’s who Democrats want to fire because they didn’t get the vaccine:
-> 
-> -Doctors
-> -Nurses
-> -Police
-> -Firefighters 
-> -Teachers
-> -Border Patrol agents
-> -Airline workers
-> -Journalists 
-> 
-> Here’s who should be fired:
-> 
-> -Democrats
-> — Rep. Jim Jordan (@Jim\_Jordan) [October 1, 2021](https://twitter.com/Jim_Jordan/status/1443958724960391172?ref_src=twsrc%5Etfw)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

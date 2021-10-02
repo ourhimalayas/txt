@@ -2,61 +2,62 @@
 ---
 
 
-## 塔克·卡尔森：中共病毒疫苗不安全也不有效
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1567939/)
+## 众议员迈克·华尔兹：中共 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1567948/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+众议员迈克·华尔兹： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 希望美国在经济上崩溃，这样我们就无法与其再进行军事竞争。 随着我们债务的利息接近我们整个国防预算的规模，佩洛西和民主党正在寻求将我们社会项目的规模扩大三倍，刚好如了中国的意。 【附华尔兹议员在福克斯电视台就民主党预算提案的视频谈话】
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/V.jpg)nutritruth.org
-前几天，笔者报道了著名栏目主持人、撰稿人塔克·卡尔森（Tucker Carlson）揭露美国参谋长联席会议主席、国防部长在参议院听证会上，将阿富汗乱局的责任推给拜登，而拜登表示，对军方的建议不知情，如此糟糕的最高军事指挥机构的相互推诿，国家怎能不乱？塔克·卡尔森的文章最后一句话称，“这是我们这个时代最糟糕的故事之一，还有很多糟糕的故事。”【1】
 
-随后，卡尔森团队讲述了疫苗阴谋的故事：【2】
 
-据医疗自由权利律师托马斯·伦茨（Thomas Renz）称，一名爆料者提供了政府的数据，记录了仅在医疗保险患者中接种中共（新冠）病毒疫苗的14天内就有48,465人死亡。
+> The [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic was a wakeup call – it’s time to take biological threats more seriously. Today, I introduced legislation to keep Americans safe from the threat of biological weapons. [https://t.co/SFoYCCV9Wg](https://t.co/SFoYCCV9Wg)
+> — Senate Foreign Relations Committee Ranking Member (@SenateForeign) [September 30, 2021](https://twitter.com/SenateForeign/status/1443674704255012864?ref_src=twsrc%5Etfw)
 
-这位俄亥俄州的律师星期六宣布了这一消息，伦茨律师正在参与几起针对联邦机构的欺诈和侵犯医疗自由权利的重大案件。
 
-在他的演讲中，伦茨对那些站出来向公众提供“医疗保险和医疗补助服务中心”（CMS，the Centers for Medicare & Medicaid Service）重要信息的爆料者表示感谢，他将CMS数据库描述为美国用于研究中共病毒趋势的最大数据库，因为它包含大约5940万医疗保险受益人的数据。
 
-一张幻灯片显示，“在接种中共病毒疫苗后14天内死亡的人数”，81岁以下的是19,400人，81岁及以上的是28,065人，总计48,465人死亡。
 
-“这是原始数据。” 伦茨解释道，“没有分析。”他强调，这些死亡数字来自于不足美国人口的20%。
 
-“你想知道为什么14天很重要吗？” 他问道，“因为如果你在14天内死亡，你就不会被视为接种了疫苗。”根据美国疾病控制和预防中心（CDC）的说法，一个人在完成疫苗接种14天后才会被视为“接种了疫苗”，这提出的问题是，政府当局是否已将这些死亡算为疫苗相关死亡以外的其他死亡。
+> 前纽约市长鲁迪·朱利安尼：
+> 如果疫苗效果很好以至于他们可以强制接种，那为什么你们打了疫苗还要戴口罩？ [https://t.co/uobp21RZa8](https://t.co/uobp21RZa8)
+> — 美国政要直译推 (@zhiyitw33) [October 1, 2021](https://twitter.com/zhiyitw33/status/1444020403400110084?ref_src=twsrc%5Etfw)
 
-伦茨提供了“来自医疗保险服务器的原始数据”的截屏，称之为“给不断撒谎的、卑鄙的‘事实核查者’的礼物”。
 
-“我想知道的是，你现在真地要‘事实核查’美国卫生部吗？”他嘲弄道，“你要去‘事实核查’福奇吗？”
 
-7月，一位在医疗数据分析领域从事专业计算机程序员工作的爆料者在不得作伪证的宣誓下发表声明称，CMS数据显示“至少45,000人”因接种实验性中共病毒疫苗而导致死亡。《今日美国》和其他机构对这一说法进行了“事实核查”，称其为错误信息。
+参议院外交委员会高级成员： [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 大流行敲响了警钟——是时候要更认真地对待生物威胁了。今天，我提出了一项立法，以保护美国人免受生物武器的威胁。 【附参议院外交委员会官网新闻：参议员吉姆·瑞许提出立法遏制生物武器发展】
 
-伦茨网站上的一份新闻稿回应道：“今天的披露证实了‘可信赖新闻倡议’（the ’Trusted News Initiative’）实际上是错误信息和误导宣传的来源，而律师托马斯·伦茨的爆料者一直都是正确的。”
 
-自去年12月开始推出中共病毒的基因疫苗以来，包括死亡在内的不良反应被动地报告在CDC的疫苗不良事件报告系统（VAERS）上，许多人认为实际的受伤害人数要高得多。
 
-上周五，CDC VAERS系统发布的最新数据显示，在2020年12月14日至（今年）9月17日期间，美国接种疫苗后发生了726,965起不良事件，包括15,386起死亡报告和99,410起严重伤害报告。
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is hoping the US implodes economically so we can no longer afford to compete militarily.
+> 
+> As the interest on our debt approaches the size of our entire defense budget, Pelosi & Dems are looking to triple the size of our social programs, playing right into China’s hands. [pic.twitter.com/bGHM2Hqtb2](https://t.co/bGHM2Hqtb2)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 1, 2021](https://twitter.com/michaelgwaltz/status/1444060806614638595?ref_src=twsrc%5Etfw)
 
-然而，一项“2010哈佛朝圣者”（2010 Harvard Pilgrim）的研究支持了实际数字要高得多的假设，该研究发现VAERS上报告的“疫苗伤害不到1%”。此外，即使是疫苗制造商也计算出该系统中“不良事件少报了50倍”。
 
-此外，“真相工程”（Project Veritas）最近的一份爆料者的报告显示，联邦医院的医务人员确认存在许多被中共病毒疫苗伤害的患者，但“没有人”向VAERS报告的情况。
 
-伦茨还提供了证据证实，在这些政府机构和媒体不断重复着这个基因疫苗是“安全有效的”同时，美国食品和药物管理局（FDA）一直在使用着相同的CMS数据“近乎实时”地监测到不同类型的疫苗接种者的不良反应。
+众议院吉姆·班克斯： [@ElbridgeColby](https://twitter.com/ElbridgeColby)上周在电台节 [#GroundedwithJimBanks](https://twitter.com/hashtag/GroundedwithJimBanks?src=hashtag_click) 上与我一起讨论中国对我们国家安全构成的威胁以及在人工智能等领域保持竞争力所需的进步。 【附该节目链接】
 
-仅纽约州医疗保险受益人的数据显示，就发现了数以千计的心血管病例、中共病毒的病例，以及在总共16个跟踪的不良事件中的死亡。
 
-他说：“请记住，这些‘副作用’都是政府、媒体和社交媒体不断告诉公众不会发生的。他们在撒谎，毫无疑问他们在撒谎。”
 
-伦茨说：“在今天的信息发布后，‘安全有效’的口号必须停止。”
+> ICYMI: [@ElbridgeColby](https://twitter.com/ElbridgeColby?ref_src=twsrc%5Etfw) joined me last week on [#GroundedWithJimBanks](https://twitter.com/hashtag/GroundedWithJimBanks?src=hash&amp;ref_src=twsrc%5Etfw) to discuss the threat that China poses to our national security and the advancements needed in areas like AI to stay competitive. [https://t.co/wE6bpVuslC](https://t.co/wE6bpVuslC)
+> — Jim Banks (@RepJimBanks) [October 1, 2021](https://twitter.com/RepJimBanks/status/1444020520740077575?ref_src=twsrc%5Etfw)
 
-（全文完）
 
-邪恶集团先利用大规模蔓延的中共病毒来杀人，再利用普通人的恐惧，以更大规模的毒疫苗强制接种来残杀人类。各国政府及卫生机构以失去工作和自由为威胁强推疫苗，主流媒体打压质疑实验性疫苗安全性和有效性的声音、掩盖疫苗伤害致死的真相，将全人类当作待宰羔羊。这个世界已经疯狂到了何种程度？试想一下，没有文贵先生引领的爆料革命，世界还要沦落到何种地步？
 
-终于看到塔克·卡尔森与他的团队这样的媒体人和其他更多追求自由捍卫人权的自媒体人、律师等纷纷站出来揭示病毒和疫苗真相。看上去邪恶势力依旧猖狂，但今天（10月1日）辉瑞等疫苗公司的股票大跌，市场已经给出了风向正在转变的信号。
+众议员吉姆·乔丹： 这是民主党想解雇的人，因为他们没有接种疫苗： -医生 -护士 -警察 -消防员 -老师 -边境巡逻人员 -航空公司工作人员 -记者 以下是应该被解雇的人： 民主党的人
 
-有关链接：
 
-【1】[https://gnews.org/zh-hans/1563551/](https://gnews.org/zh-hans/1563551/)
 
-【2】[https://teamtuckercarlson.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/](https://teamtuckercarlson.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/)
+> Here’s who Democrats want to fire because they didn’t get the vaccine:
+> 
+> -Doctors
+> -Nurses
+> -Police
+> -Firefighters 
+> -Teachers
+> -Border Patrol agents
+> -Airline workers
+> -Journalists 
+> 
+> Here’s who should be fired:
+> 
+> -Democrats
+> — Rep. Jim Jordan (@Jim\_Jordan) [October 1, 2021](https://twitter.com/Jim_Jordan/status/1443958724960391172?ref_src=twsrc%5Etfw)
