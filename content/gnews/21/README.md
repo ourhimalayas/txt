@@ -2,38 +2,27 @@
 ---
 
 
-## 震惊! Covid疫苗实含有DNA（不仅仅是RNA）在身体内合成刺突蛋白
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1567937/)
+## 中共国殇日香港部署超过8000警力
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1568011/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image.axd-2.jpg)图片来源：News Medical
-根据《自然新闻》(Natural News) 9月29日报道，各种匆忙推出的COVID疫苗并不像传统的生物疫苗制剂那样运作，而是被错误地表述和监管。标准疫苗使用目标病毒的减毒（弱化）形式，与炎症佐剂和其他化学品合成使用。而这些新的mRNA、腺病毒载体和DNA疫苗利用了病毒的 “软件”，迫使人体复制它。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-以色列特拉维夫大学的Jonathan Gershoni教授解释说，市场上的三种Covid疫苗实际上是DNA疫苗。Sputnik V、AstraZeneca和Johnson & Johnson生产的接种疫苗含有DNA（而不仅仅是RNA），它被插入人类细胞的细胞核中，最终在体内大量复制实验室设计的刺突蛋白。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC.png)
+文章仅代表作者本人观点，与Gnews无关
 
-印度Zydus Cadila正在制造新型DNA疫苗，称为ZyCoV-D。这种疫苗比其他DNA疫苗含有更少的DNA，而且这种DNA没有被病毒载体（腺病毒）所掩盖。对于这些疫苗来说，刺突蛋白的1200个氨基酸序列包含在一个质粒中，以三剂量、三个月的方案使用含有DNA的高压液流进行皮下注射。
+视频参看： 2021.10.01晚GTV新闻访谈
 
-**基因实验、重新编辑细胞和破坏先天免疫系统**
+[https://gtv.org/broadcast/watch/6157a811304e992109adc7cd](https://gtv.org/broadcast/watch/6157a811304e992109adc7cd)
 
-腺病毒传播的covid疫苗都含有来自设计的刺突蛋白的DNA。这些疫苗隐蔽地传递来自生物武器的DNA，将其隐藏在腺病毒外壳中。一旦刺突蛋白的DNA绕过先天免疫系统，其遗传指令就会被转录到人体细胞中，大量生产实验室设计的刺突蛋白。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-医药媒体和事实核查人员继续对隐藏在“新的COVID疫苗”背后的实验性的、改变基因的科学事实撒谎。他们一致声称，这些疫苗不会改变人类的DNA或改变基因表达。然而，这些疫苗是基因实验，旨在让人类依赖疫苗的更新；接种的目的是破坏先天免疫系统，以改变细胞对人体自身遗传密码的读取方式。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
 
-腺病毒传播的疫苗通过使用腺病毒颠覆先天免疫反应，将刺突蛋白DNA带入细胞。mRNA疫苗使用脂质纳米颗粒来隐藏指令并将其滑入细胞的核糖体中。在颠覆免疫系统的最初过程中，这些疫苗并没有唤起足够强的T细胞反应，以引起足够的T辅助1、T辅助2和记忆B细胞。因为先天免疫系统没有接触到整个病毒，包括包膜和核衣壳，所以免疫系统会受到伤害。这种不完整的、被颠覆的免疫反应使身体在随后的再次感染中形成严重的疾病。
-
-**不能保证这些改变基因的实验是暂时的**
-
-通过这种新的疫苗技术，外来的、实验室设计的刺突蛋白的信使RNA或DNA被插入体内，以覆盖受影响细胞的自然蛋白质合成。一旦这种自然转录过程被疫苗重新设计，不能保证细胞会停止使用这种外来代码。目前还没有研究绘制出刺突蛋白在体内的去向，它们可能持续多长时间，或者它们的复制是否会无限期地改变蛋白质的合成，成为人体细胞或人类DNA的一部分。
-
-由于DNA无法自行转录，DNA疫苗必须将外来DNA插入人体细胞的细胞核中。这允许信使RNA对DNA进行一次性复制，为核糖体中的蛋白质合成准备指令。RNA有能力与细胞的核糖体相互作用，并负责编码细胞被指示制造的蛋白质类型。
-
-由于发现了刺突蛋白的主要突变，疫苗制造商可以研究该DNA，重组疫苗中的DNA和mRNA，来每年在人类中复制刺突蛋白的新序列。
-
-在人们不知道这些疫苗可以改变基因的的情况下，政府，医保和媒体推广，迫使和强制接种疫苗，犯下了反人类罪，最终会遭到审判。可惜那些从众听话的羔羊，不知是怎样的命运在等待着他们。只有站起来反抗！尽量挽救更多人，尤其是无辜的孩子们的生命。
-
-原文链接：
-[https://www.naturalnews.com/2021-09-29-covid-vaccines-contain-dna-not-just-rna.html](https://www.naturalnews.com/2021-09-29-covid-vaccines-contain-dna-not-just-rna.html)
-
-* * *
-
-发稿 Spirit
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

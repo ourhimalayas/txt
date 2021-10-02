@@ -2,37 +2,35 @@
 ---
 
 
-## 2021年8月20日郭文贵先生莲花刀法切西瓜全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1567955/)
+## 中共派遣具备核能力的轰炸机入侵台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1568045/)
 
-盖特连接： [https://gettr.com/post/p8b6vfc95f](https://gettr.com/post/p8b6vfc95f)
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2272x1704_766528137373.jpg)
+图片来源：The Ministry of National Defense
 
-几十年来第一次去摘瓜……吃着自己摘的瓜．为战友们表现表现，我的连环刀法．莲花刀法！
+**【雅典娜快讯】，紧贴时事脉搏**
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+台湾指责中共国军方在北京当局庆祝中共国庆节期间，派出25 架喷气式飞机进行大规模空中入侵，据称其中包括具有核能力的轰炸机。
 
-战友们，刚才一会儿你看到照片，这是在一个朋友家里边地里边摘人家的瓜，摘人家的瓜，七哥几十年没摘瓜了！三十几年没摘过瓜，今天摘个瓜。
+台湾空军于周五陷入混乱，有报道称中共国军用飞机进入台北控制的普拉塔斯岛附近的国家防空区。据台湾国防部称，该特遣队包括十几架歼-16 战斗机、四架苏-30 战斗机、两架具有核能力的 H-6 轰炸机和一架反潜飞机。
 
-你看这（瓜蒂）还在这儿呢，是吧？今天继续莲花刀，记住啊，很多战友都是切不会，一定记住（刀）要到底，看着没有？第一刀非常重要，一定要有这个斜度，看着没有，要有这个斜度，然后这个时候你看，非常聪明地要把这个（第二刀的切入角度），它是决定你这个瓜的瓣多少，这个斜度出来了吧？
+台湾国防部表示已向中共国的飞机发出无线电警告，并部署了防空系统以监控其活动。该部发布了一张地图，显示飞机靠近普拉塔斯岛——台湾控制的一个环礁。中共国没有对这些报道发表评论。
 
-然后再这样（第三刀切入），这有时候切得就不均匀了，看着没有？然后依此类推，哟嗬，它不是圆的这西瓜，一定要小心，这刀是非常危险的这时候，非常非常危险，你也可以这样切，（轮番开切）。
+近期，台湾频繁抱怨中共国空军的入侵，其中最大规模的一次事件发生在6月，其中涉及28 架军用飞机。
 
-走江湖，得会玩刀，所以说咱今天七哥摘了瓜了，三十年没摘过瓜，今天就要来个莲花瓜，莲花刀法，很多战友说练都练不成，实际上真的很容易，跟着花瓣切，你看，这花纹就是跟着你的切的（线路），你看看，切得不均匀喽！有时候也把握不好啊，剩两个没切好，这回，这一刀要把握好。
+中共国政府声称，台湾岛是其领土不可分割的一部分，并拒绝承认台北的自治统治。就在一天前，中共国台湾事务办公室对台湾外交部长吴钊燮发表了严厉批评，称吴钊燮是一位直言不讳的民族主义者，反对中共国的领土主张，并散布有关台湾岛主权的“谎言”。
 
-看看兄弟姐妹们，（把瓜掰开），莲花！莲花不莲花？哇，这瓜我尝尝，嗯，超级甜呐！
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-编辑整理及发布：黎明之前
+**参考新闻：**[25 jets & bombers: Taiwan reports incursion by Chinese air force as Beijing celebrates PRC’s 72nd anniversary — RT World News](https://www.rt.com/news/536365-taiwan-accuses-china-incursion-aircraft/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

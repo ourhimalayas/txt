@@ -2,47 +2,29 @@
 ---
 
 
-## 这里的黎明静悄悄 ——小镇反新冠疫苗宣传活动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567840/)
+## 2021年8月23日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1567918/)
 
-作者：纽约香草山美食部 – 文百合
+盖特连接： [https://gettr.com/post/p8l2zb3e69](https://gettr.com/post/p8l2zb3e69)
 
+8月23号：尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机．CCP病毒真相了吗？
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+（做完一组健腹轮），一组24个，做6组！
 
+编辑整理及发布：黎明之前
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-我居住的小城镇人不多，且社区中多以白人为主。虽然新冠疫情在过去一年多肆虐全球，庆幸的是，这个小镇还是一片净土，大家邻里和睦，安静祥和。然而，近期加拿大政府推行的强制性新冠疫苗接种和疫苗护照政策打破了小镇中人们的幸福生活。事实上，新型“生物超限战”和中共的邪恶杀人计划——新冠病毒及其疫苗——正在渗透着加拿大的每一个角落。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/17.jpg)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-这一年多里，每天街上救护车的警报声异常频繁；往年大排长龙的养老院，今年的空房却越来越多。其实，关于新冠疫苗副作用的话题，比如永久的残疾、蹊跷的死亡，一直流传在小镇里的各个角落：一位老人极其恐惧和谨慎地讲述了养老院所执行的强制疫苗接种政策，这导致以前身体健康的她在接种完第二剂疫苗后的三个月内病痛缠身，体重从200多斤急速消瘦至100斤；隔壁小镇一位二十岁出头的小姑娘在注射过第二针疫苗后，隔天就猝死了。因此，在接种新冠疫苗这个问题上，整个小镇都惶恐不安。加之各类小道消息不胫而走，比如小镇附近要设立加拿大最大的反新冠疫苗集中营，平静的小镇大街上突然出现了军人的身影等，让这些消息更加扑朔迷离——阴影笼罩着整个小镇。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-![Image](https://media.discordapp.net/attachments/805966415436972042/893630832705695774/image0.png?width=1081&amp;height=609)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-一直以来，小镇上的民众单纯朴实，过着和平又安宁的生活——他们疏于战争，也感知不到硝烟弥漫，丝毫没有意识到危险正在悄悄地逼近他们。也是因此，这突如其来的疫苗护照政策让他们猝不及防。但是，勇敢的小镇居民最近在小镇的广场上举行了反对新冠疫苗护照和强制疫苗政策的示威宣传活动。而我，作为小镇上唯一的中国人，带着咱们新中国联邦的国旗，也参与了其中，用手机记录了当地民众对强制疫苗护照的不满和愤怒。活动最后，我们一起高唱了加拿大国歌，誓为自由抗争到底。而通过这个活动，我也让小镇居民认识到了新中国联邦和爆料革命的力量。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-中共不灭，世界不得安宁，但是，中共和毒疫苗邪恶计划所有的背后推手们最终一定会被审判、定罪！战友们一起加油！
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-***编辑/校对/发稿：Irene木木***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
