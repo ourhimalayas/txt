@@ -2,33 +2,53 @@
 ---
 
 
-## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
+## 中共大力发展隔离中心开启抢钱新模式
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1569422/)
 
-作者：香草山健身部 – 文真
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+作者：香草山金融部 – AT
 
 
 
-9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
 
-“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
 
-参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+
+
+
+
+
+9月29日中国国家卫生健康委员会表示，中国要求10月底前按照每万人口不少于20间标准，改造一批符合要求的集中隔离场所。按照10亿人口计算，那就意味着要建200万间隔离房。放眼世界，即使疫情最严重地区也没有建这么多隔离场所，以目前中共国自称的疫情控制良好的情况，为什么要建这么大规模隔离中心呢？
+
+无独有偶，30日，广州公布历时3个月建成了一座占地46个足球场，5000个房间的入境旅客隔离中心。
+
+按照公开的信息可以查到，每个房间的收费标准：
+
+- 入住1人：住宿费350元/晚，三餐100元/日；
+- 入住2人：住宿费350元/晚，三餐200元/日；
+- 取中间值：500元/日/房，5000间房带来的收益是250万一天，一年是9亿。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture30.jpg)
+现在各地纷纷上调隔离时间，一般都为21天，以广州为例，一个隔离周期，单人付费就是9450，还不算检测费等，中共国的隔离是强制隔离，政府不承担任何费用，全部要求国民自己负担，对隔离人来说费用相当高昂。
+
+从这两条信息看，今后入境人员无选择的只能进入政府指定的这种隔离中心，虽然速成简易，但是费用不低，几乎等同于4星酒店，可谓是质次价高，一天250万的入账速度，堪比印钞机。 目前，中共国开放的入境口岸城市寥寥数个，但是全国卫健委却下通知要求全国无差别按万人20间标准建隔离房，以200万间，每房每日产生收益500元计算，一天给政府带来的收入是10亿，一年是3600亿。2019年中国高速路收费总收入5500亿，2020年国家电网实现综合能源业务累计收入只有242亿。可见，疫情经济中未来隔离中心收入这一块，是高速路收费的65%，国家电网收入的将近15倍。
+
+政府通过行政手段，躺着就能收钱，在百业凋零的中共经济状况下，还有什么比这种简单粗暴的更好挣钱方式呢？高速路，电老虎，都可以成为过去式了，因为百姓可以选择不用，但是，政府通过公权力，行政手段强迫百姓去隔离，没有人可以反抗。一纸公文宣告某地区有疑似病例，就能让成千上万人失去自由去隔离，并且还要自掏腰包，对尸位素餐的政府官员来说，还有什么比这更好的经济增长点呢？即使这部分疫情经济没有算进地方财政，也必然会进入个人腰包。苦的只能是老百姓，不仅被占用了时间，承担了染疫风险，还要被搜刮钱财。 卫健委的通知无疑给了各地方政府尚方宝剑。广州隔离中心的建成也会让其余省市仿效。各地政府建成的隔离中心，必不会使其空置，如果入境人数不够满足需要，定会想方设法榨取当地百姓。最简单的方法就是编造疫情，迫使所谓密切接触者隔离，老百姓就是政府官员眼中的唐僧肉，是中共专制政权下的可敲骨吸髓的奴隶。
+
+随着疫苗真相的逐步揭露，中共内斗会越来越激烈，祈祷苦难的中国人民在中共灭亡前能够少受伤害，也希通过疫情的演变能够使更多的中国人醒悟，一起TAKE DOWN THE CCP！
 
 （本文仅代表作者观点）
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+参考来源：[中共大力发展隔离中心开启抢钱新模式](https://www.chinapress.com.my/20210930/%E2%97%A4%E5%85%A8%E7%90%83%E5%A4%A7%E6%B5%81%E8%A1%8C%E2%97%A2%E5%B9%BF%E5%B7%9E%E5%BB%BA%E5%85%A5%E5%A2%83%E6%97%85%E5%AE%A2%E9%9A%94%E7%A6%BB%E4%B8%AD%E5%BF%83-%E6%8F%90%E4%BE%9B5000%E4%B8%AA/)
 
-编辑/审核/发稿：正义的小新
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+编辑/校对/发稿：Htangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

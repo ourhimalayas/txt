@@ -2,35 +2,19 @@
 ---
 
 
-## 资深军医呼吁接种过新冠疫苗的飞行员停飞
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568995/)
+## 秘翻在线：下届日本首相选举或出变数
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569028/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
-栏目记者/责任编辑：圣母院钟声
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/画像1-1.png)（图片源自本文链接）
+10月1日时事通讯社消息：
 
-日前,美国陆军资深军医/中校特蕾莎·朗向五角大楼发出了前所未有的呼吁，希望下令所有接种新冠疫苗的飞行员停飞。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-30.png)
-特蕾莎·朗中校同时也是一位航空航天医学专家, 她在《军事举报人保护法》条文下宣誓并提供证词，阐述她的观点。她在军中负责监护 飞行员的健康状况, 接触到疫苗紧急使用授权实施后出现的诸多不良反应事件。由于出众的身体机能, 对飞行员群体来说，原本即使感染新冠病毒，重病或死亡的风险都极小，存活率为 99%以上。但她的案例分析显示, 疫苗接种增加了引发飞行员罹患心肌炎的风险。同时，疫苗也并不能防止病毒的感染或传播。更糟的是，年轻飞行员们无法判断自己是否患上了心肌炎，也就不能排除飞行员驾驶战机飞行时, 突然发病引发事故的几率。
+东京都知事小池百合子担任特别顾问的地区政党 “都民第一会 “周四宣布，将成立新党，取名”国政新党”。一名”都民第一会 “的官员称，该党正在协调在下一次下议院选举中派出几名候选人，包括现任东京都议会议员。东京都议会议员荒木千阳将于3日，计划在东京举行的新闻发布会上做详细说明。
 
-特蕾莎·朗表示，她正在履行她的职责，报告她所发现的情况以及结论, 而她得到的反馈是，有人接受，也有人拒绝甚至威胁她。
+小池在周四离开办公室时对记者说：我不知道”都民第一会 “正在采取的任何行动，我自己不打算参加这次大选。”都民第一会 “的一名高级官员说：我认为小池会是（新党的候选人）支持者吧。
 
+[信息源](https://www.jiji.com/jc/article?k=2021100101101&amp;g=pol)
 
+因为日本自民党是执政党，所以没有及特殊情况发生的话，当选自民党总裁就相当于当选日本首相了。日本自民党总裁选刚刚落幕，大家为岸田当选自民党总裁的贺声尚在。东京都知事小池百合子担任特别顾问的”都民第一会 “弄这么一出，下届日本首相选举可有戏看了！
 
-(本文仅代表作者观点)
-
-参考链接：
-
-[Army physician and aerospace medicine specialist calls on Pentagon to order all pilots who have received COVID-19 vaccine to be grounded](https://dreddymd.com/2021/10/01/aerospace-medicine-specialist-calls-all-pilots-received-covid-19-vaccine-to-be-grounded/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审:  文龙
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
+（文章仅代表作者个人观点）

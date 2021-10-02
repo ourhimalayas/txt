@@ -2,27 +2,28 @@
 ---
 
 
-## 中共内部决战已经开启!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569330/)
+## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
-10月1日，郭文贵先生在盖特视频中爆料，习、孟、王、曾、江的大决战已正式拉开帷幕，多个单位和部门已做好和习长期作战的准备。其中，外交部是江家的天下，只要外交部持续出击，江家和孟建柱便安然无恙；王岐山在政法系统根基深厚，只要中纪委和政法委人员稳定，王岐山就平安无事。而在国内房地产即将崩塌，各地限电引发民怨的当下，习的处境却非常危险。西方政要已经充分意识到，中共政府处于极不稳定的状态，习随时可能被政治对手击溃。
+作者：香草山健身部 – 文真
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-2.jpeg)
 
-纵观全球，文贵先生说，继澳洲新南威尔士州州长因腐败问题辞职、日本政治大地震后，英国、欧盟、美国等全世界的官员也将因强制接种疫苗而陆续辞职。爆料革命传递的病毒和疫苗真相，正在影响着世界的政治格局。
 
-历史处于大变革时期，世界最黑暗的时刻还没有到来。新中国联邦人，更要保持警惕，持续地向当地政要和媒体传播疫苗真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+
+
+
+9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
+
+“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
+
+参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
 
 （本文仅代表作者观点）
 
-参考链接: [https://gettr.com/post/pctat2db2e](https://gettr.com/post/pctat2db2e)
-
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：暗黑
-校正/发稿：谐趣园
+编辑/审核/发稿：正义的小新
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

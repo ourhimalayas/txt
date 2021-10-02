@@ -2,39 +2,35 @@
 ---
 
 
-## 里约热内卢爆发疫苗护照之争
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569393/)
+## 美国国会议员呼吁将中共生物技术公司列入监管黑名单
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1569430/)
 
-作者：加拿大枫叶农场 – 平民正道
+**撰稿：日本东京方舟农场 海星**
 
+9月30日，美国国会议员科顿（Tom Cotton）和加拉格尔（Mike Gallagher）致函拜登政府，呼吁将包括北京华大基因研究所等在内的15家中共生物技术公司列入监管黑名单。
 
+据《美国之音》报道，议员们在给拜登政府的信中写道，华大基因在中共经济的国防和材料等相关领域开展业务，其所涉及的活动违反了美国国家安全和外交政策利益，它显然是中国共产党“军民融合”战略的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+议员们表示，华大基因的国家基因数据库可能会被中共用于军事研究，并运用在生化武器中，这一点令人极其担忧。
 
+议员们还对华大基因使用国家补贴购买美国企业来收集美国民众基因和健康信息的企图感到非常不安。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211002185301.png)图片来自于网络
 
-此前，巴西里约热内卢市曾强制民众执行所谓的“疫苗护照”。而后一天，当地法官因其过于分裂而暂停了它们。近日，应市政府的要求，巴西最高法院于9月30日再度废除了这一裁决，此裁决曾禁止向民众要求他们提供疫苗接种证明以便进入某些公共场所。
+信中指出，除华大基因以外，还有至少14家中共生物技术公司为美国医疗保健使用者进行基因组测序工作，根据中共的法律，这些公司几乎肯定已经与中共分享了这些数据。
 
-目前，由于该项裁决被废止，导致里约居民将再次被要求证明他们已经接种了疫苗，才能参加活动或进入健身房、博物馆和旅游场所等公共设施。对此，之前暂停疫苗护照的法官兰格尔表示，“实施疫苗护照法令会将社会分为两种类型，接种疫苗的民众和未接种疫苗的民众，疫苗护照会强行阻止未接种疫苗的民众进行自由的流通。”
+议员们在信中要求将华大基因和其它中共生物技术公司列为财政部“非特别指定（Non-SDN) 中国军工综合体企业”清单，禁止这些公司在美国交易所进行交易。
 
-事实上，至今已有超过 50 万的巴西人在大流行中丧生——仅次于美国这一世界上死亡人数最多的国家。 悲哀的是，巴西政府非但不采用那些有效的预防药物，反而在各地 200 多个城镇都采用了某种形式的疫苗护照，甚至包括该国最大的城市圣保罗。
+他们还要求将这些公司列入商务部的实体清单和国防部的中共军事公司名单，前者将对这些公司实施严格的出口许可要求，后者直接将这些公司锁定为中共军民融合公司。
 
-庆幸的是，兰格尔并不是唯一一个对该疫苗护照系统持怀疑态度的人。巴西总统贾尔·博尔索纳罗一直在与此类强制性疫苗接种措施作斗争，并多次公开批评了疫苗护照的想法。本月早些时候，博尔索纳罗在纽约联合国总部也公开反对并抵制纽约政府的疫苗接种规定。
+此外，美国国会议员鲁比奥（Marco Rubio）在今年5月提出了两项法案，《基因组和强化国家安全法》和《基因组数据安全法》，旨在透过加强美国基因和医疗系统的相关交易法规，解决中共采集美国民众基因数据所构成的威胁。
 
-参考链接：[https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html](https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html)
+*注：本文仅代表作者观点，与 Gnews无关*
 
-（本文仅代表作者观点）
+*参考链接：*
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+[美国会共和党人致函拜登政府 点名“华大基因”列管黑名单](https://www.voachinese.com/a/us-lawmakers-letter-biden-admin-blacklist-bgi-20211001/6254372.html)
 
-编辑：Irene木木
+* * *
 
-校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：文顺 校对：Ranting 发布：Ranting*
