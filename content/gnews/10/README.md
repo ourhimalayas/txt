@@ -2,22 +2,27 @@
 ---
 
 
-## 樱花灭共诗——乐土废（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1569101/)
+## 孙立军被双开 傅政华被调查 中共内部决战已经开启
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569266/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-隔世再游园，黄浊铁锈斓。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-招牌空伫立，木马自飞旋。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-锤摆迎风曲，鬼屋偶野烟。
+视频参看：2021.10.02早GTV新闻访谈
 
-电荒威慑纪，乐土废人间。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-7.jpg)
-(本文只代表作者观点，与GNews网站无关)
+[https://gtv.org/broadcast/watch/6158506b304e992109adf896](https://gtv.org/broadcast/watch/6158506b304e992109adf896)
 
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

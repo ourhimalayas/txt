@@ -2,42 +2,30 @@
 ---
 
 
-## 民主党参议员提案乘坐国内航班须接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1568926/)
+## 美国大法官全家完成接种仍感染新冠病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569020/)
 
-- 编译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
+栏目记者/责任编辑：雪梨
 
+美国最高法院于周五发表声明，在职大法官：布雷特·卡瓦诺 （Brett Kavanaugh）的新冠病毒检测结果呈阳性，且未显示相关症状。这是最高法院首次对在职大法官新冠病毒阳性检测结果做出的声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-32.png)
+卡瓦诺和妻子，女儿早已完成新冠疫苗接种。大法官本人在周一会议前的检测结果显示正常，周三参加了首都挑战公路赛，在周四例行检测中被告知感染。声明中并未提及感染原因，根据新冠政策，他和妻子不得不缺席巴雷特大法官的就职仪式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown.png)范斯坦提交法案，要求在国内航班上强制接种COVID疫苗或进行测试 (Greg Nash/Pool via AP)
+根据新冠疫情期间规定，被认为是卡瓦诺的密切接触者，包括法院同事，将不得不进行检测和居家隔离，最高院案件审理将受到极大影响。
 
-据极限新闻报道，《美国航空旅行公共安全法案》将授权卫生与公众服务部和联邦航空管理局，制定一套航空公司标准。以防止COVID-19中共病毒在2021年冬季到来之前的传播。
+(本文仅代表作者观点)
 
-该法案指出，这些标准应要求乘客提供疫苗接种证明、中共病毒检测阴性证明，或 ”COVID-19康复的书面或电子文件“。
+[https://conservativebrief.com/justice-tests-52091/?utm\_source=CBHYPERLINK “https://conservativebrief.com/justice-tests-52091/?utm\_source=CB&utm\_medium=SG”&HYPERLINK “https://conservativebrief.com/justice-tests-52091/?utm\_source=CB&utm\_medium=SG”utm\_medium=SG](https://conservativebrief.com/justice-tests-52091/?utm_source=CB&amp;utm_medium=SG)[https://apnews.com/article/coronavirus-pandemic-health-amy-coney-barrett-courts-us-supreme-court-5c24ffb572dd34a8b24f226fc2211b7a](https://apnews.com/article/coronavirus-pandemic-health-amy-coney-barrett-courts-us-supreme-court-5c24ffb572dd34a8b24f226fc2211b7a)
 
-范斯坦在一份声明中说：“我们知道，2020年假日期间的航空旅行促成了，去年冬天毁灭性的COVID-19中共病毒激增。我们不允许这种情况再次发生。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-确保航空旅行者保护自己和他们的目的地社区，不受这种疾病的影响。对于防止下一次的激增至关重要，特别是当我们面对新的、毒性更强的COVID-19中共病毒变种的时候。
+终审:  暗黑
+校正/发稿：浪迹天涯
 
-她继续说：“这项法案补充了，对所有从外国飞往美国的航空旅客——包括美国人——已经实施的类似旅行要求。这包括来自COVID-19发病率低于美国许多州的外国航班。”
-
-“唯一有意义的是，我们也要确保纵横我国的数百万航空旅客不会造成进一步的传播，特别是在幼儿仍然没有资格接种疫苗的情况下。”
-
-杜克大学医学院医学和病理学教授、美国传染病协会主席芭芭拉·亚历山大博士在一份声明中说：“接种疫苗是结束COVID-19大流行病的关键战略。多种场合的接种要求是，提高疫苗接种率、防止感染和住院以及拯救生命的重要机制。”
-
-“美国传染病协会支持参议员范斯坦的立法，要求在国内航空旅行中接种疫苗。作为我们国家更广泛的COVID-19中共病毒疫苗接种战略的一部分。”
-
-**评论：**
-
-**正如文贵先生说的，这些政客虽然位高权重，但他们很多人真的并没有开智，比如他们对科学，对疫苗的无脑相信，完全丧失了质疑能力和对真相的追求。他们并没有什么了不起，只是占据了一个重要的位置而已。他们一个错误决定，会对很多无辜老百姓造成严重伤害。我们新中国联邦人必须不断在社交媒体，传播病毒真相，疫苗真相，用事实打破谎言，用真相唤醒有缘人，在这场人类大劫难中拯救更多人。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：**[极限新闻](https://www.newsmax.com/newsfront/dianne-feinstein-vaccine-flights-bill/2021/09/30/id/1038643/)(New York Post) | 作者：Theodore Bunker|发布时间：2021年9月30日
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

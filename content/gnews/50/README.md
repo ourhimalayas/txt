@@ -2,39 +2,27 @@
 ---
 
 
-## 美國聯邦政府暫時解除停止運作危機
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1568076/)
+## 美国呼吁“严肃对待”朝鲜导弹发射
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1567976/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+俄罗斯莫斯科喀秋莎农场   银河
 
-作者：紐約香草山 雲豹
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N.jpg)knoe.com
+据朝鲜官方媒体报道，朝鲜9月28日试射了一枚新开发的高超音速导弹“火星-8”。9月30日朝鲜再次试射了一枚新开发的防空导弹以确认该发射器和系统其他部件的实用性。这是朝鲜9月进行的第四次导弹试验。此举引发了世界各国对朝鲜在这个导弹技术方面快速发展的担忧。
 
-9月30日，美國的參議院及眾議院相繼快速通過臨時開支法案（stopgap funding bill），並將該法案提交到白宮。拜登總統也趕在政府關門期限前簽署了此項臨時開支法案，讓聯邦政府得免於關門，可以暫時繼續運作至12月3日。
+据朝中社(KCNA)报道，朝鲜国防科学研究院(Academy of Defense Science)表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统方面具有非常现实的意义”，金正恩9月29日在朝鲜最高立法机构最高人民会议(Supreme People’s Assembly)上发表讲话时称，朝鲜的武器“正在以极快的速度发展”。
 
-拜登隨後發表聲明表示，感謝兩黨達成協議、避免了政府關門的危機。拜登表示，這項法案提供國家的關鍵緊迫性需求，讓聯邦政府可以繼續執行現前的工作。
+美国国务卿安东尼·布林肯9月30日敦促国际社会认真对待北韩的导弹发射，他指出，这些发射造成了“更大的不稳定和不安全的前景”。同时指出，美国正在与亚洲盟友日本和韩国就处理朝鲜问题进行“非常积极的对话”。
 
-如果此次臨時開支法案沒有順利通過，聯邦政府會關閉一些非必要性的政府機構，用剩於資金暫時保持軍事、航管、醫療、氣象、郵政、法務等少數必要單位的運行，維持最低度的運作。如果預算案托太久遲遲沒有通過，聯邦政府在沒有預算下，終究會關門，只是在歷史上沒發生過。
+日本政府表示，已经确定朝鲜此举违反了联合国安理会禁止使用弹道导弹技术的决议。同时谴责北韩的试射行为“令人极为遗憾”。与此同时，日本、美国和韩国9月30举行了电话会谈，对朝鲜最近与核武器和导弹开发计划有关的活动表示担忧。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
 
-(本文為作者觀點，不代表G NEWS 立場)
+报道称，金正恩今年1月在执政的劳动党代表大会上表示，他希望加强朝鲜的军事能力和核武库，并补充说，朝鲜已经开发出了防空导弹。美国总统拜登(Joe Biden)领导的政府一直在重申愿意与朝鲜就无核化进行接触，但到目前为止没有任何进展。
 
-[參考連接]：
+参考链接：
 
-[https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
 
-[https://www.cna.com.tw/news/aopl/202110010028.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202110010028.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
 
-审核 / 编辑 / 发稿: 圣母院钟声
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
-
-**更多資訊，更多關注**
-
-[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**紐約香草山農場****GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+[https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html](https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html)

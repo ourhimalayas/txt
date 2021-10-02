@@ -2,28 +2,28 @@
 ---
 
 
-## 短视频：2017年明镜采访郭先生爆傅政华
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1568680/)
+## 班农专访：班农战斗室获得美国政治类播客第一名
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568744/)
 
-#### 剪辑字幕：尕鱼儿
+[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=2560)](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=1024)
+**简评：**因为新中国联邦、爆料革命、GTV和GNews的支持，班农战斗室获得美国政治类播客的第一名，成为有史以来最好的英语节目。唯真不破，传播真相，就会获得民众的支持。
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-2.png)
-图片来源：新唐人
+GTV视频链接：[英喜每周采访班农先生0929-Q0: 我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持](https://gtv.org/video/id=6156a779d2e2b817486fe616)
 
-傅政华先生，我现在正式给你叫板啊！你敢不敢在中央领导面前说刘呈杰和贯军的资料不是你给我的？如果你敢说不是，你敢说不是，我愿意在中央领导任何派出人的面前听你的录音甚至看视频！
 
-我说傅政华给我的资料，北京所有人，我都知道！你知道这个朱善璐啊，有领导问他你咋给郭文贵说那“六四”的人都是傻叉呢？孩子，听说朱善璐呀，张牙舞爪、泪如雨下，哎呦，我咋能这么说！郭文贵胡说八道啊什么的！你怎么听他的？郭文贵有必要造你朱善璐这个谣么？
 
-没必要！反过来说了傅政华给领导说：我怎么可能！从来不认识！从来没联系过！绝对没说过！我保证！磕头下跪！傅政华先生你的表演非常好！但是事实！只要领导派出人叫新领导派个人来，去看看我跟你弟弟的录像、录音，看看刘呈杰和贯军是谁给我的？是你傅政华！
+**视频字幕：**
 
-傅政华给我一些常委的料，比今天要震撼千倍万倍！
+**主持人**：班农先生，首先祝贺《战斗室》荣升苹果播客第一名，有史以来最好的英语节目。班农先生，感谢你传播真相。
 
-**发布：文泓**
+**班农先生**：我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持。还有GNews、GTV帮我们翻译成汉语和日语等语言，这个帮助巨大。我想对你们整个团队表示感谢。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕*：*Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：势不可挡* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

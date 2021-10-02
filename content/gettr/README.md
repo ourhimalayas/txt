@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 4:48 PM (UTC)`
+
+法国媒体9月30日报道：<br/>是真是假：中国亿万富翁郭文贵称“疫苗灾难即将发生”<br/><br/>vrai ou fake：Guo Wengui, ce milliardaire chinois qui affirme que "le désastre des vaccins va arriver"<br/><br/>https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html
+
+---
+
 `@miles 10/2/2021 3:45 PM (UTC)`
 
 Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whistleblower broadcast on Jan.26, 2017<br/><br/>郭文贵先生于2017年1月26日爆料革命开启的第一天，就准确预言了傅政华的落马 
@@ -288,14 +294,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 
 9/28/2021 Miles Guo GETTR: The people of the New Federal State of China don’t pursue economic or political interests and are selflessly devoted to the better future, peace, and safety of the whole world! The CCP is bound to pull the entire world’s economy into abyss, and the era of exploiting the Chinese will never return! There will surely be retribution for the Suharto family for what they have done to the ethnic Chinese in Indonesia.<br/><br/>9/28/2021文贵盖特：新中国联邦人不追逐经济或政治利益，为了全世界美好的未来、和平与安全而无私奉献！中共必然把整个世界的经济带入深渊，而过去几十年压榨中国人血汗的时代将一去不复返！苏哈托家族一定为他们对印尼华人的所作所为而遭到报应的！<br/>
 ![img](https://media.gettr.com/group27/getter/2021/09/29/06/01/2553968f-bd8e-cd7c-e5a6-f93ade7f5f57/out.jpg)
-
----
-
-`@miles 9/29/2021 2:31 AM (UTC)`
-
-🙏🙏🙏❤️❤️❤️
-> `@globalhimalaya 9/29/2021 2:05 AM (UTC)`<br/>Johnson & Johnson employees on hidden camera:  Don't vaccinate Children because there are ‘unknown repercussions down the road’; Never trust anything that the media say @ProjectVeritas <br/>强生公司科学家和商务负责人在被偷拍的视频中透露：千万不要给儿童接种疫苗，因为注射疫苗的后果是未知的！千万不要相信媒体所说的任何事情！要让不愿接种疫苗的人成为二等公民
-![img](https://media.gettr.com/group44/origin/2021/09/29/02/05/0a79bc80-b29a-5623-b8ca-60d17a60e100/out.jpg)
 
 ---
 

@@ -2,32 +2,39 @@
 ---
 
 
-## 电荒重挫之下，中共紧急求助俄罗斯
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568881/)
+## 最新文件再次证实，新冠病毒就是中共制造的生化武器
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568969/)
 
-栏目记者/责任编辑：文小白
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
+栏目记者/责任编辑：雪梨
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+前国务院新冠来源调查员大卫·艾舍，在上周接受福克斯节目采访时表示，根据私人研究团体DRASTIC最新揭露的文件再次证实，新冠病毒就是来自武汉病毒研究所。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-29.png)
+病毒基因序列中的福林酶切位点，使病毒从蝙蝠传染到人类，并以高致病性的方式导致人传人。艾舍表示，美国已经掌握了新冠病毒的所有基因片段。
 
-路透社莫斯科10月1日报道，俄罗斯电力出口垄断企业 “国际RAO集团” 本周五表示，中共国家电网请求该公司增加对中国北方各省份的电力供应 。应中共的请求，该公司将通过2012年建成的”阿穆尔-黑河” 高压输电线路，将10月份原定向中国供应的电力增加一倍，以缓解当地的电慌危机。
+武汉病毒研究所的合作伙伴：彼得·达萨克领导的纽约生态健康联盟，曾于2018年3月申请一项有关蝙蝠冠状病毒的功能增强研究。鉴于对大规模杀伤性武器方面的担忧，国防部的高级研究计划局（DARPA）否决了这一申请。而中共仍提供资金持续这项提高病毒致病性的研究。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.2AM-PICTURES-57图片备用.001.jpeg)
+艾舍进一步表示，通过对蝙蝠、穿山甲和人源化小仓鼠进行功能增强研究，武毒所的研究人员还制造了类似COVID-19的超级病毒。这也验证了郭文贵先生此前的警示，中共不止研发了一种病毒，还有更致命的病毒系列。
 
-国际RAO集团表示，目前所有的三条俄中 输电线路都将用于供电，三条线路每年能够向中国输送高达70亿千瓦时的电力。在与西方关系持续恶化的同时，中共只能求助于俄罗斯, 除不断加大从俄罗斯采购农产品、煤炭和能源外，预计双边其他产品贸易额也将有大幅增长。这些都是俄罗斯所希望发生的，毕竟普京从不会放过要挟、压榨习近平和中共的任何机会！
 (本文仅代表作者观点)
 
-参考链接：[应中国的请求 俄罗斯10月将把输华电力增加一倍以帮助中国缓解供电紧张](https://cn.reuters.com/article/chinaNews/idCNKBS2GS00S?irpc=932)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：文龙
-校正/发稿：我不在这里
+参考链接：
+
+[https://gettr.com/post/pcuhi842af](https://gettr.com/post/pcuhi842afhttps://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official)
+
+[https://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official](https://gettr.com/post/pcuhi842afhttps://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审：暗黑
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)

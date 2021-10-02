@@ -2,26 +2,32 @@
 ---
 
 
-## 广东电价上调25%引发全国涨价潮 通胀将全面传导
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1569195/)
+## 中共内部决战已经开启!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569330/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-33.png)
-[图片来源](//www.china5e.com/news/news-1119074-1.html)
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+10月1日，郭文贵先生在盖特视频中爆料，习、孟、王、曾、江的大决战已正式拉开帷幕，多个单位和部门已做好和习长期作战的准备。其中，外交部是江家的天下，只要外交部持续出击，江家和孟建柱便安然无恙；王岐山在政法系统根基深厚，只要中纪委和政法委人员稳定，王岐山就平安无事。而在国内房地产即将崩塌，各地限电引发民怨的当下，习的处境却非常危险。西方政要已经充分意识到，中共政府处于极不稳定的状态，习随时可能被政治对手击溃。
 
-10月2日，阿波罗新闻网报导，中国供电严重不足，继广东省宣布调涨25%电价后，湖南等省份纷纷表示将跟进上调电价。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-2.jpeg)
 
-据悉，湖南省将在确定电力市场交易基准价格的基础上，引入火力发电企业购煤价格作为参数，按波动调整交易价格上限，建立火力发电市场交易价格上限浮动机制，这意味着电价即将上调。
+纵观全球，文贵先生说，继澳洲新南威尔士州州长因腐败问题辞职、日本政治大地震后，英国、欧盟、美国等全世界的官员也将因强制接种疫苗而陆续辞职。爆料革命传递的病毒和疫苗真相，正在影响着世界的政治格局。
 
-虽然，目前俄罗斯已同意增加对中国的供电以缓解北方省份电力短缺问题，但买电付出的成本，将可能部分被转嫁至消费者身上。此外，中国的热能供应等问题也相当严重，煤炭工业协会在日前发出的一份通知中指出，目前国内电煤供应持续紧绷，电厂存煤明显偏低，预计“迎峰度冬期间电煤供应前景不容乐观”。
+历史处于大变革时期，世界最黑暗的时刻还没有到来。新中国联邦人，更要保持警惕，持续地向当地政要和媒体传播疫苗真相。
 
-笔者认为伴随着国际煤炭价格飙涨，自然会影响电价，电厂一定会将成本转嫁给消费者，因此人民生活成本将会大幅增加，工业产品的价格上涨，其下游那些消费产品的价格也将无可避免的上涨，这种恶性连锁反应恐进一步加剧中共经济、社会和民生的灾难。
+（本文仅代表作者观点）
 
-[信息来源](//www.aboluowang.com/2021/1002/1654581.html)
+参考链接: [https://gettr.com/post/pctat2db2e](https://gettr.com/post/pctat2db2e)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-校对：东京樱花团/喜马拉雅的微尘
+终审：暗黑
+校正/发稿：谐趣园
 
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-5.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,25 +2,33 @@
 ---
 
 
-## 秘翻在线: 中共或将推出“时间银行”帮政府减负
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569259/)
+## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
 
-撰稿：Julia
+作者：香草山健身部 – 文真
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/alfons-morales-b-qzfDoDC6o-unsplash.jpg)图片来源：unsplash.com
-新华社10月2日消息，日前，由北京大学人口研究所编写的《中国时间银行发展研究报告》在北京发布。该报告由中共国红十字基金会委托编写， 是国内首部提出时间银行发展建议和路径的研究报告。
 
-据称，时间银行的运作将“时间”和“公益”挂钩：即社区成员付出时间帮助有需要的人，“把帮助所付出的时间以虚拟货币的形式存储起来，当自己有需要时从中支取‘已存储时间’”。报告认为时间银行是应对“人口老龄化的第三条道路”。
 
-报告首席专家、北京大学人口研究所所长陈功表示，时间银行“作为社区治理及应对人口老龄化的重要平台和工具，有助于构建政府、市场之外的新型社会分配机制”，并希望时间银行“未来能够实现多学科交叉、跨部门融和”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-时间银行这种模式由美国人埃德加·卡恩倡导创立，创立之初倡导志愿者将参与公益服务的时间存进“时间银行”，当自己遭遇困难时可以从“银行”里支取时间兑换服务。目前，全球已有30多个国家建立了时间银行，国际社会的通行做法仍是坚持了时间银行创立的初衷，即以时间换时间、以服务换服务的公益性。
 
-而中共党媒消息却将存储在“银行”的时间概念不动声色地换为虚拟货币，且该报告也明确指出，时间银行“有助于构建政府、市场之外的新型社会分配机制”。这样的提法不免让人担心，未来中共国的时间银行是否会变质为被中共随意操纵的工具。正如国际公认的救死扶伤的红十字会进入中共国后，在中共的操纵下，沦落为中共吸金的“黑箱”。
 
-新闻来源:
+9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
 
-[http://www.news.cn/fortune/2021-10/02/c\_1127925430.htm](http://www.news.cn/fortune/2021-10/02/c_1127925430.htm)
+“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
 
-[http://www.redcross.org.cn/html/2021-09/81183.html](http://www.redcross.org.cn/html/2021-09/81183.html)
+参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/审核/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
