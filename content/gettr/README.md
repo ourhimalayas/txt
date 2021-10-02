@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 12:11 AM (UTC)`
+
+10/01/2021 Miles Guo’s GETTR: All our fellow fighters around the world shall keep disseminating videos and information regarding poisonous Covid vaccine, DO NOT STOP YOUR FINGERS! Xi Jinping is surrounded by followers of Jiang Zemin, Zeng Qinghong, Wang Qishan, and Meng Jianzhu, Xi is in great danger!<br/><br/>10/01/2021 文贵盖特：全球各地的战友们继续加油传播毒疫苗的视频和信息，不要停！习周围都是江曾王孟的爪牙，习危险了啊！<br/>
+![img](https://media.gettr.com/group9/getter/2021/10/02/00/11/6a3a549a-b425-88df-2db2-cbe480fd2b06/out.jpg)
+
+---
+
 `@miles 10/1/2021 11:59 PM (UTC)`
 
 转：ZeroHedge对CDC最近颁布的新冠检测新规定作了剖析，指出这是明目张胆的欺骗。CDC通过一个完全故意的决定，人为地让打了新冠疫苗的人被检测出新冠（"突破性感染"）的可能性降到几乎为零。<br/><br/>新规定说，对完全接种疫苗的人，CDC只接受周期阈值CT值在28及以下的核酸检测（RT-PCR）样本。同时规定，只有住院和死亡的突破性感染案例才上报。由于这些非常技术性的规定，一般老百姓很容易不知究竟。所以该文章用了三个例子来讲解CDC新规定的“效果”：<br/><br/>A尚未接种疫苗。他以40阈值做的PCR检测结果显示为新冠阳性，尽管没有症状，但计算为官方病例。<br/><br/>B已接种疫苗。他以28阈值做检测呈阳性，并高烧卧床六周。因为从来没有进过医院，也没有死，他不算为官方病例。<br/><br/>C已接种疫苗。他出现高烧和呼吸问题。在医院住了几周后死亡。因为他以29阈值做的PCR检测，结果虽然呈阳性，但不算为官方病例。<br/><br/>你怎么看这样的CDC？<br/>https://www.zerohedge.com/covid-19/caught-red-handed-cdc-changes-test-thresholds-virtually-eliminate-new-covid-cases-among
@@ -288,13 +295,6 @@ How on the earth that the companies are require their workers to get vaccinated?
 
 Unfortunately, there are more stories like this, but they just aren't being reported on the news. What happened with the mainstream media? Why are you covering the truth about the covid vaccine?!    You have committed a crime by encouraging people to get these toxic vaccines. Sooner or later, you will be punished by God. So, we need more people to spread the truth about vaccines and not let these tragedies happen again because there's a good chance your family and friends will be next! Wake up, friends!<br/>不幸的是，像这样的故事还有很多，只是没有出现在新闻中。主流媒体是发生了什么?你为什么要隐瞒新冠疫苗的真相!你鼓励人们接种这些有毒疫苗就是犯罪。你们迟早会受到上帝的惩罚。我们需要更多的人来传播疫苗的真相，不要让这些悲剧再次发生，因为很有可能你的家人和朋友就是下一个受害者!醒醒吧,朋友们!
 ![img](https://media.gettr.com/group35/getter/2021/09/28/19/29/917dd878-1ce4-b8c1-ee2d-6086ad1544d6/out.jpg)
-
----
-
-`@miles 9/28/2021 6:23 PM (UTC)`
-
-9月28号：火币，将停止中国境內用户，新用户不能注册，老用户退款！这是共产党不允许任何中国人的财富安全的地方，可以存放，只能有共产党的虚拟人民币的这一个选择这说明了共产党，已经到了穷凶极恶山穷水尽的地步了。
-![img](https://media.gettr.com/group48/getter/2021/09/28/18/3cac7986-2f27-e6b0-13a7-403b6fc3f1cb/6f8c9d685f5d79c8ab2ff3f72dc09e6b.jpg)
 
 ---
 
