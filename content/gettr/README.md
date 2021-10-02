@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 10/2/2021 9:08 PM (UTC)`
+`@miles 10/2/2021 9:19 PM (UTC)`
 
-10月2日法国媒体Franceinfo报道说, “中国亿万富翁郭文贵先生提到疫苗灾难要来了！”  【中英文字幕】 
-![img](https://media.gettr.com/group48/getter/2021/10/02/21/08/c86a015c-fa46-0f0a-d160-c73da520ac86/out.jpg)
+10月2日法国媒体Franceinfo报道说, “中国亿万富翁郭文贵先生提到疫苗灾难要来了！”  【中英文字幕】
+![img](https://media.gettr.com/group32/getter/2021/10/02/21/19/d37debb1-eb09-ef05-ef61-edb4beea8b22/out.jpg)
 
 ---
 
