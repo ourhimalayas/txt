@@ -2,44 +2,30 @@
 ---
 
 
-## 有声| 市场崩盘可能即将来临
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568637/)
+## 针下亡魂｜斯洛文尼亚 20 岁女学生接种疫苗10日后离世
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1568651/)
 
-配音：香草山美食部-玫瑰园
+**撰文/ 台湾宝岛农场 天滅中共｜發布日期/ 02/10/2021**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。 ***
+***本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。 ***
+***他们曾经和你我一样，也有想要实现的梦想，也有想要相爱的亲友，他们的生命虽然平凡但一样珍贵，希望有一天，公道会还他们一个真相。***
 
+【斯洛文尼亚】一名 20 岁女大学生 Katja Jagodic，因为当地政府的疫苗强制令而无奈于 9 月 14 日接种了第一剂强生 COVID-19 疫苗。
 
+不久之后，9 月 27 日，她因身体严重不适，送往卢布尔雅那的大学临床中心 (UKC) 进行检查，经急诊神经病学系主任伊戈尔·里格勒 (Igor Rigler) 诊断后表示“她病得很重，她的大脑有血栓和出血的症状。我们会集合血管专家、血液学家、肾病学家、神经学家，尽一切现代医学能做的帮助她。”
 
+不幸的是，翌日凌晨她就离开了人世，结束了她短短20年的生命。
 
+悲愤的父亲后来出席了反对“疫苗通行证”的集会，并带着泪腔说道：“当你到达疫苗接种地点时，没有人警告你可能会出现并发症，也没有人警告过不建议 40 岁以下的人接种疫苗。他们不只是数字，不只是谈百分比，我的 Katja 不是百分比，不是数字，她是我的唯一。”
 
+唯一庆幸的是，斯洛文尼亚卫生部长 Janez Poklukar，因为 Katja 的离世，而下令暂停强生 COVID-19 疫苗的接种计划。
+譯：「一名年輕患者於週一早上被送往盧布爾雅那大學臨床中心 (UKC)，懷疑是接種 COVID-19 疫苗後出現了嚴重的不良事件。
+現在，我命令國家公共衛生研究所暫停強生疫苗的接種。」
+可惜，付出的代价，对 Katja 的家人来说，是终生都难以忘记的痛。
 
+*他们的故事：[//泰国](https://gnews.org/zh-hant/1568338/)[59](https://gnews.org/zh-hans/1568655/)[岁](https://gnews.org/zh-hant/1568338/)[教师](https://gnews.org/zh-hans/1568655/)[接种疫苗10日后去世](https://gnews.org/zh-hant/1568338/)**[//](https://gnews.org/zh-hant/1568338/)*
 
-零对冲9月30日刊登了一篇署名查尔斯·休·史密斯（Charles Hugh Smith）的文章——《没人认为可能的市场崩盘即将来临》。
+* * *
 
-文章认为：盛宴正在上演，冒险崩溃就像报复一样，因为没有“认真的人”相信崩溃是可能的，更不用说迫在眉睫了。他例举了若干相互作用的因素：经济泡沫已经见顶，高估值、高杠杆、高度兴奋和投机的极端情况已经远远超过了基准；通货膨胀不仅是内在的，而且是全球性的问题，整个地区的天然气价格可能会增加三倍，而其他必需品的成本也可能毫不费力地轻松增加三倍；美联储的腐败造成其公信力下降，同时，由于美联储已经失去对收益率的控制，长期积累的对美联储神一般权力的信任正在动摇；中国这次不会再像以前那样，在泡沫破灭时拯救全球市场；散户投资者投入的资金比过去10-20年还要多，最终泡沫将被戳破。
-
-
-
-**文字版原文：[市场崩盘可能即将来临](https://gnews.org/zh-hans/1565932/)**
-
-
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+来源｜  [个案003](https://thecovidworld.com/slovenia-suspends-janssen-covid-19-vaccine-after-the-death-of-a-20-year-old-student/)

@@ -2,25 +2,21 @@
 ---
 
 
-## 麦卡洛医生：犯有反人类罪行的人都会被追捕
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568742/)
+## 中共内斗火热！傅政华落马
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568746/)
 
-**简评：**拒绝给予患者同情护理，制造恐惧、痛苦、住院甚至死亡，都是不道德、应该被谴责的，都会被视为反人类罪。每个人都会被追捕，正义会得到伸张。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p6562611a520604722-800x450-1.jpg)网络图片
+**编辑摘要：**继中共国公安部前副部长孙力军遭双开后，10月2日，据中央纪委国家监委网站消息，中共国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。傅政华曾任公安部副部长、司法部部长等要职。
 
-GTV视频链接：[Dr. McCullough:你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类](https://gtv.org/video/id=6157e6d9d2e2b81748702d8b)
+新闻参考链接：[https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp](https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp)
 
-
-
-**视频字幕：**
-
-坚持拒绝给予患者同情护理，制造恐惧、痛苦、住院和死亡，是不道德、应该被谴责的，在民事法庭上是非法的。你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类罪。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：Vekap* *| 听写：云岭 | 翻译：势不可挡* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+* * *
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[![](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
