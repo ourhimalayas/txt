@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 5:08 PM (UTC)`
+
+2015年，傅振华与郭文贵先生的秘密通话（上）<br/>傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱<br/><br/>In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 1-2)<br/>Fu threatened Mr. Guo's family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu's overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu's decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
+![img](https://media.gettr.com/group39/getter/2021/10/02/17/08/d09c4679-80b0-8e07-b021-891de1eebf2b/out.jpg)
+
+---
+
 `@miles 10/2/2021 4:48 PM (UTC)`
 
 法国媒体9月30日报道：<br/>是真是假：中国亿万富翁郭文贵称“疫苗灾难即将发生”<br/><br/>vrai ou fake：Guo Wengui, ce milliardaire chinois qui affirme que "le désastre des vaccins va arriver"<br/><br/>https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html
@@ -287,13 +294,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 CCP’s mouthpiece Jin Canrong again released wild words to create public opinion for the unification of Taiwan by force： There are at least ten benefits in solving the Taiwan issue<br/><br/>中共喉舌金灿荣再放狂言，为武统台湾制造舆论：解决台湾問題, 至少十大收益<br/>
 ![img](https://media.gettr.com/group3/getter/2021/09/29/08/17/b3bcba9a-c1bb-b4aa-d554-c1f32893a78e/out.jpg)
-
----
-
-`@miles 9/29/2021 6:01 AM (UTC)`
-
-9/28/2021 Miles Guo GETTR: The people of the New Federal State of China don’t pursue economic or political interests and are selflessly devoted to the better future, peace, and safety of the whole world! The CCP is bound to pull the entire world’s economy into abyss, and the era of exploiting the Chinese will never return! There will surely be retribution for the Suharto family for what they have done to the ethnic Chinese in Indonesia.<br/><br/>9/28/2021文贵盖特：新中国联邦人不追逐经济或政治利益，为了全世界美好的未来、和平与安全而无私奉献！中共必然把整个世界的经济带入深渊，而过去几十年压榨中国人血汗的时代将一去不复返！苏哈托家族一定为他们对印尼华人的所作所为而遭到报应的！<br/>
-![img](https://media.gettr.com/group27/getter/2021/09/29/06/01/2553968f-bd8e-cd7c-e5a6-f93ade7f5f57/out.jpg)
 
 ---
 
