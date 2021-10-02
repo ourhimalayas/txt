@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 15/35 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [35](/content/README-35.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+## 頁面 15/36 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [36](/content/README-36.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年12月7日郭先生对话钢铁侠](/content/2019/12/20191209-6749356903573144336.md)
+
+[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/content/2019/12/20191205-3740864739432231815.md)
+
+[文字版：2019年12月3日郭先生报平安](/content/2019/12/20191204-1258843651620864623.md)
+
+[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/content/2019/12/20191203-2918612896973787175.md)
+
+[文字版：2019年12月1日郭先生报平安直播](/content/2019/12/20191203-2633135332131965317.md)
+
+[文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
+
+[文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/2019/12/20191201-3479974122524096649.md)
+
+[文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/content/2019/11/20191129-6884019306620752974.md)
+
+[文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/content/2019/11/20191129-9084303791170558370.md)
+
+[文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播](/content/2019/11/20191128-7131783827849750716.md)
 
 [文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/content/2019/11/20191126-8526960149542259140.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：2019年11月10日文贵报平安直播](/content/2019/11/20191112-8738069601493230135.md)
 
-[文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/2019/11/20191111-8774490754599223874.md)
 
-[文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/content/2019/11/20191110-4503525737047042543.md)
-
-[文字版：2019年11月6日文贵与路德直播 ](/content/2019/11/20191108-3252264516615100238.md)
-
-[文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/content/2019/11/20191108-5173281267885078042.md)
-
-[文字版：2019年11月6日郭先生喜马拉雅报平安(第一部分)](/content/2019/11/20191107-407016786599015158.md)
-
-[文字版：2019年11月4日文贵报平安谈香港抗议活动将会发生什么](/content/2019/11/20191106-1023423131938564457.md)
-
-[文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/content/2019/11/20191105-5144727764458030814.md)
-
-[文字版：2019年11月3日文贵进山前报平安](/content/2019/11/20191104-2786002853804232017.md)
-
-[文字版：2019年11月2日郭文贵先生在中央公园直播](/content/2019/11/20191104-8519209542622441736.md)
-
-[文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/2019/11/20191104-6514911663487933356.md)
-
-
-## 頁面 15/35 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [35](/content/README-35.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+## 頁面 15/36 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [36](/content/README-36.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)

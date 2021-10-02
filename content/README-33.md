@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 33/35 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
+## 頁面 33/36 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
+
+[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/2018/04/20180418-343207939646177641.md)
+
+[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
+
+[文字版：2017年11月2号郭文贵先生在Livestream 直播！](/content/2018/04/20180418-6405859290507553352.md)
+
+[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/2018/04/20180418-732290735735777378.md)
+
+[翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/content/2018/04/20180418-1943689665396012735.md)
+
+[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
+
+[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
+
+[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
+
+[文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
+
+[CNBC 报导：中国内部影响世界的绝密“法宝”](/content/2018/04/20180418-6039693712536282425.md)
 
 [翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/content/2018/04/20180418-3200590908291834579.md)
 
@@ -46,25 +66,5 @@
 
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
 
-[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
 
-[（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-3181090078770141211.md)
-
-[（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6751902581957520102.md)
-
-[（九）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6171763823261464315.md)
-
-[（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-2147041283197958185.md)
-
-[（七）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-5887917197465527624.md)
-
-[（六）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7403014981154876678.md)
-
-[（五）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-4956474100974687354.md)
-
-[（四）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-980107644225560251.md)
-
-[(三）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-239017834240302827.md)
-
-
-## 頁面 33/35 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
+## 頁面 33/36 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)

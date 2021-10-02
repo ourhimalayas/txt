@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 6/35 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [35](/content/README-35.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/36 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [36](/content/README-36.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[文字版2020年12月11日郭先生GTV直播](/content/2020/12/20201211-672238.md)
+
+[文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
+
+[文字版：2020年11月22日文贵先生第二次直播视频](/content/2020/12/20201209-6591987473740035252.md)
+
+[文字版：2020年11月22日文贵先生第一次直播](/content/2020/12/20201209-4936946080142689553.md)
+
+[文字版：2020年11月21日文贵先生直播视频](/content/2020/12/20201209-6376875867883726682.md)
+
+[文字版：2020年11月20日郭文贵先生直播视频](/content/2020/12/20201209-19876771016008543.md)
+
+[文字版2020年12月8日郭先生GTV直播](/content/2020/12/20201208-672086.md)
+
+[文字版2020年12月6日郭先生GTV直播](/content/2020/12/20201206-671333.md)
+
+[文字版2020年12月4日郭先生GTV直播](/content/2020/12/20201204-669763.md)
+
+[文字版2020年12月3日郭先生GTV直播](/content/2020/12/20201203-669633.md)
 
 [文字版2020年12月2日郭先生GTV直播](/content/2020/12/20201202-669524.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：2020年10月7日郭先生GTV直播](/content/2020/10/20201018-3690547876023765465.md)
 
-[文字版:2020年10月5日郭先生GTV直播 ](/content/2020/10/20201018-5793496232664041877.md)
 
-[文字版:2020年9月27日郭先生GTV直播](/content/2020/10/20201005-7844353111973949021.md)
-
-[文字版:2020年9月26日郭先生GTV直播](/content/2020/10/20201003-1014274309500025995.md)
-
-[文字版：2020年9月25日郭先生GTV盖特视频](/content/2020/10/20201003-8061043817760123963.md)
-
-[文字版:2020年9月24日郭先生GTV直播](/content/2020/10/20201003-8524459119651508821.md)
-
-[文字版:2020年9月20日郭先生GTV直播](/content/2020/09/20200926-3423558412983946225.md)
-
-[文字版:2020年9月19日郭先生GTV直播](/content/2020/09/20200926-954028387970316580.md)
-
-[文字版:2020年9月17日郭先生GTV直播](/content/2020/09/20200926-1150166459194589190.md)
-
-[文字版:2020年9月13日郭先生GTV直播](/content/2020/09/20200926-5663801126723482334.md)
-
-[文字版:2020年9月9日郭先生GTV直播](/content/2020/09/20200926-1971840848005876799.md)
-
-
-## 頁面 6/35 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [35](/content/README-35.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/36 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [36](/content/README-36.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

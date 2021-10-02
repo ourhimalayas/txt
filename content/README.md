@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 1/35 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [35](/content/README-35.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+## 頁面 1/36 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [36](/content/README-36.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+
+[郭文贵先生2021年10月1日盖特视频（3分14秒）全文字版](/content/2021/10/20211001-1567798.md)
+
+[郭文贵先生2021年9月30日盖特视频（9分59秒）全文字版](/content/2021/09/20210930-1567088.md)
 
 [2021年9月29日郭文贵先生直播全文字版](/content/2021/09/20210929-1565198.md)
 
@@ -62,9 +66,5 @@
 
 [2021年9月5日郭文贵先生直播全文字版](/content/2021/09/20210905-1514662.md)
 
-[2021年9月5日郭文贵先生吃饭饭盖特全文字版](/content/2021/09/20210905-1563773.md)
 
-[2021年9月4日郭文贵先生做健腹轮健身盖特全文字版](/content/2021/09/20210904-1563869.md)
-
-
-## 頁面 1/35 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [35](/content/README-35.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+## 頁面 1/36 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [36](/content/README-36.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

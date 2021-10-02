@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 3/35 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [35](/content/README-35.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/36 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [36](/content/README-36.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+
+[全文字版2021年8月19日郭文贵先生G-TV直播](/content/2021/08/20210819-1480251.md)
+
+[全文字版2021年8月18日郭文贵先生G-TV直播](/content/2021/08/20210818-1477935.md)
+
+[全文字版2021年8月17日郭文贵先生G-TV直播](/content/2021/08/20210817-1475351.md)
+
+[全文字版2021年8月16日郭文贵先生G-TV直播](/content/2021/08/20210816-1474366.md)
+
+[全文字版2021年8月14日郭文贵先生G-TV直播](/content/2021/08/20210814-1469199.md)
+
+[全文字版2021年8月13日郭文贵先生G-TV直播](/content/2021/08/20210813-1469006.md)
+
+[全文字版2021年8月11日郭文贵先生G-TV直播](/content/2021/08/20210811-1462815.md)
+
+[全文字版2021年8月9日郭文贵先生G-TV直播](/content/2021/08/20210809-1460214.md)
+
+[全文字版2021年8月7日郭文贵先生G-TV直播](/content/2021/08/20210807-1452928.md)
+
+[全文字版2021年8月4日郭文贵先生G-TV直播](/content/2021/08/20210804-1446074.md)
 
 [全文字版2021年8月3日郭文贵先生G-TV直播](/content/2021/08/20210803-1444955.md)
 
@@ -46,25 +66,5 @@
 
 [全文字版2021年7月4日郭文贵先生与班农先生第二次G-TV直播](/content/2021/07/20210704-1376105.md)
 
-[全文字版2021年7月4日郭文贵先生与班农先生第一次G-TV直播](/content/2021/07/20210704-1375674.md)
 
-[全文字版2021年6月30日郭文贵先生G-TV直播](/content/2021/06/20210630-1364325.md)
-
-[全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播](/content/2021/06/20210628-1356870.md)
-
-[全文字版郭文贵先生2021年6月27日G-TV直播](/content/2021/06/20210627-1356603.md)
-
-[全文字版郭文贵先生2021年6月25日G-TV直播](/content/2021/06/20210625-1351941.md)
-
-[全文字版郭文贵先生2021年6月23日G-TV直播](/content/2021/06/20210623-1346987.md)
-
-[全文字版2021年6月20日郭先生给Snow理发直播](/content/2021/06/20210620-1338460.md)
-
-[全文字版2021年6月20日郭先生向西方再次发出警告做好准备](/content/2021/06/20210620-1338436.md)
-
-[全文字版2021年6月17日郭文贵先生G-TV直播](/content/2021/06/20210617-1331243.md)
-
-[全文字版郭文贵先生2021年6月15日G-TV直播](/content/2021/06/20210615-1326002.md)
-
-
-## 頁面 3/35 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [35](/content/README-35.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/36 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [36](/content/README-36.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

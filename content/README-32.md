@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 32/35 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
+## 頁面 32/36 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
+
+[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/2018/04/20180418-3363832914523693020.md)
+
+[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
+
+[2017年11月26日文贵健身报平安和Livestream 试播](/content/2018/04/20180418-3536740810604337739.md)
+
+[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/content/2018/04/20180418-662686657760766543.md)
+
+[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/content/2018/04/20180418-8844190551130915159.md)
+
+[2017.11.23文贵感恩节报平安视频](/content/2018/04/20180418-3850717849203274795.md)
+
+[2017.11.21 文贵Instagram健身直播 ](/content/2018/04/20180418-7655939134164928883.md)
+
+[文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
+
+[翻译：班农在第十二届族群青年领袖研习营演讲](/content/2018/04/20180418-291103909959910855.md)
+
+[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
 
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/content/2018/04/20180418-5547948456904349057.md)
 
-[文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/2018/04/20180418-343207939646177641.md)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
-
-[文字版：2017年11月2号郭文贵先生在Livestream 直播！](/content/2018/04/20180418-6405859290507553352.md)
-
-[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/2018/04/20180418-732290735735777378.md)
-
-[翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/content/2018/04/20180418-1943689665396012735.md)
-
-[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
-
-[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
-
-[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
-
-[文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
-
-[CNBC 报导：中国内部影响世界的绝密“法宝”](/content/2018/04/20180418-6039693712536282425.md)
-
-
-## 頁面 32/35 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
+## 頁面 32/36 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)

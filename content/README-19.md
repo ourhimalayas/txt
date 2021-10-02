@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 19/35 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [35](/content/README-35.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+## 頁面 19/36 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [36](/content/README-36.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+
+[文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/content/2019/08/20190808-3378844936967794316.md)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
+
+[文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/2019/08/20190807-8437960932132112238.md)
+
+[文字版：2019年8月3日关注香港即将发生的大事](/content/2019/08/20190805-62375152236056349.md)
+
+[文字版：郭先生2019年8月1日緊急直播](/content/2019/08/20190805-195928358226764282.md)
+
+[文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/content/2019/08/20190804-3048854052865103791.md)
+
+[文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/content/2019/08/20190802-6690690952476016345.md)
+
+[文字版：7月29日 共产党已经进入倒计时](/content/2019/07/20190730-277183401038624152.md)
+
+[文字版：7月26日 江志成這個小鱉孫 和孫立軍最近在乾啥？](/content/2019/07/20190730-643602008810576333.md)
+
+[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/2019/07/20190728-6395183003803536442.md)
 
 [文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/content/2019/07/20190726-326879781741066444.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/2019/07/20190707-3878113483367388120.md)
 
-[文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
 
-[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
-
-[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/content/2019/07/20190702-4761346884149440512.md)
-
-[文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/content/2019/07/20190702-6850390939330933218.md)
-
-[文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/content/2019/06/20190630-3604984578617941887.md)
-
-[文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/2019/06/20190627-3104653818463071254.md)
-
-[文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/2019/06/20190625-920777833882255491.md)
-
-[翻译美国对伊朗实施制裁的行政命令](/content/2019/06/20190625-2187152093709329841.md)
-
-[文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/content/2019/06/20190623-2853766971834487830.md)
-
-[文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/2019/06/20190623-4535731736984314689.md)
-
-
-## 頁面 19/35 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [35](/content/README-35.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+## 頁面 19/36 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [36](/content/README-36.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

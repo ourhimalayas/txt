@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 9/35 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [35](/content/README-35.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
+## 頁面 9/36 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [36](/content/README-36.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/2020/06/20200629-4613228362412011055.md)
+
+[文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
+
+[文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](/content/2020/06/20200623-2877590404181782091.md)
+
+[文字版： 郭先生2020年6月16日GTV直播](/content/2020/06/20200619-258636614731498375.md)
+
+[文字版： 郭先生2020年6月15日直播-跟战友们聊聊VOA阿曼达离职，杨洁篪密会蓬佩奥与三峡大坝](/content/2020/06/20200619-1125909043318608744.md)
+
+[文字版：郭先生6月15日直播关于战友们投资GTV被非法退款，非法被剥夺投资权益，这将是一场法律行动的维权](/content/2020/06/20200616-5878015194273820578.md)
+
+[文字版:2020年6月13日郭先生连线江财神畅谈喜马拉雅农场和新中国联邦的未来](/content/2020/06/20200616-1167287562234062263.md)
+
+[文字版:郭先生2020年6月10日紧急直播-关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/2020/06/20200613-1120918089970981192.md)
+
+[文字版:郭先生2020年6月9日直播-关于G币的退款诉讼赔偿以及如何拥有投资GTV老股的机会的一些回答](/content/2020/06/20200613-4006639465820074167.md)
+
+[文字版:2020年6月8日郭先生连线木兰乱聊直播](/content/2020/06/20200611-1109197692077432203.md)
 
 [文字版：郭先生2020年6月6日直播-新中国联邦对世界和中国人民的三大影响以及正道主义新中国的未来设想](/content/2020/06/20200611-7286733971832697894.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/content/2020/05/20200520-8311112395612251879.md)
 
-[文字版：郭先生5月16日GTV直播](/content/2020/05/20200519-6331288695899345209.md)
 
-[文字版:5月15日郭先生GTV直播](/content/2020/05/20200519-1610344704805853359.md)
-
-[文字版:郭先生5月14日GTV直播](/content/2020/05/20200518-4909626383559328893.md)
-
-[文字版：5月10日郭先生GTV直播连线文欣](/content/2020/05/20200516-5917193876811912006.md)
-
-[文字版：5月11日郭先生GTV直播连线长岛伟哥](/content/2020/05/20200516-6242836971583369231.md)
-
-[文字版:郭先生5月9日GTV直播连线魔女Peace](/content/2020/05/20200514-7037618968169156768.md)
-
-[文字版：5月8日郭先生GTV直播连线挺郭小妹](/content/2020/05/20200512-5842185723258318346.md)
-
-[文字版：5月9日郭先生GTV直播连线草根小哥](/content/2020/05/20200512-4168570393845620810.md)
-
-[文字版:5月8日郭先生GTV直播连线战友文信](/content/2020/05/20200510-6481268913488602343.md)
-
-[文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
-
-
-## 頁面 9/35 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [35](/content/README-35.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
+## 頁面 9/36 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [36](/content/README-36.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)

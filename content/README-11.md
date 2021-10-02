@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 11/35 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [35](/content/README-35.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+## 頁面 11/36 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [36](/content/README-36.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+
+[文字版:2020年4月10日郭先生直播](/content/2020/04/20200415-6756741546928314849.md)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/content/2020/04/20200413-4060291104151405554.md)
+
+[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/2020/04/20200413-3302995427300860720.md)
+
+[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/content/2020/04/20200410-8094198208001085988.md)
+
+[文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/content/2020/04/20200410-1671828290392113200.md)
+
+[文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/content/2020/04/20200408-8436401289033941417.md)
+
+[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/content/2020/04/20200406-4712830590535337259.md)
+
+[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想](/content/2020/04/20200406-3461892408125397096.md)
+
+[文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/content/2020/04/20200404-7348500743663555332.md)
+
+[文字版：2020年4月2日傍晚GTV第二次直播 共产党员该如何考虑自救了](/content/2020/04/20200404-1051683434562586641.md)
 
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/2020/04/20200403-1478603494714953028.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/content/2020/03/20200311-6040433872108549534.md)
 
-[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/2020/03/20200311-4043567072040877942.md)
 
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
-
-[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
-
-[文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/content/2020/03/20200302-6186645591158961547.md)
-
-[文字版:2020年2月27日文贵谈王岐山站着出来握手](/content/2020/02/20200229-501572706956306869.md)
-
-[文字版:2020年2月21日郭先生参加班农战斗室访谈](/content/2020/02/20200227-1553172568054337472.md)
-
-[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/content/2020/02/20200224-7577071556955663808.md)
-
-[文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/content/2020/02/20200223-7052827819661082462.md)
-
-[文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/content/2020/02/20200223-478006354833064962.md)
-
-[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/content/2020/02/20200221-2173657397153903143.md)
-
-
-## 頁面 11/35 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [35](/content/README-35.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+## 頁面 11/36 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [36](/content/README-36.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

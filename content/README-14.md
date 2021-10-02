@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 14/35 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [35](/content/README-35.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
+## 頁面 14/36 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [36](/content/README-36.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年1月4日文贵报平安直播-共产党不管你咋折腾，你完蛋了！](/content/2020/01/20200106-5803835959397002894.md)
+
+[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/content/2020/01/20200105-5702641725419467150.md)
+
+[文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/content/2020/01/20200104-2138537406331428619.md)
+
+[文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！](/content/2020/01/20200104-4925314405005648052.md)
+
+[文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片](/content/2020/01/20200102-5236405611062477381.md)
+
+[文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/content/2020/01/20200102-3330652484007682662.md)
+
+[文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/content/2019/12/20191231-3168641532778332278.md)
+
+[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/content/2019/12/20191231-1107954365607490232.md)
+
+[文字版：2019年12月27日文贵报平安录播](/content/2019/12/20191231-7426238118380743813.md)
+
+[文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/content/2019/12/20191228-6979826398362851059.md)
 
 [文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/content/2019/12/20191228-7349804487258741094.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：2019年12月8日文贵报平安](/content/2019/12/20191210-8975996201411180459.md)
 
-[文字版：2019年12月7日郭先生对话钢铁侠](/content/2019/12/20191209-6749356903573144336.md)
 
-[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/content/2019/12/20191205-3740864739432231815.md)
-
-[文字版：2019年12月3日郭先生报平安](/content/2019/12/20191204-1258843651620864623.md)
-
-[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/content/2019/12/20191203-2918612896973787175.md)
-
-[文字版：2019年12月1日郭先生报平安直播](/content/2019/12/20191203-2633135332131965317.md)
-
-[文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
-
-[文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/2019/12/20191201-3479974122524096649.md)
-
-[文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/content/2019/11/20191129-6884019306620752974.md)
-
-[文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/content/2019/11/20191129-9084303791170558370.md)
-
-[文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播](/content/2019/11/20191128-7131783827849750716.md)
-
-
-## 頁面 14/35 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [35](/content/README-35.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
+## 頁面 14/36 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [36](/content/README-36.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)

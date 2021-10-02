@@ -14,7 +14,27 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 12/35 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [35](/content/README-35.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/36 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [36](/content/README-36.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/2020/03/20200311-4043567072040877942.md)
+
+[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
+
+[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
+
+[文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/content/2020/03/20200302-6186645591158961547.md)
+
+[文字版:2020年2月27日文贵谈王岐山站着出来握手](/content/2020/02/20200229-501572706956306869.md)
+
+[文字版:2020年2月21日郭先生参加班农战斗室访谈](/content/2020/02/20200227-1553172568054337472.md)
+
+[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/content/2020/02/20200224-7577071556955663808.md)
+
+[文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/content/2020/02/20200223-7052827819661082462.md)
+
+[文字版:2020年2月20日郭先生在班农战斗室第21期谈武汉疫情](/content/2020/02/20200223-478006354833064962.md)
+
+[文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/content/2020/02/20200221-2173657397153903143.md)
 
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/content/2020/02/20200221-5201737352028779423.md)
 
@@ -46,25 +66,5 @@
 
 [文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/content/2020/02/20200201-4702863158571733458.md)
 
-[文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/2020/02/20200201-2569965414035506727.md)
 
-[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/2020/01/20200130-8782739626371859630.md)
-
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/content/2020/01/20200130-1699829441084097385.md)
-
-[文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/content/2020/01/20200129-3976457637426719538.md)
-
-[文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/content/2020/01/20200128-8595436432379526422.md)
-
-[文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/content/2020/01/20200128-4895858785511453067.md)
-
-[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/content/2020/01/20200127-3403056014280027444.md)
-
-[文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/2020/01/20200127-1065691289737851203.md)
-
-[文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/2020/01/20200124-5709534972923488807.md)
-
-[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/content/2020/01/20200124-8451089471226145185.md)
-
-
-## 頁面 12/35 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [35](/content/README-35.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/36 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [36](/content/README-36.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
