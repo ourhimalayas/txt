@@ -2,19 +2,25 @@
 ---
 
 
-## 秘翻在线：美国查获180万颗芬太尼假药，其原料主要来自中共国
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568657/)
+## 麦卡洛医生：犯有反人类罪行的人都会被追捕
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568742/)
 
-#### 翻译/撰稿：zzballack
+**简评：**拒绝给予患者同情护理，制造恐惧、痛苦、住院甚至死亡，都是不道德、应该被谴责的，都会被视为反人类罪。每个人都会被追捕，正义会得到伸张。
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-26.png)   图片来源：福布斯
-据《纽约邮报》（New York Post）10月1日报道，在经历了为期两个月的调查后，美国缉毒局（DEA）查获了180万粒芬太尼假药，共逮捕了810人。缉毒局局长安妮·米尔格拉姆 (Anne Milgram)说：“这180万粒含有致命合成阿片类药物芬太尼的假药可能会导致70多万人死亡。我敦促美国民众今天向亲人和好友讲述该假药的危险，以及一粒药就能让人致死的事实。”
+GTV视频链接：[Dr. McCullough:你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类](https://gtv.org/video/id=6157e6d9d2e2b81748702d8b)
 
-DEA官员说，这些假药看起来几乎与治疗中重度疼痛的合法处方药完全相同，比如羟考酮 (Oxycodone)、阿得拉 (Adderall)和阿普唑仑 (Xanax)。墨西哥的毒品网络正在大规模生产这种假药，其所需的化学原料主要来自中共国。假药被贩运至美国后在美国各地分销，甚至在社交媒体和电子商务平台上出售。DEA的实验室测试结果显示，每10颗芬太尼假药中就有4个含有潜在致死剂量。
 
-与此同时，DEA还查获了1500多磅芬太尼粉末，这足以用于制造数千万颗药丸。他们还收缴了158非法武器、8800多磅冰毒（甲基苯丙胺）和1400磅可卡因。美国司法部副部长莉萨·莫纳科 (Lisa Monaco)表示，自2019年以来，DEA发现的含有芬太尼的假药数量猛增了近430%。在美国去年超过9.3万多起毒品过量致死事件中，非法的芬太尼占了近四分之三。缉毒局称，芬太尼的效果比吗啡强100倍，它经常被添加到海洛因中以增加其效力，或者被伪装成一种极易上瘾的阿片类药物。
 
-在这场对美国发动的“毒品战”中，中共伙同墨西哥毒枭以及其他犯罪集团杀害了许多美国人。中共深度参与了毒品的生产、销售以及分赃等过程。必须切断中共这个罪恶之源，美国的芬太尼毒品危机才会得到根本解决。
+**视频字幕：**
 
-新闻来源：[810 arrested in nationwide crackdown on fentanyl-laced fake pills: DEA](https://nypost.com/2021/10/01/810-arrested-in-crackdown-on-fentanyl-laced-fake-pills-dea/)
+坚持拒绝给予患者同情护理，制造恐惧、痛苦、住院和死亡，是不道德、应该被谴责的，在民事法庭上是非法的。你们所有人都会被追捕，你们中的每一个人都将被追捕，正义将得到伸张，这些行为被视为反人类罪。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：Vekap* *| 听写：云岭 | 翻译：势不可挡* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/XItbMMs42oWaz/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

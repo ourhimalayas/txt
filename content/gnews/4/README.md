@@ -2,29 +2,27 @@
 ---
 
 
-## 针下亡魂｜泰国59岁教师接种疫苗10日后去世
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1568655/)
+## 感染新冠后的自然免疫力足以对抗病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568740/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜發布日期/ 02/10/2021**
+**简评：**兰德参议员指责一位不具备科学和医学背景的傲慢的律师，无视科学事实，不承认很多感染过新冠病毒的患者痊愈后获得了强大的免疫力。这种认知既不体面，也不美国，更不诚实。他应该向美国人道歉。
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。 ***
-***本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。 ***
-***他们曾经和你我一样，也有想要实现的梦想，也有想要相爱的亲友，他们的生命虽然平凡但一样珍贵，希望有一天，公道会还他们一个真相。***
+GTV视频链接：[Sen. Rand Paul批评Xavier Becerra 拒绝在 HELP 听证会上向 Covid 幸存者道歉](https://gtv.org/video/id=6157e696d2e2b81748702d7a)
 
-【泰国】一名59岁的教师 Sunanta Khumchai 于今年 7 月 30 日接种阿斯利康 COVID-19 疫苗第一剂，随后，按时于 8 月 27 日接种第二剂。
 
-之后，她的身体开始出现状况，包括发烧、头痛和身体疼痛，并且情况持续恶化，直至 9 月 6 日晚，突然剧烈头痛，经送院诊治后，确诊为中风，生存机会渺茫，当晚就病重离世。
 
-在她的诊断书上，死因是脑动脉瘤。
+**视频字幕：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Sunantha-Khumchai-513x720.jpeg)
+你在全国各地旅行，将那些曾经感染过新冠病毒、查看了对百万人的研究并做出自己的决定—认为自然获得的免疫已经足够的人，称之为相信“地平说”的人。但是你想以某种方式告诉这些1亿多经历过新冠病毒的美国人，“你们无权决定自己的医疗保健”。你作为一个没有科学背景、没有医学学历的律师，高高在上，你为我们做决定？
 
-她 27 岁的儿子 Supawit Khamcham 认为，他的妈妈每年都进行详细身体检查，从未发现任何潜在问题，是个非常健康的人，因此，确信死因与疫苗有关。
+这是一种傲慢加专制主义，既不体面也不美国。你无视科学和科学研究的巨大优势。很多很多人在感染过新冠病毒后表现出强大和长期的免疫力。甚至CDC也不建议具有麻疹免疫力的人接种麻疹疫苗，对天花也是如此。但是你无视历史和科学，羞辱他们是相信“地平说”的人你应该为自己感到羞愧，为在自然获得的免疫力方面的不诚实向美国人道歉。
 
-他还提及，在未得到答案之前，他们全家人都不会停止追寻。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-*他們的故事：//[斯洛文尼亚 20](https://gnews.org/zh-hant/1568492/)[岁](https://gnews.org/zh-hans/1568651/)[女学生接种疫苗10日后离世//](https://gnews.org/zh-hant/1568492/)*
+*字幕：Vekap* *| 听写：云岭 | 翻译：Roberts | PR：云岭* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-* * *
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-***来源｜ [个案 001](https://thecovidworld.com/sunanta-khumchai-59-year-old-teacher-dies-10-days-after-the-astrazeneca-covid-19-vaccine/)***
+[![](https://spark.adobe.com/page/vLLxrQoaqmRnA/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/vLLxrQoaqmRnA/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

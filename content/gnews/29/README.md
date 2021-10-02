@@ -2,17 +2,19 @@
 ---
 
 
-## 秘翻在线：美最高法院大法官布雷特·卡瓦诺感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568418/)
+## 秘翻在线：美国白宫施压美航空公司执行强制疫苗令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568515/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2.jpg)图片来源：推特
-据《新闻极限》（Newsmax）10月1日报道，美最高法院大法官布雷特·卡瓦诺(Brett Kavanaugh)的中共病毒检测结果为阳性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-3.jpg)图片来源：福布斯
+据《新闻极限》（Newsmax）10月1日报道，消息人士本周五告诉路透社（Reuters），美国白宫正在向美国主要航空公司施压，要求他们在12月8日之前对员工执行接种中共病毒疫苗的强制命令。
 
-文章报道，高等法院周五的一份新闻稿中说，自卡瓦诺1月份完全接种中共病毒疫苗以来，一直没有任何症状。但是，10月1日星期五上午10点，最高法院将在法庭的特别会议上为副大法官艾米·康尼·巴雷特（Amy Coney Barrett）举行正式就职仪式之前，卡瓦诺和其他所有大法官进行了常规中共病毒检测，结果为阳性。
+白宫新冠疫情应对小组的协调员杰弗里·齐恩特 (Jeffrey Zients) 9月30日与美国航空公司（American Airlines）、达美航空公司（Delta Air Lines）和西南航空公司（Southwest Airlines）的首席执行官进行了交谈，以确保他们在12月8日的截止日期之前迅速制定和执行疫苗接种要求。由于这三家航空公司均与联邦政府有业务往来，符合政府对联邦承包商的定义，所以这三家航空公司及其雇员必须遵循政府对承包商的疫苗要求，必须于12月8日前接种疫苗。一位消息人士说，齐恩特敦促他们“尽早采取行动，以确保实施过程尽可能顺利”，并让他们参照联合航空公司（United Airlines）在8月公布的疫苗要求。
 
-最高法院额外说明，卡瓦诺的妻子和女儿也都完全接种了中共病毒疫苗。
+一些航空公司官员曾要求白宫将拜登在9月签署的疫苗强制令推迟到繁忙的假日旅游季之后。但是拜登政府通知各航空公司说，它将寻求修改民用后备机队(CRAF)的合同，以要求航空公司员工接种疫苗。
 
-新闻来源：[Justice Kavanaugh Tests Positive for COVID-19, Has No Symptoms](https://www.newsmax.com/headline/supreme-court-brett-kavanaugh-covid-19-positive/2021/10/01/id/1038712/)
+拜登政府的强制疫苗令越来越疯狂，科学研究和相关案例已经证明，接种了中共病毒疫苗的飞行员在飞行途中很容易发生意外，会给同乘机组人员和乘客的生命安全带来巨大危险。
+
+新闻来源：[White House Presses US Airlines to Quickly Mandate Vaccines for Staff](https://www.newsmax.com/streettalk/airline-industry-ccovid-19-vaccine/2021/10/01/id/1038779/)

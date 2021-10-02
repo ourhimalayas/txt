@@ -2,58 +2,26 @@
 ---
 
 
-## 孟晚舟回国，此次交易基本就是美国投降了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1568463/)
+## 英国汽油严重缺乏，有人骑马代步
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1568594/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-7.jpg)https://gtv.org/video/id=6157c355d2e2b817487024d9
-经济战从什么开始?
-¿Por dónde comienza la guerra económica?
+视频&文章：澳洲天好蓝
 
-股票市场, 卖美国国债
-Por el mercado de valores, la venta de bonos del Tesoro de EE. UU
+最近英国汽油严重缺乏，大多数加油站已经无油可加，英国汽油零售商协会旗下5500个加油站至少有三分之二已经卖空。这一情形造成了英国人的恐慌，大家都纷纷到加油站去抢购汽油，甚至有人为了买汽油在街上大打出手。目前，英国还有汽油销售的加油站，已经对车主进行了限制加油金额的措施。
 
-所以这次孟晚舟交易当中有三条
-Por eso esta vez, el acuerdo de Meng Wanzhou existe tres convenios
+不少报道分析认为，因为英国脱欧后，上万名英国工作的欧盟成员国卡车司机不能再在英国工作，更为重要的是CCP病毒席卷英国，中止了新卡车司机的培训。根据数据显示，英国目前缺9万名卡车司机。
 
-在一定时间内不卖你国债
-No vender los bonos de Tesoro por un período de tiempo determinado
+不过英国政府宣称，英国国内不缺油，只是英国人过度恐慌抢购造成的，不过英国关停的几千家加油站狠狠打了政府的脸。如果真是不缺油的话，缺司机也不是造成这个状况的理由。因为，政府完全可以调动军队来临时地运送汽油，或者可以组织一批人来运送，从而可以化解人人抢购汽油的恐慌。稳定社会，以实际行动来证明确实不缺油，但现在只是停留在了口炮上。所以，政府说的话完全不可信，政客都是撒谎不眨眼。
 
-第二, 不爆美国领导人的料
-En segundo lugar, no hacer reportaje de las noticias del líder estadounidense
+现在英国人已经面临无油可用的尴尬境地，不过有人脑洞大开，竟然骑着马上街，以马代步，这也不为是一个临时好的解决办法。但是，如果缺油成了长期的情形，那么，人人都骑马上街，马儿吃的草又成了难题。因为，还是缺卡车司机啊，没有卡车司机给你运送草料的话，也不可能人人都养得起马了。
 
-第三
-Tercero
+不过不只英国，现在世界供应链都出了问题。一切罪魁祸首都是因为中共释放了CCP病毒，造成国与国的禁航，城市与城市的封闭，人与人的隔离，因此大量企业破产，工人失业，供应链被破坏，物价上升，通货膨胀与滞胀同时发生。有的物品短缺，有的物品不短缺却因为供应链问题卖不出去，这是非常复杂的经济问题。现在不只CCP疫苗造成各种“梗”，就连世界经济也是因为CCP病毒与疫苗的关系造成了各种“经济梗”。
 
-表面上在气侯变暖(问题)上, 进行一下合作
-Superficialmente cooperar en cuanto al (problema) del calentamiento climático
+当然这一切原罪，就是CCP与黑暗势力媾和的结果！因为中共与黑暗势力早就计划了“新世界秩序与大重启”！自从很久以前，世界的金融就被设计成一种旁氏骗局。当然，中共国自“邓”所谓“改革开放”以来，就是按照这种模式来运行的，用房产泡沫和股市泡沫来洗劫老百姓创造的天量财富，并把这些钱转移到欧美，这也是为什么王岐山能有恃无恐的从海航弄钱，以及中共各家族所驱使的各种白手套，像肖健华，许家印之类疯狂从银行借钱。因为中共高层都知道，中共国、世界经济迟早要崩溃，这一切都是中共与黑暗势力早就谋划好的了。那么，拯救世界只有一种方法，就是跟着我们新中国联邦一起消灭中共与黑暗势力！
 
-然后把孟晚舟送回, 加拿大人放回
-Luego enviar a Meng Wanzhou de regreso y a los canadienses también
+（本文只代表作者个人观点）
 
-然后给华为一定的发展空间
-Después darle cierto espacio para el desarrollo de Huawei
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-一定发展空间
-Cierto espacio para el desarrollo
-
-甚至中国可以继续买一些国债
-Incluso, China puede seguir comprando algunos bonos de Tesoro
-
-就这交易
-Y este acuerdo
-
-实际上, 这基本上是美国投降了
-Prácticamente, es la rendición de EE. UU
-
-原视频日期：09/28/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442804677746126853?s=24
-视频时间段：0:00-0:44
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

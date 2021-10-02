@@ -2,44 +2,31 @@
 ---
 
 
-## 有声| 市场崩盘可能即将来临
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568637/)
+## 小镇医生爆料真相：疫苗公司歪曲数据
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568729/)
 
-配音：香草山美食部-玫瑰园
+**简评：**塞巴斯蒂安小镇急诊医生爆料，有很多打过疫苗之后出现各种副作用的病人前来就诊。他们在歪曲数据，如果病人注射疫苗7天之后出现副作用，就不算疫苗事故。副作用要在最初的24到48小时之内才被承认。医药不能一刀切，但这个疫苗是一刀切的，疫苗一定有问题。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+GTV视频链接：[来自瑞士塞巴斯蒂安的小城镇的急诊医生1:在我这里就有足够多的打过疫苗后有副作用的病人](https://gtv.org/video/id=61551aa2d2e2b817486f7a7d)
 
 
 
+**视频字幕：**
 
+在我这里就有足够多的打过疫苗后有副作用的病人了。越来越多的人对这种疫苗有副作用。我來说说他们是如何歪曲数据的。这是我今天从某个三大疫苗专家之一的人那里听说的。他们在歪曲数据，如果病人在七天后有副作用，就不被算做有副作用。副作用是在最初的24至48小时内。
 
-零对冲9月30日刊登了一篇署名查尔斯·休·史密斯（Charles Hugh Smith）的文章——《没人认为可能的市场崩盘即将来临》。
+今天一位年轻女士因淋巴结肿大、头痛、疲劳来就诊，她上个月打了针。她所有的淋巴结现在就像葡萄那么大。我们正在送她去做研究。诊断性研究。没人谈论他们给人们接种疫苗，是如何对待有副作用的病人的，我有一位女病人，因面瘫而前来就诊。
 
-文章认为：盛宴正在上演，冒险崩溃就像报复一样，因为没有“认真的人”相信崩溃是可能的，更不用说迫在眉睫了。他例举了若干相互作用的因素：经济泡沫已经见顶，高估值、高杠杆、高度兴奋和投机的极端情况已经远远超过了基准；通货膨胀不仅是内在的，而且是全球性的问题，整个地区的天然气价格可能会增加三倍，而其他必需品的成本也可能毫不费力地轻松增加三倍；美联储的腐败造成其公信力下降，同时，由于美联储已经失去对收益率的控制，长期积累的对美联储神一般权力的信任正在动摇；中国这次不会再像以前那样，在泡沫破灭时拯救全球市场；散户投资者投入的资金比过去10-20年还要多，最终泡沫将被戳破。
+昨天来了一个年轻女孩。她不能走路，不能做任何事了。非常抑郁，无法正常生活。而他们说她是个例。不是的。她在接种疫苗之前是一个完全健康的年轻女孩。为什么出了问题就没人管了？这个疫苗一定是有问题的。
 
+不能一刀切，医药不是一刀切。为什么这种疫苗是一刀切的？现在有一位先生因为疫苗的副作用正在登记。你知道，我不是瑞士的反疫苗人士，我只是一个叫塞巴斯蒂安的小城镇的急诊医生。我每天都看到令人担忧的案例。
 
+*编辑：【英国伦敦喜庄园编辑部】*
 
-**文字版原文：[市场崩盘可能即将来临](https://gnews.org/zh-hans/1565932/)**
+*字幕/听写：云岭 | 翻译：clau | PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[![](https://spark.adobe.com/page/5Y2N5VTOEcXuk/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/5Y2N5VTOEcXuk/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

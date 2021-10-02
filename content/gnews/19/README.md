@@ -2,26 +2,44 @@
 ---
 
 
-## 【樱花宅急便】受电荒重挫 中共紧急请求俄罗斯供电
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1568512/)
+## 有声| 市场崩盘可能即将来临
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568637/)
 
-作者：东京樱花团｜文小白
-![](https://lh4.googleusercontent.com/wSMLoQTsAMuZ7vTBt0bsn7FLQCIeSgGERVYCyZ8bmAOIjrr7Q-kEhsketYnbqOhSOqIiIOr9ecP6whsZotPIJ5p3sjSwg8LnfwzovI-P0ocLMjoJ2SApi0oJq5IPdgIfbBBvt-2E=s0)[图片来源](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%BC%BA%E7%94%B5%E5%8D%B1%E6%9C%BA%E4%BF%84%E7%BD%97%E6%96%AF%E7%A7%B0%E6%94%B6%E5%88%B0%E5%8C%97%E4%BA%AC%E8%AF%B7%E6%B1%82%E5%B8%AE%E5%8A%A9/a-59360546)
-应中共的请求，俄罗斯10月将把输华电力增加一倍，以帮助中国缓解供电紧张。
+配音：香草山美食部-玫瑰园
 
-路透莫斯科10月1日报道，俄罗斯电力出口垄断企业Inter RAOIRAO.MM周五（1日）表示，中共国家电网本周稍早请求该公司增加对中国北方省份的电力供应。应中共的请求，从10月1日起，该公司将通过2012年所建成的阿穆尔-黑河高压输电线路，把10月向中国供应的电力增加一倍，以期大大缓解中国东北三省的用电紧张局面。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-·延展阅读：[中国缺电危机：俄罗斯称收到北京请求帮助](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%BC%BA%E7%94%B5%E5%8D%B1%E6%9C%BA%E4%BF%84%E7%BD%97%E6%96%AF%E7%A7%B0%E6%94%B6%E5%88%B0%E5%8C%97%E4%BA%AC%E8%AF%B7%E6%B1%82%E5%B8%AE%E5%8A%A9/a-59360546)
 
-·延展阅读：[俄罗斯统一电力公司](https://baike.baidu.com/item/%E4%BF%84%E7%BD%97%E6%96%AF%E7%BB%9F%E4%B8%80%E7%94%B5%E5%8A%9B%E5%85%AC%E5%8F%B8/11014841)
 
-Inter RAO表示，10月对中国的出口将同比增长100%，较原定计划增长90%。该公司补充称，所有三条俄中输电线路都将用于供电，这三条线路每年能够输送高达70亿千瓦时的电力。
 
-在与西方关系持续恶化的同时，中共加大从俄罗斯采购农产品、煤炭和能源，双边贸易额今年可望创历史记录。
 
-[参考连接]：[应中国的请求 俄罗斯10月将把输华电力增加一倍以帮助中国缓解供电紧张](https://cn.reuters.com/article/chinaNews/idCNKBS2GS00S?irpc=932)
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 / 平安卿卿
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+零对冲9月30日刊登了一篇署名查尔斯·休·史密斯（Charles Hugh Smith）的文章——《没人认为可能的市场崩盘即将来临》。
+
+文章认为：盛宴正在上演，冒险崩溃就像报复一样，因为没有“认真的人”相信崩溃是可能的，更不用说迫在眉睫了。他例举了若干相互作用的因素：经济泡沫已经见顶，高估值、高杠杆、高度兴奋和投机的极端情况已经远远超过了基准；通货膨胀不仅是内在的，而且是全球性的问题，整个地区的天然气价格可能会增加三倍，而其他必需品的成本也可能毫不费力地轻松增加三倍；美联储的腐败造成其公信力下降，同时，由于美联储已经失去对收益率的控制，长期积累的对美联储神一般权力的信任正在动摇；中国这次不会再像以前那样，在泡沫破灭时拯救全球市场；散户投资者投入的资金比过去10-20年还要多，最终泡沫将被戳破。
+
+
+
+**文字版原文：[市场崩盘可能即将来临](https://gnews.org/zh-hans/1565932/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
