@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 1:25 PM (UTC)`
+
+10月2号：尊敬的战友们好！你们健身了吗？传播疫苗灾难，CCP病毒的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group35/getter/2021/10/02/13/25/abf806aa-f86a-12e3-796c-51d10b99c059/out.jpg)
+
+---
+
 `@miles 10/2/2021 12:13 PM (UTC)`
 
 10月2号．兔子还没死呢，狐狸已经感到悲哀了，胡舒立闻到味道了，知道王岐山孟建柱，他的真正的靠山，要到啦。当然胡已经边控了几年了，这回一定要收进监狱了！【七哥，味道不對了。。。。剛看了，微博確實有，不清楚的照片是我拿手機拍的🙏🙏🙏】
@@ -289,13 +296,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 
 9.28:【七哥好，英国跟您今天盖特说的完全一样】
 ![img](https://media.gettr.com/group41/getter/2021/09/28/23/08/b8e369ea-a15b-0400-0f2d-ee3e258481e8/b52bc7caed155a7cab1b5c0c79197645.jpg)
-
----
-
-`@miles 9/28/2021 11:00 PM (UTC)`
-
-9/28/2012 Miles Guo’s GETTR: The CCP’s economy is bound to collapse regardless who will take power after the 20th Party Congress; Once the real estate industry goes bankrupt, its relevant industries and financial sector will also be over, and the CCP won’t purchase iron ore from Australia anymore; The greedy Western capitalists only wants to profit from the Huawei incident; We must hold accountable and punish the Suharto family for their crimes against the ethnic Chinese according to the law, and we must avenge!<br/><br/>9/28/2021 文贵盖特：20大后不论谁上台，中共经济都必将崩溃；房地产一旦破产，其相关产业和金融都要完蛋，中共不再会买澳洲的铁矿了；贪婪的西方资本家一心想利用华为事件牟利；必须依法追究并严惩苏哈托家族针对华人所犯下的罪行，此仇必报！
-![img](https://media.gettr.com/group44/getter/2021/09/28/22/a074ae34-9706-13c6-a233-4cfe34bbcd1a/out.jpg)
 
 ---
 
