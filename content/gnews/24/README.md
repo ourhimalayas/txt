@@ -2,29 +2,39 @@
 ---
 
 
-## 为缓解电荒 中共国多地调高电价
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1569338/)
+## 里约热内卢爆发疫苗护照之争
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569393/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/power_1614911127_133235183663.jpg)
-**编辑摘要：**
-
-据美国之音10月1日报道，进入9月中下旬以来，中共国大约有20个省市出现严重电荒，特别是在拥有1亿居民的东北三省，拉闸限电不仅严重冲击工业生产，而且波及民众生活。
-
-据中共官媒报道，在电力紧缺和电煤价格倒挂的双重压力下，自今年7月以来，至少已有内蒙古、四川、宁夏、上海、山东、广东、湖南、安徽等8个省市区批准上网电价上调。此外，包括广东、贵州、广西、安徽、浙江和河南在内的6个省区则将高峰与离峰的电价价差拉大，借此让用户“错峰用电”。
-
-中共国多地拉闸限电，甚至电价上涨，中共官媒还坚称电价上浮暂时并不涉及民生用电。70多年来，中共国每一次灾祸的出现，无一例外都是中共所为，然而中共每一次度过困难的手法都无一例外的将苦难施加给中国百姓。中国人民一朝不醒，邪恶中共一日不灭，苦难就一刻不会停止。
-
-[新闻参考链接](https://www.voachinese.com/amp/Regional-China-utilities-get-nod-to-raise-prices-in-hope-of-easing-outages-20211001/6253474.html#click=https://t.co/dYsw7bsnQ4)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*编辑：穆清*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：加拿大枫叶农场 – 平民正道
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
+此前，巴西里约热内卢市曾强制民众执行所谓的“疫苗护照”。而后一天，当地法官因其过于分裂而暂停了它们。近日，应市政府的要求，巴西最高法院于9月30日再度废除了这一裁决，此裁决曾禁止向民众要求他们提供疫苗接种证明以便进入某些公共场所。
+
+目前，由于该项裁决被废止，导致里约居民将再次被要求证明他们已经接种了疫苗，才能参加活动或进入健身房、博物馆和旅游场所等公共设施。对此，之前暂停疫苗护照的法官兰格尔表示，“实施疫苗护照法令会将社会分为两种类型，接种疫苗的民众和未接种疫苗的民众，疫苗护照会强行阻止未接种疫苗的民众进行自由的流通。”
+
+事实上，至今已有超过 50 万的巴西人在大流行中丧生——仅次于美国这一世界上死亡人数最多的国家。 悲哀的是，巴西政府非但不采用那些有效的预防药物，反而在各地 200 多个城镇都采用了某种形式的疫苗护照，甚至包括该国最大的城市圣保罗。
+
+庆幸的是，兰格尔并不是唯一一个对该疫苗护照系统持怀疑态度的人。巴西总统贾尔·博尔索纳罗一直在与此类强制性疫苗接种措施作斗争，并多次公开批评了疫苗护照的想法。本月早些时候，博尔索纳罗在纽约联合国总部也公开反对并抵制纽约政府的疫苗接种规定。
+
+参考链接：[https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html](https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html)
+
+（本文仅代表作者观点）
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑：Irene木木
+
+校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
