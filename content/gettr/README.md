@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/1/2021 11:59 PM (UTC)`
+
+转：ZeroHedge对CDC最近颁布的新冠检测新规定作了剖析，指出这是明目张胆的欺骗。CDC通过一个完全故意的决定，人为地让打了新冠疫苗的人被检测出新冠（"突破性感染"）的可能性降到几乎为零。<br/><br/>新规定说，对完全接种疫苗的人，CDC只接受周期阈值CT值在28及以下的核酸检测（RT-PCR）样本。同时规定，只有住院和死亡的突破性感染案例才上报。由于这些非常技术性的规定，一般老百姓很容易不知究竟。所以该文章用了三个例子来讲解CDC新规定的“效果”：<br/><br/>A尚未接种疫苗。他以40阈值做的PCR检测结果显示为新冠阳性，尽管没有症状，但计算为官方病例。<br/><br/>B已接种疫苗。他以28阈值做检测呈阳性，并高烧卧床六周。因为从来没有进过医院，也没有死，他不算为官方病例。<br/><br/>C已接种疫苗。他出现高烧和呼吸问题。在医院住了几周后死亡。因为他以29阈值做的PCR检测，结果虽然呈阳性，但不算为官方病例。<br/><br/>你怎么看这样的CDC？<br/>https://www.zerohedge.com/covid-19/caught-red-handed-cdc-changes-test-thresholds-virtually-eliminate-new-covid-cases-among
+
+---
+
+`@miles 10/1/2021 11:57 PM (UTC)`
+
+强生疫苗公司的科学家以及业务负责人私下对疫苗的真实看法曝光：他们都认为人们根本不需要接种疫苗！<br/><br/>True attitudes towards the Covid Vaccine of a scientist and a business leader from J&J Vaccine exposed: They both believe people don't need to be vaccinated
+![img](https://media.gettr.com/group8/getter/2021/10/01/23/57/c892af25-8761-ad25-f9bf-1e6f10959932/out.jpg)
+
+---
+
 `@miles 10/1/2021 11:48 PM (UTC)`
 
 ✊✊✊
@@ -282,21 +295,6 @@ Unfortunately, there are more stories like this, but they just aren't being repo
 
 9月28号：火币，将停止中国境內用户，新用户不能注册，老用户退款！这是共产党不允许任何中国人的财富安全的地方，可以存放，只能有共产党的虚拟人民币的这一个选择这说明了共产党，已经到了穷凶极恶山穷水尽的地步了。
 ![img](https://media.gettr.com/group48/getter/2021/09/28/18/3cac7986-2f27-e6b0-13a7-403b6fc3f1cb/6f8c9d685f5d79c8ab2ff3f72dc09e6b.jpg)
-
----
-
-`@miles 9/28/2021 5:09 PM (UTC)`
-
-❤️❤️❤️❤️❤️❤️❤️❤️
-> `@globalhimalaya 9/28/2021 4:24 AM (UTC)`<br/>Archbishop Vigano:  Forcing experimental vaccines is a grave crime against humanity. It is a massacre planned on a global level,<br/>维加诺大主教针对疫苗发声：强推试验性疫苗是反人类重罪！是全球范围对人类有计划的大屠杀！我们正处于战争中，他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益
-![img](https://media.gettr.com/group20/origin/2021/09/28/04/24/4deb4632-898a-5e1a-e947-5e6e9fab1871/out.jpg)
-
----
-
-`@miles 9/28/2021 4:28 PM (UTC)`
-
-9月28号：七哥在开会前．紧急给战友们录个视频，全世界的人民的生活方式和所有的全球的供应链就有巨大的改变。我们该如何应对，共产党内部正在酝酿的腥风血雨．是先抓曾庆红．王岐山，孟建柱，还是全部抓捕呢？
-![img](https://media.gettr.com/group21/getter/2021/09/28/16/28/54dfbd93-9e87-9b09-32b5-d4c6a8c8abdb/out.jpg)
 
 ---
 

@@ -2,49 +2,31 @@
 ---
 
 
-## 不顾联盟施压 英超球员更相信自然免疫疫苗接种率奇低
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567574/)
+## 美参议员保罗抨击拜登卫生部长的疫苗政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1567599/)
 
-作者：纽约香草山农场 – 四季
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed.png)图片来源：视频截图
+据Summit News10月1日公布的一段视频显示参议员兰德-保罗周四斥责了拜登政府的卫生和公共服务部长泽维尔-贝塞拉，指责他无视科学，并通过剥夺美国人自己的医疗决定权显示出专制主义。
 
+参议员特别提到政府拒绝接受COVID的自然免疫同目前的疫苗一样有效，甚至可能更有效，以及贝塞拉自己将那些指出这一事实的人描述为’平头人’。保罗指控贝塞拉 “侮辱了数以百万计的美国人，包括康复的NBA球星约翰逊-艾萨克（Johnathan Isaac）。
 
+在提到以色列最近的一项研究发现接种疫苗的人比那些有自然免疫力的人更容易感染COVID-19时，保罗告诉贝塞拉，应该允许美国人看看250万人的研究，看起来我的免疫力和疫苗一样好’或者不一样。
 
+“也许在一个自由的国家，我应该能够做出这个决定，”保罗敦促说。
 
+“相反，你选择在全国范围内旅行并称像约翰森-艾萨克这样的人和其他人，包括我自己，为平头人，”参议员继续说，”我们发现这非常具有侮辱性，这与科学背道而驰。”
 
-据[零对冲](https://www.zerohedge.com/covid-19/only-seven-premier-league-clubs-have-more-50-vaccinated-players)10月1日报道，尽管进行了大规模的公关宣传以鼓励疫苗接种，但在20个英超足球俱乐部中，只有7个俱乐部有超过50%的球员在其球队中接种了疫苗。
+保罗知道贝塞拉不是医生，但他还是问：“你是否是一名合格的医生？”，”所以你不是医生，你有科学学位吗？” 保罗进一步询问。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1101-1-290921ronaldo1.jpg)图片来源：零对冲
+“你一个人高高在上，你做了这些决定，一个没有科学背景、没有医学学位的律师……这是一种傲慢加上专制，是不体面的、非美国的，”保罗抨击道。
 
-这是《体育邮报》在关于英超联赛计划“奖励”疫苗接种率高的球队的报道中披露的。至少有两家英超俱乐部在整个球队中接种疫苗的球员不超过6人，而他们的球队通常由25名以上的球员组成。
+“你，先生，是一个无视科学的人。绝大多数的科学研究，几十项，几十项，显示了感染后强大的、持久的免疫力，”参议员进一步指控，要求贝塞拉为不诚实的行为道歉。
 
-尽管媒体和体育当局对球员施加了铺天盖地的压力，但他们中的许多人仍然拒绝接种疫苗。
+参议员还说， 这不是关于反对疫苗的争论，而是让那些已经有了免疫力的人做出自己决定的辩论。
 
-而英超联盟担心，当疫苗护照在国际旅行中变得普遍的时候，会使球员参加外国足球比赛面临风险。
+在此视频的开头，保罗警告说，YouTube很可能会将其撤下，因他敢于偏离政府的观点并再次审查他，。参议员指出，这段录像也会上传到Rumble上，并将继续留在那里。
 
-但正如NBA球星乔纳森-艾萨克说的那样，一个健康的年轻运动员绝对没有理由接种COVID-19疫苗，因为疫苗的副作用（无论多么罕见）对20-30岁身体健康的男性构成的威胁比病毒本身更大。
-
-看来运动员群体对自己的健康有着独特的看法和研判，更多地相信天赋的自然免疫力。
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+新闻来源：[Video: Rand Paul Blasts Biden Health Secretary; “This Is An Arrogance Coupled With An Authoritarianism That Is Unseemly And Un-American” – Summit News](https://summit.news/2021/10/01/video-rand-paul-blasts-biden-health-secretary-this-is-an-arrogance-coupled-with-an-authoritarianism-that-is-unseemly-and-un-american/)
