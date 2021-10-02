@@ -2,50 +2,40 @@
 ---
 
 
-## “社会民主连线”（社民连）成员在中共国殇日举行抗议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568128/)
+## CDC 政策变化早已证实其明显的欺骗行为
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568276/)
 
-栏目记者：葛朗台太太，andy5
-责任编辑：葛朗台太太
+#### 编译：彩虹
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-3.jpg)图片来源：Politico
+2020年5月23日，零对冲（ZeroHedge）曾经发表一篇文章，报道美国疾病预防控制中心（CDC）改变数据记录和中共病毒测试的做法，从而让疫苗看起来对预防中共病毒有效果。
+
+文章说，在4月底/五月初，CDC在其网站上公开发布了政策变化，该政策变化的重点在于疫苗失败导致的感染问题。
+
+从根本上讲，操控中共病毒疫情世界大流行规模建立于两个关键点：
+
+1. 虚假阳性测试。不可靠的PCR测试可以通过改变周期阈值（CT值）从而操控为大量虚假阳性。
+2. 夸大的感染病例数。对于中共病毒感染病例的定义太宽泛，即使没有表现出任何症状，也可以将任何被测试为阳性的人数列为感染病例。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
+**如果没有这两项政策的执行，就不会出现明显的世界大流行。现在CDC颁布了两项政策的变化，这意味着对于接种了疫苗的人来说，已经不再适用。**
 
+首先，他们降低了疑似“疫苗失败导致感染”的样本周期阈值（CT值）。
 
-中共国殇日当天，香港黑警部署超过8000警力，对香港持续进行高压非法统治情况下，仍然有4名来自社会民主连线的成员举行了公开的抗议活动。这4位示威者在出发之前就已经遭到香港恶警的拦截，但是他们不畏强权，仍然拉着“释放47人，释放所有政治犯，全国实行普选”的横幅踏上示威征途，沿途还高声呼喊“释放所有政治犯”、“释放47人”等口号。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture13.jpg)
-我们回顾过去几个国殇日，发现：2018年，香港人仍可以自由上街游行。
+在CDC于4月底上传到他们网站的对各州卫生部门处理“疫苗失败导致感染”的指示中说，对于已知RT-PCR循环阈值（Ct）的病例，仅将Ct值≤28的标本提交给CDC进行测序。
 
-2019年，香港黑警部署了5,000以上的警力，香港人民发起“十一国殇，六区开花”的抗议活动，高喊：“时代革命、光复香港”、“五大诉求、缺一不可”的口号，在香港港岛，九龙，新界等多区同时进行抗议。
+但是，在整个中共病毒疫情大流行期间，CT值超过35是常态，世界各地的实验室都超过了40。也就是说，针对完全接种了中国病毒疫苗的人，CDC只接受28个周期或更少周期的样本，这只不过是为了减少官方记录的“疫苗失败导致感染”的数量而已。
 
-而到了2020年10月1日，香港黑警部署了超过6000警力，拦截和镇压所有可能的抗议。当天晚上，全港就有至少86人被捕。
+其次，接种了疫苗的无症状或轻微的感染者不再被记录为“中共病毒病例”，也就是说，即使在低于28的CT值下的样本被测为包含中共病毒，但CDC也不再将其记录为 “疫苗失败感染者”，除非你住院或死亡。同时，这也就意味着，从5月1日开始，未接种疫苗的人将比接种了疫苗的人更容易被诊断为中共病毒感染者。
 
-香港人民的抗议声音在短短的三年内，已经被港共政府和黑警彻底消声。
+于是，为便于普通读者理解，文章作者举了如下几个例子以作说明。
 
-（本文仅代表作者观点）
+案例A，尚未接种疫苗。他以40阈值做的PCR检测结果显示为新冠阳性，尽管没有症状，但计算为官方病例。
 
-参考链接：
-1. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://mil.news.sina.com.cn/china/2021-10-01/doc-iktzscyx7398564.shtml&quot;)
-2. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://zh.wikipedia.org/wiki/%E7%A4%BE%E6%9C%83%E6%B0%91%E4%B8%BB%E9%80%A3%E7%B7%9A)
-3. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.voachinese.com/a/Hong-Kong-police-halt-4-person-national-day-protest-20211001/6253321.html)
-4. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.thehindu.com/news/international/police-halt-4-person-national-day-protest-in-hong-kong/article36769724.ece)
-5. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.voachinese.com/a/hong-kong-leader-says-stability-restored-riot-police-on-alert-over-banned-protest-march-20201001/5604680.html)
-6. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201001-%E9%A6%99%E6%B8%AF-%E6%B2%A1%E6%9C%89%E5%9B%BD%E5%BA%86%E5%8F%AA%E6%9C%89%E5%9B%BD%E6%AE%87)
-7. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.wenxuecity.com/news/2021/09/30/10945485.html)
-8. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.voachinese.com/a/hk-emerge-more-protests-20191001/5105359.html)
-9. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://zh.m.wikipedia.org/wiki/2019%E5%B9%B410%E6%9C%881%E6%97%A5%E9%A6%99%E6%B8%AF%E7%A4%BA%E5%A8%81)
-10. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://youtu.be/DDui6luCKcQ)
+案例B，已接种疫苗。他以28阈值做检测呈阳性，并高烧卧床六周。因为从来没有进过医院，也没有死，他不算为官方病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+案例C，已接种疫苗。他出现高烧和呼吸问题。在医院住了几周后死亡。因为他以29阈值做的PCR检测，结果虽然呈阳性，但不算为官方病例。
 
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
+**CDC****的做法是只对接种了疫苗的人适用这些新政策，而对未接种疫苗的人保留旧规则，造成的唯一可能结果，就是官方记录会显示未接种疫苗的人感染中共病毒的数量远远大于接种了疫苗的人。这难道不是明显的故意欺骗行为吗？**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
+**新闻来源：**[Caught Red-Handed: CDC Changes Test Thresholds To Virtually Eliminate New COVID Cases Among Vaxx’d](https://www.zerohedge.com/covid-19/caught-red-handed-cdc-changes-test-thresholds-virtually-eliminate-new-covid-cases-among)

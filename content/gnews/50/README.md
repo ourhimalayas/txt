@@ -2,43 +2,59 @@
 ---
 
 
-## 在今天这第72个国殇日里大连和烟台下起了冰雹
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1566717/)
+## 煤炭短缺难改，拉闸限电成“常态”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567585/)
 
-2021年10月1日是大陆人民迎来的第72个国殇日，在这个国殇日里，大连和烟台人民看到的不是秋高气爽更不是云淡风轻，而是局部的冰雹甚至是鸡蛋大的冰雹。
+作者：香草山农场-鹰(文言)
 
-据[**沸点视频**](https://weibo.com/5145725878?refer_flag=1001030103_) [2021年10月1日12:38](https://weibo.com/5145725878/KAHsHhHZM?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-【[#大连下*冰雹*部分航班延误取消#](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E8%BF%9E%E4%B8%8B%E5%86%B0%E9%9B%B9%E9%83%A8%E5%88%86%E8%88%AA%E7%8F%AD%E5%BB%B6%E8%AF%AF%E5%8F%96%E6%B6%88%23)：部分航空器不同程度受损】10月1日，辽宁大连出现强降雨并伴有*冰雹*。[#大连突下*冰雹*超鸡蛋大#](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E8%BF%9E%E7%AA%81%E4%B8%8B%E5%86%B0%E9%9B%B9%E8%B6%85%E9%B8%A1%E8%9B%8B%E5%A4%A7%23)。很多市民被*冰雹*声吵醒。一夜过后，市民起床后发现自己的车被*冰雹*砸伤、车玻璃被砸碎，车体被砸凹陷。有市民称，在大连市区居住几十年，从未见过这么大的*冰雹*。据大连国际机场官微通告，受突发*冰雹*极端天气影响，造成部分航空器不同程度受损，导致部分航班延误、取消。[#蓝V视界#](https://s.weibo.com/weibo?q=%23%E8%93%9DV%E8%A7%86%E7%95%8C%23) [2大连](https://weibo.com/p/1001018008621020000000000) [L沸点视频的微博视频](http://t.cn/A6MfBLeb)
 
-另据[**印象烟台**](https://weibo.com/2266260155?refer_flag=1001030103_) [2021年10月1日14:06](https://weibo.com/2266260155/KAI2jbDFn?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-晴天霹雳！！今天上午*烟台*蓬莱区遭遇*冰雹*天气！目前正值*烟台*苹果成熟期……哎！你那里下*冰雹*啦嘛？[#*烟台冰雹*#](https://s.weibo.com/weibo/%23%E7%83%9F%E5%8F%B0%E5%86%B0%E9%9B%B9%23) [#*烟台*人的海鲜日常#](https://s.weibo.com/weibo?q=%23%E7%83%9F%E5%8F%B0%E4%BA%BA%E7%9A%84%E6%B5%B7%E9%B2%9C%E6%97%A5%E5%B8%B8%23) [L印象*烟台*的微博视频](http://t.cn/A6MfezY6) ​
+新浪网10月1日转载中国新闻网消息，近期多地拉闸限电，电力供应日趋紧张，受此影响居民照明用具销量猛增。
 
-据[**中国气象爱好者**](https://weibo.com/1763864272?refer_flag=1001030103_) [2021年10月1日16：43](https://weibo.com/1763864272/KAJ4j3IYK?from=page_1005051763864272_profile&amp;wvr=6&amp;mod=weibotime)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片25.png)
 
-[#*烟台冰雹*#](https://s.weibo.com/weibo/%23%E7%83%9F%E5%8F%B0%E5%86%B0%E9%9B%B9%23) 来自qq粉丝投稿，今天鲁东大学鸡蛋大的*冰雹*，会不会是雪莲的味道？
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001VmZFKly1guzwgtwe7cj60p80pwjsj02.jpg)
-在中共准备9月份的第一次攻台前后天安门降下了黑天鹅，作为中共根器的延安窑子洞垮塌，中共的太祖毛贼东纪念堂出现天灯坠落，而在今天，在中国人民的第72个国殇日里，在大连和烟台降下的冰雹无论如何不能称作天降祥瑞，天怒人怨的中共还有几天阳寿我们不得而知，但是这冰雹光顾之下对于等待收获的庄稼和苹果绝对不是好消息。
+根据中共能源局数据，2020年全社会用电量7.511万亿度（同比增长3.1%），其中城乡居民生活用电量1.095万亿度（占比14.47%）。发电量上，2020年总计发电量7.417万亿度，其中火力发电5.2799万亿度（占比71.19%），即虽然近年来中共推行清洁能源（如太阳能、水能、核能），但受限于技术水平和发展进程，超过2/3的电力仍来源于火力发电，同时近年来用电量逐年上涨对应着火力发电的用煤量逐年攀高。
 
-撰稿：喜马拉雅的肉夹馍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片26.png)
 
-审核：喜马拉雅的馍夹肉
+首先无论是2020年初CCP病毒疫情造成的大量人口死亡，焚烧尸体耗费的用电量和煤炭量猛增，其次为提振经济，中共号召扩大消费，增加汽车、大件商品的生产，再有赚取外汇的加工制造业“加班加点”，最终导致了去年煤炭消费量的猛增，从2019年的28.1亿吨提至2020年的49.8亿吨标准煤（同比上涨77.22%）。但是下游煤炭生产供应起伏较小，2020年的原煤产量（38.4亿吨）反而相比2019年略有下滑（0.156%），焦煤产量与2019年持平，2020年煤炭进口3.04亿吨，同比2019年上涨1.5%，煤炭供应的缺口直接导致了2020年底南方多地限电。
 
-校对：Maarago
+进入2021年后，煤炭缺口依旧未得到有效缓解，一方面是澳大利亚的“灭共”政策导致经济上的脱钩，煤炭、铁矿石等能源进口归零，另一方面则是地方政府为增加贷款继续大搞基建，用电用煤消费不减，导致“拉闸限电”提前上演。虽然当年仅在工业用电上“限电”，但“做二休五”的限电力度已经侧面反映了当前电力的短缺（对应煤炭缺口），再加上外企的密集撤离，国内泡沫经济越加不堪重负，难以周转，更难以调集外资进口煤炭“救急”，煤炭的缺口只能日渐加大。
 
-（文章内容仅代表作者个人观点）
+工业“限电”虽能一定程度上减少用电量，但工业产品的减量势必造成整个产业链的断裂以及国内各行业的“原料缺口”，转嫁至螺纹钢、铝锭、水泥等原材料的价格上涨，最终由消费者买单。中共加大对人民奴役和肆意掠取的力度、加大党内斗争和铲除异己的力度，再加上官场的贪污腐败和对底层民众的横征暴敛都预示着居民用电紧缺的即将上演。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+新闻来源：
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[限电限产下，蜡烛销量大增，这些产品在涨价……](https://news.sina.com.cn/o/2021-10-01/doc-iktzqtyt9109372.shtml)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+[2020年全社会用电量增长3.1% 电力需求呈稳步回升态势](http://www.gov.cn/xinwen/2021-01/21/content_5581518.htm)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+[2020年中国煤炭行业产量、消费量与进口情况分析 2020年煤炭进口量增至3.04亿吨【组图】](https://www.qianzhan.com/analyst/detail/220/210226-3c1c6e09.html)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[电力行业耗煤量同比下滑 2020年煤炭价格重心下移](https://finance.sina.com.cn/money/future/indu/2020-08-10/doc-iivhuipn7888564.shtml)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+[2020年火力发电行业发展现状及前沿技术路线分析](https://power.in-en.com/html/power-2385843.shtml)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[电力及公用事业周报：2020年全年发电量同比增长2.7% 火电、水电发电量同比增长1.2%、5.3%](http://stock.finance.sina.com.cn/stock/go.php/vReport_Show/kind/industry/rptid/664420325115/index.phtml)
+
+[南方多地开启“限电”模式！上班取暖全靠抖，这地连路灯都关了！](https://news.sina.com.cn/c/2020-12-18/doc-iiznctke7143664.shtml)
+
+[能耗双控！多地限电限产，部分企业停产有单不敢接；芯片交付时间或进一步拉长](https://www.163.com/dy/article/GKOD4R6T0511CS15.html)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

@@ -2,44 +2,45 @@
 ---
 
 
-## 有声| 市场崩盘可能即将来临
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568637/)
+## 十月底前按每万人不少于20间改造新冠隔离点意味着啥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1568664/)
 
-配音：香草山美食部-玫瑰园
+据[国家卫健委：按*每万人不少于20*间的标准改造集中隔离场所](https://v.qq.com/x/page/f3279qjxfk3.html)来源：腾讯视频官方 发布时间：2021年9月30日
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**央视主持人：**那近期我国的病例主要是来源于境外输入，对入境人员采取集中隔离的措施就至关重要，
 
+**央视主持人二：**国家卫生健康委疾控局的相关负责人强调加强隔离点的管理，规范落实集中隔离措施是疫情防控的重要工作。
 
+**国家卫生健康委疾控局二级巡视员 崔钢：**要对现在集中隔离点的位置、内部布局、设施等进行风险评估，合格后方能启用，坚决防止交叉感染。10月底前，我们要求各地按照每万人口不少于20间的标准改造一批符合要求的集中隔离场所，建立备用集中隔离点清单，确保选址合理，硬件设施符合防控要求，避免出现“小散乱”的情况。
 
+疫情发生后分批及时启用备用集中隔离点，对入境人员比较集中的地区，特别是输入病例较多的口岸城市，采取建设入境人员隔离医学观察健康驿站等做法。按照平急结合原则和当地的实际情况建设大型专用隔离场。
 
+\*\*\*\*\*\*\*视频引用完毕\*\*\*\*\*\*\*
 
+按照中共官方宣布的14亿人口来计算，卫健委这一次启动的集中隔离点总房间数量应该不少于280万间，这个数字也是这则视频透露出非常重要的信息之一，那就是接下来的高峰隔离人数应该是百万级别的。
 
+由于中共的国殇日的七天小长假正是人流出行高峰，在国殇长假接下来的必将是各地出现中共病毒感染者集中爆发，感染者所带动的密切接触者要集中隔离一批，这样两个轮次下来，十月份基本上算一波，在十月底建成不少于280万间的隔离点之后，接下来的疫情爆发应该已经在计划当中了。
 
-零对冲9月30日刊登了一篇署名查尔斯·休·史密斯（Charles Hugh Smith）的文章——《没人认为可能的市场崩盘即将来临》。
+因为病毒是自家造、疫苗是自家造、隔离点是自家规划建，所有这一切都是早已经计划好了的，只要这个中国共产党这个反人类集团在地球上存在一天，包括新冠病毒之类的人为灾难就不会停止。
 
-文章认为：盛宴正在上演，冒险崩溃就像报复一样，因为没有“认真的人”相信崩溃是可能的，更不用说迫在眉睫了。他例举了若干相互作用的因素：经济泡沫已经见顶，高估值、高杠杆、高度兴奋和投机的极端情况已经远远超过了基准；通货膨胀不仅是内在的，而且是全球性的问题，整个地区的天然气价格可能会增加三倍，而其他必需品的成本也可能毫不费力地轻松增加三倍；美联储的腐败造成其公信力下降，同时，由于美联储已经失去对收益率的控制，长期积累的对美联储神一般权力的信任正在动摇；中国这次不会再像以前那样，在泡沫破灭时拯救全球市场；散户投资者投入的资金比过去10-20年还要多，最终泡沫将被戳破。
+撰稿：喜马拉雅的肉夹馍
 
+审核：喜马拉雅的馍夹肉
 
+校对：Maarago
 
-**文字版原文：[市场崩盘可能即将来临](https://gnews.org/zh-hans/1565932/)**
+（文章内容仅代表作者个人观点）
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

@@ -2,124 +2,53 @@
 ---
 
 
-## 孟晚舟将生不如死，习近平对政治对手发出明确信号
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1568422/)
+## 借紧急状态肆意妄为，维州政府已失信于民
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1568486/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-5.jpg)https://gtv.org/video/id=6157ef44d2e2b81748702f3e
-郭文贵
-Miles Guo
+翻译：文扬
+校对/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/321.png)图片来源：The Sydney Morning Herald
+谈到澳大利亚维州的警务工作，回到20世纪80年代才能找到类似于过去的好日子。不过，情况已经发生了变化。今天，警察列队蹲在装甲车后面，穿得像漫威电影中的临时演员，装备着从（美国黑帮头子）阿尔·卡彭的家乡芝加哥进口的半自动步枪。
 
-你看孟晚舟回去是她个人的悲剧的开始
-You see, Meng Wanzhou’s return will be the beginning of her personal tragedy
+上周，民众对警方信誉的无视导致其在墨尔本街头采取了（极端）策略。由于他们的权威下降，警察开始信奉武力。强制已成为维持治安的通用手段，固定长度的警棍和扩音器已升级为可伸张的警棍、防暴盾牌、防弹衣、辣椒喷雾和电击枪。
 
-她要么死掉，要么活着被控制
-She will either die or be controlled alive
+在澳大利亚，对非致命性武力的使用一般到此为止，但维州除外，那里对蓝领阶层的尊重程度下降得最厉害。近年来的下降已经变得如此严重，甚至他们都需要调用防暴队来关闭一个吵闹的Airbnb派对。
 
-所以说凡是中国的“雷锋”，凡是中国的劳模
-Therefore, all Chinese “Lei Feng”, all Chinese role models
+2018年，维州时任警察局长的格雷厄姆•阿什顿（Graham Ashton）对记者说：“在郊区的街道上看到身穿防暴装备的警察，这看起来太丑了。这将是一个令人不安的景象。我们现在有一些以前没有见过的装备，可能会让人们感到震惊。”
 
-我告诉你，不管他怎么死, 还是什么结果
-I tell you that no matter how he died or what is the result
+阿什顿并不是在开玩笑，上周电视新闻中的画面因其“背景音乐”而变得更加具有对抗性：现场发出的报道中，吼叫声和嘲笑声我们以前就听过，但它们被半自动步枪的“噼啪”声所点缀。
 
-跟本人接触过的都是生不如死的，生不如死
-People who have been in contact with me are all worse than death
+对于根据《维多利亚州犯罪法》第462A条的要求，对于使用世界上最强大的亚致命武器是否合理、必要和相称，意见并不统一。大流行性期间紧急状态赋予警察罚款、宣布一个地区为“紧急区域”和要求人们转移的权力，但这些规定没有授权他们更多地使用武力。
 
-七哥见过无数人都是生不如死
-QiGe (Miles) I have seen countless people who are all better off dead
+发射胡椒球半自动步枪是仿照M4卡宾枪，连接到顶部的圆形物体是漏斗，它们将200枚圆形动能冲击弹送入桶中，而无需停下来重新加载。附在底部的弹匣包含15发锥形弹丸，精度为50米。
 
-那么为什么共产党要干这个事呢？（为什么）要把它立起来呢？
-So why does the Communist Party want to do this?
+在警方决定部署这种武器之前，最好能有一场（公开）辩论。例如，为什么执行任务的警员需要向50米外的人发射高速橡胶子弹？操作程序是什么，采取了哪些预防措施来避免致盲、致残或致伤？如果射击方向错误，可能会导致某人致盲、致残或其他伤害。然而，在维多利亚州，在2020年3月的政变后（宣布进入紧急状态），关于重要事项的公开辩论被废除了，当时安德鲁斯州长抓住了紧急权力，并拒绝放手。
 
-我可以告诉你，第一，内部政治斗争，告诉你
-I tell you, first, it’s because internal political struggle
+其他州长均有不同程度的克制，因为在自由民主体制下适用于议会外权力存在自然限制。丹尼尔·安德鲁斯则不然，他对《公共卫生和福利法》中的“相称性原则”表现出公然的蔑视，该法规定决定不应该是任意的。管理该法案的人，如政治领导人、官僚和警察，在法律上有义务以透明、系统和适当的方式行使权力，只要是切实可行的。从安德鲁斯行事的方式来看，我们永远也猜不到。
 
-跟习的，有这样的好下场，我能把你救回来
-Alongside with Xi, everyone has good end, “I can save you”
+【备注：相称性原则，干预应该与可以实现的好处和可能造成的伤害成比例。】
 
-跟江家的，就是马云的下场，然后接下来就是陈峰的（下场）
-Alongside with Jiang’s family, it’s Jack Ma’s downfall, and next is Chen Feng’s (downfall)
+在我们有生之年，很少有政府比在这场大流行病中更需要公民的信任。很少有一个政府像安德鲁斯政府这样严重地辜负了这种信任。然而，他仍然毫不在乎民意，上周他们像以往一样迅速地为不可理喻的行为辩护。
 
-跟王岐山的就是陈峰下场，是吧
-Wang Qishan’s followers just look like Chen Feng’s end, right？
+有媒体指责抗议活动是“有毒的阳刚之气”；而前工党领袖比尔·肖顿讽刺示威人群是“幼儿园级别法西斯分子”；其他人则怪罪默多克的媒体。很少有人放下对暴民的厌恶，简单地问一句，他们的不满是否与州长对维州市民的高度蔑视有关？
 
-在党内很清楚，跟王岐山就是陈峰，王健
-It makes very clear inside the Party that who follows Wang Qishan will become Chen Feng or Wang Jian
+对这位世界上最喜欢封锁的领导人窃取个人自由的行为，人们是否有正当的理由表达不满？当一个州长在晚上的新闻发布会上心血来潮地关闭了一个雇佣了30万人的建筑行业时，工人是否有合理的理由进行抱怨？毕竟，很少有建筑工人能坐在家里拿着全额工资在亚马逊上订购东西，并在推特上聊一些关于丹尼尔·安德鲁斯的话题。
 
-然后，马明哲，是吧
-And then Ma Mingzhe, right
+白领与蓝领阶层之间的敌意在新冠疫情之前就有了，而且不限于任何特定的管辖范围。权力的滥用加速了信任的瓦解，使专业阶层能够控制社会和主流媒体。当局将为延续像关于新冠疫情起源的大谎言，审查现在被证明是接近真相的报道而付出沉重的代价。
 
-你知道，两边混的马明哲，
-You know, Ma Mingzhe stepped both sides
+理智的人们曾经倾向于抵制全球掩盖（病毒起源）和阴谋论。今天，他们不这样认为了，因为他们亲眼看到了一个赤裸的事实：审查制度在战争时期可能是必要的，但应该谨慎使用，注意其对信任（政府）起到的反作用。一旦政府因故意隐瞒如此重要的事情而被曝光，我们还怎么能相信我们所能看到和触摸到的世界之外的任何事情？
 
-然后跟江家的马云，是不是，看看吧
-And then followed Jiang’s Jack Ma, right, take a look
+如果说对疫苗犹豫不决还有其他的原因，除了（政府）道德沦丧或愚蠢之外，那就是对那些曾经似乎可信的机构（从世卫组织开始）的信任度下降了。所以人们对国家可能强制接种疫苗的建议显得异常敏感，而（政府）不听从个人和雇主的意见，这就是原因。
 
-然后，许家印，多家睡的
-Then Xu Jiayin who colluded with several families
+在过去的18个月里，我们向国家让渡了太多的权利和责任。然而，身体完整的权利是我们不应该轻易交给任何人的。
 
-你挨家睡的，那你就是许家印，你这睡全家
-You’re sleeping with every powerful family, then you are just like Xu Jiayin, you sleep the whole family
+原文链接：[Subscribe to The Australian | Newspaper home delivery, website, iPad, iPhone & Android apps](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a_TWT&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fcommentary%2Fandrews-contempt-for-citizenry-might-explain-loss-of-trust%2Fnews-story%2Fca80042d8347f7646756c2471559baf5&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-cold-control-score&amp;V21spcbehaviour=append)
 
-好了，你来吧，非常清楚给你传达的信息
-Alright, come here, a very clear message to you
+发布：七彩光
 
-我的钱要安全，我的情报要安全
-I want my money be safe and my intelligent information needs to be safe
-
-我的技术要得到，不能失去，而且我要竖劳模
-I need to get my technology and can’t be lost, and also I want to set up the role model
-
-我把你立起来，一个人，一旦给你贴上标签时候
-We want you’ll be the role model, once they put the label on you
-
-你死也死不了，活也活不了
-then you can’t die or you can’t live
-
-给你袈在那，给你挂墙上去
-We carry you over there and put your imagine on the wall
-
-孟晚舟被挂墙上去了，穿着红裙子，留着长发甩着头
-Meng Wanzhou’s imagine was put on the wall, she’s wearing the red skirt and whipping the long hair back
-
-然后念着稿，是吧
-Then read the manuscript, right?
-
-大使跟着，她还能来美国吗？她还能随便去欧洲吗？
-With the ambassador followed, can she still come to the United States? Can she still go to Europe casually?
-
-她这一辈子都是一个最大的牺牲品，玩具
-She is the biggest victim in her life, the toy
-
-而且会死得比王健要惨一万倍
-And she’ ll die 10,000 times worse than Wang Jiang
-
-因为共产党被灭亡，共产党的本质告诉你
-Because the Communist Party was destroyed, the nature of the Communist Party tells you
-
-我就是这么来，我就是流氓，我就是痞子
-CCP：“this is how I do the business, I am a rascal, I am a ruffian
-
-而且玩的就是你们老百姓
-and want to fool you Laobaixing”
-
-你看看无论是斯大林，无论是艾薇塔
-Look at whether it’s Stalin or Evita
-
-最大的问题，操纵民意，而且操纵的是最底层的民意
-The biggest problem is manipulating public opinion，and it’s also manipulating the lowest level of public opinion
-
-这就是本质
-This is the essence
-
-原视频日期：2021/09/26
-原视频链接: https://twitter.com/se1y7cblljselva/status/1442383937527967748?s=24
-视频时间段 : 0:00-2:07
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 小战蚁
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,11 +2,17 @@
 ---
 
 
-## 沁园春·缺芯片
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1568348/)
+## 秘翻在线：美最高法院大法官布雷特·卡瓦诺感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568418/)
 
-韩国首尔天池农场—-水滴石穿
-![](https://assets.gnews.org/wp-content/uploads/2021/10/芯片.jpeg)
-北国风光，千里停电，万里缺芯。望长城内外，惟匪流氓；全国上下，顿失芯片。不买澳煤，赶走外资，欲与天公试比高。须晴日，看红装满国，分外神经。江山如此凄凉，引无数恶魔竞放毒。惜秦皇汉武，略输文采；唐宗宋祖，稍逊风骚。一代天骄，成吉思汗，只识弯弓射大雕。俱往矣，数风流人物，还看今包?
+#### 撰稿：彩虹
 
-（本文仅代表作者观点）
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2.jpg)图片来源：推特
+据《新闻极限》（Newsmax）10月1日报道，美最高法院大法官布雷特·卡瓦诺(Brett Kavanaugh)的中共病毒检测结果为阳性。
+
+文章报道，高等法院周五的一份新闻稿中说，自卡瓦诺1月份完全接种中共病毒疫苗以来，一直没有任何症状。但是，10月1日星期五上午10点，最高法院将在法庭的特别会议上为副大法官艾米·康尼·巴雷特（Amy Coney Barrett）举行正式就职仪式之前，卡瓦诺和其他所有大法官进行了常规中共病毒检测，结果为阳性。
+
+最高法院额外说明，卡瓦诺的妻子和女儿也都完全接种了中共病毒疫苗。
+
+新闻来源：[Justice Kavanaugh Tests Positive for COVID-19, Has No Symptoms](https://www.newsmax.com/headline/supreme-court-brett-kavanaugh-covid-19-positive/2021/10/01/id/1038712/)

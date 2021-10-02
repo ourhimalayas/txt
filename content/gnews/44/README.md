@@ -2,39 +2,40 @@
 ---
 
 
-## 美國聯邦政府暫時解除停止運作危機
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1568076/)
+## 哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568124/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+栏目记者：正义的小新
+责任编辑：晓仙女
 
-作者：紐約香草山 雲豹
 
-9月30日，美國的參議院及眾議院相繼快速通過臨時開支法案（stopgap funding bill），並將該法案提交到白宮。拜登總統也趕在政府關門期限前簽署了此項臨時開支法案，讓聯邦政府得免於關門，可以暫時繼續運作至12月3日。
 
-拜登隨後發表聲明表示，感謝兩黨達成協議、避免了政府關門的危機。拜登表示，這項法案提供國家的關鍵緊迫性需求，讓聯邦政府可以繼續執行現前的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
 
-如果此次臨時開支法案沒有順利通過，聯邦政府會關閉一些非必要性的政府機構，用剩於資金暫時保持軍事、航管、醫療、氣象、郵政、法務等少數必要單位的運行，維持最低度的運作。如果預算案托太久遲遲沒有通過，聯邦政府在沒有預算下，終究會關門，只是在歷史上沒發生過。
 
-(本文為作者觀點，不代表G NEWS 立場)
 
-[參考連接]：
+在本周哈尔滨市召开的疫情防控新闻发布会上，新闻发布官员提到，若粮食市场出现供应紧张，将及时启动相应的应急响应。
 
-[https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+会上透露哈尔滨市有成品粮储备1.55万吨，加上黑龙江省在哈尔滨市储备的粮油，仅可以满足15日的口粮消费量。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture15.jpg)
+郭文贵先生直播中曾爆料：中共国粮食储备数据造假严重，粮食短缺问题严重，当前中共外汇短缺，将无法进口所需粮食，饥荒会在中共国大范围出现。
 
-[https://www.cna.com.tw/news/aopl/202110010028.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202110010028.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+当下的哈尔滨，每日都有确诊新冠病毒新增病例，此时提出粮食应急预案问题，说明粮食危机已经开始。
 
-审核 / 编辑 / 发稿: 圣母院钟声
+（本文仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
+参考链接：[哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应](https://3g.163.com/v/video/VGK51BO5C.html?spss=adap_pc)
 
-**更多資訊，更多關注**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
-[**紐約香草山農場****GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)

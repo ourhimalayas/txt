@@ -2,27 +2,36 @@
 ---
 
 
-## 美国呼吁“严肃对待”朝鲜导弹发射
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1567976/)
+## 高盛认为8.2万亿美元地方债务的威胁比恒大更严重
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568101/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+高盛的分析师称，最令人担忧的是地方政府债务水平的飙升，习近平主席的手下已经在竭力掩盖了这一问题。与价值8.2万亿美元的未偿还地方政府融资平台相比，全球负债最多的房地产开发项目的违约问题似乎微不足道。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/N.jpg)knoe.com
-据朝鲜官方媒体报道，朝鲜9月28日试射了一枚新开发的高超音速导弹“火星-8”。9月30日朝鲜再次试射了一枚新开发的防空导弹以确认该发射器和系统其他部件的实用性。这是朝鲜9月进行的第四次导弹试验。此举引发了世界各国对朝鲜在这个导弹技术方面快速发展的担忧。
+中共国地方政府融资平台繁荣的问题在于伴随着它的不透明性。尽管自2012年以来，中共领导人一直在谈论让市场力量发挥 “决定性”作用，但他们却使中共国的透明度降低。信用评级系统也没有跟上中共国资本市场的发展步伐。
 
-据朝中社(KCNA)报道，朝鲜国防科学研究院(Academy of Defense Science)表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统方面具有非常现实的意义”，金正恩9月29日在朝鲜最高立法机构最高人民会议(Supreme People’s Assembly)上发表讲话时称，朝鲜的武器“正在以极快的速度发展”。
+如今，国际投资银行和新闻机构担心，对中共国地方政府债务泡沫的警告将使它们招致报复。因为这个亚洲最大的经济体，为贝莱德、摩根大通、瑞银和其它纷纷涌入的公司铺上了欢迎的红毯。
 
-美国国务卿安东尼·布林肯9月30日敦促国际社会认真对待北韩的导弹发射，他指出，这些发射造成了“更大的不稳定和不安全的前景”。同时指出，美国正在与亚洲盟友日本和韩国就处理朝鲜问题进行“非常积极的对话”。
+地方政府的借贷计划，触及了另一个令人担忧的地方事出有因：那就是中共国庞大的影子银行体系。可以肯定的是，作为控制影子银行的一部分措施，中共政府已经瞄准了超过1万亿美元的不透明产品，将其标榜为低风险和高收益的产品来销售。很多时候，这些所谓的现金管理产品将资金引向风险较高的借款人，如房地产开发商。
 
-日本政府表示，已经确定朝鲜此举违反了联合国安理会禁止使用弹道导弹技术的决议。同时谴责北韩的试射行为“令人极为遗憾”。与此同时，日本、美国和韩国9月30举行了电话会谈，对朝鲜最近与核武器和导弹开发计划有关的活动表示担忧。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
+这也难怪，一些全球最大的投资者对人民币计价的资产持观望态度。每当桥水公司的创始人雷·达里奥（Ray Dalio）为中共国公司唱赞歌时，就会有乔治·索罗斯(George Soros)警告那些急于进入大陆市场的人正在犯下“悲剧性错误”。在这两者之间，像方舟投资公司首席执行官凯西·伍德(Cathie Wood)这样的人正在努力辨别，中共国对科技行业的打压，是否是“买入”或“卖出”人民币资产的一个理由。
 
-报道称，金正恩今年1月在执政的劳动党代表大会上表示，他希望加强朝鲜的军事能力和核武库，并补充说，朝鲜已经开发出了防空导弹。美国总统拜登(Joe Biden)领导的政府一直在重申愿意与朝鲜就无核化进行接触，但到目前为止没有任何进展。
+日本1.75万亿美元的政府养老金投资基金是世界上最大的基金，也属于后者，（即唱衰人民币资产的那一拨）。它表示甚至不会将人民币计价的中共国主权债务纳入其投资组合。现在的时机对中共国很不利：富时罗素指数即将开始将中共国债务纳入其基准的全球债券指数。
 
-参考链接：
+今年7月，政府养老金投资基金总裁宫园正孝（Masataka Miyazono）表示，投资大鳄需对投资中共国债务持谨慎态度。而现在，习近平领导的中共国印证了这一判断。当然，更大的问题是，习近平不再支持中共国科技行业的同时，
 
-[https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
+恒大的混乱与地方政府的过度债务发生冲突。
 
-[https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
+如果你闻到来自大中华区（地方债务市场）的烟味，你就应该已经得到更多的信息了。
 
-[https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html](https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html)
+[原文链接](https://www.forbes.com/sites/williampesek/2021/09/30/goldman-flags-82-trillion-threat-worse-than-china-evergrande/?sh=5db0540215cc)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
