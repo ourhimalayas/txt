@@ -2,59 +2,39 @@
 ---
 
 
-## 煤炭短缺难改，拉闸限电成“常态”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1567585/)
+## 美國聯邦政府暫時解除停止運作危機
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1568076/)
 
-作者：香草山农场-鹰(文言)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+作者：紐約香草山 雲豹
 
+9月30日，美國的參議院及眾議院相繼快速通過臨時開支法案（stopgap funding bill），並將該法案提交到白宮。拜登總統也趕在政府關門期限前簽署了此項臨時開支法案，讓聯邦政府得免於關門，可以暫時繼續運作至12月3日。
 
+拜登隨後發表聲明表示，感謝兩黨達成協議、避免了政府關門的危機。拜登表示，這項法案提供國家的關鍵緊迫性需求，讓聯邦政府可以繼續執行現前的工作。
 
-新浪网10月1日转载中国新闻网消息，近期多地拉闸限电，电力供应日趋紧张，受此影响居民照明用具销量猛增。
+如果此次臨時開支法案沒有順利通過，聯邦政府會關閉一些非必要性的政府機構，用剩於資金暫時保持軍事、航管、醫療、氣象、郵政、法務等少數必要單位的運行，維持最低度的運作。如果預算案托太久遲遲沒有通過，聯邦政府在沒有預算下，終究會關門，只是在歷史上沒發生過。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片25.png)
+(本文為作者觀點，不代表G NEWS 立場)
 
-根据中共能源局数据，2020年全社会用电量7.511万亿度（同比增长3.1%），其中城乡居民生活用电量1.095万亿度（占比14.47%）。发电量上，2020年总计发电量7.417万亿度，其中火力发电5.2799万亿度（占比71.19%），即虽然近年来中共推行清洁能源（如太阳能、水能、核能），但受限于技术水平和发展进程，超过2/3的电力仍来源于火力发电，同时近年来用电量逐年上涨对应着火力发电的用煤量逐年攀高。
+[參考連接]：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片26.png)
+[https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-首先无论是2020年初CCP病毒疫情造成的大量人口死亡，焚烧尸体耗费的用电量和煤炭量猛增，其次为提振经济，中共号召扩大消费，增加汽车、大件商品的生产，再有赚取外汇的加工制造业“加班加点”，最终导致了去年煤炭消费量的猛增，从2019年的28.1亿吨提至2020年的49.8亿吨标准煤（同比上涨77.22%）。但是下游煤炭生产供应起伏较小，2020年的原煤产量（38.4亿吨）反而相比2019年略有下滑（0.156%），焦煤产量与2019年持平，2020年煤炭进口3.04亿吨，同比2019年上涨1.5%，煤炭供应的缺口直接导致了2020年底南方多地限电。
+[https://www.cna.com.tw/news/aopl/202110010028.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202110010028.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-进入2021年后，煤炭缺口依旧未得到有效缓解，一方面是澳大利亚的“灭共”政策导致经济上的脱钩，煤炭、铁矿石等能源进口归零，另一方面则是地方政府为增加贷款继续大搞基建，用电用煤消费不减，导致“拉闸限电”提前上演。虽然当年仅在工业用电上“限电”，但“做二休五”的限电力度已经侧面反映了当前电力的短缺（对应煤炭缺口），再加上外企的密集撤离，国内泡沫经济越加不堪重负，难以周转，更难以调集外资进口煤炭“救急”，煤炭的缺口只能日渐加大。
+审核 / 编辑 / 发稿: 圣母院钟声
 
-工业“限电”虽能一定程度上减少用电量，但工业产品的减量势必造成整个产业链的断裂以及国内各行业的“原料缺口”，转嫁至螺纹钢、铝锭、水泥等原材料的价格上涨，最终由消费者买单。中共加大对人民奴役和肆意掠取的力度、加大党内斗争和铲除异己的力度，再加上官场的贪污腐败和对底层民众的横征暴敛都预示着居民用电紧缺的即将上演。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
 
-新闻来源：
+**更多資訊，更多關注**
 
-[限电限产下，蜡烛销量大增，这些产品在涨价……](https://news.sina.com.cn/o/2021-10-01/doc-iktzqtyt9109372.shtml)
+[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[2020年全社会用电量增长3.1% 电力需求呈稳步回升态势](http://www.gov.cn/xinwen/2021-01/21/content_5581518.htm)
+[**紐約香草山農場****GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[2020年中国煤炭行业产量、消费量与进口情况分析 2020年煤炭进口量增至3.04亿吨【组图】](https://www.qianzhan.com/analyst/detail/220/210226-3c1c6e09.html)
+[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[电力行业耗煤量同比下滑 2020年煤炭价格重心下移](https://finance.sina.com.cn/money/future/indu/2020-08-10/doc-iivhuipn7888564.shtml)
+[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[2020年火力发电行业发展现状及前沿技术路线分析](https://power.in-en.com/html/power-2385843.shtml)
-
-[电力及公用事业周报：2020年全年发电量同比增长2.7% 火电、水电发电量同比增长1.2%、5.3%](http://stock.finance.sina.com.cn/stock/go.php/vReport_Show/kind/industry/rptid/664420325115/index.phtml)
-
-[南方多地开启“限电”模式！上班取暖全靠抖，这地连路灯都关了！](https://news.sina.com.cn/c/2020-12-18/doc-iiznctke7143664.shtml)
-
-[能耗双控！多地限电限产，部分企业停产有单不敢接；芯片交付时间或进一步拉长](https://www.163.com/dy/article/GKOD4R6T0511CS15.html)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)

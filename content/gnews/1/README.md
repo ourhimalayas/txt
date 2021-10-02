@@ -2,28 +2,27 @@
 ---
 
 
-## 新冠口服药物，下一轮敛财计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1569134/)
+## 孙立军被双开 傅政华被调查 中共内部决战已经开启
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569266/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/272ec6cc090b0dfbab60849e3f463ed8.jpg)
-10月2日，日本新闻网NNN报道称，美国制药巨头Merck公司在10月1日公布了一项临床试验结果，称其正在研制的口服新型冠状病毒药物能将重症化风险减半。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-Merck公司正在开发一种治疗新型冠状病毒的药物”莫诺匹拉韦（molnupiravir）”，并于1日公布了最后阶段临床试验的中期分析结果。据结果称，轻度或中度新冠病毒感染者住院或死亡的风险降低了约50%。Merck公司将向美国食品药品监督管理局（FDA）申请紧急使用许可，如果获得批准，它将可能成为世界上第一个治疗新冠病毒的药物。包含日本在内，临床试验在全球170个设施进行，并计划寻求每个国家的监管机构批准。Merck公司表示，计划到今年年底生产1000万人用的治疗药物。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-近日，中共官媒“第一财经”也报道相关新闻，称该药物信息公布后，周五美股Merck公司股价大涨7.7%，新冠早期治疗主要是抗体药物，住院及重症患者使用抗病毒药物，如瑞德西韦。该口服药物将冲击市面上的抗体药，对抗病毒药冲击不大。抗体疗法成本高，抗病毒药物成本更加可控，Merck公司计划实施基于世界银行对于国家收入标准的分层定价方法，以确保全球可以使用。
+视频参看：2021.10.02早GTV新闻访谈
 
-最新数据表明，全球每100人就接种了79.6剂新冠疫苗，毒疫苗收割了一大拨钱财，接下来昂贵的药又将进行下一轮收割，瑞德西韦昂贵且副作用大，青蒿素、伊维菌素等平价、高效、且副作用小，但在黑暗势力面前，生命如草芥，唯利益至上，共匪不灭，罪恶不止。
+[https://gtv.org/broadcast/watch/6158506b304e992109adf896](https://gtv.org/broadcast/watch/6158506b304e992109adf896)
 
-信息来源：
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-[**米大手「飲む治療薬で重症化リスク半減」**](//news.yahoo.co.jp/articles/70847bbf263212b6b6d7a2eb34567d8b7611815a)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar.png)
 
-[**首个新冠抗病毒口服药有望获批 昂贵的抗体药走向何方？**](//m.yicai.com/news/101189430.html)
-
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-
-校对：东京樱花团/喜马拉雅的微尘
-
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

@@ -2,27 +2,54 @@
 ---
 
 
-## 美国呼吁“严肃对待”朝鲜导弹发射
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1567976/)
+## 中共政府命令能源公司不惜一切代价确保冬季燃料供应
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568126/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+栏目记者/责任编辑：文一
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/N.jpg)knoe.com
-据朝鲜官方媒体报道，朝鲜9月28日试射了一枚新开发的高超音速导弹“火星-8”。9月30日朝鲜再次试射了一枚新开发的防空导弹以确认该发射器和系统其他部件的实用性。这是朝鲜9月进行的第四次导弹试验。此举引发了世界各国对朝鲜在这个导弹技术方面快速发展的担忧。
 
-据朝中社(KCNA)报道，朝鲜国防科学研究院(Academy of Defense Science)表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统方面具有非常现实的意义”，金正恩9月29日在朝鲜最高立法机构最高人民会议(Supreme People’s Assembly)上发表讲话时称，朝鲜的武器“正在以极快的速度发展”。
 
-美国国务卿安东尼·布林肯9月30日敦促国际社会认真对待北韩的导弹发射，他指出，这些发射造成了“更大的不稳定和不安全的前景”。同时指出，美国正在与亚洲盟友日本和韩国就处理朝鲜问题进行“非常积极的对话”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
 
-日本政府表示，已经确定朝鲜此举违反了联合国安理会禁止使用弹道导弹技术的决议。同时谴责北韩的试射行为“令人极为遗憾”。与此同时，日本、美国和韩国9月30举行了电话会谈，对朝鲜最近与核武器和导弹开发计划有关的活动表示担忧。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
 
-报道称，金正恩今年1月在执政的劳动党代表大会上表示，他希望加强朝鲜的军事能力和核武库，并补充说，朝鲜已经开发出了防空导弹。美国总统拜登(Joe Biden)领导的政府一直在重申愿意与朝鲜就无核化进行接触，但到目前为止没有任何进展。
+
+英国《卫报》10月1日报道- 中共政府已下令最大国有能源公司要不惜一切代价确保冬季燃料供应。
+
+中共国副总理韩正指示能源公司确保有足够的燃料来维持国家的运转，并明确表示中共政府不能容忍停电。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-1.jpg)
+中共国持续遭受停电打击，许多工厂已处关闭或半关闭状态，严重影响生产和全球供应链。
+
+周四公布的数据显示，9月中共国制造业意外萎缩，弱于预期，为去年2月疫情以来首次。
+
+报道称，韩正是在本周与北京国有资产监管机构和经管机构官员举行的紧急会议上作出上述指示。
+
+9月28日，国家电网随即作出反应，紧急呼吁“守电网安全生命线，保民生用电底线”。相关报道一时间充斥中共国各大媒体。
+
+其态度之迫切和强硬从侧面验证了郭文贵先生关于中共国外汇短缺购，无力持续进口能源相关原料的情报。而非境内外媒体分析的所谓“排放和能源管控”之说。
+
+另据报道，中共国正在为污染最严重的煤炭类型支付有史以来最高的价格。由于中共国的需求上升，本周印尼各种褐煤的价格从去年的20-25美元飙升至每吨110-120美元。
+
+由于中共电力紧缩，促使野村和高盛银行本周下调了今年中共国的增长预测。
+
+中共国煤炭期货周四更飙升至历史新高。中共国电力短缺将给普通民众，特别是北方寒冷地区的民众带来灾难性的后果。
+
+（本文仅代表作者观点）
 
 参考链接：
+1. [中共政府命令能源公司不惜一切代价确保冬季燃料供应](https://www.theguardian.com/world/2021/oct/01/china-orders-energy-firms-to-secure-winter-fuel-supplies-at-all-costs)
+2. [中共政府命令能源公司不惜一切代价确保冬季燃料供应](https://www.houstonchronicle.com/business/energy/article/Even-the-Dirtiest-Coal-Is-Surging-Due-to-16501593.php)
+3. [中共政府命令能源公司不惜一切代价确保冬季燃料供应](https://china.huanqiu.com/article/44y5D0nFNwQ)
 
-[https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
-[https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html](https://english.kyodonews.net/news/2021/10/9f03cc155ca7-n-korea-says-it-test-fired-anti-aircraft-missile-on-thursday.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)

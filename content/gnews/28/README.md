@@ -2,36 +2,26 @@
 ---
 
 
-## 安联资产管理总裁杰奎琳亨特因司法部调查下台
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1568812/)
+## 电荒重挫之下，中共紧急求助俄罗斯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568881/)
 
-作者：香草山写作组 – 文一
+栏目记者/责任编辑：文小白
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+路透社莫斯科10月1日报道，俄罗斯电力出口垄断企业 “国际RAO集团” 本周五表示，中共国家电网请求该公司增加对中国北方各省份的电力供应 。应中共的请求，该公司将通过2012年建成的”阿穆尔-黑河” 高压输电线路，将10月份原定向中国供应的电力增加一倍，以缓解当地的电慌危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.2AM-PICTURES-57图片备用.001.jpeg)
 
-
-
-
-
-据《华尔街日报》9月30日消息，安联资产管理公司首席执行官杰奎琳-亨特将卸任。此举是司法部对该公司经营的一系列基金的损失进行调查后，管理部门作出的举措之一。
-
-亨特女士于2016年加入安联，负责监督其资产管理和美国人寿保险业务，其中包括德盛安联资产管理公司和全球最大的债券经纪公司-太平洋投资管理公司，她的合同于2019年续签，本应留任至2022年。
-
-这家总部位于慕尼黑的公司是世界上最大的资产管理公司之一，管理着2.5万亿欧元，相当于2.897万亿美元。此次调查是由美国司法部和证券交易委员会于去年发起的。该公司则表示因无法预估罚款金额，因此没有预留经费。
-
-据报道，包括蓝十字蓝盾协会和阿肯色州教师退休系统在内的几个大型投资者，就数十亿美元的损失起诉了该保险公司。
-
-参考链接：
-
-[https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351](https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351)
-
+国际RAO集团表示，目前所有的三条俄中 输电线路都将用于供电，三条线路每年能够向中国输送高达70亿千瓦时的电力。在与西方关系持续恶化的同时，中共只能求助于俄罗斯, 除不断加大从俄罗斯采购农产品、煤炭和能源外，预计双边其他产品贸易额也将有大幅增长。这些都是俄罗斯所希望发生的，毕竟普京从不会放过要挟、压榨习近平和中共的任何机会！
 (本文仅代表作者观点)
+
+参考链接：[应中国的请求 俄罗斯10月将把输华电力增加一倍以帮助中国缓解供电紧张](https://cn.reuters.com/article/chinaNews/idCNKBS2GS00S?irpc=932)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-编辑/校对/发稿：正义的小新
+终审：文龙
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -39,4 +29,5 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

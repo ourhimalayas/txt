@@ -2,28 +2,39 @@
 ---
 
 
-## 班农专访：班农战斗室获得美国政治类播客第一名
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568744/)
+## 有声|中共迫于人口低生育压力被迫废止部分计生恶法
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568807/)
 
-[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=2560)](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=1024)
-**简评：**因为新中国联邦、爆料革命、GTV和GNews的支持，班农战斗室获得美国政治类播客的第一名，成为有史以来最好的英语节目。唯真不破，传播真相，就会获得民众的支持。
+配音：纽约香草山美食部 – 玫瑰园
 
-GTV视频链接：[英喜每周采访班农先生0929-Q0: 我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持](https://gtv.org/video/id=6156a779d2e2b817486fe616)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-2.jpg)
 
 
-**视频字幕：**
 
-**主持人**：班农先生，首先祝贺《战斗室》荣升苹果播客第一名，有史以来最好的英语节目。班农先生，感谢你传播真相。
+在中共治下，中共国内的生存环境日益恶化。据悉，对于墙内90后及00后的一代年轻人，他们的结婚以及生育愿望很低。据中共官媒的消息称，中共国目前已经有149个城市进入“深度老龄化”，而这些城市主要集中在东北、中部、长三角、黄河中下游以及成渝城市群地区。
 
-**班农先生**：我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持。还有GNews、GTV帮我们翻译成汉语和日语等语言，这个帮助巨大。我想对你们整个团队表示感谢。
+为此，迫于人口老龄化和低生育的压力，中共打着“优化生育政策，促进人口长期均衡发展”的旗号，不得不废止了《计划生育技术服务管理条例》、《社会抚养费征收管理办法》和《流动人口计划生育工作条例》等三项计生恶法。
 
-*编辑：【英国伦敦喜庄园编辑部】*
+事实上，中共实行计划生育恶法的这40年来，已经有约4亿左右的无辜婴儿被残忍杀害，造成了无数的人间悲剧。更可悲的是，对于孩子的生育与否，中国老百姓完全没有自己做主的权利，一切都是共产党说了算。至于中共，从其最初的严格计划生育政策，到后来取消二胎惩罚措施，而今又允许民众生育三胎并予以奖励，民众可谓被中共的朝令夕改玩弄于鼓掌之间，毫无人权与自由。现今，墙内民众对鼓励生育政策的相应者寥寥无几，中国的生育率持续下滑。
 
-*字幕*：*Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：势不可挡* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+归根究底，共产党用实际行动表明了，它们就是“上管天、下管地、中间还管生殖器”的彻头彻尾的独裁恐怖组织。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+[文字版原文：中共迫于人口低生育压力被迫废止部分计生恶法](https://gnews.org/zh-hans/1565788/)
 
-[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

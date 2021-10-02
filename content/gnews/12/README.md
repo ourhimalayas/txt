@@ -2,39 +2,29 @@
 ---
 
 
-## 最新文件再次证实，新冠病毒就是中共制造的生化武器
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568969/)
+## 独家：日本政局新增变数！东京市长成立新党欲参选总理
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1569039/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
-栏目记者/责任编辑：雪梨
+#### 撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/10/e5b08fe6b1a0e799bee59088e5ad90efbc9ae68891e4b880e6aca1e983bde6b2a1e69c89e8afb4e8bf87e8a681e7a6bbe5bc80e59bbde5aeb6e694bfe6b2bb.jpg)[图片来源](https://ucpnz.co.nz/2021/07/05/%E5%B0%8F%E6%B1%A0%E7%99%BE%E5%90%88%E5%AD%90%EF%BC%9A%E6%88%91%E4%B8%80%E6%AC%A1%E9%83%BD%E6%B2%A1%E6%9C%89%E8%AF%B4%E8%BF%87%E8%A6%81%E7%A6%BB%E5%BC%80%E5%9B%BD%E5%AE%B6%E6%94%BF%E6%B2%BB/)
+据知情人士透露，由东京市长小池百合子担任特别顾问的地方政党“都民第一会”将于10月3日在东京举行新闻发布会，组建新的国家政党。此举应为将于11 月举行的众议院选举做准备。
 
-前国务院新冠来源调查员大卫·艾舍，在上周接受福克斯节目采访时表示，根据私人研究团体DRASTIC最新揭露的文件再次证实，新冠病毒就是来自武汉病毒研究所。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-29.png)
-病毒基因序列中的福林酶切位点，使病毒从蝙蝠传染到人类，并以高致病性的方式导致人传人。艾舍表示，美国已经掌握了新冠病毒的所有基因片段。
+同日，“都民第一会”宣布了新闻发布会的日期。小池百合子的助手“都民第一会”会长荒木千阳将出席新闻发布会，并且宣布候选人及将要进行参选的选区。
 
-武汉病毒研究所的合作伙伴：彼得·达萨克领导的纽约生态健康联盟，曾于2018年3月申请一项有关蝙蝠冠状病毒的功能增强研究。鉴于对大规模杀伤性武器方面的担忧，国防部的高级研究计划局（DARPA）否决了这一申请。而中共仍提供资金持续这项提高病毒致病性的研究。
+此事件的焦点是小池百合子的动向，舆论一致认为小池有参选日本总理的野心，但她否认自己将会参加下届众议院选举（笔者多年观察日本政局，政治家的言论不可轻易相信）。她在接受采访时说：“我本人无意参加下一次众议院选举，因为我正在全力以赴防控新冠疫情”。
 
-艾舍进一步表示，通过对蝙蝠、穿山甲和人源化小仓鼠进行功能增强研究，武毒所的研究人员还制造了类似COVID-19的超级病毒。这也验证了郭文贵先生此前的警示，中共不止研发了一种病毒，还有更致命的病毒系列。
+2017年，小池百合子曾经创建了新政党“希望党”参加了众议院选举，曾一度引起极大关注，但因为她的一句“排除异己”的言论而支持率大跌。2017年众议院选举后，她辞去希望党党首职务，专心投身于东京的城市管理工作。
 
-(本文仅代表作者观点)
+笔者曾经亲自见证了2016年号称“小池旋风”的东京市长选举。小池百合子凭借曾担任过东京电视台主持人的超高人气和过人的选举策略，虽然以无党派人士参加竞选，但却以超过第二名自民党竞选者120万张选票的成绩成功当选东京市长。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-6.jpg)
+选举前夜在池袋车站前自发聚集了上万人的支援者。笔者在现场亲眼目睹了日本的民主主义是如何落实到现场选举的。参选者阐述自己的政策主张，支持者轮番上阵演讲助阵。到晚上8点准时结束，民众和平有序地各自回家，等待第二天的选举结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/4-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/5-2.jpg)
+笔者当时就想象何时我们中国人也可以这样参选和竞选呢。自从新中国联邦建立后，我觉得这一天越来越近了。
 
+[信息来源](https://www.jiji.com/amp/article?k=2021100101101&amp;g=pol)
 
+（文章仅代表作者个人观点，与GNEWS无关）
 
-参考链接：
-
-[https://gettr.com/post/pcuhi842af](https://gettr.com/post/pcuhi842afhttps://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official)
-
-[https://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official](https://gettr.com/post/pcuhi842afhttps://www.foxnews.com/media/new-wuhan-covid-docs-contradict-fauci-ex-state-dept-official)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审：暗黑
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

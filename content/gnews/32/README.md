@@ -2,25 +2,41 @@
 ---
 
 
-## 秘翻在线：美病理学家要求尸检以调查新冠疫苗造成的器官损伤
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568763/)
+## 安联资产管理总裁杰奎琳亨特因司法部调查下台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1568812/)
 
-#### 撰稿：极寒将至 
+作者：香草山写作组 – 文一
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-27.png)
-据大疫情新闻网（pandemic.news）报导，美国前线医生白大褂峰会（ America’s Frontline Doctors White Coat Summit ）的一段视频显示，病理学家瑞恩.科尔（Ryan Cole）概述了与实验性疫苗注射计划相关的许多健康挑战及器官损伤，成千上万的人死于COVID-19疫苗。他们要求通过尸检，对由刺突蛋白引起的器官损伤进行调查。
 
-FDA（美国食品和药物管理局）此前在分发疫苗之前忽视了它们可能导致器官损伤的警告。数据是在程序启动前后发布的，表明刺突蛋白会损害微血管系统。
 
-对789名COVID-19检测呈阳性的职业运动员的分析显示，没有出现不良心脏事件。但是，疫苗报告系统（VAERS）显示，已经有11,793人在接种疫苗后患有心脏病或被诊断出患有心肌炎或心包炎。报告不良事件的人数也在增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-7 月，美国军方发表的一项研究显示，在接种疫苗后的4天内，已经确定有 23名被诊断患有心肌炎的男性，并确定在没有其他确定原因的情况下接种疫苗后诊断为心肌炎。
 
-2020 年初，临床医生、科学家和健康专家警告说，在接种COVID-19疫苗后，数百万人可能会经历潜在的永久性或长期伤害或死亡。儿科风湿病学家帕特里克.惠兰（J. Patrick Whelan ）博士此前曾警告 FDA，疫苗可能会对不同器官造成微血管损伤，接种者的微血管系统可能会受到永久性损害。导致COVID-19患者心脏、肝脏或肾脏等器官损伤的内皮损伤不是病毒，而是疫苗中使用的刺突蛋白程序。
 
-尽管有许多问题，FDA还是在八月批准了辉瑞COVID-19疫苗。例如，人们发现疫苗更可能杀死人而不是拯救人。虽然声称该疫苗将COVID-19的死亡人数减少了50%，但代价是增加了心脏骤停等其他问题的死亡人数，这表明净收益为负再比如，辉瑞自己的研究表明，因 COVID 导致的死亡人数减少了 2 倍，但节省的费用被心脏骤停导致的死亡人数抵消了，后者增加了4倍。
 
-越来越多的数据显示疫苗对人的损害大于病毒本身，可是政府和媒体还在试图掩盖，而且至今没有一个官方尸检报告来告诉世人，疫苗造成了哪些器官损伤。
 
-[新闻来源](https://pandemic.news/2021-09-30-covid19-vaccines-may-cause-organ-damage.html#)
+据《华尔街日报》9月30日消息，安联资产管理公司首席执行官杰奎琳-亨特将卸任。此举是司法部对该公司经营的一系列基金的损失进行调查后，管理部门作出的举措之一。
+
+亨特女士于2016年加入安联，负责监督其资产管理和美国人寿保险业务，其中包括德盛安联资产管理公司和全球最大的债券经纪公司-太平洋投资管理公司，她的合同于2019年续签，本应留任至2022年。
+
+这家总部位于慕尼黑的公司是世界上最大的资产管理公司之一，管理着2.5万亿欧元，相当于2.897万亿美元。此次调查是由美国司法部和证券交易委员会于去年发起的。该公司则表示因无法预估罚款金额，因此没有预留经费。
+
+据报道，包括蓝十字蓝盾协会和阿肯色州教师退休系统在内的几个大型投资者，就数十亿美元的损失起诉了该保险公司。
+
+参考链接：
+
+[https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351](https://www.wsj.com/articles/allianz-asset-management-chief-jacqueline-hunt-to-step-down-11633017351)
+
+(本文仅代表作者观点)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
