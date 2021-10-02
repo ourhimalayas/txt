@@ -2,147 +2,53 @@
 ---
 
 
-## 如果美国没有危机，世界没有危机，就没有人真心想灭共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1568432/)
+## 文·贵天成——文贵先生谈“孙力军”（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1568458/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-6.jpg)https://gtv.org/video/id=6157c3c7d2e2b817487024fd
-美国投降
-La rendición de EE. UU
+![](https://assets.gnews.org/wp-content/uploads/2021/10/SLJ.jpg)图片来源：雅典娜设计组（姐夫说说）
+**整理：**KONG
+**编辑：**翼族
 
-所以我觉得特别好的在哪里呢
-Por eso digo por qué me parece bien esto
+【**编者按：**2017年1月以来，郭文贵先生通过直播和社交媒体，发起了一场改变世界的爆料革命运动，影响深远。文贵先生数千个视频里的内容是取之不尽的宝藏，本专栏将把文贵先生数年来关于某一特定话题的精华内容陆续整理成文字，以时间线排序，希望对读者更系统地了解爆料革命有所帮助。近期中共纪委公布了孙力军的案情，而他正是文贵先生最早爆料的盗国贼之一，因此本篇特别整理了郭文贵先生谈到的关于孙力军的相关内容。】
 
-我特别开心看到这个局面
-Estoy muy contento de poder ver esta situación
+[文·贵天成——文贵先生谈“孙力军”（一）](https://gnews.org/zh-hans/1568093/)
 
-美国没有危机
-Si en EE. UU no hay crisis
+**郭文贵先生2017年9月5日直播**：
 
-世界没有危机的时候
-Y el mundo tampoco lo haya
+大家你们看看马来西亚马航，所有的真相我可以告诉你，你们可以问问孟建柱书记和孙力军，绝对他们知道真相，就是不告诉你，但早晚一天会说出来的，真相会吓到全世界人民。
 
-没有人真心想灭共
-Nadie querrá realmente destruir al Comunismo
+**郭文贵先生2017年9月6日直播：**
 
-就像这帮哥们
-Así como estos compadres
+大家一定想想，这些人的好坏、这些人的隐私跟王岐山孟建柱傅政华孙力军盗国贼杀人灭口和海航股权、贯君他爹是谁、贯君他妈是谁、刘呈杰他爹是谁、他妈是谁、孙瑶是谁、海航的钱哪来的，有什么关系？给美国纽约慈航捐不是1800亿，那是6000亿美元啊……
 
-他们不想灭共
-Ellos no quieren destruir al Comunismo
+孙力军和董卿，将近十来年上床，将近十来年在一起。人家给他生了孩子，然后孙力军不在的期间，董卿陪孟建柱游泳。孟建柱喜欢游泳，然后又把董卿给上了。人家董卿有口说不出来啊，霸占了一、二十年，青春全没了。这是他对女人的态度！明知他也不说，因为他觉得老板给他的政治利益重要，这是一个非常悲惨的女性代表。
 
-他们觉得自己的钱也没了
-Ellos creen que su dinero se ha ido
+而且孙力军这人最爱明星，最爱玩女人，还有我们陈小平，不是最爱许晴，最爱的一个女孩儿叫梅婷，曾经跟潘石屹先生拍过一个电视剧。梅婷也是孙力军搞过的女人，严格讲是强奸的女人。还有一个中央电视台的主持人，叫李思思。李思思是贺国强的儿子贺锦涛的情人。她要上中央电视台，在中央电视台要上2009年的春节联欢晚会，她就找了中央电视台台长焦利。焦利答应她上台做主持人，但后来又没让她上。结果她就拿着一个录音找了贺锦涛说：“焦利和我睡觉了。我有录音。睡觉的时候我告诉他，我跟贺家熟。结果焦利说贺家算个屁，你少给我玩吓唬我的这一套！”她拿了这录音找了贺锦涛，贺锦涛拿着这个录音就去找他爹，第二天就把焦利双规了。焦利说我压根就没跟她睡过觉，我也没有这个录音，是她造的！但是当年的贺国强就是今天的王岐山，就把焦利给抓了，焦利是我朋友。
 
-我问他们
-Yo les pregunto
+这个李思思曾经也找过孙力军，也被孙力军长期给霸占，到现在也没有（停），所以说孙力军和贺锦涛是表兄弟。那李思思还跟谁睡过觉呢？李思思也找过傅政华。让傅政华在一个公寓里霸占了将近一年，所以傅政华跟孙力军也属于表兄弟。李思思小姐你也来告我吧，梅婷小姐来告我吧。
 
-你卖完钱以后, 你就有钱花吗
-Luego de vender el dinero, ¿tendrás dinero para gastar?
+孙力军是只恋爱只性交不结婚，只生孩子不结婚，玩遍全中国女性，港澳台女性。现在又管（公安部）一局了，一局本身就连着港澳台的所谓的演艺圈，他就每天不用扎腰带了。孙力军基本可以穿上中东的那个长袍，里边也不用穿内裤，他连腰带都不用了。他基本上是走到哪儿他就戳到哪儿，这就是孙力军的个性。他这阴暗的心理！好几个跟孙力军打交道的人说，他这个新南威尔士出来的学什么公共医疗的心理阴暗，阴暗！都是这样的评价。
 
-有命花吗
-¿Tendrás vida para gastar?
+张玉良和孟建柱什么关系？绿地的张玉良到底是不是国营企业？到底他的股权是谁的？他的钱为什么到了孟建柱的家里去了？孙力军为什么要到处保护张玉良？帮助张玉良杀人抓人？
 
-这个时候说实话
-Hablando sinceramente en este momento
-兄弟姊妹们
-Hermanos y hermanas
+马航和孟建柱和孙力军做了什么交易？为什么刘特佐，这么大的腐败关键人物藏在上海？孟建柱书记把他保护起来，为什么？他怎么不来美国呢？为什么要在那儿保护起来？这难道不应该有个交代吗？
 
-咱愿意看到现在这个结果
-Nosotros queremos ver el resultado de ahora
+**郭文贵先生2017年9月7日直播：**
 
-包括这个媒体上, 这个美国人已经彻底感受到
-Incluyendo en los medios de comunicación, los estadounidenses ya definitivamente sintieron
+韦石、屎诺和一局的孙力军联络，一直在给他们传递着错误的信息。包括他利用韦石和屎诺，叫他俩写《习主席的情人》那本书，导致铜锣湾所有人被抓，都是韦屎和屎诺和孙力军孟建柱演的一出白虎堂的戏。把中央领导掉到坑里去，把中央领导引到坑里去，使用领导的信任国家的公权力，然后让领导相信郭文贵真有问题了。
 
-通过疫苗的问题
-Que a través del problema de las vacunas
+孙力军把我家人一次次请去喝茶，威胁，然后让我当场停播。本来说要把我们曲国娇放回香港。现在曲国娇不但不放，还演了一个（戏），给王雁平发信息：“我家不让我回去了。办不了护照。把我300万保证金拿出来吧。”
 
-深深明白全世界的媒体, 已经100%被共产党控制
-Entendieron profundamente que los medios de comunicación mundial ya están 100% controlados por el Partido Comunista
+王岐山孟建柱傅政华孙力军疯了，现在各种手段吃人。就（因为）我爆出了马航事件，还有孟建柱的按需杀人事件，江绵恒的换肾事件，孟建柱的妈妈换肾事件、换肝事件，百岁老人。我还没说他太太蒋琪梅的事件，还有孙力军帮助别人换肾换肝事件。
 
-媒体被控制了, 经济也完了
-Los medios de comunicación son controlados y la economía se acabó
+雷洋真正的死因是雷洋知道了傅政华还有孙力军的秘密，国际俱乐部的秘密，实际就是杀掉了他。什么打飞机那不扯嘛！有关信息……到最后验尸的时候，有一个关键的人物，他会告诉大家真相的——林彪女儿林豆豆的先生是中国解剖学一大拿，当时雷洋解刨的时候他在医院里。这一堆警察围着骂这些解剖医生说：“妈的你敢胡说八道，我弄死你们！闭嘴啊，别胡说八道！”最后他毕竟是有权威的，他说你们不要骂人，你们说怎么写怎么写，不能骂！最后定义为搂着脖子勒死的，你去想想，雷洋从家出来十来分钟就这样给勒死了，他跟他有仇吗？
 
-政府也被出卖了
-El gobierno fue traicionado
+孟建柱和王岐山两个人真正的作为监国，监督习主席，孙力军是执行者，傅政华是那么恶的人，干了很多坏事，还跟他们不完全是一伙。
 
-那美国怎办呢
-Y cómo hará EE. UU
+*发布：翼族*
 
-你说怎办呢
-Dime qué hará
-
-那你就磕头吧
-Arrodillarse entonces
-
-那你们就等着像, 印尼苏哈托杀中国人一样
-Esperan ver así como el indonesio Suharto mató a los chinos
-
-奸淫中国人一样发生在美国吗
-Y que pase lo mismo en EE. UU violando a los chinos
-
-发生在欧洲吗, 是不是
-O en Europa, cierto
-
-看着吧
-Verán
-
-现在共产党越成功
-Mientras que ahora el Partido Comunista sea más exitoso
-
-多一些孟晚舟事件
-Más incidentes de Meng Wanzhou
-
-我们赢的机会越大
-Nuestra oportunidad para ganar
-
-灭共的可能性越大
-Y la posibilidad de destruir al Comunismo será más grande
-
-速度越快
-Más rápido
-
-越有这么多小粉红, 越有这样的人出现
-Mientras haya más little pink o que aparezca más este tipo de personas
-
-我们越有赢的可能
-Tendremos más posibilidad de ganar
-
-许家印恒大越能撑几天, 多撑几天
-Si Xu Jiayin de Evergrande Group puede aguantar más días
-
-我们的赢面更大
-Nuestra victoría es aún más grande
-
-平安陆金所
-Ping’an Lufax
-
-多砸点钱, 多撑几天
-Gaste más dinero y aguante más días
-
-我们的赢面越大
-Nuestra victoría es aún más grande
-
-一切决战2022
-Toda batalla decisiva será en el 2022
-
-2022年底是决战
-El año 2022 será la batalla final
-
-明年这个时候是大决战
-En este momento del año que viene será la gran guerra final
-
-所有这些东西的结果都会在明年年底
-Todos los resultados de estas cosas serán expuestos a finales del año que viene
-
-原视频日期：09/28/2021
-原视频网址： https://twitter.com/se1y7cblljselva/status/1442805057213190144?s=24
-视频时间段：0:00-1:48
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场- 天涯行
-审片：洛杉矶盘古农场- 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

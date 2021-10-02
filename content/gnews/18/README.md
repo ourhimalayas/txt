@@ -2,45 +2,19 @@
 ---
 
 
-## 有声| 论天国的仇敌：“兽印”成为当下疫苗暴政下的思考
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568648/)
+## 秘翻在线：美国查获180万颗芬太尼假药，其原料主要来自中共国
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568657/)
 
-配音：香草山福音部-Daxia
+#### 翻译/撰稿：zzballack
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-26.png)   图片来源：福布斯
+据《纽约邮报》（New York Post）10月1日报道，在经历了为期两个月的调查后，美国缉毒局（DEA）查获了180万粒芬太尼假药，共逮捕了810人。缉毒局局长安妮·米尔格拉姆 (Anne Milgram)说：“这180万粒含有致命合成阿片类药物芬太尼的假药可能会导致70多万人死亡。我敦促美国民众今天向亲人和好友讲述该假药的危险，以及一粒药就能让人致死的事实。”
 
+DEA官员说，这些假药看起来几乎与治疗中重度疼痛的合法处方药完全相同，比如羟考酮 (Oxycodone)、阿得拉 (Adderall)和阿普唑仑 (Xanax)。墨西哥的毒品网络正在大规模生产这种假药，其所需的化学原料主要来自中共国。假药被贩运至美国后在美国各地分销，甚至在社交媒体和电子商务平台上出售。DEA的实验室测试结果显示，每10颗芬太尼假药中就有4个含有潜在致死剂量。
 
+与此同时，DEA还查获了1500多磅芬太尼粉末，这足以用于制造数千万颗药丸。他们还收缴了158非法武器、8800多磅冰毒（甲基苯丙胺）和1400磅可卡因。美国司法部副部长莉萨·莫纳科 (Lisa Monaco)表示，自2019年以来，DEA发现的含有芬太尼的假药数量猛增了近430%。在美国去年超过9.3万多起毒品过量致死事件中，非法的芬太尼占了近四分之三。缉毒局称，芬太尼的效果比吗啡强100倍，它经常被添加到海洛因中以增加其效力，或者被伪装成一种极易上瘾的阿片类药物。
 
+在这场对美国发动的“毒品战”中，中共伙同墨西哥毒枭以及其他犯罪集团杀害了许多美国人。中共深度参与了毒品的生产、销售以及分赃等过程。必须切断中共这个罪恶之源，美国的芬太尼毒品危机才会得到根本解决。
 
-
-
-
-- **除了那受印记、有了兽名或有兽名数目的，都不得作买卖。在这里有智慧：凡有聪明的，可以算计兽的数目；因为这是人的数目，它的数目是六百六十六。（启示录 ****13:17-18 )**
-- **你们却不可耽延，要追赶你们的仇敌，击杀他们尽后边的人，不容他们进自己的城邑，因为耶和华你们的　神已经把他们交在你们手里“（书****10:19****）。**
-
-
-追求敬虔的基督徒生活的战友善于将生活中难以取舍的事向永生神陈明，祈求神的帮助，不让其肉体的情欲被仇敌激动。如接种中共病毒（COVID-19、Delta）疫苗，直到中共将所谓抗疫经验传播到全世界的时候想，一种新的暴政专制极权主义——疫苗暴政在民主国家兴起，且各国政府将接种无效且有严重副作用的疫苗当做首要普及任务，而不是经济。
-
-
-
-**文字版原文：[论天国的仇敌：“兽印”成为当下疫苗暴政下的思考](https://gnews.org/zh-hans/1480867/)**
-
-
-
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[810 arrested in nationwide crackdown on fentanyl-laced fake pills: DEA](https://nypost.com/2021/10/01/810-arrested-in-crackdown-on-fentanyl-laced-fake-pills-dea/)

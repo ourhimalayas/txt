@@ -2,28 +2,25 @@
 ---
 
 
-## 班农专访：班农战斗室获得美国政治类播客第一名
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568744/)
+## 秘翻在线：美病理学家要求尸检以调查新冠疫苗造成的器官损伤
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568763/)
 
-[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=2560)](https://spark.adobe.com/page/ngThVY0arlYcN/images/e75fb5d6-34b9-4963-96bc-ee249e98140c.png?asset_id=9bb185cd-1798-402e-a322-c27da26be4a4&amp;img_etag=%22d3b7cdb98ec25ef2537ee7f4ad0c13f8%22&amp;size=1024)
-**简评：**因为新中国联邦、爆料革命、GTV和GNews的支持，班农战斗室获得美国政治类播客的第一名，成为有史以来最好的英语节目。唯真不破，传播真相，就会获得民众的支持。
+#### 撰稿：极寒将至 
 
-GTV视频链接：[英喜每周采访班农先生0929-Q0: 我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持](https://gtv.org/video/id=6156a779d2e2b817486fe616)
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-27.png)
+据大疫情新闻网（pandemic.news）报导，美国前线医生白大褂峰会（ America’s Frontline Doctors White Coat Summit ）的一段视频显示，病理学家瑞恩.科尔（Ryan Cole）概述了与实验性疫苗注射计划相关的许多健康挑战及器官损伤，成千上万的人死于COVID-19疫苗。他们要求通过尸检，对由刺突蛋白引起的器官损伤进行调查。
 
+FDA（美国食品和药物管理局）此前在分发疫苗之前忽视了它们可能导致器官损伤的警告。数据是在程序启动前后发布的，表明刺突蛋白会损害微血管系统。
 
+对789名COVID-19检测呈阳性的职业运动员的分析显示，没有出现不良心脏事件。但是，疫苗报告系统（VAERS）显示，已经有11,793人在接种疫苗后患有心脏病或被诊断出患有心肌炎或心包炎。报告不良事件的人数也在增加。
 
-**视频字幕：**
+7 月，美国军方发表的一项研究显示，在接种疫苗后的4天内，已经确定有 23名被诊断患有心肌炎的男性，并确定在没有其他确定原因的情况下接种疫苗后诊断为心肌炎。
 
-**主持人**：班农先生，首先祝贺《战斗室》荣升苹果播客第一名，有史以来最好的英语节目。班农先生，感谢你传播真相。
+2020 年初，临床医生、科学家和健康专家警告说，在接种COVID-19疫苗后，数百万人可能会经历潜在的永久性或长期伤害或死亡。儿科风湿病学家帕特里克.惠兰（J. Patrick Whelan ）博士此前曾警告 FDA，疫苗可能会对不同器官造成微血管损伤，接种者的微血管系统可能会受到永久性损害。导致COVID-19患者心脏、肝脏或肾脏等器官损伤的内皮损伤不是病毒，而是疫苗中使用的刺突蛋白程序。
 
-**班农先生**：我们之所以可以成为美国政治类播客的第一名，是因为新中国联邦、爆料革命和所有老百姓的支持。还有GNews、GTV帮我们翻译成汉语和日语等语言，这个帮助巨大。我想对你们整个团队表示感谢。
+尽管有许多问题，FDA还是在八月批准了辉瑞COVID-19疫苗。例如，人们发现疫苗更可能杀死人而不是拯救人。虽然声称该疫苗将COVID-19的死亡人数减少了50%，但代价是增加了心脏骤停等其他问题的死亡人数，这表明净收益为负再比如，辉瑞自己的研究表明，因 COVID 导致的死亡人数减少了 2 倍，但节省的费用被心脏骤停导致的死亡人数抵消了，后者增加了4倍。
 
-*编辑：【英国伦敦喜庄园编辑部】*
+越来越多的数据显示疫苗对人的损害大于病毒本身，可是政府和媒体还在试图掩盖，而且至今没有一个官方尸检报告来告诉世人，疫苗造成了哪些器官损伤。
 
-*字幕*：*Vekap* *| 听写：云岭 | 翻译：Roberts* *| PR：势不可挡* *| 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-[![](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ngThVY0arlYcN/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+[新闻来源](https://pandemic.news/2021-09-30-covid19-vaccines-may-cause-organ-damage.html#)
