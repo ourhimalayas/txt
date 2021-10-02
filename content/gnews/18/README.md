@@ -2,25 +2,35 @@
 ---
 
 
-## 立陶宛议会修法允许赴台设处 台外交部：深化实质关系
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567640/)
+## 欧盟与澳大利亚的贸易谈判因潜艇争端而推迟
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1567741/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture-809.jpg)立陶宛经济与创新部长阿莫纳伊特资料图片 © 网络图片
-**编辑摘要：**
+**撰稿：日本东京方舟农场 子辰**
 
-据法广10月1日报道，立陶宛议会9月30日通过修法，为立陶宛政府在未设立正式外交代表机构的国家和地区设立经贸代表处奠定法律基础。台湾外交部10月1日对此表示，“乐见立陶宛就相关规划往前迈进一步，深信两国相互设处后，将在自由民主共同价值的基础上，进一步深化双边互惠实质关系。”
+10月1日，堪培拉取消法国主要潜艇合同的决定后，一位欧洲官员周五告诉法新社，计划已久的澳大利亚-欧盟自由贸易谈判已被推迟一个月。
 
-[新闻参考链接](https://amp.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20211001-%E7%AB%8B%E9%99%B6%E5%AE%9B%E8%AE%AE%E4%BC%9A%E4%BF%AE%E6%B3%95%E5%85%81%E8%AE%B8%E8%B5%B4%E5%8F%B0%E8%AE%BE%E5%A4%84-%E5%8F%B0%E5%A4%96%E4%BA%A4%E9%83%A8-%E6%B7%B1%E5%8C%96%E5%AE%9E%E8%B4%A8%E5%85%B3%E7%B3%BB#click=https://t.co/3VvTz7VO0Z)
+据CNA报道，由于澳大利亚上个月突然取消了价值数十亿美元的 12 艘法国潜艇的合同，转而选择购买美国设计的核动力潜艇。
 
-***编辑：【英国伦敦喜庄园编辑部】***
+这一决定引发了两国之间的重大外交口角，而法国作为欧盟最大的成员国之一，现在直接延伸到与整个欧盟的关系。
 
-*编辑：穆清*
+欧盟作为澳大利亚的第三大贸易伙伴，去年两个经济体之间的货物贸易额为 360 亿欧元（424 亿美元），服务贸易额为 260 亿欧元。其地位有着举足轻重的作用。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0768fc96b8bd6e39faa69d69fce8aee1e619e3a0.jpg)图片来自于网络
 
+合同分歧后，法国公开表示不能再信任澳大利亚政府，指责其官员撒谎并质疑贸易协定能否继续进行。
 
-编辑：【英国伦敦喜庄园编辑部】
+澳大利亚贸易部长特汉在给法新社的一份声明中说，我们理解法国对我们的潜艇决定的反应，但最终任何国家都必须按照其国家利益行事。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+特汉表示，尽管如此他仍然计划下周会见欧盟贸易专员瓦尔迪斯·东布罗夫斯基斯（Valdis Dombrovskis）代表其成员国政府谈判贸易协议的机构来讨论第 12 轮谈判的内容。据悉这些内容将涵盖贸易、服务、投资和知识产权等领域。
+
+特汉说：“我们将继续为第 12 轮谈判做准备，并努力达成一项符合澳大利亚和欧盟利益的自由贸易协定。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[EU, Australia trade talks postponed amid submarine row](https://www.channelnewsasia.com/world/eu-australia-trade-talks-postponed-amid-submarine-row-2214486)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

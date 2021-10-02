@@ -2,32 +2,37 @@
 ---
 
 
-## 新南威尔士州政府官员威胁未接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567387/)
+## 有声|美FCC斥资19亿主导拆除中共国网络设备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1567479/)
 
-栏目作者/责任编辑：DM
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-19.png)
-零对冲10月1日消息，澳大利亚新南威尔士州政府宣称，要对进入企业时未出示疫苗接种通行证的人进行监禁。
+配音：纽约香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-2.jpg)
 
-新南威尔士州客户服务部长维克多·多米内洛威胁称 ，使用假疫苗护照的人，将以欺诈罪逮捕。而那些试图不出示任何疫苗接种文件的人，也将被逮捕监禁。他重申，要向警方举报那些进入商店、餐馆和其他场所时拒绝出示疫苗接种文件证明的人。
 
-在澳大利亚各地, 尚未接种疫苗的人不仅会受到公然歧视，新南威尔士州政府的该项政策, 将使得这部分民众无法进行基本的工作和生活，甚至会有牢狱之灾。这也将导致澳洲当地抵抗疫苗暴政的行动日趋激烈。
 
-(本文仅代表作者观点)
+美国联邦通信委员会（FCC）9月27日表示，将启动一个价值19亿美元的项目，为美国乡村地区电信运营商提供补偿，帮助拆除华为和中兴等中共国公司生产的网络设备。据悉，该项目将在今年10月29日至2022年1月14日期间接受申请。
 
-参考链接：[Authorities Threaten Jail Time For Unvaccinated Aussies Who Try To Enter Businesses](https://twitter.com/zerohedge/status/1443762651104940033?s=21)
+去年，FCC认定华为和中兴公司对通信网络已构成国家安全威胁，并规定采用中兴或华为设备的运营商“拆除并更换”这些设备。因考虑拆除和更换成本，FCC会对客户人数在1000万以下的运营商进行补偿。此举亦显示美国在通信行业去除中共国网络安全威胁的决心。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+除华为和中兴通讯外，FCC也认定海能达通信、杭州海康威视数字和浙江大华技术威胁国家安全。美国政府已禁止联邦机构从这5家公司购买商品或服务，还可能撤销此前已发出的设备授权。
 
-终审：文龍
-校正/发稿：谐趣园
+[文字版原文：美FCC斥资19亿主导拆除中共国网络设备](https://gnews.org/zh-hans/1564841/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,30 +2,25 @@
 ---
 
 
-## 火币事件揭示盗国贼金融腐败
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567399/)
+## 布林肯要莫斯科对“消灭”黑客组织负起责任
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1567487/)
 
-栏目记者、责任编辑：Zion文恩
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-20.png)
-火币国际发表声明表示，将从9月24日起停止接受来自中共国大陆地区的新客户，并将在今年年底前，结束所有来自大陆客户的投资合同。提供“原账户返还”或者“退还到指定账户”两种措施，进行投资款的清退工作。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/C.jpg)cybercureme.com
+美东时间10月1日消息，美国国务卿安东尼∙布林肯表示，“俄罗斯要像其他国家一样，必须将网络犯罪分子绳之以法，否则美国将被迫采取行动。”
 
-9月29日，郭文贵先生在直播中揭秘，所谓指定账户，将仅限三家银行: 上海银行、邮政储蓄银行和中国银行。此三家银行分别代持江泽民家族、习近平家族、以及中共所谓国家情报机构的金融势力 。而火币在中共国安委、政法委的保驾护航下，成为中共对海外进行“蓝金黄”、非法政治献金、以及非法军火交易的工具 。与此同时,火币基于区块链技术和暗网交易, 其融资和洗钱潜力巨大,都使其成为盗国贼谋利和转移财产的绝佳掩护。贯君,刘呈杰 ,叶简明, 肖建华等人，都曾将大量资产注入火币系统。也就导致习近平最终对火币痛下杀手，据悉, 火币创始人李林目前已被中共国安从新加坡绑架回中国大陆。
+布林肯说，“美国应该在打击网络犯罪的斗争中‘展开攻势’，消灭犯罪组织。如果任何国家，无论是俄罗斯还是任何其他国家，窝藏这类组织，他们就有责任对付他们，消灭他们，铲除他们，并起诉他们。”
 
-(本文仅代表作者观点)
+国务卿强调，如果他们不愿意或不能惩罚这些罪犯，美国政府将自己采取行动。美国总统拜登已将此事告知俄罗斯总统普京。
 
-参考链接：[2021年9月29日 文贵大直播：中共国停电是因为没有外汇了，是政治经济大较量的结果；火币退款为什么要求原路退回？邮储银行，是习家的最腐败的银行；火币洗钱达600亿美元，是中共洗钱的重要通道；暗网市值3万亿美元，虚拟币是美国和中共都抢不走钱，只有喜币最安全；](https://gtv.org/video/id=615466c142a8af3151a74ee3)
+布林肯已经在7月中旬警告说，如果莫斯科不采取行动，美国将自行对俄罗斯黑客采取行动。他表示，“我们的信息很明确，窝藏网络犯罪分子的国家有责任采取行动。”美国国务院负责人还透露，来自俄罗斯的黑客参与了对美国IT公司SolarWinds的攻击，这种结论得到了北约和欧盟代表的支持。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+7月初，拜登在与普京的电话交谈中表示，“华盛顿打算实施所有必要的行动来保护美国人民和美国的重要基础设施。”
 
-终审：文龍
-校正/发稿：谐趣园
+6月，普京总统明确表示，“‘针对俄罗斯的黑客攻击美国肉类加工厂的指责’是无稽之谈，这实在是太荒谬了。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/61567d089a794748669893ce](https://www.rbc.ru/rbcfreenews/61567d089a794748669893ce)

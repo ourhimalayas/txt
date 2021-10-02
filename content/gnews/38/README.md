@@ -2,22 +2,22 @@
 ---
 
 
-## 民调显示多数选民反对因拒绝接种而解聘雇员
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567349/)
+## 新南威尔士州政府官员威胁未接种者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1567387/)
 
-栏目记者、责任编辑：AsG諾雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-17.png)
-布莱巴特9月29日消息，本周公布的一项州政府调查结果显示，大多数选民不支持以拒绝接种新冠病毒疫苗为由解雇工作人员。
+栏目作者/责任编辑：DM
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-19.png)
+零对冲10月1日消息，澳大利亚新南威尔士州政府宣称，要对进入企业时未出示疫苗接种通行证的人进行监禁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5.jpeg)
 
-这项调查是由特拉法尔加集团完成的, 该集团被誉为被最准确的民调机构之一，调查于2021年9月17日至19日在选民中进行。其中，84%的共和党人不赞成因为拒绝接种疫苗而解雇人们，63%的独立人士和48%的民主党人也持相同观点。
+新南威尔士州客户服务部长维克多·多米内洛威胁称 ，使用假疫苗护照的人，将以欺诈罪逮捕。而那些试图不出示任何疫苗接种文件的人，也将被逮捕监禁。他重申，要向警方举报那些进入商店、餐馆和其他场所时拒绝出示疫苗接种文件证明的人。
 
-美国国会行动组织主席马克-梅克勒在声明中表示，” 强制疫苗接种的目的不是免疫，而是为了让人们服从”。此次该民调的结果很明确，越来越多的美国人正站出来反对强迫接种疫苗，更不应该因为拒绝疫苗接种而影响到公民的工作生计。
+在澳大利亚各地, 尚未接种疫苗的人不仅会受到公然歧视，新南威尔士州政府的该项政策, 将使得这部分民众无法进行基本的工作和生活，甚至会有牢狱之灾。这也将导致澳洲当地抵抗疫苗暴政的行动日趋激烈。
 
 (本文仅代表作者观点)
 
-参考链接：[Poll: Majority Voters Say People Should Not Lose Their Job for Rejecting the Coronavirus Vaccine](Majority%20Voters%20Say%20People%20Should%20Not%20Lose%20Their%20Job%20for%20Rejecting%20the%20Coronavirus%20Vaccine)
+参考链接：[Authorities Threaten Jail Time For Unvaccinated Aussies Who Try To Enter Businesses](https://twitter.com/zerohedge/status/1443762651104940033?s=21)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 

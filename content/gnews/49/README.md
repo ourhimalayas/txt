@@ -2,82 +2,36 @@
 ---
 
 
-## 印尼排华事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1566519/)
+## 全球疫苗暴政的形式已出现逆转
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1566551/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-4.jpg)https://gtv.org/video/id=61567132d2e2b817486fd8fb
-郭文贵
-Miles Guo：
+**By:秘翻新视野**
 
-有站出来说话的吗？没有人站出来说话
-Did anyone stand up and speak? No one stood up to speak
+***2021-10-1***
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-10-01-110914.jpg)](https://gtv.org/video/id=6156abcb38f52a1f22ff2e3f)*点击图片可看完整视频*
+## ***主题内容：***
 
-当时印尼杀害50万华人， 110万华人受害的时候
-When Indonesia killed 500,000 Chinese and 1.1 million Chinese were victimized,
+**一**、正义力量吹响集结号对抗全球疫苗纳粹，全球疫苗暴政的形式已经出现逆转。
 
-美国人说一句话了吗？
-Did the American say a word?
+二**,** 在中共金钱进攻下，澳大利亚沦为共产党的俘虏，卷入政治斗争难以脱身，如不转变，澳洲將步香港后尘。
 
-欧洲人说一句话了吗？
-Did the Europeans say a word?
+三、 对中共国百姓血汗钱的洗劫，败家子政治让中共外汇枯竭是中共国停电的根本原因。
 
-你们问过这个问题吗？
-Have you asked this question?
+四 、什么仇什么怨？ 澳大利亚卷入中共国大停电，是无辜躺枪还是中共内部势力政治角逐的海外延伸？出来混迟早得还！
 
-1998年呐
-The year of 1998
+五、 数字货币的安全性让共产党恐惧，紧急应对避免中共海外资产流通到洼地––喜币系统。
 
-1968年， 1998年
-The year of 1968 and 1998
+六 、喜币的安全性势不可挡，在疫苗大灾难爆发后，会是唯一安全的全球财富聚宝盆。
 
-这两个时间段
-These two time periods
+七、 新中国联邦人將迎来护照和喜币带来的新生，世界财富重组之时，新中国联邦的G系列开启新世界的新秩序。
 
-那人类还不至于说 （没有人敢站出来）
-Humans don’t even say (no one dares to stand up)
+八、 中国共产党是一切排华事件最大的推动力量，始作俑者，后台和保护伞，只有灭共，才能避免再一次排华事件的发生。
 
-那是美国最强盛的时候
-America was at its strongest in that time
+**请移步GTV，观看完整节目[「秘翻新视野」](https://gtv.org/video/id=6156abcb38f52a1f22ff2e3f)**
 
-你两次杀害中国人
-Haji Mohammad Suharto killed the Chinese twice
+*发布:星星*
 
-这么多残害和杀害
-So much cruel injuries and killing
+* * *
 
-他们成为全世界有史以来最残忍的一次，人类大灾难
-They became the cruelest human catastrophe in the history of the world
-
-有人说话吗？
-Does anyone speak?
-
-有人替我们华人说话吗？
-Does anyone speak for us Chinese?
-
-不要爱美国爱西方爱疯了
-Don’t love America and the West too much crazy!
-
-就资本主义的没有原则
-There is no principle of capitalism
-
-还有他们根本不懂得东方
-And they don’t know the East at all
-
-甚至不懂得苏联
-They don’t even understand the Soviet Union
-
-他不知道共产主义的邪恶
-He doesn’t know the evil of communism
-
-原视频日期：2021/09/28
-原视频链接 https://twitter.com/se1y7cblljselva/status/1442805365972688900?s=24
-视频时间段 : 00:00-00:54
-英听校： 洛杉矶盘古农场 – Raul
-翻译： 洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
