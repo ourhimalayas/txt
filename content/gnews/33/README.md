@@ -2,48 +2,40 @@
 ---
 
 
-## 银河快讯：日本自民党新内阁幕僚人选敲定；真子公主将于26日结婚
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1568090/)
+## 哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568124/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-4.png)[图片来源](https://sputniknews.cn/)
-**1.****自民党新内阁幕僚人选基本敲定**
+栏目记者：正义的小新
+责任编辑：晓仙女
 
-[据共同社  10月1日报道，日本自民党总裁岸田文雄1日基本敲定由前环境相铃木俊一（68岁）担任财务相，外相茂木敏充（65岁）留任。批准了干事长甘利明（72岁）等党四大要职的人事安排，新领导班子成立。之后，岸田与公明党党首山口那津男举行党首会谈，签署了联合执政的共识文件。担任自民党四大要职的还有政务调查会长高市早苗（60岁）、总务会长福田达夫（54岁）、选举对策委员长远藤利明（71岁）。前经济产业相小渊优子（47岁）出任组织运动总部长。行政改革担当相河野太郎（58岁）出任广报总部长。内阁幕僚人事方面，岸田有意起用前文部科学相松野博一（59岁）担任官房长官。财务相一职自2012年12月第二届安倍内阁上台以来一直由麻生太郎（81岁）担任。政调会长代理山际大志郎（53岁）入阁也基本确定，将协调是担任经济再生担当相还是经产相。](https://tchina.kyodonews.net/news/2021/10/dd8486b51c91--.html)
 
-**2.****日本皇嗣长女真子与小室将于26日结婚**
 
-[据共同社 10月01日报道，日本宫内厅称，皇嗣秋筱宫的长女真子（29岁）将于26日与大学同学小室圭（29岁）结婚。在登记结婚后，两人当天将召开记者会。真子将脱离皇室，成为民间人士，前往美国与小室一起生活。在有国民对小室家金钱纠纷作出批评的形势下，两人自2017年内定婚约以来，罕见地历时约4年成婚。据宫内厅介绍，届时不举行皇室例行相关仪式，也不办婚礼婚宴。脱离皇室时由国家支付的最多约1.5亿日元（约合人民币870万元）的一次性补贴则鉴于真子表态谢绝，将不召开敲定金额的皇室经济会议，不进行支付。这将成为战后女性皇族结婚时首个不接收津贴的例子。](https://tchina.kyodonews.net/news/2021/10/6872705d7955-226.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)
 
-**3.****菅义伟内阁官房机密费花费约13.3亿日元**
 
-[据NHK 10月1日报道，在今天下午的新闻发布会上，内阁官房长官加藤透露，从去年菅义伟内阁开始到9月30日，大约有13.3亿日元从国库中支出了所谓的官房机密费，其用途没有被披露，其中大约11.6亿日元用于不需要收据的 “政策促进基金”。 在上一个财政年度，政府从国库中支出了约13.3亿日元。另一方面，根据报告，去年从国库中支付给秘书处的费用，在没有使用的情况下退回的金额约为13万日元。](https://www3.nhk.or.jp/news/html/20211001/k10013286921000.html?utm_int=news-politics_contents_list-items_003)
 
-**4.****日经225指数下跌超过600日元**
+在本周哈尔滨市召开的疫情防控新闻发布会上，新闻发布官员提到，若粮食市场出现供应紧张，将及时启动相应的应急响应。
 
-[据NHK 10月1日报道，由于周四东京股市日经平均指数下跌超过600日元，日本央行花费约700亿日元购买上市投资信托（ETF）。作为其大规模货币宽松计划的一部分，日本银行在市场高度波动时每年购买高达12万亿日元的ETF。此前，日本央行决定购买ETF，这是自6月底日经225指数29日跌破30000点以来，约三个月来的首次。](https://www3.nhk.or.jp/news/html/20211001/k10013287251000.html?utm_int=news-business_contents_news-main_002)
+会上透露哈尔滨市有成品粮储备1.55万吨，加上黑龙江省在哈尔滨市储备的粮油，仅可以满足15日的口粮消费量。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture15.jpg)
+郭文贵先生直播中曾爆料：中共国粮食储备数据造假严重，粮食短缺问题严重，当前中共外汇短缺，将无法进口所需粮食，饥荒会在中共国大范围出现。
 
-**5.****三菱电机会长引咎辞职**
+当下的哈尔滨，每日都有确诊新冠病毒新增病例，此时提出粮食应急预案问题，说明粮食危机已经开始。
 
-[据NHK 10月1日报道，三菱电机公司栅山会长已经辞去了他的职务，他说他想澄清他对几个工厂多年来的产品检查违规行为的责任。 今年7月，当时的公司总裁也辞职了，公司将不得不重新开始替换这两位高管。据透露，三菱电机在其长崎工厂的产品检查中造假，除此之外，这种造假行为已经持续了30多年。栅山于2014年被任命为社长，并曾担任过三年的会长。 在提出辞职的同时，他还将辞去日本经济团体联合会副主席的职务。](https://www3.nhk.or.jp/news/html/20211001/k10013286141000.html?utm_int=news-business_contents_news-main_001)
+（本文仅代表作者观点）
 
-**6.****东京大学计划设立1000亿日元基金**
+参考链接：[哈尔滨市疫情防控新闻发布会上，提出粮食供应紧张时，启动应急响应](https://3g.163.com/v/video/VGK51BO5C.html?spss=adap_pc)
 
-[据朝日新闻10月1日报道，东京大学宣布了其未来六年的 “基本政策”。即创建一个约1000亿日元的捐赠基金，以确保独立的财政资源，以及到2026年底将女生比例从目前的23.8%提高到30%。这笔1000亿日元的捐赠基金将在未来10至15年内利用捐赠和产学合作的收入建立起来，目的是利用利润来邀请日本和国外的杰出研究人员。这些资源可以由大学自由使用，因为预计政府补贴不会大幅增加。至于女性与男性的比例，大学已经设定了一个具体目标。 九年前，该校设定的目标是到2020年将女学生的比例提高到30%，但目前的数字是本科生19.5%，研究生28.2%，总比例为23.8%。](https://news.yahoo.co.jp/articles/dc53b088a62353992112a2450500c5f07d8ae112)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-22.png)

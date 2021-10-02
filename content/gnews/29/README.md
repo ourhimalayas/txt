@@ -2,36 +2,50 @@
 ---
 
 
-## 高盛认为8.2万亿美元地方债务的威胁比恒大更严重
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568101/)
+## 美国军官提起诉讼要求法院阻止国防部的强制疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568149/)
 
-高盛的分析师称，最令人担忧的是地方政府债务水平的飙升，习近平主席的手下已经在竭力掩盖了这一问题。与价值8.2万亿美元的未偿还地方政府融资平台相比，全球负债最多的房地产开发项目的违约问题似乎微不足道。
-
-中共国地方政府融资平台繁荣的问题在于伴随着它的不透明性。尽管自2012年以来，中共领导人一直在谈论让市场力量发挥 “决定性”作用，但他们却使中共国的透明度降低。信用评级系统也没有跟上中共国资本市场的发展步伐。
-
-如今，国际投资银行和新闻机构担心，对中共国地方政府债务泡沫的警告将使它们招致报复。因为这个亚洲最大的经济体，为贝莱德、摩根大通、瑞银和其它纷纷涌入的公司铺上了欢迎的红毯。
-
-地方政府的借贷计划，触及了另一个令人担忧的地方事出有因：那就是中共国庞大的影子银行体系。可以肯定的是，作为控制影子银行的一部分措施，中共政府已经瞄准了超过1万亿美元的不透明产品，将其标榜为低风险和高收益的产品来销售。很多时候，这些所谓的现金管理产品将资金引向风险较高的借款人，如房地产开发商。
-
-这也难怪，一些全球最大的投资者对人民币计价的资产持观望态度。每当桥水公司的创始人雷·达里奥（Ray Dalio）为中共国公司唱赞歌时，就会有乔治·索罗斯(George Soros)警告那些急于进入大陆市场的人正在犯下“悲剧性错误”。在这两者之间，像方舟投资公司首席执行官凯西·伍德(Cathie Wood)这样的人正在努力辨别，中共国对科技行业的打压，是否是“买入”或“卖出”人民币资产的一个理由。
-
-日本1.75万亿美元的政府养老金投资基金是世界上最大的基金，也属于后者，（即唱衰人民币资产的那一拨）。它表示甚至不会将人民币计价的中共国主权债务纳入其投资组合。现在的时机对中共国很不利：富时罗素指数即将开始将中共国债务纳入其基准的全球债券指数。
-
-今年7月，政府养老金投资基金总裁宫园正孝（Masataka Miyazono）表示，投资大鳄需对投资中共国债务持谨慎态度。而现在，习近平领导的中共国印证了这一判断。当然，更大的问题是，习近平不再支持中共国科技行业的同时，
-
-恒大的混乱与地方政府的过度债务发生冲突。
-
-如果你闻到来自大中华区（地方债务市场）的烟味，你就应该已经得到更多的信息了。
-
-[原文链接](https://www.forbes.com/sites/williampesek/2021/09/30/goldman-flags-82-trillion-threat-worse-than-china-evergrande/?sh=5db0540215cc)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+栏目记者：正义的小新，文仁
+责任编辑：文仁
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+
+
+
+
+
+根据【AirForceTimes】报道：
+
+美国陆军参谋中士丹尼尔罗伯特和海军陆战队中士Hollie Mulvihill 于 8 月 17 日向科罗拉多州的美国地方法院提起诉讼，指控国防部强制军人注射新冠疫苗是非法和违宪的。这两名军人认为他们应该免于接种疫苗，因为他们已经感染了中共病毒，并且他们正在推动将案件认证为集体诉讼。
+
+法庭文件显示，服役军人称疫苗要求是“赤裸裸地利用原告的军人身份来对付他们，以推进不必要的公共卫生任务”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-2.jpg)
+他们还提出，如果有替代治疗方法，疫苗不应该是强制性的。他们将伊维菌素列为一种可行的替代方法。除了要求法院宣布疫苗要求是非法的并免除军人的费用外，原告还要求法院赔偿他们的律师费和认为合适的“任何其他救济”。两名军职人员均位于北卡罗来纳州。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3.1-1.jpg)
+参考链接：
+[Troops ask court to block DoD’s vaccine requirement](https://www.airforcetimes.com/news/your-military/2021/09/30/troops-ask-court-to-block-dods-vaccine-requirement/)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

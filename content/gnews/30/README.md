@@ -2,22 +2,50 @@
 ---
 
 
-## 2021年10月1日郭先生盖特 — 视频盖特1「3分14秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1568099/)
+## “社会民主连线”（社民连）成员在中共国殇日举行抗议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1568128/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁
-校对：洛杉矶盘古农场 — Antsee-GTV
+栏目记者：葛朗台太太，andy5
+责任编辑：葛朗台太太
 
-Video link: [https://gettr.com/post/pctat2db2e](https://gettr.com/post/pctat2db2e)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/30DB59F8-F077-4810-8A0C-FA88D11C7850.jpeg)
-10月1号，尊敬的战友们好。你看那雁，看那雁！看那大雁活得！这在中国都得炖了，全都给炖了。
 
-尊敬的战友们好，今天是所谓的共产党的中国的“周年纪念日”。中国不是“习大神”说要隆重纪念吗？也没啥纪念呀！兄弟姐妹们要看好，澳大利亚的官员辞职，日本的整个的大地震。接下来是欧盟的官员辞职，英国的官员辞职，美国的官员辞职，全世界因为强制打疫苗的官员的辞职会一个接着一个。今天没有直播兄弟姐妹们，因为我还要开会，还有很多行动，要行动！星期天开会，这几天都是大事，等7哥有时间跟你们聊聊。不过大事也就那么多你们也都知道，比我聪明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
 
-兄弟姐妹们，这几天千万在全世界各地的不要忘了给当地的政府，当地的媒体多发所有关于疫苗死人的各种信息，不要停，不要停！我们在改变人类，我们在改变世界，兄弟姐妹们。这是我们做到了不可思议的事。看看我们现在把各国政府所有这些流氓官员，无知的官员和被黑暗势力控制的人，和共产党控制的人弄成啥样了？不要停，没比这再重要的了。
 
-兄弟姐妹们，我们看到国内现在的房地产，电力停电，习、孟、王、曾、江的PK全开始了。据国内的战友爆料，很多单位已经做好了跟习长期作战的准备。外交部有个叫陈国平的副部长，和孟建柱喝酒胃都喝坏了，听说还和孙力军，还在那块折腾呢。陈国平都没事 — 外交部只要没事，江家就没事；外交部没事，孟建柱就没事。这是一个。
+中共国殇日当天，香港黑警部署超过8000警力，对香港持续进行高压非法统治情况下，仍然有4名来自社会民主连线的成员举行了公开的抗议活动。这4位示威者在出发之前就已经遭到香港恶警的拦截，但是他们不畏强权，仍然拉着“释放47人，释放所有政治犯，全国实行普选”的横幅踏上示威征途，沿途还高声呼喊“释放所有政治犯”、“释放47人”等口号。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture13.jpg)
+我们回顾过去几个国殇日，发现：2018年，香港人仍可以自由上街游行。
 
-只要中纪委没事，政法委没事，王岐山就没事。所以说习危也，很有可能哪天醒来习被抓了，习被干掉了都是有可能的。这种大事的概率越来越高 — 不光是我们这么认为。现在连西方世界所有人都一致这么认为，说习在某一种时刻可能会被干掉。说中国最大的不稳定因素，不确定因素就是习可能被干掉。
+2019年，香港黑警部署了5,000以上的警力，香港人民发起“十一国殇，六区开花”的抗议活动，高喊：“时代革命、光复香港”、“五大诉求、缺一不可”的口号，在香港港岛，九龙，新界等多区同时进行抗议。
 
-但是兄弟姐妹们，新中国联邦人准备好接管中国了吗？过渡中国了吗？准备好了吗？你连传播疫苗真相的能力都没有怎么办呐？啥都不说了，还得行动！兄弟姐妹们，啥都不说了，星期天上午，纽约时间八点半开始直播 — 九点吧，大直播，大直播。就这样了兄弟姐妹们，稍后再向你们汇报。姆该嗮～
+而到了2020年10月1日，香港黑警部署了超过6000警力，拦截和镇压所有可能的抗议。当天晚上，全港就有至少86人被捕。
+
+香港人民的抗议声音在短短的三年内，已经被港共政府和黑警彻底消声。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://mil.news.sina.com.cn/china/2021-10-01/doc-iktzscyx7398564.shtml&quot;)
+2. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://zh.wikipedia.org/wiki/%E7%A4%BE%E6%9C%83%E6%B0%91%E4%B8%BB%E9%80%A3%E7%B7%9A)
+3. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.voachinese.com/a/Hong-Kong-police-halt-4-person-national-day-protest-20211001/6253321.html)
+4. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.thehindu.com/news/international/police-halt-4-person-national-day-protest-in-hong-kong/article36769724.ece)
+5. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.voachinese.com/a/hong-kong-leader-says-stability-restored-riot-police-on-alert-over-banned-protest-march-20201001/5604680.html)
+6. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201001-%E9%A6%99%E6%B8%AF-%E6%B2%A1%E6%9C%89%E5%9B%BD%E5%BA%86%E5%8F%AA%E6%9C%89%E5%9B%BD%E6%AE%87)
+7. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.wenxuecity.com/news/2021/09/30/10945485.html)
+8. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://www.voachinese.com/a/hk-emerge-more-protests-20191001/5105359.html)
+9. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://zh.m.wikipedia.org/wiki/2019%E5%B9%B410%E6%9C%881%E6%97%A5%E9%A6%99%E6%B8%AF%E7%A4%BA%E5%A8%81)
+10. [“社会民主连线”（社民连）成员在中共国殇日举行抗议](https://youtu.be/DDui6luCKcQ)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)

@@ -2,19 +2,20 @@
 ---
 
 
-## 秘翻在线：中共派二十多架战斗机进入台湾领空碰瓷
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568206/)
+## 以色列取消旅行禁令 放宽疫情限制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1568275/)
 
-#### 撰稿：彩虹 
+#### 编译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-3.jpg)图片来源：新华社
+美国合众国际社10月1日报道，以色列周五取消了旅行禁令，將因感染率的原因曾属“红色”禁令的国家不再列入禁令范围。
 
-#### 校对：胡天 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-25.png)图片来源：外交政策
-据《国会山报》10月1日报道，在中共国国庆日期间，中共派出军机继续入侵台湾领空。
+下周一开始，来自保加利亚，巴西和土耳其的游客，无论是否打过疫苗，都将被允许进入以色列，这是根据卫生部门的建议取消的。
 
-这次中共派出了18架歼-16战斗机，两架H-6轰炸机，四架苏-30战斗机和一架反潜机进入了台湾的防空区，迫使台湾部署飞机警告离开，并部署了导弹系统来追踪中共飞机。
+卫生部长纳取曼·阿希说第四波的疫苗从6月底到现在已趋下降，周四，该国有4313例新感染患者，显示疫情趋缓。
 
-另据郭文贵先生近几个月来不断的警告和情报预测，中共已经下定决心攻占台湾。因此，译者以为，近期包括北京时间9月24日上午和下午分别有19架军机和5架军机对台湾凌空的侵扰，均可视为中共为挑起台海战争而进行的碰瓷行为。
+同时，约有150万以色列人未打加强针，周日可能丧失“绿色通行证”，这个通行证表明已打疫苗或最近中共病毒测试阴性，居民被允许参加活动和经商。
 
-**新闻来源**
+周四，有超过10万个以色列人接受疫苗注射，包括加强针，第一和第二针，几乎是一个月中最高数字。
 
-[Defense & National Security — Chinese aggression ramps up](https://thehill.com/policy/defense/overnights/574982-defense-national-security?rl=1)
+##### 新闻来源： [Israel removes all red-listed countries, easing COVID-19 restrictions](https://www.upi.com/Top_News/World-News/2021/10/01/red-listed-countries-removed-COVID19-infection-rates-lower/3291633108469/)
