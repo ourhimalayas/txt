@@ -2,26 +2,30 @@
 ---
 
 
-## 仅剩4023亿美元！中共的外汇即将枯竭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1569002/)
+## 美国大法官全家完成接种仍感染新冠病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569020/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-31.png)
-伴随着中共经济不断走向崩溃，其外汇也逐渐耗尽见底。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
+栏目记者/责任编辑：雪梨
 
-9月30日，中共国家外汇管理局发布了《2021年6月末中国全口径外债数据》。2021年6月末，中共外债余额为26798亿美元，与2021年3月末外债余额25266亿美元相比，增加了1532亿美元的外债！
+美国最高法院于周五发表声明，在职大法官：布雷特·卡瓦诺 （Brett Kavanaugh）的新冠病毒检测结果呈阳性，且未显示相关症状。这是最高法院首次对在职大法官新冠病毒阳性检测结果做出的声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-32.png)
+卡瓦诺和妻子，女儿早已完成新冠疫苗接种。大法官本人在周一会议前的检测结果显示正常，周三参加了首都挑战公路赛，在周四例行检测中被告知感染。声明中并未提及感染原因，根据新冠政策，他和妻子不得不缺席巴雷特大法官的就职仪式。
 
-2021年8月末，中共外汇储备规模为32321亿美元，照此消耗速度计算，预计到9月末（第三季度）中共也就只有 4023亿美元左右的外汇储备了！中共现在这么点实际可支配外汇储备，还要用来购买石油、铁矿石、芯片、粮食、煤炭等肯定是不够的，再加上西方国家的经济、金融脱钩，以及全球大通胀的到来，中共外汇储备应该马上就要见底了……
+根据新冠疫情期间规定，被认为是卡瓦诺的密切接触者，包括法院同事，将不得不进行检测和居家隔离，最高院案件审理将受到极大影响。
 
-中共现在是屋漏偏逢连夜雨，随着新中国联邦即将上线的喜交易所（Himalaya Exchange）和喜币（Himalaya Coin）的爆烈上市，更加对中共外汇储备形成致命的核打击！中共9月24日这次对于火币等交易所的针对性打击，充分证明了爆料革命招招都击中了中共的要害。无论从哪个方面共产党的政治、经济、外交、军事和外汇都到了即将崩溃的时刻！
+(本文仅代表作者观点)
 
-随着外汇的枯竭，中国共产党将会土崩瓦解！中国共产党你完了！
+[https://conservativebrief.com/justice-tests-52091/?utm\_source=CBHYPERLINK “https://conservativebrief.com/justice-tests-52091/?utm\_source=CB&utm\_medium=SG”&HYPERLINK “https://conservativebrief.com/justice-tests-52091/?utm\_source=CB&utm\_medium=SG”utm\_medium=SG](https://conservativebrief.com/justice-tests-52091/?utm_source=CB&amp;utm_medium=SG)[https://apnews.com/article/coronavirus-pandemic-health-amy-coney-barrett-courts-us-supreme-court-5c24ffb572dd34a8b24f226fc2211b7a](https://apnews.com/article/coronavirus-pandemic-health-amy-coney-barrett-courts-us-supreme-court-5c24ffb572dd34a8b24f226fc2211b7a)
 
-[信息来源](http://m.safe.gov.cn/safe/2021/0625/19269.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-免责声明：文章仅代表作者本人观点，与GNEWS无关
+终审:  暗黑
+校正/发稿：浪迹天涯
 
-校对：东京樱花团/喜马拉雅的微尘
-
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-3.png)
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
