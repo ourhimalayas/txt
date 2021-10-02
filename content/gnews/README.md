@@ -15,83 +15,83 @@
 
 ---
 
-### [孙立军被双开 傅政华被调查 中共内部决战已经开启](/content/gnews/1/README.md)
+### [墙国大停电或将李鹏家族卷入权斗](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [孙立军被双开 傅政华被调查 中共内部决战已经开启](/content/gnews/2/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线: 中共或将推出“时间银行”帮政府减负](/content/gnews/2/README.md)
+### [秘翻在线: 中共或将推出“时间银行”帮政府减负](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：郭文贵先生盖特影响力排名第一](/content/gnews/3/README.md)
+### [秘翻在线：郭文贵先生盖特影响力排名第一](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [10/2/21国内经济财经周报：中共制造业进入萎缩空间；多地拟提高电价应对电荒](/content/gnews/4/README.md)
+### [10/2/21国内经济财经周报：中共制造业进入萎缩空间；多地拟提高电价应对电荒](/content/gnews/5/README.md)
  ` 秘密翻译组金融团队`
 
-### [10/2/21 香港快讯 传港大欲移走国殇之柱 校方：不时检讨风险管理](/content/gnews/5/README.md)
+### [10/2/21 香港快讯 传港大欲移走国殇之柱 校方：不时检讨风险管理](/content/gnews/6/README.md)
  ` 英喜-粵語組`
 
-### [广东电价上调25%引发全国涨价潮 通胀将全面传导](/content/gnews/6/README.md)
+### [广东电价上调25%引发全国涨价潮 通胀将全面传导](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/2/2021国际财经快讯：美国就业数据和OPEC+产量会议；美航空公司强制员工接种疫苗](/content/gnews/7/README.md)
+### [10/2/2021国际财经快讯：美国就业数据和OPEC+产量会议；美航空公司强制员工接种疫苗](/content/gnews/8/README.md)
  ` 秘密翻译组金融团队`
 
-### [新冠口服药物，下一轮敛财计划](/content/gnews/8/README.md)
+### [新冠口服药物，下一轮敛财计划](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——乐土废（新韵）](/content/gnews/9/README.md)
+### [樱花灭共诗——乐土废（新韵）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——庆祝72年丰功伟绩](/content/gnews/10/README.md)
+### [樱花灭共诗——庆祝72年丰功伟绩](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列COVID疫苗受害者证词（5/6）](/content/gnews/11/README.md)
+### [以色列COVID疫苗受害者证词（5/6）](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [独家：日本政局新增变数！东京市长成立新党欲参选总理](/content/gnews/12/README.md)
+### [独家：日本政局新增变数！东京市长成立新党欲参选总理](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点1002](/content/gnews/13/README.md)
+### [DC每日热点1002](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：下届日本首相选举或出变数](/content/gnews/14/README.md)
+### [秘翻在线：下届日本首相选举或出变数](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国大法官全家完成接种仍感染新冠病毒](/content/gnews/15/README.md)
+### [美国大法官全家完成接种仍感染新冠病毒](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [仅剩4023亿美元！中共的外汇即将枯竭](/content/gnews/16/README.md)
+### [仅剩4023亿美元！中共的外汇即将枯竭](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《我是音雄》第二季 第六期初赛 节目预告](/content/gnews/17/README.md)
+### [《我是音雄》第二季 第六期初赛 节目预告](/content/gnews/18/README.md)
  ` 我是音雄`
 
-### [资深军医呼吁接种过新冠疫苗的飞行员停飞](/content/gnews/18/README.md)
+### [资深军医呼吁接种过新冠疫苗的飞行员停飞](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [最新文件再次证实，新冠病毒就是中共制造的生化武器](/content/gnews/19/README.md)
+### [最新文件再次证实，新冠病毒就是中共制造的生化武器](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [阿拉斯加航空要求所有员工接种疫苗](/content/gnews/20/README.md)
+### [阿拉斯加航空要求所有员工接种疫苗](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳大利亚新州州长辞职，另习近平未来可能被抓捕](/content/gnews/21/README.md)
+### [澳大利亚新州州长辞职，另习近平未来可能被抓捕](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生四年爆料兑现事件](/content/gnews/22/README.md)
+### [文贵先生四年爆料兑现事件](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [民主党参议员提案乘坐国内航班须接种疫苗](/content/gnews/23/README.md)
+### [民主党参议员提案乘坐国内航班须接种疫苗](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共的绞肉机体制终于“绞“到了前司法部长傅政华](/content/gnews/24/README.md)
+### [中共的绞肉机体制终于“绞“到了前司法部长傅政华](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [出行锐减！“十一”首日全国预计旅客发送量6302万人次](/content/gnews/25/README.md)
+### [出行锐减！“十一”首日全国预计旅客发送量6302万人次](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本新首相岸田人事布局出炉 抗共友台派取代亲共派](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [墙内要闻汇编](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -180,9 +180,9 @@
 ### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
 
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/56/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/56/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/57/README.md)
- ` 秘密翻译组-北美组`
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/57/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
