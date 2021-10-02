@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 1:47 PM (UTC)`
+
+🆘🆘🆘
+> `@jasonmillerindc 10/2/2021 1:30 PM (UTC)`<br/>Who is lighting it up across the Pond in the U.K.?<br/><br/>These are the five fastest growing accounts for the week!<br/><br/>@RealPJW<br/>@LotusEaters_com<br/>@TommyRobinson1 (one of my favorite follows – pure fire, day in and day out!)<br/>@David007<br/>@LozzaFox<br/><br/>And definitely give a follow to @VictorHaggard as there will be some great content coming soon!
+
+---
+
+`@miles 10/2/2021 1:47 PM (UTC)`
+
+🔥🔥🔥
+> `@jasonmillerindc 10/2/2021 1:19 PM (UTC)`<br/>Who's Hot on #GETTR<br/><br/>These are the 10 fastest growing accounts in the U.S. right now!<br/><br/>@NRA<br/>@MaxMAGA<br/>@Conservativee_<br/>@ToddStarnes<br/>@MTG4America<br/>@Mr3Rights<br/>@TimMurtaugh<br/>@GatewayPundit<br/>@EpochTV<br/>@MarkLevinShow
+
+---
+
+`@miles 10/2/2021 1:46 PM (UTC)`
+
+💪💪💪
+> `@jasonmillerindc 10/2/2021 1:36 PM (UTC)`<br/>And definitely make sure to follow @Kaelan and @Christianne_L_A on #GETTR as well - they're based here in the U.S. and heading up our Global Engagement Team!
+
+---
+
+`@miles 10/2/2021 1:46 PM (UTC)`
+
+🙏🙏🙏
+> `@jasonmillerindc 10/2/2021 1:19 PM (UTC)`<br/>Who's Hot on #GETTR<br/><br/>These are the 10 fastest growing accounts in the U.S. right now!<br/><br/>@NRA<br/>@MaxMAGA<br/>@Conservativee_<br/>@ToddStarnes<br/>@MTG4America<br/>@Mr3Rights<br/>@TimMurtaugh<br/>@GatewayPundit<br/>@EpochTV<br/>@MarkLevinShow
+
+---
+
 `@miles 10/2/2021 1:25 PM (UTC)`
 
 10月2号：尊敬的战友们好！你们健身了吗？传播疫苗灾难，CCP病毒的真相了吗？一切都已经开始！
@@ -267,35 +295,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 `@miles 9/29/2021 2:05 AM (UTC)`
 
 9月28号：【举报人称： breaking: 近5万名医保患者在注射COVID疫苗后不久死亡 据医疗自由权律师托马斯-伦茨（Thomas Renz）称，一名举报人提供的政府数据显示，仅在医疗保险患者中，就有48465人在接种COVID-19疫苗后14天内死亡。 "你想知道为什么14天很重要吗？"他问。"因为如果你在14天内死亡，你就不被认为是接种了疫苗。" 根据美国疾病控制和预防中心（CDC）的说法，一个人在完成注射方案14天后才被认为是 "接种疫苗"，这引起了一个问题，即政府当局是否一直将这些死亡事件归类为与疫苗接种有关的死亡之外的事情。 】<br/><br/>https://www.lifesitenews.com/news/nearly-50k-medicare-patients-died-soon-after-getting-covid-shot-whistleblower/ https://gettr.com/post/pch6l37d0a https://gettr.com/post/pcilpc1489
-
----
-
-`@miles 9/29/2021 12:52 AM (UTC)`
-
-9月28号：一切还都没有开始！<br/><br/><br/>【流動性在大幅度減少，七哥說的世界要出大問題。】
-![img](https://media.gettr.com/group5/getter/2021/09/29/00/52/e1936101-1ff5-4d69-507e-60e49d49431b/fdc5343619b84c04749977f9c57fdcb1.jpg)
-
----
-
-`@miles 9/29/2021 12:45 AM (UTC)`
-
-9月28号：尊敬的战友们好……明天9月29号，纽约时间上午10:00开始大直播。
-![img](https://media.gettr.com/group29/getter/2021/09/29/00/45/7f22c329-038c-27c2-f431-3156034a2d17/0292d3387d47c3943075726c113e930e.jpg)
-
----
-
-`@miles 9/28/2021 11:13 PM (UTC)`
-
-🤣🤣🤣💪💪💪
-> `@taishan 9/28/2021 10:00 PM (UTC)`<br/>2016年的陈峰多么傲娇，那时的海航集团多么不可一世…<br/>2017年文贵先生和爆料革命横空出世、盘古开天…<br/>一场正义与邪恶的殊死搏斗一直在继续…<br/>如今海航怎么样了？陈峰又去哪儿了呢？<br/>今日之爆料革命正在集结全世界正义力量所向披靡……<br/>正义终将战胜邪恶
-![img](https://media.gettr.com/group24/getter/2021/09/28/22/00/d138e3b4-1284-9f45-ced8-a7456940819f/out.jpg)
-
----
-
-`@miles 9/28/2021 11:08 PM (UTC)`
-
-9.28:【七哥好，英国跟您今天盖特说的完全一样】
-![img](https://media.gettr.com/group41/getter/2021/09/28/23/08/b8e369ea-a15b-0400-0f2d-ee3e258481e8/b52bc7caed155a7cab1b5c0c79197645.jpg)
 
 ---
 
