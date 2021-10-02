@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 12:13 PM (UTC)`
+
+10月2号．兔子还没死呢，狐狸已经感到悲哀了，胡舒立闻到味道了，知道王岐山孟建柱，他的真正的靠山，要到啦。当然胡已经边控了几年了，这回一定要收进监狱了！【七哥，味道不對了。。。。剛看了，微博確實有，不清楚的照片是我拿手機拍的🙏🙏🙏】
+![img](https://media.gettr.com/group29/getter/2021/10/02/12/a0ef6836-216b-1c93-0ae6-f899ef552e00/62cf0811ee070dcf730677d2dd9815bd.jpg)
+
+---
+
 `@miles 10/2/2021 11:46 AM (UTC)`
 
 10月2号：一切还都没有开始！傅政华的罪行和阴谋，不是我们老百姓所能想象的，孙立军孟建柱，王岐山：傅政华．周亮．等一些，要当二十大领导人的政治阴谋集团还没有浮现出来。中国过去十几年的疯狂的灾难……和世界上所有国家对立，将中国经济和人民至与水火之中的这些人，还都在中南坑和上海过着安稳的日子呢。坐等二十大继续控制中国继而控制全世界．发疫苗大财的美梦呢……可惜的事情是全中国人民，和全世界人民都成了这些流氓政治野心家的牺牲品，所有的这些真相都将被爆料革命予以证明。
@@ -289,13 +296,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 
 9/28/2012 Miles Guo’s GETTR: The CCP’s economy is bound to collapse regardless who will take power after the 20th Party Congress; Once the real estate industry goes bankrupt, its relevant industries and financial sector will also be over, and the CCP won’t purchase iron ore from Australia anymore; The greedy Western capitalists only wants to profit from the Huawei incident; We must hold accountable and punish the Suharto family for their crimes against the ethnic Chinese according to the law, and we must avenge!<br/><br/>9/28/2021 文贵盖特：20大后不论谁上台，中共经济都必将崩溃；房地产一旦破产，其相关产业和金融都要完蛋，中共不再会买澳洲的铁矿了；贪婪的西方资本家一心想利用华为事件牟利；必须依法追究并严惩苏哈托家族针对华人所犯下的罪行，此仇必报！
 ![img](https://media.gettr.com/group44/getter/2021/09/28/22/a074ae34-9706-13c6-a233-4cfe34bbcd1a/out.jpg)
-
----
-
-`@miles 9/28/2021 10:29 PM (UTC)`
-
-9/28/2021 Miles Guo’s GETTR: Who will be arrested first? Zeng Qinghong, Wang Qishan, or Meng Jianzhu? The price of commodities, labor, electricity, food, healthcare, and medicine will skyrocket in the future, while non-essential goods like cars will be worthless. The beginning of the COVID vaccine disaster will be the time when you fear the most.<br/><br/>9/28/2021 文贵盖特：曾庆红、王岐山、孟建柱，谁会最先被抓？劳动力、大宗商品、电、粮、医、药的价格在未来都会暴涨，而汽车等非生活必需品将一文不值。疫苗灾难的开始才是让你最恐惧的时候！<br/>
-![img](https://media.gettr.com/group38/getter/2021/09/28/22/29/2cfc1081-158a-b78d-1b57-100feb5eb2fc/out.jpg)
 
 ---
 
