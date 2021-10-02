@@ -2,30 +2,34 @@
 ---
 
 
-## 美国大法官全家完成接种仍感染新冠病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569020/)
+## DC每日热点1002
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1569037/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-21.png)
-栏目记者/责任编辑：雪梨
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/10/421B0D60-9663-44BE-8C3F-1E2016A80C39-scaled.jpeg)
+道琼斯指数 34326.46 ▲1.43%
+纳斯达克指数 14566.70 ▲0.82%
+WTI纽约原油CFD 75.765 ▲0.98%
+布伦特原油CFD 79.257 ▼0.03%
+美元兑人民币 1USD=6.444RMB
+美元兑港币 1USD=7.785HKD
+国际黄金 1760.98 美元/盎司
+全球CCP病毒感染人数 235,189,878 例
 
-美国最高法院于周五发表声明，在职大法官：布雷特·卡瓦诺 （Brett Kavanaugh）的新冠病毒检测结果呈阳性，且未显示相关症状。这是最高法院首次对在职大法官新冠病毒阳性检测结果做出的声明。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-32.png)
-卡瓦诺和妻子，女儿早已完成新冠疫苗接种。大法官本人在周一会议前的检测结果显示正常，周三参加了首都挑战公路赛，在周四例行检测中被告知感染。声明中并未提及感染原因，根据新冠政策，他和妻子不得不缺席巴雷特大法官的就职仪式。
-
-根据新冠疫情期间规定，被认为是卡瓦诺的密切接触者，包括法院同事，将不得不进行检测和居家隔离，最高院案件审理将受到极大影响。
-
-(本文仅代表作者观点)
-
-[https://conservativebrief.com/justice-tests-52091/?utm\_source=CBHYPERLINK “https://conservativebrief.com/justice-tests-52091/?utm\_source=CB&utm\_medium=SG”&HYPERLINK “https://conservativebrief.com/justice-tests-52091/?utm\_source=CB&utm\_medium=SG”utm\_medium=SG](https://conservativebrief.com/justice-tests-52091/?utm_source=CB&amp;utm_medium=SG)[https://apnews.com/article/coronavirus-pandemic-health-amy-coney-barrett-courts-us-supreme-court-5c24ffb572dd34a8b24f226fc2211b7a](https://apnews.com/article/coronavirus-pandemic-health-amy-coney-barrett-courts-us-supreme-court-5c24ffb572dd34a8b24f226fc2211b7a)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审:  暗黑
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+1、面对中共军事威胁台湾 美国承诺帮助台湾提升自卫能力
+2、美国新冠病毒死亡人数超过70万
+3、多位美国国会共和党人向拜登政府提出建议，点名要求将北京华大基因等中共国生物技术公司列为美国政府黑名单
+4、拜登誓言民主党人将把基础设施案与气候变化及社会开支案“办成”
+5、美贸易代表戴琪周一将就美对华贸易战略发表讲话
+6、今年最大规模：中共在国庆日向台方向派出38架次军机
+7、美国官员宣布日前截获了180万颗来自中共国足以致命的含有芬太尼的假药以及超过700公斤的芬太尼药粉
+8、中共国司法部前部长傅政华被查
+9、欧盟成员国5日讨论议題包括欧中关系
+10、勒德里昂：奥库斯协议是一个新的军事联盟 脱离北约不在考虑之列
+11、澳印重启贸易谈判拟2022年底完成协议 美印拟成立国防工业安全小组
+12、立陶宛议会修法允许赴台设处
+13、加州将要求返校学生须接种COVID-19疫苗
+14、澳洲女州长辞职接受调查 前男友与中共关系密切
+15、拜登：将召开30国会议 应对网攻及勒索
+16、世卫组织人员性暴力丑闻：美欧要求”做出承诺””进行改革”
+17、中共国要求能源国企不惜代价保供电 俄罗斯对华电力供应增加
