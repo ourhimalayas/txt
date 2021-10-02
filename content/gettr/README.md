@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/2/2021 3:45 PM (UTC)`
+
+Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whistleblower broadcast on Jan.26, 2017<br/><br/>郭文贵先生于2017年1月26日爆料革命开启的第一天，就准确预言了傅政华的落马 
+![img](https://media.gettr.com/group27/getter/2021/10/02/15/45/375fdb08-ac82-d7b3-2aec-eda1aab2d642/out.jpg)
+
+---
+
 `@miles 10/2/2021 1:59 PM (UTC)`
 
 🤪🤪🤪
@@ -289,13 +296,6 @@ CCP’s mouthpiece Jin Canrong again released wild words to create public opinio
 🙏🙏🙏❤️❤️❤️
 > `@globalhimalaya 9/29/2021 2:05 AM (UTC)`<br/>Johnson & Johnson employees on hidden camera:  Don't vaccinate Children because there are ‘unknown repercussions down the road’; Never trust anything that the media say @ProjectVeritas <br/>强生公司科学家和商务负责人在被偷拍的视频中透露：千万不要给儿童接种疫苗，因为注射疫苗的后果是未知的！千万不要相信媒体所说的任何事情！要让不愿接种疫苗的人成为二等公民
 ![img](https://media.gettr.com/group44/origin/2021/09/29/02/05/0a79bc80-b29a-5623-b8ca-60d17a60e100/out.jpg)
-
----
-
-`@miles 9/29/2021 2:29 AM (UTC)`
-
-9月28号：青蒿素．伊微菌素．地塞米松。将拯救无数的善良的人们，这就是爆料革命和新中国联盟的力量。【<br/><br/>我所在国的一个朋友全家有5口人，3人确诊，都是打过两针科兴疫苗的，同一个屋檐下，反而没打疫苗的两个小孩没确诊，疫苗就是毒。这里缺医少药，确诊基本没有任何有效药物医治，政府免费给几盒中共捐赠的莲花清瘟就完事了，吃了几天根本不起作用。三天前我给他青蒿素，三天内所有病人全部退烧，呼吸正常，恢复味觉。伟大的青蒿素，伟大的爆料革命，真的救了太多人了，这就是新中国联邦人该做的事。<br/>最近几天给出去好多青蒿素，吃了都非常有效，这个是在这边做物流生意的香港人，同样买不到药被困在家里……打了两针科兴疫苗失去味觉，身体极度疲劳，吃了青蒿素两天，味觉恢复了，身体活力恢复了……青蒿素简直神奇到上天！现在还不敢露脸，等天亮以后我都要邀请他们和我一起上gtv直播，讲出这段和中共病毒抗争的令人难忘的经历的😄】
-![img](https://media.gettr.com/group23/getter/2021/09/29/02/c9c433e3-b744-9d55-c36e-16316a8ff181/5bc6934a9221e25570de7b01a99e3677.jpg)
 
 ---
 
