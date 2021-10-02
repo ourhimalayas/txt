@@ -2,21 +2,39 @@
 ---
 
 
-## 中共内斗火热！傅政华落马
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568746/)
+## 有声|中共迫于人口低生育压力被迫废止部分计生恶法
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568807/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p6562611a520604722-800x450-1.jpg)网络图片
-**编辑摘要：**继中共国公安部前副部长孙力军遭双开后，10月2日，据中央纪委国家监委网站消息，中共国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。傅政华曾任公安部副部长、司法部部长等要职。
+配音：纽约香草山美食部 – 玫瑰园
 
-新闻参考链接：[https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp](https://c.m.163.com/news/a/GLA665BL0530M570.html?spss=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-2.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在中共治下，中共国内的生存环境日益恶化。据悉，对于墙内90后及00后的一代年轻人，他们的结婚以及生育愿望很低。据中共官媒的消息称，中共国目前已经有149个城市进入“深度老龄化”，而这些城市主要集中在东北、中部、长三角、黄河中下游以及成渝城市群地区。
+
+为此，迫于人口老龄化和低生育的压力，中共打着“优化生育政策，促进人口长期均衡发展”的旗号，不得不废止了《计划生育技术服务管理条例》、《社会抚养费征收管理办法》和《流动人口计划生育工作条例》等三项计生恶法。
+
+事实上，中共实行计划生育恶法的这40年来，已经有约4亿左右的无辜婴儿被残忍杀害，造成了无数的人间悲剧。更可悲的是，对于孩子的生育与否，中国老百姓完全没有自己做主的权利，一切都是共产党说了算。至于中共，从其最初的严格计划生育政策，到后来取消二胎惩罚措施，而今又允许民众生育三胎并予以奖励，民众可谓被中共的朝令夕改玩弄于鼓掌之间，毫无人权与自由。现今，墙内民众对鼓励生育政策的相应者寥寥无几，中国的生育率持续下滑。
+
+归根究底，共产党用实际行动表明了，它们就是“上管天、下管地、中间还管生殖器”的彻头彻尾的独裁恐怖组织。
+
+[文字版原文：中共迫于人口低生育压力被迫废止部分计生恶法](https://gnews.org/zh-hans/1565788/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

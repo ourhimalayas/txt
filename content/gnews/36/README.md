@@ -2,53 +2,94 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“孙力军”（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1568458/)
+## 摩根家族基金大量抛售与中概股相關事物，更可怕的事，也在抛售美国很多核心资产
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1568476/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/SLJ.jpg)图片来源：雅典娜设计组（姐夫说说）
-**整理：**KONG
-**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-8.jpg)https://gtv.org/video/id=6157c270d2e2b817487024aa
+洛克菲勒最早的家族你们记得吧
+Recuerdan la primera familia de Rockefeller
 
-【**编者按：**2017年1月以来，郭文贵先生通过直播和社交媒体，发起了一场改变世界的爆料革命运动，影响深远。文贵先生数千个视频里的内容是取之不尽的宝藏，本专栏将把文贵先生数年来关于某一特定话题的精华内容陆续整理成文字，以时间线排序，希望对读者更系统地了解爆料革命有所帮助。近期中共纪委公布了孙力军的案情，而他正是文贵先生最早爆料的盗国贼之一，因此本篇特别整理了郭文贵先生谈到的关于孙力军的相关内容。】
+卖给了一个人3000多万
+Se la vendieron a una persona por más de 30 millones
 
-[文·贵天成——文贵先生谈“孙力军”（一）](https://gnews.org/zh-hans/1568093/)
+卖掉了
+Fue vendido
 
-**郭文贵先生2017年9月5日直播**：
+现在花一个亿在重建
+Ahora está gastando 100 millones para reconstruirlo
 
-大家你们看看马来西亚马航，所有的真相我可以告诉你，你们可以问问孟建柱书记和孙力军，绝对他们知道真相，就是不告诉你，但早晚一天会说出来的，真相会吓到全世界人民。
+旁边我老去拜的天主教堂就是他建的
+Construyó la iglesia católica que queda al lado y es la que siempre he ido a venerar
 
-**郭文贵先生2017年9月6日直播：**
+他们家族最近干了个什么事
+Qué hicieron su familia últimamente
 
-大家一定想想，这些人的好坏、这些人的隐私跟王岐山孟建柱傅政华孙力军盗国贼杀人灭口和海航股权、贯君他爹是谁、贯君他妈是谁、刘呈杰他爹是谁、他妈是谁、孙瑶是谁、海航的钱哪来的，有什么关系？给美国纽约慈航捐不是1800亿，那是6000亿美元啊……
+我告诉你啊
+Déjame decirte
 
-孙力军和董卿，将近十来年上床，将近十来年在一起。人家给他生了孩子，然后孙力军不在的期间，董卿陪孟建柱游泳。孟建柱喜欢游泳，然后又把董卿给上了。人家董卿有口说不出来啊，霸占了一、二十年，青春全没了。这是他对女人的态度！明知他也不说，因为他觉得老板给他的政治利益重要，这是一个非常悲惨的女性代表。
+摩根家族剩下的几个大的基金
+Las grandes fundaciones que quedan de la familia Morgan
 
-而且孙力军这人最爱明星，最爱玩女人，还有我们陈小平，不是最爱许晴，最爱的一个女孩儿叫梅婷，曾经跟潘石屹先生拍过一个电视剧。梅婷也是孙力军搞过的女人，严格讲是强奸的女人。还有一个中央电视台的主持人，叫李思思。李思思是贺国强的儿子贺锦涛的情人。她要上中央电视台，在中央电视台要上2009年的春节联欢晚会，她就找了中央电视台台长焦利。焦利答应她上台做主持人，但后来又没让她上。结果她就拿着一个录音找了贺锦涛说：“焦利和我睡觉了。我有录音。睡觉的时候我告诉他，我跟贺家熟。结果焦利说贺家算个屁，你少给我玩吓唬我的这一套！”她拿了这录音找了贺锦涛，贺锦涛拿着这个录音就去找他爹，第二天就把焦利双规了。焦利说我压根就没跟她睡过觉，我也没有这个录音，是她造的！但是当年的贺国强就是今天的王岐山，就把焦利给抓了，焦利是我朋友。
+大量的抛售所有和中概股有关系的东西
+Están arrojando cantidades de cosas relacionadas con las acciones de concepto chino
 
-这个李思思曾经也找过孙力军，也被孙力军长期给霸占，到现在也没有（停），所以说孙力军和贺锦涛是表兄弟。那李思思还跟谁睡过觉呢？李思思也找过傅政华。让傅政华在一个公寓里霸占了将近一年，所以傅政华跟孙力军也属于表兄弟。李思思小姐你也来告我吧，梅婷小姐来告我吧。
+所有有关系的东西你去看一看, 你在网路上都能看得出来
+Puedes ir a ver todas las cosas que tienen en relación con ellos, lo puedes notar por el internet
 
-孙力军是只恋爱只性交不结婚，只生孩子不结婚，玩遍全中国女性，港澳台女性。现在又管（公安部）一局了，一局本身就连着港澳台的所谓的演艺圈，他就每天不用扎腰带了。孙力军基本可以穿上中东的那个长袍，里边也不用穿内裤，他连腰带都不用了。他基本上是走到哪儿他就戳到哪儿，这就是孙力军的个性。他这阴暗的心理！好几个跟孙力军打交道的人说，他这个新南威尔士出来的学什么公共医疗的心理阴暗，阴暗！都是这样的评价。
+但是他们都是掩藏的非常好
+Sin embargo, ellos han escondido muy bien
 
-张玉良和孟建柱什么关系？绿地的张玉良到底是不是国营企业？到底他的股权是谁的？他的钱为什么到了孟建柱的家里去了？孙力军为什么要到处保护张玉良？帮助张玉良杀人抓人？
+这是过去, 就连2008年金融危机到现在都没有的事儿
+Esto fue en el pasado, incluso la crisis financiera de 2008 no ha ocurrido hasta ahora
 
-马航和孟建柱和孙力军做了什么交易？为什么刘特佐，这么大的腐败关键人物藏在上海？孟建柱书记把他保护起来，为什么？他怎么不来美国呢？为什么要在那儿保护起来？这难道不应该有个交代吗？
+他们都是长期的投资
+Ellos hacen inversiones a largo plazo
 
-**郭文贵先生2017年9月7日直播：**
+最近大量的抛
+Y últimamente están arrojando cantidades
 
-韦石、屎诺和一局的孙力军联络，一直在给他们传递着错误的信息。包括他利用韦石和屎诺，叫他俩写《习主席的情人》那本书，导致铜锣湾所有人被抓，都是韦屎和屎诺和孙力军孟建柱演的一出白虎堂的戏。把中央领导掉到坑里去，把中央领导引到坑里去，使用领导的信任国家的公权力，然后让领导相信郭文贵真有问题了。
+共产党的股份跟中共国有关系的
+De acciones relacionadas con el PCCh
 
-孙力军把我家人一次次请去喝茶，威胁，然后让我当场停播。本来说要把我们曲国娇放回香港。现在曲国娇不但不放，还演了一个（戏），给王雁平发信息：“我家不让我回去了。办不了护照。把我300万保证金拿出来吧。”
+包括跟香港有关系
+Incluyendo de Hong Kong
 
-王岐山孟建柱傅政华孙力军疯了，现在各种手段吃人。就（因为）我爆出了马航事件，还有孟建柱的按需杀人事件，江绵恒的换肾事件，孟建柱的妈妈换肾事件、换肝事件，百岁老人。我还没说他太太蒋琪梅的事件，还有孙力军帮助别人换肾换肝事件。
+更可怕的事情
+Y algo más terrible
 
-雷洋真正的死因是雷洋知道了傅政华还有孙力军的秘密，国际俱乐部的秘密，实际就是杀掉了他。什么打飞机那不扯嘛！有关信息……到最后验尸的时候，有一个关键的人物，他会告诉大家真相的——林彪女儿林豆豆的先生是中国解剖学一大拿，当时雷洋解刨的时候他在医院里。这一堆警察围着骂这些解剖医生说：“妈的你敢胡说八道，我弄死你们！闭嘴啊，别胡说八道！”最后他毕竟是有权威的，他说你们不要骂人，你们说怎么写怎么写，不能骂！最后定义为搂着脖子勒死的，你去想想，雷洋从家出来十来分钟就这样给勒死了，他跟他有仇吗？
+我是第一次在这会上感受到
+Primera vez siento en cuanto a este asunto
 
-孟建柱和王岐山两个人真正的作为监国，监督习主席，孙力军是执行者，傅政华是那么恶的人，干了很多坏事，还跟他们不完全是一伙。
+他们也在抛美国的很多核心资产
+Están arrojando también muchos activos principales de EE. UU
 
-*发布：翼族*
+兄弟姊妹们
+Hermanos y hermanas
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这说明了啥问题
+Qué demuestra esto
+
+你抛中共的, 是中共出事了
+Si estás arrojando de PCCh, significa que está ocurriendo algo en ellos
+
+你抛美国的
+Si arrojas de EE. UU
+
+就是世界要出事了
+Quiere decir que el mundo pasará algo
+
+大了, 事儿大了
+Algo muy grande
+
+原视频日期：09/28/2021
+原视频网址： https://twitter.com/se1y7cblljselva/status/1442804253672628231?s=24
+视频时间段：0:00-1:22
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- 天涯行
+审片：洛杉矶盘古农场- 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
