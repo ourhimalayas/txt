@@ -2,21 +2,44 @@
 ---
 
 
-## 马克龙的援助后 （中共）病毒抑郁症计划
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1568597/)
+## 有声| 市场崩盘可能即将来临
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568637/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10023.jpg)
-冠状（中共）病毒大流行及其带来的限制对心理健康产生了非常严重的影响。根据 Istituto Superiore di Sanità 进行的一项研究，长期和反复的封锁导致越来越多的人患有焦虑、抑郁、失眠，在某些情况下，还患上了创伤后障碍。为应对法国的这一问题，马克龙宣布了一项应对这一问题的计划，然而这却让该国的心理学家大发雷霆，指责总统没有分配足够的资源。
+配音：香草山美食部-玫瑰园
 
-据[《世界报》](https://www.lemonde.fr/societe/article/2021/09/28/les-consultations-chez-un-psychologue-seront-remboursees-sur-prescription-medicale-a-hauteur-de-30-a-40-euros-a-partir-de-2022-annonce-emmanuel-macron_6096326_3224.html)报道，根据最近的一项调查结果，15% 的法国人表现出抑郁状态的迹象，23% 的人表现出焦虑状态的迹象和 10% 的人在这一年中有自杀念头。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-政府承诺在一年内在医学心理学领域创造 800 个工作岗位，投资 8000 万欧元用于行业创新研究。但这个措施引发了心理健康专业人士的抗议，全国心理学家联盟秘书长帕特里克·安吉·拉乌尔( Patrick Ange Raoult ) 称：平均而言，一小时的诊断费用在 50 到 60 欧元之间，仅报销 30欧元的这个措施可能会迫使无力支付差价的患者只要求半小时的咨询，这被认为是不够的。心理学家无法定义患者需要什么帮助，这对他们来说是一种侮辱。
 
-至于疫情对意大利公民心理的影响，根据一项研究，由于封锁，出现焦虑或抑郁症状的人数增加了一倍多。焦虑症患者从 18.1% 上升到 41.5%，而抑郁症患者从 14.3% 上升到 33.2%。酗酒和使用精神药物（事先未咨询医生）等危险和自毁行为也呈上升趋势。尽管如此，意大利政府尚未采取任何措施来应对这一问题。在意大利，心理治疗实际上是一种私人垄断。据估计，意大利 80% 的心理治疗费用都是由公民自掏腰包。
 
-免责申明：本文只代表译者观点，与Gnews无关
 
-原文链接：[https://europa.today.it/attualita/depressi-covid-macron.html#\_ga=2.141986098.1486520036.1633082979-145009575.1615972944](https://europa.today.it/attualita/depressi-covid-macron.html#_ga=2.141986098.1486520036.1633082979-145009575.1615972944)
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+
+
+零对冲9月30日刊登了一篇署名查尔斯·休·史密斯（Charles Hugh Smith）的文章——《没人认为可能的市场崩盘即将来临》。
+
+文章认为：盛宴正在上演，冒险崩溃就像报复一样，因为没有“认真的人”相信崩溃是可能的，更不用说迫在眉睫了。他例举了若干相互作用的因素：经济泡沫已经见顶，高估值、高杠杆、高度兴奋和投机的极端情况已经远远超过了基准；通货膨胀不仅是内在的，而且是全球性的问题，整个地区的天然气价格可能会增加三倍，而其他必需品的成本也可能毫不费力地轻松增加三倍；美联储的腐败造成其公信力下降，同时，由于美联储已经失去对收益率的控制，长期积累的对美联储神一般权力的信任正在动摇；中国这次不会再像以前那样，在泡沫破灭时拯救全球市场；散户投资者投入的资金比过去10-20年还要多，最终泡沫将被戳破。
+
+
+
+**文字版原文：[市场崩盘可能即将来临](https://gnews.org/zh-hans/1565932/)**
+
+
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

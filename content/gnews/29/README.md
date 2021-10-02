@@ -2,91 +2,82 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1568554/)
+## 币圈新闻动态：稳定币等数字代币还有助于保护储蓄免受高通胀或当地货币波动的影响
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1568609/)
 
-- **西班牙喜悦农场—wenwu**
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-
-您若想了解全文报导内容，请点击标题链接
-
-（爱惜生命 远离疫苗）
-
-**1. [致 Rachel Maddow 的一封公开信：“你有说实话的自由吗？”](https://childrenshealthdefense.org/defender/dr-diane-perlman-rachel-maddow-ivermectin-covid/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip192.png)
-
-据《捍卫者》2021年10月1日电，Diane Perlman 博士向 MSNBC 的 Rachel Maddow 提出了一些问题，她挑战这位 Maddow 脱口秀主持人纠正在她的节目中关于（人用）[伊维菌素的](https://childrenshealthdefense.org/defender/covid-ivermectin-could-have-saved-millions-lives/)言论，尤其是与治疗中共病毒（COVID-19）相关的言论；8月下旬（20、27日），她在该节目中声称伊维菌素就是“马驱虫剂”，并批评人们使用这种药物。
-
-在致 Maddow 的[一封公开信](https://coronawise.substack.com/p/open-letter-and-challenge-for-rachel)中，Perlman 详细概述了支持（人用）[伊维菌素](https://childrenshealthdefense.org/defender/joe-rogan-bret-weinstein-dr-pierre-kory-youtube-censorship-ivermectin-covid-treatment/)作为 COVID-19 有效治疗方法的证据；Perlman 然后挑战 Maddow 来回答这些问题：
-“我在与朋友的辩论中，我是相信您愿意根据对被隐瞒的事实和独立科学的调查，来修改您的报告，对不？
-您可以自由说真话，还是受制于[大型制药公司的](https://childrenshealthdefense.org/defender_category/big-pharma/)赞助商，为了他们的利益而宣传虚假信息？
-你是否可以改进你的言辞，帮助缓和不可容忍的贬低（伊维菌素），并帮助我们超越敌对的右/左派分裂？你能不能为友好的对话和启蒙创造一个空间？”
-
-**2. [福奇有可能在大流行的中共病毒研究方面，误导公众](https://childrenshealthdefense.org/defender/fauci-nih-darpa-funding-gain-of-function-research/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip193.png)
-
-据《捍卫者》2021年10月1日电，The DisInformation Chronicle 对政府文件的[调查](https://disinformationchronicle.substack.com/p/leaked-department-of-defense-documents)揭示了新的证据，即[安东尼·福奇（Anthony Fauci）博士](https://childrenshealthdefense.org/defender/robert-f-kennedy-jr-book-the-real-anthony-fauci/)批准资助生态健康联盟的彼得·达扎克（Peter Daszak）对与 [COVID-19](https://childrenshealthdefense.org/defender_category/covid/) 密切相关的中共病毒，进行危险[的“功能增强”研究](https://childrenshealthdefense.org/defender/biden-congress-investigate-fauci-gain-of-function-research/)；[DisInformation ChronicleDisInformation Chronicle](https://disinformationchronicle.substack.com/archive?utm_source=menu-dropdown)分析了 NIH 授予[生态健康联盟](https://childrenshealthdefense.org/defender/ecohealth-alliance-hid-pentagon-funding/)用于武毒所的类蝙蝠冠状病毒研究的拨款，并将其与美国国防部下属的一个研究小组国防高级研究计划局 (DARPA) 泄露的文件，进行了比较。
-
-(DARPA) 泄露的文件发现：
-
-- NIH 正在资助功能增强性研究，这意味着科学家正在使病毒更具有传播性和毒性（即致命）
-- Fauci 在国会作证说 NIH 没有资助功能增强性研究
-- Daszak 否认他在武汉病毒研究所 (WIV) 的合作者对蝙蝠进行了研究，但在他的 DARPA 提案中，他承诺 WIV 将在蝙蝠上进行实验
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
-- Daszak [策划了一场运动](https://childrenshealthdefense.org/defender/26-of-27-scientists-covid-lab-leak-ties-wuhan-lab/)，将关于中共病毒是从 WIV 实验室泄漏的任何指控，都贴上“阴谋论”的标签
 
-《**DisInformation Chronicle**》报道：** **
+## 每日一问
 
 
-“研究小组 DRASTIC 公布的新泄露的国防部文件，进一步削弱了美国国立卫生研究院（NIH）的安东尼·福奇和大流行病研究员彼得·达扎克关于，他们在武汉病毒研究所进行功能增强性研究的说法的可信度。”
 
-“如果你看看我们被告知的叙述，其中一些显然是不真实的，”[DRASTIC](https://drasticresearch.org/)的Gilles Demaneuf告诉《DisInformation Chronicle》。
 
-3.[**看不见的电子邮件：Fauci祝贺武汉合作者获得”应得的”习近平奖**](https://thenationalpulse.com/exclusive/foiad-fauci-emails-reveal-congratulating-researchers-earning-ccp-awards/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip194.png)
-据《国家脉动》2021年10月1日电，通过Fauci Emails显示，NIAID所长福奇曾庆祝流行病学家伊恩·利普金（Dr. Ian Lipkin，武毒所的重要合作者），2016年获得了中共独裁者习近平的中共国国际科技合作奖（对外国科学家的最高科学荣誉），随后又从中共国中央政府、中央军委和国务院那里获得了另一个奖项；在中共病毒大流行的六天后，利普金和其他四人为中共病毒溯源打掩护。他们在没有证据的情况下，发表了一篇关于“SARS-CoV-2的近端起源”的论文，其中他们推测“SARS-CoV-2是不可能通过实验室人工操纵相关的SARS-CoV类冠状病毒出现的。”
 
-Fauci在2016年1月8日新闻发布后的第二天发给Lipkin的电子邮件中感叹道：”祝贺你！这是你应得的”。这位科学家的获奖感染如下：这巩固了我与中共国科学院、科技部和卫生部的亲爱的朋友和同事的关系（军民融合项目）；获得这枚奖章是一个巨大的荣誉……我将珍惜它，提醒我在中共国的亲爱的朋友和同事，以及我们一起为中国人民和全世界人民的健康（指的是生物武器，covid-19),所取得的所有成就。
+金秋十月，收获的时节，蚂蚱也蹦跶不了几天了吧？
 
-利普金还从福奇的国家卫生研究院（NIH）机构获得了近100项资助，以资助其研究；他甚至为中共政权下的国营科学机构授课和接受资助；更主要的是，Fauci Emails证实了他对中共病毒的事情上是一再地全力为中共撒谎；他在接受中共国国营小报《环球时报》时候表示：“我在中共国、大学和中共政府中有这么多朋友，我可以帮助人们相互交流，共同合作。”
 
-**4. [参议院法案将要求境内飞机旅行，需提供疫苗护照](https://www.foxbusiness.com/politics/senate-domestic-flyers-covid-vaccination-proof)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip195.png)
 
-据《福克斯财经》2021年10月1日电，加利福尼亚州民主党参议员黛安·范斯坦 (Dianne Feinstein) 周三（29日）介绍了《美国航空旅行公共安全法》，该法将要求国内航空公司要求航班上的所有乘客，都必须完全接种疫苗（可能三针），或者出具最近检测出 COVID-19 呈阴性与完全从疾病中康复的证明（加州参议院办公室说，这项立法建立在目前CDC的命令之上—该命令于1月发布）。
 
-拜登政府在9月说，它将放宽对飞往美国的外国航班的病毒限制，允许外国人在今年秋季凭疫苗护照和他们的航班飞行后三天内的COVID-19阴性测试；这些变化定于11月生效，白宫COVID-19协调员Jeff Zients说，CDC将要求航空公司收集国际旅行者的联系信息，以方便追踪。
+## 喜马拉雅交易所要闻
 
-加州参议院办公室认为，美国的新增病例暴涨归咎于航班输入，并危机幼儿。
 
-**5. [世卫组织人员性暴力丑闻：美欧要求”做出承诺””进行改革”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211001-%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E4%BA%BA%E5%91%98%E6%80%A7%E6%9A%B4%E5%8A%9B%E4%B8%91%E9%97%BB-%E7%BE%8E%E6%AC%A7%E8%A6%81%E6%B1%82-%E5%81%9A%E5%87%BA%E6%89%BF%E8%AF%BA-%E8%BF%9B%E8%A1%8C%E6%94%B9%E9%9D%A9)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip196.png)
 
-据《法广网》2021年10月1日电，在世卫组织派驻刚果民主共和国对抗埃博拉病毒工作人员强暴性侵丑闻曝光后，美国、欧盟、加拿大、澳洲、新西兰、挪威及英国周五发布联合声明指出，希望世卫领导层做出全面承诺，并加快改革，强化行动效力及责任，声明同时要求对性丑闻事件立即进行“彻底和详细的调查”。
 
-世界卫生组织的一些工作人员被查出在应对刚果（金）埃博拉疫情期间实施了性虐待和性剥削行为。由世卫组织委托的一个独立小组查明了80多起在疫情期间涉嫌虐待的案件，其中包括涉及 20 名世卫组织工作人员的指控。世卫总干事谭德塞28日对此表示，公布的调查结果代表了“世卫组织一个黑暗的日子”，他并补充说，这也是对“世卫组织为了服务他人而置身于危险之中的其他同事”的背叛。
+- 喜交所官推@himalayaxchange）10月11日消息，
+Normal heart rate:
+    ⠀ /\⠀ ⠀ ⠀ ⠀ /\ 
+\_\_/ \ \_\_/\\_\_/ \ \_\_\_
+\/⠀ ⠀ ⠀ ⠀ \/
+    When #hcn hits the market:
+    ⠀ /\⠀ /\⠀ /\ 
+\_/ \ /\\_/ \ /\\_ / \ /\\_
+⠀ \/⠀⠀ \/⠀⠀ \/
+4:00 AM · Oct 1, 2021·Hootsuite Inc.
 
-据称，调查小组确定了83名肇事嫌疑人，包括刚果（金）国民和外国人。在21起案件中，小组能够明确地确定被指控的肇事者是世卫组织雇员。 大多数被指控的施虐者是临时雇用的刚果（金）工作人员。
 
-**6. [加州强制所有在校生接种中共疫苗](https://www.huffpost.com/entry/bc-us-virus-outbreak-california-schools_n_61574510e4b0487c855eb575?yptr=yahoo)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip197.png)
 
-据《HUFF邮报》2021年10月1日电，加利福尼亚州州长加文·纽森周五宣布了全国首个针对在校儿童（7-12、12-15、16岁以上）的中共疫苗的强制令，一旦该疫苗获得美国政府针对不同年龄段的最终批准，所有小学至高中学生都将接受“死刑”；纽森办公室说，一旦等到联邦监管机构完全批准中共疫苗，加州将要求公立和私立学校的7至12年级学生接种中共疫苗；可见，这位州长的胆子更大了。
 
-洛杉矶县卫生局局长芭芭拉·费雷尔（Barbara Ferrer）周四（30日）说：”鉴于全县有3000多所学校现在开放，目前的儿童感染数字低得惊人；如果联邦政府在1月份批准，那么这项疫苗强制令将在7月份生效；学生将被授予宗教和医疗豁免权，但该州如何应用这些豁免权的规则还没有写出来，也就是说将不得上学。
 
-到目前为止，纽森将学生接种疫苗的决定权留给了地方学区，导致本州一些最大的学区出现了各种不同的命令；洛杉矶和奥克兰联合大学已经规定所有12岁以上的学生必须接种疫苗，但奥克兰的命令没有规定学生必须遵守的最后期限。洛杉矶设定的最后期限是1月20日；圣地亚哥联合学校董事会批准16岁以上的工作人员和学生在12月20日之前，完全接种疫苗。
+## 新闻动态
 
-（文章仅代表作者本人观点，与Gnews无关）
 
-* * *
 
-***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+
+1. 路透社报道，据区块链研究机构Chainalysis称，随着越南、印度和巴基斯坦等新兴和发展中市场经济体快速增加某些采用措施，比特币及其同类资产的价格和受欢迎程度在去年飙升，稳定币等数字代币还有助于保护储蓄免受高通胀或当地货币波动的影响。
+2. 10月2日消息，据ultrasound.money数据，自8月初以太坊伦敦升级后约两个月内，销毁ETH总价值突破13亿美元，总销毁量达到近41万枚。
+3. Cointelegraph报道，美国SEC宣布，将4支BTCETF申请裁定时间延长45天。GlobalX Bitcoin Trust、ValkyrieX BTO Bitcoin Futures Fund、Wisdom Tree Bitcoin Trust和Kryptoin Bitcoin ETF的审批日期被重新安排为11月21日、12月8日、12月11日和12月24日。
+4. Cointelegraph报道，巴西证券交易所B3正在探索为该国中央银行数字货币CBDC提供数据输入的方法。B3上市产品和数据的董事总经理Luis Kondic声称，证券交易所正在考虑提供预言机以将外部数据与CBDC连接起来。
+5. Livebitcoinnews报道，BitPay和Verifone正在合作，允许Verifone的客户使用数字货币支付商品和服务，BitPay希望推动BTC向前发展。Verifone的商家基础包括许多世界上最大和最知名的品牌，它们希望进入不断增长的加密市场。这种伙伴关系使这些企业能够轻松安全地接受加密支付，并从被压抑的消费者使用加密货币的需求中受益。
+6. TheBlock报道，Solana Monkey Business的NFT是在Solana区块链上铸造的5,000个NFT的集合，刚刚以13,027SOL约210万美元的价格出售了一个NFT，这是迄今为止最昂贵的基于Solana的NFT。
+7. CNBC报道，佳士得周五拍卖了企业家Gary Vaynerchuk为其Vee Friends NFT系列创作的五件艺术品。此次拍卖是佳士得在纽约市举行的“战后到现时”现场拍卖的一部分，进一步推动了该拍卖行进军数字艺术品销售领域。VeeFriends系列由10,255个字符的不可替代代币组成，可通过加密货币以太坊购买。
+8. Decrypt报道，时尚品牌Dolce & Gabbana拍卖了时尚NFT，价值近570万美元的ETH。一些拍卖包括实物服装或珠宝以及NFT。意大利时尚品牌Dolce & Gabbana今天通过名为Collezione Genesi的UNXD市场完成了有史以来的首次NFT收藏品拍卖。截至目前，此次拍卖的拍卖金额已经超过1,885ETH，价值近570万美元。
+9. U.today报道，数字支付解决方案和VISA合作伙伴Wallester购买了由Astro Frens开发的数字收藏品系列。这是Wallester首次涉足NFT领域，根据Wallester的官方公告，它遵循其合作伙伴VISA的战略，向数字收藏品领域扩张，以150,000美元购买了Visa的CryptoPunks系列。Wallester总计获得了33只宇航员公牛NFT。
+10. 10月1日消息，加密货币行情网站CoinGecko已完成与InsurAce的保险服务集成，并正式上线。用户可在CoinGecko项目代币信息下新增的Security板块中直接查看由InsurAce为此项目提供的保险价格和购买容量，也可通过此页面直接购买相关保险以保护资产安全，并享受至少5%的保费折扣。
+11. 10月1日消息，电子竞技俱乐部OG宣布与加密货币做市商Wintermute达成合作。OG官方微博称：“Wintermute对游戏和电子竞技非常热情，他们将为我们的DOTA2和CS:GO队伍提供支持。”
+12. Prnewswire报道，美国国家橄榄球联盟的超级明星德鲁•布里斯和帕特里克•马霍姆斯、南非橄榄球传奇人物让•德•维利尔斯和数字平台StaX达成合作并将作为全球大使加入。据悉，StaX是经区块链验证的数字卡，可以由追随者和粉丝通过StaX应用程序购买、拥有和交换。
+13. 10月1日消息，Cosmos开发的Ethermint由于商标问题以及范围扩大将升级为Evmos，Evmos将作为Cosmos的EVM Hub，让智能合约在Cosmos中轻松部署和通信。
+14. Coindesk报道，Compound的代码中一个Bug导致了COMP代币的错误发放，而COMP代币的目的是用于长期的流动性挖掘奖励。Compound的推特账号在不久后承认了这个Bug，并表示没有用户的资金受到威胁。该Bug只适用于Compound的Comptroller合同，该智能合约负责分配随着时间的推移而获得的流动性采矿奖励。
+15. Bleepingcomputer报道，Coinbase 10月1日披露，从3月到5月20日，黑客从6,000名客户那里窃取了加密货币。
+16. CNN报道，美国总统拜登最新声明中说，白宫将在本月召开一次30国会议，试图加强全球努力以应对勒索软件对经济和国家安全的威胁。根据声明，拜登将宣布该联盟的目标是“加快我们在打击网络犯罪方面的合作，改善执法协作，阻止加密货币的非法使用，并寻求外交手段解决这些问题”。
+17. 财联社报道，美国国会众议院议长佩洛西被迫推迟众议院表决基建立法草案，此前众议院民主党为此爆发冲突。
+18. 10月2日消息，美众议员Tom Emmer表示，政府正在“试图控制”加密货币。
+19. Decrypt报道，摩根大通分析师表示，Robinhood应用程序的下载量大幅下降，这可能导致该公司股价下跌，分析师指出，该应用程序的下载量和活跃用户指标在本季度大幅下降，分别下降了78%和40%。加密货币交易应用Coinbase和Binance的下载量也有所下降，均下降了50%左右。
+20. Cointelegraph报道，股权公司Thoma Bravo的联合创始人兼管理合伙人奥兰多•布拉沃Orlando Bravo周三在接受采访时表达了他对加密货币市场的坚定支持，并透露他非常看好对比特币的个人投资。
+21. Coindesk报道，去中心化借贷协议Compound总法律顾问Jake Chervinsky宣布辞职。Jake于2019年5月份加入Compound，并于今年9月29日宣布与Growth Labs合作，担任DeFi收益率和储蓄协议Gro Protocol的战略顾问。
+22. News.bitcoin报道，欧洲加密交易平台Bitbay已经通过爱沙尼亚严格的新规定，现在是一家完全许可和受监管的交易所。爱沙尼亚在2020年底收紧了对加密服务提供商的许可制度，现在根据该国的《洗钱和恐怖主义融资法》，他们必须达到与传统金融机构相同的标准。去年12月，波罗的海国家的金融情报部门撤销了先前颁发给虚拟货币公司的1,000多个许可证。
+23. Cointelegraph报道，法国股市监管机构Autoritédes Marchés Financiers AMF继续监控加密货币市场并警告投资者注意未经授权的加密服务。据监管机构称，存在上市实体一直在未经授权提供此类服务的情况下提供加密投资产品。为保护投资者免受潜在的欺诈投资，AMF和法国审慎监管与处置局ACPR会定期更新未经授权的投资提供商的黑名单。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
