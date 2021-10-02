@@ -2,19 +2,29 @@
 ---
 
 
-## 美国执法人员截获大量含有芬太尼的致命假药
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1567880/)
+## 2021年8月23日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1567918/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/8EED957E-1F8E-4EC9-B25B-E91C6949868C_cx0_cy8_cw0_w1200_r1.jpg)美国执法人员截获大量含有芬太尼的致命假药 网络图片
-据美国之音中文网消息，美国官员9月30日宣布，执法人员日前截获了180万颗足以致命的含有芬太尼的假药以及超过700公斤的芬太尼药粉。他们说，这些被运往墨西哥进行加工的芬太尼来自中共国。执法官员说，美国今年截获的假药超过了过去两年的总和。
+盖特连接： [https://gettr.com/post/p8l2zb3e69](https://gettr.com/post/p8l2zb3e69)
 
-新闻参考链接：[https://www.voachinese.com/a/China-vows-to-keep-Taiwan-out-of-Pacific-Rim-trade-group-20210929/6250095.html](https://www.voachinese.com/a/China-vows-to-keep-Taiwan-out-of-Pacific-Rim-trade-group-20210929/6250095.html)
+8月23号：尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机．CCP病毒真相了吗？
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
+（做完一组健腹轮），一组24个，做6组！
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑整理及发布：黎明之前
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

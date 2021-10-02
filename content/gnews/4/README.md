@@ -2,39 +2,44 @@
 ---
 
 
-## 美國聯邦政府暫時解除停止運作危機
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1568076/)
+## 议员呼吁拜登政府将中共生物技术公司列入黑名单
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1568091/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-1.jpg)
+阿肯色州共和党参议员汤姆·科顿和威斯康星州共和党众议员麦克·加拉格尔要求拜登政府将中共国生物技术公司列入美国政府的经济黑名单。他们认为中共国意图将生物技术应用于损害美国利益的军事目的。
 
-作者：紐約香草山 雲豹
+“中共会不惜一切代价窃取美国人最私密的信息——包括他们的DNA，”科顿在一份声明中告诉福克斯新闻。“将中共国生物技术公司列入黑名单，将有助于对抗中共对隐私的侵犯，并加强我们的国家安全。”
 
-9月30日，美國的參議院及眾議院相繼快速通過臨時開支法案（stopgap funding bill），並將該法案提交到白宮。拜登總統也趕在政府關門期限前簽署了此項臨時開支法案，讓聯邦政府得免於關門，可以暫時繼續運作至12月3日。
+科顿和加拉格尔周四宣布，他们呼吁将北京华大基因研究中心(BGI)和其它中共国生物技术公司列入黑名单。
 
-拜登隨後發表聲明表示，感謝兩黨達成協議、避免了政府關門的危機。拜登表示，這項法案提供國家的關鍵緊迫性需求，讓聯邦政府可以繼續執行現前的工作。
+国会议员在信中辩称，华大基因(BGI)一贯代表中国人民解放军(PLA)行事，这是中国共产党“军民融合”战略的一部分。
 
-如果此次臨時開支法案沒有順利通過，聯邦政府會關閉一些非必要性的政府機構，用剩於資金暫時保持軍事、航管、醫療、氣象、郵政、法務等少數必要單位的運行，維持最低度的運作。如果預算案托太久遲遲沒有通過，聯邦政府在沒有預算下，終究會關門，只是在歷史上沒發生過。
+议员们表示，现在管理中共国国家基因数据库的华大基因已经收购了美国公司，并正在利用国家补贴“削弱全球DNA测序市场”。
 
-(本文為作者觀點，不代表G NEWS 立場)
+他们写道，“华大基因与中国人民解放军的联合研究，可能在未来的生物武器中得到应用——这尤其令人担忧，因为华大基因的国家基因库很可能用于军事研究。”
 
-[參考連接]：
+加拉格尔在一份声明中告诉福克斯新闻，“生物技术是一个重要的新兴领域，很大可能会决定21世纪的经济。拜登政府必须现在就采取行动，趁为时未晚，确保像华大基因这样的中共国公司不会主导这一关键领域。”
 
-[https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202110010012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+议员们要求将华大基因和其它中共国生物技术公司加入财政部的“非SDN中共国军工综合体企业”名单，该名单禁止这些公司在美国交易所交易。
 
-[https://www.cna.com.tw/news/aopl/202110010028.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202110010028.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+他们还希望将这些公司纳入对出口许可要求严格的商务部实体名单，以及国防部的中共国军事公司名单，后者直接针对军民融合的贡献者。
 
-审核 / 编辑 / 发稿: 圣母院钟声
+简评：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-Oct-1-2.jpg)
+科顿和加拉格尔国会议员的提议就当下而言，象征意义大于实际意义。拜登政府对中共政权的软弱与妥协有目共睹，从病毒追责到配合中共强推疫苗接种，再到近期对中共军事威胁台湾表现出来的迟滞，都说明了，拜登即使是在任美国总统，也无法放弃其家族与中共的利益勾兑。如今让他推行一个会损害其自身利益的提议，他自然不会去做。
 
-**更多資訊，更多關注**
+中共政权将新冠病毒作为生物武器，已经杀害了全世界近480万人，美国依然在说“华大基因与中国人民解放军的联合研究’可能在未来’的生物武器中得到应用”，很是让人无奈。还好，在本篇报道的评论区，可以看到参与评论的大多数美国人都是觉醒的，他们已经认清，只要拜登政府执政，美国政府与中共的勾兑将很难停止，更无从谈起所谓的美国国家安全。希望美国能早日觉醒。
 
-[**紐約香草山農場****GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**紐約香草山農場****GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**紐約香草山農場****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[新闻链接](https://www.foxbusiness.com/politics/cotton-gallagher-biden-admin-blacklist-chinese-biotech)
 
-[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
