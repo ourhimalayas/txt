@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/3/2021 11:39 PM (UTC)`
+
+10月3号：这是真的吗？【美国陆军医生和航空航天医学专家特蕾莎·朗向五角大楼发出了前所未有的呼吁，要求所有接种COVID-19疫苗的飞行员都必须停飞。 任何人都不能排除因心脏病发作而突然发生飞行事故的可能性。推特文摘】
+![img](https://media.gettr.com/group41/getter/2021/10/03/23/39/3f38d319-e163-8dbd-3c87-edd3542c8fd2/67b360381a685ca192382bcf571022c5.jpg)
+
+---
+
 `@miles 10/3/2021 11:18 PM (UTC)`
 
 10月3号：人性啊……人……性啊……人性——啊人……性……啊😜😜😜😜😜😜😜🤣🤣🤣🤣🤣🤣🔥🔥🔥🔥🔥
@@ -287,13 +294,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 9月30号：当科技．制药寡头．媒体寡头控制全世界的时候，要么人类重生，要么人类被消灭。我相信我们的现在灭对的一切，就是人类重生的最佳机会。可悲的是人类要付出这么多的代价，怎么大的代价？【一个曾经非常健康的父亲在注射新冠疫苗以后有可能因为血栓而失去他的胳膊和腿，而且他还得了双重肺炎以及充血性心力衰竭】
 ![img](https://media.gettr.com/group10/getter/2021/09/30/11/44/7402154f-1d9e-97ae-a40d-3ba7c495507a/out.jpg)
-
----
-
-`@miles 9/30/2021 5:53 AM (UTC)`
-
-9/29/2021 Miles Guo: The 3 major banks designated to receive Huobi’s refunds are Shanghai Bank, BOC, and PSBC, which is controlled by Xi and is one of the most corrupt banks in the Communist China; Due to the blockchain technology, Huobi’s refunds must be go back to the users’ original bank accounts or the designated ones; This recent major power outage in the Communist China is caused by a great contest between the political and economic interests groups within the CCP, involving key cases of the CCP’s energy sector, the Development and Reform Commission, and ultimately the Central Commission for Discipline Inspection<br/><br/>9/29/2021 文贵直播：火币退钱的三大指定银行是上海银行、中国银行和邮储银行，其中邮储银行由习控制，是中共国最腐败的银行之一；由于使用了区块链技术，火币的退钱必须原路返回或退回指定账号；此次大停电是中共国内政治经济利益大较量的结果，这将牵涉到中共能源板块、发改委乃至中纪委的重大案件！<br/>
-![img](https://media.gettr.com/group17/getter/2021/09/30/05/53/a0a4f208-9e7d-a432-6829-246df4e07e85/out.jpg)
 
 ---
 
