@@ -2,59 +2,151 @@
 ---
 
 
-## 欧盟监管机构发现强生疫苗可能与两种更严重的健康状况有关
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1569482/)
+## 强制疫苗接种和拒绝承认自然豁免的理由是什么
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569579/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0100229.jpg)
-欧盟药品监管机构于10月1日建议更新强生公司COVID-19疫苗的标签，对可能与该疫苗有关的两种更严重的健康状况提出警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/at0wh-gh9kr.jpg)
+[https://gtv.org/video/id=6158a2bad2e2b81748705b19](https://gtv.org/video/id=6158a2bad2e2b81748705b19)
 
-欧盟药品管理局的药物警戒风险评估委员会(PRAC)得出结论，使用强生疫苗可能与静脉血栓和一种导致免疫系统攻击血小板的免疫状况有关。
+**Senator Ron Johnson**
+**参议员罗恩·约翰逊**
 
-药物警戒风险评估委员会的会议重点指出：“PRAC得出的结论是，用于COVID-19的强生疫苗与罕见的静脉血栓栓塞(VTE)症病例可能有关。”
+Let’s look at some data,
+让我们看一些数据
 
-该委员会说：静脉血栓栓塞症“是一种在深静脉中形成血凝块的疾病，通常在腿部、手臂或腹股沟部位，并可能游走至肺部导致血液供应阻塞，可能会危及生命。”
+the type of data that we’re not getting from our healthcare agen-cy
+这类数据是从我们的医疗保健机构无法获得的
 
-强生公司旗下的杨森公司没有回应欧盟药品监管机构置评请求。
+so we have to look, unfortunately to England, and Israel, they’re more transparent.
+所以不幸的是我们必须看看英格兰和以色列的，他们更透明
 
-COVID-19是由CCP（中国共产党）病毒引起的疾病，俗称新型冠状病毒疾病。
+I don’t, I don’t expect anybody to be able to read the figures show
+我不期待任何人能够阅读显示的数字
 
-在审查了新的证据后，PRAC得出结论，有一种合理的可能性，即这种凝血状况与使用强生疫苗的接种有关。委员会建议，在强生疫苗的产品信息中将静脉血栓栓塞症列为罕见的副作用。
+I’ll give you, I’ll give you the highlights
+我会给你们一些重点
 
-该委员会还发现，强生和阿斯利康的疫苗与一种免疫疾病有关，这种疾病会导致身体的免疫系统攻击正常凝血所需的健康血小板。
+but I’m showing that this is from Public Health England.
+但我展示的这是来自英国公共卫生部
 
-“血小板水平极低可能会导致出血，并对健康造成严重后果，”该委员会说。
+This is one of their, their federal health care agencies.
+这是他们其中的一个联邦医疗保健机构
 
-PRAC建议将这种免疫疾病列为强生和阿斯利康疫苗的“频率未知的不良反应”。
+This is from their technical briefing number 23, date September 17 2021.
+这是从他们的技术简报第 23 号，日期为 2021 年 9 月 17 日
 
-监管机构同意直接向医疗保健从业者发送关于凝血和免疫状况的警告声明。
+It covers cases for about seven and a half months,
+它涵盖了大约七个半月的案例
 
-有关免疫性血小板减少症(ITP)的通讯中提到，在接种疫苗后的前四个星期就有这种情况的报告，“包括致使血小板计数非常低的严重病例”。
+from the beginning of February to February 12
+从2月初至2月12日
 
-“如果一个人有ITP病史，医疗保健专业人员应该在接种疫苗之前考虑出现低血小板水平的风险。对于有ITP病史的个体，建议在接种强生疫苗后监测血小板水平，”并与医生直接沟通说明。
+what the data shows. Is it during that seven half month period in England.
+数据显示的是，是在英格兰的七个半月期间的
 
-给医生的关于静脉血栓栓塞症(VTE)的信息指出，这种情况很少见，但对于血栓形成风险因素较高的人，应考虑这种情况的风险。该信息还指出，应检查出现这两种情况之一的患者是否存在另一种情况。
+There were about 750,000 new COVID cases
+大约有75万例新的 COVID 病例
 
-该函件中说：“这对评估血栓形成与血小板减少综合征(TTS)的潜在诊断很重要，这需要专门的临床管理”。
+about little under 600,000， those were the Delta variant about 80%,
+大约略低于 60万例的，那些大约 80%是德尔塔变种
 
-美国食品和药物管理局(FDA)于2021年2月27日批准了强生疫苗紧急使用。不到两个月后，即4月23日，FDA修改了授权，包括“关于接受该疫苗者体内出现的一种非常罕见和严重血凝块的信息。”这种情况下的凝血状况与欧洲监管机构于10月1日标注的凝血状况不同。
+the number of deaths associated with those 600,000 Delta cases was 2542,
+与这 60万例德尔塔变种病例相关的死亡人数为 2542人
 
-美国食品和药物管理局没有回应置评请求。
+which gives us a case fatality ratio of about point four.
+这给了我们大约0.4％的病死率
 
-**简评：**
+Again, case fatality is higher than infection fatality
+再次，病死率高于感染死亡率
 
-欧盟药品监管机构的药品警戒风险评估委员会(PRAC)得出的结论，更加证实新中国联邦郭文贵先生所预警的疫苗灾难会在全世界蔓延。医学界和科学界也正在告诉人们疫苗的副作用。更重要的是，郭文贵先生一直在不懈的推动各国政府认识到疫苗将给人类带来的灾难，敦促他们做出改变。
+because these are actually registered cases
+因为这些实际上是登记的案例
 
-[新闻原文链接](https://www.theepochtimes.com/jj-vaccine-possably-linked-to-two-more-serious-health-conditions-eu-regulator-finds_4028270.html)
+and they’re all kinds of infections that never get registered.
+而且有很多各种感染的病例从未登记过的
 
-***编辑：【英国伦敦喜庄园编辑部】***
+So to put this in context, an infection fatality rate for a bad flu season
+所以把这个放在这个情况，一个严重流感季节的感染死亡率
 
-*翻译/简评: 希望| 校对:Julia Win*
+is slightly under point two, half of this
+是稍微低于0.2％，病死率的一半
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+just can put things in perspective.
+就可以把事情看得很透彻
 
+Now, President Biden this has been parroted by media, news media said
+现在，拜登总统这已经被媒体，新闻媒体炒作说
 
-编辑：【英国伦敦喜庄园编辑部】
+that what we are currently experiencing a pandemic of the unvac-cinated.
+我们目前正在经历的是一场未接种疫苗人群的流行病
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+They don’t give us really any data to back that up.
+他们没有给我们任何数据来支持这个主张
+
+They just do proclaim pronounced that 99% of people with COVID now are unvaccinated.
+他们只是宣布现在99%的COVID患者都没有接种过疫苗
+
+But they don’t give us the data. We have data from England.
+但是他们不给我们数据，我们有来自英格兰的数据
+
+And here’s the data. So of the 600,000 cases in England,
+这是数据，在英格兰的60万个病例中
+
+43% were unvaxxed 27% with, with the fully vaxxed.
+43%是没有接种疫苗的，27%是完全接种疫苗的
+
+Another 30% with were partially vaxxed, or just undetermined.
+另有30%的接种了部分疫苗，或只是未确定
+
+But I think what’s interesting, because here’s another quote, President Biden,
+但我认为有趣的是，这是另一句话，拜登总统说
+
+President Biden said if you’re vaccinated, you’re not going to be hospitalized.
+拜登总统说，如果你接种了疫苗，你就不会去住医院
+
+You’re not going to an ICU unit, you’re not going to die.
+你不会去重症监护室病房，你不会死
+
+You’re not going to get COVID If you have these vaccinations.
+如果你接种了这些疫苗，你就不会感染 COVID
+
+Well, maybe that’s true in the US, I kind of doubt it
+好吧，也许这在美国是真的，我真的很怀疑
+
+because in England, of the 600,000 new cases of delta of the over 2500 deaths,
+因为在英国，在超过2500人死亡的60万起新增病例中
+
+63% of those deaths 1613 People with, with fully vaccinated.
+63%的死亡的人，1613人是完全接种过疫苗的
+
+28% were the unvaxxed.
+28%是没有接种过疫苗的
+
+Now, this is information the American people who probably never heard.
+现在，这是美国人民可能从未听说过的信息
+
+It’s information by conveying, I will get attack, I will be vili-fied,
+这些信息被传达出去，我会受到攻击，我会被诽谤
+
+I will be censored, I will be suppressed.
+我会被审查，我会被压制
+
+So the reason I’ve come to the Florida Senate to reveal this in-formation
+所以这是我来佛罗里达州参议院透露这些信息的原因
+
+that American people need to know.
+这是美国人民需要知道的信息
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:** [https://twitter.com/senronjohnson/status/1443777704994672644?s=21](https://twitter.com/senronjohnson/status/1443777704994672644?s=21)
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,35 +2,33 @@
 ---
 
 
-## 韩国过去三天中共病毒疫苗接种异常反应申报达1万2736件
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1569307/)
+## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
 
-韩国天池农场
-翻译：鱼子酱CAVIAR
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/疫苗反应.jpeg)
-据韩国KBS新闻10月2日的报道，韩国疫苗出现异常反应，过去3天内死亡19起，异常反应1万2736起。
+作者：香草山健身部 – 文真
 
-据统计，过去三天中共病毒疫苗接种异常反应申报达1万2736件， 新死亡申报人数为19人。 其中，10人注射了阿斯特拉热内卡，8人注射了辉瑞疫苗，剩下的1人注射了莫德纳疫苗。目前尚未确认接种和死亡之间的因果关系。
 
-接种到死亡的时间从1天到126天不等。 死亡年龄段为：60多岁7人，40多岁4人，50多岁3人，70多岁2人，20多岁、80多岁和90多岁各1人，按性别来看，男性14人，女性5人。
 
-死亡者中有15名正在调查是否有基础疾病，40多岁的1名男性和1名女性没有基础疾病， 其余2人有基础疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-在没有基础疾病的情况下，死亡的40多岁男女都是辉瑞接种者。 据调查，男性在完成辉瑞接种11天后死亡，女性在辉瑞第一次接种3天后死亡。
 
-重症全身过敏反应“阿纳菲拉克西斯”疑似病例增加了43例，辉瑞23例，莫德纳20例。
 
-“特别关注异常反应”事例和重症监护室住院、生命危重、永久障碍和后遗症等事例相结合的主要异常反应事例分别是：辉瑞165件、莫瑟娜64件、阿斯特拉珍妮卡47件、扬森2件。
+9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
 
-剩下的1万2396件被分类为出现肌肉痛、头痛、发热、恶寒等症状的一般异常反应。
+“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
 
-防疫当局的方针是，对疑似死亡或重症异常反应的病例，今后经过专家评估，确认与接种的相关性。
+参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
 
-自今年2月26日韩国国内开始接种疫苗以来，疑似异常反应的举报已累计达到28万3,392件，相当于累计预防接种数的0.44%。
+（本文仅代表作者观点）
 
-各种疫苗的异常反应申报率为：扬森0.58%、莫德纳0.54%、阿斯特拉杰内卡0.52%、辉瑞0.36%。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-以今天0点为基准，累计死亡申报事例共有713人，从疫苗种类来看，辉瑞372人、阿斯特拉热内卡308人、莫德纳22人、扬森11人。
+编辑/审核/发稿：正义的小新
 
-[新闻来源](https://mn.kbs.co.kr/mobile/news/view.do?ncd=5292203)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

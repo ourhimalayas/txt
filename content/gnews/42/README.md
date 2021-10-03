@@ -2,28 +2,39 @@
 ---
 
 
-## 短视频：2017年明镜采访郭先生爆傅政华
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1568680/)
+## 有声|参议员罗恩·约翰逊质疑新冠疫苗的有效性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1568836/)
 
-#### 剪辑字幕：尕鱼儿
+配音：纽约香草山美食部 – 玫瑰园
 
-#### 编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-2.png)
-图片来源：新唐人
+![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-2.jpg)
 
-傅政华先生，我现在正式给你叫板啊！你敢不敢在中央领导面前说刘呈杰和贯军的资料不是你给我的？如果你敢说不是，你敢说不是，我愿意在中央领导任何派出人的面前听你的录音甚至看视频！
 
-我说傅政华给我的资料，北京所有人，我都知道！你知道这个朱善璐啊，有领导问他你咋给郭文贵说那“六四”的人都是傻叉呢？孩子，听说朱善璐呀，张牙舞爪、泪如雨下，哎呦，我咋能这么说！郭文贵胡说八道啊什么的！你怎么听他的？郭文贵有必要造你朱善璐这个谣么？
 
-没必要！反过来说了傅政华给领导说：我怎么可能！从来不认识！从来没联系过！绝对没说过！我保证！磕头下跪！傅政华先生你的表演非常好！但是事实！只要领导派出人叫新领导派个人来，去看看我跟你弟弟的录像、录音，看看刘呈杰和贯军是谁给我的？是你傅政华！
+据[门道专家](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)9月30日报道，美国参议员罗恩-约翰逊在参议院会议上讨论了目前与COVID-19疫苗有关的COVID-19大流行病。
 
-傅政华给我一些常委的料，比今天要震撼千倍万倍！
+约翰逊参议员展示的一张图表显示，疫苗并没有像宣传的那样发挥作用。他对与COVID-19疫苗有关的冠状病毒病例和冠状病毒死亡的时间线，提出了如下三个非常重要的观点：
 
-**发布：文泓**
+“在疫苗推出之前，确诊冠状病毒的总病例和死亡人数已经大幅下降；疫苗接种率在2021年初开始攀升，如今达已到60%左右；尽管60%的人口已经接种了疫苗，但今年夏天的病例和死亡人数仍再次激增”。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+现在公众没有得到需要做出知情选择的准确信息，而大药厂又对疫苗的后果不承担任何责任。这都将施打疫苗的公众陷于非常不利的境地。
+
+[文字版原文：参议员罗恩·约翰逊质疑新冠疫苗的有效性](https://gnews.org/zh-hans/1565386/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

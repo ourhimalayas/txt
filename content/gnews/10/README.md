@@ -2,35 +2,27 @@
 ---
 
 
-## 共和党议员乔丹和比格斯要求司法部对被驳回的中共间谍指控做出答复
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1569545/)
+## 近60架中共战机在两天内进入台湾防空识别区
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1569607/)
 
-翻译: 波士顿五月花  精神家园
+俄罗斯莫斯科喀秋莎农场  银河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/共和党议员乔丹、比格斯要求对被驳回的中国间谍指控作出答复.jpg)https://thebl.com/us-news/us-lawmakers-demand-explanation-from-doj-for-dropping-charges-against-chinese-spies.html
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/T-1.jpg)foreignaffairs.com
+日本共同社新闻报道，10月2日台湾国防部称，共有20架中国军机，包括战斗机和轰炸机，进入该地区。包括10月1日的38架，近60架中共战机在两天内进入了台湾防空识别区，这是自9月份台湾开始披露相关信息以来的单日最高纪录。
 
-两名众议院共和党议员致信司法部长梅里克·加兰 (Merrick Garland)，询问上周为何撤销了对六名中国科学家的指控，该六人在今年夏天被司法部指控从事间谍活动。
+10月1日白天有25架飞机进入该区域，晚上有13架。据台湾国防部称，一些中共战机在穿越分隔台湾和菲律宾的巴士海峡后，飞到了台湾东岸附近的一个地区。台湾军机连续两天紧急起飞，警告大陆飞机离开。
 
-来自俄亥俄州的众议院司法委员会高级共和党议员吉姆·乔丹以及来自亚利桑那州的众议院犯罪、恐怖主义和国土安全小组委员会高级共和党议员安迪·比格斯在信中指出：“一些被指控的人公开承认为中共军队从事间谍活动。”
+据台湾国防部统计，今年共有500多架中共战机进入台湾防空识别区。台湾对中共国提出尖锐批评。
 
-两名参议员在信中写道：“目前尚不清楚司法部驳回这些指控的原因，也许因为联邦调查局（FBI）被爆出了不当行为，亦或因为在你领导下的司法部，更热衷地追求拜登-哈里斯政府的极左政治目标，而不是保护美国的国家安全利益。”
+台湾行政院长苏贞昌周六上午对记者说：“中共一直在肆意进行军事侵略，破坏地区和平。”
 
-《华尔街日报》的一篇文章提到了五名被指控和一名仍在逃的中共国公民，并指出这些指控被驳回的时间为国务院二号官员温迪·谢尔曼准备前往中共国与官员会面的前几天。然而，国务院发言人却否认两者之间有任何关联。
+中共尚未对此置评，但此前曾表示称，此类飞行是为了保护国家主权，并针对台湾与美国之间的“勾结”，因美国是台湾最重要的国际支持者。
 
-两名参议员在信中还写道：“美国承诺对抗中共国对美国构成的国家安全，而司法部的行为引起了人们对此承诺的严重关切。”
+中共加大了军事和政治压力，试图迫使台湾接受中共国主权。台湾表示，它是一个独立的国家，将捍卫它的自由和民主。爆料革命和新中国联邦创始人郭文贵先生提供情报称，中共为了维系摇摇欲坠的政权和濒临崩溃的经济，必然会攻打台湾。美国和中共勾兑，并不会在第一时间对台湾施以援手。台湾更可怕的是有内鬼接应，面对中共的进攻将无招架之力，台湾危矣！
 
-其中一名中共国科研人员拥有中共国军衔，他对此撒谎。他后向美国官员承认：“他的上司，所在的中共国军事大学实验室主任，指使他观察加州大学旧金山分校实验室的布局，并指使其将复制美国实验室的信息带回中国。”据乔丹和比格斯说。
+参考链接：
 
-据报道，另一名间谍试图销毁她与中共解放军隶属关系的证据，包括她的军队证件照片、穿着军装的照片以及她的真实简历。在另一起案件中，一名与解放军有关的‘研究员’在接受调查人员面谈后藏匿于旧金山的中共国领事馆，导致美国官员指责中共政府窝藏逃犯。
+[https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/](https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/)
 
-司法部号称驳回这些指控是“为了正义”，指出存在未能告知嫌疑人相关权利的指控、“联邦调查局质疑对此案提出指控的价值”。两位国会议员对以上说法以及谢尔曼的中国之行表示质疑。
-
-（文章仅代表作者本人观点，与GNews 无关）
-
-新闻来源: [Reps. Jordan, Biggs Demand Answers on Dismissed Chinese Spy Charges](https://www.newsmax.com/politics/spies-state-department-jim-jordan-andy-biggs/2021/09/27/id/1038128/)
-
-* * *
-
-*素材来源：冲天一怒*
-
-*编辑**& 发布：jamie(文胤)*
+[https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html](https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html)
