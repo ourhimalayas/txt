@@ -16,6 +16,16 @@
 ---
 ## 頁面 6/36 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [36](/content/README-36.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[文字版2020年12月23日郭先生GTV盖特视频](/content/2020/12/20201223-681584.md)
+
+[文字版2020年12月20日郭先生GTV直播](/content/2020/12/20201220-680052.md)
+
+[2020年12月19日郭先生盖特文字版（完整版）](/content/2020/12/20201219-668203.md)
+
+[文字版2020年12月18日郭先生GTV直播](/content/2020/12/20201218-686156.md)
+
+[文字版2020年12月14日郭先生GTV直播](/content/2020/12/20201214-672368.md)
+
 [文字版2020年12月11日郭先生GTV直播](/content/2020/12/20201211-672238.md)
 
 [文字版：2020年11月26日文贵先生直播视频](/content/2020/12/20201209-7200582879299785978.md)
@@ -55,16 +65,6 @@
 [文字版：2020年11月14日郭文贵先生直播视频](/content/2020/11/20201123-6996095476462078865.md)
 
 [文字版：2020年11月11日郭先生GTV直播](/content/2020/11/20201123-7347289394080256961.md)
-
-[文字版：2020年11月9日郭文贵先生直播视频](/content/2020/11/20201123-4992453587105006549.md)
-
-[文字版：2020年11月8日郭文贵先生直播视频](/content/2020/11/20201123-7007382489206697446.md)
-
-[文字版：2020年11月8日郭文贵先生连线大卫](/content/2020/11/20201123-2602096722999962648.md)
-
-[文字版：2020年11月7日郭文贵先生直播视频](/content/2020/11/20201123-5742734290856122606.md)
-
-[文字版：2020年10月7日郭先生GTV直播](/content/2020/10/20201018-3690547876023765465.md)
 
 
 ## 頁面 6/36 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [36](/content/README-36.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,16 @@
 ---
 ## 頁面 9/36 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [36](/content/README-36.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[文字版：郭先生2020年7月8号GTV直播](/content/2020/07/20200715-3384664929547072780.md)
+
+[文字版：郭先生7月5日GTV直播 ](/content/2020/07/20200709-8762268395418060735.md)
+
+[文字版：郭先生7月4号GTV直播](/content/2020/07/20200709-6898409063046022191.md)
+
+[文字版:郭先生2020年7月2日直播](/content/2020/07/20200706-7619698888838221948.md)
+
+[文字版：郭先生6月28日GTV直播-香港问责法案最后一分钟被大打折扣;成功营救郝海东之子;GTV投资进展；中共对付新中国联邦的烂招](/content/2020/07/20200702-4895298173760578203.md)
+
 [文字版：2020年6月25日郭先生直播-杨洁篪来美国都说了什么？共产党最快三个月彻底灭亡！](/content/2020/06/20200629-4613228362412011055.md)
 
 [文字版: 郭先生2020年6月20日GTV直播](/content/2020/06/20200623-1544322677967966575.md)
@@ -55,16 +65,6 @@
 [文字版：5月25日郭先生GTV直播](/content/2020/05/20200528-6916942439704303274.md)
 
 [文字版:郭先生5月23日GTV第二次直播](/content/2020/05/20200528-1016481976863648605.md)
-
-[文字版:5月23日郭先生第一次GTV直播](/content/2020/05/20200528-4447173668011122398.md)
-
-[文字版:郭先生5月22日GTV直播](/content/2020/05/20200525-8248369863817556998.md)
-
-[文字版:郭先生5月21日GTV直播](/content/2020/05/20200525-8500785424702761303.md)
-
-[文字版:郭先生5月19日GTV直播](/content/2020/05/20200524-8312018362582702518.md)
-
-[文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/content/2020/05/20200520-8311112395612251879.md)
 
 
 ## 頁面 9/36 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [36](/content/README-36.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
