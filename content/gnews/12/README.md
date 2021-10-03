@@ -2,63 +2,23 @@
 ---
 
 
-## 中共电力产业被几大家族操纵着
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
+## 十一话国殇 喀秋莎农场GTV特别节目
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571379/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
-[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
 
-**郭文贵
-Miles Guo**
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G.jpg)
+10月2日，俄罗斯莫斯科喀秋莎农场以“十一话国殇”为主题请来了仰望七星和冰扬战友来到直播间，从国殇的“殇”字谈起做了一期特别节目。
 
-还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
-everyone don’t forget that there is another key point, who made the trillions of output value?
+节目中仰望七星战友谈到之所以称其为“国殇”日，殇在恶党恶政持续了72年，殇在恶党的罪恶还没有被曝光和揭露，殇在粉红的愚昧和普遍。总结了中共的四宗罪：对于生命的杀戮、对于自然的破坏、对于文化的践踏、对于人性的摧残。列举了中共国自其建国以来“三反五反”、大跃进、文化大革命，8964等等对中国人民的迫害，仰望七星战友还为大家讲解了中共国国庆节的由来。
 
-习家没碰过电力产业的利润，这块蛋糕没碰
-The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
+冰扬战友结合近期发生的恒大地产违约事件、中共国大面积断电、限电、国庆期间的举国上下的庆祝活动，谈到了疫苗对人身体乃至对社会的伤害，分享了他对国殇的“殇”字的理解。
 
-主要是李鹏家里碰的，然后是温家有些碰的
-Li Peng’s family is major player on this, and then Wen’s family have some of it
+两位战友还通过分享发生在自己身上的小故事，结合自己参加爆料革命以来的亲身经历，谈自己的变化，和世界的变化，更是谈到了参加爆料革命后看到了希望。
 
-然后是朱家有些碰的，这些钱都是被几大家族垄断着
-Then Zhu’s family have some of it, all of these money have controlled by several big families
+主持人最后总结：中共自建立政权那一天开始，从未停止过对人民的奴役，他们将人性的弱点利用到极致，结合文贵先生四年来的爆料看中共自1949年以来给中国人民的苦难甚至是灾难，看到现在的种种现象分析判断中共的一党独裁的体制已经走到了尽头。恒大的事件，台湾问题，病毒，疫苗，限电等等一切问题从根本上来说就是共产党的问题，我们战友的任务就是传播疫苗真相，拯救更多的人，紧随爆料革命，从我做起，从现在做起，灭掉这个邪恶的组织-中国共产党。
 
-现在突然发现，老子这个钱从来没有（碰）
-Now suddenly he found out that I have never been touched these money
+更多精彩内容请关注俄罗斯莫斯科喀秋莎农场GTV频道：
 
-让你们老赚钱了，中国的煤矿，习家没碰
-Let you make money all the time, Xi’s family never touched China’s coal mines industry
-
-他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
-He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
-
-这有烟产业全是几个老杂毛搞的
-This smoking industry is all controlled by a few “old suckers”
-
-他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
-He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
-
-澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
-Australia is controlled by a few families, and also these old rascals who controlled Australia
-
-所有的人都是过去的江派和胡派之间的关系
-that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
-
-——————————————————
-
-Date:10/02/2021
-原视频标题:中共电力产业被几大家族操纵着
-The CCP’s power industry is controlled by several big families
-原视频日期：2021/09/29
-原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
-任务编号：KC142（2389）
-视频时间段 : 0:00-0:55
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://gtv.org/video/id=61585ed9304e992109ae042b](https://gtv.org/video/id=61585ed9304e992109ae042b)

@@ -2,30 +2,53 @@
 ---
 
 
-## 爆料革命开发全新即时通信软件,正在内测中!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571305/)
+## 康州将用国民警卫队取代不符疫苗规定的州雇员
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1571326/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-47.png)
-在日前的直播中, 新西兰老班长战友称,经过1年多的研发努力，一个属于我们爆料革命自己的即时通讯软件，已经开始进行内部实测阶段,即将公开发布!
+- 编译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-1.jpeg)
 
-因为绑定银行账号用于支付购物, 目前墙内即时通讯是微信一家独大, 而出于亲友交流需要, 微信在海外华人中也同样占据很大份额。但 腾讯作为中共白手套, 在言论管控和信息/咨询收集上早已完全 是政府管控模式 , 使得 真相的传播几无可能 ! 而灭共进程中一旦 防火墙被推倒, 或者微信真正被全球封杀, 被中共自行绞杀,  10几亿人想要知道真相, 想要有一个安全可靠, 没有关键词审核, 不会被封号, 甚至还可能会有结合G系列产品金融功能 的手机通信软件, 那就只有这款爆料革命开发的全新软件了,  市场前景不可限量  ! 而这样一款手机通信软件, 在灭共最后阶段所能发挥的效用,更将是核弹级的 !
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-49.png)
 
-(本文仅代表作者观点)
+据《大纪元时报》报道，民主党人内德·拉蒙特(Ned Lamont)周三在一份声明中宣布，如果州雇员不提供COVID-19疫苗接种证明或不遵守每周测试要求，他已指示行政部门的州政府机构准备在10月5日至10月11日期间让他们休无薪假。
 
-参考链接：[https://twitter.com/RyuHayabusaX/status/1444561242710962180](https://twitter.com/RyuHayabusaX/status/1444561242710962180)
+拉蒙特指示康涅狄格州国民警卫队的弗朗西斯·埃文(Francis Evon)少将准备在 “提供关键健康和安全服务 “的州政府机构出现人员短缺时部署国民警卫队。如果部署，康涅狄格州国民警卫队的合格成员将补充这些人员不足的州政府机构的运作，直到雇用替代员工或被安排无薪休假的员工符合疫苗要求。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+声明说，截至星期四，该州大约32,000名雇员中的63%已经完全接种了疫苗，12%正在接受每周测试，25%处于不符合规定的状态。
 
-终审：文龍
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-51.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+拉蒙特呼吁州政府雇员出于”对同事和公众的尊重”而遵守这一规定，并以身作则。
+
+拉蒙特在声明中说：”我们已经为大多数州的员工提供了每周接受测试而不是接种疫苗的选择，比我们邻近的州提供了更多的灵活性。”我们还为我们的员工提供了一个合规宽限期。我们的所有员工没有理由不遵守规定。我继续指望州政府雇员以身作则，尊重他们的同事和公众，遵守这项行政命令，这就是法律。”
+
+8月中旬在康涅狄格州颁布的中共病毒COVID-19疫苗强制令，要求所有州政府雇员和全州所有托儿所和学前班至12年级学校的工作人员在9月27日前至少接受一剂疫苗。
+
+州长的行政命令允许医疗和宗教豁免疫苗接种，这些豁免将”在个性化、个案的基础上”实施。被豁免的雇员必须每周接受强制性的中共病毒检测。
+
+然而，国立医院和长期护理雇员不能选择被豁免和测试以代替疫苗接种。
+
+州雇员遵守规定的原定最后期限被延长一周至10月4日。
+
+康涅狄格州国民警卫队的大卫·皮特里克(David Pytlik)少校在一份声明中告诉新闻8台WTNH：”目前，我们还没有被要求支持任何特定的部门，但我们将继续监测并做好必要的准备。”
+
+国民警卫队有不同类型的单位，其成员有不同类型的技能组合。
+
+声明说，通常情况下，康涅狄格州国民警卫队侧重于”保护生命/肢体/视力和财产”，但在中共病毒大流行期间，它加强了对关键任务的支持，如专业护理设施检查、分发食物和运送个人防护设备。
+
+国民警卫队在其声明中说：”过去的两年教会我们要灵活，我们可能被要求以新的方式支持国家”。
+
+**评论：**
+
+**康州虽然给州雇员选择接种疫苗或者每周做测试的选项，但对国立医院和长照人员却不适用，这简直是不把医疗系统彻底搞垮不罢休的节奏，无数的疫苗致死致残事件也无法唤醒这些无耻的政客。现在十月份了，希望我们暴料革命新中国联邦能够唤醒更多的人，希望文贵先生说的世界各国强制疫苗政策尽快停止，否则人类的未来真的要被邪恶的光明会和中共吞噬掉了。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+新闻来源：[大纪元时报](https://www.theepochtimes.com/connecticut-to-deploy-national-guard-to-address-staffing-shortages-due-to-vaccine-mandate_4027627.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-02)(The Epoch Times) | 作者：Ella Kietlinska
+
+* * *
+
+*校对：阿伯塔*
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
