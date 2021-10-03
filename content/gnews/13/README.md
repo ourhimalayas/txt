@@ -2,30 +2,31 @@
 ---
 
 
-## 《军事管制》将是澳洲暴政碾压民主的终极武器吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1570903/)
+## 从&#8221;毛粉&#8221;到中共揭露者，著名前驻华记者梅兆赞去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571023/)
 
-翻译：Jenny
+栏目记者/责任编辑：文龙
 
-军事管制或者又称戒严，是指国家在处于对外战争、内部叛乱等严重危害社会安全与政治稳定的特殊时期所采取的紧急措施。戒严实施时司法及行政权会部分或全部由军队接管。有些国家整合在紧急状态和一级备战之内。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-9月底发生在澳大利亚墨尔本的警察动用橡皮子弹，暴力镇压抗议民众的做法引起全球关注，同时墨尔本在疫情封锁期间的实施严格的宵禁政策也令民众苦不堪言。
+纽约时报消息，英国著名前驻华记者梅兆赞不久前在伦敦去世，梅兆赞曾在剑桥大学学习汉语，并拥有哥伦比亚大学历史学士学位，后赴台湾继续学习中文和唐史。1972年梅兆赞首次访问中国的时候，还是一名激烈的左翼反战活动人士，并自称“毛粉”，随后他在中国各地采访报道，期间曾6次前往西藏，并采访了流亡中的达赖喇嘛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.3AM-PICTURES-1234图片备用.005.jpeg)
+1989年的64屠杀事件改变了一切，梅兆赞作为前方记者，亲历了中共军队在天安门广场的镇压并被殴打受伤，因为对天安门事件的系列真实报道，他获得1989年英国媒体大奖的年度国际记者奖，也因此于1991年被中共驱逐出境。两年后，他接受了伦敦《泰晤士报》在香港的东亚编辑职位，在97年香港回归后，他于98年辞去了这一职务。
 
-今天，澳大利亚新南威尔士州卫生部长布拉德·哈扎德（Brad Hazzard）更是大放厥词，为了确保完成疫苗接种率，甚至可以引入“香港模式”，不言而喻这里的香港模式是臭名昭著的“镇压反送中”的模式，港警配合港府强制执行送中条例。
+“梅兆赞对极权独裁有着敏锐的洞察，他是最早开始谴责中共政权恶行的西方记者！” 这是同行对他的评价，梅兆赞从一个激进的“毛粉”转变成一个中共暴政的揭露者，是因为他所看到和经历的事实改变了他 。无论外表看起来怎样，所有的共产独裁政权全都是邪恶残暴和不可理喻的，无一例外！
+(本文仅代表作者观点)
 
-军车驶向悉尼？来自抵抗组织的情报，装甲车在格拉夫顿北部的M1公路上向南驶向悉尼。Youtube上一段视频展示了非常令人担忧的军管迹象即将当来。
+参考链接：[前驻华记者梅兆赞去世，曾亲历天安门镇压](https://cn.nytimes.com/obits/20210929/jonathan-mirsky-dead/)
 
-同时，澳大利亚COVID-部队行动的指挥官弗莱文中将强硬表态，“我将确保每个人在2021年圣诞节前得到一剂疫苗。”令人毛骨悚然。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-澳大利亚的真的会成为阴谋集团新秩序模式的实验场吗？我们拭目以待。
+校正/发稿：我不在这里
 
-（本文纯属个人观点，与Gnews无关）
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-视频字幕翻译：June（文舜）
-
-字幕/视频剪辑：外星人
-
-[Matial Law 视频链接](https://www.youtube.com/watch?v=XUxMUxOyQGo)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

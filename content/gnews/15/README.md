@@ -2,41 +2,34 @@
 ---
 
 
-## 美国银行网上银行系统宕机，数千人账户被锁定
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1570896/)
+## 国会议员呼吁将中共生物公司列入黑名单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571002/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9db7482a-bf29-4ff3-ae0c-cf2e52e338ba-bank_of_america.jpg)
-图片来源：usatoday.com
+栏目记者/责任编辑：在远方
 
-**【雅典娜快讯】，紧贴时事脉搏**
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-10月1日，美国银行（Bank of America）的网上银行系统突然出现故障并锁定了数千人的账户。
 
-直到当天下午2点后，通讯执行官马克·皮皮托内（Mark Pipitone）告诉《独立报》（The Independent），问题已“100%解决”。
 
-该银行的网站在周五早上开始无法访问，银行随后发布声明，承认其网上银行系统已关闭。
+由于担忧中共将生物技术研究用于军事目的，共和党联邦参议员科顿和联邦众议员加拉格尔致函政府，呼吁将一批共国生物技术公司列入监控黑名单。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.3AM-PICTURES-1234图片备用.003.jpeg)
+议员们认为华大基因其实就是中共军方的行动代理人，是中共“军民融合”战略的一部分。华大基因和其它至少14家中共国公司，为美国医疗保健使用者进行基因组测序工作。根据中共国法律规定，这些公司肯定已经与中共军方分享了这些数据。
 
-美国银行在其网站上向其客户发布了一条消息，告诉他们正在调查这个问题。客户的帐户是安全的。
+此外在参议院今年6月通过的《美国创新与竞争法中，也包括了强化美国基因组相关研究的计划。这部旨在该领域对抗中共的法案，将在未来四年提供262亿美元的经费，用于包括超级计算机技术、通信创新研发、生物和医疗技术，以及基因数据存储等项目的拓展 ，这些也都是华大基因、华为以及中兴等中共军方代理科技公司，在全球研发扩张的领域，更是中共盗国贼超限战武器的组成部分。
+(本文仅代表作者观点)
 
-根据DownDetector报道，该公司周五收到了至少1.2万份起关于无法登录的投诉。【注: Downdetector是一个在线平台，可为用户提供有关各种网站状态的实时信息。】
+参考链接：[美国会共和党人致函拜登政府 点名“华大基因”列管黑名单](https://www.voachinese.com/a/us-lawmakers-letter-biden-admin-blacklist-bgi-20211001/6254372.html)
 
-用户表示他们无法转账，一些人担心他们可能无法支付10月1日到期的账单。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-9月，行业出版物《全球金融》(Global Finance)将美国银行评为“美国最佳消费者数字银行”。该银行的首席数字官大卫·泰里（David Tyrie）曾表示：他们“提供无与伦比的金融技术，帮助客户”的金融生活变得更美好”。
+终审：文龙
+校正/发稿：我不在这里
 
-美国银行因其为数字客户提供的服务以及网站和移动平台的设计和功能而获得年度奖项。君迪（JD Power）还将该银行列为网上银行和移动银行业务的第一名。【注：君迪（J.D. Power）是一家美國市场信息公司。】
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Bank of America app and online banking system goes down | The Independent](https://www.independent.co.uk/news/world/americas/bank-of-america-app-down-b1930884.html)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

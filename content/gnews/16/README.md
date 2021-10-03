@@ -2,12 +2,9 @@
 ---
 
 
-## 装神弄鬼的纽约州长Hochul说中共病毒疫苗是上帝的旨意
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1570889/)
+## 加州将会对学校儿童执行中共病毒疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1570970/)
 
-- 制作：葛大饼
+10/01/2021 加州州长纽森宣布，一旦食品和药物管理局认证，相应年龄段在校学生必须接受中共病毒疫苗接种。这是美国第一个出台针对幼儿园至高中学生疫苗强制令的州。
 
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

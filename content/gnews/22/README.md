@@ -2,29 +2,28 @@
 ---
 
 
-## 应对美中对立，岸田文雄决定新设经济安保相一职
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1570806/)
+## 傅政华落马，司法部连夜开会表忠心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1570949/)
 
-作者：东京樱花团｜文小白
+栏目记者/责任编辑：文龙
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/应对美中对立，岸田文雄决定新设经济安保相一职.png)[*图片来源*](http://yoyo8.img-ix.net/news/202110/03/oid120564_1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-为应对美中对立，日本自民党总裁岸田文雄决定指名为首相后，内阁将新设经济安保相一职。
+10月2日晚，中共现任司法部党组书记、部长唐一军连夜召开会议，传达中纪委及习中央对前司法部长傅政华进行调查处理的决定，并表示坚决拥护表忠心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.3AM-PICTURES-1234图片备用.001.jpeg)
+傅政华曾在中共公安系统内部任职长达48年，2013年任公安部副部长，2018年任改组后的新司法部首任部长，傅政华是中共自”十九大”以来，继公安部副部长孟宏伟、孙力军之后落马的第三位中共公安及司法系统内之高官。可以说傅政华就是中共 “以警治国、以黑治国”暴政的代言人之一，贪腐巨量且害人无数 !  因此即使在墙内微信，傅政华的落马也引发网友的一片支持甚至欢呼！当然这一切并不是中共官媒宣传的所谓 “肃清人民警察队伍”的正义之举，而是爆料革命逐一揭露中共丑陋的真相之后，盗国贼集团内部的相互撕咬和自爆而已。同时也验证了”以共灭共”迈入了另一个新的阶段！
+(本文仅代表作者观点)
 
-根据共同社10月2日报道，日本自民党总裁岸田文雄2日就被指名为首相后的组建内阁事宜，决定新设负责经济安全保障事务的阁僚职位。岸田说这是应对美中对立等国际秩序变化的措施。他还将考虑任命负责该事务的首相助理。
+参考链接： [傅政华被查 司法部连夜开会：拥护中央决定 肃清流毒影响](https://www.163.com/news/article/GLC8NGNC0001899O.html)
 
-岸田将在4日召集的临时国会上被指名为日本第100任首相。之后将立即着手组阁，经过在皇宫举行的首相任命仪式和阁僚认证仪式后，新内阁将正式启动。同日，岸田将宣布内阁名单，据外界分析，有多位与前首相安倍晋三关系密切的干部将入阁，甚至相当友台，是对中强硬派。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-相关人士透露在阁僚人事安排方面，岸田基本决定让细田派的文部科学相萩生田光一（58岁）留在内阁，职位有待今后协调。有方案提议让岸田派的前国土交通副大臣金子恭之（60岁）、无派系的前法务副大臣后藤茂之（65岁）首次入阁。另外，岸田派的法相上川阳子（68岁）也将担任要职，具体职位有待协调。
+校正/发稿：我不在这里
 
-- ***延展阅读：***[***岸田人事安排论功行赏 政权运营潜藏隐忧***](https://china.kyodonews.net/news/2021/10/6b68bc2f0848--.html)
-- ***延展阅读：***[**岸田文雄决定新设经济安保相一职**](https://china.kyodonews.net/news/2021/10/141915a99870.html)
-
-
-经济安保是指保护国家和国民免受威胁的安全保障中的经济侧面。随着美中技术竞争加剧，经济安保政策受到重视，日本政府正在着手研究中长期战略。
-
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

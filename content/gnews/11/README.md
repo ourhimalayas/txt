@@ -2,64 +2,87 @@
 ---
 
 
-## 政治制度研究系列之一：日本的国体和政体—内阁议会制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1570929/)
+## 独家报道：新的电子邮件证明福奇资助了武汉实验室培训
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1571028/)
 
-作者：东京樱花团｜华夏小哥
-![](https://lh4.googleusercontent.com/u5YO5H76k0iQscgK1MImB0YbtE_s8dDt0gk0lbsRpttsuzhAvR-udr-6QK0qKOw7U7pD0JsNrzK6VRqNYMdMLJ_DKQhcOt-IM42Ve3hL1uHrj0Nu3g2c4Y2PrPAx3uy77BTXkOxa=s0)[*图片来源*](https://s3-ap-northeast-1.amazonaws.com/thegate/2021/04/12/18/35/20/The%20National%20Diet%20Building.jpg)
-日本现任（第48届）众议院议员任期将于2021年10月21日届满。按照公职选举法的规定，新一届（第49届）众议院选举将会在10月4日召开的临时国会闭会的时候宣布选举日程。
+作者：香草山教育部- Naughty（文行）
 
-日本国的宪法规定了主权在民的国民主权。另外，在政治上规定了立法、行政、司法三权分立，分别由国会、内阁、裁判所（法院）行使分立的三权。以国会为国家最高权力机关，实行议会民主政治，由国会和内阁协作实行议会内阁制。另外，设置帝制天皇作为“日本国的象征、日本国民统合的象征”。但宪法规定天皇没有参与国政的权力，日本内阁总理大臣为国家政府领导人及自卫队的最高指挥官。
-![](https://lh4.googleusercontent.com/GQmONhQUrBAsmdhGrVdAAyD1xhl-GNhpakBwtnzZ3SSgcTm4pCpzpC_gBEpU95vqTy1Hh2ivOw_3chyPNas_QaGVzS2PxknoMzgloExeYlDBCPkwPq1o5-6Mt9Snjg4FzkZ1euqE=s0)
-日本国宪法最重要的三大原理是：主权在民、尊重基本人权和和平主义。日本政治以这三大原理及其中最基本的对个人（个人尊严）的尊重为基调运行。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-所谓政体，按照古希腊亚里斯多德“统治权之所在”这一区分方式，可区分为君主制、贵族制、民主制等政治形态。英文为Forms of government，即一个国家的政治体制运作模式，也就是国家的组织结构和管理模式。每个国家都有各自的政体结构，并且也在随着历史的进程不断演变，但总的来说，当前世界用的比较多的政体是君主立宪制和共和制。
 
-与“政体”相对应的是“国体”的概念，国体有很多解释，比如说是国家的本体，国家的形态，国家的存在方式等。简单讲我的理解就是一个国家存在的正统性、合理性、合法性，国民信仰的集合体。从这个角度来讲的话日本的国体是天皇为代表的皇统制。
 
-第二次世界大战之后新制定的日本国宪法规定，天皇是日本国民团结的精神象征，對政府不具有干涉力。实际上，特别在灾难来临之时天皇所起到的作用却是日本政府无法替代的。
+国家脉动获得的福奇电子邮件显示，他通过国家卫生研究院机构资助的一个实验室正在武汉病毒研究所的四级生物安全设施内培训研究人员。
 
-现在的日本规定了：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-6.jpg)
 
-1. 现行宪法规定了天皇是“在国政上没有任何权力”的象征
+生物安全第四级（BSL4）设施用于处理气溶胶传播和/或造成人类严重致命疾病的制剂。
 
-2. 现行宪法没有君主的规定，自然也不存在“立宪”君主
+继昨天揭露福奇称赞习近平对美国研究人员的嘉奖后，现在，一封新电子邮件又证实了之前关于中国共产党经营的机构与加尔维斯顿国家实验室（GNL）之间关系的国家脉动报告，该实验室自称“由[福奇]国家过敏和传染病研究所（NIAID）授予的赠款建造”。
 
-3. 统治权在于国民，并非战前的臣民，而是国民
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image1.png)
 
-4. 民主作为与大正时代的“君主”的对立概念而出现，正如日本对天皇机关说的排斥那样，君主和民主也无法同时并存。
+国家脉动揭示的福奇和GNL主任James LeDuc之间的2017年电子邮件交流，确认了实验室与武汉病毒研究所的伙伴关系。
 
-日本是一个议会内阁制的国家，政府体制以日本国宪法为基础，并有一个两院的议会。对议会负责的行政建构包括了一个由內閣總理大臣和各省国务大臣组成的內閣。总理大臣必需是议会成员，并由其他议员选举产生。大多数阁员也必需是议会成员。
-![](https://lh3.googleusercontent.com/URqXs6dK0ndDk-EcxXqUU4tpnQx-87Ct-mi-wFfUJjuuCX323NuIcffF056OpriLfq8QmsCK8JH4X9Dp4ZHSU3i1hRdeeFEn0FG9zuwfrA3sv-KF1AjGbiICMlxZpngWdl_2XtOx=s0)
-日本国会
+简而言之，这封电子邮件显示，福奇通过NIAID为GNL提供资金直接用于培训中国BSL4员工。
 
-日本国会是最高权力机构，也是唯一立法机构。分为上下两院，即参议院和众议院，每年上半年召开一次大概6个月的通常国会，
+LeDuc于2017年10月31日向福奇发送了一封题为“中国BSL4实验室”的电子邮件，他在电子邮件中提醒福奇他们是如何与“新的中国[生物安全4级]实验室”合作的。LeDuc提到的实验室包括中国科学院（武汉BSL4）。
 
-超过18岁的日本国民均有选举议员的选举权，众议院议员的被选举权是满25周岁以上，参议院议员的被选举权是满30周岁以上。
+LeDuc在邮件中指出，“这3个新实验室的董事都同意来加尔维斯顿”。
 
-在明治初期，参议院原是贵族院，代表了贵族阶级，众议院则代表平民阶级，因此参议院也称上院，众议院也称下院。在1947年新宪法生效之际，贵族院被废除，改为民选的参议院，因此目前两院代表的都是全体日本国民的利益。
+托尼，
 
-目前参议院有245个席位，众议院有465个席位，两院第一大党均为联合执政的自民党及公明党，席位过半数。在众议院获得多数席位的政党会成为执政党，而执政党的党领袖会成为首相。因此，这次选举是执政党自民党内部选举新总裁，谁做了自民党新总裁，谁就是新的日本首相。
+作为我们在UT会议上关于与中国BSL4新实验室合作的简短讨论的后续行动，美国国家科学院将于2018年1月16日星期二至1月18日星期四在GNL与中国科学院（武汉BSL4）、中国医学科学院（昆明BSL4）和中国农业科学院（哈尔滨BSL4）的同行举行会议。每个实验室都已经建成，它们即将开始运营。这3个新实验室的负责人都同意来加尔维斯顿，高乔治（如果他的日程安排允许）和大约6-8个其他中国科学家也同意来加尔维斯顿。
 
-参议院议席数分布
-![](https://lh5.googleusercontent.com/Ucazako2h4OEVGzj3oraC_WpisyqfuF4_UCfIz-mXOAp44FhQDwWkXhv9i8UUIyiBg1ugcRGicuewoepKVONJNXyWDIfHUyShhqfmszFdodWxhiLJuPO_ThA3ft4bStcbO2XSJ1Y=s0)
-众议院议席数分布
-![](https://lh3.googleusercontent.com/eYVfNjlidJN2IyTGWhi8XvEM5iiCofJVd73zjuMWOzaemxabPQbNvdlRqgv_thWuvIeUtE53vKf4zcqlxPUdEP12GyNyR-ZQH99NIvHQKifC_t3t1paMCtQrZRCVNAB_oco6oJvR=s0)
-众议院议员任期四年，内阁总理大臣大臣有权（这个是有条件的，但是也存在被滥用职权的嫌疑）提前解散众议院。参议院议员任期六年，每三年改选一半，不得中途解散。
+GNL主任继续说，会议的目标是促进“合作”，并对中国研究人员进行“安全和安保实践”培训。
 
-参考资料
+会议将重点讨论科学和运营的平衡，目的是建立合作，并确保新实验室接触到美国在安全和安保方面的最佳做法。我想知道您是否有兴趣加入我们。
 
-1. [选举权和被选举权](https://www.soumu.go.jp/senkyo/senkyo_s/naruhodo/naruhodo02.html#chapter2)
+LeDuc在电子邮件的最后补充说，“中国的重要领导人”将出席会议。
 
-2. [维基日本：日本国会](https://ja.m.wikipedia.org/wiki/%E5%9B%BD%E4%BC%9A_%28%E6%97%A5%E6%9C%AC%29)
+这不是“指挥表演”，所以无意施加压力，但这将是您与中（共）国这些重要领导人进行个人和非正式会面和互动的好机会。我们预计大约有10-12名高端中（共）国人士，来自UTMB以外的美国高级科学家人数相当，外加几位UTMB人员。我将于周二晚上在我们家举办晚宴，以促进非正式讨论。如果您感兴趣，请告诉我，我们可以尽量考虑您的日程安排——如果你愿意，很高兴能和你聊一聊。
 
-3. [日本国体](https://kotobank.jp/word/%E5%9B%BD%E4%BD%93%28%E5%9B%BD%E5%AE%B6%E5%BD%A2%E6%85%8B%29-1534316)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image2.png)
 
-4. [日本政体](https://kotobank.jp/word/%E6%94%BF%E4%BD%93-86166)
+福奇收到电子邮件的同一天，他将其转发给联系人——“NIAID OD AM”——同时添加了“让我们讨论一下”。
 
-5. [参议院议员通常选举](https://ja.m.wikipedia.org/wiki/%E5%8F%82%E8%AD%B0%E9%99%A2%E8%AD%B0%E5%93%A1%E9%80%9A%E5%B8%B8%E9%81%B8%E6%8C%99)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image3.jpg)
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 / 平安卿卿
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-1.png)
+第二天，福奇通知LeDuc，由于日程安排冲突，他无法参加，并补充说“感谢您的备注和邀请”，并对该计划表示不关心：
+
+Jim：
+
+谢谢你的便条和邀请。不巧的是，2018年1月的那一周对我来说一切都很忙，所以很遗憾我不能来加尔维斯顿。谢谢你的邀请。
+
+致以最诚挚的问候，
+
+托尼
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image4.png)
+
+此前在德克萨斯州实验室发表的演讲显示，其研究人员在武汉病毒研究所培训同行如何处理“世界上最危险的病原体”。由福奇资助的美国研究人员，如北卡罗来纳大学的博士拉尔夫·巴里奇，作为该计划的一部分，参观了总部位于中国的实验室。
+
+巴里奇是功能增益研究的支持者，称这种有争议的病毒操纵形式是 “一种重要的工具”，并被参议员兰德·保罗提到，在武汉实验室的顶级蝙蝠冠状病毒研究人员石正立进行这种有风险的研究时，他是其合作伙伴。
+
+福奇否认他的NIAID通过资金或人员参与这项研究。
+
+（本文图片来源：The National Pulse）
+
+参考链接：
+
+[https://thenationalpulse.com/exclusive/foia-fauci-emails-reveal-galveston-lab-training-wuhan/](https://thenationalpulse.com/exclusive/foia-fauci-emails-reveal-galveston-lab-training-wuhan/)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
