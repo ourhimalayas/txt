@@ -2,91 +2,35 @@
 ---
 
 
-## 中国老百姓的用电量 真的太少了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571113/)
+## 有声|日本养老金管理机构暂缓投資中国国债
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1571162/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-9.jpg)https://gtv.org/video/id=61598b4bd2e2b8174870957a
-郭文贵
-Miles Guo
+配音：纽约香草山美食部 – 玫瑰园
 
-中国8万5千亿度里面，
-Inside China’s 85 trillion kilowatt of power consumption
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-我告诉你，你都难以想象, 战友们，
-I tell you, you can’t even imagine it, comrades-in-arms
 
-今天为啥我们要普及这个常识
-Today, why do we want to popularize this common sense
 
-因为你们从来没有（想过）有人习惯了在你肝上叉一个管的时候
-because you never thought about it, when you used to be inserted a tube in your liver by the CCP
+【日本经济新闻（日经中文网）】报道：恒大事件之后，日本养老金管理机构（GPIF）暂缓投资中共国国债 ， 作为该机构投资参考的重要依据的英国富时罗素（FTSE Russell）指数在3月宣布把中国国债纳入该指数，在目前市场混乱风险剧增的情况下各国都非常关注GPIF 是否启动对人民币国债的投资。
 
-你永远不知道真相，就像小福利，猫本小哥这些都是中国的精英
-You never know the truth, just like Xiao Fuli and Maoben Xiaoge these Chinese elites
+郭文贵先生的直播爆料中也多次提到，在贪婪的华尔街资本的撮合下，美欧日澳等多国已经把自己国家的各給类基金投资到了中共国，那些基金都是各国老百姓的养老钱，救命钱。现在中共国随着恒大的爆雷，一连串类似的金融事件会随之发生，各国将很难收回自己的投资， 甚至血本无归，这是中共捆绑世界的一个手段， 如果世界不早日醒来认清中共的本质，消灭中共，那世界将会被中共一起拖入一个黑暗的泥潭。
 
-玉山夫妻，你看这Rachel, 中国人精英中的精英
-Yushan couple, you look at Rachel who is the elite of the Chinese elites
+[文字版原文：日本养老金管理机构暂缓投資中国国债](https://gnews.org/zh-hans/1569682/)
 
-你连自己电费都不知道，你连电的概念都不知道
-You don’t even know your own electricity bill, you don’t even know the concept of electricity
+音频处理：喜山必胜Maverick
 
-你不知道电的概念，就像人不知道空气被污染有多重要一样
-You don’t know the concept of electricity, just like people don’t know how important for the air to be polluted
+*发稿：*Yuki jiang
 
-这是爆料革命的伟大，咱不去看人家报纸
-This is the greatness of the whistleblower movement, we don’t read other people’s newspapers
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
-就自己的，完全原创的，我告诉你
-All of our owns, completely original, I tell you
+**更多资讯，更多关注**
 
-中国人的工业用电是美国的一倍，
-The industrial electricity consumption of the Chinese is twice that of the U.S.
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-美国大概在1万亿千瓦
-The U.S. is about 1 trillion kilowatts
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-中国官方说，2.3万亿千瓦，中国实际上3万亿千瓦
-Chinese officials say 2.3 trillion kilowatts, China actually uses 3 trillion kilowatts
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-甚至更多，中国的工业用电是美国的一倍
-even more, China’s industrial electricity consumption is twice that of the U.S
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-美国是工业大国，中国老百姓用电，跟人家美国比
-The U.S. is a big industrial country, and how does the electricity consumption of Chinese people twice of United States?
-
-美国的农场里的驴（用电）是多少
-How much is the donkey using electricity on the farm in the United States?
-
-网上查查，我对面的农场养一只牛养一只马的电费是多少钱
-Check it online, how much is the electricity bill for raising a cow and a horse on the farm?
-
-你们查一查，美国的一只驴，
-You go to check it out, a donkey in America
-
-一只驴一只牛，就在我前面这个
-a donkey, a cow, in the farm opposite me
-
-人家（畜生的）平均用电是25度，
-The average electricity consumption of one livestock is 25 KWh
-
-你觉得中国人比美国的驴和猪还值钱吗
-Do you think Chinese people are more valuable than American donkeys and pigs?
-
-中国人有人想过这个问题吗
-Have any Chinese thought about this?
-
-比爹娘还亲的党，让你们过什么日子
-What kind of life does the Communist Party provide to you? and CCP is saying it is more prosperous than your father and your mother?
-
-原视频日期：2021/09/29
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443702922617909264?s=24
-视频时间段 : 0:00-2:07
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
