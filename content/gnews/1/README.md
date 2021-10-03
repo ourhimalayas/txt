@@ -2,22 +2,40 @@
 ---
 
 
-## 美国寻求与新任日本首相四方会谈合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1569672/)
+## 欧盟发现强生新冠疫苗可能与另一种罕见的凝血症有关
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569683/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**【简评】 爆料革命战友都知道，无论哪一家公司的中共病毒疫苗都有极其严重的副作用。在文贵先生和战友们的积极推动下，包括日本、欧盟、澳大利亚、英国等众多政府的大量官员都会为自己强推毒疫苗而辞职，我们的以苗灭共运动将会取得重大成功。同时，这几天，我们也注意到，关于疫苗副作用的报道也逐渐增多，相信全民大觉醒马上就会到来，而以疫苗为借口实施人口大灭绝的黑暗势力将被曝光并绳之以法。**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J.png)english.kyodonews.net
-日本共同社10月2日报道， 美国国防部副部长凯瑟琳·希克斯(Kathleen Hicks)10月1日表示，美国希望与日本合作，在将出任下届首相的岸田文雄(Fumio Kishida)领导下，进一步推进四方会谈共同对抗中共在该地区的强硬做派。
+**据《路透社》记者Pushkala Aripaka 和 Ludwig Burger，2021年10月1日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/at0wh-gh9kr-1.jpg)**在这张摄于2020年10月31日的插图中，可以看到贴纸上写着“COVID-19/冠状病毒疫苗/仅限注射”的小瓶和一个医疗注射器，其背后是强生公司的标识。图片来源：路透社/Dado Ruvic**
+周五，欧盟药品监管机构确认了强生(Johnson & Johnson)的COVID-19疫苗与罕见的深层静脉血栓病例之间可能存在联系，并建议将这种情况列为疫苗的副作用。
 
-希克斯在华盛顿一个智库组织的在线活动上表示，美国与日本有着“非常持久的联盟关系”，“我们期待包括通过四方会谈拥有积极的关系”。 她认为日本首相换届并不会影响日美亲密盟友的关系。希克斯称美国和日本“非常习惯我们民主进程中的权力转移” 。
+欧洲药品管理局还建议将免疫性血小板减少症 (ITP)，一种由身体错误地攻击血小板引起的出血性疾病，作为频率未知的不良反，应添加到强生疫苗和阿斯利康 (AZN.L) 疫苗的产品信息中。
 
-“四方会谈”成立于2004年，包括美国，日本，澳大利亚和印度。当时是为了应对印度洋地震和海啸。近年来，四方会谈成为中共国在该地区日益增长的影响力的制衡力量。在川普政府努力的基础上，现任美国总统乔·拜登(Joe Biden)将四方会谈的接触提升到领导人层面，寻求团结美国的盟友和志同道合的国家，以应对中共带来的挑战。
+强生表示，虽然遇到这些情况的可能性非常低，但随着公司继续与包括 EMA 在内的当局密切合作，产品信息也将相应更新。
 
-上个月在华盛顿举行的首次四方首脑会议上，四国领导人确认了寻求合作的广泛领域，包括中共病毒疫苗、基础设施、半导体供应链和太空。他们还同意每年举行一次领导人会议。目前即将离任的日本首相菅义伟出席了当时的会晤。
+强生公司表示：“我们强烈支持提高对罕见副作用的迹象和症状的认识，以确保能够被快速识别和有效治疗。”
 
-菅义伟不再连任日本执政党自民党党首，岸田文雄在上月末的自民党选举中获胜，有望在周一的国会选举中当选日本下一任首相。
+此前报道，强生和阿斯利康的疫苗都与一种非常罕见的凝血和低血小板计数的并发症有关，这种并发症被称为血栓与血小板减少综合征(TTS)。
 
-参考链接：
-[https://english.kyodonews.net/news/2021/10/c984a8255138-us-seeks-to-work-with-next-japan-pm-on-quad-pentagon-official.html](https://english.kyodonews.net/news/2021/10/c984a8255138-us-seeks-to-work-with-next-japan-pm-on-quad-pentagon-official.html)
+这两款疫苗都以无害的病毒载体为基础，指导人体细胞制造一种蛋白质，为免疫系统抵御未来的冠状病毒感染做好准备。
+
+EMA表示，即将被纳入强生疫苗产品标签的静脉血栓栓塞症(VTE)是一种新的可能危及生命的凝血疾病，并与TTS分开列出。
+
+VTE 通常先在腿部、手臂或腹股沟的静脉中形成凝块，然后到达肺部并阻塞那里的血液供应。
+
+无论是否接种过疫苗，导致静脉血栓栓塞（VTE）最常见的原因是受伤或卧床的病人缺乏运动，另外避孕药和许多慢性病也被视为危险因素。
+
+**原文连接**：[https://www.reuters.com/business/healthcare-pharmaceuticals/eu-finds-jj-covid-shot-possibly-linked-another-rare-clotting-condition-2021-10-01/?taid=6157078576ce46000139552b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/healthcare-pharmaceuticals/eu-finds-jj-covid-shot-possibly-linked-another-rare-clotting-condition-2021-10-01/?taid=6157078576ce46000139552b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+**（本文评论仅代表个人观点）**
+
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,51 +2,31 @@
 ---
 
 
-## 普京警告Facebook删除俄罗斯禁止的内容
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1569519/)
+## 哈佛商学院95%的疫苗接种率未能阻止中共病毒的爆发
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569520/)
 
-作者：香草山教育部- Naughty（文行）
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed.jpg)图片来源：网络照片
+据美国多家媒体近期报道，由于中共病毒阳性病例激增，哈佛商学院目前停止了对所有一年级 MBA 学生和一些二年级学生的校内课堂教学。尽管约超过 95% 的学生和96%教职员工接种了疫苗，但马萨诸塞州波士顿的哈佛商学院（HBS）刚刚经历了大规模的中共病毒爆发。
 
+这所拥有 1000 多名学生的学校在 9 月份病例开始上升，记录的所有病例中有三分之二来自学生。HBS 的一份声明说，尽管疫苗接种率高且检测频繁，但MBA 学生中的 Covid-19 病例在短短三天内激增了30%”。
 
+哈佛商学院院长 Srikant Datar 说：“我们的阳性率是哈佛其他学校的 12 倍。这些令人痛心的数字如此之高，以至于引起了当地公共卫生官员的审查。” 该大学在听取了市和州立公共卫生官员的建议后做出了决定。
 
-俄罗斯总统普京称，如果Facebook不立即从平台上删除恋童癖相关内容，将对其进行严惩。
+Datar宣布，在10月底前，几乎所有学生都将在线教学。 这一变化影响了几乎所有的第一年和一些第二年的课程。这是一所主要大学在秋季开学后因中共病毒爆发而停止课堂教学的首批实例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4.jpg)
+HBS 还宣布，为减缓病毒传播，无论疫苗接种情况如何，所有商科学生都必须每周接受3 次 Covid-19 测试。此前，该大学的要求是完全接种疫苗的学生每周检测一次，未接种疫苗的学生每周检测两次。哈佛还要求学生避免与家人以外的任何人参加社交聚会，而是在网上与朋友社交。
 
-周四，普京政府威胁说，如果这家社交媒体巨头拒绝删除俄罗斯禁止的内容，将向Facebook处以巨额罚款。
+哈佛商学院发言人兼通讯主管马克·考特拉还表示，学生应避免不戴口罩在室内聚集或成群结队旅行。
 
-此举是在普京发誓要惩罚YouTube在平台上审查独立内容的几天后。
+据华尔街日报报道，接触追踪者发现，大多数感染者是在校外聚会中的学生， 而不是在课堂教学的环境内。另一个可能的感染点是出外的团体旅行。而哈佛否认参与任何事件的组织或执行。
 
-俄罗斯技术和电信监管机构Roskomnadzor在接受路透社采访时表示，它将向Facebook办公室部署政府特工来执行罚款。
+如果感染是在课堂外感染的，那么结束面对面教学的意义何在？事实证明接种疫苗不能使人们真正免疫，那政府为什么要强制疫苗？接种疫苗后的副作用逐渐显露，造成的后果谁来负责？
 
-Dailycaller.com报道：俄罗斯于6月宣布与持不同政见者和弗拉基米尔·普京批评者阿列克谢·纳瓦尔尼有关联的团体为“极端主义者”，宣布纳瓦尔尼相邻政党为非法，并冻结其支持者的银行账户。纳瓦尔尼目前正在服刑（两年），是2020年9月中毒袭击的受害者。
+新闻来源：
 
-据彭博社报道，9月中旬，在Facebook和谷歌母公司Alphabet拒绝代表俄罗斯审查内容后，俄罗斯威胁要处以高达其在俄罗斯年收入20%的罚款。
+[https://www.wsj.com/articles/harvard-business-school-suspends-most-in-person-m-b-a-classes-and-networking-after-covid-19-outbreak-11632849496](https://www.wsj.com/articles/harvard-business-school-suspends-most-in-person-m-b-a-classes-and-networking-after-covid-19-outbreak-11632849496)
 
-这一威胁是莫斯科不断努力控制美国科技公司的最新进展。
-
-俄罗斯外交部周三表示，在视频平台删除了两个国家支持的传播COVID-19错误信息的渠道后，它计划阻止俄罗斯人访问YouTube。YouTube首席执行官Susan Wojcicki也没有否认该公司从其平台上删除了对海军相关内容的指控。
-
-9月中旬，苹果和谷歌在俄罗斯当局威胁起诉的情况下，从他们的应用程序商店中删除了链接纳瓦尔尼的投票应用程序。纳瓦尔尼的支持者使用该应用程序来协调投票活动，并在俄罗斯议会选举前被删除。
-
-普京近期针对YouTube 、Google和Facebook的一系列举动再次证实了郭先生此前的判断——当今世界比核武器更有威力的是社交媒体。也正是基于此郭先生带领爆料革命新中国联邦先后创建了GTV、GNews和GETTR，在黑暗势力笼罩全球之前为正义力量抢到了一席发声之地，让世界还有机会听到看到真相。
-
-在这次新冠疫情爆发以及随后疫苗危机的恶化中，社交媒体无处不在影响着人们的判断和行为。只有了解并相信真相的人在这场危机中获得了救赎。作为正道主义的践行者，爆料革命新中国联邦的战友们应该继续积极宣传病毒和疫苗危机真相，以GTV和GETTR为基础，利用社交媒体这把利剑刺破谎言的阴霾，把真相散播到所有的媒体平台，让更多的人看到真相并采取明智正确的行动，让所有追求正义的人们一起联手战胜黑暗，度过危机。
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[https://universitybusiness.com/harvard-business-school-goes-online-for-some-students-after-covid-19-outbreak/](https://universitybusiness.com/harvard-business-school-goes-online-for-some-students-after-covid-19-outbreak/)

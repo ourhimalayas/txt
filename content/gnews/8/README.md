@@ -2,151 +2,63 @@
 ---
 
 
-## 强制疫苗接种和拒绝承认自然豁免的理由是什么
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569579/)
+## 接种了疫苗的人能活多久？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569588/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/at0wh-gh9kr.jpg)
-[https://gtv.org/video/id=6158a2bad2e2b81748705b19](https://gtv.org/video/id=6158a2bad2e2b81748705b19)
+翻译：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G102.jpg)
+图片来源：盖特
 
-**Senator Ron Johnson**
-**参议员罗恩·约翰逊**
+原文作者：Steven Fishman
 
-Let’s look at some data,
-让我们看一些数据
+我把这个问题推给了我的一位朋友，Mylo Canderian博士[生于希腊科孚岛的Milos Iskanderianos，1938年]，他在2015年开发了石墨烯氧化物作为血液学生物武器的专利。
 
-the type of data that we’re not getting from our healthcare agen-cy
-这类数据是从我们的医疗保健机构无法获得的
+在完全透明的情况下，Canderian博士是我所说的 “种族灭绝的全球主义者”，他遵循乔治亚州里程碑的第十条戒律，这条戒律很少被讨论，即 “不要成为地球上的癌症；为大自然留下空间。”
 
-so we have to look, unfortunately to England, and Israel, they’re more transparent.
-所以不幸的是我们必须看看英格兰和以色列的，他们更透明
+Canderian博士是世界卫生组织的医学贡献者，也非常支持克劳斯施瓦布和 “大重置”，支持引入一种世界数字货币，这也是世界卫生组织2022年的第二目标。
 
-I don’t, I don’t expect anybody to be able to read the figures show
-我不期待任何人能够阅读显示的数字
+Canderian博士认为，世界上95%的人口是 “无用的食客”，他们需要尽快被安乐死。
 
-I’ll give you, I’ll give you the highlights
-我会给你们一些重点
+“他说：”看看芝加哥市中心、巴尔的摩或洛杉矶，”你会清楚地看到为什么无用的食客必须像疯狗一样被扑杀。”
 
-but I’m showing that this is from Public Health England.
-但我展示的这是来自英国公共卫生部
+他对提倡批判种族理论的 “传染病学者 “表示鄙视，并相信 “疫苗 “将结束 “地球上的人类癌症”。
 
-This is one of their, their federal health care agencies.
-这是他们其中的一个联邦医疗保健机构
+Canderian博士是共济会（Freemasonry）的责任和义务的热心支持者，把消除世界上的 “人类的瘟疫”当作责任和义务。
 
-This is from their technical briefing number 23, date September 17 2021.
-这是从他们的技术简报第 23 号，日期为 2021 年 9 月 17 日
+然而从个人层面上讲，他和我对日内瓦的L’emince de Veau餐厅提供的同一种异国菜肴有着共同的热情：奶油蜂鸟汤，然后是麋鹿舌。我们都是大厨加斯顿-塞雷-德-里维埃斯的粉丝，他是一位烹饪天才。
 
-It covers cases for about seven and a half months,
-它涵盖了大约七个半月的案例
+因此，我问迈罗：人一旦被注射了疫苗，怎么能肯定地知道自己还有多长的寿命？
 
-from the beginning of February to February 12
-从2月初至2月12日
+他向我介绍了这个 “周期结束公式”。他解释说，这是很容易计算的。
 
-what the data shows. Is it during that seven half month period in England.
-数据显示的是，是在英格兰的七个半月期间的
+“简单的力量，”他说。”从注射到周期结束的最长周期为10年，”（或死亡），他阐述道。”而且它极易确定。”
 
-There were about 750,000 new COVID cases
-大约有75万例新的 COVID 病例
+他说，任何血液学家都可以在显微镜下几秒钟内就能看到它，甚至在电子显微镜下更容易看到。”他透露说：”受氧化石墨烯影响[或污染]的血液的百分比就可以对等计算出周期的结束点。
 
-about little under 600,000， those were the Delta variant about 80%,
-大约略低于 60万例的，那些大约 80%是德尔塔变种
+换句话说，一个 “接种者”（他称之为任何被实验性授权使用优生学灭绝致命生物武器注射的人），如果血液中的氧化石墨烯变质20%，（扣除任何其他输入标准），那将存活8年，即10年减去10的20%。
 
-the number of deaths associated with those 600,000 Delta cases was 2542,
-与这 60万例德尔塔变种病例相关的死亡人数为 2542人
+血液中石墨烯氧化物含量为70%的人将不会活过3年，即10年减去10年的70%。
 
-which gives us a case fatality ratio of about point four.
-这给了我们大约0.4％的病死率
+简·鲁比博士最近在播客中接受了斯图·彼得斯的采访，并展示了暴露在氧化石墨烯中时，恶化的血液的样例。
 
-Again, case fatality is higher than infection fatality
-再次，病死率高于感染死亡率
+氧化石墨烯，对于那些不了解的人来说，是信使RNA刺突蛋白和朊病毒的组成部分，它与心脏、肺、大脑和血液争夺氧气。
 
-because these are actually registered cases
-因为这些实际上是登记的案例
+氧化石墨烯是一种氧气海绵，它剥夺了人体必要的氧气，并导致许多并发症，包括但不仅限于以下几种情况：过敏性休克、中毒性凝血、致命的肺瘫痪、线粒体癌和内皮细胞癌。
 
-and they’re all kinds of infections that never get registered.
-而且有很多各种感染的病例从未登记过的
+迈罗·坎德利安博士的观点与克劳斯·施瓦布、比尔·盖茨和大药厂CEO的观点基本相同。让他们都死了吧!
 
-So to put this in context, an infection fatality rate for a bad flu season
-所以把这个放在这个情况，一个严重流感季节的感染死亡率
+我问Mylo，第二和第三针和加强针的效果如何，以及这如何改变周期结束表。
 
-is slightly under point two, half of this
-是稍微低于0.2％，病死率的一半
+Mylo回答说。”这都是可以通过血液学测试来衡量的。低能儿们打的针和加强针越多，他们的血液在显微镜下看起来就越差，他们就越快变成肥料。””
 
-just can put things in perspective.
-就可以把事情看得很透彻
+最后，我问他，杀害这么多亿人的阴谋怎么能被这样一群精英保密？
 
-Now, President Biden this has been parroted by media, news media said
-现在，拜登总统这已经被媒体，新闻媒体炒作说
+他的回答是 “你对共济会了解不多，是吗，史蒂夫？”
 
-that what we are currently experiencing a pandemic of the unvac-cinated.
-我们目前正在经历的是一场未接种疫苗人群的流行病
+这就是给你的所有答案！
 
-They don’t give us really any data to back that up.
-他们没有给我们任何数据来支持这个主张
 
-They just do proclaim pronounced that 99% of people with COVID now are unvaccinated.
-他们只是宣布现在99%的COVID患者都没有接种过疫苗
 
-But they don’t give us the data. We have data from England.
-但是他们不给我们数据，我们有来自英格兰的数据
+原文链接
 
-And here’s the data. So of the 600,000 cases in England,
-这是数据，在英格兰的60万个病例中
-
-43% were unvaxxed 27% with, with the fully vaxxed.
-43%是没有接种疫苗的，27%是完全接种疫苗的
-
-Another 30% with were partially vaxxed, or just undetermined.
-另有30%的接种了部分疫苗，或只是未确定
-
-But I think what’s interesting, because here’s another quote, President Biden,
-但我认为有趣的是，这是另一句话，拜登总统说
-
-President Biden said if you’re vaccinated, you’re not going to be hospitalized.
-拜登总统说，如果你接种了疫苗，你就不会去住医院
-
-You’re not going to an ICU unit, you’re not going to die.
-你不会去重症监护室病房，你不会死
-
-You’re not going to get COVID If you have these vaccinations.
-如果你接种了这些疫苗，你就不会感染 COVID
-
-Well, maybe that’s true in the US, I kind of doubt it
-好吧，也许这在美国是真的，我真的很怀疑
-
-because in England, of the 600,000 new cases of delta of the over 2500 deaths,
-因为在英国，在超过2500人死亡的60万起新增病例中
-
-63% of those deaths 1613 People with, with fully vaccinated.
-63%的死亡的人，1613人是完全接种过疫苗的
-
-28% were the unvaxxed.
-28%是没有接种过疫苗的
-
-Now, this is information the American people who probably never heard.
-现在，这是美国人民可能从未听说过的信息
-
-It’s information by conveying, I will get attack, I will be vili-fied,
-这些信息被传达出去，我会受到攻击，我会被诽谤
-
-I will be censored, I will be suppressed.
-我会被审查，我会被压制
-
-So the reason I’ve come to the Florida Senate to reveal this in-formation
-所以这是我来佛罗里达州参议院透露这些信息的原因
-
-that American people need to know.
-这是美国人民需要知道的信息
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:** [https://twitter.com/senronjohnson/status/1443777704994672644?s=21](https://twitter.com/senronjohnson/status/1443777704994672644?s=21)
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[stopythecrime](http://stopthecrime.net/wp/2021/08/08/long-do-the-vaccinated-have-to-live/)
