@@ -2,39 +2,53 @@
 ---
 
 
-## 里约热内卢爆发疫苗护照之争
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569393/)
+## 露营产业或迎“转机”？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1569468/)
 
-作者：加拿大枫叶农场 – 平民正道
+作者：香草山农场-鹰(文言)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
-此前，巴西里约热内卢市曾强制民众执行所谓的“疫苗护照”。而后一天，当地法官因其过于分裂而暂停了它们。近日，应市政府的要求，巴西最高法院于9月30日再度废除了这一裁决，此裁决曾禁止向民众要求他们提供疫苗接种证明以便进入某些公共场所。
+新浪网10月2日转载中新经纬报道，自2020年以来，露营产业高速发展，相关企业注册量猛增，露营相关产品销量飙升。
 
-目前，由于该项裁决被废止，导致里约居民将再次被要求证明他们已经接种了疫苗，才能参加活动或进入健身房、博物馆和旅游场所等公共设施。对此，之前暂停疫苗护照的法官兰格尔表示，“实施疫苗护照法令会将社会分为两种类型，接种疫苗的民众和未接种疫苗的民众，疫苗护照会强行阻止未接种疫苗的民众进行自由的流通。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片28.png)
 
-事实上，至今已有超过 50 万的巴西人在大流行中丧生——仅次于美国这一世界上死亡人数最多的国家。 悲哀的是，巴西政府非但不采用那些有效的预防药物，反而在各地 200 多个城镇都采用了某种形式的疫苗护照，甚至包括该国最大的城市圣保罗。
+根据《2020端午小红书旅游趋势报告》，小红书用户露营意愿比2019年同期增长近300%，自驾游意愿提高约50%。2020年露营相关企业新增注册量8713家，同比2019年涨幅高达202.85%，2021年前9个月新增注册量增至1.5万家（同比翻番）。目前国内共计有2.6万家露营相关企业（其中超过六成成立于2020年之后），2020年国内露营市场规模超过4000亿元。
 
-庆幸的是，兰格尔并不是唯一一个对该疫苗护照系统持怀疑态度的人。巴西总统贾尔·博尔索纳罗一直在与此类强制性疫苗接种措施作斗争，并多次公开批评了疫苗护照的想法。本月早些时候，博尔索纳罗在纽约联合国总部也公开反对并抵制纽约政府的疫苗接种规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片29.png)
 
-参考链接：[https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html](https://www.cnn.com/2021/09/30/americas/rio-vaccine-passport-intl-latam/index.html)
+国内露营市场的火爆虽有部分原因来自旅游产业的发展，但主要因素为2020年初CCP病毒大流行导致大量人口被“拘禁”后的“报复性消费”，缺乏长久的助力。露营市场的火爆带动了其核心装备帐篷销量的猛增，如迪卡侬深圳帐篷类产品在2021年前5个月销量提高130%，帐篷类周边产品同比2019年涨幅达到360%；野炊炉、煤油灯、保温箱等野营装备销量翻番。但由于2020年CCP病毒疫情导致经济萎靡，生产制造企业数量降低，产能紧缺，以及2021年以来的大宗商品价格不断上涨，铝材、PVC等原材料价格随之提高，露营产品终端被迫涨价，造成露营产品供应不足。
 
-（本文仅代表作者观点）
+国内的露营营地数量较为稀缺。虽有《关于促进自驾车旅居车旅游发展的若干意见》政策扶持，但截至2020年底房车营地数量仅为800多个。根据露营天下数据，截至2019年底，国内露营地总量为1778个，营位数约为56000个，远远无法满足消费者对营地的需求。当前的露营以“精致露营”或轻奢侈露营为主，相应的价格较高，如一套基础设备价格3000～5000元，露营住宿价格超千元，高成本、高价位决定了露营产业的市场难以深入。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+另外，露营极容易受到人口流动的影响，由于CCP病毒的危害尚在，而“毒疫苗”的影响还远没有开始，不良反应或各种梗、抽搐、倒地现象增多，外出的风险越加严峻。中共房地产泡沫的即将崩盘、经济的摇摇欲坠、政治斗争激化、腥风血雨对社会的影响日趋加深，人口流动越发艰难，而残害百姓和搜刮民财的力度弥增又加剧了普通大众的收支失衡，日常开销更加拮据，“露营风”难长。
 
-编辑：Irene木木
+新闻来源：
 
-校对/发稿：正义的小新
+[这届新中产，喜欢花几千块钱睡帐篷](https://news.sina.com.cn/o/2021-10-02/doc-iktzqtyt9300329.shtml)
+
+[中国露营市场调研报告：热潮背后的装备产业链、营地服务和商业机会](https://36kr.com/p/1387099307212165)
+
+[露营产业火了！野炊炉、煤油灯等露营产品销量暴涨200%！](https://www.163.com/dy/article/GBHMPJKN0519814N.html)
+
+[精致露营市场兴起 带动周边产业持续升温](https://www.163.com/dy/article/GKKDU0ES0550C0ON.html)
+
+[消费规模4千亿 商业露营却为何依然小众？](http://finance.eastmoney.com/a/202009211642137636.html)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

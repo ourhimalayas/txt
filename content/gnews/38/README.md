@@ -2,33 +2,24 @@
 ---
 
 
-## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
+## 新邮件证实了中共武汉P4研究所与加尔维斯顿国家实验室 (GNL) 之间的合作
+` 象声` [轉載自GNews](https://gnews.org/zh-hans/1569453/)
 
-作者：香草山健身部 – 文真
+The National Pulse获得的福奇新电子邮件显示，他通过美国国立卫生研究院资助了一个实验室，这个实验室正在武汉病毒学研究所生物安全四级设施培训研究人员。新邮件证实了之前国家脉搏报告的关于中国共产党管理的研究所与加尔维斯顿国家实验室 (GNL) 之间关系的报告，报告称自己是福奇的国家过敏和传染病研究所授予的资助下建造的。福奇和GNL主任James LeDuc之间的2017年的电子邮件交流，确认了该实验室与武汉病毒研究所的合作关系。
 
+与“中共国重要领导人”的合作
+ LeDuc于2017年10月31日向 Fauci 发送了一封名为“中国 BSL4 实验室”的电子邮件，他在邮件中提醒福奇说，他们如何“就与新的中国生物安全4级实验室的合作”进行了交谈。LeDuc引用的实验室包括了“中国科学院（武汉 BSL4）P4研究所”。在邮件中，LeDuc 指出，“这三个新实验室的负责人都同意来到加尔维斯顿”，邮件如下：
+ 托尼，
+ 作为我们在UT会议上关于与新的中国 BSL4 实验室合作的简短讨论的后续，美国国家科学院将于2018年1月16日星期二至1月18日星期四在GNL与中国同行举行会议，他们分别是科学院（武汉 BSL4）、中国医学科学院（昆明 BSL4）和中国农业科学院（哈尔滨 BSL4）。这些实验室中的每一个都已建成，即将开始运营。这三个新实验室的负责人都同意来到加尔维斯顿，乔治·高（如果他的日程安排允许）和其他大约6-8名的中国科学家也同意。（译者注：乔治.高应该指的是高福）
+ GNL 主任继续说道，会议的目标是促进“合作”并培训中国研究人员“安全实践”：会议将重点关注科学与运营的平衡，目标是建立合作，并确保新实验室接触到美国在安全和安保方面的最佳实践。我想知道你是否有兴趣加入我们。LeDuc 最后补充说，“中国的重要领导人”将出席会议：“这将是您与这些中共国重要领导人进行私人和非正式会面和互动的好机会。我们预计大约有 10-12 名来自 UTMB 以外的资深中国科学家和相当数量的美国资深科学家，以及几名 UTMB 人员。周二晚上，我将在我们家举办晚宴，以促进非正式讨论。如果您有兴趣，请告诉我，我们可以努力满足您的日程安排……”
 
+Fauci收到电子邮件的同一天，他转发给了一个联系人——“NIAID OD AM”——同时添加了“让我们讨论一下”。第二天，福奇通知 LeDuc，由于日程安排冲突，他无法参加，并补充说“感谢您的说明和邀请”，并表示对该计划不关心：“感谢您的关注和邀请。不幸的是，2018年1月的那一周对我来说已经很紧张了，很遗憾我不能来加尔维斯顿。感谢你为我着想。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+此前来自德克萨斯实验室的演示文稿显示，他们的实验室研究人员在武汉病毒研究所培训同行如何处理“世界上最危险的病原体”。这是受资助计划的一部分，福奇资助的美国研究人员，如北卡罗来纳大学的拉尔夫·巴里克博士，已经访问了位于中国的实验室。巴里奇是增益的功能研究的支持者，呼吁病毒操纵的争议形式“的重要工具，”并引用参议员兰德保罗作为武汉实验室的顶尖蝙蝠冠状病毒研究员石正丽的合伙人，而她对病毒进行了危险的研究形式。（译者：指冠状病毒的功能增强型实验）。
 
+福奇否认他的 NIAID 通过资金或人员参与了这项研究。
+ 原文：https://thenationalpulse.com/exclusive/foia-fauci-emails-reveal-galveston-lab-training-wuhan/
 
+\*本文仅代表原文作者观点，翻译有部分删减\*
 
-9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
-
-“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
-
-参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
-
-（本文仅代表作者观点）
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/审核/发稿：正义的小新
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译&编辑： 洛杉矶盘古农场—蓝精灵

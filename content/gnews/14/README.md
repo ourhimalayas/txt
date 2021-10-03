@@ -2,22 +2,29 @@
 ---
 
 
-## 真理需要谎言的陪衬——评一篇诋毁”郭先生“的文章
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569694/)
+## 2021年8月15日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569771/)
 
-翻译：Shan Shan
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image3-5.jpg)
-法国资讯9月30日发表了一篇题为”中国亿万富翁郭文贵称疫苗灾难即将发生”，文章在没有任何证据的前提下，对”郭先生“进行了攻击和诋毁。原文是这样的：
+盖特连接：[https://gettr.com/post/p7q0890994](https://gettr.com/post/p7q0890994)
 
-“中国亿万富翁郭文贵在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。 他的一个视频在社交媒体上被分享了数千次。”疫苗灾难即将来临，肯定会出现经济崩溃。那么到明年年底，人类将不得不在生与死之间做出选择。”只有那些没有接种 Covid-19 疫苗的人才会幸存下来：简而言之，这就是在社交网络上分享了数千次的视频信息。该出版物背后的人是郭文贵，一位在房地产领域发家的中国亿万富翁。他也是北京政权的坚定反对者。他说：”中共的目标是获得冠状病毒。”
+8月15号：尊敬的战友们好，你们健身了吗？传播郑州人祸……香港人道危机……CCP病毒真相了吗？
 
-他对有关病毒和疫苗的理论进行了研究 。2014年，郭文贵被党指控腐败，为躲避报复流亡美国。 在他的纽约顶楼或他的豪华汽车上，大量播放视频谴责中共，但也研究了有关病毒和疫苗的理论，他在没有提供任何证据的情况下为这些理论辩护。”冠状病毒是中国政府开发的生物武器，”他说。他的评论被张贴在他的YouTube账户上，该账户有近40万名用户。它还拥有自己的媒体渠道 G News，该网站提供 14 种语言版本。 在其平台上，有真实的信息和虚假的信息。”
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-在文章中，作者说郭先生在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。关于疫苗的危害性，郭先生在9月29日的直播中说，“我们给澳大利亚发的文件最起码2万分，通过律师认证文件达几千份。”难道这不是最有力的证据？此外，郭先生在9月26日的直播中说，”美国几个制药公司的老板都在这开会。十月一号以后，疫苗会变成可选项。不会超过一个月，欧洲会大面积停止所有疫苗。”制药公司的老板难道会在没有证据的情况下停止疫苗接种？谎言不攻自破。
+（做完一组健腹轮，碎步小跳），耶~
 
-类似对郭先生恶意中伤的文章还有很多，这让我想起诗人北岛说的一句话：“卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭。“大意是卑鄙者总能为卑鄙的行为找到借口；而高尚者无私、无我地奉献，却不求回报，但墓碑上会刻有“高尚”两字。真理有时需要谎言的陪衬，就让它去吧。
+编辑整理及发布：黎明之前
 
-参考链接：
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[Guo Wengui, ce milliardaire chinois qui affirme que “le désastre des vaccins va arriver”](https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

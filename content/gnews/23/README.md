@@ -2,35 +2,39 @@
 ---
 
 
-## 对台湾发难的背后是中共国的威胁
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1569652/)
+## 白宫将针对网络犯罪和勒索软件召开30国会议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569678/)
 
-翻译: 波士顿五月花  jiasen
+栏目记者/责任编辑：文真
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/对台湾的愤怒爆发背后有着中共国的威胁.jpg)https://www.epochtimes.com/gb/21/10/1/n13274425.htm
 
-中共国台办最近对台湾外长吴钊燮进行了口头攻击，称他是“台独的顽固分子”，不尊重国际关系的基本理念。
 
-中共的声明相当于一个高级骗子在指责他们的反对者是骗子。如果吴最近的言论超出了边界，反对派国民党肯定不会等到中共表态，而是召开新闻发布会抨击外交部长。然而，国民党并未这样做，这表明吴在全台湾享有广泛的支持。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
 
-陆委会呼吁中共国避免口头攻击，并通过调查其管理台湾事务的部门查明问题所在。此外，陆委会还强调：北京的“一个中国”立场并没有国际支持，台湾从未成为中华人民共和国的一部分。陆委会的即时回应，包括有关中共国在威胁地区秩序的声明，表明了台湾人民的无所畏惧。
 
-中共国侵略性的外交政策遭到了世界各民主国家的强烈反对，最近的频频受挫可能预示着中国共产党的生存受到了严重威胁。苏联在解体前存在了 74 年，而中共国则迎来了其第71 个纪念日。
 
-中共自己应为在国内外受到的挫败而负责。然而，每次它都将怒火指向了台湾。当在与美国和欧洲的关系举步维艰时，中共国派战机进入台湾的防空识别区。当面临国内经济问题时，中共国开始谩骂台湾。当日本选出了亲台的新首相时，中共批评台北，而不是东京。
+在今年发生了一系列威胁美国能源和食品供应的网络攻击事件后，拜登政府已将网络安全对策提升到政府的最高级别。此前，中共对其恶意网络攻击的指控，予以否认。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture22-1.jpg)
+白宫10月1日表示，拜登政府计划在本月召集约30个国家，举行线上会议，旨在 “改善执法机构之间的合作”，例如 “非法使用加密货币 “等问题。以应对日益重的勒索软件和其它网络犯罪的威胁。
 
-中共国对吴钊燮的攻击暴露了一个大问题：中共自己似乎正在走向解体。
+拜登政府希望其新的非正式小组——即“反勒索软件”倡议，加强外交努力，包括与俄罗斯、北约、联合国和G7国家的直接会谈。
 
-译者短评：
+（本文仅代表作者观点）
 
-作者在此文中指出了两个关键点：一、台湾人民并不畏惧中国共产党；二、中共自己似乎正在走向解体。提醒我们的台湾同胞：不要低估了共产党的邪恶和卖台贼的无耻，中共为了自救，解体前极有可能攻击台湾，希望两岸人民做好准备，共渡难关。
+参考链接：
+1. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.theusexpressnews.com/white-house-plans-30-country-meeting-on-cybercrime-and-ransomware-official/)
+2. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.newsmax.com/newsfront/cybercrime-ransomware-summit/2021/10/01/id/1038753/)
 
-（文章仅代表作者本人观点，与GNews 无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-新闻来源: [There’s a China threat behind its outbursts against Taiwan](https://www.taiwannews.com.tw/en/news/4303268)
+终审编辑：Ryan
+校正/发稿：Hetangyuese
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*素材来源：**jiasen*
-
-*编辑**& 发布：jamie(文胤)*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
