@@ -2,22 +2,29 @@
 ---
 
 
-## 美国寻求与新任日本首相四方会谈合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1569672/)
+## 2021年8月15日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569771/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+盖特连接：[https://gettr.com/post/p7q0890994](https://gettr.com/post/p7q0890994)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J.png)english.kyodonews.net
-日本共同社10月2日报道， 美国国防部副部长凯瑟琳·希克斯(Kathleen Hicks)10月1日表示，美国希望与日本合作，在将出任下届首相的岸田文雄(Fumio Kishida)领导下，进一步推进四方会谈共同对抗中共在该地区的强硬做派。
+8月15号：尊敬的战友们好，你们健身了吗？传播郑州人祸……香港人道危机……CCP病毒真相了吗？
 
-希克斯在华盛顿一个智库组织的在线活动上表示，美国与日本有着“非常持久的联盟关系”，“我们期待包括通过四方会谈拥有积极的关系”。 她认为日本首相换届并不会影响日美亲密盟友的关系。希克斯称美国和日本“非常习惯我们民主进程中的权力转移” 。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-“四方会谈”成立于2004年，包括美国，日本，澳大利亚和印度。当时是为了应对印度洋地震和海啸。近年来，四方会谈成为中共国在该地区日益增长的影响力的制衡力量。在川普政府努力的基础上，现任美国总统乔·拜登(Joe Biden)将四方会谈的接触提升到领导人层面，寻求团结美国的盟友和志同道合的国家，以应对中共带来的挑战。
+（做完一组健腹轮，碎步小跳），耶~
 
-上个月在华盛顿举行的首次四方首脑会议上，四国领导人确认了寻求合作的广泛领域，包括中共病毒疫苗、基础设施、半导体供应链和太空。他们还同意每年举行一次领导人会议。目前即将离任的日本首相菅义伟出席了当时的会晤。
+编辑整理及发布：黎明之前
 
-菅义伟不再连任日本执政党自民党党首，岸田文雄在上月末的自民党选举中获胜，有望在周一的国会选举中当选日本下一任首相。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-参考链接：
-[https://english.kyodonews.net/news/2021/10/c984a8255138-us-seeks-to-work-with-next-japan-pm-on-quad-pentagon-official.html](https://english.kyodonews.net/news/2021/10/c984a8255138-us-seeks-to-work-with-next-japan-pm-on-quad-pentagon-official.html)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

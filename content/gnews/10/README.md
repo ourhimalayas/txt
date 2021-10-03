@@ -2,27 +2,22 @@
 ---
 
 
-## 近60架中共战机在两天内进入台湾防空识别区
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1569607/)
+## 真理需要谎言的陪衬——评一篇诋毁”郭先生“的文章
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569694/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+翻译：Shan Shan
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image3-5.jpg)
+法国资讯9月30日发表了一篇题为”中国亿万富翁郭文贵称疫苗灾难即将发生”，文章在没有任何证据的前提下，对”郭先生“进行了攻击和诋毁。原文是这样的：
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T-1.jpg)foreignaffairs.com
-日本共同社新闻报道，10月2日台湾国防部称，共有20架中国军机，包括战斗机和轰炸机，进入该地区。包括10月1日的38架，近60架中共战机在两天内进入了台湾防空识别区，这是自9月份台湾开始披露相关信息以来的单日最高纪录。
+“中国亿万富翁郭文贵在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。 他的一个视频在社交媒体上被分享了数千次。”疫苗灾难即将来临，肯定会出现经济崩溃。那么到明年年底，人类将不得不在生与死之间做出选择。”只有那些没有接种 Covid-19 疫苗的人才会幸存下来：简而言之，这就是在社交网络上分享了数千次的视频信息。该出版物背后的人是郭文贵，一位在房地产领域发家的中国亿万富翁。他也是北京政权的坚定反对者。他说：”中共的目标是获得冠状病毒。”
 
-10月1日白天有25架飞机进入该区域，晚上有13架。据台湾国防部称，一些中共战机在穿越分隔台湾和菲律宾的巴士海峡后，飞到了台湾东岸附近的一个地区。台湾军机连续两天紧急起飞，警告大陆飞机离开。
+他对有关病毒和疫苗的理论进行了研究 。2014年，郭文贵被党指控腐败，为躲避报复流亡美国。 在他的纽约顶楼或他的豪华汽车上，大量播放视频谴责中共，但也研究了有关病毒和疫苗的理论，他在没有提供任何证据的情况下为这些理论辩护。”冠状病毒是中国政府开发的生物武器，”他说。他的评论被张贴在他的YouTube账户上，该账户有近40万名用户。它还拥有自己的媒体渠道 G News，该网站提供 14 种语言版本。 在其平台上，有真实的信息和虚假的信息。”
 
-据台湾国防部统计，今年共有500多架中共战机进入台湾防空识别区。台湾对中共国提出尖锐批评。
+在文章中，作者说郭先生在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。关于疫苗的危害性，郭先生在9月29日的直播中说，“我们给澳大利亚发的文件最起码2万分，通过律师认证文件达几千份。”难道这不是最有力的证据？此外，郭先生在9月26日的直播中说，”美国几个制药公司的老板都在这开会。十月一号以后，疫苗会变成可选项。不会超过一个月，欧洲会大面积停止所有疫苗。”制药公司的老板难道会在没有证据的情况下停止疫苗接种？谎言不攻自破。
 
-台湾行政院长苏贞昌周六上午对记者说：“中共一直在肆意进行军事侵略，破坏地区和平。”
-
-中共尚未对此置评，但此前曾表示称，此类飞行是为了保护国家主权，并针对台湾与美国之间的“勾结”，因美国是台湾最重要的国际支持者。
-
-中共加大了军事和政治压力，试图迫使台湾接受中共国主权。台湾表示，它是一个独立的国家，将捍卫它的自由和民主。爆料革命和新中国联邦创始人郭文贵先生提供情报称，中共为了维系摇摇欲坠的政权和濒临崩溃的经济，必然会攻打台湾。美国和中共勾兑，并不会在第一时间对台湾施以援手。台湾更可怕的是有内鬼接应，面对中共的进攻将无招架之力，台湾危矣！
+类似对郭先生恶意中伤的文章还有很多，这让我想起诗人北岛说的一句话：“卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭。“大意是卑鄙者总能为卑鄙的行为找到借口；而高尚者无私、无我地奉献，却不求回报，但墓碑上会刻有“高尚”两字。真理有时需要谎言的陪衬，就让它去吧。
 
 参考链接：
 
-[https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/](https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/)
-
-[https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html](https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html)
+[Guo Wengui, ce milliardaire chinois qui affirme que “le désastre des vaccins va arriver”](https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html)

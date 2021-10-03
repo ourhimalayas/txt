@@ -2,40 +2,38 @@
 ---
 
 
-## 欧盟发现强生新冠疫苗可能与另一种罕见的凝血症有关
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569683/)
+## 周六，墨尔本警方继续大肆抓捕抗议人士
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1569774/)
 
-**【简评】 爆料革命战友都知道，无论哪一家公司的中共病毒疫苗都有极其严重的副作用。在文贵先生和战友们的积极推动下，包括日本、欧盟、澳大利亚、英国等众多政府的大量官员都会为自己强推毒疫苗而辞职，我们的以苗灭共运动将会取得重大成功。同时，这几天，我们也注意到，关于疫苗副作用的报道也逐渐增多，相信全民大觉醒马上就会到来，而以疫苗为借口实施人口大灭绝的黑暗势力将被曝光并绳之以法。**
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-3.png)
+**图片来源：****9 News**
 
-**据《路透社》记者Pushkala Aripaka 和 Ludwig Burger，2021年10月1日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/at0wh-gh9kr-1.jpg)**在这张摄于2020年10月31日的插图中，可以看到贴纸上写着“COVID-19/冠状病毒疫苗/仅限注射”的小瓶和一个医疗注射器，其背后是强生公司的标识。图片来源：路透社/Dado Ruvic**
-周五，欧盟药品监管机构确认了强生(Johnson & Johnson)的COVID-19疫苗与罕见的深层静脉血栓病例之间可能存在联系，并建议将这种情况列为疫苗的副作用。
+10月2日，澳大利亚墨尔本警方对抗议者进行了快速的出击，在全市范围内，有超过100名抗议者被抓捕。
 
-欧洲药品管理局还建议将免疫性血小板减少症 (ITP)，一种由身体错误地攻击血小板引起的出血性疾病，作为频率未知的不良反，应添加到强生疫苗和阿斯利康 (AZN.L) 疫苗的产品信息中。
+周六，数十人来到皇家植物园的战争纪念馆，反对新冠疫苗强制接种在两周内对授权工人生效。但警方早有准备，迅速出手制止了这一行动。
 
-强生表示，虽然遇到这些情况的可能性非常低，但随着公司继续与包括 EMA 在内的当局密切合作，产品信息也将相应更新。
+警察今天对抗议者发起了猛攻，逮捕了一些有敌意的抗议者，而其他人则逃离现场，抗议人士遭到了大规模的武力打击。
 
-强生公司表示：“我们强烈支持提高对罕见副作用的迹象和症状的认识，以确保能够被快速识别和有效治疗。”
+当晚，警方表示，有109人因各种罪行被逮捕，并因违反首席卫生官的命令而发出108份处罚通知。
 
-此前报道，强生和阿斯利康的疫苗都与一种非常罕见的凝血和低血小板计数的并发症有关，这种并发症被称为血栓与血小板减少综合征(TTS)。
+警方继续警告，他们将毫不犹豫地再次对任何更多的行动进行打击。
 
-这两款疫苗都以无害的病毒载体为基础，指导人体细胞制造一种蛋白质，为免疫系统抵御未来的冠状病毒感染做好准备。
+在抗议现场，人们在高呼”我的身体，我做主”。
 
-EMA表示，即将被纳入强生疫苗产品标签的静脉血栓栓塞症(VTE)是一种新的可能危及生命的凝血疾病，并与TTS分开列出。
+与最近几天墨尔本的其他抗议活动不同，现场警察的人数也多于抗议人群。在场的人也注意到，总体上暴力事件较少。
 
-VTE 通常先在腿部、手臂或腹股沟的静脉中形成凝块，然后到达肺部并阻塞那里的血液供应。
+维多利亚州州长丹尼尔·安德鲁斯昨天宣布，所有在授权名单上的工人都需要在10月15日前接种一剂新冠疫苗，在11月26日之前完全接种疫苗。
 
-无论是否接种过疫苗，导致静脉血栓栓塞（VTE）最常见的原因是受伤或卧床的病人缺乏运动，另外避孕药和许多慢性病也被视为危险因素。
+截至10月3日，墨尔本累计封锁达246天，维州在过去的一天里记录了1220个新增病例，并有3个人死亡。
 
-**原文连接**：[https://www.reuters.com/business/healthcare-pharmaceuticals/eu-finds-jj-covid-shot-possibly-linked-another-rare-clotting-condition-2021-10-01/?taid=6157078576ce46000139552b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/healthcare-pharmaceuticals/eu-finds-jj-covid-shot-possibly-linked-another-rare-clotting-condition-2021-10-01/?taid=6157078576ce46000139552b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+新闻链接：[Coronavirus update Victoria: More than 100 arrested during Melbourne protests (9news.com.au)](https://www.9news.com.au/national/coronavirus-update-victoria-protests-against-vaccine-mandate-planned-melbourne/7471d105-1e19-4d23-8646-2b86ea9dd225)
 
-**（本文评论仅代表个人观点）**
+**编辑****/发布：文泓**
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,33 +2,31 @@
 ---
 
 
-## 学徒制创业公司 “多维宇宙” 融资1.3亿美元
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1569378/)
+## 中共国庆当天对台派出38架次军机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1569444/)
 
-作者：香草山健身部 – 文真
+**撰稿：日本东京方舟农场 幽蘭自得**
 
+10月1日，中共在其国庆日当天向台湾方向派出了包括喷气式战斗机在内的38架次军机，这是今年以来最大规模的军事威胁。
 
+根据台湾西南防空识别区的空情动态发表的声明，中共解放军出动了25架次的军机，包括18架次歼-16战斗机、四架次苏-30战斗机、两架次轰-6轰炸机和一架运-8反潜机。台湾国防部称，10月1日夜间，解放军又出动了13架次的军机，包括10架次的歼-16战斗机、两架次轰-6轰炸机和一架空警-500预警机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211002190532.png)图片来自于网络
 
+作为应对，台湾空军派遣空中巡逻兵力应对、进行广播驱离与防空飞弹追踪监控。
 
+过去两年来，中共几乎天天向台湾岛方向派遣军机，不断通过演练等方式加大对台湾的军事骚扰。
 
-9月28日，学徒制初创公司 “多维宇宙” 宣布，已完成总值1.3亿美元的C轮融资。 在新冠疫情大流行的18个月里，全球就业市场发生了巨大的变化，主要是因为经济萎缩，消费习惯改变，以及在全球公共卫生危机下，教育和工作的供需方式都发生了巨大的变化。
+当日，美国国防部副部长希克斯在一次视频对话会上回答关于中共国军事威胁台湾的问题时重申，美国将一如既往信守对台湾的承诺，帮助台湾提升自卫能力。她强调，对于中共国咄咄逼人的态势，美国拥有强大能力来遏制任何此类潜在威胁。
 
-“多维宇宙” 是一家诞生在伦敦的初创公司。公司负责人、英国前首相托尼-布莱尔曾表示，公司成立的初衷是 “建立一个替代大学和学院的杰出机构”。目前，该平台上的学徒从数据科学和广告技术公司，到行政和运营角色都有，涵盖了科技公司、金融组织等安置方，并且有现场和远程两种。 该公司现已将业务拓展到了美国市场，并确认其新的估值为8.75亿美元。仅自去年新冠疫情爆发后的一年内，该公司的估值增长了四倍。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-参考链接：[https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/](https://techcrunch.com/2021/09/28/multiverse-the-tech-apprenticeship-startup-nabs-130m-at-an-875m-valuation/)[https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801](https://www.wsj.com/articles/education-technology-startup-multiverse-raises-130-million-11632826801)[https://gettr.com/post/pcjqsv6a51](https://gettr.com/post/pcjqsv6a51)
+*参考链接：*
 
-（本文仅代表作者观点）
+[今年最大规模：北京在国庆日向台湾方向派出38架次军机](https://www.voachinese.com/a/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+[面对中国军事威胁台湾 美国承诺帮助台湾提升自卫能力](https://www.voachinese.com/a/us-deputy-defense-secretary-on-potential-china-military-incursion-into-taiwan-20211002/6254441.html)
 
-编辑/审核/发稿：正义的小新
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,38 +2,29 @@
 ---
 
 
-## 完全接种疫苗的CNN 撰稿人心脏病发作，并因血栓住院
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569705/)
+## 2021年8月17日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569790/)
 
-**【简评】 爆料革命战友都知道，无论哪一家公司的中共病毒疫苗都有极其严重的副作用。包括心梗、脑梗、眼梗、血栓、糖尿病等都是疫苗的严重副作用，本文这位完全接种毒疫苗的希尔先生是一名副其实的疫苗支持者，但在简单的跟腱手术后，发生了心梗和血栓。但即便如此，他还坚持认为是其跟腱手术导致，并指责别人对血栓的形成缺乏基本的医学常识。好吧，或许希尔先生在病床上没有看下面报道《欧盟药品监管机构确认强生COVID-19疫苗与罕见的深层静脉血栓病例之间存在联系，并建议将这种情况列为疫苗的副作用》。但也有可能希尔认为欧盟药品监管机构没有任何基本常识。**
+盖特连接：[https://gettr.com/post/p7x03va82f](https://gettr.com/post/p7x03va82f)
 
-**据《网关专家》记者Cristina Laila，2021年9月30日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a71ie-wzywl.jpg)马克·拉蒙特·希尔住院。图片来源：Instagram
-前 CNN 评论员马克·拉蒙特·希尔(Marc Lamont Hill)突发心脏病，并因深静脉血栓形成和肺部血栓而入院治疗。
+8月17号：尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机真相了吗？一切都已经开始。
 
-马克·拉蒙特·希尔只有 42 岁。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-周三，希尔批评了奥兰多魔术队球员乔纳森·艾萨克(Jonathan Isaac)，因为艾萨克对自己不接种新冠疫苗的决定直言不讳。
+(碎步小跳），Snow，第十一次！（做完一组健腹轮）怎么样？Snow，耶~中国共产党！像这Snow，跳。
 
-“对于那些一无所知的人来说，这听起来很聪明。”希尔抨击艾萨克说。
+编辑整理及发布：黎明之前
 
-周三，完全接种疫苗的希尔透露，他突发心脏病，同时深静脉血栓形成，导致肺栓塞。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“在经历了艰难的一周后，我现在在家恢复。周五成功完成了跟腱手术后，周六我突发轻微心脏病，被送往急诊室。结果我得了深静脉血栓，导致了肺栓塞。血凝块几乎完全堵塞了我的肺，阻止了血液流向心脏。医生告诉我，我很幸运没有去见阎王。而且幸运的是，我得到了天普大学医院团队出色的医疗护理。医生准确地评估了我的病情，并移除了血块。我的身体已经疲惫不堪，疼痛难忍，但我对自己还活着，正在完全康复的道路上感到无比感激。请倾听你的身体。如果感觉不对劲，就去看医生。不要担心自己看起来像个痛症患者或疑病症患者。去吧。感谢所有在这可怕的时刻给予帮助或提供帮助的人。幸运的是，我有很棒的朋友、美满的家庭，还有很多不该得到的恩惠和怜悯。”希尔在他的Instagram账户上说。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-希尔周四表示，他因接种新冠疫苗形成血栓的说法是“荒谬和完全没有根据的”。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-希尔说，他的跟腱断裂导致了深静脉血栓和血凝块。他说:“这是此类伤害的一个非常常见的结果。”
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-**原文连接**：[https://www.thegatewaypundit.com/2021/09/fully-vaxxed-former-cnn-contributor-marc-lamont-hill-suffers-heart-attack-hospitalized-blood-clots-blasts-nba-player-critical-covid-vax/](https://www.thegatewaypundit.com/2021/09/fully-vaxxed-former-cnn-contributor-marc-lamont-hill-suffers-heart-attack-hospitalized-blood-clots-blasts-nba-player-critical-covid-vax/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**（本文评论仅代表个人观点）**
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
