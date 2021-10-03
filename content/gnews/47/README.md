@@ -2,18 +2,29 @@
 ---
 
 
-## CNBC主持人拷问福奇：我打了疫苗但全家都染上了
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1570123/)
+## 针下亡魂｜意大利 13 岁女孩接种疫苗1日内死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1570142/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-12.jpg)图片来源：新浪
-美国网关专家网站10月2日报道， **全国广播公司商业频道消费者新闻与商业频道（CNBC）**主持人针对所谓的“突破病例”拷问福奇：“ 福奇博士，你们这些人整天催促人们打疫苗，我知道为什么，我打了疫苗，但我还是染上了中共病毒，而且在过去几周内我们全家都染上了。” CNBC女主播萨拉·埃森在她的办公室里说着，“我对关于疫苗的公共信息觉得很奇怪，我家三个人打了疫苗都染上了这个病毒，两未打疫苗的孩子也染上了，你对疫苗的有效性也太随意了，突破病例已经是很常见了，但我没看到政府有任何的关注和警告。”
+**撰文/ 台湾宝岛农场 天滅中共｜发布****日期/ 03/10/2021**
 
-而福奇看来很受刺激并多次想要打断埃森的话，但她继续说：“我们还是会染上并传播（这个中共病毒），感谢神我们不需要住院，但我还是染上了，虽然打了疫苗，（所以打了疫苗）还是会染上并传播，但政府并没有警告这一点。”
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。***
+***本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-福奇以居高临下的姿态回答说：“是的，我同意，我们已经说过这个了，让我给你看这个科学报告和数据。”
+* * *
 
-福奇的所谓数据根本没有回答主持人所提的问题，既然打了疫苗还是会染上并传播中共病毒，为什么还要强推民众打疫苗？这个试验性的疫苗的短期和长期的副作用究竟如何？请尽快结束这种弊大于利的疫苗推广。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-7.jpg)
 
-##### 新闻来源： [“I’m Vaccinated, But I Also Have Covid – And it Spread Through My Entire Family!” – CNBC Host Grills Fauci on Vaccine ‘Breakthrough’ Cases (VIDEO)](https://www.thegatewaypundit.com/2021/10/vaccinated-also-covid-spread-entire-family-cnbc-host-grills-fauci-vaccine-breakthrough-cases-video/)
+【意大利】莱切特雷普齐的一名 13 岁的女孩 Arianna 在 9 月 30 日接种完第二剂辉瑞 COVID-19 疫苗后的 24 小时内死亡。
+
+Arianna 就读于当地一所高中的一年级学生，她接种完第二剂疫苗之后的当天下午 4 时左右感到不适，随后，情况愈加严重，被紧急送往维托法齐医院的急诊室，尽管医生尽了最大努力抢救她，但仍然回天乏术。
+
+事件令整个社区陷入悲痛，市长 Guiseppi Taurino 随即宣布全市哀悼：“当一个社区失去年轻的生命时，每个人都会感到伤痛，包括女孩的同学和朋友，因为她的突然死亡，他们感到非常痛苦，其中，不得不埋葬孩子的父母痛苦最甚。”
+
+Arianna的葬礼原定于10月2日早上举行，但后来因要进行尸检而推迟。
+
+维托法齐医院的负责人 Giovanni Serio 博士和验尸官 Alberto Tortorella 将进行尸检，以证明接种第二剂辉瑞疫苗与她的心脏骤停之间是否存在相关性。
+
+来源｜[个案004](https://www.corriereadriatico.it/attualita/arianna_morta_malore_vaccino_covid_ospedale_lecce_ultime_notizie_oggi_2_ottobre_2021-6232455.html)
+
+他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)
+ //[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//

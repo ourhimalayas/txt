@@ -114,47 +114,47 @@
 ### [独家报道：新的电子邮件证明福奇资助了武汉实验室培训](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [从&#8221;毛粉&#8221;到中共揭露者，著名前驻华记者梅兆赞去世](/content/gnews/34/README.md)
+### [孙力军和傅政华已倒下，王岐山和孟建柱还会远吗？](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [从&#8221;毛粉&#8221;到中共揭露者，著名前驻华记者梅兆赞去世](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [国会议员呼吁将中共生物公司列入黑名单](/content/gnews/35/README.md)
+### [国会议员呼吁将中共生物公司列入黑名单](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [中共在国庆日向台湾方向派出38架次军机 台称是最高纪录](/content/gnews/36/README.md)
+### [中共在国庆日向台湾方向派出38架次军机 台称是最高纪录](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [习王斗法：王岐山四大酷吏被抓同时“新冠神药”打击疫苗股何为？](/content/gnews/37/README.md)
+### [习王斗法：王岐山四大酷吏被抓同时“新冠神药”打击疫苗股何为？](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/38/README.md)
+### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [傅政华落马，司法部连夜开会表忠心](/content/gnews/39/README.md)
+### [傅政华落马，司法部连夜开会表忠心](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [Shiva 博士：马里科帕县政府承认信封被修改过](/content/gnews/40/README.md)
+### [Shiva 博士：马里科帕县政府承认信封被修改过](/content/gnews/41/README.md)
  ` wenwu`
 
-### [郭文贵在爆料革命第一天就准确预言了傅政华的落马](/content/gnews/41/README.md)
+### [《军事管制》将是澳洲暴政碾压民主的终极武器吗？](/content/gnews/42/README.md)
+ ` 澳喜农场`
+
+### [郭文贵在爆料革命第一天就准确预言了傅政华的落马](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [论天国的仇敌：世界在偶像敬拜中堕落](/content/gnews/42/README.md)
+### [论天国的仇敌：世界在偶像敬拜中堕落](/content/gnews/44/README.md)
  ` 纽约香草山MOS03`
 
-### [疫苗灾情｜法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](/content/gnews/43/README.md)
+### [疫苗灾情｜法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](/content/gnews/45/README.md)
  ` G&#124;News TAIWAN`
 
-### [针下亡魂｜泰国 40 岁男救护员接种加强剂12小时内死亡](/content/gnews/44/README.md)
+### [针下亡魂｜泰国 40 岁男救护员接种加强剂12小时内死亡](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`
 
-### [针下亡魂｜意大利 13 岁女孩接种疫苗1日内死亡](/content/gnews/45/README.md)
+### [针下亡魂｜意大利 13 岁女孩接种疫苗1日内死亡](/content/gnews/47/README.md)
  ` G&#124;News TAIWAN`
-
-### [辉瑞被指控对孤儿婴儿进行中共病毒疫苗试验](/content/gnews/46/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [CNBC主持人拷问福奇：我打了疫苗但全家都染上了](/content/gnews/47/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [蛇妖闫和她的疑似床圈合影照是为了显摆那只咸猪手么？](/content/gnews/48/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -180,9 +180,9 @@
 ### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/56/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/57/README.md)
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/57/README.md)
+ ` 秘密翻译组-北美组`
 
