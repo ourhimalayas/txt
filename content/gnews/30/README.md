@@ -2,33 +2,29 @@
 ---
 
 
-## 维州最高法院将挑战政府的强制疫苗接种命令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1569865/)
+## 针下亡魂｜意大利 13 岁女孩接种疫苗1日内死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1570142/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：The Australian
-**整理报道：**翼族
+**撰文/ 台湾宝岛农场 天滅中共｜发布****日期/ 03/10/2021**
 
-到10月15日，维多利亚州约有100万“授权工人”【注：指特别注明需要的工人】需要至少接种一剂中共病毒（COVID-19）疫苗才能继续在现场工作，同一组工人需要在11月26日之前接种两种疫苗。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。***
+***本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-维州州长丹尼尔·安德鲁斯周五宣布了该项命令，它是对之前强制接种疫苗的补充。早些时候，维州政府已要求教育和建筑工人必须接种疫苗才能继续工作，并引起巨大的争议和抗议活动。
+* * *
 
-对维州政府的新公告，各界反应不一。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-7.jpg)
 
-随着粮食、水果和蔬菜丰收期的临近，这一消息令许多行业领导者感到意外，它引起了该州农业团体的愤怒。维州农民联合会（VFF）主席艾玛·杰玛诺（Emma Germano）说：“这让我们感到惊讶……协商和围绕它的过程是荒谬的！”
+【意大利】莱切特雷普齐的一名 13 岁的女孩 Arianna 在 9 月 30 日接种完第二剂辉瑞 COVID-19 疫苗后的 24 小时内死亡。
 
-维多利亚州的法院对该项新的行政命令没有发表评论。
+Arianna 就读于当地一所高中的一年级学生，她接种完第二剂疫苗之后的当天下午 4 时左右感到不适，随后，情况愈加严重，被紧急送往维托法齐医院的急诊室，尽管医生尽了最大努力抢救她，但仍然回天乏术。
 
-维多利亚州最高法院首席法官兼法院委员会主席安妮·弗格森(Anne Ferguson)表示：“根据[2008 年公共卫生和福利法]对该项行政令提出的法律挑战已提交到法院，将依法审理和裁决。”
+事件令整个社区陷入悲痛，市长 Guiseppi Taurino 随即宣布全市哀悼：“当一个社区失去年轻的生命时，每个人都会感到伤痛，包括女孩的同学和朋友，因为她的突然死亡，他们感到非常痛苦，其中，不得不埋葬孩子的父母痛苦最甚。”
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+Arianna的葬礼原定于10月2日早上举行，但后来因要进行尸检而推迟。
 
-编辑/发布：翼族
+维托法齐医院的负责人 Giovanni Serio 博士和验尸官 Alberto Tortorella 将进行尸检，以证明接种第二剂辉瑞疫苗与她的心脏骤停之间是否存在相关性。
 
-**参考链接：**[Victorians react to COVID-19 vaccine mandates which are set to affect around a million workers](https://www.abc.net.au/news/2021-10-01/how-people-reacted-to-the-vaccine-mandates-affecting-millions/100508690)
+来源｜[个案004](https://www.corriereadriatico.it/attualita/arianna_morta_malore_vaccino_covid_ospedale_lecce_ultime_notizie_oggi_2_ottobre_2021-6232455.html)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)
+ //[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//

@@ -2,29 +2,18 @@
 ---
 
 
-## 2021年8月19日郭文贵先生吃饭饭盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569831/)
+## CNBC主持人拷问福奇：我打了疫苗但全家都染上了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1570123/)
 
-盖特连接：[https://gettr.com/post/p82kzbd614](https://gettr.com/post/p82kzbd614)
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-12.jpg)图片来源：新浪
+美国网关专家网站10月2日报道， **全国广播公司商业频道消费者新闻与商业频道（CNBC）**主持人针对所谓的“突破病例”拷问福奇：“ 福奇博士，你们这些人整天催促人们打疫苗，我知道为什么，我打了疫苗，但我还是染上了中共病毒，而且在过去几周内我们全家都染上了。” CNBC女主播萨拉·埃森在她的办公室里说着，“我对关于疫苗的公共信息觉得很奇怪，我家三个人打了疫苗都染上了这个病毒，两未打疫苗的孩子也染上了，你对疫苗的有效性也太随意了，突破病例已经是很常见了，但我没看到政府有任何的关注和警告。”
 
-吃饭饭喽……
+而福奇看来很受刺激并多次想要打断埃森的话，但她继续说：“我们还是会染上并传播（这个中共病毒），感谢神我们不需要住院，但我还是染上了，虽然打了疫苗，（所以打了疫苗）还是会染上并传播，但政府并没有警告这一点。”
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+福奇以居高临下的姿态回答说：“是的，我同意，我们已经说过这个了，让我给你看这个科学报告和数据。”
 
-乖乖！萝卜炖羊肉！萝卜炖羊肉！还有辣椒包子，乖乖，乖乖！七嫂的辣椒包子！啧啧啧，七嫂的菜园自制黄瓜，还有咱们自己七嫂庄园的辣椒（口误，不是辣椒是豆角），豆角，（对旁边人说话，因为把豆角口误说成了辣椒）你瞪啥瞪？辣椒，你七嫂自制的萝卜，还有熏鸡肉！咋弄？咋弄？咋弄？咋弄？咋弄？咋弄？
+福奇的所谓数据根本没有回答主持人所提的问题，既然打了疫苗还是会染上并传播中共病毒，为什么还要强推民众打疫苗？这个试验性的疫苗的短期和长期的副作用究竟如何？请尽快结束这种弊大于利的疫苗推广。
 
-编辑整理及发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+##### 新闻来源： [“I’m Vaccinated, But I Also Have Covid – And it Spread Through My Entire Family!” – CNBC Host Grills Fauci on Vaccine ‘Breakthrough’ Cases (VIDEO)](https://www.thegatewaypundit.com/2021/10/vaccinated-also-covid-spread-entire-family-cnbc-host-grills-fauci-vaccine-breakthrough-cases-video/)

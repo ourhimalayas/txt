@@ -2,68 +2,37 @@
 ---
 
 
-## 蛇妖闫和她的疑似床圈合影照是为了显摆那只咸猪手么？
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1570122/)
+## 华人败类黄医生配合CBC制作假新闻忽悠公众接种疫苗毒针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1570199/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-1.jpg)
-这张照片引发了我的极大兴趣，于是就进行了照片检索，根据检索结果，我们可以知道图片中的人物名字如图所示——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/002-1.png)
-合影人员依次是——
+**撰稿**：柯亭
 
-Li-Meng Yan, MD, PhD
+**校对**：卡拉马佐夫姐姐
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211002-华人败类黄医生配合CBC制作假新闻忽悠公众接种疫苗毒针.png)
+**图片来源：**** ****视频截图**
 
-Robert Malone, MD
+据[《加拿大家园》10月1日](http://www.iask.ca/news/canada/2021/10/615209.html)报道，里贾纳综合医院的传染病医生黄医生（Dr. Alexander Wong）是通过社交媒体向民众展示萨省重症监护病房的现实情况的医护人员之一。
 
-Richard Urso, MD
+该报道引用了黄医生9月26日下午4点28分发的一个推文（图一）。该推文说：“里贾纳医院的一个人在哭泣、在死亡”。“我要是像我的妻子一样接种了疫苗就好了，她一直劝我去接种。我快死了，是吗”？“这是他在去重症监护室之前，最后一次和家人说话；他告诉他的家人他很抱歉”。“三天后，他孤单一人去世了”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211002-华人败类黄医生配合CBC制作假新闻忽悠公众接种疫苗毒针-p2.png)
+**图1. 黄医生9月26日的推文**
 
-Ryan Cole, MD
+10月1日晚上10:39pm用“Dr. Alexander Wong”在谷歌搜索，显示4.21千万个结果（用时0.73秒），见图二。显示的第一条就是黄医生的推文；靠前的有加拿大CBC新闻的两个报道，一个[2分5秒的视频](https://www.cbc.ca/player/play/1953396291825)报道和一个[8分39秒的视频](https://www.cbc.ca/news/canada/saskatchewan/unvaccinated-sask-covid-deaths-1.6191446)报道；其它靠前的有[萨斯喀彻温大学官网](https://medicine.usask.ca/profiles/department-of-medicine/regina/infectious-diseases/a.-wong.php#About)介绍黄医生的信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211002-华人败类黄医生配合CBC制作假新闻忽悠公众接种疫苗毒针-p3.png)
+**图2. 10月1日在谷歌用Dr. Alexander Wong搜索显示4.21千万个结果。**
 
-Craig M. Wax DO
+CBC的2分5秒的视频，是以黄医生9月26日的推文为引子，然后是黄医生谈对当前疫情以及接种疫苗的看法。最后结束前，黄医生“哭喊着”呼吁公众去接种疫苗，以减轻医院以及医护人员的工作负担。但仔细看，他想哭但没有哭成功，嘴和鼻子在努力，但就是没挤出眼泪。黄医生自己的推特也发布了这个视频。
 
-那么这些人都是什么来头呢？
+CBC发布8分39秒视频的说明文字，介绍黄医生是当选的官员（Elected Officials）。但黄医生的[推特](https://twitter.com/awong37)、[领英](https://www.linkedin.com/in/alexander-wong-04858817/?originalSubdomain=ca)以及萨斯喀彻温大学官网简介中，都只有专业职位副教授、医生、研究员，而没有政府当选官员职位。说明CBC的文字也是造假。
 
-关于Robert Malone, MD，据[领英——Robert Malone](https://www.linkedin.com/in/rwmalonemd)：Inventor of mRNA vaccines and DNA vaccines; world-wide expert in RNA technologies RW Malone MD, LLC: Consultancy and Analytics in the Bio-sector
-![](https://assets.gnews.org/wp-content/uploads/2021/10/003-1.png)
-中文：mRNA疫苗和DNA疫苗的发明者； RNA 技术的全球专家 RW Malone MD, LLC：生物领域的咨询和分析
+黄医生9月26日的推文，显然是为配合CBC做假新闻而写的，是假新闻媒体为哄骗公众接种中共病毒疫苗毒针所伪造的大量假新闻故事的一个典型。
 
-关于Richard Urso, MD，据[领英——Richard Urso](https://www.linkedin.com/in/richard-urso-66b95a136)：Medical Doctor at Houston Eye Associates，中文：休斯顿眼科协会的医生
-![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.png)
-关于Ryan Cole, MD 据[领英——Ryan Cole](https://www.linkedin.com/in/ryan-cole-md-54020389/)：Dermatopathologist CEO/Lab Director at Cole Diagnostics ，中文：Cole Diagnostics 皮肤病理学家首席执行官/实验室主任
-![](https://assets.gnews.org/wp-content/uploads/2021/10/005.png)
-关于Craig M. Wax DO据[领英——Craig M. Wax DO](https://www.linkedin.com/in/craigwax/)：Executive Vice President, Magid Associates，中文：Magid Associates 执行副总裁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/006.png)
-关于这张图片的来源是这样的——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/007.jpg)
-也就是说Craig M. Wax D.O.抛出了狗骨头，然后蛇妖闫第一个叼起了狗骨头并叫唤了第一声，那么与Craig M. Wax D.O.和蛇妖闫一起叫唤的还有哪些呢？在用这张图片进行谷歌匹配之后，我们可以得到的拼图是这样的——
+首先，故事中没有具体的人、具体的时间和具体的地点。其次，所述病人没有具体的症状，也没有病情发展的过程。其三，没有说明所述病人的具体治疗过程、是否用药。其四，所述病人说话的对象只说是家人，具体是谁不清楚；推测他的妻子当时不在。其五，所述病人的家人是否感染病毒，不清楚。其六，所述病人进入ICU时的具体情况不清楚，进入ICU后是怎么抢救治疗的不清楚。其七，黄医生是在什么时间地点听到所述病人说打疫苗的话的、当时说话的状态如何，不清楚。其八，所述病人的死亡过程和死因都没有交代。最后，编造整个故事的唯一目的，就是假借所述病人之口，说出让世人尽快去接种疫苗毒针；暗含逻辑是，否则就会像这个“病人”一样，感染中共病毒而死。
 
-以下为谷歌匹配的第一页：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/008.jpg)
-以下为谷歌匹配的第二页：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/009-1.jpg)
-也就是说自蛇妖闫的疑似床圈和蛇妖闫鸡鸣狗叫地抛出这张照片之后，在推特上的响应者包括重复的人满打满算也凑够了谷歌搜索的两张页面。
+基本可以肯定，这是一个邪恶势力控制的假新闻媒体CBC与一个良知被收买的黄医生合作编造的假故事，故事中描述的那样的病人存在的可能性很小。即便有这样一个真实的病人存在，他的染病、病情发展和死亡真相，极可能是与假新闻完全相反的故事版本。
 
-蛇妖闫参加的这次会议是什么背景？蛇妖闫和这张图片上的其他四个人中的几个有过床笫之欢我们也不得而知，但是我们知道郭文贵先生吹响的以苗灭共之战不是用照片来进行以苗灭共的，目前可知的至少有两条线，第一条线是向各个国家政府发送关于疫苗真相的相关资料，第二条线是媒体上向公众传递疫苗的真相；
+让我们来根据已知“真相”来描述一种可能的现实故事。所述病人的妻子接种过疫苗毒针，感染了中共病毒后自己无症状，但把病毒传染给了所述病人。所述病人发病后或因症状轻未曾寻求治疗，或曾寻求治疗而不得；加拿大枫叶农场正义小Sara的亲戚经历过，加拿大医院在病人血氧降低以前，既不收治、也不给药。待所述病人因病重住进医院时，这位黄医生要么不知道给、要么被要求不给、要么故意不给那些被证明非常有效的治疗药物如地塞米松、尹维菌素等。可以说，所述病人不是死于病毒感染，而是死于无治疗或错误的治疗。换句话说，是死于黄医生的无知或故意。
 
-那么蛇妖闫用她的疑似床圈一众男友的照片要说明啥呢？我看到了Robert Malone, MD那只轻揽蛇妖腰的咸猪手，我看到了蛇妖闫的手部摆放位置，我想到了“一双玉臂千人枕，半点朱唇万人尝”，我是不是想歪了？罪过！罪过！
+因为有爆料革命、文贵先生及其身后的神秘力量，相信地球人类这次依然会走出黑暗重见光明。人类文明再一次升级的一个重要环节，就是要对这场人类大劫难中所有施害者及其各种协助者，进行审判和追究责任，给予每一个坏人以应得的惩罚。让我们将一个个恶行做好记录。像CBC和黄医生这样的协助作恶者，我们现在要揭露他们的造假恶行，以减少他们能欺骗和误导的受众；将来要通过正当途径，让他们为曾经的协助作恶承担应得的惩罚。
 
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（文章仅代表作者本人观点）
