@@ -2,91 +2,33 @@
 ---
 
 
-## 中国老百姓的用电量 真的太少了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571113/)
+## 秘翻在线：川普要求美国法官强制推特恢复其账户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571168/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-9.jpg)https://gtv.org/video/id=61598b4bd2e2b8174870957a
-郭文贵
-Miles Guo
+#### 文章撰写：寶寶
 
-中国8万5千亿度里面，
-Inside China’s 85 trillion kilowatt of power consumption
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipasteasdf654g65erg465re312021-10-03_21-10-37.png)
 
-我告诉你，你都难以想象, 战友们，
-I tell you, you can’t even imagine it, comrades-in-arms
+据路透社10月2日报道，美国前总统唐纳德·川普周五向佛罗里达州的联邦法官要求推特(TWTR.N)恢复他的账户，推特在1月份以存在煽动暴力风险为由删除了他的账户。
 
-今天为啥我们要普及这个常识
-Today, why do we want to popularize this common sense
+川普向美国佛罗里达州南区地方法院提交了针对 推特的初步禁令请求，称这家社交媒体公司受到美国国会议员的“胁迫”，暂停了他的账户。
 
-因为你们从来没有（想过）有人习惯了在你肝上叉一个管的时候
-because you never thought about it, when you used to be inserted a tube in your liver by the CCP
+1月6日发生的一场骚乱袭击了美国国会大厦，随后推特和其他几个社交媒体平台禁止川普使用其服务。
 
-你永远不知道真相，就像小福利，猫本小哥这些都是中国的精英
-You never know the truth, just like Xiao Fuli and Maoben Xiaoge these Chinese elites
+那次袭击发生在川普发表讲话之后，川普在讲话中重申了他在11月的选举失败是由于普遍存在的选举欺诈行为，虽然这一说法被多个法院和州选举官员驳回。
 
-玉山夫妻，你看这Rachel, 中国人精英中的精英
-Yushan couple, you look at Rachel who is the elite of the Chinese elites
+川普的律师在文件中说，推特“对这个国家的政治话语权有着巨大的权力和控制力、历史上前所未有，而且极大威胁了民主辩论的权力。” 彭博社早些时候报道了该文件。
 
-你连自己电费都不知道，你连电的概念都不知道
-You don’t even know your own electricity bill, you don’t even know the concept of electricity
+路透社联系推特时，推特拒绝就该文件置评。
 
-你不知道电的概念，就像人不知道空气被污染有多重要一样
-You don’t know the concept of electricity, just like people don’t know how important for the air to be polluted
+在永久删除川普的账户时，推特表示他的推文违反了该平台禁止“美化暴力”的政策。 该公司当时表示，川普导致下架的推文“极有可能”鼓励人们重复国会骚乱中发生的事情。
 
-这是爆料革命的伟大，咱不去看人家报纸
-This is the greatness of the whistleblower movement, we don’t read other people’s newspapers
+川普账户被屏蔽之前，他在推特上拥有超过8800万粉丝，并将其用作他的社交媒体扩音器。
 
-就自己的，完全原创的，我告诉你
-All of our owns, completely original, I tell you
+法庭文件显示，川普辩称推特允许塔利班定期发布其在阿富汗军事胜利的推文，但在川普担任总统期间审查他的推文，包括将他的推文标记为“误导性信息”或表明它们违反了公司禁止“美化暴力”的规则。
 
-中国人的工业用电是美国的一倍，
-The industrial electricity consumption of the Chinese is twice that of the U.S.
+7月，川普起诉推特、脸书（Facebook Inc (FB.O) ）和字母控股（Alphabet Inc (GOOGL.O) ）谷歌及其首席执行官，指控他们非法压制保守派观点。
 
-美国大概在1万亿千瓦
-The U.S. is about 1 trillion kilowatts
+参考文章：[**Trump asks U.S. judge to force Twitter to restart his account**](https://www.reuters.com/technology/trump-asks-florida-judge-force-twitter-restart-his-account-bloomberg-news-2021-10-02/)
 
-中国官方说，2.3万亿千瓦，中国实际上3万亿千瓦
-Chinese officials say 2.3 trillion kilowatts, China actually uses 3 trillion kilowatts
-
-甚至更多，中国的工业用电是美国的一倍
-even more, China’s industrial electricity consumption is twice that of the U.S
-
-美国是工业大国，中国老百姓用电，跟人家美国比
-The U.S. is a big industrial country, and how does the electricity consumption of Chinese people twice of United States?
-
-美国的农场里的驴（用电）是多少
-How much is the donkey using electricity on the farm in the United States?
-
-网上查查，我对面的农场养一只牛养一只马的电费是多少钱
-Check it online, how much is the electricity bill for raising a cow and a horse on the farm?
-
-你们查一查，美国的一只驴，
-You go to check it out, a donkey in America
-
-一只驴一只牛，就在我前面这个
-a donkey, a cow, in the farm opposite me
-
-人家（畜生的）平均用电是25度，
-The average electricity consumption of one livestock is 25 KWh
-
-你觉得中国人比美国的驴和猪还值钱吗
-Do you think Chinese people are more valuable than American donkeys and pigs?
-
-中国人有人想过这个问题吗
-Have any Chinese thought about this?
-
-比爹娘还亲的党，让你们过什么日子
-What kind of life does the Communist Party provide to you? and CCP is saying it is more prosperous than your father and your mother?
-
-原视频日期：2021/09/29
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443702922617909264?s=24
-视频时间段 : 0:00-2:07
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+本文仅代表作者本人观点，不代表Gnews平台

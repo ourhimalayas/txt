@@ -2,30 +2,29 @@
 ---
 
 
-## 爆料革命开发全新即时通信软件,正在内测中!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571305/)
+## 美科学家发现中共病毒新变种传播更快
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571330/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-47.png)
-在日前的直播中, 新西兰老班长战友称,经过1年多的研发努力，一个属于我们爆料革命自己的即时通讯软件，已经开始进行内部实测阶段,即将公开发布!
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-1.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-1.jpg)freenews.live
+美东时间10月3日俄媒RBC转述了《纽约时报》的报道称，美国国家过敏和传染病研究所的科学家们得出结论，SARS-CoV-2病毒在不断进化，新的病毒株如阿尔法和德尔塔变种，能够比以前的变种更快地通过空气传播。
 
-因为绑定银行账号用于支付购物, 目前墙内即时通讯是微信一家独大, 而出于亲友交流需要, 微信在海外华人中也同样占据很大份额。但 腾讯作为中共白手套, 在言论管控和信息/咨询收集上早已完全 是政府管控模式 , 使得 真相的传播几无可能 ! 而灭共进程中一旦 防火墙被推倒, 或者微信真正被全球封杀, 被中共自行绞杀,  10几亿人想要知道真相, 想要有一个安全可靠, 没有关键词审核, 不会被封号, 甚至还可能会有结合G系列产品金融功能 的手机通信软件, 那就只有这款爆料革命开发的全新软件了,  市场前景不可限量  ! 而这样一款手机通信软件, 在灭共最后阶段所能发挥的效用,更将是核弹级的 !
+专家们将中共病毒阿尔法（英国毒株）和德尔塔（印度毒株）的变种与早期毒株进行了比较，发现它已经进化，能通过空气飞沫更有效地传播。
 
-(本文仅代表作者观点)
+领导研究小组的病毒学家文森特∙蒙斯特（Vincent Munster）表示，“它看起来像是为了更有效地通过空气传播而对病毒进行的修改，我想我们都部分地预料到了这一点，而现在我们看到它在实时发生。”
 
-参考链接：[https://twitter.com/RyuHayabusaX/status/1444561242710962180](https://twitter.com/RyuHayabusaX/status/1444561242710962180)
+SARS-CoV-2主要通过空气中的飞沫传播，即健康人的呼吸道飞沫进入病人的呼吸道，如咳嗽、打喷嚏或交流时。世界卫生组织（WHO）指出，也可以通过接触被污染的表面，然后接触眼睛、嘴巴或鼻子而受到感染。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+由蒙斯特（Münster）领导的科学家们得出结论，“阿尔法”菌株更有可能通过小飞沫的传播造成新的感染。
 
-终审：文龍
-校正/发稿：谐趣园
+美国马里兰大学的专家进行的另一项研究发现，与早期毒株相比，中共病毒的阿尔法变种增加了呼出空气中的病毒RNA数量。专家们发现，那些感染了阿尔法菌株的人呼出的病毒颗粒约为正常的100倍。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+弗吉尼亚理工学院的病毒学专家林西∙马尔（Lynsey Marr）表示，“这确实表明该病毒正在演变，并更有效地通过空气传播。她相信对感染德尔塔菌株的病例的研究将得到类似的结果。”
+
+专家们以前曾多次指出，德尔塔毒株的传染性远远高于中共病毒的原始毒株。据专家称，未来出现的新变种将使该病毒更加适应于人与人之间的传播。
+
+参考链接：
+
+[https://www.rbc.ru/society/02/10/2021/6158b44d9a7947f34f7c88dd?from=from\_main\_7](https://www.rbc.ru/society/02/10/2021/6158b44d9a7947f34f7c88dd?from=from_main_7)

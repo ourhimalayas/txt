@@ -2,25 +2,35 @@
 ---
 
 
-## 中国彩票再出造假丑闻
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1571243/)
+## 辉瑞公司被控对孤儿进行新冠疫苗试验
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571285/)
 
-韩国首尔天池农场——八木 上传—–追着曙光跑
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-46.png)
+据the expose网站报导，儿童健康保护组织最近接到来自波兰的举报，称辉瑞公司正在对6个月的孤儿进行新冠疫苗试验。为此，波兰议会和参议院成员于10月2日组织了一次紧急会议，讨论对儿童和婴儿进行医学测试的医学、法律和伦理等相关问题。
 
-近日，广西福利彩票官网提前两天发布双色球一等奖中奖信息，引起网民议论。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/插图1.jpeg)图片来源：网络
-根据网民发出的广西福彩官网中奖图片显示：广西福彩中奖信息时间显示为2021-09-28。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-2.jpeg)
 
-还没有到开奖日期，539万元的中奖消息就被福彩内部人员提前预知发布了。新闻爆出后广西福彩中心辩称是由于工作人员将发布时间错误操作，9月30日的开奖日期设置成了9月28日。对于这种回应，但凡有点电脑常识的人都知道，信息发布的时间是根据计算机当时发布的时间自动生成的，并不能手动设置。
+据辉瑞官网9月20日的信息显示，辉瑞疫苗的1/2/3期的试验，最初在美国、芬兰、波兰和西班牙的90多个临床试验地点，招募了多达4千5百名6个月至11岁的儿童。而自2021年6月以来，辉瑞公司一直在对3个月到11岁的波兰儿童进行新冠疫苗试验。据悉，在波兰，一共有8个私人诊所和研究中心正在进行该项试验。但因为辉瑞公司所谓的“秘密”条款，这些事实不为公众所知，甚至连波兰议员也被拒绝查阅相关文件。从非官方报告中得知，6至11岁的儿童已经被注射了辉瑞疫苗，3至5岁的儿童至少注射了一剂。据估计，约1千名波兰儿童可能已经注射了辉瑞疫苗。
 
-福彩内部在彩票系统上作弊这也是常态，只是没想到这次会因为疏忽失误而栽倒在经常操作的事情上，也没想到会有较真的网民盯着它们的举动。真是应了那句老话“多行不义必自毙”。
+鉴于目前没有任何在儿童身上进行疫苗试验的法院受理，辉瑞公司被怀疑未通过合法的途径，对孤儿院和护理院的儿童进行临床试验。该会议表示，如果波兰当局不采取行动，将无法确认这些儿童中有多少人可能或已经面临死亡，或严重的并发症。
 
-彩票的本意也是调动人性中的赌博娱乐心理，把汇集到的资金用于扶贫公益和慈善事业。可中国恰恰相反，多年彩票的收入和支出永远都是一笔黑账，早在前些年被爆出的福彩中心主任，在彩票领域浸淫十多年贪污达千亿人民币，事发后也仅仅只是被问责了事。
+辉瑞疫苗尚未完成成人的第三阶段临床试验，目前已经发生了非常严重的血栓、自身免疫等疾病，还有很多人因为接种疫苗而死亡。这对儿童来说更是危险。婴儿和儿童几乎对新冠病毒是免疫的，仅这一点就足以拒绝对儿童进行疫苗试验。
 
-中国的彩票行业一直就是一个连赌场都不如的地方，彩票抽奖也不采用现场直播的形式，而是提前录制然后造假，没有丝毫的可信度。监管机构更是形同摆设，不管不问甚至同流合污。领奖阶段领奖者也都是带着面具头套，至于是不是彩票内部人员监守自肥也没人知道，监督机构没有回答过这些问题，彩民也没有追究过这些问题。这些存在了二十多年的明显漏洞，依旧挡不住彩民们前赴后继买彩票的热情。
+(本文仅代表作者观点)
 
-中国彩票行业在共产党的管理之下注定只能是一个骗局。中国彩票一直在骗，中国彩民一直受骗。中国彩民已经把彩票当成了一个赌局，而坐庄的共产党正好利用这种近赌似蠢的贪婪人性，收割了一茬又一茬想靠买彩票发财致富的人群。可偏偏还是有许多做着不切实际发财梦的穷人彩民留恋着这个赌场，一个愿打、一个愿挨，屡骗屡买，屡买屡骗地坚持购买彩票。
+参考链接：[BREAKING – Pfizer stand accused of experimenting on orphan babies to test their Covid-19 vaccine](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)
+[PFIZER AND BIONTECH ANNOUNCE POSITIVE TOPLINE RESULTS FROM PIVOTAL TRIAL OF COVID-19 VACCINE IN CHILDREN 5 TO 11 YEARS](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-positive-topline-results)
 
-是广大的中国彩民养活了中国彩票这条坑蒙诈骗偷的产业链，就像坊间那句流传不息的彩票俗语所说的：“它们虚构一个不劳而获的人，来忽悠一群想不劳而获的人，最终养活一群真正不劳而获的人。”
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-（本文仅代表作者观点，与Gnews平台无关）
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

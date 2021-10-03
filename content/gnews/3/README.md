@@ -2,23 +2,27 @@
 ---
 
 
-## 中共军机破纪录地飞跃台湾领空
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571315/)
+## 破纪录39架共机扰台！台海战争一触即发
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571348/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/C-2.jpg)theaviationgeekclub.com
-美东时间10月3日报道，台湾国防部宣布有39架中共战机在10月2日进入台湾领空。这是中共国军机一次穿越台湾领空的最大数量，之前的记录是在前一天创造的，当时有38架战机进入台湾领空。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据国防部称，中共飞机的入侵分两个阶段进行。星期六下午，有20架战机出现，包括14架第四代歼-16战斗机，4架苏-30战斗机和2架运-8运输机。台湾的雷达系统在当天晚上记录了19架中共军机飞跃台湾领空，包括12架J-16战斗机和一架KJ-500远程雷达探测和控制飞机。
+视频参看：2021.10.03早GTV新闻访谈
 
-台湾方面则提升了空中力量，对中共军机飞越的区域进行巡逻。
+[https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c](https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c)
 
-在前一天，有38架中共战机被派往台湾海岸。除了J-16战斗机、苏-30战斗机、KJ-500战斗机和Y-8战斗机之外，还有四架H-6轰炸机出现在飞行战队中。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-中共军机对台湾领空的不断试探和飞跃，预示着随时可以对台湾进行攻击。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-参考链接：
-
-[https://www.rbc.ru/politics/03/10/2021/6159653d9a794717088da80a?from=from\_main\_6](https://www.rbc.ru/politics/03/10/2021/6159653d9a794717088da80a?from=from_main_6)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

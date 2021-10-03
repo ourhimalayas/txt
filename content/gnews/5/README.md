@@ -2,35 +2,53 @@
 ---
 
 
-## 辉瑞公司被控对孤儿进行新冠疫苗试验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571285/)
+## 康州将用国民警卫队取代不符疫苗规定的州雇员
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1571326/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-46.png)
-据the expose网站报导，儿童健康保护组织最近接到来自波兰的举报，称辉瑞公司正在对6个月的孤儿进行新冠疫苗试验。为此，波兰议会和参议院成员于10月2日组织了一次紧急会议，讨论对儿童和婴儿进行医学测试的医学、法律和伦理等相关问题。
+- 编译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-2.jpeg)
 
-据辉瑞官网9月20日的信息显示，辉瑞疫苗的1/2/3期的试验，最初在美国、芬兰、波兰和西班牙的90多个临床试验地点，招募了多达4千5百名6个月至11岁的儿童。而自2021年6月以来，辉瑞公司一直在对3个月到11岁的波兰儿童进行新冠疫苗试验。据悉，在波兰，一共有8个私人诊所和研究中心正在进行该项试验。但因为辉瑞公司所谓的“秘密”条款，这些事实不为公众所知，甚至连波兰议员也被拒绝查阅相关文件。从非官方报告中得知，6至11岁的儿童已经被注射了辉瑞疫苗，3至5岁的儿童至少注射了一剂。据估计，约1千名波兰儿童可能已经注射了辉瑞疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-49.png)
 
-鉴于目前没有任何在儿童身上进行疫苗试验的法院受理，辉瑞公司被怀疑未通过合法的途径，对孤儿院和护理院的儿童进行临床试验。该会议表示，如果波兰当局不采取行动，将无法确认这些儿童中有多少人可能或已经面临死亡，或严重的并发症。
+据《大纪元时报》报道，民主党人内德·拉蒙特(Ned Lamont)周三在一份声明中宣布，如果州雇员不提供COVID-19疫苗接种证明或不遵守每周测试要求，他已指示行政部门的州政府机构准备在10月5日至10月11日期间让他们休无薪假。
 
-辉瑞疫苗尚未完成成人的第三阶段临床试验，目前已经发生了非常严重的血栓、自身免疫等疾病，还有很多人因为接种疫苗而死亡。这对儿童来说更是危险。婴儿和儿童几乎对新冠病毒是免疫的，仅这一点就足以拒绝对儿童进行疫苗试验。
+拉蒙特指示康涅狄格州国民警卫队的弗朗西斯·埃文(Francis Evon)少将准备在 “提供关键健康和安全服务 “的州政府机构出现人员短缺时部署国民警卫队。如果部署，康涅狄格州国民警卫队的合格成员将补充这些人员不足的州政府机构的运作，直到雇用替代员工或被安排无薪休假的员工符合疫苗要求。
 
-(本文仅代表作者观点)
+声明说，截至星期四，该州大约32,000名雇员中的63%已经完全接种了疫苗，12%正在接受每周测试，25%处于不符合规定的状态。
 
-参考链接：[BREAKING – Pfizer stand accused of experimenting on orphan babies to test their Covid-19 vaccine](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)
-[PFIZER AND BIONTECH ANNOUNCE POSITIVE TOPLINE RESULTS FROM PIVOTAL TRIAL OF COVID-19 VACCINE IN CHILDREN 5 TO 11 YEARS](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-positive-topline-results)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-51.png)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+拉蒙特呼吁州政府雇员出于”对同事和公众的尊重”而遵守这一规定，并以身作则。
 
-终审：暗黑
-校正/发稿：谐趣园
+拉蒙特在声明中说：”我们已经为大多数州的员工提供了每周接受测试而不是接种疫苗的选择，比我们邻近的州提供了更多的灵活性。”我们还为我们的员工提供了一个合规宽限期。我们的所有员工没有理由不遵守规定。我继续指望州政府雇员以身作则，尊重他们的同事和公众，遵守这项行政命令，这就是法律。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+8月中旬在康涅狄格州颁布的中共病毒COVID-19疫苗强制令，要求所有州政府雇员和全州所有托儿所和学前班至12年级学校的工作人员在9月27日前至少接受一剂疫苗。
+
+州长的行政命令允许医疗和宗教豁免疫苗接种，这些豁免将”在个性化、个案的基础上”实施。被豁免的雇员必须每周接受强制性的中共病毒检测。
+
+然而，国立医院和长期护理雇员不能选择被豁免和测试以代替疫苗接种。
+
+州雇员遵守规定的原定最后期限被延长一周至10月4日。
+
+康涅狄格州国民警卫队的大卫·皮特里克(David Pytlik)少校在一份声明中告诉新闻8台WTNH：”目前，我们还没有被要求支持任何特定的部门，但我们将继续监测并做好必要的准备。”
+
+国民警卫队有不同类型的单位，其成员有不同类型的技能组合。
+
+声明说，通常情况下，康涅狄格州国民警卫队侧重于”保护生命/肢体/视力和财产”，但在中共病毒大流行期间，它加强了对关键任务的支持，如专业护理设施检查、分发食物和运送个人防护设备。
+
+国民警卫队在其声明中说：”过去的两年教会我们要灵活，我们可能被要求以新的方式支持国家”。
+
+**评论：**
+
+**康州虽然给州雇员选择接种疫苗或者每周做测试的选项，但对国立医院和长照人员却不适用，这简直是不把医疗系统彻底搞垮不罢休的节奏，无数的疫苗致死致残事件也无法唤醒这些无耻的政客。现在十月份了，希望我们暴料革命新中国联邦能够唤醒更多的人，希望文贵先生说的世界各国强制疫苗政策尽快停止，否则人类的未来真的要被邪恶的光明会和中共吞噬掉了。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+新闻来源：[大纪元时报](https://www.theepochtimes.com/connecticut-to-deploy-national-guard-to-address-staffing-shortages-due-to-vaccine-mandate_4027627.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-02)(The Epoch Times) | 作者：Ella Kietlinska
+
+* * *
+
+*校对：阿伯塔*
+*发稿：Nuevo唐人*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
