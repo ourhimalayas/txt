@@ -2,31 +2,31 @@
 ---
 
 
-## 中共国庆当天对台派出38架次军机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1569444/)
+## 哈佛商学院95%的疫苗接种率未能阻止中共病毒的爆发
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569520/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+撰稿：西枫westca
 
-10月1日，中共在其国庆日当天向台湾方向派出了包括喷气式战斗机在内的38架次军机，这是今年以来最大规模的军事威胁。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed.jpg)图片来源：网络照片
+据美国多家媒体近期报道，由于中共病毒阳性病例激增，哈佛商学院目前停止了对所有一年级 MBA 学生和一些二年级学生的校内课堂教学。尽管约超过 95% 的学生和96%教职员工接种了疫苗，但马萨诸塞州波士顿的哈佛商学院（HBS）刚刚经历了大规模的中共病毒爆发。
 
-根据台湾西南防空识别区的空情动态发表的声明，中共解放军出动了25架次的军机，包括18架次歼-16战斗机、四架次苏-30战斗机、两架次轰-6轰炸机和一架运-8反潜机。台湾国防部称，10月1日夜间，解放军又出动了13架次的军机，包括10架次的歼-16战斗机、两架次轰-6轰炸机和一架空警-500预警机。
+这所拥有 1000 多名学生的学校在 9 月份病例开始上升，记录的所有病例中有三分之二来自学生。HBS 的一份声明说，尽管疫苗接种率高且检测频繁，但MBA 学生中的 Covid-19 病例在短短三天内激增了30%”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211002190532.png)图片来自于网络
+哈佛商学院院长 Srikant Datar 说：“我们的阳性率是哈佛其他学校的 12 倍。这些令人痛心的数字如此之高，以至于引起了当地公共卫生官员的审查。” 该大学在听取了市和州立公共卫生官员的建议后做出了决定。
 
-作为应对，台湾空军派遣空中巡逻兵力应对、进行广播驱离与防空飞弹追踪监控。
+Datar宣布，在10月底前，几乎所有学生都将在线教学。 这一变化影响了几乎所有的第一年和一些第二年的课程。这是一所主要大学在秋季开学后因中共病毒爆发而停止课堂教学的首批实例。
 
-过去两年来，中共几乎天天向台湾岛方向派遣军机，不断通过演练等方式加大对台湾的军事骚扰。
+HBS 还宣布，为减缓病毒传播，无论疫苗接种情况如何，所有商科学生都必须每周接受3 次 Covid-19 测试。此前，该大学的要求是完全接种疫苗的学生每周检测一次，未接种疫苗的学生每周检测两次。哈佛还要求学生避免与家人以外的任何人参加社交聚会，而是在网上与朋友社交。
 
-当日，美国国防部副部长希克斯在一次视频对话会上回答关于中共国军事威胁台湾的问题时重申，美国将一如既往信守对台湾的承诺，帮助台湾提升自卫能力。她强调，对于中共国咄咄逼人的态势，美国拥有强大能力来遏制任何此类潜在威胁。
+哈佛商学院发言人兼通讯主管马克·考特拉还表示，学生应避免不戴口罩在室内聚集或成群结队旅行。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+据华尔街日报报道，接触追踪者发现，大多数感染者是在校外聚会中的学生， 而不是在课堂教学的环境内。另一个可能的感染点是出外的团体旅行。而哈佛否认参与任何事件的组织或执行。
 
-*参考链接：*
+如果感染是在课堂外感染的，那么结束面对面教学的意义何在？事实证明接种疫苗不能使人们真正免疫，那政府为什么要强制疫苗？接种疫苗后的副作用逐渐显露，造成的后果谁来负责？
 
-[今年最大规模：北京在国庆日向台湾方向派出38架次军机](https://www.voachinese.com/a/china-sent-38-military-aircrafts-towards-taiwan-on-national-day-20211001/6253802.html)
+新闻来源：
 
-[面对中国军事威胁台湾 美国承诺帮助台湾提升自卫能力](https://www.voachinese.com/a/us-deputy-defense-secretary-on-potential-china-military-incursion-into-taiwan-20211002/6254441.html)
+[https://www.wsj.com/articles/harvard-business-school-suspends-most-in-person-m-b-a-classes-and-networking-after-covid-19-outbreak-11632849496](https://www.wsj.com/articles/harvard-business-school-suspends-most-in-person-m-b-a-classes-and-networking-after-covid-19-outbreak-11632849496)
 
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+[https://universitybusiness.com/harvard-business-school-goes-online-for-some-students-after-covid-19-outbreak/](https://universitybusiness.com/harvard-business-school-goes-online-for-some-students-after-covid-19-outbreak/)

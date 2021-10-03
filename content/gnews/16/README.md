@@ -2,27 +2,38 @@
 ---
 
 
-## 近60架中共战机在两天内进入台湾防空识别区
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1569607/)
+## 日本养老金管理机构暂缓投資中国国债
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569682/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+栏目记者：andy5/文仁
+责任编辑：文仁
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T-1.jpg)foreignaffairs.com
-日本共同社新闻报道，10月2日台湾国防部称，共有20架中国军机，包括战斗机和轰炸机，进入该地区。包括10月1日的38架，近60架中共战机在两天内进入了台湾防空识别区，这是自9月份台湾开始披露相关信息以来的单日最高纪录。
 
-10月1日白天有25架飞机进入该区域，晚上有13架。据台湾国防部称，一些中共战机在穿越分隔台湾和菲律宾的巴士海峡后，飞到了台湾东岸附近的一个地区。台湾军机连续两天紧急起飞，警告大陆飞机离开。
 
-据台湾国防部统计，今年共有500多架中共战机进入台湾防空识别区。台湾对中共国提出尖锐批评。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
 
-台湾行政院长苏贞昌周六上午对记者说：“中共一直在肆意进行军事侵略，破坏地区和平。”
 
-中共尚未对此置评，但此前曾表示称，此类飞行是为了保护国家主权，并针对台湾与美国之间的“勾结”，因美国是台湾最重要的国际支持者。
 
-中共加大了军事和政治压力，试图迫使台湾接受中共国主权。台湾表示，它是一个独立的国家，将捍卫它的自由和民主。爆料革命和新中国联邦创始人郭文贵先生提供情报称，中共为了维系摇摇欲坠的政权和濒临崩溃的经济，必然会攻打台湾。美国和中共勾兑，并不会在第一时间对台湾施以援手。台湾更可怕的是有内鬼接应，面对中共的进攻将无招架之力，台湾危矣！
+【日本经济新闻（日经中文网）】报道：恒大事件之后，日本养老金管理机构（GPIF）暂缓投资中共国国债 ， 作为该机构投资参考的重要依据的英国富时罗素（FTSE Russell）指数在3月宣布把中国国债纳入该指数，在目前市场混乱风险剧增的情况下各国都非常关注GPIF 是否启动对人民币国债的投资。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-1.jpg)
+郭文贵先生的直播爆料中也多次提到，在贪婪的华尔街资本的撮合下，美欧日澳等多国已经把自己国家的各給类基金投资到了中共国，那些基金都是各国老百姓的养老钱，救命钱。现在中共国随着恒大的爆雷，一连串类似的金融事件会随之发生，各国将很难收回自己的投资， 甚至血本无归，这是中共捆绑世界的一个手段， 如果世界不早日醒来认清中共的本质，消灭中共，那世界将会被中共一起拖入一个黑暗的泥潭。
+
+（本文仅代表作者观点）
 
 参考链接：
+1. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
+2. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
 
-[https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/](https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html](https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html)
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
