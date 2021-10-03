@@ -2,37 +2,91 @@
 ---
 
 
-## 俄中联合声称，AUKUS威胁到核不扩散
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1571098/)
+## 中国老百姓的用电量 真的太少了
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571113/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aukusaustsubs-1.jpg)图片：澳大利亚军事，来自盖蒂图片社
-**摘要翻译：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-9.jpg)https://gtv.org/video/id=61598b4bd2e2b8174870957a
+郭文贵
+Miles Guo
 
-俄罗斯警告称，美国、英国和澳大利亚之间的新军事协议威胁到全球核不扩散。这一被称为AUKUS的协议是一项旨在对抗中共国的军事技术共享协议。根据该协议，澳大利亚将获得建造核动力潜艇的技术，这将使堪培拉成为第一个拥有核动力潜艇的无核武装国家。
+中国8万5千亿度里面，
+Inside China’s 85 trillion kilowatt of power consumption
 
-据俄罗斯通讯社塔斯社报道，俄罗斯副外长谢尔盖·里亚布科夫说，“这对国际核不扩散政权是一个巨大的挑战。”
+我告诉你，你都难以想象, 战友们，
+I tell you, you can’t even imagine it, comrades-in-arms
 
-里亚布科夫还表示，俄罗斯对英国今年早些时候宣布的扩大其核武库的计划感到担忧。今年3月，英国宣布，他们将自冷战以来首次增加核储备。伦敦将把其核弹头的上限从目前的180枚提高到260枚。
+今天为啥我们要普及这个常识
+Today, why do we want to popularize this common sense
 
-上个月，在AUKUS协议首次公布后，中共国外交部发言人赵立坚谴责了该伙伴关系，称它“严重破坏地区和平与稳定，加剧军备竞赛，损害国际核不扩散努力。”
+因为你们从来没有（想过）有人习惯了在你肝上叉一个管的时候
+because you never thought about it, when you used to be inserted a tube in your liver by the CCP
 
-**简评：**
+你永远不知道真相，就像小福利，猫本小哥这些都是中国的精英
+You never know the truth, just like Xiao Fuli and Maoben Xiaoge these Chinese elites
 
-美英澳三国共同签署的这一项历史性安全协议，除了协助澳洲完成建造核动力航母，还将在三国之间分享先进的防御技术及情报。据美国前国家安全顾问博明分析，海底作战能力一直是中共国的弱点，澳洲如果拥有一支核潜艇舰队，将有效遏制中共国在印太地区的军事威胁。
+玉山夫妻，你看这Rachel, 中国人精英中的精英
+Yushan couple, you look at Rachel who is the elite of the Chinese elites
 
-中共国的军事力量发展一直不透明，2019年8月，美国川普政府正式退出与俄罗斯签署的中导条约就是为了把美国从类似自我限制中解脱出来，以对抗中共政权借机发展相关军事装备的行为。对待中共这样的流氓政权，就应该以非常规的方式加以制衡。虽然俄中声称此次协议的签署威胁到核不扩散，但该协议明确声明澳洲建造的只是核动力潜艇，而非发展核武器，所以此举并未违背联合国的《不扩散核武器条约》。
+你连自己电费都不知道，你连电的概念都不知道
+You don’t even know your own electricity bill, you don’t even know the concept of electricity
 
-[新闻链接](https://www.zerohedge.com/geopolitical/russia-joins-china-saying-aukus-threatens-nuclear-non-proliferation)
+你不知道电的概念，就像人不知道空气被污染有多重要一样
+You don’t know the concept of electricity, just like people don’t know how important for the air to be polluted
 
-***编辑：【英国伦敦喜庄园编辑部】***
+这是爆料革命的伟大，咱不去看人家报纸
+This is the greatness of the whistleblower movement, we don’t read other people’s newspapers
 
-*翻译/简评：Harvey (叶知秋) |校对：感恩*
+就自己的，完全原创的，我告诉你
+All of our owns, completely original, I tell you
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+中国人的工业用电是美国的一倍，
+The industrial electricity consumption of the Chinese is twice that of the U.S.
 
+美国大概在1万亿千瓦
+The U.S. is about 1 trillion kilowatts
 
-编辑：【英国伦敦喜庄园编辑部】
+中国官方说，2.3万亿千瓦，中国实际上3万亿千瓦
+Chinese officials say 2.3 trillion kilowatts, China actually uses 3 trillion kilowatts
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+甚至更多，中国的工业用电是美国的一倍
+even more, China’s industrial electricity consumption is twice that of the U.S
+
+美国是工业大国，中国老百姓用电，跟人家美国比
+The U.S. is a big industrial country, and how does the electricity consumption of Chinese people twice of United States?
+
+美国的农场里的驴（用电）是多少
+How much is the donkey using electricity on the farm in the United States?
+
+网上查查，我对面的农场养一只牛养一只马的电费是多少钱
+Check it online, how much is the electricity bill for raising a cow and a horse on the farm?
+
+你们查一查，美国的一只驴，
+You go to check it out, a donkey in America
+
+一只驴一只牛，就在我前面这个
+a donkey, a cow, in the farm opposite me
+
+人家（畜生的）平均用电是25度，
+The average electricity consumption of one livestock is 25 KWh
+
+你觉得中国人比美国的驴和猪还值钱吗
+Do you think Chinese people are more valuable than American donkeys and pigs?
+
+中国人有人想过这个问题吗
+Have any Chinese thought about this?
+
+比爹娘还亲的党，让你们过什么日子
+What kind of life does the Communist Party provide to you? and CCP is saying it is more prosperous than your father and your mother?
+
+原视频日期：2021/09/29
+原视频链接: https://twitter.com/se1y7cblljselva/status/1443702922617909264?s=24
+视频时间段 : 0:00-2:07
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
