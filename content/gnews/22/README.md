@@ -2,28 +2,44 @@
 ---
 
 
-## 傅政华落马，司法部连夜开会表忠心
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1570949/)
+## 中共中纪委公告：原司法部长傅政华被立案调查
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1570951/)
 
-栏目记者/责任编辑：文龙
+作者：香草山农场-文仁
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-10月2日晚，中共现任司法部党组书记、部长唐一军连夜召开会议，传达中纪委及习中央对前司法部长傅政华进行调查处理的决定，并表示坚决拥护表忠心。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.3AM-PICTURES-1234图片备用.001.jpeg)
-傅政华曾在中共公安系统内部任职长达48年，2013年任公安部副部长，2018年任改组后的新司法部首任部长，傅政华是中共自”十九大”以来，继公安部副部长孟宏伟、孙力军之后落马的第三位中共公安及司法系统内之高官。可以说傅政华就是中共 “以警治国、以黑治国”暴政的代言人之一，贪腐巨量且害人无数 !  因此即使在墙内微信，傅政华的落马也引发网友的一片支持甚至欢呼！当然这一切并不是中共官媒宣传的所谓 “肃清人民警察队伍”的正义之举，而是爆料革命逐一揭露中共丑陋的真相之后，盗国贼集团内部的相互撕咬和自爆而已。同时也验证了”以共灭共”迈入了另一个新的阶段！
-(本文仅代表作者观点)
 
-参考链接： [傅政华被查 司法部连夜开会：拥护中央决定 肃清流毒影响](https://www.163.com/news/article/GLC8NGNC0001899O.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+中央纪委国家监委网站讯（10月2日11时）：全国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
 
-校正/发稿：我不在这里
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片32.png)
+
+傅政华现年66岁，2010-2015.2月北京市公安局党委书记、公安局长、北京市政法委书记，2015.1-2018.2任公安部副部长、中央政法委员、中央610办公室主任，2018.3-2020.4任司法部党组副书记、部长，2020年以后任中共政协闲职。
+
+郭先生2017年最早曝光傅政华腐败， 他自己以及亲属利用他在地方和中央的各级公安、政法委等领域重要职位的权力大搞权钱交易，收受贿赂，拉帮结派。
+
+通过傅政华我们就看出中共国的以假治国、以警治国、以黑治国的黑暗与腐败的本质。就在2019年3月时任司法部长的傅政华高调出镜，说要让法律长出牙齿，成为带点的高压线。结果现在这副獠牙变成了绞肉机，把他自己给绞了。
+
+中共国在这样一帮乌合之众的统治与管理之下，老百姓已经无处声张正义。只有消灭中共， 中国才有机会回归法治，走向正道主义。
+
+参考链接：
+
+[https://www.ccdi.gov.cn/toutiao/202110/t20211002\_251687\_m.html](https://www.ccdi.gov.cn/toutiao/202110/t20211002_251687_m.html)
+[https://www.sohu.com/a/300622582\_114731](https://www.sohu.com/a/300622582_114731)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)

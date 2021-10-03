@@ -2,91 +2,20 @@
 ---
 
 
-## 中国老百姓的用电量 真的太少了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571113/)
+## 秘翻在线 :美国的权贵成为不须配戴口罩的高级种姓
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571118/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-9.jpg)https://gtv.org/video/id=61598b4bd2e2b8174870957a
-郭文贵
-Miles Guo
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg.png)
+图片来源：nypost
 
-中国8万5千亿度里面，
-Inside China’s 85 trillion kilowatt of power consumption
+根据《零对冲》(Zero Hedge)的报导, 种姓阶级制度(Caste systems)不仅在印度存在，在中共病毒的配戴口罩乱象中，美国也出现了类似的种姓制度。
 
-我告诉你，你都难以想象, 战友们，
-I tell you, you can’t even imagine it, comrades-in-arms
+在大都会艺术博物馆慈善晚宴(Met Gala)上，身着印有“Tax the Rich”白色礼服的亚历山卓·欧加修-寇蒂兹(Alexandria Ocasio-Cortez )众议员以及其他艺人并没有配带口罩。美国奥巴马前总统的60岁派对上，政界领袖、商界大亨和好莱坞名人在内的所有客人也没有戴口罩；相对的，厨师、服务员、服务员和其他工作人员全部都需要配戴口罩。
 
-今天为啥我们要普及这个常识
-Today, why do we want to popularize this common sense
+在国会进步核心小组主席众议员普拉米拉·贾雅帕尔(Pramila Jayapal,D-Wash)的聚会中，视频上所有与会者都没有配戴口罩。旧金山市长伦敦·布里德(London Breed)在具乐部聚会时违反了自己的口罩规定。艾美奖颁奖典礼上也有一些不戴口罩的演员、制片人和导演，而其他所有的工作人员和服务员全部戴口罩。这就是美国高阶种性与低阶种性的明显差别。
 
-因为你们从来没有（想过）有人习惯了在你肝上叉一个管的时候
-because you never thought about it, when you used to be inserted a tube in your liver by the CCP
+美国《独立宣言》中“人人生而平等”，意味着每个人享有平等的权利。宪法不仅规定了权利平等，而且规定了法律规定的平等待遇。但是由民主党人组成的进步精英正试图在美国创造一个区分精英高阶种姓和大众低阶种姓的社会，根据他们所处不同种姓地位，对每个群体创造不同的规则。
 
-你永远不知道真相，就像小福利，猫本小哥这些都是中国的精英
-You never know the truth, just like Xiao Fuli and Maoben Xiaoge these Chinese elites
-
-玉山夫妻，你看这Rachel, 中国人精英中的精英
-Yushan couple, you look at Rachel who is the elite of the Chinese elites
-
-你连自己电费都不知道，你连电的概念都不知道
-You don’t even know your own electricity bill, you don’t even know the concept of electricity
-
-你不知道电的概念，就像人不知道空气被污染有多重要一样
-You don’t know the concept of electricity, just like people don’t know how important for the air to be polluted
-
-这是爆料革命的伟大，咱不去看人家报纸
-This is the greatness of the whistleblower movement, we don’t read other people’s newspapers
-
-就自己的，完全原创的，我告诉你
-All of our owns, completely original, I tell you
-
-中国人的工业用电是美国的一倍，
-The industrial electricity consumption of the Chinese is twice that of the U.S.
-
-美国大概在1万亿千瓦
-The U.S. is about 1 trillion kilowatts
-
-中国官方说，2.3万亿千瓦，中国实际上3万亿千瓦
-Chinese officials say 2.3 trillion kilowatts, China actually uses 3 trillion kilowatts
-
-甚至更多，中国的工业用电是美国的一倍
-even more, China’s industrial electricity consumption is twice that of the U.S
-
-美国是工业大国，中国老百姓用电，跟人家美国比
-The U.S. is a big industrial country, and how does the electricity consumption of Chinese people twice of United States?
-
-美国的农场里的驴（用电）是多少
-How much is the donkey using electricity on the farm in the United States?
-
-网上查查，我对面的农场养一只牛养一只马的电费是多少钱
-Check it online, how much is the electricity bill for raising a cow and a horse on the farm?
-
-你们查一查，美国的一只驴，
-You go to check it out, a donkey in America
-
-一只驴一只牛，就在我前面这个
-a donkey, a cow, in the farm opposite me
-
-人家（畜生的）平均用电是25度，
-The average electricity consumption of one livestock is 25 KWh
-
-你觉得中国人比美国的驴和猪还值钱吗
-Do you think Chinese people are more valuable than American donkeys and pigs?
-
-中国人有人想过这个问题吗
-Have any Chinese thought about this?
-
-比爹娘还亲的党，让你们过什么日子
-What kind of life does the Communist Party provide to you? and CCP is saying it is more prosperous than your father and your mother?
-
-原视频日期：2021/09/29
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443702922617909264?s=24
-视频时间段 : 0:00-2:07
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[The COVID Caste System](http://The%20COVID%20Caste%20System)
