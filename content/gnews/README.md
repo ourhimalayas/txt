@@ -15,125 +15,125 @@
 
 ---
 
-### [十一话国殇 喀秋莎农场GTV特别节目](/content/gnews/1/README.md)
+### [圣何塞市正式就其反华政策和歧视历史向华人社区道歉](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [十一话国殇 喀秋莎农场GTV特别节目](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [美国COVID-19死亡人数达到70万人！](/content/gnews/2/README.md)
+### [美国COVID-19死亡人数达到70万人！](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共电力产业被几大家族操纵着](/content/gnews/3/README.md)
+### [中共电力产业被几大家族操纵着](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [港币即将消失，人民币将变“扔冥币”。世界面临反华危机。](/content/gnews/4/README.md)
+### [港币即将消失，人民币将变“扔冥币”。世界面临反华危机。](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [国际要闻汇编 10.3](/content/gnews/5/README.md)
+### [国际要闻汇编 10.3](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [破纪录39架共机扰台！台海战争一触即发](/content/gnews/6/README.md)
+### [破纪录39架共机扰台！台海战争一触即发](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [美科学家发现中共病毒新变种传播更快](/content/gnews/7/README.md)
+### [美科学家发现中共病毒新变种传播更快](/content/gnews/8/README.md)
  ` HimalayaRussia`
 
-### [康州将用国民警卫队取代不符疫苗规定的州雇员](/content/gnews/8/README.md)
+### [康州将用国民警卫队取代不符疫苗规定的州雇员](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共军机破纪录地飞跃台湾领空](/content/gnews/9/README.md)
+### [中共军机破纪录地飞跃台湾领空](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [爆料革命开发全新即时通信软件,正在内测中!](/content/gnews/10/README.md)
+### [爆料革命开发全新即时通信软件,正在内测中!](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞公司被控对孤儿进行新冠疫苗试验](/content/gnews/11/README.md)
+### [辉瑞公司被控对孤儿进行新冠疫苗试验](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [Fauci Emails:福奇资助了武汉最致命实验室的培训](/content/gnews/12/README.md)
+### [Fauci Emails:福奇资助了武汉最致命实验室的培训](/content/gnews/13/README.md)
  ` wenwu`
 
-### [加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/13/README.md)
+### [加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [孟晚舟是习派获取巨额财富的钥匙，两年内芯片将被取代。](/content/gnews/14/README.md)
+### [孟晚舟是习派获取巨额财富的钥匙，两年内芯片将被取代。](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中国彩票再出造假丑闻](/content/gnews/15/README.md)
+### [中国彩票再出造假丑闻](/content/gnews/16/README.md)
  ` 首尔天池农场`
 
-### [中共载7枚核弹绕飞，中共对台湾进行军事恫吓！](/content/gnews/16/README.md)
+### [中共载7枚核弹绕飞，中共对台湾进行军事恫吓！](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [10/3/21 香港快讯 职工盟特别会员大会 解散议案获大比数通过](/content/gnews/17/README.md)
+### [10/3/21 香港快讯 职工盟特别会员大会 解散议案获大比数通过](/content/gnews/18/README.md)
  ` 英喜-粵語組`
 
-### [中共国拉闸限电的真相及对世界的影响](/content/gnews/18/README.md)
+### [中共国拉闸限电的真相及对世界的影响](/content/gnews/19/README.md)
  ` 银河勇气之星`
 
-### [秘翻在线：川普要求美国法官强制推特恢复其账户](/content/gnews/19/README.md)
+### [秘翻在线：川普要求美国法官强制推特恢复其账户](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|日本养老金管理机构暂缓投資中国国债](/content/gnews/20/README.md)
+### [有声|日本养老金管理机构暂缓投資中国国债](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|学徒制创业公司 “多维宇宙” 融资1.3亿美元](/content/gnews/21/README.md)
+### [有声|学徒制创业公司 “多维宇宙” 融资1.3亿美元](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [秘翻在线 :美国的权贵成为不须配戴口罩的高级种姓](/content/gnews/22/README.md)
+### [秘翻在线 :美国的权贵成为不须配戴口罩的高级种姓](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国老百姓的用电量 真的太少了](/content/gnews/23/README.md)
+### [中国老百姓的用电量 真的太少了](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|十一国殇日，中共军机再度袭扰台湾](/content/gnews/24/README.md)
+### [有声|十一国殇日，中共军机再度袭扰台湾](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [恒大就是一个射出的带火的箭](/content/gnews/25/README.md)
+### [恒大就是一个射出的带火的箭](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄中联合声称，AUKUS威胁到核不扩散](/content/gnews/26/README.md)
+### [俄中联合声称，AUKUS威胁到核不扩散](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|声讨中共暴政，欧洲维族人巴黎大游行](/content/gnews/27/README.md)
+### [有声|声讨中共暴政，欧洲维族人巴黎大游行](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [新南威尔士州州长推动接种疫苗；近日因受反腐独立委员会调查辞职](/content/gnews/28/README.md)
+### [新南威尔士州州长推动接种疫苗；近日因受反腐独立委员会调查辞职](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳大利亚警察“随机”检查民众，确保他们没有行使公民抗议权](/content/gnews/29/README.md)
+### [澳大利亚警察“随机”检查民众，确保他们没有行使公民抗议权](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [汉堡王美国门店要求出示疫苗接种卡才能点单](/content/gnews/30/README.md)
+### [汉堡王美国门店要求出示疫苗接种卡才能点单](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [数百名抗议者集结抗议昆州推行强制疫苗](/content/gnews/31/README.md)
+### [数百名抗议者集结抗议昆州推行强制疫苗](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [独家报道：新的电子邮件证明福奇资助了武汉实验室培训](/content/gnews/32/README.md)
+### [独家报道：新的电子邮件证明福奇资助了武汉实验室培训](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [从&#8221;毛粉&#8221;到中共揭露者，著名前驻华记者梅兆赞去世](/content/gnews/33/README.md)
+### [从&#8221;毛粉&#8221;到中共揭露者，著名前驻华记者梅兆赞去世](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [国会议员呼吁将中共生物公司列入黑名单](/content/gnews/34/README.md)
+### [国会议员呼吁将中共生物公司列入黑名单](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [中共在国庆日向台湾方向派出38架次军机 台称是最高纪录](/content/gnews/35/README.md)
+### [中共在国庆日向台湾方向派出38架次军机 台称是最高纪录](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [习王斗法：王岐山四大酷吏被抓同时“新冠神药”打击疫苗股何为？](/content/gnews/36/README.md)
+### [习王斗法：王岐山四大酷吏被抓同时“新冠神药”打击疫苗股何为？](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/37/README.md)
+### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [傅政华落马，司法部连夜开会表忠心](/content/gnews/38/README.md)
+### [傅政华落马，司法部连夜开会表忠心](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [Shiva 博士：马里科帕县政府承认信封被修改过](/content/gnews/39/README.md)
+### [Shiva 博士：马里科帕县政府承认信封被修改过](/content/gnews/40/README.md)
  ` wenwu`
-
-### [《军事管制》将是澳洲暴政碾压民主的终极武器吗？](/content/gnews/40/README.md)
- ` 澳喜农场`
 
 ### [郭文贵在爆料革命第一天就准确预言了傅政华的落马](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -180,9 +180,9 @@
 ### [10/1/2021国际财经快讯：比特币、以太币、狗币小幅走高；欧元通胀跃至 13 年高位](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
 
-### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/56/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [秘翻在线：中共大量进口美国牛肉取代澳洲牛肉](/content/gnews/56/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.](/content/gnews/57/README.md)
- ` 秘密翻译组-北美组`
+### [纽约总检察长詹乐霞：关于GTV和Saraca公司的终止刑事和民事调查保证书](/content/gnews/57/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

@@ -2,62 +2,40 @@
 ---
 
 
-## 中共电力产业被几大家族操纵着
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
+## 美国COVID-19死亡人数达到70万人！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571378/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
-[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
+据《路透社》作者：Shaina Ahluwalia, Lasya Priya M & Roshan Abraham，2021年10月1日发布：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2395.png)
+路透10月1日电：根据路透社的统计，时至本周五，美国新冠肺炎累计死亡人数超过70万。与此同时，当局向已接种的人群推行补充接种的加强针，宣称可以保护老年人和从事高风险职业的人群。
 
-**郭文贵
-Miles Guo**
+路透社对公共卫生部门披露的数据的一项分析报告中指出，过去一周，美国平均每天有2000多人死亡，约占1月份死亡人数高峰时期日死亡数的60%。
 
-还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
-everyone don’t forget that there is another key point, who made the trillions of output value?
+据路透社统计，美国COVID-19病例数和死亡人数仍居世界首位，分别占报告感染病例和死亡人数的19%和14%。预计全球范围内死亡人数将超过500万人。
 
-习家没碰过电力产业的利润，这块蛋糕没碰
-The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
+高度传染性的德尔塔病毒变异株导致COVID-19病例激增。根据7日感染病例数动态平均值，COVID-19感染病例数量在9月中旬左右达到顶峰，随后下降到目前的水平，每日感染约117,625万例。
 
-主要是李鹏家里碰的，然后是温家有些碰的
-Li Peng’s family is major player on this, and then Wen’s family have some of it
+这仍然远远超过美国顶级传染病专家安东尼·福奇（Dr.Anthony Fauci）博士所说的每天1万例的感染病例数警戒线。福奇之前表示，如能将日感染数长期控制在1万例以下，便有机会结束这场健康危机。
 
-然后是朱家有些碰的，这些钱都是被几大家族垄断着
-Then Zhu’s family have some of it, all of these money have controlled by several big families
+尽管近几周美国全国住院总人数有所下降，但一些州(尤其是美国南部)的住院人数却逆势大幅上升，给当地医疗系统带来了不小的压力。
 
-现在突然发现，老子这个钱从来没有（碰）
-Now suddenly he found out that I have never been touched these money
+**疫苗加强针**
 
-让你们老赚钱了，中国的煤矿，习家没碰
-Let you make money all the time, Xi’s family never touched China’s coal mines industry
+美国总统拜登周一接种了一剂提供免疫补充作用的疫苗“加强针”，希望为数百万美国人提供一个榜样，让他们知道自己不是一次“额外注射”的试验品。
 
-他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
-He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
+在美国和其他国家仍有许多人未接种疫苗的情况下，科学家们在是否需要接种疫苗“加强针”这一问题上存在分歧。但拜登在8月份还是公开宣布了这一举措，称其是加强对高传染性德尔塔病毒变体保护努力的一部分。
 
-这有烟产业全是几个老杂毛搞的
-This smoking industry is all controlled by a few “old suckers”
+美国疾病控制与预防中心(Centers for Disease Control and Prevention)的数据显示，约56%的美国人已经完成了2剂疫苗的强化接种，约65%的人至少接种了一剂疫苗。
 
-他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
-He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
+纽约的几家医院周一开始以违反州令的理由解雇或停职拒绝接受疫苗接种的医疗工作者。而俄亥俄州的一名联邦法官也作出了有利于一家私人医疗服务提供商的裁决，该公司强制要求员工注射疫苗。
 
-澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
-Australia is controlled by a few families, and also these old rascals who controlled Australia
+美国疾病控制和预防中心的数据显示，中西部和南部一些地区的疫苗接种率落后于东北部和西海岸部分地区，这表明美国农村和城市地区之间存在差距。
 
-所有的人都是过去的江派和胡派之间的关系
-that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
+原文链接：[https://www.reuters.com/world/us/us-covid-19-death-toll-hits-700000-2021-10-01/](https://www.reuters.com/world/us/us-covid-19-death-toll-hits-700000-2021-10-01/)
 
-——————————————————
-
-Date:10/02/2021
-原视频标题:中共电力产业被几大家族操纵着
-The CCP’s power industry is controlled by several big families
-原视频日期：2021/09/29
-原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
-任务编号：KC142（2389）
-视频时间段 : 0:00-0:55
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – 暴力小蘑菇
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 心照
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
