@@ -2,22 +2,25 @@
 ---
 
 
-## 加州所有在校学生恐被安排分阶段接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571261/)
+## 辉瑞公司被控对孤儿进行新冠疫苗试验
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571285/)
 
 栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-45.png)
-周五，加州州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。加州成为全美第一个，宣布要求所有在校学生接种新冠疫苗的州。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-46.png)
+据the expose网站报导，儿童健康保护组织最近接到来自波兰的举报，称辉瑞公司正在对6个月的孤儿进行新冠疫苗试验。为此，波兰议会和参议院成员于10月2日组织了一次紧急会议，讨论对儿童和婴儿进行医学测试的医学、法律和伦理等相关问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-2.jpeg)
 
-除非家长申请医疗或个人信仰豁免，否则，根据规定，他们的孩子将不能参加校园内的现场课程。未接种疫苗的学生，只能选择线上教育，学习各区提供的独立课程或在家接受教育。
+据辉瑞官网9月20日的信息显示，辉瑞疫苗的1/2/3期的试验，最初在美国、芬兰、波兰和西班牙的90多个临床试验地点，招募了多达4千5百名6个月至11岁的儿童。而自2021年6月以来，辉瑞公司一直在对3个月到11岁的波兰儿童进行新冠疫苗试验。据悉，在波兰，一共有8个私人诊所和研究中心正在进行该项试验。但因为辉瑞公司所谓的“秘密”条款，这些事实不为公众所知，甚至连波兰议员也被拒绝查阅相关文件。从非官方报告中得知，6至11岁的儿童已经被注射了辉瑞疫苗，3至5岁的儿童至少注射了一剂。据估计，约1千名波兰儿童可能已经注射了辉瑞疫苗。
 
-为了巨大的经济利益，各大药厂仍在推进疫苗接种。而根据政府的官方数据，近5万人接种新冠疫苗后14天内死亡。在真相工程披露的视频中，强生公司的员工已经明确表示，接种疫苗有潜在的风险，不要给儿童接种疫苗。此前，洛杉矶和圣地亚哥两大学区曾要求12岁以上的在校学生接种疫苗，因遭到家长的强烈质疑和反对，目前该命令已被暂停。爆料革命要持续向各地政要和媒体传播疫苗真相，让更多人了解到疫苗的危害。
+鉴于目前没有任何在儿童身上进行疫苗试验的法院受理，辉瑞公司被怀疑未通过合法的途径，对孤儿院和护理院的儿童进行临床试验。该会议表示，如果波兰当局不采取行动，将无法确认这些儿童中有多少人可能或已经面临死亡，或严重的并发症。
+
+辉瑞疫苗尚未完成成人的第三阶段临床试验，目前已经发生了非常严重的血栓、自身免疫等疾病，还有很多人因为接种疫苗而死亡。这对儿童来说更是危险。婴儿和儿童几乎对新冠病毒是免疫的，仅这一点就足以拒绝对儿童进行疫苗试验。
 
 (本文仅代表作者观点)
 
-参考链接: [Newsom orders COVID vaccines for eligible students, the first state mandate for K-12 schools](https://www.latimes.com/california/story/2021-10-01/newsom-sets-covid-vaccine-mandate-across-california-schools)
+参考链接：[BREAKING – Pfizer stand accused of experimenting on orphan babies to test their Covid-19 vaccine](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)
+[PFIZER AND BIONTECH ANNOUNCE POSITIVE TOPLINE RESULTS FROM PIVOTAL TRIAL OF COVID-19 VACCINE IN CHILDREN 5 TO 11 YEARS](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-positive-topline-results)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 

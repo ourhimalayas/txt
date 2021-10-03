@@ -2,53 +2,27 @@
 ---
 
 
-## 康州将用国民警卫队取代不符疫苗规定的州雇员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1571326/)
+## 破纪录39架共机扰台！台海战争一触即发
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571348/)
 
-- 编译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-49.png)
+视频参看：2021.10.03早GTV新闻访谈
 
-据《大纪元时报》报道，民主党人内德·拉蒙特(Ned Lamont)周三在一份声明中宣布，如果州雇员不提供COVID-19疫苗接种证明或不遵守每周测试要求，他已指示行政部门的州政府机构准备在10月5日至10月11日期间让他们休无薪假。
+[https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c](https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c)
 
-拉蒙特指示康涅狄格州国民警卫队的弗朗西斯·埃文(Francis Evon)少将准备在 “提供关键健康和安全服务 “的州政府机构出现人员短缺时部署国民警卫队。如果部署，康涅狄格州国民警卫队的合格成员将补充这些人员不足的州政府机构的运作，直到雇用替代员工或被安排无薪休假的员工符合疫苗要求。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-声明说，截至星期四，该州大约32,000名雇员中的63%已经完全接种了疫苗，12%正在接受每周测试，25%处于不符合规定的状态。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-51.png)
-
-拉蒙特呼吁州政府雇员出于”对同事和公众的尊重”而遵守这一规定，并以身作则。
-
-拉蒙特在声明中说：”我们已经为大多数州的员工提供了每周接受测试而不是接种疫苗的选择，比我们邻近的州提供了更多的灵活性。”我们还为我们的员工提供了一个合规宽限期。我们的所有员工没有理由不遵守规定。我继续指望州政府雇员以身作则，尊重他们的同事和公众，遵守这项行政命令，这就是法律。”
-
-8月中旬在康涅狄格州颁布的中共病毒COVID-19疫苗强制令，要求所有州政府雇员和全州所有托儿所和学前班至12年级学校的工作人员在9月27日前至少接受一剂疫苗。
-
-州长的行政命令允许医疗和宗教豁免疫苗接种，这些豁免将”在个性化、个案的基础上”实施。被豁免的雇员必须每周接受强制性的中共病毒检测。
-
-然而，国立医院和长期护理雇员不能选择被豁免和测试以代替疫苗接种。
-
-州雇员遵守规定的原定最后期限被延长一周至10月4日。
-
-康涅狄格州国民警卫队的大卫·皮特里克(David Pytlik)少校在一份声明中告诉新闻8台WTNH：”目前，我们还没有被要求支持任何特定的部门，但我们将继续监测并做好必要的准备。”
-
-国民警卫队有不同类型的单位，其成员有不同类型的技能组合。
-
-声明说，通常情况下，康涅狄格州国民警卫队侧重于”保护生命/肢体/视力和财产”，但在中共病毒大流行期间，它加强了对关键任务的支持，如专业护理设施检查、分发食物和运送个人防护设备。
-
-国民警卫队在其声明中说：”过去的两年教会我们要灵活，我们可能被要求以新的方式支持国家”。
-
-**评论：**
-
-**康州虽然给州雇员选择接种疫苗或者每周做测试的选项，但对国立医院和长照人员却不适用，这简直是不把医疗系统彻底搞垮不罢休的节奏，无数的疫苗致死致残事件也无法唤醒这些无耻的政客。现在十月份了，希望我们暴料革命新中国联邦能够唤醒更多的人，希望文贵先生说的世界各国强制疫苗政策尽快停止，否则人类的未来真的要被邪恶的光明会和中共吞噬掉了。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-新闻来源：[大纪元时报](https://www.theepochtimes.com/connecticut-to-deploy-national-guard-to-address-staffing-shortages-due-to-vaccine-mandate_4027627.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-02)(The Epoch Times) | 作者：Ella Kietlinska
-
-* * *
-
-*校对：阿伯塔*
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

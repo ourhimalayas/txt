@@ -2,38 +2,63 @@
 ---
 
 
-## 国际要闻汇编 10.3
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1571362/)
+## 中共电力产业被几大家族操纵着
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
 
-#### 素材：东京樱花团GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
+[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/38jia.jpg)[图片来源](https://www.aboluowang.com/2021/1003/1654751.html)
+**郭文贵
+Miles Guo**
 
-1、[岸田文雄决定新设经济安保相一职](https://china.kyodonews.net/news/2021/10/141915a99870.html)
+还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
+everyone don’t forget that there is another key point, who made the trillions of output value?
 
-根据共同社10月2日报道，日本自民党总裁岸田文雄2日就被指名为首相后的组建内阁事宜，决定新设负责经济安全保障事务的阁僚职位。岸田说这是应对美中对立等国际秩序变化的措施。他还将考虑任命负责该事务的首相助理。
-经济安保是指保护国家和国民免受威胁的安全保障中的经济侧面。随着美中技术竞争加剧，经济安保政策受到重视，日本政府正在着手研究中长期战略。
+习家没碰过电力产业的利润，这块蛋糕没碰
+The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
 
-2、[拜登：将尽全力通过基建和社会开支议案](https://www.voachinese.com/a/biden-pushing-for-infrastructure-bill-20211002/6254789.html)
+主要是李鹏家里碰的，然后是温家有些碰的
+Li Peng’s family is major player on this, and then Wen’s family have some of it
 
-根据路透社周六（10月2日）报道，拜登总统说，他将“拼命”争取让基础建设法案和价值数万亿计美元的社会开支议案在美国国会得到通过，并计划增加旅行，提振美国人民对议案的支持。他说希望这两个议案能改善普通美国民众的生活，包括降低儿童看护的费用等。
-拜登表示相信这两个议案将能过关，但拒绝设定最后期限。他说，“我相信我能做到这点。”
-温和派民主党议员希望众议院立即对参议院已经通过的总额一万亿美元的基础建设议案进行表决，进步派议员希望等待就总额三万五千亿美元的社会开支和气候变化的综合议案达成一致再进行表决。
+然后是朱家有些碰的，这些钱都是被几大家族垄断着
+Then Zhu’s family have some of it, all of these money have controlled by several big families
 
-3、[美国防部承诺：美军能遏制中共潜在威胁](https://www.aboluowang.com/2021/1003/1654903.html)
+现在突然发现，老子这个钱从来没有（碰）
+Now suddenly he found out that I have never been touched these money
 
-据美国智库战略与国际问题研究中心（CSIS）官网公告，美国国防部副部长希克斯（Kathleen Hicks）周五（10月1日）出席线上会议时，被问及对中共以武力威胁台湾的看法，她表示：“美军对此密切监测，夏威夷印太司令部天天注意”。希克斯重申，美国会维持对台承诺，协助台湾阻挡中国对其的威吓。她指出，台湾是拥有包含半导体等先进产业的民主政体，台湾自我防卫能确保民主繁荣，也是美国利益所在。
+让你们老赚钱了，中国的煤矿，习家没碰
+Let you make money all the time, Xi’s family never touched China’s coal mines industry
 
-4、[国殇日中共派38架军机扰台今年最大](https://www.aboluowang.com/2021/1003/1654751.html)
+他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
+He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
 
-中共在十一建立政权日，向台湾方向派出38架次军机，这是今年以来最大规模的展示武力。中华民国国防部周五(10月1日)就台湾西南防空识别区的空情动态发表声明说，作为应对，中华民国军方“派遣空中巡逻兵力应对、广播驱离、放空飞弹追踪”。中共出动的38架次军机包括28架次歼-16战斗机在内，歼16战机为北京自行研制的多用途战机，至今已逾200架，作战半径达1850公里，对台具相当程度威胁性。
+这有烟产业全是几个老杂毛搞的
+This smoking industry is all controlled by a few “old suckers”
 
-5、[涵盖衣食住行 美国涨价超10%的23种商品](https://www.aboluowang.com/2021/1003/1654963.html)
+他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
+He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
 
-一些经济学家表示，通货膨胀再次成为美国的隐忧，且更直接的担忧是某些日常用品价格飞涨，涵盖人们生活的衣食住行方方面面，其中能源产品涨幅最大。
-由于COVID-19大流行，及疫情相关的劳动力和供应短缺继续推高价格，杂货、燃料、车辆和电器等物品的成本在过去一年中增长了10%以上。汽车类、能源产品涨幅最大，食品价格也在上涨。彭博社报导引用联合国粮食及农业组织（FAO）数据指出，8月的粮食价格已经比去年同期上涨33%。
+澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
+Australia is controlled by a few families, and also these old rascals who controlled Australia
 
-（本文只代表个人观点，与Gnews网站无关）
+所有的人都是过去的江派和胡派之间的关系
+that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
 
-校对、发布：东京樱花团 / 野猫
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-3.png)
+——————————————————
+
+Date:10/02/2021
+原视频标题:中共电力产业被几大家族操纵着
+The CCP’s power industry is controlled by several big families
+原视频日期：2021/09/29
+原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
+任务编号：KC142（2389）
+视频时间段 : 0:00-0:55
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
