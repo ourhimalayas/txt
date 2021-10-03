@@ -2,25 +2,30 @@
 ---
 
 
-## 针下亡魂｜泰国 40 岁男救护员接种加强剂12小时内死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1570178/)
+## 疫苗灾情｜法国 32 岁铁人三项运动员接种疫苗后致肺栓塞
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1570258/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 3/10/2021**
+**撰文/ 台湾宝岛农场 天滅中共 ｜发布日期****/ 3/10/2021**
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。 本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。***
+***本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
 * * *
 
-【泰国】叻丕府一名 40 岁的救护员 Prasong Boonkhian 在接种完第三剂阿斯利康 COVID-19 疫苗后的12小时内死亡。
+【法国】圣特斯一名 32 岁的资深铁人三项运动员 Antoine Méchin 接种完第二针莫德纳 COVID-19 疫苗后，身体产生严重不良反应，致使被迫暂停本赛季的所有比赛。
 
-Prasong 是一名志愿救援人员，分别在 6 月 11 日和 7 月 5 日接受了科兴疫苗的注射，并于 9 月 17 日接受了第三针阿斯利康加强剂，翌日凌晨 2 时，他的母亲 Noi 看到他房间的灯还亮着，发现他躺在床上，已经死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Prasong-Boonkhian-1.jpeg)
-据 Prasong 的亲戚描述，Prasong 一直非常健康，很少生病，他的死令他的家人、朋友和同事感到惊讶。
+Antoine 8 月 16 日接种第二剂疫苗之后，出现了呼吸急促和腰痛的症状，据最新的诊断结果显示，他的不良反应是因为接种疫苗后导致肺栓塞。
 
-经叻丕府医院的尸检判断， Prasong 死于心脏骤停，冠状动脉完全阻塞。目前，Prasong 的家人已向泰国国家卫生安全办公室提出赔偿申请。母亲 Noi 表示，“我只想为我的儿子寻求公义，我儿子很健康，我从没想过他会这样死去。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Antoine.jpeg)
 
-来源｜  [个案005](https://thecovidworld.com/prasong-boonkhian-40-year-old-volunteer-rescue-worker-dies-less-than-12-hours-after-the-astrazeneca-covid-19-vaccine/)
+其实， 在 Antoine 6 月 28 日接种完第一针后，他就感到呼吸困难，左臂疼痛，直至 3 周后的一场越野赛期间，他都仍然饱受左臂疼痛和呼吸急促的困扰。当时，Antoine 及时将自己的情况贴在Facebook上，并于第二日，去圣特斯医院接受检查，可惜，医生告诉他不要担心，这些不适的来源是“压力和疲劳”。
 
-他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)
- //[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//
- //[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Antoine-Mechin-1.jpeg)2021年6月越野賽
+
+因此，他接受了第二剂疫苗注射，大约 1 个月后，症状（呼吸急促、身体疼痛）变得更严重，最后被证实患有肺栓塞。
+
+他表示“我现在正在接受治疗，我希望恢复我的肺活量，在那之前我只能休息。如果必须再次接种疫苗，我绝不会接受。”
+
+来源｜[个案006](https://www.sudouest.fr/sport/course-pedestre/triathlon/le-triathlete-saintais-antoine-mechin-met-un-terme-a-sa-saison-et-ne-se-referait-pas-vacciner-si-c-etait-a-refaire-6234090.php)
+
+他们的故事：[//英国 29 岁创意总监接种疫苗后瘫痪//](https://gnews.org/zh-hant/1568385/)

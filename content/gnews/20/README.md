@@ -2,35 +2,25 @@
 ---
 
 
-## 拜登政府施压强制疫苗，美国多家航空公司恐将跟进
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1570380/)
+## 秘翻在线：澳洲警察以居家令为由限制一名女士出门抗议
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1570487/)
 
-栏目记者/责任编辑：葛朗台太太
+#### 翻译/撰稿：黃金精神
 
+#### 校对: Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-1.png)图片来源：SBS中文
+据GP社（Gateway Pundit）10月2日报道,在澳大利亚专制的卫生制度统治下，澳大利亚公民的处境越来越糟。
 
+从该国传出的情景绝对令人震惊。为了应对已经持续数周的大规模抗议活动，澳大利亚政府极左派对手无寸铁的公民采取残酷的暴力手段以杜绝动乱。一群警察在街上游荡，殴打敢于违抗命令的人，然后把他们拖走。当局（警察）甚至伏击毫无戒心的抗议者，在他们逃跑时用非致命性子弹向他们的背后开枪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+尽管受到暴力镇压，大规模抗议活动仍持续了数周时间，而且涌现出更多的人。人群如此之多以至于澳大利亚当局正向政府施压，要求在人数最多的地区上空设立禁飞区以封锁媒体。
 
+现在为了不让更多人去参加抗议活动，澳大利亚当局出现在人们家中恐吓他们因为他们在社交媒体上发表了未经批准的帖子。
 
+最近，两名政府官员被拍到，他们出现在一名毫无戒心的女士家中并试图胁迫她不要离开屋子（去抗议）。这两名“盖世太保”在这位被为难的女士（正当地）拿着相机对着他们之后，才向她解释说，他们收到“指示”，要求专门来找她谈话，因为她在社交媒体上发了一些关于周二即将举行的抗议活动的东西。
 
-拜登政府要求政府承办商必须在12月8日以前完成疫苗接种！航空公司为政府提供特殊航班，货运服务及其他服务，属于拜登政府强制执行疫苗中的政府承包商范畴。根据ABC新闻报道：Alaska Airlines and JetBlue Airways 会遵从政府要求，要求员工打疫苗。戴口罩或者病毒测试都不能取代打疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture77.jpg)
-Delta航空公司正在评估拜登政策，还未最终确定方案。United Airlines美联航则有更加强硬的疫苗接种政策。320名未接种疫苗的员工如果没有宗教或者医疗理由却不能在接止日期前接种的话，将被开除。因为宗教或者医疗理由不得接种疫苗的也将被要求停薪留职，直到疫情得到缓和。Southwest 西南航空和 American Airlines 美国航空都表示受到来自飞行员的巨大压力，他们要求公司提供飞行员除疫苗之外的其它选项，包括病毒测试。
+两名政府官员表示：我在这里提醒你，根据中共病毒居家令，（我们需要）确保你呆在家。无论周二有没有抗议活动，你都不能离开屋子去参加任何形式的抗议活动。
 
-（本文仅代表作者观点）
+当这位女士录下视频对他们进行回击时，这对警察甚至承认抗议是澳大利亚人的宪法权利，但他们根本不在乎，因为他们在服从命令，并威胁这位女士最好也服从命令呆在家里。
 
-参考链接：[拜登政府施压强制疫苗，美国多家航空公司恐将跟进](https://abcnews.go.com/Business/wireStory/white-house-presses-airlines-employees-vaccinated-80357563)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+[**新闻来源**](https://www.thegatewaypundit.com/2021/10/crazy-australian-authorities-show-womans-home-harass-social-media-posts-instructions-posting-things-video/)

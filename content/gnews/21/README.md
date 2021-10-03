@@ -2,39 +2,38 @@
 ---
 
 
-## 朝鲜成功试射一枚新研发的防空导弹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1570379/)
+## 澳洲煤炭大亨揭露NSW州长辞职的真实原因
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1570465/)
 
-栏目记者/责任编辑：正义的小新
+翻译：Rosa
+视频制作：一灯一智
+联合澳大利亚党（United Australia Party)的创始人克莱夫·帕尔默（Cliver Palmer）是一位鲜明反共的政客和商人。帕尔默曾公开指责中共国企图抢占澳大利亚的港口来盗取自然资源，并把中共政府描述为“向自己人民开枪的混蛋”，称中国试图接管我们澳大利亚整个国家。
 
+日前他在接受采访时，爆料新南威尔士前州长（已10月1日被迫辞职）收受大制药商疫苗公司的资金强推疫苗，并指责她在对新洲人民撒谎。
 
+部分访谈录：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+记者：“你现在想对新南威尔士州悉尼市的人民说些什么？”
 
+克莱夫·帕尔默：“总理告诉新南威尔士州的公民，结束封锁唯一的出路是接种两次疫苗，这就是他们被告知的情况。我会说总理是在欺骗他们。”
 
+**我想说她正在接受调查，有悉尼的一个说客控制了悉尼的自由党，他告诉她，唯一能从调查中脱身的方法就是推动接种两次疫苗。这个说客的客户是阿斯利康，是辉瑞制药商。为了使这些政策获得通过，确保疫苗得到推广，她获得了数千万美元的资金。**
 
-** **
+首先，这是我要告诉他们的，我会说总理告诉他们的不是真的。本来就不应该有封城，企业也应该都是是开放的。政府正在用疫情这个作为借口来摧毁他们。
 
-朝鲜官方媒体朝中社10月1日称，朝鲜国防科学院9月30日，成功试射一枚新研发的防空导弹。这是朝鲜9月以来，使用所谓“新的导弹技术”进行的第四次试射。据朝中社报道，朝鲜国防科学研究院表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统等方面，具有非常现实的意义”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture66.jpg)
-对此，日本政府表示，朝鲜此举违反了联合国安理会“禁止使用弹道导弹技术”的决议，同时称朝鲜的试射行为“令人极为遗憾”。与此同时，美国国务卿布林肯9月30日敦促国际社会认真对待朝鲜的导弹发射。布林肯指出，这些导弹发射造成了“更大的不稳定”，美国正与日本和韩国就朝鲜问题进行“积极对话”。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
+在被问及他是否认为新南威尔士州州长想摧毁企业时？他的回答是肯定的。同时他还表示：“我很乐意在这里向警方或任何人发表声明，如果他们想知道发生了什么事的话。我会这样做，也会指名道姓，更重要的是正如我所说，有46,000人，悉尼西郊的20,000人已经决定加入我们的党United Australia Party(联合澳大利亚党）。
 
-（本文仅代表作者观点）
+我们目前确实生活在澳大利亚的民主制度中，而且即将举行选举。政府！联邦政府将被追究责任！
 
-参考链接：
-1. [朝鲜成功试射一枚新研发的防空导弹](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
-2. [朝鲜成功试射一枚新研发的防空导弹](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
+被帕尔默抨击的新南威尔士州州长格拉迪斯贝雷吉克利安已于10月1日宣布辞职，此前，澳大利亚独立反腐调查委员会（IndependentCommission AgainstCorruption， ICAC）透露正在对她“涉嫌违反公众信任”的而发起调查。她在听证会后第二天宣布“被迫辞职”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+该委员会还将在本月晚些时候举行公开听证会，同时也在调查她与前男友前新州南部Wagga Wagga地区的议员达里尔·马奎尔（Daryl Maguire），在她的公共职责与私人利益之间是否存在冲突。
 
-终审编辑：鬼五
-校正/发稿：Hetangyuese
+时值新南威尔士州强推疫苗的关键点，这个辞职的理由相比煤炭大亨克莱夫·帕尔默（Cliver Palmer）这段爆料，似乎有点小儿科。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+（本文纯属个人观点，与Gnews无关）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+相关文章链接：[澳洲NSW州长“涉嫌违反公众信任”在听证会后被迫辞职](https://gnews.org/zh-hans/1565983/)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
