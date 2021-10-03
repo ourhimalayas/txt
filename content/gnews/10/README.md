@@ -2,91 +2,73 @@
 ---
 
 
-## 中国老百姓的用电量 真的太少了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571113/)
+## 10/3/21 香港快讯 职工盟特别会员大会 解散议案获大比数通过
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1571210/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-9.jpg)https://gtv.org/video/id=61598b4bd2e2b8174870957a
-郭文贵
-Miles Guo
+**搜集****/****整理：卡西欧**** **
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1003fenmian.jpg)
+封面素材：立场新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.16.39-AM.png)
+**1. ****职工盟特别会员大会　解散议案获大比数通过**
 
-中国8万5千亿度里面，
-Inside China’s 85 trillion kilowatt of power consumption
+[据【立场新闻】10月03日讯，职工盟上月中宣布启动解散机制，今日（3日）举行特别会员大会作表决。据了解，解散议程在下午 4 时许时已大比数通过。职工盟正会见传媒交代结果。](https://www.thestandnews.com/politics/ab_不斷更新31-年歷史-職工盟今舉行特別會員大會-表決是否解散)
 
-我告诉你，你都难以想象, 战友们，
-I tell you, you can’t even imagine it, comrades-in-arms
+[特别会员大会在下午 2 时开始，共有 48 个属会出席，共有约 67 票，通过解散的八成门槛为 54 票。据了解，第一项议程为「是否通过解散」。](https://www.thestandnews.com/politics/ab_不斷更新31-年歷史-職工盟今舉行特別會員大會-表決是否解散)
 
-今天为啥我们要普及这个常识
-Today, why do we want to popularize this common sense
+[前总干事蒙兆达早前因个人原因请辞，现已离港。前副主席翁爱明、徐考澧亦已离任。](https://www.thestandnews.com/politics/ab_不斷更新31-年歷史-職工盟今舉行特別會員大會-表決是否解散)
 
-因为你们从来没有（想过）有人习惯了在你肝上叉一个管的时候
-because you never thought about it, when you used to be inserted a tube in your liver by the CCP
+[职工盟现时已停收月捐，劳法咨询热线亦会停止，不会再接受新个案。而职工盟举办的培训课程亦已停止收生，涉及超过 200 课程，约 1000 名学员受影响，职工盟目标在 10 月底或以前完成所有课程。](https://www.thestandnews.com/politics/ab_不斷更新31-年歷史-職工盟今舉行特別會員大會-表決是否解散)
 
-你永远不知道真相，就像小福利，猫本小哥这些都是中国的精英
-You never know the truth, just like Xiao Fuli and Maoben Xiaoge these Chinese elites
+[职工盟成立 31 年，在上月 16 日正式向外宣布启动解散机制。主席黄迺元当时表示，过去有成员收到讯息，感受到如继续营运，人身安全可能受威胁，考虑到继续运作对成员的风险、代价等，认为要将目前面对风险，跟属会讨论。早前的执委会议，通过启动解散机制，并余下 4 名执委会成员，包括在囚的秘书长李卓人，及主席黄迺元、副主席邓建华、司库钟松辉。](https://www.thestandnews.com/politics/ab_不斷更新31-年歷史-職工盟今舉行特別會員大會-表決是否解散)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.16.51-AM.png)
+**2. ****政总终撤水马****李家超：回复安全常态****是国安法和「爱国者治港」带给香港**
 
-玉山夫妻，你看这Rachel, 中国人精英中的精英
-Yushan couple, you look at Rachel who is the elite of the Chinese elites
+[据【立场新闻】10月03日讯，政府总部、立法会、中联办等日前终移除水马。政务司司长李家超今日( 3日) 在网志表示，政府总部回复原貌，外围的水马已被移除，形容是「象征香港安全、稳定和信心」，亦是《香港国安法》和「爱国者治港」原则所带给香港的。他指，香港回复安全常态，巩固了本港发展和繁荣的基础，加上「十四五」规划、粤港澳大湾区建设、「前海方案」等「无限机遇」，有信心「香港前途无限」。](https://www.thestandnews.com/politics/政總終撤水馬-李家超回復安全常態-是國安法和愛國者治港帶給香港)
 
-你连自己电费都不知道，你连电的概念都不知道
-You don’t even know your own electricity bill, you don’t even know the concept of electricity
+[李家超又形容，《香港国安法》立竿见影，破坏和反动力量全面减退，外部势力不敢公然插手破坏香港。香港重拾安全和稳定，市民生活回复正常。他又表示：「今届立法会（记者按：应为「今个立法年度」）在「爱国者治港」原则下，既监察政府又具建设性，预期通过的法例有40多条，是过去每年平均20条的一倍（记者按：应为「两倍」）」](https://www.thestandnews.com/politics/政總終撤水馬-李家超回復安全常態-是國安法和愛國者治港帶給香港)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.17.07-AM.png)
+**3. ****港大校长张翔获提前****21****个月续任　任期至****2028****年**
 
-你不知道电的概念，就像人不知道空气被污染有多重要一样
-You don’t know the concept of electricity, just like people don’t know how important for the air to be polluted
+[据【香港电台】10月03日讯，港大校委会主席李国章向教职员、学生和校友发信，表示校委会咨询教务委员会后，一致决定邀请张翔于2023年7月约满后留任多5年，又指出过去3年，张翔具有远见，在处理新型肺炎问题上亦表现出色。考虑到未来的挑战和发展，校委会认为大学领导层的连贯性非常重要，有信心张翔会继续展现强大的领导作用，相信在他带领下，港大的发展能够更上一层楼，并得到本港各界支持。](https://news.rthk.hk/rthk/ch/component/k2/1613310-20211003.htm)
 
-这是爆料革命的伟大，咱不去看人家报纸
-This is the greatness of the whistleblower movement, we don’t read other people’s newspapers
+[香港大学校长张翔获提前续约5年，任期到2028年。](https://news.rthk.hk/rthk/ch/component/k2/1613310-20211003.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.17.16-AM.png)
+**4. 22****岁女被指涉嫌使用假「安心出行」****app****　警以涉使用虚假文书罪拘捕**
 
-就自己的，完全原创的，我告诉你
-All of our owns, completely original, I tell you
+[据【立场新闻】10月03日讯，尖沙咀分区杂项调查队联同卫生署控烟酒办公室人员，昨晚（2 日）巡查区内食肆及酒吧，在宝勒巷捣破一间怀疑无牌卖酒的餐厅，四名年龄介乎 23 至 60 岁男两女顾客，因没有使用「安心出行」应用程式扫瞄场所二维码被票控。另外一名 22 岁女子则怀疑使用虚假「安心出行」应用程式，涉嫌「使用虚假文书」被捕，兼被票控。](https://www.thestandnews.com/society/a-22歲少女疑用假安心出行app-涉使用虛假文書被警拘捕)
 
-中国人的工业用电是美国的一倍，
-The industrial electricity consumption of the Chinese is twice that of the U.S.
+[警方强调，切勿使用任何虚假安心出行应用程式或提供虚假资料，「使用虚假文书」属严重罪行，呼吁市民切勿以身试法。](https://www.thestandnews.com/society/a-22歲少女疑用假安心出行app-涉使用虛假文書被警拘捕)
 
-美国大概在1万亿千瓦
-The U.S. is about 1 trillion kilowatts
+[「安心出行」应用程式的使用权限和私隐一直受社会关注，当局则一直表示程式没有追踪功能，不会备存用户资料到任何政府或其他系统，出行纪录只存放用户手机，个人行踪不会外泄，绝不构成私隐风险。](https://www.thestandnews.com/society/a-22歲少女疑用假安心出行app-涉使用虛假文書被警拘捕)
 
-中国官方说，2.3万亿千瓦，中国实际上3万亿千瓦
-Chinese officials say 2.3 trillion kilowatts, China actually uses 3 trillion kilowatts
+[惟当局随后修改规公告说法，指明须「利用其手机上的『安心出行』流动应用程式扫瞄『安心出行』场所二维码」。](https://www.thestandnews.com/society/a-22歲少女疑用假安心出行app-涉使用虛假文書被警拘捕)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.17.28-AM.png)
+**5. ****许树昌：医管局拟购买新冠口服药物　待科学委员会商讨**
 
-甚至更多，中国的工业用电是美国的一倍
-even more, China’s industrial electricity consumption is twice that of the U.S
+[据【香港电台】10月03日讯，美国有药厂正试验一款治疗新型冠状病毒口服药物，政府专家顾问、中大呼吸系统科讲座教授许树昌表示，医管局有意引入这款药物，初步计划购买500个疗程，但由于这款药仍未注册亦较昂贵，每次疗程约700元美金，有待科学委员会商讨。](https://news.rthk.hk/rthk/ch/component/k2/1613299-20211003.htm)
 
-美国是工业大国，中国老百姓用电，跟人家美国比
-The U.S. is a big industrial country, and how does the electricity consumption of Chinese people twice of United States?
+[许树昌指出，这款药物以5天为一个疗程，早晚一次，适合病况轻微至中等程度，甚至带有高危因素的患者。研究亦显示，在使用该款药物的组别患者中，无人死亡，但在使用安慰剂组别中，有8人死亡。](https://news.rthk.hk/rthk/ch/component/k2/1613299-20211003.htm)
 
-美国的农场里的驴（用电）是多少
-How much is the donkey using electricity on the farm in the United States?
+[他在一个电视节目指出，研究显示，若发病5天内开始服用，效果会更好。](https://news.rthk.hk/rthk/ch/component/k2/1613299-20211003.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.17.37-AM.png)
+**6. ****薛永恒：是时候准备与内地重新通关****将全面检视健康码**
 
-网上查查，我对面的农场养一只牛养一只马的电费是多少钱
-Check it online, how much is the electricity bill for raising a cow and a horse on the farm?
+[据【香港电台】10月03日讯，创新及科技局局长薛永恒表示，本港已经个多月没有本地确诊个案，是时候准备好与内地重新通关，当局正准备检视防疫抗疫工作，包括全面检视「香港健康码」，希望令粤港澳三地联防联控机制做得更好。](https://news.rthk.hk/rthk/ch/component/k2/1613295-20211003.htm)
 
-你们查一查，美国的一只驴，
-You go to check it out, a donkey in America
+[政府专家顾问许树昌透露，创新及科技局正研发「过关码」系统，让需要过关回内地的市民使用，预计将成为其中一项通关条件，当中会包括市民的核酸检测报告、疫苗接种记录，及到内地前3星期内的行踪等，并需要实名制登记。](https://news.rthk.hk/rthk/ch/component/k2/1613295-20211003.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.17.53-AM.png)
+**7.****【****10.1****．美国】中共国驻华盛顿、三藩市大使馆外有港人示威****焚烧五星旗及习近平照片**
 
-一只驴一只牛，就在我前面这个
-a donkey, a cow, in the farm opposite me
+[据【立场新闻】10月03日讯，昨日（10 月 1 日）是中华人民共和国「十一」。由流亡美国的前立法会议员梁颂恒等人成立的 Hong Kong Liberation Coalition （HKLC）等一行十数人，联同世界维吾尔代表大会中共国事务主任伊利夏提（Ilshat H. Kokbore）等数十人，当地时间星期四到中共国驻美大使馆示威。梁颂恒接受《自由亚洲电台（RFA）》访问表示，他们是次行动诉求有三，包括呼吁美国及国际社会杯葛 2022 年北京冬季奥运、加大对中共国制裁力度，及游说美国国会推动对美资公司进行道德调查法案，不容许美国公司投资损害人权的中共国企业。](https://www.thestandnews.com/international/101美國中國駐華盛頓三藩市大使館外有港人示威-焚燒五星旗及習近平照片)
 
-人家（畜生的）平均用电是25度，
-The average electricity consumption of one livestock is 25 KWh
+[而在三藩市，有海外港人周五在中共国总领事馆外示威，期间高举「香港独立」及「光时」等旗帜，有人重申 2019 年反修例运动「五大诉求」，同场有人高举雪山狮子旗及东突厥斯坦旗，及呼吁抵制北京冬奥。示威者又在领事馆门外焚烧中共国国旗及国家主席习近平相片。](https://www.thestandnews.com/international/101美國中國駐華盛頓三藩市大使館外有港人示威-焚燒五星旗及習近平照片)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-03-at-9.18.09-AM.png)
+**8.****【****10.1****·英国】雷丁逾百人集会****置墓碑悼自由****传黄伞拒遗忘**
 
-你觉得中国人比美国的驴和猪还值钱吗
-Do you think Chinese people are more valuable than American donkeys and pigs?
+[据【立场新闻】10月03日讯，中共国「十一」翌日（2 日），继续有港人组织于英国发起集会。其中于雷丁（Reading），有超过 100 人撑伞冒雨参加集会。大会竖立三块「墓碑」，象征自去年 6 月 30 日国安法实施后，香港的司法、经济自由和言论自由已死。不少参加者在墓碑前摆放蜡烛和纸鹤，表示哀悼。活动尾声，集会人士围圈筑起人链传黄伞，象征海外港人拒绝遗忘、传承抗争。](https://www.thestandnews.com/international/101英國雷丁逾百人集會-置墓碑悼自由-傳黃傘拒遺忘)
 
-中国人有人想过这个问题吗
-Have any Chinese thought about this?
+[集会以「悼念失去自由的香港，寄望民主会战胜归来」为题，由港人组织「Reading UK Stands with Hong Kong」发起，于雷丁（Reading）火车站外广场举行 。活动发言人称：「香港人即使流散各地，都必须紧记在极权下所失去的自由。」](https://www.thestandnews.com/international/101英國雷丁逾百人集會-置墓碑悼自由-傳黃傘拒遺忘)
 
-比爹娘还亲的党，让你们过什么日子
-What kind of life does the Communist Party provide to you? and CCP is saying it is more prosperous than your father and your mother?
+【以上观点仅代表笔者本人 并不代表GNEWS立场】
 
-原视频日期：2021/09/29
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443702922617909264?s=24
-视频时间段 : 0:00-2:07
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+校对 / 封面合成：文粤 / 发布：流光飞舞

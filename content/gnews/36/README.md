@@ -2,41 +2,98 @@
 ---
 
 
-## 美国银行网上银行系统宕机，数千人账户被锁定
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1570896/)
+## Shiva 博士：马里科帕县政府承认信封被修改过
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1570914/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9db7482a-bf29-4ff3-ae0c-cf2e52e338ba-bank_of_america.jpg)
-图片来源：usatoday.com
+- 编译：西班牙喜悦农场–wenwu
 
-**【雅典娜快讯】，紧贴时事脉搏**
 
-10月1日，美国银行（Bank of America）的网上银行系统突然出现故障并锁定了数千人的账户。
+**Shiva Ayyadurai **博士，麻省理工学院博士（**M.I.T. Ph.D.**），电子邮件的发明者，他对马里科帕县（**Maricopa County**）解释**“VERIFIED & APPROVED MCTEC”**的信封邮票为什么是经过**Photoshop**（**PS**）处理，给出了回应。**Shiva**（希瓦）博士与亚利桑那州（**AZ**）的审计人员签订合同，负责分析邮寄选票的信封图像，他的发现至少可以说是，高度可疑的（如图，[相关报道](https://www.thegatewaypundit.com/2021/09/dr-shiva-az-senate-hearing-17000-total-duplicate-ballots-votes-voted-arizona-1-5-times-bidens-winning-margin/)）
 
-直到当天下午2点后，通讯执行官马克·皮皮托内（Mark Pipitone）告诉《独立报》（The Independent），问题已“100%解决”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-11.png)
 
-该银行的网站在周五早上开始无法访问，银行随后发布声明，承认其网上银行系统已关闭。
+上图可能是一个假的信封图像的示例。来自该县的一个糟糕的解释引起了 Shiva 博士更多的疑问。
 
-美国银行在其网站上向其客户发布了一条消息，告诉他们正在调查这个问题。客户的帐户是安全的。
+显然，该县在向参议院提交图像之前对图像进行了压缩，而不是提供真正的未经修改的信封图像； Shiva 博士将这个解释描述为“有些隐晦”，然后又针对信封图像处理的SOP，提出问题（[如图](https://twitter.com/christina_bobb/status/1444292301275246597?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1444292301275246597%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.thegatewaypundit.com/2021/10/dr-shiva-responds-maricopa-county-envelope-explanation-county-admits-images-modified-delivery/)）。
 
-根据DownDetector报道，该公司周五收到了至少1.2万份起关于无法登录的投诉。【注: Downdetector是一个在线平台，可为用户提供有关各种网站状态的实时信息。】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-12.png)
 
-用户表示他们无法转账，一些人担心他们可能无法支付10月1日到期的账单。
+希瓦博士给兰迪**·**普伦（**Randy Pullen**）的信：**
 
-9月，行业出版物《全球金融》(Global Finance)将美国银行评为“美国最佳消费者数字银行”。该银行的首席数字官大卫·泰里（David Tyrie）曾表示：他们“提供无与伦比的金融技术，帮助客户”的金融生活变得更美好”。
+**亚利桑那州参议院*c/o Randy Pullen*
 
-美国银行因其为数字客户提供的服务以及网站和移动平台的设计和功能而获得年度奖项。君迪（JD Power）还将该银行列为网上银行和移动银行业务的第一名。【注：君迪（J.D. Power）是一家美國市场信息公司。】
+回复：对县政府解释邮票***“***背后***”***信封三角的回应
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+亲爱的兰迪，
 
-**参考新闻：**[Bank of America app and online banking system goes down | The Independent](https://www.independent.co.uk/news/world/americas/bank-of-america-app-down-b1930884.html)
+感谢您与我分享有关*EchoMail*检测到的*“VERIFIED & APPROVED MCTEC”*标记异常出现在三角形后面后的*“*县政府解释*”*。他们的解释说：
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+***“***由于扫描被压缩，所以信封上只有采用箭头或大字体之类的轮廓。因此，邮票只是简单地盖在黑色箭头上，而在扫描中，印章似乎在黑色箭头下面。***”*** 这个解释有点隐晦。因此，我们在此的跟进是基于我们对他们的解释的理解（见下图）。此外，他们的解释提出了许多新的问题，并提供了一个与该县进一步对话的机会，以了解图像处理方法的具体标准操作程序（*SOP*），以及他们在早期投票（*EVB*）回邮信封处理系统中，遵循哪些步骤。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-13.png)
+
+**一、EchoMail对县政府解释的理解**
+
+EchoMail 对县政府的解释的理解是：当邮票被放置在一个变黑的区域时，在 EVB 回邮信封上的任何三角形上（如上图所示），图像压缩将这些三角形区域中的非白色像素替换为白色像素. 并且，这种图像压缩过程导致观察到的异常。
+
+**二、回应县政府解释的问题和疑虑**
+
+***1)***现在最令人担忧的是，自从***EchoMail***参与本次审计以来，第一次发现***EchoMail***收到的图像是某个原始版本的压缩版本。这意味着进行了修改。例如，对对原始图像进行了压缩，而这些图像是通过扫描选民的原始***EVB***回邮信封产生的。
+
+***2)***压缩前的***EVB***回邮信封图像是否可用？
+
+*3)*存在多少套不同程度压缩率的*EVB*回邮信封图像？
+
+***4)***是否有一整套高分辨率的***EVB***回邮信封图像？
+
+***5)***原始的***EVB***回邮信封，是否可供检查？
+
+*6)*是否有一个虚拟的，即数字的*“**VERIFIED & APPROVED MCTEC**”*印章被应用于原始的高分辨率 *EVB* 回邮信封图像？
+
+*7) EVB* 回邮信封的图像在保存时是否被加密？
+
+*8)*对原始*EVB*回邮信封图像上，还进行了哪些其他图像处理和修改？
+
+*9) EVB*回邮信封图像是否存储在一个中央存储库中？
+
+*10)*谁可以访问*EVB*回邮信封图像？
+
+11) 除了“VERIFIED & APPROVED MCTEC”邮票外，EVB 回邮信封图像还可以进行哪些修改？
+
+***12)***能否在***EVB***回邮信封图像的签名区域中删除和更改签名？
+
+*13) EVB*回邮信封图像的任何区域都可以更改吗？
+
+*4) EVB*回邮信封图像进行更改的监管链是什么？
+
+*15) EVB*回邮信封图像修改是否启用了修订跟踪功能？
+
+*16)*在*EchoMail*收到*EVB*回邮信封图像之前，还对它们进行了哪些其他图像处理？
+
+***17)***为什么不是所有真实的，即***“***已验证和计数***”***的***EVB***回邮信封图像都标有***“VERIFIED & APPROVED MCTEC”***？
+
+***18)***鉴于***EchoMail***可以访问***EVB***回邮信封图像，其中邮票出现在三角形的后面和前面，该县的解释是如何解决此类示例？是否存在不同的图像压缩设置？
+
+***19)***从收到选民的原始***EVB***回邮信封，到扫描、盖章、存储和压缩***EVB***回邮信封图像的确切过程和标准操作程序***(SOP)***是什么？
+
+*EchoMail*感谢县政府的回应。一旦我们收到上述问题的答案，我们期待接下来的步骤。
+
+热情的问候，
+
+Shiva Ayyadurai 博士
+
+（如图）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-14.png)
+
+这项调查现在由亚利桑那州总检察长马克·布尔诺维奇负责。
+
+（文章仅代表作者观点 与GNEWS无关）
+
+**新闻来源：**《[门户网](https://www.thegatewaypundit.com/2021/10/dr-shiva-responds-maricopa-county-envelope-explanation-county-admits-images-modified-delivery/)》｜作者：乔丹·康拉德森｜发布时间：2021年10月2日｜图片来源：本篇新闻
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
