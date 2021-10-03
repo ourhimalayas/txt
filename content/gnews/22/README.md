@@ -2,63 +2,47 @@
 ---
 
 
-## 中共电力产业被几大家族操纵着
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
+## 新研究警告称，中共国人口可能在未来45年内减少一半
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1571407/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
-[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-1.jpg)2021年6月7日，上海，一位母亲带着她的双胞胎女儿走在大街上。（路透社照片）
+香港：一项新的研究警告称，中共国的人口下降速度可能比预期快得多，在未来的45年内，中共国的人口数量将减少一半。
 
-**郭文贵
-Miles Guo**
+该预测是基于去年每名妇女生育1.3个孩子的官方出生率数据（远低于保持数字稳定所需的2个孩子），并预测人口下降幅度比之前的估计要大得多。
 
-还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
-everyone don’t forget that there is another key point, who made the trillions of output value?
+中共国称目前的人口超过14亿，联合国在2019年预测，到2065年，中共国仍将有约13亿左右的人口。
 
-习家没碰过电力产业的利润，这块蛋糕没碰
-The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
+华盛顿大学的研究人员去年在《柳叶刀》上发表的另一项估计表明，到2100 年，中共国人口将减少一半。
 
-主要是李鹏家里碰的，然后是温家有些碰的
-Li Peng’s family is major player on this, and then Wen’s family have some of it
+但是，来自西安交通大学人口与发展研究所的[姜全保](http://ipds.xjtu.edu.cn/info/1015/2640.htm)及其同事的新研究警告说，该国的人口下降可能被严重低估了。
 
-然后是朱家有些碰的，这些钱都是被几大家族垄断着
-Then Zhu’s family have some of it, all of these money have controlled by several big families
+研究人员表示，虽然人口普查结果只向公众披露了一部分，但有限的信息已经揭示了中共国人口的变化和未来发展趋势。
 
-现在突然发现，老子这个钱从来没有（碰）
-Now suddenly he found out that I have never been touched these money
+去年的冠状病毒大流行可能对生育产生了影响，但姜和他的同事说，出生率反弹的可能性很低。他们表示，由于育龄妇女人数下降，总人口更有可能很快开始快速下降。
 
-让你们老赚钱了，中国的煤矿，习家没碰
-Let you make money all the time, Xi’s family never touched China’s coal mines industry
+根据新的人口普查数据，儿童约占人口的17%，而60岁以上的人口比例上升到18%以上。
 
-他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
-He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
+研究人员表示，这是中共国第一次出现老年人多于年轻人的情况。
 
-这有烟产业全是几个老杂毛搞的
-This smoking industry is all controlled by a few “old suckers”
+他们写道：“由于经济压力越来越大，人们不敢生孩子。生育和护理方面的配套服务也严重不足。”
 
-他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
-He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
+中国科学院本月发表的一项研究发现，在全国最发达地区之一的长三角地区，快速上涨的房价导致该地区成为全国出生率最低的地区之一。
 
-澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
-Australia is controlled by a few families, and also these old rascals who controlled Australia
+中共国政府最近发起了一系列控制房价、降低教育成本和增加幼儿园数量的运动，但该研究报告说，还需要采取更进一步的措施。
 
-所有的人都是过去的江派和胡派之间的关系
-that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
+北京大学人口研究所所长陈功在国家统计局网站上最近发表的一篇文章中预测，中共国人口将从2025年开始下降。
 
-——————————————————
+简评：出生率下降和劳动力老龄化，事实证明，这些趋势难以逆转。实行独生子女政策遏制人口增长30年后，人们对家庭规模的态度发生了变化，加之养育成本过高，许多中共国人现在更愿意只生育一个孩子。中共国还没有富起来就变老了。
 
-Date:10/02/2021
-原视频标题:中共电力产业被几大家族操纵着
-The CCP’s power industry is controlled by several big families
-原视频日期：2021/09/29
-原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
-任务编号：KC142（2389）
-视频时间段 : 0:00-0:55
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+新闻链接：[China’s population could halve within next 45 years, new study warns](https://www.bangkokpost.com/world/2190995/chinas-population-could-halve-within-next-45-years-new-study-warns#:~:text=HONG%20KONG%3A%20China%27s%20%20%20population%20decline,a%20new%20study%20has%20warned.&amp;text=China%20had%2012%2000万%20newborns,lower%20than%20the%20UN%27s%20estimate)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

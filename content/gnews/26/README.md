@@ -2,29 +2,63 @@
 ---
 
 
-## 美科学家发现中共病毒新变种传播更快
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571330/)
+## 中共电力产业被几大家族操纵着
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
+[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/N-1.jpg)freenews.live
-美东时间10月3日俄媒RBC转述了《纽约时报》的报道称，美国国家过敏和传染病研究所的科学家们得出结论，SARS-CoV-2病毒在不断进化，新的病毒株如阿尔法和德尔塔变种，能够比以前的变种更快地通过空气传播。
+**郭文贵
+Miles Guo**
 
-专家们将中共病毒阿尔法（英国毒株）和德尔塔（印度毒株）的变种与早期毒株进行了比较，发现它已经进化，能通过空气飞沫更有效地传播。
+还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
+everyone don’t forget that there is another key point, who made the trillions of output value?
 
-领导研究小组的病毒学家文森特∙蒙斯特（Vincent Munster）表示，“它看起来像是为了更有效地通过空气传播而对病毒进行的修改，我想我们都部分地预料到了这一点，而现在我们看到它在实时发生。”
+习家没碰过电力产业的利润，这块蛋糕没碰
+The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
 
-SARS-CoV-2主要通过空气中的飞沫传播，即健康人的呼吸道飞沫进入病人的呼吸道，如咳嗽、打喷嚏或交流时。世界卫生组织（WHO）指出，也可以通过接触被污染的表面，然后接触眼睛、嘴巴或鼻子而受到感染。
+主要是李鹏家里碰的，然后是温家有些碰的
+Li Peng’s family is major player on this, and then Wen’s family have some of it
 
-由蒙斯特（Münster）领导的科学家们得出结论，“阿尔法”菌株更有可能通过小飞沫的传播造成新的感染。
+然后是朱家有些碰的，这些钱都是被几大家族垄断着
+Then Zhu’s family have some of it, all of these money have controlled by several big families
 
-美国马里兰大学的专家进行的另一项研究发现，与早期毒株相比，中共病毒的阿尔法变种增加了呼出空气中的病毒RNA数量。专家们发现，那些感染了阿尔法菌株的人呼出的病毒颗粒约为正常的100倍。
+现在突然发现，老子这个钱从来没有（碰）
+Now suddenly he found out that I have never been touched these money
 
-弗吉尼亚理工学院的病毒学专家林西∙马尔（Lynsey Marr）表示，“这确实表明该病毒正在演变，并更有效地通过空气传播。她相信对感染德尔塔菌株的病例的研究将得到类似的结果。”
+让你们老赚钱了，中国的煤矿，习家没碰
+Let you make money all the time, Xi’s family never touched China’s coal mines industry
 
-专家们以前曾多次指出，德尔塔毒株的传染性远远高于中共病毒的原始毒株。据专家称，未来出现的新变种将使该病毒更加适应于人与人之间的传播。
+他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
+He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
 
-参考链接：
+这有烟产业全是几个老杂毛搞的
+This smoking industry is all controlled by a few “old suckers”
 
-[https://www.rbc.ru/society/02/10/2021/6158b44d9a7947f34f7c88dd?from=from\_main\_7](https://www.rbc.ru/society/02/10/2021/6158b44d9a7947f34f7c88dd?from=from_main_7)
+他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
+He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
+
+澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
+Australia is controlled by a few families, and also these old rascals who controlled Australia
+
+所有的人都是过去的江派和胡派之间的关系
+that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
+
+——————————————————
+
+Date:10/02/2021
+原视频标题:中共电力产业被几大家族操纵着
+The CCP’s power industry is controlled by several big families
+原视频日期：2021/09/29
+原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
+任务编号：KC142（2389）
+视频时间段 : 0:00-0:55
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

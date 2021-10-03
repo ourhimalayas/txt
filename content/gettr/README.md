@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/3/2021 11:18 PM (UTC)`
+
+10月3号：人性啊……人……性啊……人性——啊人……性……啊😜😜😜😜😜😜😜🤣🤣🤣🤣🤣🤣🔥🔥🔥🔥🔥
+![img](https://media.gettr.com/group3/getter/2021/10/03/23/18/efa49331-b4a8-b12e-ef3c-a4555bcac3ca/out.jpg)
+
+---
+
+`@miles 10/3/2021 11:17 PM (UTC)`
+
+10月3号：尊敬的战友们好！物无美恶．过则为灾。运动，一定要智慧的运动，千万不要伤了肌肉和身体，否则后悔莫及，健身绝对不能逞强，就像爆料革命灭共事业也一样，不要硬撑．在愉悦快乐，轻松中．消灭共产党。任何勉强的事情都不是好事情。
+![img](https://media.gettr.com/group8/getter/2021/10/03/23/17/dc03b89e-3c88-13b5-ac16-c31136100dc5/out.jpg)
+
+---
+
+`@miles 10/3/2021 11:17 PM (UTC)`
+
+10/3/2021 Miles Guo: Please make sure to stay at home and avoid going out or traveling if you can until December 2022! My biggest concerns are the vindictive social disasters and the collapse of the financial and monetary system caused by the COVID vaccines; Billions of people in the world have received COVID jabs in an extremely short period of time, which means the disasters caused by the COVID vaccines will break out in an extremely short period of time as<br/>well<br/><br/>10/3/2021 文贵直播：直到2022年12月以前，请大家务必待在家里，尽量不出门、不旅行！文贵最大的担心是疫苗造成的报复性的社会灾难以及金融货币系统的崩溃；全世界在极短时间内给几十亿人打了疫苗，疫苗的灾难也将在极短时间内爆发！
+![img](https://media.gettr.com/group29/getter/2021/10/03/23/17/d3c90861-4444-8821-7b46-bb1a412fdd34/out.jpg)
+
+---
+
 `@miles 10/3/2021 7:12 PM (UTC)`
 
 10月3号：衷心地感谢，今天所有的战友们，参与的六个小时的大直播，感谢所有的台前幕后的工作的兄弟姐妹们，七哥还是感觉，意犹未尽，🔥🔥🔥现在还想马上直播，咋弄咧咋弄咧？
@@ -273,27 +294,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 9/29/2021 Miles Guo: The 3 major banks designated to receive Huobi’s refunds are Shanghai Bank, BOC, and PSBC, which is controlled by Xi and is one of the most corrupt banks in the Communist China; Due to the blockchain technology, Huobi’s refunds must be go back to the users’ original bank accounts or the designated ones; This recent major power outage in the Communist China is caused by a great contest between the political and economic interests groups within the CCP, involving key cases of the CCP’s energy sector, the Development and Reform Commission, and ultimately the Central Commission for Discipline Inspection<br/><br/>9/29/2021 文贵直播：火币退钱的三大指定银行是上海银行、中国银行和邮储银行，其中邮储银行由习控制，是中共国最腐败的银行之一；由于使用了区块链技术，火币的退钱必须原路返回或退回指定账号；此次大停电是中共国内政治经济利益大较量的结果，这将牵涉到中共能源板块、发改委乃至中纪委的重大案件！<br/>
 ![img](https://media.gettr.com/group17/getter/2021/09/30/05/53/a0a4f208-9e7d-a432-6829-246df4e07e85/out.jpg)
-
----
-
-`@miles 9/30/2021 2:50 AM (UTC)`
-
-9月29号当所有的战友们看到自己的行动，真的能拯救人类的时候，你会更加明白心，新中国联邦和信仰的力量无处不在。【👉👉应该是悉尼死了七个人，一个没打疫苗，三个打了一针，三个打了两针，七哥厉害，澳大利亚开始讲实话了，不敢再隐瞒真相了，澳洲政客真的腐敗，看他們縱容警察殘暴對待示威者就可見一斑。这个世界上只有七哥能揭开真相，敢揭盖真相！以前的革命都是地点年份革命，七哥带领我们用说实话的方式革命，这个世界真的被谎言欺骗的太多了，有的时候我想想当时七哥定义“爆料革命”我觉得太厉害了，用现代弥赛亚的称号连七哥的百分之一都不够！<br/>有时我在想：我们的后代会不会每家都供着七哥的佛像，孩子上学都在学习爆料革命这段历史，我真是觉得太有可能了！ 木村戰友這些話，如果我們能夠有個好的平台，每天大家都來分享和傳播，讓更多人知道就好了，相信改變這個世界的力量將會大很多倍！😂👍👍👍】
-![img](https://media.gettr.com/group44/getter/2021/09/30/02/50/f3cd101c-1e54-26c6-12c4-e4051586fd96/out.jpg)
-
----
-
-`@miles 9/30/2021 2:44 AM (UTC)`
-
-9/29/2021 Miles Guo: 1.1 million ethnic Chinese were slaughtered in Indonesia, while no one in the world spoke for them. Had this tragedy repeated itself today, who would speak out on behalf of us? There is likely to be worse anti-Chinese tragedies in Australia, the US, India, and Japan compared to what had happened in Indonesia. The evil CCP believed that the anti-Chinese tragedy in Indonesia was “good news”. Without the CCP, there would be no anti-Chinese movements. The New Federal State of China should not only take down the CCP, but also protect the interests and benefits of the ethnic Chinese<br/><br/>9/29/2021 文贵直播：当年印尼有110万华人被杀掉，而全世界却没有任何人为华人发声，如果悲剧在今天重演，那么有谁会替我们发声？澳、美、印、日本或将发生比印尼更恶劣的排华惨案；邪恶的中共竟认为印尼排华惨案是好事，没有中共就没有排华！新中国联邦既要灭共，又要维护华人的利益！<br/>
-![img](https://media.gettr.com/group11/getter/2021/09/30/02/9162a79d-35ca-6655-a21e-0d7930c3a587/out.jpg)
-
----
-
-`@miles 9/30/2021 2:43 AM (UTC)`
-
-9月29号：该发生的都会发生，最大收益方就是新中国联邦。【转：<br/>1  美财长说美政府三周后就没现金可用于付账单了<br/>2  一家佛吉尼亚公司三周前发射了一颗卫星当常规基站，用常规手机即可连卫星打电话<br/>3  Ingenu签约付2亿美元给Phantom ，为其设计制造发射建造一个有72颗低轨卫星的太空物联网<br/>4  日本取消所有疫情紧急状态<br/>5  英国汽油短缺，大家急搜电动汽车<br/>6  Multiverse，一家解决学徒需求的公司融资1.3亿美元<br/>7  市区垂直农场出产越来越多的蔬菜】
-![img](https://media.gettr.com/group23/getter/2021/09/30/02/43/f53e90be-0fe1-3bd4-2024-be62ad94da2e/out.jpg)
 
 ---
 

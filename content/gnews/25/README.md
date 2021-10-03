@@ -2,27 +2,41 @@
 ---
 
 
-## 破纪录39架共机扰台！台海战争一触即发
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571348/)
+## 美国COVID-19死亡人数达到70万人！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571378/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+据《路透社》作者：Shaina Ahluwalia, Lasya Priya M & Roshan Abraham，2021年10月1日发布：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2395.png)
+路透10月1日电：根据路透社的统计，时至本周五，美国新冠肺炎累计死亡人数超过70万。与此同时，当局向已接种的人群推行补充接种的加强针，宣称可以保护老年人和从事高风险职业的人群。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-3.png)
-文章仅代表作者本人观点，与Gnews无关
+路透社对公共卫生部门披露的数据的一项分析报告中指出，过去一周，美国平均每天有2000多人死亡，约占1月份死亡人数高峰时期日死亡数的60%。
 
-视频参看：2021.10.03早GTV新闻访谈
+据路透社统计，美国COVID-19病例数和死亡人数仍居世界首位，分别占报告感染病例和死亡人数的19%和14%。预计全球范围内死亡人数将超过500万人。
 
-[https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c](https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c)
+高度传染性的德尔塔病毒变异株导致COVID-19病例激增。根据7日感染病例数动态平均值，COVID-19感染病例数量在9月中旬左右达到顶峰，随后下降到目前的水平，每日感染约117,625万例。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+这仍然远远超过美国顶级传染病专家安东尼·福奇（Dr.Anthony Fauci）博士所说的每天1万例的感染病例数警戒线。福奇之前表示，如能将日感染数长期控制在1万例以下，便有机会结束这场健康危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+尽管近几周美国全国住院总人数有所下降，但一些州(尤其是美国南部)的住院人数却逆势大幅上升，给当地医疗系统带来了不小的压力。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**疫苗加强针**
+
+美国总统拜登周一接种了一剂提供免疫补充作用的疫苗“加强针”，希望为数百万美国人提供一个榜样，让他们知道自己不是一次“额外注射”的试验品。
+
+在美国和其他国家仍有许多人未接种疫苗的情况下，科学家们在是否需要接种疫苗“加强针”这一问题上存在分歧。但拜登在8月份还是公开宣布了这一举措，称其是加强对高传染性德尔塔病毒变体保护努力的一部分。
+
+美国疾病控制与预防中心(Centers for Disease Control and Prevention)的数据显示，约56%的美国人已经完成了2剂疫苗的强化接种，约65%的人至少接种了一剂疫苗。
+
+纽约的几家医院周一开始以违反州令的理由解雇或停职拒绝接受疫苗接种的医疗工作者。而俄亥俄州的一名联邦法官也作出了有利于一家私人医疗服务提供商的裁决，该公司强制要求员工注射疫苗。
+
+美国疾病控制和预防中心的数据显示，中西部和南部一些地区的疫苗接种率落后于东北部和西海岸部分地区，这表明美国农村和城市地区之间存在差距。
+
+原文链接：[https://www.reuters.com/world/us/us-covid-19-death-toll-hits-700000-2021-10-01/](https://www.reuters.com/world/us/us-covid-19-death-toll-hits-700000-2021-10-01/)
+
+翻译：洛杉矶盘古农场 – 暴力小蘑菇
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
