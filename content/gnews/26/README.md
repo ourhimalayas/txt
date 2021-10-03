@@ -2,22 +2,38 @@
 ---
 
 
-## 美国寻求与新任日本首相四方会谈合作
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1569672/)
+## 日本养老金管理机构暂缓投資中国国债
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569682/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+栏目记者：andy5/文仁
+责任编辑：文仁
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J.png)english.kyodonews.net
-日本共同社10月2日报道， 美国国防部副部长凯瑟琳·希克斯(Kathleen Hicks)10月1日表示，美国希望与日本合作，在将出任下届首相的岸田文雄(Fumio Kishida)领导下，进一步推进四方会谈共同对抗中共在该地区的强硬做派。
 
-希克斯在华盛顿一个智库组织的在线活动上表示，美国与日本有着“非常持久的联盟关系”，“我们期待包括通过四方会谈拥有积极的关系”。 她认为日本首相换届并不会影响日美亲密盟友的关系。希克斯称美国和日本“非常习惯我们民主进程中的权力转移” 。
 
-“四方会谈”成立于2004年，包括美国，日本，澳大利亚和印度。当时是为了应对印度洋地震和海啸。近年来，四方会谈成为中共国在该地区日益增长的影响力的制衡力量。在川普政府努力的基础上，现任美国总统乔·拜登(Joe Biden)将四方会谈的接触提升到领导人层面，寻求团结美国的盟友和志同道合的国家，以应对中共带来的挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
 
-上个月在华盛顿举行的首次四方首脑会议上，四国领导人确认了寻求合作的广泛领域，包括中共病毒疫苗、基础设施、半导体供应链和太空。他们还同意每年举行一次领导人会议。目前即将离任的日本首相菅义伟出席了当时的会晤。
 
-菅义伟不再连任日本执政党自民党党首，岸田文雄在上月末的自民党选举中获胜，有望在周一的国会选举中当选日本下一任首相。
+
+【日本经济新闻（日经中文网）】报道：恒大事件之后，日本养老金管理机构（GPIF）暂缓投资中共国国债 ， 作为该机构投资参考的重要依据的英国富时罗素（FTSE Russell）指数在3月宣布把中国国债纳入该指数，在目前市场混乱风险剧增的情况下各国都非常关注GPIF 是否启动对人民币国债的投资。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-1.jpg)
+郭文贵先生的直播爆料中也多次提到，在贪婪的华尔街资本的撮合下，美欧日澳等多国已经把自己国家的各給类基金投资到了中共国，那些基金都是各国老百姓的养老钱，救命钱。现在中共国随着恒大的爆雷，一连串类似的金融事件会随之发生，各国将很难收回自己的投资， 甚至血本无归，这是中共捆绑世界的一个手段， 如果世界不早日醒来认清中共的本质，消灭中共，那世界将会被中共一起拖入一个黑暗的泥潭。
+
+（本文仅代表作者观点）
 
 参考链接：
-[https://english.kyodonews.net/news/2021/10/c984a8255138-us-seeks-to-work-with-next-japan-pm-on-quad-pentagon-official.html](https://english.kyodonews.net/news/2021/10/c984a8255138-us-seeks-to-work-with-next-japan-pm-on-quad-pentagon-official.html)
+1. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
+2. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)

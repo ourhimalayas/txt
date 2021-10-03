@@ -2,27 +2,33 @@
 ---
 
 
-## 近60架中共战机在两天内进入台湾防空识别区
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1569607/)
+## 9月，中国和美国之间的航运集装箱运输成本飙升至历史新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569677/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+栏目记者/责任编辑：文一
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/T-1.jpg)foreignaffairs.com
-日本共同社新闻报道，10月2日台湾国防部称，共有20架中国军机，包括战斗机和轰炸机，进入该地区。包括10月1日的38架，近60架中共战机在两天内进入了台湾防空识别区，这是自9月份台湾开始披露相关信息以来的单日最高纪录。
 
-10月1日白天有25架飞机进入该区域，晚上有13架。据台湾国防部称，一些中共战机在穿越分隔台湾和菲律宾的巴士海峡后，飞到了台湾东岸附近的一个地区。台湾军机连续两天紧急起飞，警告大陆飞机离开。
 
-据台湾国防部统计，今年共有500多架中共战机进入台湾防空识别区。台湾对中共国提出尖锐批评。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
 
-台湾行政院长苏贞昌周六上午对记者说：“中共一直在肆意进行军事侵略，破坏地区和平。”
 
-中共尚未对此置评，但此前曾表示称，此类飞行是为了保护国家主权，并针对台湾与美国之间的“勾结”，因美国是台湾最重要的国际支持者。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture11-2.jpg)
+根据Freightos指数，从中国到西海岸的标准矩形金属集装箱的运输成本中位数达到20,586美元，几乎是7月份的两倍，是1月份的两倍。在过去的一年里，通胀率上升了4.3%，是三十多年来的最高值。消费者支出加速。不断上涨的运输成本，加上前所未有的供应链挑战和高需求，迫使一些公司采取限购加价等措施平衡供需，无疑令未来的经济形势雪上加霜。
 
-中共加大了军事和政治压力，试图迫使台湾接受中共国主权。台湾表示，它是一个独立的国家，将捍卫它的自由和民主。爆料革命和新中国联邦创始人郭文贵先生提供情报称，中共为了维系摇摇欲坠的政权和濒临崩溃的经济，必然会攻打台湾。美国和中共勾兑，并不会在第一时间对台湾施以援手。台湾更可怕的是有内鬼接应，面对中共的进攻将无招架之力，台湾危矣！
+（本文仅代表作者观点）
 
-参考链接：
+参考链接：[9月，中国和美国之间的航运集装箱运输成本飙升至历史新高](https://www.msn.com/en-us/money/news/cost-of-shipping-container-from-china-to-us-hits-record-high-in-september/ar-AAP4BQq)
 
-[https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/](https://www.reuters.com/business/aerospace-defense/taiwan-reports-largest-ever-incursion-by-chinese-air-force-2021-10-02/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-[https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html](https://english.kyodonews.net/news/2021/10/76ff65994aef-taiwan-says-nearly-60-china-warplanes-enter-defense-zone-over-2-days.html)
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)

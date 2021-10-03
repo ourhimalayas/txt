@@ -2,22 +2,38 @@
 ---
 
 
-## 真理需要谎言的陪衬——评一篇诋毁”郭先生“的文章
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569694/)
+## 周六，墨尔本警方继续大肆抓捕抗议人士
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1569774/)
 
-翻译：Shan Shan
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image3-5.jpg)
-法国资讯9月30日发表了一篇题为”中国亿万富翁郭文贵称疫苗灾难即将发生”，文章在没有任何证据的前提下，对”郭先生“进行了攻击和诋毁。原文是这样的：
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-3.png)
+**图片来源：****9 News**
 
-“中国亿万富翁郭文贵在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。 他的一个视频在社交媒体上被分享了数千次。”疫苗灾难即将来临，肯定会出现经济崩溃。那么到明年年底，人类将不得不在生与死之间做出选择。”只有那些没有接种 Covid-19 疫苗的人才会幸存下来：简而言之，这就是在社交网络上分享了数千次的视频信息。该出版物背后的人是郭文贵，一位在房地产领域发家的中国亿万富翁。他也是北京政权的坚定反对者。他说：”中共的目标是获得冠状病毒。”
+10月2日，澳大利亚墨尔本警方对抗议者进行了快速的出击，在全市范围内，有超过100名抗议者被抓捕。
 
-他对有关病毒和疫苗的理论进行了研究 。2014年，郭文贵被党指控腐败，为躲避报复流亡美国。 在他的纽约顶楼或他的豪华汽车上，大量播放视频谴责中共，但也研究了有关病毒和疫苗的理论，他在没有提供任何证据的情况下为这些理论辩护。”冠状病毒是中国政府开发的生物武器，”他说。他的评论被张贴在他的YouTube账户上，该账户有近40万名用户。它还拥有自己的媒体渠道 G News，该网站提供 14 种语言版本。 在其平台上，有真实的信息和虚假的信息。”
+周六，数十人来到皇家植物园的战争纪念馆，反对新冠疫苗强制接种在两周内对授权工人生效。但警方早有准备，迅速出手制止了这一行动。
 
-在文章中，作者说郭先生在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。关于疫苗的危害性，郭先生在9月29日的直播中说，“我们给澳大利亚发的文件最起码2万分，通过律师认证文件达几千份。”难道这不是最有力的证据？此外，郭先生在9月26日的直播中说，”美国几个制药公司的老板都在这开会。十月一号以后，疫苗会变成可选项。不会超过一个月，欧洲会大面积停止所有疫苗。”制药公司的老板难道会在没有证据的情况下停止疫苗接种？谎言不攻自破。
+警察今天对抗议者发起了猛攻，逮捕了一些有敌意的抗议者，而其他人则逃离现场，抗议人士遭到了大规模的武力打击。
 
-类似对郭先生恶意中伤的文章还有很多，这让我想起诗人北岛说的一句话：“卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭。“大意是卑鄙者总能为卑鄙的行为找到借口；而高尚者无私、无我地奉献，却不求回报，但墓碑上会刻有“高尚”两字。真理有时需要谎言的陪衬，就让它去吧。
+当晚，警方表示，有109人因各种罪行被逮捕，并因违反首席卫生官的命令而发出108份处罚通知。
 
-参考链接：
+警方继续警告，他们将毫不犹豫地再次对任何更多的行动进行打击。
 
-[Guo Wengui, ce milliardaire chinois qui affirme que “le désastre des vaccins va arriver”](https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html)
+在抗议现场，人们在高呼”我的身体，我做主”。
+
+与最近几天墨尔本的其他抗议活动不同，现场警察的人数也多于抗议人群。在场的人也注意到，总体上暴力事件较少。
+
+维多利亚州州长丹尼尔·安德鲁斯昨天宣布，所有在授权名单上的工人都需要在10月15日前接种一剂新冠疫苗，在11月26日之前完全接种疫苗。
+
+截至10月3日，墨尔本累计封锁达246天，维州在过去的一天里记录了1220个新增病例，并有3个人死亡。
+
+新闻链接：[Coronavirus update Victoria: More than 100 arrested during Melbourne protests (9news.com.au)](https://www.9news.com.au/national/coronavirus-update-victoria-protests-against-vaccine-mandate-planned-melbourne/7471d105-1e19-4d23-8646-2b86ea9dd225)
+
+**编辑****/发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

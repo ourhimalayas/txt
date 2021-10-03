@@ -2,20 +2,68 @@
 ---
 
 
-## 俄罗斯禁止“科学教”团体
-` 象声` [轉載自GNews](https://gnews.org/zh-hans/1569875/)
+## 蛇妖闫和她的疑似床圈合影照是为了显摆那只咸猪手么？
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1570122/)
 
-零对冲在10月2日发表文章，报道了俄罗斯司法部正在对“科学教”发动战争，本周禁止该组织在俄罗斯领土上运作。在周五发布的更新名单中，两个关键的科学教实体现已被列入“不受欢迎”的黑名单 。司法部称该组织是“对俄罗斯联邦安全的威胁”，一份媒体声明称 ，“10月1日，世界科学企业国际研究所、L. Ron Hubbard 图书馆和 ENEMO 被添加到组织名单中。被拉黑的两个实体是总部位于加利福尼亚的控股公司，据说对山达基在国外的业务至关重要。被列入“不良”名单意味着所有地方办事处都被国家关闭并冻结资产。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001-1.jpg)
+这张照片引发了我的极大兴趣，于是就进行了照片检索，根据检索结果，我们可以知道图片中的人物名字如图所示——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/002-1.png)
+合影人员依次是——
 
-莫斯科长期以来一直认为这是“伪装成宗教的商业”。在全球大多数国家，该团体被正式视为一种宗教，因此享有免税地位，俄罗斯除外。随着争议和媒体关注的焦点在过去十年中在美国尤其增加，越来越多的纪录片涌现，深入研究了这种奇怪的信仰体系，导致了强烈反对。根据俄罗斯的RT新闻，克里姆林宫长期以来一直关注山达基教在1990年代苏联解体后恢复其存在：
+Li-Meng Yan, MD, PhD
 
-“该决定是在长达数十年的禁止山达基教在俄罗斯领土上非法获利的运动之后做出的，第一次限制该组织可以追溯到 1996 年，回到鲍里斯叶利钦时代，以及该组织在该组织获得立足点大约 12 年后。”，“然而，直到 2010 年代，当局才真正打压山达基教派，以非法商业活动和极端主义的罪名对莫斯科和圣彼得堡的主要分支机构及其领导人进行调查。”
+Robert Malone, MD
 
-众所周知，山达基会雇佣一大批律师，这通常使地方、州或中央政府极难追查这些组织，他们往往将自己展示为一个有效的宗教而赢得法庭诉讼。比利时和法国等其他欧洲国家最近出现了一些引人注目的案例，将科学教推向了媒体的聚光灯下，一些欧洲官员将其称为“邪教”。而俄罗斯是是迄今为止对该组织拥有最严格法律的国家。
+Richard Urso, MD
 
-译者观点：披着宗教和科学的外衣的组织，非常具有迷惑性。暂时未能知道这个组织背后真实的面目，我们持续跟踪，俄罗斯作为努力摆脱共产国际的代表性案例，科学教是否是共产国际的另一张外衣呢？
+Ryan Cole, MD
 
-\*文章仅代表作者观点，原文有删减\*
- 原文链接：https://www.zerohedge.com/geopolitical/russia-becomes-first-country-ban-scientology-threat-national-security
+Craig M. Wax DO
 
-翻译&编辑： 洛杉矶盘古农场-蓝精灵
+那么这些人都是什么来头呢？
+
+关于Robert Malone, MD，据[领英——Robert Malone](https://www.linkedin.com/in/rwmalonemd)：Inventor of mRNA vaccines and DNA vaccines; world-wide expert in RNA technologies RW Malone MD, LLC: Consultancy and Analytics in the Bio-sector
+![](https://assets.gnews.org/wp-content/uploads/2021/10/003-1.png)
+中文：mRNA疫苗和DNA疫苗的发明者； RNA 技术的全球专家 RW Malone MD, LLC：生物领域的咨询和分析
+
+关于Richard Urso, MD，据[领英——Richard Urso](https://www.linkedin.com/in/richard-urso-66b95a136)：Medical Doctor at Houston Eye Associates，中文：休斯顿眼科协会的医生
+![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.png)
+关于Ryan Cole, MD 据[领英——Ryan Cole](https://www.linkedin.com/in/ryan-cole-md-54020389/)：Dermatopathologist CEO/Lab Director at Cole Diagnostics ，中文：Cole Diagnostics 皮肤病理学家首席执行官/实验室主任
+![](https://assets.gnews.org/wp-content/uploads/2021/10/005.png)
+关于Craig M. Wax DO据[领英——Craig M. Wax DO](https://www.linkedin.com/in/craigwax/)：Executive Vice President, Magid Associates，中文：Magid Associates 执行副总裁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/006.png)
+关于这张图片的来源是这样的——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/007.jpg)
+也就是说Craig M. Wax D.O.抛出了狗骨头，然后蛇妖闫第一个叼起了狗骨头并叫唤了第一声，那么与Craig M. Wax D.O.和蛇妖闫一起叫唤的还有哪些呢？在用这张图片进行谷歌匹配之后，我们可以得到的拼图是这样的——
+
+以下为谷歌匹配的第一页：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/008.jpg)
+以下为谷歌匹配的第二页：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/009-1.jpg)
+也就是说自蛇妖闫的疑似床圈和蛇妖闫鸡鸣狗叫地抛出这张照片之后，在推特上的响应者包括重复的人满打满算也凑够了谷歌搜索的两张页面。
+
+蛇妖闫参加的这次会议是什么背景？蛇妖闫和这张图片上的其他四个人中的几个有过床笫之欢我们也不得而知，但是我们知道郭文贵先生吹响的以苗灭共之战不是用照片来进行以苗灭共的，目前可知的至少有两条线，第一条线是向各个国家政府发送关于疫苗真相的相关资料，第二条线是媒体上向公众传递疫苗的真相；
+
+那么蛇妖闫用她的疑似床圈一众男友的照片要说明啥呢？我看到了Robert Malone, MD那只轻揽蛇妖腰的咸猪手，我看到了蛇妖闫的手部摆放位置，我想到了“一双玉臂千人枕，半点朱唇万人尝”，我是不是想歪了？罪过！罪过！
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

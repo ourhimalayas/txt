@@ -2,40 +2,29 @@
 ---
 
 
-## 欧盟发现强生新冠疫苗可能与另一种罕见的凝血症有关
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569683/)
+## 2021年8月15日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569771/)
 
-**【简评】 爆料革命战友都知道，无论哪一家公司的中共病毒疫苗都有极其严重的副作用。在文贵先生和战友们的积极推动下，包括日本、欧盟、澳大利亚、英国等众多政府的大量官员都会为自己强推毒疫苗而辞职，我们的以苗灭共运动将会取得重大成功。同时，这几天，我们也注意到，关于疫苗副作用的报道也逐渐增多，相信全民大觉醒马上就会到来，而以疫苗为借口实施人口大灭绝的黑暗势力将被曝光并绳之以法。**
+盖特连接：[https://gettr.com/post/p7q0890994](https://gettr.com/post/p7q0890994)
 
-**据《路透社》记者Pushkala Aripaka 和 Ludwig Burger，2021年10月1日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/at0wh-gh9kr-1.jpg)**在这张摄于2020年10月31日的插图中，可以看到贴纸上写着“COVID-19/冠状病毒疫苗/仅限注射”的小瓶和一个医疗注射器，其背后是强生公司的标识。图片来源：路透社/Dado Ruvic**
-周五，欧盟药品监管机构确认了强生(Johnson & Johnson)的COVID-19疫苗与罕见的深层静脉血栓病例之间可能存在联系，并建议将这种情况列为疫苗的副作用。
+8月15号：尊敬的战友们好，你们健身了吗？传播郑州人祸……香港人道危机……CCP病毒真相了吗？
 
-欧洲药品管理局还建议将免疫性血小板减少症 (ITP)，一种由身体错误地攻击血小板引起的出血性疾病，作为频率未知的不良反，应添加到强生疫苗和阿斯利康 (AZN.L) 疫苗的产品信息中。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-强生表示，虽然遇到这些情况的可能性非常低，但随着公司继续与包括 EMA 在内的当局密切合作，产品信息也将相应更新。
+（做完一组健腹轮，碎步小跳），耶~
 
-强生公司表示：“我们强烈支持提高对罕见副作用的迹象和症状的认识，以确保能够被快速识别和有效治疗。”
+编辑整理及发布：黎明之前
 
-此前报道，强生和阿斯利康的疫苗都与一种非常罕见的凝血和低血小板计数的并发症有关，这种并发症被称为血栓与血小板减少综合征(TTS)。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-这两款疫苗都以无害的病毒载体为基础，指导人体细胞制造一种蛋白质，为免疫系统抵御未来的冠状病毒感染做好准备。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-EMA表示，即将被纳入强生疫苗产品标签的静脉血栓栓塞症(VTE)是一种新的可能危及生命的凝血疾病，并与TTS分开列出。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-VTE 通常先在腿部、手臂或腹股沟的静脉中形成凝块，然后到达肺部并阻塞那里的血液供应。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-无论是否接种过疫苗，导致静脉血栓栓塞（VTE）最常见的原因是受伤或卧床的病人缺乏运动，另外避孕药和许多慢性病也被视为危险因素。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**原文连接**：[https://www.reuters.com/business/healthcare-pharmaceuticals/eu-finds-jj-covid-shot-possibly-linked-another-rare-clotting-condition-2021-10-01/?taid=6157078576ce46000139552b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/healthcare-pharmaceuticals/eu-finds-jj-covid-shot-possibly-linked-another-rare-clotting-condition-2021-10-01/?taid=6157078576ce46000139552b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**（本文评论仅代表个人观点）**
-
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

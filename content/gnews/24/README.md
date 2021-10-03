@@ -2,39 +2,22 @@
 ---
 
 
-## 白宫将针对网络犯罪和勒索软件召开30国会议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569678/)
+## 真理需要谎言的陪衬——评一篇诋毁”郭先生“的文章
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1569694/)
 
-栏目记者/责任编辑：文真
+翻译：Shan Shan
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image3-5.jpg)
+法国资讯9月30日发表了一篇题为”中国亿万富翁郭文贵称疫苗灾难即将发生”，文章在没有任何证据的前提下，对”郭先生“进行了攻击和诋毁。原文是这样的：
 
+“中国亿万富翁郭文贵在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。 他的一个视频在社交媒体上被分享了数千次。”疫苗灾难即将来临，肯定会出现经济崩溃。那么到明年年底，人类将不得不在生与死之间做出选择。”只有那些没有接种 Covid-19 疫苗的人才会幸存下来：简而言之，这就是在社交网络上分享了数千次的视频信息。该出版物背后的人是郭文贵，一位在房地产领域发家的中国亿万富翁。他也是北京政权的坚定反对者。他说：”中共的目标是获得冠状病毒。”
 
+他对有关病毒和疫苗的理论进行了研究 。2014年，郭文贵被党指控腐败，为躲避报复流亡美国。 在他的纽约顶楼或他的豪华汽车上，大量播放视频谴责中共，但也研究了有关病毒和疫苗的理论，他在没有提供任何证据的情况下为这些理论辩护。”冠状病毒是中国政府开发的生物武器，”他说。他的评论被张贴在他的YouTube账户上，该账户有近40万名用户。它还拥有自己的媒体渠道 G News，该网站提供 14 种语言版本。 在其平台上，有真实的信息和虚假的信息。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+在文章中，作者说郭先生在没有提供任何证据的情况下散布有关 Covid-19 和疫苗的理论。关于疫苗的危害性，郭先生在9月29日的直播中说，“我们给澳大利亚发的文件最起码2万分，通过律师认证文件达几千份。”难道这不是最有力的证据？此外，郭先生在9月26日的直播中说，”美国几个制药公司的老板都在这开会。十月一号以后，疫苗会变成可选项。不会超过一个月，欧洲会大面积停止所有疫苗。”制药公司的老板难道会在没有证据的情况下停止疫苗接种？谎言不攻自破。
 
-
-
-在今年发生了一系列威胁美国能源和食品供应的网络攻击事件后，拜登政府已将网络安全对策提升到政府的最高级别。此前，中共对其恶意网络攻击的指控，予以否认。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture22-1.jpg)
-白宫10月1日表示，拜登政府计划在本月召集约30个国家，举行线上会议，旨在 “改善执法机构之间的合作”，例如 “非法使用加密货币 “等问题。以应对日益重的勒索软件和其它网络犯罪的威胁。
-
-拜登政府希望其新的非正式小组——即“反勒索软件”倡议，加强外交努力，包括与俄罗斯、北约、联合国和G7国家的直接会谈。
-
-（本文仅代表作者观点）
+类似对郭先生恶意中伤的文章还有很多，这让我想起诗人北岛说的一句话：“卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭。“大意是卑鄙者总能为卑鄙的行为找到借口；而高尚者无私、无我地奉献，却不求回报，但墓碑上会刻有“高尚”两字。真理有时需要谎言的陪衬，就让它去吧。
 
 参考链接：
-1. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.theusexpressnews.com/white-house-plans-30-country-meeting-on-cybercrime-and-ransomware-official/)
-2. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.newsmax.com/newsfront/cybercrime-ransomware-summit/2021/10/01/id/1038753/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+[Guo Wengui, ce milliardaire chinois qui affirme que “le désastre des vaccins va arriver”](https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html)

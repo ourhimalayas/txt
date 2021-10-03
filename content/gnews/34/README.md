@@ -2,151 +2,43 @@
 ---
 
 
-## 强制疫苗接种和拒绝承认自然豁免的理由是什么
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569579/)
+## 台湾质疑中共国加入太平洋贸易协定的资格，担心“被阻碍”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1569590/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/at0wh-gh9kr.jpg)
-[https://gtv.org/video/id=6158a2bad2e2b81748705b19](https://gtv.org/video/id=6158a2bad2e2b81748705b19)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100230.jpg)2021年9月30日，台湾经济部长王美花在台湾台北接受路透社采访时表示。路透社/王安安
+**摘要翻译：**
 
-**Senator Ron Johnson**
-**参议员罗恩·约翰逊**
+台北，10月1日（路透社）—台湾和中共国上个月都申请加入“跨太平洋伙伴全面进步协定(CPTPP)”，但中共国表示反对台湾加入，它声称台湾是中共国的领土。
 
-Let’s look at some data,
-让我们看一些数据
+“如果中国先加入，就必然会有阻碍台湾的风险，”台湾经济部长王美花周四晚些时候在接受路透社采访时表示。“不管台湾要加入什么组织，他们都会反对。”
 
-the type of data that we’re not getting from our healthcare agen-cy
-这类数据是从我们的医疗保健机构无法获得的
+王美花补充说，从互联网审查到劳工权益，中共国存在各种各样的问题。难免让人质疑中共国能否符合CPTPP的高标准，她说，这些要求将挑战中共国最根本的制度体系。
 
-so we have to look, unfortunately to England, and Israel, they’re more transparent.
-所以不幸的是我们必须看看英格兰和以色列的，他们更透明
+“看看他们的信息，什么也不能进入。脸书无法进入，谷歌无法进入。”王说，她意指中共国屏蔽了这两个主要网站，包括推特在内的许多西方互联网公司都被以国家安全的名义屏蔽。
 
-I don’t, I don’t expect anybody to be able to read the figures show
-我不期待任何人能够阅读显示的数字
+台湾作为一个主要的半导体生产商，它已申请以在世贸组织(WTO)中的名称——台澎金马个别关税领域——加入(CPTPP)。台湾也是亚太经济合作组织(APEC)的成员之一。
 
-I’ll give you, I’ll give you the highlights
-我会给你们一些重点
+王美花说，相对于日本而言特别对中共国的竞标表示不满，台湾没注意到任何CPTPP成员反对他们的申请。
 
-but I’m showing that this is from Public Health England.
-但我展示的这是来自英国公共卫生部
+台湾一直在寻求与其他国家，特别是其他民主国家达成自由贸易协议。王表示，如果加入(CPTPP)，台湾就不需要与澳大利亚或申请加入CPTPP的英国谋求单独的协议。
 
-This is one of their, their federal health care agencies.
-这是他们其中的一个联邦医疗保健机构
+**简评：**
 
-This is from their technical briefing number 23, date September 17 2021.
-这是从他们的技术简报第 23 号，日期为 2021 年 9 月 17 日
+中共政府利用其专制独裁的统治模式，榨取14亿老百姓的财富，在世界贸易中占尽了优势，同时它们利用蓝金黄手段，腐化收买各国的利益集团以及国际组织，迫使台湾只能在夹缝中生存。
 
-It covers cases for about seven and a half months,
-它涵盖了大约七个半月的案例
+但是，近期海航集团的破产重组，恒大地产的债务违约说明中共国的经济出现了大问题。高盛集团近期有报告指出，中共国的地方政府隐性债务已达GDP的一半以上，其潜在影响也将远远超过房地产违约。由此可见，中共虚假的经济已经走到了穷途末路，随时都可能崩溃。同时由近日公安部原副部长孙力军被抓和傅政华被查，也可以看出中共的政治内斗日益激烈，在政治内斗和经济危机双重压力下，中共这个邪恶的政权走向末日将是不可避免的事。当中共政权从这个世界上消失之后，台湾与自由世界的经济往来也将不会再受到阻碍。
 
-from the beginning of February to February 12
-从2月初至2月12日
+[新闻链接](https://www.taiwannews.com.tw/en/news/4302902)
 
-what the data shows. Is it during that seven half month period in England.
-数据显示的是，是在英格兰的七个半月期间的
+**编辑：【英国伦敦喜庄园编辑部】**
 
-There were about 750,000 new COVID cases
-大约有75万例新的 COVID 病例
+*翻译/简评：Harvey (叶知秋) | 校对：小小妹*
 
-about little under 600,000， those were the Delta variant about 80%,
-大约略低于 60万例的，那些大约 80%是德尔塔变种
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-the number of deaths associated with those 600,000 Delta cases was 2542,
-与这 60万例德尔塔变种病例相关的死亡人数为 2542人
 
-which gives us a case fatality ratio of about point four.
-这给了我们大约0.4％的病死率
+编辑：【英国伦敦喜庄园编辑部】
 
-Again, case fatality is higher than infection fatality
-再次，病死率高于感染死亡率
-
-because these are actually registered cases
-因为这些实际上是登记的案例
-
-and they’re all kinds of infections that never get registered.
-而且有很多各种感染的病例从未登记过的
-
-So to put this in context, an infection fatality rate for a bad flu season
-所以把这个放在这个情况，一个严重流感季节的感染死亡率
-
-is slightly under point two, half of this
-是稍微低于0.2％，病死率的一半
-
-just can put things in perspective.
-就可以把事情看得很透彻
-
-Now, President Biden this has been parroted by media, news media said
-现在，拜登总统这已经被媒体，新闻媒体炒作说
-
-that what we are currently experiencing a pandemic of the unvac-cinated.
-我们目前正在经历的是一场未接种疫苗人群的流行病
-
-They don’t give us really any data to back that up.
-他们没有给我们任何数据来支持这个主张
-
-They just do proclaim pronounced that 99% of people with COVID now are unvaccinated.
-他们只是宣布现在99%的COVID患者都没有接种过疫苗
-
-But they don’t give us the data. We have data from England.
-但是他们不给我们数据，我们有来自英格兰的数据
-
-And here’s the data. So of the 600,000 cases in England,
-这是数据，在英格兰的60万个病例中
-
-43% were unvaxxed 27% with, with the fully vaxxed.
-43%是没有接种疫苗的，27%是完全接种疫苗的
-
-Another 30% with were partially vaxxed, or just undetermined.
-另有30%的接种了部分疫苗，或只是未确定
-
-But I think what’s interesting, because here’s another quote, President Biden,
-但我认为有趣的是，这是另一句话，拜登总统说
-
-President Biden said if you’re vaccinated, you’re not going to be hospitalized.
-拜登总统说，如果你接种了疫苗，你就不会去住医院
-
-You’re not going to an ICU unit, you’re not going to die.
-你不会去重症监护室病房，你不会死
-
-You’re not going to get COVID If you have these vaccinations.
-如果你接种了这些疫苗，你就不会感染 COVID
-
-Well, maybe that’s true in the US, I kind of doubt it
-好吧，也许这在美国是真的，我真的很怀疑
-
-because in England, of the 600,000 new cases of delta of the over 2500 deaths,
-因为在英国，在超过2500人死亡的60万起新增病例中
-
-63% of those deaths 1613 People with, with fully vaccinated.
-63%的死亡的人，1613人是完全接种过疫苗的
-
-28% were the unvaxxed.
-28%是没有接种过疫苗的
-
-Now, this is information the American people who probably never heard.
-现在，这是美国人民可能从未听说过的信息
-
-It’s information by conveying, I will get attack, I will be vili-fied,
-这些信息被传达出去，我会受到攻击，我会被诽谤
-
-I will be censored, I will be suppressed.
-我会被审查，我会被压制
-
-So the reason I’ve come to the Florida Senate to reveal this in-formation
-所以这是我来佛罗里达州参议院透露这些信息的原因
-
-that American people need to know.
-这是美国人民需要知道的信息
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接:** [https://twitter.com/senronjohnson/status/1443777704994672644?s=21](https://twitter.com/senronjohnson/status/1443777704994672644?s=21)
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
