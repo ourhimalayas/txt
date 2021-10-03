@@ -2,102 +2,83 @@
 ---
 
 
-## 回顾惨绝人寰的印尼排华大屠杀事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1570491/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1570555/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-6.jpg)[被尘封的印尼排华屠杀事件（资料图)](http://www.newsduan.com/newsyun/HuaYuOriginal/TZ/20160419/1112.html)
-1998年，印尼发生的排华大屠杀事件中，当时的刽子手苏哈托印尼总统和他的女婿、陆军战略后备部队司令普拉博沃中将为代表的苏氏家族和军方内部一些人为转移民众视线、强行实施军管、延长家族统治，用“排除法”对印尼当地华人进行了惨绝人寰的大屠杀。让我们来回顾印尼在当代排斥与屠杀华人的历史事件。
+- **西班牙喜悦农场—wenwu**
 
-**一、印尼历史上发生的排华事件：**
 
-[1740年10月9日至12日，荷兰殖民当局制造红溪惨案，在爪哇的巴达维亚（今雅加达）屠杀华人近万人。](https://web.archive.org/web/20151117030912/http://paper.people.com.cn/rmrbhwb/html/2006-10/31/content_11572891.htm)
+您若想了解全文报导内容，请点击标题链接
 
-[1942年日本入侵印度尼西亚，击溃了荷兰人和同盟军。1945年8月15日，日本帝国宣布投降。有记载，此二三年间，华人工商界和知识界被集体捕杀、处死2000余人。](http://www.chaorenwang.com/channel/qpwhyj/showdontai.asp?nos=1517)
+（爱惜生命 远离疫苗）
 
-1965年，印尼9·30事件后，印尼陆军将领苏哈托架空了总统苏加诺并**宣布印尼共产党为非法组织**，在印尼全国发动了对印尼共产党的大清洗。
+**1.[Merck & Co.研制的实验性中共病毒口服药（HCQ和伊维菌素）让死亡和住院率降低一半](https://www.thegatewaypundit.com/2021/10/merck-co-cheers-experimental-antiviral-pill-covid-19-cuts-death-hospitalization-half-sort-like-hcq-ivermectin/)**
 
-由于印尼共产党中华人很多，导致大量华人被当作共产党员处决。此次排华事件导致了至少50万人被屠杀，亦使大量华人被迫离开印尼到海外生活。美国中央情报局曾经把这段期间的印尼称为[“二十世纪最惨的集体谋杀”](https://zh.wikipedia.org/wiki/%E4%B9%9D%E4%B8%89%E3%80%87%E4%BA%8B%E4%BB%B6)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip201.png)
 
-1985年以前，几乎每年都有几起大小不一的排华流血事件。例如：1974年由反日运动引起的排华骚乱，1978年雅加达由学生示威引发的反华骚乱，1980年11月中爪哇的排华暴动等。
+据《门户网》2021年10月2日电，默克公司一种针对中共病毒（COVID-19）的实验性抗病毒药丸Molnupiravir 降低了一半感染该病毒的人在早期给药时住院甚至死亡的风险；该公司计划接下来两周内申请EUA。（Ridgeback 收到了默克公司的预付款，作为公司开发 molnupiravir 的一部分；合作产生的利润将平均分配给默克和 Ridgeback）
 
-黑色五月暴动致使在印度尼西亚的华人遇难和蒙受损失，仅仅是印尼首都雅加达，就有5000多家华人工厂、店铺、房屋、住宅被烧毁，华人妇女被强暴数量难以统计，近[1200名华人被屠杀](https://zh.wikipedia.org/wiki/%E4%B9%9D%E4%B8%89%E3%80%87%E4%BA%8B%E4%BB%B6)。
+一年多以来，尽管 HCQ在早期治疗死亡率测试中的[成功率为 75%](https://c19hcq.com/)，并且[伊维菌素](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)在印度和其他地方[取得](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)了[稳固的成果](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)；但各国几乎像政府、福奇博士和美国医学界这样的组织一直[在向公众撒谎](https://www.thegatewaypundit.com/2021/06/smoking-gun-fauci-lied-millions-died-fauci-informed-hydroxychloroquine-worked-lied-public-instead-despite-science-fauciemails/)，他们都是杀人凶手。
 
-**历次印尼排华事件骇人听闻的虐华和杀华罪行**
+**2. [最高法院法官对纽约市学校疫苗计划提出上诉](https://news.yahoo.com/nyc-teachers-appeal-block-school-222238318.html)**
 
-华人是全世界受到反人类伤害与屠杀最多的种族。每年的12月13日是[南京大屠杀](https://zh.wikipedia.org/wiki/%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%B1%A0%E6%AE%BA)的 祭日 ，超过30万中国人被用各种变态方式残害和虐杀：“杀人竞赛”，“妇女被奸淫”，“集体活埋”，“集体屠杀”……
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip202.png)
 
-南京大屠杀是多少中国人不愿揭开的伤疤！可是，印尼排华的屠杀华人更为惨烈：被火烤，被斩首，被轮奸，被奸杀，被集体屠杀,被乱棒打死……..
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/图片3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/图片4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/图片5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/图片6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/图片7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/图片8.jpg)[图片源](https://www.google.com/search?q=%E5%8D%B0%E5%B0%BC%E6%8E%92%E5%8D%8E%E5%90%8E%E6%9E%9C&amp;tbm=isch&amp;ved=2ahUKEwjJ3qrckKbzAhWegc4BHYKbAjAQ2-cCegQIABAA)
-作为一名华人，看到这些触目惊心的视频和图片，心如刀绞，心跳加速，手都在抖。这些同胞可能是我们的亲戚，我们的邻居，我们的朋友……直至今日，印尼华人还时刻生活在心惊胆颤中…..
+据《雅虎新闻》2021年10月1日电，公立学校教师和其他工作人员于周四（30日）向最高法院大法官索托马约尔申请[了禁令](https://apnews.com/article/coronavirus-pandemic-religion-new-york-courts-education-f953fa28876c0be0f82d5771a0aae18a)，以防止疫苗授权在周五生效，但最高法院大法官驳回了他们的请求；也就是说，大约有14.8万名学校员工必须在周五下午 5 点之前，至少接种第一针疫苗。
 
-2000年，印尼首都的多家华人购物中心和商店遭到抢劫和焚烧，当时的印尼华裔进行自卫，且有能力抗衡，这才有效遏制了对华人的骚乱。
+教师的律师 Vinoo Varghese 在一封电子邮件中说：“我们很失望，但为我们的客户和类似情况的客户争取正当程序的斗争将继续进行。”8 月，最高法院大法官艾米·康尼·巴雷特 (Amy ConeyBarrett)[驳回了](https://apnews.com/article/health-courts-coronavirus-pandemic-us-supreme-court-c10f02b467c86e2b61c6743aedd4fc69)印第安纳大学学生请求，阻止该大学接种疫苗[的紧急呼吁](https://apnews.com/article/health-courts-coronavirus-pandemic-us-supreme-court-c10f02b467c86e2b61c6743aedd4fc69)。
 
-2005年，很多印尼华人收到恐吓短信，声称当地人将会对华人展开袭击。排华事件离我们并不遥远，最近的一次发生在2008年。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片9.jpg)[2021年9月26日郭先生直播速记](https://gnews.org/zh-hans/1556387/)
-对于历史、宗教、政治与经济等原因，不明真相的会众将排华事件归罪于华人与当地印尼人长期对立的结果，笔者不能苟同:
+**3. [台湾教育部考虑放宽对大学的疫情限制](https://www.taiwannews.com.tw/en/news/4303903)**
 
-一、历史原因
-1942年日本入侵印度尼西亚， 1945年8月15日，日本帝国宣布投降。1945年8月17日苏加诺宣布印尼独立。荷兰和日本两个外来入侵并殖民印尼，为什么是华人受屠杀？单方面说荷兰殖民制度引起的排华是站不住脚的。1965年，1998年和2008年三起代表性的排华事件发生在1945年印尼独立以后。印尼为什么不排荷兰和日本这两个殖民者？去过印尼的人都知道，满大街的摩托车和汽车都是日本品牌。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip203.png)
 
-二、宗教原因
+据《台湾英文新闻》2021年10月2日电，中央流行病指挥中心 (CECC)周六（2日）宣布[没有新的国内病例](https://www.taiwannews.com.tw/en/news/4303796)或中共病毒（COVID-19）死亡病例，而周日（10 月 3 日）则计划公布某些地点的[口罩规则变化](https://www.taiwannews.com.tw/en/news/4302990)。
 
-印度尼西亚在宪法上是一个世俗国家，在建国五项原则的第一项就是信仰神明（Ketuhanan yang Maha Esa）（必须有宗教信仰）。印尼宪法保障宗教自由，认可六种官方宗教（伊斯兰教、基督新教、天主教、印度教、佛教和孔教）。佛教和孔教都是华人的主流宗教信仰。单纯指责印尼人信奉的伊斯兰教很强的排他性和包容力极差是非常片面的，而且中国很多地区也信奉伊斯兰教，如宁夏，新疆等。
+据[CNA](https://www.cna.com.tw/news/firstnews/202110020115.aspx)报道 ，教育部 (MOE) 表示正在努力允许大学恢复全面的课堂教学，尽管 CECC 需要在该措施生效之前获得批准；台北市世新大学宣布从 10 月 4 日起取消 80 人的人数限制，学生在上课时不必分开坐，这引起了学生和家长的惊愕；师生仍需戴口罩，课堂上的饮食仍将被禁止。
 
-三、政治原因
+**4. [完全接种疫苗的法官布雷特·卡瓦诺 (Brett Kavanaugh) 对 Covid-19 的测试呈阳性](https://www.thegatewaypundit.com/2021/10/fully-vaccinated-justice-brett-kavanaugh-tests-positive-covid-19/)**
 
-苏加诺当政的印尼政府就是共产党政府，说印尼高层对华人不友好这是偷换概念，中共共产党扶持了苏加诺的印尼共产党政府并且深度介入当地政治。苏哈托是推翻了共产党扶持的苏加诺而上台的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip204.png)
 
-以苏哈托为首的军人政府反华和排华是肯定的，主要排华事件也发生在他当政期间。
+据《门户网》2021年10月1日电，最高法院表示，法官布雷特·卡瓦诺 (Brett Kavanaugh) 周四（30日）晚上的 Covid-19 检测呈阳性（无症状），他曾于今年1月完全接种中共疫苗。
 
-但是，中国共产党控制的中共学者没有告诉华人读者的是：苏哈托排华的起因是反在印尼的中共共产党而残害所有的华人。华人不热衷参政不代表不参政就要被杀害，超1000万华人分散在全世界各个国家，为什么没有其它国家没有针对华人的灭绝行为？
+**5. [突发：暴政的新南威尔士州州长 Gladys Berejiklian 在腐败调查后，耻辱地辞职#LockHerUp](https://www.thegatewaypundit.com/2021/10/breaking-tyrannical-new-south-wales-premier-gladys-berejiklian-resigns-disgrace-following-corruption-probe/)**
 
-四、经济原因
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip205.png)
 
-我们可以看到很多华人出国后在当地创造的商业奇迹和财富神话，这和我们中国人的勤劳善良是分不开的。但是一些所谓的中共大学学者却说华人太富有，让当地人仇富而受到攻击。
+据《门户网》2021年10月1日电，暴虐的新南威尔士州州长格拉迪斯·贝瑞吉克莲 (Gladys Berejiklian) 在“廉政公署”宣布正在调查她的行为之后，她“艰难地”宣布在周五（1日）辞职；显然，司法系统在澳大利亚仍然有效。
 
-为什么他们把此作为印尼排华的动机？回看历史，因为拥有财富而被残害的实例就发生在共产党掌握中国政权后的”打土豪，分田地”运动，杀地主，分光地主所有财产。
+这位 Berejiklian[的演讲](https://citizenfreepress.com/breaking/breaking-boom-gladys-berejiklian-resigns-as-nsw-premier/)如下：我已多次明确表示，如果我的任何部长成为廉政机构或执法部门正在调查的指控对象，那么他或她应该在调查过程中站在一边，直到他们的名字被清除为止；我热爱我的工作，也热爱为社区服务，但我别无选择；，继续担任州长将会扰乱州政府。
 
-中国共产党是这个仇富和杀富的始作俑者，而中共学者却宣扬海外华人不能富有，富有就会被当地人仇富而被抢杀。中共的这种诱导宣传无非就是恐吓华人，同时误导海外华人将资产转回中共国内，再而被中共放贷出去转移到几个红色家族的金库中。
+**6. [亲爱的父母…… 厌倦了看着您的孩子走路？何以忍心看到自己的孩子变成实验室的残疾小白鼠](https://theexpose.uk/2021/10/01/dear-parents-do-you-want-your-child-to-die-due-to-the-covid-vaccine/)**
 
-**当惨案发生前后，中共共产党干了什么？**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片10.jpg)
-上面的图片显示：印尼苏哈托军政府要杀我们华人同胞时，中国共产党不进行任何对印尼当局的 外交谴责，更不参以对印尼华人的营救措施！中共反而对外大撒药品、粮食与中国人的血汗钱！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip206.png)
 
-中国各种大学院样的大学生抗议印尼排华事件与大屠杀华人，中共当局不允许！当时的中共主席江泽民还说印尼是“友好近邻”。
+据《吹哨人》2021年10月1日电，亲爱的父母们，您是否知道在极短且小型的临床试验中，86% 的儿童对辉瑞 Covid-19 疫苗产生了不良反应？（[来源](https://theexpose.uk/2021/05/30/shocking-86-of-children-suffered-an-adverse-reaction-to-the-pfizer-covid-vaccine-in-clinical-trial/)）
+您是否知道在极短小规模的临床试验中，九分之一的儿童出现了严重的不良反应，导致他们无法进行日常活动？（[来源](https://www.cdc.gov/vaccines/acip/meetings/downloads/slides-2021-05-12/03-COVID-Wallace-508.pdf)）
 
-中国是印尼第二大外资来源地，2020年1-12月，中国企业对印尼全行业直接投资19.8亿美元，同比增长86.5%。几十年过去了，控制着印尼的苏哈托的家族继续在欧洲过着奢华的生活。中国共产党说的“犯我中华者，虽远必诛”成了空谈，就好像这110万受害华人从来没有到过这个世界一样。
+您是否知道截至 2021 年 8 月 25 日，自 2020 年 3 月以来，只有 9 例与 Covid-19 相关的死亡发生在儿童中？（[来源](https://www.england.nhs.uk/statistics/statistical-work-areas/covid-19-daily-deaths/weekly-total-archive/)）
+您是否知道儿童因 Covid-19 而患上严重疾病的风险极低？（[来源](https://www.medrxiv.org/content/10.1101/2021.07.01.21259785v1)）
+您是否知道辉瑞 Covid-19 疫苗处于实验阶段且仍在临床试验中？（[来源](https://theexpose.uk/2021/04/14/fact-check-full-fact-say-the-covid-vaccines-are-not-experimental-theyre-lying/)）
+您是否知道由英国政府、牛津大学和 CDC 于 2021 年 8 月发表的三项科学研究发现 Covid-19 疫苗不起作用？（[来源](https://theexpose.uk/2021/09/12/three-studies-find-the-covid-19-vaccines-do-not-work/)）
+您是否知道英国公共卫生部门的数据显示，大多数 Covid-19 死亡病例都在接种疫苗的人群中，并且数据表明疫苗会使疾病恶化？（[来源](https://theexpose.uk/2021/09/24/phe-report-reveals-the-vaccinated-account-for-77-percent-covid-19-deaths/)）
+您是否知道自 2001 年以来，由于 Covid-19 疫苗导致的死亡人数在 8 个月内比所有其他可用疫苗造成的死亡人数更多？（[来源](https://theexpose.uk/2021/09/25/uk-medicine-regulator-confirms-there-have-been-four-times-as-many-deaths-due-to-the-covid-19-vaccines-in-8-months-than-deaths-due-to-all-other-vaccines-combined-in-20-years/)）
+您是否了解因辉瑞疫苗而导致儿童患心肌炎（心脏炎症）的真正风险？（[来源](https://theexpose.uk/2021/09/23/study-finds-over-3000-children-could-suffer-life-shortening-condition-caused-by-the-covid-19-vaccine/)）
+您是否知道儿童因美国的 Covid-19 疫苗而死亡？（[来源](https://theexpose.uk/2021/09/13/evidence-the-covid-19-vaccine-is-killing-children/)）
+您知道谁从您的孩子接种 Covid-19 疫苗中获利吗？（[来源](https://theexpose.uk/2021/09/04/gps-to-be-paid-22-pound-for-every-child-they-inject-with-a-covid-19-vaccine/)）
+您是否知道疫苗接种和免疫联合委员会拒绝向儿童推荐辉瑞疫苗，您是否知道他们被英格兰首席医疗官 Chris Whitty 否决了？（[来源](https://www.gov.uk/government/news/jcvi-issues-updated-advice-on-covid-19-vaccination-of-children-aged-12-to-15)）
+您是否知道，自从青少年首次接种 Covid-19 疫苗以来，15 至 19 岁青少年的死亡率比上一年增加了 47%？（[来源](https://theexpose.uk/2021/09/30/deaths-among-teenagers-have-increased-by-47-percent-since-covid-vaccination-began/)）
 
-**印尼排华大屠杀事件 是中国共产党向全世界输出红色革会–共产主义国际联盟而产生的恶果。**
+向英国 MHRA 黄卡计划报告的 Covid-19 疫苗不良反应的最新报告显示，截至 2021 年 9 月 22 日，共有 323 份针对辉瑞 mRNA 疫苗的瘫痪报告；此外，还向 MHRA 提交了 778 份针对阿斯利康疫苗的报告，其中包括 111 份偏瘫报告、100 份偏瘫报告、138 份单瘫报告和 324 份完全瘫痪导致 1 人死亡的报告；MHRA 还收到了 42 份因 Moderna 疫苗导致瘫痪的报告，其中 9 份报告为偏瘫，12 份报告为单麻，11 份报告为完全麻痹；另有 6 份由于注射不知名疫苗（国产？）向英国黄卡计划提交了麻痹症的报告。也就是说，截至到22日，黄卡计划总共统计了1149 起因注射疫苗导致的瘫痪反应案例。
 
-海外排华是中国共产党喜闻乐见的，共产党只希望他们的子孙去海外享福。中国共产党对华人脑控的方法就是以各种大外宣与各种通信群的方式广而告知华人羊群，“羊圈外面有狼”，不让羊群知道羊圈外发生了什么事。
+除此之外，还有因注射中共疫苗引起的417起完全失明和1075起视力受损，以及1682起接种中共疫苗导致1682人死亡和544起生命垂危的案例。据[统计](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1022138/Vaccine_Analysis_Print_Pfizer_BioNTech_COVID-19_vaccine_22.09.2021.pdf)，截至9月22日，接种辉瑞疫苗造成了33万983人受其副作用伤害；接种阿斯利康疫苗导致了1091人死亡和82万8941人受伤害；接种Moderna疫苗导致19人死亡和5万2344人受伤害；有28人因为接种不知名（国产？）疫苗而死亡，还有3329人因不知名疫苗受伤害。
 
-近代类似印尼排华事件还有：
+随着接种疫苗的人越来越多，失明、瘫痪或死亡人数也越来越高。根据数据，4860万人接种了疫苗，英国黄卡收到了121万5597起疫苗不良事件报告，占总量的2.56%。笔者认为，只有10%的疫苗的不良事件上报了，所以应该看成疫苗副作用实际占总量的25.6%，也就是说，每4个人中就会发现自己有疫苗不良反应。
 
-1962年的印度排华;
+（文章仅代表作者本人观点，与Gnews无关）
 
-1967年缅甸出现6月27日—6月28日排华杀掠事件;
+* * *
 
-1969发生的马来西亚暴民排华事件;
+***发稿：信心满满***
 
-1975年柬埔寨红色高棉排华事件和越南排华事件。
-
-这些事件的背后都有中国共产党向世界输出红色革会–共产主义国际联盟的影子行动。
-
-华人一向是热爱和平和勤劳善良的群体。中国共产党崇尚的“斗争理论”，人为的制造华人和其它种族之间的对抗。
-
-众所周知，共产主义国际联盟的红色魔毒才是海外排华的主因与各种排华事件的导火索。而去年开始的新冠大疫情，中国共产党再次利用新冠肺炎病毒和毒疫苗再次将红色革命–共产主义病毒输出到世界各国，这势必引起全世界各国对华人的仇恨。
-
-郭文贵先生主张：中国共产党不等于中国人，中国人同样是共产主义极权的受害群体。
-
-所有的华人必须团结起来，加入新中国联邦，一起应对将发生的因中国共产党用生化武器–各种研发的病毒导致全球上亿感染，上千万人死亡的战争而迁怒所有华人的排华事件与突发暴动。
-
-我们紧跟爆料革命与新中国联邦，更多的传播爆料革命，新冠病毒COVID19和疫苗的真相，唤起全球人民的大觉醒，一起走向对付中共及其邪恶力量将故意点的反华暴动突发事件！
-
-【文章观点仅代表作者个人，与Gnews平台无关】
-
-作者：洛杉矶盘古农场   文如
-编辑：洛杉矶盘古农场   滴水穿石
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
