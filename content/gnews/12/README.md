@@ -2,18 +2,44 @@
 ---
 
 
-## 雅典娜时报-第070期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1569838/)
+## 傅政华落马，胡舒立发猪头贴，中共黑帮派系“途”穷匕见
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1569891/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国冥诞祭日期间，不但看不到往年盛大的庆典活动，而且中共高层呈现出剑拔弩张，表明中共内部的政治斗争已经白热化，公开化。各方撩开了遮丑的面纱，到了无需掩饰的地步了。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/11-2.png)
-***发布：小红帽***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/0-1.jpg)
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共媒体称：重磅！10月2日，中共的中央纪委国家监委官网发布消息，中共全国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+
+郭文贵先生早于2017年1月26日爆料革命开启的第一天直播里，就揭露傅政华了有巨大的腐败问题，并预言傅政华出事是早晚的事。
+
+当天，王岐山的情人，财新的胡舒立随即在微博上发出【猪头】贴文。其内容是：猪头如果做得好，还是相当可吃的。猪头不受待见，与人们的观念很有关系。背负着这等恶名，一般人谁还愿意在餐桌上与其建立战略伙伴关系。
+
+早在2018年4月7日，郭文贵先生爆料：“哪一个王岐山孟建柱盗国贼想干的人之前，谁会出现？——财新的胡舒立！只有胡舒立这个魔鬼从地里爬出来的时候，就有人要倒霉了”。
+
+“胡舒立出来想要报的人，一定是王岐山孟建柱想搞的。所以说，掏肛之前，先叫叫，谁叫？胡舒立！凡是盗国贼要报仇的，政治的仇恨和想弄钱的，那一定是胡舒立出现。”
+
+胡舒立叫了啥？“猪头”……不受待见……肩负这等恶名……谁愿与其建立战略伙伴关系。这年头，能与人建立战略伙伴关系，还不受待见的猪头，还有谁？和王岐山孟建柱傅政华这几个“英俊小生”比，样貌最像猪头那位就是了。看照片猪头已被砍下挂了起来，不知他们是想腊起来还是打算怎样处理？但胡舒立说了还是能做得好吃的。眼看胡舒立狞笑露尖牙，何等的猖狂，看来她背后的势力早有预谋，精心布局，不知是垂死挣扎还是志在必得呢？胖猪头，你还在想啥呢？是想求生还是想要个好味道，好吃法？无论后事如何发展，都是大戏要开演了，新中国联邦郭文贵先生会配合事态的发展，给出精彩评说，添火加柴。
+
+中共黑帮在郭文贵先生的面前，就如笼里老鼠，被玩得团团乱转，各帮派相互猜忌，相互抢掠，自相残杀。貌似铁板一块的中共老杂毛们，在文贵先生高超斗争艺术前面，不但奈何不了新中国联邦和爆料革命，即使挥舞手中的尖刀，砍伤杀死的只是自己。新中国联邦和文贵先生一边建立G系列，一边揭露病毒和疫苗真相，唤醒世人，拯救生灵。文贵先生还不忘点拨中共黑帮，指导他们相互厮杀，何等的潇洒豪迈，豪气壮阔，可谓前无古人，后无来者。
+
+**本文仅代表作者观点**
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

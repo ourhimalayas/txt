@@ -2,29 +2,33 @@
 ---
 
 
-## 2021年8月19日郭文贵先生吃烧鸡配辣椒盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569809/)
+## 维州最高法院将挑战政府的强制疫苗接种命令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1569865/)
 
-盖特连接：[https://gettr.com/post/p86yi99169](https://gettr.com/post/p86yi99169)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/175f6c7f5e1fbe7e6ea2f33f1ebb49a4.jpg)图片来源：The Australian
+**整理报道：**翼族
 
-尊敬的战友们好：吃烧鸡鸡楼……2号最辣的辣椒喽……
+到10月15日，维多利亚州约有100万“授权工人”【注：指特别注明需要的工人】需要至少接种一剂中共病毒（COVID-19）疫苗才能继续在现场工作，同一组工人需要在11月26日之前接种两种疫苗。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+维州州长丹尼尔·安德鲁斯周五宣布了该项命令，它是对之前强制接种疫苗的补充。早些时候，维州政府已要求教育和建筑工人必须接种疫苗才能继续工作，并引起巨大的争议和抗议活动。
 
-烧鸡！郭家烧鸡！看到了吗？七嫂今天，我都不知道，你七嫂给我弄的烧鸡，开了一下午会了，哎呀，累得跟憋孙似的！突然有烧鸡，太幸福了！烧鸡，最尖的地里的辣椒，哎哟！太幸福啦！热乎乎的烧鸡，哇！这辣椒，听说有的人吃一口能辣死！啥叫幸福啊？多有钱、多有权，你不过如此，你看这儿战友们（展示鸡翅膀处的肉），你看这肉，你看这，所谓的江湖无非如此。
+对维州政府的新公告，各界反应不一。
 
-编辑整理及发布：黎明之前
+随着粮食、水果和蔬菜丰收期的临近，这一消息令许多行业领导者感到意外，它引起了该州农业团体的愤怒。维州农民联合会（VFF）主席艾玛·杰玛诺（Emma Germano）说：“这让我们感到惊讶……协商和围绕它的过程是荒谬的！”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+维多利亚州的法院对该项新的行政命令没有发表评论。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+维多利亚州最高法院首席法官兼法院委员会主席安妮·弗格森(Anne Ferguson)表示：“根据[2008 年公共卫生和福利法]对该项行政令提出的法律挑战已提交到法院，将依法审理和裁决。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+编辑/发布：翼族
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**参考链接：**[Victorians react to COVID-19 vaccine mandates which are set to affect around a million workers](https://www.abc.net.au/news/2021-10-01/how-people-reacted-to-the-vaccine-mandates-affecting-millions/100508690)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

@@ -2,43 +2,38 @@
 ---
 
 
-## SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569680/)
+## 完全接种疫苗的CNN 撰稿人心脏病发作，并因血栓住院
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569705/)
 
-栏目记者/责任编辑：文一
+**【简评】 爆料革命战友都知道，无论哪一家公司的中共病毒疫苗都有极其严重的副作用。包括心梗、脑梗、眼梗、血栓、糖尿病等都是疫苗的严重副作用，本文这位完全接种毒疫苗的希尔先生是一名副其实的疫苗支持者，但在简单的跟腱手术后，发生了心梗和血栓。但即便如此，他还坚持认为是其跟腱手术导致，并指责别人对血栓的形成缺乏基本的医学常识。好吧，或许希尔先生在病床上没有看下面报道《欧盟药品监管机构确认强生COVID-19疫苗与罕见的深层静脉血栓病例之间存在联系，并建议将这种情况列为疫苗的副作用》。但也有可能希尔认为欧盟药品监管机构没有任何基本常识。**
 
+**据《网关专家》记者Cristina Laila，2021年9月30日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a71ie-wzywl.jpg)马克·拉蒙特·希尔住院。图片来源：Instagram
+前 CNN 评论员马克·拉蒙特·希尔(Marc Lamont Hill)突发心脏病，并因深静脉血栓形成和肺部血栓而入院治疗。
 
+马克·拉蒙特·希尔只有 42 岁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+周三，希尔批评了奥兰多魔术队球员乔纳森·艾萨克(Jonathan Isaac)，因为艾萨克对自己不接种新冠疫苗的决定直言不讳。
 
+“对于那些一无所知的人来说，这听起来很聪明。”希尔抨击艾萨克说。
 
+周三，完全接种疫苗的希尔透露，他突发心脏病，同时深静脉血栓形成，导致肺栓塞。
 
-美国证券交易委员会SEC周五将比特币-ETF申请的最后决定期限推迟至11月。该机构搁置了包括Global X Bitcoin Trust在内的四项申请。
+“在经历了艰难的一周后，我现在在家恢复。周五成功完成了跟腱手术后，周六我突发轻微心脏病，被送往急诊室。结果我得了深静脉血栓，导致了肺栓塞。血凝块几乎完全堵塞了我的肺，阻止了血液流向心脏。医生告诉我，我很幸运没有去见阎王。而且幸运的是，我得到了天普大学医院团队出色的医疗护理。医生准确地评估了我的病情，并移除了血块。我的身体已经疲惫不堪，疼痛难忍，但我对自己还活着，正在完全康复的道路上感到无比感激。请倾听你的身体。如果感觉不对劲，就去看医生。不要担心自己看起来像个痛症患者或疑病症患者。去吧。感谢所有在这可怕的时刻给予帮助或提供帮助的人。幸运的是，我有很棒的朋友、美满的家庭，还有很多不该得到的恩惠和怜悯。”希尔在他的Instagram账户上说。
 
-据悉，至少有20家公司提出申请欲成为美国首个加密基金。SEC 主席加里·詹斯勒虽然一直在打击加密货币，但最近也表示对加密货币ETF持更加开放的态度，认为符合严格规则的ETF可以为投资者提供保护。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-1.jpg)
-美联储主席杰罗姆-鲍威尔上周也表示，他不打算禁止加密货币，但对于这个已成长为2万亿美元的庞然大物，华盛顿的监管机构将制定规则加强监管。鲍威尔在同一场合表示，他希望对稳定币实施联邦标准，这种数字资产在最近几个月爆炸性增长，通常通过与国家货币挂钩来维持较稳定的价格。
+希尔周四表示，他因接种新冠疫苗形成血栓的说法是“荒谬和完全没有根据的”。
 
-拜登政府即将发布的报告将开始通过对稳定币制定类似银行的规则，来削除监管加密货币的项目。据《华盛顿邮报》报道，与美元挂钩的稳定币，其流通量已经从年初的290亿美元上升到今天的1260亿美元。到目前为止，主要被投资者用来结算不同加密货币资产之间的交易，发行者也声称稳定币可改变普通消费者的支付方式。
+希尔说，他的跟腱断裂导致了深静脉血栓和血凝块。他说:“这是此类伤害的一个非常常见的结果。”
 
-从政府监管机构的政策改变和导向来看，与国家货币挂钩的稳定币将为加密货币提供保障，同样，与美元挂钩的喜美元将为喜币的发行流通保驾护航，喜支付更是为喜币的成长壮大提供无限可能。
+**原文连接**：[https://www.thegatewaypundit.com/2021/09/fully-vaxxed-former-cnn-contributor-marc-lamont-hill-suffers-heart-attack-hospitalized-blood-clots-blasts-nba-player-critical-covid-vax/](https://www.thegatewaypundit.com/2021/09/fully-vaxxed-former-cnn-contributor-marc-lamont-hill-suffers-heart-attack-hospitalized-blood-clots-blasts-nba-player-critical-covid-vax/)
 
-（本文仅代表作者观点）
+**（本文评论仅代表个人观点）**
 
-参考链接：
-1. [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](https://markets.businessinsider.com/news/currencies/sec-bitcoin-etf-decision-delay-gensler-cryptocurrencies-deadline-markets-2021-10)
-2. [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](https://www.msn.com/en-us/money/markets/washington-takes-aim-at-the-booming-crypto-industry/ar-AAP3Zcz)
+翻译/评论：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
