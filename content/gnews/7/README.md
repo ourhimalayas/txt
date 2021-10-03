@@ -2,20 +2,35 @@
 ---
 
 
-## 秘翻在线 :美国的权贵成为不须配戴口罩的高级种姓
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571118/)
+## 有声|日本养老金管理机构暂缓投資中国国债
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1571162/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg.png)
-图片来源：nypost
+配音：纽约香草山美食部 – 玫瑰园
 
-根据《零对冲》(Zero Hedge)的报导, 种姓阶级制度(Caste systems)不仅在印度存在，在中共病毒的配戴口罩乱象中，美国也出现了类似的种姓制度。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-在大都会艺术博物馆慈善晚宴(Met Gala)上，身着印有“Tax the Rich”白色礼服的亚历山卓·欧加修-寇蒂兹(Alexandria Ocasio-Cortez )众议员以及其他艺人并没有配带口罩。美国奥巴马前总统的60岁派对上，政界领袖、商界大亨和好莱坞名人在内的所有客人也没有戴口罩；相对的，厨师、服务员、服务员和其他工作人员全部都需要配戴口罩。
 
-在国会进步核心小组主席众议员普拉米拉·贾雅帕尔(Pramila Jayapal,D-Wash)的聚会中，视频上所有与会者都没有配戴口罩。旧金山市长伦敦·布里德(London Breed)在具乐部聚会时违反了自己的口罩规定。艾美奖颁奖典礼上也有一些不戴口罩的演员、制片人和导演，而其他所有的工作人员和服务员全部戴口罩。这就是美国高阶种性与低阶种性的明显差别。
 
-美国《独立宣言》中“人人生而平等”，意味着每个人享有平等的权利。宪法不仅规定了权利平等，而且规定了法律规定的平等待遇。但是由民主党人组成的进步精英正试图在美国创造一个区分精英高阶种姓和大众低阶种姓的社会，根据他们所处不同种姓地位，对每个群体创造不同的规则。
+【日本经济新闻（日经中文网）】报道：恒大事件之后，日本养老金管理机构（GPIF）暂缓投资中共国国债 ， 作为该机构投资参考的重要依据的英国富时罗素（FTSE Russell）指数在3月宣布把中国国债纳入该指数，在目前市场混乱风险剧增的情况下各国都非常关注GPIF 是否启动对人民币国债的投资。
 
-新闻来源：[The COVID Caste System](http://The%20COVID%20Caste%20System)
+郭文贵先生的直播爆料中也多次提到，在贪婪的华尔街资本的撮合下，美欧日澳等多国已经把自己国家的各給类基金投资到了中共国，那些基金都是各国老百姓的养老钱，救命钱。现在中共国随着恒大的爆雷，一连串类似的金融事件会随之发生，各国将很难收回自己的投资， 甚至血本无归，这是中共捆绑世界的一个手段， 如果世界不早日醒来认清中共的本质，消灭中共，那世界将会被中共一起拖入一个黑暗的泥潭。
+
+[文字版原文：日本养老金管理机构暂缓投資中国国债](https://gnews.org/zh-hans/1569682/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

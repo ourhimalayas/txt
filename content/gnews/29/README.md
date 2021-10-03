@@ -2,26 +2,28 @@
 ---
 
 
-## 印度使用伊维菌素消灭了中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1570937/)
+## 傅政华落马，司法部连夜开会表忠心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1570949/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-13.jpg)图片来源：网络截图
-据气候科学新闻网站10月1日报道说，根据印度政府的消息，其北方邦的33个地区由于向其庞大的人口推广伊维菌素和羟氯喹，中共病毒病例正在急剧下降。现在已经摆脱了中共病毒，恢复率已提高到98.7%，这证明了伊维菌素作为 “北方邦中共病毒控制模式 “的一部分的有效性。这个州在2021年估计有2.41亿人口，是印度人口最多的州。 这几乎是2021年美国人口的三分之二，但它现在是一个没有中共病毒的国家。
+栏目记者/责任编辑：文龙
 
-《印度斯坦时报》和《今日印度》都报道了这一重大进展。北方邦是印度率先在所有家庭接触者中使用伊维菌素作为早期和预防的州。而且这个邦是印度所有邦中中共病毒病例最少的五个邦之一，尽管它的疫苗接种率很低，只有5.8%完全接种，而美国有54%完全接种。截至9月14日，美国有179,289,983人完全接种了疫苗，而北方邦有15,236,150人接种了第二针。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-北方邦的国家监测官员Vikssendu Agrawal说，该州较低的阳性率和死亡率可能归因于该州大规模使用伊维菌素，并补充说，该药物最近已被引入科维德治疗和管理的国家协议中。”去年8月，北方邦政府发布了一个通知，医生建议服用伊维菌素12毫克，以控制大流行的影响。这种药对预防中共病毒相当有效。因此，我们呼吁每一位公民都要有这种药片”。
+10月2日晚，中共现任司法部党组书记、部长唐一军连夜召开会议，传达中纪委及习中央对前司法部长傅政华进行调查处理的决定，并表示坚决拥护表忠心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.3AM-PICTURES-1234图片备用.001.jpeg)
+傅政华曾在中共公安系统内部任职长达48年，2013年任公安部副部长，2018年任改组后的新司法部首任部长，傅政华是中共自”十九大”以来，继公安部副部长孟宏伟、孙力军之后落马的第三位中共公安及司法系统内之高官。可以说傅政华就是中共 “以警治国、以黑治国”暴政的代言人之一，贪腐巨量且害人无数 !  因此即使在墙内微信，傅政华的落马也引发网友的一片支持甚至欢呼！当然这一切并不是中共官媒宣传的所谓 “肃清人民警察队伍”的正义之举，而是爆料革命逐一揭露中共丑陋的真相之后，盗国贼集团内部的相互撕咬和自爆而已。同时也验证了”以共灭共”迈入了另一个新的阶段！
+(本文仅代表作者观点)
 
-该通知接着解释了剂量。对于在家隔离的阳性患者（每天一片，持续三天；对于主要和次要接触者（第一天和第七天各一片）”。
+参考链接： [傅政华被查 司法部连夜开会：拥护中央决定 肃清流毒影响](https://www.163.com/news/article/GLC8NGNC0001899O.html)
 
-澳大利亚议员克雷格.凯利也在去年7月的一条推文中赞扬了北方邦首席部长引入伊维菌素作为预防措施。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-北方邦和德里的中共病毒病例都出现了令人难以置信的下降，因为他们及早使用伊维菌素并进行预防。而喀拉拉邦，一个位于印度南部的小邦，过度依赖疫苗而不太依赖伊维菌素，一直在报告中共病例的大幅增加。请记住，北方邦的人口比喀拉拉邦多八倍。
+校正/发稿：我不在这里
 
-尽管媒体和世卫组织广泛地试图通过引用DGHS来说服世界，印度已经放弃了伊维菌素，但ICMR和AIIMS并没有改变他们的立场，伊维菌素仍然在印度国家协议中”。
-
-当然，当然，主流媒体不会提到伊维菌素正被用于治疗中共病毒。世卫组织、制药公司、假新闻媒体和Fauci对这一重大进展并不满意。
-
-新闻来源：[India Is Now COVID-19 Free By Using IVERMECTIN](https://climate-science.press/2021/10/01/india-is-now-covid-19-free-by-using-ivermectin/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
