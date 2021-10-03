@@ -2,38 +2,29 @@
 ---
 
 
-## 日本养老金管理机构暂缓投資中国国债
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569682/)
+## 2021年8月17日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569790/)
 
-栏目记者：andy5/文仁
-责任编辑：文仁
+盖特连接：[https://gettr.com/post/p7x03va82f](https://gettr.com/post/p7x03va82f)
 
+8月17号：尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机真相了吗？一切都已经开始。
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+(碎步小跳），Snow，第十一次！（做完一组健腹轮）怎么样？Snow，耶~中国共产党！像这Snow，跳。
 
+编辑整理及发布：黎明之前
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-【日本经济新闻（日经中文网）】报道：恒大事件之后，日本养老金管理机构（GPIF）暂缓投资中共国国债 ， 作为该机构投资参考的重要依据的英国富时罗素（FTSE Russell）指数在3月宣布把中国国债纳入该指数，在目前市场混乱风险剧增的情况下各国都非常关注GPIF 是否启动对人民币国债的投资。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-1.jpg)
-郭文贵先生的直播爆料中也多次提到，在贪婪的华尔街资本的撮合下，美欧日澳等多国已经把自己国家的各給类基金投资到了中共国，那些基金都是各国老百姓的养老钱，救命钱。现在中共国随着恒大的爆雷，一连串类似的金融事件会随之发生，各国将很难收回自己的投资， 甚至血本无归，这是中共捆绑世界的一个手段， 如果世界不早日醒来认清中共的本质，消灭中共，那世界将会被中共一起拖入一个黑暗的泥潭。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-（本文仅代表作者观点）
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-参考链接：
-1. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
-2. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

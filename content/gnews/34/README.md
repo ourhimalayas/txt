@@ -2,39 +2,29 @@
 ---
 
 
-## 白宫将针对网络犯罪和勒索软件召开30国会议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569678/)
+## 2021年8月15日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569771/)
 
-栏目记者/责任编辑：文真
+盖特连接：[https://gettr.com/post/p7q0890994](https://gettr.com/post/p7q0890994)
 
+8月15号：尊敬的战友们好，你们健身了吗？传播郑州人祸……香港人道危机……CCP病毒真相了吗？
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+（做完一组健腹轮，碎步小跳），耶~
 
+编辑整理及发布：黎明之前
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-在今年发生了一系列威胁美国能源和食品供应的网络攻击事件后，拜登政府已将网络安全对策提升到政府的最高级别。此前，中共对其恶意网络攻击的指控，予以否认。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture22-1.jpg)
-白宫10月1日表示，拜登政府计划在本月召集约30个国家，举行线上会议，旨在 “改善执法机构之间的合作”，例如 “非法使用加密货币 “等问题。以应对日益重的勒索软件和其它网络犯罪的威胁。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-拜登政府希望其新的非正式小组——即“反勒索软件”倡议，加强外交努力，包括与俄罗斯、北约、联合国和G7国家的直接会谈。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-（本文仅代表作者观点）
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-参考链接：
-1. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.theusexpressnews.com/white-house-plans-30-country-meeting-on-cybercrime-and-ransomware-official/)
-2. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.newsmax.com/newsfront/cybercrime-ransomware-summit/2021/10/01/id/1038753/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

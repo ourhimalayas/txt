@@ -2,43 +2,52 @@
 ---
 
 
-## SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569680/)
+## 盖特作为推特的颠覆者，正在力争川普的加入
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569788/)
 
-栏目记者/责任编辑：文一
+【**简评】盖特在上线4个月内，注册用户已超过259万。不同于侵犯言论自由的脸书、推特等社交平台，盖特允许一些有争议的内容不被审查过滤，其覆盖用户已因外国政要的加入而呈现全球化趋势，其技术支持也优于其它主张言论自由的平台。基于以上优势，我们深信盖特未来无疑能够吸引更多重磅用户的踊跃加入。**
 
+**据《纽约邮报》作者：Theo Wayt，2021年9月29日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/a71ie-wzywl-1.jpg)**图片：SOPA Images**
+美国前总统唐纳德·川普自从今年初被推特和脸书封杀后，至今尚未注册任何新的社交媒体账号 —— 但这并不能阻止那些主张言论自由的平台尝试邀请他加入。
 
+杰森·米勒(Jason Miller) —— 川普的前任高级顾问、现任推特的颠覆者盖特（Gettr）的执行总裁 —— 向《纽约邮报》透露，他几个月来一直在跟川普讨论加入盖特的问题。该平台自今年7月上线以来，已经拥有超过259万的注册用户。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+米勒之所以想让川普加入盖特（Gettr），是因为如果这位前总统成为平台的一员，他的数百万粉丝也会追随加入。
 
+川普目前尚未同意签约为用户。这位前总统已经不能像很久以前那样随便冠名伏特加酒、牛排和领带了，现在他想在加入盖特之前“确保这是一个能长久存活的可行平台”。
 
+盖特（Gettr）目前看起来像推特的基础版，但是米勒说平台计划在未来几个月内添加新功能，例如发送私聊消息、直播功能，以及盖特支付（Gettr Pay），一种Apple Pay和Google Pay的替代品，预计将会在明年推出。
 
-美国证券交易委员会SEC周五将比特币-ETF申请的最后决定期限推迟至11月。该机构搁置了包括Global X Bitcoin Trust在内的四项申请。
+根据Axios上个月的一份报告，川普还想要获得盖特的股权作为加入的附加条件。米勒并没有证实此报道，但他表示与川普的谈判自8月以来已经取得进展。
 
-据悉，至少有20家公司提出申请欲成为美国首个加密基金。SEC 主席加里·詹斯勒虽然一直在打击加密货币，但最近也表示对加密货币ETF持更加开放的态度，认为符合严格规则的ETF可以为投资者提供保护。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-1.jpg)
-美联储主席杰罗姆-鲍威尔上周也表示，他不打算禁止加密货币，但对于这个已成长为2万亿美元的庞然大物，华盛顿的监管机构将制定规则加强监管。鲍威尔在同一场合表示，他希望对稳定币实施联邦标准，这种数字资产在最近几个月爆炸性增长，通常通过与国家货币挂钩来维持较稳定的价格。
+盖特（Gettr）得到了郭文贵先生 —— 2014年逃离中国的商人，与川普前顾问史蒂夫班农（Steve Bannon）关系密切 —— 的资助。公司表示它还拥有其他不具名的支持者。米勒说他最近一直在和海外的潜在投资者商谈，包括拉丁美洲和欧洲。
 
-拜登政府即将发布的报告将开始通过对稳定币制定类似银行的规则，来削除监管加密货币的项目。据《华盛顿邮报》报道，与美元挂钩的稳定币，其流通量已经从年初的290亿美元上升到今天的1260亿美元。到目前为止，主要被投资者用来结算不同加密货币资产之间的交易，发行者也声称稳定币可改变普通消费者的支付方式。
+盖特（Gettr）并非第一个力争川普加入的平台，在此之前还有Parler ——另一个重视言论自由、试图替代推特和脸书的平台。它在2020年底受到了保守派人士的青睐，但在1月6日事件之后，其服务器被亚马逊网络服务（Amazon Web Services）禁止访问而彻底崩溃，导致应用程序无法使用一个月。据报道，川普曾考虑加入Parler，但在该公司拒绝审查他的批评者时犹豫不决。
 
-从政府监管机构的政策改变和导向来看，与国家货币挂钩的稳定币将为加密货币提供保障，同样，与美元挂钩的喜美元将为喜币的发行流通保驾护航，喜支付更是为喜币的成长壮大提供无限可能。
+盖特（Gettr）也依赖亚马逊网络服务（Amazon Web Services）来提供支撑其网站的技术，但米勒表示，如果亚马逊切断了服务器连线，盖特还有一个备用计划来避免类似Parler 的长时间停用。
 
-（本文仅代表作者观点）
+言论自由作为盖特（Gettr）主张的理念之一，该平台已经避免审查一些有争议的内容。据米勒所说，当YouTube在禁止播放反对强制接种新冠病毒疫苗的内容时，盖特（Gettr）允许它出现在该平台上。
 
-参考链接：
-1. [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](https://markets.businessinsider.com/news/currencies/sec-bitcoin-etf-decision-delay-gensler-cryptocurrencies-deadline-markets-2021-10)
-2. [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](https://www.msn.com/en-us/money/markets/washington-takes-aim-at-the-booming-crypto-industry/ar-AAP3Zcz)
+米勒还希望通过把盖特（Gettr）的覆盖范围更国际化，使其与支持川普的竞争对手平台区分开来。米勒已经说服了巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）签约，并正在推动其他具有影响力的全球政治人物加入。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+米勒作为一家社交媒体的执行总裁，不仅要飞往世界各地与政客们交谈，他的大部分时间花在处理内容审核的事务上，包括《Politico》报道的大量圣战者处决视频。
 
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
+盖特（Gettr）表示它正在解决这些问题，并在加强建设国际化、文化多元化的内容审核团队。目前该公司在全球拥有300余名全职员工，其中50名在纽约。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+作为前总统川普的前顾问，米勒表示在与川普的谈话中发现，川普在2024年再次参选的可能性越来越大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+米勒预测，如果川普不参选，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）将会成为共和党提名的领跑者。而德桑蒂斯已经在7月份加入了盖特（Gettr）。
+
+**文章来源：**[https://nypost.com/2021/09/29/donald-trump-being-courted-by-twitter-alternative-gettr-run-by-his-ex-adviser/](https://nypost.com/2021/09/29/donald-trump-being-courted-by-twitter-alternative-gettr-run-by-his-ex-adviser/)
+
+**（本文评论仅代表个人观点）**
+
+翻译/评论：洛杉矶盘古农场 – maru
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 明子
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
