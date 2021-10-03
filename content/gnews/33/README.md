@@ -2,39 +2,34 @@
 ---
 
 
-## 朝鲜成功试射一枚新研发的防空导弹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1570379/)
+## 银河快讯:岸田将设立经济安全大臣对抗中共；东京示威抵制北京冬奥会
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1570425/)
 
-栏目记者/责任编辑：正义的小新
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-4.png)[图片来源](https://news.yahoo.co.jp/)
+**1.****日本将测试美国战斗机在轻型航空母舰上的着陆**
 
+[据the hankyoreh  10月2日报道，日本将着手进行一项测试，以验证能够垂直起飞和降落（STOVL）的F-35B战斗机是否能够在日本计划在未来运营的轻型航空母舰 “出云号 ”上实际起飞和降落。国防部发布新闻稿称，“在美国的支持下，出云号驱逐舰计划在10月3日至7日的一天内进行F-35B隐形战斗机在太平洋上的降落测试”。 核查工作将涉及部署在山口县岩国空军基地的美国海军陆战队F-35B战斗机。](https://news.yahoo.co.jp/articles/2c53cf7b61f4f73478386a7c9f94acba5f80c363)
 
+**2.****岸田将设立经济安全大臣以对抗中共国**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+[据共同社 10月2日报道，未来的日本首相岸田文雄计划设立一个负责经济安全的新部长职位，以反击中共国的技术盗窃行为。岸田在周一的特别国会会议上当选为首相后，将启动他的内阁，他还考虑任命一名关于这个问题的首相顾问。目前还不知道谁将担任这一职务，但预计新部长将制定一项国家战略，以阻止日本的技术流失。](https://english.kyodonews.net/news/2021/10/cdf05f9ab761-breaking-news-kishida-to-create-new-ministerial-post-for-economic-security.html)
 
+**3.****日本县知要求在放宽中共病毒限制的同时保证医疗系统的安全**
 
+[据共同社10月2日报道，日本各县知事周六呼吁新的政府加强卫生保健系统，因为放宽中共病毒的限制可能会导致感染的再次出现。知事们在周六举行的在线会议上讨论的提案草案中说：“确保一个能够拯救国民生命的医疗系统应该是战略的基础。”最新的提案是在东京和其他18个县的紧急状态被解除，另外8个地区的准紧急状态也于周五结束之际提出的。](https://english.kyodonews.net/news/2021/10/f86ed2a702d3-japan-governors-demand-securing-medical-system-amid-easing-covid-curbs.html)
 
-** **
+**4.东京反中共示威：”反对在一个压制人权的国家举办奥运会”！**
 
-朝鲜官方媒体朝中社10月1日称，朝鲜国防科学院9月30日，成功试射一枚新研发的防空导弹。这是朝鲜9月以来，使用所谓“新的导弹技术”进行的第四次试射。据朝中社报道，朝鲜国防科学研究院表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统等方面，具有非常现实的意义”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture66.jpg)
-对此，日本政府表示，朝鲜此举违反了联合国安理会“禁止使用弹道导弹技术”的决议，同时称朝鲜的试射行为“令人极为遗憾”。与此同时，美国国务卿布林肯9月30日敦促国际社会认真对待朝鲜的导弹发射。布林肯指出，这些导弹发射造成了“更大的不稳定”，美国正与日本和韩国就朝鲜问题进行“积极对话”。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
+[据产经新闻 10月2日报道，一群居住在日本的香港人、维吾尔人、西藏人和蒙古人抗议中共对人权的压制，于2日在东京举行示威，呼吁抵制即将于明年2月举行的北京冬奥会。150多名参与者打着 “反对北京奥运会压迫人权 ”的横幅，在涉谷区的联合国大学周围游行，打出“反对在一个压制人权的国家举办奥运会！日本政府必须宣布抵制!”和“日本政府必须宣布抵制!”等标语。](https://news.yahoo.co.jp/articles/0cf7544b718244c341b82ba2238721d8524c225e)
 
-（本文仅代表作者观点）
+**5.****自称NTT DOCOMO的钓鱼网站欺骗超过1200人损失约1亿日元**
 
-参考链接：
-1. [朝鲜成功试射一枚新研发的防空导弹](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
-2. [朝鲜成功试射一枚新研发的防空导弹](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
+[据NHK 10月2日报道，用户在他们的智能手机上收到自称来自NTT DOCOMO的短信息，欺诈性地要求他们购买礼品卡和其他物品。该公司警告人们要警惕该骗局，该骗局已影响到约1200人，损失达1亿日元。据NTT DOCOMO称，上个月30日和1日之间，一条自称来自DOCOMO客户服务中心的短信息被发送到用户的手机上。消息说 “我们没有收到你的付款确认。”](https://www3.nhk.or.jp/news/html/20211002/k10013288301000.html?utm_int=all_side_ranking-social_002)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**6.****日本餐饮业开始尝试使用疫苗接种证明**
 
-终审编辑：鬼五
-校正/发稿：Hetangyuese
+[据共同社10月2日报道，日本政府在放宽限制以防止中共病毒感染的传播后，将从本月开始在13个县的餐馆和其他场所尝试使用中共疫苗接种证明。这项尝试还将在体育场馆、小型现场音乐场所和剧院进行，目的是确认检查游客的疫苗接种证明或阴性测试结果是否可以顺利进行。以实验为框架，政府旨在避免统一实施严格的措施，并继续开展经济活动，即使国家在未来受到另一波疫情的冲击。](https://english.kyodonews.net/news/2021/10/60209a289a5c-japan-eateries-to-begin-experimenting-with-using-proof-of-vaccination.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
