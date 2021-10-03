@@ -2,33 +2,29 @@
 ---
 
 
-## 中共在国庆日向台湾派出38架军机，为今年最大规模
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569757/)
+## 2021年8月17日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569790/)
 
-**【简评】 在这个特殊的日子，不管中共派出38架战斗机是为了耀武扬威，还是为了回应国内‘小粉红’，台湾军队和人民都不应放松警惕。文贵先生多次强调，对台湾的攻击一定会发生，届时台湾的钱就会成为废纸。希望台湾人民安全度过这次危机。**
+盖特连接：[https://gettr.com/post/p7x03va82f](https://gettr.com/post/p7x03va82f)
 
-**据《美联社》2021年10月2日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a0qv0-ls49w.jpg)**中国空军轰-6轰炸机。图片来源：网络**
-台湾台北 —— 中共国在国庆节当天向台湾派出了38架战斗机，这是今年规模最大的一次武力展示。
+8月17号：尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机真相了吗？一切都已经开始。
 
-中国人民解放军周五在第一次飞行中派出了 25 架战斗机，然后当晚又出动了 13 架飞机。台湾国防部在一份声明中说，台湾部署了空中巡逻部队作为回应，并在其防空系统上追踪了中共国飞机。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-首批飞机包括18架J-16战斗机和两架H-6轰炸机。
+(碎步小跳），Snow，第十一次！（做完一组健腹轮）怎么样？Snow，耶~中国共产党！像这Snow，跳。
 
-在过去的几年里，中共几乎每天都向台湾岛屿（中共声称是其领土的一部分）派遣飞机，通过演习加强军事骚扰。
+编辑整理及发布：黎明之前
 
-上星期，在台湾宣布申请加入《全面与进步跨太平洋伙伴关系协定》(CPTPP)后，中共国向台湾派出了24架战斗机。中共国也申请加入这个有11个成员组成的自由贸易集团。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-台湾和中共国在1949年的内战中分裂，中共国也不排除武力统一台湾。北京反对台湾参与国际组织。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**原文连接：**[https://abcnews.go.com/International/wireStory/china-sends-25-fighter-planes-taiwan-national-day-80345256](https://abcnews.go.com/International/wireStory/china-sends-25-fighter-planes-taiwan-national-day-80345256)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-**（本文评论仅代表个人观点）**
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

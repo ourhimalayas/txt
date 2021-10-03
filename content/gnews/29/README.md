@@ -2,43 +2,29 @@
 ---
 
 
-## SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569680/)
+## 2021年8月15日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569771/)
 
-栏目记者/责任编辑：文一
+盖特连接：[https://gettr.com/post/p7q0890994](https://gettr.com/post/p7q0890994)
 
+8月15号：尊敬的战友们好，你们健身了吗？传播郑州人祸……香港人道危机……CCP病毒真相了吗？
 
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+（做完一组健腹轮，碎步小跳），耶~
 
+编辑整理及发布：黎明之前
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-美国证券交易委员会SEC周五将比特币-ETF申请的最后决定期限推迟至11月。该机构搁置了包括Global X Bitcoin Trust在内的四项申请。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-据悉，至少有20家公司提出申请欲成为美国首个加密基金。SEC 主席加里·詹斯勒虽然一直在打击加密货币，但最近也表示对加密货币ETF持更加开放的态度，认为符合严格规则的ETF可以为投资者提供保护。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-1.jpg)
-美联储主席杰罗姆-鲍威尔上周也表示，他不打算禁止加密货币，但对于这个已成长为2万亿美元的庞然大物，华盛顿的监管机构将制定规则加强监管。鲍威尔在同一场合表示，他希望对稳定币实施联邦标准，这种数字资产在最近几个月爆炸性增长，通常通过与国家货币挂钩来维持较稳定的价格。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-拜登政府即将发布的报告将开始通过对稳定币制定类似银行的规则，来削除监管加密货币的项目。据《华盛顿邮报》报道，与美元挂钩的稳定币，其流通量已经从年初的290亿美元上升到今天的1260亿美元。到目前为止，主要被投资者用来结算不同加密货币资产之间的交易，发行者也声称稳定币可改变普通消费者的支付方式。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-从政府监管机构的政策改变和导向来看，与国家货币挂钩的稳定币将为加密货币提供保障，同样，与美元挂钩的喜美元将为喜币的发行流通保驾护航，喜支付更是为喜币的成长壮大提供无限可能。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-（本文仅代表作者观点）
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-参考链接：
-1. [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](https://markets.businessinsider.com/news/currencies/sec-bitcoin-etf-decision-delay-gensler-cryptocurrencies-deadline-markets-2021-10)
-2. [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](https://www.msn.com/en-us/money/markets/washington-takes-aim-at-the-booming-crypto-industry/ar-AAP3Zcz)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

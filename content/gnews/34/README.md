@@ -2,43 +2,39 @@
 ---
 
 
-## 台湾质疑中共国加入太平洋贸易协定的资格，担心“被阻碍”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1569590/)
+## 白宫将针对网络犯罪和勒索软件召开30国会议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569678/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100230.jpg)2021年9月30日，台湾经济部长王美花在台湾台北接受路透社采访时表示。路透社/王安安
-**摘要翻译：**
-
-台北，10月1日（路透社）—台湾和中共国上个月都申请加入“跨太平洋伙伴全面进步协定(CPTPP)”，但中共国表示反对台湾加入，它声称台湾是中共国的领土。
-
-“如果中国先加入，就必然会有阻碍台湾的风险，”台湾经济部长王美花周四晚些时候在接受路透社采访时表示。“不管台湾要加入什么组织，他们都会反对。”
-
-王美花补充说，从互联网审查到劳工权益，中共国存在各种各样的问题。难免让人质疑中共国能否符合CPTPP的高标准，她说，这些要求将挑战中共国最根本的制度体系。
-
-“看看他们的信息，什么也不能进入。脸书无法进入，谷歌无法进入。”王说，她意指中共国屏蔽了这两个主要网站，包括推特在内的许多西方互联网公司都被以国家安全的名义屏蔽。
-
-台湾作为一个主要的半导体生产商，它已申请以在世贸组织(WTO)中的名称——台澎金马个别关税领域——加入(CPTPP)。台湾也是亚太经济合作组织(APEC)的成员之一。
-
-王美花说，相对于日本而言特别对中共国的竞标表示不满，台湾没注意到任何CPTPP成员反对他们的申请。
-
-台湾一直在寻求与其他国家，特别是其他民主国家达成自由贸易协议。王表示，如果加入(CPTPP)，台湾就不需要与澳大利亚或申请加入CPTPP的英国谋求单独的协议。
-
-**简评：**
-
-中共政府利用其专制独裁的统治模式，榨取14亿老百姓的财富，在世界贸易中占尽了优势，同时它们利用蓝金黄手段，腐化收买各国的利益集团以及国际组织，迫使台湾只能在夹缝中生存。
-
-但是，近期海航集团的破产重组，恒大地产的债务违约说明中共国的经济出现了大问题。高盛集团近期有报告指出，中共国的地方政府隐性债务已达GDP的一半以上，其潜在影响也将远远超过房地产违约。由此可见，中共虚假的经济已经走到了穷途末路，随时都可能崩溃。同时由近日公安部原副部长孙力军被抓和傅政华被查，也可以看出中共的政治内斗日益激烈，在政治内斗和经济危机双重压力下，中共这个邪恶的政权走向末日将是不可避免的事。当中共政权从这个世界上消失之后，台湾与自由世界的经济往来也将不会再受到阻碍。
-
-[新闻链接](https://www.taiwannews.com.tw/en/news/4302902)
-
-**编辑：【英国伦敦喜庄园编辑部】**
-
-*翻译/简评：Harvey (叶知秋) | 校对：小小妹*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+栏目记者/责任编辑：文真
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+
+
+
+在今年发生了一系列威胁美国能源和食品供应的网络攻击事件后，拜登政府已将网络安全对策提升到政府的最高级别。此前，中共对其恶意网络攻击的指控，予以否认。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture22-1.jpg)
+白宫10月1日表示，拜登政府计划在本月召集约30个国家，举行线上会议，旨在 “改善执法机构之间的合作”，例如 “非法使用加密货币 “等问题。以应对日益重的勒索软件和其它网络犯罪的威胁。
+
+拜登政府希望其新的非正式小组——即“反勒索软件”倡议，加强外交努力，包括与俄罗斯、北约、联合国和G7国家的直接会谈。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.theusexpressnews.com/white-house-plans-30-country-meeting-on-cybercrime-and-ransomware-official/)
+2. [白宫将针对网络犯罪和勒索软件召开30国会议](https://www.newsmax.com/newsfront/cybercrime-ransomware-summit/2021/10/01/id/1038753/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)

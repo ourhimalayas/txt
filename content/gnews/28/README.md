@@ -2,38 +2,38 @@
 ---
 
 
-## 日本养老金管理机构暂缓投資中国国债
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1569682/)
+## 周六，墨尔本警方继续大肆抓捕抗议人士
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1569774/)
 
-栏目记者：andy5/文仁
-责任编辑：文仁
+#### **编译报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-3.png)
+**图片来源：****9 News**
 
+10月2日，澳大利亚墨尔本警方对抗议者进行了快速的出击，在全市范围内，有超过100名抗议者被抓捕。
 
+周六，数十人来到皇家植物园的战争纪念馆，反对新冠疫苗强制接种在两周内对授权工人生效。但警方早有准备，迅速出手制止了这一行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+警察今天对抗议者发起了猛攻，逮捕了一些有敌意的抗议者，而其他人则逃离现场，抗议人士遭到了大规模的武力打击。
 
+当晚，警方表示，有109人因各种罪行被逮捕，并因违反首席卫生官的命令而发出108份处罚通知。
 
+警方继续警告，他们将毫不犹豫地再次对任何更多的行动进行打击。
 
-【日本经济新闻（日经中文网）】报道：恒大事件之后，日本养老金管理机构（GPIF）暂缓投资中共国国债 ， 作为该机构投资参考的重要依据的英国富时罗素（FTSE Russell）指数在3月宣布把中国国债纳入该指数，在目前市场混乱风险剧增的情况下各国都非常关注GPIF 是否启动对人民币国债的投资。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-1.jpg)
-郭文贵先生的直播爆料中也多次提到，在贪婪的华尔街资本的撮合下，美欧日澳等多国已经把自己国家的各給类基金投资到了中共国，那些基金都是各国老百姓的养老钱，救命钱。现在中共国随着恒大的爆雷，一连串类似的金融事件会随之发生，各国将很难收回自己的投资， 甚至血本无归，这是中共捆绑世界的一个手段， 如果世界不早日醒来认清中共的本质，消灭中共，那世界将会被中共一起拖入一个黑暗的泥潭。
+在抗议现场，人们在高呼”我的身体，我做主”。
 
-（本文仅代表作者观点）
+与最近几天墨尔本的其他抗议活动不同，现场警察的人数也多于抗议人群。在场的人也注意到，总体上暴力事件较少。
 
-参考链接：
-1. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
-2. [日本养老金管理机构暂缓投資中国国债](https://zh.cn.nikkei.com/politicsaeconomy/stockforex/46221-2021-09-29-11-28-38.html)
+维多利亚州州长丹尼尔·安德鲁斯昨天宣布，所有在授权名单上的工人都需要在10月15日前接种一剂新冠疫苗，在11月26日之前完全接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+截至10月3日，墨尔本累计封锁达246天，维州在过去的一天里记录了1220个新增病例，并有3个人死亡。
 
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
+新闻链接：[Coronavirus update Victoria: More than 100 arrested during Melbourne protests (9news.com.au)](https://www.9news.com.au/national/coronavirus-update-victoria-protests-against-vaccine-mandate-planned-melbourne/7471d105-1e19-4d23-8646-2b86ea9dd225)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**编辑****/发布：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-34.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
