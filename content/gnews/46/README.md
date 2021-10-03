@@ -2,33 +2,18 @@
 ---
 
 
-## 中共在国庆日向台湾派出38架军机，为今年最大规模
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569757/)
+## CNBC主持人拷问福奇：我打了疫苗但全家都染上了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1570123/)
 
-**【简评】 在这个特殊的日子，不管中共派出38架战斗机是为了耀武扬威，还是为了回应国内‘小粉红’，台湾军队和人民都不应放松警惕。文贵先生多次强调，对台湾的攻击一定会发生，届时台湾的钱就会成为废纸。希望台湾人民安全度过这次危机。**
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-12.jpg)图片来源：新浪
+美国网关专家网站10月2日报道， **全国广播公司商业频道消费者新闻与商业频道（CNBC）**主持人针对所谓的“突破病例”拷问福奇：“ 福奇博士，你们这些人整天催促人们打疫苗，我知道为什么，我打了疫苗，但我还是染上了中共病毒，而且在过去几周内我们全家都染上了。” CNBC女主播萨拉·埃森在她的办公室里说着，“我对关于疫苗的公共信息觉得很奇怪，我家三个人打了疫苗都染上了这个病毒，两未打疫苗的孩子也染上了，你对疫苗的有效性也太随意了，突破病例已经是很常见了，但我没看到政府有任何的关注和警告。”
 
-**据《美联社》2021年10月2日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a0qv0-ls49w.jpg)**中国空军轰-6轰炸机。图片来源：网络**
-台湾台北 —— 中共国在国庆节当天向台湾派出了38架战斗机，这是今年规模最大的一次武力展示。
+而福奇看来很受刺激并多次想要打断埃森的话，但她继续说：“我们还是会染上并传播（这个中共病毒），感谢神我们不需要住院，但我还是染上了，虽然打了疫苗，（所以打了疫苗）还是会染上并传播，但政府并没有警告这一点。”
 
-中国人民解放军周五在第一次飞行中派出了 25 架战斗机，然后当晚又出动了 13 架飞机。台湾国防部在一份声明中说，台湾部署了空中巡逻部队作为回应，并在其防空系统上追踪了中共国飞机。
+福奇以居高临下的姿态回答说：“是的，我同意，我们已经说过这个了，让我给你看这个科学报告和数据。”
 
-首批飞机包括18架J-16战斗机和两架H-6轰炸机。
+福奇的所谓数据根本没有回答主持人所提的问题，既然打了疫苗还是会染上并传播中共病毒，为什么还要强推民众打疫苗？这个试验性的疫苗的短期和长期的副作用究竟如何？请尽快结束这种弊大于利的疫苗推广。
 
-在过去的几年里，中共几乎每天都向台湾岛屿（中共声称是其领土的一部分）派遣飞机，通过演习加强军事骚扰。
-
-上星期，在台湾宣布申请加入《全面与进步跨太平洋伙伴关系协定》(CPTPP)后，中共国向台湾派出了24架战斗机。中共国也申请加入这个有11个成员组成的自由贸易集团。
-
-台湾和中共国在1949年的内战中分裂，中共国也不排除武力统一台湾。北京反对台湾参与国际组织。
-
-**原文连接：**[https://abcnews.go.com/International/wireStory/china-sends-25-fighter-planes-taiwan-national-day-80345256](https://abcnews.go.com/International/wireStory/china-sends-25-fighter-planes-taiwan-national-day-80345256)
-
-**（本文评论仅代表个人观点）**
-
-翻译/评论：洛杉矶盘古农场 – 钢蛋儿
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+##### 新闻来源： [“I’m Vaccinated, But I Also Have Covid – And it Spread Through My Entire Family!” – CNBC Host Grills Fauci on Vaccine ‘Breakthrough’ Cases (VIDEO)](https://www.thegatewaypundit.com/2021/10/vaccinated-also-covid-spread-entire-family-cnbc-host-grills-fauci-vaccine-breakthrough-cases-video/)

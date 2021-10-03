@@ -2,78 +2,71 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1570555/)
+## 西喜时事新闻简报 — 中共国国际时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1570642/)
 
-- **西班牙喜悦农场—wenwu**
+- **西班牙喜悦农场-wenwu**
 
 
 您若想了解全文报导内容，请点击标题链接
 
 （爱惜生命 远离疫苗）
 
-**1.[Merck & Co.研制的实验性中共病毒口服药（HCQ和伊维菌素）让死亡和住院率降低一半](https://www.thegatewaypundit.com/2021/10/merck-co-cheers-experimental-antiviral-pill-covid-19-cuts-death-hospitalization-half-sort-like-hcq-ivermectin/)**
+**1. [中共国“俄罗斯化”？法国军事智库称北京借鉴了莫斯科的剧本](https://www.cnbc.com/2021/09/29/french-military-think-tank-warns-of-beijing-russia-like-global-influence-.html?recirc=taboolainternal)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip201.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip207.png)
 
-据《门户网》2021年10月2日电，默克公司一种针对中共病毒（COVID-19）的实验性抗病毒药丸Molnupiravir 降低了一半感染该病毒的人在早期给药时住院甚至死亡的风险；该公司计划接下来两周内申请EUA。（Ridgeback 收到了默克公司的预付款，作为公司开发 molnupiravir 的一部分；合作产生的利润将平均分配给默克和 Ridgeback）
+据《美广商业频道》2021年9月30日电，根据一个与法国军方有关联的智囊团[最近的一份报告](https://www.irsem.fr/index.html)（在过去几年中大大加强了影响力的运作，其方法看起来越来越像莫斯科所采用的方法），中共国越来越想在全球舞台上进行渗透和胁迫，其行动越来越像与俄罗斯有关的行动；这份长达600多页的研究论文由中国政治和外交事务专家保罗·查龙（Paul Charon）和让-巴蒂斯特·让金·维尔默（Jean-Baptiste Jeangene Vilmer）撰写。
 
-一年多以来，尽管 HCQ在早期治疗死亡率测试中的[成功率为 75%](https://c19hcq.com/)，并且[伊维菌素](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)在印度和其他地方[取得](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)了[稳固的成果](https://www.thegatewaypundit.com/2021/09/huge-uttar-pradesh-india-announces-state-covid-19-free-proving-effectiveness-deworming-drug-ivermectin/)；但各国几乎像政府、福奇博士和美国医学界这样的组织一直[在向公众撒谎](https://www.thegatewaypundit.com/2021/06/smoking-gun-fauci-lied-millions-died-fauci-informed-hydroxychloroquine-worked-lied-public-instead-despite-science-fauciemails/)，他们都是杀人凶手。
+自 2008 年以来，中共国每年向媒体投资 13 亿欧元（15.2 亿美元），以“更好地控制其在世界上的形象”，通过拒绝外国投资者进入市场、实施禁运和关税以及组织抵制的手段（[在澳大利亚](https://www.cnbc.com/2020/12/18/australia-china-trade-disputes-in-2020.html)呼吁对[Covid 进行调查](https://www.cnbc.com/2020/04/19/australia-demands-coronavirus-enquiry-adding-to-pressure-on-china.html)后， 中共国[对澳大利亚商品实施了重大贸易限制](https://www.cnbc.com/2020/12/18/australia-china-trade-disputes-in-2020.html)）；本周早些时候，美国、印度、日本和澳大利亚的领导人也提到了国际关系中的[胁迫](https://www.cnbc.com/2021/09/27/quad-leaders-summit-us-india-japan-australia-statement-on-indo-pacific.html)主题。这四个国家没有提到中国，而是表示他们致力于建立一个“不受胁迫”的自由开放的印太地区。
 
-**2. [最高法院法官对纽约市学校疫苗计划提出上诉](https://news.yahoo.com/nyc-teachers-appeal-block-school-222238318.html)**
+**2. [台湾被中共国空军有史以来最大规模入侵激怒](https://news.yahoo.com/taiwan-reports-largest-ever-incursion-004014280.html)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip202.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip208.png)
 
-据《雅虎新闻》2021年10月1日电，公立学校教师和其他工作人员于周四（30日）向最高法院大法官索托马约尔申请[了禁令](https://apnews.com/article/coronavirus-pandemic-religion-new-york-courts-education-f953fa28876c0be0f82d5771a0aae18a)，以防止疫苗授权在周五生效，但最高法院大法官驳回了他们的请求；也就是说，大约有14.8万名学校员工必须在周五下午 5 点之前，至少接种第一针疫苗。
+据《雅虎新闻》援引《路透社》2021年10月1日电，台湾国防部表示，台湾战斗机周五（1日）分两波对38架中共国飞机进行了扰动。它说，台湾派出了作战飞机来警告离开中共国飞机，同时部署了导弹系统来监视它们，这是北京有空军以来最大规模的（为纪念国殇日）入侵台湾防空区；台湾总理苏贞昌星期六上午告诉记者：“中共国一直在肆意进行军事侵略，破坏了地区和平。”
 
-教师的律师 Vinoo Varghese 在一封电子邮件中说：“我们很失望，但为我们的客户和类似情况的客户争取正当程序的斗争将继续进行。”8 月，最高法院大法官艾米·康尼·巴雷特 (Amy ConeyBarrett)[驳回了](https://apnews.com/article/health-courts-coronavirus-pandemic-us-supreme-court-c10f02b467c86e2b61c6743aedd4fc69)印第安纳大学学生请求，阻止该大学接种疫苗[的紧急呼吁](https://apnews.com/article/health-courts-coronavirus-pandemic-us-supreme-court-c10f02b467c86e2b61c6743aedd4fc69)。
+台湾国防部表示，中共第一波入侵包括18架歼-16和4架苏-30战斗机，加上两架具有核能力的H-6轰炸机和一架反潜机，而第二波入侵有10架歼-16、2架H-6和一架预警机；另外，第一批中共国飞机都在靠近普拉塔斯群岛的地区飞行，其中两架轰炸机最靠近环礁；而第二批飞机飞到了将台湾和菲律宾分开的巴什海峡，这是一条连接太平洋和有争议的南海的关键水道。
 
-**3. [台湾教育部考虑放宽对大学的疫情限制](https://www.taiwannews.com.tw/en/news/4303903)**
+台湾外交部长吴钊燮也表示谴责，他在周六（2日）的推特上说，创纪录的飞行架次确保了周五“不是一个好日子”；周六也报告了另一次入侵，这次涉及20架飞机，除了两架反潜机外，都是战斗机。他们也在普拉塔斯附近飞行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip203.png)
+**3. [对台湾的爆发背后有中共国的威胁](https://www.taiwannews.com.tw/en/news/4303268)**
 
-据《台湾英文新闻》2021年10月2日电，中央流行病指挥中心 (CECC)周六（2日）宣布[没有新的国内病例](https://www.taiwannews.com.tw/en/news/4303796)或中共病毒（COVID-19）死亡病例，而周日（10 月 3 日）则计划公布某些地点的[口罩规则变化](https://www.taiwannews.com.tw/en/news/4302990)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip210.png)中国外交部长王毅
 
-据[CNA](https://www.cna.com.tw/news/firstnews/202110020115.aspx)报道 ，教育部 (MOE) 表示正在努力允许大学恢复全面的课堂教学，尽管 CECC 需要在该措施生效之前获得批准；台北市世新大学宣布从 10 月 4 日起取消 80 人的人数限制，学生在上课时不必分开坐，这引起了学生和家长的惊愕；师生仍需戴口罩，课堂上的饮食仍将被禁止。
+据《台湾英文网》2021年10月1日电，中共国国台办近对吴钊燮外长进行口头攻击，称他是“强硬的台独”，不尊重国际关系的基本理念，这明显是皇帝不急、太监急；大陆事务委员会（MAC）的答复是，呼吁中国不要进行口头攻击，并通过检查其管理台湾事务的部门来调查什么是错的；它还强调，北京的”一个中国”原则没有得到国际支持，而且台湾从来都不是中华人民共和国的一部分。
 
-**4. [完全接种疫苗的法官布雷特·卡瓦诺 (Brett Kavanaugh) 对 Covid-19 的测试呈阳性](https://www.thegatewaypundit.com/2021/10/fully-vaccinated-justice-brett-kavanaugh-tests-positive-covid-19/)**
+中共国最近的挫折和世界各地民主国家对其侵略性外交政策的反弹，可能预示着中国共产党（CCP）将走入严重威胁的阶段。前苏联在解体前存在了74年，而中华人民共和国很快将达到其71周年。北京对其国际和国内的挫折只能怪自己。然而，每次它都把怒火引向台湾。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip204.png)
+当它与美国和欧洲的关系动摇时，中共国就派战机进入台湾的防空识别区（ADIZ）。当它面临国内经济困难时，它用愤怒的语言和侮辱来攻击台湾。当日本挑选亲台的新首相时，北京没有批评东京，而是批评台北。
 
-据《门户网》2021年10月1日电，最高法院表示，法官布雷特·卡瓦诺 (Brett Kavanaugh) 周四（30日）晚上的 Covid-19 检测呈阳性（无症状），他曾于今年1月完全接种中共疫苗。
+**4. [欧洲议员与维吾尔人呼吁法国采取行动](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20211002-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E5%91%98%E4%B8%8E%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E5%91%BC%E5%90%81%E6%B3%95%E5%9B%BD%E9%87%87%E5%8F%96%E8%A1%8C%E5%8A%A8)**
 
-**5. [突发：暴政的新南威尔士州州长 Gladys Berejiklian 在腐败调查后，耻辱地辞职#LockHerUp](https://www.thegatewaypundit.com/2021/10/breaking-tyrannical-new-south-wales-premier-gladys-berejiklian-resigns-disgrace-following-corruption-probe/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip211.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip205.png)
+据《法广网》2021年10月2日电，大约两千多名来自欧洲各地的维吾尔族人以及法国人权组织以及普通公民参与了周六下午再巴黎市中心举行的示威游行，游行队伍呼喊着：“法国在哪里？”“维吾尔族人在哭泣，而全世界都把眼光转向别处”，“关闭再教育营 释放维吾尔族人”等口号；比利时欧洲议员Samuel Cogolati特意从布鲁塞尔赶到巴黎声援，并表示：“我特意从布鲁塞尔赶到巴黎来声援我们的维吾尔朋友，因为我坚信欧盟只有在团结一致捍卫我们的基本价值时才是美好的。我们不能眼看着超过一百万的无辜的维吾尔族人被关押在再教育营而袖手旁观，我们必须站出来要求释放这些维族人，遏止针对维吾尔的种族屠杀。我今天要告诉法国人的是这是完全有可能的。我们在比利时经过历时多个月的示威以及抗议活动，一开始的时候许多人都认为我们完全没有成功的可能，但是，几个月之后，比利时议会终于以压倒性多数通过了维吾尔族人遭受种族屠杀的议案。中共国，同比利时，法国一样，是最早签署联合国有关预防惩治种族灭绝罪公约的国家，这就是为什么作为比利时议员，欧洲议员我们有责任站出来捍卫这些人类最基本的普世价值，无论哪个国家，我们都必须站出来，因为他们是我们的朋友，是我们的兄弟姐妹，如果我们今天无所当作的话，那么，就等于是默认，允许这些罪刑继续发生。这就是为什么我们今天必须站出来，无论这些事件是发生在什么国家,都涉及到我们所有的人，这就是为什么比利时以及法国都必须行动起来。”
 
-据《门户网》2021年10月1日电，暴虐的新南威尔士州州长格拉迪斯·贝瑞吉克莲 (Gladys Berejiklian) 在“廉政公署”宣布正在调查她的行为之后，她“艰难地”宣布在周五（1日）辞职；显然，司法系统在澳大利亚仍然有效。
+法国普通年轻人表示：“维吾尔族人的遭遇实在太恐怖了，欧洲曾经遭受犹太人种族屠杀，曾经发誓不能再让类似的事件再度发生，然而，今天同样的事件正在发生，而欧洲却只是坐儿观望。我之所以要站出来也是因为在法国有许多政界人物，比如说前总理拉法兰，将中共国说成是天堂，却从不提到中共国政府的镇压行为。法国数百万的年轻人签署了呼吁为捍卫维族人采取行动的呼吁书，但是，马克龙政府却置之不理。我们捍卫维吾尔族人的同时也是为了改变法国目前的政治面貌。”另外，此次游行队伍还包括多位欧洲议员，法国议员，包括法国绿党总统候选人Yannick Jadot 以及巴黎市政府的代表，法国民间组织的代表的演讲。
 
-这位 Berejiklian[的演讲](https://citizenfreepress.com/breaking/breaking-boom-gladys-berejiklian-resigns-as-nsw-premier/)如下：我已多次明确表示，如果我的任何部长成为廉政机构或执法部门正在调查的指控对象，那么他或她应该在调查过程中站在一边，直到他们的名字被清除为止；我热爱我的工作，也热爱为社区服务，但我别无选择；，继续担任州长将会扰乱州政府。
+法国绿党总统候选人同时也是欧洲议员的Yannick Jadot向法广表示：“我们期待中共国政府能够尊重中共国公民的基本权利，使生活在中国的每一个都能够享受作为一个公民的最基本的人权。今天中国的少数民族以及中共国国内的民主人士所遭受的镇压是令人难以接受的。作为欧洲议员，我们站出来的目的是要让欧洲的法制社会，尊重少数社群等基本价值也能够在中共国受到尊重。中国政府以及中共国驻法使馆否认新疆维族人遭到迫害，谴责西方媒体造谣诬蔑，那就请他们敞开大门，允许西方媒体欧洲议会的成员自由独立地前往新疆考察。”
 
-**6. [亲爱的父母…… 厌倦了看着您的孩子走路？何以忍心看到自己的孩子变成实验室的残疾小白鼠](https://theexpose.uk/2021/10/01/dear-parents-do-you-want-your-child-to-die-due-to-the-covid-vaccine/)**
+**5. [巴黎市长：巴黎与受迫害的维吾尔族人站在一起](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20211002-%E5%B7%B4%E9%BB%8E%E5%B8%82%E9%95%BF-%E5%B7%B4%E9%BB%8E%E4%B8%8E%E5%8F%97%E8%BF%AB%E5%AE%B3%E7%9A%84%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E4%BA%BA%E7%AB%99%E5%9C%A8%E4%B8%80%E8%B5%B7)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip206.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip212.png)
 
-据《吹哨人》2021年10月1日电，亲爱的父母们，您是否知道在极短且小型的临床试验中，86% 的儿童对辉瑞 Covid-19 疫苗产生了不良反应？（[来源](https://theexpose.uk/2021/05/30/shocking-86-of-children-suffered-an-adverse-reaction-to-the-pfizer-covid-vaccine-in-clinical-trial/)）
-您是否知道在极短小规模的临床试验中，九分之一的儿童出现了严重的不良反应，导致他们无法进行日常活动？（[来源](https://www.cdc.gov/vaccines/acip/meetings/downloads/slides-2021-05-12/03-COVID-Wallace-508.pdf)）
+据《法广网》2021年10月2日电，欧洲维吾尔学院周六（2日）在巴黎巴士底狱广场组织了一次大型示威活动，“反对对维吾尔族人的种族灭绝”；劳工权利组织还在巴黎两家的Zara商店前举行行动，谴责对维吾尔族人强迫劳动产品的剥削；巴黎市长安娜·伊达尔戈（Anne Hidalgo）当日在推特上宣布：“当许多人在本周六为支持维吾尔族人而游行时，巴黎与这个受迫害的民族站在一起。一家维吾尔族人之家即将在巴黎运营，市政厅将在11月12日以维吾尔族的颜色进行照明。#FreeUyghurs”
 
-您是否知道截至 2021 年 8 月 25 日，自 2020 年 3 月以来，只有 9 例与 Covid-19 相关的死亡发生在儿童中？（[来源](https://www.england.nhs.uk/statistics/statistical-work-areas/covid-19-daily-deaths/weekly-total-archive/)）
-您是否知道儿童因 Covid-19 而患上严重疾病的风险极低？（[来源](https://www.medrxiv.org/content/10.1101/2021.07.01.21259785v1)）
-您是否知道辉瑞 Covid-19 疫苗处于实验阶段且仍在临床试验中？（[来源](https://theexpose.uk/2021/04/14/fact-check-full-fact-say-the-covid-vaccines-are-not-experimental-theyre-lying/)）
-您是否知道由英国政府、牛津大学和 CDC 于 2021 年 8 月发表的三项科学研究发现 Covid-19 疫苗不起作用？（[来源](https://theexpose.uk/2021/09/12/three-studies-find-the-covid-19-vaccines-do-not-work/)）
-您是否知道英国公共卫生部门的数据显示，大多数 Covid-19 死亡病例都在接种疫苗的人群中，并且数据表明疫苗会使疾病恶化？（[来源](https://theexpose.uk/2021/09/24/phe-report-reveals-the-vaccinated-account-for-77-percent-covid-19-deaths/)）
-您是否知道自 2001 年以来，由于 Covid-19 疫苗导致的死亡人数在 8 个月内比所有其他可用疫苗造成的死亡人数更多？（[来源](https://theexpose.uk/2021/09/25/uk-medicine-regulator-confirms-there-have-been-four-times-as-many-deaths-due-to-the-covid-19-vaccines-in-8-months-than-deaths-due-to-all-other-vaccines-combined-in-20-years/)）
-您是否了解因辉瑞疫苗而导致儿童患心肌炎（心脏炎症）的真正风险？（[来源](https://theexpose.uk/2021/09/23/study-finds-over-3000-children-could-suffer-life-shortening-condition-caused-by-the-covid-19-vaccine/)）
-您是否知道儿童因美国的 Covid-19 疫苗而死亡？（[来源](https://theexpose.uk/2021/09/13/evidence-the-covid-19-vaccine-is-killing-children/)）
-您知道谁从您的孩子接种 Covid-19 疫苗中获利吗？（[来源](https://theexpose.uk/2021/09/04/gps-to-be-paid-22-pound-for-every-child-they-inject-with-a-covid-19-vaccine/)）
-您是否知道疫苗接种和免疫联合委员会拒绝向儿童推荐辉瑞疫苗，您是否知道他们被英格兰首席医疗官 Chris Whitty 否决了？（[来源](https://www.gov.uk/government/news/jcvi-issues-updated-advice-on-covid-19-vaccination-of-children-aged-12-to-15)）
-您是否知道，自从青少年首次接种 Covid-19 疫苗以来，15 至 19 岁青少年的死亡率比上一年增加了 47%？（[来源](https://theexpose.uk/2021/09/30/deaths-among-teenagers-have-increased-by-47-percent-since-covid-vaccination-began/)）
+欧洲议会议员格鲁克斯曼（Raphaël Glucksmann）在巴士底狱广场示威活动期间，呼吁法国总统马克龙与他的欧洲伙伴一起“捍卫维吾尔族人”。他还敦促欧盟在其境内禁止“奴役维吾尔族人所产生的产品”，并制裁那些相关责任人；9月12日，伊达尔戈宣布以社会党人身份参选2022年总统大选，寻求成为法国首位女总统。
 
-向英国 MHRA 黄卡计划报告的 Covid-19 疫苗不良反应的最新报告显示，截至 2021 年 9 月 22 日，共有 323 份针对辉瑞 mRNA 疫苗的瘫痪报告；此外，还向 MHRA 提交了 778 份针对阿斯利康疫苗的报告，其中包括 111 份偏瘫报告、100 份偏瘫报告、138 份单瘫报告和 324 份完全瘫痪导致 1 人死亡的报告；MHRA 还收到了 42 份因 Moderna 疫苗导致瘫痪的报告，其中 9 份报告为偏瘫，12 份报告为单麻，11 份报告为完全麻痹；另有 6 份由于注射不知名疫苗（国产？）向英国黄卡计划提交了麻痹症的报告。也就是说，截至到22日，黄卡计划总共统计了1149 起因注射疫苗导致的瘫痪反应案例。
+**6. [戴琪据报将宣布中共国未遵守美中第一阶段贸易协议](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20211002-%E6%88%B4%E7%90%AA%E6%8D%AE%E6%8A%A5%E5%B0%86%E5%AE%A3%E5%B8%83%E4%B8%AD%E5%9B%BD%E6%9C%AA%E9%81%B5%E5%AE%88%E7%BE%8E%E4%B8%AD%E7%AC%AC%E4%B8%80%E9%98%B6%E6%AE%B5%E8%B4%B8%E6%98%93%E5%8D%8F%E8%AE%AE)**
 
-除此之外，还有因注射中共疫苗引起的417起完全失明和1075起视力受损，以及1682起接种中共疫苗导致1682人死亡和544起生命垂危的案例。据[统计](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1022138/Vaccine_Analysis_Print_Pfizer_BioNTech_COVID-19_vaccine_22.09.2021.pdf)，截至9月22日，接种辉瑞疫苗造成了33万983人受其副作用伤害；接种阿斯利康疫苗导致了1091人死亡和82万8941人受伤害；接种Moderna疫苗导致19人死亡和5万2344人受伤害；有28人因为接种不知名（国产？）疫苗而死亡，还有3329人因不知名疫苗受伤害。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip213.png)
 
-随着接种疫苗的人越来越多，失明、瘫痪或死亡人数也越来越高。根据数据，4860万人接种了疫苗，英国黄卡收到了121万5597起疫苗不良事件报告，占总量的2.56%。笔者认为，只有10%的疫苗的不良事件上报了，所以应该看成疫苗副作用实际占总量的25.6%，也就是说，每4个人中就会发现自己有疫苗不良反应。
+据《法广网》2021年10月2日电，美国贸易代表戴琪周一（4日）将在华盛顿智库战略与国际研究中心（CSIS）发表关于拜登政府对华贸易战略的演讲时候宣布，中共国没有遵守与前总统川普政府达成的美中“第一阶段”贸易协议；也就是，北京未能履行从2020年1月1日至2021年12月31日两年内，中共国所确保在2017年基数之上，扩大自美采购和进口制成品、农产品、能源产品和服务不少于2000亿美元。
+
+美国贸易代表办公室（USTR）正评估对中共国没有信守采购承诺（离限制还有3个月）所可能采取的行动，包括施加额外关税等；截至今年8月，中共国已达成约62%的该协议采购目标；戴琪领导的美国贸易代表办公室几乎完成了拜登政府对中国贸易政策的审查，但没有说明具体时间。
+
+戴琪说，“川普政府当时通过美国《1974年贸易法》的301调查采取的有效关税措施，（是）我们在全力捍卫美国经济、美国工人和美国企业以及我们农民的利益方面可以借鉴和利用的东西。” 她还对这些关税造成的代价最终由美国消费者埋单的说法提出质疑，并指这是一个比许多人建议的分析更为复杂的计算。
 
 （文章仅代表作者本人观点，与Gnews无关）
 

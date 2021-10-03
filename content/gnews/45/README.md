@@ -2,68 +2,90 @@
 ---
 
 
-## 蛇妖闫和她的疑似床圈合影照是为了显摆那只咸猪手么？
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1570122/)
+## 辉瑞被指控对孤儿婴儿进行中共病毒疫苗试验
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1570125/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/001-1.jpg)
-这张照片引发了我的极大兴趣，于是就进行了照片检索，根据检索结果，我们可以知道图片中的人物名字如图所示——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/002-1.png)
-合影人员依次是——
+#### 翻译：Grace
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-5.jpg)图片来源：网络截图
+**波兰的告密者声称辉瑞正在对六个月大的孤儿进行实验以测试他们的中共病毒疫苗**，这导致一群律师、医疗专业人士和活动家要求波兰议会和参议院成员于 10 月 2 日星期六组织题为：“儿童和婴儿的医学测试——医学、法律和伦理问题”（“MEDICAL TESTS ON CHILDREN AND INFANTS – MEDICAL, LEGAL AND ETHICAL ISSUES ”）的会议。
 
-Li-Meng Yan, MD, PhD
+该会议由波兰独立医生和科学家协会（**The Polish Association of Independent Doctors**** and Scientists****）**，自由之声律师协会（**The Association of Lawyers Voice of Freedom****）**，多布罗斯坦健康信息中心协会（**Dobrostan Health Information Center Association****）**和新光谱基金会 （the New Spectrum Foundation）等波兰协会和基金会组织。
 
-Robert Malone, MD
+**会议中必须回答的主要问题：**
 
-Richard Urso, MD
+– **辉瑞是否正在对最脆弱，如果出现问题，没有人将他们放在心上的孤儿进行实验？**如果事情属实，为什么会这样？谁（哪些小孩的监护人）同意这样做了？
 
-Ryan Cole, MD
+– **为什么允许辉瑞对婴儿进行临床试验？**辉瑞疫苗尚未完成临床试验的第 3 阶段并且是一项新技术。
 
-Craig M. Wax DO
+– **辉瑞公司为什么拒绝民选官员查阅他们的文件？**
 
-那么这些人都是什么来头呢？
+– **进行这些实验的其他国家正在发生什么？**
 
-关于Robert Malone, MD，据[领英——Robert Malone](https://www.linkedin.com/in/rwmalonemd)：Inventor of mRNA vaccines and DNA vaccines; world-wide expert in RNA technologies RW Malone MD, LLC: Consultancy and Analytics in the Bio-sector
-![](https://assets.gnews.org/wp-content/uploads/2021/10/003-1.png)
-中文：mRNA疫苗和DNA疫苗的发明者； RNA 技术的全球专家 RW Malone MD, LLC：生物领域的咨询和分析
+– **欧洲药品管理局(EMA) ****和食品药品监督管理局( FDA) ****真的在做他们的工作吗？**
 
-关于Richard Urso, MD，据[领英——Richard Urso](https://www.linkedin.com/in/richard-urso-66b95a136)：Medical Doctor at Houston Eye Associates，中文：休斯顿眼科协会的医生
-![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.png)
-关于Ryan Cole, MD 据[领英——Ryan Cole](https://www.linkedin.com/in/ryan-cole-md-54020389/)：Dermatopathologist CEO/Lab Director at Cole Diagnostics ，中文：Cole Diagnostics 皮肤病理学家首席执行官/实验室主任
-![](https://assets.gnews.org/wp-content/uploads/2021/10/005.png)
-关于Craig M. Wax DO据[领英——Craig M. Wax DO](https://www.linkedin.com/in/craigwax/)：Executive Vice President, Magid Associates，中文：Magid Associates 执行副总裁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/006.png)
-关于这张图片的来源是这样的——
-![](https://assets.gnews.org/wp-content/uploads/2021/10/007.jpg)
-也就是说Craig M. Wax D.O.抛出了狗骨头，然后蛇妖闫第一个叼起了狗骨头并叫唤了第一声，那么与Craig M. Wax D.O.和蛇妖闫一起叫唤的还有哪些呢？在用这张图片进行谷歌匹配之后，我们可以得到的拼图是这样的——
+最后……**疫苗制造商是否完全保密且不受任何法律控制？**
 
-以下为谷歌匹配的第一页：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/008.jpg)
-以下为谷歌匹配的第二页：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/009-1.jpg)
-也就是说自蛇妖闫的疑似床圈和蛇妖闫鸡鸣狗叫地抛出这张照片之后，在推特上的响应者包括重复的人满打满算也凑够了谷歌搜索的两张页面。
+（以下）
 
-蛇妖闫参加的这次会议是什么背景？蛇妖闫和这张图片上的其他四个人中的几个有过床笫之欢我们也不得而知，但是我们知道郭文贵先生吹响的以苗灭共之战不是用照片来进行以苗灭共的，目前可知的至少有两条线，第一条线是向各个国家政府发送关于疫苗真相的相关资料，第二条线是媒体上向公众传递疫苗的真相；
+**波兰活动家和医学协会关于儿童和婴儿医学检测的信函**
 
-那么蛇妖闫用她的疑似床圈一众男友的照片要说明啥呢？我看到了Robert Malone, MD那只轻揽蛇妖腰的咸猪手，我看到了蛇妖闫的手部摆放位置，我想到了“一双玉臂千人枕，半点朱唇万人尝”，我是不是想歪了？罪过！罪过！
+各位，
 
-撰稿：喜马拉雅的肉夹馍
+我们想邀请您参加将于 2021 年 10 月 2 日华沙时间 12:00 在波兰议会举行的会议。
 
-审核：喜马拉雅的馍夹肉
+会议将包括有关在儿童和幼儿身上测试医疗产品的医学和法律辩论。本次会议与政治无关，与宗教无关。它由波兰协会和基金会组织，例如波兰独立医生和科学家协会、自由之声律师协会、多布罗斯坦健康信息中心协会和新光谱基金会。议会和政府以及主流媒体的代表被邀请被动参与，并帮助公众了解这个问题的深度。
 
-校对：Maarago
+由于儿童不能同意参加生物医学研究，因此应并且必须采取额外的保护措施来保护他们，因此要求召开本次会议，对涉及儿童和婴儿的临床试验进行理论和实践分析。我们认为目前还没有出现这种情况。
 
-（文章内容仅代表作者个人观点）
+因此，我们请求您帮助维护波兰儿童和世界各地的临床试验儿童**。由于辉瑞公司的错误信息和强加的保密协议，这种情况现在至少在四个国家（美国、西班牙、芬兰和波兰）发生**。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+自 2021 年 6 月以来，辉瑞一直在对波兰儿童进行 Covid-19 疫苗的实验性试验。据我们所知，**这些实验是在****3****和6****个月大的健康婴儿身上，最大是11****岁的健康孩子身上进行的**。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+由于辉瑞公司的文件含有 “秘密 “条款，这些事实不为波兰公众舆论所知。**甚至一位介入此事的波兰议会议员也被拒绝接触这些文件，这完全违反了波兰法律**。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+据了解，**波兰有****8****个中心正在进行上述测试，但是，这些都是小型私人诊所和私人临床研究中心，他们是应该没有能力进行这种研究**。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+另外，我们知道还有一个中心在辉瑞公司的网站上没有被提及。这就提出了一个问题：**在辉瑞公司声称正在进行这些测试的****4****个国家中，是否有更多未公开的地点？**
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+从非官方报告（我们拥有今年7月和8月的录音）中，我们知道6至11岁的儿童已经被注射了辉瑞公司的产品，3至5岁的儿童至少接受了一剂。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+（辉瑞）目前正在招募6个月至2岁的儿童，然而，辉瑞公司在其官方网站上发布了日期为20/09/2021的文件，声称他们期望在今年年底前对最年轻的群体取得结果。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+这表明最年轻组的试验与较年长组的试验同时开始，因为辉瑞公司声称这些试验的结果将在6个月后获得。
+
+据估计，**在波兰可能有大约****1000****名儿童被注射**（辉瑞疫苗）。
+
+考虑到这些儿童是如何迅速被招募参加研究的，**我们强烈怀疑他们来自孤儿院和护理院，因为其他疫苗的试验已经发生过这种情况。**根据波兰法律，这种特殊情况需要得到法院的授权，**但到目前为止，我们无法找到任何允许在儿童身上进行这种试验的法院审理。**
+
+**在波兰对婴幼儿进行这些试验的同意书是由药理学家和医药产品、医疗设备和生物杀伤产品注册办公室（****the Office for Registration of Medicinal Products, Medical Devices and Biocidal Products****）****主席Grzegorz Cessak****签发**。**他也是欧洲药品管理局（****EMA****）的成员**，这似乎造成了利益冲突。
+
+由于**辉瑞公司没有完成动物研究，也没有完成对年轻动物（****off spring****）的研究**，因此，波兰的婴儿和最年轻的儿童似乎被用作第一批实验性的 “后代”。
+
+如果波兰国家有关当局不采取行动，我们将无法确认这些儿童中有多少人可能或已经面临死亡或严重的健康并发症。遗传实验技术的管理在医学上是全新的，它被定义为对6岁的婴儿和儿童以及11岁以下的儿童进行I和II / III期临床试验。
+
+**在成人中，第三阶段尚未完成，但报告了许多并发症，包括非常严重的血栓栓塞、自身免疫和炎症问题，甚至死亡。**
+
+**有关类似并发症和不幸死亡的信息也适用于 12 ****岁以上的儿童。**
+
+**我们掌握了所有8****个中心的录音，可以作为刑事案件的证据。这些录音显示，6****至11****岁的儿童已经被注射，可能还有3****至5****岁的儿童也被注射。**
+
+同时，在6个月至2岁的最小群体中，似乎暂停了疫苗，因为在7月22日，有一个危机会议来决定 “怎么办”（这可能是由于这些中心附近的当地自由组织的人抗议造成的）。
+
+在这一事件之后，据说在8月初将重新开始，继续招募2岁以下的婴儿和儿童，。
+
+考虑到注入这些注射后有多少严重的并发症，包括成人和青少年的死亡，**这些注射对这些儿童的生命和健康的威胁远比中共病毒本身更大。**
+
+**扩展信息**
+
+根据Axios通过信息自由法案（FOIA）请求获得的数据，**美国政府已经与数千名被释放的移民儿童失去联系。**
+
+在今年1月至5月期间，大约三分之一的被释放的移民儿童或其担保人的电话无人接听，这使人们对政府在未成年人被释放给家人或美国其他人后保护他们的能力产生了疑问。
+
+**截至5****月底，约有4500****名这样的未成年人在拜登政府下被释放。**
+
+**新闻来源****：**
+
+**1. **[**BREAKING – Pfizer stand accused of experimenting on orphan babies to test their Covid-19 vaccine**](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)
+
+**2. **[Exclusive: Government can’t reach one-in-three released migrant kids](https://www.axios.com/migrant-children-biden-administration-a597fd98-03a7-415c-9826-9d0b5aaba081.html)
