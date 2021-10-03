@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|声讨中共暴政，欧洲维族人巴黎大游行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1571094/)
+## 秘翻在线 :美国的权贵成为不须配戴口罩的高级种姓
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571118/)
 
-配音：纽约香草山美食部 – 玫瑰园
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg.png)
+图片来源：nypost
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109.jpg)
+根据《零对冲》(Zero Hedge)的报导, 种姓阶级制度(Caste systems)不仅在印度存在，在中共病毒的配戴口罩乱象中，美国也出现了类似的种姓制度。
 
+在大都会艺术博物馆慈善晚宴(Met Gala)上，身着印有“Tax the Rich”白色礼服的亚历山卓·欧加修-寇蒂兹(Alexandria Ocasio-Cortez )众议员以及其他艺人并没有配带口罩。美国奥巴马前总统的60岁派对上，政界领袖、商界大亨和好莱坞名人在内的所有客人也没有戴口罩；相对的，厨师、服务员、服务员和其他工作人员全部都需要配戴口罩。
 
+在国会进步核心小组主席众议员普拉米拉·贾雅帕尔(Pramila Jayapal,D-Wash)的聚会中，视频上所有与会者都没有配戴口罩。旧金山市长伦敦·布里德(London Breed)在具乐部聚会时违反了自己的口罩规定。艾美奖颁奖典礼上也有一些不戴口罩的演员、制片人和导演，而其他所有的工作人员和服务员全部戴口罩。这就是美国高阶种性与低阶种性的明显差别。
 
-中共“国庆日”刚过，10月2日，来自欧洲各地的维吾尔族人汇聚巴黎，举行了大规模的示威游行，要求中共立即关闭新疆境内的集中营，停止对维族人的迫害暴政。
+美国《独立宣言》中“人人生而平等”，意味着每个人享有平等的权利。宪法不仅规定了权利平等，而且规定了法律规定的平等待遇。但是由民主党人组成的进步精英正试图在美国创造一个区分精英高阶种姓和大众低阶种姓的社会，根据他们所处不同种姓地位，对每个群体创造不同的规则。
 
-当天的示威游行从巴士底广场启动，游行至共和广场后举行了演讲活动。包括法国及比利时在内的多位欧洲议会议员参加了游行活动并发表演讲。目前欧洲已有比利时、英国、荷兰和立陶宛等国家议会通过了认定维吾尔人被中共种族灭绝屠杀的议案，此次巴黎大游行就是敦促法国国民议会，能够尽快审议并通过相关议案,并对中共政权发起制裁。
-
-[文字版原文：声讨中共暴政，欧洲维族人巴黎大游行](https://gnews.org/zh-hans/1568849/)
-
-音频处理：喜山必胜Maverick
-
-*发稿：*Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[The COVID Caste System](http://The%20COVID%20Caste%20System)

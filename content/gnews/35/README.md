@@ -2,9 +2,12 @@
 ---
 
 
-## 郭文贵在爆料革命第一天就准确预言了傅政华的落马
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1570781/)
+## 装神弄鬼的纽约州长Hochul说中共病毒疫苗是上帝的旨意
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1570889/)
 
-郭文贵先生于2017年1月26日爆料革命开启的第一天就准确预言了傅政华的落马。
+- 制作：葛大饼
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
