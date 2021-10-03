@@ -2,52 +2,29 @@
 ---
 
 
-## 盖特作为推特的颠覆者，正在力争川普的加入
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1569788/)
+## 2021年8月17日郭文贵先生健腹轮健身盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1569790/)
 
-【**简评】盖特在上线4个月内，注册用户已超过259万。不同于侵犯言论自由的脸书、推特等社交平台，盖特允许一些有争议的内容不被审查过滤，其覆盖用户已因外国政要的加入而呈现全球化趋势，其技术支持也优于其它主张言论自由的平台。基于以上优势，我们深信盖特未来无疑能够吸引更多重磅用户的踊跃加入。**
+盖特连接：[https://gettr.com/post/p7x03va82f](https://gettr.com/post/p7x03va82f)
 
-**据《纽约邮报》作者：Theo Wayt，2021年9月29日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/a71ie-wzywl-1.jpg)**图片：SOPA Images**
-美国前总统唐纳德·川普自从今年初被推特和脸书封杀后，至今尚未注册任何新的社交媒体账号 —— 但这并不能阻止那些主张言论自由的平台尝试邀请他加入。
+8月17号：尊敬的战友们好，你们健身了吗？传播郑州人祸．香港危机真相了吗？一切都已经开始。
 
-杰森·米勒(Jason Miller) —— 川普的前任高级顾问、现任推特的颠覆者盖特（Gettr）的执行总裁 —— 向《纽约邮报》透露，他几个月来一直在跟川普讨论加入盖特的问题。该平台自今年7月上线以来，已经拥有超过259万的注册用户。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-米勒之所以想让川普加入盖特（Gettr），是因为如果这位前总统成为平台的一员，他的数百万粉丝也会追随加入。
+(碎步小跳），Snow，第十一次！（做完一组健腹轮）怎么样？Snow，耶~中国共产党！像这Snow，跳。
 
-川普目前尚未同意签约为用户。这位前总统已经不能像很久以前那样随便冠名伏特加酒、牛排和领带了，现在他想在加入盖特之前“确保这是一个能长久存活的可行平台”。
+编辑整理及发布：黎明之前
 
-盖特（Gettr）目前看起来像推特的基础版，但是米勒说平台计划在未来几个月内添加新功能，例如发送私聊消息、直播功能，以及盖特支付（Gettr Pay），一种Apple Pay和Google Pay的替代品，预计将会在明年推出。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-根据Axios上个月的一份报告，川普还想要获得盖特的股权作为加入的附加条件。米勒并没有证实此报道，但他表示与川普的谈判自8月以来已经取得进展。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-盖特（Gettr）得到了郭文贵先生 —— 2014年逃离中国的商人，与川普前顾问史蒂夫班农（Steve Bannon）关系密切 —— 的资助。公司表示它还拥有其他不具名的支持者。米勒说他最近一直在和海外的潜在投资者商谈，包括拉丁美洲和欧洲。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-盖特（Gettr）并非第一个力争川普加入的平台，在此之前还有Parler ——另一个重视言论自由、试图替代推特和脸书的平台。它在2020年底受到了保守派人士的青睐，但在1月6日事件之后，其服务器被亚马逊网络服务（Amazon Web Services）禁止访问而彻底崩溃，导致应用程序无法使用一个月。据报道，川普曾考虑加入Parler，但在该公司拒绝审查他的批评者时犹豫不决。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-盖特（Gettr）也依赖亚马逊网络服务（Amazon Web Services）来提供支撑其网站的技术，但米勒表示，如果亚马逊切断了服务器连线，盖特还有一个备用计划来避免类似Parler 的长时间停用。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-言论自由作为盖特（Gettr）主张的理念之一，该平台已经避免审查一些有争议的内容。据米勒所说，当YouTube在禁止播放反对强制接种新冠病毒疫苗的内容时，盖特（Gettr）允许它出现在该平台上。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-米勒还希望通过把盖特（Gettr）的覆盖范围更国际化，使其与支持川普的竞争对手平台区分开来。米勒已经说服了巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）签约，并正在推动其他具有影响力的全球政治人物加入。
-
-米勒作为一家社交媒体的执行总裁，不仅要飞往世界各地与政客们交谈，他的大部分时间花在处理内容审核的事务上，包括《Politico》报道的大量圣战者处决视频。
-
-盖特（Gettr）表示它正在解决这些问题，并在加强建设国际化、文化多元化的内容审核团队。目前该公司在全球拥有300余名全职员工，其中50名在纽约。
-
-作为前总统川普的前顾问，米勒表示在与川普的谈话中发现，川普在2024年再次参选的可能性越来越大。
-
-米勒预测，如果川普不参选，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）将会成为共和党提名的领跑者。而德桑蒂斯已经在7月份加入了盖特（Gettr）。
-
-**文章来源：**[https://nypost.com/2021/09/29/donald-trump-being-courted-by-twitter-alternative-gettr-run-by-his-ex-adviser/](https://nypost.com/2021/09/29/donald-trump-being-courted-by-twitter-alternative-gettr-run-by-his-ex-adviser/)
-
-**（本文评论仅代表个人观点）**
-
-翻译/评论：洛杉矶盘古农场 – maru
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

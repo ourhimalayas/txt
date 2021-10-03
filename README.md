@@ -21,116 +21,116 @@
 ### [中美之间集装箱运输成本创历史新高](/content/gnews/2/README.md)
  ` 纽约香草山MOS01`
 
-### [“金九银十”不再！中共房地产崩溃进行时](/content/gnews/3/README.md)
+### [傅政华落马，胡舒立发猪头贴，中共黑帮派系“途”穷匕见](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [“金九银十”不再！中共房地产崩溃进行时](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯禁止“科学教”团体](/content/gnews/4/README.md)
+### [俄罗斯禁止“科学教”团体](/content/gnews/5/README.md)
  ` 象声`
 
-### [维州最高法院将挑战政府的强制疫苗接种命令](/content/gnews/5/README.md)
+### [维州最高法院将挑战政府的强制疫苗接种命令](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第070期](/content/gnews/6/README.md)
+### [雅典娜时报-第070期](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [地方债，比地产公司债务大得多的核弹随时炸裂](/content/gnews/7/README.md)
+### [地方债，比地产公司债务大得多的核弹随时炸裂](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年8月19日郭文贵先生吃饭饭盖特全文字版](/content/gnews/8/README.md)
+### [2021年8月19日郭文贵先生吃饭饭盖特全文字版](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年8月19日郭文贵先生吃烧鸡配辣椒盖特全文字版](/content/gnews/9/README.md)
+### [2021年8月19日郭文贵先生吃烧鸡配辣椒盖特全文字版](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日本政府通知各地，为中共病毒“第六波”蔓延做准备](/content/gnews/10/README.md)
+### [日本政府通知各地，为中共病毒“第六波”蔓延做准备](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年8月17日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/11/README.md)
+### [2021年8月17日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [盖特作为推特的颠覆者，正在力争川普的加入](/content/gnews/12/README.md)
+### [盖特作为推特的颠覆者，正在力争川普的加入](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [周六，墨尔本警方继续大肆抓捕抗议人士](/content/gnews/13/README.md)
+### [周六，墨尔本警方继续大肆抓捕抗议人士](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年8月15日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/14/README.md)
+### [2021年8月15日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年8月12日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/15/README.md)
+### [2021年8月12日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共在国庆日向台湾派出38架军机，为今年最大规模](/content/gnews/16/README.md)
+### [中共在国庆日向台湾派出38架军机，为今年最大规模](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [完全接种疫苗的CNN 撰稿人心脏病发作，并因血栓住院](/content/gnews/17/README.md)
+### [完全接种疫苗的CNN 撰稿人心脏病发作，并因血栓住院](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [真理需要谎言的陪衬——评一篇诋毁”郭先生“的文章](/content/gnews/18/README.md)
+### [真理需要谎言的陪衬——评一篇诋毁”郭先生“的文章](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟发现强生新冠疫苗可能与另一种罕见的凝血症有关](/content/gnews/19/README.md)
+### [欧盟发现强生新冠疫苗可能与另一种罕见的凝血症有关](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本养老金管理机构暂缓投資中国国债](/content/gnews/20/README.md)
+### [日本养老金管理机构暂缓投資中国国债](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](/content/gnews/21/README.md)
+### [SEC 再次推迟对比特币 ETF 的决定，全美历史上首个加密基金认证时限延后 45 天](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [日本前外相岸田文雄当选自民党新总裁 将成为新首相](/content/gnews/22/README.md)
+### [日本前外相岸田文雄当选自民党新总裁 将成为新首相](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [白宫将针对网络犯罪和勒索软件召开30国会议](/content/gnews/23/README.md)
+### [白宫将针对网络犯罪和勒索软件召开30国会议](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [9月，中国和美国之间的航运集装箱运输成本飙升至历史新高](/content/gnews/24/README.md)
+### [9月，中国和美国之间的航运集装箱运输成本飙升至历史新高](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [美国寻求与新任日本首相四方会谈合作](/content/gnews/25/README.md)
+### [美国寻求与新任日本首相四方会谈合作](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [荷兰收到万份接种疫苗后月经失调的报告](/content/gnews/26/README.md)
+### [荷兰收到万份接种疫苗后月经失调的报告](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [对台湾发难的背后是中共国的威胁](/content/gnews/27/README.md)
+### [对台湾发难的背后是中共国的威胁](/content/gnews/28/README.md)
  ` 波士顿五月花农场`
 
-### [“一带一路”与生物技术扩散](/content/gnews/28/README.md)
+### [“一带一路”与生物技术扩散](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [近60架中共战机在两天内进入台湾防空识别区](/content/gnews/29/README.md)
+### [近60架中共战机在两天内进入台湾防空识别区](/content/gnews/30/README.md)
  ` HimalayaRussia`
 
-### [台湾质疑中共国加入太平洋贸易协定的资格，担心“被阻碍”](/content/gnews/30/README.md)
+### [台湾质疑中共国加入太平洋贸易协定的资格，担心“被阻碍”](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2018年5月5日 郭文贵先生访谈：陈氏兄弟及盟相关机密文件内幕文字版](/content/gnews/31/README.md)
+### [2018年5月5日 郭文贵先生访谈：陈氏兄弟及盟相关机密文件内幕文字版](/content/gnews/32/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [接种了疫苗的人能活多久？](/content/gnews/32/README.md)
+### [接种了疫苗的人能活多久？](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [强制疫苗接种和拒绝承认自然豁免的理由是什么](/content/gnews/33/README.md)
+### [强制疫苗接种和拒绝承认自然豁免的理由是什么](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [哈佛商学院95%的疫苗接种率未能阻止中共病毒的爆发](/content/gnews/34/README.md)
+### [哈佛商学院95%的疫苗接种率未能阻止中共病毒的爆发](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京警告Facebook删除俄罗斯禁止的内容](/content/gnews/35/README.md)
+### [普京警告Facebook删除俄罗斯禁止的内容](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
 
-### [欧盟监管机构发现强生疫苗可能与两种更严重的健康状况有关](/content/gnews/36/README.md)
+### [欧盟监管机构发现强生疫苗可能与两种更严重的健康状况有关](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [露营产业或迎“转机”？](/content/gnews/37/README.md)
+### [露营产业或迎“转机”？](/content/gnews/38/README.md)
  ` 纽约香草山MOS02`
 
-### [新邮件证实了中共武汉P4研究所与加尔维斯顿国家实验室 (GNL) 之间的合作](/content/gnews/38/README.md)
+### [新邮件证实了中共武汉P4研究所与加尔维斯顿国家实验室 (GNL) 之间的合作](/content/gnews/39/README.md)
  ` 象声`
-
-### [里约热内卢爆发疫苗护照之争](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
 
 ### [秘翻在线: 中共或将推出“时间银行”帮政府减负](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
