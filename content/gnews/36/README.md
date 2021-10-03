@@ -2,165 +2,35 @@
 ---
 
 
-## 恒大就是一个射出的带火的箭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571099/)
+## 有声|日本养老金管理机构暂缓投資中国国债
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1571162/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2366-1.png)
-[https://gtv.org/video/id=6159bc6fd2e2b81748709fd8](https://gtv.org/video/id=6159bc6fd2e2b81748709fd8)
+配音：纽约香草山美食部 – 玫瑰园
 
-**郭文贵：
-Miles Guo：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-恒大，它死
-Evergrande will crash
 
-它不死，我跟你说第一个
-or not, I’m the first one telling you
 
-你真以为习近平在中南海
-Do you really think that Xi Jinping’s process speed in the Zhongnanhai (Chinese version of White House)
+【日本经济新闻（日经中文网）】报道：恒大事件之后，日本养老金管理机构（GPIF）暂缓投资中共国国债 ， 作为该机构投资参考的重要依据的英国富时罗素（FTSE Russell）指数在3月宣布把中国国债纳入该指数，在目前市场混乱风险剧增的情况下各国都非常关注GPIF 是否启动对人民币国债的投资。
 
-就像我掌握爆料革命这个进度一样吗？
-would be the same as I’m mastering the whistleblowers’ movement?
+郭文贵先生的直播爆料中也多次提到，在贪婪的华尔街资本的撮合下，美欧日澳等多国已经把自己国家的各給类基金投资到了中共国，那些基金都是各国老百姓的养老钱，救命钱。现在中共国随着恒大的爆雷，一连串类似的金融事件会随之发生，各国将很难收回自己的投资， 甚至血本无归，这是中共捆绑世界的一个手段， 如果世界不早日醒来认清中共的本质，消灭中共，那世界将会被中共一起拖入一个黑暗的泥潭。
 
-如果那样的话，共产党早就统治世界了
-If that was the case, the Communist Party would have dominated the world a long time ago
+[文字版原文：日本养老金管理机构暂缓投資中国国债](https://gnews.org/zh-hans/1569682/)
 
-他真的没有想到就恒大能出事出来
-He absolutely didn’t expect Evergrande to be having trouble
+音频处理：喜山必胜Maverick
 
-但是它再放贷款它就死了
-But (Xi knows) Evergrande would crash if he issues loans again
+*发稿：*Yuki jiang
 
-他再放贷款它就死了
-It will crash if he issues loans again
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
-他不能，他必须调整贷款的问题
-He can’t, he must adjust the loan issue.
+**更多资讯，更多关注**
 
-你想想，恒大往下
-Think about it, the next progress of Evergrande
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-它就是射出去的一个带火的箭
-will be a rocket that has been launched
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-在天上飞, 大家看着
-It’s flying in the sky, and everyone is watching
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-哇，很好啊
-Wow, that’s excellent
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-大家给它加钱吧
-Everyone, let’s add money on it
-
-加钱吧
-let’s add some money
-
-一直飞下去
-to keep it flying
-
-它不可能一直飞下去
-(However) it’s not possible (for the rocket) to stay in the air
-
-而且那个房价越来越贵
-Moreover, the house market price is getting more and more expensive
-
-他必须得调整，一调整它就死了
-He must adjust it, and it will crash once it is adjusted.
-
-它毕竟是个假的，总得报废啊
-It’s fake after all, and it has to be scrapped.
-
-但是呢
-However
-
-这个就是我特别明确的告诉大家
-this particularly is exactly what I tell you
-
-习完全没想到
-Xi has not expected it at all
-
-听这个习就问什么，习的原话
-listen to what Xi has said, Xi’s original words
-
-就是说
-He said
-
-如果恒大是在这个时候倒下来了
-“If Evergrande falls at this time
-
-广东，你们要负一切责任
-Guangdong, you are responsible for everything
-
-所有人都要负一切责任
-Everyone must take all responsibilities”
-
-大家都害怕，都开始捂着
-Everyone was afraid, and they all started covering it up
-
-唉……没有没有
-hold on…no, no problem
-
-然后
-Then
-
-这就是习远平
-This was Xi Yuanping
-
-原话告诉他们人，告诉这个恒大
-he told them and Evergrande in his original words,
-
-你，它嘛别倒
-“You, don’t fall
-
-别在二十大以前倒
-don’t fall before the 20th National Congress of the Communist Party of China”
-
-那言外之意是什么？
-What’s that mean?
-
-你在二十大以前倒
-You fell before the 20th National Congress
-
-你影响我哥二十大会，我就弄死你个丫挺的
-If you affect my brother’s 20th National Congress, I’ll get you killed
-
-就这原话嘛
-Those are his original words
-
-是吧?就是习
-right? It’s because Xi
-
-不知道它能倒
-didn’t know Evergrande could fail
-
-没想到倒，他的信息判断不能倒
-did not expect to fall, and his judgment is that it could not fall
-
-这就是共产党嘛
-This is the Communist Party
-
-以假治国嘛
-ruling its country by falsehoods
-
-下面人说，唉
-Those people under him informing said
-
-没事儿，是不是，都没事儿，是不是啊？
-No worries, isn’t it? nothing happens at all, isn’t it?
-
-−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−
-
-原视频日期：2021/09/29
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1443160325763731460?s=24](https://twitter.com/se1y7cblljselva/status/1443160325763731460?s=24)
-任务编号：KC140（2366）
-视频时间段 : 0:00-1:39
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

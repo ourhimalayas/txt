@@ -2,30 +2,41 @@
 ---
 
 
-## 爆料革命开发全新即时通信软件,正在内测中!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571305/)
+## 美国COVID-19死亡人数达到70万人！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571378/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-47.png)
-在日前的直播中, 新西兰老班长战友称,经过1年多的研发努力，一个属于我们爆料革命自己的即时通讯软件，已经开始进行内部实测阶段,即将公开发布!
+据《路透社》作者：Shaina Ahluwalia, Lasya Priya M & Roshan Abraham，2021年10月1日发布：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2395.png)
+路透10月1日电：根据路透社的统计，时至本周五，美国新冠肺炎累计死亡人数超过70万。与此同时，当局向已接种的人群推行补充接种的加强针，宣称可以保护老年人和从事高风险职业的人群。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-1.jpeg)
+路透社对公共卫生部门披露的数据的一项分析报告中指出，过去一周，美国平均每天有2000多人死亡，约占1月份死亡人数高峰时期日死亡数的60%。
 
-因为绑定银行账号用于支付购物, 目前墙内即时通讯是微信一家独大, 而出于亲友交流需要, 微信在海外华人中也同样占据很大份额。但 腾讯作为中共白手套, 在言论管控和信息/咨询收集上早已完全 是政府管控模式 , 使得 真相的传播几无可能 ! 而灭共进程中一旦 防火墙被推倒, 或者微信真正被全球封杀, 被中共自行绞杀,  10几亿人想要知道真相, 想要有一个安全可靠, 没有关键词审核, 不会被封号, 甚至还可能会有结合G系列产品金融功能 的手机通信软件, 那就只有这款爆料革命开发的全新软件了,  市场前景不可限量  ! 而这样一款手机通信软件, 在灭共最后阶段所能发挥的效用,更将是核弹级的 !
+据路透社统计，美国COVID-19病例数和死亡人数仍居世界首位，分别占报告感染病例和死亡人数的19%和14%。预计全球范围内死亡人数将超过500万人。
 
-(本文仅代表作者观点)
+高度传染性的德尔塔病毒变异株导致COVID-19病例激增。根据7日感染病例数动态平均值，COVID-19感染病例数量在9月中旬左右达到顶峰，随后下降到目前的水平，每日感染约117,625万例。
 
-参考链接：[https://twitter.com/RyuHayabusaX/status/1444561242710962180](https://twitter.com/RyuHayabusaX/status/1444561242710962180)
+这仍然远远超过美国顶级传染病专家安东尼·福奇（Dr.Anthony Fauci）博士所说的每天1万例的感染病例数警戒线。福奇之前表示，如能将日感染数长期控制在1万例以下，便有机会结束这场健康危机。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+尽管近几周美国全国住院总人数有所下降，但一些州(尤其是美国南部)的住院人数却逆势大幅上升，给当地医疗系统带来了不小的压力。
 
-终审：文龍
-校正/发稿：谐趣园
+**疫苗加强针**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国总统拜登周一接种了一剂提供免疫补充作用的疫苗“加强针”，希望为数百万美国人提供一个榜样，让他们知道自己不是一次“额外注射”的试验品。
+
+在美国和其他国家仍有许多人未接种疫苗的情况下，科学家们在是否需要接种疫苗“加强针”这一问题上存在分歧。但拜登在8月份还是公开宣布了这一举措，称其是加强对高传染性德尔塔病毒变体保护努力的一部分。
+
+美国疾病控制与预防中心(Centers for Disease Control and Prevention)的数据显示，约56%的美国人已经完成了2剂疫苗的强化接种，约65%的人至少接种了一剂疫苗。
+
+纽约的几家医院周一开始以违反州令的理由解雇或停职拒绝接受疫苗接种的医疗工作者。而俄亥俄州的一名联邦法官也作出了有利于一家私人医疗服务提供商的裁决，该公司强制要求员工注射疫苗。
+
+美国疾病控制和预防中心的数据显示，中西部和南部一些地区的疫苗接种率落后于东北部和西海岸部分地区，这表明美国农村和城市地区之间存在差距。
+
+原文链接：[https://www.reuters.com/world/us/us-covid-19-death-toll-hits-700000-2021-10-01/](https://www.reuters.com/world/us/us-covid-19-death-toll-hits-700000-2021-10-01/)
+
+翻译：洛杉矶盘古农场 – 暴力小蘑菇
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,27 +2,34 @@
 ---
 
 
-## 破纪录39架共机扰台！台海战争一触即发
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571348/)
+## DC每日热点1003
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1571418/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/10/22787F6B-5C20-4D19-B31A-D029ED9508F0-scaled.jpeg)
+道琼斯指数 34326.46 ▲1.43%
+纳斯达克指数 14566.70 ▲0.82%
+WTI纽约原油CFD 75.765 ▲0.98%
+布伦特原油CFD 79.257 ▼0.03%
+标普中概股50指数 3,397.06CNY▼1.40%
+美元兑人民币 1USD=6.444RMB
+美元兑港币 1USD=7.785HKD
+国际黄金 1760.98 美元/盎司
+全球CCP病毒感染人数 235,532,059 例
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-3.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：2021.10.03早GTV新闻访谈
-
-[https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c](https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+1、巴西近200个城市爆发示威，抗议政府处理疫情不力，要求弹劾总统博索纳罗
+2、拜登：将尽全力通过基建和社会开支议案
+3、美国东西两岸爆发众多支持堕胎权利的游行，反对德克萨斯州通过的堕胎禁令
+4、塔利班在阿富汗东部遭到攻击，造成4人死亡
+5、菲律宾总统杜特尔特宣布任满后退出政坛，放弃下届副总统角逐
+6、印陆军参谋长：第十三轮印中军长级会谈或于下周举行
+7、阿尔及利亚召回其驻巴黎大使“进行磋商”
+8、联合国气候大会主席呼吁主要经济体加紧行动应对全球暖化
+9、美日军舰在冲绳以南联合训练
+10、欧洲理事会主席宣布“2022年将是欧洲防务年”
+11、戴琪据报将宣布中共国未遵守美中第一阶段贸易协议
+12、岸田文雄拟让岸信夫、茂木敏充留任防卫和外务大臣
+13、德国汉萨航空计划引入员工疫苗接种义务
+14、朝鲜指责联合国安理会在导弹测试上“双重标准”
+15、布林肯将访问巴黎 欢迎法国参与印太事务
+16、在周五派出38架军机扰台后，周六10月2日中共再派出39架军机进入台湾西南防空识别区，创台湾国防部纪录

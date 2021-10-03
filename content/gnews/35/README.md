@@ -2,35 +2,33 @@
 ---
 
 
-## 有声|十一国殇日，中共军机再度袭扰台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1571112/)
+## 秘翻在线：川普要求美国法官强制推特恢复其账户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571168/)
 
-配音：纽约香草山美食部 – 玫瑰园
+#### 文章撰写：寶寶
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipasteasdf654g65erg465re312021-10-03_21-10-37.png)
 
+据路透社10月2日报道，美国前总统唐纳德·川普周五向佛罗里达州的联邦法官要求推特(TWTR.N)恢复他的账户，推特在1月份以存在煽动暴力风险为由删除了他的账户。
 
+川普向美国佛罗里达州南区地方法院提交了针对 推特的初步禁令请求，称这家社交媒体公司受到美国国会议员的“胁迫”，暂停了他的账户。
 
-今年十月一日是中共非法篡取政权的第72个国殇日，当天中共再度出动军机对台湾进行侵扰，规模为年度之最！
+1月6日发生的一场骚乱袭击了美国国会大厦，随后推特和其他几个社交媒体平台禁止川普使用其服务。
 
-台湾国防部发表空情动态声明称，十月一日当天，中共先后在白日和晚间两次共出动38架次战机袭扰台湾防空识别区，包括战斗机、轰炸机、反潜机和预警机。中共在十一国殇日对台湾进行武装挑衅，在打鸡血蒙蔽洗脑民众的同时，也是对台湾进行极限施压，甚至试图碰瓷引发冲突，并以此测试台湾和美国的反应，当前中共内部的权斗厮杀愈演愈烈，巨大压力之下也预示着中共武力入侵台湾的风险正逼近峰值。
+那次袭击发生在川普发表讲话之后，川普在讲话中重申了他在11月的选举失败是由于普遍存在的选举欺诈行为，虽然这一说法被多个法院和州选举官员驳回。
 
-[文字版原文：十一国殇日，中共军机再度袭扰台湾](https://gnews.org/zh-hans/1568841/)
+川普的律师在文件中说，推特“对这个国家的政治话语权有着巨大的权力和控制力、历史上前所未有，而且极大威胁了民主辩论的权力。” 彭博社早些时候报道了该文件。
 
-音频处理：喜山必胜Maverick
+路透社联系推特时，推特拒绝就该文件置评。
 
-*发稿：*Yuki jiang
+在永久删除川普的账户时，推特表示他的推文违反了该平台禁止“美化暴力”的政策。 该公司当时表示，川普导致下架的推文“极有可能”鼓励人们重复国会骚乱中发生的事情。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+川普账户被屏蔽之前，他在推特上拥有超过8800万粉丝，并将其用作他的社交媒体扩音器。
 
-**更多资讯，更多关注**
+法庭文件显示，川普辩称推特允许塔利班定期发布其在阿富汗军事胜利的推文，但在川普担任总统期间审查他的推文，包括将他的推文标记为“误导性信息”或表明它们违反了公司禁止“美化暴力”的规则。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+7月，川普起诉推特、脸书（Facebook Inc (FB.O) ）和字母控股（Alphabet Inc (GOOGL.O) ）谷歌及其首席执行官，指控他们非法压制保守派观点。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+参考文章：[**Trump asks U.S. judge to force Twitter to restart his account**](https://www.reuters.com/technology/trump-asks-florida-judge-force-twitter-restart-his-account-bloomberg-news-2021-10-02/)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+本文仅代表作者本人观点，不代表Gnews平台

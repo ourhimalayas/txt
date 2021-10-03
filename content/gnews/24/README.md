@@ -2,32 +2,38 @@
 ---
 
 
-## 加州所有在校学生恐被安排分阶段接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571261/)
+## 国际要闻汇编 10.3
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1571362/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-45.png)
-周五，加州州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。加州成为全美第一个，宣布要求所有在校学生接种新冠疫苗的州。
+#### 素材：东京樱花团GNEWS组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/38jia.jpg)[图片来源](https://www.aboluowang.com/2021/1003/1654751.html)
 
-除非家长申请医疗或个人信仰豁免，否则，根据规定，他们的孩子将不能参加校园内的现场课程。未接种疫苗的学生，只能选择线上教育，学习各区提供的独立课程或在家接受教育。
+1、[岸田文雄决定新设经济安保相一职](https://china.kyodonews.net/news/2021/10/141915a99870.html)
 
-为了巨大的经济利益，各大药厂仍在推进疫苗接种。而根据政府的官方数据，近5万人接种新冠疫苗后14天内死亡。在真相工程披露的视频中，强生公司的员工已经明确表示，接种疫苗有潜在的风险，不要给儿童接种疫苗。此前，洛杉矶和圣地亚哥两大学区曾要求12岁以上的在校学生接种疫苗，因遭到家长的强烈质疑和反对，目前该命令已被暂停。爆料革命要持续向各地政要和媒体传播疫苗真相，让更多人了解到疫苗的危害。
+根据共同社10月2日报道，日本自民党总裁岸田文雄2日就被指名为首相后的组建内阁事宜，决定新设负责经济安全保障事务的阁僚职位。岸田说这是应对美中对立等国际秩序变化的措施。他还将考虑任命负责该事务的首相助理。
+经济安保是指保护国家和国民免受威胁的安全保障中的经济侧面。随着美中技术竞争加剧，经济安保政策受到重视，日本政府正在着手研究中长期战略。
 
-(本文仅代表作者观点)
+2、[拜登：将尽全力通过基建和社会开支议案](https://www.voachinese.com/a/biden-pushing-for-infrastructure-bill-20211002/6254789.html)
 
-参考链接: [Newsom orders COVID vaccines for eligible students, the first state mandate for K-12 schools](https://www.latimes.com/california/story/2021-10-01/newsom-sets-covid-vaccine-mandate-across-california-schools)
+根据路透社周六（10月2日）报道，拜登总统说，他将“拼命”争取让基础建设法案和价值数万亿计美元的社会开支议案在美国国会得到通过，并计划增加旅行，提振美国人民对议案的支持。他说希望这两个议案能改善普通美国民众的生活，包括降低儿童看护的费用等。
+拜登表示相信这两个议案将能过关，但拒绝设定最后期限。他说，“我相信我能做到这点。”
+温和派民主党议员希望众议院立即对参议院已经通过的总额一万亿美元的基础建设议案进行表决，进步派议员希望等待就总额三万五千亿美元的社会开支和气候变化的综合议案达成一致再进行表决。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+3、[美国防部承诺：美军能遏制中共潜在威胁](https://www.aboluowang.com/2021/1003/1654903.html)
 
-终审：暗黑
-校正/发稿：谐趣园
+据美国智库战略与国际问题研究中心（CSIS）官网公告，美国国防部副部长希克斯（Kathleen Hicks）周五（10月1日）出席线上会议时，被问及对中共以武力威胁台湾的看法，她表示：“美军对此密切监测，夏威夷印太司令部天天注意”。希克斯重申，美国会维持对台承诺，协助台湾阻挡中国对其的威吓。她指出，台湾是拥有包含半导体等先进产业的民主政体，台湾自我防卫能确保民主繁荣，也是美国利益所在。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4、[国殇日中共派38架军机扰台今年最大](https://www.aboluowang.com/2021/1003/1654751.html)
+
+中共在十一建立政权日，向台湾方向派出38架次军机，这是今年以来最大规模的展示武力。中华民国国防部周五(10月1日)就台湾西南防空识别区的空情动态发表声明说，作为应对，中华民国军方“派遣空中巡逻兵力应对、广播驱离、放空飞弹追踪”。中共出动的38架次军机包括28架次歼-16战斗机在内，歼16战机为北京自行研制的多用途战机，至今已逾200架，作战半径达1850公里，对台具相当程度威胁性。
+
+5、[涵盖衣食住行 美国涨价超10%的23种商品](https://www.aboluowang.com/2021/1003/1654963.html)
+
+一些经济学家表示，通货膨胀再次成为美国的隐忧，且更直接的担忧是某些日常用品价格飞涨，涵盖人们生活的衣食住行方方面面，其中能源产品涨幅最大。
+由于COVID-19大流行，及疫情相关的劳动力和供应短缺继续推高价格，杂货、燃料、车辆和电器等物品的成本在过去一年中增长了10%以上。汽车类、能源产品涨幅最大，食品价格也在上涨。彭博社报导引用联合国粮食及农业组织（FAO）数据指出，8月的粮食价格已经比去年同期上涨33%。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+校对、发布：东京樱花团 / 野猫
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-3.png)
