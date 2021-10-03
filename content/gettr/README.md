@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/3/2021 7:12 PM (UTC)`
+
+10月3号：衷心地感谢，今天所有的战友们，参与的六个小时的大直播，感谢所有的台前幕后的工作的兄弟姐妹们，七哥还是感觉，意犹未尽，🔥🔥🔥现在还想马上直播，咋弄咧咋弄咧？
+![img](https://media.gettr.com/group8/getter/2021/10/03/19/12/4a546b20-af48-1d45-cab4-bb282af7ba03/out.jpg)
+
+---
+
 `@miles 10/2/2021 9:19 PM (UTC)`
 
 10月2日法国媒体Franceinfo报道说, “中国亿万富翁郭文贵先生提到疫苗灾难要来了！”  【中英文字幕】
@@ -287,13 +294,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 9月29号：该发生的都会发生，最大收益方就是新中国联邦。【转：<br/>1  美财长说美政府三周后就没现金可用于付账单了<br/>2  一家佛吉尼亚公司三周前发射了一颗卫星当常规基站，用常规手机即可连卫星打电话<br/>3  Ingenu签约付2亿美元给Phantom ，为其设计制造发射建造一个有72颗低轨卫星的太空物联网<br/>4  日本取消所有疫情紧急状态<br/>5  英国汽油短缺，大家急搜电动汽车<br/>6  Multiverse，一家解决学徒需求的公司融资1.3亿美元<br/>7  市区垂直农场出产越来越多的蔬菜】
 ![img](https://media.gettr.com/group23/getter/2021/09/30/02/43/f53e90be-0fe1-3bd4-2024-be62ad94da2e/out.jpg)
-
----
-
-`@miles 9/30/2021 1:50 AM (UTC)`
-
-9/29/2021 Miles Guo: Xi found out that Huobi is the key channel protected by the Central Political and Legal Affairs Commission for the CCP to launder money overseas; Refunds from Huobi cannot be made without one’s own consent; The recent power outage caused by the CCP will lead to enormous disasters regarding the economy and the people’s livelihood in China and more bloody struggles within the CCP. The arrival of the era of cryptocurrencies is inevitable, and we must cherish and preserve the core foundation of our NFSC - the healthy currency<br/><br/>9/29/2021 文贵直播：习发现火币是由政法委护航的中共对外洗钱的重要通道；从火币退钱必须由本人同意方可进行；中共这次停电会对中国造成经济和生存的巨大灾难，并将导致中共有更多血雨腥风的内斗；虚拟币时代的到来无人可挡，我们要珍惜和维护我们新中国联邦未来的核心基础 - 健康的货币！<br/>
-![img](https://media.gettr.com/group13/getter/2021/09/30/01/50/db873597-0efd-eca4-a188-edb0a988493c/out.jpg)
 
 ---
 

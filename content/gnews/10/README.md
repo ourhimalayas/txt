@@ -2,29 +2,27 @@
 ---
 
 
-## 美科学家发现中共病毒新变种传播更快
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571330/)
+## 破纪录39架共机扰台！台海战争一触即发
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571348/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/N-1.jpg)freenews.live
-美东时间10月3日俄媒RBC转述了《纽约时报》的报道称，美国国家过敏和传染病研究所的科学家们得出结论，SARS-CoV-2病毒在不断进化，新的病毒株如阿尔法和德尔塔变种，能够比以前的变种更快地通过空气传播。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-专家们将中共病毒阿尔法（英国毒株）和德尔塔（印度毒株）的变种与早期毒株进行了比较，发现它已经进化，能通过空气飞沫更有效地传播。
+视频参看：2021.10.03早GTV新闻访谈
 
-领导研究小组的病毒学家文森特∙蒙斯特（Vincent Munster）表示，“它看起来像是为了更有效地通过空气传播而对病毒进行的修改，我想我们都部分地预料到了这一点，而现在我们看到它在实时发生。”
+[https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c](https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c)
 
-SARS-CoV-2主要通过空气中的飞沫传播，即健康人的呼吸道飞沫进入病人的呼吸道，如咳嗽、打喷嚏或交流时。世界卫生组织（WHO）指出，也可以通过接触被污染的表面，然后接触眼睛、嘴巴或鼻子而受到感染。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-由蒙斯特（Münster）领导的科学家们得出结论，“阿尔法”菌株更有可能通过小飞沫的传播造成新的感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-美国马里兰大学的专家进行的另一项研究发现，与早期毒株相比，中共病毒的阿尔法变种增加了呼出空气中的病毒RNA数量。专家们发现，那些感染了阿尔法菌株的人呼出的病毒颗粒约为正常的100倍。
-
-弗吉尼亚理工学院的病毒学专家林西∙马尔（Lynsey Marr）表示，“这确实表明该病毒正在演变，并更有效地通过空气传播。她相信对感染德尔塔菌株的病例的研究将得到类似的结果。”
-
-专家们以前曾多次指出，德尔塔毒株的传染性远远高于中共病毒的原始毒株。据专家称，未来出现的新变种将使该病毒更加适应于人与人之间的传播。
-
-参考链接：
-
-[https://www.rbc.ru/society/02/10/2021/6158b44d9a7947f34f7c88dd?from=from\_main\_7](https://www.rbc.ru/society/02/10/2021/6158b44d9a7947f34f7c88dd?from=from_main_7)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

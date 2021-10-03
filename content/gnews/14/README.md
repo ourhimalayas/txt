@@ -2,29 +2,24 @@
 ---
 
 
-## 辉瑞公司被控对孤儿进行新冠疫苗试验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571285/)
+## 爆料革命开发全新即时通信软件,正在内测中!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571305/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-46.png)
-据the expose网站报导，儿童健康保护组织最近接到来自波兰的举报，称辉瑞公司正在对6个月的孤儿进行新冠疫苗试验。为此，波兰议会和参议院成员于10月2日组织了一次紧急会议，讨论对儿童和婴儿进行医学测试的医学、法律和伦理等相关问题。
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-47.png)
+在日前的直播中, 新西兰老班长战友称,经过1年多的研发努力，一个属于我们爆料革命自己的即时通讯软件，已经开始进行内部实测阶段,即将公开发布!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-1.jpeg)
 
-据辉瑞官网9月20日的信息显示，辉瑞疫苗的1/2/3期的试验，最初在美国、芬兰、波兰和西班牙的90多个临床试验地点，招募了多达4千5百名6个月至11岁的儿童。而自2021年6月以来，辉瑞公司一直在对3个月到11岁的波兰儿童进行新冠疫苗试验。据悉，在波兰，一共有8个私人诊所和研究中心正在进行该项试验。但因为辉瑞公司所谓的“秘密”条款，这些事实不为公众所知，甚至连波兰议员也被拒绝查阅相关文件。从非官方报告中得知，6至11岁的儿童已经被注射了辉瑞疫苗，3至5岁的儿童至少注射了一剂。据估计，约1千名波兰儿童可能已经注射了辉瑞疫苗。
-
-鉴于目前没有任何在儿童身上进行疫苗试验的法院受理，辉瑞公司被怀疑未通过合法的途径，对孤儿院和护理院的儿童进行临床试验。该会议表示，如果波兰当局不采取行动，将无法确认这些儿童中有多少人可能或已经面临死亡，或严重的并发症。
-
-辉瑞疫苗尚未完成成人的第三阶段临床试验，目前已经发生了非常严重的血栓、自身免疫等疾病，还有很多人因为接种疫苗而死亡。这对儿童来说更是危险。婴儿和儿童几乎对新冠病毒是免疫的，仅这一点就足以拒绝对儿童进行疫苗试验。
+因为绑定银行账号用于支付购物, 目前墙内即时通讯是微信一家独大, 而出于亲友交流需要, 微信在海外华人中也同样占据很大份额。但 腾讯作为中共白手套, 在言论管控和信息/咨询收集上早已完全 是政府管控模式 , 使得 真相的传播几无可能 ! 而灭共进程中一旦 防火墙被推倒, 或者微信真正被全球封杀, 被中共自行绞杀,  10几亿人想要知道真相, 想要有一个安全可靠, 没有关键词审核, 不会被封号, 甚至还可能会有结合G系列产品金融功能 的手机通信软件, 那就只有这款爆料革命开发的全新软件了,  市场前景不可限量  ! 而这样一款手机通信软件, 在灭共最后阶段所能发挥的效用,更将是核弹级的 !
 
 (本文仅代表作者观点)
 
-参考链接：[BREAKING – Pfizer stand accused of experimenting on orphan babies to test their Covid-19 vaccine](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)
-[PFIZER AND BIONTECH ANNOUNCE POSITIVE TOPLINE RESULTS FROM PIVOTAL TRIAL OF COVID-19 VACCINE IN CHILDREN 5 TO 11 YEARS](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-positive-topline-results)
+参考链接：[https://twitter.com/RyuHayabusaX/status/1444561242710962180](https://twitter.com/RyuHayabusaX/status/1444561242710962180)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：暗黑
+终审：文龍
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
