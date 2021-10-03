@@ -2,30 +2,39 @@
 ---
 
 
-## 疫苗灾情｜法国 32 岁铁人三项运动员接种疫苗后致肺栓塞
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1570258/)
+## 朝鲜成功试射一枚新研发的防空导弹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1570379/)
 
-**撰文/ 台湾宝岛农场 天滅中共 ｜发布日期****/ 3/10/2021**
+栏目记者/责任编辑：正义的小新
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。***
-***本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
-* * *
 
-【法国】圣特斯一名 32 岁的资深铁人三项运动员 Antoine Méchin 接种完第二针莫德纳 COVID-19 疫苗后，身体产生严重不良反应，致使被迫暂停本赛季的所有比赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
 
-Antoine 8 月 16 日接种第二剂疫苗之后，出现了呼吸急促和腰痛的症状，据最新的诊断结果显示，他的不良反应是因为接种疫苗后导致肺栓塞。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Antoine.jpeg)
 
-其实， 在 Antoine 6 月 28 日接种完第一针后，他就感到呼吸困难，左臂疼痛，直至 3 周后的一场越野赛期间，他都仍然饱受左臂疼痛和呼吸急促的困扰。当时，Antoine 及时将自己的情况贴在Facebook上，并于第二日，去圣特斯医院接受检查，可惜，医生告诉他不要担心，这些不适的来源是“压力和疲劳”。
+** **
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Antoine-Mechin-1.jpeg)2021年6月越野賽
+朝鲜官方媒体朝中社10月1日称，朝鲜国防科学院9月30日，成功试射一枚新研发的防空导弹。这是朝鲜9月以来，使用所谓“新的导弹技术”进行的第四次试射。据朝中社报道，朝鲜国防科学研究院表示，此次导弹试验“在研究和发展各种前瞻性防空导弹系统等方面，具有非常现实的意义”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture66.jpg)
+对此，日本政府表示，朝鲜此举违反了联合国安理会“禁止使用弹道导弹技术”的决议，同时称朝鲜的试射行为“令人极为遗憾”。与此同时，美国国务卿布林肯9月30日敦促国际社会认真对待朝鲜的导弹发射。布林肯指出，这些导弹发射造成了“更大的不稳定”，美国正与日本和韩国就朝鲜问题进行“积极对话”。日本外务省称，日本同意继续进行三边合作，以实现朝鲜的完全无核化。
 
-因此，他接受了第二剂疫苗注射，大约 1 个月后，症状（呼吸急促、身体疼痛）变得更严重，最后被证实患有肺栓塞。
+（本文仅代表作者观点）
 
-他表示“我现在正在接受治疗，我希望恢复我的肺活量，在那之前我只能休息。如果必须再次接种疫苗，我绝不会接受。”
+参考链接：
+1. [朝鲜成功试射一枚新研发的防空导弹](https://english.kyodonews.net/news/2021/10/36e67db7537a-blinken-calls-for-n-korea-missile-launches-to-be-taken-seriously.html)
+2. [朝鲜成功试射一枚新研发的防空导弹](https://english.kyodonews.net/news/2021/09/3b8a187bcf82-japan-condemns-n-korean-missile-launch-as-violating-un-resolutions.html)
 
-来源｜[个案006](https://www.sudouest.fr/sport/course-pedestre/triathlon/le-triathlete-saintais-antoine-mechin-met-un-terme-a-sa-saison-et-ne-se-referait-pas-vacciner-si-c-etait-a-refaire-6234090.php)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-他们的故事：[//英国 29 岁创意总监接种疫苗后瘫痪//](https://gnews.org/zh-hant/1568385/)
+终审编辑：鬼五
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
