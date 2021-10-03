@@ -15,107 +15,107 @@
 
 ---
 
-### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/1/README.md)
+### [孙力军和傅政华已倒下，王岐山和孟建柱还会远吗？](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [两岸之间的口水仗](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加州将会对学校儿童执行中共病毒疫苗强制令](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [巴西总统：疫苗护照后的最终目的是人口控制](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [一加拿大母亲没有疫苗护照，被警察当着她孩子的面逮捕](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共在国庆日向台湾方向派出38架次军机 台称是最高纪录](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [墙内要闻汇编](/content/gnews/2/README.md)
+### [习王斗法：王岐山四大酷吏被抓同时“新冠神药”打击疫苗股何为？](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印度使用伊维菌素消灭了中共病毒](/content/gnews/3/README.md)
+### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/8/README.md)
+ ` 纽约香草山MOS01`
+
+### [墙内要闻汇编](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印度使用伊维菌素消灭了中共病毒](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [政治制度研究系列之一：日本的国体和政体—内阁议会制](/content/gnews/4/README.md)
+### [政治制度研究系列之一：日本的国体和政体—内阁议会制](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Shiva 博士：马里科帕县政府承认信封被修改过](/content/gnews/5/README.md)
+### [Shiva 博士：马里科帕县政府承认信封被修改过](/content/gnews/12/README.md)
  ` wenwu`
 
-### [《军事管制》将是澳洲暴政碾压民主的终极武器吗？](/content/gnews/6/README.md)
+### [《军事管制》将是澳洲暴政碾压民主的终极武器吗？](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [蒂埃里·鲍德 (Thierry Baudet) 在荷兰议会呼嘘不要给七十岁以下的人接种新冠疫苗](/content/gnews/7/README.md)
+### [蒂埃里·鲍德 (Thierry Baudet) 在荷兰议会呼嘘不要给七十岁以下的人接种新冠疫苗](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国银行网上银行系统宕机，数千人账户被锁定](/content/gnews/8/README.md)
+### [美国银行网上银行系统宕机，数千人账户被锁定](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [装神弄鬼的纽约州长Hochul说中共病毒疫苗是上帝的旨意](/content/gnews/9/README.md)
+### [装神弄鬼的纽约州长Hochul说中共病毒疫苗是上帝的旨意](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共代表75国在联合国呼吁实现疫苗公平分配](/content/gnews/10/README.md)
+### [中共代表75国在联合国呼吁实现疫苗公平分配](/content/gnews/17/README.md)
  ` 儒为`
 
-### [拜登：将尽全力通过基建和社会开支议案](/content/gnews/11/README.md)
+### [拜登：将尽全力通过基建和社会开支议案](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NBA球星德拉蒙德·格林表示不会逼迫队友打疫苗](/content/gnews/12/README.md)
+### [NBA球星德拉蒙德·格林表示不会逼迫队友打疫苗](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共病毒疫苗可能造成伤害和死亡并导致大规模种族灭绝](/content/gnews/13/README.md)
+### [中共病毒疫苗可能造成伤害和死亡并导致大规模种族灭绝](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [约阿希姆·库斯在欧盟议会呼吁停止对人类进行疫苗实验](/content/gnews/14/README.md)
+### [约阿希姆·库斯在欧盟议会呼吁停止对人类进行疫苗实验](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [应对美中对立，岸田文雄决定新设经济安保相一职](/content/gnews/15/README.md)
+### [应对美中对立，岸田文雄决定新设经济安保相一职](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拒绝接种疫苗的澳洲护士和警察面临失业](/content/gnews/16/README.md)
+### [拒绝接种疫苗的澳洲护士和警察面临失业](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共能源危机仍在持续，20个省市出现电力限制](/content/gnews/17/README.md)
+### [中共能源危机仍在持续，20个省市出现电力限制](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵在爆料革命第一天就准确预言了傅政华的落马](/content/gnews/18/README.md)
+### [郭文贵在爆料革命第一天就准确预言了傅政华的落马](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [创纪录的 38 架中共国军机在中共国国庆节侵扰台湾防空识别区（ADIZ）](/content/gnews/19/README.md)
+### [创纪录的 38 架中共国军机在中共国国庆节侵扰台湾防空识别区（ADIZ）](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [曝光：NHS疫苗护照在Telegram上售价750英镑](/content/gnews/20/README.md)
+### [曝光：NHS疫苗护照在Telegram上售价750英镑](/content/gnews/27/README.md)
  ` 象声`
 
-### [四年后傅振华被抓了](/content/gnews/21/README.md)
+### [四年后傅振华被抓了](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [币圈新闻动态：在过去的二十个小时里大型加密货币巨鲸和顶级数字交易所进行了大约十次转移](/content/gnews/22/README.md)
+### [币圈新闻动态：在过去的二十个小时里大型加密货币巨鲸和顶级数字交易所进行了大约十次转移](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [最新研究表明，否认伊维菌素是一种反人类罪](/content/gnews/23/README.md)
+### [最新研究表明，否认伊维菌素是一种反人类罪](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [媒体抹黑伊维菌素为辉瑞类伊维菌素克隆药物清理市场](/content/gnews/24/README.md)
+### [媒体抹黑伊维菌素为辉瑞类伊维菌素克隆药物清理市场](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：澳州警方想把反抗活动地点的上空设为禁飞区](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [DC大中华时事：阿尔及利亚投产科兴疫苗 ，产能将达到每月800万剂](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [论天国的仇敌：世界在偶像敬拜中堕落](/content/gnews/27/README.md)
+### [论天国的仇敌：世界在偶像敬拜中堕落](/content/gnews/32/README.md)
  ` 纽约香草山MOS03`
 
-### [解读孙力军的罪行](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [维州警察逮捕了一百多个抗议强制接种疫苗的示威者](/content/gnews/29/README.md)
- ` 澳喜农场`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/30/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/33/README.md)
  ` wenwu`
 
-### [每日快报:供应链危机可能使世界经济偏离轨道](/content/gnews/31/README.md)
+### [每日快报:供应链危机可能使世界经济偏离轨道](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [扒一扒苏哈托和他的家族](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [农民被剥夺耕种权力背后的阴谋](/content/gnews/33/README.md)
- ` 澳喜农场`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/34/README.md)
- ` wenwu`
 
 ### [澳洲煤炭大亨揭露NSW州长辞职的真实原因](/content/gnews/35/README.md)
  ` 澳喜农场`

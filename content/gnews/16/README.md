@@ -2,9 +2,12 @@
 ---
 
 
-## 拒绝接种疫苗的澳洲护士和警察面临失业
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1570785/)
+## 装神弄鬼的纽约州长Hochul说中共病毒疫苗是上帝的旨意
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1570889/)
 
-10/01/2021 第九新闻频道：拒绝接种疫苗的澳洲护士和警察面临失业。七名警官将采取法律行动一路挑战至最高法院，以使疫苗强制令无效。
+- 制作：葛大饼
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
