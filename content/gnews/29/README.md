@@ -2,21 +2,13 @@
 ---
 
 
-## 秘翻在线：台湾要求澳大利亚提供安全和情报支持
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572525/)
+## 2021年10月2日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1572598/)
 
-#### 撰稿：彩虹
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-9.jpg)图片来源：澳大利亚广播公司
-10月3日，综合《新闻极限》（Newsmax）和《澳大利亚广播公司》（ABC）的报道，台湾外交部长吴钊燮警告说，台湾面临与中共国开战的危险，要求澳大利亚提供安全和情报援助。
+10月2号：谢谢战友发给我的信息和翻译这个文章，所有的传统媒体和黑暗势力控制的媒体不可能有所谓的正面的信息，但我喜欢**😘**对我们役苗灭共有帮助，真相往往都是这些谎言，制造者帮我们传播的。【七哥好，看到您發的蓋特，我剛翻譯了這個法國電視台的報導，我認為它對您和GNEWS的態度是負面的，說您提供的關於疫苗和病毒的信息沒有任何依據。 說您提供的關於疫苗和病毒的信息沒有任何依據。 以下是我翻譯的文章原文內容，和視頻中英對照文件**🙏🙏**以下是我翻譯的文章原文內容，和視頻中英對照文件**🙏🙏** 郭文贵，预言“疫苗灾难即将到来”的中国亿万富翁 郭文貴，一位中國億萬富翁，在沒有提供任何證據的情況下散佈有關 新冠病毒和疫苗的理論。他的其中一個視頻在社交媒體上被分享了數千次。 “疫苗災難将会到来，經濟肯定會崩潰。然後到明年年底，人類將不得不在生與死之間做出選擇。”只有那些沒有接種新冠疫苗的人才會倖存下來：簡而言之，這就是在社交網絡上分享了數千次的視頻信息。這些言论背後的人是郭文貴，一位在房地產行業發家致富的中國億萬富翁。他也是北京政權的堅定反對者。 “中國共產黨的目標是利用（此處語意不明確）冠狀病毒，”他特別提到。 他掌握有關病毒和疫苗的理論 因被（中国共产）黨指控腐敗，郭文贵為躲避報復于2014年流亡美國。他在紐約的頂層公寓或豪車中，大量录制視頻接发中共，但也抓住有關病毒和疫苗的理論，在沒有提供任何證據的情況下為這些理論辯護。 “冠狀病毒是中國政府開發的生物武器，”他說。他的話被轉發到他的 YouTube 帳戶上，有近 400,000 名訂閱者。他還擁有自己的媒體渠道 G News，一个拥有14 種語言版本的网站。經證實的信息和純粹的虛假信息都發佈在這個平台上。而當這些信息在網路上瘋傳，它們並不基於任何調查或可靠來源】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/84921330a539e6c54e20cca26eb073a0.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/65125c014efb9e69facd0e8193d7adcb.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8cddd979b727e31769c06f1a0579b45b.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/5e3505384a47b35abbba21a72aa1a0ea.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/1ac080aec5f3973803dab7b75db37c55.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/62cf0811ee070dcf730677d2dd9815bd.jpg)
+[【2021年10月2日】文贵先生盖特原文](https://gettr.com/post/pcxxetfca7)
 
-在参加澳大利亚广播公司（ABC）的“今晚中国（China Tonight）”节目时，吴钊燮表示，如果解放军发动实际打击行动，台湾已经准备好击退来犯之敌。他说：“台湾的防御掌握在我们自己手中，我们绝对致力于保卫它。”
-
-吴钊燮呼吁，“我们希望与其他志同道合的伙伴，包括澳大利亚，进行安全或情报交流，以便台湾能更好地应对战争局势。到目前为止，我们与澳大利亚的关系[是]非常好，这也是我们所欣赏的。”
-
-**新闻来源：**
-
-[Taiwan Foreign Minister: We’re Preparing for War With China](https://www.newsmax.com/newsfront/taiwan-war/2021/10/03/id/1038936/)
-
-[Taiwanese Foreign Minister warns his country is preparing for war with China, asks Australia for help](https://www.abc.net.au/news/2021-10-04/taiwan-preparing-for-war-with-china/100511294)
+**喜联盟Gnews编辑部**

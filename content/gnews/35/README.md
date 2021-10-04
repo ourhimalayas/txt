@@ -2,58 +2,54 @@
 ---
 
 
-## 武毒所杂志：美官员发表了几十份中共军方的研究报告
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1572369/)
+## 共匪军38架次战机飞台以示 “十一国庆”特殊贺礼
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1572447/)
 
-- **编译：西班牙喜悦农场–wenwu**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh6.googleusercontent.com/GokezrZgXJRqG47k42NYYVBuietuTydkanbjRC4TGjcH5EBTrCERdvnOqdB3Vs1F3z8i6JZSYtB6fNfX7WkryhriLL6FGK1OZ3T-PGNuWqof-uliv4M_bzzA7UDcku-_P-d4i0-5=s0)[图片来源](https://news.ltn.com.tw/news/politics/breakingnews/3692279)
+据[台湾自由时报10月4日消息](https://news.ltn.com.tw/news/politics/breakingnews/3692279)称：中共在“十一国庆”当日派38架次军机袭扰台湾防空识别区，破单日最高架次纪录，其中10架歼16深入台湾南方及东南方空域。
 
+[根据国防部统计](https://news.ltn.com.tw/news/politics/breakingnews/3692206)，38架共机分别是歼16、苏恺30、警500、运8反潜机等机型，为国防部揭露共机动态以来最多的一次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-55.png)
+延展阅读：[台湾外交部长警告澳大利亚，台湾正准备与中国开战并寻求帮助](https://descargitas.com/%E5%8F%B0%E6%B9%BE%E5%A4%96%E4%BA%A4%E9%83%A8%E9%95%BF%E8%AD%A6%E5%91%8A%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%EF%BC%8C%E5%8F%B0%E6%B9%BE%E6%AD%A3%E5%87%86%E5%A4%87%E4%B8%8E%E4%B8%AD%E5%9B%BD%E5%BC%80/)。
 
-《**Virologica Sinica**》**—**隶属于武汉病毒研究所的科学杂志**—**已经发表了几十项由为共产党政权人民解放军工作的中共国研究人员，撰写的研究报告。
+3日也出现绕台飞行。今天凌晨又出现5度绕台飞行。
 
-《Virologica Sinica》的[期刊](https://www.virosin.org/news/AimsandScope.htm)将武汉病毒研究所的顶级蝙蝠冠状病毒研究员石正丽——被称为“蝙蝠女”列为其[主编](https://www.virosin.org/news/EditorialBoard.htm)。
+共匪军在庆贺所谓十一“窃国国庆”后，有史以来高烈度连续五批次对台湾领空的军事恐吓行动。是否类似上次装载核弹绕台飞行，尚不得知，共匪军已经完全无视国际社会谴责，[甚至对台军频爆粗口“X你个妈”。更彰显其流氓国家性格](https://news.ltn.com.tw/news/politics/breakingnews/3691960)。
 
-另有9名来自这个有争议的实验室的在其编辑委员会任职，许多[科学家](https://thenationalpulse.com/breaking/ex-cdc-chief-covid-lab-theory/)和政府官员认为武毒所的实验室是中共病毒（covid-19）的起源。
+实际上，共匪军此次超记录架次飞越台湾是中共对自己“十一国庆”的庆贺方式。根据中共大外宣环球时报社论透漏，“[解放军战机以国庆“阅兵”形式飞越台湾海峡的。](https://www.globaltimes.cn/page/202110/1235605.shtml)”这表示台湾实际上被军事占领。
 
-据《国家脉动》的披露，该杂志已经发表了几十项研究，列出了受雇于中共国军事控制机构的个人。几年来，该杂志聘请的[研究人员](https://www.virosin.org/news/lianjie/4356a257-b02a-4eb0-9c78-ca1a4c07f0ac_en.htm)来自人民解放军（PLA）307医院、总医院、第三军医大学和[第四](https://www.virosin.org/news/lianjie/f11f0776-703b-4114-940d-57905bdd1739_en.htm)军医大学，甚至担任该杂志的编辑和审核工作。
+对此，3日，美国政府连续谴责北京称：中共国 “加大对台军事压力破坏地区和平与稳定。”并强调：这种加大破坏稳定、误判的风险在升级。并“敦促北京停止对台湾的军事”行动和外交、经济压力的胁迫。美方[将恪守“三个公报”、“与台湾关系法”和“六项保证”的承诺。美国对台湾的承诺坚如磐石](https://www.state.gov/increasing-peoples-republic-of-china-military-pressure-against-taiwan-undermines-regional-peace-and-stability/)。与此同时，时隔一小时后，白宫官方推特账户也转发这条申明。
 
-在《**Virologica*****Sinica***》上发表的研究，包括那些[专注](https://virosin.org/fileZGBDX/journal/article/vs/newcreate/s12250-021-00425-4.pdf)于**COVID-19 **的研究，也将武汉病毒研究所的研究人员与解放军中南部战区司令部总医院的研究人员，一起列为作者（如下图）。
+*·  延展阅读；*[*共军预警机未随队飞至我国东南 吕礼诗：此举极不寻常*](https://news.ltn.com.tw/news/politics/breakingnews/3691504)*。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-57.png)
+*· 延展阅读：*[*19架次共机夜扰台湾空域 单日39架次破纪录*](https://news.ltn.com.tw/news/politics/breakingnews/3691485)*。*
 
-工作单位是，[军事医学研究所](https://www.virosin.org/cn/article/id/VS19951001.0094)、[第一](https://www.virosin.org/fileZGBDX/journal/article/vs/1993/1/PDF/1993-01-03.pdf)，第二，[第四](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/6/PDF/060601.pdf)，[和](https://www.virosin.org/fileup/PDF/20040201.pdf) [第五](https://www.virosin.org/fileZGBDX/journal/article/file/4f1e5be1-391c-463d-a182-b018e38d157d.pdf)军[医](https://www.virosin.org/fileZGBDX/journal/article/vs/1997/3/PDF/1997-03-05.pdf)[大学](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/1/PDF/060106.pdf)——所有的工作单位都是由解放军控制。一些研究，其中包括[构建](https://www.virosin.org/fileZGBDX/journal/article/vs/2005/2/PDF/050213.pdf)“重组”病毒的研究，另外还包括来自[中共国的](https://www.virosin.org/full0/060109.pdf)军事医学[科学院](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/4/PDF/060404.pdf)的[计数](https://www.virosin.org/fileZGBDX/journal/article/vs/2021/1/PDF/vs-36-1-113.pdf)[作者](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/4/PDF/060416.pdf)，其名单已发表在该杂志上。在武汉[大学](https://www.virosin.org/fileZGBDX/journal/article/vs/2004/6/PDF/2004003.pdf)等武汉机构工作的研究人员（如下图），看到他们与解放军广州司令部武汉总医院 共同进行的研究，发表在《*Virologica Sinica*》上。
+· 延展阅读：[中共连连军机扰台 空军发布影片：绝不让敌越雷池](https://news.ltn.com.tw/news/politics/breakingnews/3691775)。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-59.png)
+台湾军情紧急，台湾有些所谓评论员完全不了解共匪军邪恶能力以及美国拜登政府如何捍卫台湾的态度。对此，台湾自由时报评论员王定宇居然声称： “请国人要有信心！”“台湾军方不管是载空机，舰载的、岸置的各飞弹系统，对于保卫台湾我们的家园，有充分的准备，不会让中共踩到红线，越雷池一步。”
 
-来自中共国人民解放军[南部](https://www.virosin.org/article/doi/10.1007/s12250-021-00356-0)、[中部](https://www.virosin.org/fileZGBDX/journal/article/file/0d1f8128-4b8f-4a82-ab3a-1048700895fd.pdf)和[北部](https://www.virosin.org/fileZGBDX/journal/article/file/22e033cf-49ae-40ab-9a24-f9288e853385.pdf)战区司令部命令预防控制中心（**CDC**）的作者，也在《***Virologica Sinica***》上发表文章。此外，来自解放军运营的医院网络的几个研究所的研究人员，如解放军[第](https://www.virosin.org/article/doi/10.1007/s12250-016-3914-2)[**171**](https://www.virosin.org/article/doi/10.1007/s12250-016-3914-2)[医院](https://www.virosin.org/en/article/doi/10.1007/s12250-017-4000-0)的急诊科和解放军第**307**医院的[呼吸内科](https://www.virosin.org/fileup/PDF/20140206.pdf)呼吸内科，也曾在该杂志上发表了文章。
+要知道，这种完全中共化的口炮党评论不但毫无事实依据，只能更加对中共国有利。
 
-《国家脉动》此前曾[报道](https://thenationalpulse.com/exclusive/niaid-director-on-wuhan-journal-ed-board/)，在福奇的国家过敏和传染病研究所 (NIAID) 的官员，曾在该杂志的编辑委员会任职。
+王定宇透漏，“[法国参议员即将组团访问台湾](https://www.taiwannews.com.tw/en/news/4301925)，台湾也在“跨太平洋伙伴关系全面进步协定”（CPTPP）的参加上，”法国议员访台湾行程是否实现，恐怕是台湾最大变数。但[台湾加入 CPTPP贸易组织因中共国参与尚处于不确定时期](https://www.abc.net.au/chinese/2021-09-23/taiwan-applies-to-join-cptpp-days-after-china-membership-pacific/100487248)。
 
-该杂志还多次发表了进行功能增强研究的的研究报告，其显明了福奇在他的国家卫生研究院（NIH）[参与](https://thenationalpulse.com/exclusive/audio-fauci-funded-researcher-describes-gain-of-function-collaboration-with-wuhan-lab-reveals-nih-was-very-supportive/)了武毒所的这种有争议的病毒功能增强风险形式后，是故意[说谎](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)否认。
+延展阅读：中共国驻法大使馆：[法国参议员访问台湾岛，将严重违反法国国家实行的一个中国原则，](https://www.globaltimes.cn/page/202109/1234979.shtml)[将被‘台湾’利用](https://www.globaltimes.cn/page/202103/1219084.shtml)。
 
-*2017*年《*Virologica Sinica*》的一篇文章[指出](https://virosin.org/fileZGBDX/journal/article/vs/2017/1/PDF/10.1007s12250-016-3902-6.pdf)：
+“对台湾来讲，我们很简单，就是守住我们自由民主的生活方式，对于中共军方的挑衅，我们保护自己、维系和平、绝不退让，这是台湾一贯的态度。”
 
-“为了确定登革热病毒（*DENV*）的进入因子，*Amara*的小组进行了功能增强互补*DNA(cDNA)*筛选，以寻找允许最小易感细胞系*293T*被*DENV*感染的宿主蛋白（*Carnec*等人，*2015*）*”*
+上述台湾评论员暴露其对国际形势评估的天真烂漫理想。但台湾需要谨慎乐观。台湾当局并没有认清形势，将共匪军与中国和中国人分开。如执意喊话“流氓国家”，对台湾当局不利，一旦共匪军攻台，台湾在没有国际友军援助下瞬间灰飞烟灭。
 
-“通过使用或不使用相关的 miRNA 抑制剂转染细胞，同时进行功能增强和功能丧失试验。24小时后，将 Act-D 加入培养基中，”另[一项研究](https://www.virosin.org/fileZGBDX/journal/article/vs/2019/3/PDF/vs-34-3-278.pdf)指出。还有一项研究引用了这种做法，[评论说](https://www.virosin.org/fileZGBDX/journal/article/vs/2020/4/PDF/vs-35-4-363.pdf)：“在这种筛选中可以采取两种主要的方法：功能增强，其中使用过表达的蛋白质库，以诱导或放大限制。”
+对此，郭先生说，（2：00时段）中共“[打台湾一定会超出所有人预料之外，就不在这个局内（世界局势的分析预判）”。因为“台湾对习来说已经是囊中之物。可以随时出手。](https://gtv.org/video/id=614c897242a8af3151a3c790)”
 
-武汉病毒研究所控制的期刊与解放军之间出土的联系[突显](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)了，武汉实验室与中共国军方保持的[工作](https://thenationalpulse.com/exclusive/nih-signed-mou-with-chinese-science-org-funding-pla/)关系，并且该实验室的资金来自安东尼·福奇那里的[数百万美元](https://reporter.nih.gov/search/xQW6UJmWfUuOV01ntGvLwQ/project-details/9819304)资助。
+· 延展阅读：[环球时报：绿媒紧盯：解放军军机今已5度进入台湾西南空域](https://open-hl.toutiao.com/a7014998750062084616/?showOriginalComments=true&amp;vivo_news_source=1&amp;utm_campaign=open&amp;docId=V0207014998750062084616&amp;utm_medium=webview&amp;vivoRecommendPushType=1&amp;isNews=1&amp;label=push&amp;from_channel=0&amp;showComments=0&amp;utm_source=vivoliulanqi)。
 
-**简评：**
+因此台湾需要跟上国际形势，这是中共军发动的一系列超限战的混合战法。正如[文贵先生一再警告](https://gtv.org/video/id=6150769942a8af3151a5b28f)的那样，（2:40.58时段）接下来，“疫苗和生物科技的较量就随时拉开。”“这个时候就打开了科技战、疫苗站、医疗战、病毒战、然后再是货币战。”“这个时候就真的是黑暗的时刻即将到来。”
 
-**未来如果要出现什么热病毒，这就说明又是起源于武毒所、解放军，以及还包括了福奇的资金和技术馈赠。那么，现在就是看中共跨国恐怖分子有多大几率再次放毒了。值得一提的是，福奇的NIH官员也担任了WIV《Virologica Sinica》编辑委员会成员，从而参与了病毒功能增强性研究。这就再次证实了福奇的听证会上的谎言。**
+因为，中共“必须让美国出现经济危机。然后你美国国债又超限。然后打台湾。台湾朱立倫百分之百是共产党的。”（见[2:40.58](https://gtv.org/video/id=6150769942a8af3151a5b28f) 时段）
 
-**最后，希望更多有缘人接受疫苗的真相，而不是等待出现副作用的发生。**
+2021年10月4日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-61.png)
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/wuhan-lab-journal-published-pla-studies/)》｜作者：娜塔丽**·**温特斯｜发布时间：**2021**年**10**月**3**日
-
-* * *
-
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+（本文只代表个人观点，与Gnews网站无关）
+*校对：东京樱花团 / 平安卿卿*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)

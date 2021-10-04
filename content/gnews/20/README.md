@@ -2,15 +2,22 @@
 ---
 
 
-## 2021年10月2日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1572623/)
+## 兔死狗烹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1572654/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+作者：东京樱花团｜阿恩
+![](https://lh5.googleusercontent.com/ukmWCn-DxixZ_7IYSoE5V5mLFf8GnE-mY0wSvnFOF9RXIO9ML91gvQXcxAmFghfX1cFdo6CCIpIDxgL0Bg6Bdte0W6M7UbNP0HnDr3i0_W5pPejnIGKdZmSNP8NzpSO_oLLWaZxY=s0)
+2012年中共红人唐英年在特首选举中被曝桃色新闻，梁振英得以成功上位，梁上任后被曝仍然兼职戴德梁行日本公司董事，之后收受上千万的“薪资”终止了职务，此事一直被坊间要求追责，但梁的特首位置却丝毫不受影响。梁振英在位期间劣迹斑斑，他全面开放自由行导致香港物资供应紧缺物价飞涨；用警黑联手的卑劣手段暴力镇压争取普选的港人，导致港人与警察之间的矛盾日益恶化，2016年春节因食环署人员粗暴执法小贩，引发激烈的警民争斗。梁不仅治港无能，连孩子也疏于管教，其女深受其父劣政的所害，被同辈歧视和排斥，有严重的心理问题和暴力倾向，更曾掌掴其母。梁家的家丑不断被媒体曝光，许多港人叹息孩子无法选择自己的父母。
 
-2015年，傅振华与郭文贵先生的秘密通话（下） 傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱
+梁振英在众人喊打的骂声中离开礼宾府，直至2019年反逃犯条例运动期间开始露头声讨示威的港人，其后中共直接管制香港，暴力“平复“香港的民怨，梁的腰板正式硬了起来，不断在社交平台和媒体上发表爱国言论，炮轰民主人士，并经常点名要求港府清算目标人物和组织，他又对现任政府的施政提出诸多意见，借以彰显自己执政期间的先见之明，并毫不掩饰地透露有意再次竞选特首。被剥夺了选举权的港人正以吃瓜群众的身份观看港共内斗时，今日的报章在头版曝光了数个国家领导人的海外影子公司，包括香港的董建华及梁振英正在被「国际调查记者同盟」（ICIJ）的潘多拉泄密文件调查，其中重提梁的利益申报问题，此报道被数家港媒转载。
 
-In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 2-2) Fu threatened Mr. Guo’s family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu’s overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu’s decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
+- ***延展阅读：***[***报道指梁振英曾「兼任」公司董事***](https://www.hk01.com/%E6%94%BF%E6%83%85/684344/%E5%A0%B1%E9%81%93%E6%8C%87%E6%A2%81%E6%8C%AF%E8%8B%B1%E6%9B%BE-%E5%85%BC%E4%BB%BB-%E5%85%AC%E5%8F%B8%E8%91%A3%E4%BA%8B-%E6%A2%81-%E6%9C%89%E8%AA%A4%E5%B0%8E%E6%88%90%E5%88%86-%E4%BA%A4%E5%BE%8B%E5%B8%AB%E8%99%95%E7%90%86)
+- ***延展阅读：***[***【潘朵拉泄密文件】家族涉72 间离岸公司董建华拥有7 间曾拟用作开设汇丰户口***](https://www.thestandnews.com/politics/%E6%BD%98%E6%9C%B5%E6%8B%89%E6%B4%A9%E5%AF%86%E6%96%87%E4%BB%B6%E5%AE%B6%E6%97%8F%E6%B6%89-72-%E9%96%93%E9%9B%A2%E5%B2%B8%E5%85%AC%E5%8F%B8-%E8%91%A3%E5%BB%BA%E8%8F%AF%E6%93%81%E6%9C%89-7-%E9%96%93-%E6%9B%BE%E6%93%AC%E7%94%A8%E4%BD%9C%E9%96%8B%E8%A8%AD%E6%BB%99%E8%B1%90%E6%88%B6%E5%8F%A3)
 
-[【2021年10月2日】文贵先生盖特原文](https://gettr.com/post/pcwish0018)
 
-**喜联盟Gnews编辑部**
+爆料革命郭文贵先生在数次大直播中已警示中共内部各派政治角力已到你死我活的地步，隶属于中共各大家族的大型企业和金融机构陆续爆煲，连累各国养老基金血本无归，借疫苗事件引发的国际追责呼声日渐汹涌，中共此时抛出两位忠心耿耿的元老确实令人唏嘘。未来事态的发展需要密切留意郭文贵先生的爆料，但中共体制内的党员们由此可以更加清楚，中共政权为了维系生存，任何人都是可以随时牺牲的代价。
+
+（本文只代表个人观点，与Gnews网站无关）
+*校对：东京樱花团 / 平安卿卿*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)
