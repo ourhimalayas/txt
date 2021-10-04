@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/4/2021 3:48 AM (UTC)`
+
+10/3/2021 Miles Guo: The recording of the phone call between Fu Zhenghua and me was actually between me and the driver manipulated by Fu. Falun Gong followers and those in the public security organs, procuratorates, and courts are the people Fu arrested the most. Bringing down Fu Zhenghua meets Xi Jinping’s political interests as he can show off his “fairness” before arresting Meng Jianzhu and Wang Qishan. Fu Zhenghua not only sent people to prison, but also controlled the prisons and tortured the prisoners he arrested. This is the CCP’s wickedness!<br/><br/>10/3/2021 文贵直播：文贵当年公布的傅政华通话录音其实是由他操控的一个司机和我通话的；傅政华抓的最多的是法轮功和公检法的人；习近平拿下傅政华符合他的政治利益，在抓孟建柱和王岐山之前，习借此表现了一下“公正性“；傅政华不仅抓人进监狱，而且还管监狱并虐待他抓的人，这就是中共的邪恶！<br/>
+![img](https://media.gettr.com/group43/getter/2021/10/04/03/48/77820590-4b39-58dd-680a-f380e98a4767/out.jpg)
+
+---
+
 `@miles 10/4/2021 1:13 AM (UTC)`
 
 10月3号：疫苗灭共．疫苗灭黑暗势力，这速度怎么样？【辉瑞前员工报告 FDA 研究并警告辉瑞的疫苗使 COVID-19病例增加 300% 以上<br/><br/>https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/】
@@ -285,13 +292,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 9月30号：邪恶势力控制媒体后，对人类的洗脑达到的境界，空前绝后。这场人类的大屠杀还没有真正的开始。<br/><br/>【打了三针的教授骂完没打疫苗的教授12天后英勇就义】
 ![img](https://media.gettr.com/group46/getter/2021/09/30/13/7cc9d2b8-9387-4059-2985-e5f96ae58cda/74e22fa9b1794e0386bb2d5040d4c500.jpg)
-
----
-
-`@miles 9/30/2021 12:39 PM (UTC)`
-
-众多注射了中共病毒疫苗的患者在不应该的年龄被诊断出患有难以解释的癌症<br/><br/>A tremendous amount of vaccinated patients are diagnosed with inexplicable cancers at unusual ages<br/>
-![img](https://media.gettr.com/group11/getter/2021/09/30/12/7b370ecf-485a-8e85-7159-e1abfd3ec5b1/out.jpg)
 
 ---
 
