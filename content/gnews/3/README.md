@@ -2,24 +2,30 @@
 ---
 
 
-## 港股疫苗龙头暴跌超20% 市值蒸发450亿港元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1572878/)
+## 郭文贵先生爆料中共外交部和政法委的腐败黑暗关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572958/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Huawei-700x420-2.jpg)网络图片
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-76.png)
+外交部是一个国家政府的缩影。各国外交部除了代表国家形象，表达国家官方的立场，收发护照和签证外，还有两个重要的功能。其一，对外的合法的情报部，外交部的官员即相应情报人员。其二，大使馆的所在地相当于该国领土，任何国家都利用这块土地，表面合法行使外交权，实际进行走私、毒品、绑架等活动。
 
-**编辑摘要：**10月4日据AI财经消息，港股疫苗概念股集体重挫。开拓药业-B盘中跌近25%，腾博药业-B跌超22%，康希诺生物-B跌超20%，复星医药盘跌逾20%，早盘疫苗概念市值蒸发逾450亿港元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-5.jpeg)
 
-另外，康希诺生物-B股价已较年初最高的450港元腰斩，复星医药股价在8月初仍报82港元的高位，短短两个月不到，股价已跌掉6成。
+中共情报部主要由国家安全部、二部和三部组成，外交部是其海外延申。中共政法委、公安部、安全部等部门指派相关人员进驻外交部，而这些官员并非由外交大使管理，而直接听命于相应的情报部门。
 
-新闻参考链接：[https://c.m.163.com/news/a/GLF7QDD00519D3BI.html?spss=newsapp](https://c.m.163.com/news/a/GLF7QDD00519D3BI.html?spss=newsapp)
+(本文仅代表作者观点)
 
-* * *
+参考链接：[2021-10-03 文贵大直播：中共外交部是情报机关；爆料程国平，大使倪坚；王毅，杨洁篪，王沪宁一定被抓；外交部和政法委的腐败黑暗关系；傅政华与文贵的通话录音变声的真相；习王江曾厮杀的核心；病毒解药一定都含有青蒿素，伊维菌素；联合国欧洲官方开始研究承认新中国联邦；](https://gtv.org/video/id=61599f5b304e992109ae6927)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
+终审：暗黑
+校正/发稿：谐趣园
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,32 +2,103 @@
 ---
 
 
-## 阿联酋前外交大臣称美国才是盟友!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572694/)
+## 详解区块链
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1572811/)
 
-栏目记者/责任编辑：文龙
+![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-10.jpg)https://gtv.org/video/id=615aa6e7d2e2b8174870f8e8
+郭文贵
+Miles Guo
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我告诉你就是，一句话就能回答区块链技术
+I’m telling you that I can answer you in one sentence: blockchain technology
 
-今年2月卸任阿联酋外交大臣安瓦尔·加尔贾什（Anwar Gargash）目前担任阿联酋总统的外交顾问，上周六10月2日安瓦尔在阿布扎比出席一场国际论坛并讲话，称对中美两国不断紧张的关系表示担忧, 担心这是一场正在逼近的冷战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1004-AM1-3.003.jpeg)
-对与中共和美国的关系，安瓦尔称，美国一直是阿联酋的亲密盟友。但中国对阿联酋石油的需求使其成为海湾地区最大的买家，中美的交恶以及贸易战，让包括阿联酋在内的中东石油国家面临选边站的两难选择。但安瓦尔也在讲话中暗示，对阿联酋来说,与中共可以成为贸易伙伴，但美国才是更为透明的战略盟友。
+我今天告诉你们的重点要记住
+You need to remember the main point that I’ll tell you today
 
-通过文贵先生的爆料揭示，我们了解到阿联酋在中共外交事务中的重要性。 安瓦尔称”我们不想成为这场新冷战中的棋子”，但他没有意识到的是，所谓中美对峙新冷战，早已演变成为一场中共对世界的”病毒超限战” ，并已经杀死包括阿联酋在内的全球450万人，且还在通过疫苗试图荼毒更多人！
-(本文仅代表作者观点)
+这个区块链厉害到什么程度
+How powerful is blockchain?
 
-参考链接：[阿联酋高官：我们都很担心一场逼近的冷战来临](https://www.rfi.fr/cn/中东/20211003-阿联酋高官-我们都很担心一场逼近的冷战来临)
+就是你把人绑架回去
+Even though you have kidnaped individual
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+他自己都打不回去这个钱
+This individual can’t even get the money back by himself
 
-终审：FoxRina
-校正/发稿：我不在这里
+这个太恐怖了
+The blockchain technology is awesome
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+这个就是你美国CIA你把人给抓了
+This meant even though the US CIA arrested this individual
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你把全家人都给抓了
+arrested the whole family
+
+你拿枪顶着脑袋，记住我说的这个词儿
+and pointing a gun to this individual’s head. Remember my words
+
+它是世界上最安全的财富
+it (blockchain) is the most secured wealth in the world
+
+什么叫区块链儿？
+What is a blockchain?
+
+你们一定要看喜币的白皮书
+You must read H-Coin white paper
+
+喜币的白皮书就在喜币的网站上
+H-Coin’s white paper is on the H-Coin’s website
+
+GClub的白皮书就在GClub的网站上
+and G-Club’s white paper is on the G-Club’s website
+
+一切不要相信七哥的，不要相信任何人的
+You don’t have to believe what Miles Guo and anyone said on everything
+
+那是你最重要要看的
+but most importantly you have to read
+
+就像火币也有白皮书一样
+just like the Huobi Token(virtual currency), it also has its white paper
+
+这个白皮书你看它用的什么技术？
+read this white paper and see what technology they have been using?
+
+它是用的摩根斯丹利独创的艾瑞克这个技术
+It (Huobi Token) has used the Erica technology which originally created by Morgan Stanley
+
+艾瑞克这个技术是虚拟币的所谓的两个技术(之一)
+Erica’s technology is one of the so-called two-technologies of virtual currency
+
+就是世界就俩，就两个
+There are currently two technologies in the world, only this two
+
+共产党那个现在全世界没人认
+The one that in the Communist Party’s possession currently do not recognized by the world
+
+就是区块链
+the blockchain
+
+我动一下区块链
+I do anything on the blockchain
+
+我现在发给猫本小哥一块钱
+if I send a dollar to Brother Mao Ben now
+
+全地球的电脑都能收到这个区块链技术
+all computers on the earth can receive this blockchain technology
+
+你想篡改绝不可能
+It is totally impossible for you to tamper with it (data).
+
+原视频日期：2021/09/30
+原视频链接: https://twitter.com/se1y7cblljselva/status/1443787455853858817?s=24
+视频时间段 : 0:00-1:54
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

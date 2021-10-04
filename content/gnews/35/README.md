@@ -2,50 +2,16 @@
 ---
 
 
-## 纽约时报承认辉瑞疫苗在以色列注射后失败，引起感染激增
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1572590/)
+## 串珠图文2:病毒也许杀不死人，但疫苗一定杀得死
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1572652/)
 
-作者：Ethan Huff
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21510B65-B6D2-4FE7-8023-E53539C6E582.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8391961E-7314-403A-AA92-0651BED8DB64.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/7444685E-3976-41C1-81B9-B6E8BAE2F39D.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/D24B4C59-46C6-4C8B-9A9E-334E2BF94022.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/37C38399-163D-4695-B41B-B3BB088F6B09.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/9ACF3914-D4AE-4F82-9328-8862B07B0B10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/18C0040D-4F25-4BB7-946D-435B8CE13125.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/BBE95071-DBC3-44B5-9876-C17D8F6ED9F8.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0A0AB3C9-6A88-4C67-9EFD-A8CA9B922092.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0AE6BC56-68DD-41C8-B6D3-28562641C769.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/4C50D21A-A2C1-446F-BEE1-2014C62B0C5B.png)
+* * *
 
-翻译：信心满满
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1.jpg)网络截图
-你知道武汉冠状病毒疫苗和大流行议程非常糟糕。纽约时报发出警告是感染上升由于疫苗承诺性。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-泰晤士报承认，越多人打疫苗，会有更多人有阳性的福奇病毒，会在医院治疗。怎么会让疫苗来治疗Covid？
 
-当然，答案就是福奇流感疫苗不能治疗。实际上会引起抗体依赖增强，非自然免疫反应使中国病毒容易进入细胞。
-
-疫苗引起ADE会使人更容易因武汉病毒而生病，它根本对免疫建立没有作用。这与阻止中国病毒的需要完全背道而驰。
-
-泰晤士报解释以色列是一个接种疫苗最多的国家，现在每日新增感染飙升天文级别由于注射疫苗
-
-以色列冠状病毒专员萨尔曼，扎卡在最近议会委员会会上说“我们是在战争状态”。
-
-以色列曾是以武汉病毒疫苗安全和有效在世界上一个瞩目例子，现在它成为大流行不该做的一个警示。
-
-**第四波冠状病毒直接是由于大量疫苗注射**
-
-然而，最新借口指责免疫力减退，专家声称打过两针疫苗可以尽快接受加强注射。
-
-声称来自唐纳德川普疫苗快速实施计划是无法治疗“Delta”病毒。尽管好多人争辩打疫苗是引起病毒和传播的原因。
-
-疫苗在预防高感染Delta变种病毒可能不是非常有效。该病毒是以色列主要病毒版本。泰晤士报道，第一批接种疫苗是年纪大群体，他们免疫系统是比较弱在接种开始前。
-
-事实证明群体免疫有可能早就实现，没有疫苗注射，病毒在早几个月完全消失，生活回归正常。
-
-多亏了传播迅速行动，不过完全接种疫苗像野火般迅速变种传播，已经威胁并消除了流行病所取得的成就。
-
-主流媒体慢慢地了解疫苗真相，即使像纽约时报这样媒体还认为疫苗一开始有帮助。
-
-Ran Balcer 教授，是专家团主席，他给以色列政府建议关于冠状病毒问题，声称疫苗只能对原始病毒有用，但对今后变种病毒像Delta是无效。
-
-说实话，这里没有疫苗针对Delta，Balicer这样假科学家从不会告诉你这一点。你必须仔细阅读字里行间，有关疫苗骗局真相，会像病毒变异因为专家会为他们无法掌控事情而编织新的借口。
-
-像美国一样，以色列目前推行加强针作为抵御Delta变种病毒。一旦这些加强针进入人体，疫苗就会产生新的变种，官方就会再推行另外加强针。或许这是无法停止循环。
-
-为了解更多武汉疫苗的危险和无效，请到药物暴力网站查看。
-
-**资料来源**
-
-[New York Times admits the Pfizer vaccine is FAILING in Israel as post-injection infections skyrocket](https://dreddymd.com/2021/08/25/pfizer-vaccine-is-failing-in-israel-as-post-injection-infections-skyrocket/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)

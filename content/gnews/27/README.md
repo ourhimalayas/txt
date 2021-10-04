@@ -2,16 +2,34 @@
 ---
 
 
-## 串珠图文2:病毒也许杀不死人，但疫苗一定杀得死
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1572652/)
+## 法媒指责中共镇压维吾尔人的同时摧毁新疆环境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572732/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21510B65-B6D2-4FE7-8023-E53539C6E582.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8391961E-7314-403A-AA92-0651BED8DB64.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/7444685E-3976-41C1-81B9-B6E8BAE2F39D.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/D24B4C59-46C6-4C8B-9A9E-334E2BF94022.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/37C38399-163D-4695-B41B-B3BB088F6B09.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/9ACF3914-D4AE-4F82-9328-8862B07B0B10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/18C0040D-4F25-4BB7-946D-435B8CE13125.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/BBE95071-DBC3-44B5-9876-C17D8F6ED9F8.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0A0AB3C9-6A88-4C67-9EFD-A8CA9B922092.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0AE6BC56-68DD-41C8-B6D3-28562641C769.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/4C50D21A-A2C1-446F-BEE1-2014C62B0C5B.png)
-* * *
+栏目记者/责任编辑：在远方
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+专注于报道环境议题的法国媒体《Reporterrre》发表文章，指责中共通过核试验、石油开采、稀土开采和大规模耕种棉花等方式，在残酷镇压维吾尔人的同时也彻底的摧毁了新疆的自然环境。
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+文章指出，新疆的环境问题与其人权遭受侵犯紧密相关。中共在新疆进行的45次核试验，已造成19万人过早死亡，核试验地区的民众的癌症比例比中国平均数据高出30至35倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1004-AM1-3.005.jpeg)
+自中共掌权以来，在新疆进行的石油、天然气和煤矿开采，对当地空气造成严重污染，大规模的棉花种植也造成土地化学污染。而中共近期启动的新疆稀有金属矿的开采，必将导致更加严重的环境后果。
+
+产自新疆的原材料以及产品都被中共运往中国沿海地区或出口海外牟利，当地民众遭受严重的环境后果却并未获得任何好处，中共对新疆环境的彻底摧毁是其破坏人权的行径之一，需要引起国际社会的关注。
+(本文仅代表作者观点)
+
+参考链接：[北京在镇压的同时摧毁维吾尔人的生存环境](https://www.rfi.fr/cn/专栏检索/法国报纸摘要/20211003-北京在镇压的同时摧毁维吾尔人的生存环境)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

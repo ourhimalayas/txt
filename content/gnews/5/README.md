@@ -2,26 +2,31 @@
 ---
 
 
-## 普京“无敌”高超音速导弹试射成功
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1572860/)
+## 前辉瑞员工称，接种辉瑞疫苗后人体感染病毒机率增加
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572946/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-75.png)
+前辉瑞公司的员工凯伦·金斯敦，于9月下旬一次公开会议上表示，根据辉瑞公司关于人体免疫力随时间变化的研究报告，基于3万6千人的实验数据，接种一剂辉瑞疫苗后，较未接种时，人体感染病毒的机率增加了3倍；当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。该研究报告也出现于9月17日召开的食品和药物管理局（FDA）咨询委员会会议简报中。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Russlands-Praesident-Putin.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-5.jpeg)
 
+医疗自由权利律师托马斯·茨伦也出现在本次会议中，茨伦此前在演讲中，向人们展示了医疗服务中心CMS，在来自不足20%美国人口的数据中，在接种新冠病毒疫苗后14天死亡的医保患者就接近5万人。茨伦目前正在参与几起针对联邦机构的欺诈，和侵犯医疗自由权利的重大案件。
 
-图片来源：DPA
+(本文仅代表作者观点)
 
-在去年的第一次测试中，普京将锆石描述为“无敌”。现在高超音速导弹再次成功飞行。这次是从北德文斯克潜艇发射的。
+参考链接：[‘If you get the Pfizer vax, you’re more likely to get COVID’: Industry analyst flags FDA study](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)
+[Vaccines and Related Biological Products Advisory Committee Meeting](https://www.fda.gov/media/152176/download)
 
-俄罗斯周一宣布对其锆石高超音速导弹进行另一次试验。国防部在莫斯科宣布，这一次火箭是从北德文斯克潜艇发射的，试验成功。导弹按计划到达了俄罗斯北部巴伦支海的目的地。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-高超音速导弹的速度可以达到音速的五倍以上，并且在飞行中具有机动性。对于常规防空来说，它们很难被发现和拦截。
+终审：暗黑
+校正/发稿：谐趣园
 
-俄罗斯总统弗拉基米尔·普京于 2019 年 2 月宣布开发锆石导弹。当时，他说火箭射程为 1000 公里，可以达到音速的九倍。该导弹于 2020 年 10 月进行了首次测试。普京将俄罗斯的高超音速导弹描述为“无敌”。 Zirkon 火箭已经进行了多次测试，包括从“戈尔什科夫海军上将”号护卫舰上发射。
-
-[https://www.welt.de/politik/ausland/article234193684/Russland-Wladimir-Putins-Hyperschall-Rakete-Zirkon-erfolgreich-getestet.html](https://www.welt.de/politik/ausland/article234193684/Russland-Wladimir-Putins-Hyperschall-Rakete-Zirkon-erfolgreich-getestet.html)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关。
-
-*编辑/ 校对/ 发布： Shuizhuyu*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,24 +2,31 @@
 ---
 
 
-## 塔利班对伊斯兰国采取行动
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1572891/)
+## 法国天主教会至少有3000名工作人员涉嫌虐童
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1572976/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+**撰稿：日本东京方舟农场 子辰**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/TOPSHOT-AFGHANISTAN-TALIBAN-RALLY.jpg)
+据美联社10月4日报道，法国一个独立委员会在调查法国罗马教会内的性虐待问题时称，在过去的 70 年里，至少有 3,000 名教区工作人员涉嫌虐待儿童，而其中三分之二是在教会工作的牧师。
 
+该独立委员会主席让-马克·索维 (Jean-Marc Sauvé) 在接受《Journal du Dimanche》杂志采访中表示，他们已经进行了22年的调查，全部调查结果定于近期公布。
 
-图片来源：法新社
+索维在采访中没有给出性虐待受害者的人数。他说：“自 1950 年以来，在 11,500 名牧师和教会人士中，我们估计涉嫌人数至少为 3,000 人。其中三分之二是教区神父。”
 
-周日在喀布尔清真寺前发生五人死亡的袭击事件后，伊斯兰塔利班对圣战民兵伊斯兰国 (IS) 的阿富汗分支采取行动。塔利班发言人萨比胡拉·穆贾希德周一在推特上说，塔利班武装分子袭击了首都北部的一个伊斯兰国组织的中心。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/phpYwaEJl.jpg)图片来自于网络
 
-“由于这次行动非常果断和成功，IS 中心被完全摧毁，其中的所有 ISIS 成员都被杀了。”
+他还说，有 22 起案件已因涉嫌犯罪而被转交给了检察官。其中有 40 多起涉嫌犯罪的案件被转交给教会官员，这些案件因年代久远而无法起诉。
 
-当地居民和法新社记者在突袭时听到爆炸声和枪声。网络上的图片显示了巨大的爆炸和火灾。政府官员阿卜杜勒·拉哈曼告诉法新社，“大量”塔利班特种部队袭击了他附近的至少三所房屋。
+报道援引索维的话说，从1950年到1970年该教会对受害者完全漠不关心，孩子们遭受的痛苦被忽视。
 
-[https://www.welt.de/politik/ausland/article234188456/Afghanistan-Kaempfe-waren-heftig-Taliban-gehen-gegen-IS-vor.html](https://www.welt.de/politik/ausland/article234188456/Afghanistan-Kaempfe-waren-heftig-Taliban-gehen-gegen-IS-vor.html)
+他补充说：“我们的目标是对所有滥用行为进行具体诊断，找出原因并得出所有后果。”
 
-免责声明：本文观点只代表作者， 与Gnews平台无关。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-*编辑/ 校对/ 发布： Shuizhuyu*
+*参考链接：*
+
+[Probe: Catholic Church in France had 3,000 child abusers](https://apnews.com/article/europe-religion-france-crime-child-abuse-928db836c85b5f4fcb403026cdf7a77f)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
