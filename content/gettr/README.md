@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/4/2021 3:26 PM (UTC)`
+
+WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇👇👇👇【GTV投资者对SEC的五大诉求：<br/>GTV Investors‘ Five Demand For The SEC<br/>1. 立刻归还属于投资者的资金<br/>Immediately Return GTV investor’s funds <br/>2. 立刻停止和中国共产党的勾兑<br/>Immediately stop collusion with the Chinese Communist Party<br/>3. 立刻停止针对华裔投资者的种族歧视<br/>Immediately stop racial discrimination against Chinese-Americans<br/>4. 赔偿投资者的一切损失<br/>Compensate GTV Investors for our loss <br/>5. 要求负责的人出来对话<br/>We demand to talk to those in charge for accountability】<br/><br/>https://gtv.org/broadcast/watch/615b1a14304e992109af6570
+
+---
+
 `@miles 10/4/2021 2:24 PM (UTC)`
 
 10月4号：衷心地感谢，国内外很多战友发来的对昨天大直播的反馈和信息。但是所有的国内的公检法的爷们儿，扪心自问，你们对得起自己的良知，和自己是个人的条件吗？自己曾经被傅振华，孙力军，孟建柱，王岐山，周亮.。等玩弄你们的家人！帮他们杀人陷害，好人，抢夺合法资产，你们收手了吗？你们觉醒了吗？你们有勇气敢面对这一切吗？最终都会受到审判的，莘县阳谷县搭县咱走着看……
@@ -285,13 +291,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 9/30/2021 Miles Guo’s GETTR: Wang Qishan and Meng Jianzhu have done numerous things that even Xi doesn’t know. The CCP’s recent announcement about Sun Lijun has covered up Sun’s over 100 murders and kidnappings, his attempt to murder and assassinate Xi, and the surveillance footage of the CCP’s top leaders, indicating that Sun Lijun’s force is getting stronger and is everywhere!<br/><br/>9/30/2021文贵盖特：过去几年王岐山和孟建柱干的很多事连习都不知道；中共最近关于孙力军的公告掩盖了他杀人绑架百次以上、企图谋杀和暗杀习以及监控中央领导的视频，该公告恰恰说明孙力军的势力正变得更强且无处不在！<br/>
 ![img](https://media.gettr.com/group3/getter/2021/10/01/04/15/c54221e7-8a7f-cb45-cbe4-2df5e900a0e3/out.jpg)
-
----
-
-`@miles 10/1/2021 3:36 AM (UTC)`
-
-9/30/2021 Miles Guo’s GETTR: Please post on all social media outlets everyday as much as possible the videos of people talking about the cons of the COVID jabs plus the evidence and information! I am grateful to the fellow fighters around the world for distributing tons of materials about the COVID vaccines to various media outlets and expert institutions! No COVID vaccine mandate! Nothing is more important than taking down the CCP with the truth about the COVID vaccines!<br/><br/>9/30/2021 文贵盖特: 请大家尽可能每天在所有社交媒体上发布关于人们以身说冠状病毒疫苗坏处的视频、证据和信息！感谢全球的战友们向各媒体和专家机构发送大量关于疫苗的材料！绝不能强制打疫苗！没有比“以疫苗灭共”更重要的事了！<br/>
-![img](https://media.gettr.com/group34/getter/2021/10/01/03/36/e124d0a8-8633-dd5c-e1d7-0103f4bb996c/out.jpg)
 
 ---
 

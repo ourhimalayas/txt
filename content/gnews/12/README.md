@@ -2,26 +2,24 @@
 ---
 
 
-## 普京“无敌”高超音速导弹试射成功
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1572860/)
+## 港股疫苗龙头暴跌超20% 市值蒸发450亿港元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1572878/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Huawei-700x420-2.jpg)网络图片
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Russlands-Praesident-Putin.jpg)
+**编辑摘要：**10月4日据AI财经消息，港股疫苗概念股集体重挫。开拓药业-B盘中跌近25%，腾博药业-B跌超22%，康希诺生物-B跌超20%，复星医药盘跌逾20%，早盘疫苗概念市值蒸发逾450亿港元。
+
+另外，康希诺生物-B股价已较年初最高的450港元腰斩，复星医药股价在8月初仍报82港元的高位，短短两个月不到，股价已跌掉6成。
+
+新闻参考链接：[https://c.m.163.com/news/a/GLF7QDD00519D3BI.html?spss=newsapp](https://c.m.163.com/news/a/GLF7QDD00519D3BI.html?spss=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-图片来源：DPA
+编辑：【英国伦敦喜庄园编辑部】
 
-在去年的第一次测试中，普京将锆石描述为“无敌”。现在高超音速导弹再次成功飞行。这次是从北德文斯克潜艇发射的。
-
-俄罗斯周一宣布对其锆石高超音速导弹进行另一次试验。国防部在莫斯科宣布，这一次火箭是从北德文斯克潜艇发射的，试验成功。导弹按计划到达了俄罗斯北部巴伦支海的目的地。
-
-高超音速导弹的速度可以达到音速的五倍以上，并且在飞行中具有机动性。对于常规防空来说，它们很难被发现和拦截。
-
-俄罗斯总统弗拉基米尔·普京于 2019 年 2 月宣布开发锆石导弹。当时，他说火箭射程为 1000 公里，可以达到音速的九倍。该导弹于 2020 年 10 月进行了首次测试。普京将俄罗斯的高超音速导弹描述为“无敌”。 Zirkon 火箭已经进行了多次测试，包括从“戈尔什科夫海军上将”号护卫舰上发射。
-
-[https://www.welt.de/politik/ausland/article234193684/Russland-Wladimir-Putins-Hyperschall-Rakete-Zirkon-erfolgreich-getestet.html](https://www.welt.de/politik/ausland/article234193684/Russland-Wladimir-Putins-Hyperschall-Rakete-Zirkon-erfolgreich-getestet.html)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关。
-
-*编辑/ 校对/ 发布： Shuizhuyu*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

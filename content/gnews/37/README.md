@@ -2,29 +2,16 @@
 ---
 
 
-## 瑞典: 长期被威胁的漫画家维尔克斯和两名保护他的警察在事故中丧生
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572645/)
+## 串珠图文2:病毒也许杀不死人，但疫苗一定杀得死
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1572652/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-4-e1633344921548.jpg)
-图片来源：SVT
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21510B65-B6D2-4FE7-8023-E53539C6E582.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8391961E-7314-403A-AA92-0651BED8DB64.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/7444685E-3976-41C1-81B9-B6E8BAE2F39D.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/D24B4C59-46C6-4C8B-9A9E-334E2BF94022.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/37C38399-163D-4695-B41B-B3BB088F6B09.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/9ACF3914-D4AE-4F82-9328-8862B07B0B10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/18C0040D-4F25-4BB7-946D-435B8CE13125.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/BBE95071-DBC3-44B5-9876-C17D8F6ED9F8.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0A0AB3C9-6A88-4C67-9EFD-A8CA9B922092.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0AE6BC56-68DD-41C8-B6D3-28562641C769.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/4C50D21A-A2C1-446F-BEE1-2014C62B0C5B.png)
+* * *
 
-据瑞典警方在2021年10月3号晚上10点的一份新闻稿中说，两名警察和一名受警察保护的人在周日下午的一场事故中死亡。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-据瑞典媒体Dagens Nyheter和SVT报道，漫画家拉斯·维尔克斯（Lars Vilks）被杀。 Dagens Nyheter的消息得到了拉斯·维尔克斯女友的证实，而SVT的消息得到了瑞典警方的证实。
 
-瑞典警察局长安德斯-托恩伯格在新闻稿中说，我怀着沮丧和极大的悲痛收到了我们的两位同事和我们的保安人员今天下午死亡的消息。我对这些亲属、家人、朋友和同事表示同情。
-
-在今天10月4号早上的新闻发布会上，瑞典警方提供了更多的细节。这三个人一起坐车，最后在对面的车道上与一辆货车迎面相撞。这起事故发生在15:30左右的瑞典小镇Markaryd附近的E4公路上，当时一辆民用警车和一辆卡车相撞。在碰撞过程中，两辆车都开始冒出大火。目前还不清楚事故是如何发生的。
-
-警方仍然不知道这辆车是如何或者为什么会出现在对面的车道上，但此案仍在调查中，因此警方目前不排除任何可能性。警方说：我们发现了轮胎碎片，所以我们正在研究发生轮胎爆炸或类似情况的可能性。但仍然没有迹象表明存在攻击或任何其他类型的外部影响。
-
-2007年， 75岁的拉斯·维尔克斯发表了一幅将先知穆罕默德描绘成狗的漫画。维尔克斯因此多次受到威胁和袭击，多年来一直受到警方保护。 据警方称，这两名警察为拉斯-维尔克斯担任保镖已有数年之久，而驾驶汽车的正是这两名警察中的一人。
-
-在新闻发布会上说，周一12点瑞典各地的警察局将举行一分钟的默哀，所有警察局外将下半旗。
-
-瑞典媒体《快报》写道，事故发生后，与这三人相撞的货车司机被直升机送往医院，伤势严重。然而，司机仍然活着。
-
-来源：
-
-[SVT](https://www.svt.se/nyheter/lokalt/skane/stor-brand-pa-e4-efter-krock-med-tva-fordon)
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)

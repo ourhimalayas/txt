@@ -2,32 +2,24 @@
 ---
 
 
-## 应对中共威胁，日美举行年内第5次海上联训
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572829/)
+## 基因研究人员对冠状病毒做了什么
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1572834/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
-栏目记者/责任编辑：修文
+翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
 
-昨日，日本海上保安厅舰艇协同美国海岸警卫队，在神奈川县横须贺市的横须贺港内进行了联合训练，联训科目是”设想应对可疑船只”。日方向外界透露，此次联训目的是为应对中共在东海、南海海域日益加强的军事威胁，而日美双方均秉持推广自由开放的印太区域概念，并加强双方合作, 包括在该海域的军事及准军事协作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-73.png)
-经历20年发展的中共,近年来在军事上持续扩张和行动，特别是在东海/南海水域, 这些咄咄逼人的行动已引发世界各国关注和连锁反应，各国间针对中共威胁的结盟、军演和训练空前频繁，此次演习, 已经是日美今年所举行的第5次海上联合作训。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/05/fusion-medical-animation-rnr8D3FNUNY-unsplash-scaled.jpg)
 
-(本文仅代表作者观点)
 
-参考链接：
+德国世界报今天发出了这样一篇文章， 对冠状病毒大流行进行了重新的反思， 明确指出最初的病毒实验室的说法是归列于阴谋论的范畴。 但是最近由于18位冠状病毒科学家在科学杂志发出的论文和呼吁， 引起了注意。 我个人认为， 这是德国重新审视病毒实验室学说的公正性的开始， 这可能就是为未来的疫苗灾难说， 打开了一闪探讨的大门。 这篇文章的部分意思翻译如下：
 
-[https://news.ltn.com.tw/news/world/breakingnews/3692394](https://news.ltn.com.tw/news/world/breakingnews/3692394)
+在泄露的文件引发了关于 Sars-CoV-2 起源的争论。他们提供了有关冠状病毒专家在大流行前几年从事哪些项目以及他们想使用哪些基因工程方法的见解。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+在大流行开始时，实验室假设很快就被归入阴谋论的领域。很少有科学家认真考虑过这种可能性。然而，今年 5 月，18 位冠状病毒领域的权威专家在专业杂志《科学》上发表了呼吁，呼吁对实验室事故的可能性进行公正调查。
 
-终审：FoxRina
+现在，Drastic 研究小组发表了以前不为人知的包含新炸药的文件。这是五角大楼研究机构 Darpa 于 2018 年 3 月收到的研究提案。除其他外，这是关于对冠状病毒进行基因操作的计划。
 
-校正/发稿：浪迹天涯
+[https://www.welt.de/wissenschaft/plus234188404/Labortheorie-Was-Genforscher-mit-Coronaviren-vorhatten.html](https://www.welt.de/wissenschaft/plus234188404/Labortheorie-Was-Genforscher-mit-Coronaviren-vorhatten.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
+免责声明：本文观点只代表作者， 与Gnews平台无关。
+
+*编辑/ 校对/ 发布： Shuizhuyu*
