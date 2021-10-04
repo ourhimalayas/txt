@@ -2,46 +2,33 @@
 ---
 
 
-## 我们一定会阻止朱立伦卖台湾,让共产党打下台湾也得不到
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1571799/)
+## 梵蒂冈强推绿色通行证，3名瑞士卫兵辞职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1571851/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot3.jpg)
-据[2021-10-03 文贵大直播：中共外交部是情报机关；爆料程国平，大使倪坚；王毅，杨洁篪，王沪宁一定被抓；外交部和政法委的腐败黑暗关系；傅政华与文贵的通话录音变声的真相；习王江曾厮杀的核心；病毒解药一定都含有青蒿素，伊维菌素；欧洲官方开始研究承认新中国联邦；](https://gtv.org/video/id=61599f5b304e992109ae6927)时间点4：23：04——
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/See-the-Swiss-Guards-_Getty_2018_GettyImages-821800896.jpg)
+图片来源：cntraveler.com
 
-我们这首先要提交的文件，我们未来会把台湾、香港作为一个独立的区，我们承诺的，我们希望台湾和香港、新疆、西藏都成为独立，都成为独立区，然后成为新中国联邦的一部分。但是都是独立的，而且这个独立要比美国联邦制还要独立。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-包括我们甚至可以考虑真正的公平的国际性的监督下的公投，像台湾的公投你不能十四亿人对2300万人，是不是啊？我们就等比例的公投，公民下，台湾要投独立就让台湾独立，香港要独立就让香港独立，事实上完全独立国家，为啥不可以呀？挺可以的。
+在罗马教廷命令军队，在没有任何宗教豁免的情况下接种中共病毒疫苗后，三名瑞士卫兵已“自愿”从梵蒂冈的礼仪部队中辞职，而其他几人则被停职。
 
-未来的人类绝对不是国家制控制着人类，而是人群的最终的绝大多数人的选择，我们建造的既不是国家体制也不是国家政权，我们是超出人类的包含了宗教和国家体制的一种人类的相存方式，不分种族不分国家（注：声音丢失，疑似不分国家）。我现在还不能告诉你绝对正道主义是基础，我们最终目标不是这个。
+虽然梵蒂冈的其他工作人员和游客可以选择定期接受中共病毒测试以保持他们的绿色通行证状态，但所有瑞士卫兵都被命令接受疫苗接种“以保护他们的健康以及他们作为服务所接触到的其他人的健康”，“该部队的官员乌尔斯·布雷滕莫瑟（Urs Breitenmoser）中尉告诉美联社。
 
-但这次这十几天七哥最大的、最近几天让我很兴奋的，就确实是上天给我们开一道道的方便大门，就是疫苗的整个真相的传播和到处全世界人的死亡，你一定看到疫苗灾难是人类最大的灾难，唯一全人类讲疫苗灭共、疫苗灾难的就是我们新中国人。
+除了被送回瑞士的三名卫兵外，至少还有三名卫兵在同意接种疫苗但尚未接受接种后被停职。瑞士卫队是一支由135人组成的全男性瑞士士兵小队，作为礼仪单位，以其三色文艺复兴式制服以及教皇的私人保镖而闻名。
 
-路大脑骗这帮孙子那个垃圾谁也抢不走，只有我们！能讲出青蒿素、地塞米松、伊维菌素还以身试药、以身试病的只有新中国联邦，大卫呀、飞飞呀、我们N个战友用行动证明。
+自 10月1日起，所有居民、员工和游客必须提供有效的健康证明——即意大利和其他欧盟国家使用的所谓绿色通行证——才能进入城邦场地。没有宗教方面的豁免，除了那些被特别受邀参加弥撒的人，“在仪式严格要求的时间内”可以被豁免。
 
-台湾内部现在也有很多我们的战友坚定地和我们站在一起，朱立伦想卖台的行为我们一定会阻止他，共产党即使打台湾我们也让它得不到台湾，我们一定能做到！我很有信心这一次跟世界上的邪恶和正义的沼泽地的力量能合作阻止共产党彻底将台湾所谓的变成自己的一部分，绝对不能！
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-我很有信心共产党不会占领台湾，而且台湾会有很美好的未来包括香港，这是我觉得这次是第二大收获啊，香港人台湾人走着看！掌声，你看我这得要掌声！
+**参考新闻：**[3 Swiss Guards resign after Vatican orders vaccinations & introduces Covid-19 Green Passes for staff and visitors — RT World News](https://www.rt.com/news/536494-vatican-swiss-guards-vaccination/)
 
-\*\*\*\*\*\*\*此处有掌声，众主播鼓掌\*\*\*\*\*\*\*
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

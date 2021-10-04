@@ -2,18 +2,26 @@
 ---
 
 
-## 雅典娜时报-第071期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1571918/)
+## 应朝鲜要求 朝韩双方重启热线
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571982/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-17.jpg)图片来源：网络截图
+路透社10月4日首尔报道，朝韩双方于周一重新恢复他们的热线，该热线在几个月前被北方切断，因朝鲜在武器开发问题上批评南韩双重标准，而今平壤（朝鲜）又要求首尔（韩国）作出努力，改善双方关系。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/10/01.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/02.png)
-***发布：小红帽***
+朝鲜领导人金正恩上周表达了他想要重新激活热线，而该热线是在8月初抗议美韩军事训练，当时发生在该热线于一年内首次重开后没几天。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+朝鲜中央通讯社官方新闻说电话热线将于周一上午9点重新联结。
+
+南韩证实了重新开始一天二次的通过军事热线和其他统一部门的对话常规，海军频道是通过商业船舶的国际网线。
+
+这个热线是一个对很少用的起到桥梁作用的工具，还不清楚重启后是否能开启双方有意义的对话，旨在拆除北方核设施和导弹项目，从而解除美国的制裁。
+
+朝鲜中央通讯社重复金正恩上周的讲话说恢复双方热线旨在帮助双方人民的和平愿望并要求韩国放弃“双重标准”，不要对朝鲜的防御性武器开发活动的废弃抱有“幻想”。
+
+热线的重启降低了双方的紧张局势，美国国防部发言人强烈支持两方的对话，称重启热线“对于建立朝鲜半岛稳定局势是一个重要的成分”。
+
+分析家们认为朝鲜的“胡萝卜加大棒”的策略是旨在让国际上认定朝鲜是一个拥核国家，在美韩之间打下一个楔子，让韩国总统文在寅在他明年五月任期结束前，急于锻造双方的和平协议为自己加分。
+
+##### 新闻来源： [Two Koreas reopen hotlines as North urges South to mend ties](https://www.reuters.com/world/asia-pacific/nkorea-says-inter-korean-hotlines-will-be-restored-monday-kcna-2021-10-03/)

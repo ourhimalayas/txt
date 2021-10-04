@@ -2,20 +2,29 @@
 ---
 
 
-## 是时候放弃“疫苗政治正确”了：新加坡接种率超80%，感染人数依旧飙升
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1571889/)
+## 2021年8月10日郭文贵先生吃馍馍吃“草”盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1571959/)
 
-作者：Stephen(文文)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-2-2.jpg)
-截止9月底，新加坡疫苗接种率已经接近80%（图1），为全球疫苗接种率最高的国家和地区之一。新加坡已康复人口（约78000人），约占总人口的13%（该国总人口约569万）。两者相加，理论上已对病毒免疫的人口已高达90%，早已越过所谓的“群体免疫”门槛。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-3-2.jpg)
-然而，随着疫苗接种率的提高，新加坡的疫情反而出现了快速反弹（图2），而且这种疫情反弹还是发生在新加坡已经收紧防疫措施的情况之下。显然，疫苗接种率并没有起到阻止病毒传播的作用，而且似乎加速了病毒的感染，也即起到了病毒“激活剂”的作用！
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-4-2.jpg)
-即使是很多医学人士期待的疫苗降低重症率的说法，在新加坡也并没有得到有力证实。新加坡ICU （重症加强护理病房，Intensive Care Unit）住院病人比例，依然随感染率的上升而大幅增加（图3）。
+盖特连接：[https://gettr.com/post/p76cb4](https://gettr.com/post/p76cb4)
 
-新加坡的为全球疫情防控提供了一个典型的研究案例。因为，新加坡面积狭小，地区经济发展差异较小，疫苗接种也相对均衡，防疫措施社区差异不大。疫苗的效果不但事实上非常有限，甚至还加重了疫情传播。除此之外，以色列、英国、美国等高疫苗接种率国家也有极为类似的情况发生。医疗界是时候该重新审视疫苗的作用了。在此我们呼吁全球医疗界放弃“疫苗政治正确”，深入研究疫苗的潜在作用及影响，以更开放的态度研究病毒来源真相。
+吃馍馍喽，吃草喽……
 
-【文章仅限作者个人观点 不代表GNEWS平台】
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-审核校对：Barry Jack
-上传排版：F
+吃馍馍喽，吃馍馍喽！这是玉米面儿的，然后这是白面的，这是萝卜羊肉汤，青椒炒蛋青，辣椒——一碗纯辣椒，黄瓜条，绿豆，就这么简单，没钱嘛，没钱只能吃点这穷人的饭了。
+
+编辑整理及发布：黎明之前
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

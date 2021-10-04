@@ -2,18 +2,27 @@
 ---
 
 
-## 瑞士卫队成员不满教皇强制接种疫苗要求而辞职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571790/)
+## 郭文贵：欧盟和联合国正讨论和考虑接受并承认新中国联邦
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571847/)
 
-#### 编译：花岗岩
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-11.jpg)图片来源：网络截图
-据披露电视网站（Disclose.TV）10月3日报道，根据意大利报纸 《信使报》报道，有三名瑞士卫兵因为不愿接受教皇强制接种疫苗的要求自愿离开该军团，另外三人被暂时停职，直到他们完全接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-瑞士卫队以其多彩的文艺复兴风格的盛会制服而闻名。它是世界上最古老的军团。因为他们与教皇关系密切，所以教皇要求成员们必须接种疫苗。但并非所有人都接受梵蒂冈发布的强制接种政策，与梵蒂冈的其他雇员和访客相比，瑞士警卫队要遵守更严格的冠状病毒规定。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-教皇瑞士卫队的发言人Urs Breitenmoser中尉认为卫队的疫苗接种要求是适当的。”这一措施与世界上其他武装部队的措施相一致”。
+视频参看： 2021.10.03晚GTV新闻访谈
 
-教皇弗朗西斯是疫苗接种的坚定支持者，并在年初为自己接种了两针疫苗。他说接受疫苗是 “一种爱的行为”。他对那些不愿意接种疫苗的人表示惊讶。
+[https://gtv.org/broadcast/watch/615a4a63304e992109af0e09](https://gtv.org/broadcast/watch/615a4a63304e992109af0e09)
 
-新闻来源：[Pope mandates vaccination: 3 members of the Swiss Guard resign](https://www.disclose.tv/pope-mandates-vaccination-3-members-of-the-swiss-guard-resign/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
