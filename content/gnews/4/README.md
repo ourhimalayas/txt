@@ -2,37 +2,29 @@
 ---
 
 
-## 数千人在巴黎抗议中共国在新疆侵犯人权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1573421/)
+## 【新闻速递】加拿大RCMP皇家警局工会表示支持选择不打疫苗警官的人权
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1573472/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/86730273-1.jpg)2000 多人聚集在巴黎，大声疾呼反对中国共产党在新疆对维吾尔人进行的种族灭绝。（来源：ANI）
-**简介：**多个维吾尔组织在巴黎等多个欧洲国家抗议，希望欧盟的企业能和中共控制的切断经济往来。
+温哥华扬帆农场 – 翻译：LuLu1312
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211004-RCMPLuLu1312.jpg)
+近期，加拿大皇家警局RCMP工会表示支持所属警官选择不打疫苗的决定。与此同时，他们也表明立场。虽然联邦政府已经下定了强制疫苗政策，但他们依然会继续支持那些选择不打疫苗警官的决定。
 
-巴黎：2000多人聚集在巴黎，抗议中国共产党（CCP）在新疆持续侵犯维吾尔人的权利。
+RCMP工会发言人说：“作为一个工会，我们会帮助并代表每一位因强制疫苗政策受到影响的警官。”
 
-抗议活动由多个维吾尔组织发起，包括世界维吾尔代表大会和欧洲维吾尔研究所。数百名来自欧洲各国的维吾尔族青年以及欧洲议会议员拉斐尔·格鲁克斯曼和法国女演员露西·卢卡斯等公众人物参加了抗议活动。
+因涉及隐私，工会发言人拒绝说明具体多少名警官选择不打疫苗。
 
-抗议者从巴士底广场开始游行，沿途高喊“正在进行种族灭绝”和“拯救维吾尔人”的口号，并举着横幅和东突厥斯坦国旗。演讲中，呼吁国际社会取消欧盟与中共国之间的所有协议，并抵制2022年北京冬季奥运会。
+在特鲁多宣布大选的前两天，加拿大自由党宣布了对联邦政府员工以及所有乘坐飞机，火车或者渡轮的加拿大人实行强制疫苗政策。
 
-此外，许多发言者谴责 Zara、Hugo、Boss 和优衣库等跨国时尚公司的同谋，他们继续购买由维吾尔人强迫劳动生产的产品。
+特鲁多竞选时曾声称：“自由党明确表示所有公务员务必接种疫苗。如果不选择打疫苗，后果将自己承担。疫苗强制政策会在十月实施。”
 
-同一天早些时候，非政府组织“Sum of Us”与世界维吾尔代表大会联合，在巴黎香榭丽舍大街的Zara旗舰店外举行抗议活动，反对该品牌从中共国采购使用维吾尔劳动力的材料。此次抗议恰逢巴黎时装周，旨在引起其他时尚品牌的注意，停止从新疆采购商品。
+多伦多RCMP警察工会表示不会赞同联邦的这种做法。据Toronto Star新闻，多伦多警察协会与多伦多警察警务部协商后一致表明警察无需遵守联邦政府强制疫苗政策（于十月对外公开疫苗接种记录），并且不会对此行为给予处分或调动。
 
-世界维吾尔代表大会驻法国代表、该活动的联合组织者Assal Khamraeva – Aubert 呼吁法国政府考虑停止从新疆进口使用强迫维吾尔劳工生产的产品。 她补充说，世界维吾尔代表大会希望除了国际社会承认维吾尔族种族灭绝这将是一场“象征性的胜利”外，在“经济层面”产生影响也很重要。
+原文链接：
 
-一些抗议者具体说明了该运动提出的要求，特别是“取消欧盟与中共国之间签署的条约，以及取消2022年北京奥运会”，原因是对维吾尔人的“屠杀”。
+[https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803](https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803)
 
-[原文链接](https://timesofindia.indiatimes.com/world/europe/thousands-protest-in-paris-against-chinas-rights-violation-in-xinjiang/articleshow/86730229.cms)
+[https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf](https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf)
 
-***编辑：【英国伦敦喜庄园编辑部】***
+*编审：**abbs*
 
-*翻译: 希望|校对: clau*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*发布：**Shuang*

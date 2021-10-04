@@ -2,21 +2,16 @@
 ---
 
 
-## 秘翻在线：台湾要求澳大利亚提供安全和情报支持
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572525/)
+## 串珠图文2:病毒也许杀不死人，但疫苗一定杀得死
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1572652/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21510B65-B6D2-4FE7-8023-E53539C6E582.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8391961E-7314-403A-AA92-0651BED8DB64.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/7444685E-3976-41C1-81B9-B6E8BAE2F39D.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/D24B4C59-46C6-4C8B-9A9E-334E2BF94022.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/37C38399-163D-4695-B41B-B3BB088F6B09.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/9ACF3914-D4AE-4F82-9328-8862B07B0B10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/18C0040D-4F25-4BB7-946D-435B8CE13125.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/BBE95071-DBC3-44B5-9876-C17D8F6ED9F8.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0A0AB3C9-6A88-4C67-9EFD-A8CA9B922092.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0AE6BC56-68DD-41C8-B6D3-28562641C769.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/4C50D21A-A2C1-446F-BEE1-2014C62B0C5B.png)
+* * *
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-9.jpg)图片来源：澳大利亚广播公司
-10月3日，综合《新闻极限》（Newsmax）和《澳大利亚广播公司》（ABC）的报道，台湾外交部长吴钊燮警告说，台湾面临与中共国开战的危险，要求澳大利亚提供安全和情报援助。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-在参加澳大利亚广播公司（ABC）的“今晚中国（China Tonight）”节目时，吴钊燮表示，如果解放军发动实际打击行动，台湾已经准备好击退来犯之敌。他说：“台湾的防御掌握在我们自己手中，我们绝对致力于保卫它。”
 
-吴钊燮呼吁，“我们希望与其他志同道合的伙伴，包括澳大利亚，进行安全或情报交流，以便台湾能更好地应对战争局势。到目前为止，我们与澳大利亚的关系[是]非常好，这也是我们所欣赏的。”
-
-**新闻来源：**
-
-[Taiwan Foreign Minister: We’re Preparing for War With China](https://www.newsmax.com/newsfront/taiwan-war/2021/10/03/id/1038936/)
-
-[Taiwanese Foreign Minister warns his country is preparing for war with China, asks Australia for help](https://www.abc.net.au/news/2021-10-04/taiwan-preparing-for-war-with-china/100511294)
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)

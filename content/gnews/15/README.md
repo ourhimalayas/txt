@@ -2,29 +2,31 @@
 ---
 
 
-## 秘翻在线：GTV投资者们在SEC总部抗议其官僚作风
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573294/)
+## 港共国安法下，最大工会组织职工盟被迫宣布解散
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1573318/)
 
-撰稿：WENJIE
+**撰稿：日本东京方舟农场 Kevin wang**
 
-责编：人间四月
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-05-015444.jpg)
-2021年10月4日GTV直播报道，GTV部分投资者在SEC华盛顿总部抗议SEC与中共勾兑，延续官僚作风，不及时返还GTV投资者的投资款。
+10月3日，因港版国安法的实施以及其赋予警察广泛的权力，香港最大的独立工会组织“香港职工会联盟”（职工盟）3日正式宣布解散。
 
-在九月SEC与GTV达成和解协议后，按照协议，SEC应该立即归还GTV投资者们的投资款，但是按照实际时间进度，SEC并没有履约。
+据大纪元报道，港职工盟成立于1990年，他们主张工会组织应向工人群众负责，不受任何外力操纵，被外界视为香港首个强调自主及民主的工运阵营。职工盟拥有14万5000名会员、97个附属会，而在解散后，所有员工将于2个月内遣散。
 
-据现场对抗议者们的采访，抗议人群的GTV投资者对SEC有五大诉求：
+由于担心触犯《香港国安法》，自今年年初以来，香港已至少有49个工会及组织被解散、停运，香港民间社会团体的活动空间正逐渐被收紧。
 
-GTV Investors‘ Five Demand For The SEC
-**1. 立刻归还属于投资者的资金**
-Immediately Return GTV investor’s funds
-**2. 立刻停止和中国共产党的勾兑**
-Immediately stop collusion with the Chinese Communist Party
-**3. 立刻停止针对华裔投资者的种族歧视**
-Immediately stop racial discrimination against Chinese-Americans
-**4. 赔偿投资者的一切损失**
-Compensate GTV Investors for our loss
-**5. 要求负责的人出来对话**
-We demand to talk to those in charge for accountability
+据路透社信息，职工盟副主席邓建华表示，该组织的成员收到了对其人身安全的威胁。但他并没有进一步说明细节。
 
-今天是GTV投资者们抗议的第一天，相信抗议将会持续一些时日。也请更多身在美国的投资者加入的抗议的队伍中，全球其他地区的投资者可以通过网上投诉写邮件的形式督促SEC尽快退款。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211004201450.png)图片来自于网络
+
+该组织被中共胁迫解散后，仍面临着被中共群追猛打的局面。据法广网报道，港共保安局发稿重申，一个组织及成员的刑责不会因解散或辞职而被抹走，警方会继续全力追究涉嫌违反《港区国安法》及其他法例的组织及人士，仔细调查曾收受外国政治团体捐款的本地组织，按需要运用国安法实施细则及其他条例权力，要求提供数据或采取行动。
+
+对此，职工盟秘书长李卓人之妻、前总干事邓燕娥对媒体表示：职工盟已唤醒工人，但属会与年轻一代要寻找新的方法继续工运。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[代表13萬人的職工盟解散 主席稱重挫獨立工運](https://www.rfi.fr/tw/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20211004-%E4%BB%A3%E8%A1%A813%E8%90%AC%E4%BA%BA%E7%9A%84%E8%81%B7%E5%B7%A5%E7%9B%9F%E8%A7%A3%E6%95%A3-%E4%B8%BB%E5%B8%AD%E7%A8%B1%E9%87%8D%E6%8C%AB%E7%8D%A8%E7%AB%8B%E5%B7%A5%E9%81%8B)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*
