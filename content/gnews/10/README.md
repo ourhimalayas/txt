@@ -2,24 +2,27 @@
 ---
 
 
-## 塔利班对伊斯兰国采取行动
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1572891/)
+## 恒大开市前停牌 “潘多拉文件“披露多国领袖秘密财富
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1572951/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/TOPSHOT-AFGHANISTAN-TALIBAN-RALLY.jpg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-4.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：2021.10.04早GTV新闻访谈
 
-图片来源：法新社
+[https://gtv.org/broadcast/watch/615af366304e992109af56ff](https://gtv.org/broadcast/watch/615af366304e992109af56ff)
 
-周日在喀布尔清真寺前发生五人死亡的袭击事件后，伊斯兰塔利班对圣战民兵伊斯兰国 (IS) 的阿富汗分支采取行动。塔利班发言人萨比胡拉·穆贾希德周一在推特上说，塔利班武装分子袭击了首都北部的一个伊斯兰国组织的中心。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-“由于这次行动非常果断和成功，IS 中心被完全摧毁，其中的所有 ISIS 成员都被杀了。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-当地居民和法新社记者在突袭时听到爆炸声和枪声。网络上的图片显示了巨大的爆炸和火灾。政府官员阿卜杜勒·拉哈曼告诉法新社，“大量”塔利班特种部队袭击了他附近的至少三所房屋。
-
-[https://www.welt.de/politik/ausland/article234188456/Afghanistan-Kaempfe-waren-heftig-Taliban-gehen-gegen-IS-vor.html](https://www.welt.de/politik/ausland/article234188456/Afghanistan-Kaempfe-waren-heftig-Taliban-gehen-gegen-IS-vor.html)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关。
-
-*编辑/ 校对/ 发布： Shuizhuyu*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

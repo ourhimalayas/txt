@@ -2,43 +2,39 @@
 ---
 
 
-## 病毒学期刊&#8221;影响因子&#8221;凸显武毒所与中共军方关系
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572921/)
+## 华裔英雄《尚气》撕下中共民族主义的遮羞布
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1572969/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
-采集/撰稿/终审 : 文龍
+作者：在远方
 
-“影响因子” Virologica Sinica 杂志是武汉病毒研究所通过Springer 出版平台发布的全英文病毒生物科学期刊, 主编就是大名鼎鼎的”蝙蝠女”石正丽。10月3日国家脉动发布了一篇调查文章,表明”影响因子”杂志与中共军方有着极为密切的关联。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-74.png)
-该文章披露, “影响因子”杂志创刊于1986年,中文名称叫做”中国病毒学”, 2007年改为全英文出版, 该期刊不仅发布了众多来自中国军方背景的研究者所撰写的病毒学/生物学论文。而且从解放军171医院/307医院/第三和第四军医大学聘请了研究人员参与论文审核和参与编辑。 期刊内容同样显示, 数名关注于新冠病毒研究的研究员 则来自解放军中南战区总医院。
-
-同时国家脉动还发现, 隶属于美国国立卫生院NIH的美国国家传染病研究所也有人员在”影响因子”杂志担任编辑, 国家传染病研究所的主任正是福奇, 而国立卫生院更是资助了武汉病毒研究所数百万美元, 用于新冠病毒的增强实验和研究。国家脉动对此调查发现的结论称: “美国深层政府与中国军方之间的关联和勾结, 比我们认为的还要根深蒂固。”
-
-(本文仅代表作者观点)
-
-武毒所影响因子杂志简介链接:
-
-[http://english.whiov.cas.cn/Virologica\_Sinica2016/](http://english.whiov.cas.cn/Virologica_Sinica2016/)
-
-国家脉动文章链接:
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
 
 
-> [Wuhan Lab Journal Edited By U.S. Officials, Published Dozens Of Studies From China’s Military.](https://thenationalpulse.com/exclusive/wuhan-lab-journal-published-pla-studies/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/未命名的设计.png)
 
+好莱坞第一部由亚裔演员主演的漫威系列英雄电影《尚气与十环传奇》，在全球获得巨大成功。但由于紧张的美中关系和民族主义尘嚣日上，此片至今无缘与中国观众见面。
 
+据悉，此片制作初期就非常重视中国市场，不但亚裔演员阵容强大，而且此片大量使用普通话，影片也运用了很多中国元素。
 
-影响因子主页链接:
+据有关报导称，该片涉及辱华情节。且该片的主演刘思慕，曾于2016年发表推文，批评中共的审查制度非常不成熟和不明就里，还曾在访谈中提到，“活在共产主义的中国，很多人死于饥饿”。
 
-[https://www.virosin.org/indexcn.htm](https://www.virosin.org/indexcn.htm)
+虽然中共《环球时报》狡辩称该片无法在中共国上映是由于角色偏见，但这恰好反映出中共当局对民主自由思想和反抗精神的恐惧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+参考链接：[《尚气》获全球赞誉却踢到中国民族主义铁板](https://www.voachinese.com/a/marvel-s-shang-chi-was-made-with-china-in-mind-but-beijing-still-doesn-t-like-it-20211003/6255409.html)
 
-校正/发稿：浪迹天涯
+编辑/校对/发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

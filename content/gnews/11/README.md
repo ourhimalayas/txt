@@ -2,34 +2,31 @@
 ---
 
 
-## DC每日热点1004
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1572879/)
+## 前辉瑞员工称，接种辉瑞疫苗后人体感染病毒机率增加
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572946/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/85AFEC14-4EFC-4B3E-886E-004B224CB3C5-scaled.jpeg)
-道琼斯指数 34349.27 ▲0.07%
-纳斯达克指数 14491.86 ▲0.82%
-WTI纽约原油CFD 76.302 ▲0.56%
-布伦特原油CFD 79.857 ▼0.51%
-标普中概股50指数 3,397.06CNY▼1.40%
-美元兑人民币 1USD=6.444RMB
-美元兑港币 1USD=7.785HKD
-国际黄金 1758.16美元/盎司
-全球CCP病毒感染人数 235,810,070 例
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-75.png)
+前辉瑞公司的员工凯伦·金斯敦，于9月下旬一次公开会议上表示，根据辉瑞公司关于人体免疫力随时间变化的研究报告，基于3万6千人的实验数据，接种一剂辉瑞疫苗后，较未接种时，人体感染病毒的机率增加了3倍；当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。该研究报告也出现于9月17日召开的食品和药物管理局（FDA）咨询委员会会议简报中。
 
-1、美贸易代表戴琪发表讲话，宣布拜登政府调整对中共国贸易政策四项具体作法，包括检视第一阶段美中贸易协议执行成果，并要求中方兑现承诺
-2、英海军继续印太部署 与澳大利亚展开联合军演
-3、岸田文雄正式出任日本新首相 拟新设经济安全大臣应对中共国威胁
-4、中共国恒大和恒大物业暂停在港交所交易
-5、香港最大的独立工会组织“香港职工会联盟”（职工盟）星期天正式解散
-6、朝鲜官方媒体称，朝韩热线将于周一恢复
-7、美国务院谴责中共连续军事胁迫台湾损害台海及区域和平稳定
-8、IMF总裁涉为中共改数据丑闻，董事会5日约谈
-9、俄罗斯在潜艇上成功试射高超音速导弹
-10、日产汽车等计划将西班牙的整车组装工厂出售给中共国长城汽车，将就此展开谈判
-11、中共国首次从哈萨克斯坦购进煤炭，以缓解电煤紧张，浙江稍早还从美国进口高热值煤。俄罗斯许诺本月加倍向中共国出口电力
-12、潘多拉文件曝光 多国政要境外藏富，香港前特首董建华家族涉72家离岸公司
-13、阿尔及利亚继续施压：禁止法军机进入领空
-14、澳政府信件：在取消潜艇交易数小时前曾告诉法企不会继续履行协议
-15、美国务院：美国对台湾海峡两岸和平与稳定有持久的利益
-16、南加州发生严重漏油事故 海滩关闭航展取消
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-5.jpeg)
+
+医疗自由权利律师托马斯·茨伦也出现在本次会议中，茨伦此前在演讲中，向人们展示了医疗服务中心CMS，在来自不足20%美国人口的数据中，在接种新冠病毒疫苗后14天死亡的医保患者就接近5万人。茨伦目前正在参与几起针对联邦机构的欺诈，和侵犯医疗自由权利的重大案件。
+
+(本文仅代表作者观点)
+
+参考链接：[‘If you get the Pfizer vax, you’re more likely to get COVID’: Industry analyst flags FDA study](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)
+[Vaccines and Related Biological Products Advisory Committee Meeting](https://www.fda.gov/media/152176/download)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

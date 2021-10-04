@@ -2,53 +2,68 @@
 ---
 
 
-## 露营产业或迎“转机”？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1569468/)
+## 蛇妖闫和她的疑似床圈合影照是为了显摆那只咸猪手么？
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1570122/)
 
-作者：香草山农场-鹰(文言)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001-1.jpg)
+这张照片引发了我的极大兴趣，于是就进行了照片检索，根据检索结果，我们可以知道图片中的人物名字如图所示——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/002-1.png)
+合影人员依次是——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+Li-Meng Yan, MD, PhD
 
+Robert Malone, MD
 
+Richard Urso, MD
 
-新浪网10月2日转载中新经纬报道，自2020年以来，露营产业高速发展，相关企业注册量猛增，露营相关产品销量飙升。
+Ryan Cole, MD
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片28.png)
+Craig M. Wax DO
 
-根据《2020端午小红书旅游趋势报告》，小红书用户露营意愿比2019年同期增长近300%，自驾游意愿提高约50%。2020年露营相关企业新增注册量8713家，同比2019年涨幅高达202.85%，2021年前9个月新增注册量增至1.5万家（同比翻番）。目前国内共计有2.6万家露营相关企业（其中超过六成成立于2020年之后），2020年国内露营市场规模超过4000亿元。
+那么这些人都是什么来头呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片29.png)
+关于Robert Malone, MD，据[领英——Robert Malone](https://www.linkedin.com/in/rwmalonemd)：Inventor of mRNA vaccines and DNA vaccines; world-wide expert in RNA technologies RW Malone MD, LLC: Consultancy and Analytics in the Bio-sector
+![](https://assets.gnews.org/wp-content/uploads/2021/10/003-1.png)
+中文：mRNA疫苗和DNA疫苗的发明者； RNA 技术的全球专家 RW Malone MD, LLC：生物领域的咨询和分析
 
-国内露营市场的火爆虽有部分原因来自旅游产业的发展，但主要因素为2020年初CCP病毒大流行导致大量人口被“拘禁”后的“报复性消费”，缺乏长久的助力。露营市场的火爆带动了其核心装备帐篷销量的猛增，如迪卡侬深圳帐篷类产品在2021年前5个月销量提高130%，帐篷类周边产品同比2019年涨幅达到360%；野炊炉、煤油灯、保温箱等野营装备销量翻番。但由于2020年CCP病毒疫情导致经济萎靡，生产制造企业数量降低，产能紧缺，以及2021年以来的大宗商品价格不断上涨，铝材、PVC等原材料价格随之提高，露营产品终端被迫涨价，造成露营产品供应不足。
+关于Richard Urso, MD，据[领英——Richard Urso](https://www.linkedin.com/in/richard-urso-66b95a136)：Medical Doctor at Houston Eye Associates，中文：休斯顿眼科协会的医生
+![](https://assets.gnews.org/wp-content/uploads/2021/10/004-1.png)
+关于Ryan Cole, MD 据[领英——Ryan Cole](https://www.linkedin.com/in/ryan-cole-md-54020389/)：Dermatopathologist CEO/Lab Director at Cole Diagnostics ，中文：Cole Diagnostics 皮肤病理学家首席执行官/实验室主任
+![](https://assets.gnews.org/wp-content/uploads/2021/10/005.png)
+关于Craig M. Wax DO据[领英——Craig M. Wax DO](https://www.linkedin.com/in/craigwax/)：Executive Vice President, Magid Associates，中文：Magid Associates 执行副总裁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/006.png)
+关于这张图片的来源是这样的——
+![](https://assets.gnews.org/wp-content/uploads/2021/10/007.jpg)
+也就是说Craig M. Wax D.O.抛出了狗骨头，然后蛇妖闫第一个叼起了狗骨头并叫唤了第一声，那么与Craig M. Wax D.O.和蛇妖闫一起叫唤的还有哪些呢？在用这张图片进行谷歌匹配之后，我们可以得到的拼图是这样的——
 
-国内的露营营地数量较为稀缺。虽有《关于促进自驾车旅居车旅游发展的若干意见》政策扶持，但截至2020年底房车营地数量仅为800多个。根据露营天下数据，截至2019年底，国内露营地总量为1778个，营位数约为56000个，远远无法满足消费者对营地的需求。当前的露营以“精致露营”或轻奢侈露营为主，相应的价格较高，如一套基础设备价格3000～5000元，露营住宿价格超千元，高成本、高价位决定了露营产业的市场难以深入。
+以下为谷歌匹配的第一页：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/008.jpg)
+以下为谷歌匹配的第二页：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/009-1.jpg)
+也就是说自蛇妖闫的疑似床圈和蛇妖闫鸡鸣狗叫地抛出这张照片之后，在推特上的响应者包括重复的人满打满算也凑够了谷歌搜索的两张页面。
 
-另外，露营极容易受到人口流动的影响，由于CCP病毒的危害尚在，而“毒疫苗”的影响还远没有开始，不良反应或各种梗、抽搐、倒地现象增多，外出的风险越加严峻。中共房地产泡沫的即将崩盘、经济的摇摇欲坠、政治斗争激化、腥风血雨对社会的影响日趋加深，人口流动越发艰难，而残害百姓和搜刮民财的力度弥增又加剧了普通大众的收支失衡，日常开销更加拮据，“露营风”难长。
+蛇妖闫参加的这次会议是什么背景？蛇妖闫和这张图片上的其他四个人中的几个有过床笫之欢我们也不得而知，但是我们知道郭文贵先生吹响的以苗灭共之战不是用照片来进行以苗灭共的，目前可知的至少有两条线，第一条线是向各个国家政府发送关于疫苗真相的相关资料，第二条线是媒体上向公众传递疫苗的真相；
 
-新闻来源：
+那么蛇妖闫用她的疑似床圈一众男友的照片要说明啥呢？我看到了Robert Malone, MD那只轻揽蛇妖腰的咸猪手，我看到了蛇妖闫的手部摆放位置，我想到了“一双玉臂千人枕，半点朱唇万人尝”，我是不是想歪了？罪过！罪过！
 
-[这届新中产，喜欢花几千块钱睡帐篷](https://news.sina.com.cn/o/2021-10-02/doc-iktzqtyt9300329.shtml)
+撰稿：喜马拉雅的肉夹馍
 
-[中国露营市场调研报告：热潮背后的装备产业链、营地服务和商业机会](https://36kr.com/p/1387099307212165)
+审核：喜马拉雅的馍夹肉
 
-[露营产业火了！野炊炉、煤油灯等露营产品销量暴涨200%！](https://www.163.com/dy/article/GBHMPJKN0519814N.html)
+校对：Maarago
 
-[精致露营市场兴起 带动周边产业持续升温](https://www.163.com/dy/article/GKKDU0ES0550C0ON.html)
+（文章内容仅代表作者个人观点）
 
-[消费规模4千亿 商业露营却为何依然小众？](http://finance.eastmoney.com/a/202009211642137636.html)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-校对/发稿：飞虹
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-**更多资讯，更多关注**
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

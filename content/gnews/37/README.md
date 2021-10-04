@@ -2,16 +2,46 @@
 ---
 
 
-## 串珠图文2:病毒也许杀不死人，但疫苗一定杀得死
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1572652/)
+## FDA顾问将就莫德纳和强生疫苗加强针举行会议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1572673/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21510B65-B6D2-4FE7-8023-E53539C6E582.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8391961E-7314-403A-AA92-0651BED8DB64.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/7444685E-3976-41C1-81B9-B6E8BAE2F39D.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/D24B4C59-46C6-4C8B-9A9E-334E2BF94022.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/37C38399-163D-4695-B41B-B3BB088F6B09.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/9ACF3914-D4AE-4F82-9328-8862B07B0B10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/18C0040D-4F25-4BB7-946D-435B8CE13125.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/BBE95071-DBC3-44B5-9876-C17D8F6ED9F8.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0A0AB3C9-6A88-4C67-9EFD-A8CA9B922092.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0AE6BC56-68DD-41C8-B6D3-28562641C769.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/4C50D21A-A2C1-446F-BEE1-2014C62B0C5B.png)
+- 编译：Lulumi
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-15.png)在一张档案照片中可以看到一个莫德纳 COVID-19疫苗瓶。(Eugene Hoshiko/AP Photo)
+
+据《大纪元时报》报道，疫苗和相关生物制品咨询委员会将于10月14日和10月15日举行会议，考虑是否为某些群体推荐莫德纳和强生公司的增强针。
+
+顾问们将在这两天听取演讲，包括来自两家公司的演讲。FDA在一份新闻稿中说，美国国家卫生研究院的国家过敏和传染病研究所的另一份报告，将概述关于混合和匹配加强针的数据，或在加强针中使用不同于初始方案的疫苗。
+
+政府通常会采纳其小组的建议。拜登政府上个月宣布，它支持对每个接种过疫苗的人使用加强剂，而不管他们的健康状况或基本特征如何。然而，在FDA的两名高级官员宣布辞职后，FDA只授权辉瑞公司的COVID-19疫苗加强针在一些人群中使用。两名辞职的官员在临走时撰写了一篇论文，认为没有证据支持加强针的使用。
+
+该授权仅适用于接受辉瑞公司最初的两针方案的人。目前，不建议混合和匹配加强针。
+
+在FDA同意其顾问的意见后，关于加强针的紧张局势仍在继续。美国疾病控制和预防中心咨询委员会否决了为，数百万18岁的人推荐加强针的投票，但被该机构的主任罗谢尔·瓦伦斯基(Rochelle Walensky)博士推翻了**。**
+
+莫德纳和强生公司表示，科学数据支持允许更多剂量的疫苗。
+
+莫德纳公司在9月中旬发布了一项试验的部分结果，该公司称，人们从其第三剂疫苗所提供的更多保护中受益，即使该公司称，数据显示对住院和死亡的保护有所减弱。
+
+强生公司大约一周后说，一项三期临床试验的数据显示，其疫苗的第二针加强了对有症状的中共病毒的保护。
+
+FDA生物制品评估和研究中心主任彼得·马克斯(Peter Marks)博士在咨询委员会会议之前，再次表明了FDA对加强针的立场。
+
+他说：“现有的数据表明，在某些人群中对有症状的中共病毒的保护随着时间的推移开始减少，因此评估在不同人群中使用加强针的信息很重要。”
+
+**评论：**
+
+**医疗系统里有良知的人都被逼走了，留下来的都是邪恶势力的打手和帮凶。FDA顾问组跟疫苗公司举行加强针会议，只不过是一场狼狈为奸的表演。指望疫苗公司的报告里，出现疫苗导致心肌炎、心包炎、脑梗、心梗的数据，无异于与虎谋皮。所以疫苗公司为了利益数据一定会造假。FDA顺理成章的用这些假数据走完流程，将毒疫苗加强针的推广合法化。这种把戏新中国联邦开智的战友一看就明白，可悲的是被洗脑的无辜老百姓又会继续施打加强针，用他们的性命来滋养这群恶魔。这是一场正邪较量的战斗，我们要继续传播疫苗真相，直到邪恶被消灭。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[大纪元时报](https://www.theepochtimes.com/us-drug-regulator-advisers-to-meet-on-moderna-johnson-johnson-covid-19-vaccine-boosters_4028996.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-03)(THE EPOCH TIMES) | 作者：Zachary Stieber|发布时间：2021年10月2日
+
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

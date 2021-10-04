@@ -2,46 +2,34 @@
 ---
 
 
-## FDA顾问将就莫德纳和强生疫苗加强针举行会议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1572673/)
+## 法媒指责中共镇压维吾尔人的同时摧毁新疆环境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572732/)
 
-- 编译：Lulumi
+栏目记者/责任编辑：在远方
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-15.png)在一张档案照片中可以看到一个莫德纳 COVID-19疫苗瓶。(Eugene Hoshiko/AP Photo)
+专注于报道环境议题的法国媒体《Reporterrre》发表文章，指责中共通过核试验、石油开采、稀土开采和大规模耕种棉花等方式，在残酷镇压维吾尔人的同时也彻底的摧毁了新疆的自然环境。
 
-据《大纪元时报》报道，疫苗和相关生物制品咨询委员会将于10月14日和10月15日举行会议，考虑是否为某些群体推荐莫德纳和强生公司的增强针。
+文章指出，新疆的环境问题与其人权遭受侵犯紧密相关。中共在新疆进行的45次核试验，已造成19万人过早死亡，核试验地区的民众的癌症比例比中国平均数据高出30至35倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1004-AM1-3.005.jpeg)
+自中共掌权以来，在新疆进行的石油、天然气和煤矿开采，对当地空气造成严重污染，大规模的棉花种植也造成土地化学污染。而中共近期启动的新疆稀有金属矿的开采，必将导致更加严重的环境后果。
 
-顾问们将在这两天听取演讲，包括来自两家公司的演讲。FDA在一份新闻稿中说，美国国家卫生研究院的国家过敏和传染病研究所的另一份报告，将概述关于混合和匹配加强针的数据，或在加强针中使用不同于初始方案的疫苗。
+产自新疆的原材料以及产品都被中共运往中国沿海地区或出口海外牟利，当地民众遭受严重的环境后果却并未获得任何好处，中共对新疆环境的彻底摧毁是其破坏人权的行径之一，需要引起国际社会的关注。
+(本文仅代表作者观点)
 
-政府通常会采纳其小组的建议。拜登政府上个月宣布，它支持对每个接种过疫苗的人使用加强剂，而不管他们的健康状况或基本特征如何。然而，在FDA的两名高级官员宣布辞职后，FDA只授权辉瑞公司的COVID-19疫苗加强针在一些人群中使用。两名辞职的官员在临走时撰写了一篇论文，认为没有证据支持加强针的使用。
+参考链接：[北京在镇压的同时摧毁维吾尔人的生存环境](https://www.rfi.fr/cn/专栏检索/法国报纸摘要/20211003-北京在镇压的同时摧毁维吾尔人的生存环境)
 
-该授权仅适用于接受辉瑞公司最初的两针方案的人。目前，不建议混合和匹配加强针。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-在FDA同意其顾问的意见后，关于加强针的紧张局势仍在继续。美国疾病控制和预防中心咨询委员会否决了为，数百万18岁的人推荐加强针的投票，但被该机构的主任罗谢尔·瓦伦斯基(Rochelle Walensky)博士推翻了**。**
+终审：文龙
+校正/发稿：我不在这里
 
-莫德纳和强生公司表示，科学数据支持允许更多剂量的疫苗。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-莫德纳公司在9月中旬发布了一项试验的部分结果，该公司称，人们从其第三剂疫苗所提供的更多保护中受益，即使该公司称，数据显示对住院和死亡的保护有所减弱。
-
-强生公司大约一周后说，一项三期临床试验的数据显示，其疫苗的第二针加强了对有症状的中共病毒的保护。
-
-FDA生物制品评估和研究中心主任彼得·马克斯(Peter Marks)博士在咨询委员会会议之前，再次表明了FDA对加强针的立场。
-
-他说：“现有的数据表明，在某些人群中对有症状的中共病毒的保护随着时间的推移开始减少，因此评估在不同人群中使用加强针的信息很重要。”
-
-**评论：**
-
-**医疗系统里有良知的人都被逼走了，留下来的都是邪恶势力的打手和帮凶。FDA顾问组跟疫苗公司举行加强针会议，只不过是一场狼狈为奸的表演。指望疫苗公司的报告里，出现疫苗导致心肌炎、心包炎、脑梗、心梗的数据，无异于与虎谋皮。所以疫苗公司为了利益数据一定会造假。FDA顺理成章的用这些假数据走完流程，将毒疫苗加强针的推广合法化。这种把戏新中国联邦开智的战友一看就明白，可悲的是被洗脑的无辜老百姓又会继续施打加强针，用他们的性命来滋养这群恶魔。这是一场正邪较量的战斗，我们要继续传播疫苗真相，直到邪恶被消灭。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：**[大纪元时报](https://www.theepochtimes.com/us-drug-regulator-advisers-to-meet-on-moderna-johnson-johnson-covid-19-vaccine-boosters_4028996.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-03)(THE EPOCH TIMES) | 作者：Zachary Stieber|发布时间：2021年10月2日
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

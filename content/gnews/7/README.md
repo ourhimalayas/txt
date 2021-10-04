@@ -2,31 +2,31 @@
 ---
 
 
-## 前辉瑞员工称，接种辉瑞疫苗后人体感染病毒机率增加
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572946/)
+## 法国天主教会至少有3000名工作人员涉嫌虐童
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1572976/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-75.png)
-前辉瑞公司的员工凯伦·金斯敦，于9月下旬一次公开会议上表示，根据辉瑞公司关于人体免疫力随时间变化的研究报告，基于3万6千人的实验数据，接种一剂辉瑞疫苗后，较未接种时，人体感染病毒的机率增加了3倍；当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。该研究报告也出现于9月17日召开的食品和药物管理局（FDA）咨询委员会会议简报中。
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-5.jpeg)
+据美联社10月4日报道，法国一个独立委员会在调查法国罗马教会内的性虐待问题时称，在过去的 70 年里，至少有 3,000 名教区工作人员涉嫌虐待儿童，而其中三分之二是在教会工作的牧师。
 
-医疗自由权利律师托马斯·茨伦也出现在本次会议中，茨伦此前在演讲中，向人们展示了医疗服务中心CMS，在来自不足20%美国人口的数据中，在接种新冠病毒疫苗后14天死亡的医保患者就接近5万人。茨伦目前正在参与几起针对联邦机构的欺诈，和侵犯医疗自由权利的重大案件。
+该独立委员会主席让-马克·索维 (Jean-Marc Sauvé) 在接受《Journal du Dimanche》杂志采访中表示，他们已经进行了22年的调查，全部调查结果定于近期公布。
 
-(本文仅代表作者观点)
+索维在采访中没有给出性虐待受害者的人数。他说：“自 1950 年以来，在 11,500 名牧师和教会人士中，我们估计涉嫌人数至少为 3,000 人。其中三分之二是教区神父。”
 
-参考链接：[‘If you get the Pfizer vax, you’re more likely to get COVID’: Industry analyst flags FDA study](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)
-[Vaccines and Related Biological Products Advisory Committee Meeting](https://www.fda.gov/media/152176/download)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/phpYwaEJl.jpg)图片来自于网络
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+他还说，有 22 起案件已因涉嫌犯罪而被转交给了检察官。其中有 40 多起涉嫌犯罪的案件被转交给教会官员，这些案件因年代久远而无法起诉。
 
-终审：暗黑
-校正/发稿：谐趣园
+报道援引索维的话说，从1950年到1970年该教会对受害者完全漠不关心，孩子们遭受的痛苦被忽视。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他补充说：“我们的目标是对所有滥用行为进行具体诊断，找出原因并得出所有后果。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Probe: Catholic Church in France had 3,000 child abusers](https://apnews.com/article/europe-religion-france-crime-child-abuse-928db836c85b5f4fcb403026cdf7a77f)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

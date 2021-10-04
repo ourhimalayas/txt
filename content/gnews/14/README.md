@@ -2,25 +2,23 @@
 ---
 
 
-## 普京“无敌”高超音速导弹试射成功
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1572860/)
+## 塔利班对伊斯兰国采取行动
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1572891/)
 
 翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Russlands-Praesident-Putin.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/TOPSHOT-AFGHANISTAN-TALIBAN-RALLY.jpg)
 
 
-图片来源：DPA
+图片来源：法新社
 
-在去年的第一次测试中，普京将锆石描述为“无敌”。现在高超音速导弹再次成功飞行。这次是从北德文斯克潜艇发射的。
+周日在喀布尔清真寺前发生五人死亡的袭击事件后，伊斯兰塔利班对圣战民兵伊斯兰国 (IS) 的阿富汗分支采取行动。塔利班发言人萨比胡拉·穆贾希德周一在推特上说，塔利班武装分子袭击了首都北部的一个伊斯兰国组织的中心。
 
-俄罗斯周一宣布对其锆石高超音速导弹进行另一次试验。国防部在莫斯科宣布，这一次火箭是从北德文斯克潜艇发射的，试验成功。导弹按计划到达了俄罗斯北部巴伦支海的目的地。
+“由于这次行动非常果断和成功，IS 中心被完全摧毁，其中的所有 ISIS 成员都被杀了。”
 
-高超音速导弹的速度可以达到音速的五倍以上，并且在飞行中具有机动性。对于常规防空来说，它们很难被发现和拦截。
+当地居民和法新社记者在突袭时听到爆炸声和枪声。网络上的图片显示了巨大的爆炸和火灾。政府官员阿卜杜勒·拉哈曼告诉法新社，“大量”塔利班特种部队袭击了他附近的至少三所房屋。
 
-俄罗斯总统弗拉基米尔·普京于 2019 年 2 月宣布开发锆石导弹。当时，他说火箭射程为 1000 公里，可以达到音速的九倍。该导弹于 2020 年 10 月进行了首次测试。普京将俄罗斯的高超音速导弹描述为“无敌”。 Zirkon 火箭已经进行了多次测试，包括从“戈尔什科夫海军上将”号护卫舰上发射。
-
-[https://www.welt.de/politik/ausland/article234193684/Russland-Wladimir-Putins-Hyperschall-Rakete-Zirkon-erfolgreich-getestet.html](https://www.welt.de/politik/ausland/article234193684/Russland-Wladimir-Putins-Hyperschall-Rakete-Zirkon-erfolgreich-getestet.html)
+[https://www.welt.de/politik/ausland/article234188456/Afghanistan-Kaempfe-waren-heftig-Taliban-gehen-gegen-IS-vor.html](https://www.welt.de/politik/ausland/article234188456/Afghanistan-Kaempfe-waren-heftig-Taliban-gehen-gegen-IS-vor.html)
 
 免责声明：本文观点只代表作者， 与Gnews平台无关。
 
