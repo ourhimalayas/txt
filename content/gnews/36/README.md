@@ -2,47 +2,31 @@
 ---
 
 
-## Stop vaccines
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1572913/)
+## 前辉瑞员工称，接种辉瑞疫苗后人体感染病毒机率增加
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572946/)
 
-BY：银河勇气星骄子
-视频：骄子
-1.传说里说女娲娘娘造人，先是拿泥动手捏，眼睛鼻子身子手腿，捏了没多久觉得进度有点慢，于是就拿了一根绳子开始甩泥点子，泥点子落到地上就变成一个一个的人了。
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-75.png)
+前辉瑞公司的员工凯伦·金斯敦，于9月下旬一次公开会议上表示，根据辉瑞公司关于人体免疫力随时间变化的研究报告，基于3万6千人的实验数据，接种一剂辉瑞疫苗后，较未接种时，人体感染病毒的机率增加了3倍；当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。该研究报告也出现于9月17日召开的食品和药物管理局（FDA）咨询委员会会议简报中。
 
-2.人类研发一个产品必先设计，然后画图，最后打样。打样出来以后制版，或者说制定一定的产品标准和流程，即SOP。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-5.jpeg)
 
-3.什么是干细胞？干细胞就是能够长成一个人的万能细胞，打个比方，断了一条腿，心脏被打穿不能用了，可以用干细胞凭空长出一条腿一个心脏来。
+医疗自由权利律师托马斯·茨伦也出现在本次会议中，茨伦此前在演讲中，向人们展示了医疗服务中心CMS，在来自不足20%美国人口的数据中，在接种新冠病毒疫苗后14天死亡的医保患者就接近5万人。茨伦目前正在参与几起针对联邦机构的欺诈，和侵犯医疗自由权利的重大案件。
 
-4.女娲娘娘先是拿泥捏泥人，这个过程里包括了设计画图和打样，后来甩泥点子很像制版以后开始的量产，甩泥点子也很像精子卵子结合形成干细胞（羊水就是培养皿）的过程
+(本文仅代表作者观点)
 
-5.在打样的步骤时，打出来的样品其实都是残次品，但是所有的样品都有一些特别好的方面，有的颜色好，有的质感好，参照这些不同的残次品，一步一步不断地再去提高样品的质量，直到打造一个最完美的样品，依据这个最完美的样品开始复制。行规是，这个最完美的样品是不会拿去出售的，因为他已经被选中，作为最得意的作品。所以他不是样品，也不是产品，他是作品。
+参考链接：[‘If you get the Pfizer vax, you’re more likely to get COVID’: Industry analyst flags FDA study](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)
+[Vaccines and Related Biological Products Advisory Committee Meeting](https://www.fda.gov/media/152176/download)
 
-6.后来又有传说，说女娲娘娘亲手捏出来的人比甩到地上的泥点子人要命贵，大多数都是王公贵族甚至人类首领。这里，手捏出来的人就是残次品和作品，泥点子人就是产品。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-7.所以在人类社会，残次品居于庙堂。有多邪恶都不要奇怪，他们都是残次品，各有各的残次性。文贵让我们去看很多人的生平，希特勒墨索里尼斯大林毛贼东，那些手刃无数人的生命的人，少年时代都是地痞流氓，天天就是坑蒙拐骗。世界上这么多人，碰到同类型的人的几率非常大。因为设计之初就是同一个批次出来的成品无论从成色功能上都比较类似。
+终审：暗黑
+校正/发稿：谐趣园
 
-8.共产党及邪恶组织造出的生物武器，和毒疫苗，创造这些邪恶武器的都是同样的人。表面上看来他们找到了女娲娘娘造人的bug，以为到处给人打疫苗，把地球上的人都清光光了，就是在修bug。
-
-9.人类的懦弱自私，不是bug，也不是被打上毒疫苗的理由。人总是要失去，社交媒体上最反对疫苗的是因为疫苗失去家人的人。换句话说叫做幸存者，本来疫苗是具有传染性的，幸存的家人没有死，还留下来给死去的家人讨还公道，你看这就不是bug，这是跑得很完美的一条代码。
-
-10.人类是有主人的，人不是猴变的。被AI统治的人都是仆人，疫苗就是让有主的人类仆人化，那最后到底谁是主人？人类自己的基因被疫苗取代以后，再也找不回身体健康，脑和心都是身体健康的一部分。
-
-11.青蒿素该出现的时候总会出现，文贵先生说青蒿素这个提取方法，可以和女娲娘娘类比，给人类获得重生的机会。这个机会是人类自己通过感应上天得到的。
-
-媒体再强词夺理，说文贵先生讲的关于疫苗的事情没有证据，就像当初那个梁伯韬一样，找文贵先生要证据链，坏人的愚蠢总是异曲同工，但凡他们听进去的一个直播，也不至于讲出这种话来。好人的创造，才刚刚开始。而这个地球的规律就是保护好肉体，才能活下来，给好人的无限未来才有可能。“你死了，灭共跟你没有一毛钱关系”。
-
-视频地址：[https://gtv.org/video/id=615b0e46d2e2b817487121a4](https://gtv.org/video/id=615b0e46d2e2b817487121a4)
-
-
-
-
-（文章内容仅代表作者观点）
-
-
-
-作者：骄子
-发布：骄子
-
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
