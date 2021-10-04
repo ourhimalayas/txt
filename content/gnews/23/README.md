@@ -2,70 +2,117 @@
 ---
 
 
-## 病理学家问：COVID 疫苗导致器官损伤的调查在哪里？(1/2)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1571457/)
+## 病理学家问：COVID 疫苗导致器官损伤的调查在哪里？（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1571474/)
 
 - 编译：Jenny Ball
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/organ-damage-Covid-vaccines-feature-800x417-1.jpg)`病理学家瑞安.科尔( Ryan Cole) 博士问道，在数千人因接种 COVID 疫苗而死亡之后，哪里进行了尸检以调查由刺突蛋白引起的器官损伤？`
+![](https://assets.gnews.org/wp-content/uploads/2021/10/organ-damage-Covid-vaccines-feature-800x417-1.jpg)病理学家瑞安·科尔( Ryan Cole) 博士问道，在数千人因接种 COVID 疫苗而死亡之后，哪里进行了尸检以调查由刺突蛋白引起的器官损伤？
 
-## **第一部分**
+## **第二部分**
 
-**故事一览：**
+**进一步的研究证明刺突蛋白的作用**
 
-- **美国食品和药物管理局（****FDA****）在分发疫苗之前无视警告，即疫苗可能会导致**[器官损伤](https://childrenshealthdefense.org/defender/covid-vaccine-spike-protein-travels-from-injection-site-organ-damage/)**——****该计划启动前后公布的数据显示，正是刺突蛋白损坏了微血管系统。**
-- **对**** 789 ****名患有**COVID-19**的职业运动员的分析表明，健康人没有出现不良心脏事件****——****然而，****VAERS ****显示有**** 11,793 ****人在接种疫苗后心脏病发作，或被诊断出患有**[心肌炎或心包炎](https://childrenshealthdefense.org/defender/watch-cdc-emergency-meeting-myocarditis-young-people-covid-vaccines/)**。**
-- **来自泽连科（****Vladimir Zelenko****）****博士治疗的患者组的数据显示，他在****COVID-19****发病的前五天内治疗的****3,000****名患者中，没有人继续出现长期症状，包括疲劳、脑雾或呼吸困难。**
-- 报告注射不良事件的人数[正在增加](https://childrenshealthdefense.org/defender/vaers-cdc-covid-vaccine-injuries-deaths-fda-third-pfizer-shot/) 。由于社交媒体平台经常删除有关不良事件的任何信息，因此为了讲述他们的故事，创建了两个网站。
-- 来自美国前线医生白大褂峰会([America’s Frontline Doctors](https://americasfrontlinedoctors.org/)) 的这段视频于 8 月中旬发布。其中有病理学家瑞安·科尔博士，他简明扼要地概述了许多与实验性基因治疗注射计划对健康的挑战。他问道，在数千人因注射而死亡之后，调查这个调查项目的尸体解剖在哪里？
-- 7月，美国军方在美国医学会心脏病学(JAMA Cardiology)上发表了一项研究，其中提出了一个问题，即心肌炎是否是注射 mRNA COVID-19 后可能出现的不良事件。
-- 他们确定了 23 名在接种疫苗后 4 天内被诊断出患有心肌炎的男性。
+3 月 8 日在线发表的[第二篇论文](https://www.medrxiv.org/content/10.1101/2021.03.05.21252960v1.full)，研究了刺突蛋白是一种炎症原，或一种可以在细胞水平上引发炎症的刺激物。 研究人员试图确定，刺突蛋白是否是 COVID-19 感染中发现的高凝状态的根本原因。
+
+质谱显示，刺突蛋白损伤了纤维蛋白原、凝血酶原和补体 3，所有这些化合物都易于凝血。他们认为，这种蛋白质的存在导致了高凝状态，并可能导致在感染 COVID-19 的患者的血浆样本中观察到大的微凝块。
+
+科学再次证明，导致[器官损伤](https://childrenshealthdefense.org/defender/covid-vaccine-spike-protein-travels-from-injection-site-organ-damage/)的不是病毒，例如在 COVID-19 患者的心脏、肝脏和肾脏中发现的器官损伤，而恰恰是疫苗中的刺突蛋白，它也被注射到基因治疗计划中。
+
+4 月 27 日发表的[第三项研究](https://medicalxpress.com/news/2021-04-sars-cov-spike-protein-lung.html)，再次在动物模型中证明，仅暴露于刺突蛋白就足以引起严重的肺损伤。然而，**政府机构并没有采取任何措施来减缓这一基因实验的传播。**
+
+研究人员继续研究刺突蛋白如何影响内皮细胞，并最终损害心肌。六月发表在心血管医学前沿的[一项研究表明](https://www.frontiersin.org/articles/10.3389/fcvm.2021.687783/full)，刺突蛋白下调了动脉中发现的连接蛋白的表现。他们得出[结论](https://www.frontiersin.org/articles/10.3389/fcvm.2021.687783/full)：
+
+“……**这些实验表明，刺突诱导的内皮连接蛋白降解会影响内皮屏障功能，并且可能是在**** COVID-19 ****感染个体中观察到的血管损伤的原因**。”
+
+即使研究人员确定了刺突蛋白损伤内皮细胞的途径，**主流媒体、政府机构和许多健康专家显然都忽视了这一点，**他们继续推动公众接种基因治疗注射剂，而它不能有效地保护你避免感染病毒或阻止您传播病毒。
+
+**感染开始并可能留在肺部**
+
+**有趣的是，****2021 ****年**** 3 ****月发表的****[另一项研究](https://jamanetwork.com/journals/jamacardiology/fullarticle/2777308)****质疑职业运动员感染**** COVID-19 ****后患炎症性心脏病，这是否会影响他们重返赛场的能力****。**
+
+研究人员对 789 名患有 COVID-19 的职业运动员进行了评估，在接受心脏筛查的患者中没有发现不良心脏事件，在这组健康个体中，刺突蛋白全身性参与似乎非常罕见。
+
+然而，在 9 月 3 日的[VAERS 报告中](https://openvaers.com/covid-data)，在接种疫苗的 9 个月内，共有 11,793 人患有心脏病、心肌炎或心包炎。COVID-19 对心脏的影响已得到[充分证明](https://www.bhf.org.uk/informationsupport/coronavirus-and-you)。
+
+在二月份对泽连科（Vladimir Zelenko） 博士的[采访](https://www.bitchute.com/video/klxnpNI2ZIfV/)中，我们讨论了用羟氯喹治疗 COVID-19。那时，泽连科已经治疗了 3,000 名出现 COVID-19 症状的患者，而他的高危患者中仅有 3 名随后死于该疾病。
+
+虽然采访的重点是治疗方案和抗疟药羟氯喹的使用，但泽连科分享了他的方案有趣的统计数据。
+
+在 COVID-19 的最初几个月，泽连科决定尽早治疗他的高危患者，而不是等待出现严重症状。事实证明，这是他取得重大成功的关键之一。
+
+他对**羟氯喹和锌**机制的理解，使得他将这种组合与**阿奇霉素**一起使用，以**预防细菌性肺炎和**** COVID ****常见的其他细菌感染**。
+
+有趣的是泽连科的长期症状患者的统计数据。华盛顿大学 2021 年的数据发现，32.7% 的 COVID-19 门诊患者会继续出现持续症状。
+
+然而，泽连科已经治疗了 3,000 名患者，在前五天内接受治疗的患者都没有继续出现长期症状。他的数据与华盛顿大学的数据来自同一时期。
+
+虽然他的患者有持续的 COVID-19 症状，但他们在出现症状的五天后才寻求医疗护理，这意味着炎症过程已经进展。根据他的经验以及他治疗的患者的经验，**早期用其方案干预几乎消除了持续症状的风险**。
+
+**长期症状可能与刺突蛋白损坏有关**
+
+感染 COVID-19 后可能持续数周或数月的症状，被称为长期症状。对于某些人来说，这可能是刺突蛋白引起的血管损伤的结果。CDC 报告说，在没有活动性 COVID 感染的情况下，可能会在感染后数周出现以下症状的组合，并持续数月。
+
+- 被描述为难以思考或集中注意力的脑雾
+- 胸痛
+- 咳嗽和呼吸困难
+- 抑郁或焦虑
+- 第一次站立时头晕
+- 快速跳动的心脏或心跳加速
+- 疲劳
+- 发烧
+- 头痛
+- 关节或肌肉疼痛
+- 嗅觉或味觉丧失
+- 呼吸急促
 
 
-他们确定“在没有其他确定原因的情况下接种疫苗”之后诊断出为心肌炎。
+科学家们现在知道， COVID-19 的主要病理生理学[包括](https://www.nature.com/articles/s41591-021-01283-z)内皮损伤和微血管损伤、过度炎症的刺激和高凝状态。生理学报告中的一篇[综述](https://physoc.onlinelibrary.wiley.com/doi/10.14814/phy2.14726)研究了 COVID-19 引发的内皮炎引起的毛细血管损伤和炎症，如何通过干扰组织氧合而导致持续症状。
 
-然而，尽管在注射后发现以前健康的人有心肌炎，作者们只建议保持警惕。宣誓保护美国人民的 23 名军人的心脏问题，“[不应削弱当前大流行期间对疫苗接种的整体信心的原因。](https://jamanetwork.com/journals/jamacardiology/fullarticle/2781601)”
+多个关键器官的毛细血管损伤的综合作用，可能会加速缺氧相关炎症并导致长期症状。 与泽连科没有长期症状的患者不同，发表在“在线临床医学”（E Clinical Medicine） 上的[一项在线调查](https://www.thelancet.com/journals/eclinm/article/PIIS2589-5370%2821%2900299-6/fulltext#%20)的参与者表现不佳。
 
-[截至 9 月 3 日](https://childrenshealthdefense.org/defender/vaers-injuries-deaths-covid-vaccines-new-highs-biden-mandates/)，疫苗不良事件报告系统([VAERS](https://openvaers.com/covid-data))  已收到 675,591 份疫苗接种后不良事件报告。其中，有 14,506 人死亡，6,422 人心脏病发作，5,371 人患有心包炎或心肌炎。
+该研究揭示了来自56个国家/地区的 3,762 名疑似或确诊COVID-19参与者的数据。 对于大多数人来说，从所有症状中恢复需要超过 35 周。数据显示，人们在 9.1 个器官系统中，平均出现 55.9 种症状。
 
-值得注意的是，VAERS 自 1990 年以来一直在跟踪不良事件。2019 年，有 605 份报告称接种了所有疫苗导致死亡。2021 年，9 个月内报告的死亡人数为14,594 人。
+**感染后六个月最常见的症状是：认知功能障碍、疲劳和劳累后不适**。
 
-尽管这些数字很严重，但 2010 年由美国卫生与公众服务部委托进行的哈佛研究[显示](https://digital.ahrq.gov/sites/default/files/docs/publication/r18hs017045-lazarus-final-report-2011.pdf)，显示的数据表明， VAERS 可能仅代表大约 1% 的受伤者。
+**疫苗副作用清单正在增加**
 
-鉴于这些统计数据，并知道新的注射计划是实验性的，2020 年 12 月 18 日， “儿童健康保护”([Children’s Health Defense](https://childrenshealthdefense.org/))主席兼首席法律顾问小罗伯特·肯尼迪（Robert F. Kennedy Jr,），要求拜登政府[考虑](https://childrenshealthdefense.org/defender/rfk-jr-david-kessler-covid-vaccine-vaers/)建立一个“全面、高度诚信的系统，以 监测疫苗接种后的不良后果。”
+随着疫苗接种后报告不良事件的人数不断增加，社交媒体平台还在极力压制有关人们正在经历的副作用的所有信息。
 
-2020 年初，许多临床医生、科学家和其他健康专家警告说，数百万人在注射后，可能会经历潜在的永久性或长期伤害或死亡。 滑稽的是，这个加强对疫苗伤害的监测的呼吁，一定程度上加重了社交媒体平台 的[审查制度](https://childrenshealthdefense.org/defender/robert-kenney-jr-instagram-removal-account/)，通过AI 监控您的帖子
+为了把他们的遭遇讲出来，人们在“不再沉默” [No More Silence](https://nomoresilence.world/)和“Covid成千的事故”[1000 COVID Stories](https://1000covidstories.com/)上发布了视频、静态照片和疫苗受伤的证据。
 
-**刺突蛋白损害内皮细胞并伤害心脏**
+一个例子是莎拉·格林（[Sarah Green](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/)），一名 16 岁的学生正在遭受衰弱症状。这是她妈妈[讲的她的遭遇](https://nomoresilence.world/pfizer-biontech/sarah-little-pfizer-adverse-reaction/)：
 
-帕特里克·惠兰（J. Patrick Whelan）医生是一名儿科风湿病学家，在向公众发疫苗之前，[他警告 FDA](https://childrenshealthdefense.org/defender/moderna-pfizer-vaccines-blood-clots-inflammation-brain-heart/)，该疫苗可能对肾脏、大脑、肝脏和心脏造成微血管损伤。惠兰专门治疗患有多系统炎症综合征 (MIS-C) 的儿童，该综合征与冠状病毒感染有关。
+“在几周内，她出现了严重的口吃，并开始出现无法控制的头部运动。她看起来像是患有帕金森氏症的人。她以前从未口吃或抽搐过。”
 
-当时，他的担忧是基于科学家和医生在 COVID-19 感染影响肺部以外的多个器官后报告的数据。今年 3 月，一项[研究](https://www.ahajournals.org/doi/full/10.1161/CIRCRESAHA.121.318902)发表在美国心脏协会的《循环》杂志上。 但是，**值得注意的是，该研究是在**** 2020 ****年**** 12 ****月在线**[**预印版**](https://www.biorxiv.org/content/10.1101/2020.12.04.409144v1)，**当时美国还没有接种第一种疫苗。**
+“她住了两个晚上医院，在那里接受了多次检查，然后出院，并被告知这是一种‘神经性抽动’，并让她去看心理健康人士。”
 
-这很重要，因为该研究表明与SARS-CoV-2相关的刺突蛋白会损害内皮功能。换句话说，在首次执行注射制造刺突蛋白的紧急使用授权疫苗指令之前，CDC、FDA 和国家过敏和传染病研究所(NIAID)，都很清楚：刺突蛋白可能会对人体循环系统的内皮细胞造成损害。
+“’我们多次询问是否可能是疫苗引起的，没人搭理我们，**直到一位医生告诉我们他不知道它是什么，但它****‘****绝对不是疫苗****‘**，我们不能把一切都归咎于它。’（如果你不知道是什么，怎么确认不是疫苗？符合逻辑吗？）
 
-**这些信息没有在媒体上讨论，也没有被**** FDA ****考虑，随着政府机构在美国推动**** 100% ****疫苗接种，这些信息继续被掩埋着**。
+“她的父母主张转诊去看神经科医生，后者诊断出莎拉患有功能性运动障碍，并告诉她“与疫苗有关，但不是疫苗相关的。” (related to the vaccine, but not vaccine related)他们还说这是一种“极其罕见”的副作用，尽管过去一年他们在自己的实践中看到了几例。
 
-在这项研究中，研究人员创造了一种含有刺突蛋白，但不含病毒的假病毒12，使用动物模型，[结果表明](https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902)，病毒不是造成损伤和炎症所必需的原因。
+“莎拉在上一学年结束时的 GPA 为 4.7，并参加了早期大学课程，有望获得副学士学位。鉴于她目前的身体状况和局限性，她别无选择，只能在即将到来的学期放弃大学课程。
 
-当 S 蛋白附着在 ACE2 受体上时，它扰乱了线粒体的信号传导，并造成了损伤和断裂。实验室证明， 线粒体功能的改变被证实是 ACE2 信号传导抑制的一部分。
+“她开始了正常课程，但却发现，剧烈颤抖和痉挛的情况，连低头或写作都是不可能的，她的老师要替她打字。
 
-结果还表明，该病毒可诱发内皮细胞炎症和内皮炎。[据报道](https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902)，S蛋白质会降低 ACE2 水平，并损害一氧化氮的生物利用度。该研究的联合高级科学家乌里·马诺 (Uri Manor) 在索尔克研究所的一份[新闻稿中解释说](https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/)：
+“我很伤心，因为她学习这么努力，但她的一切都被改变了——我真他妈的疯了！ **我们的整个生活都发生了变化，为了什么？** **就因为一种甚至根本不起作用的疫苗**！ 我希望读者在决定是否接种疫苗时，能够做出明智的决定。 我们没有这样的机会了。”
 
-“如果去除病毒的复制能力，它仍然会对血管细胞产生重大破坏作用，这仅仅是因为它能够结合这种 ACE2 受体，即 S 蛋白受体，现在由于 COVID 而闻名。对突变刺突蛋白的进一步研究,也将为突变SARS CoV-2病毒的传染性和严重性提供新的见解。”
+向 VAERS [报告疫苗伤害或副作用](https://childrenshealthdefense.org/defender/injured-by-vaccine-how-to-report-it/)至关重要，因为这些数据对于帮助他人、医生和研究人员做出明智的决定至关重要。
 
-**评论：我们应该知道，现在政府在强制接种的冠状病毒疫苗，还在实验期，用于紧急状态：即没有可防御治疗的药物和方法！事实是，可防御治疗的药物不仅有， 而且非常便宜安全。就是****WHO****批准使用了****60****来年的硫酸羟氯喹、伊维菌素。这也就是非洲没有发生大规模疫情的原因，因为这些药物是那里普遍用于治疗与冠状病毒相关的疟疾。硫酸羟氯喹安全到孕妇都可以使用。然而，主流媒体打压这些信息，尽管爆料革命从****2020****年元月就告知世界这个良药，川普总统也在推荐使用。**
+您可以通过访问在线VAERS或使用 PDF 制作自己的报告。您可以在国家疫苗信息中心找到有关不良事件以及疫苗如何影响您的健康的[更多信息](https://www.nvic.org/)。最初由[*Mercola*](https://docs.google.com/document/d/1TfFeeMweav9bev3Ln6fwNQLtCRnT1fEhGsTZb1Fn328/edit)出版。
 
-**那为什么实验性疫苗不仅被批准，而且还强制达到****100%****接种率？更何况****CDC****、****FDA ****和 ****NIAID****都很清楚：刺突蛋白可能会对人体循环系统的内皮细胞造成损害！**
+**评论：**
 
-**为什么？细思极恐！我们接着看文章第二部分，更是令人不寒而栗！**
+**文章前一部分讲道，**“**CDC****、****FDA ****和 ****NIAID****都很清楚：刺突蛋白可能会对人体循环系统的内皮细胞造成损害”！但政府仍然强制推行疫苗。****在这个疯狂的强制接种疫苗过程中， 比比皆是政府违法违宪的犯罪行为，随处可见违反常理的行为。 例如文章中****16****岁受害者****Sarah****妈妈讲的“****直到一位医生告诉我们他也不知道它是什么，但它****‘****绝对不是疫苗****‘**， **如果你不知道是什么引起的，怎么就确认不是疫苗呢？这合乎逻辑吗？**
+
+**正是因为人们默许了政府的强制违法，正是因为人们失去了常识判断，所以 “我们的整个生活都发生了变化，为了什么？** **就因为一种甚至根本不起作用的疫苗**！”
 
 （文章仅代表作者观点，与GNEWS无关）
 
 **素材来源：**[childrenshealthdefense.org](https://childrenshealthdefense.org/defender/dr-ryan-cole-investigations-organ-damage-spike-protein-covid-vaccine/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=dfd2f207-e4db-4562-bdce-aa516a22c7a3)
 
-请看下一篇：[**病理学家问：COVID 疫苗导致器官损伤的调查在哪里？（2/2）**—**第二部分**](https://gnews.org/zh-hans/1571474/)
+请看上一篇：[**病理学家问：COVID 疫苗导致器官损伤的调查在哪里？(1/2)**—**第一部分**](https://gnews.org/zh-hans/1571457/)
 
 * * *
 

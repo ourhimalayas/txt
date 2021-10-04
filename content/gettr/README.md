@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/4/2021 1:13 AM (UTC)`
+
+10月3号：疫苗灭共．疫苗灭黑暗势力，这速度怎么样？【辉瑞前员工报告 FDA 研究并警告辉瑞的疫苗使 COVID-19病例增加 300% 以上<br/><br/>https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/】
+
+---
+
 `@undeadthornbird 10/3/2021 11:43 PM (UTC)`
 
 
@@ -286,13 +292,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 众多注射了中共病毒疫苗的患者在不应该的年龄被诊断出患有难以解释的癌症<br/><br/>A tremendous amount of vaccinated patients are diagnosed with inexplicable cancers at unusual ages<br/>
 ![img](https://media.gettr.com/group11/getter/2021/09/30/12/7b370ecf-485a-8e85-7159-e1abfd3ec5b1/out.jpg)
-
----
-
-`@miles 9/30/2021 12:28 PM (UTC)`
-
-澳参议员评论中共对澳大利亚的渗透，包括最近的“一带一路”交易丑闻<br/><br/>Australian senator comments on the CCP’s infiltration of Australia, including the recent Belt and Road deal scandal<br/>
-![img](https://media.gettr.com/group39/getter/2021/09/30/12/b44dfce1-58f6-161f-5baf-f3812cc46cc1/out.jpg)
 
 ---
 

@@ -2,25 +2,29 @@
 ---
 
 
-## 通过显微镜可见疫苗接种者血液中存在凝血、受损的白细胞以及石墨烯
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1571535/)
+## 约翰逊议员称美没有FDA批准的中共病毒疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571540/)
 
-从医三十年的女医生，讲述她在显微镜下观察疫苗接种者血液时发现，血液中存在凝血块、受损的白细胞、石墨烯以及其他不明物质。
-医生讲述显微镜下的疫苗接种者血液中的凝血、受损白细胞和石墨烯等
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-* * *
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/J.jpg)yahoo.com
+罗恩·约翰逊（Ron Johnson）参议员在参议院质疑中共病毒疫苗的有效性后【1】，又曝出重大新闻，美国没有FDA正式批准的中共病毒疫苗。这对前些日子主流媒体火爆炒作的辉瑞疫苗获得了FDA批准的假新闻予以了澄清，约翰逊参议员亲自写信质询了FDA，得到的回复是，他们只延长了辉瑞疫苗在美国的紧急使用授权。
 
-更多加拿大枫叶农场的频道，请关注：
+看看《福克斯新闻》10月2日对参议员的采访，“参议员罗恩·约翰逊：美国没有FDA正式批准的中共病毒疫苗”，副标题透露，约翰逊解释说，在美国没有食品和药物管理局（FDA）批准的Comirnaty版本（疫苗）。【2】
 
-[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+全文如下：
 
-[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+威斯康辛州共和党参议员罗恩·约翰逊（Ron Johnson）在“福克斯新闻黄金时间”（Fox News Primetime）上披露，还没有一种真正由FDA批准的疫苗。
 
-[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+参议员罗恩·约翰逊：在美国，我们正在使用的疫苗还没有一种由FDA正式批准，FDA玩起了诱骗的游戏。他们承认他们批准的是辉瑞疫苗的Comirnaty版本，美国没有的。三天后，我给他们发了一封信，问他们“你们在做什么？” 他们所做的是延长了辉瑞疫苗在美国的紧急使用授权，30多天后了，他们还没有问这个非常简单的问题。如果你说辉瑞疫苗和Comirnaty是一样的，为什么你不提供FDA的批准文件呢？所以，没有FDA正式批准的疫苗。当然，他们宣布这个消息是为了让他们能够通过这些强制措施，让人们真地认为”哦，好吧，现在这些东西是FDA批准的。” 但它们不是，也许它们应该是，但FDA没有告诉我为什么。
 
-[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+（原文完）
 
-[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
-*上传：文永*
+是的，FDA偷换了概念，正式批准了一个不存在的Comirnaty版本，延长了目前在使用的实验性辉瑞疫苗的紧急使用授权，然后宣称被正式批准的Comirnaty版本供应量不足，请大家继续使用实验性的疫苗。结果疫苗生产厂家、主流媒体大肆渲染疫苗被正式批准了，掩盖了正在施打的疫苗的真相，让强制接种疫苗有了冠冕堂皇的理由。看上去FDA对参议员“为什么”的质询没有明确给出解释，放任他们炒作和强推疫苗，FDA等于给以强推疫苗接种的杀人者递了刀子。这种不正常的操作更说明背后必有阴谋，正道主义者必须坚持不懈地给予揭露，战友们，加油！
+
+有关链接：
+
+【1】[https://gnews.org/zh-hans/1565181/](https://gnews.org/zh-hans/1565181/)
+
+【2】[https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine](https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine)

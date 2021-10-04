@@ -2,109 +2,52 @@
 ---
 
 
-## A Microscopy Analysis of a Pfizer-BioNTech Covidvaccine Sample.
-` 中共病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1571734/)
+## 众议员玛乔丽·泰勒·格林：他们先兜售疾病(中共病毒)，之后他们又卖给你解药
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1571741/)
 
-From Dr. John B.
-![](https://assets.gnews.org/wp-content/uploads/2021/10/micoscopy.jpg)
-The analysis was performed with bright field and phase-contrast microscopy and applying rigorous scientific and hygiene standards. Two samples were analyzed from the same vial. These are the results:
-
-该分析是用明视野和相差显微镜进行的，并应用了严格的科学和卫生标准。
-对同一小瓶中的两个样品进行了分析。以下为分析结果：
-
-Focusing on the border of the drop (yellow arrow) reveals tiny particles of different sizes and light refraction properties:
-
-聚焦在水滴的边界（黄色箭头），可以看到不同大小和光折射特性的微小颗粒:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-10.jpg)
-Zooming in, the larger particles were found to have a diameter of about 1 µm. For comparison, Diameter of a human hair: 70-90 µm:
-放大后，发现较大的颗粒的直径约为1微米。相比较来说，人类头发的直径为70-90 µm:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-6.jpg)
-The smaller particles are about 0.5 µm (= 500 nm) in diameter:
-
-较小的颗粒直径约为0.5微米（=500纳米）:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/18.jpg)
-Some particle aggregations were also visible in the liquid:
-在液体中也可以看到一些颗粒的聚集:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-8.jpg)
-Fiber-like structures can also be seen. Their diameter is in the nm-range. (Remember, a human hair has a diameter of about 70-90 µm). Some of them look like a continuous fiber (a, c), some have branches (b, d):
-还可以看到纤维状结构，它们的直径在纳米范围内(人类头发的直径约为70-90微米）。其中一些看起来像连续的纤维（a，c），一些有分支（b，d）:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-6.jpg)
-More fiber-like structures. A ring-like structure was seen once (d):
-更多的纤维状结构。在（d）图可以看到一个环状结构（d）:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6-1.jpg)
-A futher class of particles: comparatively large and with unique light refraction properties. They come in different shapes (e.g rod-like, squares):
-另一类颗粒体积相对较大，具有独特的光折射特性。它们有不同的形状（如棒状、方块状）:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/7.jpg)
-More of these objects:
-更多此类物体的图片：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/8.jpg)
-And more:
-更多此类物体的图片（继续）:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/19.jpg)
-A few unusually shaped objects were found, e.g. a 45 µm long ribbed structure (b) and a particle of about 10 µm in diameter with some “spikes” attached (d):
-镜下还发现了一些形状异常的物体，例如，一个45微米长的带状结构（b）和一个直径约为10微米的颗粒，上面附着一些 “尖刺”（d）:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.jpg)
-Parts of the liquid crystallized after about 15 min. Encapsulated areas can be seen with crystallized objects of different sizes inside. It’s almost beautiful:
-部分液体在大约15分钟后结晶，可以看到封装的区域内有不同大小的结晶物。很漂亮:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11.jpg)
-Sometimes, these encapsulated crystallized areas (white arrow) contained objects with different light refraction properties to the particles surounding them (yellow arrow):
-这些封装的结晶区域（白色箭头）含有与周围的颗粒（黄色箭头）具有不同光折射特性的物体:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/12.jpg)
-Oval-shaped encapsulated crystallized structures can be seen:
-镜下还可以看到椭圆形封装的结晶化结构:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/13.jpg)
-These oval-shaped encapsulated crystallized structures have complex internal sub-structures with compartmentalization and particles of different sizes:
-这些椭圆形的封装结晶结构具有复杂的内部子结构，具有分室和不同大小的颗粒：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/14.jpg)
-One oval-shaped encapsulated crystallized structure was found attached to a fiber-like object (yellow arrow) with a diameter of about 10 µm:
-一个椭圆形封装的结晶结构附着在一个直径约为10微米的纤维状物体上（黄色箭头）:
-![](https://assets.gnews.org/wp-content/uploads/2021/10/15.jpg)
-**Conclusions (1):**
-
-- The Pfizer-BioNTech #Covidvaccine contains particles and objects of different sizes, shapes and light refraction properties
+众议员玛乔丽·泰勒·格林： 他们先兜售疾病([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))，之后他们又卖给你解药。
 
 
-- Complex aggregates and crystallization of these particles and objects were found
+
+> First they sell the disease, then they sell you the cure.
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 3, 2021](https://twitter.com/mtgreenee/status/1444811066266038273?ref_src=twsrc%5Etfw)
 
 
-**Conclusions (2):**
 
-- The nature (chemical properties, elemental composition) of these particles and objects is unknown
-
-
-- Careful interpretation of these images is required
+众议员迈克•沃尔兹： 我并没有因为这个国家让我的孩子在一个由社会主义者领导的国家或由 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 领导的世界里长大而险些死去。但随着这场消费狂潮，左翼正在带领美国走上这条道路。 正如玛格丽特•撒切尔(Margaret Thatcher)所说，“社会主义的问题是你最终会耗尽别人的钱。”这以前是行不通的，以后也永远行不通。
 
 
-- The objects could simply be the ingredients of the vaccine – or contaminants
+
+> I didn’t almost die for this country to have my children grow up in a country led by socialists or world led by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw). With this spending spree, the Left is taking America down that road. (1/2) [pic.twitter.com/vzGjMcWDwj](https://t.co/vzGjMcWDwj)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 3, 2021](https://twitter.com/michaelgwaltz/status/1444781061356068869?ref_src=twsrc%5Etfw)
 
 
-**Conclusions (3):**
 
-- There is an urgent need to further investigate the ingredients and purity of the #CovidVaccines
-
-
-**结论（1）**：
-
-- 辉瑞-生物技术公司的COVID疫苗含有不同大小、形状和光折射特性的颗粒和物体
+参议员瑞克·斯科特: [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 决心统治世界，它对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的侵略行径需要(我们)采取行动。 我们必须通过我的《防止台湾入侵法案》，以明确美国对台湾民主的承诺，并结束失败的战略模糊政策。 【转美国务院发言人推文：美国敦促北京停止在台海地区破坏稳定的行为。】
 
 
-- 发现这些颗粒和物体有复杂的聚集和结晶现象
+
+> Communist China is dead set on world domination & its increased aggression toward Taiwan demands action.
+> 
+> We must pass my Taiwan Invasion Prevention Act to make America’s commitment to democracy in Taiwan clear & end the failed policy of strategic ambiguity. [https://t.co/dOrZOY4QoA](https://t.co/dOrZOY4QoA)
+> — Rick Scott (@SenRickScott) [October 3, 2021](https://twitter.com/SenRickScott/status/1444688351324479491?ref_src=twsrc%5Etfw)
 
 
-**结论（2）**：
 
-- 这些颗粒和物体的性质（化学性质、元素组成）是未知的
-
-
-- 需要对这些图像进行仔细的解释
+参议员卢比奥： （我们）花了多年的努力，经常受主流媒体，工业精英，我们的盟友，甚至一些国会的人嘲笑，才将公共政策的重点放在像 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 这样的公司构成的威胁上。 但现在，华为的倒台正为美中关系的（未来）蓝图而服务。【转realclearpolitics卢比奥文，华为的倒台是美中关系的蓝图】
 
 
-- 这些物体可能只是疫苗的成分,也可能是污染物
+
+> It took years of effort,often to the ridicule of mainstream media, industry elites,our allies,& even some in Congress,to focus public policy on the threat posed by companies like Huawei.
+> 
+> But now Huawei's fall serves as a blueprint for U.S.-China Policy [https://t.co/L9JPsRjpkR](https://t.co/L9JPsRjpkR)
+> — Marco Rubio (@marcorubio) [October 3, 2021](https://twitter.com/marcorubio/status/1444641296711393287?ref_src=twsrc%5Etfw)
 
 
-**结论（3）**：
 
-- 迫切需要进一步调查COVID疫苗的成分和纯度
+国务院发言人内德普莱斯： 美国敦促北京停止它在 [#台湾海峡](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1?src=hashtag_click) 破坏稳定的行为。【转国务院，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加大对台军事压力破坏地区和平与稳定】
 
 
-[Source](https://t.co/cwYc7WDmHZ?amp=1)
+
+> The U.S. urges Beijing to cease its destabilizing behavior across the Taiwan Strait. [https://t.co/oo7EQFT4i7](https://t.co/oo7EQFT4i7)
+> — Ned Price (@StateDeptSpox) [October 3, 2021](https://twitter.com/StateDeptSpox/status/1444639839538884611?ref_src=twsrc%5Etfw)
