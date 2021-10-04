@@ -2,15 +2,43 @@
 ---
 
 
-## 2021年10月2日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1572636/)
+## 美国关注中共国在台湾附近的“挑衅性”军事行动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1572650/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/fighter-jets-china-taiwan-1.jpg)图片：来自网络
+**摘要翻译：**
 
-2015年，傅振华与郭文贵先生的秘密通话（上） 傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱
+在中共国战斗机和轰炸机对台湾防空区进行有史以来最大规模的入侵之后，美国周日猛烈抨击中共国的“挑衅性”和“破坏稳定”的军事活动。
 
-In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 1-2) Fu threatened Mr. Guo’s family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu’s overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu’s decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
+美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说：“美国非常关注中华人民共和国在台湾附近的挑衅性军事活动，这破坏稳定，有误判的风险，并破坏地区和平与稳定。”
 
-[【2021年10月2日】文贵先生盖特原文](https://gettr.com/post/pcye2oe3dd)
+中共政府在周五举行了迄今为止对台湾最大规模的空中武力示威来庆祝国庆节，用38架战机低飞掠过这片自治的民主岛屿上空，其中包括具有核打击能力的轰-6战略轰炸机。
 
-**喜联盟Gnews编辑部**
+台湾方面声称，随后在周六（中共） 以39架飞机创造了入侵新纪录，台湾指责中共政府“欺凌”和“破坏地区和平”。
+
+自2016年蔡英文总统当选以来，中共政府加大了对台北的压力，蔡英文表示，她将台湾岛视为“已经独立”而并非“一个中国”的一部分。
+
+在习近平的统治下，中共国战机几乎每天都会入侵台湾的防空识别区(ADIZ)。习声称台湾成为大陆的一部分是“不可避免的”。
+
+美国军方官员已经开始公开谈论担忧中共政府可能会采取以前所不可想象的行动并入侵台湾。
+
+保护台湾已成为华盛顿罕见的两党问题，越来越多的西方国家开始加入美国的“航行自由”演习，以反击中共国对南海和台湾海峡的主张。
+
+**简评：**
+
+根据我们爆料革命得到的消息，为了缓解中共国内部经济上和政治上的压力，为了分散世界各国对中共政权利用新冠病毒攻击全世界的注意力，习近平政府随时可能采取入侵台湾的行动。中共军机通过不断骚扰台湾领空来试探美国、日本及国际社会的反应，就是在为其入侵做准备。如果美国及国际社会不能采取有效的维护台湾的行动，而仅仅是发表一些声明和抗议，甚至是做一些形式上的演习，那中共政权占领台湾将不可避免。台湾作为中、美、日三国战略利益交汇地，如果被中共政权实际占领，日本、美国在亚太地区利益会很快被中共侵蚀，南海周边国家也将受到中共的霸凌。当这个邪恶的共产政权通过占领台湾，实习其军事扩张的目的之后，其继续危害世界的行为将更加难以控制。
+
+[新闻链接](https://www.barrons.com/news/us-concerned-by-provocative-chinese-military-action-near-taiwan-01633267807)
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*翻译/简评：叶知秋 | 校对：随波逐流*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

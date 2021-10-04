@@ -2,50 +2,15 @@
 ---
 
 
-## 纽约时报承认辉瑞疫苗在以色列注射后失败，引起感染激增
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1572590/)
+## 2021年10月2日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1572623/)
 
-作者：Ethan Huff
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-翻译：信心满满
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1.jpg)网络截图
-你知道武汉冠状病毒疫苗和大流行议程非常糟糕。纽约时报发出警告是感染上升由于疫苗承诺性。
+2015年，傅振华与郭文贵先生的秘密通话（下） 傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱
 
-泰晤士报承认，越多人打疫苗，会有更多人有阳性的福奇病毒，会在医院治疗。怎么会让疫苗来治疗Covid？
+In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 2-2) Fu threatened Mr. Guo’s family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu’s overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu’s decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
 
-当然，答案就是福奇流感疫苗不能治疗。实际上会引起抗体依赖增强，非自然免疫反应使中国病毒容易进入细胞。
+[【2021年10月2日】文贵先生盖特原文](https://gettr.com/post/pcwish0018)
 
-疫苗引起ADE会使人更容易因武汉病毒而生病，它根本对免疫建立没有作用。这与阻止中国病毒的需要完全背道而驰。
-
-泰晤士报解释以色列是一个接种疫苗最多的国家，现在每日新增感染飙升天文级别由于注射疫苗
-
-以色列冠状病毒专员萨尔曼，扎卡在最近议会委员会会上说“我们是在战争状态”。
-
-以色列曾是以武汉病毒疫苗安全和有效在世界上一个瞩目例子，现在它成为大流行不该做的一个警示。
-
-**第四波冠状病毒直接是由于大量疫苗注射**
-
-然而，最新借口指责免疫力减退，专家声称打过两针疫苗可以尽快接受加强注射。
-
-声称来自唐纳德川普疫苗快速实施计划是无法治疗“Delta”病毒。尽管好多人争辩打疫苗是引起病毒和传播的原因。
-
-疫苗在预防高感染Delta变种病毒可能不是非常有效。该病毒是以色列主要病毒版本。泰晤士报道，第一批接种疫苗是年纪大群体，他们免疫系统是比较弱在接种开始前。
-
-事实证明群体免疫有可能早就实现，没有疫苗注射，病毒在早几个月完全消失，生活回归正常。
-
-多亏了传播迅速行动，不过完全接种疫苗像野火般迅速变种传播，已经威胁并消除了流行病所取得的成就。
-
-主流媒体慢慢地了解疫苗真相，即使像纽约时报这样媒体还认为疫苗一开始有帮助。
-
-Ran Balcer 教授，是专家团主席，他给以色列政府建议关于冠状病毒问题，声称疫苗只能对原始病毒有用，但对今后变种病毒像Delta是无效。
-
-说实话，这里没有疫苗针对Delta，Balicer这样假科学家从不会告诉你这一点。你必须仔细阅读字里行间，有关疫苗骗局真相，会像病毒变异因为专家会为他们无法掌控事情而编织新的借口。
-
-像美国一样，以色列目前推行加强针作为抵御Delta变种病毒。一旦这些加强针进入人体，疫苗就会产生新的变种，官方就会再推行另外加强针。或许这是无法停止循环。
-
-为了解更多武汉疫苗的危险和无效，请到药物暴力网站查看。
-
-**资料来源**
-
-[New York Times admits the Pfizer vaccine is FAILING in Israel as post-injection infections skyrocket](https://dreddymd.com/2021/08/25/pfizer-vaccine-is-failing-in-israel-as-post-injection-infections-skyrocket/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**喜联盟Gnews编辑部**

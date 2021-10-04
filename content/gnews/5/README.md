@@ -2,32 +2,35 @@
 ---
 
 
-## 阿联酋前外交大臣称美国才是盟友!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572694/)
+## 有声|爆料革命开发全新即时通信软件,正在内测中!
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572744/)
 
-栏目记者/责任编辑：文龙
+配音：纽约香草山美食部 – 玫瑰园
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-今年2月卸任阿联酋外交大臣安瓦尔·加尔贾什（Anwar Gargash）目前担任阿联酋总统的外交顾问，上周六10月2日安瓦尔在阿布扎比出席一场国际论坛并讲话，称对中美两国不断紧张的关系表示担忧, 担心这是一场正在逼近的冷战。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1004-AM1-3.003.jpeg)
-对与中共和美国的关系，安瓦尔称，美国一直是阿联酋的亲密盟友。但中国对阿联酋石油的需求使其成为海湾地区最大的买家，中美的交恶以及贸易战，让包括阿联酋在内的中东石油国家面临选边站的两难选择。但安瓦尔也在讲话中暗示，对阿联酋来说,与中共可以成为贸易伙伴，但美国才是更为透明的战略盟友。
 
-通过文贵先生的爆料揭示，我们了解到阿联酋在中共外交事务中的重要性。 安瓦尔称”我们不想成为这场新冷战中的棋子”，但他没有意识到的是，所谓中美对峙新冷战，早已演变成为一场中共对世界的”病毒超限战” ，并已经杀死包括阿联酋在内的全球450万人，且还在通过疫苗试图荼毒更多人！
-(本文仅代表作者观点)
 
-参考链接：[阿联酋高官：我们都很担心一场逼近的冷战来临](https://www.rfi.fr/cn/中东/20211003-阿联酋高官-我们都很担心一场逼近的冷战来临)
+在日前的直播中, 新西兰老班长战友称,经过1年多的研发努力，一个属于我们爆料革命自己的即时通讯软件，已经开始进行内部实测阶段,即将公开发布!
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+因为绑定银行账号用于支付购物, 目前墙内即时通讯是微信一家独大, 而出于亲友交流需要, 微信在海外华人中也同样占据很大份额。但 腾讯作为中共白手套, 在言论管控和信息/咨询收集上早已完全 是政府管控模式 , 使得 真相的传播几无可能 ! 而灭共进程中一旦 防火墙被推倒, 或者微信真正被全球封杀, 被中共自行绞杀,  10几亿人想要知道真相, 想要有一个安全可靠, 没有关键词审核, 不会被封号, 甚至还可能会有结合G系列产品金融功能 的手机通信软件, 那就只有这款爆料革命开发的全新软件了,  市场前景不可限量  ! 而这样一款手机通信软件, 在灭共最后阶段所能发挥的效用,更将是核弹级的 !
 
-终审：FoxRina
-校正/发稿：我不在这里
+[文字版原文：爆料革命开发全新即时通信软件,正在内测中!](https://gnews.org/zh-hans/1571305/)
+
+音频处理：喜山必胜Maverick
+
+*发稿：*Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

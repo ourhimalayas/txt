@@ -2,46 +2,32 @@
 ---
 
 
-## FDA顾问将就莫德纳和强生疫苗加强针举行会议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1572673/)
+## 阿联酋前外交大臣称美国才是盟友!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572694/)
 
-- 编译：Lulumi
+栏目记者/责任编辑：文龙
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-15.png)在一张档案照片中可以看到一个莫德纳 COVID-19疫苗瓶。(Eugene Hoshiko/AP Photo)
+今年2月卸任阿联酋外交大臣安瓦尔·加尔贾什（Anwar Gargash）目前担任阿联酋总统的外交顾问，上周六10月2日安瓦尔在阿布扎比出席一场国际论坛并讲话，称对中美两国不断紧张的关系表示担忧, 担心这是一场正在逼近的冷战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1004-AM1-3.003.jpeg)
+对与中共和美国的关系，安瓦尔称，美国一直是阿联酋的亲密盟友。但中国对阿联酋石油的需求使其成为海湾地区最大的买家，中美的交恶以及贸易战，让包括阿联酋在内的中东石油国家面临选边站的两难选择。但安瓦尔也在讲话中暗示，对阿联酋来说,与中共可以成为贸易伙伴，但美国才是更为透明的战略盟友。
 
-据《大纪元时报》报道，疫苗和相关生物制品咨询委员会将于10月14日和10月15日举行会议，考虑是否为某些群体推荐莫德纳和强生公司的增强针。
+通过文贵先生的爆料揭示，我们了解到阿联酋在中共外交事务中的重要性。 安瓦尔称”我们不想成为这场新冷战中的棋子”，但他没有意识到的是，所谓中美对峙新冷战，早已演变成为一场中共对世界的”病毒超限战” ，并已经杀死包括阿联酋在内的全球450万人，且还在通过疫苗试图荼毒更多人！
+(本文仅代表作者观点)
 
-顾问们将在这两天听取演讲，包括来自两家公司的演讲。FDA在一份新闻稿中说，美国国家卫生研究院的国家过敏和传染病研究所的另一份报告，将概述关于混合和匹配加强针的数据，或在加强针中使用不同于初始方案的疫苗。
+参考链接：[阿联酋高官：我们都很担心一场逼近的冷战来临](https://www.rfi.fr/cn/中东/20211003-阿联酋高官-我们都很担心一场逼近的冷战来临)
 
-政府通常会采纳其小组的建议。拜登政府上个月宣布，它支持对每个接种过疫苗的人使用加强剂，而不管他们的健康状况或基本特征如何。然而，在FDA的两名高级官员宣布辞职后，FDA只授权辉瑞公司的COVID-19疫苗加强针在一些人群中使用。两名辞职的官员在临走时撰写了一篇论文，认为没有证据支持加强针的使用。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-该授权仅适用于接受辉瑞公司最初的两针方案的人。目前，不建议混合和匹配加强针。
+终审：FoxRina
+校正/发稿：我不在这里
 
-在FDA同意其顾问的意见后，关于加强针的紧张局势仍在继续。美国疾病控制和预防中心咨询委员会否决了为，数百万18岁的人推荐加强针的投票，但被该机构的主任罗谢尔·瓦伦斯基(Rochelle Walensky)博士推翻了**。**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-莫德纳和强生公司表示，科学数据支持允许更多剂量的疫苗。
-
-莫德纳公司在9月中旬发布了一项试验的部分结果，该公司称，人们从其第三剂疫苗所提供的更多保护中受益，即使该公司称，数据显示对住院和死亡的保护有所减弱。
-
-强生公司大约一周后说，一项三期临床试验的数据显示，其疫苗的第二针加强了对有症状的中共病毒的保护。
-
-FDA生物制品评估和研究中心主任彼得·马克斯(Peter Marks)博士在咨询委员会会议之前，再次表明了FDA对加强针的立场。
-
-他说：“现有的数据表明，在某些人群中对有症状的中共病毒的保护随着时间的推移开始减少，因此评估在不同人群中使用加强针的信息很重要。”
-
-**评论：**
-
-**医疗系统里有良知的人都被逼走了，留下来的都是邪恶势力的打手和帮凶。FDA顾问组跟疫苗公司举行加强针会议，只不过是一场狼狈为奸的表演。指望疫苗公司的报告里，出现疫苗导致心肌炎、心包炎、脑梗、心梗的数据，无异于与虎谋皮。所以疫苗公司为了利益数据一定会造假。FDA顺理成章的用这些假数据走完流程，将毒疫苗加强针的推广合法化。这种把戏新中国联邦开智的战友一看就明白，可悲的是被洗脑的无辜老百姓又会继续施打加强针，用他们的性命来滋养这群恶魔。这是一场正邪较量的战斗，我们要继续传播疫苗真相，直到邪恶被消灭。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-**新闻来源：**[大纪元时报](https://www.theepochtimes.com/us-drug-regulator-advisers-to-meet-on-moderna-johnson-johnson-covid-19-vaccine-boosters_4028996.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-03)(THE EPOCH TIMES) | 作者：Zachary Stieber|发布时间：2021年10月2日
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
