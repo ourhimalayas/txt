@@ -2,25 +2,52 @@
 ---
 
 
-## 工盟解散 香港亲民主势力没落
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571631/)
+## 众议员玛乔丽·泰勒·格林：他们先兜售疾病(中共病毒)，之后他们又卖给你解药
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1571741/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+众议员玛乔丽·泰勒·格林： 他们先兜售疾病([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))，之后他们又卖给你解药。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/G-1.jpg)swifttelecast.com
-日本共同社10月3日报道，香港主要的亲民主组织——香港职工会联盟 (Hong Kong Confederation of Trade Unions)周日决定解散，继香港民间人权阵线、香港教协、香港支联会等宣布解散，这是不到两周内的又一组织解散。随着最近事态的发展，香港主要的民主团体几乎被消灭，中共在不遗余力地清除香港捍卫民主的声音。
 
-据香港电台报道，香港工盟9月18日宣布启动解散程序，10月3日召开特别会员大会表决。成立于1990年的香港工盟代表了来自各行各业的93多个分支机构和14.5万名会员。10月3日，工会代表在新闻发布会上表示，工会成员已投票赞成解散工盟，并将这一决定归因于政治压力。
 
-9月25日，以纪念天安门广场镇压活动而闻名的香港支联会(Hong Kong Alliance in Support of Patriotic Democratic Movements of China)在其领导人因国家安全法被捕后投票解散。《国家安全法》将分裂、颠覆、恐怖主义和勾结外国势力的行为视为犯罪。在此前一天，一个支持民主的香港本土学生组织“贤学思政”宣布解散，此前四名成员被控阴谋煽动颠覆国家政权。另民间人权阵线和香港教协也已解散。
+> First they sell the disease, then they sell you the cure.
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 3, 2021](https://twitter.com/mtgreenee/status/1444811066266038273?ref_src=twsrc%5Etfw)
 
-香港工盟主席黄迺元9月18日就决定启动解散程序致歉。他指出组织存在的本身已是原罪，若继续运行将面对人身安全的威胁。同时反驳了对工盟煽动罢工的指控，指出罢工是基本法所保障的权利。
 
-在中共的高压政策下，曾经民主明灯的香港已经没落，亲民势力被打散，中共镇压消除了所有捍卫民主的声音。
 
-参考链接：
+众议员迈克•沃尔兹： 我并没有因为这个国家让我的孩子在一个由社会主义者领导的国家或由 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 领导的世界里长大而险些死去。但随着这场消费狂潮，左翼正在带领美国走上这条道路。 正如玛格丽特•撒切尔(Margaret Thatcher)所说，“社会主义的问题是你最终会耗尽别人的钱。”这以前是行不通的，以后也永远行不通。
 
-[https://english.kyodonews.net/news/2021/10/2519ad1c2338-hk-union-votes-to-disband-pro-democracy-forces-almost-annihilated.html](https://english.kyodonews.net/news/2021/10/2519ad1c2338-hk-union-votes-to-disband-pro-democracy-forces-almost-annihilated.html)
 
-[香港职工盟 启动解散程序 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210919-%E9%A6%99%E6%B8%AF%E8%81%8C%E5%B7%A5%E7%9B%9F-%E5%90%AF%E5%8A%A8%E8%A7%A3%E6%95%A3%E7%A8%8B%E5%BA%8F)
+
+> I didn’t almost die for this country to have my children grow up in a country led by socialists or world led by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw). With this spending spree, the Left is taking America down that road. (1/2) [pic.twitter.com/vzGjMcWDwj](https://t.co/vzGjMcWDwj)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 3, 2021](https://twitter.com/michaelgwaltz/status/1444781061356068869?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 决心统治世界，它对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的侵略行径需要(我们)采取行动。 我们必须通过我的《防止台湾入侵法案》，以明确美国对台湾民主的承诺，并结束失败的战略模糊政策。 【转美国务院发言人推文：美国敦促北京停止在台海地区破坏稳定的行为。】
+
+
+
+> Communist China is dead set on world domination & its increased aggression toward Taiwan demands action.
+> 
+> We must pass my Taiwan Invasion Prevention Act to make America’s commitment to democracy in Taiwan clear & end the failed policy of strategic ambiguity. [https://t.co/dOrZOY4QoA](https://t.co/dOrZOY4QoA)
+> — Rick Scott (@SenRickScott) [October 3, 2021](https://twitter.com/SenRickScott/status/1444688351324479491?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥： （我们）花了多年的努力，经常受主流媒体，工业精英，我们的盟友，甚至一些国会的人嘲笑，才将公共政策的重点放在像 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 这样的公司构成的威胁上。 但现在，华为的倒台正为美中关系的（未来）蓝图而服务。【转realclearpolitics卢比奥文，华为的倒台是美中关系的蓝图】
+
+
+
+> It took years of effort,often to the ridicule of mainstream media, industry elites,our allies,& even some in Congress,to focus public policy on the threat posed by companies like Huawei.
+> 
+> But now Huawei's fall serves as a blueprint for U.S.-China Policy [https://t.co/L9JPsRjpkR](https://t.co/L9JPsRjpkR)
+> — Marco Rubio (@marcorubio) [October 3, 2021](https://twitter.com/marcorubio/status/1444641296711393287?ref_src=twsrc%5Etfw)
+
+
+
+国务院发言人内德普莱斯： 美国敦促北京停止它在 [#台湾海峡](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1?src=hashtag_click) 破坏稳定的行为。【转国务院，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加大对台军事压力破坏地区和平与稳定】
+
+
+
+> The U.S. urges Beijing to cease its destabilizing behavior across the Taiwan Strait. [https://t.co/oo7EQFT4i7](https://t.co/oo7EQFT4i7)
+> — Ned Price (@StateDeptSpox) [October 3, 2021](https://twitter.com/StateDeptSpox/status/1444639839538884611?ref_src=twsrc%5Etfw)

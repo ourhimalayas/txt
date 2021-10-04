@@ -2,30 +2,63 @@
 ---
 
 
-## 爆料革命开发全新即时通信软件,正在内测中!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571305/)
+## 中共电力产业被几大家族操纵着
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-47.png)
-在日前的直播中, 新西兰老班长战友称,经过1年多的研发努力，一个属于我们爆料革命自己的即时通讯软件，已经开始进行内部实测阶段,即将公开发布!
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
+[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-1.jpeg)
+**郭文贵
+Miles Guo**
 
-因为绑定银行账号用于支付购物, 目前墙内即时通讯是微信一家独大, 而出于亲友交流需要, 微信在海外华人中也同样占据很大份额。但 腾讯作为中共白手套, 在言论管控和信息/咨询收集上早已完全 是政府管控模式 , 使得 真相的传播几无可能 ! 而灭共进程中一旦 防火墙被推倒, 或者微信真正被全球封杀, 被中共自行绞杀,  10几亿人想要知道真相, 想要有一个安全可靠, 没有关键词审核, 不会被封号, 甚至还可能会有结合G系列产品金融功能 的手机通信软件, 那就只有这款爆料革命开发的全新软件了,  市场前景不可限量  ! 而这样一款手机通信软件, 在灭共最后阶段所能发挥的效用,更将是核弹级的 !
+还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
+everyone don’t forget that there is another key point, who made the trillions of output value?
 
-(本文仅代表作者观点)
+习家没碰过电力产业的利润，这块蛋糕没碰
+The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
 
-参考链接：[https://twitter.com/RyuHayabusaX/status/1444561242710962180](https://twitter.com/RyuHayabusaX/status/1444561242710962180)
+主要是李鹏家里碰的，然后是温家有些碰的
+Li Peng’s family is major player on this, and then Wen’s family have some of it
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+然后是朱家有些碰的，这些钱都是被几大家族垄断着
+Then Zhu’s family have some of it, all of these money have controlled by several big families
 
-终审：文龍
-校正/发稿：谐趣园
+现在突然发现，老子这个钱从来没有（碰）
+Now suddenly he found out that I have never been touched these money
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+让你们老赚钱了，中国的煤矿，习家没碰
+Let you make money all the time, Xi’s family never touched China’s coal mines industry
+
+他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
+He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
+
+这有烟产业全是几个老杂毛搞的
+This smoking industry is all controlled by a few “old suckers”
+
+他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
+He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
+
+澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
+Australia is controlled by a few families, and also these old rascals who controlled Australia
+
+所有的人都是过去的江派和胡派之间的关系
+that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
+
+——————————————————
+
+Date:10/02/2021
+原视频标题:中共电力产业被几大家族操纵着
+The CCP’s power industry is controlled by several big families
+原视频日期：2021/09/29
+原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
+任务编号：KC142（2389）
+视频时间段 : 0:00-0:55
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,25 +2,23 @@
 ---
 
 
-## 通过显微镜可见疫苗接种者血液中存在凝血、受损的白细胞以及石墨烯
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1571535/)
+## 台湾国中生注射辉瑞疫苗后全身发抖畏寒急送医
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1571606/)
 
-从医三十年的女医生，讲述她在显微镜下观察疫苗接种者血液时发现，血液中存在凝血块、受损的白细胞、石墨烯以及其他不明物质。
-医生讲述显微镜下的疫苗接种者血液中的凝血、受损白细胞和石墨烯等
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+**撰稿：日本东京方舟农场 Kevin wang**
+
+据苹果新闻网10月1日报道，台湾桃园两名国中生在接种完辉瑞疫苗后身体不适，其中一名学生身体出现发抖、畏寒等现象，随后紧急送医。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211004003620.png)图片来自于网络
+
+据报道，当天上午，桃园市消防局分别接获2起国中生因施打BNT疫苗不适送医案件，分别为15岁梁姓国中生与14岁洪姓国中生。梁生上午10时许接种疫苗后，出现身体不适状况，第一时间已由芦竹分队救护车送往林口长庚医院观察。洪生则上午施打完疫苗后，在中午12时许出现全身发冷、畏寒颤抖等不适状况，由芦竹分队救护车送敏盛医院观察。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[打完BNT全身發抖畏寒　桃園光明國中2學生送醫觀察](https://tw.appledaily.com/local/20211001/26PIU3A7NVGX7E6ZYIGF4ETUT4/)
 
 * * *
 
-更多加拿大枫叶农场的频道，请关注：
-
-[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-
-[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-
-[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-
-[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
-
-[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
-*上传：文永*
+*编辑：文顺 校对：Ranting 发布：Ranting*

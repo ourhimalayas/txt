@@ -15,134 +15,134 @@
 
 ---
 
-### [我们一定会阻止朱立伦卖台湾,让共产党打下台湾也得不到](/content/gnews/1/README.md)
+### [2021年8月10日郭文贵先生午饭后赏花盖特全文字版](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [瑞士卫队成员不满教皇强制接种疫苗要求而辞职](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [潘多拉文件揭示了世界政要精英腐败的证据](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [联合国及欧洲官方欧洲议会开始研究和承认新中国联邦](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [多国取消强制疫苗政策 孙力军傅振华落马](/content/gnews/6/README.md)
- ` 纽约香草山MOS01`
-
-### [COVID-19试验性疫苗已违反了全部10条纽伦堡法典](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [众议员玛乔丽·泰勒·格林：他们先兜售疾病(中共病毒)，之后他们又卖给你解药](/content/gnews/8/README.md)
- ` 美国政要直译推`
-
-### [王岐山会搞垮经济与习近平鱼死网破么?](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [A Microscopy Analysis of a Pfizer-BioNTech Covidvaccine Sample.](/content/gnews/10/README.md)
- ` 中共病毒专栏`
-
-### [10/3/2021 七哥直播：直到2022年12月以前，请大家务必待在家里，尽量不出门、不旅行](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [2021年10月3日文贵先生大直播精华节选](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [恒大没有支付离岸债券的第二期款项](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [工盟解散 香港亲民主势力没落](/content/gnews/14/README.md)
- ` HimalayaRussia`
-
-### [德国联邦议院：有移民背景的议员越来越多](/content/gnews/15/README.md)
- ` 日本东京方舟农场`
-
-### [北京学区房有顶级学区降价400万也没人买(玫瑰看新闻2021/10/1第173期)](/content/gnews/16/README.md)
- ` 新西兰新联邦新闻摘要`
-
-### [台湾国中生注射辉瑞疫苗后全身发抖畏寒急送医](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [媒体抹杀伊维菌素是为了给“辉瑞菌素”上市打掩护(玫瑰看新闻2021/10/1第173期)](/content/gnews/18/README.md)
- ` 新西兰新联邦新闻摘要`
-
-### [【视频】疫苗副作用合集](/content/gnews/19/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [中共连续两日破纪录“扰台” 军事威胁升级](/content/gnews/20/README.md)
- ` 日本东京方舟农场`
-
-### [约翰逊议员称美没有FDA批准的中共病毒疫苗](/content/gnews/21/README.md)
- ` HimalayaRussia`
-
-### [巴黎市长：帮助维吾尔族人民的机构即将运营](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [通过显微镜可见疫苗接种者血液中存在凝血、受损的白细胞以及石墨烯](/content/gnews/23/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [【视频】中共是印尼屠杀华人肇因，未来海外华人处境更为凶险](/content/gnews/24/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [秘翻在线: 暴力和歧视让亚太裔美国选民更加团结](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫苗推进中的 &#8220;死因不明 &#8220;反射日本社会的黑暗（之三）](/content/gnews/26/README.md)
+### [中纪委宣布傅政华被调查](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚新南威尔士州将在 10 月 11 日前取消对接种人群的限制(玫瑰看新闻2021/09/28第172期)](/content/gnews/27/README.md)
- ` 新西兰新联邦新闻摘要`
+### [接种完中共病毒疫苗后的突破性感染正在德岛县蔓延](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/28/README.md)
- ` 纽约香草山MOS02`
-
-### [意大利：飞机在米兰市郊坠毁，8 名乘客全部遇难](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [病理学家问：COVID 疫苗导致器官损伤的调查在哪里？（2/2）](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [病理学家问：COVID 疫苗导致器官损伤的调查在哪里？(1/2)](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [委内瑞拉货币再次缩水六个零，同时推出数字货币](/content/gnews/32/README.md)
- ` 纽约香草山MOS02`
-
-### [DC每日热点1003](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [新研究警告称，中共国人口可能在未来45年内减少一半](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [圣何塞市正式就其反华政策和歧视历史向华人社区道歉](/content/gnews/35/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共电力产业被几大家族操纵着](/content/gnews/36/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [港币即将消失，人民币将变“扔冥币”。世界面临反华危机。](/content/gnews/37/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [破纪录39架共机扰台！台海战争一触即发](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
-
-### [康州将用国民警卫队取代不符疫苗规定的州雇员](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [爆料革命开发全新即时通信软件,正在内测中!](/content/gnews/40/README.md)
+### [中共启动开发数字人民币支付系统的试验项目](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [Fauci Emails:福奇资助了武汉最致命实验室的培训](/content/gnews/41/README.md)
- ` wenwu`
-
-### [10/3/21 香港快讯 职工盟特别会员大会 解散议案获大比数通过](/content/gnews/42/README.md)
- ` 英喜-粵語組`
-
-### [秘翻在线：川普要求美国法官强制推特恢复其账户](/content/gnews/43/README.md)
+### [注射辉瑞疫苗更有可能感染中共病毒](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [疫苗能否阻断中共病毒传播？美疾控中心主任与福奇各执一词](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [我们一定会阻止朱立伦卖台湾,让共产党打下台湾也得不到](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [瑞士卫队成员不满教皇强制接种疫苗要求而辞职](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [潘多拉文件揭示了世界政要精英腐败的证据](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [联合国及欧洲官方欧洲议会开始研究和承认新中国联邦](/content/gnews/11/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [多国取消强制疫苗政策 孙力军傅振华落马](/content/gnews/12/README.md)
+ ` 纽约香草山MOS01`
+
+### [COVID-19试验性疫苗已违反了全部10条纽伦堡法典](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [众议员玛乔丽·泰勒·格林：他们先兜售疾病(中共病毒)，之后他们又卖给你解药](/content/gnews/14/README.md)
+ ` 美国政要直译推`
+
+### [王岐山会搞垮经济与习近平鱼死网破么?](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [A Microscopy Analysis of a Pfizer-BioNTech Covidvaccine Sample.](/content/gnews/16/README.md)
+ ` 中共病毒专栏`
+
+### [10/3/2021 七哥直播：直到2022年12月以前，请大家务必待在家里，尽量不出门、不旅行](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2021年10月3日文贵先生大直播精华节选](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [恒大没有支付离岸债券的第二期款项](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [工盟解散 香港亲民主势力没落](/content/gnews/20/README.md)
+ ` HimalayaRussia`
+
+### [德国联邦议院：有移民背景的议员越来越多](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [北京学区房有顶级学区降价400万也没人买(玫瑰看新闻2021/10/1第173期)](/content/gnews/22/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [台湾国中生注射辉瑞疫苗后全身发抖畏寒急送医](/content/gnews/23/README.md)
+ ` 日本东京方舟农场`
+
+### [媒体抹杀伊维菌素是为了给“辉瑞菌素”上市打掩护(玫瑰看新闻2021/10/1第173期)](/content/gnews/24/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [【视频】疫苗副作用合集](/content/gnews/25/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [中共连续两日破纪录“扰台” 军事威胁升级](/content/gnews/26/README.md)
+ ` 日本东京方舟农场`
+
+### [约翰逊议员称美没有FDA批准的中共病毒疫苗](/content/gnews/27/README.md)
+ ` HimalayaRussia`
+
+### [巴黎市长：帮助维吾尔族人民的机构即将运营](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [通过显微镜可见疫苗接种者血液中存在凝血、受损的白细胞以及石墨烯](/content/gnews/29/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [【视频】中共是印尼屠杀华人肇因，未来海外华人处境更为凶险](/content/gnews/30/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [秘翻在线: 暴力和歧视让亚太裔美国选民更加团结](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [澳大利亚新南威尔士州将在 10 月 11 日前取消对接种人群的限制(玫瑰看新闻2021/09/28第172期)](/content/gnews/32/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/33/README.md)
+ ` 纽约香草山MOS02`
+
+### [病理学家问：COVID 疫苗导致器官损伤的调查在哪里？（2/2）](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [病理学家问：COVID 疫苗导致器官损伤的调查在哪里？(1/2)](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [委内瑞拉货币再次缩水六个零，同时推出数字货币](/content/gnews/36/README.md)
+ ` 纽约香草山MOS02`
+
+### [DC每日热点1003](/content/gnews/37/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新研究警告称，中共国人口可能在未来45年内减少一半](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [圣何塞市正式就其反华政策和歧视历史向华人社区道歉](/content/gnews/39/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共电力产业被几大家族操纵着](/content/gnews/40/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [港币即将消失，人民币将变“扔冥币”。世界面临反华危机。](/content/gnews/41/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [康州将用国民警卫队取代不符疫苗规定的州雇员](/content/gnews/42/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [Fauci Emails:福奇资助了武汉最致命实验室的培训](/content/gnews/43/README.md)
+ ` wenwu`
 
 ### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/44/README.md)
  ` 纽约香草山MOS01`
