@@ -2,43 +2,29 @@
 ---
 
 
-## 中共国的电力紧缩导致集装箱航运价格暴跌
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1571479/)
+## 约翰逊议员称美没有FDA批准的中共病毒疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571540/)
 
-作者：纽约香草山农场 – 四季
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/J.jpg)yahoo.com
+罗恩·约翰逊（Ron Johnson）参议员在参议院质疑中共病毒疫苗的有效性后【1】，又曝出重大新闻，美国没有FDA正式批准的中共病毒疫苗。这对前些日子主流媒体火爆炒作的辉瑞疫苗获得了FDA批准的假新闻予以了澄清，约翰逊参议员亲自写信质询了FDA，得到的回复是，他们只延长了辉瑞疫苗在美国的紧急使用授权。
 
+看看《福克斯新闻》10月2日对参议员的采访，“参议员罗恩·约翰逊：美国没有FDA正式批准的中共病毒疫苗”，副标题透露，约翰逊解释说，在美国没有食品和药物管理局（FDA）批准的Comirnaty版本（疫苗）。【2】
 
+全文如下：
 
+威斯康辛州共和党参议员罗恩·约翰逊（Ron Johnson）在“福克斯新闻黄金时间”（Fox News Primetime）上披露，还没有一种真正由FDA批准的疫苗。
 
+参议员罗恩·约翰逊：在美国，我们正在使用的疫苗还没有一种由FDA正式批准，FDA玩起了诱骗的游戏。他们承认他们批准的是辉瑞疫苗的Comirnaty版本，美国没有的。三天后，我给他们发了一封信，问他们“你们在做什么？” 他们所做的是延长了辉瑞疫苗在美国的紧急使用授权，30多天后了，他们还没有问这个非常简单的问题。如果你说辉瑞疫苗和Comirnaty是一样的，为什么你不提供FDA的批准文件呢？所以，没有FDA正式批准的疫苗。当然，他们宣布这个消息是为了让他们能够通过这些强制措施，让人们真地认为”哦，好吧，现在这些东西是FDA批准的。” 但它们不是，也许它们应该是，但FDA没有告诉我为什么。
 
-据[零对冲](https://www.zerohedge.com/commodities/dip-shipping-rates-end-nightmare-or-just-eye-hurricane)10月2日报道，当即期海运集装箱运价今年已达到历史高点之际，本周从中共国到美国西海岸的40英尺集装箱价格下降，从15,000美元暴跌到只有8000美元。对于同一个集装箱，中共国到美国东海岸的现货价格从20,000美元下降到15,000美元左右。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1114-1.png)（图片来源：零对冲）
-*来自中共发改委，各地方新闻及彭博新能源财经的注释：如果地方官方新闻稿披露停电的主要原因是煤炭短缺或煤炭价格昂贵，则该省被标记为黑色，如果一个省只限制排放密集型产业的电力消耗，或指定其电力抑制的目的是为了达到能源强度目标，该省被标记为红色。同时面临本地短缺和可再生能源低产出的省份被标记为蓝色。*
+（原文完）
 
-停电已经对企业产生了直接影响。世界上最大的iPhone组装商以及苹果和特斯拉的主要供应商富士康（Foxconn），本周早些时候已经停产，另一家苹果公司的供应商欣兴电子（Unimicron）也暂停运营。还有无数关于其他能源密集型企业暂停运营的报道。
+是的，FDA偷换了概念，正式批准了一个不存在的Comirnaty版本，延长了目前在使用的实验性辉瑞疫苗的紧急使用授权，然后宣称被正式批准的Comirnaty版本供应量不足，请大家继续使用实验性的疫苗。结果疫苗生产厂家、主流媒体大肆渲染疫苗被正式批准了，掩盖了正在施打的疫苗的真相，让强制接种疫苗有了冠冕堂皇的理由。看上去FDA对参议员“为什么”的质询没有明确给出解释，放任他们炒作和强推疫苗，FDA等于给以强推疫苗接种的杀人者递了刀子。这种不正常的操作更说明背后必有阴谋，正道主义者必须坚持不懈地给予揭露，战友们，加油！
 
-显然，中共国的电力紧缩对经济增长产生了相当大的影响。电力短缺不仅影响民众的生活，同时造成对其制造业基地的冲击，使航运费率可能会因中共国经济的缓慢增长而停滞。
+有关链接：
 
-（本文仅代表作者观点）
+【1】[https://gnews.org/zh-hans/1565181/](https://gnews.org/zh-hans/1565181/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+【2】[https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine](https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine)

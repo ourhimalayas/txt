@@ -2,30 +2,52 @@
 ---
 
 
-## 中共连续两日破纪录“扰台” 军事威胁升级
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1571550/)
+## 众议员玛乔丽·泰勒·格林：他们先兜售疾病(中共病毒)，之后他们又卖给你解药
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1571741/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+众议员玛乔丽·泰勒·格林： 他们先兜售疾病([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click))，之后他们又卖给你解药。
 
-据美国之音10月3日报道，中共国解放军军机扰台数量周六再创纪录，多达39架次不同机型进入台湾西南防空识别区。就在一天前，中共出动了前所未有的38架次军机进入同一空域。
 
-台湾国防部2日发布的军事动态消息称，中共解放军军机星期六白天再次进入台湾西南防空识别区，数量比一天前更多，包括14架次歼-16，4架次苏恺-30，2架次运-8反潜机；星期六夜间又有12架次歼-16，6架次苏恺-30，1架空警-500预警机。
-而在一天前的中共10月1日国庆当天，解放军派出38架次军机进入台湾西南防空识别区，对台湾展示其武力的规模之大，前所未有。台湾空军依旧是广播驱离和追踪监视。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211004002741.png)图片来自于网络
+> First they sell the disease, then they sell you the cure.
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [October 3, 2021](https://twitter.com/mtgreenee/status/1444811066266038273?ref_src=twsrc%5Etfw)
 
-据台湾国防部信息，对于中共军机两次进入台湾防空识别区，国军空军均派遣空中巡逻兵力应对，广播驱离，防空飞弹追踪监控。
 
-台湾行政院长苏贞昌10月2日对媒体表示，中共一直穷兵黩武，破坏区域和平，有很多“鸭霸行为”。他说，中共的做法“已经越来越被世界唾弃”。
 
-面对台海紧张形势不断升高，美国国防部副部长希克斯10月1日表示，美国对中共国快速提升的能力感到担忧，正密切关注中共国对区域、对台湾的军事威胁，并将一如既往信守对台湾的承诺，帮助台湾提升其自卫能力。她强调，对于中共国咄咄逼人的态势，美国拥有强大能力来遏制任何此类潜在威胁。
+众议员迈克•沃尔兹： 我并没有因为这个国家让我的孩子在一个由社会主义者领导的国家或由 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 领导的世界里长大而险些死去。但随着这场消费狂潮，左翼正在带领美国走上这条道路。 正如玛格丽特•撒切尔(Margaret Thatcher)所说，“社会主义的问题是你最终会耗尽别人的钱。”这以前是行不通的，以后也永远行不通。
 
-*注：本文仅代表作者观点，与 Gnews无关*
 
-*参考链接：*
 
-[军事威胁升级 中国扰台军机数量再创纪录](https://www.voachinese.com/a/unprecedented-number-of-pla-aircraft-incursion-into-taiwan-adz-20211002/6255156.html)
+> I didn’t almost die for this country to have my children grow up in a country led by socialists or world led by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw). With this spending spree, the Left is taking America down that road. (1/2) [pic.twitter.com/vzGjMcWDwj](https://t.co/vzGjMcWDwj)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 3, 2021](https://twitter.com/michaelgwaltz/status/1444781061356068869?ref_src=twsrc%5Etfw)
 
-* * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+
+参议员瑞克·斯科特: [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 决心统治世界，它对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的侵略行径需要(我们)采取行动。 我们必须通过我的《防止台湾入侵法案》，以明确美国对台湾民主的承诺，并结束失败的战略模糊政策。 【转美国务院发言人推文：美国敦促北京停止在台海地区破坏稳定的行为。】
+
+
+
+> Communist China is dead set on world domination & its increased aggression toward Taiwan demands action.
+> 
+> We must pass my Taiwan Invasion Prevention Act to make America’s commitment to democracy in Taiwan clear & end the failed policy of strategic ambiguity. [https://t.co/dOrZOY4QoA](https://t.co/dOrZOY4QoA)
+> — Rick Scott (@SenRickScott) [October 3, 2021](https://twitter.com/SenRickScott/status/1444688351324479491?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥： （我们）花了多年的努力，经常受主流媒体，工业精英，我们的盟友，甚至一些国会的人嘲笑，才将公共政策的重点放在像 [#华为](https://twitter.com/hashtag/%E5%8D%8E%E4%B8%BA?src=hashtag_click) 这样的公司构成的威胁上。 但现在，华为的倒台正为美中关系的（未来）蓝图而服务。【转realclearpolitics卢比奥文，华为的倒台是美中关系的蓝图】
+
+
+
+> It took years of effort,often to the ridicule of mainstream media, industry elites,our allies,& even some in Congress,to focus public policy on the threat posed by companies like Huawei.
+> 
+> But now Huawei's fall serves as a blueprint for U.S.-China Policy [https://t.co/L9JPsRjpkR](https://t.co/L9JPsRjpkR)
+> — Marco Rubio (@marcorubio) [October 3, 2021](https://twitter.com/marcorubio/status/1444641296711393287?ref_src=twsrc%5Etfw)
+
+
+
+国务院发言人内德普莱斯： 美国敦促北京停止它在 [#台湾海峡](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1?src=hashtag_click) 破坏稳定的行为。【转国务院，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加大对台军事压力破坏地区和平与稳定】
+
+
+
+> The U.S. urges Beijing to cease its destabilizing behavior across the Taiwan Strait. [https://t.co/oo7EQFT4i7](https://t.co/oo7EQFT4i7)
+> — Ned Price (@StateDeptSpox) [October 3, 2021](https://twitter.com/StateDeptSpox/status/1444639839538884611?ref_src=twsrc%5Etfw)

@@ -2,22 +2,29 @@
 ---
 
 
-## 潘多拉文件揭示了世界政要精英腐败的证据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571789/)
+## 2021年8月10日郭文贵先生午饭后赏花盖特全文字版
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1571870/)
 
-#### 编译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-14.jpg)图片来源：网络截图
-10月4日据联合通讯社报道，国际调查记者联合会周日发布的名叫潘多拉文件（Pandora Papers）涉及来自117个国家150家媒体的600名记者,其发现揭示了精英和腐败者之前隐藏的交易，以及他们如何使用离岸账户来保护价值数万亿美元的资产。
+盖特连接：[https://gettr.com/post/p784ug](https://gettr.com/post/p784ug)
 
-潘多拉报告是2016年发布的一个名为巴拿马文件（Panama Papers）的类似项目的后续，该项目由同一新闻集团汇编。
+亲爱的兄弟姐妹们……你说花和我．那个最好看呢？
 
-最新调查调查了英属维尔京群岛、塞舌尔、香港和伯利兹等熟悉的离岸避风港注册的账户。但一些秘密账户也分散在美国设立的信托机构中，包括南达科他州的81个和佛罗里达州的37个。
+\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-例如，调查发现，顾问们帮助约旦国王阿卜杜拉二世从1995年到2017年成立了至少三十多家空壳公司，帮助君主在美国和英国购买了价值超过106亿美元的14栋房屋。其中一处是2017年通过英属维尔京群岛公司购买的23亿美元的加州海景地产。这些顾问被确定为瑞士的英国会计师和英属维尔京群岛的律师。
+大家你说这花，你说七哥和这花是花儿好看呢还是七哥好看呢？我就喜欢这花，你说咋弄啊，我中午把馒头全吃完了、菜全吃完了，然后现在赏花呢，然后抽雪茄呢，太腐败了吧！穷人只能吃点草，然后呢还有这样的花儿，哇！哎哟，还有蜜蜂欸！哇~，太漂亮了！
 
-又如，调查发现，2009年，捷克总理安德烈·巴比斯向空壳公司投入了22亿美元，以购买戛纳附近法国穆金斯山顶村庄的城堡房产。根据新闻集团的捷克合作伙伴Investigace.cz获得的文件，空壳公司和城堡没有在巴比斯要求的资产申报中披露。他间接拥有的房地产集团于2018年收购了拥有城堡的摩纳哥公司。但他把这些所有的腐败归咎于其选举前的政治陷害，而且都合法。
+编辑整理及发布：黎明之前
 
-几乎所有这些精英和腐败者的勾当的回复都是以在法律范围内为由，从而说明并没有任何错误的行为。但哪些人是法律的制定者呢？
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**原文链接：**[Leaked records open a ‘Pandora’ box of financial secrets](https://apnews.com/article/entertainment-business-religion-media-jordan-67b2674fc44fa543df49dfc8f52e29cd)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

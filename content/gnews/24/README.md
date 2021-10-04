@@ -2,19 +2,23 @@
 ---
 
 
-## 媒体抹杀伊维菌素是为了给“辉瑞菌素”上市打掩护(玫瑰看新闻2021/10/1第173期)
-` 新西兰新联邦新闻摘要` [轉載自GNews](https://gnews.org/zh-hans/1571604/)
+## 多国取消强制疫苗政策 孙力军傅振华落马
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571761/)
 
-本期焦点新闻摘要：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-国际热点新闻
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-CN.png)
+文章仅代表作者本人观点，与Gnews无关
 
-1.媒体抹杀伊维菌素是为了给“辉瑞菌素”上市打掩护
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-2.德国如三党联盟对华政策将有所强硬
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-3.北京坐实人质外交在华外商度日如年
-
-4.恒大危机中共国央行出手维持金融市场平静
-
-5.中共国十一：香港出动八千多警力部署各区维稳
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

@@ -2,62 +2,73 @@
 ---
 
 
-## 中共电力产业被几大家族操纵着
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
+## 圣何塞市正式就其反华政策和歧视历史向华人社区道歉
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571397/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
-[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
+**评论**： *在文贵先生警示的新一轮排华反华风险来临前， 圣何塞市的道歉算是一点点慰藉，希望在新中国联邦的带领下，未来华人能真正安全的，公平公正的参与所在国的社会政治，经济活动。*
 
-**郭文贵
-Miles Guo**
+据《贝城新闻》记者Jana Kadah ，2021 年 9 月 30 日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2379.png)
+“这是圣何塞市议会就根本性的不公正和歧视行为向中国移民及其后裔道歉的决议，”市长萨姆·里卡尔多(Sam Liccardo) 于周三向聚集在市中心的数十名华裔美国人、盟友和公职人员宣读。
 
-还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
-everyone don’t forget that there is another key point, who made the trillions of output value?
+该决议于周二晚上由市议会一致通过，继续“寻求宽恕并承诺纠正过去的政策和不当行为。”
 
-习家没碰过电力产业的利润，这块蛋糕没碰
-The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
+周三，里卡尔多在棕榈树广场 (Circle of Palms Plaza) 大声宣读了整个决议——该市的一个前唐人街被一名纵火犯烧毁。
 
-主要是李鹏家里碰的，然后是温家有些碰的
-Li Peng’s family is major player on this, and then Wen’s family have some of it
+由于该国的反华罪行记录很长，所以花了很长时间通读该决议。
 
-然后是朱家有些碰的，这些钱都是被几大家族垄断着
-Then Zhu’s family have some of it, all of these money have controlled by several big families
+该决议由市议员劳尔·佩拉雷斯 (Raul Peralez)、该市种族平等办公室和圣何塞华人社区成员起草。
 
-现在突然发现，老子这个钱从来没有（碰）
-Now suddenly he found out that I have never been touched these money
+它详述了自 1849 年华裔美国人开始移民美国以来，圣何塞市议会、州和联邦政府以及居民所造成的无数错误。
 
-让你们老赚钱了，中国的煤矿，习家没碰
-Let you make money all the time, Xi’s family never touched China’s coal mines industry
+当令人发指的行为清单被大声朗读时，与会者失望和痛苦地摇摇头，许多人流下了眼泪。
 
-他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
-He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
+与美国历史上许多被排斥的群体一样，华裔美国人为当地社区和经济做出了巨大贡献，但遭到政府和社会各方面的攻击和歧视。
 
-这有烟产业全是几个老杂毛搞的
-This smoking industry is all controlled by a few “old suckers”
+当时的反亚裔仇恨非常猖獗，尤其是在加利福尼亚州，有 77% 的中国移民居住在那里，而在圣何塞——五个不同的唐人街的所在地——都以不同的方式被击倒。该市最后一个唐人街于 1931 年关闭。
 
-他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
-He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
+可以说，体现当时种族主义的最公然罪行是 1887 年 5 月 4 日蓄意纵火，将市场街唐人街烧成灰烬——导致 1400 名居民流离失所，并摧毁了几所房屋和当地企业。
 
-澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
-Australia is controlled by a few families, and also these old rascals who controlled Australia
+火灾发生仅几周后，市议会一致宣布市场街唐人街为公害，并投票反对建设新唐人街，称其“对附近的私人财产造成伤害，危害所有公民的健康和福利”。在其附近生活和拥有房屋，对公共和私人道德、和平、安静和良好秩序等构成长期威胁，”1887 年 6 月的城市决议写道。
 
-所有的人都是过去的江派和胡派之间的关系
-that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
+“我的祖父是市场街唐人街的居民，因火灾而成为难民，”当地历史学家、《美国圣何塞唐人街》的作者康妮·杨卢（Connie Young Lu）说。
 
-——————————————————
+她是众多因歧视行为而承受代际痛苦的华裔美国人之一。在周三的仪式上，她回顾了她父亲分享的故事，她的父亲在海因伦维尔唐人街长大，该唐人街于 1888 年取代了市场街唐人街。
 
-Date:10/02/2021
-原视频标题:中共电力产业被几大家族操纵着
-The CCP’s power industry is controlled by several big families
-原视频日期：2021/09/29
-原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
-任务编号：KC142（2389）
-视频时间段 : 0:00-0:55
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+“我想唐人街市场街的火灾将是（被记住的）第一个踏脚石，因为灰烬中是不会被驱逐的新社区，”卢（ Lu）说。“这是结束，也是开始。”
+
+卢（ Lu）和许多其他演讲者评论了南湾的华裔美国人社区的韧性，他们经历了 1882 年严厉的华裔美国人排斥法案，烧毁了第 2 街和圣克拉拉街的第一卫理公会教堂，这些教堂教主日学1869年的中国移民；1886年在圣何塞举行的反华大会；摧毁了所有五个唐人街，以及许多其他仇恨犯罪。
+
+即使在 1943 年废除《排华法案》时，华裔美国人也被系统地排除在社会的许多方面之外。
+
+“在我成长的过程中，我的家人和其他中国人一样，在二战期间这里不受欢迎，当时中国实际上是美国的盟友，”中国历史文化项目的联合创始人 Gerrye Kee Wong 说。第四代美国人。
+
+1949 年，尽管华人社区呼吁将其保留为历史地标，但吴圣贡庙也被拆除。
+
+最近，在 COVID-19 之后，中国和其他亚裔美国人遭受了暴力反亚裔仇恨犯罪的增加。事实上，根据 Stop AAPI Hate 组织收集的数据，在大流行的一年多时间里，针对亚洲人口的仇恨犯罪事件增加了一倍。
+
+Wong 的孙子 Braden Wong 是第六代美国人，他说他有朋友遭受过这种仇恨犯罪。
+
+这尤其是为什么他为圣何塞采取这一行动感到自豪，并感谢里卡尔多大声朗读决议。
+
+“这让政府和人民之间变得非常透明，并使公众了解这些罪行，”布雷登·黄说。
+
+他还赞赏该决议指出中国作为发展圣克拉拉县的主要劳动力做出的贡献，尤其是在 1870 年代的圣何塞铁路和圣克鲁斯-蒙特雷线。
+
+“直到我上大学，我才了解很多这段历史，这是通过和我的祖母一起工作并参加她的活动，”他继续道。“下一步真的是继续这种教育并让人们意识到这一点。”
+
+Wong 和在正式道歉仪式上发言的州议员 Evan Low（D-San Jose）指出，正在通过该州的民族研究课程立法是纠正历史错误的下一步。
+
+仪式以中国传统表演结束。
+
+“我代表那些打了好仗并继续这样做的人，我想对圣何塞市说，接受道歉并接受解决方案，”卢说。
+
+原文链接：[https://www.sfgate.com/news/bayarea/article/City-Formally-Apologizes-To-Chinese-Community-For-16498625.php](https://www.sfgate.com/news/bayarea/article/City-Formally-Apologizes-To-Chinese-Community-For-16498625.php)
+
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–心照
+评论：洛杉矶盘古农场–Raul
+编辑：洛杉矶盘古农场–心照
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
