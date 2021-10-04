@@ -2,7 +2,12 @@
 ---
 
 
-## 10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1571786/)
+## 中纪委宣布傅政华被调查
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1571840/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1004.png)
+（文章仅代表作者个人观点，与GNEWS无关）
+
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
