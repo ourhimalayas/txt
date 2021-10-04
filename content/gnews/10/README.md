@@ -2,16 +2,16 @@
 ---
 
 
-## 有声|中共国的电力紧缩导致集装箱航运价格暴跌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572100/)
+## 有声|加州所有在校学生恐被安排分阶段接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572145/)
 
 配音：纽约香草山美食部 – 玫瑰园
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-据[零对冲](https://www.zerohedge.com/commodities/dip-shipping-rates-end-nightmare-or-just-eye-hurricane)10月2日报道，当即期海运集装箱运价今年已达到历史高点之际，本周从中共国到美国西海岸的40英尺集装箱价格下降，从15,000美元暴跌到只有8000美元。对于同一个集装箱，中共国到美国东海岸的现货价格从20,000美元下降到15,000美元左右。
+周五，加州州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。加州成为全美第一个，宣布要求所有在校学生接种新冠疫苗的州。
 
-文字版原文：[中共国的电力紧缩导致集装箱航运价格暴跌](https://gnews.org/zh-hans/1571479/)
+文字版原文：[加州所有在校学生恐被安排分阶段接种疫苗](https://gnews.org/zh-hans/1571261/)
 
 音频处理：喜山必胜Maverick
 发稿：孤独的小生（文留）

@@ -2,10 +2,10 @@
 ---
 
 
-## 接种完中共病毒疫苗后的突破性感染正在德岛县蔓延
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1571831/)
+## 中纪委宣布傅政华被调查
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1571840/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10._4-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1004.png)
 （文章仅代表作者个人观点，与GNEWS无关）
 
 *编辑：东京樱花团/简报小组*

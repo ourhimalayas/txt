@@ -15,131 +15,131 @@
 
 ---
 
-### [郭文贵先生2018年2月15日爆料傅政华](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭文贵先生2017年10月14日爆料傅政华](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [针下亡魂｜印度 31 岁孕妇接种疫苗10日后死亡](/content/gnews/3/README.md)
+### [疫苗灾情｜美国 16 岁少女接种疫苗后神经损伤](/content/gnews/1/README.md)
  ` G&#124;News TAIWAN`
 
-### [纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗](/content/gnews/4/README.md)
+### [银河快讯：日产欲将西班牙工厂出售给中共；日本和美国海岸警卫队联合训练](/content/gnews/2/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/3/README.md)
+ ` wenwu`
+
+### [郭文贵先生2018年2月15日爆料傅政华](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [郭文贵先生2017年10月14日爆料傅政华](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [针下亡魂｜印度 31 岁孕妇接种疫苗10日后死亡](/content/gnews/6/README.md)
+ ` G&#124;News TAIWAN`
+
+### [纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [印尼大屠杀是如何发生的?](/content/gnews/5/README.md)
+### [印尼大屠杀是如何发生的?](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [岸田文雄当选日本第100任首相](/content/gnews/6/README.md)
+### [岸田文雄当选日本第100任首相](/content/gnews/9/README.md)
  ` 首尔天池农场`
 
-### [有声|加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/7/README.md)
+### [有声|加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话](/content/gnews/8/README.md)
+### [有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [支持疫苗护照副州长辞职，新州通往自由之门即将打开](/content/gnews/9/README.md)
+### [支持疫苗护照副州长辞职，新州通往自由之门即将打开](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/10/README.md)
+### [有声|中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [秘翻在线：菅义伟内阁会议确定内阁成员总辞职](/content/gnews/11/README.md)
+### [秘翻在线：菅义伟内阁会议确定内阁成员总辞职](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [长津湖战役“冰雕连”的真相](/content/gnews/12/README.md)
+### [长津湖战役“冰雕连”的真相](/content/gnews/15/README.md)
  ` 滴水穿石`
 
-### [丹尼尔·安德鲁斯必须辞职](/content/gnews/13/README.md)
+### [丹尼尔·安德鲁斯必须辞职](/content/gnews/16/README.md)
  ` 走进澳洲`
 
-### [日本8县出台条例，禁止歧视未接种疫苗者](/content/gnews/14/README.md)
+### [日本8县出台条例，禁止歧视未接种疫苗者](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/15/README.md)
+### [墙内要闻汇编](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全网最全中国停限电的真正原因](/content/gnews/16/README.md)
+### [全网最全中国停限电的真正原因](/content/gnews/19/README.md)
  ` YALUN 亚伦`
 
-### [消灭病毒和毒疫苗的方法就是先消灭中共](/content/gnews/17/README.md)
+### [消灭病毒和毒疫苗的方法就是先消灭中共](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [应朝鲜要求 朝韩双方重启热线](/content/gnews/18/README.md)
+### [应朝鲜要求 朝韩双方重启热线](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G时评：我是飞扬跋扈的尘，你是现实安稳的土](/content/gnews/19/README.md)
+### [G时评：我是飞扬跋扈的尘，你是现实安稳的土](/content/gnews/22/README.md)
  ` GISELLE`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（三）](/content/gnews/20/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（三）](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [国际要闻汇编](/content/gnews/21/README.md)
+### [国际要闻汇编](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [强制安装“国家防诈中心App”的背后猫腻](/content/gnews/22/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [雅典娜时报-第071期](/content/gnews/23/README.md)
+### [雅典娜时报-第071期](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭先生直播爆彩蛋,欧盟联合国在做承认新中国联邦的准备!](/content/gnews/24/README.md)
+### [郭先生直播爆彩蛋,欧盟联合国在做承认新中国联邦的准备!](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [巴西总统警告说，疫苗护照终将导致人口控制](/content/gnews/25/README.md)
+### [巴西总统警告说，疫苗护照终将导致人口控制](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [正道主义是人类新文明的发展方向](/content/gnews/26/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [他们在隐瞒什么？](/content/gnews/27/README.md)
+### [他们在隐瞒什么？](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [梵蒂冈强推绿色通行证，3名瑞士卫兵辞职](/content/gnews/28/README.md)
+### [梵蒂冈强推绿色通行证，3名瑞士卫兵辞职](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中纪委宣布傅政华被调查](/content/gnews/29/README.md)
+### [中纪委宣布傅政华被调查](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [接种完中共病毒疫苗后的突破性感染正在德岛县蔓延](/content/gnews/30/README.md)
+### [接种完中共病毒疫苗后的突破性感染正在德岛县蔓延](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们一定会阻止朱立伦卖台湾,让共产党打下台湾也得不到](/content/gnews/31/README.md)
+### [我们一定会阻止朱立伦卖台湾,让共产党打下台湾也得不到](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华](/content/gnews/32/README.md)
+### [10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共持续派谴战机扰台 美国表示担忧](/content/gnews/33/README.md)
+### [中共持续派谴战机扰台 美国表示担忧](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [香港工会联合会因国安法被迫解散](/content/gnews/34/README.md)
+### [香港工会联合会因国安法被迫解散](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [法国媒体报道了关于郭文贵先生提出的“疫苗灾难”](/content/gnews/35/README.md)
+### [法国媒体报道了关于郭文贵先生提出的“疫苗灾难”](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [中共国一组新闻简讯](/content/gnews/36/README.md)
+### [中共国一组新闻简讯](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [众议员玛乔丽·泰勒·格林：他们先兜售疾病(中共病毒)，之后他们又卖给你解药](/content/gnews/37/README.md)
+### [众议员玛乔丽·泰勒·格林：他们先兜售疾病(中共病毒)，之后他们又卖给你解药](/content/gnews/38/README.md)
  ` 美国政要直译推`
 
-### [恒大没有支付离岸债券的第二期款项](/content/gnews/38/README.md)
+### [恒大没有支付离岸债券的第二期款项](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [约翰逊议员称美没有FDA批准的中共病毒疫苗](/content/gnews/39/README.md)
+### [约翰逊议员称美没有FDA批准的中共病毒疫苗](/content/gnews/40/README.md)
  ` HimalayaRussia`
 
-### [秘翻在线: 暴力和歧视让亚太裔美国选民更加团结](/content/gnews/40/README.md)
+### [秘翻在线: 暴力和歧视让亚太裔美国选民更加团结](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/41/README.md)
+### [中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/42/README.md)
  ` 纽约香草山MOS02`
-
-### [病理学家问：COVID 疫苗导致器官损伤的调查在哪里？（2/2）](/content/gnews/42/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [中共中纪委公告：原司法部长傅政华被立案调查](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`

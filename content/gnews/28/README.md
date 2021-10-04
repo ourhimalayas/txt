@@ -2,33 +2,50 @@
 ---
 
 
-## 梵蒂冈强推绿色通行证，3名瑞士卫兵辞职
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1571851/)
+## 他们在隐瞒什么？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1571856/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/See-the-Swiss-Guards-_Getty_2018_GettyImages-821800896.jpg)
-图片来源：cntraveler.com
+新冠爆发时，许多科学家认为它可能是从武汉实验室泄露的—直到与帕特里克·瓦兰斯的电话会议改变了他们的想法。 我们询问了他有关通话的电子邮件……
 
-**【雅典娜快讯】，紧贴时事脉搏**
+这就是我们得到的……
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16333157441.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/16333172491.png)
+政府在拒绝发布涉及主要科学家关于新冠病毒起源的关键电子邮件对话的详细信息后受到谴责。
 
-在罗马教廷命令军队，在没有任何宗教豁免的情况下接种中共病毒疫苗后，三名瑞士卫兵已“自愿”从梵蒂冈的礼仪部队中辞职，而其他几人则被停职。
+该报利用信息自由规则获取了 32 封有关英国和美国卫生官员在大流行初期举行的秘密电话会议的电子邮件。
 
-虽然梵蒂冈的其他工作人员和游客可以选择定期接受中共病毒测试以保持他们的绿色通行证状态，但所有瑞士卫兵都被命令接受疫苗接种“以保护他们的健康以及他们作为服务所接触到的其他人的健康”，“该部队的官员乌尔斯·布雷滕莫瑟（Urs Breitenmoser）中尉告诉美联社。
+但官员们在发布关键文件之前几乎把每一个字都涂黑了。
 
-除了被送回瑞士的三名卫兵外，至少还有三名卫兵在同意接种疫苗但尚未接受接种后被停职。瑞士卫队是一支由135人组成的全男性瑞士士兵小队，作为礼仪单位，以其三色文艺复兴式制服以及教皇的私人保镖而闻名。
+这种荒谬的国家机密是对纳税人的高度蔑视，也是对一个想知道是什么导致这场毁灭性大流行以防范未来类似灾难的世界的高度蔑视。
 
-自 10月1日起，所有居民、员工和游客必须提供有效的健康证明——即意大利和其他欧盟国家使用的所谓绿色通行证——才能进入城邦场地。没有宗教方面的豁免，除了那些被特别受邀参加弥撒的人，“在仪式严格要求的时间内”可以被豁免。
+保守党议员和信息自由活动家大卫戴维斯谴责了这一回应。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+“这是一个对公众和全球都具有重大意义的问题，”他说。 “很难理解为什么要保密，以至于它超过了巨大的公共利益，并要求他们编辑这类重要数据。”
 
-**参考新闻：**[3 Swiss Guards resign after Vatican orders vaccinations & introduces Covid-19 Green Passes for staff and visitors — RT World News](https://www.rt.com/news/536494-vatican-swiss-guards-vaccination/)
+他说，这种结合机制“看起来好得令人难以置信，就像进入人体细胞的完美钥匙，而它的弗林蛋白酶切位点可能是预期的“如果有人开始通过从其他地方获取一套特定的遗传材料并将其插入，从而使动物冠状病毒适应人类。”
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+公共卫生组织“美国知情权”负责人加里·罗斯金 (Gary Ruskin) 表示，这就是政府的保密既可悲又危险的原因，该组织揭露了包括达扎克在内的关键专家在这场灾难中的活动。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“透明度对于揭露腐败、滥用权力和隐藏的利益冲突至关重要，”他说。 “即使在科学透明度薄弱的美国，我们也能够挖掘出有助于探索新冠病毒起源的文件。这样的努力在英国似乎是不可能的。这是令人遗憾的——如果我们不能使用透明工具来弄清楚新冠病毒是如何降临到我们身上的，那么后代最终可能会为此付出生命的代价。”
+
+个人评论：
+
+这篇文章揭示最初科学家的判断是对的，病毒来自武汉实验室，但是这些所谓的科学家关键人物，都遮遮掩掩不向大众坦诚新冠的真实信息，迫于舆论压力才拿出侮辱人的遮蔽邮件，说明这些新冠背后的利益非常大，如果没有郭先生，没有爆料革命，没有GTV，没有GNEWS，这个黑暗的社会，可能将人类覆灭，实现所谓“大重置”，可怕的不是黑暗，而是没有刺破黑暗的那束微弱的光！
+
+原文链接：[https://www.dailymail.co.uk/news/article-10052689/Government-condemned-refusing-release-details-key-email-conversations-Covid-origins.html](https://www.dailymail.co.uk/news/article-10052689/Government-condemned-refusing-release-details-key-email-conversations-Covid-origins.html)
+
+翻译/简评: Johnston2021
+
+PR: 感恩
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
