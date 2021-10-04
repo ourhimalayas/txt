@@ -2,27 +2,16 @@
 ---
 
 
-## 秘翻在线：彭佩奥抨击拜登向中共磕头的绥靖政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572448/)
+## 串珠图文2:病毒也许杀不死人，但疫苗一定杀得死
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1572652/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21510B65-B6D2-4FE7-8023-E53539C6E582.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8391961E-7314-403A-AA92-0651BED8DB64.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/7444685E-3976-41C1-81B9-B6E8BAE2F39D.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/D24B4C59-46C6-4C8B-9A9E-334E2BF94022.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/37C38399-163D-4695-B41B-B3BB088F6B09.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/9ACF3914-D4AE-4F82-9328-8862B07B0B10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/18C0040D-4F25-4BB7-946D-435B8CE13125.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/BBE95071-DBC3-44B5-9876-C17D8F6ED9F8.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0A0AB3C9-6A88-4C67-9EFD-A8CA9B922092.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0AE6BC56-68DD-41C8-B6D3-28562641C769.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/4C50D21A-A2C1-446F-BEE1-2014C62B0C5B.png)
+* * *
 
-#### 责编：胡天       
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-64.png)图片来源：美联社
-10月3日，《新闻极限》报道了前国务卿彭佩奥针对毒品贩运、阿富汗和气候变化等问题，抨击拜登对中共磕头的“绥靖政策”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-周日，蓬佩奥在WABC 770 AM-N.Y.的“猫的圆桌会议(*The Cats Roundtable*)”节目中接受了主持人约翰‧卡西马蒂斯（John Catsimatidis）的采访。他指出，许许多多的安全问题是相互关联的，而中共国与毒品贩运、阿富汗问题和气候变化等都有关系。
 
-关于边境安全，他说道：“当边界安全漏洞百出的时候，这些卡特尔（毒品和人口贩运集团）想出了赚钱的办法，他们不仅找到如何进入德克萨斯州、加利福尼亚州和亚利桑那州的办法，而且还在全国各地建立网络。我们的地方执法部门和警长办公室因为毒品而面临巨大压力。而且，全美国的孩子们将会因为本届政府未能确保边境安全而死亡。”
-
-对于阿富汗和中共国的影响力，“他们（中共国）会找到立足的方法，扩大他们对该立足地方的投射力量。而我们的政府，已经向中共磕头，我们看到，绥靖政策已初现端倪”。
-
-关于拜登政府对华为首席财务官孟晚舟释放的问题，彭佩奥说“上周，（政府）作出了一项决定，允许司法部撤销对华为首席财务官的指控。华为公司违反了我们对伊朗的制裁，而且它是一家努力窃取所有美国人隐私信息的公司。就我而言，我不明白他们（拜登政府）为何会放她一马。中共国将两名加拿大人扣为人质。我认为我们都需要认真思考这个问题。中共挟持人质是为了让某人回到他们的国家，这种做法和伊朗的行为方式没有啥区别。”
-
-对于气候变化特使约翰·克里（John Kerry）的计划，彭佩奥说出了问题的实质。“当我听到前国务卿约翰·克里谈论气候变化和建造电池厂时，这基本上是将美国经济交给了中共。”他指出阿富汗拥有丰富的稀有金属，可以用来帮助中共国建立电动汽车用电池的主导地位。“如果你真的想发展电池行业，最好是在美国国内建设它。半导体行业也是如此，但我们之前放弃了。”
-
-彭佩奥建议，“我希望这届政府不要如此狭隘地关注气候变化，而忘记了电池、稀有金属等事情，这也是美国国家安全的重要组成部分。”
-
-**新闻来源**
-
-[Mike Pompeo Warns Biden ‘Appeasement’ Has ‘Kowtowed to China’](https://www.newsmax.com/newsfront/mike-pompeo-border-crisis-energy-chinese/2021/10/03/id/1038909/)
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)

@@ -2,24 +2,31 @@
 ---
 
 
-## 美国官员主编的《武汉实验室》杂志发表了数十篇来自中共军方的研究
-` 象声` [轉載自GNews](https://gnews.org/zh-hans/1572874/)
+## 前辉瑞员工称，接种辉瑞疫苗后人体感染病毒机率增加
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572946/)
 
-《国家脉搏》的记者娜塔莉温特斯在2021年10月3日发表评论文章指出：
- 武汉病毒研究所附属的科学期刊《Virologica Sinica》发表了数十项研究，由共产党政权控制的为人民解放军工作的中国研究人员撰写。美国深层政府与中共军队之间的勾结比大多数人认为的要根深蒂固。
+栏目记者/责任编辑：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-75.png)
+前辉瑞公司的员工凯伦·金斯敦，于9月下旬一次公开会议上表示，根据辉瑞公司关于人体免疫力随时间变化的研究报告，基于3万6千人的实验数据，接种一剂辉瑞疫苗后，较未接种时，人体感染病毒的机率增加了3倍；当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。该研究报告也出现于9月17日召开的食品和药物管理局（FDA）咨询委员会会议简报中。
 
-该学术期刊的主编正是有蝙蝠女之称的武汉病毒研究所顶级蝙蝠冠状病毒研究员石正丽。认为 COVID-19 实验室起源论有争议的许多科学家和政府官员里，有9名研究人员在这份学术期刊的编辑委员会任职。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-5.jpeg)
 
-《国家脉搏》现在可以透露，该杂志已经发表了数十项研究，列出了受雇于中共军事控制机构的个人。几年来，杂志还聘请了研究人员从人民解放军（PLA）307医院，总医院，第三军医大学和第四军医大学，甚至与它的编辑和审核过程中提供协助。
+医疗自由权利律师托马斯·茨伦也出现在本次会议中，茨伦此前在演讲中，向人们展示了医疗服务中心CMS，在来自不足20%美国人口的数据中，在接种新冠病毒疫苗后14天死亡的医保患者就接近5万人。茨伦目前正在参与几起针对联邦机构的欺诈，和侵犯医疗自由权利的重大案件。
 
-发表在《Virologica Sinica》上的研究，包括了那些专注于 COVID-19 的研究，也将武汉病毒研究所的研究人员与解放军中南部战区总医院的研究人员列为作者。
+(本文仅代表作者观点)
 
-其中署名作者的中国病毒学家的实体工作单位是军事医学研究所，第一，第二，第四，和 第五军事医学大学，所有这一些实体单位都是由解放军控制。已发表在杂志上的几项研究，其中包括建设“重组病毒”，作者来自中国的科学院军事医学科学院。在武汉大学等武汉机构工作的研究人员在《Virologica Sinica》上发表了他们与解放军广州司令部武汉总医院合作开展的研究。这些作者来自中国人民解放军南、中、北战区疾病预防控制中心，并发表在《中国病毒学》杂志上。此外，解放军医院网络中多个机构的研究人员，如解放军第171医院急诊科和解放军第307医院呼吸内科的研究人员也在该杂志上发表了文章
+参考链接：[‘If you get the Pfizer vax, you’re more likely to get COVID’: Industry analyst flags FDA study](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)
+[Vaccines and Related Biological Products Advisory Committee Meeting](https://www.fda.gov/media/152176/download)
 
-《国家脉搏》此前曾报道，福奇国家过敏和传染病研究所 (NIAID) 的官员曾在该杂志的编辑委员会任职。该杂志还多次发表进行功能增益的研究报告，支持福奇在他的国家卫生研究院(NIH)机构参与武汉病毒学研究所危险形式研究的问题上所说的谎言。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-武汉病毒学研究所控制的期刊与解放军之间的关系，突显了该实验室与中共军方保持的工作关系，该实验室已从安东尼·福奇那里获得了数百万美元的资助。
+终审：暗黑
+校正/发稿：谐趣园
 
-参考链接：https://thenationalpulse.com/exclusive/wuhan-lab-journal-published-pla-studies/
-
-翻译&编辑：洛杉矶盘古农场–蓝精灵
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

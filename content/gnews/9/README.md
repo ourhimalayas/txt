@@ -2,20 +2,37 @@
 ---
 
 
-## 美研究打完两剂Pfizer/BNT疫苗半年后，体内中和抗体归零
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1573174/)
+## 看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573256/)
 
-台湾宝岛农场 Amitofu
+据[**观察者网**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月4日 23:01](https://weibo.com/1887344341/KBdP5zvxU?ref=home&amp;rid=6_0_8_6667924340392403151_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-BioNTech与Pfizer共同研发的mRNA新冠疫苗，相继在以色列、新加坡及美国，爆发新一波疫情，部分施打完两剂民众出现「突破性感染」的案例也越来越多，史丹福大学病理学、微生物学及免疫学教授普伦德兰Bali Pulendran以及艾默理大学病毒学家苏塔尔Mehul Suthar指出，他们的研究指出接种Pfizer/BNT疫苗会诱发高水平中和抗体可对付原始病毒株，但在接种第1剂后，这些中和抗体在7个月后下降了近10倍，研究人员对比了46名健康成人在刚完成两剂疫苗接种6个月内的血液样本，发现他们体内产生很高的中和抗体，但中**和抗体在6个月后会大幅度下降，甚至于到了第7个月，约一半接种者体内已找不到中和抗体存在，数据显示另一个关键因素是 T 细胞反应，在同一时间范围内某些水平 “明显下降”。**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/BNTUSAagainst-400x225.jpg)
-日前BNT执行长萨辛Ugur Sahin接受英国《金融时报》专访时表示，未来恐怕将再出现能够突破人体免疫系统的变种病毒株，**病毒终究会持续变异，而出现疫苗逃脱的「突破性感染」，萨辛Ugur Sahin表示对于明年的接种计画分，一方面持续推动施打对未施打疫苗的人，另一方面对已经施打的民众持续接种「加强针」。**
+【[#女孩看完长津湖回家尝冻土豆#](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%9C%8B%E5%AE%8C%E9%95%BF%E6%B4%A5%E6%B9%96%E5%9B%9E%E5%AE%B6%E5%B0%9D%E5%86%BB%E5%9C%9F%E8%B1%86%23&amp;from=default) ：觉得很心酸，根本咬不动 】近日，云南昆明，电影《长津湖》热映感动众多网友，迟女士看完电影后找来土豆煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别想哭，现在美好的生活都是战士们奋斗来的。（新华网）[L西部决策的微博视频](http://t.cn/A6MxDqMt)
 
-辉瑞首席执行官 Albert Bourla 7 月在 CNBC 的 The Exchange 上讨论了一项资助研究，评估了辉瑞疫苗在美国和其他国家44,000多名疫苗接受者中的效用， Bourla 表示接种辉瑞疫苗后在4到6个月约为 84%的效力，但对重症的疗效仍为 97%。但事实上930万人口的以色列大规模接种辉瑞/BNT疫苗，于6月间爆发第4波疫情至今，已接种1533万剂疫苗，目前确诊总数已经接近130万人，至9月30日新确诊病例4948人，7天平均值3981人，**打过疫苗突破性感染的案例占所有新增病例一半以上。**
+我们不得不承认中共官媒树立起的这位云南昆明迟女士是脑子里进大粪的最好榜样，如果观众们与这位迟女士一样感同深受，那么吃冻土豆是不够的，还应该穿着单衣到冰雪地里去卧上一卧，以此体验一把当年中共炮灰们的感觉。
 
-本文仅代表个人立场
-审核:Athena雅典娜 发布:Amitofu
+可是我们不想体验的啃冻土豆和我们不想体验的冰窖体验却并不以我们意志为转移地走下银幕进入我们的生活——在不定期、无预警停电之下的东北，在停电时哪怕能吃上冻的熟土豆不也是一份幸运么？在停电的阴冷天气之下，难道每个人不都在冰窖中么？
 
-[If You Got Pfizer, You May Not Have Antibodies Against Delta After This Long](https://bestlifeonline.com/pfizer-delta-antibodies-news/)
+在想到这些的时候，恍然明白中共媒体树立那个脑子进水的云南昆明迟女士为榜样的用意了，原来电影上的生活正在向我们走来，接下来能吃上冻土豆的、能在冰窖中活下来的就已经是很美好的生活了，并且这很美好的生活就是当年那些啃着冻土豆的炮灰们与那些吃着火鸡和各种美味食品的美国大兵斗争的结果！
 
-[BioNTech chief predicts need for updated Covid vaccines next year](https://www.ft.com/content/d88457da-6bbc-4f07-82a6-4738aa845492)
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
