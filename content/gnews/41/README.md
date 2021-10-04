@@ -2,63 +2,122 @@
 ---
 
 
-## 中共电力产业被几大家族操纵着
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
+## 病理学家问：COVID 疫苗导致器官损伤的调查在哪里？（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1571474/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
-[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
+- 编译：Jenny Ball
 
-**郭文贵
-Miles Guo**
 
-还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
-everyone don’t forget that there is another key point, who made the trillions of output value?
+![](https://assets.gnews.org/wp-content/uploads/2021/10/organ-damage-Covid-vaccines-feature-800x417-1.jpg)病理学家瑞安·科尔( Ryan Cole) 博士问道，在数千人因接种 COVID 疫苗而死亡之后，哪里进行了尸检以调查由刺突蛋白引起的器官损伤？
 
-习家没碰过电力产业的利润，这块蛋糕没碰
-The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
+## **第二部分**
 
-主要是李鹏家里碰的，然后是温家有些碰的
-Li Peng’s family is major player on this, and then Wen’s family have some of it
+**进一步的研究证明刺突蛋白的作用**
 
-然后是朱家有些碰的，这些钱都是被几大家族垄断着
-Then Zhu’s family have some of it, all of these money have controlled by several big families
+3 月 8 日在线发表的[第二篇论文](https://www.medrxiv.org/content/10.1101/2021.03.05.21252960v1.full)，研究了刺突蛋白是一种炎症原，或一种可以在细胞水平上引发炎症的刺激物。 研究人员试图确定，刺突蛋白是否是 COVID-19 感染中发现的高凝状态的根本原因。
 
-现在突然发现，老子这个钱从来没有（碰）
-Now suddenly he found out that I have never been touched these money
+质谱显示，刺突蛋白损伤了纤维蛋白原、凝血酶原和补体 3，所有这些化合物都易于凝血。他们认为，这种蛋白质的存在导致了高凝状态，并可能导致在感染 COVID-19 的患者的血浆样本中观察到大的微凝块。
 
-让你们老赚钱了，中国的煤矿，习家没碰
-Let you make money all the time, Xi’s family never touched China’s coal mines industry
+科学再次证明，导致[器官损伤](https://childrenshealthdefense.org/defender/covid-vaccine-spike-protein-travels-from-injection-site-organ-damage/)的不是病毒，例如在 COVID-19 患者的心脏、肝脏和肾脏中发现的器官损伤，而恰恰是疫苗中的刺突蛋白，它也被注射到基因治疗计划中。
 
-他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
-He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
+4 月 27 日发表的[第三项研究](https://medicalxpress.com/news/2021-04-sars-cov-spike-protein-lung.html)，再次在动物模型中证明，仅暴露于刺突蛋白就足以引起严重的肺损伤。然而，**政府机构并没有采取任何措施来减缓这一基因实验的传播。**
 
-这有烟产业全是几个老杂毛搞的
-This smoking industry is all controlled by a few “old suckers”
+研究人员继续研究刺突蛋白如何影响内皮细胞，并最终损害心肌。六月发表在心血管医学前沿的[一项研究表明](https://www.frontiersin.org/articles/10.3389/fcvm.2021.687783/full)，刺突蛋白下调了动脉中发现的连接蛋白的表现。他们得出[结论](https://www.frontiersin.org/articles/10.3389/fcvm.2021.687783/full)：
 
-他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
-He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
+“……**这些实验表明，刺突诱导的内皮连接蛋白降解会影响内皮屏障功能，并且可能是在**** COVID-19 ****感染个体中观察到的血管损伤的原因**。”
 
-澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
-Australia is controlled by a few families, and also these old rascals who controlled Australia
+即使研究人员确定了刺突蛋白损伤内皮细胞的途径，**主流媒体、政府机构和许多健康专家显然都忽视了这一点，**他们继续推动公众接种基因治疗注射剂，而它不能有效地保护你避免感染病毒或阻止您传播病毒。
 
-所有的人都是过去的江派和胡派之间的关系
-that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
+**感染开始并可能留在肺部**
 
-——————————————————
+**有趣的是，****2021 ****年**** 3 ****月发表的****[另一项研究](https://jamanetwork.com/journals/jamacardiology/fullarticle/2777308)****质疑职业运动员感染**** COVID-19 ****后患炎症性心脏病，这是否会影响他们重返赛场的能力****。**
 
-Date:10/02/2021
-原视频标题:中共电力产业被几大家族操纵着
-The CCP’s power industry is controlled by several big families
-原视频日期：2021/09/29
-原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
-任务编号：KC142（2389）
-视频时间段 : 0:00-0:55
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+研究人员对 789 名患有 COVID-19 的职业运动员进行了评估，在接受心脏筛查的患者中没有发现不良心脏事件，在这组健康个体中，刺突蛋白全身性参与似乎非常罕见。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+然而，在 9 月 3 日的[VAERS 报告中](https://openvaers.com/covid-data)，在接种疫苗的 9 个月内，共有 11,793 人患有心脏病、心肌炎或心包炎。COVID-19 对心脏的影响已得到[充分证明](https://www.bhf.org.uk/informationsupport/coronavirus-and-you)。
+
+在二月份对泽连科（Vladimir Zelenko） 博士的[采访](https://www.bitchute.com/video/klxnpNI2ZIfV/)中，我们讨论了用羟氯喹治疗 COVID-19。那时，泽连科已经治疗了 3,000 名出现 COVID-19 症状的患者，而他的高危患者中仅有 3 名随后死于该疾病。
+
+虽然采访的重点是治疗方案和抗疟药羟氯喹的使用，但泽连科分享了他的方案有趣的统计数据。
+
+在 COVID-19 的最初几个月，泽连科决定尽早治疗他的高危患者，而不是等待出现严重症状。事实证明，这是他取得重大成功的关键之一。
+
+他对**羟氯喹和锌**机制的理解，使得他将这种组合与**阿奇霉素**一起使用，以**预防细菌性肺炎和**** COVID ****常见的其他细菌感染**。
+
+有趣的是泽连科的长期症状患者的统计数据。华盛顿大学 2021 年的数据发现，32.7% 的 COVID-19 门诊患者会继续出现持续症状。
+
+然而，泽连科已经治疗了 3,000 名患者，在前五天内接受治疗的患者都没有继续出现长期症状。他的数据与华盛顿大学的数据来自同一时期。
+
+虽然他的患者有持续的 COVID-19 症状，但他们在出现症状的五天后才寻求医疗护理，这意味着炎症过程已经进展。根据他的经验以及他治疗的患者的经验，**早期用其方案干预几乎消除了持续症状的风险**。
+
+**长期症状可能与刺突蛋白损坏有关**
+
+感染 COVID-19 后可能持续数周或数月的症状，被称为长期症状。对于某些人来说，这可能是刺突蛋白引起的血管损伤的结果。CDC 报告说，在没有活动性 COVID 感染的情况下，可能会在感染后数周出现以下症状的组合，并持续数月。
+
+- 被描述为难以思考或集中注意力的脑雾
+- 胸痛
+- 咳嗽和呼吸困难
+- 抑郁或焦虑
+- 第一次站立时头晕
+- 快速跳动的心脏或心跳加速
+- 疲劳
+- 发烧
+- 头痛
+- 关节或肌肉疼痛
+- 嗅觉或味觉丧失
+- 呼吸急促
+
+
+科学家们现在知道， COVID-19 的主要病理生理学[包括](https://www.nature.com/articles/s41591-021-01283-z)内皮损伤和微血管损伤、过度炎症的刺激和高凝状态。生理学报告中的一篇[综述](https://physoc.onlinelibrary.wiley.com/doi/10.14814/phy2.14726)研究了 COVID-19 引发的内皮炎引起的毛细血管损伤和炎症，如何通过干扰组织氧合而导致持续症状。
+
+多个关键器官的毛细血管损伤的综合作用，可能会加速缺氧相关炎症并导致长期症状。 与泽连科没有长期症状的患者不同，发表在“在线临床医学”（E Clinical Medicine） 上的[一项在线调查](https://www.thelancet.com/journals/eclinm/article/PIIS2589-5370%2821%2900299-6/fulltext#%20)的参与者表现不佳。
+
+该研究揭示了来自56个国家/地区的 3,762 名疑似或确诊COVID-19参与者的数据。 对于大多数人来说，从所有症状中恢复需要超过 35 周。数据显示，人们在 9.1 个器官系统中，平均出现 55.9 种症状。
+
+**感染后六个月最常见的症状是：认知功能障碍、疲劳和劳累后不适**。
+
+**疫苗副作用清单正在增加**
+
+随着疫苗接种后报告不良事件的人数不断增加，社交媒体平台还在极力压制有关人们正在经历的副作用的所有信息。
+
+为了把他们的遭遇讲出来，人们在“不再沉默” [No More Silence](https://nomoresilence.world/)和“Covid成千的事故”[1000 COVID Stories](https://1000covidstories.com/)上发布了视频、静态照片和疫苗受伤的证据。
+
+一个例子是莎拉·格林（[Sarah Green](https://childrenshealthdefense.org/defender/sarah-green-16-year-old-neurological-symptoms-pfizer-vaccine/)），一名 16 岁的学生正在遭受衰弱症状。这是她妈妈[讲的她的遭遇](https://nomoresilence.world/pfizer-biontech/sarah-little-pfizer-adverse-reaction/)：
+
+“在几周内，她出现了严重的口吃，并开始出现无法控制的头部运动。她看起来像是患有帕金森氏症的人。她以前从未口吃或抽搐过。”
+
+“她住了两个晚上医院，在那里接受了多次检查，然后出院，并被告知这是一种‘神经性抽动’，并让她去看心理健康人士。”
+
+“’我们多次询问是否可能是疫苗引起的，没人搭理我们，**直到一位医生告诉我们他不知道它是什么，但它****‘****绝对不是疫苗****‘**，我们不能把一切都归咎于它。’（如果你不知道是什么，怎么确认不是疫苗？符合逻辑吗？）
+
+“她的父母主张转诊去看神经科医生，后者诊断出莎拉患有功能性运动障碍，并告诉她“与疫苗有关，但不是疫苗相关的。” (related to the vaccine, but not vaccine related)他们还说这是一种“极其罕见”的副作用，尽管过去一年他们在自己的实践中看到了几例。
+
+“莎拉在上一学年结束时的 GPA 为 4.7，并参加了早期大学课程，有望获得副学士学位。鉴于她目前的身体状况和局限性，她别无选择，只能在即将到来的学期放弃大学课程。
+
+“她开始了正常课程，但却发现，剧烈颤抖和痉挛的情况，连低头或写作都是不可能的，她的老师要替她打字。
+
+“我很伤心，因为她学习这么努力，但她的一切都被改变了——我真他妈的疯了！ **我们的整个生活都发生了变化，为了什么？** **就因为一种甚至根本不起作用的疫苗**！ 我希望读者在决定是否接种疫苗时，能够做出明智的决定。 我们没有这样的机会了。”
+
+向 VAERS [报告疫苗伤害或副作用](https://childrenshealthdefense.org/defender/injured-by-vaccine-how-to-report-it/)至关重要，因为这些数据对于帮助他人、医生和研究人员做出明智的决定至关重要。
+
+您可以通过访问在线VAERS或使用 PDF 制作自己的报告。您可以在国家疫苗信息中心找到有关不良事件以及疫苗如何影响您的健康的[更多信息](https://www.nvic.org/)。最初由[*Mercola*](https://docs.google.com/document/d/1TfFeeMweav9bev3Ln6fwNQLtCRnT1fEhGsTZb1Fn328/edit)出版。
+
+**评论：**
+
+**文章前一部分讲道，**“**CDC****、****FDA ****和 ****NIAID****都很清楚：刺突蛋白可能会对人体循环系统的内皮细胞造成损害”！但政府仍然强制推行疫苗。****在这个疯狂的强制接种疫苗过程中， 比比皆是政府违法违宪的犯罪行为，随处可见违反常理的行为。 例如文章中****16****岁受害者****Sarah****妈妈讲的“****直到一位医生告诉我们他也不知道它是什么，但它****‘****绝对不是疫苗****‘**， **如果你不知道是什么引起的，怎么就确认不是疫苗呢？这合乎逻辑吗？**
+
+**正是因为人们默许了政府的强制违法，正是因为人们失去了常识判断，所以 “我们的整个生活都发生了变化，为了什么？** **就因为一种甚至根本不起作用的疫苗**！”
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**素材来源：**[childrenshealthdefense.org](https://childrenshealthdefense.org/defender/dr-ryan-cole-investigations-organ-damage-spike-protein-covid-vaccine/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=dfd2f207-e4db-4562-bdce-aa516a22c7a3)
+
+请看上一篇：[**病理学家问：COVID 疫苗导致器官损伤的调查在哪里？(1/2)**—**第一部分**](https://gnews.org/zh-hans/1571457/)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
