@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/4/2021 9:47 AM (UTC)`
+
+10/3/2021 Miles Guo: What made me feel the happiest in the past ten days or so is that the international organizations such as the United Nations and European Parliament have started to examine if the New Federal State of China (NFSC) can represent the Chinese people; We hope that Taiwan, Hong Kong, Xinjiang, and Tibet will be independent in the future and then become part of the NFSC; I am very confident that we can prevent the CCP from occupying Taiwan by cooperating with the world’s evil and justice forces in the “swamps”! Both Taiwan and Hong Kong will have a bright future!<br/><br/>10/3/2021 文贵直播：在过去的十几天中让我最开心的是，联合国和欧洲议会等国际组织已开始研究是否承认新中国联邦代表中国人；我们希望未来台湾、香港、新疆和西藏都独立并成为新中国联邦的一部分！我很有信心这次跟世界上的邪恶和正义的沼泽地的力量能合作阻止共产党攻占台湾！台湾和香港都会有美好的未来！
+![img](https://media.gettr.com/group28/getter/2021/10/04/09/47/85f07069-980f-43b8-1766-82645e97a1e9/out.jpg)
+
+---
+
 `@miles 10/4/2021 3:48 AM (UTC)`
 
 10/3/2021 Miles Guo: The recording of the phone call between Fu Zhenghua and me was actually between me and the driver manipulated by Fu. Falun Gong followers and those in the public security organs, procuratorates, and courts are the people Fu arrested the most. Bringing down Fu Zhenghua meets Xi Jinping’s political interests as he can show off his “fairness” before arresting Meng Jianzhu and Wang Qishan. Fu Zhenghua not only sent people to prison, but also controlled the prisons and tortured the prisoners he arrested. This is the CCP’s wickedness!<br/><br/>10/3/2021 文贵直播：文贵当年公布的傅政华通话录音其实是由他操控的一个司机和我通话的；傅政华抓的最多的是法轮功和公检法的人；习近平拿下傅政华符合他的政治利益，在抓孟建柱和王岐山之前，习借此表现了一下“公正性“；傅政华不仅抓人进监狱，而且还管监狱并虐待他抓的人，这就是中共的邪恶！<br/>
@@ -285,13 +292,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再有效，加强针的安全性和有效性也并没有数据支持<br/>Before approving the Pfizer’s COVID booster dose, FDA didn’t provide evidence that the first two doses are not effective anymore, also the safety and effectiveness of Pfizer's COVID vaccine booster dose is not supported by data<br/>
 ![img](https://media.gettr.com/group27/getter/2021/09/30/15/02/5879d24b-e71e-e5ba-bfa4-3a42c4940c2d/out.jpg)
-
----
-
-`@miles 9/30/2021 1:57 PM (UTC)`
-
-9月30号：邪恶势力控制媒体后，对人类的洗脑达到的境界，空前绝后。这场人类的大屠杀还没有真正的开始。<br/><br/>【打了三针的教授骂完没打疫苗的教授12天后英勇就义】
-![img](https://media.gettr.com/group46/getter/2021/09/30/13/7cc9d2b8-9387-4059-2985-e5f96ae58cda/74e22fa9b1794e0386bb2d5040d4c500.jpg)
 
 ---
 
