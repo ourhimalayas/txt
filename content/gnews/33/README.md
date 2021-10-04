@@ -2,34 +2,43 @@
 ---
 
 
-## DC每日热点1004
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1572879/)
+## 病毒学期刊&#8221;影响因子&#8221;凸显武毒所与中共军方关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572921/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/85AFEC14-4EFC-4B3E-886E-004B224CB3C5-scaled.jpeg)
-道琼斯指数 34349.27 ▲0.07%
-纳斯达克指数 14491.86 ▲0.82%
-WTI纽约原油CFD 76.302 ▲0.56%
-布伦特原油CFD 79.857 ▼0.51%
-标普中概股50指数 3,397.06CNY▼1.40%
-美元兑人民币 1USD=6.444RMB
-美元兑港币 1USD=7.785HKD
-国际黄金 1758.16美元/盎司
-全球CCP病毒感染人数 235,810,070 例
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+采集/撰稿/终审 : 文龍
 
-1、美贸易代表戴琪发表讲话，宣布拜登政府调整对中共国贸易政策四项具体作法，包括检视第一阶段美中贸易协议执行成果，并要求中方兑现承诺
-2、英海军继续印太部署 与澳大利亚展开联合军演
-3、岸田文雄正式出任日本新首相 拟新设经济安全大臣应对中共国威胁
-4、中共国恒大和恒大物业暂停在港交所交易
-5、香港最大的独立工会组织“香港职工会联盟”（职工盟）星期天正式解散
-6、朝鲜官方媒体称，朝韩热线将于周一恢复
-7、美国务院谴责中共连续军事胁迫台湾损害台海及区域和平稳定
-8、IMF总裁涉为中共改数据丑闻，董事会5日约谈
-9、俄罗斯在潜艇上成功试射高超音速导弹
-10、日产汽车等计划将西班牙的整车组装工厂出售给中共国长城汽车，将就此展开谈判
-11、中共国首次从哈萨克斯坦购进煤炭，以缓解电煤紧张，浙江稍早还从美国进口高热值煤。俄罗斯许诺本月加倍向中共国出口电力
-12、潘多拉文件曝光 多国政要境外藏富，香港前特首董建华家族涉72家离岸公司
-13、阿尔及利亚继续施压：禁止法军机进入领空
-14、澳政府信件：在取消潜艇交易数小时前曾告诉法企不会继续履行协议
-15、美国务院：美国对台湾海峡两岸和平与稳定有持久的利益
-16、南加州发生严重漏油事故 海滩关闭航展取消
+“影响因子” Virologica Sinica 杂志是武汉病毒研究所通过Springer 出版平台发布的全英文病毒生物科学期刊, 主编就是大名鼎鼎的”蝙蝠女”石正丽。10月3日国家脉动发布了一篇调查文章,表明”影响因子”杂志与中共军方有着极为密切的关联。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-74.png)
+该文章披露, “影响因子”杂志创刊于1986年,中文名称叫做”中国病毒学”, 2007年改为全英文出版, 该期刊不仅发布了众多来自中国军方背景的研究者所撰写的病毒学/生物学论文。而且从解放军171医院/307医院/第三和第四军医大学聘请了研究人员参与论文审核和参与编辑。 期刊内容同样显示, 数名关注于新冠病毒研究的研究员 则来自解放军中南战区总医院。
+
+同时国家脉动还发现, 隶属于美国国立卫生院NIH的美国国家传染病研究所也有人员在”影响因子”杂志担任编辑, 国家传染病研究所的主任正是福奇, 而国立卫生院更是资助了武汉病毒研究所数百万美元, 用于新冠病毒的增强实验和研究。国家脉动对此调查发现的结论称: “美国深层政府与中国军方之间的关联和勾结, 比我们认为的还要根深蒂固。”
+
+(本文仅代表作者观点)
+
+武毒所影响因子杂志简介链接:
+
+[http://english.whiov.cas.cn/Virologica\_Sinica2016/](http://english.whiov.cas.cn/Virologica_Sinica2016/)
+
+国家脉动文章链接:
+
+
+
+> [Wuhan Lab Journal Edited By U.S. Officials, Published Dozens Of Studies From China’s Military.](https://thenationalpulse.com/exclusive/wuhan-lab-journal-published-pla-studies/)
+
+
+
+影响因子主页链接:
+
+[https://www.virosin.org/indexcn.htm](https://www.virosin.org/indexcn.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
