@@ -2,17 +2,30 @@
 ---
 
 
-## 秘翻在线：菅义伟内阁会议确定内阁成员总辞职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572089/)
+## 有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572129/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像5-1.png)（图片源自本文链接）
-TBS新闻10月4日消息：菅义伟内阁刚刚举行了特别会议，汇总了内阁成员的辞职信，最终确定了内阁成员的总辞职，其在任384天。
+配音：纽约香草山美食部 – 玫瑰园
 
-菅义伟内阁执政期间，一直忙于应对中共病毒的蔓延、紧急状态下的应对措施，以及在病毒蔓延状况下组织东京奥运会和残奥会。菅义伟本人在上个月他上任一周年之际回忆说：在中共病毒肆虐中度过了我所有的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-随着菅义伟内阁的辞职，第二届安倍政府以来霞ヶ关官僚机构的实权派人物，担任8年零9个月的副官房长官杉田和博也将下台。
+10月2日，郭文贵先生连发多条盖特，并公布其与傅政华在2015年的秘密通话。通话中，傅政华以文贵先生家人、员工及本人人身安全为威胁，要求文贵先生把人、钱、资产安排回国。同时，傅政华要求文贵先生查清王岐山、孟建柱的海外资金及不正当男女关系情况，并声称这是习近平的指示。除此之外，傅政华在录音中爆出，孟建柱决策的执行人是孙力军，吴征事代表孙力军和孟建柱。
 
-[信息源](https://news.yahoo.co.jp/articles/2b873c978130433ad4de81f125ed91458eb7aa95)
+文字版原文：[文贵先生发布盖特公布其与傅振华2015年的秘密通话](https://gnews.org/zh-hans/1570382/)
 
-（文章仅代表作者个人观点）
+音频处理：喜山必胜Maverick
+发稿：孤独的小生（文留）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

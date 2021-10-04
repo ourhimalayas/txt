@@ -15,76 +15,76 @@
 
 ---
 
-### [有声|加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/1/README.md)
+### [纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [印尼大屠杀是如何发生的?](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [岸田文雄当选日本第100任首相](/content/gnews/3/README.md)
+ ` 首尔天池农场`
+
+### [有声|加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话](/content/gnews/2/README.md)
+### [有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [支持疫苗护照副州长辞职，新州通往自由之门即将打开](/content/gnews/3/README.md)
+### [支持疫苗护照副州长辞职，新州通往自由之门即将打开](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/4/README.md)
+### [有声|中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [秘翻在线：菅义伟内阁会议确定内阁成员总辞职](/content/gnews/5/README.md)
+### [秘翻在线：菅义伟内阁会议确定内阁成员总辞职](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [丹尼尔·安德鲁斯必须辞职](/content/gnews/6/README.md)
+### [长津湖战役“冰雕连”的真相](/content/gnews/9/README.md)
+ ` 滴水穿石`
+
+### [丹尼尔·安德鲁斯必须辞职](/content/gnews/10/README.md)
  ` 走进澳洲`
 
-### [2021年8月12日郭文贵先生吃饺饺盖特全文字版](/content/gnews/7/README.md)
+### [2021年8月12日郭文贵先生吃饺饺盖特全文字版](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年8月10日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/8/README.md)
+### [2021年8月10日郭文贵先生健腹轮健身盖特全文字版](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日本8县出台条例，禁止歧视未接种疫苗者](/content/gnews/9/README.md)
+### [日本8县出台条例，禁止歧视未接种疫苗者](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编](/content/gnews/10/README.md)
+### [墙内要闻汇编](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全网最全中国停限电的真正原因](/content/gnews/11/README.md)
+### [全网最全中国停限电的真正原因](/content/gnews/15/README.md)
  ` YALUN 亚伦`
 
-### [消灭病毒和毒疫苗的方法就是先消灭中共](/content/gnews/12/README.md)
+### [消灭病毒和毒疫苗的方法就是先消灭中共](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [应朝鲜要求 朝韩双方重启热线](/content/gnews/13/README.md)
+### [应朝鲜要求 朝韩双方重启热线](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G时评：我是飞扬跋扈的尘，你是现实安稳的土](/content/gnews/14/README.md)
+### [G时评：我是飞扬跋扈的尘，你是现实安稳的土](/content/gnews/18/README.md)
  ` GISELLE`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（三）](/content/gnews/15/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（三）](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [国际要闻汇编](/content/gnews/16/README.md)
+### [国际要闻汇编](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年8月10日郭文贵先生吃馍馍吃“草”盖特全文字版](/content/gnews/17/README.md)
+### [2021年8月10日郭文贵先生吃馍馍吃“草”盖特全文字版](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [强制安装“国家防诈中心App”的背后猫腻](/content/gnews/18/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [雅典娜时报-第071期](/content/gnews/19/README.md)
+### [雅典娜时报-第071期](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭先生直播爆彩蛋,欧盟联合国在做承认新中国联邦的准备!](/content/gnews/20/README.md)
+### [郭先生直播爆彩蛋,欧盟联合国在做承认新中国联邦的准备!](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [巴西总统警告说，疫苗护照终将导致人口控制](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [正道主义是人类新文明的发展方向](/content/gnews/22/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [是时候放弃“疫苗政治正确”了：新加坡接种率超80%，感染人数依旧飙升](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [推特将疫苗受害者的信息标记为“误导信息”](/content/gnews/24/README.md)
+### [巴西总统警告说，疫苗护照终将导致人口控制](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
 ### [他们在隐瞒什么？](/content/gnews/25/README.md)
