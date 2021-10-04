@@ -2,25 +2,19 @@
 ---
 
 
-## 【视频】疫苗副作用合集
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1571551/)
+## 媒体抹杀伊维菌素是为了给“辉瑞菌素”上市打掩护(玫瑰看新闻2021/10/1第173期)
+` 新西兰新联邦新闻摘要` [轉載自GNews](https://gnews.org/zh-hans/1571604/)
 
-各地出现的疫苗副作用视频合集。
+本期焦点新闻摘要：
 
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+国际热点新闻
 
-* * *
+1.媒体抹杀伊维菌素是为了给“辉瑞菌素”上市打掩护
 
-更多加拿大枫叶农场的频道，请关注：
+2.德国如三党联盟对华政策将有所强硬
 
-[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+3.北京坐实人质外交在华外商度日如年
 
-[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+4.恒大危机中共国央行出手维持金融市场平静
 
-[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-
-[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
-
-[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
-*上传：文永*
+5.中共国十一：香港出动八千多警力部署各区维稳

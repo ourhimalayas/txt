@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/4/2021 12:48 AM (UTC)`
+
+10/3/2021 Miles Guo: None of the CCP’s 4.6 million people in the public security bureaus, procuratorates, and courts dares to challenge Fu Zhenghua! Fu Zhenghua sent to Canada the third oldest brother of his family, who threatened to kill my family and colleagues if I kept recording audios or talking about Fu. To protect the safety of my family and colleagues, I didn’t talk about Fu Zhenghua in the past year.<br/><br/>10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华！傅政华派他们家傅老三来加拿大来威胁文贵，称如果我再录音，再说傅政华，就将杀害我的家人和同事！为了家人和同事的安全，文贵过去一年都没有谈过傅政华<br/>
+![img](https://media.gettr.com/group16/getter/2021/10/04/00/48/862c10e1-7556-4016-bf27-f075915510ac/out.jpg)
+
+---
+
 `@miles 10/3/2021 11:50 PM (UTC)`
 
 10月3号：😡😡😡这么多装尸袋是准备干什么！October 3rd: What are you going to do with so many body bags?
@@ -287,13 +294,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 `@baguan 9/30/2021 12:08 PM (UTC)`
 
 【商业票据大地雷💣💥 ｜ 9月30日恒大、碧桂园、融创等地产商票贴息报价】<br/>1. 恒大系：1.5至3折，躺平中<br/>2. 融创地产系：24.77-33.73%<br/>3. 中铁广通建设：47.69% ，直逼恒大<br/>4. 世茂：21-28%<br/>5. 荣盛地产：民间贴现率从6月1日的18%一路飙升，至9月29日，市场贴现率高达33.92%！已出现拒付数据<br/>6. 绿地系：20.56-42.32%（近一个月涨的有点猛，需警惕）<br/>7. 碧桂园系：25.6%<br/>8. 富力地产：27.32%<br/>9. 金科地产21.83-29.93%<br/>10. 华夏幸福：35.62-47.23%<br/>11. 实地地产：30.04-37.60%<br/>都完球🥚了 ——转自韩东
-
----
-
-`@miles 9/30/2021 12:10 PM (UTC)`
-
-9月30号：所有孙力军这些犯罪行为内容……在2017，18年文贵都在直播当中都说到了！孙力军的这些行为。这些官方公布的资料只是孙犯罪的冰山一角。这说明孙力军的犯罪势力集团，还在垂死挣扎中，从这些公布的案情信息来看……很有可能还会反复，等他们判决后，文贵会公布孙在海外的资金，关系网，和藏匿的大量的共匪，各个方面．及重大案情等绝密信息，绝对会震撼世界。孙力军案，将使我们爆料革命，走向新的一个世界级爆料高度。我们等待的就是这个时刻，就是要等他们潜伏的力量在这个案情审理当中暴露出来，才能显示出我们掌握的情报和信息的力量。从这些公布的虚假的文字游戏当中完全是迷惑对方．欺骗老百姓游戏，说明习根本控制不了政法委，和中纪委，甚至中南坑他也没有绝对控制。孙力军的真正的罪行，根本没有触及，特别是杀人，绑架，大量的海外资金信托．由钥匙🔑澜代持！海外现金就超过300亿美元，代词的股份价值达1200亿美元以上，这里根本没有涉及到。
-![img](https://media.gettr.com/group23/getter/2021/09/30/12/d5469b10-f1f4-8cce-5663-d46af8bfd76f/ee89bab91260938dab7cea4687920932.jpg)
 
 ---
 
