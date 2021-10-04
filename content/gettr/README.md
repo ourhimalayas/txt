@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 10/4/2021 11:00 PM (UTC)`
+
+While Big Tech imploded, @GETTROfficial was still going strong! There’s a reason #GETTR is the fastest growing social media platform in history… Free Speech. Independent Thought. Superior Technology. It’s time to cancel “Cancel Culture.” Thank you for making your voice heard here on GETTR!!! <br/><br/>
+![img](https://media.gettr.com/group48/getter/2021/10/04/23/8590eb71-38a0-eb07-c1aa-9895d9a0f42f/9a5b2e9a705b0aa0610da0f067a9e79f.jpg)
+
+---
+
 `@miles 10/4/2021 4:41 PM (UTC)`
 
 以色列COVID-19 疫苗受害者证词(六）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
@@ -284,13 +293,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 以色列COVID-19 疫苗受害者证词(五）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
 ![img](https://media.gettr.com/group38/getter/2021/10/01/15/12/7dedb9de-a723-719d-668b-dafb061d4a9a/out.jpg)
-
----
-
-`@miles 10/1/2021 2:39 PM (UTC)`
-
-10月1号：尊敬的战友们好！没有庆祝的中国共产党的中国国庆。的内部政治斗争，已经像火山一样即将爆发，全世界都已经将中共国的政治，和经济，列为最大的不稳定因素，爆料革命新中国联邦……传播的疫苗灾难的真相，每时每刻都在改变着全球的政治，和人类的未来，星期天，上午9:00七哥继续大直播，向大家汇报。
-![img](https://media.gettr.com/group28/getter/2021/10/01/14/39/a9e72058-28bb-24bc-eb27-e5b9f1de57be/out.jpg)
 
 ---
 
