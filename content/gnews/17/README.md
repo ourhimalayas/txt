@@ -2,20 +2,15 @@
 ---
 
 
-## 新冠口服药即将获批 利益集团继续收割
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1572566/)
+## 2021年10月2日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1572623/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1037-e1633261896651.png)
-据《证券时报》旗下“e公司”公众号消息，美国生物制药龙头默沙东（Merck Co.）周五（10月1日）表示，该公司的新冠实验性药物可将新冠病毒感染者的住院和死亡率降低一半，将很快要求美国和世界各地的卫生官员批准其使用。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-10月1日，默沙东与其合作伙伴Ridgeback宣布名为molnupiravir的药物治疗轻度至中度新冠肺炎患者的三期临床中期数据，Molnupiravir治疗组的住院或死亡率为7.3%（28/385），对照组的住院或死亡率为14.1%（53/377），Molnupiravir降低住院或死亡率50%，p值为0.0012。死亡率方面，治疗组没有死亡，对照组有8例死亡。
+2015年，傅振华与郭文贵先生的秘密通话（下） 傅以郭先生家人和其本人人身安全为威胁，要求郭先生把人、钱、资产安排回国，同时，要求文贵先生查清王岐山、孟建柱海外资金和不正当男女关系情况，并声称这是习近平的指示。傅爆出孟决策的执行人是孙力军，吴征代表孙力军和孟建柱
 
-上述报道称，若获得批准，默沙东的药物将成为首个被证明可以治疗新冠病毒感染的药物，或将成为抗击新冠大流行的重大进展。美国目前批准的所有新冠疗法都需要静脉注射或注入体内。Merck抗新冠病毒新药Molnupiravir以每粒$70获美$1.2Billion订单，其减少住院与死亡有效率为47%。而伊维菌素有效率为88%，每粒$0.58。同样的5日疗程，天壤之别的价格，因为伊维菌素已无专利保护可以随意生产。同样道理 还有羟氯喹、地塞米松、青蒿素能够预防治疗中共病毒的药物也是不会被推荐给患者使用的，大药企与政府勾结掠取纳税人财富，国家已蜕变成统治集团奴役大众的机器。
+In 2015, Fu Zhenhua had a secret call with Mr. Guo Wengui（Part 2-2) Fu threatened Mr. Guo’s family and his own personal safety and asked Mr. Guo to arrange the return of his family members, money and assets back to China, and at the same time, asked Mr. Wengui to find out about Wang Qishan and Meng Jianzhu’s overseas funds and inappropriate sexual relationships, claiming that this was a directive from Xi Jinping. Fu exploded that Sun Lijun is the executive of Meng Jianzhu’s decision, and Wu Zheng (Bruno Wu) represents Sun Lijun and Meng Jianzhu
 
-信息来源：[http://www.eeo.com.cn/2021/1002/506551.shtml](http://www.eeo.com.cn/2021/1002/506551.shtml)
+[【2021年10月2日】文贵先生盖特原文](https://gettr.com/post/pcwish0018)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)
+**喜联盟Gnews编辑部**

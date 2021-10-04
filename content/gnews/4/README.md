@@ -2,22 +2,34 @@
 ---
 
 
-## 兔死狗烹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1572654/)
+## 法媒指责中共镇压维吾尔人的同时摧毁新疆环境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572732/)
 
-作者：东京樱花团｜阿恩
-![](https://lh5.googleusercontent.com/ukmWCn-DxixZ_7IYSoE5V5mLFf8GnE-mY0wSvnFOF9RXIO9ML91gvQXcxAmFghfX1cFdo6CCIpIDxgL0Bg6Bdte0W6M7UbNP0HnDr3i0_W5pPejnIGKdZmSNP8NzpSO_oLLWaZxY=s0)
-2012年中共红人唐英年在特首选举中被曝桃色新闻，梁振英得以成功上位，梁上任后被曝仍然兼职戴德梁行日本公司董事，之后收受上千万的“薪资”终止了职务，此事一直被坊间要求追责，但梁的特首位置却丝毫不受影响。梁振英在位期间劣迹斑斑，他全面开放自由行导致香港物资供应紧缺物价飞涨；用警黑联手的卑劣手段暴力镇压争取普选的港人，导致港人与警察之间的矛盾日益恶化，2016年春节因食环署人员粗暴执法小贩，引发激烈的警民争斗。梁不仅治港无能，连孩子也疏于管教，其女深受其父劣政的所害，被同辈歧视和排斥，有严重的心理问题和暴力倾向，更曾掌掴其母。梁家的家丑不断被媒体曝光，许多港人叹息孩子无法选择自己的父母。
+栏目记者/责任编辑：在远方
 
-梁振英在众人喊打的骂声中离开礼宾府，直至2019年反逃犯条例运动期间开始露头声讨示威的港人，其后中共直接管制香港，暴力“平复“香港的民怨，梁的腰板正式硬了起来，不断在社交平台和媒体上发表爱国言论，炮轰民主人士，并经常点名要求港府清算目标人物和组织，他又对现任政府的施政提出诸多意见，借以彰显自己执政期间的先见之明，并毫不掩饰地透露有意再次竞选特首。被剥夺了选举权的港人正以吃瓜群众的身份观看港共内斗时，今日的报章在头版曝光了数个国家领导人的海外影子公司，包括香港的董建华及梁振英正在被「国际调查记者同盟」（ICIJ）的潘多拉泄密文件调查，其中重提梁的利益申报问题，此报道被数家港媒转载。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-- ***延展阅读：***[***报道指梁振英曾「兼任」公司董事***](https://www.hk01.com/%E6%94%BF%E6%83%85/684344/%E5%A0%B1%E9%81%93%E6%8C%87%E6%A2%81%E6%8C%AF%E8%8B%B1%E6%9B%BE-%E5%85%BC%E4%BB%BB-%E5%85%AC%E5%8F%B8%E8%91%A3%E4%BA%8B-%E6%A2%81-%E6%9C%89%E8%AA%A4%E5%B0%8E%E6%88%90%E5%88%86-%E4%BA%A4%E5%BE%8B%E5%B8%AB%E8%99%95%E7%90%86)
-- ***延展阅读：***[***【潘朵拉泄密文件】家族涉72 间离岸公司董建华拥有7 间曾拟用作开设汇丰户口***](https://www.thestandnews.com/politics/%E6%BD%98%E6%9C%B5%E6%8B%89%E6%B4%A9%E5%AF%86%E6%96%87%E4%BB%B6%E5%AE%B6%E6%97%8F%E6%B6%89-72-%E9%96%93%E9%9B%A2%E5%B2%B8%E5%85%AC%E5%8F%B8-%E8%91%A3%E5%BB%BA%E8%8F%AF%E6%93%81%E6%9C%89-7-%E9%96%93-%E6%9B%BE%E6%93%AC%E7%94%A8%E4%BD%9C%E9%96%8B%E8%A8%AD%E6%BB%99%E8%B1%90%E6%88%B6%E5%8F%A3)
+专注于报道环境议题的法国媒体《Reporterrre》发表文章，指责中共通过核试验、石油开采、稀土开采和大规模耕种棉花等方式，在残酷镇压维吾尔人的同时也彻底的摧毁了新疆的自然环境。
 
+文章指出，新疆的环境问题与其人权遭受侵犯紧密相关。中共在新疆进行的45次核试验，已造成19万人过早死亡，核试验地区的民众的癌症比例比中国平均数据高出30至35倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1004-AM1-3.005.jpeg)
+自中共掌权以来，在新疆进行的石油、天然气和煤矿开采，对当地空气造成严重污染，大规模的棉花种植也造成土地化学污染。而中共近期启动的新疆稀有金属矿的开采，必将导致更加严重的环境后果。
 
-爆料革命郭文贵先生在数次大直播中已警示中共内部各派政治角力已到你死我活的地步，隶属于中共各大家族的大型企业和金融机构陆续爆煲，连累各国养老基金血本无归，借疫苗事件引发的国际追责呼声日渐汹涌，中共此时抛出两位忠心耿耿的元老确实令人唏嘘。未来事态的发展需要密切留意郭文贵先生的爆料，但中共体制内的党员们由此可以更加清楚，中共政权为了维系生存，任何人都是可以随时牺牲的代价。
+产自新疆的原材料以及产品都被中共运往中国沿海地区或出口海外牟利，当地民众遭受严重的环境后果却并未获得任何好处，中共对新疆环境的彻底摧毁是其破坏人权的行径之一，需要引起国际社会的关注。
+(本文仅代表作者观点)
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)
+参考链接：[北京在镇压的同时摧毁维吾尔人的生存环境](https://www.rfi.fr/cn/专栏检索/法国报纸摘要/20211003-北京在镇压的同时摧毁维吾尔人的生存环境)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

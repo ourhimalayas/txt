@@ -2,58 +2,27 @@
 ---
 
 
-## 武毒所杂志：美官员发表了几十份中共军方的研究报告
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1572369/)
+## 秘翻在线：彭佩奥抨击拜登向中共磕头的绥靖政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572448/)
 
-- **编译：西班牙喜悦农场–wenwu**
+#### 撰稿：彩虹
 
+#### 责编：胡天       
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-64.png)图片来源：美联社
+10月3日，《新闻极限》报道了前国务卿彭佩奥针对毒品贩运、阿富汗和气候变化等问题，抨击拜登对中共磕头的“绥靖政策”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-55.png)
+周日，蓬佩奥在WABC 770 AM-N.Y.的“猫的圆桌会议(*The Cats Roundtable*)”节目中接受了主持人约翰‧卡西马蒂斯（John Catsimatidis）的采访。他指出，许许多多的安全问题是相互关联的，而中共国与毒品贩运、阿富汗问题和气候变化等都有关系。
 
-《**Virologica Sinica**》**—**隶属于武汉病毒研究所的科学杂志**—**已经发表了几十项由为共产党政权人民解放军工作的中共国研究人员，撰写的研究报告。
+关于边境安全，他说道：“当边界安全漏洞百出的时候，这些卡特尔（毒品和人口贩运集团）想出了赚钱的办法，他们不仅找到如何进入德克萨斯州、加利福尼亚州和亚利桑那州的办法，而且还在全国各地建立网络。我们的地方执法部门和警长办公室因为毒品而面临巨大压力。而且，全美国的孩子们将会因为本届政府未能确保边境安全而死亡。”
 
-《Virologica Sinica》的[期刊](https://www.virosin.org/news/AimsandScope.htm)将武汉病毒研究所的顶级蝙蝠冠状病毒研究员石正丽——被称为“蝙蝠女”列为其[主编](https://www.virosin.org/news/EditorialBoard.htm)。
+对于阿富汗和中共国的影响力，“他们（中共国）会找到立足的方法，扩大他们对该立足地方的投射力量。而我们的政府，已经向中共磕头，我们看到，绥靖政策已初现端倪”。
 
-另有9名来自这个有争议的实验室的在其编辑委员会任职，许多[科学家](https://thenationalpulse.com/breaking/ex-cdc-chief-covid-lab-theory/)和政府官员认为武毒所的实验室是中共病毒（covid-19）的起源。
+关于拜登政府对华为首席财务官孟晚舟释放的问题，彭佩奥说“上周，（政府）作出了一项决定，允许司法部撤销对华为首席财务官的指控。华为公司违反了我们对伊朗的制裁，而且它是一家努力窃取所有美国人隐私信息的公司。就我而言，我不明白他们（拜登政府）为何会放她一马。中共国将两名加拿大人扣为人质。我认为我们都需要认真思考这个问题。中共挟持人质是为了让某人回到他们的国家，这种做法和伊朗的行为方式没有啥区别。”
 
-据《国家脉动》的披露，该杂志已经发表了几十项研究，列出了受雇于中共国军事控制机构的个人。几年来，该杂志聘请的[研究人员](https://www.virosin.org/news/lianjie/4356a257-b02a-4eb0-9c78-ca1a4c07f0ac_en.htm)来自人民解放军（PLA）307医院、总医院、第三军医大学和[第四](https://www.virosin.org/news/lianjie/f11f0776-703b-4114-940d-57905bdd1739_en.htm)军医大学，甚至担任该杂志的编辑和审核工作。
+对于气候变化特使约翰·克里（John Kerry）的计划，彭佩奥说出了问题的实质。“当我听到前国务卿约翰·克里谈论气候变化和建造电池厂时，这基本上是将美国经济交给了中共。”他指出阿富汗拥有丰富的稀有金属，可以用来帮助中共国建立电动汽车用电池的主导地位。“如果你真的想发展电池行业，最好是在美国国内建设它。半导体行业也是如此，但我们之前放弃了。”
 
-在《**Virologica*****Sinica***》上发表的研究，包括那些[专注](https://virosin.org/fileZGBDX/journal/article/vs/newcreate/s12250-021-00425-4.pdf)于**COVID-19 **的研究，也将武汉病毒研究所的研究人员与解放军中南部战区司令部总医院的研究人员，一起列为作者（如下图）。
+彭佩奥建议，“我希望这届政府不要如此狭隘地关注气候变化，而忘记了电池、稀有金属等事情，这也是美国国家安全的重要组成部分。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-57.png)
+**新闻来源**
 
-工作单位是，[军事医学研究所](https://www.virosin.org/cn/article/id/VS19951001.0094)、[第一](https://www.virosin.org/fileZGBDX/journal/article/vs/1993/1/PDF/1993-01-03.pdf)，第二，[第四](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/6/PDF/060601.pdf)，[和](https://www.virosin.org/fileup/PDF/20040201.pdf) [第五](https://www.virosin.org/fileZGBDX/journal/article/file/4f1e5be1-391c-463d-a182-b018e38d157d.pdf)军[医](https://www.virosin.org/fileZGBDX/journal/article/vs/1997/3/PDF/1997-03-05.pdf)[大学](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/1/PDF/060106.pdf)——所有的工作单位都是由解放军控制。一些研究，其中包括[构建](https://www.virosin.org/fileZGBDX/journal/article/vs/2005/2/PDF/050213.pdf)“重组”病毒的研究，另外还包括来自[中共国的](https://www.virosin.org/full0/060109.pdf)军事医学[科学院](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/4/PDF/060404.pdf)的[计数](https://www.virosin.org/fileZGBDX/journal/article/vs/2021/1/PDF/vs-36-1-113.pdf)[作者](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/4/PDF/060416.pdf)，其名单已发表在该杂志上。在武汉[大学](https://www.virosin.org/fileZGBDX/journal/article/vs/2004/6/PDF/2004003.pdf)等武汉机构工作的研究人员（如下图），看到他们与解放军广州司令部武汉总医院 共同进行的研究，发表在《*Virologica Sinica*》上。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-59.png)
-
-来自中共国人民解放军[南部](https://www.virosin.org/article/doi/10.1007/s12250-021-00356-0)、[中部](https://www.virosin.org/fileZGBDX/journal/article/file/0d1f8128-4b8f-4a82-ab3a-1048700895fd.pdf)和[北部](https://www.virosin.org/fileZGBDX/journal/article/file/22e033cf-49ae-40ab-9a24-f9288e853385.pdf)战区司令部命令预防控制中心（**CDC**）的作者，也在《***Virologica Sinica***》上发表文章。此外，来自解放军运营的医院网络的几个研究所的研究人员，如解放军[第](https://www.virosin.org/article/doi/10.1007/s12250-016-3914-2)[**171**](https://www.virosin.org/article/doi/10.1007/s12250-016-3914-2)[医院](https://www.virosin.org/en/article/doi/10.1007/s12250-017-4000-0)的急诊科和解放军第**307**医院的[呼吸内科](https://www.virosin.org/fileup/PDF/20140206.pdf)呼吸内科，也曾在该杂志上发表了文章。
-
-《国家脉动》此前曾[报道](https://thenationalpulse.com/exclusive/niaid-director-on-wuhan-journal-ed-board/)，在福奇的国家过敏和传染病研究所 (NIAID) 的官员，曾在该杂志的编辑委员会任职。
-
-该杂志还多次发表了进行功能增强研究的的研究报告，其显明了福奇在他的国家卫生研究院（NIH）[参与](https://thenationalpulse.com/exclusive/audio-fauci-funded-researcher-describes-gain-of-function-collaboration-with-wuhan-lab-reveals-nih-was-very-supportive/)了武毒所的这种有争议的病毒功能增强风险形式后，是故意[说谎](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)否认。
-
-*2017*年《*Virologica Sinica*》的一篇文章[指出](https://virosin.org/fileZGBDX/journal/article/vs/2017/1/PDF/10.1007s12250-016-3902-6.pdf)：
-
-“为了确定登革热病毒（*DENV*）的进入因子，*Amara*的小组进行了功能增强互补*DNA(cDNA)*筛选，以寻找允许最小易感细胞系*293T*被*DENV*感染的宿主蛋白（*Carnec*等人，*2015*）*”*
-
-“通过使用或不使用相关的 miRNA 抑制剂转染细胞，同时进行功能增强和功能丧失试验。24小时后，将 Act-D 加入培养基中，”另[一项研究](https://www.virosin.org/fileZGBDX/journal/article/vs/2019/3/PDF/vs-34-3-278.pdf)指出。还有一项研究引用了这种做法，[评论说](https://www.virosin.org/fileZGBDX/journal/article/vs/2020/4/PDF/vs-35-4-363.pdf)：“在这种筛选中可以采取两种主要的方法：功能增强，其中使用过表达的蛋白质库，以诱导或放大限制。”
-
-武汉病毒研究所控制的期刊与解放军之间出土的联系[突显](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)了，武汉实验室与中共国军方保持的[工作](https://thenationalpulse.com/exclusive/nih-signed-mou-with-chinese-science-org-funding-pla/)关系，并且该实验室的资金来自安东尼·福奇那里的[数百万美元](https://reporter.nih.gov/search/xQW6UJmWfUuOV01ntGvLwQ/project-details/9819304)资助。
-
-**简评：**
-
-**未来如果要出现什么热病毒，这就说明又是起源于武毒所、解放军，以及还包括了福奇的资金和技术馈赠。那么，现在就是看中共跨国恐怖分子有多大几率再次放毒了。值得一提的是，福奇的NIH官员也担任了WIV《Virologica Sinica》编辑委员会成员，从而参与了病毒功能增强性研究。这就再次证实了福奇的听证会上的谎言。**
-
-**最后，希望更多有缘人接受疫苗的真相，而不是等待出现副作用的发生。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-61.png)
-
-（文章仅代表作者观点 与GNEWS无关）
-
-新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/wuhan-lab-journal-published-pla-studies/)》｜作者：娜塔丽**·**温特斯｜发布时间：**2021**年**10**月**3**日
-
-* * *
-
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+[Mike Pompeo Warns Biden ‘Appeasement’ Has ‘Kowtowed to China’](https://www.newsmax.com/newsfront/mike-pompeo-border-crisis-energy-chinese/2021/10/03/id/1038909/)

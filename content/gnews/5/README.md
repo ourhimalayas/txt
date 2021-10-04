@@ -2,43 +2,32 @@
 ---
 
 
-## 美国关注中共国在台湾附近的“挑衅性”军事行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1572650/)
+## 阿联酋前外交大臣称美国才是盟友!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572694/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/fighter-jets-china-taiwan-1.jpg)图片：来自网络
-**摘要翻译：**
+栏目记者/责任编辑：文龙
 
-在中共国战斗机和轰炸机对台湾防空区进行有史以来最大规模的入侵之后，美国周日猛烈抨击中共国的“挑衅性”和“破坏稳定”的军事活动。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-美国国务院发言人内德·普莱斯(Ned Price)在一份声明中说：“美国非常关注中华人民共和国在台湾附近的挑衅性军事活动，这破坏稳定，有误判的风险，并破坏地区和平与稳定。”
+今年2月卸任阿联酋外交大臣安瓦尔·加尔贾什（Anwar Gargash）目前担任阿联酋总统的外交顾问，上周六10月2日安瓦尔在阿布扎比出席一场国际论坛并讲话，称对中美两国不断紧张的关系表示担忧, 担心这是一场正在逼近的冷战。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1004-AM1-3.003.jpeg)
+对与中共和美国的关系，安瓦尔称，美国一直是阿联酋的亲密盟友。但中国对阿联酋石油的需求使其成为海湾地区最大的买家，中美的交恶以及贸易战，让包括阿联酋在内的中东石油国家面临选边站的两难选择。但安瓦尔也在讲话中暗示，对阿联酋来说,与中共可以成为贸易伙伴，但美国才是更为透明的战略盟友。
 
-中共政府在周五举行了迄今为止对台湾最大规模的空中武力示威来庆祝国庆节，用38架战机低飞掠过这片自治的民主岛屿上空，其中包括具有核打击能力的轰-6战略轰炸机。
+通过文贵先生的爆料揭示，我们了解到阿联酋在中共外交事务中的重要性。 安瓦尔称”我们不想成为这场新冷战中的棋子”，但他没有意识到的是，所谓中美对峙新冷战，早已演变成为一场中共对世界的”病毒超限战” ，并已经杀死包括阿联酋在内的全球450万人，且还在通过疫苗试图荼毒更多人！
+(本文仅代表作者观点)
 
-台湾方面声称，随后在周六（中共） 以39架飞机创造了入侵新纪录，台湾指责中共政府“欺凌”和“破坏地区和平”。
+参考链接：[阿联酋高官：我们都很担心一场逼近的冷战来临](https://www.rfi.fr/cn/中东/20211003-阿联酋高官-我们都很担心一场逼近的冷战来临)
 
-自2016年蔡英文总统当选以来，中共政府加大了对台北的压力，蔡英文表示，她将台湾岛视为“已经独立”而并非“一个中国”的一部分。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-在习近平的统治下，中共国战机几乎每天都会入侵台湾的防空识别区(ADIZ)。习声称台湾成为大陆的一部分是“不可避免的”。
+终审：FoxRina
+校正/发稿：我不在这里
 
-美国军方官员已经开始公开谈论担忧中共政府可能会采取以前所不可想象的行动并入侵台湾。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-保护台湾已成为华盛顿罕见的两党问题，越来越多的西方国家开始加入美国的“航行自由”演习，以反击中共国对南海和台湾海峡的主张。
-
-**简评：**
-
-根据我们爆料革命得到的消息，为了缓解中共国内部经济上和政治上的压力，为了分散世界各国对中共政权利用新冠病毒攻击全世界的注意力，习近平政府随时可能采取入侵台湾的行动。中共军机通过不断骚扰台湾领空来试探美国、日本及国际社会的反应，就是在为其入侵做准备。如果美国及国际社会不能采取有效的维护台湾的行动，而仅仅是发表一些声明和抗议，甚至是做一些形式上的演习，那中共政权占领台湾将不可避免。台湾作为中、美、日三国战略利益交汇地，如果被中共政权实际占领，日本、美国在亚太地区利益会很快被中共侵蚀，南海周边国家也将受到中共的霸凌。当这个邪恶的共产政权通过占领台湾，实习其军事扩张的目的之后，其继续危害世界的行为将更加难以控制。
-
-[新闻链接](https://www.barrons.com/news/us-concerned-by-provocative-chinese-military-action-near-taiwan-01633267807)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评：叶知秋 | 校对：随波逐流*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
