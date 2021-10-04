@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@undeadthornbird 10/3/2021 11:43 PM (UTC)`
+
+
+![img](https://media.gettr.com/group2/getter/2021/10/03/23/43/cc11b131-3fb3-4de3-6914-e0a2ea9a36a3/6db4b0e6b1aca0b115a3dab27b91a9c4.gif)
+
+---
+
 `@miles 10/4/2021 12:48 AM (UTC)`
 
 10/3/2021 Miles Guo: None of the CCP’s 4.6 million people in the public security bureaus, procuratorates, and courts dares to challenge Fu Zhenghua! Fu Zhenghua sent to Canada the third oldest brother of his family, who threatened to kill my family and colleagues if I kept recording audios or talking about Fu. To protect the safety of my family and colleagues, I didn’t talk about Fu Zhenghua in the past year.<br/><br/>10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华！傅政华派他们家傅老三来加拿大来威胁文贵，称如果我再录音，再说傅政华，就将杀害我的家人和同事！为了家人和同事的安全，文贵过去一年都没有谈过傅政华<br/>
@@ -286,14 +293,6 @@ FDA在通过辉瑞中共疫苗加强针之前没有证明前两针疫苗不再�
 
 澳参议员评论中共对澳大利亚的渗透，包括最近的“一带一路”交易丑闻<br/><br/>Australian senator comments on the CCP’s infiltration of Australia, including the recent Belt and Road deal scandal<br/>
 ![img](https://media.gettr.com/group39/getter/2021/09/30/12/b44dfce1-58f6-161f-5baf-f3812cc46cc1/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@baguan 9/30/2021 12:08 PM (UTC)`
-
-【商业票据大地雷💣💥 ｜ 9月30日恒大、碧桂园、融创等地产商票贴息报价】<br/>1. 恒大系：1.5至3折，躺平中<br/>2. 融创地产系：24.77-33.73%<br/>3. 中铁广通建设：47.69% ，直逼恒大<br/>4. 世茂：21-28%<br/>5. 荣盛地产：民间贴现率从6月1日的18%一路飙升，至9月29日，市场贴现率高达33.92%！已出现拒付数据<br/>6. 绿地系：20.56-42.32%（近一个月涨的有点猛，需警惕）<br/>7. 碧桂园系：25.6%<br/>8. 富力地产：27.32%<br/>9. 金科地产21.83-29.93%<br/>10. 华夏幸福：35.62-47.23%<br/>11. 实地地产：30.04-37.60%<br/>都完球🥚了 ——转自韩东
 
 ---
 
