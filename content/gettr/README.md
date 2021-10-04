@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/4/2021 4:41 PM (UTC)`
+
+以色列COVID-19 疫苗受害者证词(六）<br/><br/>以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。<br/><br/>证词项目网站： https://www.vaxtestimonies.org/en/
+![img](https://media.gettr.com/group24/getter/2021/10/04/16/41/bb1c537b-0ce7-c12d-2566-b11e0584c4ba/out.jpg)
+
+---
+
 `@miles 10/4/2021 3:26 PM (UTC)`
 
 WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇👇👇👇【GTV投资者对SEC的五大诉求：<br/>GTV Investors‘ Five Demand For The SEC<br/>1. 立刻归还属于投资者的资金<br/>Immediately Return GTV investor’s funds <br/>2. 立刻停止和中国共产党的勾兑<br/>Immediately stop collusion with the Chinese Communist Party<br/>3. 立刻停止针对华裔投资者的种族歧视<br/>Immediately stop racial discrimination against Chinese-Americans<br/>4. 赔偿投资者的一切损失<br/>Compensate GTV Investors for our loss <br/>5. 要求负责的人出来对话<br/>We demand to talk to those in charge for accountability】<br/><br/>https://gtv.org/broadcast/watch/615b1a14304e992109af6570
@@ -284,13 +291,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 10月1号：尊敬的战友们好！没有庆祝的中国共产党的中国国庆。的内部政治斗争，已经像火山一样即将爆发，全世界都已经将中共国的政治，和经济，列为最大的不稳定因素，爆料革命新中国联邦……传播的疫苗灾难的真相，每时每刻都在改变着全球的政治，和人类的未来，星期天，上午9:00七哥继续大直播，向大家汇报。
 ![img](https://media.gettr.com/group28/getter/2021/10/01/14/39/a9e72058-28bb-24bc-eb27-e5b9f1de57be/out.jpg)
-
----
-
-`@miles 10/1/2021 4:15 AM (UTC)`
-
-9/30/2021 Miles Guo’s GETTR: Wang Qishan and Meng Jianzhu have done numerous things that even Xi doesn’t know. The CCP’s recent announcement about Sun Lijun has covered up Sun’s over 100 murders and kidnappings, his attempt to murder and assassinate Xi, and the surveillance footage of the CCP’s top leaders, indicating that Sun Lijun’s force is getting stronger and is everywhere!<br/><br/>9/30/2021文贵盖特：过去几年王岐山和孟建柱干的很多事连习都不知道；中共最近关于孙力军的公告掩盖了他杀人绑架百次以上、企图谋杀和暗杀习以及监控中央领导的视频，该公告恰恰说明孙力军的势力正变得更强且无处不在！<br/>
-![img](https://media.gettr.com/group3/getter/2021/10/01/04/15/c54221e7-8a7f-cb45-cbe4-2df5e900a0e3/out.jpg)
 
 ---
 

@@ -2,21 +2,20 @@
 ---
 
 
-## 前辉瑞员工称，接种辉瑞疫苗后人体感染病毒机率增加
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572946/)
+## 郭文贵先生爆料中共外交部和政法委的腐败黑暗关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572958/)
 
 栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-75.png)
-前辉瑞公司的员工凯伦·金斯敦，于9月下旬一次公开会议上表示，根据辉瑞公司关于人体免疫力随时间变化的研究报告，基于3万6千人的实验数据，接种一剂辉瑞疫苗后，较未接种时，人体感染病毒的机率增加了3倍；当接种第二剂后，随着时间的推移，人体免疫力逐渐减弱，感染率将持续升高。该研究报告也出现于9月17日召开的食品和药物管理局（FDA）咨询委员会会议简报中。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-76.png)
+外交部是一个国家政府的缩影。各国外交部除了代表国家形象，表达国家官方的立场，收发护照和签证外，还有两个重要的功能。其一，对外的合法的情报部，外交部的官员即相应情报人员。其二，大使馆的所在地相当于该国领土，任何国家都利用这块土地，表面合法行使外交权，实际进行走私、毒品、绑架等活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide2-5.jpeg)
 
-医疗自由权利律师托马斯·茨伦也出现在本次会议中，茨伦此前在演讲中，向人们展示了医疗服务中心CMS，在来自不足20%美国人口的数据中，在接种新冠病毒疫苗后14天死亡的医保患者就接近5万人。茨伦目前正在参与几起针对联邦机构的欺诈，和侵犯医疗自由权利的重大案件。
+中共情报部主要由国家安全部、二部和三部组成，外交部是其海外延申。中共政法委、公安部、安全部等部门指派相关人员进驻外交部，而这些官员并非由外交大使管理，而直接听命于相应的情报部门。
 
 (本文仅代表作者观点)
 
-参考链接：[‘If you get the Pfizer vax, you’re more likely to get COVID’: Industry analyst flags FDA study](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)
-[Vaccines and Related Biological Products Advisory Committee Meeting](https://www.fda.gov/media/152176/download)
+参考链接：[2021-10-03 文贵大直播：中共外交部是情报机关；爆料程国平，大使倪坚；王毅，杨洁篪，王沪宁一定被抓；外交部和政法委的腐败黑暗关系；傅政华与文贵的通话录音变声的真相；习王江曾厮杀的核心；病毒解药一定都含有青蒿素，伊维菌素；联合国欧洲官方开始研究承认新中国联邦；](https://gtv.org/video/id=61599f5b304e992109ae6927)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
