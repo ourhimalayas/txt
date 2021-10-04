@@ -2,17 +2,29 @@
 ---
 
 
-## 青蒿素——两次疫苗接种者的福音
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1573266/)
+## 秘翻在线：GTV投资者们在SEC总部抗议其官僚作风
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573294/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/file-20200708-3974-1bymbn3.jpg)图片来源：theconversation.com
-郭文贵先生在10月3日的直播中说，对于打了一次或两次疫苗的人，青蒿素可以清除体内90%以上的病毒。它的作用还远远不止这些。
+撰稿：WENJIE
 
-青蒿素的核心是提取和合成，这是一项非常精细的工作。对于打了一次或两次疫苗的人，可以清除体内90%以上的病毒。它未来对于癌症、艾滋病也会有很好的作用，甚至可以解决脑血管和心血管的一些疾病。它对于女性疾病，特别是更年期和中老年女性疾病有益，因为它可以把血液中的毒和变异清除掉。它还可以清理身体内的重金属。如果染上了中共病毒，它是100%最好的药。中共病毒所有的解药离不开青蒿素和伊维菌素，屠呦呦对人类的贡献是超过女娲。
+责编：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-05-015444.jpg)
+2021年10月4日GTV直播报道，GTV部分投资者在SEC华盛顿总部抗议SEC与中共勾兑，延续官僚作风，不及时返还GTV投资者的投资款。
 
-看来，上天早已为这个他又爱又恨的人间准备了一味解药。具有讽刺意义的是这毒药和解药来自于同一个国家——一个一直以来缺乏创造力的国家。
+在九月SEC与GTV达成和解协议后，按照协议，SEC应该立即归还GTV投资者们的投资款，但是按照实际时间进度，SEC并没有履约。
 
-参考链接：
+据现场对抗议者们的采访，抗议人群的GTV投资者对SEC有五大诉求：
 
-[2021-10-03 文贵大直播](https://gtv.org/video/id=61599f5b304e992109ae6927)
+GTV Investors‘ Five Demand For The SEC
+**1. 立刻归还属于投资者的资金**
+Immediately Return GTV investor’s funds
+**2. 立刻停止和中国共产党的勾兑**
+Immediately stop collusion with the Chinese Communist Party
+**3. 立刻停止针对华裔投资者的种族歧视**
+Immediately stop racial discrimination against Chinese-Americans
+**4. 赔偿投资者的一切损失**
+Compensate GTV Investors for our loss
+**5. 要求负责的人出来对话**
+We demand to talk to those in charge for accountability
+
+今天是GTV投资者们抗议的第一天，相信抗议将会持续一些时日。也请更多身在美国的投资者加入的抗议的队伍中，全球其他地区的投资者可以通过网上投诉写邮件的形式督促SEC尽快退款。
