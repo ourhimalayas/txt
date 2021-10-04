@@ -2,27 +2,23 @@
 ---
 
 
-## 破纪录39架共机扰台！台海战争一触即发
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571348/)
+## 十一话国殇 喀秋莎农场GTV特别节目
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571379/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-3.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G.jpg)
+10月2日，俄罗斯莫斯科喀秋莎农场以“十一话国殇”为主题请来了仰望七星和冰扬战友来到直播间，从国殇的“殇”字谈起做了一期特别节目。
 
-视频参看：2021.10.03早GTV新闻访谈
+节目中仰望七星战友谈到之所以称其为“国殇”日，殇在恶党恶政持续了72年，殇在恶党的罪恶还没有被曝光和揭露，殇在粉红的愚昧和普遍。总结了中共的四宗罪：对于生命的杀戮、对于自然的破坏、对于文化的践踏、对于人性的摧残。列举了中共国自其建国以来“三反五反”、大跃进、文化大革命，8964等等对中国人民的迫害，仰望七星战友还为大家讲解了中共国国庆节的由来。
 
-[https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c](https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c)
+冰扬战友结合近期发生的恒大地产违约事件、中共国大面积断电、限电、国庆期间的举国上下的庆祝活动，谈到了疫苗对人身体乃至对社会的伤害，分享了他对国殇的“殇”字的理解。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+两位战友还通过分享发生在自己身上的小故事，结合自己参加爆料革命以来的亲身经历，谈自己的变化，和世界的变化，更是谈到了参加爆料革命后看到了希望。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+主持人最后总结：中共自建立政权那一天开始，从未停止过对人民的奴役，他们将人性的弱点利用到极致，结合文贵先生四年来的爆料看中共自1949年以来给中国人民的苦难甚至是灾难，看到现在的种种现象分析判断中共的一党独裁的体制已经走到了尽头。恒大的事件，台湾问题，病毒，疫苗，限电等等一切问题从根本上来说就是共产党的问题，我们战友的任务就是传播疫苗真相，拯救更多的人，紧随爆料革命，从我做起，从现在做起，灭掉这个邪恶的组织-中国共产党。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多精彩内容请关注俄罗斯莫斯科喀秋莎农场GTV频道：
+
+[https://gtv.org/video/id=61585ed9304e992109ae042b](https://gtv.org/video/id=61585ed9304e992109ae042b)

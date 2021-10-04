@@ -2,44 +2,31 @@
 ---
 
 
-## 中共中纪委公告：原司法部长傅政华被立案调查
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1570951/)
+## 从&#8221;毛粉&#8221;到中共揭露者，著名前驻华记者梅兆赞去世
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571023/)
 
-作者：香草山农场-文仁
+栏目记者/责任编辑：文龙
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+纽约时报消息，英国著名前驻华记者梅兆赞不久前在伦敦去世，梅兆赞曾在剑桥大学学习汉语，并拥有哥伦比亚大学历史学士学位，后赴台湾继续学习中文和唐史。1972年梅兆赞首次访问中国的时候，还是一名激烈的左翼反战活动人士，并自称“毛粉”，随后他在中国各地采访报道，期间曾6次前往西藏，并采访了流亡中的达赖喇嘛。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2021.10.3AM-PICTURES-1234图片备用.005.jpeg)
+1989年的64屠杀事件改变了一切，梅兆赞作为前方记者，亲历了中共军队在天安门广场的镇压并被殴打受伤，因为对天安门事件的系列真实报道，他获得1989年英国媒体大奖的年度国际记者奖，也因此于1991年被中共驱逐出境。两年后，他接受了伦敦《泰晤士报》在香港的东亚编辑职位，在97年香港回归后，他于98年辞去了这一职务。
 
+“梅兆赞对极权独裁有着敏锐的洞察，他是最早开始谴责中共政权恶行的西方记者！” 这是同行对他的评价，梅兆赞从一个激进的“毛粉”转变成一个中共暴政的揭露者，是因为他所看到和经历的事实改变了他 。无论外表看起来怎样，所有的共产独裁政权全都是邪恶残暴和不可理喻的，无一例外！
+(本文仅代表作者观点)
 
-中央纪委国家监委网站讯（10月2日11时）：全国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+参考链接：[前驻华记者梅兆赞去世，曾亲历天安门镇压](https://cn.nytimes.com/obits/20210929/jonathan-mirsky-dead/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片32.png)
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-傅政华现年66岁，2010-2015.2月北京市公安局党委书记、公安局长、北京市政法委书记，2015.1-2018.2任公安部副部长、中央政法委员、中央610办公室主任，2018.3-2020.4任司法部党组副书记、部长，2020年以后任中共政协闲职。
-
-郭先生2017年最早曝光傅政华腐败， 他自己以及亲属利用他在地方和中央的各级公安、政法委等领域重要职位的权力大搞权钱交易，收受贿赂，拉帮结派。
-
-通过傅政华我们就看出中共国的以假治国、以警治国、以黑治国的黑暗与腐败的本质。就在2019年3月时任司法部长的傅政华高调出镜，说要让法律长出牙齿，成为带点的高压线。结果现在这副獠牙变成了绞肉机，把他自己给绞了。
-
-中共国在这样一帮乌合之众的统治与管理之下，老百姓已经无处声张正义。只有消灭中共， 中国才有机会回归法治，走向正道主义。
-
-参考链接：
-
-[https://www.ccdi.gov.cn/toutiao/202110/t20211002\_251687\_m.html](https://www.ccdi.gov.cn/toutiao/202110/t20211002_251687_m.html)
-[https://www.sohu.com/a/300622582\_114731](https://www.sohu.com/a/300622582_114731)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
