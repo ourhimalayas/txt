@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/4/2021 12:19 PM (UTC)`
+
+10月4号：没有人愿意看到这种灾难的时刻发生，但是我们也要面对现实！【7哥  您说的疫苗灾难的空难事件已经发生了  10月3日米蘭一架私人飛機撞入空辦公室，造成8人死亡】
+![img](https://media.gettr.com/group4/getter/2021/10/04/12/19/4067a6a8-7557-fee2-73cf-64530a397c94/out.jpg)
+
+---
+
 `@miles 10/4/2021 9:57 AM (UTC)`
 
 10/3/2021 Miles Guo: There are 77 countries in the world that have received the information regarding the truth of the COVID vaccines. The CCP had begun to implement the plan to depopulate the world’s population long ago, with Liang Guanglie talking about using biochemical weapons to fight the Americans in the 90s. The COVID vaccines were prepared by the CCP in a very deliberate manner long ago! The most challenging time of the COVID vaccines disaster is the end of this year towards the beginning of the next year. Those with 3 COVID shots will have at least 50% of chance to die in the next 3 to 5 years!<br/><br/>10/3/2021 文贵直播：全世界已有77个国家收到了我们发出的关于疫苗真相的信息。中共早就开始实施消灭地球一部分人口的计划，梁光烈在90年代就曾说要用生化武器对付美国人，而冠状病毒疫苗是中共早就处心积虑准备好的！疫苗灾难最难的日子在今年年底到明年年初，打了三针的人起码有50%的机率在未来3到5年内死亡！<br/>
@@ -285,13 +292,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 9月30号，无论是政治．还是科学和宗教都不能迷信，迷信任何东西的代价是巨大的。爆料革命就是要让人类打破一切迷信和崇拜，让人们有基本的善恶．真假，辨别之能力，这就是未来我们建设新人类的根本的基础。【这位女士特别提到了她丈夫因为相信科学打了疫苗 ，死在了自己家的床上😭】
 ![img](https://media.gettr.com/group24/getter/2021/09/30/17/10/e99aea6e-328b-8ea1-22f5-84f51cd1483d/out.jpg)
-
----
-
-`@miles 9/30/2021 4:05 PM (UTC)`
-
-9月30号：尊敬的战友们好．以疫苗灭共．我们全球战友的合作效果显著，我们大家一定全力以赴，传播疫苗灾难的真相……全面的开始疫苗灭共的国际大决战！
-![img](https://media.gettr.com/group39/getter/2021/09/30/16/05/a5818dcd-1e46-7f69-be06-a8952b685dd8/out.jpg)
 
 ---
 
