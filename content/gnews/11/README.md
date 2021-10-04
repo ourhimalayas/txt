@@ -2,15 +2,29 @@
 ---
 
 
-## WhatsApp突发故障关闭
-` 象声` [轉載自GNews](https://gnews.org/zh-hans/1573267/)
+## 秘翻在线：GTV投资者们在SEC总部抗议其官僚作风
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573294/)
 
-据网络消息disclose.TV报道说：Facebook、WhatsApp、Instagram和Messenger已经关闭了一个多小时，而且还在持续。据“关闭工具成本”(Cost)粗略估计，全球经济每小时损失约1.6亿美元。有媒体警告说：远离扎克伯格的应用。目前为止，暂时不知道是什么原因导致。
+撰稿：WENJIE
 
-很多网友跟帖表示应该永久关闭扎克伯格的Facebook和公司。Facebook在言论管控方面有浓厚的国际共产主义色彩，很多年以前，网上就流传出他在北京长安街跑步和读中共领导习近平的思想著作的照片。
+责编：人间四月
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-05-015444.jpg)
+2021年10月4日GTV直播报道，GTV部分投资者在SEC华盛顿总部抗议SEC与中共勾兑，延续官僚作风，不及时返还GTV投资者的投资款。
 
-一小时前，网络新闻显示FACEBOOK INC 的股票在其应用程序的全球中断中继续亏损；最后下跌 5.6%
+在九月SEC与GTV达成和解协议后，按照协议，SEC应该立即归还GTV投资者们的投资款，但是按照实际时间进度，SEC并没有履约。
 
-参考链接：disclose.tv
+据现场对抗议者们的采访，抗议人群的GTV投资者对SEC有五大诉求：
 
-翻译&编辑：洛杉矶盘古农场–蓝精灵
+GTV Investors‘ Five Demand For The SEC
+**1. 立刻归还属于投资者的资金**
+Immediately Return GTV investor’s funds
+**2. 立刻停止和中国共产党的勾兑**
+Immediately stop collusion with the Chinese Communist Party
+**3. 立刻停止针对华裔投资者的种族歧视**
+Immediately stop racial discrimination against Chinese-Americans
+**4. 赔偿投资者的一切损失**
+Compensate GTV Investors for our loss
+**5. 要求负责的人出来对话**
+We demand to talk to those in charge for accountability
+
+今天是GTV投资者们抗议的第一天，相信抗议将会持续一些时日。也请更多身在美国的投资者加入的抗议的队伍中，全球其他地区的投资者可以通过网上投诉写邮件的形式督促SEC尽快退款。

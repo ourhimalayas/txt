@@ -2,39 +2,31 @@
 ---
 
 
-## 华裔英雄《尚气》撕下中共民族主义的遮羞布
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1572969/)
+## 法国天主教会至少有3000名工作人员涉嫌虐童
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1572976/)
 
-作者：在远方
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
+据美联社10月4日报道，法国一个独立委员会在调查法国罗马教会内的性虐待问题时称，在过去的 70 年里，至少有 3,000 名教区工作人员涉嫌虐待儿童，而其中三分之二是在教会工作的牧师。
 
+该独立委员会主席让-马克·索维 (Jean-Marc Sauvé) 在接受《Journal du Dimanche》杂志采访中表示，他们已经进行了22年的调查，全部调查结果定于近期公布。
 
+索维在采访中没有给出性虐待受害者的人数。他说：“自 1950 年以来，在 11,500 名牧师和教会人士中，我们估计涉嫌人数至少为 3,000 人。其中三分之二是教区神父。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/未命名的设计.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/phpYwaEJl.jpg)图片来自于网络
 
-好莱坞第一部由亚裔演员主演的漫威系列英雄电影《尚气与十环传奇》，在全球获得巨大成功。但由于紧张的美中关系和民族主义尘嚣日上，此片至今无缘与中国观众见面。
+他还说，有 22 起案件已因涉嫌犯罪而被转交给了检察官。其中有 40 多起涉嫌犯罪的案件被转交给教会官员，这些案件因年代久远而无法起诉。
 
-据悉，此片制作初期就非常重视中国市场，不但亚裔演员阵容强大，而且此片大量使用普通话，影片也运用了很多中国元素。
+报道援引索维的话说，从1950年到1970年该教会对受害者完全漠不关心，孩子们遭受的痛苦被忽视。
 
-据有关报导称，该片涉及辱华情节。且该片的主演刘思慕，曾于2016年发表推文，批评中共的审查制度非常不成熟和不明就里，还曾在访谈中提到，“活在共产主义的中国，很多人死于饥饿”。
+他补充说：“我们的目标是对所有滥用行为进行具体诊断，找出原因并得出所有后果。”
 
-虽然中共《环球时报》狡辩称该片无法在中共国上映是由于角色偏见，但这恰好反映出中共当局对民主自由思想和反抗精神的恐惧。
+*注：本文仅代表作者观点，与 Gnews无关*
 
-参考链接：[《尚气》获全球赞誉却踢到中国民族主义铁板](https://www.voachinese.com/a/marvel-s-shang-chi-was-made-with-china-in-mind-but-beijing-still-doesn-t-like-it-20211003/6255409.html)
+*参考链接：*
 
-编辑/校对/发稿：雪梨
+[Probe: Catholic Church in France had 3,000 child abusers](https://apnews.com/article/europe-religion-france-crime-child-abuse-928db836c85b5f4fcb403026cdf7a77f)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*编辑：文顺 校对：Ranting 发布：Ranting*
