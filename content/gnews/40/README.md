@@ -2,41 +2,28 @@
 ---
 
 
-## 中共国一组新闻简讯
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571772/)
+## 中共持续派谴战机扰台 美国表示担忧
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571775/)
 
-栏目记者：andy5
-责任编辑：文一
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+栏目记者/责任编辑：文真
 
 
 
-** **
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
 
-一、9月份的销售数据显示，恒大月销售额从高峰期的 2000 亿降到了 53 亿
 
-9月份恒大销售额仅为 53 亿，在大型房企中销售额垫底，同比下降幅度最大。 最大原因就是过量融资，恒大年销售额约为 7000亿，而债务则高达 2 万亿 – 超大型“庞氏骗局”，借新还旧手法导致巨额报表外债务 – 巨额债务逾期无法履约归还，致使资不抵债真相浮出水面，企业面临崩塌。
-
-二、中共国石油天然气股份有限公司原副总裁凌霄被查
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture111.jpg)
-【新京报】快讯：中共国石油天然气股份有限公司（简称“中石油”）原副总裁凌霄涉嫌严重违纪违法，被“主动投案”。目前公司纪检监察组正对其进行纪律审查，四川省监委正对其进行监察调查。 中石油是中共国国有的、在油气行业占主导地位的最大的油气生产和销售商，也是世界最大的石油公司之一。
-
-三、北京市政府倡议减少公众用电，胡锡进为此唱赞歌
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture113.jpg)
-北京市政府 10 月 2 日发文倡议全市暂停灯火秀，夜间景观照明时间压缩。无论北京限电的背景如何，胡锡进及时跟进发文为此唱赞歌，称其释放出积极的政治涵义。如此同时，其它一些城市却号召促进消费，最大限度地活跃城市经济。 看似矛盾的政令，说明中共国目前供电和经济都出现了严重的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2000.jpg)
+10月3日，中共军方继续派遣16架战机飞越台湾南部海域。 中共在周五派出38架战机入侵台湾防空区，周六再次派出39架战机。台湾政府对中共的入侵行为感到愤怒，并强烈谴责。但是，中共持续派遣战机扰台的行为，明确表示出中共政府根本不打算理会台湾的任何谴责或警告。 美国对中共在台湾的军事挑衅表示关切。美国国务院发言人普莱斯警告说，中共在台湾附近的军事活动有误判的风险，破坏了该地区和平与稳定。该声明敦促中共停止其对台湾的军事、外交和经济压力和胁迫，并补充说，军事挑衅作为台湾最大的武器供应国，将继续帮助台湾政府保持足够的自卫能力。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [中共国一组新闻简讯](http://9.1%20https://3g.163.com/dy/article/GLC24LF60535L5VU.html%209.2)
-2. [中共国一组新闻简讯](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%9F%B3%E6%B2%B9%E5%A4%A9%E7%84%B6%E6%B0%94%E8%82%A1%E4%BB%BD%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8/5816732%209.3%20https://news.ifeng.com/c/8A1q5DnrJOt)
+1. [中共持续派谴战机扰台 美国表示担忧](https://www.newsmax.com/newsfront/taiwan-china-warplanes-threaten/2021/10/03/id/1038886/)
+2. [中共持续派谴战机扰台 美国表示担忧](https://www.zerohedge.com/geopolitical/china-sends-nearly-40-jets-toward-taiwan-2nd-consecutive-day)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审编辑：Q大哥
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**

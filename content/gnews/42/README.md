@@ -2,29 +2,41 @@
 ---
 
 
-## 约翰逊议员称美没有FDA批准的中共病毒疫苗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571540/)
+## 法国媒体报道了关于郭文贵先生提出的“疫苗灾难”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571773/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+栏目记者/责任编辑：晓仙女
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J.jpg)yahoo.com
-罗恩·约翰逊（Ron Johnson）参议员在参议院质疑中共病毒疫苗的有效性后【1】，又曝出重大新闻，美国没有FDA正式批准的中共病毒疫苗。这对前些日子主流媒体火爆炒作的辉瑞疫苗获得了FDA批准的假新闻予以了澄清，约翰逊参议员亲自写信质询了FDA，得到的回复是，他们只延长了辉瑞疫苗在美国的紧急使用授权。
 
-看看《福克斯新闻》10月2日对参议员的采访，“参议员罗恩·约翰逊：美国没有FDA正式批准的中共病毒疫苗”，副标题透露，约翰逊解释说，在美国没有食品和药物管理局（FDA）批准的Comirnaty版本（疫苗）。【2】
 
-全文如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
 
-威斯康辛州共和党参议员罗恩·约翰逊（Ron Johnson）在“福克斯新闻黄金时间”（Fox News Primetime）上披露，还没有一种真正由FDA批准的疫苗。
 
-参议员罗恩·约翰逊：在美国，我们正在使用的疫苗还没有一种由FDA正式批准，FDA玩起了诱骗的游戏。他们承认他们批准的是辉瑞疫苗的Comirnaty版本，美国没有的。三天后，我给他们发了一封信，问他们“你们在做什么？” 他们所做的是延长了辉瑞疫苗在美国的紧急使用授权，30多天后了，他们还没有问这个非常简单的问题。如果你说辉瑞疫苗和Comirnaty是一样的，为什么你不提供FDA的批准文件呢？所以，没有FDA正式批准的疫苗。当然，他们宣布这个消息是为了让他们能够通过这些强制措施，让人们真地认为”哦，好吧，现在这些东西是FDA批准的。” 但它们不是，也许它们应该是，但FDA没有告诉我为什么。
 
-（原文完）
+10月2日，法国媒体【Franceinfo】报道说, “中国亿万富翁郭文贵先生提到疫苗灾难要来了！”
 
-是的，FDA偷换了概念，正式批准了一个不存在的Comirnaty版本，延长了目前在使用的实验性辉瑞疫苗的紧急使用授权，然后宣称被正式批准的Comirnaty版本供应量不足，请大家继续使用实验性的疫苗。结果疫苗生产厂家、主流媒体大肆渲染疫苗被正式批准了，掩盖了正在施打的疫苗的真相，让强制接种疫苗有了冠冕堂皇的理由。看上去FDA对参议员“为什么”的质询没有明确给出解释，放任他们炒作和强推疫苗，FDA等于给以强推疫苗接种的杀人者递了刀子。这种不正常的操作更说明背后必有阴谋，正道主义者必须坚持不懈地给予揭露，战友们，加油！
+新闻中提到三个要点：第一 疫苗灾难即将到来，会出现经济崩溃；第二 在明年年底，人类将不得不在生与死之间做出选择；第三 没有接种新冠疫苗的人才能存活。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture500.jpg)
+新闻中说：他（郭文贵先生）宣告“冠状病毒是中国政府开发的生物武器”。 此新闻采取真实影音作为背景，并强调郭先生在YouTube账号的订阅量有40万，还有自己的媒体–G News。
 
-有关链接：
+唯真不破是郭文贵先生发起爆料革命坚守的原则，国际媒体无论用怎样的方式发声，都会让更多人了解爆料革命。 笔者认为，当更多媒体对新冠病毒和疫苗引发争议、讨论、传播，就会加快揭露“中共病毒”和“冠状疫苗”是生化武器的真相，让更多人意识到：强制疫苗的人等同杀人犯。
 
-【1】[https://gnews.org/zh-hans/1565181/](https://gnews.org/zh-hans/1565181/)
+（本文仅代表作者观点）
 
-【2】[https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine](https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine)
+参考链接：
+1. [法国媒体报道了关于郭文贵先生提出的“疫苗灾难”](https://gettr.com/post/pcxq6c9e01)
+2. [法国媒体报道了关于郭文贵先生提出的“疫苗灾难”](https://www.francetvinfo.fr/sante/maladie/coronavirus/vaccin/vrai-ou-fake-guo-wengui-ce-milliardaire-chinois-qui-affirme-que-ledesastre-des-vaccins-va-arriver_4789897.html#xtor=CS2-765-%5Bshare%5D-)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)

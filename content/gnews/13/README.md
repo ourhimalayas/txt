@@ -2,75 +2,34 @@
 ---
 
 
-## 纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1572189/)
+## 银河快讯：日产欲将西班牙工厂出售给中共；日本和美国海岸警卫队联合训练
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1572242/)
 
-据《门户专家网》克里斯蒂娜·莱拉（ Cristina Laila ）2021 年 10 月 3 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/hs_adobespark.jpeg)
-周六，被解雇的医护人员在史坦顿岛大学医院外进行反强制疫苗抗议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-10.png)[图片来源](https://china.kyodonews.net/)
+**1.****日产正在谈判将西班牙工厂出售给中共国制造商**
 
-“我们，人民，愤怒了！” 一名抗议者喊道。
+[据NHK  10月3日报道，日产汽车公司宣布，它正在谈判将其在西班牙巴塞罗那的工厂出售给一家中共国汽车制造商。作为结构性改革的一部分，以重振其低迷的业绩。日产公司去年宣布将关闭在西班牙的工厂，但西班牙政府和当地雇员强烈反对此举，使关闭工作推迟了一年。日产公司在前日产董事长一直在审查其扩张计划，并决定集中在日本、中共国和美国这三个市场，同时减少产能。](https://www3.nhk.or.jp/news/html/20211003/k10013288801000.html?utm_int=news-business_contents_news-main_002)
 
-“我们不会遵守的！” 其他人喊道。
+**2.****日本海上保安厅和美国海岸警卫队联合训练**
 
+[据电视新闻 10月3日报道，日本海上保卫厅和美国海岸警卫队在神奈川县的横须贺港进行了一次联合训练，并首次向公众展示。 每个机构的两艘橡皮艇并排行驶，并追赶一艘看可疑的巡逻艇，接近并阻止其移动。日本和美国海岸警卫队机构自2008年以来没有举行过联合演习，但今年是13年来首次举行演习，以维护亚洲和印太地区的海上安全。日本海上保安厅表示：“今天的演习再次确认了双方所拥有的高水平技术。 我们希望继续培训并加强我们的合作”。](https://news.yahoo.co.jp/articles/e199e4b23c17465be532993991317fa6282f3fd5)
 
+**3.****日航8月份的国内国际航线利用率：44.7%，30.7%**
 
-> Anti-mandate Protest held outside Staten Island University Hospital today.
-> 
-> Full video [https://t.co/up8Lm6qX3R](https://t.co/up8Lm6qX3R) [pic.twitter.com/9fzog4MkPA](https://t.co/9fzog4MkPA)
-> — Scootercaster (@ScooterCasterNY) [October 3, 2021](https://twitter.com/ScooterCasterNY/status/1444475354161336323?ref_src=twsrc%5Etfw)
+[据Aviation Wire 10月3日报道，根据日本航空公司的数据，2021年8月，国际航班的乘客数量增加了2.93倍，达到83,939人，载客率增加了5.1个点，达到30.7%。 在国内航线上，乘客人数增加了17.0%，达到1,207,684人，载客率增加了8.3个点，达到44.7%。所有航线的乘客数量都比去年明显增加。 增长率最高的是美洲航线，有34791名乘客，比去年同月增加4.69倍。 增长最低的是欧洲航线，乘客人数增加了78.7%，达到9,247人。](https://news.yahoo.co.jp/articles/595dd81635364cd2afe26f7ed9ddf02063e87cd0)
 
+**4.****1000多名松下员工提前退职**
 
+[据NHK  10月2日报道，作为公司重组的一部分，松下公司的1000多名员工已经提前退职。 在一次新闻发布会上，松下公司总裁表示，一些选择离开公司的员工对他们未来的职业生涯有很高的期望，但是公司没有很好地向员工解释重组的目的。他还强调，公司的管理政策是摆脱对短期利润的追求，不设定利润率等具体数字目标。](https://www3.nhk.or.jp/news/html/20211002/k10013287411000.html?utm_int=all_side_business-ranking_001)
 
-*Scootercaster @ScooterCasterNY*
+**5.****岸田将于10月下旬出席20国集团峰会**
 
-*今天在史坦顿岛大学医院外举行了反强制疫苗授权抗议活动。*
+[据共同社 10月3日报道，未来的日本首相岸田文雄计划出席10月30-31日在罗马举行的20国集团主要经济体峰会。岸田正在考虑跳过10月31日在苏格兰格拉斯哥开始的联合国气候变化谈判。他的意大利之行可能会影响大选竞选活动正式开始的日期和投票。岸田计划于10月14日解散众议院进行选举，政府和执政党人士推测，选举的竞选活动将于10月26日开始，11月7日进行投票和计票。](https://english.kyodonews.net/news/2021/10/863bcb59be30-update1-japans-kishida-to-attend-g-20-summit-in-late-oct-govt-source.html)
 
-*完整视频****https://t.co/up8Lm6qX3R pic.twitter.com/9fzog4MkPA***
+**6.****日本政府认为朝鲜新型导弹“难以拦截”**
 
-*2021**年**10**月**2**日*
+[据共同社10月3日报道，面对朝鲜相继发射的新型导弹，日本政府内部抱有越来越大的危机感，认为“难以拦截，对日本列岛的威胁进一步升高”（防卫省干部语）。有意见认为新型导弹力争以不规则路线和高超音速飞行，正在逐渐削弱日本导弹防御网的效果。目前尚未找到对策。自卫队干部明确表示，“从海上自卫队的宙斯盾舰发射拦截导弹等很难将其击落”。政府目前坚持以往方针，即通过在正实施的经济制裁将朝鲜逼入困境，使其放弃核与导弹开发，然而难以预见会有成果。](https://tchina.kyodonews.net/news/2021/10/774207cacde9.html)
 
-纽约被解雇的医护人员通过焚烧他们的医护制服来抗议强制疫苗
-
-
-
-> Protesters and Healthcare Workers BURN THEIR SCRUBS to officially "retire" them, after many were fired for not getting vaccination.[#HappeningNow](https://twitter.com/hashtag/HappeningNow?src=hash&amp;ref_src=twsrc%5Etfw)
-> Antimandates protesters are gathered outside Northwell Staten Island University Hospital to speak against Mandates. [pic.twitter.com/uV6TxJiYFr](https://t.co/uV6TxJiYFr)
-> — Scootercaster (@ScooterCasterNY) [October 2, 2021](https://twitter.com/ScooterCasterNY/status/1444348850492350469?ref_src=twsrc%5Etfw)
-
-
-
-*在许多人因未接种疫苗而被解雇后，抗议者和医护人员烧掉了他们的医护制服以正式“退休”它们。*
-
-***#HappeningNow***
-
-*反强制疫苗抗议者聚集在诺斯韦尔史坦顿岛大学医院外反对强制令。*
-
-*2021**年**10**月**2**日*
-
-记者现场采访了几名被解雇的医护人员。
-
-被解雇的医护人员警告说，如果我们现在不站起来与暴政作斗争，情况只会变得更糟。
-
-
-
-> We spoke to a few health care workers who were outside Staten Island University Hospital to speak against Mandates [pic.twitter.com/UweHZRcDrh](https://t.co/UweHZRcDrh)
-> — Scootercaster (@ScooterCasterNY) [October 3, 2021](https://twitter.com/ScooterCasterNY/status/1444475861948903426?ref_src=twsrc%5Etfw)
-
-
-
-*我们与在史坦顿岛大学医院外抗议强制疫苗的几位医护人员进行了交谈*
-
-*2021**年**10**月**2**日*
-
-【本文仅代表作者个人观点，与Gnews无关】
-
-原文链接：
-
-
-
-> [Fired Healthcare Workers in New York Protest Vaccine Mandates by Burning Their Hospital Scrubs (VIDEO)](https://www.thegatewaypundit.com/2021/10/fired-healthcare-workers-new-york-protest-vaccine-mandates-burning-hospital-scrubs-video/)
-
-
-
-翻译：JS709｜校对：烟波浩淼｜编辑&发布：V
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Curiosity

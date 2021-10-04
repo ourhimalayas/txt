@@ -2,30 +2,23 @@
 ---
 
 
-## 有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572129/)
+## 针下亡魂｜印度 31 岁孕妇接种疫苗10日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1572214/)
 
-配音：纽约香草山美食部 – 玫瑰园
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 4/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109.jpg)
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-10月2日，郭文贵先生连发多条盖特，并公布其与傅政华在2015年的秘密通话。通话中，傅政华以文贵先生家人、员工及本人人身安全为威胁，要求文贵先生把人、钱、资产安排回国。同时，傅政华要求文贵先生查清王岐山、孟建柱的海外资金及不正当男女关系情况，并声称这是习近平的指示。除此之外，傅政华在录音中爆出，孟建柱决策的执行人是孙力军，吴征事代表孙力军和孟建柱。
+* * *
 
-文字版原文：[文贵先生发布盖特公布其与傅振华2015年的秘密通话](https://gnews.org/zh-hans/1570382/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-1.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：孤独的小生（文留）
+【印度】一名 31 岁孕妇 Mahima Mathew 在接种阿斯利康 COVID-19 疫苗的 10 天后死亡。怀孕七周的 Mahima 8 月 6 日接种第一剂疫苗，4日后，她的身体开始出现严重的问题，送到帕拉医院诊治后，医生只给她开了些止痛药。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+3日后，她突然昏厥，被紧急送院，第二天医院她已经脑死亡，最后熬到 8 月 20 日离世。经尸检发现，Mahima 的死因脑出血，帕拉医院认为，“是阿斯利康的疫苗导致她的死亡。”
 
-**更多资讯，更多关注**
+来源｜ 个案007
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//

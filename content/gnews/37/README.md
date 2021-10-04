@@ -2,35 +2,50 @@
 ---
 
 
-## 中共持续派谴战机扰台 美国表示担忧
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571775/)
+## 他们在隐瞒什么？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1571856/)
 
-栏目记者/责任编辑：文真
+新冠爆发时，许多科学家认为它可能是从武汉实验室泄露的—直到与帕特里克·瓦兰斯的电话会议改变了他们的想法。 我们询问了他有关通话的电子邮件……
+
+这就是我们得到的……
+![](https://assets.gnews.org/wp-content/uploads/2021/10/16333157441.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/16333172491.png)
+政府在拒绝发布涉及主要科学家关于新冠病毒起源的关键电子邮件对话的详细信息后受到谴责。
+
+该报利用信息自由规则获取了 32 封有关英国和美国卫生官员在大流行初期举行的秘密电话会议的电子邮件。
+
+但官员们在发布关键文件之前几乎把每一个字都涂黑了。
+
+这种荒谬的国家机密是对纳税人的高度蔑视，也是对一个想知道是什么导致这场毁灭性大流行以防范未来类似灾难的世界的高度蔑视。
+
+保守党议员和信息自由活动家大卫戴维斯谴责了这一回应。
+
+“这是一个对公众和全球都具有重大意义的问题，”他说。 “很难理解为什么要保密，以至于它超过了巨大的公共利益，并要求他们编辑这类重要数据。”
+
+他说，这种结合机制“看起来好得令人难以置信，就像进入人体细胞的完美钥匙，而它的弗林蛋白酶切位点可能是预期的“如果有人开始通过从其他地方获取一套特定的遗传材料并将其插入，从而使动物冠状病毒适应人类。”
+
+公共卫生组织“美国知情权”负责人加里·罗斯金 (Gary Ruskin) 表示，这就是政府的保密既可悲又危险的原因，该组织揭露了包括达扎克在内的关键专家在这场灾难中的活动。
+
+“透明度对于揭露腐败、滥用权力和隐藏的利益冲突至关重要，”他说。 “即使在科学透明度薄弱的美国，我们也能够挖掘出有助于探索新冠病毒起源的文件。这样的努力在英国似乎是不可能的。这是令人遗憾的——如果我们不能使用透明工具来弄清楚新冠病毒是如何降临到我们身上的，那么后代最终可能会为此付出生命的代价。”
+
+个人评论：
+
+这篇文章揭示最初科学家的判断是对的，病毒来自武汉实验室，但是这些所谓的科学家关键人物，都遮遮掩掩不向大众坦诚新冠的真实信息，迫于舆论压力才拿出侮辱人的遮蔽邮件，说明这些新冠背后的利益非常大，如果没有郭先生，没有爆料革命，没有GTV，没有GNEWS，这个黑暗的社会，可能将人类覆灭，实现所谓“大重置”，可怕的不是黑暗，而是没有刺破黑暗的那束微弱的光！
+
+原文链接：[https://www.dailymail.co.uk/news/article-10052689/Government-condemned-refusing-release-details-key-email-conversations-Covid-origins.html](https://www.dailymail.co.uk/news/article-10052689/Government-condemned-refusing-release-details-key-email-conversations-Covid-origins.html)
+
+翻译/简评: Johnston2021
+
+PR: 感恩
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2000.jpg)
-10月3日，中共军方继续派遣16架战机飞越台湾南部海域。 中共在周五派出38架战机入侵台湾防空区，周六再次派出39架战机。台湾政府对中共的入侵行为感到愤怒，并强烈谴责。但是，中共持续派遣战机扰台的行为，明确表示出中共政府根本不打算理会台湾的任何谴责或警告。 美国对中共在台湾的军事挑衅表示关切。美国国务院发言人普莱斯警告说，中共在台湾附近的军事活动有误判的风险，破坏了该地区和平与稳定。该声明敦促中共停止其对台湾的军事、外交和经济压力和胁迫，并补充说，军事挑衅作为台湾最大的武器供应国，将继续帮助台湾政府保持足够的自卫能力。
+编辑：【英国伦敦喜庄园编辑部】
 
-（本文仅代表作者观点）
-
-参考链接：
-1. [中共持续派谴战机扰台 美国表示担忧](https://www.newsmax.com/newsfront/taiwan-china-warplanes-threaten/2021/10/03/id/1038886/)
-2. [中共持续派谴战机扰台 美国表示担忧](https://www.zerohedge.com/geopolitical/china-sends-nearly-40-jets-toward-taiwan-2nd-consecutive-day)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
