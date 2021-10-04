@@ -2,58 +2,68 @@
 ---
 
 
-## 武毒所杂志：美官员发表了几十份中共军方的研究报告
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1572369/)
+## 币圈新闻动态：喜交所已经确定在10月开市
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1572410/)
 
-- **编译：西班牙喜悦农场–wenwu**
+*喜马拉雅华盛顿DC 编辑：aQ*
+
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-55.png)
 
-《**Virologica Sinica**》**—**隶属于武汉病毒研究所的科学杂志**—**已经发表了几十项由为共产党政权人民解放军工作的中共国研究人员，撰写的研究报告。
+## 每日一问
 
-《Virologica Sinica》的[期刊](https://www.virosin.org/news/AimsandScope.htm)将武汉病毒研究所的顶级蝙蝠冠状病毒研究员石正丽——被称为“蝙蝠女”列为其[主编](https://www.virosin.org/news/EditorialBoard.htm)。
 
-另有9名来自这个有争议的实验室的在其编辑委员会任职，许多[科学家](https://thenationalpulse.com/breaking/ex-cdc-chief-covid-lab-theory/)和政府官员认为武毒所的实验室是中共病毒（covid-19）的起源。
 
-据《国家脉动》的披露，该杂志已经发表了几十项研究，列出了受雇于中共国军事控制机构的个人。几年来，该杂志聘请的[研究人员](https://www.virosin.org/news/lianjie/4356a257-b02a-4eb0-9c78-ca1a4c07f0ac_en.htm)来自人民解放军（PLA）307医院、总医院、第三军医大学和[第四](https://www.virosin.org/news/lianjie/f11f0776-703b-4114-940d-57905bdd1739_en.htm)军医大学，甚至担任该杂志的编辑和审核工作。
 
-在《**Virologica*****Sinica***》上发表的研究，包括那些[专注](https://virosin.org/fileZGBDX/journal/article/vs/newcreate/s12250-021-00425-4.pdf)于**COVID-19 **的研究，也将武汉病毒研究所的研究人员与解放军中南部战区司令部总医院的研究人员，一起列为作者（如下图）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-57.png)
+看似跌宕起伏，爆料革命推进速度堪称神迹，健身健心的路上顺便收获些财富，何必着急？
 
-工作单位是，[军事医学研究所](https://www.virosin.org/cn/article/id/VS19951001.0094)、[第一](https://www.virosin.org/fileZGBDX/journal/article/vs/1993/1/PDF/1993-01-03.pdf)，第二，[第四](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/6/PDF/060601.pdf)，[和](https://www.virosin.org/fileup/PDF/20040201.pdf) [第五](https://www.virosin.org/fileZGBDX/journal/article/file/4f1e5be1-391c-463d-a182-b018e38d157d.pdf)军[医](https://www.virosin.org/fileZGBDX/journal/article/vs/1997/3/PDF/1997-03-05.pdf)[大学](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/1/PDF/060106.pdf)——所有的工作单位都是由解放军控制。一些研究，其中包括[构建](https://www.virosin.org/fileZGBDX/journal/article/vs/2005/2/PDF/050213.pdf)“重组”病毒的研究，另外还包括来自[中共国的](https://www.virosin.org/full0/060109.pdf)军事医学[科学院](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/4/PDF/060404.pdf)的[计数](https://www.virosin.org/fileZGBDX/journal/article/vs/2021/1/PDF/vs-36-1-113.pdf)[作者](https://www.virosin.org/fileZGBDX/journal/article/vs/2006/4/PDF/060416.pdf)，其名单已发表在该杂志上。在武汉[大学](https://www.virosin.org/fileZGBDX/journal/article/vs/2004/6/PDF/2004003.pdf)等武汉机构工作的研究人员（如下图），看到他们与解放军广州司令部武汉总医院 共同进行的研究，发表在《*Virologica Sinica*》上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-59.png)
 
-来自中共国人民解放军[南部](https://www.virosin.org/article/doi/10.1007/s12250-021-00356-0)、[中部](https://www.virosin.org/fileZGBDX/journal/article/file/0d1f8128-4b8f-4a82-ab3a-1048700895fd.pdf)和[北部](https://www.virosin.org/fileZGBDX/journal/article/file/22e033cf-49ae-40ab-9a24-f9288e853385.pdf)战区司令部命令预防控制中心（**CDC**）的作者，也在《***Virologica Sinica***》上发表文章。此外，来自解放军运营的医院网络的几个研究所的研究人员，如解放军[第](https://www.virosin.org/article/doi/10.1007/s12250-016-3914-2)[**171**](https://www.virosin.org/article/doi/10.1007/s12250-016-3914-2)[医院](https://www.virosin.org/en/article/doi/10.1007/s12250-017-4000-0)的急诊科和解放军第**307**医院的[呼吸内科](https://www.virosin.org/fileup/PDF/20140206.pdf)呼吸内科，也曾在该杂志上发表了文章。
 
-《国家脉动》此前曾[报道](https://thenationalpulse.com/exclusive/niaid-director-on-wuhan-journal-ed-board/)，在福奇的国家过敏和传染病研究所 (NIAID) 的官员，曾在该杂志的编辑委员会任职。
 
-该杂志还多次发表了进行功能增强研究的的研究报告，其显明了福奇在他的国家卫生研究院（NIH）[参与](https://thenationalpulse.com/exclusive/audio-fauci-funded-researcher-describes-gain-of-function-collaboration-with-wuhan-lab-reveals-nih-was-very-supportive/)了武毒所的这种有争议的病毒功能增强风险形式后，是故意[说谎](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)否认。
+## 喜马拉雅交易所要闻
 
-*2017*年《*Virologica Sinica*》的一篇文章[指出](https://virosin.org/fileZGBDX/journal/article/vs/2017/1/PDF/10.1007s12250-016-3902-6.pdf)：
 
-“为了确定登革热病毒（*DENV*）的进入因子，*Amara*的小组进行了功能增强互补*DNA(cDNA)*筛选，以寻找允许最小易感细胞系*293T*被*DENV*感染的宿主蛋白（*Carnec*等人，*2015*）*”*
 
-“通过使用或不使用相关的 miRNA 抑制剂转染细胞，同时进行功能增强和功能丧失试验。24小时后，将 Act-D 加入培养基中，”另[一项研究](https://www.virosin.org/fileZGBDX/journal/article/vs/2019/3/PDF/vs-34-3-278.pdf)指出。还有一项研究引用了这种做法，[评论说](https://www.virosin.org/fileZGBDX/journal/article/vs/2020/4/PDF/vs-35-4-363.pdf)：“在这种筛选中可以采取两种主要的方法：功能增强，其中使用过表达的蛋白质库，以诱导或放大限制。”
 
-武汉病毒研究所控制的期刊与解放军之间出土的联系[突显](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)了，武汉实验室与中共国军方保持的[工作](https://thenationalpulse.com/exclusive/nih-signed-mou-with-chinese-science-org-funding-pla/)关系，并且该实验室的资金来自安东尼·福奇那里的[数百万美元](https://reporter.nih.gov/search/xQW6UJmWfUuOV01ntGvLwQ/project-details/9819304)资助。
 
-**简评：**
+- 文贵先生10月3日直播消息，喜交所已经确定在10月开市，几十位KYC以及工作人员正加班加点做收尾工作。
 
-**未来如果要出现什么热病毒，这就说明又是起源于武毒所、解放军，以及还包括了福奇的资金和技术馈赠。那么，现在就是看中共跨国恐怖分子有多大几率再次放毒了。值得一提的是，福奇的NIH官员也担任了WIV《Virologica Sinica》编辑委员会成员，从而参与了病毒功能增强性研究。这就再次证实了福奇的听证会上的谎言。**
 
-**最后，希望更多有缘人接受疫苗的真相，而不是等待出现副作用的发生。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-61.png)
 
-（文章仅代表作者观点 与GNEWS无关）
 
-新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/wuhan-lab-journal-published-pla-studies/)》｜作者：娜塔丽**·**温特斯｜发布时间：**2021**年**10**月**3**日
 
-* * *
+## 新闻动态
 
-*发稿：Nuevo唐人*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+
+
+
+1. CoinDesk报道，加密资管公司TwoPrime自年初截止8月底管理资产的回报率为183%，而同期比特币的回报率为62%，公司目前管理资金总规模为4,000万美元。据悉，该资管公司产品12个月回报率为537%（截止8月底），而同期比特币的回报率为313%。
+2. Cointelegraph报道，国际货币基金组织(IMF)为新兴市场和发展中经济体发布一套可操作的政策，以确保在全球采用加密货币的情况下金融稳定。IMF建议，政策制定者应对加密资产实行全球标准，并通过解决数据缺口来增强监测加密生态系统的能力。
+3. 10月3日，1ml数据显示，比特币闪电网络中锁定的比特币数量2,993.78枚，节点数量为27,453个，支付通道数量74,564个。
+4. 10月3日消息，根据Alexa数据，在过去90天的全球互联网流量和参与度中，行情网站Coinmarketcap排名97名。
+5. Coindesk报道，CoinDesk Research将放弃其第三季度回顾报告指出，9月份比特币的主导地位即原始加密货币在加密货币总市值中的份额为42%。
+6. 10月4日消息，基于区块链的营销技术平台Ojamu宣布结束其170万美元的私募融资。
+7. 日本经济新闻报道，老挝央行将与日本区块链技术公司Soramitsu合作，以探索发行其央行数字货币（CBDC），合作最早将于本月开始。Soramitsu将负责评估银行和其他中介的作用以及该国对金融包容性的需求，该公司还曾参与过柬埔寨央行数字货币的研发设计。
+8. 10月4日消息，杭州互联网法院在2018年9月18日正式上线司法区块链，是国内首个司法链。2018年9月，最高人民法院发布《关于互联网法院审理案件若干问题的规定》，第11条认可了区块链作为收集、固定和防篡改数据的技术手段。之后，北京互联网法院、深圳互联网法院均已通过与商业机构合作的形式上线了各自的司法区块链。除了互联网法院外，各地非互联网法院也有些在积极尝试这方面的探索。合伙指南创始人李立律师表示，区块链在民商事法律管理中的运用，目前正处于一种初期阶段。最高人民法院开设的司法链平台成为各地法院的首选。
+9. News.bitcoin报道，美国白宫周五发布了总统拜登关于政府网络安全工作的声明。拜登表示，美国将召集30个国家加快我们在打击网络犯罪、改善执法合作、阻止非法使用加密货币以及通过外交方式解决这些问题方面的合作。
+10. Ambcrypto报道，迪拜警方与一个加密货币交易平台合作，以遏制加密货币欺诈。该合作旨在教育投资者和交易者更多地了解该行业。此外，警方正在接受培训，以识别加密欺诈，作为“有效调查方法以应对与加密交易相关的风险”的一部分。
+11. 日本经济新闻报道，日本国家税务机关正在加强对加密资产（虚拟货币）税务处理的审查。据有关人士采访，日本关东等地区对个人进行了大规模的税务稽查，有数十人被指出共漏缴约14亿日元。
+12. Bitcoin报道，吉尔吉斯斯坦政府最近修订不同消费者群体的电价。比什凯克当局提高了加密采矿企业购买电力的费率，理由是加密货币挖矿过程属于能源密集型。此次上涨是在政府决定全面更新电价以“确保能源部门稳定可靠运行”之后进行的。加密矿工每使用一千瓦时的电力，将支付2.52吉尔吉斯斯坦索姆不到0.03美元。政府数据显示，新税率是增加了12.5%的结果。
+13. Bitcoin报道，哈萨克斯坦正面临电力短缺，而加密货币挖矿是出现这一现象的主要原因。该国2021年对电力的需求量同比增加7%，能源部长Magzum Mirzagaliev表示，这是一个非常大的增长，主要由于越来越多的数据中心开始从事加密货币挖矿，此外，他提到必须确保电力系统运营商在可能出现电力短缺的时候，限制这些数据中心的用电。
+14. News.bitcoin报道，美联储主席杰罗姆鲍威尔周四在众议院金融服务委员会的听证会上证实，他无意禁止或限制加密货币的使用。美联储主席继续谈论稳定币，并指出稳定币就像货币市场基金。
+15. News.bitcoin报道，AxieInfinity公司的联合创始人Jeff Zirlin在与Frank Chaparro的播客中透露，该项目计划推出去中心化交易所。.此外，AxieInfinity最近获得了超过20亿美元的NFT销售额，使其成为NFT销售额的第二大项目，仅次于市场Opensea。
+16. Cointelegraph报道，彭博社高级分析师Eric Balchunas表示，比特币(BTC)交易所交易基金(ETF)本月以某种形式获得批准的可能性为75%。
+17. 10月3日消息，波场TRON创始人孙宇晨发推表示，他以近569ETH约194万美元的价格成功购入3版由艺术家MitchellF.Chan创造的NFT作品—《数字空间》（Digital Zones），分别为系列7中的第92版，系列6中的第83版和84版，并表示将全部捐赠给APENFT基金会。
+18. 财联社报道，富兰克林邓普顿中东和北美固定收益部门首席投资官Mohieddine Kronfol预测，10年期美国国债收益率可能最高上涨至2％，通胀率到2022年才会企稳。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*

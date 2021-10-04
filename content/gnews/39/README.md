@@ -2,26 +2,30 @@
 ---
 
 
-## 应朝鲜要求 朝韩双方重启热线
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571982/)
+## 有声|中共国的电力紧缩导致集装箱航运价格暴跌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572100/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-17.jpg)图片来源：网络截图
-路透社10月4日首尔报道，朝韩双方于周一重新恢复他们的热线，该热线在几个月前被北方切断，因朝鲜在武器开发问题上批评南韩双重标准，而今平壤（朝鲜）又要求首尔（韩国）作出努力，改善双方关系。
+配音：纽约香草山美食部 – 玫瑰园
 
-朝鲜领导人金正恩上周表达了他想要重新激活热线，而该热线是在8月初抗议美韩军事训练，当时发生在该热线于一年内首次重开后没几天。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-朝鲜中央通讯社官方新闻说电话热线将于周一上午9点重新联结。
+据[零对冲](https://www.zerohedge.com/commodities/dip-shipping-rates-end-nightmare-or-just-eye-hurricane)10月2日报道，当即期海运集装箱运价今年已达到历史高点之际，本周从中共国到美国西海岸的40英尺集装箱价格下降，从15,000美元暴跌到只有8000美元。对于同一个集装箱，中共国到美国东海岸的现货价格从20,000美元下降到15,000美元左右。
 
-南韩证实了重新开始一天二次的通过军事热线和其他统一部门的对话常规，海军频道是通过商业船舶的国际网线。
+文字版原文：[中共国的电力紧缩导致集装箱航运价格暴跌](https://gnews.org/zh-hans/1571479/)
 
-这个热线是一个对很少用的起到桥梁作用的工具，还不清楚重启后是否能开启双方有意义的对话，旨在拆除北方核设施和导弹项目，从而解除美国的制裁。
+音频处理：喜山必胜Maverick
+发稿：孤独的小生（文留）
 
-朝鲜中央通讯社重复金正恩上周的讲话说恢复双方热线旨在帮助双方人民的和平愿望并要求韩国放弃“双重标准”，不要对朝鲜的防御性武器开发活动的废弃抱有“幻想”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
-热线的重启降低了双方的紧张局势，美国国防部发言人强烈支持两方的对话，称重启热线“对于建立朝鲜半岛稳定局势是一个重要的成分”。
+**更多资讯，更多关注**
 
-分析家们认为朝鲜的“胡萝卜加大棒”的策略是旨在让国际上认定朝鲜是一个拥核国家，在美韩之间打下一个楔子，让韩国总统文在寅在他明年五月任期结束前，急于锻造双方的和平协议为自己加分。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-##### 新闻来源： [Two Koreas reopen hotlines as North urges South to mend ties](https://www.reuters.com/world/asia-pacific/nkorea-says-inter-korean-hotlines-will-be-restored-monday-kcna-2021-10-03/)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

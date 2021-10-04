@@ -15,122 +15,122 @@
 
 ---
 
-### [2021年10月2日 文贵先生盖特 5](/content/gnews/1/README.md)
+### [瑞典: 长期被威胁的漫画家维尔克斯和两名保护他的警察在事故中丧生](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021年10月2日 文贵先生盖特 7](/content/gnews/2/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月2日 文贵先生盖特 4](/content/gnews/2/README.md)
+### [2021年10月2日 文贵先生盖特 6](/content/gnews/3/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月2日 文贵先生盖特 3](/content/gnews/3/README.md)
+### [全文字版2015年郭文贵先生与傅政华通过司机变音通话记录](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2021年10月2日 文贵先生盖特 5](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月2日 文贵先生盖特 2](/content/gnews/4/README.md)
+### [2021年10月2日 文贵先生盖特 4](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月2日 文贵先生盖特 1](/content/gnews/5/README.md)
+### [2021年10月2日 文贵先生盖特 3](/content/gnews/7/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月3日 文贵先生盖特 11](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [新冠口服药即将获批 利益集团继续收割](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [一年和四年](/content/gnews/8/README.md)
+### [纽约时报承认辉瑞疫苗在以色列注射后失败，引起感染激增](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [2021年10月3日 文贵先生盖特 10](/content/gnews/9/README.md)
+### [2021年10月2日 文贵先生盖特 2](/content/gnews/9/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [关店140家！HM（中国）三季度收入暴跌40%，跌出全球前十](/content/gnews/10/README.md)
+### [2021年10月2日 文贵先生盖特 1](/content/gnews/10/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月3日 文贵先生盖特 11](/content/gnews/11/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [新冠口服药即将获批 利益集团继续收割](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年10月3日 文贵先生盖特 9](/content/gnews/11/README.md)
+### [一年和四年](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [2021年10月3日 文贵先生盖特 10](/content/gnews/14/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月3日 文贵先生盖特 8](/content/gnews/12/README.md)
+### [关店140家！HM（中国）三季度收入暴跌40%，跌出全球前十](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年10月3日 文贵先生盖特 9](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [西媒头条 — 第79期](/content/gnews/13/README.md)
+### [西媒头条 — 第79期](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：台湾要求澳大利亚提供安全和情报支持](/content/gnews/14/README.md)
+### [秘翻在线：台湾要求澳大利亚提供安全和情报支持](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [独家：小泉进次郎，情场得意职场失意，自民党总裁选举后将何去何从](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共以城乡双向开放畅通国内大循环](/content/gnews/16/README.md)
- ` 儒为`
-
-### [秘翻在线：彭佩奥抨击拜登向中共磕头的绥靖政策](/content/gnews/17/README.md)
+### [秘翻在线：彭佩奥抨击拜登向中共磕头的绥靖政策](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共匪军38架次战机飞台以示 “十一国庆”特殊贺礼](/content/gnews/18/README.md)
+### [共匪军38架次战机飞台以示 “十一国庆”特殊贺礼](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [白宫敦促美航空公司尽快为员工接种疫苗](/content/gnews/19/README.md)
+### [白宫敦促美航空公司尽快为员工接种疫苗](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [币圈新闻动态：喜交所已经确定在10月开市](/content/gnews/20/README.md)
+### [币圈新闻动态：喜交所已经确定在10月开市](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：北京市公安局要彻底肃清傅政华流毒影响](/content/gnews/21/README.md)
+### [DC大中华时事：北京市公安局要彻底肃清傅政华流毒影响](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [武毒所杂志：美官员发表了几十份中共军方的研究报告](/content/gnews/22/README.md)
+### [武毒所杂志：美官员发表了几十份中共军方的研究报告](/content/gnews/24/README.md)
  ` wenwu`
 
-### [中国恒大、恒大物业在港交所暂停交易](/content/gnews/23/README.md)
+### [中国恒大、恒大物业在港交所暂停交易](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [潘多拉文件曝香港前特首董建华家族涉多家离岸公司](/content/gnews/24/README.md)
+### [潘多拉文件曝香港前特首董建华家族涉多家离岸公司](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [针下亡魂｜科索沃 23 岁女子接种疫苗48小时后死亡](/content/gnews/25/README.md)
+### [针下亡魂｜科索沃 23 岁女子接种疫苗48小时后死亡](/content/gnews/27/README.md)
  ` G&#124;News TAIWAN`
 
-### [含青蒿素的喷雾剂-ArtemiC，对重症中共病毒患者有效](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [重磅：中共国军机在被废弃的阿富汗美空军基地降落](/content/gnews/27/README.md)
+### [重磅：中共国军机在被废弃的阿富汗美空军基地降落](/content/gnews/28/README.md)
  ` wenwu`
 
-### [疫苗灾情｜美国 16 岁少女接种疫苗后神经损伤](/content/gnews/28/README.md)
+### [疫苗灾情｜美国 16 岁少女接种疫苗后神经损伤](/content/gnews/29/README.md)
  ` G&#124;News TAIWAN`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/29/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/30/README.md)
  ` wenwu`
 
-### [郭文贵先生2018年2月15日爆料傅政华](/content/gnews/30/README.md)
+### [郭文贵先生2018年2月15日爆料傅政华](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵先生2017年10月14日爆料傅政华](/content/gnews/31/README.md)
+### [郭文贵先生2017年10月14日爆料傅政华](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [针下亡魂｜印度 31 岁孕妇接种疫苗10日后死亡](/content/gnews/32/README.md)
+### [针下亡魂｜印度 31 岁孕妇接种疫苗10日后死亡](/content/gnews/33/README.md)
  ` G&#124;News TAIWAN`
 
-### [纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗](/content/gnews/33/README.md)
+### [纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [岸田文雄当选日本第100任首相](/content/gnews/34/README.md)
+### [岸田文雄当选日本第100任首相](/content/gnews/35/README.md)
  ` 首尔天池农场`
 
-### [有声|加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/35/README.md)
+### [有声|加州所有在校学生恐被安排分阶段接种疫苗](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话](/content/gnews/36/README.md)
+### [有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [支持疫苗护照副州长辞职，新州通往自由之门即将打开](/content/gnews/37/README.md)
+### [支持疫苗护照副州长辞职，新州通往自由之门即将打开](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/38/README.md)
+### [有声|中共国的电力紧缩导致集装箱航运价格暴跌](/content/gnews/39/README.md)
  ` MOSREC`
-
-### [应朝鲜要求 朝韩双方重启热线](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华](/content/gnews/40/README.md)
  ` 秘密翻译组-北美组`

@@ -2,25 +2,21 @@
 ---
 
 
-## 针下亡魂｜科索沃 23 岁女子接种疫苗48小时后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1572347/)
+## 中国恒大、恒大物业在港交所暂停交易
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1572365/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 4/10/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F67BA482-326B-443B-9D24-FD7D7F54AC82_w408_r1_s.jpg)中国恒大、恒大物业在港交所暂停交易 网络图片
+据新华报业网10月4日报道，中国恒大和恒大物业在港交所发布短暂停牌通告。
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+截至2021年6月30日，恒大物业营业收入约78.73亿元，8月物业销售金额380.8亿元。截至停牌前，恒大物业总市值553.5亿港元；中国恒大总市值390.9亿港元。假擀面杖子的经济势必经不住真市场的考验，短暂停牌在当下，永久停牌还远吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9.jpg)
+新闻参考链接：[http://news.xhby.net/index/202110/t20211004\_7256654.shtml](http://news.xhby.net/index/202110/t20211004_7256654.shtml)
 
-【科索沃】普利斯提纳一名 23 岁的女士 Zarife Imeri 在接种辉瑞 COVID-19 疫苗的 48 小时后死亡。Zarife 9 月 13 日注射第一针之后，就因极度不适而紧急住院，可惜，2日后因腹腔出血而死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Albania-vaccine-2.jpeg)
-Zarif 的祖父 Haxhi Xhemajli 细心挑选了孙女生前最美丽的照片，并在 Facebook 为她写下悼文，“不要再强迫我们，不要再限制我们。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Albania-vaccine.jpeg)
 
-Haxhi 认为，他的孙女没有潜在的健康问题。普利斯提纳的检察官将此案定义为可疑死亡个案，目前已展开调查。
+编辑：【英国伦敦喜庄园编辑部】
 
-来源｜ [个案009](https://sinjali.com/nisin-hetimet-per-vdekjen-e-23-vjecares-nga-drenasi/)
-
-* * *
-
-他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hant/1572210/)//
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
