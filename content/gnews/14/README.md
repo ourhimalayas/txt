@@ -2,15 +2,21 @@
 ---
 
 
-## 2021年10月3日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1572454/)
+## 秘翻在线：台湾要求澳大利亚提供安全和情报支持
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572525/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+#### 撰稿：彩虹
 
-10/3/2021 Miles Guo: Please make sure to stay at home and avoid going out or traveling if you can until December 2022! My biggest concerns are the vindictive social disasters and the collapse of the financial and monetary system caused by the COVID vaccines; Billions of people in the world have received COVID jabs in an extremely short period of time, which means the disasters caused by the COVID vaccines will break out in an extremely short period of time as well
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-9.jpg)图片来源：澳大利亚广播公司
+10月3日，综合《新闻极限》（Newsmax）和《澳大利亚广播公司》（ABC）的报道，台湾外交部长吴钊燮警告说，台湾面临与中共国开战的危险，要求澳大利亚提供安全和情报援助。
 
-10/3/2021 文贵直播：直到2022年12月以前，请大家务必待在家里，尽量不出门、不旅行！文贵最大的担心是疫苗造成的报复性的社会灾难以及金融货币系统的崩溃；全世界在极短时间内给几十亿人打了疫苗，疫苗的灾难也将在极短时间内爆发！
+在参加澳大利亚广播公司（ABC）的“今晚中国（China Tonight）”节目时，吴钊燮表示，如果解放军发动实际打击行动，台湾已经准备好击退来犯之敌。他说：“台湾的防御掌握在我们自己手中，我们绝对致力于保卫它。”
 
-[【2021年10月3日】文贵先生盖特原文](https://gettr.com/post/pd2pbp6f0c)
+吴钊燮呼吁，“我们希望与其他志同道合的伙伴，包括澳大利亚，进行安全或情报交流，以便台湾能更好地应对战争局势。到目前为止，我们与澳大利亚的关系[是]非常好，这也是我们所欣赏的。”
 
-**喜联盟Gnews编辑部**
+**新闻来源：**
+
+[Taiwan Foreign Minister: We’re Preparing for War With China](https://www.newsmax.com/newsfront/taiwan-war/2021/10/03/id/1038936/)
+
+[Taiwanese Foreign Minister warns his country is preparing for war with China, asks Australia for help](https://www.abc.net.au/news/2021-10-04/taiwan-preparing-for-war-with-china/100511294)

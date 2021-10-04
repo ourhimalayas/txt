@@ -2,54 +2,37 @@
 ---
 
 
-## 重磅：中共国军机在被废弃的阿富汗美空军基地降落
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1572321/)
+## 含青蒿素的喷雾剂-ArtemiC，对重症中共病毒患者有效
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1572327/)
 
-- **西班牙喜悦农场—wenwu**
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture.jpg)
+图片来源：swisspharmacan.ch
 
+**【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip219.png)
+9月中旬，MGC制药有限公司（MGC Pharmaceuticals Ltd）表示，ArtemiC作为一种增强免疫系统的专用营养食品补充剂，已获准在欧盟销售。【注：ArtemiC包含四种天然成分——姜黄素、乳香、青蒿素和维生素C。】
 
-据报道，在拜登从阿富汗的巴格拉姆美空军基地（**Bagram Airbase**）撤离，并仓促向塔利班恐怖分子投降后。中共国的军机代替美军降落在了该军事基地上。
+该产品已被证明可有效改善和加快轻度中共病毒患者的临床康复。并且在9月，来自印度相关产品临床试验的最新数据显示，ArtemiC对重症中共病毒患者一样有效。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip224.png)
+MGC公司总经理罗比·佐默（Roby Zomer）表示：最新的观察性试验结果扩大了使用ArtemiC和CimetrA及其治疗严重中共病毒患者的可能性。CimetrA开放给印度用作ArtemiC的研究，被配制为鼻腔喷雾剂，并在一项观察性开放标签对照临床试验中给予20名患有严重中共病毒的住院患者（其中包括10名需要供氧气的患者），作为印度紧急使用注册流程的一部分。【注：CimertA为草本药物，包含纳米颗粒成分–姜黄素、乳香和维生素C。】
 
-自从乔**·**拜登和米利将军从巴格拉姆空军基地撤出所有美军，并将数十亿美军武器留给塔利班恐怖分子以来，巴格拉姆空军基地的灯光于周六（**2**日）晚，首次被打开。
+MGC公司表示，该试验表明，与中共病毒相关的主要炎症标志物之一C反应蛋白 (CRP)明显减少。C反应蛋白是一种急性炎症蛋白，会在感染或炎症部位上升达1,000倍。
 
-当地阿富汗人目睹了几架（据说）来自中共国的军用飞机，于昨晚从基地起降。
+MGC公司指出，C反应蛋白被用作中共病毒住院患者临床恶化的主要预后因素之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip225.png)
+MGC公司表示，这一发现意义重大，扩大了CimetrA和ArtemiC治疗重症中共病毒患者的潜在用途，并进一步支持了先前针对中度中共病毒患者的临床前和临床的发现。
 
-网友表示：“有可能消息是真的，中共国人已经来到了巴格拉姆。昨天晚上，许多飞机从那里起降…巴格拉姆军事机场是美军20年来的主要基地，在近两个月后，该机场的灯光今晚亮起。不知道谁在那里，也不知道为什么在近两个月后，今晚灯火通明—为中共国？”
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-美国历史上从未有过更大的军事失误了。《[每日邮报》](https://www.dailymail.co.uk/news/article-10054081/Military-planes-reportedly-spotted-landing-Bagram-air-base-Afghanistan.html)报道：
+**参考新闻：**[MGC Pharmaceuticals Ltd gets green light for EU sales, Indian trial shows efficacy in severe COVID-19 patients (proactiveinvestors.co.uk)](https://www.proactiveinvestors.co.uk/companies/news/960370/mgc-pharmaceuticals-says-artemic-gets-green-light-for-eu-sales-indian-trial-shows-efficacy-in-severe-covid-19-patients-960370.html)
 
-**“**有多起关于军机抵达阿富汗巴格拉姆空军基地的报告，以及数小时后的图像表明：这是自美军于**7**月撤离该据点以来，该基地首次恢复供电；在社交媒体上流传的图片似乎显示该空军基地的泛光灯在远处闪耀，有报道称最近几个小时有几架军用飞机在该基地起飞和降落；一些消息来源表明，这些飞机是中共国的，因为塔利班被认为不具备为基地供电或维护和驾驶几架军用飞机，所需的专业知识。**”**
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-塔利班恐怖分子否认了中共国在前美国基地的传言：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-2021-10-04T093343.155.png)
-**“**塔利班否认了关于任何中共国安全部队或飞机，已经抵达**Bagram Airbase**的谣言。（这是塔利班的反应）在昨晚** Bagram **区的居民声称空军基地的泛光灯在几周后亮起，并且一些中共国飞机带着人员降落后。**(AT-B)”**
-
-还有其他[报道](https://strikesource.com/2021/10/02/report-taliban-leaders-are-meeting-at-the-chinese-embassy-in-afghanistan-daily/)称中共国与塔利班会面。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip221.png)
-与此同时，塔利班恐怖分子正在围捕涉嫌与前阿富汗政权或美国有关联的阿富汗人，并折磨他们。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip223.png)
-**“**（阿尼萨）他的嘴上被手帕绑住，头部和面部被鞭打。人权在哪里？天理何在？（塔朱登）这个视频是塔利班战士绑住了一名据说是，在喀布尔市的前阿富汗政府军士兵被人折磨。**”  **
-
-**简评：**
-
-**中共曾允诺捐赠塔利班恐怖分子外加在 Bagram Airbase 降落，是否含有接替美国在阿富汗的当地影响力的意图？中共曾声称，美国是“入侵”阿富汗，可以确定的是这是出于贪恋阿富汗当地的矿产资源。而维持恐怖分子塔利班在阿富汗的合法性，就必须让美国松开阿富汗政府的账户，这也是当务之急的。**
-
-**据2021年10月2日《新浪新闻》[报道](https://finance.sina.com.cn/tech/2021-10-02/doc-iktzscyx7518078.shtml)，阿富汗临时政府第一代理副总理毛拉·阿卜杜勒·加尼·巴拉达尔于上周四（30日）晚在一个会议上发表上述讲话敦促，各国重新开放驻喀布尔大使馆，并声称会保证阿富汗的和平；俄罗斯、中共国、巴基斯坦等国的大使和阿富汗临时政府代理外长阿米尔·汗·穆塔基出席了此次会议。**
-
-**值得一提的是，中共国曾通过《西路网》告知美方，塔利班如果没有钱，随时可以在阿富汗耍流氓。而且全世界的政府早已看清了这点，也就是说，如果美国不松口，那么这个塔利班小弟或许会给阿富汗的中共带来麻烦。**
-
-**新闻来源：《[门户网](https://www.thegatewaypundit.com/2021/10/china-military-planes-reportedly-landing-bagram-airbase-afghanistan-talks-china-taliban-continue/)》｜作者：乔·霍夫特｜发布时间：2021年10月3日｜**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

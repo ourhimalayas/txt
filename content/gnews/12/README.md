@@ -2,38 +2,19 @@
 ---
 
 
-## 澳洲排华不是空穴来风，但是历史不会简单重演
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1572469/)
+## 2021年10月3日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1572546/)
 
-**作者：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.4-1.png)**图片来源：Sky News**
-9月21日，在澳洲媒体九频道一档《60分钟》节目中，主持人和嘉宾公开讨论“澳洲与中国开战”的话题，在Youtube上播出后获得7万个赞，共446万次观看。节目提出几个观点，中共国想要军事控制整个印太地区，澳大利亚应该和美国一起面对；中共国处心积虑进犯台湾，澳洲配合美军的行动将势必挑起与中共国的正面冲突；澳洲和美国正在将自己带入与中共国的毁灭性对抗中。期间在谈起与中共国开战将对在澳近150万华人的影响时，一位嘉宾认为，极端情况下，华裔或看起来像华裔的人将在街上被虐待，极右派和底层人士会呼吁将他们关进拘留营。
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-在9月23日大直播中郭先生警示，全世界正在酝酿着一场反华，这是全球性的。因为共产党制造这场灾难，最终全世界都将算在中国人身上，连班农先生都说，中国欠美国5万亿美元（赔偿）。全世界并未能区分中共不等于中国人。恰巧节目现场两位嘉宾都是华裔人士，他们自嘲：“一旦战争爆发后，我们拘留营相见吧”。如果说这档节目就是一次西方媒体的舆论试水，那么澳大利亚历史上有过类似排华事件吗？
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.2-2.jpg)**图片来源：Gold Trails**
-在十九世纪的淘金热时，大量的契约华工涌入澳洲开采黄金，峰值时达到5万人。由于工作中与欧洲矿工发生竞争和摩擦，以及华人文化习俗与主流社会的差异，导致双方爆发小规模冲突。1855年起澳洲多地出台了具有种族歧视性质的《中国限制法案》，维州率先立法限制华人移民，并于1855年开始征收人头税。其后是新州、昆州和西澳。到了1880年，澳洲反华情绪进一步爆发，最终1901年澳洲出台了《移民限制法》，施行“白澳政策”，试图将所有非欧洲人排除在澳大利亚之外。
+10月3号：疫苗灭共．疫苗灭黑暗势力，这速度怎么样？【辉瑞前员工报告 FDA 研究并警告辉瑞的疫苗使 COVID-19病例增加 300% 以上 [https://www.lifesitenews.com/news/if-you-get…](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)】
 
-如果说和平时期的排华，主要表现形式是种族歧视，那么当进入战争状态又将会如何？这里可以参照一下二战时期在澳日本侨民的境遇。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.2-3.jpg)**图片来源：Australia War Memorial（1943年日本侨民被拘禁在南澳）**
-1942年太平洋战争爆发后，日军横扫太平洋诸国，兵峰直指澳大利亚，双方在巴布亚新几内亚交战，日军曾出动空军多次轰炸达尔文港和昆州地区。当时，在澳日侨约4千多人被迫放弃一切全部关进拘留营，除了日本平民，还拘留了大约4700名意大利人和2000名德国人，一直到战争结束。虽然其中的很多日侨是在澳洲出生的，根本没有去过日本，虽然澳洲政府为日本平民在战争期间被拘留而道歉，但是战争时期的普通民众注定是无助和悲惨的。
 
-今天与历史状况也有几分相似，正值中共国在南海不断扩张，中共军机在台湾防空识别区高调碰瓷，台海战争一触即发。目前澳英美三国成立最新军事联盟AUKUS，英美将为澳大利亚打造核潜艇，澳洲正处在与中共国战略对峙阶段，当仁不让成为在南海和西太平洋盟国的代理人。只要台海战争打响，追随美国投入战斗是澳大利亚唯一的选择，与中共国进入战争状态的风险系数非常高。这次媒体试水是否在推动反华的民意？无论如何澳大利亚发生排华绝对不是空穴来风。
 
-当然，今天也不同以往。经历四年爆料革命，海外的中国人建立了新中国联邦，这是一个新型的亘古未有的社会架构按照郭先生10月3日大直播的分析，新中国联邦建造的既不是国家体制也不是国家政权，是超出人类的包含了宗教和国家体制的一种人类的相存方式，不分种族和国家。
+> [‘If you get the Pfizer vax, you’re more likely to get COVID’: Industry analyst flags FDA study](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)
 
-在这次中共病毒疫情危机中，新中国联邦提前预警国际社会病毒真相和疫苗阴谋；澳洲喜马拉雅农场积极做好预案，备足应急药品，紧急驰援患病的战友，让战友体会到从未有过的温暖和背后强大的力量；农场战友每天不遗余力在社交媒体平台上，在GTV、Gnews上做节目、写文章，唤醒全世界中共不等于中国人。当澳洲排华危机来临之时，有农场战友的支援，有新中国联邦的实力，相信我们可以顺利度过危机，历史一定不会简单地重演。
 
-（本文仅代表作者个人观点，与Gnews平台无关）
 
-参考链接：
-1、[Chinese Heritage of Australian Federation Project (latrobe.edu.au)](http://arrow.latrobe.edu.au/store/3/4/5/5/1/public/education/history.htm)
-2、[Japanese survivors recall Australia’s WWII civilian internment camps (sbs.com.au)](https://www.sbs.com.au/news/japanese-survivors-recall-australia-s-wwii-civilian-internment-camps)
+[【2021年10月3日】文贵先生盖特原文](https://gettr.com/post/pd1wz0a916)
 
-发布：文武全才
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**喜联盟Gnews编辑部**

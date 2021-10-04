@@ -15,86 +15,86 @@
 
 ---
 
-### [2021年10月3日 文贵先生盖特 9](/content/gnews/1/README.md)
+### [2021年10月2日 文贵先生盖特 5](/content/gnews/1/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月3日 文贵先生盖特 8](/content/gnews/2/README.md)
+### [2021年10月2日 文贵先生盖特 4](/content/gnews/2/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [西媒头条 — 第79期](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：台湾要求澳大利亚提供安全和情报支持](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021年10月3日 文贵先生盖特 7](/content/gnews/5/README.md)
+### [2021年10月2日 文贵先生盖特 3](/content/gnews/3/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月3日 文贵先生盖特 6](/content/gnews/6/README.md)
+### [2021年10月2日 文贵先生盖特 2](/content/gnews/4/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [独家：小泉进次郎，情场得意职场失意，自民党总裁选举后将何去何从](/content/gnews/7/README.md)
+### [2021年10月2日 文贵先生盖特 1](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月3日 文贵先生盖特 11](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [新冠口服药即将获批 利益集团继续收割](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [潘朵拉文件｜ICIJ 发表重磅调查报告揭露多国政要涉贪等犯罪证据](/content/gnews/8/README.md)
- ` G&#124;News TAIWAN`
+### [一年和四年](/content/gnews/8/README.md)
+ ` 澳喜农场`
 
-### [2021年10月3日 文贵先生盖特 5](/content/gnews/9/README.md)
+### [2021年10月3日 文贵先生盖特 10](/content/gnews/9/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共以城乡双向开放畅通国内大循环](/content/gnews/10/README.md)
+### [关店140家！HM（中国）三季度收入暴跌40%，跌出全球前十](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年10月3日 文贵先生盖特 9](/content/gnews/11/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月3日 文贵先生盖特 8](/content/gnews/12/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [西媒头条 — 第79期](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：台湾要求澳大利亚提供安全和情报支持](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [独家：小泉进次郎，情场得意职场失意，自民党总裁选举后将何去何从](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共以城乡双向开放畅通国内大循环](/content/gnews/16/README.md)
  ` 儒为`
 
-### [2021年10月3日 文贵先生盖特 4](/content/gnews/11/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [澳洲排华不是空穴来风，但是历史不会简单重演](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年10月3日 文贵先生盖特 3](/content/gnews/13/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月3日 文贵先生盖特 2](/content/gnews/14/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [秘翻在线：彭佩奥抨击拜登向中共磕头的绥靖政策](/content/gnews/15/README.md)
+### [秘翻在线：彭佩奥抨击拜登向中共磕头的绥靖政策](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共匪军38架次战机飞台以示 “十一国庆”特殊贺礼](/content/gnews/16/README.md)
+### [共匪军38架次战机飞台以示 “十一国庆”特殊贺礼](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年10月3日 文贵先生盖特 1](/content/gnews/17/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [白宫敦促美航空公司尽快为员工接种疫苗](/content/gnews/18/README.md)
+### [白宫敦促美航空公司尽快为员工接种疫苗](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [币圈新闻动态：喜交所已经确定在10月开市](/content/gnews/19/README.md)
+### [币圈新闻动态：喜交所已经确定在10月开市](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：北京市公安局要彻底肃清傅政华流毒影响](/content/gnews/20/README.md)
+### [DC大中华时事：北京市公安局要彻底肃清傅政华流毒影响](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [武毒所杂志：美官员发表了几十份中共军方的研究报告](/content/gnews/21/README.md)
+### [武毒所杂志：美官员发表了几十份中共军方的研究报告](/content/gnews/22/README.md)
  ` wenwu`
 
-### [中国恒大、恒大物业在港交所暂停交易](/content/gnews/22/README.md)
+### [中国恒大、恒大物业在港交所暂停交易](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [潘多拉文件曝香港前特首董建华家族涉多家离岸公司](/content/gnews/23/README.md)
+### [潘多拉文件曝香港前特首董建华家族涉多家离岸公司](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [针下亡魂｜科索沃 23 岁女子接种疫苗48小时后死亡](/content/gnews/24/README.md)
+### [针下亡魂｜科索沃 23 岁女子接种疫苗48小时后死亡](/content/gnews/25/README.md)
  ` G&#124;News TAIWAN`
 
-### [含青蒿素的喷雾剂-ArtemiC，对重症中共病毒患者有效](/content/gnews/25/README.md)
+### [含青蒿素的喷雾剂-ArtemiC，对重症中共病毒患者有效](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [重磅：中共国军机在被废弃的阿富汗美空军基地降落](/content/gnews/26/README.md)
+### [重磅：中共国军机在被废弃的阿富汗美空军基地降落](/content/gnews/27/README.md)
  ` wenwu`
-
-### [Lynk演示普通手机连接卫星，防火墙危也！](/content/gnews/27/README.md)
- ` 澳喜农场`
 
 ### [疫苗灾情｜美国 16 岁少女接种疫苗后神经损伤](/content/gnews/28/README.md)
  ` G&#124;News TAIWAN`
