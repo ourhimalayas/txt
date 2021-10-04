@@ -2,75 +2,23 @@
 ---
 
 
-## 纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1572189/)
+## 针下亡魂｜印度 31 岁孕妇接种疫苗10日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1572214/)
 
-据《门户专家网》克里斯蒂娜·莱拉（ Cristina Laila ）2021 年 10 月 3 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/hs_adobespark.jpeg)
-周六，被解雇的医护人员在史坦顿岛大学医院外进行反强制疫苗抗议。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 4/10/2021**
 
-“我们，人民，愤怒了！” 一名抗议者喊道。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-“我们不会遵守的！” 其他人喊道。
+* * *
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/7-1.jpg)
 
+【印度】一名 31 岁孕妇 Mahima Mathew 在接种阿斯利康 COVID-19 疫苗的 10 天后死亡。怀孕七周的 Mahima 8 月 6 日接种第一剂疫苗，4日后，她的身体开始出现严重的问题，送到帕拉医院诊治后，医生只给她开了些止痛药。
 
-> Anti-mandate Protest held outside Staten Island University Hospital today.
-> 
-> Full video [https://t.co/up8Lm6qX3R](https://t.co/up8Lm6qX3R) [pic.twitter.com/9fzog4MkPA](https://t.co/9fzog4MkPA)
-> — Scootercaster (@ScooterCasterNY) [October 3, 2021](https://twitter.com/ScooterCasterNY/status/1444475354161336323?ref_src=twsrc%5Etfw)
+3日后，她突然昏厥，被紧急送院，第二天医院她已经脑死亡，最后熬到 8 月 20 日离世。经尸检发现，Mahima 的死因脑出血，帕拉医院认为，“是阿斯利康的疫苗导致她的死亡。”
 
+来源｜ 个案007
 
+* * *
 
-*Scootercaster @ScooterCasterNY*
-
-*今天在史坦顿岛大学医院外举行了反强制疫苗授权抗议活动。*
-
-*完整视频****https://t.co/up8Lm6qX3R pic.twitter.com/9fzog4MkPA***
-
-*2021**年**10**月**2**日*
-
-纽约被解雇的医护人员通过焚烧他们的医护制服来抗议强制疫苗
-
-
-
-> Protesters and Healthcare Workers BURN THEIR SCRUBS to officially "retire" them, after many were fired for not getting vaccination.[#HappeningNow](https://twitter.com/hashtag/HappeningNow?src=hash&amp;ref_src=twsrc%5Etfw)
-> Antimandates protesters are gathered outside Northwell Staten Island University Hospital to speak against Mandates. [pic.twitter.com/uV6TxJiYFr](https://t.co/uV6TxJiYFr)
-> — Scootercaster (@ScooterCasterNY) [October 2, 2021](https://twitter.com/ScooterCasterNY/status/1444348850492350469?ref_src=twsrc%5Etfw)
-
-
-
-*在许多人因未接种疫苗而被解雇后，抗议者和医护人员烧掉了他们的医护制服以正式“退休”它们。*
-
-***#HappeningNow***
-
-*反强制疫苗抗议者聚集在诺斯韦尔史坦顿岛大学医院外反对强制令。*
-
-*2021**年**10**月**2**日*
-
-记者现场采访了几名被解雇的医护人员。
-
-被解雇的医护人员警告说，如果我们现在不站起来与暴政作斗争，情况只会变得更糟。
-
-
-
-> We spoke to a few health care workers who were outside Staten Island University Hospital to speak against Mandates [pic.twitter.com/UweHZRcDrh](https://t.co/UweHZRcDrh)
-> — Scootercaster (@ScooterCasterNY) [October 3, 2021](https://twitter.com/ScooterCasterNY/status/1444475861948903426?ref_src=twsrc%5Etfw)
-
-
-
-*我们与在史坦顿岛大学医院外抗议强制疫苗的几位医护人员进行了交谈*
-
-*2021**年**10**月**2**日*
-
-【本文仅代表作者个人观点，与Gnews无关】
-
-原文链接：
-
-
-
-> [Fired Healthcare Workers in New York Protest Vaccine Mandates by Burning Their Hospital Scrubs (VIDEO)](https://www.thegatewaypundit.com/2021/10/fired-healthcare-workers-new-york-protest-vaccine-mandates-burning-hospital-scrubs-video/)
-
-
-
-翻译：JS709｜校对：烟波浩淼｜编辑&发布：V
+他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//

@@ -2,32 +2,24 @@
 ---
 
 
-## 应对中共威胁，日美举行年内第5次海上联训
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1572829/)
+## 港股疫苗龙头暴跌超20% 市值蒸发450亿港元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1572878/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
-栏目记者/责任编辑：修文
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Huawei-700x420-2.jpg)网络图片
 
-昨日，日本海上保安厅舰艇协同美国海岸警卫队，在神奈川县横须贺市的横须贺港内进行了联合训练，联训科目是”设想应对可疑船只”。日方向外界透露，此次联训目的是为应对中共在东海、南海海域日益加强的军事威胁，而日美双方均秉持推广自由开放的印太区域概念，并加强双方合作, 包括在该海域的军事及准军事协作。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-73.png)
-经历20年发展的中共,近年来在军事上持续扩张和行动，特别是在东海/南海水域, 这些咄咄逼人的行动已引发世界各国关注和连锁反应，各国间针对中共威胁的结盟、军演和训练空前频繁，此次演习, 已经是日美今年所举行的第5次海上联合作训。
+**编辑摘要：**10月4日据AI财经消息，港股疫苗概念股集体重挫。开拓药业-B盘中跌近25%，腾博药业-B跌超22%，康希诺生物-B跌超20%，复星医药盘跌逾20%，早盘疫苗概念市值蒸发逾450亿港元。
 
-(本文仅代表作者观点)
+另外，康希诺生物-B股价已较年初最高的450港元腰斩，复星医药股价在8月初仍报82港元的高位，短短两个月不到，股价已跌掉6成。
 
-参考链接：
+新闻参考链接：[https://c.m.163.com/news/a/GLF7QDD00519D3BI.html?spss=newsapp](https://c.m.163.com/news/a/GLF7QDD00519D3BI.html?spss=newsapp)
 
-[https://news.ltn.com.tw/news/world/breakingnews/3692394](https://news.ltn.com.tw/news/world/breakingnews/3692394)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-终审：FoxRina
 
-校正/发稿：浪迹天涯
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

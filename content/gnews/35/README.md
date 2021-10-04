@@ -2,54 +2,50 @@
 ---
 
 
-## 共匪军38架次战机飞台以示 “十一国庆”特殊贺礼
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1572447/)
+## 纽约时报承认辉瑞疫苗在以色列注射后失败，引起感染激增
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1572590/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh6.googleusercontent.com/GokezrZgXJRqG47k42NYYVBuietuTydkanbjRC4TGjcH5EBTrCERdvnOqdB3Vs1F3z8i6JZSYtB6fNfX7WkryhriLL6FGK1OZ3T-PGNuWqof-uliv4M_bzzA7UDcku-_P-d4i0-5=s0)[图片来源](https://news.ltn.com.tw/news/politics/breakingnews/3692279)
-据[台湾自由时报10月4日消息](https://news.ltn.com.tw/news/politics/breakingnews/3692279)称：中共在“十一国庆”当日派38架次军机袭扰台湾防空识别区，破单日最高架次纪录，其中10架歼16深入台湾南方及东南方空域。
+作者：Ethan Huff
 
-[根据国防部统计](https://news.ltn.com.tw/news/politics/breakingnews/3692206)，38架共机分别是歼16、苏恺30、警500、运8反潜机等机型，为国防部揭露共机动态以来最多的一次。
+翻译：信心满满
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1.jpg)网络截图
+你知道武汉冠状病毒疫苗和大流行议程非常糟糕。纽约时报发出警告是感染上升由于疫苗承诺性。
 
-延展阅读：[台湾外交部长警告澳大利亚，台湾正准备与中国开战并寻求帮助](https://descargitas.com/%E5%8F%B0%E6%B9%BE%E5%A4%96%E4%BA%A4%E9%83%A8%E9%95%BF%E8%AD%A6%E5%91%8A%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%EF%BC%8C%E5%8F%B0%E6%B9%BE%E6%AD%A3%E5%87%86%E5%A4%87%E4%B8%8E%E4%B8%AD%E5%9B%BD%E5%BC%80/)。
+泰晤士报承认，越多人打疫苗，会有更多人有阳性的福奇病毒，会在医院治疗。怎么会让疫苗来治疗Covid？
 
-3日也出现绕台飞行。今天凌晨又出现5度绕台飞行。
+当然，答案就是福奇流感疫苗不能治疗。实际上会引起抗体依赖增强，非自然免疫反应使中国病毒容易进入细胞。
 
-共匪军在庆贺所谓十一“窃国国庆”后，有史以来高烈度连续五批次对台湾领空的军事恐吓行动。是否类似上次装载核弹绕台飞行，尚不得知，共匪军已经完全无视国际社会谴责，[甚至对台军频爆粗口“X你个妈”。更彰显其流氓国家性格](https://news.ltn.com.tw/news/politics/breakingnews/3691960)。
+疫苗引起ADE会使人更容易因武汉病毒而生病，它根本对免疫建立没有作用。这与阻止中国病毒的需要完全背道而驰。
 
-实际上，共匪军此次超记录架次飞越台湾是中共对自己“十一国庆”的庆贺方式。根据中共大外宣环球时报社论透漏，“[解放军战机以国庆“阅兵”形式飞越台湾海峡的。](https://www.globaltimes.cn/page/202110/1235605.shtml)”这表示台湾实际上被军事占领。
+泰晤士报解释以色列是一个接种疫苗最多的国家，现在每日新增感染飙升天文级别由于注射疫苗
 
-对此，3日，美国政府连续谴责北京称：中共国 “加大对台军事压力破坏地区和平与稳定。”并强调：这种加大破坏稳定、误判的风险在升级。并“敦促北京停止对台湾的军事”行动和外交、经济压力的胁迫。美方[将恪守“三个公报”、“与台湾关系法”和“六项保证”的承诺。美国对台湾的承诺坚如磐石](https://www.state.gov/increasing-peoples-republic-of-china-military-pressure-against-taiwan-undermines-regional-peace-and-stability/)。与此同时，时隔一小时后，白宫官方推特账户也转发这条申明。
+以色列冠状病毒专员萨尔曼，扎卡在最近议会委员会会上说“我们是在战争状态”。
 
-*·  延展阅读；*[*共军预警机未随队飞至我国东南 吕礼诗：此举极不寻常*](https://news.ltn.com.tw/news/politics/breakingnews/3691504)*。*
+以色列曾是以武汉病毒疫苗安全和有效在世界上一个瞩目例子，现在它成为大流行不该做的一个警示。
 
-*· 延展阅读：*[*19架次共机夜扰台湾空域 单日39架次破纪录*](https://news.ltn.com.tw/news/politics/breakingnews/3691485)*。*
+**第四波冠状病毒直接是由于大量疫苗注射**
 
-· 延展阅读：[中共连连军机扰台 空军发布影片：绝不让敌越雷池](https://news.ltn.com.tw/news/politics/breakingnews/3691775)。
+然而，最新借口指责免疫力减退，专家声称打过两针疫苗可以尽快接受加强注射。
 
-台湾军情紧急，台湾有些所谓评论员完全不了解共匪军邪恶能力以及美国拜登政府如何捍卫台湾的态度。对此，台湾自由时报评论员王定宇居然声称： “请国人要有信心！”“台湾军方不管是载空机，舰载的、岸置的各飞弹系统，对于保卫台湾我们的家园，有充分的准备，不会让中共踩到红线，越雷池一步。”
+声称来自唐纳德川普疫苗快速实施计划是无法治疗“Delta”病毒。尽管好多人争辩打疫苗是引起病毒和传播的原因。
 
-要知道，这种完全中共化的口炮党评论不但毫无事实依据，只能更加对中共国有利。
+疫苗在预防高感染Delta变种病毒可能不是非常有效。该病毒是以色列主要病毒版本。泰晤士报道，第一批接种疫苗是年纪大群体，他们免疫系统是比较弱在接种开始前。
 
-王定宇透漏，“[法国参议员即将组团访问台湾](https://www.taiwannews.com.tw/en/news/4301925)，台湾也在“跨太平洋伙伴关系全面进步协定”（CPTPP）的参加上，”法国议员访台湾行程是否实现，恐怕是台湾最大变数。但[台湾加入 CPTPP贸易组织因中共国参与尚处于不确定时期](https://www.abc.net.au/chinese/2021-09-23/taiwan-applies-to-join-cptpp-days-after-china-membership-pacific/100487248)。
+事实证明群体免疫有可能早就实现，没有疫苗注射，病毒在早几个月完全消失，生活回归正常。
 
-延展阅读：中共国驻法大使馆：[法国参议员访问台湾岛，将严重违反法国国家实行的一个中国原则，](https://www.globaltimes.cn/page/202109/1234979.shtml)[将被‘台湾’利用](https://www.globaltimes.cn/page/202103/1219084.shtml)。
+多亏了传播迅速行动，不过完全接种疫苗像野火般迅速变种传播，已经威胁并消除了流行病所取得的成就。
 
-“对台湾来讲，我们很简单，就是守住我们自由民主的生活方式，对于中共军方的挑衅，我们保护自己、维系和平、绝不退让，这是台湾一贯的态度。”
+主流媒体慢慢地了解疫苗真相，即使像纽约时报这样媒体还认为疫苗一开始有帮助。
 
-上述台湾评论员暴露其对国际形势评估的天真烂漫理想。但台湾需要谨慎乐观。台湾当局并没有认清形势，将共匪军与中国和中国人分开。如执意喊话“流氓国家”，对台湾当局不利，一旦共匪军攻台，台湾在没有国际友军援助下瞬间灰飞烟灭。
+Ran Balcer 教授，是专家团主席，他给以色列政府建议关于冠状病毒问题，声称疫苗只能对原始病毒有用，但对今后变种病毒像Delta是无效。
 
-对此，郭先生说，（2：00时段）中共“[打台湾一定会超出所有人预料之外，就不在这个局内（世界局势的分析预判）”。因为“台湾对习来说已经是囊中之物。可以随时出手。](https://gtv.org/video/id=614c897242a8af3151a3c790)”
+说实话，这里没有疫苗针对Delta，Balicer这样假科学家从不会告诉你这一点。你必须仔细阅读字里行间，有关疫苗骗局真相，会像病毒变异因为专家会为他们无法掌控事情而编织新的借口。
 
-· 延展阅读：[环球时报：绿媒紧盯：解放军军机今已5度进入台湾西南空域](https://open-hl.toutiao.com/a7014998750062084616/?showOriginalComments=true&amp;vivo_news_source=1&amp;utm_campaign=open&amp;docId=V0207014998750062084616&amp;utm_medium=webview&amp;vivoRecommendPushType=1&amp;isNews=1&amp;label=push&amp;from_channel=0&amp;showComments=0&amp;utm_source=vivoliulanqi)。
+像美国一样，以色列目前推行加强针作为抵御Delta变种病毒。一旦这些加强针进入人体，疫苗就会产生新的变种，官方就会再推行另外加强针。或许这是无法停止循环。
 
-因此台湾需要跟上国际形势，这是中共军发动的一系列超限战的混合战法。正如[文贵先生一再警告](https://gtv.org/video/id=6150769942a8af3151a5b28f)的那样，（2:40.58时段）接下来，“疫苗和生物科技的较量就随时拉开。”“这个时候就打开了科技战、疫苗站、医疗战、病毒战、然后再是货币战。”“这个时候就真的是黑暗的时刻即将到来。”
+为了解更多武汉疫苗的危险和无效，请到药物暴力网站查看。
 
-因为，中共“必须让美国出现经济危机。然后你美国国债又超限。然后打台湾。台湾朱立倫百分之百是共产党的。”（见[2:40.58](https://gtv.org/video/id=6150769942a8af3151a5b28f) 时段）
+**资料来源**
 
-2021年10月4日
-
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 / 平安卿卿*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)
+[New York Times admits the Pfizer vaccine is FAILING in Israel as post-injection infections skyrocket](https://dreddymd.com/2021/08/25/pfizer-vaccine-is-failing-in-israel-as-post-injection-infections-skyrocket/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

@@ -2,103 +2,39 @@
 ---
 
 
-## 详解区块链
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1572811/)
+## 秘翻在线:习近平会为了转移恒大破产的压力而攻打台湾？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572841/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-10.jpg)https://gtv.org/video/id=615aa6e7d2e2b8174870f8e8
-郭文贵
-Miles Guo
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/圖片1.jpg)
+图／CFP
 
-我告诉你就是，一句话就能回答区块链技术
-I’m telling you that I can answer you in one sentence: blockchain technology
+**恒大的破产牵连欧美各国**
 
-我今天告诉你们的重点要记住
-You need to remember the main point that I’ll tell you today
+据《零对冲》的报导，”中共国当局不愿救助负债累累的恒大房地产开发商”，资本市场随时可能出现中共国的“雷曼时刻”。恒大早就破产，投资者抛售房地产，进而导致房地产市场崩溃。
 
-这个区块链厉害到什么程度
-How powerful is blockchain?
+中共国的整个财政和金融体系正处于世界历史性崩溃的边缘，不仅限于恒大，经济损失将迅速扩及到恒大的交易对手，包括其他开发商和银行，甚至成为美国和欧洲的债务危机。
 
-就是你把人绑架回去
-Even though you have kidnaped individual
+**中共国的经济就是庞氏骗局**
 
-他自己都打不回去这个钱
-This individual can’t even get the money back by himself
+中共国经济基本上是一个债务驱动的庞氏骗局， 高达一半的投资是虚空的。虽然曾经创造了就业机会并造成水泥、钢铁、铜和玻璃等行业的兴盛，但所有的城市开发都是空洞浮夸的，许多高楼大厦空无一人，导致中共国的许多城市如同“鬼城”一般。
 
-这个太恐怖了
-The blockchain technology is awesome
+**中国共产党是非法政权**
 
-这个就是你美国CIA你把人给抓了
-This meant even though the US CIA arrested this individual
+《零对冲》指出，中国共产党是一个非法政权，对于一个无法兑现”小康均富”的非法政党而言，中国共产党将面临生存危机。如果中共国的就业机器失灵，民众骚乱的规模可能会比 1989 年天安门广场抗议活动的规模大得多，这是对中共的生存威胁。
 
-你把全家人都给抓了
-arrested the whole family
+**中共进退维谷**
 
-你拿枪顶着脑袋，记住我说的这个词儿
-and pointing a gun to this individual’s head. Remember my words
+从本质上讲，中共国进退两难。过去八年来，中共国通过过度信贷、浪费的基础设施投资和庞氏骗局推动了”假性经济成长”。中共国领导层知道这一点，他们必须让”经济成长的机器”保持高速运转。
 
-它是世界上最安全的财富
-it (blockchain) is the most secured wealth in the world
+然而事与愿违，目前中共国负债累累，导致经济衰退。摆脱债务可以用通货紧缩（导致冲销、破产和失业）和通货膨胀（导致购买力被盗，类似于增税）两种方法。中共无法接受这两种选择，因为会引起社会动盪并引发革命。
 
-什么叫区块链儿？
-What is a blockchain?
+**“武力犯台”成为中共必然的选项?**
 
-你们一定要看喜币的白皮书
-You must read H-Coin white paper
+战争是中共领导人在政权不稳定时使用的老伎俩。中共国会不会对台湾采取咄咄逼人的侵略行动，以转移人民的注意力并试图凝聚小粉红的力量？
 
-喜币的白皮书就在喜币的网站上
-H-Coin’s white paper is on the H-Coin’s website
+如果中共国领导人甘冒与美国冲突的风险，也要奋力一搏以保有政权，那么战争的可能性就会急剧升高。
 
-GClub的白皮书就在GClub的网站上
-and G-Club’s white paper is on the G-Club’s website
+“这是一个非常危险的时期。” 《零对冲》提出警告。
 
-一切不要相信七哥的，不要相信任何人的
-You don’t have to believe what Miles Guo and anyone said on everything
-
-那是你最重要要看的
-but most importantly you have to read
-
-就像火币也有白皮书一样
-just like the Huobi Token(virtual currency), it also has its white paper
-
-这个白皮书你看它用的什么技术？
-read this white paper and see what technology they have been using?
-
-它是用的摩根斯丹利独创的艾瑞克这个技术
-It (Huobi Token) has used the Erica technology which originally created by Morgan Stanley
-
-艾瑞克这个技术是虚拟币的所谓的两个技术(之一)
-Erica’s technology is one of the so-called two-technologies of virtual currency
-
-就是世界就俩，就两个
-There are currently two technologies in the world, only this two
-
-共产党那个现在全世界没人认
-The one that in the Communist Party’s possession currently do not recognized by the world
-
-就是区块链
-the blockchain
-
-我动一下区块链
-I do anything on the blockchain
-
-我现在发给猫本小哥一块钱
-if I send a dollar to Brother Mao Ben now
-
-全地球的电脑都能收到这个区块链技术
-all computers on the earth can receive this blockchain technology
-
-你想篡改绝不可能
-It is totally impossible for you to tamper with it (data).
-
-原视频日期：2021/09/30
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443787455853858817?s=24
-视频时间段 : 0:00-1:54
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+消息来源:[The Next “Lehman Moment” – Will China Try To Create A Dangerous Diversion?](http://曾经)

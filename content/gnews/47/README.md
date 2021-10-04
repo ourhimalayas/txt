@@ -2,43 +2,54 @@
 ---
 
 
-## 中共国的电力紧缩导致集装箱航运价格暴跌
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1571479/)
+## 支持疫苗护照副州长辞职，新州通往自由之门即将打开
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1572128/)
 
-作者：纽约香草山农场 – 四季
+#### **综合报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-6.png)
+图片来源：SkyNews
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+10月3日，澳大利亚新南威尔士州副州长约翰·巴里拉罗跟随他的前领导也提出了辞职。他表示，社交媒体针对他所谓的“卑鄙和种族主义”攻击促成了他作出退出政坛的决定。
 
+在周一的新闻发布会上，巴里拉罗说：“作为一个移民家庭的男孩，我长大了，我明白种族主义是什么……我不认为在2021年这种情况会持续下去。”
 
+巴里拉罗目前正就两个视频的内容起诉喜剧演员乔丹·香克斯，巴里拉罗称这些视频玷污了他的声誉。
 
+在他的履历中，巴里拉罗一直是新州地区疫苗护照的坚定支持者，经常发言支持（疫苗）路线图，该路线图剥夺了拒绝接种疫苗的澳大利亚人的自由。
 
+“给未接种疫苗的人传达的信息是，除非您接种疫苗，否则您将无法获得更多自由，”巴里拉罗在9月底说。
 
-据[零对冲](https://www.zerohedge.com/commodities/dip-shipping-rates-end-nightmare-or-just-eye-hurricane)10月2日报道，当即期海运集装箱运价今年已达到历史高点之际，本周从中共国到美国西海岸的40英尺集装箱价格下降，从15,000美元暴跌到只有8000美元。对于同一个集装箱，中共国到美国东海岸的现货价格从20,000美元下降到15,000美元左右。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1114-1.png)（图片来源：零对冲）
-*来自中共发改委，各地方新闻及彭博新能源财经的注释：如果地方官方新闻稿披露停电的主要原因是煤炭短缺或煤炭价格昂贵，则该省被标记为黑色，如果一个省只限制排放密集型产业的电力消耗，或指定其电力抑制的目的是为了达到能源强度目标，该省被标记为红色。同时面临本地短缺和可再生能源低产出的省份被标记为蓝色。*
+“新南威尔士州目前开放的部分——70％的路线图确实适用于整个州。因此，新南威尔士州偏远地区的一些人选择不接种疫苗**，**他们将在10月11日失去自由。”
 
-停电已经对企业产生了直接影响。世界上最大的iPhone组装商以及苹果和特斯拉的主要供应商富士康（Foxconn），本周早些时候已经停产，另一家苹果公司的供应商欣兴电子（Unimicron）也暂停运营。还有无数关于其他能源密集型企业暂停运营的报道。
+2020年新年前夕他曾经作出选择，认为在大流行期间将人们吸引到港口观看焰火表演风险太大。新年焰火表演最终还是进行了，只是时间缩减为7分钟，人们被告知只可待在家里观看。
 
-显然，中共国的电力紧缩对经济增长产生了相当大的影响。电力短缺不仅影响民众的生活，同时造成对其制造业基地的冲击，使航运费率可能会因中共国经济的缓慢增长而停滞。
+巴里拉罗副州长最艰难的考验是新冠病毒大流行及其相关的卫生命令。
 
-（本文仅代表作者观点）
+巴里拉罗在9月初发表评论称，拒绝强制执行疫苗护照或选择雇用没有双重接种的员工将面临“巨额罚款”后，巴里拉罗面临基础选民的反对。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+巴里拉罗宣布了新州针对区域地区的疫苗接种路线图——也称为“自由蓝图”。到9月27日，大都市和偏远地区之间的（开放）旅行已经从70%的疫苗接种率推迟到80%。
 
-编辑/校对/发稿：小鹿
+现任新州财长多米尼克·佩特罗是州长的热门人选，他是一名保守的天主教徒和六个孩子的父亲，在2016年美国大选期间，曾对川普总统大加赞赏。
 
+他被问及是否会放松限制并兑现他不在新南威尔士州实施医疗种族隔离的承诺。
 
+佩罗特说，一旦新南威尔士州的每个人都获得了新冠疫苗，该州就应该对所有人开放，无论其是否接种疫苗。
 
-**更多资讯，更多关注**
+“我希望看到更多的团结，而不是一个（割裂的）两级的社会。提供自由不是政府的职责，”佩罗特表示。
 
-[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+如果是这样的话，（新州）人们可能会更快地看到他们的自由得到恢复。
 
-[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新闻链接：
 
-[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+1、[Pro-vaccine passport Barilaro resigns from politics – Rebel News](https://www.rebelnews.com/pro_vaccine_passport_barilaro_resigns_from_politics)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+2、[Meet Dom Perrottet — the conservative Catholic and father-of-six who will be NSW’s next Premier – ABC News](https://www.abc.net.au/news/2021-10-03/meet-dominic-perrottet-will-be-next-nsw-remier/100510952)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**编辑****/发布：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
