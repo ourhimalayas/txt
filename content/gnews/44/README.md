@@ -2,30 +2,43 @@
 ---
 
 
-## 疫苗灾情｜法国 32 岁铁人三项运动员接种疫苗后致肺栓塞
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1570258/)
+## 中共国的电力紧缩导致集装箱航运价格暴跌
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1571479/)
 
-**撰文/ 台湾宝岛农场 天滅中共 ｜发布日期****/ 3/10/2021**
+作者：纽约香草山农场 – 四季
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。***
-***本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-* * *
 
-【法国】圣特斯一名 32 岁的资深铁人三项运动员 Antoine Méchin 接种完第二针莫德纳 COVID-19 疫苗后，身体产生严重不良反应，致使被迫暂停本赛季的所有比赛。
 
-Antoine 8 月 16 日接种第二剂疫苗之后，出现了呼吸急促和腰痛的症状，据最新的诊断结果显示，他的不良反应是因为接种疫苗后导致肺栓塞。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Antoine.jpeg)
 
-其实， 在 Antoine 6 月 28 日接种完第一针后，他就感到呼吸困难，左臂疼痛，直至 3 周后的一场越野赛期间，他都仍然饱受左臂疼痛和呼吸急促的困扰。当时，Antoine 及时将自己的情况贴在Facebook上，并于第二日，去圣特斯医院接受检查，可惜，医生告诉他不要担心，这些不适的来源是“压力和疲劳”。
+据[零对冲](https://www.zerohedge.com/commodities/dip-shipping-rates-end-nightmare-or-just-eye-hurricane)10月2日报道，当即期海运集装箱运价今年已达到历史高点之际，本周从中共国到美国西海岸的40英尺集装箱价格下降，从15,000美元暴跌到只有8000美元。对于同一个集装箱，中共国到美国东海岸的现货价格从20,000美元下降到15,000美元左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1114-1.png)（图片来源：零对冲）
+*来自中共发改委，各地方新闻及彭博新能源财经的注释：如果地方官方新闻稿披露停电的主要原因是煤炭短缺或煤炭价格昂贵，则该省被标记为黑色，如果一个省只限制排放密集型产业的电力消耗，或指定其电力抑制的目的是为了达到能源强度目标，该省被标记为红色。同时面临本地短缺和可再生能源低产出的省份被标记为蓝色。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Antoine-Mechin-1.jpeg)2021年6月越野賽
+停电已经对企业产生了直接影响。世界上最大的iPhone组装商以及苹果和特斯拉的主要供应商富士康（Foxconn），本周早些时候已经停产，另一家苹果公司的供应商欣兴电子（Unimicron）也暂停运营。还有无数关于其他能源密集型企业暂停运营的报道。
 
-因此，他接受了第二剂疫苗注射，大约 1 个月后，症状（呼吸急促、身体疼痛）变得更严重，最后被证实患有肺栓塞。
+显然，中共国的电力紧缩对经济增长产生了相当大的影响。电力短缺不仅影响民众的生活，同时造成对其制造业基地的冲击，使航运费率可能会因中共国经济的缓慢增长而停滞。
 
-他表示“我现在正在接受治疗，我希望恢复我的肺活量，在那之前我只能休息。如果必须再次接种疫苗，我绝不会接受。”
+（本文仅代表作者观点）
 
-来源｜[个案006](https://www.sudouest.fr/sport/course-pedestre/triathlon/le-triathlete-saintais-antoine-mechin-met-un-terme-a-sa-saison-et-ne-se-referait-pas-vacciner-si-c-etait-a-refaire-6234090.php)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-他们的故事：[//英国 29 岁创意总监接种疫苗后瘫痪//](https://gnews.org/zh-hant/1568385/)
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
