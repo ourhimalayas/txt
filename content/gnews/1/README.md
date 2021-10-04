@@ -2,17 +2,30 @@
 ---
 
 
-## 秘翻在线：菅义伟内阁会议确定内阁成员总辞职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1572089/)
+## 有声|加州所有在校学生恐被安排分阶段接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572145/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/画像5-1.png)（图片源自本文链接）
-TBS新闻10月4日消息：菅义伟内阁刚刚举行了特别会议，汇总了内阁成员的辞职信，最终确定了内阁成员的总辞职，其在任384天。
+配音：纽约香草山美食部 – 玫瑰园
 
-菅义伟内阁执政期间，一直忙于应对中共病毒的蔓延、紧急状态下的应对措施，以及在病毒蔓延状况下组织东京奥运会和残奥会。菅义伟本人在上个月他上任一周年之际回忆说：在中共病毒肆虐中度过了我所有的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-随着菅义伟内阁的辞职，第二届安倍政府以来霞ヶ关官僚机构的实权派人物，担任8年零9个月的副官房长官杉田和博也将下台。
+周五，加州州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。加州成为全美第一个，宣布要求所有在校学生接种新冠疫苗的州。
 
-[信息源](https://news.yahoo.co.jp/articles/2b873c978130433ad4de81f125ed91458eb7aa95)
+文字版原文：[加州所有在校学生恐被安排分阶段接种疫苗](https://gnews.org/zh-hans/1571261/)
 
-（文章仅代表作者个人观点）
+音频处理：喜山必胜Maverick
+发稿：孤独的小生（文留）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

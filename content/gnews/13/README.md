@@ -2,29 +2,26 @@
 ---
 
 
-## 2021年8月10日郭文贵先生吃馍馍吃“草”盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1571959/)
+## 应朝鲜要求 朝韩双方重启热线
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571982/)
 
-盖特连接：[https://gettr.com/post/p76cb4](https://gettr.com/post/p76cb4)
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-17.jpg)图片来源：网络截图
+路透社10月4日首尔报道，朝韩双方于周一重新恢复他们的热线，该热线在几个月前被北方切断，因朝鲜在武器开发问题上批评南韩双重标准，而今平壤（朝鲜）又要求首尔（韩国）作出努力，改善双方关系。
 
-吃馍馍喽，吃草喽……
+朝鲜领导人金正恩上周表达了他想要重新激活热线，而该热线是在8月初抗议美韩军事训练，当时发生在该热线于一年内首次重开后没几天。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+朝鲜中央通讯社官方新闻说电话热线将于周一上午9点重新联结。
 
-吃馍馍喽，吃馍馍喽！这是玉米面儿的，然后这是白面的，这是萝卜羊肉汤，青椒炒蛋青，辣椒——一碗纯辣椒，黄瓜条，绿豆，就这么简单，没钱嘛，没钱只能吃点这穷人的饭了。
+南韩证实了重新开始一天二次的通过军事热线和其他统一部门的对话常规，海军频道是通过商业船舶的国际网线。
 
-编辑整理及发布：黎明之前
+这个热线是一个对很少用的起到桥梁作用的工具，还不清楚重启后是否能开启双方有意义的对话，旨在拆除北方核设施和导弹项目，从而解除美国的制裁。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+朝鲜中央通讯社重复金正恩上周的讲话说恢复双方热线旨在帮助双方人民的和平愿望并要求韩国放弃“双重标准”，不要对朝鲜的防御性武器开发活动的废弃抱有“幻想”。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+热线的重启降低了双方的紧张局势，美国国防部发言人强烈支持两方的对话，称重启热线“对于建立朝鲜半岛稳定局势是一个重要的成分”。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
+分析家们认为朝鲜的“胡萝卜加大棒”的策略是旨在让国际上认定朝鲜是一个拥核国家，在美韩之间打下一个楔子，让韩国总统文在寅在他明年五月任期结束前，急于锻造双方的和平协议为自己加分。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+##### 新闻来源： [Two Koreas reopen hotlines as North urges South to mend ties](https://www.reuters.com/world/asia-pacific/nkorea-says-inter-korean-hotlines-will-be-restored-monday-kcna-2021-10-03/)

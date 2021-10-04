@@ -2,29 +2,47 @@
 ---
 
 
-## 2021年8月10日郭文贵先生午饭后赏花盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1571870/)
+## 郭先生直播爆彩蛋,欧盟联合国在做承认新中国联邦的准备!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571911/)
 
-盖特连接：[https://gettr.com/post/p784ug](https://gettr.com/post/p784ug)
+栏目记者/责任编辑：文龍
 
-亲爱的兄弟姐妹们……你说花和我．那个最好看呢？
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
 
-大家你说这花，你说七哥和这花是花儿好看呢还是七哥好看呢？我就喜欢这花，你说咋弄啊，我中午把馒头全吃完了、菜全吃完了，然后现在赏花呢，然后抽雪茄呢，太腐败了吧！穷人只能吃点草，然后呢还有这样的花儿，哇！哎哟，还有蜜蜂欸！哇~，太漂亮了！
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-编辑整理及发布：黎明之前
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+纽约时间10月3号，文贵先生在与战友再次连线直播过程中爆出彩蛋，称欧盟和联合国正在讨论和考虑接受并承认新中国联邦！
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+在这次长达5小时，在线人数超千万的直播中，文贵先生称：“联合国和欧盟正在研究，是否承认新中国联邦是他们应该面对的，代表中国人的政治力量，当最终形成文件时候，将是我最开心的事情！这一步我们走的很坚实，我看到他们正在努力，真正的走向形成官方文件，这对我们太重要了！”
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+文贵先生同时称，未来的新中国联邦将包括作为独立区的台湾和香港，以及新疆西藏，甚至比美国的联邦制还要独立。在文贵先生的愿景中，未来的人类绝对不应该是继续被传统的国家体制所控制和限制，而是在正道主义前提下，对一种人类相处方式的共同选择，不分种族，不分宗教，不分国家！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-7.jpg)
+信息链接：
+[2021-10-03 文贵大直播：中共外交部是情报机关；爆料程国平，大使倪坚；王毅，杨洁篪，王沪宁一定被抓；外交部和政法委的腐败黑暗关系；傅政华与文贵的通话录音变声的真相；习王江曾厮杀的核心；病毒解药一定都含有青蒿素，伊维菌素；欧洲官方开始研究承认新中国联邦；](https://gtv.org/video/id=61599f5b304e992109ae6927)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

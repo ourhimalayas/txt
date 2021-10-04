@@ -2,33 +2,43 @@
 ---
 
 
-## 梵蒂冈强推绿色通行证，3名瑞士卫兵辞职
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1571851/)
+## 推特将疫苗受害者的信息标记为“误导信息”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571864/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/See-the-Swiss-Guards-_Getty_2018_GettyImages-821800896.jpg)
-图片来源：cntraveler.com
+栏目记者/责任编辑：火来
 
-**【雅典娜快讯】，紧贴时事脉搏**
 
-在罗马教廷命令军队，在没有任何宗教豁免的情况下接种中共病毒疫苗后，三名瑞士卫兵已“自愿”从梵蒂冈的礼仪部队中辞职，而其他几人则被停职。
 
-虽然梵蒂冈的其他工作人员和游客可以选择定期接受中共病毒测试以保持他们的绿色通行证状态，但所有瑞士卫兵都被命令接受疫苗接种“以保护他们的健康以及他们作为服务所接触到的其他人的健康”，“该部队的官员乌尔斯·布雷滕莫瑟（Urs Breitenmoser）中尉告诉美联社。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-除了被送回瑞士的三名卫兵外，至少还有三名卫兵在同意接种疫苗但尚未接受接种后被停职。瑞士卫队是一支由135人组成的全男性瑞士士兵小队，作为礼仪单位，以其三色文艺复兴式制服以及教皇的私人保镖而闻名。
 
-自 10月1日起，所有居民、员工和游客必须提供有效的健康证明——即意大利和其他欧盟国家使用的所谓绿色通行证——才能进入城邦场地。没有宗教方面的豁免，除了那些被特别受邀参加弥撒的人，“在仪式严格要求的时间内”可以被豁免。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考新闻：**[3 Swiss Guards resign after Vatican orders vaccinations & introduces Covid-19 Green Passes for staff and visitors — RT World News](https://www.rt.com/news/536494-vatican-swiss-guards-vaccination/)
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+前不久，一位来自美国俄勒冈州的年轻母亲，杰西卡-威尔森，接种新冠疫苗后，患上血栓性血小板减少综合症，不幸死亡，留下了两个年幼的孩子。威尔森女士生前并不愿意接种疫苗，但是为了能去女儿的学校服务，她被迫接种了疫苗，最终，疫苗导致了她的死亡，同时，一个幸福的家庭也被疫苗毁掉。令人愤怒的是，当有人将威尔森女士死亡的消息发布在推特上时，推特居然将这条信息标记为“误导信息”。血栓性血小板减少综合症，是新冠疫苗可能导致的伤害之一，已经有过多次报道。推特否定，掩盖这一医学事实，阻止真相的传播，不断加重疫苗造成的伤害，这种疯狂的言论审查，对真相的打压，助纣为虐的手段，最终会让推特平台土崩瓦解。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-8.jpg)
+参考链接：
+[Twitter tags obituary of woman ‘misleading’ who reportedly died from ‘vaccine-induced thrombotic thrombocytopenia’](https://thepostmillennial.com/twitter-obituary-misleading-thrombotic-thrombocytopenia)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

@@ -2,31 +2,54 @@
 ---
 
 
-## 2021年8月12日郭文贵先生吃饺饺盖特全文字版
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1572050/)
+## 支持疫苗护照副州长辞职，新州通往自由之门即将打开
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1572128/)
 
-盖特连接：[https://gettr.com/post/p7fy5qfb02](https://gettr.com/post/p7fy5qfb02)
+#### **综合报道：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-6.png)
+图片来源：SkyNews
 
-吃饺饺喽……
+10月3日，澳大利亚新南威尔士州副州长约翰·巴里拉罗跟随他的前领导也提出了辞职。他表示，社交媒体针对他所谓的“卑鄙和种族主义”攻击促成了他作出退出政坛的决定。
 
-\*\*\*\*\*\*\*以下为视频正文\*\*\*\*\*\*\*
+在周一的新闻发布会上，巴里拉罗说：“作为一个移民家庭的男孩，我长大了，我明白种族主义是什么……我不认为在2021年这种情况会持续下去。”
 
-这个是咱自己、你七嫂种的辣椒，叫什么墨西哥朝天椒，超级辣，超级辣，这是你七嫂种的咱家花园里边，这是黄瓜条，然后这个是咱们西班牙的火腿，\*\*Ham（注：什么种类火腿没听懂），还有鸡肉的火腿——土鸡火腿，还有挪威的三文鱼，这就是你七嫂做得鲅鱼饺子，鲅鱼的饺子，我的挚爱。
+巴里拉罗目前正就两个视频的内容起诉喜剧演员乔丹·香克斯，巴里拉罗称这些视频玷污了他的声誉。
 
-然后这是你七嫂子花园里边弄的那个辣椒，稍微尖一点的、稍微大一点的辣椒，刚才那是绝对尖的，就这，就这，没钱了，没钱了，咱只能吃点这穷人的饭，很多战友跟我说要注意健康的问题，我不是每天那么吃兄弟姐妹们，辣椒也不会每天吃，偶尔地吃，咱们的医生有特别的嘱咐，放心，放心啊！唔盖塞啦，唔盖塞啦，吃饺饺喽！
+在他的履历中，巴里拉罗一直是新州地区疫苗护照的坚定支持者，经常发言支持（疫苗）路线图，该路线图剥夺了拒绝接种疫苗的澳大利亚人的自由。
 
-编辑整理及发布：黎明之前
+“给未接种疫苗的人传达的信息是，除非您接种疫苗，否则您将无法获得更多自由，”巴里拉罗在9月底说。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“新南威尔士州目前开放的部分——70％的路线图确实适用于整个州。因此，新南威尔士州偏远地区的一些人选择不接种疫苗**，**他们将在10月11日失去自由。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+2020年新年前夕他曾经作出选择，认为在大流行期间将人们吸引到港口观看焰火表演风险太大。新年焰火表演最终还是进行了，只是时间缩减为7分钟，人们被告知只可待在家里观看。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)；
+巴里拉罗副州长最艰难的考验是新冠病毒大流行及其相关的卫生命令。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+巴里拉罗在9月初发表评论称，拒绝强制执行疫苗护照或选择雇用没有双重接种的员工将面临“巨额罚款”后，巴里拉罗面临基础选民的反对。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+巴里拉罗宣布了新州针对区域地区的疫苗接种路线图——也称为“自由蓝图”。到9月27日，大都市和偏远地区之间的（开放）旅行已经从70%的疫苗接种率推迟到80%。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+现任新州财长多米尼克·佩特罗是州长的热门人选，他是一名保守的天主教徒和六个孩子的父亲，在2016年美国大选期间，曾对川普总统大加赞赏。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+他被问及是否会放松限制并兑现他不在新南威尔士州实施医疗种族隔离的承诺。
+
+佩罗特说，一旦新南威尔士州的每个人都获得了新冠疫苗，该州就应该对所有人开放，无论其是否接种疫苗。
+
+“我希望看到更多的团结，而不是一个（割裂的）两级的社会。提供自由不是政府的职责，”佩罗特表示。
+
+如果是这样的话，（新州）人们可能会更快地看到他们的自由得到恢复。
+
+新闻链接：
+
+1、[Pro-vaccine passport Barilaro resigns from politics – Rebel News](https://www.rebelnews.com/pro_vaccine_passport_barilaro_resigns_from_politics)
+
+2、[Meet Dom Perrottet — the conservative Catholic and father-of-six who will be NSW’s next Premier – ABC News](https://www.abc.net.au/news/2021-10-03/meet-dominic-perrottet-will-be-next-nsw-remier/100510952)
+
+**编辑****/发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
