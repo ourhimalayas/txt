@@ -2,30 +2,25 @@
 ---
 
 
-## 有声|中共国的电力紧缩导致集装箱航运价格暴跌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572100/)
+## 针下亡魂｜科索沃 23 岁女子接种疫苗48小时后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1572347/)
 
-配音：纽约香草山美食部 – 玫瑰园
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 4/10/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-据[零对冲](https://www.zerohedge.com/commodities/dip-shipping-rates-end-nightmare-or-just-eye-hurricane)10月2日报道，当即期海运集装箱运价今年已达到历史高点之际，本周从中共国到美国西海岸的40英尺集装箱价格下降，从15,000美元暴跌到只有8000美元。对于同一个集装箱，中共国到美国东海岸的现货价格从20,000美元下降到15,000美元左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9.jpg)
 
-文字版原文：[中共国的电力紧缩导致集装箱航运价格暴跌](https://gnews.org/zh-hans/1571479/)
+【科索沃】普利斯提纳一名 23 岁的女士 Zarife Imeri 在接种辉瑞 COVID-19 疫苗的 48 小时后死亡。Zarife 9 月 13 日注射第一针之后，就因极度不适而紧急住院，可惜，2日后因腹腔出血而死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Albania-vaccine-2.jpeg)
+Zarif 的祖父 Haxhi Xhemajli 细心挑选了孙女生前最美丽的照片，并在 Facebook 为她写下悼文，“不要再强迫我们，不要再限制我们。”
 
-音频处理：喜山必胜Maverick
-发稿：孤独的小生（文留）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Albania-vaccine.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+Haxhi 认为，他的孙女没有潜在的健康问题。普利斯提纳的检察官将此案定义为可疑死亡个案，目前已展开调查。
 
-**更多资讯，更多关注**
+来源｜ [个案009](https://sinjali.com/nisin-hetimet-per-vdekjen-e-23-vjecares-nga-drenasi/)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hant/1572210/)//

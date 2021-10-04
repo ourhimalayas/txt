@@ -2,30 +2,21 @@
 ---
 
 
-## 有声|文贵先生发布盖特公布其与傅振华2015年的秘密通话
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1572129/)
+## 中国恒大、恒大物业在港交所暂停交易
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1572365/)
 
-配音：纽约香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F67BA482-326B-443B-9D24-FD7D7F54AC82_w408_r1_s.jpg)中国恒大、恒大物业在港交所暂停交易 网络图片
+据新华报业网10月4日报道，中国恒大和恒大物业在港交所发布短暂停牌通告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109.jpg)
+截至2021年6月30日，恒大物业营业收入约78.73亿元，8月物业销售金额380.8亿元。截至停牌前，恒大物业总市值553.5亿港元；中国恒大总市值390.9亿港元。假擀面杖子的经济势必经不住真市场的考验，短暂停牌在当下，永久停牌还远吗？
 
-10月2日，郭文贵先生连发多条盖特，并公布其与傅政华在2015年的秘密通话。通话中，傅政华以文贵先生家人、员工及本人人身安全为威胁，要求文贵先生把人、钱、资产安排回国。同时，傅政华要求文贵先生查清王岐山、孟建柱的海外资金及不正当男女关系情况，并声称这是习近平的指示。除此之外，傅政华在录音中爆出，孟建柱决策的执行人是孙力军，吴征事代表孙力军和孟建柱。
+新闻参考链接：[http://news.xhby.net/index/202110/t20211004\_7256654.shtml](http://news.xhby.net/index/202110/t20211004_7256654.shtml)
 
-文字版原文：[文贵先生发布盖特公布其与傅振华2015年的秘密通话](https://gnews.org/zh-hans/1570382/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-音频处理：喜山必胜Maverick
-发稿：孤独的小生（文留）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

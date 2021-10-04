@@ -2,133 +2,75 @@
 ---
 
 
-## G时评：我是飞扬跋扈的尘，你是现实安稳的土
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1571978/)
+## 纽约被解雇的医护人员通过焚烧医护制服来抗议强制疫苗
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1572189/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/25.png)
-1，
+据《门户专家网》克里斯蒂娜·莱拉（ Cristina Laila ）2021 年 10 月 3 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/10/hs_adobespark.jpeg)
+周六，被解雇的医护人员在史坦顿岛大学医院外进行反强制疫苗抗议。
 
-**身体只是一具容器……**
+“我们，人民，愤怒了！” 一名抗议者喊道。
 
-——由水、蛋白质、脂肪和无机盐四类物质组成。
+“我们不会遵守的！” 其他人喊道。
 
-**身体只是一具安放灵魂的容器……**
 
-——那你还天天敷面膜。
 
-**容器不美的话，没人对你的灵魂感兴趣……**
+> Anti-mandate Protest held outside Staten Island University Hospital today.
+> 
+> Full video [https://t.co/up8Lm6qX3R](https://t.co/up8Lm6qX3R) [pic.twitter.com/9fzog4MkPA](https://t.co/9fzog4MkPA)
+> — Scootercaster (@ScooterCasterNY) [October 3, 2021](https://twitter.com/ScooterCasterNY/status/1444475354161336323?ref_src=twsrc%5Etfw)
 
-——基本上产品包装精美，都是为了出售。
 
-……
 
-2，
+*Scootercaster @ScooterCasterNY*
 
-**如何理解尘归尘、土归土？**
+*今天在史坦顿岛大学医院外举行了反强制疫苗授权抗议活动。*
 
-——不需要理解。
+*完整视频****https://t.co/up8Lm6qX3R pic.twitter.com/9fzog4MkPA***
 
-**尘是土的飞扬模式，土是尘的沉淀模式。**
+*2021**年**10**月**2**日*
 
-——所以呢？
+纽约被解雇的医护人员通过焚烧他们的医护制服来抗议强制疫苗
 
-**所以尘是飞扬跋扈的土，土是现实安稳的尘。**
 
-**我是飞扬跋扈的尘，你是现实安稳的土……**
 
-——你好无聊……
+> Protesters and Healthcare Workers BURN THEIR SCRUBS to officially "retire" them, after many were fired for not getting vaccination.[#HappeningNow](https://twitter.com/hashtag/HappeningNow?src=hash&amp;ref_src=twsrc%5Etfw)
+> Antimandates protesters are gathered outside Northwell Staten Island University Hospital to speak against Mandates. [pic.twitter.com/uV6TxJiYFr](https://t.co/uV6TxJiYFr)
+> — Scootercaster (@ScooterCasterNY) [October 2, 2021](https://twitter.com/ScooterCasterNY/status/1444348850492350469?ref_src=twsrc%5Etfw)
 
-3，
 
-**飞鸟爱上蓝天，不是因为天空有多蓝，而是因为在天空中那种飞翔的感觉……**
 
-——所以呢？
+*在许多人因未接种疫苗而被解雇后，抗议者和医护人员烧掉了他们的医护制服以正式“退休”它们。*
 
-**万物皆有道……**
+***#HappeningNow***
 
-——你的道是什么？
+*反强制疫苗抗议者聚集在诺斯韦尔史坦顿岛大学医院外反对强制令。*
 
-**随心所欲，得小自在，这就是我的道，你的呢？**
+*2021**年**10**月**2**日*
 
-——赚钱不易，姐姐。
+记者现场采访了几名被解雇的医护人员。
 
-4，
+被解雇的医护人员警告说，如果我们现在不站起来与暴政作斗争，情况只会变得更糟。
 
-——**你有没有发现，花粉症其实有点像中了情花毒……**
 
-打喷嚏
 
-——**那是有人在想你;**
+> We spoke to a few health care workers who were outside Staten Island University Hospital to speak against Mandates [pic.twitter.com/UweHZRcDrh](https://t.co/UweHZRcDrh)
+> — Scootercaster (@ScooterCasterNY) [October 3, 2021](https://twitter.com/ScooterCasterNY/status/1444475861948903426?ref_src=twsrc%5Etfw)
 
-流鼻涕
 
-——**那是你在想别人；**
 
-眼睛发红、流泪和发痒
+*我们与在史坦顿岛大学医院外抗议强制疫苗的几位医护人员进行了交谈*
 
-——**那是你没洗手……**
+*2021**年**10**月**2**日*
 
-5，
+【本文仅代表作者个人观点，与Gnews无关】
 
-**懂你的人，会说你智慧；不懂你的人，会觉得你天真。**
+原文链接：
 
-——这其实并不矛盾。智慧的人，必然能看得到你的智慧；肤浅的人，眼里只有肤浅。
 
-6，
 
-**好好地享受青春，你无法比此刻更年轻了。**
+> [Fired Healthcare Workers in New York Protest Vaccine Mandates by Burning Their Hospital Scrubs (VIDEO)](https://www.thegatewaypundit.com/2021/10/fired-healthcare-workers-new-york-protest-vaccine-mandates-burning-hospital-scrubs-video/)
 
-——前提是你得有青春。
 
-**青春跟年龄无关。**
 
-——但是跟皱纹、眼袋有关。
-
-……
-
-7，
-
-**真相一旦被掩盖，谣言就会野蛮生长。**
-
-——真相就算不掩盖，谣言也会野蛮生长。
-
-8，
-
-**圣僧，取经路上还缺女妖精么？**
-
-——好羞涩，你怎么知道我要去取精？
-
-**没想到你是这样的圣僧！**
-
-——红朝之下，岂有圣僧！
-
-妖精啊，你已沉睡千年，赶紧继续装睡吧，这个世界太疯狂了。
-
-9,
-
-**什么是知己？**
-
-——我是一块璞玉，而你捡起了我。
-
-或者是，我是你灵魂里缺失的那一片段……
-
-
-
-**【小诗一首】无题**
-
-一夜蓝花盈满树
-
-晨起时
-
-花如雨
-
-紫雪小径香萦路
-
-纵使相逢
-
-千壑也难渡
-
-摇曳风铃舞
-
-**（文章内容仅代表作者胡思乱想）**
+翻译：JS709｜校对：烟波浩淼｜编辑&发布：V
