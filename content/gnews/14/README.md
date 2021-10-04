@@ -2,29 +2,25 @@
 ---
 
 
-## 约翰逊议员称美没有FDA批准的中共病毒疫苗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571540/)
+## 工盟解散 香港亲民主势力没落
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1571631/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场  银河
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/J.jpg)yahoo.com
-罗恩·约翰逊（Ron Johnson）参议员在参议院质疑中共病毒疫苗的有效性后【1】，又曝出重大新闻，美国没有FDA正式批准的中共病毒疫苗。这对前些日子主流媒体火爆炒作的辉瑞疫苗获得了FDA批准的假新闻予以了澄清，约翰逊参议员亲自写信质询了FDA，得到的回复是，他们只延长了辉瑞疫苗在美国的紧急使用授权。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/G-1.jpg)swifttelecast.com
+日本共同社10月3日报道，香港主要的亲民主组织——香港职工会联盟 (Hong Kong Confederation of Trade Unions)周日决定解散，继香港民间人权阵线、香港教协、香港支联会等宣布解散，这是不到两周内的又一组织解散。随着最近事态的发展，香港主要的民主团体几乎被消灭，中共在不遗余力地清除香港捍卫民主的声音。
 
-看看《福克斯新闻》10月2日对参议员的采访，“参议员罗恩·约翰逊：美国没有FDA正式批准的中共病毒疫苗”，副标题透露，约翰逊解释说，在美国没有食品和药物管理局（FDA）批准的Comirnaty版本（疫苗）。【2】
+据香港电台报道，香港工盟9月18日宣布启动解散程序，10月3日召开特别会员大会表决。成立于1990年的香港工盟代表了来自各行各业的93多个分支机构和14.5万名会员。10月3日，工会代表在新闻发布会上表示，工会成员已投票赞成解散工盟，并将这一决定归因于政治压力。
 
-全文如下：
+9月25日，以纪念天安门广场镇压活动而闻名的香港支联会(Hong Kong Alliance in Support of Patriotic Democratic Movements of China)在其领导人因国家安全法被捕后投票解散。《国家安全法》将分裂、颠覆、恐怖主义和勾结外国势力的行为视为犯罪。在此前一天，一个支持民主的香港本土学生组织“贤学思政”宣布解散，此前四名成员被控阴谋煽动颠覆国家政权。另民间人权阵线和香港教协也已解散。
 
-威斯康辛州共和党参议员罗恩·约翰逊（Ron Johnson）在“福克斯新闻黄金时间”（Fox News Primetime）上披露，还没有一种真正由FDA批准的疫苗。
+香港工盟主席黄迺元9月18日就决定启动解散程序致歉。他指出组织存在的本身已是原罪，若继续运行将面对人身安全的威胁。同时反驳了对工盟煽动罢工的指控，指出罢工是基本法所保障的权利。
 
-参议员罗恩·约翰逊：在美国，我们正在使用的疫苗还没有一种由FDA正式批准，FDA玩起了诱骗的游戏。他们承认他们批准的是辉瑞疫苗的Comirnaty版本，美国没有的。三天后，我给他们发了一封信，问他们“你们在做什么？” 他们所做的是延长了辉瑞疫苗在美国的紧急使用授权，30多天后了，他们还没有问这个非常简单的问题。如果你说辉瑞疫苗和Comirnaty是一样的，为什么你不提供FDA的批准文件呢？所以，没有FDA正式批准的疫苗。当然，他们宣布这个消息是为了让他们能够通过这些强制措施，让人们真地认为”哦，好吧，现在这些东西是FDA批准的。” 但它们不是，也许它们应该是，但FDA没有告诉我为什么。
+在中共的高压政策下，曾经民主明灯的香港已经没落，亲民势力被打散，中共镇压消除了所有捍卫民主的声音。
 
-（原文完）
+参考链接：
 
-是的，FDA偷换了概念，正式批准了一个不存在的Comirnaty版本，延长了目前在使用的实验性辉瑞疫苗的紧急使用授权，然后宣称被正式批准的Comirnaty版本供应量不足，请大家继续使用实验性的疫苗。结果疫苗生产厂家、主流媒体大肆渲染疫苗被正式批准了，掩盖了正在施打的疫苗的真相，让强制接种疫苗有了冠冕堂皇的理由。看上去FDA对参议员“为什么”的质询没有明确给出解释，放任他们炒作和强推疫苗，FDA等于给以强推疫苗接种的杀人者递了刀子。这种不正常的操作更说明背后必有阴谋，正道主义者必须坚持不懈地给予揭露，战友们，加油！
+[https://english.kyodonews.net/news/2021/10/2519ad1c2338-hk-union-votes-to-disband-pro-democracy-forces-almost-annihilated.html](https://english.kyodonews.net/news/2021/10/2519ad1c2338-hk-union-votes-to-disband-pro-democracy-forces-almost-annihilated.html)
 
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1565181/](https://gnews.org/zh-hans/1565181/)
-
-【2】[https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine](https://www.foxnews.com/media/ron-johnson-no-fda-approved-covid-vaccine)
+[香港职工盟 启动解散程序 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210919-%E9%A6%99%E6%B8%AF%E8%81%8C%E5%B7%A5%E7%9B%9F-%E5%90%AF%E5%8A%A8%E8%A7%A3%E6%95%A3%E7%A8%8B%E5%BA%8F)

@@ -2,33 +2,27 @@
 ---
 
 
-## 秘翻在线：川普要求美国法官强制推特恢复其账户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1571168/)
+## 破纪录39架共机扰台！台海战争一触即发
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1571348/)
 
-#### 文章撰写：寶寶
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipasteasdf654g65erg465re312021-10-03_21-10-37.png)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据路透社10月2日报道，美国前总统唐纳德·川普周五向佛罗里达州的联邦法官要求推特(TWTR.N)恢复他的账户，推特在1月份以存在煽动暴力风险为由删除了他的账户。
+视频参看：2021.10.03早GTV新闻访谈
 
-川普向美国佛罗里达州南区地方法院提交了针对 推特的初步禁令请求，称这家社交媒体公司受到美国国会议员的“胁迫”，暂停了他的账户。
+[https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c](https://gtv.org/broadcast/watch/6159a1b7304e992109ae6c5c)
 
-1月6日发生的一场骚乱袭击了美国国会大厦，随后推特和其他几个社交媒体平台禁止川普使用其服务。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-那次袭击发生在川普发表讲话之后，川普在讲话中重申了他在11月的选举失败是由于普遍存在的选举欺诈行为，虽然这一说法被多个法院和州选举官员驳回。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-川普的律师在文件中说，推特“对这个国家的政治话语权有着巨大的权力和控制力、历史上前所未有，而且极大威胁了民主辩论的权力。” 彭博社早些时候报道了该文件。
-
-路透社联系推特时，推特拒绝就该文件置评。
-
-在永久删除川普的账户时，推特表示他的推文违反了该平台禁止“美化暴力”的政策。 该公司当时表示，川普导致下架的推文“极有可能”鼓励人们重复国会骚乱中发生的事情。
-
-川普账户被屏蔽之前，他在推特上拥有超过8800万粉丝，并将其用作他的社交媒体扩音器。
-
-法庭文件显示，川普辩称推特允许塔利班定期发布其在阿富汗军事胜利的推文，但在川普担任总统期间审查他的推文，包括将他的推文标记为“误导性信息”或表明它们违反了公司禁止“美化暴力”的规则。
-
-7月，川普起诉推特、脸书（Facebook Inc (FB.O) ）和字母控股（Alphabet Inc (GOOGL.O) ）谷歌及其首席执行官，指控他们非法压制保守派观点。
-
-参考文章：[**Trump asks U.S. judge to force Twitter to restart his account**](https://www.reuters.com/technology/trump-asks-florida-judge-force-twitter-restart-his-account-bloomberg-news-2021-10-02/)
-
-本文仅代表作者本人观点，不代表Gnews平台
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

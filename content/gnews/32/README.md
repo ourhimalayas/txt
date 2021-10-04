@@ -2,53 +2,42 @@
 ---
 
 
-## 康州将用国民警卫队取代不符疫苗规定的州雇员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1571326/)
+## 委内瑞拉货币再次缩水六个零，同时推出数字货币
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1571447/)
 
-- 编译：Lulumi
+作者：香草山金融部 – 闲聊钱币
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-49.png)
 
-据《大纪元时报》报道，民主党人内德·拉蒙特(Ned Lamont)周三在一份声明中宣布，如果州雇员不提供COVID-19疫苗接种证明或不遵守每周测试要求，他已指示行政部门的州政府机构准备在10月5日至10月11日期间让他们休无薪假。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-拉蒙特指示康涅狄格州国民警卫队的弗朗西斯·埃文(Francis Evon)少将准备在 “提供关键健康和安全服务 “的州政府机构出现人员短缺时部署国民警卫队。如果部署，康涅狄格州国民警卫队的合格成员将补充这些人员不足的州政府机构的运作，直到雇用替代员工或被安排无薪休假的员工符合疫苗要求。
 
-声明说，截至星期四，该州大约32,000名雇员中的63%已经完全接种了疫苗，12%正在接受每周测试，25%处于不符合规定的状态。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-51.png)
+加拉加斯，10月1日（路透社）委内瑞拉周五启动了三年来的第二次货币改革，从玻利瓦尔货币中削减了六个零，以应对恶性通货膨胀。
 
-拉蒙特呼吁州政府雇员出于”对同事和公众的尊重”而遵守这一规定，并以身作则。
+尼古拉-马杜罗政府在2018年已经从货币中去除了五个零。已故总统乌戈-查韦斯在2008年从玻利瓦尔中去除了三个零。货币的重置进程越来越快，去除的零愈来愈多。但这一切并没有改变恶性通胀。网络数据显示，2020年的平均通胀率已经超过2500%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture200.jpg)
+该计划的目的是为了使企业和银行的会计工作更加简单明了，因为这些系统已经无法处理庞大的数字。但是，现在的委内瑞拉已经普遍采用美元进行商业交易。据目击者说，周五许多人在超市、药店等用美元购买日常商品。美元的普遍使用会淡化新货币存在的意义。
 
-拉蒙特在声明中说：”我们已经为大多数州的员工提供了每周接受测试而不是接种疫苗的选择，比我们邻近的州提供了更多的灵活性。”我们还为我们的员工提供了一个合规宽限期。我们的所有员工没有理由不遵守规定。我继续指望州政府雇员以身作则，尊重他们的同事和公众，遵守这项行政命令，这就是法律。”
+同时委内瑞拉央行也发行了数字玻利瓦尔。马杜罗政府称委内瑞拉77%的经济在2020年已经数字化，并且要在年底前争取实现100%。数字玻利瓦尔是通过手机短信来完成付费和转账。
 
-8月中旬在康涅狄格州颁布的中共病毒COVID-19疫苗强制令，要求所有州政府雇员和全州所有托儿所和学前班至12年级学校的工作人员在9月27日前至少接受一剂疫苗。
+这个曾经繁荣，富有石油储备的欧佩克国家正在遭受持续多年的经济危机，导致数百万委内瑞拉人移民，更多人则陷入贫困和饥饿。
 
-州长的行政命令允许医疗和宗教豁免疫苗接种，这些豁免将”在个性化、个案的基础上”实施。被豁免的雇员必须每周接受强制性的中共病毒检测。
+（本文仅代表作者观点）
 
-然而，国立医院和长期护理雇员不能选择被豁免和测试以代替疫苗接种。
+参考来源：
+1. [https://www.reuters.com/world/americas/venezuela-subtract-six-zeros-currency-second-overhaul-three-years-2021-10-01/](https://www.reuters.com/world/americas/venezuela-subtract-six-zeros-currency-second-overhaul-three-years-2021-10-01/)
+2. [https://www.reuters.com/world/americas/venezuela-subtract-six-zeros-currency-second-overhaul-three-years-2021-10-01/](https://www.reuters.com/world/americas/venezuela-subtract-six-zeros-currency-second-overhaul-three-years-2021-10-01/)
 
-州雇员遵守规定的原定最后期限被延长一周至10月4日。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-康涅狄格州国民警卫队的大卫·皮特里克(David Pytlik)少校在一份声明中告诉新闻8台WTNH：”目前，我们还没有被要求支持任何特定的部门，但我们将继续监测并做好必要的准备。”
+编辑/校对/发稿：Hetangyuese
 
-国民警卫队有不同类型的单位，其成员有不同类型的技能组合。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-声明说，通常情况下，康涅狄格州国民警卫队侧重于”保护生命/肢体/视力和财产”，但在中共病毒大流行期间，它加强了对关键任务的支持，如专业护理设施检查、分发食物和运送个人防护设备。
-
-国民警卫队在其声明中说：”过去的两年教会我们要灵活，我们可能被要求以新的方式支持国家”。
-
-**评论：**
-
-**康州虽然给州雇员选择接种疫苗或者每周做测试的选项，但对国立医院和长照人员却不适用，这简直是不把医疗系统彻底搞垮不罢休的节奏，无数的疫苗致死致残事件也无法唤醒这些无耻的政客。现在十月份了，希望我们暴料革命新中国联邦能够唤醒更多的人，希望文贵先生说的世界各国强制疫苗政策尽快停止，否则人类的未来真的要被邪恶的光明会和中共吞噬掉了。**
-
-（文章仅代表作者观点，与GNEWS无关）
-
-新闻来源：[大纪元时报](https://www.theepochtimes.com/connecticut-to-deploy-national-guard-to-address-staffing-shortages-due-to-vaccine-mandate_4027627.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-10-02)(The Epoch Times) | 作者：Ella Kietlinska
-
-* * *
-
-*校对：阿伯塔*
-*发稿：Nuevo唐人*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

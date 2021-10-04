@@ -2,165 +2,78 @@
 ---
 
 
-## 恒大就是一个射出的带火的箭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571099/)
+## Fauci Emails:福奇资助了武汉最致命实验室的培训
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1571280/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2366-1.png)
-[https://gtv.org/video/id=6159bc6fd2e2b81748709fd8](https://gtv.org/video/id=6159bc6fd2e2b81748709fd8)
+- **编译：西班牙喜悦农场–wenwu**
 
-**郭文贵：
-Miles Guo：**
 
-恒大，它死
-Evergrande will crash
+![](https://assets.gnews.org/wp-content/uploads/2021/10/004.jpg)
 
-它不死，我跟你说第一个
-or not, I’m the first one telling you
+《国家脉动》获得安东尼·福奇新的电子邮件（Fauci Emails)显示，他通过其美国国立卫生研究院（NIH）资助了武汉病毒研究所（WIV）生物安全四级实验室设施中的培训研究人员项目。
 
-你真以为习近平在中南海
-Do you really think that Xi Jinping’s process speed in the Zhongnanhai (Chinese version of White House)
+生物安全四级(BSL4)实验室是用来处理，可通过气溶胶传播或导致人类严重至致命疾病的病原体的最高级别设施。这一消息是在，昨天披露了[福奇赞扬了习近平授予美国研究人员的奖项后，发出的](https://thenationalpulse.com/exclusive/foiad-fauci-emails-reveal-congratulating-researchers-earning-ccp-awards/)。
 
-就像我掌握爆料革命这个进度一样吗？
-would be the same as I’m mastering the whistleblowers’ movement?
+现在有新的一封 Fauci Emails 证实了，《国家脉动》先前关于中共管理的武毒所与德州加尔维斯顿国家实验室（UTMB GNL）之间长期合作关系的报道，GNL [自称](https://www.niaid.nih.gov/research/university-texas-national-biocontainment-laboratory)是“花了[Fauci’s]国家过敏和传染病研究所（NIAID）授予的拨款后建造的。”
 
-如果那样的话，共产党早就统治世界了
-If that was the case, the Communist Party would have dominated the world a long time ago
+《国家脉动》有能力揭示，福奇和 GNL [主任](https://microbiology.utmb.edu/faculty/james-leduc-phd) James LeDuc 在 2017 年的电子邮件往来，确认了 GNL 与武汉病毒研究所的合作关系的存在（如图）。
 
-他真的没有想到就恒大能出事出来
-He absolutely didn’t expect Evergrande to be having trouble
+![](https://assets.gnews.org/wp-content/uploads/2021/10/005.jpg)
 
-但是它再放贷款它就死了
-But (Xi knows) Evergrande would crash if he issues loans again
+简而言之，这封 Fauci Emails 显示，福奇通过 NIAID 为 GNL 提供的资金是直接用于培训中共国武毒所的 BSL4 员工。
 
-他再放贷款它就死了
-It will crash if he issues loans again
+与**“**中共国重要领导人**”**的合作
 
-他不能，他必须调整贷款的问题
-He can’t, he must adjust the loan issue.
+LeDuc 于 2017 年 10 月 31 日向福奇发送了（如下图）一封名为“中共国 BSL4 实验室”的电子邮件，他提醒福奇他们“关于与新的中共国[生物安全等级4]实验室的合作”要如何交谈。LeDuc 所提到的实验室中是包括”中国科学院（武汉BSL4）”。
 
-你想想，恒大往下
-Think about it, the next progress of Evergrande
+eDuc 指出，“这三个新的实验室负责人都同意到德州加尔维斯顿”（内容如下）：
 
-它就是射出去的一个带火的箭
-will be a rocket that has been launched
+托尼（安东尼的昵称），
 
-在天上飞, 大家看着
-It’s flying in the sky, and everyone is watching
+为了跟进我们在UT（德州大学）会议上关于与中共国新的 BSL4 实验室合作的简短讨论，美国国家科学院将于2018年1月16日（星期二）至1月18日（星期四）在 GNL 这里与来自中共国科学院（武汉BSL4）、中共国医学科学院（昆明BSL4）和中共国农业科学院（哈尔滨BSL4）的同行们举行一次会议。这些实验室都已建成，并即将开始运作。这三个新的实验室主任已经同意来德州加尔维斯顿，还有 George Gao（如果高福的日程安排允许的话）和其他大约6-8位有成就的[原文如此]中共国科学家。
 
-哇，很好啊
-Wow, that’s excellent
+GNL 主任继续说道，并指出会议的目标是促进“合作”，包括对中共国研究人员进行“安全和安保方面的培训”：
 
-大家给它加钱吧
-Everyone, let’s add money on it
+会议将重点关注在科学与操作的平衡上，目标是建立合作关系，并确保新的实验室的安全和保障是满足美国的标准。我想知道你是否有兴趣加入我们。
 
-加钱吧
-let’s add some money
+LeDuc 在电子邮件的结尾补充说，“中共国的重要领导人”将出席会议：
 
-一直飞下去
-to keep it flying
+这不是一个“领袖表演”，所以没有任何压力，但这将是您与这些中共国重要领导人进行私人交流和非正式会面与互动的好机会。我们预计将有大约10-12名中共国高级科学家和相当数量的来自 UTMB 以外的美国高级科学家，再加上一些UTMB的人。我将于周二晚上在我们家举办晚宴，以促进非正式讨论。如果你有兴趣，请告诉我，我们可以努力适应你的时间安排—再次强调，没有压力。如果你愿意，我很乐意和你聊天。
 
-它不可能一直飞下去
-(However) it’s not possible (for the rocket) to stay in the air
+![](https://assets.gnews.org/wp-content/uploads/2021/10/001-6.jpg)
 
-而且那个房价越来越贵
-Moreover, the house market price is getting more and more expensive
+在福奇收到电子邮件的同一天，他将其转发给了一个联系人——“NIAID ODAM”（如图）——同时补充了“让我们讨论一下”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/002-3.jpg)
+第二天，福奇通知 LeDuc（如图），他由于日程安排冲突而无法参加，并补充说：“感谢您的说明和邀请”，并表示对该计划（培养中共国的BSL4员工达到美国标准）没有任何担忧：
 
-他必须得调整，一调整它就死了
-He must adjust it, and it will crash once it is adjusted.
+![](https://assets.gnews.org/wp-content/uploads/2021/10/003-1.jpg)
 
-它毕竟是个假的，总得报废啊
-It’s fake after all, and it has to be scrapped.
+Jim：
+感谢您的通知和邀请。不幸的是，2018 年 1 月的那一周对我来说都被安排好了，所以我很遗憾不能来到加尔维斯顿。感谢你对我的惦记。
 
-但是呢
-However
+最好的问候，
 
-这个就是我特别明确的告诉大家
-this particularly is exactly what I tell you
+托尼
 
-习完全没想到
-Xi has not expected it at all
+以前出土的德州实验室的报告显示，GNL 研究人员对武汉病毒研究所的同行们，进行了处理有关[“世界上最危险的病原体”](https://thenationalpulse.com/exclusive/fauci-funded-lab-trained-wuhan-bsl-4-researchers/)的培训；由福奇资助的美国研究人员，如北卡罗来纳大学的巴里奇（Ralph Baric）博士，作为该计划的一部分曾经访问了位于中共国的实验室。
 
-听这个习就问什么，习的原话
-listen to what Xi has said, Xi’s original words
+巴里奇是病毒功能增强研究的支持者，他[呼吁](https://thenationalpulse.com/breaking/wuhan-lab-partner-scheming-on-pandemic-profits/)这种有争议的病毒操纵形式是“一种重要工具”，并被参议院兰德·保罗[称为](https://thenationalpulse.com/exclusive/peter-daszak-defends-wuhan-baric-gof-research/)武汉实验室的顶尖蝙蝠冠状病毒研究员石正丽的合伙人，而她当时正[进行](https://thenationalpulse.com/breaking/fauci-funded-baric-attended-chinese-gof-conference/)这种危险的病毒功能增强性实验。
 
-就是说
-He said
+福奇否认他的 NIAID 曾通过资金或人员，参与了这项研究。
 
-如果恒大是在这个时候倒下来了
-“If Evergrande falls at this time
+**简评：**
 
-广东，你们要负一切责任
-Guangdong, you are responsible for everything
+**爆料革命走在“以苗灭共”的道路上。我们相信福奇制造病毒是和中共疫苗搭配，也就是说，邪恶势力放毒的时候是为了扩散病毒在社会上的恐惧，从而通过疫苗赚取全世界的韭菜的。**
 
-所有人都要负一切责任
-Everyone must take all responsibilities”
+**值得庆幸的是，我们发现全球越来越多的人醒来了，他们都走上了街。我们为他们祈祷，并希望更多需要疫苗和病毒解药的人可以听到来自郭文贵先生的重磅消息——羟氯喹、青蒿素和伊维菌素是可以解决当今的大流行。**
 
-大家都害怕，都开始捂着
-Everyone was afraid, and they all started covering it up
+**最后，分享一则[好消息](https://gettr.com/post/pcxcf977d0)：意大利（罗马）经过努力部分警察已经决定不对人民采取行动，而是与人民在一起。爆料革命太牛了！**
 
-唉……没有没有
-hold on…no, no problem
+（文章仅代表作者观点 与GNEWS无关）
 
-然后
-Then
+新闻来源：《[国家脉动](https://thenationalpulse.com/exclusive/foia-fauci-emails-reveal-galveston-lab-training-wuhan/)》｜作者：娜塔丽·温特斯｜发布时间：2021年10月2日
 
-这就是习远平
-This was Xi Yuanping
+* * *
 
-原话告诉他们人，告诉这个恒大
-he told them and Evergrande in his original words,
-
-你，它嘛别倒
-“You, don’t fall
-
-别在二十大以前倒
-don’t fall before the 20th National Congress of the Communist Party of China”
-
-那言外之意是什么？
-What’s that mean?
-
-你在二十大以前倒
-You fell before the 20th National Congress
-
-你影响我哥二十大会，我就弄死你个丫挺的
-If you affect my brother’s 20th National Congress, I’ll get you killed
-
-就这原话嘛
-Those are his original words
-
-是吧?就是习
-right? It’s because Xi
-
-不知道它能倒
-didn’t know Evergrande could fail
-
-没想到倒，他的信息判断不能倒
-did not expect to fall, and his judgment is that it could not fall
-
-这就是共产党嘛
-This is the Communist Party
-
-以假治国嘛
-ruling its country by falsehoods
-
-下面人说，唉
-Those people under him informing said
-
-没事儿，是不是，都没事儿，是不是啊？
-No worries, isn’t it? nothing happens at all, isn’t it?
-
-−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−−
-
-原视频日期：2021/09/29
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1443160325763731460?s=24](https://twitter.com/se1y7cblljselva/status/1443160325763731460?s=24)
-任务编号：KC140（2366）
-视频时间段 : 0:00-1:39
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

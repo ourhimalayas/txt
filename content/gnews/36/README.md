@@ -2,32 +2,63 @@
 ---
 
 
-## 加州所有在校学生恐被安排分阶段接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571261/)
+## 中共电力产业被几大家族操纵着
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571372/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-45.png)
-周五，加州州长加文·纽森宣布，在FDA全面批准为12岁以上的青少年接种疫苗后，加州7-12年级，即12岁到18岁的学生将首先全面开始接种疫苗，幼儿园至六年级，即12岁以下的儿童在下一阶段执行。加州成为全美第一个，宣布要求所有在校学生接种新冠疫苗的州。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2389.png)
+[https://gtv.org/video/id=6159bcfdd2e2b81748709fea](https://gtv.org/video/id=6159bcfdd2e2b81748709fea)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-4.jpeg)
+**郭文贵
+Miles Guo**
 
-除非家长申请医疗或个人信仰豁免，否则，根据规定，他们的孩子将不能参加校园内的现场课程。未接种疫苗的学生，只能选择线上教育，学习各区提供的独立课程或在家接受教育。
+还有一个关键大家别忘了，上万亿的产值的钱谁赚走了
+everyone don’t forget that there is another key point, who made the trillions of output value?
 
-为了巨大的经济利益，各大药厂仍在推进疫苗接种。而根据政府的官方数据，近5万人接种新冠疫苗后14天内死亡。在真相工程披露的视频中，强生公司的员工已经明确表示，接种疫苗有潜在的风险，不要给儿童接种疫苗。此前，洛杉矶和圣地亚哥两大学区曾要求12岁以上的在校学生接种疫苗，因遭到家长的强烈质疑和反对，目前该命令已被暂停。爆料革命要持续向各地政要和媒体传播疫苗真相，让更多人了解到疫苗的危害。
+习家没碰过电力产业的利润，这块蛋糕没碰
+The Xi family has never touched the profits of the power industry, they have not touched this piece of cake
 
-(本文仅代表作者观点)
+主要是李鹏家里碰的，然后是温家有些碰的
+Li Peng’s family is major player on this, and then Wen’s family have some of it
 
-参考链接: [Newsom orders COVID vaccines for eligible students, the first state mandate for K-12 schools](https://www.latimes.com/california/story/2021-10-01/newsom-sets-covid-vaccine-mandate-across-california-schools)
+然后是朱家有些碰的，这些钱都是被几大家族垄断着
+Then Zhu’s family have some of it, all of these money have controlled by several big families
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+现在突然发现，老子这个钱从来没有（碰）
+Now suddenly he found out that I have never been touched these money
 
-终审：暗黑
-校正/发稿：谐趣园
+让你们老赚钱了，中国的煤矿，习家没碰
+Let you make money all the time, Xi’s family never touched China’s coal mines industry
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他碰的稀土，他碰的是华为，碰的ZTE （中兴通讯）高科技，无烟产业
+He controlled rare earths, Huawei, and ZTE high-tech those smoke-free industries
+
+这有烟产业全是几个老杂毛搞的
+This smoking industry is all controlled by a few “old suckers”
+
+他发现你们就这么赚钱，上万亿的美元里边，你们一年弄几百个亿
+He found out that you just make money so easy, you make tens of billions a year from the trillions of dollars
+
+澳大利亚就几个家族垄断着，而且垄断的澳大利亚这些老流氓
+Australia is controlled by a few families, and also these old rascals who controlled Australia
+
+所有的人都是过去的江派和胡派之间的关系
+that all these people are all related between the Jiang’a gangster and the Hu’s gangster in the past
+
+——————————————————
+
+Date:10/02/2021
+原视频标题:中共电力产业被几大家族操纵着
+The CCP’s power industry is controlled by several big families
+原视频日期：2021/09/29
+原视频链接:https://twitter.com/se1y7cblljselva/status/1443703464823975945?s=24
+任务编号：KC142（2389）
+视频时间段 : 0:00-0:55
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

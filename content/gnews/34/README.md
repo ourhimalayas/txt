@@ -2,35 +2,47 @@
 ---
 
 
-## 辉瑞公司被控对孤儿进行新冠疫苗试验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571285/)
+## 新研究警告称，中共国人口可能在未来45年内减少一半
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1571407/)
 
-栏目记者/责任编辑：雪梨
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-46.png)
-据the expose网站报导，儿童健康保护组织最近接到来自波兰的举报，称辉瑞公司正在对6个月的孤儿进行新冠疫苗试验。为此，波兰议会和参议院成员于10月2日组织了一次紧急会议，讨论对儿童和婴儿进行医学测试的医学、法律和伦理等相关问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-1.jpg)2021年6月7日，上海，一位母亲带着她的双胞胎女儿走在大街上。（路透社照片）
+香港：一项新的研究警告称，中共国的人口下降速度可能比预期快得多，在未来的45年内，中共国的人口数量将减少一半。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-2.jpeg)
+该预测是基于去年每名妇女生育1.3个孩子的官方出生率数据（远低于保持数字稳定所需的2个孩子），并预测人口下降幅度比之前的估计要大得多。
 
-据辉瑞官网9月20日的信息显示，辉瑞疫苗的1/2/3期的试验，最初在美国、芬兰、波兰和西班牙的90多个临床试验地点，招募了多达4千5百名6个月至11岁的儿童。而自2021年6月以来，辉瑞公司一直在对3个月到11岁的波兰儿童进行新冠疫苗试验。据悉，在波兰，一共有8个私人诊所和研究中心正在进行该项试验。但因为辉瑞公司所谓的“秘密”条款，这些事实不为公众所知，甚至连波兰议员也被拒绝查阅相关文件。从非官方报告中得知，6至11岁的儿童已经被注射了辉瑞疫苗，3至5岁的儿童至少注射了一剂。据估计，约1千名波兰儿童可能已经注射了辉瑞疫苗。
+中共国称目前的人口超过14亿，联合国在2019年预测，到2065年，中共国仍将有约13亿左右的人口。
 
-鉴于目前没有任何在儿童身上进行疫苗试验的法院受理，辉瑞公司被怀疑未通过合法的途径，对孤儿院和护理院的儿童进行临床试验。该会议表示，如果波兰当局不采取行动，将无法确认这些儿童中有多少人可能或已经面临死亡，或严重的并发症。
+华盛顿大学的研究人员去年在《柳叶刀》上发表的另一项估计表明，到2100 年，中共国人口将减少一半。
 
-辉瑞疫苗尚未完成成人的第三阶段临床试验，目前已经发生了非常严重的血栓、自身免疫等疾病，还有很多人因为接种疫苗而死亡。这对儿童来说更是危险。婴儿和儿童几乎对新冠病毒是免疫的，仅这一点就足以拒绝对儿童进行疫苗试验。
+但是，来自西安交通大学人口与发展研究所的[姜全保](http://ipds.xjtu.edu.cn/info/1015/2640.htm)及其同事的新研究警告说，该国的人口下降可能被严重低估了。
 
-(本文仅代表作者观点)
+研究人员表示，虽然人口普查结果只向公众披露了一部分，但有限的信息已经揭示了中共国人口的变化和未来发展趋势。
 
-参考链接：[BREAKING – Pfizer stand accused of experimenting on orphan babies to test their Covid-19 vaccine](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)
-[PFIZER AND BIONTECH ANNOUNCE POSITIVE TOPLINE RESULTS FROM PIVOTAL TRIAL OF COVID-19 VACCINE IN CHILDREN 5 TO 11 YEARS](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-positive-topline-results)
+去年的冠状病毒大流行可能对生育产生了影响，但姜和他的同事说，出生率反弹的可能性很低。他们表示，由于育龄妇女人数下降，总人口更有可能很快开始快速下降。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+根据新的人口普查数据，儿童约占人口的17%，而60岁以上的人口比例上升到18%以上。
 
-终审：暗黑
-校正/发稿：谐趣园
+研究人员表示，这是中共国第一次出现老年人多于年轻人的情况。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他们写道：“由于经济压力越来越大，人们不敢生孩子。生育和护理方面的配套服务也严重不足。”
+
+中国科学院本月发表的一项研究发现，在全国最发达地区之一的长三角地区，快速上涨的房价导致该地区成为全国出生率最低的地区之一。
+
+中共国政府最近发起了一系列控制房价、降低教育成本和增加幼儿园数量的运动，但该研究报告说，还需要采取更进一步的措施。
+
+北京大学人口研究所所长陈功在国家统计局网站上最近发表的一篇文章中预测，中共国人口将从2025年开始下降。
+
+简评：出生率下降和劳动力老龄化，事实证明，这些趋势难以逆转。实行独生子女政策遏制人口增长30年后，人们对家庭规模的态度发生了变化，加之养育成本过高，许多中共国人现在更愿意只生育一个孩子。中共国还没有富起来就变老了。
+
+新闻链接：[China’s population could halve within next 45 years, new study warns](https://www.bangkokpost.com/world/2190995/chinas-population-could-halve-within-next-45-years-new-study-warns#:~:text=HONG%20KONG%3A%20China%27s%20%20%20population%20decline,a%20new%20study%20has%20warned.&amp;text=China%20had%2012%2000万%20newborns,lower%20than%20the%20UN%27s%20estimate)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

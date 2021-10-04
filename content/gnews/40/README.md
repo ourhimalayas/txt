@@ -2,91 +2,30 @@
 ---
 
 
-## 中国老百姓的用电量 真的太少了
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1571113/)
+## 爆料革命开发全新即时通信软件,正在内测中!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1571305/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/snapshot-9.jpg)https://gtv.org/video/id=61598b4bd2e2b8174870957a
-郭文贵
-Miles Guo
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-47.png)
+在日前的直播中, 新西兰老班长战友称,经过1年多的研发努力，一个属于我们爆料革命自己的即时通讯软件，已经开始进行内部实测阶段,即将公开发布!
 
-中国8万5千亿度里面，
-Inside China’s 85 trillion kilowatt of power consumption
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-1.jpeg)
 
-我告诉你，你都难以想象, 战友们，
-I tell you, you can’t even imagine it, comrades-in-arms
+因为绑定银行账号用于支付购物, 目前墙内即时通讯是微信一家独大, 而出于亲友交流需要, 微信在海外华人中也同样占据很大份额。但 腾讯作为中共白手套, 在言论管控和信息/咨询收集上早已完全 是政府管控模式 , 使得 真相的传播几无可能 ! 而灭共进程中一旦 防火墙被推倒, 或者微信真正被全球封杀, 被中共自行绞杀,  10几亿人想要知道真相, 想要有一个安全可靠, 没有关键词审核, 不会被封号, 甚至还可能会有结合G系列产品金融功能 的手机通信软件, 那就只有这款爆料革命开发的全新软件了,  市场前景不可限量  ! 而这样一款手机通信软件, 在灭共最后阶段所能发挥的效用,更将是核弹级的 !
 
-今天为啥我们要普及这个常识
-Today, why do we want to popularize this common sense
+(本文仅代表作者观点)
 
-因为你们从来没有（想过）有人习惯了在你肝上叉一个管的时候
-because you never thought about it, when you used to be inserted a tube in your liver by the CCP
+参考链接：[https://twitter.com/RyuHayabusaX/status/1444561242710962180](https://twitter.com/RyuHayabusaX/status/1444561242710962180)
 
-你永远不知道真相，就像小福利，猫本小哥这些都是中国的精英
-You never know the truth, just like Xiao Fuli and Maoben Xiaoge these Chinese elites
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-玉山夫妻，你看这Rachel, 中国人精英中的精英
-Yushan couple, you look at Rachel who is the elite of the Chinese elites
+终审：文龍
+校正/发稿：谐趣园
 
-你连自己电费都不知道，你连电的概念都不知道
-You don’t even know your own electricity bill, you don’t even know the concept of electricity
-
-你不知道电的概念，就像人不知道空气被污染有多重要一样
-You don’t know the concept of electricity, just like people don’t know how important for the air to be polluted
-
-这是爆料革命的伟大，咱不去看人家报纸
-This is the greatness of the whistleblower movement, we don’t read other people’s newspapers
-
-就自己的，完全原创的，我告诉你
-All of our owns, completely original, I tell you
-
-中国人的工业用电是美国的一倍，
-The industrial electricity consumption of the Chinese is twice that of the U.S.
-
-美国大概在1万亿千瓦
-The U.S. is about 1 trillion kilowatts
-
-中国官方说，2.3万亿千瓦，中国实际上3万亿千瓦
-Chinese officials say 2.3 trillion kilowatts, China actually uses 3 trillion kilowatts
-
-甚至更多，中国的工业用电是美国的一倍
-even more, China’s industrial electricity consumption is twice that of the U.S
-
-美国是工业大国，中国老百姓用电，跟人家美国比
-The U.S. is a big industrial country, and how does the electricity consumption of Chinese people twice of United States?
-
-美国的农场里的驴（用电）是多少
-How much is the donkey using electricity on the farm in the United States?
-
-网上查查，我对面的农场养一只牛养一只马的电费是多少钱
-Check it online, how much is the electricity bill for raising a cow and a horse on the farm?
-
-你们查一查，美国的一只驴，
-You go to check it out, a donkey in America
-
-一只驴一只牛，就在我前面这个
-a donkey, a cow, in the farm opposite me
-
-人家（畜生的）平均用电是25度，
-The average electricity consumption of one livestock is 25 KWh
-
-你觉得中国人比美国的驴和猪还值钱吗
-Do you think Chinese people are more valuable than American donkeys and pigs?
-
-中国人有人想过这个问题吗
-Have any Chinese thought about this?
-
-比爹娘还亲的党，让你们过什么日子
-What kind of life does the Communist Party provide to you? and CCP is saying it is more prosperous than your father and your mother?
-
-原视频日期：2021/09/29
-原视频链接: https://twitter.com/se1y7cblljselva/status/1443702922617909264?s=24
-视频时间段 : 0:00-2:07
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
