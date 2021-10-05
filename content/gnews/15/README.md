@@ -2,61 +2,148 @@
 ---
 
 
-## 贝莱德被新州主权基金解约只是冰山一角
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1573999/)
+## 接种疫苗后男子无法控制身体平衡，双腿不停抽搐
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574146/)
 
-#### 翻译：奮鬥
-校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan.jpg-1.png)
-**图片来源：Pensions&Investments**
+can you change from this to bounce?
+你可以抖动起来吗？
 
-**文章导读：**
+Can I what?
+我要做什么？
 
-贝莱德（黑石）目前是全球最大的投资公司，也是盗国贼掏空中国人民财富的帮凶。黑石与中共深度勾兑，在所谓大中华新兴市场地区投资占比很高。9月3日媒体披露，为避免恒大暴雷，贝莱德伙同汇丰基金在数月前增持恒大债券，[华尔街出手相救，恒大回光返照？ – GNEWS](https://gnews.org/zh-hans/1549700/)当日恒大股价回光返照出现一次大幅上扬。然而，随着中共国庞氏骗局最终破灭，长期深耕中共国让其投资出现巨额亏损只是一个时间问题。
+Can you change this movement to bouncing?
+你可以改变这样并抖动你的腿吗？
 
-近日澳媒爆出，贝莱德在澳大利亚新南威尔士州主权财务基金管理经理人职位被解约，原因是其长期达不到承诺绩效指标，这里一定有大中华新兴市场不断暴雷的阴影。这次贝莱德被新州主权基金解约只是冰山一角，伴随中共国不断引爆各种经济核弹，与狼共舞的贝莱德注定是中共覆灭时的殉葬品。
+uhmm.That’s what I am trying to do actually.
+呃..这正是我想要做的
 
-**译文：**
+I am tying to, let me uh
+我正在尝试，让我呃..
 
-世界上最大的投资公司贝莱德（黑石），其负责管理的澳大利亚新州政府150亿澳元投资基金因管理资金方面持续表现不佳，最近被新南威尔士州政府解约了。
+umm, yeah, no,yeah,no
+嗯。。是的。不。是的
 
-贝莱德是新南威尔士主权财富基金——世代基金(NGF)聘请的投资经理之一，负责投资对冲基金等“另类”资产。
+So I can do this, and I can do that
+我可以做这个并且也可以做那个动作
 
-根据媒体获得的文件，新南威尔士州财政部向州议会披露的信息显示，贝莱德因“持续表现不佳”而被“终止”作为NGF的备选经理（合作关系）。
+But you can not stop
+但是你无法停止（抖动）
 
-“自基金成立以来，新州财政部金融机构（TCorp）已终止其管理人员的职务，”TCorp的声明在书面答复中表示。
+Yeah but I can’t stop it
+是的，我无法停止它
 
-“经理投资业绩由TCorp的投资组合交付团队审查，该团队向（新州财政部）首席投资官报告。”
+umm, how would I do this?
+嗯..我该怎么做呢？
 
-TCorp对资产管理公司附加关键绩效指标（KPI），KPI是针对绩效目标、投资参数（包括限制）、违规通知、报告义务（包括报告交付时间）和权限而制定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/22-1.png)
-图片来源：Financial Review
+Maybe just let me stand up
+也许我站起来就行
 
-“这些是根据投资策略制定的，并通过与管理人员谈判达成一致，参考行业标准、TCorp和客户需求。”
+I wanna stand up right now
+我现在就想站起来
 
-总部位于纽约的贝莱德是世界上最大的投资公司，在全球管理着近10万亿美元（13.9万亿澳元）的资产。目前贝莱德仍受聘于新南威尔士州基金，担任澳大利亚股票、新兴市场股票和国际股票的经理。
+but I don’t know how
+但是我却不知道怎么做
 
-对此，贝莱德和TCorp以保密协议为由拒绝置评。
+Let me try
+让我试试
 
-新州世代基金于2018年底由新南威尔士州预算盈余的100亿澳元和西联（WestConnex）收费公路最初51%的销售收入作为种子资金。
+Now get your left foot to your right foot again
+现在你的左脚和右脚开始了原地踏步
 
-该基金已发展到超过150亿美元，自成立以来平均年回报率为9.4%，总利润约为28亿美元。截至6月30日，该基金约有38亿美元，即其投资组合的25%分配给了对冲基金等“另类”投资。
+That’s how you did at home
+这就是你在家里的状况
 
-TCorp告诉议会，由于“投资组合经理离职”，摩根大通不再作为新南威尔士州基金的替代投资经理。
+So I do this a lot
+之所以我会经常这样做
 
-新州的预算深陷赤字，债务预计将跃升至1200亿澳元以上。
+This keeps my balance, right
+是因为这能让我保持平衡
 
-新州财政部长多米尼克·佩罗特（Dominic Perrottet）在9月迈出了扭转债务资金的一步，宣布来自西联高速公路私有化的110亿澳元将在未来两年内用于偿还州债。
+coz I never really established my balance, right
+因为我从来都无法建立自己的平衡
 
-佩特罗先生尚未宣布他是否会继续执行先前的计划，将每年的采矿特许权使用费收入和国有企业的红利（四年内价值100亿至200亿美元）转入世代基金。
+So if I keep moving
+所以如果我继续移动
 
-原文链接：[BlackRock ‘terminated’ by NSW Treasury fund (afr.com)](https://www.afr.com/policy/economy/blackrock-terminated-by-nsw-treasury-fund-20211001-p58wen)
+My body is always trying to adjust it to its balance
+我的身体就会一直试图调整平衡
 
-发布：小红帽
+But if I stop
+但如果我停下来
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+I will lose my balance
+我就会失去平衡
+
+because… I can’t stop
+因为… 我不能停下来
+
+Ok bring your heels together
+好，现在把你的脚后跟并在一起
+
+look ahead, close your eyes
+目视前方，闭上眼睛
+
+try to stop it
+尝试停止它
+
+Yeah.. how would I do that?
+是啊..我该怎样做呢？
+
+I can’t even stop the balance to try and make this stop
+我甚至不能停止这个维持平衡的动作
+
+ok alright
+好，好吧
+
+um, let me try one more time
+嗯..让我再试一次
+
+Ok, I am gonna try and stop balancing all together now
+现在让我尝试停止维持平衡
+
+I can’t…
+我做不到..
+
+Ok, that’s ok, just sit down
+好的，没关系，坐下来吧。
+
+Oh well, I almost got it
+好吧，我几乎快做到了
+
+Just shaky though
+只是有点颤抖
+
+Yeah, you see now, I am not going as bad
+是的，你现在看我并没有那么糟糕了
+
+When do you see Dr.Broke again? This afternoon?
+你和Broke医生的预约是什么时候？今天下午吗？
+
+No, next month
+不，下个月
+
+Next month, ok, I am just gonna order an MRA brain
+下个月.好的，我现在需要为你预购一个脑部磁共振血管造影
+
+听写翻译：文莱
+
+视频字幕：Kent
+
+编辑/发稿：云起时
+
+*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+
+* * *
+
+更多加拿大枫叶农场的频道，请关注：
+
+[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+
+[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+
+[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+
+[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+
+[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)

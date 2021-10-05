@@ -2,139 +2,20 @@
 ---
 
 
-## 推特封杀mRNA技术创始人之一及Moderna 联合创始人的账号
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574171/)
+## “潘多拉文件”曝阿里巴巴蔡崇信财富秘密
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574373/)
 
-So, it is very interesting
-因此，特别有意思的是
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-82.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/jingmao/rc-10042021135415.html)
+据“看中国”10月4日讯，名为“[潘多拉文件](https://www.secretchina.com/news/gb/tag/%E6%BD%98%E5%A4%9A%E6%8B%89%E6%96%87%E4%BB%B6)”的跨国调查报导揭露，有35位现任和前任国家领袖，以及多名富豪都曾透过离岸公司进行避税、转移个人财产等行为。其中，阿里巴巴集团董事会执行副主席蔡崇信也遭曝光。
 
-but one of the founders of the mRNA technology
-mRNA技术的创始人之一
+10月4日，据《德国之声》报道，由国际调查记者联盟（ICIJ）及包括德国之声土耳其语组在内共150家媒体组成的团队跨国调查发现，全世界有330多名高层政要人物和公职人员与离岸账户有关联。离岸账户通常被用来秘密管理和转移大笔资金，以隐匿个人的真实财富。包括英国前首相布莱尔（Tony Blair）、约旦国王和肯尼亚总统肯雅塔（Uhuru Kenyatta）以及多名富豪都在名单之上。身家约145亿美元、拥有加拿大国籍的[蔡崇信](https://zh.wikipedia.org/zh-cn/%E8%94%A1%E5%B4%87%E4%BF%A1)，是[阿里巴巴集团](https://zh.wikipedia.org/zh-cn/%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E9%9B%86%E5%9B%A2)创办人之一，也是其第二大股东。不过，根据中共当局的规定，蔡崇信作为外国籍人士不能直接投资于中国的科技、媒体及某些行业，于是就透过一些在海外税务天堂注册的附属公司来持有阿里巴巴集团股权。“潘多拉文件”调查报告显示，[蔡崇信](https://www.secretchina.com/news/gb/tag/%E8%94%A1%E5%B4%87%E4%BF%A1)的名字出现在至少十几家公司中，这些公司注册地处在英属维尔京群岛、开曼群岛和巴哈马在内的离岸避税天堂。参与“潘朵拉文件”调查的香港媒体《立场新闻》报导，蔡崇信透过多家离岸公司及个人，持有阿里巴巴数以百万计股权，其中一家离岸公司是1999年于英属维尔京群岛注册的MFG Limited，[阿里巴巴集团](https://www.secretchina.com/news/gb/tag/%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E9%9B%86%E5%9B%A2)亦于同年注册。报导说，2003年12月，蔡崇信将MFG Limited持有的超过300万股阿里巴巴股份，以赠与的方式转让给在英属维尔京群岛注册的PMH Holding。2年后，蔡崇信成为PMH Holding的唯一董事。5年后的2010年，MFG又从PMH购回差不多同等数量的股权。根据报导，多伦多大学金融系教授杰佛利（Craig Geoffrey）认为，股份是给阿里巴巴集团股东的报酬，包括蔡崇信本人；蔡崇信明显是透过多家离岸公司处理阿里巴巴的多项交易，包括上市计划。
 
-His name is Luigi Warren
-他叫 Luigi Warren
+“[潘多拉文件](https://www.secretchina.com/news/gb/tag/%E6%BD%98%E5%A4%9A%E6%8B%89%E6%96%87%E4%BB%B6)”，是国际调查记者联盟（ICIJ）有史以来最大的一项新闻合作项目，对金融保密情况进行最大规模的揭露。来自117个国家的600多名记者合作，检视了1190万份文件之后共同发布了这项调查结果。
 
-And we didn’t even really know his name
-我们以前甚至不知道他的名字
+信息来源：[“潘朵拉文件”揭开阿里巴巴集团的秘密(图) – 财经新闻 – (移动版)](http://cn.secretchina.com/news/gb/2021/10/04/985547.html)
 
-until a couple of days ago
-直到在几天前才知道他是谁
-
-he has a Twitter account actually
-Luigi Warren有个Twitter推特账户
-
-and he tweeted the other day
-他前几天发了推
-
-that hey, guess what?
-但是，嘿，你猜怎么着？
-
-Because I am one of the founders
-（他发的推说：）
-
-of the mRNA vaccine technology
-我是MRNA疫苗技术的创始人之一
-
-and I am one of the co-founders
-我是Moderna的联合创始人之一，
-
-of Modera that helped to build Moderna
-并帮助建立了Moderna公司，
-
-I can actually attest to the fact that:
-我的确可以证明这个事实：
-
-Yes, the shedding, the vaccine shedding
-是的，（尖峰蛋白）脱落，
-
-of the spike protein is real
-疫苗的尖锋蛋白脱落现象是真实存在的
-
-It actually does occur
-这种情况确实存在
-
-Now when it occurs,
-他说当发生脱落的时候
-
-he says it occurs in smaller amounts that
-如果这个人的脱落数量很少
-
-is most likely not harmful
-很有可能不会造成危害
-
-or is going to cause diseases in other people
-或是不会导致其他人生病
-
-but actually, it is real.
-但这种脱落现象是真实存在的，
-
-and it does occur
-它确实有发生
-
-Because he posted that tweet on Twitter
-就因为他在推特上发了这种推
-
-Guess what? the Twitter police came
-你猜怎么着？“推特网警”巡查，
-
-and suspended his account
-暂停了他的账户
-
-They said (it was a) fake news
-推特说他发布的这些是假新闻
-
-Now he is appealing that
-现在他正在上诉
-
-He said he is not backing down
-他说他不会退缩
-
-He said this would be appealed
-他将会采取上诉手段
-
-He said: “just appealed as follows”:
-他说他的诉求主要是：
-
-the tweet you locked me out for is correct
-我发布的推特内容是正确的信息
-
-I am the inventor of the (mRNA) technology,
-我是（mRNA）技术的发明者 (之一)
-
-from which Moderna was founded
-（基于此此技术），我也成为了 Moderna公司创立人(之一 )
-
-Look it up
-可以随意去验证我的背景是否属实
-
-I think I know what I am talking about。
-我想我知道我在说什么。
-
-and he says again he is continuing to go through more bogus lockdowns
-他又说，他还会持续被（推特）封掉更多的账户
-
-for posting absolutely correct statements on Twitter
-就因为他在推特上发布的这些言论是绝对正确的
-
-文字听写翻译：UCool 优酷
-
-视频字幕：Kent
-
-编辑/发稿：云起时
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
-
-* * *
-
-更多加拿大枫叶农场的频道，请关注：
-
-[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-
-[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-
-[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-
-[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
-
-[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/上善若水
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-5.png)

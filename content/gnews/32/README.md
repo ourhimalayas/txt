@@ -2,18 +2,38 @@
 ---
 
 
-## 继续放毒！新疆伊犁病毒感染者大增
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1573834/)
+## 中共国“血旗”挂满大街小巷引发的思考
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573906/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/08263.png)
-据中共国家卫健委官方网站消息，截至10月3日24时，据31个省（自治区、直辖市）报告，新增确诊病例27例。其中，新疆生产建设兵团报告新增无症状感染者15例，包括境外输入13例、本土2例（均在新疆伊犁哈萨克自治州）。
+栏目记者/责任编辑：晓仙女
 
-郭文贵先生多次预警，中共在政治经济崩溃之前，为转移国内外矛盾，一定到处放毒。在10月3日GTV直播中，郭文贵先生又再次提醒，在2022年12月以前，请大家务必待在家里，尽量不出门、不旅行！**在中共国疫苗高接种率的情况下，中共病毒随时可能沉渣泛起，同时，中共亦可随时按需放毒**。
 
-信息来源：**[截至10月3日24时新型冠状病毒肺炎疫情最新情况](http://www.legaldaily.com.cn/index/content/2021-10/04/content_8607454.htm)**
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+
+
+
+10月1日，网易新闻一篇《巨幅国旗为祖国庆生》的文稿，用各种活动方式展示“血旗”，活动中人流聚集，完全忽视当下新冠病毒肆虐状态，曾经强制封社区、封门户的官警，瞬间消失，中共国的“血旗”挂满大街小巷，似乎“血旗”可以防病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-4.jpg)
+自2019年12月，新冠病毒从武汉爆发以来，人们的生活方式瞬间改变，居家状态成为生活主体，隔离变成近两年来的常态，出门不戴口罩会被歧视，大小活动场所设了扫码关卡，民众讨论最多的是‘病毒’和“疫苗“相关话题……在极度缺乏安全感的当下，大多数人不会思考病毒来源，接种的冠状疫苗是否安全？也不会质疑政府部门为什么强制疫苗？从众效应排队接种疫苗……种种行径正是“血旗”下的爱国愚民教育的结果，继续下去的中共国民众，将越发失去判断力，走向文化大革命思维模式，中国人将何去何从？
+
+郭文贵先生10月3日直播表示：联合国，还有欧洲议会，已经开始研究新中国联邦是否能成为他们应该承认的政治力量来代表中国人。 爆料革命经过各方面的努力，迈出了这坚实的一步，将对中国和中国人命运的转折，起到历史性的影响！
+
+（本文仅代表作者观点）
+
+参考链接：
+[中共国“血旗”挂满大街小巷引发的思考](https://c.m.163.com/news/a/GLBMFS005129O9M.html?spss=newsapp)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

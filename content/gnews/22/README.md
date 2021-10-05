@@ -2,35 +2,61 @@
 ---
 
 
-## 新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573910/)
+## 贝莱德被新州主权基金解约只是冰山一角
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1573999/)
 
-栏目记者/责任编辑：文真
+#### 翻译：奮鬥
+校对/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan.jpg-1.png)
+**图片来源：Pensions&Investments**
 
+**文章导读：**
 
+贝莱德（黑石）目前是全球最大的投资公司，也是盗国贼掏空中国人民财富的帮凶。黑石与中共深度勾兑，在所谓大中华新兴市场地区投资占比很高。9月3日媒体披露，为避免恒大暴雷，贝莱德伙同汇丰基金在数月前增持恒大债券，[华尔街出手相救，恒大回光返照？ – GNEWS](https://gnews.org/zh-hans/1549700/)当日恒大股价回光返照出现一次大幅上扬。然而，随着中共国庞氏骗局最终破灭，长期深耕中共国让其投资出现巨额亏损只是一个时间问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
+近日澳媒爆出，贝莱德在澳大利亚新南威尔士州主权财务基金管理经理人职位被解约，原因是其长期达不到承诺绩效指标，这里一定有大中华新兴市场不断暴雷的阴影。这次贝莱德被新州主权基金解约只是冰山一角，伴随中共国不断引爆各种经济核弹，与狼共舞的贝莱德注定是中共覆灭时的殉葬品。
 
+**译文：**
 
+世界上最大的投资公司贝莱德（黑石），其负责管理的澳大利亚新州政府150亿澳元投资基金因管理资金方面持续表现不佳，最近被新南威尔士州政府解约了。
 
-美联社报道，10月4日，新西兰政府终于肯承认现实——封锁措施不能完全消除中共病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4.jpg)
-此前，为达到“新冠零病例”的目的，新西兰的封锁政策已经实施了七周，奥克兰街道上抗议封锁的人群也在不断增加。他们批评政府反应过度，借疫情封锁剥夺人权和自由。封锁政策不但未能平息新冠疫情的复发，反而，给新西兰的经济中心和人口最多的城市——奥克兰，带来了巨大的经济压力。对此，新西兰总理阿德恩宣布一项谨慎的计划，以放松奥克兰的封锁限制，放弃了已经实施了18个月的中共病毒疫情指导性政策。
+贝莱德是新南威尔士主权财富基金——世代基金(NGF)聘请的投资经理之一，负责投资对冲基金等“另类”资产。
 
-（本文仅代表作者观点）
+根据媒体获得的文件，新南威尔士州财政部向州议会披露的信息显示，贝莱德因“持续表现不佳”而被“终止”作为NGF的备选经理（合作关系）。
 
-参考链接：[新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施](https://www.zerohedge.com/covid-19/new-zealand-finally-abandons-controversial-covid-zero-policy-promises-roll-back-lockdowns)
+“自基金成立以来，新州财政部金融机构（TCorp）已终止其管理人员的职务，”TCorp的声明在书面答复中表示。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+“经理投资业绩由TCorp的投资组合交付团队审查，该团队向（新州财政部）首席投资官报告。”
 
-终审编辑：Ryan
-校正/发稿：Hetangyuese
+TCorp对资产管理公司附加关键绩效指标（KPI），KPI是针对绩效目标、投资参数（包括限制）、违规通知、报告义务（包括报告交付时间）和权限而制定的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/11-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/22-1.png)
+图片来源：Financial Review
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“这些是根据投资策略制定的，并通过与管理人员谈判达成一致，参考行业标准、TCorp和客户需求。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+总部位于纽约的贝莱德是世界上最大的投资公司，在全球管理着近10万亿美元（13.9万亿澳元）的资产。目前贝莱德仍受聘于新南威尔士州基金，担任澳大利亚股票、新兴市场股票和国际股票的经理。
+
+对此，贝莱德和TCorp以保密协议为由拒绝置评。
+
+新州世代基金于2018年底由新南威尔士州预算盈余的100亿澳元和西联（WestConnex）收费公路最初51%的销售收入作为种子资金。
+
+该基金已发展到超过150亿美元，自成立以来平均年回报率为9.4%，总利润约为28亿美元。截至6月30日，该基金约有38亿美元，即其投资组合的25%分配给了对冲基金等“另类”投资。
+
+TCorp告诉议会，由于“投资组合经理离职”，摩根大通不再作为新南威尔士州基金的替代投资经理。
+
+新州的预算深陷赤字，债务预计将跃升至1200亿澳元以上。
+
+新州财政部长多米尼克·佩罗特（Dominic Perrottet）在9月迈出了扭转债务资金的一步，宣布来自西联高速公路私有化的110亿澳元将在未来两年内用于偿还州债。
+
+佩特罗先生尚未宣布他是否会继续执行先前的计划，将每年的采矿特许权使用费收入和国有企业的红利（四年内价值100亿至200亿美元）转入世代基金。
+
+原文链接：[BlackRock ‘terminated’ by NSW Treasury fund (afr.com)](https://www.afr.com/policy/economy/blackrock-terminated-by-nsw-treasury-fund-20211001-p58wen)
+
+发布：小红帽
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

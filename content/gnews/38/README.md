@@ -2,22 +2,23 @@
 ---
 
 
-## 诡异！中共政府为何早早大量采购PCR试剂？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573743/)
+## 北京机群侵扰台湾后，美英3艘航母举行联合军演
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1573825/)
 
-#### 撰稿：Fluffyrabbit
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-19.jpg)图片来源：beyotime
-据零对冲报道，日经新闻挖掘了包括美英澳情报人员的研究报告，根据来自一个统计政府采购合同的网站数据，湖北省政府于2019年5月份已经大量采购PCR检测试剂，远在第一个病人确诊中共病毒感染（12月8日）之前。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-1.jpg)北京机群侵扰台湾后，美英3艘航母举行联合军演 网络图片
+日本海上自卫队10月4号发布新闻稿，中共国军机在10日1日“国殇日“当天和第二天连续侵扰台湾，美国海军里根号航母、卡尔文森号航母、英国皇家海军伊丽莎白女王号航母以及日本、加拿大等共计6国17艘各式舰艇10月2号和3号在菲律宾海举行联合演习。
 
-该数据显示，从2019年5月份开始，PCR的公共采购猛增，购买者主要是省疾控中心、解放军和武汉的某些大学。其中，疾控中心的采购量比2018年暴涨5倍。
+演习结束当天，16架解放军军机再次侵扰台湾。10月4号，56架解放军军机再次扰台，是台湾国防部报告中共军机动态以来数量最多的一次。
 
-该报告的研究人员进一步猜测突然暴增的PCR检测试剂量表明，很可能中共病毒早于5月份已经在武汉流行。而不是中共官方承认的十二月才确诊第一个病人。
+中共自1949年建政以来一直与台湾分离、分治，互不隶属。但北京一直声称拥有对台湾的领土主权，誓言即使动用武力也要实现大陆与台湾的统一。随着中共国经济和军力的增强，解放军对台湾的军事施压越来越严重。城门失火，殃及池鱼，邻国日本也加强了军事装备，联合其他友国举行军事演习，以防随时可能发生的战争。
 
-当然因为中共一直拒绝分享疫情防控数据，也导致情报人员不得不从这些异常的PCR采购数据推测可能的中共病毒最先爆发时间，各种假设和猜测大行其道。
+新闻参考链接：[https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html](https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html)
 
-笔者对于该数据则有另外一种解读。除了从5月份开始PCR暴增的采购量，还有同时段中共国自己的新闻媒体报道过的一些令人费解的新闻——4月份的军运会卫生应急预案演习，及9月份天河机场进行的模拟新冠病毒感染演习。请问一个运动会的准备项目为什么要把新冠病毒感染作为一个可能的危机事件进行演习 ？请问他们的全运会有这样的应对准备吗？2008年的北京奥运会有过这样的演习吗？
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-两者结合起来看，是应对已经开始的病毒传播？还是为准备放毒提前准备物资呢？套用鲁迅先生一句话：我从来不惮以最坏的揣度来理解这个邪恶的组织。另外，从这个病毒的潜伏期和传染力来看，中共不可能有能力捂盖子捂上7个月。这些诡异的行为和采购数据结合起来只能是指向后者。
 
-新闻来源：[China Placed Massive Order For PCR Tests Months Before First Official COVID Case](https://www.zerohedge.com/covid-19/china-placed-massive-order-pcr-tests-months-first-official-covid-case)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
