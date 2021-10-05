@@ -2,17 +2,23 @@
 ---
 
 
-## 印尼排华的幕后黑手没有受到惩罚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1573593/)
+## 中共砸数亿不许谷歌出现郭文贵讲疫苗讲病毒和喜币及盖特
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573673/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image3-5-2.jpg)图片来源：Gnews
-郭文贵先生在9月29日的直播中说，在印尼排华中，110万华人受害，而幕后人没有受到惩罚。
+视频制作：撒骄的男宝好性感；
 
-我为什么要谈论印尼排华问题？因为像苏哈托这样的人在他年老的时候仍然没有受到惩罚。这就是所有国际政治家的问题。印度尼西亚三次排华，110万华人受害，全人类都在沉默。当一万到两万人在香港被自杀时，有多少美国人为他们说话？如果今天又有这样的反华事件，最危险的国家是澳大利亚、美国、印度和日本。在这些国家，可能会出现比印尼更严重的反华事件，只需要1秒钟，就会一发不可收拾。到时候谁会为你说话？如果你不知道共产党的邪恶，你这辈子就白活了。苏哈托必须为他的罪行受到惩罚。
+发布：黎明之前；
 
-曾经看过些印尼屠杀华人的图片，那还是人吗？那还是人间吗？如果这世间有地狱，那应该就是地狱。而正是中共和苏哈托之流将这地狱搬到了人间，搬到了印尼。今天在全球，这一切又再次上演，只是屠杀的方式发生了变化。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-参考链接：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[2021年9月29日 文贵大直播](https://gtv.org/video/id=615466c142a8af3151a74ee3)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

@@ -2,28 +2,33 @@
 ---
 
 
-## 郭文贵精品视频-疫苗灾难之黑云压城城欲摧
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1573542/)
+## 新南威尔士州迎来第46任州长
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1573671/)
 
-撰稿：澳喜cindy
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/335201ff35867672cdac6b9ed1a89b03.jpg)图片来源：news.com.au
+**整理报道：**翼族
 
-2020年12月10日，在全球还没有开始大规模推广疫苗接种的时候，郭文贵先生根据获得的情报和信息就发出预警：美国推出的辉瑞疫苗是CCP和世界黑暗势力勾结的结果。它将是病毒灾难后又一次灾难。
-Youtube视频
-各国政府的实权部门负责人利用人民对他们的信任，及他们掌握的权力，一边大肆宣传：只有打疫苗才能解除封城，才能免于被解职。另一方面用利益诱惑人们去打疫苗。更恶劣者，组成“疫苗接种军队”到社区到家里强行注射疫苗。
+多米尼克·佩洛特（Dominic Perrottet）先生在今天早上的投票中，以39票对5票击败了规划部长罗博·斯托克斯（Rob Stokes），成为新南威尔士州的第46任州长。新南威尔士州是悉尼所在州，也是澳大利亚第一大经济州。
 
-医疗机构的权力部门，有的把疫苗接种者被病毒感染的人数隐瞒以吓唬民众：染病毒者都是没有接种疫苗的人！并且恫吓从医人员：不许把真相公布出去！
+就业部长斯图尔特·奥雷斯（Stuart Ayres）将成为他的副手，现任环境部长马特·科恩（Matt Kean）有望晋升为财政部长。
 
-这场全球一起推动强逼接种疫苗的运动是由各国众多的关键部门的实权负责人配合背后实力雄厚的黑暗势力共同发力的结果。各自为了自己的目的和利益，罔顾事实，弄虚作假，视人命如草芥。
-网络视频
-[https://gettr.com/post/pclf2171a1](https://gettr.com/post/pclf2171a1) 从医40年的一位爱尔兰家庭医生，他在近期六周内目睹了已注射疫苗的人患上癌症的数字超过了他从医40年职业生涯所见的癌症数字的总和。
+佩洛特先生来自自由党中不太占优势的右翼派系，而奥雷斯先生和科恩先生则来自温和派。
 
-当前病毒及疫苗接种的受伤害者的真实声音和诉求在五大家族掌控下的主流媒体是不予报道的。作为全球接种疫苗率最高当然也是受伤害最厉害、最多的以色列COVID-19 疫苗受害者们，为了给所有接种COVID -19疫苗后受到伤害的人提供一个平台，并确保他们的声音被听到，创建了证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/)
+过去两天，原州长格拉迪斯·贝瑞吉克莲(Gladys Berejiklian)和副州长约翰·巴里拉罗（John Barilaro）相继辞职。
 
-目前第五期已经问世 [https://gettr.com/post/pcu0np910c](https://gettr.com/post/pcu0np910c)
+新任州长佩洛特将组建一个新的内阁。现年39岁的佩洛特是六个孩子的父亲，一位保守的天主教徒，于2019年曾投票反对堕胎合法化，也反对安乐死。
 
-一个个鲜活的健康的身体都变成了终身的残疾甚至不久将离别于人世间。这血淋淋的事实，不但没有被各国政府重视而是一意孤行的继续强推疫苗接种。这种法西斯式的行为震撼到每个人的心灵。让我们看到这个世界真的到了伸手不见五指的黑暗时刻，也印证了文贵先生契而不舍的呐喊：人类正面临着CCP及世界黑暗势力的巨大挑战！CCP病毒的灾难过后即将迎来更惨重的疫苗灾难。
+周日，佩洛特表示，如果他当选，他将专注于恢复经济，新南威尔士州将于10月11日为全面接种疫苗的人重新开放。佩洛特先生表示，不排除调整该州解除封锁的路线图。传言他可能会采取更快重新开放的措施。
 
-（本文观点纯属个人）
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**参考链接：**[Dominic Perrottet becomes 46th NSW Premier after winning Liberal leadership vote](https://www.abc.net.au/news/2021-10-05/dominic-perrottet-becomes-nsw-premier/100513804)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

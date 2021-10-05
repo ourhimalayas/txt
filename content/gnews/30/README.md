@@ -2,33 +2,22 @@
 ---
 
 
-## 新南威尔士州迎来第46任州长
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1573671/)
+## 诡异！中共政府为何早早大量采购PCR试剂？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573743/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/335201ff35867672cdac6b9ed1a89b03.jpg)图片来源：news.com.au
-**整理报道：**翼族
+#### 撰稿：Fluffyrabbit
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-19.jpg)图片来源：beyotime
+据零对冲报道，日经新闻挖掘了包括美英澳情报人员的研究报告，根据来自一个统计政府采购合同的网站数据，湖北省政府于2019年5月份已经大量采购PCR检测试剂，远在第一个病人确诊中共病毒感染（12月8日）之前。
 
-多米尼克·佩洛特（Dominic Perrottet）先生在今天早上的投票中，以39票对5票击败了规划部长罗博·斯托克斯（Rob Stokes），成为新南威尔士州的第46任州长。新南威尔士州是悉尼所在州，也是澳大利亚第一大经济州。
+该数据显示，从2019年5月份开始，PCR的公共采购猛增，购买者主要是省疾控中心、解放军和武汉的某些大学。其中，疾控中心的采购量比2018年暴涨5倍。
 
-就业部长斯图尔特·奥雷斯（Stuart Ayres）将成为他的副手，现任环境部长马特·科恩（Matt Kean）有望晋升为财政部长。
+该报告的研究人员进一步猜测突然暴增的PCR检测试剂量表明，很可能中共病毒早于5月份已经在武汉流行。而不是中共官方承认的十二月才确诊第一个病人。
 
-佩洛特先生来自自由党中不太占优势的右翼派系，而奥雷斯先生和科恩先生则来自温和派。
+当然因为中共一直拒绝分享疫情防控数据，也导致情报人员不得不从这些异常的PCR采购数据推测可能的中共病毒最先爆发时间，各种假设和猜测大行其道。
 
-过去两天，原州长格拉迪斯·贝瑞吉克莲(Gladys Berejiklian)和副州长约翰·巴里拉罗（John Barilaro）相继辞职。
+笔者对于该数据则有另外一种解读。除了从5月份开始PCR暴增的采购量，还有同时段中共国自己的新闻媒体报道过的一些令人费解的新闻——4月份的军运会卫生应急预案演习，及9月份天河机场进行的模拟新冠病毒感染演习。请问一个运动会的准备项目为什么要把新冠病毒感染作为一个可能的危机事件进行演习 ？请问他们的全运会有这样的应对准备吗？2008年的北京奥运会有过这样的演习吗？
 
-新任州长佩洛特将组建一个新的内阁。现年39岁的佩洛特是六个孩子的父亲，一位保守的天主教徒，于2019年曾投票反对堕胎合法化，也反对安乐死。
+两者结合起来看，是应对已经开始的病毒传播？还是为准备放毒提前准备物资呢？套用鲁迅先生一句话：我从来不惮以最坏的揣度来理解这个邪恶的组织。另外，从这个病毒的潜伏期和传染力来看，中共不可能有能力捂盖子捂上7个月。这些诡异的行为和采购数据结合起来只能是指向后者。
 
-周日，佩洛特表示，如果他当选，他将专注于恢复经济，新南威尔士州将于10月11日为全面接种疫苗的人重新开放。佩洛特先生表示，不排除调整该州解除封锁的路线图。传言他可能会采取更快重新开放的措施。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考链接：**[Dominic Perrottet becomes 46th NSW Premier after winning Liberal leadership vote](https://www.abc.net.au/news/2021-10-05/dominic-perrottet-becomes-nsw-premier/100513804)
-
-*编辑/发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[China Placed Massive Order For PCR Tests Months Before First Official COVID Case](https://www.zerohedge.com/covid-19/china-placed-massive-order-pcr-tests-months-first-official-covid-case)

@@ -2,61 +2,44 @@
 ---
 
 
-## 贝莱德被新州主权基金解约只是冰山一角
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1573999/)
+## 显微镜下的摩德纳疫苗发现有会移动并自我组装的物质
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574114/)
 
-#### 翻译：奮鬥
-校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan.jpg-1.png)
-**图片来源：Pensions&Investments**
-
-**文章导读：**
-
-贝莱德（黑石）目前是全球最大的投资公司，也是盗国贼掏空中国人民财富的帮凶。黑石与中共深度勾兑，在所谓大中华新兴市场地区投资占比很高。9月3日媒体披露，为避免恒大暴雷，贝莱德伙同汇丰基金在数月前增持恒大债券，[华尔街出手相救，恒大回光返照？ – GNEWS](https://gnews.org/zh-hans/1549700/)当日恒大股价回光返照出现一次大幅上扬。然而，随着中共国庞氏骗局最终破灭，长期深耕中共国让其投资出现巨额亏损只是一个时间问题。
-
-近日澳媒爆出，贝莱德在澳大利亚新南威尔士州主权财务基金管理经理人职位被解约，原因是其长期达不到承诺绩效指标，这里一定有大中华新兴市场不断暴雷的阴影。这次贝莱德被新州主权基金解约只是冰山一角，伴随中共国不断引爆各种经济核弹，与狼共舞的贝莱德注定是中共覆灭时的殉葬品。
-
-**译文：**
-
-世界上最大的投资公司贝莱德（黑石），其负责管理的澳大利亚新州政府150亿澳元投资基金因管理资金方面持续表现不佳，最近被新南威尔士州政府解约了。
-
-贝莱德是新南威尔士主权财富基金——世代基金(NGF)聘请的投资经理之一，负责投资对冲基金等“另类”资产。
-
-根据媒体获得的文件，新南威尔士州财政部向州议会披露的信息显示，贝莱德因“持续表现不佳”而被“终止”作为NGF的备选经理（合作关系）。
-
-“自基金成立以来，新州财政部金融机构（TCorp）已终止其管理人员的职务，”TCorp的声明在书面答复中表示。
-
-“经理投资业绩由TCorp的投资组合交付团队审查，该团队向（新州财政部）首席投资官报告。”
-
-TCorp对资产管理公司附加关键绩效指标（KPI），KPI是针对绩效目标、投资参数（包括限制）、违规通知、报告义务（包括报告交付时间）和权限而制定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/22-1.png)
-图片来源：Financial Review
-
-“这些是根据投资策略制定的，并通过与管理人员谈判达成一致，参考行业标准、TCorp和客户需求。”
-
-总部位于纽约的贝莱德是世界上最大的投资公司，在全球管理着近10万亿美元（13.9万亿澳元）的资产。目前贝莱德仍受聘于新南威尔士州基金，担任澳大利亚股票、新兴市场股票和国际股票的经理。
-
-对此，贝莱德和TCorp以保密协议为由拒绝置评。
-
-新州世代基金于2018年底由新南威尔士州预算盈余的100亿澳元和西联（WestConnex）收费公路最初51%的销售收入作为种子资金。
-
-该基金已发展到超过150亿美元，自成立以来平均年回报率为9.4%，总利润约为28亿美元。截至6月30日，该基金约有38亿美元，即其投资组合的25%分配给了对冲基金等“另类”投资。
-
-TCorp告诉议会，由于“投资组合经理离职”，摩根大通不再作为新南威尔士州基金的替代投资经理。
-
-新州的预算深陷赤字，债务预计将跃升至1200亿澳元以上。
-
-新州财政部长多米尼克·佩罗特（Dominic Perrottet）在9月迈出了扭转债务资金的一步，宣布来自西联高速公路私有化的110亿澳元将在未来两年内用于偿还州债。
-
-佩特罗先生尚未宣布他是否会继续执行先前的计划，将每年的采矿特许权使用费收入和国有企业的红利（四年内价值100亿至200亿美元）转入世代基金。
-
-原文链接：[BlackRock ‘terminated’ by NSW Treasury fund (afr.com)](https://www.afr.com/policy/economy/blackrock-terminated-by-nsw-treasury-fund-20211001-p58wen)
-
-发布：小红帽
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+So first of all, in July that a local lab in Georgia said they wanted me to examine contents of a vial that they had just received.
+首先，在7月，乔治亚州的一个当地实验室说他们希望我检查他们刚刚收到的一瓶疫苗的成分。
+And this particular vial was Moderna.
+这瓶疫苗是莫德纳。
+And so I was there to witness them getting that and putting some of the contents on a glass slide.
+所以我在那里见证了他们拿到那瓶疫苗，并把一些成分放在玻璃片上。
+First it looked translucent. And then as time went on over 2 hours. Colours appeared which I’ve never seen anything like this. There was a chemical reaction happening. It was a brilliant like blue and royal purple and yellow and sometimes green.
+开始，它看起来是半透明的。然后随着时间的推移，超过了2个小时。颜色出现了，我从来没有见过这样的东西。发生了一种化学反应。它是一种灿烂的蓝色、皇家紫色和黄色，有时是绿色。
+These fibres were appearing more more. Some of the vials had a little
+越来越多纤维出现了。一些疫苗瓶上有一个小的
+cube structure on that I’m not sure what that was. Also metallic fragments were in there.
+立方体的东西，我不确定那是什么。还有金属碎片在里面。
+They were not metallic fragment I’m used to seeing, more exotic, they are very opaque.
+它们不是我平时看到的金属碎片，更有异国情调，它们是非常不透明的。
+As the edge of the cover slide, so the coverslip, you put a glass partition on that piece on top of the glass slide. There are edges. And so all the particulars
+由于玻璃盖片的边缘滑动，玻璃盖片滑落，你在那块玻璃片上面放了一个玻璃隔板。有边缘。于是所有的颗粒物
+all these colours started to move to the edge
+所有这些有颜色的（颗粒物）都开始向边缘移动，
+And there was self-assembling going on. Things are growing.
+而且它们有自我组装的情况发生。这些物质在变大。
+And then there was one particular, I say object, or organism, I’m not sure what to call it, that
+然后有一个特别的东西，我说是物体，或者有机生物，我不确定该怎么称呼它，
+had tentacles coming from it. And it was able to lift
+有触角从它身上伸出来。它能够把自己撑起来
+itself up, off the cover
+移到玻璃盖片外
+I’m sorry, off the glass slide. It was alive? The thing was alive? It appeared to. Yeah it appeared to have the self-aware or would be able to grow
+对不起，是离开玻璃片。 它是活的？那东西是活的？它看起来是的。是的，它似乎有自我意识，或者能够生长
+or move in space. Some appear to be self-aware, like it knows we were watching it.
+或在空中移动。有些似乎有自我意识，好像它知道我们在看它。
+And so you know just recently the lab, I was able to get more vials, same manufacturer but you know different batch, of course. Looking at it the same way into the compound microscope
+你知道最近在实验室，我得到更多瓶疫苗，同样的制造商，当然是不同的批次。在复式显微镜下以同样的方式观察它
+and another one of those tentacle like structures appeared. This was now completely under the cover slip.
+又出现了一个有类似触角的结构的东西。这次它已经完全在玻璃盖片下面了。
+So there was no moving because it wasn’t on the edge
+所以没有移动，因为它不在边缘上。
+But I just couldn’t believe I saw another one
+但我难以相信我又看到了一个
