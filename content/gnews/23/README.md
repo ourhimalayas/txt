@@ -2,21 +2,20 @@
 ---
 
 
-## 秘翻在线:艾美奖得主皮尔切因中共病毒去世
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574174/)
+## 新日本首相岸田文雄和拜登承诺一起保护钓鱼岛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574218/)
 
-#### 翻译/撰稿:黃金精神
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-21.jpg)图片来源：网络截图
+10月5日据日经网报道，日本新首相岸田文雄周二表示，他收到了乔·拜登总统的“强烈”信息，称美国致力于保护有争议的被称为钓鱼岛的东海小岛。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-1.jpg)图片来源：GP社
-据GP社（Gateway Pundit）10月4日报道，电视剧“布里奇顿”（Bridgerton）53岁的艾美奖得主马克·埃利奥特·皮尔切（Marc Elliot Pilcher）在洛杉矶参加第73届艾美奖颁奖典礼的两周后，周日死于中共病毒。皮尔切接种了两剂疫苗，没有潜在疾病。
+岸田文雄在总理官邸告诉记者，周二上午持续了大约20分钟的电话会谈中，盟国还确认了他们为实现自由开放的印太合作。他说，总统特别对美国捍卫日本的承诺发表了强烈评论，包括《美日安全条约》第5条，指的是美国对日本的国防义务，这些义务涵盖这个无人居住的岛屿。
 
-他的家人通过柯蒂斯·布朗（Curtis Brown）经纪公司发表的声明中告诉Variety传媒：“我们怀着最深切的心情确认，奥斯卡提名奖及艾美奖发型和化妆设计师/造型师得主马克·埃利奥特·皮尔切在2021年10月3日周日在与中共病毒的斗争中去世。”
+64岁的前外交部长岸田文雄公布了由前首相安倍晋三和前财政部长麻生太郎的盟友主导的内阁阵容。
 
-这场颁奖典礼除了雇员外，名人都不需要佩戴口罩，所以要求参与者必须完全接种疫苗。皮尔切接受了几次中共病毒检测，测试结果为阴性。但是皮尔切回到英国不久后病倒，死于中共病毒。
+安倍的兄弟国务部长Kishi Nobuo Kishi和外交部长Toshimitsu Motegi都保住了自己的职位，这反映了岸田文雄打算继续推动安倍加强与华盛顿的安全关系，同时保持与中国的贸易关系。
 
-洛杉矶县公共卫生局说，艾美奖的颁奖典礼上不戴口罩并没有违反该县的口罩强制令，因为“电影、电视及音乐制作行业都被排除在强制令外”，这类活动进行了“额外的安全修改”。
+新总理还将深化与美国、澳大利亚、印度和日本（被称为四方）的接触，北京认为这是遏制其崛起的努力。
 
-这个充满“成熟的、接种过疫苗的人”的颁奖典礼变成了一个致命的超级传播场所。
-
-[**新闻来源**](https://www.thegatewaypundit.com/2021/10/double-vaccinated-emmy-winner-dies-covid-19-two-weeks-attending-award-ceremony-unmasked-celebrities/)
+原文链接：[Japan PM Kishida and Biden commit to defending Senkaku Islands](https://asia.nikkei.com/Politics/International-relations/Japan-PM-Kishida-and-Biden-commit-to-defending-Senkaku-Islands)

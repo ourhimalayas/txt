@@ -2,40 +2,34 @@
 ---
 
 
-## 脸书旗下社交平台服务全部关闭 现代通讯艰难的一天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573907/)
+## 美国贸易主任公布拜登政府最新中共国贸易战略
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573908/)
 
-栏目记者/责任编辑：安吉拉
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+栏目记者/责任编辑：文真
 
 
 
-今天对全球第一社交巨头扎克伯格来说非常艰难。Facebook, Instagram, WhatsApp, Oculus和Messenger所有的服务都被关闭了。而且奇怪的是，Facebook.com域名被列为出售对象。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
 
-以上社交通讯软件都隶属于Facebook旗下，在今日美东时间上午11:40左右开始出现故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-5.jpg)
-WhatsApp在其推特账号上承认了这个问题，对造成的不便表示抱歉，并解释团队正在努力使服务恢复正常。截止到发稿时间，以上社交媒体仍停留在无法使用状态。Telegram的使用也出现了问题，用户反应收发信息延迟严重，有时在群组消息之间会突然出现色情图片。
 
-据悉，15亿客户的个人数据被从这些平台抽取出来，在暗网上以每一百万个名字五千美元的价格出售。用户ID、真实姓名、电子邮件、电话及地址都在待售之列。
 
-脸书每月有2.8亿活跃用户，Instagram全球用户已超过10亿，WhatsApp全球用户约22亿。而今天所发生的并不是一个普通的宕机，有人删除了大段的路由器指令，Facebook的整个域名解析服务器记录已经消失。从数据角度解释，Facebook已经消失了。
+【零对冲】报道，10月4日上午，美国贸易代表戴琪发表讲话，公布拜登政府关于美中贸易关系僵局的战略。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-3.jpg)
+戴琪认为，中共国的成功以牺牲美国和世界其他经济体为代价。她解释了中共如何破坏美国钢铁业的生产力和工作岗位，以及对其它行业——包括半导体业、甚至农业——的影响。她承认，拜登政府现有的美中贸易关系策略沿用了前川普政府制定的结构和框架，但目标是 “不激化与中共国的贸易紧张”。
 
-Facebook的股票从9月7日开始呈下降趋势，今日开盘至今每股已下跌16.78美元，约5%。今日事件发生原因尚未明晰，市场对Facebook雄心勃勃的加密货币支付系统计划的期望也在急剧下跌。
+川普政府2019年初达成 “第一阶段” 美中贸易协议，要求中共国在截至2021年底前，对美国农产品和制成品、能源和服务的购买量比2017年的水平提高2000亿美元。戴琪表示，中共国并没有完成“第一阶段”贸易协议中的承诺，她将与中方贸易代表举行线上会议，讨论该贸易协议的执行。关于是否针对中方违反第一阶段协议，发起“301”条款调查，戴琪并未做出肯定回答。
 
-截稿时另一则最新消息，今天美国银行Bank of America的许多用户，报告其银行系统出问题，敦促用户检查自己的余额及明细账。截稿时问题仍未解决。
+目前，拜登政府并未计划进行 “第二阶段” 贸易协议的谈判。
 
 （本文仅代表作者观点）
 
 参考链接：
-1. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://insiderpaper.com/whatsapp-instagram-down/)
-2. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://twitter.com/Facebook/status/1445061804636479493?s=20)
+1. [美国贸易主任公布拜登政府最新中共国贸易战略](https://www.zerohedge.com/political/watch-live-top-biden-official-lays-out-china-strategy-long-awaited-remarks)
+2. [美国贸易主任公布拜登政府最新中共国贸易战略](https://www.zerohedge.com/economics/us-trade-chief-give-major-speech-monday-belatedly-unveiling-bidens-china-trade-strategy)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审编辑：鬼五
+终审编辑：Q大哥
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**

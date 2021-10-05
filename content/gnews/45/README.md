@@ -2,23 +2,51 @@
 ---
 
 
-## 中共砸数亿不许谷歌出现郭文贵讲疫苗讲病毒和喜币及盖特
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573673/)
+## 罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573830/)
 
-视频制作：撒骄的男宝好性感；
+栏目记者/责任编辑：文一
 
-发布：黎明之前；
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+据意大利媒体报道，罗马尼亚亿万富翁丹·佩特雷斯库 （Dan Petrescu）周日在米兰附近的一次飞机失事中死亡。
+
+佩特雷斯库驾驶飞机在起飞几分钟后坠毁，撞向一个建筑工地。包括佩特雷斯库的妻子和儿子在内的八人在坠机中死亡。罗马尼亚外交部已证实其中7人均拥有双重国籍。68岁的佩特雷斯库个人净资产超过10亿欧元（12亿美元），同时拥有罗马尼亚和德国国籍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-20.jpg)
+最近飞机事故频发，美国陆军医生和航空航天医学专家特蕾莎·朗刚向五角大楼呼吁，要求所有接种新冠疫苗的飞行员都必须停飞。 因未任何人都不能排除因心脏病发作，而突然发生飞行事故的可能性。疫苗灾难导致的空难事件恐将接连发生。
+
+文贵先生对此也发盖文表示，没人愿意看到这种灾难时刻的发生，但是我们也要面对现实。
+
+参考链接：
+[Romanian Billionaire Petrescu Dies in Plane Crash Near Milan](https://www.bloomberg.com/news/articles/2021-10-04/romanian-billionaire-petrescu-dies-in-plane-crash-near-milan)
+
+[郭先生盖特： 10月4号：没有人愿意看到这种灾难的时刻发生，但是我们也要面对现实！【7哥 您说的疫苗灾难的空难事件已经发生了 10月3日米蘭一架私人飛機撞入空辦公室，造成8人死亡】](https://gettr.com/post/pd3kuk5864)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： Ryan
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

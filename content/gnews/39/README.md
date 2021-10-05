@@ -2,8 +2,8 @@
 ---
 
 
-## 美国贸易主任公布拜登政府最新中共国贸易战略
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573908/)
+## 新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573910/)
 
 栏目记者/责任编辑：文真
 
@@ -13,23 +13,17 @@
 
 
 
-【零对冲】报道，10月4日上午，美国贸易代表戴琪发表讲话，公布拜登政府关于美中贸易关系僵局的战略。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-3.jpg)
-戴琪认为，中共国的成功以牺牲美国和世界其他经济体为代价。她解释了中共如何破坏美国钢铁业的生产力和工作岗位，以及对其它行业——包括半导体业、甚至农业——的影响。她承认，拜登政府现有的美中贸易关系策略沿用了前川普政府制定的结构和框架，但目标是 “不激化与中共国的贸易紧张”。
-
-川普政府2019年初达成 “第一阶段” 美中贸易协议，要求中共国在截至2021年底前，对美国农产品和制成品、能源和服务的购买量比2017年的水平提高2000亿美元。戴琪表示，中共国并没有完成“第一阶段”贸易协议中的承诺，她将与中方贸易代表举行线上会议，讨论该贸易协议的执行。关于是否针对中方违反第一阶段协议，发起“301”条款调查，戴琪并未做出肯定回答。
-
-目前，拜登政府并未计划进行 “第二阶段” 贸易协议的谈判。
+美联社报道，10月4日，新西兰政府终于肯承认现实——封锁措施不能完全消除中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4.jpg)
+此前，为达到“新冠零病例”的目的，新西兰的封锁政策已经实施了七周，奥克兰街道上抗议封锁的人群也在不断增加。他们批评政府反应过度，借疫情封锁剥夺人权和自由。封锁政策不但未能平息新冠疫情的复发，反而，给新西兰的经济中心和人口最多的城市——奥克兰，带来了巨大的经济压力。对此，新西兰总理阿德恩宣布一项谨慎的计划，以放松奥克兰的封锁限制，放弃了已经实施了18个月的中共病毒疫情指导性政策。
 
 （本文仅代表作者观点）
 
-参考链接：
-1. [美国贸易主任公布拜登政府最新中共国贸易战略](https://www.zerohedge.com/political/watch-live-top-biden-official-lays-out-china-strategy-long-awaited-remarks)
-2. [美国贸易主任公布拜登政府最新中共国贸易战略](https://www.zerohedge.com/economics/us-trade-chief-give-major-speech-monday-belatedly-unveiling-bidens-china-trade-strategy)
+参考链接：[新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施](https://www.zerohedge.com/covid-19/new-zealand-finally-abandons-controversial-covid-zero-policy-promises-roll-back-lockdowns)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审编辑：Q大哥
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
