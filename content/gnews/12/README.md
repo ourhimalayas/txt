@@ -2,50 +2,47 @@
 ---
 
 
-## 五角大楼让文职雇员在11月初之前全面接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1575563/)
+## 欧盟官员强调，Facebook的宕机表明市场需要更多的竞争者
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575621/)
 
-- **编译：Lulumi**
+作者：纽约香草山农场 – 四季
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip251.png)
-2021年9月28日，在华盛顿国会山的迪尔森参议院办公大楼，国防部长劳埃德-奥斯汀在参议院军事委员会关于结束在阿富汗的军事行动和未来反恐行动计划的听证会上发言。(Patrick Semansky/POOL/AFP via Getty Images)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
 
-美国国防部（DOD）表示，所有美国文职雇员需要在11月22日之前完全接种中共病毒COVID-19疫苗，只给他们几周时间来打针。雇员接种完莫德纳或辉瑞公司疫苗的第二剂，或强生公司疫苗的单剂后的两周内被视为完全接种。
 
-国防部的一份备忘录说，对于选择接种两剂莫德纳疫苗的员工来说，他们必须在10月11日前接种第一针。预定接种两针辉瑞公司疫苗的人必须在10月18日前接种第一针。
 
-莫德纳和辉瑞疫苗的第二剂量截止日期是11月8日。根据该备忘录，接种强生公司疫苗（只有一剂）的员工也必须在11月8日之前接受注射。
 
-国防部说：”为了保卫国家和保护美国人民，我们需要一支健康和准备就绪的部队。”为了实现这一目标，国防部长通过在8月份签署的备忘录，指示对服役人员进行2019年冠状病毒疾病（COVID-19）的强制疫苗接种。备忘录继续说，乔·拜登总统在9月9日签署了一项行政命令，要求联邦雇员和承包商进行疫苗接种。
+据[OAN](https://www.oann.com/facebook-outage-shows-need-for-more-players-eus-vestager-says/)网站援引路透社10月5日报道，欧盟反垄断局局长玛格丽特-维斯塔格 (Margrethe Vestager) 周二表示，Facebook前一天六小时的宕机，显示了仅仅依靠几个大公司所产生的后果，并强调市场需要更多的竞争者。
 
-COVID-19是由CCP（中国共产党）病毒引起的疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1139-1-2021-10-05T113833Z_1_LYNXMPEH940LG_RTROPTP_0_EU-BELGIUM-TAXAVOIDANCE_1.jpg)2021年6月9日，欧盟反垄断局局长玛格丽特·维斯塔格在比利时布鲁塞尔欧盟总部举行的竞争部门调查新闻发布会上发表讲话。（ John Thys/Pool via REUTERS/File Photo）
 
-白宫人事管理办公室在周末发布了一项类似的指令，称联邦工作人员必须在11月8日之前接种两剂莫德纳或辉瑞疫苗或强生公司的疫苗。
+这次宕机涵盖Facebook旗下的WhatsApp、Instagram和Messenger，使得该公司的35亿用户无法访问其社交媒体和消息服务。这是网络监测集团Downdetector有史以来监测到的最大的一次故障。
 
-该机构说：”拒绝接受疫苗接种或提供疫苗接种证明的雇员将受到纪律处分，包括被免职或终止联邦服务。唯一的例外是根据既定机构程序获得法律规定的例外的个人。”
+维斯塔格去年提出了被称为数字市场法（DMA）的规则草案，为亚马逊、苹果、Facebook和谷歌列出了一份该做和不该做清单，从本质上讲，这将迫使它们改变其核心商业模式，以允许更多的竞争。
 
-上个月，几名联邦雇员对拜登提起诉讼，认为他的疫苗强制令不公平地影响了属于基督教信仰的员工。原告的律师还表示，拜登的强制令没有考虑到先前感染COVID-19中共病毒所提供的”自然免疫力”，并指出一些研究发现它对德尔塔变种有保护力。
+欧盟立法者和欧盟国家现在正在对提案进行辩论，并需要在技术规则生效之前调和这三个草案。
 
-诉讼中说，其中一名原告确认为美国外交部官员，据他所属的信仰，”也指示他，接种疫苗原则上不是道德上的义务，因此必须是自愿的”。他的律师认为，”有一种普遍的道德责任，即拒绝使用利用直接堕胎所得的人类细胞系生产的医疗产品，包括某些疫苗”。
+大科技公司的暴雷凸显了独特的、拥有自由言论、独立思想以及卓越技术的Gettr 的宝贵，它可以让人们自由的发声，在全世界分享自由和民主。
 
-**评论：**
+（本文仅代表作者观点）
 
-**每天看到各国政府强制推进疫苗接种的新闻，慢慢理解了七哥说的天堂在人间，地狱也在人间。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
 
-**这些推行接种疫苗的人就像吃了人尸丸的行尸走肉，不断将人类往地狱里推，而新中国联邦人是被天堂的智慧之光照耀的一群人，是将人类从地狱口拯救出来的正义力量.**
+编辑/校对/发稿：小鹿
 
-**在这场正邪较量的过程中会有跌宕起伏，但最终胜利一定属于我们新中国联邦。**
 
-（文章仅代表作者观点，与GNEWS无关）
 
-**新闻来源：[大紀元時報](https://www.theepochtimes.com/mkt_morningbrief/pentagon-gives-civilian-employees-until-early-november-to-get-fully-vaccinated_4031431.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-10-05&amp;mktids=6b5f60ed4f77f63f07bf743a69dcd1f0&amp;est=sKOkM9jc2UCy7%2FI0UTmUXtaGHuYLrLT0Cd3iSP85OVrXCpYEcTpDT5XG4SfF7mPRFpLFQch9oQ%3D%3D)(The Epoch Times) | 作者：JACK PHILLIPS 发布时间：2021年10月4日 **
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

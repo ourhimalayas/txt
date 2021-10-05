@@ -2,33 +2,19 @@
 ---
 
 
-## 视频| 真相工程&#8211;暗访辉瑞科学家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1575331/)
+## 普京称欧洲能源市场“存在歇斯底里和混乱”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575437/)
 
-制作：香草山视频部
+俄罗斯莫斯科喀秋莎农场 星河
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E.jpg)dailypostla.com
+美东时间10月5日报道，俄罗斯总统弗拉基米尔∙普京表示，“欧洲能源市场存在歇斯底里和混乱，这是由不平衡的决定和突然的极端措施造成的。”
 
+总统表示，“有必要牢记经济中煤炭、石油和天然气综合体稳定发展的重要性。你看欧洲正在发生什么——市场上正在发生歇斯底里和一些混乱的情况。为什么？因为没有人认真对待它。”
 
+普京强调，“欧洲造成此情况的原因是对气候问题的投机行为、错误的预判和对开发领域减少了投资。所有的事情要实现自身的目标都是要有一个平稳的过渡。俄罗斯具有所有的能力来杜绝在自身能源市场出现这种情况。我们看到了欧洲的某些不平衡的决定、不平衡的发展和突然的极端措施导致了什么。”
 
+参考链接：
 
-
-
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431](https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431)

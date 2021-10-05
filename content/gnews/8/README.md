@@ -2,164 +2,109 @@
 ---
 
 
-## 未来的财富会大量流入喜币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575652/)
+## 前高管在美参议院听证会上揭露脸书
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575670/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ai6ay-xnho6.jpg)
-[https://gtv.org/video/id=615c9323d2e2b8174871948b](https://gtv.org/video/id=615c9323d2e2b8174871948b)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵
-Miles**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F.jpg)infomagzine.com
+笔者写稿时，脸书（Facebook）前数据科学家弗朗西丝·豪根（Frances Haugen）正在参议院听证会上作证，揭露脸书将公司利润置于公共利益之上。就在此前《CNN商业》10月5日发表了题为“我们所了解到的脸书爆料者”。【1】
 
-钱流向的唯一的洼地
-El dinero circula hacia la única depresión
+全文如下：
 
-洼地这词儿, 国内开会的政法委战友
-Esta palabra depresión, los compañeros luchadores que estuvieron en la reunión del Comité Político y Legal en China
+脸书前雇员的泄密事件引发了该公司历史上最激烈的审查，周日晚上她透露了自己的身份。
 
-你们都知道我说的啥
-Saben de lo que estoy hablando
+曾在其他几家大型科技公司任职的前脸书的产品经理弗朗西斯·豪根(Frances Haugen)在 “60分钟 “节目中公开了身份。
 
-所以说政法委秘密开会议
-Por eso la reunión secreta realizada por el Comité Político y Legal
+豪根将于周二在美国参议院一个小组委员会面前作证。以下是我们迄今为止对她的了解。
 
-关于防止
-Acerca de la prevención de
+**背景**
 
-喜玛拉雅币和喜币, 成为中国海外流通财富的洼地
-Las monedas de Himalaya y H-Coin se han convertido en la depresión de la riqueza que circula en los chinos que están en el extranjero
+根据豪根的个人网站，她和父母一起参加了爱荷华州的党团会议，该网站补充说，这一经历给她灌输了“强烈的民主自豪感和公民参与责任感”。
 
-紧急会议, 都开了七八回了
-La reunión de emergencia se ha realizado siete u ocho veces
+在攻读电气和计算机工程专业，并获得工商管理硕士学位后，豪根从2006年开始在几家科技公司工作，其中包括谷歌、Pinterest和Yelp。根据CNN周一（10月4日）获得的她准备好的证词，她专攻“算法产品管理”，并研究了几种类似于脸书用来组织其主要新闻提要排名的算法。她定于周二出席参议院消费者保护、产品安全和数据安全小组委员会（he Senate subcommittee on Consumer Protection, Product Safety, and Data Security）的听证会。
 
-一次预估比一次预估还厉害
-La estimación es cada vez más estupendo
+她在准备好的证词中写道： “在运营不同类型社交网络的四家主要科技公司工作，我已经能够比较和对比每家公司如何对待和处理不同的挑战。”
 
-头几次预估都靠谱
-Las primeras veces de dicha estimación son confiables
+**对脸书很失望**
 
-说喜马拉雅在一两年内可能会形成几千亿上万亿的规模
-Dicen que Himalaya en uno a dos años puede formarse en una escala de cientos de miles de millones a billones
+据她的网站称，37岁的豪根于2019年加入脸书，致力于公民诚信，包括“与民主和错误信息相关的问题”，这些问题一直是脸书和其他社交媒体公司批评的前沿和中心，特别是在中共（冠状）病毒疫情和2020年美国总统选举前后。
 
-百分之三四十的钱流向喜币
-El 30-40% de dinero circulará hacia H-Coin
+豪根在她的“60分钟”采访中说，她在脸书接受这份工作是为了处理错误信息，但她说，当该公司在大选后不久决定解散其公民诚信团队时，她对该公司的感觉开始改变。
 
-稳定币和喜币
-La moneda estable y el H-Coin
+她表示，这一决定在一定程度上允许该平台用于帮助组织1月6日在国会山的暴乱。
 
-到年底, 特别在六七个月稳定运行以后
-Hasta finales del año, especialmente luego de seis a siete meses de funcionamiento estable
+脸书表示，公民诚信团队的工作在解散时被分配给了其他部门，该公司的高管们对其对国会山暴乱负责的指控予以了反驳。
 
-会大量的钱流入进去
-Habrá una gran cantidad de dinero que entrará
+豪根的披露很重要，因为全球各地的立法者、监管者和活动家一再抨击该公司在保护数亿用户方面做得不够。
 
-那么后来就是夸张了
-Después lo que vienen diciendo ya es exagerado
+她在参议院小组委员会的评论中说：“我加入了脸书……因为我身边的人在网上变得激进，我觉得有必要积极参与创建一个更好、毒性更小的脸书。”
 
-所有的这钱那钱都要过去
-Todo el dinero pasará
+但在过去两年的大部分时间里，她说她开始觉得脸书并没有致力于确保其产品保障公众利益。
 
-就想啥了
-De qué piensa
+“我一次又一次在脸书上看到的事情是，什么对公众有利？什么对脸书有利？两者之间存在利益冲突时，脸书一次又一次地选择为自己的利益进行优化，比如赚更多的钱。” 她告诉“60分钟”。
 
-想把它喜币干掉
-Está pensando eliminar al H-Coin
+在周二向参议院小组委员会发表的声明中，豪根抨击了脸书在全世界建立的“扩大分裂、极端主义和两极分化的系统”。
 
-就这些火币的头
-Sólo las cabezas de estos Huobi
+她写道：“脸书作为一家市值1万亿美元的公司，其利润来自于牺牲我们的安全，包括我们孩子的安全，这是不可接受的。”
 
-想把咱喜币干掉
-Quieren destruir a nuestro H-Coin
+**她做了什么**
 
-所有的中国控制的虚拟币
-Todas las monedas virtuales controladas por China
+大约一个月前，豪根向美国证券交易委员会（SEC）提交了至少八份投诉，指控该公司对投资者和公众隐瞒了有关其缺陷的研究。
 
-包括加拿大的那个币安交易所最大的币安
-Incluyendo el mayor intercambio de Binance en Canadá
+豪根还与《华尔街日报》分享了这些文件，《华尔街日报》发布了一份“多部分调查“的报告，显示脸书意识到其应用程序存在问题，包括误导信息的负面影响以及由Instagram造成的伤害，尤其是对年轻的女孩子的伤害。
 
-最想干掉咱
-Son los que más quieren destruir a nosotros
+脸书发言人莉娜·皮奇（Lena Pietsch）在周日的“60分钟”采访后向《CNN商业》发表的一份声明中表示：“我们的团队每天都必须保护数十亿人公开表达自己的能力，在与保持我们平台安全和积极的必要性之间取得平衡。我们会继续做出重大改进，以应对错误信息和有害内容的传播，认为我们鼓励不良内容而什么都不做是不对的。”
 
-因为币安(也)是共产党控制的嘛
-Porque Binance (también) es controlado por el Partido Comunista
+据《华尔街日报》的一份简介称，豪根于今年4月从脸书辞职，并于5月离开该公司，此前，豪根移交了一些项目，但并未收集形成公开调查基础的文件。
 
-也想干掉咱
-También quiere eliminarnos
+她告诉《华尔街日报》：“如果人们只是因为我的所作所为而更恨脸书，那么我就失败了，我相信真相与和解——我们需要承认现实，第一步是证明文件。”
 
-因为咱要成老大
-Porque nosotros seremos el primero
+**接下来会发生什么**
 
-他们不就成老二了吗
-De esta forma, ellos serán el segundo
+周二（10月5日），豪根将在由民主党参议员理查德·布卢门塔尔（Richard Blumenthal）主持的参议院小组委员会面前作证。
 
-但是呢, 做梦没想到
-Sin embargo, ni soñando pensaron que
+上周，这个小组委员会向脸书全球安全主管安提戈涅·戴维斯（Antigone Davis）询问了其应用程序对年轻用户的影响，戴维斯试图将公司的服务，特别是Instagram，描绘成对青少年的帮助大于伤害。
 
-这个疫苗和冠状病毒给世界带来的恐惧
-El temor que trajo esta vacuna y el covid-19 al mundo
+她说：“这并不意味着那些没有（发现它有帮助）的对我们不重要，事实上，这就是我们进行这项研究的原因。”
 
-给中国人带来的恐惧
-El miedo que le trajo a los chinos
+这些立法者现在将直接听取豪根的意见，并有机会询问她在脸书的经历。
 
-它不仅是在中共国
-No solamente en la República Popular de China
+该公司强烈反对其前雇员的说法，包括周日（10月3日）晚些时候发布了一份700多字的声明，陈述了“60分钟”部分内容的“事实缺失”，并称采访“使用精选的公司材料讲述了一个关于我们为改进产品所做研究的误导性故事”。
 
-它美国人也知道
-Los estadounidenses también saben que
+但她的披露似乎不仅仅会给脸书带来冲击，多年来，该公司一直面临着来自世界各地监管机构和政府的审查，其面临的压力每周都在增加。
 
-美元也会出大问题
-El dólar estadounidense igual habrá grandes problemas
+即使在处理豪根的揭露所带来的持续影响以及周一其主要服务大面积中断数小时的同时，脸书还试图驳回联邦贸易委员会（Federal Trade Commission）指控其为垄断者的反垄断投诉。
 
-日本人也想把钱, 澳大利亚也想把钱找去(处)
-Los japoneses y Australia igualmente quieren buscar un lugar para su dinero
+豪根说，让脸书承担责任的唯一方法是以她所做的方式揭示其内部运作。
 
-你告诉我找谁呀, 比特币吗
-Dime tú, a quién deben buscar, ¿ Bitcoin?
+“我站出来是因为我认识到了一个可怕的事实，除了脸书，几乎没有人知道脸书内部发生了什么。”  她周一（10月4日）在给参议院委员会的信中写道，“只要脸书在黑暗中运作，它就不会向任何人负责，它将继续做出违背公共利益的选择。”
 
-比特币成本那么高
-El costo de Bitcoin es tan alto
+（原文完）
 
-还是比特币那么容易进的去吗
-O es tan fácil entrar al Bitcoin
+该到大技术公司崩盘的时候了，文贵先生早就说过，那些人多行不义必自毙。搞言论审查、煽动民粹、压制真相传播的脸书、推特、谷歌之流，以及那些主流媒体们与邪恶的中共、黑暗势力勾结，以图掌控民意，为非作歹。弗朗西斯·豪根勇敢地站出来揭露黑暗，而参议院举行针对性的听证会，反映了美国从上到下的警惕，“大公司们正在违背公共利益”。
 
-再一个你都知道它一定会倒的
-Y lo otro es que tú mismo sabes que él seguramente caerá
+文贵先生高瞻远瞩，，认定了美国属于“可拯救”之地，在大科技公司、主流媒体目光短浅地不断作死的节奏下，及时地发展了“唯真不破”的媒体平台，为正义、为良知提供了发声渠道。
 
-那你给我什么币
-Entonces qué moneda me darás
+10月5日，豪根的参议院听证会仍在进行中，CNN进行了全程报道，以下节选了部分摘要：【2】
 
-它没想到, 共产党我们不要你共产党的钱
-Él no había pensado, el propio PCCh no queremos su dinero
+参议员布卢门塔尔（Blumenthal）说，脸书造成的损害将“困扰一代人”。
 
-国际上的钱那也老了去了
-El dinero internacional también se está envejeciendo
+豪根：脸书的产品“伤害儿童、煽动分裂并削弱我们的民主”。 需要国会采取行动，没有你的帮助他们无法解决这场危机。
 
-何况你共产党没选择
-Además, el PCCh no tiene opciones
+参议员艾米·克洛布查尔（Amy Klobuchar）补充道，“当他们发现他们的算法助长了两极分化、错误信息和仇恨，他们允许99%的暴力内容在他们的平台上不受检查，包括导致了1月6日暴动，他们会怎么做？正如我们所知，现在，马克·扎克伯格（Mark Zuckerberg）正在船上航行，不会道歉。”
 
-因为共产党明白
-Porque ellos saben
+豪根：脸书应宣布“道德破产”并向国会寻求帮助。
 
-任何有钱的像许家印, 像马云都懂的
-Cualquier rico como Xu Jiayin o Jack Ma entienden
+豪根：我对脸书今天的运作方式有着强烈的对国家安全的担忧。
 
-买郭文贵的币的安不安全, 不是我能决定的
-Es seguro o no comprar la moneda de Guo Wengui, no es algo que puedo decidir
+……
 
-也不是喜马拉雅币决定的, 是100%没有人可以碰的
-Ni tampoco la moneda de Himilaya, es 100% intocable
+参议员们被豪根强有力的证词所吸引。
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+有关链接：
 
-**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24](https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24)
+【1】[https://www.cnn.com/2021/10/04/tech/facebook-whistleblower-frances-haugen-what-we-know/index.html](https://www.cnn.com/2021/10/04/tech/facebook-whistleblower-frances-haugen-what-we-know/index.html)
 
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【2】[https://www.cnn.com/business/live-news/facebook-senate-hearing-10-05-21/index.html](https://www.cnn.com/business/live-news/facebook-senate-hearing-10-05-21/index.html)

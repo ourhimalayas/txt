@@ -2,94 +2,70 @@
 ---
 
 
-## 中共警官逃亡欧洲证实中共犯下“反人类罪”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1575709/)
+## 英国首席医疗官批准儿童疫苗后…
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1575727/)
 
-#### 作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-3.png)[*图片来源*](https://static.dw.com/image/58619767_403.jpg)
-美国[海曼资本](https://www.haymancapital.com/)管理首席投资人[凯尔巴斯](https://twitter.com/Jkylebass/status/1445191513122693122?s=20)先生10月4日发推文转述[CNN 消息](https://www.cnn.com/2021/10/04/china/xinjiang-detective-torture-intl-hnk-dst/index.html)称：流亡中的中国侦探揭示了对维吾尔人的酷刑程度。根据CNN特别报道，[中共国警察针对维吾尔人的生殖器的酷刑史无前例](https://www.dw.com/zh/%E5%AA%92%E4%BD%93%E4%B8%AD%E5%9B%BD%E5%89%8D%E5%85%AC%E5%AE%89%E8%AF%A6%E8%BF%B0%E6%89%93%E5%87%BB%E6%96%B0%E7%96%86%E7%BB%B4%E6%97%8F%E9%85%B7%E5%88%91%E7%BB%86%E8%8A%82/a-59406441)。
-
-CNN记者通过采访一名前中共国逃亡江警官称：警察在新疆往往是午夜后开始对村民突袭。
-
-“在一次抓捕中，数百名手持步枪的警察挨家挨户在中共国西部偏远地区的维吾尔族社区对无任何过失新疆人挨家挨户抓捕，将人们从家中拉出来，给他们戴上手铐和头巾，并威胁说如果他们反抗就开枪。”
-
-江说： “我们在一夜之间强行带走了（他们），”他补充说：“如果这个地区有数百人，那么你必须逮捕这数百人。”
-
-- ***延展阅读：***[***印媒-中国通过操纵人口数据拒绝维吾尔穆斯林种族灭绝指控***](https://sambadenglish.com/china-rejects-uyghur-muslims-genocide-allegations-by-manipulating-population-data/)
+- 编译：西班牙喜悦农场–wenwu
 
 
-这位前侦探出身的告密者要求只透露蒋的身份，以保护他留在中共国的家人。
+**2021 **年** 9 **月** 13 **日，英国的四位首席医疗官** (CMO) **建议英国政府向所有** 12 **岁以上的儿童，提供辉瑞中共病毒（**Covid-19**）疫苗；尽管疫苗接种和免疫联合委员会** (JCVI) **先前曾表示，他们不能支持对儿童进行普遍的疫苗接种。
 
-江警官目前流亡在欧洲，在接受美国CNN三个小时的采访时透露了罕见的细节，他证实了新疆该地区拘留营系统对维吾尔族人进行了系统的酷刑运动，虽然中共当局多年来一直否认这一说法。
+自那以后，男性儿童的死亡率增加了** 400% **只是巧合，还是英格兰首席医疗官克里斯**·**惠蒂手上沾满了鲜血？
 
-“踢他们，打他们（直到他们）瘀伤和肿胀，直到他们跪在地上哭泣求饶。”江警官在回忆他和他同事过去如何审问看守所的被拘留者时说。江说，“年仅14岁的儿童也同样遭到殴打。”
+克里斯·惠蒂 (Chris Whitty) 赞同为所有 12 岁以上的健康儿童接种疫苗的举措，声称这可能“有助于防止教室里的疫情和今年冬天上课的进一步中断”。
 
-江警官透漏了鲜为人知的酷刑：他首先申明，所谓“嫌疑人”被指控犯有“恐怖罪行”，但实际上这些人并没有犯罪，他们是普通人。
+四个 CMO [致政府](https://www.gov.uk/government/publications/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19)的[信件](https://www.gov.uk/government/publications/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19/universal-vaccination-of-children-and-young-people-aged-12-to-15-years-against-covid-19)指出，他们研究了在儿童中普及疫苗接种的更广泛的公共卫生利益和风险，以确定这是否会改变风险与利益的比例。 Chris Whitty 和他的同事们在信中声称，”在这个年龄组最重要的是对教育的影响”。
 
-审讯方法通常有金属或木制的“老虎椅”，即将人铐在上面，旨在固定嫌疑人，在遭到殴打时无法作出本能的避让或反抗；诸如“性暴力”、“电刑”和“水刑。
+但是，如果 Chris Whitty 到现在还不知道 Covid-19 疫苗在预防传播或感染方面是无效的，那么他的无能应该让他辞职。因为即使是美国疾病控制中心 (CDC) 的主任也知道（[如下图](https://www.cdc.gov/media/releases/2021/s0730-mmwr-covid-19.html)）， 中共疫苗并不能防止传播或感染。
 
-“囚犯们”经常被强迫保持清醒好几天，警察有办法不让他们睡觉，并且不给食物和水，维吾尔人遭受着人间地狱般的折磨。 江警官说：“警察会踩在嫌疑人的脸上，逼迫他们认罪。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-17.png)
 
-江警官称，他是在中共国非新疆地区警察局工作，他被派往新疆执行任务“三四次”。因为短期部署会有额外的高薪酬。
+据称，德尔塔变体现在是英国最主要的变体，而且已经持续了数月了，多亏了英国公共卫生部门的数据，我们现在知道了：自2021年2月1日到2021年9月12日，曾经接种过 Covid-19 疫苗的人占所有德尔塔 Covid-19 死亡人数的 71%。
 
-为了核实他的证词是否属实，江向CNN展示了他在中（共）国期间的警察制服、官方文件、照片、视频和身份证明。其中大部分不能公开以保护他的身份。
+部分接种疫苗的人群中有126人死亡，未接种疫苗的人群中有722人死亡，而完全接种疫苗的人群中有1613人死亡（[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1018547/Technical_Briefing_23_21_09_16.pdf)）。
 
-CNN已就他的指控向中共国政府提交了详细询问，但迄今未得到回应，因为中共国拒不承认[在新疆犯下了](https://www.state.gov/briefing-with-acting-assistant-secretary-for-conflict-and-stabilization-operations-robert-faucher-on-release-of-the-2021-congressional-report-pursuant-to-the-elie-wiesel-genocide-and-atrocities-p/)“种族灭绝罪”。[**阅读更多**](https://www.bbc.com/news/world-asia-china-22278037)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-1-3.png)
 
-江警官坦言：第一次被派往新疆时，是渴望去那里旅行的，因为他在警队工作了 10 多年后，也渴望借此升职。
+因此，中共疫苗不仅无法预防感染或传播，而且似乎也无法预防死亡。您只需要比较与** 2020 **年夏季同期的** ****Covid-19 **死亡人数相比即可（[如下图](https://www.google.co.uk/search?q=covid+19+deaths+england)）。
 
-- ***延展阅读：***[***北京冬奥会开幕还有四个月，奥委会回避有关侵犯人权的问题。***](https://www.wyff4.com/article/olympic-committee-dodges-questions-on-human-rights-abuses/37853376)[***拜登转向对中国采取更加和解的态度***](https://www.japantimes.co.jp/opinion/2021/10/05/commentary/world-commentary/biden-china-conciliatory-approach/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-2-1.png)
 
+我们假设 Covid-19 疫苗能够有效地预防死亡（事实并非如此），这仍然不能成为最早在 2023 年之前为儿童提供仍在临床试验中的实验性预防感染的理由，因为没有报道过儿童因为感染 Covid- 19 而死亡的。
 
-- ***延展阅读：***[***中共国在维吾尔族大屠杀不可否认***](https://www.project-syndicate.org/commentary/evidence-of-china-uyghur-genocide-by-irwin-cotler-and-yonah-diamond-2021-06)
+[国家医疗服务系统（NHS）提供的数据](https://www.england.nhs.uk/statistics/statistical-work-areas/covid-19-daily-deaths/weekly-total-archive/)显示，在 2020 年 3 月至 2021 年 8 月 25 日期间，只有 9 名 19 岁以下的人在英国医院死于 Covid-19 ，且没有已知的预先存在的疾病；另外，只有 39 名 19 岁以下的人死在英国医院，是由于有其他极其严重的、虚弱的、预先存在的疾病（[如下图](https://www.england.nhs.uk/statistics/statistical-work-areas/covid-19-daily-deaths/weekly-total-archive/)）。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-3-1.png)
 
-中共国政府声称这些新疆人“威胁到国家的安全”。他的老板委任他担任这个职务，命令他说，“我们必须把他们全部杀光。”
+英国[大约有 1560 万是 19 岁及以下的人](https://www.statista.com/statistics/281174/uk-population-by-age/)。这也就是说，每41万0526名儿童和青少年中就有1人在18个月内感染 Covid-19 而死亡，而他们之前还有其他的严重疾病；而在18个月内，每170万名儿童中仅有1人因感染 Covid-19 而死亡，而这些儿童原本是健康的。
 
-江警官说的这次行动发生在2014年，是习近平访问新疆后发起的“严打”运动。
+如您所见，绝对没有理由给儿童提供实验性 Covid-19 疫苗，而克里斯·惠蒂（Chris Whitty）使用的借口说它可能“有助于预防今年冬天教室疫情爆发和学校教育进一步中断”，这是令人发指的。因为中共疫苗不能预防感染或传播，就连英国政府和牛津大学都在[最近发表的科学研究中](https://theexpose.uk/2021/09/12/three-studies-find-the-covid-19-vaccines-do-not-work/)，承认了这一点。
 
-江向CNN记者展示的一份文件中，有北京2015年发布的官方指示：呼吁中国其他省份加入反恐斗争，[传达习近平总书记在听取反恐报告时重要批示的精神](http://cpc.people.com.cn/n/2014/0505/c64387-24977111.html)。
+综上所述，国家统计局 (ONS) 提供的证据绝对表明，英格兰首席医疗官克里斯·惠蒂手上沾满了鲜血。 2020 年版《英格兰和威尔士每周登记的死亡人数》（可在[此处](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fweeklyprovisionalfiguresondeathsregisteredinenglandandwales%2f2020/publishedweek532020.xlsx)下载，并在[国家统计局](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/weeklyprovisionalfiguresondeathsregisteredinenglandandwales)的网站上访问 ）显示，在截至 2020 年 9 月 25 日的一周内，只有一名 10 至14 岁的单身男孩丧失（[如下图](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fweeklyprovisionalfiguresondeathsregisteredinenglandandwales%2f2020/publishedweek532020.xlsx)）。
 
-根据所谓“援疆”计划，中共国大陆各省共计抽调15万名警察协助他抓捕行动。他说，这种临时职位在经济上获得了两倍于正常工资和其他福利。中共在鼓励警察杀人时采用了“重赏之下必有勇夫”这一明见谚语，以金钱和升官作为诱饵。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-4-1.png)
 
-江警官说，“中共抓人都是有计划、有人数指标、有系统的行动。且每次行动，每个人都需要击中目标。”他补充说，“警察主要负责对被抓的人逼供，性虐待是其中一种常用手段。”
+这表明，截至 2021 年 9 月 24 日那周，10 至 14 岁青少年男性儿童的死亡人数比 2020 年同期该年龄组的死亡人数高 400%，而且死亡人数增加在他们开始接种 Covid-19 疫苗后，立即出现的。 这当然只是开始，我们希望没有孩子因为实验性辉瑞 Covid-19 疫苗而丧生。然而，自从青少年开始接受中共疫苗以来，打电话要求救护车的次数一直比预期的要高……（[如下图](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1021620/NASS_Bulletin_2021_38.pdf)）
 
-还有一些逼供细节被揭露，“要让人认罪，就用上面有两个尖头的电棍，我们会在头上系上两根电线，然后在这个人被绑起来的时候把电线放在他们的生殖器上。”江警官所称这是电刑和性虐待的一种，当然，还有对女犯的轮奸。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-5-1.png)
 
-江警官承认他在审讯期间经常不得不扮演“坏警察”，但他与那些同事不同，他避免了实施致命的暴行。他补充说，有些警察仅仅认为这是一份工作而已，但有些警察本身被刺激成了“精神病患者”。
+心肌炎和心包炎已被正式添加到辉瑞** Covid-19 **疫苗的安全标签中，它们视为可能发生的疫苗副作用，尤其是在年轻男性中**…… **（[如下图](https://www.gov.uk/drug-safety-update/covid-19-vaccines-updates-for-july-2021#further-information-on-reports-of-myocarditis-and-pericarditis)）
 
-该消息称：当时48岁的Ayup，开设了一家幼儿园、教授新疆孩子母语（无任何犯罪），被关在喀什市警察拘留中心。2013年8月19日晚上，三四个狱警指示其他十几名中共国警察轮奸了她，江他们也目睹了整个事件。Ayup被轮奸后昏倒了，醒来时发现被自己的呕吐物和尿液包围。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-6-1.png)
 
-“我看到了苍蝇，就像在我身边飞一样。”
+根据国家统计局的数据，自首次接种**Covid-19 **疫苗以来，**15 **至** 19 **岁的青少年男孩的死亡人数增加了** 63%… **（[下图是**– ONS 2020 + 2021 **数据集](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/weeklyprovisionalfiguresondeathsregisteredinenglandandwales)）
 
-“我发现苍蝇比我厉害，因为没有人可以折磨它们，也没有人可以强奸它们。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-7-1.png)
 
-“我看到那些家伙（正在）嘲笑我，并且（说）他太虚弱了，”
+不难弄清楚的是，未来几周孩子们会发生什么。尤其是对年幼的男孩来说，由于 Covid-19 疫苗导致的儿童死亡似乎已经开始，英国国家统计局的官方数据显示，自从英格兰首席医疗官Chris Whitty推翻 JCVI 的建议，并决定所有12岁以上的儿童都应该注射实验性的中共疫苗之后，男性儿童的死亡人数增加了400%。
 
-她说，“第二天他们继续轮奸我，狱警还问我，你XX开心吗？”
+必须立即停止向儿童推广 Covid-19 疫苗的工作。
 
-另一位新疆受害者证人奥米尔·贝卡利 (Omir Bekali ）目前居住在荷兰的，他说：“警察让我坐在老虎椅上，他们把我们吊起来，用木火把和铁鞭打我们的大腿和臀部。当他们第一次把锁链放在我的腿上时，我立刻明白我要下地狱了。”贝卡利说。“我如果没有信仰，我永远不会活下来。”
+（文章仅代表作者观点** **与**GNEWS**无关）
 
-- ***延展阅读：***[***维吾尔族种族灭绝：对中国违反 1948 年种族灭绝公约的审查-中文报告***](https://newlinesinstitute.org/wp-content/uploads/Simplified-Chinese-Translation.pdf)
-- ***延展阅读：***[***2020年世界人权报告：中国对全球人权的威胁***](https://www.hrw.org/zh-hans/world-report/2020/country-chapters/337324)
+**新闻来源：**《[吹哨人](https://theexpose.uk/2021/10/05/ons-data-shows-400-percent-increase-male-children-deaths-since-they-had-covid-vaccine/)》｜发布时间：**10**月**5**日｜封面图来源：本篇新闻
 
+* * *
 
-根据CNN记者的采访，江警官对自己的犯罪感到忏悔，他说：那些经历集中营制度的人遭遇持久苦难的画面在他的脑海中浮现；他感觉自己快崩溃了。他说：“我现在麻木了，我曾经逮捕过很多人。”江说，我对中国共产党感到“失望”。“他们假装为人民服务，但他们是一群想要实现独裁的人，”他在逃离中国并揭露他在那里的经历时，他只想“站在人民的一边”。
+*发稿：信心的选择*
 
-江知道他再也无法回国了。他说，“我很内疚，我希望这样的情况不要再发生在他们（警察）身上。”江说。“我希望得到他们的原谅，但对于遭受这样折磨的人来说，这太难了。”他认为包括他在内，这15万中共国警察是在集体犯罪。“我们对此负责。”
-
-- ***延展阅读：***[***美国会听证会——中国、种族灭绝和奥运会***](https://humanrightscommission.house.gov/events/hearings/china-genocide-and-olympics)
-- ***延展阅读：***[***CECC主席敦促NBA球员终止中共国强迫劳动产品代言***](https://china.usc.edu/cecc-chairs-urge-nba-players-end-endorsement-deals-chinese-forced-labor)
-
-
-中共国的警察酷吏们，像江警官这样良心忏悔的警察少之又少，对此，[郭文贵先生说](https://www.gettr.com/post/pd7bl3df18)，“国内的公检法你们拍拍良心，你们是不是只敢欺负手无寸铁的老百姓？你们以为就没事了？都有事！在2025年前，所有欺压过人民的，欺负过律师和民主人士的，以办案为名，强奸、虐待女性的、虐待男性的，在监狱实施酷刑的，一个都不会放过，逃不过法律的审判。”
-
-[文贵先生还特别指出](https://www.gettr.com/post/pd4x676140)，尤其是在广东海南市的一些女警官们对被抓的爆料革命战友们枪口抬高一寸表示感谢。“你们虽曾良心泯灭，但你们现在良心发现。”她们放了我们很多战友，这种恩情一个都不会忘记。郭文贵和新中国联邦人对平爆小组以及国内所有对我们战友网开一面、以礼相待的警察都是我们的恩人，将来我们一定要登门感谢。
-
-2021年10月5日
-
-（本文只代表个人观点，与Gnews网站无关）
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
