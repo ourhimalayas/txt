@@ -15,110 +15,110 @@
 
 ---
 
-### [拜登政府将恢复中美贸易谈判并降低部分关税](/content/gnews/1/README.md)
+### [单日52架次创新高！中共军机扰台领空力度不断升级](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“潘多拉文件”：港前特首董建华梁振英涉离岸公司藏匿财富](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [值得关注！mRNA技术研究者落选2021诺贝尔奖](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登政府将恢复中美贸易谈判并降低部分关税](/content/gnews/4/README.md)
  ` HimalayaRussia`
 
-### [欧元区通胀跃升至13年高位，欧洲央行头痛加剧](/content/gnews/2/README.md)
+### [欧元区通胀跃升至13年高位，欧洲央行头痛加剧](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年10 月4 日澳喜要闻（每日更新）](/content/gnews/3/README.md)
+### [2021年10 月4 日澳喜要闻（每日更新）](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [【新闻速递】加拿大RCMP皇家警局工会表示支持选择不打疫苗警官的人权](/content/gnews/4/README.md)
+### [【新闻速递】加拿大RCMP皇家警局工会表示支持选择不打疫苗警官的人权](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [2021/10/04文贵先生盖特精要](/content/gnews/5/README.md)
+### [2021/10/04文贵先生盖特精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【小雨专栏】在路上（032）——大山篇](/content/gnews/6/README.md)
+### [【小雨专栏】在路上（032）——大山篇](/content/gnews/9/README.md)
  ` 温哥华扬帆农场`
 
-### [数千人在巴黎抗议中共国在新疆侵犯人权](/content/gnews/7/README.md)
+### [数千人在巴黎抗议中共国在新疆侵犯人权](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“绥靖”政策对共产主义中国的侵略不起作用](/content/gnews/8/README.md)
+### [“绥靖”政策对共产主义中国的侵略不起作用](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国的第一个有5000个房间的隔离中心将投入使用](/content/gnews/9/README.md)
+### [中共国的第一个有5000个房间的隔离中心将投入使用](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大生活美谈第二十四期](/content/gnews/10/README.md)
+### [加拿大生活美谈第二十四期](/content/gnews/13/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [《蓝枫法律》第二十七期 法律你我他·大麻的犯罪化及合法化](/content/gnews/11/README.md)
+### [《蓝枫法律》第二十七期 法律你我他·大麻的犯罪化及合法化](/content/gnews/14/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [Facebook、Instagram、WhatsApp 因全球故障而瘫痪](/content/gnews/12/README.md)
+### [Facebook、Instagram、WhatsApp 因全球故障而瘫痪](/content/gnews/15/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/13/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/16/README.md)
  ` wenwu`
 
-### [东南亚新闻一周回顾（2021年9月23日-30日）](/content/gnews/14/README.md)
+### [东南亚新闻一周回顾（2021年9月23日-30日）](/content/gnews/17/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [港共国安法下，最大工会组织职工盟被迫宣布解散](/content/gnews/15/README.md)
+### [港共国安法下，最大工会组织职工盟被迫宣布解散](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [岸田文雄当选日本首相，新设经济安保大臣应对中共](/content/gnews/16/README.md)
+### [岸田文雄当选日本首相，新设经济安保大臣应对中共](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [每日快报：有史以来最大的离岸数据泄露](/content/gnews/17/README.md)
+### [每日快报：有史以来最大的离岸数据泄露](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：GTV投资者们在SEC总部抗议其官僚作风](/content/gnews/18/README.md)
+### [秘翻在线：GTV投资者们在SEC总部抗议其官僚作风](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [WhatsApp突发故障关闭](/content/gnews/19/README.md)
+### [WhatsApp突发故障关闭](/content/gnews/22/README.md)
  ` 象声`
 
-### [青蒿素——两次疫苗接种者的福音](/content/gnews/20/README.md)
+### [青蒿素——两次疫苗接种者的福音](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（四）](/content/gnews/21/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（四）](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了](/content/gnews/22/README.md)
+### [看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [郭先生：因为疫苗导致的交通安全问题](/content/gnews/23/README.md)
+### [郭先生：因为疫苗导致的交通安全问题](/content/gnews/26/README.md)
  ` MG 澳喜农场多语组`
 
-### [疾病预防控制中心操控疫苗死亡分类标准，歪曲官方数据](/content/gnews/24/README.md)
+### [疾病预防控制中心操控疫苗死亡分类标准，歪曲官方数据](/content/gnews/27/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共是有计划的停电打垮美国，还是借力打力顺势搞垮美国？](/content/gnews/25/README.md)
+### [中共是有计划的停电打垮美国，还是借力打力顺势搞垮美国？](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [迈克·蓬佩奥发出警告：“绥靖”政策面对共产主义中共国的侵略不会有效](/content/gnews/26/README.md)
+### [迈克·蓬佩奥发出警告：“绥靖”政策面对共产主义中共国的侵略不会有效](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联盟工作汇报文字版2021.10.3](/content/gnews/27/README.md)
+### [联盟工作汇报文字版2021.10.3](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [美研究打完两剂Pfizer/BNT疫苗半年后，体内中和抗体归零](/content/gnews/28/README.md)
+### [美研究打完两剂Pfizer/BNT疫苗半年后，体内中和抗体归零](/content/gnews/31/README.md)
  ` G-NEWS TAIWAN`
 
-### [10/4/21 香港快讯 潘朵拉文件出炉 董建华家族被指涉近30间离岸公司](/content/gnews/29/README.md)
- ` 英喜-粵語組`
-
-### [英国前卫生部长因曾推行疫苗被当街谴责为杀人犯](/content/gnews/30/README.md)
+### [英国前卫生部长因曾推行疫苗被当街谴责为杀人犯](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共军机连续四天密集入侵台湾防空识别区](/content/gnews/31/README.md)
+### [中共军机连续四天密集入侵台湾防空识别区](/content/gnews/33/README.md)
  ` HimalayaRussia`
 
-### [郭文贵直播摘要和音频2021.10.3.](/content/gnews/32/README.md)
+### [郭文贵直播摘要和音频2021.10.3.](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共超限战灭港行动（七十六）七二一·恐袭事件之围堵中联办](/content/gnews/33/README.md)
- ` 英喜-粵語組`
-
-### [中美审计僵局难以打破，中概股退市进入倒计时](/content/gnews/34/README.md)
+### [中美审计僵局难以打破，中概股退市进入倒计时](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
-
-### [俄最大金矿开采公司警告俄黄金储备可能枯竭](/content/gnews/35/README.md)
- ` HimalayaRussia`
 
 ### [郭文贵先生爆料中共外交部和政法委的腐败黑暗关系](/content/gnews/36/README.md)
  ` GTV新闻访谈`
