@@ -2,53 +2,37 @@
 ---
 
 
-## 10/4/2021国际财经快讯：美主要通胀指标再创30年新高；美国国债收益率大幅下降
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1572784/)
+## 看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573256/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片2-5.png)[图片来源](https://winknews.com)
-**1****.** **美****主要通胀指标再创****30****年新高**
+据[**观察者网**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月4日 23:01](https://weibo.com/1887344341/KBdP5zvxU?ref=home&amp;rid=6_0_8_6667924340392403151_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-[美国商务部周五报告说，由于供应链中断和异常高的需求助长了持续的价格压力，8月份的通货膨胀率达到了30年的新高。核心个人消费支出价格指数（不包括食品和能源成本，是美联储衡量通货膨胀的首选指标）当月增长0.3%，比一年前增长3.6%。月度涨幅略高于道琼斯估计的0.2%和年度预测的3.5%。](https://www.cnbc.com/2021/10/01/key-inflation-gauge-watched-by-the-federal-reserve-hits-another-30-year-high.html)
+【[#女孩看完长津湖回家尝冻土豆#](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%9C%8B%E5%AE%8C%E9%95%BF%E6%B4%A5%E6%B9%96%E5%9B%9E%E5%AE%B6%E5%B0%9D%E5%86%BB%E5%9C%9F%E8%B1%86%23&amp;from=default) ：觉得很心酸，根本咬不动 】近日，云南昆明，电影《长津湖》热映感动众多网友，迟女士看完电影后找来土豆煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别想哭，现在美好的生活都是战士们奋斗来的。（新华网）[L西部决策的微博视频](http://t.cn/A6MxDqMt)
 
-[这是自1991年5月以来的最高值，反映了美联储主席杰罗姆-鲍威尔本周早些时候说他认为 “令人沮丧 “的通胀压力。在标题的基础上，PCE价格本月上涨0.4%，同比上涨4.3%，是1991年1月以来的最高值。这反映了能源价格上涨24.9%，食品上涨2.8%。货物价格上升了5.5%，而服务价格上升了3.6%。通胀率上升的同时，当月个人收入增长了0.2%，与预期一致，但表明实际收入随着通胀率的上升而下降。支出加速了0.8%，略高于0.7%的预测。周五上午的一份单独报告显示，制造业继续扩张。](https://www.cnbc.com/2021/10/01/key-inflation-gauge-watched-by-the-federal-reserve-hits-another-30-year-high.html)
+我们不得不承认中共官媒树立起的这位云南昆明迟女士是脑子里进大粪的最好榜样，如果观众们与这位迟女士一样感同深受，那么吃冻土豆是不够的，还应该穿着单衣到冰雪地里去卧上一卧，以此体验一把当年中共炮灰们的感觉。
 
-**2****.**** ****迈入1****0****月份美国国债收益率大幅下降**
+可是我们不想体验的啃冻土豆和我们不想体验的冰窖体验却并不以我们意志为转移地走下银幕进入我们的生活——在不定期、无预警停电之下的东北，在停电时哪怕能吃上冻的熟土豆不也是一份幸运么？在停电的阴冷天气之下，难道每个人不都在冰窖中么？
 
-[周五早盘，在公布关键的通货膨胀数据之前。美国国债收益率下跌。在下午的交易中，基准10年期国债收益率下跌6个基点，至1.467%。30年期国债收益率下滑超过5个基点，至2.035%。收益率与价格成反比，1个基点等于0.01%。本周早些时候，在投资者对持续的通货膨胀和紧缩货币政策的担忧下，10年期利率最高达到1.56%，是6月以来的最高点。此后几天，该收益率大多在该水平以下反弹，但许多华尔街专业人士预计收益率将在未来几个月内上升。经济分析局周五表示，8月份个人收入增长0.2%，符合预期。核心个人消费支出价格指数同比增长3.6%。接受道琼斯调查的经济学家预期为3.5%。](https://www.cnbc.com/2021/10/01/us-bonds-treasury-yields-fall-ahead-of-key-inflation-data.html)
+在想到这些的时候，恍然明白中共媒体树立那个脑子进水的云南昆明迟女士为榜样的用意了，原来电影上的生活正在向我们走来，接下来能吃上冻土豆的、能在冰窖中活下来的就已经是很美好的生活了，并且这很美好的生活就是当年那些啃着冻土豆的炮灰们与那些吃着火鸡和各种美味食品的美国大兵斗争的结果！
 
-[与此同时，国会似乎在周四防止了政府关门。参议院和众议院都通过了一项短期拨款法案，该法案将使政府运行到12月3日，并将其送交总统乔-拜登签署。国会仍在努力延长债务上限和拜登的基础设施计划。](https://www.cnbc.com/2021/10/01/us-bonds-treasury-yields-fall-ahead-of-key-inflation-data.html)
+撰稿：喜马拉雅的肉夹馍
 
-**3. ****美联储副主席在鲍威尔发表疫情声明前夕交易股票**
+审核：喜马拉雅的馍夹肉
 
-[据彭博新闻社周五报道，美国联邦储备委员会副主席理查德-克拉里达在主席杰罗姆-鲍威尔发表声明表示由于疫情的恶化而可能采取政策行动的前一天，从一只债券基金中交易了100万至500万美元进入股票基金。报道称，克拉里达的交易在其2020年的财务披露中有所描述，显示在2020年2月27日将资金从Pimco债券基金中转移出来，并在同一天以相近的美元买入Pimco StocksPlus基金和iShares MSCI USA Min Vol Factor交易所交易基金。](https://www.oann.com/fed-vice-chair-traded-into-stocks-on-eve-of-powell-pandemic-statement-bloomberg/)
+校对：Maarago
 
-[第二天，即2020年2月28日，鲍威尔发表声明说，新冠病毒 “对经济活动构成不断变化的风险”。他补充说，美联储正在 “密切关注事态发展及其对经济前景的影响”。一位美联储发言人告诉路透社， “副主席克拉里达2020年的财务披露显示，交易代表着对他的账户进行了预先计划的再平衡，类似于他在2019年4月所做并报告的再平衡，”。在彭博社报道的同时，另外两名美联储官员因去年的投资交易而受到审查，并于周一宣布退休。](https://www.oann.com/fed-vice-chair-traded-into-stocks-on-eve-of-powell-pandemic-statement-bloomberg/)
+（文章内容仅代表作者个人观点）
 
-**4****.****中美审计之争后中国公司退市进入倒计时**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[美国证券监管机构已经开始倒计时，这将迫使许多中国公司离开美国证券交易所，此前华盛顿和北京在获取公司审计记录方面陷入长期僵局。这一行动将加速世界上两个最大经济体的脱钩，并影响到拥有200多家在美国上市的中国公司证券的投资者，这些公司的总市值约为2万亿美元。2020年底，时任总统唐纳德-川普签署了一项法律，禁止在审计工作文件连续三年不能被美国监管机构检查的外国公司进行证券交易。在通过《追究外国公司责任法》之前，美国和中国的监管机构为解决对如何进行这种审计检查的截然不同的期望，进行了近十年的失败尝试。证券交易委员会正在制定如何实施该法的细节，并正在最终确定其相关规则。其主席Gary Gensler表示，时间从今年开始计时。](https://www.wsj.com/articles/countdown-starts-on-chinese-company-delistings-after-long-u-s-china-audit-fight-11633172403?mod=business_lead_pos4)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**5****.** **尽管金融市场升温，谷歌仍喊停其****Plex****项目的工作**
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-[《华尔街日报》报道，即使在面向日常投资者的在线金融服务市场升温之后，谷歌已经决定对一个在其支付应用中添加移动银行的项目喊停， 但会继续寻找整合金融服务的不同方式。Plex项目允许支付应用软件作为银行或信用社的接口， 进而允许用户访问他们的储蓄和支票账户。谷歌公司的一位发言人在回答法新社的询问时说：”我们正在更新我们的方法，主要侧重于为银行和其他金融服务提供商提供数字支持，而不是我们充当这些服务的提供者。我们坚信，这是谷歌帮助消费者更好地获得金融服务的最佳方式。”](https://www.wionews.com/world/google-ends-work-on-its-plex-project-even-after-financial-markets-heat-up-417518)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-[去年，谷歌表示，它正在与包括花旗集团在内的近十家信用社和银行合作，以纳入其Plex项目，用于安卓智能手机上的支付移动应用程序。这个应用程序允许用户为交易付款，向朋友汇款，并存储忠诚卡。还会有许多其他的好处。](https://www.wionews.com/world/google-ends-work-on-its-plex-project-even-after-financial-markets-heat-up-417518)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**6****．****8900****万美元的加密货币被误发给了一个去中心化金融平台的用户**
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[本周去中心化金融平台Compound的一次更新出现了一个故障，导致价值约8900万美元的一种名为COMP的加密货币被意外地发给了用户，首席执行官要求用户自愿归还这些资金。”如果你从Compound协议错误中收到大量不正确的COMP。请将其返还给Compound Timelock，”Robert Leshner在推特上说。他还威胁说要向国内税务局报告所有没有这样做的人，后来还为 “愚蠢的推特 “道歉。Compound和Leshner没有立即回应评论请求。](https://www.businessinsider.com/compound-ceo-asks-users-return-89-million-crypto-after-glitch-2021-10)
-
-[Compound允许用户借出他们的加密货币资产并赚取利息，该平台由计算机代码协议管理，这些协议由社区投票决定，并经过七天的管理过程。该平台不是由公司托管或运行的，而是跨越用户的分布式网络。Leshner在推特上说，因此，公司没有管理控制或其他工具来停止或扭转数字代币的分配。而金融政策分析师和加密货币评论家称，这样的事件破坏了投资者对分散式金融项目的信心。](https://www.businessinsider.com/compound-ceo-asks-users-return-89-million-crypto-after-glitch-2021-10)
-
-**7.** **英格兰东南部的燃料短缺问题依然存在，但其他地区有所改善**
-
-[伦敦，10月2日（路透社）–汽油零售商协会（PRA）周六表示，尽管英格兰北部和苏格兰的情况有所改善，但伦敦和英格兰东南部的加油站继续遭受燃料短缺。英国将从周一开始部署军事油罐车司机来运送燃料，此前一周的混乱短缺导致了恐慌性购买，一些司机将汽油囤积在水瓶中。](https://www.reuters.com/business/energy/fuel-shortages-remain-south-east-england-improvements-elsewhere-2021-10-02/)
-
-[PRA主席 Brian Madderson告诉天空新闻，他的组织的调查显示，周六检查的1000多个站点中只有16%没有燃料，比周五报告的27%干涸的情况有所改善，但地方瓶颈仍然存在。北部和苏格兰的情况要好得多，而伦敦和东南部确实仍然是进入下周的关键地区。调查还显示，68%的站点现在有汽油和柴油可供购买。随着卡车司机的严重短缺，政府在周五表示，200名军事油轮人员将在周末完成培训，并在周一开始交付。](https://www.reuters.com/business/energy/fuel-shortages-remain-south-east-england-improvements-elsewhere-2021-10-02/)
-
-**8.** **澳联总会主席称****联邦政府应对澳的铁矿石出口征收****10%****的关税**
-
-[澳大利亚联合总会主席克莱夫-帕尔默说，联邦政府应该对澳大利亚出口到中国的铁矿石征收10%的关税，并利用这笔钱来支撑习近平政府所针对的濒临破产的行业。他告诉澳大利亚天空新闻， “中国需要尝尝自己的药，他们（中国）认为人们要么支持他们，要么反对他们。澳大利亚握有所有的牌，但在铁矿石方面从未使用过。我说对铁矿石出口征收10%的关税，这些钱将用于葡萄酒生产商和其他受到影响的人。帕尔默先生声称他的新党有6万名成员，由特立独行的议员、前自由党议员克雷格-凯利领导–与自由党和工党的成员人数不相上下。并且他刚刚在皮尔巴拉提供了额外的10亿吨矿石，他的中国承租人中信公司正在接受这一选择。目前已经提交给外国投资审查委员会，预计很快就会通过。”](https://www.skynews.com.au/australia-news/politics/clive-palmer-federal-govt-should-put-10-per-cent-tariff-on-australias-iron-ore-exports/news-story/c04515ab1b27d3f425df6531ee984591)
-
-By【秘密翻译组-金融组】
-作者：Opal
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

@@ -2,44 +2,62 @@
 ---
 
 
-## 显微镜下的摩德纳疫苗发现有会移动并自我组装的物质
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574114/)
+## 美国SEC的腐败与官僚引发不满，GTV投资人到DC总部进行抗议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574168/)
 
-So first of all, in July that a local lab in Georgia said they wanted me to examine contents of a vial that they had just received.
-首先，在7月，乔治亚州的一个当地实验室说他们希望我检查他们刚刚收到的一瓶疫苗的成分。
-And this particular vial was Moderna.
-这瓶疫苗是莫德纳。
-And so I was there to witness them getting that and putting some of the contents on a glass slide.
-所以我在那里见证了他们拿到那瓶疫苗，并把一些成分放在玻璃片上。
-First it looked translucent. And then as time went on over 2 hours. Colours appeared which I’ve never seen anything like this. There was a chemical reaction happening. It was a brilliant like blue and royal purple and yellow and sometimes green.
-开始，它看起来是半透明的。然后随着时间的推移，超过了2个小时。颜色出现了，我从来没有见过这样的东西。发生了一种化学反应。它是一种灿烂的蓝色、皇家紫色和黄色，有时是绿色。
-These fibres were appearing more more. Some of the vials had a little
-越来越多纤维出现了。一些疫苗瓶上有一个小的
-cube structure on that I’m not sure what that was. Also metallic fragments were in there.
-立方体的东西，我不确定那是什么。还有金属碎片在里面。
-They were not metallic fragment I’m used to seeing, more exotic, they are very opaque.
-它们不是我平时看到的金属碎片，更有异国情调，它们是非常不透明的。
-As the edge of the cover slide, so the coverslip, you put a glass partition on that piece on top of the glass slide. There are edges. And so all the particulars
-由于玻璃盖片的边缘滑动，玻璃盖片滑落，你在那块玻璃片上面放了一个玻璃隔板。有边缘。于是所有的颗粒物
-all these colours started to move to the edge
-所有这些有颜色的（颗粒物）都开始向边缘移动，
-And there was self-assembling going on. Things are growing.
-而且它们有自我组装的情况发生。这些物质在变大。
-And then there was one particular, I say object, or organism, I’m not sure what to call it, that
-然后有一个特别的东西，我说是物体，或者有机生物，我不确定该怎么称呼它，
-had tentacles coming from it. And it was able to lift
-有触角从它身上伸出来。它能够把自己撑起来
-itself up, off the cover
-移到玻璃盖片外
-I’m sorry, off the glass slide. It was alive? The thing was alive? It appeared to. Yeah it appeared to have the self-aware or would be able to grow
-对不起，是离开玻璃片。 它是活的？那东西是活的？它看起来是的。是的，它似乎有自我意识，或者能够生长
-or move in space. Some appear to be self-aware, like it knows we were watching it.
-或在空中移动。有些似乎有自我意识，好像它知道我们在看它。
-And so you know just recently the lab, I was able to get more vials, same manufacturer but you know different batch, of course. Looking at it the same way into the compound microscope
-你知道最近在实验室，我得到更多瓶疫苗，同样的制造商，当然是不同的批次。在复式显微镜下以同样的方式观察它
-and another one of those tentacle like structures appeared. This was now completely under the cover slip.
-又出现了一个有类似触角的结构的东西。这次它已经完全在玻璃盖片下面了。
-So there was no moving because it wasn’t on the edge
-所以没有移动，因为它不在边缘上。
-But I just couldn’t believe I saw another one
-但我难以相信我又看到了一个
+栏目记者：文随
+责任编辑：葛朗台太太
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-9.png)
+
+
+
+
+
+美国SEC在9月13日与GTV和Saraca公司达成和解协议以后，曾一度宣传自己保护投资人，为投资人追回了5亿多美元的投资。然而，在和解协议已经达成将近一个月的时间里，美国SEC仍然没有按照和解协议展开任何行动，他们给投资人的唯一回复是：我们还没有开始创建基金！
+
+美国SEC的腐败和官僚，引发投资人的强烈不满。今天，10月4日，GTV的投资人来到美国SEC总部，进行现场抗议！
+
+此番抗议，GTV投资人对SEC有五大诉求：
+
+第一， 立刻归还属于投资者的资金
+
+第二，立刻停止和中国共产党的勾兑
+
+第三，立刻停止针对华裔投资者的种族歧视
+
+第四， 赔偿投资者的一切损失
+
+第五，要求负责人进行对话
+
+虽然GTV的很多投资人来自世界各地，他们许多人无法到达现场表达不满，但是此次抗议活动，在社交媒体上得到了世界各地的投资人的积极响应和赞誉。
+
+我们会为大家持续跟踪报道GTV投资人的抗议活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-13.jpg)
+参考链接：
+[GTV投资者对SEC的五大诉求：](https://gettr.com/post/pd4oyb539e)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： 鬼五
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

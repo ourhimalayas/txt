@@ -2,62 +2,20 @@
 ---
 
 
-## 美国SEC的腐败与官僚引发不满，GTV投资人到DC总部进行抗议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574168/)
+## 新日本首相岸田文雄和拜登承诺一起保护钓鱼岛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574218/)
 
-栏目记者：文随
-责任编辑：葛朗台太太
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-21.jpg)图片来源：网络截图
+10月5日据日经网报道，日本新首相岸田文雄周二表示，他收到了乔·拜登总统的“强烈”信息，称美国致力于保护有争议的被称为钓鱼岛的东海小岛。
 
+岸田文雄在总理官邸告诉记者，周二上午持续了大约20分钟的电话会谈中，盟国还确认了他们为实现自由开放的印太合作。他说，总统特别对美国捍卫日本的承诺发表了强烈评论，包括《美日安全条约》第5条，指的是美国对日本的国防义务，这些义务涵盖这个无人居住的岛屿。
 
+64岁的前外交部长岸田文雄公布了由前首相安倍晋三和前财政部长麻生太郎的盟友主导的内阁阵容。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-9.png)
+安倍的兄弟国务部长Kishi Nobuo Kishi和外交部长Toshimitsu Motegi都保住了自己的职位，这反映了岸田文雄打算继续推动安倍加强与华盛顿的安全关系，同时保持与中国的贸易关系。
 
+新总理还将深化与美国、澳大利亚、印度和日本（被称为四方）的接触，北京认为这是遏制其崛起的努力。
 
-
-
-
-美国SEC在9月13日与GTV和Saraca公司达成和解协议以后，曾一度宣传自己保护投资人，为投资人追回了5亿多美元的投资。然而，在和解协议已经达成将近一个月的时间里，美国SEC仍然没有按照和解协议展开任何行动，他们给投资人的唯一回复是：我们还没有开始创建基金！
-
-美国SEC的腐败和官僚，引发投资人的强烈不满。今天，10月4日，GTV的投资人来到美国SEC总部，进行现场抗议！
-
-此番抗议，GTV投资人对SEC有五大诉求：
-
-第一， 立刻归还属于投资者的资金
-
-第二，立刻停止和中国共产党的勾兑
-
-第三，立刻停止针对华裔投资者的种族歧视
-
-第四， 赔偿投资者的一切损失
-
-第五，要求负责人进行对话
-
-虽然GTV的很多投资人来自世界各地，他们许多人无法到达现场表达不满，但是此次抗议活动，在社交媒体上得到了世界各地的投资人的积极响应和赞誉。
-
-我们会为大家持续跟踪报道GTV投资人的抗议活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/4-13.jpg)
-参考链接：
-[GTV投资者对SEC的五大诉求：](https://gettr.com/post/pd4oyb539e)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
-
-终审： 鬼五
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
+原文链接：[Japan PM Kishida and Biden commit to defending Senkaku Islands](https://asia.nikkei.com/Politics/International-relations/Japan-PM-Kishida-and-Biden-commit-to-defending-Senkaku-Islands)

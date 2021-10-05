@@ -2,51 +2,51 @@
 ---
 
 
-## 台湾表示正在“准备战争”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1573804/)
+## 罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573830/)
 
-作者：纽约香草山美食部 – 蓝天大海
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+栏目记者/责任编辑：文一
 
 
 
-10月4日，据零对冲报道，台湾外交部长吴钊燮在当天晚间接受了澳大利亚广播公司ABC中国节目的采访。当中，吴钊燮警告说，台湾正在准备与中（共）国开战，他希望能够得到更多来自印太邻国的帮助。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
 
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/chinesejets.jpg?itok=8qTyL3kn)图片来源：Getty Images
 
-“如果中共国要对台湾发动战争，我们将战斗到底，这是我们的承诺。”吴钊燮说。同时，他也呼吁，在台湾面临日益严重的危机和可能与中共摊牌的这一紧张时期，澳大利亚领导人可以加大对台湾的支持。
 
-此前，中共在其国庆期间——10月1日派遣了38架战机飞往台湾，2日则有39架，4日更是派遣了创纪录的52架解放军喷气式战斗机冲入台湾西南航空识别区。台湾国防部也于同一天表示，台湾空军周一再次紧急警告进入其防空识别区的52架中共国战机。事实上，这是台北迄今为止报告的中共军机入台数量最多的一次，也是中共国连续第四天派遣战机入侵台湾航空识别区。
 
-针对此事，美国国防部周一也做出了相关回应称，中共国在台湾附近不断增加的军事活动正在破坏台湾地区的稳定，也增加了外界对该地区局势误判的风险。
 
-事实上，中共对台湾的军事骚扰不断升级，这进一步向台湾及世界表明了其妄图军事统一台湾的野心。中共的威胁无处不在，台湾及世界只有认清其邪恶本质，做好准备，才能御敌于国门之外。
+据意大利媒体报道，罗马尼亚亿万富翁丹·佩特雷斯库 （Dan Petrescu）周日在米兰附近的一次飞机失事中死亡。
+
+佩特雷斯库驾驶飞机在起飞几分钟后坠毁，撞向一个建筑工地。包括佩特雷斯库的妻子和儿子在内的八人在坠机中死亡。罗马尼亚外交部已证实其中7人均拥有双重国籍。68岁的佩特雷斯库个人净资产超过10亿欧元（12亿美元），同时拥有罗马尼亚和德国国籍。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-20.jpg)
+最近飞机事故频发，美国陆军医生和航空航天医学专家特蕾莎·朗刚向五角大楼呼吁，要求所有接种新冠疫苗的飞行员都必须停飞。 因未任何人都不能排除因心脏病发作，而突然发生飞行事故的可能性。疫苗灾难导致的空难事件恐将接连发生。
+
+文贵先生对此也发盖文表示，没人愿意看到这种灾难时刻的发生，但是我们也要面对现实。
+
+参考链接：
+[Romanian Billionaire Petrescu Dies in Plane Crash Near Milan](https://www.bloomberg.com/news/articles/2021-10-04/romanian-billionaire-petrescu-dies-in-plane-crash-near-milan)
+
+[郭先生盖特： 10月4号：没有人愿意看到这种灾难的时刻发生，但是我们也要面对现实！【7哥 您说的疫苗灾难的空难事件已经发生了 10月3日米蘭一架私人飛機撞入空辦公室，造成8人死亡】](https://gettr.com/post/pd3kuk5864)
 
 （本文仅代表作者观点）
 
-原文链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
 
-[Taiwan Informs Australia It’s ‘Preparing For War’ As China Sends Record 52 PLA Jets Toward Island](https://www.zerohedge.com/geopolitical/taiwan-informs-australia-its-preparing-war-china-sends-record-52-pla-jets-toward)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-***编辑/校对/******发****稿：Irene木木*
+终审： Ryan
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)
