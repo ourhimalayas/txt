@@ -2,19 +2,37 @@
 ---
 
 
-## 抗冠状（中共）病毒药丸
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1574557/)
+## 美国大型社交媒体网站宕机，盖特正常运行
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1574642/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10051-1.jpg)
-默克制药公司的抗病毒药丸是一种可以在家中对非重症患者给药的药品，去年 3 月，热那亚综合诊所是该公司选择的 7 个意大利中心之一来测试该药物。
+**撰稿：日本东京方舟农场 海星**
 
-卫生部预防司司长 Gianni Rezza 证实了有关[Molnupiravir](https://www.today.it/salute/molnupiravir-covid.html)的数据是有希望的：与安慰剂相比，轻度或中度 冠状（中共）患者的住院或死亡风险降低了约50%。第一个谈论 Molnupiravir 潜力的是圣马蒂诺传染病诊所主任[马泰奥·](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)巴塞蒂 ( [Matteo Bassetti)](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)，他在接受采访中谈到了最近的事态发展以及抗冠状（中共）药丸在未来可能发生的事情。
+10月5日，美国大型社交媒体网站Facebook、Messenger、Instagram、即时通讯软件WhatsApp等出现大规模宕机。
 
-他称，该药物在欧洲可以在年底前上市，这是一种核苷类似物，是一种我们已经用于治疗 HIV 和肝炎的抗病毒药物。这种药物将自身插入病毒的 RNA 链中，防止其复制和生长，或导致其错误复制。基本上它是一种病毒复制抑制剂，它也可能在未来与其他药物联合使用从而出现另一种有效治疗冠状（中共）病毒的药物，从而我们可以彻底击败它。
+据报道，监测网络状况的网站DownDetector显示，大量用户报告称Twitter、T-Mobile 、AT&T、亚马逊云服务和谷歌服务均出现问题。除此之外，Facebook、Messenger、Instagram和WhatsApp等Facebook旗下应用均出现故障。
 
-免责申明：本文只代表译者观点，与Gnews无关
+尤其是扎克伯格的Facebook全网宕机，连内网都废了。据了解，Facebook网页上的错误消息表明存在域名系统 (DNS) 错误，并有Facebook员工披露，由于无法使用门禁卡，一度不能进入办公大楼评估网络故障。
 
-原文链接：[https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html](https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9a5b2e9a705b0aa0610da0f067a9e79f_500x0.jpg)图片来自于网络
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+目前，Facebook等社交媒体已逐步恢复运行，但此次时长近7小时的宕机，成为脸书最严重的一次网络访问事故，影响到全球数十个国家和地区用户。而在此期间，社交媒体盖特一直正常运行，成为全球各地用户的唯一发声渠道。
+
+对此，盖特总裁杰森·米勒在盖特上表示，盖特不仅在思想上提倡言论自由，在技术上也非常卓越，优于各类大型社交媒体。因此，它成为了有史以来增长最快的社交媒体平台，并仍在不断发展壮大。
+
+他强调，“是时候对大型社交媒体的删除行为说再见了！”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Facebook谷歌亚马逊等网站出现大面积宕机](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9705326.shtml)
+
+[JUST IN – Facebook employees reportedly can’t enter buildings to evaluate the Internet outage because their door access badges weren’t working (NYT)](https://gettr.com/post/pd575oe897)
+
+[Facebook史上最严重宕机 全网宕机近七小时高管赴推特道歉](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9719527.shtml)
+
+[While Big Tech imploded, GETTROfficial was still going strong!](https://gettr.com/post/pd6masf06a)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

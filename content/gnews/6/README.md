@@ -2,21 +2,31 @@
 ---
 
 
-## 岸田文雄新内阁以低支持率启航
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574773/)
+## 警告中共挑衅，英美日等6国海军联合演习!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574844/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21.png)（图片源自本文链接）
-每日新闻10月5日消息：
+栏目记者/责任编辑：在远方
 
-《每日新闻》和日本社会研究中心在岸田文雄新内阁成立后，于10月4日和5日进行了一次全国性的紧急民意调查。其支持率降至49%，远低于去年9月菅义伟上任时64%，不赞成率为40%。只有21%的受访者说他们对内阁成员有 “很高的期待”，而51%的人说他们 “不抱希望”。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-出于对新政府的期望，新总理的支持率往往会在新政府开始执政后立即高涨。尽管岸田首任内阁的支持率较菅义伟内阁的最后一次民意调查（9月18日）的37%有所上升，但与以往内阁开始执政时相比，这似乎是一个低迷的开始。尽管每次调查方法不同，不能只是以数字进行单纯的比较，但这确实是过去20年中的第二低，仅次于2008年9月麻生太郎内阁开始执政时的45%。
 
-[信息源](https://news.yahoo.co.jp/articles/7f8bbbd6fa2da32eef167a127c8aec9a3d2dbfa6)
 
-（文章仅代表作者个人观点，与GNEWS无关）
+在中共大批战机10日1号、2号连续两天侵扰台湾之后，包括美英在内的6国联合于2日和3日两天，在冲绳西南方的菲律宾海举行演习，以警告和回应中共在台海的武力挑衅。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1005-AM4-视频备用.001.jpeg)
+参加此次演习的6国包括美国、英国、加拿大、新西兰、荷兰和日本，各国共出动了3艘航空母舰和17艘其他舰艇。美国国务院发言人普赖斯3日发布声明，指责中共对台湾施加的军事压力，有导致误判引发战争的危险，和破坏地区的和平与稳定。日本海上自卫队发言人则明确表示，本次演习的目的就是要加强合作，以保障太平洋地区的自由开放和安全。表明各国正在用行动敦促和警告中共，停止对台湾的外交、军事施压和威胁。
+(本文仅代表作者观点)
 
-*校对：东京樱花团 / 知了知了*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考链接：[北京大机群侵扰台湾后，美英3艘航母举行联合军演](https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

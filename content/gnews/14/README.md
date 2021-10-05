@@ -2,152 +2,48 @@
 ---
 
 
-## 这次停电是中国电力腐败的大暴露
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574708/)
+## 班农专访 4：中共军机携带核弹头飞临台湾示威
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574785/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2388.png)
-[https://gtv.org/video/id=615bc9e1d2e2b81748715b5a](https://gtv.org/video/id=615bc9e1d2e2b81748715b5a)
+[![](https://spark.adobe.com/page/OupdL82D3RdKp/images/8F6768FE-B65F-415C-8470-A5A82142339E.png?asset_id=AC7A8BD3-2B73-4EBF-9DB6-86BD123EBDDA&amp;size=1024)](https://spark.adobe.com/page/OupdL82D3RdKp/images/8F6768FE-B65F-415C-8470-A5A82142339E.png?asset_id=AC7A8BD3-2B73-4EBF-9DB6-86BD123EBDDA&amp;size=1024)
+#### 简评：
 
-所有人跟上面的报告说
-Todas las personas les han informado a los líderes
+解放军战机携带核弹头飞临台湾上空，这等同于向台湾宣战。中共如果觉得有必要，就一定会发动战争，并且会动用核武器。中共从来不拿人当人看，他们可以在武汉市中心的实验室研究冠状病毒，还在中共国强制推行计划生育几十年，杀死数亿婴儿。
 
-北京今年的用电
-Diciendo el uso de electricidad de este año en Beijing
+中共国内的经济面临崩溃，当食物短缺、物价飞涨、社会矛盾越发激烈时，中共国就会把矛盾引向南海和台湾，发动一场战争來团结民众、转嫁危机，软弱的拜登政府会加剧发生热战的可能。
 
-任何情况下都能满足
-De que en cualquier situación se puede satisfacer
+不能让台湾经历香港的磨难，美国不采取行动是愚蠢的。美国需要行动。台湾很危险。
 
-但是突然间就在20天前
-Pero de repente hace 20 días atrás
+GTV视频链接：[英喜每周采访班农先生0929-Q4：热战将在南海和台湾上演](https://gtv.org/video/id=615867a5d2e2b8174870493e)
 
-查出来说
-Investigaron y dijeron
 
-北京的线路是三路电
-Que todas las líneas de transmisión son de tres vías
 
-北边一路电线 西边一路电 东边一路电
-En el Norte una vía de cable eléctrico, al Oeste una vía y al Este otra vía
+#### 视频字幕：
 
-三路供电给北京
-Las tres vías le suministran a Beijing
+**主持人：**我來自台湾。上周解放军派遣数十架战机和军舰到台湾周围。据郭先生说，这是（解放军）轰炸机第一次携带核弹头来威胁台湾。事实上这等同于宣布战争。班农先生，您认为一场热战是否会爆发？中共会部署核武器吗？
 
-北京是很安全的
-Beijing es seguro
+**班农先生：**如果有必要的话，他们一定会部署核武器。他们不把人当人看。从CCP病毒和武汉实验室中就能明显看到，你看他们在武汉市中心做的实验。他们还强制堕胎，他们不把人当人，更不把自己国家人当人。所以你问他们会吗？有必要的话他们会的。这根本不是问题。“他们会吗？”有下面几个原因。
 
-说三路电 两路电
-Dicen las tres vías, y de las dos
+我认为中共政权现在它就像无路可退的动物，中共国的经济崩溃是显然的，这次中国人不会接受。人们说：不，不，看看陆金所和恒大。他们可以偿还一点利息，但我的公寓呢？房产呢？我的钱呢？人们说要问，你把我钱拿到哪里去了？你们拿走了我的血汗钱。这个政权压力越来越大，尤其是冬季越来越冷还缺电。会出现交通灯停电的状况，各种不便利非人道发生在中共国人身上。
 
-也就是北京的
-Es decir, son de Beijing
+当缺乏食物，人们回过头来说，嘿，我们所做的一切就是为了赚那点奴隶的工资，我们这么努力养家糊口，照顾孩子，孩子仍然是工厂的奴隶。当这些矛盾足够强时，他们会试图转移注意力。当然，他们会将其引向南海和台湾。他们会用统一，我们要把国外的恶魔赶出去，诸如此类的借口。
 
-那叫什么发电厂了
-Cómo es que se llama esa planta de electricidad
+我说了十年，除非西方抓住中共的咽喉，告诉他们中国人才是真正的主人，你们不能继续奴役中国人民。（中共）背着中国人民将国家带向一个非常危险的方向，并继续窃取他们的财富。我们即将进入一场热战。
 
-从那个西北过来的
-Ese que viene desde el noroeste
+而这场热战将在南中国海和台湾上演。软弱的拜登政府加剧了这场战争的可能。为什么呢？像北京这样的敌对势力，他们国内有问题，需要一场战争来团结民众，你们为什么没有行动？
 
-说要线路维修
-Dicen que van a hacer reparación en la línea de transmisión
+安东尼·布林肯、杰克·沙利文和卡马拉·哈里斯和那三个小丑将军在全国电视直播上被羞辱，因为他们的谎言、失实陈述和懦弱，乔·拜登当数之最(是罪魁祸首)。阿拉斯加布林肯被训斥后，你们为什么没有行动？当中共说他们和塔利班是合伙人来羞辱美国副国务卿时，你们为什么没有行动？当美国屈辱而愚蠢地从阿富汗撤军，一个大国是那样对待你的对手吗？你要打击的黑帮，朝鲜、巴基斯坦、伊朗和波斯的穆拉，阿富汗的超级恐怖国家、土耳其和俄罗斯。为什么没有行动？
 
-可能要长达2个月
-A lo mejor se lleve una duración de 2 meses
+不仅仅是这些，美国允许自己先进的芯片设计带动他们的整个经济。现在台湾的芯片供应减少。你们为什么没有行动？这是公然助长敌人的威风。不采取行动是非常愚蠢的。再加上中共对台湾所做的所有渗透。中共不能像对待香港那样对待台湾，所以他们憎恨郭先生、新中国联邦、G-new和G-TV，是因为他们能够说明当中国人不受中共控制下会蓬勃发展。
 
-东南路天津过来的要长达2个月
-Desde la carretera del sudeste de Tianjin durará 2 meses
+这是他们能够拥有的。这也是台湾所展现出来的。是的，我非常担心台湾。我担心的是西方因其软弱而招致的一场热战。加之中共需要把人们的视线从中共国崩溃的制度和即将发生的奴隶反抗中移开。
 
-说白了就是掩盖
-En pocas palabras es ocultar
+***编辑：【英国伦敦喜庄园编辑部】***
 
-当初所有造的假
-Toda la falsedad que inventaron en aquel momento
+*字幕：雨中漫步 | 听写/翻译：致良知 | PR：Roberts | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
 
-北京都要停电
-Ya en Beijing van a cortar la luz
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-这回停电 第２个核心的大问题
-Y hay 2 grandes problemas principales por este corte de luz
-
-是一场中国的电老虎
-Es una partida de tirano al poder de China
-
-电力腐败的一场大露馅
-Una gran demostración de corrupción de la electricidad
-
-政治大较量
-Es una gran batalla política
-
-我不相信李鹏家族这回能撑得过去
-Yo no creo en que la familia de Li Peng pueda pasarla esta vez
-
-所有跟他有关系的
-Todo lo que tenga en relación con él
-
-李鹏家族下边还有谁
-A quién más tienen abajo de la familia de Li Peng
-
-大家去数一数去
-Vayan a sacar la cuenta
-
-李鹏家控制发改委控制能源部门 那简直厉害了
-La familia de Li Peng tiene control del departamento de desarrollo y reforma de la energía, es muy talentoso
-
-中国没抓过能源部门没抓过发改委
-China no ha podido arrestar a ningún miembro del departamento de energía
-
-就说明中国从来没想过抓腐败
-Esto demuestra que en China nunca han pensado en arrestar a los corruptos
-
-你看王歧山上来抓反腐败
-Mira los corruptos que ha arrestado Wang Qishan
-
-他抓发改委了吗 他不敢抓 是吧
-¿Acaso él ha arrestado a alguno del departamento del desarrollo y reforma? No se atreve cierto
-
-他抓中纪委了吗
-¿Ha arrestado a los de la Comisión Central de Inspección Disciplinaria?
-
-他不敢抓
-No se atreve a hacerlo
-
-中纪委都抓了些主任科室的
-En la Comisión Central de Inspección Disciplinaria solo arrestó a los directores
-
-大人物一个不敢动
-Pero de los personajes importantes ni uno se atreve tocar
-
-所以这次停电是共产党的政治大较量的
-Por eso que el corte de luz de esta vez es una gran batalla de la política del comunismo
-
-一场没碰过的板块
-Es un módulo que no se ha tocado
-
-能源板块 发改委
-El módulo de la energía y los miembros de la Comisión de Desarrollo y Reforma
-
-都会动
-Los moverá
-
-发改委上面一定牵扯到中纪委
-Arriba de la Comisión de Desarrollo y Reforma seguro involucrará a la Comisión Central de Inspección Disciplinaria
-
-因为大案要案很多
-Porque hay muchos casos importantes
-
-————————————————
-日期：10/02/2021
-原视频标题：这次停电是中国电力腐败的大暴露
-El corte de luz de esta vez en China es una gran revelación de corrupción
-原视频日期：10/01/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24](https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24)
-任务编号：KC144（2388）
-视频时间段：0:00-1:45
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[![](https://spark.adobe.com/page/OupdL82D3RdKp/images/80BD374A-0011-4F1E-85BE-236ACD0F5C38.jpg?asset_id=B9344DCA-3498-42EE-97EA-58568150FDB3&amp;size=1024)](https://spark.adobe.com/page/OupdL82D3RdKp/images/80BD374A-0011-4F1E-85BE-236ACD0F5C38.jpg?asset_id=B9344DCA-3498-42EE-97EA-58568150FDB3&amp;size=1024)

@@ -2,40 +2,162 @@
 ---
 
 
-## 拜登担心他的总统宝座
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1574613/)
+## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
 
-翻译 /整理  ：意大利罗马达芬奇农场： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
+[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/35c525738e5cd26f968769616f747421.jpg)
+共产党要打台湾
+El Partido Comunista atacará a Taiwán
 
+怎么打你芯片厂
+Cómo atacará a tu fábrica de circuito integrado
 
-图片来源：美联社
+我问他两遍, 他傻眼了
+Le pregunté dos veces y se quedó estupefacto
 
-德国新闻网站NTV， 发出了一个这样的文章说， 拜登担心他的总统宝座。 一向保守的德国媒体例数了拜登的成败得失， 拜登在几个方面的实施措施都让他陷入了危机， 包括竞选口号， “击败COVID-19“, 让他赢得了选举也让他一败涂地。 还有基础设施纠纷， 难民危机， 阿富汗撤军，等问题上的原则错误， 让他担心自己的宝座不稳。 以下是这篇报道的大意翻译：
+我们有这样的安排, 那样的安排
+Nosotros tenemos planeado esto y lo otro
 
-美国总统拜登以一个承诺赢得了选举：在他的领导下，交战的共和党和民主党应该再次合作。起初看起来合作前景良好， 他也可以起到积极作用， 随后一切都变得复杂。现在拜登几乎是背水而战。
+我说你懂个屁, 你还以为
+Y le dije, que sabes un pedo, tú crees
 
-这一年对乔拜登来说开局很好。美国总统设法通过国会获得了大量的新冠病毒援助计划。这帮助了小企业主和家庭，并为他担任总统提供了一个良好的开端。但这个巨大的援助计划并没有是拜登成为伟大的总统。 在竞选期间，拜登曾承诺他将“更好地重建国家”，并称该计划为“重建得更好”。他想与共和党人一起努力。两党都看到了许多基础设施上的很多问题。所以有可能达成协议，但在细节和大局上产生了巨大的分歧。 几个月来，华盛顿一直在就一大一小两个立法方案进行谈判，涉及道路、桥梁和光缆的高达 4.5 万亿美元的资金，以及新的社会公共服务的改善， 在一个星期内， 可能就能得出结果。
+你能搞芯片
+Que si puedes fabricar microchip
 
-对拜登来说，这无异于是他总统任期的成功。在一年后的中期选举要在国会举行，其中参议院和众议院的代表都将被重新选举， 为了在竞选活动中生存，民主党必须要做出某些成功的展示， 除了病毒援助计划外，民主党还没有可以表功的资本。 相反，总统最近受到了抨击——一个又一个火源已经出现了。
+你都能搞一切了
+Podrás hacer todo
 
-拜登需要成功, 最初是拜登未能如期控制病毒大流行。他无法解决delta变种和大量拒绝接种疫苗的人群的问题，这对拜登是沉重的打击。 他的竞选口号：“我击败了 Covid-19”一开始就落空了。美军从阿富汗撤军对拜登来说是耻辱，他的支持率直线下降。然后，当成千上万的海地人在一座桥下扎营时，在南部边境上演了一场难民剧。与此同时，非法移民的数量再次上升，也让拜登政府一败涂地。
+你懂政治? 共产党打你厂子
+¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
 
-基础设施纠纷解决了吗？拜登用陷阱招揽成功
+第一件事情就把你所有的芯片, 周围的所有人
+La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
 
-如果总统及其政党在中期选举中在国会两院之一失去多数席位，那么剩下的总统职位几乎可以被遗忘。由于法律总是需要众议院和参议院的批准，共和党人可以阻止它。拜登将陷入瘫痪，可能要到 2024 年的下一届总统大选才能取得多大成就。唯一的救生艇就是这个基础设施包。但这正是现在被困在国会，奇怪的是，问题不在于共和党的合作，而在于民主党的批准。
+你会突然发现你旁边的秘书
+De repente te darás cuenta que la secretaria que está a tu lado
 
-共和党人已经在参议院批准了该计划——最终它包括了 1 万亿美元用于道路、桥梁、机场以及水管和互联网供应等经典基础设施。当这次投票在双方的支持下进行时，这是一个里程碑。这是多年来双方第一次就共同利益的重大投资计划达成一致——这与军事无关。表面上来看， 拜登做了自称为交易撮合者的特朗普没有做到的事情。
+就是共产党, 立马给你下掉(防卫装备)
+Es del Partido Comunista, de una vez te deja sin equipos de defensa
 
-但是民主党人之间的争端爆发，混乱真的开始了。因为共和党人与民主党人进行了如此艰难的谈判，以至于民主党的很多愿望不能实现。民主党想要的更多，他们在他们的法律草案中写入了数千亿新的社会福利和气候保护措施，民主党没有得到。 左翼参议员伯尼·桑德斯 (Bernie Sanders) 要求应该有另一个一揽子计划——价值 3.5 万亿美元的计划。评论家只是将其称为“愿望清单”。左翼民主党人士认为，这可能是为面临贫困风险的家庭真正能有帮助的计划， 投资可再生能源和振兴在许多地方陷入困境的国家的唯一机会。
+你连一个芯片都拿不走
+No te podrás llevar ni un chip
 
-民主党希望以自己的多数票通过国会推动这项 3.5 万亿美元的一揽子计划。可以用称为和解的特殊程序，只需要在参议院获得多数票即可。可以也没有达成。 因为任何一位参议员都可以阻止整个方案。
+你连一个玻璃都砸不碎
+Si no podrás romper ni un vidrio
 
-所以现在有两个议案处于危险之中：首先，较小的一揽子方案已经通过了参议院，只需要在众议院获得批准。然后是 3.5 万亿美元的“愿望清单”，尚未投票。众议院女发言人南希佩洛西本周宣布对小方案进行投票。仅限周一。而对于3.5万亿的大计划， 因为争议太大，本周四进行投票的日期还不能最终确定。
+还转移你什么技术, 你通通搁在这儿
+Cómo transferirás tu tecnología, todo lo debes dejar aquí
 
-[https://www.n-tv.de/politik/Biden-bangt-um-seine-Praesidentschaft-article22839407.html](https://www.n-tv.de/politik/Biden-bangt-um-seine-Praesidentschaft-article22839407.html)
+而且马上把你这些人, 立马把你押送到大陆去
+Además, enviarán directamente a todos ustedes a China
 
-免责声明：本文观点只代表作者， 与Gnews平台无关。
+都不会让你去福建
+No te dejará ir a Fujian
 
-*编辑/ 校对/ 发布： Shuizhuyu*
+都是把你押到新疆
+Sino te llevará a Xinjiang
+
+跟那些劳改犯押到一起去
+Para que estés con aquellos prisioneros reformados por el trabajo
+
+去了
+Arrestarte
+
+跟那些男的女的关一起去
+Encerrarte con esos hombres y mujeres
+
+先把你精神上肉体上折磨垮你
+Primero te torturarán física y mentalmente
+
+然后你老老实实的给你个电脑, 去把所有的技术给我放出来
+Luego te darán una computadora para que descargues todas las tecnologías
+
+他一听说, 不会吧
+Una vez que él escuchó todo esto, dijo, no creo
+
+我说你不用见我
+Le dije, no necesitas verme
+
+还想着战争了
+Todavía estás pensando que para la guerra
+
+我们有72小时转移技术, 转移硬体
+Tendremos 72 horas para transferir la tecnología y el hardware
+
+我说你天真, 你找死呢
+Le respondí, que inocente eres, estás buscando la muerte
+
+我说你
+Le dije, tú
+
+你只要自己不把脑袋切下来砸烂它
+Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
+
+他就把你脑子里所有东西都给你拿走
+Él podrá quitar todas las cosas de tu cabeza
+
+他一句话听傻了
+Él al escuchar esto se quedó asombrado
+
+我说你以为美国人72小时, 我说共产党开始那一刻起
+Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
+
+72小时
+Dentro de 72 horas
+
+美国人100%不会接触到你
+Los estadounidenses 100% no podrán tocarte
+
+他一定会在前24小时
+Él seguramente en menos de 24 horas
+
+把你这些脑袋全带走
+Llevará toda tu cabeza
+
+而且甚至会切你几个手指头, 告诉我还有什么该拿的
+Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
+
+中国大陆当兵的
+Los soldados de China
+
+对付别人, 对付日本人
+Al tratar con los demás o los japoneses
+
+我不觉得有这么狠
+Yo siento que no serán muy crueles
+
+对付美国人也没这个胆, 对付台湾人
+Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
+
+可能就像印尼人对付华人一样那么狠
+Quizás sean tan despiadados como los indonesios tratan a los asiáticos
+
+这共产党训练的兵
+Los soldados que son entrenados por el Partido Comunista
+
+对付外国人不敢, 对付同胞
+No se atreven con los extranjeros, pero con los compatriotas
+
+那是比谁都狠
+Son aún más crueles que cualquier otra persona
+
+—————————————————
+
+日期：10/02/2021
+原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
+原视频日期：09/30/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
+任务编号：KC143（2387）
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

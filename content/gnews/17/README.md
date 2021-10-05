@@ -2,36 +2,95 @@
 ---
 
 
-## 从美国之音对疫苗的宣传看主流媒体对民众行为的诱导
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1574662/)
+## 认清好虚拟币和未来的趋势
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574772/)
 
-**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2406.png)
+[https://gtv.org/video/id=615bca7cd2e2b81748715b96](https://gtv.org/video/id=615bca7cd2e2b81748715b96)
 
-**作者：晨兮**
-**编辑：MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10.5-1.jpg)图片来源:BBC
-**【编者按：**当前的VOA只是拜登政府的喉舌而已，特定的舆情输出只为拜登政府的利益索求而服务，从而忘却了传播美国的精神和价值。包括主流媒体对疫苗保持一致缄默的本质原因，是共产党输出的威权主义不断侵蚀美国及全世界的结果。那些还在通往末日道路上蒙头狂奔的政客和黑暗阵营，终将因病态自私和狂妄付出惨痛的代价。**】**
+**郭文贵
+Miles Guo**
 
-在全世界的政府强推疫苗和与正义力量揭露疫苗真相之间的较量之时，从美国之音发布这的一篇报道来看，当前的美国拜登政府还是继续为推广疫苗在做宣传。从表面上看，美国之音只是介绍因新冠病毒死亡的人数，却故意不提在这些死者里面究竟有多少人是注射过疫苗的，不去审慎对待疫苗所包含的风险，而只是借这样的的不负责任的模糊表述去掩盖病毒和疫苗灾难的真相。对于一般美国民众来说，疫苗对人生命的威胁相对于新冠病毒是更为致命的生化武器。
+只要是20%和黄金挂钩，而且确有保障，再加上稳定币
+As long as 20% is linked to gold, and it’s guaranteed plus stable coins
 
-包括VOA这样的所谓主流媒体，从未提过那些事实上能有效预防和治疗新冠病毒的药物，如硫酸羟氯喹、伊维菌素、地塞米松、阿奇霉素和青蒿素等。却刻意把病毒感染率和疫苗接种率挂钩主流媒体恶意控制信息输出，意在对民众进行认知误导。不告诉民众全部的真实情况，让民众的预期行动顺应个人或小团体政治利益的把控。文中的报道显示了作为拜登政府的无知和伪善。
+那就更是好上加好，因为我随时可以拿走嘛
+That’s even better because I can cash out at any time
 
-比如文中提到“另一方面，美国加州率先宣布，一旦美国食品药物管理局正式批准年幼儿童可以接种疫苗，所有学童都必须要种疫苗；目前，辉瑞公司的疫苗已经完全获得16岁及以上人群使用，12-15岁的儿童获得紧急使用授权； 一旦辉瑞的疫苗完全获得批准可供学童使用，加州将要求7至12年级的所有学生都必须接种 ；在辉瑞疫苗获得批准可供5岁及以上儿童使用后，加州将要幼儿园至6年级的所有学童都必须接种疫苗。”
+我稳定币就是存钱，我随时能拿走
+My stable coins is like my savings, I can cash out at any time
 
-又比如提到“在华盛顿，美国最高法院大法官卡瓦诺新冠病毒检测呈阳性。卡瓦诺已经接种过疫苗。最高法院说，这位54岁的大法官没有任何症状；最高法院大法官索托玛约拒绝纽约市一批老师试图要求最高法院阻止纽约市要求该市所有学校教职工必须接种疫苗命令的紧急呼吁；最高法院的这一裁决意味着，必须接种疫苗的命令将继续执行。根据纽约市的命令，学校教职工必须在星期五下午5点前至少要接种第一针疫苗”。
+稳定币支付系统，加黄金挂钩的任何币都可以买
+you can buy any cryptocurrency with stable currency payment system linked to gold
 
-这些报道的本质无非就是对美国家长的威逼和善诱。突出政府的和最高法院不容质疑和颠覆的权威。这样的威逼的本质是在于美国人民为敌。
+千万不要存美元，你存美元，任何钱
+Never save US dollars, you save US dollars or any currency
 
-可见，虽然当前全世界对病毒和疫苗的真相略有了解，并且已经引起部分积极的变化，一些国家因推广疫苗而发生政治动荡。但是主流媒体还在掩耳盗铃。
+战友们你要辛辛苦苦有个30万20万美元
+Comrades in arms, you work so hard to save 300,000 or 200,000 US dollars
 
-战斗还远远没有结束，爆料革命的战友们传播疫苗真相不要松懈，直到最终停止强制注射疫苗，直到追究强打疫苗者的责任以及铲除黑暗势力。爆料革命为之奋斗的目标也是人类唯一生路。
+你在家里搁着，或者加拿大元，或者什么英镑，欧元
+You put them aside, or Canadian dollar, or British pound, or Euro
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+我告诉你，你今年年底到明年你就知道你有多惨，
+I tell you, you will know how miserable you are from the end of this year to next year
 
-*发布：*文武全才
+全世界我现在跟你说
+I’m telling the world now
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+昨天你看到英国了吗？看到战友发信息了吗？看到美国了吗？
+Did you see Britain yesterday? Did you see your comrades in arms send messages? Have you seen America?
+
+我告诉你，当这个疫苗的脑梗、心梗、肛梗、眼梗全面爆发以后
+Let me tell you, when this vaccine has a full outbreak of cerebral infarction, myocardial infarction, anal infarction, and ocular infarction
+
+小7，小福利记住，你们最贵的是什么 – 双修
+Xiao seven and xiao Fuli remember that what is precious for you？it’s sex
+
+我不跟你们开半点玩笑，你能有双修的力气，那可就真是行了
+I’m not joking with you, if you can have the strength for sex, that’s really good
+
+你还能安全的双修，最重要的事情我告诉你
+You can still have sex safely, I will tell you the most important thing
+
+只要你没打疫苗的人，你就等于神，你就是最高赢家
+as long as you are not vaccinated, you are equal to God, and you are the biggest winner
+
+没打疫苗绝对最高（赢家），你看到处死人
+Unvaccinated people will be the biggest winners, you look at died people all over the place
+
+未来烧人的东西，和烧尸体的东西，掩埋尸体的东西
+In the future, things that burn people, things that burn corpses, things that bury corpses
+
+处理尸体的东西和装尸袋都是最贵的
+things that disposal of corpses and cadaver bags are the most expensive
+
+火葬场是最赚钱的，最可怕的就是银行不值钱
+The crematorium is the most profitable business, the most terrifying thing is that the bank is worthless
+
+货币，钱不值钱，然后剩下最值钱除了火葬场烧人这些买卖最好
+Currency, money is worthless, then there is the most valuable thing except for burning people in crematorium, which is the best business
+
+然后就是虚拟货币了，没有任何人再相信国家
+Then there is virtual currency, no one believes in the government anymore
+
+全都找虚拟货币
+All will look for virtual currency
+
+———————————————————————
+Date:10/03/2021
+原视频标题:认清好虚拟币和未来的趋势
+Recognize the virtual currency and future trends
+原视频日期：2021/09/29
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24](https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24)
+任务编号：KC146（2406）
+视频时间段 : 0:00-1:35
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

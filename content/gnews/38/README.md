@@ -2,27 +2,19 @@
 ---
 
 
-## 疫苗灾情｜爱尔兰 28 岁医科女学生接种疫苗后瘫痪
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1574393/)
+## 抗冠状（中共）病毒药丸
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1574557/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 5/10/2021**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10051-1.jpg)
+默克制药公司的抗病毒药丸是一种可以在家中对非重症患者给药的药品，去年 3 月，热那亚综合诊所是该公司选择的 7 个意大利中心之一来测试该药物。
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+卫生部预防司司长 Gianni Rezza 证实了有关[Molnupiravir](https://www.today.it/salute/molnupiravir-covid.html)的数据是有希望的：与安慰剂相比，轻度或中度 冠状（中共）患者的住院或死亡风险降低了约50%。第一个谈论 Molnupiravir 潜力的是圣马蒂诺传染病诊所主任[马泰奥·](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)巴塞蒂 ( [Matteo Bassetti)](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)，他在接受采访中谈到了最近的事态发展以及抗冠状（中共）药丸在未来可能发生的事情。
 
-【爱尔兰】沃特福德一名 28 岁的医科女学生 Arooj Imtiaz Lughmani 在接种辉瑞 COVID-19 疫苗后立即住院。
+他称，该药物在欧洲可以在年底前上市，这是一种核苷类似物，是一种我们已经用于治疗 HIV 和肝炎的抗病毒药物。这种药物将自身插入病毒的 RNA 链中，防止其复制和生长，或导致其错误复制。基本上它是一种病毒复制抑制剂，它也可能在未来与其他药物联合使用从而出现另一种有效治疗冠状（中共）病毒的药物，从而我们可以彻底击败它。
 
-Arooj 于 9 月 10 日接种第一剂疫苗，10分钟后，身体就出现了一系列症状，包括呼吸困难、心律加快、无意识癫痫、失语症以及瘫痪，自接种当日被紧急送院治疗至今，她仍在等待明确的诊断。
+免责申明：本文只代表译者观点，与Gnews无关
 
-Arooj 在 Instagram 上发表长文分享了她整个故事，她警示道，“看看辉瑞疫苗对我做了什么，看看政府和医院对我做了什么。”
+原文链接：[https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html](https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/螢幕截圖-2021-10-05-下午2.48.13.png)
-
-在最近的一则贴文中，她更新了近况，她说“我仍然不知道到底发生了什么，我也不知道我还能不能走路，能不能呼吸到新鲜空气，我只能期盼奇迹发生。”
-
-一段 Arooj 接种疫苗前后的生活视频：
-
-来源｜ [个案011](https://www.instagram.com/alughmani/)
-
-* * *
-
-他们的故事：[//英国 29 岁创意总监接种疫苗后瘫痪//](https://gnews.org/zh-hant/1568385/)｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](http://%E8%87%B4%E8%82%BA%E6%A0%93%E5%A1%9E%20https://gnews.org/zh-hant/1570229/)//｜//[美国 16岁少女接种疫苗后神经损伤](https://gnews.org/zh-hant/1572288/)//
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
