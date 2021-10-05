@@ -2,50 +2,164 @@
 ---
 
 
-## 五角大楼让文职雇员在11月初之前全面接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1575563/)
+## 未来的财富会大量流入喜币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575652/)
 
-- **编译：Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ai6ay-xnho6.jpg)
+[https://gtv.org/video/id=615c9323d2e2b8174871948b](https://gtv.org/video/id=615c9323d2e2b8174871948b)
 
+**郭文贵
+Miles**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip251.png)
-2021年9月28日，在华盛顿国会山的迪尔森参议院办公大楼，国防部长劳埃德-奥斯汀在参议院军事委员会关于结束在阿富汗的军事行动和未来反恐行动计划的听证会上发言。(Patrick Semansky/POOL/AFP via Getty Images)
+钱流向的唯一的洼地
+El dinero circula hacia la única depresión
 
+洼地这词儿, 国内开会的政法委战友
+Esta palabra depresión, los compañeros luchadores que estuvieron en la reunión del Comité Político y Legal en China
 
-美国国防部（DOD）表示，所有美国文职雇员需要在11月22日之前完全接种中共病毒COVID-19疫苗，只给他们几周时间来打针。雇员接种完莫德纳或辉瑞公司疫苗的第二剂，或强生公司疫苗的单剂后的两周内被视为完全接种。
+你们都知道我说的啥
+Saben de lo que estoy hablando
 
-国防部的一份备忘录说，对于选择接种两剂莫德纳疫苗的员工来说，他们必须在10月11日前接种第一针。预定接种两针辉瑞公司疫苗的人必须在10月18日前接种第一针。
+所以说政法委秘密开会议
+Por eso la reunión secreta realizada por el Comité Político y Legal
 
-莫德纳和辉瑞疫苗的第二剂量截止日期是11月8日。根据该备忘录，接种强生公司疫苗（只有一剂）的员工也必须在11月8日之前接受注射。
+关于防止
+Acerca de la prevención de
 
-国防部说：”为了保卫国家和保护美国人民，我们需要一支健康和准备就绪的部队。”为了实现这一目标，国防部长通过在8月份签署的备忘录，指示对服役人员进行2019年冠状病毒疾病（COVID-19）的强制疫苗接种。备忘录继续说，乔·拜登总统在9月9日签署了一项行政命令，要求联邦雇员和承包商进行疫苗接种。
+喜玛拉雅币和喜币, 成为中国海外流通财富的洼地
+Las monedas de Himalaya y H-Coin se han convertido en la depresión de la riqueza que circula en los chinos que están en el extranjero
 
-COVID-19是由CCP（中国共产党）病毒引起的疾病。
+紧急会议, 都开了七八回了
+La reunión de emergencia se ha realizado siete u ocho veces
 
-白宫人事管理办公室在周末发布了一项类似的指令，称联邦工作人员必须在11月8日之前接种两剂莫德纳或辉瑞疫苗或强生公司的疫苗。
+一次预估比一次预估还厉害
+La estimación es cada vez más estupendo
 
-该机构说：”拒绝接受疫苗接种或提供疫苗接种证明的雇员将受到纪律处分，包括被免职或终止联邦服务。唯一的例外是根据既定机构程序获得法律规定的例外的个人。”
+头几次预估都靠谱
+Las primeras veces de dicha estimación son confiables
 
-上个月，几名联邦雇员对拜登提起诉讼，认为他的疫苗强制令不公平地影响了属于基督教信仰的员工。原告的律师还表示，拜登的强制令没有考虑到先前感染COVID-19中共病毒所提供的”自然免疫力”，并指出一些研究发现它对德尔塔变种有保护力。
+说喜马拉雅在一两年内可能会形成几千亿上万亿的规模
+Dicen que Himalaya en uno a dos años puede formarse en una escala de cientos de miles de millones a billones
 
-诉讼中说，其中一名原告确认为美国外交部官员，据他所属的信仰，”也指示他，接种疫苗原则上不是道德上的义务，因此必须是自愿的”。他的律师认为，”有一种普遍的道德责任，即拒绝使用利用直接堕胎所得的人类细胞系生产的医疗产品，包括某些疫苗”。
+百分之三四十的钱流向喜币
+El 30-40% de dinero circulará hacia H-Coin
 
-**评论：**
+稳定币和喜币
+La moneda estable y el H-Coin
 
-**每天看到各国政府强制推进疫苗接种的新闻，慢慢理解了七哥说的天堂在人间，地狱也在人间。**
+到年底, 特别在六七个月稳定运行以后
+Hasta finales del año, especialmente luego de seis a siete meses de funcionamiento estable
 
-**这些推行接种疫苗的人就像吃了人尸丸的行尸走肉，不断将人类往地狱里推，而新中国联邦人是被天堂的智慧之光照耀的一群人，是将人类从地狱口拯救出来的正义力量.**
+会大量的钱流入进去
+Habrá una gran cantidad de dinero que entrará
 
-**在这场正邪较量的过程中会有跌宕起伏，但最终胜利一定属于我们新中国联邦。**
+那么后来就是夸张了
+Después lo que vienen diciendo ya es exagerado
 
-（文章仅代表作者观点，与GNEWS无关）
+所有的这钱那钱都要过去
+Todo el dinero pasará
 
-**新闻来源：[大紀元時報](https://www.theepochtimes.com/mkt_morningbrief/pentagon-gives-civilian-employees-until-early-november-to-get-fully-vaccinated_4031431.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-10-05&amp;mktids=6b5f60ed4f77f63f07bf743a69dcd1f0&amp;est=sKOkM9jc2UCy7%2FI0UTmUXtaGHuYLrLT0Cd3iSP85OVrXCpYEcTpDT5XG4SfF7mPRFpLFQch9oQ%3D%3D)(The Epoch Times) | 作者：JACK PHILLIPS 发布时间：2021年10月4日 **
+就想啥了
+De qué piensa
 
-* * *
+想把它喜币干掉
+Está pensando eliminar al H-Coin
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+就这些火币的头
+Sólo las cabezas de estos Huobi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)
+想把咱喜币干掉
+Quieren destruir a nuestro H-Coin
+
+所有的中国控制的虚拟币
+Todas las monedas virtuales controladas por China
+
+包括加拿大的那个币安交易所最大的币安
+Incluyendo el mayor intercambio de Binance en Canadá
+
+最想干掉咱
+Son los que más quieren destruir a nosotros
+
+因为币安(也)是共产党控制的嘛
+Porque Binance (también) es controlado por el Partido Comunista
+
+也想干掉咱
+También quiere eliminarnos
+
+因为咱要成老大
+Porque nosotros seremos el primero
+
+他们不就成老二了吗
+De esta forma, ellos serán el segundo
+
+但是呢, 做梦没想到
+Sin embargo, ni soñando pensaron que
+
+这个疫苗和冠状病毒给世界带来的恐惧
+El temor que trajo esta vacuna y el covid-19 al mundo
+
+给中国人带来的恐惧
+El miedo que le trajo a los chinos
+
+它不仅是在中共国
+No solamente en la República Popular de China
+
+它美国人也知道
+Los estadounidenses también saben que
+
+美元也会出大问题
+El dólar estadounidense igual habrá grandes problemas
+
+日本人也想把钱, 澳大利亚也想把钱找去(处)
+Los japoneses y Australia igualmente quieren buscar un lugar para su dinero
+
+你告诉我找谁呀, 比特币吗
+Dime tú, a quién deben buscar, ¿ Bitcoin?
+
+比特币成本那么高
+El costo de Bitcoin es tan alto
+
+还是比特币那么容易进的去吗
+O es tan fácil entrar al Bitcoin
+
+再一个你都知道它一定会倒的
+Y lo otro es que tú mismo sabes que él seguramente caerá
+
+那你给我什么币
+Entonces qué moneda me darás
+
+它没想到, 共产党我们不要你共产党的钱
+Él no había pensado, el propio PCCh no queremos su dinero
+
+国际上的钱那也老了去了
+El dinero internacional también se está envejeciendo
+
+何况你共产党没选择
+Además, el PCCh no tiene opciones
+
+因为共产党明白
+Porque ellos saben
+
+任何有钱的像许家印, 像马云都懂的
+Cualquier rico como Xu Jiayin o Jack Ma entienden
+
+买郭文贵的币的安不安全, 不是我能决定的
+Es seguro o no comprar la moneda de Guo Wengui, no es algo que puedo decidir
+
+也不是喜马拉雅币决定的, 是100%没有人可以碰的
+Ni tampoco la moneda de Himilaya, es 100% intocable
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频网址：**[https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24](https://twitter.com/se1y7cblljselva/status/1443888127026733056?s=24)
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

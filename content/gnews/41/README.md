@@ -2,9 +2,9 @@
 ---
 
 
-## 纽约市民游行反对澳洲推行疫苗强制政策
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574922/)
+## 郭文贵曝光傅振华造假案陷害并逮捕他的家人和员工
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574926/)
 
-10/4/2021 纽约市民举行游行，高呼“拯救澳大利亚”，反对澳洲推行的疫苗强制政策。
+7/3/2017 郭文贵先生曝光了傅振华如何造假案陷害他，并逮捕他的家人和员工。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

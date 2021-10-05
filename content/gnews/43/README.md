@@ -2,46 +2,162 @@
 ---
 
 
-## 联邦机构称其雇员需在下月完成拜登的疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1574679/)
+## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
 
-- 编译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
+[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/JOE-BIDEN-2-e1631502366609-1200x633-1.jpg)2021年9月9日，美国总统乔-拜登在白宫国宴厅发表关于防治COVID-19大流行病的讲话。(Kevin Dietsch/Getty Images)
-在联邦人事管理办公室（OPM）主任基兰·阿胡贾(Kiran Ahuja)于10月1日发布的一份备忘录中，OPM建议联邦工作人员不要等到最后一刻才接种疫苗，因为”其他事件往往干扰了即使是精心安排的计划”。
+共产党要打台湾
+El Partido Comunista atacará a Taiwán
 
-阿胡贾说：”拒绝接种疫苗或提供疫苗接种证明的雇员将受到纪律处分，甚至包括被免职或终止联邦服务。唯一的例外是根据既定机构程序获得法律规定例外的个人。”
+怎么打你芯片厂
+Cómo atacará a tu fábrica de circuito integrado
 
-他写道，拜登的行政命令的指导意见指出，联邦雇员需要在11月8日之前完全接种这三种疫苗中的任何一种。
+我问他两遍, 他傻眼了
+Le pregunté dos veces y se quedó estupefacto
 
-根据该备忘录，对于辉瑞公司的接受者，联邦工作人员应该”在第一次接种后3周（21天）进行第二次接种”，这”意味着为了让联邦雇员满足11月22日的最后期限，他们应该不迟于10月18日接种第一次疫苗，不迟于11月8日接种第二针”。
+我们有这样的安排, 那样的安排
+Nosotros tenemos planeado esto y lo otro
 
-阿胡贾说，接受莫德纳的人应该在10月11日之前接种他们的第一针，在11月8日之前接种第二针。
+我说你懂个屁, 你还以为
+Y le dije, que sabes un pedo, tú crees
 
-备忘录说：”由于强生疫苗只有一针，联邦雇员必须在11月8日之前获得该剂量，以便在2021年11月22日的最后期限之前完全接种疫苗。”
+你能搞芯片
+Que si puedes fabricar microchip
 
-9月9日，拜登宣布了针对联邦政府、医疗保健部门和私营企业的全面措施。与此同时，一些由美国共和党领导的州和联邦工作人员对拜登政府提起诉讼，认为他的授权相当于联邦的过度扩张。
+你都能搞一切了
+Podrás hacer todo
 
-大约两周前，一些联邦雇员对拜登提起诉讼，认为他的行政命令不公平地影响了那些有基督教信仰的人。
+你懂政治? 共产党打你厂子
+¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
 
-原告之一，美国外交部官员丹尼尔·杰克逊(Daniel Jackson)，他的信仰”也指示他，接种疫苗原则上不是道德上的义务，因此必须是自愿的，”原告的律师在诉讼中辩称。他们认为，”有一种普遍的道德责任，即拒绝使用利用直接堕胎所得人类细胞系生产的医疗产品，包括某些疫苗”。
+第一件事情就把你所有的芯片, 周围的所有人
+La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
 
-该诉讼还认为，另一名原告美国特勤局特工莱昂内尔·克莱因(Lionel Klein)已经感染了COVID-19，并有足够的抗体来抵御未来的病毒感染。因此，律师认为他不需要接种疫苗。
+你会突然发现你旁边的秘书
+De repente te darás cuenta que la secretaria que está a tu lado
 
-COVID-19是由CCP（中国共产党）病毒引起的疾病。
+就是共产党, 立马给你下掉(防卫装备)
+Es del Partido Comunista, de una vez te deja sin equipos de defensa
 
-**评论：**
+你连一个芯片都拿不走
+No te podrás llevar ni un chip
 
-**从各国政府应对这次中共病毒疫情来看，政府部门的官僚作风暴露无遗，包括美国政府机构。几乎没有官员质疑疫苗是否真的有必要，疫苗是否真的对预防中共病毒有效。整个政府像一台僵化陈旧的老巴士，载着一车沉睡的人，慢慢朝着悬崖边开去。我们新中国联邦要不断呐喊，叫醒沉睡的人，带领他们跳车逃生。我们不求回报，因为我们信仰正道主义，拯救更多人类同胞是我们的使命。**
+你连一个玻璃都砸不碎
+Si no podrás romper ni un vidrio
 
-（文章仅代表作者观点，与GNEWS无关）
+还转移你什么技术, 你通通搁在这儿
+Cómo transferirás tu tecnología, todo lo debes dejar aquí
 
-**新闻来源：**[大纪元时报](https://www.theepochtimes.com/federal-agency-bidens-vaccine-mandate-for-federal-workers-can-be-enforced-next-month_4029386.html) (THE EPOCH TIMES) | 作者：Jack Phillips|发布时间：2021年10月3日
+而且马上把你这些人, 立马把你押送到大陆去
+Además, enviarán directamente a todos ustedes a China
 
-* * *
+都不会让你去福建
+No te dejará ir a Fujian
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+都是把你押到新疆
+Sino te llevará a Xinjiang
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+跟那些劳改犯押到一起去
+Para que estés con aquellos prisioneros reformados por el trabajo
+
+去了
+Arrestarte
+
+跟那些男的女的关一起去
+Encerrarte con esos hombres y mujeres
+
+先把你精神上肉体上折磨垮你
+Primero te torturarán física y mentalmente
+
+然后你老老实实的给你个电脑, 去把所有的技术给我放出来
+Luego te darán una computadora para que descargues todas las tecnologías
+
+他一听说, 不会吧
+Una vez que él escuchó todo esto, dijo, no creo
+
+我说你不用见我
+Le dije, no necesitas verme
+
+还想着战争了
+Todavía estás pensando que para la guerra
+
+我们有72小时转移技术, 转移硬体
+Tendremos 72 horas para transferir la tecnología y el hardware
+
+我说你天真, 你找死呢
+Le respondí, que inocente eres, estás buscando la muerte
+
+我说你
+Le dije, tú
+
+你只要自己不把脑袋切下来砸烂它
+Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
+
+他就把你脑子里所有东西都给你拿走
+Él podrá quitar todas las cosas de tu cabeza
+
+他一句话听傻了
+Él al escuchar esto se quedó asombrado
+
+我说你以为美国人72小时, 我说共产党开始那一刻起
+Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
+
+72小时
+Dentro de 72 horas
+
+美国人100%不会接触到你
+Los estadounidenses 100% no podrán tocarte
+
+他一定会在前24小时
+Él seguramente en menos de 24 horas
+
+把你这些脑袋全带走
+Llevará toda tu cabeza
+
+而且甚至会切你几个手指头, 告诉我还有什么该拿的
+Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
+
+中国大陆当兵的
+Los soldados de China
+
+对付别人, 对付日本人
+Al tratar con los demás o los japoneses
+
+我不觉得有这么狠
+Yo siento que no serán muy crueles
+
+对付美国人也没这个胆, 对付台湾人
+Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
+
+可能就像印尼人对付华人一样那么狠
+Quizás sean tan despiadados como los indonesios tratan a los asiáticos
+
+这共产党训练的兵
+Los soldados que son entrenados por el Partido Comunista
+
+对付外国人不敢, 对付同胞
+No se atreven con los extranjeros, pero con los compatriotas
+
+那是比谁都狠
+Son aún más crueles que cualquier otra persona
+
+—————————————————
+
+日期：10/02/2021
+原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
+原视频日期：09/30/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
+任务编号：KC143（2387）
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

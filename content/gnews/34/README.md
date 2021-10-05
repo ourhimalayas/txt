@@ -2,35 +2,21 @@
 ---
 
 
-## “潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575120/)
+## 韩政府表示给孕妇接种疫苗不会对胎儿有影响
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1575169/)
 
-栏目记者/责任编辑：七哩香
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-89.png)
-立场新闻10月4日报道表示，其参与调查的“潘朵拉文件”显示，现任中共国政协副主席、前特首梁振英是恒泰信托的客户，通过中介人使用恒泰服务，为其本人及家族成员注册离岸公司。
+韩国首尔天池农场
+翻译：林俊泽
+编辑/上传：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-2.jpeg)
+据韩国MBS新闻10月4日的报道 从10日8日起，孕妇可以提前预约疫苗，8日当天就有13万6千多名孕妇的疫苗接种预约在即。政府表示孕妇接种疫苗，不影响早产、流产、畸形儿的产生，反而具有将抗体传达给胎儿的优点。政府要求孕妇积极参与接种。
 
-梁振英在任职香港特首期间，申报持有戴德梁行附属公司的股权，但多次拒绝交代相关业务。“潘朵拉文件”首次证实梁振英在任内通过两家离岸公司，迂回持有一间戴德梁行日本业务公司的3成股权，并于2015年12月以20万英镑出售，梁振英没有申报特首任内出售股权。当时，廉政公署正调查他与澳洲上市公司UGL签订协议，收取400万英镑一事，翻查行政会议利益申报，梁振英从未申报持有UGL股权。
+点评 在全世界那么多国家和地区的民众上街反对强制打疫苗的时候，韩国政府对于这些游行是视而不见。对打疫苗之后出现的副作用的视频和文字在网上流传没有对其重视，现在还公开说打疫苗不会对胎儿有影响，还积极鼓励孕妇接种。如果因疫苗对母体和胎儿有影响，这些将由谁来负责？
 
-梁振英是中共在香港的代理人和打手，于2012至2017年任香港特首，期间发生雨伞革命。他打压人权和自由，并牵涉多宗腐败及黑金事件，外界指证其为中共地下党员。身居中共要位的梁振英，其贪腐行为与其它中共高官并无区别，牵涉“潘朵拉文件”也不奇怪。
+请孕妇们，要多多关注世界各国因为打疫苗导致各种副作用的信息，自己的生命自己维护。在推特、脸书和油管等社交媒体可能无法了解到更多真相，因为这些社交媒体都已经被中共控制。想要了解更多疫苗带来的危害，请到GTV、Gnews和Gettr。
 
-梁振英当天通过社交媒体狡辩称：间接的股权持有和变动不必申报；他主动作出制度外安排，将所有股权放入信托，他本人不行使决策权。他的无耻和撒谎嘴脸跃然纸上，但这恰恰证实，其通过匿名公司隐瞒财产。
+真爱生命，请拒绝接种疫苗！
 
-(本文仅代表作者观点)
+[新闻来源](https://imnews.imbc.com/replay/2021/nwdesk/article/6304854_34936.html)
 
-参考链接：[潘多拉文件披露两位前港特首、现任政协副主席参与离岸公司操作](https://www.voachinese.com/a/pandora-leaks-hong-kong-politicians-20211004/6256321.html)
-[梁振英](https://zh.wikipedia.org/wiki/梁振英#雨傘革命)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：暗黑
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（本文仅代表作者观点，与Gnews平台无关）

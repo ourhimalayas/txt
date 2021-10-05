@@ -2,15 +2,19 @@
 ---
 
 
-## 2021年10月4日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575405/)
+## 普京称欧洲能源市场“存在歇斯底里和混乱”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575437/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+俄罗斯莫斯科喀秋莎农场 星河
 
-10/04/2021 Miles Guo’s GETTR: People in the CCP’s law enforcement, ask yourselves if all you dare to do is bullying the harmless Lao Bai Xing. The CCP virus and the vaccine disaster is a “Great Purge of the wrongdoers,” where all those who have oppressed and plundered the people will be put on trial
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E.jpg)dailypostla.com
+美东时间10月5日报道，俄罗斯总统弗拉基米尔∙普京表示，“欧洲能源市场存在歇斯底里和混乱，这是由不平衡的决定和突然的极端措施造成的。”
 
-10/04/2021 文贵盖特：中共所谓的公检法人士摸摸良心，你们是不是只敢欺负手无寸铁的老百姓？中共病毒和疫苗灾难是一场全人类的坏人大清洗，所有在过去欺压人民、掠夺财富的人都会受到审判
+总统表示，“有必要牢记经济中煤炭、石油和天然气综合体稳定发展的重要性。你看欧洲正在发生什么——市场上正在发生歇斯底里和一些混乱的情况。为什么？因为没有人认真对待它。”
 
-[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd7bl3df18)
+普京强调，“欧洲造成此情况的原因是对气候问题的投机行为、错误的预判和对开发领域减少了投资。所有的事情要实现自身的目标都是要有一个平稳的过渡。俄罗斯具有所有的能力来杜绝在自身能源市场出现这种情况。我们看到了欧洲的某些不平衡的决定、不平衡的发展和突然的极端措施导致了什么。”
 
-**喜联盟Gnews编辑部**
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431](https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431)

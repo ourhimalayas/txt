@@ -2,31 +2,41 @@
 ---
 
 
-## 中共在19年病毒爆发前几月囤积PCR检测物资
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1575530/)
+## 重磅——辉瑞公司被指控对孤儿进行试验，测试新冠疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1575547/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Taylor-blackplague-7.jpg)网络图片
+告密者提出的，导致一群律师、医疗专业人员和活动家要求波兰议会和参议院成员在10月2日星期六组织一次紧急会议。
 
-据NIKKEI Asia 5日报道，澳大利亚网络安全公司Internet 2.0的一份报告指出，在中共国湖北省首次正式报告新型冠状病毒病例的前几个月，中共PCR检测的购买量激增。
+辉瑞似乎在法律界限之外运营。如果是这样的话，这是完全不能接受的，必须停止。要采取行动，给出解释。
 
-Internet 2.0网络安全公司收集汇总中共公共采购招标信息网站上的数据并进行分析。分析小组由来自美国、英国、澳大利亚和其他国家情报机构的前官员组成。
+自2021年6月以来，辉瑞公司一直在波兰儿童身上进行针对新冠疫苗的试验。据我们所知，这些实验是在3个月和6个月健康婴儿到11岁的儿童间进行的。
 
-分析结果显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币（按当前价格计算为 1050 万美元），几乎是 2018 年总数的两倍。月度采购数据显示，从5月份开始订单激增，尤其是来自CDC的采购商和中共人民解放军的订单。其中来自中共疾病预防控制中心的订单增加了五倍，来自动物检测局的订单激增了十倍。
+由于辉瑞公司的文件含有“秘密”条款，这些事实不为波兰公众舆论所知。甚至一位介入此事的波兰议会议员也被拒绝接触这些文件，这完全违反了波兰法律。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211005190739.png)图片来自于网络
+根据波兰立法，此类特殊案件需要法院的授权，但迄今为止，我们无法找到任何允许对儿童进行此类实验的法庭听证会。
 
-从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。报告指，武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。
+由于辉瑞公司没有完成动物研究，也没有完成对幼年动物的研究，波兰婴儿和最小的孩子似乎被用作第一个实验性的“未成年群体”。
 
-报告指，5 月份支出的增加表明最早的感染可能在五月份，但中共并未及时的向世界卫生组织通报，而是隐瞒了爆发的准确时间。报告补充强调：“我们非常有信心地评估，大流行开始的时间比中共向 “世界卫生组织” 通报 COVID-19 的时间要早得多。”
+如果波兰国家有关当局不采取行动，我们将无法确认这些儿童中有多少可能或已经面临死亡或严重的健康并发症。
 
-东京多摩商学院客座教授 Akira Igata 独立检查了这些数据，他说：“这是强有力的信息，可以证明在12 月之前的几个月到半年，武汉周围爆发了病毒。”他补充说：“这份报告可能为各国再次向中共施压以寻求信息提供机会。”
+考虑到这些注射后有多少严重的并发症，包括成人和青少年的死亡，这些疫苗对这些儿童的生命和健康的威胁比新冠病毒本身大得多。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+个人评论：
 
-*参考链接：*
+本文揭示了辉瑞公司极度邪恶的本质，利用法律漏洞，拿着儿童做试验，天理难容，辉瑞公司及所有相关人员注定会被追责，审判！
 
-[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+原文链接：
+
+[https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
