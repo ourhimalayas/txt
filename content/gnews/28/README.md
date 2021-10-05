@@ -2,20 +2,25 @@
 ---
 
 
-## 卖港贼董建华和梁振英潘多拉文件榜上有名
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573976/)
+## 对华贸易政策揭晓：寻求对话 但保持对北京施压
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574132/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-16.jpg)图片来源：RFA
-10月5日，据半岛电台和香港自由报社综合报道，在对数百万份被称为“潘多拉文件”的机密金融文件进行调查后发现，中共国只有一位曾任职河南省交通厅的女企业家冯琪雅上榜，报告称，她成立了一个离岸公司来交易美国股票。香港则有两名前特首上榜：董建华和梁振英。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-2.jpg)对华贸易政策揭晓：寻求对话 但保持对北京施压 网络图片
+美国贸易代表戴琪10月4日在华盛顿智库战略与国际研究中心发表讲话称，中共国没有全面履行与特朗普政府达成的美中“第一阶段贸易协议”，只完成了包括知识产权、强制技术转让，采购美国商品以及改善美国农产品和金融服务的市场准入。对美国的采购目标仅完成了62%。
 
-董建华及其家族成员，包括妻子董赵洪娉、长子董立均、幼子董立新、胞弟董建成、胞妹彭董小萍、侄女周董立茂及金昌玲等，于1999年至2019年分别担任至少72间离岸公司的股东或董事，其中24间与董建华家族的航运巨企“东方海外”业务有关。
+美方将保留未来对中共国使用单方面贸易措施的权力，包括启动“301条款调查”和加征新的关税来保持对北京履行贸易协议的压力。拜登政府七个多月对华贸易政策评估的结论是，更多的谈判无法使中共国改变做法，这表明美方不打算与中共国展开所谓的“第二阶段贸易谈判”。
 
-梁振英在担任香港特首期间被列为两家英属维尔京群岛公司的所有者，并因此受到香港反腐败机构的调查，但由于证据不足，司法部于2018年撤销了此案。但Stand News与国际调查记者联合会（ICIJ）合作，从名为“潘多拉文件”中发现了梁振英之前未披露的交易——他于2015年出售了国际物业服务公司DTZ子公司价值2.3亿港币的股票，而当时他正在接受反腐败监管机构对过去涉及DTZ的交易的调查。
+但拜登政府不想激化与中共国的贸易紧张关系。拜登政府将重新启动一个有针对性的“关税排除”程序，以达到“持久的共存”这一新的说法。美国将努力在不同的基础上与中共国“重新连接”，而不是“脱钩”。
 
-信息来源：
+美国成衣及鞋业协会对拜登政府将延续对华商品关税表示失望。这种关税对美国消费者、美国工人和美国企业是有伤害的。美国贸易谈判代表戴琪对中共国贸易政策比预期的强硬，但拜登政府对中共的绥靖和妥协相比川普政府还是软弱。对待中共这种流氓体制，拳头远比语言有效。
 
-1. [Ex-Hong Kong leader CY Leung sold shares for HK$2.3 million during anti-corruption probe – report](https://hongkongfp.com/2021/10/04/ex-hong-kong-leader-cy-leung-sold-shares-for-hk2-3-million-during-anti-corruption-probe-report/)
-2. [Chinese politician in Pandora Papers looked to trade US stocks](https://www.aljazeera.com/economy/2021/10/4/chinese-politician-in-pandora-papers-looked-to-trade-us-stocks)
-3. [潘多拉文件曝光 香港前特首董建华家族涉72家离岸公司](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211003-%E6%BD%98%E5%A4%9A%E6%8B%89%E6%96%87%E4%BB%B6%E6%9B%9D%E5%85%89-%E9%A6%99%E6%B8%AF%E5%89%8D%E7%89%B9%E9%A6%96%E8%91%A3%E5%BB%BA%E5%8D%8E%E5%AE%B6%E6%97%8F%E6%B6%8972%E5%AE%B6%E7%A6%BB%E5%B2%B8%E5%85%AC%E5%8F%B8)
+新闻参考链接：[https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL](https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

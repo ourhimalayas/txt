@@ -2,25 +2,21 @@
 ---
 
 
-## 对华贸易政策揭晓：寻求对话 但保持对北京施压
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574132/)
+## 针下亡魂｜美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1574200/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-2.jpg)对华贸易政策揭晓：寻求对话 但保持对北京施压 网络图片
-美国贸易代表戴琪10月4日在华盛顿智库战略与国际研究中心发表讲话称，中共国没有全面履行与特朗普政府达成的美中“第一阶段贸易协议”，只完成了包括知识产权、强制技术转让，采购美国商品以及改善美国农产品和金融服务的市场准入。对美国的采购目标仅完成了62%。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ ****5/10/2021**
 
-美方将保留未来对中共国使用单方面贸易措施的权力，包括启动“301条款调查”和加征新的关税来保持对北京履行贸易协议的压力。拜登政府七个多月对华贸易政策评估的结论是，更多的谈判无法使中共国改变做法，这表明美方不打算与中共国展开所谓的“第二阶段贸易谈判”。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-1.jpg)
+【美国】丹佛杰斐逊县一位 66 岁的资深飞行员 Lelon Lewis 在接种第二剂莫德纳 COVID-19 疫苗后，在一次飞行中失事，最终机毁人亡。
 
-但拜登政府不想激化与中共国的贸易紧张关系。拜登政府将重新启动一个有针对性的“关税排除”程序，以达到“持久的共存”这一新的说法。美国将努力在不同的基础上与中共国“重新连接”，而不是“脱钩”。
+Lelon 4 月 3 日注射第二针疫苗，几小时后，他驾驶一架单引擎 Magnus Fusion 212 飞机在德克斯西北部的崎岖地区坠机。相关新闻中，完全没有提到的是，Lelon 在坠机前接种了他的第二剂摩德纳 COVID-19 疫苗。
+主流媒体就坠机事件的新闻
+有评论质疑，“在接种第二剂疫苗后，当晚就发生了飞行事故，若两者之间完全没有关联，主流媒体为什么要刻意隐瞒？”
+社评质疑动机
+来源｜ [个案010](https://denver.cbslocal.com/2021/04/05/lelon-lewis-plane-crash-deckers-jefferson-county-deadly-crash/)
 
-美国成衣及鞋业协会对拜登政府将延续对华商品关税表示失望。这种关税对美国消费者、美国工人和美国企业是有伤害的。美国贸易谈判代表戴琪对中共国贸易政策比预期的强硬，但拜登政府对中共的绥靖和妥协相比川普政府还是软弱。对待中共这种流氓体制，拳头远比语言有效。
+* * *
 
-新闻参考链接：[https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL](https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hant/1572210/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hant/1572326/)//

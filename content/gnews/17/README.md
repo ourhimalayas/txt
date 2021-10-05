@@ -2,139 +2,68 @@
 ---
 
 
-## 推特封杀mRNA技术创始人之一及Moderna 联合创始人的账号
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574171/)
+## 西喜时事新闻简报 — 中共病毒时事篇(2)
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1574356/)
 
-So, it is very interesting
-因此，特别有意思的是
+- **编译：西班牙喜悦农场–wenwu**
 
-but one of the founders of the mRNA technology
-mRNA技术的创始人之一
 
-His name is Luigi Warren
-他叫 Luigi Warren
+您若想了解全文报导内容，请点击标题链接
 
-And we didn’t even really know his name
-我们以前甚至不知道他的名字
+（爱惜生命 远离疫苗）
 
-until a couple of days ago
-直到在几天前才知道他是谁
+**1.[为什么政府一心要强制执行疫苗授权，尽管它没有用而且不安全](https://theexpose.uk/2021/10/03/nhs-manager-covid-19-vaccines-not-safe-or-effective/)**
 
-he has a Twitter account actually
-Luigi Warren有个Twitter推特账户
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip226.png)
 
-and he tweeted the other day
-他前几天发了推
+据《吹哨人》2021年10月3日电，接种疫苗的危险来自每周公布最新的不良反应报告给药品和保健产品监管机构 (MHRA)[黄卡](https://coronavirus-yellowcard.mhra.gov.uk/)计划，也就是近120万起疫苗不良反应和1645例死亡，这些数字可能被低估了（知情同意是[纽伦堡法典](https://en.wikipedia.org/wiki/Nuremberg_Code#The_ten_points_of_the_Nuremberg_Code)的主要原则）。苏格兰公共卫生局最近[发布](https://publichealthscotland.scot/publications/covid-19-statistical-report/covid-19-statistical-report-23-june-2021/)的数据表明，在接种 COVID-19 疫苗后的 28 天内，已有 5522 人死亡；在同一时期，英格兰在 COVID 检测呈阳性的 28 天内[报告](https://coronavirus.data.gov.uk/details/deaths?areaType=nation&amp;areaName=England)了5万7271 人死亡。
 
-that hey, guess what?
-但是，嘿，你猜怎么着？
+牛津大学最近的一项研究[声称](https://www.reuters.com/business/healthcare-pharmaceuticals/british-study-shows-covid-19-vaccine-efficacy-wanes-under-delta-2021-08-18/)：接种疫苗的人感染程度较轻，但更有可能被感染；他们比那些从感染中自然康复的人更容易传播中共病毒；与疫苗诱导的免疫相比，自然恢复范围更广，持续时间更长。以上表明了，自然免疫比接种疫苗的好处更多。值得一提的是，英国首相[声称](https://www.standard.co.uk/news/uk/lockdown-covid-19-cases-pandemic-boris-johnson-b929418.html)是封锁而不是疫苗减少了第二波疫苗浪潮。然而，一周前，他又[声称](https://www.gov.uk/government/news/covid-19-vaccines-have-prevented-10-400-deaths-in-older-adults)疫苗已防止1万多人死亡。那么疫苗是否有更好的替代品呢？
 
-Because I am one of the founders
-（他发的推说：）
+**2. “布里奇顿”艾美奖得主马克·皮尔彻因 COVID-19 去世，享年 53 岁**
 
-of the mRNA vaccine technology
-我是MRNA疫苗技术的创始人之一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip227.png)
 
-and I am one of the co-founders
-我是Moderna的联合创始人之一，
+据《纽约邮报》2021年10月4日电，美发和化妆师 Marc Pilcher 周日死于中共病毒（COVID-19），享年 53 岁。 据他的经纪公司 Curtis Brown 称，他接种了两针疫苗，没有潜在的健康问题；“我们怀着最深切的心确认，奥斯卡奖提名人、艾美奖得主、美发和化妆设计师/造型师马克·埃利奥特·皮尔彻 (Marc Elliot Pilcher) 于 2021 年 10 月 3 日星期日与 Covid-19 战斗后去世，”他的家人在接受《[综艺](https://variety.com/2021/artisans/news/marc-pilcher-dead-dies-bridgerton-hair-makeup-1235080234/)》采访时表示  。通过柯蒂斯·布朗发表的声明。
 
-of Modera that helped to build Moderna
-并帮助建立了Moderna公司，
+“当他还有很多事情要做的时候，他被带走了，这是一个悲剧。也请以此作为提醒，中共病毒仍然是一个非常现实和现实的危险，请接种疫苗并戴上口罩以保护自己和他人，”明星尼古拉·考夫兰 (Nicola Coughlan)在[推特上写道](https://twitter.com/nicolacoughlan/status/1444985525052526594)。“我的心与他的朋友和家人同在，尤其是他出色的团队 Lynda、Lou、Adam、Hollie、Tanya 和 Claire。他非常爱和关心你们，我的心与你们同在。安息吧马克。”
 
-I can actually attest to the fact that:
-我的确可以证明这个事实：
+考夫兰的联合主演、饰演达芙妮·布里杰顿的菲比·戴内沃尔也表达了她的悲痛，在她的 Instagram 故事中写道，她“无言以对”。皮尔彻参与了多部影视作品的制作，例如《苏格兰玛丽女王》、《唐顿庄园》、《朱迪》和《胡桃夹子与四个王国》。
 
-Yes, the shedding, the vaccine shedding
-是的，（尖峰蛋白）脱落，
+**3. [杰森·兰茨 (Jason Rantz) 撕毁了福奇博士关于圣诞节聚会的“荒谬”言论](https://www.foxnews.com/media/jason-rantz-dr-fauci-unsure-christmas-gatherings)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip230.png)
+据《福克斯》2021年10月4日电，[福奇因声称考虑圣诞节聚会“太早”而受到抨击](https://www.foxnews.com/media/fauci-slammed-claiming-too-soon-to-consider-christmas)（福奇特意散播病毒的社会恐惧）。杰森·兰茨： “这太荒谬了。现在知道还为时不晚。我们现在所知道的没有任何事情说我们不能在圣诞节、光明节、感恩节或万圣节见朋友或家人。我们又度过了一个充满体育场馆和人群的周末。
 
-of the spike protein is real
-疫苗的尖锋蛋白脱落现象是真实存在的
+在这一切之前我们被告知了什么。我们被告知这些将成为超级传播事件，并且由于人们尾随而导致尸体堆积。然而，我们从未从任何提出这些主张的政客那里得到任何跟进，任何媒体成员都在散播恐惧。我们知道美国大部分地区至少接种了一针疫苗。我们知道在美国某些州，超过一半的人接种了疫苗。
 
-It actually does occur
-这种情况确实存在
+在华盛顿，我们的比例超过 75%。告诉我圣诞节探望你的家人是不安全的，比如在 10 月，这表明这实际上与公共卫生无关。现在我们谈论的是完全控制，这就是可怕的部分。你不能决定美国人在任何假期是否可以见家人和朋友。”
 
-Now when it occurs,
-他说当发生脱落的时候
+据《纽约邮报》2021年10月4日[电](https://nypost.com/2021/10/04/cdc-releases-holiday-safety-guidelines-for-covid-pandemic/)，“现在说还为时过早。” [白宫首席医疗顾问安东尼·福奇博士](https://www.youtube.com/watch?v=8VhGkNP9Lv4)周日[告诉“面对全国”](https://www.youtube.com/watch?v=8VhGkNP9Lv4)。“我们只需要专注于继续降低这些数字，而不是试图提前几周或几个月，然后说我们将在特定时间做什么。”
 
-he says it occurs in smaller amounts that
-如果这个人的脱落数量很少
+尽管这位[传染病专家表示，美国](https://nypost.com/2021/10/03/fauci-us-turning-the-corner-but-more-covid-surges-possible/)在最新一波 COVID-19 大流行中正在出现“转机”，但他警告说，如果更多人不接种疫苗，病例数可能会再次开始攀升。
 
-is most likely not harmful
-很有可能不会造成危害
+**4. [辉瑞被指控在孤儿身上进行生物武器试验，以测试他们的中共疫苗](https://theexpose.uk/2021/10/01/breaking-pfizer-stand-accused-of-experimenting-on-orphan-babies-to-test-their-covid-19-vaccine/)**
 
-or is going to cause diseases in other people
-或是不会导致其他人生病
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip228.png)
 
-but actually, it is real.
-但这种脱落现象是真实存在的，
+据《吹哨人》2021年10月1日电，以色列海法大学风险沟通研究员 Yaffa Shir-Raz 发表了一篇关于辉瑞公司通过使用的非常有问题的方法的文章，名为 **“**[严重违反和操纵试验方案：辉瑞就是这样设法获得 FDA 的儿童的紧急授权](https://www.covil.co.il/en/this-is-how-pfizer-managed-to-obtain-the-fdas-emergency-authorization-for-children/)**”**。这篇文章指出了辉瑞疫苗开发者通过孤儿、身心障碍者、政治难民和贫困人口，进行了疫苗安全的实验；斯坦利·普洛特金（Stanley Plotkin）获得了多项疫苗的专利，并被昵称为“疫苗教皇”，他曾为自己辩护说，残疾人“只是形式上的人类”；自 2021 年 6 月以来，辉瑞一直在对波兰儿童（3个月大到11岁）进行 Covid-19疫苗的实验性试验，由于辉瑞的文件包含“秘密”条款（甚至干预此事的波兰议会议员也被拒绝查阅文件，这完全违反了波兰法律），波兰公众舆论并不知道这些事实。
 
-and it does occur
-它确实有发生
+众所周知，波兰有 8 个中心正在进行上述测试，但这些都是小型私人诊所和私人临床研究中心，似乎没有能力进行此类研究；目前正在招募 6 个月大至 2 岁的儿童，但辉瑞公司在其官方网站上发布了日期为2021年9月20日的文件，声称他们希望在今年年底前对最年轻的儿童组产生结果。 这意味着辉瑞公司这项对婴儿的屠杀项目早在2021年6月[之前](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-positive-topline-results)已经展开了实质性的行动，这是什么节奏？据估计，波兰可能有大约 1000 名儿童接受辉瑞疫苗注射。
 
-Because he posted that tweet on Twitter
-就因为他在推特上发了这种推
+考虑到这些儿童被招募参加研究的速度有多快，我们强烈怀疑他们来自孤儿院和疗养院，因为其他疫苗的试验已经发生了这种情况。根据波兰立法，此类特殊情况需要法院的授权，但到目前为止，我们无法找到任何允许对儿童进行此类实验的法庭听证会。药理学家、药品、医疗器械和生物杀灭剂产品注册办公室主席 Grzegorz Cessak 同意在波兰对婴儿和幼儿进行这些试验。他还是欧洲药品管理局 (EMA) 的成员，这似乎造成了利益冲突。 值得一提的是，由于辉瑞没有完成动物研究，也没有完成对幼小动物（后代）的研究，似乎波兰婴儿和最小的孩子被用作第一个小“动物后代”实验。目前可以确定的是，疫苗的风险超过了感染中共病毒。
 
-Guess what? the Twitter police came
-你猜怎么着？“推特网警”巡查，
+**5. [因与有争议的Fauci支持的科学家有联系而被解散的中共病毒溯源研究小组](https://www.lifesitenews.com/news/covid-origins-research-group-disbanded-over-ties-to-controversial-fauci-backed-scientist/)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip229.png)
+据《生活网》2021年10月4日电，隶属于英国著名科学杂志《柳叶刀》的中共病毒（COVID-19）溯源委员会已经解散，因为它与有争议的研究人员有关，而这位研究人员是驻纽约的英国动物学家彼得·达萨克（Peter Daszak）关于蝙蝠冠状病毒的工作是由安东尼·福奇博士的机构资助；由现任委员会现任主席、哥伦比亚大学教授杰弗里·萨克斯宣布，该委员会正在解散。
 
-and suspended his account
-暂停了他的账户
+上周，《伦敦电讯报》报道，达斯扎克向美国国防部高级研究计划局寻求1420万美元的资金，以资助武汉实验室对蝙蝠冠状病毒的功能增强研究。该提案因风险过大而被DARPA拒绝，其中包括一个令人震惊的项目，即从基因上增强冠状病毒并对中国云南的蝙蝠进行免疫，目的是阻止新病毒从蝙蝠 到人类——即通过基因工程将”弗林酶切位点”嫁接到类似SARS的蝙蝠冠状病毒上，以使病毒更加致命并更容易传染给人类。另外，科学家指出，目前流行全世界的 SARS-CoV-2 与这项基因工程中的弗林梅切位点完全一致。
 
-They said (it was a) fake news
-推特说他发布的这些是假新闻
+本月早些时候，《柳叶刀》发表了一封来自16位科学家的信，呼吁重新审视实验室泄密理论。这些科学家说，《柳叶刀》去年发表了由 Daszak 组织的联合签名信，将实验室泄漏理论视为“阴谋论”，这对“更广泛的科学辩论，包括科学记者之间的辩论，产生了压制作用”。
 
-Now he is appealing that
-现在他正在上诉
-
-He said he is not backing down
-他说他不会退缩
-
-He said this would be appealed
-他将会采取上诉手段
-
-He said: “just appealed as follows”:
-他说他的诉求主要是：
-
-the tweet you locked me out for is correct
-我发布的推特内容是正确的信息
-
-I am the inventor of the (mRNA) technology,
-我是（mRNA）技术的发明者 (之一)
-
-from which Moderna was founded
-（基于此此技术），我也成为了 Moderna公司创立人(之一 )
-
-Look it up
-可以随意去验证我的背景是否属实
-
-I think I know what I am talking about。
-我想我知道我在说什么。
-
-and he says again he is continuing to go through more bogus lockdowns
-他又说，他还会持续被（推特）封掉更多的账户
-
-for posting absolutely correct statements on Twitter
-就因为他在推特上发布的这些言论是绝对正确的
-
-文字听写翻译：UCool 优酷
-
-视频字幕：Kent
-
-编辑/发稿：云起时
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+（文章仅代表作者本人观点，与Gnews无关）
 
 * * *
 
-更多加拿大枫叶农场的频道，请关注：
+***发稿：信心满满***
 
-[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-
-[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-
-[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-
-[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
-
-[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

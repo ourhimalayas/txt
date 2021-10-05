@@ -2,22 +2,19 @@
 ---
 
 
-## 2.05亿美元债违约，“花样年”还能挺多久？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574421/)
+## 抗冠状（中共）病毒药丸
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1574557/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-84.png)[图片来源](http://www.wenxuan.news/?tag=%E8%8A%B1%E6%A0%B7%E5%B9%B4)
-10月4日晚间，花样年控股（01777.HK）公告，该公司本应在10月4日付款的205656000美元的票据未能如期支付。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10051-1.jpg)
+默克制药公司的抗病毒药丸是一种可以在家中对非重症患者给药的药品，去年 3 月，热那亚综合诊所是该公司选择的 7 个意大利中心之一来测试该药物。
 
-对此，花样年控股方面表示，公司受疫情反复、行业政策及宏观经济等多重因素的影响，流动性出现阶段性紧张。目前公司运营秩序正常，各项工作均在有序开展中。针对公司面临的问题，董事会及管理层已就相关事件对公司财务及经营状况的影响进行了评估，并在地方政府、金融机构、财务顾问等多方支持下，成立了应急小组，正在制定风险化解方案，以期尽快化解阶段性困境。公司将对后续进展及时进行信息披露。
+卫生部预防司司长 Gianni Rezza 证实了有关[Molnupiravir](https://www.today.it/salute/molnupiravir-covid.html)的数据是有希望的：与安慰剂相比，轻度或中度 冠状（中共）患者的住院或死亡风险降低了约50%。第一个谈论 Molnupiravir 潜力的是圣马蒂诺传染病诊所主任[马泰奥·](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)巴塞蒂 ( [Matteo Bassetti)](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)，他在接受采访中谈到了最近的事态发展以及抗冠状（中共）药丸在未来可能发生的事情。
 
-值得一提的是，在此之前，花样年控股已经收到国际三大评级机构及中诚信国际对其下调评级的报告。9月14日，标普宣布将花样年控股的展望调整为负面，确认“B”评级，9月16日，惠誉将花样年控股的长期外币发行人违约评级(IDR)从“B+”下调至“B”，展望仍为“负面”。9月27日，穆迪将花样年控股企业家族评级从“B2”下调至“B3”。9月29日，中诚信国际发布关于将花样年集团（中国）有限公司评级展望调整为负面的公告。
+他称，该药物在欧洲可以在年底前上市，这是一种核苷类似物，是一种我们已经用于治疗 HIV 和肝炎的抗病毒药物。这种药物将自身插入病毒的 RNA 链中，防止其复制和生长，或导致其错误复制。基本上它是一种病毒复制抑制剂，它也可能在未来与其他药物联合使用从而出现另一种有效治疗冠状（中共）病毒的药物，从而我们可以彻底击败它。
 
-当前，在中共房地产和金融双重崩溃以及内斗进入终极之战的情况下，作为中共权贵曾庆红家族企业的花样年控股到底还能挺多久，我们拭目以待。
+免责申明：本文只代表译者观点，与Gnews无关
 
-信息来源：[花样年：未能按期偿还2.05亿美元债，已成立应急小组](https://wallstreetcn.com/articles/3641716)
+原文链接：[https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html](https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html)
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/上善若水
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-5.png)
+责任编辑/校对/发布：意大利达芬奇农场   萧亦
