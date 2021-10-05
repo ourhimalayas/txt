@@ -2,61 +2,51 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1573340/)
+## Facebook、Instagram、WhatsApp 因全球故障而瘫痪
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1573367/)
 
 - 编译：西班牙喜悦农场–wenwu
 
 
-您若想了解全文报导内容，请点击标题链接
+据故障追踪网站** **[**d****owndetector.com**](http://downdetector.com)称，**Facebook **公司的主要社交媒体网站、流行的照片分享平台** ****Instagram **和消息应用** WhatsApp **因数以万计的用户，而出现了故障。
 
-（爱惜生命 远离疫苗）
+路透社无法立即确认影响这些服务的问题。另外，**Facebook**** **网页上的错误信息表明，是域名系统（**DNS**）错误。
 
-**1. [Fauci：默克公司的药物无法替代中共疫苗](https://thehill.com/homenews/sunday-talk-shows/575061-fauci-says-its-a-false-narrative-to-think-covid-19-vaccine-not?rl=1)**
+**DNS **或域名系统将域名连接到正确的** IP **地址，以便人们可以访问** Web**。**7**月，云计算公司** ****Akamai Technologies Inc**** **发生一次类似故障曾导致多个网站瘫痪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-16.png)
+**“**我们知道有些人在访问我们的应用程序和产品时遇到了麻烦，**”****Facebook **的官方推特[账号](https://twitter.com/Facebook/status/1445061804636479493)周一（**4**日）说。
 
-据《国会山》2021年10月3日电，周日（3日）”本周“联合主播乔纳森·卡尔在 ABC 的节目中问福奇，默克抗病毒治疗的批准是否会替代中共病毒（COVID-19）疫苗；Fauci告诉Karl：“不要试图想要一种药物替代中共疫苗的接种，这种想法没有任何意义。这是因为最好的办法是人们不感染中共病毒。”
+**“**我们正在努力使事情尽快恢复正常，我们对造成的任何不便表示歉意。**”**** WhatsApp**和**Instagram**的官方手柄也在** ****Twitter**** **上确认了这一故障。
 
-**2. [尽管疫苗接种率很高，但新英格兰仍在经历中共疫情激增](https://www.axios.com/coronavirus-pandemic-surge-new-england-vaccine-fc6b3862-5c8d-45c0-bb9d-28c4af1732ce.html)**
+**Facebook **股价在周一下午的交易中下跌了**5.5%**，朝着近一年来最糟糕的一天迈进。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1633274059714.jpg)
+**Downdetector **只通过整理一系列来源的状态报告（包括用户在其平台上提交的错误）来追踪故障，它显示有超过**5**万起用户报告** ****Facebook **和** ****Instagram **问题的事件。这次故障可能会影响到更多的用户。
 
-据《Axios》援引《[美联社](https://apnews.com/article/coronavirus-pandemic-health-pandemics-vermont-d25aae90b2dda65b3d1c2c0d5d00156c?utm_source=Twitter&amp;utm_medium=AP&amp;utm_campaign=SocialFlow)》2021年10月3日电，新英格兰地区的疫苗接种率是全国最高的。然而，各州仍在报告创纪录的病例数、住院人数和死亡人数，与疫苗接种前的高峰期相当。
+同时，**Facebook **的即时通讯平台** ****WhatsApp**** **也有超过**3.5**万名用户出现故障，而** Messenger**** **则有近** 9800**** **名用户出现故障。
 
-**3. [旧金山湾区的接种疫苗者比未接种者更容易感染中共病毒变体](https://theconservativetreehouse.com/blog/2021/10/03/there-it-is-study-finds-predominance-of-antibody-resistant-sars-cov-2-variants-in-vaccine-breakthrough-cases-in-san-francisco-bay-area/)**
+今年**3**月和**7**月，**Facebook**** **的应用程序套件也经历了类似的大范围故障。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/vaccine-vials-1-768x614-1.jpg)
+一些使用** ****Facebook **凭证登录第三方应用程序的用户，如** Pokemon Go **和** Match Masters**，也面临问题。
 
-据《theconservativetreehouse》2021年10月3日电，加州的研究发现，接种疫苗的个体比未接种疫苗的个体更容易感染 COVID 变异体。疫苗开发商 Geer Vanden Bossche（比利时）一直警告说，疫苗抗体会抑制天然抗体反应，只针对单一的目标变体（无法识别其他变异病毒），并且天然抗体已被编程为停滞。
+益智游戏应用** ****Match Masters**** **在其** ****Twitter**** **账户上说：**”**如果你的游戏没有照常运行，请注意，**Facebook**** **的登录服务器出现了问题，当这个问题得到解决时，一切都将恢复正常。**”**
 
-在[英国的数据研究中](https://t.co/XCnLK5DMPU?amp=1)有：完全接种疫苗的15万7400例德尔塔变异病例（占总病例数的 26.52%），未接种疫苗的 25万7357 例德尔塔变异病例（占总病例数的 43.36%）。然而，当谈到严重后果时，63.5% 的感染死亡来自完全接种疫苗的组。  [\[来源\]](https://t.co/XCnLK5DMPU?amp=1)
+**简评：**
 
-据《[生活网](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)》2021年9月30日电，辉瑞前员工凯伦·金斯顿说：“当他们不注射疫苗时，他们的感染率为 1.3%，而当他们注射疫苗时，感染率为 4.34%。它上涨了 300% 以上。”这令人难以置信，各大媒体和直播都相继得到了这项结论。
+**一则相关报道。**
 
-**4. [以色列收紧疫苗护照规则，引发抗议](https://apnews.com/article/coronavirus-pandemic-middle-east-health-jerusalem-israel-25ec5e9141c72080876bfe4f481bf50f)**
+**据《纽约邮报》2021年10月4日[报道](https://nypost.com/2021/10/04/facebook-instagram-and-whatsapp-hit-by-global-outage/?utm_source=browser&amp;utm_medium=push-notification&amp;utm_campaign=facebook-instagram-and-whatsapp-hit-by-global-outage)，Twitter 用户的回应是嘲笑该公司，[称](https://twitter.com/petehotchkiss/status/1445060061127225366?s=20)“如果你把它关掉，世界会更好” ， “我们实际上很享受没有虚假信息和错误信息的情况。”另外，据 DownDetector 称，手机运营商 T-Mobile、Verizon 和 AT&T 也报告了一些重大中断——尽管远没有那么彻底——与 Facebook 几乎同时发生，并且其他网站可能会受到影响；Facebook 旗下的虚拟现实游戏平台 Oculus 也遇到了问题，Oculus 在[推特上写道](https://twitter.com/oculus/status/1445058574858678273?s=20)。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1000.jpeg)
+**用户@\_farhankarim[写道：](https://twitter.com/_farhankarim/status/1445057882886742025?s=20) “在我重新启动互联网路由器 5 次后，发现 WhatsApp 和联合服务器已关闭，”并附上了一张小丑的照片。**
 
-据《美联社》2021年10月2日电，以色列周日3（日）收紧了其疫苗护照，即只允许那些接受过疫苗加强针或最近从中共病毒中康复的人，进入室内场所。新标准意味着未来几天将有近 200 万人失去疫苗护照，第三针的疫苗护照有效期为6个月。
+**用户@SazMCFC[开玩笑说](https://twitter.com/SazMCFC/status/1445069280450646025)，Twitter 正在“拯救世界，因为 WhatsApp、Instagram 和 Facebook 崩溃了”，还有一张来自 Netflix 热播剧“鱿鱼游戏”的图片。**
 
-**5. [参议员罗恩·约翰逊：过去 7.5 个月英国达美航空死亡人数的 63% 已完全接种疫苗](https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)**
+**用户@Rocky\_Ankomah7 在[推特上发布](https://twitter.com/Rocky_Ankomah7/status/1445073627293093889?s=20)了一张维修技术人员与电线搏斗的图片，并配文说：“马克·扎克伯格试图修复 WhatsApp、Instagram 和 Facebook。”**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ron-johnson-uk-delta-deaths.jpg)
+**一天前，一名 Facebook 吹哨人向《华尔街日报》泄露了大量该死的内部文件，[并自称是](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)Facebook 的前产品经理[弗朗西斯·豪根 (Frances Haugen)](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)。Haugen 将于本周在国会作证，她已经向联邦当局提交了大量针对 Facebook 的匿名投诉。**
 
-据《门户网》2021年10月2日电，约翰逊参议员在周四（30日）的[演讲](https://twitter.com/SenRonJohnson/status/1443777704994672644?s=20)中指出，在过去 7.5 个月内，所有感染德尔塔变体的死亡人数中有 63% 是完全接种疫苗的人；显然，最近的病例和死亡人数激增，并不是未接种疫苗的流行病（源自接种疫苗者的流行病）；他解释了中共疫苗似乎[不起](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)作用。
+（文章仅代表作者观点 与GNEWS无关）
 
-**6. [拒绝接种中共疫苗的怀孕护士被停职；它使你感到工作“可有可无”](https://townhall.com/tipsheet/madelineleesman/2021/10/01/pregnant-nurse-that-refused-covid-19-vaccine-put-on-suspension-it-makes-you-feel-n2596817)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0476f88f-a556-40bf-9dd1-7a0f2286a5cc.jpg)
-
-据《TownHall》援引《福克斯》2021年10月1日电，印第安纳波利斯的一名怀孕护士阿达拉·艾伦分享了她去年12月在怀孕18周时意外流产的经历；通过实验室检查发现她的“血液凝固因子升高了”。鉴于此，她被认为是新的怀孕的”高风险”。
-
-在她新怀孕的前三个月，艾伦的工作场所推出了一项疫苗任务。当她向雇主要求医疗豁免时，她得到了一张“个人声明”表格，她则表示，要继续备孕所以不愿意接受疫苗，这让她感觉不舒服。
-
-该名护士表示，疫情开始，人们把她当成英雄，但她知道自己的工作单位非常危险，但是岗位需要她；她回家时候都不敢和家人相处，而且经常加班，因为需要打疫苗所以打疫苗，不然就无法上岗的结果，让她很伤心。
-
-（文章仅代表作者本人观点，与Gnews无关）
+**新闻来源：**《[雅虎财经](https://finance.yahoo.com/news/facebook-instagram-down-thousands-users-160304059.html)》｜作者：《路透社》｜发布时间：**2021**年**10**月**4**日
 
 * * *
 

@@ -2,37 +2,71 @@
 ---
 
 
-## 看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573256/)
+## 中共病毒及其疫苗全球超限战中的典型案例（四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1573261/)
 
-据[**观察者网**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月4日 23:01](https://weibo.com/1887344341/KBdP5zvxU?ref=home&amp;rid=6_0_8_6667924340392403151_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+作者：纽约香草山农场信息部 – 6zero4
 
-【[#女孩看完长津湖回家尝冻土豆#](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%9C%8B%E5%AE%8C%E9%95%BF%E6%B4%A5%E6%B9%96%E5%9B%9E%E5%AE%B6%E5%B0%9D%E5%86%BB%E5%9C%9F%E8%B1%86%23&amp;from=default) ：觉得很心酸，根本咬不动 】近日，云南昆明，电影《长津湖》热映感动众多网友，迟女士看完电影后找来土豆煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别想哭，现在美好的生活都是战士们奋斗来的。（新华网）[L西部决策的微博视频](http://t.cn/A6MxDqMt)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-我们不得不承认中共官媒树立起的这位云南昆明迟女士是脑子里进大粪的最好榜样，如果观众们与这位迟女士一样感同深受，那么吃冻土豆是不够的，还应该穿着单衣到冰雪地里去卧上一卧，以此体验一把当年中共炮灰们的感觉。
 
-可是我们不想体验的啃冻土豆和我们不想体验的冰窖体验却并不以我们意志为转移地走下银幕进入我们的生活——在不定期、无预警停电之下的东北，在停电时哪怕能吃上冻的熟土豆不也是一份幸运么？在停电的阴冷天气之下，难道每个人不都在冰窖中么？
 
-在想到这些的时候，恍然明白中共媒体树立那个脑子进水的云南昆明迟女士为榜样的用意了，原来电影上的生活正在向我们走来，接下来能吃上冻土豆的、能在冰窖中活下来的就已经是很美好的生活了，并且这很美好的生活就是当年那些啃着冻土豆的炮灰们与那些吃着火鸡和各种美味食品的美国大兵斗争的结果！
 
-撰稿：喜马拉雅的肉夹馍
 
-审核：喜马拉雅的馍夹肉
+**美国佛罗里达州法官叫停了盖恩斯维尔市的中共病毒（****COVID-19****）疫苗强制接种令**
 
-校对：Maarago
+2021年9月22日，由美国佛罗里达州参议员斯科特（Rick Scott）任命的巡回法官布莱辛顿（Monica Brasington）阻止了盖恩斯维尔（Gainesville）市的中共病毒（COVID-19）疫苗强制接种令的生效。这意味着这项原定于2021年10月1日生效的强制令作废。
 
-（文章内容仅代表作者个人观点）
+8月5日，盖恩斯维尔市政委员会决定，该市所有员工都需要接种疫苗，以预防感染中共新冠病毒。一周后，市长费尔德曼（Lee Feldman）命令员工在10月1日之前至少接种一剂疫苗，并在10月14日之前全面接种。该市的200多名员工坚称该强制令侵犯了佛罗里达州宪法规定的隐私权，因此向市政府提起了法律诉讼，指出COVID-19疫苗在阻止中共病毒传播方面的效果已经失效，同时这项疫苗强制接种令没有意义，因为他们中的许多人有自然免疫力，或曾经感染COVID-19而具备免疫力，而且地区医院没有出现床位短缺的情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/6-1.png)
+州法官布莱辛顿在长达7页的裁决中写道：“在禁止令听证会上，市政府根本没有提供任何证据，也没有传唤任何证人，更没有提交任何宣誓书或声明；在没有任何证据的情况下，法院无法考虑疫苗强制要求是否是通过最不严格的手段为强制性的利益服务，疫苗强制要求是否满足严格的审查测试、合理的基础测试，或是否满足任何其他标准。因此，法院被要求认定该市未能履行其责任，证明疫苗强制接种令以最不严格的手段促进了强制性的州利益，并做出了有利于原告的裁决”。布莱辛顿的裁决禁止了疫苗强制接种令在盖恩斯维尔市的执行，并禁止市政府解雇或处罚任何不遵守该强制令的员工。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+原告律师奇尔德斯（Jeff Childers）直言：“法院同意，市政府不拥有其员工的身体”。原告之一西西奥（Jon Cicio）也表示松了一口气，肩上卸下了一个巨大的负担，可以不受干扰地重新专注于以公民应得的方式为公民服务。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+佛罗里达州总检察长、共和党人穆迪（Ashley Moody）也对这一裁决表示欢迎，并提交了一份支持原告的意见陈述书。并在推特上写道：“我很自豪能与警察和一线人员站在一起，阻止盖恩斯维尔市政府以非法的疫苗强制接种令为由解雇他们，今天法院同意了他们的诉求并保护了他们的工作”。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
+**意大利政府命令公司不要支付未接种疫苗工人的工资**
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+前不久，意大利政府通过了一项适用于私营和公务部门的法令，强制所有企业员工都必须获得疫苗“绿色通行证”，并要求企业对拒绝接种COVID-19疫苗的员工停止支付薪资，在没有疫苗护照的情况下工作的员工将被处以高达1500欧元的罚款。这引发了人们对数百万未接种疫苗的意大利人将如何处置的疑问。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/8-5.png)
+政府还试图避免潜在的法律行动，指示企业不要解雇未接种疫苗的人，只是不支付他们的薪资，也不会为他们支付病毒检测费用，并告诉员工不要冒着被罚款的威胁去上班；相反，他们将被认为是无故旷工并被扣发工资。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+9月1日起，意大利政府将其疫苗护照计划扩展到中小学和大学，老师如果不接种疫苗将被解雇，而学生则被强制接种疫苗才能进校上课。未接种疫苗的人还被禁止使用长途公共交通工具，这意味着许多人无法度假、上班和探亲。同时，博物馆、体育场、剧院、体育馆以及酒吧和餐馆的室内座位空间等场所也都要求进行疫苗鉴定，不执行疫苗护照规则的经营实体可能面临数千欧元的罚款。即使是那些曾经感染病毒、康复并产生抗体的人，也必须接种至少一剂疫苗。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+意大利的“绿色通行证”还能追踪个人所处的位置，就是一张植入了毒品的的数字身份证，意大利政府大概也是为了让民众体现出足够的依赖性和顺从性。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**挪威政府宣布取消中共病毒（COVID-19）疫情防控的最后措施，让社会生活回归正常**
+
+2021年9月24日，基于挪威公共卫生研究所（NIPH）和挪威卫生局（NDH）的专业建议，挪威首相索尔伯格（Erna Solberg）宣布，从第二天下午4点开始，大部分剩余的中共病毒（COVID-19）疫情防控措施将作废，包括取消社交距离、取消对聚会人数的限制、取消午夜后禁止客人再次进入娱乐场所的规定等，生活将在“加强防备”的情况下在月底前后恢复正常。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9-5.png)
+尽管最后剩下的大部分措施已被取消，但中共病毒检测呈阳性的人仍需进行自我隔离，未接种疫苗并与中共病毒感染者一起生活的人也需要隔离。此外，学校的疫情报警系统将继续保留，入境限制和旅行规则也将暂时保留。且各市政当局仍有权依据实际情况对当地佩戴口罩和聚集限制实施地方限制。
+
+索尔伯格当天还表示，我们已经认识到人来在疫情面前是多么脆弱，我们团结在一起可以取得多么大的成就；我们几乎可以像疫情之前一样生活，但一切都不会和以前完全一样了；无论是好是坏，中共病毒都将影响我们的余生！
+
+图片和新闻源于:
+
+[Florida Judge Halts City’s COVID-19 Vaccine Mandate](https://www.zerohedge.com/political/florida-judge-halts-citys-covid-19-vaccine-mandate)
+
+[Italy Orders Companies Not To Pay Unvaccinated Workers](https://www.zerohedge.com/covid-19/italy-orders-companies-not-pay-unvaccinated-workers)
+
+[Norwegian Government Announces Lifting Of Final COVID-19 Measures](https://www.zerohedge.com/markets/norwegian-government-announces-lifting-final-covid-19-measures)
+
+（以上内容仅代表作者本人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.png)
+
+***编辑/校对/发稿：Delilah小胖***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
