@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/5/2021 11:27 AM (UTC)`
+
+爆料革命90天 vs. 要飯爛命90天（下）<br/>90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P2-2)<br/><br/>1、要飯爛命 我爹是塞林  大衛被抓了<br/>Begging for survival <br/>Sellin is my “daddy”.<br/>David is said to be arrested.<br/><br/>2、要飯爛命  郭先生和長島哥等人被禁止離境<br/>Begging for survival <br/>Mr. Miles Guo and Brother Long Island and others are prohibited from leaving the country. <br/><br/>3、形式坦蕩，SEC 跟我們（爆料革命）和解<br/>Bold and clear, the SEC has settle with us (the Whistleblower Movement)<br/><br/>4、要飯爛命  抹黑GTV<br/>Begging for survival <br/>Discredit GTV<br/><br/>5、要飯爛命 抹黑G系列 <br/>Begging for survival <br/>Discredit G-series<br/><br/>6、要飯爛命 G-CLUB 卡變成政治獻金 <br/>Begging for survival <br/>Buying a  G- Club membership considered as political donation  <br/><br/>7、爆料革命  美國將承認新中國聯邦<br/>The Whistleblower Movement <br/>The USA will recognize the legitimacy of the New Federal State of China (NFSC)
+![img](https://media.gettr.com/group33/getter/2021/10/05/11/27/6b544913-76e1-1a4d-90d7-47ddeb2c5781/out.jpg)
+
+---
+
 `@miles 10/5/2021 11:19 AM (UTC)`
 
 爆料革命90 天 vs. 要飯爛命90天（上）<br/>90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P1-2)<br/><br/>1. 爆料革命公布疫苗的真相<br/>The truth of the COVID Vaccine was exposed by Whistleblower Movement <br/><br/>2.要飯爛命說郭先生是中共特務<br/>Begging for survival<br/>States that Mr. Miles Guo is a CCP intelligent agent<br/><br/>3、爆料革命 公佈COVID -19 解藥<br/>The Whistleblower Movement  <br/>announced the antidote of COVID-19 <br/><br/>4、爆料革命 以毒滅共<br/>The Whistleblower Movement  <br/>Reveal the truth of COVID-19 virus to take down the CCP<br/><br/>5、路大腦袋能教美國如何做決定？<br/>How can Lude teach the U.S. decision making?<br/><br/><br/>6、爆料革命  以毒滅共<br/>The Whistleblower Movement  <br/>Taking down the CCP with the truth of COVID-19 virus <br/>
@@ -286,13 +293,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 `@miles 10/1/2021 11:59 PM (UTC)`
 
 转：ZeroHedge对CDC最近颁布的新冠检测新规定作了剖析，指出这是明目张胆的欺骗。CDC通过一个完全故意的决定，人为地让打了新冠疫苗的人被检测出新冠（"突破性感染"）的可能性降到几乎为零。<br/><br/>新规定说，对完全接种疫苗的人，CDC只接受周期阈值CT值在28及以下的核酸检测（RT-PCR）样本。同时规定，只有住院和死亡的突破性感染案例才上报。由于这些非常技术性的规定，一般老百姓很容易不知究竟。所以该文章用了三个例子来讲解CDC新规定的“效果”：<br/><br/>A尚未接种疫苗。他以40阈值做的PCR检测结果显示为新冠阳性，尽管没有症状，但计算为官方病例。<br/><br/>B已接种疫苗。他以28阈值做检测呈阳性，并高烧卧床六周。因为从来没有进过医院，也没有死，他不算为官方病例。<br/><br/>C已接种疫苗。他出现高烧和呼吸问题。在医院住了几周后死亡。因为他以29阈值做的PCR检测，结果虽然呈阳性，但不算为官方病例。<br/><br/>你怎么看这样的CDC？<br/>https://www.zerohedge.com/covid-19/caught-red-handed-cdc-changes-test-thresholds-virtually-eliminate-new-covid-cases-among
-
----
-
-`@miles 10/1/2021 11:57 PM (UTC)`
-
-强生疫苗公司的科学家以及业务负责人私下对疫苗的真实看法曝光：他们都认为人们根本不需要接种疫苗！<br/><br/>True attitudes towards the Covid Vaccine of a scientist and a business leader from J&J Vaccine exposed: They both believe people don't need to be vaccinated
-![img](https://media.gettr.com/group8/getter/2021/10/01/23/57/c892af25-8761-ad25-f9bf-1e6f10959932/out.jpg)
 
 ---
 
