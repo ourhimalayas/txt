@@ -2,13 +2,31 @@
 ---
 
 
-## 2021年10月4日 文贵先生盖特 8
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575499/)
+## 中共在19年病毒爆发前几月囤积PCR检测物资
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1575530/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+**撰稿：日本东京方舟农场 Kevin wang**
 
-10月5号：真的假的啊，吓死叔叔了。**😡😡😡👉👉👉**【In Jerusalem on October 5, other sectarian cases found that women and children gave birth to babies with hands, feet, tails, etc. after BioNTech or Moderna holidays. 10月5日土耳其，有多宗案例發現婦女接種了BioNTech或者Moderna疫苗後，產下的嬰兒有多手、脚、尾巴的婴儿，許多這樣案例】
+据NIKKEI Asia 5日报道，澳大利亚网络安全公司Internet 2.0的一份报告指出，在中共国湖北省首次正式报告新型冠状病毒病例的前几个月，中共PCR检测的购买量激增。
 
-[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd8pz1f784)
+Internet 2.0网络安全公司收集汇总中共公共采购招标信息网站上的数据并进行分析。分析小组由来自美国、英国、澳大利亚和其他国家情报机构的前官员组成。
 
-**喜联盟Gnews编辑部**
+分析结果显示，2019 年湖北省的 PCR 检测花费了约 6740 万元人民币（按当前价格计算为 1050 万美元），几乎是 2018 年总数的两倍。月度采购数据显示，从5月份开始订单激增，尤其是来自CDC的采购商和中共人民解放军的订单。其中来自中共疾病预防控制中心的订单增加了五倍，来自动物检测局的订单激增了十倍。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211005190739.png)图片来自于网络
+
+从 7 月到 10 月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。报告指，武汉科技大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。
+
+报告指，5 月份支出的增加表明最早的感染可能在五月份，但中共并未及时的向世界卫生组织通报，而是隐瞒了爆发的准确时间。报告补充强调：“我们非常有信心地评估，大流行开始的时间比中共向 “世界卫生组织” 通报 COVID-19 的时间要早得多。”
+
+东京多摩商学院客座教授 Akira Igata 独立检查了这些数据，他说：“这是强有力的信息，可以证明在12 月之前的几个月到半年，武汉周围爆发了病毒。”他补充说：“这份报告可能为各国再次向中共施压以寻求信息提供机会。”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[China PCR test orders soared before first confirmed COVID case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

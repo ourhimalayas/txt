@@ -2,35 +2,33 @@
 ---
 
 
-## 辉瑞科学家曝“天然抗体可能比接种疫苗更好”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575567/)
+## 日本新首相设立内阁级职务以应对来自中共国的经济威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1575680/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-5.jpg)受过哈佛教育的小林孝之将成为日本第一任经济安全大臣 AP Photto
+台北（台湾新闻）报道，日本新当选的首相岸田文雄新设立了一个经济安全部长职位，据了解，其重点是来自中共国的现实威胁。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/P.jpg)projectveritas.com
-《门道专家》发表文章：“‘真相工程’（Project Veritas）：辉瑞公司的科学家：‘你的中共（新冠）病毒天然抗体可能比接种辉瑞疫苗更好”。
+据英国《金融时报》报道，新任经济安全部长小林孝之的职位将围绕北京涉嫌技术盗窃和经济间谍活动以及半导体供应链问题展开工作。
 
-全文如下：
+前国防部副部长兼三届国会议员的小林可能会与自民党秘书长产业大臣甘利明在中国事务上密切合作。
 
-“真相工程”在周一（10月4日）又投下了一枚炸弹。
+据《日本时报》报道，受过哈佛教育的小林的新工作实际上是在2020年成立的国家安全秘书处经济司内阁内的制度化。
 
-三位辉瑞公司的科学家告诉“真相工程”（Project Veritas）的卧底记者，天然抗体比疫苗对中共病毒有更好的保护作用。
+前首相安倍晋三的弟弟岸信夫将继续担任防卫大臣，这是他在即将卸任的首相菅义伟的领导下一直做的工作。
 
-辉瑞公司的科学家尼克·卡尔（Nick Karl）在“真相工程”的“曝光中共病毒（Expose CovidVax）系列”的第4部分中透露，天然的中共病毒抗体可能比中共病毒疫苗有更好。
+岸田首相于周一（10月4日）正式上任，预计将于10月底举行大选。他被称为温和的自由主义者，是日本第100任首相，曾是日本战后时代任职时间最长的外相。
 
-尼克·卡尔说：“当有人天生免疫时——比如他们感染了中共病毒——他们可能会有更多的抗体来对抗病毒……当你真地感染了病毒时，你就会开始产生针对多种病毒的抗体……因此，在这一点上，你的抗体可能比接种中共病毒疫苗更好。”
+简介：日本逐渐意识到了中共共产党用经济绑架全世界的阴谋，内阁设立经济安全部长这个职位意味着将长期把经济安全威胁，尤其是把应对中共带来的经济安全威胁放在重要的位置。
 
-辉瑞公司资深科学家助理克里斯·克罗齐（Chris Croce）说，如果与中共病毒疫苗相比，你有天然的中共病毒抗体，“你的保护期更长”。
+原文链接：[https://www.taiwannews.com.tw/en/news/4305790](https://www.taiwannews.com.tw/en/news/4305790)
 
-“我为一家邪恶的公司工作……我们的公司组织是靠中共病毒资金运作的。”克罗齐告诉一名“真相工程”的卧底记者。
+* * *
 
-辉瑞公司的科学家拉胡尔·康德克（Rahul Khandke）说：“如果你有[中共病毒]抗体，你应该能够证明你有这些抗体。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-（全文完）
 
-这三位应该属于良心科学家了，黑暗的角落也有闪光点，邪恶势力内部并非铁板一块，良知人士一旦觉察到了邪恶，不与之同流合污是基本的底线，站出来揭露罪恶，乃是良知的升华。在中共的肆虐下，人类的道德水准出现了极大的滑坡，滑坡面之广、速度之快，令人瞠目结舌。新中国联邦的使命就是要以正道主义精神，唤醒世界、认清中共的邪恶、拯救世界！
+编辑：【英国伦敦喜庄园编辑部】
 
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/10/breaking-project-veritas-pfizer-scientists-covid-antibodies-probably-better-pfizer-vaccination-video/](https://www.thegatewaypundit.com/2021/10/breaking-project-veritas-pfizer-scientists-covid-antibodies-probably-better-pfizer-vaccination-video/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
