@@ -2,87 +2,56 @@
 ---
 
 
-## 中共最赚钱的几大部门
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574735/)
+## 文·贵天成——文贵先生谈“孙力军”（五）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1574819/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2407.png)
-[https://gtv.org/video/id=615bca35d2e2b81748715b75](https://gtv.org/video/id=615bca35d2e2b81748715b75)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/675415fc-93bb-45f3-991f-108f325324de.jpg)图片来源：雅典娜设计组（姐夫说说）
+**整理：**KONG
+**编辑：**翼族
 
-郭文贵
-Miles Guo
+【**编者按：**2017年1月以来，郭文贵先生通过直播和社交媒体，发起了一场改变世界的爆料革命运动，影响深远。文贵先生数千个视频里的内容是取之不尽的宝藏，本专栏将把文贵先生数年来关于某一特定话题的精华内容陆续整理成文字，以时间线排序，希望对读者更系统地了解爆料革命有所帮助。近期中共纪委公布了孙力军的案情，而他正是文贵先生最早爆料的盗国贼之一，因此本篇特别整理了郭文贵先生谈到的关于孙力军的相关内容。】
 
-共产党一个发改委的能源局局长想弄100亿
-The head of the Energy Bureau of the Development and Reform Commission of the Communist Party wants to get 10 billion dollars
+[文·贵天成——文贵先生谈“孙力军”（一）](https://gnews.org/zh-hans/1568093/)
+[文·贵天成——文贵先生谈“孙力军”（二）](https://gnews.org/zh-hans/1568458/)
+[文·贵天成——文贵先生谈“孙力军”（三）](https://gnews.org/zh-hans/1570435/)
+[文·贵天成——文贵先生谈“孙力军”（四）](https://gnews.org/zh-hans/1572693/)
 
-就像你们现在赚个1千块钱那么简单，张宏伟跟能源局副局长吃一顿饭
-It’s as simple as you earn 1,000 dollars now, Zhang Hongwei had a meal with the deputy director of the Bureau of Energy
+**郭文贵先生2017年10月12日直播：**
 
-当天晚上张宏伟在香港，把那个江诗丹顿的所有的收藏版的表买过去
-at that night Zhang Hongwei was in Hong Kong, he bought all the collector’s edition watches of Vacheron Constantin
+孙力军、吴征、孟建柱、李东、王岐山，如果19大不除，这个19大就是一个黑社会组织了。蓝金黄计划重要的执行者就是李东、孙力军和孟建柱。他们对美国、欧洲、日本的西方法制世界的威胁超出你们的想象，对美国的3F方案，远远超出你们的想象，你们可以从郭文贵的各种事件中看得出来。
 
-当时拿过去的时候是拿了两亿美元的支票放在那儿押着
-He took a 200 million U.S. dollars check and put it in the store
+**郭文贵先生2017年10月26日第一次直播：**
 
-如果是我都买了，我们用支票，不买了就（把表）送回去
-If I wanted them, then just cashed the check otherwise I would send the watches back
+我的一个合伙人和朋友，以及国內的老领导，都在跟文贵说:“文贵啊，见好就收吧，你的爆料对于王岐山、孟建柱、傅政华、孙力军已经造成致命的打击，不管任何人，怎么说这就是事实。而且，再往下爆你爆谁呀?你怎么爆呀！?干嘛让自己置入危险啊?激流勇退，见好就收！”（这就是）中国人的哲学核心思想。同时还说:“现在没危险，再往下就更加的危险，无法想象！”
 
-结果拿过去一块也没拿回来，两亿支票兑现
-Then they didn’t send any single watch back, the check was cashed
+**郭文贵先生2018年6月2日直播：**
 
-全都是江诗丹顿特别版，能源局局长喜欢表
-all the watches are Vacheron Constantin special editions, the Director of the Energy Bureau likes watches
+中国的盗国贼，说老实话它是一个小集团， 我不能用几个来形容。 但是在中国九千万党员当中，它是很少数很少数的。 盗国贼一定会被灭的。你看看最近的王岐山，他的状态，完全完了，王岐山已经是完了，这个副主席被送到俄罗斯的那个会上，你看看普京对他的态度。后来我听说，本来和普京约好一个简单的晚餐，普京临时也取消了，让他很没面子。他身体状态极差。孟建柱更不用说了，现在习已经是特别怀疑他，也不相信他。**傅政华、孙力军未来一定进监狱，这已经是党内一致共识。** 说白了习主席要做一个选择，要么你选这些人，要么你就跟党为敌。所以说他们留下来，王岐山留下来，对我们不是坏事，盗国贼一定会被灭的。
 
-记住我今天郭文贵说的话，
-Remember what I, Guo Wengui said today
+**郭文贵先生2018年6月10日直播：**
 
-如果这个能源局的局长，发改委副主任被抓
-If this director of the Energy Bureau and the deputy director of the Development and Reform Commission was arrested
+我没想到孟建柱身体突然间那么坏了，这让我感到很惊讶，我觉得马来西亚刘特佐（事情对他）打击太大，从天上到地狱去了，掉地上去了。孙力军现在在挣扎，孙力军，傅政华都在拼命的挣扎，但是全党已经把他们当为公敌。王岐山、孟建柱、傅政华、孙力军和（习近平）修宪的事情，导致党内所有人的心现在都不相信（他们），这些人都玩假的，都在等着那一刻。
 
-他家的表最起码在3千-4千块之间，而且都是世界上最顶级的
-His watches are at least between 3,000 and 4,000 pieces, and they are all the top class in the world
+吴征这个人所犯下的罪行（很多），西方各国都在盯着他……他在伦敦的小女朋友叫娜娜，视频我没放，我有人跟着他，一下飞机就跟着他，他的一举一动我全都知道，拿钱呢！然后给国内！现在干啥呢？这个你被查了，那个你被查了，然后敲诈钱。到现在孙力军在公安部一局，在港澳办主任是不是还在玩（钱）呢？很多香港老板都在给他玩钱。吴征这个人，和曲龙一样，天生下来就是骗、假，他一定进监狱。他就带着那个犯罪脸……西方有些事情反应慢一点，但是大家千万记住，不会没有结果。
 
-3千多块，没有一块低于10万美元的，算算多少钱
-All these 3,000 pieces, each of them was not below $100,000 dollars, how much were them totally?
+**郭文贵先生2018年6月17日直播：**
 
-这是发改委有多牛，你知道吗？发改委是你们不知道的，
-This is how powerful the National Development and Reform Commission is, do you know? You don’t know anything about the Development and Reform Commission
+公检法内部怨声载道， 据我了解是从来没有过的，警察通过这一年来文贵的爆料了解了孟建柱、孙力军、傅政华和王岐山。所有的人都明白， 孙力军这样的人当上了中共中央公安部的副部长、一局局长、港澳办主任，那是干来的吗？那是床上干出来的，不是工作中干出来的，那是嘴上的功夫，大家看到孙力军跟我的通话，包括人家美国政府的官员，人家跟我说，听到这家伙的通话，他连个流氓都不是，瞪眼说瞎话，当时说“大哥呀，文贵哥啊，我到美国不是为了你，我是为了什么什么”，人家政府官员每个字都听了，说这不是政治欺骗吗？这样的人都能当上公安部副部长，这公安内部人也不服。
 
-中国发改委，财政部，中纪委这是捞大钱的
-China Development and Reform Commission, Ministry of Finance, Central Commission for Discipline Inspection are all big money grubbers
+我说马建副部长被抓，张越书记被抓，我说你去给我比一比。他们绝对不是完美的，但是马建副部长、张越书记绝对比你傅政华好，绝对比你孙力军好。他们是正儿八经的警察学校毕业的，政法委学校毕业出来的，效忠党国30年，是你们培养的人，你现在你连判都判不了人家。
 
-然后是银监会，保监会，证监会这几个会，这是真的赚钱的呀
-Then there are the China Banking Regulatory Commission, the China Insurance Regulatory Commission, and the China Securities Regulatory Commission, they are really profitable commissions
+**郭文贵先生2018年7月17日直播：**
 
-其他的都是另外一回事，房地产谁控制的，银监会和保监会控制，这几个会控制呢
-Everything else is another matter, which commission controls the real estate,
-is controlled by the China Banking Regulatory Commission and the China Insurance Regulatory Commission, these commissions control it
+我的员工7月11号在开封开庭，我的哥哥重新被抓回去。然后这个时候，关键是5月16号我太太、我女儿来以后，5月23号刘彦平等四个公安部的人来，到孙力军到达华盛顿，三管齐下，黑白两道，官方，然后大家看到《纽约时报》的报道，用几十亿美元，用几百个美国间谍，然后几万个遣返中国人的指标，要把郭文贵给换回去，游说到了川普总统那里去了。川普总统竟然就明确说，把他给送回去吧！结果后来说，这是我，然后怎么着怎么着的。后来当时的CIA的蓬佩奥局长，传说还有塞申斯部长，以辞职威胁让我留下来。
 
-所以说兄弟姐妹们这次大停电，是国内政治经济利益大较量的结果
-Therefore, brothers and sisters, the blackout is the result of a great contest of domestic political and economic interests
+我五哥和六哥，在那之后被抓进，再次被抓进监狱。抓进监狱之后，在完全没有罪行的情况下，说什么销毁票据罪，这个是放狗屁，放驴屁，放这个蚂蚁屁，放蛤蟆屁！这帮人胡编乱造给我哥哥装了这么个罪行，给我侄女重新关回去，又判两年6个月。给我的员工高管都抓回去，重新抓回去。我们的高松啊，法务部部长，我们新律师都给抓回去，对几十个员工进行判刑，马上判刑。
 
-习家说这不关我的事儿，老子我得要政治利益，我得要政治面子，再个也没钱
-Xi’s family said that it’s nothing to do with me, I have to have political benefits and looking good politically, and also there is no money
+在9月7号我申请政庇的前一天，孙力军还约了我六哥到公安部见，说什么都可以解决，方正股票、资产都还给你，然后说文贵还是国家英雄，然后说都可以谈。结果听说我申请了政庇，从此就消失了。然后就把家人员工，重新抓，重新捕，罗列罪行。
 
-所有的人都认为老百姓没电，像那在高空中头朝下的
-Everyone thinks that the common people have no electricity, like some one is working headed down high in the sky
+*发布：翼族*
 
-还有在那个东北医院里边正在做手术呢，吧唧停电了，完了
-also there was an operation in that Northeast Hospital, right? The power went out, it’s over
-
-—————————————————————
-Date:10/03/2021
-原视频标题:中共最赚钱的几大部门
-The most profitable departments of the CCP
-原视频日期：2021/09/29
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24](https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24)
-任务编号：KC145（2407）
-视频时间段 : 0:00-1:52
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

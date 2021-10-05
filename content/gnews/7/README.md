@@ -2,31 +2,31 @@
 ---
 
 
-## 国殇日维稳，中共拘捕关押新疆少数民族
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574843/)
+## 突发宕机！脸书蒸发3000亿
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1574990/)
 
-栏目记者/责任编辑：在远方
+**撰稿：日本东京方舟农场 子辰**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月4日，美国互联网社交巨头Facebook脸书公司的主要社交服务在美国英国等多个国家发生了中断故障。故障导致其市值蒸发近3000亿。
 
+据报道，此次宕机殃及Facebook旗下的四大社交产品，包括Facebook平台、移动聊天服务Messenger和WhatsApp，以及图片社交服务Instagram。脸书在长达六小时半的故障中，直接导致股票大跌近5%，市值蒸发475.59亿美元，约合3065亿人民币。
 
+据路透社报道，Facebook网页上显示此次服务中断是由于域名系统错误（DNS）所致。此前7月份，云服务公司 Akamai 发生的类似故障也曾导致多个网站瘫痪。
 
-总部设在德国的世界维吾尔代表大会发言人迪里夏提宣称，在十一国殇日期间，新疆和田地区有至少170名维吾尔人被强制性拘押，罪名是“ 有抵触情绪，消极对待国庆升旗活动”。哈萨克人权组织创办人赛尔克坚也称，中共新疆伊犁哈萨克自治州当局于十一前大规模逮捕了一批当地的哈萨克族民众，警方称此举为“国庆维稳措施”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005AM1、2、3-视频备用.005.jpeg)
-中共在新疆的人权暴行已被越来越多的国家认定为种族灭绝和反人类罪，但这些依然在迫害新疆各族人民的罪行表明，中共显然有恃无恐，绝不会停止作恶！新疆当地少数民族和穆斯林群体依然生活在恐惧之中。
-(本文仅代表作者观点)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U826P902T1D432957F104DT20211005050658.jpg)图片来自于网络
 
-参考链接：[新疆和田逾百维吾尔族被扣查 罪名 : 消极对待国庆](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/ql2-10042021070504.html)
+报道说，脸书故障期间阻断了全球30亿用户的日常通讯，而且显示除了影响脸书本体外，也一举影响到数十亿个“所有连结Facebook账号的网络服务”，像是游戏、媒体订阅、电商服务等。期间脸书总部迟迟无法有效厘清、或是向外界更新障害排除的进度。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+除此之外，网络监测平台“downdetector”曝光数据，指出本次全球有多达1060万份问题回报，“这是有史以来最大的网络平台宕机。也让该事件恐将成为FB系列瘫痪损害规模最大的“严重故障事件”。
 
-终审：文龙
-校正/发稿：我不在这里
+另据俄罗斯卫星网消息，宕机期间，脸书的大规模用户数据遭泄露，黑客论坛上有超过15亿Facebook用户的数据被出售。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[突然全球“死机”：互联网巨头大跌3000亿！芯片股也狂跌，这一夜，发生了什么？](https://finance.sina.cn/usstock/mggd/2021-10-05/detail-iktzscyx7967484.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

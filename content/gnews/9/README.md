@@ -2,30 +2,20 @@
 ---
 
 
-## 电影长津湖墙内热映，助力中共洗脑愚民
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574826/)
+## 秘翻在线 :全球船运供应链危机将持续到 2023 年
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574981/)
 
-栏目记者/责任编辑：文龙
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg-1.png)
+图片来源：flashglobal
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据《零对冲》(Zero Hedge) 的报导,中东最大的港口运营商之一，迪拜 DP World 董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆(Sultan Ahmed Bin Sulayem)10月1日在 2020 年迪拜世博会上接受彭博电视台的采访，认为全球供应链危机将持续到 2023 年，而物资短缺及延误的运送将导致船运的集装箱费率持续飙升。
 
+全球最大的航运公司 A.P. Moller-Maersk 最近警告，船运瓶颈可能会持续比预期更长的时间，一些托运公司已承诺限制即期运费。DHL 和 UPS 警告说，供应链混乱不仅持续到明年，影响可能更加久远。
 
+前 PIMCO 首席执行官兼安联首席经济顾问穆罕默德·埃里安 (Mohamed El-Erian) 警告说，船运供应的困境会持续一到两年。这些困扰促使生产商品价格继续飙升，最终造成消费者更大的负担。
 
-由”霸王别姬”大导演陈凯歌领衔执导，及”战狼”代言人吴京主演的中共洗脑主旋律影片”长津湖”，于 墙内十一假期期间上映，果然一路票房飙红，据称上映4天就突破18亿元人民币，小粉红”燃爆看哭”，中共官媒吹捧赞誉的同时，社交媒体上质疑电影制作水准和历史真实度的影评则被删除 。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005AM1、2、3-视频备用.001.jpeg)
-长津湖战役本来是中共在韩战中的失败战例，当时中共以绝对兵力优势围困了美军陆战一师，但战役结果是陆战一师不仅整编突围，还带走了全部伤员和装备，而中共却付出了十倍的战损代价！这就是中共一直没有拍摄长津湖战役题材影视作品的原因。但在资讯如此发达的今天，中共却敢于炮制出如此不顾历史真实，鼓动自卑的民族主义，煽动仇恨维护统治的烂片，还获得一片叫好和叫嚣。不得不为众多因被洗脑而思想蒙蔽国人的悲哀。
-(本文仅代表作者观点)
+尽管全球央行行长一直宣称通胀只是暂时的，并认为供应链瓶颈所导致的通货膨胀可以解决，但这些央行官员却未能提供任何解决的时间表。
 
-参考链接：[《长津湖》:“票房口碑双丰收”的背后](https://www.dw.com/zh/长津湖票房口碑双丰收的背后/a-59398895)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](http://&quot;Global%20Supply%20Chain%20Crisis%20To%20Last%20Until%202023,&quot;%20Says%20Middle%20East's%20Largest%20Port%20Operator)

@@ -2,162 +2,48 @@
 ---
 
 
-## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
+## 班农专访 4：中共军机携带核弹头飞临台湾示威
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574785/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
-[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
+[![](https://spark.adobe.com/page/OupdL82D3RdKp/images/8F6768FE-B65F-415C-8470-A5A82142339E.png?asset_id=AC7A8BD3-2B73-4EBF-9DB6-86BD123EBDDA&amp;size=1024)](https://spark.adobe.com/page/OupdL82D3RdKp/images/8F6768FE-B65F-415C-8470-A5A82142339E.png?asset_id=AC7A8BD3-2B73-4EBF-9DB6-86BD123EBDDA&amp;size=1024)
+#### 简评：
 
-共产党要打台湾
-El Partido Comunista atacará a Taiwán
+解放军战机携带核弹头飞临台湾上空，这等同于向台湾宣战。中共如果觉得有必要，就一定会发动战争，并且会动用核武器。中共从来不拿人当人看，他们可以在武汉市中心的实验室研究冠状病毒，还在中共国强制推行计划生育几十年，杀死数亿婴儿。
 
-怎么打你芯片厂
-Cómo atacará a tu fábrica de circuito integrado
+中共国内的经济面临崩溃，当食物短缺、物价飞涨、社会矛盾越发激烈时，中共国就会把矛盾引向南海和台湾，发动一场战争來团结民众、转嫁危机，软弱的拜登政府会加剧发生热战的可能。
 
-我问他两遍, 他傻眼了
-Le pregunté dos veces y se quedó estupefacto
+不能让台湾经历香港的磨难，美国不采取行动是愚蠢的。美国需要行动。台湾很危险。
 
-我们有这样的安排, 那样的安排
-Nosotros tenemos planeado esto y lo otro
+GTV视频链接：[英喜每周采访班农先生0929-Q4：热战将在南海和台湾上演](https://gtv.org/video/id=615867a5d2e2b8174870493e)
 
-我说你懂个屁, 你还以为
-Y le dije, que sabes un pedo, tú crees
 
-你能搞芯片
-Que si puedes fabricar microchip
 
-你都能搞一切了
-Podrás hacer todo
+#### 视频字幕：
 
-你懂政治? 共产党打你厂子
-¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
+**主持人：**我來自台湾。上周解放军派遣数十架战机和军舰到台湾周围。据郭先生说，这是（解放军）轰炸机第一次携带核弹头来威胁台湾。事实上这等同于宣布战争。班农先生，您认为一场热战是否会爆发？中共会部署核武器吗？
 
-第一件事情就把你所有的芯片, 周围的所有人
-La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
+**班农先生：**如果有必要的话，他们一定会部署核武器。他们不把人当人看。从CCP病毒和武汉实验室中就能明显看到，你看他们在武汉市中心做的实验。他们还强制堕胎，他们不把人当人，更不把自己国家人当人。所以你问他们会吗？有必要的话他们会的。这根本不是问题。“他们会吗？”有下面几个原因。
 
-你会突然发现你旁边的秘书
-De repente te darás cuenta que la secretaria que está a tu lado
+我认为中共政权现在它就像无路可退的动物，中共国的经济崩溃是显然的，这次中国人不会接受。人们说：不，不，看看陆金所和恒大。他们可以偿还一点利息，但我的公寓呢？房产呢？我的钱呢？人们说要问，你把我钱拿到哪里去了？你们拿走了我的血汗钱。这个政权压力越来越大，尤其是冬季越来越冷还缺电。会出现交通灯停电的状况，各种不便利非人道发生在中共国人身上。
 
-就是共产党, 立马给你下掉(防卫装备)
-Es del Partido Comunista, de una vez te deja sin equipos de defensa
+当缺乏食物，人们回过头来说，嘿，我们所做的一切就是为了赚那点奴隶的工资，我们这么努力养家糊口，照顾孩子，孩子仍然是工厂的奴隶。当这些矛盾足够强时，他们会试图转移注意力。当然，他们会将其引向南海和台湾。他们会用统一，我们要把国外的恶魔赶出去，诸如此类的借口。
 
-你连一个芯片都拿不走
-No te podrás llevar ni un chip
+我说了十年，除非西方抓住中共的咽喉，告诉他们中国人才是真正的主人，你们不能继续奴役中国人民。（中共）背着中国人民将国家带向一个非常危险的方向，并继续窃取他们的财富。我们即将进入一场热战。
 
-你连一个玻璃都砸不碎
-Si no podrás romper ni un vidrio
+而这场热战将在南中国海和台湾上演。软弱的拜登政府加剧了这场战争的可能。为什么呢？像北京这样的敌对势力，他们国内有问题，需要一场战争来团结民众，你们为什么没有行动？
 
-还转移你什么技术, 你通通搁在这儿
-Cómo transferirás tu tecnología, todo lo debes dejar aquí
+安东尼·布林肯、杰克·沙利文和卡马拉·哈里斯和那三个小丑将军在全国电视直播上被羞辱，因为他们的谎言、失实陈述和懦弱，乔·拜登当数之最(是罪魁祸首)。阿拉斯加布林肯被训斥后，你们为什么没有行动？当中共说他们和塔利班是合伙人来羞辱美国副国务卿时，你们为什么没有行动？当美国屈辱而愚蠢地从阿富汗撤军，一个大国是那样对待你的对手吗？你要打击的黑帮，朝鲜、巴基斯坦、伊朗和波斯的穆拉，阿富汗的超级恐怖国家、土耳其和俄罗斯。为什么没有行动？
 
-而且马上把你这些人, 立马把你押送到大陆去
-Además, enviarán directamente a todos ustedes a China
+不仅仅是这些，美国允许自己先进的芯片设计带动他们的整个经济。现在台湾的芯片供应减少。你们为什么没有行动？这是公然助长敌人的威风。不采取行动是非常愚蠢的。再加上中共对台湾所做的所有渗透。中共不能像对待香港那样对待台湾，所以他们憎恨郭先生、新中国联邦、G-new和G-TV，是因为他们能够说明当中国人不受中共控制下会蓬勃发展。
 
-都不会让你去福建
-No te dejará ir a Fujian
+这是他们能够拥有的。这也是台湾所展现出来的。是的，我非常担心台湾。我担心的是西方因其软弱而招致的一场热战。加之中共需要把人们的视线从中共国崩溃的制度和即将发生的奴隶反抗中移开。
 
-都是把你押到新疆
-Sino te llevará a Xinjiang
+***编辑：【英国伦敦喜庄园编辑部】***
 
-跟那些劳改犯押到一起去
-Para que estés con aquellos prisioneros reformados por el trabajo
+*字幕：雨中漫步 | 听写/翻译：致良知 | PR：Roberts | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
 
-去了
-Arrestarte
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-跟那些男的女的关一起去
-Encerrarte con esos hombres y mujeres
-
-先把你精神上肉体上折磨垮你
-Primero te torturarán física y mentalmente
-
-然后你老老实实的给你个电脑, 去把所有的技术给我放出来
-Luego te darán una computadora para que descargues todas las tecnologías
-
-他一听说, 不会吧
-Una vez que él escuchó todo esto, dijo, no creo
-
-我说你不用见我
-Le dije, no necesitas verme
-
-还想着战争了
-Todavía estás pensando que para la guerra
-
-我们有72小时转移技术, 转移硬体
-Tendremos 72 horas para transferir la tecnología y el hardware
-
-我说你天真, 你找死呢
-Le respondí, que inocente eres, estás buscando la muerte
-
-我说你
-Le dije, tú
-
-你只要自己不把脑袋切下来砸烂它
-Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
-
-他就把你脑子里所有东西都给你拿走
-Él podrá quitar todas las cosas de tu cabeza
-
-他一句话听傻了
-Él al escuchar esto se quedó asombrado
-
-我说你以为美国人72小时, 我说共产党开始那一刻起
-Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
-
-72小时
-Dentro de 72 horas
-
-美国人100%不会接触到你
-Los estadounidenses 100% no podrán tocarte
-
-他一定会在前24小时
-Él seguramente en menos de 24 horas
-
-把你这些脑袋全带走
-Llevará toda tu cabeza
-
-而且甚至会切你几个手指头, 告诉我还有什么该拿的
-Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
-
-中国大陆当兵的
-Los soldados de China
-
-对付别人, 对付日本人
-Al tratar con los demás o los japoneses
-
-我不觉得有这么狠
-Yo siento que no serán muy crueles
-
-对付美国人也没这个胆, 对付台湾人
-Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
-
-可能就像印尼人对付华人一样那么狠
-Quizás sean tan despiadados como los indonesios tratan a los asiáticos
-
-这共产党训练的兵
-Los soldados que son entrenados por el Partido Comunista
-
-对付外国人不敢, 对付同胞
-No se atreven con los extranjeros, pero con los compatriotas
-
-那是比谁都狠
-Son aún más crueles que cualquier otra persona
-
-—————————————————
-
-日期：10/02/2021
-原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
-原视频日期：09/30/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
-任务编号：KC143（2387）
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[![](https://spark.adobe.com/page/OupdL82D3RdKp/images/80BD374A-0011-4F1E-85BE-236ACD0F5C38.jpg?asset_id=B9344DCA-3498-42EE-97EA-58568150FDB3&amp;size=1024)](https://spark.adobe.com/page/OupdL82D3RdKp/images/80BD374A-0011-4F1E-85BE-236ACD0F5C38.jpg?asset_id=B9344DCA-3498-42EE-97EA-58568150FDB3&amp;size=1024)

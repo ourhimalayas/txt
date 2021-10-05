@@ -2,31 +2,35 @@
 ---
 
 
-## 曾家产业&#8221;花样年地产&#8221; 债务预期陷困局
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574834/)
+## 国际要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574982/)
 
-栏目记者/责任编辑：新世界的一员
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-2.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1005/20211005104133479.jpg)
+**10月5日汇编**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1、[**白宫：密切关注北京对台湾的“挑衅性”军事行动，对台承诺坚如磐石**](https://www.voachinese.com/a/US-China-Taiwan-adiz-20211004/6257083.html)
 
+在北京过去四天内对台湾防空识别区进行目前为止最大规模的侵扰之后，台北指责北京是台海紧张局势的“罪魁祸首”并要求北京立即停止“不负责任的挑衅”。北京周一（4日）则指责美国对台海紧张局势的加剧负责。白宫表示，美国仍然对中国在靠近台湾的地方进行“挑衅性的军事行动”感到关注并将继续密切关注事态的发展。白宫发言人莎琪说“我们将维持我们在三个联合公报、《台湾关系法》和六项保证中做出的承诺。我们对台湾的承诺坚如磐石，这有助于维护台湾海峡和地区内的和平与稳定。
 
+2、[**岸田称为实现新资本主义将新设会议**](https://china.kyodonews.net/news/2021/10/4e9dd75cd57a.html)
 
-继恒大地产危机爆雷，墙内著名地产大鳄”花样年” 也在10月4日因未能偿还到期的2亿美元债务而陷入困境。消息公布后，”花样年”地产的美元计价债券跌至5美分，创历史最低记录。信贷评级机构惠誉国际，本周一也将”花样年”的评级大幅下调了四级。这是中共经济支柱房地产行业陷入困境的又一迹象。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005AM1、2、3-视频备用.003.jpeg)
-“花样年”集团公司是总部位于深圳的大陆地产开发商，公司注册地设于开曼群岛，1996年由中共前国家副主席”铁帽子王”曾庆红的侄女曾宝宝创立，2009年香港上市，其地产开发业务重点布局华东都市圈、环渤海都市圈等核心一二线城市，以及粤港澳大湾区。
-(本文仅代表作者观点)
+据共同社10月5日消息 ，日本首相岸田文雄4日晚间在官邸举行就任后的首次记者会，表示为制定后新冠时代的经济社会愿景将设置“新资本主义实现会议”，举内阁之力采取中长期举措。他强调“将实现增长与分配的良性循环，打造使生活富裕的经济”。承诺将强化对在职人群的分配。他把作为主打政策之一的经济安保政策定位为增长战略的核心，指出将推进防止技术外流等。
 
-参考链接：[中国地产商花样年未能偿还2.06亿美元到期债务 其美元债券急跌至纪录低位](https://cn.reuters.com/article/fantasia-bonds-unpaid1004-mon-idCNKBS2GV01N)
+3、[**美贸易代表：将取消部分中国商品关税**](https://www.aboluowang.com/2021/1005/1655419.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+美国贸易代表戴琪（Katherine Tai）周一（4日）发布对华贸易政策演讲。她承诺，将启动一个有针对性的关税排除流程，取消对一定中国商品征收关税。“我们将启动一个有针对性的关税排除流程，我们将确保现有的执行框架以最佳方式服务于我们的经济利益。”戴琪说，她还表示，不排除未来可能增加额外的关税排除流程。
 
-终审：文龙
-校正/发稿：我不在这里
+4、[**脸书全集团总瘫痪 市值瞬间蒸发200多亿美元**](https://www.aboluowang.com/2021/1005/1655587.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+脸书（Facebook）、Instagram和whatsapp于台湾时间昨（4）日深夜11点许开始，出现全球大当机，让用户相当崩溃，而本次当机情况直到今日清晨近6点才修复。对此，脸书也在事件后透过推特发文道歉，表示“感谢大家对脸书的包容。”不过，尽管平台已经修复完毕，但仍止不住外界的讨论，该起事件甚至被评为FB系列集体瘫痪损害规模最大的“严重故障事件”，且短短几个小时内，就让Facebook的全球市值瞬间蒸发200~250亿美元，影响程度不容小觑。
+
+5、[**日本新首相与美国总统通话：保卫尖阁诸岛的承诺“特别坚定”**](https://www.voachinese.com/a/us-japan-new-pm-senkaku-20211005/6257587.html)
+
+据路透社消息，星期一（4日）在国会投票后正式当选为日本第100任首相的岸田文雄在当地时间5日与美国总统拜登通话，之后他在首相官邸对媒体表示，拜登总统在承诺保卫日本安全时“特别”做出了“坚定的”表述，包括坚定履行美日安保条约第五条。这项条款说，在日本管辖区内，如果一方受到武力攻击，双方将依照本国宪法的规定和程序，采取行动应对共同的威胁。此前，多位前任美国总统都明确表示，尖阁诸岛属日本管辖，因此属于美日安保条约适用范围。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

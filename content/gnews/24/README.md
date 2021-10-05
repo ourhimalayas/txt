@@ -2,152 +2,58 @@
 ---
 
 
-## 这次停电是中国电力腐败的大暴露
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574708/)
+## 班农专访 5: 拥有天然免疫力的人不需要接种疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574788/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2388.png)
-[https://gtv.org/video/id=615bc9e1d2e2b81748715b5a](https://gtv.org/video/id=615bc9e1d2e2b81748715b5a)
+[![](https://spark.adobe.com/page/mnpJ1dp5O1egA/images/97FDDEDF-6DD6-4CFE-94FA-3CEA3542E3F1.png?asset_id=9089C456-DB30-4285-87B6-331D2D63508F&amp;size=1024)](https://spark.adobe.com/page/mnpJ1dp5O1egA/images/97FDDEDF-6DD6-4CFE-94FA-3CEA3542E3F1.png?asset_id=9089C456-DB30-4285-87B6-331D2D63508F&amp;size=1024)
+#### 简评：
 
-所有人跟上面的报告说
-Todas las personas les han informado a los líderes
+纽约州签署了一份行政令，要求医院的医护人员到10月份的第三周必须接种疫苗，否则会被解雇。实际上，一个拥有天然免疫力的人不需要接种疫苗。要对疫苗说不。
 
-北京今年的用电
-Diciendo el uso de electricidad de este año en Beijing
+新中国联邦的郭文贵先生从一开始就明确指出病毒来自实验室，是中共故意释放的生化武器。郭文贵先生和世界上许多人士一直在揭露病毒和疫苗的真相，尽可能地拯救他人的性命。西方金融机构和全球科技公司与中共勾结，抵挡病毒真相被揭露。福奇资助了60个不同的项目，支持中共研发病毒武器化。等到2022年众议院回归时，福奇这些人会上审判台，接受刑事调查。
 
-任何情况下都能满足
-De que en cualquier situación se puede satisfacer
+抛开其他所有因素，仅仅因着中共的无能，中国人民将会度过一个食物和能源短缺的寒冬，无数人可能会遭受严重的饥饿和死亡。中共应该成为历史。
 
-但是突然间就在20天前
-Pero de repente hace 20 días atrás
+GTV视频链接：[英喜每周采访班农先生0929-Q5：#bannonweeklyinterview 要对疫苗说“不”](https://gtv.org/video/id=6156ab61d2e2b817486fe70b)
 
-查出来说
-Investigaron y dijeron
 
-北京的线路是三路电
-Que todas las líneas de transmisión son de tres vías
 
-北边一路电线 西边一路电 东边一路电
-En el Norte una vía de cable eléctrico, al Oeste una vía y al Este otra vía
+#### 视频字幕：
 
-三路供电给北京
-Las tres vías le suministran a Beijing
+**主持人：**班农先生，这个问题是关于疫苗的。我在医院上班，老板已经发了最后的强制疫苗通知。信号很明确，到10月的第三周，不接种疫苗就没工作了！纽约州州长刚刚签署了一份行政令，以解决医护人员短缺的问题，因为该州强制疫苗规定已于周一生效。由于她自己造成的人员短缺，她宣布了“灾难紧急状态”。
 
-北京是很安全的
-Beijing es seguro
+这和我的情况很相似，人们可能会因此遭受不同疾病带来的痛苦和死亡。郭先生和许多科学家、医生和医护人员都非常努力地揭露病毒和疫苗的真相。如果政府没有为人民的利益行事，那么人们可以做些什么来自救？班农先生，您对我有什么建议吗？
 
-说三路电 两路电
-Dicen las tres vías, y de las dos
+**班农先生：**我在一个层面上了解你的个人处境。我可以说郭文贵关于中共国财政、西方（利益集团对中共的）支持、海航事件以及所有这一切发展方向的预测是正确的。
 
-也就是北京的
-Es decir, son de Beijing
+我从一开始就认为世界和美国欠郭文贵的，非常感谢他警告这个国家和全人类关于中共病毒的事情。告诉我郭文贵在整个过程中哪里出错了，他从一开始就准确指出本质上发生了什么。郭文贵绝对认为这是中共放出的病毒，他们是故意的。
 
-那叫什么发电厂了
-Cómo es que se llama esa planta de electricidad
+虽然我仍然说这是一次事故，来自实验室，来自（生化武器）项目。但现在我得告诉你，随着时间的流逝，我越来越相信郭文贵关于病毒是被释放的生化武器的结论。而郭文贵当时就指出了中共这样做的原因之一，即使是泄露，他们后来采取的加剧其传播的所有活动在世界上造成了如此的疑惑和混乱。中共当然有这个动机和能力。
 
-从那个西北过来的
-Ese que viene desde el noroeste
+他们能够做到这一点的原因之一是，西方的金融机构和全球科技公司显然是中国共产党的合作伙伴。他们为中共辩护，也是中共政权存在的唯一原因。科学界是科学主义界，不是真正的科学，而是科学主义，是对福奇式科学的迷恋。他们与中共勾结。这就是他们如此顽固抵抗的原因。
 
-说要线路维修
-Dicen que van a hacer reparación en la línea de transmisión
+福奇竭力抵抗，就像他真的进入过武汉实验室一样。在任何情况下，他们想要的是头脑简单的人。能够进入武汉实验室的人并不是真正意义上的科学家，因为请记住，福奇这些人帮助资助了60个不同的项目。福奇资助了这些项目并与中共合作支持这些生化武器的研究，将这些病毒武器化。
 
-可能要长达2个月
-A lo mejor se lleve una duración de 2 meses
+我要告诉你，当2022年我们夺回众议院时，福奇这些人都会上审判台，接受严格的审讯。与此同时，我坚信司法部将对托尼·福奇提出刑事指控。这些都是谁告诉我们的？郭文贵。
 
-东南路天津过来的要长达2个月
-Desde la carretera del sudeste de Tianjin durará 2 meses
+看看我们现在所处的情况，在纽约州，联邦法官需要下令不许他们强迫护士接种疫苗。现在我要谦虚地向你们表示，我们国家的伟大护士和医疗工作者可能对这种疾病和病毒，以及哪些手段有效和无效的了解更多。40%或50%的医疗工作者不想接种疫苗，我会听他们的。就你自己的个人情况而言，我认为显然有很多方式。
 
-说白了就是掩盖
-En pocas palabras es ocultar
+我们可以让你与公共利益律师联系，他们正在联合起来开始起诉并开始帮助人们。我认为你需要这样做，因为特别是如果你有天然免疫力，绝对没有理由接种疫苗。即使你没有天然免疫力，作为一个理性的人，你也有上千个理由对疫苗持犹豫态度。我不是反疫苗者。我在上学的时候接种了很多疫苗。那时我真的没有多想，我父母让我去接种，作为去亚洲的军人，需要接种很多疫苗。
 
-当初所有造的假
-Toda la falsedad que inventaron en aquel momento
+在新冠病毒疫苗上，我认为自然免疫排除了你应该接种疫苗的可能性。郭文贵在揭露疫苗危害方面是最出色的，参与作战室的Hatfill博士和人们也致力于疫苗的问题。所以要对疫苗说“不”。
 
-北京都要停电
-Ya en Beijing van a cortar la luz
+我发现一个问题，像你们这样的医生和许多医护人员都非常非常犹豫，应该尊重这种犹豫。这种犹豫应该受到尊重。不应该被强迫。强制令全部来自大制药公司，但得到了拜登政权的支持。郭文贵准确地说出了在这种混乱和无序蔓延中会发生什么。尽管西方处于困境中，但我们的情况不像中国人民那么糟糕，因为他们将面临一个非常痛苦的寒冬。
 
-这回停电 第２个核心的大问题
-Y hay 2 grandes problemas principales por este corte de luz
+数以亿计的无辜中国人民将度过一个痛苦的寒冬，缺乏足够的食物，环境污染日益严重，现在将会缺乏适当的热量，这一基本的生存条件。我也认为我们可能会因此遭受严重的饥饿和死亡，就像中共病毒在美国肆虐一样。我为我们热爱的中国人民祈祷，他们经历了太多。
 
-是一场中国的电老虎
-Es una partida de tirano al poder de China
+在21世纪几乎过了四分之一时，经历了这一政权100多年的统治后，中国人民将面临另一个寒冬。想一想，地球上最伟大的文明，21世纪地球上最古老的文明，正面临像一千年前的寒冬。但是暂且不说中共的邪恶、腐败、偷窃、不人道、残暴，先不论这些。仅仅因为中共纯粹的无能，只因为纯粹的无能，他们就应该被扔进垃圾桶，成为历史。
 
-电力腐败的一场大露馅
-Una gran demostración de corrupción de la electricidad
+***编辑：【英国伦敦喜庄园编辑部】***
 
-政治大较量
-Es una gran batalla política
+*字幕：雨中漫步 | 听写：云岭 | 翻译：势不可挡 | PR：Clau | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
 
-我不相信李鹏家族这回能撑得过去
-Yo no creo en que la familia de Li Peng pueda pasarla esta vez
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-所有跟他有关系的
-Todo lo que tenga en relación con él
-
-李鹏家族下边还有谁
-A quién más tienen abajo de la familia de Li Peng
-
-大家去数一数去
-Vayan a sacar la cuenta
-
-李鹏家控制发改委控制能源部门 那简直厉害了
-La familia de Li Peng tiene control del departamento de desarrollo y reforma de la energía, es muy talentoso
-
-中国没抓过能源部门没抓过发改委
-China no ha podido arrestar a ningún miembro del departamento de energía
-
-就说明中国从来没想过抓腐败
-Esto demuestra que en China nunca han pensado en arrestar a los corruptos
-
-你看王歧山上来抓反腐败
-Mira los corruptos que ha arrestado Wang Qishan
-
-他抓发改委了吗 他不敢抓 是吧
-¿Acaso él ha arrestado a alguno del departamento del desarrollo y reforma? No se atreve cierto
-
-他抓中纪委了吗
-¿Ha arrestado a los de la Comisión Central de Inspección Disciplinaria?
-
-他不敢抓
-No se atreve a hacerlo
-
-中纪委都抓了些主任科室的
-En la Comisión Central de Inspección Disciplinaria solo arrestó a los directores
-
-大人物一个不敢动
-Pero de los personajes importantes ni uno se atreve tocar
-
-所以这次停电是共产党的政治大较量的
-Por eso que el corte de luz de esta vez es una gran batalla de la política del comunismo
-
-一场没碰过的板块
-Es un módulo que no se ha tocado
-
-能源板块 发改委
-El módulo de la energía y los miembros de la Comisión de Desarrollo y Reforma
-
-都会动
-Los moverá
-
-发改委上面一定牵扯到中纪委
-Arriba de la Comisión de Desarrollo y Reforma seguro involucrará a la Comisión Central de Inspección Disciplinaria
-
-因为大案要案很多
-Porque hay muchos casos importantes
-
-————————————————
-日期：10/02/2021
-原视频标题：这次停电是中国电力腐败的大暴露
-El corte de luz de esta vez en China es una gran revelación de corrupción
-原视频日期：10/01/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24](https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24)
-任务编号：KC144（2388）
-视频时间段：0:00-1:45
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[![](https://spark.adobe.com/page/mnpJ1dp5O1egA/images/258D830B-8002-49B9-98EE-6CCC0FA2E3C5.jpg?asset_id=2F554E00-9ECC-494B-AACE-5C6EB30910D0&amp;size=1024)](https://spark.adobe.com/page/mnpJ1dp5O1egA/images/258D830B-8002-49B9-98EE-6CCC0FA2E3C5.jpg?asset_id=2F554E00-9ECC-494B-AACE-5C6EB30910D0&amp;size=1024)
