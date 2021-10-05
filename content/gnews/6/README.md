@@ -2,21 +2,17 @@
 ---
 
 
-## 台湾总统：如果倒台，就是民主的灾难
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1574574/)
+## 秘翻在线：杨洁篪再次出马 又是一场新的勾兑？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574596/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10052.jpg)
-岛内总统蔡英文在北京强大的军事压力下发出警告称：“台湾如果最终落入中（共）国手中的话，将对地区和平和民主联盟体系产生灾难性的后果。同时这将表明，在全球背景下的当代价值观，威权主义可以战胜民主”。
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/t_48d1d7bf417341a2bb9b58902e9163c5_name_d6c1beb0_2e87_11eb_9dd6_2d0179981719_scaled.jpg)图片来源：washington post
+根据路透社（Reuters）的报道，由于台湾等多个问题的紧张局势逐渐加剧，美国总统乔·拜登（Joe Biden）的国家安全顾问杰克·沙利文（Jake Sullivan），将与中共最高外交官杨洁篪于本周二和周三在瑞士进行会谈。
 
-同时她还表示，她不寻求军事对抗，希望和平，但警告说：“如果民主生活方式受到威胁，台湾会不惜一切代价保卫自己，我们不会低头”。
+据一位熟悉杰克·沙利文和杨洁篪会谈具体安排的官员透露，这次的会谈目的是重建沟通渠道，落实习近平与拜登之间达成的共识。
 
-中（共）国声称台湾是其领土不可分割的一部分，必要时甚至会以武力统一。自 10 月 1 日以来，北京对台北的防御空间发动了一系列空袭，达到 56 架军用飞机的高峰，其中 38 架歼16 战机。
+中美关系在前川普总统时期出现了急剧恶化，如今拜登政府在香港暴力镇压，新疆种族灭绝以及中共病毒起源的一系列问题上也一直对中共保持压力。特别是在台湾问题上，中共认为美国在台湾问题上支持台湾独立，中共一直对台湾有所企图，甚至在必要时会通过武力夺取。近日台湾报告称，有148架中共飞机入侵台湾的防空区，台湾政府领导人表示，需要对嚣张过火的中共军事活动保持警惕。
 
-蔡说，随着越来越多的国家认识到北京构成的威胁，有必要了解与台湾合作的价值，这被定义为民主和自由的典范，她承诺台湾不会屈服于中（共）国日益加剧的压力。这位总统补充道：“在解放军几乎每天都在闯入的情况下，我们对两岸关系的立场仍然坚定台湾不会屈服于压力，即使国际社会的支持越来越多，我们也不会冒险”。
+不久前七月底的时候，美国副国务卿温迪·谢尔曼 (Wendy R. Sherman) 与中共外交部副部长谢锋在天津举行的面对面会谈，据美国高官透露这场会谈没有商定出任何成果，而且对拜登和习近平的会晤前景也没有任何讨论。
 
-免责申明：本文只代表译者观点，与Gnews无关
-
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/10/05/taiwan-presidente-se-cadiamo-e-catastrofe-per-democrazia\_7620cb86-1d8f-46ae-a685-3ebd8ce33fe3.html](https://www.ansa.it/sito/notizie/topnews/2021/10/05/taiwan-presidente-se-cadiamo-e-catastrofe-per-democrazia_7620cb86-1d8f-46ae-a685-3ebd8ce33fe3.html)
-
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+新闻来源：[U.S. envoy Sullivan to meet China’s top diplomat Yang this week – media](https://www.reuters.com/world/us/us-envoy-sullivan-meet-chinas-top-diplomat-yang-this-week-scmp-2021-10-05/)

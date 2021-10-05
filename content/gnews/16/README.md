@@ -2,46 +2,74 @@
 ---
 
 
-## 解析完吃猪头再解析吃河蟹的胡舒立到底有啥过不去的坎
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1574399/)
+## 西喜时事新闻简报 — 中共国国际时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1574451/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/捕获_副本-5.png)
-在文革中把老师打死的胡舒拉挺善变的，不管她扮作是老舍的女儿，还是套上反共的马甲，但是作为男朋友王岐山的吹鼓手一路为王教宗吹吹打打做前戏的角色是不变的，在2021年10月1日这个中国人民的第七十二个国殇日前，胡舒立的男朋友王岐山的刀把子孙力军被双开了，在国殇日后不是胡舒立的男朋友王歧山的刀把子的傅政华又被公开宣布调查了，兔死狐悲之下的胡舒立在微博上晒起了吃猪头。
+- **编译：西班牙喜悦农场–wenwu**
 
-也许是因为郭文贵先生在盖特上亮出了胡舒立晒猪头的微博 ，现在胡舒立关于吃猪头的新浪微博已经不可见，但取而代之的是胡舒立晒起了吃螃蟹，据[**胡舒立**](https://weibo.com/hushuli?refer_flag=1005055013_) [2021年10月3日 19:16](https://weibo.com/1497882593/KB2V6rz2T?from=page_1003061497882593_profile&amp;wvr=6&amp;mod=weibotime) 来自 [财新App](https://app.weibo.com/t/feed/4VEcMM)
 
-[#财新mini#](https://s.weibo.com/weibo?q=%23%E8%B4%A2%E6%96%B0mini%23&amp;from=default)【憎恨出美食：吃掉螃蟹，才能保住庄稼｜饮食】螃蟹好吃，是吃过之后的结论，而非未吃之前的动机。中国人最初吃螃蟹，应该出自于憎恨[O憎恨出美食：吃掉螃蟹，才能保住庄稼｜饮食](http://t.cn/A6MxP1yy)（来自财新客户端）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/dddd.jpg)
-​​​​
+您若想了解全文报导内容，请点击标题链接
 
-那么这个螃蟹到底是什么梗呢？按图索骥我们来看看财新网是怎么说的，据[憎恨出美食：吃掉螃蟹，才能保住庄稼｜饮食](https://mini.caixin.com/2021-10-03/101783113.html?cxw=IOS&amp;Sfrom=SinaWeibo&amp;originReferrer=iOSshare)（2021年10月03日 17:00 来源于 财新网）：
+（爱惜生命 远离疫苗）
 
-［螃蟹的样子很怪。
+1.[**献礼片《长津湖》：爱国抗美**](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211004-%E7%8C%AE%E7%A4%BC%E7%89%87-%E9%95%BF%E6%B4%A5%E6%B9%96-%E7%88%B1%E5%9B%BD%E6%8A%97%E7%BE%8E)
 
-《梦溪笔谈》载：“关中人不识螃蟹。有人收得一只干螃蟹，人家病虐，就借去挂在门上。”国人过去相信，生疟疾是由于虐鬼作祟，门上挂一只螃蟹，虐鬼不知是什么玩意，就不敢进门了。沈括说，“不但人不识，鬼亦不识也”，这话说得很幽默。沈括是杭州钱塘人，又在延安当过官，此事应是亲见，而非耳闻。当年，关中人不识螃蟹，恐怕只是穷乡僻壤的普通百姓，繁华都市的富贵人家，当不至此。东汉郑玄考证，西周祭祀时便有青州的蟹胥即蟹酱。可见，关中早八辈子就有人不但识蟹，而且食蟹。不过，食蟹之风流行开来，还是以后的事情。（后续内容不可见）］
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip237.png)
 
-习大神是哪里人呢？习大神是陕西富平县人，陕西富平是哪个地区呢？陕西富平是关中地区，原来财新网借吃螃蟹来寓意习大神所在的关中人不识螃蟹，所以本来是用螃蟹来虐鬼的，待得认识了螃蟹又因憎恨螃蟹而吃螃蟹，莫非胡舒立在借螃蟹暗喻今上因不识螃蟹而用螃蟹驱鬼？并再因憎恨螃蟹而必食螃蟹而后快？
+据《法广网》2021年10月4日电，中共国“抗美援朝”题材电影《长津湖》在9月30日烈士纪念日上映，内地多地安排党员干部观看，提出要弘扬爱国主义精神，激发党员干部爱国热情。上映4天票房破13亿元人民币，其中10月2日单日票房达4.27亿元，打破《战狼2》创下的中共国影史战争片单日票房纪录；《长津湖》上映首日票房达2.06亿元，随后国庆节票房更是直线蹿升，占据长假七成票房，连续刷新多项内地影史纪录，包括中共国影史战争片、剧情片等单日票房纪录；第二名的《我和我的父辈》一直落后两亿元左右的票房，两部电影均是中国电影界为庆祝中共国共产党成立100周年的献礼片，占据逾90%的国庆总票房。
 
-其实胡舒立的说法也未必全对，螃蟹其实是分河蟹和海蟹两个大类的，而胡舒立所秀的螃蟹其实是河蟹，不提河蟹而只说螃蟹实属大谬不然矣！河蟹即和谐，此为胡时代矣，河蟹之后已经入梦，而今大梦方醒之际，区区河蟹已经不足以驱鬼，食之又何妨，子系梦中人，何言梦中事！
+长津湖战役是“抗美援朝”战争第二次战役中的一战。志愿军第9兵团在朝鲜东北部长津湖包围联合国军，与美国第10军陆战一师在严寒气候下展开残酷战斗。志愿军因为冻伤、补给不足及武器装备劣于美军而受到严重损失，另一方面，美国第10军此役后也从兴南港的撤离，标志着联合国军完全撤出朝鲜。
 
-撰稿：喜马拉雅的肉夹馍
+《淄博日报》报道，为进一步弘扬爱国主义精神，激发党员干部爱国热情，结合全市党史学习教育安排，山东淄博市9月30日在淄博大剧院组织党员干部集体观看《长津湖》，市委市政府五套班子（即党委、人大、政府、政协、纪委）成员全部参加观看。另外，在河北省和广东省等，官方亦都相继安排党员干部集体看《长津湖》。
 
-审核：喜马拉雅的馍夹肉
+**2. [中共国派遣创纪录的52架战机进入台湾领空，台湾已备战](https://www.thegatewaypundit.com/2021/10/taiwan-says-preparing-war-china-sends-record-52-warplanes-taiwan-airspace/)**
 
-校对：Maarago
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip239.png)
 
-（文章内容仅代表作者个人观点）
+据《门户网》2021年10月4日电，[中共国正在加大](https://americanmilitarynews.com/2021/10/china-sends-record-52-warplanes-into-taiwan-defense-zone-taiwan-says-its-preparing-for-war/?utm_medium=email&amp;utm_source=Master_List&amp;mc_cid=177b1fa6cf&amp;mc_eid=899bfadf04)对台湾的[压力](https://americanmilitarynews.com/2021/10/china-sends-record-52-warplanes-into-taiwan-defense-zone-taiwan-says-its-preparing-for-war/?utm_medium=email&amp;utm_source=Master_List&amp;mc_cid=177b1fa6cf&amp;mc_eid=899bfadf04)：就在上次绕台湾岛进行破纪录的军事飞行两天后，中共国周一向台湾的防空识别区（ADIZ）派出了有史以来最大的单波战机。总共有 [52](https://twitter.com/MoNDefense/status/1444998286197231617?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1444998286197231617%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.thegatewaypundit.com/2021/10/taiwan-says-preparing-war-china-sends-record-52-warplanes-taiwan-airspace/) 架中国人民解放军飞机突破了台湾的防空识别区![Image]()。针对中共国不断加大军事压力的模式，台湾外交部长吴钊[燮](https://www.abc.net.au/news/2021-10-04/taiwan-preparing-for-war-with-china/100511294)在接受澳大利亚ABC新闻采访时[表示](https://www.abc.net.au/news/2021-10-04/taiwan-preparing-for-war-with-china/100511294)，如果中共国发动袭击，台湾准备进行反击。周一，中共国军用飞机总共包括 36 架 J-16 和 Su-30 战斗机、12 架具有核能力的 H-6 轰炸机、2 架 Y-8 反潜战 (ASW) 飞机和两架 KJ-500 空中预警机和控制 (AEW&C) 飞机。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+中共国的行动和言论正在加速升级，这就是台湾正在准备战争的原因。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**3. [中共国52架军机模拟攻防航母兼施压台湾？](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211004-%E4%B8%AD%E5%9B%BD52%E6%9E%B6%E5%86%9B%E6%9C%BA%E6%A8%A1%E6%8B%9F%E6%94%BB%E9%98%B2%E8%88%AA%E6%AF%8D%E5%85%BC%E6%96%BD%E5%8E%8B%E5%8F%B0%E6%B9%BE)**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip240.png)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+据《法广网》2021年10月4日电，英航舰进南海之际，中共国52架军机周一（4日）扰台西南ADIZ创下纪录；战略学者林颖佑、张延廷指出，美日英航舰群甫结束在周边海域的演练，而伊莉莎白航舰群今天经巴士海峡进入南海，中共此举可能是对英航舰模拟攻防，并施加台湾压力，具政治及军事意义（中共电战机排序在前，轰炸机、战机、空警500预警机依序排列，此序列代表的是编队打击机群） ；统计自10月1日至今晚8时止，已有145架次共机扰台。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+熟悉中共军事的中山大学亚太英语学程兼任助理教授林颖佑受访表示，今天的打击机群是否剑指台湾、并不一定，因为同一时间，美日英荷兰加拿大等国也在台湾周边海域演训；共军此举是想透过施加台湾压力，并展现实力给周边国家看，具有政治及军事意义；美日英三国的航舰军演，可能是在模拟台湾海峡出现状况，并由英国伊莉莎白航舰担任“红军”解放军角色，配合卡尔文森号、里根号进行红蓝军对抗，甚至海面下也有潜舰在模拟共军A2/AD（反介入/区域拒止）时，美国及盟邦该如何应对；共机10月1日经由西南ADIZ深入台湾南方及东南方空域时，最大的目的都是向美国及周边国家传递讯息，但对台湾来说，此举代表共军具有打击台湾东部的能力；此是否代表台湾在南部、东部的防范及准备要与过往不同，包括在东部兴建战备跑道以应对新威胁，都是该思考的新方向。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+已退役的前空军副司令、清华大学荣誉教授张延廷中将受访指出中共连续3天出动破百架共机扰台，可能是造成台湾股市下跌的其中一个原因，目的也是以心理战扰乱台湾民心，不仅恫吓台湾民众，也对美国、英国等国示威；共军今天已是打击编队，空军官兵在空驱离时，务必慎防擦枪走火，且台湾在动员及后勤上必须要有所加强跟应变；国殇日没有阅兵，但却把兵力移到台海周边进行演练，除了体现“仗在台海打、兵就在台海练”的意义外，由于中国的民族主义正在上升，中共当局此举也是要对国内有所交代。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**4. [北京大机群侵扰台湾后，美英3艘航母举行联合军演](https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip241.png)
+据《美国之音》2021年10月5日电，刚刚结束在中东部署的美国海军里根号航母（USS Ronald Reagan）、美国海军卡尔文森号航母（USS Carl Vinson）、英国皇家海军伊丽莎白女王号航母（HMS Queen Elizabeth）以及日本、加拿大、荷兰和新西兰共计17艘各式舰艇在冲绳西南方的菲律宾海会和，举行了周六、日（2、3日）的联合演习，演练包括了防空和反潜战、海上机动和通讯；这次联合演习的目的，是要加强各国的合作，以实现“自由且开放的太平洋”。
+
+国国务院发言人普赖斯（Ned Price）星期天发布声明，指责中共国对台湾施加的军事压力有导致误判的危险并破坏了地区的和平与稳定；台湾中央社报道，周一（4日）共有56架解放军军机扰台，是台湾国防部报告中共军机动态以来数量最多的一次；台湾行政院陆委会表示，共军此举升高区域紧张，要求北京当局立即停止非和平、不负责任的挑衅行径。
+
+**5. [浙江购哈萨克斯坦煤 运煤船要跑1万5700公里](https://www.epochtimes.com/gb/21/10/4/n13281654.htm)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip242.png)
+
+据《大纪元》2021年10月5日电，[浙江](https://www.epochtimes.com/gb/tag/%E6%B5%99%E6%B1%9F.html)省首次于周一向哈萨克斯坦采购煤炭，以缓解该省电煤紧缺。由于限电，浙江省纺织业开工不足，下游产品价格可能上涨；这批13.6万吨的[哈萨克斯坦煤](https://www.epochtimes.com/gb/tag/%E5%93%88%E8%90%A8%E5%85%8B%E6%96%AF%E5%9D%A6%E7%85%A4.html)，是浙能集团所属富兴燃料公司采购自六横煤炭中转码头，装载这批煤炭的MV CARO号（卡罗）船在海上跑了30天，航行8501海里（约1万5700公里），还包括路上运煤的高昂成本。
+
+采购煤炭的富兴燃料公司是浙江最大的煤炭购销企业，该公司于六七月份还采购了两船美国煤，总量13万吨，这也是该公司首次采购美国动力煤；中共国南方消费者最近购买的俄罗斯煤炭价格超出同类澳洲煤炭价格近50%；而印尼一种煤炭价格超过澳洲煤炭，热量却比澳洲煤炭低近20%。
+
+从9月上旬开始，中国二十余省份先后拉闸限电，波及从东北到广东多地，甚至北京和上海也发出有关限电的通知（根据各地通知，限电时间至9月末或至10月中旬不等，甚至可能还将持续到年底）；截至9月23日，绍兴地区印染企业平均开概率为32.37%，同比下降44.43%。随上游纺织印染费上涨，下游服饰、窗帘等产品的价格也将全面上涨。
+
+**6. [误会大了！中国不是要救恒大 北京当务之急是…](https://www.aboluowang.com/2021/1005/1655366.html)**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip243.png)
+
+据《阿波罗新闻网》2021年10月5日电，随著中国[恒大](https://www.aboluowang.com/tag/%E6%81%92%E5%A4%A7-1.html)集团接近大规模重组，北京已加大力度限制其可能带来的冲击，彭博报导指出， 中共当局对直接救助这家房地产开发商兴趣不大，而是要防堵恒大可能引发的连锁反应：
+
+仅在上周， 中共当局就派出最高金融监管机构来引领大型银行，放宽对购房者的信贷并支持房地产业；中共国央行在5个交易日累计净投放4600亿元人民币（约2.02兆台币）以缓解流动性；恒大出售了盛京银行的部分股权；Marathon Asset Management执行长Bruce Richards说，北京当务之急是确保购买房屋的屋主能获得兑付并全身而退；**Bruce Richards**认为排在最后的是离岸债券持有人（公开放弃了中共国的贷款信用）。
+
+彭博指出，北京的行为反映它愿意牺牲全球债券持有人，来支持中共国整个房地产市场与行业的健全；根据哈佛大学经济学家罗格夫（Ken Rogoff）的最新研究，恒大倒闭之际，如果波及其他房地产公司，其冲击可能会破坏这个占[中共国经济](https://www.aboluowang.com/tag/%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E-1.html)29%之行业的稳定；根据穆迪投资者服务公司的数据，今年上半年中共国约有12家房地产公司债券违约，总额达190亿元人民币（832.77亿台币）。
+
+（文章仅代表作者本人观点，与Gnews无关）
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

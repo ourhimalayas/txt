@@ -15,140 +15,140 @@
 
 ---
 
-### [拜登担心他的总统宝座](/content/gnews/1/README.md)
- ` Shuizhuyu`
-
-### [秘翻在线：杨洁篪再次出马 又是一场新的勾兑？](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文贵先生9月12日G-TV大直播摘要](/content/gnews/3/README.md)
- ` 纽约香草山MOS02`
-
-### [2021/10/05 墙内世界](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国缺的不仅是电，还有智商](/content/gnews/5/README.md)
- ` 银河勇气之星`
-
-### [台湾总统：如果倒台，就是民主的灾难](/content/gnews/6/README.md)
- ` Charlie`
-
-### [抗冠状（中共）病毒药丸](/content/gnews/7/README.md)
- ` Charlie`
-
-### [面对排华我们该做什么?](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [针下亡魂｜法国 17 岁女学生接种疫苗7日后死亡](/content/gnews/9/README.md)
- ` G&#124;News TAIWAN`
-
-### [秘翻在线：拜登政府将重新开启与中共国的贸易谈判](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [方舟一周年感恩会 感恩方舟](/content/gnews/11/README.md)
+### [美国大型社交媒体网站宕机，盖特正常运行](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/12/README.md)
- ` wenwu`
+### [10月1日南澳线下活动：国殇日走上街头抗议中共72年暴政](/content/gnews/2/README.md)
+ ` 澳喜农场`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/13/README.md)
- ` wenwu`
+### [DC大中华时事：新中国联邦会尊重台湾人民的选择](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [2.05亿美元债违约，“花样年”还能挺多久？](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [普罗米修斯](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [新加坡本地加密货币交易所正式跨入“有照运营”时代](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [拜登担心他的总统宝座](/content/gnews/5/README.md)
+ ` Shuizhuyu`
 
-### [解析完吃猪头再解析吃河蟹的胡舒立到底有啥过不去的坎](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [疫苗灾情｜爱尔兰 28 岁医科女学生接种疫苗后瘫痪](/content/gnews/17/README.md)
- ` G&#124;News TAIWAN`
-
-### [【新闻速递】接种两针疫苗的艾美奖得主死于新冠病毒](/content/gnews/18/README.md)
- ` 温哥华扬帆农场`
-
-### [“潘多拉文件”曝阿里巴巴蔡崇信财富秘密](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西喜时事新闻简报 — 中共病毒时事篇(2)](/content/gnews/20/README.md)
- ` wenwu`
-
-### [大鱼海棠·不可能的故事](/content/gnews/21/README.md)
- ` 纽约香草山MOS03`
-
-### [“潘多拉文件”或摧毁避税天堂](/content/gnews/22/README.md)
+### [秘翻在线：杨洁篪再次出马 又是一场新的勾兑？](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新日本首相岸田文雄和拜登承诺一起保护钓鱼岛](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
+### [文贵先生9月12日G-TV大直播摘要](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
 
-### [针下亡魂｜美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](/content/gnews/24/README.md)
- ` G&#124;News TAIWAN`
-
-### [傅政华成为中共权斗的弃子](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线:艾美奖得主皮尔切因中共病毒去世](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [推特封杀mRNA技术创始人之一及Moderna 联合创始人的账号](/content/gnews/27/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [美国SEC的腐败与官僚引发不满，GTV投资人到DC总部进行抗议](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [《GTV新闻访谈》疫情简讯](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [接种疫苗后男子无法控制身体平衡，双腿不停抽搐](/content/gnews/30/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [对华贸易政策揭晓：寻求对话 但保持对北京施压](/content/gnews/31/README.md)
+### [2021/10/05 墙内世界](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月4日郭先生盖特 — 视频盖特1「9分57秒」](/content/gnews/32/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [中共国缺的不仅是电，还有智商](/content/gnews/9/README.md)
+ ` 银河勇气之星`
 
-### [显微镜下的摩德纳疫苗发现有会移动并自我组装的物质](/content/gnews/33/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [台湾总统：如果倒台，就是民主的灾难](/content/gnews/10/README.md)
+ ` Charlie`
 
-### [强生疫苗中有疑似石墨烯、纳米脂质、球体结构等不应出现的东西](/content/gnews/34/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+### [抗冠状（中共）病毒药丸](/content/gnews/11/README.md)
+ ` Charlie`
 
-### [10/04/2021七哥盖特：公检法的人已变成行尸走肉](/content/gnews/35/README.md)
- ` 秘密翻译组-北美组`
+### [面对排华我们该做什么?](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [中共国56架飞机飞入台湾领空](/content/gnews/36/README.md)
+### [针下亡魂｜法国 17 岁女学生接种疫苗7日后死亡](/content/gnews/13/README.md)
+ ` G&#124;News TAIWAN`
+
+### [秘翻在线：拜登政府将重新开启与中共国的贸易谈判](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生2021年10月4日盖特视频（9分57秒）全文字版](/content/gnews/37/README.md)
+### [方舟一周年感恩会 感恩方舟](/content/gnews/15/README.md)
+ ` 日本东京方舟农场`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/16/README.md)
+ ` wenwu`
+
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/17/README.md)
+ ` wenwu`
+
+### [2.05亿美元债违约，“花样年”还能挺多久？](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/04/2021七哥盖特：中共病毒和疫苗灾难是一场全人类的坏人大清洗](/content/gnews/38/README.md)
+### [新加坡本地加密货币交易所正式跨入“有照运营”时代](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [解析完吃猪头再解析吃河蟹的胡舒立到底有啥过不去的坎](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [疫苗灾情｜爱尔兰 28 岁医科女学生接种疫苗后瘫痪](/content/gnews/21/README.md)
+ ` G&#124;News TAIWAN`
+
+### [【新闻速递】接种两针疫苗的艾美奖得主死于新冠病毒](/content/gnews/22/README.md)
+ ` 温哥华扬帆农场`
+
+### [“潘多拉文件”曝阿里巴巴蔡崇信财富秘密](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西喜时事新闻简报 — 中共病毒时事篇(2)](/content/gnews/24/README.md)
+ ` wenwu`
+
+### [大鱼海棠·不可能的故事](/content/gnews/25/README.md)
+ ` 纽约香草山MOS03`
+
+### [“潘多拉文件”或摧毁避税天堂](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新日本首相岸田文雄和拜登承诺一起保护钓鱼岛](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [针下亡魂｜美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](/content/gnews/28/README.md)
+ ` G&#124;News TAIWAN`
+
+### [傅政华成为中共权斗的弃子](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线:艾美奖得主皮尔切因中共病毒去世](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [推特封杀mRNA技术创始人之一及Moderna 联合创始人的账号](/content/gnews/31/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [美国SEC的腐败与官僚引发不满，GTV投资人到DC总部进行抗议](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [《GTV新闻访谈》疫情简讯](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [接种疫苗后男子无法控制身体平衡，双腿不停抽搐](/content/gnews/34/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [2021年10月4日郭先生盖特 — 视频盖特1「9分57秒」](/content/gnews/35/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [显微镜下的摩德纳疫苗发现有会移动并自我组装的物质](/content/gnews/36/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [强生疫苗中有疑似石墨烯、纳米脂质、球体结构等不应出现的东西](/content/gnews/37/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [10/04/2021七哥盖特：公检法的人已变成行尸走肉](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施](/content/gnews/39/README.md)
+### [中共国56架飞机飞入台湾领空](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵先生2021年10月4日盖特视频（9分57秒）全文字版](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [10/04/2021七哥盖特：中共病毒和疫苗灾难是一场全人类的坏人大清洗](/content/gnews/41/README.md)
+ ` 秘密翻译组-北美组`
+
+### [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [美国贸易主任公布拜登政府最新中共国贸易战略](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [币圈新闻动态：喜交所团队与伙伴合作推动在日本上市](/content/gnews/42/README.md)
+### [币圈新闻动态：喜交所团队与伙伴合作推动在日本上市](/content/gnews/43/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：中共国的经济危机已经到来，将影响整个世界](/content/gnews/43/README.md)
+### [每日快报：中共国的经济危机已经到来，将影响整个世界](/content/gnews/44/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [聚焦：习大神如何干掉美元欧元？](/content/gnews/44/README.md)
+### [聚焦：习大神如何干掉美元欧元？](/content/gnews/45/README.md)
  ` 军迷wilson`
-
-### [罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生](/content/gnews/45/README.md)
- ` GTV新闻访谈`
 
 ### [拜登政府将恢复中美贸易谈判并降低部分关税](/content/gnews/46/README.md)
  ` HimalayaRussia`

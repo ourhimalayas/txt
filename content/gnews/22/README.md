@@ -2,18 +2,24 @@
 ---
 
 
-## “潘多拉文件”或摧毁避税天堂
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574220/)
+## 【新闻速递】接种两针疫苗的艾美奖得主死于新冠病毒
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1574377/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-10.jpg)图片来源：BBC
-美联社10月4日华盛顿报道，一份绰号为“潘多拉文件”的调查报告于星期天公布，文件内容与个人采用秘密司法管辖区（又称避税天堂）来逃避税收有关。文件曝光后，要求终止《金融保密协议》的呼声越来越高，该协议允许世界上许多最富有的人和最有权力的人隐藏他们的财富不受税务管辖。
+温哥华扬帆农场 – 翻译：jamie\_Luffy
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211004-jamie_Luffy-接种两针疫苗的艾美奖得主死于新冠病毒.jpg)图片来源:
+[https://www.hollywoodreporter.com/tv/tv-news/marc-pilcher-dead-bridgerton-1235024983/](https://www.hollywoodreporter.com/tv/tv-news/marc-pilcher-dead-bridgerton-1235024983/)
+现年53岁，两周前刚刚在美国洛杉矶凭借电视剧《布里奇顿》(Bridgerton) 赢得艾美奖最佳角色发型设计奖的英国美妆造型师马克·埃利奥特·皮尔彻 (Marc Elliot Pilcher)，于10月3号上周日死于新冠病毒。而皮尔彻此前接种了两针疫苗，并且身体没有任何潜在疾病。
 
-潘多拉文件揭示了世界上的领导人、亿万富翁和一些其他人利用空壳公司和离岸公司账户使得数万亿美元的钱在过去25年中不受国家财政部监管，限制了帮助穷人和与气候变化作斗争的资源。这份报告由国际财团调查记者组所作，由来自150个媒体网点涉及117个国家的600多名记者参与完成。它将带来税收改革和要求相关人员辞职和接受调查，以及等待相关人员的解释和否认。
+他的家人悲痛的表示，皮尔彻为了从英国飞往洛杉矶参加9月19日的艾美奖，进行了多次新冠检测，均呈阴性。而就在他返回英国不久，被发现感染了新冠病毒，在上周末病情迅速恶化，最终于周日死亡。
 
-有数百名政治人物、名人、宗教领袖和药物掮客利用空壳公司或其他策略隐藏他们的财富、游艇和其他财产，根据综述有近1200份文件，和来自世界不同地方的14家公司。有330个现任和以往的政治人物作为受益人，如约旦国王阿布杜尔二世，英国前首相托尼·布莱尔，捷克共和国总理安德烈·巴比什，肯尼亚总统乌胡鲁·肯雅塔，还有厄瓜多尔总统和巴基斯坦总理以及俄罗斯总统普京。其中有些人强烈否认这个指控。
+值得注意的是，9月19日在[洛杉矶市中心](https://zh.wikipedia.org/wiki/%E6%B4%9B%E6%9D%89%E7%A3%AF%E5%B8%82%E4%B8%AD%E5%BF%83)的[洛杉矶活力](https://zh.wikipedia.org/w/index.php?title=%E6%B4%9B%E6%9D%89%E7%9F%B6%E6%B4%BB%E5%8A%9B&amp;action=edit&amp;redlink=1)Event Deck举行的艾美奖颁奖典礼上，只有工作人员被要求佩戴口罩，而参加的明星却没有。洛杉矶县公共卫生局表示，这些享受特权的明星并没有违反该县的强制口罩规定，因为根据“额外安全修改条例”，强制口罩令不适用于电影、电视和音乐活动。
 
-今年7月，130个国家同意全球最低税率15%的计划，以防止大型跨国公司将利益从高税收转向低税收国家，如百慕大和开曼群岛。该计划预计2023年实行，但这个计划不包括空壳公司和其他企业。
+这个发奖仪式应该都是全部接种了两针疫苗的精心打扮的明星们，但是却变成了一个致命的超强传播群！
 
-新闻来源： [‘Pandora Papers’ bring renewed calls for tax haven scrutiny](https://apnews.com/article/leaked-pandora-records-show-how-powerful-shield-assets-b31daac39800f6a6423e24465df45ffc)
+参考链接：
+
+[https://www.thegatewaypundit.com/2021/10/double-vaccinated-emmy-winner-dies-covid-19-two-weeks-attending-award-ceremony-unmasked-celebrities/](https://www.thegatewaypundit.com/2021/10/double-vaccinated-emmy-winner-dies-covid-19-two-weeks-attending-award-ceremony-unmasked-celebrities/)
+
+*编审：**abbs*
+
+*发布：Shuang*

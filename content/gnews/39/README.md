@@ -2,35 +2,22 @@
 ---
 
 
-## 新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573910/)
+## 中共国56架飞机飞入台湾领空
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573975/)
 
-栏目记者/责任编辑：文真
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-12.jpg)图片来源：雅虎
+据合众国际社10月4日报道，台湾国防部表示，周一有56架中共国战机飞入其防空识别区。白天52架，晚上4架，这是自台湾开始公开报告闯入其防空识别区的中共飞机事件以来，单日的最高总数。
 
+在台国防部的一份声明中说，当天闯入其领空的飞机包括34架J-16战斗机，12架H-6轰炸机，2架SU-30战斗机，2架Y-8反/潜战机和2架KJ-500空中预警和控制飞机。台空军已发出无线电警告，告知这些飞机 “立即掉头离开”，并部署了防空导弹系统来监测这些活动。
 
+根据国防部的数据，自10月初以来，共有145架中共国战机飞入其防空识别区。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
+周日，美国敦促中共国停止在台湾附近的 “挑衅性军事活动”。
 
+中共国外交部周一继续为其挑衅行为狡辩，并称美国的言论是 “不负责任的”。
 
+看来，习近平为了巩固其大神地位和国内日趋紧张的政治和经济矛盾，已经做好了侵略台湾的准备。但是这个独裁者的“美梦”不会得逞！
 
-美联社报道，10月4日，新西兰政府终于肯承认现实——封锁措施不能完全消除中共病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4.jpg)
-此前，为达到“新冠零病例”的目的，新西兰的封锁政策已经实施了七周，奥克兰街道上抗议封锁的人群也在不断增加。他们批评政府反应过度，借疫情封锁剥夺人权和自由。封锁政策不但未能平息新冠疫情的复发，反而，给新西兰的经济中心和人口最多的城市——奥克兰，带来了巨大的经济压力。对此，新西兰总理阿德恩宣布一项谨慎的计划，以放松奥克兰的封锁限制，放弃了已经实施了18个月的中共病毒疫情指导性政策。
-
-（本文仅代表作者观点）
-
-参考链接：[新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施](https://www.zerohedge.com/covid-19/new-zealand-finally-abandons-controversial-covid-zero-policy-promises-roll-back-lockdowns)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：Ryan
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+新闻来源：[56 Chinese aircraft fly into Taiwan’s airspace](https://www.upi.com/Top_News/World-News/2021/10/04/Taiwan-56-Chinese-aircraft-fly-into-Taiwan-airspace/9791633380483/)

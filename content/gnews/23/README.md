@@ -2,20 +2,20 @@
 ---
 
 
-## 新日本首相岸田文雄和拜登承诺一起保护钓鱼岛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574218/)
+## “潘多拉文件”曝阿里巴巴蔡崇信财富秘密
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574373/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-21.jpg)图片来源：网络截图
-10月5日据日经网报道，日本新首相岸田文雄周二表示，他收到了乔·拜登总统的“强烈”信息，称美国致力于保护有争议的被称为钓鱼岛的东海小岛。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-82.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/jingmao/rc-10042021135415.html)
+据“看中国”10月4日讯，名为“[潘多拉文件](https://www.secretchina.com/news/gb/tag/%E6%BD%98%E5%A4%9A%E6%8B%89%E6%96%87%E4%BB%B6)”的跨国调查报导揭露，有35位现任和前任国家领袖，以及多名富豪都曾透过离岸公司进行避税、转移个人财产等行为。其中，阿里巴巴集团董事会执行副主席蔡崇信也遭曝光。
 
-岸田文雄在总理官邸告诉记者，周二上午持续了大约20分钟的电话会谈中，盟国还确认了他们为实现自由开放的印太合作。他说，总统特别对美国捍卫日本的承诺发表了强烈评论，包括《美日安全条约》第5条，指的是美国对日本的国防义务，这些义务涵盖这个无人居住的岛屿。
+10月4日，据《德国之声》报道，由国际调查记者联盟（ICIJ）及包括德国之声土耳其语组在内共150家媒体组成的团队跨国调查发现，全世界有330多名高层政要人物和公职人员与离岸账户有关联。离岸账户通常被用来秘密管理和转移大笔资金，以隐匿个人的真实财富。包括英国前首相布莱尔（Tony Blair）、约旦国王和肯尼亚总统肯雅塔（Uhuru Kenyatta）以及多名富豪都在名单之上。身家约145亿美元、拥有加拿大国籍的[蔡崇信](https://zh.wikipedia.org/zh-cn/%E8%94%A1%E5%B4%87%E4%BF%A1)，是[阿里巴巴集团](https://zh.wikipedia.org/zh-cn/%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E9%9B%86%E5%9B%A2)创办人之一，也是其第二大股东。不过，根据中共当局的规定，蔡崇信作为外国籍人士不能直接投资于中国的科技、媒体及某些行业，于是就透过一些在海外税务天堂注册的附属公司来持有阿里巴巴集团股权。“潘多拉文件”调查报告显示，[蔡崇信](https://www.secretchina.com/news/gb/tag/%E8%94%A1%E5%B4%87%E4%BF%A1)的名字出现在至少十几家公司中，这些公司注册地处在英属维尔京群岛、开曼群岛和巴哈马在内的离岸避税天堂。参与“潘朵拉文件”调查的香港媒体《立场新闻》报导，蔡崇信透过多家离岸公司及个人，持有阿里巴巴数以百万计股权，其中一家离岸公司是1999年于英属维尔京群岛注册的MFG Limited，[阿里巴巴集团](https://www.secretchina.com/news/gb/tag/%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E9%9B%86%E5%9B%A2)亦于同年注册。报导说，2003年12月，蔡崇信将MFG Limited持有的超过300万股阿里巴巴股份，以赠与的方式转让给在英属维尔京群岛注册的PMH Holding。2年后，蔡崇信成为PMH Holding的唯一董事。5年后的2010年，MFG又从PMH购回差不多同等数量的股权。根据报导，多伦多大学金融系教授杰佛利（Craig Geoffrey）认为，股份是给阿里巴巴集团股东的报酬，包括蔡崇信本人；蔡崇信明显是透过多家离岸公司处理阿里巴巴的多项交易，包括上市计划。
 
-64岁的前外交部长岸田文雄公布了由前首相安倍晋三和前财政部长麻生太郎的盟友主导的内阁阵容。
+“[潘多拉文件](https://www.secretchina.com/news/gb/tag/%E6%BD%98%E5%A4%9A%E6%8B%89%E6%96%87%E4%BB%B6)”，是国际调查记者联盟（ICIJ）有史以来最大的一项新闻合作项目，对金融保密情况进行最大规模的揭露。来自117个国家的600多名记者合作，检视了1190万份文件之后共同发布了这项调查结果。
 
-安倍的兄弟国务部长Kishi Nobuo Kishi和外交部长Toshimitsu Motegi都保住了自己的职位，这反映了岸田文雄打算继续推动安倍加强与华盛顿的安全关系，同时保持与中国的贸易关系。
+信息来源：[“潘朵拉文件”揭开阿里巴巴集团的秘密(图) – 财经新闻 – (移动版)](http://cn.secretchina.com/news/gb/2021/10/04/985547.html)
 
-新总理还将深化与美国、澳大利亚、印度和日本（被称为四方）的接触，北京认为这是遏制其崛起的努力。
-
-原文链接：[Japan PM Kishida and Biden commit to defending Senkaku Islands](https://asia.nikkei.com/Politics/International-relations/Japan-PM-Kishida-and-Biden-commit-to-defending-Senkaku-Islands)
+（文章仅代表作者本人观点，与GNEWS无关）
+*校对：东京樱花团/上善若水
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-5.png)

@@ -2,25 +2,139 @@
 ---
 
 
-## 对华贸易政策揭晓：寻求对话 但保持对北京施压
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574132/)
+## 推特封杀mRNA技术创始人之一及Moderna 联合创始人的账号
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574171/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-2.jpg)对华贸易政策揭晓：寻求对话 但保持对北京施压 网络图片
-美国贸易代表戴琪10月4日在华盛顿智库战略与国际研究中心发表讲话称，中共国没有全面履行与特朗普政府达成的美中“第一阶段贸易协议”，只完成了包括知识产权、强制技术转让，采购美国商品以及改善美国农产品和金融服务的市场准入。对美国的采购目标仅完成了62%。
+So, it is very interesting
+因此，特别有意思的是
 
-美方将保留未来对中共国使用单方面贸易措施的权力，包括启动“301条款调查”和加征新的关税来保持对北京履行贸易协议的压力。拜登政府七个多月对华贸易政策评估的结论是，更多的谈判无法使中共国改变做法，这表明美方不打算与中共国展开所谓的“第二阶段贸易谈判”。
+but one of the founders of the mRNA technology
+mRNA技术的创始人之一
 
-但拜登政府不想激化与中共国的贸易紧张关系。拜登政府将重新启动一个有针对性的“关税排除”程序，以达到“持久的共存”这一新的说法。美国将努力在不同的基础上与中共国“重新连接”，而不是“脱钩”。
+His name is Luigi Warren
+他叫 Luigi Warren
 
-美国成衣及鞋业协会对拜登政府将延续对华商品关税表示失望。这种关税对美国消费者、美国工人和美国企业是有伤害的。美国贸易谈判代表戴琪对中共国贸易政策比预期的强硬，但拜登政府对中共的绥靖和妥协相比川普政府还是软弱。对待中共这种流氓体制，拳头远比语言有效。
+And we didn’t even really know his name
+我们以前甚至不知道他的名字
 
-新闻参考链接：[https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL](https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL)
+until a couple of days ago
+直到在几天前才知道他是谁
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+he has a Twitter account actually
+Luigi Warren有个Twitter推特账户
 
+and he tweeted the other day
+他前几天发了推
 
-编辑：【英国伦敦喜庄园编辑部】
+that hey, guess what?
+但是，嘿，你猜怎么着？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+Because I am one of the founders
+（他发的推说：）
+
+of the mRNA vaccine technology
+我是MRNA疫苗技术的创始人之一
+
+and I am one of the co-founders
+我是Moderna的联合创始人之一，
+
+of Modera that helped to build Moderna
+并帮助建立了Moderna公司，
+
+I can actually attest to the fact that:
+我的确可以证明这个事实：
+
+Yes, the shedding, the vaccine shedding
+是的，（尖峰蛋白）脱落，
+
+of the spike protein is real
+疫苗的尖锋蛋白脱落现象是真实存在的
+
+It actually does occur
+这种情况确实存在
+
+Now when it occurs,
+他说当发生脱落的时候
+
+he says it occurs in smaller amounts that
+如果这个人的脱落数量很少
+
+is most likely not harmful
+很有可能不会造成危害
+
+or is going to cause diseases in other people
+或是不会导致其他人生病
+
+but actually, it is real.
+但这种脱落现象是真实存在的，
+
+and it does occur
+它确实有发生
+
+Because he posted that tweet on Twitter
+就因为他在推特上发了这种推
+
+Guess what? the Twitter police came
+你猜怎么着？“推特网警”巡查，
+
+and suspended his account
+暂停了他的账户
+
+They said (it was a) fake news
+推特说他发布的这些是假新闻
+
+Now he is appealing that
+现在他正在上诉
+
+He said he is not backing down
+他说他不会退缩
+
+He said this would be appealed
+他将会采取上诉手段
+
+He said: “just appealed as follows”:
+他说他的诉求主要是：
+
+the tweet you locked me out for is correct
+我发布的推特内容是正确的信息
+
+I am the inventor of the (mRNA) technology,
+我是（mRNA）技术的发明者 (之一)
+
+from which Moderna was founded
+（基于此此技术），我也成为了 Moderna公司创立人(之一 )
+
+Look it up
+可以随意去验证我的背景是否属实
+
+I think I know what I am talking about。
+我想我知道我在说什么。
+
+and he says again he is continuing to go through more bogus lockdowns
+他又说，他还会持续被（推特）封掉更多的账户
+
+for posting absolutely correct statements on Twitter
+就因为他在推特上发布的这些言论是绝对正确的
+
+文字听写翻译：UCool 优酷
+
+视频字幕：Kent
+
+编辑/发稿：云起时
+
+*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
+
+* * *
+
+更多加拿大枫叶农场的频道，请关注：
+
+[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+
+[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+
+[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+
+[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
+
+[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
