@@ -2,37 +2,46 @@
 ---
 
 
-## 美国大型社交媒体网站宕机，盖特正常运行
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1574642/)
+## 联邦机构称其雇员需在下月完成拜登的疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1574679/)
 
-**撰稿：日本东京方舟农场 海星**
+- 编译：Lulumi
 
-10月5日，美国大型社交媒体网站Facebook、Messenger、Instagram、即时通讯软件WhatsApp等出现大规模宕机。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/JOE-BIDEN-2-e1631502366609-1200x633-1.jpg)2021年9月9日，美国总统乔-拜登在白宫国宴厅发表关于防治COVID-19大流行病的讲话。(Kevin Dietsch/Getty Images)
+在联邦人事管理办公室（OPM）主任基兰·阿胡贾(Kiran Ahuja)于10月1日发布的一份备忘录中，OPM建议联邦工作人员不要等到最后一刻才接种疫苗，因为”其他事件往往干扰了即使是精心安排的计划”。
 
-据报道，监测网络状况的网站DownDetector显示，大量用户报告称Twitter、T-Mobile 、AT&T、亚马逊云服务和谷歌服务均出现问题。除此之外，Facebook、Messenger、Instagram和WhatsApp等Facebook旗下应用均出现故障。
+阿胡贾说：”拒绝接种疫苗或提供疫苗接种证明的雇员将受到纪律处分，甚至包括被免职或终止联邦服务。唯一的例外是根据既定机构程序获得法律规定例外的个人。”
 
-尤其是扎克伯格的Facebook全网宕机，连内网都废了。据了解，Facebook网页上的错误消息表明存在域名系统 (DNS) 错误，并有Facebook员工披露，由于无法使用门禁卡，一度不能进入办公大楼评估网络故障。
+他写道，拜登的行政命令的指导意见指出，联邦雇员需要在11月8日之前完全接种这三种疫苗中的任何一种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9a5b2e9a705b0aa0610da0f067a9e79f_500x0.jpg)图片来自于网络
+根据该备忘录，对于辉瑞公司的接受者，联邦工作人员应该”在第一次接种后3周（21天）进行第二次接种”，这”意味着为了让联邦雇员满足11月22日的最后期限，他们应该不迟于10月18日接种第一次疫苗，不迟于11月8日接种第二针”。
 
-目前，Facebook等社交媒体已逐步恢复运行，但此次时长近7小时的宕机，成为脸书最严重的一次网络访问事故，影响到全球数十个国家和地区用户。而在此期间，社交媒体盖特一直正常运行，成为全球各地用户的唯一发声渠道。
+阿胡贾说，接受莫德纳的人应该在10月11日之前接种他们的第一针，在11月8日之前接种第二针。
 
-对此，盖特总裁杰森·米勒在盖特上表示，盖特不仅在思想上提倡言论自由，在技术上也非常卓越，优于各类大型社交媒体。因此，它成为了有史以来增长最快的社交媒体平台，并仍在不断发展壮大。
+备忘录说：”由于强生疫苗只有一针，联邦雇员必须在11月8日之前获得该剂量，以便在2021年11月22日的最后期限之前完全接种疫苗。”
 
-他强调，“是时候对大型社交媒体的删除行为说再见了！”
+9月9日，拜登宣布了针对联邦政府、医疗保健部门和私营企业的全面措施。与此同时，一些由美国共和党领导的州和联邦工作人员对拜登政府提起诉讼，认为他的授权相当于联邦的过度扩张。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+大约两周前，一些联邦雇员对拜登提起诉讼，认为他的行政命令不公平地影响了那些有基督教信仰的人。
 
-*参考链接：*
+原告之一，美国外交部官员丹尼尔·杰克逊(Daniel Jackson)，他的信仰”也指示他，接种疫苗原则上不是道德上的义务，因此必须是自愿的，”原告的律师在诉讼中辩称。他们认为，”有一种普遍的道德责任，即拒绝使用利用直接堕胎所得人类细胞系生产的医疗产品，包括某些疫苗”。
 
-[Facebook谷歌亚马逊等网站出现大面积宕机](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9705326.shtml)
+该诉讼还认为，另一名原告美国特勤局特工莱昂内尔·克莱因(Lionel Klein)已经感染了COVID-19，并有足够的抗体来抵御未来的病毒感染。因此，律师认为他不需要接种疫苗。
 
-[JUST IN – Facebook employees reportedly can’t enter buildings to evaluate the Internet outage because their door access badges weren’t working (NYT)](https://gettr.com/post/pd575oe897)
+COVID-19是由CCP（中国共产党）病毒引起的疾病。
 
-[Facebook史上最严重宕机 全网宕机近七小时高管赴推特道歉](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9719527.shtml)
+**评论：**
 
-[While Big Tech imploded, GETTROfficial was still going strong!](https://gettr.com/post/pd6masf06a)
+**从各国政府应对这次中共病毒疫情来看，政府部门的官僚作风暴露无遗，包括美国政府机构。几乎没有官员质疑疫苗是否真的有必要，疫苗是否真的对预防中共病毒有效。整个政府像一台僵化陈旧的老巴士，载着一车沉睡的人，慢慢朝着悬崖边开去。我们新中国联邦要不断呐喊，叫醒沉睡的人，带领他们跳车逃生。我们不求回报，因为我们信仰正道主义，拯救更多人类同胞是我们的使命。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**新闻来源：**[大纪元时报](https://www.theepochtimes.com/federal-agency-bidens-vaccine-mandate-for-federal-workers-can-be-enforced-next-month_4029386.html) (THE EPOCH TIMES) | 作者：Jack Phillips|发布时间：2021年10月3日
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

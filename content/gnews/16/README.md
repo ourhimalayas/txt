@@ -2,13 +2,15 @@
 ---
 
 
-## 2021年10月4日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575388/)
+## 2021年10月4日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575405/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-以色列COVID-19 疫苗受害者证词(六） 以色列COVID-19 疫苗受害者证词项目的创建是为了给所有接种COVID -19疫苗后受到影响的人提供一个平台，并确保他们的声音被听到。我们希望这个项目能鼓励越来越多的人讲述他们的故事。 证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/)
+10/04/2021 Miles Guo’s GETTR: People in the CCP’s law enforcement, ask yourselves if all you dare to do is bullying the harmless Lao Bai Xing. The CCP virus and the vaccine disaster is a “Great Purge of the wrongdoers,” where all those who have oppressed and plundered the people will be put on trial
 
-[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd4qxsdbed)
+10/04/2021 文贵盖特：中共所谓的公检法人士摸摸良心，你们是不是只敢欺负手无寸铁的老百姓？中共病毒和疫苗灾难是一场全人类的坏人大清洗，所有在过去欺压人民、掠夺财富的人都会受到审判
+
+[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd7bl3df18)
 
 **喜联盟Gnews编辑部**
