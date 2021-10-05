@@ -2,35 +2,25 @@
 ---
 
 
-## “潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575120/)
+## 脸书解释发生全球故障的原因
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575322/)
 
-栏目记者/责任编辑：七哩香
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-89.png)
-立场新闻10月4日报道表示，其参与调查的“潘朵拉文件”显示，现任中共国政协副主席、前特首梁振英是恒泰信托的客户，通过中介人使用恒泰服务，为其本人及家族成员注册离岸公司。
+俄罗斯莫斯科喀秋莎农场 星河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-2.jpeg)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/F.png)aroged.com
+美东时间10月5日报道，脸书的工程团队指出，脸书的全球中断是由于骨干路由器的配置变化造成的。脸书表示，“负责协调我们数据中心之间的网络流量的骨干路由器的配置变化，导致了通信中断的问题。”
 
-梁振英在任职香港特首期间，申报持有戴德梁行附属公司的股权，但多次拒绝交代相关业务。“潘朵拉文件”首次证实梁振英在任内通过两家离岸公司，迂回持有一间戴德梁行日本业务公司的3成股权，并于2015年12月以20万英镑出售，梁振英没有申报特首任内出售股权。当时，廉政公署正调查他与澳洲上市公司UGL签订协议，收取400万英镑一事，翻查行政会议利益申报，梁振英从未申报持有UGL股权。
+据该公司称，“他们的工程师未能成功地重新配置在脸书数据中心之间分配流量的路由器，导致断开连接，这对数据中心之间的通信产生了多米诺效应。”
 
-梁振英是中共在香港的代理人和打手，于2012至2017年任香港特首，期间发生雨伞革命。他打压人权和自由，并牵涉多宗腐败及黑金事件，外界指证其为中共地下党员。身居中共要位的梁振英，其贪腐行为与其它中共高官并无区别，牵涉“潘朵拉文件”也不奇怪。
+该公司还表示，没有证据表明在故障期间发生了用户数据的泄漏。
 
-梁振英当天通过社交媒体狡辩称：间接的股权持有和变动不必申报；他主动作出制度外安排，将所有股权放入信托，他本人不行使决策权。他的无耻和撒谎嘴脸跃然纸上，但这恰恰证实，其通过匿名公司隐瞒财产。
+导致脸书、Instagram和WhatsApp停运的全球故障持续了六个多小时。Netflix、Zoom、Tinder Viber和YouTube用户也报告了其软件出现了问题。
 
-(本文仅代表作者观点)
+10月5日凌晨1点，脸书表示他们正在逐步恢复一些功能，脸书创始人马克∙扎克伯格就社交网络及其所属服务的中断向用户道歉。
 
-参考链接：[潘多拉文件披露两位前港特首、现任政协副主席参与离岸公司操作](https://www.voachinese.com/a/pandora-leaks-hong-kong-politicians-20211004/6256321.html)
-[梁振英](https://zh.wikipedia.org/wiki/梁振英#雨傘革命)
+供应商Cloudflare的专家发表了一份报告，指出错误地更新路由器是导致脸书服务中断的原因。专家指出，一次错误下载的更新导致脸书的DNS服务器无法访问。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+参考链接：
 
-终审：暗黑
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.rbc.ru/rbcfreenews/615bbc959a79473c076496d8?from=from\_main\_7](https://www.rbc.ru/rbcfreenews/615bbc959a79473c076496d8?from=from_main_7)

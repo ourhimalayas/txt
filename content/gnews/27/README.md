@@ -2,34 +2,27 @@
 ---
 
 
-## 土耳其：先天畸形婴儿诞生
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574994/)
+## 前新疆警察接受CNN采访, 揭露中共暴行!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575136/)
 
-栏目记者/责任编辑：新世界的一员
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-90.png)
+CNN播出最新纪实访谈节目, 采访了几位遭受过中共暴行迫害的维族人, 以及一位前中共警察蒋先生(音译)。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-2.jpeg)
 
+这位蒋姓警察目前人在欧洲避难, 他向CNN讲述了他在新疆从业期间的所见所闻, 在被称为再教育营的集中营中, 对维族及其他宗教人群所进行的系统性酷刑,  他本人也参与了这些暴行, 包括电刑/水刑和性暴力, 相对而言侮辱和不允许睡觉是最普通的待遇。蒋姓警察也从最初的 “渴望前往新疆打击企图分裂国家恐怖分子” , 到最后转变为质疑和彻底厌恶。虽然他在这种名为”援疆”的部署期间获得了两倍的工资和福利。这位勇敢警察的讲述, 是对中共新疆暴政暴行最有力的佐证和控诉!
 
+在采访中, 一位曾遭受中共酷刑迫害的维族教师说:”我永远不会忘记心中的伤疤,是信仰支撑我活下来, 我并不恨那些警察,虽然他们是罪犯, 但他们也是受害者,他们是那个犯罪系统的一部分。”
 
-土耳其 Beyaz TV新闻报道：目前已发现多个先天畸形婴儿病例。
-
-视频中新福利党领导人：穆罕默德·埃尔巴坎（Muhammed Ali Fatih Erbakan）出示了患儿的照片：这些婴儿布满毛发，身体上生有多手、多脚，长有尾巴。这些婴儿的母亲在孕期都接种了辉瑞或者莫德纳的新冠病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p9.001.jpeg)
-郭先生直播爆料中多次强调，病毒哪里来都不知道，疫苗更危险绝对不能接打。全世界的新冠疫苗和病毒是子母弹，完全为疫苗经济，疫苗政治而设计和服务，更是共产党和背后的邪恶势力削减世界人口的恶毒的灭绝计划。只有人类的觉醒才能避免这一场大屠杀。新中国联邦一直对全世界人民大声呼吁，在GTV，在盖特和各大平台，传播病毒和疫苗真相，跟进解药信息。为了保护我们的孩子免受伤害和杀戮，为了人类的延续，停止疫苗就是停止灾难。
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [Erbakan: Tek gözlü kuyruklu çocuklar doğdu!](https://www.youtube.com/watch?v=ywPmw2Y3QkE)
-2. [Fatih Erbakan durdurulamıyor: “Tek gözlü, kuyruklu, tüm vücudu kılla kaplı çocuklar doğdu!”](https://twitter.com/aykiricomtr/status/1438391881453473793?lang=en)
-3. [Fatih Erbakan ısrarcı: Tek gözlü, kuyruklu, tüm vücudu kılla kaplı çocuklar doğdu](https://tele1.com.tr/fatih-erbakan-israrci-tek-gozlu-kuyruklu-tum-vucudu-killa-kapli-cocuklar-dogdu-470297/)
-4. [Fatih Erbakan](https://en.wikipedia.org/wiki/Fatih_Erbakan)
-
+参考链接：[‘Some are just psychopaths’: Chinese detective in exile reveals extent of torture against Uyghurs](https://edition.cnn.com/2021/10/04/china/xinjiang-detective-torture-intl-hnk-dst/index.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：暗黑
-校正/发稿：我不在这里
+终审：文龍
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -37,5 +30,4 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

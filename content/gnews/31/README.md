@@ -2,17 +2,35 @@
 ---
 
 
-## 秘翻在线：联想有望返回A股市场
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574975/)
+## 法国重磅“中共影响力行动”报告，揭中共全球宣传部署
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575090/)
 
-**撰稿：葛大饼**
+栏目记者：修文   
+责任编辑: FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-87.png)
+法国半官方智库、国家军事学校战略研究所近日公布了一份近650页、历时两年完成的“（中共）影响力行动”调查报告，揭示中共近年来为扩展影响力而部署的全球网络，指出中共利用舆论、心理和法律企图收买、渗透与约束他国。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-05-213937.jpg)图片来源： 新浪
-根据2021年10月5日中时新闻网报道，上交所日前正式受理联想集团在科创板发行中国存託凭证（CDR）的申请， 新闻称联想集资人民币100亿元，有望以红筹身份返回大陆股市。这一百亿集资款中的26.25亿元会投入5G时代的各类基础设施，此外数字化和智能化的项目计划投入21.25亿元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-9.jpeg)
 
-据联想公司称，回归科创板将帮助公司增强国际与国内两个市场的紧密连接，实现两个市场协同效应的最大化；另一方面，通过更好利用国内蓬勃发展的资本市场的力量，增进公司资本结构的多元优化，壮大公司可持续发展战略的资金实力。
+该报告由由情报专家、中国问题专家夏宏和政治学家、安全问题专家尚杰维尔梅共同撰写，从四个方面梳理了中共为扩展其影响力而进行的网络部署和发展轨迹，是迄今为止以法语发表的对中共宣传机器内容最全面的分析。
 
-联想集团最早是于1994年在香港上市，如今又同时选择A股融资，是否是为了更方便从国内向海外转移资产，准备跑路呢？创始人柳传志也是中国最牛民营企业家商会—泰山会的会长，会员都是中共国内各行业的领头人物，包括近期暴雷的泛海集团卢志强和巨人集团史玉柱等。泰山会于今年年初解散，中南坑开始收拾白手套们了。
+报告第三部分详述了中共在海外部署影响力的行动方式，包括用正面叙事来博取外国民众好感，同时使用渗透和胁迫手段。中共在海外的影响力活动领域，已全面涉及外交、经济、政治、教育、智库、侨民、媒体等等，在影视作品和游戏领域的文化渗透和操纵，日益严重。所有行动都围绕着捍卫中共模式，吹嘘“中国传统”，彰显中国善行，建立中共霸权，妄图对世界进程施加影响，最终超越美国，并向世界强加中共自己的模式。
 
-**[新闻来源](https://wantrich.chinatimes.com/news/20211005S495365)**
+最后，报告指出，当中共的影响力战略越来越具有攻击性，导致其国际形象严重恶化，它最大的敌人就是中共自己。
+
+(本文仅代表作者观点)
+
+参考链接：[法国重磅调查报告 揭示中共部署全球网络扩展其影响力](https://www.soundofhope.org/post/548463)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：FoxRina
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
