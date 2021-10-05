@@ -2,31 +2,95 @@
 ---
 
 
-## 秘翻在线：大型医药公司将推出仿制伊维菌素的中共病毒治疗药
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574730/)
+## 认清好虚拟币和未来的趋势
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574772/)
 
-#### 采集/撰稿：极寒将至 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2406.png)
+[https://gtv.org/video/id=615bca7cd2e2b81748715b96](https://gtv.org/video/id=615bca7cd2e2b81748715b96)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2020-04-28t000000z_1_210302-111653_dok.jpg)图片来源：日经亚洲
-美国威斯康星大学教授乔尔.贺石焦博士（Joel S. Hirschhorn）在生活新闻网（LifeSiteNews）发表文章称，默克（Merck & Co. Inc.）、辉瑞和其他疫苗制造商将开发自己复制伊维菌素（ivermectin）的口服抗中共病毒药物，以取代廉价有效的伊维菌素。他们会找到一些巧妙的方法来复制伊维菌素，但同时又做出足够的改变以获得专利，于是这些昂贵的中共病毒治疗药就会在全球销售，为大型制药公司赚取高额利润。
+**郭文贵
+Miles Guo**
 
-默克公司是伊维菌素的制造商，其即将推出的处方口服抗病毒药莫纳皮拉韦（molnupiravir）获得了积极的新闻报道。它将取代那些低利润的伊维菌素。由于中共病毒疫苗无法有效或安全地发挥作用，FDA将很快授予其紧急使用授权。
+只要是20%和黄金挂钩，而且确有保障，再加上稳定币
+As long as 20% is linked to gold, and it’s guaranteed plus stable coins
 
-默克公司已经开始生产其治疗中共病毒的新药，每天服用两次，持续五天。更重要的是：美国政府以12亿美元预购了170万个疗程！每次治疗费用超过700美元。相比之下，从印度可以低于1美元的价格买到12毫克的伊维菌素，美国药房可以4美元或5美元买到的3毫克的伊维菌素，价格相差巨大。
+那就更是好上加好，因为我随时可以拿走嘛
+That’s even better because I can cash out at any time
 
-然而让人气愤的是，尽管默克公司是伊维菌素的制造商，但却不负责任地公开表示：“我们不认为现有数据支持伊维菌素的安全性和有效性，其超出了监管机构批准的处方信息中指明的剂量和人群，从而对其用于治疗中共病毒的使用感到怀疑。”
+我稳定币就是存钱，我随时能拿走
+My stable coins is like my savings, I can cash out at any time
 
-与此同时，政府机构和主流媒体不断发表文章和声明，声称不应使用伊维菌素来对抗中共病毒，他们认为这是不安全和无效的。这些都是旨在保护大规模疫苗接种工作和大型制药公司利润的谎言，现在又来保护大型制药公司新抗病毒药的市场。
+稳定币支付系统，加黄金挂钩的任何币都可以买
+you can buy any cryptocurrency with stable currency payment system linked to gold
 
-《华盛顿邮报》称默克公司创造的是“第一个抗击新冠病毒的药物”，这说明主流媒体忽视伊维菌素和羟氯喹这些通用药已证实的好处，并且忽视了中共病毒疫苗的失败。在其10月2日关于新默克药物的头版报道中，它甚至没有提到伊维菌素已经被证明比仅对数百人进行短期测试的新昂贵药物更有效。
+千万不要存美元，你存美元，任何钱
+Never save US dollars, you save US dollars or any currency
 
-事实上，伊维菌素已成功用于数十万人治疗和预防中共病毒。在印度致命的第二次疫情大爆发中，伊维菌素消除了他们的危机，在采用伊维菌素后的几周内，案例减少了90%，那些更积极使用伊维菌素的州的下降率更大。
+战友们你要辛辛苦苦有个30万20万美元
+Comrades in arms, you work so hard to save 300,000 or 200,000 US dollars
 
-几十年来，伊维菌素早已获得FDA批准，并且副作用极小且温和，它平均每年只报告160起不良反应事件，这表明伊维菌素的安全记录优于几种维生素。
+你在家里搁着，或者加拿大元，或者什么英镑，欧元
+You put them aside, or Canadian dollar, or British pound, or Euro
 
-从世界各地来看，完全接种疫苗后的死于中共病毒的人的比例非常高，通常为80%。许多中共病毒感染的人死亡，应将这些死亡归咎于疫苗。主流媒体压制了所有关于疫苗的负面信息和所有关于伊维菌素的正面信息。
+我告诉你，你今年年底到明年你就知道你有多惨，
+I tell you, you will know how miserable you are from the end of this year to next year
 
-早就事实证明伊维菌素能安全治疗和预防中共病毒感染，却要鼓吹和推广不安全的疫苗，然后在大家开始反对疫苗的时候，又恰巧推出昂贵的仿制伊维菌素的特效药，这一步步走来，像不像一个精心策划的大骗局？
+全世界我现在跟你说
+I’m telling the world now
 
-新闻来源：[Huge uptick in ivermectin use is causing profit-driven Big Pharma to sell patented copycat pills](https://www.lifesitenews.com/opinion/massive-ivermectin-use-pushes-big-pharma-to-sell-expensive-pills-for-covid/?utm_source=top_news&amp;utm_campaign=usa)
+昨天你看到英国了吗？看到战友发信息了吗？看到美国了吗？
+Did you see Britain yesterday? Did you see your comrades in arms send messages? Have you seen America?
+
+我告诉你，当这个疫苗的脑梗、心梗、肛梗、眼梗全面爆发以后
+Let me tell you, when this vaccine has a full outbreak of cerebral infarction, myocardial infarction, anal infarction, and ocular infarction
+
+小7，小福利记住，你们最贵的是什么 – 双修
+Xiao seven and xiao Fuli remember that what is precious for you？it’s sex
+
+我不跟你们开半点玩笑，你能有双修的力气，那可就真是行了
+I’m not joking with you, if you can have the strength for sex, that’s really good
+
+你还能安全的双修，最重要的事情我告诉你
+You can still have sex safely, I will tell you the most important thing
+
+只要你没打疫苗的人，你就等于神，你就是最高赢家
+as long as you are not vaccinated, you are equal to God, and you are the biggest winner
+
+没打疫苗绝对最高（赢家），你看到处死人
+Unvaccinated people will be the biggest winners, you look at died people all over the place
+
+未来烧人的东西，和烧尸体的东西，掩埋尸体的东西
+In the future, things that burn people, things that burn corpses, things that bury corpses
+
+处理尸体的东西和装尸袋都是最贵的
+things that disposal of corpses and cadaver bags are the most expensive
+
+火葬场是最赚钱的，最可怕的就是银行不值钱
+The crematorium is the most profitable business, the most terrifying thing is that the bank is worthless
+
+货币，钱不值钱，然后剩下最值钱除了火葬场烧人这些买卖最好
+Currency, money is worthless, then there is the most valuable thing except for burning people in crematorium, which is the best business
+
+然后就是虚拟货币了，没有任何人再相信国家
+Then there is virtual currency, no one believes in the government anymore
+
+全都找虚拟货币
+All will look for virtual currency
+
+———————————————————————
+Date:10/03/2021
+原视频标题:认清好虚拟币和未来的趋势
+Recognize the virtual currency and future trends
+原视频日期：2021/09/29
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24](https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24)
+任务编号：KC146（2406）
+视频时间段 : 0:00-1:35
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

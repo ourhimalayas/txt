@@ -2,39 +2,87 @@
 ---
 
 
-## 日本新首相岸田新战略：加强经济安保应对中共威胁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574678/)
+## 中共最赚钱的几大部门
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574735/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-11.png)
-（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2407.png)
+[https://gtv.org/video/id=615bca35d2e2b81748715b75](https://gtv.org/video/id=615bca35d2e2b81748715b75)
 
-据《希望之声》10月5日报道，日本自民党总裁岸田文雄10月4日在完成国会指名及天皇亲任等仪式后，率领20位主要内阁成员正式上任。除了新内阁成员中踢出了亲共的二阶、石破派之外，岸田还表示，新政府将制定严厉的外交和安全政策，以促进自由和开放的印太地区，加强国防和海上安全能力，应对中共威胁。
+郭文贵
+Miles Guo
 
-据台湾《自由时报》报道，日本新内阁名单中的防卫大臣岸信夫、外务大臣茂木敏充、经济产业大臣萩生田光一、经济再生担当大臣山际大志郎、经济安全保障大臣小林鹰之、总务大臣金子恭之、复兴大臣西铭恒三郎、法务大臣古川祯久和数位大臣牧岛Karen等，均被视为亲台派；而财务大臣铃木俊一更是被中共官媒形容为“反中急先锋”。
+共产党一个发改委的能源局局长想弄100亿
+The head of the Energy Bureau of the Development and Reform Commission of the Communist Party wants to get 10 billion dollars
 
-亲共的自民党前干事长二阶俊博领军的二阶派，这次未能在主要党职中抢得席位；而同样亲共的以石破茂为首的石破派，则完全被排除在党政主要人事之外。此外，担任法务大臣的古川祯久虽原属石破派，但他日前已宣布退出该派。
+就像你们现在赚个1千块钱那么简单，张宏伟跟能源局副局长吃一顿饭
+It’s as simple as you earn 1,000 dollars now, Zhang Hongwei had a meal with the deputy director of the Bureau of Energy
 
-报道称，从岸田的这次党政人事安排来看，这次组阁可视为一个“经济安保内阁”，“经济安全保障”将是新内阁的施政重点。若无意外，岸田明年可能会在国会推出“经济安保”相关法案。据悉，新一波的安保法制大改造强度，将不输给安倍政府以松绑集体自卫权为主的军事安保法制改造，尤其是经济安保方面的抗共路线也会更为具体。
+当天晚上张宏伟在香港，把那个江诗丹顿的所有的收藏版的表买过去
+at that night Zhang Hongwei was in Hong Kong, he bought all the collector’s edition watches of Vacheron Constantin
 
-据报道，中共近年来在经济领域发动的渗透战略，已让日本受到严重威胁，包括日本的技术和数据的流出，以及日本开发的高科技遭中共军事转用等。另一方面，中共利用经济干预日本内政也日趋明显。
+当时拿过去的时候是拿了两亿美元的支票放在那儿押着
+He took a 200 million U.S. dollars check and put it in the store
 
-此外，日本过度依赖中共国供应链和市场也已构成危机。在去年中共病毒疫情爆发后，日本的口罩和防护衣严重缺货。甘利明曾在受访时表示，敌人不需动用精锐武器，只要以很低阶的技术，即可置日本于死地。
+如果是我都买了，我们用支票，不买了就（把表）送回去
+If I wanted them, then just cashed the check otherwise I would send the watches back
 
-《自由时报》报道还认为，日本的经济安保战略将不局限于守势，还将进行主动出击，包括主导推动国际规则的制定、重振日本半导体产业等。据日本媒体报道，新政府将设立经济安全大臣新职务，以确保日本的敏感技术不被中共国等国家窃取。
+结果拿过去一块也没拿回来，两亿支票兑现
+Then they didn’t send any single watch back, the check was cashed
 
-岸田10月4日晚间在就任首相后的首场记者会上表示，他将在日美同盟及世界对日本信任的基础上，制定严厉的外交和安全政策，以促进自由和开放的印太地区，加强国防和海上安全能力，并迅速解决绑架问题。
+全都是江诗丹顿特别版，能源局局长喜欢表
+all the watches are Vacheron Constantin special editions, the Director of the Energy Bureau likes watches
 
-在如何与中共打交道的问题上，岸田指出，将持续与中共当局对话。但他同时也强调，中共在东海和南海等地试图以武力改变现状，且在自由和法治等价值观方面的做法令人质疑。岸田表示，日本将与共享普世价值的盟国和伙伴合作，对中共发出应该发出的声音。
+记住我今天郭文贵说的话，
+Remember what I, Guo Wengui said today
 
-对于中共申请加入《跨太平洋伙伴全面进步协定》（CPTPP），岸田指出，中共补贴国有企业，对智慧财产权保护不足。他表示，目前还不知道中共是否能达到CPTPP的高标准要求。
+如果这个能源局的局长，发改委副主任被抓
+If this director of the Energy Bureau and the deputy director of the Development and Reform Commission was arrested
 
-岸田文雄此前还曾表示，他将会指派一名首相特别助理，监督中共如何对待维吾尔少数民族。他说，“通过与那些共享普世价值的国家合作，我会高举自由和民主的火炬。”
+他家的表最起码在3千-4千块之间，而且都是世界上最顶级的
+His watches are at least between 3,000 and 4,000 pieces, and they are all the top class in the world
 
-此外，在竞选期间，岸田也曾表示，他会领导日本政府与“崇尚自由、民主和法治等价值观”的台湾加强合作。他指出，如果台湾海峡发生战事，日本会受到严重影响。因此，日本应继续加大防务建设，以应对外来的威胁。
+3千多块，没有一块低于10万美元的，算算多少钱
+All these 3,000 pieces, each of them was not below $100,000 dollars, how much were them totally?
 
-从岸田的新内阁成员组成及未来新政府的外交和安全政策似乎可以看出，岸田将会走“抗共亲台”路线。不过，岸田家族在中共国有很深的利益，甚至有评论这么描述：岸田是上半身反共，下半身亲共。究竟岸田带领的日本新政府未来在对抗中共的问题上是否如其所言，还有待观察。
+这是发改委有多牛，你知道吗？发改委是你们不知道的，
+This is how powerful the National Development and Reform Commission is, do you know? You don’t know anything about the Development and Reform Commission
 
-注：本文仅代表作者观点
+中国发改委，财政部，中纪委这是捞大钱的
+China Development and Reform Commission, Ministry of Finance, Central Commission for Discipline Inspection are all big money grubbers
 
-**新闻链接**：[https://twitter.com/SoundofHopeSOH/status/1445294822995206147](https://twitter.com/SoundofHopeSOH/status/1445294822995206147)
+然后是银监会，保监会，证监会这几个会，这是真的赚钱的呀
+Then there are the China Banking Regulatory Commission, the China Insurance Regulatory Commission, and the China Securities Regulatory Commission, they are really profitable commissions
+
+其他的都是另外一回事，房地产谁控制的，银监会和保监会控制，这几个会控制呢
+Everything else is another matter, which commission controls the real estate,
+is controlled by the China Banking Regulatory Commission and the China Insurance Regulatory Commission, these commissions control it
+
+所以说兄弟姐妹们这次大停电，是国内政治经济利益大较量的结果
+Therefore, brothers and sisters, the blackout is the result of a great contest of domestic political and economic interests
+
+习家说这不关我的事儿，老子我得要政治利益，我得要政治面子，再个也没钱
+Xi’s family said that it’s nothing to do with me, I have to have political benefits and looking good politically, and also there is no money
+
+所有的人都认为老百姓没电，像那在高空中头朝下的
+Everyone thinks that the common people have no electricity, like some one is working headed down high in the sky
+
+还有在那个东北医院里边正在做手术呢，吧唧停电了，完了
+also there was an operation in that Northeast Hospital, right? The power went out, it’s over
+
+—————————————————————
+Date:10/03/2021
+原视频标题:中共最赚钱的几大部门
+The most profitable departments of the CCP
+原视频日期：2021/09/29
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24](https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24)
+任务编号：KC145（2407）
+视频时间段 : 0:00-1:52
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

@@ -2,152 +2,64 @@
 ---
 
 
-## 这次停电是中国电力腐败的大暴露
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574708/)
+## 班农专访 2：王岐山是世界上最危险的人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574751/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2388.png)
-[https://gtv.org/video/id=615bc9e1d2e2b81748715b5a](https://gtv.org/video/id=615bc9e1d2e2b81748715b5a)
+[![](https://spark.adobe.com/page/8zMXNILc1gPYK/images/6DC6AD28-011F-48AF-ADC3-D0B65F6601B0.png?asset_id=640A0934-F843-4861-92B6-A60120787407&amp;size=1024)](https://spark.adobe.com/page/8zMXNILc1gPYK/images/6DC6AD28-011F-48AF-ADC3-D0B65F6601B0.png?asset_id=640A0934-F843-4861-92B6-A60120787407&amp;size=1024)
+#### 简评：
 
-所有人跟上面的报告说
-Todas las personas les han informado a los líderes
+与中共国副主席王岐山关系交好的高盛集团总裁8月份秘密访华。迈克·布隆伯格曾说，王岐山是地球上最有权势的人。新中国联邦的郭文贵先生2017年就向世人发出过警告，特别是对王岐山权力的警告。
 
-北京今年的用电
-Diciendo el uso de electricidad de este año en Beijing
+王岐山一手打造的海航已经破产，董事长在法国被杀，现任主席被关进监狱。中共盗国贼集团洗劫了老百姓的财富，恒大资不抵债，最后承担债务的是国内的老百姓。中共国政府没有为老百姓提供社会福利和退休保障。中共盗国贼集团的本质是为自己创造一个窃取财富的金融架构和盗国机制，如今这个系统正在崩溃，中国人民即将面临灾难，尤其这个冬天会面临能源危机、食品危机、经济崩溃和各行各业的大萧条。
 
-任何情况下都能满足
-De que en cualquier situación se puede satisfacer
+全世界对此不闻不问，班农战斗室在为中国老百姓祈祷和呼吁。
 
-但是突然间就在20天前
-Pero de repente hace 20 días atrás
+GTV视频链接：[英喜每周访问班农先生0929-Q2：高盛集团总裁约翰-桑顿（John Sonton）在8月秘密访问了中共国，您怎么看？](https://gtv.org/video/id=6159bf59d2e2b8174870a03f)
 
-查出来说
-Investigaron y dijeron
 
-北京的线路是三路电
-Que todas las líneas de transmisión son de tres vías
 
-北边一路电线 西边一路电 东边一路电
-En el Norte una vía de cable eléctrico, al Oeste una vía y al Este otra vía
+#### 视频字幕：
 
-三路供电给北京
-Las tres vías le suministran a Beijing
+**主持人：**据《南华早报》报道，高盛集团总裁约翰·桑顿（John Sonton）在8月秘密访问了中共国，并在与中共高官韩正会面时讨论了气候变化、新疆和孟晚舟等问题。班农先生，基于您之前在高盛的经验，关于此事有什么想说的？
 
-北京是很安全的
-Beijing es seguro
+**班农先生：**我认识约翰·索顿本人，他是我的朋友。他是把我介绍给王岐山的人。郭文贵是我了解王岐山、习近平以及其政权所做所为方面的导师。但约翰·桑顿是引荐我去和王岐山见面的人。
 
-说三路电 两路电
-Dicen las tres vías, y de las dos
+你想了解中共政权在做什么的时候，王岐山很重要。迈克·布隆伯格说。不是我说的，不是疯狂的郭文贵说的。迈克·布隆伯格三年前在新加坡告诉我们。王岐山是地球上最有权势的人，而我认为郭文贵的形象每天都在变得更高大，因为他向世人发出的警告，特别是对王岐山权力的警告。他不仅说王岐山邪恶，还说一切都会失去控制，因为他们都是骗子，他们所说的一切都是谎言。所以，我当时看到（文贵接受）采访，我看到他关于王岐山和世界的看法。
 
-也就是北京的
-Es decir, son de Beijing
+如果你想了解王岐山，你只需要看看上周发生的两件事，我不是说我的看法，我只陈述事实。第一，他们把海航的现任主席（陈峰）关进监狱，因为财务问题。在我认识郭文贵之前的几个月，他就预言了这个结果。他警告说，海航完全是王岐山一手打造的。王岐山他们一直在偷钱洗钱、收买政客，窃取中国老百姓辛苦赚来的财富和创造的价值，变成在西方的房地产。（海航）完全是欺骗，它一定会破产。
 
-那叫什么发电厂了
-Cómo es que se llama esa planta de electricidad
+2017年4月，他被VOA中断播。他说出了王岐山的名字。中共国的大使打电话施压，采访断播了。几个月后，他继续直播，所有人都威胁要起诉他。文贵反诉，他们都撤诉了。为什么？因为他说的都是事实。
 
-从那个西北过来的
-Ese que viene desde el noroeste
+他们后来在法国的一个大教堂杀了海航的董事长，据说是从墙上摔下来的。说他自拍时摔下来。显然他是被灭口的，因为他知道得太多，知道海航如何偷钱。然后他们接管了海航的控制权。
 
-说要线路维修
-Dicen que van a hacer reparación en la línea de transmisión
+为什么？海航破产了，就像郭文贵告诉我们的那样。郭文贵说，他们会来收拾这个烂摊子，包括现任主席（陈峰）。陈峰在2017年4月说，文贵是个骗子，这是胡说。但是文贵说的全部被验证，文贵100%正确。陈峰在星期五被关进监狱。为什么？很明显，他知道得太多，（海航）怎样重组的、怎样欺骗中国人偷更多的钱。
 
-可能要长达2个月
-A lo mejor se lleve una duración de 2 meses
+第二件事是恒大。看看全世界看到了什么。全世界看到了中国投资者拍的的视频，他们走进当地的办公大厅说，“我想要我的房子或我的储蓄。你不能偷我的钱，我辛苦赚的钱。”这就是王岐山，因此我认为中共政权是个黑洞，中国人民有世界上最高的储蓄率。为什么呢？
 
-东南路天津过来的要长达2个月
-Desde la carretera del sudeste de Tianjin durará 2 meses
+显然中国人有非常节俭的传统，非常注重确保能够照顾好家人、自己和整个家族。中国共产党在文化大革命期间也没有将其摧毁。中国人对这一点非常保护。他们总是有备无患非常谨慎的。第二个原因。他们也不相信政府能提供任何社会福利和退休保障。他们不相信任何的企业，他们认为共产党会随时改变政策，盗取所有人的钱。所以他们储蓄。他们如何做的呢？
 
-说白了就是掩盖
-En pocas palabras es ocultar
+就像我们在西方教大家做的那样，把钱存到银行，或许最终会买一些房产和资产等等。所以恒大所做的是利用公司的杠杆，偷走所有的钱。现在可怜的老百姓坐在大厅里，失去了所有，房子没了、钱也没了。老百姓是不会接受这个事实的，他们会反抗，“我们奴隶般地努力工作，存了工资的一半。然后合理合法投资，钱又被偷走了”。
 
-当初所有造的假
-Toda la falsedad que inventaron en aquel momento
+这就是王岐山。
 
-北京都要停电
-Ya en Beijing van a cortar la luz
+整个事件的失控是因为现代中共国金融“天才”王岐山和这个盗国的金融结构。请记住，中共国经济的本质是为统治这个国家的犯罪政权致富，无他。不是为了给中国人民创造财富。不是为了给国家创造价值。不是为后代的幸福。不是。他们唯一的治理原则是，创造一个盗国的工具和机制，使他们能够在他们的任期内，尽可能的偷盗。这就是现实。
 
-这回停电 第２个核心的大问题
-Y hay 2 grandes problemas principales por este corte de luz
+所以上帝保佑约翰·桑顿，我不需要听王岐山的伟大思想。他是一个盗国贼。全世界都已经知道他是一个盗国贼。下面是我对美国人民的警告：华尔街的寡头正与其勾结，金融灾难将会席卷美国。因为华尔街投资了王岐山控制的金融机构。
 
-是一场中国的电老虎
-Es una partida de tirano al poder de China
+因此，说到世界上危险的人，不是布隆伯格说的最伟大、最有权力的人，我说的是世界上的危险人。习近平和王岐山，哪个人更危险呢？我觉得可能王岐山更危险，因为他很狡猾。他建立了一个偷盗的系统，这个系统现在开始崩溃，这是中国人民的灾难。所以全世界爱中国人民的人真的需要为他们祈祷，因为即将到来的冬天，加上病毒、加上缺电，这个苦涩的冬天会缺少食物。
 
-电力腐败的一场大露馅
-Una gran demostración de corrupción de la electricidad
+你在开始的时候说，目前的储备迅速减少。文贵爆料了这一切。我认为文贵逐渐成为了中国人民的乔治·华盛顿。而新中国联邦越来越成为一个充满活力的选择，因为他们说的一切都是正确的。现在，经历无数苦难的英雄和善良的中国人民面临失控的政局，为什么20世纪还会有这些事情？2021年9月，我们居然谈论一个即将到来的严冬。谈论没有足够的煤来供暖， 谈论食物短缺，谈论房地产的崩溃和投资打水漂。
 
-政治大较量
-Es una gran batalla política
+现在是2021年9月，本世纪几乎过完四分之一，中国人民经历了百年的痛苦。还有，人们必须记住，他们是我们第二次世界大战中的最大盟友之一，为亚洲人民打败了法西斯主义和极权主义。那场战争中中国人民牺牲了2000或3000，他们是多么伟大的盟友！中国人民牺牲了这么多，今天怎么还会这样？多么令人发指和恶心。
 
-我不相信李鹏家族这回能撑得过去
-Yo no creo en que la familia de Li Peng pueda pasarla esta vez
+而全世界对此不闻不问，这是为什么我非常自豪，我们《战斗室》为支持中国老百姓所做的一点点努力。至少是我们能够做一些小事。但现在我认为整个世界都要为中国人民祈祷，为他们的冬天祈祷。
 
-所有跟他有关系的
-Todo lo que tenga en relación con él
+***编辑：【英国伦敦喜庄园编辑部】***
 
-李鹏家族下边还有谁
-A quién más tienen abajo de la familia de Li Peng
+*字幕/听写：云岭 | 翻译：clau | PR：致良知/Roberts | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
 
-大家去数一数去
-Vayan a sacar la cuenta
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-李鹏家控制发改委控制能源部门 那简直厉害了
-La familia de Li Peng tiene control del departamento de desarrollo y reforma de la energía, es muy talentoso
-
-中国没抓过能源部门没抓过发改委
-China no ha podido arrestar a ningún miembro del departamento de energía
-
-就说明中国从来没想过抓腐败
-Esto demuestra que en China nunca han pensado en arrestar a los corruptos
-
-你看王歧山上来抓反腐败
-Mira los corruptos que ha arrestado Wang Qishan
-
-他抓发改委了吗 他不敢抓 是吧
-¿Acaso él ha arrestado a alguno del departamento del desarrollo y reforma? No se atreve cierto
-
-他抓中纪委了吗
-¿Ha arrestado a los de la Comisión Central de Inspección Disciplinaria?
-
-他不敢抓
-No se atreve a hacerlo
-
-中纪委都抓了些主任科室的
-En la Comisión Central de Inspección Disciplinaria solo arrestó a los directores
-
-大人物一个不敢动
-Pero de los personajes importantes ni uno se atreve tocar
-
-所以这次停电是共产党的政治大较量的
-Por eso que el corte de luz de esta vez es una gran batalla de la política del comunismo
-
-一场没碰过的板块
-Es un módulo que no se ha tocado
-
-能源板块 发改委
-El módulo de la energía y los miembros de la Comisión de Desarrollo y Reforma
-
-都会动
-Los moverá
-
-发改委上面一定牵扯到中纪委
-Arriba de la Comisión de Desarrollo y Reforma seguro involucrará a la Comisión Central de Inspección Disciplinaria
-
-因为大案要案很多
-Porque hay muchos casos importantes
-
-————————————————
-日期：10/02/2021
-原视频标题：这次停电是中国电力腐败的大暴露
-El corte de luz de esta vez en China es una gran revelación de corrupción
-原视频日期：10/01/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24](https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24)
-任务编号：KC144（2388）
-视频时间段：0:00-1:45
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[![](https://spark.adobe.com/page/8zMXNILc1gPYK/images/D72CF6E7-140C-4DBD-8AFF-209D595D682D.jpg?asset_id=3EC49D49-12E7-4D5B-A96A-502503D07530&amp;size=1024)](https://spark.adobe.com/page/8zMXNILc1gPYK/images/D72CF6E7-140C-4DBD-8AFF-209D595D682D.jpg?asset_id=3EC49D49-12E7-4D5B-A96A-502503D07530&amp;size=1024)

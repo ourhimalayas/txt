@@ -2,19 +2,17 @@
 ---
 
 
-## 抗冠状（中共）病毒药丸
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1574557/)
+## 秘翻在线：杨洁篪再次出马 又是一场新的勾兑？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574596/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10051-1.jpg)
-默克制药公司的抗病毒药丸是一种可以在家中对非重症患者给药的药品，去年 3 月，热那亚综合诊所是该公司选择的 7 个意大利中心之一来测试该药物。
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/t_48d1d7bf417341a2bb9b58902e9163c5_name_d6c1beb0_2e87_11eb_9dd6_2d0179981719_scaled.jpg)图片来源：washington post
+根据路透社（Reuters）的报道，由于台湾等多个问题的紧张局势逐渐加剧，美国总统乔·拜登（Joe Biden）的国家安全顾问杰克·沙利文（Jake Sullivan），将与中共最高外交官杨洁篪于本周二和周三在瑞士进行会谈。
 
-卫生部预防司司长 Gianni Rezza 证实了有关[Molnupiravir](https://www.today.it/salute/molnupiravir-covid.html)的数据是有希望的：与安慰剂相比，轻度或中度 冠状（中共）患者的住院或死亡风险降低了约50%。第一个谈论 Molnupiravir 潜力的是圣马蒂诺传染病诊所主任[马泰奥·](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)巴塞蒂 ( [Matteo Bassetti)](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)，他在接受采访中谈到了最近的事态发展以及抗冠状（中共）药丸在未来可能发生的事情。
+据一位熟悉杰克·沙利文和杨洁篪会谈具体安排的官员透露，这次的会谈目的是重建沟通渠道，落实习近平与拜登之间达成的共识。
 
-他称，该药物在欧洲可以在年底前上市，这是一种核苷类似物，是一种我们已经用于治疗 HIV 和肝炎的抗病毒药物。这种药物将自身插入病毒的 RNA 链中，防止其复制和生长，或导致其错误复制。基本上它是一种病毒复制抑制剂，它也可能在未来与其他药物联合使用从而出现另一种有效治疗冠状（中共）病毒的药物，从而我们可以彻底击败它。
+中美关系在前川普总统时期出现了急剧恶化，如今拜登政府在香港暴力镇压，新疆种族灭绝以及中共病毒起源的一系列问题上也一直对中共保持压力。特别是在台湾问题上，中共认为美国在台湾问题上支持台湾独立，中共一直对台湾有所企图，甚至在必要时会通过武力夺取。近日台湾报告称，有148架中共飞机入侵台湾的防空区，台湾政府领导人表示，需要对嚣张过火的中共军事活动保持警惕。
 
-免责申明：本文只代表译者观点，与Gnews无关
+不久前七月底的时候，美国副国务卿温迪·谢尔曼 (Wendy R. Sherman) 与中共外交部副部长谢锋在天津举行的面对面会谈，据美国高官透露这场会谈没有商定出任何成果，而且对拜登和习近平的会晤前景也没有任何讨论。
 
-原文链接：[https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html](https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html)
-
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+新闻来源：[U.S. envoy Sullivan to meet China’s top diplomat Yang this week – media](https://www.reuters.com/world/us/us-envoy-sullivan-meet-chinas-top-diplomat-yang-this-week-scmp-2021-10-05/)

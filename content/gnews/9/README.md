@@ -2,162 +2,58 @@
 ---
 
 
-## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
+## 班农专访 1: 中共大面积限电严重影响居民过冬
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574736/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
-[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
+[![](https://spark.adobe.com/page/p30DpTFopojET/images/54C03BE1-05D9-40D4-9B68-0304C258C778.png?asset_id=9FF311F3-D5B0-4D68-AE7C-BE085DD852FA&amp;size=1024)](https://spark.adobe.com/page/p30DpTFopojET/images/54C03BE1-05D9-40D4-9B68-0304C258C778.png?asset_id=9FF311F3-D5B0-4D68-AE7C-BE085DD852FA&amp;size=1024)
+#### 简评：
 
-共产党要打台湾
-El Partido Comunista atacará a Taiwán
+中共国严重依赖澳大利亚的煤炭进口，但是鉴于中澳两国关系紧张，中共外汇枯竭和煤炭价格飞涨，中共国正在经历大面积的全国性限电、停电，即将到来的冬天会很难熬。
 
-怎么打你芯片厂
-Cómo atacará a tu fábrica de circuito integrado
+中共盗国贼集团洗劫了中国老百姓的财富并转移到海外，他们的家族和私生子女在海外享受着最好的生活，而中共国老百姓过着凄惨的生活，这个冬天很可能饥寒交迫而死。但全世界对此视而不见，因为全球精英们和中共狼狈为奸，联手奴役中共国老百姓，作为美国历史上第一个被中共制裁的平民，班农先生视之为平生所获得的最伟大的荣誉徽章，并为此深深骄傲。班农先生绝不与中共同流合污。
 
-我问他两遍, 他傻眼了
-Le pregunté dos veces y se quedó estupefacto
+GTV视频链接：[英喜每周采访班农先生0929-Q1：这个非法政权的西方合伙人像中共一样，竭尽全力在继续奴役你们](https://gtv.org/video/id=61585d82d2e2b81748704635)
 
-我们有这样的安排, 那样的安排
-Nosotros tenemos planeado esto y lo otro
 
-我说你懂个屁, 你还以为
-Y le dije, que sabes un pedo, tú crees
 
-你能搞芯片
-Que si puedes fabricar microchip
+#### 视频字幕：
 
-你都能搞一切了
-Podrás hacer todo
+**主持人：**再次见到你很高兴，班农先生。第一个问题：最近，随着煤炭价格创下历史新高，中国正在经历大范围的停电。与以往一样，中共国老百姓首先受到这种极端措施的影响。有很多这样的报导，由于交通灯失灵导致很多交通事故，工厂通风设备关闭，导致一氧化碳中毒事故。
 
-你懂政治? 共产党打你厂子
-¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
+我们知道中共国严重依赖澳大利亚的煤炭进口。鉴于中共国与澳洲的紧张关系以及它日益减少的外汇储备，你是否担心中国人会经历自毛时代以来最严酷的冬天？
 
-第一件事情就把你所有的芯片, 周围的所有人
-La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
+**班农先生：**听着，我认为美国人也会经历一个艰难的冬天，因为能源费用飞涨。我为中国老百姓，那些小人物祷告。不仅仅是这个食品价格上涨等等，所有的一切。事情是这样的，我们回看一下。
 
-你会突然发现你旁边的秘书
-De repente te darás cuenta que la secretaria que está a tu lado
+习近平和王岐山尽力把中共国的钱洗出来，在西方投资房地产。他们与达沃斯党、美国的政治精英和华尔街进行各种关于气候变化的相互取悦的对话。
 
-就是共产党, 立马给你下掉(防卫装备)
-Es del Partido Comunista, de una vez te deja sin equipos de defensa
+他们以气候变化的名义所做的事情，根本上改变了中共国的能源结构和电力工业，使之与现实脱节。
 
-你连一个芯片都拿不走
-No te podrás llevar ni un chip
+现实是你们现在看到的大规模停电和能源短缺，看起来将是一个残酷的冬天。
 
-你连一个玻璃都砸不碎
-Si no podrás romper ni un vidrio
+如果全世界还需要更多的例子来说明这个犯罪组织是如何“解决中国人民贫困问题”的，我认为在当下能源危机中所看到的情况就是再好不过的例子。在中共国，中国人民如此辛劳多产，建设了如此伟大的工业。想想看，不要说中共的社会信用系统使人们像囚犯一样，不要说人们的工资像奴隶一样，不要说他们没有任何民主和自由来选举任何代表的事实。忘记这所有的一切。只看看他们的个人状况，为了生存每日要克服的困难。问题是，为什么世界第二大经济体的人民生活得还不如本世纪的农奴？怎么会是这样？为什么王岐山、习近平和所有的这些家族，解放军的头儿、共产党的头儿，他们有如此巨量的资产？他们的孩子在世界各地可以上常春藤这样的学校，买房地产？而普通人，善良的中国公民生活得比奴隶还惨，这个冬天可能会被冻死。或者不被冻死，也会在寒冷的冬天生活得非常悲惨。
 
-还转移你什么技术, 你通通搁在这儿
-Cómo transferirás tu tecnología, todo lo debes dejar aquí
+怎么会这样？全世界怎么会视而不见，并且听之任之？所以，是的。我明白（中共）与澳大利亚的地缘政治和其他所有的一切。然而与此同时，你看到习近平与约翰·克里，还有美国的精英们高谈阔论什么“全球巴黎协定”，什么“低碳经济”。他们不顾中国公民的最基本需求，他们不在乎。
 
-而且马上把你这些人, 立马把你押送到大陆去
-Además, enviarán directamente a todos ustedes a China
+我认为世界需要监视北京这个非法犯罪组织，以确保……西方已经知道他们对维吾尔的种族灭绝。我认为，也知道他们通过中共病毒对中国人民和全世界的种族灭绝。我认为现在我们应该关注他们对中国人民进行种族灭绝的中共国国内政策。谁知道有多少人不能熬过饥饿和冬天的严寒？怎么可能会这样？尤其是怎么可能像中国人民这样一个最古老的文明，与埃及文明比肩的古老文明，怎么可能在1950年代经历那样的饥荒，人为的饥荒？
 
-都不会让你去福建
-No te dejará ir a Fujian
+他们杀了3千万、4千万，还是5千万人口？我们不知道。但是那是因为政府的行为，那个现在还在执政的政府，饿死了4千万人口，这里许多听众都还记得。为什么这个政权仍然可以掌权控制着这个伟大的文明？现在我们明白了，是因为世界贸易组织给了中共最惠国待遇。
 
-都是把你押到新疆
-Sino te llevará a Xinjiang
+在新加坡的达沃斯会议上，布隆伯格在全世界面前舔腚王岐山，说他是全世界最深刻、最有经济影响力的思想家。为什么会这样？中国人民正面临一个更加饥寒交迫的冬天，因为他们没有能力给这个国家供暖。告诉我这是怎么回事？那些记者都去哪儿了？他们那么伟大、那么智慧、那么为中国人民服务，为什么置老百姓于严冬的寒冷中？这是怎么回事？我來告诉你是怎么回事。
 
-跟那些劳改犯押到一起去
-Para que estés con aquellos prisioneros reformados por el trabajo
+世界的精英们与他们狼狈为奸，同流合污，所以这一切都不能停止。听着，对中国人民的压迫不能停止的唯一原因是，你们要面临一个残酷冬天的唯一原因是：这个非法政权的西方合伙人像中共一样，竭尽全力在继续奴役你们。
 
-去了
-Arrestarte
+**主持人：**谢谢你，班农先生。 我完全同意你的观点。我可以补充一下吗？在迫害他的人民方面，中共是一个“机会均等”的实践者。所以在中共国，人们说不管你什么信仰、什么民族，如果你不信党，你就会被党消灭。谢谢你，班农先生。
 
-跟那些男的女的关一起去
-Encerrarte con esos hombres y mujeres
+**班农先生：**我也想补充一点。这就是为什么，我认为我一生中在我家庭之外，最大的荣誉不是白宫，不是川普首席智囊，我为此而感到骄傲，为“战斗室”而骄傲。但是斯蒂芬·班农获得的最高荣誉没有第二个，就是中国共产党对我的个人制裁，我视之为最伟大的荣誉徽章。
 
-先把你精神上肉体上折磨垮你
-Primero te torturarán física y mentalmente
+这些毫无底线的罪犯杀害了9千200万中国公民，让4亿中国婴儿，80%是女婴胎死腹中。他们对中国人民造成的灾难，更不用说由于他们的政策给世界造成的灾难。作为美国历史上有史以来第一个被他们制裁的平民，发生在拜登政府上台的4分钟之后。我认为这是最大的、无可企及的荣耀，所以我想对中国共产党说一声，谢谢你们这么做。
 
-然后你老老实实的给你个电脑, 去把所有的技术给我放出来
-Luego te darán una computadora para que descargues todas las tecnologías
+***编辑：【英国伦敦喜庄园编辑部】***
 
-他一听说, 不会吧
-Una vez que él escuchó todo esto, dijo, no creo
+*字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：Dasy | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
 
-我说你不用见我
-Le dije, no necesitas verme
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-还想着战争了
-Todavía estás pensando que para la guerra
-
-我们有72小时转移技术, 转移硬体
-Tendremos 72 horas para transferir la tecnología y el hardware
-
-我说你天真, 你找死呢
-Le respondí, que inocente eres, estás buscando la muerte
-
-我说你
-Le dije, tú
-
-你只要自己不把脑袋切下来砸烂它
-Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
-
-他就把你脑子里所有东西都给你拿走
-Él podrá quitar todas las cosas de tu cabeza
-
-他一句话听傻了
-Él al escuchar esto se quedó asombrado
-
-我说你以为美国人72小时, 我说共产党开始那一刻起
-Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
-
-72小时
-Dentro de 72 horas
-
-美国人100%不会接触到你
-Los estadounidenses 100% no podrán tocarte
-
-他一定会在前24小时
-Él seguramente en menos de 24 horas
-
-把你这些脑袋全带走
-Llevará toda tu cabeza
-
-而且甚至会切你几个手指头, 告诉我还有什么该拿的
-Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
-
-中国大陆当兵的
-Los soldados de China
-
-对付别人, 对付日本人
-Al tratar con los demás o los japoneses
-
-我不觉得有这么狠
-Yo siento que no serán muy crueles
-
-对付美国人也没这个胆, 对付台湾人
-Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
-
-可能就像印尼人对付华人一样那么狠
-Quizás sean tan despiadados como los indonesios tratan a los asiáticos
-
-这共产党训练的兵
-Los soldados que son entrenados por el Partido Comunista
-
-对付外国人不敢, 对付同胞
-No se atreven con los extranjeros, pero con los compatriotas
-
-那是比谁都狠
-Son aún más crueles que cualquier otra persona
-
-—————————————————
-
-日期：10/02/2021
-原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
-原视频日期：09/30/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
-任务编号：KC143（2387）
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[![](https://spark.adobe.com/page/p30DpTFopojET/images/E8314D21-19EF-416A-8CE9-F30E00C0B8C8.jpg?asset_id=E18E8D51-59A3-4BEC-9332-C895DDEA8236&amp;size=1024)](https://spark.adobe.com/page/p30DpTFopojET/images/E8314D21-19EF-416A-8CE9-F30E00C0B8C8.jpg?asset_id=E18E8D51-59A3-4BEC-9332-C895DDEA8236&amp;size=1024)

@@ -2,44 +2,152 @@
 ---
 
 
-## 西喜时事新闻简报——美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1574654/)
+## 这次停电是中国电力腐败的大暴露
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574708/)
 
-- 编译：土饭团(文团)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2388.png)
+[https://gtv.org/video/id=615bc9e1d2e2b81748715b5a](https://gtv.org/video/id=615bc9e1d2e2b81748715b5a)
 
+所有人跟上面的报告说
+Todas las personas les han informado a los líderes
 
-您若想了解全文报导内容，请点击标题链接
+北京今年的用电
+Diciendo el uso de electricidad de este año en Beijing
 
-**1.[众议院共和党人要求进步团体就可能与中共的关系作出答复](https://www.foxnews.com/politics/house-republicans-letter-progressives-ties-chinese-communist-party)**
+任何情况下都能满足
+De que en cualquier situación se puede satisfacer
 
-福克斯新闻10月3日电，华盛顿州共和党议员Cathy McMorris Rodgers和弗吉尼亚州共和党议员Morgan Griffith联手致信四个著名的极左气候组织，询问其与中国共产党（CCP）的可能联系。在信中，担任能源和商业委员会共和党领袖的Rodgers和担任监督和调查部门共和党领袖的Griffith说，他们担心“外国利益”可能会影响该组织的“针对国会的宣传活动”。
+但是突然间就在20天前
+Pero de repente hace 20 días atrás
 
-**2.[Tulsi Gabbard:我们国家的领导人“忽视”了我们在阿富汗的使命](https://www.foxnews.com/media/tulsi-gabbard-leaders-lost-sight-of-mission-in-afghanistan)**
+查出来说
+Investigaron y dijeron
 
-福克斯新闻10月3日电，前民主党女议员Tulsi Gabbard就阿富汗失败的撤军努力批评了军方领导。Gabbard与福克斯新闻主持人Trey Gowdy在“Sunday Night in America”节目中讨论了最近参议院关于围绕阿富汗的军事领导的听证会。Gabbard说，“即使是我们政府中跨越民主党和共和党政府的高级领导人也忘记了使命。”
+北京的线路是三路电
+Que todas las líneas de transmisión son de tres vías
 
-**3.[美国贸易部长Tai寻求与中国谈判，不排除新的关税行动](https://www.reuters.com/business/bidens-new-china-trade-plan-echoes-trumps-assumes-beijing-wont-change-2021-10-04/)**
+北边一路电线 西边一路电 东边一路电
+En el Norte una vía de cable eléctrico, al Oeste una vía y al Este otra vía
 
-路透社10月4日电，美国贸易部长Tai表示，她将恢复一个“有针对性”的程序，批准对某些中国进口商品免征美国惩罚性关税，为美国工业提供一定程度的救济，未来可能会有更多的免征程序。然而，她不排除根据301条款贸易法开始新的调查，这可能会导致新的关税，她说这将取决于中国的行动。Tai说，“我们有很多工作要做，长期以来，中国不遵守全球贸易规范，削弱了美国人和世界各地其他人的繁荣。”
+三路供电给北京
+Las tres vías le suministran a Beijing
 
-**4.[美国特使Sullivan本周会见中国最高外交官杨洁篪](https://www.reuters.com/world/us/us-envoy-sullivan-meet-chinas-top-diplomat-yang-this-week-scmp-2021-10-05/)**
+北京是很安全的
+Beijing es seguro
 
-路透社10月5日电，美国总统Joe Biden的国家安全顾问将于周二和周三在瑞士与中国的最高外交官举行会谈，此时包括台湾在内的几个问题的紧张局势正在加剧。本周的会谈将是Biden上任以来两个大国官员之间的又一轮当面会谈，之前的会议几乎没有具体进展。
+说三路电 两路电
+Dicen las tres vías, y de las dos
 
-**5.[美国称中国“破坏地区和平”和台湾附近的稳定](https://www.aninews.in/news/world/us/us-says-china-undermining-regional-peace-stability-near-taiwan20211004045654/)**
+也就是北京的
+Es decir, son de Beijing
 
-ANI 10月4日电，美国对中国在台湾附近的活动表示担忧，要求北京停止对台北的军事胁迫，并强调共产党政权正在“破坏地区和平与稳定”。美国国务院发言人Ned Price周日在一份声明中说：“美国非常关注中华人民共和国在台湾附近的挑衅性军事活动，这破坏稳定，有误判的风险，并破坏地区和平与稳定。”Price强调，美国对台海和平与稳定有着长远利益，并强调华盛顿将继续协助台北维持足够的自卫能力。
+那叫什么发电厂了
+Cómo es que se llama esa planta de electricidad
 
-**6.[在电话中，日本新首相与Biden同意在自由开放的印太地区进行合作](https://www.aninews.in/news/world/asia/in-phone-call-japan-new-pm-biden-agree-to-cooperate-on-free-and-open-indo-pacific20211005103102/)**
+从那个西北过来的
+Ese que viene desde el noroeste
 
-ANI 10月5日电，日本新首相岸田文雄与美国总统Joe Biden就任以来首次通电话，双方同意合作实现自由开放的印太地区。白宫表示，Biden“指出，鉴于我们各国在推进自由和开放的印太地区的共同愿景（包括通过四国集团）方面发挥的关键作用，他期待在未来几年加强两国关系。”印太地区在很大程度上被视为包括印度洋和西太平洋和中太平洋，包括南中国海的区域。
+说要线路维修
+Dicen que van a hacer reparación en la línea de transmisión
 
-（文章仅代表作者观点）
+可能要长达2个月
+A lo mejor se lleve una duración de 2 meses
 
-* * *
+东南路天津过来的要长达2个月
+Desde la carretera del sudeste de Tianjin durará 2 meses
 
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
+说白了就是掩盖
+En pocas palabras es ocultar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+当初所有造的假
+Toda la falsedad que inventaron en aquel momento
+
+北京都要停电
+Ya en Beijing van a cortar la luz
+
+这回停电 第２个核心的大问题
+Y hay 2 grandes problemas principales por este corte de luz
+
+是一场中国的电老虎
+Es una partida de tirano al poder de China
+
+电力腐败的一场大露馅
+Una gran demostración de corrupción de la electricidad
+
+政治大较量
+Es una gran batalla política
+
+我不相信李鹏家族这回能撑得过去
+Yo no creo en que la familia de Li Peng pueda pasarla esta vez
+
+所有跟他有关系的
+Todo lo que tenga en relación con él
+
+李鹏家族下边还有谁
+A quién más tienen abajo de la familia de Li Peng
+
+大家去数一数去
+Vayan a sacar la cuenta
+
+李鹏家控制发改委控制能源部门 那简直厉害了
+La familia de Li Peng tiene control del departamento de desarrollo y reforma de la energía, es muy talentoso
+
+中国没抓过能源部门没抓过发改委
+China no ha podido arrestar a ningún miembro del departamento de energía
+
+就说明中国从来没想过抓腐败
+Esto demuestra que en China nunca han pensado en arrestar a los corruptos
+
+你看王歧山上来抓反腐败
+Mira los corruptos que ha arrestado Wang Qishan
+
+他抓发改委了吗 他不敢抓 是吧
+¿Acaso él ha arrestado a alguno del departamento del desarrollo y reforma? No se atreve cierto
+
+他抓中纪委了吗
+¿Ha arrestado a los de la Comisión Central de Inspección Disciplinaria?
+
+他不敢抓
+No se atreve a hacerlo
+
+中纪委都抓了些主任科室的
+En la Comisión Central de Inspección Disciplinaria solo arrestó a los directores
+
+大人物一个不敢动
+Pero de los personajes importantes ni uno se atreve tocar
+
+所以这次停电是共产党的政治大较量的
+Por eso que el corte de luz de esta vez es una gran batalla de la política del comunismo
+
+一场没碰过的板块
+Es un módulo que no se ha tocado
+
+能源板块 发改委
+El módulo de la energía y los miembros de la Comisión de Desarrollo y Reforma
+
+都会动
+Los moverá
+
+发改委上面一定牵扯到中纪委
+Arriba de la Comisión de Desarrollo y Reforma seguro involucrará a la Comisión Central de Inspección Disciplinaria
+
+因为大案要案很多
+Porque hay muchos casos importantes
+
+————————————————
+日期：10/02/2021
+原视频标题：这次停电是中国电力腐败的大暴露
+El corte de luz de esta vez en China es una gran revelación de corrupción
+原视频日期：10/01/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24](https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24)
+任务编号：KC144（2388）
+视频时间段：0:00-1:45
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
