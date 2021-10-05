@@ -2,70 +2,162 @@
 ---
 
 
-## 普罗米修斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1574617/)
+## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
 
-#### 作者：晨兮
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2_150910100529_1.jpg)
-图片来源：diyijuzi.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
+[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
 
-我不想做生命的过客
-更不想做命运的奴仆
-我推开柴门走进漫天风雨
-盛世狼烟分分钟将我吞没
+共产党要打台湾
+El Partido Comunista atacará a Taiwán
 
-黑夜伸手不见五指
-嗜血的狼眼分外狰狞
-毒蛇的芯子交织成漩涡
-毒蝎的心肠一个也不肯放过
+怎么打你芯片厂
+Cómo atacará a tu fábrica de circuito integrado
 
-阎罗殿上——
-乌烟瘴气
+我问他两遍, 他傻眼了
+Le pregunté dos veces y se quedó estupefacto
 
-判官笔乱点——
-一手按金印
-一手舞锁链
+我们有这样的安排, 那样的安排
+Nosotros tenemos planeado esto y lo otro
 
-凶神恶煞的小鬼
-奉命四处出击——
-逮捕
-归案
-签字
-画押
-杀无赦
+我说你懂个屁, 你还以为
+Y le dije, que sabes un pedo, tú crees
 
-我——
-普罗米修斯
+你能搞芯片
+Que si puedes fabricar microchip
 
-盗取了天神的火种
-本想给人间一丝和谐安宁
-让受苦受难的人远离凶残野兽的侵凌
-却不幸落入圈套
-被绑在行刑柱上
-——枷锁缠身
+你都能搞一切了
+Podrás hacer todo
 
-刽子手将我掏心剖肺
-挫骨扬灰
-撒向大地
+你懂政治? 共产党打你厂子
+¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
 
-那一夜
-我的每一粒骨灰都化作火种
+第一件事情就把你所有的芯片, 周围的所有人
+La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
 
-人们高举火把
-照得黑夜如同白昼
-阎罗殿被付之一炬
-大鬼小鬼消失无影踪
+你会突然发现你旁边的秘书
+De repente te darás cuenta que la secretaria que está a tu lado
 
-我在天上俯瞰
-——燃烧的烈火
-卷走一切黑暗与邪恶
+就是共产党, 立马给你下掉(防卫装备)
+Es del Partido Comunista, de una vez te deja sin equipos de defensa
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+你连一个芯片都拿不走
+No te podrás llevar ni un chip
 
-*编辑/发布：小红帽*
+你连一个玻璃都砸不碎
+Si no podrás romper ni un vidrio
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+还转移你什么技术, 你通通搁在这儿
+Cómo transferirás tu tecnología, todo lo debes dejar aquí
+
+而且马上把你这些人, 立马把你押送到大陆去
+Además, enviarán directamente a todos ustedes a China
+
+都不会让你去福建
+No te dejará ir a Fujian
+
+都是把你押到新疆
+Sino te llevará a Xinjiang
+
+跟那些劳改犯押到一起去
+Para que estés con aquellos prisioneros reformados por el trabajo
+
+去了
+Arrestarte
+
+跟那些男的女的关一起去
+Encerrarte con esos hombres y mujeres
+
+先把你精神上肉体上折磨垮你
+Primero te torturarán física y mentalmente
+
+然后你老老实实的给你个电脑, 去把所有的技术给我放出来
+Luego te darán una computadora para que descargues todas las tecnologías
+
+他一听说, 不会吧
+Una vez que él escuchó todo esto, dijo, no creo
+
+我说你不用见我
+Le dije, no necesitas verme
+
+还想着战争了
+Todavía estás pensando que para la guerra
+
+我们有72小时转移技术, 转移硬体
+Tendremos 72 horas para transferir la tecnología y el hardware
+
+我说你天真, 你找死呢
+Le respondí, que inocente eres, estás buscando la muerte
+
+我说你
+Le dije, tú
+
+你只要自己不把脑袋切下来砸烂它
+Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
+
+他就把你脑子里所有东西都给你拿走
+Él podrá quitar todas las cosas de tu cabeza
+
+他一句话听傻了
+Él al escuchar esto se quedó asombrado
+
+我说你以为美国人72小时, 我说共产党开始那一刻起
+Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
+
+72小时
+Dentro de 72 horas
+
+美国人100%不会接触到你
+Los estadounidenses 100% no podrán tocarte
+
+他一定会在前24小时
+Él seguramente en menos de 24 horas
+
+把你这些脑袋全带走
+Llevará toda tu cabeza
+
+而且甚至会切你几个手指头, 告诉我还有什么该拿的
+Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
+
+中国大陆当兵的
+Los soldados de China
+
+对付别人, 对付日本人
+Al tratar con los demás o los japoneses
+
+我不觉得有这么狠
+Yo siento que no serán muy crueles
+
+对付美国人也没这个胆, 对付台湾人
+Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
+
+可能就像印尼人对付华人一样那么狠
+Quizás sean tan despiadados como los indonesios tratan a los asiáticos
+
+这共产党训练的兵
+Los soldados que son entrenados por el Partido Comunista
+
+对付外国人不敢, 对付同胞
+No se atreven con los extranjeros, pero con los compatriotas
+
+那是比谁都狠
+Son aún más crueles que cualquier otra persona
+
+—————————————————
+
+日期：10/02/2021
+原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
+原视频日期：09/30/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
+任务编号：KC143（2387）
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

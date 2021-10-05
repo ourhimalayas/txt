@@ -2,37 +2,31 @@
 ---
 
 
-## 美国大型社交媒体网站宕机，盖特正常运行
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1574642/)
+## 秘翻在线：大型医药公司将推出仿制伊维菌素的中共病毒治疗药
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574730/)
 
-**撰稿：日本东京方舟农场 海星**
+#### 采集/撰稿：极寒将至 
 
-10月5日，美国大型社交媒体网站Facebook、Messenger、Instagram、即时通讯软件WhatsApp等出现大规模宕机。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2020-04-28t000000z_1_210302-111653_dok.jpg)图片来源：日经亚洲
+美国威斯康星大学教授乔尔.贺石焦博士（Joel S. Hirschhorn）在生活新闻网（LifeSiteNews）发表文章称，默克（Merck & Co. Inc.）、辉瑞和其他疫苗制造商将开发自己复制伊维菌素（ivermectin）的口服抗中共病毒药物，以取代廉价有效的伊维菌素。他们会找到一些巧妙的方法来复制伊维菌素，但同时又做出足够的改变以获得专利，于是这些昂贵的中共病毒治疗药就会在全球销售，为大型制药公司赚取高额利润。
 
-据报道，监测网络状况的网站DownDetector显示，大量用户报告称Twitter、T-Mobile 、AT&T、亚马逊云服务和谷歌服务均出现问题。除此之外，Facebook、Messenger、Instagram和WhatsApp等Facebook旗下应用均出现故障。
+默克公司是伊维菌素的制造商，其即将推出的处方口服抗病毒药莫纳皮拉韦（molnupiravir）获得了积极的新闻报道。它将取代那些低利润的伊维菌素。由于中共病毒疫苗无法有效或安全地发挥作用，FDA将很快授予其紧急使用授权。
 
-尤其是扎克伯格的Facebook全网宕机，连内网都废了。据了解，Facebook网页上的错误消息表明存在域名系统 (DNS) 错误，并有Facebook员工披露，由于无法使用门禁卡，一度不能进入办公大楼评估网络故障。
+默克公司已经开始生产其治疗中共病毒的新药，每天服用两次，持续五天。更重要的是：美国政府以12亿美元预购了170万个疗程！每次治疗费用超过700美元。相比之下，从印度可以低于1美元的价格买到12毫克的伊维菌素，美国药房可以4美元或5美元买到的3毫克的伊维菌素，价格相差巨大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9a5b2e9a705b0aa0610da0f067a9e79f_500x0.jpg)图片来自于网络
+然而让人气愤的是，尽管默克公司是伊维菌素的制造商，但却不负责任地公开表示：“我们不认为现有数据支持伊维菌素的安全性和有效性，其超出了监管机构批准的处方信息中指明的剂量和人群，从而对其用于治疗中共病毒的使用感到怀疑。”
 
-目前，Facebook等社交媒体已逐步恢复运行，但此次时长近7小时的宕机，成为脸书最严重的一次网络访问事故，影响到全球数十个国家和地区用户。而在此期间，社交媒体盖特一直正常运行，成为全球各地用户的唯一发声渠道。
+与此同时，政府机构和主流媒体不断发表文章和声明，声称不应使用伊维菌素来对抗中共病毒，他们认为这是不安全和无效的。这些都是旨在保护大规模疫苗接种工作和大型制药公司利润的谎言，现在又来保护大型制药公司新抗病毒药的市场。
 
-对此，盖特总裁杰森·米勒在盖特上表示，盖特不仅在思想上提倡言论自由，在技术上也非常卓越，优于各类大型社交媒体。因此，它成为了有史以来增长最快的社交媒体平台，并仍在不断发展壮大。
+《华盛顿邮报》称默克公司创造的是“第一个抗击新冠病毒的药物”，这说明主流媒体忽视伊维菌素和羟氯喹这些通用药已证实的好处，并且忽视了中共病毒疫苗的失败。在其10月2日关于新默克药物的头版报道中，它甚至没有提到伊维菌素已经被证明比仅对数百人进行短期测试的新昂贵药物更有效。
 
-他强调，“是时候对大型社交媒体的删除行为说再见了！”
+事实上，伊维菌素已成功用于数十万人治疗和预防中共病毒。在印度致命的第二次疫情大爆发中，伊维菌素消除了他们的危机，在采用伊维菌素后的几周内，案例减少了90%，那些更积极使用伊维菌素的州的下降率更大。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+几十年来，伊维菌素早已获得FDA批准，并且副作用极小且温和，它平均每年只报告160起不良反应事件，这表明伊维菌素的安全记录优于几种维生素。
 
-*参考链接：*
+从世界各地来看，完全接种疫苗后的死于中共病毒的人的比例非常高，通常为80%。许多中共病毒感染的人死亡，应将这些死亡归咎于疫苗。主流媒体压制了所有关于疫苗的负面信息和所有关于伊维菌素的正面信息。
 
-[Facebook谷歌亚马逊等网站出现大面积宕机](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9705326.shtml)
+早就事实证明伊维菌素能安全治疗和预防中共病毒感染，却要鼓吹和推广不安全的疫苗，然后在大家开始反对疫苗的时候，又恰巧推出昂贵的仿制伊维菌素的特效药，这一步步走来，像不像一个精心策划的大骗局？
 
-[JUST IN – Facebook employees reportedly can’t enter buildings to evaluate the Internet outage because their door access badges weren’t working (NYT)](https://gettr.com/post/pd575oe897)
-
-[Facebook史上最严重宕机 全网宕机近七小时高管赴推特道歉](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9719527.shtml)
-
-[While Big Tech imploded, GETTROfficial was still going strong!](https://gettr.com/post/pd6masf06a)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+新闻来源：[Huge uptick in ivermectin use is causing profit-driven Big Pharma to sell patented copycat pills](https://www.lifesitenews.com/opinion/massive-ivermectin-use-pushes-big-pharma-to-sell-expensive-pills-for-covid/?utm_source=top_news&amp;utm_campaign=usa)

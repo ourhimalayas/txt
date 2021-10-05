@@ -2,24 +2,25 @@
 ---
 
 
-## 【新闻速递】接种两针疫苗的艾美奖得主死于新冠病毒
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1574377/)
+## 针下亡魂｜法国 17 岁女学生接种疫苗7日后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1574535/)
 
-温哥华扬帆农场 – 翻译：jamie\_Luffy
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211004-jamie_Luffy-接种两针疫苗的艾美奖得主死于新冠病毒.jpg)图片来源:
-[https://www.hollywoodreporter.com/tv/tv-news/marc-pilcher-dead-bridgerton-1235024983/](https://www.hollywoodreporter.com/tv/tv-news/marc-pilcher-dead-bridgerton-1235024983/)
-现年53岁，两周前刚刚在美国洛杉矶凭借电视剧《布里奇顿》(Bridgerton) 赢得艾美奖最佳角色发型设计奖的英国美妆造型师马克·埃利奥特·皮尔彻 (Marc Elliot Pilcher)，于10月3号上周日死于新冠病毒。而皮尔彻此前接种了两针疫苗，并且身体没有任何潜在疾病。
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 5/10/2021**
 
-他的家人悲痛的表示，皮尔彻为了从英国飞往洛杉矶参加9月19日的艾美奖，进行了多次新冠检测，均呈阴性。而就在他返回英国不久，被发现感染了新冠病毒，在上周末病情迅速恶化，最终于周日死亡。
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
 
-值得注意的是，9月19日在[洛杉矶市中心](https://zh.wikipedia.org/wiki/%E6%B4%9B%E6%9D%89%E7%A3%AF%E5%B8%82%E4%B8%AD%E5%BF%83)的[洛杉矶活力](https://zh.wikipedia.org/w/index.php?title=%E6%B4%9B%E6%9D%89%E7%9F%B6%E6%B4%BB%E5%8A%9B&amp;action=edit&amp;redlink=1)Event Deck举行的艾美奖颁奖典礼上，只有工作人员被要求佩戴口罩，而参加的明星却没有。洛杉矶县公共卫生局表示，这些享受特权的明星并没有违反该县的强制口罩规定，因为根据“额外安全修改条例”，强制口罩令不适用于电影、电视和音乐活动。
+【法国】普罗旺斯一名 17 岁女学生 Sofia Benharira 在接种辉瑞 COVID-19 疫苗 7 日后过世。据家人描述，Sofia 是普罗旺斯当地一所高中的学生，她接种 COVID-19 疫苗的动机很简单，因为她想参加活动，而按照当地规定，要参加活动就必须接种疫苗。
 
-这个发奖仪式应该都是全部接种了两针疫苗的精心打扮的明星们，但是却变成了一个致命的超强传播群！
+因此，她在 9 月 14 日接种了第一剂疫苗，不久之后，她出现了多种症状，6日后，她在学校期间由于严重不适被紧急送往医院。翌日凌晨6时，她因血栓阻塞心脏，于普罗旺斯的艾克斯总医院离世。
 
-参考链接：
+她的家人悲痛欲绝，正积极为自己健康的孩子找寻突然死亡的答案。
 
-[https://www.thegatewaypundit.com/2021/10/double-vaccinated-emmy-winner-dies-covid-19-two-weeks-attending-award-ceremony-unmasked-celebrities/](https://www.thegatewaypundit.com/2021/10/double-vaccinated-emmy-winner-dies-covid-19-two-weeks-attending-award-ceremony-unmasked-celebrities/)
+Sofia 的阿姨兼教母索尼娅表示：“Sofia 想成为一名护士，这是她在学校的最后一年。不幸的是，她永远离开了我们。一个健康的 17 岁女孩突然就这样死去了，今天的尸检结果是不明原因的大面积肺栓塞。但供述人说，『我们不能多说。』但我们不会放弃，我们将继续，直到我们找到这种肺血栓形成的原因。这就是我要说的。此外，希望父母小心对待给年幼的孩子接种疫苗，因为它发生在我们身上，它就有可能会发生在任何人身上。”
 
-*编审：**abbs*
+Sofia 的家人和朋友在加丹教堂举办葬礼上，送孩子最后一程。
 
-*发布：Shuang*
+来源｜[个案012](https://reinfocovid.fr/)
+
+* * *
+
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hant/1568338/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hant/1572210/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hant/1572326/)//｜//[美国 66 岁飞行员接种疫苗当晚发生飞行事故 机毁人亡](https://gnews.org/zh-hant/1574172/)//

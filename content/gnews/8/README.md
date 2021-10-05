@@ -2,35 +2,152 @@
 ---
 
 
-## DC大中华时事：新中国联邦会尊重台湾人民的选择
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1574626/)
+## 这次停电是中国电力腐败的大暴露
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574708/)
 
-*编辑：映兰轩 / 作图：*中华之光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2388.png)
+[https://gtv.org/video/id=615bc9e1d2e2b81748715b5a](https://gtv.org/video/id=615bc9e1d2e2b81748715b5a)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+所有人跟上面的报告说
+Todas las personas les han informado a los líderes
 
-#   墙国妄语每日驳
+北京今年的用电
+Diciendo el uso de electricidad de este año en Beijing
 
-### ***10.04. 新华网：外交部发言人就美国国务院发言人发表涉台声明答记者问***
+任何情况下都能满足
+De que en cualquier situación se puede satisfacer
 
-*新华社北京10月4日电 外交部发言人华春莹4日就美国国务院发言人发表涉台声明答记者问。有记者问：10月3日，美国国务院发言人普莱斯发表声明称，美方对中方在台湾附近军事挑衅活动深表关切，此举易引发误判，破坏地区和平稳定，敦促中方停止对台施压与胁迫。美将依据美中三个联合公报及“与台湾关系法”“对台六项保证”维持对台承诺，支持台加强自卫能力。中方对此有何评论？华春莹说，台湾是中国的台湾，轮不到美国说三道四。美方有关言论严重违反一个中国原则和中美三个联合公报规定，对外发出极为错误和不负责任的信号。她说，一段时间来，美方在售台武器、加强美台官方军事联系等方面消极动作不断，包括出台7.5亿美元售台武器计划，美军机降落台岛，军舰频频过航台湾海峡等。这些挑衅行动损害中美关系，破坏地区和平稳定，中方坚决反对并采取必要应对措施。华春莹说，一个中国原则是中美关系的政治基础。在台湾问题上，美方应该遵守的是一个中国原则和中美三个联合公报规定，而不是自己单方面炮制的什么东西。华春莹表示，搞“台独”是死路一条。中方将采取一切必要措施，坚决粉碎任何“台独”图谋。中方捍卫国家主权和领土完整的决心与意志坚定不移。她说，美方应纠正错误，切实恪守一个中国原则和中美三个联合公报规定，慎重妥善处理涉台问题，停止为“台独”分裂势力撑腰打气，以实际行动维护而不是破坏台海和平稳定。*
+但是突然间就在20天前
+Pero de repente hace 20 días atrás
 
-**简评：中共说“台湾是中国的台湾”，实际意思是“台湾是中共的台湾”。因为中共不在乎台湾政府的选择，更不在乎台湾人民的选择。如果中共真的爱台湾，就应该把台湾变成台湾人的台湾。于此相比，新中国联邦的框架才是美好的未来。联合国和欧州议会已经开始研究新中国联邦的合法性。新中国联邦允许台湾、香港、新疆、西藏等高度自治，比美国各邦还要自由。如果台湾人民想独立，会尊重台湾人民的选择。孰优孰劣，不辨自明。新中国联邦的新型模式才是未来，不分种族、不分领土，未来可期。**
+查出来说
+Investigaron y dijeron
 
-### *10.04.网易：**女孩看完《长津湖》尝冻土豆：很心酸 根本咬不动***
+北京的线路是三路电
+Que todas las líneas de transmisión son de tres vías
 
-*近日，云南昆明，[电影](https://news.163.com/news/search?keyword=%E7%94%B5%E5%BD%B1)《长津湖》热映感动众多网友，迟女士看完电影后找来[土豆](https://news.163.com/news/search?keyword=%E5%9C%9F%E8%B1%86)煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别[想哭](https://news.163.com/news/search?keyword=%E6%83%B3%E5%93%AD)，现在美好的生活都是战士们奋斗来的。*
+北边一路电线 西边一路电 东边一路电
+En el Norte una vía de cable eléctrico, al Oeste una vía y al Este otra vía
 
-**简评：“抗美援朝”题材电影《长津湖》，是中共国庆期间的大洗脑电影，不仅收割了韭菜的钱，还收割了韭菜的感情。除了民间自愿观看以外，中共还组织党员集体收看，这阵势，没有任何政党可以匹敌。但是还是有不少观众明白电影剧情是矫揉造作，瞎编乱造，名不副实的。有人在这篇文章下留言：他们吃冻土豆是因为饿呀！看完电影去模仿是傻逼！也有讽刺说“饭店应该推出冻土豆爱国菜”！还有的网友指出，影视里还有那么多吃草根啃皮带的是不是也得去试试？更有网友认为“现在美好的生活都是战士们奋斗来的”这句话不对，这世上根本没有救世主。**
+三路供电给北京
+Las tres vías le suministran a Beijing
 
-### *10.04.环球网：中央广播电视总台文艺中心发言人：继续支持台湾演艺人员参演，反对绿媒打压*
+北京是很安全的
+Beijing es seguro
 
-*10月1日晚，中央广播电视总台《中国梦 •祖国颂——2021国庆特别节目》播出后，在海内外产生热烈反响。多位港澳台演艺人员与大陆同行同台演出，向全球华人奉献了一台爱祖国、共圆梦的精品晚会。针对近日台湾岛内绿媒的轮番攻击和恐吓，中央广播电视总台文艺节目中心发言人应询答复如下：每逢中华儿女的重大节日，中央广播电视总台都会制作文艺晚会等特别节目，邀请港澳台同胞和大陆演艺人员一起参与演出，共享节日荣光。今年的国庆节也是如此。总台推出的《中国梦 •祖国颂——2021国庆特别节目》，仅在电视端就触达观众7815万人次，新媒体话题互动量超过50亿次。无论是艺术水准还是海内外观众的满意度，今年的国庆特别节目都创下了新高。台湾演艺人员来大陆发展，参加总台主办的文艺晚会等活动，观众喜爱、社会反响积极。岛内绿媒罔顾事实，动辄对与大陆交往的台湾演艺人员进行威胁恐吓、乱扣帽子，只能说是欲加之罪何患无辞，我们坚决反对。我们重申，继续欢迎台湾演艺人员来参加节目制作，与大陆同胞同台演出。*
+说三路电 两路电
+Dicen las tres vías, y de las dos
 
-**简评：中共支持台湾艺人参演？绝不是。中共支持“为中共唱赞歌”的台湾艺人参演。这些上台的港台艺人哪一个不是给中共跪下了，举红旗、表忠心。否则就是何韵诗的下场，不仅被大陆封杀，还要追究法律责任。对港台艺人政治立场的审查这几年尤甚，因此前一阵包括成龙在内的比较有名的艺人，主动声明“爱中国爱共产党”。中共势力控制范围内的艺人很可怜，比晚清末年文字狱还可怕，因为他们天天被强奸承受痛苦还要拍手叫好。**
+也就是北京的
+Es decir, son de Beijing
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/894829380742819860/20211005A.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/894829381032243200/20211005B.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/894829381883670578/20211005C.jpg?width=1043&amp;height=586)
-*编辑：*映兰轩
-*作图：中华之光
-发布：文顾*
+那叫什么发电厂了
+Cómo es que se llama esa planta de electricidad
+
+从那个西北过来的
+Ese que viene desde el noroeste
+
+说要线路维修
+Dicen que van a hacer reparación en la línea de transmisión
+
+可能要长达2个月
+A lo mejor se lleve una duración de 2 meses
+
+东南路天津过来的要长达2个月
+Desde la carretera del sudeste de Tianjin durará 2 meses
+
+说白了就是掩盖
+En pocas palabras es ocultar
+
+当初所有造的假
+Toda la falsedad que inventaron en aquel momento
+
+北京都要停电
+Ya en Beijing van a cortar la luz
+
+这回停电 第２个核心的大问题
+Y hay 2 grandes problemas principales por este corte de luz
+
+是一场中国的电老虎
+Es una partida de tirano al poder de China
+
+电力腐败的一场大露馅
+Una gran demostración de corrupción de la electricidad
+
+政治大较量
+Es una gran batalla política
+
+我不相信李鹏家族这回能撑得过去
+Yo no creo en que la familia de Li Peng pueda pasarla esta vez
+
+所有跟他有关系的
+Todo lo que tenga en relación con él
+
+李鹏家族下边还有谁
+A quién más tienen abajo de la familia de Li Peng
+
+大家去数一数去
+Vayan a sacar la cuenta
+
+李鹏家控制发改委控制能源部门 那简直厉害了
+La familia de Li Peng tiene control del departamento de desarrollo y reforma de la energía, es muy talentoso
+
+中国没抓过能源部门没抓过发改委
+China no ha podido arrestar a ningún miembro del departamento de energía
+
+就说明中国从来没想过抓腐败
+Esto demuestra que en China nunca han pensado en arrestar a los corruptos
+
+你看王歧山上来抓反腐败
+Mira los corruptos que ha arrestado Wang Qishan
+
+他抓发改委了吗 他不敢抓 是吧
+¿Acaso él ha arrestado a alguno del departamento del desarrollo y reforma? No se atreve cierto
+
+他抓中纪委了吗
+¿Ha arrestado a los de la Comisión Central de Inspección Disciplinaria?
+
+他不敢抓
+No se atreve a hacerlo
+
+中纪委都抓了些主任科室的
+En la Comisión Central de Inspección Disciplinaria solo arrestó a los directores
+
+大人物一个不敢动
+Pero de los personajes importantes ni uno se atreve tocar
+
+所以这次停电是共产党的政治大较量的
+Por eso que el corte de luz de esta vez es una gran batalla de la política del comunismo
+
+一场没碰过的板块
+Es un módulo que no se ha tocado
+
+能源板块 发改委
+El módulo de la energía y los miembros de la Comisión de Desarrollo y Reforma
+
+都会动
+Los moverá
+
+发改委上面一定牵扯到中纪委
+Arriba de la Comisión de Desarrollo y Reforma seguro involucrará a la Comisión Central de Inspección Disciplinaria
+
+因为大案要案很多
+Porque hay muchos casos importantes
+
+————————————————
+日期：10/02/2021
+原视频标题：这次停电是中国电力腐败的大暴露
+El corte de luz de esta vez en China es una gran revelación de corrupción
+原视频日期：10/01/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24](https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24)
+任务编号：KC144（2388）
+视频时间段：0:00-1:45
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

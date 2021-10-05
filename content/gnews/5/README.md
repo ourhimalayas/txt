@@ -2,44 +2,87 @@
 ---
 
 
-## 西喜时事新闻简报——美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1574654/)
+## 中共最赚钱的几大部门
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574735/)
 
-- 编译：土饭团(文团)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2407.png)
+[https://gtv.org/video/id=615bca35d2e2b81748715b75](https://gtv.org/video/id=615bca35d2e2b81748715b75)
 
+郭文贵
+Miles Guo
 
-您若想了解全文报导内容，请点击标题链接
+共产党一个发改委的能源局局长想弄100亿
+The head of the Energy Bureau of the Development and Reform Commission of the Communist Party wants to get 10 billion dollars
 
-**1.[众议院共和党人要求进步团体就可能与中共的关系作出答复](https://www.foxnews.com/politics/house-republicans-letter-progressives-ties-chinese-communist-party)**
+就像你们现在赚个1千块钱那么简单，张宏伟跟能源局副局长吃一顿饭
+It’s as simple as you earn 1,000 dollars now, Zhang Hongwei had a meal with the deputy director of the Bureau of Energy
 
-福克斯新闻10月3日电，华盛顿州共和党议员Cathy McMorris Rodgers和弗吉尼亚州共和党议员Morgan Griffith联手致信四个著名的极左气候组织，询问其与中国共产党（CCP）的可能联系。在信中，担任能源和商业委员会共和党领袖的Rodgers和担任监督和调查部门共和党领袖的Griffith说，他们担心“外国利益”可能会影响该组织的“针对国会的宣传活动”。
+当天晚上张宏伟在香港，把那个江诗丹顿的所有的收藏版的表买过去
+at that night Zhang Hongwei was in Hong Kong, he bought all the collector’s edition watches of Vacheron Constantin
 
-**2.[Tulsi Gabbard:我们国家的领导人“忽视”了我们在阿富汗的使命](https://www.foxnews.com/media/tulsi-gabbard-leaders-lost-sight-of-mission-in-afghanistan)**
+当时拿过去的时候是拿了两亿美元的支票放在那儿押着
+He took a 200 million U.S. dollars check and put it in the store
 
-福克斯新闻10月3日电，前民主党女议员Tulsi Gabbard就阿富汗失败的撤军努力批评了军方领导。Gabbard与福克斯新闻主持人Trey Gowdy在“Sunday Night in America”节目中讨论了最近参议院关于围绕阿富汗的军事领导的听证会。Gabbard说，“即使是我们政府中跨越民主党和共和党政府的高级领导人也忘记了使命。”
+如果是我都买了，我们用支票，不买了就（把表）送回去
+If I wanted them, then just cashed the check otherwise I would send the watches back
 
-**3.[美国贸易部长Tai寻求与中国谈判，不排除新的关税行动](https://www.reuters.com/business/bidens-new-china-trade-plan-echoes-trumps-assumes-beijing-wont-change-2021-10-04/)**
+结果拿过去一块也没拿回来，两亿支票兑现
+Then they didn’t send any single watch back, the check was cashed
 
-路透社10月4日电，美国贸易部长Tai表示，她将恢复一个“有针对性”的程序，批准对某些中国进口商品免征美国惩罚性关税，为美国工业提供一定程度的救济，未来可能会有更多的免征程序。然而，她不排除根据301条款贸易法开始新的调查，这可能会导致新的关税，她说这将取决于中国的行动。Tai说，“我们有很多工作要做，长期以来，中国不遵守全球贸易规范，削弱了美国人和世界各地其他人的繁荣。”
+全都是江诗丹顿特别版，能源局局长喜欢表
+all the watches are Vacheron Constantin special editions, the Director of the Energy Bureau likes watches
 
-**4.[美国特使Sullivan本周会见中国最高外交官杨洁篪](https://www.reuters.com/world/us/us-envoy-sullivan-meet-chinas-top-diplomat-yang-this-week-scmp-2021-10-05/)**
+记住我今天郭文贵说的话，
+Remember what I, Guo Wengui said today
 
-路透社10月5日电，美国总统Joe Biden的国家安全顾问将于周二和周三在瑞士与中国的最高外交官举行会谈，此时包括台湾在内的几个问题的紧张局势正在加剧。本周的会谈将是Biden上任以来两个大国官员之间的又一轮当面会谈，之前的会议几乎没有具体进展。
+如果这个能源局的局长，发改委副主任被抓
+If this director of the Energy Bureau and the deputy director of the Development and Reform Commission was arrested
 
-**5.[美国称中国“破坏地区和平”和台湾附近的稳定](https://www.aninews.in/news/world/us/us-says-china-undermining-regional-peace-stability-near-taiwan20211004045654/)**
+他家的表最起码在3千-4千块之间，而且都是世界上最顶级的
+His watches are at least between 3,000 and 4,000 pieces, and they are all the top class in the world
 
-ANI 10月4日电，美国对中国在台湾附近的活动表示担忧，要求北京停止对台北的军事胁迫，并强调共产党政权正在“破坏地区和平与稳定”。美国国务院发言人Ned Price周日在一份声明中说：“美国非常关注中华人民共和国在台湾附近的挑衅性军事活动，这破坏稳定，有误判的风险，并破坏地区和平与稳定。”Price强调，美国对台海和平与稳定有着长远利益，并强调华盛顿将继续协助台北维持足够的自卫能力。
+3千多块，没有一块低于10万美元的，算算多少钱
+All these 3,000 pieces, each of them was not below $100,000 dollars, how much were them totally?
 
-**6.[在电话中，日本新首相与Biden同意在自由开放的印太地区进行合作](https://www.aninews.in/news/world/asia/in-phone-call-japan-new-pm-biden-agree-to-cooperate-on-free-and-open-indo-pacific20211005103102/)**
+这是发改委有多牛，你知道吗？发改委是你们不知道的，
+This is how powerful the National Development and Reform Commission is, do you know? You don’t know anything about the Development and Reform Commission
 
-ANI 10月5日电，日本新首相岸田文雄与美国总统Joe Biden就任以来首次通电话，双方同意合作实现自由开放的印太地区。白宫表示，Biden“指出，鉴于我们各国在推进自由和开放的印太地区的共同愿景（包括通过四国集团）方面发挥的关键作用，他期待在未来几年加强两国关系。”印太地区在很大程度上被视为包括印度洋和西太平洋和中太平洋，包括南中国海的区域。
+中国发改委，财政部，中纪委这是捞大钱的
+China Development and Reform Commission, Ministry of Finance, Central Commission for Discipline Inspection are all big money grubbers
 
-（文章仅代表作者观点）
+然后是银监会，保监会，证监会这几个会，这是真的赚钱的呀
+Then there are the China Banking Regulatory Commission, the China Insurance Regulatory Commission, and the China Securities Regulatory Commission, they are really profitable commissions
 
-* * *
+其他的都是另外一回事，房地产谁控制的，银监会和保监会控制，这几个会控制呢
+Everything else is another matter, which commission controls the real estate,
+is controlled by the China Banking Regulatory Commission and the China Insurance Regulatory Commission, these commissions control it
 
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
+所以说兄弟姐妹们这次大停电，是国内政治经济利益大较量的结果
+Therefore, brothers and sisters, the blackout is the result of a great contest of domestic political and economic interests
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+习家说这不关我的事儿，老子我得要政治利益，我得要政治面子，再个也没钱
+Xi’s family said that it’s nothing to do with me, I have to have political benefits and looking good politically, and also there is no money
+
+所有的人都认为老百姓没电，像那在高空中头朝下的
+Everyone thinks that the common people have no electricity, like some one is working headed down high in the sky
+
+还有在那个东北医院里边正在做手术呢，吧唧停电了，完了
+also there was an operation in that Northeast Hospital, right? The power went out, it’s over
+
+—————————————————————
+Date:10/03/2021
+原视频标题:中共最赚钱的几大部门
+The most profitable departments of the CCP
+原视频日期：2021/09/29
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24](https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24)
+任务编号：KC145（2407）
+视频时间段 : 0:00-1:52
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

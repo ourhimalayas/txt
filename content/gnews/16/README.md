@@ -2,19 +2,23 @@
 ---
 
 
-## 抗冠状（中共）病毒药丸
-` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1574557/)
+## 10月1日南澳线下活动：国殇日走上街头抗议中共72年暴政
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1574627/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10051-1.jpg)
-默克制药公司的抗病毒药丸是一种可以在家中对非重症患者给药的药品，去年 3 月，热那亚综合诊所是该公司选择的 7 个意大利中心之一来测试该药物。
+撰稿人：冰沙奶茶
 
-卫生部预防司司长 Gianni Rezza 证实了有关[Molnupiravir](https://www.today.it/salute/molnupiravir-covid.html)的数据是有希望的：与安慰剂相比，轻度或中度 冠状（中共）患者的住院或死亡风险降低了约50%。第一个谈论 Molnupiravir 潜力的是圣马蒂诺传染病诊所主任[马泰奥·](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)巴塞蒂 ( [Matteo Bassetti)](https://www.today.it/attualita/terza-dose-intervista-bassetti.html)，他在接受采访中谈到了最近的事态发展以及抗冠状（中共）药丸在未来可能发生的事情。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture2-2.png)
 
-他称，该药物在欧洲可以在年底前上市，这是一种核苷类似物，是一种我们已经用于治疗 HIV 和肝炎的抗病毒药物。这种药物将自身插入病毒的 RNA 链中，防止其复制和生长，或导致其错误复制。基本上它是一种病毒复制抑制剂，它也可能在未来与其他药物联合使用从而出现另一种有效治疗冠状（中共）病毒的药物，从而我们可以彻底击败它。
+原创图片
 
-免责申明：本文只代表译者观点，与Gnews无关
+10月1日不再欢庆的念头，只有出离的愤怒，不止是因为起起伏伏的疫情打乱原有正常的生活，更是疫情造成的次生灾难逐渐显现，让人惶惶不可终日。
 
-原文链接：[https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html](https://www.today.it/attualita/pillola-anti-covid-molnupiravir-bassetti.html)
+这一天南澳战友在阿德莱德市中心的维多利亚广场和新疆人、香港人一起，举行谴责中共迫害维吾尔族、祸港殃民，唤醒世界看清中共本质，终结中共暴政的集会游行。
 
-责任编辑/校对/发布：意大利达芬奇农场   萧亦
+这次活动超过100多位人士参与，先在维多利亚广场集合，由一位男性维吾尔人带领大家高喊口号，随后浩浩荡荡向国会大厦行进。一路上有当地澳人朝游行队伍竖起大拇指，路遇数位亚裔人士也连连称赞。到了国会大厦，参与游行各方代表发表演讲，共同声讨共产党专制独裁、暴力血腥、反人类的邪恶本质，它发展史就是一部血淋淋的苦难史，中共的存在是整个人类的灾难。文果战友以新中国联邦成员发表演讲，他以自己的经历痛诉共产党的邪恶，同时也宣传新中国联邦是所有中国人的希望与未来。
+
+此次行动对唤醒更多的民众认清CCP的邪恶具有非常积极重要的意义。随着恒大暴雷、各地限电停产、海运费用暴涨，拉动CCP经济的三驾马车都折了腿，高层内斗的加剧更使墙国上下一片哀鸿，人心惶惶。作为新生力量代表的新中国联邦，抓住当下改写中国历史进程，加快中共早日灭亡。
+
+（文章仅代表作者本人观点,与GNews无关）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

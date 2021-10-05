@@ -2,162 +2,60 @@
 ---
 
 
-## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
+## 班农专访 3: 班农先生谈华为孟晚舟的命运
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574774/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
-[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
+[![](https://spark.adobe.com/page/uwOXooU4T239p/images/52F47786-95B1-4AAB-9164-64037D924B51.png?asset_id=1CACDE69-4FE2-436C-9F35-F5802A3D2C29&amp;size=1024)](https://spark.adobe.com/page/uwOXooU4T239p/images/52F47786-95B1-4AAB-9164-64037D924B51.png?asset_id=1CACDE69-4FE2-436C-9F35-F5802A3D2C29&amp;size=1024)
+#### 简评：
 
-共产党要打台湾
-El Partido Comunista atacará a Taiwán
+因为美国内部亲共分子的游说，华为孟晚舟成功地从美国司法体系中逃脱，回到中共国。新中国联邦的郭文贵早就预言过孟晚舟的命运，指出华为是有中共军方背景的科技企业。因着中共与美国内部的勾兑，总有一天孟晚舟会被释放。
 
-怎么打你芯片厂
-Cómo atacará a tu fábrica de circuito integrado
+回归后的孟晚舟，命运早已经注定。中共是没有得到人民授权的非法政权。中国人民在远离中共、拥有法制和自由的地方创造着财富，为社会的发展做出着贡献。在20世纪的世界大战中，中国人民付出了巨大的代价。地球上所有参加过那场大战的国家都获得了胜利的果实，唯有付出重大牺牲的中国人民，没有得利于那场战争。这是本世纪的重大罪行。
 
-我问他两遍, 他傻眼了
-Le pregunté dos veces y se quedó estupefacto
+GTV视频链接：[英喜每周访问班农先生0929-Q3：您如何看待孟晚舟接下来的命运？](https://gtv.org/video/id=6159a107d2e2b81748709ad8)
 
-我们有这样的安排, 那样的安排
-Nosotros tenemos planeado esto y lo otro
 
-我说你懂个屁, 你还以为
-Y le dije, que sabes un pedo, tú crees
 
-你能搞芯片
-Que si puedes fabricar microchip
+#### 视频字幕：
 
-你都能搞一切了
-Podrás hacer todo
+**主持人：**就在上周，华为公主孟晚舟从美国司法体系中逃脱。据郭文贵先生说，她的逃脱主要是因为美国内部许多叛徒游说司法当局。然而文贵先生说，她一旦回到中共国，她的命运就已注定。你谈论过很多这样的高层人物。他们或者进了监狱，或者尸沉海底。那么你认为孟晚舟的命运将会如何，班农先生？
 
-你懂政治? 共产党打你厂子
-¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
+**班农先生：**回想2019年11月 （应为2018年11月，口误），我记得当时在皮埃尔酒店。文贵谈论了有关基金之事，开始建立法治基金、法治社会。当时我们从一个大屏幕开始。
 
-第一件事情就把你所有的芯片, 周围的所有人
-La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
+屏幕上面列出了约100张照片，一些显然在中共国最著名的但也是世界级的人物。他们要么自杀、要么坠楼、要么失踪、要么在监狱。总之消失了。现在情况变得更糟了。情况变得更糟了。当然，全世界对此默不做声。华为的这种情况对于美国人民来说，尤其是一种尴尬和羞辱, 是非法的拜登政府放走了她。他们就这样让她走了，就这样让她走了。
 
-你会突然发现你旁边的秘书
-De repente te darás cuenta que la secretaria que está a tu lado
+文贵等人发出的有关华为的所有警告，对于扭转华为在巴西、美国及欧洲的影响力方面，起到了一部分作用。文贵是第一个告诉我们，华为的真实面目就是解放军的技术分支。解放军拥有华为，这就是为什么它的所有一切都保密。文贵所说的有关华为的一切都是对的。他还说孟晚舟有一天会被释放。
 
-就是共产党, 立马给你下掉(防卫装备)
-Es del Partido Comunista, de una vez te deja sin equipos de defensa
+美国政府中拜登的人，他们是中共的同谋。“让她走，我会搞清楚的”。这就是所发生的事。文贵是对的。关于孟晚舟的命运，文贵在预测那些返回中共国之人命运方面有非常好的记录，他们知道得太多了。在这方面我对中共国的了解还不够。这方面我总是听从文贵的。
 
-你连一个芯片都拿不走
-No te podrás llevar ni un chip
+再说一次，很多人不相信文贵说的。我对他们说，回头看看华为。他从一开始就告诉了一切。他告诉你华为如何与中共国科技相关联，如何与解放军相关联。还有在英国。所有那些在华为工资单上的人，那些在解放军和中共工资单上的人，潜伏到所有的电信系统中，所以他们拥有获得信息。
 
-你连一个玻璃都砸不碎
-Si no podrás romper ni un vidrio
+文贵说的都是对的。当华为CFO孟晚舟被逮捕时, 他确定地说总有一天她会获释。她之所以获释，是因为为中共国公司工作的说客在美国司法部运作，把她释放。文贵说对了。
 
-还转移你什么技术, 你通通搁在这儿
-Cómo transferirás tu tecnología, todo lo debes dejar aquí
+至于她的命运，就像我说的，我不想在中共国成为知名人士，因为不知道他们何时会决定让你消失。他们会让你消失。当然，你不会在世界舞台上听到任何有关这件事的声音。
 
-而且马上把你这些人, 立马把你押送到大陆去
-Además, enviarán directamente a todos ustedes a China
+不会在伦敦、不会在纽约听到任何声音，他们从来不想谈论这个。首先, 他们不想谈论亨特拜登的硬盘，他们不想谈论所有与他有关的人都已不在。他们都消失了。那些人在哪里？
 
-都不会让你去福建
-No te dejará ir a Fujian
+所以如果你支持犯罪政权，就会表现得像犯罪政权。就是这样。（中共）不是政府，不是合法政府，没有获得（人民的）同意。我们国家的创始人为我们所做的最基本的事情之一，就是确保我们的政府建立在被管理者同意的基础上，被管理者的同意。我想知道，中国共产党有没有得到中国人民的同意？
 
-都是把你押到新疆
-Sino te llevará a Xinjiang
+我断言，没有。
 
-跟那些劳改犯押到一起去
-Para que estés con aquellos prisioneros reformados por el trabajo
+如果让他们自由选择而不遭报复，我认为中国人会压倒性地说，那些人必须滚蛋，因为我们已经厌倦了。不只是不应该承受中共统治，因为我们是人类历史上最古老、最伟大的文明之一，我们值得拥有别的东西。因此，我认为这一天即将到来。我真的觉得那一天就要來了。
 
-去了
-Arrestarte
+我想你们已经看到了势头，因为人们可以看到你们，看到郭文贵，看到新中国联邦所创造的，爆料革命所创造的。很明显，如果中国人民拥有法治，拥有言论自由、宗教自由、结社自由、向政府请愿的自由，这些基本的自由。如果这些都受到法治的保护，他们比地球上任何国家、任何社会和任何文明的人都拥有更多的财富和贡献。
 
-跟那些男的女的关一起去
-Encerrarte con esos hombres y mujeres
+如果他们没有这些自由，就被当作奴隶对待，生活在痛苦和恐惧中。在20世紀的世界大战中，中国人民为终止战争，牺牲了2500万到3000万的生命，却没有得到照顾。这是21世纪的大罪，这是悲剧。
 
-先把你精神上肉体上折磨垮你
-Primero te torturarán física y mentalmente
+请记住，中国当时是我们的盟友，并为赢得那场胜利付出了数千万人。这场战争贯穿整个20世纪，从1914年到1989年柏林墙倒塌。地球上所有参加过那场大战的国家都获得胜利的果实，唯有付出如此重大牺牲的中国人民，没有得利于那场战争。
 
-然后你老老实实的给你个电脑, 去把所有的技术给我放出来
-Luego te darán una computadora para que descargues todas las tecnologías
+这就是为什么说，这是本世纪的重大罪行。
 
-他一听说, 不会吧
-Una vez que él escuchó todo esto, dijo, no creo
+***编辑：【英国伦敦喜庄园编辑部】***
 
-我说你不用见我
-Le dije, no necesitas verme
+*字幕：雨中漫步 | 听写：云岭 | 翻译：Dasy | PR：Roberts | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
 
-还想着战争了
-Todavía estás pensando que para la guerra
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-我们有72小时转移技术, 转移硬体
-Tendremos 72 horas para transferir la tecnología y el hardware
-
-我说你天真, 你找死呢
-Le respondí, que inocente eres, estás buscando la muerte
-
-我说你
-Le dije, tú
-
-你只要自己不把脑袋切下来砸烂它
-Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
-
-他就把你脑子里所有东西都给你拿走
-Él podrá quitar todas las cosas de tu cabeza
-
-他一句话听傻了
-Él al escuchar esto se quedó asombrado
-
-我说你以为美国人72小时, 我说共产党开始那一刻起
-Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
-
-72小时
-Dentro de 72 horas
-
-美国人100%不会接触到你
-Los estadounidenses 100% no podrán tocarte
-
-他一定会在前24小时
-Él seguramente en menos de 24 horas
-
-把你这些脑袋全带走
-Llevará toda tu cabeza
-
-而且甚至会切你几个手指头, 告诉我还有什么该拿的
-Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
-
-中国大陆当兵的
-Los soldados de China
-
-对付别人, 对付日本人
-Al tratar con los demás o los japoneses
-
-我不觉得有这么狠
-Yo siento que no serán muy crueles
-
-对付美国人也没这个胆, 对付台湾人
-Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
-
-可能就像印尼人对付华人一样那么狠
-Quizás sean tan despiadados como los indonesios tratan a los asiáticos
-
-这共产党训练的兵
-Los soldados que son entrenados por el Partido Comunista
-
-对付外国人不敢, 对付同胞
-No se atreven con los extranjeros, pero con los compatriotas
-
-那是比谁都狠
-Son aún más crueles que cualquier otra persona
-
-—————————————————
-
-日期：10/02/2021
-原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
-原视频日期：09/30/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
-任务编号：KC143（2387）
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[![](https://spark.adobe.com/page/uwOXooU4T239p/images/A82136C1-3115-405C-868A-1A48E854699D.jpg?asset_id=165907FE-C78B-4B04-AF2E-03B396038170&amp;size=1024)](https://spark.adobe.com/page/uwOXooU4T239p/images/A82136C1-3115-405C-868A-1A48E854699D.jpg?asset_id=165907FE-C78B-4B04-AF2E-03B396038170&amp;size=1024)

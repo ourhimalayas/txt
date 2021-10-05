@@ -2,47 +2,22 @@
 ---
 
 
-## 脸书旗下社交平台服务全部关闭 现代通讯艰难的一天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573907/)
+## 中共国56架飞机飞入台湾领空
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573975/)
 
-栏目记者/责任编辑：安吉拉
+#### 编译：花岗岩
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-12.jpg)图片来源：雅虎
+据合众国际社10月4日报道，台湾国防部表示，周一有56架中共国战机飞入其防空识别区。白天52架，晚上4架，这是自台湾开始公开报告闯入其防空识别区的中共飞机事件以来，单日的最高总数。
 
+在台国防部的一份声明中说，当天闯入其领空的飞机包括34架J-16战斗机，12架H-6轰炸机，2架SU-30战斗机，2架Y-8反/潜战机和2架KJ-500空中预警和控制飞机。台空军已发出无线电警告，告知这些飞机 “立即掉头离开”，并部署了防空导弹系统来监测这些活动。
 
+根据国防部的数据，自10月初以来，共有145架中共国战机飞入其防空识别区。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+周日，美国敦促中共国停止在台湾附近的 “挑衅性军事活动”。
 
+中共国外交部周一继续为其挑衅行为狡辩，并称美国的言论是 “不负责任的”。
 
+看来，习近平为了巩固其大神地位和国内日趋紧张的政治和经济矛盾，已经做好了侵略台湾的准备。但是这个独裁者的“美梦”不会得逞！
 
-今天对全球第一社交巨头扎克伯格来说非常艰难。Facebook, Instagram, WhatsApp, Oculus和Messenger所有的服务都被关闭了。而且奇怪的是，Facebook.com域名被列为出售对象。
-
-以上社交通讯软件都隶属于Facebook旗下，在今日美东时间上午11:40左右开始出现故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-5.jpg)
-WhatsApp在其推特账号上承认了这个问题，对造成的不便表示抱歉，并解释团队正在努力使服务恢复正常。截止到发稿时间，以上社交媒体仍停留在无法使用状态。Telegram的使用也出现了问题，用户反应收发信息延迟严重，有时在群组消息之间会突然出现色情图片。
-
-据悉，15亿客户的个人数据被从这些平台抽取出来，在暗网上以每一百万个名字五千美元的价格出售。用户ID、真实姓名、电子邮件、电话及地址都在待售之列。
-
-脸书每月有2.8亿活跃用户，Instagram全球用户已超过10亿，WhatsApp全球用户约22亿。而今天所发生的并不是一个普通的宕机，有人删除了大段的路由器指令，Facebook的整个域名解析服务器记录已经消失。从数据角度解释，Facebook已经消失了。
-
-Facebook的股票从9月7日开始呈下降趋势，今日开盘至今每股已下跌16.78美元，约5%。今日事件发生原因尚未明晰，市场对Facebook雄心勃勃的加密货币支付系统计划的期望也在急剧下跌。
-
-截稿时另一则最新消息，今天美国银行Bank of America的许多用户，报告其银行系统出问题，敦促用户检查自己的余额及明细账。截稿时问题仍未解决。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://insiderpaper.com/whatsapp-instagram-down/)
-2. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://twitter.com/Facebook/status/1445061804636479493?s=20)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+新闻来源：[56 Chinese aircraft fly into Taiwan’s airspace](https://www.upi.com/Top_News/World-News/2021/10/04/Taiwan-56-Chinese-aircraft-fly-into-Taiwan-airspace/9791633380483/)
