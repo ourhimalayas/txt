@@ -2,37 +2,37 @@
 ---
 
 
-## 迈克·蓬佩奥发出警告：“绥靖”政策面对共产主义中共国的侵略不会有效
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1573206/)
+## 看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573256/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/c1_2190995-2.jpg)图片来源：Joe Raedle/Getty Images
-蓬佩奥周日在WABC 770 AM-N.Y.电台节目“猫圆桌会议”中说，“面对毒品问题，我们本地的执法者和警长办公室承受着巨大的压力。而且你知道，由于本届政府未能确保边境安全，美国各地的孩子正在因为这个问题而死去。”
+据[**观察者网**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月4日 23:01](https://weibo.com/1887344341/KBdP5zvxU?ref=home&amp;rid=6_0_8_6667924340392403151_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-“通常，无数的安全问题是相互关联的，我们应该留意中共国与贩毒、阿富汗和气候变化之间的关系。” 蓬佩奥在与主持人约翰·卡西马蒂斯 (John Catsimatidis) 对话中补充道。
+【[#女孩看完长津湖回家尝冻土豆#](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%9C%8B%E5%AE%8C%E9%95%BF%E6%B4%A5%E6%B9%96%E5%9B%9E%E5%AE%B6%E5%B0%9D%E5%86%BB%E5%9C%9F%E8%B1%86%23&amp;from=default) ：觉得很心酸，根本咬不动 】近日，云南昆明，电影《长津湖》热映感动众多网友，迟女士看完电影后找来土豆煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别想哭，现在美好的生活都是战士们奋斗来的。（新华网）[L西部决策的微博视频](http://t.cn/A6MxDqMt)
 
-蓬佩奥说：“上周决定允许司法部撤销对华为首席财务官的指控，这家公司违反了我们对伊朗的制裁，并且这是一家致力于窃取每一个美国公民私人信息的公司。无论如何，我无法理解他们为什么让她摆脱了困境。”
+我们不得不承认中共官媒树立起的这位云南昆明迟女士是脑子里进大粪的最好榜样，如果观众们与这位迟女士一样感同深受，那么吃冻土豆是不够的，还应该穿着单衣到冰雪地里去卧上一卧，以此体验一把当年中共炮灰们的感觉。
 
-“中共劫持了两名加拿大人。我认为我们都需要认真思考一下。中共劫持人质是为了让某人回到他们的国家。这与伊朗人的行为方式没有什么不同。”
+可是我们不想体验的啃冻土豆和我们不想体验的冰窖体验却并不以我们意志为转移地走下银幕进入我们的生活——在不定期、无预警停电之下的东北，在停电时哪怕能吃上冻的熟土豆不也是一份幸运么？在停电的阴冷天气之下，难道每个人不都在冰窖中么？
 
-蓬佩奥继续说：“这真的很重要，当我听到前国务卿约翰•克里谈论气候变化，讨论我们将建造那些电池项目时，它本质上是将美国的经济交到中国共产党手里，并且应该注意阿富汗拥有丰富的用于帮助中共国主导电动汽车电池产业的稀有金属。”
+在想到这些的时候，恍然明白中共媒体树立那个脑子进水的云南昆明迟女士为榜样的用意了，原来电影上的生活正在向我们走来，接下来能吃上冻土豆的、能在冰窖中活下来的就已经是很美好的生活了，并且这很美好的生活就是当年那些啃着冻土豆的炮灰们与那些吃着火鸡和各种美味食品的美国大兵斗争的结果！
 
-最后，关于能源独立，蓬佩奥认为总统乔•拜登迅速关闭蒙大拿州的加拿大与美国之间的Keystone XL 原油管道，却在同时允许对德国和俄罗斯之间的Nord Stream 2管道开放权限的行为是虚伪的。
+撰稿：喜马拉雅的肉夹馍
 
-“截至今天，原油价格每桶已上涨至 80 美元。通货膨胀将贯穿我们整个国家的经济。中等收入美国人的生命将会一直被牺牲在气候变化的祭坛上。”
+审核：喜马拉雅的馍夹肉
 
-简评：世界对中共在全球的恶行都会略有所闻，他们不了解的是对中共全盘计划的戳破，以及串联起来揭露的意识。这些被串联起来的事实真相能清晰的揭露中共的邪恶企图，而我们爆料革命和郭文贵先生就是这样的人和团体，和文贵先生站在同一战壕的西方战友更能用西方人的概念向西方世界清晰传达。
+校对：Maarago
 
-绥靖政策不可能消灭中共，拖延和分散注意力是中共超限战的手段。唯有立即行动起来传播真相，一遍又一遍不懈怠的向世界揭露中共的邪恶计划，才是这个平民主义大觉醒时代，全民百姓能够觉醒的唯一方式。
+（文章内容仅代表作者个人观点）
 
-新闻链接：[https://www.newsmax.com/newsfront/mike-pompeo-border-crisis-energy-chinese/2021/10/03/id/1038909/](https://www.newsmax.com/newsfront/mike-pompeo-border-crisis-energy-chinese/2021/10/03/id/1038909/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-编辑：【英国伦敦喜庄园编辑部】
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

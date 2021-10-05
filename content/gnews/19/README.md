@@ -2,37 +2,54 @@
 ---
 
 
-## 岸田文雄当选日本首相，新设经济安保大臣应对中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1573306/)
+## Facebook、Instagram、WhatsApp 因全球故障而瘫痪
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1573367/)
 
-**撰稿：日本东京方舟农场 海星**
+- 编译：西班牙喜悦农场–wenwu
 
-10月4日，日本自民党新总裁岸田文雄正式当选为日本新一任首相，并在内阁中设立一个新的经济安保大臣职务，确保敏感的技术不被中共窃取。
 
-据《美国之音》报导，岸田文雄在上星期击败多位候选人，当选自民党新总裁，为日本国会星期一投票正式确认他出任日本新首相铺平道路。
+据故障追踪网站** **[**d****owndetector.com**](http://downdetector.com)称，**Facebook **公司的主要社交媒体网站、流行的照片分享平台** ****Instagram **和消息应用** WhatsApp **因数以万计的用户，而出现了故障。
 
-担任首相一职只有一年的菅义伟及其全体内阁成员由于应对疫情不利广受日本民众指责，于星期一正式宣布辞职。
+路透社无法立即确认影响这些服务的问题。另外，**Facebook**** **网页上的错误信息表明，是域名系统（**DNS**）错误。
 
-岸田文雄在竞选期间曾表示，如果当选，会在内阁中新设首相特别助理和经济安保大臣。首相特别助理监督中共如何对待维吾尔少数民族，经济安保大臣保障日本经济与先进技术的安全，确保敏感的技术不被中共窃取。
+**DNS **或域名系统将域名连接到正确的** IP **地址，以便人们可以访问** Web**。**7**月，云计算公司** ****Akamai Technologies Inc**** **发生一次类似故障曾导致多个网站瘫痪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/id13229702-GettyImages-1228415865-600x400-1.jpg)图片来自于网络
+**“**我们知道有些人在访问我们的应用程序和产品时遇到了麻烦，**”****Facebook **的官方推特[账号](https://twitter.com/Facebook/status/1445061804636479493)周一（**4**日）说。
 
-据《自由时报》报导，新内阁设立的经济安保大臣由小林鷹之担任。他曾派驻美国3年，具有财政和外交的实力，2016年在安倍内阁担任防卫大臣财务官。小林长年关注日本知识产权、供应链、网络、宇宙战略等领域的安全保障问题。
+**“**我们正在努力使事情尽快恢复正常，我们对造成的任何不便表示歉意。**”**** WhatsApp**和**Instagram**的官方手柄也在** ****Twitter**** **上确认了这一故障。
 
-岸田文雄新内阁的人事布局可以明显看到经济安全保障将是其今后执政的重点。报道称，岸田文雄可能会在明年的国会上推出经济安保法案，除了着眼于美中贸易战中，避免日本产业遭到波及之外，近年中共在经济领域发动的渗透战略已让日本感到威胁，包括日本技术、数据的流出，日本开发的高科技遭中共用于军事等。
+**Facebook **股价在周一下午的交易中下跌了**5.5%**，朝着近一年来最糟糕的一天迈进。
 
-另一方面，中共以经济干预内政愈加明显，日本过度依賴中共供应链和市场，如去年疫情爆发造成日本口罩和防护衣严重缺货。自民党干事长甘利明曾在受访时表示，敌人不需要动用精锐武器，只要以很低端的技术就可以置日本于死地。
+**Downdetector **只通过整理一系列来源的状态报告（包括用户在其平台上提交的错误）来追踪故障，它显示有超过**5**万起用户报告** ****Facebook **和** ****Instagram **问题的事件。这次故障可能会影响到更多的用户。
 
-*注：本文仅代表作者观点，与 Gnews无关*
+同时，**Facebook **的即时通讯平台** ****WhatsApp**** **也有超过**3.5**万名用户出现故障，而** Messenger**** **则有近** 9800**** **名用户出现故障。
 
-*参考链接：*
+今年**3**月和**7**月，**Facebook**** **的应用程序套件也经历了类似的大范围故障。
 
-[岸田文雄正式出任日本新首相 拟新设经济安全大臣应对中国威胁](https://www.voachinese.com/a/japan-new-government-china-20211004/6256040.html)
+一些使用** ****Facebook **凭证登录第三方应用程序的用户，如** Pokemon Go **和** Match Masters**，也面临问题。
 
-[岸田文雄：若当选日相 将设两官职抗共](https://www.epochtimes.com/gb/21/9/13/n13229668.htm)
+益智游戏应用** ****Match Masters**** **在其** ****Twitter**** **账户上说：**”**如果你的游戏没有照常运行，请注意，**Facebook**** **的登录服务器出现了问题，当这个问题得到解决时，一切都将恢复正常。**”**
 
-[岸田「經濟安保」內閣上路 對中強硬路線將更具體](https://news.ltn.com.tw/news/world/breakingnews/3692906)
+**简评：**
+
+**一则相关报道。**
+
+**据《纽约邮报》2021年10月4日[报道](https://nypost.com/2021/10/04/facebook-instagram-and-whatsapp-hit-by-global-outage/?utm_source=browser&amp;utm_medium=push-notification&amp;utm_campaign=facebook-instagram-and-whatsapp-hit-by-global-outage)，Twitter 用户的回应是嘲笑该公司，[称](https://twitter.com/petehotchkiss/status/1445060061127225366?s=20)“如果你把它关掉，世界会更好” ， “我们实际上很享受没有虚假信息和错误信息的情况。”另外，据 DownDetector 称，手机运营商 T-Mobile、Verizon 和 AT&T 也报告了一些重大中断——尽管远没有那么彻底——与 Facebook 几乎同时发生，并且其他网站可能会受到影响；Facebook 旗下的虚拟现实游戏平台 Oculus 也遇到了问题，Oculus 在[推特上写道](https://twitter.com/oculus/status/1445058574858678273?s=20)。**
+
+**用户@\_farhankarim[写道：](https://twitter.com/_farhankarim/status/1445057882886742025?s=20) “在我重新启动互联网路由器 5 次后，发现 WhatsApp 和联合服务器已关闭，”并附上了一张小丑的照片。**
+
+**用户@SazMCFC[开玩笑说](https://twitter.com/SazMCFC/status/1445069280450646025)，Twitter 正在“拯救世界，因为 WhatsApp、Instagram 和 Facebook 崩溃了”，还有一张来自 Netflix 热播剧“鱿鱼游戏”的图片。**
+
+**用户@Rocky\_Ankomah7 在[推特上发布](https://twitter.com/Rocky_Ankomah7/status/1445073627293093889?s=20)了一张维修技术人员与电线搏斗的图片，并配文说：“马克·扎克伯格试图修复 WhatsApp、Instagram 和 Facebook。”**
+
+**一天前，一名 Facebook 吹哨人向《华尔街日报》泄露了大量该死的内部文件，[并自称是](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)Facebook 的前产品经理[弗朗西斯·豪根 (Frances Haugen)](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)。Haugen 将于本周在国会作证，她已经向联邦当局提交了大量针对 Facebook 的匿名投诉。**
+
+（文章仅代表作者观点 与GNEWS无关）
+
+**新闻来源：**《[雅虎财经](https://finance.yahoo.com/news/facebook-instagram-down-thousands-users-160304059.html)》｜作者：《路透社》｜发布时间：**2021**年**10**月**4**日
 
 * * *
 
-*编辑：文顺 校对：Ranting 发布：Ranting*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)

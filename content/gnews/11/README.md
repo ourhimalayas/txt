@@ -2,41 +2,29 @@
 ---
 
 
-## “绥靖”政策对共产主义中国的侵略不起作用
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1573412/)
+## 【新闻速递】加拿大RCMP皇家警局工会表示支持选择不打疫苗警官的人权
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1573472/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100401.jpg)美国前国务卿迈克·蓬佩奥于 2021 年在保守党政治行动会议 (CPAC) 上发表讲话。 (Joe Raedle/盖蒂图片社)
-蓬佩奥周日（10月3日）在纽约WABC 770AM电台节目“猫圆桌会议”中说，“由于毒品问题，我们本地的执法部门和警长办公室承受着巨大的压力。而且你知道，由于本届政府未能确保边境安全，美国各地的孩子们正在因为这个问题而死亡。”
+温哥华扬帆农场 – 翻译：LuLu1312
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211004-RCMPLuLu1312.jpg)
+近期，加拿大皇家警局RCMP工会表示支持所属警官选择不打疫苗的决定。与此同时，他们也表明立场。虽然联邦政府已经下定了强制疫苗政策，但他们依然会继续支持那些选择不打疫苗警官的决定。
 
-“通常情况下，各种各样的的安全问题是相互关联的，我们应该留意中共与贩毒、阿富汗和气候变化之间的关系。” 蓬佩奥在与主持人约翰·卡西马蒂斯 (John Catsimatidis) 对话中补充道。
+RCMP工会发言人说：“作为一个工会，我们会帮助并代表每一位因强制疫苗政策受到影响的警官。”
 
-蓬佩奥说：“上周，司法部决定撤销了对华为首席财务官的指控，这家公司违反了我们对伊朗的制裁，并且这是一家深度致力于窃取每一个美国公民私人信息的公司。就我而言，我无法理解他们为什么让她逍遥法外。”
+因涉及隐私，工会发言人拒绝说明具体多少名警官选择不打疫苗。
 
-“中共劫持了两名加拿大人质。我认为我们都需要认真思考一下。中共劫持人质是为了让某人回到他们的国家。这与伊朗人的行为方式没有什么不同。”
+在特鲁多宣布大选的前两天，加拿大自由党宣布了对联邦政府员工以及所有乘坐飞机，火车或者渡轮的加拿大人实行强制疫苗政策。
 
-蓬佩奥继续说道：“这真的很重要，当我听到前国务卿约翰·克里谈论气候变化，讨论我们将建造那些电池项目时，这本质上是将美国的经济交到了中国共产党手里。阿富汗拥有丰富的稀土金属，用于帮助中共国主导电动汽车电池生产。”
+特鲁多竞选时曾声称：“自由党明确表示所有公务员务必接种疫苗。如果不选择打疫苗，后果将自己承担。疫苗强制政策会在十月实施。”
 
-最后，关于能源独立，蓬佩奥认为，总统乔·拜登迅速关闭加拿大与美国之间的拱心石输油管道（Keystone XL ），却在同时允许对德国和俄罗斯之间的Nord Stream 2管道开放权限的行为是虚伪的。
+多伦多RCMP警察工会表示不会赞同联邦的这种做法。据Toronto Star新闻，多伦多警察协会与多伦多警察警务部协商后一致表明警察无需遵守联邦政府强制疫苗政策（于十月对外公开疫苗接种记录），并且不会对此行为给予处分或调动。
 
-“截至今天，原油价格每桶已逼近80美元。通货膨胀将波及我们整个国家的经济。他们会为了气候变化而牺牲美国中产阶级的生命。”
+原文链接：
 
-**简评：**
+[https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803](https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803)
 
-世界对中共在全球的恶行都会略有所闻，他们缺乏的是对中共全盘计划的戳破，以及串联起来揭露的意识。这些被串联起来的事实真相能清晰的揭露中共的邪恶企图，而我们爆料革命和郭文贵先生就是这样的人和团体，和文贵先生站在同一战壕的西方战友更能用西方人的概念向西方世界清晰传达。
+[https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf](https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf)
 
-绥靖政策不可能消灭中共，拖延和分散注意力是中共超限战的手段。唯有立即行动起来传播，一遍又一遍不懈怠的向世界揭露中共的邪恶计划，才是这个平民主义大觉醒时代，才是唤醒全球百姓能够的唯一方式。
+*编审：**abbs*
 
-[新闻链接](https://www.newsmax.com/newsfront/mike-pompeo-border-crisis-energy-chinese/2021/10/03/id/1038909/)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*翻译/简评: Filon | 校对：Julia Win*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*发布：**Shuang*

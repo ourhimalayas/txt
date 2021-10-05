@@ -2,27 +2,41 @@
 ---
 
 
-## 恒大开市前停牌 “潘多拉文件“披露多国领袖秘密财富
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1572951/)
+## 中美审计僵局难以打破，中概股退市进入倒计时
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1573013/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+**撰稿：日本东京方舟农场 北极**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-4.png)
-文章仅代表作者本人观点，与Gnews无关
+据华尔街日报10月4日报道，鉴于中美双方在中概股审计上始终存在分歧，美方于去年底颁布《外国公司问责法》，规定连续三年未将审计底稿交给美国监管机构审查的外国公司的证券禁止交易，这标志着中概股退市进入倒计时。
 
-视频参看：2021.10.04早GTV新闻访谈
+华尔街日报表示，这一行动将导致中美这两个全球最大的经济体加速脱钩，并影响到持有200多家在美上市中共公司证券的投资者，这些证券总市值约为2万亿美元。
 
-[https://gtv.org/broadcast/watch/615af366304e992109af56ff](https://gtv.org/broadcast/watch/615af366304e992109af56ff)
+据报道，中美双方监管机构有将近十年的时间试图解决两国在中概股审核方面的巨大分歧，但这些努力均以失败告终。为打破僵局，在2020年底，时任美国总统的川普(Donald Trump)签署了这部《外国公司问责法》(Holding Foreign Companies Accountable Act)。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+报道说，美国证券交易委员会(Securities and Exchange Commission，简称SEC)正在制定这项法案的实施细节，相关规则也在敲定当中。SEC主席根斯勒(Gary Gensler)此前表示，从今年开始中概股退市已进入倒计时。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+华尔街日报指出，如果美国监管部门仍无法获得这些公司涉及2021年财务状况的审计底稿，SEC可能会在2022年将这些公司标记为问题公司。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/S1-LL461_CEDU_M_20210806100241.jpg)图片来自于网络
+
+据报道，审计僵局一直是美中跨境关系的争议点之一。在美国，相关的审核工作是由美国证券交易委员会监督的美国上市公司会计监管委员会(Public Company Accounting Oversight Board, 简称PCAOB)进行的。近十年来，PCAOB在审查总部位于中共的审计机构以及四大会计师事务所中共大陆分支机构方面一直阻力重重。从本质上说，PCAOB的任务就是对审计公司进行审计。
+
+报道说，美国监管部门多年来一直表示，中共企业的审计透明度从未达到过他们的要求，因为中方没有定期交出监管机构所要求的审计底稿，也没有谈判诚意。
+
+报道还表示，中共就审计问题曾在多个场合表示反对“证券监管政治化”。
+
+报道援引消息人士透露，中方曾期望美方最终接受“监管等效”，这是中共与欧盟之间的一项安排。“监管等效”意味着美国将把中共监管机构所作的审查工作当做他们自己的审查工作一样予以接受。
+
+华尔街日报称，对于中方的上述期望，美国无法接受。为解决分歧，2019年3月美国启动《外国公司问责法》立法程序。
+
+今年6月，美国参议院通过了另一项法案，建议将中概股退市前的三年宽限期缩短至两年。
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[中美审计僵局难以化解，在美中企退市进入倒计时](https://cn.wsj.com/articles/%E4%B8%AD%E7%BE%8E%E5%AE%A1%E8%AE%A1%E5%83%B5%E5%B1%80%E9%9A%BE%E4%BB%A5%E5%8C%96%E8%A7%A3-%E5%9C%A8%E7%BE%8E%E4%B8%AD%E4%BC%81%E9%80%80%E5%B8%82%E8%BF%9B%E5%85%A5%E5%80%92%E8%AE%A1%E6%97%B6-11633319415)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

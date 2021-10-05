@@ -2,54 +2,41 @@
 ---
 
 
-## Facebook、Instagram、WhatsApp 因全球故障而瘫痪
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1573367/)
+## “绥靖”政策对共产主义中国的侵略不起作用
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1573412/)
 
-- 编译：西班牙喜悦农场–wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100401.jpg)美国前国务卿迈克·蓬佩奥于 2021 年在保守党政治行动会议 (CPAC) 上发表讲话。 (Joe Raedle/盖蒂图片社)
+蓬佩奥周日（10月3日）在纽约WABC 770AM电台节目“猫圆桌会议”中说，“由于毒品问题，我们本地的执法部门和警长办公室承受着巨大的压力。而且你知道，由于本届政府未能确保边境安全，美国各地的孩子们正在因为这个问题而死亡。”
 
+“通常情况下，各种各样的的安全问题是相互关联的，我们应该留意中共与贩毒、阿富汗和气候变化之间的关系。” 蓬佩奥在与主持人约翰·卡西马蒂斯 (John Catsimatidis) 对话中补充道。
 
-据故障追踪网站** **[**d****owndetector.com**](http://downdetector.com)称，**Facebook **公司的主要社交媒体网站、流行的照片分享平台** ****Instagram **和消息应用** WhatsApp **因数以万计的用户，而出现了故障。
+蓬佩奥说：“上周，司法部决定撤销了对华为首席财务官的指控，这家公司违反了我们对伊朗的制裁，并且这是一家深度致力于窃取每一个美国公民私人信息的公司。就我而言，我无法理解他们为什么让她逍遥法外。”
 
-路透社无法立即确认影响这些服务的问题。另外，**Facebook**** **网页上的错误信息表明，是域名系统（**DNS**）错误。
+“中共劫持了两名加拿大人质。我认为我们都需要认真思考一下。中共劫持人质是为了让某人回到他们的国家。这与伊朗人的行为方式没有什么不同。”
 
-**DNS **或域名系统将域名连接到正确的** IP **地址，以便人们可以访问** Web**。**7**月，云计算公司** ****Akamai Technologies Inc**** **发生一次类似故障曾导致多个网站瘫痪。
+蓬佩奥继续说道：“这真的很重要，当我听到前国务卿约翰·克里谈论气候变化，讨论我们将建造那些电池项目时，这本质上是将美国的经济交到了中国共产党手里。阿富汗拥有丰富的稀土金属，用于帮助中共国主导电动汽车电池生产。”
 
-**“**我们知道有些人在访问我们的应用程序和产品时遇到了麻烦，**”****Facebook **的官方推特[账号](https://twitter.com/Facebook/status/1445061804636479493)周一（**4**日）说。
+最后，关于能源独立，蓬佩奥认为，总统乔·拜登迅速关闭加拿大与美国之间的拱心石输油管道（Keystone XL ），却在同时允许对德国和俄罗斯之间的Nord Stream 2管道开放权限的行为是虚伪的。
 
-**“**我们正在努力使事情尽快恢复正常，我们对造成的任何不便表示歉意。**”**** WhatsApp**和**Instagram**的官方手柄也在** ****Twitter**** **上确认了这一故障。
-
-**Facebook **股价在周一下午的交易中下跌了**5.5%**，朝着近一年来最糟糕的一天迈进。
-
-**Downdetector **只通过整理一系列来源的状态报告（包括用户在其平台上提交的错误）来追踪故障，它显示有超过**5**万起用户报告** ****Facebook **和** ****Instagram **问题的事件。这次故障可能会影响到更多的用户。
-
-同时，**Facebook **的即时通讯平台** ****WhatsApp**** **也有超过**3.5**万名用户出现故障，而** Messenger**** **则有近** 9800**** **名用户出现故障。
-
-今年**3**月和**7**月，**Facebook**** **的应用程序套件也经历了类似的大范围故障。
-
-一些使用** ****Facebook **凭证登录第三方应用程序的用户，如** Pokemon Go **和** Match Masters**，也面临问题。
-
-益智游戏应用** ****Match Masters**** **在其** ****Twitter**** **账户上说：**”**如果你的游戏没有照常运行，请注意，**Facebook**** **的登录服务器出现了问题，当这个问题得到解决时，一切都将恢复正常。**”**
+“截至今天，原油价格每桶已逼近80美元。通货膨胀将波及我们整个国家的经济。他们会为了气候变化而牺牲美国中产阶级的生命。”
 
 **简评：**
 
-**一则相关报道。**
+世界对中共在全球的恶行都会略有所闻，他们缺乏的是对中共全盘计划的戳破，以及串联起来揭露的意识。这些被串联起来的事实真相能清晰的揭露中共的邪恶企图，而我们爆料革命和郭文贵先生就是这样的人和团体，和文贵先生站在同一战壕的西方战友更能用西方人的概念向西方世界清晰传达。
 
-**据《纽约邮报》2021年10月4日[报道](https://nypost.com/2021/10/04/facebook-instagram-and-whatsapp-hit-by-global-outage/?utm_source=browser&amp;utm_medium=push-notification&amp;utm_campaign=facebook-instagram-and-whatsapp-hit-by-global-outage)，Twitter 用户的回应是嘲笑该公司，[称](https://twitter.com/petehotchkiss/status/1445060061127225366?s=20)“如果你把它关掉，世界会更好” ， “我们实际上很享受没有虚假信息和错误信息的情况。”另外，据 DownDetector 称，手机运营商 T-Mobile、Verizon 和 AT&T 也报告了一些重大中断——尽管远没有那么彻底——与 Facebook 几乎同时发生，并且其他网站可能会受到影响；Facebook 旗下的虚拟现实游戏平台 Oculus 也遇到了问题，Oculus 在[推特上写道](https://twitter.com/oculus/status/1445058574858678273?s=20)。**
+绥靖政策不可能消灭中共，拖延和分散注意力是中共超限战的手段。唯有立即行动起来传播，一遍又一遍不懈怠的向世界揭露中共的邪恶计划，才是这个平民主义大觉醒时代，才是唤醒全球百姓能够的唯一方式。
 
-**用户@\_farhankarim[写道：](https://twitter.com/_farhankarim/status/1445057882886742025?s=20) “在我重新启动互联网路由器 5 次后，发现 WhatsApp 和联合服务器已关闭，”并附上了一张小丑的照片。**
+[新闻链接](https://www.newsmax.com/newsfront/mike-pompeo-border-crisis-energy-chinese/2021/10/03/id/1038909/)
 
-**用户@SazMCFC[开玩笑说](https://twitter.com/SazMCFC/status/1445069280450646025)，Twitter 正在“拯救世界，因为 WhatsApp、Instagram 和 Facebook 崩溃了”，还有一张来自 Netflix 热播剧“鱿鱼游戏”的图片。**
+***编辑：【英国伦敦喜庄园编辑部】***
 
-**用户@Rocky\_Ankomah7 在[推特上发布](https://twitter.com/Rocky_Ankomah7/status/1445073627293093889?s=20)了一张维修技术人员与电线搏斗的图片，并配文说：“马克·扎克伯格试图修复 WhatsApp、Instagram 和 Facebook。”**
+*翻译/简评: Filon | 校对：Julia Win*
 
-**一天前，一名 Facebook 吹哨人向《华尔街日报》泄露了大量该死的内部文件，[并自称是](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)Facebook 的前产品经理[弗朗西斯·豪根 (Frances Haugen)](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)。Haugen 将于本周在国会作证，她已经向联邦当局提交了大量针对 Facebook 的匿名投诉。**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-（文章仅代表作者观点 与GNEWS无关）
 
-**新闻来源：**《[雅虎财经](https://finance.yahoo.com/news/facebook-instagram-down-thousands-users-160304059.html)》｜作者：《路透社》｜发布时间：**2021**年**10**月**4**日
+编辑：【英国伦敦喜庄园编辑部】
 
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

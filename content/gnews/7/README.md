@@ -2,29 +2,21 @@
 ---
 
 
-## 【新闻速递】加拿大RCMP皇家警局工会表示支持选择不打疫苗警官的人权
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1573472/)
+## 鏖战初胜&#8211;加拿大暂停在学校强制接种中共病毒疫苗！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1573519/)
 
-温哥华扬帆农场 – 翻译：LuLu1312
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211004-RCMPLuLu1312.jpg)
-近期，加拿大皇家警局RCMP工会表示支持所属警官选择不打疫苗的决定。与此同时，他们也表明立场。虽然联邦政府已经下定了强制疫苗政策，但他们依然会继续支持那些选择不打疫苗警官的决定。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/ym-edited.jpg)加拿大首席卫生官：谭咏诗
+图片来源：Thepostmillennial
 
-RCMP工会发言人说：“作为一个工会，我们会帮助并代表每一位因强制疫苗政策受到影响的警官。”
 
-因涉及隐私，工会发言人拒绝说明具体多少名警官选择不打疫苗。
+加拿大知名自媒体《Thepostmillennial》10月3日刊文报道表示，加拿大特鲁多政府的首席卫生官，顶级医生谭咏诗（Theresa Tam）突然一改前态，对此前联邦卫生部门呼吁在中小学校强制接种COVID19疫苗的政策犹豫推迟，并出乎意料地表示：在所有学校强推接种之前，需要等待更多该疫苗的相关数据和医疗有效验证。
 
-在特鲁多宣布大选的前两天，加拿大自由党宣布了对联邦政府员工以及所有乘坐飞机，火车或者渡轮的加拿大人实行强制疫苗政策。
+为此，谭医生在渥太华告诉记者：“根据其他适用于儿童疫苗的接种经验，提出以上要求并出示该疫苗使用效果的证据对将被接种儿童的父母来说是一个非常重要的提醒，而且可以提高疫苗的接种率。如果各省选择这样做（收集分析儿童接种疫苗后的医疗数据），从记录和技术的角度来看，该步骤应该是比较容易执行的。
 
-特鲁多竞选时曾声称：“自由党明确表示所有公务员务必接种疫苗。如果不选择打疫苗，后果将自己承担。疫苗强制政策会在十月实施。”
+该首席卫生官的以上言论，是在多伦多公共卫生局目前正计划将COVID19疫苗加入到安大略省中小学生必须接种的九种疾病疫苗名单中之后发表的，这些疾病包括腮腺炎、麻疹和破伤风等。
 
-多伦多RCMP警察工会表示不会赞同联邦的这种做法。据Toronto Star新闻，多伦多警察协会与多伦多警察警务部协商后一致表明警察无需遵守联邦政府强制疫苗政策（于十月对外公开疫苗接种记录），并且不会对此行为给予处分或调动。
+值得公众注意的是，现在虽然有超过80%的加拿大人已经完全接种了COVID19疫苗，但是每天却仍有约4300名加拿大人持续感染该病毒，并导致约2200名病患正在医院接受治疗，其中包括700位高度感染者在重症监护室。
 
-原文链接：
+（以上内容仅代表原文信息和作者个人观点）
 
-[https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803](https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803)
-
-[https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf](https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf)
-
-*编审：**abbs*
-
-*发布：**Shuang*
+[原文链接：](https://thepostmillennial.com/dr-tam-more-data-required-before-mandating-vaccines-in-schools)
