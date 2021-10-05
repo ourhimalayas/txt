@@ -15,113 +15,113 @@
 
 ---
 
-### [Facebook前员工透露自己是泄露文件的“爆料人”(2/2)](/content/gnews/1/README.md)
+### [新中国联邦即将登上世界政治舞台的中心](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [2021年10月4日 文贵先生盖特 10](/content/gnews/2/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月4日 文贵先生盖特 9](/content/gnews/3/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [欺我合法投资，必讨伐之！](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
+
+### [2021年10月4日 文贵先生盖特 8](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月4日 文贵先生盖特 7](/content/gnews/6/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [北约秘书长访美：调整战略思想，共同应对中共的挑战](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [中国秘密社会史—哥老会](/content/gnews/8/README.md)
+ ` 骄子`
+
+### [2021年10月4日 文贵先生盖特 6](/content/gnews/9/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [普京称欧洲能源市场“存在歇斯底里和混乱”](/content/gnews/10/README.md)
+ ` HimalayaRussia`
+
+### [Facebook前员工透露自己是泄露文件的“爆料人”(2/2)](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【小雨专栏】在路上（033）——旅游篇](/content/gnews/2/README.md)
+### [【小雨专栏】在路上（033）——旅游篇](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年10月4日 文贵先生盖特 5](/content/gnews/3/README.md)
+### [2021年10月4日 文贵先生盖特 5](/content/gnews/13/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [Facebook前员工透露自己是泄露文件的“爆料人”(1/2)](/content/gnews/4/README.md)
+### [Facebook前员工透露自己是泄露文件的“爆料人”(1/2)](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭先生：今年年底到明年，疫苗给全人类带来的重大变化](/content/gnews/5/README.md)
+### [郭先生：今年年底到明年，疫苗给全人类带来的重大变化](/content/gnews/15/README.md)
  ` MG 澳喜农场多语组`
 
-### [2021年10月4日 文贵先生盖特 4](/content/gnews/6/README.md)
+### [2021年10月4日 文贵先生盖特 4](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [欧洲3国的核电计划排除中广核集团](/content/gnews/7/README.md)
+### [欧洲3国的核电计划排除中广核集团](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [法国神职人员的大规模性虐待](/content/gnews/8/README.md)
+### [法国神职人员的大规模性虐待](/content/gnews/18/README.md)
  ` Charlie`
 
-### [秘翻在线：中共在19年夏季就大规模购买病毒检测设备](/content/gnews/9/README.md)
+### [秘翻在线：中共在19年夏季就大规模购买病毒检测设备](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年10月4日 文贵先生盖特 3](/content/gnews/10/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [七哥一周聊：中东的瑞士－阿联酋，盗国贼的藏金屋](/content/gnews/11/README.md)
+### [七哥一周聊：中东的瑞士－阿联酋，盗国贼的藏金屋](/content/gnews/20/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2021年诺贝尔物理学奖得主产生](/content/gnews/12/README.md)
+### [2021年诺贝尔物理学奖得主产生](/content/gnews/21/README.md)
  ` HimalayaRussia`
 
-### [死于疫苗的母亲的讣告被Twitter贴“误导”标签](/content/gnews/13/README.md)
+### [死于疫苗的母亲的讣告被Twitter贴“误导”标签](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年10月4日 文贵先生盖特 2](/content/gnews/14/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月4日 文贵先生盖特 1](/content/gnews/15/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [视频| 真相工程&#8211;暗访辉瑞科学家](/content/gnews/16/README.md)
+### [视频| 真相工程&#8211;暗访辉瑞科学家](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [脸书解释发生全球故障的原因](/content/gnews/17/README.md)
- ` HimalayaRussia`
-
-### [10/5/21 香港快讯 形容通关是施政报告「头等大事」 林郑：全力配合中央要求](/content/gnews/18/README.md)
+### [10/5/21 香港快讯 形容通关是施政报告「头等大事」 林郑：全力配合中央要求](/content/gnews/24/README.md)
  ` 英喜-粵語組`
 
-### [银河快讯：岸田首相为实现无核世界与美国沟通；考虑提供个人现金补助](/content/gnews/19/README.md)
+### [银河快讯：岸田首相为实现无核世界与美国沟通；考虑提供个人现金补助](/content/gnews/25/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：带你更多了解马尔堡和埃博拉病毒](/content/gnews/20/README.md)
+### [秘翻在线：带你更多了解马尔堡和埃博拉病毒](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/21/README.md)
+### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年10月05日郭先生直播速记](/content/gnews/22/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [拉闸限电: 民众生活用电为何成电网崩溃元凶](/content/gnews/23/README.md)
+### [拉闸限电: 民众生活用电为何成电网崩溃元凶](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [韩政府表示给孕妇接种疫苗不会对胎儿有影响](/content/gnews/24/README.md)
+### [韩政府表示给孕妇接种疫苗不会对胎儿有影响](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [俩月！ 深二手房成交从17个月新低到12年新低](/content/gnews/25/README.md)
+### [俩月！ 深二手房成交从17个月新低到12年新低](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [西媒头条 — 第80期](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/27/README.md)
+### [前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [“潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!](/content/gnews/28/README.md)
+### [“潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [10/5/2021国际财经快讯：美国新对华贸易计划；脸书告密者称前雇主对美国构成威胁](/content/gnews/29/README.md)
+### [10/5/2021国际财经快讯：美国新对华贸易计划；脸书告密者称前雇主对美国构成威胁](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [美中贸易政策揭晓，寻求对话但保持施压中共](/content/gnews/30/README.md)
+### [美中贸易政策揭晓，寻求对话但保持施压中共](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [法国重磅“中共影响力行动”报告，揭中共全球宣传部署](/content/gnews/31/README.md)
+### [法国重磅“中共影响力行动”报告，揭中共全球宣传部署](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [被中共邪灵捆绑的中药](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [KuCoin交易所的中国大陆用户被迫在2021年底前关闭其账户](/content/gnews/33/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/34/README.md)
+### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/36/README.md)
  ` GTV新闻访谈`
-
-### [DC每日热点1005](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：联想有望返回A股市场](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [除了恒大，还有很多中共国开发商都面临债务危机](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

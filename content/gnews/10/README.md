@@ -2,15 +2,19 @@
 ---
 
 
-## 2021年10月4日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575370/)
+## 普京称欧洲能源市场“存在歇斯底里和混乱”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575437/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场 星河
 
-WOW WOWWOW**🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇👇👇👇**【GTV投资者对SEC的五大诉求： GTV Investors‘ Five Demand For The SEC 1. 立刻归还属于投资者的资金 Immediately Return GTV investor’s funds 2. 立刻停止和中国共产党的勾兑 Immediately stop collusion with the Chinese Communist Party 3. 立刻停止针对华裔投资者的种族歧视 Immediately stop racial discrimination against Chinese-Americans 4. 赔偿投资者的一切损失 Compensate GTV Investors for our loss 5. 要求负责的人出来对话 We demand to talk to those in charge for accountability】
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/E.jpg)dailypostla.com
+美东时间10月5日报道，俄罗斯总统弗拉基米尔∙普京表示，“欧洲能源市场存在歇斯底里和混乱，这是由不平衡的决定和突然的极端措施造成的。”
 
-[https://gtv.org/broadcast/watch/615b1a14304e992109af6570](https://gtv.org/broadcast/watch/615b1a14304e992109af6570)
+总统表示，“有必要牢记经济中煤炭、石油和天然气综合体稳定发展的重要性。你看欧洲正在发生什么——市场上正在发生歇斯底里和一些混乱的情况。为什么？因为没有人认真对待它。”
 
-[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd4dk04ea9)
+普京强调，“欧洲造成此情况的原因是对气候问题的投机行为、错误的预判和对开发领域减少了投资。所有的事情要实现自身的目标都是要有一个平稳的过渡。俄罗斯具有所有的能力来杜绝在自身能源市场出现这种情况。我们看到了欧洲的某些不平衡的决定、不平衡的发展和突然的极端措施导致了什么。”
 
-**喜联盟Gnews编辑部**
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431](https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431)

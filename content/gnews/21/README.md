@@ -2,27 +2,31 @@
 ---
 
 
-## 辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575250/)
+## 2021年诺贝尔物理学奖得主产生
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575358/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+俄罗斯莫斯科喀秋莎农场 星河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-5.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/N-2.jpg)trendienewz.com
+美东时间10月5日报道，诺贝尔委员会已经宣布了2021年诺贝尔物理学奖的得主。他们是美国日裔气象学家真锅淑郎（Syukuro Manabe）、德国海洋学和气象学家克劳斯∙哈塞尔曼（Klaus Hasselmann）和意大利量子物理学家乔治∙帕里西（Giorgio Parisi），以表彰他们“对理解复杂物理系统的开创性贡献”。
 
-视频参看：2021.10.05早GTV新闻访谈
+“诺贝尔物理学奖的一半颁给了真锅淑郎、克劳斯·哈塞尔曼，另一半颁给了乔治·帕里西。”该委员会的网站说。
 
-[https://gtv.org/broadcast/watch/615c44e0304e992109afc723](https://gtv.org/broadcast/watch/615c44e0304e992109afc723)
+德国科学家克劳斯·哈塞尔曼和美国人真锅淑郎 “因地球气候的物理模型、变化的定量分析和对全球变暖的可靠预测 “而获奖。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+在罗马萨皮恩扎大学工作的意大利人乔治·帕里西将获得一半的奖金—500万克朗，或57.32万美元。”因为他发现了物理系统中的无序和波动如何相互作用–从原子到行星的尺度”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+正如诺贝尔委员会所解释的那样，帕里西在1980年左右发现了无序材料中的隐藏模式。”他的发现是对复杂系统理论的最重要贡献之一。他们使人们有可能理解和描述许多不同的、显然是完全随机的现象，不仅在物理学，而且在其他非常不同的领域，如数学、生物学、神经生物学和机器学习，”该奖项的网站说。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+去年，英国科学家罗杰∙彭罗斯因证明黑洞是爱因斯坦广义相对论的直接结果而获奖；德国科学家赖因哈德∙根策尔和美国科学家安德烈娅∙盖兹因在银河系中央发现超大质量天体而获奖。
+
+诺贝尔物理学奖自1901年首次颁奖至今，已颁发115次。第一个获奖者是德国人威廉∙康拉德∙伦琴。他因发现X射线而获此殊荣。从那时起，已有2018名科学家获得了该奖项。
+
+诺贝尔生理学和医学奖获得者在前一天即10月4日宣布，他们美国科学家大卫∙朱利叶斯(David Julius)和阿登∙帕塔普蒂安(Ardem Patapoutian)，“因为发现了温度和触摸感受器”。
+
+诺贝尔委员会将于10月6日命名化学奖得主，10月7日命名文学奖得主。和平奖得主将于10月8日星期五在奥斯陆宣布。经济学奖将于10月11日颁发。
+
+参考链接：
+
+[https://www.rbc.ru/society/05/10/2021/615bbeaf9a79473b1304acff?utm\_source=yxnews&utm\_medium=desktop](https://www.rbc.ru/society/05/10/2021/615bbeaf9a79473b1304acff?utm_source=yxnews&amp;utm_medium=desktop)

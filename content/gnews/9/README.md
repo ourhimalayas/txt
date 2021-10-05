@@ -2,29 +2,13 @@
 ---
 
 
-## 秘翻在线：中共在19年夏季就大规模购买病毒检测设备
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1575378/)
+## 2021年10月4日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575445/)
 
-**翻译撰稿：billwilliam**
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-05-234841.jpg)
-据《福克斯新闻》报道，2019年夏季在官方承认的中共病毒疫情爆发前，中共国湖北省的一些医院和实验室在大肆购买病毒核酸检测设备。
+10月4号：尊敬的战友们好，明天10月5号，上午8:30至11:00七哥和帅哥美女的战友们，开始大直播，一切都已经开始！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/62cf0811ee070dcf730677d2dd9815bd.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/eef3a3be57d0e913a40e91e51909d78b.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/750104555e7e1a11b8fc1fb072531195.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/667735c7da0e489c7f915478a700bbf0.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/32f1541adbc7fe43464391a420bff9e2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/9d98d0f5d19b56a9adb7e6109b2f75ab.jpg)
+[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd7pxjfeb7)
 
-《福克斯新闻》援引澳大利亚网络安全公司Internet2.0公布的报告，2019年中共政府在病毒核酸检测设备上的花费是2018年的3倍，（而且一些花费是在疫情爆发前的2019年夏秋时节）。这家澳洲网络安全公司通过分析公开的核酸检测购买合同，发现武汉的解放军空降兵部队医院、武汉病毒所、武汉科技大学、以及湖北省疾控中心等单位“在2019年显著、大量、不正常地购买PCR（用于核酸检测）设备”。根据数据，该报告认为中共病毒早在2019年夏季或秋季就已经在中共国武汉传播。
-
-该报告的结论是，这些新发现会挑战现有对于疫情爆发起始时间的假设，应当进一步调查。报告认为大量购买PCR设备是因为中共病毒的出现。中共病毒的起源一直是争议的焦点，而国际社会强烈批评中共国阻挠世卫组织的病毒溯源调查。
-
-爆料革命已经揭示病毒就是中共故意释放的生物武器。这篇报道又指出新的证据，中共早在2019年夏季就开始大量购买病毒核酸检测设备。对此，笔者认为有两种可能性：一）中共在为生物战做准备，提前购买检测设备；二）当时中共已经开始秘密投放病毒。具体真相还有待进一步调查。
-
-笔者之前曾写过另一篇文章，内容是北京大学曾在2017年举行“军民融合生物气溶胶研讨会”，邀请解放军防化部队的专家商讨生物战中的防护。郭文贵先生也在直播中说过，中共很早就开始为生物战做准备了。
-
-**参考文献：**
-
-1.[福克斯报道](https://www.msn.com/en-us/news/world/china-increased-spending-on-pathogens-testing-months-before-acknowledging-covid-19-report-says/ar-AAP8Cqj)
-
-2.北大军民融合生物气溶胶研讨会
-
-
-
-> [秘翻在线：北大参与生物气溶胶军民融合项目](https://gnews.org/zh-hans/1474226/)
+**喜联盟Gnews编辑部**
