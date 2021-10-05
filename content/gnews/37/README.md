@@ -2,60 +2,32 @@
 ---
 
 
-## 前国务卿迈克·蓬佩奥：我们必须一直与台湾站在一起
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1573724/)
+## 郭文贵精品视频-疫苗灾难的罪魁祸首必被讨伐，曙光初现
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1573744/)
 
-前国务卿迈克·蓬佩奥： 我们必须一直与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 站在一起。 【转国家审查网报道：中国派出52架军用飞机进入台湾领空，这是有史以来最大规模的入侵】
+撰稿：澳喜cindy
 
+2020年底西方各国开始了声势浩大的强逼人民打疫苗。郭文贵先生再三告诉大家：“COVID19是中共制造的生化武器，连最关键的病毒原始数据都没有怎么能在如此短的时间内有有效的疫苗？”
+网络视频
+2021年8月23日郭先生直 [https://gtv.org/video/id=6123954314187a38e0531504](https://gtv.org/video/id=6123954314187a38e0531504)
 
+告诉全世界“疫苗基本上就是人类走向纳米时代，生物武器时代和人和科技互为一体时代和AI技术完美结合的开始，最后控制人类的就是AI技术，再配合上量子电脑 、生物电脑，这个时代已经到来，谁都无法制止，只有死多少人，谁赢谁输，这个权力是在王岐山 、习大神 、俄罗斯还有美国华尔街这些混蛋们控制还是由真正合法的政府控制。”疫苗是生化武器的附属战争的武器，它叫做基因控制，通过疫苗来控制人类的经济，甚至控制人类所有的行为和举止，不管它买多少保险，大面积疫苗死人造成人道灾难，没有一个保险公司兑付得了，保险公司会倒，大医药公司会倒，当然政治家也会倒。”
 
-> We must always stand with Taiwan. [https://t.co/IeRByrimhE](https://t.co/IeRByrimhE)
-> — Mike Pompeo (@mikepompeo) [October 4, 2021](https://twitter.com/mikepompeo/status/1445051979454197760?ref_src=twsrc%5Etfw)
+“比尔盖茨，还有沃伦·巴菲特，这些超级富豪，沼泽地，以及耶路撒冷圣地那些想统治人类的人，当然是有你看不见的这些手了。他们要彻底地净化人类七十五亿人口、净化人种、优化人种”
 
+维加诺大主教针对疫苗的看法与文贵先生一样：“我们在社会和宗教方面面临着一场围攻，这场所谓的紧急瘟疫大流行，被用来当作强行推行疫苗和“绿色通行证”的虚假借口，并在全世界很多国家同时地联合起来推行。强推这种不提供对病毒免疫力的试验性疫苗是反人类重罪！我们正处于战争中。这里有侵略者和被侵略者，有刽子手和被害者，有不公平的审判和囚徒。他们强推疫苗并非为了人们的健康，而是为了推进新世界秩序和获得自身利益，是全球范围对人类有计划的大屠杀！”
+网络视频
+郭先生发起的爆料革命运动过程中，无数战友们冒着生命危险把中共内部的重要情报传递出来，无数战友无私无我的大力传播真相。一次次情报都得到验证。为真不破为新中国联邦人积蓄了非常好的信誉才使得这次郭先生能把最重要的信息和真相信息直接送达掌控世界的权利顶层。得到了他们的认同和支持，才使全球疯狂的侵略者们的行为终于得到些许遏制。但恶魔是残忍的他们不会轻易的退出历史舞台的。这场世界上最惨烈的正义与邪恶势力的大对决不可避免的在各领域爆发。
 
+我们平民百姓要对疫苗接种的本质看清楚，保护好自己和家人、朋友，同时做好应对中共有可能再次向全世界放更毒的不同于以往的剧毒。请参考有实际经验的前线医生的自救知识建议：[https://gettr.com/post/pcfohw3a28](https://gettr.com/post/pcfohw3a28)
 
-众议员肯·巴克： 这位脸书 Facebook 吹哨人揭露了该平台的危险性。 没有真正的竞争和问责，脸书Facebook 永远不会改变。 【附吹哨人接受福克斯新闻采访视频】
+（本文观点纯属个人）
 
+作者相关作品：
 
+[https://gnews.org/zh-hans/1573542/](https://gnews.org/zh-hans/1573542/) 郭文贵精品视频-疫苗灾难之黑云压城城欲摧
 
-> This Facebook whistleblower has exposed just how dangerous the platform is. 
-> 
-> Without real competition and accountability, Facebook will never change. [https://t.co/HEWE7Fpgps](https://t.co/HEWE7Fpgps)
-> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445099090245734402?ref_src=twsrc%5Etfw)
+[https://gnews.org/zh-hans/1573643/](https://gnews.org/zh-hans/1573643/) 郭文贵精品视频-疫苗灾难之觉醒与反抗
 
-
-
-参议员瑞克·斯科特: 拜登政府没有具体计划对 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 就其不公平的贸易行为进行追责，这只会进一步扼杀全球供应链并伤害美国企业。[#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 不可信，拜登的不作为伤害了美国工人。 【转美贸易代表推文：希望你看到我概述拜登-哈里斯政府对美中贸易政策愿景的演讲。这里是准备好的演讲稿：(附链接)
-
-
-
-> The Biden admin has no concrete plan to hold Communist China accountable for its unfair trade practices that will only further its chokehold on the global supply chain & hurt American businesses. Communist China can’t be trusted & Biden’s failure to act hurts American workers. [https://t.co/R4KIg73Siq](https://t.co/R4KIg73Siq)
-> — Rick Scott (@SenRickScott) [October 4, 2021](https://twitter.com/SenRickScott/status/1445088300180590600?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 通过允许这些公司成为垄断企业，我们给了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 竞争优势。 它现在必须做的就是控制这些公司需要的一项关键投入，他们将被迫关注 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的利益而不是美国的利益： 【转每日来电者报道：独家：保守派科技团体抨击前情报官员捍卫垄断，敦促通过反垄断法案】
-
-
-
-> By allowing these companies to become monopolies, we have given China a competitive advantage. All it must do now, is gain control over one key input these companies need and they will be forced to look out for Chinese interests over American interests: [https://t.co/ENiR39BAC7](https://t.co/ENiR39BAC7)
-> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445073531025436677?ref_src=twsrc%5Etfw)
-
-
-
-众议员史蒂夫·史卡利斯： 边境的非法移民： -不需要被迫检测 -不要求接种疫苗 美国公民： -入境时需要检测 -要保住工作就要接种疫苗 不可理喻的双重标准。 不要让民主党假装他们严肃对待“科学”。
-
-
-
-> For illegal immigrants at the border:
-> – No enforced testing
-> – No vaccine requirement
-> 
-> For American citizens:
-> – Test required to enter the country
-> – Vaccine required to keep their job
-> 
-> Outrageous double standard.
-> 
-> Don't let Democrats pretend they're serious about "the science."
-> — Steve Scalise (@SteveScalise) [October 4, 2021](https://twitter.com/SteveScalise/status/1445018539514019840?ref_src=twsrc%5Etfw)
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

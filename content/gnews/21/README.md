@@ -2,47 +2,29 @@
 ---
 
 
-## 脸书旗下社交平台服务全部关闭 现代通讯艰难的一天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573907/)
+## Facebook 旗下三大社媒平台宕机近 7 小时
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573936/)
 
-栏目记者/责任编辑：安吉拉
+#### 撰稿：Grace/坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-9.jpg)图片来源：网络截图
+据美国军事新闻报道，周一下午，由于 “网络问题”，Facebook 旗下三大社交媒体平台——Facebook、Instagram和WhatsApp——经历了一次全球性崩溃，这些平台一直停摆了近七个小时，目前已经恢复。宕机期间，用户均无法通过网页或智能手机应用程序访问。一些人还报告了使用Facebook的虚拟现实耳机平台Oculus和需要Facebook登录的应用程序（包括Pokémon Go）时出现的问题。
 
+中断追踪网站Downdetector.com显示，中断是在美国东部时间上午11:30左右开始的。Facebook一直到美国东部时间下午6点左右才从中断中恢复过来。Downdetector表示，这是有史以来最大的故障，它收到了来自全球用户的超过1060万份的报告。
 
+另一方面，互联网基础设施和安全公司Cloudflare在一篇博文中对这次的中断做出了评估，**Cloudflare****称，****Facebook****撤销****BGP****意味着**** “Facebook****及其网站实际上已经与互联网断开了联系**。Cloudflare解释说：“**Facebook****的****DNS****名称停止了解析，他们的基础设施 IP 无法访问。这就像有人一下子从他们的数据中心****‘****拔掉了电缆****‘****，并将他们与互联网断开连接**”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+在周一下午4点之前，Facebook首席技术官迈克·施罗普弗（Mike Schroepfer）在推特上说：”向现在受到Facebook服务中断影响的所有人表示真诚的歉意。我们正在经历网络问题，团队正在尽可能快地工作，以调试和尽可能快地恢复。”
 
+对于这次的中断事件，美国军事新闻的首席技术官认为，Facebook 的中断似乎不是由 “外部恶意行为 “造成的。**他指出今天的中断似乎只与Facebook的边界网关协议（****BGP****）路由从全球路由基础设施中意外删除有关。**他解析说：“**BGP****是一种机制，地球上的路由器通过这种机制相互分享关于互联网上****IP****地址位置的信息。如果这些路由被撤销，世界上没有任何东西知道这些****IP****地址在哪里，因此，它们实际上已经****‘****消失****‘****了**。”他表示，自己曾经亲自目睹了 “像这样的事故发生了多次”，但从未见过一次持续这么长时间的事故，因为一旦知道了发生事故的原因，这种问题通常在几分钟内就能得到处理”。
 
+由于中断故障消除了Facebook工程师对公司网络的远程访问，一个工程师小组被派往公司总部，以便在那里可以对网络设备进行实际工作。但是，由于相互连接的大楼入口系统被关闭，Facebook的员工难以进入Facebook的设施。 纽约时报技术记者Sheera Frenkel在推特上说：”我刚刚和一个为Facebook工作的人通了电话，他描述了今天早上员工无法进入大楼，以开始评估停电的程度，因为他们的徽章无法进入大门。”
 
-今天对全球第一社交巨头扎克伯格来说非常艰难。Facebook, Instagram, WhatsApp, Oculus和Messenger所有的服务都被关闭了。而且奇怪的是，Facebook.com域名被列为出售对象。
+宕机发生在一名泄露公司文件的前Facebook员工接受媒体采访的第二天。 弗朗西斯·豪根（Frances Haugen）周日告诉哥伦比亚广播公司，Facebook 将“增长置于安全之上”。  周二，她将在参议院小组委员会题为“在线保护儿童”的听证会上作证，讨论 Instagram 对年轻用户心理健康影响的研究。
 
-以上社交通讯软件都隶属于Facebook旗下，在今日美东时间上午11:40左右开始出现故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-5.jpg)
-WhatsApp在其推特账号上承认了这个问题，对造成的不便表示抱歉，并解释团队正在努力使服务恢复正常。截止到发稿时间，以上社交媒体仍停留在无法使用状态。Telegram的使用也出现了问题，用户反应收发信息延迟严重，有时在群组消息之间会突然出现色情图片。
+此外，隐私事务（[PrivacyAffairs](https://www.privacyaffairs.com/facebook-data-sold-on-hacker-forum/)）在同日报道，**网络搜刮者声称超过**** 15 ****亿**** Facebook ****用户的私人和个人信息正在一个流行的黑客相关论坛上出售**，这可能使网络犯罪分子和不道德的广告商能够瞄准全球互联网用户。如果真的是这样，这可能构成迄今为止最大和最重要的 Facebook 数据转储之一。
 
-据悉，15亿客户的个人数据被从这些平台抽取出来，在暗网上以每一百万个名字五千美元的价格出售。用户ID、真实姓名、电子邮件、电话及地址都在待售之列。
+**新闻来源****：**
 
-脸书每月有2.8亿活跃用户，Instagram全球用户已超过10亿，WhatsApp全球用户约22亿。而今天所发生的并不是一个普通的宕机，有人删除了大段的路由器指令，Facebook的整个域名解析服务器记录已经消失。从数据角度解释，Facebook已经消失了。
-
-Facebook的股票从9月7日开始呈下降趋势，今日开盘至今每股已下跌16.78美元，约5%。今日事件发生原因尚未明晰，市场对Facebook雄心勃勃的加密货币支付系统计划的期望也在急剧下跌。
-
-截稿时另一则最新消息，今天美国银行Bank of America的许多用户，报告其银行系统出问题，敦促用户检查自己的余额及明细账。截稿时问题仍未解决。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://insiderpaper.com/whatsapp-instagram-down/)
-2. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://twitter.com/Facebook/status/1445061804636479493?s=20)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+1. [Facebook, Instagram, WhatsApp back after 7 hour outage – here’s what’s happened](https://americanmilitarynews.com/2021/10/facebook-instagram-whatsapp-back-after-7-hour-outage-heres-whats-happened/)
+2. [Facebook, Whatsapp and Instagram back after outage](https://www.bbc.com/news/technology-58793174)

@@ -2,31 +2,28 @@
 ---
 
 
-## 中共国“血旗”挂满大街小巷引发的思考
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573906/)
+## 新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573910/)
 
-栏目记者/责任编辑：晓仙女
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+栏目记者/责任编辑：文真
 
 
 
-10月1日，网易新闻一篇《巨幅国旗为祖国庆生》的文稿，用各种活动方式展示“血旗”，活动中人流聚集，完全忽视当下新冠病毒肆虐状态，曾经强制封社区、封门户的官警，瞬间消失，中共国的“血旗”挂满大街小巷，似乎“血旗”可以防病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture1-4.jpg)
-自2019年12月，新冠病毒从武汉爆发以来，人们的生活方式瞬间改变，居家状态成为生活主体，隔离变成近两年来的常态，出门不戴口罩会被歧视，大小活动场所设了扫码关卡，民众讨论最多的是‘病毒’和“疫苗“相关话题……在极度缺乏安全感的当下，大多数人不会思考病毒来源，接种的冠状疫苗是否安全？也不会质疑政府部门为什么强制疫苗？从众效应排队接种疫苗……种种行径正是“血旗”下的爱国愚民教育的结果，继续下去的中共国民众，将越发失去判断力，走向文化大革命思维模式，中国人将何去何从？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
 
-郭文贵先生10月3日直播表示：联合国，还有欧洲议会，已经开始研究新中国联邦是否能成为他们应该承认的政治力量来代表中国人。 爆料革命经过各方面的努力，迈出了这坚实的一步，将对中国和中国人命运的转折，起到历史性的影响！
+
+
+美联社报道，10月4日，新西兰政府终于肯承认现实——封锁措施不能完全消除中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4.jpg)
+此前，为达到“新冠零病例”的目的，新西兰的封锁政策已经实施了七周，奥克兰街道上抗议封锁的人群也在不断增加。他们批评政府反应过度，借疫情封锁剥夺人权和自由。封锁政策不但未能平息新冠疫情的复发，反而，给新西兰的经济中心和人口最多的城市——奥克兰，带来了巨大的经济压力。对此，新西兰总理阿德恩宣布一项谨慎的计划，以放松奥克兰的封锁限制，放弃了已经实施了18个月的中共病毒疫情指导性政策。
 
 （本文仅代表作者观点）
 
-参考链接：
-[中共国“血旗”挂满大街小巷引发的思考](https://c.m.163.com/news/a/GLBMFS005129O9M.html?spss=newsapp)
+参考链接：[新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施](https://www.zerohedge.com/covid-19/new-zealand-finally-abandons-controversial-covid-zero-policy-promises-roll-back-lockdowns)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审编辑：Q大哥
+终审编辑：Ryan
 校正/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -36,4 +33,4 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)

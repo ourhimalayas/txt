@@ -2,60 +2,44 @@
 ---
 
 
-## 强生疫苗中有疑似石墨烯、纳米脂质、球体结构等不应出现的东西
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574021/)
+## 显微镜下的摩德纳疫苗发现有会移动并自我组装的物质
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574114/)
 
-Also I Was able to look at the contents of
-此外，我查看一下强生疫苗瓶里的成分。
-a Johnson Johnson vial. And there’s definitely a substance that looked
-绝对有一种看起来像石墨烯的物质。
-like graphene. They all have graphene like
-它们里面都含有类似石墨烯的结构的东西，
-structures in there, whether or not they were, I don’t have the capability of testing them
-但是我无法确定，因为我没有能力在这个实验室测试它们。
-in this lab. But that’s what they appeared to be. They had fatty substances like
-但它们看上去很像。两瓶里都有脂肪类物质，
-
-sticky glue-like substance that would be considered a hydrogel in both of them, right.
-像粘稠的胶状物质，被认为是水凝胶，对的。
-
-That means they are lying. They are lying to us about the Johnson Johnson about not having nano lipid particles or anything of that substance. It does. In the Johnson Johnson they also
-这意味着他们在撒谎。他们在对我们撒谎，强生公司说（疫苗里）没有纳米脂质颗粒或任何这种物质。它（疫苗里）有。在强生公司的产品中
-
-had colours appeared. Their colours were different. They were like a fluorescent pastel kind of colour.
-有颜色（物质）出现。他们的颜色是不同的。他们就像荧光粉饰的那种颜色。
-Again lots of synthetic structures in there as well.
-同样，里面也含有很多合成结构物质。
-In the Johnson Johnson more like the spherical ring
-在强生（疫苗）里，有更多的球形的环状结构
-structures were there, a lot of sphere structures.
-很多球体结构。
-I’m describing what I’m seeing. But I’ve never seen anything like before.
-我在描述我所看到的东西。但我以前从未见过这样的东西。
-They’re not supposed to be in these injections (that) are falsely calling vaccines
-它们不应该出现在这些被错误地称为疫苗的注射剂中。
-What are they going to do to somebody, What are they going to do to a child.
-它们会对人造成什么后果？它们会对孩子造成什么后果？
-
-听写/翻译：莲心不染
-
-视频剪辑字幕：Kent
-
-编辑/发稿：云起时
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
-
-* * *
-
-更多加拿大枫叶农场的频道，请关注：
-
-[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-
-[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-
-[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-
-[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
-
-[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
+So first of all, in July that a local lab in Georgia said they wanted me to examine contents of a vial that they had just received.
+首先，在7月，乔治亚州的一个当地实验室说他们希望我检查他们刚刚收到的一瓶疫苗的成分。
+And this particular vial was Moderna.
+这瓶疫苗是莫德纳。
+And so I was there to witness them getting that and putting some of the contents on a glass slide.
+所以我在那里见证了他们拿到那瓶疫苗，并把一些成分放在玻璃片上。
+First it looked translucent. And then as time went on over 2 hours. Colours appeared which I’ve never seen anything like this. There was a chemical reaction happening. It was a brilliant like blue and royal purple and yellow and sometimes green.
+开始，它看起来是半透明的。然后随着时间的推移，超过了2个小时。颜色出现了，我从来没有见过这样的东西。发生了一种化学反应。它是一种灿烂的蓝色、皇家紫色和黄色，有时是绿色。
+These fibres were appearing more more. Some of the vials had a little
+越来越多纤维出现了。一些疫苗瓶上有一个小的
+cube structure on that I’m not sure what that was. Also metallic fragments were in there.
+立方体的东西，我不确定那是什么。还有金属碎片在里面。
+They were not metallic fragment I’m used to seeing, more exotic, they are very opaque.
+它们不是我平时看到的金属碎片，更有异国情调，它们是非常不透明的。
+As the edge of the cover slide, so the coverslip, you put a glass partition on that piece on top of the glass slide. There are edges. And so all the particulars
+由于玻璃盖片的边缘滑动，玻璃盖片滑落，你在那块玻璃片上面放了一个玻璃隔板。有边缘。于是所有的颗粒物
+all these colours started to move to the edge
+所有这些有颜色的（颗粒物）都开始向边缘移动，
+And there was self-assembling going on. Things are growing.
+而且它们有自我组装的情况发生。这些物质在变大。
+And then there was one particular, I say object, or organism, I’m not sure what to call it, that
+然后有一个特别的东西，我说是物体，或者有机生物，我不确定该怎么称呼它，
+had tentacles coming from it. And it was able to lift
+有触角从它身上伸出来。它能够把自己撑起来
+itself up, off the cover
+移到玻璃盖片外
+I’m sorry, off the glass slide. It was alive? The thing was alive? It appeared to. Yeah it appeared to have the self-aware or would be able to grow
+对不起，是离开玻璃片。 它是活的？那东西是活的？它看起来是的。是的，它似乎有自我意识，或者能够生长
+or move in space. Some appear to be self-aware, like it knows we were watching it.
+或在空中移动。有些似乎有自我意识，好像它知道我们在看它。
+And so you know just recently the lab, I was able to get more vials, same manufacturer but you know different batch, of course. Looking at it the same way into the compound microscope
+你知道最近在实验室，我得到更多瓶疫苗，同样的制造商，当然是不同的批次。在复式显微镜下以同样的方式观察它
+and another one of those tentacle like structures appeared. This was now completely under the cover slip.
+又出现了一个有类似触角的结构的东西。这次它已经完全在玻璃盖片下面了。
+So there was no moving because it wasn’t on the edge
+所以没有移动，因为它不在边缘上。
+But I just couldn’t believe I saw another one
+但我难以相信我又看到了一个

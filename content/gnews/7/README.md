@@ -2,30 +2,76 @@
 ---
 
 
-## 请告诉全世界这个好消息：美国最高法院取消了全民接种疫苗计划
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1574127/)
+## 《GTV新闻访谈》疫情简讯
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574148/)
 
-翻译 ：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1521-2.jpg)网络截图
-这是一条爆炸性的好消息。可是美国主流媒体静悄悄。据《The Best News Here》报道：
+栏目记者：正义的小新
+责任编辑：文一
 
-**美国最高法院裁定“Covid病原体疫苗”不是疫苗，不安全，必须不惜一切代价避免使用，最高法院取消了全民疫苗计划。**
 
-请告诉全世界在美国，最高法院已经取消了全民疫苗接种！
 
-比尔-盖茨、美国首席传染病专家福奇和大药厂在美国最高法院的诉讼中败诉，他们未能证明他们过去32年的所有疫苗对公民的健康是安全的!
 
-该诉讼是由参议员肯尼迪领导的一群科学家提起的。小罗伯特-F-肯尼迪：”应该不惜一切代价避免使用新的COVID疫苗。我紧急提请你们注意与下一次Covid-19疫苗接种有关的重要问题。在疫苗接种的历史上，最新一代的所谓mRNA疫苗第一次直接干扰了病人的遗传物质，因此改变了个人的遗传物质，这就是基因操纵，这在以前已经被禁止，并被认为是一种犯罪。
 
-什么一直是疫苗？它一直是病原体本身–被杀死或减弱的微生物或病毒，也就是被削弱的微生物或病毒–并将其引入体内以产生抗体。甚至连冠状病毒疫苗也不是! 它根本就不是那样的! 它是最新的一组据称是mRNA（mRNA）的 “疫苗 “的一部分。一旦进入人体细胞，mRNA会对正常的RNA / DNA进行重新编程，开始制造另一种蛋白质。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-7.png)
 
-也就是说，与传统的疫苗没有关系! 也就是说，它是一个影响基因的工具。遗传生物武器! 也就是说，他们要从地球人身上消灭，而幸存者将成为转基因生物! 在史无前例的mRNA疫苗之后，被接种者将不再能够以额外的方式治疗疫苗的症状。
 
-文贵先生在近期的直播中一直信心满满地告诉我们，强推疫苗一定会被各国政府终止，看来美国率先走出了黑暗。历史将铭记所有不遗余力阻止这场大灾难的英雄们，特别是文贵先生带领的爆料革命，传播病毒和疫苗真相，功不可没！
 
-（本文纯属个人观点，与Gnews 无关）
 
-[原文链接：](https://bestnewshere.com/breaking-news-the-supreme-court-in-the-us-has-ruled-that-the-covid-pathogen-is-not-a-vaccine-is-unsafe-and-must-be-avoided-at-all-costs-supreme-court-has-canceled-universal-vax/)
 
-[原文链接：](https://bestnewshere.com/breaking-news-the-supreme-court-in-the-us-has-ruled-that-the-covid-pathogen-is-not-a-vaccine-is-unsafe-and-must-be-avoided-at-all-costs-supreme-court-has-canceled-universal-vax/)[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+
+
+**韩一军队爆发疫情，多为突破性感染**
+
+位于韩国京畿道延川的一个军营爆发新冠疫情，在过去两天内共报告了 46 名感染者，其中 34 人被确认为突破性病例，占 74%。感染者中 31 人已接种辉瑞公司的疫苗，3 人已前后接种阿斯利康公司和辉瑞公司各一剂疫苗，他们大都是在 6 月底至 8 月初之间完成毒疫苗接种的。
+
+截至上个月24日，军营突破性感染人数为141人。专家认为，军事单位非高危人群，并且疫苗接种率高达94%，发生大规模突破性感染极不寻常。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.2.jpg)
+**新加坡****80%高接种率，感染人数却激增至最高值**
+
+【路透社】消息- 尽管新加坡 80% 以上的人口已经接种新冠疫苗，该国卫生部周五报告了 2909 个新冠病毒新病例，其中 8 个死亡病例，为大流行病开始以来的最高值。
+
+为此，新加坡本周起将再次实施社交限制令，包括社交聚会不能超两个人和提倡远程工作等。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.3.jpg)
+**英国威尔士突破性病例激增，****87% 住院病例为疫苗接种者**
+
+根据英国威尔士公共卫生官员公布的最新数据，在上周所有因新冠住院病例中，已接种者占了87%。另99%的阳性测试来自60岁以下的人，其中63%已接种了疫苗。也就是说，需去医院求诊的重症患者中，只有13%是未接种过疫苗的人，这表明接种者更有可能出现不良症状而住院。
+
+然而英国的公共卫生官员坚持认为疫苗有效，并发动媒体喉舌扭曲数据鼓吹接种毒疫苗。
+
+英国广播公司（BBC）公然撒谎宣称“威尔士三分之一的阳性病例是未接种疫苗者”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2.1.jpg)
+**俄罗斯单日死亡病例再创新高，死亡总数为欧洲之首**
+
+俄罗斯 10 月 3 日通报单日新增 890 例新冠死亡病例，为一周内第 5 度创新高，另新增 2 万 5769 例确诊病例。 总人口为 1 亿 4600 万的俄罗斯迄今累计近 21 万人死于中共病毒和毒疫苗，居欧洲各国之首。 尽管如此，俄官员表示，目前不打算实施封城和强制戴口罩规定。
+
+据【路透社】数据，自 2019 年 12 月中共国确诊首例新冠病毒病例以来，已有210多个国家/地区报告了中共病毒感染病例。迄今，全球感染人数已超过 2 亿 3508 万人，因感染中共病毒和注射毒疫苗的死亡人数已达 500 万 9675 人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-18.jpg)
+参考链接：
+[韩国军队46例大规模突破性感染，“主要是辉瑞”](https://news.yahoo.co.jp/articles/a656e7cbce3ba4266b4f573dafad8e3fe6a0cc18)
+[Singapore reports highest single-day rise in COVID-19 cases](https://news.yahoo.com/singapore-reports-highest-single-day-153259415.html)
+[Breakthrough Cases Surge: Vaccinated Individuals Accounted for 87% of Covid Hospitalizations Over the Past Week in Wales UK; 99% of All New Cases Were Under 60 Years Old](https://www.thegatewaypundit.com/2021/09/ready-breakthrough-cases-surge-vaccinated-individuals-accounted-87-covid-hospitalizations-past-week-wales-uk-99-new-cases-60-years-old/)
+[COVID-19全球最新情報 10/4](https://tw.news.yahoo.com/covid-19%E5%85%A8%E7%90%83%E6%9C%80%E6%96%B0%E6%83%85%E5%A0%B1-10-4-001113292.html)
+[信息框：新型冠状病毒，全球超过2.3508亿人感染，500.9万人死亡](https://news.yahoo.co.jp/articles/5f477ff2d26c9d987f220fc6f9c26135053cc58b)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/October.jpg)
+
+终审： Q大哥
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/Gnews-Logo-29.png)

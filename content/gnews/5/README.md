@@ -2,130 +2,121 @@
 ---
 
 
-## 接种疫苗后男子无法控制身体平衡，双腿不停抽搐
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574146/)
+## 推特封杀mRNA技术创始人之一及Moderna 联合创始人的账号
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574171/)
 
-can you change from this to bounce?
-你可以抖动起来吗？
+So, it is very interesting
+因此，特别有意思的是
 
-Can I what?
-我要做什么？
+but one of the founders of the mRNA technology
+mRNA技术的创始人之一
 
-Can you change this movement to bouncing?
-你可以改变这样并抖动你的腿吗？
+His name is Luigi Warren
+他叫 Luigi Warren
 
-uhmm.That’s what I am trying to do actually.
-呃..这正是我想要做的
+And we didn’t even really know his name
+我们以前甚至不知道他的名字
 
-I am tying to, let me uh
-我正在尝试，让我呃..
+until a couple of days ago
+直到在几天前才知道他是谁
 
-umm, yeah, no,yeah,no
-嗯。。是的。不。是的
+he has a Twitter account actually
+Luigi Warren有个Twitter推特账户
 
-So I can do this, and I can do that
-我可以做这个并且也可以做那个动作
+and he tweeted the other day
+他前几天发了推
 
-But you can not stop
-但是你无法停止（抖动）
+that hey, guess what?
+但是，嘿，你猜怎么着？
 
-Yeah but I can’t stop it
-是的，我无法停止它
+Because I am one of the founders
+（他发的推说：）
 
-umm, how would I do this?
-嗯..我该怎么做呢？
+of the mRNA vaccine technology
+我是MRNA疫苗技术的创始人之一
 
-Maybe just let me stand up
-也许我站起来就行
+and I am one of the co-founders
+我是Moderna的联合创始人之一，
 
-I wanna stand up right now
-我现在就想站起来
+of Modera that helped to build Moderna
+并帮助建立了Moderna公司，
 
-but I don’t know how
-但是我却不知道怎么做
+I can actually attest to the fact that:
+我的确可以证明这个事实：
 
-Let me try
-让我试试
+Yes, the shedding, the vaccine shedding
+是的，（尖峰蛋白）脱落，
 
-Now get your left foot to your right foot again
-现在你的左脚和右脚开始了原地踏步
+of the spike protein is real
+疫苗的尖锋蛋白脱落现象是真实存在的
 
-That’s how you did at home
-这就是你在家里的状况
+It actually does occur
+这种情况确实存在
 
-So I do this a lot
-之所以我会经常这样做
+Now when it occurs,
+他说当发生脱落的时候
 
-This keeps my balance, right
-是因为这能让我保持平衡
+he says it occurs in smaller amounts that
+如果这个人的脱落数量很少
 
-coz I never really established my balance, right
-因为我从来都无法建立自己的平衡
+is most likely not harmful
+很有可能不会造成危害
 
-So if I keep moving
-所以如果我继续移动
+or is going to cause diseases in other people
+或是不会导致其他人生病
 
-My body is always trying to adjust it to its balance
-我的身体就会一直试图调整平衡
+but actually, it is real.
+但这种脱落现象是真实存在的，
 
-But if I stop
-但如果我停下来
+and it does occur
+它确实有发生
 
-I will lose my balance
-我就会失去平衡
+Because he posted that tweet on Twitter
+就因为他在推特上发了这种推
 
-because… I can’t stop
-因为… 我不能停下来
+Guess what? the Twitter police came
+你猜怎么着？“推特网警”巡查，
 
-Ok bring your heels together
-好，现在把你的脚后跟并在一起
+and suspended his account
+暂停了他的账户
 
-look ahead, close your eyes
-目视前方，闭上眼睛
+They said (it was a) fake news
+推特说他发布的这些是假新闻
 
-try to stop it
-尝试停止它
+Now he is appealing that
+现在他正在上诉
 
-Yeah.. how would I do that?
-是啊..我该怎样做呢？
+He said he is not backing down
+他说他不会退缩
 
-I can’t even stop the balance to try and make this stop
-我甚至不能停止这个维持平衡的动作
+He said this would be appealed
+他将会采取上诉手段
 
-ok alright
-好，好吧
+He said: “just appealed as follows”:
+他说他的诉求主要是：
 
-um, let me try one more time
-嗯..让我再试一次
+the tweet you locked me out for is correct
+我发布的推特内容是正确的信息
 
-Ok, I am gonna try and stop balancing all together now
-现在让我尝试停止维持平衡
+I am the inventor of the (mRNA) technology,
+我是（mRNA）技术的发明者 (之一)
 
-I can’t…
-我做不到..
+from which Moderna was founded
+（基于此此技术），我也成为了 Moderna公司创立人(之一 )
 
-Ok, that’s ok, just sit down
-好的，没关系，坐下来吧。
+Look it up
+可以随意去验证我的背景是否属实
 
-Oh well, I almost got it
-好吧，我几乎快做到了
+I think I know what I am talking about。
+我想我知道我在说什么。
 
-Just shaky though
-只是有点颤抖
+and he says again he is continuing to go through more bogus lockdowns
+他又说，他还会持续被（推特）封掉更多的账户
 
-Yeah, you see now, I am not going as bad
-是的，你现在看我并没有那么糟糕了
+for posting absolutely correct statements on Twitter
+就因为他在推特上发布的这些言论是绝对正确的
 
-When do you see Dr.Broke again? This afternoon?
-你和Broke医生的预约是什么时候？今天下午吗？
-
-No, next month
-不，下个月
-
-Next month, ok, I am just gonna order an MRA brain
-下个月.好的，我现在需要为你预购一个脑部磁共振血管造影
-
-听写翻译：文莱
+文字听写翻译：UCool 优酷
 
 视频字幕：Kent
 

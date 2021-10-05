@@ -2,33 +2,60 @@
 ---
 
 
-## 新南威尔士州迎来第46任州长
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1573671/)
+## 前国务卿迈克·蓬佩奥：我们必须一直与台湾站在一起
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1573724/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/335201ff35867672cdac6b9ed1a89b03.jpg)图片来源：news.com.au
-**整理报道：**翼族
+前国务卿迈克·蓬佩奥： 我们必须一直与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 站在一起。 【转国家审查网报道：中国派出52架军用飞机进入台湾领空，这是有史以来最大规模的入侵】
 
-多米尼克·佩洛特（Dominic Perrottet）先生在今天早上的投票中，以39票对5票击败了规划部长罗博·斯托克斯（Rob Stokes），成为新南威尔士州的第46任州长。新南威尔士州是悉尼所在州，也是澳大利亚第一大经济州。
 
-就业部长斯图尔特·奥雷斯（Stuart Ayres）将成为他的副手，现任环境部长马特·科恩（Matt Kean）有望晋升为财政部长。
 
-佩洛特先生来自自由党中不太占优势的右翼派系，而奥雷斯先生和科恩先生则来自温和派。
+> We must always stand with Taiwan. [https://t.co/IeRByrimhE](https://t.co/IeRByrimhE)
+> — Mike Pompeo (@mikepompeo) [October 4, 2021](https://twitter.com/mikepompeo/status/1445051979454197760?ref_src=twsrc%5Etfw)
 
-过去两天，原州长格拉迪斯·贝瑞吉克莲(Gladys Berejiklian)和副州长约翰·巴里拉罗（John Barilaro）相继辞职。
 
-新任州长佩洛特将组建一个新的内阁。现年39岁的佩洛特是六个孩子的父亲，一位保守的天主教徒，于2019年曾投票反对堕胎合法化，也反对安乐死。
 
-周日，佩洛特表示，如果他当选，他将专注于恢复经济，新南威尔士州将于10月11日为全面接种疫苗的人重新开放。佩洛特先生表示，不排除调整该州解除封锁的路线图。传言他可能会采取更快重新开放的措施。
+众议员肯·巴克： 这位脸书 Facebook 吹哨人揭露了该平台的危险性。 没有真正的竞争和问责，脸书Facebook 永远不会改变。 【附吹哨人接受福克斯新闻采访视频】
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
 
-**参考链接：**[Dominic Perrottet becomes 46th NSW Premier after winning Liberal leadership vote](https://www.abc.net.au/news/2021-10-05/dominic-perrottet-becomes-nsw-premier/100513804)
 
-*编辑/发布：翼族*
+> This Facebook whistleblower has exposed just how dangerous the platform is. 
+> 
+> Without real competition and accountability, Facebook will never change. [https://t.co/HEWE7Fpgps](https://t.co/HEWE7Fpgps)
+> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445099090245734402?ref_src=twsrc%5Etfw)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+参议员瑞克·斯科特: 拜登政府没有具体计划对 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 就其不公平的贸易行为进行追责，这只会进一步扼杀全球供应链并伤害美国企业。[#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 不可信，拜登的不作为伤害了美国工人。 【转美贸易代表推文：希望你看到我概述拜登-哈里斯政府对美中贸易政策愿景的演讲。这里是准备好的演讲稿：(附链接)
+
+
+
+> The Biden admin has no concrete plan to hold Communist China accountable for its unfair trade practices that will only further its chokehold on the global supply chain & hurt American businesses. Communist China can’t be trusted & Biden’s failure to act hurts American workers. [https://t.co/R4KIg73Siq](https://t.co/R4KIg73Siq)
+> — Rick Scott (@SenRickScott) [October 4, 2021](https://twitter.com/SenRickScott/status/1445088300180590600?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 通过允许这些公司成为垄断企业，我们给了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 竞争优势。 它现在必须做的就是控制这些公司需要的一项关键投入，他们将被迫关注 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的利益而不是美国的利益： 【转每日来电者报道：独家：保守派科技团体抨击前情报官员捍卫垄断，敦促通过反垄断法案】
+
+
+
+> By allowing these companies to become monopolies, we have given China a competitive advantage. All it must do now, is gain control over one key input these companies need and they will be forced to look out for Chinese interests over American interests: [https://t.co/ENiR39BAC7](https://t.co/ENiR39BAC7)
+> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445073531025436677?ref_src=twsrc%5Etfw)
+
+
+
+众议员史蒂夫·史卡利斯： 边境的非法移民： -不需要被迫检测 -不要求接种疫苗 美国公民： -入境时需要检测 -要保住工作就要接种疫苗 不可理喻的双重标准。 不要让民主党假装他们严肃对待“科学”。
+
+
+
+> For illegal immigrants at the border:
+> – No enforced testing
+> – No vaccine requirement
+> 
+> For American citizens:
+> – Test required to enter the country
+> – Vaccine required to keep their job
+> 
+> Outrageous double standard.
+> 
+> Don't let Democrats pretend they're serious about "the science."
+> — Steve Scalise (@SteveScalise) [October 4, 2021](https://twitter.com/SteveScalise/status/1445018539514019840?ref_src=twsrc%5Etfw)

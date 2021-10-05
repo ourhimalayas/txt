@@ -101,13 +101,6 @@ WOW WOWWOW🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇�
 
 ---
 
-`@undeadthornbird 10/3/2021 11:43 PM (UTC)`
-
-
-![img](https://media.gettr.com/group2/getter/2021/10/03/23/43/cc11b131-3fb3-4de3-6914-e0a2ea9a36a3/6db4b0e6b1aca0b115a3dab27b91a9c4.gif)
-
----
-
 `@miles 10/4/2021 12:48 AM (UTC)`
 
 10/3/2021 Miles Guo: None of the CCP’s 4.6 million people in the public security bureaus, procuratorates, and courts dares to challenge Fu Zhenghua! Fu Zhenghua sent to Canada the third oldest brother of his family, who threatened to kill my family and colleagues if I kept recording audios or talking about Fu. To protect the safety of my family and colleagues, I didn’t talk about Fu Zhenghua in the past year.<br/><br/>10/3/2021 七哥直播：中共460万公检法队伍竟无一人敢挑战傅政华！傅政华派他们家傅老三来加拿大来威胁文贵，称如果我再录音，再说傅政华，就将杀害我的家人和同事！为了家人和同事的安全，文贵过去一年都没有谈过傅政华<br/>
@@ -294,6 +287,13 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 ✊✊✊
 > `@zaqmlp45671 10/1/2021 11:39 PM (UTC)`<br/>好消息！加拿大BC省的卫生官在谈到疫情形势的时候，没有再推疫苗！七哥太牛啦👍👍👍🙏🙏🙏
 ![img](https://media.gettr.com/group45/getter/2021/10/01/23/b3ee9a8a-c382-e3e0-bb82-18d5291337c8/05b223c58ef197aaced69a3db8f59a4d.jpg)
+
+---
+
+`@miles 10/1/2021 7:43 PM (UTC)`
+
+10月1号：疫苗灾难将是人类有史以来最大的一次人类大屠杀……每时每刻疫苗，杀人的數字．和速度和危险，都在改写一切的历史。【致所有那些对不打疫苗的人进行霸凌的人们： 请停止霸凌, 因为新冠疫苗正在杀人……To all those who bully people who are not vaccinated: Please stop bullying, because the new crown vaccine is killing people】
+![img](https://media.gettr.com/group37/getter/2021/10/01/19/43/33a5b9d6-445a-79e9-a4ca-b50cd69d5528/out.jpg)
 
 ---
 
