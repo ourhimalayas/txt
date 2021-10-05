@@ -2,87 +2,58 @@
 ---
 
 
-## 中共最赚钱的几大部门
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574735/)
+## 班农专访 1: 中共大面积限电严重影响居民过冬
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574736/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2407.png)
-[https://gtv.org/video/id=615bca35d2e2b81748715b75](https://gtv.org/video/id=615bca35d2e2b81748715b75)
+[![](https://spark.adobe.com/page/p30DpTFopojET/images/54C03BE1-05D9-40D4-9B68-0304C258C778.png?asset_id=9FF311F3-D5B0-4D68-AE7C-BE085DD852FA&amp;size=1024)](https://spark.adobe.com/page/p30DpTFopojET/images/54C03BE1-05D9-40D4-9B68-0304C258C778.png?asset_id=9FF311F3-D5B0-4D68-AE7C-BE085DD852FA&amp;size=1024)
+#### 简评：
 
-郭文贵
-Miles Guo
+中共国严重依赖澳大利亚的煤炭进口，但是鉴于中澳两国关系紧张，中共外汇枯竭和煤炭价格飞涨，中共国正在经历大面积的全国性限电、停电，即将到来的冬天会很难熬。
 
-共产党一个发改委的能源局局长想弄100亿
-The head of the Energy Bureau of the Development and Reform Commission of the Communist Party wants to get 10 billion dollars
+中共盗国贼集团洗劫了中国老百姓的财富并转移到海外，他们的家族和私生子女在海外享受着最好的生活，而中共国老百姓过着凄惨的生活，这个冬天很可能饥寒交迫而死。但全世界对此视而不见，因为全球精英们和中共狼狈为奸，联手奴役中共国老百姓，作为美国历史上第一个被中共制裁的平民，班农先生视之为平生所获得的最伟大的荣誉徽章，并为此深深骄傲。班农先生绝不与中共同流合污。
 
-就像你们现在赚个1千块钱那么简单，张宏伟跟能源局副局长吃一顿饭
-It’s as simple as you earn 1,000 dollars now, Zhang Hongwei had a meal with the deputy director of the Bureau of Energy
+GTV视频链接：[英喜每周采访班农先生0929-Q1：这个非法政权的西方合伙人像中共一样，竭尽全力在继续奴役你们](https://gtv.org/video/id=61585d82d2e2b81748704635)
 
-当天晚上张宏伟在香港，把那个江诗丹顿的所有的收藏版的表买过去
-at that night Zhang Hongwei was in Hong Kong, he bought all the collector’s edition watches of Vacheron Constantin
 
-当时拿过去的时候是拿了两亿美元的支票放在那儿押着
-He took a 200 million U.S. dollars check and put it in the store
 
-如果是我都买了，我们用支票，不买了就（把表）送回去
-If I wanted them, then just cashed the check otherwise I would send the watches back
+#### 视频字幕：
 
-结果拿过去一块也没拿回来，两亿支票兑现
-Then they didn’t send any single watch back, the check was cashed
+**主持人：**再次见到你很高兴，班农先生。第一个问题：最近，随着煤炭价格创下历史新高，中国正在经历大范围的停电。与以往一样，中共国老百姓首先受到这种极端措施的影响。有很多这样的报导，由于交通灯失灵导致很多交通事故，工厂通风设备关闭，导致一氧化碳中毒事故。
 
-全都是江诗丹顿特别版，能源局局长喜欢表
-all the watches are Vacheron Constantin special editions, the Director of the Energy Bureau likes watches
+我们知道中共国严重依赖澳大利亚的煤炭进口。鉴于中共国与澳洲的紧张关系以及它日益减少的外汇储备，你是否担心中国人会经历自毛时代以来最严酷的冬天？
 
-记住我今天郭文贵说的话，
-Remember what I, Guo Wengui said today
+**班农先生：**听着，我认为美国人也会经历一个艰难的冬天，因为能源费用飞涨。我为中国老百姓，那些小人物祷告。不仅仅是这个食品价格上涨等等，所有的一切。事情是这样的，我们回看一下。
 
-如果这个能源局的局长，发改委副主任被抓
-If this director of the Energy Bureau and the deputy director of the Development and Reform Commission was arrested
+习近平和王岐山尽力把中共国的钱洗出来，在西方投资房地产。他们与达沃斯党、美国的政治精英和华尔街进行各种关于气候变化的相互取悦的对话。
 
-他家的表最起码在3千-4千块之间，而且都是世界上最顶级的
-His watches are at least between 3,000 and 4,000 pieces, and they are all the top class in the world
+他们以气候变化的名义所做的事情，根本上改变了中共国的能源结构和电力工业，使之与现实脱节。
 
-3千多块，没有一块低于10万美元的，算算多少钱
-All these 3,000 pieces, each of them was not below $100,000 dollars, how much were them totally?
+现实是你们现在看到的大规模停电和能源短缺，看起来将是一个残酷的冬天。
 
-这是发改委有多牛，你知道吗？发改委是你们不知道的，
-This is how powerful the National Development and Reform Commission is, do you know? You don’t know anything about the Development and Reform Commission
+如果全世界还需要更多的例子来说明这个犯罪组织是如何“解决中国人民贫困问题”的，我认为在当下能源危机中所看到的情况就是再好不过的例子。在中共国，中国人民如此辛劳多产，建设了如此伟大的工业。想想看，不要说中共的社会信用系统使人们像囚犯一样，不要说人们的工资像奴隶一样，不要说他们没有任何民主和自由来选举任何代表的事实。忘记这所有的一切。只看看他们的个人状况，为了生存每日要克服的困难。问题是，为什么世界第二大经济体的人民生活得还不如本世纪的农奴？怎么会是这样？为什么王岐山、习近平和所有的这些家族，解放军的头儿、共产党的头儿，他们有如此巨量的资产？他们的孩子在世界各地可以上常春藤这样的学校，买房地产？而普通人，善良的中国公民生活得比奴隶还惨，这个冬天可能会被冻死。或者不被冻死，也会在寒冷的冬天生活得非常悲惨。
 
-中国发改委，财政部，中纪委这是捞大钱的
-China Development and Reform Commission, Ministry of Finance, Central Commission for Discipline Inspection are all big money grubbers
+怎么会这样？全世界怎么会视而不见，并且听之任之？所以，是的。我明白（中共）与澳大利亚的地缘政治和其他所有的一切。然而与此同时，你看到习近平与约翰·克里，还有美国的精英们高谈阔论什么“全球巴黎协定”，什么“低碳经济”。他们不顾中国公民的最基本需求，他们不在乎。
 
-然后是银监会，保监会，证监会这几个会，这是真的赚钱的呀
-Then there are the China Banking Regulatory Commission, the China Insurance Regulatory Commission, and the China Securities Regulatory Commission, they are really profitable commissions
+我认为世界需要监视北京这个非法犯罪组织，以确保……西方已经知道他们对维吾尔的种族灭绝。我认为，也知道他们通过中共病毒对中国人民和全世界的种族灭绝。我认为现在我们应该关注他们对中国人民进行种族灭绝的中共国国内政策。谁知道有多少人不能熬过饥饿和冬天的严寒？怎么可能会这样？尤其是怎么可能像中国人民这样一个最古老的文明，与埃及文明比肩的古老文明，怎么可能在1950年代经历那样的饥荒，人为的饥荒？
 
-其他的都是另外一回事，房地产谁控制的，银监会和保监会控制，这几个会控制呢
-Everything else is another matter, which commission controls the real estate,
-is controlled by the China Banking Regulatory Commission and the China Insurance Regulatory Commission, these commissions control it
+他们杀了3千万、4千万，还是5千万人口？我们不知道。但是那是因为政府的行为，那个现在还在执政的政府，饿死了4千万人口，这里许多听众都还记得。为什么这个政权仍然可以掌权控制着这个伟大的文明？现在我们明白了，是因为世界贸易组织给了中共最惠国待遇。
 
-所以说兄弟姐妹们这次大停电，是国内政治经济利益大较量的结果
-Therefore, brothers and sisters, the blackout is the result of a great contest of domestic political and economic interests
+在新加坡的达沃斯会议上，布隆伯格在全世界面前舔腚王岐山，说他是全世界最深刻、最有经济影响力的思想家。为什么会这样？中国人民正面临一个更加饥寒交迫的冬天，因为他们没有能力给这个国家供暖。告诉我这是怎么回事？那些记者都去哪儿了？他们那么伟大、那么智慧、那么为中国人民服务，为什么置老百姓于严冬的寒冷中？这是怎么回事？我來告诉你是怎么回事。
 
-习家说这不关我的事儿，老子我得要政治利益，我得要政治面子，再个也没钱
-Xi’s family said that it’s nothing to do with me, I have to have political benefits and looking good politically, and also there is no money
+世界的精英们与他们狼狈为奸，同流合污，所以这一切都不能停止。听着，对中国人民的压迫不能停止的唯一原因是，你们要面临一个残酷冬天的唯一原因是：这个非法政权的西方合伙人像中共一样，竭尽全力在继续奴役你们。
 
-所有的人都认为老百姓没电，像那在高空中头朝下的
-Everyone thinks that the common people have no electricity, like some one is working headed down high in the sky
+**主持人：**谢谢你，班农先生。 我完全同意你的观点。我可以补充一下吗？在迫害他的人民方面，中共是一个“机会均等”的实践者。所以在中共国，人们说不管你什么信仰、什么民族，如果你不信党，你就会被党消灭。谢谢你，班农先生。
 
-还有在那个东北医院里边正在做手术呢，吧唧停电了，完了
-also there was an operation in that Northeast Hospital, right? The power went out, it’s over
+**班农先生：**我也想补充一点。这就是为什么，我认为我一生中在我家庭之外，最大的荣誉不是白宫，不是川普首席智囊，我为此而感到骄傲，为“战斗室”而骄傲。但是斯蒂芬·班农获得的最高荣誉没有第二个，就是中国共产党对我的个人制裁，我视之为最伟大的荣誉徽章。
 
-—————————————————————
-Date:10/03/2021
-原视频标题:中共最赚钱的几大部门
-The most profitable departments of the CCP
-原视频日期：2021/09/29
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24](https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24)
-任务编号：KC145（2407）
-视频时间段 : 0:00-1:52
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+这些毫无底线的罪犯杀害了9千200万中国公民，让4亿中国婴儿，80%是女婴胎死腹中。他们对中国人民造成的灾难，更不用说由于他们的政策给世界造成的灾难。作为美国历史上有史以来第一个被他们制裁的平民，发生在拜登政府上台的4分钟之后。我认为这是最大的、无可企及的荣耀，所以我想对中国共产党说一声，谢谢你们这么做。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：Dasy | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
+
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+[![](https://spark.adobe.com/page/p30DpTFopojET/images/E8314D21-19EF-416A-8CE9-F30E00C0B8C8.jpg?asset_id=E18E8D51-59A3-4BEC-9332-C895DDEA8236&amp;size=1024)](https://spark.adobe.com/page/p30DpTFopojET/images/E8314D21-19EF-416A-8CE9-F30E00C0B8C8.jpg?asset_id=E18E8D51-59A3-4BEC-9332-C895DDEA8236&amp;size=1024)

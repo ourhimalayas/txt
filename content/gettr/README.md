@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@financegclub 10/5/2021 12:17 PM (UTC)`
+
+【黄卫平：这个地球上凡是靠 #房地产拉动经济 的国家，结局都是崩盘】<br/><br/>1923到1926期间美国佛罗里达的房价以每年超过一倍左右的速度疯狂增长。1926年，佛罗里达房地产泡沫迅速破碎，这场泡沫激化了美国的经济危机，最终导致了世界经济的大危机。<br/><br/>1989年 #日本地价 市值总额相当于整个美国地价总额的4倍，日本房地产最疯狂的时候其 #住房市值 与GDP的比例高达200%以上。1991年后，随着国际资本获利后撤离，日本房地产价格随即暴跌，到1993年，日本房地产产业全面崩溃，遗留下来的坏账高达6000亿美元。<br/><br/>2005年 #美国住房市值 与GDP的比例为172% ，房地产成为了 #08年金融危机 的导火索之一。<br/><br/>2020年 #中共国住房市值 与GDP的比例高达400%之多，大家觉得这么大的泡沫会带来什么样的金融风暴呢？<br/><br/>人类最大的教训就是从不接受教训，战友们，你准备好了么？🌊🌊🌊
+![img](https://media.gettr.com/group10/getter/2021/10/05/12/17/d0035afa-bf13-bd11-5e3d-b80560d43ad1/2d65de967aeb5ecbbb459b97f4b2ab1d.jpg)
+
+---
+
 `@miles 10/5/2021 11:27 AM (UTC)`
 
 爆料革命90天 vs. 要飯爛命90天（下）<br/>90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P2-2)<br/><br/>1、要飯爛命 我爹是塞林  大衛被抓了<br/>Begging for survival <br/>Sellin is my “daddy”.<br/>David is said to be arrested.<br/><br/>2、要飯爛命  郭先生和長島哥等人被禁止離境<br/>Begging for survival <br/>Mr. Miles Guo and Brother Long Island and others are prohibited from leaving the country. <br/><br/>3、形式坦蕩，SEC 跟我們（爆料革命）和解<br/>Bold and clear, the SEC has settle with us (the Whistleblower Movement)<br/><br/>4、要飯爛命  抹黑GTV<br/>Begging for survival <br/>Discredit GTV<br/><br/>5、要飯爛命 抹黑G系列 <br/>Begging for survival <br/>Discredit G-series<br/><br/>6、要飯爛命 G-CLUB 卡變成政治獻金 <br/>Begging for survival <br/>Buying a  G- Club membership considered as political donation  <br/><br/>7、爆料革命  美國將承認新中國聯邦<br/>The Whistleblower Movement <br/>The USA will recognize the legitimacy of the New Federal State of China (NFSC)
@@ -287,12 +296,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 10/01/2021 Miles Guo’s GETTR: All our fellow fighters around the world shall keep disseminating videos and information regarding poisonous Covid vaccine, DO NOT STOP YOUR FINGERS! Xi Jinping is surrounded by followers of Jiang Zemin, Zeng Qinghong, Wang Qishan, and Meng Jianzhu, Xi is in great danger!<br/><br/>10/01/2021 文贵盖特：全球各地的战友们继续加油传播毒疫苗的视频和信息，不要停！习周围都是江曾王孟的爪牙，习危险了啊！<br/>
 ![img](https://media.gettr.com/group9/getter/2021/10/02/00/11/6a3a549a-b425-88df-2db2-cbe480fd2b06/out.jpg)
-
----
-
-`@miles 10/1/2021 11:59 PM (UTC)`
-
-转：ZeroHedge对CDC最近颁布的新冠检测新规定作了剖析，指出这是明目张胆的欺骗。CDC通过一个完全故意的决定，人为地让打了新冠疫苗的人被检测出新冠（"突破性感染"）的可能性降到几乎为零。<br/><br/>新规定说，对完全接种疫苗的人，CDC只接受周期阈值CT值在28及以下的核酸检测（RT-PCR）样本。同时规定，只有住院和死亡的突破性感染案例才上报。由于这些非常技术性的规定，一般老百姓很容易不知究竟。所以该文章用了三个例子来讲解CDC新规定的“效果”：<br/><br/>A尚未接种疫苗。他以40阈值做的PCR检测结果显示为新冠阳性，尽管没有症状，但计算为官方病例。<br/><br/>B已接种疫苗。他以28阈值做检测呈阳性，并高烧卧床六周。因为从来没有进过医院，也没有死，他不算为官方病例。<br/><br/>C已接种疫苗。他出现高烧和呼吸问题。在医院住了几周后死亡。因为他以29阈值做的PCR检测，结果虽然呈阳性，但不算为官方病例。<br/><br/>你怎么看这样的CDC？<br/>https://www.zerohedge.com/covid-19/caught-red-handed-cdc-changes-test-thresholds-virtually-eliminate-new-covid-cases-among
 
 ---
 

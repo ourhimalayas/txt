@@ -2,159 +2,149 @@
 ---
 
 
-## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
+## 这次停电是中国电力腐败的大暴露
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574708/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
-[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2388.png)
+[https://gtv.org/video/id=615bc9e1d2e2b81748715b5a](https://gtv.org/video/id=615bc9e1d2e2b81748715b5a)
 
-共产党要打台湾
-El Partido Comunista atacará a Taiwán
+所有人跟上面的报告说
+Todas las personas les han informado a los líderes
 
-怎么打你芯片厂
-Cómo atacará a tu fábrica de circuito integrado
+北京今年的用电
+Diciendo el uso de electricidad de este año en Beijing
 
-我问他两遍, 他傻眼了
-Le pregunté dos veces y se quedó estupefacto
+任何情况下都能满足
+De que en cualquier situación se puede satisfacer
 
-我们有这样的安排, 那样的安排
-Nosotros tenemos planeado esto y lo otro
+但是突然间就在20天前
+Pero de repente hace 20 días atrás
 
-我说你懂个屁, 你还以为
-Y le dije, que sabes un pedo, tú crees
+查出来说
+Investigaron y dijeron
 
-你能搞芯片
-Que si puedes fabricar microchip
+北京的线路是三路电
+Que todas las líneas de transmisión son de tres vías
 
-你都能搞一切了
-Podrás hacer todo
+北边一路电线 西边一路电 东边一路电
+En el Norte una vía de cable eléctrico, al Oeste una vía y al Este otra vía
 
-你懂政治? 共产党打你厂子
-¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
+三路供电给北京
+Las tres vías le suministran a Beijing
 
-第一件事情就把你所有的芯片, 周围的所有人
-La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
+北京是很安全的
+Beijing es seguro
 
-你会突然发现你旁边的秘书
-De repente te darás cuenta que la secretaria que está a tu lado
+说三路电 两路电
+Dicen las tres vías, y de las dos
 
-就是共产党, 立马给你下掉(防卫装备)
-Es del Partido Comunista, de una vez te deja sin equipos de defensa
+也就是北京的
+Es decir, son de Beijing
 
-你连一个芯片都拿不走
-No te podrás llevar ni un chip
+那叫什么发电厂了
+Cómo es que se llama esa planta de electricidad
 
-你连一个玻璃都砸不碎
-Si no podrás romper ni un vidrio
+从那个西北过来的
+Ese que viene desde el noroeste
 
-还转移你什么技术, 你通通搁在这儿
-Cómo transferirás tu tecnología, todo lo debes dejar aquí
+说要线路维修
+Dicen que van a hacer reparación en la línea de transmisión
 
-而且马上把你这些人, 立马把你押送到大陆去
-Además, enviarán directamente a todos ustedes a China
+可能要长达2个月
+A lo mejor se lleve una duración de 2 meses
 
-都不会让你去福建
-No te dejará ir a Fujian
+东南路天津过来的要长达2个月
+Desde la carretera del sudeste de Tianjin durará 2 meses
 
-都是把你押到新疆
-Sino te llevará a Xinjiang
+说白了就是掩盖
+En pocas palabras es ocultar
 
-跟那些劳改犯押到一起去
-Para que estés con aquellos prisioneros reformados por el trabajo
+当初所有造的假
+Toda la falsedad que inventaron en aquel momento
 
-去了
-Arrestarte
+北京都要停电
+Ya en Beijing van a cortar la luz
 
-跟那些男的女的关一起去
-Encerrarte con esos hombres y mujeres
+这回停电 第２个核心的大问题
+Y hay 2 grandes problemas principales por este corte de luz
 
-先把你精神上肉体上折磨垮你
-Primero te torturarán física y mentalmente
+是一场中国的电老虎
+Es una partida de tirano al poder de China
 
-然后你老老实实的给你个电脑, 去把所有的技术给我放出来
-Luego te darán una computadora para que descargues todas las tecnologías
+电力腐败的一场大露馅
+Una gran demostración de corrupción de la electricidad
 
-他一听说, 不会吧
-Una vez que él escuchó todo esto, dijo, no creo
+政治大较量
+Es una gran batalla política
 
-我说你不用见我
-Le dije, no necesitas verme
+我不相信李鹏家族这回能撑得过去
+Yo no creo en que la familia de Li Peng pueda pasarla esta vez
 
-还想着战争了
-Todavía estás pensando que para la guerra
+所有跟他有关系的
+Todo lo que tenga en relación con él
 
-我们有72小时转移技术, 转移硬体
-Tendremos 72 horas para transferir la tecnología y el hardware
+李鹏家族下边还有谁
+A quién más tienen abajo de la familia de Li Peng
 
-我说你天真, 你找死呢
-Le respondí, que inocente eres, estás buscando la muerte
+大家去数一数去
+Vayan a sacar la cuenta
 
-我说你
-Le dije, tú
+李鹏家控制发改委控制能源部门 那简直厉害了
+La familia de Li Peng tiene control del departamento de desarrollo y reforma de la energía, es muy talentoso
 
-你只要自己不把脑袋切下来砸烂它
-Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
+中国没抓过能源部门没抓过发改委
+China no ha podido arrestar a ningún miembro del departamento de energía
 
-他就把你脑子里所有东西都给你拿走
-Él podrá quitar todas las cosas de tu cabeza
+就说明中国从来没想过抓腐败
+Esto demuestra que en China nunca han pensado en arrestar a los corruptos
 
-他一句话听傻了
-Él al escuchar esto se quedó asombrado
+你看王歧山上来抓反腐败
+Mira los corruptos que ha arrestado Wang Qishan
 
-我说你以为美国人72小时, 我说共产党开始那一刻起
-Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
+他抓发改委了吗 他不敢抓 是吧
+¿Acaso él ha arrestado a alguno del departamento del desarrollo y reforma? No se atreve cierto
 
-72小时
-Dentro de 72 horas
+他抓中纪委了吗
+¿Ha arrestado a los de la Comisión Central de Inspección Disciplinaria?
 
-美国人100%不会接触到你
-Los estadounidenses 100% no podrán tocarte
+他不敢抓
+No se atreve a hacerlo
 
-他一定会在前24小时
-Él seguramente en menos de 24 horas
+中纪委都抓了些主任科室的
+En la Comisión Central de Inspección Disciplinaria solo arrestó a los directores
 
-把你这些脑袋全带走
-Llevará toda tu cabeza
+大人物一个不敢动
+Pero de los personajes importantes ni uno se atreve tocar
 
-而且甚至会切你几个手指头, 告诉我还有什么该拿的
-Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
+所以这次停电是共产党的政治大较量的
+Por eso que el corte de luz de esta vez es una gran batalla de la política del comunismo
 
-中国大陆当兵的
-Los soldados de China
+一场没碰过的板块
+Es un módulo que no se ha tocado
 
-对付别人, 对付日本人
-Al tratar con los demás o los japoneses
+能源板块 发改委
+El módulo de la energía y los miembros de la Comisión de Desarrollo y Reforma
 
-我不觉得有这么狠
-Yo siento que no serán muy crueles
+都会动
+Los moverá
 
-对付美国人也没这个胆, 对付台湾人
-Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
+发改委上面一定牵扯到中纪委
+Arriba de la Comisión de Desarrollo y Reforma seguro involucrará a la Comisión Central de Inspección Disciplinaria
 
-可能就像印尼人对付华人一样那么狠
-Quizás sean tan despiadados como los indonesios tratan a los asiáticos
+因为大案要案很多
+Porque hay muchos casos importantes
 
-这共产党训练的兵
-Los soldados que son entrenados por el Partido Comunista
-
-对付外国人不敢, 对付同胞
-No se atreven con los extranjeros, pero con los compatriotas
-
-那是比谁都狠
-Son aún más crueles que cualquier otra persona
-
-—————————————————
-
+————————————————
 日期：10/02/2021
-原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
-Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
-原视频日期：09/30/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
-任务编号：KC143（2387）
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+原视频标题：这次停电是中国电力腐败的大暴露
+El corte de luz de esta vez en China es una gran revelación de corrupción
+原视频日期：10/01/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24](https://twitter.com/se1y7cblljselva/status/1443703669908664327?s=24)
+任务编号：KC144（2388）
+视频时间段：0:00-1:45
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

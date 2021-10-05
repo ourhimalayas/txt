@@ -2,95 +2,21 @@
 ---
 
 
-## 认清好虚拟币和未来的趋势
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574772/)
+## 岸田文雄新内阁以低支持率启航
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574773/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2406.png)
-[https://gtv.org/video/id=615bca7cd2e2b81748715b96](https://gtv.org/video/id=615bca7cd2e2b81748715b96)
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/21.png)（图片源自本文链接）
+每日新闻10月5日消息：
 
-**郭文贵
-Miles Guo**
+《每日新闻》和日本社会研究中心在岸田文雄新内阁成立后，于10月4日和5日进行了一次全国性的紧急民意调查。其支持率降至49%，远低于去年9月菅义伟上任时64%，不赞成率为40%。只有21%的受访者说他们对内阁成员有 “很高的期待”，而51%的人说他们 “不抱希望”。
 
-只要是20%和黄金挂钩，而且确有保障，再加上稳定币
-As long as 20% is linked to gold, and it’s guaranteed plus stable coins
+出于对新政府的期望，新总理的支持率往往会在新政府开始执政后立即高涨。尽管岸田首任内阁的支持率较菅义伟内阁的最后一次民意调查（9月18日）的37%有所上升，但与以往内阁开始执政时相比，这似乎是一个低迷的开始。尽管每次调查方法不同，不能只是以数字进行单纯的比较，但这确实是过去20年中的第二低，仅次于2008年9月麻生太郎内阁开始执政时的45%。
 
-那就更是好上加好，因为我随时可以拿走嘛
-That’s even better because I can cash out at any time
+[信息源](https://news.yahoo.co.jp/articles/7f8bbbd6fa2da32eef167a127c8aec9a3d2dbfa6)
 
-我稳定币就是存钱，我随时能拿走
-My stable coins is like my savings, I can cash out at any time
+（文章仅代表作者个人观点，与GNEWS无关）
 
-稳定币支付系统，加黄金挂钩的任何币都可以买
-you can buy any cryptocurrency with stable currency payment system linked to gold
-
-千万不要存美元，你存美元，任何钱
-Never save US dollars, you save US dollars or any currency
-
-战友们你要辛辛苦苦有个30万20万美元
-Comrades in arms, you work so hard to save 300,000 or 200,000 US dollars
-
-你在家里搁着，或者加拿大元，或者什么英镑，欧元
-You put them aside, or Canadian dollar, or British pound, or Euro
-
-我告诉你，你今年年底到明年你就知道你有多惨，
-I tell you, you will know how miserable you are from the end of this year to next year
-
-全世界我现在跟你说
-I’m telling the world now
-
-昨天你看到英国了吗？看到战友发信息了吗？看到美国了吗？
-Did you see Britain yesterday? Did you see your comrades in arms send messages? Have you seen America?
-
-我告诉你，当这个疫苗的脑梗、心梗、肛梗、眼梗全面爆发以后
-Let me tell you, when this vaccine has a full outbreak of cerebral infarction, myocardial infarction, anal infarction, and ocular infarction
-
-小7，小福利记住，你们最贵的是什么 – 双修
-Xiao seven and xiao Fuli remember that what is precious for you？it’s sex
-
-我不跟你们开半点玩笑，你能有双修的力气，那可就真是行了
-I’m not joking with you, if you can have the strength for sex, that’s really good
-
-你还能安全的双修，最重要的事情我告诉你
-You can still have sex safely, I will tell you the most important thing
-
-只要你没打疫苗的人，你就等于神，你就是最高赢家
-as long as you are not vaccinated, you are equal to God, and you are the biggest winner
-
-没打疫苗绝对最高（赢家），你看到处死人
-Unvaccinated people will be the biggest winners, you look at died people all over the place
-
-未来烧人的东西，和烧尸体的东西，掩埋尸体的东西
-In the future, things that burn people, things that burn corpses, things that bury corpses
-
-处理尸体的东西和装尸袋都是最贵的
-things that disposal of corpses and cadaver bags are the most expensive
-
-火葬场是最赚钱的，最可怕的就是银行不值钱
-The crematorium is the most profitable business, the most terrifying thing is that the bank is worthless
-
-货币，钱不值钱，然后剩下最值钱除了火葬场烧人这些买卖最好
-Currency, money is worthless, then there is the most valuable thing except for burning people in crematorium, which is the best business
-
-然后就是虚拟货币了，没有任何人再相信国家
-Then there is virtual currency, no one believes in the government anymore
-
-全都找虚拟货币
-All will look for virtual currency
-
-———————————————————————
-Date:10/03/2021
-原视频标题:认清好虚拟币和未来的趋势
-Recognize the virtual currency and future trends
-原视频日期：2021/09/29
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24](https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24)
-任务编号：KC146（2406）
-视频时间段 : 0:00-1:35
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对：东京樱花团 / 知了知了*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

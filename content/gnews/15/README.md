@@ -2,39 +2,162 @@
 ---
 
 
-## 日本新首相岸田新战略：加强经济安保应对中共威胁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574678/)
+## 台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574684/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-11.png)
-（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2387.png)
+[https://gtv.org/video/id=615bc988d2e2b81748715b47](https://gtv.org/video/id=615bc988d2e2b81748715b47)
 
-据《希望之声》10月5日报道，日本自民党总裁岸田文雄10月4日在完成国会指名及天皇亲任等仪式后，率领20位主要内阁成员正式上任。除了新内阁成员中踢出了亲共的二阶、石破派之外，岸田还表示，新政府将制定严厉的外交和安全政策，以促进自由和开放的印太地区，加强国防和海上安全能力，应对中共威胁。
+共产党要打台湾
+El Partido Comunista atacará a Taiwán
 
-据台湾《自由时报》报道，日本新内阁名单中的防卫大臣岸信夫、外务大臣茂木敏充、经济产业大臣萩生田光一、经济再生担当大臣山际大志郎、经济安全保障大臣小林鹰之、总务大臣金子恭之、复兴大臣西铭恒三郎、法务大臣古川祯久和数位大臣牧岛Karen等，均被视为亲台派；而财务大臣铃木俊一更是被中共官媒形容为“反中急先锋”。
+怎么打你芯片厂
+Cómo atacará a tu fábrica de circuito integrado
 
-亲共的自民党前干事长二阶俊博领军的二阶派，这次未能在主要党职中抢得席位；而同样亲共的以石破茂为首的石破派，则完全被排除在党政主要人事之外。此外，担任法务大臣的古川祯久虽原属石破派，但他日前已宣布退出该派。
+我问他两遍, 他傻眼了
+Le pregunté dos veces y se quedó estupefacto
 
-报道称，从岸田的这次党政人事安排来看，这次组阁可视为一个“经济安保内阁”，“经济安全保障”将是新内阁的施政重点。若无意外，岸田明年可能会在国会推出“经济安保”相关法案。据悉，新一波的安保法制大改造强度，将不输给安倍政府以松绑集体自卫权为主的军事安保法制改造，尤其是经济安保方面的抗共路线也会更为具体。
+我们有这样的安排, 那样的安排
+Nosotros tenemos planeado esto y lo otro
 
-据报道，中共近年来在经济领域发动的渗透战略，已让日本受到严重威胁，包括日本的技术和数据的流出，以及日本开发的高科技遭中共军事转用等。另一方面，中共利用经济干预日本内政也日趋明显。
+我说你懂个屁, 你还以为
+Y le dije, que sabes un pedo, tú crees
 
-此外，日本过度依赖中共国供应链和市场也已构成危机。在去年中共病毒疫情爆发后，日本的口罩和防护衣严重缺货。甘利明曾在受访时表示，敌人不需动用精锐武器，只要以很低阶的技术，即可置日本于死地。
+你能搞芯片
+Que si puedes fabricar microchip
 
-《自由时报》报道还认为，日本的经济安保战略将不局限于守势，还将进行主动出击，包括主导推动国际规则的制定、重振日本半导体产业等。据日本媒体报道，新政府将设立经济安全大臣新职务，以确保日本的敏感技术不被中共国等国家窃取。
+你都能搞一切了
+Podrás hacer todo
 
-岸田10月4日晚间在就任首相后的首场记者会上表示，他将在日美同盟及世界对日本信任的基础上，制定严厉的外交和安全政策，以促进自由和开放的印太地区，加强国防和海上安全能力，并迅速解决绑架问题。
+你懂政治? 共产党打你厂子
+¿Conoces la política? Si el Partido Comunista va a atacar tu fábrica
 
-在如何与中共打交道的问题上，岸田指出，将持续与中共当局对话。但他同时也强调，中共在东海和南海等地试图以武力改变现状，且在自由和法治等价值观方面的做法令人质疑。岸田表示，日本将与共享普世价值的盟国和伙伴合作，对中共发出应该发出的声音。
+第一件事情就把你所有的芯片, 周围的所有人
+La primera cosa que hará es dejar que todos tus microchips y las personas que están alrededor
 
-对于中共申请加入《跨太平洋伙伴全面进步协定》（CPTPP），岸田指出，中共补贴国有企业，对智慧财产权保护不足。他表示，目前还不知道中共是否能达到CPTPP的高标准要求。
+你会突然发现你旁边的秘书
+De repente te darás cuenta que la secretaria que está a tu lado
 
-岸田文雄此前还曾表示，他将会指派一名首相特别助理，监督中共如何对待维吾尔少数民族。他说，“通过与那些共享普世价值的国家合作，我会高举自由和民主的火炬。”
+就是共产党, 立马给你下掉(防卫装备)
+Es del Partido Comunista, de una vez te deja sin equipos de defensa
 
-此外，在竞选期间，岸田也曾表示，他会领导日本政府与“崇尚自由、民主和法治等价值观”的台湾加强合作。他指出，如果台湾海峡发生战事，日本会受到严重影响。因此，日本应继续加大防务建设，以应对外来的威胁。
+你连一个芯片都拿不走
+No te podrás llevar ni un chip
 
-从岸田的新内阁成员组成及未来新政府的外交和安全政策似乎可以看出，岸田将会走“抗共亲台”路线。不过，岸田家族在中共国有很深的利益，甚至有评论这么描述：岸田是上半身反共，下半身亲共。究竟岸田带领的日本新政府未来在对抗中共的问题上是否如其所言，还有待观察。
+你连一个玻璃都砸不碎
+Si no podrás romper ni un vidrio
 
-注：本文仅代表作者观点
+还转移你什么技术, 你通通搁在这儿
+Cómo transferirás tu tecnología, todo lo debes dejar aquí
 
-**新闻链接**：[https://twitter.com/SoundofHopeSOH/status/1445294822995206147](https://twitter.com/SoundofHopeSOH/status/1445294822995206147)
+而且马上把你这些人, 立马把你押送到大陆去
+Además, enviarán directamente a todos ustedes a China
+
+都不会让你去福建
+No te dejará ir a Fujian
+
+都是把你押到新疆
+Sino te llevará a Xinjiang
+
+跟那些劳改犯押到一起去
+Para que estés con aquellos prisioneros reformados por el trabajo
+
+去了
+Arrestarte
+
+跟那些男的女的关一起去
+Encerrarte con esos hombres y mujeres
+
+先把你精神上肉体上折磨垮你
+Primero te torturarán física y mentalmente
+
+然后你老老实实的给你个电脑, 去把所有的技术给我放出来
+Luego te darán una computadora para que descargues todas las tecnologías
+
+他一听说, 不会吧
+Una vez que él escuchó todo esto, dijo, no creo
+
+我说你不用见我
+Le dije, no necesitas verme
+
+还想着战争了
+Todavía estás pensando que para la guerra
+
+我们有72小时转移技术, 转移硬体
+Tendremos 72 horas para transferir la tecnología y el hardware
+
+我说你天真, 你找死呢
+Le respondí, que inocente eres, estás buscando la muerte
+
+我说你
+Le dije, tú
+
+你只要自己不把脑袋切下来砸烂它
+Siempre y cuando no te cortes la cabeza y lo rompas en pedazos
+
+他就把你脑子里所有东西都给你拿走
+Él podrá quitar todas las cosas de tu cabeza
+
+他一句话听傻了
+Él al escuchar esto se quedó asombrado
+
+我说你以为美国人72小时, 我说共产党开始那一刻起
+Yo dije, tú crees que los estadounidenses en 72 horas, en el momento en que comenzó el Partido Comunista
+
+72小时
+Dentro de 72 horas
+
+美国人100%不会接触到你
+Los estadounidenses 100% no podrán tocarte
+
+他一定会在前24小时
+Él seguramente en menos de 24 horas
+
+把你这些脑袋全带走
+Llevará toda tu cabeza
+
+而且甚至会切你几个手指头, 告诉我还有什么该拿的
+Incluso cortará unos cuantos dedos tuyos, diciéndote, qué más debo llevarme
+
+中国大陆当兵的
+Los soldados de China
+
+对付别人, 对付日本人
+Al tratar con los demás o los japoneses
+
+我不觉得有这么狠
+Yo siento que no serán muy crueles
+
+对付美国人也没这个胆, 对付台湾人
+Al igual que con los estadounidenses, no tienen esa valentía, pero con los taiwaneses
+
+可能就像印尼人对付华人一样那么狠
+Quizás sean tan despiadados como los indonesios tratan a los asiáticos
+
+这共产党训练的兵
+Los soldados que son entrenados por el Partido Comunista
+
+对付外国人不敢, 对付同胞
+No se atreven con los extranjeros, pero con los compatriotas
+
+那是比谁都狠
+Son aún más crueles que cualquier otra persona
+
+—————————————————
+
+日期：10/02/2021
+原视频标题：台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切
+Los taiwaneses no se sientan afortunados, el Partido Comunista llevará todo lo que tengan en 24 horas
+原视频日期：09/30/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24](https://twitter.com/se1y7cblljselva/status/1443538103944159233?s=24)
+任务编号：KC143（2387）
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

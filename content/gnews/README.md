@@ -15,119 +15,119 @@
 
 ---
 
-### [“劣质艺人”赵薇与她背后的超级权势大人物](/content/gnews/1/README.md)
+### [秘翻在线：华为支付欲挑战微信阿里？](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [“劣质艺人”赵薇与她背后的超级权势大人物](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农专访 5: 拥有天然免疫力的人不需要接种疫苗](/content/gnews/2/README.md)
+### [班农专访 5: 拥有天然免疫力的人不需要接种疫苗](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访 4：中共军机携带核弹头飞临台湾示威](/content/gnews/3/README.md)
+### [班农专访 4：中共军机携带核弹头飞临台湾示威](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访 3: 班农先生谈华为孟晚舟的命运](/content/gnews/4/README.md)
+### [班农专访 3: 班农先生谈华为孟晚舟的命运](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [岸田文雄新内阁以低支持率启航](/content/gnews/5/README.md)
+### [岸田文雄新内阁以低支持率启航](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [认清好虚拟币和未来的趋势](/content/gnews/6/README.md)
+### [认清好虚拟币和未来的趋势](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [金灿荣其人](/content/gnews/7/README.md)
+### [金灿荣其人](/content/gnews/8/README.md)
  ` 银河勇气之星`
 
-### [班农专访 2：王岐山是世界上最危险的人](/content/gnews/8/README.md)
+### [班农专访 2：王岐山是世界上最危险的人](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访 1: 中共大面积限电严重影响居民过冬](/content/gnews/9/README.md)
+### [班农专访 1: 中共大面积限电严重影响居民过冬](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共最赚钱的几大部门](/content/gnews/10/README.md)
+### [中共最赚钱的几大部门](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [秘翻在线：大型医药公司将推出仿制伊维菌素的中共病毒治疗药](/content/gnews/11/README.md)
+### [秘翻在线：大型医药公司将推出仿制伊维菌素的中共病毒治疗药](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：芬兰研究发现，感染中共病毒后体内抗体可持续至少1年](/content/gnews/12/README.md)
+### [秘翻在线：芬兰研究发现，感染中共病毒后体内抗体可持续至少1年](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [这次停电是中国电力腐败的大暴露](/content/gnews/13/README.md)
+### [这次停电是中国电力腐败的大暴露](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切](/content/gnews/14/README.md)
+### [台湾人不要有侥幸心理，共产党会在24小时内拿光你的一切](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本新首相岸田新战略：加强经济安保应对中共威胁](/content/gnews/15/README.md)
+### [日本新首相岸田新战略：加强经济安保应对中共威胁](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [从美国之音对疫苗的宣传看主流媒体对民众行为的诱导](/content/gnews/16/README.md)
+### [从美国之音对疫苗的宣传看主流媒体对民众行为的诱导](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：澳大利亚反对中共对台湾进行威胁和使用武力](/content/gnews/17/README.md)
+### [秘翻在线：澳大利亚反对中共对台湾进行威胁和使用武力](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报——美国时事篇](/content/gnews/18/README.md)
+### [西喜时事新闻简报——美国时事篇](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共代表在联合国人权理事会宣介“全球发展倡议”](/content/gnews/19/README.md)
+### [中共代表在联合国人权理事会宣介“全球发展倡议”](/content/gnews/20/README.md)
  ` 儒为`
 
-### [美国大型社交媒体网站宕机，盖特正常运行](/content/gnews/20/README.md)
+### [美国大型社交媒体网站宕机，盖特正常运行](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [10月1日南澳线下活动：国殇日走上街头抗议中共72年暴政](/content/gnews/21/README.md)
+### [10月1日南澳线下活动：国殇日走上街头抗议中共72年暴政](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [DC大中华时事：新中国联邦会尊重台湾人民的选择](/content/gnews/22/README.md)
+### [DC大中华时事：新中国联邦会尊重台湾人民的选择](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [普罗米修斯](/content/gnews/23/README.md)
+### [普罗米修斯](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登担心他的总统宝座](/content/gnews/24/README.md)
+### [拜登担心他的总统宝座](/content/gnews/25/README.md)
  ` Shuizhuyu`
 
-### [秘翻在线：杨洁篪再次出马 又是一场新的勾兑？](/content/gnews/25/README.md)
+### [秘翻在线：杨洁篪再次出马 又是一场新的勾兑？](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵先生9月12日G-TV大直播摘要](/content/gnews/26/README.md)
+### [文贵先生9月12日G-TV大直播摘要](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [2021/10/05 墙内世界](/content/gnews/27/README.md)
+### [2021/10/05 墙内世界](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国缺的不仅是电，还有智商](/content/gnews/28/README.md)
+### [中共国缺的不仅是电，还有智商](/content/gnews/29/README.md)
  ` 银河勇气之星`
 
-### [台湾总统：如果倒台，就是民主的灾难](/content/gnews/29/README.md)
+### [台湾总统：如果倒台，就是民主的灾难](/content/gnews/30/README.md)
  ` Charlie`
 
-### [抗冠状（中共）病毒药丸](/content/gnews/30/README.md)
+### [抗冠状（中共）病毒药丸](/content/gnews/31/README.md)
  ` Charlie`
 
-### [面对排华我们该做什么?](/content/gnews/31/README.md)
+### [面对排华我们该做什么?](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [针下亡魂｜法国 17 岁女学生接种疫苗7日后死亡](/content/gnews/32/README.md)
+### [针下亡魂｜法国 17 岁女学生接种疫苗7日后死亡](/content/gnews/33/README.md)
  ` G&#124;News TAIWAN`
 
-### [秘翻在线：拜登政府将重新开启与中共国的贸易谈判](/content/gnews/33/README.md)
+### [秘翻在线：拜登政府将重新开启与中共国的贸易谈判](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/34/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/35/README.md)
  ` wenwu`
 
-### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/35/README.md)
+### [西喜时事新闻简报 — 中共国时事篇](/content/gnews/36/README.md)
  ` wenwu`
 
-### [解析完吃猪头再解析吃河蟹的胡舒立到底有啥过不去的坎](/content/gnews/36/README.md)
+### [解析完吃猪头再解析吃河蟹的胡舒立到底有啥过不去的坎](/content/gnews/37/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [疫苗灾情｜爱尔兰 28 岁医科女学生接种疫苗后瘫痪](/content/gnews/37/README.md)
+### [疫苗灾情｜爱尔兰 28 岁医科女学生接种疫苗后瘫痪](/content/gnews/38/README.md)
  ` G&#124;News TAIWAN`
-
-### [西喜时事新闻简报 — 中共病毒时事篇(2)](/content/gnews/38/README.md)
- ` wenwu`
 
 ### [“潘多拉文件”或摧毁避税天堂](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`

@@ -2,30 +2,95 @@
 ---
 
 
-## 金灿荣其人
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1574764/)
+## 认清好虚拟币和未来的趋势
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574772/)
 
-by：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/jin.jpg)图片：骄子
-金灿荣，其人脑圆头大，发际线侧向后，秃头严重，双目肿胀。嘴浊声刺，瘫软色迷。金家老祖宗棺材板一天到晚哩哩啦啦，闹得整个墓地不得安宁，“我怎么生出你这么个畜生”，远远看去，就是在坟头儿上蹦迪也不能这么大动静。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2406.png)
+[https://gtv.org/video/id=615bca7cd2e2b81748715b96](https://gtv.org/video/id=615bca7cd2e2b81748715b96)
 
-话说这金灿荣，日日口出妄言，说起打台湾来，嘴上就跟架上了机关枪，噼里啪啦去哪儿都带着实弹。胡锡进“退休”以后，个人媒体账号更新次数越来越少，很多他的粉丝就跑着来看金灿荣了，要么去看李毅。在中共国，所谓的个人大V其实都可以叫做大外宣，分管不同的区域。他们看似都是以个人的名义在发表所谓的“个人自由言论”，其实都有特定目的。金灿荣自称是政委，是什么战略专家，又是全世界游览教学，又是这里演讲那里剪彩，见人就和人留影，下回讲课的时候就拿出影过的照片糊弄人。他这一套操作在海外民运手里是一套齐活儿，他说民运分子一天到晚攻击他，这里的攻击是有意的抢食吃，还是看似无意地演戏给网民看，都不得好死。因为无论是反共不灭共的海外伪类民运分子，还是金灿荣本人，都是管共产党要屎吃。他做得好不好，值不值得共产党给他口屎吃，他自己得努力。路大脑袋蛇咬闫就很努力想吃上共产党这口屎，但是架不住这俩人又笨又蠢，还坏。文贵先生房子都送到他手上了，他不吃爆料革命送给他的牛排，他觉得共产党给他的屎更香。共产党这里屎产量多？金灿荣舔得不够干净，需要路大脑骗来舔？金灿荣看不到这茬吗？天天攻击他的海外民运伪类分子里面有路大脑袋啊，共产党给的这点屎不够分的。金灿荣今天的张口就是狂言，和这些配合不是没有关系的。今天他敢说打台湾，明天他敢拿下美国，次次都用力过猛，像吃了春药，肿胀难耐。
+**郭文贵
+Miles Guo**
 
+只要是20%和黄金挂钩，而且确有保障，再加上稳定币
+As long as 20% is linked to gold, and it’s guaranteed plus stable coins
 
+那就更是好上加好，因为我随时可以拿走嘛
+That’s even better because I can cash out at any time
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-05-下午7.02.25.png)图片来源：网路
+我稳定币就是存钱，我随时能拿走
+My stable coins is like my savings, I can cash out at any time
 
-按照金灿荣的说法，打下台湾来，台湾拥有的一切都归中共大陆所有了。包括领土，台湾人，台湾美女，台积电，航空不会误点，还有全世界包括非洲对中国的看不起，一雪国耻，台湾没有收复是耻辱，收复以后会奠定习一神的全球地位，毕竟现在只是自己称神，称到全世界，全宇宙，全银河系，基本上都可以从打台湾这件事里全部解决。金灿荣有意无意就在把台湾问题扩充到全世界对中国人的仇恨上来。文贵先生直播中提到，疫苗引发的灾难，也许会引起全世界的排华。华为在国际上做推手，金灿荣就在国内搞大外宣，不仅外国人排华，中国人也排华，共产党排华是最严重的。社交媒体的繁荣，把全世界都集中到这看不到的网络上来。一个美国的普通老百姓，假设看到金灿荣这样的言论，如果他家里因为疫苗死过人，他对中国人会有什么看法？恰恰就是谷歌没有屏蔽金灿荣，但是谷歌屏蔽掉了爆料革命那么多次，尤其是讲疫苗危害的内容，各个农场的YouTube账号几乎过一段时间就会重新申请一个。有金灿荣李毅这样的大V煽风点火，再加上bigtech在后面做推手，策划一次毁灭世界也是可以的。现在不就是这样吗？如果互联网对人有什么好处，那还是在2000年代初早期的事情了，现在我们看到的都是bigtech对人类的攻击，他们煽动疫苗煽动排华，他们掩盖一切对共产党对邪恶组织不利的事情。
+稳定币支付系统，加黄金挂钩的任何币都可以买
+you can buy any cryptocurrency with stable currency payment system linked to gold
 
-而事实上来看，金灿荣关于台湾的这套说辞，处处都体现着自卑。没有完整的领土，没有台湾美女，没有台积电，非洲都看不起，一切都是因为共产党独裁，无能者独裁，一群饭桶。打下台湾来，就能拥有台湾吗？香港不是早就回归了吗，怎么还会有那么多的抗议事件。暴力得到的领土，从来都不会真心归附。如果今天我们没有维护台湾，也许明天死去的就是我们自己。真相一定会大白，但愿不要等到人死了以后才看到。
+千万不要存美元，你存美元，任何钱
+Never save US dollars, you save US dollars or any currency
 
-视频地址：[https://gettr.com/post/pchx4ja714](https://gettr.com/post/pchx4ja714)
+战友们你要辛辛苦苦有个30万20万美元
+Comrades in arms, you work so hard to save 300,000 or 200,000 US dollars
 
-（文章内容仅代表作者观点）
+你在家里搁着，或者加拿大元，或者什么英镑，欧元
+You put them aside, or Canadian dollar, or British pound, or Euro
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+我告诉你，你今年年底到明年你就知道你有多惨，
+I tell you, you will know how miserable you are from the end of this year to next year
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+全世界我现在跟你说
+I’m telling the world now
+
+昨天你看到英国了吗？看到战友发信息了吗？看到美国了吗？
+Did you see Britain yesterday? Did you see your comrades in arms send messages? Have you seen America?
+
+我告诉你，当这个疫苗的脑梗、心梗、肛梗、眼梗全面爆发以后
+Let me tell you, when this vaccine has a full outbreak of cerebral infarction, myocardial infarction, anal infarction, and ocular infarction
+
+小7，小福利记住，你们最贵的是什么 – 双修
+Xiao seven and xiao Fuli remember that what is precious for you？it’s sex
+
+我不跟你们开半点玩笑，你能有双修的力气，那可就真是行了
+I’m not joking with you, if you can have the strength for sex, that’s really good
+
+你还能安全的双修，最重要的事情我告诉你
+You can still have sex safely, I will tell you the most important thing
+
+只要你没打疫苗的人，你就等于神，你就是最高赢家
+as long as you are not vaccinated, you are equal to God, and you are the biggest winner
+
+没打疫苗绝对最高（赢家），你看到处死人
+Unvaccinated people will be the biggest winners, you look at died people all over the place
+
+未来烧人的东西，和烧尸体的东西，掩埋尸体的东西
+In the future, things that burn people, things that burn corpses, things that bury corpses
+
+处理尸体的东西和装尸袋都是最贵的
+things that disposal of corpses and cadaver bags are the most expensive
+
+火葬场是最赚钱的，最可怕的就是银行不值钱
+The crematorium is the most profitable business, the most terrifying thing is that the bank is worthless
+
+货币，钱不值钱，然后剩下最值钱除了火葬场烧人这些买卖最好
+Currency, money is worthless, then there is the most valuable thing except for burning people in crematorium, which is the best business
+
+然后就是虚拟货币了，没有任何人再相信国家
+Then there is virtual currency, no one believes in the government anymore
+
+全都找虚拟货币
+All will look for virtual currency
+
+———————————————————————
+Date:10/03/2021
+原视频标题:认清好虚拟币和未来的趋势
+Recognize the virtual currency and future trends
+原视频日期：2021/09/29
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24](https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24)
+任务编号：KC146（2406）
+视频时间段 : 0:00-1:35
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
