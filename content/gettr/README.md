@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/5/2021 1:10 AM (UTC)`
+
+10月4号：尊敬的战友们好，明天10月5号，上午8:30至11:00七哥和帅哥美女的战友们，开始大直播，一切都已经开始！
+![img](https://media.gettr.com/group18/getter/2021/10/05/01/5b91c951-29f7-fc83-1df4-793036cd768f/32f1541adbc7fe43464391a420bff9e2.jpg)
+
+---
+
 `@miles 10/5/2021 12:05 AM (UTC)`
 
 10/04/2021 Miles Guo’s GETTR: People in the CCP’s law enforcement, ask yourselves if all you dare to do is bullying the harmless Lao Bai Xing. The CCP virus and the vaccine disaster is a “Great Purge of the wrongdoers,” where all those who have oppressed and plundered the people will be put on trial<br/><br/>10/04/2021 文贵盖特：中共所谓的公检法人士摸摸良心，你们是不是只敢欺负手无寸铁的老百姓？中共病毒和疫苗灾难是一场全人类的坏人大清洗，所有在过去欺压人民、掠夺财富的人都会受到审判<br/>
@@ -287,12 +294,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 10月1号：疫苗灾难将是人类有史以来最大的一次人类大屠杀……每时每刻疫苗，杀人的數字．和速度和危险，都在改写一切的历史。【致所有那些对不打疫苗的人进行霸凌的人们： 请停止霸凌, 因为新冠疫苗正在杀人……To all those who bully people who are not vaccinated: Please stop bullying, because the new crown vaccine is killing people】
 ![img](https://media.gettr.com/group37/getter/2021/10/01/19/43/33a5b9d6-445a-79e9-a4ca-b50cd69d5528/out.jpg)
-
----
-
-`@miles 10/1/2021 6:50 PM (UTC)`
-
-经过DC农场战友们两个月的的努力，《百年百罪》全集终于面世了！我们都是业余选手，但我们是用心的！幸好有gnews和getrr，有郭先生引领的爆料革命，真相得以传播！让我们子子孙孙记住中共的罪恶，不让历史重演！<br/>庆父不死鲁难未已<br/>中共不灭灾难不止<br/><br/>特约配音：郭文贵<br/>https://gnews.org/zh-hans/1566979/<br/>【中共百年百罪】全集（1-101罪） 华盛顿DC农场系列纪录片，，特约配音：郭文贵。欢迎大家观看指正！ 谢谢🙏<br/>中文链接：https://youtube.com/playlist?list=PL90kFz9UQbWgxZRwZCISX7IjJjJWV3kKs<br/>https://gtv.org/video/id=613a4cb2784c5a2583543523<br/><br/>英文版：<br/>https://gnews.org/1567159/<br/>【Hundred Crimes of CCP in Hundred Years】A Docuseries Produced by HimalayaWashingtonDC<br/>English link： https://youtube.com/playlist?list=PL90kFz9UQbWhnVdi7BpR5gPmKEQ1QGzka<br/>https://gtv.org/video/id=613a4cee784c5a2583543532<br/>Produced by Himalaya Washington DC
 
 ---
 

@@ -2,19 +2,29 @@
 ---
 
 
-## 中共国的第一个有5000个房间的隔离中心将投入使用
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573400/)
+## 【新闻速递】加拿大RCMP皇家警局工会表示支持选择不打疫苗警官的人权
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1573472/)
 
-撰稿：西枫westca
+温哥华扬帆农场 – 翻译：LuLu1312
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211004-RCMPLuLu1312.jpg)
+近期，加拿大皇家警局RCMP工会表示支持所属警官选择不打疫苗的决定。与此同时，他们也表明立场。虽然联邦政府已经下定了强制疫苗政策，但他们依然会继续支持那些选择不打疫苗警官的决定。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unnamed-3.jpg)图片来源：新华社
-据新浪财经近日转海外媒体报道，中共国在广州建造了第一个耗资约17亿元，有5000个隔离房间的隔离中心。 此举旨在降低当地居民接触输入病例的风险。将代替目前使用的指定酒店，供入境旅客使用。
+RCMP工会发言人说：“作为一个工会，我们会帮助并代表每一位因强制疫苗政策受到影响的警官。”
 
-被称为“广州国际卫生站”的隔离中心位于广州郊区，由一排排三层高的楼房组成，占地约46个足球场大小，不到三个月建成。入境旅客将从机场直接转运至此，并被限制在自己的房间至少两周。隔离中心将提供非接触式服务，包括数字登记、远程测温、使用机器人送餐和消毒房间。
+因涉及隐私，工会发言人拒绝说明具体多少名警官选择不打疫苗。
 
-在世界多国正逐渐开放边境，放松疫情管制之际，中共国坚持对病毒清零政策。据美国外交关系委员会全球卫生高级研究员黄彦忠称，“这不是临时性的措施。中国领导人认为疫情还会继续，中国将继续严格控制其边界，这种常态化隔离中心未来还可能有更多”。但是零容忍政策真的能起到根本作用吗？事实表明这个政策会导致员工无法正常上班、生产率下降、正常消费无法进行，最终会威胁到整体经济增长。
+在特鲁多宣布大选的前两天，加拿大自由党宣布了对联邦政府员工以及所有乘坐飞机，火车或者渡轮的加拿大人实行强制疫苗政策。
 
-**新闻来源：**
+特鲁多竞选时曾声称：“自由党明确表示所有公务员务必接种疫苗。如果不选择打疫苗，后果将自己承担。疫苗强制政策会在十月实施。”
 
-**[https://finance.sina.com.cn/china/gncj/2021-09-30/doc-iktzscyx7143542.shtml](https://finance.sina.com.cn/china/gncj/2021-09-30/doc-iktzscyx7143542.shtml)**
+多伦多RCMP警察工会表示不会赞同联邦的这种做法。据Toronto Star新闻，多伦多警察协会与多伦多警察警务部协商后一致表明警察无需遵守联邦政府强制疫苗政策（于十月对外公开疫苗接种记录），并且不会对此行为给予处分或调动。
+
+原文链接：
+
+[https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803](https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803)
+
+[https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf](https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf)
+
+*编审：**abbs*
+
+*发布：**Shuang*

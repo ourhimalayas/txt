@@ -2,16 +2,35 @@
 ---
 
 
-## 串珠图文2:病毒也许杀不死人，但疫苗一定杀得死
-` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1572652/)
+## 盖茨基金会与中共密切合作 为中共药物的境外销售提供便利
+` 象声` [轉載自GNews](https://gnews.org/zh-hans/1572664/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/21510B65-B6D2-4FE7-8023-E53539C6E582.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/10/8391961E-7314-403A-AA92-0651BED8DB64.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/7444685E-3976-41C1-81B9-B6E8BAE2F39D.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/D24B4C59-46C6-4C8B-9A9E-334E2BF94022.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/37C38399-163D-4695-B41B-B3BB088F6B09.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/9ACF3914-D4AE-4F82-9328-8862B07B0B10.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/18C0040D-4F25-4BB7-946D-435B8CE13125.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/BBE95071-DBC3-44B5-9876-C17D8F6ED9F8.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0A0AB3C9-6A88-4C67-9EFD-A8CA9B922092.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/0AE6BC56-68DD-41C8-B6D3-28562641C769.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/4C50D21A-A2C1-446F-BEE1-2014C62B0C5B.png)
-* * *
+根据司法观察通过信息自由获得的安东尼·福奇博士领导下的国家过敏和传染病研究所最新发布的一批电子邮件，微软创始人比尔·盖茨的国际基金会以各种方式帮助了中国共产党政府请求的行为。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+根据电子邮件，盖茨基金会与中共政府密切合作，为中国制造的药物在中国境外销售提供了便利。该基金会还帮助“通过将中共代表置于重要的国际顾问，以此作为对中国的高层承诺，提高了中国治理的声望”。
 
+在新推出的电子邮件，包括从2017年9月5日，报告说NIAID的中国代表陈平博士告诉她的同事，她“参加了‘一带一路’卫生合作高级别会议：迈向健康丝绸之路”。
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+在同一份报告中，陈报告说，她参加了与盖茨基金会、美国国际开发署、疾病控制和预防中心以及其他“最初计划谈论全球根除疟疾工作”的联合会议。该小组“最后谈到了中国的总体政策和基金会目前在中国的战略：能力建设，帮助中国提高国家标准，并利用中国的资源帮助他人。”
+
+她提到，盖茨基金会为中共国国家药品监督管理局（前身为中国食品药品监督管理局，简称FDA）提供资金，将在美国FDA工作多年的有经验的美籍华人安置到同等机构中共的药监局工作。
+
+陈还指出，盖茨基金会“正在与中共政府合作”向其他国家，特别是非洲国家提供医疗服务。
+
+“更具体地说，它帮助中共国公司获得药品资格预审，以便中国公司生产的药品可以在中国境外销售，帮助中国人与非洲特定国家建立双边合作，教中国人如何进行资源调动，以及将中共代表置于重要的国际顾问中，作为对中共的高层承诺，有助于提高中国的治理声望，”陈在谈到盖茨基金会时写道。
+
+“刚刚与美国国际开发署部分资助的全球病毒组项目（GVP）的一个小组会面，”NIAID 代表补充说，“该项目的负责人生态健康联盟的 Peter Daszak 是 NIAID 资助的 Pl [私人调查员]。他在中共武汉病毒研究所的合作者，在中国蝙蝠种群中的冠状病毒方面做了出色的工作。”
+
+在这些揭露之后，司法观察主席汤姆·菲顿要求盖茨基金会“解释政府关于其对中共国的援助和倡导的报告”。
+
+盖茨基金会发言人在给福克斯新闻的一份声明中表示，福克斯新闻对陈的电子邮件的报道“错误地描述了基金会在中国的工作，该工作旨在增加重要的全球卫生工具的可及性，例如抗疟疾治疗、快速诊断测试和低收入国家，尤其是撒哈拉以南非洲国家的脊髓灰质炎和日本脑炎疫苗。”
+
+“这与我们与美国等国家所做的工作非常相似，因为我们努力确保公平获得救生治疗和工具，”发言人补充说，并链接到描述基金会“与中国合作伙伴合作”的网页。帮助该国成为其他发展中共国家的更强大的健康和发展伙伴。”
+
+盖茨基金会发言人没有回应有关该基金会的工作支持中国共产党政府的担忧。
+
+中国共产党在 COVID-19 大流行期间的行为受到了强烈批评。根据亨利杰克逊协会的报告，加拿大、法国、德国、意大利、日本、英国和美国政府应该对中共采取法律行动。该报告称，中共试图尽早掩盖这一流行病，销毁病毒的早期样本，并让试图向世界发出警告的医生闭嘴，等等。
+
+参考链接：https://www.foxnews.com/world/new-report-how-china-uses-buildings-in-africa-for-government-spying
+
+翻译&编辑：洛杉矶盘古农场–蓝精灵

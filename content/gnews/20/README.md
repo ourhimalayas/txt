@@ -2,64 +2,41 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1573340/)
+## “绥靖”政策对共产主义中国的侵略不起作用
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1573412/)
 
-- 编译：西班牙喜悦农场–wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/10/100401.jpg)美国前国务卿迈克·蓬佩奥于 2021 年在保守党政治行动会议 (CPAC) 上发表讲话。 (Joe Raedle/盖蒂图片社)
+蓬佩奥周日（10月3日）在纽约WABC 770AM电台节目“猫圆桌会议”中说，“由于毒品问题，我们本地的执法部门和警长办公室承受着巨大的压力。而且你知道，由于本届政府未能确保边境安全，美国各地的孩子们正在因为这个问题而死亡。”
+
+“通常情况下，各种各样的的安全问题是相互关联的，我们应该留意中共与贩毒、阿富汗和气候变化之间的关系。” 蓬佩奥在与主持人约翰·卡西马蒂斯 (John Catsimatidis) 对话中补充道。
+
+蓬佩奥说：“上周，司法部决定撤销了对华为首席财务官的指控，这家公司违反了我们对伊朗的制裁，并且这是一家深度致力于窃取每一个美国公民私人信息的公司。就我而言，我无法理解他们为什么让她逍遥法外。”
+
+“中共劫持了两名加拿大人质。我认为我们都需要认真思考一下。中共劫持人质是为了让某人回到他们的国家。这与伊朗人的行为方式没有什么不同。”
+
+蓬佩奥继续说道：“这真的很重要，当我听到前国务卿约翰·克里谈论气候变化，讨论我们将建造那些电池项目时，这本质上是将美国的经济交到了中国共产党手里。阿富汗拥有丰富的稀土金属，用于帮助中共国主导电动汽车电池生产。”
+
+最后，关于能源独立，蓬佩奥认为，总统乔·拜登迅速关闭加拿大与美国之间的拱心石输油管道（Keystone XL ），却在同时允许对德国和俄罗斯之间的Nord Stream 2管道开放权限的行为是虚伪的。
+
+“截至今天，原油价格每桶已逼近80美元。通货膨胀将波及我们整个国家的经济。他们会为了气候变化而牺牲美国中产阶级的生命。”
+
+**简评：**
+
+世界对中共在全球的恶行都会略有所闻，他们缺乏的是对中共全盘计划的戳破，以及串联起来揭露的意识。这些被串联起来的事实真相能清晰的揭露中共的邪恶企图，而我们爆料革命和郭文贵先生就是这样的人和团体，和文贵先生站在同一战壕的西方战友更能用西方人的概念向西方世界清晰传达。
+
+绥靖政策不可能消灭中共，拖延和分散注意力是中共超限战的手段。唯有立即行动起来传播，一遍又一遍不懈怠的向世界揭露中共的邪恶计划，才是这个平民主义大觉醒时代，才是唤醒全球百姓能够的唯一方式。
+
+[新闻链接](https://www.newsmax.com/newsfront/mike-pompeo-border-crisis-energy-chinese/2021/10/03/id/1038909/)
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*翻译/简评: Filon | 校对：Julia Win*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-您若想了解全文报导内容，请点击标题链接
+编辑：【英国伦敦喜庄园编辑部】
 
-（爱惜生命 远离疫苗）
-
-**1. [Fauci：默克公司的药物无法替代中共疫苗](https://thehill.com/homenews/sunday-talk-shows/575061-fauci-says-its-a-false-narrative-to-think-covid-19-vaccine-not?rl=1)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-16.png)
-
-据《国会山》2021年10月3日电，周日（3日）”本周“联合主播乔纳森·卡尔在 ABC 的节目中问福奇，默克抗病毒治疗的批准是否会替代中共病毒（COVID-19）疫苗；Fauci告诉Karl：“不要试图想要一种药物替代中共疫苗的接种，这种想法没有任何意义。这是因为最好的办法是人们不感染中共病毒。”
-
-**2. [尽管疫苗接种率很高，但新英格兰仍在经历中共疫情激增](https://www.axios.com/coronavirus-pandemic-surge-new-england-vaccine-fc6b3862-5c8d-45c0-bb9d-28c4af1732ce.html)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1633274059714.jpg)
-
-据《Axios》援引《[美联社](https://apnews.com/article/coronavirus-pandemic-health-pandemics-vermont-d25aae90b2dda65b3d1c2c0d5d00156c?utm_source=Twitter&amp;utm_medium=AP&amp;utm_campaign=SocialFlow)》2021年10月3日电，新英格兰地区的疫苗接种率是全国最高的。然而，各州仍在报告创纪录的病例数、住院人数和死亡人数，与疫苗接种前的高峰期相当。
-
-**3. [旧金山湾区的接种疫苗者比未接种者更容易感染中共病毒变体](https://theconservativetreehouse.com/blog/2021/10/03/there-it-is-study-finds-predominance-of-antibody-resistant-sars-cov-2-variants-in-vaccine-breakthrough-cases-in-san-francisco-bay-area/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/vaccine-vials-1-768x614-1.jpg)
-
-据《theconservativetreehouse》2021年10月3日电，加州的研究发现，接种疫苗的个体比未接种疫苗的个体更容易感染 COVID 变异体。疫苗开发商 Geer Vanden Bossche（比利时）一直警告说，疫苗抗体会抑制天然抗体反应，只针对单一的目标变体（无法识别其他变异病毒），并且天然抗体已被编程为停滞。
-
-在[英国的数据研究中](https://t.co/XCnLK5DMPU?amp=1)有：完全接种疫苗的15万7400例德尔塔变异病例（占总病例数的 26.52%），未接种疫苗的 25万7357 例德尔塔变异病例（占总病例数的 43.36%）。然而，当谈到严重后果时，63.5% 的感染死亡来自完全接种疫苗的组。  [\[来源\]](https://t.co/XCnLK5DMPU?amp=1)
-
-据《[生活网](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)》2021年9月30日电，辉瑞前员工凯伦·金斯顿说：“当他们不注射疫苗时，他们的感染率为 1.3%，而当他们注射疫苗时，感染率为 4.34%。它上涨了 300% 以上。”这令人难以置信，各大媒体和直播都相继得到了这项结论。
-
-**4. [以色列收紧疫苗护照规则，引发抗议](https://apnews.com/article/coronavirus-pandemic-middle-east-health-jerusalem-israel-25ec5e9141c72080876bfe4f481bf50f)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1000.jpeg)
-
-据《美联社》2021年10月2日电，以色列周日3（日）收紧了其疫苗护照，即只允许那些接受过疫苗加强针或最近从中共病毒中康复的人，进入室内场所。新标准意味着未来几天将有近 200 万人失去疫苗护照，第三针的疫苗护照有效期为6个月。
-
-**5. [参议员罗恩·约翰逊：过去 7.5 个月英国达美航空死亡人数的 63% 已完全接种疫苗](https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ron-johnson-uk-delta-deaths.jpg)
-
-据《门户网》2021年10月2日电，约翰逊参议员在周四（30日）的[演讲](https://twitter.com/SenRonJohnson/status/1443777704994672644?s=20)中指出，在过去 7.5 个月内，所有感染德尔塔变体的死亡人数中有 63% 是完全接种疫苗的人；显然，最近的病例和死亡人数激增，并不是未接种疫苗的流行病（源自接种疫苗者的流行病）；他解释了中共疫苗似乎[不起](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)作用。
-
-**6. [拒绝接种中共疫苗的怀孕护士被停职；它使你感到工作“可有可无”](https://townhall.com/tipsheet/madelineleesman/2021/10/01/pregnant-nurse-that-refused-covid-19-vaccine-put-on-suspension-it-makes-you-feel-n2596817)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0476f88f-a556-40bf-9dd1-7a0f2286a5cc.jpg)
-
-据《TownHall》援引《福克斯》2021年10月1日电，印第安纳波利斯的一名怀孕护士阿达拉·艾伦分享了她去年12月在怀孕18周时意外流产的经历；通过实验室检查发现她的“血液凝固因子升高了”。鉴于此，她被认为是新的怀孕的”高风险”。
-
-在她新怀孕的前三个月，艾伦的工作场所推出了一项疫苗任务。当她向雇主要求医疗豁免时，她得到了一张“个人声明”表格，她则表示，要继续备孕所以不愿意接受疫苗，这让她感觉不舒服。
-
-该名护士表示，疫情开始，人们把她当成英雄，但她知道自己的工作单位非常危险，但是岗位需要她；她回家时候都不敢和家人相处，而且经常加班，因为需要打疫苗所以打疫苗，不然就无法上岗的结果，让她很伤心。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

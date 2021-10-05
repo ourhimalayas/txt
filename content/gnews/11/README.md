@@ -2,29 +2,28 @@
 ---
 
 
-## 【新闻速递】加拿大RCMP皇家警局工会表示支持选择不打疫苗警官的人权
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1573472/)
+## 郭文贵精品视频-疫苗灾难之黑云压城城欲摧
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1573542/)
 
-温哥华扬帆农场 – 翻译：LuLu1312
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211004-RCMPLuLu1312.jpg)
-近期，加拿大皇家警局RCMP工会表示支持所属警官选择不打疫苗的决定。与此同时，他们也表明立场。虽然联邦政府已经下定了强制疫苗政策，但他们依然会继续支持那些选择不打疫苗警官的决定。
+撰稿：澳喜cindy
 
-RCMP工会发言人说：“作为一个工会，我们会帮助并代表每一位因强制疫苗政策受到影响的警官。”
+2020年12月10日，在全球还没有开始大规模推广疫苗接种的时候，郭文贵先生根据获得的情报和信息就发出预警：美国推出的辉瑞疫苗是CCP和世界黑暗势力勾结的结果。它将是病毒灾难后又一次灾难。
+Youtube视频
+各国政府的实权部门负责人利用人民对他们的信任，及他们掌握的权力，一边大肆宣传：只有打疫苗才能解除封城，才能免于被解职。另一方面用利益诱惑人们去打疫苗。更恶劣者，组成“疫苗接种军队”到社区到家里强行注射疫苗。
 
-因涉及隐私，工会发言人拒绝说明具体多少名警官选择不打疫苗。
+医疗机构的权力部门，有的把疫苗接种者被病毒感染的人数隐瞒以吓唬民众：染病毒者都是没有接种疫苗的人！并且恫吓从医人员：不许把真相公布出去！
 
-在特鲁多宣布大选的前两天，加拿大自由党宣布了对联邦政府员工以及所有乘坐飞机，火车或者渡轮的加拿大人实行强制疫苗政策。
+这场全球一起推动强逼接种疫苗的运动是由各国众多的关键部门的实权负责人配合背后实力雄厚的黑暗势力共同发力的结果。各自为了自己的目的和利益，罔顾事实，弄虚作假，视人命如草芥。
+网络视频
+[https://gettr.com/post/pclf2171a1](https://gettr.com/post/pclf2171a1) 从医40年的一位爱尔兰家庭医生，他在近期六周内目睹了已注射疫苗的人患上癌症的数字超过了他从医40年职业生涯所见的癌症数字的总和。
 
-特鲁多竞选时曾声称：“自由党明确表示所有公务员务必接种疫苗。如果不选择打疫苗，后果将自己承担。疫苗强制政策会在十月实施。”
+当前病毒及疫苗接种的受伤害者的真实声音和诉求在五大家族掌控下的主流媒体是不予报道的。作为全球接种疫苗率最高当然也是受伤害最厉害、最多的以色列COVID-19 疫苗受害者们，为了给所有接种COVID -19疫苗后受到伤害的人提供一个平台，并确保他们的声音被听到，创建了证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/)
 
-多伦多RCMP警察工会表示不会赞同联邦的这种做法。据Toronto Star新闻，多伦多警察协会与多伦多警察警务部协商后一致表明警察无需遵守联邦政府强制疫苗政策（于十月对外公开疫苗接种记录），并且不会对此行为给予处分或调动。
+目前第五期已经问世 [https://gettr.com/post/pcu0np910c](https://gettr.com/post/pcu0np910c)
 
-原文链接：
+一个个鲜活的健康的身体都变成了终身的残疾甚至不久将离别于人世间。这血淋淋的事实，不但没有被各国政府重视而是一意孤行的继续强推疫苗接种。这种法西斯式的行为震撼到每个人的心灵。让我们看到这个世界真的到了伸手不见五指的黑暗时刻，也印证了文贵先生契而不舍的呐喊：人类正面临着CCP及世界黑暗势力的巨大挑战！CCP病毒的灾难过后即将迎来更惨重的疫苗灾难。
 
-[https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803](https://www.cbc.ca/news/politics/rcmp-union-mandatory-vaccination-1.6190803)
+（本文观点纯属个人）
 
-[https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf](https://www.thestar.com/news/gta/2021/09/10/toronto-police-wont-be-punished-for-missing-deadline-to-disclose-whether-theyre-vaccinated.html?rf)
-
-*编审：**abbs*
-
-*发布：**Shuang*
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
