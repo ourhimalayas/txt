@@ -2,50 +2,23 @@
 ---
 
 
-## 欧元区通胀跃升至13年高位，欧洲央行头痛加剧
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1573478/)
+## 中共砸数亿不许谷歌出现郭文贵讲疫苗讲病毒和喜币及盖特
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573673/)
 
-**【简评】尽管目前欧洲央行坚持认为这一轮通胀会很快过去，但市场经济学家们认为通胀风险可能被低估。迫于更持久的通胀压力，欧洲央行可能会比预期的更早收紧政策。**
+视频制作：撒骄的男宝好性感；
 
-**据《路透社》作者：Balazs Koranyi 2021年10月1日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/at4pk-sbg1r.jpg)**由于意大利罗马政府将于2021年3月12日宣布更加严格的新冠病毒（COVID-19）封城限制令，一名男子在露天市场购买食品杂货 。图片来源：路透社/Yara Nardi**
-欧元区通胀于今年9月触及13年高位，且看上去可能还会跳高。这进一步为欧洲央行对全球金融危机前最大价格暴涨的良性展望蒙上了一层阴影。
+发布：黎明之前；
 
-据欧盟统计局（Eurostat）的数据显示，19个欧元区国家的9月份消费者价格通胀与去年同期相比，从一个月前的3%增速至3.4%，达到自2008年9月以来的最高值，略高于分析师预期的3.3%。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-价格上涨的主要原因是能源成本飙升，这几乎是对新冠（COVID-19）疫情期间油价暴跌的一个逆转。但是生产和运输瓶颈的影响也在显现，耐用品价格也比8月份上涨了2.3%。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-随着天然气价格飙升和生产运输瓶颈影响着从汽车生产到计算机制造的方方面面，通胀率可能会在今年年底前达到4%，是欧洲央行目标值的两倍。央行预计通胀将在2022年初出现相对较快回落。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-然而，供应链中断似乎会越来越严重。随着企业调整定价和薪资政策，通胀的“驼峰”渗透到基本价格，产生更多永久性压力的可能性增加。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-目前欧洲央行坚持认为这一轮通胀会很快过去，只要压低借贷成本，物价涨幅将会在未来几年内徘徊在其目标之下。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-不过，欧洲央行行长拉加德（Christine Lagarde）虽然呼吁保持耐心并警告不要反应过度，但她本周在表述通胀风险增加时还是更为谨慎了。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-与此同时，市场经济学家正在转变他们的观点，认为央行可能低估了通胀风险。
-
-法国巴黎银行（BNP Paribas）经济学家斯佩兰扎（Luigi Speranza）表示：“我们认为这一轮的通胀很可能不像所有央行，包括欧洲央行所暗示的那样短暂。”
-
-“消费者可能会开始要求更高的工资，而企业可能会满足他们，因为企业可以通过更高的最终价格来转嫁更高的成本。”
-
-受到政策制定者密切关注的基本价格 —— 剔除了变化无常的食品和能源价格 —— 也在9月份加速上涨。
-
-剔除食品、能源，以及影响范围较窄的酒精类和烟草，核心通胀率从1.6%上升至1.9%。
-
-尽管很多人对通胀越来越紧张，在欧洲央行近十年未达到其目标后，其政策制定者可能会谨慎行事。它表示愿意暂时超调以确保通胀真正回到目标水平，因为对抗疲软的价格增长需要前所未有的努力，包括深度负利率的实施和数万亿欧元的资产购买。
-
-尽管如此，鉴于欧洲央行1.85 万亿欧元的疫情紧急刺激计划将在明年3月到期，它在未来几个月可能会适度收紧政策。
-
-**文章来源：**[https://www.reuters.com/world/europe/euro-zone-inflation-jumps-13-year-high-worsening-ecb-headache-2021-10-01/](https://www.reuters.com/world/europe/euro-zone-inflation-jumps-13-year-high-worsening-ecb-headache-2021-10-01/)
-
-**（本文评论仅代表个人观点）**
-
-翻译/评论：洛杉矶盘古农场 – maru
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

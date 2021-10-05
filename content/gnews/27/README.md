@@ -2,54 +2,21 @@
 ---
 
 
-## Facebook、Instagram、WhatsApp 因全球故障而瘫痪
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1573367/)
+## 鏖战初胜&#8211;加拿大暂停在学校强制接种中共病毒疫苗！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1573519/)
 
-- 编译：西班牙喜悦农场–wenwu
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/ym-edited.jpg)加拿大首席卫生官：谭咏诗
+图片来源：Thepostmillennial
 
 
-据故障追踪网站** **[**d****owndetector.com**](http://downdetector.com)称，**Facebook **公司的主要社交媒体网站、流行的照片分享平台** ****Instagram **和消息应用** WhatsApp **因数以万计的用户，而出现了故障。
+加拿大知名自媒体《Thepostmillennial》10月3日刊文报道表示，加拿大特鲁多政府的首席卫生官，顶级医生谭咏诗（Theresa Tam）突然一改前态，对此前联邦卫生部门呼吁在中小学校强制接种COVID19疫苗的政策犹豫推迟，并出乎意料地表示：在所有学校强推接种之前，需要等待更多该疫苗的相关数据和医疗有效验证。
 
-路透社无法立即确认影响这些服务的问题。另外，**Facebook**** **网页上的错误信息表明，是域名系统（**DNS**）错误。
+为此，谭医生在渥太华告诉记者：“根据其他适用于儿童疫苗的接种经验，提出以上要求并出示该疫苗使用效果的证据对将被接种儿童的父母来说是一个非常重要的提醒，而且可以提高疫苗的接种率。如果各省选择这样做（收集分析儿童接种疫苗后的医疗数据），从记录和技术的角度来看，该步骤应该是比较容易执行的。
 
-**DNS **或域名系统将域名连接到正确的** IP **地址，以便人们可以访问** Web**。**7**月，云计算公司** ****Akamai Technologies Inc**** **发生一次类似故障曾导致多个网站瘫痪。
+该首席卫生官的以上言论，是在多伦多公共卫生局目前正计划将COVID19疫苗加入到安大略省中小学生必须接种的九种疾病疫苗名单中之后发表的，这些疾病包括腮腺炎、麻疹和破伤风等。
 
-**“**我们知道有些人在访问我们的应用程序和产品时遇到了麻烦，**”****Facebook **的官方推特[账号](https://twitter.com/Facebook/status/1445061804636479493)周一（**4**日）说。
+值得公众注意的是，现在虽然有超过80%的加拿大人已经完全接种了COVID19疫苗，但是每天却仍有约4300名加拿大人持续感染该病毒，并导致约2200名病患正在医院接受治疗，其中包括700位高度感染者在重症监护室。
 
-**“**我们正在努力使事情尽快恢复正常，我们对造成的任何不便表示歉意。**”**** WhatsApp**和**Instagram**的官方手柄也在** ****Twitter**** **上确认了这一故障。
+（以上内容仅代表原文信息和作者个人观点）
 
-**Facebook **股价在周一下午的交易中下跌了**5.5%**，朝着近一年来最糟糕的一天迈进。
-
-**Downdetector **只通过整理一系列来源的状态报告（包括用户在其平台上提交的错误）来追踪故障，它显示有超过**5**万起用户报告** ****Facebook **和** ****Instagram **问题的事件。这次故障可能会影响到更多的用户。
-
-同时，**Facebook **的即时通讯平台** ****WhatsApp**** **也有超过**3.5**万名用户出现故障，而** Messenger**** **则有近** 9800**** **名用户出现故障。
-
-今年**3**月和**7**月，**Facebook**** **的应用程序套件也经历了类似的大范围故障。
-
-一些使用** ****Facebook **凭证登录第三方应用程序的用户，如** Pokemon Go **和** Match Masters**，也面临问题。
-
-益智游戏应用** ****Match Masters**** **在其** ****Twitter**** **账户上说：**”**如果你的游戏没有照常运行，请注意，**Facebook**** **的登录服务器出现了问题，当这个问题得到解决时，一切都将恢复正常。**”**
-
-**简评：**
-
-**一则相关报道。**
-
-**据《纽约邮报》2021年10月4日[报道](https://nypost.com/2021/10/04/facebook-instagram-and-whatsapp-hit-by-global-outage/?utm_source=browser&amp;utm_medium=push-notification&amp;utm_campaign=facebook-instagram-and-whatsapp-hit-by-global-outage)，Twitter 用户的回应是嘲笑该公司，[称](https://twitter.com/petehotchkiss/status/1445060061127225366?s=20)“如果你把它关掉，世界会更好” ， “我们实际上很享受没有虚假信息和错误信息的情况。”另外，据 DownDetector 称，手机运营商 T-Mobile、Verizon 和 AT&T 也报告了一些重大中断——尽管远没有那么彻底——与 Facebook 几乎同时发生，并且其他网站可能会受到影响；Facebook 旗下的虚拟现实游戏平台 Oculus 也遇到了问题，Oculus 在[推特上写道](https://twitter.com/oculus/status/1445058574858678273?s=20)。**
-
-**用户@\_farhankarim[写道：](https://twitter.com/_farhankarim/status/1445057882886742025?s=20) “在我重新启动互联网路由器 5 次后，发现 WhatsApp 和联合服务器已关闭，”并附上了一张小丑的照片。**
-
-**用户@SazMCFC[开玩笑说](https://twitter.com/SazMCFC/status/1445069280450646025)，Twitter 正在“拯救世界，因为 WhatsApp、Instagram 和 Facebook 崩溃了”，还有一张来自 Netflix 热播剧“鱿鱼游戏”的图片。**
-
-**用户@Rocky\_Ankomah7 在[推特上发布](https://twitter.com/Rocky_Ankomah7/status/1445073627293093889?s=20)了一张维修技术人员与电线搏斗的图片，并配文说：“马克·扎克伯格试图修复 WhatsApp、Instagram 和 Facebook。”**
-
-**一天前，一名 Facebook 吹哨人向《华尔街日报》泄露了大量该死的内部文件，[并自称是](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)Facebook 的前产品经理[弗朗西斯·豪根 (Frances Haugen)](https://nypost.com/2021/10/03/facebook-whistleblower-speaks-publicly-ahead-of-congressional-testimony/)。Haugen 将于本周在国会作证，她已经向联邦当局提交了大量针对 Facebook 的匿名投诉。**
-
-（文章仅代表作者观点 与GNEWS无关）
-
-**新闻来源：**《[雅虎财经](https://finance.yahoo.com/news/facebook-instagram-down-thousands-users-160304059.html)》｜作者：《路透社》｜发布时间：**2021**年**10**月**4**日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+[原文链接：](https://thepostmillennial.com/dr-tam-more-data-required-before-mandating-vaccines-in-schools)

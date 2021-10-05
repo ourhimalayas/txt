@@ -2,64 +2,53 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1573340/)
+## 拜登政府将恢复中美贸易谈判并降低部分关税
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1573509/)
 
-- 编译：西班牙喜悦农场–wenwu
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/U.jpg)presstv.ir
+拜登自上台以来，叫停了唯一的美国官方病毒溯源调查；对香港民主、新疆种族灭绝只是叫喊，出台一些不痛不痒的制裁措施；对抵制北京冬奥会的呼声不闻不问（目前来看，中共举办冬奥会已是大概率事件）；积极配合中共在阿富汗的撤军、将美国人质和武器留给塔利班和中共；解禁了疑似中共间谍唐娟，撤销了对中共偷窃技术人员的起诉；释放了孟晚舟，解除了多项出口限制；恢复了对华为汽车芯片的供应（笔者分析，此举只是个幌子，中共会借此“通道”为华为提供所需的所有芯片，甚至是整个中共所需的芯片），在中共病毒溯源报告、强制接种疫苗、政治外交等方方面面竭力配合了中共，说拜登政府亲共、通共不为过之！
 
-您若想了解全文报导内容，请点击标题链接
+这不，又急于与中共恢复贸易谈判，且批评川普时期的对华贸易政策。
 
-（爱惜生命 远离疫苗）
+《福克斯新闻》发表文章，题目“川普的对华贸易协议是拜登的‘起点’”（听上去是要延续川普的政策，掩人耳目而已），副标题称，美国贸易代表说，川普的协议“伤害了美国经济的某些部门”。
 
-**1. [Fauci：默克公司的药物无法替代中共疫苗](https://thehill.com/homenews/sunday-talk-shows/575061-fauci-says-its-a-false-narrative-to-think-covid-19-vaccine-not?rl=1)**
+全文如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/unknown-16.png)
+拜登政府希望重塑前总统川普与中共国的历史性第一阶段贸易协议，承认前总统奠定了基础。
 
-据《国会山》2021年10月3日电，周日（3日）”本周“联合主播乔纳森·卡尔在 ABC 的节目中问福奇，默克抗病毒治疗的批准是否会替代中共病毒（COVID-19）疫苗；Fauci告诉Karl：“不要试图想要一种药物替代中共疫苗的接种，这种想法没有任何意义。这是因为最好的办法是人们不感染中共病毒。”
+美国贸易代表戴琪（Katherine Tai）周一（10月4日）阐述了她对世界两大经济强国之间贸易关系的愿景，并承认存在一种零和动态，即中共国的经济繁荣是以牺牲美国工人和经济机会为代价的。
 
-**2. [尽管疫苗接种率很高，但新英格兰仍在经历中共疫情激增](https://www.axios.com/coronavirus-pandemic-surge-new-england-vaccine-fc6b3862-5c8d-45c0-bb9d-28c4af1732ce.html)**
+“我们需要在我们的关系中采取一种新的整体和务实的方法。” 戴在与战略与国际研究中心高级顾问和肖尔国际商业主席比尔·赖因施（Bill Reinsch）的讨论中说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1633274059714.jpg)
+她补充说，川普的贸易协议是谈判的“起点”，政府将“必须解决两国关系从起点开始的走向。”
 
-据《Axios》援引《[美联社](https://apnews.com/article/coronavirus-pandemic-health-pandemics-vermont-d25aae90b2dda65b3d1c2c0d5d00156c?utm_source=Twitter&amp;utm_medium=AP&amp;utm_campaign=SocialFlow)》2021年10月3日电，新英格兰地区的疫苗接种率是全国最高的。然而，各州仍在报告创纪录的病例数、住院人数和死亡人数，与疫苗接种前的高峰期相当。
+戴表示，中共国将恪守第一阶段贸易协议所作的承诺，这些承诺是第一阶段贸易协议的一部分，会惠及某些行业，但美国政府计划降低一些关税，这些关税没有产生战略利益，也没有提高美国人的成本。
 
-**3. [旧金山湾区的接种疫苗者比未接种者更容易感染中共病毒变体](https://theconservativetreehouse.com/blog/2021/10/03/there-it-is-study-finds-predominance-of-antibody-resistant-sars-cov-2-variants-in-vaccine-breakthrough-cases-in-san-francisco-bay-area/)**
+政府还计划解决以国家为中心的非市场贸易行为，包括解决支持国有企业和窃取美国知识产权的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/vaccine-vials-1-768x614-1.jpg)
+该计划包括与美国盟友和合作伙伴合作，而不是采取川普政府所偏爱的单边方针。戴的办公室表示，川普政府的单边政策“疏远了我们的盟友和伙伴，伤害了美国经济的某些部门。”
 
-据《theconservativetreehouse》2021年10月3日电，加州的研究发现，接种疫苗的个体比未接种疫苗的个体更容易感染 COVID 变异体。疫苗开发商 Geer Vanden Bossche（比利时）一直警告说，疫苗抗体会抑制天然抗体反应，只针对单一的目标变体（无法识别其他变异病毒），并且天然抗体已被编程为停滞。
+自接受任命以来，戴琪曾与中共负责贸易谈判的刘鹤进行过一次谈话，但没有讨论中共国是否打算继续履行协议。
 
-在[英国的数据研究中](https://t.co/XCnLK5DMPU?amp=1)有：完全接种疫苗的15万7400例德尔塔变异病例（占总病例数的 26.52%），未接种疫苗的 25万7357 例德尔塔变异病例（占总病例数的 43.36%）。然而，当谈到严重后果时，63.5% 的感染死亡来自完全接种疫苗的组。  [\[来源\]](https://t.co/XCnLK5DMPU?amp=1)
+到目前为止，中共国落后于它在2020年1月签署的历史性贸易协定中所作的承诺。
 
-据《[生活网](https://www.lifesitenews.com/news/if-you-get-the-pfizer-vax-youre-more-likely-to-get-covid-insider-leaks-fda-study/)》2021年9月30日电，辉瑞前员工凯伦·金斯顿说：“当他们不注射疫苗时，他们的感染率为 1.3%，而当他们注射疫苗时，感染率为 4.34%。它上涨了 300% 以上。”这令人难以置信，各大媒体和直播都相继得到了这项结论。
+北京同意在未来两年内再购买2000亿美元的美国产品，并承诺停止知识产权盗窃、避免货币操纵和在金融服务领域合作。
 
-**4. [以色列收紧疫苗护照规则，引发抗议](https://apnews.com/article/coronavirus-pandemic-middle-east-health-jerusalem-israel-25ec5e9141c72080876bfe4f481bf50f)**
+然而，彼得森国际经济研究所（Peterson Institute for International Economics）最近对该协议进行的评估发现，北京远远落后于其承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1000.jpeg)
+中共国的进口数据显示，自交易开始以来，中共国已购买了894亿美元的美国商品，占8月份1,299亿美元目标的69%。北京已承诺今年进口价值2,074亿美元的商品。
 
-据《美联社》2021年10月2日电，以色列周日3（日）收紧了其疫苗护照，即只允许那些接受过疫苗加强针或最近从中共病毒中康复的人，进入室内场所。新标准意味着未来几天将有近 200 万人失去疫苗护照，第三针的疫苗护照有效期为6个月。
+在使用美国贸易数据时，中共国的承诺更加落后，出口数据显示，截至8月，706亿美元的商品已运往中共国，占1,130亿美元目标的62%，该协议要求美国在2021年底前出口1,933亿美元的商品。
 
-**5. [参议员罗恩·约翰逊：过去 7.5 个月英国达美航空死亡人数的 63% 已完全接种疫苗](https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/?ff_source=Twitter&amp;ff_medium=PostTopSharingButtons&amp;ff_campaign=websitesharingbuttons)**
+（原文完）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/ron-johnson-uk-delta-deaths.jpg)
+文贵先生早就说过，与中共坐在一起谈判就是你失败的开始，这位戴琪还主动给刘鹤打电话，承诺纠正川普政府的一些政策，大有讨好中共的迹象，实际上已经有很多的献媚举动了，没准借机放松对中共更多的限制，中共可以名正言顺地得到他们继续的、被禁止出口的产品。
 
-据《门户网》2021年10月2日电，约翰逊参议员在周四（30日）的[演讲](https://twitter.com/SenRonJohnson/status/1443777704994672644?s=20)中指出，在过去 7.5 个月内，所有感染德尔塔变体的死亡人数中有 63% 是完全接种疫苗的人；显然，最近的病例和死亡人数激增，并不是未接种疫苗的流行病（源自接种疫苗者的流行病）；他解释了中共疫苗似乎[不起](https://www.thegatewaypundit.com/2021/09/not-making-headlines-sen-ron-johnson-just-exposed-senate-floor-covid-vaccines-not-appear-work-advertised-never-video/)作用。
+紧盯拜登政府与中共勾兑的一举一动！
 
-**6. [拒绝接种中共疫苗的怀孕护士被停职；它使你感到工作“可有可无”](https://townhall.com/tipsheet/madelineleesman/2021/10/01/pregnant-nurse-that-refused-covid-19-vaccine-put-on-suspension-it-makes-you-feel-n2596817)**
+原文链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/0476f88f-a556-40bf-9dd1-7a0f2286a5cc.jpg)
-
-据《TownHall》援引《福克斯》2021年10月1日电，印第安纳波利斯的一名怀孕护士阿达拉·艾伦分享了她去年12月在怀孕18周时意外流产的经历；通过实验室检查发现她的“血液凝固因子升高了”。鉴于此，她被认为是新的怀孕的”高风险”。
-
-在她新怀孕的前三个月，艾伦的工作场所推出了一项疫苗任务。当她向雇主要求医疗豁免时，她得到了一张“个人声明”表格，她则表示，要继续备孕所以不愿意接受疫苗，这让她感觉不舒服。
-
-该名护士表示，疫情开始，人们把她当成英雄，但她知道自己的工作单位非常危险，但是岗位需要她；她回家时候都不敢和家人相处，而且经常加班，因为需要打疫苗所以打疫苗，不然就无法上岗的结果，让她很伤心。
-
-（文章仅代表作者本人观点，与Gnews无关）
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEWS_CH.-1.jpeg)
+[https://www.foxbusiness.com/economy/trump-china-trade-deal-starting-point-biden](https://www.foxbusiness.com/economy/trump-china-trade-deal-starting-point-biden)

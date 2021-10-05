@@ -2,28 +2,60 @@
 ---
 
 
-## 郭文贵精品视频-疫苗灾难之黑云压城城欲摧
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1573542/)
+## 前国务卿迈克·蓬佩奥：我们必须一直与台湾站在一起
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1573724/)
 
-撰稿：澳喜cindy
+前国务卿迈克·蓬佩奥： 我们必须一直与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 站在一起。 【转国家审查网报道：中国派出52架军用飞机进入台湾领空，这是有史以来最大规模的入侵】
 
-2020年12月10日，在全球还没有开始大规模推广疫苗接种的时候，郭文贵先生根据获得的情报和信息就发出预警：美国推出的辉瑞疫苗是CCP和世界黑暗势力勾结的结果。它将是病毒灾难后又一次灾难。
-Youtube视频
-各国政府的实权部门负责人利用人民对他们的信任，及他们掌握的权力，一边大肆宣传：只有打疫苗才能解除封城，才能免于被解职。另一方面用利益诱惑人们去打疫苗。更恶劣者，组成“疫苗接种军队”到社区到家里强行注射疫苗。
 
-医疗机构的权力部门，有的把疫苗接种者被病毒感染的人数隐瞒以吓唬民众：染病毒者都是没有接种疫苗的人！并且恫吓从医人员：不许把真相公布出去！
 
-这场全球一起推动强逼接种疫苗的运动是由各国众多的关键部门的实权负责人配合背后实力雄厚的黑暗势力共同发力的结果。各自为了自己的目的和利益，罔顾事实，弄虚作假，视人命如草芥。
-网络视频
-[https://gettr.com/post/pclf2171a1](https://gettr.com/post/pclf2171a1) 从医40年的一位爱尔兰家庭医生，他在近期六周内目睹了已注射疫苗的人患上癌症的数字超过了他从医40年职业生涯所见的癌症数字的总和。
+> We must always stand with Taiwan. [https://t.co/IeRByrimhE](https://t.co/IeRByrimhE)
+> — Mike Pompeo (@mikepompeo) [October 4, 2021](https://twitter.com/mikepompeo/status/1445051979454197760?ref_src=twsrc%5Etfw)
 
-当前病毒及疫苗接种的受伤害者的真实声音和诉求在五大家族掌控下的主流媒体是不予报道的。作为全球接种疫苗率最高当然也是受伤害最厉害、最多的以色列COVID-19 疫苗受害者们，为了给所有接种COVID -19疫苗后受到伤害的人提供一个平台，并确保他们的声音被听到，创建了证词项目网站： [https://www.vaxtestimonies.org/en/](https://www.vaxtestimonies.org/en/)
 
-目前第五期已经问世 [https://gettr.com/post/pcu0np910c](https://gettr.com/post/pcu0np910c)
 
-一个个鲜活的健康的身体都变成了终身的残疾甚至不久将离别于人世间。这血淋淋的事实，不但没有被各国政府重视而是一意孤行的继续强推疫苗接种。这种法西斯式的行为震撼到每个人的心灵。让我们看到这个世界真的到了伸手不见五指的黑暗时刻，也印证了文贵先生契而不舍的呐喊：人类正面临着CCP及世界黑暗势力的巨大挑战！CCP病毒的灾难过后即将迎来更惨重的疫苗灾难。
+众议员肯·巴克： 这位脸书 Facebook 吹哨人揭露了该平台的危险性。 没有真正的竞争和问责，脸书Facebook 永远不会改变。 【附吹哨人接受福克斯新闻采访视频】
 
-（本文观点纯属个人）
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+
+> This Facebook whistleblower has exposed just how dangerous the platform is. 
+> 
+> Without real competition and accountability, Facebook will never change. [https://t.co/HEWE7Fpgps](https://t.co/HEWE7Fpgps)
+> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445099090245734402?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 拜登政府没有具体计划对 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 就其不公平的贸易行为进行追责，这只会进一步扼杀全球供应链并伤害美国企业。[#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 不可信，拜登的不作为伤害了美国工人。 【转美贸易代表推文：希望你看到我概述拜登-哈里斯政府对美中贸易政策愿景的演讲。这里是准备好的演讲稿：(附链接)
+
+
+
+> The Biden admin has no concrete plan to hold Communist China accountable for its unfair trade practices that will only further its chokehold on the global supply chain & hurt American businesses. Communist China can’t be trusted & Biden’s failure to act hurts American workers. [https://t.co/R4KIg73Siq](https://t.co/R4KIg73Siq)
+> — Rick Scott (@SenRickScott) [October 4, 2021](https://twitter.com/SenRickScott/status/1445088300180590600?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 通过允许这些公司成为垄断企业，我们给了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 竞争优势。 它现在必须做的就是控制这些公司需要的一项关键投入，他们将被迫关注 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的利益而不是美国的利益： 【转每日来电者报道：独家：保守派科技团体抨击前情报官员捍卫垄断，敦促通过反垄断法案】
+
+
+
+> By allowing these companies to become monopolies, we have given China a competitive advantage. All it must do now, is gain control over one key input these companies need and they will be forced to look out for Chinese interests over American interests: [https://t.co/ENiR39BAC7](https://t.co/ENiR39BAC7)
+> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445073531025436677?ref_src=twsrc%5Etfw)
+
+
+
+众议员史蒂夫·史卡利斯： 边境的非法移民： -不需要被迫检测 -不要求接种疫苗 美国公民： -入境时需要检测 -要保住工作就要接种疫苗 不可理喻的双重标准。 不要让民主党假装他们严肃对待“科学”。
+
+
+
+> For illegal immigrants at the border:
+> – No enforced testing
+> – No vaccine requirement
+> 
+> For American citizens:
+> – Test required to enter the country
+> – Vaccine required to keep their job
+> 
+> Outrageous double standard.
+> 
+> Don't let Democrats pretend they're serious about "the science."
+> — Steve Scalise (@SteveScalise) [October 4, 2021](https://twitter.com/SteveScalise/status/1445018539514019840?ref_src=twsrc%5Etfw)

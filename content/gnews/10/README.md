@@ -2,17 +2,27 @@
 ---
 
 
-## 印尼排华的幕后黑手没有受到惩罚
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1573593/)
+## 戴琪：美中贸易关系策略目标是“不激化与中共国的贸易紧张”局势
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1573812/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image3-5-2.jpg)图片来源：Gnews
-郭文贵先生在9月29日的直播中说，在印尼排华中，110万华人受害，而幕后人没有受到惩罚。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-我为什么要谈论印尼排华问题？因为像苏哈托这样的人在他年老的时候仍然没有受到惩罚。这就是所有国际政治家的问题。印度尼西亚三次排华，110万华人受害，全人类都在沉默。当一万到两万人在香港被自杀时，有多少美国人为他们说话？如果今天又有这样的反华事件，最危险的国家是澳大利亚、美国、印度和日本。在这些国家，可能会出现比印尼更严重的反华事件，只需要1秒钟，就会一发不可收拾。到时候谁会为你说话？如果你不知道共产党的邪恶，你这辈子就白活了。苏哈托必须为他的罪行受到惩罚。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/text-SC-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-曾经看过些印尼屠杀华人的图片，那还是人吗？那还是人间吗？如果这世间有地狱，那应该就是地狱。而正是中共和苏哈托之流将这地狱搬到了人间，搬到了印尼。今天在全球，这一切又再次上演，只是屠杀的方式发生了变化。
+视频参看： 2021.10.04晚GTV新闻访谈
 
-参考链接：
+[https://gtv.org/broadcast/watch/615b9c20304e992109af7e8c](https://gtv.org/broadcast/watch/615b9c20304e992109af7e8c)
 
-[2021年9月29日 文贵大直播](https://gtv.org/video/id=615466c142a8af3151a74ee3)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
