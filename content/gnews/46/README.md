@@ -2,47 +2,21 @@
 ---
 
 
-## 脸书旗下社交平台服务全部关闭 现代通讯艰难的一天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573907/)
+## 针下亡魂｜美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1574200/)
 
-栏目记者/责任编辑：安吉拉
+**撰文/ 台湾宝岛农场 天滅中共｜发布日期/ ****5/10/2021**
 
+***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/10-1.jpg)
+【美国】丹佛杰斐逊县一位 66 岁的资深飞行员 Lelon Lewis 在接种第二剂莫德纳 COVID-19 疫苗后，在一次飞行中失事，最终机毁人亡。
 
+Lelon 4 月 3 日注射第二针疫苗，几小时后，他驾驶一架单引擎 Magnus Fusion 212 飞机在德克斯西北部的崎岖地区坠机。相关新闻中，完全没有提到的是，Lelon 在坠机前接种了他的第二剂摩德纳 COVID-19 疫苗。
+主流媒体就坠机事件的新闻
+有评论质疑，“在接种第二剂疫苗后，当晚就发生了飞行事故，若两者之间完全没有关联，主流媒体为什么要刻意隐瞒？”
+社评质疑动机
+来源｜ [个案010](https://denver.cbslocal.com/2021/04/05/lelon-lewis-plane-crash-deckers-jefferson-county-deadly-crash/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+* * *
 
-
-
-今天对全球第一社交巨头扎克伯格来说非常艰难。Facebook, Instagram, WhatsApp, Oculus和Messenger所有的服务都被关闭了。而且奇怪的是，Facebook.com域名被列为出售对象。
-
-以上社交通讯软件都隶属于Facebook旗下，在今日美东时间上午11:40左右开始出现故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-5.jpg)
-WhatsApp在其推特账号上承认了这个问题，对造成的不便表示抱歉，并解释团队正在努力使服务恢复正常。截止到发稿时间，以上社交媒体仍停留在无法使用状态。Telegram的使用也出现了问题，用户反应收发信息延迟严重，有时在群组消息之间会突然出现色情图片。
-
-据悉，15亿客户的个人数据被从这些平台抽取出来，在暗网上以每一百万个名字五千美元的价格出售。用户ID、真实姓名、电子邮件、电话及地址都在待售之列。
-
-脸书每月有2.8亿活跃用户，Instagram全球用户已超过10亿，WhatsApp全球用户约22亿。而今天所发生的并不是一个普通的宕机，有人删除了大段的路由器指令，Facebook的整个域名解析服务器记录已经消失。从数据角度解释，Facebook已经消失了。
-
-Facebook的股票从9月7日开始呈下降趋势，今日开盘至今每股已下跌16.78美元，约5%。今日事件发生原因尚未明晰，市场对Facebook雄心勃勃的加密货币支付系统计划的期望也在急剧下跌。
-
-截稿时另一则最新消息，今天美国银行Bank of America的许多用户，报告其银行系统出问题，敦促用户检查自己的余额及明细账。截稿时问题仍未解决。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://insiderpaper.com/whatsapp-instagram-down/)
-2. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://twitter.com/Facebook/status/1445061804636479493?s=20)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hant/1572210/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hant/1572326/)//

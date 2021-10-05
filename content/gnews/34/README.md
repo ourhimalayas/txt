@@ -2,46 +2,95 @@
 ---
 
 
-## 联邦机构称其雇员需在下月完成拜登的疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1574679/)
+## 认清好虚拟币和未来的趋势
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574772/)
 
-- 编译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2406.png)
+[https://gtv.org/video/id=615bca7cd2e2b81748715b96](https://gtv.org/video/id=615bca7cd2e2b81748715b96)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/JOE-BIDEN-2-e1631502366609-1200x633-1.jpg)2021年9月9日，美国总统乔-拜登在白宫国宴厅发表关于防治COVID-19大流行病的讲话。(Kevin Dietsch/Getty Images)
-在联邦人事管理办公室（OPM）主任基兰·阿胡贾(Kiran Ahuja)于10月1日发布的一份备忘录中，OPM建议联邦工作人员不要等到最后一刻才接种疫苗，因为”其他事件往往干扰了即使是精心安排的计划”。
+**郭文贵
+Miles Guo**
 
-阿胡贾说：”拒绝接种疫苗或提供疫苗接种证明的雇员将受到纪律处分，甚至包括被免职或终止联邦服务。唯一的例外是根据既定机构程序获得法律规定例外的个人。”
+只要是20%和黄金挂钩，而且确有保障，再加上稳定币
+As long as 20% is linked to gold, and it’s guaranteed plus stable coins
 
-他写道，拜登的行政命令的指导意见指出，联邦雇员需要在11月8日之前完全接种这三种疫苗中的任何一种。
+那就更是好上加好，因为我随时可以拿走嘛
+That’s even better because I can cash out at any time
 
-根据该备忘录，对于辉瑞公司的接受者，联邦工作人员应该”在第一次接种后3周（21天）进行第二次接种”，这”意味着为了让联邦雇员满足11月22日的最后期限，他们应该不迟于10月18日接种第一次疫苗，不迟于11月8日接种第二针”。
+我稳定币就是存钱，我随时能拿走
+My stable coins is like my savings, I can cash out at any time
 
-阿胡贾说，接受莫德纳的人应该在10月11日之前接种他们的第一针，在11月8日之前接种第二针。
+稳定币支付系统，加黄金挂钩的任何币都可以买
+you can buy any cryptocurrency with stable currency payment system linked to gold
 
-备忘录说：”由于强生疫苗只有一针，联邦雇员必须在11月8日之前获得该剂量，以便在2021年11月22日的最后期限之前完全接种疫苗。”
+千万不要存美元，你存美元，任何钱
+Never save US dollars, you save US dollars or any currency
 
-9月9日，拜登宣布了针对联邦政府、医疗保健部门和私营企业的全面措施。与此同时，一些由美国共和党领导的州和联邦工作人员对拜登政府提起诉讼，认为他的授权相当于联邦的过度扩张。
+战友们你要辛辛苦苦有个30万20万美元
+Comrades in arms, you work so hard to save 300,000 or 200,000 US dollars
 
-大约两周前，一些联邦雇员对拜登提起诉讼，认为他的行政命令不公平地影响了那些有基督教信仰的人。
+你在家里搁着，或者加拿大元，或者什么英镑，欧元
+You put them aside, or Canadian dollar, or British pound, or Euro
 
-原告之一，美国外交部官员丹尼尔·杰克逊(Daniel Jackson)，他的信仰”也指示他，接种疫苗原则上不是道德上的义务，因此必须是自愿的，”原告的律师在诉讼中辩称。他们认为，”有一种普遍的道德责任，即拒绝使用利用直接堕胎所得人类细胞系生产的医疗产品，包括某些疫苗”。
+我告诉你，你今年年底到明年你就知道你有多惨，
+I tell you, you will know how miserable you are from the end of this year to next year
 
-该诉讼还认为，另一名原告美国特勤局特工莱昂内尔·克莱因(Lionel Klein)已经感染了COVID-19，并有足够的抗体来抵御未来的病毒感染。因此，律师认为他不需要接种疫苗。
+全世界我现在跟你说
+I’m telling the world now
 
-COVID-19是由CCP（中国共产党）病毒引起的疾病。
+昨天你看到英国了吗？看到战友发信息了吗？看到美国了吗？
+Did you see Britain yesterday? Did you see your comrades in arms send messages? Have you seen America?
 
-**评论：**
+我告诉你，当这个疫苗的脑梗、心梗、肛梗、眼梗全面爆发以后
+Let me tell you, when this vaccine has a full outbreak of cerebral infarction, myocardial infarction, anal infarction, and ocular infarction
 
-**从各国政府应对这次中共病毒疫情来看，政府部门的官僚作风暴露无遗，包括美国政府机构。几乎没有官员质疑疫苗是否真的有必要，疫苗是否真的对预防中共病毒有效。整个政府像一台僵化陈旧的老巴士，载着一车沉睡的人，慢慢朝着悬崖边开去。我们新中国联邦要不断呐喊，叫醒沉睡的人，带领他们跳车逃生。我们不求回报，因为我们信仰正道主义，拯救更多人类同胞是我们的使命。**
+小7，小福利记住，你们最贵的是什么 – 双修
+Xiao seven and xiao Fuli remember that what is precious for you？it’s sex
 
-（文章仅代表作者观点，与GNEWS无关）
+我不跟你们开半点玩笑，你能有双修的力气，那可就真是行了
+I’m not joking with you, if you can have the strength for sex, that’s really good
 
-**新闻来源：**[大纪元时报](https://www.theepochtimes.com/federal-agency-bidens-vaccine-mandate-for-federal-workers-can-be-enforced-next-month_4029386.html) (THE EPOCH TIMES) | 作者：Jack Phillips|发布时间：2021年10月3日
+你还能安全的双修，最重要的事情我告诉你
+You can still have sex safely, I will tell you the most important thing
 
-* * *
+只要你没打疫苗的人，你就等于神，你就是最高赢家
+as long as you are not vaccinated, you are equal to God, and you are the biggest winner
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+没打疫苗绝对最高（赢家），你看到处死人
+Unvaccinated people will be the biggest winners, you look at died people all over the place
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+未来烧人的东西，和烧尸体的东西，掩埋尸体的东西
+In the future, things that burn people, things that burn corpses, things that bury corpses
+
+处理尸体的东西和装尸袋都是最贵的
+things that disposal of corpses and cadaver bags are the most expensive
+
+火葬场是最赚钱的，最可怕的就是银行不值钱
+The crematorium is the most profitable business, the most terrifying thing is that the bank is worthless
+
+货币，钱不值钱，然后剩下最值钱除了火葬场烧人这些买卖最好
+Currency, money is worthless, then there is the most valuable thing except for burning people in crematorium, which is the best business
+
+然后就是虚拟货币了，没有任何人再相信国家
+Then there is virtual currency, no one believes in the government anymore
+
+全都找虚拟货币
+All will look for virtual currency
+
+———————————————————————
+Date:10/03/2021
+原视频标题:认清好虚拟币和未来的趋势
+Recognize the virtual currency and future trends
+原视频日期：2021/09/29
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24](https://twitter.com/se1y7cblljselva/status/1443788008373719067?s=24)
+任务编号：KC146（2406）
+视频时间段 : 0:00-1:35
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

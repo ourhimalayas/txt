@@ -2,31 +2,35 @@
 ---
 
 
-## 突发宕机！脸书蒸发3000亿
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1574990/)
+## 法国重磅“中共影响力行动”报告，揭中共全球宣传部署
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575090/)
 
-**撰稿：日本东京方舟农场 子辰**
+栏目记者：修文   
+责任编辑: FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-87.png)
+法国半官方智库、国家军事学校战略研究所近日公布了一份近650页、历时两年完成的“（中共）影响力行动”调查报告，揭示中共近年来为扩展影响力而部署的全球网络，指出中共利用舆论、心理和法律企图收买、渗透与约束他国。
 
-10月4日，美国互联网社交巨头Facebook脸书公司的主要社交服务在美国英国等多个国家发生了中断故障。故障导致其市值蒸发近3000亿。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-9.jpeg)
 
-据报道，此次宕机殃及Facebook旗下的四大社交产品，包括Facebook平台、移动聊天服务Messenger和WhatsApp，以及图片社交服务Instagram。脸书在长达六小时半的故障中，直接导致股票大跌近5%，市值蒸发475.59亿美元，约合3065亿人民币。
+该报告由由情报专家、中国问题专家夏宏和政治学家、安全问题专家尚杰维尔梅共同撰写，从四个方面梳理了中共为扩展其影响力而进行的网络部署和发展轨迹，是迄今为止以法语发表的对中共宣传机器内容最全面的分析。
 
-据路透社报道，Facebook网页上显示此次服务中断是由于域名系统错误（DNS）所致。此前7月份，云服务公司 Akamai 发生的类似故障也曾导致多个网站瘫痪。
+报告第三部分详述了中共在海外部署影响力的行动方式，包括用正面叙事来博取外国民众好感，同时使用渗透和胁迫手段。中共在海外的影响力活动领域，已全面涉及外交、经济、政治、教育、智库、侨民、媒体等等，在影视作品和游戏领域的文化渗透和操纵，日益严重。所有行动都围绕着捍卫中共模式，吹嘘“中国传统”，彰显中国善行，建立中共霸权，妄图对世界进程施加影响，最终超越美国，并向世界强加中共自己的模式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/U826P902T1D432957F104DT20211005050658.jpg)图片来自于网络
+最后，报告指出，当中共的影响力战略越来越具有攻击性，导致其国际形象严重恶化，它最大的敌人就是中共自己。
 
-报道说，脸书故障期间阻断了全球30亿用户的日常通讯，而且显示除了影响脸书本体外，也一举影响到数十亿个“所有连结Facebook账号的网络服务”，像是游戏、媒体订阅、电商服务等。期间脸书总部迟迟无法有效厘清、或是向外界更新障害排除的进度。
+(本文仅代表作者观点)
 
-除此之外，网络监测平台“downdetector”曝光数据，指出本次全球有多达1060万份问题回报，“这是有史以来最大的网络平台宕机。也让该事件恐将成为FB系列瘫痪损害规模最大的“严重故障事件”。
+参考链接：[法国重磅调查报告 揭示中共部署全球网络扩展其影响力](https://www.soundofhope.org/post/548463)
 
-另据俄罗斯卫星网消息，宕机期间，脸书的大规模用户数据遭泄露，黑客论坛上有超过15亿Facebook用户的数据被出售。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-*注：本文仅代表作者观点，与 Gnews无关*
+终审：FoxRina
+校正/发稿：谐趣园
 
-*参考链接：*
-
-[突然全球“死机”：互联网巨头大跌3000亿！芯片股也狂跌，这一夜，发生了什么？](https://finance.sina.cn/usstock/mggd/2021-10-05/detail-iktzscyx7967484.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

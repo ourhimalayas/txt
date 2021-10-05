@@ -2,37 +2,21 @@
 ---
 
 
-## 美国大型社交媒体网站宕机，盖特正常运行
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1574642/)
+## 秘翻在线：芬兰研究发现，感染中共病毒后体内抗体可持续至少1年
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574711/)
 
-**撰稿：日本东京方舟农场 海星**
+#### 翻译/撰稿：zzballack
 
-10月5日，美国大型社交媒体网站Facebook、Messenger、Instagram、即时通讯软件WhatsApp等出现大规模宕机。
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-85.png)  图片来源：卫报
+据《零对冲》（Zerohedge）10月4日报道，《欧洲免疫学杂志》(European Journal of Immunology) 9月24日接收的一项经过同行评审的研究发现，大多数人在感染中共病毒后，免疫系统中针对该病毒的抗体将至少持续12个月。
 
-据报道，监测网络状况的网站DownDetector显示，大量用户报告称Twitter、T-Mobile 、AT&T、亚马逊云服务和谷歌服务均出现问题。除此之外，Facebook、Messenger、Instagram和WhatsApp等Facebook旗下应用均出现故障。
+芬兰卫生福利研究所（Finnish Institute for Health and Welfare ）的科学家们研究了1292位中共病毒患者在感染八个月后的抗体水平情况。他们发现其中96%的人携带中和抗体，66%携带核蛋白IgG抗体。然后，科学家们再从这批受试者中随机挑选出了367名尚未接种中共病毒疫苗的人，调查其感染一年后的抗体水平。结果89%的受试者仍然携带中和抗体，36%仍然携带IgG抗体。他们的研究还发现，受试者中，那些染疫时病情严重的患者体内的抗体水平比轻症患者高，在感染病毒13个月后，他们体内的抗体数量是后者的2到7倍。科学家们说，对中共病毒自然感染者的研究对于确定感染后抗体能持续多久以及这些抗体是否能保护人们免受再次感染至关重要。
 
-尤其是扎克伯格的Facebook全网宕机，连内网都废了。据了解，Facebook网页上的错误消息表明存在域名系统 (DNS) 错误，并有Facebook员工披露，由于无法使用门禁卡，一度不能进入办公大楼评估网络故障。
+尽管自然感染产生的抗体对中共病毒的原始毒株有持久的保护作用，但对Alpha、Beta和Delta变体的中和效率随着时间的推移而减弱，其中对Beta变体的中和效率“显著下降”，对Alpha变体的中和效率 “略有下降”，而对于正在美国占主导地位的Delta变体，研究发现80%的受试者在感染12个月后仍有免疫保护。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9a5b2e9a705b0aa0610da0f067a9e79f_500x0.jpg)图片来自于网络
+《自然-医学》（(Nature Medicine)）今年5月份发布的一份研究发现，人体内的中和抗体水平可以很准确地反映人体对中共病毒的免疫能力。之前的研究表明，中共病毒抗体在体内可以存在6至12个月。
 
-目前，Facebook等社交媒体已逐步恢复运行，但此次时长近7小时的宕机，成为脸书最严重的一次网络访问事故，影响到全球数十个国家和地区用户。而在此期间，社交媒体盖特一直正常运行，成为全球各地用户的唯一发声渠道。
+尽管自然免疫可以提供强大和持久的保护力，但是拜登政府的疫苗强制令却没有为自然感染者提供疫苗豁免，美国各高校和各州的疫苗强制令也忽视了这一点。
 
-对此，盖特总裁杰森·米勒在盖特上表示，盖特不仅在思想上提倡言论自由，在技术上也非常卓越，优于各类大型社交媒体。因此，它成为了有史以来增长最快的社交媒体平台，并仍在不断发展壮大。
-
-他强调，“是时候对大型社交媒体的删除行为说再见了！”
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[Facebook谷歌亚马逊等网站出现大面积宕机](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9705326.shtml)
-
-[JUST IN – Facebook employees reportedly can’t enter buildings to evaluate the Internet outage because their door access badges weren’t working (NYT)](https://gettr.com/post/pd575oe897)
-
-[Facebook史上最严重宕机 全网宕机近七小时高管赴推特道歉](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9719527.shtml)
-
-[While Big Tech imploded, GETTROfficial was still going strong!](https://gettr.com/post/pd6masf06a)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+新闻来源：[Antibodies Persist For More Than A Year After COVID-19 Infection, Study Finds](https://www.zerohedge.com/covid-19/antibodies-persist-more-year-after-covid-19-infection-study-finds)
