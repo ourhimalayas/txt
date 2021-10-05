@@ -2,21 +2,23 @@
 ---
 
 
-## 单日52架次创新高！中共军机扰台领空力度不断升级
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1573572/)
+## 中共砸数亿不许谷歌出现郭文贵讲疫苗讲病毒和喜币及盖特
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573673/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/10/phpKIIxry.jpg)[图片来源](https://news.ltn.com.tw/news/politics/breakingnews/3693209)
-台湾“自由时报”10月4日讯，中共今日派大批军机闯入台岛西南空域，台湾国防部今晚表示，中共今日一共派出52架次战斗机、反潜机、轰炸机、预警机，自台海中线以南空域进入防空识别区。
+视频制作：撒骄的男宝好性感；
 
-台湾空军依照惯例派遣空中巡逻兵力应对、广播驱离、防空飞弹追监，52架次更创下单日新高。根据台湾国防部统计，中共此次派出的军机包含“歼-16”战斗机34架次、“苏-30”战机2架次、“运-8”反潜机2架次、“空警-500”预警机2架次、“轰-6”轰炸机12架次。10月以来，中共军机的出动数量频频刷新纪录；10月1日38架次、2日39架次、3日再派16架次，10月前3天就多达93架次，加上今天已出现刷新单日纪录的52架次，10月以来4天就有145架次共机扰台湾西南空域。
+发布：黎明之前；
 
-郭文贵先生一直预警世界，中共攻台的决心已不可逆转。对于中共的疯狂，全世界，特别是台湾同胞切不可大意。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[信息来源](https://news.ltn.com.tw/news/politics/breakingnews/3693209)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-（文章仅代表作者个人观点，与GNEWS无关）
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-*校对：东京樱花团 / 上善若水*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
