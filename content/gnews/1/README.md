@@ -2,88 +2,27 @@
 ---
 
 
-## 俩月！ 深二手房成交从17个月新低到12年新低
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575152/)
+## 辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575250/)
 
-作者：纽约香草山福音部 – Jeffery Ocampo
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：2021.10.05早GTV新闻访谈
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+[https://gtv.org/broadcast/watch/615c44e0304e992109afc723](https://gtv.org/broadcast/watch/615c44e0304e992109afc723)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-
-数十年来，在城里拥有自己的房子一直是好多老百姓的一个梦想，更是一个难题，有的家庭甚至倾尽三代人所有，也只是凑够了城里一套房子的首付。房子，对老百姓有多重要？没有房，找寻不到丈母娘；没有房，无法进入小学堂。虽多少有些戏谑的成分，但不得不说，这是中国楼市的真实写照。
-
-曾几何时，“政府绝对不会让房价下跌”的论调甚嚣尘上，可怜百姓们除了“刚需”之外，也无更好的投资渠道。于是乎由于CCP政府花样打鸡血，导致老百姓认为房子是唯一的、只涨不跌的财富增值渠道。殊不知，只要是商品，哪有只涨不跌的道理！
-
-就在房产行业所谓的“金九银十”的黄金月份，深圳9月份二手房成交量创出12年来的新低，多地先后出台楼市“限跌令”的同时，可怜的老百姓大多依然沉浸在CCP描绘的“政府绝对不会让房价下跌”的梦里无法清醒过来。任何商品失去了流动性以后，紧接着就是价格的暴跌，即使从来不知道什么叫“郁金香泡沫”，那么“蒜你狠”、“姜你军”、“豆你玩”、“苹什么”这些跟日常生活息息相关的事件不应该没有经历过。深圳的贷款炒楼族看到如此的成交数据，心里必定无法平静。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_1.jpg)
-
-
-
-如果说老百姓永远都是温水里的青蛙的话，那么大资本对如此的市场的信息是异常敏感的。推特大V零对冲，就及时发出了9月深圳二手房同比暴跌80%至1,765套，首创12年新低的推文。俗话说，字数越少，问题越大。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_2.jpg)
-
-
-
-回看中国证券报9月份的新闻报道，深圳二手房成交，创十年新低，也就时隔1个月而已。殊不知，“没有最低只有更低”，一语成谶！
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_3.jpg)
-
-
-
-广东省政府在自己的官网上转载了南方日报8月份的新闻，深圳7月份二手住宅迎4连跌，并创17个月新低，不曾想，俩月以后，深二手房成交竟然从17个月新低一下子跌到了12年新低，恐怕是太多人始料不及的事情！
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_4.jpg)
-
-
-
-曾几何时，深圳，那个曾经被画圈的城市，成就了多少人的梦想？如今，其二手房成交暴跌，也只是全国楼市的一个缩影而已。据华尔街见闻10月1日报道，9月全国二手房成交“6连降”！
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_5.jpg)
-
-
-
-至于10月份及接下来的成交数据，在笔者看来，已经不那么重要了，地产界的恒大暴雷、新力雪崩都只是表面现象而已，根本的原因在于CCP的一切都是假的，现有人口造假、出生人口造假，所谓的“市场经济”也只是CCP主导下的假象而已，全国楼市供大于求，是不争的事实。
-
-CCP这台破车在中华大地上碾压了百年之后，不仅完全失去了前进的动力，而且还在倒退的路上狂奔着。有多少老百姓没被CCP绑上楼市这个定时炸弹？其爆炸后的威力有多么恐怖笔者都不忍描述。同胞们，醒醒吧，楼市的崩溃只是一个开始，莫让CCP这台倒退的破车再碾伤甚至碾毙我们的儿女！
-
-参考资料：
-
-1. [9月深圳二手房成交量暴跌八成 12年来首次跌破2000套](http://finance.eastmoney.com/a/202110042129012043.html)
-2. [炸锅！深圳二手房逼近“1”时代，创十年新低](https://finance.sina.com.cn/chanjing/cyxw/2021-09-04/doc-iktzqtyt3974633.shtml)
-3. [深圳二手房交易四连跌 创近17个月新低](http://www.gd.gov.cn/gdywdt/dsdt/content/post_3451169.html)
-4. [9月全国二手房成交“6连降”、深杭厦等皆创年内新低](https://wallstreetcn.com/charts/41951098)
-
-
-（本文仅代表作者个人观点）
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

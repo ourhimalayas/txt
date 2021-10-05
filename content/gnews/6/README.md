@@ -2,28 +2,26 @@
 ---
 
 
-## 美中贸易政策揭晓，寻求对话但保持施压中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575108/)
+## 前新疆警察接受CNN采访, 揭露中共暴行!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575136/)
 
-栏目记者/责任编辑：七哩香
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-88.png)
-10月4日，美国贸易代表戴琪在华盛顿发表对中共国贸易政策讲话时表示，中方未能全面履行与川普政府达成的美中“第一阶段贸易协议”内容，美方将不排除采取单方面贸易措施，包括启动“301条款调查”和加征新的关税。此外，美方不打算与中国展开所谓“第二阶段贸易谈判”。
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-90.png)
+CNN播出最新纪实访谈节目, 采访了几位遭受过中共暴行迫害的维族人, 以及一位前中共警察蒋先生(音译)。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-2.jpeg)
 
-截至目前，中共今年对美国的采购目标仅完成了62%。 戴琪称，通过几个月的全面评估，中方从来没有改变其非市场贸易行为，且近年来更加强调以维护中共统治为核心的经济体系。
+这位蒋姓警察目前人在欧洲避难, 他向CNN讲述了他在新疆从业期间的所见所闻, 在被称为再教育营的集中营中, 对维族及其他宗教人群所进行的系统性酷刑,  他本人也参与了这些暴行, 包括电刑/水刑和性暴力, 相对而言侮辱和不允许睡觉是最普通的待遇。蒋姓警察也从最初的 “渴望前往新疆打击企图分裂国家恐怖分子” , 到最后转变为质疑和彻底厌恶。虽然他在这种名为”援疆”的部署期间获得了两倍的工资和福利。这位勇敢警察的讲述, 是对中共新疆暴政暴行最有力的佐证和控诉!
 
-彼得森国际经济研究所高级研究员加里·哈夫鲍尔表示，戴琪讲话所展示出的对华贸易政策，比预期的更为强硬，拜登政府七个多月的对华贸易政策评估得出的结论是，更多的谈判无法使中方改变做法。
-
-但戴琪也表示，拜登政府并不寻求激化与中方的贸易紧张关系，并在阐述拜登政府对华贸易政策目标时使用了“持久的共存”这一新的说法。
+在采访中, 一位曾遭受中共酷刑迫害的维族教师说:”我永远不会忘记心中的伤疤,是信仰支撑我活下来, 我并不恨那些警察,虽然他们是罪犯, 但他们也是受害者,他们是那个犯罪系统的一部分。”
 
 (本文仅代表作者观点)
 
-参考链接：[对华贸易政策揭晓 戴琪：寻求对话 但保持对北京施压](https://www.voachinese.com/a/katherine-tai-china-trade-20211004/6256872.html)
+参考链接：[‘Some are just psychopaths’: Chinese detective in exile reveals extent of torture against Uyghurs](https://edition.cnn.com/2021/10/04/china/xinjiang-detective-torture-intl-hnk-dst/index.html)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：FoxRina
+终审：文龍
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

@@ -2,87 +2,37 @@
 ---
 
 
-## 中共最赚钱的几大部门
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574735/)
+## “劣质艺人”赵薇与她背后的超级权势大人物
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1574798/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2407.png)
-[https://gtv.org/video/id=615bca35d2e2b81748715b75](https://gtv.org/video/id=615bca35d2e2b81748715b75)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/ZW.jpg)图片来源：网络图片
+**作者：**顺其自然
+**编辑：**翼族
 
-郭文贵
-Miles Guo
+**【编者按：**郭文贵先生曾数次提起YouTube一个“闲聊澳洲”的频道，主播Lily女士正是本文的作者。本专栏将陆续推出Lily女士的直播简要，欢迎关注。**】**
 
-共产党一个发改委的能源局局长想弄100亿
-The head of the Energy Bureau of the Development and Reform Commission of the Communist Party wants to get 10 billion dollars
+中共当局整肃娱乐圈动作频频，近日微博流出一份疑似官方排序的25位“劣迹艺人”名单，题头为“全渠道封杀问题艺人”，分为“政治问题”等三类。其中，前不久遭封杀的赵薇，不仅被归为“政治问题”，且排在被惩处的完整名单的首位。这份被疯传的“全渠道封杀问题艺人”25人名单，包括21名男性、4名女性，名单分成“政治问题”、“违法乱纪”、“失德失范”三大类。其中，首类“政治问题”一栏以赵薇为首，接着是其旗下“普林赛斯”公司艺人张哲瀚，还有入瑞典籍的男星赵立新。
 
-就像你们现在赚个1千块钱那么简单，张宏伟跟能源局副局长吃一顿饭
-It’s as simple as you earn 1,000 dollars now, Zhang Hongwei had a meal with the deputy director of the Bureau of Energy
+在“违法乱纪”一栏被点名的明星，包括涉强奸已遭逮捕的吴亦凡、2018年卷入逃税风波的范冰冰、以及不久前被爆出涉嫌与制作机构签下“阴阳合同”被罚2.99亿人民币的郑爽。此外，多位涉毒的艺人柯震东、房祖名、张默、宁财神也被列入这一类别。
 
-当天晚上张宏伟在香港，把那个江诗丹顿的所有的收藏版的表买过去
-at that night Zhang Hongwei was in Hong Kong, he bought all the collector’s edition watches of Vacheron Constantin
+而“失德失范”类别的名单涉及私生活出轨、性丑闻等桃色新闻，引发演艺圈轩然大波的罗志祥、李小璐、吴秀波、文章等都名列其中。
 
-当时拿过去的时候是拿了两亿美元的支票放在那儿押着
-He took a 200 million U.S. dollars check and put it in the store
+我们都知道赵薇大红大紫于《还珠格格》，之后拍的《情深深，雨蒙蒙》也不错，那几年加上广告，着实是赚了不少钱；但之后拍的片子就每况愈下，被人称为票房毒药。艺人赚钱容易，但花销也大，那些钱够我们普通人过一辈子，但对于这种一线的艺人来说却花不了几年，再加赵薇很有野心，本就是一心想往上爬的人，是一个从来就不甘心做演员的女明星。
 
-如果是我都买了，我们用支票，不买了就（把表）送回去
-If I wanted them, then just cashed the check otherwise I would send the watches back
+在嫁给黄有龙之前，和赵薇真正交往的男朋友都是非富即贵，比如富商叶茂青，插一句，《还珠格格》里小燕子据说就是叶茂青给她花钱买的角色，还有后来的豪门公子汪雨，但最后都无疾而终。在拍了几部片都不叫好成了票房毒药后，赵薇做了深圳市长许宗衡的情人，帮许洗钱。后又结交认识了马云——江家第三代掌门人的代持，或者叫马仔。随后，赵薇又认识了一众资本大佬，什么肖建华之流，开始玩起了资本运作，空手套白狼，短短几年成了女版巴菲特，挣了几十亿的资产。既然跟了马云，那不上床是不可能的，与马云有了这层关系，许宗衡又进了监狱，不论是真假夫妻，反正明面上赵薇与黄有龙这个许宗衡的司机结了婚，之后她俩更是游走于资本圈，成立影视公司等等。
 
-结果拿过去一块也没拿回来，两亿支票兑现
-Then they didn’t send any single watch back, the check was cashed
+在中共国，背后不跟权力做交易几乎是不能挣大钱的，对于赵薇也不例外。既然赵薇跟了马云，那肯定与孙力军也有关系，孙立军是一个想睡哪个女明星就睡哪个女明星的人，赵薇能与孙力军干净得了吗？要不凭什么孙力军罩着她，马云不也得跟权力混，才能有他今天的地位吗？所以现在孙力军被习近平拿下，那跟孙力军走得如此近的赵薇肯定也会被收拾。习近平想，我现在动不了江志城，我还动不了他的马仔，及他马仔的女人吗？现在习近平与江家势力斗得这么激烈，那与江家及江家马仔孙力军、马云走得这么近的赵薇被收拾也是情理之中的事了。赵薇当年有多嚣张狂妄，现在就有多凄惨悲凉，但演艺圈就是个名利场，身在其中，要想干干净净几乎不可能。除非像徐静蕾那样只跟王朔，不涉及权力，没有那么大的野心，最后的下场也至于会那么惨。看看当时与赵薇一起成名的女星，包括范冰冰，也贪恋权力跟了王岐山之外，最后的结果都很悲惨。别的一些人虽追名逐利，但在最后看破这一切嫁给了平凡人，比如章子怡嫁给了汪峰，而赵薇却一直在跟资本权力大佬混在一起，所以钱来的容易去的也快，最后还可能有牢狱之灾。估计赵薇这些年没少给马云，孙力军洗钱。
 
-全都是江诗丹顿特别版，能源局局长喜欢表
-all the watches are Vacheron Constantin special editions, the Director of the Energy Bureau likes watches
+虽然微博上的这个消息不知真假，但以习近平整肃江派势力的决心，连孙力军都倒下了，那赵薇还能有好嘛？赵薇最后的结局只会比这个重，不会比这个轻。当真应验了红楼梦里那句话，择膏粱，谁承望流落在烟花巷，因嫌纱帽小，致使锁枷扛。赵薇与乌纱帽虽然没关系，但是对于金钱的欲望太大，所以也就有了今天的下场。
 
-记住我今天郭文贵说的话，
-Remember what I, Guo Wengui said today
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-如果这个能源局的局长，发改委副主任被抓
-If this director of the Energy Bureau and the deputy director of the Development and Reform Commission was arrested
+**YouTube链接**：[闲聊](https://www.youtube.com/watch?v=1hP4WmePdeI&amp;t=219s)[澳洲](https://www.youtube.com/watch?v=HRUofNkBlo4)
+**GTV频道：**[墨尔本雅典娜农场AthenaFarm](https://gtv.org/video/id=6153fecc42a8af3151a72e5b)
 
-他家的表最起码在3千-4千块之间，而且都是世界上最顶级的
-His watches are at least between 3,000 and 4,000 pieces, and they are all the top class in the world
+*发布：翼族*
 
-3千多块，没有一块低于10万美元的，算算多少钱
-All these 3,000 pieces, each of them was not below $100,000 dollars, how much were them totally?
-
-这是发改委有多牛，你知道吗？发改委是你们不知道的，
-This is how powerful the National Development and Reform Commission is, do you know? You don’t know anything about the Development and Reform Commission
-
-中国发改委，财政部，中纪委这是捞大钱的
-China Development and Reform Commission, Ministry of Finance, Central Commission for Discipline Inspection are all big money grubbers
-
-然后是银监会，保监会，证监会这几个会，这是真的赚钱的呀
-Then there are the China Banking Regulatory Commission, the China Insurance Regulatory Commission, and the China Securities Regulatory Commission, they are really profitable commissions
-
-其他的都是另外一回事，房地产谁控制的，银监会和保监会控制，这几个会控制呢
-Everything else is another matter, which commission controls the real estate,
-is controlled by the China Banking Regulatory Commission and the China Insurance Regulatory Commission, these commissions control it
-
-所以说兄弟姐妹们这次大停电，是国内政治经济利益大较量的结果
-Therefore, brothers and sisters, the blackout is the result of a great contest of domestic political and economic interests
-
-习家说这不关我的事儿，老子我得要政治利益，我得要政治面子，再个也没钱
-Xi’s family said that it’s nothing to do with me, I have to have political benefits and looking good politically, and also there is no money
-
-所有的人都认为老百姓没电，像那在高空中头朝下的
-Everyone thinks that the common people have no electricity, like some one is working headed down high in the sky
-
-还有在那个东北医院里边正在做手术呢，吧唧停电了，完了
-also there was an operation in that Northeast Hospital, right? The power went out, it’s over
-
-—————————————————————
-Date:10/03/2021
-原视频标题:中共最赚钱的几大部门
-The most profitable departments of the CCP
-原视频日期：2021/09/29
-原视频链接:[https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24](https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24)
-任务编号：KC145（2407）
-视频时间段 : 0:00-1:52
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

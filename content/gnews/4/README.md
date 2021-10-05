@@ -2,35 +2,88 @@
 ---
 
 
-## “潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575120/)
+## 俩月！ 深二手房成交从17个月新低到12年新低
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1575152/)
 
-栏目记者/责任编辑：七哩香
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-89.png)
-立场新闻10月4日报道表示，其参与调查的“潘朵拉文件”显示，现任中共国政协副主席、前特首梁振英是恒泰信托的客户，通过中介人使用恒泰服务，为其本人及家族成员注册离岸公司。
+作者：纽约香草山福音部 – Jeffery Ocampo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-2.jpeg)
 
-梁振英在任职香港特首期间，申报持有戴德梁行附属公司的股权，但多次拒绝交代相关业务。“潘朵拉文件”首次证实梁振英在任内通过两家离岸公司，迂回持有一间戴德梁行日本业务公司的3成股权，并于2015年12月以20万英镑出售，梁振英没有申报特首任内出售股权。当时，廉政公署正调查他与澳洲上市公司UGL签订协议，收取400万英镑一事，翻查行政会议利益申报，梁振英从未申报持有UGL股权。
 
-梁振英是中共在香港的代理人和打手，于2012至2017年任香港特首，期间发生雨伞革命。他打压人权和自由，并牵涉多宗腐败及黑金事件，外界指证其为中共地下党员。身居中共要位的梁振英，其贪腐行为与其它中共高官并无区别，牵涉“潘朵拉文件”也不奇怪。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-梁振英当天通过社交媒体狡辩称：间接的股权持有和变动不必申报；他主动作出制度外安排，将所有股权放入信托，他本人不行使决策权。他的无耻和撒谎嘴脸跃然纸上，但这恰恰证实，其通过匿名公司隐瞒财产。
 
-(本文仅代表作者观点)
 
-参考链接：[潘多拉文件披露两位前港特首、现任政协副主席参与离岸公司操作](https://www.voachinese.com/a/pandora-leaks-hong-kong-politicians-20211004/6256321.html)
-[梁振英](https://zh.wikipedia.org/wiki/梁振英#雨傘革命)
+数十年来，在城里拥有自己的房子一直是好多老百姓的一个梦想，更是一个难题，有的家庭甚至倾尽三代人所有，也只是凑够了城里一套房子的首付。房子，对老百姓有多重要？没有房，找寻不到丈母娘；没有房，无法进入小学堂。虽多少有些戏谑的成分，但不得不说，这是中国楼市的真实写照。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+曾几何时，“政府绝对不会让房价下跌”的论调甚嚣尘上，可怜百姓们除了“刚需”之外，也无更好的投资渠道。于是乎由于CCP政府花样打鸡血，导致老百姓认为房子是唯一的、只涨不跌的财富增值渠道。殊不知，只要是商品，哪有只涨不跌的道理！
 
-终审：暗黑
-校正/发稿：谐趣园
+就在房产行业所谓的“金九银十”的黄金月份，深圳9月份二手房成交量创出12年来的新低，多地先后出台楼市“限跌令”的同时，可怜的老百姓大多依然沉浸在CCP描绘的“政府绝对不会让房价下跌”的梦里无法清醒过来。任何商品失去了流动性以后，紧接着就是价格的暴跌，即使从来不知道什么叫“郁金香泡沫”，那么“蒜你狠”、“姜你军”、“豆你玩”、“苹什么”这些跟日常生活息息相关的事件不应该没有经历过。深圳的贷款炒楼族看到如此的成交数据，心里必定无法平静。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_1.jpg)
+
+
+
+如果说老百姓永远都是温水里的青蛙的话，那么大资本对如此的市场的信息是异常敏感的。推特大V零对冲，就及时发出了9月深圳二手房同比暴跌80%至1,765套，首创12年新低的推文。俗话说，字数越少，问题越大。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_2.jpg)
+
+
+
+回看中国证券报9月份的新闻报道，深圳二手房成交，创十年新低，也就时隔1个月而已。殊不知，“没有最低只有更低”，一语成谶！
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_3.jpg)
+
+
+
+广东省政府在自己的官网上转载了南方日报8月份的新闻，深圳7月份二手住宅迎4连跌，并创17个月新低，不曾想，俩月以后，深二手房成交竟然从17个月新低一下子跌到了12年新低，恐怕是太多人始料不及的事情！
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_4.jpg)
+
+
+
+曾几何时，深圳，那个曾经被画圈的城市，成就了多少人的梦想？如今，其二手房成交暴跌，也只是全国楼市的一个缩影而已。据华尔街见闻10月1日报道，9月全国二手房成交“6连降”！
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005_5.jpg)
+
+
+
+至于10月份及接下来的成交数据，在笔者看来，已经不那么重要了，地产界的恒大暴雷、新力雪崩都只是表面现象而已，根本的原因在于CCP的一切都是假的，现有人口造假、出生人口造假，所谓的“市场经济”也只是CCP主导下的假象而已，全国楼市供大于求，是不争的事实。
+
+CCP这台破车在中华大地上碾压了百年之后，不仅完全失去了前进的动力，而且还在倒退的路上狂奔着。有多少老百姓没被CCP绑上楼市这个定时炸弹？其爆炸后的威力有多么恐怖笔者都不忍描述。同胞们，醒醒吧，楼市的崩溃只是一个开始，莫让CCP这台倒退的破车再碾伤甚至碾毙我们的儿女！
+
+参考资料：
+
+1. [9月深圳二手房成交量暴跌八成 12年来首次跌破2000套](http://finance.eastmoney.com/a/202110042129012043.html)
+2. [炸锅！深圳二手房逼近“1”时代，创十年新低](https://finance.sina.com.cn/chanjing/cyxw/2021-09-04/doc-iktzqtyt3974633.shtml)
+3. [深圳二手房交易四连跌 创近17个月新低](http://www.gd.gov.cn/gdywdt/dsdt/content/post_3451169.html)
+4. [9月全国二手房成交“6连降”、深杭厦等皆创年内新低](https://wallstreetcn.com/charts/41951098)
+
+
+（本文仅代表作者个人观点）
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+
+
+编辑/校对/发稿：武裝的羔羊
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

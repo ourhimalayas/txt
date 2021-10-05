@@ -2,31 +2,19 @@
 ---
 
 
-## 曾家产业&#8221;花样年地产&#8221; 债务预期陷困局
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574834/)
+## 封城和强制接种
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1574879/)
 
-栏目记者/责任编辑：新世界的一员
+撰稿：文雨
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture3-1.jpg)
 
+图片来自 网络
 
+今天一早维州公布的病例数让人跌了眼镜，昨天刚刚创下了全球封城最长城市245天马拉松式的记录，今天1763例，也创了这座城市感染病例有史以来的新高。封城和高达82.9%的疫苗接种率，并没有给这座澳大利最适宜居住地以安全，相反今天又宣布该州的部分地区又回到封城状态。这双高的记录，也在告诉人们仅靠疫苗和封城，根本无法解决这大流行问题，只有追根溯源，找出流行的起源；其二，找到并发布治病的解药。只有这两条才能让城市，让世界，让人们重回正常的生活。而这二点，郭先生早就通过GTV警示了世界：疫苗没用，中共有解药！
 
-继恒大地产危机爆雷，墙内著名地产大鳄”花样年” 也在10月4日因未能偿还到期的2亿美元债务而陷入困境。消息公布后，”花样年”地产的美元计价债券跌至5美分，创历史最低记录。信贷评级机构惠誉国际，本周一也将”花样年”的评级大幅下调了四级。这是中共经济支柱房地产行业陷入困境的又一迹象。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005AM1、2、3-视频备用.003.jpeg)
-“花样年”集团公司是总部位于深圳的大陆地产开发商，公司注册地设于开曼群岛，1996年由中共前国家副主席”铁帽子王”曾庆红的侄女曾宝宝创立，2009年香港上市，其地产开发业务重点布局华东都市圈、环渤海都市圈等核心一二线城市，以及粤港澳大湾区。
-(本文仅代表作者观点)
+今天村里的另一条消息是强制医务人员接种第一剂疫苗的最后期限确定为10月29日。发布会上提到已经接种的医务人员已达80%。数字和日期是冷冰冰的，听上去也是有点悲哀，不知道这剩余的20%会做怎样的决定，是选择留下还是离开？村里的医疗本来就短缺，今后如何应对？除了医疗，下一个强制接种会是哪个行业？这场疫苗引发的对人群的分类，还会有什么影响？这些问题的答案目前对我来说无解的，只能等待时间来回答，只是希望通过每天G系列平台的宣传，能让这代价少付点，对人们的伤害少一点。
 
-参考链接：[中国地产商花样年未能偿还2.06亿美元到期债务 其美元债券急跌至纪录低位](https://cn.reuters.com/article/fantasia-bonds-unpaid1004-mon-idCNKBS2GV01N)
+文章仅代表作者本人观点,与GNews无关
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

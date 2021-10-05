@@ -2,46 +2,87 @@
 ---
 
 
-## 联邦机构称其雇员需在下月完成拜登的疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1574679/)
+## 中共最赚钱的几大部门
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1574735/)
 
-- 编译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2407.png)
+[https://gtv.org/video/id=615bca35d2e2b81748715b75](https://gtv.org/video/id=615bca35d2e2b81748715b75)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/JOE-BIDEN-2-e1631502366609-1200x633-1.jpg)2021年9月9日，美国总统乔-拜登在白宫国宴厅发表关于防治COVID-19大流行病的讲话。(Kevin Dietsch/Getty Images)
-在联邦人事管理办公室（OPM）主任基兰·阿胡贾(Kiran Ahuja)于10月1日发布的一份备忘录中，OPM建议联邦工作人员不要等到最后一刻才接种疫苗，因为”其他事件往往干扰了即使是精心安排的计划”。
+郭文贵
+Miles Guo
 
-阿胡贾说：”拒绝接种疫苗或提供疫苗接种证明的雇员将受到纪律处分，甚至包括被免职或终止联邦服务。唯一的例外是根据既定机构程序获得法律规定例外的个人。”
+共产党一个发改委的能源局局长想弄100亿
+The head of the Energy Bureau of the Development and Reform Commission of the Communist Party wants to get 10 billion dollars
 
-他写道，拜登的行政命令的指导意见指出，联邦雇员需要在11月8日之前完全接种这三种疫苗中的任何一种。
+就像你们现在赚个1千块钱那么简单，张宏伟跟能源局副局长吃一顿饭
+It’s as simple as you earn 1,000 dollars now, Zhang Hongwei had a meal with the deputy director of the Bureau of Energy
 
-根据该备忘录，对于辉瑞公司的接受者，联邦工作人员应该”在第一次接种后3周（21天）进行第二次接种”，这”意味着为了让联邦雇员满足11月22日的最后期限，他们应该不迟于10月18日接种第一次疫苗，不迟于11月8日接种第二针”。
+当天晚上张宏伟在香港，把那个江诗丹顿的所有的收藏版的表买过去
+at that night Zhang Hongwei was in Hong Kong, he bought all the collector’s edition watches of Vacheron Constantin
 
-阿胡贾说，接受莫德纳的人应该在10月11日之前接种他们的第一针，在11月8日之前接种第二针。
+当时拿过去的时候是拿了两亿美元的支票放在那儿押着
+He took a 200 million U.S. dollars check and put it in the store
 
-备忘录说：”由于强生疫苗只有一针，联邦雇员必须在11月8日之前获得该剂量，以便在2021年11月22日的最后期限之前完全接种疫苗。”
+如果是我都买了，我们用支票，不买了就（把表）送回去
+If I wanted them, then just cashed the check otherwise I would send the watches back
 
-9月9日，拜登宣布了针对联邦政府、医疗保健部门和私营企业的全面措施。与此同时，一些由美国共和党领导的州和联邦工作人员对拜登政府提起诉讼，认为他的授权相当于联邦的过度扩张。
+结果拿过去一块也没拿回来，两亿支票兑现
+Then they didn’t send any single watch back, the check was cashed
 
-大约两周前，一些联邦雇员对拜登提起诉讼，认为他的行政命令不公平地影响了那些有基督教信仰的人。
+全都是江诗丹顿特别版，能源局局长喜欢表
+all the watches are Vacheron Constantin special editions, the Director of the Energy Bureau likes watches
 
-原告之一，美国外交部官员丹尼尔·杰克逊(Daniel Jackson)，他的信仰”也指示他，接种疫苗原则上不是道德上的义务，因此必须是自愿的，”原告的律师在诉讼中辩称。他们认为，”有一种普遍的道德责任，即拒绝使用利用直接堕胎所得人类细胞系生产的医疗产品，包括某些疫苗”。
+记住我今天郭文贵说的话，
+Remember what I, Guo Wengui said today
 
-该诉讼还认为，另一名原告美国特勤局特工莱昂内尔·克莱因(Lionel Klein)已经感染了COVID-19，并有足够的抗体来抵御未来的病毒感染。因此，律师认为他不需要接种疫苗。
+如果这个能源局的局长，发改委副主任被抓
+If this director of the Energy Bureau and the deputy director of the Development and Reform Commission was arrested
 
-COVID-19是由CCP（中国共产党）病毒引起的疾病。
+他家的表最起码在3千-4千块之间，而且都是世界上最顶级的
+His watches are at least between 3,000 and 4,000 pieces, and they are all the top class in the world
 
-**评论：**
+3千多块，没有一块低于10万美元的，算算多少钱
+All these 3,000 pieces, each of them was not below $100,000 dollars, how much were them totally?
 
-**从各国政府应对这次中共病毒疫情来看，政府部门的官僚作风暴露无遗，包括美国政府机构。几乎没有官员质疑疫苗是否真的有必要，疫苗是否真的对预防中共病毒有效。整个政府像一台僵化陈旧的老巴士，载着一车沉睡的人，慢慢朝着悬崖边开去。我们新中国联邦要不断呐喊，叫醒沉睡的人，带领他们跳车逃生。我们不求回报，因为我们信仰正道主义，拯救更多人类同胞是我们的使命。**
+这是发改委有多牛，你知道吗？发改委是你们不知道的，
+This is how powerful the National Development and Reform Commission is, do you know? You don’t know anything about the Development and Reform Commission
 
-（文章仅代表作者观点，与GNEWS无关）
+中国发改委，财政部，中纪委这是捞大钱的
+China Development and Reform Commission, Ministry of Finance, Central Commission for Discipline Inspection are all big money grubbers
 
-**新闻来源：**[大纪元时报](https://www.theepochtimes.com/federal-agency-bidens-vaccine-mandate-for-federal-workers-can-be-enforced-next-month_4029386.html) (THE EPOCH TIMES) | 作者：Jack Phillips|发布时间：2021年10月3日
+然后是银监会，保监会，证监会这几个会，这是真的赚钱的呀
+Then there are the China Banking Regulatory Commission, the China Insurance Regulatory Commission, and the China Securities Regulatory Commission, they are really profitable commissions
 
-* * *
+其他的都是另外一回事，房地产谁控制的，银监会和保监会控制，这几个会控制呢
+Everything else is another matter, which commission controls the real estate,
+is controlled by the China Banking Regulatory Commission and the China Insurance Regulatory Commission, these commissions control it
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+所以说兄弟姐妹们这次大停电，是国内政治经济利益大较量的结果
+Therefore, brothers and sisters, the blackout is the result of a great contest of domestic political and economic interests
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)
+习家说这不关我的事儿，老子我得要政治利益，我得要政治面子，再个也没钱
+Xi’s family said that it’s nothing to do with me, I have to have political benefits and looking good politically, and also there is no money
+
+所有的人都认为老百姓没电，像那在高空中头朝下的
+Everyone thinks that the common people have no electricity, like some one is working headed down high in the sky
+
+还有在那个东北医院里边正在做手术呢，吧唧停电了，完了
+also there was an operation in that Northeast Hospital, right? The power went out, it’s over
+
+—————————————————————
+Date:10/03/2021
+原视频标题:中共最赚钱的几大部门
+The most profitable departments of the CCP
+原视频日期：2021/09/29
+原视频链接:[https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24](https://twitter.com/se1y7cblljselva/status/1443968045873987597?s=24)
+任务编号：KC145（2407）
+视频时间段 : 0:00-1:52
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)

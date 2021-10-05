@@ -2,31 +2,18 @@
 ---
 
 
-## 国殇日维稳，中共拘捕关押新疆少数民族
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574843/)
+## 限电缺煤？所谓的一盘大棋
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574910/)
 
-栏目记者/责任编辑：在远方
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-总部设在德国的世界维吾尔代表大会发言人迪里夏提宣称，在十一国殇日期间，新疆和田地区有至少170名维吾尔人被强制性拘押，罪名是“ 有抵触情绪，消极对待国庆升旗活动”。哈萨克人权组织创办人赛尔克坚也称，中共新疆伊犁哈萨克自治州当局于十一前大规模逮捕了一批当地的哈萨克族民众，警方称此举为“国庆维稳措施”。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005AM1、2、3-视频备用.005.jpeg)
-中共在新疆的人权暴行已被越来越多的国家认定为种族灭绝和反人类罪，但这些依然在迫害新疆各族人民的罪行表明，中共显然有恃无恐，绝不会停止作恶！新疆当地少数民族和穆斯林群体依然生活在恐惧之中。
-(本文仅代表作者观点)
-
-参考链接：[新疆和田逾百维吾尔族被扣查 罪名 : 消极对待国庆](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/ql2-10042021070504.html)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-86-2.png)
+10月5日中国新闻网从浙江省国资委获悉浙江省能源集团发布消息称，10月4日，在浙能舟山六横煤炭中转码头，卸煤机正在卸装从哈萨克斯坦进口的电煤，这是浙江省首次向哈萨克斯坦采购煤炭，为当前紧缺电煤的浙江省带来了“及时雨”。该煤炭是浙能集团所属富兴燃料公司于10月2日采购到六横煤炭中转码头的，通过MV CARO号（卡罗）船舶在海上运输8501海里（约15700公里），历时30天，装载13.6万吨的高热值（6000大卡）优质煤炭。
+ 有众多疑问没有从仅有的报道中给出答案，中哈两国是邻国，最直观的路线是陆路，却要难为哈萨克这一内陆国走海运？哈萨克斯坦一个全世界离任何海洋都最远的内陆国，出口煤炭怎么走的海运？先从里海走顿河和伏尔加河的列宁运河，然后到黑海走苏伊士运河红海印度洋过马六甲海峡经过南海诸岛台湾海峡，最后到浙江，黑海的顿河运河只有5000吨的船可以通行，这13.6万吨的船怎么开出来？种种疑问不得而知。
+ 一吨煤3500度电，13.6万吨5亿度电不到，浙江上半年平均一天要用14亿度电，杯水车薪，中共国在南极建立的中山站，与北京的距离约有12000公里，在南极建立的长城站，距北京约有17000公里，大概距离在北京一一南极中山站和长城站之间。
+ 一个产煤大国绕了半个地球运了本该最便宜的物资回来，只有中共国独裁政权可以如此劳民伤财的操作，所谓的下一盘大棋，就是缺煤和外汇而已。
+ 消息来源:
+ [浙江首次采购的13.6万吨哈萨克斯坦优质煤炭运抵舟山](//mo.mbd.baidu.com/r/uf2FuJIjAc?f=cp&amp;rs=1144069997&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=33c28eaa3fd49090)
+免责声明：文章仅代表作者本人观点，与GNEWS无关
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-6.png)

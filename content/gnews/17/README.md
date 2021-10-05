@@ -2,20 +2,40 @@
 ---
 
 
-## 秘翻在线 :全球船运供应链危机将持续到 2023 年
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574981/)
+## 土耳其：先天畸形婴儿诞生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574994/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg-1.png)
-图片来源：flashglobal
+栏目记者/责任编辑：新世界的一员
 
-根据《零对冲》(Zero Hedge) 的报导,中东最大的港口运营商之一，迪拜 DP World 董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆(Sultan Ahmed Bin Sulayem)10月1日在 2020 年迪拜世博会上接受彭博电视台的采访，认为全球供应链危机将持续到 2023 年，而物资短缺及延误的运送将导致船运的集装箱费率持续飙升。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-全球最大的航运公司 A.P. Moller-Maersk 最近警告，船运瓶颈可能会持续比预期更长的时间，一些托运公司已承诺限制即期运费。DHL 和 UPS 警告说，供应链混乱不仅持续到明年，影响可能更加久远。
 
-前 PIMCO 首席执行官兼安联首席经济顾问穆罕默德·埃里安 (Mohamed El-Erian) 警告说，船运供应的困境会持续一到两年。这些困扰促使生产商品价格继续飙升，最终造成消费者更大的负担。
 
-尽管全球央行行长一直宣称通胀只是暂时的，并认为供应链瓶颈所导致的通货膨胀可以解决，但这些央行官员却未能提供任何解决的时间表。
+土耳其 Beyaz TV新闻报道：目前已发现多个先天畸形婴儿病例。
 
-新闻来源：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](http://&quot;Global%20Supply%20Chain%20Crisis%20To%20Last%20Until%202023,&quot;%20Says%20Middle%20East's%20Largest%20Port%20Operator)
+视频中新福利党领导人：穆罕默德·埃尔巴坎（Muhammed Ali Fatih Erbakan）出示了患儿的照片：这些婴儿布满毛发，身体上生有多手、多脚，长有尾巴。这些婴儿的母亲在孕期都接种了辉瑞或者莫德纳的新冠病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p9.001.jpeg)
+郭先生直播爆料中多次强调，病毒哪里来都不知道，疫苗更危险绝对不能接打。全世界的新冠疫苗和病毒是子母弹，完全为疫苗经济，疫苗政治而设计和服务，更是共产党和背后的邪恶势力削减世界人口的恶毒的灭绝计划。只有人类的觉醒才能避免这一场大屠杀。新中国联邦一直对全世界人民大声呼吁，在GTV，在盖特和各大平台，传播病毒和疫苗真相，跟进解药信息。为了保护我们的孩子免受伤害和杀戮，为了人类的延续，停止疫苗就是停止灾难。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [Erbakan: Tek gözlü kuyruklu çocuklar doğdu!](https://www.youtube.com/watch?v=ywPmw2Y3QkE)
+2. [Fatih Erbakan durdurulamıyor: “Tek gözlü, kuyruklu, tüm vücudu kılla kaplı çocuklar doğdu!”](https://twitter.com/aykiricomtr/status/1438391881453473793?lang=en)
+3. [Fatih Erbakan ısrarcı: Tek gözlü, kuyruklu, tüm vücudu kılla kaplı çocuklar doğdu](https://tele1.com.tr/fatih-erbakan-israrci-tek-gozlu-kuyruklu-tum-vucudu-killa-kapli-cocuklar-dogdu-470297/)
+4. [Fatih Erbakan](https://en.wikipedia.org/wiki/Fatih_Erbakan)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

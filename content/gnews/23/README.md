@@ -2,9 +2,9 @@
 ---
 
 
-## 中共国会在某个时间点对台湾发起战争
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574920/)
+## 郭文贵曝光傅振华造假案陷害并逮捕他的家人和员工
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574926/)
 
-10/4/2021 台湾外长吴钊燮在ABC电视节目中说，中共国国内形势恶化，为了转移注意力，其对台战争很可能一触即发，而且近期中共军队在台湾附近的军事活动很频繁。
+7/3/2017 郭文贵先生曝光了傅振华如何造假案陷害他，并逮捕他的家人和员工。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

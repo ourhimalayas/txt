@@ -2,23 +2,37 @@
 ---
 
 
-## 秘翻在线：拜登政府将重新开启与中共国的贸易谈判
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574509/)
+## 美国大型社交媒体网站宕机，盖特正常运行
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1574642/)
 
-#### 撰稿：胡天
-![戴琪與拜登](https://ichef.bbci.co.uk/news/640/cpsprodpb/12B89/production/_120818667_gettyimages-1290751952.jpg)[图片来源](https://ichef.bbci.co.uk/news/640/cpsprodpb/12B89/production/_120818667_gettyimages-1290751952.jpg)
-据《路透社》华盛顿站10月5日报道，在等待了八个月后，周一，美国总统乔·拜登(Joe Biden)的最高贸易代表戴琪承诺将对对华贸易进行”全面”的政策评估。承诺与中共国举行会谈，并重启对中国进口产品的关税排除程序。
+**撰稿：日本东京方舟农场 海星**
 
-“她将重新与中国接触，这是一件好事，”雪城大学(Syracuse University)贸易经济学家玛丽·弗里(Mary Lovely)说，接下来会发生什么“取决于对话如何进行”。
+10月5日，美国大型社交媒体网站Facebook、Messenger、Instagram、即时通讯软件WhatsApp等出现大规模宕机。
 
-“两党对我们与中国的经济关系的方向有强烈的担忧，”斯蒂芬·沃恩(Stephen Vaughn)，川普政府的前美国贸易代表办公室高级官员说。 戴琪批评北京，指责中国共产党政府继续“按照国家意志塑造经济，损害美国和世界各地工人的利益”。
+据报道，监测网络状况的网站DownDetector显示，大量用户报告称Twitter、T-Mobile 、AT&T、亚马逊云服务和谷歌服务均出现问题。除此之外，Facebook、Messenger、Instagram和WhatsApp等Facebook旗下应用均出现故障。
 
-尽管美国对中国进口商品征收了价值数十亿美元的关税，三年多来沉重打击了这些出口企业，它们希望了解哪些产品可能获得关税减免的细节，但周一的讲话让它们担忧，戴可能会发起新的关税行动。
+尤其是扎克伯格的Facebook全网宕机，连内网都废了。据了解，Facebook网页上的错误消息表明存在域名系统 (DNS) 错误，并有Facebook员工披露，由于无法使用门禁卡，一度不能进入办公大楼评估网络故障。
 
-美中贸易全国委员会(US-China Business Council)表示，关税恐怕有可能成为永久性的。美国国家对外贸易委员会(National Foreign Trade Council)呼吁建立一个”强有力的”关税排他程序，为受到美中贸易战打击的企业提供一些缓解。美国零售联合会高级副会长大卫•弗伦奇表示:“我们对今天的声明期待已久，但事实证明，拜登政府对中国的贸易战略平淡无奇，这将进一步对美国经济和零售供应链造成不必要的损害。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/9a5b2e9a705b0aa0610da0f067a9e79f_500x0.jpg)图片来自于网络
 
-戴琪表示，她不会推行川普的“第二阶段”谈判计划，理由是“不愿”使用川普政府的标签。在2017年之前的十多年时间里，美国一直寻求与中共定期进行高层经济对话，但北京的政策几乎没有变化。川普政府的第一阶段协议被誉为一项突破，但北京从未履行承诺，购买美国商品。
+目前，Facebook等社交媒体已逐步恢复运行，但此次时长近7小时的宕机，成为脸书最严重的一次网络访问事故，影响到全球数十个国家和地区用户。而在此期间，社交媒体盖特一直正常运行，成为全球各地用户的唯一发声渠道。
 
-无论表面多么声色俱厉，但实质是，川普时期与中共的“脱钩”计划在逐渐消解，中共在川普时期被逼到墙角的困境正在被拜登一点点拓展。
+对此，盖特总裁杰森·米勒在盖特上表示，盖特不仅在思想上提倡言论自由，在技术上也非常卓越，优于各类大型社交媒体。因此，它成为了有史以来增长最快的社交媒体平台，并仍在不断发展壮大。
 
-原文链接 [New U.S. China trade plan leaves industry hungry for specifics | Reuters](https://www.reuters.com/business/new-us-china-trade-plan-leaves-industry-hungry-specifics-2021-10-05/)
+他强调，“是时候对大型社交媒体的删除行为说再见了！”
+
+*注：本文仅代表作者观点，与 Gnews无关*
+
+*参考链接：*
+
+[Facebook谷歌亚马逊等网站出现大面积宕机](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9705326.shtml)
+
+[JUST IN – Facebook employees reportedly can’t enter buildings to evaluate the Internet outage because their door access badges weren’t working (NYT)](https://gettr.com/post/pd575oe897)
+
+[Facebook史上最严重宕机 全网宕机近七小时高管赴推特道歉](https://finance.sina.com.cn/tech/2021-10-05/doc-iktzqtyt9719527.shtml)
+
+[While Big Tech imploded, GETTROfficial was still going strong!](https://gettr.com/post/pd6masf06a)
+
+* * *
+
+*编辑：文顺 校对：Ranting 发布：Ranting*

@@ -2,39 +2,36 @@
 ---
 
 
-## 【速报】日本民族的第12个诺贝尔物理学奖诞生
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1575012/)
+## 辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575069/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005-QXL-1-L.jpg)[图片来源](https://cn.nikkei.com/images/2021/10/1005/1005-QXL-1-L.jpg)
-日本TBS 10月5日消息：今年的诺贝尔物理学奖颁给了美国普林斯顿大学的高级研究员真锅淑郎（90岁）。
+栏目记者/责任编辑：Yousei
 
-真锅博士是全球变暖研究领域的先驱，他在20世纪50年代末来到美国，开创了使用计算机分析气候变化的先河。随后，他领导世界研究了二氧化碳浓度上升对大气和海洋的影响，为现代全球变暖的预测搭建立了框架。这是继2015年梶田隆章之后第12个获得诺贝尔物理学奖的日本人。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1958年在东京大学完成研究生学业后，真锅先生成为美国国家海洋和大气管理局（当时称为气象局）的一名研究员。之后，于1997年归国，加入当时的科学技术局的全球变暖研究小组。2001年再度回到美国，目前是普林斯顿大学的高级研究员，已经加入美国国籍。
+在卧底项目“真相工程”发布的秘密镜头中，为辉瑞公司工作的科学家尼克·卡尔（Nicholas Karl）表示，在对抗新冠病毒方面，接种其疫苗远不如人体产生的天然抗体。天然抗体可以攻击整个病毒，而不是特定的单个病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1005-AM（9、10）.003.jpeg)
+同时在场的还有另外两名为辉瑞公司工作的科学家：拉胡尔（Rahul Hhandke）陈述道，感染康复后机体会产生天然抗体，即中和抗体（NAb）抵御病毒，但现在人们被灌输的是接种新冠病毒疫苗更安全的错误信息。另一位高级科学家克里斯（Chris Croce）称自己在为邪恶的公司工作，接种疫苗的人仍然生病，这与新的病毒变体Delta无关 。视频曝光后，尼克已将自己的领英资料全部删除。
 
-真锅先生的出生地是爱媛县四国町市。其大概简历如下：
+包括中共在内的世界邪恶势力，垄断了几乎所有的科学机构和媒体平台，真相被刻意掩盖，造成大量疫苗受害者的涌现。”真相工程”记录节目推出以来，得到了全网爆炸性的轰动和关注。如同爆料革命传播真相所产生的蝴蝶效应一般，相信会有更多有良知的人们站出来寻求真相，一起加入到正道主义的行列中。
+(本文仅代表作者观点)
 
-1953年，毕业于东京大学理学院。
+参考链接：
 
-1958年，在东京大学完成了研究生课程，并获得了理学博士学位。
+1. [BREAKING – Pfizer Scientist says he works for “an evil corporation” as he is caught on film stating natural antibodies are “much better than the Pfizer Covid-19 Vaccine”](https://theexpose.uk/2021/10/05/pfizer-scientist-caught-on-film-stating-natural-antibodies-are-much-better-than-the-pfizer-covid-19-vaccine/)
+2. [BREAKING: @Pfizer Scientists: ‘Your \[COVID\] Antibodies are Probably Better than the \[Pfizer\] Vaccination’](https://twitter.com/EricSpracklen/status/1445176916080660482?s=20)
+3. [PFIZER SCIENTIST NICK KARL DELETES Linkedin PROFILE](https://ifunny.co/picture/pfizer-scientist-nick-karl-deletes-linked-profile-before-om-nicholas-sONfvgny8?s=cl)
 
-1958～1963年，是美国气象局一般环流研究部门的研究员。
 
-1963年～1997年，在美国国家海洋和大气管理局地球物理流体动力学实验室担任高级研究员。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-1968年～1997年，是普林斯顿大学大气和海洋科学项目的客座教授。
+终审：暗黑
+校正/发稿：我不在这里
 
-1983年，受聘东京大学特聘教授。
-
-1997年～2001年，在日本国家宇宙开发厅（NASDA）和日本海洋科学技术中心（JAMSTEC）担任前沿研究系统全球变暖预测研究领域主任。
-
-2008年～2009年，受聘名古屋大学特聘教授。
-
-[信息源](https://news.yahoo.co.jp/articles/6a5403079b6cad7e92ce3d11867abaff31efc141)
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 知了知了*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

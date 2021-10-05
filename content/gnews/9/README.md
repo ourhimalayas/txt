@@ -2,49 +2,34 @@
 ---
 
 
-## KuCoin交易所的中国大陆用户被迫在2021年底前关闭其账户
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575083/)
+## 美中贸易政策揭晓，寻求对话但保持施压中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575108/)
 
-评论：
+栏目记者/责任编辑：七哩香
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-88.png)
+10月4日，美国贸易代表戴琪在华盛顿发表对中共国贸易政策讲话时表示，中方未能全面履行与川普政府达成的美中“第一阶段贸易协议”内容，美方将不排除采取单方面贸易措施，包括启动“301条款调查”和加征新的关税。此外，美方不打算与中国展开所谓“第二阶段贸易谈判”。
 
-***KuCoin 是全球知名的加密货币交易所，支持多种数字加密货币交易。 KuCoin 总部位于新加坡，在中国、泰国、菲律宾和保加利亚均设有办事处，目前支持超过350种交易对。郭文贵先生在10月3日直播中提到中共国央行已经着手开始与各国政府发函，要求政府管辖内的交易所禁止中共国居民投资、购买数字货币。但压迫意味着反抗，会有越来越多的人夺门而出，争先恐后购买数字货币。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-3.jpeg)
 
-据《cryptopotato》记者Jordan Lyanchev ，2021年10月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2413.png)图片来源：cryptopotato
-中共国对加密货币行业的最新禁令又带来了另一个受害者——这一次，它是流行的交易所 KuCoin。
+截至目前，中共今年对美国的采购目标仅完成了62%。 戴琪称，通过几个月的全面评估，中方从来没有改变其非市场贸易行为，且近年来更加强调以维护中共统治为核心的经济体系。
 
-该交易所今天早些时候表示，KuCoin 的中国大陆用户将不得不在年底前提取所有资金并关闭账户。 这是中国人民银行最近对加密货币行业打压行动的直接后果。
+彼得森国际经济研究所高级研究员加里·哈夫鲍尔表示，戴琪讲话所展示出的对华贸易政策，比预期的更为强硬，拜登政府七个多月的对华贸易政策评估得出的结论是，更多的谈判无法使中方改变做法。
 
-- 由于来自中共当局的监管压力，KuCoin在10月3日早些时候宣布，所有本地用户必须在2021年12月31日24:00 (UTC +8)之前结清现有头寸，并将剩余资金撤出交易所。
+但戴琪也表示，拜登政府并不寻求激化与中方的贸易紧张关系，并在阐述拜登政府对华贸易政策目标时使用了“持久的共存”这一新的说法。
 
+(本文仅代表作者观点)
 
-- 更准确地说，该公司将这一决定归咎于中共政府最近发起的打压行动。
+参考链接：[对华贸易政策揭晓 戴琪：寻求对话 但保持对北京施压](https://www.voachinese.com/a/katherine-tai-china-trade-20211004/6256872.html)
 
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-- 正如 9 月下旬报道的那样，中共国中央银行通过禁止所有本地运营组织与任何与加密货币行业相关的实体进行交易，加倍加大了其数字资产禁令的力度。
+终审：FoxRina
+校正/发稿：谐趣园
 
-
-- KuCoin表示，该公司已开始进行内部审查，以确定对其客户来说最方便的行动是什么。经过“仔细考虑”，该团队得出结论，离开中国是唯一的选择，这符合当地的规定。
-
-
-- 这是在最新禁令发布后不到两周内，宣布类似计划的第二家大型交易所。
-
-
-- 此前，火币表示将停止接受来自中国大陆的新用户。 不久之后，该公司的矿池转移了超过 40 亿美元的比特币，这似乎也是打击行动的直接影响。
-
-
-- 虽然集中式交易所正在关闭它们在中国的服务，但去中心化交易平台最近却蓬勃发展，其中dYdX就是从这个亚洲国家获得更多客户的最好例子。
-
-
-原文连接[https://cryptopotato.com/chinese-users-of-kucoin-have-until-december-31st-to-close-accounts/](https://cryptopotato.com/chinese-users-of-kucoin-have-until-december-31st-to-close-accounts/)
-
-文章点评仅代表个人观点
-
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

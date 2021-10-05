@@ -2,19 +2,31 @@
 ---
 
 
-## 秘翻在线：华为支付欲挑战微信阿里？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574802/)
+## 曾家产业&#8221;花样年地产&#8221; 债务预期陷困局
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574834/)
 
-**撰稿：Ping**
+栏目记者/责任编辑：新世界的一员
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-05-195830.jpg)
-据中国证券报报道，华为公司于2021年3月完成对深圳市讯联智付网络有限公司的并购，拿下了第三方支付牌照，为华为开通网络支付功能扫清障碍。自9月24日至10月10日，用户便可通过“华为钱包”扫码来支付华为开发者大会2021（Together）的门票，这意味着销售华为开发者大会门票选择华为支付是一次试水。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-华为支付的登场，对微信和阿里支付无疑是一个挑战，从另一个层面上讲，金融领域的竞争映射的也是中共党内政治的角逐。如郭文贵先生爆料所说，腾讯阿里这些公司的最终受益人和控制人都是江志成，是上海帮洗钱搜刮财富的一个手段。而华为是习家所控制的公司代表。
 
-今年国庆假期，中共国官场孙立军，傅振华落马刑拘。孙是江派的打手，傅是习派的杀手。双方绞杀各有损伤。中共国的体制本身就是绞肉机体制，官场的绞杀，就是争夺对财富和权力的控制。华为支付的试行，也是为习近平提出的人民币数字化做准备。华为支付系统的实施和不断成熟，可以帮助习完全监控中共国奴隶的钱去向的目的。
 
-总之，华为支付的登场，背后隐藏着是各派血腥的厮杀。但对于新中国联邦来说，江派与习派的绞杀越激烈，越有利于新中国联邦的灭共大业！
+继恒大地产危机爆雷，墙内著名地产大鳄”花样年” 也在10月4日因未能偿还到期的2亿美元债务而陷入困境。消息公布后，”花样年”地产的美元计价债券跌至5美分，创历史最低记录。信贷评级机构惠誉国际，本周一也将”花样年”的评级大幅下调了四级。这是中共经济支柱房地产行业陷入困境的又一迹象。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1005AM1、2、3-视频备用.003.jpeg)
+“花样年”集团公司是总部位于深圳的大陆地产开发商，公司注册地设于开曼群岛，1996年由中共前国家副主席”铁帽子王”曾庆红的侄女曾宝宝创立，2009年香港上市，其地产开发业务重点布局华东都市圈、环渤海都市圈等核心一二线城市，以及粤港澳大湾区。
+(本文仅代表作者观点)
 
-**[资料来源](https://www.chinapress.com.my/20211005/%E5%8D%8E%E4%B8%BA%E6%8B%93%E6%94%AF%E4%BB%98%E5%B8%82%E5%9C%BA-%E8%BF%8E%E6%88%98-%E8%85%BE%E8%AE%AF-%E9%98%BF%E9%87%8C/)**
+参考链接：[中国地产商花样年未能偿还2.06亿美元到期债务 其美元债券急跌至纪录低位](https://cn.reuters.com/article/fantasia-bonds-unpaid1004-mon-idCNKBS2GV01N)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

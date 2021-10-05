@@ -2,31 +2,30 @@
 ---
 
 
-## 辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575069/)
+## 法国重磅“中共影响力行动”报告，揭中共全球宣传部署
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575090/)
 
-栏目记者/责任编辑：Yousei
+栏目记者：修文   
+责任编辑: FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-87.png)
+法国半官方智库、国家军事学校战略研究所近日公布了一份近650页、历时两年完成的“（中共）影响力行动”调查报告，揭示中共近年来为扩展影响力而部署的全球网络，指出中共利用舆论、心理和法律企图收买、渗透与约束他国。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-9.jpeg)
 
-在卧底项目“真相工程”发布的秘密镜头中，为辉瑞公司工作的科学家尼克·卡尔（Nicholas Karl）表示，在对抗新冠病毒方面，接种其疫苗远不如人体产生的天然抗体。天然抗体可以攻击整个病毒，而不是特定的单个病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005-AM（9、10）.003.jpeg)
-同时在场的还有另外两名为辉瑞公司工作的科学家：拉胡尔（Rahul Hhandke）陈述道，感染康复后机体会产生天然抗体，即中和抗体（NAb）抵御病毒，但现在人们被灌输的是接种新冠病毒疫苗更安全的错误信息。另一位高级科学家克里斯（Chris Croce）称自己在为邪恶的公司工作，接种疫苗的人仍然生病，这与新的病毒变体Delta无关 。视频曝光后，尼克已将自己的领英资料全部删除。
+该报告由由情报专家、中国问题专家夏宏和政治学家、安全问题专家尚杰维尔梅共同撰写，从四个方面梳理了中共为扩展其影响力而进行的网络部署和发展轨迹，是迄今为止以法语发表的对中共宣传机器内容最全面的分析。
 
-包括中共在内的世界邪恶势力，垄断了几乎所有的科学机构和媒体平台，真相被刻意掩盖，造成大量疫苗受害者的涌现。”真相工程”记录节目推出以来，得到了全网爆炸性的轰动和关注。如同爆料革命传播真相所产生的蝴蝶效应一般，相信会有更多有良知的人们站出来寻求真相，一起加入到正道主义的行列中。
+报告第三部分详述了中共在海外部署影响力的行动方式，包括用正面叙事来博取外国民众好感，同时使用渗透和胁迫手段。中共在海外的影响力活动领域，已全面涉及外交、经济、政治、教育、智库、侨民、媒体等等，在影视作品和游戏领域的文化渗透和操纵，日益严重。所有行动都围绕着捍卫中共模式，吹嘘“中国传统”，彰显中国善行，建立中共霸权，妄图对世界进程施加影响，最终超越美国，并向世界强加中共自己的模式。
+
+最后，报告指出，当中共的影响力战略越来越具有攻击性，导致其国际形象严重恶化，它最大的敌人就是中共自己。
+
 (本文仅代表作者观点)
 
-参考链接：
-
-1. [BREAKING – Pfizer Scientist says he works for “an evil corporation” as he is caught on film stating natural antibodies are “much better than the Pfizer Covid-19 Vaccine”](https://theexpose.uk/2021/10/05/pfizer-scientist-caught-on-film-stating-natural-antibodies-are-much-better-than-the-pfizer-covid-19-vaccine/)
-2. [BREAKING: @Pfizer Scientists: ‘Your \[COVID\] Antibodies are Probably Better than the \[Pfizer\] Vaccination’](https://twitter.com/EricSpracklen/status/1445176916080660482?s=20)
-3. [PFIZER SCIENTIST NICK KARL DELETES Linkedin PROFILE](https://ifunny.co/picture/pfizer-scientist-nick-karl-deletes-linked-profile-before-om-nicholas-sONfvgny8?s=cl)
-
+参考链接：[法国重磅调查报告 揭示中共部署全球网络扩展其影响力](https://www.soundofhope.org/post/548463)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：暗黑
-校正/发稿：我不在这里
+终审：FoxRina
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
