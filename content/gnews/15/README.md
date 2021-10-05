@@ -2,47 +2,20 @@
 ---
 
 
-## 脸书旗下社交平台服务全部关闭 现代通讯艰难的一天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573907/)
+## 卖港贼董建华和梁振英潘多拉文件榜上有名
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1573976/)
 
-栏目记者/责任编辑：安吉拉
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-16.jpg)图片来源：RFA
+10月5日，据半岛电台和香港自由报社综合报道，在对数百万份被称为“潘多拉文件”的机密金融文件进行调查后发现，中共国只有一位曾任职河南省交通厅的女企业家冯琪雅上榜，报告称，她成立了一个离岸公司来交易美国股票。香港则有两名前特首上榜：董建华和梁振英。
 
+董建华及其家族成员，包括妻子董赵洪娉、长子董立均、幼子董立新、胞弟董建成、胞妹彭董小萍、侄女周董立茂及金昌玲等，于1999年至2019年分别担任至少72间离岸公司的股东或董事，其中24间与董建华家族的航运巨企“东方海外”业务有关。
 
+梁振英在担任香港特首期间被列为两家英属维尔京群岛公司的所有者，并因此受到香港反腐败机构的调查，但由于证据不足，司法部于2018年撤销了此案。但Stand News与国际调查记者联合会（ICIJ）合作，从名为“潘多拉文件”中发现了梁振英之前未披露的交易——他于2015年出售了国际物业服务公司DTZ子公司价值2.3亿港币的股票，而当时他正在接受反腐败监管机构对过去涉及DTZ的交易的调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+信息来源：
 
-
-
-今天对全球第一社交巨头扎克伯格来说非常艰难。Facebook, Instagram, WhatsApp, Oculus和Messenger所有的服务都被关闭了。而且奇怪的是，Facebook.com域名被列为出售对象。
-
-以上社交通讯软件都隶属于Facebook旗下，在今日美东时间上午11:40左右开始出现故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-5.jpg)
-WhatsApp在其推特账号上承认了这个问题，对造成的不便表示抱歉，并解释团队正在努力使服务恢复正常。截止到发稿时间，以上社交媒体仍停留在无法使用状态。Telegram的使用也出现了问题，用户反应收发信息延迟严重，有时在群组消息之间会突然出现色情图片。
-
-据悉，15亿客户的个人数据被从这些平台抽取出来，在暗网上以每一百万个名字五千美元的价格出售。用户ID、真实姓名、电子邮件、电话及地址都在待售之列。
-
-脸书每月有2.8亿活跃用户，Instagram全球用户已超过10亿，WhatsApp全球用户约22亿。而今天所发生的并不是一个普通的宕机，有人删除了大段的路由器指令，Facebook的整个域名解析服务器记录已经消失。从数据角度解释，Facebook已经消失了。
-
-Facebook的股票从9月7日开始呈下降趋势，今日开盘至今每股已下跌16.78美元，约5%。今日事件发生原因尚未明晰，市场对Facebook雄心勃勃的加密货币支付系统计划的期望也在急剧下跌。
-
-截稿时另一则最新消息，今天美国银行Bank of America的许多用户，报告其银行系统出问题，敦促用户检查自己的余额及明细账。截稿时问题仍未解决。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://insiderpaper.com/whatsapp-instagram-down/)
-2. [脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](https://twitter.com/Facebook/status/1445061804636479493?s=20)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+1. [Ex-Hong Kong leader CY Leung sold shares for HK$2.3 million during anti-corruption probe – report](https://hongkongfp.com/2021/10/04/ex-hong-kong-leader-cy-leung-sold-shares-for-hk2-3-million-during-anti-corruption-probe-report/)
+2. [Chinese politician in Pandora Papers looked to trade US stocks](https://www.aljazeera.com/economy/2021/10/4/chinese-politician-in-pandora-papers-looked-to-trade-us-stocks)
+3. [潘多拉文件曝光 香港前特首董建华家族涉72家离岸公司](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211003-%E6%BD%98%E5%A4%9A%E6%8B%89%E6%96%87%E4%BB%B6%E6%9B%9D%E5%85%89-%E9%A6%99%E6%B8%AF%E5%89%8D%E7%89%B9%E9%A6%96%E8%91%A3%E5%BB%BA%E5%8D%8E%E5%AE%B6%E6%97%8F%E6%B6%8972%E5%AE%B6%E7%A6%BB%E5%B2%B8%E5%85%AC%E5%8F%B8)

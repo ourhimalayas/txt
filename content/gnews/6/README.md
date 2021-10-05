@@ -2,34 +2,25 @@
 ---
 
 
-## 日本新首相岸田发布“新资本主义”经济政策
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574013/)
+## 对华贸易政策揭晓：寻求对话 但保持对北京施压
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1574132/)
 
-撰稿：东京樱花团/黑猫
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-79.png)
-日本新首相岸田文雄在10月4日记者招待会上宣布，将成立一个实现“新资本主义”的会议，为新冠病毒后时代制定经济和社会愿景以及相关具体政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-2.jpg)对华贸易政策揭晓：寻求对话 但保持对北京施压 网络图片
+美国贸易代表戴琪10月4日在华盛顿智库战略与国际研究中心发表讲话称，中共国没有全面履行与特朗普政府达成的美中“第一阶段贸易协议”，只完成了包括知识产权、强制技术转让，采购美国商品以及改善美国农产品和金融服务的市场准入。对美国的采购目标仅完成了62%。
 
-其政策主要项目如下:
+美方将保留未来对中共国使用单方面贸易措施的权力，包括启动“301条款调查”和加征新的关税来保持对北京履行贸易协议的压力。拜登政府七个多月对华贸易政策评估的结论是，更多的谈判无法使中共国改变做法，这表明美方不打算与中共国展开所谓的“第二阶段贸易谈判”。
 
-·加大投资先进科学和技术的研究与开发
+但拜登政府不想激化与中共国的贸易紧张关系。拜登政府将重新启动一个有针对性的“关税排除”程序，以达到“持久的共存”这一新的说法。美国将努力在不同的基础上与中共国“重新连接”，而不是“脱钩”。
 
-·通过 “数字乡村国家”项目弥合农村和城市之间的差距
+美国成衣及鞋业协会对拜登政府将延续对华商品关税表示失望。这种关税对美国消费者、美国工人和美国企业是有伤害的。美国贸易谈判代表戴琪对中共国贸易政策比预期的强硬，但拜登政府对中共的绥靖和妥协相比川普政府还是软弱。对待中共这种流氓体制，拳头远比语言有效。
 
-·经济安全保障
+新闻参考链接：[https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL](https://www.voachinese.com/amp/katherine-tai-china-trade-20211004/6256872.html#click=https://t.co/I7IvwAjxJL)
 
-·消除“人生百年时代”的焦虑感
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-·分配战略
 
-·纠正单一年度财政政策的负面影响
+编辑：【英国伦敦喜庄园编辑部】
 
-岸田首相强调说：”我们现在正处于与新冠病毒的斗争之中，需要采取坚定的经济措施来赢得公众的合作。”
-
-他又进一步表示：”在这之后，我们必须考虑与新冠病毒共存，尽可能恢复正常的社会经济生活，然后必须恢复经济，这就是我们新资本主义循环的次序。”
-
-信息来源：[https://news.yahoo.co.jp/articles/e54b4ce8bb5fea2eb6342248ada966436b074375](https://news.yahoo.co.jp/articles/e54b4ce8bb5fea2eb6342248ada966436b074375)
-
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,23 +2,19 @@
 ---
 
 
-## 北京机群侵扰台湾后，美英3艘航母举行联合军演
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1573825/)
+## 1.2万5G基站！海南计划三年实现全省室外广域覆盖
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1573884/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Unknown-1.jpg)北京机群侵扰台湾后，美英3艘航母举行联合军演 网络图片
-日本海上自卫队10月4号发布新闻稿，中共国军机在10日1日“国殇日“当天和第二天连续侵扰台湾，美国海军里根号航母、卡尔文森号航母、英国皇家海军伊丽莎白女王号航母以及日本、加拿大等共计6国17艘各式舰艇10月2号和3号在菲律宾海举行联合演习。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/10/v2-88ad37f11e7112e1f4e2bef52626d1b4_1440w.jpg)[图片来源](https://zhuanlan.zhihu.com/p/149468978)
+《海南省加快工业互联网创新发展三年行动计划(2021-2023年)》于近日印发。计划提出，2021至2023年力争新增部署5G基站数量1.2万个，基本实现全省室外广域覆盖;以海口、三亚为重点推进各市县5G、光纤宽带“双千兆”网络协同发展。推动5G行业专网落地，计划打造15个以上内网改造标杆工厂。
 
-演习结束当天，16架解放军军机再次侵扰台湾。10月4号，56架解放军军机再次扰台，是台湾国防部报告中共军机动态以来数量最多的一次。
+可以想象，在互联网防火墙还继续存在的话，中共发展5G不是为了通讯便利、降低成本和提高网速，而是为了继续维护中共独裁统治，更好地监控人民，让所有人的一举一动都无处遁形，老百姓毫无隐私可言。
 
-中共自1949年建政以来一直与台湾分离、分治，互不隶属。但北京一直声称拥有对台湾的领土主权，誓言即使动用武力也要实现大陆与台湾的统一。随着中共国经济和军力的增强，解放军对台湾的军事施压越来越严重。城门失火，殃及池鱼，邻国日本也加强了军事装备，联合其他友国举行军事演习，以防随时可能发生的战争。
+[信息来源](https://www.hainan.gov.cn/hainan/5309/202110/78d354ed265d409fa635e55648f31765.shtml)
 
-新闻参考链接：[https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html](https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html)
+（文章仅代表作者个人观点，与GNEWS无关）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*校对：东京樱花团 / 喜马拉雅的微尘*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

@@ -2,61 +2,30 @@
 ---
 
 
-## 贝莱德被新州主权基金解约只是冰山一角
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1573999/)
+## 请告诉全世界这个好消息：美国最高法院取消了全民接种疫苗计划
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1574127/)
 
-#### 翻译：奮鬥
-校对/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/wuhan.jpg-1.png)
-**图片来源：Pensions&Investments**
+翻译 ：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMG_1521-2.jpg)网络截图
+这是一条爆炸性的好消息。可是美国主流媒体静悄悄。据《The Best News Here》报道：
 
-**文章导读：**
+**美国最高法院裁定“Covid病原体疫苗”不是疫苗，不安全，必须不惜一切代价避免使用，最高法院取消了全民疫苗计划。**
 
-贝莱德（黑石）目前是全球最大的投资公司，也是盗国贼掏空中国人民财富的帮凶。黑石与中共深度勾兑，在所谓大中华新兴市场地区投资占比很高。9月3日媒体披露，为避免恒大暴雷，贝莱德伙同汇丰基金在数月前增持恒大债券，[华尔街出手相救，恒大回光返照？ – GNEWS](https://gnews.org/zh-hans/1549700/)当日恒大股价回光返照出现一次大幅上扬。然而，随着中共国庞氏骗局最终破灭，长期深耕中共国让其投资出现巨额亏损只是一个时间问题。
+请告诉全世界在美国，最高法院已经取消了全民疫苗接种！
 
-近日澳媒爆出，贝莱德在澳大利亚新南威尔士州主权财务基金管理经理人职位被解约，原因是其长期达不到承诺绩效指标，这里一定有大中华新兴市场不断暴雷的阴影。这次贝莱德被新州主权基金解约只是冰山一角，伴随中共国不断引爆各种经济核弹，与狼共舞的贝莱德注定是中共覆灭时的殉葬品。
+比尔-盖茨、美国首席传染病专家福奇和大药厂在美国最高法院的诉讼中败诉，他们未能证明他们过去32年的所有疫苗对公民的健康是安全的!
 
-**译文：**
+该诉讼是由参议员肯尼迪领导的一群科学家提起的。小罗伯特-F-肯尼迪：”应该不惜一切代价避免使用新的COVID疫苗。我紧急提请你们注意与下一次Covid-19疫苗接种有关的重要问题。在疫苗接种的历史上，最新一代的所谓mRNA疫苗第一次直接干扰了病人的遗传物质，因此改变了个人的遗传物质，这就是基因操纵，这在以前已经被禁止，并被认为是一种犯罪。
 
-世界上最大的投资公司贝莱德（黑石），其负责管理的澳大利亚新州政府150亿澳元投资基金因管理资金方面持续表现不佳，最近被新南威尔士州政府解约了。
+什么一直是疫苗？它一直是病原体本身–被杀死或减弱的微生物或病毒，也就是被削弱的微生物或病毒–并将其引入体内以产生抗体。甚至连冠状病毒疫苗也不是! 它根本就不是那样的! 它是最新的一组据称是mRNA（mRNA）的 “疫苗 “的一部分。一旦进入人体细胞，mRNA会对正常的RNA / DNA进行重新编程，开始制造另一种蛋白质。
 
-贝莱德是新南威尔士主权财富基金——世代基金(NGF)聘请的投资经理之一，负责投资对冲基金等“另类”资产。
+也就是说，与传统的疫苗没有关系! 也就是说，它是一个影响基因的工具。遗传生物武器! 也就是说，他们要从地球人身上消灭，而幸存者将成为转基因生物! 在史无前例的mRNA疫苗之后，被接种者将不再能够以额外的方式治疗疫苗的症状。
 
-根据媒体获得的文件，新南威尔士州财政部向州议会披露的信息显示，贝莱德因“持续表现不佳”而被“终止”作为NGF的备选经理（合作关系）。
+文贵先生在近期的直播中一直信心满满地告诉我们，强推疫苗一定会被各国政府终止，看来美国率先走出了黑暗。历史将铭记所有不遗余力阻止这场大灾难的英雄们，特别是文贵先生带领的爆料革命，传播病毒和疫苗真相，功不可没！
 
-“自基金成立以来，新州财政部金融机构（TCorp）已终止其管理人员的职务，”TCorp的声明在书面答复中表示。
+（本文纯属个人观点，与Gnews 无关）
 
-“经理投资业绩由TCorp的投资组合交付团队审查，该团队向（新州财政部）首席投资官报告。”
+[原文链接：](https://bestnewshere.com/breaking-news-the-supreme-court-in-the-us-has-ruled-that-the-covid-pathogen-is-not-a-vaccine-is-unsafe-and-must-be-avoided-at-all-costs-supreme-court-has-canceled-universal-vax/)
 
-TCorp对资产管理公司附加关键绩效指标（KPI），KPI是针对绩效目标、投资参数（包括限制）、违规通知、报告义务（包括报告交付时间）和权限而制定的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/11-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/22-1.png)
-图片来源：Financial Review
-
-“这些是根据投资策略制定的，并通过与管理人员谈判达成一致，参考行业标准、TCorp和客户需求。”
-
-总部位于纽约的贝莱德是世界上最大的投资公司，在全球管理着近10万亿美元（13.9万亿澳元）的资产。目前贝莱德仍受聘于新南威尔士州基金，担任澳大利亚股票、新兴市场股票和国际股票的经理。
-
-对此，贝莱德和TCorp以保密协议为由拒绝置评。
-
-新州世代基金于2018年底由新南威尔士州预算盈余的100亿澳元和西联（WestConnex）收费公路最初51%的销售收入作为种子资金。
-
-该基金已发展到超过150亿美元，自成立以来平均年回报率为9.4%，总利润约为28亿美元。截至6月30日，该基金约有38亿美元，即其投资组合的25%分配给了对冲基金等“另类”投资。
-
-TCorp告诉议会，由于“投资组合经理离职”，摩根大通不再作为新南威尔士州基金的替代投资经理。
-
-新州的预算深陷赤字，债务预计将跃升至1200亿澳元以上。
-
-新州财政部长多米尼克·佩罗特（Dominic Perrottet）在9月迈出了扭转债务资金的一步，宣布来自西联高速公路私有化的110亿澳元将在未来两年内用于偿还州债。
-
-佩特罗先生尚未宣布他是否会继续执行先前的计划，将每年的采矿特许权使用费收入和国有企业的红利（四年内价值100亿至200亿美元）转入世代基金。
-
-原文链接：[BlackRock ‘terminated’ by NSW Treasury fund (afr.com)](https://www.afr.com/policy/economy/blackrock-terminated-by-nsw-treasury-fund-20211001-p58wen)
-
-发布：小红帽
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://bestnewshere.com/breaking-news-the-supreme-court-in-the-us-has-ruled-that-the-covid-pathogen-is-not-a-vaccine-is-unsafe-and-must-be-avoided-at-all-costs-supreme-court-has-canceled-universal-vax/)[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
