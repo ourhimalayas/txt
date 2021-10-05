@@ -2,27 +2,43 @@
 ---
 
 
-## 疫苗灾情｜美国 16 岁少女接种疫苗后神经损伤
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1572298/)
+## 中共国的电力紧缩导致集装箱航运价格暴跌
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1571479/)
 
-**撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 4/10/2021**
+作者：纽约香草山农场 – 四季
 
-***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Sarah-Green.jpeg)
 
-【美国】北卡罗来纳州一名健康的 16 岁少女 Sarah Green 在接种第二剂辉瑞 COVID-19 疫苗后出现了神经系统问题。
 
-Sarah 5 月 4 日接种完第二针之后就感到剧烈的头痛，在随后的三个星期里面，她出现了面部抽搐、头部不受控的抽搐和严重偏头痛，并且症状随着时间的推移逐渐恶化。她的母亲 Marie Green将该事件贴在个人脸书上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Sarah-Green-1-1.jpeg)
 
-美媒《the defender》对他们一家人进行了采访，Sarah 和她的母亲说，他们感到无助，因为没有人会对 Sarah 的疫苗伤害负责。Sarsh的母亲表示“Sarah 在快餐店的前线打工，他们被强制接种疫苗，快餐店老板 Krispy Kreme 分发了十几个甜甜圈给这些孩子，让他们去打针。”
+据[零对冲](https://www.zerohedge.com/commodities/dip-shipping-rates-end-nightmare-or-just-eye-hurricane)10月2日报道，当即期海运集装箱运价今年已达到历史高点之际，本周从中共国到美国西海岸的40英尺集装箱价格下降，从15,000美元暴跌到只有8000美元。对于同一个集装箱，中共国到美国东海岸的现货价格从20,000美元下降到15,000美元左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1114-1.png)（图片来源：零对冲）
+*来自中共发改委，各地方新闻及彭博新能源财经的注释：如果地方官方新闻稿披露停电的主要原因是煤炭短缺或煤炭价格昂贵，则该省被标记为黑色，如果一个省只限制排放密集型产业的电力消耗，或指定其电力抑制的目的是为了达到能源强度目标，该省被标记为红色。同时面临本地短缺和可再生能源低产出的省份被标记为蓝色。*
 
-目前，Sarah 在神经科医生的指引下，进行肌肉协调性和力量方面的康复治疗。从最新的康复影片来看，Sarah 头部抽搐的症状仍然有好转，她表示会继续努力。
-Sarah正在积极治疗中
-来源｜[个案008](https://www.facebook.com/Littles-Fight-100182848984373)
+停电已经对企业产生了直接影响。世界上最大的iPhone组装商以及苹果和特斯拉的主要供应商富士康（Foxconn），本周早些时候已经停产，另一家苹果公司的供应商欣兴电子（Unimicron）也暂停运营。还有无数关于其他能源密集型企业暂停运营的报道。
 
-* * *
+显然，中共国的电力紧缩对经济增长产生了相当大的影响。电力短缺不仅影响民众的生活，同时造成对其制造业基地的冲击，使航运费率可能会因中共国经济的缓慢增长而停滞。
 
-他们的故事：[//英国 29 岁创意总监接种疫苗后瘫痪//](https://gnews.org/zh-hant/1568385/)｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](http://%E8%87%B4%E8%82%BA%E6%A0%93%E5%A1%9E%20https://gnews.org/zh-hant/1570229/)//
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 ****GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 ****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)

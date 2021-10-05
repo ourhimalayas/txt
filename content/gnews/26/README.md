@@ -2,42 +2,60 @@
 ---
 
 
-## 在首次报告COVID病例之前的2019年5月份，中共就大量订购了PCR检测订单
-` 象声` [轉載自GNews](https://gnews.org/zh-hans/1573644/)
+## 前国务卿迈克·蓬佩奥：我们必须一直与台湾站在一起
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1573724/)
 
-日经特约撰稿人加藤正哉2021年10月5日披露：根据美国、英国和澳大利亚研究人员的一份报告，在中共国湖北省首次正式报告新型冠状病毒病例前几个月，PCR检测试剂的采购量激增。
+前国务卿迈克·蓬佩奥： 我们必须一直与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 站在一起。 【转国家审查网报道：中国派出52架军用飞机进入台湾领空，这是有史以来最大规模的入侵】
 
-2019年，湖北在PCR检测上花费了约6,740万元人民币（按当前价格计算为1,050万美元），几乎是2018年总数的两倍，从5月开始呈上升趋势。这份由包括前情报官员在内的研究小组发布的报告基于一个网站的记录，该网站汇总了公共部门采购合同的投标信息。
 
-该报告进一步怀疑中共国关于病毒起源的官方立场，这一话题加剧了北京和华盛顿之间的紧张关系。
 
-PCR 或聚合酶链反应测试用于检测样本中特定基因序列的存在，它们的应用范围超出了COVID-19测试。但该报告称，这种不寻常的上升可能表明人们事先意识到一种新疾病，会在湖北省省会武汉市及其周边地区蔓延。
+> We must always stand with Taiwan. [https://t.co/IeRByrimhE](https://t.co/IeRByrimhE)
+> — Mike Pompeo (@mikepompeo) [October 4, 2021](https://twitter.com/mikepompeo/status/1445051979454197760?ref_src=twsrc%5Etfw)
 
-来自大学的订单翻了一番，来自中国疾病预防控制中心的订单增加了五倍，来自动物检测局的订单激增了十倍。从医院的采购量下降了10%以上。
 
-月度采购数据显示，5月份的订单激增，尤其是来自CDC采购商和中共人民解放军的订单。
 
-报告称：“我们认为，5月份支出的增加表明这是可能感染的最早开始日期。”
+众议员肯·巴克： 这位脸书 Facebook 吹哨人揭露了该平台的危险性。 没有真正的竞争和问责，脸书Facebook 永远不会改变。 【附吹哨人接受福克斯新闻采访视频】
 
-从7月到10月，采购量也大幅上升，尤其是来自武汉科技大学的采购量。该机构2019年PCR检测经费892万元，约为上年的8倍。
 
-报告称，该大学与当地医院和公共卫生当局一起，在应对新疾病的爆发方面发挥着直接作用。
 
-报告称，这些团体的参与提供了证据，表明“采购量的增加很可能与2019年湖北省 COVID-19 的出现有关”。“我们非常有信心地评估，大流行开始的时间比中国向 [世界卫生组织] 通报 COVID-19 的时间要早得多。”
+> This Facebook whistleblower has exposed just how dangerous the platform is. 
+> 
+> Without real competition and accountability, Facebook will never change. [https://t.co/HEWE7Fpgps](https://t.co/HEWE7Fpgps)
+> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445099090245734402?ref_src=twsrc%5Etfw)
 
-疫情爆发初期，中美两国就在这个问题上发生了争执。北京告诉世卫组织，首例有症状的病例记录于2019年12月8日。但美国的一些人声称，该病毒在此之前已在人类中传播，并声称它是从研究实验室泄漏的。
 
-东京多摩商学院客座教授 Akira Igata 表示，“我们不能仅凭”公共采购信息就确定，“但这是强有力的信息，可以证明存在意识在那个 12 月之前的几个月到半年，武汉周围爆发了病毒。”“这份报告可能为各国再次向中国施压提供信息，”Igata说。
 
-根据哈佛大学和其他机构的研究人员去年的一项研究，武汉医院停车场的卫星图像显示，从2019年8月开始，活动急剧增加。但美国情报机构8月的一份报告没有证实这种疾病是从动物宿主身上溢出还是从实验室泄漏。
+参议员瑞克·斯科特: 拜登政府没有具体计划对 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 就其不公平的贸易行为进行追责，这只会进一步扼杀全球供应链并伤害美国企业。[#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 不可信，拜登的不作为伤害了美国工人。 【转美贸易代表推文：希望你看到我概述拜登-哈里斯政府对美中贸易政策愿景的演讲。这里是准备好的演讲稿：(附链接)
 
-最新报告的作者之一大卫罗宾逊说：“没有分享来自中共国的关于COVID-19如何以及何时开始的可用数据。” “零透明度助长了许多假设、理论、错误信息以及受害者的心痛。”
 
-他补充说：“互联网2.0已经利用我们的技能尝试为世界提供一些可靠的数据，以应对这种大流行的影响，”他指的是发布该报告的网络安全公司。
 
-\*文章仅代表作者观点\*
+> The Biden admin has no concrete plan to hold Communist China accountable for its unfair trade practices that will only further its chokehold on the global supply chain & hurt American businesses. Communist China can’t be trusted & Biden’s failure to act hurts American workers. [https://t.co/R4KIg73Siq](https://t.co/R4KIg73Siq)
+> — Rick Scott (@SenRickScott) [October 4, 2021](https://twitter.com/SenRickScott/status/1445088300180590600?ref_src=twsrc%5Etfw)
 
-参考链接：
- https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-reported-COVID-case
 
-翻译&编辑：洛杉矶盘古农场–蓝精灵
+
+众议员肯·巴克： 通过允许这些公司成为垄断企业，我们给了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 竞争优势。 它现在必须做的就是控制这些公司需要的一项关键投入，他们将被迫关注 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的利益而不是美国的利益： 【转每日来电者报道：独家：保守派科技团体抨击前情报官员捍卫垄断，敦促通过反垄断法案】
+
+
+
+> By allowing these companies to become monopolies, we have given China a competitive advantage. All it must do now, is gain control over one key input these companies need and they will be forced to look out for Chinese interests over American interests: [https://t.co/ENiR39BAC7](https://t.co/ENiR39BAC7)
+> — Rep. Ken Buck (@RepKenBuck) [October 4, 2021](https://twitter.com/RepKenBuck/status/1445073531025436677?ref_src=twsrc%5Etfw)
+
+
+
+众议员史蒂夫·史卡利斯： 边境的非法移民： -不需要被迫检测 -不要求接种疫苗 美国公民： -入境时需要检测 -要保住工作就要接种疫苗 不可理喻的双重标准。 不要让民主党假装他们严肃对待“科学”。
+
+
+
+> For illegal immigrants at the border:
+> – No enforced testing
+> – No vaccine requirement
+> 
+> For American citizens:
+> – Test required to enter the country
+> – Vaccine required to keep their job
+> 
+> Outrageous double standard.
+> 
+> Don't let Democrats pretend they're serious about "the science."
+> — Steve Scalise (@SteveScalise) [October 4, 2021](https://twitter.com/SteveScalise/status/1445018539514019840?ref_src=twsrc%5Etfw)

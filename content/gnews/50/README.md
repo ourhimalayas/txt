@@ -2,25 +2,27 @@
 ---
 
 
-## 针下亡魂｜科索沃 23 岁女子接种疫苗48小时后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1572347/)
+## 疫苗灾情｜美国 16 岁少女接种疫苗后神经损伤
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1572298/)
 
 **撰文/ 台湾宝岛农场 天滅中共｜发布日期****/ 4/10/2021**
 
-***他们离开了这个世界，走的不明不白，留下悲痛、愤怒的亲友，无处发声。本栏目旨在留下一块地方，让他们告诉这个世界，“我曾经来过，但我不知道为什么走了”。希望有一天，公道会还他们一个真相。***
+***仿佛一夕之间，生命就被改写了，健康的身体被蒙上了阴影。本栏目旨在让这些被疫苗改写人生的人，有机会让这个世界知道，他们也曾经肆意的在阳光下奔跑过，疫苗是否会带走疫情尚未可知，但疫苗会带走健康就正在发生。***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Sarah-Green.jpeg)
 
-【科索沃】普利斯提纳一名 23 岁的女士 Zarife Imeri 在接种辉瑞 COVID-19 疫苗的 48 小时后死亡。Zarife 9 月 13 日注射第一针之后，就因极度不适而紧急住院，可惜，2日后因腹腔出血而死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Albania-vaccine-2.jpeg)
-Zarif 的祖父 Haxhi Xhemajli 细心挑选了孙女生前最美丽的照片，并在 Facebook 为她写下悼文，“不要再强迫我们，不要再限制我们。”
+【美国】北卡罗来纳州一名健康的 16 岁少女 Sarah Green 在接种第二剂辉瑞 COVID-19 疫苗后出现了神经系统问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Albania-vaccine.jpeg)
+Sarah 5 月 4 日接种完第二针之后就感到剧烈的头痛，在随后的三个星期里面，她出现了面部抽搐、头部不受控的抽搐和严重偏头痛，并且症状随着时间的推移逐渐恶化。她的母亲 Marie Green将该事件贴在个人脸书上。
 
-Haxhi 认为，他的孙女没有潜在的健康问题。普利斯提纳的检察官将此案定义为可疑死亡个案，目前已展开调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Sarah-Green-1-1.jpeg)
 
-来源｜ [个案009](https://sinjali.com/nisin-hetimet-per-vdekjen-e-23-vjecares-nga-drenasi/)
+美媒《the defender》对他们一家人进行了采访，Sarah 和她的母亲说，他们感到无助，因为没有人会对 Sarah 的疫苗伤害负责。Sarsh的母亲表示“Sarah 在快餐店的前线打工，他们被强制接种疫苗，快餐店老板 Krispy Kreme 分发了十几个甜甜圈给这些孩子，让他们去打针。”
+
+目前，Sarah 在神经科医生的指引下，进行肌肉协调性和力量方面的康复治疗。从最新的康复影片来看，Sarah 头部抽搐的症状仍然有好转，她表示会继续努力。
+Sarah正在积极治疗中
+来源｜[个案008](https://www.facebook.com/Littles-Fight-100182848984373)
 
 * * *
 
-他们的故事：[//泰国59岁教师接种疫苗10日后去世//](https://gnews.org/zh-hant/1568338/)｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hant/1568492/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hant/1570132/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hant/1570163/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hant/1572210/)//
+他们的故事：[//英国 29 岁创意总监接种疫苗后瘫痪//](https://gnews.org/zh-hant/1568385/)｜//[法国 32 岁铁人三项运动员接种疫苗后致肺栓塞](http://%E8%87%B4%E8%82%BA%E6%A0%93%E5%A1%9E%20https://gnews.org/zh-hant/1570229/)//

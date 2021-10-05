@@ -2,19 +2,35 @@
 ---
 
 
-## 1.2万5G基站！海南计划三年实现全省室外广域覆盖
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1573884/)
+## 新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1573910/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/10/v2-88ad37f11e7112e1f4e2bef52626d1b4_1440w.jpg)[图片来源](https://zhuanlan.zhihu.com/p/149468978)
-《海南省加快工业互联网创新发展三年行动计划(2021-2023年)》于近日印发。计划提出，2021至2023年力争新增部署5G基站数量1.2万个，基本实现全省室外广域覆盖;以海口、三亚为重点推进各市县5G、光纤宽带“双千兆”网络协同发展。推动5G行业专网落地，计划打造15个以上内网改造标杆工厂。
+栏目记者/责任编辑：文真
 
-可以想象，在互联网防火墙还继续存在的话，中共发展5G不是为了通讯便利、降低成本和提高网速，而是为了继续维护中共独裁统治，更好地监控人民，让所有人的一举一动都无处遁形，老百姓毫无隐私可言。
 
-[信息来源](https://www.hainan.gov.cn/hainan/5309/202110/78d354ed265d409fa635e55648f31765.shtml)
 
-（文章仅代表作者个人观点，与GNEWS无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
 
-*校对：东京樱花团 / 喜马拉雅的微尘*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+美联社报道，10月4日，新西兰政府终于肯承认现实——封锁措施不能完全消除中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4.jpg)
+此前，为达到“新冠零病例”的目的，新西兰的封锁政策已经实施了七周，奥克兰街道上抗议封锁的人群也在不断增加。他们批评政府反应过度，借疫情封锁剥夺人权和自由。封锁政策不但未能平息新冠疫情的复发，反而，给新西兰的经济中心和人口最多的城市——奥克兰，带来了巨大的经济压力。对此，新西兰总理阿德恩宣布一项谨慎的计划，以放松奥克兰的封锁限制，放弃了已经实施了18个月的中共病毒疫情指导性政策。
+
+（本文仅代表作者观点）
+
+参考链接：[新西兰政府放弃有争议的“新冠零病例”政策 放松疫情封锁措施](https://www.zerohedge.com/covid-19/new-zealand-finally-abandons-controversial-covid-zero-policy-promises-roll-back-lockdowns)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审编辑：Ryan
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)

@@ -2,13 +2,21 @@
 ---
 
 
-## 2021年10 月4 日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1573476/)
+## 鏖战初胜&#8211;加拿大暂停在学校强制接种中共病毒疫苗！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1573519/)
 
-撰稿：GTV澳喜影像视频组、新闻组
+- ![](https://assets.gnews.org/wp-content/uploads/2021/09/ym-edited.jpg)加拿大首席卫生官：谭咏诗
+图片来源：Thepostmillennial
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-11.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image1.jpg)
+加拿大知名自媒体《Thepostmillennial》10月3日刊文报道表示，加拿大特鲁多政府的首席卫生官，顶级医生谭咏诗（Theresa Tam）突然一改前态，对此前联邦卫生部门呼吁在中小学校强制接种COVID19疫苗的政策犹豫推迟，并出乎意料地表示：在所有学校强推接种之前，需要等待更多该疫苗的相关数据和医疗有效验证。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+为此，谭医生在渥太华告诉记者：“根据其他适用于儿童疫苗的接种经验，提出以上要求并出示该疫苗使用效果的证据对将被接种儿童的父母来说是一个非常重要的提醒，而且可以提高疫苗的接种率。如果各省选择这样做（收集分析儿童接种疫苗后的医疗数据），从记录和技术的角度来看，该步骤应该是比较容易执行的。
+
+该首席卫生官的以上言论，是在多伦多公共卫生局目前正计划将COVID19疫苗加入到安大略省中小学生必须接种的九种疾病疫苗名单中之后发表的，这些疾病包括腮腺炎、麻疹和破伤风等。
+
+值得公众注意的是，现在虽然有超过80%的加拿大人已经完全接种了COVID19疫苗，但是每天却仍有约4300名加拿大人持续感染该病毒，并导致约2200名病患正在医院接受治疗，其中包括700位高度感染者在重症监护室。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+[原文链接：](https://thepostmillennial.com/dr-tam-more-data-required-before-mandating-vaccines-in-schools)
