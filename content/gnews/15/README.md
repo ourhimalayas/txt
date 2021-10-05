@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年10月4日 文贵先生盖特 7
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575487/)
+## 2021年10月4日 文贵先生盖特 8
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575499/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-10/04/2021 Miles Guo’s GETTR: The CCP kleptocrats Fu Zhenghua, Meng Jianzhu, Wang Qishan, Sun Lijun, Zhou Liang, Dong Xiansheng, and others have framed, killed, and seized people’s legitimate properties in the name of law enforcement. The people working in the public security organs, procuratorates and courts have become a bunch of walking corpses. The “earthquake” in these three sectors has not yet started. After Meng Jianzhu’s case, all these kleptocrats will be punished. And we, the New Federal State of China, will take actions in accordance with international laws!
+10月5号：真的假的啊，吓死叔叔了。**😡😡😡👉👉👉**【In Jerusalem on October 5, other sectarian cases found that women and children gave birth to babies with hands, feet, tails, etc. after BioNTech or Moderna holidays. 10月5日土耳其，有多宗案例發現婦女接種了BioNTech或者Moderna疫苗後，產下的嬰兒有多手、脚、尾巴的婴儿，許多這樣案例】
 
-10/04/2021 文贵盖特: 中共盗国贼傅政华、孟建柱、王岐山、孙力军、周亮、董仚生等人借执法之名陷害、杀人、掠夺他人合法财产。公检法的人已变成行尸走肉，公检法的地震远远没有开始，孟建柱案后这些恶人都会受到最终的审判，我们新中国联邦会根据国际法律采取行动！
-
-[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd7jn5e245)
+[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd8pz1f784)
 
 **喜联盟Gnews编辑部**

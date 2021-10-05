@@ -15,86 +15,86 @@
 
 ---
 
-### [辉瑞科学家曝“天然抗体可能比接种疫苗更好”](/content/gnews/1/README.md)
- ` HimalayaRussia`
-
-### [五角大楼让文职雇员在11月初之前全面接种疫苗](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国代表批评中共国的贸易行为 不排除采取额外措施](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国国家卫生研究院院长柯林斯宣布年底下台](/content/gnews/4/README.md)
+### [文贵视角：分析共产党造成的排华原因](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [重磅——辉瑞公司被指控对孤儿进行试验，测试新冠疫苗](/content/gnews/5/README.md)
+### [辉瑞科学家曝“天然抗体可能比接种疫苗更好”](/content/gnews/2/README.md)
+ ` HimalayaRussia`
+
+### [五角大楼让文职雇员在11月初之前全面接种疫苗](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国代表批评中共国的贸易行为 不排除采取额外措施](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国国家卫生研究院院长柯林斯宣布年底下台](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [重磅——辉瑞公司被指控对孤儿进行试验，测试新冠疫苗](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国的PCR检测订单在第一例COVID确诊病例之前就已飙升](/content/gnews/6/README.md)
+### [中国的PCR检测订单在第一例COVID确诊病例之前就已飙升](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共可能会释放热病毒，并将一切归咎于冠状病毒](/content/gnews/7/README.md)
+### [中共可能会释放热病毒，并将一切归咎于冠状病毒](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共在19年病毒爆发前几月囤积PCR检测物资](/content/gnews/8/README.md)
+### [中共在19年病毒爆发前几月囤积PCR检测物资](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [习近平被干掉的可能性非常非常大](/content/gnews/9/README.md)
+### [习近平被干掉的可能性非常非常大](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦即将登上世界政治舞台的中心](/content/gnews/10/README.md)
+### [新中国联邦即将登上世界政治舞台的中心](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [2021年10月4日 文贵先生盖特 10](/content/gnews/11/README.md)
+### [2021年10月4日 文贵先生盖特 10](/content/gnews/12/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月4日 文贵先生盖特 9](/content/gnews/12/README.md)
+### [2021年10月4日 文贵先生盖特 9](/content/gnews/13/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [欺我合法投资，必讨伐之！](/content/gnews/13/README.md)
+### [欺我合法投资，必讨伐之！](/content/gnews/14/README.md)
  ` 纽约香草山MOS03`
 
-### [2021年10月4日 文贵先生盖特 8](/content/gnews/14/README.md)
+### [2021年10月4日 文贵先生盖特 8](/content/gnews/15/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月4日 文贵先生盖特 7](/content/gnews/15/README.md)
+### [2021年10月4日 文贵先生盖特 7](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [北约秘书长访美：调整战略思想，共同应对中共的挑战](/content/gnews/16/README.md)
+### [北约秘书长访美：调整战略思想，共同应对中共的挑战](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [中国秘密社会史—哥老会](/content/gnews/17/README.md)
+### [中国秘密社会史—哥老会](/content/gnews/18/README.md)
  ` 骄子`
 
-### [2021年10月4日 文贵先生盖特 6](/content/gnews/18/README.md)
+### [2021年10月4日 文贵先生盖特 6](/content/gnews/19/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [普京称欧洲能源市场“存在歇斯底里和混乱”](/content/gnews/19/README.md)
+### [普京称欧洲能源市场“存在歇斯底里和混乱”](/content/gnews/20/README.md)
  ` HimalayaRussia`
 
-### [Facebook前员工透露自己是泄露文件的“爆料人”(2/2)](/content/gnews/20/README.md)
+### [Facebook前员工透露自己是泄露文件的“爆料人”(2/2)](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【小雨专栏】在路上（033）——旅游篇](/content/gnews/21/README.md)
+### [【小雨专栏】在路上（033）——旅游篇](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年10月4日 文贵先生盖特 5](/content/gnews/22/README.md)
+### [2021年10月4日 文贵先生盖特 5](/content/gnews/23/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [Facebook前员工透露自己是泄露文件的“爆料人”(1/2)](/content/gnews/23/README.md)
+### [Facebook前员工透露自己是泄露文件的“爆料人”(1/2)](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭先生：今年年底到明年，疫苗给全人类带来的重大变化](/content/gnews/24/README.md)
+### [郭先生：今年年底到明年，疫苗给全人类带来的重大变化](/content/gnews/25/README.md)
  ` MG 澳喜农场多语组`
 
-### [欧洲3国的核电计划排除中广核集团](/content/gnews/25/README.md)
+### [欧洲3国的核电计划排除中广核集团](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线：中共在19年夏季就大规模购买病毒检测设备](/content/gnews/26/README.md)
+### [秘翻在线：中共在19年夏季就大规模购买病毒检测设备](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [2021年诺贝尔物理学奖得主产生](/content/gnews/27/README.md)
- ` HimalayaRussia`
 
 ### [死于疫苗的母亲的讣告被Twitter贴“误导”标签](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
