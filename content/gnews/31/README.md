@@ -2,139 +2,18 @@
 ---
 
 
-## 推特封杀mRNA技术创始人之一及Moderna 联合创始人的账号
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1574171/)
+## “潘多拉文件”或摧毁避税天堂
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574220/)
 
-So, it is very interesting
-因此，特别有意思的是
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-10.jpg)图片来源：BBC
+美联社10月4日华盛顿报道，一份绰号为“潘多拉文件”的调查报告于星期天公布，文件内容与个人采用秘密司法管辖区（又称避税天堂）来逃避税收有关。文件曝光后，要求终止《金融保密协议》的呼声越来越高，该协议允许世界上许多最富有的人和最有权力的人隐藏他们的财富不受税务管辖。
 
-but one of the founders of the mRNA technology
-mRNA技术的创始人之一
+潘多拉文件揭示了世界上的领导人、亿万富翁和一些其他人利用空壳公司和离岸公司账户使得数万亿美元的钱在过去25年中不受国家财政部监管，限制了帮助穷人和与气候变化作斗争的资源。这份报告由国际财团调查记者组所作，由来自150个媒体网点涉及117个国家的600多名记者参与完成。它将带来税收改革和要求相关人员辞职和接受调查，以及等待相关人员的解释和否认。
 
-His name is Luigi Warren
-他叫 Luigi Warren
+有数百名政治人物、名人、宗教领袖和药物掮客利用空壳公司或其他策略隐藏他们的财富、游艇和其他财产，根据综述有近1200份文件，和来自世界不同地方的14家公司。有330个现任和以往的政治人物作为受益人，如约旦国王阿布杜尔二世，英国前首相托尼·布莱尔，捷克共和国总理安德烈·巴比什，肯尼亚总统乌胡鲁·肯雅塔，还有厄瓜多尔总统和巴基斯坦总理以及俄罗斯总统普京。其中有些人强烈否认这个指控。
 
-And we didn’t even really know his name
-我们以前甚至不知道他的名字
+今年7月，130个国家同意全球最低税率15%的计划，以防止大型跨国公司将利益从高税收转向低税收国家，如百慕大和开曼群岛。该计划预计2023年实行，但这个计划不包括空壳公司和其他企业。
 
-until a couple of days ago
-直到在几天前才知道他是谁
-
-he has a Twitter account actually
-Luigi Warren有个Twitter推特账户
-
-and he tweeted the other day
-他前几天发了推
-
-that hey, guess what?
-但是，嘿，你猜怎么着？
-
-Because I am one of the founders
-（他发的推说：）
-
-of the mRNA vaccine technology
-我是MRNA疫苗技术的创始人之一
-
-and I am one of the co-founders
-我是Moderna的联合创始人之一，
-
-of Modera that helped to build Moderna
-并帮助建立了Moderna公司，
-
-I can actually attest to the fact that:
-我的确可以证明这个事实：
-
-Yes, the shedding, the vaccine shedding
-是的，（尖峰蛋白）脱落，
-
-of the spike protein is real
-疫苗的尖锋蛋白脱落现象是真实存在的
-
-It actually does occur
-这种情况确实存在
-
-Now when it occurs,
-他说当发生脱落的时候
-
-he says it occurs in smaller amounts that
-如果这个人的脱落数量很少
-
-is most likely not harmful
-很有可能不会造成危害
-
-or is going to cause diseases in other people
-或是不会导致其他人生病
-
-but actually, it is real.
-但这种脱落现象是真实存在的，
-
-and it does occur
-它确实有发生
-
-Because he posted that tweet on Twitter
-就因为他在推特上发了这种推
-
-Guess what? the Twitter police came
-你猜怎么着？“推特网警”巡查，
-
-and suspended his account
-暂停了他的账户
-
-They said (it was a) fake news
-推特说他发布的这些是假新闻
-
-Now he is appealing that
-现在他正在上诉
-
-He said he is not backing down
-他说他不会退缩
-
-He said this would be appealed
-他将会采取上诉手段
-
-He said: “just appealed as follows”:
-他说他的诉求主要是：
-
-the tweet you locked me out for is correct
-我发布的推特内容是正确的信息
-
-I am the inventor of the (mRNA) technology,
-我是（mRNA）技术的发明者 (之一)
-
-from which Moderna was founded
-（基于此此技术），我也成为了 Moderna公司创立人(之一 )
-
-Look it up
-可以随意去验证我的背景是否属实
-
-I think I know what I am talking about。
-我想我知道我在说什么。
-
-and he says again he is continuing to go through more bogus lockdowns
-他又说，他还会持续被（推特）封掉更多的账户
-
-for posting absolutely correct statements on Twitter
-就因为他在推特上发布的这些言论是绝对正确的
-
-文字听写翻译：UCool 优酷
-
-视频字幕：Kent
-
-编辑/发稿：云起时
-
-*免责声明：本文仅代表作者个人观点，与G-NEWS网站无关*
-
-* * *
-
-更多加拿大枫叶农场的频道，请关注：
-
-[GTV: 喜马拉雅加拿大多伦多枫叶农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-
-[GTV: 加拿大枫叶农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-
-[`GTV: 多伦多枫叶财经频道](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-
-[喜马拉雅加拿大多伦多枫叶农场discord](https://discord.gg/Cpz33sS)
-
-[加拿大多伦多枫叶农场 on GETTR](https://gettr.com/user/torontofarmcn)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/banner.png)
+新闻来源： [‘Pandora Papers’ bring renewed calls for tax haven scrutiny](https://apnews.com/article/leaked-pandora-records-show-how-powerful-shield-assets-b31daac39800f6a6423e24465df45ffc)
