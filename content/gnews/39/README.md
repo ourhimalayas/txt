@@ -2,9 +2,9 @@
 ---
 
 
-## 除了恒大，还有很多中共国开发商都面临债务危机
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574928/)
+## 郭文贵曝光傅振华造假案陷害并逮捕他的家人和员工
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574926/)
 
-10/4/2021彭博分析：除了恒大外，还有很多中共国的开发商都面临债务危机。
+7/3/2017 郭文贵先生曝光了傅振华如何造假案陷害他，并逮捕他的家人和员工。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

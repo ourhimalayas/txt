@@ -2,9 +2,9 @@
 ---
 
 
-## 郭文贵曝光傅振华造假案陷害并逮捕他的家人和员工
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574926/)
+## 郭文贵先生2017年5月17日爆料傅政华
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1574924/)
 
-7/3/2017 郭文贵先生曝光了傅振华如何造假案陷害他，并逮捕他的家人和员工。
+郭文贵先生2017年5月17日爆料傅政华如何以抓捕其全家及员工为要挟以获取方正的保险牌照。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】

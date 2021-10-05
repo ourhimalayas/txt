@@ -2,31 +2,15 @@
 ---
 
 
-## 北约秘书长访美：调整战略思想，共同应对中共的挑战
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1575483/)
+## 2021年10月4日 文贵先生盖特 7
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575487/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-10月4日，北约秘书长斯托尔滕贝格(Jens Stoltenberg) 访问华盛顿，会见了美国总统、国家安全顾问、国防部长并与国务卿通话，讨论如何调整北约的战略思想以应对中共日益增强的安全威胁。
+10/04/2021 Miles Guo’s GETTR: The CCP kleptocrats Fu Zhenghua, Meng Jianzhu, Wang Qishan, Sun Lijun, Zhou Liang, Dong Xiansheng, and others have framed, killed, and seized people’s legitimate properties in the name of law enforcement. The people working in the public security organs, procuratorates and courts have become a bunch of walking corpses. The “earthquake” in these three sectors has not yet started. After Meng Jianzhu’s case, all these kleptocrats will be punished. And we, the New Federal State of China, will take actions in accordance with international laws!
 
-据VOA报道，白宫4日在一份声明中表示，拜登总统与斯托尔滕贝格会面时重申北约强化遏阻和防卫能力以对付战略竞争者的重要性。
+10/04/2021 文贵盖特: 中共盗国贼傅政华、孟建柱、王岐山、孙力军、周亮、董仚生等人借执法之名陷害、杀人、掠夺他人合法财产。公检法的人已变成行尸走肉，公检法的地震远远没有开始，孟建柱案后这些恶人都会受到最终的审判，我们新中国联邦会根据国际法律采取行动！
 
-国防部长奥斯汀在欢迎这位北约领导人时说，“我们需要继续为强化北约的遏阻和防卫能力而投入资源，也要修改战略思想，以便带领北约同盟应对正在变化的战略环境。”
+[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd7jn5e245)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/微信图片_20211005184359.png)图片来自于网络
-
-斯托尔滕贝格回应奥斯汀部长说，“北约跟以往任何时候那样重要，因为我们正面对一个更具竞争性的世界。我们看到俄罗斯的侵略行动，看到一个更加独断地运用自己经济和军事强势的中国。我们还面临网络威胁、持续的恐怖主义威胁以及气候变化对安全的影响。”
-
-此外，美国国务院发言人称，正在欧洲访问的美国国务卿布林肯当天与斯托尔滕贝格通了话，双方强调了北约与澳大利亚、日本、新西兰和韩国合作的价值。
-
-此前，北大西洋公约组织三十个成员国在6月份举行峰会并发表联合公报，就中共的扩张行为表示，“中共明确表述的野心及强势行为，对基于规则的国际秩序以及与联盟安全相关的领域，构成系统性的挑战。”这是自1949年北约联盟成立以来首次在其联合公报中把中共国公开视为“系统性挑战”。
-
-*注：本文仅代表作者观点，与 Gnews无关*
-
-*参考链接：*
-
-[北约秘书长访问华盛顿 注重调整战略思想共同应对中国挑战](https://www.voachinese.com/a/us-nato-china-20211005/6257630.html)
-
-* * *
-
-*编辑：文顺 校对：Ranting 发布：Ranting*
+**喜联盟Gnews编辑部**

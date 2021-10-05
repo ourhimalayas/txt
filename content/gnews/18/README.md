@@ -2,19 +2,13 @@
 ---
 
 
-## 普京称欧洲能源市场“存在歇斯底里和混乱”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1575437/)
+## 2021年10月4日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575445/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/E.jpg)dailypostla.com
-美东时间10月5日报道，俄罗斯总统弗拉基米尔∙普京表示，“欧洲能源市场存在歇斯底里和混乱，这是由不平衡的决定和突然的极端措施造成的。”
+10月4号：尊敬的战友们好，明天10月5号，上午8:30至11:00七哥和帅哥美女的战友们，开始大直播，一切都已经开始！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/62cf0811ee070dcf730677d2dd9815bd.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/eef3a3be57d0e913a40e91e51909d78b.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/750104555e7e1a11b8fc1fb072531195.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/667735c7da0e489c7f915478a700bbf0.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/32f1541adbc7fe43464391a420bff9e2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/10/9d98d0f5d19b56a9adb7e6109b2f75ab.jpg)
+[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd7pxjfeb7)
 
-总统表示，“有必要牢记经济中煤炭、石油和天然气综合体稳定发展的重要性。你看欧洲正在发生什么——市场上正在发生歇斯底里和一些混乱的情况。为什么？因为没有人认真对待它。”
-
-普京强调，“欧洲造成此情况的原因是对气候问题的投机行为、错误的预判和对开发领域减少了投资。所有的事情要实现自身的目标都是要有一个平稳的过渡。俄罗斯具有所有的能力来杜绝在自身能源市场出现这种情况。我们看到了欧洲的某些不平衡的决定、不平衡的发展和突然的极端措施导致了什么。”
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431](https://www.rbc.ru/rbcfreenews/615c60c99a79477c477a7431)
+**喜联盟Gnews编辑部**
