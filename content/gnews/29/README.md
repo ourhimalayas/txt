@@ -2,31 +2,35 @@
 ---
 
 
-## 警告中共挑衅，英美日等6国海军联合演习!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574844/)
+## 国际要闻汇编
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574982/)
 
-栏目记者/责任编辑：在远方
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-2.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1005/20211005104133479.jpg)
+**10月5日汇编**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1、[**白宫：密切关注北京对台湾的“挑衅性”军事行动，对台承诺坚如磐石**](https://www.voachinese.com/a/US-China-Taiwan-adiz-20211004/6257083.html)
 
+在北京过去四天内对台湾防空识别区进行目前为止最大规模的侵扰之后，台北指责北京是台海紧张局势的“罪魁祸首”并要求北京立即停止“不负责任的挑衅”。北京周一（4日）则指责美国对台海紧张局势的加剧负责。白宫表示，美国仍然对中国在靠近台湾的地方进行“挑衅性的军事行动”感到关注并将继续密切关注事态的发展。白宫发言人莎琪说“我们将维持我们在三个联合公报、《台湾关系法》和六项保证中做出的承诺。我们对台湾的承诺坚如磐石，这有助于维护台湾海峡和地区内的和平与稳定。
 
+2、[**岸田称为实现新资本主义将新设会议**](https://china.kyodonews.net/news/2021/10/4e9dd75cd57a.html)
 
-在中共大批战机10日1号、2号连续两天侵扰台湾之后，包括美英在内的6国联合于2日和3日两天，在冲绳西南方的菲律宾海举行演习，以警告和回应中共在台海的武力挑衅。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005-AM4-视频备用.001.jpeg)
-参加此次演习的6国包括美国、英国、加拿大、新西兰、荷兰和日本，各国共出动了3艘航空母舰和17艘其他舰艇。美国国务院发言人普赖斯3日发布声明，指责中共对台湾施加的军事压力，有导致误判引发战争的危险，和破坏地区的和平与稳定。日本海上自卫队发言人则明确表示，本次演习的目的就是要加强合作，以保障太平洋地区的自由开放和安全。表明各国正在用行动敦促和警告中共，停止对台湾的外交、军事施压和威胁。
-(本文仅代表作者观点)
+据共同社10月5日消息 ，日本首相岸田文雄4日晚间在官邸举行就任后的首次记者会，表示为制定后新冠时代的经济社会愿景将设置“新资本主义实现会议”，举内阁之力采取中长期举措。他强调“将实现增长与分配的良性循环，打造使生活富裕的经济”。承诺将强化对在职人群的分配。他把作为主打政策之一的经济安保政策定位为增长战略的核心，指出将推进防止技术外流等。
 
-参考链接：[北京大机群侵扰台湾后，美英3艘航母举行联合军演](https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html)
+3、[**美贸易代表：将取消部分中国商品关税**](https://www.aboluowang.com/2021/1005/1655419.html)
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+美国贸易代表戴琪（Katherine Tai）周一（4日）发布对华贸易政策演讲。她承诺，将启动一个有针对性的关税排除流程，取消对一定中国商品征收关税。“我们将启动一个有针对性的关税排除流程，我们将确保现有的执行框架以最佳方式服务于我们的经济利益。”戴琪说，她还表示，不排除未来可能增加额外的关税排除流程。
 
-终审：文龙
-校正/发稿：我不在这里
+4、[**脸书全集团总瘫痪 市值瞬间蒸发200多亿美元**](https://www.aboluowang.com/2021/1005/1655587.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+脸书（Facebook）、Instagram和whatsapp于台湾时间昨（4）日深夜11点许开始，出现全球大当机，让用户相当崩溃，而本次当机情况直到今日清晨近6点才修复。对此，脸书也在事件后透过推特发文道歉，表示“感谢大家对脸书的包容。”不过，尽管平台已经修复完毕，但仍止不住外界的讨论，该起事件甚至被评为FB系列集体瘫痪损害规模最大的“严重故障事件”，且短短几个小时内，就让Facebook的全球市值瞬间蒸发200~250亿美元，影响程度不容小觑。
+
+5、[**日本新首相与美国总统通话：保卫尖阁诸岛的承诺“特别坚定”**](https://www.voachinese.com/a/us-japan-new-pm-senkaku-20211005/6257587.html)
+
+据路透社消息，星期一（4日）在国会投票后正式当选为日本第100任首相的岸田文雄在当地时间5日与美国总统拜登通话，之后他在首相官邸对媒体表示，拜登总统在承诺保卫日本安全时“特别”做出了“坚定的”表述，包括坚定履行美日安保条约第五条。这项条款说，在日本管辖区内，如果一方受到武力攻击，双方将依照本国宪法的规定和程序，采取行动应对共同的威胁。此前，多位前任美国总统都明确表示，尖阁诸岛属日本管辖，因此属于美日安保条约适用范围。
+
+（本文只代表个人观点，与Gnews网站无关）
+
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

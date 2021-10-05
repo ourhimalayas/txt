@@ -2,27 +2,15 @@
 ---
 
 
-## 辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575250/)
+## 2021年10月4日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575370/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-5.png)
-文章仅代表作者本人观点，与Gnews无关
+WOW WOWWOW**🙏🙏🙏🙏🔥🔥🔥👇👇👇👇👇👇👇👇👇👇👇👇👇**【GTV投资者对SEC的五大诉求： GTV Investors‘ Five Demand For The SEC 1. 立刻归还属于投资者的资金 Immediately Return GTV investor’s funds 2. 立刻停止和中国共产党的勾兑 Immediately stop collusion with the Chinese Communist Party 3. 立刻停止针对华裔投资者的种族歧视 Immediately stop racial discrimination against Chinese-Americans 4. 赔偿投资者的一切损失 Compensate GTV Investors for our loss 5. 要求负责的人出来对话 We demand to talk to those in charge for accountability】
 
-视频参看：2021.10.05早GTV新闻访谈
+[https://gtv.org/broadcast/watch/615b1a14304e992109af6570](https://gtv.org/broadcast/watch/615b1a14304e992109af6570)
 
-[https://gtv.org/broadcast/watch/615c44e0304e992109afc723](https://gtv.org/broadcast/watch/615c44e0304e992109afc723)
+[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd4dk04ea9)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**喜联盟Gnews编辑部**

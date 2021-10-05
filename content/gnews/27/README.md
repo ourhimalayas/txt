@@ -2,18 +2,40 @@
 ---
 
 
-## 限电缺煤？所谓的一盘大棋
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1574910/)
+## 土耳其：先天畸形婴儿诞生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574994/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-86-2.png)
-10月5日中国新闻网从浙江省国资委获悉浙江省能源集团发布消息称，10月4日，在浙能舟山六横煤炭中转码头，卸煤机正在卸装从哈萨克斯坦进口的电煤，这是浙江省首次向哈萨克斯坦采购煤炭，为当前紧缺电煤的浙江省带来了“及时雨”。该煤炭是浙能集团所属富兴燃料公司于10月2日采购到六横煤炭中转码头的，通过MV CARO号（卡罗）船舶在海上运输8501海里（约15700公里），历时30天，装载13.6万吨的高热值（6000大卡）优质煤炭。
- 有众多疑问没有从仅有的报道中给出答案，中哈两国是邻国，最直观的路线是陆路，却要难为哈萨克这一内陆国走海运？哈萨克斯坦一个全世界离任何海洋都最远的内陆国，出口煤炭怎么走的海运？先从里海走顿河和伏尔加河的列宁运河，然后到黑海走苏伊士运河红海印度洋过马六甲海峡经过南海诸岛台湾海峡，最后到浙江，黑海的顿河运河只有5000吨的船可以通行，这13.6万吨的船怎么开出来？种种疑问不得而知。
- 一吨煤3500度电，13.6万吨5亿度电不到，浙江上半年平均一天要用14亿度电，杯水车薪，中共国在南极建立的中山站，与北京的距离约有12000公里，在南极建立的长城站，距北京约有17000公里，大概距离在北京一一南极中山站和长城站之间。
- 一个产煤大国绕了半个地球运了本该最便宜的物资回来，只有中共国独裁政权可以如此劳民伤财的操作，所谓的下一盘大棋，就是缺煤和外汇而已。
- 消息来源:
- [浙江首次采购的13.6万吨哈萨克斯坦优质煤炭运抵舟山](//mo.mbd.baidu.com/r/uf2FuJIjAc?f=cp&amp;rs=1144069997&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=33c28eaa3fd49090)
-免责声明：文章仅代表作者本人观点，与GNEWS无关
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0-1-18-6.png)
+栏目记者/责任编辑：新世界的一员
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+土耳其 Beyaz TV新闻报道：目前已发现多个先天畸形婴儿病例。
+
+视频中新福利党领导人：穆罕默德·埃尔巴坎（Muhammed Ali Fatih Erbakan）出示了患儿的照片：这些婴儿布满毛发，身体上生有多手、多脚，长有尾巴。这些婴儿的母亲在孕期都接种了辉瑞或者莫德纳的新冠病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/p9.001.jpeg)
+郭先生直播爆料中多次强调，病毒哪里来都不知道，疫苗更危险绝对不能接打。全世界的新冠疫苗和病毒是子母弹，完全为疫苗经济，疫苗政治而设计和服务，更是共产党和背后的邪恶势力削减世界人口的恶毒的灭绝计划。只有人类的觉醒才能避免这一场大屠杀。新中国联邦一直对全世界人民大声呼吁，在GTV，在盖特和各大平台，传播病毒和疫苗真相，跟进解药信息。为了保护我们的孩子免受伤害和杀戮，为了人类的延续，停止疫苗就是停止灾难。
+(本文仅代表作者观点)
+
+参考链接：
+
+1. [Erbakan: Tek gözlü kuyruklu çocuklar doğdu!](https://www.youtube.com/watch?v=ywPmw2Y3QkE)
+2. [Fatih Erbakan durdurulamıyor: “Tek gözlü, kuyruklu, tüm vücudu kılla kaplı çocuklar doğdu!”](https://twitter.com/aykiricomtr/status/1438391881453473793?lang=en)
+3. [Fatih Erbakan ısrarcı: Tek gözlü, kuyruklu, tüm vücudu kılla kaplı çocuklar doğdu](https://tele1.com.tr/fatih-erbakan-israrci-tek-gozlu-kuyruklu-tum-vucudu-killa-kapli-cocuklar-dogdu-470297/)
+4. [Fatih Erbakan](https://en.wikipedia.org/wiki/Fatih_Erbakan)
+
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

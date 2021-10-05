@@ -2,39 +2,32 @@
 ---
 
 
-## 【速报】日本民族的第12个诺贝尔物理学奖诞生
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1575012/)
+## 前新疆警察接受CNN采访, 揭露中共暴行!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575136/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005-QXL-1-L.jpg)[图片来源](https://cn.nikkei.com/images/2021/10/1005/1005-QXL-1-L.jpg)
-日本TBS 10月5日消息：今年的诺贝尔物理学奖颁给了美国普林斯顿大学的高级研究员真锅淑郎（90岁）。
+栏目记者/责任编辑：文龍
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-90.png)
+CNN播出最新纪实访谈节目, 采访了几位遭受过中共暴行迫害的维族人, 以及一位前中共警察蒋先生(音译)。
 
-真锅博士是全球变暖研究领域的先驱，他在20世纪50年代末来到美国，开创了使用计算机分析气候变化的先河。随后，他领导世界研究了二氧化碳浓度上升对大气和海洋的影响，为现代全球变暖的预测搭建立了框架。这是继2015年梶田隆章之后第12个获得诺贝尔物理学奖的日本人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-2.jpeg)
 
-1958年在东京大学完成研究生学业后，真锅先生成为美国国家海洋和大气管理局（当时称为气象局）的一名研究员。之后，于1997年归国，加入当时的科学技术局的全球变暖研究小组。2001年再度回到美国，目前是普林斯顿大学的高级研究员，已经加入美国国籍。
+这位蒋姓警察目前人在欧洲避难, 他向CNN讲述了他在新疆从业期间的所见所闻, 在被称为再教育营的集中营中, 对维族及其他宗教人群所进行的系统性酷刑,  他本人也参与了这些暴行, 包括电刑/水刑和性暴力, 相对而言侮辱和不允许睡觉是最普通的待遇。蒋姓警察也从最初的 “渴望前往新疆打击企图分裂国家恐怖分子” , 到最后转变为质疑和彻底厌恶。虽然他在这种名为”援疆”的部署期间获得了两倍的工资和福利。这位勇敢警察的讲述, 是对中共新疆暴政暴行最有力的佐证和控诉!
 
-真锅先生的出生地是爱媛县四国町市。其大概简历如下：
+在采访中, 一位曾遭受中共酷刑迫害的维族教师说:”我永远不会忘记心中的伤疤,是信仰支撑我活下来, 我并不恨那些警察,虽然他们是罪犯, 但他们也是受害者,他们是那个犯罪系统的一部分。”
 
-1953年，毕业于东京大学理学院。
+(本文仅代表作者观点)
 
-1958年，在东京大学完成了研究生课程，并获得了理学博士学位。
+参考链接：[‘Some are just psychopaths’: Chinese detective in exile reveals extent of torture against Uyghurs](https://edition.cnn.com/2021/10/04/china/xinjiang-detective-torture-intl-hnk-dst/index.html)
 
-1958～1963年，是美国气象局一般环流研究部门的研究员。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-1963年～1997年，在美国国家海洋和大气管理局地球物理流体动力学实验室担任高级研究员。
+终审：文龍
+校正/发稿：谐趣园
 
-1968年～1997年，是普林斯顿大学大气和海洋科学项目的客座教授。
-
-1983年，受聘东京大学特聘教授。
-
-1997年～2001年，在日本国家宇宙开发厅（NASDA）和日本海洋科学技术中心（JAMSTEC）担任前沿研究系统全球变暖预测研究领域主任。
-
-2008年～2009年，受聘名古屋大学特聘教授。
-
-[信息源](https://news.yahoo.co.jp/articles/6a5403079b6cad7e92ce3d11867abaff31efc141)
-
-（文章仅代表作者个人观点，与GNEWS无关）
-
-*校对：东京樱花团 / 知了知了*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,31 +2,31 @@
 ---
 
 
-## 秘翻在线：大型医药公司将推出仿制伊维菌素的中共病毒治疗药
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574730/)
+## 警告中共挑衅，英美日等6国海军联合演习!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574844/)
 
-#### 采集/撰稿：极寒将至 
+栏目记者/责任编辑：在远方
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2020-04-28t000000z_1_210302-111653_dok.jpg)图片来源：日经亚洲
-美国威斯康星大学教授乔尔.贺石焦博士（Joel S. Hirschhorn）在生活新闻网（LifeSiteNews）发表文章称，默克（Merck & Co. Inc.）、辉瑞和其他疫苗制造商将开发自己复制伊维菌素（ivermectin）的口服抗中共病毒药物，以取代廉价有效的伊维菌素。他们会找到一些巧妙的方法来复制伊维菌素，但同时又做出足够的改变以获得专利，于是这些昂贵的中共病毒治疗药就会在全球销售，为大型制药公司赚取高额利润。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-默克公司是伊维菌素的制造商，其即将推出的处方口服抗病毒药莫纳皮拉韦（molnupiravir）获得了积极的新闻报道。它将取代那些低利润的伊维菌素。由于中共病毒疫苗无法有效或安全地发挥作用，FDA将很快授予其紧急使用授权。
 
-默克公司已经开始生产其治疗中共病毒的新药，每天服用两次，持续五天。更重要的是：美国政府以12亿美元预购了170万个疗程！每次治疗费用超过700美元。相比之下，从印度可以低于1美元的价格买到12毫克的伊维菌素，美国药房可以4美元或5美元买到的3毫克的伊维菌素，价格相差巨大。
 
-然而让人气愤的是，尽管默克公司是伊维菌素的制造商，但却不负责任地公开表示：“我们不认为现有数据支持伊维菌素的安全性和有效性，其超出了监管机构批准的处方信息中指明的剂量和人群，从而对其用于治疗中共病毒的使用感到怀疑。”
+在中共大批战机10日1号、2号连续两天侵扰台湾之后，包括美英在内的6国联合于2日和3日两天，在冲绳西南方的菲律宾海举行演习，以警告和回应中共在台海的武力挑衅。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1005-AM4-视频备用.001.jpeg)
+参加此次演习的6国包括美国、英国、加拿大、新西兰、荷兰和日本，各国共出动了3艘航空母舰和17艘其他舰艇。美国国务院发言人普赖斯3日发布声明，指责中共对台湾施加的军事压力，有导致误判引发战争的危险，和破坏地区的和平与稳定。日本海上自卫队发言人则明确表示，本次演习的目的就是要加强合作，以保障太平洋地区的自由开放和安全。表明各国正在用行动敦促和警告中共，停止对台湾的外交、军事施压和威胁。
+(本文仅代表作者观点)
 
-与此同时，政府机构和主流媒体不断发表文章和声明，声称不应使用伊维菌素来对抗中共病毒，他们认为这是不安全和无效的。这些都是旨在保护大规模疫苗接种工作和大型制药公司利润的谎言，现在又来保护大型制药公司新抗病毒药的市场。
+参考链接：[北京大机群侵扰台湾后，美英3艘航母举行联合军演](https://www.voachinese.com/a/three-aircraft-carriers-train-together-near-okinawa-as-china-ramps-up-pressure-on-taiwan-20211004/6256689.html)
 
-《华盛顿邮报》称默克公司创造的是“第一个抗击新冠病毒的药物”，这说明主流媒体忽视伊维菌素和羟氯喹这些通用药已证实的好处，并且忽视了中共病毒疫苗的失败。在其10月2日关于新默克药物的头版报道中，它甚至没有提到伊维菌素已经被证明比仅对数百人进行短期测试的新昂贵药物更有效。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-事实上，伊维菌素已成功用于数十万人治疗和预防中共病毒。在印度致命的第二次疫情大爆发中，伊维菌素消除了他们的危机，在采用伊维菌素后的几周内，案例减少了90%，那些更积极使用伊维菌素的州的下降率更大。
+终审：文龙
+校正/发稿：我不在这里
 
-几十年来，伊维菌素早已获得FDA批准，并且副作用极小且温和，它平均每年只报告160起不良反应事件，这表明伊维菌素的安全记录优于几种维生素。
-
-从世界各地来看，完全接种疫苗后的死于中共病毒的人的比例非常高，通常为80%。许多中共病毒感染的人死亡，应将这些死亡归咎于疫苗。主流媒体压制了所有关于疫苗的负面信息和所有关于伊维菌素的正面信息。
-
-早就事实证明伊维菌素能安全治疗和预防中共病毒感染，却要鼓吹和推广不安全的疫苗，然后在大家开始反对疫苗的时候，又恰巧推出昂贵的仿制伊维菌素的特效药，这一步步走来，像不像一个精心策划的大骗局？
-
-新闻来源：[Huge uptick in ivermectin use is causing profit-driven Big Pharma to sell patented copycat pills](https://www.lifesitenews.com/opinion/massive-ivermectin-use-pushes-big-pharma-to-sell-expensive-pills-for-covid/?utm_source=top_news&amp;utm_campaign=usa)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

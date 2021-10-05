@@ -2,20 +2,35 @@
 ---
 
 
-## 秘翻在线 :全球船运供应链危机将持续到 2023 年
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574981/)
+## 法国重磅“中共影响力行动”报告，揭中共全球宣传部署
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575090/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/p.jpg-1.png)
-图片来源：flashglobal
+栏目记者：修文   
+责任编辑: FoxRina
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-87.png)
+法国半官方智库、国家军事学校战略研究所近日公布了一份近650页、历时两年完成的“（中共）影响力行动”调查报告，揭示中共近年来为扩展影响力而部署的全球网络，指出中共利用舆论、心理和法律企图收买、渗透与约束他国。
 
-根据《零对冲》(Zero Hedge) 的报导,中东最大的港口运营商之一，迪拜 DP World 董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆(Sultan Ahmed Bin Sulayem)10月1日在 2020 年迪拜世博会上接受彭博电视台的采访，认为全球供应链危机将持续到 2023 年，而物资短缺及延误的运送将导致船运的集装箱费率持续飙升。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide1-9.jpeg)
 
-全球最大的航运公司 A.P. Moller-Maersk 最近警告，船运瓶颈可能会持续比预期更长的时间，一些托运公司已承诺限制即期运费。DHL 和 UPS 警告说，供应链混乱不仅持续到明年，影响可能更加久远。
+该报告由由情报专家、中国问题专家夏宏和政治学家、安全问题专家尚杰维尔梅共同撰写，从四个方面梳理了中共为扩展其影响力而进行的网络部署和发展轨迹，是迄今为止以法语发表的对中共宣传机器内容最全面的分析。
 
-前 PIMCO 首席执行官兼安联首席经济顾问穆罕默德·埃里安 (Mohamed El-Erian) 警告说，船运供应的困境会持续一到两年。这些困扰促使生产商品价格继续飙升，最终造成消费者更大的负担。
+报告第三部分详述了中共在海外部署影响力的行动方式，包括用正面叙事来博取外国民众好感，同时使用渗透和胁迫手段。中共在海外的影响力活动领域，已全面涉及外交、经济、政治、教育、智库、侨民、媒体等等，在影视作品和游戏领域的文化渗透和操纵，日益严重。所有行动都围绕着捍卫中共模式，吹嘘“中国传统”，彰显中国善行，建立中共霸权，妄图对世界进程施加影响，最终超越美国，并向世界强加中共自己的模式。
 
-尽管全球央行行长一直宣称通胀只是暂时的，并认为供应链瓶颈所导致的通货膨胀可以解决，但这些央行官员却未能提供任何解决的时间表。
+最后，报告指出，当中共的影响力战略越来越具有攻击性，导致其国际形象严重恶化，它最大的敌人就是中共自己。
 
-新闻来源：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](http://&quot;Global%20Supply%20Chain%20Crisis%20To%20Last%20Until%202023,&quot;%20Says%20Middle%20East's%20Largest%20Port%20Operator)
+(本文仅代表作者观点)
+
+参考链接：[法国重磅调查报告 揭示中共部署全球网络扩展其影响力](https://www.soundofhope.org/post/548463)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：FoxRina
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

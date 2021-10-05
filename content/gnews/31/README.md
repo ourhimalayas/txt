@@ -2,31 +2,17 @@
 ---
 
 
-## 曾家产业&#8221;花样年地产&#8221; 债务预期陷困局
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1574834/)
+## 秘翻在线：联想有望返回A股市场
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1574975/)
 
-栏目记者/责任编辑：新世界的一员
+**撰稿：葛大饼**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-05-213937.jpg)图片来源： 新浪
+根据2021年10月5日中时新闻网报道，上交所日前正式受理联想集团在科创板发行中国存託凭证（CDR）的申请， 新闻称联想集资人民币100亿元，有望以红筹身份返回大陆股市。这一百亿集资款中的26.25亿元会投入5G时代的各类基础设施，此外数字化和智能化的项目计划投入21.25亿元。
 
+据联想公司称，回归科创板将帮助公司增强国际与国内两个市场的紧密连接，实现两个市场协同效应的最大化；另一方面，通过更好利用国内蓬勃发展的资本市场的力量，增进公司资本结构的多元优化，壮大公司可持续发展战略的资金实力。
 
+联想集团最早是于1994年在香港上市，如今又同时选择A股融资，是否是为了更方便从国内向海外转移资产，准备跑路呢？创始人柳传志也是中国最牛民营企业家商会—泰山会的会长，会员都是中共国内各行业的领头人物，包括近期暴雷的泛海集团卢志强和巨人集团史玉柱等。泰山会于今年年初解散，中南坑开始收拾白手套们了。
 
-继恒大地产危机爆雷，墙内著名地产大鳄”花样年” 也在10月4日因未能偿还到期的2亿美元债务而陷入困境。消息公布后，”花样年”地产的美元计价债券跌至5美分，创历史最低记录。信贷评级机构惠誉国际，本周一也将”花样年”的评级大幅下调了四级。这是中共经济支柱房地产行业陷入困境的又一迹象。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1005AM1、2、3-视频备用.003.jpeg)
-“花样年”集团公司是总部位于深圳的大陆地产开发商，公司注册地设于开曼群岛，1996年由中共前国家副主席”铁帽子王”曾庆红的侄女曾宝宝创立，2009年香港上市，其地产开发业务重点布局华东都市圈、环渤海都市圈等核心一二线城市，以及粤港澳大湾区。
-(本文仅代表作者观点)
-
-参考链接：[中国地产商花样年未能偿还2.06亿美元到期债务 其美元债券急跌至纪录低位](https://cn.reuters.com/article/fantasia-bonds-unpaid1004-mon-idCNKBS2GV01N)
-
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-终审：文龙
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[新闻来源](https://wantrich.chinatimes.com/news/20211005S495365)**
