@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/5/2021 11:19 AM (UTC)`
+
+爆料革命90 天 vs. 要飯爛命90天（上）<br/>90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P1-2)<br/><br/>1. 爆料革命公布疫苗的真相<br/>The truth of the COVID Vaccine was exposed by Whistleblower Movement <br/><br/>2.要飯爛命說郭先生是中共特務<br/>Begging for survival<br/>States that Mr. Miles Guo is a CCP intelligent agent<br/><br/>3、爆料革命 公佈COVID -19 解藥<br/>The Whistleblower Movement  <br/>announced the antidote of COVID-19 <br/><br/>4、爆料革命 以毒滅共<br/>The Whistleblower Movement  <br/>Reveal the truth of COVID-19 virus to take down the CCP<br/><br/>5、路大腦袋能教美國如何做決定？<br/>How can Lude teach the U.S. decision making?<br/><br/><br/>6、爆料革命  以毒滅共<br/>The Whistleblower Movement  <br/>Taking down the CCP with the truth of COVID-19 virus <br/>
+![img](https://media.gettr.com/group19/getter/2021/10/05/11/19/74d0df75-968d-4a3f-ec56-474edfcaabf0/out.jpg)
+
+---
+
 `@miles 10/5/2021 10:23 AM (UTC)`
 
 10月5号：真的假的啊，吓死叔叔了。😡😡😡👉👉👉【In Jerusalem on October 5, other sectarian cases found that women and children gave birth to babies with hands, feet, tails, etc. after BioNTech or Moderna holidays. 10月5日土耳其，有多宗案例發現婦女接種了BioNTech或者Moderna疫苗後，產下的嬰兒有多手、脚、尾巴的婴儿，許多這樣案例】
@@ -286,14 +293,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 强生疫苗公司的科学家以及业务负责人私下对疫苗的真实看法曝光：他们都认为人们根本不需要接种疫苗！<br/><br/>True attitudes towards the Covid Vaccine of a scientist and a business leader from J&J Vaccine exposed: They both believe people don't need to be vaccinated
 ![img](https://media.gettr.com/group8/getter/2021/10/01/23/57/c892af25-8761-ad25-f9bf-1e6f10959932/out.jpg)
-
----
-
-`@miles 10/1/2021 11:48 PM (UTC)`
-
-✊✊✊
-> `@zaqmlp45671 10/1/2021 11:39 PM (UTC)`<br/>好消息！加拿大BC省的卫生官在谈到疫情形势的时候，没有再推疫苗！七哥太牛啦👍👍👍🙏🙏🙏
-![img](https://media.gettr.com/group45/getter/2021/10/01/23/b3ee9a8a-c382-e3e0-bb82-18d5291337c8/05b223c58ef197aaced69a3db8f59a4d.jpg)
 
 ---
 
