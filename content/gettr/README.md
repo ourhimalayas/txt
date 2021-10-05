@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/5/2021 10:23 AM (UTC)`
+
+10月5号：真的假的啊，吓死叔叔了。😡😡😡👉👉👉【In Jerusalem on October 5, other sectarian cases found that women and children gave birth to babies with hands, feet, tails, etc. after BioNTech or Moderna holidays. 10月5日土耳其，有多宗案例發現婦女接種了BioNTech或者Moderna疫苗後，產下的嬰兒有多手、脚、尾巴的婴儿，許多這樣案例】
+![img](https://media.gettr.com/group37/getter/2021/10/05/10/23/07eb7e18-5da6-48d7-c200-a35a81e9681a/out.jpg)
+
+---
+
 `@miles 10/5/2021 4:02 AM (UTC)`
 
 10/04/2021 Miles Guo’s GETTR: The CCP kleptocrats Fu Zhenghua, Meng Jianzhu, Wang Qishan, Sun Lijun, Zhou Liang, Dong Xiansheng, and others have framed, killed, and seized people’s legitimate properties in the name of law enforcement. The people working in the public security organs, procuratorates and courts have become a bunch of walking corpses. The “earthquake” in these three sectors has not yet started. After Meng Jianzhu's case, all these kleptocrats will be punished. And we, the New Federal State of China, will take actions in accordance with international laws!<br/><br/>10/04/2021 文贵盖特: 中共盗国贼傅政华、孟建柱、王岐山、孙力军、周亮、董仚生等人借执法之名陷害、杀人、掠夺他人合法财产。公检法的人已变成行尸走肉，公检法的地震远远没有开始，孟建柱案后这些恶人都会受到最终的审判，我们新中国联邦会根据国际法律采取行动！<br/>
@@ -287,13 +294,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 ✊✊✊
 > `@zaqmlp45671 10/1/2021 11:39 PM (UTC)`<br/>好消息！加拿大BC省的卫生官在谈到疫情形势的时候，没有再推疫苗！七哥太牛啦👍👍👍🙏🙏🙏
 ![img](https://media.gettr.com/group45/getter/2021/10/01/23/b3ee9a8a-c382-e3e0-bb82-18d5291337c8/05b223c58ef197aaced69a3db8f59a4d.jpg)
-
----
-
-`@miles 10/1/2021 7:43 PM (UTC)`
-
-10月1号：疫苗灾难将是人类有史以来最大的一次人类大屠杀……每时每刻疫苗，杀人的數字．和速度和危险，都在改写一切的历史。【致所有那些对不打疫苗的人进行霸凌的人们： 请停止霸凌, 因为新冠疫苗正在杀人……To all those who bully people who are not vaccinated: Please stop bullying, because the new crown vaccine is killing people】
-![img](https://media.gettr.com/group37/getter/2021/10/01/19/43/33a5b9d6-445a-79e9-a4ca-b50cd69d5528/out.jpg)
 
 ---
 
