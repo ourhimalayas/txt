@@ -2,37 +2,17 @@
 ---
 
 
-## 2021年10月4日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1575507/)
+## 中共可能会释放热病毒，并将一切归咎于冠状病毒
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1575541/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+撰稿：Ermat【㊙️翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/covid-19-variants.jpg)图片来源：www.un.org
+郭文贵先生在9月23日的直播中说，如果共产党再次释放病毒，它将不是目前的病毒，而是一种死亡率非常高的热病毒。
 
-爆料革命90 天 vs. 要饭烂命90天（上）
-90 Days of the Whistleblower Movement vs 90 Days Begging for survival （P1-2)
+当经济失败，中共在国际上就完蛋，人们会上街游行。当出现大量因接种疫苗而死亡的情况时，中共会继续释放大量的病毒，让人民留在家里。如果共产党再次释放病毒，它将不是目前的病毒，而是一种热病毒，当你感染它时，你将立即流血致死，它的死亡率非常高。现在有数百万人死亡，数亿人被感染，大家都已经习惯了，任何进一步释放病毒的行为都不会受到惩罚。耻辱的面纱被揭开了，每个人都没有羞耻心。中共在日本周围就有一个实验室，一旦毒药被释放，日本一半的人都会死亡，而这一切都会被归咎于冠状病毒。未来中共使用任何生化武器都会被归咎于冠状病毒。
 
-1. 爆料革命公布疫苗的真相
-The truth of the COVID Vaccine was exposed by Whistleblower Movement
+”红色的病毒“、”黑色的疫苗“——一场无声的屠杀正在进行。但人们已从最初的焦虑、恐惧中，慢慢地恢复到往日的平静，也渐渐地也习惯了这种生活，只是增加了口罩、隔离和管制。沉默、冷漠、麻木，一切如常，生活继续、屠杀继续。
 
+参考链接：
 
-2.要饭烂命说郭先生是中共特务
-Begging for survival
-States that Mr. Miles Guo is a CCP intelligent agent
-
-3、爆料革命 公佈COVID -19 解药
-The Whistleblower Movement
-announced the antidote of COVID-19
-
-4、爆料革命 以毒灭共
-The Whistleblower Movement
-Reveal the truth of COVID-19 virus to take down the CCP
-
-5、路大脑袋能教美国如何做决定？
-How can Lude teach the U.S. decision making?
-
-6、爆料革命 以毒灭共
-The Whistleblower Movement
-Taking down the CCP with the truth of COVID-19 virus
-
-[【2021年10月4日】文贵先生盖特原文](https://gettr.com/post/pd8z3b1e3d)
-
-**喜联盟Gnews编辑部**
+[2021年9月23日郭文贵先生G-TV直播小飞象速记版](https://gnews.org/zh-hans/1551197/)
