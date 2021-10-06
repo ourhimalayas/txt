@@ -2,48 +2,43 @@
 ---
 
 
-## 中国PCR采购量在首例COVID确诊前数月激增
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1577102/)
+## 前员工指证脸书“伤害儿童、煽动分裂削弱民主”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577124/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/bc-china-pcr-purchases-spiked-in-months-before-first-known-covid-cases-firm-says.png.jpg)图片来源：BnnBloomberg
-根据东京《NIKKEI Asia》10月5日报道，澳大利亚网络安全公司，［Internet 2.0］的一份报告指出在中国湖北省出现第一例新型冠状病毒病例的官方报告前几个月，2019年5月起该省的PCR测试的订单飙升。
+栏目记者／责任编辑：流浪的阳光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-106.png)
+这几天Facebook可谓遇上了多事之秋 ：本周一（3日）经历了旗下平台全部宕机。故障期间，Facebook的全球市值蒸发最多时近500亿美金，目前略有恢复。
 
-报告称，2019年期间，湖北用于PCR测试的费用约为6740万元人民币（按当前汇率计算为1050万美元），几乎是2018年总额的两倍，上升趋势从5月开始。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9.jpeg)
 
-［Internet 2.0］收集并分析了一个汇总了中国公共采购招标信息的网站的数据。分析团队由美国、英国、澳大利亚和其他国家的情报机构的前官员组成。
+正可谓福无双至，祸不单行，周二（5日）在参议院商务委员会消费者保护小组的听证会作证，Facebook 被猛烈抨击。
 
-该报告使人们对中国关于病毒来源的官方说法产生了进一步的怀疑，这个话题已经加剧了北京和华盛顿之间的紧张关系。中国外交部对该报告的结论提出异议。
+一名前员工告诉美国立法者，该公司的网站和应用程序“伤害儿童、煽动分裂并削弱我们的民主”。
 
-PCR（聚合酶链式反应）测试用于检测样品中是否存在特定的基因序列，其应用范围超出了COVID-19测试。但是报告称，这种不寻常的上升可能预示着一种新的疾病正在湖北省省会武汉及其周边地区蔓延。
+弗朗西斯·豪根（Frances Haugen ）是前脸书产品经理，后来成为吹哨人，并在国会山的听证会上严厉批评了该公司。 Facebook 面临着越来越多的审查，社会也更多地呼吁对科技巨头进行监管。
 
-来自大学的订单增加了一倍，来自中国疾病控制和预防中心的订单增加了五倍，来自动物试验局的订单增加了十倍。来自医院的采购量下降了10%以上。
+豪根告诉参议员，脸书掌握的权力影响深远，与约20亿用户的日常生活紧紧交织， 她呼吁国会需采取行动来解决危机。
 
-月度采购数据显示，2019年5月份的订单激增，特别是来自CDC买家和中国人民解放军。
+参议院两党议员罕见立场一致，认为脸书公司必须做出改变。听证会小组主席布卢门撒尔（Richard Blumenthal）指控脸书公司“道德破产”，其影响将“困扰一整代人”。
 
-“我们认为5月份的支出增加表明这是可能感染的最早开始日期”，报告说。
+郭文贵先生在5日的大直播中爆料，让Facebook 全线崩溃半天的是俄罗斯。
 
-从7月到10月，采购量也急剧上升，特别是来自武汉科技大学。该机构在2019年花了892万元购买PCR测试，大约是前一年总额的八倍。报道称，该大学与当地医院和公共卫生部门一起，在应对新疾病的爆发方面发挥了直接作用。
+从去年美国大选期间的拙劣行为，到现在无所不用其极的阻挡、删除人们发布疫苗害人的真相，助纣为虐黑暗势力掩盖事实，Facebook的结果肯定是非死不可！
 
-这些团体的参与提供了证据，”购买的增加很可能与2019年湖北省出现的COVID-19有关，”报告说。”我们高度自信地评估，该大流行病开始的时间远远早于中国向[世界卫生组织]通报COVID-19的时间。”
+(本文仅代表作者观点)
 
-中国外交部对这些发现提出异议。在对彭博新闻社的回应中，一位发言人说，这些发现与其他关于冠状病毒起源的可疑说法属于同一类别，包括一篇 “所谓的论文”，该论文分析了武汉几家医院附近的交通量，并搜索了 “咳嗽 “和 “腹泻 “等关键词，然后得出结论，武汉的疫情最早于2019年8月开始。
+参考链接: [Facebook Market Cap](https://ycharts.com/companies/FB/market_cap)
+[https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3](https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3)
 
-“病毒的可追溯性是一个严重的科学问题，应该由科学家来解决”，该发言人告诉彭博社。该发言人说，中国国务院新闻办公室发表了一份关于中国抗击Covid-19的行动的白皮书，以 “清晰的时间表和铁的事实 “记录了其抗击该流行病的努力。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-美国和中国从该流行病的早期开始就在这个问题上交锋。北京告诉世卫组织，第一个有症状的病例是在2019年12月8日记录的。但美国的一些人指责说，在那之前，病毒就已经在人类中流传了，有人声称它是从一个研究实验室中泄露出来的。
+终审：暗黑
+校正/发稿：谐趣园
 
-“我们不能仅凭公共采购信息就确定“，独立审查该数据的东京多摩研究生院客座教授Akira Igata说，”但这是强有力的信息，可以说明在那年12月之前的数月以前，武汉周围就有了病毒爆发的情况。这份报告可以为各国提供一个机会，让他们再次向中国索取信息”。
-
-根据哈佛大学和其他机构的研究人员去年的一项研究，武汉医院停车场的卫星图像显示，从2019年8月开始，活动急剧增加。但美国情报机构8月份的一份报告发现，没有证实这种疾病是由动物宿主传出还是从实验室泄露出来。
-
-最新报告的作者之一大卫-罗宾逊说：”关于COVID-19是如何以及何时开始的，中国没有分享可用的数据“。中共的不透明助长了大量的假设、理论、错误信息以及对受害者的心痛“。他补充说，”[Internet 2.0]（发布该报告的网络安全公司）利用我们的技能，试图为世界提供一些可靠的数据，以应对这种大流行病的影响”。
-
-看到这份报告的各国政府应该溯源COVID，而不是推广和强制无效和有害的疫苗。只有查清楚COVID来源，才能制造出有效疫苗。
-
-原文链接：
-[https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
-
-* * *
-
-发稿 Spirit
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

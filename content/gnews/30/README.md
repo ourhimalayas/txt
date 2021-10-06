@@ -2,35 +2,32 @@
 ---
 
 
-## DC每日热点1006
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1576996/)
+## 众议员联名致函拜登总统, 呼吁重新考量中美关系!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577045/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/10/E1A52F6C-8AEF-414B-8540-28DC1682E7C7-scaled.jpeg)
-道琼斯指数 34163.29 ▼0.44%
-纳斯达克指数 14362.11 ▼0.50%
-WTI纽约原油CFD 77.594 ▼1.69%
-布伦特原油CFD 81.245 ▼1.59%
-标普中概股50指数 3,365.69CNY▼21.8%
-美元兑人民币 1USD=6.444RMB
-美元兑港币 1USD=7.785HKD
-国际黄金 1758.31美元/盎司
-全球CCP病毒感染人数 236,726,445 例
+栏目记者/责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-103.png)
+10月5日, 美国共和党籍众议员蒂芬妮/佩里/戴佳雷及史杜比等人联名致函拜登总统, 称美中1979年建交时, 前提条件是中共会和平妥善处理与台湾的分歧，这些承诺和保证被列入”台湾关系法”。 但近几个月中共在台湾周边空域的侵扰行动，清楚表明中共并不打算履行继续这项承诺。
 
-1、日本与英国将于10日7月召开首次缔结军事联合训练等的《互惠准入协定》谈判的会议
-2、美军F-35B战机首次成功在日本直升机航母上起降
-3、台国防部长：从军40年来台海局势现在最严峻
-4、报告：湖北2019年PCR采购大幅增加，表明疫情爆发比之前公布的更早
-5、澳大利亚总理莫里森10月5日说，国际游客可能最快要等到明年才能进入澳大利亚
-6、拜登：与习近平谈到台湾，双方同意遵守“台湾协议”
-7、美国向蒙古国运送辉瑞疫苗
-8、白宫证实：沙利文与杨洁篪将在瑞士会面以缓解紧张关系升级
-9、两岸情势紧张之际 澳大利亚前总理阿博特抵达台湾访问
-10、马来西亚召见中共国大使 抗议中共国船只侵扰专属经济区
-11、欧盟列香港入税务观察名单 港府修例免双重避税应对
-12、脸书公布当机原因超过15亿用户数据被出售
-13、美USTR就549种对华商品关税排除征求意见
-14、美证交会主席：不会效仿中共禁止加密货币
-15、美政府暂停授权向中广核出售核材料
-16、马克龙预计月底与拜登会面，为AUKUS潜舰争议一事修补美法关係
-17、隐瞒与中共的联系 前美军飞行员遭刑事指控
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-4.jpeg)
+
+在此前提下, 议员们呼吁：”美国是时候重新考量与中共国的关系，并考虑是否应该逆转卡特政府时期与台湾的断交决定，并鼓励盟友对此效法。”
+
+根据这份台湾关系法，任何企图以非和平方式来决定台湾前途的举动，包括使用经济抵制及禁运手段在内，都将被视为对西太平洋地区和平稳定的威胁，而为美国所严重关切及引发反应。
+
+(本文仅代表作者观点)
+
+参考链接：[中國企圖武力解決台海問題 美議員促拜登與台復交](https://www.cna.com.tw/news/firstnews/202110060009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龍
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

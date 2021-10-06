@@ -2,32 +2,48 @@
 ---
 
 
-## 众议员联名致函拜登总统, 呼吁重新考量中美关系!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577045/)
+## 中国PCR采购量在首例COVID确诊前数月激增
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1577102/)
 
-栏目记者/责任编辑：云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-103.png)
-10月5日, 美国共和党籍众议员蒂芬妮/佩里/戴佳雷及史杜比等人联名致函拜登总统, 称美中1979年建交时, 前提条件是中共会和平妥善处理与台湾的分歧，这些承诺和保证被列入”台湾关系法”。 但近几个月中共在台湾周边空域的侵扰行动，清楚表明中共并不打算履行继续这项承诺。
+蒙特利尔皇家山战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/10/bc-china-pcr-purchases-spiked-in-months-before-first-known-covid-cases-firm-says.png.jpg)图片来源：BnnBloomberg
+根据东京《NIKKEI Asia》10月5日报道，澳大利亚网络安全公司，［Internet 2.0］的一份报告指出在中国湖北省出现第一例新型冠状病毒病例的官方报告前几个月，2019年5月起该省的PCR测试的订单飙升。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-4.jpeg)
+报告称，2019年期间，湖北用于PCR测试的费用约为6740万元人民币（按当前汇率计算为1050万美元），几乎是2018年总额的两倍，上升趋势从5月开始。
 
-在此前提下, 议员们呼吁：”美国是时候重新考量与中共国的关系，并考虑是否应该逆转卡特政府时期与台湾的断交决定，并鼓励盟友对此效法。”
+［Internet 2.0］收集并分析了一个汇总了中国公共采购招标信息的网站的数据。分析团队由美国、英国、澳大利亚和其他国家的情报机构的前官员组成。
 
-根据这份台湾关系法，任何企图以非和平方式来决定台湾前途的举动，包括使用经济抵制及禁运手段在内，都将被视为对西太平洋地区和平稳定的威胁，而为美国所严重关切及引发反应。
+该报告使人们对中国关于病毒来源的官方说法产生了进一步的怀疑，这个话题已经加剧了北京和华盛顿之间的紧张关系。中国外交部对该报告的结论提出异议。
 
-(本文仅代表作者观点)
+PCR（聚合酶链式反应）测试用于检测样品中是否存在特定的基因序列，其应用范围超出了COVID-19测试。但是报告称，这种不寻常的上升可能预示着一种新的疾病正在湖北省省会武汉及其周边地区蔓延。
 
-参考链接：[中國企圖武力解決台海問題 美議員促拜登與台復交](https://www.cna.com.tw/news/firstnews/202110060009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+来自大学的订单增加了一倍，来自中国疾病控制和预防中心的订单增加了五倍，来自动物试验局的订单增加了十倍。来自医院的采购量下降了10%以上。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+月度采购数据显示，2019年5月份的订单激增，特别是来自CDC买家和中国人民解放军。
 
-终审：文龍
-校正/发稿：谐趣园
+“我们认为5月份的支出增加表明这是可能感染的最早开始日期”，报告说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+从7月到10月，采购量也急剧上升，特别是来自武汉科技大学。该机构在2019年花了892万元购买PCR测试，大约是前一年总额的八倍。报道称，该大学与当地医院和公共卫生部门一起，在应对新疾病的爆发方面发挥了直接作用。
+
+这些团体的参与提供了证据，”购买的增加很可能与2019年湖北省出现的COVID-19有关，”报告说。”我们高度自信地评估，该大流行病开始的时间远远早于中国向[世界卫生组织]通报COVID-19的时间。”
+
+中国外交部对这些发现提出异议。在对彭博新闻社的回应中，一位发言人说，这些发现与其他关于冠状病毒起源的可疑说法属于同一类别，包括一篇 “所谓的论文”，该论文分析了武汉几家医院附近的交通量，并搜索了 “咳嗽 “和 “腹泻 “等关键词，然后得出结论，武汉的疫情最早于2019年8月开始。
+
+“病毒的可追溯性是一个严重的科学问题，应该由科学家来解决”，该发言人告诉彭博社。该发言人说，中国国务院新闻办公室发表了一份关于中国抗击Covid-19的行动的白皮书，以 “清晰的时间表和铁的事实 “记录了其抗击该流行病的努力。
+
+美国和中国从该流行病的早期开始就在这个问题上交锋。北京告诉世卫组织，第一个有症状的病例是在2019年12月8日记录的。但美国的一些人指责说，在那之前，病毒就已经在人类中流传了，有人声称它是从一个研究实验室中泄露出来的。
+
+“我们不能仅凭公共采购信息就确定“，独立审查该数据的东京多摩研究生院客座教授Akira Igata说，”但这是强有力的信息，可以说明在那年12月之前的数月以前，武汉周围就有了病毒爆发的情况。这份报告可以为各国提供一个机会，让他们再次向中国索取信息”。
+
+根据哈佛大学和其他机构的研究人员去年的一项研究，武汉医院停车场的卫星图像显示，从2019年8月开始，活动急剧增加。但美国情报机构8月份的一份报告发现，没有证实这种疾病是由动物宿主传出还是从实验室泄露出来。
+
+最新报告的作者之一大卫-罗宾逊说：”关于COVID-19是如何以及何时开始的，中国没有分享可用的数据“。中共的不透明助长了大量的假设、理论、错误信息以及对受害者的心痛“。他补充说，”[Internet 2.0]（发布该报告的网络安全公司）利用我们的技能，试图为世界提供一些可靠的数据，以应对这种大流行病的影响”。
+
+看到这份报告的各国政府应该溯源COVID，而不是推广和强制无效和有害的疫苗。只有查清楚COVID来源，才能制造出有效疫苗。
+
+原文链接：
+[https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case](https://asia.nikkei.com/Spotlight/Coronavirus/China-PCR-test-orders-soared-before-first-confirmed-COVID-case)
+
+* * *
+
+发稿 Spirit
