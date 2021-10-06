@@ -2,43 +2,63 @@
 ---
 
 
-## 前员工指证脸书“伤害儿童、煽动分裂削弱民主”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577124/)
+## 2021/10/04大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577220/)
 
-栏目记者／责任编辑：流浪的阳光
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-106.png)
-这几天Facebook可谓遇上了多事之秋 ：本周一（3日）经历了旗下平台全部宕机。故障期间，Facebook的全球市值蒸发最多时近500亿美金，目前略有恢复。
+**主播**：大卫｜**嘉宾**：草根小哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9.jpeg)
+[GTV视频链接](https://gtv.org/video/id=615aec9c304e992109af547f)
 
-正可谓福无双至，祸不单行，周二（5日）在参议院商务委员会消费者保护小组的听证会作证，Facebook 被猛烈抨击。
 
-一名前员工告诉美国立法者，该公司的网站和应用程序“伤害儿童、煽动分裂并削弱我们的民主”。
 
-弗朗西斯·豪根（Frances Haugen ）是前脸书产品经理，后来成为吹哨人，并在国会山的听证会上严厉批评了该公司。 Facebook 面临着越来越多的审查，社会也更多地呼吁对科技巨头进行监管。
+**板块1–中共病毒**
 
-豪根告诉参议员，脸书掌握的权力影响深远，与约20亿用户的日常生活紧紧交织， 她呼吁国会需采取行动来解决危机。
+1. 加州成为第一个要求中小学生接种疫苗的州，福奇配合为加州“辩护”。强推疫苗政策，激发人民从众心理，媒体控制关于疫苗负面信息，全球邪恶力量全面布局，人类基因清洗计划正在进行时。
 
-参议院两党议员罕见立场一致，认为脸书公司必须做出改变。听证会小组主席布卢门撒尔（Richard Blumenthal）指控脸书公司“道德破产”，其影响将“困扰一整代人”。
+2. 高福汇报关于病毒在动物界变异后再回传人类的研究。目的将病毒甩锅自然界，暗示将有新的病毒“登场”。
 
-郭文贵先生在5日的大直播中爆料，让Facebook 全线崩溃半天的是俄罗斯。
+3. 国内战友“苦恼”某地要求出示接种疫苗证明，想尽各种方法躲避，在疫苗真相大白后，全世界关于疫苗反向追溯的力量将是巨大的。
 
-从去年美国大选期间的拙劣行为，到现在无所不用其极的阻挡、删除人们发布疫苗害人的真相，助纣为虐黑暗势力掩盖事实，Facebook的结果肯定是非死不可！
+4. 辉瑞公司被爆利用孤儿婴儿做实验，如果坐实将是犯罪。
 
-(本文仅代表作者观点)
+5. 福奇新邮件被证明资助武汉实验室人员培训，涉及具体名单、项目负责人、中国重要领导人出席等，证实中共参与武汉实验室研究。结合川普避而不谈接触武汉实验逃出来的人员，蓬佩奥已看到相关情报却只批评和评论并不下定论，佐证新冠病毒就是中共的生化战。
 
-参考链接: [Facebook Market Cap](https://ycharts.com/companies/FB/market_cap)
-[https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3](https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3)
+6. 牛津大学预印本研究表明，阿斯利康疫苗接种90天后感染率与未接种者相同，疫苗活性并不能长期活跃。疫苗接种后理想状态感染率和死亡率都应下降，实际情况是接种后感染率和死亡率还上升，证明疫苗无效。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**板块2–财经**
 
-终审：暗黑
-校正/发稿：谐趣园
+1. 传美国将取消三分之一对中国商品的关税，拜登松绑川普对中共国贸易政策。美国对原材料供应、生产销售渠道稳定、劳动力稳定要求高，例如：英国正因劳动力短缺经历“油荒”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2. 中共在国内有计划停电直接损伤老百姓利益，导致对全球原材料供应降低，效应反馈到美国因原材料供应不足，影响劳动力和生产销售稳定，造成失业人员上升领取政府救济金，美加速印钞增发货币（2020年股市上涨主要原因是部分超发货币回流股市和科技企业支撑），中共国断电直接影响特斯拉、苹果等科技企业，增加国际和美国经济不稳定因素，如果再配合对台行动，将引发美股脆断美元暴跌，盗国贼家族趁机做空大赚洗钱。
+
+3. 中共国和美国的经济脱钩正在进行时，如果美SEC无法获得2021年的财务审计报告，将在2022年进行标记，中共国公司退市倒计时。
+
+**板块3-国际政治**
+
+1. 拜习电话后，政治勾兑完成，孟晚舟回国、关税大棒松绑、中共国停电。
+
+2. 中共国创历史38架军机飞台湾防空区，前提跟美国“打招呼”，目的震慑台湾、国内激发民主情绪。
+
+3. 中共国军机降落在阿富汗美国废弃的空军基地，13名牺牲的士兵激起美国国内不满，阿富汗撤军整体战术的失败，蓬佩奥警告批评拜登政府“绥靖”向中共国低头。
+
+4. 日本新任首相岸田文雄保留现任国防部长以应对中共国，强硬派对中共国。之前积极推疫苗政策，风向呼声高，对中共国属于温和派的河野太郎在关键时刻被换下，日本保持对中共国的警惕。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/EZijeGoCTDyvq/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/EZijeGoCTDyvq/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*听写：call me uncle | 校对：乐禧禧* *| Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -15,127 +15,127 @@
 
 ---
 
-### [2021年10月6日 文贵先生盖特 1](/content/gnews/1/README.md)
+### [2021年10月6日 文贵先生盖特 6](/content/gnews/1/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [秘翻在线：两岁幼儿感染中共病毒进 ICU 母亲曾感染父亲曾注射疫苗](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [法国议会报告：中共在学术界的影响占主导地位](/content/gnews/3/README.md)
- ` 日本东京方舟农场`
-
-### [台湾国防部长：从军40多年来台海局势当前最严峻](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [瑞典暂停针对30岁以下的 Moderna疫苗](/content/gnews/5/README.md)
- ` Charlie`
-
-### [美国，没有债务上限会增加全球金融危机](/content/gnews/6/README.md)
- ` Charlie`
-
-### [银河快讯：建材等住房相关产品价格上涨；原油价格上涨引发股价下跌](/content/gnews/7/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [中共国的地方债与房地产泡沫](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
-
-### [法参议员抵台 沙利文将在瑞士与杨洁篪会谈](/content/gnews/9/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：英国政府对疫苗灾难视而不见](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [10/6/21 香港快讯 林郑：积极推展 23 条 打击假新闻、管网络](/content/gnews/11/README.md)
- ` 英喜-粵語組`
-
-### [2021/10/04大卫作战室直播精要](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [三票专栏：中共是如何用房地产泡沫掠夺中国和全世界人民的](/content/gnews/13/README.md)
- ` 三票先生`
-
-### [秘翻在线：美国政府资助研究流产婴儿引争议](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021/10/05大卫作战室直播精要](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国和中共科学家大流行爆发之前就计划制造一种新的冠状病毒](/content/gnews/16/README.md)
- ` 象声`
-
-### [有声|“潘朵拉文件”发酵,香港前特首梁振英被曝光!](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [没有变异病毒株就研发疫苗？](/content/gnews/18/README.md)
- ` 首尔天池农场`
-
-### [地方债是插在每个人身上的吸血管](/content/gnews/19/README.md)
- ` 波士顿五月花农场`
-
-### [10/5/2021 七哥直播：太平联盟为攻击文贵而炮制假案，其下场一定很惨](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
-
-### [秘翻在线: 第三次世界大战可能“随时”爆发](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [前员工指证脸书“伤害儿童、煽动分裂削弱民主”](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [疫苗的副作用](/content/gnews/23/README.md)
- ` 纽约香草山MOS02`
-
-### [10/5/2021 七哥直播：中共国的假骗金融票据数字惊人](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [中国共产党一定会走的，不走是不行的！](/content/gnews/25/README.md)
- ` 首尔天池农场`
-
-### [中国PCR采购量在首例COVID确诊前数月激增](/content/gnews/26/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [新任首相岸田文雄欢迎台湾加入CPTPP](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [中国秘密社会史&#8212;兴中会与同盟会](/content/gnews/29/README.md)
- ` 骄子`
-
-### [众议员联名致函拜登总统, 呼吁重新考量中美关系!](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [“断电门”后, WhatsApp 用户的隐私设定可能被重置!](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [四川南充遭遇泄洪和洪峰过境](/content/gnews/32/README.md)
- ` 首尔天池农场`
-
-### [10/06/2021 国际财经快讯：日本央行黑田东彦称日本劳动惯例使工资压力得到控制；多国劳动力市场面临工人短缺的难题](/content/gnews/33/README.md)
- ` 秘密翻译组金融团队`
-
-### [新冠疫苗后在土耳其出生了有尾巴，四条腿和三条手臂等畸形婴儿](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [拜习峰会：这是杨洁篪会晤沙利文的主要任务](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [杰森·米勒：GETTR本周末测试直播；还有全新炫酷功能](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【潘多拉文件】引发全球震荡](/content/gnews/37/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [顶级医生称伊维菌素可帮助治疗COVID，敦促进行更多研究](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/10/03 文贵先生直播精要](/content/gnews/39/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [前国务卿蓬佩奥：拜登令美国屈服于竞争对手](/content/gnews/40/README.md)
+### [郭文贵直播摘要和音频 2021.10.5](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：蔡英文警告，台湾被中共占领将是灾难后果](/content/gnews/41/README.md)
+### [美联储主席鲍威尔表示“无意”禁止加密货币](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年10月6日 文贵先生盖特 5](/content/gnews/4/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月6日 文贵先生盖特 4](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [香港地产代理起诉恒大要求其偿付佣金](/content/gnews/6/README.md)
+ ` 象声`
+
+### [2021年10月6日 文贵先生盖特 3](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月6日 文贵先生盖特 2](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [澳大利亚人们需要意识到发生在我们身上的事情……我们需要站起来说够了！](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年10月6日 文贵先生盖特 1](/content/gnews/10/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [年轻女性死后斯洛文尼亚叫停强生疫苗接种](/content/gnews/11/README.md)
+ ` HimalayaRussia`
+
+### [秘翻在线：两岁幼儿感染中共病毒进 ICU 母亲曾感染父亲曾注射疫苗](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国议会报告：中共在学术界的影响占主导地位](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [台湾国防部长：从军40多年来台海局势当前最严峻](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [瑞典暂停针对30岁以下的 Moderna疫苗](/content/gnews/15/README.md)
+ ` Charlie`
+
+### [美国，没有债务上限会增加全球金融危机](/content/gnews/16/README.md)
+ ` Charlie`
+
+### [银河快讯：建材等住房相关产品价格上涨；原油价格上涨引发股价下跌](/content/gnews/17/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共国的地方债与房地产泡沫](/content/gnews/18/README.md)
+ ` 波士顿五月花农场`
+
+### [法参议员抵台 沙利文将在瑞士与杨洁篪会谈](/content/gnews/19/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线：英国政府对疫苗灾难视而不见](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [10/6/21 香港快讯 林郑：积极推展 23 条 打击假新闻、管网络](/content/gnews/21/README.md)
+ ` 英喜-粵語組`
+
+### [2021/10/04大卫作战室直播精要](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [三票专栏：中共是如何用房地产泡沫掠夺中国和全世界人民的](/content/gnews/23/README.md)
+ ` 三票先生`
+
+### [2021/10/05大卫作战室直播精要](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国和中共科学家大流行爆发之前就计划制造一种新的冠状病毒](/content/gnews/25/README.md)
+ ` 象声`
+
+### [有声|“潘朵拉文件”发酵,香港前特首梁振英被曝光!](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [没有变异病毒株就研发疫苗？](/content/gnews/27/README.md)
+ ` 首尔天池农场`
+
+### [10/5/2021 七哥直播：太平联盟为攻击文贵而炮制假案，其下场一定很惨](/content/gnews/28/README.md)
+ ` 秘密翻译组-北美组`
+
+### [前员工指证脸书“伤害儿童、煽动分裂削弱民主”](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [10/5/2021 七哥直播：中共国的假骗金融票据数字惊人](/content/gnews/30/README.md)
+ ` 秘密翻译组-北美组`
+
+### [新任首相岸田文雄欢迎台湾加入CPTPP](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [众议员联名致函拜登总统, 呼吁重新考量中美关系!](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [“断电门”后, WhatsApp 用户的隐私设定可能被重置!](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [四川南充遭遇泄洪和洪峰过境](/content/gnews/35/README.md)
+ ` 首尔天池农场`
+
+### [10/06/2021 国际财经快讯：日本央行黑田东彦称日本劳动惯例使工资压力得到控制；多国劳动力市场面临工人短缺的难题](/content/gnews/36/README.md)
+ ` 秘密翻译组金融团队`
+
+### [拜习峰会：这是杨洁篪会晤沙利文的主要任务](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [杰森·米勒：GETTR本周末测试直播；还有全新炫酷功能](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【潘多拉文件】引发全球震荡](/content/gnews/39/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [顶级医生称伊维菌素可帮助治疗COVID，敦促进行更多研究](/content/gnews/40/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [前国务卿蓬佩奥：拜登令美国屈服于竞争对手](/content/gnews/41/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
 ### [针下亡魂｜希腊 60 岁男检察官接种疫苗后肺栓塞死亡](/content/gnews/42/README.md)
