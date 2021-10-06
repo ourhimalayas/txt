@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/6/2021 1:16 PM (UTC)`
+
+大胡子医生：疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件<br/><br/>Dr. Zelenko: The vaccines may cause various fatal diseases, which could be potentially genocidal
+![img](https://media.gettr.com/group43/getter/2021/10/06/13/16/724195d5-4ff4-43a1-4a3a-704432081377/out.jpg)
+
+---
+
+`@miles 10/6/2021 1:11 PM (UTC)`
+
+Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. We will see in court!<br/><br/>托马斯·伦茨律师：如果你接种疫苗，你更有可能感染中共病毒。我们法庭见！<br/>
+![img](https://media.gettr.com/group18/getter/2021/10/06/13/11/98f76fff-ba51-0350-7a99-d39898168574/out.jpg)
+
+---
+
 `@miles 10/6/2021 4:30 AM (UTC)`
 
 10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse <br/><br/>10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃<br/>
@@ -281,20 +295,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 🙏🙏🙏
 > `@jasonmillerindc 10/2/2021 1:19 PM (UTC)`<br/>Who's Hot on #GETTR<br/><br/>These are the 10 fastest growing accounts in the U.S. right now!<br/><br/>@NRA<br/>@MaxMAGA<br/>@Conservativee_<br/>@ToddStarnes<br/>@MTG4America<br/>@Mr3Rights<br/>@TimMurtaugh<br/>@GatewayPundit<br/>@EpochTV<br/>@MarkLevinShow
-
----
-
-`@miles 10/2/2021 1:25 PM (UTC)`
-
-10月2号：尊敬的战友们好！你们健身了吗？传播疫苗灾难，CCP病毒的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group35/getter/2021/10/02/13/25/abf806aa-f86a-12e3-796c-51d10b99c059/out.jpg)
-
----
-
-`@miles 10/2/2021 12:13 PM (UTC)`
-
-10月2号．兔子还没死呢，狐狸已经感到悲哀了，胡舒立闻到味道了，知道王岐山孟建柱，他的真正的靠山，要到啦。当然胡已经边控了几年了，这回一定要收进监狱了！【七哥，味道不對了。。。。剛看了，微博確實有，不清楚的照片是我拿手機拍的🙏🙏🙏】
-![img](https://media.gettr.com/group29/getter/2021/10/02/12/a0ef6836-216b-1c93-0ae6-f899ef552e00/62cf0811ee070dcf730677d2dd9815bd.jpg)
 
 ---
 
