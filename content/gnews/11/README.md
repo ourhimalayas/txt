@@ -2,17 +2,25 @@
 ---
 
 
-## 秘翻在线:CIA在电报中承认失去了大量线人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576681/)
+## 秘翻在线：全球供应链危机将持续到2023年
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576723/)
 
-#### 翻译/撰稿：zzballack
+#### 文章撰写：寶寶
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-2-2.jpg)图片来源：每日邮报
-据《布雷特巴特新闻网》（Breitbart News）10月5日报道，《纽约时报》（New York Times）本周二的一篇文章援引知情人士消息说，美国中央情报局（CIA）的全球各个站点在上周收到了一封绝密电报，电报说在过去几年中，有数十名CIA海外线人被杀、被捕或者被策反。这份电报列出了被对手情报机构处决的特工的具体人数，通常情况下反情报官员不会在此类电报分享这个秘密细节。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-06_18-30-58.png)
 
-据报道，这份电报指出，CIA在世界各地努力招募间谍时遇到了困难。文章说：“近年来，俄罗斯、中共国、伊朗和巴基斯坦等国家的敌对情报机构一直在追查中情局的消息来源，并在某些情况下将中情局特工变成双重间谍。”一些国家利用生物识别扫描、面部识别、人工智能和黑客工具等手段跟踪中情局官员的行动，以确定他们的消息来源，而且这一手段越来越厉害。“某前官员说，线人流失并不是一个新问题。但电报内容表明这个问题比公众所理解的更加严峻。”
+据《零对冲》10月4日报道，全球央行行长一直在宣传通胀是“暂时性”的说法。从逻辑上讲，供应链瓶颈导致的通货膨胀会自行解决，但这些官员尚未提供时间表，因为他们不知道。
 
-美联社（Associated Press）2020年7月曾报道过，伊朗的一位前国防部雇员礼萨·阿斯加利 (Reza Asgari)因为被伊朗司法部认定为CIA从事间谍活动而被处决。2020年8月，已退休的中情局官员、67岁的马玉清（Alexander Yuk Ching Ma）因被指控向中共特工出售美国情报机密而被捕。”指控马玉清的一段视频证据说他在提供机密信息后获得了5万美元现金报酬。”
+为了更深入地了解全球供应链瓶颈何时会消退，迪拜最大的国际港口运营商之一迪拜DP World董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆（Sultan Ahmed Bin Sulayem）周五在2020年迪拜世博会接受彭博电视采访时表示，供应链问题可能会持续两年。
 
-新闻来源：[Report: CIA Admits Losing Numerous Informants in Top Secret Cable](https://www.breitbart.com/national-security/2021/10/05/report-cia-admits-losing-numerous-informants-in-top-secret-cable/)
+“在疫情开始时，全球供应链处于危机之中，”本·苏拉耶姆说。 “也许在2023年我们会看到缓和。”
+
+他指出集装箱费率飙升，并表示价格上涨是由于短缺和积压延误造成的。 “运费将继续上涨，航运公司正因此受益，”他补充道。
+
+全球最大的航运公司A.P.穆勒-马士基（A.P. Moller-Maersk）最近警告说，供应链瓶颈可能会持续比预期更长的时间，一些托运人已要求限制运费单价。 DHL和UPS还警告说，供应链混乱不仅会持续到明年，而且可能会留下永久的影响。
+
+安联前PIMCO首席执行官兼首席经济顾问穆罕默德·埃里安（Mohamed El-Erian）也认为供应链问题将会持续至少一到两年，促使全球范围内生产价格继续飙升，最终推高消费价格。
+
+参考文章：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](https://www.zerohedge.com/commodities/global-supply-chain-crisis-last-until-2023-says-middle-easts-largest-port-operator)
+
+本文仅代表作者本人观点，不代表Gnews平台

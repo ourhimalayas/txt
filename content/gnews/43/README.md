@@ -2,36 +2,20 @@
 ---
 
 
-## 加州橙县海滩遭大规模漏油污染
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576014/)
+## 索罗斯基金预测中概股将被退市 虚拟货币已成主流
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576213/)
 
-栏目记者：QMAY
-责任编辑：正义的小新
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-11.jpg)图片来源：网络截图
+10月5日据零对冲报道，在索罗斯和北京之间的争吵升级后，基金管理家族办公室的首席信息官道恩·菲茨帕特里克表示，该公司正在避免在中国投资：“我们现在不把钱投入中国，”她说，并补充说，投资者在将现金投入美中上市时需要“非常小心”。她解释说，投资者对中共国正在做的事情以及政府愿意容忍其有计划的经济破坏程度感到惊讶。
 
+索罗斯不把钱投入中国的真正原因是钱会立即烟消云散：乔治·索罗斯公开批评了中共国国家主席习近平的政策，并在上个月的《华尔街日报》专栏文章中表示，“现在向中共国倾注数十亿美元是一个悲剧性错误。”
 
+无论如何，据索罗斯首席信息官称，目前在美国交易的中共国公司将在很大程度上必须退市并转移到香港，中共国的早期风险投资公司还需要“一段时间”才能上市。因此，尽管一些大牌公司近期可能会在香港上市，但总体而言，中共国从私有到公有的道路将花费很长的时间。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+“二十年来，拥有西方资本和西方既得利益的中共国科技公司非常符合中共的目标。他们现在不再需要在美国上市了，所以他们可以拿走7000亿美元，然后去香港上市，”菲茨帕特里克说。“我认为这就是他们要做的事情。”
 
+另一个值得注意的观察：索罗斯是继史蒂夫·科恩的《Poin 72》和丹·勒布的《第三点》的脚步进入加密交易的最大的对冲基金。她说：“我们拥有一些虚拟加密币——不多——但货币本身不如“去中心化金融”或类似的东西有趣。”她指出，“加密货币已成为主流。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-1.jpg)
-10月2日，加州橙县海岸附近发生重大漏油事故，漏出的原油污染了大片海滩，杀死众多鱼类和鸟类，并威胁到当地的湿地。该泄漏事故，与亨廷顿海滩附近的一条与海上石油平台相连的管道有关。这次石油平台的故障，导致至少 12万6千加仑原油泄漏到沿海水域，形成了一个面积约 8,320 英亩的浮油，并在周日早些时候扩散到纽波特海滩。泄漏的石油还渗入了亨廷顿海滩附近、占地 25 英亩的生态保护区。
-
-加州官员周日下午表示，泄漏已得到控制。但橙县负责人卡特里娜·弗利表示，石油仍在不断地泄漏，潜水员在周日早些时候仍在紧张修复。截至目前，尚不清楚泄漏的原因。
-
-（本文仅代表作者观点）
-
-参考链接：[加州橙县海滩遭大规模漏油污染](https://www.latimes.com/california/story/2021-10-02/coast-guard-rushes-to-contain-newport-beach-oil-slick)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+原文链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)
