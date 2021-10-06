@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/6/2021 4:17 PM (UTC)`
+
+10.6:太棒了👏
+![img](https://media.gettr.com/group38/getter/2021/10/06/16/17/b223d41d-db47-7354-d0e8-a9489f572031/out.jpg)
+
+---
+
 `@miles 10/6/2021 3:24 PM (UTC)`
 
 10月6号：尊敬的战友们好……中共的政治，经济，军事，粮食，房地产，金融……全部在崩溃的边缘。所有的现在整个中共的一切形式，就是大跃进的高峰时期一模一样。上蒙下骗．都在等待着敌对方早于自己倒下，这是一种魔鬼的灭亡前必然发生的各种征兆，中仑律师事务所，国内的原司法部们的<br/>以超限战的方式。以与美国等西方以合作的名义渗透西方律师界．法院，检察官，的这些律师事务所，将被西方刑事调查。这些犯罪分子，例如中仑的创始人张学军等人……一定会被西方依法调查，法办。收到了国内各界战友们，对七哥直播的反馈信息．明天七哥可能继续大直播！
@@ -288,13 +295,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 🤪🤪🤪
 > `@jasonmillerindc 10/2/2021 1:19 PM (UTC)`<br/>Who's Hot on #GETTR<br/><br/>These are the 10 fastest growing accounts in the U.S. right now!<br/><br/>@NRA<br/>@MaxMAGA<br/>@Conservativee_<br/>@ToddStarnes<br/>@MTG4America<br/>@Mr3Rights<br/>@TimMurtaugh<br/>@GatewayPundit<br/>@EpochTV<br/>@MarkLevinShow
-
----
-
-`@miles 10/2/2021 1:47 PM (UTC)`
-
-🆘🆘🆘
-> `@jasonmillerindc 10/2/2021 1:30 PM (UTC)`<br/>Who is lighting it up across the Pond in the U.K.?<br/><br/>These are the five fastest growing accounts for the week!<br/><br/>@RealPJW<br/>@LotusEaters_com<br/>@TommyRobinson1 (one of my favorite follows – pure fire, day in and day out!)<br/>@David007<br/>@LozzaFox<br/><br/>And definitely give a follow to @VictorHaggard as there will be some great content coming soon!
 
 ---
 
