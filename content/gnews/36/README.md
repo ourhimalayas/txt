@@ -2,29 +2,37 @@
 ---
 
 
-## 加拿大越来越专制：安省副议长因拒绝接种疫苗被免职
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1575792/)
+## 全球供应链“灾难”将会变得更糟
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575794/)
 
-#### 加拿大多伦多枫叶农场  丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-05-下午8.33.40.png)图片来源于网络
-据《环球邮报》5日报道，安大略省立法机构副议长里克·尼科尔斯 （Rick Nicholls）先生，因为拒绝接种中共病毒疫苗而被免去副议长职务。
+作者：加拿大枫叶农场-文仁
 
-尼科尔斯被免职的原因，是他违反了安省省长道格.福特（Doug Ford）要求政府核心人员全部接种疫苗的要求，因此“安省政府将于6日上午马上采取行动，提名另一名议员担任副议长。”
 
-尼科尔斯去年还是安省保守党执政党团成员之一，他因为拒绝接种疫苗在去年8月被保守党从执政党团会议中除名，但继续担任副议长至今。
 
-该报道称，安省反对派政治家举报了另外两名保守党成员既不接种疲苗，也没有疫苗接种医疗豁免证明。显然，出现这种无耻的举报现象，表明加拿大的道德沦丧正在从权力阶层开始向外蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-加拿大政府在疫苗严重毒副作用充分暴露，多个发达国家不再强制接种疫苗并取消疫苗护照的情况下，仍然在无耻地推动疫苗护照，甚至将强制接种扩大到12岁以上儿童，同时正在计划将接种范围扩大到5岁儿童，确实让人无比愤怒和难以理解。
 
-尼科尔斯仅仅因为不愿意接种疫苗而被剥夺公职，这是完全不合法的，说明加拿大正在变得越来越专制，法律至上的原则已经被严重侵蚀，如果人民不加以制止，不坚决从这些腐败政客中夺回天赋人权，加拿大就有可能变成专制国家。
 
-已经有大量证据证明，主导强推疫苗并毫无道理地拒绝疫苗之外其他治疗方法的机构或个人，都和疫苗利益集团有肮脏的关系。
+据彭博社报道，十月初四零售界的商业“高峰”的开始，但是今年该行业已经处于各种形式的恐慌之中。通常，这种状况要到圣诞节前几周才会出现。
 
-值得注意的是，尼科尔斯是被自己所在的保守党两度暗算的。安省保守党堕落卑鄙至此，难怪在本次大选中惨败，还好，安省人的眼睛是雪亮的。
+当中共病毒在 2020 年初打击全球经济，导致工厂减产或关闭。与此同时，供应链也被苏伊士运河堵塞等众多事件，以及劳动力短缺和运输成本飙升等市场动态所扼杀。
 
-参考来源：
+在欧洲，由于交货延迟，服装连锁店 H&M 等零售商也无法满足客户需求。在美国，耐克因越南工厂关闭，导致生产中断，之后被迫下调了销售预期。新冠病毒的大爆发使港口码头闲置，导致没有足够的集装箱，因而集装箱的价格比一年前飙升 10 倍。劳动力短缺，导致卡车运输停滞，美国缺人的岗位的人数达到历史新高。
 
-[Ontario MPP Rick Nicholls out as deputy speaker at legislature after COVID-19 vaccination refusal](https://www.theglobeandmail.com/canada/article-ontario-mpp-rick-nicholls-out-as-deputy-speaker-at-legislature-after/)
+中共的病毒疫情已经给世界的制造业和经济带来了巨大的打击。这接踵而来的全球物流“灾难”也一时难以缓冲，让人们原本满怀期待的圣诞经济复苏，也变得希望渺茫。
 
-（文章仅代表作者观点，与GNEWS无关）
+【参考链接】[https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348](https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

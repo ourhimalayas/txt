@@ -2,39 +2,27 @@
 ---
 
 
-## 美NIH院长科林斯将辞职
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575795/)
+## 中共国前公安详述打击新疆维族酷刑细节
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1575851/)
 
-作者：香草山写作组-文一
+![](https://assets.gnews.org/wp-content/uploads/2021/10/57845643_303.jpg)中共国前公安详述打击新疆维族酷刑细节 网络图片
+德国之声中文网10月5日报道，一位流亡欧洲的中共国前公安展示了自己的任职证明文件，并匿名透露了针对新疆维族的酷刑细节。其中许多情节与CNN采访的另外两位维族受访者的证词一致，情节骇人听闻。
+
+2015年，在中共国警察部队工作10多年的江姓警员收到一份“援助新疆”的公文。提到中央计划从各省招募15万名警务助理加入国家反恐斗争。除了对抗国安威胁，工资多一倍，还有晋升机会和其他福利。
+
+抵达新疆后，这些警员根据名单有计划、系统性的实施抓捕，使得拘留人数达到一定配额。江警员称那段时间为“战斗时期”，新疆如同一个战区，维吾尔人被描述为国家敌人。每一个被拘留者都会遭到殴打，无论男女老幼。只有嫌疑人认罪后才会停止酷刑。
+
+江警员还提到了性酷刑。来自新疆、现定居挪威的维吾尔族学者阿尤普和哈萨克斯坦公民贝卡利都证实了江姓警员的说法。他们都曾在被关押期间遭受酷刑和轮奸。江警员对中共的腐败和残酷感到失望，所以逃到海外并揭露一切。江警员知道自己不可能再回中共国，他会被指控一切可以想象的罪名，被捕入狱，甚至被害。
+
+有些幸运的新疆受害者被释放后离开中共国定居海外，但是他们无法忘记在集中营时的遭遇，这是一生的创伤。中共对中国人民犯下了残酷的种族灭绝行为，将来必会受到刑事审判。苍天饶过谁？作恶的必有报应，期待那一天早日到来。每一个人行动起来，早日铲除中共。
+
+新闻参考链接：[https://www.dw.com/zh/媒体中国前公安详述打击新疆维族酷刑细节/a-59406441](https://www.dw.com/zh/媒体中国前公安详述打击新疆维族酷刑细节/a-59406441)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
-美国国立卫生研究院NIH周二宣布，该院院长科斯林，在工作近三十年，在位12年后，计划年底离任。据相关人士透露，他离职其实已经有一段时间了。
-
-科斯林现年71岁，为内科遗传学家，在位期间历经三届总统，是任职时间最长的院长。柯林斯领导了全球人类基因组测序的工作，并发现了囊性纤维化的基因。2007年，成立BioLogos基金会，一个旨在调和宗教与科学的团体。
-
-据悉，首席副主任劳伦斯-塔巴克（Lawrence Tabak）可能会成为代理主任。
-
-参考链接：
-
-[https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh](https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh)
-
-[https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji](https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

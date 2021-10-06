@@ -2,39 +2,57 @@
 ---
 
 
-## 国际要闻汇编
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1575982/)
+## 美国国务院：美国贸易代表宣布了美国将重新调整对华贸易政策
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1576000/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/10/pasted-image-0-4.png)[*图片来源*](https://gdb.voanews.com/9866D2E0-1787-4DC3-BCBB-253F00EF67DF_w1597_n_r1_st.jpg)
-**10月6日汇编**
+美国国务院： 我们欢迎与 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hashtag_click) 的竞争，但这种竞争需要公平和负责任地管理。美国贸易代表宣布了美国将围绕我们的优先事项重新调整对华贸易政策的初步步骤：[http://go.usa.gov/xMdyg](https://t.co/Ssd10LTWia?amp=1)。
 
-[**1、研究：第二剂mNRA疫苗让这类人患心肌炎几率增3倍**](https://www.aboluowang.com/2021/1006/1655765.html)
 
-根据周一（4日）发表的一项大型新研究，接种第二剂辉瑞/BioNTech和Moderna新冠疫苗可能导致年轻男性患上罕见心脏病的几率增加3倍，该研究发现，在平均年龄为25岁的接种第二剂疫苗的男性中，每一百万人中出现5.8例病例。接种第一剂后的风险要低得多，为每一百万0.8例，并不高于该年龄组的常规情况。研究结果发表在JAMA Internal Medicine期刊上。此前的其他研究也发现接种疫苗会增加患心肌炎的风险。以色列8月发表的一项研究查看了约200万人的电子健康记录，发现与未接种疫苗的人相比，每10万名接种疫苗者会多发生2.7例心肌炎。但同一项研究发现，感染新冠病毒而引发的心肌炎风险要高得多，导致每10万名感染者多出现11例心肌炎病例。
 
-[**2、欧盟领导人召开峰会，谋划新的对华和对美策略**](https://www.voachinese.com/a/EU-summit-us-china-2021-1005/6258590.html)
+> We welcome competition with the People’s Republic of China, but that competition needs to be fair and managed responsibly. [@USTradeRep](https://twitter.com/USTradeRep?ref_src=twsrc%5Etfw) announced the initial steps the U.S. will take to re-align our trade policies towards the PRC around our priorities: [https://t.co/yCcKGM3aMJ](https://t.co/yCcKGM3aMJ).
+> — Department of State (@StateDept) [October 5, 2021](https://twitter.com/StateDept/status/1445509102373781509?ref_src=twsrc%5Etfw)
 
-欧洲联盟27国领导人周二（5日）在斯洛文尼亚举行的峰会上开始谋划一个新的有关中国和有关美国的战略。这是欧盟自3月份对北京实施制裁以来这些领导人就中欧战略举行的首次峰会，也是他们自西方从阿富汗混乱的撤军和法国失去与澳大利亚签订的价值数百亿美元的潜艇交易以来的首次会晤。欧盟27国与中国的紧张关系以及不断上涨的能源价格都在议程之上。欧盟领导人还讨论了如何制定一个更强有力的欧洲外交政策。 主持这次峰会的欧洲理事会主席米歇尔表示，欧盟需要展示“集体智慧”来酝酿欧洲的反应。这次非正式会谈旨在为本月晚些时候在布鲁塞尔举行的欧盟峰会和明年3月的欧洲防务会议做准备。
 
-[**3、沙利文与杨洁篪将在瑞士会面以缓解紧张关系升级**](https://www.voachinese.com/a/US-envoy-Sullivan-to-meet-China-Yang-Jiechi-this-week-20211005/6257842.html)
 
-据路透社消息，白宫周二(5日)证实，美国总统拜登的国家安全顾问沙利文(Jake Sullivan)和中共级别最高的外交官员杨洁篪将于本周在瑞士举行会谈。白宫发布的新闻稿说，沙利文和杨洁篪将对拜登9月9日与习近平的通话采取后续行动，继续寻求负责任地管理美中两国之间的竞争。这次会谈是在美中关系不断恶化和台海局势升温的时候举行的。路透社表示，美中关系在前总统特朗普时期急剧恶化，而拜登政府也因香港、新疆与2019冠状病毒大流行病的溯源等多项议题，维持对中国施压。中国也对美国加强支持台湾感到愤怒，认为美国在推动台湾独立的独立运动。
+参议员瑞克·斯科特： 拜登的财政部长希望监控美国人的财务往来。拜登的司法部部长希望让批判种族理论的反对者保持沉默。这就是中国、俄罗斯和古巴政权目前所做的：窥探他们的公民并压制异议。拜登 = 系统性社会主义。 【附每日电讯：拜登因“武器化”司法部反对父母们发对批判种族理论】
 
-[**4、蔡英文总统警告：台湾若落入中共之手，将产生“灾难性”后果**](https://www.voachinese.com/a/Taiwan-president-warns-of-catastrophic-consequences-if-it-falls-to-China-20211005/6257848.html)
 
-台湾总统蔡英文在周二（5日）出版的《外交事务》双月刊上发表“台湾力争民主之路—国际秩序变迁中的一股良善力量”的文章中。蔡英文在文章中指出，世界各国越来越意识到中国共产党构成的威胁，而他们也应该了解与台湾合作的价值。蔡英文警告说，“他们应该记住，如果台湾沦陷，地区和平以及民主联盟体系将遭受灾难性的后果。那也意味着在今天全球性的价值观竞争中，威权主义比民主更占上风，”蔡英文指出，自2020年以来，解放军机舰在台海的活动明显增多，几乎天天侵入台湾南部的防空识别区，偶尔还会越过台海中线。蔡英文在文章中特别指出，台湾不寻求军事对抗，希望与周边国家在和平、稳定、可预测而且互惠的原则下共存。但是，“如果我们的民主和生活方式遭到威胁，台湾必将竭尽全力捍卫自己。”
 
-[**5、两岸情势紧张之际 澳大利亚前总理阿博特抵达台湾访问**](https://www.voachinese.com/a/Tony-Abbott-arrives-in-Taiwan-to-address-regional-forum-amid-rising-tensions-with-China-20211005/6258223.html)
+> Biden’s Treasury Secretary wants to monitor Americans’ financial transactions. Biden’s AG wants to silence opponents of Critical Race Theory. This is what the Chinese, Russian & Cuban regimes currently do: snoop on their citizens & squash dissent. Biden = Systemic Socialism. [https://t.co/g8vcA4g3iT](https://t.co/g8vcA4g3iT)
+> — Rick Scott (@SenRickScott) [October 5, 2021](https://twitter.com/SenRickScott/status/1445466122900238346?ref_src=twsrc%5Etfw)
 
-澳大利亚前总理托尼·阿博特(Tony Abbott)周二(5日)抵达台北，对台湾展开澳大利亚政府所说的“私人访问”。阿博特这次访台将出席玉山论坛，并在大会上致辞。他还将会晤台湾总统蔡英文、外交部长吴钊燮以及国安会秘书长顾立雄等台湾高层官员。阿博特抵达台湾之际，台海紧张情势正因为中国军方连日派遣大机群侵入台湾西南防空识别区而急剧升高。美国白宫和国务院都分别发声，谴责北京对台湾的军事恫吓、挑衅和对地区和平稳定的威胁，强调对台湾的承诺与支持坚若磐石，而且将继续向台湾提供其防卫所需的武器装备。英国、日本和澳大利亚也都发表声明，抨击北京对台湾施加军事压力。澳大利亚和美国上个月在华盛顿举行外长和防长2+2会谈后，曾表示要加强与台湾的关系。双方还承诺支持台湾“有意义地参与国际组织”。
 
-[**6、8月份美贸易逆差创纪录 对华货物贸易逆差蹿升**](https://www.voachinese.com/a/us-china-trade-deficit-august-20211005/6258400.html)
 
-据美联社消息，美国商务部周二(5日)报告说，美国8月份的月度贸易逆差增加了4.2%，达到创纪录的高度，超过了之前在6月份创下的732亿美元的记录。贸易逆差是指一个国家对世界其他地方的出口与该国从其他地方的进口之间的差额。美国8月份的出口增加了0.5%，为2137亿美元，这反映了海外需求的回升。但是，即使港口出现了供应链问题，进口增加得更多，增幅为1.4%，金额达2870亿美元。具有政治敏感性的美国对中国的货物贸易逆差8月份蹿升了10.8%，达到3170亿美元。今年头八个月与中国的逆差总计2189亿美元，比去年同期增加了13.7%。
+众议员迈克·沃尔茨： 感谢基思在捍卫民主、促进清洁网络和讲述华为真相方面发挥的领导作用。 【转前副国务卿基思·克拉克推文：自由世界不应该向共产中国屈膝。我们必须与台湾这个民主模范 美国的好朋友站在一起。去年,我有幸成为访问台湾的40年来最高级别外交官,并为加强我们的经济联系而感到自豪】
 
-（本文只代表个人观点，与Gnews网站无关）
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+> Thank you Keith for your leadership on defending democracy, promoting clean networks, and telling the truth about Huawei. [https://t.co/55vaFGZfzz](https://t.co/55vaFGZfzz)
+> — Rep. Mike Waltz (@michaelgwaltz) [October 5, 2021](https://twitter.com/michaelgwaltz/status/1445457506755620864?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 尽管许多非法越境的移民甚至没有接受新冠COVID 测试，更不用说接种疫苗了——拜登政府现在却要求所有海关与边境保卫局[@CBP](https://twitter.com/CBP) 的官员在 11 月 1 日之前接种疫苗。这种虚伪何时结束？ 【转[http://saraacarter.com](https://t.co/dMuhtW8L5x?amp=1): 边境巡逻人员对新的强制疫苗规定感到不安】
+
+
+
+> Despite the fact that many of the migrants illegally crossing the border are not even taking a COVID test, let alone getting vaccinated – the Biden administration is now mandating all [@CBP](https://twitter.com/CBP?ref_src=twsrc%5Etfw) officials get vaccinated by Nov. 1st. When will the hypocrisy end? [https://t.co/H1azHT98lF](https://t.co/H1azHT98lF)
+> — Rep. Mike Garcia (@RepMikeGarcia) [October 5, 2021](https://twitter.com/RepMikeGarcia/status/1445443555162427394?ref_src=twsrc%5Etfw)
+
+
+
+参议员兰德·保罗： 在一个如此多的运动员无法成为好的榜样的时代，乔纳森·艾萨克 (Jonathan Isaac) 因他对权力说出真相的勇气和信仰而脱颖而出。 【转福克斯晚间新闻：联邦新闻网FNN 独家与主持人[@ShannonBream](https://twitter.com/ShannonBream)：篮球运动员乔纳森·艾萨克[@JJudahIsaac](https://twitter.com/JJudahIsaac) 权衡疫苗强制要求以及为什么他选择不接种疫苗】
+
+
+
+> In a time when so many athletes fail to be good role models, Jonathan Isaac stands out for his courage to speak truth to power and for his faith. [https://t.co/iWShFCDIUb](https://t.co/iWShFCDIUb)
+> — Senator Rand Paul (@RandPaul) [October 5, 2021](https://twitter.com/RandPaul/status/1445430140952059907?ref_src=twsrc%5Etfw)
+
+
+
+众议员李·泽尔丁： 如果这次福奇得手了（指圣诞节也不能聚集），每一个人都要把他们书架上的精灵换成沙发上的福奇。他想插手到每个人的生活中，特别是最近引起轩然大波的-建议大家取消和所爱之人的圣诞节。太过分了。 [@GutfeldFox](https://twitter.com/Gutfeldfox) （附节目访谈）
+
+
+
+> If Fauci had his way, everyone would be replacing their Elf on a Shelf with a Fauci on the Couchy. He wants to be all up in everyone's business, most recently causing an uproar by suggesting your Christmas plans with loved ones may need to be canceled. It's too much. [@GutfeldFox](https://twitter.com/Gutfeldfox?ref_src=twsrc%5Etfw) [pic.twitter.com/xC9Ke8dSeg](https://t.co/xC9Ke8dSeg)
+> — Lee Zeldin (@RepLeeZeldin) [October 5, 2021](https://twitter.com/RepLeeZeldin/status/1445373719426347010?ref_src=twsrc%5Etfw)

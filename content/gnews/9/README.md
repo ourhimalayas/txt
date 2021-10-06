@@ -2,27 +2,52 @@
 ---
 
 
-## 秘翻在线:法国参议院提出法案，强制要求接种中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576137/)
+## Facebook怎么啦？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1576153/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/biden.jpg)
-图片:Gnews
+翻译：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+脸书在周一为世界各地的用户停止工作数小时后表示道歉。该公司旗下的WhatsApp和Instagram也同样出现了故障。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-24.jpg)
+问题出在哪里？简而言之，Facebook的系统停止与互联网链接。网络基础设施公司Cloudflare解释说，这就像 “有人一下子拔掉了他们数据中心的电缆，并将其与互联网断开”。
 
-**10月4日法国参议院提出强制接种疫苗法案**
+Facebook的解释则更有技术性。它说，“协调我们数据中心之间的网络流量的骨干路由器的配置变化导致问题，中断了这种通信”。这产生了 “连带效应……使我们的服务陷入停顿”。扎克伯格为六小时的Facebook中断服务道歉。
 
-根据《零对冲》的报导， 法国总统马克龙7 月 12 日宣布采取措施，要求进入咖啡馆、餐馆甚至医院都必须提供疫苗接种证明。 10 月 4 日法国参议院社会事务委员引进参议员伯纳德乔米尔(Senator Bernard Jomier)的建议提出一项法案，要求从 2022 年 1 月 1 日开始，所有公民必须强制接种中共病毒( COVID-19) 疫苗。
+那么，为什么人们无法访问Facebook？
 
-参议员乔米尔利用《公共卫生法》第 L3111-1 条，表明现有针对抗白喉、抗破伤风、抗脊髓灰质炎、百日咳、乙型流感嗜血杆菌、乙型肝炎病毒、侵袭性肺炎球菌感染、C 型脑膜炎球菌、麻疹、腮腺炎和风疹等的 11 种强制性疫苗，公民没有医疗豁免权，企图如法炮制中共病毒(COVID-19) 的强制疫苗接种。然而根据《公共卫生法》第 L3111-1 条的 11 种强制性疫苗，都是经过数年甚至更久所研发的疫苗，与目前只经过数月就研发出的”行刑式毒针”中共病毒疫苗截然不同。参议员乔米尔竟敢让尚未进入第三阶段的实验型疫苗，强制接种人体，如此草菅人命，令人瞠目结舌!
+互联网被分解成数十万个网络。像Facebook这样的大公司有自己的大型网络–被称为自治系统。当你想访问Facebook（或Instagram或WhatsApp）时，允许计算机与他们的网络连接的后端系统使用边界网关协议（BGP）–一种互联网的邮政服务。为了将人们引导到他们想要访问的网站，BGP会查看数据可能经过的所有可用路径，并选择最佳路线。
 
-**法国参议院将于10月13日公开讨论强制接种议案**
+周一，Facebook突然停止提供系统运行所需的信息。这意味着没有人的电脑可以连接到Facebook或它旗下其他网站。
 
-自 9 月 15 日起，包括参议院和国民议会在内的两院制立法机构法国议会强制要求所有医护人员必须接种疫苗，影响超过 250 万人。这些人担任医院工作人员、护理人员、养老院工作人员和私人医生，该要求也针对法国各地的消防员。截至 10 月 5 日，大约 75% 的法国人口至少接种了一剂 COVID-19 疫苗，其中 72.8% 的人已完全接种疫苗。
+这次中断有什么影响？
 
-10 月 13 日，法国参议院将就《公共卫生法》的拟议修正案进行公开讨论，然后提交给国民议会审议。根据参议员乔米尔的提议，参议院将修改《公共卫生法》的该条款，强制接种中共病毒疫苗将于 1 月 1 日生效。根据法国刑事诉讼法第 519 条，不遵守规定的人将被处以 135 欧元的罚款。对于那些被强制接种疫苗的人不遵守的重复违规行为，罚款最高可达 1,500 欧元。
+这些关键的互联网参与者的故障，对全球的个人和企业产生了连锁反应。追踪故障的Downdetector说，世界各地报告了约1,060万个问题–这是有史以来最大的数字记录。对许多人来说，失去对Facebook服务的访问只是一种不便。但是对于发展中国家的一些没有其他可靠方式与客户沟通的小企业来说，这可能是一个严重的问题。同样，一些组织的员工在大流行之后仍在远程工作，现在依靠WhatsApp与同事保持联系。
 
-**强制要求接种疫苗升起抗议的熊熊烈火**
+这种情况是如何被允许发生的？
 
-随欧洲大部分地区的脚步，法国推出了几项严格的疫苗规定，这些规定已不可逆转地改变了该国的生活面貌。自实施以来，法国各地至少有 3,000 名医护人员因拒绝接种疫苗而被停职。然而对大规模解僱未接种疫苗的工作人员将对法国医疗保健部门产生巨大影响。就像世界各地一样，此项强制要求已遭到抵抗，有组织的罢工已开始。大规模抗议活动已走上巴黎街头，强烈抗议的怒火达到顶峰 。
+在北京时间周一16:45左右，大量的报道开始出现，称Facebook、Instagram和WhatsApp无法工作。起初，这引起了人们对如何应对的惯常玩笑，以及Twitter等竞争对手的嘲讽。但很快就发现，这是一个更严重的问题–有报道称，在Facebook的加州总部出现了混乱。
 
-消息来源:[French Senate Introduces Bill to Mandate COVID-19 Vaccinations for All Beginning January 1, 2022](http://French%20Senate%20Introduces%20Bill%20to%20Mandate%20COVID-19%20Vaccinations%20for%20All%20Beginning%20January%201,%202022)
+《纽约时报》的科技记者谢拉-弗伦克尔(Sheera Frenkel)告诉英国广播公司(BBC)，花了这么长时间才解决的部分原因是，“试图找出问题所在的人甚至无法实际进入大楼”，以找出问题所在。我们还不知道这个问题是由软件错误还是简单的人为错误造成的。
+
+最尴尬的是，Facebook的道歉是在其竞争对手Twitter上发布的。
+
+参考链接：[What happened to Facebook, WhatsApp, and Instagram?](https://www.bbc.com/news/technology-58800670)
+
+**本文仅代表作者观点**
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

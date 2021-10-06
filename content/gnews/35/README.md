@@ -2,10 +2,10 @@
 ---
 
 
-## 美国加州将要求学生接种冠状病毒疫苗才可返校
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575793/)
+## 美NIH院长科林斯将辞职
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575795/)
 
-作者：香草山写作组-晓仙女
+作者：香草山写作组-文一
 
 
 
@@ -13,13 +13,17 @@
 
 
 
-美国加利福尼亚州州长加文‧纽森（Gavin Newsom）10月1日宣布，一旦COVID-19疫苗获得联邦食品和药物管理局（Federal Food and Drug Administration, FDA）批准全面使用，加州学生将需要接种疫苗后才能上学。这使加州成为全美第一个宣布在学校强制接种疫苗的州。
+美国国立卫生研究院NIH周二宣布，该院院长科斯林，在工作近三十年，在位12年后，计划年底离任。据相关人士透露，他离职其实已经有一段时间了。
 
-目前，美国政府已经批准了针对16岁及以上人群接种COVID-19疫苗。也就是说，加州所有高年级的高中学生都需要完全接种疫苗，才能到公立和私立学校上学。政府和医疗巨头沆瀣一气，对羟氯喹、伊维菌素等便宜有效的药物只字不提，反倒逼迫民众打疫苗，现在连孩子们都不放过。正如郭文贵先生所说，世界真的已经到了至暗时刻。
+科斯林现年71岁，为内科遗传学家，在位期间历经三届总统，是任职时间最长的院长。柯林斯领导了全球人类基因组测序的工作，并发现了囊性纤维化的基因。2007年，成立BioLogos基金会，一个旨在调和宗教与科学的团体。
 
-参考链接:
+据悉，首席副主任劳伦斯-塔巴克（Lawrence Tabak）可能会成为代理主任。
 
-[https://www.epochtimes.com/gb/21/10/3/n13278027.htm](https://www.epochtimes.com/gb/21/10/3/n13278027.htm)
+参考链接：
+
+[https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh](https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh)
+
+[https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji](https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji)
 
 （本文仅代表作者观点）
 

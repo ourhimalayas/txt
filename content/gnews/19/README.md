@@ -2,57 +2,56 @@
 ---
 
 
-## 美国国务院：美国贸易代表宣布了美国将重新调整对华贸易政策
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1576000/)
+## 【战友观点】台湾娱乐圈里究竟谁是“卖台贼”
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1576029/)
 
-美国国务院： 我们欢迎与 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hashtag_click) 的竞争，但这种竞争需要公平和负责任地管理。美国贸易代表宣布了美国将围绕我们的优先事项重新调整对华贸易政策的初步步骤：[http://go.usa.gov/xMdyg](https://t.co/Ssd10LTWia?amp=1)。
-
-
-
-> We welcome competition with the People’s Republic of China, but that competition needs to be fair and managed responsibly. [@USTradeRep](https://twitter.com/USTradeRep?ref_src=twsrc%5Etfw) announced the initial steps the U.S. will take to re-align our trade policies towards the PRC around our priorities: [https://t.co/yCcKGM3aMJ](https://t.co/yCcKGM3aMJ).
-> — Department of State (@StateDept) [October 5, 2021](https://twitter.com/StateDept/status/1445509102373781509?ref_src=twsrc%5Etfw)
+温哥华扬帆农场 – Jamei-Luffy
+![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾娱乐圈里究竟谁是卖台贼1.png)图片来源：https://sunnews.cc/entertainment/331795.html
 
 
+郭先生在过去四年反复提到让他恨之入骨的卖台贼，其中包括台湾的政治界，商界以及娱乐界。关注台湾政论节目的人都知道，台湾的政治圈堪比娱乐圈，互相指责谩骂，不断制造热点只为博人眼球。而台湾的娱乐圈，却充满了亲共的政治投机者。今天就为您来盘点台湾娱乐圈中五大‘卖台贼’。
 
-参议员瑞克·斯科特： 拜登的财政部长希望监控美国人的财务往来。拜登的司法部部长希望让批判种族理论的反对者保持沉默。这就是中国、俄罗斯和古巴政权目前所做的：窥探他们的公民并压制异议。拜登 = 系统性社会主义。 【附每日电讯：拜登因“武器化”司法部反对父母们发对批判种族理论】
+注明：排名不分先后，主要根据亲共的不要脸程度来决定。
 
+1、黄安。本名黄宏铭，台湾歌手、主持人。1984年以歌手身份出道，1989年凭借电视剧《包青天》的主题曲《新鸳鸯蝴蝶梦》走红。1998年迁居大陆，后定居北京。作为台湾卖台贼的鼻祖，其卖台的言论和行径堪称无下限。2010年在参加东南卫视的节目中扬言“台湾是鬼地方”。2015年开始，在微博上疯狂举报“港独”、“台独”艺人，并受到国台办的嘉奖与鼓励。随后越演越烈，2016年举报韩国团体“TWICE”的台湾成员周子瑜是台独份子，在台湾大选前引爆了著名的周子瑜国旗事件。
 
+2016年3月，黄安心脏出现问题，随后搭乘医疗专机返台就医，进行心血管绕道手术，台湾的全民健康保险为他买单80万台币。台湾网友纷纷呛声：“有病台湾人，没病中国人。”2020年1月新冠疫情爆发，黄安回台，依然不断在各种社交媒体上贬低台湾，赞美中共，称“从今往后啥也不说，在我心中只有祖国”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾娱乐圈里究竟谁是卖台贼2.png)图片来源：http://ent.sina.com.cn/tv/zy/2016-01-28/doc-ifxnzanh0161170.shtml
+2． 吴宗宪。台湾著名主持人，歌手。吴宗宪1999以台语歌手身份出道，随后加入主持界，成为20世纪台湾最著名的支持人之一。吴宗宪多次在节目和采访中以中国人自称，赞美中国，表示希望增强两岸文化“交流”，支持“一个中国”立场。 2016年中共在南海仲裁案后组织了那场著名的“中国一点都不能少”的爱国主义洗脑运动。
 
-> Biden’s Treasury Secretary wants to monitor Americans’ financial transactions. Biden’s AG wants to silence opponents of Critical Race Theory. This is what the Chinese, Russian & Cuban regimes currently do: snoop on their citizens & squash dissent. Biden = Systemic Socialism. [https://t.co/g8vcA4g3iT](https://t.co/g8vcA4g3iT)
-> — Rick Scott (@SenRickScott) [October 5, 2021](https://twitter.com/SenRickScott/status/1445466122900238346?ref_src=twsrc%5Etfw)
+在参加江苏卫视《蒙面唱将猜猜猜》节目时，当评审问吴宗宪为什么要戴龙面具？他回答：“本来他们给我一个鸡面具，然后这个鸡其实呢，跟我们中国的版图是很像的，一点都不能少……所以我决定穿上龙的传人。” 言论一出，立刻遭到台湾网友炮轰是“人民币一点都不能少”。吴宗宪随后回应：九二共识，爱与和平。自己是艺人，负责散播欢乐散播爱。有不了解的地方，就去看一下宪法……2020年台湾大选期间，更是公开支持中共代理人韩国瑜。
 
+吴宗宪一直以来的亲共言论，被台湾网友讽刺为“大陆宪”。搞笑的是，他和卖台贼鼻祖黄安是台湾娱乐圈非常有名的死对头。当年黄安爆料吴宗宪隐瞒已婚生子，假扮单身，跟其他女艺人交往。后来吴宗宪被媒体拍到和家人出游的照片，四个孩子和老婆终于曝光，两人因此交恶。
 
+就在几天前，吴宗宪的二女儿和台湾国民党新任党主席朱立伦的侄子结婚。郭先生在直播中爆出朱立伦已经完全被中共收买，可见这两位“卖台贼二代”的结合，也是预谋已久。吴宗宪在最近的采访中，透露出要隐退台湾演艺圈，迁居上海做生意。可见，在台湾岌岌可危的今天，吴宗宪开始为跑路提前放风，准备正式投身中共怀抱。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾娱乐圈里究竟谁是卖台贼3.jpg)图片来源：https://k.sina.cn/article\_7241644468\_1afa2b9b400100jsbv.html
+3. 欧阳娜娜。台湾资深艺人欧阳龙和傅娟之女。2012年12岁的欧阳娜娜在台湾成功举办大提琴独奏巡回音乐会，成为台湾“国家演奏厅”有史以来年纪最小的演奏家。2015年考取柯蒂斯音乐学院后辍学正式全面进入中国娱乐圈。先后参与了多部电影和电视节目，但是因其自身能力不足，一直处于不红的状态。直到2017年在浙江卫视《演员的诞生》节目中，凭借差到极致的演技引来全网嘲讽，一战成名，诞生了著名的‘你清醒一点’表情包。随后，尝到被黑走红滋味的欧阳娜娜开始走网红路线，做直播，拍美照，代言微商，炒作恋情。
 
-众议员迈克·沃尔茨： 感谢基思在捍卫民主、促进清洁网络和讲述华为真相方面发挥的领导作用。 【转前副国务卿基思·克拉克推文：自由世界不应该向共产中国屈膝。我们必须与台湾这个民主模范 美国的好朋友站在一起。去年,我有幸成为访问台湾的40年来最高级别外交官,并为加强我们的经济联系而感到自豪】
+江湖传言，欧阳娜娜和另一位星二代五毛，陈凯歌的儿子陈宇飞谈恋爱。陈宇飞前段时间为了在娱乐圈成名，主动放弃美国国籍……这两位都是典型的自身没有任何业务水平的星二代硬要当明星，除了跪舔中共，也真的没有别的什么才艺了……2019年在包含微博在内的多个个人社交平台上公开表态“我为身为中国人骄傲”，并在随后的《中国电影报道》采访中表示无论自己是台湾、香港、北京或是哪里，都是中国人，并希望大家可以聚集在一起，勇敢地去表达自己的立场，更努力地团结起来，让祖国为我们骄傲。2019年香港爆发反送中运动，8月14日晚上欧阳娜娜在微博转发《人民日报》的‘我也支持香港警察’贴文，并加上标签“#香港是中国香港#”。随后在2020年央视举办的国庆晚会上演唱《我的祖国》，为中共站台。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾娱乐圈里究竟谁是卖台贼4.jpg)图片来源：https://www.teepr.com/
+4. 罗志祥。台湾歌手，演员，主持人。1995年以偶像团体“四大天王”，正式踏入台湾娱乐圈。罗志祥于2016年在北京出席电影宣传活动时，当被问到与大陆明星合作有什么想法时，他表示“不用分那么细，因为我们都是中国人”，引发舆论争论，遭到台湾网友炮轰，送外号‘中国祥’。《人民日报》随后发表评论文章，支持罗志祥。
 
+同年，在微博积极转发支持‘中国一点都不能少’。讽刺的是，就在其通过跪舔中共而在大陆事业风生水起之时，被当时的女朋友周扬青在微博揭露恋爱期间出轨多人和玩弄女性，丑闻曝光后罗志祥被节目除名，代言解约，演艺事业全部停摆。随后返回台湾，寻求机会。今年2月，中共为了打压台湾颁布禁令封杀台湾凤梨后，罗志祥为了讨好台湾民众，认购了200箱凤梨来表示‘爱台湾’。可惜，台湾民众并不买‘中国祥’的帐，复出后的演艺事业没有任何起色。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/台湾娱乐圈里究竟谁是卖台贼5.png)图片来源：
+https://xw.qq.com/partner/vivoscreen/20191216A07IC6/20191216A07IC600?vivoRcdMark=1
+5. 霍建华，林心如。台湾演员。2002年，霍建华因主演偶像剧《摘星》正式踏入台湾演艺圈，2004年在大陆拍了第一个电视剧《天下第一》，转往内地发展。2016年和林心如结婚。1993年，17岁的林心如以兼职广告模特儿身份开始自己的演艺生涯。1998年，凭借电视剧《还珠格格》中的紫薇一角爆红。2009年在大陆成立林心如工作室，投资多部影视剧，担任制片人。霍建华一直以来不论大大小小的公开场合，口径一致的宣称自己是中国人。2016年，同样是在‘中国一点都不能少’的洗脑运动中，霍建华工作室微博转发支持，成为首位替中共站台的台湾艺人。随后林心如工作室也转发，表明两人支持‘一个中国’的立场。
 
+之后有台媒报道称，霍建华工作室的表态只是工作室言论，不代表霍建华个人观点。霍建华工作室再次发声，指出该台湾媒体造谣，坚称工作室发布的‘一点都不能少’微博即代表霍建华先生立场……台湾网友讽刺两人“在对岸领证，请办理台湾居留证”。那么如此坚定支持中共的两人，现在在哪呢？自从疫情发生以来，两人就暂停了一切大陆工作，放弃了他们深爱的祖国，纷纷逃回台湾。在前段时间的封杀赵薇事件中，林心如和霍建华也被爆出早已注销了在中国的工作室，算是彻底跑路了。可见这两人是名副其实的“嘴上很爱国，行动很诚实”。
 
-> Thank you Keith for your leadership on defending democracy, promoting clean networks, and telling the truth about Huawei. [https://t.co/55vaFGZfzz](https://t.co/55vaFGZfzz)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 5, 2021](https://twitter.com/michaelgwaltz/status/1445457506755620864?ref_src=twsrc%5Etfw)
+从”红卫兵”黄安，星二代五毛欧阳娜娜，”大陆宪”，”中国祥”，到跑路的霍建华林心如，不难发现他们利用大部分中国人党国不分的愚蠢，借‘我是中国人’来替中共的‘一个中国’做宣传，混淆视听，洗脑粉丝。他们看似是爱国，其实是爱共，最终目的是爱钱。台湾有自己独立的法律，货币，民主选举的合法政府，请问这些卖台贼，你们手里还拿着台湾身份证和护照，怎么就成”中国人”了？？？
 
+参考链接：[https://www.mirrormedia.mg/story/20200117web001/](https://www.mirrormedia.mg/story/20200117web001/)
 
+[https://news.ltn.com.tw/news/politics/breakingnews/2633547](https://news.ltn.com.tw/news/politics/breakingnews/2633547)
 
-众议员迈克·加西亚： 尽管许多非法越境的移民甚至没有接受新冠COVID 测试，更不用说接种疫苗了——拜登政府现在却要求所有海关与边境保卫局[@CBP](https://twitter.com/CBP) 的官员在 11 月 1 日之前接种疫苗。这种虚伪何时结束？ 【转[http://saraacarter.com](https://t.co/dMuhtW8L5x?amp=1): 边境巡逻人员对新的强制疫苗规定感到不安】
+[https://www.rti.org.tw/n](https://www.rti.org.tw/news/view/id/2030999)[e](https://www.rti.org.tw/news/view/id/2030999)[ws/view/id/2030999](https://www.rti.org.tw/news/view/id/2030999)
 
+[https://star.ettoday.net/news/632684](https://star.ettoday.net/news/632684)
 
+[https://yule.sohu.com/20160714/n459248993.shtml](https://yule.sohu.com/20160714/n459248993.shtml)
 
-> Despite the fact that many of the migrants illegally crossing the border are not even taking a COVID test, let alone getting vaccinated – the Biden administration is now mandating all [@CBP](https://twitter.com/CBP?ref_src=twsrc%5Etfw) officials get vaccinated by Nov. 1st. When will the hypocrisy end? [https://t.co/H1azHT98lF](https://t.co/H1azHT98lF)
-> — Rep. Mike Garcia (@RepMikeGarcia) [October 5, 2021](https://twitter.com/RepMikeGarcia/status/1445443555162427394?ref_src=twsrc%5Etfw)
+(本文仅代表作者观点，与GNEWS平台无关)
 
+*编审：文敏*
 
-
-参议员兰德·保罗： 在一个如此多的运动员无法成为好的榜样的时代，乔纳森·艾萨克 (Jonathan Isaac) 因他对权力说出真相的勇气和信仰而脱颖而出。 【转福克斯晚间新闻：联邦新闻网FNN 独家与主持人[@ShannonBream](https://twitter.com/ShannonBream)：篮球运动员乔纳森·艾萨克[@JJudahIsaac](https://twitter.com/JJudahIsaac) 权衡疫苗强制要求以及为什么他选择不接种疫苗】
-
-
-
-> In a time when so many athletes fail to be good role models, Jonathan Isaac stands out for his courage to speak truth to power and for his faith. [https://t.co/iWShFCDIUb](https://t.co/iWShFCDIUb)
-> — Senator Rand Paul (@RandPaul) [October 5, 2021](https://twitter.com/RandPaul/status/1445430140952059907?ref_src=twsrc%5Etfw)
-
-
-
-众议员李·泽尔丁： 如果这次福奇得手了（指圣诞节也不能聚集），每一个人都要把他们书架上的精灵换成沙发上的福奇。他想插手到每个人的生活中，特别是最近引起轩然大波的-建议大家取消和所爱之人的圣诞节。太过分了。 [@GutfeldFox](https://twitter.com/Gutfeldfox) （附节目访谈）
-
-
-
-> If Fauci had his way, everyone would be replacing their Elf on a Shelf with a Fauci on the Couchy. He wants to be all up in everyone's business, most recently causing an uproar by suggesting your Christmas plans with loved ones may need to be canceled. It's too much. [@GutfeldFox](https://twitter.com/Gutfeldfox?ref_src=twsrc%5Etfw) [pic.twitter.com/xC9Ke8dSeg](https://t.co/xC9Ke8dSeg)
-> — Lee Zeldin (@RepLeeZeldin) [October 5, 2021](https://twitter.com/RepLeeZeldin/status/1445373719426347010?ref_src=twsrc%5Etfw)
+*发布：**Shuang*

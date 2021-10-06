@@ -2,52 +2,46 @@
 ---
 
 
-## Facebook怎么啦？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1576153/)
+## 辉瑞科学家承认自然免疫力比疫苗更好
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576207/)
 
-翻译：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-脸书在周一为世界各地的用户停止工作数小时后表示道歉。该公司旗下的WhatsApp和Instagram也同样出现了故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-24.jpg)
-问题出在哪里？简而言之，Facebook的系统停止与互联网链接。网络基础设施公司Cloudflare解释说，这就像 “有人一下子拔掉了他们数据中心的电缆，并将其与互联网断开”。
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-15.jpg)图片来源：网络截图
+10月5日，据WND.COM报道，福奇和其他公共卫生官员继续坚持认为新冠病毒疫苗优于自然免疫力，但在最新的Veritas项目调查中，三名辉瑞科学家被隐藏摄像头捕获，他们口中的情况并非如此。
 
-Facebook的解释则更有技术性。它说，“协调我们数据中心之间的网络流量的骨干路由器的配置变化导致问题，中断了这种通信”。这产生了 “连带效应……使我们的服务陷入停顿”。扎克伯格为六小时的Facebook中断服务道歉。
+帮助开发辉瑞-BioNTech疫苗的生物化学家尼克卡尔（Nick Karl）告诉Veritas项目的一名卧底记者，因感染新冠病毒所产生的抗体“很大可能比疫苗接种更好”。
 
-那么，为什么人们无法访问Facebook？
+在Veritas项目疫苗系列的第1部分中，公共卫生部的一名员工展示了同事私下对疫苗安全性发出警报的视频记录，指控掩盖了“最高级别的邪恶”。在第2部分中，一名FDA官员呼吁对未接种疫苗的美国人进行“纳粹德国”式的“登记册”。在第3部分中，两名强生公司官员表示，儿童不需要疫苗，因为“未来会产生未知影响”。
 
-互联网被分解成数十万个网络。像Facebook这样的大公司有自己的大型网络–被称为自治系统。当你想访问Facebook（或Instagram或WhatsApp）时，允许计算机与他们的网络连接的后端系统使用边界网关协议（BGP）–一种互联网的邮政服务。为了将人们引导到他们想要访问的网站，BGP会查看数据可能经过的所有可用路径，并选择最佳路线。
+最近，另一位科学家辉瑞高级合伙人克里斯·克罗斯同意，患有COVID-19的人会受到抗体的保护。
 
-周一，Facebook突然停止提供系统运行所需的信息。这意味着没有人的电脑可以连接到Facebook或它旗下其他网站。
+“和疫苗一样多？”Veritas记者说。
 
-这次中断有什么影响？
+“可能更多，”克罗斯回答。
 
-这些关键的互联网参与者的故障，对全球的个人和企业产生了连锁反应。追踪故障的Downdetector说，世界各地报告了约1,060万个问题–这是有史以来最大的数字记录。对许多人来说，失去对Facebook服务的访问只是一种不便。但是对于发展中国家的一些没有其他可靠方式与客户沟通的小企业来说，这可能是一个严重的问题。同样，一些组织的员工在大流行之后仍在远程工作，现在依靠WhatsApp与同事保持联系。
+记者问“多多少？”
 
-这种情况是如何被允许发生的？
+克里斯说，由于有自然反应，你最有可能受到更长时间的保护。
 
-在北京时间周一16:45左右，大量的报道开始出现，称Facebook、Instagram和WhatsApp无法工作。起初，这引起了人们对如何应对的惯常玩笑，以及Twitter等竞争对手的嘲讽。但很快就发现，这是一个更严重的问题–有报道称，在Facebook的加州总部出现了混乱。
+记者问单克隆抗体治疗方法怎么样了。
 
-《纽约时报》的科技记者谢拉-弗伦克尔(Sheera Frenkel)告诉英国广播公司(BBC)，花了这么长时间才解决的部分原因是，“试图找出问题所在的人甚至无法实际进入大楼”，以找出问题所在。我们还不知道这个问题是由软件错误还是简单的人为错误造成的。
+克里斯说他们被“先放一边”。
 
-最尴尬的是，Facebook的道歉是在其竞争对手Twitter上发布的。
+“为什么？”记者问。
 
-参考链接：[What happened to Facebook, WhatsApp, and Instagram?](https://www.bbc.com/news/technology-58800670)
+“金钱。这很恶心，”他说。
 
-**本文仅代表作者观点**
+克里斯说：“我仍然觉得自己在一家邪恶的公司工作，因为它最终归结为利润。”“我的意思是，我在那里帮助人们，而不是赚数百万美元。所以，我的意思是，这就是道德困境。”
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+“不是数十亿吗？”记者问。
 
-**校对/发稿：童谣**
+“我正在努力变得友好，”克罗斯说。
 
-**更多资讯，更多关注**
+“基本上，我们的组织现在只能靠新冠病毒资金运营。”
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+另一个辉瑞科学家拉胡尔·坎克说，员工被“教导”坚持“疫苗比实际感染新冠病毒更安全”。他在公共场合说“我们不能谈论这件事”。坎克解释说，员工必须“几个小时”地坐着开会，告诉他们不要谈论自然免疫力的优越性。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+上个月，博士琼斯霍金斯（Johns Hopkins）医学院和彭博公共卫生学院教授马蒂马卡提（Marty Makary）在《华盛顿邮报》的客座专栏文章中写道：“许多当选领导人和公共卫生官员坚持了太长时间，即自然免疫力对新冠病毒的预防提供了不可靠的保护——这一论点正在迅速被科学揭穿。”
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[Hidden camera: Pfizer scientists admit natural immunity better than vaccines](https://www.wnd.com/2021/10/4950625/)
