@@ -15,119 +15,119 @@
 
 ---
 
-### [秘翻在线：美国众议员谴责左翼团体替中共宣传 要求调查其与中共的关系](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：英国夏天81％的中共病毒死亡案例接种过疫苗](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜习峰会：这是杨洁篪会晤沙利文的主要任务](/content/gnews/3/README.md)
+### [中共为邪恶势力打造的救生艇&#8212;-大湾区](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国殡仪馆主任：中共疫苗的实施让死亡率大幅上升](/content/gnews/4/README.md)
+### [中共杨洁篪将同沙利文在瑞士举行会晤](/content/gnews/2/README.md)
+ ` 儒为`
+
+### [秘翻在线：全球供应链危机将持续到2023年](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/4/README.md)
  ` wenwu`
 
-### [Facebook(非死不可)这次摊上大事儿了](/content/gnews/5/README.md)
- ` 澳喜农场`
+### [秘翻在线：美国众议员谴责左翼团体替中共宣传 要求调查其与中共的关系](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [观看《长津湖》别忘了交智商税，长津湖票房可能破50亿](/content/gnews/6/README.md)
+### [秘翻在线：英国夏天81％的中共病毒死亡案例接种过疫苗](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜习峰会：这是杨洁篪会晤沙利文的主要任务](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线:CIA在电报中承认失去了大量线人](/content/gnews/7/README.md)
+### [英国殡仪馆主任：中共疫苗的实施让死亡率大幅上升](/content/gnews/8/README.md)
+ ` wenwu`
+
+### [Facebook(非死不可)这次摊上大事儿了](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [观看《长津湖》别忘了交智商税，长津湖票房可能破50亿](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线:CIA在电报中承认失去了大量线人](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭先生直播：中共的假骗经济给世界金融埋下了巨雷](/content/gnews/8/README.md)
+### [郭先生直播：中共的假骗经济给世界金融埋下了巨雷](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [一家反对中共病毒疫苗的咖啡馆](/content/gnews/9/README.md)
+### [一家反对中共病毒疫苗的咖啡馆](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [记录经历](/content/gnews/10/README.md)
+### [记录经历](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [杰森·米勒：GETTR本周末测试直播；还有全新炫酷功能](/content/gnews/11/README.md)
+### [杰森·米勒：GETTR本周末测试直播；还有全新炫酷功能](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：日本盐野义制药和中国平安保险关系详解](/content/gnews/12/README.md)
+### [秘翻在线：日本盐野义制药和中国平安保险关系详解](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [如果你接种疫苗，你更有可能感染中共病毒](/content/gnews/13/README.md)
+### [如果你接种疫苗，你更有可能感染中共病毒](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [丹佛警察被迫接种疫苗后失去走动能力](/content/gnews/14/README.md)
+### [丹佛警察被迫接种疫苗后失去走动能力](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [福奇改变立场：鼓励接种者与家人圣诞聚会](/content/gnews/15/README.md)
+### [福奇改变立场：鼓励接种者与家人圣诞聚会](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【潘多拉文件】引发全球震荡](/content/gnews/16/README.md)
+### [【潘多拉文件】引发全球震荡](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾外长：台湾已经做好与中共开战的准备](/content/gnews/17/README.md)
+### [台湾外长：台湾已经做好与中共开战的准备](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [顶级医生称伊维菌素可帮助治疗COVID，敦促进行更多研究](/content/gnews/18/README.md)
+### [顶级医生称伊维菌素可帮助治疗COVID，敦促进行更多研究](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共是世界级恶霸，美国会和台湾站在一起](/content/gnews/19/README.md)
+### [中共是世界级恶霸，美国会和台湾站在一起](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美退休将军质疑美国是否会保护台湾](/content/gnews/20/README.md)
+### [美退休将军质疑美国是否会保护台湾](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月5日 文贵先生盖特 3](/content/gnews/21/README.md)
+### [2021年10月5日 文贵先生盖特 3](/content/gnews/25/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [麦卡洛医生：犯有反人类罪行的人都会被追捕](/content/gnews/22/README.md)
+### [麦卡洛医生：犯有反人类罪行的人都会被追捕](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月5日 文贵先生盖特 2](/content/gnews/23/README.md)
+### [2021年10月5日 文贵先生盖特 2](/content/gnews/27/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [2021年10月5日 文贵先生盖特 1](/content/gnews/24/README.md)
+### [2021年10月5日 文贵先生盖特 1](/content/gnews/28/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共国又一家房企债务违约 揭开行业危机序幕](/content/gnews/25/README.md)
+### [中共国又一家房企债务违约 揭开行业危机序幕](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/10/03 文贵先生直播精要](/content/gnews/26/README.md)
+### [2021/10/03 文贵先生直播精要](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：Shiba Inu成为Coinbase上交易量最大的加密货币](/content/gnews/27/README.md)
+### [币圈新闻动态：Shiba Inu成为Coinbase上交易量最大的加密货币](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：中共军机扰台今年创新高](/content/gnews/28/README.md)
+### [DC大中华时事：中共军机扰台今年创新高](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [效仿中共恐吓民众，维州安德鲁斯政府编造病毒谎言](/content/gnews/29/README.md)
+### [效仿中共恐吓民众，维州安德鲁斯政府编造病毒谎言](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [近期疫苗引起倒地视频汇集](/content/gnews/30/README.md)
+### [近期疫苗引起倒地视频汇集](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [前国务卿蓬佩奥：拜登令美国屈服于竞争对手](/content/gnews/31/README.md)
+### [前国务卿蓬佩奥：拜登令美国屈服于竞争对手](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：蔡英文警告，台湾被中共占领将是灾难后果](/content/gnews/32/README.md)
+### [每日快报：蔡英文警告，台湾被中共占领将是灾难后果](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [针下亡魂｜希腊 60 岁男检察官接种疫苗后肺栓塞死亡](/content/gnews/33/README.md)
+### [针下亡魂｜希腊 60 岁男检察官接种疫苗后肺栓塞死亡](/content/gnews/37/README.md)
  ` G&#124;News TAIWAN`
 
-### [“现在购买，将来偿还”—消费者债务陷阱](/content/gnews/34/README.md)
- ` 纽约香草山MOS02`
-
-### [澳总理称联邦政府被各州“勒索”](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [针下亡魂｜巴西 16 岁女学生接种疫苗8日后死亡](/content/gnews/36/README.md)
+### [针下亡魂｜巴西 16 岁女学生接种疫苗8日后死亡](/content/gnews/38/README.md)
  ` G&#124;News TAIWAN`
-
-### [“大重启“是”大欺骗“，但也是正道主义重塑人间的机会](/content/gnews/37/README.md)
- ` 澳喜农场`
-
-### [拜登和习近平通话 同意信守《台湾协议》](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [拜登派遣国安顾问前往苏黎士会见杨洁篪](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`

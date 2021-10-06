@@ -2,44 +2,25 @@
 ---
 
 
-## 拜习峰会：这是杨洁篪会晤沙利文的主要任务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576703/)
+## 秘翻在线：全球供应链危机将持续到2023年
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576723/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/10/10614-scaled.jpg)
-据中共国[新华社北京10月6日](http://www.news.cn/politics/leaders/2021-10/06/c_1127931769.htm)通讯证实：不吃那一套的杨洁篪将代表他的老板吃定美国。美国安全事务助理沙利文将在瑞士苏黎世与杨洁篪举行会晤。双方将就中美关系及有关问题交换意见。
+#### 文章撰写：寶寶
 
-中美外事人员再度接触是基于9月10日习拜电话外交达成交易的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-06_18-30-58.png)
 
-目前，[沙利文](https://twitter.com/JakeSullivan46/status/1445561291372781571?s=19)官方推特暂未发布此消息。不过这一外交举措外界表示关注。
+据《零对冲》10月4日报道，全球央行行长一直在宣传通胀是“暂时性”的说法。从逻辑上讲，供应链瓶颈导致的通货膨胀会自行解决，但这些官员尚未提供时间表，因为他们不知道。
 
-延展阅读：[*白宫证实沙利文与杨洁篪将在瑞士会面以缓解紧张关系升*](https://www.voachinese.com/a/US-envoy-Sullivan-to-meet-China-Yang-Jiechi-this-week-20211005/6257842.html)。
+为了更深入地了解全球供应链瓶颈何时会消退，迪拜最大的国际港口运营商之一迪拜DP World董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆（Sultan Ahmed Bin Sulayem）周五在2020年迪拜世博会接受彭博电视采访时表示，供应链问题可能会持续两年。
 
-不过，世界仍需要问三个问题：
+“在疫情开始时，全球供应链处于危机之中，”本·苏拉耶姆说。 “也许在2023年我们会看到缓和。”
 
-1，拜登有隐情基于和中共接触？
+他指出集装箱费率飙升，并表示价格上涨是由于短缺和积压延误造成的。 “运费将继续上涨，航运公司正因此受益，”他补充道。
 
-2，拜习之间如何能绕过新冠病毒溯源进而实现两国元首拥抱？
+全球最大的航运公司A.P.穆勒-马士基（A.P. Moller-Maersk）最近警告说，供应链瓶颈可能会持续比预期更长的时间，一些托运人已要求限制运费单价。 DHL和UPS还警告说，供应链混乱不仅会持续到明年，而且可能会留下永久的影响。
 
-3，在COVID-19病毒和疫苗灾难下，拜登能直面中共种族灭绝罪吗？
+安联前PIMCO首席执行官兼首席经济顾问穆罕默德·埃里安（Mohamed El-Erian）也认为供应链问题将会持续至少一到两年，促使全球范围内生产价格继续飙升，最终推高消费价格。
 
-而人们心中的疑虑——急待中美两国直面撞击后撕裂那层隔阂的帷幕。
+参考文章：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](https://www.zerohedge.com/commodities/global-supply-chain-crisis-last-until-2023-says-middle-easts-largest-port-operator)
 
-据南华早报援引所谓知情人士说：“[这可以看作是双方试图重建沟通渠道、落实两国领导人共识的一次会晤。](https://www.scmp.com/news/china/diplomacy/article/3151214/china-us-eye-further-talks-yang-jiechi-set-meet-jake-sullivan)”
-
-另一位消息人士称，本次杨与沙利文的一项议程是讨论“习近平与拜登举行峰会的可能性。”[阅读更多](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/Biden-and-Xi-explore-recoupling-as-advisers-meet-in-Zurich)。
-
-*· 延展阅读：*[*拜登称与习近平通话确认习将遵守“台湾协议”*](https://www.voachinese.com/a/biden-xijinping-taiwan-20211005/6259051.html)*（*[*更新版*](https://cn.reuters.com/article/xi-biden-call-1005-tues-idCNKBS2GW00F)*）*
-
-*· 延展阅读：“*[*慕尼黑协议*](https://zh.wikipedia.org/wiki/%E6%85%95%E5%B0%BC%E9%BB%91%E5%8D%94%E5%AE%9A)*”-*[*时任英国首相张伯伦曾与希特勒见面，为何仍坚信其不开战*](https://www.163.com/dy/article/GI0JRA2L0543H867.html)*？*
-
-不过，无论外界怎样猜测，这一外交努力不符合世界各国任何一方利益，但唯一利好的仍将是新中国联邦。
-
-9月10日，郭文贵先生表示，“如果美国突然要好了，就是中共立马死亡的时候，所有的9300万党员，你已经没有任何能力决定你的命运，包括习。”（1;26时段）因为中共和俄罗斯和中美之间的关系决定了这是中共一条不归路。
-
-2021年10月6日
-
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团 /*平安卿卿
-*发布：东京樱花团 /*平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+本文仅代表作者本人观点，不代表Gnews平台
