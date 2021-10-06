@@ -2,39 +2,20 @@
 ---
 
 
-## 加拿大护士告密：许多人因接种疫苗后死亡和住院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576131/)
+## 索罗斯基金预测中概股将被退市 虚拟货币已成主流
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576213/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/nurses-in-canada-1080x675-1.jpg)
-图片来源：immilawglobal.com
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/5-11.jpg)图片来源：网络截图
+10月5日据零对冲报道，在索罗斯和北京之间的争吵升级后，基金管理家族办公室的首席信息官道恩·菲茨帕特里克表示，该公司正在避免在中国投资：“我们现在不把钱投入中国，”她说，并补充说，投资者在将现金投入美中上市时需要“非常小心”。她解释说，投资者对中共国正在做的事情以及政府愿意容忍其有计划的经济破坏程度感到惊讶。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+索罗斯不把钱投入中国的真正原因是钱会立即烟消云散：乔治·索罗斯公开批评了中共国国家主席习近平的政策，并在上个月的《华尔街日报》专栏文章中表示，“现在向中共国倾注数十亿美元是一个悲剧性错误。”
 
-两名加拿大护士挺身出来告密，告诉记者他们在中共病毒（COVID-19）大流行期间所看到的情况。这包括接种中共病毒疫苗后死亡的病人，以及医院里挤满了完全接种疫苗后，患有中共病毒的人。
+无论如何，据索罗斯首席信息官称，目前在美国交易的中共国公司将在很大程度上必须退市并转移到香港，中共国的早期风险投资公司还需要“一段时间”才能上市。因此，尽管一些大牌公司近期可能会在香港上市，但总体而言，中共国从私有到公有的道路将花费很长的时间。
 
-来自加拿大魁北克省（Quebec）庞蒂亚克（Pontiac）小镇的埃里卡·比尔兹利(Erica Beardsley)做了11年的护士，在她的雇主强制要求她接种疫苗后辞职。
+“二十年来，拥有西方资本和西方既得利益的中共国科技公司非常符合中共的目标。他们现在不再需要在美国上市了，所以他们可以拿走7000亿美元，然后去香港上市，”菲茨帕特里克说。“我认为这就是他们要做的事情。”
 
-在加拿大的一次反疫苗授权的抗议活动中，比尔兹利向记者讲述了她作为护士在大流行期间看到的可怕事情。
+另一个值得注意的观察：索罗斯是继史蒂夫·科恩的《Poin 72》和丹·勒布的《第三点》的脚步进入加密交易的最大的对冲基金。她说：“我们拥有一些虚拟加密币——不多——但货币本身不如“去中心化金融”或类似的东西有趣。”她指出，“加密货币已成为主流。”
 
-比尔兹利说：”我亲眼看到人们束缚着老人，违背他们的意愿为他们接种疫苗，而老人却大喊’不要’。我见过自杀的病人，一旦病人死了，他们就对病人进中共病毒测试。”
-
-“我目睹了很多人在接种疫苗后不久死于心脏病，”她继续说。”我目睹了疫苗接种后五天、四天就足月流产的情况。”这是一个令人惊讶的普遍现象，尽管她来自一个不足5000人的小镇。
-
-另一位在多伦多（Toronto）圣迈克尔（St. Michael’s）医院工作的护士称，医院里到处都是完全接种了中共病毒疫苗的病人。
-
-加拿大各地的人们，包括医护人员，都在抗议强行接种疫苗的行为。这些抗议活动在全国各地涌现，反对人们被迫接种实验性和致命的中共病毒疫苗。
-
-（文章内容仅代表作者个人观点，与GNEWS无关）
-
-**参考新闻：**[Canadian nurse whistleblowers say many people are dying after getting vaccines while hospitals are filled with the fully vaccinated – NaturalNews.com](https://www.naturalnews.com/2021-09-27-canadian-nurse-whistleblowers-fully-vaccinated-dying.html)
-
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)

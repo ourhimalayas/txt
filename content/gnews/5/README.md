@@ -2,31 +2,35 @@
 ---
 
 
-## 澳总理称联邦政府被各州“勒索”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576420/)
+## DC大中华时事：中共军机扰台今年创新高
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1576504/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/SCOTT.jpg)图片来源：Reuters
-**整理报道：**翼族
+*编辑：西北风 / 作图：*虎子哥
 
-周二，在昆士兰州州长要求澳大利亚联邦政府为该州医院提供更多资金后，总理莫里森先生表示，联邦政府“不会（中共病毒）大流行中（各州和领地）的‘勒索’行为做出反应”。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-莫里森接受4BC电台采访时说：“我们已经做了很多，（联邦政府）已经向各州提供了大量资金，无论是留职补贴还是经济支持补贴的款项。”
+#   墙国妄语每日驳
 
-维多利亚州卫生部长弗利在周三的新闻发布中公开反对总理莫里森的言论，称这实际上是“伙伴政治关系”，而不是“勒索”政治。弗利说：“过去分担的原则一般是50-50，但现在减少到了45-55”。
+### 10.06.2021
 
-弗利说：“所有州和领地曾在4月聚在一起，与联邦分享了我们在这方面的担忧，由于我们已经自行处理了超过12个月的新冠疫情危机，我们的系统已经捉襟见肘，我们的人民已经筋疲力尽，我们需要联邦政府投入更多额外的资金。”
+[武汉:聚焦清廉文化建设 滋养党员干部勤廉好作风–反腐倡廉-中国共产党新闻网 (people.com.cn)](http://fanfu.people.com.cn/n1/2021/1006/c64371-32246064.html)
 
-昆士兰州州长安娜斯塔西亚·帕拉夏克 (Annastacia Palaszczuk)周三在新闻发布会上说，各州和领地的卫生部长已给联邦卫生部长格莱格·亨特（Greg Hunt）一封联名信，要求“立即提供额外的联邦资金……希望州政府和联邦政府为了他们的最佳利益而合作。”
+***简评：***中国几千年皇权体制能够稳定运转，有两项制度改革起到了关键作用。一个是三省六部制，还有一个就是科举制度。科举制度确保普通庶民有了进升的渠道，同时可以把帝国最优秀的人才输送到体制关键岗位。即使到明清时期，科举考试考场如战场，从上到下严防死守，一旦发现泄漏考题，通风报信，买通关节，那不知有多少颗人头落地。科举考试保证了公正和公平。现在中共官僚系统己是从上到下买官卖官，基层公务员考试能够录取靠的是人脉资源和资金实力，而不是成绩，基层公务员上升渠道更是要用钱和人脉堆积才能上升的机会，相互竞争更是不择手段，在这个逆淘汰的体制里，有才能和正直的人根本没有生存的空间。而这套体制反而确保了他能以最快的速度形成体制内的帮派和团体势力，这更加排斥了真正国家需要的人才到关键岗位。中共意识形态早己破产，行政运行体制也己腐烂腐败到骨髓，这样的政权还能继续生存，人类历史上不曾有过。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+### 10.06.2021
 
-**参考链接：**[Victorian Health Minister fires back over PM’s ‘shakedown politics’ remark, as QLD Premier demands cooperation over hospital crisis](https://www.skynews.com.au/australia-news/coronavirus/victorian-health-minister-fires-back-over-pms-shakedown-politics-remark-as-qld-premier-demands-cooperation-over-hospital-crisis/news-story/c9a944f48465cbadd6a8cc1a3d765cd1?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQy5_JlYCUl9UkGLyciP3V38HBlAEqEAgAKgcICjDNtZILMOT5pwM&amp;utm_content=rundown&amp;gaa_at=g&amp;gaa_n=AYc4ysvuzLD6rbZl2CgkoqT8jPsGW_Z3xSrWYAUdVBpJn0dRpJvmjRr4kD0I_7NFy9xwJkm7mb4GidAuMqJfICEmOEVA2dHRu4qAM9s%3D&amp;gaa_ts=615d491f&amp;gaa_sig=Z2hqQy5x1QnvWaP1VOHMSd3NQX_pCX78-Orp9OyQ3s9yoywNhtBMuawRRpDdhXnece_xoXRIfkNr5soJkEmtQQ%3D%3D)
+[锐参考 | 蔡英文发出“求救信”……\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/in-depth/20211005/2455797.shtml)
 
-*发布：翼族*
+***简评：***中共对台功武己是箭在弦上，海陆空围绕台湾实弹演练己是明目张胆。台湾政府仍然是口水政治而不敢有实质上的行动。中共的以经促统的政策起到了效果。台湾舍不得在大陆巨大经济利益，再加上台湾的孤岛文化，总想在大国政治较量中两头甚至多头得利，台湾本来可以自救的时机在这种投机心理下消然失去。在邪恶中共面前台湾终将为自己的无知付出不可承受的代价。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+### 10.06.2021
+
+[中国代表观点相近国家在联合国人权理事会呼吁各国加强社会保障–国际–人民网 (people.com.cn)](http://world.people.com.cn/n1/2021/1006/c1002-32246128.html)
+
+***简评：***中国人住着全世界最贵的房子，呼吸着严重污染的空气，喝着重金属污染的水，用着昂贵的医疗服务，大部分中国普通老百姓没有任何医疗养老福利保障，这样的政权在联大理事会呼吁各国加强社会保障，相比当下的中国，任何其他国家都不会有中国老百姓遭受的无人权的现状。可悲的是中国普通老百姓在外界真实的消息被中共封锁而不能分析理解自己当下的情形下，而且很自嗨，觉得这一切都是应该的正常的。中共己让老百姓愚昧到自嗨的程度，这才是最可怕的
+
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/895175245474959360/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/895175318967582750/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/895175375750070332/03.png?width=1043&amp;height=586)
+*编辑：*西北风
+*作图：虎子哥
+发布：文顾*

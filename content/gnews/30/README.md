@@ -2,36 +2,24 @@
 ---
 
 
-## 加州橙县海滩遭大规模漏油污染
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576014/)
+## 中共国出台《城市负债率排行榜》贵阳债务达929%
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1576098/)
 
-栏目记者：QMAY
-责任编辑：正义的小新
+10月5日，中共国大陆数据宝、腾讯财经联合推出《城市负债率排行榜》，通过对2020年地方政府债务余额及城市投债来计算政府负债率和债务率，以一线、新一线、二线、省会等86座城市为对象进行分析。
+
+排在债务率前10的城市2020年债务率均超过了500%，其中，贵阳债务率高达929%。4座一线城市中，广州和北京均超过200%；深圳不到20%；上海为122％。
+
+从地域来看，省会城市中债务率居前的均分布在西北地区。从负债率来看，排在前十的省市中，天津负债率79.29%，排在第一。分析显示：中共国经济不发达地区负债率相对较高，福建、广东较低。中共国唯一不负债的地区就是中南坑，那里只出产中共盗国贼寄生家族。
+
+[新闻参考链接](https://amp.rfi.fr/cn/中国/20211005-中国出台-城市负债率排行榜-贵阳市债务率高达929)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-1.jpg)
-10月2日，加州橙县海岸附近发生重大漏油事故，漏出的原油污染了大片海滩，杀死众多鱼类和鸟类，并威胁到当地的湿地。该泄漏事故，与亨廷顿海滩附近的一条与海上石油平台相连的管道有关。这次石油平台的故障，导致至少 12万6千加仑原油泄漏到沿海水域，形成了一个面积约 8,320 英亩的浮油，并在周日早些时候扩散到纽波特海滩。泄漏的石油还渗入了亨廷顿海滩附近、占地 25 英亩的生态保护区。
-
-加州官员周日下午表示，泄漏已得到控制。但橙县负责人卡特里娜·弗利表示，石油仍在不断地泄漏，潜水员在周日早些时候仍在紧张修复。截至目前，尚不清楚泄漏的原因。
-
-（本文仅代表作者观点）
-
-参考链接：[加州橙县海滩遭大规模漏油污染](https://www.latimes.com/california/story/2021-10-02/coast-guard-rushes-to-contain-newport-beach-oil-slick)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
-
-终审编辑：鬼五
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

@@ -2,20 +2,31 @@
 ---
 
 
-## 拜登和习近平通话 同意信守《台湾协议》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576243/)
+## 澳总理称联邦政府被各州“勒索”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576420/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-19.jpg)图片来源：VOA
-路透社10月5日华盛顿报道，美国总统拜登周二与中共国主席习近平讲到了台湾问题，他们双方同意遵守关于台湾的协议，因为近来北京和台湾之间关系紧张化。拜登说：“我和习（近平）谈了台湾，我们同意信守关于台湾的承诺，我不认为他会做出违背承诺的事。”
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/SCOTT.jpg)图片来源：Reuters
+**整理报道：**翼族
 
-拜登引用华盛顿长期以来的“一个中国”的政策，承认北京而不是台北，而台湾关系法，对于美国来说确定与北京建立外交关系，而不是台湾，至于台湾的今后将通过和平解决。
+周二，在昆士兰州州长要求澳大利亚联邦政府为该州医院提供更多资金后，总理莫里森先生表示，联邦政府“不会（中共病毒）大流行中（各州和领地）的‘勒索’行为做出反应”。
 
-中共国称台湾是中国领土，必要时可以武力统一，而台湾认为自己是一个独立的国家，将保卫自由和民主，指责中共国制造紧张局势。
+莫里森接受4BC电台采访时说：“我们已经做了很多，（联邦政府）已经向各州提供了大量资金，无论是留职补贴还是经济支持补贴的款项。”
 
-台湾已经报告了近4天内共有148架中共军机进入台湾南部和西南部的航空识别区，从10月1日国庆假日起，中共称之为爱国日直到昨天一直扰台。
+维多利亚州卫生部长弗利在周三的新闻发布中公开反对总理莫里森的言论，称这实际上是“伙伴政治关系”，而不是“勒索”政治。弗利说：“过去分担的原则一般是50-50，但现在减少到了45-55”。
 
-美国要求中共国停止在台湾附近的军事行动。美国很担心中共国在台湾附近的挑衅性军事行动会引起该区域不稳定，误判，损害区域和平与稳定。
+弗利说：“所有州和领地曾在4月聚在一起，与联邦分享了我们在这方面的担忧，由于我们已经自行处理了超过12个月的新冠疫情危机，我们的系统已经捉襟见肘，我们的人民已经筋疲力尽，我们需要联邦政府投入更多额外的资金。”
 
-新闻来源： [Biden says he and China’s Xi agree to abide by Taiwan agreement](https://www.reuters.com/world/asia-pacific/biden-says-he-chinas-xi-have-agreed-abide-by-taiwan-agreement-2021-10-05/)
+昆士兰州州长安娜斯塔西亚·帕拉夏克 (Annastacia Palaszczuk)周三在新闻发布会上说，各州和领地的卫生部长已给联邦卫生部长格莱格·亨特（Greg Hunt）一封联名信，要求“立即提供额外的联邦资金……希望州政府和联邦政府为了他们的最佳利益而合作。”
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考链接：**[Victorian Health Minister fires back over PM’s ‘shakedown politics’ remark, as QLD Premier demands cooperation over hospital crisis](https://www.skynews.com.au/australia-news/coronavirus/victorian-health-minister-fires-back-over-pms-shakedown-politics-remark-as-qld-premier-demands-cooperation-over-hospital-crisis/news-story/c9a944f48465cbadd6a8cc1a3d765cd1?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQy5_JlYCUl9UkGLyciP3V38HBlAEqEAgAKgcICjDNtZILMOT5pwM&amp;utm_content=rundown&amp;gaa_at=g&amp;gaa_n=AYc4ysvuzLD6rbZl2CgkoqT8jPsGW_Z3xSrWYAUdVBpJn0dRpJvmjRr4kD0I_7NFy9xwJkm7mb4GidAuMqJfICEmOEVA2dHRu4qAM9s%3D&amp;gaa_ts=615d491f&amp;gaa_sig=Z2hqQy5x1QnvWaP1VOHMSd3NQX_pCX78-Orp9OyQ3s9yoywNhtBMuawRRpDdhXnece_xoXRIfkNr5soJkEmtQQ%3D%3D)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
