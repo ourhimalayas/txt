@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/6/2021 1:29 PM (UTC)`
+
+大胡子医生：疫苗不是用来对抗病毒的，释放病毒是为了引入疫苗<br/><br/>Dr. Zelenko: Vaccines are not for combatting the virus, but releasing the virus was to introduce the vaccines
+![img](https://media.gettr.com/group19/getter/2021/10/06/13/29/763897d7-3158-89fc-2751-99a98d2e593e/out.jpg)
+
+---
+
 `@miles 10/6/2021 1:16 PM (UTC)`
 
 大胡子医生：疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件<br/><br/>Dr. Zelenko: The vaccines may cause various fatal diseases, which could be potentially genocidal
@@ -288,13 +295,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 💪💪💪
 > `@jasonmillerindc 10/2/2021 1:36 PM (UTC)`<br/>And definitely make sure to follow @Kaelan and @Christianne_L_A on #GETTR as well - they're based here in the U.S. and heading up our Global Engagement Team!
-
----
-
-`@miles 10/2/2021 1:46 PM (UTC)`
-
-🙏🙏🙏
-> `@jasonmillerindc 10/2/2021 1:19 PM (UTC)`<br/>Who's Hot on #GETTR<br/><br/>These are the 10 fastest growing accounts in the U.S. right now!<br/><br/>@NRA<br/>@MaxMAGA<br/>@Conservativee_<br/>@ToddStarnes<br/>@MTG4America<br/>@Mr3Rights<br/>@TimMurtaugh<br/>@GatewayPundit<br/>@EpochTV<br/>@MarkLevinShow
 
 ---
 
