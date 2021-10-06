@@ -2,30 +2,15 @@
 ---
 
 
-## 近期疫苗引起倒地视频汇集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1576496/)
+## 2021年10月5日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1576563/)
 
-视频&文章：澳洲天好蓝
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-9月30日泰山，游客突然倒地抽搐，不省人事。
+10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse
 
-10月3日，上海迪士尼乐园，一名男性游客在创极速光轮项目排队等候区域突然昏倒，后抢救无效死亡。
+10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃
 
-10月4日10时，衡阳南岳大庙北门，游客突然晕倒。
+[【2021年10月5日】文贵先生盖特原文](https://gettr.com/post/pdbp8v1949)
 
-10月4日，武汉东湖风景区内，一男子跑步时突发疾病倒地抽搐。
-
-10月4日，在大同南开往清河站的G2528次例车上，一位年轻旅客突发疾病。
-
-10月5日， 高三大队中队长正在处理事故时，有人突然晕倒。
-
-近期视频综合来看，突然发病的都是中、青年人居多，晕倒的人当中，有些心脏停跳，有的突发癫痫抽搐，都是符合心梗，脑梗的症状，而中、青年这个年龄段并不是心脑血管病高发的人群。中共国近来突发晕倒事件不断增多，可笑的是很多媒体居然为了掩盖真相说是低血糖所致。现在这个年代各种碳水化合物食品很容易获取，除非是由于自身代谢疾病引起，不然怎么可能会患上低血糖，也不会同时集中出这种罕见自身代谢疾病引起的低血糖。
-
-同时，中共国约有百分八十的人已经接种2针疫苗，视频里出现的这些倒地绝大部分应该都和疫苗有关，打了CCP疫苗就算没有心脑血管病会也得上。另外，如果本身有这些基础性疾病的人，也会因为疫苗而引起疾病的突然恶化。
-
-（本文只代表作者观点）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**喜联盟Gnews编辑部**

@@ -2,20 +2,31 @@
 ---
 
 
-## 索罗斯基金预测中概股将被退市 虚拟货币已成主流
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576213/)
+## 澳总理称联邦政府被各州“勒索”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576420/)
 
-#### 翻译：坤霆
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/5-11.jpg)图片来源：网络截图
-10月5日据零对冲报道，在索罗斯和北京之间的争吵升级后，基金管理家族办公室的首席信息官道恩·菲茨帕特里克表示，该公司正在避免在中国投资：“我们现在不把钱投入中国，”她说，并补充说，投资者在将现金投入美中上市时需要“非常小心”。她解释说，投资者对中共国正在做的事情以及政府愿意容忍其有计划的经济破坏程度感到惊讶。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/SCOTT.jpg)图片来源：Reuters
+**整理报道：**翼族
 
-索罗斯不把钱投入中国的真正原因是钱会立即烟消云散：乔治·索罗斯公开批评了中共国国家主席习近平的政策，并在上个月的《华尔街日报》专栏文章中表示，“现在向中共国倾注数十亿美元是一个悲剧性错误。”
+周二，在昆士兰州州长要求澳大利亚联邦政府为该州医院提供更多资金后，总理莫里森先生表示，联邦政府“不会（中共病毒）大流行中（各州和领地）的‘勒索’行为做出反应”。
 
-无论如何，据索罗斯首席信息官称，目前在美国交易的中共国公司将在很大程度上必须退市并转移到香港，中共国的早期风险投资公司还需要“一段时间”才能上市。因此，尽管一些大牌公司近期可能会在香港上市，但总体而言，中共国从私有到公有的道路将花费很长的时间。
+莫里森接受4BC电台采访时说：“我们已经做了很多，（联邦政府）已经向各州提供了大量资金，无论是留职补贴还是经济支持补贴的款项。”
 
-“二十年来，拥有西方资本和西方既得利益的中共国科技公司非常符合中共的目标。他们现在不再需要在美国上市了，所以他们可以拿走7000亿美元，然后去香港上市，”菲茨帕特里克说。“我认为这就是他们要做的事情。”
+维多利亚州卫生部长弗利在周三的新闻发布中公开反对总理莫里森的言论，称这实际上是“伙伴政治关系”，而不是“勒索”政治。弗利说：“过去分担的原则一般是50-50，但现在减少到了45-55”。
 
-另一个值得注意的观察：索罗斯是继史蒂夫·科恩的《Poin 72》和丹·勒布的《第三点》的脚步进入加密交易的最大的对冲基金。她说：“我们拥有一些虚拟加密币——不多——但货币本身不如“去中心化金融”或类似的东西有趣。”她指出，“加密货币已成为主流。”
+弗利说：“所有州和领地曾在4月聚在一起，与联邦分享了我们在这方面的担忧，由于我们已经自行处理了超过12个月的新冠疫情危机，我们的系统已经捉襟见肘，我们的人民已经筋疲力尽，我们需要联邦政府投入更多额外的资金。”
 
-原文链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)
+昆士兰州州长安娜斯塔西亚·帕拉夏克 (Annastacia Palaszczuk)周三在新闻发布会上说，各州和领地的卫生部长已给联邦卫生部长格莱格·亨特（Greg Hunt）一封联名信，要求“立即提供额外的联邦资金……希望州政府和联邦政府为了他们的最佳利益而合作。”
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考链接：**[Victorian Health Minister fires back over PM’s ‘shakedown politics’ remark, as QLD Premier demands cooperation over hospital crisis](https://www.skynews.com.au/australia-news/coronavirus/victorian-health-minister-fires-back-over-pms-shakedown-politics-remark-as-qld-premier-demands-cooperation-over-hospital-crisis/news-story/c9a944f48465cbadd6a8cc1a3d765cd1?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQy5_JlYCUl9UkGLyciP3V38HBlAEqEAgAKgcICjDNtZILMOT5pwM&amp;utm_content=rundown&amp;gaa_at=g&amp;gaa_n=AYc4ysvuzLD6rbZl2CgkoqT8jPsGW_Z3xSrWYAUdVBpJn0dRpJvmjRr4kD0I_7NFy9xwJkm7mb4GidAuMqJfICEmOEVA2dHRu4qAM9s%3D&amp;gaa_ts=615d491f&amp;gaa_sig=Z2hqQy5x1QnvWaP1VOHMSd3NQX_pCX78-Orp9OyQ3s9yoywNhtBMuawRRpDdhXnece_xoXRIfkNr5soJkEmtQQ%3D%3D)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

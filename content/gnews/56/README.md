@@ -2,44 +2,37 @@
 ---
 
 
-## 中共中纪委公告：原司法部长傅政华被立案调查
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1570951/)
+## 看完长津湖就要开启啃冻土豆和冰窖体验的美好生活了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1573256/)
 
-作者：香草山农场-文仁
+据[**观察者网**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年10月4日 23:01](https://weibo.com/1887344341/KBdP5zvxU?ref=home&amp;rid=6_0_8_6667924340392403151_6_0_0) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+【[#女孩看完长津湖回家尝冻土豆#](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%9C%8B%E5%AE%8C%E9%95%BF%E6%B4%A5%E6%B9%96%E5%9B%9E%E5%AE%B6%E5%B0%9D%E5%86%BB%E5%9C%9F%E8%B1%86%23&amp;from=default) ：觉得很心酸，根本咬不动 】近日，云南昆明，电影《长津湖》热映感动众多网友，迟女士看完电影后找来土豆煮熟冻在冰箱，体验英雄们啃冻土豆的艰苦。迟女士表示，根本咬不动，吃了第一口就觉得很心酸，特别想哭，现在美好的生活都是战士们奋斗来的。（新华网）[L西部决策的微博视频](http://t.cn/A6MxDqMt)
 
+我们不得不承认中共官媒树立起的这位云南昆明迟女士是脑子里进大粪的最好榜样，如果观众们与这位迟女士一样感同深受，那么吃冻土豆是不够的，还应该穿着单衣到冰雪地里去卧上一卧，以此体验一把当年中共炮灰们的感觉。
 
+可是我们不想体验的啃冻土豆和我们不想体验的冰窖体验却并不以我们意志为转移地走下银幕进入我们的生活——在不定期、无预警停电之下的东北，在停电时哪怕能吃上冻的熟土豆不也是一份幸运么？在停电的阴冷天气之下，难道每个人不都在冰窖中么？
 
-中央纪委国家监委网站讯（10月2日11时）：全国政协社会和法制委员会副主任傅政华涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+在想到这些的时候，恍然明白中共媒体树立那个脑子进水的云南昆明迟女士为榜样的用意了，原来电影上的生活正在向我们走来，接下来能吃上冻土豆的、能在冰窖中活下来的就已经是很美好的生活了，并且这很美好的生活就是当年那些啃着冻土豆的炮灰们与那些吃着火鸡和各种美味食品的美国大兵斗争的结果！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片32.png)
+撰稿：喜马拉雅的肉夹馍
 
-傅政华现年66岁，2010-2015.2月北京市公安局党委书记、公安局长、北京市政法委书记，2015.1-2018.2任公安部副部长、中央政法委员、中央610办公室主任，2018.3-2020.4任司法部党组副书记、部长，2020年以后任中共政协闲职。
+审核：喜马拉雅的馍夹肉
 
-郭先生2017年最早曝光傅政华腐败， 他自己以及亲属利用他在地方和中央的各级公安、政法委等领域重要职位的权力大搞权钱交易，收受贿赂，拉帮结派。
+校对：Maarago
 
-通过傅政华我们就看出中共国的以假治国、以警治国、以黑治国的黑暗与腐败的本质。就在2019年3月时任司法部长的傅政华高调出镜，说要让法律长出牙齿，成为带点的高压线。结果现在这副獠牙变成了绞肉机，把他自己给绞了。
+（文章内容仅代表作者个人观点）
 
-中共国在这样一帮乌合之众的统治与管理之下，老百姓已经无处声张正义。只有消灭中共， 中国才有机会回归法治，走向正道主义。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-参考链接：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[https://www.ccdi.gov.cn/toutiao/202110/t20211002\_251687\_m.html](https://www.ccdi.gov.cn/toutiao/202110/t20211002_251687_m.html)
-[https://www.sohu.com/a/300622582\_114731](https://www.sohu.com/a/300622582_114731)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) ；
 
-校对/发稿：飞虹
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**更多资讯，更多关注**
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。

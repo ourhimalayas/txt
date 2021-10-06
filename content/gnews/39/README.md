@@ -2,46 +2,24 @@
 ---
 
 
-## Facebook 股票遭抛售，美议员呼吁企业分拆
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576012/)
+## 中共国出台《城市负债率排行榜》贵阳债务达929%
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1576098/)
 
-栏目记者/责任编辑：文一
+10月5日，中共国大陆数据宝、腾讯财经联合推出《城市负债率排行榜》，通过对2020年地方政府债务余额及城市投债来计算政府负债率和债务率，以一线、新一线、二线、省会等86座城市为对象进行分析。
+
+排在债务率前10的城市2020年债务率均超过了500%，其中，贵阳债务率高达929%。4座一线城市中，广州和北京均超过200%；深圳不到20%；上海为122％。
+
+从地域来看，省会城市中债务率居前的均分布在西北地区。从负债率来看，排在前十的省市中，天津负债率79.29%，排在第一。分析显示：中共国经济不发达地区负债率相对较高，福建、广东较低。中共国唯一不负债的地区就是中南坑，那里只出产中共盗国贼寄生家族。
+
+[新闻参考链接](https://amp.rfi.fr/cn/中国/20211005-中国出台-城市负债率排行榜-贵阳市债务率高达929)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
-
-
-
-【彭博社】报道，Facebook、WhatsApp 和 Instagram 出现的平台故障导致其股票周一被大面积抛售，Facebook 股票下跌了4.9%，扎克伯格约损失70亿美元。
-
-Facebook 及其子公司 Instagram 和 WhatsApp 持续七小时收到用户问题报告。故障发生前，有 Facebook 内部举报人揭露公司早知道其平台存在虚假信息等问题。故障发生后，据传其客户数据被打包在暗网销售。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-6.jpg)
-【Gateway Pundit】则于 10 月 5 日报道，处理主要手机运营商短信的服务公司称其数据库多年来被黑客入侵。
-
-Syniverse 负责处理其客户数十亿条短信，并与世界各地的数百家移动运营商包括 AT&T、Verizon、T-Mobile 等提供服务。
-
-网络和数据安全问题再次被推上风口浪尖。
-
-纽约州议员亚历山大-奥卡西奥-科特兹 (Alexandria Ocasio-Cortez) 呼吁将 Facebook 拆散并加以监管，并认为这种集中式互联网服务对 “自由社会和民主具有难以置信的破坏性影响”。 佛罗里达州第三国会区前候选人查克-卡莱斯托补充说：”… 有Gettr……等，还有这么多（其它媒体可选择）。
-
-（本文仅代表作者观点）
-
-参考链接：
-1. [Facebook 股票遭抛售，美议员呼吁企业分拆](https://www.washingtonexaminer.com/news/facebook-outage-costs-zuckerberg-billions)
-2. [Facebook 股票遭抛售，美议员呼吁企业分拆](https://www.msn.com/en-us/news/world/parler-gettr-mock-facebook-outage-as-conservatives-call-on-people-to-dump-big-tech/ar-AAP9YHj)
-3. [Facebook 股票遭抛售，美议员呼吁企业分拆](https://www.thegatewaypundit.com/2021/10/company-handles-billions-text-messages-major-cellular-carriers-says-database-hacked-years/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
-
-终审编辑：Q大哥
-校正/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

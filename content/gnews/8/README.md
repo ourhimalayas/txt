@@ -2,55 +2,34 @@
 ---
 
 
-## 前国务卿蓬佩奥：拜登令美国屈服于竞争对手
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1576487/)
+## 麦卡洛医生：犯有反人类罪行的人都会被追捕
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1576562/)
 
-据《美国一新闻网》新闻室2021年10月3日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/mp_adobespark.jpeg)前国务卿迈克·蓬佩奥 ( Mike Pompeo ) 于 2021 年 4 月 21 日在华盛顿特区与“共和党研究委员会”成员就伊朗问题向媒体发表讲话（摄影：约书亚·罗伯茨（ Joshua Roberts ）| GETTY图像）
-美国前国务卿迈克·蓬佩奥嘲笑乔·拜登（ Joe Biden ）的外交政策决定以及这些决定如何正在将美国人的生命置于危险之中。周日，蓬佩奥强调拜登政府已经“放弃了保证边界安全的努力”。
+[![](https://spark.adobe.com/page/eWiXza5XNhwiB/images/7b3d0787-75f0-4a3b-bbc6-50e1998fdb9e.png?asset_id=fe867e1d-db28-452c-8f92-c0a43e49ef16&amp;img_etag=%22c14297c8c52ad9398f16f3cf61950795%22&amp;size=2560)](https://spark.adobe.com/page/eWiXza5XNhwiB/images/7b3d0787-75f0-4a3b-bbc6-50e1998fdb9e.png?asset_id=fe867e1d-db28-452c-8f92-c0a43e49ef16&amp;img_etag=%22c14297c8c52ad9398f16f3cf61950795%22&amp;size=1024)
+**简评：**脸书举报人哈根向SEC提交八项投诉，指责社交媒体巨头脸书为了利润修改规则，并且就其在打击平台上的仇恨言论和错误信息方面对公众撒谎。脸书知道Instagram损害少女的心理健康。美国大选后，脸书关闭了安全系统，帮助组织1月6号的国会山骚乱。
 
-蓬佩奥声称拜登正在向主张开放边界的民主党进步派屈膝。此外，这位前美国最高外交官表示，拜登政府忽视了有关非法移民和毒品大量涌入的负面影响的警告。
-
-蓬佩奥还谈到了阿富汗危机，敦促美国政府信守对仍在阿富汗的美国人以及盟友的承诺。他警告说，如果拜登政府抛弃他们，这些与美国有联系的人将受迫害、被处决和被失踪。
+GTV视频链接：[一名举报人指责臉書这一社交媒体巨头，一再将利润置于打击仇恨言论和错误信息之上](https://gtv.org/video/id=615c0895d2e2b81748716cd8)
 
 
 
-> American security and sovereignty depend on a secure border. We left the Biden administration a functioning plan and they tore it up and are trying to do so again. [https://t.co/nrNFmzF90o](https://t.co/nrNFmzF90o)
-> — Mike Pompeo (@mikepompeo) [September 30, 2021](https://twitter.com/mikepompeo/status/1443648132965879808?ref_src=twsrc%5Etfw)
+**视频字幕：**
 
+**哈根**：但是我可以向你展示Facebook有成千上万的选项，
 
+**画外音**：周日，一名举报人指责Facebook将利润置于禁止仇恨言论和错误资讯之上。在接受CBS节目60分钟采访时，法兰西斯·哈根（Francis Hagen）透露了她是向《华尔街日报》泄露文档之人的真实身份，因而《华尔街日报》发表了一系列文章，揭示Facebook在网上加剧政治分歧。
 
-*迈克**·**蓬佩奥**@mikepompeo*
+**哈根**：Facebook自己的研究表明，仇恨、分裂、两极分化的内容更容易激发人们的愤怒情绪，而不是别的情绪。Facebook意识到，如果他们将规则改得更安全，人们在网站上停留的时间更少，广告的点击就更少，Facebook赚的钱也会更少。
 
-*美国的安全和主权取决于安全的边界。我们给拜登政府留下了一个有效的计划，他们把它撕毁了，并试图再次这么干。*
+**画外音**：哈根在Facebook的“公民错误信息团队”担任产品经理，她将于周二在参议院就Instagram对年轻用户的影响问题作证。《华尔街日报》的报导称，Facebook知道 Instagram损害少女的心理健康。哈根已向美国证券交易委员会提交了至少八项投诉。
 
-*2021**年**9**月**30**日*
+她说，Facebook就其在打击平台上的仇恨言论和错误信息方面取得的进展向公众撒谎。她还说，在美国总统大选后，Facebook关闭了安全系统，帮助组织1月6日的国会山骚乱。
 
-*查得**·**沃尔夫**@ChadFWolf*
+*编辑：【英国伦敦喜庄园编辑部】*
 
-*这是不可思议的。国土安全部的重点是再次终止“留在墨西哥”计划 — 在法院要求他们重启该计划之后，尽管该计划有效。看起来就像他们在追求失败。*
+*字幕：云岭* *| 听写/翻译：势不可挡* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-*2021**年**10**月**1**日*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-他接着说，从阿富汗的拙劣撤军正在增强包括中共国和伊朗在内的美国对手的力量，他们正急不可耐地巩固在该地区的战略地位。他感叹拜登正在绥靖我们的竞争对手，指出司法部最近放弃了对华为首席财务官孟晚舟的指控，孟晚舟协助（伊朗）违反了美国失败的伊朗核协议并窃取了宝贵的美国知识产权。
-
-据称，中国共产党扣押了两名加拿大人质，希望以此为筹码确保孟晚舟返回中共大陆。此外，蓬佩奥批评拜登政府将气候议程置于稳健的国际政策之上。他指出，从阿富汗撤军为我们的对手留下了宝贵的资源，他预计这将损害美国的芯片、汽车和天然气生产。
-
-
-
-> The U.S. Constitution says “We the People” not “We the Government.”
-> — Mike Pompeo (@mikepompeo) [September 24, 2021](https://twitter.com/mikepompeo/status/1441483094985302017?ref_src=twsrc%5Etfw)
-
-
-
-*迈克**·**蓬佩奥**@mikepompeo*
-
-*美国宪法说“我们人民”而不是“我们政府”。*
-
-*2021**年**9**月**25**日*
-
-与此同时，蓬佩奥敦促拜登和他的顾问学川普政府，看看如何实施和执行美国优先政策。这位前国务卿赞扬了川普普总统领导下的强大边境和以美国为中心的供应链政策，认为是可以造福美国未来几代人的好政策。
-
-翻译：JS709｜校对：Nick｜编辑&发布：V
-
-原文链接：[https://www.oann.com/fmr-secy-of-state-pompeo-biden-surrendering-america-to-progressives-adversaries/](https://www.oann.com/fmr-secy-of-state-pompeo-biden-surrendering-america-to-progressives-adversaries/)
+[![](https://spark.adobe.com/page/eWiXza5XNhwiB/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/eWiXza5XNhwiB/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)

@@ -2,50 +2,27 @@
 ---
 
 
-## “现在购买，将来偿还”—消费者债务陷阱
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1576426/)
+## 中共国又一家房企债务违约 揭开行业危机序幕
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1576535/)
 
-作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/10/C2F07C7F-B6B1-4979-8076-B7D5264682DD_cx0_cy6_cw0_w1023_r1_s.jpg)网络图片
+据美国之音10月5日报道，中共国最大的房地产开发商恒大集团的债务危机日益严重之时，另一家花样年房地产控股集团未能如期支付一笔2.05亿美元的票据债务，此前花样年旗下一个公司已经被曝出未能如期偿付一笔7亿元的贷款。
+
+相对于恒大集团负债接近2万亿人民币，花样年集团在规模和债务金额方面都比恒大小得多，但它的困境仍然让外界担心房地产行业会对中共国整体经济造成冲击。国际三大评级公司之一的惠誉将花样年的评级降为“CCC”。同时，惠誉将另一家房地产公司新力控股集团从“CCC”降级至“C”，称新力控股的债务偿还能力几乎耗尽。新力控股9月30日股价暴跌90%，百亿市值缩水至17.85亿港元。
+
+与此同时，另一家房地产开放商、A股上市的华夏幸福公告了2192亿元的债务重组计划。自2020年以来，包括华夏幸福、泰禾集团、蓝光发展、中国恒大、新力控股、阳光100、花样年在内的8家房企都不同程度遭遇经营和债务危机。为避免恒大无序倒闭、破产，万科、中国金茂、华润置地等政府背景的地产开发商被要求向恒大购买资产。
+
+中共再输血，也不可能让一个已经倒塌的恒大再次崛起。恒大的垮台会将中共国所有的房地产企业带进深渊，彻底戳破中共国虚假的房地产泡沫。倾家荡产、终生背负房贷的压力，甚至祖孙三代充当房奴为中共续命的时代已经一去不复返了。中共这条吸血的蚂蝗再也不能从房地产获取财富，但是房地产行业的债务无可避免地又落到中国人民的头上。中共不灭，中国人民的灾难永不止息。
+
+新闻参考链接：[https://t.co/6H7SfmPnmj?amp=1](https://t.co/6H7SfmPnmj?amp=1)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
-
-
-
-
-
-Pattie Lovett-Reid 在她最新的专栏里阐述了’先消费后还款’这种看起来很有吸引力的消费方式其实隐藏着巨大的风险。
-
-最新的MNP消费者债务指数表明，低利率和高物价都刺激着加拿大人借贷。近六成（58%）的受访者表示在年底前可能会借更多的钱，其中37%的人信用卡已经有尚未偿还的债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture5.jpg)
-低到谷底的利率使很多人购买了他们想要但不一定需要或者不能承受的东西。而生活成本的不断提高使很多加拿大人不得不依赖贷款度日。一旦利率提高，这些人会陷入很大的麻烦。
-
-这种先买后付的消费方式更多的利于放贷公司，而非消费者。
-
-举例来说，大约6000块的信用卡债务，如果每月只还最低还款额，借款人要大约用14年来偿清10000元的本金和利息。（利率=14.99%）
-
-借贷消费还涉及各种手续费，特别是晚付费罚款。
-
-MNP 的受访者中46%称他们的收支勉强持平。更有27%的人说他们的收入已经不足以支付账单和现有债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture6.jpg)
-加拿大家庭的财务风险是真实存在的。人们沉浸在提前消费延后偿还的自我满足中。
-
-（本文仅代表作者观点）
-
-参考来源：[https://www.ctvnews.ca/business/pattie-lovett-reid-buy-now-pay-later-don-t-do-it-1.5607416](https://www.ctvnews.ca/business/pattie-lovett-reid-buy-now-pay-later-don-t-do-it-1.5607416)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/calendar_oct-1.jpg)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/s2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)

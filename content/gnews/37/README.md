@@ -2,36 +2,39 @@
 ---
 
 
-## 加州橙县海滩遭大规模漏油污染
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576014/)
+## 加拿大护士告密：许多人因接种疫苗后死亡和住院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576131/)
 
-栏目记者：QMAY
-责任编辑：正义的小新
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/nurses-in-canada-1080x675-1.jpg)
+图片来源：immilawglobal.com
 
+**【雅典娜快讯】，紧贴时事脉搏**
 
+两名加拿大护士挺身出来告密，告诉记者他们在中共病毒（COVID-19）大流行期间所看到的情况。这包括接种中共病毒疫苗后死亡的病人，以及医院里挤满了完全接种疫苗后，患有中共病毒的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+来自加拿大魁北克省（Quebec）庞蒂亚克（Pontiac）小镇的埃里卡·比尔兹利(Erica Beardsley)做了11年的护士，在她的雇主强制要求她接种疫苗后辞职。
 
+在加拿大的一次反疫苗授权的抗议活动中，比尔兹利向记者讲述了她作为护士在大流行期间看到的可怕事情。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture4-1.jpg)
-10月2日，加州橙县海岸附近发生重大漏油事故，漏出的原油污染了大片海滩，杀死众多鱼类和鸟类，并威胁到当地的湿地。该泄漏事故，与亨廷顿海滩附近的一条与海上石油平台相连的管道有关。这次石油平台的故障，导致至少 12万6千加仑原油泄漏到沿海水域，形成了一个面积约 8,320 英亩的浮油，并在周日早些时候扩散到纽波特海滩。泄漏的石油还渗入了亨廷顿海滩附近、占地 25 英亩的生态保护区。
+比尔兹利说：”我亲眼看到人们束缚着老人，违背他们的意愿为他们接种疫苗，而老人却大喊’不要’。我见过自杀的病人，一旦病人死了，他们就对病人进中共病毒测试。”
 
-加州官员周日下午表示，泄漏已得到控制。但橙县负责人卡特里娜·弗利表示，石油仍在不断地泄漏，潜水员在周日早些时候仍在紧张修复。截至目前，尚不清楚泄漏的原因。
+“我目睹了很多人在接种疫苗后不久死于心脏病，”她继续说。”我目睹了疫苗接种后五天、四天就足月流产的情况。”这是一个令人惊讶的普遍现象，尽管她来自一个不足5000人的小镇。
 
-（本文仅代表作者观点）
+另一位在多伦多（Toronto）圣迈克尔（St. Michael’s）医院工作的护士称，医院里到处都是完全接种了中共病毒疫苗的病人。
 
-参考链接：[加州橙县海滩遭大规模漏油污染](https://www.latimes.com/california/story/2021-10-02/coast-guard-rushes-to-contain-newport-beach-oil-slick)
+加拿大各地的人们，包括医护人员，都在抗议强行接种疫苗的行为。这些抗议活动在全国各地涌现，反对人们被迫接种实验性和致命的中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-终审编辑：鬼五
-校正/发稿：Hetangyuese
+**参考新闻：**[Canadian nurse whistleblowers say many people are dying after getting vaccines while hospitals are filled with the fully vaccinated – NaturalNews.com](https://www.naturalnews.com/2021-09-27-canadian-nurse-whistleblowers-fully-vaccinated-dying.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

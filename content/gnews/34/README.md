@@ -2,33 +2,52 @@
 ---
 
 
-## 全球种族灭绝 &#8211; 疫苗接种是现实版的黑手党暴力事件
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1576052/)
+## Facebook怎么啦？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1576153/)
 
-编译: Hong
+翻译：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+脸书在周一为世界各地的用户停止工作数小时后表示道歉。该公司旗下的WhatsApp和Instagram也同样出现了故障。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-24.jpg)
+问题出在哪里？简而言之，Facebook的系统停止与互联网链接。网络基础设施公司Cloudflare解释说，这就像 “有人一下子拔掉了他们数据中心的电缆，并将其与互联网断开”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-2.jpg)
+Facebook的解释则更有技术性。它说，“协调我们数据中心之间的网络流量的骨干路由器的配置变化导致问题，中断了这种通信”。这产生了 “连带效应……使我们的服务陷入停顿”。扎克伯格为六小时的Facebook中断服务道歉。
 
-图片来自网络
+那么，为什么人们无法访问Facebook？
 
-[埃迪·贝特曼(Eddy Bettermann ) 医学博士在10月5日的一篇文章](https://dreddymd.com/2021/10/05/australian-aboriginal-dies-six-days-after-second-dose-of-pfizer-vaccine/)中抨击疫苗制药公司就像黑手党暴徒一样，利用 “内疚 “和 “恐惧 “宣传的手段胁迫人们对自己的身体做出通常不会做的事情。在澳大利亚，有超过70%的原住民无惧无畏、拒绝接种疫苗，过着无忧无惧的正常生活，但当中共病毒疫苗首次问世时，这些原住居民就被标记为疫苗”优先群体”接种。
+互联网被分解成数十万个网络。像Facebook这样的大公司有自己的大型网络–被称为自治系统。当你想访问Facebook（或Instagram或WhatsApp）时，允许计算机与他们的网络连接的后端系统使用边界网关协议（BGP）–一种互联网的邮政服务。为了将人们引导到他们想要访问的网站，BGP会查看数据可能经过的所有可用路径，并选择最佳路线。
 
-从一开始，澳洲政府就与疫苗制药公司串通一气*，*向原住居民施压，使没有接种疫苗的人感到羞耻，让他们排队等候接种。据报道，疫苗制药公司医药代表正在与马宁里达（Maningrida）和贾林金（Djarindjin）地区的长老接触，用羞辱的激将法逼迫他们为了*“*社区的利益”接种中共病毒疫苗*。*现约有1,200 名原居民居住在澳洲Wakka Wakka地区，截至2021年9月9日，只有 4.6% 社区被认为是 “完全接种了疫苗” 。
+周一，Facebook突然停止提供系统运行所需的信息。这意味着没有人的电脑可以连接到Facebook或它旗下其他网站。
 
-贝文.科斯特洛（Bevan Costello）先生曾是一位受人尊敬的土著首领、是一位教育家和导师，他在被迫接种辉瑞疫苗之后的第六天就猝死了。疫苗黑手党强迫65岁的科斯特洛（Costello）先生接种中共病毒疫苗，并逼他相信，他正在为他的社区做正确的事情。科斯特洛（Costello）早在 8 月份就排队等候第一剂Covid 中共病毒疫苗接种， 9 月 9 日，他在美国广播公司（ABC）线下中共病毒疫苗推广活动中，接种了第二剂辉瑞 mRNA疫苗。 科斯特罗（Costello）先生是被迫招募去推广疫苗接种、并带头接种了疫苗，美国广播公司还对他进行了专访，目的是为了能有更多部落里的人跟随接种。
+这次中断有什么影响？
 
-在接受美国广播公司采访时，科斯特罗（Costello）先生说，他在戳了第二针中共病毒疫苗后又恢复了生活的自信。这句话证明了，像科斯特罗（Costello）先生这样智慧的人一定是遭受了心理虐待，被胁迫发表了公开声明。当一个人说，如不接种多剂中共病毒疫苗就没有信心活下去的时侯，这个人一定是被人从心里上操控了。
+这些关键的互联网参与者的故障，对全球的个人和企业产生了连锁反应。追踪故障的Downdetector说，世界各地报告了约1,060万个问题–这是有史以来最大的数字记录。对许多人来说，失去对Facebook服务的访问只是一种不便。但是对于发展中国家的一些没有其他可靠方式与客户沟通的小企业来说，这可能是一个严重的问题。同样，一些组织的员工在大流行之后仍在远程工作，现在依靠WhatsApp与同事保持联系。
 
-不幸的是，在科斯特洛（Costello）先生接种第二剂中共病毒疫苗后的第六天便突然去世了。瑟堡原住民郡委员会（The Cherbourg Aboriginal Shire Council）在Facebook 上发布消息称，科斯特洛Costello）先生是“突然死亡”。 美国广播公司报道称，他是因心脏病突发猝死，针对疫苗会对人体心血管系统造成损害却只字未提。
+这种情况是如何被允许发生的？
 
-科斯特洛（Costello）先生的死亡将被记录为“未接种疫苗的死亡”，因为他第二次接种的时间还不到14天。然而，如果能有人重视中共病毒疫苗接种的真相，就能挽救科斯特洛Costello）先生的生命；如果他对拒绝接种而不感到自责，他就有可能够做出一个理性的选择； 如果他在接种疫苗时就被告知疫苗接种会对心脏造成危害，有猝死的风险，他可能会做出不同的选择以挽救自己的生命。
+在北京时间周一16:45左右，大量的报道开始出现，称Facebook、Instagram和WhatsApp无法工作。起初，这引起了人们对如何应对的惯常玩笑，以及Twitter等竞争对手的嘲讽。但很快就发现，这是一个更严重的问题–有报道称，在Facebook的加州总部出现了混乱。
 
-在这场疫苗接种的悲剧中，所有关于Covid-19中共病毒疫苗会导致血栓和心脏炎症的真实信息都被（媒体）判为”错误信息 “而被人们所忽视。目前，由于知情同意被捆绑在一种心里操纵、内疚和恐惧的状态中，将有更多的人不可避免地成为这场全球疫苗接种种族灭绝的受害者。
+《纽约时报》的科技记者谢拉-弗伦克尔(Sheera Frenkel)告诉英国广播公司(BBC)，花了这么长时间才解决的部分原因是，“试图找出问题所在的人甚至无法实际进入大楼”，以找出问题所在。我们还不知道这个问题是由软件错误还是简单的人为错误造成的。
 
-现在，整个世界已被邪恶的中共和黑暗势力所挟持，不计其数的人死于中共的无效毒疫苗。但只要有正道主义在，黑暗势力必将被消灭；谁与中共贼党为友，谁就是世界的敌人。传播真相，拒绝接种无效疫苗， 挽救生命！
+最尴尬的是，Facebook的道歉是在其竞争对手Twitter上发布的。
 
-文章仅代表作者本人观点,与GNews无关
+参考链接：[What happened to Facebook, WhatsApp, and Instagram?](https://www.bbc.com/news/technology-58800670)
 
-[新闻参考来源](https://dreddymd.com/2021/10/05/australian-aboriginal-dies-six-days-after-second-dose-of-pfizer-vaccine/)
+**本文仅代表作者观点**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
