@@ -2,24 +2,31 @@
 ---
 
 
-## 疫苗接种后死亡，将获得四千多万日元赔偿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576318/)
+## 澳总理称联邦政府被各州“勒索”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576420/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-91.png)[图片来源](https://news.yahoo.co.jp/articles/b3a832f8a3e611da9676fedd59c4eda08e86482c)
-10月6日，日刊现代报道10月1日，探讨新型冠状疫苗的副作用的专家联合会议上，厚生劳动省向其报告称： 截至9月24日，新冠疫苗接种后报告的死亡案例达到1233例。9月10日的上一份报告中，有1155例死亡案例，增加了78例。1233例死亡病例中，包括接种辉瑞疫苗1198例（包括5对重复报告和10例撤回在内），由美国辉瑞公司（Pfizer）制造；接种莫德纳疫苗35例，由美国莫德纳公司（Moderna）制造。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/SCOTT.jpg)图片来源：Reuters
+**整理报道：**翼族
 
-专家评估，截至9月12日，对接种辉瑞疫苗的1157例病例进行因果关系α、β、γ评估：”α”（疫苗与死亡之间的因果关系不可否认）0例，”β”（未发现疫苗与死亡之间的因果关系）7例，”γ”（因缺乏信息等原因无法评估疫苗与死亡之间的因果关系）1150例；截至9月12日，对接种莫德纳疫苗的35例病例进行因果关系α、β、γ评估：其中0例为”α”，1例为”β”，32例为”γ”；截至9月12日，阿斯利康公司制疫苗，估计接种了29025次，死亡、副反应和重症疑似零。
+周二，在昆士兰州州长要求澳大利亚联邦政府为该州医院提供更多资金后，总理莫里森先生表示，联邦政府“不会（中共病毒）大流行中（各州和领地）的‘勒索’行为做出反应”。
 
-接种疫苗会有副作用，这是毋庸置疑的，媒体也无法掩盖这一事实，但是他们一再引导舆论，强调疫苗和死亡之间没有因果关系，10月5日雅虎新闻报道，一定数量的人担心接种疫苗对身体健康产生影响， 如果接种疫苗导致身体不适，可根据《预防接种健康被害救济制度》寻求补偿，如果不幸因接种疫苗而死亡，将向配偶或受害者家属支付一次性死亡金（4420万日元），为死者举行葬礼的人将获得丧葬费（212，000日元）。
+莫里森接受4BC电台采访时说：“我们已经做了很多，（联邦政府）已经向各州提供了大量资金，无论是留职补贴还是经济支持补贴的款项。”
 
-目前日本政府已经在商讨，今年12月开始第三针疫苗接种工作。新冠疫苗接种后报告的死亡案例已经用“数据”驳回，没有证据证明死亡和疫苗接种有关，所以《预防接种健康被害救济制度》就显得那么“多此一举”。
+维多利亚州卫生部长弗利在周三的新闻发布中公开反对总理莫里森的言论，称这实际上是“伙伴政治关系”，而不是“勒索”政治。弗利说：“过去分担的原则一般是50-50，但现在减少到了45-55”。
 
-信息来源：
-1、[厚労省がワクチン接種後死亡1233事例を報告 前回9.10より78例増加](https://news.yahoo.co.jp/articles/b3a832f8a3e611da9676fedd59c4eda08e86482c)
-2、[ワクチン接種後に体調不良が続いた場合、どんな補償が受けられる？（ファイナンシャルフィールド](https://news.yahoo.co.jp/articles/3eec5bed94b70f7b5d3aa097fd8169c0a7589220)）
+弗利说：“所有州和领地曾在4月聚在一起，与联邦分享了我们在这方面的担忧，由于我们已经自行处理了超过12个月的新冠疫情危机，我们的系统已经捉襟见肘，我们的人民已经筋疲力尽，我们需要联邦政府投入更多额外的资金。”
 
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平阿卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+昆士兰州州长安娜斯塔西亚·帕拉夏克 (Annastacia Palaszczuk)周三在新闻发布会上说，各州和领地的卫生部长已给联邦卫生部长格莱格·亨特（Greg Hunt）一封联名信，要求“立即提供额外的联邦资金……希望州政府和联邦政府为了他们的最佳利益而合作。”
+
+（文章内容仅代表作者个人观点，与GNEWS无关）
+
+**参考链接：**[Victorian Health Minister fires back over PM’s ‘shakedown politics’ remark, as QLD Premier demands cooperation over hospital crisis](https://www.skynews.com.au/australia-news/coronavirus/victorian-health-minister-fires-back-over-pms-shakedown-politics-remark-as-qld-premier-demands-cooperation-over-hospital-crisis/news-story/c9a944f48465cbadd6a8cc1a3d765cd1?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAQy5_JlYCUl9UkGLyciP3V38HBlAEqEAgAKgcICjDNtZILMOT5pwM&amp;utm_content=rundown&amp;gaa_at=g&amp;gaa_n=AYc4ysvuzLD6rbZl2CgkoqT8jPsGW_Z3xSrWYAUdVBpJn0dRpJvmjRr4kD0I_7NFy9xwJkm7mb4GidAuMqJfICEmOEVA2dHRu4qAM9s%3D&amp;gaa_ts=615d491f&amp;gaa_sig=Z2hqQy5x1QnvWaP1VOHMSd3NQX_pCX78-Orp9OyQ3s9yoywNhtBMuawRRpDdhXnece_xoXRIfkNr5soJkEmtQQ%3D%3D)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

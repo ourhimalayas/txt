@@ -2,57 +2,47 @@
 ---
 
 
-## 美国国务院：美国贸易代表宣布了美国将重新调整对华贸易政策
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1576000/)
+## 民众揭露“油荒” 事件 英国执行疫苗接种证B计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576013/)
 
-美国国务院： 我们欢迎与 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hashtag_click) 的竞争，但这种竞争需要公平和负责任地管理。美国贸易代表宣布了美国将围绕我们的优先事项重新调整对华贸易政策的初步步骤：[http://go.usa.gov/xMdyg](https://t.co/Ssd10LTWia?amp=1)。
-
-
-
-> We welcome competition with the People’s Republic of China, but that competition needs to be fair and managed responsibly. [@USTradeRep](https://twitter.com/USTradeRep?ref_src=twsrc%5Etfw) announced the initial steps the U.S. will take to re-align our trade policies towards the PRC around our priorities: [https://t.co/yCcKGM3aMJ](https://t.co/yCcKGM3aMJ).
-> — Department of State (@StateDept) [October 5, 2021](https://twitter.com/StateDept/status/1445509102373781509?ref_src=twsrc%5Etfw)
+栏目记者/责任编辑：安吉拉
 
 
 
-参议员瑞克·斯科特： 拜登的财政部长希望监控美国人的财务往来。拜登的司法部部长希望让批判种族理论的反对者保持沉默。这就是中国、俄罗斯和古巴政权目前所做的：窥探他们的公民并压制异议。拜登 = 系统性社会主义。 【附每日电讯：拜登因“武器化”司法部反对父母们发对批判种族理论】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
 
 
 
-> Biden’s Treasury Secretary wants to monitor Americans’ financial transactions. Biden’s AG wants to silence opponents of Critical Race Theory. This is what the Chinese, Russian & Cuban regimes currently do: snoop on their citizens & squash dissent. Biden = Systemic Socialism. [https://t.co/g8vcA4g3iT](https://t.co/g8vcA4g3iT)
-> — Rick Scott (@SenRickScott) [October 5, 2021](https://twitter.com/SenRickScott/status/1445466122900238346?ref_src=twsrc%5Etfw)
+从两周前开始，英格兰伦敦及周边大范围油站供应受限或停供，极大影响了人们日常出行和工作。为了加油，当地居民必须忍受超长的排队时间以及限售、起早贪黑、踩点油罐车路线。
 
+通过和油站工作人员、超市雇员以及附近小商业主的对话，记者了解到，造成地区性加油困难的主要原因，是政府和燃油公司共同“演绎”的结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture3-7.jpg)
+英国油价在7月旅游高峰前升至八年以来最高点。媒体平台在两周前伦敦反对疫苗护照大游行前夕，集中刊登燃油短缺的文章，触发民众恐慌购买，燃油公司就势清空积压库存，政府则间接达到限行目的。伦敦周边以外地区，完全不存在供应问题。连锁商户和大公司车队加油有保证，最受打击的，是奔波在道路上的个体商户，这场“油荒”导致他们生计维持困难。
 
+关于重型货车司机年薪七万镑的招聘广告，有油罐车司机说，确实很吸引人，但雇主只会支付平均15到20英镑左右的时薪，甚至更低，且工作异常辛苦，和上涨的物价完全不成比例。一些重型货车司机表示，他们已经参加了油罐车驾驶的相关培训，但无法获得工作机会。
 
-众议员迈克·沃尔茨： 感谢基思在捍卫民主、促进清洁网络和讲述华为真相方面发挥的领导作用。 【转前副国务卿基思·克拉克推文：自由世界不应该向共产中国屈膝。我们必须与台湾这个民主模范 美国的好朋友站在一起。去年,我有幸成为访问台湾的40年来最高级别外交官,并为加强我们的经济联系而感到自豪】
+与此同时，英国民众发现，政府拒绝投票方式，而试图以“公众咨询”的手段，绕过议会实施疫苗护照。从10月起，政府用“国民健康署新冠疫苗接种信”，NHS Covid Pass，代替了疫苗护照的使用，搭配即将推出的秋冬B计划。
 
+目前夜总会、音乐会、户外节日和体育赛事等场所被要求出示接种证明，B计划提案将大幅扩大受限制的场所。而英国政府开启军人运送燃油，就是公开在主干道和市镇中心布置军队。人们开始担心，英国在转身成为军警国家，就像在澳大利亚发生的一样。
 
+（本文仅代表作者观点）
 
-> Thank you Keith for your leadership on defending democracy, promoting clean networks, and telling the truth about Huawei. [https://t.co/55vaFGZfzz](https://t.co/55vaFGZfzz)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 5, 2021](https://twitter.com/michaelgwaltz/status/1445457506755620864?ref_src=twsrc%5Etfw)
+参考链接：
+1. [民众揭露“油荒” 事件 英国执行疫苗接种证B计划](https://uk.indeed.com/HGV-Driver-Per-Hour-jobs)
+2. [民众揭露“油荒” 事件 英国执行疫苗接种证B计划](https://www.bbc.co.uk/news/business-57861690)
+3. [民众揭露“油荒” 事件 英国执行疫苗接种证B计划](https://summit.news/2021/09/28/british-government-trying-to-bypass-parliament-to-implement-vaccine-passports/)
+4. [民众揭露“油荒” 事件 英国执行疫苗接种证B计划](https://www.gov.uk/government/consultations/proposal-for-mandatory-covid-certification-in-a-plan-b-scenario-call-for-evidence)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
 
+终审编辑：鬼五
+校正/发稿：Hetangyuese
 
-众议员迈克·加西亚： 尽管许多非法越境的移民甚至没有接受新冠COVID 测试，更不用说接种疫苗了——拜登政府现在却要求所有海关与边境保卫局[@CBP](https://twitter.com/CBP) 的官员在 11 月 1 日之前接种疫苗。这种虚伪何时结束？ 【转[http://saraacarter.com](https://t.co/dMuhtW8L5x?amp=1): 边境巡逻人员对新的强制疫苗规定感到不安】
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-> Despite the fact that many of the migrants illegally crossing the border are not even taking a COVID test, let alone getting vaccinated – the Biden administration is now mandating all [@CBP](https://twitter.com/CBP?ref_src=twsrc%5Etfw) officials get vaccinated by Nov. 1st. When will the hypocrisy end? [https://t.co/H1azHT98lF](https://t.co/H1azHT98lF)
-> — Rep. Mike Garcia (@RepMikeGarcia) [October 5, 2021](https://twitter.com/RepMikeGarcia/status/1445443555162427394?ref_src=twsrc%5Etfw)
-
-
-
-参议员兰德·保罗： 在一个如此多的运动员无法成为好的榜样的时代，乔纳森·艾萨克 (Jonathan Isaac) 因他对权力说出真相的勇气和信仰而脱颖而出。 【转福克斯晚间新闻：联邦新闻网FNN 独家与主持人[@ShannonBream](https://twitter.com/ShannonBream)：篮球运动员乔纳森·艾萨克[@JJudahIsaac](https://twitter.com/JJudahIsaac) 权衡疫苗强制要求以及为什么他选择不接种疫苗】
-
-
-
-> In a time when so many athletes fail to be good role models, Jonathan Isaac stands out for his courage to speak truth to power and for his faith. [https://t.co/iWShFCDIUb](https://t.co/iWShFCDIUb)
-> — Senator Rand Paul (@RandPaul) [October 5, 2021](https://twitter.com/RandPaul/status/1445430140952059907?ref_src=twsrc%5Etfw)
-
-
-
-众议员李·泽尔丁： 如果这次福奇得手了（指圣诞节也不能聚集），每一个人都要把他们书架上的精灵换成沙发上的福奇。他想插手到每个人的生活中，特别是最近引起轩然大波的-建议大家取消和所爱之人的圣诞节。太过分了。 [@GutfeldFox](https://twitter.com/Gutfeldfox) （附节目访谈）
-
-
-
-> If Fauci had his way, everyone would be replacing their Elf on a Shelf with a Fauci on the Couchy. He wants to be all up in everyone's business, most recently causing an uproar by suggesting your Christmas plans with loved ones may need to be canceled. It's too much. [@GutfeldFox](https://twitter.com/Gutfeldfox?ref_src=twsrc%5Etfw) [pic.twitter.com/xC9Ke8dSeg](https://t.co/xC9Ke8dSeg)
-> — Lee Zeldin (@RepLeeZeldin) [October 5, 2021](https://twitter.com/RepLeeZeldin/status/1445373719426347010?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

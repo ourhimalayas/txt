@@ -2,20 +2,30 @@
 ---
 
 
-## 拜登派遣国安顾问前往苏黎士会见杨洁篪
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576223/)
+## 有声|中共国“血旗”挂满大街小巷引发的思考
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1576257/)
 
-#### 翻译：Evalu
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/10/3-12.jpg)图片来源：DW
-美联社10月5日华盛顿报道，乔·拜登总统正在派遣白宫国家安全顾问杰克·苏利文去瑞士与中共国外交政策顾问杨洁篪会谈，商讨两国在众多问题上的机会，包括台湾和贸易。
+配音：教育部蒙古鸿雁
 
-这个会谈安排在苏黎士的星期三，在白宫周一批评北京近几天对自治的台湾进行持续军事骚扰活动。这将是对上个月拜登与习近平通话后的跟进，旨在继续两国间“寻求负责任地处理竞争”，这是白宫安全委员会发言人艾米丽·何恩在一次声明中说的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-白宫在本周指出北京用挑衅性行动损害了地区和平与稳定，最近几天，中共国向台湾起飞了几十架军机，包括周一的56架飞机。美国贸易代表戴琪周一说她计划与北京官员直接谈关于解决关税战的临时贸易协议。戴琪说她不想“让与中共国的贸易关系更紧张”，但她想继续建议拜登进行来自前总统川普所采用的严格的关税政策。
+10月1日，网易新闻一篇《巨幅国旗为祖国庆生》的文稿，用各种活动方式展示“血旗”，活动中人流聚集，完全忽视当下新冠病毒肆虐状态，曾经强制封社区、封门户的官警，瞬间消失，中共国的“血旗”挂满大街小巷，似乎“血旗”可以防病毒。
 
-最近的扰台事件发生于台湾申请加入主要的区域贸易协议之后，北京强烈反对西方让台湾以主权国家状态进入，表达反对台湾的申请。中共国称民主治理的台湾是它的领地，如果必须，将武力控制台湾，它拒绝承认台湾政府，并寻求孤立蔡英文领导的独立的政府。
+文字版原文：[中共国“血旗”挂满大街小巷引发的思考](https://gnews.org/zh-hans/1573906/)
 
-拜登因中共国的强制贸易行为，对少数民族人权的践踏和源于武汉的中共病毒流行的处理反复打电话给中共国，同时也表达希望双方在一些问题上，如气候变化，防止朝鲜半岛核危机等问题上共同合作。拜登政府官员也表达了在早些时候与中共高层官员的对话很有挫折感，缺乏建设性意见。
+音频处理：喜山必胜Maverick
+发稿：孤独的小生（文留）
 
-新闻来源： [Biden dispatches Sullivan to meet China diplomat in Zurich](https://apnews.com/article/coronavirus-pandemic-joe-biden-business-xi-jinping-taiwan-56429a6c261af8d1808fa67efe94217a)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

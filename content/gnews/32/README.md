@@ -2,30 +2,46 @@
 ---
 
 
-## 特鲁多将于本周三公布联邦强制疫苗计划
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1575986/)
+## Facebook 股票遭抛售，美议员呼吁企业分拆
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576012/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/10/AR-210919039.jpg)图片来源：Khaleej Times
-根据《CBC新闻》10月5 日报道，总理贾斯汀-特鲁多将于周三公布政府计划的细节，即在公共服务部门和加拿大境内的旅行者必须接种COVID-19疫苗。
+栏目记者/责任编辑：文一
 
-该消息来自一位政府高级消息人士，他在接受CBC新闻网采访时不愿透露姓名，因为此人未被授权公开发言。
 
-预计该公告将包括如何执行这些规定以及何时生效的细节。
 
-特鲁多和副总理克里斯蒂娅-弗里兰将在定于美国东部时间周三上午11点举行的新闻发布会上谈及该计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
 
-联邦政府于8月首次宣布，打算对联邦公务员和乘坐飞机、轮船和省际列车的旅客强制接种疫苗。特鲁多说选举后的首要任务是对公务员和旅行者进行疫苗强制接种。他上周说，执行这项任务是他的政府在大选后待办事项清单中的首要任务。
 
-联邦政府表示，这项任务将不迟于10月底生效。
 
-特鲁多还希望为联邦监管部门的雇员强制注射疫苗，这些部门包括银行业、电信业和大多数国营企业。
+【彭博社】报道，Facebook、WhatsApp 和 Instagram 出现的平台故障导致其股票周一被大面积抛售，Facebook 股票下跌了4.9%，扎克伯格约损失70亿美元。
 
-在英国和丹麦取消疫苗护照，德国宣布不强制疫苗的新形势下，特鲁多不顾疫苗致命副作用，执意继续推行他深度参与的“大重置”计划，如今加拿大人疫苗完全接种率为71.5%，让人担忧。
+Facebook 及其子公司 Instagram 和 WhatsApp 持续七小时收到用户问题报告。故障发生前，有 Facebook 内部举报人揭露公司早知道其平台存在虚假信息等问题。故障发生后，据传其客户数据被打包在暗网销售。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Capture2-6.jpg)
+【Gateway Pundit】则于 10 月 5 日报道，处理主要手机运营商短信的服务公司称其数据库多年来被黑客入侵。
 
-原文链接：
-[https://www.cbc.ca/news/politics/vaccine-mandate-announcement-1.6201101](https://www.cbc.ca/news/politics/vaccine-mandate-announcement-1.6201101)
+Syniverse 负责处理其客户数十亿条短信，并与世界各地的数百家移动运营商包括 AT&T、Verizon、T-Mobile 等提供服务。
 
-* * *
+网络和数据安全问题再次被推上风口浪尖。
 
-发稿 Spirit
+纽约州议员亚历山大-奥卡西奥-科特兹 (Alexandria Ocasio-Cortez) 呼吁将 Facebook 拆散并加以监管，并认为这种集中式互联网服务对 “自由社会和民主具有难以置信的破坏性影响”。 佛罗里达州第三国会区前候选人查克-卡莱斯托补充说：”… 有Gettr……等，还有这么多（其它媒体可选择）。
+
+（本文仅代表作者观点）
+
+参考链接：
+1. [Facebook 股票遭抛售，美议员呼吁企业分拆](https://www.washingtonexaminer.com/news/facebook-outage-costs-zuckerberg-billions)
+2. [Facebook 股票遭抛售，美议员呼吁企业分拆](https://www.msn.com/en-us/news/world/parler-gettr-mock-facebook-outage-as-conservatives-call-on-people-to-dump-big-tech/ar-AAP9YHj)
+3. [Facebook 股票遭抛售，美议员呼吁企业分拆](https://www.thegatewaypundit.com/2021/10/company-handles-billions-text-messages-major-cellular-carriers-says-database-hacked-years/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-10-04-at-21.43.18.png)
+
+终审编辑：Q大哥
+校正/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40.png)
