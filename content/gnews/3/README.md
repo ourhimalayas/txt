@@ -2,50 +2,39 @@
 ---
 
 
-## 美联储主席鲍威尔表示“无意”禁止加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577474/)
+## 有声|罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1577532/)
 
-评论：
+配音：纽约香草山教育部 – 蒙古鸿雁
 
-***很多美国战友都担心本地的加密货币政策，担心不能正常的交易喜币。这篇文章让这些战友以及美国的加密货币爱好者、支持者吃了一剂定心丸。鲍威尔发表评论之际，加密市场反弹。比推终端数据显示，比特币日内上涨6.5%，交易价格一度突破4.4万美元。***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO-2-109-1.jpg)
 
-据《cryptoslate》记者ANA GRABUNDZIJA，2021年10月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2412.png)图片来源于unsplash网站，由 CALEB FISHER 拍摄
-美国联邦储备委员会主席杰罗姆·鲍威尔在众议院金融服务委员会举行的听证会上发表讲话时明确表示，该机构没有计划禁止加密货币。
 
-鲍威尔此前曾表示，加密货币可以被中央银行数字货币（CBDC）取代，他对此做出了回应。根据鲍威尔的说法，加密货币市场应该按照现行法律进行监管。
 
-同样的活动，同样的监管
+据意大利媒体报道，罗马尼亚亿万富翁丹·佩特雷斯库 （Dan Petrescu）周日在米兰附近的一次飞机失事中死亡。
 
-本周四早些时候，鲍威尔在该委员会作证，该委员会负责监督该国住房和金融服务部门的所有部门，包括银行、保险、房地产、公共和保障性住房、以及证券。
+佩特雷斯库驾驶飞机在起飞几分钟后坠毁，撞向一个建筑工地。包括佩特雷斯库的妻子和儿子在内的八人在坠机中死亡。罗马尼亚外交部已证实其中7人均拥有双重国籍。68岁的佩特雷斯库个人净资产超过10亿欧元（12亿美元），同时拥有罗马尼亚和德国国籍。
 
-在回答北卡罗来纳州共和党众议员特德·巴德（Ted Budd）的问题时，鲍威尔重申，不会考虑对加密货币实施中国式禁令。
+最近飞机事故频发，美国陆军医生和航空航天医学专家特蕾莎·朗刚向五角大楼呼吁，要求所有接种新冠疫苗的飞行员都必须停飞。 因未任何人都不能排除因心脏病发作，而突然发生飞行事故的可能性。疫苗灾难导致的空难事件恐将接连发生。
 
-巴德的问题是对鲍威尔早些时候关于稳定币监管和央行正在讨论发行CBDC的评论的回应。
+文贵先生对此也发盖文表示，没人愿意看到这种灾难时刻的发生，但是我们也要面对现实。
 
-根据鲍威尔的说法，“被广泛理解的”CBDC可以执行与加密货币相同的一些功能，但没有监管风险。
+文字版原文：[罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生](https://gnews.org/zh-hans/1573830/)
 
-鲍威尔说:“稳定币就像货币市场基金，就像银行存款，但在某种程度上，它们在监管范围之外，因此应该对他们进行适当的监管。”
+音频处理：喜山必胜Maverick
 
-“同样的活动，同样的监管。”他补充道。
+*发稿：*Yuki jiang
 
-为加密货币制定监管框架
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10.jpg)
 
-鲍威尔是在围绕美国加密货币监管的激烈辩论中发表上述言论的，这场辩论在过去几个月里愈演愈烈。
+**更多资讯，更多关注**
 
-随着中国出台的迄今为止最严厉的加密禁令，以及国内日益增长的监管审查，引发了业内人士和政府官员的激烈反应，他们开始坚持要求美国监管机构—美国证券交易委员会（SEC）提供透明和明确的指导。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-由于将现有的证券监管应用于加密货币可能会将加密业务赶出该国，因此需要制定一个客观的、对行业不那么敌意的框架作为一项战略决策。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-原文连接[https://cryptoslate.com/u-s-federal-reserve-has-no-intention-to-ban-cryptocurrencies-chairman-powell-says/](https://cryptoslate.com/u-s-federal-reserve-has-no-intention-to-ban-cryptocurrencies-chairman-powell-says/)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-文章点评仅代表个人观点
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – Wendy
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)

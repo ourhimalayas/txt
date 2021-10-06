@@ -2,21 +2,27 @@
 ---
 
 
-## 美国和中共科学家大流行爆发之前就计划制造一种新的冠状病毒
-` 象声` [轉載自GNews](https://gnews.org/zh-hans/1577185/)
+## 法参议员抵台 沙利文将在瑞士与杨洁篪会谈
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577321/)
 
-夏洛特·米切尔10月5日在MAILONLINE上发表文章指出：上个月，提交给美国国防高级研究计划局 (Darpa) 的一份拨款申请显示，一个国际科学家团队曾计划将相似毒株的基因数据混合以制造一种新病毒。赠款申请是在 2018 年提出的，并泄露给了大流行起源分析小组 Drastic。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
-世界卫生组织 (WHO) 的一位专家告诉《每日电讯报》，这将导致病毒在自然界中没有明确的祖先 。这位要求该论文不要公布他们姓名的专家说，如果采用了这种方法，就可以解释为什么在自然界中从未发现与 Sars-CoV-2 相近的匹配。这位世卫组织专家告诉《每日电讯报》，申请中详述的过程将创建“一个新的病毒序列，而不是与任何东西 100% 匹配”。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
-专家说：“这创造了一种在自然界中从未存在过的病毒，它带有一个自然界中不存在但非常非常相似的新‘主干’，因为它是自然主干的平均值。”该提议被拒绝，大约18个月后，武汉病毒研究所的病毒株数据库下线，无法检查那里的科学家在做什么。该研究所的科学家一直否认在他们的实验室中制造了冠状病毒。
+视频参看：2021.10.06早GTV新闻访谈
 
-据英国《每日电讯报》报道，这笔赠款申请提案是由英国动物学家 Peter Daszak 代表一个团体提交的，该团体包括 Daszak 生态健康联盟、武汉病毒学研究所、北卡罗来纳大学和新加坡杜克国立大学。
+[https://gtv.org/broadcast/watch/615d9622304e992109b07e21](https://gtv.org/broadcast/watch/615d9622304e992109b07e21)
 
-功能获得研究是一个科学术语，用于描述故意改变有机体以赋予其新功能以测试理论的研究。 当应用于研究人类病毒时，它可能意味着使病毒更具传播性甚至致命性，以测试哪些可以存活，哪些不能存活。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-\*文章仅代表作者观点\*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-参考链接：https://www.dailymail.co.uk/news/article-10062775/US-Chinese-scientists-planning-create-brand-new-coronavirus-leaked-proposals-show.html
-
-翻译&编辑：洛杉矶盘古农场–蓝精灵
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

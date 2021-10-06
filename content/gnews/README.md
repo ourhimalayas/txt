@@ -15,106 +15,106 @@
 
 ---
 
-### [2021年10月6日 文贵先生盖特 6](/content/gnews/1/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+### [西媒头条 — 第81期](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵直播摘要和音频 2021.10.5](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美联储主席鲍威尔表示“无意”禁止加密货币](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年10月6日 文贵先生盖特 5](/content/gnews/4/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月6日 文贵先生盖特 4](/content/gnews/5/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [香港地产代理起诉恒大要求其偿付佣金](/content/gnews/6/README.md)
- ` 象声`
-
-### [2021年10月6日 文贵先生盖特 3](/content/gnews/7/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [2021年10月6日 文贵先生盖特 2](/content/gnews/8/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [澳大利亚人们需要意识到发生在我们身上的事情……我们需要站起来说够了！](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年10月6日 文贵先生盖特 1](/content/gnews/10/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [年轻女性死后斯洛文尼亚叫停强生疫苗接种](/content/gnews/11/README.md)
- ` HimalayaRussia`
-
-### [秘翻在线：两岁幼儿感染中共病毒进 ICU 母亲曾感染父亲曾注射疫苗](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [法国议会报告：中共在学术界的影响占主导地位](/content/gnews/13/README.md)
- ` 日本东京方舟农场`
-
-### [台湾国防部长：从军40多年来台海局势当前最严峻](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [瑞典暂停针对30岁以下的 Moderna疫苗](/content/gnews/15/README.md)
- ` Charlie`
-
-### [美国，没有债务上限会增加全球金融危机](/content/gnews/16/README.md)
- ` Charlie`
-
-### [银河快讯：建材等住房相关产品价格上涨；原油价格上涨引发股价下跌](/content/gnews/17/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [中共国的地方债与房地产泡沫](/content/gnews/18/README.md)
- ` 波士顿五月花农场`
-
-### [法参议员抵台 沙利文将在瑞士与杨洁篪会谈](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
-
-### [秘翻在线：英国政府对疫苗灾难视而不见](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [10/6/21 香港快讯 林郑：积极推展 23 条 打击假新闻、管网络](/content/gnews/21/README.md)
- ` 英喜-粵語組`
-
-### [2021/10/04大卫作战室直播精要](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [三票专栏：中共是如何用房地产泡沫掠夺中国和全世界人民的](/content/gnews/23/README.md)
- ` 三票先生`
-
-### [2021/10/05大卫作战室直播精要](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国和中共科学家大流行爆发之前就计划制造一种新的冠状病毒](/content/gnews/25/README.md)
- ` 象声`
-
-### [有声|“潘朵拉文件”发酵,香港前特首梁振英被曝光!](/content/gnews/26/README.md)
+### [有声|台湾表示正在“准备战争”](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [没有变异病毒株就研发疫苗？](/content/gnews/27/README.md)
+### [有声|罗马尼亚亿万富翁等8人在米兰附近的飞机失事中丧生](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [澳智库：中共以经济实力胁迫印太岛国](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|脸书旗下社交平台服务全部关闭 现代通讯艰难的一天](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|傅政华成为中共权斗的弃子](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [2021年10月6日 文贵先生盖特 6](/content/gnews/7/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [郭文贵直播摘要和音频 2021.10.5](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美联储主席鲍威尔表示“无意”禁止加密货币](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年10月6日 文贵先生盖特 5](/content/gnews/10/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [狮城快讯：荒唐！父亲为了女儿可以打疫苗诉诸法律手段](/content/gnews/11/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [2021年10月6日 文贵先生盖特 4](/content/gnews/12/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [香港地产代理起诉恒大要求其偿付佣金](/content/gnews/13/README.md)
+ ` 象声`
+
+### [2021年10月6日 文贵先生盖特 3](/content/gnews/14/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [2021年10月6日 文贵先生盖特 2](/content/gnews/15/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [澳大利亚人们需要意识到发生在我们身上的事情……我们需要站起来说够了！](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年10月6日 文贵先生盖特 1](/content/gnews/17/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [年轻女性死后斯洛文尼亚叫停强生疫苗接种](/content/gnews/18/README.md)
+ ` HimalayaRussia`
+
+### [秘翻在线：两岁幼儿感染中共病毒进 ICU 母亲曾感染父亲曾注射疫苗](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国议会报告：中共在学术界的影响占主导地位](/content/gnews/20/README.md)
+ ` 日本东京方舟农场`
+
+### [台湾国防部长：从军40多年来台海局势当前最严峻](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [瑞典暂停针对30岁以下的 Moderna疫苗](/content/gnews/22/README.md)
+ ` Charlie`
+
+### [美国，没有债务上限会增加全球金融危机](/content/gnews/23/README.md)
+ ` Charlie`
+
+### [银河快讯：建材等住房相关产品价格上涨；原油价格上涨引发股价下跌](/content/gnews/24/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [法参议员抵台 沙利文将在瑞士与杨洁篪会谈](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
+
+### [秘翻在线：英国政府对疫苗灾难视而不见](/content/gnews/26/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [三票专栏：中共是如何用房地产泡沫掠夺中国和全世界人民的](/content/gnews/27/README.md)
+ ` 三票先生`
+
+### [美国和中共科学家大流行爆发之前就计划制造一种新的冠状病毒](/content/gnews/28/README.md)
+ ` 象声`
+
+### [有声|“潘朵拉文件”发酵,香港前特首梁振英被曝光!](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [没有变异病毒株就研发疫苗？](/content/gnews/30/README.md)
  ` 首尔天池农场`
 
-### [10/5/2021 七哥直播：太平联盟为攻击文贵而炮制假案，其下场一定很惨](/content/gnews/28/README.md)
- ` 秘密翻译组-北美组`
-
-### [前员工指证脸书“伤害儿童、煽动分裂削弱民主”](/content/gnews/29/README.md)
+### [前员工指证脸书“伤害儿童、煽动分裂削弱民主”](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [10/5/2021 七哥直播：中共国的假骗金融票据数字惊人](/content/gnews/30/README.md)
- ` 秘密翻译组-北美组`
-
-### [新任首相岸田文雄欢迎台湾加入CPTPP](/content/gnews/31/README.md)
+### [新任首相岸田文雄欢迎台湾加入CPTPP](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/32/README.md)
+### [索罗斯继续抛售股票 将部分资本投入加密货币](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [众议员联名致函拜登总统, 呼吁重新考量中美关系!](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [“断电门”后, WhatsApp 用户的隐私设定可能被重置!](/content/gnews/34/README.md)
+### [众议员联名致函拜登总统, 呼吁重新考量中美关系!](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
 ### [四川南充遭遇泄洪和洪峰过境](/content/gnews/35/README.md)

@@ -2,13 +2,14 @@
 ---
 
 
-## 2021年10月6日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1577480/)
+## 西媒头条 — 第81期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1577563/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+- 制作：蚂蚁兄弟
 
-10.6:太棒了**👏**
 
-[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pdcsot6534)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/xm1006.001-1.jpeg)
+发稿：信心的选择
 
-**喜联盟Gnews编辑部**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEWS_CH.-1-1.jpeg)

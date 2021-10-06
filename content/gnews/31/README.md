@@ -2,24 +2,37 @@
 ---
 
 
-## 新任首相岸田文雄欢迎台湾加入CPTPP
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577089/)
+## 前员工指证脸书“伤害儿童、煽动分裂削弱民主”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577124/)
 
-责任编辑：文一
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月4日, 刚刚当选日本新一任首相的岸田文雄举办了记者发布会，当被问及如何看待中共国与台湾先后申请加入跨太平洋伙伴关系协定时，岸田表示对中共国目前能否满足该协定组织的要求标准抱 存疑。并称，在重视企业知识产权保护等方面，中国大陆方面恐难以满足CPTPP要求的自由贸易标准。他同时声称: “（中共政府）在自由、民主、法治和人权等方面，都存在令人质疑的做法”。而对于台湾在9月份申请加入CPTPP, 岸田则表示了欢迎!
+栏目记者／责任编辑：流浪的阳光
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-106.png)
+这几天Facebook可谓遇上了多事之秋 ：本周一（3日）经历了旗下平台全部宕机。故障期间，Facebook的全球市值蒸发最多时近500亿美金，目前略有恢复。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide7-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide9.jpeg)
 
-最后岸田文雄首相明确指出, 对于现阶段 东海、南海地区存在试图以实力改变现状的动向，日本“ 将与共享普世价值, 且志同道合的盟国携手应对”。
+正可谓福无双至，祸不单行，周二（5日）在参议院商务委员会消费者保护小组的听证会作证，Facebook 被猛烈抨击。
+
+一名前员工告诉美国立法者，该公司的网站和应用程序“伤害儿童、煽动分裂并削弱我们的民主”。
+
+弗朗西斯·豪根（Frances Haugen ）是前脸书产品经理，后来成为吹哨人，并在国会山的听证会上严厉批评了该公司。 Facebook 面临着越来越多的审查，社会也更多地呼吁对科技巨头进行监管。
+
+豪根告诉参议员，脸书掌握的权力影响深远，与约20亿用户的日常生活紧紧交织， 她呼吁国会需采取行动来解决危机。
+
+参议院两党议员罕见立场一致，认为脸书公司必须做出改变。听证会小组主席布卢门撒尔（Richard Blumenthal）指控脸书公司“道德破产”，其影响将“困扰一整代人”。
+
+郭文贵先生在5日的大直播中爆料，让Facebook 全线崩溃半天的是俄罗斯。
+
+从去年美国大选期间的拙劣行为，到现在无所不用其极的阻挡、删除人们发布疫苗害人的真相，助纣为虐黑暗势力掩盖事实，Facebook的结果肯定是非死不可！
 
 (本文仅代表作者观点)
 
-参考链接：[日本新首相岸田：质疑中国能否满足TPP标准](https://www.rfi.fr/cn/亚洲/20211005-日本新首相岸田-质疑中国能否满足tpp标准)
+参考链接: [Facebook Market Cap](https://ycharts.com/companies/FB/market_cap)
+[https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3](https://www.ft.com/content/e9e25ff3-639a-4cc1-bb81-dedf24d956e3)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：文龍
+终审：暗黑
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
