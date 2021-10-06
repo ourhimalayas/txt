@@ -2,21 +2,27 @@
 ---
 
 
-## 视死如归&#8211;加拿大特鲁多宣布公务员接种中共病毒疫苗的最后大限！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1577205/)
+## 法参议员抵台 沙利文将在瑞士与杨洁篪会谈
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1577321/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/tc-edited.jpg)加拿大总理特鲁多和副总理克里斯蒂亚
-图片来源：Thepostmillennial
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GNEW-GTV-MOS-LOGO.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/10/GTV-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据加拿大知名自媒体《Thepostmillennial》10月6日刊登突发新闻报道，总理特鲁多当日正式宣布，10月29日将是所有联邦政府公务员全面接种COVID19疫苗的最后期限，而所有那些未接种该疫苗的联邦雇员将被安排“无薪休假”。
+视频参看：2021.10.06早GTV新闻访谈
 
-这些公务员职能部门包括：加拿大皇家骑警、联邦政府部门、惩教服务处、加拿大边境服务部，以及许多其他联邦职能办公室和相关机构。至于那些不能出示该疫苗接种证明的公务人员将在11月15日前被当局安排“无薪行政休假”。
+[https://gtv.org/broadcast/watch/615d9622304e992109b07e21](https://gtv.org/broadcast/watch/615d9622304e992109b07e21)
 
-对此，副总理克里斯蒂亚.弗里兰还宣布指示道：“所有皇家企业和其事务机构将不遗余力地执行反映我们今天所宣布的这项政策。同时，国防参谋长将发布一项指令，规定加拿大武装部队人员也必须接种COVID19疫苗。为此，我们正与联邦政府监管下的各工作场所的所有雇员紧密合作。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-总理特鲁多强调道：“实行该政策的最后期限是不迟于本月底，届时将要求所有联邦雇员必须提供COVID19疫苗的接种证明。而且到11月中旬，该已到位的执法措施将确保每位公务员都接种了该疫苗。此外，至10月底，在加拿大境内乘坐飞机或火车等公共交通工具的12岁或以上的人员都必须完全接种了该疫苗。因此，病毒检测将不再是登机前的一个选择。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/M10-2.png)
 
-（以上内容仅代表原文信息和作者个人观点。）
-
-[原文链接：](https://thepostmillennial.com/breaking-trudeau-liberals-announce-october-vaccine-deadline-for-public-servants)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)

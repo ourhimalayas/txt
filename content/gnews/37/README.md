@@ -2,17 +2,37 @@
 ---
 
 
-## 四川南充遭遇泄洪和洪峰过境
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1576971/)
+## 索罗斯继续抛售股票 将部分资本投入加密货币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577068/)
 
-韩国首尔天池农场—–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/10/62.jpeg)
-据新京报我们视频10月6日的微博，受嘉陵江上游亭子口、升钟水库泄洪计划变更及东河暴雨洪水情况影响，嘉陵江四川南充蓬安段出现特大洪峰过境，洪峰过境时最大流量达24700立方米/秒。为保障嘉陵江沿岸堤防安全，南部县文家坝紧急炸毁江面上失控船只。5日，蓬安县启动I级防汛应急响应，组织力量将沿线民众转移至安全地带。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/6插图.jpeg)图片来源：网络
-点评 中共统治下的中国，每年的汛期都发生浸泡。今年从河南720特大水灾起，到今天的四川南充遭遇泄洪和洪峰过境，浸泡了多少村巷，多少人受灾，多少人失去生命，灾后给这些居民的建设经费又有多少？这些数据我们都无法得知。
+栏目记者/责任编辑： Yousei
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-104.png)
+近日全球股市低迷，美股指数集体下挫，虽昨日有所回升，但脸书事件再度领跌科技股。周二的彭博投资全球虚拟会议上，气氛似乎更加悲观。位于多伦多的布鲁克菲尔德（Brookfield）资管公司管理着6260亿美元，其首席执行官布鲁斯（Bruce Flatt）说，现在是清算资产的好时机，我们已经变现了很多资产，今年还会继续。
 
-然而中共却天天喊着为人民服务，原来是人民为他们服务！他们通过对14亿中国人民的统治，把中国人民从加入世界贸易组织起挣取的血汗钱，大部分被他们转移到国外挪为己有，剩余的在国内就成为他们续命的血液。你们家园被浸泡了，道路桥梁被毁了，因洪水导致的损失等等，都跟他们无关，他们也不关心！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide5-3.jpeg)
 
-中国人民就是一群为他们服务的屁民，没有医疗、保险和养老，等到他们年老回到农村的时候才发现自己这些年真的一无所有，唯一挣得就是疾病、年老和贫穷。有中共在的一天，中国人民就不可能有好日子，TAKE DOWN THE CCP!
+索罗斯家族基金握有资产达270亿美元，信息主管道恩·菲茨罗伊（ Dawn Fitzpatrick） ，在接受采访时也表示，她一直在出售资产，并表明索罗斯避免在中共国投资的真正原因是钱会很快消失。索罗斯在8月底清仓中概股，并于近日在媒体专栏文章中直言不讳的批评，向中共国投资是一个悲剧性的错误。
 
-（本文仅代表作者观点，与Gnews平台无关）
+另外值得注意的是，索罗斯是继亿万富翁史蒂夫·科恩（Steve Cohen）和传奇投资人丹·洛布之后，最新进入加密货币领域的对冲基金大佬。
+
+道恩指出，加密货币已经成为主流。巧合的是，HCOIN即将于10月上市，它是唯一以黄金为锚，同时对接稳定币的加密货币。显而易见，各方资本跃跃欲试，正在为此做着准备。
+
+全世界的”沼泽地”不论黑白，“资本嗅觉“极其灵敏。索罗斯曾是中共最早的投资者和支持者之一，在资本力量的驱动下，一直在权衡并调整方向。新中国联邦通过揭露病毒疫苗真相和建立的喜联储，将以实力赢得更多话语权，推动各方势力转向。
+
+(本文仅代表作者观点)
+
+参考链接：[Soros Is Cashing Out Of Stocks, Putting Some Capital Into Cryptocurrencies](https://www.zerohedge.com/markets/soros-cashing-out-stocks-putting-some-capital-cryptocurrencies)
+[金融巨鳄索罗斯二季度清仓腾讯音乐 百度、唯品会等中概股亦遭抛售](https://cn.reuters.com/article/soros-fund-tencent-music-0816-idCNKBS2FH0CX)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：暗黑
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
