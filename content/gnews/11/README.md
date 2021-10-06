@@ -2,28 +2,29 @@
 ---
 
 
-## 墙内疫苗心情日记（十九）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576842/)
+## “断电门”后, WhatsApp 用户的隐私设定可能被重置!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576981/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-100.png)
-战友们全天好，有一周时间没有写日记，今天续上。
+栏目记者/责任编辑：安吉拉
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)![](https://assets.gnews.org/wp-content/uploads/2021/10/1006-AM5-10.001-1.jpeg)
+美东时间5日夜晚，脸书集团各平台功能逐步恢复。但有用户发现，在软件应用未发出更新警告的情况下，WhatsApp 有可能重置个人隐私的设定，也就是说用户所在群组默认状态被自动更改为“公开”。这意味着用户所在的群组不再具有保密性，变成了对所有人开放，即用户在不知情的情况下，可被陌生人，比如诈骗惯犯、高利贷者或皮条客直接查看。请使用WhatsApp的战友尽快进入个人设置，将“群组”隐私设置项目改回“仅限联系人”，以保护个人信息安全，防止其他安全隐患 。
+(本文仅代表作者观点)
 
-日常生活中就是读经工作打电话看GTV、盖特、GNEWS，每天紧跟七哥的9:57秒的视频和大直播。真是得劲啊！每一天都觉得自己是多么多么的幸运和幸福。明白人怎么活得有尊严和有价值，自己不去捣鼓、去尝试翻墙软件和谷歌账号，结果真是和大街上走过的路人一样。在自己成长的过程中所认知所悟到的，让我成为一个有自信、有思维、有目标、有希望的男人，感谢爆料革命让我的人生发生了转变。
+参考链接：
 
-在19.9无意的注册成功优酷，看到了的很多视频内容，这其中就有七哥的视频，最早看觉得七哥讲的有点反共，觉得自己不应该去听，而后随着看面具先生还有其他的视频才觉得七哥所讲的内容真是信息量巨大。目前也在回看七哥以往的视频信息，从中再学习一些大智慧。看七哥的视频让我在他处理事情和说话的方式，他的经历也让我能进入当时的场景，去思考问题、解决问题，碰见问题怎么化解，真是学到了。
+1. [Has WhatsApp Secretly Changed Your Privacy Settings?](https://forbes.kz/process/technologies/has_whatsapp_secretly_changed_your_privacy_settings/?)
+2. [FACT-CHECK: WhatsApp **has NOT **secretly changed its privacy settings for groups](https://ghanafact.com/2021/05/fact-check-whatsapp-has-not-secretly-changed-its-privacy-settings-for-groups/#:~:text=FACT-CHECK%3A%20WhatsApp%20has%20NOT%20secretly%20changed%20its%20privacy,knowing.%20These%20may%20include%20scammer%2C%20loan%20sharks%20etc...”.)
 
-共匪的第二波打疫苗已经开始了，家里岳父小舅子又打二针，岳母没有打二针。说了都不信，自己在家有个泡脚的机器在家排毒，不知道靠谱不？这种事怎么说！国殇日这几天放假，回老家看了看，母亲和父亲没有打二针疫苗，吃了青蒿素解毒，但不知道按疗程吃了没？
 
-母亲年纪大了也爱哭了，我知道她想她的儿孙们了，对子孙的牵挂，希望我们多去陪陪她。也知道我们的不容易，还在守着一个小卖铺为我们能减少一些负担，就是这样的母亲。妈妈啊，真希望您能明白共产党就是这个时代的魔鬼，害得多少儿孙不能与家人团聚。妈妈啊，真希望您能知道您的儿子参加爆料革命在拯救自己的同胞，我跟妈妈说，您一定要好好照顾自己，看看您生的孩子怎么给您争光的。一定要看到您的儿子是多么爱这个家和这个家族的。不希望妈妈再为钱财而哭泣，因为我有HCOIN和G系列。
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-也在这期间，家里有个灵修会二天，刚好与以前的小姊妹见面，给她简单聊了疫苗和未来的时事走势，希望她能理解，希望她能告诉更多的兄弟姐妹们。前几天或者昨天，也和主内的弟兄说了疫苗和共匪的事，正巧妻子也在参加会议，刚打电话过来说，可别再说国家大事和疫苗的事了。我媳妇就是在教会生活的人，对整个社会和各种的人情世故都不懂，还反对我翻墙，你说怎么办？心里有信仰，眼里有未来能救一个算一个，虽然我也交代别跟我媳妇说，但人啊还是说出去了。只有上帝知道我的心就行了。
+校正/发稿：我不在这里
 
-看家庭教会的牧者只知道共产党坏不知道它多坏，而现今的人在这样的环境里，也感受不到它的坏，可怜可悲。整个社会的人如果没有跟随爆料革命，真体会不到共产主义的邪恶。还停留在一战二战的残酷和国泰民安的思维真得被共匪欺负。还在庆祝国庆节快乐，看长津湖战役的可怜，醒醒吧同胞们，请大家一定用逻辑思维想问题！真相就在身边，为14亿同胞祈福！
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-最后就是看七哥的大直播，真是觉得自己好幸福能跟着学习，来认识这个世界，来在这样的时代见证共产党的倒台，来参与爆料革命，真有这样的好事，还有能让我看到，整个未来和希望，还有一点点时间，再忍耐一下。真是不容易啊！真庆幸自己的探索，亲一下自己了。总而言之新中国联邦人就是这样帅！
-
-（文章仅代表作者本人观点，与GNEWS无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)

@@ -2,26 +2,27 @@
 ---
 
 
-## 拜登政府如轻信中共承诺 ，将加剧台海危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576877/)
+## 众议员联名致函拜登总统, 呼吁重新考量中美关系!
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1577045/)
 
-栏目记者/责任编辑：在远方
+栏目记者/责任编辑：云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-103.png)
+10月5日, 美国共和党籍众议员蒂芬妮/佩里/戴佳雷及史杜比等人联名致函拜登总统, 称美中1979年建交时, 前提条件是中共会和平妥善处理与台湾的分歧，这些承诺和保证被列入”台湾关系法”。 但近几个月中共在台湾周边空域的侵扰行动，清楚表明中共并不打算履行继续这项承诺。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide3-4.jpeg)
 
+在此前提下, 议员们呼吁：”美国是时候重新考量与中共国的关系，并考虑是否应该逆转卡特政府时期与台湾的断交决定，并鼓励盟友对此效法。”
 
+根据这份台湾关系法，任何企图以非和平方式来决定台湾前途的举动，包括使用经济抵制及禁运手段在内，都将被视为对西太平洋地区和平稳定的威胁，而为美国所严重关切及引发反应。
 
-美国总统拜登10月5日称，他与中共党魁习近平9月9日通话时，曾谈及台湾问题，双方均同意遵守此前的“台湾协议”。拜登没有明确说明是哪项协议，但根据国务院发言人普赖斯10月3日发出的声明，该协议应该还是指 “中美三个联合公报”中对台湾问题的六项保证。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1006-AM（3、4）.001.jpeg)
-自10月1日开始，中共已经连续在5天内派遣总计149架次军机入侵台湾空域，其武力挑衅升级，被外界认为是中共对台湾和美国等盟友的压力反应测试。虽然拜登政府一直有批评中共对台的军事、经济与外交胁迫，并在菲律宾海举行了6国联合演习，但是对于中共这个言而无信、毫无底线的独裁恐怖政权来说，对习近平所谓承诺的任何轻信和绥靖，都将导致台湾面临更为危险的境地。
 (本文仅代表作者观点)
 
-参考链接：[拜登：与习近平谈到台湾，双方同意遵守“台湾协议”](https://www.voachinese.com/a/biden-xijinping-taiwan-20211005/6259051.html)
+参考链接：[中國企圖武力解決台海問題 美議員促拜登與台復交](https://www.cna.com.tw/news/firstnews/202110060009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-终审：文龙
-校正/发稿：我不在这里
+终审：文龍
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -2,36 +2,25 @@
 ---
 
 
-## 郭先生直播：中共的假骗经济给世界金融埋下了巨雷
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1576669/)
+## 秘翻在线：全球供应链危机将持续到2023年
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576723/)
 
-**By:秘翻新闻**
+#### 文章撰写：寶寶
 
-***2021-10-06***
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/1006-2.jpg)](https://gtv.org/broadcast/watch/615d64a2304e992109b06c59)点击图片观看视频
-**新闻摘要:**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Snipaste_2021-10-06_18-30-58.png)
 
-1、郭先生直播：中共的假骗经济给世界金融埋下了巨雷
+据《零对冲》10月4日报道，全球央行行长一直在宣传通胀是“暂时性”的说法。从逻辑上讲，供应链瓶颈导致的通货膨胀会自行解决，但这些官员尚未提供时间表，因为他们不知道。
 
-2、大陆城市负债率排行出炉 北京是深圳的10倍
+为了更深入地了解全球供应链瓶颈何时会消退，迪拜最大的国际港口运营商之一迪拜DP World董事长兼首席执行官苏丹艾哈迈德·本·苏拉耶姆（Sultan Ahmed Bin Sulayem）周五在2020年迪拜世博会接受彭博电视采访时表示，供应链问题可能会持续两年。
 
-3、辽宁持续出现大暴雨，冰雹及大风的极端天气
+“在疫情开始时，全球供应链处于危机之中，”本·苏拉耶姆说。 “也许在2023年我们会看到缓和。”
 
-4、黄河水位达历史高度又逢汛期  河南山东或受水灾
+他指出集装箱费率飙升，并表示价格上涨是由于短缺和积压延误造成的。 “运费将继续上涨，航运公司正因此受益，”他补充道。
 
-5、甘肃灵台特大泥石流灾害 毁损上百栋房屋
+全球最大的航运公司A.P.穆勒-马士基（A.P. Moller-Maersk）最近警告说，供应链瓶颈可能会持续比预期更长的时间，一些托运人已要求限制运费单价。 DHL和UPS还警告说，供应链混乱不仅会持续到明年，而且可能会留下永久的影响。
 
-6、人神共愤  法国神职人员性侵20多万儿童
+安联前PIMCO首席执行官兼首席经济顾问穆罕默德·埃里安（Mohamed El-Erian）也认为供应链问题将会持续至少一到两年，促使全球范围内生产价格继续飙升，最终推高消费价格。
 
-7、细数NIH院长弗朗西斯·柯林斯的六大丑闻
+参考文章：[“Global Supply Chain Crisis To Last Until 2023,” Says Middle East’s Largest Port Operator](https://www.zerohedge.com/commodities/global-supply-chain-crisis-last-until-2023-says-middle-easts-largest-port-operator)
 
-8、《真相工程》节目暗访：辉瑞科学家认为自然抗体可能比疫苗更好
-
-**GTV链接：**[https://gtv.org/broadcast/watch/615d64a2304e992109b06c59](https://gtv.org/broadcast/watch/615d64a2304e992109b06c59)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+本文仅代表作者本人观点，不代表Gnews平台

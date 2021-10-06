@@ -2,20 +2,32 @@
 ---
 
 
-## 中共为何谩骂日本的话锋一转，开始宣传盐野义制药？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1576777/)
+## 法国参议员理察率团抵达台湾访问
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1576876/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-97.png)（图片源自微信）
-众所周知，自从日本表示与美国结盟应对中共制造的海上危机那天开始，中共外交部战狼们代表中共无数次谩骂日本，大外宣更是紧随其后，使得近期中文报道中的“日本”已经成了贬义词，网络上几乎看不到对日本的正面报道。
+栏目记者/ 责任编辑：云豹
 
-然而，在盐野义制药公司宣布其生产的中共病毒治疗药进入最后临床试验阶段后，中文报道马上赤膊上阵，不遗余力地对盐野义制药这款新药赞许有加。[参考链接](https://www.sohu.com/a/485142764_120759049)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-一时间，中共国民应用最广泛的微信上也充满了这个“好消息”。在全世界媒体一边倒的宣传疫苗，不提不念治疗方法的当下，突然冒出这么一股不合时宜的报道，而且是出自之前不说日本一点好话的中共的报道，实在是令人费解！对出自中共这张已经失信于全球的臭嘴的这则消息，有人进行了挖掘。其结果，盐野义制药确实有中共的投资背景。更对细节请参照笔者另一篇GNEWS报道[【日本盐野义制药和中国平安保险关系详解】](https://gnews.org/zh-hans/1576641/)。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-98.png)[图片来源](https://answers.ten-navi.com/pharmanews/18870/)
-是不是细思极恐？敢尝试服用吗？
 
-（本文只代表个人观点，与Gnews网站无关）
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+6日早上，由法国参议员 理察率领的参观访问团抵达台湾。 访问团成员包括外交暨国防委员会副主席卡迪克等4名跨党派参议员，以及参议院友台小组执行秘书高玉笛等一行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1006-AM（1、2）视频备用.003.jpeg)
+参议员 理察长期坚定支持台湾，自2015年接任法国参议院友台小组主席以来，对提升台法友好关系做出重要贡献。台湾外交部表示，理察一行此次访台是受台湾政府邀请，期间将晋见蔡英文总统，并与各部部长会面。 双方将就疫情后的经济复苏、区域安全局势、台法持续交流合作等多个议题交换意见，及加强双方互惠互利的伙伴关系。
+(本文仅代表作者观点)
+
+参考链接：[法國參議院訪問團抵台 友台小組主席將晉見總統\[影\]](https://www.cna.com.tw/news/firstnews/202110060018.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+终审：文龙
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
