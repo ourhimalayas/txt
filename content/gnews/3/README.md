@@ -2,39 +2,155 @@
 ---
 
 
-## 2021/10/06文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1577776/)
+## 欧洲政党基本上是在说脸书编写算法改变我们领导国家
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577808/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/100606.png)[盖特链接](https://gettr.com/post/pdc9pgfb64)
-纽约今天很漂亮。七哥昨晚睡得很好，会开得也都很好。衷心感谢中共政法界，中纪委，统计局，海军的兄弟姐妹们，你们辛勤地劳动，冒着风险对爆料革命地支持，新中国联邦永远不会忘记，会永远感恩！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/32-a71ie-wzywl.jpg)
+[https://gtv.org/video/id=615ddf9fd2e2b817487204c6](https://gtv.org/video/id=615ddf9fd2e2b817487204c6)
 
-2017年七哥已经说了“共产党一定死在它的以假治国，以黑治国、以骗治国、以贪治国、以警治国”。现在全国各地的高压政策，让下面的人苦不堪言，没有人敢讲真话。在海军某部份的采购上，全部都是首长的亲戚，还必须要下属配合他们作假，按照所谓的审计渠道、军内的所谓装备部，指导说明规划进行采购，全部都是领导的小三和家人，但下面的人要承担责任。谁都不敢往上报，谁报谁死，查你的人就是你举报的人。
+Scott Pelley
+斯科特·佩利
 
-这两天收到公检法很多讯息，都说七哥直播说的话不公平，他们说不是没有勇气、不是不敢，只是在中共的体制下没有用。公安厅往上举报，全是孟建柱、王歧山、孙力军、周亮派人查他们。周亮负责中纪委人事，整个大楼没人敢惹周亮，如果“讲人话”去举报就会马上被消失，那是无谓的牺牲。
+Facebook essentially amplifies the worst of human nature.
+脸书本质上放大了人性中最坏的一面
 
-关于停电和煤炭的事情，在政策室的人，竟然敢写“伟大的领袖、伟大的领导是时候对美帝国主义和西方的资源、人权、海洋霸权说‘不’了。即使停一年电，在黑暗中的生活，总比在黑暗中摸索，不确定的生存要好得多。因为西方法西斯垄断了资源，一定要与他们干到底”。这样一个疯狂的纳粹思想，竟然得到中南坑的最高批示，说这思想达到了国际境界。中纪委的人都知道如果王岐山和孟建柱不出事，反腐都是扯蛋的。
+Frances Haugen
+弗朗西丝·豪根
 
-打台湾已经是箭在弦上，只要质疑打台湾，就是叛国罪，会被消灭。
+It’s one of these unfortunate consequences, right,
+这是这些不幸的后果之一，对吧
 
-傅政华出事后政法委内部一大批人出来声讨傅政华，中伦律师事务所姓张的创始人, 他100%是孟建柱和孙力军的走狗，他把中国整个律师界毁了。还有北大法律系那帮人垄断了整个北京律师的大业务，把北京整个律师界毁了，这些人全是孟建柱和孙力军的帮凶。
+knowing that Facebook is malevolent.
+知道脸书是恶意的
 
-政法委的人也说七哥骂得不公平，但懦弱永远有很多理由的，特别是那些失败者。朱茂元就是苟延残喘给自己很多理由去背叛七哥，背叛自己的良知。
+But the incentives are misaligned right
+但激励措施错位了，对吧
 
-中伦律师所和西方律师事务所勾兑，美国会查到底的，他们利用合法的合作方式，偷盗美国人的信息，进行合法的腐败。它一定会出大事的。
+like Facebook makes more money when you consume more content.
+就像脸书在你消费更多的内容时赚更多的钱
 
-太平联盟在香港的基金以欺骗犹太人为主，然后玩弄女人，制造假文件，哄抬股市欺骗小股东，行贿西方各种法律机构，包括巴哈马。我们都掌握这些证据。这帮人打掉后，中国律师界就会出大事。中国律师界通过这种基金，互相之间做假帐、做假审计，欺骗西方股民。很多西方的国家养老基金和国家安全基金全被这帮人骗走了。犹太人也被他们骗惨了。
+People enjoy engaging with things that will listen to emotional reactions,
+人们喜欢参与能够倾听情绪反应的事物
 
-现在国内军事、政治、经济、能源、社会、粮食、金融、房地产一塌糊涂。
+and more angered they exposed to the more interactive more they consume
+他们接触的互动越多，消费的越多，他们就越愤怒
 
-***编辑：【英国伦敦喜庄园编辑部】***
+Scott Pelley
+斯科特·佩利
 
-**听写：乐禧禧|校对：小雨**
+that dynamic led to a complaint to Facebook by major political parties across Europe.
+这种动态导致欧洲主要政党向脸书投诉
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+This 2019 internal report obtained by Haugen says
+豪根获得的这份 2019 年内部报告说
 
+that the parties “feel strongly that the change to the algorithm has forced them
+双方“强烈认为算法的变化迫使他们
 
-编辑：【英国伦敦喜庄园编辑部】
+to skew negative in their communications on Facebook,
+在脸书上的交流中产生负面影响
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+leading them into more extreme policy positions. ”
+引导他们采取更极端的政策立场
+
+The European political parties were essentially saying
+欧洲政党基本上是在说
+
+the Facebook the way you’ve written your algorithm is changing the way we lead our countries.
+脸书的编写算法的方式正在改变我们领导国家的方式
+
+Frances Haugen
+弗朗西丝·豪根
+
+Yes，you are forcing us to take positions.
+是的，你在强迫我们表明立场
+
+We don’t like we know we’re bad for society.
+我们不喜欢我们知道我们对社会有害
+
+We know, we don’t take those positions.
+我们知道，我们不采取这些立场
+
+We won’t win in the marketplace of social media.
+我们不会在社交媒体市场上获胜
+
+Scott Pelley
+斯科特·佩利
+
+Evidence so harm. She says extends to Facebook’s Instagram app.
+证据如此有害， 她说扩展到脸书的Instagram应用程序
+
+One of the Facebook internal studies
+脸书的内部研究之一
+
+that you’ve found talks about how Instagram harms teenage girls.
+你发现讨论有关 Instagram 如何伤害少女的讨论
+
+Frances Haugen
+弗朗西丝·豪根
+
+Oh yeah
+哦，是的
+
+Scott Pelley
+斯科特·佩利
+
+One study says, 13 and a half percent of teen girls say
+一项研究表明，13.5% 的少女说
+
+Instagram makes lots of suicide worse
+Instagram使许多自杀事件变得更糟
+
+17% of teen girls say Instagram makes eating disorders worse
+17% 的少女说 Instagram 会使饮食失调变得更糟
+
+Frances Haugen
+弗朗西丝·豪根
+
+and super tragic is Facebook’s own research says,
+而且超级悲哀的是脸书自己的研究表明
+
+as these young women begin to consume the eating disorder content,
+随着这些年轻女性开始消费饮食失调的内容
+
+they get more and more depressed,
+她们变得越来越忧伤
+
+they actually makes them use the app more.
+他们实际上让她们更多地使用该应用程序
+
+So they end up in this feedback cycle
+所以她们最终进入了这个反馈循环
+
+where they hate their bodies more and more
+她们越来越讨厌自己的身体
+
+Facebook’s own research says,
+脸书自己的研究表明
+
+is not just the Instagram is dangerous for teenagers that harm teenagers,
+不仅仅是 Instagram 对青少年是危险的，对青少年的伤害
+
+is that is distinctly worse than other forms of social media
+是明显比其他形式的社交媒体更糟糕
+
+Facebook said just last week,
+脸书上周表示
+
+it would postpone plans to create an Instagram for younger children
+它将推迟为更年幼的孩子创建 Instagram 的计划
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接:**[https://youtube.com/watch?v=\_Lx5VmAdZSI](https://youtube.com/watch?v=_Lx5VmAdZSI)
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
