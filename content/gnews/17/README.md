@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年10月6日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1577424/)
+## 2021年10月6日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1577436/)
 
 编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. We will see in court!
+大胡子医生：疫苗可能造成多种致命疾病，引发潜在的种族灭绝事件 Dr. Zelenko: The vaccines may cause various fatal diseases, which could be potentially genocidal
 
-托马斯·伦茨律师：如果你接种疫苗，你更有可能感染中共病毒。我们法庭见！
-
-[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pdcqhs60a8)
+[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pdcw700789)
 
 **喜联盟Gnews编辑部**

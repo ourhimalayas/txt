@@ -2,15 +2,13 @@
 ---
 
 
-## 2021年10月6日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1577449/)
+## 2021年10月6日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1577469/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-A Pfizer scientist ran away when asked by an investigative reporter to publicly repeat what he said in private about natural immunity being better than Covid vaccine.
+10月6号：尊敬的战友们好……中共的政治，经济，军事，粮食，房地产，金融……全部在崩溃的边缘。所有的现在整个中共的一切形式，就是大跃进的高峰时期一模一样。上蒙下骗．都在等待着敌对方早于自己倒下，这是一种魔鬼的灭亡前必然发生的各种征兆，中仑律师事务所，国内的原司法部们的 以超限战的方式。以与美国等西方以合作的名义渗透西方律师界．法院，检察官，的这些律师事务所，将被西方刑事调查。这些犯罪分子，例如中仑的创始人张学军等人……一定会被西方依法调查，法办。收到了国内各界战友们，对七哥直播的反馈信息．明天七哥可能继续大直播！
 
-当调查记者要求他公开重复他在私下所说的关于中共病毒的自然抗体好于疫苗抗体时，辉瑞公司的一名科学家跑掉了
-
-[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pdcf5w64e3)
+[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pdc9pgfb64)
 
 **喜联盟Gnews编辑部**

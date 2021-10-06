@@ -2,19 +2,15 @@
 ---
 
 
-## 秘翻在线：两岁幼儿感染中共病毒进 ICU 母亲曾感染父亲曾注射疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1577406/)
+## 2021年10月6日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1577424/)
 
-**翻译责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screenshot-2021-10-07-005906.jpg)图片来源：路透社
-据路透社报道，美国伊利诺伊州的蒂芙尼·杰克逊的两岁孩子阿德里安·詹姆斯因为感染中共病毒正在重症监护室接受治疗。
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-就在一周前孩子只是感到不适时， 家里也没有其他人生病。阿德里安·詹姆斯只是有点咳嗽。妈妈给他止咳糖浆，并在他的房间里放了一个加湿器。 但到了上周星期五，他已经出汗，呼吸困难。杰克逊女士带他去检查最终得知孩子感染了中共病毒。
+Attorney Thomas Renz: If you get the vaccine, you are more likely to get Covid. We will see in court!
 
-根据美国疾病控制与预防中心 (CDC) 的统计数据，她的儿子是美国近 840,000 名感染 COVID-19 的四岁以下儿童之一。 在过去的几天里，这边幼童呼吸急促，每分钟呼吸 76 次，几乎是正常情况下 40 次呼吸的两倍。 在医院，戴着口罩、面罩和防护服的医生和护士对他进行镇静，并将他放在与重症监护病房呼吸机相连的呼吸管上。 孩子母亲则一直睡在重症监护病房里的沙发上。经过几天抢救他的肺部已经能够做更多的呼吸，可能很快就会脱离呼吸机。
+托马斯·伦茨律师：如果你接种疫苗，你更有可能感染中共病毒。我们法庭见！
 
-杰克逊不知道她的儿子是如何感染病毒的。去年夏天她自己感染了中共病毒；当时家里没有其他人发现被感染。 杰克逊没有接种 COVID-19 疫苗，但是孩子的父亲接种了一剂 COVID 疫苗，但没有接种第二剂。
+[【2021年10月6日】文贵先生盖特原文](https://gettr.com/post/pdcqhs60a8)
 
-21 岁的杰克逊非常感谢她的孩子能得到照顾。她开始相信孩子会得救。 她希望自己儿子的故事帮助人们了解将病毒传播给幼儿和免疫系统脆弱的人可能意味着什么。
-
-新闻链接：[Illinois toddler fights for his life as COVID transmission rages](https://www.reuters.com/world/us/illinois-toddler-fights-his-life-covid-transmission-rages-2021-10-06/)
+**喜联盟Gnews编辑部**

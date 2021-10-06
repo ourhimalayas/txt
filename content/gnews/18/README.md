@@ -2,39 +2,208 @@
 ---
 
 
-## 年轻女性死后斯洛文尼亚叫停强生疫苗接种
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1577416/)
+## 澳大利亚人们需要意识到发生在我们身上的事情……我们需要站起来说够了！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1577425/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2409.png)
+[https://gtv.org/video/id=615dc30ad2e2b8174871fc94](https://gtv.org/video/id=615dc30ad2e2b8174871fc94)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/10/S.jpg)rastaroutes.com
-《塔克·卡尔森团队》报道，“年轻女性死后，斯洛文尼亚暂停强生疫苗的接种”。
+**Joe Rogan
+乔·罗根**
 
-全文如下：
+Look at the amount of the the authoritarian response, just in Australia.
+看看专制的反应，就在澳大利亚
 
-斯洛文尼亚卫生部长表示，斯洛文尼亚将停止使用强生公司的强生疫苗，同时调查一名可能与施打疫苗有关的20岁女子的死亡原因。
+Australia has turned into a fucking prison colony.
+澳大利亚已经变成了该死的监狱殖民地
 
-据医生称，一名两周前接种强生疫苗的年轻女子在周二（10月5日）死于“脑部同时出现血块和出血”。
+And then, here’s one where the Second Amendment advocates step up
+然后，这是第二修正案倡导者站出来的地方
 
-周三（10月6日），卫生部长詹尼兹·波克鲁卡（Janez Poklukar）在新闻发布会上宣布，这一悲惨消息促使斯洛文尼亚当局暂停使用强生疫苗。
+and say, hey, this is why we have the Second Amendment,
+而且说，嘿，这就是为什么我们有第二修正案（持枪权）
 
-他补充说，强生疫苗的接种将保持冻结状态，直到对该女子死亡与疫苗接种之间可能存在联系的调查完成。
+like you could always say that the Second Amendment is supposed to apply to protection of yourself,
+就像你总是说第二修正案应该适用于保护你自己
 
-波克鲁卡说，斯洛文尼亚约有12万人已经接种了疫苗，这是接种后出现的第二例不良反应。然而，他坚持认为“接种疫苗的好处大于潜在的并发症。”
+and a well armed militia, it has nothing to do with,
+和一个装备精良的民兵，这与
 
-自9月中旬以来，斯洛文尼亚政府在感染人数迅速上升的情况下，对几乎所有商店、服务和工作场所强制实施中共病毒疫苗通行证后，该国对单剂的强生疫苗的需求一直很高。斯洛文尼亚以前是欧洲受灾最严重的国家之一，每10万人中的病例数超过500例。
+you know, some guy being able to have 150 fucking ARs in his, in his bedroom
+你知道，有些人可以在他的卧室里放 150 个的 AR步枪是不同的概念
 
-本周早些时候，斯洛文尼亚当局批准从匈牙利额外购买10万剂强生疫苗。波克鲁卡说，他目前无法对这批货物的命运发表评论，并补充说，一旦对这名女性死亡的调查结束就将做出决定。
+and this is crazy and it’s, it’s overreach,
+这太疯狂了，这真是过分
 
-到目前为止，斯洛文尼亚200万人口中约有48%已经完全接种了中共病毒疫苗，强生是该国批准的几种疫苗之一。
+or it’s, it’s, it’s, it’s being abused, rather,
+或者它，它，它，它正在被滥用，相反
 
-强生申诉委员会此前曾因其不良影响（包括罕见的血栓病例）在欧盟、美国和南非面临暂停施打。
+but Australia has no guns, the general population,
+但澳大利亚的普通民众没有枪支
 
-（原文完）
+there’s a few people that have like rifles for hunting,
+只有少许人有像步枪用于打猎
 
-该到叫停的时候了，对恶果的反应不是马上能显现的，需要时间。如果不及时制止，会有更多的人遭难。祈祷调查人员没有被邪恶力量操控，能够完成实事求是的调查，将疫苗阴谋彻底揭露。
+but it’s, there’s nothing like we have here in America,
+但它是，没有什么像我们在美国这里有的
 
-原文链接：
+and they are being overrun.
+而且他们被侵犯了
 
-[https://teamtuckercarlson.com/news/slovenia-suspends-johnson-johnson-vaccine-after-young-womans-death/](https://teamtuckercarlson.com/news/slovenia-suspends-johnson-johnson-vaccine-after-young-womans-death/)
+Cops are beat or they’re pulling people over
+警察殴打或者他们把人们拉到路边
+
+for simply being outside their homes,
+只是因为他们在家门口
+
+and they’re thrown into the ground like thugs.
+而且人们像暴徒一样被扔到地上
+
+You’ve seen these protests
+你已经看到了这些抗议活动
+
+where they’re literally pepper spraying old ladies in the face.
+他们实际上是在向老太太脸上喷胡椒粉
+
+It’s crazy how much they’ve been divided
+他们被分裂到如此程度，太疯狂了
+
+and what’s here’s the shit out of me is I’ve got to think
+而且对我来说可怕的是我要想想
+
+that any foreign entity any, any foreign government
+任何外国实体，任何外国政府
+
+that sees what’s possible in Australia
+看到澳大利亚可能发生的事情
+
+would like to see that happen in America.
+会希望看到这种情况发生在美国
+
+Elvis Sinosic （retired Australian professional mixed martial artist ）
+埃尔维斯·辛诺克 （退休的澳大利亚职业综合格斗家）
+
+Well, yeah.
+嗯，是呀
+
+Joe Rogan
+乔·罗根
+
+It’s nothing’s more diverse, no divides the population more than seeing this
+没有什么比看到这个一直是个好地方的美国
+
+place that was like always a great place to visit
+社会变得更加分化
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+right
+是的
+
+People are so friendly and now it’s a fucking police state
+人们是非常的友好，现在它是一个该死的警察国家了
+
+like…
+像
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+I spent part of my childhood
+我的部分童年时光是在
+
+I didn’t come to the States till my last year of high school right
+直到我高中的最后一年才来美国，对吧
+
+so, and I was in Australia, and …
+所以，我在澳大利亚，然后……
+
+Joe Rogan
+乔·罗根
+
+what’s it like for you watching,
+你看着是什么感觉？
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+I was I was I’m stunned by their, their reaction,
+我被他们的行为惊呆了
+
+first of all to to imposing the regulations, the requirements with the protocols that they’ve got in place
+首先要强制规定，以及他们已经制定的协议的要求
+
+and also kind of stunned at that the Australian populations willingness to,
+而且也有点惊讶的是澳大利亚人愿意
+
+you know, allow it to happen the sense
+你知道，允许它发生
+
+Joe Rogan
+乔·罗根
+
+Well, they’re rejecting it now.
+好吧，他们现在反抗了
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+Yeah, it took a while though it took a while
+是的，虽然花了一些时间
+
+because this has been going on for a while.
+因为这已经持续了一段时间
+
+Melbourne is the most lockdown city.
+墨尔本是封锁最严重的城市
+
+Joe Rogan
+乔·罗根
+
+Yeah. Which is crazy, and the amount of deaths they’ve had is so minimal,
+是的， 这太疯狂了，他们的死亡人数如此之少
+
+yeah, it’s so small
+是的，它太小了
+
+it’s like Florida on a weekend for the entire pandemic.
+整个大流行如同在佛罗里达州一个周末的数量的样子
+
+I’m not kidding.
+我不是在开玩笑
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+No, it’s true,
+不，这是真的
+
+Joe Rogan
+乔·罗根
+
+it really is like that.
+真的是这样
+
+Elvis Sinosic
+埃尔维斯·辛诺克
+
+Yeah, so I’m shocked
+是的，所以我很震惊
+——————————————————————————
+Date:10/04/2021
+原视频标题: Australia is not being looked upon kindly… the people need to realize what is happening to us… we need to stand up and say enough!
+澳大利亚没有被善待……人们需要意识到发生在我们身上的事情……我们需要站起来说够了！
+原视频日期：2021/10/02
+原视频链接: [https://twitter.com/elvissinosic/status/1444294453724737542?s=24](https://twitter.com/elvissinosic/status/1444294453724737542?s=24)
+任务编号：KE330（2409）
+视频时间段 : 0:00-2:20
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
