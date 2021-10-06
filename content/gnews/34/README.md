@@ -2,50 +2,37 @@
 ---
 
 
-## 解释：为什么油管(YouTube)阻止了反新冠病毒疫苗的内容
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1575687/)
+## 全球供应链“灾难”将会变得更糟
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575794/)
 
-**据《印度快讯》记者Explained Desk，2021年10月2日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/aeax3-hm1yr.jpg)图片来源：路透社/Dado Ruvic
-到目前为止，油管(YouTube) 已经删除超过 130,000 个违反中共病毒疫苗政策的视频。
+作者：加拿大枫叶农场-文仁
 
-周三，油管(YouTube) 宣布将通过新的疫苗指南扩大其医疗误导信息政策，其中包括针对中共病毒的疫苗以及关于其他疫苗的一般声明。
 
-此举是因为有人批评社交媒体平台在处理与中共病毒相关的错误信息方面做得不够。
 
-**油管(YouTube) 针对的是什么样的错误信息呢?**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-根据周三（9月29日）生效的新政策，任何声称已获批的中共病毒疫苗会导致自闭症、癌症或不孕症，或声称疫苗中的物质可以追踪接种者的内容都将被删除。
 
-此外，虚假声称已批准的疫苗具有危险性并导致慢性健康影响；或声称疫苗不会减少病毒的传播；或疫苗不能防止疾病；或疫苗中包含有关物质的错误信息的内容都将被删除。
 
-在一篇博客文章中，油管(YouTube )表示其社区准则已经禁止某些类型的医疗误导信息，包括宣传有害疗法的内容，例如饮用松节油可以治愈疾病的信息。
+据彭博社报道，十月初四零售界的商业“高峰”的开始，但是今年该行业已经处于各种形式的恐慌之中。通常，这种状况要到圣诞节前几周才会出现。
 
-自大流行开始以来，该平台已经针对中共病毒和医疗错误信息采取措施。到目前为止，油管(YouTube) 已经删除了超过 130,000 个违反打疫苗政策的视频。
+当中共病毒在 2020 年初打击全球经济，导致工厂减产或关闭。与此同时，供应链也被苏伊士运河堵塞等众多事件，以及劳动力短缺和运输成本飙升等市场动态所扼杀。
 
-**当涉及中共病毒相关内容时，油管(YouTube)将以下内容视为错误信息：**
+在欧洲，由于交货延迟，服装连锁店 H&M 等零售商也无法满足客户需求。在美国，耐克因越南工厂关闭，导致生产中断，之后被迫下调了销售预期。新冠病毒的大爆发使港口码头闲置，导致没有足够的集装箱，因而集装箱的价格比一年前飙升 10 倍。劳动力短缺，导致卡车运输停滞，美国缺人的岗位的人数达到历史新高。
 
-● 鼓励使用家庭疗法、祈祷或仪式代替医疗（例如咨询医生或去医院）的内容
-● 声称可以治愈中共病毒的内容
-● 推荐使用伊维菌素或羟氯喹治疗中共病毒的内容
-● 声称羟氯喹是治疗中共病毒的有效方法
-● 明确声称伊维菌素是中共病毒的有效治疗方法
-● 声称伊维菌素和羟氯喹可安全用于治疗中共病毒
-● 其他不鼓励人们咨询医疗专业人士或寻求医疗建议的内容
+中共的病毒疫情已经给世界的制造业和经济带来了巨大的打击。这接踵而来的全球物流“灾难”也一时难以缓冲，让人们原本满怀期待的圣诞经济复苏，也变得希望渺茫。
 
-油管(YouTube )决定扩大对错误信息审查活动的可能原因之一是人们对是否打疫苗犹豫不决，尤其是在美国各地都有这种情况。
+【参考链接】[https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348](https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348)
 
-根据皮尤研究中心进行的一项调查，美国民主党人比共和党人更有可能至少接种一剂中共病毒疫苗。该调查还指出，一个人的疫苗接种状况与对疫苗研发过程的信心密切相关。
+（本文仅代表作者观点）
 
-本次调查中约有81%的受访者表示，他们不知道中共病毒疫苗是否存在严重的健康风险，80%的受访者表示，公共卫生官员没有告诉他们所知道的关于这些疫苗的一切。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-**原文链接:** [https://indianexpress.com/article/explained/youtube-medical-misinformation-covid-vaccines-7547763/](https://indianexpress.com/article/explained/youtube-medical-misinformation-covid-vaccines-7547763/)
+编辑/校对/发稿：正义的小新
 
-翻译：洛杉矶盘古农场 – Freeearth
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场– 明子
-发布 : 洛杉矶盘古农场 – 彩虹Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

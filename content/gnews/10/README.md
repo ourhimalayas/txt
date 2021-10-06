@@ -2,33 +2,39 @@
 ---
 
 
-## 全球种族灭绝 &#8211; 疫苗接种是现实版的黑手党暴力事件
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1576052/)
+## 加拿大护士告密：许多人因接种疫苗后死亡和住院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576131/)
 
-编译: Hong
+#### 整理报道：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/nurses-in-canada-1080x675-1.jpg)
+图片来源：immilawglobal.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-2.jpg)
+**【雅典娜快讯】，紧贴时事脉搏**
 
-图片来自网络
+两名加拿大护士挺身出来告密，告诉记者他们在中共病毒（COVID-19）大流行期间所看到的情况。这包括接种中共病毒疫苗后死亡的病人，以及医院里挤满了完全接种疫苗后，患有中共病毒的人。
 
-[埃迪·贝特曼(Eddy Bettermann ) 医学博士在10月5日的一篇文章](https://dreddymd.com/2021/10/05/australian-aboriginal-dies-six-days-after-second-dose-of-pfizer-vaccine/)中抨击疫苗制药公司就像黑手党暴徒一样，利用 “内疚 “和 “恐惧 “宣传的手段胁迫人们对自己的身体做出通常不会做的事情。在澳大利亚，有超过70%的原住民无惧无畏、拒绝接种疫苗，过着无忧无惧的正常生活，但当中共病毒疫苗首次问世时，这些原住居民就被标记为疫苗”优先群体”接种。
+来自加拿大魁北克省（Quebec）庞蒂亚克（Pontiac）小镇的埃里卡·比尔兹利(Erica Beardsley)做了11年的护士，在她的雇主强制要求她接种疫苗后辞职。
 
-从一开始，澳洲政府就与疫苗制药公司串通一气*，*向原住居民施压，使没有接种疫苗的人感到羞耻，让他们排队等候接种。据报道，疫苗制药公司医药代表正在与马宁里达（Maningrida）和贾林金（Djarindjin）地区的长老接触，用羞辱的激将法逼迫他们为了*“*社区的利益”接种中共病毒疫苗*。*现约有1,200 名原居民居住在澳洲Wakka Wakka地区，截至2021年9月9日，只有 4.6% 社区被认为是 “完全接种了疫苗” 。
+在加拿大的一次反疫苗授权的抗议活动中，比尔兹利向记者讲述了她作为护士在大流行期间看到的可怕事情。
 
-贝文.科斯特洛（Bevan Costello）先生曾是一位受人尊敬的土著首领、是一位教育家和导师，他在被迫接种辉瑞疫苗之后的第六天就猝死了。疫苗黑手党强迫65岁的科斯特洛（Costello）先生接种中共病毒疫苗，并逼他相信，他正在为他的社区做正确的事情。科斯特洛（Costello）早在 8 月份就排队等候第一剂Covid 中共病毒疫苗接种， 9 月 9 日，他在美国广播公司（ABC）线下中共病毒疫苗推广活动中，接种了第二剂辉瑞 mRNA疫苗。 科斯特罗（Costello）先生是被迫招募去推广疫苗接种、并带头接种了疫苗，美国广播公司还对他进行了专访，目的是为了能有更多部落里的人跟随接种。
+比尔兹利说：”我亲眼看到人们束缚着老人，违背他们的意愿为他们接种疫苗，而老人却大喊’不要’。我见过自杀的病人，一旦病人死了，他们就对病人进中共病毒测试。”
 
-在接受美国广播公司采访时，科斯特罗（Costello）先生说，他在戳了第二针中共病毒疫苗后又恢复了生活的自信。这句话证明了，像科斯特罗（Costello）先生这样智慧的人一定是遭受了心理虐待，被胁迫发表了公开声明。当一个人说，如不接种多剂中共病毒疫苗就没有信心活下去的时侯，这个人一定是被人从心里上操控了。
+“我目睹了很多人在接种疫苗后不久死于心脏病，”她继续说。”我目睹了疫苗接种后五天、四天就足月流产的情况。”这是一个令人惊讶的普遍现象，尽管她来自一个不足5000人的小镇。
 
-不幸的是，在科斯特洛（Costello）先生接种第二剂中共病毒疫苗后的第六天便突然去世了。瑟堡原住民郡委员会（The Cherbourg Aboriginal Shire Council）在Facebook 上发布消息称，科斯特洛Costello）先生是“突然死亡”。 美国广播公司报道称，他是因心脏病突发猝死，针对疫苗会对人体心血管系统造成损害却只字未提。
+另一位在多伦多（Toronto）圣迈克尔（St. Michael’s）医院工作的护士称，医院里到处都是完全接种了中共病毒疫苗的病人。
 
-科斯特洛（Costello）先生的死亡将被记录为“未接种疫苗的死亡”，因为他第二次接种的时间还不到14天。然而，如果能有人重视中共病毒疫苗接种的真相，就能挽救科斯特洛Costello）先生的生命；如果他对拒绝接种而不感到自责，他就有可能够做出一个理性的选择； 如果他在接种疫苗时就被告知疫苗接种会对心脏造成危害，有猝死的风险，他可能会做出不同的选择以挽救自己的生命。
+加拿大各地的人们，包括医护人员，都在抗议强行接种疫苗的行为。这些抗议活动在全国各地涌现，反对人们被迫接种实验性和致命的中共病毒疫苗。
 
-在这场疫苗接种的悲剧中，所有关于Covid-19中共病毒疫苗会导致血栓和心脏炎症的真实信息都被（媒体）判为”错误信息 “而被人们所忽视。目前，由于知情同意被捆绑在一种心里操纵、内疚和恐惧的状态中，将有更多的人不可避免地成为这场全球疫苗接种种族灭绝的受害者。
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-现在，整个世界已被邪恶的中共和黑暗势力所挟持，不计其数的人死于中共的无效毒疫苗。但只要有正道主义在，黑暗势力必将被消灭；谁与中共贼党为友，谁就是世界的敌人。传播真相，拒绝接种无效疫苗， 挽救生命！
+**参考新闻：**[Canadian nurse whistleblowers say many people are dying after getting vaccines while hospitals are filled with the fully vaccinated – NaturalNews.com](https://www.naturalnews.com/2021-09-27-canadian-nurse-whistleblowers-fully-vaccinated-dying.html)
 
-文章仅代表作者本人观点,与GNews无关
+***编辑：小红帽******/******翼族*****
+*****发布：小红帽***
 
-[新闻参考来源](https://dreddymd.com/2021/10/05/australian-aboriginal-dies-six-days-after-second-dose-of-pfizer-vaccine/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

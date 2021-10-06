@@ -2,32 +2,44 @@
 ---
 
 
-## 前新疆警察接受CNN采访, 揭露中共暴行!
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1575136/)
+## 美国代表批评中共国的贸易行为 不排除采取额外措施
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1575558/)
 
-栏目记者/责任编辑：文龍
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-90.png)
-CNN播出最新纪实访谈节目, 采访了几位遭受过中共暴行迫害的维族人, 以及一位前中共警察蒋先生(音译)。
+- **编译：蚂蚁兄弟**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Slide6-2.jpeg)
 
-这位蒋姓警察目前人在欧洲避难, 他向CNN讲述了他在新疆从业期间的所见所闻, 在被称为再教育营的集中营中, 对维族及其他宗教人群所进行的系统性酷刑,  他本人也参与了这些暴行, 包括电刑/水刑和性暴力, 相对而言侮辱和不允许睡觉是最普通的待遇。蒋姓警察也从最初的 “渴望前往新疆打击企图分裂国家恐怖分子” , 到最后转变为质疑和彻底厌恶。虽然他在这种名为”援疆”的部署期间获得了两倍的工资和福利。这位勇敢警察的讲述, 是对中共新疆暴政暴行最有力的佐证和控诉!
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip250.png)
 
-在采访中, 一位曾遭受中共酷刑迫害的维族教师说:”我永远不会忘记心中的伤疤,是信仰支撑我活下来, 我并不恨那些警察,虽然他们是罪犯, 但他们也是受害者,他们是那个犯罪系统的一部分。”
+美国对外贸易代表戴琪（katherine Tai 凯瑟琳-戴）周一批评中共国的“不公平”贸易做法损害了中国劳动人民的“繁荣富强”，但华盛顿不会寻求对北京的紧张贸易关系的“升级”。
 
-(本文仅代表作者观点)
+戴琪在战略与国际研究中心发言时，阐述了美国总统拜登在其前任特朗普执政期间释放出来的公开性斗争之后，现任美国总统的施政方针的关键。
 
-参考链接：[‘Some are just psychopaths’: Chinese detective in exile reveals extent of torture against Uyghurs](https://edition.cnn.com/2021/10/04/china/xinjiang-detective-torture-intl-hnk-dst/index.html)
+“长期以来，中共国未能遵守全球贸易规则，破坏了美国和世界其他各地区和人民的繁荣”。
 
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+戴琪说，她“很快”将与中共官员进行“坦诚的讨论”，在讨论中她将表达对这些问题的“关切”。她说，她将强调“中共未能按照过去15年的承诺改革非市场政策”。然而，国会的“目标不是升级与中共国的贸易紧张关系”，指的是关税战。
 
-终审：文龍
-校正/发稿：谐趣园
+戴琪在上任后不久，5月份她组织了美国当局与中共国副总理刘鹤举行的一次网络会谈。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+关于可能的额外措施，贸易代表说，这些措施将取决于与中共国的会谈内容如何进展，同时重申“所有选项都在桌面上”。世界上最大的两个经济体在特朗普担任总统期间的贸易关系很困难，加征的几轮对等关税引起了全球动荡。最终，美国和中共国达成了贸易协定，其中包括中共国增加购买美国商品，特别是牲畜和农产品，但经济学家指出，中共国政府没有履行声明中的承诺。
+
+人物背景介绍：戴琪（Katherine Chi Tai 凱瑟琳**·**琪**·**戴）是一名美国出生的华裔贸易律师，现任美国贸易代表。 2007年至2014年间在美国贸易代表署担任负责中国事务的重要律师，期间处理美国在世界贸易组织对中国提出的争端诉讼。
+
+**简评：**
+
+**我们可以预见的是，即将要发生的这一次贸易谈判似乎又会是一场“口水战”。中共从来不会认真的执行其所承诺过的事情。而中美两国近一年以来的谈判，让人看起来只不过是在“做做样子”，并没有任何实质性的改变。**
+
+**这场中共病毒大疫情并没有解决，世界的经济也即将到达崩溃的边缘。不去付诸行动的任何“谈判”都是在做无用功。**
+
+**与其在贸易上进行毫无作用的讨价还价，还不如多多关注一下病毒的溯源，关注一下疫苗的危害性。这样才能让世界的经济早日回到正轨。**
+
+（文章仅代表作者观点，与GNEWS无关）
+
+**来源：[elconfidencial.com](https://www.elconfidencial.com/empresas/2021-10-04/ee-uu-critica-las_3301012/)**
+
+* * *
+
+***审核：Aires的星
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/tempsnip190.png)

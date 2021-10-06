@@ -2,39 +2,49 @@
 ---
 
 
-## 加拿大护士告密：许多人因接种疫苗后死亡和住院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576131/)
+## 哪些组织在张罗着给中低收入经济体人民接种疫苗毒针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576212/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/nurses-in-canada-1080x675-1.jpg)
-图片来源：immilawglobal.com
+**撰稿**：柯亭（秘翻原创组）
 
-**【雅典娜快讯】，紧贴时事脉搏**
+**校对**：卡拉马佐夫姐姐
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005-哪些组织在张罗着给中低收入经济体人民接种疫苗毒针.png)
+**图片来源：**** ****网页截图**
 
-两名加拿大护士挺身出来告密，告诉记者他们在中共病毒（COVID-19）大流行期间所看到的情况。这包括接种中共病毒疫苗后死亡的病人，以及医院里挤满了完全接种疫苗后，患有中共病毒的人。
+据9月17日[theconversation.com](https://theconversation.com/covax-misses-its-2021-delivery-target-whats-gone-wrong-in-the-fight-against-vaccine-nationalism-167753)报道，全球共享“疫苗”项目Covax 的最新供应预测表明，在低收入国家加速“疫苗”接种看起来不太可能。 Covax 估计，到 2021 年底，它将分发 14.25 亿剂疫苗，远低于其今年早些时候的目标 20 亿剂。
 
-来自加拿大魁北克省（Quebec）庞蒂亚克（Pontiac）小镇的埃里卡·比尔兹利(Erica Beardsley)做了11年的护士，在她的雇主强制要求她接种疫苗后辞职。
+在世界卫生组织网站的[Covax页面](https://www.who.int/initiatives/act-accelerator/covax)称，面对一个快速发展的大流行病，除非每个人都是安全的，否则没有一个人是安全的。据称，COVAX 由流行病防范创新联盟（CEPI）、全球免疫联盟（Gavi） 和 世界卫生组织（WHO） 以及主要交付合作伙伴联合国儿童基金会（UNICEF） 共同领导；在美洲，泛美卫生组织循环基金（PAHO Revolving Fund） 是COVAX 的公认采购代理。
 
-在加拿大的一次反疫苗授权的抗议活动中，比尔兹利向记者讲述了她作为护士在大流行期间看到的可怕事情。
+[泛美卫生组织循环基金](https://www.paho.org/en/revolvingfund)的网页介绍说：40 多年来，我们以可承受的价格为整个地区的会员国和地区提供了获得安全和优质疫苗的途径。本基金是免疫组织更大的技术合作一揽子计划的一部分，支持各国努力通过控制和消除战略，以可持续和公平的方式实现降低疫苗可预防疾病的发病率和死亡率。
 
-比尔兹利说：”我亲眼看到人们束缚着老人，违背他们的意愿为他们接种疫苗，而老人却大喊’不要’。我见过自杀的病人，一旦病人死了，他们就对病人进中共病毒测试。”
+[联合国儿童基金会](https://www.unicef.org/zh/%E6%88%91%E4%BB%AC%E7%9A%84%E5%B7%A5%E4%BD%9C?campaignid=14456903880&amp;adgroupid=126036556229&amp;adid=542263368153)的网页介绍说：“我们在190多个国家和地区开展工作，以拯救儿童的生命，捍卫他们的权利，帮助他们实现自己的潜能。我们永不止步。每一名儿童都享有在安全和包容的环境下成长的权利。我们携手全球合作伙伴，努力改善能够为所有儿童提供保护的政策和服务。”
 
-“我目睹了很多人在接种疫苗后不久死于心脏病，”她继续说。”我目睹了疫苗接种后五天、四天就足月流产的情况。”这是一个令人惊讶的普遍现象，尽管她来自一个不足5000人的小镇。
+据维基百科介绍，[全球免疫联盟](https://en.wikipedia.org/wiki/GAVI)于 2000 年创建，承继 1990 年启动的儿童疫苗倡议项目（Children’s Vaccine Initiative），总部位于瑞士日内瓦（Geneva）。在2020 年 6 月于英国举办的全球疫苗峰会之后，各方为全球免疫联盟2021 年至 2025 年的资金周期筹集了 88 亿美元，超过了 74 亿美元的目标。 资金由多国政府和一些基金捐赠，英国（ 20 亿美元）、盖茨基金会（the Gates Foundation，16 亿美元）和挪威（ 10 亿美元）三家资助的资金占总量的52%。这一轮资金将意味着到 2025 年底，低收入国家将有 3 亿儿童获得麻疹、脊髓灰质炎和白喉等疾病的免疫接种；此外，这笔资金也将用于维护在全球范围内推行未来中共病毒疫苗所需的基础设施。
 
-另一位在多伦多（Toronto）圣迈克尔（St. Michael’s）医院工作的护士称，医院里到处都是完全接种了中共病毒疫苗的病人。
+[全球免疫联盟](https://www.gavi.org/news/media-room/gavi-board-meets-discuss-routine-immunisation-covaxs-2022-strategy)的网页介绍说：在Covax项目中，我们专注于 Covax 的采购和交付；协调 Covax 设施和Covax 预先市场采购承诺（AMC）的设计、实施和管理；并与合作伙伴联合国儿童基金会、世卫组织、以及各国政府合作，进行国家准备和交付。其中Covax预先市场采购承诺是全球免疫联盟2020年6月4日在全球疫苗峰会上，推出的创新的融资工具，用于支持92个中低收入经济体获得捐赠的安全有效的中共病毒 “疫苗” 。图1列出了所说92个经济体。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/20211005-哪些组织在张罗着给中低收入经济体人民接种疫苗毒针-p2.png)
+**图****1. ****全球免疫联盟****Covax AMC****项目列出的****92****个经济体。**
 
-加拿大各地的人们，包括医护人员，都在抗议强行接种疫苗的行为。这些抗议活动在全国各地涌现，反对人们被迫接种实验性和致命的中共病毒疫苗。
+据维基百科介绍，[流行病防范创新联盟](https://en.wikipedia.org/wiki/Coalition_for_Epidemic_Preparedness_Innovations)是一个基金会，它接受公共、私人、慈善和民间社会组织的捐款，为独立研究项目提供资金，以开发针对新兴传染病 （EID） 的疫苗。流行病防范创新联盟总部位于挪威奥斯陆（Oslo），是在 2015 年构思并于 2017 年在瑞士达沃斯的世界经济论坛 (WEF) 上正式启动。 由比尔和梅琳达·盖茨基金会（Bill and Melinda Gates Foundation）、惠康基金会（Wellcome）以及由印度、德国、日本和挪威组成的国家财团共同创立并共同出资 4.6 亿美元。欧盟（2019年）和英国（2020年）也相继加入。惠康基金会是英国最大的慈善基金会之一。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+流行病防范创新联盟的首席执行官（CEO）是哈切特（Richard Hatchett），自2017年4月起任该职务。领英[（LinkedIn）网页](https://www.linkedin.com/in/richard-hatchett-97b07911/?originalSubdomain=uk)显示，哈切特2011 年 1 月至2017 年 3 月在华盛顿特区卫生与公共服务部任副主任兼首席医疗官，2009年4月至2011年1月任白宫国家安全人员医疗准备政策主任，2005年7月至2011年1月任美国国立卫生研究院 (NIH) 辐射计数措施研究和应急副主任。
 
-**参考新闻：**[Canadian nurse whistleblowers say many people are dying after getting vaccines while hospitals are filled with the fully vaccinated – NaturalNews.com](https://www.naturalnews.com/2021-09-27-canadian-nurse-whistleblowers-fully-vaccinated-dying.html)
+[流行病防范创新联盟的网页](https://cepi.net/research_dev/our-portfolio/)介绍说，共投资了12种候选疫苗，其中 10 种仍在开发中。除中共病毒外，其它重点疾病包括埃博拉病毒（Ebola）、拉沙病毒（Lassa）、中东呼吸综合征冠状病毒（Middle East Respiratory Syndrome coronavirus，简称MERS）、尼帕病毒（Nipah）、裂谷热病毒（Rift Valley Fever）和基孔肯雅病毒（Chikungunya）；另外，还投资了可用于针对未知病原体（Disease X）快速开发疫苗的平台技术。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+在Covax项目方面，流行病防范创新联盟领导疫苗研发，投资研发各种有前途的候选疫苗，目标是支持开发三种安全有效的中共病毒疫苗，这些疫苗可以提供给参与 Covax 设施的国家。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+维基百科列出了中共病毒爆发后，流行病防范创新联盟自2020年1月起投资的中共病毒疫苗项目，包括：莫德纳（Moderna）、依诺维奥制药（Inovio）、昆士兰大学（University of Queensland）、CureVac、诺瓦瓦克斯（Novavax）、牛津大学（Oxford University）。至2020年3月已完成投资2,370万美元，计划总投资额为1亿美元。
+
+以上五个参与Covax运作的组织，除流行病防范创新联盟外，其它都有几十年的运作历史。流行病防范创新联盟于 2017 年在瑞士达沃斯的世界经济论坛上正式启动；令人联想到世界经济论坛的创始人兼执行主席克劳斯·施瓦布（Klaus Schwab），在中共病毒疫情爆发约6个月的[2020年6月9日](https://gnews.org/zh-hans/1521009/)，发行了他的新书《大重启（COVID-19: The Great Reset）》。
+
+为全球免疫联盟和流行病防范创新联盟提供资金支持者主要来自英国、美国和欧洲等。比尔和梅琳达·盖茨基金会对这两个组织都提供了资金支持。二者与挪威也有特别关系，挪威是全球免疫联盟的第三大资金捐赠者；流行病防范创新联盟的总部位于挪威奥斯陆，2019年流行病防范创新联盟共收到2.11亿美元，其中最大的捐赠者——挪威，捐赠8,170万美元。
+
+在查阅上述信息浏览这些组织执行Covax项目相关资料的过程中，发现有一个显著的共同点，就是它们都没有介绍或关注中共病毒“疫苗”副作用的任何信息和资料。
+
+全球免疫联盟登载的[9月8日的新闻](https://www.gavi.org/news/media-room/joint-covax-statement-supply-forecast-2021-and-early-2022)说：Covax项目已筹集超过100 亿美元；具有法律约束力的承诺达到 45 亿剂疫苗；截至当日，已向 139 个国家提供了 2.4 亿剂疫苗。9月27日，数据更新为已向143个经济体发出3.11亿剂疫苗。注意：45亿剂疫苗可实现为20多亿人完成两剂注射。
+
+当前，因接种中共病毒“疫苗”而出现的严重损害和死亡病例层出不穷。Gnews曾列举的[46例](https://gnews.org/zh-hans/1537848/)受[疫苗毒针伤害者](https://gnews.org/zh-hans/1545287/)，其中3例死亡，3例为少年儿童。受损害的表现包括：格林巴雷综合征、心包炎、血栓、贝尔氏面瘫、无菌化学脑膜炎、中枢神经系统血管炎、肺炎、多器官炎症、心率过速、头痛、晕眩、四肢麻木和刺痛、水肿、无法控制地颤抖、说话和表达困难等等。
+
+如果Covax按计划完成为20多亿中低收入经济体人民接种疫苗毒针，必将造成大规模的疫苗毒针次生灾难。他们会放弃这个Covax计划吗？难道他们对现在每天都在发生的因注射疫苗毒针导致严重损害和死亡的大量病例毫不知情吗？
+
+（文章仅代表作者本人观点）

@@ -2,27 +2,28 @@
 ---
 
 
-## 中共国前公安详述打击新疆维族酷刑细节
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1575851/)
+## 应对中共威胁，日美举行年内第5次海上联训
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1575941/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/57845643_303.jpg)中共国前公安详述打击新疆维族酷刑细节 网络图片
-德国之声中文网10月5日报道，一位流亡欧洲的中共国前公安展示了自己的任职证明文件，并匿名透露了针对新疆维族的酷刑细节。其中许多情节与CNN采访的另外两位维族受访者的证词一致，情节骇人听闻。
+配音：美食部玫瑰园
 
-2015年，在中共国警察部队工作10多年的江姓警员收到一份“援助新疆”的公文。提到中央计划从各省招募15万名警务助理加入国家反恐斗争。除了对抗国安威胁，工资多一倍，还有晋升机会和其他福利。
+栏目记者/责任编辑：修文
 
-抵达新疆后，这些警员根据名单有计划、系统性的实施抓捕，使得拘留人数达到一定配额。江警员称那段时间为“战斗时期”，新疆如同一个战区，维吾尔人被描述为国家敌人。每一个被拘留者都会遭到殴打，无论男女老幼。只有嫌疑人认罪后才会停止酷刑。
+昨日，日本海上保安厅舰艇协同美国海岸警卫队，在神奈川县横须贺市的横须贺港内进行了联合训练，联训科目是”设想应对可疑船只”。日方向外界透露，此次联训目的是为应对中共在东海、南海海域日益加强的军事威胁，而日美双方均秉持推广自由开放的印太区域概念，并加强双方合作, 包括在该海域的军事及准军事协作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-73.png)
+经历20年发展的中共,近年来在军事上持续扩张和行动，特别是在东海/南海水域，这些咄咄逼人的行动已引发世界各国关注和连锁反应，各国间针对中共威胁的结盟、军演和训练空前频繁，此次演习, 已经是日美今年所举行的第5次海上联合作训。
 
-江警员还提到了性酷刑。来自新疆、现定居挪威的维吾尔族学者阿尤普和哈萨克斯坦公民贝卡利都证实了江姓警员的说法。他们都曾在被关押期间遭受酷刑和轮奸。江警员对中共的腐败和残酷感到失望，所以逃到海外并揭露一切。江警员知道自己不可能再回中共国，他会被指控一切可以想象的罪名，被捕入狱，甚至被害。
+(本文仅代表作者观点)
 
-有些幸运的新疆受害者被释放后离开中共国定居海外，但是他们无法忘记在集中营时的遭遇，这是一生的创伤。中共对中国人民犯下了残酷的种族灭绝行为，将来必会受到刑事审判。苍天饶过谁？作恶的必有报应，期待那一天早日到来。每一个人行动起来，早日铲除中共。
+[https://news.ltn.com.tw/news/world/breakingnews/3692394](https://news.ltn.com.tw/news/world/breakingnews/3692394)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+终审：FoxRina
+校正/发稿：浪迹天涯
 
-新闻参考链接：[https://www.dw.com/zh/媒体中国前公安详述打击新疆维族酷刑细节/a-59406441](https://www.dw.com/zh/媒体中国前公安详述打击新疆维族酷刑细节/a-59406441)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-35.png)
