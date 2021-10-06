@@ -2,10 +2,10 @@
 ---
 
 
-## 63%的delta病毒死亡者已注射疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575781/)
+## 美国加州将要求学生接种冠状病毒疫苗才可返校
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575793/)
 
-作者：香草山写作组-文一
+作者：香草山写作组-晓仙女
 
 
 
@@ -13,9 +13,13 @@
 
 
 
-9月30日，在美国参议院会议上，罗恩-约翰逊参议员指出，在过去7.5个月里，因感染delta冠状病毒的死亡病例中，有63%是完全接种过疫苗的人。 最近的病例和死亡人数激增，并不是未接种疫苗者导致的。然而，主流媒体对此只字不提，社交媒体严格审查。包括CDC在内的数量文章报道，可以总结道： 1. 接种疫苗实际上可能会增加住院的风险 2. CDC拒绝公布按疫苗接种情况分类的住院/死亡数据… 3. 死亡率激增，但CDC不提供原因。真相不能掩盖，正义的人持续在发声。暗黑时期，每个发声都弥足珍贵，每个人都应该力所能及传播疫苗真相，让正义快点到来！
+美国加利福尼亚州州长加文‧纽森（Gavin Newsom）10月1日宣布，一旦COVID-19疫苗获得联邦食品和药物管理局（Federal Food and Drug Administration, FDA）批准全面使用，加州学生将需要接种疫苗后才能上学。这使加州成为全美第一个宣布在学校强制接种疫苗的州。
 
-参考链接： [https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/](https://www.thegatewaypundit.com/2021/10/boom-sen-ron-johnson-drops-truth-bomb-senate-floor-63-uk-delta-deaths-last-7-5-months-fully-vaccinated-video/) [https://threadreaderapp.com/thread/1443669605231304709.html](https://threadreaderapp.com/thread/1443669605231304709.html) [https://threadreaderapp.com/thread/1443431536641015810.html](https://threadreaderapp.com/thread/1443431536641015810.html)
+目前，美国政府已经批准了针对16岁及以上人群接种COVID-19疫苗。也就是说，加州所有高年级的高中学生都需要完全接种疫苗，才能到公立和私立学校上学。政府和医疗巨头沆瀣一气，对羟氯喹、伊维菌素等便宜有效的药物只字不提，反倒逼迫民众打疫苗，现在连孩子们都不放过。正如郭文贵先生所说，世界真的已经到了至暗时刻。
+
+参考链接:
+
+[https://www.epochtimes.com/gb/21/10/3/n13278027.htm](https://www.epochtimes.com/gb/21/10/3/n13278027.htm)
 
 （本文仅代表作者观点）
 

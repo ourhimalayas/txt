@@ -2,37 +2,31 @@
 ---
 
 
-## 中共绑架世界经济，或导致全世界大排华
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575797/)
+## 华裔英雄《尚气》撕下中共民族主义的遮羞布
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1575885/)
 
-作者：香草山写作组-晓仙女
+配音：美食部玫瑰园
 
+好莱坞第一部由亚裔演员主演的漫威系列英雄电影《尚气与十环传奇》，在全球获得巨大成功。但由于紧张的美中关系和民族主义尘嚣日上，此片至今无缘与中国观众见面。
 
+据悉，此片制作初期就非常重视中国市场，不但亚裔演员阵容强大，而且此片大量使用普通话，影片也运用了很多中国元素。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+据有关报导称，该片涉及辱华情节。且该片的主演刘思慕，曾于2016年发表推文，批评中共的审查制度非常不成熟和不明就里，还曾在访谈中提到，“活在共产主义的中国，很多人死于饥饿”。
 
+虽然中共《环球时报》狡辩称该片无法在中共国上映是由于角色偏见，但这恰好反映出中共当局对民主自由思想和反抗精神的恐惧。
 
+参考链接：[《尚气》获全球赞誉却踢到中国民族主义铁板](https://www.voachinese.com/a/marvel-s-shang-chi-was-made-with-china-in-mind-but-beijing-still-doesn-t-like-it-20211003/6255409.html)
 
-
-
-10月5日，郭文贵先生在其大直播中谈到，中共国自加入WTO以来，用21年绑架了世界经济。中共不仅压榨中国人民的劳动价值，还同华尔街一起绑架了世界财富。共产党的虚假经济一旦崩塌，将导致世界经济大灾难，直接影响全世界老百姓的生活。
-
-共产党还制造了新冠病毒和疫苗生化武器，导致全世界处于病毒恐慌和疫苗灾害中，造成亿万人死亡。郭文贵先生指出，当世界经济大崩溃，再加上疫苗灾难爆发时，人类会将一切归罪于中国，造成不可抗拒的排华灾难。当华人处于危难之时，新中国联邦人正不遗余力地塑造正道主义的价值观，身体力行让更多人认知：中国共产党不等于中国人。
-
-参考链接
-
-[https://gtv.org/broadcast/watch/615c44da304e992109afc71a](https://gtv.org/broadcast/watch/615c44da304e992109afc71a)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/校对/发稿：正义的小新
-
+编辑/校对/发稿：雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/09/M10.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)

@@ -2,66 +2,39 @@
 ---
 
 
-## 维州反腐败委员会正在审查州长丹尼尔·安德鲁斯
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1575769/)
+## 经济学人评论：中共国寻求庇护者人数猛增
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575791/)
 
-#### 编译报道：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/10/打倒-8.png)
-澳大利亚维多利亚州的独立和广泛反腐败机构（IBAC）一直在审查州长丹尼尔·安德鲁斯和一名高级公务员的行为，在有争议的交易中他们起到的作用使联合消防员工会（UFU）及其老板彼得·马歇尔（Peter Marshall）受益。
+作者：香草山写作组-文一
 
-虽然自2019年以来，人们已经知道IBAC一直在调查涉及UFU的交易，但其调查人员在审查安德鲁斯州长行为事实之前并没有得到证实。
 
-未被授权公开评论的知情人士证实，IBAC调查的一个方面涉及对安德鲁斯州长行为的审查。
 
-委员会还质疑安德鲁斯先生在向维州公众或他的内阁或核心小组成员提供关于他在与UFU交易的干预措施方面是否透明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-该委员会拒绝对其调查发表评论，安德鲁斯先生周二一再拒绝评论他是否知道IBAC正在调查他与消防员工会的交易。安德鲁斯先生说：“如果你想问他们关于他们正在做和没有做的问题，我会引导你去找IBAC。”
 
-2019年7月，安德鲁斯先生说，IBAC对工会活动的调查“并不涉及我”。
 
-2014年至2019年期间，安德鲁斯政府和工会之间的互动是有争议的，因为消防员工会领导人彼得·马歇尔最终成功地达成影响一项工业协议和涉及维多利亚州消防服务的改革方案，其结果有利于其工会及其成员。
+《经济学人》不久前发文指出，上世纪60年代，毛泽东领导的文化大革命期间，数以万计的人逃离中共国。随着国家的稳定，这个数字有所下降。但是七十年后，这一数字再次迅速上升。根据联合国难民事务高级专员办事处的数据，2012年至2020年期间，每年来自中共国寻求庇护者的人数从1万5362人上升到10万7864人。自习近平2012年底上台以来，有61.3万名中共国公民在他国申请庇护。2020年，其中70%的人去往美国寻求庇护。
 
-消息人士证实，该委员会一直在调查马歇尔先生和高级公务员托尼·贝茨（Tony Bates.）的活动。贝茨先生在安德鲁斯州长和内阁部工作，被指派处理马歇尔先生和工会的要求。
+《世界一体新闻台》 (WION)也发文称许多富有的中国人，正在逃离中共国污染严重的城市和集权专制，以寻求更好的教育机会和财产安全。国际政治学者兰霍特拉（Sanbeer Singh Ranhotra）给出了中共政府花在维稳上的巨额数字：2019年，中共政府的维稳支出为2160亿美元，包括国家安全、警察、国内监控和武装民兵，是10年前的三倍多，比军费开支还要多出大约2600万美元。文章还指出持不同政见者和少数民族都是压制的目标，对言论自由的限制仍然有增无减。
 
-安德鲁斯州长、贝茨先生和马歇尔先生是如何打破僵局（达成交易），以及是否涉及任何不正当行为，正是IBAC调查的内容之一。
+参考链接：
 
-媒体还证实，除了就这笔交易询问前工党议员和在职工作人员外，IBAC调查人员还查获了属于工会和领导人马歇尔先生的手机、笔记本电脑和几十个优盘。今年接受IBAC询问的人中就有安德鲁斯州长的前核心成员。
+[https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up](https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up)
 
-周二，安德鲁斯先生说：“根据我的经验和判断，贝茨先生在与马歇尔先生和工会的互动中一直表现得很正直。”
+[https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406](https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406)
 
-“这不是一个由我决定的问题”，他说：“在我从事公共生活的所有时间里，我一直非常清楚，诚信机构（反腐败委员会）应该得到政府和政府每个成员的全力支持。”
+[https://www.secretchina.com/news/gb/2021/10/04/985454.html](https://www.secretchina.com/news/gb/2021/10/04/985454.html)
 
-在某些情况下，一个人对IBAC的活动进行评论可能是一种犯罪。
+（本文仅代表作者观点）
 
-现任维州教育部副部长贝茨先生在接受媒体采访时拒绝发表评论，马歇尔先生也没有回应发出的信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
 
-IBAC调查的第二条线索涉及马歇尔先生和议员安迪·麦迪克（Andy Meddick）之间的交易，在他的孩子在UFU获得两周的带薪实习后，他的投票帮助通过了工会支持的消防服务改革立法。
+编辑/校对/发稿：正义的小新
 
-去年，当被问及安德鲁斯州长是否知道麦迪克先生的孩子在工会得到一份短期工作时，政府发言人说：“完全不知道”。
-
-IBAC拥有非同寻常的调查权力，但在委员罗伯特·雷德利希（Robert Redlich）的领导下，在公开其调查细节方面通常采取谨慎的态度。
-
-鉴于政府与工会的交易和行为可能存在灰色地带，不涉及明确的“牛皮纸袋”腐败（政治捐款），而是涉及公众信任和使用官方权力的问题，这一点尤其如此。在工会联合会与安德鲁斯政府的交易中，正在调查的问题涉及到政治权力的适当使用和为达成交易而进行的闭门谈判的透明度问题，这可能使工会联合会和劳工部受益，但其代价可能最终由纳税人承担。
-
-与前新州州长的情况不同，IBAC没有表明它打算举行公开听证会，也没有说明它正在调查涉及安德鲁斯先生的不利指控。
-
-IBAC对UFU交易的调查于2019年年中开始，它多次因法律挑战而停滞，其性质被（政府）压制。该机构发言人本周表示：“按照惯例，IBAC不会对其面前是否有投诉或调查发表评论。”
-
-自2019年初开始调查以来，除了正在进行的事实之外，几乎没有关于IBAC调查的信息被公开过。
-
-反腐败机构只有在认为其收到的关于不当行为的指控并非轻率或无理取闹，并涉及不诚实地使用权力时，才能将调查从初步阶段转为全面调查。
-
-它对那些身为国家消防机构雇员的工会成员有管辖权，国会议员也受IBAC的管辖。
-
-（本文仅代表作者个人观点，与Gnews平台无关）
-
-新闻链接：[Daniel Andrews under scrutiny from IBAC over firefighters union deal (theage.com.au)](https://www.theage.com.au/politics/victoria/ibac-scrutiny-on-andrews-over-firefighters-union-deal-20211005-p58xhm.html)
-
-**编辑****/发布：文泓**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

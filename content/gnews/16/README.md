@@ -2,37 +2,27 @@
 ---
 
 
-## 全球供应链“灾难”将会变得更糟
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575794/)
+## 中共国前公安详述打击新疆维族酷刑细节
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1575851/)
 
-作者：加拿大枫叶农场-文仁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/57845643_303.jpg)中共国前公安详述打击新疆维族酷刑细节 网络图片
+德国之声中文网10月5日报道，一位流亡欧洲的中共国前公安展示了自己的任职证明文件，并匿名透露了针对新疆维族的酷刑细节。其中许多情节与CNN采访的另外两位维族受访者的证词一致，情节骇人听闻。
+
+2015年，在中共国警察部队工作10多年的江姓警员收到一份“援助新疆”的公文。提到中央计划从各省招募15万名警务助理加入国家反恐斗争。除了对抗国安威胁，工资多一倍，还有晋升机会和其他福利。
+
+抵达新疆后，这些警员根据名单有计划、系统性的实施抓捕，使得拘留人数达到一定配额。江警员称那段时间为“战斗时期”，新疆如同一个战区，维吾尔人被描述为国家敌人。每一个被拘留者都会遭到殴打，无论男女老幼。只有嫌疑人认罪后才会停止酷刑。
+
+江警员还提到了性酷刑。来自新疆、现定居挪威的维吾尔族学者阿尤普和哈萨克斯坦公民贝卡利都证实了江姓警员的说法。他们都曾在被关押期间遭受酷刑和轮奸。江警员对中共的腐败和残酷感到失望，所以逃到海外并揭露一切。江警员知道自己不可能再回中共国，他会被指控一切可以想象的罪名，被捕入狱，甚至被害。
+
+有些幸运的新疆受害者被释放后离开中共国定居海外，但是他们无法忘记在集中营时的遭遇，这是一生的创伤。中共对中国人民犯下了残酷的种族灭绝行为，将来必会受到刑事审判。苍天饶过谁？作恶的必有报应，期待那一天早日到来。每一个人行动起来，早日铲除中共。
+
+新闻参考链接：[https://www.dw.com/zh/媒体中国前公安详述打击新疆维族酷刑细节/a-59406441](https://www.dw.com/zh/媒体中国前公安详述打击新疆维族酷刑细节/a-59406441)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
-据彭博社报道，十月初四零售界的商业“高峰”的开始，但是今年该行业已经处于各种形式的恐慌之中。通常，这种状况要到圣诞节前几周才会出现。
-
-当中共病毒在 2020 年初打击全球经济，导致工厂减产或关闭。与此同时，供应链也被苏伊士运河堵塞等众多事件，以及劳动力短缺和运输成本飙升等市场动态所扼杀。
-
-在欧洲，由于交货延迟，服装连锁店 H&M 等零售商也无法满足客户需求。在美国，耐克因越南工厂关闭，导致生产中断，之后被迫下调了销售预期。新冠病毒的大爆发使港口码头闲置，导致没有足够的集装箱，因而集装箱的价格比一年前飙升 10 倍。劳动力短缺，导致卡车运输停滞，美国缺人的岗位的人数达到历史新高。
-
-中共的病毒疫情已经给世界的制造业和经济带来了巨大的打击。这接踵而来的全球物流“灾难”也一时难以缓冲，让人们原本满怀期待的圣诞经济复苏，也变得希望渺茫。
-
-【参考链接】[https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348](https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348)
-
-（本文仅代表作者观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
