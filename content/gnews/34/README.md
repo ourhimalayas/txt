@@ -2,52 +2,20 @@
 ---
 
 
-## Facebook怎么啦？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1576153/)
+## 拜登派遣国安顾问前往苏黎士会见杨洁篪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576223/)
 
-翻译：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-脸书在周一为世界各地的用户停止工作数小时后表示道歉。该公司旗下的WhatsApp和Instagram也同样出现了故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/1-24.jpg)
-问题出在哪里？简而言之，Facebook的系统停止与互联网链接。网络基础设施公司Cloudflare解释说，这就像 “有人一下子拔掉了他们数据中心的电缆，并将其与互联网断开”。
+#### 翻译：Evalu
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/3-12.jpg)图片来源：DW
+美联社10月5日华盛顿报道，乔·拜登总统正在派遣白宫国家安全顾问杰克·苏利文去瑞士与中共国外交政策顾问杨洁篪会谈，商讨两国在众多问题上的机会，包括台湾和贸易。
 
-Facebook的解释则更有技术性。它说，“协调我们数据中心之间的网络流量的骨干路由器的配置变化导致问题，中断了这种通信”。这产生了 “连带效应……使我们的服务陷入停顿”。扎克伯格为六小时的Facebook中断服务道歉。
+这个会谈安排在苏黎士的星期三，在白宫周一批评北京近几天对自治的台湾进行持续军事骚扰活动。这将是对上个月拜登与习近平通话后的跟进，旨在继续两国间“寻求负责任地处理竞争”，这是白宫安全委员会发言人艾米丽·何恩在一次声明中说的。
 
-那么，为什么人们无法访问Facebook？
+白宫在本周指出北京用挑衅性行动损害了地区和平与稳定，最近几天，中共国向台湾起飞了几十架军机，包括周一的56架飞机。美国贸易代表戴琪周一说她计划与北京官员直接谈关于解决关税战的临时贸易协议。戴琪说她不想“让与中共国的贸易关系更紧张”，但她想继续建议拜登进行来自前总统川普所采用的严格的关税政策。
 
-互联网被分解成数十万个网络。像Facebook这样的大公司有自己的大型网络–被称为自治系统。当你想访问Facebook（或Instagram或WhatsApp）时，允许计算机与他们的网络连接的后端系统使用边界网关协议（BGP）–一种互联网的邮政服务。为了将人们引导到他们想要访问的网站，BGP会查看数据可能经过的所有可用路径，并选择最佳路线。
+最近的扰台事件发生于台湾申请加入主要的区域贸易协议之后，北京强烈反对西方让台湾以主权国家状态进入，表达反对台湾的申请。中共国称民主治理的台湾是它的领地，如果必须，将武力控制台湾，它拒绝承认台湾政府，并寻求孤立蔡英文领导的独立的政府。
 
-周一，Facebook突然停止提供系统运行所需的信息。这意味着没有人的电脑可以连接到Facebook或它旗下其他网站。
+拜登因中共国的强制贸易行为，对少数民族人权的践踏和源于武汉的中共病毒流行的处理反复打电话给中共国，同时也表达希望双方在一些问题上，如气候变化，防止朝鲜半岛核危机等问题上共同合作。拜登政府官员也表达了在早些时候与中共高层官员的对话很有挫折感，缺乏建设性意见。
 
-这次中断有什么影响？
-
-这些关键的互联网参与者的故障，对全球的个人和企业产生了连锁反应。追踪故障的Downdetector说，世界各地报告了约1,060万个问题–这是有史以来最大的数字记录。对许多人来说，失去对Facebook服务的访问只是一种不便。但是对于发展中国家的一些没有其他可靠方式与客户沟通的小企业来说，这可能是一个严重的问题。同样，一些组织的员工在大流行之后仍在远程工作，现在依靠WhatsApp与同事保持联系。
-
-这种情况是如何被允许发生的？
-
-在北京时间周一16:45左右，大量的报道开始出现，称Facebook、Instagram和WhatsApp无法工作。起初，这引起了人们对如何应对的惯常玩笑，以及Twitter等竞争对手的嘲讽。但很快就发现，这是一个更严重的问题–有报道称，在Facebook的加州总部出现了混乱。
-
-《纽约时报》的科技记者谢拉-弗伦克尔(Sheera Frenkel)告诉英国广播公司(BBC)，花了这么长时间才解决的部分原因是，“试图找出问题所在的人甚至无法实际进入大楼”，以找出问题所在。我们还不知道这个问题是由软件错误还是简单的人为错误造成的。
-
-最尴尬的是，Facebook的道歉是在其竞争对手Twitter上发布的。
-
-参考链接：[What happened to Facebook, WhatsApp, and Instagram?](https://www.bbc.com/news/technology-58800670)
-
-**本文仅代表作者观点**
-
-![](https://cdn.discordapp.com/attachments/873743101305430037/893468354843643935/image0.jpeg)
-
-**校对/发稿：童谣**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源： [Biden dispatches Sullivan to meet China diplomat in Zurich](https://apnews.com/article/coronavirus-pandemic-joe-biden-business-xi-jinping-taiwan-56429a6c261af8d1808fa67efe94217a)

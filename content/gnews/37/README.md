@@ -2,39 +2,46 @@
 ---
 
 
-## 加拿大护士告密：许多人因接种疫苗后死亡和住院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1576131/)
+## 辉瑞科学家承认自然免疫力比疫苗更好
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1576207/)
 
-#### 整理报道：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/10/nurses-in-canada-1080x675-1.jpg)
-图片来源：immilawglobal.com
+#### 翻译：坤霆
+校对：萌萌的朋克
+![](https://assets.gnews.org/wp-content/uploads/2021/10/4-15.jpg)图片来源：网络截图
+10月5日，据WND.COM报道，福奇和其他公共卫生官员继续坚持认为新冠病毒疫苗优于自然免疫力，但在最新的Veritas项目调查中，三名辉瑞科学家被隐藏摄像头捕获，他们口中的情况并非如此。
 
-**【雅典娜快讯】，紧贴时事脉搏**
+帮助开发辉瑞-BioNTech疫苗的生物化学家尼克卡尔（Nick Karl）告诉Veritas项目的一名卧底记者，因感染新冠病毒所产生的抗体“很大可能比疫苗接种更好”。
 
-两名加拿大护士挺身出来告密，告诉记者他们在中共病毒（COVID-19）大流行期间所看到的情况。这包括接种中共病毒疫苗后死亡的病人，以及医院里挤满了完全接种疫苗后，患有中共病毒的人。
+在Veritas项目疫苗系列的第1部分中，公共卫生部的一名员工展示了同事私下对疫苗安全性发出警报的视频记录，指控掩盖了“最高级别的邪恶”。在第2部分中，一名FDA官员呼吁对未接种疫苗的美国人进行“纳粹德国”式的“登记册”。在第3部分中，两名强生公司官员表示，儿童不需要疫苗，因为“未来会产生未知影响”。
 
-来自加拿大魁北克省（Quebec）庞蒂亚克（Pontiac）小镇的埃里卡·比尔兹利(Erica Beardsley)做了11年的护士，在她的雇主强制要求她接种疫苗后辞职。
+最近，另一位科学家辉瑞高级合伙人克里斯·克罗斯同意，患有COVID-19的人会受到抗体的保护。
 
-在加拿大的一次反疫苗授权的抗议活动中，比尔兹利向记者讲述了她作为护士在大流行期间看到的可怕事情。
+“和疫苗一样多？”Veritas记者说。
 
-比尔兹利说：”我亲眼看到人们束缚着老人，违背他们的意愿为他们接种疫苗，而老人却大喊’不要’。我见过自杀的病人，一旦病人死了，他们就对病人进中共病毒测试。”
+“可能更多，”克罗斯回答。
 
-“我目睹了很多人在接种疫苗后不久死于心脏病，”她继续说。”我目睹了疫苗接种后五天、四天就足月流产的情况。”这是一个令人惊讶的普遍现象，尽管她来自一个不足5000人的小镇。
+记者问“多多少？”
 
-另一位在多伦多（Toronto）圣迈克尔（St. Michael’s）医院工作的护士称，医院里到处都是完全接种了中共病毒疫苗的病人。
+克里斯说，由于有自然反应，你最有可能受到更长时间的保护。
 
-加拿大各地的人们，包括医护人员，都在抗议强行接种疫苗的行为。这些抗议活动在全国各地涌现，反对人们被迫接种实验性和致命的中共病毒疫苗。
+记者问单克隆抗体治疗方法怎么样了。
 
-（文章内容仅代表作者个人观点，与GNEWS无关）
+克里斯说他们被“先放一边”。
 
-**参考新闻：**[Canadian nurse whistleblowers say many people are dying after getting vaccines while hospitals are filled with the fully vaccinated – NaturalNews.com](https://www.naturalnews.com/2021-09-27-canadian-nurse-whistleblowers-fully-vaccinated-dying.html)
+“为什么？”记者问。
 
-***编辑：小红帽******/******翼族*****
-*****发布：小红帽***
+“金钱。这很恶心，”他说。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+克里斯说：“我仍然觉得自己在一家邪恶的公司工作，因为它最终归结为利润。”“我的意思是，我在那里帮助人们，而不是赚数百万美元。所以，我的意思是，这就是道德困境。”
+
+“不是数十亿吗？”记者问。
+
+“我正在努力变得友好，”克罗斯说。
+
+“基本上，我们的组织现在只能靠新冠病毒资金运营。”
+
+另一个辉瑞科学家拉胡尔·坎克说，员工被“教导”坚持“疫苗比实际感染新冠病毒更安全”。他在公共场合说“我们不能谈论这件事”。坎克解释说，员工必须“几个小时”地坐着开会，告诉他们不要谈论自然免疫力的优越性。
+
+上个月，博士琼斯霍金斯（Johns Hopkins）医学院和彭博公共卫生学院教授马蒂马卡提（Marty Makary）在《华盛顿邮报》的客座专栏文章中写道：“许多当选领导人和公共卫生官员坚持了太长时间，即自然免疫力对新冠病毒的预防提供了不可靠的保护——这一论点正在迅速被科学揭穿。”
+
+原文链接：[Hidden camera: Pfizer scientists admit natural immunity better than vaccines](https://www.wnd.com/2021/10/4950625/)
