@@ -2,29 +2,39 @@
 ---
 
 
-## 加拿大越来越专制：安省副议长因拒绝接种疫苗被免职
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1575792/)
+## 美NIH院长科林斯将辞职
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575795/)
 
-#### 加拿大多伦多枫叶农场  丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-05-下午8.33.40.png)图片来源于网络
-据《环球邮报》5日报道，安大略省立法机构副议长里克·尼科尔斯 （Rick Nicholls）先生，因为拒绝接种中共病毒疫苗而被免去副议长职务。
+作者：香草山写作组-文一
 
-尼科尔斯被免职的原因，是他违反了安省省长道格.福特（Doug Ford）要求政府核心人员全部接种疫苗的要求，因此“安省政府将于6日上午马上采取行动，提名另一名议员担任副议长。”
 
-尼科尔斯去年还是安省保守党执政党团成员之一，他因为拒绝接种疫苗在去年8月被保守党从执政党团会议中除名，但继续担任副议长至今。
 
-该报道称，安省反对派政治家举报了另外两名保守党成员既不接种疲苗，也没有疫苗接种医疗豁免证明。显然，出现这种无耻的举报现象，表明加拿大的道德沦丧正在从权力阶层开始向外蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-加拿大政府在疫苗严重毒副作用充分暴露，多个发达国家不再强制接种疫苗并取消疫苗护照的情况下，仍然在无耻地推动疫苗护照，甚至将强制接种扩大到12岁以上儿童，同时正在计划将接种范围扩大到5岁儿童，确实让人无比愤怒和难以理解。
 
-尼科尔斯仅仅因为不愿意接种疫苗而被剥夺公职，这是完全不合法的，说明加拿大正在变得越来越专制，法律至上的原则已经被严重侵蚀，如果人民不加以制止，不坚决从这些腐败政客中夺回天赋人权，加拿大就有可能变成专制国家。
 
-已经有大量证据证明，主导强推疫苗并毫无道理地拒绝疫苗之外其他治疗方法的机构或个人，都和疫苗利益集团有肮脏的关系。
+美国国立卫生研究院NIH周二宣布，该院院长科斯林，在工作近三十年，在位12年后，计划年底离任。据相关人士透露，他离职其实已经有一段时间了。
 
-值得注意的是，尼科尔斯是被自己所在的保守党两度暗算的。安省保守党堕落卑鄙至此，难怪在本次大选中惨败，还好，安省人的眼睛是雪亮的。
+科斯林现年71岁，为内科遗传学家，在位期间历经三届总统，是任职时间最长的院长。柯林斯领导了全球人类基因组测序的工作，并发现了囊性纤维化的基因。2007年，成立BioLogos基金会，一个旨在调和宗教与科学的团体。
 
-参考来源：
+据悉，首席副主任劳伦斯-塔巴克（Lawrence Tabak）可能会成为代理主任。
 
-[Ontario MPP Rick Nicholls out as deputy speaker at legislature after COVID-19 vaccination refusal](https://www.theglobeandmail.com/canada/article-ontario-mpp-rick-nicholls-out-as-deputy-speaker-at-legislature-after/)
+参考链接：
 
-（文章仅代表作者观点，与GNEWS无关）
+[https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh](https://www.msn.com/en-us/news/politics/francis-collins-to-step-down-as-nih-director-by-years-end/ar-AAP8SNh)
+
+[https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji](https://www.msn.com/en-us/news/politics/biden-calls-nih-director-frances-collins-one-of-the-most-important-scientists-of-our-time/ar-AAPahji)
+
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-37.png)

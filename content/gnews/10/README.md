@@ -2,57 +2,33 @@
 ---
 
 
-## 美国国务院：美国贸易代表宣布了美国将重新调整对华贸易政策
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1576000/)
+## 全球种族灭绝 &#8211; 疫苗接种是现实版的黑手党暴力事件
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1576052/)
 
-美国国务院： 我们欢迎与 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hashtag_click) 的竞争，但这种竞争需要公平和负责任地管理。美国贸易代表宣布了美国将围绕我们的优先事项重新调整对华贸易政策的初步步骤：[http://go.usa.gov/xMdyg](https://t.co/Ssd10LTWia?amp=1)。
+编译: Hong
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Picture1-2.jpg)
 
+图片来自网络
 
-> We welcome competition with the People’s Republic of China, but that competition needs to be fair and managed responsibly. [@USTradeRep](https://twitter.com/USTradeRep?ref_src=twsrc%5Etfw) announced the initial steps the U.S. will take to re-align our trade policies towards the PRC around our priorities: [https://t.co/yCcKGM3aMJ](https://t.co/yCcKGM3aMJ).
-> — Department of State (@StateDept) [October 5, 2021](https://twitter.com/StateDept/status/1445509102373781509?ref_src=twsrc%5Etfw)
+[埃迪·贝特曼(Eddy Bettermann ) 医学博士在10月5日的一篇文章](https://dreddymd.com/2021/10/05/australian-aboriginal-dies-six-days-after-second-dose-of-pfizer-vaccine/)中抨击疫苗制药公司就像黑手党暴徒一样，利用 “内疚 “和 “恐惧 “宣传的手段胁迫人们对自己的身体做出通常不会做的事情。在澳大利亚，有超过70%的原住民无惧无畏、拒绝接种疫苗，过着无忧无惧的正常生活，但当中共病毒疫苗首次问世时，这些原住居民就被标记为疫苗”优先群体”接种。
 
+从一开始，澳洲政府就与疫苗制药公司串通一气*，*向原住居民施压，使没有接种疫苗的人感到羞耻，让他们排队等候接种。据报道，疫苗制药公司医药代表正在与马宁里达（Maningrida）和贾林金（Djarindjin）地区的长老接触，用羞辱的激将法逼迫他们为了*“*社区的利益”接种中共病毒疫苗*。*现约有1,200 名原居民居住在澳洲Wakka Wakka地区，截至2021年9月9日，只有 4.6% 社区被认为是 “完全接种了疫苗” 。
 
+贝文.科斯特洛（Bevan Costello）先生曾是一位受人尊敬的土著首领、是一位教育家和导师，他在被迫接种辉瑞疫苗之后的第六天就猝死了。疫苗黑手党强迫65岁的科斯特洛（Costello）先生接种中共病毒疫苗，并逼他相信，他正在为他的社区做正确的事情。科斯特洛（Costello）早在 8 月份就排队等候第一剂Covid 中共病毒疫苗接种， 9 月 9 日，他在美国广播公司（ABC）线下中共病毒疫苗推广活动中，接种了第二剂辉瑞 mRNA疫苗。 科斯特罗（Costello）先生是被迫招募去推广疫苗接种、并带头接种了疫苗，美国广播公司还对他进行了专访，目的是为了能有更多部落里的人跟随接种。
 
-参议员瑞克·斯科特： 拜登的财政部长希望监控美国人的财务往来。拜登的司法部部长希望让批判种族理论的反对者保持沉默。这就是中国、俄罗斯和古巴政权目前所做的：窥探他们的公民并压制异议。拜登 = 系统性社会主义。 【附每日电讯：拜登因“武器化”司法部反对父母们发对批判种族理论】
+在接受美国广播公司采访时，科斯特罗（Costello）先生说，他在戳了第二针中共病毒疫苗后又恢复了生活的自信。这句话证明了，像科斯特罗（Costello）先生这样智慧的人一定是遭受了心理虐待，被胁迫发表了公开声明。当一个人说，如不接种多剂中共病毒疫苗就没有信心活下去的时侯，这个人一定是被人从心里上操控了。
 
+不幸的是，在科斯特洛（Costello）先生接种第二剂中共病毒疫苗后的第六天便突然去世了。瑟堡原住民郡委员会（The Cherbourg Aboriginal Shire Council）在Facebook 上发布消息称，科斯特洛Costello）先生是“突然死亡”。 美国广播公司报道称，他是因心脏病突发猝死，针对疫苗会对人体心血管系统造成损害却只字未提。
 
+科斯特洛（Costello）先生的死亡将被记录为“未接种疫苗的死亡”，因为他第二次接种的时间还不到14天。然而，如果能有人重视中共病毒疫苗接种的真相，就能挽救科斯特洛Costello）先生的生命；如果他对拒绝接种而不感到自责，他就有可能够做出一个理性的选择； 如果他在接种疫苗时就被告知疫苗接种会对心脏造成危害，有猝死的风险，他可能会做出不同的选择以挽救自己的生命。
 
-> Biden’s Treasury Secretary wants to monitor Americans’ financial transactions. Biden’s AG wants to silence opponents of Critical Race Theory. This is what the Chinese, Russian & Cuban regimes currently do: snoop on their citizens & squash dissent. Biden = Systemic Socialism. [https://t.co/g8vcA4g3iT](https://t.co/g8vcA4g3iT)
-> — Rick Scott (@SenRickScott) [October 5, 2021](https://twitter.com/SenRickScott/status/1445466122900238346?ref_src=twsrc%5Etfw)
+在这场疫苗接种的悲剧中，所有关于Covid-19中共病毒疫苗会导致血栓和心脏炎症的真实信息都被（媒体）判为”错误信息 “而被人们所忽视。目前，由于知情同意被捆绑在一种心里操纵、内疚和恐惧的状态中，将有更多的人不可避免地成为这场全球疫苗接种种族灭绝的受害者。
 
+现在，整个世界已被邪恶的中共和黑暗势力所挟持，不计其数的人死于中共的无效毒疫苗。但只要有正道主义在，黑暗势力必将被消灭；谁与中共贼党为友，谁就是世界的敌人。传播真相，拒绝接种无效疫苗， 挽救生命！
 
+文章仅代表作者本人观点,与GNews无关
 
-众议员迈克·沃尔茨： 感谢基思在捍卫民主、促进清洁网络和讲述华为真相方面发挥的领导作用。 【转前副国务卿基思·克拉克推文：自由世界不应该向共产中国屈膝。我们必须与台湾这个民主模范 美国的好朋友站在一起。去年,我有幸成为访问台湾的40年来最高级别外交官,并为加强我们的经济联系而感到自豪】
+[新闻参考来源](https://dreddymd.com/2021/10/05/australian-aboriginal-dies-six-days-after-second-dose-of-pfizer-vaccine/)
 
-
-
-> Thank you Keith for your leadership on defending democracy, promoting clean networks, and telling the truth about Huawei. [https://t.co/55vaFGZfzz](https://t.co/55vaFGZfzz)
-> — Rep. Mike Waltz (@michaelgwaltz) [October 5, 2021](https://twitter.com/michaelgwaltz/status/1445457506755620864?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加西亚： 尽管许多非法越境的移民甚至没有接受新冠COVID 测试，更不用说接种疫苗了——拜登政府现在却要求所有海关与边境保卫局[@CBP](https://twitter.com/CBP) 的官员在 11 月 1 日之前接种疫苗。这种虚伪何时结束？ 【转[http://saraacarter.com](https://t.co/dMuhtW8L5x?amp=1): 边境巡逻人员对新的强制疫苗规定感到不安】
-
-
-
-> Despite the fact that many of the migrants illegally crossing the border are not even taking a COVID test, let alone getting vaccinated – the Biden administration is now mandating all [@CBP](https://twitter.com/CBP?ref_src=twsrc%5Etfw) officials get vaccinated by Nov. 1st. When will the hypocrisy end? [https://t.co/H1azHT98lF](https://t.co/H1azHT98lF)
-> — Rep. Mike Garcia (@RepMikeGarcia) [October 5, 2021](https://twitter.com/RepMikeGarcia/status/1445443555162427394?ref_src=twsrc%5Etfw)
-
-
-
-参议员兰德·保罗： 在一个如此多的运动员无法成为好的榜样的时代，乔纳森·艾萨克 (Jonathan Isaac) 因他对权力说出真相的勇气和信仰而脱颖而出。 【转福克斯晚间新闻：联邦新闻网FNN 独家与主持人[@ShannonBream](https://twitter.com/ShannonBream)：篮球运动员乔纳森·艾萨克[@JJudahIsaac](https://twitter.com/JJudahIsaac) 权衡疫苗强制要求以及为什么他选择不接种疫苗】
-
-
-
-> In a time when so many athletes fail to be good role models, Jonathan Isaac stands out for his courage to speak truth to power and for his faith. [https://t.co/iWShFCDIUb](https://t.co/iWShFCDIUb)
-> — Senator Rand Paul (@RandPaul) [October 5, 2021](https://twitter.com/RandPaul/status/1445430140952059907?ref_src=twsrc%5Etfw)
-
-
-
-众议员李·泽尔丁： 如果这次福奇得手了（指圣诞节也不能聚集），每一个人都要把他们书架上的精灵换成沙发上的福奇。他想插手到每个人的生活中，特别是最近引起轩然大波的-建议大家取消和所爱之人的圣诞节。太过分了。 [@GutfeldFox](https://twitter.com/Gutfeldfox) （附节目访谈）
-
-
-
-> If Fauci had his way, everyone would be replacing their Elf on a Shelf with a Fauci on the Couchy. He wants to be all up in everyone's business, most recently causing an uproar by suggesting your Christmas plans with loved ones may need to be canceled. It's too much. [@GutfeldFox](https://twitter.com/Gutfeldfox?ref_src=twsrc%5Etfw) [pic.twitter.com/xC9Ke8dSeg](https://t.co/xC9Ke8dSeg)
-> — Lee Zeldin (@RepLeeZeldin) [October 5, 2021](https://twitter.com/RepLeeZeldin/status/1445373719426347010?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/澳喜图标2-1.jpg)

@@ -2,10 +2,10 @@
 ---
 
 
-## 经济学人评论：中共国寻求庇护者人数猛增
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575791/)
+## 全球供应链“灾难”将会变得更糟
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1575794/)
 
-作者：香草山写作组-文一
+作者：加拿大枫叶农场-文仁
 
 
 
@@ -13,17 +13,15 @@
 
 
 
-《经济学人》不久前发文指出，上世纪60年代，毛泽东领导的文化大革命期间，数以万计的人逃离中共国。随着国家的稳定，这个数字有所下降。但是七十年后，这一数字再次迅速上升。根据联合国难民事务高级专员办事处的数据，2012年至2020年期间，每年来自中共国寻求庇护者的人数从1万5362人上升到10万7864人。自习近平2012年底上台以来，有61.3万名中共国公民在他国申请庇护。2020年，其中70%的人去往美国寻求庇护。
+据彭博社报道，十月初四零售界的商业“高峰”的开始，但是今年该行业已经处于各种形式的恐慌之中。通常，这种状况要到圣诞节前几周才会出现。
 
-《世界一体新闻台》 (WION)也发文称许多富有的中国人，正在逃离中共国污染严重的城市和集权专制，以寻求更好的教育机会和财产安全。国际政治学者兰霍特拉（Sanbeer Singh Ranhotra）给出了中共政府花在维稳上的巨额数字：2019年，中共政府的维稳支出为2160亿美元，包括国家安全、警察、国内监控和武装民兵，是10年前的三倍多，比军费开支还要多出大约2600万美元。文章还指出持不同政见者和少数民族都是压制的目标，对言论自由的限制仍然有增无减。
+当中共病毒在 2020 年初打击全球经济，导致工厂减产或关闭。与此同时，供应链也被苏伊士运河堵塞等众多事件，以及劳动力短缺和运输成本飙升等市场动态所扼杀。
 
-参考链接：
+在欧洲，由于交货延迟，服装连锁店 H&M 等零售商也无法满足客户需求。在美国，耐克因越南工厂关闭，导致生产中断，之后被迫下调了销售预期。新冠病毒的大爆发使港口码头闲置，导致没有足够的集装箱，因而集装箱的价格比一年前飙升 10 倍。劳动力短缺，导致卡车运输停滞，美国缺人的岗位的人数达到历史新高。
 
-[https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up](https://www.economist.com/graphic-detail/2021/07/28/under-xi-jinping-the-number-of-chinese-asylum-seekers-has-shot-up)
+中共的病毒疫情已经给世界的制造业和经济带来了巨大的打击。这接踵而来的全球物流“灾难”也一时难以缓冲，让人们原本满怀期待的圣诞经济复苏，也变得希望渺茫。
 
-[https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406](https://www.wionews.com/world/the-great-exodus-from-china-under-xi-jinping-asylum-seekers-number-shoots-up-over-600000-401406)
-
-[https://www.secretchina.com/news/gb/2021/10/04/985454.html](https://www.secretchina.com/news/gb/2021/10/04/985454.html)
+【参考链接】[https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348](https://www.investing.com/news/stock-market-news/christmasat-risk-assupply-chain-disaster-only-gets-worse-2633348)
 
 （本文仅代表作者观点）
 

@@ -15,134 +15,134 @@
 
 ---
 
-### [加拿大护士告密：许多人因接种疫苗后死亡和住院](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [Facebook怎么啦？](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
 
-### [脸书公布宕机原因 超过15亿脸书用户数据被出售](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国出台《城市负债率排行榜》贵阳债务达929%](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美天然气大涨创12年新高，国际油价奔向80美元每桶](/content/gnews/4/README.md)
+### [墙内要闻汇编](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声| 美中贸易政策揭晓，寻求对话但保持施压中共](/content/gnews/5/README.md)
+### [秘翻在线:法国参议院提出法案，强制要求接种中共病毒疫苗](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大护士告密：许多人因接种疫苗后死亡和住院](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [脸书公布宕机原因 超过15亿脸书用户数据被出售](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国出台《城市负债率排行榜》贵阳债务达929%](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美天然气大涨创12年新高，国际油价奔向80美元每桶](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声| 美中贸易政策揭晓，寻求对话但保持施压中共](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声| 前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/6/README.md)
+### [有声| 前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [全球种族灭绝 &#8211; 疫苗接种是现实版的黑手党暴力事件](/content/gnews/7/README.md)
+### [全球种族灭绝 &#8211; 疫苗接种是现实版的黑手党暴力事件](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [【战友观点】台湾娱乐圈里究竟谁是“卖台贼”](/content/gnews/8/README.md)
+### [【战友观点】台湾娱乐圈里究竟谁是“卖台贼”](/content/gnews/11/README.md)
  ` 温哥华扬帆农场`
 
-### [与中共国的战争：澳大利亚与战争的距离](/content/gnews/9/README.md)
+### [与中共国的战争：澳大利亚与战争的距离](/content/gnews/12/README.md)
  ` 走进澳洲`
 
-### [美国国务院：美国贸易代表宣布了美国将重新调整对华贸易政策](/content/gnews/10/README.md)
+### [美国国务院：美国贸易代表宣布了美国将重新调整对华贸易政策](/content/gnews/13/README.md)
  ` 美国政要直译推`
 
-### [特鲁多将于本周三公布联邦强制疫苗计划](/content/gnews/11/README.md)
+### [特鲁多将于本周三公布联邦强制疫苗计划](/content/gnews/14/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [国际要闻汇编](/content/gnews/12/README.md)
+### [国际要闻汇编](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [脸书超过15亿用户数据泄露，在暗网被廉价出售](/content/gnews/13/README.md)
+### [脸书超过15亿用户数据泄露，在暗网被廉价出售](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田内阁决定14日解散众议院，31日进行选举投票](/content/gnews/14/README.md)
+### [岸田内阁决定14日解散众议院，31日进行选举投票](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10/5/2021 七哥直播：Facebook的灾难今后可能是常态](/content/gnews/15/README.md)
+### [10/5/2021 七哥直播：Facebook的灾难今后可能是常态](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [应对中共威胁，日美举行年内第5次海上联训](/content/gnews/16/README.md)
+### [应对中共威胁，日美举行年内第5次海上联训](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [10/5/2021 七哥直播：印尼排华的暴行将在全球重演](/content/gnews/17/README.md)
+### [10/5/2021 七哥直播：印尼排华的暴行将在全球重演](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [文·贵天成——文贵先生谈“太平联盟PAG”（一）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“太平联盟PAG”（一）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [10/5/2021 七哥直播：全球只有俄罗斯、北朝鲜和巴基斯坦不买中共国国债](/content/gnews/19/README.md)
+### [10/5/2021 七哥直播：全球只有俄罗斯、北朝鲜和巴基斯坦不买中共国国债](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [华裔英雄《尚气》撕下中共民族主义的遮羞布](/content/gnews/20/README.md)
+### [华裔英雄《尚气》撕下中共民族主义的遮羞布](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [雅典娜时报-第073期](/content/gnews/21/README.md)
+### [雅典娜时报-第073期](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国前公安详述打击新疆维族酷刑细节](/content/gnews/22/README.md)
+### [中共国前公安详述打击新疆维族酷刑细节](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年10月05日澳喜要闻（每日更新）](/content/gnews/23/README.md)
+### [2021年10月05日澳喜要闻（每日更新）](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [中共绑架世界经济，或导致全世界大排华](/content/gnews/24/README.md)
+### [中共绑架世界经济，或导致全世界大排华](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [美NIH院长科林斯将辞职](/content/gnews/25/README.md)
+### [美NIH院长科林斯将辞职](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [全球供应链“灾难”将会变得更糟](/content/gnews/26/README.md)
+### [全球供应链“灾难”将会变得更糟](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [美国加州将要求学生接种冠状病毒疫苗才可返校](/content/gnews/27/README.md)
+### [美国加州将要求学生接种冠状病毒疫苗才可返校](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [加拿大越来越专制：安省副议长因拒绝接种疫苗被免职](/content/gnews/28/README.md)
+### [加拿大越来越专制：安省副议长因拒绝接种疫苗被免职](/content/gnews/31/README.md)
  ` 丁过`
 
-### [经济学人评论：中共国寻求庇护者人数猛增](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
-
-### [汉莎航空计划引入员工疫苗接种义务](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
-
-### [俄罗斯一摁开关，Facebook、Instagram、WhatsApp集体遭删](/content/gnews/31/README.md)
+### [俄罗斯一摁开关，Facebook、Instagram、WhatsApp集体遭删](/content/gnews/32/README.md)
  ` YALUN 亚伦`
 
-### [誓撞南墙&#8211;加拿大阿省长突然宣布开始第三剂中共病毒疫苗接种！](/content/gnews/32/README.md)
+### [誓撞南墙&#8211;加拿大阿省长突然宣布开始第三剂中共病毒疫苗接种！](/content/gnews/33/README.md)
  ` 加拿大多伦多枫叶农场 硫酸羟氯喹64`
 
-### [由于使用了伊维菌素，印度人口最稠密的北方邦已彻底摆脱了新冠疫情](/content/gnews/33/README.md)
- ` 澳喜农场`
+### [解释：为什么油管(YouTube)阻止了反新冠病毒疫苗的内容](/content/gnews/34/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共警官逃亡欧洲证实中共犯下“反人类罪”](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本新首相设立内阁级职务以应对来自中共国的经济威胁](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [前高管在美参议院听证会上揭露脸书](/content/gnews/36/README.md)
+### [前高管在美参议院听证会上揭露脸书](/content/gnews/35/README.md)
  ` HimalayaRussia`
 
-### [美国代表批评中共国的贸易行为 不排除采取额外措施](/content/gnews/37/README.md)
+### [美国代表批评中共国的贸易行为 不排除采取额外措施](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共可能会释放热病毒，并将一切归咎于冠状病毒](/content/gnews/38/README.md)
+### [中共可能会释放热病毒，并将一切归咎于冠状病毒](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/39/README.md)
+### [辉瑞科学家称雇主为邪恶的公司 天然抗体才是王道](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [韩政府表示给孕妇接种疫苗不会对胎儿有影响](/content/gnews/40/README.md)
+### [韩政府表示给孕妇接种疫苗不会对胎儿有影响](/content/gnews/39/README.md)
  ` 首尔天池农场`
 
-### [前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/41/README.md)
+### [前新疆警察接受CNN采访, 揭露中共暴行!](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [“潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!](/content/gnews/42/README.md)
+### [“潘朵拉文件&#8221;发酵,香港前特首梁振英被曝光!](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [10/5/2021国际财经快讯：美国新对华贸易计划；脸书告密者称前雇主对美国构成威胁](/content/gnews/43/README.md)
+### [10/5/2021国际财经快讯：美国新对华贸易计划；脸书告密者称前雇主对美国构成威胁](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
+
+### [联邦机构称其雇员需在下月完成拜登的疫苗强制令](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [2021/10/05 墙内世界](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

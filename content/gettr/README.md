@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 10/6/2021 4:30 AM (UTC)`
+
+10/05/2021 Miles Guo’s GETTR: The par value of the CCP’s fake and fraud banknotes is shocking, and by working and colluding with Wall Street, the Chinese people have been slaves for the whole world for 21 years (commencing from CCP joining WTO); the CCP China’s fake finance and market will for sure explode, which will trigger the global bankruptcy & collapse <br/><br/>10/05/2021文贵直播：中共国的假骗金融票据数字惊人，又和美国华尔街搞到了一起，结果就是中国人给全世界当了二十一年奴隶，中共国的虚假金融爆雷不可避免，且必将引爆全球破产崩溃<br/>
+![img](https://media.gettr.com/group38/getter/2021/10/06/04/30/2c7c4647-18b9-8f2e-503f-57ef097def17/out.jpg)
+
+---
+
 `@miles 10/6/2021 12:15 AM (UTC)`
 
 10/5/2021 Miles Guo: Only Russia, North Korea, and Pakistan don’t buy the government bonds issued by the Communist China; The Chinese people will have to pay for the price of the collapse of the world’s economy caused due to the fact that the CCP holds the whole world hostage by using the economy.<br/><br/>10/5/2021 文贵直播：全球只有俄罗斯、北朝鲜和巴基斯坦不买中共国国债；中国人将不得不为中共利用经济绑架全世界而导致的世界经济大崩溃而买单！<br/>
@@ -288,13 +295,6 @@ Mr. Miles Guo accurately predicted the fall of Fu Zhenghua during his first whis
 
 10月2号．兔子还没死呢，狐狸已经感到悲哀了，胡舒立闻到味道了，知道王岐山孟建柱，他的真正的靠山，要到啦。当然胡已经边控了几年了，这回一定要收进监狱了！【七哥，味道不對了。。。。剛看了，微博確實有，不清楚的照片是我拿手機拍的🙏🙏🙏】
 ![img](https://media.gettr.com/group29/getter/2021/10/02/12/a0ef6836-216b-1c93-0ae6-f899ef552e00/62cf0811ee070dcf730677d2dd9815bd.jpg)
-
----
-
-`@miles 10/2/2021 11:46 AM (UTC)`
-
-10月2号：一切还都没有开始！傅政华的罪行和阴谋，不是我们老百姓所能想象的，孙立军孟建柱，王岐山：傅政华．周亮．等一些，要当二十大领导人的政治阴谋集团还没有浮现出来。中国过去十几年的疯狂的灾难……和世界上所有国家对立，将中国经济和人民至与水火之中的这些人，还都在中南坑和上海过着安稳的日子呢。坐等二十大继续控制中国继而控制全世界．发疫苗大财的美梦呢……可惜的事情是全中国人民，和全世界人民都成了这些流氓政治野心家的牺牲品，所有的这些真相都将被爆料革命予以证明。
-![img](https://media.gettr.com/group18/getter/2021/10/02/11/46/308f2e92-ba68-1948-6fed-1a0e6eae9525/out.jpg)
 
 ---
 
